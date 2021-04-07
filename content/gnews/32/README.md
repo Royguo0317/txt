@@ -1,140 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彼得·纳瓦罗（Peter Navarro）称安东尼·福奇（Anthony Fauci）为“病毒之父”
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1059980/)
+## 川普总统抨击《纽约时报》贬低草根筹款
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1060040/)
 
-内容
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-Dr. Fauci
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/G.jpg)commondreams.org
+川普总统在回击《纽约时报》时，继续揭露民主党人如何窃取了2020大选。
 
-福奇博士
+声明全文如下：
 
-It became very clear
+2021年4月5日
 
-它变得非常清楚
+美利坚合众国第45任总统唐纳德·川普的声明
 
-that decision we made on January the 10th
+在另一个高度党派化的报道中，失败的《纽约时报》本周末写了一篇完全误导人的、片面的攻击文章，试图贬低我们创纪录的、草根筹款行动在2020年竞选中的地位。若不是大规模的选举舞弊，这场竞选很容易就被你们喜欢的共和党总统，我，胜出！
 
-在1月10日我们做出的决定
+我们在2020年获得了前所未有的巨大支持（迄今为止，获得的选票超过了历史上任何一位在任总统），这已经成为民主党的主要威胁，这也解释了为什么《纽约时报》立即匆忙捍卫其激进的左翼盟友。
 
-to go all out and develop a vaccine
+在我们两次大选之前，2016年和2020年的共和党人总是会损失少量的捐款，现在我们赢了，或者说做得很好，因为我们是美国的劳动党，我们在自己的竞赛中打败了民主党，我们从自由派的“蓝色行动”（Actblue）中学到了东西——现在我们比他们做得更好！事实上，很多人都很热心，一次又一次地捐款，在某些情况下，如果捐款过多，我们会及时退还他们的捐款。我们的整体纠纷率不到网上捐款总额的1%，这是一个非常低的数字。这也是民主党（DEM）做的。
 
-来全力以赴开发一款疫苗
+《纽约时报》知道这一点，但将这些细节隐藏起来不谈论，他们不谈作弊的民主党人如何绕过摇摆州的州立法机构（美国宪法要求批准）操纵2020年总统选举，或者民主党人如何在许多城市中心搞有偿投票，施展那些被称作“绕钱走”的小花招，也不谈民主党人如何威胁工会成员，如果他们不投票给民主党人，他们将失去工作，大量的假邮寄选票，非法移民和死人投票给民主党人等等。我们的筹款工作，与共和党合作，都是合法的，都是为了确保我的政府能够继续让美国再次伟大起来，另一方面，选举被大量操纵和窃取，现在看看我们国家，特别是我们南部边界发生了什么。
 
-We have a number of vaccine candidates
+如果你是创纪录的7500万美国人中的一员，那些投票支持我，捐款或志愿服务的，谢谢你，最好的还没来呐！（声明完）
 
-我们有许多候选疫苗
+大选舞弊的揭露涉及宪政危机，川普总统正在全力推进这项议程，而民主党也会竭尽全力掩盖阻止，一条贼船上的左媒自然会选边，不过，真相不会永远被掩盖，7500万人众不能受欺太久，背后的恶魔终究会暴露，邪恶必将受到惩治！
 
-May have been the best decision that I’ve ever made
+声明原文链接：
 
-可能这是我关于作为研究所负责人
 
-with regard to intervention as the director of the institution
 
-做过的最好的决定
+> President Trump responds to NYT hit piece:
+> 
+> “Our support in 2020 was so big—never before seen (received more votes than any sitting President in history, by far), that it has become a major threat to the Democrat Party…”
+> 
+> FULL STATEMENT: [pic.twitter.com/IaCQMYThRs](https://t.co/IaCQMYThRs)
+> — Natalie Harp (@NatalieJHarp) [April 5, 2021](https://twitter.com/NatalieJHarp/status/1379151646177980416?ref_src=twsrc%5Etfw)
 
-0:21
 
-Rachel Campos-Duffy (Fox News)
 
-瑞秋·坎波斯·达菲(福克斯新闻）
+声明文字整理：
 
-All right a quick reaction to that
+Apnl5, 2021
 
-好吧, 对此的快速反应
+Statement by Donald J. Trump, 45th President of the United States of America
 
-I know that’s got to be steaming you Peter
+In yet another highly partisan story, the failing New York Times wrote a completely misleading, one-sided attack piece this weekend that tried to disparage our record-setting grassroots fundraising operation during the 2020 campaign. Except for massive voter fraud this was a campaign that was easily won by your favorite Republican President, me!
 
-我知道那一定要让你烦，彼得
+Our support in 2020 was so big-never before seen (received more votes than any sitting President in history, by far), that it has become a major threat to the Democrat Party, which explains why the New York Times immediately rushed to defend their Radical Left allies.
 
-0:28
+Before our two campaigns, 2016 and 2020 Republicans would always lose small dollar donations. Now we win, or do very well, because we are the Party of Working Americans and we beat the Democrats at their own game. We learned from liberal Actblue–and now were better than they are! In fact, many people were so enthusiastic that they gave over and over, and in certain cases where they would give too much, we would promptly refund their contributions. Our overall dispute rate was less than 1% of total online donations, a very low number. This is done by Dems also.
 
-Dr. peter navarro
+The New York Times knew this but buried these details in their story-they didn’t talk about, however, how the CHEATING Democrats circumvented State Legislatures (approval is required by the U.S.  Constitution) in Swing States to rig the 2020 Presidential Election, or how Democrats paid for votes in many Urban Centers, in a little thing called walking around money, how Democrats threatened Union Members with the loss of their jobs if they didn’t vote Democrat, massive Fake Mail-In Ballots, illegal immigrants and dead people who voted (for Dems) and much more. Our fundraising efforts, working together with the Republican party, were all done legally, and all with the goal of ensuring that my Administration could continue to Make America Great Again. The Election on the other hand, was massively rigged and stolen-and now look what is happening to our Country, and in particular at our southern border.
 
-彼得·纳瓦罗博士
-
-Fauci is a sociopath and a liar
-
-福奇是一个社交变态者和骗子
-
-He had nothing to do with the vaccine
-
-他与疫苗无关
-
-The father of the vaccine is Donald J Trump
-
-疫苗之父是唐纳德·J·川普
-
-What is Fauci the father of,
-
-福奇是什么的父亲
-
-Fauci is the father of the actual virus
-
-福奇其实是病毒之父
-
-Fauci is the guy
-
-福奇是这样的家伙
-
-this virus according to Bob Redfield at the centers for disease control
-
-这个病毒按照疾病控制中心的鲍勃·雷德菲尔德（Bob Redfield） 的意见
-
-Came from the Wuhan lab
-
-是来自武汉实验室
-
-and basically we had Fauci not funding that lab with American tax payer dollars
-
-并且基本上，福奇不止用美国纳税人的钱资助了那个实验室
-
-He authorized this thing called gain-of-function research
-
-他授权了这个叫做功能增强研究的东西
-
-He allowed the Chinese Communist Party,
-
-他允许中国共产党
-
-the people’s liberation Army to genetically engineer a virus using gain-of-function
-
-人民解放军使用功能增强来制造基因病毒
-
-I call it the Fauci virus now
-
-我现在叫它福奇病毒
-
-If he wants to be the father of something
-
-如果他想成为某事之父
-
-He’s the father of the virus that’s killed over half a million Americans
-
-他是那个杀死了超过50几万美国人的病毒之父
-
-1:12
-
-Rachel
-
-瑞秋
-
-Well, Peter, we’re still trying to get to the bottom of that
-
-好，彼得，我们对那个仍然尝试着深挖到底
-
-* * *
-
-英听校：康州盘古农场 – Layka
-翻译：康州盘古农场 – Layka
-翻译终校：康州盘古农场 -Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片:康州盘古农场-银龙
-发文编辑：康州盘古农场-轰炸机
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+If you are one of the record-setting 75 million Americans who voted for me, donated or volunteered, THANK YOUI The best is yet to come!
 
 0

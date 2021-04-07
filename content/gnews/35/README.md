@@ -1,60 +1,134 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 赶紧打疫苗吧-自鸣得意的专制主义与微笑
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1059955/)
+## 彼得·纳瓦罗（Peter Navarro）称安东尼·福奇（Anthony Fauci）为“病毒之父”
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1059980/)
 
-内容：
+内容
 
-It is clear to them that the vaccine is the ticket back to pre-pandemic life.
+Dr. Fauci
 
-他们很清楚，疫苗是回到大流行前生活的门票
+福奇博士
 
-And the window to do that is real narrowly
+It became very clear
 
-而做到这一点的时间窗口真正的非常狭窄
+它变得非常清楚
 
-You were mentioning help all these states are re opening
+that decision we made on January the 10th
 
-你提到帮助所有这些州重新开放
+在1月10日我们做出的决定
 
-They are opening 100% and we have a very narrow window to
+to go all out and develop a vaccine
 
-他们将100%开放，我们只有一个非常狭窄的时间窗口
+来全力以赴开发一款疫苗
 
-tie re-opening policy to vaccination status
+We have a number of vaccine candidates
 
-来将重新开放政策与疫苗接种状况联系起来
+我们有许多候选疫苗
 
-Because otherwise everything is re opened what is carry going to being
+May have been the best decision that I’ve ever made
 
-因为不然的话，一切都会被重新翻转
+可能这是我关于作为研究所负责人
 
-How we are going to satisfy the people actually to get the vaccine
+with regard to intervention as the director of the institution
 
-我们如何才能真正满足人们接种疫苗的要求呢？
+做过的最好的决定
 
-So that’s why the CDC and bottom administration need to come out a lot of
+0:21
 
-因此，这就是为什么疾控中心和基层政府需要制定
+Rachel Campos-Duffy (Fox News)
 
-border and say
+瑞秋·坎波斯·达菲(福克斯新闻）
 
-很多条条框框，比如
+All right a quick reaction to that
 
-If you are vaccinated you can do all the things, here is all the freedom that you have
+好吧, 对此的快速反应
 
-如果你接种了疫苗，你就可以做所有的事情，这就是你所拥有的所有自由
+I know that’s got to be steaming you Peter
 
-Because otherwise, people are going to out to enjoy freedoms anyway
+我知道那一定要让你烦，彼得
 
-因为不然的话，人们无论如何都会走出去享受自由
+0:28
+
+Dr. peter navarro
+
+彼得·纳瓦罗博士
+
+Fauci is a sociopath and a liar
+
+福奇是一个社交变态者和骗子
+
+He had nothing to do with the vaccine
+
+他与疫苗无关
+
+The father of the vaccine is Donald J Trump
+
+疫苗之父是唐纳德·J·川普
+
+What is Fauci the father of,
+
+福奇是什么的父亲
+
+Fauci is the father of the actual virus
+
+福奇其实是病毒之父
+
+Fauci is the guy
+
+福奇是这样的家伙
+
+this virus according to Bob Redfield at the centers for disease control
+
+这个病毒按照疾病控制中心的鲍勃·雷德菲尔德（Bob Redfield） 的意见
+
+Came from the Wuhan lab
+
+是来自武汉实验室
+
+and basically we had Fauci not funding that lab with American tax payer dollars
+
+并且基本上，福奇不止用美国纳税人的钱资助了那个实验室
+
+He authorized this thing called gain-of-function research
+
+他授权了这个叫做功能增强研究的东西
+
+He allowed the Chinese Communist Party,
+
+他允许中国共产党
+
+the people’s liberation Army to genetically engineer a virus using gain-of-function
+
+人民解放军使用功能增强来制造基因病毒
+
+I call it the Fauci virus now
+
+我现在叫它福奇病毒
+
+If he wants to be the father of something
+
+如果他想成为某事之父
+
+He’s the father of the virus that’s killed over half a million Americans
+
+他是那个杀死了超过50几万美国人的病毒之父
+
+1:12
+
+Rachel
+
+瑞秋
+
+Well, Peter, we’re still trying to get to the bottom of that
+
+好，彼得，我们对那个仍然尝试着深挖到底
 
 * * *
 
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场-Mike Li
+英听校：康州盘古农场 – Layka
+翻译：康州盘古农场 – Layka
+翻译终校：康州盘古农场 -Mike Li
 字幕+视频制作:康州盘古农场-天涯行
 审片:康州盘古农场-银龙
 发文编辑：康州盘古农场-轰炸机
@@ -63,4 +137,4 @@ Because otherwise, people are going to out to enjoy freedoms anyway
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-+1
+0
