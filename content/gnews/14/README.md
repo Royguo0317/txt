@@ -1,38 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国防部长克兰普-卡伦鲍尔访谈|我们是西方世界的一部分 我们必须确保人权得到保护
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1062441/)
+## 【世事解评】中共与巴基斯坦在生物方面的军事合作（一）
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1062840/)
 
-```
-新闻来源： RND 网页版
-发表时间：2021年4月7日
-翻译整理/评论： Shuizhuyu
-```
+译评：纽约香草山农场  Billwilliam
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/55481798_303-e1617817268112.jpg)封面来源：德语媒体网站
 
-像特朗普一样，拜登政府显然旨在与中共对抗。德国联邦国防军于8月将护卫舰巴伐利亚派往印度太平洋。在世界政治的深处，这艘船可以而且应该取得什么成就？
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-印度太平洋的局势当然是我们关心的问题。遵守自由贸易路线和领土完整的规则，并加强我们在澳大利亚，日本，韩国和新加坡等地区的民主伙伴，符合德国和欧洲的利益。我们向印度太平洋派遣护卫舰这一事实在美国也被视为一个信号：我们不仅在谈论受到中国威胁的海上航行自由，而且我们也准备为此做些事情。对于日本来说，我们参与对朝鲜，澳大利亚和其他伙伴希望与我们一起实践的武器禁运的控制也非常重要。我希望我们不仅要说好话，而且要真正做点什么。护卫舰是朝这个方向迈出的重要一步。
 
-我希望我们看到中国的面貌。对于我们来说，中国现在是并将继续是一个非常重要的贸易和经济伙伴。没有中国，我们也无法应对人类的重大任务，例如气候变化。但是，与此同时，中国也是一个系统性和战略性挑战。我将对中国维吾尔族人的不人道待遇描述为对基本人权的侵犯。中国领导人将其称为内部事务，并拒绝进行批判性讨论。这与我们对人权普遍适用性的理解相矛盾。我们是西方世界的一部分，我们必须确保人权得到保护。
 
-#### **简评： **
+根据《克拉克森新闻》记者安东尼-克兰报道，中共与巴基斯坦在生物研究方面有秘密军事合作，甚至包括类似炭疽的细菌研究。
 
-**德国国防部长早前接受了记者的访问， 我节选了这段与中共国有关系的部分展示给大家。 我想说的是， 德国国防部长在这里已经明确的指出， 中共对新疆人不人道的待遇， 是对基本人权的侵犯。 她还没有把这件事提高到种族灭绝的高度， 可能还需要时间，但至少这是开始。 同时她也指出了中共国是威胁印度太平洋海上航行自由的， 也要派出巴伐利亚护卫舰今年8月开往印度太平洋地区。我们在这个访谈中不难看出， 欧洲人已开始觉醒， 已经意识到了海上航行自由的重要性以及中共国的威胁。 **（未完待续，请看下篇）
+![]()![](https://www.msdmanuals.com/-/media/manual/professional/images/bacillus_anthracis_orig_zh.jpg?thn=0&amp;sc_lang=zh)图源网络
 
-🔗**[德国防部长克兰普-卡伦鲍尔访谈：“中共国欲塑造世界秩序”](https://gnews.org/zh-hans/1062733/)**
+武汉病毒所与巴基斯坦的国防科技组织（DESTO）签署秘密协议，研究新发传染病。情报来源称，该计划完全由中共国资助，并被正式命名为“新发传染病合作以及媒介传播疾病的生物控制研究”。
 
-**新闻来源链接：**
+情报界对此表示关切，因为中共在境外测试生物制剂，以期尽量减少“引起国际社会谴责的风险”。一位情报来源称，“在秘密生物武器计划下，DESTO参与了与炭疽有关的各种双重用途研究项目”。而且武汉病毒所提供所有资金、材料、科技支持。
 
-[🔗Kramp-Karrenbauer im Interview: „China will die Weltordnung prägen“](https://www.rnd.de/politik/verteidigungsministerin-kramp-karrenbauer-im-interview-china-will-die-weltordnung-pragen-GSPSXRW4CVEHTMYNGVQJRNOPBQ.html?utm_source=pocket-newtab-global-de-DE)
+据称，中共与巴基斯坦的秘密项目已经成功进行了土壤样本实验，并分离出苏云金芽孢杆菌（Bacillus Thuringiensis，简称BT菌），这种细菌与炭疽惊人的相似。巴基斯坦通过研究这种细菌可以丰富其攻击性生物武器项目。武汉病毒研究所已向巴基斯坦提供了苏云金芽孢杆菌的试剂。同时，武汉病毒所向巴基斯坦提供基因改造病原体和生物信息学的广泛培训，并帮助巴基斯坦发展自己的病毒数据库。巴基斯坦由此获得鉴定病毒，获取危险微生物和将基因工具应用于传染病的能力。
 
-* * *
+该秘密项目不受民用大学或巴基斯坦政府卫生部的监督，并被允许未来进行秘密行动。中共与巴基斯坦的合作不限于既定目标——双方都可以增加研究新型疾病。情报部门认为，中共参与这个项目是为了针对印度，而且还可以在外国领土上进行危险实验，避免其自身遭受这种风险。一位专家称，北京（中共）“将巴基斯坦指定为进行危险生物化学研究的目的地”，同时“逃避使用其本国领土从事此类活动”，这些活动“有可能引起国际社会的批评和谴责”。该项目的一部分就是利用巴基斯坦公民测试中（共）国国药集团的新冠疫苗。
 
-*** 审核/校对：**Ting Guo*
+此外，中巴生物项目已经开始研究克里米亚-刚果出血热病毒（CCHFV）。这种出血热病毒发病快，死亡率到达25%，与埃博拉病毒一样危险。克里米亚-刚果出血热传染性强，尚没有已知的疫苗或治疗方法，所以和埃博拉病毒、马尔堡病毒等一起被列为P4级最危险的微生物。据称，巴基斯坦用于实验CCHFV的实验室不具备处理生物安全P4级别。因此，情报专家对这个项目的生物安全性表示担忧。
 
-（免责声明：本文仅代表译者个人观点，跟GNEWS平台无关。）
+《克拉克森新闻》称，中共正在积极进行基因研究，可能制造出针对某个种族的生物武器。另有情报人士称，武汉病毒所在云南昆明还建立了医学生物学研究所。令人担忧的是，据称隶属中（共）国医学科学院的昆明研究所也在从事P4级传染病研究但没有适当保护措施。
+
+点评：
+
+除了《克拉克森新闻》，笔者还找到两篇关于苏云金芽孢杆菌的论文。第一篇题为《苏云金芽孢杆菌Cry7Ca1毒素的晶体结构，该毒素对特定一种蝗虫有效》，主要阐述苏云金芽孢杆菌分泌毒素蛋白的结构[2]。第二篇论文则分析一种苏云金芽孢杆菌的全基因组序列[3]。两篇论文的部分作者均隶属于武汉病毒所或中（共）国科学院。这个证据证明，武汉病毒所确实在从事苏云金芽孢杆菌的研究。
+
+苏云金芽孢杆菌本身对人无害，但是能感染并杀死某些昆虫，所以农业上被用作生物杀虫剂喷洒在农田里。如果中巴项目对这种细菌进行基因改造，有可能制造出能感染人的基因武器。
+
+参考阅读：
+
+1. “[Exclusive: China’s Wuhan lab operating ‘covert operations’ in Pakistan, handling ‘anthrax-like’ pathogens](https://www.theklaxon.com.au/home/xdx17f6auh0tew0g57ubqrzxkdeux9),” Klan, Anthony, *The Klaxon*, July 23, 2020.
+2. “[Crystal structure of Bacillus thuringiensis Cry7Ca1 toxin active against Locusta migratoria manilensis](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6371223/#__ffn_sectitle),” Jing. X., and et al., *Protein Science*, Mar 2019, 28(3): 609-619
+3. “[Complete Genome Sequence of *Bacillus thuringiensis* subsp. *Jinghongjiensis* Reference Strain YGd22-03](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5624746/#__ffn_sectitle),” Wu, Y., and et al., *Genome Announcement,*Sep 2017, 5(39):e00740-17
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
 
 0

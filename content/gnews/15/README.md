@@ -1,47 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】我们GTV投资者自豪捍卫权利
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1062608/)
+## 拜登与达美航空等大公司的虚伪遭众人批
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1062856/)
 
-作者：纽约香草山媒体部 蜜蜂
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C.jpg)facebook.com
+面对极左人士、企业对佐治亚州选举改革法的曲解、诬陷和攻击，公正的人自有客观的判断，他们清楚左派害怕什么，抵制选举改革的真正目的，川普总统的经济顾问拉里·库德洛（Larry Kudlow）对这些虚伪人士给予了无情地揭露。
 
+《福克斯商业》发表文章，题目“库德洛抨击拜登、MLB和达美航空对佐治亚州选举法的指责”。文章摘要指出，库德洛对达美航空首席执行官巴斯蒂安（Ed Bastian）说：“谁要求他（做的）这件事？”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+全文如下：【1】
 
+《库德洛》节目主持人拉里·库德洛周二抨击了拜登（Joe Biden）、美国职业棒球大联盟（Major League）棒球委员曼弗雷德（Rob Manfred）和达美航空（Delta Airlines）首席执行官巴斯蒂安（Ed Bastian）对佐治亚州新选举法的批评，指出达美航空登机要有照片的身份证验证身份，却抗议缺席投票中使用身份证，这是何等虚伪。
 
+拉里·库德洛，为什么所有这些公司的首席执行官都觉得必须要有自己对选举法政策的声明呢？他们认为他们在管理国家经济委员会之类的（事情）？例如，达美航空的埃德·巴斯蒂安似乎反对佐治亚州的新法律，反对该法律规定缺席投票者必须验证带照片的身份证。然而，要乘坐他的达美航空飞行，你需要出示带照片的身份证才能登机。
 
-转眼间GTV诞生一周年了。在这一年里，GTV始终如一地奉行着“唯真不破”的原则，讲真话，说实事，是举世无双的灭共平台；在这一年里，GTV彻底揭露中共的愚民五术、以假以黑治国、3F计划、病毒来源真相、13579计划、灭白计划等。GTV用真、善、狠，把中共这个马蜂窝翻了个底朝天，更让“中南坑”的“老杂毛”们坐立不安。GTV彻底打破了中共妄图统治世界的黄粱美梦，拆断了他们的“一带一路”。GTV的力量打得中共措手不及、满地找牙。当然，中共也绝不甘心：中共一边千方百计地垂死挣扎，一边用他们的惯用伎俩——发动他们在海外的潜伏势力，勾结他们在各国用“蓝金黄”手段收买的各行各业要人。于是，中共围追堵截、拼命打压GTV这个虽年轻但充满战斗力的反共平台。是可忍孰不可忍？！
+顺便说一句，达美航空总是吹嘘它与中共国的伟大业务，因此，我推断，巴斯蒂安先生认可了中共国的侵犯人权行为–屠杀维吾尔族人和推翻香港的民主，又或者中共国的反民主集权主义让佐治亚州的选举法看起来相当不错？或者，他只是个大骗子？说真的，是谁要他这样的？
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-59.png)
+克鲁兹（Ted Cruz）参议员也发推、引文，指责、嘲讽了棒球大联盟将全明星比赛撤出佐治亚州的的荒唐举动。【2】
 
-我们是GTV的投资者，我们热爱这个敢说实话、敢发声，追求正道主义的灭共平台。我们怀着对未来美好生活的憧憬，对正义事业的追求，我们心甘情愿来投资、建设GTV，传播真善美。可就在这个投资过程中，有多少中共国墙内的投资者被百般阻挠、剥夺投资权利。而投资成功者一旦被查出，还会被“国保”、“国安”人员威逼恐吓，甚至入狱、丧生。面对这些违反人权的行为，国际上没有一个正义的组织对他们进行人权保护。甚至，中共猖狂的黑手还伸向了美国证券交易委员会，俗称SEC，美国联邦管理和监督金融市场的机构——他们同样用“蓝金黄”的手段收买SEC，致使他们对中共军工企业在美交所的上市可以不闻不问，不施行任何审核调查，任中共以国家之力圈美国老百姓的血汗钱为自己输血。SEC里这些人见利忘义、吃里扒外，为中共这个沾满人民鲜血，犯有种族灭绝、反人类罪的政府充当警察和打手。SEC不分青红皂白与中共特务勾结，用子虚乌有、混淆视听、搅浑水的手段，对GTV普通投资者百般刁难，横挑鼻子竖挑眼。SEC置 “六大金融法律”而不顾！
+“的确是。政治化的，唤醒棒球–告诉一半球迷跳入湖中–对每个人来说都是两败俱伤。尤其当棒球大联盟对事情的本质一无所知，也没有假装不知道的时候。”
 
-美国SEC跟共产党勾结，无故长期调查GTV，合谋构陷合法投资者，歧视中国投资者，造成了我们投资者巨大的损失。这是典型的种族主义行为和有政治目的的犯罪行为。是可忍孰不可忍？！
+川普总统的宪法律师珍娜·埃利斯（Jenna Ellis）引推、发推：【3】
 
-我们作为GTV投资者，为了我们自己的权利和利益，必须声讨SEC的非法行为，必须要求美国政府彻查SEC与共产党合谋的犯罪行为。我们要去SEC官网举报投诉。我们是骄傲的GTV投资者，我们站出来坚决捍卫我们自己的投资权益！
+“哈哈，可口可乐的股东大会需要身份证，白痴。我猜模仿现在对左派来说都太复杂了。”
 
-（本文观点仅代表作者）
+参考链接：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+【1】[https://www.foxbusiness.com/politics/kudlow-slams-biden-mlb-and-delta-airlines-for-criticism-of-georgia-election-law](https://www.foxbusiness.com/politics/kudlow-slams-biden-mlb-and-delta-airlines-for-criticism-of-georgia-election-law)
 
-编辑/校对/发稿：Irene木木
+【2】[https://twitter.com/tedcruz/status/1379599431906000896](https://twitter.com/tedcruz/status/1379599431906000896)
 
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+【3】https://twitter.com/JennaEllisEsq/status/1379595509413859328
 
 0
