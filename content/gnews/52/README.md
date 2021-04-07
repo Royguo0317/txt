@@ -1,60 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统抨击《纽约时报》贬低草根筹款
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1060040/)
+## 郭先生0405VI今天美国人对共产党的威胁和觉醒远远不够
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1060270/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-24.jpg)
+编辑整理：
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/G.jpg)commondreams.org
-川普总统在回击《纽约时报》时，继续揭露民主党人如何窃取了2020大选。
+巴塞罗那喜悦农场：笑笑；华盛顿DC农场：YIMING（文鸣）；日本东京方舟农场：山川异域
 
-声明全文如下：
+郭文贵先生在[2021年4月5号 文贵直播：共产党的清明经济，清明政治，清明关系，挣死人钱，回老家搞关系，升官发财； 共产党实施的以钱灭美计划，美元经济崩溃，黄金一定大涨](https://gtv.org/video/id=606b0c896e11a756edd89042)中谈到了无神论的共产党利用清明节搞清明经济、清明政治、清明关系和以钱灭美等话题，本系列将根据郭先生在直播中涉及的不同侧重点逐一上传，以下为本系列第六部分——今天美国人对共产党的威胁和觉醒远远不够
 
-2021年4月5日
+据[2021年4月5号 文贵直播：共产党的清明经济，清明政治，清明关系，挣死人钱，回老家搞关系，升官发财； 共产党实施的以钱灭美计划，美元经济崩溃，黄金一定大涨](https://gtv.org/video/id=606b0c896e11a756edd89042)时间点1：13：09——
 
-美利坚合众国第45任总统唐纳德·川普的声明
+我们不要在乎美国人信不信我们，它信不信真的咱别管，美国这个国家很伟大，她最终会明白的。我一点儿都不在乎美国人知道不知道，头两天有一个美国人跟我说，郭先生，美国人知道爆料革命的人还很少，我要让更多的美国人知道知道你什么，然后呢说你可以给我个十万美元的预算，我帮着让你美国人知道。我说一毛钱都不给你，我根本不在乎你美国人知道不知道，是你美国需不需要知道，你不知道是你的无知是你的失去、是你的失败，你知道了是你获得，我干嘛让你知道，我干嘛让你知道，我真的不在乎。包括G-TV，G-News，真的是多少美国人看我们真的不在乎。
 
-在另一个高度党派化的报道中，失败的《纽约时报》本周末写了一篇完全误导人的、片面的攻击文章，试图贬低我们创纪录的、草根筹款行动在2020年竞选中的地位。若不是大规模的选举舞弊，这场竞选很容易就被你们喜欢的共和党总统，我，胜出！
+因为这个国家**现在是华尔街和好莱坞还有美国科技公司的腐败贪婪，它最终它要付出代价的。**就像美国的私人公司3M公司在美国最需要口罩的时候，它就在电视上说，欸，我没有义务给你口罩啊。对呀，就像川普还有皮特纳瓦罗还有蓬佩奥都说美国是私人公司，私人公司一切向往利益，它完全不考虑政治。这是对的，按规则说是对的，但是这个国家要完了你这私人企业也都完球蛋。他们太贪婪了，你跟共产党做生意，你去。
 
-我们在2020年获得了前所未有的巨大支持（迄今为止，获得的选票超过了历史上任何一位在任总统），这已经成为民主党的主要威胁，这也解释了为什么《纽约时报》立即匆忙捍卫其激进的左翼盟友。
+美元都没了你啥都没了，什么美国的豪宅呀、自由女神啊、民主啊、信仰，想啥都没了。这个国家是高成本地运作，完全靠一个高成本高质量法律团体系，维护的就是一个问题——美元。美国唯一让美元能够存在就是美国的航空母舰、美国的强大的军队和国家的科技能力。当美元没有的时候美国军队就没了，美国军队没了美国的利益就没了，美国利益就没了，这些人才也不聚集美国了，美国就完了。那你说美国企业呢还有行吗？像Elon Musk这样的人他就不会待在美国，他弄不好迁都，把他公司迁到香港、迁到上海去了或者到欧洲去了。
 
-在我们两次大选之前，2016年和2020年的共和党人总是会损失少量的捐款，现在我们赢了，或者说做得很好，因为我们是美国的劳动党，我们在自己的竞赛中打败了民主党，我们从自由派的“蓝色行动”（Actblue）中学到了东西——现在我们比他们做得更好！事实上，很多人都很热心，一次又一次地捐款，在某些情况下，如果捐款过多，我们会及时退还他们的捐款。我们的整体纠纷率不到网上捐款总额的1%，这是一个非常低的数字。这也是民主党（DEM）做的。
+这是美国人他一定要意识到的，现在你看到美国这个下边的官员，不管这些执法部门的腐败到了什么程度，腐败、被收买和无知，对共产党的威胁完全没有认识，**没有我们新中国联邦没有爆料革命美国人绝对达不到今天这个程度，今天美国人对共产党的威胁的觉醒远远是不够的。**
 
-《纽约时报》知道这一点，但将这些细节隐藏起来不谈论，他们不谈作弊的民主党人如何绕过摇摆州的州立法机构（美国宪法要求批准）操纵2020年总统选举，或者民主党人如何在许多城市中心搞有偿投票，施展那些被称作“绕钱走”的小花招，也不谈民主党人如何威胁工会成员，如果他们不投票给民主党人，他们将失去工作，大量的假邮寄选票，非法移民和死人投票给民主党人等等。我们的筹款工作，与共和党合作，都是合法的，都是为了确保我的政府能够继续让美国再次伟大起来，另一方面，选举被大量操纵和窃取，现在看看我们国家，特别是我们南部边界发生了什么。
+这次美国经济出了问题、黄金出了问题，共产党的以钱灭美的计划和灭白计划和制造种族对立矛盾的计划和蓝金黄的深度逐渐会显现出来，然后美国这两万亿美元所谓的基建和一万多亿美元的基建，这三万多亿美元都要从企业家的身上拿出来，企业家会再从这些穷老百姓手里拿回来。
 
-如果你是创纪录的7500万美国人中的一员，那些投票支持我，捐款或志愿服务的，谢谢你，最好的还没来呐！（声明完）
+但这个过程它是需要时间的，它不是一天两天，它不像共产党一样把马云、马化腾是不是把这些老板全抓了，它做不到的，国家就没了，它要一个时间，在这个时间当中可能美国人就完全失去了世界第一经济强国、第一科技强国、第一军事强国、第一信用之国和信用美元体系全部崩塌。剩下的美国可能是哪儿叫美国，德州德克萨斯叫美国，美塔那、马塔那叫美国，爱荷华州，Idaho就是黄石公园叫美国，其它都不叫美国，像什么纽约洛杉矶啊估计都乱了。
 
-大选舞弊的揭露涉及宪政危机，川普总统正在全力推进这项议程，而民主党也会竭尽全力掩盖阻止，一条贼船上的左媒自然会选边，不过，真相不会永远被掩盖，7500万人众不能受欺太久，背后的恶魔终究会暴露，邪恶必将受到惩治！
+这就是共产党想要的，搞弱、搞乱、搞死美国，蓝金黄，三F方案，蓝金黄方案，灭白计划。这都是共产党是一系列的，从科恩、从IMF世界银行，从所有的，从国会、从情报部门儿、从司法部门，你看那Higginbotham那司法部的，就为了遣返郭文贵他能收几百万、几千万美元。刘特佐，你看刘特佐那什么概念，把马，大家还记得吧，马哈蒂尔上去了把纳吉布干掉了，人家纳吉布又派了个把马哈蒂尔干掉了，马哈蒂尔上来以后现在弄了个西丁外交部长，就是人家纳吉布的人家的亲表兄弟，人家纳吉布的亲表弟又回到北京，在刘特佐的安排下——孟建柱的私生子的安排下，公开在外交部喊王毅你是我大哥，哈哈，共产党这邪恶到啥程度。
 
-声明原文链接：
+你再看看阿拉斯加那个会面，大家我最起码我在那个YouTube上我看了三遍了，我认真地看了三遍，每一个字儿、每一句话都是精心的安排，每一个字儿、每一句话都是对美国的羞辱和侮辱，那个阿拉斯加的见面绝对等同于当年撒切尔夫人在北京跌倒那一跤。
 
+接上文——
 
+[郭先生0405I中国历史上关于清明节的故事很多但未必可信](https://gnews.org/zh-hans/1058342/)
 
-> President Trump responds to NYT hit piece:
-> 
-> “Our support in 2020 was so big—never before seen (received more votes than any sitting President in history, by far), that it has become a major threat to the Democrat Party…”
-> 
-> FULL STATEMENT: [pic.twitter.com/IaCQMYThRs](https://t.co/IaCQMYThRs)
-> — Natalie Harp (@NatalieJHarp) [April 5, 2021](https://twitter.com/NatalieJHarp/status/1379151646177980416?ref_src=twsrc%5Etfw)
+[郭先生0405II共产党利用清明搞政治、赚死人钱、拉关系搞生殖器](https://gnews.org/zh-hans/1058590/)
 
+[郭先生0405III清明节里最可悲的是生不如死的苛活的同胞](https://gnews.org/zh-hans/1058680/)
 
+[郭先生0405IV我们要真正的行动干掉魔鬼为死去的人而奋斗](https://gnews.org/zh-hans/1058741/)
 
-声明文字整理：
-
-Apnl5, 2021
-
-Statement by Donald J. Trump, 45th President of the United States of America
-
-In yet another highly partisan story, the failing New York Times wrote a completely misleading, one-sided attack piece this weekend that tried to disparage our record-setting grassroots fundraising operation during the 2020 campaign. Except for massive voter fraud this was a campaign that was easily won by your favorite Republican President, me!
-
-Our support in 2020 was so big-never before seen (received more votes than any sitting President in history, by far), that it has become a major threat to the Democrat Party, which explains why the New York Times immediately rushed to defend their Radical Left allies.
-
-Before our two campaigns, 2016 and 2020 Republicans would always lose small dollar donations. Now we win, or do very well, because we are the Party of Working Americans and we beat the Democrats at their own game. We learned from liberal Actblue–and now were better than they are! In fact, many people were so enthusiastic that they gave over and over, and in certain cases where they would give too much, we would promptly refund their contributions. Our overall dispute rate was less than 1% of total online donations, a very low number. This is done by Dems also.
-
-The New York Times knew this but buried these details in their story-they didn’t talk about, however, how the CHEATING Democrats circumvented State Legislatures (approval is required by the U.S.  Constitution) in Swing States to rig the 2020 Presidential Election, or how Democrats paid for votes in many Urban Centers, in a little thing called walking around money, how Democrats threatened Union Members with the loss of their jobs if they didn’t vote Democrat, massive Fake Mail-In Ballots, illegal immigrants and dead people who voted (for Dems) and much more. Our fundraising efforts, working together with the Republican party, were all done legally, and all with the goal of ensuring that my Administration could continue to Make America Great Again. The Election on the other hand, was massively rigged and stolen-and now look what is happening to our Country, and in particular at our southern border.
-
-If you are one of the record-setting 75 million Americans who voted for me, donated or volunteered, THANK YOUI The best is yet to come!
+[郭先生0405V过去的一周共产党开始全面实施以钱灭美行动](https://gnews.org/zh-hans/1060164/)
 
 0

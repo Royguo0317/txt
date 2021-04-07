@@ -1,25 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 卡迪拉公司寻求印度政府批准将治疗丙型肝炎药物（聚乙二醇干扰素α-2b）重新用于CCP病毒的治疗
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1060822/)
+## 【战友心声】新中国人不再沉默
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1060755/)
 
-【日本东京方舟农场】   翻译：Jay Cheung   校对：miumiu law
+作者：纽约香草山佛教部  GForever(文紫)
 
-据路透社（Reuters）印度班加罗尔报道，印度制药公司卡迪拉（Cadila Healthcare Ltd）周一宣布他们已经寻求当地监管机构批准，将丙型肝炎药物用于CCP病毒的治疗，该药物被当作临时药物在后期试验中取得了令人鼓舞的效果。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
-卡迪拉公司在提交给证券交易所的一份声明中说，在早期服用一剂这样的药物能够使CCP病毒患者较快恢复健康，并且能够避免该疾病晚期阶段出现的并发症。
 
-该公司援引III期临床试验数据说，接受该药物治疗七天的患者，在使用标准的逆转录聚合酶连锁反应（RT-PCR）检测中，91%的病人呈阴性，而接受标准医疗方案治疗的患者这一数据接近79%。
 
-这个药物是大家熟知的，卡迪拉公司注册为“PegiHep”牌子的聚乙二醇干扰素α-2b（Pegylated Interferon alpha-2b），最初被批准用于丙型肝炎，于10年前在印度推出，它将旧药新用，被用于治疗CCP病毒。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-13-6-scaled.jpg)
 
-印度政府在CCP病毒感染患者每天激增至新高之际发布了这条新闻。现在印度是世界第三多病例的国家，仅次于美国和巴西。迄今为止，印度已经报告了近1,250万例的感染患者，超过164,000人死亡。
+4月5日GTV的投资者们来到位于华盛顿的美国证监会（以下简称SEC）楼下进行抗议，他们为了自己的利益勇敢地团结在一起，自信地喊出心中的愤怒，大胆地表达着自己的诉求。整齐划一的队形、得体靓丽的着装、意气风发的面貌成为华盛顿街头一道靓丽的风景线，GTV的投资者们用自己的实际行动告诉全世界——中国人不再沉默。
 
-评：译者网上搜索了几篇有关聚乙二醇干扰素α-2b用CCP病毒治疗的报道。该药物被用于CCP病毒的治疗方案是卡迪拉公司与FDA以及其他科研机构合作研究的基础上做出该决定并于去年四月份开始临床试验。卡迪拉也是硫酸羟氯喹的生产商之一，硫酸羟氯喹在印度也同样用于CCP病毒的早期治疗。应该说聚乙二醇干扰素α-2b在经过近一年的临床试验被用于CCP病毒治疗应该会批准通过的。但是卡迪拉公司也知道，这个药物对CCP病毒早期症状的患者确实有用，但是对那些没有发病症状的患者就不是那么可靠，只有追究CCP病毒的来源，灭掉CCP才能最终消灭这个CCP病毒。
+众所周知，GTV成立以来，一直秉承着唯真不破、是假就灭的发展宗旨，成为全世界唯一一个追求正义、给你真相的媒体平台，而GTV本身的发展也创造了媒体界的一个奇迹。因此，GTV被中共视为眼中钉肉中刺，投入巨资、不择手段地全面打压。在没有任何证据的情况下，勾结SEC共同合谋构陷GTV，并在没有任何正当理由的情况下长时间冻结了所有投资人的投资款，在严重阻碍GTV发展的同时，直接导致投资人在安全上受到威胁、在经济上受到巨损。
 
-注：本文仅代表译者观点
+面对如此沆瀣一气的行为，GTV投资者们毫不犹豫地团结在一起走上街头，用自己的行动质问SEC，你究竟是属于美国还是属于中共？！你把美国的法治、自由、民主置于何地？！你是否应归还GTV和所有投资人一个正义和公正？！
 
-原文链接：[https://www.reuters.com/article/health-coronavirus-cadila-achealth-idUSKBN2BS05N?taid=606aad419e71f30001ce3df4&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/article/health-coronavirus-cadila-achealth-idUSKBN2BS05N?taid=606aad419e71f30001ce3df4&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+据悉，本次示威活动还在持续进行中，并得到了世界各地GTV投资者的拥护和支持，不能到场的投资者在向抗议前线战友表达敬意的同时，也纷纷到SEC和美国相关部门网站去进行投诉，线上线下共同维护自己的合法权益。这次史无前例的抗议活动不仅让我们强烈地感受到不再沉默的新中国人的勇气与自信，而且也让我们坚信这些优秀的投资人会和GTV一起共同树立一个新世界的新媒体的典范。
 
-0
+校对/审核/发稿：369文驹，飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
++2
