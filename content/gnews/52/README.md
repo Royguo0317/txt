@@ -1,58 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友观点】一封回复中共诋毁GTV言论的公开信
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1061880/)
+## 前国际货币基金组织卡恩是中共代言人&nbsp; 中共对美货币战迫在眉睫
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1061675/)
 
-#### 作者：GTV投资人
+**郭先生在2021年4月6日的盖特视频中进一步曝光前世界货币组织主席卡恩（Dominique Strauss-Kahn）被中共收买，并且世界各大货币金融组织都已经被中共渗透。中共也正致力于抽走美国黄金、抛售美债等打击美国经济的一系列计划。然而美国的钟摆效应导致情报人员和政策不能够连贯，全国上下还在搞房地产经纪，两党还在争选票。此时的美国像一个诺大的冰山，在中共的煽风点火下已经沉没在即、迫在眉睫！**
 
-#### 编辑：翼族
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-7.png)
-图片来源：GTV
+**前国际货币基金组织卡恩是中共代言人****  ****中共对美货币战迫在眉睫**
 
-近日很多战友在Discord群收到一段来源不明的信息，也算是图文并茂。考虑到这可能会让很多想要投资GTV的战友感到困惑，所以我认为有必要把我投资GTV的一些基本认知分享给大家，希望对战友们是否应该投资GTV的抉择有所帮助。这篇文章是我专门写给心存良知、站在正义一边的战友的，同时也是对中共五毛大军进行一个集体性的回复。
+**Former President of IMF Kahn Is Owned by the CCP**
 
-**一）亚马逊Alexa的全球网站统计排名其实进一步验证了GTV未来不可预估的潜在价值。**
+兄弟姐妹们大家好啊，4月6号。昨天，大家知道，直播之后影响非常非常大。跟我联系的(人)，非常明显，昨天这个直播完以后跟我联系的，绝大多数都是世界政治、经济(的)战略家，都是世界级的人物。（他们）就来了，来了来了来了，是吧？然后咱们战友们反应就不太了解啊欧洲啊，WTO组织，IMF(国际货币基金组织)，世界银行，这(些)是世界上合法的世界(级)机构。基本上现在大家还都以为这三个机构欧洲、美国的，是吧？控制着。不同的情况下，事实上都被老共不同程度的渗透，（但CCP)想弄也弄不下来。
 
-从VOG断播事件，到郭文贵先生的推特被封；从贵为美国总统的川普先生的推特言论被审核和删除，到发表选票作假的相关言论被恶意标​​记，再到后来被推特、油管和脸书彻底关闭账号……这些无可辩驳的事实让我们每个人都无法否认大科技公司对人们言论自由的审查和控制，即便是在自由民主法治处于世界文明之巅的美国，也是如此。即使是在位的美国总统都如此待遇，就不用说普通人了，更别提那些生活在共产主义极权统治下的老百姓了。
+Hello, brothers and sisters. Today is April 6th. You know, the response to yesterday’s live broadcast was huge! The people who contacted me after I came out of the broadcast were largely international political and economic strategists, and they were all world-class figures. They just reached out to me, alright? However, our fellow fighters’ responses reflected that they did not know much about Europe, the WTO, the IMF (International Monetary Fund), and the World Bank – those legal institutions in the world. Basically, everyone now still thinks that these three institutions are under the control of Europe and the United States, right? Actually, they have been more or less infiltrated by the CCP, but the CCP hasn’t succeeded even though they wanted to.
 
-那么，请问这位给我发信息的同胞，您认为在中共国的网络高墙之内，或是在网络高墙之外的文明世界，我们的言论都被中共严密监视，还有什么地方能让您和我讲出真相，而且不用担心被泄露了个人信息？放眼世界，有勇气并且有能力揭露共产病毒真相的唯一平台就是GTV。过去的几年已经证明，即使在中共蓝金黄力量几乎控制和绑架了整个世界的情况下，GTV没有泄露任何人的个人隐私信息，而且已经有越来越多的战友在这个言论不受恶意控制的平台上自由地发声。
+另外一个就我说的那个卡恩 [注：国际货币基金组织前总裁]，卡恩这个小子上台以后百分之一百是共产党控制的。从他离开以后，他(去了)哪儿呢？就是在中法基金会当主席。马云和共产党一年给他1200万美元。你去想想去吧，(他)在美国弄成“犯罪”以后回到法国，又选总统。他要是选上总统，法国就是中共说的算了，想干啥干啥啊，那就是法国成了中共的小三了，百分之百的嘛！你看他现在还是。大家还记得这个人吧？跟那个什么斌啊，华斌，法国的华斌，那个特务，中法基金会主席。
 
-这位给我发私信的同胞，拿一个仅仅成立了一年多的GTV，去和那些在网络世界已经发展了数十年的大科技公司比，这就如同拿一个刚出生的婴儿和已经发育成熟的成人去比身高和体重一样的滑稽。面对号称世界第二大经济体的中共国倾一国之力的围追堵截，GTV能够存在就已经是一个奇迹，这一点您用Alexa的数据已经证明了。我们的GTV就在那里，而且我也相信她永远都会在那里，只要有爆料革命在，只要有战友和互联网的存在。
+The other thing is about Kahn (note: Dominique Strauss-Kahn, Former President of IMF). This guy, after coming to power, has been 100% controlled by the CCP. Since he stepped down, where has he gone? He became the Chairman of the France China Foundation. Jack Ma and the CCP give him 12 million U.S. dollars a year. Go think about it, he could return to France campaigning for presidency after committing a crime in the U.S. If he were elected, France would be owned by the CCP, and the CCP would be able to do whatever it wanted to and France would become the CCP’s mistress, 100%! Look at him, he is still like that [colluding with the CCP] now. You may still remember this person because of the guy named Hua Bin in France, a CCP agent, the Chairman of the France China Foundation.
 
-在当下共产病毒蔓延世界的危机时刻，GTV这个唯一敢讲真相的华人媒体平台，第一个不受中共控制可以让华人同胞自由发声的社交媒体平台，这个已经向全世界讲述了香港真相和中共病毒真相，而且还会继续揭露共产病毒荼毒世界真相的直播平台，未来等到中共被推翻之后会值多少钱?
+所以整个当时IMF这个机构里边，也有咱战友。他清晰的记得当年卡恩这个家伙搞亚币啊，基础银行啊亚投行啊 [指：亚洲基础设施投资银行]，都(是)他折腾出来的。后来这就是为啥美国人当时警告他（的原因），你再敢说亚币整死你孙子，这就闭嘴不敢说了。这里面很多故事，哪天我要讲的时候，要是聊起来那大家会很惊讶，因为很多人很多事都是我亲身经历的。
 
-而且我可以坦白的说，即使GTV的股票将来一文不值，我也会义无反顾的投资GTV，因为她的价值已经超越了金钱本身，因为她关乎到我们每个人的生命和财产安全，以及未来华人在世界上的尊严和形象。
+So we have a fellow fighter in the IMF this whole time. He clearly remembered that Kahn was engaged in Asian currency and the Asian Infrastructure Investment Bank, which were all this guy’s work. For this, later he was warned by Americans that “if you dare to say anything about Asian currency, you bastard will get killed”. And then this guy shut up and dared not say it anymore. There are a lot of stories behind this. When I am ready to tell you someday, everyone will be surprised by these things. Many people and things are based on personal experiences.
 
-**二）几千年以来GTV让华夏儿女炎黄子孙第一次真正的站在了世界舞台的正中央。**
+这就是看出来咱战友们对世界形势的把握和认识。你看昨天路的访谈，博士军团整不明白这事，他没亲身经历，是吧？没有亲身经历就整不明白，只能是从表面上看，这背后的故事是看不到的。这就是一个局限性，这种事情你不亲身经历你是说不清楚，道不明白的。这整个的，中共谁去跟他(卡恩)联络，怎么回事？(发生了什么事)在法国？当年在欧洲怎么弄的？这里面有很多很多事情和人。
 
-从原始的部落生活，到后来的奴隶社会封建王朝，再到今天的民主法治社会，什么时候我们华人普通百姓能够有机会站在世界舞台的中央？虽然，我们祖先居住的这片土地曾经因为茶叶、丝绸和瓷器而广为人知，或许亦是因此而得了个China的称呼，但是那些曾经的文明和当下的我们有半毛钱的关系吗？在古代哪个人的祖先不是自己被同族统治，又或是被外族奴役呢？而且最不幸的是，即使在人类社会文明高度发展的今天，在自媒体互联网的时代，我们的同胞和父母子孙依旧生活在言论被高度管控的网络高墙之内。
+From this we can see how much our fellow fighters understand the world situation. If you have watched yesterday’s Lude Show, you will find that our PhD Team didn’t know much about this [IMF and Kahn]. That’s because they haven’t personally experienced it, have they? So they can only interpret it superficially because they didn’t know the stories behind the scene. This is their limitation. So if you don’t personally experience this kind of thing, you can’t interpret it clearly. This whole thing includes who was sent by the CCP to contact him (Kahn) and what was done, what happened in France, and what did they do in Europe. There are many many things and people involved.
 
-时光流转，王朝更替，什么时候我们中国的老百姓有过这种机会，能够真正参与到正大光明的利益分配之中？我想问所有的战友，你们参与过任何上市公司的初始和天使投资吗？听说过百度、腾讯、阿里巴巴的私募吗？更不用说谷歌、油管和亚马逊的私募了吧！说到底，中国的老百姓始终不过只是被统治或鱼肉的韭菜罢了，不管你承不承认，意识到还是没有意识到。还有非常重要的一点，GTV不同于任何墙内的公司，她是真正属于我们华人并同时受到民主世界法治保护的海外公司。
+你要没有这个亲身经历，你没有一个国家级的权力的这个参与，很难窥视到这种核心的秘密。就连美国这个国家所谓的情报部门，因为它政府每四年、每八年换一次，一换完人就走了，很多人也没有连续下来，这是美国很可怕的地方。好是好在一个民主的政府，坏是坏在四年左四年右，八年左八年右，你没办法。政府也换，国家策略也换。这是美国的很不好的地方，很难打交道，很难延续政策性，很难让这个国家能完整的记忆下来曾经历史上给它带来的危机和伤害。
 
-最后，也是最最最重要的一点，那就是过去几年爆料革命已经在世界所累积的信誉，和已经形成的有良知有智慧的华人战友联盟的隐形力量。这点大家动动脚趾头就想明白了，我简单说几点：一，文贵先生是第一个也是最早向世界发出警告，说出黑暗即将来临的吹哨人，这点在中共病毒荼毒世界的当下已经得到验证；二，中共对香港正义和自由民主人士的迫害，GTV用直播的方式进行了记录，每个人都能看到，谁是正义谁是邪恶，泾渭分明；三，阎博士在2020年1月19日通过路德社向全世界发出了中共病毒的大爆发，人传人，强变异，中共军方唯一拥有的舟山蝙蝠病毒是其骨架，以及中共掩盖病毒在武汉爆发的真相，每一项都得到了时间的验证；四，爆料革命通过行动推出的一项项保护香港的法案，甚至成功将中共在新疆的恶行定义为种族大屠杀和反人类罪，爆料革命背后的正义力量有目共睹。
+If you don’t have this personal experience, or you haven’t been involved in this with a state-level power, it will be difficult for you to get a glimpse of this kind of core secret. Even people in the so-called national intelligence agencies in the U.S. don’t have continuous exposure [to this kind of secret] because its government is replaced every four or eight years, and people leave as soon as an administration is over. This is a terrible thing about the U.S. The good side is that it is a democratic government, and the downside is that its government shifts between left and right every four or eight years and you have no choice. The government constantly changes, and so are the national strategies. This is a very bad part of the U.S., because it makes it difficult for people to deal with them, there is hardly any continuity in its policies, and it is difficult for this country to fully remember the crises and harms ever brought to it in history.
 
-现在新冠病毒第3波、第4波疫情又将大爆发的时候，在全世界的媒体和社交平台都找不到真相的时候，爆料革命GTV作为第一个向全世界揭露共产病毒真相并得到了时间和事实验证，这种任何组织和机构绝对无法替代的国际信誉未来会值多少钱？更为重要的是，经过风雨的洗礼，爆料革命战友的联盟力量已经初具规模。爆料革命战友的行动在文贵先生的带领下和超强的执行力下，我们已经成为了对抗中共超限战的急先锋，我们已经是人类彻底消灭共产病毒，让世界早日重归正道的核心力量。所以可以毫不夸张的说，GTV已经让有良知的追求正义的华人战友们第一次站在了世界舞台的正中央。我不想评价大纪元或者其它什么网站，因为GTV有任何网站没有的信誉，有爆料革命战友联盟力量的支持，而且一切都只是刚刚开始……
+就像这样的事情很多美国人就是一弄就过去了。 但是共产党可不过去啊，弄了七十年了。所以说这是完全不同的概念。这就是昨天华盛顿的很多人跟我说，“哇！都是最高级的人，问的问题跟孩子一样，跟孩子一样。”我说你走着看吧啊，这回(共产党)抽掉(美国的)黄金，抽走黄金，这都在计划范围之内。它抽黄金，这边儿准备好抛售（美国）的国债。
 
-**三）GTV的未来无可限量。**
+Things just like what I mentioned can be easily let go by many Americans. But the CCP won’t let it go, it has been working on those things for 70 years. So this is a completely different concept. This is why many people in Washington D. C. told me yesterday, “Wow! Those people are all top-rank officials, but the questions they asked are like questions from a child.” I said let’s wait and see. This time the CCP is withdrawing gold from the U.S., which is totally within the scope of the CCP’s plan. While they are withdrawing gold, they are getting ready to sell U.S. Treasury Securities.
 
-GTV作为社交媒体平台的一个关键点，就是信息产业和其它产业，例如汽车、飞机、轮船制造等等，都是不相同的。GTV有的是代码和数据，所以只要爆料革命在，只要有战友在，只要GTV背后运行的的团队在，GTV就不可能被魔共干掉。这次GTV的重建就正好验证了这一点。要想消灭GTV，除非共产恶魔能彻底干掉了互联网，彻底灭了爆料革命，否则绝无可能。互联网是人类的未来，而爆料革命从2017到现在发展得越来越壮大，反而中共在过去这四年越来越虚弱。中共病毒的真相已经引起了越来越多的讨论，即使撇开中共种族灭绝罪已是铁板钉钉的事实，随着病毒真相的推进，阎博士的第三个报告的公布，近期我们可以看到阎博士再次上了Newsmax电视节目，纳瓦罗直接将中共病毒称为福奇（Fauci）病毒，以及我们敬爱的班农先生的战斗室每天两期节目向热爱自由民主的美国人传播真相，醒悟过来的美国人肯定会让中共对病毒负责。所以，就我看来，敌人的疯狂只会证明我们的伟大，敌人的迫害和栽赃只会让GTV越做越强。
+美国现在使劲推房地产市场，房地产你知道，美国上次的金融危机，就是房地产市场(引发的)，是不是？就是房地美，这些房地产完全是胡扯的，是诈骗。最后搞（成了）个世界级的金融灾难。美国是在那个时候美元大幅贬值，大家你拿的还是美元，但是经过2008年的金融危机，美元已经大幅贬值，甚至信用超级受损，那个是永远过不去的。这个是美国非常可怕的一面。
 
-而且最为重要的一点是，战友是否真的有信仰？我相信，这一次万佛万神会站在爆料革命这边，帮助我们彻底消灭共产魔党。新中国联邦成立时电光划破天际的神迹，阎博士出现在世界顶级新冠病毒科学家的身边，并且还在揭露了病毒真相后奇迹般的逃脱中共的魔爪……还有很多很多……让我们不得不相信一切都是天意。
+The U.S. is now pushing its real estate market vigorously. But you know the real estate was what caused the previous financial crisis in the U.S. Like Freddie Mac, these real estate firms were completely nonsense and were a fraud. In the end, they led to a global financial crisis. During that time, the U.S. dollar depreciated sharply. So, the dollars in everyone’s hands now are still called U.S. dollars, but after the 2008 financial crisis, the U.S. dollar has depreciated a lot, and even its credit has been extremely damaged and will never go back again. This is a very scary thing about the U.S.
 
-最后是我对这位同胞的点对点回覆：
+这就(是)为什么现在美国人没闹明白，(美国)还在推房产，两党之间（还在）完全（想着如何）拉选民，是吧？然后现在还要不允许房地产止赎，就是你把房地产赎回去这是不可以的。不允许银行强迫老百姓把房子怎么样，这不就共产主义了吗？共产主义（但）所有金融市场都是私人商业行为，那最终就完蛋了嘛，就这么简单。
 
-- GTV的估值是美国权威第三方的机构给出的，我们如果要质疑这点，那起码得有GTV后台运行的数据，而且还要有评估资质。我想问这位给我发信息的同胞，您看过GTV后台运行的数据吗，您懂得如何对互联网公司进行评估吗？如果您没看过后台的数据，更不具备评估所需的知识和技术，那您对GTV蓄意抹黑恰巧反证了GTV的价值，没有人会相信中共花钱请人去攻击对他们的统治构不成任何威胁的力量。
-- GTV值多少钱，如果是花几分钟看看网站数据就能知道，那还需要互联网的估值机构做何用？难道说，您一个人上网查查就知道一个公司的价值了？
-- GTV投资的是未来，而且是14亿同胞真正走向自由民主的未来，因为GTV可以给我们每个华人同胞一个自由发声的渠道，不但如此，GTV还会保护你个人的隐私不被侵犯。
-- 美国SEC审批违法，您是从哪里知道的，请您出示证据。您既然给我发信息，说明您知道我是投资人，那我以GTV投资人的身份告诉您，我认为美国SEC对与GTV私募资金的冻结，严重地损害了我们投资人的利益。正是由于美国SEC的滥权行为，才导致1300把椅子战友的股票无法正常交易，甚至让这些战友的财产和人生安全受到了双重威胁。我是小额投资人，现在可能做不了什么，但我始终保留我通过法律渠道维护我作为投资人的基本权益，并在适当的时机对美国SEC采取合理合法的行动的权利。
-- GTV的后台数据您是如何看到的？如果您看不到这个原始的数据，那您怎么可能知道这个数据有没有造假呢？就算您能看到数据，您有资历来判断数据的真假吗？假如您可以判断数据的真假，那么请您出示证据。至于诬蔑GTV投资不守法，欺骗投资人或者不尊重投资人，我想我作为投资人比您更有话语权，我认为文贵先生是唯一一个让我们普通的老百姓能够有机会了解并参与到私募甚至初始投资中的人。
-- 关于GTV上全是人斗人和充满谩骂及揭发的言论更是无稽之谈。真正的爆料革命战友不会在GTV上发布人斗人的视频，GTV的投资人只对灭共感兴趣，我们传播真相，揭露中共的假丑恶。
-- 对于GTV封号，我作为投资人举双手双脚赞成，因为有太多中共的无脑五毛，不辨别是非，不分真假，不懂善恶的人。现在是特殊时期，我们必须保证GTV给大家提供有价值的及时准确、与灭共相关、真正利于中国老百姓走向自由和民主的信息。
+That’s why I say Americans still haven’t figured it out now because they are still pushing real estate, and the two parties are still thinking about how to please their voters, right? And now even foreclosure of real estate is not allowed, that is, it is impossible for you [the bank] to reclaim its properties. If banks are not allowed to foreclosure people’s houses, it will be just like communism, right? Communism with all the financial markets still being private businesses will lead to everyone’s deaths. It’s that simple.
 
+所以说货币供应出了问题，整个黄金再被(共产党)偷走，（美国）国家信用出了问题，然后金融市场再出问题……你再拿钱补，你(美国)再印钞票吗？是不可能的。所以（大家）能听到现在，（美国)现在站在一个冰，即将化掉的冰块上。这就是世界政治和世界经济(的现状)。
 
-最后，是“法治”而不是“法制”，一看您就是被中共统治太久的人，老是不理解这两个字之间的差别到底在哪里。我觉得我们的战友都懂得比您多，看得比您远，境界比您高，脑子比您好用，所有请您有多远走多远吧……再见！
+So now the currency supply has encountered problems, all the gold is being stolen by the CCP, and the credit of the country is problematic, and then the financial market encounters problems too. You want to use money to fill the holes? You want to print more money again? No way! So if you hear me to this point, you will know that the U.S. is like standing on an iceberg, a melting iceberg. This is the current state of world politics and the world economy.
 
-（文章内容仅代表作者观点）
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/606c6e1edbc8001854a5f3af](https://gtv.org/getter/606c6e1edbc8001854a5f3af) (0:14-5:31)
 
-+2
+鸣谢：感谢盘古小蚂蚁、Antsee-GTV、TING GUO 提供中文文本于 [https://gnews.org/zh-hans/1059090/](https://gnews.org/zh-hans/1059090/)
+
+* * *
+
+字幕：【JennyL】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
+0
