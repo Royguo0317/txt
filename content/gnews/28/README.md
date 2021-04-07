@@ -1,48 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本新立法拟允许海岸警卫队向中国船只开火
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1059513/)
+## 【三票专栏】旧文重发：邮件显示科学界帮助中共掩盖COVID-19来源真相
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1059556/)
 
-- 作者：里奇
+三票先生Mr.3rights
+![]()![](https://gnews.org/wp-content/uploads/2021/04/三票-e1617751866704.png)
+重发说明：本人去年11月20日在GNEWS上发此文，根据爆料革命获得的邮件资料，揭露Peter Daszak 2020年2月6日就串通26名美国知名公共卫生专家联名签署声明，说中共病毒非自然起源是阴谋论，误导美国科学界进而误导美国政府对中共病毒起源的判断。这就是闫丽梦博士说的**超限科学误导**。4个多月后的今天美国各界逐步知道了真相。事实证明只要我们坚持不懈爆料，真相终会大白于天下。文中的英文为邮件中英文的原话，以便读者准确理解。原文如下：
 
+On November 18, emails obtained by U.S. Right to Know show that a [statement in *The Lancet*](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2930418-9/fulltext) authored by 27 prominent public health scientists condemning “conspiracy theories suggesting that COVID-19 does not have a natural origin” was organized by  EcoHealth Alliance, a non-profit group. The scientists’ letter appeared in*The Lancet* on February 18, just one week after the World Health Organization announced that the disease caused by the novel coronavirus would be named COVID-19.
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+这份声明是由Dr**. Peter Daszak**, President of EcoHealth Alliance,于2月6日发起的，邀请了其余26位知名公共卫生科学家联名签署，目的是针对the recent spreading of rumors, misinformation and conspiracy theories on the virus origins，签署a statement in support of the scientists, public health and medical professionals of China，这些中国专家已经和他们合作多年。此前的1月19日，**闫丽梦**博士，香港大学公共卫生学院传染病研究中心的病毒和免疫学研究员，匿名通过**路德社**向全世界公开揭露了COVID-19是由中共控制的武汉病毒研究所等机构制造并故意投放的。这就是他们所说的 rumors, misinformation and conspiracy theories。公开的邮件显示，他们并没有从科学角度探讨病毒的来源，而是由Dr. **Peter Daszak**直接起草了一个draft邀请其他人签名，但在声明中他们强调COVID-19是来源于自然而不是人造，这和CCP的观点是完全一致的。声明发表后不久，一个不愿意透露名字的机构向EcoHealth Alliance捐赠了50万美元。
 
-**西班牙2021年4月6日电/西喜社——**
+Dr. **Peter Daszak**在邮件中说，这份声明将coincide with a letter from the Presidents of the US National Academies of Science, Engineering, and Medicine, which will likely be released a few days later。共同签名的Dr. **Rita Colwell** is former Director of US National Science Foundation。Dr. Peter Daszak is now a member of that gives answers to scientific questions at short notice from the White House Coronavirus Task Force。他们和**福奇**博士，美国国家过敏和传染病研究所所长，一起对川普总统制定和实施anti-COVID-19的政策有巨大影响。
 
-据零对冲4月6日报道，正在考虑的新立法将从根本上改变当前的日本海岸警卫队关于如何与外国船只在日本海域接触的政策，这可能会无意中使该地区陷入涉及中共国在内的激烈冲突。
+闫丽梦博士在爆料革命的帮助下于今年4月底逃离香港来到美国，今年7月以来公开发表了两篇科学论文，揭露中共制造和投放COVID-19的真相。爆料革命和闫丽梦博士将继续揭露科学界帮助中共掩盖COVID-19来源，以及since this LANCET letter published, scientific world and top journals turned out to blame Trump government in anti-COVID-19 , and got involved into US election 的真相。敬请留意。
 
-新的法律拟议之时正值中共国和日本船只在台湾附近有争议的尖阁诸岛（此岛碰巧也被宣称为隶属台湾）周围冲突事件频繁发生之时。目前，日本没有一种机制可以在与中共国渔民登陆海岛产生纠纷之时激活其自卫队，这可能会升级为中共国军事巡逻船只卷入。
+原文链接：[【热点播报】邮件显示科学界帮助中共掩盖COVID-19来源真相 – GNEWS](https://gnews.org/zh-hans/576066/)
 
-但这种情况可能会改变，特别是在北京最近允许中共国海岸警卫队军事化、试图阻止该地区竞争对手对东海和南海诸岛的主张之后。东京正准备加强自己的能力，以便能做出迅速反应。正如日经新闻对新法律的详细说明：“日本政府表示，《执行警察职责法》允许日本船只向外来船只开火，以制止未经授权的登陆。”它进一步解释说 ，“如果警察或海岸警卫队无法做出适当的回应，那么内阁的电话和紧急决定将动员自卫队参加警察行动。”
+（本文仅代表作者个人观点）
 
-据称上周参与国防政策的自民党议员提出了一项“填补空白”的立法提案，但此消息还未经确认。
+阅读本人文章请搜索“三票先生”
 
-该文件要求修改日本的海岸警卫队法。这些法规变化将使海岸警卫队船只能够在国际法的范围内对拒绝遵守驱逐令的外国船只使用武器。
+本人其他文章导读：
 
-核心小组还在推动制定规则，以允许日本地面自卫队提前部署到偏远岛屿，以缩减发生敌对情况时的响应时间。
+[从历史的高度看《新中国联邦宣言》 – GNEWS](https://gnews.org/zh-hans/224002/)
 
-此举能处理当前潜在的冲突情况(之前被称为“灰色地带” 而未能允许敌对交战),并将有效地允许海岸警卫队阻止对岛屿的意外接管（例如在尖阁）。
+[中共为什么那么有钱搞全球渗透与扩张 – GNEWS](https://gnews.org/zh-hans/169646/)
 
-《日经新闻》报道说，日本官员中一种普遍的新兴观点是，中共国确实准备大举扩大在尖阁诸岛和其他有争议的岛屿的占领，以主张其对岛屿的控制。
+[十权一统：看中共的极权统治 – GNEWS](https://gnews.org/zh-hans/193423/)
 
-报告说，这很可能带给日本海岸警卫队“噩梦一场”，其内容如下：
+[正道主义论 – GNEWS](https://gnews.org/zh-hans/231288/)
 
-一艘中共国渔船在日本尖阁诸岛附近发生故障。声称拥有这些岛屿并称其为钓鱼岛的中共国指示自己的海岸警卫队保护这艘船。渔民无视日本的警告，登陆其中一个岛屿等待维修零件。在紧张和混乱中，惊恐的中共国海岸警卫队人员开始向日本同行开火。
+[【三票专栏】 《商君书》选读（3）超限战的鼻祖 – GNEWS](https://gnews.org/zh-hans/892639/)
 
-在中共国屡次入侵尖阁附近水域的事件中，这种情况已不再是不可能的了。日本执政党内部的讨论重新引发关于立法的必要性，该立法明确规定了此类事件的参与规则。
+发布：GLC
 
-中共国多年来不断警告东京，双方争夺此岛屿长达一个多世纪。美国正式承认日本对无人岛的主张，拜登此前已重申根据美日安全条约第5条美国对这些岛屿进行保护的承诺。
-
-尽管日本自1895年以来就对这些岛屿提出了主权要求，但中共国尤其是在1970年代开始大力主张主权，引发了一场危机，这一危机在2012年日本政府从私人拥有者那里购买了三个有争议的岛屿之后变得更加严重。该地区被认为是潜在的资源丰富地区，包括可能的石油和天然气储备，以及被认为是绝佳的渔场并且靠近主要的航道。
-
-中共素来在守信用、履条约方面臭名昭著，从建国诺言至加入WTO承诺、中英香港条约等等,。甚至厚颜无耻地辩解“历史条约不再有效”。
-
-经济的快速发展并未带来其文明程度的提升，反而变得日益咄咄逼人、野蛮强势，企图以种种不耻手段实现其追求的人类命运共同体–独裁统治全地球的野心。只可惜这样的落后价值观是人类难以接受的，相信不久各国一定会醒悟而奋起反击，铲除邪恶中共不远矣!
-
-编辑：Victor Torres；校对: weiwei；组稿：神奇四侠；发稿：信心的选择
-
-**新闻来源：**[零对冲](https://www.zerohedge.com/geopolitical/japan-poised-allow-coast-guard-fire-chinese-vessels-new-legislation)
-
-0
++1
