@@ -1,35 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 苏伊士运河再次堵了
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1059347/)
+## 阳光使中共病毒失活的速度是先前预测的8倍
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1059418/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
-素材：文心
+**作者：**Virgilio Marin 2021-04-05
 
-苏伊士运河竟然又堵了。据2021年4月6日《网易》援引《南国军情》的**`报道`**，北京时间下午16时左右，一艘隶属于意大利的油轮**“朗福德”（Rumford）**号发动机故障而导致停摆，其停摆位置位于苏伊士运河的北向航道，靠近大苦湖的瓶颈位置。好在90分钟后该麻烦被解决。
+**翻译：**加拿大温哥华圆成农场 卢卡斯
+![]()![](https://gnews.org/wp-content/uploads/2021/04/000.png)图片来源：Virgilio Marin原文
+《自然新闻》研究人员发现，阳光使中共病毒失活的速度是预测的八倍多。加州大学圣巴巴拉分校的机械工程学教授保罗·卢扎托-费吉兹和他的同事回顾了最近的研究，这些研究探讨了紫外线（UV）光的不同波段（即UVA、UVB和UVC辐射）对中共病毒的影响。
 
-第一次苏伊士运河是由于中共出手使“长赐”号搁浅而卡脖子。在《网易》新闻的报道中，正试图夸大其对世界经济的重大影响和当前埃及苏伊士运河的潜在风险，来制造金融危机。但在不出动武装军力的情况下，是不可能达到中共恐怖主义的效果，所谓试图引导金融危机实在是新的滑稽一幕。这又是一轮搬起石头砸了自己的脚。或者以史为鉴来说，这项目技术最有可能对付的是中共国自身的军人。
+UVA是三个波段中最弱的，而UVC是最有活力的，并已被证明能灭活病毒，例如中共病毒。几乎所有到达地表的紫外线辐射都是 UVA，因为所有的 UVC 和大多数UVB紫外线都被地球的臭氧层所吸收。
 
-值得一提的是，据2021年4月3日《马歇尔报告》的**`报道`**，美国海军海豹突击队已经从**苏伊士运河**的海运集装箱中营救出1000多名被贩运儿童和尸体，而且这些集装箱来自卡了苏伊士运河的“长赐”号。 原文如下：
+阳光灭活病毒的能力通常归因于UVB，它可以杀死微生物。例如，研究人员分析的一项研究表明，中共病毒由于UVB损害病毒的RNA而失去其活性。
 
-“*消息人士表示，截至本文撰写时，儿童仍在获救，尸体仍在“常青”的1.8万多个容器中被发现。这些集装箱装在常青公司的一艘船上，该船封锁了**周二**的运河**。3 月 23 日至 3 月 29 日星期一，**给国际航运公司造成了数十亿美元的收入损失。*
+这项研究表明，紫外线UVB灯照可以在大约20分钟内在模拟唾液中使病毒灭活。但在上一个月晚些时候发表的一项研究表明，阳光本身就能在同样的时间内使病毒灭活。这导致研究人员怀疑UVB引起的RNA灭活结论”是片面的”。
 
-“*海豹突击队还在这艘六层高的船上发现了大规模杀伤性武器——据信这些武器注定要在中东发动战争。*
+阳光也许能预防感染
 
-“*最终在周二，常青公司货轮被松动，被带到埃及的大苦湖。根据埃及总统的命令，集装箱被从船上拿下来，并由美国海军海豹突击队搜查。*
+第二个实验室研究表明，唾液中的病毒在暴露于阳光中10到20分钟内便失去活性，这就像暴露于UVB中一样。保罗·卢扎托-费吉兹和他的团队指出，这个时间范围的上限比第一个研究的理论模型所预测的要快八倍以上。同时，在生长介质中培养的病毒的灭活速度比预测的要快三倍以上。
 
-“*上周在苏伊士运河被封锁的许多其他船只也被发现携带武器——据信这些船只被用来在中东发动战争。为什么？这些武器将由以色列摩萨德交给穆斯林。*
+另外，研究人员暗示，除了UVB之外，可能还有另一种紫外线。例如，UVA可能扮演比最初想象的更积极的杀灭病毒的角色。
 
-“*人口贩子被捕、卡特尔被抓获——全球所有者失去了关键收入。据说，在船只滞留一周时，隐形政府（该公司）每小时损失了4亿美元——与这些儿童所经历的情况相比，这相形见绌。*
+保罗·卢扎托-费吉兹和他的团队指出，如果中共病毒对较弱的光波长很敏感，那么阳光也许比先前所认为的更能减轻病毒在更广阔的纬度范围和白天时间的户外传播。远离赤道的地区往往受到少量的太阳辐射，而在黄昏和黎明时分的阳光照射会减少。
 
-*“常青公司在世界各地的港口都存在问题。为什么？美国海军海豹突击队为什么神奇地出现在现场营救孩子们？这艘船是故意搁浅的吗？有传言称，微软软件漏洞允许某人侵入常青公司软件，接管方向盘并将其中的资料拷贝。*
+UVA辐射还可以提供更方便、更安全的紫外线消毒方法。虽然 UVC 辐射可以人工制造，但它是最具破坏性的紫外线形式，会引起了安全问题，这限制了其实际应用。
 
-“*我们可能永远不会被告知整个故事。到目前为止，苏伊士运河的该公司船船长拒绝合作。现在，除非有重大原因，否则为什么船长不会合作？不会把黑盒子交出来吗？”*
-在这里阅读完整故事：[https://truth11.com/2021/04/03/trafficked-children-bodies-weapons-found-on-evergreen-ship-blocking-suez-canal/](https://truth11.com/2021/04/03/trafficked-children-bodies-weapons-found-on-evergreen-ship-blocking-suez-canal/)
+UVC非常适合医院，俄勒冈州立大学环境和分子毒理学教授、本文合著者朱莉·麦克默里说。但在其他环境中（例如厨房或地铁），UVC 会与颗粒物质相互作用，产生有害的臭氧。
+
+加州大学圣巴巴拉分校机械工程学教授、本文的另一位合著者朱阳英指出，现在广泛使用的LED灯泡比阳光强很多倍。这些灯泡可用于加速病毒灭活，而 UVA 射线则可用于增强空气过滤系统的功能，因为其对人体的危险度很低。
+
+总的来说，研究人员建议进行额外的实验，以完全确定不同波长的紫外线对存在于不同介质中的病毒的影响。
+
+**评：**美国国土安全部的科技顾问威廉布莱恩说，自然阳光含有的紫外线很容易摧毁病毒； 迄今为止最引人注目的观察就是太阳光似乎对杀死病毒具有强大影响，无论是在表面还是在空气中；仅仅在阳光下晒太阳有助于降低中共病毒的感染和传播的风险，因为病毒根本无法与自然阳光共存;然而中共的走狗世界卫生组织，就像比尔盖茨那样只支持药物和疫苗对中共病毒起作用疾病，警告UVC可以烧伤皮肤，造成眼睛损伤[1]。另外，维生素 D 可以预防 COVID，尤其是在黑人患者中[2][3]。维生素D缺乏是中共病毒感染者住院和死亡的主要原因，而且医院临床表明维生素D帮助中共病毒感染者恢复健康作用巨大，但是维生素D的作用往往被忽视，因为疫苗制造公司需要从中获利，因此任何其他对身体更有帮助的东西都会被压制和审查，以迫使他们服从一个带有自己风险的虚假救世主—疫苗[4]。如果我们每周2~3次每次30~60分钟沐浴在阳光下，阳光照射在我们的皮肤上提供给我们维生素D[5]。因此晒太阳不但能使中共病毒失去活性，而且让我们体内产生帮助我们对抗中国病毒的维生素D，是一举两得的事情。
+
+常识告诉我们，足够自然光照射对我们的健康非常重要！特别是在当前中共病毒全球大流行时刻，接种中共病毒疫苗不但不能保护我们避免中共病毒的感染，反而等于一个植入我们人体的定时生物炸弹。中共病毒疫苗是全球主义者用来全球人口灭绝计划的一个手段。为了保护自己，我们必须拒绝接种任何中共病毒疫苗，同时需要通过其他途径譬如说服用硫酸羟氯喹，锻炼身体，晒太阳等办法来保护自己免受中共病毒的感染。然而我们要想最好地保护自己免遭中共病毒的致命伤害，还得回到解决中共病毒的终极解决办法，那就是消灭邪恶的CCP，拯救整个人类。
+
+#### **原文：**Virgilio Marin, “GET OUTSIDE: Sunlight inactivates Wuhan coronavirus 8 times faster than previously predicted, researchers found”.《 Natural News》, April 5, 2021.** **[https://www.naturalnews.com/2021-04-05-sunlight-inactivates-coronavirus-8-times-faster.html](https://www.naturalnews.com/2021-04-05-sunlight-inactivates-coronavirus-8-times-faster.html)
+
+####  
+
+#### [1] [Ethan Huff](https://www.naturalnews.com/author/ethanh), “Homeland security scientist confirms that natural sunlight kills coronavirus”. 《 Natural News》, May 1, 2020. [https://www.naturalnews.com/2020-05-01-homeland-security-scientist-natural-sunlight-kills-coronavirus.html](https://www.naturalnews.com/2020-05-01-homeland-security-scientist-natural-sunlight-kills-coronavirus.html)
+
+####  
+
+#### [2] [Jeremiah Rodriguez](https://www.ctvnews.ca/more/ctvnews-ca-team/jeremiah-rodriguez-1.4199667), “High vitamin D levels may protect against COVID-19, especially for Black people: study”. 《CTVNews》，March 21, 2021.** **[https://www.ctvnews.ca/health/coronavirus/high-vitamin-d-levels-may-protect-against-covid-19-especially-for-black-people-study-1.5356165](https://www.ctvnews.ca/health/coronavirus/high-vitamin-d-levels-may-protect-against-covid-19-especially-for-black-people-study-1.5356165)
+
+####  
+
+#### [3] Mary Van Beusekom, “Vitamin D may prevent COVID, especially in Black patients”. [《CIDRAP News](%20《CIDRAP%20News)》, March 22, 2021. [https://www.cidrap.umn.edu/news-perspective/2021/03/vitamin-d-may-prevent-covid-especially-black-patients](https://www.cidrap.umn.edu/news-perspective/2021/03/vitamin-d-may-prevent-covid-especially-black-patients)
+
+####  
+
+#### [4] [Lance D Johnson](https://www.naturalnews.com/author/ljdevon), “Vitamin D deficiency is the primary cause of covid hospitalizations and deaths”.** **March 31, 2021.** **[https://www.naturalnews.com/2021-03-31-vitamin-d-deficiency-cause-covid-hospitalizations-deaths.html](https://www.naturalnews.com/2021-03-31-vitamin-d-deficiency-cause-covid-hospitalizations-deaths.html)
+
+####  
+
+#### [5] Mike Adams, “Every person needs sunlight exposure to create vitamin D, obesity impairs vitamin D absorption”.  《 Natural News》, January 01, 2005.** **[https://www.naturalnews.com/003838.html](https://www.naturalnews.com/003838.html)
+
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+
+编辑/发布：比卡丘
+
+20210406
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+#  
 
 
-*2021 年 3 月 29 日，海军海豹突击队迈克尔·雅各布在常青号上发布一段视频，并发表了他的意见，称**“常青公司”将是一个隐形政府！-弹药在哪里？当我透露原因时，很快就会到来！– 必须有视频！***
 
-*上帝保佑我们的海军海豹突击队和我们所有在国内外已经并继续保卫我们所有人的军人和退伍军人！上帝保佑人口贩运的幸存者。贩卖儿童和贩卖人口是可怕的，必须停止。*
-+1
+0

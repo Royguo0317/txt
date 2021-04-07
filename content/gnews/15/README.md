@@ -1,56 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [疫情下的西班牙]西班牙ICU面临越来越大的压力
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1059548/)
+## 【三票专栏】旧文重发：邮件显示科学界帮助中共掩盖COVID-19来源真相
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1059556/)
 
-- 作者：gokuabuela
+三票先生Mr.3rights
+![]()![](https://gnews.org/wp-content/uploads/2021/04/三票-e1617751866704.png)
+重发说明：本人去年11月20日在GNEWS上发此文，根据爆料革命获得的邮件资料，揭露Peter Daszak 2020年2月6日就串通26名美国知名公共卫生专家联名签署声明，说中共病毒非自然起源是阴谋论，误导美国科学界进而误导美国政府对中共病毒起源的判断。这就是闫丽梦博士说的**超限科学误导**。4个多月后的今天美国各界逐步知道了真相。事实证明只要我们坚持不懈爆料，真相终会大白于天下。文中的英文为邮件中英文的原话，以便读者准确理解。原文如下：
 
+On November 18, emails obtained by U.S. Right to Know show that a [statement in *The Lancet*](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2930418-9/fulltext) authored by 27 prominent public health scientists condemning “conspiracy theories suggesting that COVID-19 does not have a natural origin” was organized by  EcoHealth Alliance, a non-profit group. The scientists’ letter appeared in*The Lancet* on February 18, just one week after the World Health Organization announced that the disease caused by the novel coronavirus would be named COVID-19.
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+这份声明是由Dr**. Peter Daszak**, President of EcoHealth Alliance,于2月6日发起的，邀请了其余26位知名公共卫生科学家联名签署，目的是针对the recent spreading of rumors, misinformation and conspiracy theories on the virus origins，签署a statement in support of the scientists, public health and medical professionals of China，这些中国专家已经和他们合作多年。此前的1月19日，**闫丽梦**博士，香港大学公共卫生学院传染病研究中心的病毒和免疫学研究员，匿名通过**路德社**向全世界公开揭露了COVID-19是由中共控制的武汉病毒研究所等机构制造并故意投放的。这就是他们所说的 rumors, misinformation and conspiracy theories。公开的邮件显示，他们并没有从科学角度探讨病毒的来源，而是由Dr. **Peter Daszak**直接起草了一个draft邀请其他人签名，但在声明中他们强调COVID-19是来源于自然而不是人造，这和CCP的观点是完全一致的。声明发表后不久，一个不愿意透露名字的机构向EcoHealth Alliance捐赠了50万美元。
 
-**西班牙2021年4月6日电/西喜社——**
+Dr. **Peter Daszak**在邮件中说，这份声明将coincide with a letter from the Presidents of the US National Academies of Science, Engineering, and Medicine, which will likely be released a few days later。共同签名的Dr. **Rita Colwell** is former Director of US National Science Foundation。Dr. Peter Daszak is now a member of that gives answers to scientific questions at short notice from the White House Coronavirus Task Force。他们和**福奇**博士，美国国家过敏和传染病研究所所长，一起对川普总统制定和实施anti-COVID-19的政策有巨大影响。
 
-据国家报4月6日，疫情的持续，给西班牙的重症监护室（ICU）带来压力。第三波疫情的影响仍然存在，每五张ICU的病床中就有一张被中共病毒患者占用，可能的第四波疫情的威胁，使医院始终处于戒备状态。在这种情况下，任何感染率上升都将使该国的卫生系统再次陷入危险之中。
+闫丽梦博士在爆料革命的帮助下于今年4月底逃离香港来到美国，今年7月以来公开发表了两篇科学论文，揭露中共制造和投放COVID-19的真相。爆料革命和闫丽梦博士将继续揭露科学界帮助中共掩盖COVID-19来源，以及since this LANCET letter published, scientific world and top journals turned out to blame Trump government in anti-COVID-19 , and got involved into US election 的真相。敬请留意。
 
-“每一波之间，都没有足够的时间进行缓和”巴塞罗那瓦勒德希伯伦(Vall d’Hebron)医院ICU负责人、西班牙重症医学会主席理查德- 费德雷（Ricard Ferrer）抱怨道。
+原文链接：[【热点播报】邮件显示科学界帮助中共掩盖COVID-19来源真相 – GNEWS](https://gnews.org/zh-hans/576066/)
 
-不管是马德里，还是加泰罗尼亚，或是拉里奥哈，或是梅利利亚，目前都有30%以上的重症监护室病床被中共病毒患者占用。卫生部的警报系统认为的低风险则为5%-10%。
+（本文仅代表作者个人观点）
 
-疫情迫使医院加强ICU床位的基础设施建设，目前全国有1万个床位，是疫情发生前的两倍多。医院目前的工作就像一种手风琴，根据需求提供或取消床位。”根据卫生部的数据，西班牙ICU中有1925名中共病毒患者。
+阅读本人文章请搜索“三票先生”
 
-连日来，新感染的发病率一直在增长，周一的14天每10万居民感染率为163例。这也促使ICU的病床占用率增长了4.45%。”病人在ICU的时间非常长，”马德里格雷戈里奥·马拉尼翁（GregorioMarañón）医院ICU主任何塞·尤金尼奥·格雷罗（JoséEugenio Guerrero）解释道。”虽然看起来感染率在下降，但在ICU中，我们从来没有能够轻松过。”
+本人其他文章导读：
 
-目前，进入ICU的患者年龄较小，总体恢复情况良好，但进度并不快。而且发病曲线的进展速度要比ICU的恢复速度快。”世界卫生组织（WHO）前主任丹尼尔-洛佩斯-阿古涅（Daniel López-Acuña）警告说。”如果有第四波，即使它的规模较小，我们也会产生累积效应。”
+[从历史的高度看《新中国联邦宣言》 – GNEWS](https://gnews.org/zh-hans/224002/)
 
-拉里奥哈卫生系统的经理阿尔贝托-拉富恩特（Alberto Lafuente）同意这一观点。”情况非常令人担忧，因为第三波的病人仍处在缓慢的恢复状态，我们已经看到系统的压力如何开始再次上升，”他说。
+[中共为什么那么有钱搞全球渗透与扩张 – GNEWS](https://gnews.org/zh-hans/169646/)
 
-西班牙目前35.8%的ICU床位被中共病毒患者占用，拉里奥哈是这方面受影响最严重的地区之一。在第三波ICU入院高峰期，即2月1日，西班牙45.3%的ICU床位被中共病毒患者占用，接近4900人。但在拉里奥哈，这个数字高达71%。”我们的医疗系统规模较小，我们没有其他地区的灵活性，所以我们不得不随机应变。”拉富恩特解释说。在马德里，目前中共病毒患者对ICU的占用率为37%，而在加泰罗尼亚地区为35%，在北非城市梅利利亚则为41%。
+[十权一统：看中共的极权统治 – GNEWS](https://gnews.org/zh-hans/193423/)
 
-西班牙的ICU总是在高占用率的情况下工作，但他们的资源是有限的，第一波患者的涌入让系统不堪重负–医院不得不停止所有其他活动，比如暂停手术和其他医疗活动，并将大部分ICU床位分配给最严重的中共病毒患者。
+[正道主义论 – GNEWS](https://gnews.org/zh-hans/231288/)
 
-在第二波和第三波期间，医院不得不想办法将中共病毒治疗和正常医疗活动结合起来，但也不得不经常暂停后者。拉富恩特坚持认为，这次的挑战将是 “尽量不要让系统停下来”。他继续说道。”如果重症监护室再次爆满，我们将不得不求助于其他地区的专业人士，而例如咨询、测试和其他手术等将被搁置。”
+[【三票专栏】 《商君书》选读（3）超限战的鼻祖 – GNEWS](https://gnews.org/zh-hans/892639/)
 
-专家们预测，与前几次相比，第四波疫情可能将 “平淡一些”，但他们预测ICU将再次遭受痛苦，并警告说，工作人员已经 “筋疲力尽”。”我认为，最好不要有第四波，”费德雷说。”我们知道如何阻止它，所以让我们不要急于解除限制令。”
+发布：GLC
 
-**简评：**
-
-**首先，我要向战斗在第一线的西班牙医护人员致以崇高的敬意！我为你们骄傲！**
-
-**自疫情爆发以来，西班牙ICU的工作人员忘我的工作，都非常的辛苦，不仅是身体上的疲惫，更多的是心理上的疲惫。没有尽头的工作，很多患者的死去，不知道何时能结束的疫情，和整个西班牙社会一样，也正如中共的超限战希望达到的效果一样，整个社会的心理遭到疫情重创。**
-
-**很多次，很多人，都在问，疫情什么时候能结束？疫情要怎样才能结束？政府和主流媒体都在推疫苗，告诉人们要执行限制令，要打疫苗。**
-
-**传递的概念是完全错误的，这是中共希望达到的效果。通过限制令摧毁你正常的社会活动，折磨你的心理，让你暴躁、沮丧，最好让你上街去抗议，去反对政府，并让那些以为呆在家里就可以结束疫情的人去憎恨你！让社会产生隔阂，产生分裂，动摇你的社会根基。**
-
-**而无能的政府除了利用疫情作为武器攻击政敌，就只会叫人打疫苗，一切的希望和一切的责任都可以让疫苗承担。**
-
-**但是民众们并不傻，许许多多的民众开始疑问，质问病毒的来源，质问疫苗的作用，他们缺乏的只是完整的信息，让他们可以连成一个完整的逻辑链。这在我们平时对西班牙人的信息推广中，就能感觉到，对我们推广的接受程度越来越高了。**
-
-**随着闫博士第三篇病毒报告的推出，随着美国政府和世界上其他正义力量认识到，自己已经到了生死存亡之时，会有越来越多的民众开始认识到，只有追查病毒来源，消灭中共，才是结束疫情的唯一方式。**
-
-编辑：Victor Torres；校对: 阿伯塔；组稿：神奇四侠；发稿：信心的选择
-
-**新闻来源：**[国家报](https://english.elpais.com/society/2021-04-06/spains-icus-under-mounting-pressure-as-coronavirus-cases-rise-the-situation-is-very-worrying.html)
-
-0
++1
