@@ -1,31 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 从黄峥、张一鸣等人看在中共国致富及资本模式
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1059417/)
+## 【三票专栏】旧文重发：邮件显示科学界帮助中共掩盖COVID-19来源真相
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1059556/)
 
-#### 作者：匿名 | 责编：沙拉猫
-![]()![](https://gnews.org/wp-content/uploads/2021/04/capture-10.jpg)图片来源：网络截图
-网上新闻前些天报道，“拼多多”的代表人物黄峥退出了拼多多，据报道称，其身价达400多亿，不知道是人民币还是美金。不过这些数字无论是以什么货币单位来计量，对老百姓来说其实都无所谓，谁也不知道这个身价是怎么算出来的，但最重要一点就是，大家可以认定他是个相当有钱的人了。富人家的狗吃的比穷人还要好些，这是常识。
+三票先生Mr.3rights
+![]()![](https://gnews.org/wp-content/uploads/2021/04/三票-e1617751866704.png)
+重发说明：本人去年11月20日在GNEWS上发此文，根据爆料革命获得的邮件资料，揭露Peter Daszak 2020年2月6日就串通26名美国知名公共卫生专家联名签署声明，说中共病毒非自然起源是阴谋论，误导美国科学界进而误导美国政府对中共病毒起源的判断。这就是闫丽梦博士说的**超限科学误导**。4个多月后的今天美国各界逐步知道了真相。事实证明只要我们坚持不懈爆料，真相终会大白于天下。文中的英文为邮件中英文的原话，以便读者准确理解。原文如下：
 
-由于只有四十多岁的年纪就获得了亿万财富，着实令人羡慕，可大家想过没有，这些人是怎么赚到这么多钱的呢？
+On November 18, emails obtained by U.S. Right to Know show that a [statement in *The Lancet*](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2930418-9/fulltext) authored by 27 prominent public health scientists condemning “conspiracy theories suggesting that COVID-19 does not have a natural origin” was organized by  EcoHealth Alliance, a non-profit group. The scientists’ letter appeared in*The Lancet* on February 18, just one week after the World Health Organization announced that the disease caused by the novel coronavirus would be named COVID-19.
 
-在中共统治下的中国，能赚到钱的人要不是统治阶级的红色后代，要不是进入层层政府体制的当权者。局外人若是能发点财，极大可能是他们被当权者或有势力的人“照顾”，所以可以分得一杯羹。这些人有些表面上是私人公司的老板，实质是为中共中央或地方当权者，以及红色家族做事的白手套。
+这份声明是由Dr**. Peter Daszak**, President of EcoHealth Alliance,于2月6日发起的，邀请了其余26位知名公共卫生科学家联名签署，目的是针对the recent spreading of rumors, misinformation and conspiracy theories on the virus origins，签署a statement in support of the scientists, public health and medical professionals of China，这些中国专家已经和他们合作多年。此前的1月19日，**闫丽梦**博士，香港大学公共卫生学院传染病研究中心的病毒和免疫学研究员，匿名通过**路德社**向全世界公开揭露了COVID-19是由中共控制的武汉病毒研究所等机构制造并故意投放的。这就是他们所说的 rumors, misinformation and conspiracy theories。公开的邮件显示，他们并没有从科学角度探讨病毒的来源，而是由Dr. **Peter Daszak**直接起草了一个draft邀请其他人签名，但在声明中他们强调COVID-19是来源于自然而不是人造，这和CCP的观点是完全一致的。声明发表后不久，一个不愿意透露名字的机构向EcoHealth Alliance捐赠了50万美元。
 
-**可以这样认为，黄峥、张一鸣等人本质上是被推到前台的人，是白手套。**
+Dr. **Peter Daszak**在邮件中说，这份声明将coincide with a letter from the Presidents of the US National Academies of Science, Engineering, and Medicine, which will likely be released a few days later。共同签名的Dr. **Rita Colwell** is former Director of US National Science Foundation。Dr. Peter Daszak is now a member of that gives answers to scientific questions at short notice from the White House Coronavirus Task Force。他们和**福奇**博士，美国国家过敏和传染病研究所所长，一起对川普总统制定和实施anti-COVID-19的政策有巨大影响。
 
-这可以从道理上说得通。拼多多这种网上电商，一直以低廉的价格参与市场竞争，但其发展可谓迅速，从成立到上市只用三年。有理由相信的是，有人在开始就做了全盘计划，并安排了一系列专业投资公司做具体操作，从第一笔投资到后续陆续的大笔投资都做了轻车熟路的安排，到时间就投钱，很流畅。到美国上市，有美国华尔街大佬的里应外合，有香港会计师的做账，一气呵成。黄峥当时三十多岁靠自己白手起家可以做到？不可能！靠三线市级领导支持可以做到？那一般需要五六年磕磕碰碰上市，还可能要有国家级的力量及资金背后支持。
+闫丽梦博士在爆料革命的帮助下于今年4月底逃离香港来到美国，今年7月以来公开发表了两篇科学论文，揭露中共制造和投放COVID-19的真相。爆料革命和闫丽梦博士将继续揭露科学界帮助中共掩盖COVID-19来源，以及since this LANCET letter published, scientific world and top journals turned out to blame Trump government in anti-COVID-19 , and got involved into US election 的真相。敬请留意。
 
-而代表”今日头条”的张一鸣，他怎么可能成为掌控统治者口舌的新闻媒体呢？他掌控不住这么大的一摊业务。类似的还有是非缠身的抖音。可以推定的是，这些中共国的网络媒体和社交平台的大量只是被中共推到前台做门面的人，而非真正的幕后控制人。实际操控这些企业公司的可能是中共安全部、宣传部或某些红色家族。
+原文链接：[【热点播报】邮件显示科学界帮助中共掩盖COVID-19来源真相 – GNEWS](https://gnews.org/zh-hans/576066/)
 
-我们看看美国，乔布斯、马斯克等一批优秀企业家在年轻时代就获得了巨大的成功，那是得益于美国民主自由的制度，为年轻人的成功创业和发展提供了宽容优越的环境。然而，中共选择黄峥、张一鸣等这些年纪较轻的人有其宣传目的。中共国从来都不允许优秀的人年轻人出头，出头就会被干倒，只推出傀儡表演给大家看。你看，人家成功了，是人家聪明、勤奋；你没成功，那是你的问题，不是政府、制度的问题，更不是领导的问题。
+（本文仅代表作者个人观点）
 
-再想想共享单车、电动汽车、各种网络、P2P等等新经济中的过去的和现在的年轻的富豪们，哪个是靠自己的知识、人格、智慧成功的？几乎没有，都是推到前台的代表。
+阅读本人文章请搜索“三票先生”
 
-本质上，中共的统治是上层权贵的资本主义，它与美国和西方发达国家的资本制度完全不同，与公平的市场竞争背道而驰，并且产生严重的破坏作用。中共借着坑蒙拐骗在世界上捞到了大量的钱，除了华尔街那些与中共勾兑的大佬，相信大部分西方的人对中共的伎俩并不知情。
+本人其他文章导读：
 
-这里只简单揭露了一下中共国年轻富豪虚假的致富模式，至于中共如何进行具体操作，我将在以后的文章中再进行探讨。
+[从历史的高度看《新中国联邦宣言》 – GNEWS](https://gnews.org/zh-hans/224002/)
 
-（本文仅代表作者观点）
+[中共为什么那么有钱搞全球渗透与扩张 – GNEWS](https://gnews.org/zh-hans/169646/)
+
+[十权一统：看中共的极权统治 – GNEWS](https://gnews.org/zh-hans/193423/)
+
+[正道主义论 – GNEWS](https://gnews.org/zh-hans/231288/)
+
+[【三票专栏】 《商君书》选读（3）超限战的鼻祖 – GNEWS](https://gnews.org/zh-hans/892639/)
+
+发布：GLC
 
 +1

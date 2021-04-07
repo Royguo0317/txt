@@ -1,107 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒疫苗护照和强制接种是否合法？
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1059550/)
+## 欧美缩小跨大西洋认识差距联合抗共
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1059662/)
 
-**莲心不染**
+译者： CPA Jim
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-53.png)图片来源：365解密
+据《外交官杂志》2021年4月6日报道，在《跨太平洋视野见解系列》第266期，郭梅茨访谈了萨拉·基希伯格博士（Dr. Sarah Kirchberger）（以下简称萨拉），认为需要制定与中共进行战略竞争的跨大西洋蓝图。萨拉是斯科夫克罗夫特战略与安全中心（Scowcroft Center for Strategy and Security）的外籍高级研究员，基尔大学安全政策研究所的亚太战略与安全部（Asia-Pacific Strategy and Security at the Institute for Security Policy at Kiel University）主任、德国海军学院（German Maritime Institute）副院长。
 
-在过去14个月中，中共病毒在全球猖狂肆虐，导致2400万人死亡，1.8亿人受到感染，世界各地的制药公司都在竞相推销其中共病毒疫苗。
+去年，大西洋理事会（Atlantic Council）派给汉斯·本嫩迪克（Hans Binnendijk）和萨拉，制作跨大西洋中共国报告的任务，以强化盟友合作应对中共国挑战。
 
-**疫苗仍处于实验阶段**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/bfdda628-0756-411e-9391-bceb87f9fd45-768x432-1.jpg)
-在美国，食品药品监督管理局（FDA）已授予辉瑞/ BioNtech，Moderna和强生疫苗的紧急使用授权（EUA）。除了这三种疫苗，加拿大还批准了英国的牛津-阿斯利康和Covishield（印度血清研究所生产的阿斯利康疫苗），同时正在审查第六种疫苗Novavax。
+开始的时候，他们发现盟友间对中共国挑战的性质存在认知差距。中共很狡猾地对世界不同地区给不同的脸色，对一些国家展现为一个需要的投资来源或必需的商业伙伴，对另一些国家就是一个国家性的欺凌或重大的安全挑战。为了有效应对这个挑战，需要将这些局部认知整理成一个整体性认知并缩小这些认知之间的差异。
 
-但是关键问题是FDA尚未正式批准这些疫苗。 FDA将评估在未来两年内收集到的疫苗接种试验数据，然后决定这些疫苗是否足够安全有效可得到正式许可证。这意味着中共病毒疫苗仍处于实验阶段，其风险仍在评估中，尚未消除。
+他们的报告识别出了两个领域-人权和胁迫性外交-已经存在差距，两个领域-经济风险和技术风险-存在部分差距，一个领域-军事领域-多数情况下没有差距。
 
-**疫苗严重不良反应报道层出不穷**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/winepressnews.com_-1.jpg)
-回顾历史，疫苗通常需要超过10年的时间才能完成其开发和评估阶段，而中共病毒疫苗则用了不到一年的时间就进入市场并且进行大规模人体接种。
+他们的主要发现和关键建议是需要更紧密更系统性的跨大西洋合作与情报分享，需要将涉及中共国全球活动的不同的点连接起来，以便正确解释其不受欢迎的行为模式及其对我们“核心利益”（借用一下中共的词汇）的影响。另一个关键的必需是联盟需要搞清楚面对中共国时的优先选项。需要制度化，例如本报告的贡献者富兰克林·克拉默（Franklin D. Kramer）以前所建议的-创建一个“跨大西洋合作应对中共国委员会”。一个任务是清晰定义所有盟友达成共识的优先事项，然后设计解决这些优先事项的共同方法。在缺乏共识的领域，就要有机制缩小认知差距并管理分歧。
 
-疫苗的快速上市，没有经过适当的试验和同行评审，现在推行疫苗护照，甚至强制接种的做法已引起包括许多医学专家在内的人们的担忧。
+美国和欧盟在对付中共国上的一个关键区别是他们对中国作为安全挑战的不同看法。 美国捍卫西太平洋各国的安全，直接或间接参与了中共国的大部分领土争端，无论涉及台湾，钓鱼岛还是南中国海。 迄今为止，包括北约在内的欧洲国家一直将欧洲战场上的俄罗斯作为主要安全问题，并已或多或少从对中共国的假想敌推算中排除了军事风险。 欧洲内部当然不是统一的，例如法国或英国（即使不再是欧盟）之类的国家，其总是比德国更有全球和战略眼光。
 
-美国的前线医生（America’s Frontline Doctors）组织发布了一份白皮书，指出中共病毒疫苗尚没有适当的动物试验和同行评审的数据，仍处于实验阶段，他们质疑该疫苗的安全性，并担心“当该疫苗接受者接触到外界病毒时，由于大规模的细胞因子风暴而导致致命的后果”。 [8]
+在前川普政府的上半任期，欧洲国家似乎是在对冲他们的赌注，因为他们发现他们自己夹在了一边的美国贸易制裁和不再友好的论调和另一边中共国增大压力之间。中共国努力试图增加这些跨大西洋之间的差异并加以利用。
 
-同时，一群医生和科学家正在挑战欧洲药品管理局（EMA），要求他们证明中共病毒疫苗的安全性否则就应该撤销疫苗的授权。他们在公开信中列出的危险包括中共病毒疫苗技术的潜在后果，可能的自身免疫反应，血液凝固异常，中风和内出血，包括“在脑，脊髓和心脏中的出血”。 [4]
+中俄之间加强战略协助迫使欧洲人放弃了原来的观念，即中共国的军事崛起对他们而言无关紧要。疫情，中共胁迫外交，美国重回与盟友之间的伙伴关系，让欧洲发生了转变。当欧洲整体上仍然非常希望避免冷战或更糟糕的会强迫他们卷入的中美热战时，现在在这里许多人已经意识到，欧洲人确实在塑造当前紧张局势的结果中可以起积极作用，而仅仅袖手旁观将无济于事。
 
-在欧洲，迄今为止，已经报道了中共病毒疫苗造成3,964人死亡和162,610人受伤[1]，不良反应数据每周在英国政府网站上更新。[2]
+列出的问题领域是互相关联的。在分析过去与中共国打交道的错误时，需要特别将产业考虑进去，以便得到一个真实的画面展示现存的依赖关系和需要处理的漏洞，理解我们自身的影响能力。应该启动跨国和跨行业的学习过程，例如可以对有害技术转让的重大案例进行事后调查，以此作为更有效反制措施的基础。单个企业不仅需要遵守清晰的法规，而且在面对中共国的多重挑战情况下，需要可靠的情报和更好的指引来开展经营活动。当下欧洲国家政府、欧盟和北约需要就西太平洋地区军事升级的风险紧急开展应急计划，以避免他们自己站错了地方，并联合行动避免这样的结果。
 
-截至2021年3月15日，美国的死亡人数为1,913人。[3]
+译评：大西洋理事会的研究报告表明欧美已经发现了中共采取的是离间计，采取各种方法离间欧美，也不排除英国脱欧协议一波三折也是中共离间计的一部分。法中基金会成员、中共与瑞士签订的秘密安全协议、先正达董事会成员对跨大西洋地区安全的伤害和分歧的贡献应该不小，欧美需要共同抵御法中基金会、中共瑞士秘密协议、先正达董事会成员等中共蓝金黄势力和行动的影响。
 
-**疫苗功效未能确定**
+原文链接：[https://thediplomat.com/2021/04/the-china-plan-transatlantic-blueprint-for-strategic-competition/](https://thediplomat.com/2021/04/the-china-plan-transatlantic-blueprint-for-strategic-competition/)
 
-美国疾病预防控制中心（CDC）建议：
-
-“在公共场所，与来自其他多个家庭的未接种疫苗的人一起时，以及接触未接种疫苗的高危人员时，完全接种了疫苗的人仍然需要采取以下这些中共病毒预防措施：
-
-•戴上合适的口罩
-
-•与不同住的人保持至少6英尺的距离
-
-•避免中型和大型的个人聚会
-
-•如果遇到中共病毒症状，请进行测试” [13]
-
-上述措施说明接种了疫苗的人本身仍然可能携带并传播病毒，仍然可能被再次感染，这也意味着疫苗的有效性仍不确定。
-
-**疫苗护照和强制接种**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/2-2.jpg)
-尽管疫苗的安全性和有效性仍存疑虑，许多国家的政府已经在大力推广中共病毒疫苗接种，并且开始倡导中共病毒疫苗护照，以证明您已接种疫苗。
-
-加拿大总理表示，疫苗护照可能会起作用，并在积极探索用于国际旅行。[12]
-
-英国首相鲍里斯·约翰逊（Boris Johnson）证实，英国政府将在旅行和大型集会时试用“疫苗护照”系统。
-
-虽然美国国家过敏和传染病研究所的Anthony Fauci博士说：“我怀疑联邦政府将成为疫苗护照概念的主要推动者”，但纽约州已于2021年3月26日宣布疫苗护照，并成为第一个推出中共病毒护照的州。
-
-皇家加勒比游轮公司等公司要求其18岁以上的客户进行完全疫苗接种并提供疫苗接种证明。有些雇主甚至要求其员工接种疫苗，罗格斯大学（Rutgers）已成为第一家强制要求其学生和员工接种疫苗的大学。
-
-**EUA****和****FDA****规定疫苗接种应该是自愿的**
-
-美国食品药品监督管理局（FDA）紧急使用授权（EUA）规定，“不允许强制接种疫苗。因此，在疫苗接种的早期阶段，必须征得个人的同意，并且他们将不会成为强制性的” 。[6]
-
-FDA EUA阐明：“确保在适用情况下，在切实可行的范围内通知接收者……他们可以选择接受或拒绝（EUA）产品……” [5]
-
-Cohn博士在FDA指南中表示：“医院等组织，确实可以要求其员工接种被正式批准后的疫苗。但是对于处在EUA过程中的疫苗，患者和个人将有权拒绝接种。” [7]
-
-**疫苗护照和强制接种是不道德和不合法的**
-
-综上所述，由于中共病毒疫苗仍处于实验阶段，而且FDA和EUA明令禁止强制接种处在EUA阶段的疫苗，因此各组织和企业向其员工或客户强制要求进行中共病毒疫苗接种是不道德和不合法的。商家不应基于疫苗接种状况来歧视客户，因为这是对个人医疗隐私的粗暴侵犯，而且美国州法律通常禁止对拒绝违反联邦法的员工进行报复。
-
-世界卫生组织高级官员迈克尔·瑞安（Michael Ryan）博士在2021年3月8日表示，试图将疫苗认证作为旅行先决条件的国家存在“实际可行性和道德考量”的问题，并补充说明联合国卫生机构目前反对疫苗认证。 [9]
-
-美国的前线医生（America’s Frontline Doctors）组织也反对疫苗护照和强制接种：
-
-“强制接受实验性的医学疗法既不被允许也不可取。不应强迫普通美国人仅仅因为需要乘飞机旅行或与朋友一起看演唱会就必须签署“疫苗护照”或类似的强制授权。第三方滥用私人健康信息和对个人造成实际医疗风险的可能性仍然很高。私人权力的集中对个人隐私权和其他公民自由权利构成威胁，政策制定者必须谨慎行事”。 [8]
-
-此外，从预防和治疗中共病毒角度而言，疫苗既不是唯一的选择，也不是最佳的选择。来自美国前线医生(America’s Frontline Doctors)组织[10]和前线中共病毒重症监护联盟（FLCCC）[11]的医生已用事实证明并公开听证阐明用硫酸羟氯喹（HCQ）和伊维菌素（Ivermectin）等多种药物预防和治疗中共病毒非常有效且安全。
-
-*参考链接：*
-
-[1] [3,964 Dead 162,610 Injuries: European Database of Adverse Drug Reactions for COVID-19 “Vaccines”](https://www.marktaliano.net/3964-dead-162610-injuries-european-database-of-adverse-drug-reactions-for-covid-19-vaccines/)
-
-[2][Coronavirus (COVID-19) vaccine adverse reactions](https://www.gov.uk/government/publications/coronavirus-covid-19-vaccine-adverse-reactions)
-
-[3][What to Know About Blood Clots, Anaphylaxis and Other Vaccine Fears](https://www.bloomberg.com/news/articles/2021-01-18/what-to-know-about-vaccine-related-deaths-allergies-quicktake)
-
-[4] [Doctors and Scientists Challenge European Medicines Agency on COVID-19 Vaccine Danger](https://21stcenturywire.com/2021/03/11/doctors-and-scientists-challenge-european-medicines-agency-warning-of-covid-19-vaccine-dangers/)
-
-[5] [Emergency Use Authorization of Medical Products and Related Authorities, page 24](https://www.fda.gov/media/97321/download)
-
-[6] [Department of Health and Human Services Centers for Diesease Control and Prevention, Advisory Committee on Immunization Practices (ACIP), Summary Report August 26, 2020 Atlanta, Georgia](https://www.cdc.gov/vaccines/acip/meetings/downloads/min-archive/min-2020-08-508.pdf), page 56
-
-[7] [FOOD AND DRUG ADMINISTRATION (FDA) Center for Biologics Evaluation and Research (CBER) 161st Vaccines and Related Biological Products Advisory Committee (VRBPAC) Meeting](https://www.fda.gov/media/143982/download), page 156
-
-[8] [America’s Frontline Doctors White Paper On Experimental Vaccines For COVID-19](https://www.americasfrontlinedoctors.com/wp-content/uploads/Vaccine-PP.pdf)
-
-[9] [WHO cautions against vaccine passports for international travel](https://globalnews.ca/news/7685488/covid-vaccine-passport-who-inequity/)
-
-[10] [America’s Frontline Doctors website](https://www.americasfrontlinedoctors.com/)
-
-[11] [Front Line COVID-19 Critical Care Alliance](https://covid19criticalcare.com/)
-
-[12] [Trudeau Government Says Vaccine Passports Could Work](https://ca.travelpulse.com/news/impacting-travel/trudeau-government-says-vaccine-passports-could-work.html)
-
-[13] [CDC Issues First Set of Guidelines on How Fully Vaccinated People Can Visit Safely with Others, March 8, 2021](https://www.cdc.gov/media/releases/2021/p0308-vaccinated-guidelines.html)
+发布：GLC
 
 0

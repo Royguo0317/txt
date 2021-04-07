@@ -1,19 +1,98 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 分析显示年轻的新西兰人是因为新冠疫情而失业的重灾区
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1059720/)
+## 人权是美国外交政策的核心
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1059943/)
 
-翻译再创作：明心见性
+内容：
 
-很多新西兰年轻人在这个新冠经济衰退期要有更高的技能或者重新再培训才能找到工作。据话新西兰新闻媒体节目报道，，30岁以下，有带薪的工作的年轻人，较去年来说大约减少了近2万人。
+President Biden is committed to putting human rights
 
-据社会发展和就业部长Carme Sepuloni表示政府正在出台新的措施来面临的挑战，比如学徒制方案和Mana in Mahi（政府推出的带薪实习 ，为找到正式工作做准备的方案）。严峻的现实被提前预见到了。在收紧的人才市场中，年轻人明显处于劣势。她还表示对于年轻人来讲，大部分人很少有过硬的技术和经验，他们工作的一些领域大多是新冠疫情中被打击的重灾区。
+拜登总统致力于将人权
 
-对于30岁以上的人来说是一个乐观的前景，今年30岁以上被雇佣的人数比去年多了1万8千人。
+back at the centre of American foreign policy, and that’s a commitment that I and the entire
 
-高级经济学家Brad Olsen表示年轻人总是被先裁员的。现在国家很多人都没有工作，或者很难找到工作，如果变成长期依赖就很危险。（政府给予学生辅助；正在找工作的人也可以拿到找工作津贴）
+放回到美国外交政策的中心，这是我个人和
 
-评论：最近奥克兰一位亚裔女孩发起的反对仇视亚洲人的大游行示威，奥克兰很多亚裔和当地人都积极参与了。自从新冠疫情暴发以来新西兰各个城市的种族歧视针对亚裔尤其是中国人的暴力事件上升很多。当地政府只注重CCP带来的贸易好处，对CCP病毒几乎没有过多的提及。广大媒体也是集体沉默。所以新西兰的年轻人又在疫情中丢失工作，进而产生抵触亚裔的情绪病迁怒于在纽华人所以导致种族事件上升，进入恶性循环。希望我们新西兰的战友们踊跃的传播病毒真相，让洋人把中国人和CCP分开。灭共没你不行，灭共从我做起！
+Department of State take very seriously.
+
+国务院所有人非常认真的承诺
+
+We will bring to bear all the tools of our diplomacy to defend human rights and
+
+我们将动用所有外交手段捍卫人权
+
+hold accountable perpetrators of abuse.
+
+追究施暴者的责任
+
+The reports we’re releasing today are just one way to do that.
+
+我们今天发布的报告只是实现这一目标的一种方式
+
+One of the core principles of human rights is that they are universal.
+
+人权的核心原则之一是它们是放之四海而皆准的普世原则。
+
+All people are entitled to these rights, no matter where they’re born,
+
+所有人都有权享有这些权利，无论他们出生在哪里，
+
+What they believe, whom they love, or any other characteristic.
+
+无论他们的信仰，他们爱的人，或任何其他性格
+
+Human rights are also co-equal;
+
+人权亦是平等的；
+
+there is no hierarchy that makes some rights more important than others.
+
+没有等级制度使某些权利比其他权利更重要。
+
+Past unbalanced statements that suggest such a hierarchy,
+
+过去不平衡的声明暗示了这样的等级制度，
+
+including those offered by a recently disbanded
+
+包括最进撤销的一个声明
+
+State Department advisory committee,
+
+国务院顾问委员会，
+
+do not represent a guiding document for this administration.
+
+不代表本届政府的指导性文件
+
+At my confirmation hearing,
+
+在我的提名确认听证会上，
+
+I promised the Biden-Harris Administration
+
+我向拜登-哈里斯政府承诺
+
+would repudiate those unbalanced views.
+
+会否定那些不平衡的观点
+
+We do so decisively today.
+
+今天我们非常果断地这样做了
+
+* * *
+
+英听校:康州盘古农场-WZ
+翻译: 康州盘古农场-WZ
+翻译终校: 康州盘古农场-Mike Li
+字幕+视频制作:康州盘古农场-
+审片:康州盘古农场-银龙
+发文编辑：康州盘古农场-轰炸机
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
