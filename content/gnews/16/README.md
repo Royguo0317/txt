@@ -1,31 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：专家警告说，中共加快了可能入侵台湾的时间点
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1065513/)
+## 罗斯福号航母战斗群重返南中国海英德也宣布将派遣军舰前往（2021年04月07日 玫瑰看新闻）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1065356/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/image001-21.jpg)
-
-据《Zerohedge》文章报道，一位专家警告说，随着中共加紧对台湾岛的军事演习，中共政权正在加速其入侵台湾的计划。台湾国防部称，20架中国军机包括4架H-6K核能力轰炸机、10架J-16战斗机、2架Y-8反潜战机和1架KJ-500空中预警，于3月26日进入台湾防空识别区（ADIZ）。这是中共有史以来最大的一次入侵事件。
-
-中共将台湾视为其领土的一部分，并以战争威胁要将台湾岛纳入其麾下。今年早些时候，中共国防发言人还威胁到，如果台湾宣布独立，将对台湾开战。这个自治岛屿实际上是一个独立的国家，拥有自己的民选政府、军队、宪法和货币。
-
-面对中共不断升级的军事威胁，前美国网络安全和国际事务部主任米尔斯（John Mills）表示，拜登政府应该对中共采取明确清晰的威慑政策。具体来说，美国应该在台湾周边以及东海和南海部署军事力量。
-
-拜登政府曾表示，其对台湾的承诺是 “坚如磐石 “的。但据台湾中正大学教授宋学文说，美国政府在保卫台湾岛方面有多认真还有待观察，特别是考虑到拜登本人从未用 “威胁 “一词来形容中共。拜登将该中共政权定位于美国 “最严重的竞争对手”。他预见美国和中共在不久的将来会发生小规模的军事冲突，特别是在南海的两个岛屿东沙和太平岛。
-
-台湾位于亚洲的第一岛链，将成为中共在亚洲军事侵略的首批目标之一。第一岛链是从日本南部的九州岛、台湾、菲律宾到印尼的这个范围。几十年来，中共的军事战略家一直将第一岛链视为其海空军事力量的障碍，阻碍其突破第二岛链及其以外的地区。
-
-
-
-[原文链结](https://www.zerohedge.com/geopolitical/beijing-accelerating-timeline-possible-invasion-taiwan-expert-warns)
-
-本文作者：林林虎
-
-审核校对：鲁邦五世
-
-上传排版：糊糊文婴
-
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-14-17.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/2-14.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/3-20.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/4-8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/5-1-3.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/6-3.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/7-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/8-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/9-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/10-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/11-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/12-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/14.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/15.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/16.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/17.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/18.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/19.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/20.jpg)
 0

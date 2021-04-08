@@ -1,43 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《文贵说》| 图片连载（六十四）
-` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/1065048/)
+## 《路德社》精选新闻简讯：Sellin博士公布中共病毒的零号患者
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1065312/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/64-1.jpg)
-**我们真的是感谢很多有良心的警察，枪口抬高一寸，放了我们很多战友。**
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-**—— 郭文贵先生 2020年8月4日**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/64-2.jpg)
-**为什么突然间共产党这么害怕我们了？不就是看着我们要发财了吗？不就是看着我们要挣大钱了吗？它害怕了，它不愿意让我们挣钱，它不让我们战友挣那么多钱。**
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/image001-20.jpg)
 
-**—— 郭文贵先生 2020年8月2日**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/64-3.jpg)
-**中国所有的灾难就是政法委！还有在香港，香港的政法委的枪，是民主民运，中国走向民主，希望法治的根本的最大祸魁和挡路石。**
+2021年4月8日，Selin博士发推:Wuhan Institute of Virology’s Hongping Wei, mentor of alleged #COVID19 “patient zero” Yanling Huang, has links to China’s military including the Third Military Medical University source of #COVID’s suspected bat #coronavirus backbone ZC45/ZXC21.
 
-**—— 郭文贵先生 2020年8月5日**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/64-4.jpg)
-**咱们要看到战友们的力量、信任、坚持，还要看到战友们的实力。**
+武汉病毒研究所的魏红平是中共病毒COVID19零号患者黄艳玲的导师，他与中共军方有联系，包括第三军医大学疑似中共病毒来源的蝙蝠病毒骨架ZC45/ZXC21。
 
-**—— 郭文贵先生 2020年8月4日**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/64-5.jpg)
-**你能在风雨之前享受风雨，同时能知道风雨之后的快乐，万里天空、晴空万里。这就是人生！**
+Sellin博士证实感染中共病毒COVID19的零号患者“黄艳玲”，并揭露她的导师魏红平就在武汉病毒研究所工作。首次公开提及闫博士论文中记载的舟山蝙蝠病毒ZC45/ZXC21是中共病毒骨架的关键内容，表明美国军方调查已掌握中共病毒来源的核心机密。舟山蝙蝠病毒是中共军方第三军医大学独有的病毒，而以此为骨架的COVID19就是中共制造的生物武器，这是中共无论如何也无法推脱的铁证。同时，证明美国军方情报部门完全验证此前闫博士和爆料革命提供的中共病毒情报和证据的真实性以及准确性。
 
-**—— 郭文贵先生 2020年8月4日**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/64-6.jpg)
-**就是因为战友的信任和战友相信的这个事实，和对我们爆料革命的忠诚，我们渡过了一个一个的大劫难，而使我每次遇难呈祥！**
-
-**—— 郭文贵先生 2020年8月4日**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/64-7.jpg)
-**只有美国安全了，大家才能获得和平。要是让俄罗斯、CCP真的获得了世界的主导权，世界将陷入灾难。**
-
-**—— 郭文贵先生 2020年8月4日**
+[原文链接](https://twitter.com/LawrenceSellin/status/1380052151964213248/photo/1)
 
 
 
-- [***更多精美海报请点击G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4)
+本文作者：stranger
 
+审核校对：玫瑰天空
 
+上传排版：糊糊文婴
 
-
-+1
+0

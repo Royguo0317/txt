@@ -1,59 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 危宏平和黄艳玲上了榜单是否意味着武毒所零号病人已板上钉钉
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1065080/)
+## 中共国寄望数字元脱钩美元结算体系
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1065174/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-7.png)
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
-
-Lawrence Sellin博士[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午2:57 · 2021年4月8日](https://twitter.com/LawrenceSellin/status/1380052151964213248)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布了推文——
+- 作者; JIHO
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-> Wuhan Institute of Virology's Hongping Wei, mentor of alleged [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) "patient zero" Yanling Huang, has links to China's military including the Third Military Medical University source of [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw)'s suspected bat [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) backbone ZC45/ZXC21.[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/sGXkDfrMER](https://t.co/sGXkDfrMER)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 8, 2021](https://twitter.com/LawrenceSellin/status/1380052151964213248?ref_src=twsrc%5Etfw)
+**西班牙2021年4月8日电/西喜社——**
+
+据华尔街日报4月6日报道，数字人民币将赋予北京实时跟踪支出的权力，并且与美元主导的全球金融体系脱离关系。
+
+中共国版本的数字货币由其中央银行控制，该中央银行将发行新的电子货币。预计它将为中共国政府提供广泛的新工具，以监控其经济和人民。通过设计，数字元将否定比特币的主要吸引力之一：用户匿名。
+
+北京还将数字人民币定位于国际范围，并将其设计为不受全球金融体系的束缚。自第二次世界大战以来，美元一直是全球金融体系的王者。中共国正在拥抱包括金钱在内的多种形式的数字化，以期获得更集中的控制，同时抢占它认为可以抢占的未来技术的先机。
+
+美元以前曾面临挑战者，例如欧元，但只有在竞争对手的缺点变得明显时，美元才变得越来越重要。在国际清算银行的最新排名中，美元远远超过了用于国际外汇交易的所有其他货币，达到88％。人民币仅使用了4％。
+
+分析师和经济学家说，数字化本身并不能使人民币成为美元在银行间电汇中的竞争对手。但是在新的化身中，元（又称人民币）可能会在国际金融体系的边缘获得吸引力。
+
+它将为贫穷国家的人们提供国际汇款的选择。即使是有限的国际使用，也可以减轻美国对中共国公司或个人的制裁的影响。
+
+现任大西洋理事会智囊，前国际货币基金组织工作人员乔什·利普斯基（Josh Lipsky）表示：“威胁美元的任何事情都是国家安全问题。从长远来看，这威胁到美元。”
+
+中共国已经表示，数字人民币将在一段时间内与钞票和硬币一起流通。银行家和其他分析师表示，北京最终打算将其所有资金数字化。北京还没有解决这个问题。
+
+数字货币看起来对发行政府来说是一个潜在的宏观经济梦想工具，可用于实时跟踪人们的支出，加快灾民救济或标识犯罪活动。有了它，北京将获得巨大的新力量来加强习近平主席的独裁统治。
+
+随着数字支付已成为一种规范，在中共国这种控制的要素已经存在。
+
+金钱本身是可编程的。北京已经对有效期进行了测试，以鼓励用户在经济需要快速起步的时期内迅速支出。
+
+它也是可追踪的，为中共国的严重监控增加了另一种工具。政府部署了数亿个面部识别摄像头以监视其人口，有时还使用它们对诸如乱穿马路的活动征收罚款。一旦发现违规行为，数字货币将可以同时罚款并收取罚款。
+
+波动呢？诸如比特币之类的加密货币因此而闻名。但是中国人民银行将严格控制数字人民币，以确保它与纸币，硬币之间没有估价差异。
+
+这意味着对于投资者和交易者而言，像某些加密货币一样，对数字人民币进行投机是没有意义的。防伪措施的目的是使除中国人民银行以外的任何人都无法创建新的数字人民币。
+
+尽管中共国尚未公布该计划的最终立法，但中央银行表示，它可能最初会对个人可以保留多少人民币的数字施加限制，以控制人民币的流通方式并为用户提供一定程度的安全性和隐私权。
+
+中国央行不会使用新技术来增加流通量，因为以数字方式发行的每一元人民币实际上将抵消以实物形式流通的一元人民币。
+
+中国看上去几乎不像是货币先驱。同时，它正在掀起一场金融技术革命，疯狂地采用了支付宝和微信应用程序，这使得现金几乎不再需要，并且为初创公司提供了随时随地付款的方式。
+
+突然，中国的货币走势令人注目。也使来自美国和其他西方经济体的央行行长担心。
+
+数字人民币可以给那些美国试图惩罚的人在美国不知情的情况下兑换货币。交易所不需要使用SWIFT，该系统用于商业银行之间的汇款，并且可以由美国政府监控。
+
+削弱美国制裁力量的机会，对于北京数字人民币的营销以及更广泛地使人民币国际化的努力至关重要。中国央行官员穆长春上个月在一个论坛上发表讲话，反复表示数字人民币旨在保护中共国的“货币主权”，包括抵消全球对美元的使用。
+
+北京已与国际清算银行以及香港，泰国和阿拉伯联合酋长国中央银行合作，发起了一桩开发数字货币跨境使用协议的计划。
+
+根据研究机构CBDC Tracker的研究，有60多个国家正在研究或开发数字货币。
+
+编辑：Victor Torres；校对:阿伯塔；组稿：神奇四侠；发稿：信心的选择
+
+**新闻来源：**[华尔街日报](https://www.wsj.com/articles/china-creates-its-own-digital-currency-a-first-for-major-economy-11617634118)
 
 
-
-Wuhan Institute of Virology’s Hongping Wei, mentor of alleged [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) “patient zero” Yanling Huang, has links to China’s military including the Third Military Medical University source of [#COVID](https://twitter.com/hashtag/COVID?src=hashtag_click)‘s suspected bat [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) backbone ZC45/ZXC21. [#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hashtag_click) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)
-
-中文大意是：武汉病毒学研究所的危宏平，所谓的＃COVID19“零病患”黄艳玲的导师，与中共军方有联系，其中包括第三军医大学[#COVID](https://twitter.com/hashtag/COVID?src=hashtag_click)的可疑蝙蝠[＃冠状病毒](https://twitter.com/hashtag/coronavirus?src=hashtag_click)主干ZC45 / ZXC21的来源。[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hashtag_click)[＃不受限制的生物武器](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)
-
-这一次危宏平和黄艳玲上榜了——
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-14-15.jpg)
-Lawrence Sellin博士的这则推文引出一段悬案，而这段悬案与危宏平有关、与黄艳玲有关、与石正丽有关、与武汉病毒所有关、与广受猜疑的中共冠状病毒零号病人黄艳玲有关，而这一系列的人物和机构都是围绕着黄艳玲是否为中共病毒的零号病人表演的重要角色——
-
-据[武汉病毒所已逝“零号病人”？当事人：我还健在](http://finance.sina.com.cn/china/gncj/2020-02-16/doc-iimxyqvz3279280.shtml)（2020年02月16日 12:25 [新京报](https://www.thepaper.cn/newsDetail_forward_6016936)）
-
-［2月15日，一则关于“中国科学院武汉病毒研究所（以下简称武汉病毒所）一名女研究生黄燕玲是新冠病毒肺炎零号病人”的消息在网络流传。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/2-13.jpg)
-网络流传的截图显示，武汉（新冠）病毒肺炎的零号病人是黄燕玲，系武汉病毒所科研人员，2012年考入武汉病毒所的硕士研究生。而根据武汉病毒所发布于2011年11月4日的《2012年度推荐免试硕士研究生拟录取名单公示》显示，黄燕玲系西南交大推荐的学术性硕士。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/3-8.jpg)
-网络截图还称，黄燕玲的指导博导是危宏平，并质疑称“武汉病毒所关于黄燕玲的资料都没了，此人到底在哪里？”
-
-就此事件，今日（2月16日），《每日经济新闻》记者注意到，危宏平朋友圈发文回应。其称“我近2天接到许多电话或邮件，咨询曾在本组学习过的黄燕玲同学近况，我是她导师，黄燕玲同学2015年7月硕士顺利毕业后，一直在外地城市工作。经与她本人电话确认，目前黄燕玲同学身体健康，一切安好！”
-
-危宏平还称“网上与此不一致的传言皆为谣言。因抗疫工作繁忙，怒（注：原文如此）不再一一解释！”
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4-7.jpg)
-危宏萍朋友圈截图
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4-2.png)
-中国科学院武汉病毒研究所研究员石正丽朋友圈截图
-
-武汉病毒所官网资料显示，危宏平是武汉病毒所研究员、新发传染病研究中心副主任、诊断微生物学学科组组长、中国微生物学会分析微生物学专业委员会委员、湖北省微生物学会理事，主要从事病原微生物检测与新型抗菌分子的研究。
-
-【名词解释】“零号病人”，通常指的是第一个患某种传染病，并开始散播病毒的病人。在流行病调查中，通常被叫做首发病例。在传染病的发生发展和传播过程中以及传染病的认知、研究过程中首发病例一直是占有重要的地位，通过对首发病例的细致调查，能为疾病来源、病因分析、预测、控制措施采用、预警机制的建立提供大量宝贵信息。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/6-2.jpg)
-相关报道　网传武汉病毒所一研究生系“零号病人”，回应：无一人感染
-
-2月15日，一则关于“武汉病毒研究所一名女研究生黄某某是新冠病毒肺炎零号病人”的消息在网络流传。　2月15日晚间，新京报记者就此事向中国科学院武汉病毒研究所研究员石正丽、流感病毒实验室研究员陈全姣求证。两人均表示，对病毒所是否有一位名叫 黄某某的女研究生并不掌握，但可以保证武汉病毒所目前无一人感染新冠肺炎。“怎么可能？这个一看就是假新闻。”石正丽说，“我可以保证，包括研究生在内，我们所没有一个人被病毒感染过，我们所是零感染。”对于上述信息，陈全姣也表示，“我们武汉病毒研究所没有一例感染，我们病毒所绝对不是‘零号’。”］
-
-对照Lawrence Sellin博士[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午2:57 · 2021年4月8日](https://twitter.com/LawrenceSellin/status/1380052151964213248)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文，可以从新京报的这一则报道里看出更多的信息，首先来说危宏平和石正丽已经上榜了，武汉病毒研究所也已经上榜了，但是我们一定要再一次温习一下功课，那就是科学女巫石正丽不仅研究和制造了中共病毒，而且还对武汉病毒研究所的中共病毒零号病人黄艳玲进行了掩盖，同样的，黄艳玲的导师也对中共病毒零号病人黄艳玲进行了掩盖！
-
-另外我们还要对Lawrence Sellin博士的名单进行补录，那就是新京报这则报道里附上的陈全姣——
-![]()![](https://gnews.org/wp-content/uploads/2021/04/7-2.png)
-当然了要在Lawrence Sellin博士的名单进行补录的还有很多，包括新京报在内的所有为中共病毒零号病人黄艳玲掩盖的媒体和背后的操控者稍安毋躁，排排坐，吃果果，我们要一起盯住他们，别让他们跑了！
-
-（文章内容仅代表作者个人观点）
 
 0
