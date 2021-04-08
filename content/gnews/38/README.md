@@ -1,40 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：要求全面调查中共病毒来源(2021年关于中共病毒起源的公开信)
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1065625/)
+## 罗斯福号航母战斗群重返南中国海英德也宣布将派遣军舰前往（2021年04月07日 玫瑰看新闻）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1065356/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
-
-了解中共病毒如何出现并传播给人类对于预先制定未来大流行病的预防和应对策略是至关重要的。中共病毒爆发一年多来，还没有建立起关键的记录和生物样本，以及可以提供必要见解的程序档案。因为目前调查中共病毒的起源仍然难以实现，这对于我们和子孙后代是不负责任的。
-
-对中共与WHO联合研究小组报告的反应：
-
-- 联合研究小组将优先事项视为寻求人畜共患病的起源，而不是全面检查所有可能的来源。未提及任何可能的实验室途径，相反从一开始就确定了中共病毒的人畜共患病起源。
-- 没有获得本来可以并且应该提供关于中共病毒起源的关键记录和生物样本。
-- 对于实验室事故可能性的评估标准是极为肤浅的，未能做到一些最基本可信的标准分析。因为武毒所不提供涉及蝙蝠冠状病毒研究的详细信息，包括动物传代，功能增强和基因改造，这些是实验室相关事故中的主要危险因素。
-
-
-针对这些重大局限性和程序上的失败，该报告是必须受到质疑的。我们接下来必须要做的：
-
-- 要求中共政府接受中共病毒来源所有可能途径的调查并提供正式授权，让国际专家可以全部访问所有感兴趣的网站，记录和样本以及采访相关人员。
-- 确保透明选择专家团队，防止可能的利益冲突。
-- 呼吁在开放科学与公平原则框架下及时，全面地共享中共病毒的原始数据。
-- 呼吁加强对高风险病毒学研究实验室工作的国际监管。
-- 建立安全的举报系统，以允许中共国与其他国家的科学家共享相关信息而不必担心受到报复。
-- 举行透明公开的听证会，旨在以负责任的方式检查大量的数据和假设。
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/image002-14.jpg)
-
-
-[原文链结](https://www.nytimes.com/interactive/2021/04/07/science/virus-inquiries-pandemic-origins.html)
-
-【文章仅限作者个人观点】
-
-本文作者：wuxin
-
-审核校对：鲁邦五世
-
-上传排版：糊糊文婴
-
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-14-17.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/2-14.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/3-20.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/4-8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/5-1-3.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/6-3.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/7-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/8-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/9-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/10-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/11-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/12-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/14.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/15.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/16.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/17.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/18.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/19.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/20.jpg)
 0
