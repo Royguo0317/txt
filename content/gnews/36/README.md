@@ -1,25 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 51岁司机因罚款服毒自杀折射出普通百姓生活的艰难
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1064713/)
+## 危宏平和黄艳玲上了榜单是否意味着武毒所零号病人已板上钉钉
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1065080/)
 
-视频*&*撰稿：必有回响
+![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-7.png)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-4月5日中共国内河北唐山一位卡车司机因为北斗定位掉线被罚款2000人民币并被扣车，这位司机随后服毒自杀了。根据遗书的内容这位司机叫金德强，今年51岁，干运输10年。在这十年的时间里钱没挣到多少还落下了一身病，三高（血压、血糖、血脂）心脏也不好。该司机在丰润区超限站被抓，以他北斗掉线理由罚款并被扣车。这位司机遗书里还提到家里有年迈的母亲，有他老婆，还有儿女。那到底是什么原因让位司机放下对一家老小的牵挂去服毒自杀？难道仅仅就是因为被罚2000而一赌气这么简单吗？
-
-根据中共国内媒体报道，这个司机母亲70多岁了身体也不好，一年光吃药的钱就要一，二万，妻子腿也有残疾，在家里干点零活，还有三个孩子。根据以上的信息来看这个司机家里经济压力相当的大。其实这位司机的生活状态也是绝大多数中共国老百姓的生活状态，那就是在贫困的边缘游离，要知道中共国内有6，7亿人每月收入不足1000人民币，中共国百姓的生活经不起一点风浪和变故，若遇到，轻则一贫如洗，重则家破人亡。
-
-他的遗书也显示他过得非常憋屈，遗书里说“我对人生早已看透了，太没意思了”，还对他的儿女说“别学我窝窝囊囊一辈子”。其实在中共国内，绝大多数百姓谁不是窝窝囊囊一辈子呢？中共国内百姓没有任何权力，没人权， 没土地产权，没自由说话的权力，生几胎孩子中共说了算，甚至死了连埋在哪里都是中共说了算。
-
-如果这位司机若是出生在自由民主国家，他母亲就能有免费的医疗，也不会一年就要花一，二万的药钱，如果妻子是有残疾的话也能有充足社会的救济，他根本用不着走极端。当然中共国内也有所谓的“社保”，但是那个钱少得可怜，刚够一个人吃饱饭的程度，其它穿衣什么的额外开销就别想了，更别说养家。如果是在欧美民主世界，你得到的救济不但可以让你过得不错，你还可以靠救济养活你的孩子们，在欧美很多外来新移民就是这样，不断生小孩也不用工作，当然笔者并不提倡学习这种只知道吃福利不工作的懒人，不过两相比较你就知道民主自由世界真才是真的为了百姓着想。
-
-如果他要是知道爆料革命的话，他就能觉醒过来，会明白这一切的始作俑者都是因为中共，也会明白这样去自寻短见是多么不值得，应该等着我们新中国联邦把中共这个恶魔结束，到那时全中国的社会问题都会得到大的解决，他的问题自然而然就会解决，因为那时大家都会有免费医疗，他的老婆也会得充足的救济，卡车也不再会被乱罚款乱收费，路上也不会再有中共用来拦路抢劫的收费站。他的死在中共国内也许就让一些有点同情心的中国人感叹一下，然再过两个星期就忘掉这般地轻于鸿毛。像这位司机这样的悲剧还少吗？轰动中国的杨改兰案，现在还有多少人提？社会有任何改变吗？杨改兰就是因贫导致家破人亡的中共国式的典型悲剧，这种悲剧一直在中共的统治下轮回，这次轮回到了这位司机身上，下一次也可能轮回到你身上！我恳请国内的同胞们，醒醒吧！要看清中共丑恶嘴脸，起来抗争吧！
-
-（本文只代表作者个人观点）
-
-审核、编辑：Cindy
-![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2.jpg)
+Lawrence Sellin博士[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午2:57 · 2021年4月8日](https://twitter.com/LawrenceSellin/status/1380052151964213248)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布了推文——
 
 
-+1
+
+> Wuhan Institute of Virology's Hongping Wei, mentor of alleged [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) "patient zero" Yanling Huang, has links to China's military including the Third Military Medical University source of [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw)'s suspected bat [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) backbone ZC45/ZXC21.[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/sGXkDfrMER](https://t.co/sGXkDfrMER)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 8, 2021](https://twitter.com/LawrenceSellin/status/1380052151964213248?ref_src=twsrc%5Etfw)
+
+
+
+Wuhan Institute of Virology’s Hongping Wei, mentor of alleged [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) “patient zero” Yanling Huang, has links to China’s military including the Third Military Medical University source of [#COVID](https://twitter.com/hashtag/COVID?src=hashtag_click)‘s suspected bat [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) backbone ZC45/ZXC21. [#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hashtag_click) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)
+
+中文大意是：武汉病毒学研究所的危宏平，所谓的＃COVID19“零病患”黄艳玲的导师，与中共军方有联系，其中包括第三军医大学[#COVID](https://twitter.com/hashtag/COVID?src=hashtag_click)的可疑蝙蝠[＃冠状病毒](https://twitter.com/hashtag/coronavirus?src=hashtag_click)主干ZC45 / ZXC21的来源。[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hashtag_click)[＃不受限制的生物武器](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)
+
+这一次危宏平和黄艳玲上榜了——
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-14-15.jpg)
+Lawrence Sellin博士的这则推文引出一段悬案，而这段悬案与危宏平有关、与黄艳玲有关、与石正丽有关、与武汉病毒所有关、与广受猜疑的中共冠状病毒零号病人黄艳玲有关，而这一系列的人物和机构都是围绕着黄艳玲是否为中共病毒的零号病人表演的重要角色——
+
+据[武汉病毒所已逝“零号病人”？当事人：我还健在](http://finance.sina.com.cn/china/gncj/2020-02-16/doc-iimxyqvz3279280.shtml)（2020年02月16日 12:25 [新京报](https://www.thepaper.cn/newsDetail_forward_6016936)）
+
+［2月15日，一则关于“中国科学院武汉病毒研究所（以下简称武汉病毒所）一名女研究生黄燕玲是新冠病毒肺炎零号病人”的消息在网络流传。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2-13.jpg)
+网络流传的截图显示，武汉（新冠）病毒肺炎的零号病人是黄燕玲，系武汉病毒所科研人员，2012年考入武汉病毒所的硕士研究生。而根据武汉病毒所发布于2011年11月4日的《2012年度推荐免试硕士研究生拟录取名单公示》显示，黄燕玲系西南交大推荐的学术性硕士。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/3-8.jpg)
+网络截图还称，黄燕玲的指导博导是危宏平，并质疑称“武汉病毒所关于黄燕玲的资料都没了，此人到底在哪里？”
+
+就此事件，今日（2月16日），《每日经济新闻》记者注意到，危宏平朋友圈发文回应。其称“我近2天接到许多电话或邮件，咨询曾在本组学习过的黄燕玲同学近况，我是她导师，黄燕玲同学2015年7月硕士顺利毕业后，一直在外地城市工作。经与她本人电话确认，目前黄燕玲同学身体健康，一切安好！”
+
+危宏平还称“网上与此不一致的传言皆为谣言。因抗疫工作繁忙，怒（注：原文如此）不再一一解释！”
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4-7.jpg)
+危宏萍朋友圈截图
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4-2.png)
+中国科学院武汉病毒研究所研究员石正丽朋友圈截图
+
+武汉病毒所官网资料显示，危宏平是武汉病毒所研究员、新发传染病研究中心副主任、诊断微生物学学科组组长、中国微生物学会分析微生物学专业委员会委员、湖北省微生物学会理事，主要从事病原微生物检测与新型抗菌分子的研究。
+
+【名词解释】“零号病人”，通常指的是第一个患某种传染病，并开始散播病毒的病人。在流行病调查中，通常被叫做首发病例。在传染病的发生发展和传播过程中以及传染病的认知、研究过程中首发病例一直是占有重要的地位，通过对首发病例的细致调查，能为疾病来源、病因分析、预测、控制措施采用、预警机制的建立提供大量宝贵信息。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/6-2.jpg)
+相关报道　网传武汉病毒所一研究生系“零号病人”，回应：无一人感染
+
+2月15日，一则关于“武汉病毒研究所一名女研究生黄某某是新冠病毒肺炎零号病人”的消息在网络流传。　2月15日晚间，新京报记者就此事向中国科学院武汉病毒研究所研究员石正丽、流感病毒实验室研究员陈全姣求证。两人均表示，对病毒所是否有一位名叫 黄某某的女研究生并不掌握，但可以保证武汉病毒所目前无一人感染新冠肺炎。“怎么可能？这个一看就是假新闻。”石正丽说，“我可以保证，包括研究生在内，我们所没有一个人被病毒感染过，我们所是零感染。”对于上述信息，陈全姣也表示，“我们武汉病毒研究所没有一例感染，我们病毒所绝对不是‘零号’。”］
+
+对照Lawrence Sellin博士[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午2:57 · 2021年4月8日](https://twitter.com/LawrenceSellin/status/1380052151964213248)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文，可以从新京报的这一则报道里看出更多的信息，首先来说危宏平和石正丽已经上榜了，武汉病毒研究所也已经上榜了，但是我们一定要再一次温习一下功课，那就是科学女巫石正丽不仅研究和制造了中共病毒，而且还对武汉病毒研究所的中共病毒零号病人黄艳玲进行了掩盖，同样的，黄艳玲的导师也对中共病毒零号病人黄艳玲进行了掩盖！
+
+另外我们还要对Lawrence Sellin博士的名单进行补录，那就是新京报这则报道里附上的陈全姣——
+![]()![](https://gnews.org/wp-content/uploads/2021/04/7-2.png)
+当然了要在Lawrence Sellin博士的名单进行补录的还有很多，包括新京报在内的所有为中共病毒零号病人黄艳玲掩盖的媒体和背后的操控者稍安毋躁，排排坐，吃果果，我们要一起盯住他们，别让他们跑了！
+
+（文章内容仅代表作者个人观点）
+
+0
