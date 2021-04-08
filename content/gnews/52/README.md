@@ -1,8 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 罗斯福号航母战斗群重返南中国海英德也宣布将派遣军舰前往（2021年04月07日 玫瑰看新闻）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1065356/)
+## 【五月花评】CCP为何此时高调宣布新疆一官员被判刑？
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1065639/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-14-17.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/2-14.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/3-20.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/4-8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/5-1-3.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/6-3.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/7-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/8-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/9-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/10-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/11-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/12-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/14.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/15.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/16.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/17.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/18.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/19.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/20.jpg)
+五月花写作组 ｜ 作者：Meilen美伦 ｜ 编辑：文合 ｜ 美工、发布：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/04/五月花评1新疆恐怖.jpg)希尔扎提·巴吾东
+墙内媒体报道：4月6日新疆举行的涉疆问题新闻发布会上，希尔扎提·巴吾东被称为长期隐藏在重点职位上的“两面人”。其罪名包括：分裂国家罪、投敌叛变罪、为境外非法提供情报罪、参加恐怖组织罪、帮助恐怖活动罪、利用极端主义破坏法律实施罪、聚众扰乱社会秩序罪、受贿罪、滥用职权罪、徇私枉法罪等，被判死缓。
+
+希尔扎提·巴吾东曾历任和田地区墨玉县公安局局长、新疆维吾尔自治区司法厅厅长、新疆维吾尔自治区党委政法委副书记，并官至新疆维吾尔自治区政协副秘书长。
+
+在国际社会集中揭露新疆集中营与CCP种族灭绝罪、反人类罪的形势倒逼下，这或许是又一起类似“电视认罪”效应的杀鸡儆猴事件，不同的是这次是新闻发布会，而且是在会上直接“宣判”。
+
+对此，有网友分析非常到位：这正是CCP应对国际社会认定其种族灭绝罪、反人类罪后的负隅顽抗。新闻发布会上直接宣判死缓，其它信息不公开，CCP要杀鸡儆猴，维护高压统治。CCP意识到种族灭绝的帽子是摘不掉了，只能破罐破摔，直至最后的疯狂。
+
+CCP在新疆种族灭绝罪上面临危机，欲意为其脱罪开始铺垫民意，想把一切罪行推向某些官员，以此来为整个CCP犯罪集团顶罪，同时也可以继续给民众洗脑，让人们以为新疆问题是个人行为问题，而不是CCP统治管理问题。
+
+2021年1月19日，美国定义CCP为种族灭绝与反人类跨国犯罪集团，将使CCP加速灭亡。当下CCP在全球已如过街老鼠，再加上其研制并投放CCP病毒向全世界发动生物武器超限战，导致世界各国大量公民伤亡，罪孽深重，距离全世界对CCP进行大审判的日期已经不远了。
+
+（本文仅代表作者个人观点）
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+
 0

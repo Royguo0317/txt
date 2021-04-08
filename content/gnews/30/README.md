@@ -1,29 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美将七家中共超级计算机中心列入实体清单
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1066015/)
+## 缅甸驻英国大使因反对军事政变被免职
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1066052/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/K.jpg)news.lqdfx.com
-路透社华盛顿报道，美国商务部周四表示，将把七家中共超级计算机实体列入美国经济黑名单，理由是它们协助中共国的军事行动。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/M-2.jpg)breitbart.com
+《华盛顿时报》报道，周三晚上，缅甸驻英国大使Kyaw Zwar Minn因批评缅甸军事政变，被忠于军政府的外交官禁止进入大使馆。
 
-这七家实体分别是天津飞腾信息技术有限公司、上海高性能集成电路设计中心、深圳市信维微电子有限公司、国家超级计算济南中心、国家超级计算深圳中心、国家超级计算无锡中心和国家超级计算郑州中心。美国商务部表示他们 “参与了中共军方使用的超级计算机的建造、破坏稳定的军事现代化努力和大规模杀伤性武器项目”。
+上个月，这位大使呼吁释放缅甸民主领袖昂山素季(Aung San Suu Kyi)，昂山素季在军方2月1日夺取政权时被拘留。
 
-中共驻华盛顿大使馆没有立即回应置评请求。
+自政变以来，缅甸安全部队在镇压反对派的过程中已经杀死了至少581名抗议者和旁观者。
 
-美国商务部长吉娜·雷蒙多 (Gina Raimondo)在一份声明中表示:“超级计算能力对于许多，或许几乎所有现代武器和国家安全系统的发展都至关重要，比如核武器和高超音速武器。”
+周四，在使馆外 Kyaw Zwar Minn宣读的一份声明称，大使馆昨晚被缅甸军方占领，缅甸驻英大使被拒之门外。自2月份缅甸政变后，伦敦市中心也发生了同样的情况。声明称，“这是不可接受的，不仅是对缅甸人民的不尊重，而且也是对英国所有民主社会的不尊重。”
 
-被列入美国实体清单的公司必须向美国商务部申请许可证，在申请从美国供应商获得产品许可时，商务部将进行严格审查。
+英国外交大臣多米尼克·拉布(Dominic Raab)谴责了“缅甸军事政权的霸凌行为”，并赞扬了大使的“勇气”。
 
-新规定立即生效，但不适用于已经在途中的美国供应商的产品。
-
-在川普总统执政期间，美国已将数十家“与中共军方有联系”的中共企业，包括“帮助中共军方在南海造岛，以及一些涉嫌侵犯人权的公司”列入经济黑名单。其中包括中共最大的智能手机制造商华为技术有限公司、顶级芯片制造商中芯国际、中共石油巨头中海油和最大的无人机制造商深圳大疆科技有限公司等。
+英国政府表示，缅甸当局已通知英国政府， Kyaw Zwar Minn被免职了。
 
 参考链接：
 
-[https://www.reuters.com/article/us-usa-china-commerce/u-s-adds-chinese-supercomputing-entities-to-economic-blacklist-idUSKBN2BV1XU](https://www.reuters.com/article/us-usa-china-commerce/u-s-adds-chinese-supercomputing-entities-to-economic-blacklist-idUSKBN2BV1XU)
+[https://www.washingtontimes.com/news/2021/apr/8/myanmar-ambassador-to-uk-says-he-is-locked-out-of-/](https://www.washingtontimes.com/news/2021/apr/8/myanmar-ambassador-to-uk-says-he-is-locked-out-of-/)
 
 0

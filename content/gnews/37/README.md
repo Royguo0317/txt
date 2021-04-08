@@ -1,27 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 意大利前总理感染中共病毒重新入院
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1065935/)
+## 2021年4月8日 文贵先生盖特 1
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1065966/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/S-11.jpg)thegentlemansjarnal.com
-04月07日，意大利前进党领袖、前总理西尔维奥·贝卢斯科尼（Silvio Berlusconi）已被重新送入圣拉斐尔医院。这是当地报纸《共和国报》报道的。
+新的报告显示，美国国立卫生研究院NIH对武汉病毒研究所的拨款从未经过NIH监督委员会审查 The new report shows the grant from the NIH to the Wuhan Institute of Virology has never been reviewed by the NIH oversight board
 
-4月6日，这位政治家已经在米兰的圣拉斐尔医院接受了检查，之后医生将他送进医院进一步观察。
 
-该版报道称，84岁的贝卢斯科尼在复活节假期探望女儿，并乘坐直升机飞往医院。
 
-“这是他在几周内第二次被迫回到圣拉斐尔的诊所。”该报报道说。
+[【2021年4月8日】文贵先生盖特原文](https://gtv.org/getter/606f12aedbc8001854a682e3)
 
-3月22日，贝卢斯科尼在同一诊所住院。然后他的律师在米兰的一次法庭听证会上报告了其委托人的健康状况恶化，前总理和其他28人被指控犯有贪污和伪证罪。贝卢斯科尼于3月24日出院。
-
-2020年9月，该政治家被诊断出患有中共病毒和双侧肺炎，并被送往圣拉斐尔接受治疗。俄总统发言人德米特里·佩斯科夫当时表示，如果有需要，俄罗斯愿意帮助这位前总理。
-
-参考链接：
-
-[https://www.rbc.ru/rbcfreenews/606d81909a7947a22cc7145a](https://www.rbc.ru/rbcfreenews/606d81909a7947a22cc7145a)
+**喜联盟Gnews编辑部**
 
 0
