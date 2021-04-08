@@ -1,44 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 脸书用户数据和电话号码泄露包括300万香港用户
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1063708/)
+## “无尽前沿法案”促美创新生态以对抗中共
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1063826/)
 
-翻译：洛杉矶天使农场 – 烟波浩淼
-校对：洛杉矶天使农场 – 雨山溪桥客
-审核：洛杉矶天使农场 – 黎明的光芒
+俄罗斯莫斯科喀秋莎农场   银河
 
-上周六，5.33亿脸书上用户的个人数据和电话号码被发布在一个黑客论坛上。泄露的数据集似乎包括300万个香港用户。
+编辑上传    水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/T-3.jpg)technologythisweek.net
+路透社消息，美国参议院商业委员会将于4月14日举行听证会，讨论一项两党共同支持美国技术研发的措施，以应对来自中共的竞争。
 
-来自106个国家的用户受到影响，他们的脸书 ID、全名、简历、地点、生日和电话号码都被曝光。
+这项名为“无尽前沿法案”(Endless Frontier Act)最初于2020年由参议院民主党领袖查克·舒默 (Chuck Schumer)和共和党参议员托德·杨(Todd Young)共同提出。该法案呼吁在五年内提供1,100亿美元资金，以推动美国的技术努力。
 
+参议院商务委员会主席玛丽亚·坎特韦尔 (Maria Cantwell)在声明中说，听证会“将讨论加强美国创新生态系统的潜在行动，包括增加国家科学基金会(National Science Foundation)的研究经费，发展科学、技术、工程和数学(STEM)学科并使之多样化， 提高技术转移，以及投资区域创新中心。”
 
+舒默上个月表示，听证会“旨在增强美国的竞争力，应对我们在全球面临的日益增长的经济威胁，尤其是来自中国共产党的威胁。”
 
-> All 533,000,000 Facebook records were just leaked for free.
-> 
-> This means that if you have a Facebook account, it is extremely likely the phone number used for the account was leaked.
-> 
-> I have yet to see Facebook acknowledging this absolute negligence of your data. [https://t.co/ysGCPZm5U3](https://t.co/ysGCPZm5U3) [pic.twitter.com/nM0Fu4GDY8](https://t.co/nM0Fu4GDY8)
-> — Alon Gal (Under the Breach) (@UnderTheBreach) [April 3, 2021](https://twitter.com/UnderTheBreach/status/1378314424239460352?ref_src=twsrc%5Etfw)
+舒默还希望推动促进美国半导体生产的立法。国会助手说，这两项提议的总额可能达到2,000亿美元。
 
+参考链接：
 
-*阿隆·加尔 @UnderTheBreach*
-*脸书的所有5.33亿条记录都被泄漏了。 这意味着，如果您拥有一个脸书帐户，则该帐户使用的电话号码极有可能被泄露。 我还没有看到脸书承认对您的数据的绝对疏忽。*
-*2021年4月3日 6:52*上午
-以色列网络犯罪情报公司哈德逊·岩（Hudson Rock）的阿隆·加尔（Alon Gal）分享了黑客攻击的消息。他在推特上写道：“这意味着，如果你有一个脸书账户，那么这个账户使用的电话号码极有可能被泄露。”。“我还没有看到脸书承认对你数据的绝对疏忽。”
-
-据[路透社报道](https://www.reuters.com/article/us-facebook-cyber-leak/leaker-says-they-are-offering-private-details-of-500-million-facebook-users-idUSKBN2BQ0J8)，脸书在一份声明中称，该数据“非常陈旧”，与2019年8月修复的一个问题有关。
-
-**防范**
-
-总部位于香港的技术专家曼凡德范 （Man Van de Van）告诉《香港自由报》，用户应该警惕可疑的电话或短信，以防坏行动者使用用户的数据用于社交诈骗：“例如当你必须提供你的电话号码作为‘你是谁’的‘证据’时，这些数据可以用来冒充你。”
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Picture6.png)案照片：汤姆·格伦迪（Tom Grundy）/《香港自由报》
-他说：“从任何你提供过电话号码服务中删除你的电话号码，并在重要服务上修改或设置双因素认证。” 曼凡德范补充说，短信不应该用于双因素设置，用户应该考虑更改自己的电话号码。
-
-2016年，社交媒体网络卷入丑闻，政治数据公司剑桥分析（Cambridge Analytica）被发现未经用户同意访问了多达8700万脸书用户的数据。此后，脸书加强了对第三方应用程序如何访问用户数据的控制。
-
-原文作者：汤姆·格兰迪 （TOM GRUNDY）
-发布时间：2021年4月4日14:03
-原文链接：[https://hongkongfp.com/2021/04/04/facebook-user-data-and-phone-numbers-leaked-including-3-million-users-in-hong-kong/](https://hongkongfp.com/2021/04/04/facebook-user-data-and-phone-numbers-leaked-including-3-million-users-in-hong-kong/)
+[https://www.reuters.com/article/us-usa-china-technology-idUSKBN2BU3A8](https://www.reuters.com/article/us-usa-china-technology-idUSKBN2BU3A8)
 
 0

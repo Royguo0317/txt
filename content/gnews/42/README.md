@@ -1,44 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 甲骨文败诉谷歌
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1063401/)
+## 脸书用户数据和电话号码泄露包括300万香港用户
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1063708/)
 
-编译：康州盘古农场 喜马拉雅的文雅
+翻译：洛杉矶天使农场 – 烟波浩淼
+校对：洛杉矶天使农场 – 雨山溪桥客
+审核：洛杉矶天使农场 – 黎明的光芒
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/oracle-google-removebg-preview-2.jpg)
+上周六，5.33亿脸书上用户的个人数据和电话号码被发布在一个黑客论坛上。泄露的数据集似乎包括300万个香港用户。
 
-
-2012年4月5日据CNBC，最高法院在与甲骨文的Android软件长期版权纠纷中裁定谷歌胜诉。该案是本期最重要的案件之一，其特点是对软件开发未来的竞争性愿景进行了高调的争论。此案在硅谷和其他地方引起了关注。
-
-该案涉及谷歌用于构建Android系统的约1.2万行代码，这些代码抄袭了甲骨文2010年收购的Sun Microsystems公司开发的Java应用编程接口。这被看作是关于哪些类型的计算机代码受美国版权法保护的标志性纠纷。
-
-甲骨文曾一度声称被拖欠高达90亿美元，而谷歌则声称其对代码的使用属于合理使用原则的范畴，因此不需要承担版权责任。
-
-甲骨文公司就其代码的使用问题起诉谷歌，并两次在美国联邦巡回上诉法院的专门法庭上胜诉，该法院认为，相关代码是可以享有版权的，谷歌对其的使用不受合理使用的保护。
-
-最高法院推翻了上诉法院的判决，不过并未明确解决涉案代码是否可受版权保护的问题。
-
-最高法院的裁决是6比2支持谷歌。前总统川普任命大法官艾米-科尼-巴雷特(Amy Coney Barrett)在去年10月份争论此案时尚未得到参议院的确认，她没有参与此案。
-
-在此案中撰写多数意见的布雷耶（Stephen Breyer）法官指出，谷歌“只采取了让用户将其积累的才能用于新的变革性程序的需要。”“就谷歌使用Sun Java API的部分内容来创建一个可以被程序员随时使用的新平台而言，它的使用符合那种创造性的’进步’”。
-
-布雷耶与首席大法官约翰-罗伯茨（John Roberts）和大法官索尼娅-索托马约尔（Sonia Sotomayor）、埃琳娜-卡根（Elena Kagan）、尼尔-戈苏赫（ Neil Gorsuch）和布雷特-卡瓦诺（Brett Kavanaugh）站在一起。大法官克拉伦斯-托马斯（ Clarence Thomas ）和塞缪尔-阿利托（Samuel Alito ）表示反对。
-
-托马斯法官称，“多数人意图将声明代码是否可受版权保护的问题留待日后再讨论”，“这样做的唯一明显原因是，多数人无法将其根本上有缺陷的合理使用分析与声明代码可受版权保护的结论对号入座。”他指责多数人跳过了可版权性问题。
-
-谷歌律师称，“长期以来，重复使用软件界面的做法已经确定，这对现代软件开发至关重要。”
-
-微软认为，联邦上诉法院的裁决 “威胁到了现代软件开发的模式”。
-
-甲骨文在一份声明中表示，“谷歌平台只是变大了，市场力量变大了。进入壁垒更高，竞争能力更低。”“他们偷走了Java，并花了十年时间进行诉讼，因为只有垄断者才能做到这一点。这种行为正是全球和美国的监管当局审查谷歌商业行为的原因。”
-
-谷歌负责全球事务的高级副总裁肯特-沃克(Kent Walker)于判决发布后在推特上发文，称这一判决是“创新、互操作性与计算的一大胜利”。笔者浅议，这是科技大鳄垄断者、人类野心统治者的胜利，曾经为支持川普总统竞选的筹款人甲骨文公司尚且败诉，全世界无数平民百姓将更加笼罩在被大科技公司进行数据控制的黑暗之下。可喜的是追求自由、法制、民主的爆料革命在灭共时代中应运而生的G｜TV， G｜NEWS等G媒体、G生态，让我们找到了光明的方向。我们期待更多G系列产品如G搜索等的发展壮大，而未来的G生态圈应在新中国联邦之下坚持爆料革命“唯真不破”的初心，在法制和自由人权的监督下，自由竞争、健康发展。
-
-查看原文 [https://www.cnbc.com/2021/04/05/supreme-court-rules-in-googles-favor-in-copyright-dispute-with-oracle-over-android-software.html](https://www.cnbc.com/2021/04/05/supreme-court-rules-in-googles-favor-in-copyright-dispute-with-oracle-over-android-software.html)
+来自106个国家的用户受到影响，他们的脸书 ID、全名、简历、地点、生日和电话号码都被曝光。
 
 
 
-文章观点部分属于作者本人。
+> All 533,000,000 Facebook records were just leaked for free.
+> 
+> This means that if you have a Facebook account, it is extremely likely the phone number used for the account was leaked.
+> 
+> I have yet to see Facebook acknowledging this absolute negligence of your data. [https://t.co/ysGCPZm5U3](https://t.co/ysGCPZm5U3) [pic.twitter.com/nM0Fu4GDY8](https://t.co/nM0Fu4GDY8)
+> — Alon Gal (Under the Breach) (@UnderTheBreach) [April 3, 2021](https://twitter.com/UnderTheBreach/status/1378314424239460352?ref_src=twsrc%5Etfw)
+
+
+*阿隆·加尔 @UnderTheBreach*
+*脸书的所有5.33亿条记录都被泄漏了。 这意味着，如果您拥有一个脸书帐户，则该帐户使用的电话号码极有可能被泄露。 我还没有看到脸书承认对您的数据的绝对疏忽。*
+*2021年4月3日 6:52*上午
+以色列网络犯罪情报公司哈德逊·岩（Hudson Rock）的阿隆·加尔（Alon Gal）分享了黑客攻击的消息。他在推特上写道：“这意味着，如果你有一个脸书账户，那么这个账户使用的电话号码极有可能被泄露。”。“我还没有看到脸书承认对你数据的绝对疏忽。”
+
+据[路透社报道](https://www.reuters.com/article/us-facebook-cyber-leak/leaker-says-they-are-offering-private-details-of-500-million-facebook-users-idUSKBN2BQ0J8)，脸书在一份声明中称，该数据“非常陈旧”，与2019年8月修复的一个问题有关。
+
+**防范**
+
+总部位于香港的技术专家曼凡德范 （Man Van de Van）告诉《香港自由报》，用户应该警惕可疑的电话或短信，以防坏行动者使用用户的数据用于社交诈骗：“例如当你必须提供你的电话号码作为‘你是谁’的‘证据’时，这些数据可以用来冒充你。”
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Picture6.png)案照片：汤姆·格伦迪（Tom Grundy）/《香港自由报》
+他说：“从任何你提供过电话号码服务中删除你的电话号码，并在重要服务上修改或设置双因素认证。” 曼凡德范补充说，短信不应该用于双因素设置，用户应该考虑更改自己的电话号码。
+
+2016年，社交媒体网络卷入丑闻，政治数据公司剑桥分析（Cambridge Analytica）被发现未经用户同意访问了多达8700万脸书用户的数据。此后，脸书加强了对第三方应用程序如何访问用户数据的控制。
+
+原文作者：汤姆·格兰迪 （TOM GRUNDY）
+发布时间：2021年4月4日14:03
+原文链接：[https://hongkongfp.com/2021/04/04/facebook-user-data-and-phone-numbers-leaked-including-3-million-users-in-hong-kong/](https://hongkongfp.com/2021/04/04/facebook-user-data-and-phone-numbers-leaked-including-3-million-users-in-hong-kong/)
 
 0

@@ -1,69 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】联合以毒灭共
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1063117/)
+## 在默克尔执政年之后 德国需要在许多领域进行重组
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1063225/)
 
-作者：纽约香草山福音部 Melisa
+```
+新闻来源：世界报网络版
+发布时间：2021年4月7日
+记者：克劳斯·博尔特（Klaus Boldt）
+```
 
+![]()![](https://gnews.org/wp-content/uploads/2021/02/pexels-photo-532864-e1617837519549.jpeg)
+沃尔夫冈·赖茨勒（Wolfgang Reitzle）是德国最著名的经理人之一。病毒大流行期间的危机管理使他震惊。他担心整个经济部门的衰退。最初的绿色意识形态已经描绘出了惨淡的景象。
 
+沃尔夫冈·赖茨勒（Wolfgang Reitzle）认为，科罗纳（Corona）危机使许多德国人丧失了对这个共和国的幻想。他们不认为是一个进步的，有组织的，数字化和管理完善的国家。现代德国只是一个假象吗？
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+沃尔夫冈·赖茨勒（Wolfgang Reitzle）：「在德国，外表与现实之间存在着种种差异——尽管国防预算为470亿欧元，步枪不射击，坦克不驾驶，飞机不飞行，我们都已经不为此愤怒了。 这在国际上也被人熟知了。在我们的首都机场建设中频繁变更令全世界震惊。」
 
+#### 简评：
 
+**这位德国的经济学家和经理人， 写出了这篇文章， 我节选了第一部分。 他认为德国的外表繁华富裕， 在实际上是有巨大的差异。 德国在默克尔执政的这16年的期间里，最开始成绩突出，失业率是有史以来的最低水平。 靠出口而生的德国经济，也屡屡创出出口额的新高。 但是，今天的德国也确实存在这个经济学家所说的一些奇特现象。 他所说的德国首都机场建设经历了很多坎坷， 一直不能按期交付使用， 而且还是一拖再拖， 各种故障也层出不穷，这也是事实。 默克尔这16年确实忽略了很多高科技的发展， 比如互联网建设， 德国网络是相对于很多发达国家落后的， 网速非常慢。 希望今年大选选出的新一代执政党和执政领袖能够改变德国这些落后现象。 **
 
-全世界联合以毒灭共
+**新闻来源链接：**
 
-中共新冠病毒肆虐世界各个角落
+🔗[„Nach 16 Jahren Merkel ist Deutschland in vielen Bereichen ein Sanierungsfall“](https://www.welt.de/wirtschaft/plus229697007/Top-Manager-Wolfgang-Reitzle-Deutschland-ist-ein-Sanierungsfall.html)
 
-给人类生命带来了危胁和恐吓
+* * *
 
-给人们的正常生活带来了危机和灾祸
+***翻译整理/简评：** Shuizhuyu **审核/校对：**Ting Guo*
 
-起来，全世界各个政府
+（免责声明：本文仅代表译者个人观点，跟GNEWS平台无关。）
 
-起来，全世界有信仰的教徒
-
-起来，全世界有良知的人们
-
-必须追究中共病毒灭绝人类的危害罪责
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-67.png)
-
-行动 行动 再行动
-
-消灭中共，消灭中共，消灭中共
-
-全世界人们在呐喊
-
-我们不要打灭绝人类生命的有害疫苗
-
-我们不要世界各政府制造的健康护照
-
-消灭中共是我们的必须
-
-光明 自由 民主是我们的归处
-
-人类重回信仰的家园
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-+1
+0

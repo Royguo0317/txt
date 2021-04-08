@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥指美科技企业充当了“有用的白痴”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1063957/)
+## 中共对印度网络战有先发优势
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1064090/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/A-7.jpg)aisainc500.com
-《华盛顿自由灯塔 》(The Washington Free Beacon)报道，前国务卿蓬佩奥（Mike Pompeo）和前国家安全顾问罗伯特·奥布莱恩（Robert O’Brien）在周二举行的 “中共国问题研讨会 “上指出，美国科技行业为了北京的利益，把美国的创新技术转让给中共专制政权，充当了“有用的白痴”。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/I-2.jpg)thequint.com
+印度媒体报道，印度国防参谋长比平·拉瓦特(Bipin Rawat)周三表示，中共有能力通过对印度发动网络攻击来破坏系统，印度正在准备应对攻击的机制，包括寻求西方国家的支援。
 
-奥布莱恩指责硅谷领导人虚伪，因为他们在美国是宣扬正义的“醒目”派，却忽视了中共对人权和政治自由的打压，并将关键技术外包给中共。
+谈到目前的限制，拉瓦特指出，中共拥有先发优势，因为印度启动网络战能力的速度较慢，这导致了差距。拉瓦特说，“最大的区别在于网络领域。我们知道中共有能力对我们发动网络攻击，它可以破坏大量系统。”“我们可能无法完全赶上中共国。因此，我们正努力与西方国家发展某种关系，看看我们能从他们那里得到怎样更好的支持，至少在和平时期是这样，这将帮助我们克服这种不足。”
 
-例如，谷歌等公司向中共出口人工智能和面部识别技术，这些工具被用于监督中共在维吾尔族穆斯林实施的种族灭绝罪行。
+根据印度政府官方数据，与2019年相比，去年的网络攻击数量增加了近300%。
 
-奥布莱恩说，“在硅谷，我们看到……整个行业对这里正在发生的事情非常清醒”，然而却无视新疆，西藏，香港和台湾人民受到的威胁。因此，人们对硅谷和整个科技行业的政治方向表示担忧。
+拉瓦特称，“我们正在努力做的是创建一个能够确保网络防御的系统。我们已经能够在军队内部创建一个网络机构，每个军种也有自己的网络机构，这样即使我们受到网络攻击，攻击的中断时间也不会太长。”他补充说，有了这样一种机制，就有可能克服网络攻击，并通过防火墙的替代手段或预防性手段继续进行防卫。
 
-蓬佩奥说，与中共冲突的一个主要因素是意识形态斗争。他说，除了让美国科技行业做好与中共竞争的准备，美国人还必须“不耻下问”地解决中共犯下的恶行。
-
-蓬佩奥指出:“我们将知道谁将最终胜出，哪些理念将主宰未来的10年、20年、40年。”“无论是在大学校园里，还是在家庭教师协会会议上，还是在联合国，我们都需要对谈论这个问题不耻下问。”
+在其他安全挑战方面，拉瓦特说，印度面临着“多种多样的安全威胁和挑战，涉及各种冲突，从代理战争到混合战争，再到非接触战争，以及核威胁下的常规战争和共谋战争。”因此印度迫切需要制定与国家利益及与国家安全直接相关的远景计划、甚至全球愿景。
 
 参考链接：
 
-[https://freebeacon.com/national-security/peter-thiel-blasts-silicon-valleys-useful-idiots-for-selling-out-to-china/](https://freebeacon.com/national-security/peter-thiel-blasts-silicon-valleys-useful-idiots-for-selling-out-to-china/)
+[https://www.indiatoday.in/india/story/china-cyber-attacks-india-cds-general-bipin-rawat-1788382-2021-04-07](https://www.indiatoday.in/india/story/china-cyber-attacks-india-cds-general-bipin-rawat-1788382-2021-04-07)
 
 0
