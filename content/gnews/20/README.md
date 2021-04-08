@@ -1,56 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世卫对疫苗有效性存疑
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1066154/)
+## 世界没有像样的政府&nbsp; 强推疫苗背后都是腐败
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1065973/)
 
-作者：骑着毛驴来挺郭  Chloe
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-13-9.jpg) 图片来源：纽斯顿
-世界卫生组织（世卫）今天 （4月6日）重申拒绝疫苗护照，因为尚不确定接种疫苗能否防止新冠传播 （1）
- 世卫对疫苗的态度一直没变。 2021年1月19日， 其紧急委员会强调，尚不清楚疫苗对减少新冠传播有多大的影响 （2）。
- 迄今为止，世卫只推荐紧急情况下使用辉瑞，莫德纳， 阿斯利康和强生疫苗（3），但最新数据表明阿斯利康疫苗与脑血栓存在潜在关联（4）。
+**简述：郭先生在2021年4月4日的盖特视频中感叹世界上没有几个好的政府，它们拼命给人民打疫苗，可疫苗背后藏着无数的腐败。他也评论说美国的万亿纾困法案是羊毛出在羊身上，最后还是要美国人埋单。**
 
-中共疫苗的有效性如何呢？
+**世界没有像样的政府  强推疫苗背后都是腐败**
 
-中共国军事医学科学院微生物与流行病研究所于2021年4月6日在“新英格兰医学杂志”上发表的研究表明，科兴和国药两种疫苗接种不到两个月，有五分之一的接种者体内检测不到中和抗体 （图1）； 接种这两种疫苗后抗体的高峰期（尤其是科兴疫苗）低于康复5个月之后的非重症患者体内血清中的中和抗体滴度 （图2，原始数据在参考文献5），显示疫苗有效性比不过康复者的血清。 与之相比，在接受10 μg和30 μg剂量的辉瑞疫苗的志愿者体内，新冠病毒中和抗体滴度分别达到康复患者血清水平的1.8和2.8倍 （6）。
+**Few Governments Are Decent; Behind the Vaccines Are All Corruptions**
 
-难怪世卫没有推荐情急情况下使用科兴和国药疫苗。
+你看看这世界上哪有几个像样的政府啊，拼了命了让大家打疫苗，这个疫苗的背后就是腐败。买疫苗，买谁家疫苗，谁给打疫苗，收你多少钱？政府批多少钱，反正这些钱最后都是老百姓身上，没有一个政府生产一块钱财富，所有的财富都是人民创造的，所有的所谓的免费的，最后都是从你身上拿出来。
 
+Look at how few decent governments there are in this world? They are desperate to get everyone vaccinated. Behind the vaccines are all corruptions. Whose vaccines to purchase? Who get vaccinated? How much to charge them? How much should the government pay? Anyway, all this money in the end will be paid by the people because no government produces a dollar of wealth, all the wealth is created by the people. All the so-called free stuff will ultimately be paid out of your pocket.
 
+就像头两天，一万多亿的美国所谓的每个人发1400块钱补助，马上加税，加税的人，这些人老板加税了，你以为老板能给你啥？老板会在你身上，老板自己家里也不产钱，地里也不长美元，也不长人民币，最后还得老百姓的劳动剥削出来的，最后不还是这些老百姓的钱吗？这基本的常识吗？
 
-图一
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片1-14.png)
+Just like the American Rescue Plan of over a trillion dollars, which was passed a couple of days ago, giving $1,400 subsidy per person, will immediately entail increased tax. Those bosses will pay more tax. What do you think the bosses will do to you? The bosses will put that on you because your boss does not produce any money in his own home, and the field can’t grow dollars or RMB out of it either. In the end, money will come from exploiting the working people. Isn’t it the people’s money in the end? Is this basic common sense?
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片2-12.png)
+你以为哪个政府伟大地说，我给你补贴1万亿2万亿，最后羊毛一定长在羊身上，羊毛一定不会出在猪身上，也更不会出在中南坑那些老杂毛上身上，就这么简单，是吧？不论是哪国都是一样。所以说政府、政客，没有一个是好东西，所以这一辈子当啥也不能当政客，掺乎啥也不能掺乎政治，没好东西。
 
+You think your government is so great to give people subsidies of 1 to 2 trillions. Wool can only be from sheep (Chinese idiom, meaning “whatever you’re given, you pay for”), wool won’t be from the pigs, and it certainly won’t come from those old bastards in the Zhongnanhai Pit. Simple as that, right? All countries are the same. Therefore, neither governments nor politicians are good, so don’t be a politician in your life time and don’t get involved in politics because there’s nothing good out of it.
 
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/6069f00bdbc8001854a571df](https://gtv.org/getter/6069f00bdbc8001854a571df) (4:01-5:18)
 
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/1050010/](https://gnews.org/zh-hans/1050010/)
 
+* * *
 
-
-参考文献：
-
-1
-
-
-
-> JUST IN – World Health Organisation (WHO) reiterates its rejection of compulsory vaccination certificates. It is uncertain as to whether vaccinations prevent the transmission of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw), cites WHO spokesperson Harris.
-> — Disclose.tv 🚨 (@disclosetv) [April 6, 2021](https://twitter.com/disclosetv/status/1379396339725914113?ref_src=twsrc%5Etfw)
-
-
-
-2 [WHO Opposes COVID-19 ‘Vaccine Passports’ Idea](https://www.schengenvisainfo.com/news/who-opposes-covid-19-vaccine-passports-idea/)
-
-3 [COVID-19 vaccines technical documents](https://www.who.int/groups/strategic-advisory-group-of-experts-on-immunization/covid-19-materials)
-
-4 [EMA高级代表称AZ疫苗同脑血栓之间存在关联](https://www.dw.com/zh/ema高级代表称az疫苗同脑血栓之间存在关联/a-57111771)
-
-5 [Susceptibility of Circulating SARS-CoV-2 Variants to Neutralization](https://www.nejm.org/doi/full/10.1056/NEJMc2103022)
-
-6 [COVID-19药物研发动态：中和抗体水平超过康复患者，辉瑞/BioNTech新冠疫苗1/2期结果积极](http://pharmdata.ncmi.cn/Details.asp?ar_id=957)
-
-
-
-发布：闪电训练
+翻译：【rainbow】字幕：【Rock小哥】二校：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0

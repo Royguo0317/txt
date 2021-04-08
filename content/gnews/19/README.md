@@ -1,27 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共步步紧逼，美军为可能与中共发生全球地面冲突做准备
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1066286/)
+## 慧眼看世界20210408（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1066378/)
 
-编撰: WENJUN
-![]()![](https://gnews.org/wp-content/uploads/2021/04/dc1.png) 图片来源：2020年8月11日-9月18日在亚利桑那州尤马试验场的Project Convergence 20项目期间，来自Project Origin车队的一辆机器人战车在准备演练。 (美国陆军/Carlos Cuebas Fantauzzi)
-围绕中美之间可能发生的战争，经典的假设集中在台湾海峡或南海的地区性海战，但美国[陆军](https://www.epochtimes.com/gb/tag/%E9%99%86%E5%86%9B.html)少将理查•科夫曼 （Richard Coffman）最近表示，美国必须而且已经在为与人民解放军发生世界性的[地面冲突](https://www.epochtimes.com/gb/tag/%E5%9C%B0%E9%9D%A2%E5%86%B2%E7%AA%81.html)做准备。他领导的下一代战车（NGCV）的研制就是为这种冲突准备的一项技术和装备。
- 中共中央军委副主席许其亮将军在3月初两会期间呼吁增加军费，部分原因是他判断中华人民共和国与美国之间的军事冲突将不可避免。这是中共军队最高层首次公开发表这样的言论。
- 几天之后的3月10日和3月15日，科夫曼少将分别在美国战略与国际研究中心(CSIS)和战略与预算评估中心(CSBA)的网上发言中提到许其亮的这一言论，他并评论说：“任何想与美国开战的人都是愚蠢的，但是……我们就是要做好准备，不管这一可能的冲突会在哪里，什么时候
-
-**可能的中美战争不会是地区性战争**
- 科夫曼认为，一旦中美之间发生军事冲突，北京不会将冲突局限于南中国海或台湾海峡。“任何一种情况下，不管是从（南中国海或台湾）那里开始还是从其他地方开始，它都会以比野火还要快的速度席卷全球。”科夫曼警告说，冲突可能很快就会在一夜之间扩大到北极或非洲，“这是一个全球性的威胁，我们会严阵以待。”他还说，“任何认为中国会在冲突中自我限制的想法都是短视的。”
-
-**中共对美国和世界步步紧逼，越疯狂越早被灭**
- 科夫曼将军说，世界上有 “许多恶意的行动者”，中（共）国是其中之一，但与其他国家不同的是，中国对美国的威胁最大，中共“正在利用其整个政府，一天24小时，一周7天，一年365天，综合外交、情报、军事和经济领域，”与美国竞争并削弱美国。
- 科夫曼认为，面对中共的[军事竞争](https://www.epochtimes.com/gb/tag/%E5%86%9B%E4%BA%8B%E7%AB%9E%E4%BA%89.html)，美国只有两个选择，或者威慑以避免冲突或主动出击。“美国选择的是威慑，（因为）我们不想打仗。”科夫曼解释说，一旦北京认为美国有让步或没有做好战争的准备，可能会助长其进一步的挑衅和发动战争的可能性。因此，美国不仅不能示弱，反而，必须时刻做好与中国进行全球战争的准备，以绝对的实力去遏制对方发动战争的冲动。
- 中共多年来已经在政治经济科技文化等领域对西方不断进行渗透，渗透之深，腐蚀之成功让中共野心和胆子越来越大。中共在19年底制造释放超限生物武器给全世界逐步地惊醒和打痛了世界，这也让中共套上了覆亡的枷锁。面对未来全世界围剿的压力之下，中共铤而走险和美国等西方国家发生军事冲突的可能性增大，但美军和西方已在做绝对实力的准备，一旦开战，中共将毫无悬念地加速灭亡！
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-1-1.jpg)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-2-1.jpg)
 
-发布：闪电训练
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-3-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-4-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-9.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-2-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-3-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-4-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-5-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-6-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-7-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-8-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-1-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-5-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-6-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-7-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-8-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-9-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-10-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-11-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-12-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-13-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-14-1.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0

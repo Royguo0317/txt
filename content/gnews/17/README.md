@@ -1,73 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】快乐的童年
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1066307/)
+## 美商务部长回避抖音出售问题
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1066493/)
 
-作者：纽约香草山佛教部 文来
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-4.jpg)money.cnn.com
+《独立报》报道，商务部长吉娜·雷蒙多(Gina Raimondo)在白宫被问及总统是否会要求出售中共的抖音公司，她回避了这一问题。
 
+今年早些时候，有消息称拜登正在审查其前任川普总统希望看到中共抖音出售给美国公司的决定。今年2月，《华尔街日报》报道称，拜登政府已在审查将这家社交媒体平台的美国业务出售给甲骨文(Oracle)和沃尔玛(Walmart)的交易。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+周三，商务部长吉娜·雷蒙多(Gina Raimondo)在白宫被问及她是否觉得应该出售抖音（TikTok），以及她对拜登在中共关税问题建议的“宽泛看法”。 雷蒙多回避说，“我不想谈论任何一家公司的细节”，“在我看来，从长远来看，要与中共竞争，我们在进攻上做什么比在防守上做什么更重要”。
 
+她称，“关于关税，关税是有一席之地的，你知道……（川普时代)对钢铁和铝征收关税，实际上帮助保住了美国钢铁和铝行业的就业机会。” 雷蒙多补充说，“我们必须创造公平的竞争环境。如果有公平的竞争环境，没有人能战胜美国工人。”
 
+参考链接：
 
-我是二年级的小环
-
-上完课放学我就想出去玩
-
-这摸摸那看看童年乐无边
-
-滑梯玩了一遍又一遍
-
-小花小草都是我的好伙伴
-
-爸爸看着我天真无邪的脸只想亲个没完。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-92.png)图源网络
-
-我是二年级的小环
-
-上完课放学我就想回家玩
-
-语文数学放到一边
-
-钢琴也不用弹
-
-只看动画片
-
-妈妈走过来说，来，吃一块饼干。
-
-
-
-我是二年级的小环
-
-谁拿走了我快乐的童年？
-
-我要我的童年
-
-灭了CCP
-
-拿回本属于我的童年！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+[https://www.independent.co.uk/news/world/americas/us-politics/tiktok-china-biden-gina-raimondo-b1828086.html](https://www.independent.co.uk/news/world/americas/us-politics/tiktok-china-biden-gina-raimondo-b1828086.html)
 
 0

@@ -1,63 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210408（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1066378/)
+## 佩洛西瞎话边境危机由川普总统造成
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1066573/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+俄罗斯莫斯科喀秋莎农场   仰望七星
+
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/PL.jpg)nationalreview.com
+愈演愈烈的边境危机造成的后果正在显现，民主党开始推卸责任，曾经力挺拜登，号称边境形势安好、不存在边境危机的佩洛西，在掩盖、封锁消息的伎俩没有得逞，事实真相被揭穿的情况下，变换了一种方式，继续袒护拜登的同时，归罪于川普总统。
+
+本不想过多参与两党事务的纷争，面对巫婆的无中生有，捏造歪曲，只能感叹佩洛西的作派，就是一副中共的嘴脸。还好，对这个巫婆愤恨不已的还大有人在。
+
+《门道专家》发文予以揭露，佩洛西说，在川普的领导下，我们的边境处境很糟糕，但乔·拜登挽救了局面，让我们走上了“边境的好路”。
+
+全文如下：
+
+这个女人疯了。
+
+美国众议院议长佩洛西（Nancy Pelosi）周三表示，在川普总统任内，边境完全是一场灾难，但拜登（Joe Biden）通过开放边境政策挽救了这一切。
+
+佩洛西说：“事实是，在乔·拜登的领导下，我们在边境走上了一条好路，这是关于我们如何进行重组，因为在川普政府时期，我们的处境非常糟糕。”
+
+且看如下事实：
+
+目前，有17,000多名无人陪伴的未成年人在边境收容所被美国收留；未成年移民被以729％的容量塞进收容所里，许多人有虱子，水痘和中共病毒；1月和3月，边境巡逻人员在联邦调查局的恐怖主义监视名单上逮捕了至少两个也门人；墨西哥的贩毒和走私者对妇女和儿童进行了性侵犯，（人们）通过墨西哥进行了危险的穿越，以此说明了拜登开放边界的警情；走私者被记录在视频中，将学步儿童扔到新墨西哥州的边界墙上，使他们在荒漠中丧生……
+
+这就是佩洛西（Pelosi）所说：“边境的一条好路”。（原文完）
+
+无语！极左的民主党人士行事风格、作派与中共如出一辙，掩盖真相，封锁消息，歪曲事实，撒谎无度，鼓噪煽动……这样下去的话，美国真地要走向毁灭，若是没有文贵先生引领的新中国联邦及时提醒、告诫了美国，民主党左派（有意无意）真要扮演中共的附属角色，从而让美国走向灾难！
+
+原文链接：
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-1-1.jpg)
+> [Pelosi Says We Were in a Bad Situation at the Border Under Trump, But Joe Biden Saved the Day and Put Us on a “Good Path at the Border” (VIDEO)](https://www.thegatewaypundit.com/2021/04/pelosi-says-bad-situation-border-trump-joe-biden-saved-day-put-us-good-path-border-video/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-2-1.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-3-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-4-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-9.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-2-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-3-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-4-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-5-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-6-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-7-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-8-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-1-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-5-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-6-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-7-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-8-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-9-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-10-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-11-6.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-12-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-13-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-14-1.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
 
 0
