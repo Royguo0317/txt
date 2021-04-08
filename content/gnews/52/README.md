@@ -1,45 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 港人离港的深远影响
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1064985/)
+## 危宏平和黄艳玲上了榜单是否意味着武毒所零号病人已板上钉钉
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1065080/)
 
-撰稿：云彩
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-89.png)
-图片来源网络
+![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-7.png)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-2020年7月中共在香港强推港版国安法，引起更多的香港人选择离开香港。中共进行洗脑宣传，说“留港不留人”，大陆派人下来填补空缺，香港照样保持繁荣。但如果财富精英和知识精英带走财富和知识，那么香港剩下的还有什么呢？
+Lawrence Sellin博士[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午2:57 · 2021年4月8日](https://twitter.com/LawrenceSellin/status/1380052151964213248)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布了推文——
 
-香港中文大学香港亚太研究所2020年10月份发布年度宜居城市评分调查显示，43.9%受访者表示打算移民，比2019年增加1.6%。但把2019年9月的结果42.3%与2018年12月的结果比较，高了8.3%。这正好反映了反《逃犯条例》修订案（反送中）示威前后的差异。
 
-有香港金融专业人士反映身边有的同事在反送中条例运动后，考虑合同期满，不再留在香港；有的同事则考虑申请内部调动到公司在欧美国家的职位；也有同事考虑BNO移民到英国。文贵先生在视频中曾提到CCP把香港变成臭港，给新中国联邦送来大礼。因为大量的香港金融人士加入了G系列，他们首选新中国联邦，第二才是英国。
 
-中共也料到会有很多专业人士离港。CCP认为这些人士离开后，不用怕，从大陆派人下来填补空缺，照样行。真的是这样吗？笔者认为中共体制内的真正精英不会选择香港，因为香港不再是国际金融中心，他们会选择北京或上海，离权力中心更近，对自己以后的仕途更有帮助。
+> Wuhan Institute of Virology's Hongping Wei, mentor of alleged [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) "patient zero" Yanling Huang, has links to China's military including the Third Military Medical University source of [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw)'s suspected bat [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) backbone ZC45/ZXC21.[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/sGXkDfrMER](https://t.co/sGXkDfrMER)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 8, 2021](https://twitter.com/LawrenceSellin/status/1380052151964213248?ref_src=twsrc%5Etfw)
 
-CCP派下来的人都是中共体系里的人。他们的做事方式ˎ态度和国际视野跟香港专业人员的水准不在同一档次。我们知道CCP的官僚作风。结果是，表面看起来还是外资企业或外资银行，内部就是中资企业。香港金融更多是为世界的游资管理资产。当对方看到业务水准下降，还会有投资信心吗？
 
-尽管香港政府否认“移民潮”出现以及随之而来的资金外流，加拿大金融监管机构数据显示，2020年电子转账方式由香港银行体系转至加拿大的资金超过347亿美元，较前一年增加约一成，创2012年有记录以来新高，相当于香港银行体系1.9%存款外流。这仅是加拿大，如何加上台湾ˎ英国ˎ澳大利亚ˎ美国和其他欧洲国家，数额将相当可观。
 
-由于中共在香港把“一国两制”变成“一国一制”，不再有法治，在法律上无法保护私人财产。那么国际资本家还会把钱放在香港吗？难道他们不怕哪天中共以莫须有的罪名把钱抢走吗？所以富豪从香港撤资是大趋势。
+Wuhan Institute of Virology’s Hongping Wei, mentor of alleged [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) “patient zero” Yanling Huang, has links to China’s military including the Third Military Medical University source of [#COVID](https://twitter.com/hashtag/COVID?src=hashtag_click)‘s suspected bat [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) backbone ZC45/ZXC21. [#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hashtag_click) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)
 
-香港没有了财富精英和知识精英，留下的是没落的世界金融中心。但是新中国联邦ˎ爆料革命誓必灭掉中共，为香港带来希望。
+中文大意是：武汉病毒学研究所的危宏平，所谓的＃COVID19“零病患”黄艳玲的导师，与中共军方有联系，其中包括第三军医大学[#COVID](https://twitter.com/hashtag/COVID?src=hashtag_click)的可疑蝙蝠[＃冠状病毒](https://twitter.com/hashtag/coronavirus?src=hashtag_click)主干ZC45 / ZXC21的来源。[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hashtag_click)[＃不受限制的生物武器](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)
 
-（本文纯属个人观点）
+这一次危宏平和黄艳玲上榜了——
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-14-15.jpg)
+Lawrence Sellin博士的这则推文引出一段悬案，而这段悬案与危宏平有关、与黄艳玲有关、与石正丽有关、与武汉病毒所有关、与广受猜疑的中共冠状病毒零号病人黄艳玲有关，而这一系列的人物和机构都是围绕着黄艳玲是否为中共病毒的零号病人表演的重要角色——
 
-审核、编辑：cindy
+据[武汉病毒所已逝“零号病人”？当事人：我还健在](http://finance.sina.com.cn/china/gncj/2020-02-16/doc-iimxyqvz3279280.shtml)（2020年02月16日 12:25 [新京报](https://www.thepaper.cn/newsDetail_forward_6016936)）
 
-参考资料：
+［2月15日，一则关于“中国科学院武汉病毒研究所（以下简称武汉病毒所）一名女研究生黄燕玲是新冠病毒肺炎零号病人”的消息在网络流传。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2-13.jpg)
+网络流传的截图显示，武汉（新冠）病毒肺炎的零号病人是黄燕玲，系武汉病毒所科研人员，2012年考入武汉病毒所的硕士研究生。而根据武汉病毒所发布于2011年11月4日的《2012年度推荐免试硕士研究生拟录取名单公示》显示，黄燕玲系西南交大推荐的学术性硕士。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/3-8.jpg)
+网络截图还称，黄燕玲的指导博导是危宏平，并质疑称“武汉病毒所关于黄燕玲的资料都没了，此人到底在哪里？”
 
-离开香港的人们需要救生艇和安全港
+就此事件，今日（2月16日），《每日经济新闻》记者注意到，危宏平朋友圈发文回应。其称“我近2天接到许多电话或邮件，咨询曾在本组学习过的黄燕玲同学近况，我是她导师，黄燕玲同学2015年7月硕士顺利毕业后，一直在外地城市工作。经与她本人电话确认，目前黄燕玲同学身体健康，一切安好！”
 
-[https://www.bbc.com/zhongwen/simp/world-55874253](https://www.bbc.com/zhongwen/simp/world-55874253)
+危宏平还称“网上与此不一致的传言皆为谣言。因抗疫工作繁忙，怒（注：原文如此）不再一一解释！”
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4-7.jpg)
+危宏萍朋友圈截图
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4-2.png)
+中国科学院武汉病毒研究所研究员石正丽朋友圈截图
 
-**香港国安法移民潮**
+武汉病毒所官网资料显示，危宏平是武汉病毒所研究员、新发传染病研究中心副主任、诊断微生物学学科组组长、中国微生物学会分析微生物学专业委员会委员、湖北省微生物学会理事，主要从事病原微生物检测与新型抗菌分子的研究。
 
-[https://www.bbc.com/zhongwen/simp/world-55874253](https://www.bbc.com/zhongwen/simp/world-55874253)
+【名词解释】“零号病人”，通常指的是第一个患某种传染病，并开始散播病毒的病人。在流行病调查中，通常被叫做首发病例。在传染病的发生发展和传播过程中以及传染病的认知、研究过程中首发病例一直是占有重要的地位，通过对首发病例的细致调查，能为疾病来源、病因分析、预测、控制措施采用、预警机制的建立提供大量宝贵信息。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/6-2.jpg)
+相关报道　网传武汉病毒所一研究生系“零号病人”，回应：无一人感染
 
-中港富豪撤资提速
+2月15日，一则关于“武汉病毒研究所一名女研究生黄某某是新冠病毒肺炎零号病人”的消息在网络流传。　2月15日晚间，新京报记者就此事向中国科学院武汉病毒研究所研究员石正丽、流感病毒实验室研究员陈全姣求证。两人均表示，对病毒所是否有一位名叫 黄某某的女研究生并不掌握，但可以保证武汉病毒所目前无一人感染新冠肺炎。“怎么可能？这个一看就是假新闻。”石正丽说，“我可以保证，包括研究生在内，我们所没有一个人被病毒感染过，我们所是零感染。”对于上述信息，陈全姣也表示，“我们武汉病毒研究所没有一例感染，我们病毒所绝对不是‘零号’。”］
 
-[https://hk.news.yahoo.com/%E6%92%A4%E8%B3%87%E6%8F%90%E9%80%9F-%E5%A4%96%E5%AA%92-%E4%B8%AD%E6%B8%AF%E5%AF%8C%E8%B1%AA%E6%9C%89%E9%83%A8%E7%BD%B2-%E4%BB%96%E5%80%91%E7%9B%AE%E7%9A%84%E5%9C%B0%E6%98%AF-101144518.html](https://hk.news.yahoo.com/%E6%92%A4%E8%B3%87%E6%8F%90%E9%80%9F-%E5%A4%96%E5%AA%92-%E4%B8%AD%E6%B8%AF%E5%AF%8C%E8%B1%AA%E6%9C%89%E9%83%A8%E7%BD%B2-%E4%BB%96%E5%80%91%E7%9B%AE%E7%9A%84%E5%9C%B0%E6%98%AF-101144518.html)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2.jpg)
+对照Lawrence Sellin博士[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午2:57 · 2021年4月8日](https://twitter.com/LawrenceSellin/status/1380052151964213248)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文，可以从新京报的这一则报道里看出更多的信息，首先来说危宏平和石正丽已经上榜了，武汉病毒研究所也已经上榜了，但是我们一定要再一次温习一下功课，那就是科学女巫石正丽不仅研究和制造了中共病毒，而且还对武汉病毒研究所的中共病毒零号病人黄艳玲进行了掩盖，同样的，黄艳玲的导师也对中共病毒零号病人黄艳玲进行了掩盖！
+
+另外我们还要对Lawrence Sellin博士的名单进行补录，那就是新京报这则报道里附上的陈全姣——
+![]()![](https://gnews.org/wp-content/uploads/2021/04/7-2.png)
+当然了要在Lawrence Sellin博士的名单进行补录的还有很多，包括新京报在内的所有为中共病毒零号病人黄艳玲掩盖的媒体和背后的操控者稍安毋躁，排排坐，吃果果，我们要一起盯住他们，别让他们跑了！
+
+（文章内容仅代表作者个人观点）
+
 0
