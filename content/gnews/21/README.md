@@ -1,59 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 危宏平和黄艳玲上了榜单是否意味着武毒所零号病人已板上钉钉
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1065080/)
+## 【世事解评】美国民主党和左媒在病毒来源问题上彻底转向
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1065244/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-7.png)
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+作者：纽约香草山媒体部 文扬四海
 
-Lawrence Sellin博士[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午2:57 · 2021年4月8日](https://twitter.com/LawrenceSellin/status/1380052151964213248)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布了推文——
-
-
-
-> Wuhan Institute of Virology's Hongping Wei, mentor of alleged [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) "patient zero" Yanling Huang, has links to China's military including the Third Military Medical University source of [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw)'s suspected bat [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) backbone ZC45/ZXC21.[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/sGXkDfrMER](https://t.co/sGXkDfrMER)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 8, 2021](https://twitter.com/LawrenceSellin/status/1380052151964213248?ref_src=twsrc%5Etfw)
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
 
 
 
-Wuhan Institute of Virology’s Hongping Wei, mentor of alleged [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) “patient zero” Yanling Huang, has links to China’s military including the Third Military Medical University source of [#COVID](https://twitter.com/hashtag/COVID?src=hashtag_click)‘s suspected bat [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) backbone ZC45/ZXC21. [#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hashtag_click) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)
+2021年4月6日国务卿布林肯发表讲话：一定要彻查病毒来源，避免任何“生化威胁”再次发生，否则我们将对不起我们的子孙后代。这是历史的关键时刻，我们要敢想、敢干，美国将直面挑战。
 
-中文大意是：武汉病毒学研究所的危宏平，所谓的＃COVID19“零病患”黄艳玲的导师，与中共军方有联系，其中包括第三军医大学[#COVID](https://twitter.com/hashtag/COVID?src=hashtag_click)的可疑蝙蝠[＃冠状病毒](https://twitter.com/hashtag/coronavirus?src=hashtag_click)主干ZC45 / ZXC21的来源。[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hashtag_click)[＃不受限制的生物武器](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片1-13.png)
 
-这一次危宏平和黄艳玲上榜了——
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-14-15.jpg)
-Lawrence Sellin博士的这则推文引出一段悬案，而这段悬案与危宏平有关、与黄艳玲有关、与石正丽有关、与武汉病毒所有关、与广受猜疑的中共冠状病毒零号病人黄艳玲有关，而这一系列的人物和机构都是围绕着黄艳玲是否为中共病毒的零号病人表演的重要角色——
+布林肯作为美国国务卿说话谨慎，用词精准。他所说的生物威胁等同于生物恐怖主义，这说明美国已经不承认病毒来源自然，不承认病毒是自然扩散的。这标志着美国正式进入两党联合灭共阶段。也再次验证路德社在1月20日所说的民主党上台后将开启两党联合灭共的新时代。
 
-据[武汉病毒所已逝“零号病人”？当事人：我还健在](http://finance.sina.com.cn/china/gncj/2020-02-16/doc-iimxyqvz3279280.shtml)（2020年02月16日 12:25 [新京报](https://www.thepaper.cn/newsDetail_forward_6016936)）
+与此同时，民主党控制的左煤也纷纷跟进，报道中共冠状病毒来源于实验室，民主党正在唤醒他们的支持者。自去年中共病毒爆发后，爆料革命和路德社不遗余力揭露中共处心积虑制造和故意泄露投放病毒，以病毒为武器对西方世界发动超限战攻击。虽然美国右翼媒体有跟进报道，但民主党阵营的左媒，也就是所谓的主流媒体逢川必反，对病毒实验室来源论视而不见或故意打压，再加上被中共蓝金黄的世卫组织和美国个别专家不作为，搅浑水，导致支持民主党的美国民众和很多中间派没有正确认识到中共病毒就是超限生物武器。
 
-［2月15日，一则关于“中国科学院武汉病毒研究所（以下简称武汉病毒所）一名女研究生黄燕玲是新冠病毒肺炎零号病人”的消息在网络流传。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/2-13.jpg)
-网络流传的截图显示，武汉（新冠）病毒肺炎的零号病人是黄燕玲，系武汉病毒所科研人员，2012年考入武汉病毒所的硕士研究生。而根据武汉病毒所发布于2011年11月4日的《2012年度推荐免试硕士研究生拟录取名单公示》显示，黄燕玲系西南交大推荐的学术性硕士。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/3-8.jpg)
-网络截图还称，黄燕玲的指导博导是危宏平，并质疑称“武汉病毒所关于黄燕玲的资料都没了，此人到底在哪里？”
+1月20日的拜登上台，实质就是美国的定海神针力量让拜登代表的民主党对已经掌握的有关中共病毒的证据和情报进行核实，也让和中共勾兑的民主党彻底看清楚中共的邪恶，促使两党在病毒来源问题上达成一致，联合灭共，以毒灭共。民主党控制的各大左媒也随之转向，陆续推进报道中共病毒来源于实验室，以唤醒美国民意。
 
-就此事件，今日（2月16日），《每日经济新闻》记者注意到，危宏平朋友圈发文回应。其称“我近2天接到许多电话或邮件，咨询曾在本组学习过的黄燕玲同学近况，我是她导师，黄燕玲同学2015年7月硕士顺利毕业后，一直在外地城市工作。经与她本人电话确认，目前黄燕玲同学身体健康，一切安好！”
+下面我们来看一下民主党及左媒对中共病毒实验室来源的具体报道和推进。
 
-危宏平还称“网上与此不一致的传言皆为谣言。因抗疫工作繁忙，怒（注：原文如此）不再一一解释！”
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4-7.jpg)
-危宏萍朋友圈截图
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4-2.png)
-中国科学院武汉病毒研究所研究员石正丽朋友圈截图
+2月23日左派大本营《华尔街日报》首先开炮刊登蓬佩奥和余茂春关于新冠病毒来源调查的重磅文章——“新冠病毒来自中共实验室”。文章称中共病毒实验室使世界处于危险之中。北京痴迷于病毒研究，世界为此付出高昂代价。武汉实验室已有上千种蝙蝠病毒样本，中共军方也曾向国际社会承认在改造动物病原体，使之适合人际传播。中共必须将生物武器系统公开，中共必须对此负责。
 
-武汉病毒所官网资料显示，危宏平是武汉病毒所研究员、新发传染病研究中心副主任、诊断微生物学学科组组长、中国微生物学会分析微生物学专业委员会委员、湖北省微生物学会理事，主要从事病原微生物检测与新型抗菌分子的研究。
+经过一个多月的酝酿发酵，左媒全面出击，密集开火。3月26日大左媒CNN采访前CDC中心主任罗伯特ˑ雷德菲尔德，曝光中共病毒来自实验室。CNN特别强调，雷德菲尔德是可以获取多方情报的前政府官员、病毒学专家，这一观点绝非他的“个人”观点。CNN还专门指出，武汉病毒所长期进行蝙蝠冠状病毒研究和实验。彭博社等其他左媒也做了跟进报道。
 
-【名词解释】“零号病人”，通常指的是第一个患某种传染病，并开始散播病毒的病人。在流行病调查中，通常被叫做首发病例。在传染病的发生发展和传播过程中以及传染病的认知、研究过程中首发病例一直是占有重要的地位，通过对首发病例的细致调查，能为疾病来源、病因分析、预测、控制措施采用、预警机制的建立提供大量宝贵信息。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/6-2.jpg)
-相关报道　网传武汉病毒所一研究生系“零号病人”，回应：无一人感染
+3月29日CNN采访美国国务卿布林肯。主持人提问布林肯说，您相信中国政府在冠状病毒上误导了世界，造成全世界死亡几百万人，中国政府是否为此应该受到惩罚？并强硬质问布林肯“难道就这么算了吗”。就在同一天，美国和全球前三大电视网络公司左媒之一的CBS《60分钟》节目播出病毒起源专题，认为病毒可能来自武汉实验室。世卫组织顾问梅茨尔披露，世卫的所谓调查报告实际上是按照中共政府的“调查”结果写的。前副国家安全顾问博明披露，中共军方参与武汉p4实验室，并对蝙蝠冠状病毒进行改造，使之更容易传染人。CBS主持人在采访中几乎惊掉了下巴。
 
-2月15日，一则关于“武汉病毒研究所一名女研究生黄某某是新冠病毒肺炎零号病人”的消息在网络流传。　2月15日晚间，新京报记者就此事向中国科学院武汉病毒研究所研究员石正丽、流感病毒实验室研究员陈全姣求证。两人均表示，对病毒所是否有一位名叫 黄某某的女研究生并不掌握，但可以保证武汉病毒所目前无一人感染新冠肺炎。“怎么可能？这个一看就是假新闻。”石正丽说，“我可以保证，包括研究生在内，我们所没有一个人被病毒感染过，我们所是零感染。”对于上述信息，陈全姣也表示，“我们武汉病毒研究所没有一例感染，我们病毒所绝对不是‘零号’。”］
+3月30日， WHO和中共国发布了对新冠病毒源头的报告。报告认为新冠病毒通过实验室泄露的可能性“极小”。白宫立刻质疑该报告，要求进行对病毒起源重新进行独立透明的科学评估和调查。《华尔街日报》和CNN同时质疑这份报告是在意图洗白武汉。
 
-对照Lawrence Sellin博士[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午2:57 · 2021年4月8日](https://twitter.com/LawrenceSellin/status/1380052151964213248)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文，可以从新京报的这一则报道里看出更多的信息，首先来说危宏平和石正丽已经上榜了，武汉病毒研究所也已经上榜了，但是我们一定要再一次温习一下功课，那就是科学女巫石正丽不仅研究和制造了中共病毒，而且还对武汉病毒研究所的中共病毒零号病人黄艳玲进行了掩盖，同样的，黄艳玲的导师也对中共病毒零号病人黄艳玲进行了掩盖！
+4月2日，美国最大的广播电台、左派媒体NPR报道美国前国务卿助理戴维·费思（David Feith）在接受采访时说，包括前总统川普在内的许多人都认为病毒来自中共武汉的实验室。
 
-另外我们还要对Lawrence Sellin博士的名单进行补录，那就是新京报这则报道里附上的陈全姣——
-![]()![](https://gnews.org/wp-content/uploads/2021/04/7-2.png)
-当然了要在Lawrence Sellin博士的名单进行补录的还有很多，包括新京报在内的所有为中共病毒零号病人黄艳玲掩盖的媒体和背后的操控者稍安毋躁，排排坐，吃果果，我们要一起盯住他们，别让他们跑了！
+4月3日，HBO的王牌脱口秀主持人Bill Maher在节目中和嘉宾一起讨论中共病毒的实验室来源。两位嘉宾都是生物学博士，男嘉宾谈到，病毒来源实验室的可能超过90%，这从来不是阴谋论。阴谋论的说法只是为了转移注意力。女嘉宾谈到，因为美国国内两党斗争，川普总统的任何说法，不论对错，都会遭到左派猛攻，他不是推进病毒真相的正确人选。川普退下来，病毒真相才能更快地推进。
 
-（文章内容仅代表作者个人观点）
+4月4日，美国政要圈必看的国会山报The Hill采访生物进化学家Weinstein，他认为从四个方面可以证实病毒来自实验室：第一，病毒基因序列修改痕迹是武毒所做过的；第二，病毒族谱上从未出现过福林酶切位点，中共病毒却出现了；第三，从流行病学角度看，病毒没有进化为高度适应人体高传染力的进化时间期间；第四，将病毒4991改名为RaTG13不符合科学规定。节目最后清楚解释了如何利用“动物传代”制造病毒。这是左媒第一次提“动物传代”概念。
+
+在近十天的连续民意铺垫后，有了4月6日布林肯的重磅讲话，“一定要彻查病毒来源”。路德社对此点评道，美国已彻底看清中共邪恶本质，后续将会有一系列行动，敢想敢干，无所畏惧。拜登政府将会成立中共病毒总统委员会来彻查病毒真相。美国加入WHO后重新夺回了WHO的掌控权，未来也将用WHO来对付中共。同时美国与盟国已经做好全面准备来消灭中共国，美日韩三国会面，法日联合军事行动，德法进行防长与外长对话，加上英美自古以来就是盟国，全球灭共联盟已经形成，以毒灭共的大总攻号角已经吹响。
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0
