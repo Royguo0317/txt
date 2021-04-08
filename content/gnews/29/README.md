@@ -1,35 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙国经济速评】中共提高直接税比重的真实目的
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1066185/)
+## 【香草诗词汇】快乐的童年
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1066307/)
 
-#### 作者：西安泡馍
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1e67-ikyziqw8374259-e1617903175461.jpg)封面来源：新浪新闻
-**新闻概述：**
+作者：纽约香草山佛教部 文来
 
-【4月7日央视财经报道】在国务院新闻办举行的贯彻落实“十四五”规划纲要、加快建立现代财税体制发布会上，财政部财税司司长王建凡表示，健全地方税、直接税体系是完善我国现代税收制度的重要内容。我国直接税比重从2011年的28.4%提高到2020年34.9%。
 
-下一步，要健全以所得税、财产税为主体的直接税体系，逐步提高其在税收收入的比重，积极稳妥推进房地产税立法和改革。
 
-#### 简评：
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-**直接税是指税负不能转嫁，而由纳税人直接负担的税收。如所得税、土地使用税、房产税等。**
 
-**今后，提高直接税比重，意味着将增加个人所得税、房产税和遗产税。因为直接税征收涉及个人疾病、生育、教育、家庭成员等隐私，这将对公民隐私保护构成重大侵害。如：现在使用的个人所得税app，就必须输入收入、房产、贷款、父母情况才能扣税。政府可以以征收直接税毫无障碍、肆无忌惮地收集公民个人信息。**
 
-**另一方面，直接税体系与地方人口和土地、居民住宅等固定资产相联系。在当前税源枯竭的情况下，基层政权运转困难的情况下，中共为获得稳定的地方财政收入，要对前期已经征收过重税的房子重新征收房产税和遗产税。**
+我是二年级的小环
 
-**老百姓前期买房，房价里面已经包含几十项税费，占房价的40%以上。如：土地征用及拆迁补偿费 、前期工程费、基础设施费 、配套设施费、建筑安装工程费、开发间接费等。在房产交易时还要交5%左右的税费。加起来房价的一半都交给了政府，现在还要重新征收重税，有天理吗！**
+上完课放学我就想出去玩
 
-**在中共的土地上一切都是党的。**
+这摸摸那看看童年乐无边
 
-**参考媒体链接：**🔗[财政部：适当提高直接税比重](https://3g.163.com/money/article/G70965AL00258105.html)
+滑梯玩了一遍又一遍
 
-* * *
+小花小草都是我的好伙伴
 
-***审核/校对：**Ting Guo*
+爸爸看着我天真无邪的脸只想亲个没完。
 
-（免责声明：本文仅代表作者个人观点，跟GNEWS平台无关。）
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-92.png)图源网络
 
-+1
+我是二年级的小环
+
+上完课放学我就想回家玩
+
+语文数学放到一边
+
+钢琴也不用弹
+
+只看动画片
+
+妈妈走过来说，来，吃一块饼干。
+
+
+
+我是二年级的小环
+
+谁拿走了我快乐的童年？
+
+我要我的童年
+
+灭了CCP
+
+拿回本属于我的童年！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
+
+0
