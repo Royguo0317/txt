@@ -1,69 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】联合以毒灭共
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1063117/)
+## 拜登尚未与习近平讨论中共病毒溯源问题
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1063253/)
 
-作者：纽约香草山福音部 Melisa
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/t-2.jpg)wsimag.com
+拜登总统周二表示，他还没有与中共国家主席习近平讨论中共病毒的溯源问题。
 
+在拜登发表上述言论之前，白宫称中共在与世界卫生组织合作撰写的报告的调查结果“不透明”。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+白宫上周表示，世界卫生组织的报告缺乏关键信息，对病毒来源提供了“部分、不完整的描述”。白宫呼吁中共和世卫组织允许国际专家“不受限制地获取”数据，并允许他们在疫情爆发地向现场人员提问。
 
+该报告驳斥了中共病毒自武汉实验室逃逸的理论，而称动物传播理论“很有可能”，即由动物传染给人类。随后迫于世界各界揭发中共病毒是中共研制的生物武器的真实论据越来越多，世界卫生组织总干事谭德塞也表示，研究小组对中共病毒是否自实验室泄露的评估还“不够广泛”。
 
+美国国务卿布林肯发表最新讲话，明确指出美国一定要彻查病毒来源，避免任何“生物威胁”再次发生。自拜登政府上台以后，美国一直对中共病毒避而不谈，这里被推测是与中共有勾兑。如今，这是历史的关键时刻，正如布林肯所说，我们要敢想、敢干，美国将直面挑战。等于在中共蓝金黄和以美国国家利益来勾兑的威胁面前，在中共以毒灭美，以钱灭美，以种族主义灭美的威胁下，美国终于做出了直面中共的选择。
 
-全世界联合以毒灭共
+参考链接：
 
-中共新冠病毒肆虐世界各个角落
-
-给人类生命带来了危胁和恐吓
-
-给人们的正常生活带来了危机和灾祸
-
-起来，全世界各个政府
-
-起来，全世界有信仰的教徒
-
-起来，全世界有良知的人们
-
-必须追究中共病毒灭绝人类的危害罪责
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-67.png)
-
-行动 行动 再行动
-
-消灭中共，消灭中共，消灭中共
-
-全世界人们在呐喊
-
-我们不要打灭绝人类生命的有害疫苗
-
-我们不要世界各政府制造的健康护照
-
-消灭中共是我们的必须
-
-光明 自由 民主是我们的归处
-
-人类重回信仰的家园
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+[https://www.foxnews.com/politics/biden-chinese-president-xi-jinping-coronavirus-origins](https://www.foxnews.com/politics/biden-chinese-president-xi-jinping-coronavirus-origins)
 
 +1
