@@ -1,29 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共PLA网站发文威胁日本 称要用四个大招废掉日本国运
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1066288/)
+## 慧眼看世界20210408（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1066378/)
 
-#### **整理/简评：** Michael.Tonny
-![]()![](https://gnews.org/wp-content/uploads/2021/04/My-Post-e1617905258625.jpg)封面来源：西陆网
-2021年4月8日，中共PLA军方网站发文，《[四个大招废掉日本国运！中国已经动手了](http://www.xilu.com/20210408/1000010001170021.html)》。面对日本加入美国为首的14国对CCP病毒起源调查、新疆种族灭绝，日本在九州西南部署F35战机，以及四五月份日本首相即将访问菲律宾、印度，中共对日本发出赤裸裸威胁，宣称要用四个大招废掉日本国运。
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-一是联合周边俄罗斯、朝鲜…来压制日本。
 
-二是中（共）国是日本第一大贸易国、是日本的第一大出口对象。中共宣称此选项作为保留手段，必要时看谁的损失更大。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-第三更是把中共流氓表现得淋漓尽致了。中共称，尽管“朝鲜万门火炮让首尔变火海”不可能，但当朝鲜大量火炮的对准首尔后，韩国人真真实实的感受到危险，特别是朝鲜真真实实的拥有核武后，韩国人就老实了。赤裸裸的威胁日本。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-1-1.jpg)
 
-第四中共更是宣称要用在南海问题上对付国际社会的流氓手段来对付日本。“南海仲裁，中（共）国根本不认，并实际控制了黄岩岛”，“… …这两天中（共）国渔船在牛轭礁避风，… …菲律宾拿出南海仲裁，中（共）国还是不认可，咱们是正常避风”。国际仲裁在中共的眼中连废纸都不如。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-2-1.jpg)
 
-“早晚有一天，当中（共）国也能够对日本形成代际压制的时候，日本的声音也就无足轻重了。”什么流氓逻辑？
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-3-1.jpg)
 
-**新闻来源链接：**🔗[四个大招废掉日本国运！中国已经动手了](http://www.xilu.com/20210408/1000010001170021.html)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-4-1.jpg)
 
-* * *
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-9.jpg)
 
-***审核/校对：****Ting Guo*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-2-1.jpg)
 
-（免责声明：本文的简评只代表作者观点，跟GNEWS平台无关）
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-3-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-4-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-5-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-6-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-7-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-8-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-1-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-5-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-6-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-7-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-8-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-9-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-10-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-11-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-12-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-13-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-14-1.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0

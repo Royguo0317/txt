@@ -1,27 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共步步紧逼，美军为可能与中共发生全球地面冲突做准备
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1066286/)
+## 世界没有像样的政府&nbsp; 强推疫苗背后都是腐败
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1065973/)
 
-编撰: WENJUN
-![]()![](https://gnews.org/wp-content/uploads/2021/04/dc1.png) 图片来源：2020年8月11日-9月18日在亚利桑那州尤马试验场的Project Convergence 20项目期间，来自Project Origin车队的一辆机器人战车在准备演练。 (美国陆军/Carlos Cuebas Fantauzzi)
-围绕中美之间可能发生的战争，经典的假设集中在台湾海峡或南海的地区性海战，但美国[陆军](https://www.epochtimes.com/gb/tag/%E9%99%86%E5%86%9B.html)少将理查•科夫曼 （Richard Coffman）最近表示，美国必须而且已经在为与人民解放军发生世界性的[地面冲突](https://www.epochtimes.com/gb/tag/%E5%9C%B0%E9%9D%A2%E5%86%B2%E7%AA%81.html)做准备。他领导的下一代战车（NGCV）的研制就是为这种冲突准备的一项技术和装备。
- 中共中央军委副主席许其亮将军在3月初两会期间呼吁增加军费，部分原因是他判断中华人民共和国与美国之间的军事冲突将不可避免。这是中共军队最高层首次公开发表这样的言论。
- 几天之后的3月10日和3月15日，科夫曼少将分别在美国战略与国际研究中心(CSIS)和战略与预算评估中心(CSBA)的网上发言中提到许其亮的这一言论，他并评论说：“任何想与美国开战的人都是愚蠢的，但是……我们就是要做好准备，不管这一可能的冲突会在哪里，什么时候
+**简述：郭先生在2021年4月4日的盖特视频中感叹世界上没有几个好的政府，它们拼命给人民打疫苗，可疫苗背后藏着无数的腐败。他也评论说美国的万亿纾困法案是羊毛出在羊身上，最后还是要美国人埋单。**
 
-**可能的中美战争不会是地区性战争**
- 科夫曼认为，一旦中美之间发生军事冲突，北京不会将冲突局限于南中国海或台湾海峡。“任何一种情况下，不管是从（南中国海或台湾）那里开始还是从其他地方开始，它都会以比野火还要快的速度席卷全球。”科夫曼警告说，冲突可能很快就会在一夜之间扩大到北极或非洲，“这是一个全球性的威胁，我们会严阵以待。”他还说，“任何认为中国会在冲突中自我限制的想法都是短视的。”
+**世界没有像样的政府  强推疫苗背后都是腐败**
 
-**中共对美国和世界步步紧逼，越疯狂越早被灭**
- 科夫曼将军说，世界上有 “许多恶意的行动者”，中（共）国是其中之一，但与其他国家不同的是，中国对美国的威胁最大，中共“正在利用其整个政府，一天24小时，一周7天，一年365天，综合外交、情报、军事和经济领域，”与美国竞争并削弱美国。
- 科夫曼认为，面对中共的[军事竞争](https://www.epochtimes.com/gb/tag/%E5%86%9B%E4%BA%8B%E7%AB%9E%E4%BA%89.html)，美国只有两个选择，或者威慑以避免冲突或主动出击。“美国选择的是威慑，（因为）我们不想打仗。”科夫曼解释说，一旦北京认为美国有让步或没有做好战争的准备，可能会助长其进一步的挑衅和发动战争的可能性。因此，美国不仅不能示弱，反而，必须时刻做好与中国进行全球战争的准备，以绝对的实力去遏制对方发动战争的冲动。
- 中共多年来已经在政治经济科技文化等领域对西方不断进行渗透，渗透之深，腐蚀之成功让中共野心和胆子越来越大。中共在19年底制造释放超限生物武器给全世界逐步地惊醒和打痛了世界，这也让中共套上了覆亡的枷锁。面对未来全世界围剿的压力之下，中共铤而走险和美国等西方国家发生军事冲突的可能性增大，但美军和西方已在做绝对实力的准备，一旦开战，中共将毫无悬念地加速灭亡！
+**Few Governments Are Decent; Behind the Vaccines Are All Corruptions**
 
+你看看这世界上哪有几个像样的政府啊，拼了命了让大家打疫苗，这个疫苗的背后就是腐败。买疫苗，买谁家疫苗，谁给打疫苗，收你多少钱？政府批多少钱，反正这些钱最后都是老百姓身上，没有一个政府生产一块钱财富，所有的财富都是人民创造的，所有的所谓的免费的，最后都是从你身上拿出来。
 
+Look at how few decent governments there are in this world? They are desperate to get everyone vaccinated. Behind the vaccines are all corruptions. Whose vaccines to purchase? Who get vaccinated? How much to charge them? How much should the government pay? Anyway, all this money in the end will be paid by the people because no government produces a dollar of wealth, all the wealth is created by the people. All the so-called free stuff will ultimately be paid out of your pocket.
 
+就像头两天，一万多亿的美国所谓的每个人发1400块钱补助，马上加税，加税的人，这些人老板加税了，你以为老板能给你啥？老板会在你身上，老板自己家里也不产钱，地里也不长美元，也不长人民币，最后还得老百姓的劳动剥削出来的，最后不还是这些老百姓的钱吗？这基本的常识吗？
 
+Just like the American Rescue Plan of over a trillion dollars, which was passed a couple of days ago, giving $1,400 subsidy per person, will immediately entail increased tax. Those bosses will pay more tax. What do you think the bosses will do to you? The bosses will put that on you because your boss does not produce any money in his own home, and the field can’t grow dollars or RMB out of it either. In the end, money will come from exploiting the working people. Isn’t it the people’s money in the end? Is this basic common sense?
 
-发布：闪电训练
+你以为哪个政府伟大地说，我给你补贴1万亿2万亿，最后羊毛一定长在羊身上，羊毛一定不会出在猪身上，也更不会出在中南坑那些老杂毛上身上，就这么简单，是吧？不论是哪国都是一样。所以说政府、政客，没有一个是好东西，所以这一辈子当啥也不能当政客，掺乎啥也不能掺乎政治，没好东西。
+
+You think your government is so great to give people subsidies of 1 to 2 trillions. Wool can only be from sheep (Chinese idiom, meaning “whatever you’re given, you pay for”), wool won’t be from the pigs, and it certainly won’t come from those old bastards in the Zhongnanhai Pit. Simple as that, right? All countries are the same. Therefore, neither governments nor politicians are good, so don’t be a politician in your life time and don’t get involved in politics because there’s nothing good out of it.
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/6069f00bdbc8001854a571df](https://gtv.org/getter/6069f00bdbc8001854a571df) (4:01-5:18)
+
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/1050010/](https://gnews.org/zh-hans/1050010/)
+
+* * *
+
+翻译：【rainbow】字幕：【Rock小哥】二校：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0

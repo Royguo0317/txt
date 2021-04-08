@@ -1,29 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美将七家中共超级计算机中心列入实体清单
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1066015/)
+## 【热点播报】美国最高法院大法官：大科技公司可能会受到监管
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1066189/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：纽约香草山写作组    四季
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/K.jpg)news.lqdfx.com
-路透社华盛顿报道，美国商务部周四表示，将把七家中共超级计算机实体列入美国经济黑名单，理由是它们协助中共国的军事行动。
+据《[零对冲](https://www.zerohedge.com/technology/supreme-court-justice-thomas-suggests-facebook-twitter-could-be-regulated-utilities)》4月5日的报道，美国最高法院法官克拉伦斯·托马斯（Clarence Thomas）建议可以像监管公用事业一样监管脸书（Facebook）和推特（Twitter）。
 
-这七家实体分别是天津飞腾信息技术有限公司、上海高性能集成电路设计中心、深圳市信维微电子有限公司、国家超级计算济南中心、国家超级计算深圳中心、国家超级计算无锡中心和国家超级计算郑州中心。美国商务部表示他们 “参与了中共军方使用的超级计算机的建造、破坏稳定的军事现代化努力和大规模杀伤性武器项目”。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS1868-【热点播报】美国最高法院大法官：大科技公司可能会受到监管.jpg)图片来源：网络
 
-中共驻华盛顿大使馆没有立即回应置评请求。
+被认为是美国高等法院保守派的托马斯在一份长达12页的呈文中提出了这一观点。他写到：“今天的数字平台为史无前例的发声数量提供了渠道，包括政府官员的言论。然而，同样史无前例的是，如此多的言论控制在少数私人团体手中”，“大科技公司对信息流（甚至是书籍）拥有巨大的权力”。
 
-美国商务部长吉娜·雷蒙多 (Gina Raimondo)在一份声明中表示:“超级计算能力对于许多，或许几乎所有现代武器和国家安全系统的发展都至关重要，比如核武器和高超音速武器。”
+托马斯表示，现代技术并不容易被现有的法律法规所解决。但他警告说：最高法院可能“很快将别无选择，必须解决我们的法律原则如何适用于数字平台等高度集中的私有信息基础设施的问题。虽然这两家公司都是上市公司，但马克·扎克伯格控制着脸书，拉里·佩奇和谢尔盖·布林控制着谷歌”。
 
-被列入美国实体清单的公司必须向美国商务部申请许可证，在申请从美国供应商获得产品许可时，商务部将进行严格审查。
+托马斯补充道：“与推特在其服务条款中规定的’在任何时候以任何理由或无理由’删除该账户的权力相比，川普先生对其账户的任何控制都会大打折扣。推特行使了它的权力，它正是这样做的”。今年1月6日国会山事件后推特对川普发出了禁令。
 
-新规定立即生效，但不适用于已经在途中的美国供应商的产品。
+大科技公司利用能够使社交媒体公司免责的《通信规范法案》第230条款封杀保守派的言论。与此同时，中共的官员和官媒的信息却可以通行无阻。也许，社交媒体公司面临监管的日子即将到来，让我们拭目以待。
 
-在川普总统执政期间，美国已将数十家“与中共军方有联系”的中共企业，包括“帮助中共军方在南海造岛，以及一些涉嫌侵犯人权的公司”列入经济黑名单。其中包括中共最大的智能手机制造商华为技术有限公司、顶级芯片制造商中芯国际、中共石油巨头中海油和最大的无人机制造商深圳大疆科技有限公司等。
+审核/校对/发稿：雪梨
 
-参考链接：
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
-[https://www.reuters.com/article/us-usa-china-commerce/u-s-adds-chinese-supercomputing-entities-to-economic-blacklist-idUSKBN2BV1XU](https://www.reuters.com/article/us-usa-china-commerce/u-s-adds-chinese-supercomputing-entities-to-economic-blacklist-idUSKBN2BV1XU)
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
 
-0
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
++1

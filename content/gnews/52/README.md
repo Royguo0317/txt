@@ -1,43 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 出于隐私考虑，白宫反对疫苗护照
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1065482/)
+## 罗斯福号航母战斗群重返南中国海英德也宣布将派遣军舰前往（2021年04月07日 玫瑰看新闻）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1065356/)
 
-翻译：康州盘古农场 – 柯镇恶
-校对：康州盘古农场 – 文灵
-编辑：康州盘古农场 – 蓝精灵
-
-Newsmax的Eric Mack 2021年4月6日星期二报道：
-
-白宫新闻秘书詹·普萨基（Jen Psaki）2021年4月6日在华盛顿DC 白宫日常新闻发布会上发言
-![]()![](https://gnews.org/wp-content/uploads/2021/04/84FC839E-7782-432E-B0E2-718E76AE3982.jpeg)
-正当世界各地考虑新兴疫苗护照时，美国政府指出，出于对美国公民隐私保护的担忧，疫苗护照将只是个体的选择，政府不会强制执行。
-
-白宫新闻秘书詹·普萨基（Jen Psaki）在星期二的日常新闻简报会上对记者说：“我知道有很多问题，但是让我明确一点：政府现在，将来也不会支持要求美国人取得疫苗证的制度。”
-
-“将不会有联邦疫苗接种数据库，也不会有联邦法规要求每个人都必须获得疫苗接种证书。”
-
-普萨基指出，白宫正在讨论，这仅仅是个体的问题。
-
-普萨基补充说：“仅仅是私营和非营利部门正在考虑使用这些工具，联邦政府的关注点非常简单：美国人的隐私和权利应受到保护，要避免这些系统被不公平地用于侵害人民。”
-
-普萨基承认私营部门出于业务考虑，要求疫苗接种。从而使人们“可以安全地回到足球场或剧院，这种聚集着大批人员的活动中。”
-
-“这就是这个计划的起源，我们希望从这里可以得出解决方案。” 她继续说，“我们将提供一些类似于‘常见问答’的指南。”
-
-FAQ是常见问题的英文首字母缩写。
-
-她说：“我讨厌首字母缩略词，但是它将为美国人提出的重要问题提供答案，尤其是在有关隐私，安全或歧视方面。”这样的指南“很快”会发布。她总结说：“但我还没有确切的发布时间。”
-
-原文链接：https://www.newsmax.com/politics/passports-privacy-white-house-jen-psaki/2021/04/06/id/1016569/
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-
-
-+1
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-14-17.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/2-14.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/3-20.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/4-8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/5-1-3.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/6-3.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/7-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/8-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/9-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/10-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/11-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/12-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/14.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/15.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/16.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/17.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/18.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/19.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/20.jpg)
+0

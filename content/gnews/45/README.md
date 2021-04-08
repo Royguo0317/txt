@@ -1,8 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 罗斯福号航母战斗群重返南中国海英德也宣布将派遣军舰前往（2021年04月07日 玫瑰看新闻）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1065356/)
+## 俄怀疑美在俄边境附近开发生物武器
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1065802/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-14-17.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/2-14.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/3-20.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/4-8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/5-1-3.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/6-3.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/7-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/8-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/9-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/10-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/11-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/12-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/14.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/15.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/16.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/17.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/18.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/19.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/20.jpg)
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/B-22.jpg)pjmedia.com
+04月07日，俄安全理事会秘书尼古拉·帕特鲁舍夫（Nikolai Patrushev）曾表示，开发生物武器的实验室可能在与俄罗斯的边境地区开展活动。他是在接受《生意人报》采访时说的。
+
+“我建议你注意这样一个事实，即世界上有越来越多的生物实验室在美国的控制下飞速发展。而一个奇怪的巧合是，大多在俄罗斯和中共国边境附近。”帕特鲁舍夫说。
+
+据他说，实验室所在国当局不知道这些设施的情况。
+
+“我们被告知，在我们的边境附近有和平卫生站在运作，但不知何故，它们更让我们想起马里兰州的德特里克堡，美国人在那里从事军事生物学工作几十年了。”帕特鲁舍夫说。他补充说，在周边地区发现了该地区不常见的疾病爆发。
+
+当被问及他是否相信美国人在这些实验室里研制生物武器时，帕特鲁舍夫回答说：“有充分的理由认可情况是这样。”安全理事会秘书补充说，俄罗斯方面打算与后苏联国家缔结生物安全合作协定。
+
+帕特鲁舍夫没有具体说明他指的是哪些对象。
+
+去年10月，俄罗斯安全委员会已经宣布了未来人造病毒的危险。这个假设的原因是中共病毒疫情。
+
+去年1月，美国共和党参议员汤姆·科顿宣布了中共病毒是人工来源。他说，武汉是最早出现中共病毒感染病例的地方，那里有一个“超级实验室”在研究最致命的病原体。中共国驻美大使崔天凯称，任何将中共病毒的出现与生物武器联系起来的理论都是疯狂的。
+
+2018年10月，格鲁吉亚政府提议检查第比利斯附近的理查德·卢格（Richard Lugar）公共卫生研究中心。他们希望让国际专家参与监测工作。原因是格鲁吉亚MGB前负责人说，美国军事医学集团的生物学家在这个中心的基础上对人进行秘密实验。
+
+参考链接：
+
+[https://www.rbc.ru/rbcfreenews/606de7b39a7947cc88bd27ba](https://www.rbc.ru/rbcfreenews/606de7b39a7947cc88bd27ba)
+
 0

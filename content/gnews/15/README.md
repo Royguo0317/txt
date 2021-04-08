@@ -1,24 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 公墓涌现大量人流，引起人们对武汉市实际死亡人数的质疑
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1066190/)
+## 【香草诗词汇】快乐的童年
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1066307/)
 
-编者：林林虎
+作者：纽约香草山佛教部 文来
 
-据《零对冲》文章报道，在中国一年一度的清明节期间，武汉市扫墓的人流量剧增。
 
-一位博主援引湖北一家报纸《楚天都市报》的报道，“32万居民前往墓地祭奠逝去的家人，人群和车辆充斥着武汉街道。”
 
-这一报道得到了一些武汉市居民的认同。一位武汉博主描述到，周日早上6点就看到通往墓地的高速公路上出现了严重的交通堵塞，这种场景让人联想到2月11日，也就是农历新年前夕，大批武汉市民买了菊花带去上坟。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-在去年中共病毒肆虐湖北之际，网络上广为流传的视频和报导显示：医院人满为患、火花设施超负荷运转、全国最大的电信公司手机客户神秘下降等等，这些都表明死亡人数远远高于中共的报导。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-90.png)
-在超过6000万的人口的武汉市，中共官方的疫情数据为90000例中共病毒的感染和4636人死亡。相比之下，拥有4000万人口的美国加州,自疫情开始以来，有370万周感染病例，5.9万人死亡。虽然加州并没有将受感染的居民用电焊锁在居民楼内等管控措施，但中共报告的死亡人数与世界其他地区之间的数字差异让中共官方的数据可信度大大下降。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-91.png)
-[援引原文](https://www.zerohedge.com/covid-19/massive-crowds-reported-wuhan-cemeteries-raising-questions-about-actual-death-toll)
 
-审核校对：鲁邦五世
-上传排版：CharlieNZ查理
+
+我是二年级的小环
+
+上完课放学我就想出去玩
+
+这摸摸那看看童年乐无边
+
+滑梯玩了一遍又一遍
+
+小花小草都是我的好伙伴
+
+爸爸看着我天真无邪的脸只想亲个没完。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-92.png)图源网络
+
+我是二年级的小环
+
+上完课放学我就想回家玩
+
+语文数学放到一边
+
+钢琴也不用弹
+
+只看动画片
+
+妈妈走过来说，来，吃一块饼干。
+
+
+
+我是二年级的小环
+
+谁拿走了我快乐的童年？
+
+我要我的童年
+
+灭了CCP
+
+拿回本属于我的童年！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
 
 0
