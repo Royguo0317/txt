@@ -1,46 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 被匪警逼出来的特大交通事故天天在中共国发生
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1062812/)
+## 【世事解评】中共与巴基斯坦在生物方面的军事合作（一）
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1062840/)
 
-作者：文罡| 校对/审核：宁缺|Page：小雨
-
-[!\[\]()!\[\](https://spark.adobe.com/page/9wLRWgx5TPewP/images/8d8c617c-21c7-461f-b4f2-2f8f5e8cb3c7.jpg?asset_id=8c974089-5cc1-4e89-b33a-55b07856cf80&amp;img_etag=%22beb67b8a05d9d29eecc07dde8db38b90%22&amp;size=2560)](https://spark.adobe.com/page/9wLRWgx5TPewP/images/8d8c617c-21c7-461f-b4f2-2f8f5e8cb3c7.jpg?asset_id=8c974089-5cc1-4e89-b33a-55b07856cf80&amp;img_etag=%22beb67b8a05d9d29eecc07dde8db38b90%22&amp;size=1024)
-
-[新闻链接](https://i.ifeng.com/c/850w9aYzysM)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/9wLRWgx5TPewP/images/331272b9-14cd-477b-bcb4-2b198dbcb047.png?asset_id=7fb69d87-6a91-4d1e-8285-6a57716672a4&amp;img_etag=%22290a405fa50a46483cd5016133689055%22&amp;size=2560)](https://spark.adobe.com/page/9wLRWgx5TPewP/images/331272b9-14cd-477b-bcb4-2b198dbcb047.png?asset_id=7fb69d87-6a91-4d1e-8285-6a57716672a4&amp;img_etag=%22290a405fa50a46483cd5016133689055%22&amp;size=1024)
-
-2021年3月27日晚，在河南安阳市515国道与302省道交叉口处， 一辆依维柯客车与一辆货车相撞，造成6人死亡6人受伤，依维柯客车的车头严重损毁，事故现场有民警在参与救援。
-
-一位伤者的丈夫李先生陈述其妻子是在腐竹厂上班，乘车回来应该在当天晚上12点左右到家，但是次日凌晨1点20也没到家，有村民告诉他，车子在汤阴高速口出了车祸，让他过去。当李先生赶到医院后，李先生的妻子告诉他客车在安阳下了高速后有执法人员在高速路口附近查车， 客车司机当时没有停车接受检查，而是加速通过，一辆警车随即拉响警报在后面追，前面的客车开的速度越来越快，李先生的妻子因为害怕要求司机停车，但司机没有理会。
-
-经查， 安阳市内黄县驾驶人赵某驾驶豫A6A7H0 江铃全顺牌客车，（核载6人，实载12人）与一辆冀D3A139/冀DWR80挂号重型半挂货车尾部相撞。赵某驾车闯红灯是导致事故发生的直接原因。车辆超员、乘客未系安全带加重了事故伤亡后果，而且赵某驾驶的江铃全顺牌客车非法加装座椅。
-
-目前，当地公安机关已将肇事司机赵某控制，正在依法依规调查车辆非法改装、非法营运等问题。汤阴县公安局的一名参与此次事故调查的工作人员称，涉事司机赵某此前在郑州因非法营运被处以3万元罚款，这次事故因严重超员，赵某还以涉嫌危险驾驶罪被移交检方审查起诉， 目前处于取保候审阶段。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/9wLRWgx5TPewP/images/46ab4bbb-df11-4bfb-89f5-e3406adee548.jpg?asset_id=088c9732-395c-4b39-984e-9be6eb1276d9&amp;img_etag=%22ab5f7201ad7f3910db9cf8540a2dc273%22&amp;size=4836)](https://spark.adobe.com/page/9wLRWgx5TPewP/images/46ab4bbb-df11-4bfb-89f5-e3406adee548.jpg?asset_id=088c9732-395c-4b39-984e-9be6eb1276d9&amp;img_etag=%22ab5f7201ad7f3910db9cf8540a2dc273%22&amp;size=1024)
-
-一场特大交通事故似乎就这么随随便便避重就轻地平息了，但是我们必须深入探究为什么肇事司机赵某要改装汽车，把原来只能乘载6个人的车加装座椅改成了12个人的，另外6个人坐在改装的座椅上却没有安全带。发生这样造成6人死亡的重大事故，归根结底就是在共产党统治下，中共国人民生活成本越来越高，高到赚钱糊口赚点辛苦钱都需要违法犯罪、铤而走险。
-
-包括载人载货在内的很多公路上跑车司机很多是没有固定收入来源，之前靠着到处去去打零工，或者做点生意维持生活，一时下了决心贷款买辆车跑运输，身上本身就背负了沉重的债务。但是中共国高速公路的收费是有目共睹的，而且汽油、柴油价格虚高严重。走国道耽误的时间长，但很多货运司机也无奈，唯有选择跑一趟尽量多赚钱才能维持的了费用和挣得剩的不多的利润。
-
-更糟糕的是交通警察的工资和奖金和罚款单挂钩，每个警察每天或者每个月有任务，必须要开多少个罚单和罚款数额才能拿到奖金。部分警察甚至有时候为了要完成任务，寻找借口、编造谎言，坑害原本想买辆车赚钱支撑家庭的普通司机。于是，官方审核的这篇报道中着重介绍了肇事司机赵某如何非法改装座椅，超额拉载，没有安全带造成了严重交通事故，而疯狂的在后面追的交警只是轻描淡写地一带而过，只是说要调查清楚。
-
-只是坐一次车就和亲人阴阳相隔、突然离世，死者家属将会永远生活在悲痛之中。肇事司机赵某当然要负起应该要负的法律责任，但孤立无助的赵某也是中共这个体制的受害者。共产党统治了中国70多年，一直割中国人民的韭菜，中国人民没有民主和自由，创造的剩余价值也让中南坑的和他们的私生子女享受和挥霍了。普通百姓辛辛苦苦地努力工作也只能混个温饱，有些偏远地区还需要救济。
-
-只有灭掉共产党，中国人民才能拥有希望和自由。只有实行民主政治，才能一人一票选出一个替人民着想，为人民办实事的政府。人民才能安居乐业，不用再去为了一点糊口的钱就要铤而走险做些违法犯罪的事情。
-
-*文章仅代表个人观点*
-
-编辑：【英国伦敦喜庄园编辑部】
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+译评：纽约香草山农场  Billwilliam
 
 
-[!\[\]()!\[\](https://spark.adobe.com/page/9wLRWgx5TPewP/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/9wLRWgx5TPewP/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+根据《克拉克森新闻》记者安东尼-克兰报道，中共与巴基斯坦在生物研究方面有秘密军事合作，甚至包括类似炭疽的细菌研究。
+
+![]()![](https://www.msdmanuals.com/-/media/manual/professional/images/bacillus_anthracis_orig_zh.jpg?thn=0&amp;sc_lang=zh)图源网络
+
+武汉病毒所与巴基斯坦的国防科技组织（DESTO）签署秘密协议，研究新发传染病。情报来源称，该计划完全由中共国资助，并被正式命名为“新发传染病合作以及媒介传播疾病的生物控制研究”。
+
+情报界对此表示关切，因为中共在境外测试生物制剂，以期尽量减少“引起国际社会谴责的风险”。一位情报来源称，“在秘密生物武器计划下，DESTO参与了与炭疽有关的各种双重用途研究项目”。而且武汉病毒所提供所有资金、材料、科技支持。
+
+据称，中共与巴基斯坦的秘密项目已经成功进行了土壤样本实验，并分离出苏云金芽孢杆菌（Bacillus Thuringiensis，简称BT菌），这种细菌与炭疽惊人的相似。巴基斯坦通过研究这种细菌可以丰富其攻击性生物武器项目。武汉病毒研究所已向巴基斯坦提供了苏云金芽孢杆菌的试剂。同时，武汉病毒所向巴基斯坦提供基因改造病原体和生物信息学的广泛培训，并帮助巴基斯坦发展自己的病毒数据库。巴基斯坦由此获得鉴定病毒，获取危险微生物和将基因工具应用于传染病的能力。
+
+该秘密项目不受民用大学或巴基斯坦政府卫生部的监督，并被允许未来进行秘密行动。中共与巴基斯坦的合作不限于既定目标——双方都可以增加研究新型疾病。情报部门认为，中共参与这个项目是为了针对印度，而且还可以在外国领土上进行危险实验，避免其自身遭受这种风险。一位专家称，北京（中共）“将巴基斯坦指定为进行危险生物化学研究的目的地”，同时“逃避使用其本国领土从事此类活动”，这些活动“有可能引起国际社会的批评和谴责”。该项目的一部分就是利用巴基斯坦公民测试中（共）国国药集团的新冠疫苗。
+
+此外，中巴生物项目已经开始研究克里米亚-刚果出血热病毒（CCHFV）。这种出血热病毒发病快，死亡率到达25%，与埃博拉病毒一样危险。克里米亚-刚果出血热传染性强，尚没有已知的疫苗或治疗方法，所以和埃博拉病毒、马尔堡病毒等一起被列为P4级最危险的微生物。据称，巴基斯坦用于实验CCHFV的实验室不具备处理生物安全P4级别。因此，情报专家对这个项目的生物安全性表示担忧。
+
+《克拉克森新闻》称，中共正在积极进行基因研究，可能制造出针对某个种族的生物武器。另有情报人士称，武汉病毒所在云南昆明还建立了医学生物学研究所。令人担忧的是，据称隶属中（共）国医学科学院的昆明研究所也在从事P4级传染病研究但没有适当保护措施。
+
+点评：
+
+除了《克拉克森新闻》，笔者还找到两篇关于苏云金芽孢杆菌的论文。第一篇题为《苏云金芽孢杆菌Cry7Ca1毒素的晶体结构，该毒素对特定一种蝗虫有效》，主要阐述苏云金芽孢杆菌分泌毒素蛋白的结构[2]。第二篇论文则分析一种苏云金芽孢杆菌的全基因组序列[3]。两篇论文的部分作者均隶属于武汉病毒所或中（共）国科学院。这个证据证明，武汉病毒所确实在从事苏云金芽孢杆菌的研究。
+
+苏云金芽孢杆菌本身对人无害，但是能感染并杀死某些昆虫，所以农业上被用作生物杀虫剂喷洒在农田里。如果中巴项目对这种细菌进行基因改造，有可能制造出能感染人的基因武器。
+
+参考阅读：
+
+1. “[Exclusive: China’s Wuhan lab operating ‘covert operations’ in Pakistan, handling ‘anthrax-like’ pathogens](https://www.theklaxon.com.au/home/xdx17f6auh0tew0g57ubqrzxkdeux9),” Klan, Anthony, *The Klaxon*, July 23, 2020.
+2. “[Crystal structure of Bacillus thuringiensis Cry7Ca1 toxin active against Locusta migratoria manilensis](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6371223/#__ffn_sectitle),” Jing. X., and et al., *Protein Science*, Mar 2019, 28(3): 609-619
+3. “[Complete Genome Sequence of *Bacillus thuringiensis* subsp. *Jinghongjiensis* Reference Strain YGd22-03](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5624746/#__ffn_sectitle),” Wu, Y., and et al., *Genome Announcement,*Sep 2017, 5(39):e00740-17
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
 
 0
