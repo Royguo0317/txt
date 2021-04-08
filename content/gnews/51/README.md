@@ -1,41 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统批评佐治亚州新选举法过于软弱
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1062601/)
+## 习近平喊话默克尔：要有独立判断能力
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1062763/)
 
 俄罗斯莫斯科喀秋莎农场   仰望七星
 
 编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/G-5.jpg)mjpureplayindex.com
-以拜登为首的左派大张旗鼓地攻击佐治亚州的选举改革法，川普总统则针锋相对，在反击左派、力挺佐治亚州的同时，也批评了佐治亚州选举改革法的不足，昨晚川普总统发表声明，对过长的选举时间提出了批评。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/M-1.jpg)wtvbam.com
+因极端作恶，被世界正在清醒认知的邪共，自感深陷孤立，抓住一切可能抓住的机会，对西方阵营“短板”处打压、诱惑，继续施展妖术，以图缓解、摆脱困境。反川普总统的亲共分子德国总理默克尔再度被选为中共施压对象，受到总加速师“习神”的“告诫”。
 
-声明全文如下：
+欧洲的《政治》（politico）网站发文，“中共国习近平致电默克尔：欧盟应对中共国作出独立判断”。
 
-2021年4月6日
+文章摘要说，这位中共国主席表达了北京对拜登总统领导下的美国与欧盟更紧密关系的不安。
 
-美利坚合众国第45任总统唐纳德·川普的声明
+全文如下：
 
-佐治亚州的选举改革法过于软弱，无法确保真正的选票真实和完整！选举日应该是选举日，而不是选举周，或选举月，投票的时间太长了，在这么长的一段时间里，可能会发生太多的“恶作剧”，你在2020年的总统选举中看到了这一点，鲁比·弗里曼（Ruby Freeman，笔者注：疑似舞弊的、佐治亚州民主党手提箱嫌疑人）怎么样了？
+星期三，中共主席习近平在与德国总理安吉拉·默克尔（Angela Merkel）的电话中说，在中美政策协调不断恶化的情况下，欧盟成员国的对华立场，应该“独立地作出正确的判断”。
 
-州长布莱恩·肯普（Brian Kemp）和佐治亚州的州务卿本应消除无借口、泛滥的大规模邮寄投票，避免危险和不安全的投递箱，并应保持和扩大签名验证，以与历史选民档案进行匹配，等等！希望里诺（RINOs，共和党）一家开心。
+据官媒央视报道，“目前中欧关系面临新的发展机遇，但也面临着不同的挑战。中共国的发展是欧盟的一个机遇，我们希望欧盟能够独立作出正确判断，真正实现战略自主。”
 
-坎普也向激进的左翼暴徒屈服了，他们威胁说，如果他取消周末的投票，他们会称他为种族主义者。看看，他（坎普）保留了这些条款，他们还叫他种族主义者！（声明完）
+习近平强调，“中共国将继续对德国企业开放，并敦促柏林不要对中共国企业施加限制。”习近平说，“连续五年，中共一直是德国最大的贸易伙伴，我们希望德国继续开放和扩大……我们国家和企业之间的合作。”
 
-宪政危机在发酵、博弈中，静待观察其它摇摆州，以及事态的发展。
+中共主席发出这一呼吁之际，正值中共国与欧盟关系冷淡，此前欧盟针对其侵犯维吾尔族少数民族人权的事件，将4名新疆官员列入制裁名单，北京对欧洲议会成员实施了制裁。
 
-声明链接：https://twitter.com/JennaEllisEsq/status/1379588554519670793/photo/1
+中方没有提及制裁或欧中投资协议，这是德国去年担任欧盟理事会主席期间接近尾声时达成的，据报道，习近平只是说：“去年我们进行了多次沟通，在中德和中欧关系中发挥了主导作用……我们有能力做一些有意义的大事。”
 
-声明文字整理：
+习近平承诺在气候变化和多边主义问题上与欧盟合作，同时在与默克尔的通话中反对疫苗民族主义。
 
-April 6, 2021
+没有得到总理办公室即时的电话回应，（但）央视援引她的话说，柏林期待着与北京合作，应对世界的挑战。（原文完）
 
-Statement by Donald J Trump, 45th President of the United States of America
+这条新闻占据了大量左派媒体的版面，默克尔再一次为邪共提供了发声的平台，不管是否作了回应，当下的中共急需这样的喊话渠道。自古以来华夏之地不乏“术招”，远交近攻、合纵连横，信奉堡垒完全可以从内部攻克的信条，蓝金黄开路，制造短板，将人性恶的一面发挥到极致，为魔所用，造成了当今世界的乱局。
 
-Georgia’s election reform law is far too weak and soft to ensure real ballot integrity! Election Day is supposed to be Election Day, not Election Week or Election Month. Far too many days are given to vote. Too much “mischief can happen during this very long period of time. You saw that in the 2020 Presidential Election. How’s Ruby Freeman doing?
+默克尔，当你认识到中共用超限生物武器袭击了世界的时候，你还替魔鬼站台吗？
 
-Governor Brian Kemp and Georgia Secretary of State should have eliminated no-excuse, widespread mass Mail-In Voting, gotten rid of the dangerous and unsecure Drop-boxes, and should have kept and EXPANDED Signature Verification to do matches against the historical voter file, among other things! Hope theRINOsare happy.
+原文链接：
 
-Kemp also caved to the radical left-wing woke mob who threatened to call him racist if he got rid of weekend voting. Well, he kept it, and they still call him racist!
+https://www.politico.eu/article/chinas-xi-calls-on-merkel-eu-to-achieve-real-strategic-autonomy/
 
 0
