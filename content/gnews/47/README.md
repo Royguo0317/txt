@@ -1,69 +1,87 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】联合以毒灭共
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1063117/)
+## “掀锅盖”系列 NZ121040403：清明节祭奠冤魂，珍惜自己的家人
+` 《爆料贵语--掀郭盖》NZ` [轉載自GNews](https://gnews.org/zh-hans/1063193/)
 
-作者：纽约香草山福音部 Melisa
+**郭先生口述内容：**
 
+一到清明节的时候，无论是我的母亲啊
 
+还有我的弟弟啊
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+还有这个当年在清风看守所死去的那些人
 
+还有一个，这新的共产党病毒杀害这些无辜的人，
 
+这些冤魂野鬼啊
 
-全世界联合以毒灭共
+他都让七哥很心痛的事，我就不愿意提
 
-中共新冠病毒肆虐世界各个角落
+每个人都要面临这个考验
 
-给人类生命带来了危胁和恐吓
+而且我们每个人必经都要去向那个归宿，那个地方
 
-给人们的正常生活带来了危机和灾祸
+所以说你从这个角度，再从三万六千天看一个人人生的时候
 
-起来，全世界各个政府
+所以很多事情你会想明白
 
-起来，全世界有信仰的教徒
+现在想一想，就在清明节节的时候谈鬼的时候
 
-起来，全世界有良知的人们
+谈生死的时候，你会发现，
 
-必须追究中共病毒灭绝人类的危害罪责
+真的就我们新中国联邦人的正道主义
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-67.png)
+是世界上最伟大的，只有我们的正道主义才是人类的未来
 
-行动 行动 再行动
+你看看世界上，哪有几个像样的政府啊，
 
-消灭中共，消灭中共，消灭中共
+拼了命的让大家打疫苗，这个疫苗背后就是腐败
 
-全世界人们在呐喊
+没有一个政府生产一块钱财富
 
-我们不要打灭绝人类生命的有害疫苗
+所有的财富都是人民创造的
 
-我们不要世界各政府制造的健康护照
+所有所谓免费的最后都从你身上拿出来
 
-消灭中共是我们的必须
+就像头两天，一万多亿的美国所谓的
 
-光明 自由 民主是我们的归处
+每个人发一千四百块钱的补助，马上加税
 
-人类重回信仰的家园
+老百姓家里也不产钱，地里也不长美元
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+也不长人民币，最后还得老百姓的劳动剥削出来的
 
-编辑/校对/发稿：Irene木木
+最后羊毛一定长在羊身上，所以说兄弟姐妹们
 
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+在清明节的时候，我们要为那些
 
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+被共产党病毒杀死的无辜人们，烧纸祈福
 
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+为不在，不在人世的家人们，好好的为他祈福
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+还有一个我给大家说的事情
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+越是在这个时候越要想到，家人最重要
 
+和家人待在一起，所以希望战友们真能懂得
 
+家人是你唯一的，包括新中国联邦都不是
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+家人才是，爱你的家人，爱你的身边的人
 
+这是核心的核心
 
+听写整理：作而无作
 
-+1
+翻译:风之伤
+
+校对：sugerpup
+
+视频制作：農夫
+
+审核：玫瑰新闻组
+
+上传：玫瑰新闻组
+
+0

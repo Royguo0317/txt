@@ -1,44 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 脸书用户数据和电话号码泄露包括300万香港用户
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1063708/)
+## 《路德社》精选新闻简讯：生物威胁与儿童
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1063685/)
 
-翻译：洛杉矶天使农场 – 烟波浩淼
-校对：洛杉矶天使农场 – 雨山溪桥客
-审核：洛杉矶天使农场 – 黎明的光芒
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-上周六，5.33亿脸书上用户的个人数据和电话号码被发布在一个黑客论坛上。泄露的数据集似乎包括300万个香港用户。
+生物威胁是指有可能传播和引起爆发的传染病。
 
-来自106个国家的用户受到影响，他们的脸书 ID、全名、简历、地点、生日和电话号码都被曝光。
+传染病是由病菌（如细菌和病毒）引起的疾病。有些传染病需要两个人密切接触，比如人与人之间说话。其他传染病只能通过空气、水、食物或土壤中携带的病菌，或通过昆虫或动物叮咬传播。生物威胁可能会自然传播，如世界范围内的流感爆发，或以生物武器病毒的形式被故意释放，比如，2001年故意释放炭疽。2019年中共释放SARS-CoV-2,造成了全球大面积感染的灾难。
 
+为什么儿童容易受到生物威胁？
+与健康的成年人相比，儿童更容易因生物病菌威胁而生病，病情也更严重，原因有以下几点。首先，儿童的免疫系统还没有完全发育成熟，这意味着他们更容易受到感染，更难抵御感染。其次，由于儿童通常与其他小伙伴或家庭成员有频繁、密切的接触，而且他们经常把手放进嘴里，因此病菌可以迅速传播。第三，儿童可能不明白如何保护自己，也不明白安全措施的重要性。例如，他们可能不遵守防止细菌传播的建议，如戴口罩或正确洗手。
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/040801.png)
 
-> All 533,000,000 Facebook records were just leaked for free.
-> 
-> This means that if you have a Facebook account, it is extremely likely the phone number used for the account was leaked.
-> 
-> I have yet to see Facebook acknowledging this absolute negligence of your data. [https://t.co/ysGCPZm5U3](https://t.co/ysGCPZm5U3) [pic.twitter.com/nM0Fu4GDY8](https://t.co/nM0Fu4GDY8)
-> — Alon Gal (Under the Breach) (@UnderTheBreach) [April 3, 2021](https://twitter.com/UnderTheBreach/status/1378314424239460352?ref_src=twsrc%5Etfw)
+对生物威胁的治疗方法根据引起疾病病菌的不同而不同。但是，在发生传染病紧急情况时，有一些方法可以保护您的家人。
 
+**准备一个应急包**
+如果发生大范围的疾病，社区内的服务和设施，如餐馆、公共交通和银行有可能会暂时关闭。您必须在家中准备好基本用品，包括至少3天的水和不会变质的食物，以及您的家庭成员日常所需的任何药品。
 
-*阿隆·加尔 @UnderTheBreach*
-*脸书的所有5.33亿条记录都被泄漏了。 这意味着，如果您拥有一个脸书帐户，则该帐户使用的电话号码极有可能被泄露。 我还没有看到脸书承认对您的数据的绝对疏忽。*
-*2021年4月3日 6:52*上午
-以色列网络犯罪情报公司哈德逊·岩（Hudson Rock）的阿隆·加尔（Alon Gal）分享了黑客攻击的消息。他在推特上写道：“这意味着，如果你有一个脸书账户，那么这个账户使用的电话号码极有可能被泄露。”。“我还没有看到脸书承认对你数据的绝对疏忽。”
+**保持信息灵通**
+在紧急情况下，要尽早并经常搜索各种信息。公共卫生机构会将如何保护您和您家人的方式告诉您。美国疾病控制和预防中心（CDC）将通过电视、广播、互联网或社交媒体网页（如Twitter和Facebook）提供信息。
 
-据[路透社报道](https://www.reuters.com/article/us-facebook-cyber-leak/leaker-says-they-are-offering-private-details-of-500-million-facebook-users-idUSKBN2BQ0J8)，脸书在一份声明中称，该数据“非常陈旧”，与2019年8月修复的一个问题有关。
+**了解您家人的病史**
+可能需要服用抗生素、接种疫苗或服用其他药物来治疗感染。医护人员希望了解您的家人的健康状况，以及您和您的亲属在过去的病史。您可以通过为您的家人保存一份包括以下项目的书面病历来帮助他们。如，医疗条件，有无过敏史，家庭成员正在服用的药物，每个孩子的体重等等。
 
-**防范**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/040802.png)
 
-总部位于香港的技术专家曼凡德范 （Man Van de Van）告诉《香港自由报》，用户应该警惕可疑的电话或短信，以防坏行动者使用用户的数据用于社交诈骗：“例如当你必须提供你的电话号码作为‘你是谁’的‘证据’时，这些数据可以用来冒充你。”
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Picture6.png)案照片：汤姆·格伦迪（Tom Grundy）/《香港自由报》
-他说：“从任何你提供过电话号码服务中删除你的电话号码，并在重要服务上修改或设置双因素认证。” 曼凡德范补充说，短信不应该用于双因素设置，用户应该考虑更改自己的电话号码。
+[援引原文](https://www.cdc.gov/childrenindisasters/biological-threats.html)
 
-2016年，社交媒体网络卷入丑闻，政治数据公司剑桥分析（Cambridge Analytica）被发现未经用户同意访问了多达8700万脸书用户的数据。此后，脸书加强了对第三方应用程序如何访问用户数据的控制。
-
-原文作者：汤姆·格兰迪 （TOM GRUNDY）
-发布时间：2021年4月4日14:03
-原文链接：[https://hongkongfp.com/2021/04/04/facebook-user-data-and-phone-numbers-leaked-including-3-million-users-in-hong-kong/](https://hongkongfp.com/2021/04/04/facebook-user-data-and-phone-numbers-leaked-including-3-million-users-in-hong-kong/)
+本文编者：林林虎
+审核校对：鲁邦五世
+上传排版：糖果儿
 
 0
