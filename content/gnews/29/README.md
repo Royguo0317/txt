@@ -1,73 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】快乐的童年
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1066307/)
+## 调查发现中共病毒疫苗与脑部血块之间的“清晰”联系
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1066407/)
 
-作者：纽约香草山佛教部 文来
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+- 翻译：Jenny Bull
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-我是二年级的小环
+**西班牙2021年4月8日电/西喜社——**
 
-上完课放学我就想出去玩
+据《西部日报》4月6日报道，欧洲药品管理局(EMA)的一位高级官员说，已经发现了阿斯利康的中共病毒疫苗与大脑中罕见的血凝块之间的联系，但官员们尚未查明可能的原因。
 
-这摸摸那看看童年乐无边
+“据我所知，我们现在可以这样说，很明显，这种疫苗与（脑血凝块）有关。”路透社报道，欧洲药品管理局(EMA)疫苗评估小组主席马里奥·卡瓦列里（Mario Cavaleri）说。
 
-滑梯玩了一遍又一遍
+“但是，我们仍然不知道是什么原因导致了这种反应。”
 
-小花小草都是我的好伙伴
+欧洲药品管理局(EMA)在一份声明中澄清说，疫苗审查正在进行中，该机构希望在本周宣布其发现。
 
-爸爸看着我天真无邪的脸只想亲个没完。
+声明说：“目前，对于这些非常罕见的事件，审查尚未发现任何特定的危险因素，例如年龄，性别或先前的凝血障碍病史。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-92.png)图源网络
+“与疫苗的因果关系尚未得到证实，但是是可能的，并且进一步的分析仍在继续。”
 
-我是二年级的小环
+该调查正在研究44篇关于大脑中罕见的血栓的报道，这种血栓被称为脑静脉窦血栓形成(CVST)。据路透社报道，欧洲经济区有920万人接种了该疫苗。
 
-上完课放学我就想回家玩
+该机构和世界卫生组织坚持认为，阿斯利康疫苗的收益大于风险。
 
-语文数学放到一边
+但是，随着调查的继续，法国，德国和荷兰已经暂停了疫苗的使用。
 
-钢琴也不用弹
+据美国有线电视新闻网报道，荷兰医疗当局报告说，它在25至65岁的女性中发现了血凝块。
 
-只看动画片
+德国报告说，在其发展为脑静脉窦血栓形成(CVST)的31例患者中有9例死亡，其中20至63岁之间的女性中发现了29例。
 
-妈妈走过来说，来，吃一块饼干。
+挪威报告说，在接种疫苗后，有3人死亡，其中有血液凝块和出血。
 
+该机构在一份声明中说：“挪威药品管理局认为可能与这种疫苗存在联系，但是我们需要更多的研究来弄清楚到底是什么引起了这个(情况)。”
 
+据路透社报道，欧洲研究人员提出了一种由疫苗引发的异常抗体或可能与避孕药联系的想法。
 
-我是二年级的小环
+欧洲药品管理局(EMA)人用药品委员会成员阿曼多·热纳扎尼（Armando Genazzani）表示，血块与阿斯利康疫苗相关联是“合理的”。
 
-谁拿走了我快乐的童年？
+该特定疫苗基于牛津大学开发的改良黑猩猩腺病毒载体。
 
-我要我的童年
+编辑：Victor Torres；校对: 阿伯塔；组稿：神奇四侠；发稿：信心的选择
 
-灭了CCP
-
-拿回本属于我的童年！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+**新闻来源：**[《西部日报》](https://www.westernjournal.com/investigation-finds-clear-link-covid-vaccine-blood-clots-brain/)
 
 0

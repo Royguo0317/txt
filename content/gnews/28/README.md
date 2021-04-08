@@ -1,38 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新疆发生的，是一场危害人类的巨大罪行（第一部分）
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1066344/)
+## 美商务部长回避抖音出售问题
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1066493/)
 
-```
-新闻来源： 经济周刊  阿德里安·曾兹（Adrian Zenz）谈中国
-发表时间：2021年4月5日
-翻译整理/评论： Shuizhuyu
-```
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-4.jpg)money.cnn.com
+《独立报》报道，商务部长吉娜·雷蒙多(Gina Raimondo)在白宫被问及总统是否会要求出售中共的抖音公司，她回避了这一问题。
 
-阿德里安·曾兹独自走访新疆并发现了中国新疆省的侵犯人权行为。 中共国现已对他实施制裁。 而德国公司指责他表里不一。
+今年早些时候，有消息称拜登正在审查其前任川普总统希望看到中共抖音出售给美国公司的决定。今年2月，《华尔街日报》报道称，拜登政府已在审查将这家社交媒体平台的美国业务出售给甲骨文(Oracle)和沃尔玛(Walmart)的交易。
 
-自从德国一名研究人员提供了有力的证据以来，全球公众才知道中国新疆省发生的大规模侵犯人权行为。 阿德里安·曾兹（Adrian Zenz）细致地记录了中国政府如何迫害中国西北部的维吾尔族。 人类学家从诸如建筑招标书之类的公共文件中过滤出了拘留营，强迫劳动和避孕的细节。
+周三，商务部长吉娜·雷蒙多(Gina Raimondo)在白宫被问及她是否觉得应该出售抖音（TikTok），以及她对拜登在中共关税问题建议的“宽泛看法”。 雷蒙多回避说，“我不想谈论任何一家公司的细节”，“在我看来，从长远来看，要与中共竞争，我们在进攻上做什么比在防守上做什么更重要”。
 
-曾茨现年47岁， 从小学开始就对数据，统计数据和计算机感兴趣。 因为他经常发现人类学是意识形态的，多年的积累让他把他的知识付诸行动， 他的走访新疆的启示正在产生影响。
+她称，“关于关税，关税是有一席之地的，你知道……（川普时代)对钢铁和铝征收关税，实际上帮助保住了美国钢铁和铝行业的就业机会。” 雷蒙多补充说，“我们必须创造公平的竞争环境。如果有公平的竞争环境，没有人能战胜美国工人。”
 
-美国总统乔·拜登（Joe Biden）谈到针对维吾尔族的种族灭绝，主要是基于他的研究。 拜登（Biden）的前任唐纳德·特朗普（Donald Trump）已于1月份发布了从新疆进口棉花的禁令，这也受到曾茨研究的严重影响。 3月下旬，中国对他实施了制裁， 曾兹生活在明尼苏达州，在华盛顿的共产主义受难者纪念基金会工作。 欧盟也已经开始行动， 对中共国在新疆的罪行进行制裁。 中共的回应当然是反制，当然也包括曾兹研究员， 中共对曾兹的研究极为不满。
+参考链接：
 
-#### 简评：
+[https://www.independent.co.uk/news/world/americas/us-politics/tiktok-china-biden-gina-raimondo-b1828086.html](https://www.independent.co.uk/news/world/americas/us-politics/tiktok-china-biden-gina-raimondo-b1828086.html)
 
-**这篇报道在经济周报发表， 看到才知道， 这位研究员独自走访新疆， 并得到了中共在新疆侵犯人权和犯罪的一手资料。 这篇报道也指出， 拜登政府对新疆种族灭绝的判定是根据他的研究而制定的。 川普的新疆棉花的禁令也是根据他的报告。 那么就请继续阅读德国经济周刊对他的采访的问答吧。 **（请看第二部分⬇️）
-
-🔗**[新疆发生的，是一场危害人类的巨大罪行（第二部分）](https://gnews.org/zh-hans/1066366/)**
-
-**新闻来源链接：**🔗
-
-[„Was dort passiert, ist ein gigantisches Menschheitsverbrechen“](https://www.wiwo.de/politik/ausland/adrian-zenz-ueber-china-was-dort-passiert-ist-ein-gigantisches-menschheitsverbrechen/27065852.html?utm_source=pocket-newtab-global-de-DE)
-
-* * *
-
-***审核/校对：****Ting Guo*
-
-（免责声明：本文仅代表译者个人观点，跟GNEWS平台无关。）
-
-+1
+0
