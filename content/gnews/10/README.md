@@ -1,47 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “双重突变” COVID-19菌株在加利福尼亚出现
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1065264/)
+## 《路德社》精选新闻简讯：Sellin博士公布中共病毒的零号患者
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1065312/)
 
-翻译：康州盘古农场-ww
-校对：康州盘古农场-Mike Li
-编辑：康州盘古农场- 山东老爷们
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-据《纽约邮报》，作者：娜塔莉·穆斯梅奇（Natalie Musumeci），2021年4月5日发布
-![]()![](https://gnews.org/wp-content/uploads/2021/04/CF3A1D39-01D3-4CAB-9D3D-EAC887916683.jpeg)
-斯坦福大学医疗保健发言人丽莎·金（Lisa Kim）周日在《旧金山纪事报》上说，斯坦福大学临床病毒学实验室在湾区发现并确认了一例这种变种毒株，该变种毒株最早在印度出现。斯坦福大学也在筛查其他七个假定病例。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/image001-20.jpg)
 
-据新闻媒体报道，这种新出现的菌株被称为“双重突变体”，因为它在病毒中携带两个突变，有助于其锁存在细胞中。
+2021年4月8日，Selin博士发推:Wuhan Institute of Virology’s Hongping Wei, mentor of alleged #COVID19 “patient zero” Yanling Huang, has links to China’s military including the Third Military Medical University source of #COVID’s suspected bat #coronavirus backbone ZC45/ZXC21.
 
-加利福尼亚大学旧金山分校的传染病专家Peter Chin-Hong博士指出，在印度重灾区马哈拉施特拉邦测序的病例中，有20％发现了“双突变体”变体，在过去一周中，印度的冠状病毒病例激增了50％以上。
+武汉病毒研究所的魏红平是中共病毒COVID19零号患者黄艳玲的导师，他与中共军方有联系，包括第三军医大学疑似中共病毒来源的蝙蝠病毒骨架ZC45/ZXC21。
 
-目前尚不清楚这种新的COVID-19变体是否具有更强的感染力或对冠状病毒疫苗的抵抗力，但Chin-Hong说，它具有更大的传播性是“合理的”。
+Sellin博士证实感染中共病毒COVID19的零号患者“黄艳玲”，并揭露她的导师魏红平就在武汉病毒研究所工作。首次公开提及闫博士论文中记载的舟山蝙蝠病毒ZC45/ZXC21是中共病毒骨架的关键内容，表明美国军方调查已掌握中共病毒来源的核心机密。舟山蝙蝠病毒是中共军方第三军医大学独有的病毒，而以此为骨架的COVID19就是中共制造的生物武器，这是中共无论如何也无法推脱的铁证。同时，证明美国军方情报部门完全验证此前闫博士和爆料革命提供的中共病毒情报和证据的真实性以及准确性。
 
-他对《旧金山纪事报》说：“从生物学的角度来看，由于这两个突变作用于病毒的受体结合域，因此具有更高的传播性，但到目前为止，还没有官方的传播研究。”
+[原文链接](https://twitter.com/LawrenceSellin/status/1380052151964213248/photo/1)
 
-Chin-Hong补充说，其中一种变异与首次在巴西和南非发现的冠状病毒变异相似，另一种变异也在加州首次发现的变异中发现。
 
-该变种最初在印度鉴定，在病毒中带有两个突变，可帮助其锁存在细胞中。
 
-环保局
+本文作者：stranger
 
-这位科学家说：“这种印度变种首次在同一病毒中包含两个突变，以前是在单独的变种中看到的。”
+审核校对：玫瑰天空
 
-“由于我们知道受影响的域是病毒用于进入人体的部分，并且加利福尼亚变体已经对某些疫苗抗体具有更高的抗性，因此似乎有理由认为印度变体可能会做到这一点。”他解释道。
-
-尚不知道这种新的COVID-19变体是否对冠状病毒疫苗具有抗性。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/FB039674-0218-4D2E-8DAD-4EF27823239B.jpeg)*盖蒂图片社*
-在美国已经发现了其他几种COVID-19变体-包括具有高度传染性的英国变体，称为B.1.1.7，南非变体，称为B.1.351，以及巴西变体，称为P.1。根据美国疾病控制和预防中心的最新数据，英国的变种在美国占12,505例，而南非和巴西的变种在美国分别占323和224例。
-
-原文来源：
-
-[https://nypost.com/2021/04/05/double-mutant-covid-19-strain-emerges-in-california/](https://nypost.com/2021/04/05/double-mutant-covid-19-strain-emerges-in-california/)
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+上传排版：糊糊文婴
 
 0

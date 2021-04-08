@@ -1,205 +1,171 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快报】为了留住富人：香港推出减税等优惠政策 2021.04.08
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1064898/)
+## 美国政要等每日重要信息0408.2021（一）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1064742/)
 
-** 作者：**扬眉剑出鞘
-![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image-10.png)
-# ***今日摘要***
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
 
-1. [拜登说中共国在未来的投资方面都领先于美国](https://www.businessinsider.com/biden-suggests-gop-aiding-china-by-opposing-infrastructure-plan-2021-4)
-2. [中共国羞辱抵制维吾尔族种族灭绝的政府官员](https://www.breitbart.com/national-security/2021/04/06/china-shames-government-officials-who-resisted-uyghur-genocide/)
-3. [香港推出减税等优惠政策以挽留富人](https://cn.nytimes.com/business/20210407/hong-kong-finance-wealthy/?utm_source=tw-nytimeschinese&amp;utm_medium=social&amp;utm_campaign=cur)
-4. [国务院支持美国抵制北京冬季奥运会，以“严厉应对”中共国威胁](https://www.thegatewaypundit.com/2021/04/state-department-backs-off-us-boycotting-beijing-winter-olympics-china-threatens-robust-response/)
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
+## 中共病毒继续爆料
 
+劳伦斯-塞林博士揭露中共病毒情报的挖料工作日拱一卒，4月8日凌晨发推：
 
-# 重要事件
+“武汉病毒学研究所的危宏平，声称是#COVID19 “零号病人 “黄燕玲的导师，与中国军方有联系，包括#COVID疑似蝙蝠#冠状病毒骨架ZC45/ZXC21来源的第三军医大学。
 
-- **04.07 GatewayPundit [国务院支持美国抵制北京冬季奥运会，以“严厉应对”中共国威胁](https://www.thegatewaypundit.com/2021/04/state-department-backs-off-us-boycotting-beijing-winter-olympics-china-threatens-robust-response/)**
+“#CCP病毒 #超限生物武器”
 
 
-国务院发言人内德·普莱斯（Ned Price）周二表示，抵制是美国希望与盟国讨论的问题。
 
-普赖斯说：“这是我们当然希望讨论的事情，采取协调一致的做法不仅符合我们的利益，也符合我们的盟国和合作伙伴的利益。”
+> Wuhan Institute of Virology's Hongping Wei, mentor of alleged [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) "patient zero" Yanling Huang, has links to China's military including the Third Military Medical University source of [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw)'s suspected bat [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) backbone ZC45/ZXC21.[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/sGXkDfrMER](https://t.co/sGXkDfrMER)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 8, 2021](https://twitter.com/LawrenceSellin/status/1380052151964213248?ref_src=twsrc%5Etfw)
 
-周三，中国威胁美国并谴责有关可能抵制的谈判。 据美联社报道，外交部发言人赵立建说：“体育政治化将损害《奥林匹克宪章》的精神和各国运动员的利益。” “包括美国奥委会在内的国际社会都不会接受。” 美国一位高级政府官员告诉CNBC，美国在2022年冬季奥运会上的立场没有改变，也没有关于抵制的讨论。 “我们在2022年奥运会上的立场没有改变。 我们没有讨论过，也没有在讨论与盟国和伙伴的联合抵制。”一位高级官员告诉CNBC。 这是美国国务院在不到一个月的时间内第二次支持中国的侵略行动。
 
-- **04.07 BreitBart [中共国羞辱抵制维吾尔族种族灭绝的政府官员](https://www.breitbart.com/national-security/2021/04/06/china-shames-government-officials-who-resisted-uyghur-genocide/)**
 
 
-中国共产党本周对新疆维吾尔自治区的两名地方官员进行了严厉镇压，理由是他们据称为恐怖主义提供了物质支持。
 
-实际上，很少有证据表明，周二被中国官方媒体任命和“羞辱”的维吾尔族官员参与了恐怖活动。他们反对北京对他们的人民实行种族灭绝运动。双方都可能面临死刑。
+## 抨击失败的美国外交
 
-中国官方媒体特别关注的两名维吾尔族官员Shirzat Bawudun和Sattar Sawut，是在几年前对高级维吾尔人的清洗中被捕的。清除的目标通常是“分裂主义”或“两面的”。人权监督者毕特·温特（Bitter Winter）指出，“两面子”指控经常针对“被指控具有宗教信仰或种族倾向的共产党员”。
+4月7日蓬佩奥国务卿转推哈德逊对话时的内容：
 
-毕特温特说：“一些评论家观察到，通过消除维吾尔族的高级官员和知识分子，中国共产党正在阻止可能的精神领袖的崛起。”
+在外交政策中，你能做的最糟糕的事情就是做出承诺，却无法兑现。我们在奥巴马对叙利亚政策中看到。我们现在在拜登政府在对中（共）国和香港政策上看到。
 
-分别于2017年和2018年被捕的索特（Sawut）和巴武顿（Bawudun）本周受到中国官方媒体的重新关注，因为他们在中共“纪录片”中扮演重要角色，据称这证明维吾尔族的种族灭绝既是中国不诚实敌人的假冒发明，又是一个完全的骗局。北京对维吾尔恐怖主义的持续威胁作出合理回应。
 
-宣传影片《阴影中的战争》的一个主要主题是，险恶的维吾尔特工一直在努力进入中国政府，目的是颠覆北京的权威，使新疆有可能从中国脱离。这就是为什么电影和随后的国家媒体报道如此强调“两面”政府官员的危险的原因。
 
-中共《环球时报》周二总结了针对索武特和巴乌敦的指控，称有关他们的案件的宣传片引起了“国内外的广泛关注”，因为它驳斥了“西方对新疆的谬论，例如’过度的反恐’。 ‘和’种族灭绝’”：
-
-周五在发布的第四部关于新疆反恐斗争的纪录片中，两名官员被曝光。该纪录片包含许多有关该地区恐怖主义活动，“两面人”案件和有问题的维吾尔教科书的视频片段，并首次揭示了东突厥斯坦伊斯兰运动（ETIM）如何将恐怖分子的录音和录像带引入中国。
-
-一个案例与该地区的前高级官员Shirzat Bawudun有关，后来被发现暗中支持与ETIM有关的极端主义活动。 Shirzat在一次暴力恐怖绑架中受伤后获得了“反恐英雄”的头衔，但后来与ETIM的主要成员进行勾结，利用他的职位使他兄弟的公司受益，并向ETIM提供了大笔资金。
-
-另一起案件涉及时任地区教育部门负责人的萨塔尔·索特（Sattar Sawut），他组织了一个犯罪团伙，通过编写维吾尔教科书来传播极端主义思想并煽动种族仇恨，从而促进了恐怖主义和极端主义在新疆的传播。
-
-- **04.07 BusinessInsider [拜登说中共国在未来的投资方面都领先于美国](https://www.businessinsider.com/biden-suggests-gop-aiding-china-by-opposing-infrastructure-plan-2021-4)**
-
-
-总统拜登在周三的热情洋溢的演讲中将基础设施定为国家安全事务，称中国在抨击反对他的2万亿美元计划的共和党人方面超过了美国。
-
-在数月的共和党人说拜登对北京太过软弱之后，总统才开始改写剧本。拜登有效地指责共和党通过反对其基础设施提案来帮助中国，共和党人认为该提案过于昂贵。
-
-拜登谈到共和党对他的计划的回应时说：“我的共和党朋友……他们中的许多人都说它太大了……他们说，’为什么不只关注传统基础设施？’” “我们是美国。我们不仅为今天而努力；我们为明天而努力。”
-
-拜登的基础设施计划旨在通过在运输，宽带，制造，清洁能源以及技术研发等领域的投资来促进美国经济。该提案主要集中于应对气候变化，并将提高公司税率。
-
-拜登说：“您认为中国在等待投资其数字基础设施或研发吗？我向您保证，他们不会等待。” “但他们指望美国民主制太慢，太有限，太分裂而不能跟上步伐。”
-
-拜登说，中国和世界其他地区“在未来的投资方面都领先于我们”。
-
-他补充说：“美国不再是世界的领导者，因为我们没有投资。”
-
-他将改善美国基础设施的问题定为民主国家与专制国家之间斗争的一部分-拜登上任以来一直反复关注这个主题。布什总统说，美国民主正处于一个“拐点”，这是“我们证明民主能否实现的时刻”。
-
-拜登说：“这一代人的特征是民主国家和专制国家之间的竞争，因为世界变化如此迅速。” “独裁者押注民主制不能产生决策以加入该种族所需的那种团结。我们无力证明他们是正确的。”
-
-他补充说：“我们必须向世界展示，但更重要的是，我们必须向自己展示民主是有效的。” “这是美国，看在上帝的份上。”
-
-拜登已将在全球舞台上与中国竞争作为外交政策的重中之重。
-
-拜登政府呼吁美国增加对基础设施的投资时，正在加大对中国在人权方面的批评。上个月，国务卿安东尼·布林根（Antony Blinken）和中国最高外交官进入了一场有争议的公开辩论。
-
-财政部随后对中国官员施加了新的制裁，原因是林肯所说的是对新疆维吾尔人的“种族灭绝”。
-
-美国国务院周二表示，美国愿意与盟国就抵制2022年北京奥运会侵犯中国人权的问题进行讨论。中国政府周三对华盛顿特区表示，如果美国抵制冬季奥运会，将会有“强有力”的回应。
-
-- **04.07 NewYork Times 留住富人：[香港推出减税等优惠政策](https://cn.nytimes.com/business/20210407/hong-kong-finance-wealthy/?utm_source=tw-nytimeschinese&amp;utm_medium=social&amp;utm_campaign=cur)**
-
-
-香港——政治反对派已被[镇压](https://cn.nytimes.com/china/20210330/hong-kong-china-art-national-security-law/)。言论自由遭到[扼杀](https://www.nytimes.com/zh/interactive/2020/09/11/world/asia/hong-kong-speech.html)。独立的法院系统[可能是下一个](https://cn.nytimes.com/china/20201130/hong-kong-china-courts/)目标。不过，尽管香港最高领导人对这个拥有700多万人口的城市采取了更强硬的态度，他们正在争取一个至关重要的选民群体：富人。中国高层官员正准备出台新的税收减免和其他优惠措施，把香港描绘成亚洲最能赚钱的地方，尽管中共正在对这里施加越来越专制的统治。到目前为止，这种宣传是奏效的。价值300亿美元的投资基金康桥汇世(Cambridge Associates)今年3月表示，计划在香港开设一家办事处。最近几个月，投资经理们已经成立了100多家新公司。高盛(Goldman Sachs)、花旗集团(Citigroup)、美国银行(Bank of America)和摩根士丹利(Morgan Stanley)等华尔街银行都在增加香港员工。“香港是仅次于纽约的全球亿万富翁之城，”香港财政司司长陈茂波今年在一个金融业高管在线会议上表示。吓走香港银行家和金融家的后果对中共来说非同小可。这个前英国殖民地仍然是进入国际金融体系的主要门户。中国公司需要通过它从全球投资者那里筹集资金；这些公司和中国富人也依靠它才能更容易地将资金转移到海外。
-
-因此，北京正在谨慎地保持平衡。它剥夺了香港人民的自由，以阻止对共产党统治的公然挑战，比如[两年前爆发的](https://cn.nytimes.com/china/20200609/hong-kong-protests-one-year-later/)时有暴力的反政府抗议活动。与此同时，它也在努力吸引这座城市的金融阶层，以阻止他们迁往新加坡等其他对商业友好的地方。
-
-# 每日文贵说
-
-- ![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2021/04/26fca799e259022939ef903dddb19083-1024x576.jpg)
-
-
-# 文贵直播和盖特
-
-### 盖特：
-
-**4月7号：为这位同胞而惋惜，难过！他要是知道爆料革命！他就不会走这种愚蠢极了的自杀之路了，但是接下来的中共国．会有非常非常非常多的人走向这条不归路。共产党让过去的让老百姓被自杀时代……已经到了老百姓自愿自杀的新时代……这就是中国梦，这就是中国人的自信的结果！新中国联邦人将加倍努力消灭共产党，拯救我们的同胞！**
-
-**四月7号：上次穿这件衣服的时候，我们新中国联邦还没有诞生，爆料革命的所处的环境和形势和今天大不相同，我们如何从这些变化和过去的时光里．得到和学到我们的经验……午餐后和战友们乱聊，7哥第二次穿这件衣服的感受！**
-
-
-
-**4月7号：如果美国将中国共产党踢出SWIFT支付系统，世界贸易组织，世界银行．世界货币组织．并将比特币变成美国中心化．或监督．全球100个以上的国家成立了联合查清C C P病毒的组织．要求你们提供所有的病毒，真相．否则就开干．共产党你们觉得自己还能活几天？**
-
-
-
-**中共在打造自己的数字货币，为它监控公民和经济提供新的途径，并削弱美国的制裁 CCP is creating its own digital currency, which will give it new ways to monitor citizens and the economy, and offset US sanctions**
-
-
-
-# 秘密翻译组：
-
-
-
-> 4/7/2021 财经快讯：IMF上调全球经济增长预期，Coinbase称一季度收入同比翻9倍 [https://t.co/4yOoMGim2h](https://t.co/4yOoMGim2h) via [@Gnews202064](https://twitter.com/Gnews202064?ref_src=twsrc%5Etfw)
-> — 秘密翻译组 (@G\_Translators6) [April 7, 2021](https://twitter.com/G_Translators6/status/1379829446522273796?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> 一份由中共军事医学科学院微生物与流行病学研究所上传到新英格兰杂志的报告显示，两种国产疫苗接种后不到两个月，接种者体内已检测不到中和抗体的比率竟然高达五分之一。
-> 【灭共头条】中共疫苗第二剂接种后不到两个月 五分之一接种者中和抗体失效 [https://t.co/Z7KftRGgVI](https://t.co/Z7KftRGgVI) via [@Gnews202064](https://twitter.com/Gnews202064?ref_src=twsrc%5Etfw)
-> — 秘密翻译组 (@G\_Translators6) [April 7, 2021](https://twitter.com/G_Translators6/status/1379770525254262786?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> 美国特种作战司令部正把目前的工作重点转移到面对中共国的虚假信息超限战，并为美国在未来与中共国任何战事冲突中成为强大的隐形力量作好准备。
-> 美国启动对中共国的信息大战 [https://t.co/2bxPchuZBc](https://t.co/2bxPchuZBc) via [@Gnews202064](https://twitter.com/Gnews202064?ref_src=twsrc%5Etfw)
-> — 秘密翻译组 (@G\_Translators6) [April 7, 2021](https://twitter.com/G_Translators6/status/1379769263532040193?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> 共和党议员李·泽尔丁（Rep. Lee Zeldin）表示，“自中共病毒疫情大爆发伊始，中国共产党就在撒谎，并向全世界隐瞒中共病毒大流行的起源”。
-> 世卫病毒起源报告遭美两党批评，实验室泄露理论获认同 [https://t.co/RBETxSVF8v](https://t.co/RBETxSVF8v) via [@Gnews202064](https://twitter.com/Gnews202064?ref_src=twsrc%5Etfw)
-> — 秘密翻译组 (@G\_Translators6) [April 7, 2021](https://twitter.com/G_Translators6/status/1379766773541523459?ref_src=twsrc%5Etfw)
-
-
-
-# 喜马拉雅国际工作站：
-
-**纳瓦罗在战斗室论证为什么新冠来自于武汉病毒实验室：1️⃣前疾控中心主任说新冠是武汉实验室改造的 2️⃣福奇好友达扎克3️⃣奥卡姆剃刀原则4️⃣未找到宿主**
-
-
-
-# 路德社节目：
-
-### 04/07/2021 早 路德时评（路安墨谈）：中共判处两名新疆官员投敌叛国死刑；中共战狼外交警告日本手不要伸的太长意味着什么？
-
-
-
-1. 话题一：新疆官员被叛死刑
-    - 中共此次给希尔扎提判刑居然是在新闻发布会上宣布审判结果，而不是在法庭上，也没有公布正式的法律文件。希尔扎提曾在2018年因职务犯罪被捕，之后一直没有进行任何审理和拘禁，今天突然就宣告对其执行死刑，缓期两年执行，前后报道的罪名完全不同，可见中共现在已经疯狂，毫无司法可言，他们在新疆问题上显得黔驴技穷。
-    - 中共想借此警告党内人士，如果敢和境外敌对势力勾结，那只有死路一条。随着国际社会在新疆问题上开始制裁中共，中共统治下的维奸们出现松动迹象，大量新疆官员蠢蠢欲动，中共想借此杀鸡骇猴，由此可见，西方国家认定中共犯下种族灭绝罪击中了中共的要害，中共现在就想着破罐子破摔，用更强硬的方式管制新疆。
-    - 中共才统治中国七十年，就有上亿中国人因中共政权而丧生，有高达四亿的胎儿失去生命，中共就是中华民族的灾难。对一个民族来说，语言就是这个民族的文化，中共想方设法灭掉少数民族的语言，因为中共非常害怕少数民族壮大起来威胁到中共统治。
-    - 这两件案子恰巧证实中共在新疆犯下反人类罪和种族灭绝罪，中共对待新疆官员都如此极端，更不用说对待新疆老百姓了，中共对新疆管理得越狠，西方社会制裁中共的速度就越快。
-2. 话题二：
-    - 中共撰写这篇文章就是针对布林肯将继续暂停香港特殊关税地位的行为，中共也意识到暂停香港特殊关税地位对香港经济造成重创，不仅如此，美国接下来还将推动港币与美元脱钩，继续制裁涉事官员，让香港彻底沦为死港，这也让中共看清楚无论谁上台都无法改变灭共大势。
-    - 总结一下战狼外交官赵立坚的逻辑：因为美国曾出现侵犯人权的行为，所以中共现在侵犯人权罪就是合理的，美方无权指责——这就是中共的流氓逻辑，让人笑掉大牙。
-    - 中共撰文批评美国的种种制裁中共行为时，只字未提拜登总统，中共现在还寄希望拜登总统能扭转中美关系，拜登上台后确实没有发表任何针对中共的激烈言论，拜登有意通过装傻隐藏自己，让国务卿布林肯和其他部门来发布制裁中共的行政命令，这就是拜登使用的政治手段。
-    - 赵立坚不仅警告美国，还警告日本不要把手伸得太长，不要配合美国对中共涉港、涉疆问题采取强硬行动，否则，中共将对日本采取反制措施，在经济上彻底封锁日本。美日韩三国形成联盟后，中共对此非常恐惧，就想借此要挟日本，但是中共推崇的斗争思维已经是上世纪初的思维方式，中共完全没有意识到现代主流社会强调的是人权、民生、科技创新和全球一体化。日本经过明治维新做到了脱亚入欧，做到了从人治到法制的转变，形成了三权分立社会，让社会拥有公平，第二步在麦克阿瑟的推动下做到了脱欧入美，再次完成了升级改造。中共居然还用二战思维应对日本，现在还用忽悠洗脑的方式奴役中国老百姓，这种思维已经非常落后，这必然导致中共全盘皆输。
-
-
-### 04/07/2021 晚 路德时评（博冠胡谈）：拜登新闻会上表示他尚未和习近平谈过意味着什么？习近平和默克尔为了挽回双方合作最后再努力一把意味着什么？
-
-
-
-1. 拜登新闻会上表示他尚未和习近平谈过病毒起源问题
-2. 习近平和默克尔为了挽回双方合作最后再努力一把
-3. 中共是穷则韬光养晦，达则战狼出击。
-4. 欧洲灭共的形势已经形成，并且正在快速推进之中
-5. 24名专家发表公开信呼吁重新调查病毒起源
-6. 博博士说中共是：穷则韬光养晦，达则战狼出击。说得太好了
-7. 中共从来都不懂得藏富于民，只顾自己盗国享福，连越南这样的社会主义国家都是国穷民富。韬光养晦它们是捞足了钱，现在战狼出击最终受害的又是我们草民，况且在它们领导下我们真的达了吗？有实力挑战全世界？自取灭亡而已，加速！
-
-
-来自 [木子](https://twitter.com/XMUZI_2) 战友推特
-
-# 推特文摘
-
-
-
-塞林博士日拱一卒之——病毒专家与本地投毒间的关联 1. 郭德银：中山大学；冠状病毒基因组复制和与宿主细胞作用分子机理 2. 石正丽：武毒所；病毒跨物种感染 3. 李放：明尼苏达双城；病毒受体识别机制 4. 邬开朗：武汉大学；寨卡病毒研究 左派已提动物传代，右派的拼图已指向投毒！
-
-
-
-
-
-> 塞林博士日拱一卒之——病毒专家与本地投毒间的关联
+> The worst thing you can do in foreign policy is make a promise and fail to deliver. We saw that in Syria with Obama. We’re seeing it now in China and Hong Kong with Biden. 
 > 
-> 1. 郭德银：中山大学；冠状病毒基因组复制和与宿主细胞作用分子机理
-> 2. 石正丽：武毒所；病毒跨物种感染
-> 3. 李放：明尼苏达双城；病毒受体识别机制
-> 4. 邬开朗：武汉大学；寨卡病毒研究
+> More here [@HudsonInstitute](https://twitter.com/HudsonInstitute?ref_src=twsrc%5Etfw)[https://t.co/zuFVyvF57f](https://t.co/zuFVyvF57f)
+> — Mike Pompeo (@mikepompeo) [April 7, 2021](https://twitter.com/mikepompeo/status/1379857183135969281?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 与大科技公司面对面
+
+4月7日蓬佩奥国务卿转推《福布斯》新闻，《彼得-泰尔在与迈克-蓬佩奥的圆桌会议上，批评大科技公司与中共国的关系以及川普的平台抹去化》全文翻译如下。（作者[Angel Au-Yeung](https://www.forbes.com/sites/angelauyeung/)，[原文链接](https://www.forbes.com/sites/angelauyeung/2021/04/07/peter-thiel-in-roundtable-with-mike-pompeo-criticizes-big-techs-relationship-with-china-and-the-deplatforming-of-trump/?sh=12c6ee5c7337)）
+
+
+
+> Great conversation with Peter Thiel at the [@nixonfoundation](https://twitter.com/nixonfoundation?ref_src=twsrc%5Etfw) seminar last night. America can — and must — confront the CCP technology threat. We will win.[https://t.co/LYHOzWaaDj](https://t.co/LYHOzWaaDj)
+> — Mike Pompeo (@mikepompeo) [April 7, 2021](https://twitter.com/mikepompeo/status/1379832810941382662?ref_src=twsrc%5Etfw)
+
+
+
+周二晚间，Palantir联合创始人、Facebook董事会成员彼得-泰尔（Peter Thiel）与前国务卿迈克-蓬佩奥（Mike Pomeo）和前国家安全局顾问罗伯特-C-奥布莱恩（Robert C. O’Brien）一起参加了理查德-尼克松基金会（Richard Nixon Foundation）组织的虚拟圆桌会议，讨论大科技与中共国的问题关系。
+
+泰尔自称是科技反派，作为PayPal联合创始人在硅谷起步，他曾公开批评Alphabet在中国的人工智能工作，以及苹果公司在整体供应链上对中共国的依赖。在被问及立法者如何才能阻止中共国对美国科技公司影响的 “渗透 “时，泰尔提出了一个建议：继续对科技公司施加压力。”你需要不遗余力地呼吁人们这样做，”泰尔说。
+
+自2005年起担任Facebook董事会成员，泰尔还讨论了社交网络的员工基础如何使该公司更难对中国采取强硬立场。泰尔提出了2020年香港民主抗议活动期间Facebook员工之间的辩论，以此为例说明内部政治如何阻止Facebook采取更多的反华（反共）倾向。
+
+“来自香港的员工都支持抗议活动和言论自由，但Facebook有更多的员工是在中共国出生的，”泰尔说。”中共国籍的人居然说这只是西方人的傲慢，不应该站在香港这一边之类的话。Facebook的其他员工，你知道的，有点置身事外，但内部的辩论感觉大家其实更多的是反对香港，而不是支持香港。”
+
+泰尔和蓬佩奥还讨论了是否应该允许中共国留学生在美国学习的问题。”我们实际上是一个开放的国家，[而且]我认为这使得让这些学生在这里学习的风险更大，因为这些信息最终在有利于中国共产党模式（其意识形态）的能力相当大，”蓬佩奥说。
+
+泰尔同意，他说蓬佩奥 “基本上是对的”，并指出大学可能与中共国富裕的捐助者共谋是另一个问题。”他们是否从中共国资金中获得资金？这方面可能有很多以各种方式滥用，”他说，但没有详细说明。
+
+在川普政府时期，蓬佩奥担任了一年的中央情报局局长，然后在2018年至2021年担任国务卿。与此同时，泰尔是硅谷的一个异类，他支持川普，并为他2016年的总统选举活动捐款（他没有为川普2020年的连任努力捐款）。
+
+虽然在长达一个半小时的讨论中，几乎没有讨论川普的总统任期，但美国国家利益中心的高级研究员克里斯蒂安-惠顿（Christian Whiton）向泰尔询问了他对当前社交媒体平台监管的看法，以及这些平台对唐纳德-川普总统的审查是否可以也应该受到限制。
+
+今年1月，在暴徒冲进美国国会大厦抗议乔-拜登被国会认证为新任美国总统的两天后，推特永久禁止川普总统进入其网站，称 “由于（川普）有进一步煽动暴力的风险”。脸书和其他主要社交媒体公司不久后也纷纷效仿。
+
+虽然惠顿点名Twitter “和其他类似的公司 “是问题的焦点，但泰尔并没有忘记指出，Facebook也正属于这一行列。
+
+“我是Facebook的董事会成员，所以我必须小心我在这里说的话，但两三个月前，[川普]总统被平台抹去化真的很特别，”泰尔说。”当你有[德国总理]默克尔和来自墨西哥的[总统]奥布拉多说科技平台太反川普，对川普先生太刻薄时，这就告诉你，你真的太过分了。”
+
+默克尔在1月份表示，她认为推特禁令 “有问题”。与此同时，墨西哥总统安德烈-曼努埃尔-洛佩斯-奥布拉多也对社交媒体禁令进行了斥责。据报道，洛佩兹-奥布拉多说：”是的，社交媒体不应该被用来煽动暴力和所有这些，但这不能作为暂停言论自由的借口”。
+
+
+
+## 中共病毒疫苗
+
+4月7日美国太平洋舰队推文：96%美国第七舰队的水员已经注射了中共病毒疫苗。
+
+
+
+> 96 percent of [@US7thFleet](https://twitter.com/US7thFleet?ref_src=twsrc%5Etfw) Sailors vaccinated: [https://t.co/wTsUo3hnbz](https://t.co/wTsUo3hnbz) [#SinkCovid](https://twitter.com/hashtag/SinkCovid?src=hash&amp;ref_src=twsrc%5Etfw) [#USNavy](https://twitter.com/hashtag/USNavy?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/qTGOHDwY67](https://t.co/qTGOHDwY67)
+> — U.S. Pacific Fleet (@USPacificFleet) [April 8, 2021](https://twitter.com/USPacificFleet/status/1380084836912615427?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 中共稀土项目受阻
+
+4月7日《华尔街日报》题为“中（共）国的格陵兰野心遭遇地方政治、美国影响”的报道指出，支持环境一方在格陵兰岛选举中名列第一，使中共国支持的采矿项目陷入僵局，而该项目是中国政府控制稀土的核心。
+
+中共国稀土巨头盛和资源控股有限公司（音译，Shenghe Resources Holding Co.）和一家澳大利亚公司正准备在冰岛南部海岸开发一个矿场，当时格陵兰岛政府因该项目对环境的影响引发越来越多的争议而举行了一次快速选举。
+
+这次选举使这个项目陷入僵局，而这个项目是中共国政府寻求加强对世界稀土控制的一部分。稀土是制造电池和磁铁的必要原料，电池和磁铁为手机、电动汽车到风力涡轮机等各种产品提供动力。预计全球对稀土的需求将急剧上升，因为各国都在努力履行其在巴黎气候协议中的承诺，而拜登已决定让美国重新加入该协议。
+
+
+
+> China’s ambitions for a massive rare-earth mining project in Greenland have run into a maelstrom of local politics in a part of the world the U.S. considers vital to its national security [https://t.co/nQe3SLiu1v](https://t.co/nQe3SLiu1v)
+> — The Wall Street Journal (@WSJ) [April 8, 2021](https://twitter.com/WSJ/status/1380007533599936512?ref_src=twsrc%5Etfw)
+
+
+
+## 特斯拉关闭中共国车辆的摄像头
+
+据《华尔街时报》4月7日，特斯拉称其汽车摄像头不在中共国激活，因为在北京限制使用特斯拉汽车后，该公司再次力图让担心隐私的消费者放心。
+
+
+
+> Tesla says Its car cameras aren’t activated in China, as the company again tries to reassure consumers concerned about privacy after Beijing restricted use of the vehicles [https://t.co/wxdQrAOte4](https://t.co/wxdQrAOte4)
+> — WSJ China Real Time (@ChinaRealTime) [April 8, 2021](https://twitter.com/ChinaRealTime/status/1380015078611771392?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 中共搞数字货币蠢蠢欲动
+
+据《华尔街日报》4月7日，中共国政府正在铸造数字货币，这是对货币的重新想象，可能会动摇美国权力的支柱。
+
+不同于信用卡和支付应用，这些只是以电子方式移动货币的方式。中共国正在将法定货币本身变成计算机代码。
+
+比特币等加密货币已经预示了货币的潜在数字未来，尽管它们存在于传统的全球金融体系之外，不像政府发行的现金那样是法定货币。
+
+中共国版本的数字货币由央行控制，央行将发行新的电子货币。预计它将给中共国政府提供大量新的工具来监控其经济和人民。在设计上，数字人民币将否定比特币的一个主要亮点：用户的匿名性。
+
+北京还将数字人民币定位为国际用途，并将其设计为与全球金融体系脱钩，而美元自二战以来一直是全球金融体系的王者。中共国正在接受包括货币在内的多种形式的数字化，以期获得更多的集中控制权，同时在它认为是争夺的未来技术上占得先机。
+
+
+
+> China is the first major economy to create a digital currency. A cyber yuan stands to give Beijing power to track spending in real time, plus money that isn’t linked to the dollar-dominated global financial system. [https://t.co/gXKX5IHk5G](https://t.co/gXKX5IHk5G)
+> — WSJ China Real Time (@ChinaRealTime) [April 7, 2021](https://twitter.com/ChinaRealTime/status/1379660254116470785?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 军事
+
+4月7日美国太平洋舰队推文：前期部署的@美国第七舰队导弹驱逐舰进行例行的台湾海峡巡航：[http://go.usa.gov/xHYB4](https://go.usa.gov/xHYB4) #自由开放的印太。
+
+
+
+> Forward-deployed [@US7thFleet](https://twitter.com/US7thFleet?ref_src=twsrc%5Etfw) guided-missile destroyer [#USSJohnSMcCain](https://twitter.com/hashtag/USSJohnSMcCain?src=hash&amp;ref_src=twsrc%5Etfw) conducts routine Taiwan Strait transit: [https://t.co/HIphb6dkoZ](https://t.co/HIphb6dkoZ) [#DDG56](https://twitter.com/hashtag/DDG56?src=hash&amp;ref_src=twsrc%5Etfw) [#FreeAndOpenIndoPacific](https://twitter.com/hashtag/FreeAndOpenIndoPacific?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/KuYIYAz35B](https://t.co/KuYIYAz35B)
+> — U.S. Pacific Fleet (@USPacificFleet) [April 7, 2021](https://twitter.com/USPacificFleet/status/1379831671520776194?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 为自由而战，举杯！
+
+蓬佩奥国务卿4月7日推文：今天是国际啤酒节！在我上次访问捷克共和国时，我们庆祝了二战结束75周年。所以今晚，开一瓶冰镇啤酒，为那些为保障我们的自由而牺牲的勇敢的美国人干杯。
+
+我们必须继续战斗，以捍卫这些自由！
+
+
+
+> It’s [#NationalBeerDay](https://twitter.com/hashtag/NationalBeerDay?src=hash&amp;ref_src=twsrc%5Etfw)! On my last visit to the Czech Republic, we celebrated the 75th anniversary of the end of WW2. So tonight, crack open a cold one and toast to the brave Americans who sacrificed to secure our freedoms. 
 > 
-> 左派已提动物传代，右派的拼图已指向投毒！ [https://t.co/AGEuokEWJy](https://t.co/AGEuokEWJy)
-> — 喜马拉雅波士顿五月花农场 (Himalaya Mayflower) (@HimalayaMayflo1) [April 6, 2021](https://twitter.com/HimalayaMayflo1/status/1379548573365338116?ref_src=twsrc%5Etfw)
+> We must keep fighting to defend those very freedoms! 🇺🇸 [pic.twitter.com/ele9lmi7XV](https://t.co/ele9lmi7XV)
+> — Mike Pompeo (@mikepompeo) [April 7, 2021](https://twitter.com/mikepompeo/status/1379901983390306306?ref_src=twsrc%5Etfw)
 
 
 
@@ -207,169 +173,10 @@
 
 
 
-突然明白为什么中共国强制打疫苗…让所有老人打中国疫苗，是解决破产的养老金制度的好办法啊！
+文章观点部分仅代表作者本人。
 
+（本项目当日持续更新中）
 
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
 
-
-
-> 突然明白为什么中共国强制打疫苗…让所有老人打中国疫苗，是解决破产的养老金制度的好办法啊！ [https://t.co/lRA6M4PAU7](https://t.co/lRA6M4PAU7)
-> — 瞿水台 Qu Shuitai (@QuShuitai) [April 7, 2021](https://twitter.com/QuShuitai/status/1379880693526896649?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-H&M等公司在中国遭抵制事件，突显出那些依靠中国的国际服装品牌面临的问题根源： 如果不能从供应链中去掉新疆棉花，这些公司将遭到华盛顿的执法行动。但是，放弃新疆棉花会给自身带来麻烦。
-
-
-
-
-
-> H&M等公司在中国遭抵制事件，突显出那些依靠中国的国际服装品牌面临的问题根源：
-> 如果不能从供应链中去掉新疆棉花，这些公司将遭到华盛顿的执法行动。但是，放弃新疆棉花会给自身带来麻烦。[https://t.co/KpQlo6KPO2](https://t.co/KpQlo6KPO2)
-> — 纽约时报中文网 (@nytchinese) [April 7, 2021](https://twitter.com/nytchinese/status/1379765910618042368?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-刘善虑 -俄亥俄州立大学病毒和新发传染病项目主任 -疫情以后多次接受中共媒体采访为新冠自然来源背书 -和中科院以及空军医学院合作紧密
-
-
-
-
-
-
-
-> 刘善虑
-> 
-> -俄亥俄州立大学病毒和新发传染病项目主任
-> 
-> -疫情以后多次接受中共媒体采访为新冠自然来源背书
-> 
-> -和中科院以及空军医学院合作紧密 [https://t.co/bpiGgchvzk](https://t.co/bpiGgchvzk) [pic.twitter.com/etXms0eSkB](https://t.co/etXms0eSkB)
-> — 李昂纳多 (@RealLiAngNaDuo) [April 7, 2021](https://twitter.com/RealLiAngNaDuo/status/1379917809191428100?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-有趣的是，李芳博士还删除了他在明尼苏达大学的博士后经历。 顺便说一句，方力自2002年以来一直是斯蒂芬·哈里森（Stephen Harrison）在哈佛实验室的博士后。而傅高博士（中国疾病预防控制中心负责人）则于2001年在同一实验室完成了博士后工作。
-
-
-
-
-
-> Interestingly, Dr. Fang Li also deleted his post-doc experience from profile in the University of Minnesota. 
-> BTW, Fang Li was a post-doc in Stephen Harrison’s lab in Harvard since 2002. While Dr. George, Fu Gao (China CDC head) finished his post-doc in the same lab in 2001. [https://t.co/becUjL5nJF](https://t.co/becUjL5nJF)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 7, 2021](https://twitter.com/DrLiMengYAN1/status/1379813194156408837?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-纳瓦罗在战斗室证明为什么新冠来自于武汉病毒实验室 1.前疾控中心主任说新冠是武汉实验室改造的 2.福奇好友达扎克炫耀他们在武汉实验室改造病毒 3.奥卡姆剃刀原则 4.科学家们检验了成千上万种可能性，但至今未找到宿主 QED证毕 纳瓦罗特别强调福奇用美国纳税人的钱，美国的技术帮中共制造病毒
-
-
-
-
-
-> 纳瓦罗在战斗室证明为什么新冠来自于武汉病毒实验室
-> 1.前疾控中心主任说新冠是武汉实验室改造的
-> 2.福奇好友达扎克炫耀他们在武汉实验室改造病毒
-> 3.奥卡姆剃刀原则
-> 4.科学家们检验了成千上万种可能性，但至今未找到宿主
-> QED证毕
-> 
-> 纳瓦罗特别强调福奇用美国纳税人的钱，美国的技术帮中共制造病毒 [pic.twitter.com/c23dIJLZ32](https://t.co/c23dIJLZ32)
-> — 嘻禧僖囍 (@xi\_GLB) [April 8, 2021](https://twitter.com/xi_GLB/status/1379950200849002496?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-赵狗立坚的战狗逻辑每次都拿美洲原住民说事，先不说原住民的主要死因是天花流行，就这时间上来说，原住民和美国政府的冲突和太平天国，捻军动乱差不多 同时代。在那个时间段中国领土平民死亡人数超过一亿，种族灭绝程度远远超过美国。拜托少来点这种“关公战秦琼”的傻叉逻辑。
-
-
-
-
-
-> 趙狗立堅的戰狗邏輯每次都拿美洲原住民説事，先不説原住民的主要死因是天花流行，就這時間上來説，原住民和美國政府的衝突和太平天國，捻軍動亂差不多同時代。在那個時間段中國境内平民死亡人數超過一億，種族滅絕程度遠遠超過美國。拜托少來點這種“關公戰秦瓊”的傻叉邏輯。 [pic.twitter.com/1dG3JG1fep](https://t.co/1dG3JG1fep)
-> — Dr. Bo 🇺🇸🇹🇼🇭🇰 (@BoDiplo) [April 7, 2021](https://twitter.com/BoDiplo/status/1379795575500050434?ref_src=twsrc%5Etfw)
-
-
-
-
-
-# 墙国妄语
-
-### 04.07 环球时报 美参议院商务委员会将召开科技法案听证会，应对来自中国竞争
-
-美国国会参议院商务委员会将于4月14日举行听证会讨论一项两党合作措施。报道说，该措施旨在加强美国的技术研发，以应对来自中国的竞争。
-
-据介绍，这项《无尽前沿法案》(Endless Frontier Act)最初于2020年提出，法案呼吁在五年内投资1100亿美元资金推动美国的技术研发，该法案由参议院民主党领袖舒默和共和党参议员托德·杨共同提出。
-
-美参议院商务委员会主席玛丽亚·坎特韦尔在一份声明中说，即将举行的听证会“将讨论加强美国创新生态系统的潜在行动，包括增加美国国家科学基金会研究经费；发展科学、技术、工程和数学学科并使之多样化；提高技术转移；投资区域创新中心。”
-
-报道称，参加听证会的有特朗普执政时期的白宫科技政策办公室主任凯尔文·德勒格迈尔，美国圣母大学教务长玛丽·林恩·米兰达，以及密西西比州立大学和麻省理工学院开放式学习计划的教育工作者们。
-
-除参议院商务委员会外，路透社称，参议院外交关系委员会也在致力于立法，应对与中国的全球战略竞争。议员们7日表示，该委员会希望在本周完成有关措施草案，以便最快于下周在委员会进行表决。
-
-***简评：**多管齐下，美国各界都开始收网了！邪共已是秋后的蚂蚱。*
-
-### 04.07 参考消息 习近平同德国总理默克尔通电话
-
-习近平强调，去年我们多次沟通，为中德、中欧关系发展发挥了重要引领作用。中德、中欧加强合作，能够办成有意义的大事。希望德方、欧方同中方一道作出积极努力，维护和推动中德、中欧合作健康稳定发展，为这个多变的世界增添更多确定性和稳定性。
-
-习近平指出，中德务实合作克服新冠肺炎疫情影响及其他因素干扰，稳中有进，中国连续5年成为德国全球最大贸易伙伴，体现了中德合作的韧性和潜力。希望双方本着相互尊重、互利共赢精神，统筹推进中德各领域合作，这有助于为中欧合作和重振世界经济增添信心和动力。中国正在积极构建新发展格局，在依靠自身力量发展的同时坚持对外开放，积极参与国际分工合作。中方愿同包括德国企业在内的各国企业共享中国新一轮开放发展带来的机遇。希望德方保持开放，为两国企业扩大互利合作创造更多便利。双方应以明年中德建交50周年和北京冬奥会为契机，推进科技、教育、文化、体育等领域交流。
-
-习近平强调，当前，中欧关系面临新的发展契机，也面临着各种挑战。关键是要从战略高度牢牢把握中欧关系发展大方向和主基调，相互尊重，排除干扰。中国发展对欧盟是机遇，希望欧盟独立作出正确判断，真正实现战略自主。中方愿同欧方一道努力，协商办好下阶段一系列重要政治议程，深化和拓展各领域务实合作，在气候变化等全球治理问题上加强沟通，共同践行多边主义。
-
-习近平指出，疫苗是用来防病救人的，中方反对将疫苗政治化或搞“疫苗民族主义”，愿同德方在内的国际社会一道，促进疫苗公平合理分配，支持和帮助广大发展中国家获取疫苗，为人类共同早日战胜疫情作出贡献。
-
-默克尔表示，欧方在对外关系方面坚持自主。当今世界面临很多问题和挑战，更加需要德中、欧中合作应对。欧中加强对话合作，不仅符合双方利益，也对世界有利，德方愿为此发挥积极作用。德方重视中国“十四五”规划，期待这将为德中、欧中合作带来新的重要机遇。德方愿同中方一道筹备好新一轮德中政府磋商，尽快恢复人员往来，加强抗疫、气候变化、生物多样性等领域交流合作，希望就疫苗公平分配、相互认证等问题同中方保持沟通。德方愿为昆明生物多样性大会取得成功作出贡献。
-
-***简评：**默克尔什么时候退休啊！？还不明白跟着共产党，走进火葬场！*
-
-### 04.07 人民日报 中国应对疫情的成绩有目共睹
-
-中国拥有全球领先的组织能力，基于科学应对疫情，在抗疫过程中保持高度透明，同世界卫生组织进行了充分合作
-
-2020年，中国经受住了新冠肺炎疫情的考验，成绩有目共睹。中国如何能够完成这些令人难以置信的壮举？原因是多方面的。
-
-中国拥有全球领先的组织能力。10天左右时间建成两座传染病医院；短时间内在千万人口的城市开展全员核酸检测……这些在很多西方国家民众眼中难以想象的事情，中国都做到了。
-
-中国基于科学应对疫情。西方一些人将疫情政治化。美国一些政客对新冠肺炎疫情轻描淡写，美国政府在疫情之初甚至不建议民众戴口罩。更糟糕的是，西方一些媒体批评中国的科学防疫政策。当中国通过“封城”、扩充重症定点医院和救治床位，实施社区封闭式、网格化管理，推广个人“健康码”等措施全力防控疫情的时候，西方一些媒体却批评这些做法是“不讲人权”。而事实是，中国拯救了生命。
-
-中国在抗疫过程中保持高度透明。新冠肺炎疫情出现不久，中国科学家很快识别病毒，并在国际上共享病毒的基因组测序数据。2020年1月底，中国的医生已描绘了新冠肺炎患者的临床特征、人际间传播、基因组特点以及流行病学特征，并在英国医学期刊《柳叶刀》发表研究论文，向全世界警示新冠病毒带来的威胁。
-
-中国同世界卫生组织进行了充分合作，这让那些阴谋家感到沮丧。西方一些人诋毁中国抗疫，这些都是政治操弄。他们对2019年年底意大利、法国、美国出现新冠病毒踪迹的事实视而不见。
-
-中国的英雄包括各行各业的工作者。从医护人员到政府官员，从工人到快递员，每个人都作出了奉献并孜孜不倦地工作。志愿者们也发挥了重要作用，数百万名注册志愿者深入社区开展健康监测、入户排查、困难帮扶等志愿服务。
-
-中国采取最全面最严格最彻底的疫情防控措施，在遏制病毒传播和恢复经济方面发挥了关键作用。中国秉持人类命运共同体理念，体现在支持全球抗疫的具体行动中——比如，中国向有急需的发展中国家提供新冠疫苗援助，并向40多个国家出口疫苗。
-
-总而言之，中国出色应对了疫情。虽然一些抗疫措施无法简单照搬到西方，但美国可以学到很多东西。过去几年，一些冷战狂热者和美国例外主义的拥护者破坏了美中关系。事实上，美国需要客观地了解中国。没有任何民族或文化是完美的，我们可以而且必须互相学习。
-
-***简评：**日民日报敢不敢去清点一下武汉去年新建的墓碑？！以假治国！*
-
-
-
-*编辑：扬眉剑出鞘*
-
-*审核：星空無垠*
-
-*发布：文顾*
- 
 0
