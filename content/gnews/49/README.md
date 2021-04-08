@@ -1,63 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【深度】共产党将如何灭亡（文化篇）（一）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1049066/)
+## 川普总统批评佐治亚州新选举法过于软弱
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1062601/)
 
-五月花写作组 ｜ 作者：义武奋扬 ｜ 编辑、美工、发布：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/04/共产党将如何灭亡文化篇v1.jpg)
-### 往期链接：
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-[【重磅】共产党将如何灭亡（政治篇）（一）](https://gnews.org/zh-hans/1035906/)
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/G-5.jpg)mjpureplayindex.com
+以拜登为首的左派大张旗鼓地攻击佐治亚州的选举改革法，川普总统则针锋相对，在反击左派、力挺佐治亚州的同时，也批评了佐治亚州选举改革法的不足，昨晚川普总统发表声明，对过长的选举时间提出了批评。
 
-[【重磅】共产党将如何灭亡（政治篇）（二）](https://gnews.org/zh-hans/1039040/)
+声明全文如下：
 
-[【分析】共产党将如何灭亡（经济篇）（ 一）](https://gnews.org/zh-hans/1047042/)
+2021年4月6日
 
-[【分析】共产党将如何灭亡（经济篇）（ 二）](https://gnews.org/zh-hans/1058320/)
+美利坚合众国第45任总统唐纳德·川普的声明
 
-[【分析】共产党将如何灭亡（经济篇）（三）](https://gnews.org/zh-hans/1058773/)
+佐治亚州的选举改革法过于软弱，无法确保真正的选票真实和完整！选举日应该是选举日，而不是选举周，或选举月，投票的时间太长了，在这么长的一段时间里，可能会发生太多的“恶作剧”，你在2020年的总统选举中看到了这一点，鲁比·弗里曼（Ruby Freeman，笔者注：疑似舞弊的、佐治亚州民主党手提箱嫌疑人）怎么样了？
 
-* * *
+州长布莱恩·肯普（Brian Kemp）和佐治亚州的州务卿本应消除无借口、泛滥的大规模邮寄投票，避免危险和不安全的投递箱，并应保持和扩大签名验证，以与历史选民档案进行匹配，等等！希望里诺（RINOs，共和党）一家开心。
 
-在共产党这里，经济决定政治操作思路，政治决定经济运行方向，那么文化就是在这两者之间空隙一个填充。政治经济篇已讲，这次开启文化篇，尝试指出共产党不可遮蔽的文化死穴。
+坎普也向激进的左翼暴徒屈服了，他们威胁说，如果他取消周末的投票，他们会称他为种族主义者。看看，他（坎普）保留了这些条款，他们还叫他种族主义者！（声明完）
 
-众所周知，共产党是靠暴力和欺骗起家的，暴力是枪杆子，欺骗就是靠笔杆子，靠文化宣传。虽然看似笔杆子无用，但无论是谁要搞事，除了要钱招兵买马以外，也要笔杆子洋洋洒洒写一些东西，给予队伍合法性，增强组织力。
+宪政危机在发酵、博弈中，静待观察其它摇摆州，以及事态的发展。
 
-从大泽乡鱼腹藏书到辛亥革命的排满宣传（清朝类似于当今共产党，也是以寡暴众，主动放弃权力不可能，那时若不把清朝和中国分开，照样行不通，要成功必先剪掉辫子再挑起这场争论焕发大多数人汉民族自尊心，当清朝灭亡后则立即实行五族共和，就无须搞排满），中间连大漠铁木真和东北努尔哈赤都创造文字建立国家发布檄文攻伐敌人，即使知道自己阵营百分之九十九大字不识的文盲，但仍然这样干，为什么？就是创造合法性，提升逼格，凝聚人心，给自己阵营加士气。
+声明链接：https://twitter.com/JennaEllisEsq/status/1379588554519670793/photo/1
 
-可见对于想搞事的豪杰或者野心家来说，宣传工作是必不可少的。而共产党尤为甚之。 且不说共产党在日本侵华前夕煽动无知热血的青年逼迫准备不足的国民政府开战，在国共争霸之时，利用统战和宣传给自己塑造合法性，在撕破伪装之前，取得海内外广泛支持，为赢得天下创造充分条件。
+声明文字整理：
 
-共产党的文宣水平在那时还是有独到之处，善于发掘人性的弱点，加以扩大，为他们所利用，如果再结合发生的时事，更是风助火势，借机上天，夺权后宣传也是共产党最重视的一块之一，中央有管宣传的常委，地方宣传主管也是当地党委常委之一。
+April 6, 2021
 
-“革命”这个词最早来源于汤武革命，顺天应人，夏桀做了什么恶目前只能从史料中找，但商朝的残暴从今天安阳的殷墟随处可见支离破碎一群群被殉葬的骷髅头颅可以证明（可能包含食人行为），而比之更甚的纣王那就有过之而无不及。周武王以微弱之众击败殷商，随后颁布周礼明令禁止这种行为，摒弃血腥无道，重建人伦纲常，作为殷商后裔的孔圣人一生所追求的就是这些，正义邪恶，一目了然。
+Statement by Donald J Trump, 45th President of the United States of America
 
-由此可见“革命”这个词是好词，但共产党毁词不倦，日本战败后，由于没有外敌，于是把在日本侵华时期唱的“爱国”调子调低，把之前降低的“革命”调子全力以赴抬到最高，再把共产党和革命两字紧密结合起来，宣传口子为“革命”二字疯狂造势，刷上一层闪闪发光的金漆，烙刻在每个人心里，从而为后续行为铺路。
+Georgia’s election reform law is far too weak and soft to ensure real ballot integrity! Election Day is supposed to be Election Day, not Election Week or Election Month. Far too many days are given to vote. Too much “mischief can happen during this very long period of time. You saw that in the 2020 Presidential Election. How’s Ruby Freeman doing?
 
-此后如镇反土改中，把潜在敌对势力安插上反革命罪名枪毙，再以这个理由抢夺对方财产。只要成了反革命，即使是大善人，那也是该杀，把社会中层名声搞臭搞烂又肉体消灭的做法着实把政治花瓶可吓坏了，此后更不敢说半句共产党不爱听的话。
+Governor Brian Kemp and Georgia Secretary of State should have eliminated no-excuse, widespread mass Mail-In Voting, gotten rid of the dangerous and unsecure Drop-boxes, and should have kept and EXPANDED Signature Verification to do matches against the historical voter file, among other things! Hope theRINOsare happy.
 
-干掉中层，压服上层，那么在土地国有和资本改造中没有中层组织对抗，没有上层发声的情况下，没有一丝杂音，共产党宣传口配合造势，共产党就能随意以“革命”名义抢劫和破坏杀戮，底层自然毫无应对之力。
-
-对外共产党找准定位，与美苏陆续翻脸的情况下，打反侵略，不干涉内政旗号，占据宣传制高点，深得亚非拉那班人渣恶棍的欢心，可以名正言顺虐待人民，一旦有国家看不过眼要干预，就可以开启宣传工作指责对方，顺带欺骗一波民众，真是“美妙”。
-
-其后直到改开前，对国内斗完党外，对党内也是给对方插上“反革命”的标签，反右、文革、抓捕四人帮莫不如是。对外除了团结亚非拉人渣恶棍以外，顺便输出革命，辅以大撒币政策，例如日本赤军和波布尔特红色高棉等等。
-
-文革结束后，政权依然被华国锋这样的后起之秀把持，而且因为华国锋依然选择扛毛旗。那么文革被打倒的老干集团自然无法掌权，即使被恩准出山，也只能做个闲职。
-
-被后起之秀压在头上让这些老头难以忍受。怎么办？无论文革前是何种派系的老头老太都达成共识，把“革命”的声音调低，才能给自己派系后续行为增加合法性。
-
-（未完待续）
-
-* * *
-
-（本文仅代表作者个人观点，与GNews平台无关）
-
-* * *
-
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
-
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
-
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+Kemp also caved to the radical left-wing woke mob who threatened to call him racist if he got rid of weekend voting. Well, he kept it, and they still call him racist!
 
 0

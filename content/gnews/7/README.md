@@ -1,246 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0407.2021（下）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1063019/)
+## 鸡腿潘不能再花钱请律师而要征集建议和指导回应郭先生官司了
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1063362/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-3.png)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)
-图片来源：康州盘古农场 霹雳年
+鸡腿潘[细思极恐@xiteller](https://twitter.com/xiteller)于[下午9:23 · 2021年4月7日](https://twitter.com/xiteller/status/1379786820955762695)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布了推文——
+![]()![](https://gnews.org/wp-content/uploads/2021/04/捕获1.png)
+鸡腿潘从来不是关注的重点，所以真的不知道鸡腿潘是从什么时候开始砸郭的，但是根据郭文贵先生在[2019年12月30日文贵报平安谈：2020是霹雳年，不能让任何人阻挡爆料革命！](https://livestream.com/accounts/27235681/events/8197481/videos/200302949)直播中提到的鸡腿潘的种种恶行：
 
-## 中共病毒疫苗危机 & 反对疫苗纳粹
+［有些人脑子是绝对有问题的，什么似是而非的问题，非常的夸张。就这两天，你们能看到，关于这个细思骗子，鸡腿丝这个家伙基金的事情。很多战友根本不了解真相。你们去看看细思当年，2017年18年的时候，我让他给潘晴去，他主动给当时的潘晴，还有安红女士，还有当时的昭明先生去所谓的建设网络的时候，他是按小时算钱的，我们当时是给了他钱的。细思当时是第一个，是澳洲第一个人，我给了他1万澳元的。他要1万澳元，我连一秒钟都没犹豫，立马给他了，比潘晴，比任何人都早。是第一个给他钱的，他那时候狗屁不是的时候，我就给了他1万澳元。啥都没有说，就给了他1万澳元。当时他说我要干什么干什么，我说好，你把账号发给我，立马给1万，比郭宝胜还早。然后让细思去帮助潘晴和安红，昭明先生架网络的时候，要按小时收钱。收的钱，潘晴给我发信息，原话说这个人收钱是澳洲最高的。我说这个你完全有你们决定，我给你一个月1万2万澳元，你拿这钱，付不付由你来决定。大家后来你知道，他啥也没干，他把他自己架起来了。
 
-2021年4月7日《生活网站新闻》报道–美国保守派政治家们正在对中共病毒大流行疫苗护照的未来发出警报，这些疫苗护照已经由纽约州发行，拜登政权以及全球众多政府和公共及私人组织正在开发。众议员麦迪逊-考森（R-NC）告诉福克斯新闻：
+另外当时，细思这个人，当时做了一系列的东西，就提出这样钱那样钱的要求，最早分化澳洲的不是任何人，是细思，你们知道吗。这咱未来都可以把证据亮出来，最早告诉我潘晴和安红不能相信的，包括昭明不能相信的，就是细思。大家知道吗？你们没想到吧。
 
-“像这样的提议有20世纪40年代纳粹德国的味道。我们必须尽一切努力，不让美国成为一个‘出示证件的社会’”。“宪法和我们的建国原则谴责这种类型的极权主义。”
+细思到我们喜马拉雅大使馆来，他在这凑凑呼呼，粘粘糊糊在那来了，连鸡腿钱、住宿钱、亲朋钱、麦当劳钱全报了，花了几万美元以后走了。走了以后他干什么，未经任何人允许，未经我，未经王艳平允许，他给我们的印度籍美国人工程师发Email，要求喜马拉雅大使馆把所有的IP地址，把所有的整个的电脑的内部信息和源代码，包括郭媒体全部给他。这都是用Email联络方式说了算。
 
-虽然白宫宣称不会强制发放疫苗护照，但美国卫生与公众服务部（HHS）内部的一个部门却预测，”疫苗证书 “将成为参加普通活动的 “事实要求”。
+你觉得这正常吗？当时我们的法国人员当时就火了，说这个人有什么用心啊？安保也不愿意了。我说停停停，这事儿到此为止，既不要说也不要提。就像报销一样，财务不愿意，说这是什么概念，你没有任何（票据）报销这是诈骗啊，我怎么能干这事儿。我说没让你干，美国人又较真，没让你干你别报，这钱我报，我来给他。
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/vaccine_card_1_810_500_75_s_c1.jpg)
+他来之前他来之后，庄烈宏先生不下3到5次跟我说，他建议细思到这来，包括后来这事儿那事儿找细思。我明确告诉庄烈宏，你不要找细思，到此为止，你不要占人家时间，不要麻烦人家。
 
-图片和新闻来源[生活网站新闻](https://www.lifesitenews.com/news/vaccine-passports-unconstitutional-smack-of-1940s-nazi-germany-republicans)
-佛罗里达州州长罗恩-德桑蒂斯（Ron DeSantis）发布行政命令，禁止公共和私人实体使用疫苗护照。他的命令让支持自由的美国人欢呼雀跃，他警告说，要求 “参加日常生活–如参加体育赛事、光顾餐馆或去电影院–必须使用所谓的COVID-19疫苗护照，会造成两类公民”。
+这个细思的故事还没开始呢，过两天我们把细思那些通信，把细思的一些行为和最早于支持他的钱，这个人是狼贼野心啊。两年来我们为细思站台，说了真的有几百次上千次吧，细思说过我们爆料革命几次，说过郭文贵几次？最早给他钱的人，最早买电脑，最早买设备的人，结果是在“东京爆协”之后，他又出了个“澳洲爆协”，就是“东京爆协2.0”。就在这个时候还有一些脑子不清楚的人，出来为细思说话，你不是有毛病吗？
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/florida-governor.jpg)佛罗里达州州长罗恩-德桑蒂斯和家人
+竟然是把细思的问题变成了路德的问题，变成了老江的问题，变成了安红的问题。我大概在一两个月以前我就告诉过路德先生，我说你千万要记住，细思这问题他不是砸你的，他是砸老江、砸安红。路德先生傻乎乎的不明白，到现在他都不明白。我说你别说话，你Low住，让他尽情地表演。他为啥去砸老江、砸安红啊？把你路德的左膀右臂砍掉，你不就成光棍儿了吗？他就没明白，路德先生傻乎乎的。是吧郭先生，会不会怎么着啊？我说你Low住。］
 
+如果鸡腿潘公开砸郭从2019年12月30日郭先生与他切割的那一天开始算起，到2021年4月7日鸡腿潘要公开征集自我建议为止，这中间经历了16个月零7天。在这16个月零7天的时间里鸡腿潘甘冒天下之大韪公开砸郭，现在他终于要不再花钱请律师而要征集“自我代表有经验的”给他一些建议和指导了。
 
-小唐纳德-川普6日推文：“如果你是一个在办公室里工作的共和党人，你没有声嘶力竭地反对 “疫苗护照”，可能是时候找到另一个职业了。如果你不认为这是一个问题，这个疫苗护照的概念可能是近代史上对我们自由的最大侮辱。”
+鸡腿潘现在有困难了，鸡腿潘现在有病了，既然有困难了就一定要帮助他解决困难，既然有病了就一定得给他治治病，那么都有哪些人会有“自我代表经验”、会有应对郭先生官司的经验呢，请鸡腿潘记好了，马上与这些人联系——夏业良、郭宝胜、韦石、熊宪民、黄河边，还有正在积累经验值的九指妖，只有这些人有过和正在积累与郭先生打官司的经验，相信从这些人那里鸡腿潘同志可以得到足够的经验和丰富的教训。
 
+鸡腿潘在撕下画皮之后终于变成了大家都厌恶的模样，蛇鼠本一窝，鸡腿潘与夏业良、郭宝胜、韦石、熊宪民、黄河边、九指妖等砸郭者终于殊途同归了，这一次请鸡腿潘一定好好感谢那些符合条件能给他建议和指导的、有自我代表经验的、能够应对郭文贵先生官司的人，当然啦这些人的建议和指导一定要免费，当然啦这些人要是能够在提供建议和指导之外再夹张支票，那鸡腿潘家的祖坟就要冒青烟了，相信鸡腿潘一定会诚惶诚恐地感谢给他提供支票者顺带再感谢提供支票者的八辈儿祖宗啦！
 
+（文章内容仅代表作者个人观点）
 
-> If you’re a republican in office and you’re not vocally and aggressively opposing “vaccine passports” it may be time to find another career. 
-> 
-> This concept could be the greatest affront on our freedoms in recent history and if you don’t see that it’s a problem.
-> — Donald Trump Jr. (@DonaldJTrumpJr) [April 6, 2021](https://twitter.com/DonaldJTrumpJr/status/1379409607165161472?ref_src=twsrc%5Etfw)
-
-
-
-得克萨斯州国会议员保罗发推：
-
-“疫苗护照”必须停止。
-接受这些护照意味着接受政府拥有你的生命、身体和自由的错误观念。
-
-反对 “疫苗护照 “的呼声一直很高。
-我们决不能松懈。
-
-
-
-> "Vaccine passports" must be stopped.
-> 
-> Accepting them means accepting the false idea that government owns your life, body and freedom. [pic.twitter.com/nmlP2SN6iw](https://t.co/nmlP2SN6iw)
-> — Ron Paul (@RonPaul) [April 5, 2021](https://twitter.com/RonPaul/status/1379161223145656320?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> Opposition to "vaccine passports" has been tremendous.
-> 
-> We must never let up. [pic.twitter.com/eYaZMX2O4T](https://t.co/eYaZMX2O4T)
-> — Ron Paul (@RonPaul) [April 7, 2021](https://twitter.com/RonPaul/status/1379877239261696014?ref_src=twsrc%5Etfw)
-
-
-
-众议员乔丹5月29日曾发推：
-
-拜登政府
--正在考虑给美国人发放 “疫苗护照”
--但当涉及到非法移民跨越南部边境时，似乎并不关心护照。
-
-
-
-> The Biden Administration:
-> 
-> -Considering a “vaccination passport” for Americans. 
-> 
-> -But doesn’t seem to care about passports when it comes to illegal migrants crossing the southern border.
-> — Rep. Jim Jordan (@Jim\_Jordan) [March 29, 2021](https://twitter.com/Jim_Jordan/status/1376549255175880704?ref_src=twsrc%5Etfw)
-
-
-
-4月7日据《生活网站新闻》，德国卫生部长延斯-斯帕恩在复活节周日宣布，接受过两针授权的COVID-19疫苗的任何公民“都可以去商店或理发店，而不需要进一步测试。除了可以再次应用于 “非必要”业务外，接种过疫苗的德国人还将获得国际旅行的自由，回国后不会被要求进行检疫。“所以，任何已经完全接种疫苗的人，将来都可以像检测结果为阴性的人一样被对待。”
-
-英国首相鲍里斯-约翰逊（Boris Johnson）承诺，按照 “走出封锁的路线图”，从6月21日起全面重新开放英国经济，他周二对BBC表示，5月17日将恢复室内用餐，“你不需要任何……那种（疫苗）证书”就可以去酒吧和餐馆。不过，他明确表示，未来的海外旅行将不可避免地需要一些疫苗证明的内容。
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/vaccine-passport.jpg)
-
-图片和该新闻来自生活网站新闻
-文章附上“拒绝疫苗请愿书”，欧洲的读者或者改变VPN为欧洲地区的读者可以[访问文章中图片嵌入的链接进入请愿网站](https://www.lifesitenews.com/news/germans-who-are-fully-vaccinated-to-have-more-freedoms-than-those-who-arent)。
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/no-vaccine-passport-petitions.png)
-
-[https://www.lifesitenews.com/news/germans-who-are-fully-vaccinated-to-have-more-freedoms-than-those-who-arent](https://www.lifesitenews.com/news/germans-who-are-fully-vaccinated-to-have-more-freedoms-than-those-who-arent)
-
-
-今日《生活网站新闻》报道4月2日著名的《英国医学杂志》(BMJ)上，来自伦敦的顾问普利亚科娃博士，该杂志一篇题为 “医生必须注射COVID-19疫苗吗？”的文章，发出一封措辞强烈的信，指出在注射中共病毒大流行疫苗后，工作人员的病痛程度 “前所未有”，称注射的 “强迫和强制 ”为让人联想到 “纳粹的荒诞”。
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/shutterstock_1898118712_810_500_75_s_c1.jpg)
-
-[图片和该新闻来自生活网站新闻](https://www.lifesitenews.com/news/london-doctor-describes-unprecedented-level-of-sickness-after-covid-injection)
-信文称，截至3月21日，英国有超过494,114例注射后的不良副作用报告。其中，有5230例心脏疾病、103例心脏骤停、140例瘫痪和704例死亡。另有76人失明，45人自然流产，8,552人精神失常。美国疫苗不良事件报告系统（VAERS）的数据显示，美国有2249人在注射疫苗后死亡，这一数字占1990年开始记录以来VAERS记录的所有疫苗死亡总数的20%以上。
-
-新闻指出，尽管如此，注射仍在继续推广，据悉首相鲍里斯-约翰逊和卫生大臣马特-汉考克计划对护理院和社会护理人员实施强制注射。英国《电讯报》透露，两人一直在合作，进行法律修改，实现强制注射。
-
-
-
-## 摆脱中共国依赖
-
-6日《华盛顿时报》发表文章：“美国对中国的依赖是一场等待发生的灾难”，忽视美国的矿业，将矿产和金属外包，使美国的生产基地进展，造成了毁灭性的后果。
-
-克鲁兹议员今日转推这一文章称，“美国对中国稀土元素的依赖是危险的，这对我们的国家安全是一种威胁。”
-
-
-
-> America’s dependence on China for rare earth elements is dangerous and it’s a threat to our national security.[https://t.co/gNKvvDcnUq](https://t.co/gNKvvDcnUq)
-> — Senator Ted Cruz (@SenTedCruz) [April 7, 2021](https://twitter.com/SenTedCruz/status/1379856721275985923?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 抨击拜登处理香港和中共国问题
-
-今日蓬佩奥先生接受哈德逊研究所访谈时发表讲话。[点击链接收听讲话内容](https://www.hudson.org/research/16812-counterbalance-ep-6-mike-pompeo-on-china-iran-and-the-future-of-american-foreign-policy)。他的推文如下。
-
-
-
-> 前国务卿迈克·蓬佩奥：
-> 你在外交政策中能做的最糟糕的事，是作出承诺却无法兑现。我们在奥巴马处理叙利亚事务中看到了这一点。现在我们在拜登处理 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 和香港问题上又看到这一点。
-> 更多见[@HudsonInstitute](https://twitter.com/HudsonInstitute?ref_src=twsrc%5Etfw)
-> 
-> 【转[https://t.co/RNosMaDne7](https://t.co/RNosMaDne7)：抗衡| 第6期：蓬佩奥谈中国、伊朗、和美国外交政策的未来】 [https://t.co/vtCd40jkBD](https://t.co/vtCd40jkBD)
-> — 川普等政要…直译推 (@zhiyitw33) [April 7, 2021](https://twitter.com/zhiyitw33/status/1379891293837492227?ref_src=twsrc%5Etfw)
-
-
-
-
-
-人口研究会主席史蒂文-W-莫舍推文： 今晚10点在@英格拉姆角度，我们将讨论为什么美国–以及所有尊重人权的国家–应该抵制2022年在中（共）国举行的冬奥会。
-
-莫舍先生转推了3月21日发表在《纽约邮报》的文章。全文翻译如下，[点击查看原文](https://nypost.com/2021/03/13/why-the-world-must-boycott-the-beijing-winter-olympics-in-2022/)。
-
-
-
-> On the [@IngrahamAngle](https://twitter.com/IngrahamAngle?ref_src=twsrc%5Etfw) tonight at 10 p.m. to talk about why the U.S.–along with all countries that respect human rights–should boycott the Winter Olympics in China in 2022.[https://t.co/90ZQNQSBkQ](https://t.co/90ZQNQSBkQ)
-> — StevenWMosher @StevenMosher on Parler (@StevenWMosher) [April 7, 2021](https://twitter.com/StevenWMosher/status/1379889017026646025?ref_src=twsrc%5Etfw)
-
-
-
-为什么全世界必须抵制2022年北京冬奥会？
-
-2022年冬奥会目前定于明年2月在中国北京举行。但要求将其移至更有利于自由的场地的声音越来越大。
-
-去年9月，一个由160个人权组织组成的联盟呼吁国际奥委会（IOC）“扭转授予北京举办冬奥会荣誉的错误”。
-
-据前国务卿蓬佩奥（Mike Pompeo）称，川普政府也曾推动国际奥委会移动奥运会。蓬佩奥现在希望美国完全抵制即将到来的奥运会。
-
-两周前，加拿大议会也加入了这一行列，敦促国际奥委会剥夺北京举办2022年奥运会的权利，除非它结束对维吾尔人的种族灭绝。
-
-正在进行的维吾尔族种族灭绝–通过大规模监禁、强迫堕胎和现代奴隶制进行–在蓬佩奥所说的中共的 “肮脏活动 “中名列前茅。但这肯定不会穷尽它。
-
-在北京举办奥运会，是对每一个西藏民族主义者、每一个中国政治异见者、每一个因个人信仰而在中国监狱中煎熬的天主教徒、基督徒或佛教徒的侮辱。
-
-今天中国的人权状况在许多方面比我在1980年代初面对中国残酷的独生子女政策时还要糟糕。
-
-它们比2008年夏季奥运会在北京举行时还要糟糕。
-
-而随着冬奥会的日益临近，未来几个月的情况可能会更加糟糕。
-
-对我来说，2008年奥运会最令人不安的方面之一是新体育场馆的建设。你看，中国的体育场不仅用于体育比赛，还用于公开处决。
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/olympic-preparation.jpg)
-
-
-就像古罗马的斗兽场一样，这些体育场兼作杀人场，数以千计的人在没有经过正当程序的情况下被处决。中国每年执行死刑的人数仍然比世界其他国家的总和还要多。
-
-处决的那天，体育场的看台上挤满了人。他们是根据官方的命令到场的，目的是为了目睹那些触犯党纪国法的人的下场。
-
-犯人–有时有好几个–被带进场内，被迫跪在场中央。在宣读完他的罪行后，他的后脑勺被一枪打死。
-
-西方人可能认为即将到来的冬奥会是对人类精神的庆祝，但中共认为这是一次大规模的宣传活动。
-
-我们知道该党将遵循的剧本。我们以前也见过。
-
-在2008年奥运会之前，北京的面貌焕然一新，建筑物被翻新，城市非法居民被赶出城市，他们的小屋被拆除。
-
-当局甚至把枯草都刷成了绿色。
-
-在扫荡街道的同时，他们还扫荡了各种异见人士，把他们放逐到劳改营和监狱。
-
-这一次的管制将更加严格。国际媒体到达北京后，会发现这个城市已经被消毒，所有可能的抗议活动都被消灭了。
-
-更多的监控摄像头将被安装，更多的面部识别技术被利用，更多的人工智能被部署。比赛现场及周边的人口将被实时监控，任何异议或骚乱都会在发生之前被扼杀。
-
-这些都是说，奥运会不会给中国带来改变，反而会产生新一轮的迫害。
-
-一旦2022年冬奥会结束，运动员和国际媒体离开，赛场也将再次成为杀人场。
-
-奥运会的最高境界是颂扬人类精神。它不仅仅是冰上曲棍球或雪橇跑、大回转或滑冰，而是男女个人在人类各个领域中努力做到最好。
-
-这就是为什么运动会应始终在尊重人权的国家举行。这也是为什么北京这个每天都在违反这种首要精神的地方，会成为2022年冬奥会的糟糕选择。
-
-不应该让中共将其暴行隐藏在体育比赛的戏剧背后。
-
-因为如果把奖牌发给侵犯人权的国家，中（共）国每次都会获得金牌。
-
-
-
-## 亨特拜登的硬盘门还没结束
-
-Newsmax 今日发表新闻，“亨特-拜登在撒谎”。@BernardKerik和@SheriffClarke对亨特-拜登笔记本电脑上的资料作出回应，他们认为这是 “令人发指的犯罪行为” [http://nws.mx/tv](https://nws.mx/tv)。
-
-
-
-> 'Hunter Biden is lying': [@BernardKerik](https://twitter.com/BernardKerik?ref_src=twsrc%5Etfw) and [@SheriffClarke](https://twitter.com/SheriffClarke?ref_src=twsrc%5Etfw) react to the alleged material on Hunter Biden's laptop that they see as 'outrageous criminality.' [https://t.co/VlT7z8drtO](https://t.co/VlT7z8drtO) [pic.twitter.com/ux5Wi0lIlN](https://t.co/ux5Wi0lIlN)
-> — Newsmax (@newsmax) [April 7, 2021](https://twitter.com/newsmax/status/1379921929252048904?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 川普总统动向
-
-据Politico, 川普沉寂数月后重启筹款机器。前总统正在重启他的电子邮件和短信，并开设了一个新的在线商店，其中包括 “不要责怪我–我为川普投票 “的赠品。
-
-
-
-> 🔥Trump relaunches his fundraising machine after months of quiet🔥 [https://t.co/UzJrb60qFM](https://t.co/UzJrb60qFM) via [@politico](https://twitter.com/politico?ref_src=twsrc%5Etfw)
-> — Jason Miller (@JasonMillerinDC) [April 7, 2021](https://twitter.com/JasonMillerinDC/status/1379905666362572802?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
-
-0
++1
