@@ -1,11 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 盘古大观开始摘龙珠
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1063984/)
+## 2021年4月7日秘翻快报【头条新闻】
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1064419/)
 
-摘要：中共开始摘盘古大观的龙珠了。
+新闻总结：
 
-**By：【秘密翻译组 G-Translators】**
+1. 中共国强制施打疫苗乱象日趋严重
+
+2. 华为公开监听专利
+
+3. 布雷特·温斯坦：四类证据都明显指向中共病毒来自实验室
+
+4. 立陶宛退出中共17+1机制 为欧盟榜样
+
+5. GNEWS文摘《世卫顾问称压倒性证据表明病毒来自实验室》
 
 0
