@@ -1,59 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 危宏平和黄艳玲上了榜单是否意味着武毒所零号病人已板上钉钉
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1065080/)
+## 脸书（Facebook）竟然允许中共就新疆种族灭绝行为做虚假广告
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1065193/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-7.png)
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+【日本东京方舟农场】  翻译：Jay Cheung   校对：miumiu law
 
-Lawrence Sellin博士[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午2:57 · 2021年4月8日](https://twitter.com/LawrenceSellin/status/1380052151964213248)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布了推文——
+据《华盛顿观察家报》近日报道，最近在脸书（Facebook）上有来自中共政府的广告，将维吾尔穆斯林在遭受中共实施种族灭绝的行为，描绘成一派欣欣向荣的景象。国会共和党议员呼吁脸书（Facebook）禁止中共在其平台上发布这样的虚假信息和宣传。
 
+这些共和党人指责脸书的虚伪行为，脸书（Facebook）公司以“煽动暴力内容”的理由下令将前总统唐纳德·特朗普（Donald Trump）等一些保守派禁止在脸书（Facebook）上发表言论，而同时又允许那些危险的中共广告出现在平台上。他们想对那些大型科技平台公司采取激进的行动，来抵制他们对保守派的排斥行为。
 
+佛罗里达州的共和党众议员格雷格·斯蒂伯（Greg Steube）告诉《华盛顿观察家报》（Washington Examiner）说：“大型科技公司表示他们承诺防止虚假的政治信息传播，但是像脸书（Facebook）这样的科技平台却在允许中共发布掩盖他们在新疆侵犯人权行为的广告。大科技公司应该要专注于禁止这些危险的共产主义宣传活动，而不是关注对保守派的审查。”
 
-> Wuhan Institute of Virology's Hongping Wei, mentor of alleged [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) "patient zero" Yanling Huang, has links to China's military including the Third Military Medical University source of [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw)'s suspected bat [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) backbone ZC45/ZXC21.[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/sGXkDfrMER](https://t.co/sGXkDfrMER)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 8, 2021](https://twitter.com/LawrenceSellin/status/1380052151964213248?ref_src=twsrc%5Etfw)
+斯蒂伯是参议院司法委员会（the House Judiciary Committee）委员，美国司法委员会和关于反垄断以及恐怖犯罪主义的司法小组委员会，对脸书（Facebook）这类大科技公司都有司法管辖权。
 
+根据《华尔街日报》（Wall Street Journal）周五报道，中共政府正在利用脸书（Facebook） 作为宣传虚假国家信息的工具，显示穆斯林少数民族维吾尔族人在新疆地区的繁荣发展，而美国政府已经宣布他们正在新疆实施种族灭绝行动。
 
+尽管脸书（Facebook）在中共国被禁止使用，中共却经常使用这个平台发布信息和广告，向国外的亿万民众传播其政治信息。
 
-Wuhan Institute of Virology’s Hongping Wei, mentor of alleged [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) “patient zero” Yanling Huang, has links to China’s military including the Third Military Medical University source of [#COVID](https://twitter.com/hashtag/COVID?src=hashtag_click)‘s suspected bat [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) backbone ZC45/ZXC21. [#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hashtag_click) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)
+中共政府和其有关的媒体机构在脸书（Facebook）上发布广告和帖子，包括在新疆的成年人和儿童的视频，让他们在镜头前声称他们的生活越来越好，美国等西方国家正在试图破坏中共国的稳定。
 
-中文大意是：武汉病毒学研究所的危宏平，所谓的＃COVID19“零病患”黄艳玲的导师，与中共军方有联系，其中包括第三军医大学[#COVID](https://twitter.com/hashtag/COVID?src=hashtag_click)的可疑蝙蝠[＃冠状病毒](https://twitter.com/hashtag/coronavirus?src=hashtag_click)主干ZC45 / ZXC21的来源。[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hashtag_click)[＃不受限制的生物武器](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)
+但是人权组织的报告详细列举了在新疆西部地区，预计有100万至200万的维吾尔穆斯林和其他宗教少数群体正在遭受酷刑、强奸、杀戮和其他的虐待，许多人被安置在拘留中心。拜登总统上个月宣布，中共正在新疆对上百万人实施种族灭绝的行动。
 
-这一次危宏平和黄艳玲上榜了——
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-14-15.jpg)
-Lawrence Sellin博士的这则推文引出一段悬案，而这段悬案与危宏平有关、与黄艳玲有关、与石正丽有关、与武汉病毒所有关、与广受猜疑的中共冠状病毒零号病人黄艳玲有关，而这一系列的人物和机构都是围绕着黄艳玲是否为中共病毒的零号病人表演的重要角色——
+中共官员否认种族灭绝的指控，并辩解他们的“职业教育和培训中心”政策，以打击极端主义和恐怖主义。
 
-据[武汉病毒所已逝“零号病人”？当事人：我还健在](http://finance.sina.com.cn/china/gncj/2020-02-16/doc-iimxyqvz3279280.shtml)（2020年02月16日 12:25 [新京报](https://www.thepaper.cn/newsDetail_forward_6016936)）
+国会中一些关键的共和党议员正在推动脸书（Facebook）和其他主要的社交媒体平台，更加公平的执行他们的内容审查标准，阻止外国反对势力滥用其平台。
 
-［2月15日，一则关于“中国科学院武汉病毒研究所（以下简称武汉病毒所）一名女研究生黄燕玲是新冠病毒肺炎零号病人”的消息在网络流传。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/2-13.jpg)
-网络流传的截图显示，武汉（新冠）病毒肺炎的零号病人是黄燕玲，系武汉病毒所科研人员，2012年考入武汉病毒所的硕士研究生。而根据武汉病毒所发布于2011年11月4日的《2012年度推荐免试硕士研究生拟录取名单公示》显示，黄燕玲系西南交大推荐的学术性硕士。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/3-8.jpg)
-网络截图还称，黄燕玲的指导博导是危宏平，并质疑称“武汉病毒所关于黄燕玲的资料都没了，此人到底在哪里？”
+众议院能源和商业委员会（the House Energy & Commerce Committee）共和党议员助手告诉《华盛顿观察家报》说：“我们仍然能看到中共和其他专制政权利用大型科技公司，在其国界之外散布错误信息误导世界人民，包括否认他们在新疆对维吾尔穆斯林的恐怖行为。”
 
-就此事件，今日（2月16日），《每日经济新闻》记者注意到，危宏平朋友圈发文回应。其称“我近2天接到许多电话或邮件，咨询曾在本组学习过的黄燕玲同学近况，我是她导师，黄燕玲同学2015年7月硕士顺利毕业后，一直在外地城市工作。经与她本人电话确认，目前黄燕玲同学身体健康，一切安好！”
+这位高层共和党议员凯西·麦克莫里斯·罗杰斯（Cathy McMorris Rodgers）的助手说：“尽管大科技公司压制那些他们不认同的保守派政治言论，却允许那些有害的内容在社交媒体上急剧增长，（是不可思议的）。”罗杰斯参议员任职能源和商业委员会，该委员会对内容审查规定有管辖权。
 
-危宏平还称“网上与此不一致的传言皆为谣言。因抗疫工作繁忙，怒（注：原文如此）不再一一解释！”
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4-7.jpg)
-危宏萍朋友圈截图
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4-2.png)
-中国科学院武汉病毒研究所研究员石正丽朋友圈截图
+脸书（Facebook）告诉《华尔街日报》，中共有关新疆维吾尔族的广告并没有违反其现行的政策，因为广告商在购买时遵循了该平台的规定。
 
-武汉病毒所官网资料显示，危宏平是武汉病毒所研究员、新发传染病研究中心副主任、诊断微生物学学科组组长、中国微生物学会分析微生物学专业委员会委员、湖北省微生物学会理事，主要从事病原微生物检测与新型抗菌分子的研究。
+近年来，推特（Twitter）、脸书（Facebook）和其他的社交媒体巨头都面临着来自美国和欧洲各地政治派别的批评，由于俄罗斯颇具影响力的行为以及他们自己对于平台内容管理的临时方法，使他们面临审查制度和玩忽职守的指控。
 
-【名词解释】“零号病人”，通常指的是第一个患某种传染病，并开始散播病毒的病人。在流行病调查中，通常被叫做首发病例。在传染病的发生发展和传播过程中以及传染病的认知、研究过程中首发病例一直是占有重要的地位，通过对首发病例的细致调查，能为疾病来源、病因分析、预测、控制措施采用、预警机制的建立提供大量宝贵信息。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/6-2.jpg)
-相关报道　网传武汉病毒所一研究生系“零号病人”，回应：无一人感染
+共和党高层议员二月份以至于说，在民主党留给的不多选项中，抵制大公司不公平的和选择性的内容审查制度的希望，就是拆分大科技公司。
 
-2月15日，一则关于“武汉病毒研究所一名女研究生黄某某是新冠病毒肺炎零号病人”的消息在网络流传。　2月15日晚间，新京报记者就此事向中国科学院武汉病毒研究所研究员石正丽、流感病毒实验室研究员陈全姣求证。两人均表示，对病毒所是否有一位名叫 黄某某的女研究生并不掌握，但可以保证武汉病毒所目前无一人感染新冠肺炎。“怎么可能？这个一看就是假新闻。”石正丽说，“我可以保证，包括研究生在内，我们所没有一个人被病毒感染过，我们所是零感染。”对于上述信息，陈全姣也表示，“我们武汉病毒研究所没有一例感染，我们病毒所绝对不是‘零号’。”］
+保守派技术学者说，就内容审查和人权方面来说，脸书（Facebook）并没有遵守自己的规则。
 
-对照Lawrence Sellin博士[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午2:57 · 2021年4月8日](https://twitter.com/LawrenceSellin/status/1380052151964213248)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文，可以从新京报的这一则报道里看出更多的信息，首先来说危宏平和石正丽已经上榜了，武汉病毒研究所也已经上榜了，但是我们一定要再一次温习一下功课，那就是科学女巫石正丽不仅研究和制造了中共病毒，而且还对武汉病毒研究所的中共病毒零号病人黄艳玲进行了掩盖，同样的，黄艳玲的导师也对中共病毒零号病人黄艳玲进行了掩盖！
+保守派智囊团传统基金会（Heritage Foundation）的学者洛拉·里斯（Lora Ries）在向《华盛顿观察家报》发送的电子邮件中说，脸书（Facebook）没有遵循自己的人权政策。就脸书(Facebook)来说，他们不需要尽职调查就知道中共国的少数民族穆斯林维吾尔族在新疆经常遭到虐待。
 
-另外我们还要对Lawrence Sellin博士的名单进行补录，那就是新京报这则报道里附上的陈全姣——
-![]()![](https://gnews.org/wp-content/uploads/2021/04/7-2.png)
-当然了要在Lawrence Sellin博士的名单进行补录的还有很多，包括新京报在内的所有为中共病毒零号病人黄艳玲掩盖的媒体和背后的操控者稍安毋躁，排排坐，吃果果，我们要一起盯住他们，别让他们跑了！
+里斯，这位基金会技术政策中心的主任说：“脸书（Facebook）为什么同意中共在其平台做广告，却将那些基于政治观点的美国人的内容执行标记、减少甚至删除的动作？”
 
-（文章内容仅代表作者个人观点）
+评：脸书与中共勾兑早已经是不争的事实，但是在目前美国已经将中共在新疆的行为定义为“种族灭绝”的情况下，还继续与中共勾兑，允许中共在其平台发布虚假宣传来误导世界人民，实在是引起人类公愤。
+
+2020年美国大选，大科技公司的内容审查制度早已经不得人心。现在脸书敢冒天下之大不韪替中共站台，终于要受到美国监管机构的打击。译者认为大公司的内容审查制度已经走到尽头，拆分大公司或者取消《230法案》必将摆上议事日程。大科技公司的内容审查制度也将寿终正寝。
+
+注：本文仅代表译者观点
+
+原文链接：
+
+[https://www.washingtonexaminer.com/news/republicans-chinese-facebook-ads-uyghurs-banned-misinformation](https://www.washingtonexaminer.com/news/republicans-chinese-facebook-ads-uyghurs-banned-misinformation)
 
 0
