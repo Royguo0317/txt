@@ -1,44 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 脸书用户数据和电话号码泄露包括300万香港用户
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1063708/)
+## 科学家呼吁重新追查中共病毒起源
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1063779/)
 
-翻译：洛杉矶天使农场 – 烟波浩淼
-校对：洛杉矶天使农场 – 雨山溪桥客
-审核：洛杉矶天使农场 – 黎明的光芒
+俄罗斯莫斯科喀秋莎农场   银河
 
-上周六，5.33亿脸书上用户的个人数据和电话号码被发布在一个黑客论坛上。泄露的数据集似乎包括300万个香港用户。
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C.png)covid19.colorado.gov
+路透社新闻报道，一组国际科学家和研究人员周三表示，中共和世界卫生组织(WHO)对中共病毒的联合研究没有提供关于疫情如何开始的可信答案，需要更严格的调查，无论北京是否参与。
 
-来自106个国家的用户受到影响，他们的脸书 ID、全名、简历、地点、生日和电话号码都被曝光。
+针对上周世界卫生组织和中共发布的中共病毒联合研究报告，来自欧洲、美国、澳大利亚和日本的24名科学家和研究人员表示，这项研究受到了政治的影响。该报告称中共病毒来源于蝙蝠和其他野生动物，几乎排除了它从实验室泄露的可能性。
 
+在科学家发布的公开信中指责，“他们的出发点是，让我们做出尽可能多的妥协，以获得中共最低限度的合作。” 同时指出，世界卫生组织这项研究的结论是基于未发表的中共研究，而关键记录和生物样本“仍无法获取”。
 
+中共和世界卫生组织的联合研究称，实验室泄漏“极其不可能”，并表示“没有任何记录”表明任何实验室保存了SARS – COV -2相关病毒。在越来越多要求彻查中共病毒真相的呼声中，谭德塞表示，中共隐瞒了数据，需要进行更多研究才能“得出更有力的结论”。
 
-> All 533,000,000 Facebook records were just leaked for free.
-> 
-> This means that if you have a Facebook account, it is extremely likely the phone number used for the account was leaked.
-> 
-> I have yet to see Facebook acknowledging this absolute negligence of your data. [https://t.co/ysGCPZm5U3](https://t.co/ysGCPZm5U3) [pic.twitter.com/nM0Fu4GDY8](https://t.co/nM0Fu4GDY8)
-> — Alon Gal (Under the Breach) (@UnderTheBreach) [April 3, 2021](https://twitter.com/UnderTheBreach/status/1378314424239460352?ref_src=twsrc%5Etfw)
+继美国国务卿布林肯发表最新讲话表示一定要彻查病毒来源，避免任何“生物威胁”再次发生后，塞林博士4月6日再发重磅推特，指出情报分析，中共国武汉市武昌区出现的疫情大爆发与人为释放病毒有关。
 
+就在3月31日，病毒研究专家闫丽梦博士团队发布了第三份报告，70页的英文报告证实了中共病毒起源于中共武汉实验室。全球要求彻查中共病毒真相的呼声越来越高，以毒灭共已经势不可挡。
 
-*阿隆·加尔 @UnderTheBreach*
-*脸书的所有5.33亿条记录都被泄漏了。 这意味着，如果您拥有一个脸书帐户，则该帐户使用的电话号码极有可能被泄露。 我还没有看到脸书承认对您的数据的绝对疏忽。*
-*2021年4月3日 6:52*上午
-以色列网络犯罪情报公司哈德逊·岩（Hudson Rock）的阿隆·加尔（Alon Gal）分享了黑客攻击的消息。他在推特上写道：“这意味着，如果你有一个脸书账户，那么这个账户使用的电话号码极有可能被泄露。”。“我还没有看到脸书承认对你数据的绝对疏忽。”
+参考链接：
 
-据[路透社报道](https://www.reuters.com/article/us-facebook-cyber-leak/leaker-says-they-are-offering-private-details-of-500-million-facebook-users-idUSKBN2BQ0J8)，脸书在一份声明中称，该数据“非常陈旧”，与2019年8月修复的一个问题有关。
-
-**防范**
-
-总部位于香港的技术专家曼凡德范 （Man Van de Van）告诉《香港自由报》，用户应该警惕可疑的电话或短信，以防坏行动者使用用户的数据用于社交诈骗：“例如当你必须提供你的电话号码作为‘你是谁’的‘证据’时，这些数据可以用来冒充你。”
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Picture6.png)案照片：汤姆·格伦迪（Tom Grundy）/《香港自由报》
-他说：“从任何你提供过电话号码服务中删除你的电话号码，并在重要服务上修改或设置双因素认证。” 曼凡德范补充说，短信不应该用于双因素设置，用户应该考虑更改自己的电话号码。
-
-2016年，社交媒体网络卷入丑闻，政治数据公司剑桥分析（Cambridge Analytica）被发现未经用户同意访问了多达8700万脸书用户的数据。此后，脸书加强了对第三方应用程序如何访问用户数据的控制。
-
-原文作者：汤姆·格兰迪 （TOM GRUNDY）
-发布时间：2021年4月4日14:03
-原文链接：[https://hongkongfp.com/2021/04/04/facebook-user-data-and-phone-numbers-leaked-including-3-million-users-in-hong-kong/](https://hongkongfp.com/2021/04/04/facebook-user-data-and-phone-numbers-leaked-including-3-million-users-in-hong-kong/)
+[https://www.reuters.com/article/us-health-coronavirus-who-china-idUSKBN2BU2J2](https://www.reuters.com/article/us-health-coronavirus-who-china-idUSKBN2BU2J2)
 
 0
