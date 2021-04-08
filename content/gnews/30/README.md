@@ -1,26 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：Sellin博士公布中共病毒的零号患者
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1065312/)
+## 《路德社》精选新闻简讯：专家警告说，中共加快了可能入侵台湾的时间点
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1065513/)
 
 出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/image001-20.jpg)
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/image001-21.jpg)
 
-2021年4月8日，Selin博士发推:Wuhan Institute of Virology’s Hongping Wei, mentor of alleged #COVID19 “patient zero” Yanling Huang, has links to China’s military including the Third Military Medical University source of #COVID’s suspected bat #coronavirus backbone ZC45/ZXC21.
+据《Zerohedge》文章报道，一位专家警告说，随着中共加紧对台湾岛的军事演习，中共政权正在加速其入侵台湾的计划。台湾国防部称，20架中国军机包括4架H-6K核能力轰炸机、10架J-16战斗机、2架Y-8反潜战机和1架KJ-500空中预警，于3月26日进入台湾防空识别区（ADIZ）。这是中共有史以来最大的一次入侵事件。
 
-武汉病毒研究所的魏红平是中共病毒COVID19零号患者黄艳玲的导师，他与中共军方有联系，包括第三军医大学疑似中共病毒来源的蝙蝠病毒骨架ZC45/ZXC21。
+中共将台湾视为其领土的一部分，并以战争威胁要将台湾岛纳入其麾下。今年早些时候，中共国防发言人还威胁到，如果台湾宣布独立，将对台湾开战。这个自治岛屿实际上是一个独立的国家，拥有自己的民选政府、军队、宪法和货币。
 
-Sellin博士证实感染中共病毒COVID19的零号患者“黄艳玲”，并揭露她的导师魏红平就在武汉病毒研究所工作。首次公开提及闫博士论文中记载的舟山蝙蝠病毒ZC45/ZXC21是中共病毒骨架的关键内容，表明美国军方调查已掌握中共病毒来源的核心机密。舟山蝙蝠病毒是中共军方第三军医大学独有的病毒，而以此为骨架的COVID19就是中共制造的生物武器，这是中共无论如何也无法推脱的铁证。同时，证明美国军方情报部门完全验证此前闫博士和爆料革命提供的中共病毒情报和证据的真实性以及准确性。
+面对中共不断升级的军事威胁，前美国网络安全和国际事务部主任米尔斯（John Mills）表示，拜登政府应该对中共采取明确清晰的威慑政策。具体来说，美国应该在台湾周边以及东海和南海部署军事力量。
 
-[原文链接](https://twitter.com/LawrenceSellin/status/1380052151964213248/photo/1)
+拜登政府曾表示，其对台湾的承诺是 “坚如磐石 “的。但据台湾中正大学教授宋学文说，美国政府在保卫台湾岛方面有多认真还有待观察，特别是考虑到拜登本人从未用 “威胁 “一词来形容中共。拜登将该中共政权定位于美国 “最严重的竞争对手”。他预见美国和中共在不久的将来会发生小规模的军事冲突，特别是在南海的两个岛屿东沙和太平岛。
+
+台湾位于亚洲的第一岛链，将成为中共在亚洲军事侵略的首批目标之一。第一岛链是从日本南部的九州岛、台湾、菲律宾到印尼的这个范围。几十年来，中共的军事战略家一直将第一岛链视为其海空军事力量的障碍，阻碍其突破第二岛链及其以外的地区。
 
 
 
-本文作者：stranger
+[原文链结](https://www.zerohedge.com/geopolitical/beijing-accelerating-timeline-possible-invasion-taiwan-expert-warns)
 
-审核校对：玫瑰天空
+本文作者：林林虎
+
+审核校对：鲁邦五世
 
 上传排版：糊糊文婴
 

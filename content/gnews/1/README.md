@@ -1,27 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 意大利前总理感染中共病毒重新入院
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1065935/)
+## 缅甸驻英国大使因反对军事政变被免职
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1066052/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+俄罗斯莫斯科喀秋莎农场   银河
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/S-11.jpg)thegentlemansjarnal.com
-04月07日，意大利前进党领袖、前总理西尔维奥·贝卢斯科尼（Silvio Berlusconi）已被重新送入圣拉斐尔医院。这是当地报纸《共和国报》报道的。
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/M-2.jpg)breitbart.com
+《华盛顿时报》报道，周三晚上，缅甸驻英国大使Kyaw Zwar Minn因批评缅甸军事政变，被忠于军政府的外交官禁止进入大使馆。
 
-4月6日，这位政治家已经在米兰的圣拉斐尔医院接受了检查，之后医生将他送进医院进一步观察。
+上个月，这位大使呼吁释放缅甸民主领袖昂山素季(Aung San Suu Kyi)，昂山素季在军方2月1日夺取政权时被拘留。
 
-该版报道称，84岁的贝卢斯科尼在复活节假期探望女儿，并乘坐直升机飞往医院。
+自政变以来，缅甸安全部队在镇压反对派的过程中已经杀死了至少581名抗议者和旁观者。
 
-“这是他在几周内第二次被迫回到圣拉斐尔的诊所。”该报报道说。
+周四，在使馆外 Kyaw Zwar Minn宣读的一份声明称，大使馆昨晚被缅甸军方占领，缅甸驻英大使被拒之门外。自2月份缅甸政变后，伦敦市中心也发生了同样的情况。声明称，“这是不可接受的，不仅是对缅甸人民的不尊重，而且也是对英国所有民主社会的不尊重。”
 
-3月22日，贝卢斯科尼在同一诊所住院。然后他的律师在米兰的一次法庭听证会上报告了其委托人的健康状况恶化，前总理和其他28人被指控犯有贪污和伪证罪。贝卢斯科尼于3月24日出院。
+英国外交大臣多米尼克·拉布(Dominic Raab)谴责了“缅甸军事政权的霸凌行为”，并赞扬了大使的“勇气”。
 
-2020年9月，该政治家被诊断出患有中共病毒和双侧肺炎，并被送往圣拉斐尔接受治疗。俄总统发言人德米特里·佩斯科夫当时表示，如果有需要，俄罗斯愿意帮助这位前总理。
+英国政府表示，缅甸当局已通知英国政府， Kyaw Zwar Minn被免职了。
 
 参考链接：
 
-[https://www.rbc.ru/rbcfreenews/606d81909a7947a22cc7145a](https://www.rbc.ru/rbcfreenews/606d81909a7947a22cc7145a)
+[https://www.washingtontimes.com/news/2021/apr/8/myanmar-ambassador-to-uk-says-he-is-locked-out-of-/](https://www.washingtontimes.com/news/2021/apr/8/myanmar-ambassador-to-uk-says-he-is-locked-out-of-/)
 
 0

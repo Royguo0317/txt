@@ -1,42 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港专题】 港版文革2.0(二)中共以『文化央企』荼毒出版界 图推动「人心回归」
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1064838/)
+## 危宏平和黄艳玲上了榜单是否意味着武毒所零号病人已板上钉钉
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1065080/)
 
-搜集\编撰：西西 / 封面合成：文粤
+![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-7.png)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-中共文革式带有政治任务的铺天盖地的洗脑式宣传早已在香港各界大行其道。习近平过去一直强调「意识形态工作是党的一项极端重要的工作」说法，为中共前领导人毛泽东后罕见。有学者认为北京在港设立「文化央企」，欲推动人心回归，将中共过去低调的「地下党」运作组织「地面化」，借「文化央企」插手香港传媒、文化和教育界的「重手」程度不下于「港版国安法」。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4086.jpg)中联办秘书长文宏武负责筹建「文化央企」工作。
-中共喉媒《星岛日报》4月4日报道，中共将在香港组建的「文化央企」，将由中联办秘书长文宏武参与筹建，统一管辖联合出版集团、《紫荆》杂志社、银都机构及中华文化城等中资机构，在这四家企业之上，再增设一个管辖公司，还不排除再加入其它文化企业。业务包括出版、印刷、新闻、新媒体、影视、文艺演出等，资产逾千亿港元，预料今年上半年开张。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4087.jpg)
-最受关注的是，联合出版是香港最具规模的综合性出版集团，主要业务包括出版、发行、零售与印刷，旗下尚包括三联书店、中华书局和商务印书馆（三中商）、万里机构、新雅文化等多家知名出版机构，出版的图书约占香港每年中文图书出版量1/5。并有香港特区护照承印权、拥有高额房地资产等。
+Lawrence Sellin博士[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午2:57 · 2021年4月8日](https://twitter.com/LawrenceSellin/status/1380052151964213248)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布了推文——
 
-据多名建制派和文化界人士向本报证实，中央正在香港组建「文化央企」。消息说，中共十九大报告提出「增强香港、澳门同胞的国家意识和爱国精神」，实质上就是希望促进人心回归。一名建制派人士透露，「文化央企」的筹建工作早在二○一九年已经开始进行，但是由于爆发反修例风暴而一度暂停，去年年中实施《港区国安法》，香港形势逐步稳定，又重新提上议程。
 
-事实上，港媒一直紧盯着有关「三中商」的资讯。 【852邮报】早在2018年2月报导指，垄断香港八成出版市场、全港最大综合出版集团联合出版（集团）日前有主要人事变动，董事长兼总裁文宏武将会出任香港中联办秘书长，中联办的官网亦已更新「主要官员」的栏目。与此同时，本土研究社成员陈剑青亦在fb撰文，引述友人称，联合出版旗下的商务印书局、三联书店和中华书局（简称「三中商」）半年前亦有人事变动，主管换上中联办的脸孔，并全面对店面上架的书籍作政治审查，「任何有批判角度谈及雨伞、社运、香港前途、本土、中国，尽管篇幅少得可怜或奇货可居，也会被过滤下架。」
 
-《壹周刊》在2015年揭发中联办全资持有一间名为「广东新文化事业发展」的大陆神秘空壳公司，此公司同时为「新文化事业（香港）发展」的大股东，持98%股权，而「新文化事业」拥有联合出版集团99.99%的股权，换言之，中联办变相可实际联合出版集团操控。
+> Wuhan Institute of Virology's Hongping Wei, mentor of alleged [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) "patient zero" Yanling Huang, has links to China's military including the Third Military Medical University source of [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw)'s suspected bat [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) backbone ZC45/ZXC21.[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/sGXkDfrMER](https://t.co/sGXkDfrMER)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 8, 2021](https://twitter.com/LawrenceSellin/status/1380052151964213248?ref_src=twsrc%5Etfw)
 
-《852邮报》在同年亦报道过，「三中商」对有关纪录及分析2014年雨伞运动的书目一律冷待，如两周内售罄两版的《被时代选中的我们》，「三中商」只入了不足50本发售，就算多了读者预订，其总入货量依然在100本之内。有作者甚至表示，新书封面设计原本会有一把显眼的黄色雨伞，但被发行商提醒，「三中商」正在「封杀」黄伞书籍，甚至如果内容简介提及太多雨伞运动，很有「黄丝味」的，对方也不会入货，结果该作者要「自我审查」抹走黄伞。不过另一方面，一些反占中的书籍深得「三中商」欢迎，如被指是「蓝丝扮黄丝」撰写、与左派的观点相当吻合的《雨伞之殇》，在多间书店有货之余，货量亦十分充足。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4088.jpg)中共拟在港组建「文化央企」，企图从文化产业入手，思想改造港人。图为2019年10月，油麻地中华书局铁门被喷上「天灭中共」的标语。
-浸会大学新闻系高级讲师吕秉权对《苹果》表示，北京在港高调成立「文化央企」，进一步体现中央的「全面管治权」，同时将中共过去低调的「地下党」运作组织「地面化」。他相信中共借「文化央企」插手香港传媒、文化和教育界的「重手」程度，不下于「港版国安法」。中共想把具共产党社会特色的宣传手法搬到香港，在香港全方位地利用媒体对港人洗脑，对港人进行意识形态的改造。
 
-吕秉权认为，早于占中运动后，北京已决定进行意识形态的改造工作，反送中运动爆发后，更要「加码」对港人进行「大手术」，首先借助港版国安法清算抗争者和民主派，长远则是透过控制传媒、文化、教育等管道，试图改造香港人的意识形态和思想，以达到中共所讲的「人心回归」。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4089.jpg)浸会大学新闻系高级讲师吕秉权
-他又指，中国国务院国资委曾于2019年底召开会议，号令近200间中资国企开会，最终断定香港的商界在关键时刻「靠唔住」（不可靠），早已安排中资全方面进驻香港重要领域，以达取代港资，全面换血，让中共掌握香港的经济命脉。
 
-真诚的爱国是无法强迫的，也无法用金钱勾兑换来。香港回归即将进入第24个年头，中共却发现港人之心始终不能「回归」，于是使出损招，想以洗脑教育「推动人心回归」。正如香港文化监察主席杨雪盈所言，港府一直拒绝回应香港人诉求，中央中共透过该做法推动人心回归是不切实际。一个拒绝聆听，不愿回应人民诉求的政府，能回归港人心吗？
+Wuhan Institute of Virology’s Hongping Wei, mentor of alleged [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) “patient zero” Yanling Huang, has links to China’s military including the Third Military Medical University source of [#COVID](https://twitter.com/hashtag/COVID?src=hashtag_click)‘s suspected bat [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) backbone ZC45/ZXC21. [#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hashtag_click) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)
 
-【以上观点仅代表笔者本人 】
+中文大意是：武汉病毒学研究所的危宏平，所谓的＃COVID19“零病患”黄艳玲的导师，与中共军方有联系，其中包括第三军医大学[#COVID](https://twitter.com/hashtag/COVID?src=hashtag_click)的可疑蝙蝠[＃冠状病毒](https://twitter.com/hashtag/coronavirus?src=hashtag_click)主干ZC45 / ZXC21的来源。[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hashtag_click)[＃不受限制的生物武器](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)
 
-资料来源：
-[星岛日报](https://std.stheadline.com/daily/article/2322808/%E6%97%A5%E5%A0%B1-%E6%B8%AF%E8%81%9E-%E4%B8%AD%E5%A4%AE%E5%9C%A8%E6%B8%AF%E7%B5%84%E5%BB%BA%E5%B7%A8%E5%9E%8B-%E6%96%87%E5%8C%96%E5%A4%AE%E4%BC%81)
+这一次危宏平和黄艳玲上榜了——
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-14-15.jpg)
+Lawrence Sellin博士的这则推文引出一段悬案，而这段悬案与危宏平有关、与黄艳玲有关、与石正丽有关、与武汉病毒所有关、与广受猜疑的中共冠状病毒零号病人黄艳玲有关，而这一系列的人物和机构都是围绕着黄艳玲是否为中共病毒的零号病人表演的重要角色——
 
-[852](https://www.post852.com/241934/%E8%81%AF%E5%90%88%E5%87%BA%E7%89%88%E8%91%A3%E4%BA%8B%E9%95%B7%E8%BD%89%E4%BB%BB%E4%B8%AD%E8%81%AF%E8%BE%A6%E7%A7%98%E6%9B%B8%E9%95%B7%E3%80%80%E8%A5%BF%E7%92%B0%E5%BE%AA%E7%A9%BA%E6%AE%BC%E5%85%AC/)[邮报](https://www.post852.com/241934/%E8%81%AF%E5%90%88%E5%87%BA%E7%89%88%E8%91%A3%E4%BA%8B%E9%95%B7%E8%BD%89%E4%BB%BB%E4%B8%AD%E8%81%AF%E8%BE%A6%E7%A7%98%E6%9B%B8%E9%95%B7%E3%80%80%E8%A5%BF%E7%92%B0%E5%BE%AA%E7%A9%BA%E6%AE%BC%E5%85%AC/)
+据[武汉病毒所已逝“零号病人”？当事人：我还健在](http://finance.sina.com.cn/china/gncj/2020-02-16/doc-iimxyqvz3279280.shtml)（2020年02月16日 12:25 [新京报](https://www.thepaper.cn/newsDetail_forward_6016936)）
 
-[大纪元香港](https://hk.epochtimes.com/news/2021-01-05/45448816)
+［2月15日，一则关于“中国科学院武汉病毒研究所（以下简称武汉病毒所）一名女研究生黄燕玲是新冠病毒肺炎零号病人”的消息在网络流传。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2-13.jpg)
+网络流传的截图显示，武汉（新冠）病毒肺炎的零号病人是黄燕玲，系武汉病毒所科研人员，2012年考入武汉病毒所的硕士研究生。而根据武汉病毒所发布于2011年11月4日的《2012年度推荐免试硕士研究生拟录取名单公示》显示，黄燕玲系西南交大推荐的学术性硕士。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/3-8.jpg)
+网络截图还称，黄燕玲的指导博导是危宏平，并质疑称“武汉病毒所关于黄燕玲的资料都没了，此人到底在哪里？”
 
-审稿：卡西欧 / 上传：天网灰灰
+就此事件，今日（2月16日），《每日经济新闻》记者注意到，危宏平朋友圈发文回应。其称“我近2天接到许多电话或邮件，咨询曾在本组学习过的黄燕玲同学近况，我是她导师，黄燕玲同学2015年7月硕士顺利毕业后，一直在外地城市工作。经与她本人电话确认，目前黄燕玲同学身体健康，一切安好！”
+
+危宏平还称“网上与此不一致的传言皆为谣言。因抗疫工作繁忙，怒（注：原文如此）不再一一解释！”
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4-7.jpg)
+危宏萍朋友圈截图
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4-2.png)
+中国科学院武汉病毒研究所研究员石正丽朋友圈截图
+
+武汉病毒所官网资料显示，危宏平是武汉病毒所研究员、新发传染病研究中心副主任、诊断微生物学学科组组长、中国微生物学会分析微生物学专业委员会委员、湖北省微生物学会理事，主要从事病原微生物检测与新型抗菌分子的研究。
+
+【名词解释】“零号病人”，通常指的是第一个患某种传染病，并开始散播病毒的病人。在流行病调查中，通常被叫做首发病例。在传染病的发生发展和传播过程中以及传染病的认知、研究过程中首发病例一直是占有重要的地位，通过对首发病例的细致调查，能为疾病来源、病因分析、预测、控制措施采用、预警机制的建立提供大量宝贵信息。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/6-2.jpg)
+相关报道　网传武汉病毒所一研究生系“零号病人”，回应：无一人感染
+
+2月15日，一则关于“武汉病毒研究所一名女研究生黄某某是新冠病毒肺炎零号病人”的消息在网络流传。　2月15日晚间，新京报记者就此事向中国科学院武汉病毒研究所研究员石正丽、流感病毒实验室研究员陈全姣求证。两人均表示，对病毒所是否有一位名叫 黄某某的女研究生并不掌握，但可以保证武汉病毒所目前无一人感染新冠肺炎。“怎么可能？这个一看就是假新闻。”石正丽说，“我可以保证，包括研究生在内，我们所没有一个人被病毒感染过，我们所是零感染。”对于上述信息，陈全姣也表示，“我们武汉病毒研究所没有一例感染，我们病毒所绝对不是‘零号’。”］
+
+对照Lawrence Sellin博士[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午2:57 · 2021年4月8日](https://twitter.com/LawrenceSellin/status/1380052151964213248)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文，可以从新京报的这一则报道里看出更多的信息，首先来说危宏平和石正丽已经上榜了，武汉病毒研究所也已经上榜了，但是我们一定要再一次温习一下功课，那就是科学女巫石正丽不仅研究和制造了中共病毒，而且还对武汉病毒研究所的中共病毒零号病人黄艳玲进行了掩盖，同样的，黄艳玲的导师也对中共病毒零号病人黄艳玲进行了掩盖！
+
+另外我们还要对Lawrence Sellin博士的名单进行补录，那就是新京报这则报道里附上的陈全姣——
+![]()![](https://gnews.org/wp-content/uploads/2021/04/7-2.png)
+当然了要在Lawrence Sellin博士的名单进行补录的还有很多，包括新京报在内的所有为中共病毒零号病人黄艳玲掩盖的媒体和背后的操控者稍安毋躁，排排坐，吃果果，我们要一起盯住他们，别让他们跑了！
+
+（文章内容仅代表作者个人观点）
 
 0

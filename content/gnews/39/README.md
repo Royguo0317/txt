@@ -1,57 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【G时评】原创时政小段子：“全球殖民计划”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1065176/)
+## 《路德社》精选新闻简讯：Sellin博士公布中共病毒的零号患者
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1065312/)
 
-#### 作者/编辑：Giselle
-![]()![](https://gnews.org/wp-content/uploads/2021/04/殖民计划.png)
-图片来源：墨尔本雅典娜农场设计组（姐夫说说）
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-[【G时评】](https://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/image001-20.jpg)
 
-1，
+2021年4月8日，Selin博士发推:Wuhan Institute of Virology’s Hongping Wei, mentor of alleged #COVID19 “patient zero” Yanling Huang, has links to China’s military including the Third Military Medical University source of #COVID’s suspected bat #coronavirus backbone ZC45/ZXC21.
 
-一天不灭共，浑身不得劲。
+武汉病毒研究所的魏红平是中共病毒COVID19零号患者黄艳玲的导师，他与中共军方有联系，包括第三军医大学疑似中共病毒来源的蝙蝠病毒骨架ZC45/ZXC21。
 
-2，
+Sellin博士证实感染中共病毒COVID19的零号患者“黄艳玲”，并揭露她的导师魏红平就在武汉病毒研究所工作。首次公开提及闫博士论文中记载的舟山蝙蝠病毒ZC45/ZXC21是中共病毒骨架的关键内容，表明美国军方调查已掌握中共病毒来源的核心机密。舟山蝙蝠病毒是中共军方第三军医大学独有的病毒，而以此为骨架的COVID19就是中共制造的生物武器，这是中共无论如何也无法推脱的铁证。同时，证明美国军方情报部门完全验证此前闫博士和爆料革命提供的中共病毒情报和证据的真实性以及准确性。
 
-改革开放精神、先驱精神、大别山精神……一共有91种精神。
+[原文链接](https://twitter.com/LawrenceSellin/status/1380052151964213248/photo/1)
 
-——少了一个字：病。
 
-一共有91种精神病。
 
-3，拜登出了一个上联：印钞，发债，加税，
+本文作者：stranger
 
-求下联……
+审核校对：玫瑰天空
 
-——去泥，码德，卧胚。
-
-4，如何看待赵立坚担忧地铁站亚裔母女的安全？
-
-——羊群中的狼，担心羊群中的羊，被羊吃了？
-
-5，中共的“一带一路”，究竟是怎么回事？
-
-——简单来说，就是“全球殖民计划”。
-
-首先，拿钱砸晕你，让你同意中共借钱协助你国建设港口、桥梁、油气管道、海底隧道等基础设施；
-
-其次，坐等你陷入巨大的债务陷阱，无法偿还，只能把以上设施抵押给中共。
-
-不费吹灰之力，合法地殖民你国，牛不牛？牛不牛？
-
-6，如何看待被误解、被伤害？
-
-人在江湖飘，
-
-哪能不挨刀；
-
-经常挨挨刀，
-
-没啥大不了。
-
-（文章内容仅代表作者个人观点）
+上传排版：糊糊文婴
 
 0
