@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 科学家呼吁重新追查中共病毒起源
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1063779/)
+## “无尽前沿法案”促美创新生态以对抗中共
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1063826/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C.png)covid19.colorado.gov
-路透社新闻报道，一组国际科学家和研究人员周三表示，中共和世界卫生组织(WHO)对中共病毒的联合研究没有提供关于疫情如何开始的可信答案，需要更严格的调查，无论北京是否参与。
+编辑上传    水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/T-3.jpg)technologythisweek.net
+路透社消息，美国参议院商业委员会将于4月14日举行听证会，讨论一项两党共同支持美国技术研发的措施，以应对来自中共的竞争。
 
-针对上周世界卫生组织和中共发布的中共病毒联合研究报告，来自欧洲、美国、澳大利亚和日本的24名科学家和研究人员表示，这项研究受到了政治的影响。该报告称中共病毒来源于蝙蝠和其他野生动物，几乎排除了它从实验室泄露的可能性。
+这项名为“无尽前沿法案”(Endless Frontier Act)最初于2020年由参议院民主党领袖查克·舒默 (Chuck Schumer)和共和党参议员托德·杨(Todd Young)共同提出。该法案呼吁在五年内提供1,100亿美元资金，以推动美国的技术努力。
 
-在科学家发布的公开信中指责，“他们的出发点是，让我们做出尽可能多的妥协，以获得中共最低限度的合作。” 同时指出，世界卫生组织这项研究的结论是基于未发表的中共研究，而关键记录和生物样本“仍无法获取”。
+参议院商务委员会主席玛丽亚·坎特韦尔 (Maria Cantwell)在声明中说，听证会“将讨论加强美国创新生态系统的潜在行动，包括增加国家科学基金会(National Science Foundation)的研究经费，发展科学、技术、工程和数学(STEM)学科并使之多样化， 提高技术转移，以及投资区域创新中心。”
 
-中共和世界卫生组织的联合研究称，实验室泄漏“极其不可能”，并表示“没有任何记录”表明任何实验室保存了SARS – COV -2相关病毒。在越来越多要求彻查中共病毒真相的呼声中，谭德塞表示，中共隐瞒了数据，需要进行更多研究才能“得出更有力的结论”。
+舒默上个月表示，听证会“旨在增强美国的竞争力，应对我们在全球面临的日益增长的经济威胁，尤其是来自中国共产党的威胁。”
 
-继美国国务卿布林肯发表最新讲话表示一定要彻查病毒来源，避免任何“生物威胁”再次发生后，塞林博士4月6日再发重磅推特，指出情报分析，中共国武汉市武昌区出现的疫情大爆发与人为释放病毒有关。
-
-就在3月31日，病毒研究专家闫丽梦博士团队发布了第三份报告，70页的英文报告证实了中共病毒起源于中共武汉实验室。全球要求彻查中共病毒真相的呼声越来越高，以毒灭共已经势不可挡。
+舒默还希望推动促进美国半导体生产的立法。国会助手说，这两项提议的总额可能达到2,000亿美元。
 
 参考链接：
 
-[https://www.reuters.com/article/us-health-coronavirus-who-china-idUSKBN2BU2J2](https://www.reuters.com/article/us-health-coronavirus-who-china-idUSKBN2BU2J2)
+[https://www.reuters.com/article/us-usa-china-technology-idUSKBN2BU3A8](https://www.reuters.com/article/us-usa-china-technology-idUSKBN2BU3A8)
 
 0
