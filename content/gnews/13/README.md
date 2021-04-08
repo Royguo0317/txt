@@ -1,59 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世界经济像泰坦尼克号一样即将撞向冰山&nbsp; 霍尔木兹海峡和苏伊士运河还会出事
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1066681/)
+## 浅谈养老保险与养老模式未来发展
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1066811/)
 
-**简述：郭先生在****2021****年****4****月****4****日的盖特视频中，警告说全世界的经济将像泰坦尼克号一样撞向冰山；石油和黄金价格没有大的起伏，但不可能持续；中共一定还会在霍尔木兹海峡和苏伊士运河搞事；这中间只有新中国联邦在救人，一定要让这个船沉不下去。**
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210404-getter1.srt.txt)
-**世界经济像泰坦尼克号一样即将撞向冰山****  ****霍尔木兹海峡和苏伊士运河还会出事**
+- 作者：土饭团
 
-**The World Economy Is Hitting an Iceberg Like the Titanic; Something Will Happen Again at the Strait of Hormuz and Suez Canal**
 
-兄弟姐妹们长话短说。从昨天到现在，真的我有两个深刻的感受。我就感觉到世界的经济和世界的政治，甚至全世界人民，就像这个泰坦尼克号要撞向雪山一样。后来当时也有人说强大的激光术，干掉了泰坦尼克号。就是你就觉得那个泰坦尼克号撞向山的感觉，全世界的政治，经济和人民的安全。就这几天你能听到的就是，所谓的有身份的人、政治[届]的人、情报界的人，就说出了打疫苗的后遗症，吓死人了。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-From yesterday till today, I indeed had two profound feelings. I felt that the world economy and politics, and even the people of the world are just like the Titanic about to hit the iceberg (though later someone said that Titanic was taken down by laser ray). You just feel that the whole world’s politics, economy, and people’s safety are going to hit an iceberg like the Titanic did. Also the past few days I heard from the so-called men of class and people in the political and intelligence fields talk about the side-effects of the [CCP virus] vaccine. Very scary!
+**西班牙2021年4月8日电/西喜社——**
 
-第二个就是世界的经济。你听到玩金融的，现在真的是瑟瑟发抖，在瑟瑟发抖的时候，眼神始终看着有没有机会弄块儿大的。贪婪啊，贪婪啊，都不想失去，都想趁此机会捞一把。你就觉得泰坦尼克号撞向山上去的感觉。
+在全球正义力量围剿中共的当下，其灭亡势不可挡。未来在新中国联邦的监督下，法治的基础上重新建立关乎民生的养老体系，解决当前社会上许多老人老无所养的问题，是要事之一。在养老问题中，养老保险和养老模式是重中之重，关系到老人的钱袋子和生活质量。我对这两方面的未来发展，阐述一下个人的观点和设想。
 
-The second one is the world’s economy. You’ve heard that people in the financial sector are trembling now. While trembling, they also keep watching to see if there is any chance for them to make a big fortune from this. Greedy! No one wants to lose, everyone wants to catch a quick buck if there is a chance. This makes you develop the feeling of the Titanic about to hit the iceberg.
+**养老保险**
 
-另外就能感觉到中国共产党的疯狂，真的是，你就觉得魔鬼它一旦占到上风以后，那种狰狞的笑，“哈哈哈哈” 就是那种感觉，疯狂，就是灭亡前的疯狂。太多的这些现象没法形容。大家都知道泰坦尼克号…就那么多人，就那两三个人说出要撞山了，玩球蛋了，还有几个人的忧虑都发生了。
+谈养老保险发展前，首先看一下中国养老保险问题产生的缘由。现今世界上流行的养老保险制度称为养老三支柱模式。法律强制的基本养老保险、企业年金、商业养老保险。目前中国后两者占比很小，仅依靠基本养老保险在支撑。
 
-On the other hand, you can feel the craziness of the CCP. Indeed, you can now feel the ferocious laugh from the demon when it occupies the high ground – madness and craziness before perishing. Too much stuff like this, which is hard to describe. You all know about the Titanic. But among so many people onboard, there were only two or three of them that spoke out that they were going to hit the iceberg and going to die, which was proved to have occurred.
+当前中国基本养老保险连年的亏空，财政补贴大幅的增长，第二次婴儿潮出生人口即将逐步退休，出生率持续降低，新生人口断档。而基本养老保险模式属于待遇确定型模式（Defined Benefit，简称DB），一种现收现付制，同时期工作的年轻人缴费养老人。这种模式能否持续关键取决于人口结构，中国人口结构目前处于倒金字塔形，一个年轻人养几个老人，此模式无以为继。其根本原因在于中共当初惨绝人寰的计划生育政策以及数十年来掠夺了大部分本该属于老百姓的利益。人民口袋里没有钱，负担不了各类生活开支，更不会有生育意愿，新生人口数量下降，未来缴金人数也就更少，恶性循环。
 
-现在我就觉得我们整个爆料革命，就像世界的泰坦尼克号一样，要出苏格兰到纽约去了，玩大的玩高级的，但是都为了那个奢华，所谓的贵族的体面，人类的虚伪和懦弱，不敢面对真相，一步又一步的错误，最后“咣叽”撞上了冰山。太可怕了！但这里面毕竟有英雄人物，也有脱险的人，那就是咱新中国联邦，就咱新中国联邦。就是我们在救人，最后我们离开了泰坦尼克号。
+再说企业年金，由于中共统治下的市场环境恶劣，目前参与企业年金的基本都是大型央企、国企，截至2020年底参与人数才2700多万人，普通民营企业本已被横征暴敛，生存艰难，再加入企业年金不切实际。而根据私人意愿自主投资类的商业养老保险更是刚起步，便出现养老机构、养老产品频频爆雷，没有规范监管的情况下，老有所养只会变成老无可养。
 
-Now I feel that our entire Whistleblower Movement (BM) is in the midst of this world which is exactly like the Titanic, leaving Scotland to New York, trying to play a big, high-end game, chasing for luxury and the so-called decentness of the nobility driven by the hypocrisy and cowardice of humanity, and lacking the courage to face the truth, making mistakes step by step, and finally hitting the iceberg. How frightening! Yet, after all, there are brave people who can escape,  which is our New Federal State of China (NFSC). It is our NFSC that is saving lives and, in the end, escaping the Titanic.
+在消灭中共之后，养老保险发展情况就会变得完全不同。首先肯定会在法治的基础上建立新的政治体系和税收制度。当前两者高效、透明、规范化和标准化以后，原来那些令老百姓深恶痛绝的三公消费、公共安全支出（维稳经费）、隐形税、重复征税、地方税务的各种“人治税”等不合理税收，都会降到最低或不复存在。老百姓的收入便会大幅提高，工资增长落后于GDP增长，居民收入占GDP比重连年下降的情况必然反转，出生率自然会有一定比例的回升，基本养老保险的压力也会相应减小。
 
-当然了这个也许有人顺手想拿点金子银子的，这事别想，开玩笑，爆料革命当中，有些人一定要意志坚定，我们是拯救这个大船的，我们不是等船沉了救人，一定要让这个船沉不下去。
+在法治环境下，企业年金同样也能够顺利发展。面对现在已经存在的低出生率和老龄化问题，借鉴国际流行的缴费确定型模式（Defined Contribution，简称DC）是必然选择，DC模式以个人缴费为主，不依赖于人口，在一个真正的市场经济的环境，高效的金融监管机制下，大幅降低企业经营成本，企业之间有公平竞争机制，DC模式才能够实现。员工工资固定比例和企业补贴存入年金账户，缴费比例可以在法律规定范围内自由设定，存入该账户钱可以给予税收递延或免税，使企业和员工双方得利。公司年金账户可进行股市、国债、基金等多种投资组合，达到保值增值的目的。
 
-Of course, there might be people who want to get themselves some gold and silver [make personal profit] from this. Don’t even think about it. Kidding. In our WM, people must be determined. We are saving this big ship rather than waiting for the ship to sink and then saving people afterwards. We must make the ship unsinkable.
+对于商业养老保险，属于全体公民自愿参与。政府所需要做的是政策支持和市场高效监管，例如像美国允许个人开设各类个人退休账户（IRA），有存钱可延税，也有投资收益免税。另外，相对于较为刻板的社保，个性化需求定制的商业养老保险也会受很多人的青睐，如不同年限的商保产品、储蓄和投资结合的产品、各种意外险、重疾险。这时市场监管就显得格外重要。
 
-大家看到黄金，黄金最近有大动静了吗？没有大动静，石油怎么样？有回落，有大起伏吗？没有。你觉得这样会下去吗？不可能。霍斯姆海峡、苏伊士运河，你觉得还会出事儿吗？还会出事儿。你打台湾是什么样？你想跑那跑得了吗？你跑不了。为什么现在数字货币、加密货币这么厉害？每个人都恐惧，知道这个世界正在撞向冰山。在撞向冰山前，有人还想拉小提琴，还想听听音乐，是吧？那你尽管，但最后一定葬身在水里面的是你，这就是今天世界政治经济的现状。
+企业年金和商业养老保险的发展步入正轨后，这两支柱的崛起会优化整体结构，降低基本养老保险的负担。养老三支柱可以分散风险，稳步运行发展。
 
-Does anyone see any big fluctuations in gold price lately? Nothing big. How about the oil price? It goes down a little. Are there any big ups and downs? No. Do you think this will last long? Impossible. Do you think something will happen again at the Strait of Hormuz and Suez Canal? Yes, it will happen. What will it be like if you attack Taiwan? Do you think you can get away with it? No, you can’t. Why are digital currencies and cryptocurrencies so strong now? Everyone is in fear, knowing the world is about to hit an iceberg. Before hitting the iceberg, some people want to play violin and listen to music, right? Do what you want, but you will be the one buried deep in the water in the end. This is the current status of the world’s politics and economy.
+经历过漫长的农耕社会，中华民族注重家庭文化观念。把赡养老人作为法律义务是可行的，世界银行曾提出过类似概念，这也是体现中华民族传统文化的具体形式，可以成为中国养老第四大支柱。例如可以规定，子女收入按比例用作赡养费的支付。赡养费设上下限，税率分为多个级数，结合个人所得税，个人实际收入情况，实行累退税或者直接免税，鼓励多支付。对于赡养老人总费用超过收入一定比例的个人或家庭应获得税收的减免。设立相应机构或组织监督子女赡养老人情况，不达标的可以扣除信用分数，或者进行罚款，罚款用于老人赡养或补充基本养老基金。
 
-兄弟姐妹们，一定要看得更清楚一点，看得更明白一点。现在到啥时候了？你看看听说华尔街看到那些朋友，每个人现在是自己大房子，现在赶快抵押贷款，而且是不赎回的，不赎回啥意思？我还不了钱，我就不赎回了，而且都不要个人的 Guarantee，都卖公司的，而且打大折。很多金融资产都往外卖，很多人都想跟我们换 GTV股份、G-Coin，门儿都没有，这就是现在的形势。
+从全球来看，养老保险制度实施较成功的国家有两点关键因素。激励个人或员工增加长期养老保险资金的税收优惠政策，以及完善的金融资本市场监管。调动老百姓参与养老保险储蓄的热情，使得参与其中的个人或机构投资与资本市场（股票、债券等）的健康发展形成正循环，是养老保险长期稳定发展的根本原因。
 
-Brothers and sisters, please look through things more clearly. What a critical moment is it right now? Look at it. I heard from some friends in Wall Street that everyone is now hurried to mortgage their big houses without redemption rights. What does that mean? If I cannot pay back the mortgage, I will not redeem the house. Moreover, no one uses a personal guarantee, rather they sell to companies and give them big discounts. Many are selling their financial assets to exchange for GTV shares and G-Coins. No way. This is the current situation.
+**养老模式**
 
-兄弟姐妹们，一定这个时候要搂住。世界巨变前，当你搂不住的时候，一定是大灾大难伴随着你。拜托了，此时不要贪，此时不要有幻想，此时要有各种防范。兄弟姐妹们，珍惜你现在能听到七哥直播和盖特的机会，珍惜你现在拥有的自由，珍惜你拥有的健康。人类从来没像现在这样面临着一切的重大的改变和重大的挑战，当然了有智慧、有本事的人是机会。愿成为每个战友所有人的机会吧，谢谢了。
+按照目前中国人口老龄化的趋势，未来养老产业的大规模发展是必然趋势。居家养老、社区养老、机构养老是目前主流的三种模式。
 
-Brothers and sisters, we must hold ourselves at this critical moment. Facing the world’s immense change, if you cannot hold yourself, great disasters will find you. Please, don’t be greedy at this moment, stop dreaming at this time. Please use pre-caution measures at this time. Brothers and sisters, please cherish the moment when you can still watch my broadcasts and Getter videos. Cherish the freedom that you are enjoying now. Cherish the healthiness you have. Humanity has never ever faced such a huge change and challenge like this before. Of course, it presents opportunities for people with wisdom and capabilities. I hope this can be an opportunity for every fellow fighter. Thank you!
+居家养老顾名思义自己在家养老，亲人照顾或自理生活，对于家庭观念重的国人来说，目前居家养老是大部分老人的选择。社区养老是在居家养老基础上，由社区相关组织上门服务或托老工作。机构养老俗称养老院，在中共多年的倒行逆施下，现在许多老人包括我的祖辈，对养老院这三个字可以说是谈虎色变。养老院和没人管、虐待、等死这些词几乎可以划等号。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/6069cd0cdbc8001854a56773](https://gtv.org/getter/6069cd0cdbc8001854a56773) (00:17-1:47, 2:31-3:39, 5:55-6:40, 8:30-结束)
+未来在法治的基础上，重视养老产业，先有宏观规划，后在中观微观配套下，这三种养老模式会有更多的资源和功能加入，模式之间会有更多的连接和整合，建立统一养老服务平台，用大数据分配与整合资源，弥补各自的缺点。
 
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1049756/](https://gnews.org/zh-hans/1049756/)
+例如对于居家养老的老人，小区物业可以发展养老服务，物业对于周边地缘和业主都有比较多的了解，方便给老人提供衣、食、行、家政、心理咨询等各类服务。居家老人最令人担忧的就是安全性问题，物业设立紧急呼救类的养老服务就能够在老人发生意外时第一时间进行援助。
 
-* * *
+对于生活品质有更高要求的老年人，住房反向抵押贷款是一个可行的选项。顾名思义，房屋产权人把房屋抵押给银行，保险公司，经过评估后，按月或年支付给借款人，直到去世。额外的固定收入可以用于消费，旅游，或者对房屋重新装修，有一个更好的居家养老环境。中共也有借鉴国外这一模式，称为“以房养老”，但是在中共的体制下缺乏监管，反倒变成了老人的灾难。
 
-翻译：【7PawBear】字幕：【Rock小哥】二校：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+社区可以以街道为单位，依据大数据的分析，建立多个养老公寓，集餐饮、医疗健康服务、文娱、社交为一体。可以进行日托、短期、长期居住，或者康复治疗和修养。老年人通常不喜欢离家太远，脱离自己熟悉的环境，加上每个居家老人的个体差异，以社区为中心建设养老公寓很有必要，有效弥补居家养老的弊端。
+
+社会志愿者“时间储蓄”也是一个很好的辅助模式。年轻人通过照顾老人，年老以后，可根据储蓄的时间接受年轻人服务的一种社会长效激励机制。给予居家养老和社区养老的老人很好的辅助。现在难以操作的原因就是缺乏一个科学合理的认证标准。解决方法也不难，例如为老人买菜、陪伴聊天、照顾生病老人。对不同强度的服务加权，强度高的服务获得更多的时间储蓄，可以有效推进这个模式的发展。
+
+对于疾病或各种原因生活不能自理，需要专业护理的老人，养老院必不可少。
+
+目前的养老院除了照顾不周、虐待老人的现象，还有一个关键问题，养老院医疗资源匮乏。在养老生活中，高龄老人或多或少会需要一段时间的专业医疗护理。相信很多家庭都遇到过，老人送去了养老院，患了病有住院需求，只能排队等号住医院病房，因为只有医院拥有完善配套的医疗资源，并且医保规定15天还得转院，耗时耗力，劳民伤财。
+
+中共也曾提出过“医养结合”，结果无需多言。首先要从整个养老产业的特点来看这个问题。养老产业是一个微利型的产业，这是市场共识。拿养老院来说，前期投资大，投资回收周期长，普遍需要政府财政支持。但在中共的体制下，民营资本不管是在融资、财政补贴、土地、医疗资源等方面都得不到政府支持，无法公平参与竞争，本就是微利型的养老产业自然得不到发展。
+
+另一面中共的公办机构又不作为，就像“医养结合”，政策永远只停留在口头和纸上，不去执行落实。都知道养老机构的利润微薄，公立医疗机构会有兴趣进入么。
+
+未来的养老产业应由政府主导，财政支持，加上市场化运营，在养老院配置相关医疗资源，或者建立对口养老院的医疗中心，只对退休老人进行医疗服务。包括社区建立的养老公寓也应有一定规模的医疗资源，特别是老年常见慢性疾病药物的配备，这些措施可以分级诊疗，省去老人及其家属许多时间精力。对于居家老人进行专业上门护理和保健服务，治疗小病或慢性病。有过照顾老人经验的都知道，高龄老人一旦意外摔倒骨折，或者突发疾病，经历一段卧床康复期后，身体和精神状况会大不如前，影响生活质量和寿命。所以有一个健全的养老体系可以最大程度的对其进行预防和妥善照顾。
+
+以各种养老方式让老人获得周全的照顾，安享晚年。需要长期卧床（中风瘫痪，阿尔兹海默病等）的老人需到拥有专业医疗资源的养老机构长期看护，子女更多的应该是精神上的陪伴与财务上的赡养，这是一个合格的政府对每一个纳税人应尽的义务。我相信铲除中共后，有新中国联邦的引领，在法治的基础上，建立优良的养老体系，基于中华民族的勤劳俭朴、注重亲情的文化传统，这一天并不会久远。
+
+编辑：Victor Torres；校对:阿伯塔 ；组稿：神奇四侠；发稿：信心的选择
 
 0

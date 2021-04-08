@@ -1,63 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210408（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1066378/)
+## 调查发现中共病毒疫苗与脑部血块之间的“清晰”联系
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1066407/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+- 翻译：Jenny Bull
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-1-1.jpg)
+**西班牙2021年4月8日电/西喜社——**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-2-1.jpg)
+据《西部日报》4月6日报道，欧洲药品管理局(EMA)的一位高级官员说，已经发现了阿斯利康的中共病毒疫苗与大脑中罕见的血凝块之间的联系，但官员们尚未查明可能的原因。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-3-1.jpg)
+“据我所知，我们现在可以这样说，很明显，这种疫苗与（脑血凝块）有关。”路透社报道，欧洲药品管理局(EMA)疫苗评估小组主席马里奥·卡瓦列里（Mario Cavaleri）说。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-4-1.jpg)
+“但是，我们仍然不知道是什么原因导致了这种反应。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-9.jpg)
+欧洲药品管理局(EMA)在一份声明中澄清说，疫苗审查正在进行中，该机构希望在本周宣布其发现。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-2-1.jpg)
+声明说：“目前，对于这些非常罕见的事件，审查尚未发现任何特定的危险因素，例如年龄，性别或先前的凝血障碍病史。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-3-1.jpg)
+“与疫苗的因果关系尚未得到证实，但是是可能的，并且进一步的分析仍在继续。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-4-1.jpg)
+该调查正在研究44篇关于大脑中罕见的血栓的报道，这种血栓被称为脑静脉窦血栓形成(CVST)。据路透社报道，欧洲经济区有920万人接种了该疫苗。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-5-1.jpg)
+该机构和世界卫生组织坚持认为，阿斯利康疫苗的收益大于风险。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-6-1.jpg)
+但是，随着调查的继续，法国，德国和荷兰已经暂停了疫苗的使用。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-7-1.jpg)
+据美国有线电视新闻网报道，荷兰医疗当局报告说，它在25至65岁的女性中发现了血凝块。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-8-1.jpg)
+德国报告说，在其发展为脑静脉窦血栓形成(CVST)的31例患者中有9例死亡，其中20至63岁之间的女性中发现了29例。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-1-2.jpg)
+挪威报告说，在接种疫苗后，有3人死亡，其中有血液凝块和出血。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-5-1.jpg)
+该机构在一份声明中说：“挪威药品管理局认为可能与这种疫苗存在联系，但是我们需要更多的研究来弄清楚到底是什么引起了这个(情况)。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-6-1.jpg)
+据路透社报道，欧洲研究人员提出了一种由疫苗引发的异常抗体或可能与避孕药联系的想法。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-7-1.jpg)
+欧洲药品管理局(EMA)人用药品委员会成员阿曼多·热纳扎尼（Armando Genazzani）表示，血块与阿斯利康疫苗相关联是“合理的”。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-8-1.jpg)
+该特定疫苗基于牛津大学开发的改良黑猩猩腺病毒载体。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-9-1.jpg)
+编辑：Victor Torres；校对: 阿伯塔；组稿：神奇四侠；发稿：信心的选择
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-10-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-11-6.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-12-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-13-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-14-1.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
+**新闻来源：**[《西部日报》](https://www.westernjournal.com/investigation-finds-clear-link-covid-vaccine-blood-clots-brain/)
 
 0

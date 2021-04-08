@@ -1,29 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共PLA网站发文威胁日本 称要用四个大招废掉日本国运
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1066288/)
+## 【香草诗词汇】快乐的童年
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1066307/)
 
-#### **整理/简评：** Michael.Tonny
-![]()![](https://gnews.org/wp-content/uploads/2021/04/My-Post-e1617905258625.jpg)封面来源：西陆网
-2021年4月8日，中共PLA军方网站发文，《[四个大招废掉日本国运！中国已经动手了](http://www.xilu.com/20210408/1000010001170021.html)》。面对日本加入美国为首的14国对CCP病毒起源调查、新疆种族灭绝，日本在九州西南部署F35战机，以及四五月份日本首相即将访问菲律宾、印度，中共对日本发出赤裸裸威胁，宣称要用四个大招废掉日本国运。
+作者：纽约香草山佛教部 文来
 
-一是联合周边俄罗斯、朝鲜…来压制日本。
 
-二是中（共）国是日本第一大贸易国、是日本的第一大出口对象。中共宣称此选项作为保留手段，必要时看谁的损失更大。
 
-第三更是把中共流氓表现得淋漓尽致了。中共称，尽管“朝鲜万门火炮让首尔变火海”不可能，但当朝鲜大量火炮的对准首尔后，韩国人真真实实的感受到危险，特别是朝鲜真真实实的拥有核武后，韩国人就老实了。赤裸裸的威胁日本。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-第四中共更是宣称要用在南海问题上对付国际社会的流氓手段来对付日本。“南海仲裁，中（共）国根本不认，并实际控制了黄岩岛”，“… …这两天中（共）国渔船在牛轭礁避风，… …菲律宾拿出南海仲裁，中（共）国还是不认可，咱们是正常避风”。国际仲裁在中共的眼中连废纸都不如。
 
-“早晚有一天，当中（共）国也能够对日本形成代际压制的时候，日本的声音也就无足轻重了。”什么流氓逻辑？
 
-**新闻来源链接：**🔗[四个大招废掉日本国运！中国已经动手了](http://www.xilu.com/20210408/1000010001170021.html)
+我是二年级的小环
 
-* * *
+上完课放学我就想出去玩
 
-***审核/校对：****Ting Guo*
+这摸摸那看看童年乐无边
 
-（免责声明：本文的简评只代表作者观点，跟GNEWS平台无关）
+滑梯玩了一遍又一遍
+
+小花小草都是我的好伙伴
+
+爸爸看着我天真无邪的脸只想亲个没完。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-92.png)图源网络
+
+我是二年级的小环
+
+上完课放学我就想回家玩
+
+语文数学放到一边
+
+钢琴也不用弹
+
+只看动画片
+
+妈妈走过来说，来，吃一块饼干。
+
+
+
+我是二年级的小环
+
+谁拿走了我快乐的童年？
+
+我要我的童年
+
+灭了CCP
+
+拿回本属于我的童年！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
 
 0
