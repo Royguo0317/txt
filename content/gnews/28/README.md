@@ -1,28 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】我们GTV投资者自豪捍卫权利
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1062608/)
+## 【世事解评】中共与巴基斯坦在生物方面的军事合作（一）
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1062840/)
 
-作者：纽约香草山媒体部 蜜蜂
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+译评：纽约香草山农场  Billwilliam
 
 
 
-转眼间GTV诞生一周年了。在这一年里，GTV始终如一地奉行着“唯真不破”的原则，讲真话，说实事，是举世无双的灭共平台；在这一年里，GTV彻底揭露中共的愚民五术、以假以黑治国、3F计划、病毒来源真相、13579计划、灭白计划等。GTV用真、善、狠，把中共这个马蜂窝翻了个底朝天，更让“中南坑”的“老杂毛”们坐立不安。GTV彻底打破了中共妄图统治世界的黄粱美梦，拆断了他们的“一带一路”。GTV的力量打得中共措手不及、满地找牙。当然，中共也绝不甘心：中共一边千方百计地垂死挣扎，一边用他们的惯用伎俩——发动他们在海外的潜伏势力，勾结他们在各国用“蓝金黄”手段收买的各行各业要人。于是，中共围追堵截、拼命打压GTV这个虽年轻但充满战斗力的反共平台。是可忍孰不可忍？！
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-59.png)
 
-我们是GTV的投资者，我们热爱这个敢说实话、敢发声，追求正道主义的灭共平台。我们怀着对未来美好生活的憧憬，对正义事业的追求，我们心甘情愿来投资、建设GTV，传播真善美。可就在这个投资过程中，有多少中共国墙内的投资者被百般阻挠、剥夺投资权利。而投资成功者一旦被查出，还会被“国保”、“国安”人员威逼恐吓，甚至入狱、丧生。面对这些违反人权的行为，国际上没有一个正义的组织对他们进行人权保护。甚至，中共猖狂的黑手还伸向了美国证券交易委员会，俗称SEC，美国联邦管理和监督金融市场的机构——他们同样用“蓝金黄”的手段收买SEC，致使他们对中共军工企业在美交所的上市可以不闻不问，不施行任何审核调查，任中共以国家之力圈美国老百姓的血汗钱为自己输血。SEC里这些人见利忘义、吃里扒外，为中共这个沾满人民鲜血，犯有种族灭绝、反人类罪的政府充当警察和打手。SEC不分青红皂白与中共特务勾结，用子虚乌有、混淆视听、搅浑水的手段，对GTV普通投资者百般刁难，横挑鼻子竖挑眼。SEC置 “六大金融法律”而不顾！
 
-美国SEC跟共产党勾结，无故长期调查GTV，合谋构陷合法投资者，歧视中国投资者，造成了我们投资者巨大的损失。这是典型的种族主义行为和有政治目的的犯罪行为。是可忍孰不可忍？！
+根据《克拉克森新闻》记者安东尼-克兰报道，中共与巴基斯坦在生物研究方面有秘密军事合作，甚至包括类似炭疽的细菌研究。
 
-我们作为GTV投资者，为了我们自己的权利和利益，必须声讨SEC的非法行为，必须要求美国政府彻查SEC与共产党合谋的犯罪行为。我们要去SEC官网举报投诉。我们是骄傲的GTV投资者，我们站出来坚决捍卫我们自己的投资权益！
+![]()![](https://www.msdmanuals.com/-/media/manual/professional/images/bacillus_anthracis_orig_zh.jpg?thn=0&amp;sc_lang=zh)图源网络
 
-（本文观点仅代表作者）
+武汉病毒所与巴基斯坦的国防科技组织（DESTO）签署秘密协议，研究新发传染病。情报来源称，该计划完全由中共国资助，并被正式命名为“新发传染病合作以及媒介传播疾病的生物控制研究”。
+
+情报界对此表示关切，因为中共在境外测试生物制剂，以期尽量减少“引起国际社会谴责的风险”。一位情报来源称，“在秘密生物武器计划下，DESTO参与了与炭疽有关的各种双重用途研究项目”。而且武汉病毒所提供所有资金、材料、科技支持。
+
+据称，中共与巴基斯坦的秘密项目已经成功进行了土壤样本实验，并分离出苏云金芽孢杆菌（Bacillus Thuringiensis，简称BT菌），这种细菌与炭疽惊人的相似。巴基斯坦通过研究这种细菌可以丰富其攻击性生物武器项目。武汉病毒研究所已向巴基斯坦提供了苏云金芽孢杆菌的试剂。同时，武汉病毒所向巴基斯坦提供基因改造病原体和生物信息学的广泛培训，并帮助巴基斯坦发展自己的病毒数据库。巴基斯坦由此获得鉴定病毒，获取危险微生物和将基因工具应用于传染病的能力。
+
+该秘密项目不受民用大学或巴基斯坦政府卫生部的监督，并被允许未来进行秘密行动。中共与巴基斯坦的合作不限于既定目标——双方都可以增加研究新型疾病。情报部门认为，中共参与这个项目是为了针对印度，而且还可以在外国领土上进行危险实验，避免其自身遭受这种风险。一位专家称，北京（中共）“将巴基斯坦指定为进行危险生物化学研究的目的地”，同时“逃避使用其本国领土从事此类活动”，这些活动“有可能引起国际社会的批评和谴责”。该项目的一部分就是利用巴基斯坦公民测试中（共）国国药集团的新冠疫苗。
+
+此外，中巴生物项目已经开始研究克里米亚-刚果出血热病毒（CCHFV）。这种出血热病毒发病快，死亡率到达25%，与埃博拉病毒一样危险。克里米亚-刚果出血热传染性强，尚没有已知的疫苗或治疗方法，所以和埃博拉病毒、马尔堡病毒等一起被列为P4级最危险的微生物。据称，巴基斯坦用于实验CCHFV的实验室不具备处理生物安全P4级别。因此，情报专家对这个项目的生物安全性表示担忧。
+
+《克拉克森新闻》称，中共正在积极进行基因研究，可能制造出针对某个种族的生物武器。另有情报人士称，武汉病毒所在云南昆明还建立了医学生物学研究所。令人担忧的是，据称隶属中（共）国医学科学院的昆明研究所也在从事P4级传染病研究但没有适当保护措施。
+
+点评：
+
+除了《克拉克森新闻》，笔者还找到两篇关于苏云金芽孢杆菌的论文。第一篇题为《苏云金芽孢杆菌Cry7Ca1毒素的晶体结构，该毒素对特定一种蝗虫有效》，主要阐述苏云金芽孢杆菌分泌毒素蛋白的结构[2]。第二篇论文则分析一种苏云金芽孢杆菌的全基因组序列[3]。两篇论文的部分作者均隶属于武汉病毒所或中（共）国科学院。这个证据证明，武汉病毒所确实在从事苏云金芽孢杆菌的研究。
+
+苏云金芽孢杆菌本身对人无害，但是能感染并杀死某些昆虫，所以农业上被用作生物杀虫剂喷洒在农田里。如果中巴项目对这种细菌进行基因改造，有可能制造出能感染人的基因武器。
+
+参考阅读：
+
+1. “[Exclusive: China’s Wuhan lab operating ‘covert operations’ in Pakistan, handling ‘anthrax-like’ pathogens](https://www.theklaxon.com.au/home/xdx17f6auh0tew0g57ubqrzxkdeux9),” Klan, Anthony, *The Klaxon*, July 23, 2020.
+2. “[Crystal structure of Bacillus thuringiensis Cry7Ca1 toxin active against Locusta migratoria manilensis](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6371223/#__ffn_sectitle),” Jing. X., and et al., *Protein Science*, Mar 2019, 28(3): 609-619
+3. “[Complete Genome Sequence of *Bacillus thuringiensis* subsp. *Jinghongjiensis* Reference Strain YGd22-03](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5624746/#__ffn_sectitle),” Wu, Y., and et al., *Genome Announcement,*Sep 2017, 5(39):e00740-17
+
 
 ![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
@@ -38,9 +55,9 @@
 
 更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
