@@ -1,35 +1,143 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新西兰阿登政府满六月 防长神隐不见
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1068425/)
+## 美国政要等每日重要信息0409-中共病毒真相（思绪涟漪）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1067312/)
 
-译者：文紗
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
 
-杰辛达·阿登(Jacinda Ardern)在她的首个任期做了一个新颖的实验：在其所在的工党与新西兰优先党联合组阁后，基于两党达成的协议，在2017底把外交事务交付给盟党主持。新西兰优先党主席温斯顿·彼特斯(Winston Peters)在继前总理海伦·克拉克 (Helen Clark) 的第三任期之后再次担任外长一职，而罗恩·马克(Ron Mark)也得到了他梦寐以求的防长职务。但是在三年后的2020年大选，随着新西兰优先党惨败与工党的完胜，这两个职位人选再次回到公众的视野中。
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
+## 劳伦斯-塞林博士的声音
 
-首先在外交方面，人员的变动已经产生了明显的效果。现外长纳娜亚·马胡塔(Nanaia Mahuta)在怀唐伊节的筹备中发表演讲表明了其与前外长彼特斯的明显差异：地缘政治的考量较对人民的政策被放到次级的位置，这其中包括了在全球范围内为原住民发声。
+4月8日劳伦斯-塞林博士继续煽动中共病毒真相的翅膀，进一步抽取病毒来源线索，配合英雄天使科学家闫博士提出的超限生物武器论和爆料革命对中共病毒的定义，在推特发文宣传：
 
-但是马胡塔同时成为了阿登第二任政府里对中共国最主要的强硬声音。最近她一次又一次的与澳大利亚的伙伴表达了对香港新疆人权状况的关切，但是如此以及其余的小动作并不能改变外界对于新西兰向北京当局下跪评价,这些指责主要依据新西兰外长是否加入五眼联盟的伙伴对北京的联合指控。即便如此，这也是彼特斯尽可能回避的挤压。毕竟阿登在其第一任外长发表亲美言论后澄清了新西兰政府在中国问题上的态度，这一表态无疑令华盛顿与堪培拉相当侧目。
+“在武汉#COVID19感染高峰期，武昌区密度最高&其最高密度出现在武汉大学P-3动物实验室、武汉病毒学研究所和解放军军区医院等区域。
 
-有时这些比较中缺失的部分就是罗恩·马克跟新西兰日进地位的国防政策要发光发热的地方了。外国事务与贸易部有不发布总体政策悠久的传统，由马克在2018年推出的《战略防务政策声明》亦是如此——该声明总结了新西兰日益增长的对中共国对于区域安全影响的关注。
+“#中共病毒 #超限生物武器 #中共病毒大流行来源 #冠状病毒”
 
-仅在惠林顿强调在南中国海问题上越来越强硬的数日后，马克做了继1980年代决定购买两艘安扎克级巡防舰后历届防长都没做过的事——宣布决定购买P-8“波塞冬”海上巡逻机以替代老式的P3“猎户座”。在他卸任前，他还会重复这一举动，在内阁的同意下将老式C130大力神运输机换代为新的C130J超级大力神。这两则决定都意味着新西兰将拥有与传统防务伙伴类似的硬家伙，但都需要大笔的开支。随后我们就迎来了阿登政府2.0。
 
-即便没有因Covid-19危机对预算提出的独特要求，在新防长佩尼·埃纳雷(Peeni Henare)于10月接任后没人会预计国防会成为预算支出的优先事务。可以肯定的是，财政部一直在释放信号：国防部的好日子到头了。
 
-尽管国防军在检疫工作中发挥了很大作用，海外部署的方面的微弱作用很难让内阁确信部队的能力有任何用处。在马克的工作下，新西兰结束了在伊拉克塔吉基地的任务，并将驻阿富汗的人员缩减到一小撮。
+> In Wuhan's peak [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) infection period, Wuchang district had the highest density & its highest density were in the areas of Wuhan University P-3 animal lab, Wuhan Institute of Virology & the PLA military Hospital[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/DK74IxTOGX](https://t.co/DK74IxTOGX)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 8, 2021](https://twitter.com/LawrenceSellin/status/1380129105316810761?ref_src=twsrc%5Etfw)
 
-今年早些时候由部长们宣布最后剩余的人员撤回，埃纳雷与阿登、马胡塔的一起出席引起了不小的关注。即便此次媒体报道很低调，却也称得上是新任防长一次引人关注的出场。只要关注一下埃纳雷在政府的蜂巢网站上的出镜率就不难发现，相较于前任罗恩马克，阿登政府的第二任防长一直很安静。这意味着我们尚不清楚埃纳雷的国防政策以及国防在新西兰国际交流中的地位的看法。在后Covid时代国防不太可能获得优先预算的情况下，他是否要改变罗恩·马克的扩展军力的采购清单呢？或是跟前任一样热衷于让国防军为作战任务做好准备呢？或者，他是否会跟新外长马胡塔的论调保持一致，强调旨在减轻人类痛苦的能力与任务呢？新西兰与澳洲的紧密防务关系是否能给埃纳雷一个抵消跨塔斯曼问题的机会呢？新防长希望国防部与新西兰国防军如何来处理该地区的大国格局呢？
 
-在某个时刻，埃纳雷将会处在一个马胡塔再熟悉不过的位置：处理传统安全伙伴对于采取对中共国一致态度的期望，包括在五眼的框架下。我们可以预见到那些期望来自于塔斯曼岛的另一边，特别是彼得·达顿(Peter Dutton)（新西兰人最倾向于讨厌的澳洲政客）成为了斯科特·莫里森(Scott Morrison)不断变化的内阁中的国防部长。
 
-并且我们也可以预见，某个时候乔·拜登(Joe Biden)的国家安全团队会来敲门。劳埃德·奥斯丁(Lloyd Austin)与安东尼·布林肯(Antony Blinken)首先在日本韩国活动，杰克·苏利文(Jake Sullivan)则一直在表达美国对地区盟友澳洲的支持，而新西兰则在华盛顿的亲密伙伴名单上。拜登政府的印太顾问库尔特·坎贝尔(Kurt M. Campbell)在这些方面很擅长，他也一定会回来。那么，埃纳雷是否真的会等待新西兰的盟友用他们的期望来左右他的公共议程呢？还是要等到下一次可能发生在东南亚或东北亚或其他地方的地区冲突呢？
+塞林博士夜以继日、按部就班地发表病毒真相的线索，4月9日凌晨发推如下：
 
-在公众面前曝光一系列文字性的东西或许是更好的选择，以免给人留下拍脑袋做决定的印象，以及记者开始质疑他的异常沉默。2021年的安扎克日将标志阿登第二任政府到了整整第六个月份，对于第二任防长这或许是个开始就政策与能力选择表明公开立场的好机会。
+“解放军中部战区司令部总医院是解放军广州军区总医院在地图上标出的新名称，在#中共病毒大流行 的起源上与武汉大学武汉病毒学研究所、延伸的军事院校有关联。
 
-译者评：阿登政府官员换届，新任防长迟迟不露面。究竟这届阿登政府的国防政策如何？是做出实际行动跟随五眼联盟一起联合对共还是只停留在嘴上谴责？让我们继续看下去。
+“#中共病毒 #超限生物武器”
 
-原文链接：[https://www.newsroom.co.nz/pro/defence-minister-goes-awol](https://www.newsroom.co.nz/pro/defence-minister-goes-awol)
 
-+1
+
+> General Hospital of Central Theater Command of the PLA is the new name of the General Hospital of Guangzhou Military of PLA on maps, linked to Wuhan Institute of Virology, Wuhan University & extended military institutes in the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/KN7ZFUhX5S](https://t.co/KN7ZFUhX5S)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 9, 2021](https://twitter.com/LawrenceSellin/status/1380382787585380353?ref_src=twsrc%5Etfw)
+
+
+
+“武汉多重机构（也是中南医院）在#中共病毒大流行 的实验室来源中所扮演的角色，包含在一个秘密的与军事有关的病毒类粒子疫苗项目中，这也是中共在纳米技术上称霸全球的目标之一。
+
+“#中共病毒 #超限生物武器 #中共病毒大流行来源”
+
+
+
+> Wuhan's multi-institutional (also Zhongnan Hospital) role in [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)'s laboratory origin is embedded in a secret military-linked virus-like particle vaccine program, part of the CCP's goal of global dominance in nanotechnology.[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/gUfy3sRetx](https://t.co/gUfy3sRetx)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 9, 2021](https://twitter.com/LawrenceSellin/status/1380437260458409986?ref_src=twsrc%5Etfw)
+
+
+
+“据了解，中国人民解放军与大学和私营公司一起参与了减弱病毒（如轮状病毒）疫苗的人群测试，这种疫苗可以自发恢复到致病状态。”
+
+
+
+> China's People's Liberation Army is known to participate together with universities & private companies in population-based testing of attenuated viral (e.g. rotavirus) vaccines, which can spontaneously revert to a pathogenic state.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/fBU7OEDmmD](https://t.co/fBU7OEDmmD)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 9, 2021](https://twitter.com/LawrenceSellin/status/1380399327747670017?ref_src=twsrc%5Etfw)
+
+
+
+“图片信息：美国印太总司令部解释：**根据中共的法律，中共国军民融合项目要求，任何组织和个人必须在生物和医疗领域为中共的统治体制贡献信息和帮助。**
+
+“中共病毒大流行释放假定：
+
+1. **从基因改造的冠状病毒直接释放**
+2. **减弱病毒的冠状病毒疫苗形成发病状态**
+3. **来自失败的抗击病毒的疫苗**
+
+
+“#中共病毒 #超限生物武器 #中共病毒大流行来源 #冠状病毒”
+
+## 邮件中的情报
+
+4月7日《美国知情权》刊登文章《中共国关联期刊编辑求助反驳Covid-19实验室起源假说》。作者：[Sainath Suryanarayanan](https://usrtk.org/author/sainath/) 。[点击查看原文。](https://usrtk.org/biohazards/chinese-linked-journal-sought-to-rebut-covid-19-lab-origin-theory/)
+
+
+
+> Chinese-linked journal editor sought help to rebut Covid-19 lab origin hypothesis – according to emails obtained by USRTK. Read the latest in the [#biohazards](https://twitter.com/hashtag/biohazards?src=hash&amp;ref_src=twsrc%5Etfw) blog by [@sai\_suryan](https://twitter.com/sai_suryan?ref_src=twsrc%5Etfw) [https://t.co/eyOQzU3x9v](https://t.co/eyOQzU3x9v)
+> — U.S. Right To Know (@USRightToKnow) [April 7, 2021](https://twitter.com/USRightToKnow/status/1379901422569975812?ref_src=twsrc%5Etfw)
+
+
+
+文章称美国知情权组织获得的电子邮件显示，《新兴微生物与感染》（EMI）驳斥新型冠状病毒SARS-CoV-2来自实验室。该杂志的编辑工作由中共国的上海尚艺迅文化传播有限公司（音译，Shangyixun Cultural Communication Co.）负责，并与总部位于英国的出版商Taylor & Francis合作。该杂志的几位编辑和董事会成员都在中共国，其中包括一些隶属于中国政府的成员。EMI董事会成员复旦大学医学院的蒋世波（音译）和中山大学的舒跃龙（音译）是寻求改变新冠状病毒名称以拉开与中国距离的中国科学家之一；董小平（音译）是中国疾病控制中心的政府官员，他是2020年2月与世界卫生组织联合考察团阐明SARS-CoV-2起源的中方二号专家。
+
+马萨诸塞大学医学院的主编陆珊为EMI杂志征集了由美国病毒学家撰写的评论，题为 “没有可信的证据支持SARS-CoV-2实验室工程的说法”，于2020年2月发表。这与27位科学家在不同期刊上发表的科学报告和声明大约在同一时间发表，这些报告和声明都断言新的冠状病毒有自然来源。
+
+这篇评论用科学势力加强了中共病毒自然起源确定性的表述，在中共国武汉首次报道疫情的几周后就发表出来。EMI在提交评论后12小时内就被予以发表，这表明一个科学刊物为了表达政治观点而进行了肤浅的同行评审程序。
+
+这篇评论的作者包括病毒学家刘善璐（音译）和俄亥俄州立大学的赛夫（Linda Saif）、宾夕法尼亚大学的魏斯（Susan Weiss）以及当时隶属于北卡罗来纳大学的苏立山（音译）。作者在文章中反对SARS-CoV-2来源于实验室泄露的可能性，这一可能性是基于一种落户在中共国武汉病毒学研究所内、名为RaTG13的蝙蝠冠状病毒。
+
+文章称，在2020年2月11日的一封邮件中，刘善璐（音译）邀请赛夫作为 “几乎完成 “的草稿的共同作者，“就一些谣言，对2019-新型罐装病毒或SARSCoV-2的可能来源发表评论”。刘在邮件中表示，他是应EMI主编的邀请，与苏立山（音译）一起写了这篇评论。赛夫同意加入。2月12日，刘还邀请魏斯教授也作为共同作者，她也立即同意。
+
+赛夫曾在《柳叶刀》上发表声明，他是签署人之一。该声明是由生态健康联盟（EcoHealth Alliance）的彼得-达斯扎克（Peter Daszak.）策划的。 生态健康联盟是一个非营利组织，曾获得美国纳税人数百万美元的资助，用于对病毒进行基因改造，包括与武汉病毒学研究所的科学家合作。
+
+2020年2月，EMI又发表了两篇评论，均对中国政府在SARS-CoV-2起源问题上的立场表示支持。
+
+- 2月4日，一篇题为 “HIV-1没有对2019-nCoV基因组做出贡献 “的评论，作者是美国的中国科学家，隶属于中国的大学；
+- 2月28日，中国科学院上海的科学家发表了一篇题为“SARS-CoV-2是否源于实验室”的评论，作者是中国科学院上海的科学家。
+
+
+一些科学家认为，撰写EMI评论的专家们并没有考虑到WIV中存放着未发表的与SARS相关的蝙蝠冠状病毒，这些病毒可能成为SARS-CoV-2的实验室起源模板。
+
+文章称，迄今为止，关于该病毒起源问题的争论仍未结束，调查自然以及实验室起源情况的呼声越来越高。
+
+斯坦福大学教授David Relman在PNAS的一篇文章中写道，反对刻意人工合成理论的论点 “没有承认已经发现了两个或更多尚未披露的祖先（比RaTG13和RmYN02更接近的祖先）早已在实验室进行研究，例如，一个具有SARS-CoV-2主干和穗蛋白受体结合域，另一个具有SARS-CoV-2多基弗林酶切位点。这本来是一个合乎逻辑的下一步，想知道重组病毒的特性，然后在实验室里创造它。”
+
+了解更多信息：
+
+- 美国知情权组织通过公共记录申请获得的俄亥俄州立大学教授琳达-赛夫（Linda Saif）的邮件，可以在这里找到。赛夫电子邮件第1批：俄亥俄州立大学（303页）。
+- 美国知情权组织正在为公共记录要求公布我们为生物危害调查而提出的文件。请看：[关于SARS-CoV-2的起源，功能增益研究的危害和生物安全实验室的FOI文件](https://usrtk.org/biohazards/foi-documents-on-origins-of-sars-cov-2-risks-of-gain-of-function-research-and-biosafety-labs/)。
+- 关于美国知情权对SARS-CoV-2起源调查的背景页。
+
+
+
+
+## 阅读清单
+
+4月7日《美国知情权》发布文章：“[生物危害新闻追踪：关于SARS-CoV-2起源、生物实验室和功能增强研究的最佳文章](https://usrtk.org/biohazards/origin-of-sars-cov-2-gain-of-function-readings/)”。作者：Sainath Suryanarayanan。
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/04/ccp-virus-usrtk.png)图片来源 USRTK
+
+
+文章列出一份长长的阅读清单，内容涉及SARS-CoV-2的起源、生物安全和生物战实验室的事故和泄漏、以及功能增益（GOF）研究的健康风险，GOF研究的目的是增加潜在大流行病原体的宿主范围、传播性、传染性或致病性。文章称，美国知情权组织正在对这些课题进行研究，并将研究结果发布在我们的生物危害博客上。
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+（本项目持续更新）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+
+0
