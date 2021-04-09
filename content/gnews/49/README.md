@@ -1,39 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世界没有像样的政府&nbsp; 强推疫苗背后都是腐败
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1065973/)
+## [疫情下的西班牙]面对疫苗严重副作用频现我们该何去何从？
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1066330/)
 
-**简述：郭先生在2021年4月4日的盖特视频中感叹世界上没有几个好的政府，它们拼命给人民打疫苗，可疫苗背后藏着无数的腐败。他也评论说美国的万亿纾困法案是羊毛出在羊身上，最后还是要美国人埋单。**
+- 作者：gokuabuela
 
-**世界没有像样的政府  强推疫苗背后都是腐败**
 
-**Few Governments Are Decent; Behind the Vaccines Are All Corruptions**
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-你看看这世界上哪有几个像样的政府啊，拼了命了让大家打疫苗，这个疫苗的背后就是腐败。买疫苗，买谁家疫苗，谁给打疫苗，收你多少钱？政府批多少钱，反正这些钱最后都是老百姓身上，没有一个政府生产一块钱财富，所有的财富都是人民创造的，所有的所谓的免费的，最后都是从你身上拿出来。
+**西班牙2021年4月8日电/西喜社——**
 
-Look at how few decent governments there are in this world? They are desperate to get everyone vaccinated. Behind the vaccines are all corruptions. Whose vaccines to purchase? Who get vaccinated? How much to charge them? How much should the government pay? Anyway, all this money in the end will be paid by the people because no government produces a dollar of wealth, all the wealth is created by the people. All the so-called free stuff will ultimately be paid out of your pocket.
+据ABC新闻4月8日报道，根据EMA安全委员会（PRAC）的分析发现，与阿斯利康疫苗有关联的血栓病例 “主要发生在注射第一剂疫苗后两周内的60岁以下女性，因为第二剂疫苗的经验还很有限”。
 
-就像头两天，一万多亿的美国所谓的每个人发1400块钱补助，马上加税，加税的人，这些人老板加税了，你以为老板能给你啥？老板会在你身上，老板自己家里也不产钱，地里也不长美元，也不长人民币，最后还得老百姓的劳动剥削出来的，最后不还是这些老百姓的钱吗？这基本的常识吗？
+鉴于这些结论，卫生部长卡洛琳娜-达里亚斯在自治区间的卫生委员会会议上建议将其使用范围限制在60岁以上的人。据ABC新闻报道，这一决定没有得到马德里地区的支持。巴斯克地区和休达投了弃权票。这是战略上的彻底改变。直到现在，阿斯利康的疫苗都是给65岁以下的人注射的，正是因为对老年人的疗效缺乏信心。自2月以来，已有210多万人接受了该疫苗的首剂注射，97人已完成全部疗程。大多数是教师、警察和基本服务人员，以及56至65岁的人。
 
-Just like the American Rescue Plan of over a trillion dollars, which was passed a couple of days ago, giving $1,400 subsidy per person, will immediately entail increased tax. Those bosses will pay more tax. What do you think the bosses will do to you? The bosses will put that on you because your boss does not produce any money in his own home, and the field can’t grow dollars or RMB out of it either. In the end, money will come from exploiting the working people. Isn’t it the people’s money in the end? Is this basic common sense?
+那么问题来了，那些已经接种过一剂阿斯利康疫苗，60岁以下的人怎么办？
 
-你以为哪个政府伟大地说，我给你补贴1万亿2万亿，最后羊毛一定长在羊身上，羊毛一定不会出在猪身上，也更不会出在中南坑那些老杂毛上身上，就这么简单，是吧？不论是哪国都是一样。所以说政府、政客，没有一个是好东西，所以这一辈子当啥也不能当政客，掺乎啥也不能掺乎政治，没好东西。
+请看另一篇报道：“我们不愿意成为部分免疫的人”
 
-You think your government is so great to give people subsidies of 1 to 2 trillions. Wool can only be from sheep (Chinese idiom, meaning “whatever you’re given, you pay for”), wool won’t be from the pigs, and it certainly won’t come from those old bastards in the Zhongnanhai Pit. Simple as that, right? All countries are the same. Therefore, neither governments nor politicians are good, so don’t be a politician in your life time and don’t get involved in politics because there’s nothing good out of it.
+另据ABC新闻4月8日报道，周三欧盟所有卫生部长召开紧急会议，随后几个国家决定限制接种阿斯利康的疫苗。在西班牙，只有97人接种了两剂牛津大学研制的疫苗，而2,154,675人接种了第一剂。主要是教师、 消防员、 和警察，他们大多数为60岁以下。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/6069f00bdbc8001854a571df](https://gtv.org/getter/6069f00bdbc8001854a571df) (4:01-5:18)
+“我们确实想要它，但是需要有证据表明它确实有保护作用，”在提到阿斯利康的第二剂疫苗时，何塞-伊格纳西奥-希梅内斯（José Ignacio Jiménez）说，他是克莱特学校的主任，也代表了这家隐修院的其他教师。他坦言，希望是 “科学依据占上风”，希梅内斯说：”我们的想法是，政府需要寻找一种可行的、科学的情况，他们一定会找到。”。据介绍，这所学校原本应在5月下旬至6月上旬之间接种第二剂阿斯利康疫苗。在这个意义上说，卫生部长卡罗莱纳-达里亚斯周四表示，”还有时间做出最好的决定”。
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/1050010/](https://gnews.org/zh-hans/1050010/)
+本周四，中央独立工作者和公务员工会 (CSIF)要求召开紧急会议，向卫生部和教育部报告第一手的阿斯利康公司的疫苗接种情况。何塞-安东尼奥-R-巴恩斯（José Antonio R. Barnes），马德里社区的一名教师证实，情况的不断变化让他产生了 “焦虑和恐惧的状态，期望一切都正在解决“。他想知道 “他们是不是要拿我做实验，再给我打第二针？“这位老师在2月28日接种了疫苗，当时感觉是： “非常高兴，因为我很想接种疫苗”，但随后血栓事件的发生，我就开始感到不确定和不安。”他现在回忆道。
 
-* * *
+另一方面，私立和独立学校协会(CICAE)也表现出对暂停疫苗接种计划的担忧，并要求有一个明确的路线图，以了解在这个过程中对教师将采取什么措施。”对这些专业人员接种疫苗的额外延迟非常让人担心，他们已被证明在大流行期间至关重要，”私立和独立学校协会(CICAE)总干事艾琳娜-希德（Elena Cid）说。
 
-翻译：【rainbow】字幕：【Rock小哥】二校：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+马德里地区的一名消防员向ABC新闻坦言，他觉得自己 “有点像豚鼠”。”所有的研究都应该更早一些，在之前就看到这些问题。”
 
-0
+一名同样接种了阿斯利康疫苗的警察坦言，他将遵守当局的任何决定。他对欧盟内部已经在研究的，可能的解决方案，持积极和自信的态度。
+
+**简评：**
+
+**疫苗出问题是迟早的事，闫博士早就说过。除了马利克，没有人研究过抗体对人体的副作用。比如阿斯利康疫苗为什么会激活体内的凝血因子？欧盟相关机构之前没有做过这方面的研究，事情发生后短短几天，就做出了“这是非常罕见的副作用“的结论，这是极其不负责任的，他们根本没有弄清楚发病的机理、诱因、解决方法。换句话说，也就是“我们尽量给风险相对较小的人群使用，发病率也不高，谁中奖了就自认倒霉吧，反正大多数人不会有事的。”**
+
+**除了血栓，是否还有可能引发别的疾病？从中共发动超限战到现在，欧洲、美国从来就没有采取过正确的行动，比如如何对待硫酸羟氯喹，比如带口罩政策，比如大搞疫苗经济。这背后隐藏着复杂的政治因素和经济因素，但到了今天，面对疫苗问题，还采取这样敷衍的态度，完全没把民众的生命当回事。**
+
+**这个世界确实需要涅槃，无法想象，依靠这样的政府，这样的方法，能够对抗中共，能带领民众取得抗疫的胜利？再次为自己加入了爆料革命而感到幸运。**
+
+**而作为欧美的民众，长期生活在优越的环境中，思想都非常的“傻白甜”，还天真的相信有科学依据，相信政府能正确的解决问题。还需要付出多大的代价，才能认识到疫苗的问题？最根本的是要认识到政府没有走在正确的道路上！**
+
+**我们也需要加强对西班牙民众推广真相，让大家早点觉醒。**
+
+编辑：Victor Torres；校对:阿伯塔 ；组稿：神奇四侠；发稿：信心的选择
+
+**新闻来源：**[ABC新闻](https://www.abc.es/sociedad/abci-sanidad-propone-comunidades-mantener-vacunacion-astrazeneca-mayores-entre-60-y-65-anos-202104072114_noticia.html#vca=mod-lo-mas-p1&amp;vmc=leido&amp;vso=sociedad&amp;vli=noticia.foto.sociedad&amp;vtm_loMas=si%20https://www.abc.es/sociedad/abci-desconcierto-entre-vacunados-dosis-no-queremos-inmunizacion-parcial-202104081354_noticia.html)
+
+[西班牙巴塞罗那喜悦农场：疫情下的西班牙专栏](https://gnews.org/zh-hans/993776/)
+
++1

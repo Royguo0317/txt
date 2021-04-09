@@ -1,24 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 生物学家警告mRNA疫苗将缩短人类寿命造成不孕不育
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1067528/)
+## 佩里议员批拜登基础设施计划是“中共优先政策”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1067622/)
 
-撰稿视频：光耀华夏
+俄罗斯莫斯科喀秋莎农场   银河
 
-素材：Jenny
-视频来自网络
-近日，爱尔兰都柏林大学医学院生物学家，世界自由联盟组织（World Freedom Alliance）的发起人，多洛雷斯·卡希尔教授（Prof. Dolores Cahill），在网络上发布了一段视频谈mRNA（Messenger RNA，信使核糖核酸）疫苗的副作用。
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/c-5.jpg)energylivenews.com
+共和党众议员斯科特·佩里（Scott Perry）周四在接受《布莱巴特新闻》独家采访时表示，拜登总统的基础设施计划相当于“中共优先政策”，同时指责这一计划未能重振美国日渐萎缩的基础设施。
 
-她认为当前的mRNA疫苗并不是人们想象中的安全有效，相反它将大大缩短人的寿命，引起“过敏反应，神经认知问题和炎症”，甚至造成“不孕不育”。注射mRNA疫苗将在未来几年对人类造成更大的伤害，对老年人更加致命。
+拜登提出的2.3万亿美元的基础设施计划的核心是修缮公路和桥梁、扩大宽带网络接入和增加研发资金，应对气候变迁、及提升老人照护等公共服务，希望创造数百万个就业岗位，另外将提高公司税为该计划提供资金。拜登的基础设施计划希望在美国继续与中共病毒疫情作斗争之际提振经济，然而，多项研究发现，拜登的计划可能会对美国经济复苏产生重大影响。
 
-（本文仅代表作者观点）
+报道称，2.3万亿美元的基础设施建设资金中，25%用于道路、桥梁和铁路等基础设施建设。佩里指出拜登的计划没有达到目标。他强调，该法案应该侧重于建设有形基础设施，而不是侧重于儿童保育等社会支出。佩里说:“不要把它叫做基础设施，然后把一笔巨大的开支的75%到90%花在完全无关的事情上。”
 
-参考来源：
+反对方认为这一计划中充斥着不必要的支出项目，加税最终会损害美国经济。美国全国制造商协会(NAM)公布的研究显示，拜登的计划在通过的头几年可能导致100万人失业。宾夕法尼亚大学的预算估计发现，到2050年，该计划将使国内生产总值(GDP)减少0.8%。
 
-1. [Dolores Cahill教授个人主页](https://people.ucd.ie/dolores.cahill)
-2. [Dolores Cahill谈mRNA疫苗潜在危害](https://gnews.org/zh-hans/883467/)
-3. [世界自由联盟组织](https://worldfreedomalliance.org/)
+共和党参院领袖麦康奈尔（Mitch McConnell）说，共和党可能会支持一种不依赖向企业加税的温和方法。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2.jpg)
+佩里认为拜登政府在这项法案的创造就业潜力和其他倡议方面撒了谎。佩里指出，基础设施计划将包括气候变化政策，这只会损害美国对中共的竞争力。例如，该法案将包括为电动汽车和电动汽车充电站、电动校车和清洁能源技术提供资金，而这些产业链大多被中共把控。佩里说“这相当于中共优先的政策。”
+
+参考链接：
+
+[https://www.breitbart.com/politics/2021/04/08/exclusive-rep-scott-perry-biden-infrastructure-plan-amounts-china-first-policy/](https://www.breitbart.com/politics/2021/04/08/exclusive-rep-scott-perry-biden-infrastructure-plan-amounts-china-first-policy/)
+
 0
