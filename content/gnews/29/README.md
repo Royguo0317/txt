@@ -1,37 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 卢比奥获川普总统背书
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1069746/)
+## 中共国加大钳制澳门新闻言论自由
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1069788/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+俄罗斯莫斯科喀秋莎农场 DongDong
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/r-6.jpg)uslibertynews.com
-一度有令人失望的表现，敦促川普总统接受败选的事实，为假牧师傅希秋喊冤的马可·鲁比奥（Marco Rubio），经过一段时间的反省，似乎加深了对邪恶中共的认知，近期的言论和表现充满了对邪共的谴责，对川普总统的支持，或许经过川普总统的考察，认为“此人可用”，卢比奥获得了川普总统的背书。
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/M-3.jpg)japantimes.co.jp
+据香港路透社(3 月 10 日)报道，在澳广视(TDM) 葡语新闻部的一次会议上，两名资深记者向约 25 名员工宣读了新编辑准则，要求传播和促进爱国主义、爱国爱澳精神。
 
-此消息由川普总统的长子小唐纳德·川普（Donald J. Trump Jr）发推证实【1】：我的朋友@马可鲁比奥，是为数不多的当选共和党人之一，他明白共和党需要成为中产阶级工人的政党，而不是企业利益的政党。
+有消息人士说，自会议以来，至今有六名葡文记者已递请辞信，而管理层似乎无动于衷。
 
-很荣幸能和我父亲一起支持他连任！
+澳门是全世界最大赌博中心，拥有 70 万人口，是北京当局对外宣传的成功实施 “一国两制”典型模范。“一国两制”承诺当地公民享有民主自由，包括享有新闻自由和司法独立。
 
-推文附上了川普总统的背书：
+“我们知道所谓一国两制只是中共权衡之宜，但未料到变化如此之快。” 某位参加了 3 月份会议的葡语记者说道。由于此事的政治敏感性，受访者都拒绝透露个人身份。
 
-马可·鲁比奥的背书
+中共高层认为香港电台有反政府倾向，约两周前港府宣布对其进行全面整顿和改革。随即，新的澳广视(TDM)编辑准则正式出台。
 
-我很荣幸地向美国参议员卢比奥表示我的完全支持，马可一直是佛罗里达州人民的不知疲倦的倡导者，为减税而战，支持我们的第二修正案，我们的军队和退伍军人，强大的国防，以及所有被遗忘的美国男女。马可和我一起改革退伍军人协会，帮助我们的小企业发展，在他的帮助下，我们实现了妇女、非裔美国人、西班牙裔美国人、亚裔美国人以及几乎所有美国人的最低失业率，我们与古巴和委内瑞拉社区密切合作，取得了巨大进展。他还裁定“川普总统与俄罗斯没有任何关系，因为他主持了参议院情报委员会关于假俄罗斯、假俄罗斯、假俄罗斯的骗局，马可永远不会让佛罗里达州或我们国家的伟大人民失望！
+有记者表示，澳门的葡语和英语媒体通常比当地的中文媒体更加灵活，中文媒体10多年来一直面临严格的审查。例如，澳门的葡语媒体在 2019 年对香港的抗议活动进行了广泛的报道，而澳门的中文媒体则基本上不敢触及此话题。可是，近来澳门的葡语和英语媒体面临的政治压力越来越大。
 
--总统唐纳德·川普
+尽管澳门政府一再表示，澳门所有新闻机构都有自由制定自己的编辑准则的权利，澳门政府仍继续尊重和维护澳门基本法规定的新闻自由原则。与此同时，澳广视(TDM)在 3 月的一份官方公开声明中表示，其编辑政策不变，将继续 “履行媒体的社会责任，坚持爱国爱澳的原则”。与澳门一样，香港政府直到现在也是再三表示新闻自由的权利保持不变。
+
+近几十年来，澳门一半以上的人口来自中共国劳工和大陆移民，使得澳门比香港有更强的内地亲和力。北京当局常对澳门赞赏褒奖，同时又对香港斥责惩罚，中共宣称不会容忍任何对其权威的挑战。澳门专家表示，这几年由于澳门葡语和英语媒体广泛报道了香港的民主抗议活动，通过报道纠缠了澳门的媒体，引起北京当局的密切关注。
+
+“中共不准支持香港人的抗争，香港运动是政治敏感的。” 前澳门大学教授 Eric Sautede 说，很多澳广视(TDM)的英语和葡语记者都跟踪报道过香港的民主自动抗议活动。
+
+“对记者来说，这是一件大事，他们怎么可能不报道呢？” 他补充说，“回过头来看，或许是某些记者的报道过于自由独立，从而越过政治红线。”
+
+澳门英文报纸《澳门日报》董事兼总编辑保罗·库蒂尼奥（Paulo Coutinho）说，自 2019 年 11 月中共国公开宣称将坚决维护国家主权和经济利益以来，澳广视事件就是对触碰此红线的公开惩戒。
+
+澳门葡语及英语记者协会对新的澳广视准则表示密切关注，特别是相关新闻从业人员不得“转达与中共国中央政府政策相悖的信息或意见”。记者无国界组织谴责香港和澳门公共广播公司的举动，并敦促港澳当局 “停止对新闻自由的攻击”。
+
+澳门自由记者、澳门记者新闻协会前负责人彭康妮表示，葡语媒体现在所经历的，就是过去几十年中共国本地媒体所曾经历的。彭康妮说， “现在，因为澳广视的葡语新闻是唯一自由驰骋的野马，所以他们必须要用政治红线把它拴起来。”
+
+许多澳门小媒体的记者因为严重依赖政府补贴，言行举止更为小心谨慎。 “他们（中共）不希望我们只是保持中立，他们希望我们支持他们（中共）。” 另一位因此事敏感而不愿透露姓名的资深记者说。
+
+一些葡语记者说，这场风波至今并没有影响他们追求自由中立的新闻报道。 澳门葡语报纸《Jornal Tribuna de Macau》的发行人 Jose Dinis 表示，他没有感受到压力。他说， “我不愿意说狼来了，至少目前我不认为有什么问题”。
+
+然而，一些澳门本地居民，如律师豪尔赫·梅内塞斯（Jorge Menezes），认为对澳广视英语和葡语媒体新闻言论自由的打压，仅是刚刚开始。
 
 参考链接：
 
-【1】https://twitter.com/DonaldJTrumpJr/status/1380509961705381888
-
-背书的文字整理：
-
-Endorsement of Marco Rubio
-
-It is my honor to give U.S. Senator Marco Rubio my Complete and Total Endorsement. Marco has been a tireless advocate for the people of Florida, fighting to cut taxes, supporting our Second Amendment, our Military and our Vets, a strong national defense, and all of the forgotten men and women of America. Marco worked with me to reform the VA and help our small businesses grow, and with his help, we achieved the lowest ever unemployment for women, African Americans, Hispanic Americans, Asian Americans, and almost all Americans Together, we worked closely with the Cuban and Venezuelan communities, and have made great progress. He also ruled that “President Trump was in no way involved with Russia, as he presided over the Senate Intelligence Committee on the FAKE Russia, Russia, Russia Hoax. Marco will never let the great people of Florida, or our Country, down！
-
-– President Donald J. Trump
+[1] [Press freedom in Macau’s gambling hub under spotlight as China ramps up scrutiny – REUTERS – 2021/04/08](https://www.reuters.com/article/us-macau-media-idUSKBN2BU3LF%20)
 
 0
