@@ -1,37 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 卢比奥获川普总统背书
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1069746/)
+## 【世事解评】金德强如果不自杀 ，将如何维权抗争？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1069795/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+香草山教育部  草根儿老炮
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/r-6.jpg)uslibertynews.com
-一度有令人失望的表现，敦促川普总统接受败选的事实，为假牧师傅希秋喊冤的马可·鲁比奥（Marco Rubio），经过一段时间的反省，似乎加深了对邪恶中共的认知，近期的言论和表现充满了对邪共的谴责，对川普总统的支持，或许经过川普总统的考察，认为“此人可用”，卢比奥获得了川普总统的背书。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/GNEW-GTV-MOS-LOGO-2-2-1-400x54-1.jpg)
 
-此消息由川普总统的长子小唐纳德·川普（Donald J. Trump Jr）发推证实【1】：我的朋友@马可鲁比奥，是为数不多的当选共和党人之一，他明白共和党需要成为中产阶级工人的政党，而不是企业利益的政党。
+孔子说：苛政猛于虎。意思讲，专制暴政沉重的徭役和捐税比猛虎吃人更可怕！会逼死更多人命！然而，这样的悲剧就活生生的发生在今天的中共国—唐山市丰润区交通检查站。
 
-很荣幸能和我父亲一起支持他连任！
+四月五日，清明节。河北泊头市金德强师傅驾驶货车途经唐山市丰润区超限检查站时，因“北斗定位掉线”被相关人员罚款二千并扣车。这帮中共基层土匪的乱罚乱扣，让金师傅感到百口莫辩无法抗争。心理完全崩溃，绝望之下喝农药自杀身亡！酿成一幕悲催的人间惨剧，令人不胜唏嘘！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/download.jpeg)图片来源：网络
+唐山市丰润检查站相关人员处罚的依据是，中共交通、公安、安监部门联合制定的《道路运输动态监督管理办法》。该办法三十七条规定：道路运输经营者使用卫星定位装置出现故障，不能保持在线的运输车辆从事经营活动的，由县级以上道路运输管理机构责令改正。拒不改正的处800元罚款。
 
-推文附上了川普总统的背书：
+根据上面这条中共“法规”，唐山丰润区检查站的相关人员，处罚完全不得当，更没有依据扣车。这帮畜牲显然是执法犯法。为了“创收”利令智昏、胆大妄为疯狂处罚，抢劫和盘剥底层货车司机！
 
-马可·鲁比奥的背书
+现在回到本文标题。笔者想着重解析金师傅如果不自杀，他选择维权抗争又会如何？根据笔者经验常识判断，金师傅的维权抗争之路将非常艰难。
 
-我很荣幸地向美国参议员卢比奥表示我的完全支持，马可一直是佛罗里达州人民的不知疲倦的倡导者，为减税而战，支持我们的第二修正案，我们的军队和退伍军人，强大的国防，以及所有被遗忘的美国男女。马可和我一起改革退伍军人协会，帮助我们的小企业发展，在他的帮助下，我们实现了妇女、非裔美国人、西班牙裔美国人、亚裔美国人以及几乎所有美国人的最低失业率，我们与古巴和委内瑞拉社区密切合作，取得了巨大进展。他还裁定“川普总统与俄罗斯没有任何关系，因为他主持了参议院情报委员会关于假俄罗斯、假俄罗斯、假俄罗斯的骗局，马可永远不会让佛罗里达州或我们国家的伟大人民失望！
+中共治下交管部门乱罚款，是因为中共“维稳”开支日趋高涨，目前经济又是一塌糊涂，更加上各级官员贪污腐败，造成财政收入入不敷出，财政经费紧张。为了维持政府部门正常运转，中共各地方政府暗地鼓励交管部门上路“设卡”罚款“创收”弥补财政收入不足。更有甚者，下达所谓“罚款任务”，超额完成的部分作为部门奖金。有上面这样的“怂恿”和“激励”政策，下面这帮爪牙才会如此有恃无恐，穷凶极恶的打劫！
 
--总统唐纳德·川普
+所以可想而知，金师傅这样的底层民众去维权，肯定会被中共有关部门漠然处之。它们会熟视无睹，采取“踢皮球”手段拖延不管。而且诉讼受地域限制，只能在事发地进行。往返奔波将让人难以承受其疲惫！依法维权的成本往往很高，维权之路很艰难！而金师傅这样靠开车养家糊口的底层民众又如何耗得起伤得起？
 
-参考链接：
+这是金师傅悲愤绝望的重要原因！在中共国就没有老百姓讲理儿维权的生存空间！虽然如此，但金师傅的悲怆自杀过于极端，实为不明智之举！应该坚强的活下来才有希望！因为金师傅的死在中共眼里不如一只蝼蚁被踩死！
 
-【1】https://twitter.com/DonaldJTrumpJr/status/1380509961705381888
+诚如文贵先生昨天在盖特上讲到的，“为这位同胞而惋惜，难过”！“他要是知道爆料革命，他就不会走这条愚蠢之极的自杀之路了”！
 
-背书的文字整理：
+只有让更多底层民众觉醒过来，真正明白万恶之源在于中共暴政！全体华人才能戮力同心消灭中共，拯救同胞！
 
-Endorsement of Marco Rubio
+相关新闻链接：[纪监委调查货车司机自杀，信息首发者：北斗掉线有三种原因\_手机网易网](https://3g.163.com/dy/article/G712ONSF0530L4D3.html)
 
-It is my honor to give U.S. Senator Marco Rubio my Complete and Total Endorsement. Marco has been a tireless advocate for the people of Florida, fighting to cut taxes, supporting our Second Amendment, our Military and our Vets, a strong national defense, and all of the forgotten men and women of America. Marco worked with me to reform the VA and help our small businesses grow, and with his help, we achieved the lowest ever unemployment for women, African Americans, Hispanic Americans, Asian Americans, and almost all Americans Together, we worked closely with the Cuban and Venezuelan communities, and have made great progress. He also ruled that “President Trump was in no way involved with Russia, as he presided over the Senate Intelligence Committee on the FAKE Russia, Russia, Russia Hoax. Marco will never let the great people of Florida, or our Country, down！
+审核/发稿：正义的小新
 
-– President Donald J. Trump
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0
