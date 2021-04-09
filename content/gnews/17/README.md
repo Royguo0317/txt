@@ -1,91 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港快讯】 4月9日 百多名公仆拒宣誓面临革职 亲共紫荆党倡中共出面强征土地
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1069252/)
+## 美国解除对伊朗制裁将给中东、中共、美国和新中国联邦带来的影响
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1069391/)
 
-搜集/整理：【喜马拉雅-粤语组】阿恩、PO /封面合成：文粤
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image001-30.jpg)
-**百多名公仆拒宣誓面临革职**
+**简述：郭先生在****2021****年****4****月****8****日的盖特视频中解读美国解除对伊朗制裁的效应，他说伊朗制裁的解除将使中东重新陷入战争，将对中共不利，而这种竞争的最后还是新中国联邦受益；美国拜登政府已经达成共识，在病毒一事上不会放过中共；中共在霍尔木兹海峡和苏伊士运河四处出击，就像二战当年的日本军国主义攻击珍珠港，不会有好下场。**
+[**下载字幕**](https://www.apple.com)
+**美国解除对伊朗制裁将给中东、中共、美国和新中国联邦带来的影响**
 
-政府早前要求所有现职公务员宣誓或签署声明，拥护《基本法》及效忠特区，拒签者或要被革职。公务员事务局表示，有一百多名公务员未有签署声明，局方会去函未有签署声明的公务员要求解释，决定是否按《公务人员（管理）命令》或有关纪律部队法例下的机制展开行动，终止有关公务员的聘用。
+**Miles Interprets the Implications of U.S. Lifting Sanctions on Iran**
 
-宣誓风波下，多个政府部门早前爆离职潮，但局方未有正面回应离职公务员数字。有公务员表示，百多人拒签宣誓声明，数字上看似不算多，但实际情况是不少公务员未收到宣誓声明便已提前辞职。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image003-13.png)
-**直选议席减如何反映民意？林郑：有意见找分区会、旧楼消防找防火会、治安找灭罪会**
+接着现在说这几天大家现在已经看到了伊朗的这个事情，所谓的美国没有制裁了。对咱是好事儿。伊朗没制裁了，伊朗一放开了，伊朗就有可能和老共不一定站在一起[了]。[和]老共不站在一起[了]，伊朗的中东，伊朗的中东就会发生[大事儿]。
 
-行政长官林郑月娥昨（8日）出席立法会答问大会，民建联梁志祥发问时指，有市民质疑立法会直选议席大减至20个后，如何反映市民声音。林郑回应指，地区直选议员不一定可反映民意，改制后的选委会加入地区组织，包括分区委员会、地区防火委员会、地区扑灭罪行委员会等，可以收集民意。林郑指会善用地区收集意见的渠道，改制后的选委会界别，将加入地区组织、基层组织、同乡社团、全国性组织等，政府会参考这些组织的意见。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image004-5.png)
-**律政司称尊重法律界自我监管　苏绍聪澄清言论指律师会　大律师公会避谈选举改制**
+Let me continue. In the past few days, everyone has seen this news about Iran, that is the U.S. is preparing to lift sanctions on Iran. It will be good for us. If sanctions on Iran are lifted and Iran is open up, it will probably stop siding with the CCP. If Iran doesn’t stand with the CCP, Iran and the Middle East will see big things happening.
 
-亲建制人士多次追击大律师公会，甚至提出收回大律师公会自我监管的法定权力。律政司司长虽然作为大律师精神领袖（titular head of the Bar），但连月未开腔维护公会或大律师行业，直至在众新闻周四（8日）查询后，律政司回覆说不评论坊间意见，只说法律界自我监督主要目的是希望法律执业者专业和独立性，「律政司尊重业界自我监管的做法」。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image006-16.jpg)
-**豆腐沙中线︱3年来无官员或港铁人员受处分**
+伊朗是三驾马车，伊朗一直想当老大，第二是伊拉克，这才为什么发生了两伊战争，第三是沙特，这三驾马车要开干。实际[是]三驾火车，老要撞。他仨一撞都要抢着和共产党好，同时也抢着和老美好，中东战火重起开始！这种竞争的背后最后还是新中国联邦得利。
 
-沙中线2018年被揭发一连串偷工减料丑闻，包括剪短钢筋、车站邻近建筑物沉降超标、建造部份结构出错等，当中红磡站成「重灾区」。立法会铁路事宜委员会今（9日）召开会议，讨论沙中线专家顾问团的最终报告，多名议员追问，事件发生至今3年，政府及港铁仍未有任何官员负责，质疑现时有否涉事人员要面对刑事检控。运输及房屋局局长陈帆指，部份个案已进入司法程式；港铁则指，事件后涉事的高层已离职，港铁亦已重整架构。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image008-2.jpg)
-**纪律部队人才荒 警队招老兵归队延退休充数**
+Iran is one of the horses of a troika in the Middle East, and Iran has always wanted to be the boss. The second one is Iraq, that is why there was the Iran-Iraq War. The third one is Saudi Arabia. The three “horses” are going to fight with each other. Actually the three “trains” are always colliding with each other. Once the three collide with each other, they will compete to have a good relationship with the CCP, and at the same time, they will also want to be good with the U.S., then the war in the Middle East will start again! Behind this competition, of course, the New Federal State of China (NFSC) will be the beneficiary in the end.
 
-林郑政府自「反送中运动」起大幅增加警队编制，惟新聘人数却未追及流失人数。公务员事务局披露，2019至20年度警队新聘人数为1,020人，较2018至19年度大减446人；而2019至20年度因退休、辞职等原因离职的警队人员则有1,802人，亦较对上年度的1,714人为多，意味警队新聘人数均未能填补职位空缺。面对新聘人数减少，警方亦循退休警员入手，包括延长退休年龄，及透过多个计划延聘退休警，逾9千警延迟退休。与此同时，廉政公署指，去年接获涉及警队的贪污投诉共173宗，有116宗为可追查的投诉，宗数亦为政府政策局和部门中最多。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image010-4.png)
-**【封杀公司查册】揭重大漏洞　董事另一名字注册或改名　即可隐藏身份**
+[虽然]咱不想让他们战争，但是他们的斗争对我们新中国联邦来讲，咱们是机会。告诉我，这三个国家哪一个愿意与新中国联邦为敌？永远不会。这就是我们的机会。对老美来讲不是好事儿，对老共来讲也不是好事儿，但是对咱们来讲是好事儿，因为毕竟伊朗是穆斯林。真正的伊朗的所谓没制裁是因为奥巴马总统的穆斯林的宗教信仰还有和拜登之间政治的这个整个利益。但对新中国联邦是好事。
 
-政府周五（9 日）将向立法会交代收紧公司查册措施，当中拟遮盖公司董事的部分身份证号码，恐造成重大监察漏洞。不少高官富商以「同人不同名」的方式，注册为多间公司的董事；公众原本能以完整身份证号码核实其身份，但日后无法再做到。
+Although we don’t want them to fight, but their fighting will present an opportunity for our NFSC. You tell me, which of these three countries will want to make an enemy with the NFSC? They will never do that. This will be our opportunity. It’s not going to be a good thing to the U.S., nor to the CCP, but it’s a good thing for us, because after all, Iran is a Muslim country. The real reason for lifting Iran’s sanctions is due to President Obama’s Muslim religious belief and the entire political interests of Biden. But it is a good thing for the NFSC.
 
-以行政会议召集人陈智思为例，他以 6 个不同的姓名组合注册为 75 间私人公司的董事，如无完整身份证号码，难以确定属同一人。同一道理，如董事更改姓名，将能轻易隐藏身份，避过公众监察。
+但另外一个，[大家]反而[应该]看到：[美国]放过伊朗，[但]绝不会放过共产党！ 所以大家你们看到了：对共的所谓病毒的严查，[我]听说啊，做梦听说的，听说这一点拜登政府已经达成共识。这一点上必须不能妥协，因为妥协就[等于拜登]自己被赶出白宫，就完球蛋了，是吧？[所以]这个不会妥协。那对咱是好事儿，是吧？那对咱是好事儿。
 
-会计界、工会及传媒界均指，上述情况难以核实董事身份，形成漏洞，亦对业界工作构成障碍。独立股评人 David Webb 早前警告，容许董事隐藏资料或致贪污罪案。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image012-1.jpg)
-**亲共紫荆党倡中共出面强征土地**
+But on the other hand, everyone should see that the U.S. is willing to let Iran get away, but it will never let the CCP get away! So you guys have seen that the serious investigation of the CCP virus, based on what I heard, I mean, dreamed, is a consensus in the Biden administration. There must be no compromise on this point, because if Biden compromises, he will be kicked out of the White House and be done for, right? So there will not be any compromise on this. That will be good for us, right? Will be good for us.
 
-由多名有内地背景的「新香港人」组成紫荆党，其内部传阅刊物中一篇由执委伍俊飞撰写的文章以《中央有权协调香港土地供应》为题，并以韩正在「两会」上指「解决香港住房问题难度是很大，但是总要有解决开始的时候」点题，拆解其含义是对港府和商界的批评，同时表明了中共急切要「解决」香港房屋问题，文中指香港的住屋问题拉大贫富差距，「威胁『一国』安全的地步」，称中央有权协调香港的土地供应，并提议强征土地。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image014-3.png)
-**移英港人 获签证可用医疗服务**
+还有一个，在明年2022的中期选举，民主党要想赢和共和党想赢[都]只有一个主题：灭共！查病毒真相，“以毒灭共”。只要以毒能灭共，咱管球啥那干啥的？爱咋的咋的，是吧？ 还有个咱“以钱灭共”，“以钱灭共”谁也挡不着咱，是吧？
 
-透过BNO「5+1」签证计划留英的港人虽可在当地工作及升学，但仍属于「不允许领取公共福利（NRPF）」组别，即无法领取大多数公共福利，包括政府支付的福利、税收减免和住屋补助等。不过英国上月放宽有关安排，因担心有BNO签证持有人在欠缺政府资助下未能解决住屋需求，加上即使他们成为露宿者亦无法领取相关津贴，决定容许有需要人士申请更改组别，以「安全网」方式解决移民衍生的贫穷问题。
+or the Republicans want to win, they will have only one theme: taking down the CCP! Find out the truth about the virus and then take down the CCP with the truth about the virus. As long as they use the truth about the virus to take down the CCP, what else do we care about? We won’t care, right? There is also the “taking down the CCP with money [financial activities]”, and no one can stop us from taking down the CCP with money, right?
 
-英国政府昨发布的BNO移民小册子亦重申，港人在支付英国医疗保健费并获得签证后，可免费使用大多数英国医疗服务，但处方药和牙科护理仍需付款。如签证申请人的经济状况在获准留在英国后发生变化，难以为自己或家人提供食物及住屋，或子女因收入变低而处于危险，便可申请变更条款，以获政府公共福利政策保障。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image016-1.png)
-**国安法凌驾本地法 驳回谭得志终止聆讯申请**
+现在美国经济、美元、黄金，大家看了黄金了吗？大家看到黄金了吗？看到大宗贸易了吗？看着现在7哥刚说完，我说苏伊士运河，霍尔木兹海峡还得出事儿。美国这些投资者说，“老郭，不可能。”我说“不可能？你等着！”[结果]“啪”第二个，七哥刚说完 24 小时又出事了。
 
-被控发表煽动文字等 14 罪的人民力量副主席谭得志（快必），自去年 9 月被捕后一直还押，案件亦转介至区域法院审理。他早前透过律师，就 8 项发表煽动文字和串谋发表煽动文字罪，向法庭申请终止聆讯，并争议区域法院无司法管辖权审理本案。国安法指定法官、区域法院法官陈广池今（9日）指，若国安法与本地法不符，国安法凌驾本地法律，国安法的诠释权在人大常委，他无权对国安法条文作权威性的解释。辩方引用的本地法律限制并不符合国安法整体原则，所以无效。由于《国安法》订明，所有危害国家安全罪行的行为都可以在香港各级法院审理，法官裁定是次转介有效，区域法院有权审理案件。
+Now the U.S. economy, the U.S. dollars, and gold … have you seen the gold price? Have you seen major commodities trading? Have you seen that, right after your Brother Miles said Suez Canal and the Strait of Hormuz were going to have some trouble, “BANG”, within 24 hours, it happened. Some American investors first didn’t believe me, saying, “Miles, it’s not possible.” I said, “Not possible? You wait and see!”
 
-**人物介绍：**
+大家注意到共产党在中东的军事基地是干啥的[吗]？第一个，他就是干这事儿：搞破坏。控制霍尔木兹海峡，控制苏伊士运河，控制吉布提[和]红海的石油运输，最终到马六甲。这就跟当时二战的时候日本的山本五十六和美国的伊顿，在打珍珠岛之前说的话[一样]。“美国是我日本的80%的呃这个油的供应，你有天不供应[给]我咋办呢？”那意思说“老子得打你。”所以就打了珍珠港。
 
-**谭得志（英语：Tam Tak-chi，1973年2月2日生）毕业于香港大学中文系，后于香港中文大学崇基学院修读神学，人民力量副主席，2020年9月6日因涉嫌违反国安法正被扣查至今。**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image018-2.png)
-**加媒证郭荣铿抵加拿大, 寻当局求助取回公民身分**
+Have you noticed what the CCP is doing in its military bases in the Middle East? The first thing it is doing is sabotage – controlling the Strait of Hormuz, controlling the Suez Canal, controlling the oil transportation in Djibouti and the Red Sea, and finally to Malacca. This is the same as what Isoroku Yamamoto, the Japanese, and the American, Eaton said before Japan attacked Pearl Harbor during World War II. “The United States provided 80% of Japan’s oil supply. What if you don’t supply us someday?” That means “I have to beat you”. So they attacked Pearl Harbor.
 
-前立法会议员郭荣铿早前传出去年 11 月离港，先到英国伦敦，再转抵加拿大。加拿大媒体《Globe and Mail》昨日（8 日）刊出郭荣铿的访问，证实郭正寻求加拿大当局协助，取回其公民身分。郭荣铿在访问指，加拿大是他出生的地方，形容该国是重视人权、民主、法治，认为这些都是必须珍惜的价值。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image019-2.png)
-**港台踢走FCC前主席　称「观点不够平衡」,《铿锵集》讲疫苗也被撤换**
+现在老共一模一样，你老美，我不控制这个霍尔木兹海峡[和]苏伊士运河，那以后你打我，我咋办呐？[所以中共]现在想：我要把日本（注：可能是口误）把美国的粮给断了，把你的市场给断了。这好啊，他们打吧，他打他的，咱[们]发[咱们的]财。咱叫“以钱灭共”，把他们打的仗，打剩下的战场咱去收拾去吧，对不对？
 
-广播处长李百全上任个多月，频频取消香港电台各大小节目。担任节目《Morning Brew》时事评论员逾十年的香港外国记者会（FCC）前主席Steve Vines因「观点不够平衡」，遭港台撤换。原定下周一播出、处于风眼的王牌节目《铿锵集》疑再被抽起，内容是关于港人对接种疫苗的挣扎。
+Now the CCP is exactly like them [Japan]. “What if the U.S. attacks us if I don’t control the Strait of Hormuz and the Suez Canal?” That’s why they [the CCP] are now thinking: “I’m going to cut off Japan… the U.S.’s food [oil] supply and destroy your market.” That’s okay, let them fighter, but we will focus on making money. Let’s call it “taking down the CCP with money”. Let them fight their war, and after it’s done, we will help to clean up the battlefield, right?
 
-Steve Vines表示，仍会继续担任港台英文节目《The Pulse》和《Backchat》的客席主持，相信是因《Morning Brew》要发表评论，但另外两个节目只是访问其他人，故没有被换走。 Steve Vines曾获颁人权新闻奖项，着有《香港新贵现形记》一书，讲述香港回归后的变化。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/606f19a6dbc8001854a685be](https://gtv.org/getter/606f19a6dbc8001854a685be) (6:09-9:38)
+鸣谢：感谢 Antsee-GTV 和 TING GUO 提供中文文本于 [https://gnews.org/zh-hans/1065999/](https://gnews.org/zh-hans/1065999/)
 
-另外，原定下周一播出的探讨中共肺炎疫苗《铿锵集》再被撤换，拟改由文教组制作的另一集顶替。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image020-2.png)
-**21岁学生黎嘉豪认暴动罪即时还柙, 临别送吻, 8月底判刑**
+* * *
 
-21岁的学生黎嘉豪于去年1月26日（年初二），即「鱼蛋革命」4周年。在旺角被捕，黎嘉豪是其中一名被捕人士，后被控非法集结、暴动、抗拒执行职务的警员、两项袭警罪、两项无票进入已付车费区域及乘搭列车，共7项控罪，今日在区域法院提堂。他表示拟承认暴动及非法集结两罪，遭即时还柙。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image021-1.png)
-**12港人: 郑子豪李子贤完成检疫首上庭应讯 保释金充公续还柙**
+字幕：【V%】二校：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-「12港人」涉偷越边境罪遭扣留内地，其中8人被判监7个月，上月在内地监狱服刑完毕，即被送往深圳湾并移交至香港警方。其中李子贤及郑子豪完成隔离检疫后，昨日（8日）首度现身区域法院应讯。控方反对两人保释及申请充公两人的保释金。两人的代表律师没有保释申请，也对于保释金没有陈词。法官杜大卫最终批准充公保释金，并下令两人继续还柙。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image022-1.png)
-**「标签不足」为名 扫黄店26门市及仓库, 过百海关闯阿布泰捡百万货**
-
-民主派初选案被告之一林景楠现正保释候审，他创办的连锁杂货店阿布泰生活百货昨被海关大举扫荡。逾百名海关人员到全港26间阿布泰门市及仓库掠去市值近百万元货品，并拘捕负责同事，指控阿布泰多款产品未有贴上足够标签提醒消费者。阿布泰质疑，海关极端行动与店方「色彩」有关。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image023-6.jpg)
-**半百人龙用金钱「惩罚」被港府针对的黄店「阿布泰」**
-
-黄店「阿布泰」昨日（8日）疑因未有按消费品安全条例贴上足够标签，被海关派员到其全港26间门市及仓库捡走市值约40万货品。今午的太古康怡广场「阿布泰」分店外大排长龙，大批客人特意到来支持「阿布泰」，林先生昨日从新闻得知海关搜店后，认为行动的针对性十分明显，所以决定在今日到场「惩罚」，「做香港人应该做的事」。
-
-资料来源：[苹果日报（1）](https://hk.appledaily.com/local/20210408/3AH5PLVU2NBBROTPM5HUWZM6VQ/)、[独立媒体（2）](https://www.inmediahk.net/node/1081890)、[众新闻（3）](https://www.hkcnews.com/article/40119/%E5%BE%8B%E6%94%BF%E5%8F%B8-%E9%A6%99%E6%B8%AF%E5%A4%A7%E5%BE%8B%E5%B8%AB%E5%85%AC%E6%9C%83-%E5%A4%8F%E5%8D%9A%E7%BE%A9-40119/%E5%BE%8B%E6%94%BF%E5%8F%B8%E7%A8%B1%E5%B0%8A%E9%87%8D%E6%B3%95%E5%BE%8B%E7%95%8C%E8%87%AA%E6%88%91%E7%9B%A3%E7%AE%A1-%E8%98%87%E7%B4%B9%E8%81%B0%E6%BE%84%E6%B8%85%E8%A8%80%E8%AB%96%E6%8C%87%E5%BE%8B%E5%B8%AB%E6%9C%83-%E5%A4%A7%E5%BE%8B%E5%B8%AB%E5%85%AC%E6%9C%83%E9%81%BF%E8%AB%87%E9%81%B8%E8%88%89%E6%94%B9%E5%88%B6)、[苹果日报（4）](https://hk.appledaily.com/local/20210409/KF4WLTWL5RHS3DSED4WB3LVQXI/)、[苹果日报（5）](https://hk.appledaily.com/local/20210409/BFFRUWEE5VADTJTTFEIG5I65LM/)、[立场新闻（6）](https://www.thestandnews.com/politics/%E5%B0%81%E6%AE%BA%E5%85%AC%E5%8F%B8%E6%9F%A5%E5%86%8A-%E6%8F%AD%E9%87%8D%E5%A4%A7%E6%BC%8F%E6%B4%9E-%E8%91%A3%E4%BA%8B%E5%8F%A6%E4%B8%80%E5%90%8D%E5%AD%97%E8%A8%BB%E5%86%8A%E6%88%96%E6%94%B9%E5%90%8D-%E5%8D%B3%E5%8F%AF%E9%9A%B1%E8%97%8F%E8%BA%AB%E4%BB%BD/)、[立场新闻（7）](https://www.thestandnews.com/politics/%E7%B4%AB%E8%8D%8A%E9%BB%A8%E5%85%A7%E9%83%A8%E5%88%8A%E7%89%A9-%E9%A6%99%E6%B8%AF%E6%88%BF%E5%B1%8B%E5%95%8F%E9%A1%8C%E5%A8%81%E8%84%85-%E4%B8%80%E5%9C%8B-%E5%AE%89%E5%85%A8-%E5%80%A1%E4%B8%AD%E5%A4%AE%E5%87%BA%E9%9D%A2%E5%8D%94%E8%AA%BF-%E8%88%89%E4%BE%8B%E5%8F%AF%E5%BC%B7%E5%BE%B5%E5%9C%9F%E5%9C%B0/)、[苹果日报（8）](https://hk.appledaily.com/local/20210409/24DR5X7TINEZTKQEOE6ZW5E344/)、[立场新闻（9）](https://www.thestandnews.com/court/%E8%AD%9A%E5%BE%97%E5%BF%97%E7%94%B3%E7%B5%82%E6%AD%A2%E8%81%86%E8%A8%8A-%E6%8C%87%E6%8C%89%E6%9C%AC%E5%9C%B0%E6%B3%95%E5%8D%80%E9%99%A2%E7%84%A1%E6%AC%8A%E5%AF%A9-%E6%B3%95%E5%AE%98-%E5%9C%8B%E5%AE%89%E6%B3%95%E5%87%8C%E9%A7%95%E6%9C%AC%E5%9C%B0%E6%B3%95-%E9%A7%81%E5%9B%9E%E7%94%B3%E8%AB%8B/)、[立场新闻（10）](https://www.thestandnews.com/politics/%E5%8A%A0%E5%AA%92%E8%AD%89%E9%83%AD%E6%A6%AE%E9%8F%97%E6%8A%B5%E5%8A%A0%E6%8B%BF%E5%A4%A7-%E5%B0%8B%E7%95%B6%E5%B1%80%E6%B1%82%E5%8A%A9%E5%8F%96%E5%9B%9E%E5%85%AC%E6%B0%91%E8%BA%AB%E5%88%86/)、[苹果日报（11）](https://www.thestandnews.com/politics/%E5%8A%A0%E5%AA%92%E8%AD%89%E9%83%AD%E6%A6%AE%E9%8F%97%E6%8A%B5%E5%8A%A0%E6%8B%BF%E5%A4%A7-%E5%B0%8B%E7%95%B6%E5%B1%80%E6%B1%82%E5%8A%A9%E5%8F%96%E5%9B%9E%E5%85%AC%E6%B0%91%E8%BA%AB%E5%88%86/)、[众新闻（12）](https://www.hkcnews.com/article/40120/%E6%9A%B4%E5%8B%95-%E6%97%BA%E8%A7%92-%E6%97%BA%E8%A7%92%E9%A8%B7%E4%BA%82-40120/21%E6%AD%B2%E5%AD%B8%E7%94%9F%E9%BB%8E%E5%98%89%E8%B1%AA%E8%AA%8D%E6%9A%B4%E5%8B%95%E7%BD%AA%E5%8D%B3%E6%99%82%E9%82%84%E6%9F%99-%E8%87%A8%E5%88%A5%E9%80%81%E5%90%BB-8%E6%9C%88%E5%BA%95%E5%88%A4%E5%88%91)、[独立媒体（13）](https://www.inmediahk.net/node/1081895)、[苹果日报（14）](https://hk.appledaily.com/local/20210409/2LR2ZFJGYNHEFEZZHAYTO2QT3M/)、[苹果日报（15）](https://hk.appledaily.com/breaking/20210409/DKVOXWN2QFEGJC6D7WNVMR5TM4/)
-
-封面素材：苹果日报
-
-审核：文燕、卡西欧 /上传：文粤
-
-0
++1

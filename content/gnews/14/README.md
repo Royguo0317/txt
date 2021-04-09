@@ -1,21 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草山影院】《红海潜水度假村》电影解说
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1069309/)
+## 国际自由战士们，并肩消灭!中国共产党！
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/1069426/)
 
-制作：纽约香草山视频部
+作者：大韩民国自由战士 BYUN
 
-审核/发稿：雪梨
+翻译+校对：美丽的新国度
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-116.png)
+中国共产党党员中，也有很多人因厌恶而转向自由阵容，但以虚伪和压制而维持自己政权的习近平和CCP却越来越走向堕落的地狱。
 
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+在此铁蹄下呻吟的中国的一部分善良的正道主义思想的人们在美国成立了新中国-临时政府即**新中国联邦**闪亮登场，向全世界揭露CCP的阴谋和恶行，他们为了建立一个自由民主主义的新中国历经30年彻底做好准备，他们希望新中国联邦早日解放中国大陆，解放被邪恶的中共奴化的中国人民！
+以主耶稣的名义位新中国联邦祈祷！
 
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+中国自由民主主义守护者**新中国联邦战友们加油！**
 
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+自由大韩民国的右派战友们也要支持新中国联邦和亿万战友！
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+对亚洲的独裁者们和那些追随者们即将得到上帝的正义的审判！
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+与共产主义斗争的新中国联邦和世界的自由民主主义战友们!
 
-0
+乘胜前进！
+
+直到消灭共产党的那一天！
+
+希望我们的自由大韩民国战友们和新中国联邦战友们
+
+并肩横扫 共产党！
+
+**愿上帝给新中国联邦祝福！**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-117.png)
+**韩国语博客：blog.naver.com/commoditykim**
+
+
+
++1
