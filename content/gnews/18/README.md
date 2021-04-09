@@ -1,73 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读美参议院跨党派重要法案即将出台，及中共意识到美中关系将全面破裂
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1069665/)
+## 卢比奥获川普总统背书
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1069746/)
 
-直播视频：
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/r-6.jpg)uslibertynews.com
+一度有令人失望的表现，敦促川普总统接受败选的事实，为假牧师傅希秋喊冤的马可·鲁比奥（Marco Rubio），经过一段时间的反省，似乎加深了对邪恶中共的认知，近期的言论和表现充满了对邪共的谴责，对川普总统的支持，或许经过川普总统的考察，认为“此人可用”，卢比奥获得了川普总统的背书。
 
+此消息由川普总统的长子小唐纳德·川普（Donald J. Trump Jr）发推证实【1】：我的朋友@马可鲁比奥，是为数不多的当选共和党人之一，他明白共和党需要成为中产阶级工人的政党，而不是企业利益的政党。
 
-《路德时评》2021年4月9日早间节目主要内容：
+很荣幸能和我父亲一起支持他连任！
 
-一、美参议院跨党派重要法案即将出台
+推文附上了川普总统的背书：
 
-大纪元4月8日报道[\[1\]](https://www.epochtimes.com/gb/21/4/8/n12867315.htm)：美国参议院民主党和共和党人推出一项重要法案——《2021年战略竞争法案》，授权通过外交和战略转变来反制北京的扩张行为，突显国会两党对中共一致的强硬态度。这项两党法案的发起人分别是该委员会民主党主席鲍勃‧梅嫩德斯（Bob Menendez）和该委员会最高共和党人吉姆‧里施（Jim Risch）。
+马可·鲁比奥的背书
 
-根据美参议院外交关系委员公布信息，这项“针对中共的全面法案”的主要内容包括[\[2\]](https://finance.sina.com.cn/world/2021-04-09/doc-ikmyaawa8674400.shtml)：
+我很荣幸地向美国参议员卢比奥表示我的完全支持，马可一直是佛罗里达州人民的不知疲倦的倡导者，为减税而战，支持我们的第二修正案，我们的军队和退伍军人，强大的国防，以及所有被遗忘的美国男女。马可和我一起改革退伍军人协会，帮助我们的小企业发展，在他的帮助下，我们实现了妇女、非裔美国人、西班牙裔美国人、亚裔美国人以及几乎所有美国人的最低失业率，我们与古巴和委内瑞拉社区密切合作，取得了巨大进展。他还裁定“川普总统与俄罗斯没有任何关系，因为他主持了参议院情报委员会关于假俄罗斯、假俄罗斯、假俄罗斯的骗局，马可永远不会让佛罗里达州或我们国家的伟大人民失望！
 
-（1）．呼吁政府提出对中共国外交战略，重申美国对盟友和伙伴国家的承诺，并重申美国在国际组织和其他多边论坛中的领导地位，从而应对中共国在西半球、欧洲、亚洲、非洲、中东、北极和大洋洲构成的挑战；
+-总统唐纳德·川普
 
-（2）．呼吁政府投资普世价值，授权一系列“人权和公民社会”措施，包括插手香港、新疆等地区的事务，并呼吁加强与台当局的“伙伴关系”；
+参考链接：
 
-（3）．对抗中共国“掠夺性的国际经济行为”，包括追踪“知识产权侵犯者”和中共国公司在美国市场的存在等；并呼吁美国向打击海外腐败行为的国家提供技术援助，并向受新冠疫情影响的最贫穷国家提供债务减免；
+【1】https://twitter.com/DonaldJTrumpJr/status/1380509961705381888
 
-（3）．面对中共国事现代化和“军事扩张”，应加强与盟国在军控方面的协调与合作，共享中共国在弹道导弹、高超音速滑翔导弹、巡航导弹、常规力量、核、空间、网络空间等战略领域的信息……
-![]()![](https://gnews.org/wp-content/uploads/2021/04/美参议院.jpeg)[美国国会](https://i.epochtimes.com/assets/uploads/2021/04/id12858596-148169.jpeg)
-路德社评论：
+背书的文字整理：
 
-1、《2021年战略竞争法案》是由参议院外交关系委员会提出的法案，现任美国总统拜登曾在外交委员会担任主席一职，他在任期间曾为小布什发动的伊拉克战争进行背书，民主党对该委员会影响力较大。《2021年战略竞争法案》是由两党联合推动的，该法案将走快速投票通道，只要没有人反对就会快速通过。
+Endorsement of Marco Rubio
 
-2、民主党现在已经控制参众两院，3月1日保守派大会后，川普总统和共和党建制派已经达成统一灭共决议，建制派代表章家敦先生也开始接受Warroom班农先生的采访，现在共和党与民主党也开始合作，从法律层面加速灭共进程，该法案肯定是私下已达成协议后才推出的。
+It is my honor to give U.S. Senator Marco Rubio my Complete and Total Endorsement. Marco has been a tireless advocate for the people of Florida, fighting to cut taxes, supporting our Second Amendment, our Military and our Vets, a strong national defense, and all of the forgotten men and women of America. Marco worked with me to reform the VA and help our small businesses grow, and with his help, we achieved the lowest ever unemployment for women, African Americans, Hispanic Americans, Asian Americans, and almost all Americans Together, we worked closely with the Cuban and Venezuelan communities, and have made great progress. He also ruled that “President Trump was in no way involved with Russia, as he presided over the Senate Intelligence Committee on the FAKE Russia, Russia, Russia Hoax. Marco will never let the great people of Florida, or our Country, down！
 
-3、该法案呼吁“优先考虑实现美国在印太地区政治目标所需军事投资”的需要，直接授权政府在涉及台湾、日本、以及香港等问题上可以快速对中共采取行动。
+– President Donald J. Trump
 
-4、该法案还建议每个联邦部门和机构都指定一名高级官员，负责协调与中共战略竞争方面的政策问题。中共经过多年布局，已经渗透到美国的各个领域，美国现在就需要推动政策来清除中共在美国的潜伏力量，彻底排干中共余毒。
-
-5、中共对美国两党联合推出《2021年战略竞争法案》感到异常紧张，中共很清楚该法案是彻底结束中共的开始。就是因为中共病毒，美国才彻底看清楚中共的邪恶本性，这次绝不会让中共有任何喘息的机会。
-
-6、昨日，美国商务部对中共七家超级计算机实体实施制裁，制裁文件明确提及这七家实体参与了大规模杀伤性武器计划。川普总统在任期间制裁了超级计算机的研发单位和供应商，拜登政府则将矛头直接对准超级计算机中心，目的就是要彻底废掉中共利用超级计算机研发大规模杀伤性武器的能力。由于中共国的超级计算机重要零配件和软件系统都依赖进口，美国只要对其进行全封封锁，中共的超级计算机很快将失去运算能力。这就是布林肯在发言中所说的“要先做好预防工作，谨防再次爆发病毒大流行”，因为美国军方根据情报发现中共正在利用超级计算机在酝酿第二次、第三次病毒大流行。
-
-二、中共意识到美中关系将全面破裂
-
-新闻一
-
-网易新闻网4月8日发表一篇题为《专家：美国倘若抵制冬奥会 将意味着中美关系“全面破裂”和“彻底摊牌”》的文章[\[3\]](https://www.163.com/dy/article/G73F0R9P0514R9OJ.html)，中国社科院美国所副所长袁征表示，“抵制奥运会”是冷战时代的产物，已销声匿迹几十年，倘若美国此次联手盟国抵制北京冬奥会，即意味着中美关系的“全面破裂”和“彻底摊牌”，也意味着中美“新冷战”真的到来。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/北京东奥.jpg)[2022北京冬奥会](https://lh3.googleusercontent.com/proxy/dK9JYPJcnrU8PmbOx9oQToyRro_X6sC8zIngoVaJfh8AUpUllUvTG-Oa_iIol2jglVjU9LAt2rkGak8C82Eft12Y6u7eM-8dMjQ6vBcjlkEkmRwzlMHMGEpKw5z831A)
-新闻二
-
-新华社北京4月9日报道[\[4\]](http://www.xinhuanet.com/world/2021-04/09/c_1127310521.htm)：中国人权研究会9日发表《美国对外侵略战争造成严重人道主义灾难》文章，抹黑美国从1945年第二次世界大战结束到2001年，世界上153个地区发生了248次武装冲突，其中美国发起的就有201场。美国发动的多数侵略战争都是单边主义行动，甚至还遭致其盟友的反对。这些战争不仅夺去了大量各方军人的生命，更造成了极为严重的平民伤亡和财产损失，导致惊人的人道主义灾难。美国的自私和虚伪也通过这些对外干涉行为表露无遗。
-
-路德社评论：
-
-1、结合布林肯此前发言称要彻查病毒来源、美商务部制裁中共超级计算机中心、两党将通过《2021年战略竞争法案》、爆料革命的爆料以及中共获得的情报，中共已经意识到美国下定灭共决心。所以，中共特意发文，并在《新闻联播》公开播报，直指美国二战后主动挑起多场侵略战争，为一己私利推行霸权主义，给墙内老百姓洗脑，这也是中共数十年来首次通过《新闻联播》抹黑美国主动挑起侵略战争，这也是在为将要发生的中美战争做战争动员。
-
-2、朝鲜战争，是朝鲜先向韩国发起攻击；越南战争，是北越先向南越发起攻击；海湾战争时期，伊拉克先攻占科威特；科索沃战争时期，是南联盟先发起种族大屠杀；阿富汗战争，是本拉登对美国发动911袭击；伊拉克战争，是萨达姆先进行大规模杀伤性武器研发……人类之所以在二战之后没有再发生世界大战，就是因为美国在维持着世界秩序，以上所有战争都是独裁者率先挑起的，他们绑架老百姓，让老百姓当炮灰。
-
-3、中共专家也撰文称美国倘若抵制冬奥会，将意味着中美关系全面破裂，美国政府说不抵制冬奥会，但是没说不抵制北京冬奥会。路德社爆料美国百分之百会抵制北京冬奥会，甚至会让奥委会直接取消中共国承办2022冬奥会的资格。
-
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
-
-参考文章：
-
-[1][https://www.epochtimes.com/gb/21/4/8/n12867315.htm](https://www.epochtimes.com/gb/21/4/8/n12867315.htm)
-
-[2][https://finance.sina.com.cn/world/2021-04-09/doc-ikmyaawa8674400.shtml](https://finance.sina.com.cn/world/2021-04-09/doc-ikmyaawa8674400.shtml)
-
-[3][https://www.163.com/dy/article/G73F0R9P0514R9OJ.html](https://www.163.com/dy/article/G73F0R9P0514R9OJ.html)
-
-[4][http://www.xinhuanet.com/world/2021-04/09/c\_1127310521.htm](http://www.xinhuanet.com/world/2021-04/09/c_1127310521.htm)
-
-文章撰写：【重生】  编辑：【香柏树】
-
-+2
+0
