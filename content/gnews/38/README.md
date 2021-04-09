@@ -1,35 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《柳叶刀》：高达34％的新冠治愈者脑部出现问题
-` 温哥华加喜农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1066992/)
+## 【热点播报】美国两党联合灭共是大势所趋
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1067358/)
 
-作者：推推党宣传部长
-![]()![](https://gnews.org/wp-content/uploads/2021/03/图片22.png)图片来源：网络
-4月4日闫丽梦博士转了一条Sellin 博士的推文：“解放军在研究通过新冠病毒影响脑、神经系统。陈薇少将和安静教授曾在第三军医大学进行过CCP生物战和病毒对脑的影响的研究”。无独有偶学术期刊《柳叶刀·精神病学》在 4月6日发布的一项新研究显示，高达三分之一的新冠治愈者脑部出现问题。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/58-3.png)
-这份报道称他们发现有高达 34% 的新冠患者在治愈后六个月内诊断出患有神经或心理疾病。
+作者：纽约香草山美食部 蓝天大海
 
-这项初步规模最大的研究涉及了美国境内236000名新冠患者（分为未住院患者190 077例，住院患者46 302例）的健康记录。
 
-在此研究中，研究者使用了电子健康档案来调查在记录有临床COVID-19感染后的6个月内幸存者的神经系统和精神病诊断的发生率。还对COVID-19的患者与被诊断为其他呼吸道感染和流感的人群精神评估结果进行了比较。
 
-研究人员称，有将近（34％）的新冠治愈者在六个月内被诊断出患有精神疾病或心理上的疾病。其中包括焦虑症（焦虑症）大概占了17，情绪障碍（情绪障碍）占了百分之十四。精神错乱（Psychotic Disorder）达到百分之三。 。。研究还显示出COVID-19可能导致合并性中风的缺血性中风，这也是一种会影响大脑的疾病。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/57-1.png)
-（图表S2，根据性别，种族和年龄分别增加出COVID-19诊断后6个月神经疾病的病发率）
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-论文最后总结到，目前的数据表明在随后的新冠治患者被治愈6个月中，COVID-19和精神病学诊断有明显的关联。相关的配置服务和资源（神经和心理治疗）以应对这种预期需求.
 
-回到文章的开头，Sellin博士的推文指出解放军在研究中通过新冠状病毒影响脑、神经系统。而柳叶刀·精神病学最新研究显示新冠状病毒能够影响大脑、神经系统。这是不是意味着COVID- 19就是中共研究的生化武器呢？
 
-[https://www.thelancet.com/journals/lanpsy/article/PIIS2215-0366(21)00084-5/fulltext#sec1](https://www.thelancet.com/journals/lanpsy/article/PIIS2215-0366%2821%2900084-5/fulltext#sec1)
+路透社4月8日消息，美国参议院外交关系委员会今天提出了一项重要法案——《2021年战略竞争法》。该法案授权政府采取一切必要的外交和战略措施，增强美国自身防御能力，以应对日益复杂的国际局势，并抵御中共国不断扩张的对美国造成的威胁。法案由两党共同提出，这表明，美国朝野两党都已认识到中共国的邪恶，显示出他们将联合对抗中共国的决心。
 
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+![]()![](https://n.sinaimg.cn/spider2021318/280/w690h390/20210318/94e1-kmkptxe4855632.jpg)图源网络
 
-编辑/发布：比卡丘
+面对全球疫情的严酷现状，在共和党及其保守势力的推动下，拜登政府经过近八十天的调整，对中共的态度逐渐明晰：从一开始说新疆发生的种族灭绝是一种“文化”，到连续三次定性中共在新疆犯下种族灭绝和反人类罪；从一开始闭口不谈病毒起源，认为全球联合抗疫是当务之急，到近期布林肯强硬表态——“一定要彻查病毒来源，避免任何‘生化威胁’地再次发生，否则我们将对不起我们的子孙后代。这是历史的关键时刻，我们要敢想、敢干，美国将直面挑战。”
 
-20210408
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+为了配合和推动美国政府的这些政策，美国的众多前朝重臣——包括情报官员——最近在包括CNN和FOX在内的主流媒体中，大量揭露了中共军方制造新冠病毒，再通过动物传带瞒天过海的犯罪事实。闫丽梦博士最近发表了她的第三篇科学报告，继提出“超限生物武器”之后，又提出“超限科学误导”的概念，将中共超限战的本质揭露无疑，为以毒灭共提供了严实的科学基础。
+
+今天，参院两党联合提出《2021年战略竞争法》法案，这是美国一系列对抗中共威胁的又一举措。如果这项法案获得通过，将会是灭共法理上的巨大一步。当下的形势已今非昔比，爆料革命唤醒民众，引领的灭共潮流正在形成。共产党灭亡的日子已经不远了。
+
+参考阅读：
+
+[Details of sweeping effort to counter China emerge in U.S. Senate](https://www.reuters.com/article/us-usa-china-senate/details-of-sweeping-effort-to-counter-china-emerge-in-u-s-senate-idUSKBN2BV1UE)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
 
 
 0
