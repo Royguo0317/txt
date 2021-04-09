@@ -1,88 +1,143 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Gcoin不是币，GTV不是TV，GClub不是Club，全方位分享战友个人认知&#8212;&#8211;伊甸战斗室G系列话题访谈（第三期）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1067351/)
+## 美国政要等每日重要信息0409-中共病毒真相（思绪涟漪）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1067312/)
 
-责任编辑：新西兰伊甸农场伊甸战斗室节目组文字 编辑：Ray裁决
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/040903.png)
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
+## 劳伦斯-塞林博士的声音
 
-回顾前两期中讲到的重点：Gcoin远远不是币，是未来全新的全球金融基础平台;GTV完全超越了媒体，是未来全球的经济平台;GClub远远不是Club，他的意义非凡，是全球的消费群体“导向型聚集型的消费群体”;这是未来全球全新经济体的构建。Gcoin的外在价值和内在价值已经在前两期中做出了详细的阐述，这一期来谈谈GTV这个未来的全球经济平台。
+4月8日劳伦斯-塞林博士继续煽动中共病毒真相的翅膀，进一步抽取病毒来源线索，配合英雄天使科学家闫博士提出的超限生物武器论和爆料革命对中共病毒的定义，在推特发文宣传：
 
-** GTV****股票的价值，不同视角看是股票更是选票**
+“在武汉#COVID19感染高峰期，武昌区密度最高&其最高密度出现在武汉大学P-3动物实验室、武汉病毒学研究所和解放军军区医院等区域。
 
-GTV不是TV的概念，来自战友们看事物的不同视角。GTV的股票其实是个两“票”概念：第一是股票；第二是选票。这就是两种不同的视角看待这个股票的不同结果。大部分战友，都是站在股票这一个视角上看待这个问题，结果自然就会存在一定的局限性。第三方评估机构是看不到“选票”这一内在价值的，200亿也好，900亿也好，估值只是外在价值的估值而已，仅仅是基于一个现有的企业级别的网络媒体来进行评估的；即便是200亿这样的结果，GTV也是达到了10倍的增长，这对于二级市场概念里成长的“专家”视角，也已经是天文数字了，已经超出了大部分人的想像，并且仍为GTV以后的成长留下长足的空间；但这个视角是不完整的，仅仅从股票这一外在价值角度来看，仍是有巨大缺陷的。
-
-看待GTV要从三个视角来看内在价值：企业经济，国体经济，球体经济；存在的内在价值来看。
-
-现在GTV内的一些功能会很快被拆分出来，比如Getter，GTalk，Gmeeting等等，这些只是其中的一个个部分孵化出的新产品链；另外一个重要的方面是GTV承载着“孵化器”，“吸纳器”这样的一个功能，打个比方：GTV就好比是一个“插座总成”，所有行业的优质资产都可以插到这个“插座总成”上面。以下做详细的认知分享：
-
-GTV的第一作用，是经济作用，就好比是“吸纳器”，未来会让战友有机会成为“三桶油”、微信、三大电信等等大陆企业的原始股东，那些从华尔街消失的中资企业的优质资产和市场一直都存在，将来很可能会很快通过并购等，陆续出现在GTV的领域里来，进入新的经济体里面成为GTV的关联企业。
-
-第二个GTV更是一个“孵化器”，就像一个会下金蛋的鸡，比如Getter成熟后，就会从GTV里面剥离出来，GMessenger、GMall、GMeeting、Gmusic等等成熟以后，都会单独各自从GTV里孵化出来，这是无可限量的。
-
-未来随着全球经济“U”形下坠时候，就会看到GTV的“吸纳器”和“孵化器”的威力。如果把GTV仅仅看成是一个类似于Youtube的企业级别，那这个认知是严重匮乏的。GTV它既不是企业经济体，更不是国体经济体，而是球体经济体，是世界经济体的主要主成部分。
-
-看看经济数据，美国GDP是20.81万亿，中国GDP是14.86万亿。日德英法韩GDP总值21.5万亿。如果新联邦、美国和美英经济圈体系加一起，占全世界经济GDP总额的68.5%。新中国联邦和美国组合在一起，是“双发”，亦即两个发动机，因为信仰的一致，律法接近，世界观一致，不会有贸易冲突，GTV在这个体系里起到的就是球体经济的核心作用。Gcoin起的是金融核心基础的作用，未来就是对世界经济的主导，想想看，GTV还是TV吗？这就是GTV的一个宏观视角的概念。当GTV达到球体经济状态的时候，显示的是经济实力。我们这些战友，掌握的经济实力在世界经济中占很大的比例，郭先生想实现的是GTV的第二个作用：“权杖”的作用，沼泽地的工具象征，依靠的就是真正的经济势力。新中国联邦宣言上，写的很清楚：喜马拉雅对未来新中国联邦的监督作用，GTV作为媒体，具有第四权力的特征：监督着“三权分立”以及唯真不破的作用，这个前提是要具备这样的长期和永久的经济实力。
-
-在这次美国2020大选中，美国媒体的颠倒黑白，战友们记忆犹新。这样就好去理解了，GTV股权为什么要施行重置：当时设置的旧股权结构，在长期监督作用的要求中，存在一个控股的严重漏洞；所以要让战友绝对大比例地控股，让任何国家权力机构的资金或基金进入后，都不能左右股权结构的根本性变化。
-
-**GTV****球体经济****对传统****教育行业的颠覆**
-
-说教育和人才前，先谈谈袁世凯这个影响了近代中国百年这样一个人的人才观：“百年之计，莫如树人。古今立国，得人则昌。作养人才，实为图治根本。夫当世无深明大事之人，故人才今不如古；当世无博达时务之人，故人才又中不如外”。当时他是花重金聘请国外的工匠来培养国内人才的。未来GTV最大的市场之一会是教育。GCoin解决了工作和支付的距离羁绊，GTV实现可视化教育，模拟化教育，定制化教育是对传统教育行业的颠覆。以后传统的集中教学模式将会成为历史。未来可能会实行学分制；一对一教学或一对多教学；现在的优质教学资源会被充分释放：一个帝师可以培养更多的学生，而不是仅局限在极少数顶层生活圈内。未来GMeeting和GMessenger成熟后优质教育资源会被充分释放，现在平均在中国大陆，2019至2022，每年的在线教育的收入增长在21%-25%之间，明年会达到5400亿人民币。作为球体经济的一种模式和在新模式、新业态、新技术下的在线式教育模式下，教育会成为GTV下很大的一个产业，这主要就在于人才上，在于资金实力–未来的“常青藤”学校就在GTV。
-
-人才的培养完全更换一代人，可能要三十年或五十年、甚至更长。我们这代人身上的CCP烙印，可能一生都去不掉，“三代塑造一代人”就是这个道理。
-
-第二，帝师级教育，优先教育战友的子女，免去现场上下学的限制，当然一定不是免费的，肯定是很昂贵的。人才的来源：一教育；二聚集（也就是雇佣）。为什么郭先生说，世界级名牌企业都加入了GFashion，为什么美联储大佬要和喜马拉雅联储合作，你能看到的真相是什么？
-
-我们可以看到未来农场的价值。现在还有很多战友，本末倒置，还把GTV工作视为副业，等到实现的那一天，可能也就失去这个机会了，今后，在GTV工作我们会视作为荣耀。GTV成熟工作模式的大规模出现，像GCoin会让很多实体银行关门一样， GTV会让众多的实体电视台和纸质媒体关门，这种需要实体物业支撑的电视台还会办得下去吗？而这些影视人才也会逐渐进入GTV，转换并进入分布式媒体创作模式。未来的工作状态，就是一对多，异地、异国分布式媒体创作模式。
-
-**GTV****球体经济下的媒体行业新业态**
-
-现在的媒体叫传统媒体，还有抖音这种跨界媒体，但他们的成本都很高，跨界媒体的功能有限，最后都会成为GTV网络媒体的一部分。**全域无缝支付**和**异地****分布式媒体创作**结合会吸引更多外围的专业人才的加入，到时候会出现更多生活化的节目。
-
-跨时代的网络媒体最终会彻底取代传统的媒体，广告和版权会是很大的收入源，艺术作品商品化和金融化，都会在GTV中出现。比如说，迪斯尼的卡通人物为什么能变成玩具，这就是艺术作品商品化，进一步就是金融化，票据化，甚至每个节目组都会成为全新的农场实业的金融链条之一。
-
-现在缺乏创立一个全域支付的管理模式，人人都是趋利避害的，这种模式要吸引全球的媒体人才为GTV工作，吸引导演、编辑、演员、配套服务人员进来，而不仅仅单纯局限于政治内容。
-
-在CCP条件下，你没有机会展现的才华，在GTV就都能得到释放，成为GTV的明星，这一天一定会到来，几乎触手可及的。
-
-**GTV****会成为情报中心**
-
-GTV的直播模式，已经发散并降低到手机端，全球任何地方的信息，只要一部手机，就可以第一时间发布到GTV，让全球的人瞬间可以看到。远远超过靠记者采编的传统媒体。秉持唯真不破，情报汇集中心，必在GTV，一切尽在两指之间。
-
-**坚信投资就是投票，勇做新中国联邦的守护骑士**
-
-未来我们的战友就是新中国联邦财富和长治久安的守护者，怎么样提升自己，帮助更多的同胞，重建我们的国家，真的很希望有更多的战友能够勇敢地走出来，哪怕是小范围去传播这个真相，都是非常了不起的。我们对整个人类文明的贡献是巨大的，新中国联邦人未来走到哪儿都是昂首挺胸的。
-
-战友们，我们是宝贵的族群，承载着上天的旨意，正道主义。我们要付出更大的努力，一起去跟随郭先生，去做这么有意义的事情，这是永载史册和千载难逢的机会。感恩郭先生，感恩农场联盟和新西兰伊甸农场，感恩志同道合的战友们一起相伴。
-
-**伊甸灭共行**** ****利他兴联邦**
-
-由于CCP非常害怕这类节目的播出，本节目的首页链接已被黑掉，请在GTV主页上搜索**[新西兰农场综合台](https://gtv.org/user/5ec850482349f76dd1792ead)**，进入新西兰农场综合台的页面点击观看或下载。恳请战友们动动您的金手指，帮助广泛传播我们的认知，期望给与墙内百姓一些理解开智方面的帮助。
-
-需要简版或音频版的战友请私信伊甸战斗室节目组或在节目下留言。
-
-更多精彩内容请点击GTV, 搜索：[新西兰农场综合台【Gcoin不是币，GTV不是TV，GClub不是Club】第一、二、三期](https://gtv.org/user/5ec850482349f76dd1792ead)，第四期将预计下周播出。
-
-回顾战友们的精彩对话。
-
-感谢： 
-主持人：Bluesky、Linda/NZ 
-嘉宾：豹警官，TS2020相聚盘古 
-总策划：TS2020相聚盘古 
-图文设计：存在主义咖啡馆，文香香，文恩小蚂蚁，新月（Cyndi），上进哥 
-视频支持：肌肉猫Elva，遥远的诗歌，挣扎的韭菜 技术支持：遥远 的诗歌 
-场记：文恩小蚂蚁，Ray裁决 
-资料收集：豹警官，135790abc，文石1120 
-后台服务：澳洲7哥，黑暗即将过去，遥远的诗歌 
-广告推广：一茗，恭喜恭喜，澳洲7哥，黑暗即将过去，文林，如果云知道 
-视频服务压缩：Leo\NZ
+“#中共病毒 #超限生物武器 #中共病毒大流行来源 #冠状病毒”
 
 
 
-审核校对：鲁邦五世
-上传排版：糖果儿
+> In Wuhan's peak [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) infection period, Wuchang district had the highest density & its highest density were in the areas of Wuhan University P-3 animal lab, Wuhan Institute of Virology & the PLA military Hospital[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/DK74IxTOGX](https://t.co/DK74IxTOGX)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 8, 2021](https://twitter.com/LawrenceSellin/status/1380129105316810761?ref_src=twsrc%5Etfw)
+
+
+
+塞林博士夜以继日、按部就班地发表病毒真相的线索，4月9日凌晨发推如下：
+
+“解放军中部战区司令部总医院是解放军广州军区总医院在地图上标出的新名称，在#中共病毒大流行 的起源上与武汉大学武汉病毒学研究所、延伸的军事院校有关联。
+
+“#中共病毒 #超限生物武器”
+
+
+
+> General Hospital of Central Theater Command of the PLA is the new name of the General Hospital of Guangzhou Military of PLA on maps, linked to Wuhan Institute of Virology, Wuhan University & extended military institutes in the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/KN7ZFUhX5S](https://t.co/KN7ZFUhX5S)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 9, 2021](https://twitter.com/LawrenceSellin/status/1380382787585380353?ref_src=twsrc%5Etfw)
+
+
+
+“武汉多重机构（也是中南医院）在#中共病毒大流行 的实验室来源中所扮演的角色，包含在一个秘密的与军事有关的病毒类粒子疫苗项目中，这也是中共在纳米技术上称霸全球的目标之一。
+
+“#中共病毒 #超限生物武器 #中共病毒大流行来源”
+
+
+
+> Wuhan's multi-institutional (also Zhongnan Hospital) role in [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)'s laboratory origin is embedded in a secret military-linked virus-like particle vaccine program, part of the CCP's goal of global dominance in nanotechnology.[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/gUfy3sRetx](https://t.co/gUfy3sRetx)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 9, 2021](https://twitter.com/LawrenceSellin/status/1380437260458409986?ref_src=twsrc%5Etfw)
+
+
+
+“据了解，中国人民解放军与大学和私营公司一起参与了减弱病毒（如轮状病毒）疫苗的人群测试，这种疫苗可以自发恢复到致病状态。”
+
+
+
+> China's People's Liberation Army is known to participate together with universities & private companies in population-based testing of attenuated viral (e.g. rotavirus) vaccines, which can spontaneously revert to a pathogenic state.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/fBU7OEDmmD](https://t.co/fBU7OEDmmD)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 9, 2021](https://twitter.com/LawrenceSellin/status/1380399327747670017?ref_src=twsrc%5Etfw)
+
+
+
+“图片信息：美国印太总司令部解释：**根据中共的法律，中共国军民融合项目要求，任何组织和个人必须在生物和医疗领域为中共的统治体制贡献信息和帮助。**
+
+“中共病毒大流行释放假定：
+
+1. **从基因改造的冠状病毒直接释放**
+2. **减弱病毒的冠状病毒疫苗形成发病状态**
+3. **来自失败的抗击病毒的疫苗**
+
+
+“#中共病毒 #超限生物武器 #中共病毒大流行来源 #冠状病毒”
+
+## 邮件中的情报
+
+4月7日《美国知情权》刊登文章《中共国关联期刊编辑求助反驳Covid-19实验室起源假说》。作者：[Sainath Suryanarayanan](https://usrtk.org/author/sainath/) 。[点击查看原文。](https://usrtk.org/biohazards/chinese-linked-journal-sought-to-rebut-covid-19-lab-origin-theory/)
+
+
+
+> Chinese-linked journal editor sought help to rebut Covid-19 lab origin hypothesis – according to emails obtained by USRTK. Read the latest in the [#biohazards](https://twitter.com/hashtag/biohazards?src=hash&amp;ref_src=twsrc%5Etfw) blog by [@sai\_suryan](https://twitter.com/sai_suryan?ref_src=twsrc%5Etfw) [https://t.co/eyOQzU3x9v](https://t.co/eyOQzU3x9v)
+> — U.S. Right To Know (@USRightToKnow) [April 7, 2021](https://twitter.com/USRightToKnow/status/1379901422569975812?ref_src=twsrc%5Etfw)
+
+
+
+文章称美国知情权组织获得的电子邮件显示，《新兴微生物与感染》（EMI）驳斥新型冠状病毒SARS-CoV-2来自实验室。该杂志的编辑工作由中共国的上海尚艺迅文化传播有限公司（音译，Shangyixun Cultural Communication Co.）负责，并与总部位于英国的出版商Taylor & Francis合作。该杂志的几位编辑和董事会成员都在中共国，其中包括一些隶属于中国政府的成员。EMI董事会成员复旦大学医学院的蒋世波（音译）和中山大学的舒跃龙（音译）是寻求改变新冠状病毒名称以拉开与中国距离的中国科学家之一；董小平（音译）是中国疾病控制中心的政府官员，他是2020年2月与世界卫生组织联合考察团阐明SARS-CoV-2起源的中方二号专家。
+
+马萨诸塞大学医学院的主编陆珊为EMI杂志征集了由美国病毒学家撰写的评论，题为 “没有可信的证据支持SARS-CoV-2实验室工程的说法”，于2020年2月发表。这与27位科学家在不同期刊上发表的科学报告和声明大约在同一时间发表，这些报告和声明都断言新的冠状病毒有自然来源。
+
+这篇评论用科学势力加强了中共病毒自然起源确定性的表述，在中共国武汉首次报道疫情的几周后就发表出来。EMI在提交评论后12小时内就被予以发表，这表明一个科学刊物为了表达政治观点而进行了肤浅的同行评审程序。
+
+这篇评论的作者包括病毒学家刘善璐（音译）和俄亥俄州立大学的赛夫（Linda Saif）、宾夕法尼亚大学的魏斯（Susan Weiss）以及当时隶属于北卡罗来纳大学的苏立山（音译）。作者在文章中反对SARS-CoV-2来源于实验室泄露的可能性，这一可能性是基于一种落户在中共国武汉病毒学研究所内、名为RaTG13的蝙蝠冠状病毒。
+
+文章称，在2020年2月11日的一封邮件中，刘善璐（音译）邀请赛夫作为 “几乎完成 “的草稿的共同作者，“就一些谣言，对2019-新型罐装病毒或SARSCoV-2的可能来源发表评论”。刘在邮件中表示，他是应EMI主编的邀请，与苏立山（音译）一起写了这篇评论。赛夫同意加入。2月12日，刘还邀请魏斯教授也作为共同作者，她也立即同意。
+
+赛夫曾在《柳叶刀》上发表声明，他是签署人之一。该声明是由生态健康联盟（EcoHealth Alliance）的彼得-达斯扎克（Peter Daszak.）策划的。 生态健康联盟是一个非营利组织，曾获得美国纳税人数百万美元的资助，用于对病毒进行基因改造，包括与武汉病毒学研究所的科学家合作。
+
+2020年2月，EMI又发表了两篇评论，均对中国政府在SARS-CoV-2起源问题上的立场表示支持。
+
+- 2月4日，一篇题为 “HIV-1没有对2019-nCoV基因组做出贡献 “的评论，作者是美国的中国科学家，隶属于中国的大学；
+- 2月28日，中国科学院上海的科学家发表了一篇题为“SARS-CoV-2是否源于实验室”的评论，作者是中国科学院上海的科学家。
+
+
+一些科学家认为，撰写EMI评论的专家们并没有考虑到WIV中存放着未发表的与SARS相关的蝙蝠冠状病毒，这些病毒可能成为SARS-CoV-2的实验室起源模板。
+
+文章称，迄今为止，关于该病毒起源问题的争论仍未结束，调查自然以及实验室起源情况的呼声越来越高。
+
+斯坦福大学教授David Relman在PNAS的一篇文章中写道，反对刻意人工合成理论的论点 “没有承认已经发现了两个或更多尚未披露的祖先（比RaTG13和RmYN02更接近的祖先）早已在实验室进行研究，例如，一个具有SARS-CoV-2主干和穗蛋白受体结合域，另一个具有SARS-CoV-2多基弗林酶切位点。这本来是一个合乎逻辑的下一步，想知道重组病毒的特性，然后在实验室里创造它。”
+
+了解更多信息：
+
+- 美国知情权组织通过公共记录申请获得的俄亥俄州立大学教授琳达-赛夫（Linda Saif）的邮件，可以在这里找到。赛夫电子邮件第1批：俄亥俄州立大学（303页）。
+- 美国知情权组织正在为公共记录要求公布我们为生物危害调查而提出的文件。请看：[关于SARS-CoV-2的起源，功能增益研究的危害和生物安全实验室的FOI文件](https://usrtk.org/biohazards/foi-documents-on-origins-of-sars-cov-2-risks-of-gain-of-function-research-and-biosafety-labs/)。
+- 关于美国知情权对SARS-CoV-2起源调查的背景页。
+
+
+
+
+## 阅读清单
+
+4月7日《美国知情权》发布文章：“[生物危害新闻追踪：关于SARS-CoV-2起源、生物实验室和功能增强研究的最佳文章](https://usrtk.org/biohazards/origin-of-sars-cov-2-gain-of-function-readings/)”。作者：Sainath Suryanarayanan。
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/04/ccp-virus-usrtk.png)图片来源 USRTK
+
+
+文章列出一份长长的阅读清单，内容涉及SARS-CoV-2的起源、生物安全和生物战实验室的事故和泄漏、以及功能增益（GOF）研究的健康风险，GOF研究的目的是增加潜在大流行病原体的宿主范围、传播性、传染性或致病性。文章称，美国知情权组织正在对这些课题进行研究，并将研究结果发布在我们的生物危害博客上。
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+（本项目持续更新）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
 
 0
