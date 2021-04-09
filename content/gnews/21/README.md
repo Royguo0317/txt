@@ -1,23 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 黄金在虚拟货币体系中的定位
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1066778/)
+## 世界经济像泰坦尼克号一样即将撞向冰山&nbsp; 霍尔木兹海峡和苏伊士运河还会出事
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1066681/)
 
-华盛顿DC农场 DC令狐冲
-![]()![](https://gnews.org/wp-content/uploads/2021/04/ggg.jpg)
-郭先生在2021年3月27日的直播中第一次向大众揭开了黄金最核心的面纱，我们第一次知道全球黄金现货的总量约为30万吨，且沼泽地控制了其中的50-57%。沼泽地在2008年那场全球经济危机中割了所有人的韭菜并在人类历史上第一次大规模地收集了过半数的黄金现货，从而真正掌控黄金现货的话语权。全球政府手中的黄金现货储备只占全球黄金现货总量的20%，过去50年全球民间黄金消费总量仅为3万吨。由于这些数据太过敏感到目前为止除郭先生之外没有任何机构或者个人敢公布。为什么现货黄金数据如此敏感？其中到底隐藏着什么秘密？笔者将结合郭先生关于黄金和虚拟货币发行的数次讲话来和大家共同探讨。
+**简述：郭先生在****2021****年****4****月****4****日的盖特视频中，警告说全世界的经济将像泰坦尼克号一样撞向冰山；石油和黄金价格没有大的起伏，但不可能持续；中共一定还会在霍尔木兹海峡和苏伊士运河搞事；这中间只有新中国联邦在救人，一定要让这个船沉不下去。**
+[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210404-getter1.srt.txt)
+**世界经济像泰坦尼克号一样即将撞向冰山****  ****霍尔木兹海峡和苏伊士运河还会出事**
 
-首先，自布雷顿森林体系在1973年终结后世界各国货币发行政策存在严重短板和危险。众所周知，人类的货币发行历史中大部分时间是采用金银本位，特别是在布雷顿森林体系终结前，全球主要货币发行特别是美元的发行都是采用金本位，以锚定黄金为基础。随着布雷顿森林体系的终结，各国政府进入了仅仅依靠政府信用就可以发行货币的时代直至今天。这短短的半个世纪造成了人类历史上最大量的货币超发和经济泡沫，且中共国近年来大量印刷葫芦岛币，造成美元天量超发，扰乱美国和美元经济秩序。中共2019年底放出CCP 病毒肆虐全球至目前更是疯狂变种、超级传播。无锚发行货币的政策造成的货币超发，加上病毒引起的全球经济崩溃不可避免。未来重建全球经济时黄金的锚定工具作用将再次被启用，成为未来货币发行体制中最稳定的基石，黄金被打入冷宫的时代正式结束。
+**The World Economy Is Hitting an Iceberg Like the Titanic; Something Will Happen Again at the Strait of Hormuz and Suez Canal**
 
-其次，美国带领着人类文明的发展即将从大航海时代进入太空时代，虚拟货币作为经济活动的高效实现手段必将取代落后且被人诟病的纸币机制。鉴于黄金特殊价值，它再次成为未来货币发行机制的定海神针，以黄金为锚发行货币特别是虚拟货币必将成为新时代的选择。人类社会未来的发展推动力将主要来自于新一代科学理论应用和工业技术，新一代互联网经济以及新一代的生命科技。曾经面对现代社会的货币流动性以及财富高速增长，黄金的总量偏少以及流动性太低成为了短板，这也是当年舍弃黄金作为锚定的最主要原因。新时代赋予了黄金新的机遇，量子电脑的商业普及以及5G甚至是6G时代来临，为适应这一最新人类发展趋势，以美国为首的各国政府必将进行全球经济架构重组，郭先生早就洞悉这一历史发展的趋势，采用黄金为锚和双币体系打造出了全球最新一代的虚拟货币G-Coin和G-Dollar。这是人类历史的一个创举，随着G-Coin这个虚拟货币的正式上线运营，新中国联邦拥有自己的安全货币，世界也因此跨入了新的货币发展模式。
+兄弟姐妹们长话短说。从昨天到现在，真的我有两个深刻的感受。我就感觉到世界的经济和世界的政治，甚至全世界人民，就像这个泰坦尼克号要撞向雪山一样。后来当时也有人说强大的激光术，干掉了泰坦尼克号。就是你就觉得那个泰坦尼克号撞向山的感觉，全世界的政治，经济和人民的安全。就这几天你能听到的就是，所谓的有身份的人、政治[届]的人、情报界的人，就说出了打疫苗的后遗症，吓死人了。
 
-再者，沼泽地主人们对黄金重要性的认识和把控远比民间深刻。现行货币发行机制有着巨大的缺陷已不能适应人类文明的发展，沼泽地主人们比普通人更明白这个道理，他们计划利用黄金制定出新一代的货币发行机制，但为了保证自身作为沼泽地的永久利益，继续控制新建立的货币发行机制，他们并不希望世人知道黄金将再次被重用的计划，因此这是沼泽地及其主人们不希望大家知道黄金真实的数据的原因。在他们还没有完全控制全球实物黄金的时候，谁说出黄金的秘密谁就要被消失。通过对郭先生过去视频猜测，郭先生及其家族基金或与沼泽地紧密联系，他当然清楚这个秘密，但是他不能提前说。现在沼泽地主人们已经通过对2008年全球金融危机的操控血洗了世界各国的黄金现货储备，积累了超过全球半数以上的实物黄金，彻底实现了对全球实物黄金的控制权，在此灭共的紧要关头郭先生说出了黄金的秘密，笔者相信是事先经过允许和布局的，鉴于郭先生在这场爆料革命中所积累的信用和对灭共做出的贡献，秘密通过由郭先生说出来就是在警告中共，让中共彻底明白，想通过发行无锚定的虚拟货币干掉美元是痴心妄想。世界的沼泽地早已准备好破解的方法，全球将很快回归金本位的货币发行机制，像中共国发行的既没有锚定黄金，政府信誉又不好的虚拟货币注定是骗人的把戏，绝对没有未来。
+From yesterday till today, I indeed had two profound feelings. I felt that the world economy and politics, and even the people of the world are just like the Titanic about to hit the iceberg (though later someone said that Titanic was taken down by laser ray). You just feel that the whole world’s politics, economy, and people’s safety are going to hit an iceberg like the Titanic did. Also the past few days I heard from the so-called men of class and people in the political and intelligence fields talk about the side-effects of the [CCP virus] vaccine. Very scary!
 
-最后，黄金价格不再被打压，黄金的真实价值将得到体现，甚至得到溢价体现。美国政府黄金储备只有8000吨，按照目前黄金价格，美国政府储备的现货黄金仅值5000亿美元，但美联储却发行了100万亿的美元，黄金价格被人为打压。如果回归金本位，黄金价格必然回归到应有的价格。虚拟货币是新一代的货币发行机制，只有那些采用了金本位的货币才有未来，在不久的将来全球会掀起追逐实物黄金的热潮，黄金价值回归指日可待。
+第二个就是世界的经济。你听到玩金融的，现在真的是瑟瑟发抖，在瑟瑟发抖的时候，眼神始终看着有没有机会弄块儿大的。贪婪啊，贪婪啊，都不想失去，都想趁此机会捞一把。你就觉得泰坦尼克号撞向山上去的感觉。
 
-我们爆料革命的战友们跟随着郭先生总能站在世界发展的最前线，获知第一手的真实情报和信息，关于黄金的核心内幕所包含的未来发展趋势大家肯定都心如明镜。我们必须发展壮大以G-Coin为代表的G系列才有未来，新中国联邦必将参与并引领人类发展至新天地。
+The second one is the world’s economy. You’ve heard that people in the financial sector are trembling now. While trembling, they also keep watching to see if there is any chance for them to make a big fortune from this. Greedy! No one wants to lose, everyone wants to catch a quick buck if there is a chance. This makes you develop the feeling of the Titanic about to hit the iceberg.
 
-发布：GLC
+另外就能感觉到中国共产党的疯狂，真的是，你就觉得魔鬼它一旦占到上风以后，那种狰狞的笑，“哈哈哈哈” 就是那种感觉，疯狂，就是灭亡前的疯狂。太多的这些现象没法形容。大家都知道泰坦尼克号…就那么多人，就那两三个人说出要撞山了，玩球蛋了，还有几个人的忧虑都发生了。
+
+On the other hand, you can feel the craziness of the CCP. Indeed, you can now feel the ferocious laugh from the demon when it occupies the high ground – madness and craziness before perishing. Too much stuff like this, which is hard to describe. You all know about the Titanic. But among so many people onboard, there were only two or three of them that spoke out that they were going to hit the iceberg and going to die, which was proved to have occurred.
+
+现在我就觉得我们整个爆料革命，就像世界的泰坦尼克号一样，要出苏格兰到纽约去了，玩大的玩高级的，但是都为了那个奢华，所谓的贵族的体面，人类的虚伪和懦弱，不敢面对真相，一步又一步的错误，最后“咣叽”撞上了冰山。太可怕了！但这里面毕竟有英雄人物，也有脱险的人，那就是咱新中国联邦，就咱新中国联邦。就是我们在救人，最后我们离开了泰坦尼克号。
+
+Now I feel that our entire Whistleblower Movement (BM) is in the midst of this world which is exactly like the Titanic, leaving Scotland to New York, trying to play a big, high-end game, chasing for luxury and the so-called decentness of the nobility driven by the hypocrisy and cowardice of humanity, and lacking the courage to face the truth, making mistakes step by step, and finally hitting the iceberg. How frightening! Yet, after all, there are brave people who can escape,  which is our New Federal State of China (NFSC). It is our NFSC that is saving lives and, in the end, escaping the Titanic.
+
+当然了这个也许有人顺手想拿点金子银子的，这事别想，开玩笑，爆料革命当中，有些人一定要意志坚定，我们是拯救这个大船的，我们不是等船沉了救人，一定要让这个船沉不下去。
+
+Of course, there might be people who want to get themselves some gold and silver [make personal profit] from this. Don’t even think about it. Kidding. In our WM, people must be determined. We are saving this big ship rather than waiting for the ship to sink and then saving people afterwards. We must make the ship unsinkable.
+
+大家看到黄金，黄金最近有大动静了吗？没有大动静，石油怎么样？有回落，有大起伏吗？没有。你觉得这样会下去吗？不可能。霍斯姆海峡、苏伊士运河，你觉得还会出事儿吗？还会出事儿。你打台湾是什么样？你想跑那跑得了吗？你跑不了。为什么现在数字货币、加密货币这么厉害？每个人都恐惧，知道这个世界正在撞向冰山。在撞向冰山前，有人还想拉小提琴，还想听听音乐，是吧？那你尽管，但最后一定葬身在水里面的是你，这就是今天世界政治经济的现状。
+
+Does anyone see any big fluctuations in gold price lately? Nothing big. How about the oil price? It goes down a little. Are there any big ups and downs? No. Do you think this will last long? Impossible. Do you think something will happen again at the Strait of Hormuz and Suez Canal? Yes, it will happen. What will it be like if you attack Taiwan? Do you think you can get away with it? No, you can’t. Why are digital currencies and cryptocurrencies so strong now? Everyone is in fear, knowing the world is about to hit an iceberg. Before hitting the iceberg, some people want to play violin and listen to music, right? Do what you want, but you will be the one buried deep in the water in the end. This is the current status of the world’s politics and economy.
+
+兄弟姐妹们，一定要看得更清楚一点，看得更明白一点。现在到啥时候了？你看看听说华尔街看到那些朋友，每个人现在是自己大房子，现在赶快抵押贷款，而且是不赎回的，不赎回啥意思？我还不了钱，我就不赎回了，而且都不要个人的 Guarantee，都卖公司的，而且打大折。很多金融资产都往外卖，很多人都想跟我们换 GTV股份、G-Coin，门儿都没有，这就是现在的形势。
+
+Brothers and sisters, please look through things more clearly. What a critical moment is it right now? Look at it. I heard from some friends in Wall Street that everyone is now hurried to mortgage their big houses without redemption rights. What does that mean? If I cannot pay back the mortgage, I will not redeem the house. Moreover, no one uses a personal guarantee, rather they sell to companies and give them big discounts. Many are selling their financial assets to exchange for GTV shares and G-Coins. No way. This is the current situation.
+
+兄弟姐妹们，一定这个时候要搂住。世界巨变前，当你搂不住的时候，一定是大灾大难伴随着你。拜托了，此时不要贪，此时不要有幻想，此时要有各种防范。兄弟姐妹们，珍惜你现在能听到七哥直播和盖特的机会，珍惜你现在拥有的自由，珍惜你拥有的健康。人类从来没像现在这样面临着一切的重大的改变和重大的挑战，当然了有智慧、有本事的人是机会。愿成为每个战友所有人的机会吧，谢谢了。
+
+Brothers and sisters, we must hold ourselves at this critical moment. Facing the world’s immense change, if you cannot hold yourself, great disasters will find you. Please, don’t be greedy at this moment, stop dreaming at this time. Please use pre-caution measures at this time. Brothers and sisters, please cherish the moment when you can still watch my broadcasts and Getter videos. Cherish the freedom that you are enjoying now. Cherish the healthiness you have. Humanity has never ever faced such a huge change and challenge like this before. Of course, it presents opportunities for people with wisdom and capabilities. I hope this can be an opportunity for every fellow fighter. Thank you!
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/6069cd0cdbc8001854a56773](https://gtv.org/getter/6069cd0cdbc8001854a56773) (00:17-1:47, 2:31-3:39, 5:55-6:40, 8:30-结束)
+
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1049756/](https://gnews.org/zh-hans/1049756/)
+
+* * *
+
+翻译：【7PawBear】字幕：【Rock小哥】二校：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0

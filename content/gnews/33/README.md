@@ -1,23 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美商务部长回避抖音出售问题
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1066493/)
+## 蓬佩奥成福克斯特约撰稿人
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1066534/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+俄罗斯莫斯科喀秋莎农场 DongDong
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-4.jpg)money.cnn.com
-《独立报》报道，商务部长吉娜·雷蒙多(Gina Raimondo)在白宫被问及总统是否会要求出售中共的抖音公司，她回避了这一问题。
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/PM-3.jpg)mediamatters.org
+《福克斯新闻》（Fox News）首席执行官苏珊娜·斯科特(Suzanne Scott)周四宣布，前国务卿迈克·蓬佩奥(Mike Pompeo)已加入福克斯新闻媒体，成为一名特约撰稿人。
 
-今年早些时候，有消息称拜登正在审查其前任川普总统希望看到中共抖音出售给美国公司的决定。今年2月，《华尔街日报》报道称，拜登政府已在审查将这家社交媒体平台的美国业务出售给甲骨文(Oracle)和沃尔玛(Walmart)的交易。
+“迈克·蓬佩奥是美国在外交政策和国家安全问题上最受认可和尊重的声音之一。我期待他在《福克斯新闻》媒体的一系列平台上做出贡献，与我们数百万观众分享他的独到见解。” 斯科特说。
 
-周三，商务部长吉娜·雷蒙多(Gina Raimondo)在白宫被问及她是否觉得应该出售抖音（TikTok），以及她对拜登在中共关税问题建议的“宽泛看法”。 雷蒙多回避说，“我不想谈论任何一家公司的细节”，“在我看来，从长远来看，要与中共竞争，我们在进攻上做什么比在防守上做什么更重要”。
+蓬佩奥将在所有福克斯新闻媒体平台上提供评论分析，包括福克斯新闻频道和福克斯商业网。他定于周五在 “福克斯与朋友们”（Fox & Friends） 节目中首次亮相。
 
-她称，“关于关税，关税是有一席之地的，你知道……（川普时代)对钢铁和铝征收关税，实际上帮助保住了美国钢铁和铝行业的就业机会。” 雷蒙多补充说，“我们必须创造公平的竞争环境。如果有公平的竞争环境，没有人能战胜美国工人。”
+“福克斯与朋友们”是美国保守派每日早间新闻/谈话节目，美东早间 6:00 开播，于 1998 年 2 月 1 日首播。在保守派中享有很高收视率，以偏袒川普总统而闻名。
 
-参考链接：
+“作为一名前外交官和国会议员，在福克斯新闻媒体的这个新角色中，我会以开诚布公、通俗易懂的语言向观众解释地缘政治、国际关系和美国优先的国策，上述国策勾勒出美国驶向空前经济繁荣和国家安全的航程。” 蓬佩奥坦言。
 
-[https://www.independent.co.uk/news/world/americas/us-politics/tiktok-china-biden-gina-raimondo-b1828086.html](https://www.independent.co.uk/news/world/americas/us-politics/tiktok-china-biden-gina-raimondo-b1828086.html)
+蓬佩奥在 2018 年 4 月至 2021 年 1 月间担任国务卿，历届前华府官员卸任后加入有线电视新闻屡见不鲜，反之亦然。例如，MSNBC 的尼科尔·华莱士（Nicolle Wallace）曾在乔治·W·布什总统任期内担任白宫通讯主任，CNN 的吉姆·沙托（Jim Sciutto）和大卫·阿克塞尔罗（David Axelrod）曾在奥巴马政府任职。
+
+这种循环在拜登政府期间仍在继续，国务卿安东尼·布林肯（Antony Blinken）和新闻秘书詹·普萨基（ Jen Psaki）都曾是 CNN 的分析师。
+
+蓬佩奥曾任中央情报局局长，在与朝鲜领导人金正恩的历史性谈判中发挥了重要作用。他的工作促成了美国在任总统与朝鲜的首次会晤，还帮助释放了三名被朝鲜拘留的美国人。
+
+这位福克斯新闻家族的新成员还在击毙伊朗高级将领卡西姆·苏莱曼尼（Qasem Soleimani）、以色列与几个阿拉伯国家关系正常化方面发挥了关键作用。
+
+在加入川普政府之前，蓬佩奥曾在堪萨斯州众议院第四选区当选四届议员。从 2011 年开始任职，直到 2017 年加入川普政府。他曾担任众议院情报常设特别委员会成员，能源和商业委员会委员，以及众议院班加西问题特别委员会成员。
+
+他以全班第一名的成绩毕业于美国西点军校，曾在冷战期间担任巡逻东西德边境的骑兵军官，并毕业于哈佛大学法学院。
+
+参考链接
+
+[1] [Former Secretary of State Mike Pompeo joins Fox News as contributor – FOX NEWS – 2021/04/08](https://www.foxnews.com/media/former-secretary-of-state-mike-pompeo-joins-fox-news)
 
 0

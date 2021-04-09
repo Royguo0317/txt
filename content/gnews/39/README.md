@@ -1,40 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 比特币会成为中共对抗美国的“金融武器”吗？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1066355/)
+## 世界没有像样的政府&nbsp; 强推疫苗背后都是腐败
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1065973/)
 
-- 作者：gokuabuela
+**简述：郭先生在2021年4月4日的盖特视频中感叹世界上没有几个好的政府，它们拼命给人民打疫苗，可疫苗背后藏着无数的腐败。他也评论说美国的万亿纾困法案是羊毛出在羊身上，最后还是要美国人埋单。**
 
+**世界没有像样的政府  强推疫苗背后都是腐败**
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+**Few Governments Are Decent; Behind the Vaccines Are All Corruptions**
 
-**西班牙2021年4月8日电/西喜社——**
+你看看这世界上哪有几个像样的政府啊，拼了命了让大家打疫苗，这个疫苗的背后就是腐败。买疫苗，买谁家疫苗，谁给打疫苗，收你多少钱？政府批多少钱，反正这些钱最后都是老百姓身上，没有一个政府生产一块钱财富，所有的财富都是人民创造的，所有的所谓的免费的，最后都是从你身上拿出来。
 
-据经济学家报4月8日报道，贝宝（PayPal）和软件公司Palantir的联合创始人彼得-蒂尔（Peter Thiel）将自己定义为 “加密货币支持者”，在捍卫比特币方面，他是一个 “最大限度主义者”。但他也认为，领先的加密货币可能是美国的潜在危险。
+Look at how few decent governments there are in this world? They are desperate to get everyone vaccinated. Behind the vaccines are all corruptions. Whose vaccines to purchase? Who get vaccinated? How much to charge them? How much should the government pay? Anyway, all this money in the end will be paid by the people because no government produces a dollar of wealth, all the wealth is created by the people. All the so-called free stuff will ultimately be paid out of your pocket.
 
-在周二举行的一次活动中，蒂尔敦促美国政府考虑对加密货币进行更严格的监管。这位著名的亿万富翁，风投项目负责人在与理查德-尼克松基金会成员的活动中表示：”在这一点上，我质疑，比特币是否也应该被部分地视为中共国对抗美国的金融武器”。
+就像头两天，一万多亿的美国所谓的每个人发1400块钱补助，马上加税，加税的人，这些人老板加税了，你以为老板能给你啥？老板会在你身上，老板自己家里也不产钱，地里也不长美元，也不长人民币，最后还得老百姓的劳动剥削出来的，最后不还是这些老百姓的钱吗？这基本的常识吗？
 
-作为共和党的知名支持者和2016年唐纳德-川普的早期支持者，蒂尔与美国前国务卿迈克-蓬佩奥和前国家安全顾问罗伯特-奥布莱恩一起参加了此次活动。经常批评与北京做生意的美国公司的蒂尔和川普政府的两名前成员以及 “强硬派 “之间的对话，主要集中在中美关系上。
+Just like the American Rescue Plan of over a trillion dollars, which was passed a couple of days ago, giving $1,400 subsidy per person, will immediately entail increased tax. Those bosses will pay more tax. What do you think the bosses will do to you? The bosses will put that on you because your boss does not produce any money in his own home, and the field can’t grow dollars or RMB out of it either. In the end, money will come from exploiting the working people. Isn’t it the people’s money in the end? Is this basic common sense?
 
-2018年突然离开硅谷，抱怨硅谷已成为 “一党制国家 “的蒂尔也回击了他多次批评的 “与美国利益作对 “的谷歌，他指责谷歌的子公司允许中共国当局在新疆地区使用其技术，而美国政府认为，新疆地区正在对维吾尔族人实施 “种族灭绝”。
+你以为哪个政府伟大地说，我给你补贴1万亿2万亿，最后羊毛一定长在羊身上，羊毛一定不会出在猪身上，也更不会出在中南坑那些老杂毛上身上，就这么简单，是吧？不论是哪国都是一样。所以说政府、政客，没有一个是好东西，所以这一辈子当啥也不能当政客，掺乎啥也不能掺乎政治，没好东西。
 
-这位柏林出生的商人还建议，美国对科技公司的审查应该包括苹果公司，并指出该公司的大部分设备都在中国生产，而中国的劳工标准比美国和欧洲更宽松。他表示，”苹果可能是唯一一家在结构上对美国利益构成真正问题的科技公司，苹果才是与中共国真正有协同效应的公司”。
+You think your government is so great to give people subsidies of 1 to 2 trillions. Wool can only be from sheep (Chinese idiom, meaning “whatever you’re given, you pay for”), wool won’t be from the pigs, and it certainly won’t come from those old bastards in the Zhongnanhai Pit. Simple as that, right? All countries are the same. Therefore, neither governments nor politicians are good, so don’t be a politician in your life time and don’t get involved in politics because there’s nothing good out of it.
 
-同样，蒂尔主张美国应该效仿印度，禁止中共国公司“字节跳动”旗下的网络社交程序抖音（TikTok），他指责抖音是 “不可思议 “的数据泄露者。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/6069f00bdbc8001854a571df](https://gtv.org/getter/6069f00bdbc8001854a571df) (4:01-5:18)
 
-他对抖音的评论与Facebook的观点一致，蒂尔本人也是其董事会成员。Facebook多次将TikTok描述为对美国价值观的威胁。
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/1050010/](https://gnews.org/zh-hans/1050010/)
 
-文章中没有更多比特币会成为“金融武器”的依据。七哥提到过，大部分比特币在中共的手中，是中共在暗网活动，以及洗钱的主要工具。
+* * *
 
-因为比特币的特点，它没有发行机构，只是根据算法，大家知道其上限是2100万个币，它对每个人似乎都是公平的。其实不然，比特币的圈子是一个充满陷阱和诈骗的圈子，特别是卖家，几乎声称自己拥有比特币的卖家都值得怀疑，是否真的拥有比特币，中本聪是谁，谁也不知道。世界上最大的比特币矿场在四川、新疆，而中共国却禁止交易比特币。
-
-比特币对中共而言，主要是暗地里的工具。而不是针对美国的“金融武器”。中共从比特币里看到了区块链技术，去中心化，保密化、方便交易等特点，从而发展出自己的数字化货币，结合自己庞大的网络支付和网上购物，如果再加上人民币国际化，就可以跳过SWIFT系统了，这些概念已经领先美元了，这才是真正“一剑封喉”的针对美元的“金融武器”。
-
-幸好，七哥早就看出了这点，发展出了G系列，还让战友们参与投资，我们再次领先世界一步。
-
-编辑：Victor Torres；校对:阿伯塔 ；组稿：神奇四侠；发稿：信心的选择
-
-**新闻来源：**[经济学家报](https://www.eleconomista.es/divisas/noticias/11147536/04/21/El-cofundador-de-PayPal-Peter-Thiel-ve-en-el-bitcoin-un-arma-financiera-que-China-puede-usar-contra-EEUU.)
+翻译：【rainbow】字幕：【Rock小哥】二校：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0
