@@ -1,23 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美商务部长回避抖音出售问题
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1066493/)
+## 佩洛西瞎话边境危机由川普总统造成
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1066573/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-4.jpg)money.cnn.com
-《独立报》报道，商务部长吉娜·雷蒙多(Gina Raimondo)在白宫被问及总统是否会要求出售中共的抖音公司，她回避了这一问题。
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/PL.jpg)nationalreview.com
+愈演愈烈的边境危机造成的后果正在显现，民主党开始推卸责任，曾经力挺拜登，号称边境形势安好、不存在边境危机的佩洛西，在掩盖、封锁消息的伎俩没有得逞，事实真相被揭穿的情况下，变换了一种方式，继续袒护拜登的同时，归罪于川普总统。
 
-今年早些时候，有消息称拜登正在审查其前任川普总统希望看到中共抖音出售给美国公司的决定。今年2月，《华尔街日报》报道称，拜登政府已在审查将这家社交媒体平台的美国业务出售给甲骨文(Oracle)和沃尔玛(Walmart)的交易。
+本不想过多参与两党事务的纷争，面对巫婆的无中生有，捏造歪曲，只能感叹佩洛西的作派，就是一副中共的嘴脸。还好，对这个巫婆愤恨不已的还大有人在。
 
-周三，商务部长吉娜·雷蒙多(Gina Raimondo)在白宫被问及她是否觉得应该出售抖音（TikTok），以及她对拜登在中共关税问题建议的“宽泛看法”。 雷蒙多回避说，“我不想谈论任何一家公司的细节”，“在我看来，从长远来看，要与中共竞争，我们在进攻上做什么比在防守上做什么更重要”。
+《门道专家》发文予以揭露，佩洛西说，在川普的领导下，我们的边境处境很糟糕，但乔·拜登挽救了局面，让我们走上了“边境的好路”。
 
-她称，“关于关税，关税是有一席之地的，你知道……（川普时代)对钢铁和铝征收关税，实际上帮助保住了美国钢铁和铝行业的就业机会。” 雷蒙多补充说，“我们必须创造公平的竞争环境。如果有公平的竞争环境，没有人能战胜美国工人。”
+全文如下：
 
-参考链接：
+这个女人疯了。
 
-[https://www.independent.co.uk/news/world/americas/us-politics/tiktok-china-biden-gina-raimondo-b1828086.html](https://www.independent.co.uk/news/world/americas/us-politics/tiktok-china-biden-gina-raimondo-b1828086.html)
+美国众议院议长佩洛西（Nancy Pelosi）周三表示，在川普总统任内，边境完全是一场灾难，但拜登（Joe Biden）通过开放边境政策挽救了这一切。
+
+佩洛西说：“事实是，在乔·拜登的领导下，我们在边境走上了一条好路，这是关于我们如何进行重组，因为在川普政府时期，我们的处境非常糟糕。”
+
+且看如下事实：
+
+目前，有17,000多名无人陪伴的未成年人在边境收容所被美国收留；未成年移民被以729％的容量塞进收容所里，许多人有虱子，水痘和中共病毒；1月和3月，边境巡逻人员在联邦调查局的恐怖主义监视名单上逮捕了至少两个也门人；墨西哥的贩毒和走私者对妇女和儿童进行了性侵犯，（人们）通过墨西哥进行了危险的穿越，以此说明了拜登开放边界的警情；走私者被记录在视频中，将学步儿童扔到新墨西哥州的边界墙上，使他们在荒漠中丧生……
+
+这就是佩洛西（Pelosi）所说：“边境的一条好路”。（原文完）
+
+无语！极左的民主党人士行事风格、作派与中共如出一辙，掩盖真相，封锁消息，歪曲事实，撒谎无度，鼓噪煽动……这样下去的话，美国真地要走向毁灭，若是没有文贵先生引领的新中国联邦及时提醒、告诫了美国，民主党左派（有意无意）真要扮演中共的附属角色，从而让美国走向灾难！
+
+原文链接：
+
+
+
+> [Pelosi Says We Were in a Bad Situation at the Border Under Trump, But Joe Biden Saved the Day and Put Us on a “Good Path at the Border” (VIDEO)](https://www.thegatewaypundit.com/2021/04/pelosi-says-bad-situation-border-trump-joe-biden-saved-day-put-us-good-path-border-video/)
+
+
 
 0

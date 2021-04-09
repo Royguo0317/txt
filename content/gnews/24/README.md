@@ -1,35 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《柳叶刀》：高达34％的新冠治愈者脑部出现问题
-` 温哥华加喜农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1066992/)
+## 【热点播报】三成新冠肺炎患者出现精神或脑部方面的后遗症
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1067432/)
 
-作者：推推党宣传部长
-![]()![](https://gnews.org/wp-content/uploads/2021/03/图片22.png)图片来源：网络
-4月4日闫丽梦博士转了一条Sellin 博士的推文：“解放军在研究通过新冠病毒影响脑、神经系统。陈薇少将和安静教授曾在第三军医大学进行过CCP生物战和病毒对脑的影响的研究”。无独有偶学术期刊《柳叶刀·精神病学》在 4月6日发布的一项新研究显示，高达三分之一的新冠治愈者脑部出现问题。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/58-3.png)
-这份报道称他们发现有高达 34% 的新冠患者在治愈后六个月内诊断出患有神经或心理疾病。
+纽约香草山写作组 MIYA
+![]()![](https://gnews.org/wp-content/uploads/2021/04/GNEW-GTV-MOS-LOGO-2-2-1-400x54-1.jpg)
+根据周二发表在《柳叶刀精神病学》的一份研究报告，发现三分之一的冠状病毒患者在诊断后6个月内出现精神或脑部疾病。
 
-这项初步规模最大的研究涉及了美国境内236000名新冠患者（分为未住院患者190 077例，住院患者46 302例）的健康记录。
+据纽约邮报（New York Post）4月6日报道，研究人员分析了236,379名COVID患者的健康记录，这些患者大多来自美国，发现34%的患者在6个月后被诊断出患有神经或精神疾病。研究显示，约有八分之一的患者，即12.8%是首次被诊断出此类疾病。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-4.png)
+这项研究表明，焦虑症占17％，抑郁或情绪失调占14％，是最常见的诊断结果。在那些接受过冠状病毒重症监护的患者中，有7％在六个月内中风。研究还发现，几乎有2％的人被诊断出患有痴呆症。与同期普通流感或其他呼吸道感染患者恢复后的对照组相比，新冠病毒确诊后出现这类疾病明显更为常见。
 
-在此研究中，研究者使用了电子健康档案来调查在记录有临床COVID-19感染后的6个月内幸存者的神经系统和精神病诊断的发生率。还对COVID-19的患者与被诊断为其他呼吸道感染和流感的人群精神评估结果进行了比较。
+这项研究发表在《柳叶刀精神病学》杂志上，共同领导这项工作的英国牛津大学精神病学家Max Taquet说道，这迫切需要进行更多研究，以确定相关机制。
 
-研究人员称，有将近（34％）的新冠治愈者在六个月内被诊断出患有精神疾病或心理上的疾病。其中包括焦虑症（焦虑症）大概占了17，情绪障碍（情绪障碍）占了百分之十四。精神错乱（Psychotic Disorder）达到百分之三。 。。研究还显示出COVID-19可能导致合并性中风的缺血性中风，这也是一种会影响大脑的疾病。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/57-1.png)
-（图表S2，根据性别，种族和年龄分别增加出COVID-19诊断后6个月神经疾病的病发率）
+研究人员还提出，这种流行病可能会带来一波精神和神经问题。另一位研究领导人牛津大学精神病学教授Paul Harrison指出，”虽然大多数疾病的个体风险很小，但对整个人群的影响可能是巨大的。”
 
-论文最后总结到，目前的数据表明在随后的新冠治患者被治愈6个月中，COVID-19和精神病学诊断有明显的关联。相关的配置服务和资源（神经和心理治疗）以应对这种预期需求.
+引用闫丽梦博士发表的第三份病毒来源报告内容，“……解放军发现并证明冠状病毒的骨架ZC45 / ZXC21可引起乳鼠的脑部感染。无论是否巧合，其与神经毒性相关的E蛋白被100％保存在新冠病毒中……”
 
-回到文章的开头，Sellin博士的推文指出解放军在研究中通过新冠状病毒影响脑、神经系统。而柳叶刀·精神病学最新研究显示新冠状病毒能够影响大脑、神经系统。这是不是意味着COVID- 19就是中共研究的生化武器呢？
+全球的冠状病毒患者在精神及脑部出现的后遗症已逐渐显现出来。除此之外，闫博士在第三份报告中还提出了一些病毒感染后出现凝血病、自身免疫性疾病、抗体依赖性增强（ADE）和长期携带等等方面的种种担忧。
 
-[https://www.thelancet.com/journals/lanpsy/article/PIIS2215-0366(21)00084-5/fulltext#sec1](https://www.thelancet.com/journals/lanpsy/article/PIIS2215-0366%2821%2900084-5/fulltext#sec1)
+中共制造的生物武器还有更多的未解之谜需要寻找答案。全世界已被中共卷入这场前所未有的生物战中，如果不尽快沿着生物武器的方向寻找疫情的真正根源，人类将遭受更大的生存危机。
 
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+参考链接：[A third of COVID survivors suffer mental or neurological problems, study reveals](https://nypost.com/2021/04/06/a-third-of-covid-survivors-suffer-mental-neurological-problems/?utm_medium=SocialFlow&amp;utm_source=NYPTwitter&amp;utm_campaign=SocialFlow)
 
-编辑/发布：比卡丘
+（本文仅代表作者个人观点）
 
-20210408
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
 
-0
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
++1

@@ -1,24 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 生物学家警告mRNA疫苗将缩短人类寿命造成不孕不育
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1067528/)
+## 黑客把脸书总裁小扎的电话挂到了互联网上
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1067694/)
 
-撰稿视频：光耀华夏
+撰稿：Jenny
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20210409_Task0_Cover.jpg)网络截图
+纽约邮报发表题为《马克·扎克伯格的手机号码在Facebook遭到大规模黑客攻击后被曝光》的文章。
 
-素材：Jenny
-视频来自网络
-近日，爱尔兰都柏林大学医学院生物学家，世界自由联盟组织（World Freedom Alliance）的发起人，多洛雷斯·卡希尔教授（Prof. Dolores Cahill），在网络上发布了一段视频谈mRNA（Messenger RNA，信使核糖核酸）疫苗的副作用。
+上周六（4月3日），一个低级别黑客论坛的用户在网上免费公布了超过5亿Facebook用户的电话号码和个人信息，使这些数据变得非常容易被访问。最令人震惊的是其中还包括脸书总裁马克·扎克伯格的手机号码。
 
-她认为当前的mRNA疫苗并不是人们想象中的安全有效，相反它将大大缩短人的寿命，引起“过敏反应，神经认知问题和炎症”，甚至造成“不孕不育”。注射mRNA疫苗将在未来几年对人类造成更大的伤害，对老年人更加致命。
+被曝光的数据来自106个国家的Facebook用户个人信息，其中美国3200多万条记录，英国1100万条记录，印度600万条记录。信息包括电话号码、Facebook ID、全名、地点、出生日期、个人简历以及部分电子邮件地址。
 
-（本文仅代表作者观点）
+黑客利用与Facebook帐户关联的电话号码相关的漏洞，该信息最初于1月份被盗，最终创建了一个庞大的私人数据库。而Facebook则认为该数据“很旧”。
 
-参考来源：
+黑客盗取信息的手段也是五花八门，通常通过一些在Facebook上比较流行的性格测试，星象预测之类的小游戏，甚至也有利用英国脱欧，美国大选之类的所做的问卷调查来盗取信息。
 
-1. [Dolores Cahill教授个人主页](https://people.ucd.ie/dolores.cahill)
-2. [Dolores Cahill谈mRNA疫苗潜在危害](https://gnews.org/zh-hans/883467/)
-3. [世界自由联盟组织](https://worldfreedomalliance.org/)
+脸书涉嫌出卖用户数据由来已久，前一段时间很多人选择停止使用Facebook，年轻人则纷纷“跳槽”到Instagrams 或 Tik Tok。
 
+众所周知，脸书和推特一样，在COVID-19疫情大流行、美国大选以及疫苗等问题上，进行“旗帜鲜明**”****、**有选择的舆论审查，普通民众已经无比厌恶他们的“极左**”**色彩，也让包括我本人在内的又一批人愤然关闭账号投身Telegram或其它社交媒体。
+
+当他们放弃了自媒体平台最宝贵的生存之本“言论自由**”**的那一天，也是他们走向衰败的起点。
+
+个人认为这次“骇客行为”，对小扎同学的教训颇有讽刺意味，有点玩鹰的被鹰啄了眼的味道。但同时我们也强烈谴责黑客泄密全球5亿多人的信息，这也再次提醒了我们要有保护个人信息安全的意识。
+
+（本文纯属个人观点）
+
+原文链接：[纽约邮报新闻报道](https://nypost.com/2021/04/03/mark-zuckerbergs-cellphone-number-goes-online-after-facebook-hack/)
+
+* * *
+
+*审核：cindy    编辑：光耀华夏*
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
 ![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2.jpg)
-0
++1

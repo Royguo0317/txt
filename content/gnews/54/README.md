@@ -1,39 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世界没有像样的政府&nbsp; 强推疫苗背后都是腐败
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1065973/)
+## 蓬佩奥成福克斯特约撰稿人
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1066534/)
 
-**简述：郭先生在2021年4月4日的盖特视频中感叹世界上没有几个好的政府，它们拼命给人民打疫苗，可疫苗背后藏着无数的腐败。他也评论说美国的万亿纾困法案是羊毛出在羊身上，最后还是要美国人埋单。**
+俄罗斯莫斯科喀秋莎农场 DongDong
 
-**世界没有像样的政府  强推疫苗背后都是腐败**
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/PM-3.jpg)mediamatters.org
+《福克斯新闻》（Fox News）首席执行官苏珊娜·斯科特(Suzanne Scott)周四宣布，前国务卿迈克·蓬佩奥(Mike Pompeo)已加入福克斯新闻媒体，成为一名特约撰稿人。
 
-**Few Governments Are Decent; Behind the Vaccines Are All Corruptions**
+“迈克·蓬佩奥是美国在外交政策和国家安全问题上最受认可和尊重的声音之一。我期待他在《福克斯新闻》媒体的一系列平台上做出贡献，与我们数百万观众分享他的独到见解。” 斯科特说。
 
-你看看这世界上哪有几个像样的政府啊，拼了命了让大家打疫苗，这个疫苗的背后就是腐败。买疫苗，买谁家疫苗，谁给打疫苗，收你多少钱？政府批多少钱，反正这些钱最后都是老百姓身上，没有一个政府生产一块钱财富，所有的财富都是人民创造的，所有的所谓的免费的，最后都是从你身上拿出来。
+蓬佩奥将在所有福克斯新闻媒体平台上提供评论分析，包括福克斯新闻频道和福克斯商业网。他定于周五在 “福克斯与朋友们”（Fox & Friends） 节目中首次亮相。
 
-Look at how few decent governments there are in this world? They are desperate to get everyone vaccinated. Behind the vaccines are all corruptions. Whose vaccines to purchase? Who get vaccinated? How much to charge them? How much should the government pay? Anyway, all this money in the end will be paid by the people because no government produces a dollar of wealth, all the wealth is created by the people. All the so-called free stuff will ultimately be paid out of your pocket.
+“福克斯与朋友们”是美国保守派每日早间新闻/谈话节目，美东早间 6:00 开播，于 1998 年 2 月 1 日首播。在保守派中享有很高收视率，以偏袒川普总统而闻名。
 
-就像头两天，一万多亿的美国所谓的每个人发1400块钱补助，马上加税，加税的人，这些人老板加税了，你以为老板能给你啥？老板会在你身上，老板自己家里也不产钱，地里也不长美元，也不长人民币，最后还得老百姓的劳动剥削出来的，最后不还是这些老百姓的钱吗？这基本的常识吗？
+“作为一名前外交官和国会议员，在福克斯新闻媒体的这个新角色中，我会以开诚布公、通俗易懂的语言向观众解释地缘政治、国际关系和美国优先的国策，上述国策勾勒出美国驶向空前经济繁荣和国家安全的航程。” 蓬佩奥坦言。
 
-Just like the American Rescue Plan of over a trillion dollars, which was passed a couple of days ago, giving $1,400 subsidy per person, will immediately entail increased tax. Those bosses will pay more tax. What do you think the bosses will do to you? The bosses will put that on you because your boss does not produce any money in his own home, and the field can’t grow dollars or RMB out of it either. In the end, money will come from exploiting the working people. Isn’t it the people’s money in the end? Is this basic common sense?
+蓬佩奥在 2018 年 4 月至 2021 年 1 月间担任国务卿，历届前华府官员卸任后加入有线电视新闻屡见不鲜，反之亦然。例如，MSNBC 的尼科尔·华莱士（Nicolle Wallace）曾在乔治·W·布什总统任期内担任白宫通讯主任，CNN 的吉姆·沙托（Jim Sciutto）和大卫·阿克塞尔罗（David Axelrod）曾在奥巴马政府任职。
 
-你以为哪个政府伟大地说，我给你补贴1万亿2万亿，最后羊毛一定长在羊身上，羊毛一定不会出在猪身上，也更不会出在中南坑那些老杂毛上身上，就这么简单，是吧？不论是哪国都是一样。所以说政府、政客，没有一个是好东西，所以这一辈子当啥也不能当政客，掺乎啥也不能掺乎政治，没好东西。
+这种循环在拜登政府期间仍在继续，国务卿安东尼·布林肯（Antony Blinken）和新闻秘书詹·普萨基（ Jen Psaki）都曾是 CNN 的分析师。
 
-You think your government is so great to give people subsidies of 1 to 2 trillions. Wool can only be from sheep (Chinese idiom, meaning “whatever you’re given, you pay for”), wool won’t be from the pigs, and it certainly won’t come from those old bastards in the Zhongnanhai Pit. Simple as that, right? All countries are the same. Therefore, neither governments nor politicians are good, so don’t be a politician in your life time and don’t get involved in politics because there’s nothing good out of it.
+蓬佩奥曾任中央情报局局长，在与朝鲜领导人金正恩的历史性谈判中发挥了重要作用。他的工作促成了美国在任总统与朝鲜的首次会晤，还帮助释放了三名被朝鲜拘留的美国人。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/6069f00bdbc8001854a571df](https://gtv.org/getter/6069f00bdbc8001854a571df) (4:01-5:18)
+这位福克斯新闻家族的新成员还在击毙伊朗高级将领卡西姆·苏莱曼尼（Qasem Soleimani）、以色列与几个阿拉伯国家关系正常化方面发挥了关键作用。
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/1050010/](https://gnews.org/zh-hans/1050010/)
+在加入川普政府之前，蓬佩奥曾在堪萨斯州众议院第四选区当选四届议员。从 2011 年开始任职，直到 2017 年加入川普政府。他曾担任众议院情报常设特别委员会成员，能源和商业委员会委员，以及众议院班加西问题特别委员会成员。
 
-* * *
+他以全班第一名的成绩毕业于美国西点军校，曾在冷战期间担任巡逻东西德边境的骑兵军官，并毕业于哈佛大学法学院。
 
-翻译：【rainbow】字幕：【Rock小哥】二校：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+参考链接
+
+[1] [Former Secretary of State Mike Pompeo joins Fox News as contributor – FOX NEWS – 2021/04/08](https://www.foxnews.com/media/former-secretary-of-state-mike-pompeo-joins-fox-news)
 
 0

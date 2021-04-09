@@ -1,59 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世界经济像泰坦尼克号一样即将撞向冰山&nbsp; 霍尔木兹海峡和苏伊士运河还会出事
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1066681/)
+## 中共离覆灭还有多远？
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1067750/)
 
-**简述：郭先生在****2021****年****4****月****4****日的盖特视频中，警告说全世界的经济将像泰坦尼克号一样撞向冰山；石油和黄金价格没有大的起伏，但不可能持续；中共一定还会在霍尔木兹海峡和苏伊士运河搞事；这中间只有新中国联邦在救人，一定要让这个船沉不下去。**
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210404-getter1.srt.txt)
-**世界经济像泰坦尼克号一样即将撞向冰山****  ****霍尔木兹海峡和苏伊士运河还会出事**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-08-at-1.58.30-PM-e1617919086849.jpeg)*天灭中共* 
+#### 作者：雨后彩虹 编辑：滴水穿石
 
-**The World Economy Is Hitting an Iceberg Like the Titanic; Something Will Happen Again at the Strait of Hormuz and Suez Canal**
+2021年4月6日，从路德社直播中得知重要信息，美国有一个类似**SIXTA**的组织正在全面解密中共病毒来源。**SIXTA**是二战期间的重要情报解密机构，对于缩短第二世界大战的时间和正义的胜利起到了至关重要的作用。现在美国宣布有相似**SIXTA**在第二次世界大战的组织机构，为下一步将要在全世界范围打击消灭中共及其联盟势力释放了重要信号。
 
-兄弟姐妹们长话短说。从昨天到现在，真的我有两个深刻的感受。我就感觉到世界的经济和世界的政治，甚至全世界人民，就像这个泰坦尼克号要撞向雪山一样。后来当时也有人说强大的激光术，干掉了泰坦尼克号。就是你就觉得那个泰坦尼克号撞向山的感觉，全世界的政治，经济和人民的安全。就这几天你能听到的就是，所谓的有身份的人、政治[届]的人、情报界的人，就说出了打疫苗的后遗症，吓死人了。
+自从2020年1月19日，闫丽梦博士通过路德社直播平台揭露中共病毒真相以来，已有一年有余，美国也一直调查各方疫情信息及搜集情报证据。就目前美国民主党与共和党两党合作已成定局，以及从主流媒体宣传报道看出，美国己经确定COVID-19就是中共发起的超限生物武器。
 
-From yesterday till today, I indeed had two profound feelings. I felt that the world economy and politics, and even the people of the world are just like the Titanic about to hit the iceberg (though later someone said that Titanic was taken down by laser ray). You just feel that the whole world’s politics, economy, and people’s safety are going to hit an iceberg like the Titanic did. Also the past few days I heard from the so-called men of class and people in the political and intelligence fields talk about the side-effects of the [CCP virus] vaccine. Very scary!
+中共几十年来一直执行对西方民主国家实行3F计划，美国在这次中共用超限战生物武器引爆的全球大瘟疫情导致其经济受到重创，超五十万人死亡。不但如此，美国一直被中共以继续投毒而威胁。美国两党已达成灭共的共识，第三次世界大战即超限战争早已经开始，中共为转移全球因其而导致全球大瘟疫的追讨视线，引爆东南亚的局部冲突与热战或即将开始……
 
-第二个就是世界的经济。你听到玩金融的，现在真的是瑟瑟发抖，在瑟瑟发抖的时候，眼神始终看着有没有机会弄块儿大的。贪婪啊，贪婪啊，都不想失去，都想趁此机会捞一把。你就觉得泰坦尼克号撞向山上去的感觉。
+美国已经做好了周密的打击中共计划，在去年美国总统大选期间，中共为了操纵选举，暴露了这些年蓝金黄的政治，司法，军队的官员，暴露了其他煽动Antifa暴乱美国的组织方式，暴露了金融股市资金流动利益链条，暴露了中共间谍的投毒活动，暴露了利用舆论媒体社交平台歪曲真相与打压言论自由等，中共的黑手无所不在，遍其全球。
 
-The second one is the world’s economy. You’ve heard that people in the financial sector are trembling now. While trembling, they also keep watching to see if there is any chance for them to make a big fortune from this. Greedy! No one wants to lose, everyone wants to catch a quick buck if there is a chance. This makes you develop the feeling of the Titanic about to hit the iceberg.
+这些都是为美国将来对中共的打击制胜提供了完善作战方案的机会，更重要的是，郭文贵先生发起的爆料革命正道主义运动，从2017年到现在，对挽救美国及世界起到了关键作用，瓦解中共内部各方势力，精准的情报又使得中共计划频频曝光…….
 
-另外就能感觉到中国共产党的疯狂，真的是，你就觉得魔鬼它一旦占到上风以后，那种狰狞的笑，“哈哈哈哈” 就是那种感觉，疯狂，就是灭亡前的疯狂。太多的这些现象没法形容。大家都知道泰坦尼克号…就那么多人，就那两三个人说出要撞山了，玩球蛋了，还有几个人的忧虑都发生了。
+中共在处于被动状态下实施战狼外交政策，目前己经被逼到了悬崖边。接下来美国只需缩小围剿中共的包围圈 ，展开的一系列灭共行动已然紧锣密鼓的开始，想必随后美国的趋势是：关闭中共国大使馆及各领事馆，驱逐外交人员，抓捕中共潜伏的间谍，还有在爆料革命正道主义运动队伍中混进农场里的中共国安灭爆小组成员，冻结中共上市大公司的资金，停止通航 ，打开防火墙等很多可用之策。
 
-On the other hand, you can feel the craziness of the CCP. Indeed, you can now feel the ferocious laugh from the demon when it occupies the high ground – madness and craziness before perishing. Too much stuff like this, which is hard to describe. You all know about the Titanic. But among so many people onboard, there were only two or three of them that spoke out that they were going to hit the iceberg and going to die, which was proved to have occurred.
+今天，郭先生盖特直播说中共即将被踢出世界金融系统，那将是给中共重重一击。对于习总加速师的底线思维来说，中共先发军事出击存在很大可能性，中共想鱼死网破，但对于捕鱼高手来说，鱼一定会被捕获而且网也不会破！
 
-现在我就觉得我们整个爆料革命，就像世界的泰坦尼克号一样，要出苏格兰到纽约去了，玩大的玩高级的，但是都为了那个奢华，所谓的贵族的体面，人类的虚伪和懦弱，不敢面对真相，一步又一步的错误，最后“咣叽”撞上了冰山。太可怕了！但这里面毕竟有英雄人物，也有脱险的人，那就是咱新中国联邦，就咱新中国联邦。就是我们在救人，最后我们离开了泰坦尼克号。
+让我们拭目以待，中共覆灭近在咫尺！
 
-Now I feel that our entire Whistleblower Movement (BM) is in the midst of this world which is exactly like the Titanic, leaving Scotland to New York, trying to play a big, high-end game, chasing for luxury and the so-called decentness of the nobility driven by the hypocrisy and cowardice of humanity, and lacking the courage to face the truth, making mistakes step by step, and finally hitting the iceberg. How frightening! Yet, after all, there are brave people who can escape,  which is our New Federal State of China (NFSC). It is our NFSC that is saving lives and, in the end, escaping the Titanic.
+2021年4月7日
 
-当然了这个也许有人顺手想拿点金子银子的，这事别想，开玩笑，爆料革命当中，有些人一定要意志坚定，我们是拯救这个大船的，我们不是等船沉了救人，一定要让这个船沉不下去。
+【参考来源】
 
-Of course, there might be people who want to get themselves some gold and silver [make personal profit] from this. Don’t even think about it. Kidding. In our WM, people must be determined. We are saving this big ship rather than waiting for the ship to sink and then saving people afterwards. We must make the ship unsinkable.
 
-大家看到黄金，黄金最近有大动静了吗？没有大动静，石油怎么样？有回落，有大起伏吗？没有。你觉得这样会下去吗？不可能。霍斯姆海峡、苏伊士运河，你觉得还会出事儿吗？还会出事儿。你打台湾是什么样？你想跑那跑得了吗？你跑不了。为什么现在数字货币、加密货币这么厉害？每个人都恐惧，知道这个世界正在撞向冰山。在撞向冰山前，有人还想拉小提琴，还想听听音乐，是吧？那你尽管，但最后一定葬身在水里面的是你，这就是今天世界政治经济的现状。
 
-Does anyone see any big fluctuations in gold price lately? Nothing big. How about the oil price? It goes down a little. Are there any big ups and downs? No. Do you think this will last long? Impossible. Do you think something will happen again at the Strait of Hormuz and Suez Canal? Yes, it will happen. What will it be like if you attack Taiwan? Do you think you can get away with it? No, you can’t. Why are digital currencies and cryptocurrencies so strong now? Everyone is in fear, knowing the world is about to hit an iceberg. Before hitting the iceberg, some people want to play violin and listen to music, right? Do what you want, but you will be the one buried deep in the water in the end. This is the current status of the world’s politics and economy.
+【免责声明】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。文章中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-兄弟姐妹们，一定要看得更清楚一点，看得更明白一点。现在到啥时候了？你看看听说华尔街看到那些朋友，每个人现在是自己大房子，现在赶快抵押贷款，而且是不赎回的，不赎回啥意思？我还不了钱，我就不赎回了，而且都不要个人的 Guarantee，都卖公司的，而且打大折。很多金融资产都往外卖，很多人都想跟我们换 GTV股份、G-Coin，门儿都没有，这就是现在的形势。
+欢迎战友加入旧金山金喜农场
 
-Brothers and sisters, please look through things more clearly. What a critical moment is it right now? Look at it. I heard from some friends in Wall Street that everyone is now hurried to mortgage their big houses without redemption rights. What does that mean? If I cannot pay back the mortgage, I will not redeem the house. Moreover, no one uses a personal guarantee, rather they sell to companies and give them big discounts. Many are selling their financial assets to exchange for GTV shares and G-Coins. No way. This is the current situation.
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
 
-兄弟姐妹们，一定这个时候要搂住。世界巨变前，当你搂不住的时候，一定是大灾大难伴随着你。拜托了，此时不要贪，此时不要有幻想，此时要有各种防范。兄弟姐妹们，珍惜你现在能听到七哥直播和盖特的机会，珍惜你现在拥有的自由，珍惜你拥有的健康。人类从来没像现在这样面临着一切的重大的改变和重大的挑战，当然了有智慧、有本事的人是机会。愿成为每个战友所有人的机会吧，谢谢了。
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
 
-Brothers and sisters, we must hold ourselves at this critical moment. Facing the world’s immense change, if you cannot hold yourself, great disasters will find you. Please, don’t be greedy at this moment, stop dreaming at this time. Please use pre-caution measures at this time. Brothers and sisters, please cherish the moment when you can still watch my broadcasts and Getter videos. Cherish the freedom that you are enjoying now. Cherish the healthiness you have. Humanity has never ever faced such a huge change and challenge like this before. Of course, it presents opportunities for people with wisdom and capabilities. I hope this can be an opportunity for every fellow fighter. Thank you!
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/6069cd0cdbc8001854a56773](https://gtv.org/getter/6069cd0cdbc8001854a56773) (00:17-1:47, 2:31-3:39, 5:55-6:40, 8:30-结束)
+[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
 
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1049756/](https://gnews.org/zh-hans/1049756/)
-
-* * *
-
-翻译：【7PawBear】字幕：【Rock小哥】二校：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+编辑：滴水穿石
 
 0
