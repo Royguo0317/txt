@@ -1,46 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共忽悠很卖力 百姓成为小白鼠！
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1069624/)
+## 卢比奥获川普总统背书
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1069746/)
 
-```
-新闻来源：《中国青年报》
-发布时间：2021年4月9日
-整理简评： Michael.Tonny
-```
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/r-6.jpg)uslibertynews.com
+一度有令人失望的表现，敦促川普总统接受败选的事实，为假牧师傅希秋喊冤的马可·鲁比奥（Marco Rubio），经过一段时间的反省，似乎加深了对邪恶中共的认知，近期的言论和表现充满了对邪共的谴责，对川普总统的支持，或许经过川普总统的考察，认为“此人可用”，卢比奥获得了川普总统的背书。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a222310c38749773235c24358d2ddd47.png-e1617983368654.jpeg)图片来源：环球网
+此消息由川普总统的长子小唐纳德·川普（Donald J. Trump Jr）发推证实【1】：我的朋友@马可鲁比奥，是为数不多的当选共和党人之一，他明白共和党需要成为中产阶级工人的政党，而不是企业利益的政党。
 
-2021年4月9日，对中共国年轻人毒害几十年的中共媒体《中国青年报》发文，《[标语又上新了！为了让大家尽早接种新冠疫苗，各地真的很拼](https://kd.youth.cn/a/rgEVBGLzLqpm5dW)》。这家中共喉舌是要造反了吗？全文列举种种事实，历数中共为了忽悠民众打它所谓CCP病毒疫苗，可谓极尽之能事，让笔者忍俊不已。下面，让我们来共同欣赏CCP为忽悠老百姓当小白鼠，表演千奇百怪的丑态吧！
+很荣幸能和我父亲一起支持他连任！
 
-首先是CCAV女优们上场了，声称到4月7日，全国已经累计打了1.5亿计疫苗。
+推文附上了川普总统的背书：
 
-上海街头横幅齐行动，“相信国家相信党，疫苗在身你最强”，“防疫道路千万条，接种疫苗第一条”。还开通快速通道，尤其对体弱的老人，更是扫码就能打，上门服务，所有街道都要实现15分钟全覆盖。
+马可·鲁比奥的背书
 
-北京、广东、山东等地还开展上门接种服务。疫苗“上门”，很贴心！
+我很荣幸地向美国参议员卢比奥表示我的完全支持，马可一直是佛罗里达州人民的不知疲倦的倡导者，为减税而战，支持我们的第二修正案，我们的军队和退伍军人，强大的国防，以及所有被遗忘的美国男女。马可和我一起改革退伍军人协会，帮助我们的小企业发展，在他的帮助下，我们实现了妇女、非裔美国人、西班牙裔美国人、亚裔美国人以及几乎所有美国人的最低失业率，我们与古巴和委内瑞拉社区密切合作，取得了巨大进展。他还裁定“川普总统与俄罗斯没有任何关系，因为他主持了参议院情报委员会关于假俄罗斯、假俄罗斯、假俄罗斯的骗局，马可永远不会让佛罗里达州或我们国家的伟大人民失望！
 
-山东，直接成立“湖上流动接种队”！善良的父老乡亲，这是送货到家，还是送病毒到你家，可得看好了！
+-总统唐纳德·川普
 
-贵州，“贵州健康码”，在哪打的、第几针了，一目了然！
+参考链接：
 
-浙江，人苗精准衔接，全流程电子化管理！
+【1】https://twitter.com/DonaldJTrumpJr/status/1380509961705381888
 
-看到这么多 “花式开打”，笔者不禁要问，难道太阳从西边出来了！？70多年了，CCP什么时候对百姓这么贴心过？这么周到的服务，恐怕只有“斗地主”、“大跃进操家”、“伙食团”、“计划生育”的年代才有吧！
+背书的文字整理：
 
-既然CCP疫苗如此走俏，何必每天宣传车，跑到农村大喊大叫；又何必要一栋楼一栋楼那么卖力的动员？
+Endorsement of Marco Rubio
 
-共惨党的贪官们，还有那些爱你党的粉红们，是你们表现共惨党员气节的时候了，希望你们都能抓住机会，全家人，连带二奶、小三、私生子，一人打它几针。如果这样，中国人民都会答应！
+It is my honor to give U.S. Senator Marco Rubio my Complete and Total Endorsement. Marco has been a tireless advocate for the people of Florida, fighting to cut taxes, supporting our Second Amendment, our Military and our Vets, a strong national defense, and all of the forgotten men and women of America. Marco worked with me to reform the VA and help our small businesses grow, and with his help, we achieved the lowest ever unemployment for women, African Americans, Hispanic Americans, Asian Americans, and almost all Americans Together, we worked closely with the Cuban and Venezuelan communities, and have made great progress. He also ruled that “President Trump was in no way involved with Russia, as he presided over the Senate Intelligence Committee on the FAKE Russia, Russia, Russia Hoax. Marco will never let the great people of Florida, or our Country, down！
 
-中国人民绝不当你CCP病毒的小白鼠！
-
-**新闻来源链接：**🔗[标语又上新了！为了让大家尽早接种新冠疫苗，各地真的很拼](https://kd.youth.cn/a/rgEVBGLzLqpm5dW)
-
-* * *
-
-***审核/校对：****Ting Guo*
-
-（免责声明：本文的简评只代表译者观点，跟GNEWS平台无关）
+– President Donald J. Trump
 
 0
