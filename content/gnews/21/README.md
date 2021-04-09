@@ -1,49 +1,72 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共驻澳大使利用澳媒宣讲“新疆好地方”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1067920/)
+## CBN采访章家敦和海军教官谈中共国违背伦理开发“超级战士”
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1067952/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+**美国CBN电视台在2021年4月6日，采访中国问题专家章家敦先生（Gordon Chang）和美国海军教授伦理学的教官乔治卢卡斯（Goerge Lucas）先生，分析中共国已经在研发经过生物强化的超级士兵。前国家情报局局长约翰·拉特克利夫（John Ratcliffe）称其为“不道德的医学实验”。章家敦先生说：“这令人感到毛骨悚然。没有道德标准，没有法律。” 新闻中说，美国进行的类似研究会有道德约束，也是基于士兵自愿的原则，而敌军则没有道德约束。**
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/A-10.jpg)perthnow.com.au
-今年 3 月份，美国和加拿大先后宣布中共国对维吾尔人实施种族灭绝，并与欧盟和英国采取了一次协调行动，对中共国官员作出有针对性的制裁。
+【编者评论】中共在对全世界释放的经基因改造的CCP病毒，在中东霍尔木兹海峡等地的所有行为已经充分证明了它的邪恶本质，完全无底线。加之它此前的HIV基因改造婴儿等完全无伦理道德的实验，使我们相信毋庸置疑，它的超级士兵研究一定是服务其邪恶的统治世界的目的，当然不能期待它能有任何道德的约束。美国和国际社会只有尽早认清其撒旦本质，放下私心杂念，某些势力停止跟中共勾兑，世界才有一线生机。
 
-澳大利亚和新西兰政府对新疆维吾尔族和其他穆斯林少数民族所遭受的“中共严重侵犯人权行为”表示“严重关切”，但尚未像美加一样，官宣中共国实施了种族灭绝。
 
-七国集团 G7（美国、加拿大、英国、法国、德国、意大利及日本）中目前只有日本对新疆问题仍保持沉默。到目前为止，日本对维吾尔人的命运只是表达了“严重关切”。
 
-日本多年来对中共小心翼翼，谨言慎行，令其与西方盟国在对待新疆问题上步调不一致。这一暧昧态度反过来增加了该当前政府对中共国采取强硬措施的压力。
+This is the U.S. army’s concept of the soldier of the future. This video makes it look like it’s just a better equipped soldier, but notice the words – neural engineering, that can mean a brain implant that connects a human to computers. The defense agency DARPA has been working on an advanced implant that would essentially put the human brain online. There could also be eye and ear implants and more circuitry under the skin to make the ultimate fighting machine. Americans are going to have to decide whether this is ethical because some in our military clearly want it.
 
-澳洲虽全力抵抗中共的入侵，但中共通过刁难澳洲产品进入其庞大的国内市场，使得舆论和民众将贸易制裁的责任推到了澳洲政府的身上，压制了澳当局批评中共的声调。
+这就是美军对未来士兵的概念。这段视频让人觉得这只是一个装备较好的士兵。但请注意这几个字——神经工程，这可能意味着一个可连接人体和计算机的大脑植入物。国防机构DARPA一直在研究一种先进的植入物，基本上可以将人类的大脑联入网络。还有可能是眼睛和耳朵的植入物，以及将更多电路埋植在皮肤下，造就终极战斗机器。美国人将不得不决定 这样做这是否合乎道德，因为显然我们军方的一些人想这么做。
 
-随着全球对中共病毒真相的追责，以及维族人权问题的关注，中共不允许再多有一个国家的议会表决通过认定中共国犯下了种族灭绝罪。美国和加拿大官宣指定，是木已成舟之事，中共清楚不论如何勾兑和游说政客，在这两个国家撤销种族灭绝罪的指控，几无可能。但若像澳洲、新西兰和日本这种国家也官宣指控种族灭绝罪的话，将会对其他态度摇摆不定的国家的政治生态产生影响，亚洲、美洲、欧盟就极有可能就新疆问题对中共形成高压合围之势。
+The super soldiers of the future could simply have enhanced abilities or they could be part man part machine, what are known as cyborgs.
 
-值此时刻，中共驻澳大使成竞业于周三（4月 7 日）在其堪培拉的官邸面对澳洲媒体召开一场为新疆问题辩解的宣讲会。成敬业表示，此次新闻发布会旨在“帮助澳大利亚记者了解新疆的真实情况”。
+未来的超级士兵有可能仅仅是获得能力的增强，或者也有可能成为半人半机器即所谓的生化电子人。
 
-成竞业首先发表演讲，他将新疆的侵犯人权行为称为“假新闻”，他警告澳政府不要考虑对他的国家采用“马格尼茨基式”法律，制裁侵犯人权者。这应当是此次宣讲会的唯一目的，中共会动用任何手段和方法，绝不允许澳洲官宣指控中共犯下了种族灭绝罪。
+China is already developing biologically enhanced super soldiers using what former director of national intelligence John Ratcliffe called unethical medical experiments.
 
-紧接着，他语气强硬的施加压力，“任何人，任何国家，都不要幻想中（共）国会对干涉或干预中（共）国内政，试图给中（共）国施加所谓压力而忍气吞声，”他说： “我们不会挑衅，但是如果我们被挑衅，我们将以牙还牙。”
+中[共]国已经在研发生物强化的超级士兵。引用前国家情报局局长约翰·拉特克利夫（John Ratcliffe）的话，称其为不道德的医学实验。
 
-随后，在宣讲会上播放了一部长达 6 分钟的官宣影片《新疆是个好地方》，以维族人口述的形式介绍了新疆，对该地区人权问题进行了辩解，包括强制绝育、集中营和强迫劳动。
+**Gordon Chang**: “This is a big effort on the part of the [Communist] Chinese government and it is really horrifying.”
 
-宣讲会视频中还包含一位维族女性表示，她自愿放了宫内节育器（IUD）；另一位维族女性则强调，她在接受了“再教育营”的“培训”后，对自己的生活更加满意。
+**章家敦：**“这是中[共]国政府正努力致力于的，而这真的很可怕。”
 
-视频之后，与会新疆官员和准予参会人士纷纷发表讲话。
+China expert Gordon Chang says it’s part of a Chinese government plan to create a master race through genetic editing.
 
-这些讲话重复了在经过一段时间的恐怖袭击后，新疆重回经济繁荣、宗教和谐的说法。所要传递的信息是，中共国在打击恐怖主义的同时，维护了新疆的“民族和谐”。
+中共国问题专家章家敦说，这是中国政府计划的一部分。通过基因编辑来创造一个有主宰力的种族。
 
-新疆副省长艾尔金-吐尼亚孜通过翻译说，外国别有用心的人对过着美好生活的人们视而不见。 他再次否认关于集中营、强迫劳动、宗教皈依和绝育的指控。
+**Gordon Chang**: “They’re trying to create a race which is far more intelligent than the rest of humanity. And with super soldiers, they’d be stronger, less susceptible to pain – just better soldiers. This is eugenics. This is creepy. There are no ethical standards. There are no laws.”
 
-在此次宣讲发布会之前，澳大利亚总理斯科特-莫里森（Scott Morrison）表示，澳大利亚希望与中共国发展“积极关系”，但这要“与澳大利亚一贯按照其价值观和国民性行事相一致。我们永远不会仅为了一种关系而妥协这些（民主价值观）。”
+**章家敦：**“他们试图创造一个种族，比其他人类要聪明得多。这样的超级士兵，他们更强壮，更少有痛感——是更好的士兵。这是优生学。这令人感到毛骨悚然。没有道德标准，没有法律。”
 
-据报道，澳大利亚是继英国、马来西亚和瑞士之后，中共第四个举办该宣讲会的国家。
+Now the French military has been given the go-ahead to also create so-called augmented soldiers. The super soldiers of the future will run fast, need little sleep and little to eat or drink. And they’ll be able to fight much longer than ordinary humans. But, should we do it? George Lucas, who has taught military ethics to America’s naval officers says: “Ethical concerns lag behind this new technology.”
 
-参考链接:
+现在，法国军方已经得到了批准，来创造这种所谓的增强型士兵。未来的超级士兵会跑得很快。需要很少的睡眠和很少的吃喝。而且他们将能比普通人战斗的时间长很多。但是，我们应该这样做吗？曾向美国海军军官传授军事伦理的乔治·卢卡斯说：“伦理问题方面的顾虑落后于新技术的发展。”
 
-[1] [Chinese ambassador trots out members of persecuted Muslim minority to say they aren’t mistreated at a bizarre press conference followed by a six-minute ’Xinjiang is a Wonderful Land’ propaganda video – DAILY MAIL – 2021/04/07](https://www.dailymail.co.uk/news/article-9444163/Chinese-ambassador-Australia-denies-human-rights-abuses-Xinjiang-bizarre-presentation.html)
+**George Lucas: **“It always does and the only question is how far.”
 
-[2] [中共国驻澳大使邀记者为新疆“辟谣” 维族人愤怒回应 – 澳大利亚广播公司(ABC.au) – 2021/04/08](https://www.abc.net.au/chinese/2021-04-08/uyghur-leaders-call-china-atrocities-genocide-xinjiang/100053530)
+**乔治卢卡斯：**“一如既往地落后，现在的问题是到底有多落后。”
 
-0
+And Lucas is concerned that future military recruits could be pressured to accept computer parts into their bodies. He believes they should be allowed to refuse them.
+
+而卢卡斯担心未来的新兵，可能会受到压力，要接受电脑部件植入他们体内。他认为应该允许人们拒绝这些要求。
+
+**George Lucas: **“The further into these, the more exotic technologies we go, and the more the risks are not known, the more we must at least rely on volunteerism if not as much informed consent as is possible.”
+
+**乔治卢卡斯**：“越是深入研究，我们的技术发展得越是奇葩，越多未知的风险。就越要依据志愿的原则，如果没有足够多的知情权的话。”
+
+But the challenge for the United States is even if we put ethical limits on the super soldier of the future, it’s likely some of our adversaries will not.
+
+但美国面临的挑战是即使我们对未来的超级战士进行道德约束，很可能我们的敌人不会这么做。
+
+*Dale Hurd CBN News*
+
+戴尔·赫德 CBN新闻台
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+
+* * *
+
+听写&翻译：【一花一世界】新闻撰写&编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
++1
