@@ -1,73 +1,72 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 武汉病毒研究所基于蝙蝠冠状病毒的资助未经过审查
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1067839/)
+## CBN采访章家敦和海军教官谈中共国违背伦理开发“超级战士”
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1067952/)
 
-翻译： 康州盘古农场 — Layka
-校对：康州盘古农场 — Freeearth
-编辑：康州盘古农场 —蓝精灵
+**美国CBN电视台在2021年4月6日，采访中国问题专家章家敦先生（Gordon Chang）和美国海军教授伦理学的教官乔治卢卡斯（Goerge Lucas）先生，分析中共国已经在研发经过生物强化的超级士兵。前国家情报局局长约翰·拉特克利夫（John Ratcliffe）称其为“不道德的医学实验”。章家敦先生说：“这令人感到毛骨悚然。没有道德标准，没有法律。” 新闻中说，美国进行的类似研究会有道德约束，也是基于士兵自愿的原则，而敌军则没有道德约束。**
 
-据《每日信号》安德鲁·克尔(Andrew Kerr) 2021年4月5日报道
-
-2月3日，当世界卫生组织（WHO）的一个小组在中共国武汉市武汉病毒学研究所对中共冠状病毒的起源进行调查时,保安人员在该院外面守卫。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/BB162426-0F41-40B3-9ACF-4DB0F9F1B7C4.jpeg)照片：赫克托·雷塔姆(Hector Retama)/法新社/盖蒂图片社(Getty Images)
-为了审查可能会增加高度危险病原体的研究而成立的监委会，没有审查美国国立卫生研究院(NIH)的拨款。该拨款资助了中共国武汉的一个实验室，用于蝙蝠的冠状病毒进行基因修改。专家说，美国国立卫生研究院的拨款资助了科学家所描述的“进行功能增强研究”。这是一个危险的研究领域。在这种情况下，制造出了更具传染性的类似SARS样的病毒。因为引起科学界广泛的质疑, 联邦政府在2014年暂停了对功能增强研究的联邦资助，以防“功能增强病毒”可能泄漏到人群中。
-
-在美国卫生与公共服务部内部建立了“潜在的大流行病病原体控制和监督”框架后，联邦政府于2017年底恢复了对“功能增强性研究”的资助。审查委员会的任务是进行严格评估,涉及加强危险病原体的（例如冠状病毒）的款项是否值得承担这些风险，以及是否已采取适当的保障措施。
-
-美国国立卫生研究院一个发言人告诉《每日来电者新闻基金会》，美国国立卫生研究院（NIH）向非营利组织“生态健康联盟（EcoHealth Alliance）”提供了赠款，资助了用于研究中共国蝙蝠冠状病毒，并且未交给潜在的大流行病原体控制和监督审核委员会。这意味着**该研究获得了联邦资助，而没有经过美国卫生与公共服务部****(HHS)****董事会的****独立审查**。
-
-罗格斯大学化学生物学教授理查德·H·埃布赖特（Richard H. Ebright）对《每日来电者新闻基金会》（Daily Caller News Foundation）说：“这是一个系统性问题。”他指的是审查框架中的漏洞。埃布赖特说，国家过敏和传染病研究所所长办公室（资助生态健康的分支机构）和美国国立卫生研究院“系统地破坏了，实际上是系统地废除了潜在的大流行病菌控制和监督框架”，拒绝审核，并拒绝转发建议以供审核。
-
-安东尼·福奇（Anthony Fauci）博士领导美国过敏和传染病研究所，弗朗西斯·科林斯（Francis S. Collins）博士领导国立卫生研究院。美国国立卫生研究院（NIH）的发言人说，其下属机构没有将生态健康补助金标记需要由卫生与健康调查委员会(HHS)独立审查。发言人告诉每日来电者新闻基金会，“在仔细审查了赠款之后，NIAID [美国过敏和传染病研究所]认定该赠款研究，不是用于功能增强研究，因为它不涉及所研究病毒的致病性或增强传播性.”发言人指出：“我们不会提交不符合定义的研究提案，否则我们将需要提交所有内容。”
-
-**如何绕过联邦监督**
-
-武汉病毒研究所是人们普遍猜测的中心。中共病毒有可能是意外地从实验室泄漏到人群中。生态健康（EcoHealth)给在中共国研究蝙蝠冠状病毒项目提供了赠款，其中包括向该机构转移了60万美元。
-
-如果生态健康的补助金已经受到了潜在的大流行病原体控制和监督审查，那么美国卫生与公共服务部的专家组将会独立评估该补助金。如有需要，美国卫生与公共服务部专家组会建议采取其他生物遏制措施，以防止潜在的实验室泄漏 ， 或者建议完全拒绝拨款。
-
-武汉病毒学研究所是生物安全4级实验室，有最高级别的生物遏制认证，但是美国大使馆官员在2018年访问后，发布了两条外交电报，警告称实验室的安全性不足。据《华盛顿邮报》报道，其中一条电报警告说，**实验室研究蝙蝠型冠状病毒的工作，可能引发新的类似于****SARS****的大流行。**上周二发布的世界卫生组织中共病毒起源报告的附件，描述了**武汉病毒研究所在涉及蝙蝠冠状病毒的测试中使用****“****重组病毒****”**的工作。罗格（Rutgers）的埃布赖特（Ebright）说，这是对**功能增强研究**的描述。
-
-据《纽约时报》报道，在实验室工作人员被疾病控制与预防中心意外暴露于炭疽病之后，2011年引起广泛的科学抗议，美国政府于2014年暂停了对“功能增强性研究”的资助。当时据透露，威斯康星州和荷兰的实验室正在专注于改造H5N1禽流感病毒，以便它可以更有效地在雪貂之间传染。
-
-实施新的监督程序后，2017年恢复了联邦资助的功能增强研究。审查框架将监督职责分为两组 ：资助机构在获得美国国立卫生研究院资助的情况下，由美国过敏和传染病研究所负责资助; 和由美国卫生与公共服务部召集的一个跨学科小组,潜在的大流行病原体控制与监督审核委员会。
-
-美国卫生与公共服务部发言人告诉每日来电者新闻基金会，审核委员会负责建议涉及功能增强的研究补助金是否需要包括任何其他降低风险的措施。 但是，委员会在获得任何赠款之前都一无所知，直到资助机构举报一项供其审查为止。
-
-所谓的P3CO框架并不需要美国卫生与公共服务部审查委员会对美国国家过敏和传染病研究所的决定进行第二次审查，因为其审查认为，生态健康赠款不涉及功能获得研究。美国国立卫生研究院发言人表示，建议国家过敏和传染病研究所将其决定,通知美国健康与安全检查委员会,将是“误导和不正确的”。
-
-美国国立卫生研究院发言人证实，该部门的P3CO审查委员会仅审查那些被美国过敏和传染病研究所等资助机构标记为需要进一步审查的研究补助金。当被问及审查委员会是否了解生态健康赠款时，发言人没有回答。
-
-该组织的总裁彼得·达萨克（Peter Daszak）在2019年12月在武汉首次报道COVID-19病例数周前在新加坡进行的播客采访中说了很多话。**生态健康已有操纵蝙蝠型冠状病毒的历史。**
-
-达扎克说，“您可以在实验室中很容易地操作它们。” **刺突蛋白驱动****了冠状病毒的发生人畜共患病风险。**这样你就可以得到序列， 你可以建立蛋白质 ，并且我们与【北卡罗莱纳大学】的拉尔夫·巴里奇（Ralph Baric）合作 ，插入另一种病毒的主干，并在实验室中做一些工作。”
-
-罗格斯（Rutgers）的埃布赖特（Ebright）对《每日来电者新闻基金会》（The Daily Caller News Foundation）表示，国家过敏与传染病研究所（National Institute of Allergy and Infectious Diseases）确定,生态健康补助金不涉及”提高中共国蝙蝠型冠状病毒的可传播性”是错误的。他说，该项目是2019财政年度的摘要，提到了冠状病毒的“体外和体内感染实验”，“明确要求需要在美国国立卫生研究院 P3CO框架下进行风险收益审查。”其他科学家表示，生态健康在国立卫生研究院（NIH）资助下，在中共国开展的工作涉及蝙蝠型冠状病毒的功能增强研究。“很难过分强调，该赠款的中心逻辑,是通过基因工程或传代或两者同时,使具有大流行潜力的蝙蝠冠状病毒,来检验与SARS相关的蝙蝠冠状病毒的大流行潜力。” 乔纳森·拉瑟姆（Jonathan Latham）博士和艾莉森·威尔逊（Allison Wilson）博士于6月写道。
-
-国立卫生研究院于2020年4月终止了对生态健康的赠款。国立卫生研究院院外研究副主任迈克尔·劳尔（Michael Lauer）在一封信中告诉研究组，该机构“不相信当前的项目成果与计划目标和机构优先事项相符。”福奇（Fauci）在6月的众议院能源和商业委员会（House Energy and Commerce Committee）举行的听证会上说，“取消健康保险”拨款是“因为要求国立卫生研究院（NIH）取消该拨款。”福奇说，“我不知道原因，但有人告诉我们要取消它。”福奇在听证会后告诉政治Politico，川普白宫命令国立卫生研究院取消拨款。
-
-**政府监督出现问题**
-
-美国卫生与公共服务部 P3CO审核委员会的唯一已知成员，是主席克里斯·哈塞尔（Chris Hassell), 防备与响应助理秘书美国卫生与公共服务部办公室的高级科学顾问。哈塞尔（Hassell）在国家生物安全科学顾问委员会（National Science Advisory Board for Biosecurity）的2020年1月演讲中透露了他的参与。
-
-哈塞尔在会谈中表示，目前对潜在大流行病原体的定义“非常狭窄……这导致只得到了一些与流感有关的建议”，以供P3CO委员会审核。哈塞尔说：“我可能会坦率地说，我认为这太狭窄了。”他随后建议政府可以资助其委员会未曾审查过的功能增强研究。哈塞尔说：“我认为可以重新审视，而且可能还会有一些定义问题。”
-
-2014年，暂停获得功能增强资金时，中止了21个研究项目。 但据《纽约时报》报道，美国国立卫生研究院为其中的10个创建了例外。在2017年继续提供资金之后，根据P3CO框架仅批准了两个项目。 据美国国立卫生研究院称，**这两个项目都与流感病毒有关**。目前尚不清楚该框架下已审查了多少研究资助金。美国国立卫生研究院的发言人说，该机构不会发表评论或讨论未获得资助的拨款申请。目前还不清楚谁还担任美国国立卫生研究院审核委员会的成员。 哈塞尔在2020年1月表示，该委员会仅由联邦雇员组成，但**表示公布姓名不利于他们的工作**。
-
-哈瑟尔说：“尽最大可能公开个人名称，这已被建议，如果这会使愿意在该委员会任职的人感到不寒而栗，那将是有害的。”美国国立卫生研究院发言人说，哈瑟尔无法置评。
-
-埃莉诺·巴托（Eleanor Bartow）为本报告做出了贡献。
-
-原文链接：https://www.dailysignal.com/2021/04/05/us-grant-to-wuhan-lab-on-bat-based-coronaviruses-didnt-get-review-nih-says/
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+【编者评论】中共在对全世界释放的经基因改造的CCP病毒，在中东霍尔木兹海峡等地的所有行为已经充分证明了它的邪恶本质，完全无底线。加之它此前的HIV基因改造婴儿等完全无伦理道德的实验，使我们相信毋庸置疑，它的超级士兵研究一定是服务其邪恶的统治世界的目的，当然不能期待它能有任何道德的约束。美国和国际社会只有尽早认清其撒旦本质，放下私心杂念，某些势力停止跟中共勾兑，世界才有一线生机。
 
 
 
+This is the U.S. army’s concept of the soldier of the future. This video makes it look like it’s just a better equipped soldier, but notice the words – neural engineering, that can mean a brain implant that connects a human to computers. The defense agency DARPA has been working on an advanced implant that would essentially put the human brain online. There could also be eye and ear implants and more circuitry under the skin to make the ultimate fighting machine. Americans are going to have to decide whether this is ethical because some in our military clearly want it.
 
+这就是美军对未来士兵的概念。这段视频让人觉得这只是一个装备较好的士兵。但请注意这几个字——神经工程，这可能意味着一个可连接人体和计算机的大脑植入物。国防机构DARPA一直在研究一种先进的植入物，基本上可以将人类的大脑联入网络。还有可能是眼睛和耳朵的植入物，以及将更多电路埋植在皮肤下，造就终极战斗机器。美国人将不得不决定 这样做这是否合乎道德，因为显然我们军方的一些人想这么做。
 
-0
+The super soldiers of the future could simply have enhanced abilities or they could be part man part machine, what are known as cyborgs.
+
+未来的超级士兵有可能仅仅是获得能力的增强，或者也有可能成为半人半机器即所谓的生化电子人。
+
+China is already developing biologically enhanced super soldiers using what former director of national intelligence John Ratcliffe called unethical medical experiments.
+
+中[共]国已经在研发生物强化的超级士兵。引用前国家情报局局长约翰·拉特克利夫（John Ratcliffe）的话，称其为不道德的医学实验。
+
+**Gordon Chang**: “This is a big effort on the part of the [Communist] Chinese government and it is really horrifying.”
+
+**章家敦：**“这是中[共]国政府正努力致力于的，而这真的很可怕。”
+
+China expert Gordon Chang says it’s part of a Chinese government plan to create a master race through genetic editing.
+
+中共国问题专家章家敦说，这是中国政府计划的一部分。通过基因编辑来创造一个有主宰力的种族。
+
+**Gordon Chang**: “They’re trying to create a race which is far more intelligent than the rest of humanity. And with super soldiers, they’d be stronger, less susceptible to pain – just better soldiers. This is eugenics. This is creepy. There are no ethical standards. There are no laws.”
+
+**章家敦：**“他们试图创造一个种族，比其他人类要聪明得多。这样的超级士兵，他们更强壮，更少有痛感——是更好的士兵。这是优生学。这令人感到毛骨悚然。没有道德标准，没有法律。”
+
+Now the French military has been given the go-ahead to also create so-called augmented soldiers. The super soldiers of the future will run fast, need little sleep and little to eat or drink. And they’ll be able to fight much longer than ordinary humans. But, should we do it? George Lucas, who has taught military ethics to America’s naval officers says: “Ethical concerns lag behind this new technology.”
+
+现在，法国军方已经得到了批准，来创造这种所谓的增强型士兵。未来的超级士兵会跑得很快。需要很少的睡眠和很少的吃喝。而且他们将能比普通人战斗的时间长很多。但是，我们应该这样做吗？曾向美国海军军官传授军事伦理的乔治·卢卡斯说：“伦理问题方面的顾虑落后于新技术的发展。”
+
+**George Lucas: **“It always does and the only question is how far.”
+
+**乔治卢卡斯：**“一如既往地落后，现在的问题是到底有多落后。”
+
+And Lucas is concerned that future military recruits could be pressured to accept computer parts into their bodies. He believes they should be allowed to refuse them.
+
+而卢卡斯担心未来的新兵，可能会受到压力，要接受电脑部件植入他们体内。他认为应该允许人们拒绝这些要求。
+
+**George Lucas: **“The further into these, the more exotic technologies we go, and the more the risks are not known, the more we must at least rely on volunteerism if not as much informed consent as is possible.”
+
+**乔治卢卡斯**：“越是深入研究，我们的技术发展得越是奇葩，越多未知的风险。就越要依据志愿的原则，如果没有足够多的知情权的话。”
+
+But the challenge for the United States is even if we put ethical limits on the super soldier of the future, it’s likely some of our adversaries will not.
+
+但美国面临的挑战是即使我们对未来的超级战士进行道德约束，很可能我们的敌人不会这么做。
+
+*Dale Hurd CBN News*
+
+戴尔·赫德 CBN新闻台
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+
+* * *
+
+听写&翻译：【一花一世界】新闻撰写&编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
++1
