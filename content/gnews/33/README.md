@@ -1,39 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世界没有像样的政府&nbsp; 强推疫苗背后都是腐败
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1065973/)
+## 调查发现中共病毒疫苗与脑部血块之间的“清晰”联系
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1066407/)
 
-**简述：郭先生在2021年4月4日的盖特视频中感叹世界上没有几个好的政府，它们拼命给人民打疫苗，可疫苗背后藏着无数的腐败。他也评论说美国的万亿纾困法案是羊毛出在羊身上，最后还是要美国人埋单。**
+- 翻译：Jenny Bull
 
-**世界没有像样的政府  强推疫苗背后都是腐败**
 
-**Few Governments Are Decent; Behind the Vaccines Are All Corruptions**
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-你看看这世界上哪有几个像样的政府啊，拼了命了让大家打疫苗，这个疫苗的背后就是腐败。买疫苗，买谁家疫苗，谁给打疫苗，收你多少钱？政府批多少钱，反正这些钱最后都是老百姓身上，没有一个政府生产一块钱财富，所有的财富都是人民创造的，所有的所谓的免费的，最后都是从你身上拿出来。
+**西班牙2021年4月8日电/西喜社——**
 
-Look at how few decent governments there are in this world? They are desperate to get everyone vaccinated. Behind the vaccines are all corruptions. Whose vaccines to purchase? Who get vaccinated? How much to charge them? How much should the government pay? Anyway, all this money in the end will be paid by the people because no government produces a dollar of wealth, all the wealth is created by the people. All the so-called free stuff will ultimately be paid out of your pocket.
+据《西部日报》4月6日报道，欧洲药品管理局(EMA)的一位高级官员说，已经发现了阿斯利康的中共病毒疫苗与大脑中罕见的血凝块之间的联系，但官员们尚未查明可能的原因。
 
-就像头两天，一万多亿的美国所谓的每个人发1400块钱补助，马上加税，加税的人，这些人老板加税了，你以为老板能给你啥？老板会在你身上，老板自己家里也不产钱，地里也不长美元，也不长人民币，最后还得老百姓的劳动剥削出来的，最后不还是这些老百姓的钱吗？这基本的常识吗？
+“据我所知，我们现在可以这样说，很明显，这种疫苗与（脑血凝块）有关。”路透社报道，欧洲药品管理局(EMA)疫苗评估小组主席马里奥·卡瓦列里（Mario Cavaleri）说。
 
-Just like the American Rescue Plan of over a trillion dollars, which was passed a couple of days ago, giving $1,400 subsidy per person, will immediately entail increased tax. Those bosses will pay more tax. What do you think the bosses will do to you? The bosses will put that on you because your boss does not produce any money in his own home, and the field can’t grow dollars or RMB out of it either. In the end, money will come from exploiting the working people. Isn’t it the people’s money in the end? Is this basic common sense?
+“但是，我们仍然不知道是什么原因导致了这种反应。”
 
-你以为哪个政府伟大地说，我给你补贴1万亿2万亿，最后羊毛一定长在羊身上，羊毛一定不会出在猪身上，也更不会出在中南坑那些老杂毛上身上，就这么简单，是吧？不论是哪国都是一样。所以说政府、政客，没有一个是好东西，所以这一辈子当啥也不能当政客，掺乎啥也不能掺乎政治，没好东西。
+欧洲药品管理局(EMA)在一份声明中澄清说，疫苗审查正在进行中，该机构希望在本周宣布其发现。
 
-You think your government is so great to give people subsidies of 1 to 2 trillions. Wool can only be from sheep (Chinese idiom, meaning “whatever you’re given, you pay for”), wool won’t be from the pigs, and it certainly won’t come from those old bastards in the Zhongnanhai Pit. Simple as that, right? All countries are the same. Therefore, neither governments nor politicians are good, so don’t be a politician in your life time and don’t get involved in politics because there’s nothing good out of it.
+声明说：“目前，对于这些非常罕见的事件，审查尚未发现任何特定的危险因素，例如年龄，性别或先前的凝血障碍病史。”
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/6069f00bdbc8001854a571df](https://gtv.org/getter/6069f00bdbc8001854a571df) (4:01-5:18)
+“与疫苗的因果关系尚未得到证实，但是是可能的，并且进一步的分析仍在继续。”
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/1050010/](https://gnews.org/zh-hans/1050010/)
+该调查正在研究44篇关于大脑中罕见的血栓的报道，这种血栓被称为脑静脉窦血栓形成(CVST)。据路透社报道，欧洲经济区有920万人接种了该疫苗。
 
-* * *
+该机构和世界卫生组织坚持认为，阿斯利康疫苗的收益大于风险。
 
-翻译：【rainbow】字幕：【Rock小哥】二校：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+但是，随着调查的继续，法国，德国和荷兰已经暂停了疫苗的使用。
+
+据美国有线电视新闻网报道，荷兰医疗当局报告说，它在25至65岁的女性中发现了血凝块。
+
+德国报告说，在其发展为脑静脉窦血栓形成(CVST)的31例患者中有9例死亡，其中20至63岁之间的女性中发现了29例。
+
+挪威报告说，在接种疫苗后，有3人死亡，其中有血液凝块和出血。
+
+该机构在一份声明中说：“挪威药品管理局认为可能与这种疫苗存在联系，但是我们需要更多的研究来弄清楚到底是什么引起了这个(情况)。”
+
+据路透社报道，欧洲研究人员提出了一种由疫苗引发的异常抗体或可能与避孕药联系的想法。
+
+欧洲药品管理局(EMA)人用药品委员会成员阿曼多·热纳扎尼（Armando Genazzani）表示，血块与阿斯利康疫苗相关联是“合理的”。
+
+该特定疫苗基于牛津大学开发的改良黑猩猩腺病毒载体。
+
+编辑：Victor Torres；校对: 阿伯塔；组稿：神奇四侠；发稿：信心的选择
+
+**新闻来源：**[《西部日报》](https://www.westernjournal.com/investigation-finds-clear-link-covid-vaccine-blood-clots-brain/)
 
 0

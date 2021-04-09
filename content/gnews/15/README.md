@@ -1,59 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世界经济像泰坦尼克号一样即将撞向冰山&nbsp; 霍尔木兹海峡和苏伊士运河还会出事
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1066681/)
+## 【香港专题】 港版文革2.0（三）香港主流媒体「染红」自我审查 严重实为政府喉舌
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1066755/)
 
-**简述：郭先生在****2021****年****4****月****4****日的盖特视频中，警告说全世界的经济将像泰坦尼克号一样撞向冰山；石油和黄金价格没有大的起伏，但不可能持续；中共一定还会在霍尔木兹海峡和苏伊士运河搞事；这中间只有新中国联邦在救人，一定要让这个船沉不下去。**
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210404-getter1.srt.txt)
-**世界经济像泰坦尼克号一样即将撞向冰山****  ****霍尔木兹海峡和苏伊士运河还会出事**
+搜集\编撰：西西 \ 封面合成 ：文粤
 
-**The World Economy Is Hitting an Iceberg Like the Titanic; Something Will Happen Again at the Strait of Hormuz and Suez Canal**
+**「港版文革2.0」算得上是新名词，但「红色资本」在香港的影响早已不只在投地、收购物业及港资公司的层面，原本应监督政府表现的传媒却反过来逐渐成为政府「喉舌」。主流传媒公信力受损，新闻专业因中资入主而备受影响，寒蝉效应加剧自我审查情况，各传媒的报道趋向单一，监察政府的声音却被钳制。**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/gbbbbb.png)
+**35%被染红是2017年的数字，2020年【港版国安法】强行实施后，港媒敢于报导真相的已经是寥寥无几**
 
-兄弟姐妹们长话短说。从昨天到现在，真的我有两个深刻的感受。我就感觉到世界的经济和世界的政治，甚至全世界人民，就像这个泰坦尼克号要撞向雪山一样。后来当时也有人说强大的激光术，干掉了泰坦尼克号。就是你就觉得那个泰坦尼克号撞向山的感觉，全世界的政治，经济和人民的安全。就这几天你能听到的就是，所谓的有身份的人、政治[届]的人、情报界的人，就说出了打疫苗的后遗症，吓死人了。
+据【852邮报】2017年的报导指，传媒不但被视为是监察政府的第四权，更是普罗大众了解政府运作、社会事件等资讯的主要途径。不过，本港的主流传媒其实经已被「红色资本」渐渐吞噬，成为大股东，干预编采自主。因而在面对有关中国和特区政府的负面消息时，不是一字不提，就是化身「政府发言人」，导致真正发挥着第四权角色的传媒已逐渐减少
+![]()![](https://gnews.org/wp-content/uploads/2021/04/tgfrfrrr44.png)（资料来源：香港记者协会）
+**有线由郑家纯接手　「染红」主流传媒增至9间**
 
-From yesterday till today, I indeed had two profound feelings. I felt that the world economy and politics, and even the people of the world are just like the Titanic about to hit the iceberg (though later someone said that Titanic was taken down by laser ray). You just feel that the whole world’s politics, economy, and people’s safety are going to hit an iceberg like the Titanic did. Also the past few days I heard from the so-called men of class and people in the political and intelligence fields talk about the side-effects of the [CCP virus] vaccine. Very scary!
+根据记协的报告，自有线宽频于2017年4月公布卖盘予包销商永升（亚洲）后，中国控制或中资入股的主流传媒已增至9间，占总数26间的35%，除了有线，还包括无线电视（TVB）、《南华早报》、《大公报》、《文汇报》、《香港商报》、《中国日报香港版》、《成报》，以及凤凰卫视。
 
-第二个就是世界的经济。你听到玩金融的，现在真的是瑟瑟发抖，在瑟瑟发抖的时候，眼神始终看着有没有机会弄块儿大的。贪婪啊，贪婪啊，都不想失去，都想趁此机会捞一把。你就觉得泰坦尼克号撞向山上去的感觉。
+以有线为例，永升（亚洲）的两大股东为新世界主席郑家纯及远东发展主席邱达昌，分别持股31.5%和24.5%，两人均是全国政协委员，而郑家纯更是当中的常务委员。另一电视传媒TVB，在今年更被揭发是由中国共产党员、曾任上海市委副秘书长的黎瑞刚，透过保密协议而加以控制，成为「幕后主事人」。
 
-The second one is the world’s economy. You’ve heard that people in the financial sector are trembling now. While trembling, they also keep watching to see if there is any chance for them to make a big fortune from this. Greedy! No one wants to lose, everyone wants to catch a quick buck if there is a chance. This makes you develop the feeling of the Titanic about to hit the iceberg.
+至于纸媒，除了传统左报、由中共港澳工委直接控制的《大公报》和《文汇报》外，过去甚有公信力的《南华早报》（South China Morning Post），早在2015年年末亦正式被中资财团所吞噬。近年大举投资媒体界的中国阿里巴巴集团，于2015年宣布以约20亿港元全面收购南华早报集团旗下的媒体资产，正式「收归国有」。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/yuyurewq-3.png)
+**《文汇报》和《大公报》**
 
-另外就能感觉到中国共产党的疯狂，真的是，你就觉得魔鬼它一旦占到上风以后，那种狰狞的笑，“哈哈哈哈” 就是那种感觉，疯狂，就是灭亡前的疯狂。太多的这些现象没法形容。大家都知道泰坦尼克号…就那么多人，就那两三个人说出要撞山了，玩球蛋了，还有几个人的忧虑都发生了。
+《文汇报》和《大公报》素以中共喉舌闻名，原来两报与「伟大祖国」的关连还不止于此。 《壹周刊》2015年揭露，香港中联办透过一间全资拥有、名为「广东新文化事业发展」的大陆神秘空壳公司，迂回持有及经营香港最大出版及零售书商联合出版集团，同时实际拥有《香港商报》1%的股份和《文汇报》88.44%的股权，而《大公报》股权的更达99.99%，即近乎全资拥有。换言之，中联办可实际操控《文汇报》和《大公报》，被质疑与《基本法》及中联办规定的角色有牴触。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/vvvrrr.png)
+**《香港商报》**
 
-On the other hand, you can feel the craziness of the CCP. Indeed, you can now feel the ferocious laugh from the demon when it occupies the high ground – madness and craziness before perishing. Too much stuff like this, which is hard to describe. You all know about the Titanic. But among so many people onboard, there were only two or three of them that spoke out that they were going to hit the iceberg and going to die, which was proved to have occurred.
+虽中联办只透过「广东新文化」持《香港商报》1%股权，但不代表此报与中资毫无关系。去年已和家人出逃美国寻求政治庇护的《香港商报》助理总编辑龙镇洋今年2月接受访问时指，报社在1999年被并入深圳报业集团，直属国新办，收中央财政拨款。由于《商报》长年亏损，龙镇洋指现任广东省省长、时任该省委副书记的马兴瑞，在去年6月就专程都深圳报业集团开会，并通过每年由深圳市财政拨2,600万予《商报》，以解决该报长期亏损的问题。至于报社高层同时亦为深圳报业集团的人，以龙镇洋为例，他是副处级的干部，而《商报》社长则同时是深圳报业集团社长，属副厅级别。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/kilil888.png)
+**《南华早报》**
 
-现在我就觉得我们整个爆料革命，就像世界的泰坦尼克号一样，要出苏格兰到纽约去了，玩大的玩高级的，但是都为了那个奢华，所谓的贵族的体面，人类的虚伪和懦弱，不敢面对真相，一步又一步的错误，最后“咣叽”撞上了冰山。太可怕了！但这里面毕竟有英雄人物，也有脱险的人，那就是咱新中国联邦，就咱新中国联邦。就是我们在救人，最后我们离开了泰坦尼克号。
+英文报章方面，阿里巴巴创办人马云在2015年年底以20.6亿港元收购创刊逾一世纪的《南华早报》，他声言收购行动不会干涉《南早》的编辑自主，又反问外界为何会有此忧虑。不过事隔不足半年，他就指希望该报能扮演东西方桥梁的角色，又认为其有能力用更具深度和全面的方式报道中国，使人们能更好认识中国。事实上，单在昨今两年，《南早》已曾因刊登维权人士「被认罪」的报道，和撤涉中共领导人的稿件等事情引起关注。
 
-Now I feel that our entire Whistleblower Movement (BM) is in the midst of this world which is exactly like the Titanic, leaving Scotland to New York, trying to play a big, high-end game, chasing for luxury and the so-called decentness of the nobility driven by the hypocrisy and cowardice of humanity, and lacking the courage to face the truth, making mistakes step by step, and finally hitting the iceberg. How frightening! Yet, after all, there are brave people who can escape,  which is our New Federal State of China (NFSC). It is our NFSC that is saving lives and, in the end, escaping the Titanic.
+言论自由被视为香港稳定发展的基石，然而在回归后，政治干预传媒编辑方向屡见不鲜；红色资本渗入媒体，获中央公职、特区勋衔的传媒老板越来越多；前面记者受压，编辑自主蒙上阴影，自我审查情况严重。当香港新闻自由大幅倒退，为此而付出沉重代价的，不是记者、编辑、或某一传媒机构老板，而是整个社会。
 
-当然了这个也许有人顺手想拿点金子银子的，这事别想，开玩笑，爆料革命当中，有些人一定要意志坚定，我们是拯救这个大船的，我们不是等船沉了救人，一定要让这个船沉不下去。
+本港的主流传媒其实经已被「红色资本」渐渐吞噬，成为大股东，干预编采自主，阻碍传媒发挥第四权的角色。事实上，除影响媒体自主外，红色资本来又去，会影响一家媒体之日常运作和长远发展，最终导致其死亡。
 
-Of course, there might be people who want to get themselves some gold and silver [make personal profit] from this. Don’t even think about it. Kidding. In our WM, people must be determined. We are saving this big ship rather than waiting for the ship to sink and then saving people afterwards. We must make the ship unsinkable.
+【以上观点仅代表笔者本人 】
 
-大家看到黄金，黄金最近有大动静了吗？没有大动静，石油怎么样？有回落，有大起伏吗？没有。你觉得这样会下去吗？不可能。霍斯姆海峡、苏伊士运河，你觉得还会出事儿吗？还会出事儿。你打台湾是什么样？你想跑那跑得了吗？你跑不了。为什么现在数字货币、加密货币这么厉害？每个人都恐惧，知道这个世界正在撞向冰山。在撞向冰山前，有人还想拉小提琴，还想听听音乐，是吧？那你尽管，但最后一定葬身在水里面的是你，这就是今天世界政治经济的现状。
+资料来源：[王禄霞 香港传媒的十年春秋](https://app3.rthk.hk/mediadigest/content.php?aid=670)、[【852邮报】](https://www.post852.com/224208/%E3%80%90%E8%B2%B7%E8%B5%B7%E9%A6%99%E6%B8%AF%E3%80%91%E5%20%82%B3%E5%AA%922%EF%BC%9A%E7%B4%85%E8%89%B2%E8%B3%87%E6%9C%AC%E5%85%A5%E4%BE%20%B5%E6%B8%AF%E5%A0%B1%E5%8F%8A%E9%9B%BB%E8%A6%96/)、 [立场新闻](https://www.thestandnews.com/media/%E6%9D%8E%E7%99%BE%E5%85%A8%E6%9B%BE%E8%A6%81%E6%B1%82%E9%20%80%80%E8%B3%BD-%E6%B6%88%E6%81%AF%E6%8C%87%E6%B8)
 
-Does anyone see any big fluctuations in gold price lately? Nothing big. How about the oil price? It goes down a little. Are there any big ups and downs? No. Do you think this will last long? Impossible. Do you think something will happen again at the Strait of Hormuz and Suez Canal? Yes, it will happen. What will it be like if you attack Taiwan? Do you think you can get away with it? No, you can’t. Why are digital currencies and cryptocurrencies so strong now? Everyone is in fear, knowing the world is about to hit an iceberg. Before hitting the iceberg, some people want to play violin and listen to music, right? Do what you want, but you will be the one buried deep in the water in the end. This is the current status of the world’s politics and economy.
-
-兄弟姐妹们，一定要看得更清楚一点，看得更明白一点。现在到啥时候了？你看看听说华尔街看到那些朋友，每个人现在是自己大房子，现在赶快抵押贷款，而且是不赎回的，不赎回啥意思？我还不了钱，我就不赎回了，而且都不要个人的 Guarantee，都卖公司的，而且打大折。很多金融资产都往外卖，很多人都想跟我们换 GTV股份、G-Coin，门儿都没有，这就是现在的形势。
-
-Brothers and sisters, please look through things more clearly. What a critical moment is it right now? Look at it. I heard from some friends in Wall Street that everyone is now hurried to mortgage their big houses without redemption rights. What does that mean? If I cannot pay back the mortgage, I will not redeem the house. Moreover, no one uses a personal guarantee, rather they sell to companies and give them big discounts. Many are selling their financial assets to exchange for GTV shares and G-Coins. No way. This is the current situation.
-
-兄弟姐妹们，一定这个时候要搂住。世界巨变前，当你搂不住的时候，一定是大灾大难伴随着你。拜托了，此时不要贪，此时不要有幻想，此时要有各种防范。兄弟姐妹们，珍惜你现在能听到七哥直播和盖特的机会，珍惜你现在拥有的自由，珍惜你拥有的健康。人类从来没像现在这样面临着一切的重大的改变和重大的挑战，当然了有智慧、有本事的人是机会。愿成为每个战友所有人的机会吧，谢谢了。
-
-Brothers and sisters, we must hold ourselves at this critical moment. Facing the world’s immense change, if you cannot hold yourself, great disasters will find you. Please, don’t be greedy at this moment, stop dreaming at this time. Please use pre-caution measures at this time. Brothers and sisters, please cherish the moment when you can still watch my broadcasts and Getter videos. Cherish the freedom that you are enjoying now. Cherish the healthiness you have. Humanity has never ever faced such a huge change and challenge like this before. Of course, it presents opportunities for people with wisdom and capabilities. I hope this can be an opportunity for every fellow fighter. Thank you!
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/6069cd0cdbc8001854a56773](https://gtv.org/getter/6069cd0cdbc8001854a56773) (00:17-1:47, 2:31-3:39, 5:55-6:40, 8:30-结束)
-
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1049756/](https://gnews.org/zh-hans/1049756/)
-
-* * *
-
-翻译：【7PawBear】字幕：【Rock小哥】二校：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+审稿：文粤 / 上传：彩虹（ Rainbow )
 
 0
