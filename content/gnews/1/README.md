@@ -1,55 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 麦卡锡称疫苗护照适合中共国但美国不要
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1069717/)
+## 卢比奥获川普总统背书
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1069746/)
 
 俄罗斯莫斯科喀秋莎农场   仰望七星
 
 编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/c-6.jpg)crazzfiles.com
-上周共和党众议院领袖凯文·麦卡锡（Kevin McCarthy）发推谴责了世卫组织的报告【1】，昨天又指责民主党拜登政府的抗病毒政策更适合“中共国”，猛烈抨击实施疫苗护照的做法和想法。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/r-6.jpg)uslibertynews.com
+一度有令人失望的表现，敦促川普总统接受败选的事实，为假牧师傅希秋喊冤的马可·鲁比奥（Marco Rubio），经过一段时间的反省，似乎加深了对邪恶中共的认知，近期的言论和表现充满了对邪共的谴责，对川普总统的支持，或许经过川普总统的考察，认为“此人可用”，卢比奥获得了川普总统的背书。
 
-《纽约邮报》发表文章，“共和党众议院领袖麦卡锡（Kevin McCarthy）说疫苗护照更适合‘中共国’”。
+此消息由川普总统的长子小唐纳德·川普（Donald J. Trump Jr）发推证实【1】：我的朋友@马可鲁比奥，是为数不多的当选共和党人之一，他明白共和党需要成为中产阶级工人的政党，而不是企业利益的政党。
 
-全文如下：
+很荣幸能和我父亲一起支持他连任！
 
-众议院少数党领袖凯文·麦卡锡正在猛烈抨击中共病毒疫苗护照的想法，称它们更适合“中共国”，而不是美国。
+推文附上了川普总统的背书：
 
-麦卡锡反映出越来越多的人反对疫苗接种文件，同时赞扬川普总统政府生产的疫苗。
+马可·鲁比奥的背书
 
-麦卡锡在推特上说：“多亏了曲速行动”（Operation Warp Speed）的安全疫苗，我们将战胜病毒。”
+我很荣幸地向美国参议员卢比奥表示我的完全支持，马可一直是佛罗里达州人民的不知疲倦的倡导者，为减税而战，支持我们的第二修正案，我们的军队和退伍军人，强大的国防，以及所有被遗忘的美国男女。马可和我一起改革退伍军人协会，帮助我们的小企业发展，在他的帮助下，我们实现了妇女、非裔美国人、西班牙裔美国人、亚裔美国人以及几乎所有美国人的最低失业率，我们与古巴和委内瑞拉社区密切合作，取得了巨大进展。他还裁定“川普总统与俄罗斯没有任何关系，因为他主持了参议院情报委员会关于假俄罗斯、假俄罗斯、假俄罗斯的骗局，马可永远不会让佛罗里达州或我们国家的伟大人民失望！
 
-“但在自由社会，强迫美国人携带‘疫苗护照’进行日常生活是不可接受的。”“这是你在中共国所期待的，在美利坚合众国没有。”
-
-虽然纽约是第一个接受疫苗接种护照的州，上个月推出了“精品护照”（Excelsior Pass）应用程序，但其他一些由共和党人管理的州要么表示犹豫不决，要么干脆予以禁止。
-
-得克萨斯州州长阿博特（Greg Abbott）星期二签署了一项行政命令，禁止接受州政府资金的州政府机构或组织要求（出示）这些文件。
-
-阿博特在一份声明中说：“政府不应该要求任何德州人出示疫苗接种证明，以及仅仅为了日常生活而透露私人健康的信息，这就是为什么我发布了一项行政命令，禁止在得克萨斯州发放政府授权的疫苗护照。”
-
-“我们将继续为更多的德克萨斯人接种疫苗，保护公众健康。我们这样做不会践踏德克萨斯人的个人自由。”
-
-佛罗里达州州长罗恩德桑蒂斯（Ron DeSantis）上周签署了一项类似的行政命令。
-
-在爱荷华州，共和党州长金·雷诺兹（Kim Reynolds）说，该州必须对这些护照“表明立场”，并誓言在必要时采取行政行动予以禁止。
-
-据《得梅因公报》（Des Moines Register）报道，雷诺兹说：“我强烈反对疫苗护照，我认为我们必须作为一个国家采取立场反对疫苗护照，我打算通过立法或行政行动来做到这一点。”
-
-乔治亚州州长、共和党人布莱恩·坎普（Brian Kemp）也表示反对这些护照。“我不会，也将不会支持任何国家规定的疫苗护照，虽然研制出多种安全、高效的抗中共病毒疫苗是一个科学奇迹，但接受疫苗的决定应该由每个人来作出。
-
-曾鼓励所有美国人注射疫苗的拜登政府表示，由于隐私问题，不会发放疫苗护照。白宫新闻秘书珍普萨基星期二说：“政府现在不支持，我们也不会支持要求美国人携带证件的制度，不会有联邦疫苗接种数据库，也不会有要求每个人都获得单一疫苗接种凭证的联邦授权。”
-
-但白宫正在与私营部门合作，制定一份护照，显示人们已经接种疫苗，以便他们可以旅行或参加音乐会和体育赛事。（全文完）
-
-中共病毒来源的认证花了这样久的时间，超限生物武器的认证还在进行中，让这帮左派认清“疫苗经济”是邪共配套的策略，是搞乱美国乃至世界的经济、财富归己再分配的手段，更是难上加难。
-
-认清邪恶任重道远，还好，共和党建制派已经有更多的人在行动，为麦卡锡众议员对邪共的认知点赞！
+-总统唐纳德·川普
 
 参考链接：
 
-【1】https://gnews.org/zh-hans/1041229/
+【1】https://twitter.com/DonaldJTrumpJr/status/1380509961705381888
 
-【2】https://nypost.com/2021/04/08/gop-house-leader-kevin-mccarthy-blasts-vaccine-passports/
+背书的文字整理：
+
+Endorsement of Marco Rubio
+
+It is my honor to give U.S. Senator Marco Rubio my Complete and Total Endorsement. Marco has been a tireless advocate for the people of Florida, fighting to cut taxes, supporting our Second Amendment, our Military and our Vets, a strong national defense, and all of the forgotten men and women of America. Marco worked with me to reform the VA and help our small businesses grow, and with his help, we achieved the lowest ever unemployment for women, African Americans, Hispanic Americans, Asian Americans, and almost all Americans Together, we worked closely with the Cuban and Venezuelan communities, and have made great progress. He also ruled that “President Trump was in no way involved with Russia, as he presided over the Senate Intelligence Committee on the FAKE Russia, Russia, Russia Hoax. Marco will never let the great people of Florida, or our Country, down！
+
+– President Donald J. Trump
 
 0
