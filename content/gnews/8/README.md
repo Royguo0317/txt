@@ -1,44 +1,125 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【郭先生直播要点回顾】2017年4月19日文贵先生VOA专访（二）
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1069998/)
+## 【路德时评摘要】4.6.2021AM_布林肯：彻底和透明的调查这次病毒大流行的起源
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1070041/)
 
-#### **出品：Gnews编辑部郭先生资料库整理工作组**
+视频剪辑 : Ablec(文A)
+中听校： 洛杉矶天使农场 – 烟波浩淼
+英翻译： 洛杉矶天使农场 – 烟波浩淼
+英翻译校对：洛杉矶天使农场 – 雨山溪桥客
+字幕+视频制作：意大利达芬奇农场 – 紫苏花生
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片-1-2.png)
+**路德**
+布林肯最重磅的最新讲话
+The most important latest speech from Antony Blinken
 
-*VOA断播将共产党在美国媒体界的布局彻底暴露，引起了全球关注，也将灭共战役成功拉入国际战场。这一战，郭先生“知蒋干用蒋干”，利用中共间谍“火鸡龚”成功传递信息，迫使王岐山为首的盗国集团被动迎战，集一国之力发起狙击。专访前盗国集团威逼利诱不成便利用国际刑警组织发布红色通缉，专访中“火鸡龚”张机设阱不成，便在节目的关键时刻（爆料王岐山）强行掐断，一场正义与邪恶的旷日之战就此拉开帷幕。*
+说我们将继续推进彻底和透明的调查这次病毒大流行的起源
+He said, we are looking and pushing for complete and transparent investigation into origin of the pandemic
 
-**要点六：文贵先生曾受中国最高领导人委托联系达赖喇嘛**
+搞清楚到底发生了什么，从而避免任何生物威胁再次发生
+to learn what happened and so that the biological threat doesn’t happen again
 
-我本人见过很多次达赖喇嘛。达赖喇嘛曾亲笔给孟建柱书记和习近平主席写了一封很重要的信，信的原件还在我这里，这是一个历史性的事件，我希望有一天可以在VOA把整个视频和信的原件在这里公布。
+否则我们将对不起我们的子孙后代
+Otherwise, we will badly let us future generations down
 
-**要点七：****VOA****专访前夕，中国公安部为何称文贵先生已经在大连被批捕**
+这是历史的关键时刻，我们要敢想，敢干
+This is critical moment, the time for us to think big and act boldly
 
-因为当时纪委、公安以盘古涉嫌组织黑社会为名，抓捕了我8个家人、270个员工、3000个员工被边控、查封了1200亿资产。当时是由公安部常务副部长傅政华和北京市公安局副局长江梁栋共同成立的专案组对我们实施抓捕和办案的。一年后，由于各方面原因把该案件移至大连市公安局，由副市长刘乐国兼公安局长组织的专案组负责。我跟大连市没有任何关系，所以这只是大连管辖地的问题。
+美国将直面挑战
+And the United States will face the challenge
 
-**要点八：文贵先生为何与中共高层来往密切并得到中共内部诸多猛料**
+前段时间布林肯接受采访的时候
+When Blinken was interviewed some time ago
 
-我认识安全部马建副部长，他是过去十八年来唯一代表中共、中国政府查处腐败的技术侦查人，所以他掌握了巨量的信息，还有行动处长高辉，已经被专案组给搞死一年多了，这是我得到信息最多的地方；由于我和马建副部长的关系，认识了更多中纪委的人；还有由于刘志华案，国安的人在盘古有一个行动组办公室用于查处腐败，就是今天王歧山、孟建柱和傅政华干的事，我在这个办公室里面得到了很多信息；另外，这几年以黑反腐、以贪反贪，因为我在国外，所以很多人把料给了我；再有就是我亲身跟诸多政府官员打交道获得的。
+说我们要预防第二次以及未来生物威胁
+He said that we have to prevent the second time as well as the future biological threat
 
-**要点九：文贵先生爆料的主要原因**
+我们当时说了，为什么要预防第二次?
+We (Lude Media) said at that time, why do they have to prevent the second time?
 
-我的四个哥哥被抓走一年后才放回来，2016年12月初，又把我四哥、六哥和我女儿给抓回去了，后来我女儿放回来了，四哥和六哥还在里面，我的员工还在里面。我哥在里面遭受到酷刑，回来的时候人已经变形了；我的女员工受到了虐待，被5个警察按到墙上搜身并被凌辱；男员工戴着脚镣在地上折腾了一星期后让他当面手淫给大家看。抓我哥的原因很简单，就是我因为我哥、管保安的赵广东副总当时给了傅政华和他弟弟一笔钱，他们是当事人，所以想灭口。也就是说他们指挥办案不是要查行贿、反贪，而是要灭口，这也是我今天爆料的主要原因。
+就是，先做好防守
+which is, make the defense first
 
-**要点十：专案组栽赃陷害文贵先生行贿马建副部长，实际敲诈文贵先生的是傅政华**
+因为美国已经意识到这就是中共的生物威胁
+Because the United States has realized that this is the biological threat of the CCP
 
-外交部说我行贿马建副部长，完全是栽赃陷害，他们这么做，我才有理由起诉他们。现在很多外国政府再关注这件事情，中国政府没有发声，他们给我留下了证据。我有没有行贿是要通过证据和法律事实来判定的，我们会用事实说话。他们突然改变的原因和真正的目的就是要灭口，今天我要展示给你们的证据就是我和傅政华先生的通话，傅政华先生作为一个全国的反贪的专案组组长，一人之下万人之上的人，他让我给他五千万美元，他可以保证我家人安全，把我家人、员工放出来，还有保全我的资产，另外就是要我在海外找那些私人调查公司，查阅海外的反贪官的资料。我答应了，但是必须合法的给。所以事实上，他在我这儿只从国内拿走了一百五十万元。一个星期以前，我们酒店突然接到一个电话，对方称“我和赵广东签过合同，需要给他一百五十万美元”。这说明傅政华和他弟弟想把钱给退回来，就是想欲盖弥彰！钱退回来也掩盖不了你犯罪的事实。
+布林肯这个词不是一个中性词，生物威胁恐怖主义
+The word, biological threat terrorism, that Brinken used is not a neutral word
 
-**要点十一：文贵先生不是国家安全部的工作人员，是社会关系**
+要彻查，透明的调查
+It has to be thoroughly and transparently investigated
 
-中国有个体制就是商人和任何人，只要安全部选定了你，你就必须听他的指示。我绝对不是安全部的工作人员，我一不在编，二不拿工资，我只是一个商业挂靠关系，未来我会出具安全部的函，上面明确说明我们是社会的工作关系。
-（未完待续）
+如果来自自然的他会说这个话?
+If the virus comes from nature, would he say this?
 
-* * *
+说什么对不起子孙后代，
+He should not say something about being sorry for future generations
 
-**视频链接：**[**https://www.youtube.com/watch?v=mKdCuSgzbKs**](https://www.youtube.com/watch?v=mKdCuSgzbKs)
+因为自然的谁都不知道什么时候会出来
+Because if the virus came from nature, who doesn’t know when it will come out
 
-*发布: 巴黎七星农场 文月*
+谁都不知道到底从哪个地方出来
+Nobody knows exactly where it will come out
+
+这句话其实就告诉了生物威胁，就是超限生物武器
+This statement actually tells that the biological threat is the unrestricted bioweapon
+
+生物威胁为什么他现在不说叫生物战, 或者叫生物武器?
+(He said) biological threat. Why doesn’t he call it biowarfare or bioweapon at this moment?
+
+因为这是超越生物武器，是叫超限生物武器
+Because this is beyond bioweapon and it is unrestricted bioweapon
+
+所以他用生物威胁先来告诉美国人这是生物威胁了
+So, he used the biological threat first to tell the Americans that this is a biological threat
+
+生物恐怖主义其实就是超限生物武器
+Bioterrorism is actually unrestricted bioweapon
+
+因为它不是一个生物战的概念
+Because it is not a concept of biowarfare
+
+就像恐怖主义，当时的911
+It’s like terrorism. It was 911
+
+它不是对你美国宣战，但这是恐怖主义
+it wasn’t a declaration of war against the United States, but it was terrorism
+
+现在中共搞得是生物恐怖主义，超限生物武器
+Now the Chinese Communist Party is engaging in bioterrorism using unrestricted bioweapon
+
+大家看明白没有?几个月以来都验证了美国拜登政府上台以后
+Do you see clearly? It’s been verified for several months after the Biden administration came to power
+
+真正的都已经各方面的准备工作都已经准备好了
+All the preparations have been fully completed
+
+中共他所有的威胁就是那种便宜的所谓的导弹
+All the Chinese Communist Party’s threats are their cheap so-called missiles
+
+能打个100多公里，是吧?
+which can make more than 100 kilometers, right?
+
+反正我万导齐发。就这种又便宜
+The CCP might launch tens of thousands their cheap missiles
+
+前面带一些东西。
+(They might) carry something on the missile warhead.
+
+带一些炸弹，甚至带一些生物的这种东西
+Or carry some bombs, even some biological stuff
+
+如果到你上空可能都危险
+If it comes over your sky, it may be dangerous
+
+所以一定要在半路就给你拦截掉
+So, it must be intercepted on its halfway
+
+当然韩国可能是一个巨大威胁，面临北朝鲜
+Of course, South Korea may have a huge threat, since it is facing North Korea
+
+所以这方面全部都准备好。准备好才说这话
+So, all are prepared. Preparations have been done before he could say this
 
 0
