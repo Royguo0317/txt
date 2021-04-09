@@ -1,15 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月8日 文贵先生盖特 4
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1068334/)
+## 【热点播报】因涉新疆人权问题言论，土耳其与中共展开外交骂战
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1068539/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+作者：纽约香草山健身部 Jack Li文阳
 
-4月8号：尊敬的战友们好，明天4月9号．上午9:30……文贵乱聊直播！
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4862af99e273a9ecc08d1302d6a18981.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/316737722067d3686106380c1c0b51a3.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/bc73cdc0052e74c0a6797df77df278aa.jpg)
-[【2021年4月8日】文贵先生盖特原文](https://gtv.org/getter/606fb293dbc8001854a6a79c)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
-**喜联盟Gnews编辑部**
+
+
+事件起源于土耳其两名政要发表谴责中共新疆人权问题的文章，引发了土耳其和中共之间一系列的连锁反应。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片24-1.png)
+
+此前，土耳其两名反对党领袖人物在推特上谴责中共迫害新疆维吾尔族人。中国驻土耳其大使馆随即在其推特上警告这两名政治人物，威胁称有可能对其采取行动。4月6日，土耳其外交部召见中共国驻土耳其大使并表达不满。中共外交部发言人赵立坚4月7日下午，在例行记者会回应中共国大使召见事件。
+
+近年来，土耳其和中共国关系密切，深度参与“一带一路”，中共国是土耳其第二大贸易伙伴。除了和中共国，土耳其还与俄罗斯、伊朗等国频繁往来。中俄土伊颇有战略合作的意图。一段时间以来，土耳其和美国的关系紧张，美国国务卿布林肯这样评价土耳其：土耳其不像盟友，和我们最大的战略对手搞在一起 。土耳其近两年与中共国深层次交往，特别是中共疫情以来，土耳其企图依赖中共疫苗走出困境，1月14日，土耳其总统埃尔多安接种了中共国新冠疫苗，随后，土耳其宣布中共国科兴新冠疫苗保护率为83.5%。
+
+在地缘政治上，土耳其历史上把自己划归欧洲。最近，新疆人权问题已经成为世界关注的焦点，欧洲多国还对中共国发出了制裁令。欧洲的政治风向很难不对土耳其造成影响，这次土耳其反对派出手抨击中共国的新疆人权问题，引发了中共国的强烈反应，亲共土耳其政府的外交部加入战团怼中共，颇有深意，耐人寻味。土耳其反对派抢先出手了，埃尔多安政府应顺应世界潮流，站对立场，如果一意孤行，逆流而为，随时有翻船的可能。
+
+新闻来源：
+
+[https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20210407-%E6%88%98%E7%8B%BC%E5%AF%B9%E6%88%98%E7%8B%BC-%E5%9C%9F%E8%80%B3%E5%85%B6%E5%A4%96%E4%BA%A4%E9%83%A8%E5%8F%AC%E8%A7%81%E4%B8%AD%E5%9B%BD%E5%A4%A7%E4%BD%BF](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20210407-%E6%88%98%E7%8B%BC%E5%AF%B9%E6%88%98%E7%8B%BC-%E5%9C%9F%E8%80%B3%E5%85%B6%E5%A4%96%E4%BA%A4%E9%83%A8%E5%8F%AC%E8%A7%81%E4%B8%AD%E5%9B%BD%E5%A4%A7%E4%BD%BF)
+
+[https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20210407-%E4%B8%AD%E5%9B%BD%E9%A9%BB%E5%9C%9F%E8%80%B3%E5%85%B6%E5%A4%A7%E4%BD%BF%E8%A2%AB%E5%8F%AC%E8%A7%81-%E8%B5%B5%E7%AB%8B%E5%9D%9A%E8%A1%A8%E6%80%81](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20210407-%E4%B8%AD%E5%9B%BD%E9%A9%BB%E5%9C%9F%E8%80%B3%E5%85%B6%E5%A4%A7%E4%BD%BF%E8%A2%AB%E5%8F%AC%E8%A7%81-%E8%B5%B5%E7%AB%8B%E5%9D%9A%E8%A1%A8%E6%80%81)
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpg)
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

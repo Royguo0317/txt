@@ -1,77 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】依法维权 还我公道 新中国联邦人永不为奴！
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1069168/)
+## 美国解除对伊朗制裁将给中东、中共、美国和新中国联邦带来的影响
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1069391/)
 
-**–记GTV投资人在华盛顿DC抗议SEC的活动**
+**简述：郭先生在****2021****年****4****月****8****日的盖特视频中解读美国解除对伊朗制裁的效应，他说伊朗制裁的解除将使中东重新陷入战争，将对中共不利，而这种竞争的最后还是新中国联邦受益；美国拜登政府已经达成共识，在病毒一事上不会放过中共；中共在霍尔木兹海峡和苏伊士运河四处出击，就像二战当年的日本军国主义攻击珍珠港，不会有好下场。**
+[**下载字幕**](https://www.apple.com)
+**美国解除对伊朗制裁将给中东、中共、美国和新中国联邦带来的影响**
 
-作者：香草山商业部 挺郭小蚂蚁
+**Miles Interprets the Implications of U.S. Lifting Sanctions on Iran**
 
-2021年4月5日，复活节后的星期一早上，阳光明媚，在美国首都华盛顿国会山附近的美国证券交易委员会（简称证监会，英文简称SEC）大楼前面，出现了一支衣着整齐，精神饱满的华人队伍。我们是GTV的投资人，我们站在大楼前面，抗议SEC跟中共沆瀣一气，伤害我们投资人的合法权利和经济利益。
+接着现在说这几天大家现在已经看到了伊朗的这个事情，所谓的美国没有制裁了。对咱是好事儿。伊朗没制裁了，伊朗一放开了，伊朗就有可能和老共不一定站在一起[了]。[和]老共不站在一起[了]，伊朗的中东，伊朗的中东就会发生[大事儿]。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS1881-【战友心声】依法维权-还我公道-新中国联邦人永不为奴！.jpg)
+Let me continue. In the past few days, everyone has seen this news about Iran, that is the U.S. is preparing to lift sanctions on Iran. It will be good for us. If sanctions on Iran are lifted and Iran is open up, it will probably stop siding with the CCP. If Iran doesn’t stand with the CCP, Iran and the Middle East will see big things happening.
 
-SEC Kowtows to the CCP (Chinese Communist Party) 证监会跪舔中共
-SEC Lied GTV Investors Died (证监会撒谎 GTV投资者受害）
-SEC Drives Business Away from US (证监会导致美国商机流失）
+伊朗是三驾马车，伊朗一直想当老大，第二是伊拉克，这才为什么发生了两伊战争，第三是沙特，这三驾马车要开干。实际[是]三驾火车，老要撞。他仨一撞都要抢着和共产党好，同时也抢着和老美好，中东战火重起开始！这种竞争的背后最后还是新中国联邦得利。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS1881-【战友心声】依法维权-还我公道-新中国联邦人永不为奴！-1.jpg)
+Iran is one of the horses of a troika in the Middle East, and Iran has always wanted to be the boss. The second one is Iraq, that is why there was the Iran-Iraq War. The third one is Saudi Arabia. The three “horses” are going to fight with each other. Actually the three “trains” are always colliding with each other. Once the three collide with each other, they will compete to have a good relationship with the CCP, and at the same time, they will also want to be good with the U.S., then the war in the Middle East will start again! Behind this competition, of course, the New Federal State of China (NFSC) will be the beneficiary in the end.
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS1881-【战友心声】依法维权-还我公道-新中国联邦人永不为奴！-2.jpg)
+[虽然]咱不想让他们战争，但是他们的斗争对我们新中国联邦来讲，咱们是机会。告诉我，这三个国家哪一个愿意与新中国联邦为敌？永远不会。这就是我们的机会。对老美来讲不是好事儿，对老共来讲也不是好事儿，但是对咱们来讲是好事儿，因为毕竟伊朗是穆斯林。真正的伊朗的所谓没制裁是因为奥巴马总统的穆斯林的宗教信仰还有和拜登之间政治的这个整个利益。但对新中国联邦是好事。
 
-证监会大楼紧邻华盛顿最繁华的交通枢纽 Union Station（联合车站），我们的抗议队伍非常醒目，手持的展板写着：
+Although we don’t want them to fight, but their fighting will present an opportunity for our NFSC. You tell me, which of these three countries will want to make an enemy with the NFSC? They will never do that. This will be our opportunity. It’s not going to be a good thing to the U.S., nor to the CCP, but it’s a good thing for us, because after all, Iran is a Muslim country. The real reason for lifting Iran’s sanctions is due to President Obama’s Muslim religious belief and the entire political interests of Biden. But it is a good thing for the NFSC.
 
-SEC + CCP = Corruption  (证监会和中共串通腐败）
-Assess GTV Investor’s Loss SEC Must Pay  (政监会必须评估并赔偿GTV投资人的损失）
+但另外一个，[大家]反而[应该]看到：[美国]放过伊朗，[但]绝不会放过共产党！ 所以大家你们看到了：对共的所谓病毒的严查，[我]听说啊，做梦听说的，听说这一点拜登政府已经达成共识。这一点上必须不能妥协，因为妥协就[等于拜登]自己被赶出白宫，就完球蛋了，是吧？[所以]这个不会妥协。那对咱是好事儿，是吧？那对咱是好事儿。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS1881-【战友心声】依法维权-还我公道-新中国联邦人永不为奴！-3.jpg)
+But on the other hand, everyone should see that the U.S. is willing to let Iran get away, but it will never let the CCP get away! So you guys have seen that the serious investigation of the CCP virus, based on what I heard, I mean, dreamed, is a consensus in the Biden administration. There must be no compromise on this point, because if Biden compromises, he will be kicked out of the White House and be done for, right? So there will not be any compromise on this. That will be good for us, right? Will be good for us.
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS1881-【战友心声】依法维权-还我公道-新中国联邦人永不为奴！-4.jpg)
+还有一个，在明年2022的中期选举，民主党要想赢和共和党想赢[都]只有一个主题：灭共！查病毒真相，“以毒灭共”。只要以毒能灭共，咱管球啥那干啥的？爱咋的咋的，是吧？ 还有个咱“以钱灭共”，“以钱灭共”谁也挡不着咱，是吧？
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS1881-【战友心声】依法维权-还我公道-新中国联邦人永不为奴！-5.jpg)
+or the Republicans want to win, they will have only one theme: taking down the CCP! Find out the truth about the virus and then take down the CCP with the truth about the virus. As long as they use the truth about the virus to take down the CCP, what else do we care about? We won’t care, right? There is also the “taking down the CCP with money [financial activities]”, and no one can stop us from taking down the CCP with money, right?
 
-还有大卡车环城巡回展示标语：
+现在美国经济、美元、黄金，大家看了黄金了吗？大家看到黄金了吗？看到大宗贸易了吗？看着现在7哥刚说完，我说苏伊士运河，霍尔木兹海峡还得出事儿。美国这些投资者说，“老郭，不可能。”我说“不可能？你等着！”[结果]“啪”第二个，七哥刚说完 24 小时又出事了。
 
-SEC serves CCP 证监会伺候中共
-SEC Allowed Unaudited CCP Companies Listed in the US Stock Market to Steal Trillions of Dollars 证监会纵容未经审查的中共白手套公司到美国股市圈钱数以兆记
-SEC (Supporter Endorser of CCP)  证监会给中共支持和背书
-Hold CCP Collaborators Accountable 追究与中共同谋的责任
+Now the U.S. economy, the U.S. dollars, and gold … have you seen the gold price? Have you seen major commodities trading? Have you seen that, right after your Brother Miles said Suez Canal and the Strait of Hormuz were going to have some trouble, “BANG”, within 24 hours, it happened. Some American investors first didn’t believe me, saying, “Miles, it’s not possible.” I said, “Not possible? You wait and see!”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS1881-【战友心声】依法维权-还我公道-新中国联邦人永不为奴！-6.jpg)
+大家注意到共产党在中东的军事基地是干啥的[吗]？第一个，他就是干这事儿：搞破坏。控制霍尔木兹海峡，控制苏伊士运河，控制吉布提[和]红海的石油运输，最终到马六甲。这就跟当时二战的时候日本的山本五十六和美国的伊顿，在打珍珠岛之前说的话[一样]。“美国是我日本的80%的呃这个油的供应，你有天不供应[给]我咋办呢？”那意思说“老子得打你。”所以就打了珍珠港。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS1881-【战友心声】依法维权-还我公道-新中国联邦人永不为奴！-7.jpg)
+Have you noticed what the CCP is doing in its military bases in the Middle East? The first thing it is doing is sabotage – controlling the Strait of Hormuz, controlling the Suez Canal, controlling the oil transportation in Djibouti and the Red Sea, and finally to Malacca. This is the same as what Isoroku Yamamoto, the Japanese, and the American, Eaton said before Japan attacked Pearl Harbor during World War II. “The United States provided 80% of Japan’s oil supply. What if you don’t supply us someday?” That means “I have to beat you”. So they attacked Pearl Harbor.
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS1881-【战友心声】依法维权-还我公道-新中国联邦人永不为奴！-8.jpg)
+现在老共一模一样，你老美，我不控制这个霍尔木兹海峡[和]苏伊士运河，那以后你打我，我咋办呐？[所以中共]现在想：我要把日本（注：可能是口误）把美国的粮给断了，把你的市场给断了。这好啊，他们打吧，他打他的，咱[们]发[咱们的]财。咱叫“以钱灭共”，把他们打的仗，打剩下的战场咱去收拾去吧，对不对？
 
-SEC成立于1934年，直属美国联邦政府，是美国证券业最高主管机关，负责美国的证券监督和管理，其宗旨是确保证券交易和公司的财务透明合法，保护投资者的利益。证监会成立的背景源于1929年美国股市的崩盘，彼时证券市场上的有些公司通过不公开向投资者提供相关信息的手段来获得巨额利益，投资人利益严重受损。为了避免发生类似的事件，美国国会分别通过了1933年证券法和1934年证券交易法（the Securities Exchange Act of 1934），确认在证券交易中要公允地公开企业状况、证券情况等，以投资者利益为首。证券交易委员会行使由国会授予的权利。保证公共公司不存在财务欺诈，提供误导性的信息，内幕交易或者其他违反各项证券交易法的行为。
+Now the CCP is exactly like them [Japan]. “What if the U.S. attacks us if I don’t control the Strait of Hormuz and the Suez Canal?” That’s why they [the CCP] are now thinking: “I’m going to cut off Japan… the U.S.’s food [oil] supply and destroy your market.” That’s okay, let them fighter, but we will focus on making money. Let’s call it “taking down the CCP with money”. Let them fight their war, and after it’s done, we will help to clean up the battlefield, right?
 
-这个活动由我们GTV投资人自发组织，我们中有来自纽约、波士顿的，有坐飞机从加州赶来的，还有从中西部地区和南部驱车十几个小时长途跋涉来的。这次可能是美国证监会86年历史上第一次由华人投资者聚集的抗议活动。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/606f19a6dbc8001854a685be](https://gtv.org/getter/606f19a6dbc8001854a685be) (6:09-9:38)
+鸣谢：感谢 Antsee-GTV 和 TING GUO 提供中文文本于 [https://gnews.org/zh-hans/1065999/](https://gnews.org/zh-hans/1065999/)
 
-在活动现场，有美国人好奇地询问我们为什么抗议SEC？我们从以下三方面表达了相关诉求。
+* * *
 
-第一，我们选择投资GTV，就是选择投资真相，正义和光明。郭先生创立的GTV是一个敢讲真话，敢于揭穿中共谎言，给世界带来光明和希望的平台。  2020年，GTV勇敢地揭露中共 病毒真相。在中共谎言遍布世界，美国主流媒体和政客都被灌了迷魂汤的时候，爆料革命路德社节目第一时间告诉全世界，中共病毒人传人，大爆发，来自实验室。通过GTV这个平台，世界上更多的人了解了中共病毒的事实真相，及时采取防护措施，保护了自己和家人的生命安全。在中共渗透全世界的政界、商界还有大科技公司、社交媒体（脸书，推特，油管），谎言遍天下的时候，GTV撕开了铁幕，为人们带来了真相和希望。GTV是一个灭共的平台，是一个为13亿中国人带来希望的平台，GTV的多语种更是世界各民族和国家人们了解中共邪恶本质的窗口。而SEC却对GTV的发展多加阻挠和压制，这就是助纣为虐，帮助中共迫害中国人，打压中国人和全世界各族裔获取真相的渠道。我们到华盛顿，就是要把这个真相告诉美国和全世界的正义人士。
+字幕：【V%】二校：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-第二，SEC的宗旨是保护美国投资者的利益。在历史转折的关键时刻，全世界正义的力量联合起来一起灭共，开创一个没有中共的新纪元。GTV承载着历史的使命，顺应天理，替天行道，具有不可估量的商业价值。GTV成立于美国，实乃美国之幸，GTV的发展必将为美国带来巨大的经济价值。SEC对GTV的迫害就是伤害美国的经济利益。SEC到底为什么这样做？SEC在背后跟中共到底有什么不可告人的交易？我们要求调查SEC和中共的关系，依法惩办SEC知法违法的行为。
-
-第三，SEC在过去的几十年与中共深度勾兑，为中共操控的白手套公司大举进攻美国股市圈钱大开绿灯，割美国投资人的韭菜，窃取美国资本市场数以兆记的利益，为中共输血，极大地伤害了美国的经济。SEC是卖美贼，跟中共狼狈为奸，挖美国的墙角，对中共的白手套公司，如阿里巴巴、腾讯、抖音卑躬屈膝。这些中共的白手套公司在美国上市时可以不公开财务信息，可以不遵守美国监管机构的规则。而SEC却对GTV百般刁难，鸡蛋里挑骨头，充当中共破坏GTV的打手和急先锋。作为美籍华裔投资人，我们不能容忍SEC拿着我们纳税人的钱却不保护我们作为美国投资人的利益，还勾结外国独裁政权迫害我们。我们强烈呼吁第三方机构介入调查SEC违反操守的行为，还我们投资人一个公道。
-
-另外，我们这些来到华盛顿DC来抗议的美籍华裔也为那些身在墙内，无法亲自赶来的投资人发声。GTV的很多投资者身在中国大陆，他们冒着被喝茶被监禁的危险，克服了重重困难才得以汇款到美国投资GTV，这些不畏强权的GTV投资人是中国的良心和脊梁。他们追求真相、自由和正义的勇气是非凡的。他们应该得到自由世界国家的支持和帮助，而不是被SEC这样的机构背叛和出卖。 很多来自大陆的投资人被喝茶，被骚扰，甚至被失踪和关押，他们的个人信息和资料是怎么被中共掌握的？ SEC有没有把这些投资人的信息出卖给中共？美国政府机构和大公司跪舔中共、出卖中国异见人士和勇士的事情太多了，从被枪决的包括天津国家安全部彤宝国在内的36名CIA线人，到被Yahoo（雅虎）出卖判刑10年的中国新闻记者师涛。
-
-“Never Again （永远不再）”，是二战后犹太人对大屠杀的历史发出的诺言。历经苦难的犹太人发誓永不做被屠宰的羔羊。今天，郭文贵先生喊出了“新中国联邦人永不为奴” ，这一句话说出了亿万中国人的心声。无论是中共，还是与中共狼狈为奸的任何组织机构，新中国联邦人都会为了正义和公道与你们抗争到底，绝不放弃。 GTV投资人和平抗议SEC，依法维权，不达目的誓不罢休。
-
-（文章仅代表作者个人观点。）
-
-编辑/校对/发稿：雪梨
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-0
++1

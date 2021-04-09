@@ -1,72 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CBN采访章家敦和海军教官谈中共国违背伦理开发“超级战士”
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1067952/)
+## 实验室泄漏：因陷入政治漩涡而未解的科学辩论【二】
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1068122/)
 
-**美国CBN电视台在2021年4月6日，采访中国问题专家章家敦先生（Gordon Chang）和美国海军教授伦理学的教官乔治卢卡斯（Goerge Lucas）先生，分析中共国已经在研发经过生物强化的超级士兵。前国家情报局局长约翰·拉特克利夫（John Ratcliffe）称其为“不道德的医学实验”。章家敦先生说：“这令人感到毛骨悚然。没有道德标准，没有法律。” 新闻中说，美国进行的类似研究会有道德约束，也是基于士兵自愿的原则，而敌军则没有道德约束。**
+加拿大多伦多枫叶农场温哥华战友团
+翻译/评论：清平世界
 
-【编者评论】中共在对全世界释放的经基因改造的CCP病毒，在中东霍尔木兹海峡等地的所有行为已经充分证明了它的邪恶本质，完全无底线。加之它此前的HIV基因改造婴儿等完全无伦理道德的实验，使我们相信毋庸置疑，它的超级士兵研究一定是服务其邪恶的统治世界的目的，当然不能期待它能有任何道德的约束。美国和国际社会只有尽早认清其撒旦本质，放下私心杂念，某些势力停止跟中共勾兑，世界才有一线生机。
+最近，在Undark上发表了一篇题为“实验室泄漏：一场陷入政治漩涡，尚未解决的科学辩论（Lab Leak: A Scientific Debate Mired in Politics — and Unresolved）”的文章。作者查尔斯·施密特（Charles Schmidt）是美国国家科学作家协会社会科学新闻奖的获得者。他的文章大多发表在《科学》，《自然生物技术》，《科学美国人》，《发现》杂志和《华盛顿邮报》等著名出版物中。
 
+虽然没有深刻谈到中共释放病毒的真相，但本篇文章中肯地采访了各方意见，对科学讨论病毒真相如何受到舆论影响提供了有价值的信息。此篇为第二部分。（[第一部分](https://gnews.org/zh-hans/1067687/)）
+![]()![](https://gnews.org/wp-content/uploads/2021/04/humaevents.com_.jpg)*图片来源：humaevents.com*
+2021年2月份，一个国际科学家团队完成了对武汉长达一个月的访问，以调查中共病毒的起源。该小组在世界卫生组织召集下，并在中共当局的密切监视下得出结论，最初认为实验室泄漏不太可能，因此没有必要进一步调查。后来世卫组织总干事又收回陈述，声称“所有假设仍是开放的，需要进一步的分析和研究。”由26位科学家，社会科学家和科学传播者组成的小组（包括彼得罗夫斯基）现在已经签署了自己的公开信，指出世卫组织的研究人员缺乏“授权要求，独立性或必要的调查途径” 以确定中共病毒是否可能是实验室事故导致的结果。
 
+在经过一年的世界卫生组织调查之后，关于中共病毒起源的辩论变得越来越激烈。中共国官员至今仍然不愿意提供信息，以解决有关病毒来源的长期问题。在缺乏关键数据的情况下，专家的观点围绕着两种相互争执的情况：一种认为实验室泄漏是可能的，需要更多信息仔细检查。另一种认为中共病毒几乎可以肯定来自自然，实验室泄漏的可能性小到基本上可以排除。那些坚持自然起源的人说，这种病毒缺乏基因特征显示它是经过精心设计的。而中共病毒也有可能在野外自然进化，然后在实验室中进行研究并逃逸出来。武汉病毒研究所是被许多人视为爆发的最可能场所，并拥有世界上最大的冠状病毒收藏之一。
 
-This is the U.S. army’s concept of the soldier of the future. This video makes it look like it’s just a better equipped soldier, but notice the words – neural engineering, that can mean a brain implant that connects a human to computers. The defense agency DARPA has been working on an advanced implant that would essentially put the human brain online. There could also be eye and ear implants and more circuitry under the skin to make the ultimate fighting machine. Americans are going to have to decide whether this is ethical because some in our military clearly want it.
+斯坦福大学的微生物学家戴维·雷尔曼（David Relman）表示，实验室泄漏从未成为“对事实的公正而冷静讨论”的主题。反之，要求仔细研究可能的实验室起源的人被很快暴升的舆论气氛斥为宣扬错误信息的阴谋论者，并被唾弃。大选年的政治和仇视情绪更加剧了这种紧张气氛。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/amazonaws.com1_.jpg)*图片来源：amazonaws.com*
+国际事务智囊团总部设在华盛顿特区的大西洋理事会高级研究员杰米·梅茨（Jamie Metzl）说，对于科学家来说，发声怀疑实验室泄漏可能意味着职业自杀，特别是当病毒爆发已经有很长的自然来源的历史时。马萨诸塞州剑桥市布罗德研究所（Broad Institute）专门从事基因治疗和细胞工程的博士后研究员阿丽娜·陈（Alina Chan）对此表示赞同。她说，挑战中共病毒是自然起源的正统观念（她认为这是完全合理的假设），对于具有管理职位的传染病科学家和工作人员来说，有最大的风险。她本人在去年的大部分时间里都在呼吁对可能的实验室泄漏进行更多的调查。她说，作为博士后的她，面临的损失会少一些。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/organicconsumers.org_.jpg)*图片来源：organicconsumers.org*
+雷尔曼说，发现病毒的起源对于阻止下一次大流行至关重要。随着人类不断向野外迁徙，实验室事故和自然外溢的威胁正在同时增长，全球新建立的生物安全实验室的数量也在增加。 “这就是为什么起源问题如此重要的原因，”。 “我们需要更清楚将资源和精力放在何处。” 雷尔曼说，如果中共病毒来自实验室看起来合理，那么“那么绝对值得更多关注。”
 
-这就是美军对未来士兵的概念。这段视频让人觉得这只是一个装备较好的士兵。但请注意这几个字——神经工程，这可能意味着一个可连接人体和计算机的大脑植入物。国防机构DARPA一直在研究一种先进的植入物，基本上可以将人类的大脑联入网络。还有可能是眼睛和耳朵的植入物，以及将更多电路埋植在皮肤下，造就终极战斗机器。美国人将不得不决定 这样做这是否合乎道德，因为显然我们军方的一些人想这么做。
+如果中共病毒确实从自然传到人类身上，那是如何发生的以及发生在何处？大流行一年后，这些问题仍然悬而未决。科学家仍在猜测该病毒是从受感染的蝙蝠（数百种不同冠状病毒的已知储藏库）直接传播到人类还是通过中间动物物种传播。最初，武汉的华南海鲜批发市场被认为是潜在溢出的发源地，因为在那里发现了第一批中共病毒（由病毒引起的疾病）。但最新证据表明，动物或人类感染可能已经在其他地方传播了数月之久，此后重点已扩展到城市的其他市场，中国南方的野生动物农场以及其他可能的情况，例如食用受病毒污染的冷冻肉原产于其它省份。
 
-The super soldiers of the future could simply have enhanced abilities or they could be part man part machine, what are known as cyborgs.
+重要的是，该病毒的直接祖先尚未确定。已知最接近的亲戚，冠状病毒RaTG13，在基因上与中共病毒有96％的相似性。 （编者注：中共发布的RaTG13基因序列已被揭出是学术造假，试图掩盖病毒来源的真相。详情参见闫丽梦博士的报告和路德时评的多次报道）
 
-未来的超级士兵有可能仅仅是获得能力的增强，或者也有可能成为半人半机器即所谓的生化电子人。
+同时，在实验室感染的研究人员或技术人员可能会将实验室的病毒引入世界。这种类型的实验室泄漏以前曾发生过。 2017年，武汉病毒学研究所成为中国大陆第一个获得生物安全等级4（BSL-4）称号的实验室，这是研究的最高安全等级。但是该研究所也有可疑的安全历史。该实验室的科学家报告说，实验室缺乏受过适当训练的技术人员和调查人员，曾在2017年和2018年访问来此访问的美国外交科学家就此实验室安全问题向美国国务院发出警报。
 
-China is already developing biologically enhanced super soldiers using what former director of national intelligence John Ratcliffe called unethical medical experiments.
+抛开这些警告，实验室泄漏支持者中流行的理论是中共病毒不仅被带入武汉实验室，而且以某种方式在武汉实验室被进行了基因工程改造，因为该实验室的许多科学家经常对冠状病毒进行基因研究，并且“与中国军方在发表论文和秘密项目上进行了合作”（根据川普政府最后一周发布的美国国务院情况报告）。美国3月9日，《华盛顿邮报》的专栏作家援引国务院一位不愿透露姓名的官员的话说，拜登政府在极力避免支持有关病毒起源的任何特定理论的同时，对该情况报告中的许多观点均没有提出异议。
 
-中[共]国已经在研发生物强化的超级士兵。引用前国家情报局局长约翰·拉特克利夫（John Ratcliffe）的话，称其为不道德的医学实验。
+中共病毒确实具有无法解释的特征：刺突蛋白中的所谓“弗林蛋白酶切位点”有助于中共病毒进入人体细胞。这种“弗林蛋白酶切位点”没有在任何中共病毒的近亲中能找到。微生物学家苏珊魏斯说：“我们不知道弗林蛋白酶切位点是哪里来的。”她是宾夕法尼亚大学佩雷​​尔曼医学院的宾夕法尼亚大学冠状病毒和其他新兴病原体研究中心的联合主任， “这是一个谜。”尽管魏斯说中共病毒不太可能被设计出来，但她补充说，不能排除它从实验室出来的可能性。
 
-**Gordon Chang**: “This is a big effort on the part of the [Communist] Chinese government and it is really horrifying.”
+雷尔曼说，研究尚未公开的甚至更相关的冠状病毒的科学家，也可能是试图合成重组病毒的科学家，他们可能用一种具有弗林酶切位点的病毒和一另种SARS-CoV- 2的基因骨架来试图重组一种病毒，以便研究它们的特性。确实，武汉病毒学研究所的研究人员最初没有透露在从发现RaTG13的同一矿洞中采集的样本中还检测到了另外八种SARS样冠状病毒。在与老挝接壤的云南省的那个矿洞里，清洁蝙蝠粪便的工人发作了严重的呼吸系统疾病，其中至少有一个甚至可能更多人死亡。 （编者注：闫丽梦博士的报告和路德社已经揭露出所谓云南矿洞是中共编造的另一个谎言，企图伪造病毒来源于自然的假象。）
 
-**章家敦：**“这是中[共]国政府正努力致力于的，而这真的很可怕。”
+本文是系列中第二篇，相关文章：
 
-China expert Gordon Chang says it’s part of a Chinese government plan to create a master race through genetic editing.
+[实验室泄漏：因陷入政治漩涡而未解的科学辩论【一】](https://gnews.org/zh-hans/1067687/)
+实验室泄漏：因陷入政治漩涡而未解的科学辩论【三】
 
-中共国问题专家章家敦说，这是中国政府计划的一部分。通过基因编辑来创造一个有主宰力的种族。
-
-**Gordon Chang**: “They’re trying to create a race which is far more intelligent than the rest of humanity. And with super soldiers, they’d be stronger, less susceptible to pain – just better soldiers. This is eugenics. This is creepy. There are no ethical standards. There are no laws.”
-
-**章家敦：**“他们试图创造一个种族，比其他人类要聪明得多。这样的超级士兵，他们更强壮，更少有痛感——是更好的士兵。这是优生学。这令人感到毛骨悚然。没有道德标准，没有法律。”
-
-Now the French military has been given the go-ahead to also create so-called augmented soldiers. The super soldiers of the future will run fast, need little sleep and little to eat or drink. And they’ll be able to fight much longer than ordinary humans. But, should we do it? George Lucas, who has taught military ethics to America’s naval officers says: “Ethical concerns lag behind this new technology.”
-
-现在，法国军方已经得到了批准，来创造这种所谓的增强型士兵。未来的超级士兵会跑得很快。需要很少的睡眠和很少的吃喝。而且他们将能比普通人战斗的时间长很多。但是，我们应该这样做吗？曾向美国海军军官传授军事伦理的乔治·卢卡斯说：“伦理问题方面的顾虑落后于新技术的发展。”
-
-**George Lucas: **“It always does and the only question is how far.”
-
-**乔治卢卡斯：**“一如既往地落后，现在的问题是到底有多落后。”
-
-And Lucas is concerned that future military recruits could be pressured to accept computer parts into their bodies. He believes they should be allowed to refuse them.
-
-而卢卡斯担心未来的新兵，可能会受到压力，要接受电脑部件植入他们体内。他认为应该允许人们拒绝这些要求。
-
-**George Lucas: **“The further into these, the more exotic technologies we go, and the more the risks are not known, the more we must at least rely on volunteerism if not as much informed consent as is possible.”
-
-**乔治卢卡斯**：“越是深入研究，我们的技术发展得越是奇葩，越多未知的风险。就越要依据志愿的原则，如果没有足够多的知情权的话。”
-
-But the challenge for the United States is even if we put ethical limits on the super soldier of the future, it’s likely some of our adversaries will not.
-
-但美国面临的挑战是即使我们对未来的超级战士进行道德约束，很可能我们的敌人不会这么做。
-
-*Dale Hurd CBN News*
-
-戴尔·赫德 CBN新闻台
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+[原文链接](https://undark.org/2021/03/17/lab-leak-science-lost-in-politics/)
 
 * * *
 
-听写&翻译：【一花一世界】新闻撰写&编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+编辑 发稿 云起时
 
 +1
