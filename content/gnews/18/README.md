@@ -1,37 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 卢比奥获川普总统背书
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1069746/)
+## 【路德时评粤语快报】04.08：美国宣布制裁中共七间超级计算机机构 Sellin博士首次提到舟山蝙蝠病毒骨架
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1069844/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+制作团队：【喜马拉雅-粤语组】打杂的、团长
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/r-6.jpg)uslibertynews.com
-一度有令人失望的表现，敦促川普总统接受败选的事实，为假牧师傅希秋喊冤的马可·鲁比奥（Marco Rubio），经过一段时间的反省，似乎加深了对邪恶中共的认知，近期的言论和表现充满了对邪共的谴责，对川普总统的支持，或许经过川普总统的考察，认为“此人可用”，卢比奥获得了川普总统的背书。
 
-此消息由川普总统的长子小唐纳德·川普（Donald J. Trump Jr）发推证实【1】：我的朋友@马可鲁比奥，是为数不多的当选共和党人之一，他明白共和党需要成为中产阶级工人的政党，而不是企业利益的政党。
 
-很荣幸能和我父亲一起支持他连任！
+主要内容
 
-推文附上了川普总统的背书：
+1. 美国宣布制裁中共七间超级计算机机构。拜登政府商务部宣布制裁中共七间超级计算机机构，理由是这七个实体机构为参与中共军方制造大规模杀伤力武器的计划。以前美国商务部发出的制裁理由，最多是将受制裁单位列为军民融合机构，此次进一步将这七个机构定为参与制造大规模杀伤力武器，必定是已经有了实质的证据，本次制裁行动不仅在零件采购层面，在终端的技术使用上都将受到制裁行动，并且必然有更多的后续动作。在大规模杀伤力武器的定义上，一般枪枝、炮弹和导弹都不适用于这个范畴。大规模杀伤力武器包含四大类：生物武器、化学武器、核武器以及放射性武器。各国的所拥有的核武器受已经受制于“核不扩散条约”，只要在此条约中都可被国际社会接受。但是在联合国的国际公约里，详细列明任何国家和团体在任何情况下永远都不可取得、持有、使用生化武器，亦即不可研究、发展、制造生化武器。这一次是超级计算机第一次被用于制造生物大规模杀伤力武器。这七个受制裁的超级计算机机构，已经有证据确认，在中共研发、制造生物武器时，利用超级计算机协助计算病毒基因序列组合，模拟病毒蛋白组合，借输入致死率和致病率等参数，找出最大传播、杀伤的途径。当年美国攻打伊拉克的萨达姆，就是因为萨达姆启动生化武器计划，生产了化学武器。当年美国的行动是在小布殊任内，而拜登当时在参议院也参与了整个流程，因此拜登对打击制造大规模生物武器有深入的认识和经验。
+2. Sellin博士首次提到舟山蝙蝠病毒骨架。Sellin博士在他的推特里面直接提到病毒是来自于中共军方所持有的舟山蝙蝠病毒骨架ZC45 / ZXC21。正如Sellin博士日前在他的推特也提到正在启用类同Sixta组织解密病毒，最后他又一次提到超限生物武器。另外一个关键是中共被发现在《当代生物武器》一书中提到在和平时期如何运用病毒生物武器，而美国国务卿布林肯日前也提到生物威胁以及生物恐怖主义，美国要敢于行动、透明彻查。彼得˙纳瓦罗也一再提到生物武器和功能增强实验，并且公开称赞阎博士的论文报告极为出色。以上所有的资讯结合在一起，我们便可以知道美国正在大力推进揭开病毒真相、落实中共制造生物武器的罪行，并且向中共追责。
+3. 在国际社会酝酿抵制中共冬季奥运会时，中共发动国内体育界人士支持新疆棉，并且借各种管道打压郝海东先生。然而，郝海东、叶钊颖才是真正代表体育精神。在节目当中，郝海东先生和叶钊颖女士说出内地体育界被洗脑、控制，因此无法分辨国家、人民和党的分别，郝海东先生同时揭发其中的腐败、金钱、和情色的黑幕，运动员成为政治、权力、金钱和发泄个人私欲的工具，运动员要靠各种关系才有机会上场比赛、争取夺标的机会，相对之下，其他国家的运动员是因为个人的爱好，参赛是靠运动员的实力，运动员即使无法赢得奖牌，依然能够回归平常生活。如此可见中共体制的腐败，阻碍了真正的体育精神。
 
-马可·鲁比奥的背书
 
-我很荣幸地向美国参议员卢比奥表示我的完全支持，马可一直是佛罗里达州人民的不知疲倦的倡导者，为减税而战，支持我们的第二修正案，我们的军队和退伍军人，强大的国防，以及所有被遗忘的美国男女。马可和我一起改革退伍军人协会，帮助我们的小企业发展，在他的帮助下，我们实现了妇女、非裔美国人、西班牙裔美国人、亚裔美国人以及几乎所有美国人的最低失业率，我们与古巴和委内瑞拉社区密切合作，取得了巨大进展。他还裁定“川普总统与俄罗斯没有任何关系，因为他主持了参议院情报委员会关于假俄罗斯、假俄罗斯、假俄罗斯的骗局，马可永远不会让佛罗里达州或我们国家的伟大人民失望！
+【路德时评】[原视频链接1](https://youtu.be/ENlLLqCocIU)   [原视频链接2](https://youtu.be/UZ5TAJL8IXo)
 
--总统唐纳德·川普
-
-参考链接：
-
-【1】https://twitter.com/DonaldJTrumpJr/status/1380509961705381888
-
-背书的文字整理：
-
-Endorsement of Marco Rubio
-
-It is my honor to give U.S. Senator Marco Rubio my Complete and Total Endorsement. Marco has been a tireless advocate for the people of Florida, fighting to cut taxes, supporting our Second Amendment, our Military and our Vets, a strong national defense, and all of the forgotten men and women of America. Marco worked with me to reform the VA and help our small businesses grow, and with his help, we achieved the lowest ever unemployment for women, African Americans, Hispanic Americans, Asian Americans, and almost all Americans Together, we worked closely with the Cuban and Venezuelan communities, and have made great progress. He also ruled that “President Trump was in no way involved with Russia, as he presided over the Senate Intelligence Committee on the FAKE Russia, Russia, Russia Hoax. Marco will never let the great people of Florida, or our Country, down！
-
-– President Donald J. Trump
+上传：流光飞舞
 
 0
