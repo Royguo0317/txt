@@ -1,39 +1,125 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登承认几次放弃施压中共寻求病毒真相的机会
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1070064/)
+## 【路德时评摘要】4.6.2021AM_布林肯：彻底和透明的调查这次病毒大流行的起源
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1070041/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+视频剪辑 : Ablec(文A)
+中听校： 洛杉矶天使农场 – 烟波浩淼
+英翻译： 洛杉矶天使农场 – 烟波浩淼
+英翻译校对：洛杉矶天使农场 – 雨山溪桥客
+字幕+视频制作：意大利达芬奇农场 – 紫苏花生
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/BI-1.png)rebelnews.com
-美国总统拜登 2 月曾表示，他“有兴趣从中（共）国获得关于 中共病毒疫情起源的所有事实”，但据本周公开承认，他已经放弃了几次向中共国施压寻求答案的机会。
+**路德**
+布林肯最重磅的最新讲话
+The most important latest speech from Antony Blinken
 
-拜登说，他将努力从中共国获得事实真相，他和高级政府官员已经与中共领导人进行了广泛的对话。但总统周二（4月 6 日）表示，他 “没有与习主席就中（共）国是否在中共病毒问题上误导世界进行过对话”。
+说我们将继续推进彻底和透明的调查这次病毒大流行的起源
+He said, we are looking and pushing for complete and transparent investigation into origin of the pandemic
 
-今年 2 月拜登曾与中共国国家主席习近平进行过一次私人电话通话，拜登政府的高级外交官上个月在阿拉斯加与中共国代表进行了长时间的会晤。两次会议的公开资料都未提到 病毒起源和中共国早期隐瞒病毒严重性的议题，在阿拉斯加峰会的公开视频部分也没有关于此话题的议题。
+搞清楚到底发生了什么，从而避免任何生物威胁再次发生
+to learn what happened and so that the biological threat doesn’t happen again
 
-也就是，至少拜登有两次机会向中共提出病毒来源真相的问询，至少应向中共施压，要求全面公开武汉病毒研究所真实的数据，但他并没有这样做。
+否则我们将对不起我们的子孙后代
+Otherwise, we will badly let us future generations down
 
-拜登政府未能就北京当局在掩盖病毒早期传播方面所扮演的角色向北京进行施压，这不禁让人怀疑白宫是否将这一问题视为公开所说的那样是真地高度优先。
+这是历史的关键时刻，我们要敢想，敢干
+This is critical moment, the time for us to think big and act boldly
 
-当记者今年 2 月问拜登，他是否“有兴趣惩罚中（共）国去年对 中共病毒不诚实的行为”时，拜登总统说他 “有兴趣了解这个问题的所有事实”。
+美国将直面挑战
+And the United States will face the challenge
 
-今年 3 月，国务院发言人斯内德·普莱斯（Ned Price）也将 病毒来源议题列为政府阿拉斯加峰会的首要任务之一。
+前段时间布林肯接受采访的时候
+When Blinken was interviewed some time ago
 
-“我们将与中方讨论那些更有挑战性的议题，如 中共病毒起源。” 普莱斯说。
+说我们要预防第二次以及未来生物威胁
+He said that we have to prevent the second time as well as the future biological threat
 
-中共国一直被批评在早期有意淡化病毒的传染性和严重性，让它在几个月内不被发觉的情况下广泛传播，并放任演变成一场全球性危机。此外，还有人质疑该病毒的来源。世界卫生组织表示，它很可能是来自于武汉一个海鲜市场受感染动物，但美国政府质疑它是否是从附近的病毒学实验室（武汉病毒研究所）意外释放出来的。
+我们当时说了，为什么要预防第二次?
+We (Lude Media) said at that time, why do they have to prevent the second time?
 
-据美国全国广播公司（NBC）新闻报道，美国情报官员并没有排除“实验室逃逸”的理论，指出中共国一直不肯与国际组织合作，并且很早就采取各种措施刻意隐瞒病毒的来源。
+就是，先做好防守
+which is, make the defense first
 
-拜登和习近平最快可能在 4 月 22 日面对面，届时拜登将主持召开世界领导人虚拟气候峰会。习近平已收到邀请，但尚未正式确认出席。白宫拒绝评论拜登是否计划在活动中向习近平提出病毒起源问题。
+因为美国已经意识到这就是中共的生物威胁
+Because the United States has realized that this is the biological threat of the CCP
 
-参考链接：
+布林肯这个词不是一个中性词，生物威胁恐怖主义
+The word, biological threat terrorism, that Brinken used is not a neutral word
 
-[1] [Biden Said He Would Press China on the Origins of COVID. He Hasn’t. – freebeacon.com – 2021/04/08](https://freebeacon.com/biden-administration/biden-said-he-would-press-china-on-the-origins-of-covid-he-hasnt/)
+要彻查，透明的调查
+It has to be thoroughly and transparently investigated
 
-[2] [美国总统拜登称已邀请习近平和普京参加4月22日的全球气候变化虚拟峰会 – 路透社 – 2021/03/27](https://www.reuters.com/article/usa-biden-climate-china-xi-0327-idCNKBS2BJ03D)
+如果来自自然的他会说这个话?
+If the virus comes from nature, would he say this?
+
+说什么对不起子孙后代，
+He should not say something about being sorry for future generations
+
+因为自然的谁都不知道什么时候会出来
+Because if the virus came from nature, who doesn’t know when it will come out
+
+谁都不知道到底从哪个地方出来
+Nobody knows exactly where it will come out
+
+这句话其实就告诉了生物威胁，就是超限生物武器
+This statement actually tells that the biological threat is the unrestricted bioweapon
+
+生物威胁为什么他现在不说叫生物战, 或者叫生物武器?
+(He said) biological threat. Why doesn’t he call it biowarfare or bioweapon at this moment?
+
+因为这是超越生物武器，是叫超限生物武器
+Because this is beyond bioweapon and it is unrestricted bioweapon
+
+所以他用生物威胁先来告诉美国人这是生物威胁了
+So, he used the biological threat first to tell the Americans that this is a biological threat
+
+生物恐怖主义其实就是超限生物武器
+Bioterrorism is actually unrestricted bioweapon
+
+因为它不是一个生物战的概念
+Because it is not a concept of biowarfare
+
+就像恐怖主义，当时的911
+It’s like terrorism. It was 911
+
+它不是对你美国宣战，但这是恐怖主义
+it wasn’t a declaration of war against the United States, but it was terrorism
+
+现在中共搞得是生物恐怖主义，超限生物武器
+Now the Chinese Communist Party is engaging in bioterrorism using unrestricted bioweapon
+
+大家看明白没有?几个月以来都验证了美国拜登政府上台以后
+Do you see clearly? It’s been verified for several months after the Biden administration came to power
+
+真正的都已经各方面的准备工作都已经准备好了
+All the preparations have been fully completed
+
+中共他所有的威胁就是那种便宜的所谓的导弹
+All the Chinese Communist Party’s threats are their cheap so-called missiles
+
+能打个100多公里，是吧?
+which can make more than 100 kilometers, right?
+
+反正我万导齐发。就这种又便宜
+The CCP might launch tens of thousands their cheap missiles
+
+前面带一些东西。
+(They might) carry something on the missile warhead.
+
+带一些炸弹，甚至带一些生物的这种东西
+Or carry some bombs, even some biological stuff
+
+如果到你上空可能都危险
+If it comes over your sky, it may be dangerous
+
+所以一定要在半路就给你拦截掉
+So, it must be intercepted on its halfway
+
+当然韩国可能是一个巨大威胁，面临北朝鲜
+Of course, South Korea may have a huge threat, since it is facing North Korea
+
+所以这方面全部都准备好。准备好才说这话
+So, all are prepared. Preparations have been done before he could say this
 
 0

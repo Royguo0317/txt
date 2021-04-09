@@ -1,125 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.6.2021AM_布林肯：彻底和透明的调查这次病毒大流行的起源
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1070041/)
+## 美伊核谈判取得进展
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1070154/)
 
-视频剪辑 : Ablec(文A)
-中听校： 洛杉矶天使农场 – 烟波浩淼
-英翻译： 洛杉矶天使农场 – 烟波浩淼
-英翻译校对：洛杉矶天使农场 – 雨山溪桥客
-字幕+视频制作：意大利达芬奇农场 – 紫苏花生
+俄罗斯莫斯科喀秋莎农场   银河
 
-**路德**
-布林肯最重磅的最新讲话
-The most important latest speech from Antony Blinken
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/I-4.jpg)nytimes.com
+路透社4月9日报道，旨在让伊朗和美国完全重返2015年核协议的谈判取得了进展，但伊朗官员表示，在必须解除制裁问题上与华盛顿存在分歧。
 
-说我们将继续推进彻底和透明的调查这次病毒大流行的起源
-He said, we are looking and pushing for complete and transparent investigation into origin of the pandemic
+欧盟官员也在积极促进核协议各方的谈判，目的是恢复协议的核心内容，即限制伊朗的核活动以换取美国和其他国际社会解除对伊朗的制裁。
 
-搞清楚到底发生了什么，从而避免任何生物威胁再次发生
-to learn what happened and so that the biological threat doesn’t happen again
+伊朗外交部长贾瓦德·扎里夫(Javad Zarif)在推特上说，“川普的所有制裁都是反联合全面行动计划(Joint Comprehensive Plan of Action)的，必须取消，不要把任意的制裁区分开。” 美国表示，准备取消“与全面协议不一致的制裁”。这表明美国有计划排除与该协议涉及的核问题无关的制裁。
 
-否则我们将对不起我们的子孙后代
-Otherwise, we will badly let us future generations down
+这些声明是开局策略还是已表明的坚定立场仍有待观察。欧洲官员表示，伊朗从一开始就在努力讨价还价。
 
-这是历史的关键时刻，我们要敢想，敢干
-This is critical moment, the time for us to think big and act boldly
+伊朗、英国、中共国、法国、德国和俄罗斯在周二正式开始谈判后，于周五在维也纳再次会晤，他们同意继续进行谈判。俄罗斯驻联合国国际原子能机构特使评价:“各方评估了过去三天专家们所做的工作，满意地注意到初步取得的进展。”
 
-美国将直面挑战
-And the United States will face the challenge
+协议的其余各方组成了两个专家级别的工作小组，负责起草美国将取消的制裁和伊朗将实施的核限制的清单。
 
-前段时间布林肯接受采访的时候
-When Blinken was interviewed some time ago
+一些外交官希望在6月18日伊朗总统选举之前达成协议，否则谈判可能会被推迟到今年晚些时候。欧洲消息人士称，“鉴于核问题的技术复杂性和解除制裁的法律复杂性，考虑到几周的时间将是非常乐观的。”
 
-说我们要预防第二次以及未来生物威胁
-He said that we have to prevent the second time as well as the future biological threat
+郭文贵先生4月9日直播中说到，美国一定会解除对伊朗的制裁，这里有政治博弈的考量。伊朗解除制裁后，会直接影响到穆斯林世界的格局。伊朗，以色列、沙特将再起能源纷争。美国可以放宽对伊朗的态度，但是绝对不会放弃对中共病毒真相的追责。伊朗再次强大之后，在灭共大势面前将放弃追随中共。
 
-我们当时说了，为什么要预防第二次?
-We (Lude Media) said at that time, why do they have to prevent the second time?
+参考链接：
+https://www.reuters.com/article/us-iran-nuclear-china/russia-china-say-iran-talks-to-resume-next-week-see-progress-idUSKBN2BW17J
 
-就是，先做好防守
-which is, make the defense first
 
-因为美国已经意识到这就是中共的生物威胁
-Because the United States has realized that this is the biological threat of the CCP
-
-布林肯这个词不是一个中性词，生物威胁恐怖主义
-The word, biological threat terrorism, that Brinken used is not a neutral word
-
-要彻查，透明的调查
-It has to be thoroughly and transparently investigated
-
-如果来自自然的他会说这个话?
-If the virus comes from nature, would he say this?
-
-说什么对不起子孙后代，
-He should not say something about being sorry for future generations
-
-因为自然的谁都不知道什么时候会出来
-Because if the virus came from nature, who doesn’t know when it will come out
-
-谁都不知道到底从哪个地方出来
-Nobody knows exactly where it will come out
-
-这句话其实就告诉了生物威胁，就是超限生物武器
-This statement actually tells that the biological threat is the unrestricted bioweapon
-
-生物威胁为什么他现在不说叫生物战, 或者叫生物武器?
-(He said) biological threat. Why doesn’t he call it biowarfare or bioweapon at this moment?
-
-因为这是超越生物武器，是叫超限生物武器
-Because this is beyond bioweapon and it is unrestricted bioweapon
-
-所以他用生物威胁先来告诉美国人这是生物威胁了
-So, he used the biological threat first to tell the Americans that this is a biological threat
-
-生物恐怖主义其实就是超限生物武器
-Bioterrorism is actually unrestricted bioweapon
-
-因为它不是一个生物战的概念
-Because it is not a concept of biowarfare
-
-就像恐怖主义，当时的911
-It’s like terrorism. It was 911
-
-它不是对你美国宣战，但这是恐怖主义
-it wasn’t a declaration of war against the United States, but it was terrorism
-
-现在中共搞得是生物恐怖主义，超限生物武器
-Now the Chinese Communist Party is engaging in bioterrorism using unrestricted bioweapon
-
-大家看明白没有?几个月以来都验证了美国拜登政府上台以后
-Do you see clearly? It’s been verified for several months after the Biden administration came to power
-
-真正的都已经各方面的准备工作都已经准备好了
-All the preparations have been fully completed
-
-中共他所有的威胁就是那种便宜的所谓的导弹
-All the Chinese Communist Party’s threats are their cheap so-called missiles
-
-能打个100多公里，是吧?
-which can make more than 100 kilometers, right?
-
-反正我万导齐发。就这种又便宜
-The CCP might launch tens of thousands their cheap missiles
-
-前面带一些东西。
-(They might) carry something on the missile warhead.
-
-带一些炸弹，甚至带一些生物的这种东西
-Or carry some bombs, even some biological stuff
-
-如果到你上空可能都危险
-If it comes over your sky, it may be dangerous
-
-所以一定要在半路就给你拦截掉
-So, it must be intercepted on its halfway
-
-当然韩国可能是一个巨大威胁，面临北朝鲜
-Of course, South Korea may have a huge threat, since it is facing North Korea
-
-所以这方面全部都准备好。准备好才说这话
-So, all are prepared. Preparations have been done before he could say this
 
 0
