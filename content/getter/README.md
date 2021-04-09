@@ -17,6 +17,11 @@
 **郭文贵MILES** `2021-02-21T15:56:09`
 ##
 
+[4月9日：在七哥为了赚点吃饭钱．为基金审核投资材料后的一些感想。为什么中国只有．混家．骗家．￼￼没有企业家，这就是中国共产党以黑治国……以假治国的结果！](/content/getter/content/2021/04/6070b66fdbc8001854a6f459.md)
+
+**郭文贵MILES** `2021-04-09T20:17:51`
+##
+
 [4月9号：与战友们分享￼为G翻身设计新系列产品选择布．皮料的感觉！](/content/getter/content/2021/04/6070b087dbc8001854a6f1ee.md)
 
 **郭文贵MILES** `2021-04-09T19:52:39`
@@ -155,10 +160,5 @@
 [Explore the new arrivals of Spring Summer 2021 Collection, sourced from the best...](/content/getter/content/2021/03/6064c65949339063d061ab15.md)
 
 **郭文贵MILES** `2021-03-31T18:58:33`
-##
-
-[亲爱的战友们，G|Fashion将于明天（周四）隆重推出2021年春夏新品系列。本系列均采用意大利顶级面料，以隽永的羊绒和丝绸混搭，打造出经典的G|Fashio...](/content/getter/content/2021/03/6064c60949339063d061ab04.md)
-
-**郭文贵MILES** `2021-03-31T18:57:13`
 ##
 
