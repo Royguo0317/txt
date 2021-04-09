@@ -1,66 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新疆发生的，是一场危害人类的巨大罪行（第二部分）
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1066366/)
+## 世界没有像样的政府&nbsp; 强推疫苗背后都是腐败
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1065973/)
 
-```
-新闻来源：经济周刊  阿德里安·曾兹（Adrian Zenz）谈中国
-发表时间：2021年4月5日
-翻译整理评论： Shuizhuyu
-```
+**简述：郭先生在2021年4月4日的盖特视频中感叹世界上没有几个好的政府，它们拼命给人民打疫苗，可疫苗背后藏着无数的腐败。他也评论说美国的万亿纾困法案是羊毛出在羊身上，最后还是要美国人埋单。**
 
+**世界没有像样的政府  强推疫苗背后都是腐败**
 
-第一部分链接：[新疆发生的，是一场危害人类的巨大罪行（第一部分）](https://gnews.org/zh-hans/1066344/)
+**Few Governments Are Decent; Behind the Vaccines Are All Corruptions**
 
-**经济周刊  ：**曾兹先生，中国已将您列入制裁名单，您不再被允许进入该国。 这对您的工作意味着什么？
+你看看这世界上哪有几个像样的政府啊，拼了命了让大家打疫苗，这个疫苗的背后就是腐败。买疫苗，买谁家疫苗，谁给打疫苗，收你多少钱？政府批多少钱，反正这些钱最后都是老百姓身上，没有一个政府生产一块钱财富，所有的财富都是人民创造的，所有的所谓的免费的，最后都是从你身上拿出来。
 
-**曾兹（Adrian Zenz）：**出于安全原因，我于2019年决定在任何情况下都不前往中国或香港。 我有足够的文件进行研究。
+Look at how few decent governments there are in this world? They are desperate to get everyone vaccinated. Behind the vaccines are all corruptions. Whose vaccines to purchase? Who get vaccinated? How much to charge them? How much should the government pay? Anyway, all this money in the end will be paid by the people because no government produces a dollar of wealth, all the wealth is created by the people. All the so-called free stuff will ultimately be paid out of your pocket.
 
-**问： **在哪里可以找到它们？
+就像头两天，一万多亿的美国所谓的每个人发1400块钱补助，马上加税，加税的人，这些人老板加税了，你以为老板能给你啥？老板会在你身上，老板自己家里也不产钱，地里也不长美元，也不长人民币，最后还得老百姓的劳动剥削出来的，最后不还是这些老百姓的钱吗？这基本的常识吗？
 
-**答：** 在中国互联网上，例如在各个政府的网站上，有地区政府，地方政府，以及国家媒体，有时也很自由地在网络上。 在上一篇有关强迫劳动的著作中，我评估了许多中国学术出版物。 我95％的信息来自可公开访问的来源。 其余的来自泄漏的数据。
+Just like the American Rescue Plan of over a trillion dollars, which was passed a couple of days ago, giving $1,400 subsidy per person, will immediately entail increased tax. Those bosses will pay more tax. What do you think the bosses will do to you? The bosses will put that on you because your boss does not produce any money in his own home, and the field can’t grow dollars or RMB out of it either. In the end, money will come from exploiting the working people. Isn’t it the people’s money in the end? Is this basic common sense?
 
-**问： **中共政府试图否认或抹黑其结果。 是什么让他们更恼火：由于美国禁止进口棉花而造成的面子丧失还是经济损失？
+你以为哪个政府伟大地说，我给你补贴1万亿2万亿，最后羊毛一定长在羊身上，羊毛一定不会出在猪身上，也更不会出在中南坑那些老杂毛上身上，就这么简单，是吧？不论是哪国都是一样。所以说政府、政客，没有一个是好东西，所以这一辈子当啥也不能当政客，掺乎啥也不能掺乎政治，没好东西。
 
-**答：** 两个都有。 中国外交部三周前公开表示，我对棉花的研究会造成巨大的经济损失。 同时，中共领导人极度担心奥运会带来的问题。 《纽约时报》和《华盛顿邮报》援引我的研究呼吁去抵制奥运会。
+You think your government is so great to give people subsidies of 1 to 2 trillions. Wool can only be from sheep (Chinese idiom, meaning “whatever you’re given, you pay for”), wool won’t be from the pigs, and it certainly won’t come from those old bastards in the Zhongnanhai Pit. Simple as that, right? All countries are the same. Therefore, neither governments nor politicians are good, so don’t be a politician in your life time and don’t get involved in politics because there’s nothing good out of it.
 
-**问：** 美国棉花进口禁令的影响有多大？
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/6069f00bdbc8001854a571df](https://gtv.org/getter/6069f00bdbc8001854a571df) (4:01-5:18)
 
-**答：** 后果是戏剧性的。 新疆生产世界20％的棉花。 整个生产和供应链都依赖于此。 亚洲许多地区使用的大部分棉花预产品都来自中国，并经常添加新疆棉，因为它被认为是世界上最好的。 美国的出口禁令非常广泛；它适用于仅包含新疆一部分的棉花。 由于很难将生产与新疆脱钩，西方时尚品牌实际上应该从中国撤出。
-
-**问：** 他们会这样做吗？
-
-**答：**他们都有两方面的准备， 他们需要利润。 像雨果·博斯（Hugo Boss）这样的公司公开表示，它不加工来自新疆的棉花。 但在中国的短消息服务微博中，它表示将继续使用新疆的棉花，并称赞其高品质。
-
-**问：**那需要做什么？
-
-**答：**这个问题需要在政府一级解决。 您不能期望公司如此。 供应链法律需要尽快制定。 并且必须动员消费者，否则公司将像以前一样继续。
-
-**问：** 汽车制造商大众汽车在新疆省生产。 那里的欧洲公司有可能逃避中国政权的做法吗？
-
-**答：**大众没有直接强迫劳动的证据。 但是， 无法判定， 是否有个别工人曾在所谓的培训营被强制过。  中共政府正在利用大众汽车的存在，在政府网站上进行国家宣传。 大众汽车的企业被用来证明镇压运动的正当性。
-
-**问：**如果政客们保持沉默，那会改变吗？
-
-**答 ：**政治立场和解决新疆的强迫劳动至关重要。 发生了一件危害人类的巨大罪行。 美国政府已警告其公司并实施制裁。 安吉拉·默克尔（Angela Merkel）尚未说太多话。 从历史上看，德国人负有特殊责任。 但是，当谈到中共时，德国的责任似乎已经消失了。
-
-**问：** 德国是否过多地关注了中国市场？
-
-**答：** 德国出口多年来一直依赖中国，不想失去它。 我认为，中共在利用他们在抗击流行病方面的所谓成功，才如此自信地出现在三月底与美国对话。 中共国认为自己处于上升状态，因为他们知道他们的市场是被依赖的。
-
-#### **简评：**
-
-**这个问答虽然很长， 但是很多是非常尖锐的问题。 而曾兹的回答， 有些地方还是不是我们爆料革命的观点和定义。 比如在回答中， 他经常使用中国和中国人的字样。 我在翻译中已经改成了中共或中共国。 但是， 这样的访谈在德国发生， 并且有报道，已经是很好的开头了。 在这之前，在德国的主流媒体上很少看到这样的文章或者报道，最近几天这样的声音在增多， 也引起很多人的关注。 而且也提出了一些德国政府应该注意的问题， 尤其是提醒德国政府， 请不要过分的依赖中共国的市场。**
-
-**新闻来源链接：**
-
-🔗[„Was dort passiert, ist ein gigantisches Menschheitsverbrechen“](https://www.wiwo.de/politik/ausland/adrian-zenz-ueber-china-was-dort-passiert-ist-ein-gigantisches-menschheitsverbrechen/27065852.html?utm_source=pocket-newtab-global-de-DE)
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/1050010/](https://gnews.org/zh-hans/1050010/)
 
 * * *
 
-***审核/校对：**Ting Guo*
+翻译：【rainbow】字幕：【Rock小哥】二校：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-（免责声明：本文仅代表译者个人观点，跟GNEWS平台无关。）
-
-+1
+0
