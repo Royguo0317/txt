@@ -1,63 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210408（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1066378/)
+## [疫情下的西班牙]面对疫苗严重副作用频现我们该何去何从？
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1066330/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+- 作者：gokuabuela
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-1-1.jpg)
+**西班牙2021年4月8日电/西喜社——**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-2-1.jpg)
+据ABC新闻4月8日报道，根据EMA安全委员会（PRAC）的分析发现，与阿斯利康疫苗有关联的血栓病例 “主要发生在注射第一剂疫苗后两周内的60岁以下女性，因为第二剂疫苗的经验还很有限”。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-3-1.jpg)
+鉴于这些结论，卫生部长卡洛琳娜-达里亚斯在自治区间的卫生委员会会议上建议将其使用范围限制在60岁以上的人。据ABC新闻报道，这一决定没有得到马德里地区的支持。巴斯克地区和休达投了弃权票。这是战略上的彻底改变。直到现在，阿斯利康的疫苗都是给65岁以下的人注射的，正是因为对老年人的疗效缺乏信心。自2月以来，已有210多万人接受了该疫苗的首剂注射，97人已完成全部疗程。大多数是教师、警察和基本服务人员，以及56至65岁的人。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-4-1.jpg)
+那么问题来了，那些已经接种过一剂阿斯利康疫苗，60岁以下的人怎么办？
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-9.jpg)
+请看另一篇报道：“我们不愿意成为部分免疫的人”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-2-1.jpg)
+另据ABC新闻4月8日报道，周三欧盟所有卫生部长召开紧急会议，随后几个国家决定限制接种阿斯利康的疫苗。在西班牙，只有97人接种了两剂牛津大学研制的疫苗，而2,154,675人接种了第一剂。主要是教师、 消防员、 和警察，他们大多数为60岁以下。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-3-1.jpg)
+“我们确实想要它，但是需要有证据表明它确实有保护作用，”在提到阿斯利康的第二剂疫苗时，何塞-伊格纳西奥-希梅内斯（José Ignacio Jiménez）说，他是克莱特学校的主任，也代表了这家隐修院的其他教师。他坦言，希望是 “科学依据占上风”，希梅内斯说：”我们的想法是，政府需要寻找一种可行的、科学的情况，他们一定会找到。”。据介绍，这所学校原本应在5月下旬至6月上旬之间接种第二剂阿斯利康疫苗。在这个意义上说，卫生部长卡罗莱纳-达里亚斯周四表示，”还有时间做出最好的决定”。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-4-1.jpg)
+本周四，中央独立工作者和公务员工会 (CSIF)要求召开紧急会议，向卫生部和教育部报告第一手的阿斯利康公司的疫苗接种情况。何塞-安东尼奥-R-巴恩斯（José Antonio R. Barnes），马德里社区的一名教师证实，情况的不断变化让他产生了 “焦虑和恐惧的状态，期望一切都正在解决“。他想知道 “他们是不是要拿我做实验，再给我打第二针？“这位老师在2月28日接种了疫苗，当时感觉是： “非常高兴，因为我很想接种疫苗”，但随后血栓事件的发生，我就开始感到不确定和不安。”他现在回忆道。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-5-1.jpg)
+另一方面，私立和独立学校协会(CICAE)也表现出对暂停疫苗接种计划的担忧，并要求有一个明确的路线图，以了解在这个过程中对教师将采取什么措施。”对这些专业人员接种疫苗的额外延迟非常让人担心，他们已被证明在大流行期间至关重要，”私立和独立学校协会(CICAE)总干事艾琳娜-希德（Elena Cid）说。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-6-1.jpg)
+马德里地区的一名消防员向ABC新闻坦言，他觉得自己 “有点像豚鼠”。”所有的研究都应该更早一些，在之前就看到这些问题。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-7-1.jpg)
+一名同样接种了阿斯利康疫苗的警察坦言，他将遵守当局的任何决定。他对欧盟内部已经在研究的，可能的解决方案，持积极和自信的态度。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-8-1.jpg)
+**简评：**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-1-2.jpg)
+**疫苗出问题是迟早的事，闫博士早就说过。除了马利克，没有人研究过抗体对人体的副作用。比如阿斯利康疫苗为什么会激活体内的凝血因子？欧盟相关机构之前没有做过这方面的研究，事情发生后短短几天，就做出了“这是非常罕见的副作用“的结论，这是极其不负责任的，他们根本没有弄清楚发病的机理、诱因、解决方法。换句话说，也就是“我们尽量给风险相对较小的人群使用，发病率也不高，谁中奖了就自认倒霉吧，反正大多数人不会有事的。”**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-5-1.jpg)
+**除了血栓，是否还有可能引发别的疾病？从中共发动超限战到现在，欧洲、美国从来就没有采取过正确的行动，比如如何对待硫酸羟氯喹，比如带口罩政策，比如大搞疫苗经济。这背后隐藏着复杂的政治因素和经济因素，但到了今天，面对疫苗问题，还采取这样敷衍的态度，完全没把民众的生命当回事。**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-6-1.jpg)
+**这个世界确实需要涅槃，无法想象，依靠这样的政府，这样的方法，能够对抗中共，能带领民众取得抗疫的胜利？再次为自己加入了爆料革命而感到幸运。**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-7-1.jpg)
+**而作为欧美的民众，长期生活在优越的环境中，思想都非常的“傻白甜”，还天真的相信有科学依据，相信政府能正确的解决问题。还需要付出多大的代价，才能认识到疫苗的问题？最根本的是要认识到政府没有走在正确的道路上！**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-8-1.jpg)
+**我们也需要加强对西班牙民众推广真相，让大家早点觉醒。**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-9-1.jpg)
+编辑：Victor Torres；校对:阿伯塔 ；组稿：神奇四侠；发稿：信心的选择
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-10-1.jpg)
+**新闻来源：**[ABC新闻](https://www.abc.es/sociedad/abci-sanidad-propone-comunidades-mantener-vacunacion-astrazeneca-mayores-entre-60-y-65-anos-202104072114_noticia.html#vca=mod-lo-mas-p1&amp;vmc=leido&amp;vso=sociedad&amp;vli=noticia.foto.sociedad&amp;vtm_loMas=si%20https://www.abc.es/sociedad/abci-desconcierto-entre-vacunados-dosis-no-queremos-inmunizacion-parcial-202104081354_noticia.html)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-11-6.jpg)
+[西班牙巴塞罗那喜悦农场：疫情下的西班牙专栏](https://gnews.org/zh-hans/993776/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-12-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-13-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-14-1.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
-
-0
++1

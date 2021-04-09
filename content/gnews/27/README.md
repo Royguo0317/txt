@@ -1,59 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世界经济像泰坦尼克号一样即将撞向冰山&nbsp; 霍尔木兹海峡和苏伊士运河还会出事
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1066681/)
+## 加主流媒体的烽烟(三)：面对“诈狼”舞爪，加拿大能否绝境逢生？
+` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1066197/)
 
-**简述：郭先生在****2021****年****4****月****4****日的盖特视频中，警告说全世界的经济将像泰坦尼克号一样撞向冰山；石油和黄金价格没有大的起伏，但不可能持续；中共一定还会在霍尔木兹海峡和苏伊士运河搞事；这中间只有新中国联邦在救人，一定要让这个船沉不下去。**
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210404-getter1.srt.txt)
-**世界经济像泰坦尼克号一样即将撞向冰山****  ****霍尔木兹海峡和苏伊士运河还会出事**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/tudou.png)
+加拿大魁北克主流媒体《魁北克日报》(JOURNAL DE QUÉBEC)于4月6日刊登了由该报特邀时政专栏评论员，蒙特利尔大学政经学者，当地知名中共国问题分析专家洛伊克·塔塞（Loïc Tassé）撰写的系列剖析研究中共政权根本面目的系列论文之有关当前加中外交关系状况的时评文章。本文通过分析习近平高压治下的中共政权其明目张胆的霸凌侵掠本质，来说明加拿大应该就此采取的合理应对措施，并提出“联美盟欧，携手印度”同抗中共暴政的外交策略。全文编译如下：
 
-**The World Economy Is Hitting an Iceberg Like the Titanic; Something Will Happen Again at the Strait of Hormuz and Suez Canal**
+随着中共政权的支配影响力在全球范围内的迅速扩张，加拿大是否应该因此改变其对中共国的外交方针呢？实际上，这个问题已经过时了。因为无论如何，中共国早已调整了对付加拿大的政策。对此，我们别无选择，只能试图采取相应措施以面对来自该政权嚣张失控的压力。
 
-兄弟姐妹们长话短说。从昨天到现在，真的我有两个深刻的感受。我就感觉到世界的经济和世界的政治，甚至全世界人民，就像这个泰坦尼克号要撞向雪山一样。后来当时也有人说强大的激光术，干掉了泰坦尼克号。就是你就觉得那个泰坦尼克号撞向山的感觉，全世界的政治，经济和人民的安全。就这几天你能听到的就是，所谓的有身份的人、政治[届]的人、情报界的人，就说出了打疫苗的后遗症，吓死人了。
+对于中共国而言，加拿大曾经是温柔，善良的“北欧巨人”，我们甚至有勇气在美国政府面前承认当时由毛泽东统驭的共产中国。同时，加拿大还是中共国及时获得北美先进科学技术的重要猎场。
 
-From yesterday till today, I indeed had two profound feelings. I felt that the world economy and politics, and even the people of the world are just like the Titanic about to hit the iceberg (though later someone said that Titanic was taken down by laser ray). You just feel that the whole world’s politics, economy, and people’s safety are going to hit an iceberg like the Titanic did. Also the past few days I heard from the so-called men of class and people in the political and intelligence fields talk about the side-effects of the [CCP virus] vaccine. Very scary!
+有人可能认为，随着华为副总裁孟晚舟在加拿大的被捕以及两名加拿大公民因此被中共劫持并羁押为人质后，两国外交关系的情况才开始发生了本质变化。
 
-第二个就是世界的经济。你听到玩金融的，现在真的是瑟瑟发抖，在瑟瑟发抖的时候，眼神始终看着有没有机会弄块儿大的。贪婪啊，贪婪啊，都不想失去，都想趁此机会捞一把。你就觉得泰坦尼克号撞向山上去的感觉。
+但事实并非如此。令人记忆犹新的是，早在2016年，加拿大时任外交部长史蒂芬·狄翁（Stéphane Dion）和中共外交部长王毅之间的那次双边会晤就非常糟糕。当时王毅对狄翁那副满溢轻蔑和傲慢的嘴脸，毫无隐瞒地昭示了当今中共政权特有的所谓“战狼式”疯狂的自戕外交道路。
 
-The second one is the world’s economy. You’ve heard that people in the financial sector are trembling now. While trembling, they also keep watching to see if there is any chance for them to make a big fortune from this. Greedy! No one wants to lose, everyone wants to catch a quick buck if there is a chance. This makes you develop the feeling of the Titanic about to hit the iceberg.
+由始至终，中共当局都非常迫切希望与加拿大政府达成自由贸易协定，但显然由于该协定中的许多不合理霸凌条款，而导致加拿大无法接受而未能签署。
 
-另外就能感觉到中国共产党的疯狂，真的是，你就觉得魔鬼它一旦占到上风以后，那种狰狞的笑，“哈哈哈哈” 就是那种感觉，疯狂，就是灭亡前的疯狂。太多的这些现象没法形容。大家都知道泰坦尼克号…就那么多人，就那两三个人说出要撞山了，玩球蛋了，还有几个人的忧虑都发生了。
+正是从那刻起，中加两国关系开始逐渐恶化。与此同时，(因为川普总统的当选)中美关系也在日趋紧张。
 
-On the other hand, you can feel the craziness of the CCP. Indeed, you can now feel the ferocious laugh from the demon when it occupies the high ground – madness and craziness before perishing. Too much stuff like this, which is hard to describe. You all know about the Titanic. But among so many people onboard, there were only two or three of them that spoke out that they were going to hit the iceberg and going to die, which was proved to have occurred.
+毋庸置疑，加拿大目前是不可能独自单挑中共霸权的。因此，与美国还有其他国家组成联盟并在人质外交事件上向中共积极施压才是相对合理正确的选择。
 
-现在我就觉得我们整个爆料革命，就像世界的泰坦尼克号一样，要出苏格兰到纽约去了，玩大的玩高级的，但是都为了那个奢华，所谓的贵族的体面，人类的虚伪和懦弱，不敢面对真相，一步又一步的错误，最后“咣叽”撞上了冰山。太可怕了！但这里面毕竟有英雄人物，也有脱险的人，那就是咱新中国联邦，就咱新中国联邦。就是我们在救人，最后我们离开了泰坦尼克号。
+但是，面对中共不断加码的文攻武迫，加拿大经已无路可退，必须果断采取措施以应对，并坚决跟随美国一起与中共抗争到底。因为美国目前仍然是最强大的民主国家，而加拿大要想与中共这样的极权国家为伍作伥是绝不可行的。
 
-Now I feel that our entire Whistleblower Movement (BM) is in the midst of this world which is exactly like the Titanic, leaving Scotland to New York, trying to play a big, high-end game, chasing for luxury and the so-called decentness of the nobility driven by the hypocrisy and cowardice of humanity, and lacking the courage to face the truth, making mistakes step by step, and finally hitting the iceberg. How frightening! Yet, after all, there are brave people who can escape,  which is our New Federal State of China (NFSC). It is our NFSC that is saving lives and, in the end, escaping the Titanic.
+而且从未来发展和战略需要来看，美国的经济市场要比中共国的贸易重要得多。因此，失去美国支持和帮助的后果远比失去中共国市场带来的短利要严重得多。
 
-当然了这个也许有人顺手想拿点金子银子的，这事别想，开玩笑，爆料革命当中，有些人一定要意志坚定，我们是拯救这个大船的，我们不是等船沉了救人，一定要让这个船沉不下去。
+无论如何，中共国市场对制成品进口基本上是封闭的。此外，中共政府强烈表示愿意优先与其新丝绸之路国家进行贸易合作。而加拿大却不在这些一带一路国家范畴之中。
 
-Of course, there might be people who want to get themselves some gold and silver [make personal profit] from this. Don’t even think about it. Kidding. In our WM, people must be determined. We are saving this big ship rather than waiting for the ship to sink and then saving people afterwards. We must make the ship unsinkable.
+有鉴于此，魁北克和加拿大的生产商和企业必须全面发展其市场的多样化。因为美国在亚洲的盟国，比如印度和东南亚大多数国家，很可能都会逐步取代中共国现有的商品生产市场。
 
-大家看到黄金，黄金最近有大动静了吗？没有大动静，石油怎么样？有回落，有大起伏吗？没有。你觉得这样会下去吗？不可能。霍斯姆海峡、苏伊士运河，你觉得还会出事儿吗？还会出事儿。你打台湾是什么样？你想跑那跑得了吗？你跑不了。为什么现在数字货币、加密货币这么厉害？每个人都恐惧，知道这个世界正在撞向冰山。在撞向冰山前，有人还想拉小提琴，还想听听音乐，是吧？那你尽管，但最后一定葬身在水里面的是你，这就是今天世界政治经济的现状。
+同样，至少在习近平和其政府御政之时和将来，加拿大必须下定决心最小化与中共国之间的双边贸易往来。
 
-Does anyone see any big fluctuations in gold price lately? Nothing big. How about the oil price? It goes down a little. Are there any big ups and downs? No. Do you think this will last long? Impossible. Do you think something will happen again at the Strait of Hormuz and Suez Canal? Yes, it will happen. What will it be like if you attack Taiwan? Do you think you can get away with it? No, you can’t. Why are digital currencies and cryptocurrencies so strong now? Everyone is in fear, knowing the world is about to hit an iceberg. Before hitting the iceberg, some people want to play violin and listen to music, right? Do what you want, but you will be the one buried deep in the water in the end. This is the current status of the world’s politics and economy.
+现在，美国彻底改变针对中共国的外交政治策略是确凿且持久的。同时，中美之间的冷战肯定是不可避免的。
 
-兄弟姐妹们，一定要看得更清楚一点，看得更明白一点。现在到啥时候了？你看看听说华尔街看到那些朋友，每个人现在是自己大房子，现在赶快抵押贷款，而且是不赎回的，不赎回啥意思？我还不了钱，我就不赎回了，而且都不要个人的 Guarantee，都卖公司的，而且打大折。很多金融资产都往外卖，很多人都想跟我们换 GTV股份、G-Coin，门儿都没有，这就是现在的形势。
+至于加拿大能否在例如环境等某些无关紧要的问题上与中共国合作？这当然可以。但除此之外，我们万万不能与中共习近平这样的极权政府进行更深层的合作，因为后者将毫不犹豫地利用其惯施的商业勒索和贸易侵掠等卑劣手段，来倾力推进其扼杀民主人权和基本自由的灭顶之战。
 
-Brothers and sisters, please look through things more clearly. What a critical moment is it right now? Look at it. I heard from some friends in Wall Street that everyone is now hurried to mortgage their big houses without redemption rights. What does that mean? If I cannot pay back the mortgage, I will not redeem the house. Moreover, no one uses a personal guarantee, rather they sell to companies and give them big discounts. Many are selling their financial assets to exchange for GTV shares and G-Coins. No way. This is the current situation.
+(全文完，待续。)
 
-兄弟姐妹们，一定这个时候要搂住。世界巨变前，当你搂不住的时候，一定是大灾大难伴随着你。拜托了，此时不要贪，此时不要有幻想，此时要有各种防范。兄弟姐妹们，珍惜你现在能听到七哥直播和盖特的机会，珍惜你现在拥有的自由，珍惜你拥有的健康。人类从来没像现在这样面临着一切的重大的改变和重大的挑战，当然了有智慧、有本事的人是机会。愿成为每个战友所有人的机会吧，谢谢了。
+正是：
 
-Brothers and sisters, we must hold ourselves at this critical moment. Facing the world’s immense change, if you cannot hold yourself, great disasters will find you. Please, don’t be greedy at this moment, stop dreaming at this time. Please use pre-caution measures at this time. Brothers and sisters, please cherish the moment when you can still watch my broadcasts and Getter videos. Cherish the freedom that you are enjoying now. Cherish the healthiness you have. Humanity has never ever faced such a huge change and challenge like this before. Of course, it presents opportunities for people with wisdom and capabilities. I hope this can be an opportunity for every fellow fighter. Thank you!
+政陷囹圄难自知，审时度势意还迟。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/6069cd0cdbc8001854a56773](https://gtv.org/getter/6069cd0cdbc8001854a56773) (00:17-1:47, 2:31-3:39, 5:55-6:40, 8:30-结束)
+诈狼狰狞啮齿现，正是联美扼共时！
 
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1049756/](https://gnews.org/zh-hans/1049756/)
-
-* * *
-
-翻译：【7PawBear】字幕：【Rock小哥】二校：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+[原文链接](https://www.journaldequebec.com/2021/04/06/comment-le-canada-doit-il-se-comporter)
 
 0

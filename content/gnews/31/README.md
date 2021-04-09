@@ -1,62 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭爆料串珠（225）金灿荣是共产党官方承认的高级的咬人的狗
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1066675/)
+## 世界经济像泰坦尼克号一样即将撞向冰山&nbsp; 霍尔木兹海峡和苏伊士运河还会出事
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1066681/)
 
-**简述：金灿荣是共产党官方承认, 高级的咬人的狗。他对庞毕奥、拜登、川普、中美贸易的解读，可以判断出共产党想干啥。就是中共需要时间，把灭白计划进行下去，把白人内部种族矛盾挑起来，把美元灭了，再把美国打趴下。共产党称霸世界。——郭文贵2021年2月25日**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-13-10.jpg)
-封面图文：金灿荣那个垃圾啊！现在美国政府已经把他名字列入（名单）：张召宗、李毅、金灿荣，下一步开始再来美国就收拾他。——郭文贵20年11月30日
+**简述：郭先生在****2021****年****4****月****4****日的盖特视频中，警告说全世界的经济将像泰坦尼克号一样撞向冰山；石油和黄金价格没有大的起伏，但不可能持续；中共一定还会在霍尔木兹海峡和苏伊士运河搞事；这中间只有新中国联邦在救人，一定要让这个船沉不下去。**
+[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210404-getter1.srt.txt)
+**世界经济像泰坦尼克号一样即将撞向冰山****  ****霍尔木兹海峡和苏伊士运河还会出事**
 
-2019年5月11日
-作死嘛，怎么都是死，你还想死的比那萨达姆好点儿，齐奥塞斯库好点儿，你还想比那卡扎菲好点儿，那你就老老实实别拿中国老百姓绑在战车上，你们去玩儿去。你们要真有种，把你们的孩子、家人、侄子、钱全拿回中国去。老子也陪着你玩儿。你们把你们的老婆孩子、亲戚、祖宗八辈儿的、私生子女全送到美国来了在中央公园儿，然后让中国老百姓现在要吃草，三年吃草。要跟美国乾，要领导全世界。
+**The World Economy Is Hitting an Iceberg Like the Titanic; Something Will Happen Again at the Strait of Hormuz and Suez Canal**
 
-什么中国人不怕苦不怕累，勒紧腰带。谁勒紧腰带？你勒紧了吗？然后九千万党员天天没早没晚的没个週末，全身都是病。那警察都让你们弄坏了。那警察也是人啊。他也有老婆孩子，他有爹妈啊。早上交警吃车屁，晚上回家受老婆的气。刑警出去抓坏人，回家裡面被家裡老婆修理。整个社会都是陷害，都是埋怨，都是怕得病。最怕的就是得了癌症病，一个月几万。这几万还被共产党的家族给垄断了，就你们能卖。连药你们都给弄乱了。然后你们要挑战美帝国主义。我就问问所有国内被洗脑的同胞们，你有啥本事挑战人家美国？
+兄弟姐妹们长话短说。从昨天到现在，真的我有两个深刻的感受。我就感觉到世界的经济和世界的政治，甚至全世界人民，就像这个泰坦尼克号要撞向雪山一样。后来当时也有人说强大的激光术，干掉了泰坦尼克号。就是你就觉得那个泰坦尼克号撞向山的感觉，全世界的政治，经济和人民的安全。就这几天你能听到的就是，所谓的有身份的人、政治[届]的人、情报界的人，就说出了打疫苗的后遗症，吓死人了。
 
-你看中国有两个大家叫金灿荣，还有张召忠，张局。那个天天喊反美。从打南斯拉夫，就美国完了，美国完了。打萨达姆，美国完了，美国完了。人家美国都把那个坦克兵都拿下了，哎呀美国兵还没进来主力部队呢。，揍死了个球的了。然后打卡扎菲，美国完了，美国完了！」
+From yesterday till today, I indeed had two profound feelings. I felt that the world economy and politics, and even the people of the world are just like the Titanic about to hit the iceberg (though later someone said that Titanic was taken down by laser ray). You just feel that the whole world’s politics, economy, and people’s safety are going to hit an iceberg like the Titanic did. Also the past few days I heard from the so-called men of class and people in the political and intelligence fields talk about the side-effects of the [CCP virus] vaccine. Very scary!
 
-结果我那天看个节目。张召忠在一个节目穿一身西装，打一蝴蝶结，穿上来了。哎呦! 我的妈啊！我说实在话，我既想拉肚子，我又想吐，我眼睛还流眼泪。我真被张召忠先生你虐了我啦。怎么也是一票人物啊？怎么这么牛的人，穿着这么不自在的蝴蝶结，还得铮着脖子，走道不会走了。好像那个腰啊，好像板了腰似地上去了。（郭文贵先生模彷张召忠）「啊。我们这个今天很好的。啊，现场啊，前半部是我来讲讲这个中美的这个武器啊。F35啊。」 哎呦我的妈啊 ！哎呦我的妈！我真受不了了。（笑）
+第二个就是世界的经济。你听到玩金融的，现在真的是瑟瑟发抖，在瑟瑟发抖的时候，眼神始终看着有没有机会弄块儿大的。贪婪啊，贪婪啊，都不想失去，都想趁此机会捞一把。你就觉得泰坦尼克号撞向山上去的感觉。
 
-就这人能在中国溷几十年。佩服！中国这地方好活啊！一骗不得逞，二骗必能行。二骗不能行，三骗必得逞。三骗不得逞，四骗五骗六骗七骗总得行。这就是中国共产党的逻辑。用岳文海的话说：「别管瞎话真话，你儘管说。你说的多了，他就信了。」你没想过张召忠，他最恨的就是西方跟美国。打着蝴蝶结坐在那讲军事，然后金灿荣坐他对面。然后
+The second one is the world’s economy. You’ve heard that people in the financial sector are trembling now. While trembling, they also keep watching to see if there is any chance for them to make a big fortune from this. Greedy! No one wants to lose, everyone wants to catch a quick buck if there is a chance. This makes you develop the feeling of the Titanic about to hit the iceberg.
 
-（金灿荣）说美国收拾掉了几个老二，叫灭老二专业户。然后日本人是变态的民族。然后中国人不团结，美国人比中国人还不团结，东欧还不团结，非洲不团结到各族杀一百多万人。
+另外就能感觉到中国共产党的疯狂，真的是，你就觉得魔鬼它一旦占到上风以后，那种狰狞的笑，“哈哈哈哈” 就是那种感觉，疯狂，就是灭亡前的疯狂。太多的这些现象没法形容。大家都知道泰坦尼克号…就那么多人，就那两三个人说出要撞山了，玩球蛋了，还有几个人的忧虑都发生了。
 
-你一听有道理吧？一般人都听有道理。就问两个问题就行了。他们杀了一百多万人是在什么情况杀的，我们文化大革命杀了几千万人是谁杀的？是同族还是非同族？而且杀我们几千万人的就是谁？就是同汉同宗同族，而且许给中华人民民主、法制、自由的中华人民共和国的创始人。最后把自己的战友全杀了。你这流氓共产党就溷蛋话往这儿说。好像一说这世界，（自己）强大的不行了，美国不行了。那美国不行你别跟人家谈啊？像你对付菲律宾一样，像你对付台湾一样，像你对付印度、巴基斯坦一样，你对付对付美国啊？那美国人一个屁都崩死你了。
+On the other hand, you can feel the craziness of the CCP. Indeed, you can now feel the ferocious laugh from the demon when it occupies the high ground – madness and craziness before perishing. Too much stuff like this, which is hard to describe. You all know about the Titanic. But among so many people onboard, there were only two or three of them that spoke out that they were going to hit the iceberg and going to die, which was proved to have occurred.
 
-中共说美国人不可爱了，不幽默了，太敏感了。你说天底下哪有这样，人家跟你做生意，签合同。你说你很穷，需要WTO卖给我东西。行，签了合同了。中共说：「你看我现在穷，我有时候坏毛病我也不守法。你让我穿上西装嘛，我就跟你一样了嘛。多给我点钱，家裡孩子多。我十四亿人。」美国人信了，签了WTO。你的GDP从1.4万亿直接乾到了14亿，十倍。2001年到2019，十七年，在这些年所有合同裡边签的我（美国）给你（中共）的我都给了，你给我的，基本不给。不但不给，我家人上你家做生意还得把技术留下，挣的钱外汇还不能拿走。
+现在我就觉得我们整个爆料革命，就像世界的泰坦尼克号一样，要出苏格兰到纽约去了，玩大的玩高级的，但是都为了那个奢华，所谓的贵族的体面，人类的虚伪和懦弱，不敢面对真相，一步又一步的错误，最后“咣叽”撞上了冰山。太可怕了！但这里面毕竟有英雄人物，也有脱险的人，那就是咱新中国联邦，就咱新中国联邦。就是我们在救人，最后我们离开了泰坦尼克号。
 
-就这还不算，然后自己钱多了还在在旁边找一个哥们儿：「我要当老大了，我要乾掉当年帮我的这个老大–美国，我要对付他。然后搞个一带一路，然后别花美国钱了，花我人民币吧。然后我这孩子不听话，新疆人抓他两百万进监狱去，不行给他喂药，不行一个村一个村给他杀了。西藏人，杀了。中国人知道太多了，那不行，网络给我关了，把耳朵给他关上。眼睛看太多，把眼睛闭上，嘴给他缝上。不行给他跑到国外去的发红通。咱再派个主席过去。
+Now I feel that our entire Whistleblower Movement (BM) is in the midst of this world which is exactly like the Titanic, leaving Scotland to New York, trying to play a big, high-end game, chasing for luxury and the so-called decentness of the nobility driven by the hypocrisy and cowardice of humanity, and lacking the courage to face the truth, making mistakes step by step, and finally hitting the iceberg. How frightening! Yet, after all, there are brave people who can escape,  which is our New Federal State of China (NFSC). It is our NFSC that is saving lives and, in the end, escaping the Titanic.
 
-2019年6月13日
-你像那郭宝胜当牧师，他相信他自己是牧师吗？他知道自己不是牧师。人家路德先生介绍他认识几个教会的人，他马上说你捐我点儿钱吧，他的目的就是捐钱，马上，你说有这么不要脸的人吗？他不是牧师。共产党现在不是这样，他觉得我是牧师，我就是牧师，我就是代表上帝，我就是上帝的agent（中介），我就是要跟你要钱，这太恐怖了，我还要你命啊，所以培养出来许焰，金灿荣，还有那个张召忠。
+当然了这个也许有人顺手想拿点金子银子的，这事别想，开玩笑，爆料革命当中，有些人一定要意志坚定，我们是拯救这个大船的，我们不是等船沉了救人，一定要让这个船沉不下去。
 
-2019年8月6日
-大家接下来会看到，为啥我说：世界将会巨大的改变？我可以告诉大家，第一个最重要的事情，美国正式宣佈在亚洲部署中程导弹，（意义）远远大于这个货币操纵国。它会在哪部署？大家走着看！
+Of course, there might be people who want to get themselves some gold and silver [make personal profit] from this. Don’t even think about it. Kidding. In our WM, people must be determined. We are saving this big ship rather than waiting for the ship to sink and then saving people afterwards. We must make the ship unsinkable.
 
-未来共产党最害怕的最不希望的是台湾，台湾一旦佈置上中程导弹，甚至大家心照不宣的佈置核武器的时候，你说共产党会做什么，他把台湾炸了？像那个叫什么金灿荣说的，那个溷蛋说台湾20万军人就是肉、炮灰，几个小时就打下，吹狼蛋呐你在那，吹狼蛋呢你。
+大家看到黄金，黄金最近有大动静了吗？没有大动静，石油怎么样？有回落，有大起伏吗？没有。你觉得这样会下去吗？不可能。霍斯姆海峡、苏伊士运河，你觉得还会出事儿吗？还会出事儿。你打台湾是什么样？你想跑那跑得了吗？你跑不了。为什么现在数字货币、加密货币这么厉害？每个人都恐惧，知道这个世界正在撞向冰山。在撞向冰山前，有人还想拉小提琴，还想听听音乐，是吧？那你尽管，但最后一定葬身在水里面的是你，这就是今天世界政治经济的现状。
 
-你没想到你能有这个能力的时候，别人也有这能力。你还敢吗？你就欺负中国老百姓，那对你来讲就是14亿人肉，你想怎么切就怎么切，对待台湾那不是。你对待美国什么把整个亚洲的导弹基地和美军驻地全部炸毁，航空母舰炸毁，你开玩笑，美国等着你炸？多荒唐等你炸，你炸吧，炸完以后我再搬石头砸我自己脚，是不是啊，整天在那瞎吹。
+Does anyone see any big fluctuations in gold price lately? Nothing big. How about the oil price? It goes down a little. Are there any big ups and downs? No. Do you think this will last long? Impossible. Do you think something will happen again at the Strait of Hormuz and Suez Canal? Yes, it will happen. What will it be like if you attack Taiwan? Do you think you can get away with it? No, you can’t. Why are digital currencies and cryptocurrencies so strong now? Everyone is in fear, knowing the world is about to hit an iceberg. Before hitting the iceberg, some people want to play violin and listen to music, right? Do what you want, but you will be the one buried deep in the water in the end. This is the current status of the world’s politics and economy.
 
-台湾、菲律宾，还有可能是他更难以想象的，就在你的西侧，尼泊尔，甚至现在他非常紧密的土耳其，甚至东欧国家，围着你一圈，韩国就不用说了，全部是中程导弹，而且都能带核武器的，你开啥玩笑，吹什么呢？
+兄弟姐妹们，一定要看得更清楚一点，看得更明白一点。现在到啥时候了？你看看听说华尔街看到那些朋友，每个人现在是自己大房子，现在赶快抵押贷款，而且是不赎回的，不赎回啥意思？我还不了钱，我就不赎回了，而且都不要个人的 Guarantee，都卖公司的，而且打大折。很多金融资产都往外卖，很多人都想跟我们换 GTV股份、G-Coin，门儿都没有，这就是现在的形势。
 
-2020年11月30日郭先生GTV直播
-这帮孙子，新京报也不是什么好东西，新京报一帮垃圾、一帮骗子，敲诈勒索，更不是什么好东西，新京报——垃圾！我告诉你。新京报多次在北京敲诈我，哪个记者来都要钱，哪个记者都要钱，打着正义的幌子要钱，都是玩钱的，都不是什么好东西！金灿荣，对了！那个孙子，金灿荣那个垃圾啊！现在美国政府已经把他名字列入到，啊，张召宗、李毅、金灿荣，下一步开始再来美国就收拾他，还有那个溷蛋叫司马南啊，这绝对是美国政府要收拾的啊！胡锡进是肯定的啊！胡锡进是美国要定点消灭的对象，走着看，啊！胡锡进这孙子是美国定点要消灭的对象！
+Brothers and sisters, please look through things more clearly. What a critical moment is it right now? Look at it. I heard from some friends in Wall Street that everyone is now hurried to mortgage their big houses without redemption rights. What does that mean? If I cannot pay back the mortgage, I will not redeem the house. Moreover, no one uses a personal guarantee, rather they sell to companies and give them big discounts. Many are selling their financial assets to exchange for GTV shares and G-Coins. No way. This is the current situation.
 
-2020年12月9日
-金灿荣，对，刚说的金灿荣。他和金灿荣、张召忠、李毅、司马南这帮孙子，都是一个大忽悠。根本是骗钱，骗色，未来你们会明白。等有时间好好跟你们聊聊。
+兄弟姐妹们，一定这个时候要搂住。世界巨变前，当你搂不住的时候，一定是大灾大难伴随着你。拜托了，此时不要贪，此时不要有幻想，此时要有各种防范。兄弟姐妹们，珍惜你现在能听到七哥直播和盖特的机会，珍惜你现在拥有的自由，珍惜你拥有的健康。人类从来没像现在这样面临着一切的重大的改变和重大的挑战，当然了有智慧、有本事的人是机会。愿成为每个战友所有人的机会吧，谢谢了。
 
-2021年2月26日
-金灿荣这个视频太牛叉了，这个视频一下子在西方引起了巨大轰动，要把美国打服了这句话，包括中共的排法，金灿荣和胡锡进绝对是共产党养的最好的高级的、官方的承认的两个咬人的狗。你可以从这两个人的行为判断共产党的政策，外国人经过爆料革命、gtv\gnews以后，他们认识到了金灿荣和胡锡进，特别是影响比较大的，在这个病毒之前，我们对张召忠、金灿荣、胡锡进一再推荐把他们搞火了。金灿荣这段视频都发到各地情报军事宗教科技部门之后，很多人有感触，这些视频很受用。再播一遍的目的告诉大家，不要把爆料革命和重要政治观点当成娱乐，这就不好玩了，这是重要视频。
-2.金灿荣这个要把美国打服，对蓬佩奥、对拜登、对川普评价，对贸易本质的评价，对四年以后的评价都能看出共产党想干什么。共产党想干什么大家都很清楚，给它时间执行灭白计划，把美国 美元干垮，本质就在这里，就是给时间，把白人种族性挑起来，然后称霸世界，就这么简单。要执行这个计划，要怎么办？大家想想。所以说兄弟姐妹们，这个王八蛋说这些话对爆料革命、灭共事业有巨大帮助，西方要证据，这哥们送证据。另外一个，通过这个视频，判断对台湾香港的整个看法。香港已经是一个省了，下一个就是台湾，所谓中美安全问题，不会打仗，只会蓝金黄，搞病毒，但是他要打台湾，但是打台湾美国会不掺乎吗？所有希望都是搞垮美国经济，蓝金黄，到打台湾的时候美国没钱没能力。到那时候美元已经完蛋了，掺乎啥呀，跟你啥关系，没有能力对付这个事了，这才是他真正的打算。打台湾的时候内部蓝金黄没有任何人支持你掺乎台湾，这不就完了吗，国会不同意、总统被蓝金黄了，谁还来支持你啊？就是你想打，你也没有这个钱和能力，台湾真的是太危险了。然后有战友发信息说，台积电75%都是外国人控股，为什么股票没有跌，还没有任何变化？一个基本常识，如果股票已经开始抛了，这些人开始跑了，那就不是现代战争，那是大清朝以前的战争。伊拉克都已经坦克到了、大兵压境，房地产还涨呢？看看日本东京，房地产还在涨，这是一个基本的经济认识。台湾为什么股票不跌，你卖了你钱去哪儿？全世界都在qe，美国股市还在大涨呢，现在川普总统，川普说我当总统以来有史以来最好经济，川普总统做这一锅饭想的是八年的饭，中间叫人给踢出去了。但凡有脑子的会知道这锅饭是川普做的，但是没脑子的认为是拜登做的，核心在哪里？核心是这个经济是泡沫。台积电这样的企业，它往哪儿跑？哪里卖？昨天沼泽地大佬见面，其中一个人说了一句话，金融江湖老大，他说世界上现在因共产党冠状病毒导致社会结构变化、生产力需求变化、全球生活方式变化，将影响人类百年千年无限长。对世界金融影响，因为导致货币印发和政府只想活着，就把二战后所有稳定金融系统和经济都要消费掉，对世界金融是致命打击，现在是真的感觉到了，布雷森系统垮掉后，世界新的金融系统正在建立中。这是共产党想要的，新中国联邦得蹭点，这是为什么有g系列。接下来对所有中国人的内部的高压统治会超出想象，把经济国有化，国有化数字超出大家想象。所有一个像希特勒一样要统治全世界的，任何一个国家，不可能在财富不集中、政治不稳定的情况下打仗，这就是二十大，人民江湖都是我的，我指定的所有接班人都是人民接班人，江湖的主人，江山和江湖就是沼泽地，就是老大，天下万物江湖的老大，制定规则、修宪改宪，这就是今天的江湖，政治江湖、金融江湖。江湖就是今天所说的沼泽地，世界的老大。人家习讲的是，1949年，共产党抢劫中国人民权利的那一年，人家天站在天安门上说的，他爹有信用啊。1949年我爹建立共产党、建立中国啊，当年就说了，江湖是人民的，咱为人民服务嘛，所以咱代表人民，那么我们选出来的接班人不能否定，华国锋，江山老大指定的人你怎么能推翻，那是不对的。所以，所有的玄机都在这里，就像很简单，郭先生的儿子和台湾一个基金合作，在决定投资的时候，台湾、美国、欧洲所有人都不同意，大家都觉得你太年轻，讲了几个关键点和数据，人家问他，数据哪儿来的？郭先生儿子喊了一嗓子，我爹告诉我的，我爹说的。大家全傻眼了，通过，结果通过以后赚大钱了，第一次就赚2亿美元。老爹管用啊，谁说江湖是人民的，习会说，俺爹说的。人民要过好日子，为什么打台湾，打台湾也是为了人民，过去不是说好中国人不打中国人吗，他会说台湾已经不是中国人了，我是为了大陆中国人。
-……
-你看金灿荣还穿立领呢，党服。
-……
-关于金灿荣对美国那套东西，大家走着看，他零机会，为什么？如何解决共产党病毒，拜登全世界跟你拉到了？去你大爷的，他没说，谁为病毒负责？他也承认中美关系回不到以前，无论你回不回到以前，以毒灭共时代你是改不了的。第二个，你的种族大屠杀反人类罪，你想拿掉这个帽子是不可能的，那么接下来全世界一个一个的国家把它定位种族大屠杀、反人类罪的时候，还能弄你的技术吗？不可能。就这种族大屠杀、反人类罪都不算了，病毒也不算了，上海帮和习和陕西帮和过去老红军的斗争能停吗？然后你制定了江山主人而且还修宪，你认为上海帮、中国江湖沼泽地就这么拉倒吗？不可能。上海只吵架、挠挠你，不打，这戏太好看了，不提前预说，不搞重磅的重磅，如果大家知道昨天前天郭先生发生的事情，大家都去喝酒了，大家不知道西方对病毒、种族大屠杀、反人类罪和对拜登的整个大选影响、特别是对美国整个媒体的影响，你不让西方人说话言论自由的时候，比强奸她还难受。沼泽地大佬原话说，他们感受到了无处是安全的。鳄鱼都不能保护他们了，鳄鱼乱球咬，不听主子的话了，所有人郭先生都问一句话，只要中国共产党还在，你觉得你的未来还会比以前好吗，没有一个人说是。只要共产党在，就不会停止对你挑战、对你伤害，直到把你弄死为止。这些沼泽地大佬在中国全有利益，但是郭先生回复，没有共产党你就没有利益了吗？你可以有合法、更大、光明的利益。西方江湖亲爹就是钱，资本主义，当你在他面前俯瞰他的时候，你会发现这帮人也没啥，他们也看g coin g dollar，猪脑袋都知道值多少钱，这世界上必须靠实力，郭先生穿g fashion，这是智慧。你能相信九指妖做这种衣服吗？不可能，g club是智慧，他们觉得g club简直太高太绝了。纽约的大商场倒闭，就为了搞3天送货还是1天送货，最后搞明白了自己破产了。g 系列，全世界只有咱们gtv玩这个，接下来盖特给大家到时候看一看。靠的是实力，一拳过去你要是到200公斤力量，一拳一肘就是ko，实力。真在实力面前，什么狗屁主意，什么江湖都是扯淡的，实力够的时候，你会藐视一切，原来不过如此。什么狗屁江湖，不过就这么回事，是吧兄弟姐妹们，别忽悠人。这世界上靠的是实力，钱够用，够多，意志够坚定，你不赢都不行。今天元宵节可以告诉大家，世界上元宵节最快乐就是新中国联邦，没有多少人快乐，因为中共病毒，对吧兄弟姐妹们，就说一个消息，据说，梦见了，据说接下来美国的政治会有大行动，大转折；还听说，欧洲美国要有一系列的联盟行动对付共产党，这事别告诉路德，不然又搞重磅了。元宵节快乐！
+Brothers and sisters, we must hold ourselves at this critical moment. Facing the world’s immense change, if you cannot hold yourself, great disasters will find you. Please, don’t be greedy at this moment, stop dreaming at this time. Please use pre-caution measures at this time. Brothers and sisters, please cherish the moment when you can still watch my broadcasts and Getter videos. Cherish the freedom that you are enjoying now. Cherish the healthiness you have. Humanity has never ever faced such a huge change and challenge like this before. Of course, it presents opportunities for people with wisdom and capabilities. I hope this can be an opportunity for every fellow fighter. Thank you!
 
-[郭爆料串珠系列文章标题和链接汇总225 – 1](https://gnews.org/zh-hans/888831/)
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/6069cd0cdbc8001854a56773](https://gtv.org/getter/6069cd0cdbc8001854a56773) (00:17-1:47, 2:31-3:39, 5:55-6:40, 8:30-结束)
 
-整理：德国感恩农场文迅等
-发稿：如风
-郭爆料串珠系列文章，都是从800多篇郭文贵先生直播听写文字版、盖特精选而成，具有文献价值。由德国感恩农场文迅等按时间、主题整理。感谢战友听写！
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1049756/](https://gnews.org/zh-hans/1049756/)
+
+* * *
+
+翻译：【7PawBear】字幕：【Rock小哥】二校：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0
