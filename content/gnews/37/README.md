@@ -1,39 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】三成新冠肺炎患者出现精神或脑部方面的后遗症
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1067432/)
+## 众议员巴迪·卡特批拜登损害了佐治亚州
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1067560/)
 
-纽约香草山写作组 MIYA
-![]()![](https://gnews.org/wp-content/uploads/2021/04/GNEW-GTV-MOS-LOGO-2-2-1-400x54-1.jpg)
-根据周二发表在《柳叶刀精神病学》的一份研究报告，发现三分之一的冠状病毒患者在诊断后6个月内出现精神或脑部疾病。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-据纽约邮报（New York Post）4月6日报道，研究人员分析了236,379名COVID患者的健康记录，这些患者大多来自美国，发现34%的患者在6个月后被诊断出患有神经或精神疾病。研究显示，约有八分之一的患者，即12.8%是首次被诊断出此类疾病。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-4.png)
-这项研究表明，焦虑症占17％，抑郁或情绪失调占14％，是最常见的诊断结果。在那些接受过冠状病毒重症监护的患者中，有7％在六个月内中风。研究还发现，几乎有2％的人被诊断出患有痴呆症。与同期普通流感或其他呼吸道感染患者恢复后的对照组相比，新冠病毒确诊后出现这类疾病明显更为常见。
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/R-5.jpg)wjcl.com
+继库德洛、克鲁兹昨天抨击拜登、MLB和达美航空等对佐治亚州选举法的指责后【1】，共和党众议员巴迪·卡特（Buddy Carter）也斥责了拜登对佐治亚州的蛮横无理。
 
-这项研究发表在《柳叶刀精神病学》杂志上，共同领导这项工作的英国牛津大学精神病学家Max Taquet说道，这迫切需要进行更多研究，以确定相关机制。
+《布雷特巴特》（Breitbart）发表文章，谴责拜登的行径对佐治亚州造成了无法弥补的损害，但他不去抵制在中共国举办的奥运会。【2】
 
-研究人员还提出，这种流行病可能会带来一波精神和神经问题。另一位研究领导人牛津大学精神病学教授Paul Harrison指出，”虽然大多数疾病的个体风险很小，但对整个人群的影响可能是巨大的。”
+全文如下：
 
-引用闫丽梦博士发表的第三份病毒来源报告内容，“……解放军发现并证明冠状病毒的骨架ZC45 / ZXC21可引起乳鼠的脑部感染。无论是否巧合，其与神经毒性相关的E蛋白被100％保存在新冠病毒中……”
+美国众议员巴迪·卡特周三在《福克斯商业网》（Fox Business Network）播出的《卡武托：海岸到海岸》（Cavuto: Coast to Coast）节目中，批评拜登对佐治亚州的商业人员“造成了无法弥补的损害”，这也惩罚了美国其它各州，而（他却）拒绝呼吁抵制2022年的中共国奥运会。
 
-全球的冠状病毒患者在精神及脑部出现的后遗症已逐渐显现出来。除此之外，闫博士在第三份报告中还提出了一些病毒感染后出现凝血病、自身免疫性疾病、抗体依赖性增强（ADE）和长期携带等等方面的种种担忧。
+卡特说，拜登正在“造成无法弥补的损害”，我告诉你，他就是不明白，他不明白这些是这里的民生。我只想借此机会感谢乔·拜登（Joe Biden），感谢斯塔西·艾布拉姆斯（Stacey Abrams），感谢拉斐尔·沃诺克（Raphael Warnock）把这个从佐治亚州带走，应该祝贺你们，你们已经实现了你们的目标，从小商人的口袋里掏钱，其中许多是少数族裔商人，你们应该为你们在这里所做的感到羞愧。
 
-中共制造的生物武器还有更多的未解之谜需要寻找答案。全世界已被中共卷入这场前所未有的生物战中，如果不尽快沿着生物武器的方向寻找疫情的真正根源，人类将遭受更大的生存危机。
+还有美国总统，当中共在那里侵犯人权时，他袖手旁观，什么也不做，但你问他北京和2022年奥运会的事，他没有任何评论。他却在惩罚他自己（国家）的州？这是不负责任的，而且是可鄙的。” （全文完）
 
-参考链接：[A third of COVID survivors suffer mental or neurological problems, study reveals](https://nypost.com/2021/04/06/a-third-of-covid-survivors-suffer-mental-neurological-problems/?utm_medium=SocialFlow&amp;utm_source=NYPTwitter&amp;utm_campaign=SocialFlow)
+连续三个感谢，与其说是在嘲讽左派的虚伪和无礼，不如说更表现了人们对虚伪的愤怒与无奈！
 
-（本文仅代表作者个人观点）
+宁可惩罚自己国家众多的州，出手又快又恨，而对抵制北京奥运却迟迟不做评论，更甭说有行动。
 
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+美国人民在看着你呢，拜登总统！
 
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+参考链接：
 
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+【1】[https://www.gnews.org/zh-hans/1062856/](https://www.gnews.org/zh-hans/1062856/)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+【2】https://www.breitbart.com/politics/2021/04/07/gop-rep-carter-biden-doing-irreparable-damage-to-georgia-but-wont-boycott-olympics-in-china/
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-+1
+0

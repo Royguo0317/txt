@@ -1,63 +1,72 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选主题专栏：世界向中国的爆料英雄们致敬
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1067640/)
+## CBN采访章家敦和海军教官谈中共国违背伦理开发“超级战士”
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1067952/)
 
-《路德社》精选主题专栏组出品
+**美国CBN电视台在2021年4月6日，采访中国问题专家章家敦先生（Gordon Chang）和美国海军教授伦理学的教官乔治卢卡斯（Goerge Lucas）先生，分析中共国已经在研发经过生物强化的超级士兵。前国家情报局局长约翰·拉特克利夫（John Ratcliffe）称其为“不道德的医学实验”。章家敦先生说：“这令人感到毛骨悚然。没有道德标准，没有法律。” 新闻中说，美国进行的类似研究会有道德约束，也是基于士兵自愿的原则，而敌军则没有道德约束。**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/91951.jpg)
+【编者评论】中共在对全世界释放的经基因改造的CCP病毒，在中东霍尔木兹海峡等地的所有行为已经充分证明了它的邪恶本质，完全无底线。加之它此前的HIV基因改造婴儿等完全无伦理道德的实验，使我们相信毋庸置疑，它的超级士兵研究一定是服务其邪恶的统治世界的目的，当然不能期待它能有任何道德的约束。美国和国际社会只有尽早认清其撒旦本质，放下私心杂念，某些势力停止跟中共勾兑，世界才有一线生机。
 
-美国畅销书作家，今日医学杂志主编，霍普金斯医学院医疗政策专家马丁.马卡利博士（Martin Makary ），4月6日在今日医学发表评论文章，向三位中国英雄，医学同行李文亮（医学硕士），艾芬（医学硕士），张永振（病毒学家）致敬，为他们在中共极权下，不顾个人安危，向世界发出中共病毒警告，勇于献身的科学精神深深感动。“他们被自己的政府所扼杀，值得全世界的感激。”
 
-马丁博士开篇直言，他可以理解实验室发生事故的说法，但是不能理解为什么，离武汉病毒所五英里以外的武汉市区，许多中国医师在疫情爆发的早期就被拘留，消音和谴责。
 
-“当我记述他们的故事时，我被这三位医生的英勇精神深深感动，秉承神圣的医学原则-将患者放在首位。这些医生不仅这样做，而且还冒着生命危险为民众谋求更大利益”。
+This is the U.S. army’s concept of the soldier of the future. This video makes it look like it’s just a better equipped soldier, but notice the words – neural engineering, that can mean a brain implant that connects a human to computers. The defense agency DARPA has been working on an advanced implant that would essentially put the human brain online. There could also be eye and ear implants and more circuitry under the skin to make the ultimate fighting machine. Americans are going to have to decide whether this is ethical because some in our military clearly want it.
 
-李文亮可能是第一个见到武汉实验室工作人员的人。他在武汉市中心医院工作。他很早就敲响了中共病毒在人与人之间传播的警报。之后，他短暂的余生变成了一个活生生的地狱。
+这就是美军对未来士兵的概念。这段视频让人觉得这只是一个装备较好的士兵。但请注意这几个字——神经工程，这可能意味着一个可连接人体和计算机的大脑植入物。国防机构DARPA一直在研究一种先进的植入物，基本上可以将人类的大脑联入网络。还有可能是眼睛和耳朵的植入物，以及将更多电路埋植在皮肤下，造就终极战斗机器。美国人将不得不决定 这样做这是否合乎道德，因为显然我们军方的一些人想这么做。
 
-李文亮医生2019年12月30日在微信上，提醒同行们佩戴个人防护装备，三天后，1月3日，警察出现并拘留了他和另外八个人。“我们不知道该拘留所发生了什么，但我们确实知道李文亮被迫签署供认”，称他“发表虚假评论”“严重扰乱了社会秩序”。这是他被迫签署的声明的确切措辞：“我们郑重告诫你：如果你固执己见，不愿悔改，进行非法活动，你将受到法律制裁–你听明白了吗？”李的笔迹在下面写着：“明白。”如果您熟悉中国的法治，人们可能在判决的当日，被处决”。
+The super soldiers of the future could simply have enhanced abilities or they could be part man part machine, what are known as cyborgs.
 
-李文良被训诫后数周，中共（CCP）警告人们避免进入食品市场，甚至开始建医院来为病毒大流行做准备，但他们从未采取任何措施来保护医生。反而向医生打招呼，禁止他们与任何媒体交谈。
+未来的超级士兵有可能仅仅是获得能力的增强，或者也有可能成为半人半机器即所谓的生化电子人。
 
-2019年12月31日，中共政府禁止了谷歌上对“SARS”前缀的搜索。2020年1月2日，中央电视台公开谴责医生散布谣言。1月10日，李文亮医生感染了中共病毒，并于2020年2月7日死亡。“有人说他被杀了，但我想我们永远不会知道”。然而，奇怪的是，他是一个健康的34岁年轻人，其风险状况属于病死率小于0.1％的范围。更令人怀疑的是，中央电视台在报道他的死亡时间时，前后矛盾，最初称他在当地时间21:30被宣布死亡，然后将其更改为凌晨2:38。
+China is already developing biologically enhanced super soldiers using what former director of national intelligence John Ratcliffe called unethical medical experiments.
 
-中国人民似乎确切知道发生了什么事。他们生气并感到被政府背叛。数百万人哀悼李文亮的去世。他们在全国各地的城市中威风地吹口哨，以向他致敬。每天都有中国人出现在他工作的医院献花。中国人民向英雄致敬-这象征着公众对医学界的高度信任，医学没有边界。
+中[共]国已经在研发生物强化的超级士兵。引用前国家情报局局长约翰·拉特克利夫（John Ratcliffe）的话，称其为不道德的医学实验。
 
-在他去世后，中国出现的两个最热门的话题标签是：“武汉政府欠李文亮博士一个道歉”和“我们要言论自由”。中共迅速审查了这些言论，将它们从网络上禁止了。
+**Gordon Chang**: “This is a big effort on the part of the [Communist] Chinese government and it is really horrifying.”
 
-李文亮的亲密朋友艾芬，继续举起了火炬，警告人们。她最早发布了有关中共病毒的警告，并接受了一家中国杂志的采访，然后失踪了几周。值得注意的是，即使她是武汉市主要医院急诊科主任，她也没有成为世界卫生组织在中共病毒溯源调查中，采访的人之一。
+**章家敦：**“这是中[共]国政府正努力致力于的，而这真的很可怕。”
 
-中国著名的病毒学家张永振过去曾对数千种病毒进行测序，当他2020年1月5日拿到中共病毒样本后，他很清楚这是即将感染世界的宝贵的遗传密码。他发表讲话并警告说，这种病毒似乎“比流感更危险”。他联系了中共卫生部，但答复说，不允许他发表结果，他必须交出样本或销毁样本。张教授知道，公开发表基因序列，世界各地的科学家都可以使用它，并开展重要的科学工作，以应对即将来临的全球流行病。但是，违背中共的意愿，可能会使他，他的实验室和他的家人处于危险之中。
+China expert Gordon Chang says it’s part of a Chinese government plan to create a master race through genetic editing.
 
-六天后，1月11日，张永振教授通过澳大利亚合作者，将病毒基因序列发表在在线基因数据库[Genbank](https://www.ncbi.nlm.nih.gov/nuccore/NC_045512.1)。几天之内，一个德国科学家小组发布了COVID-19测试工具包，供世界各地的科学家使用。但是中共政府随后关闭了他享有声望的实验室以示惩罚。
+中共国问题专家章家敦说，这是中国政府计划的一部分。通过基因编辑来创造一个有主宰力的种族。
 
-在中共力推接触动物才有可能感染病毒的谬论时，中国科学家发表的文章中也坚持发布了关键信息，三分之一的受感染者与海鲜市场没有任何联系。
+**Gordon Chang**: “They’re trying to create a race which is far more intelligent than the rest of humanity. And with super soldiers, they’d be stronger, less susceptible to pain – just better soldiers. This is eugenics. This is creepy. There are no ethical standards. There are no laws.”
 
-爆料革命的英雄，闫丽梦博士，2020年1月19日，借路德社节目向世界传递真相，第一个，发布了中共病毒来源于中共军方舟山蝙蝠病毒的重磅信息，为全世界揭开病毒是中共生物武器的真相。
+**章家敦：**“他们试图创造一个种族，比其他人类要聪明得多。这样的超级士兵，他们更强壮，更少有痛感——是更好的士兵。这是优生学。这令人感到毛骨悚然。没有道德标准，没有法律。”
 
-可以说，在中共发动生物武器战的前前后后，中共国有良心的医生，科学家们都在忠诚履行着医者父母心，普济众生的神圣职责，只有中共，从始至终，都在监视，打压，追捕，甚至迫害这些维护人类利益的白衣天使，而且反应迅速，毫不手软。另一方面，对待民众，中共迟迟不承认病毒的社区传播，否认人传人，甚至还大张旗鼓地在在社区举行百家宴，完全不顾百姓生命安危。
+Now the French military has been given the go-ahead to also create so-called augmented soldiers. The super soldiers of the future will run fast, need little sleep and little to eat or drink. And they’ll be able to fight much longer than ordinary humans. But, should we do it? George Lucas, who has taught military ethics to America’s naval officers says: “Ethical concerns lag behind this new technology.”
 
-正因为有了中共这样的丧心病狂，有了这些不畏生死的中国英雄，世界才更深刻地认识到，中共不等于中国人，中共绑架了14亿中国老百姓，如果没有中共，中国人民将和世界人民一样，过上自由，安全，和平的生活。
+现在，法国军方已经得到了批准，来创造这种所谓的增强型士兵。未来的超级士兵会跑得很快。需要很少的睡眠和很少的吃喝。而且他们将能比普通人战斗的时间长很多。但是，我们应该这样做吗？曾向美国海军军官传授军事伦理的乔治·卢卡斯说：“伦理问题方面的顾虑落后于新技术的发展。”
 
-马丁医生说：医生是无声者的声音。中国英雄们冒着巨大的个人风险坚持这一信念。作为医生和科学家，我们所有人都应受到这些医生的启发并坚守将患者放在首位的悠久传统。
+**George Lucas: **“It always does and the only question is how far.”
 
-他同时对比了世卫组织的医学专家，“不幸的是，同为医学专家，而且是受世卫组织派遣的独立调查专家，对中共病毒源头调查严重不足”。 没有访问关键人物或信息，也没有获得病毒样本。这样不负责任的调查，让这些“医学专家”的公信力严重下降。在这场病毒浩劫中，从中共疾病预防控制中心的高福，到美国国家健康研究所的福奇；从传染病专家达扎克到功能增强之父巴里克；还有顶级医学期刊柳叶刀和自然杂志，无不向人们展示，天使的队伍里还有恶魔，而且这些恶魔掌握了医学界的话语权。
+**乔治卢卡斯：**“一如既往地落后，现在的问题是到底有多落后。”
 
-如果没有像闫丽梦博士， 李文亮医生这样勇敢的报料人，吹哨人， 没有像捍卫羟氯喹的泽连科 （Dr. Zelenko）医生，以及更多站出来揭发疫苗危害的科学家们，人类历史不可能走到今天，这是那些妄图拿病毒武器，基因疫苗控制人类的黑暗科学家们永远无法战胜的光明力量。
+And Lucas is concerned that future military recruits could be pressured to accept computer parts into their bodies. He believes they should be allowed to refuse them.
 
-马丁的文章在读者中，引起强烈反响，一位读者说，中国英雄应该被全世界的医学界所认可和尊重，以激励我们所有人。在极权国家的统治下，我们发现了世界所有人类的伟大，永恒的榜样。
+而卢卡斯担心未来的新兵，可能会受到压力，要接受电脑部件植入他们体内。他认为应该允许人们拒绝这些要求。
 
-另一位读者评论，世界各国领导人必须站起来反抗中共，他们的行为将影响世界，作为世界公民，我们应该让中共负责，这将是最大的追责案例。
+**George Lucas: **“The further into these, the more exotic technologies we go, and the more the risks are not known, the more we must at least rely on volunteerism if not as much informed consent as is possible.”
 
-还有一位评论写道，我们不能忘记一个威权政府会是什么样子，特别是当世界受中共经济影响而对他们的极权习以为常时。我们不能忘记这个有关病毒的故事，这些勇敢的医生试图揭露真相。
+**乔治卢卡斯**：“越是深入研究，我们的技术发展得越是奇葩，越多未知的风险。就越要依据志愿的原则，如果没有足够多的知情权的话。”
 
-这场人类世界的终极之战，淘尽多少人性的善良和丑恶，让人们更清醒的认识人类的敌人，又从人类英雄的身上获得无穷的力量。
+But the challenge for the United States is even if we put ethical limits on the super soldier of the future, it’s likely some of our adversaries will not.
 
-[援引原文](https://www.medpagetoday.com/blogs/marty-makary/91951)
+但美国面临的挑战是即使我们对未来的超级战士进行道德约束，很可能我们的敌人不会这么做。
 
-本文作者：Sherryok水云间
-审核校对：鲁邦五世
-上传排版：糖果儿
+*Dale Hurd CBN News*
 
-0
+戴尔·赫德 CBN新闻台
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+
+* * *
+
+听写&翻译：【一花一世界】新闻撰写&编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
++1
