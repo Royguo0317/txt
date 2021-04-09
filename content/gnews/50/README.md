@@ -1,56 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世卫对疫苗有效性存疑
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1066154/)
+## 【香草诗词汇】快乐的童年
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1066307/)
 
-作者：骑着毛驴来挺郭  Chloe
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-13-9.jpg) 图片来源：纽斯顿
-世界卫生组织（世卫）今天 （4月6日）重申拒绝疫苗护照，因为尚不确定接种疫苗能否防止新冠传播 （1）
- 世卫对疫苗的态度一直没变。 2021年1月19日， 其紧急委员会强调，尚不清楚疫苗对减少新冠传播有多大的影响 （2）。
- 迄今为止，世卫只推荐紧急情况下使用辉瑞，莫德纳， 阿斯利康和强生疫苗（3），但最新数据表明阿斯利康疫苗与脑血栓存在潜在关联（4）。
-
-中共疫苗的有效性如何呢？
-
-中共国军事医学科学院微生物与流行病研究所于2021年4月6日在“新英格兰医学杂志”上发表的研究表明，科兴和国药两种疫苗接种不到两个月，有五分之一的接种者体内检测不到中和抗体 （图1）； 接种这两种疫苗后抗体的高峰期（尤其是科兴疫苗）低于康复5个月之后的非重症患者体内血清中的中和抗体滴度 （图2，原始数据在参考文献5），显示疫苗有效性比不过康复者的血清。 与之相比，在接受10 μg和30 μg剂量的辉瑞疫苗的志愿者体内，新冠病毒中和抗体滴度分别达到康复患者血清水平的1.8和2.8倍 （6）。
-
-难怪世卫没有推荐情急情况下使用科兴和国药疫苗。
+作者：纽约香草山佛教部 文来
 
 
 
-图一
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片1-14.png)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片2-12.png)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
+我是二年级的小环
+
+上完课放学我就想出去玩
+
+这摸摸那看看童年乐无边
+
+滑梯玩了一遍又一遍
+
+小花小草都是我的好伙伴
+
+爸爸看着我天真无邪的脸只想亲个没完。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-92.png)图源网络
+
+我是二年级的小环
+
+上完课放学我就想回家玩
+
+语文数学放到一边
+
+钢琴也不用弹
+
+只看动画片
+
+妈妈走过来说，来，吃一块饼干。
 
 
 
-参考文献：
+我是二年级的小环
 
-1
+谁拿走了我快乐的童年？
+
+我要我的童年
+
+灭了CCP
+
+拿回本属于我的童年！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 
 
-> JUST IN – World Health Organisation (WHO) reiterates its rejection of compulsory vaccination certificates. It is uncertain as to whether vaccinations prevent the transmission of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw), cites WHO spokesperson Harris.
-> — Disclose.tv 🚨 (@disclosetv) [April 6, 2021](https://twitter.com/disclosetv/status/1379396339725914113?ref_src=twsrc%5Etfw)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-
-2 [WHO Opposes COVID-19 ‘Vaccine Passports’ Idea](https://www.schengenvisainfo.com/news/who-opposes-covid-19-vaccine-passports-idea/)
-
-3 [COVID-19 vaccines technical documents](https://www.who.int/groups/strategic-advisory-group-of-experts-on-immunization/covid-19-materials)
-
-4 [EMA高级代表称AZ疫苗同脑血栓之间存在关联](https://www.dw.com/zh/ema高级代表称az疫苗同脑血栓之间存在关联/a-57111771)
-
-5 [Susceptibility of Circulating SARS-CoV-2 Variants to Neutralization](https://www.nejm.org/doi/full/10.1056/NEJMc2103022)
-
-6 [COVID-19药物研发动态：中和抗体水平超过康复患者，辉瑞/BioNTech新冠疫苗1/2期结果积极](http://pharmdata.ncmi.cn/Details.asp?ar_id=957)
-
-
-
-发布：闪电训练
 
 0

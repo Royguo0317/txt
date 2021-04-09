@@ -1,39 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 一纸通知，万能药方？
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1066377/)
+## 慧眼看世界20210408（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1066378/)
 
-作者：斩草要除根
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-近日一则墙内新闻： “近日，教育部办公厅印发了《关于进一步加强中小学生睡眠管理工作的通知》
 
-《通知》明确中小高学生的睡眠时间;
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-《通知》强调，防止学业过重挤占学生睡眠时间;
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-1-1.jpg)
 
-《通知》提出，要指导家长和学生制订作息时间表，合理确定学生就寝时;
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-2-1.jpg)
 
-《通知》要求，要加强学生睡眠监测督导。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-3-1.jpg)
 
-简评：
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-4-1.jpg)
 
-一个人的睡眠状况要靠一份通知去部署解决，也只能发生在中共国了。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-9.jpg)
 
-从1955年07月教育部发出新中国第一个“减负令”-《关于减轻中小学过重负担的指示》以来，从国家层面到地方出台的这种减负通知数不胜数，然而学生的课业负担不减反增。文中强调家庭作业过重挤占了学生睡眠时间，有数据显示中共国小学生作业时间超标率超过66%，初中生的作业时间超标率超过78%，学校、老师和家长把这双重压力加在了学生身上是导致学生的学业负担过重的原因之一。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-2-1.jpg)
 
-一：学校、老师方面。学校种类繁多的评估、考核等等挤占了本应该属于老师的教学时间，导致其必须通过增加作业方式完成教学任务。为了考生成绩和升学率现在的学校基本都是“日考，周考，月考，期中期末考”，这样高频率的考试导致学生必须利用课外时间去学习来应付。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-3-1.jpg)
 
-二：家长方面。主要来自切身感受的就业和社会竞争压力，课外补习已经演变成了一场竞赛，辅导班、培训班都已经是“标配”。2021年开始了新一轮对校外培训机构的整顿，美其名曰目的是减轻学生和家庭负担，校外培训的存在本来就是要弥补学校教学的不足，在提高一分就有可能就读更好的学校的情况下，那些主课就不提了，音乐成绩要算加分、体育也可能马上被纳入中高考，这样的情况下校外培训是必须的存在。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-4-1.jpg)
 
-如果认为通过所谓的 “减负” 来保证学生的睡眠的话，我觉得这是件很扯淡的事情。中共国遍地的专家、学者论证了几十年的教育改革至今仍停留在对表象的讨论、研究层面上。试想一下把 “取消高考” 作为一个全国范围内的课题公开大方的提出来，并让全面参与讨论利与弊的话，会得出怎样的结果出来呢？（况且还有西方教育发达国家提供参考），之所以几十年来没有发生，是因为中共体制是所有一切教育问题的“病灶”所在，当然也就包括了学生的睡眠问题。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-5-1.jpg)
 
-（声明：本文仅为个人观点）
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-6-1.jpg)
 
-新闻来源：[教育部印发通知：保证学生充足睡眠时间](https://www.sohu.com/a/458665025_162522)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-7-1.jpg)
 
-* * *
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-8-1.jpg)
 
-校对/上传：阿娜
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-1-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-5-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-6-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-7-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-8-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-9-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-10-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-11-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-12-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-13-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-14-1.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0
