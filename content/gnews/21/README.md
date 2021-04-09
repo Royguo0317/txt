@@ -1,58 +1,83 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国解除对伊朗制裁将给中东、中共、美国和新中国联邦带来的影响
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1069391/)
+## 中共“灭白计划”之迟浩田系列十六 ：“美国”成中共心腹大患
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1069431/)
 
-**简述：郭先生在****2021****年****4****月****8****日的盖特视频中解读美国解除对伊朗制裁的效应，他说伊朗制裁的解除将使中东重新陷入战争，将对中共不利，而这种竞争的最后还是新中国联邦受益；美国拜登政府已经达成共识，在病毒一事上不会放过中共；中共在霍尔木兹海峡和苏伊士运河四处出击，就像二战当年的日本军国主义攻击珍珠港，不会有好下场。**
-[**下载字幕**](https://www.apple.com)
-**美国解除对伊朗制裁将给中东、中共、美国和新中国联邦带来的影响**
+作者：左媛
 
-**Miles Interprets the Implications of U.S. Lifting Sanctions on Iran**
+迟浩田在之前谈了中共必须保卫自己的领导地位，现在花更大篇幅谈“美国问题”。中共和“美国”又有怎样的逻辑关系呢，请听迟浩田是怎么阐述的。
 
-接着现在说这几天大家现在已经看到了伊朗的这个事情，所谓的美国没有制裁了。对咱是好事儿。伊朗没制裁了，伊朗一放开了，伊朗就有可能和老共不一定站在一起[了]。[和]老共不站在一起[了]，伊朗的中东，伊朗的中东就会发生[大事儿]。
+“我们完成民族复兴历史使命时应该牢牢扭住的第三个问题是……坚定不移地抓住’美国问题’这个大方向……中国的复兴与西方的战略意义有着根本性矛盾，必然受到西方国家的全力阻拦。所以，中国只有冲破以美国为首的西方国家的围堵，才能发展，才能走向世界。”
 
-Let me continue. In the past few days, everyone has seen this news about Iran, that is the U.S. is preparing to lift sanctions on Iran. It will be good for us. If sanctions on Iran are lifted and Iran is open up, it will probably stop siding with the CCP. If Iran doesn’t stand with the CCP, Iran and the Middle East will see big things happening.
+中共的逻辑是：中国要复兴，西方会阻拦，所以，中国要突破美国西方的围堵才能走向世界。
 
-伊朗是三驾马车，伊朗一直想当老大，第二是伊拉克，这才为什么发生了两伊战争，第三是沙特，这三驾马车要开干。实际[是]三驾火车，老要撞。他仨一撞都要抢着和共产党好，同时也抢着和老美好，中东战火重起开始！这种竞争的背后最后还是新中国联邦得利。
+之前，笔者撰文谈过中共的“复兴”不过是一个逻辑完全无法自恰的噱头，其背后的真实目的只有一个：共产党永保江山不变！
 
-Iran is one of the horses of a troika in the Middle East, and Iran has always wanted to be the boss. The second one is Iraq, that is why there was the Iran-Iraq War. The third one is Saudi Arabia. The three “horses” are going to fight with each other. Actually the three “trains” are always colliding with each other. Once the three collide with each other, they will compete to have a good relationship with the CCP, and at the same time, they will also want to be good with the U.S., then the war in the Middle East will start again! Behind this competition, of course, the New Federal State of China (NFSC) will be the beneficiary in the end.
 
-[虽然]咱不想让他们战争，但是他们的斗争对我们新中国联邦来讲，咱们是机会。告诉我，这三个国家哪一个愿意与新中国联邦为敌？永远不会。这就是我们的机会。对老美来讲不是好事儿，对老共来讲也不是好事儿，但是对咱们来讲是好事儿，因为毕竟伊朗是穆斯林。真正的伊朗的所谓没制裁是因为奥巴马总统的穆斯林的宗教信仰还有和拜登之间政治的这个整个利益。但对新中国联邦是好事。
 
-Although we don’t want them to fight, but their fighting will present an opportunity for our NFSC. You tell me, which of these three countries will want to make an enemy with the NFSC? They will never do that. This will be our opportunity. It’s not going to be a good thing to the U.S., nor to the CCP, but it’s a good thing for us, because after all, Iran is a Muslim country. The real reason for lifting Iran’s sanctions is due to President Obama’s Muslim religious belief and the entire political interests of Biden. But it is a good thing for the NFSC.
+![This image has an empty alt attribute; its file name is jlj9Km33wrdnfB_Mi20kqU87C_lFDD37KQWGBeeIAuU7gA35SHe0h-UnneiWoQj5hyx0sjVIm628qzZO2OAzebl7buqMqe4sTNzmJdX9GcDCMv7F4sK5EwgXgUxZr-jOZCqW_6fz](https://lh4.googleusercontent.com/jlj9Km33wrdnfB_Mi20kqU87C_lFDD37KQWGBeeIAuU7gA35SHe0h-UnneiWoQj5hyx0sjVIm628qzZO2OAzebl7buqMqe4sTNzmJdX9GcDCMv7F4sK5EwgXgUxZr-jOZCqW_6fz)
 
-但另外一个，[大家]反而[应该]看到：[美国]放过伊朗，[但]绝不会放过共产党！ 所以大家你们看到了：对共的所谓病毒的严查，[我]听说啊，做梦听说的，听说这一点拜登政府已经达成共识。这一点上必须不能妥协，因为妥协就[等于拜登]自己被赶出白宫，就完球蛋了，是吧？[所以]这个不会妥协。那对咱是好事儿，是吧？那对咱是好事儿。
 
-But on the other hand, everyone should see that the U.S. is willing to let Iran get away, but it will never let the CCP get away! So you guys have seen that the serious investigation of the CCP virus, based on what I heard, I mean, dreamed, is a consensus in the Biden administration. There must be no compromise on this point, because if Biden compromises, he will be kicked out of the White House and be done for, right? So there will not be any compromise on this. That will be good for us, right? Will be good for us.
+![This image has an empty alt attribute; its file name is oumeTqlfAeKfV-g4tLCUqZ3ynR1_B-tluJAe--S_PLaOpS09EmJc5VxQl7JX45JE_u2XvbLe99N7U1acLeBycw30xUVZ5EvW7Rg_xz7br-X5iJa23SvA1ooY1gGBxzA5pBSMYRuC](https://lh4.googleusercontent.com/oumeTqlfAeKfV-g4tLCUqZ3ynR1_B-tluJAe--S_PLaOpS09EmJc5VxQl7JX45JE_u2XvbLe99N7U1acLeBycw30xUVZ5EvW7Rg_xz7br-X5iJa23SvA1ooY1gGBxzA5pBSMYRuC)
 
-还有一个，在明年2022的中期选举，民主党要想赢和共和党想赢[都]只有一个主题：灭共！查病毒真相，“以毒灭共”。只要以毒能灭共，咱管球啥那干啥的？爱咋的咋的，是吧？ 还有个咱“以钱灭共”，“以钱灭共”谁也挡不着咱，是吧？
 
-or the Republicans want to win, they will have only one theme: taking down the CCP! Find out the truth about the virus and then take down the CCP with the truth about the virus. As long as they use the truth about the virus to take down the CCP, what else do we care about? We won’t care, right? There is also the “taking down the CCP with money [financial activities]”, and no one can stop us from taking down the CCP with money, right?
+中共当然知道自己曾经“深挖洞广积粮不称霸”的宣传，当然知道邓小平曾在联合国大会上关于“如果中国称霸，中外人民应该联手打倒它”的讲话，当然知道它对全世界的各种承诺和签约……但是，在中共眼里，这一切都不重要，都不过是计谋，都不过是历史，它随时可以翻过去那一页。“卧薪尝胆”的故事，“三十年河东 三十年河西”的生存哲学，“此一时彼一时”的时过境迁，都是深深刻在中共词典里的。当世界还不成为“世界”的时候，中华历史朝代就是天下。在中共的历史教科书里，充斥的是“春秋五霸”“战国七雄”“西楚霸王”这样的故事，毛泽东诗词中更是蔑视秦皇汉武唐宗宋祖成吉思汗，公然宣称“数风流人物还看今朝”，真正的英雄不是“稍逊风骚”“只识弯弓射大雕”的历史人物，而是我“毛泽东”，是“共产党”！共产党打江山不易，坐江山是必须世世代代的。在“世界”成为世界的时候，“天下”早已不仅仅是“中原”那一点点地盘也不仅仅是“中国”那一只“鸡”了，而是七大洲四大洋是200多个国家和地区。日本当年喊的“大东亚共荣圈”实在太low，中共的雄心是建立“人类命运共同体”，共同在谁的利益之下？当然是中共。一带一路的扩张，达沃斯论坛的掌控，孔子学院的中文教学，蓝金黄各国各界要员……四十多年，中共所有明里暗中的动作，不惜一切代价，调动一切因素，动员一切力量，都在为“冲破以美国为首的西方国家围堵”而努力，打一场现代化的“以农村包围城市”的“灭白灭美”战役！为此，不惜花费中央财政预算的近87%在外交上。至于老百姓嘛，生死有命富贵在天了。后疫情疫苗时代，中共逼迫60岁以上老人打疫苗，又逼迫年轻夫妻至少要生育两胎，这一消一涨，都是为中共突破美国做最后的冲刺。这，就是中共“卧薪尝胆”“韬光养晦”的目的！
 
-现在美国经济、美元、黄金，大家看了黄金了吗？大家看到黄金了吗？看到大宗贸易了吗？看着现在7哥刚说完，我说苏伊士运河，霍尔木兹海峡还得出事儿。美国这些投资者说，“老郭，不可能。”我说“不可能？你等着！”[结果]“啪”第二个，七哥刚说完 24 小时又出事了。
+大家都知道，“美国”是中共图谋殖民世界树立起来的一个假想敌，当然，中共要殖民世界，美国也绝不可能允许。二战后的日本被美国制裁不能发展高水平军事力量，是因为日本的外侵史给亚洲带来过深重的灾难。“殖民”只是世界发展到航海时期的一个阶段而已，在现代文明阶段不可能再有这段历史的再现。文明世界的生存和发展，必须制定并遵循相应的共同规则，大家都循着这个规则来玩共同的游戏。西方为什么能长久发展得国家富裕人民幸福，为什么人与自然能和谐相处，无非是建立了一套比较有效的游戏规则并且自觉遵守又互相尊重，官员权力有制衡，政府腐败能制约，人民的生老病死有保障。中共深谙其妙，几代领导人都把他们各自的妻妾子孙财富转移到“敌对”西方国家，而绝不存留在自己做主的中共国，也绝不转移到兄弟般情谊的朝伊俄。中共不守承诺，撕毁条约，关押疆人，镇压港人，恐吓台湾，威胁日韩，傲视欧美，“战狼式”内政外交使各国各界无不对中共的凶残面目心怀警惕。无论对内对外，中共都是不遵守规则甚至破坏规则的一个异类。这样的一个政党和政府，又怎么可能带领中国人民走向“伟大复兴”？那个自鸣得意的“人类命运共同体”又怎么不让国际高度紧张？中共伸向全球各个角落的魔爪已经让很多国家深受其害或深陷困局，病毒更是使近300万人死亡，世界经济崩溃，人类生活方式发生了难以逆转的恶化现象……
 
-Now the U.S. economy, the U.S. dollars, and gold … have you seen the gold price? Have you seen major commodities trading? Have you seen that, right after your Brother Miles said Suez Canal and the Strait of Hormuz were going to have some trouble, “BANG”, within 24 hours, it happened. Some American investors first didn’t believe me, saying, “Miles, it’s not possible.” I said, “Not possible? You wait and see!”
+** 迟浩田说的没错：中国的复兴与西方的战略意义有根本性的矛盾。矛盾在哪里？就在中共的专制统治和西方的民主管理，中共的独裁和西方的自由，中共的称霸意识和西方的平等意识，中共的战争意识和西方的和平意识……所有这些都是不可调和的矛盾。**当中共的发展对西方国家安全构成或隐或显的威胁时，西方必然会抗争会反击，不可能被中共束手就擒而自甘被殖民。事实上，从1989年到1993年，在亚非欧抛弃社会主义体制的国家有20个，它们都陆续走上民主法治的道路。如今只剩下中国、朝鲜、老挝、越南和古巴五个难兄难弟，而越南也已经放弃户籍制，国民可以自由迁徙，这使得它很有可能会尽快走向民主政体。三观吻合，朋友之间才能相处，夫妻之间才能和睦，国家之间友好。社会主义中共在普世价值西方40年的喂养和勾兑下日益膨胀自大，它和西方的一场生死对决是不可避免的，而且正在进行中！笔者深信不疑，到关键时刻，中共的俄爹朝儿还有那么多花巨资买来的亚非拉酒肉兄弟，一个个都会朝中共的肉体上狠狠地扎上一刀，一起送它归西！
 
-大家注意到共产党在中东的军事基地是干啥的[吗]？第一个，他就是干这事儿：搞破坏。控制霍尔木兹海峡，控制苏伊士运河，控制吉布提[和]红海的石油运输，最终到马六甲。这就跟当时二战的时候日本的山本五十六和美国的伊顿，在打珍珠岛之前说的话[一样]。“美国是我日本的80%的呃这个油的供应，你有天不供应[给]我咋办呢？”那意思说“老子得打你。”所以就打了珍珠港。
 
-Have you noticed what the CCP is doing in its military bases in the Middle East? The first thing it is doing is sabotage – controlling the Strait of Hormuz, controlling the Suez Canal, controlling the oil transportation in Djibouti and the Red Sea, and finally to Malacca. This is the same as what Isoroku Yamamoto, the Japanese, and the American, Eaton said before Japan attacked Pearl Harbor during World War II. “The United States provided 80% of Japan’s oil supply. What if you don’t supply us someday?” That means “I have to beat you”. So they attacked Pearl Harbor.
 
-现在老共一模一样，你老美，我不控制这个霍尔木兹海峡[和]苏伊士运河，那以后你打我，我咋办呐？[所以中共]现在想：我要把日本（注：可能是口误）把美国的粮给断了，把你的市场给断了。这好啊，他们打吧，他打他的，咱[们]发[咱们的]财。咱叫“以钱灭共”，把他们打的仗，打剩下的战场咱去收拾去吧，对不对？
 
-Now the CCP is exactly like them [Japan]. “What if the U.S. attacks us if I don’t control the Strait of Hormuz and the Suez Canal?” That’s why they [the CCP] are now thinking: “I’m going to cut off Japan… the U.S.’s food [oil] supply and destroy your market.” That’s okay, let them fighter, but we will focus on making money. Let’s call it “taking down the CCP with money”. Let them fight their war, and after it’s done, we will help to clean up the battlefield, right?
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/606f19a6dbc8001854a685be](https://gtv.org/getter/606f19a6dbc8001854a685be) (6:09-9:38)
-鸣谢：感谢 Antsee-GTV 和 TING GUO 提供中文文本于 [https://gnews.org/zh-hans/1065999/](https://gnews.org/zh-hans/1065999/)
+中共不过是一个巨婴，而美国才是一头真正的狮子！虽然在中共投怀送抱的“金钱美女”中酣睡多年，但在爆料革命四年的警示中正在醒来，它正睁开朦胧的双眼审视自己，看到身边混沌的肉体、淋漓的鲜血和堆积的尸首，它睁大了的双眼再也不会闭上！“山姆大叔”手里有的是屠龙刀倚天剑，只是在昏睡中失去了提刀拔剑的力气，幸运的是大叔的刀剑还没有被中共趁虚偷盗，还存在落基山脉！
 
-* * *
+在中共眼里，美国是阻碍它宇宙称帝的心腹大患；在美国眼里，中共更是超“珍珠港 + 9.11”的杀人凶手。中共要“灭美”，美国要图存。这真是根本性的矛盾！怎么办？唯有灭共！
 
-字幕：【V%】二校：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+中共，你的死期到了！
 
-+1
+2021.4.7于纽约
+
+**【参考来源】**
+
+
+
+
+
+
+![This image has an empty alt attribute; its file name is au_igBR9S1oZMPVvBaE_Vzf9VY4qa-tNwdl7WbNLECNj2EC86z8OItTrWQRhuzkYQ5bAg2zuHlQ0vbB0FM-4q00jQ-kSMPSp5yk8kczEOotCPJcfbIMIIBxuocaADj9E8N6t1Sf-](https://lh3.googleusercontent.com/au_igBR9S1oZMPVvBaE_Vzf9VY4qa-tNwdl7WbNLECNj2EC86z8OItTrWQRhuzkYQ5bAg2zuHlQ0vbB0FM-4q00jQ-kSMPSp5yk8kczEOotCPJcfbIMIIBxuocaADj9E8N6t1Sf-)
+
+
+
+
+
+
+![](https://lh5.googleusercontent.com/VWMu2uYpTPPt5IFagRER5ybkyLPuqB8zyBKdnxcYw_ukwowMJ4QzTeLpL5stzcsLYRInysTF8b5vfHG3mjed0xu8crfWtpYO3Vt0QBmvG_9qZYm70bV7WMUhTIkJpB9-YtoD_Sg1)
+
+
+
+
+
+
+
+
+
+
+
+【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+【**责任编辑**】：bingo 旧金山文宣组
+
+### **欢迎战友加入旧金山金喜农场**
+
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)[** **](https://discord.gg/QQzQ79grEA)
+
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)[** **](https://twitter.com/sf_himalaya)
+
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
+
+[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
+
+0

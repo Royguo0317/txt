@@ -1,37 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 卢比奥获川普总统背书
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1069746/)
+## 【热点播报】欧洲人权法院裁定强制接种疫苗合法
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1069819/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：纽约香草山农场 四季
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/r-6.jpg)uslibertynews.com
-一度有令人失望的表现，敦促川普总统接受败选的事实，为假牧师傅希秋喊冤的马可·鲁比奥（Marco Rubio），经过一段时间的反省，似乎加深了对邪恶中共的认知，近期的言论和表现充满了对邪共的谴责，对川普总统的支持，或许经过川普总统的考察，认为“此人可用”，卢比奥获得了川普总统的背书。
 
-此消息由川普总统的长子小唐纳德·川普（Donald J. Trump Jr）发推证实【1】：我的朋友@马可鲁比奥，是为数不多的当选共和党人之一，他明白共和党需要成为中产阶级工人的政党，而不是企业利益的政党。
 
-很荣幸能和我父亲一起支持他连任！
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-推文附上了川普总统的背书：
 
-马可·鲁比奥的背书
 
-我很荣幸地向美国参议员卢比奥表示我的完全支持，马可一直是佛罗里达州人民的不知疲倦的倡导者，为减税而战，支持我们的第二修正案，我们的军队和退伍军人，强大的国防，以及所有被遗忘的美国男女。马可和我一起改革退伍军人协会，帮助我们的小企业发展，在他的帮助下，我们实现了妇女、非裔美国人、西班牙裔美国人、亚裔美国人以及几乎所有美国人的最低失业率，我们与古巴和委内瑞拉社区密切合作，取得了巨大进展。他还裁定“川普总统与俄罗斯没有任何关系，因为他主持了参议院情报委员会关于假俄罗斯、假俄罗斯、假俄罗斯的骗局，马可永远不会让佛罗里达州或我们国家的伟大人民失望！
+据《零对冲》网站4月9日报道，欧洲人权法院在一项重要的判决中裁定——强制接种疫苗是合法的。这可能会对COVID-19疫苗注射剂的推广产生重大影响。
 
--总统唐纳德·川普
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-120.png)图源网络
 
-参考链接：
+这项裁决是针对一些捷克家庭的申诉做出的。这些家庭因拒绝让其子女接受包括白喉、破伤风、百日咳、乙型肝炎和麻疹在内的九种疾病的强制性疫苗接种而被罚款，并被剥夺了托儿所的服务。
 
-【1】https://twitter.com/DonaldJTrumpJr/status/1380509961705381888
+家长认为，该法案违反了关于尊重私人生活权的第8条。但法院不同意，并表示，强制接种疫苗符合儿童的“最大利益”，以确保“每个儿童都能通过接种疫苗或凭借群体免疫力免受严重疾病的侵害”。
 
-背书的文字整理：
+法院的判决书写道：“强制接种可被视为‘民主社会所必需的’”。
 
-Endorsement of Marco Rubio
+虽然这一判决与COVID没有直接关系，但考虑到目前关于疫苗护照的争论，以及一些工作岗位上的工人是否应该被强制接种疫苗作为就业条件，这一裁决可能会产生重大影响。
 
-It is my honor to give U.S. Senator Marco Rubio my Complete and Total Endorsement. Marco has been a tireless advocate for the people of Florida, fighting to cut taxes, supporting our Second Amendment, our Military and our Vets, a strong national defense, and all of the forgotten men and women of America. Marco worked with me to reform the VA and help our small businesses grow, and with his help, we achieved the lowest ever unemployment for women, African Americans, Hispanic Americans, Asian Americans, and almost all Americans Together, we worked closely with the Cuban and Venezuelan communities, and have made great progress. He also ruled that “President Trump was in no way involved with Russia, as he presided over the Senate Intelligence Committee on the FAKE Russia, Russia, Russia Hoax. Marco will never let the great people of Florida, or our Country, down！
+这一判决“加强了在当前COVID-19疫情条件下强制接种疫苗的可能性”，专门研究欧洲人权法院的法律专家尼古拉斯-赫维约（Nicolas Hervieu）告诉法新社。
 
-– President Donald J. Trump
+世界卫生组织紧急委员会强调，疫苗对减少病毒传播的影响尚不清楚。根据该组织的说法，接种疫苗的有效性仍存在一些不确定性。目前，因接种疫苗的死亡和伤害层出不穷，全世界的科学家都在不断警示和质疑疫苗的安全性及其潜在危害。
+
+辉瑞公司前副总裁兼过敏与呼吸系统首席科学家迈克尔-耶顿（Michael Yeadon）博士在接受采访时表示，各国政府针对COVID-19做出了“明显虚假”的宣传，包括危险变种的“谎言”，即：目前COVID-19的变种“不可能”逃脱免疫力。
+
+耶顿指出，制药公司已经开始为病毒“变种”开发不需要的“补种”（“加强剂”）疫苗。除了目前实验性的COVID-19疫苗运动外，这些公司还计划生产数十亿瓶“补种”疫苗。而美国食品药品监督管理局和欧洲药品管理局等监管机构已经宣布，由于这些“补种”疫苗将与之前获批紧急使用授权的注射剂非常相似，制药企业将不需要“进行任何临床安全研究”。
+
+耶顿还警示了“疫苗护照”的极权主义潜质。他说，回顾斯大林、毛泽东和希特勒的罪恶，“大规模人口灭绝”仍然是一个合乎逻辑的结果。这意味着每个人都必须“疯狂地战斗，以确保这个系统永远不会形成”。
+
+参考阅读：
+
+[European Court Of Human Rights Rules That Mandatory Vaccinations Are Legal](https://www.zerohedge.com/covid-19/european-court-human-rights-rules-mandatory-vaccinations-are-legal)
+
+[Former Pfizer VP: ‘Your government is lying to you in a way that could lead to your death.’](https://www.naturalnews.com/2021-04-08-pfizer-vp-your-government-is-lying-to-you.html#)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
 
 0
