@@ -1,139 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.7.2021PM-拜登新闻会上表示他尚未和习近平谈过意味着什么？
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1071127/)
+## 谈谈“孙继海们”可悲之处
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1071356/)
 
-视频剪辑 : Ablec(文A)、
-中听校： 洛杉矶天使农场 – 烟波浩淼
-英翻译：洛杉矶天使农场 – 飞利普
-英校对：洛杉矶天使农场 – 烟波浩淼
-字幕+视频制作：意大利达芬奇农场 – 紫苏花生
+撰稿人：Microkevin
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-128.png)图片来源网络
+几天前，新疆足协副主席孙继海发表言论，中国已经不是100多年前的中国。为新疆棉花站台。我很想问问孙继海先生，您的职业生涯也算是走南闯北，见多识广，不知道像您这么牛的人会不会翻墙，您在英国的时候上不上网。不管您是主动睁眼说瞎话还是被逼无奈，我都看到了如果一个运动员如果失去了正义，真实和善良将会多么的可悲。我们可以预见到像孙继海一样的运动员们在为ccp站台之后肯定会失去一切上升空间。未来的广阔天地一定和他没有任何关系。我还在想，Ccp用完孙继海等人之后不出事则已，出了事会不会把他像卫生纸一样扔掉。未来的子孙后代会如何评价这位曾经的足球运动员。
 
-**博博士
-Dr. Bo**
-拜登说这个话的目的意思其实非常的绝决
-The purpose and meaning of what Biden said is absolutely decisive
+一个职业运动员除了专业技能超出常人能够得到别人的敬重，更多被敬重的是他们的体育精神和与生俱来的正义感。就像郝董，C罗，厄齐尔，同样是足球巨星很多人敬重的除了巨星专业技巧更多的是巨星的人格魅力和正义感。再比如大家以前都喜欢的NBA巨星詹姆斯，体育技能非常专业，可以说是NBA第一人，可是自从香港事件没有站在正义的一边，我想詹姆斯在很多人心中的地位一定是一落千丈，走下神坛。因为人们更在乎的是巨星们是否具有正义感，没有人会喜欢一个没有正义感的体育巨星。
 
-这里面有两层意思
-There are two meanings in it
+而且我认为一个运动员只有秉承正义真实和善良他的职业生涯才能健康发展，我们都知道竞技体育都是与人竞争，很多比赛的取胜之道是打破常规，出奇制胜。比如NBA的小球策略，绝对是因为完全颠覆传统认知而取得的胜利。  如果运动员们的思维首先被局限在那些与体育无关的非正义的事情上。规定哪些能做哪些不能做，如果做了马上完蛋。那他绝对不可能有大的成就。因为他的思维已经被僵化了，他的自我意识已经形成了因畏惧所谓的条条框框而形成的一种寒蝉效应，即使训练再积极，身体条件再好，没有自由的思想。在竞技场上是不可能有惊鸿一瞥的身影。
 
-第一这个事情他还没有跟习提，还不能跟习提
-First, he hasn’t mentioned it to Xi, and he can’t mention it to Xi yet
+因此，只有生活在一个开放，自由，法治的社会下，在一个崇尚正义，真实和善良的环境竞技体育才能正常发展， 运动员才不会沦为利益阶层的工具甚至是玩物。而民主自由之花从来都是用血来浇灌的，因此，让我们都付出行动。为子孙后代创造一个能够让竞技体育健康发展的环境。少一些孙继海这样可悲的运动员。
 
-因为一旦提了的话
-Because once it is mentioned
+(本文仅代表作者个人观点)
 
-按照现在美国所掌握的情报，所掌握的信息
-according to the intelligence and information now possessed by the United States
+编辑：文远Bruce
 
-这个提的话那就是摊牌，这是一
-It is a showdown. This is first one
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
 
-第二就是美国已经对跟中共继续玩这种游戏已经兴趣不大了
-The second is that the U.S. is not quite interested in playing this game with the CCP
+【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
+【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
 
-对中共来说其实更加的危险
-Actually, it is more dangerous for the CCP
+参考文献
 
-为什么，我们上一次在节目里说过
-Why? We said in the previous program
-
-上次WHO到中国去，然后搞成那样一个政治秀
-the WHO was in China last time, it turned into such a political show
-
-到最后 出了一篇屎一样的报告
-and in the end, released with a report like shit
-
-其实当时是国际社会
-Actually, at that time, it was the international community
-
-以美国为主正义力量
-mainly the United States as the main justice force
-
-给中共最后一次机会
-that gave the CCP one last chance
-
-如果在这次里面你能够起码认个错
-If CCP can at least admit the mistake this time
-
-起码能够把自己的责任稍微地揽到自己身上一点
-take their responsibility a little bit to themselves
-
-能够做出一个负责任的大国的样子，这件事情咱们还好说
-and act like a big responsible nation, then there is still chance to talk
-
-这次以后，完完全全中共还是继续各种各样的撒泼
-After this time, the CCP continued to be shrewish
-
-各种各样的脏水往外泼，往美国身上泼
-and pour all kinds of dirty words on the United States
-
-所以东西都往外
-So all issues belong to someone else
-
-把自己的责任推得一干二净
-push themselves all the responsibilities away clearly
-
-但我觉得还有一层原因就是说
-But I think another reason is that
-
-美国现在已经对于跟中共继续玩这种文字游戏
-the United States is not much interested in continuing this kind of wordplay and game
-
-口炮游戏没有多大兴趣了，脱钩又往前进了一步
-of invectives with CCP now， so the decoupling is one step forward
-
-**胡博士
-Dr. Hu**
-新疆还有病毒的事情加到一起
-Plus the issues of Xinjiang and viruses together
-早已经改变了背后的深邃
-that has already changed the depth behind it
-
-表面上，我们看到的湖面是平静的
-On the surface, the lake we see is calm
-
-底下早已掀起了滔天巨浪
-while there are already monstrous waves underneath.
-
-我们根本没有看到，已经都闹到了分手的边沿了
-Although we don’t see them at all, yet they are already on the edge of breaking up
-
-这个时候竟然还想挽回
-At this time, they even want to redeem
-
-这个就是第一个给大家传递的一个信息
-this is a first message to be delivered to everybody
-
-我觉得非常明显
-I think it’s very obvious
-
-然后，咱先不说病毒的事
-Then, let’s not talk about the virus first
-
-光说新疆种族灭绝
-just talk about the genocide in Xinjiang
-
-在VOA里面， 不是别的自媒体
-It is VOA, and not the other self-media
-
-里面讲的新疆种族灭绝是被比作纳粹
-to address the genocide in Xinjiang was compared to Nazis
-
-也就是说现在公开就把这个说了
-In other words, it’s now talk about this publicly
-
-现在就是纳粹，你想 , 美国把这个东西比作纳粹
-Now, this is Nazis. You imagine, the United States compares this matter to Nazis
-
-德国对这件事多么敏感，
-How sensitive Germany is to this matter
-
-默克尔无论如何你都不敢跟纳粹合作
-Merkel, in any case, you don’t even dare to cooperate with the Nazis
-
-是不是这个道理？
-Doesn’t this make sense?
-
+孙继海火力全开：[中国已不是100多年前的中国『OL』](https://sports.sina.cn/china/other/2021-03-26/detail-ikknscsk1801201.d.html?vt=4&amp;cid=69436&amp;node_id=69436)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
 0
