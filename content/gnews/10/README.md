@@ -1,78 +1,139 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《灭共杂谈》之——谈感恩心
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1071109/)
+## 【路德时评摘要】4.7.2021PM-拜登新闻会上表示他尚未和习近平谈过意味着什么？
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1071127/)
 
-撰稿：童媚
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片-5.png)(图片来自《灭共杂谈》片头）
-“得道者多助，失道者寡助”，这句话中的“道”究竟被什么影响？
+视频剪辑 : Ablec(文A)、
+中听校： 洛杉矶天使农场 – 烟波浩淼
+英翻译：洛杉矶天使农场 – 飞利普
+英校对：洛杉矶天使农场 – 烟波浩淼
+字幕+视频制作：意大利达芬奇农场 – 紫苏花生
 
-智慧度、学习力、创新力、行动力、感恩心，这五个最关键因素中，究竟“得道”还是“失道”，最关键的因素居然是潜意识里的“感恩心”。听完整《灭共杂谈》第54期与55期的“感恩心专辑”，让我思考颇深。
+**博博士
+Dr. Bo**
+拜登说这个话的目的意思其实非常的绝决
+The purpose and meaning of what Biden said is absolutely decisive
 
-“感恩心”教育似乎在中共国也没有缺少过，回顾我十几年在中共国的学习经历，“感恩”二字也是频频挂在嘴边，时时见于纸面，但它们共产党教会我们感恩的是什么？是歪理邪说：“爹亲、娘亲、不如党亲。”
+这里面有两层意思
+There are two meanings in it
 
-首先，要感恩所谓“伟大领袖”。随便在网络上一搜，歌颂毛腊肉的歌，轻轻松松就不下200首，估计翻遍字典，所有赞美之词都用了个遍，也没能完成对它滔滔不绝的赞美和爱戴。我们小时候信口拈来“毛\*\*就是那金色的太阳”，“东方红太阳升，中国出了个毛泽(贼)东”。潜意识里，我们幼小的心灵就被植根下祖辈、父辈甚至我们的命运都是这位所谓“伟大领袖”的卓见和壮举所赐予的谬论同错误价值观。
+第一这个事情他还没有跟习提，还不能跟习提
+First, he hasn’t mentioned it to Xi, and he can’t mention it to Xi yet
 
-现在，鸟枪换炮，换汤不换药，全民又开始歌颂起了“习大神”，一首“东方又红”就道出了他存在的意义，他想成为继毛贼东之后，第二轮照亮民心的太阳。
+因为一旦提了的话
+Because once it is mentioned
 
-其次，要感恩“伟大”的共产党。它们宣言“革命先烈(土匪)”抛头颅洒热血，不计生命代价为我们打下了江山，才有了如今的“美好生活”。可江山是人民的吗？人民什么时候当家作主过了呢？一个连迁移都要被可笑的户籍所限制的国度，一个连奋斗都要被三六九等划分阶级接受不平等待遇的地方，一个连亲人离世都不配有坟墓，都不能去痛哭一场的土地上，我们要感恩什么？感恩让我们活在无知愚昧中的共产党吗？
+按照现在美国所掌握的情报，所掌握的信息
+according to the intelligence and information now possessed by the United States
 
-第三，CCP还要老百姓感恩共产党今天“赐予”我们所拥有的一切。在中共国这片神奇的土地上，我们拥有的一切并不能算作我自己的努力和拼搏，而是因为这个政党“赏赐”给我们的机会。宣言“大跃进”引起的三年大饥荒是自然灾害。那种饥饿的痛苦是让人一辈子后怕和痛彻心扉的，当我们生活在不用考虑衣食的今天，要让老百姓必须感恩这个政党给我们的一切。
+这个提的话那就是摊牌，这是一
+It is a showdown. This is first one
 
-文革十年，是知识分子陨落的十年，那种对知识的渴望和恨生活的不公，没有人敢戳破这是一场“运动”仅仅是因为毛一个人为了其权力斗争而发动的真相。
+第二就是美国已经对跟中共继续玩这种游戏已经兴趣不大了
+The second is that the U.S. is not quite interested in playing this game with the CCP
 
-当985、211烂大街，硕士满街走，学士多如狗的今天，当700万外卖小哥有7万人是硕士学位的今天，当原本理应是最追求道德节操的高等学府已彻底沦落到将灵魂出卖的今天。还要让我们老百姓感恩这个政权给与了我们“平等”的所谓可以奋斗向上的通道。但为什么同样的教育体系下，同样的考分能力下，生活在不同城市的孩子，却注定有截然不同的命运。
+对中共来说其实更加的危险
+Actually, it is more dangerous for the CCP
 
-这就是我们这一代所学会的“感恩”：
+为什么，我们上一次在节目里说过
+Why? We said in the previous program
 
-看着现在，多少年轻人宁愿捧着手机刷抖音，也不愿和父母通一次话。
+上次WHO到中国去，然后搞成那样一个政治秀
+the WHO was in China last time, it turned into such a political show
 
-看着现在，多少新晋爸妈宁愿指责父母没有现代教育理念，也不愿花一分钟陪伴孩子。
+到最后 出了一篇屎一样的报告
+and in the end, released with a report like shit
 
-看着现在，多少父母病榻前的“孝子”宁愿花钱雇一个全职保姆，也不肯陪一天夜。
+其实当时是国际社会
+Actually, at that time, it was the international community
 
-就是这样的“感恩教育”教育出了那么多连自己从哪里来都已经忘了的一代，而这样一个群体的下一代，只会比他们更冷漠和无情。
+以美国为主正义力量
+mainly the United States as the main justice force
 
-你用常人的标准去丈量墙内的道德，你会发现，你连常态都不算，就是那些被人指点的“变态“。但当有一天，你去到了一个自由又有情的国度，你才豁然开朗，原来人间不是你想象的那样。
+给中共最后一次机会
+that gave the CCP one last chance
 
-人间应该是，当你落魄，周围的眼睛不会蔑视你，并虚情假意；
+如果在这次里面你能够起码认个错
+If CCP can at least admit the mistake this time
 
-人间应该是，当你有难，很多双手会伸到你面前，并不求回报；
+起码能够把自己的责任稍微地揽到自己身上一点
+take their responsibility a little bit to themselves
 
-人间应该是，当你喜悦，四周都会是真诚的喝彩，并衷心祝贺；
+能够做出一个负责任的大国的样子，这件事情咱们还好说
+and act like a big responsible nation, then there is still chance to talk
 
-人间应该是，当你承诺，你会把契约放在第一位，并信守诺言；
+这次以后，完完全全中共还是继续各种各样的撒泼
+After this time, the CCP continued to be shrewish
 
-人间应该是，当你受赠，感恩不必多言但记心间，并涌泉相报。
+各种各样的脏水往外泼，往美国身上泼
+and pour all kinds of dirty words on the United States
 
-回看爆料革命这几年所凝聚的力量，只要是真战友，无一不满怀感恩。
+所以东西都往外
+So all issues belong to someone else
 
-感恩文贵先生抛弃所有，为14亿中国人而战；
+把自己的责任推得一干二净
+push themselves all the responsibilities away clearly
 
-感恩无名英雄舍弃生命，为新中国的明天而战；
+但我觉得还有一层原因就是说
+But I think another reason is that
 
-感恩背靠背的战友坚定，为早日解救同胞而战；
+美国现在已经对于跟中共继续玩这种文字游戏
+the United States is not much interested in continuing this kind of wordplay and game
 
-感恩自己明辨是非善恶，为跟从内心正义而战。
+口炮游戏没有多大兴趣了，脱钩又往前进了一步
+of invectives with CCP now， so the decoupling is one step forward
 
-这些感恩，点点滴滴溶于我们的血液，深入我们的骨髓，无论是一次发推、一回点赞，还是一篇评论、一句鼓励，都是无穷的力量，凝结着正义，感动着天地。
+**胡博士
+Dr. Hu**
+新疆还有病毒的事情加到一起
+Plus the issues of Xinjiang and viruses together
+早已经改变了背后的深邃
+that has already changed the depth behind it
 
-当世界因我们坚守的信仰而发生改变的时候，我们更不应该忘记感恩，最后感恩《灭共杂谈》给我们的启发和思考，因为前进的路上，需要更多能让我们思想停下来休整的时刻。
+表面上，我们看到的湖面是平静的
+On the surface, the lake we see is calm
 
-(本文仅代表作者个人观点)
+底下早已掀起了滔天巨浪
+while there are already monstrous waves underneath.
 
-编辑：文远Bruce
+我们根本没有看到，已经都闹到了分手的边沿了
+Although we don’t see them at all, yet they are already on the edge of breaking up
 
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+这个时候竟然还想挽回
+At this time, they even want to redeem
 
-【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
-【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
+这个就是第一个给大家传递的一个信息
+this is a first message to be delivered to everybody
 
-新闻来源：
+我觉得非常明显
+I think it’s very obvious
 
-[(69) 2021年4月6日《灭共杂谈》54期：文贵先生多次提到的【感恩心】在心理学中具体是怎么定义？幸运的人生最关键因素是【潜意识的感恩心】为什么？ – YouTube](https://www.youtube.com/watch?v=epGKY7VB7aI)
+然后，咱先不说病毒的事
+Then, let’s not talk about the virus first
 
-[(69) 2021年4月7日《灭共杂谈》55期：爆料革命是高感恩人群聚集地吗？翻看春秋史书，看看到底什么是【忠诚】？ – YouTube](https://www.youtube.com/watch?v=lLrd6VVlngM&amp;t=513s)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2.jpg)
+光说新疆种族灭绝
+just talk about the genocide in Xinjiang
+
+在VOA里面， 不是别的自媒体
+It is VOA, and not the other self-media
+
+里面讲的新疆种族灭绝是被比作纳粹
+to address the genocide in Xinjiang was compared to Nazis
+
+也就是说现在公开就把这个说了
+In other words, it’s now talk about this publicly
+
+现在就是纳粹，你想 , 美国把这个东西比作纳粹
+Now, this is Nazis. You imagine, the United States compares this matter to Nazis
+
+德国对这件事多么敏感，
+How sensitive Germany is to this matter
+
+默克尔无论如何你都不敢跟纳粹合作
+Merkel, in any case, you don’t even dare to cooperate with the Nazis
+
+是不是这个道理？
+Doesn’t this make sense?
+
 0

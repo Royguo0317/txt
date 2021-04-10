@@ -1,89 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日新闻收集【4/9】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1070521/)
+## 【信仰之声】从四川三星堆文物解读华夏文明之渊源（二）
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1070601/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
-
-中共病毒推特信息分享
+作者：纽约香草山福音部 文一论道
 
 
 
-> Sellin博士给出了中共释放病毒的三种可能状况：
-> 1 故意释放基因编辑改造过的冠状病毒
-> 2 逆转冠状病毒疫苗，使疫苗致病
-> 3 用冠状病毒测试疫苗效果，结果失败
-> 这是“SIXTA”的研判结果吗？乖乖啊😱 [https://t.co/DK8Xh4fcTX](https://t.co/DK8Xh4fcTX)
-> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [April 9, 2021](https://twitter.com/jsdfposjpqyuee1/status/1380402354168623104?ref_src=twsrc%5Etfw)
-
-
-**`火来战友推特大意`**
-*Sellin博士给出了中共释放病毒的三种可能状况：
- 1 故意释放基因编辑改造过的冠状病毒 
-2 逆转冠状病毒疫苗，使疫苗致病 
-3 用冠状病毒测试疫苗效果，结果失败 这是“SIXTA”的研判结果吗？*
-
-
-> 突然明白为什么中共国强制打疫苗…让所有老人打中国疫苗，是解决破产的养老金制度的好办法啊！ [https://t.co/lRA6M4PAU7](https://t.co/lRA6M4PAU7)
-> — 瞿水台 Qu Shuitai (@QuShuitai) [April 7, 2021](https://twitter.com/QuShuitai/status/1379880693526896649?ref_src=twsrc%5Etfw)
-
-
-**`瞿水台推特`**
-*突然明白为什么中共国强制打疫苗…让所有老人打中国疫苗，是解决破产的养老金制度的好办法啊*
-
-
-> 塞林博士：武毒所的危宏平是被断定的冠状病毒的＂零号病人＂黄艳玲的导师。他与中共军方有联系，包括拥有冠状病毒的备受怀疑的舟山蝙蝠冠状病毒骨干ZC45/ZXC21的解放军第三军医大学！[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/ipkHGPsoCX](https://t.co/ipkHGPsoCX)
-> — 花岗岩 (@graniteofstone) [April 8, 2021](https://twitter.com/graniteofstone/status/1380076724046557189?ref_src=twsrc%5Etfw)
-
-
-**`花岗岩推特`**
-塞林博士：武毒所的危宏平是被断定的冠状病毒的＂零号病人＂黄艳玲的导师。他与中共军方有联系，包括拥有冠状病毒的备受怀疑的舟山蝙蝠冠状病毒骨干ZC45/ZXC21的解放军第三军医大学
-
-
-> Part of my first anonymous revelation of PLA lab-origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) on 19 Jan, 2020, via LuDe Media (English subtitle [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw))
-> I explained to Mr. LuDe for 2 Ds, then he delivered the information in his style. 
-> China gov was forced to conduct a serial actions immediately. [https://t.co/NIUwR96AM8](https://t.co/NIUwR96AM8)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 8, 2021](https://twitter.com/DrLiMengYAN1/status/1380281553029373952?ref_src=twsrc%5Etfw)
-
-
-**`闫博士推特`**
-*认证火来战友的信息*
-
-
-> Dr. Tess Lawrie, Director of the Evidence-Based Medicine Consultancy Ltd., urges people across the world to take charge of their health— even as governments & health authorities ignore evidence showing that ivermectin effectively prevents & treats COVID-19. [#ivermectinSavesLives](https://twitter.com/hashtag/ivermectinSavesLives?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/PJl8G1C5BR](https://t.co/PJl8G1C5BR)
-> — Frontline Covid-19 Critical Care (@Covid19Critical) [April 8, 2021](https://twitter.com/Covid19Critical/status/1380113196992843779?ref_src=twsrc%5Etfw)
-
-
-**`一线重症中共病毒患者监护的推特`**
-*泰斯·劳丽博士可证医学咨询有限公司主任敦促世界各地的人们负责自己的健康——即使**政府和卫生当局**屏蔽了伊维菌素有效预防和治疗中共病毒的证据*
-
-
-> New research out of Switzerland: [pic.twitter.com/vQlL9gsyp4](https://t.co/vQlL9gsyp4)
-> — Dr. Brian Tyson, MD 🇺🇸 (@btysonmd) [April 7, 2021](https://twitter.com/btysonmd/status/1379855518974365697?ref_src=twsrc%5Etfw)
-
-
-**`布莱恩·泰森医学博士推特`**
-*瑞士的新研究图表可见：由于人们使用羟氯喹，导致死亡人数降低三倍，效果明显*
-
-
-> The stopping of HCQ caused increase in death. It is a delayed response. Then the restart of HCQ caused the death rate to go back down.
-> — Dr. Brian Tyson, MD 🇺🇸 (@btysonmd) [April 7, 2021](https://twitter.com/btysonmd/status/1379857273992871936?ref_src=twsrc%5Etfw)
-
-
-**`布莱恩·泰森推特`**
-*HCQ的停止使用导致死亡人数增加。这是一个延迟响应。然后HCQ的重新使用导致死亡率下降*
-
-
-> COVID scandal: Feds ignored 2016 law requiring use of real world evidence [https://t.co/CySlfpqkMp](https://t.co/CySlfpqkMp)
-> — AssocAmerPhys&Surg (@AAPSonline) [April 7, 2021](https://twitter.com/AAPSonline/status/1379876169672101892?ref_src=twsrc%5Etfw)
-
-
-**`私人医生的声音`**
-*中共病毒丑闻：美联储无视2016年要求使用真实世界证据的法律。附极右翼《WND》的**`新闻链接`***：
-*福奇和政府的无视真实数据和法律，这造成了美国人无法使用爆料革命最先推荐的预防中共病毒药物*
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
+在前文中，笔者解读了三星堆的《圣经》含义，辅助生命树、智慧树的佐证。本文将给大家解读黄金文明的渊源，以及“开天眼”的青铜像与《圣经》的记录一致。
 
-+1
+![]()![](https://gnews.org/wp-content/uploads/2021/04/70.jpg)图源网络
+
+三、中国稀有而《圣经》充满的黄金文明
+
+青铜的熔化温度在900摄氏度左右，而金子的熔点在一千度以上，铁的熔化温度则更高。这也是为什么首先有青铜文化——因为在青铜时代，华夏还没有具备熔炼金子的高温技术。然而，三星堆竟然挖掘出超宽、超薄、超精（含金量84%）的巨型金面具。而且，该面具与其说是华人祖先的面孔，以其粗旷轮廓，不如说更像西亚或埃及人的面孔。从历史的角度来看，中国有青铜和陶瓷文物，有丝绸和茶叶文化，但黄金文明不在中国，而在中东和《圣经》的记载里。《圣经》考古学家多认为，《创世纪》第二章中的哈腓拉（哈维拉）位于当今的埃及与中东之间的地带，这里也是考古学家发掘出最久古的黄金文物的地域。
+
+《创世纪》第二章：“有河从伊甸流出来，滋润那园子，从那里分为四道： 第一道名叫比逊，就是环绕哈腓拉全地的。在那里有金子， 并且那地的金子是好的；在那里又有珍珠和红玛瑙。”
+
+旧约里，耶和华神指导摩西清晰地记录下来，在神人会面的帐幕里，有四十多件器具必须用精金包裹；到了所罗门所建的圣殿，更是从里到外金碧辉煌。金子在《圣经》里代表神的同在和荣耀，也代表圣徒的信心和永远的生命。
+
+《出埃及记》第25章是这样记录“约柜”的：“要用皂荚木做一柜，长二肘半，宽一肘半，高一肘半。 要里外包上精金，四围镶上金牙边。 也要铸四个金环，……要用皂荚木做两根杠，用金包裹……要用精金做施恩座，长二肘半，宽一肘半。要用金子锤出两个基路伯来，安在施恩座的两头……”
+
+四、人无法理解而《圣经》清楚注释的怪异巨型柱眼青铜面具
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-125.png)图源网络
+
+在三星堆众多的文物之中，这具巨型青铜面具最为怪异：它双眼外突达16厘米，耳朵向两边张开，面具宽达138厘米，面目轮廓分明，凌厉而威严。据说，这是世界上年代最久远，形体面积最大的青铜面具。有人解释说，这是中国传说中的“千里眼，顺风耳”的造型和膜拜的蜀王偶像。但是，在一个有生命树和智慧树记录始祖故事的地方，《创世纪》是怎样记载人类的眼睛呢？《创世纪》第三章是这样记载的：
+
+“1耶和华　神所造的，惟有蛇比田野一切的活物更狡猾。蛇对女人说：‘　神岂是真说不许你们吃园中所有树上的果子吗？’2 女人对蛇说：‘园中树上的果子，我们可以吃，3惟有园当中那棵树上的果子，　神曾说：『你们不可吃，也不可摸，免得你们死。』’4蛇对女人说：‘你们不一定死；5因为　神知道，你们吃的日子眼睛就明亮了，你们便如　神能知道善恶。’6于是女人见那棵树的果子好作食物，也悦人的眼目，且是可喜爱的，能使人有智慧，就摘下果子来吃了，又给她丈夫，她丈夫也吃了。7他们二人的眼睛就明亮了，才知道自己是赤身露体，便拿无花果树的叶子为自己编做裙子。”
+
+这里清楚地告诉我们，原来始祖是吃了知识果，眼睛明亮了，但神的荣耀却失去了，所以才有“人人都犯了罪，亏缺了神的荣耀”，这是基督来到世间恢复神给人类荣耀的后话。先祖堕落的历史就是“眼睛明亮”的历史。一方面，我们的眼睛真的明亮了，好像发出了激光般的光芒，什么都知道了，好像每人都有了智慧，人人都明白善恶是非；而真实的状况却是：我们心灵的眼睛被石柱戳瞎了，失去了神的同在和荣耀，不知道顺从上天的旨意，人人都自以为是，自以为正，结党纷争，趋炎附势，冷酷自私，乃至发展到如今罪恶昭彰的末后景象。那么，耶稣怎样描述这个世代呢？
+
+《约翰福音》9:41 “耶稣对他们说：‘你们若瞎了眼，就没有罪了；但如今你们说『我们能看见』，所以你们的罪还在。’”
+
+不是这样吗？如果这青铜面具是“眼睛明亮了”，就像人类认为自己不需要神，因为“我们能看见，能明白，能治理”，那么人心灵的眼睛就像永远被两根石柱戳瞎，永远住在黑暗和罪的权势之下。相反，如果这青铜面具让我们认识到，我们是“瞎眼的，无知的，需要神的”，我们就开始了信仰回归的道路。当我们因着信心，在耶稣里恢复神荣耀的时候，我们就进入了一个奇妙光明的国度。那时，我们就会清楚地知道，原来始祖犯罪之前才是我们灵魂的眼睛最明亮的时候。
+
+这个凸眼青铜面具正在把眼光射向神州大地的每一个灵魂：回归信仰吧，你们的眼目就会象激光一样，看透并冲破CCP的黑暗权势；否则，你们的眼目将永远像伊甸堕落的始祖，好像肉眼明亮了，而心灵的双目已经被黑暗的“假擀面杖子”遮盖许久许久了。
+
+（本文观点仅代表作者）
+
+相关阅读：
+
+[【信仰之声】从四川三星堆文物解读华夏文明之渊源（一）](https://gnews.org/zh-hans/1050054/)
+
+[【战友心声】小蚂蚁过海与大浪淘沙](https://gnews.org/zh-hans/1025837/)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
+
+0

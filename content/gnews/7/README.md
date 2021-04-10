@@ -1,139 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.7.2021PM-拜登新闻会上表示他尚未和习近平谈过意味着什么？
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1071127/)
+## 美媒分析称制裁对中共经济带来致命打击
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1071200/)
 
-视频剪辑 : Ablec(文A)、
-中听校： 洛杉矶天使农场 – 烟波浩淼
-英翻译：洛杉矶天使农场 – 飞利普
-英校对：洛杉矶天使农场 – 烟波浩淼
-字幕+视频制作：意大利达芬奇农场 – 紫苏花生
+俄罗斯莫斯科喀秋莎农场   银河
 
-**博博士
-Dr. Bo**
-拜登说这个话的目的意思其实非常的绝决
-The purpose and meaning of what Biden said is absolutely decisive
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/k-1.jpg)explica.co
+4月9日美国新闻平台Exbulletin发文称，因中共在新疆实施种族灭绝和强迫劳动，在香港暴行及南中国海的霸权主义扩张，中共正面临西方多个国家的经济制裁，习近平政权在经济和货币方面陷入了僵局。
 
-这里面有两层意思
-There are two meanings in it
+自2020年初中共病毒疫情冲击下，为了筹集必要的资金应对中共病毒的影响，日本、美国和欧洲的央行都加大了量化扩张政策力度，重点是购买新发行的政府债券。全球金融和财政政策的潮流似乎已经达到了一个历史性的转折点。
 
-第一这个事情他还没有跟习提，还不能跟习提
-First, he hasn’t mentioned it to Xi, and he can’t mention it to Xi yet
+中共极权在应对中共病毒疫情上释放了所有国家力量，在城市实施了严厉的封锁，中共政府在很大程度上成功地阻止了病毒的传播，让经济活动迅速恢复正常，使得中共成为2020年世界主要经济体中唯一实现实体经济同比增长2.3%的国家。貌似中共不需要像西方国家那样进行大规模的融资和货币宽松，中共经济看起来一片利好，然而这只是假象。
 
-因为一旦提了的话
-Because once it is mentioned
+GDP正增长的主要原因是中共贸易顺差的增加。全国各地的工厂迅速恢复生产，并开始向日本、美国和欧洲这些因中共病毒影响生产停滞的国家出口。然而，与此同时中共国内需求停滞不前。例如，观察批发和零售部门的家庭消费趋势，即使在2020年10月至12月四季度有一个显著的反弹，销售额仍然比前一年同期下降1.3%。
 
-按照现在美国所掌握的情报，所掌握的信息
-according to the intelligence and information now possessed by the United States
+尤其引人注目的是，中共人民银行(PBOC)在2020年的基金发行增长率不到2%，这一项目的增长率低于当年GDP的名义增长率。这表明中共当局对融资保持着严格的控制，没有提供足够的增长资本。
 
-这个提的话那就是摊牌，这是一
-It is a showdown. This is first one
+究其原因在于中共央行通过购买外币提供资本。从本质上讲，中共的货币及货币体系是以美元为基础的。自2017年以来，中共外汇储备几乎没有增长。由于中共的贸易顺差和外国在华投资，让中共货币得到了一定的保障，然而由于对中共极权专制下市场环境的担忧，使得大量资本逃离了中共国。截至2012年中，中共人民银行的外汇储备与资金发行比率超过100%，但到2021年2月已下滑至65%的水平。如果人民币对美元的支持进一步下降，人们对人民币的信心将不可避免地受到损害。
 
-第二就是美国已经对跟中共继续玩这种游戏已经兴趣不大了
-The second is that the U.S. is not quite interested in playing this game with the CCP
+习政权的另一个威胁来自美国对其贸易和金融的制裁。北京方面剥夺了香港回归时的“一国两制”承诺，并对香港民主运动进行血腥镇压。美国政府因此冻结了一些中共官员的资产并对其实施制裁，就其金融交易而言也有法律手段做为支援。如果美国最终采取极端措施，阻止港币兑换成美元，它将关闭中共使用港币作为人民币兑换美元的途径。
 
-对中共来说其实更加的危险
-Actually, it is more dangerous for the CCP
+同时因为中共在新疆的种族灭绝和反人类罪行，美国及多个西方民主国家对中共实施了制裁。在美国前川普总统执政期间，美国已将数十家“与中共军方有联系”的中共企业，包括“帮助中共军方在南海造岛，以及一些涉嫌侵犯人权的公司”列入经济黑名单，其中包括中共最大的智能手机制造商华为技术有限公司、顶级芯片制造商中芯国际、中共石油巨头中海油和最大的无人机制造商深圳大疆科技有限公司等。
 
-为什么，我们上一次在节目里说过
-Why? We said in the previous program
+本周四，美国商务部又将7家中共超级计算机实体列入美国经济黑名单，理由是它们协助中共的军事行动。这些制裁对中共经济构成了致命的打击。
 
-上次WHO到中国去，然后搞成那样一个政治秀
-the WHO was in China last time, it turned into such a political show
+在最近在阿拉斯加举行的美中外交会谈中，中共中央外事工作委员会主任杨洁篪向美国国务卿安东尼·布林肯开火，指责美国的金融霸权，表明经济制裁已经打到了中共的七寸，让其陷入困境。事实证明，最终，金融是极权主义的致命弱点。
 
-到最后 出了一篇屎一样的报告
-and in the end, released with a report like shit
+参考链接：
 
-其实当时是国际社会
-Actually, at that time, it was the international community
-
-以美国为主正义力量
-mainly the United States as the main justice force
-
-给中共最后一次机会
-that gave the CCP one last chance
-
-如果在这次里面你能够起码认个错
-If CCP can at least admit the mistake this time
-
-起码能够把自己的责任稍微地揽到自己身上一点
-take their responsibility a little bit to themselves
-
-能够做出一个负责任的大国的样子，这件事情咱们还好说
-and act like a big responsible nation, then there is still chance to talk
-
-这次以后，完完全全中共还是继续各种各样的撒泼
-After this time, the CCP continued to be shrewish
-
-各种各样的脏水往外泼，往美国身上泼
-and pour all kinds of dirty words on the United States
-
-所以东西都往外
-So all issues belong to someone else
-
-把自己的责任推得一干二净
-push themselves all the responsibilities away clearly
-
-但我觉得还有一层原因就是说
-But I think another reason is that
-
-美国现在已经对于跟中共继续玩这种文字游戏
-the United States is not much interested in continuing this kind of wordplay and game
-
-口炮游戏没有多大兴趣了，脱钩又往前进了一步
-of invectives with CCP now， so the decoupling is one step forward
-
-**胡博士
-Dr. Hu**
-新疆还有病毒的事情加到一起
-Plus the issues of Xinjiang and viruses together
-早已经改变了背后的深邃
-that has already changed the depth behind it
-
-表面上，我们看到的湖面是平静的
-On the surface, the lake we see is calm
-
-底下早已掀起了滔天巨浪
-while there are already monstrous waves underneath.
-
-我们根本没有看到，已经都闹到了分手的边沿了
-Although we don’t see them at all, yet they are already on the edge of breaking up
-
-这个时候竟然还想挽回
-At this time, they even want to redeem
-
-这个就是第一个给大家传递的一个信息
-this is a first message to be delivered to everybody
-
-我觉得非常明显
-I think it’s very obvious
-
-然后，咱先不说病毒的事
-Then, let’s not talk about the virus first
-
-光说新疆种族灭绝
-just talk about the genocide in Xinjiang
-
-在VOA里面， 不是别的自媒体
-It is VOA, and not the other self-media
-
-里面讲的新疆种族灭绝是被比作纳粹
-to address the genocide in Xinjiang was compared to Nazis
-
-也就是说现在公开就把这个说了
-In other words, it’s now talk about this publicly
-
-现在就是纳粹，你想 , 美国把这个东西比作纳粹
-Now, this is Nazis. You imagine, the United States compares this matter to Nazis
-
-德国对这件事多么敏感，
-How sensitive Germany is to this matter
-
-默克尔无论如何你都不敢跟纳粹合作
-Merkel, in any case, you don’t even dare to cooperate with the Nazis
-
-是不是这个道理？
-Doesn’t this make sense?
+[https://exbulletin.com/politics/843224/](https://exbulletin.com/politics/843224/)
 
 0
