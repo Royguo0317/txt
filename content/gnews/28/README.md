@@ -1,16 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月9日 文贵先生盖特 5
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1071783/)
+## 2021年4月9日 文贵先生盖特 6
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1071824/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-4/9/2021 路德节选：郝董曝光中共体工队和国家队男女“混居” 中共腐败治下的运动界也不能脱俗，运动员不但要有成绩、还要会拍马匹、同流合污 4/9/2021 Lude Media (Selected): Mr. Hao Haidong Exposing the CCP-Run Sports Teams and the So-Called National Teams All “Sleeping Together” kbaThe CCP regime is corrupted, and its sports sector is no exception. Athletes must not only have achievements, but also be able to “please” their coaches and more Ship began to sink at the head.
+4/8/2021 路德精选：郝董爆料军队文工团生活糜烂不堪 中共军队后宫权色交易横行，所谓肥水不流外人田，王子文傍王朔 4/8/2021 Lude Meida: Hao Haidong whistleblowed the decadent and dissolute life in CCP’s PLA Song and Dance Troupes. The CCP’s military harem power-sex dealings are rampant, the so-called “Every miller draws water to his own mill”, Wang Shuo is Wang Ziwen’s sugar daddy.
 
 
 
-[【2021年4月9日】文贵先生盖特原文](https://gtv.org/getter/6071297ddbc8001854a72101)
+[【2021年4月9日】文贵先生盖特原文](https://gtv.org/getter/607133dedbc8001854a724ad)
 
 **喜联盟Gnews编辑部**
 

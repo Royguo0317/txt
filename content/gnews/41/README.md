@@ -1,82 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港民主人士罗冠聪获得英国政庇
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1071631/)
+## 中共在新疆宴请外国代表团为种族灭绝洗地
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1071670/)
 
-新闻来源：《香港自由新闻》| 作者：AFP | 发布时间：2021年4月8日
+新闻来源：《布莱特巴特新闻网（Breitbart）》| 作者：约翰·海沃德（ John Hayward ）| 发布时间：2021年4月6日
 
-翻译/简评：新街口 | 校对：X-Wing飞得更高 | 审核：万人往 | Page：Daoiii
+翻译/简评：Claire | 校对：clau | 审核：万人往 | Page：Daoiii
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Lyb9RQjOLXsCd/images/60f8a27a-8672-4797-9f41-e1b247109826.jpg?asset_id=01f52e84-364b-4c6a-85ed-fd5af142db7c&amp;img_etag=%22ee646133015cfc4a160786a37e9a4ff8%22&amp;size=2560)](https://spark.adobe.com/page/Lyb9RQjOLXsCd/images/60f8a27a-8672-4797-9f41-e1b247109826.jpg?asset_id=01f52e84-364b-4c6a-85ed-fd5af142db7c&amp;img_etag=%22ee646133015cfc4a160786a37e9a4ff8%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/A3W67vCxS34NA/images/25b2312e-4cfb-42f3-b66e-c6fa75da0ddc.jpg?asset_id=76927a1f-c123-4dee-bb4f-b564d13c6deb&amp;img_etag=%223331fad454eae19500de836715fea4e4%22&amp;size=2560)](https://spark.adobe.com/page/A3W67vCxS34NA/images/25b2312e-4cfb-42f3-b66e-c6fa75da0ddc.jpg?asset_id=76927a1f-c123-4dee-bb4f-b564d13c6deb&amp;img_etag=%223331fad454eae19500de836715fea4e4%22&amp;size=1024)图片来源：Getty Images
 
 **简评：**
 
-中共违背了自己和英国政府签署的香港民主制度50年不变的承诺，在2020年对香港人民的和平示威进行残暴的武力镇压，随即强行引进国安法，打着国家安全的幌子废除了香港的民主和法治，并对香港的民主运动人士进行非法的拘捕和审判。
+本文讲述了在拒绝了联合国派遣事实调查团前往新疆的申请后，中共自己邀请一支所谓的专家团到新疆访问。而有的专家团成员本身就来自没有自由与人权的国家，例如伊朗。这样的访问团成了为中共洗地、唱赞歌的豪华旅游团。成员们在得到中共的“盛情款待”后，大肆宣扬新疆的穆斯林人民在中共的领导下信仰自由，生活越来越好，关押无辜民众的集中营也被美化成了中共有效控制恐怖主义、为恐怖分子提供了改过自新的机会的“职业培训中心”。访问团成员颠倒黑白、指鹿为马的嘴脸，彻底暴露了他们已经沦为中共傀儡的事实。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Lyb9RQjOLXsCd/images/afabd478-0f89-4c60-bc03-9a8964740f74.jpg?asset_id=f4f21c1e-5e7d-40de-bead-04913a026d6c&amp;img_etag=%22e7112150b49ff7dc705af063a1e64885%22&amp;size=2560)](https://spark.adobe.com/page/Lyb9RQjOLXsCd/images/afabd478-0f89-4c60-bc03-9a8964740f74.jpg?asset_id=f4f21c1e-5e7d-40de-bead-04913a026d6c&amp;img_etag=%22e7112150b49ff7dc705af063a1e64885%22&amp;size=1024)活动人士周庭在香港大埔警署外与媒体对话。 ISAAC LAWRENCE/AGENCE FRANCE-PRESSE — GETTY IMAGES
+近年来，一些曾被关押的维吾尔人民向西方媒体供述他们在新疆再教育营的亲身经历，并指证所谓的再教育营内部的种种暴行：关押人员被洗脑、强迫劳动、父母与孩童被强迫分离、妇女强制绝育、遭受系统性性侵和虐待，甚至死亡。虽然中共外交部和驻外机构持续反驳，声称指控者捏造经历，制造假新闻，但越来越多的受害者站出来揭露中共的恶行。美国前国务卿迈克·彭培奥在离任前发表声明称，中共在新疆犯有种族灭绝和反人类罪，并列举了其种种劣性。对于这些罪行，任何一个有正义的民族和国家都不会袖手旁观。我们新中国联邦和爆料革命会继续传播真相到世界的每一个角落，揭露中共所有的谎言，让中共无底限的恶行曝光在阳光之下。
 
-香港众志创党主席罗冠聪先生，同时也是2016年当选的香港立法会议员，由于参与了2020年的民主抗争运动，受到中共控制的香港警方的非法通缉。
-
-在这种大背景下，英国政府为了保护可能受到中共迫害的香港居民，特意推出了新的签证计划，为想离开香港的人士提供了获得英国国籍的途径。庇护申请刚刚获得内政部批准的罗冠聪先生就是受到英国政府庇护的港人之一。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Lyb9RQjOLXsCd/images/57f34834-ce69-4edb-a087-d76f27b6c377.jpg?asset_id=525df419-4983-41c0-b721-74b7116d72f9&amp;img_etag=%226a59bdaa72a751449d6faeabf47c332f%22&amp;size=2560)](https://spark.adobe.com/page/Lyb9RQjOLXsCd/images/57f34834-ce69-4edb-a087-d76f27b6c377.jpg?asset_id=525df419-4983-41c0-b721-74b7116d72f9&amp;img_etag=%226a59bdaa72a751449d6faeabf47c332f%22&amp;size=1024)
-
-然而，违反《中英联合声明》在先的中共恬不知耻地对英国政府庇护港人的政策进行攻击。为了阻止香港人离开香港，中共甚至威胁将不承认香港人的英国国民（海外）护照。中共在香港的所作所为，把自己流氓加绑匪的本质让全世界一览无余。正如罗冠聪先生所评价的：“中国共产党赤裸裸地滥用权力，并利用法院来展示这种权力。”
+[!\[\]()!\[\](https://spark.adobe.com/page/A3W67vCxS34NA/images/3294bfc9-3907-4fcf-8f7d-e6fa12512047.jpg?asset_id=b0ec8ab5-6e42-40f2-b143-f097821b3e6f&amp;img_etag=%22e33891f4a95ab4702ad93be569eb077f%22&amp;size=2560)](https://spark.adobe.com/page/A3W67vCxS34NA/images/3294bfc9-3907-4fcf-8f7d-e6fa12512047.jpg?asset_id=b0ec8ab5-6e42-40f2-b143-f097821b3e6f&amp;img_etag=%22e33891f4a95ab4702ad93be569eb077f%22&amp;size=1024)
 
 **原文翻译：**
 
-# **中共国指责英国给予香港“通缉犯”庇护**
+# **中共国在新疆宴请外国访问团**
 
-中共国周四指责英国庇护“通缉犯”，此前著名的香港民主运动人士罗冠聪表示，他已经获得英国的政治庇护。
+[!\[\]()!\[\](https://spark.adobe.com/page/A3W67vCxS34NA/images/b37c2277-aba5-4538-b561-726063c69f03.png?asset_id=8cad8a5f-c201-4f0b-bbd9-290d431b1f53&amp;img_etag=%22e2369b01406cfe6bd6457b8afa472497%22&amp;size=2560)](https://spark.adobe.com/page/A3W67vCxS34NA/images/b37c2277-aba5-4538-b561-726063c69f03.png?asset_id=8cad8a5f-c201-4f0b-bbd9-290d431b1f53&amp;img_etag=%22e2369b01406cfe6bd6457b8afa472497%22&amp;size=1024)
 
-伦敦和北京当局在香港的命运上存在激烈的争执，英国指责中共国放弃了移交前承诺的、在这片前殖民领土维持关键自由权50年不改变的政策。
+中共为反驳针对新疆维吾尔族穆斯林的虐待和种族灭绝指控，招待了“来自21个国家的30多名外交官”组成的贵宾团，他们在3月20日至4月2日访问了新疆。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Lyb9RQjOLXsCd/images/428f9b35-0df4-4204-b1b0-2507e47fe3ef.png?asset_id=4f72e550-7b96-421c-8e00-7d89dcf40158&amp;img_etag=%22ba1192e6311630e42db1bbeaffbe9f20%22&amp;size=2560)](https://spark.adobe.com/page/Lyb9RQjOLXsCd/images/428f9b35-0df4-4204-b1b0-2507e47fe3ef.png?asset_id=4f72e550-7b96-421c-8e00-7d89dcf40158&amp;img_etag=%22ba1192e6311630e42db1bbeaffbe9f20%22&amp;size=1024)罗冠聪 图片：Tom Grunday/《香港自由新闻》
+贵宾团成员包括来自伊朗等其他“拥有自由与人权”的国家的专家。
 
-罗冠聪星期三说，他在香港引入全面的国安法后逃离了这片半自治领土，现已在英国获得庇护。
+据周日中共国官媒《环球时报》发表的一篇报道称，贵宾团对幸福的新疆居民拿来招待他们的囊赞不绝口，新疆本土的农业和烘培业，也可以是“近年来新疆社会和经济的发展”的证明。
 
-外交部发言人赵立坚告诉记者：“英国显然是香港独立煽动者的平台，为通缉犯提供了所谓的庇护。”
+《环球时报》声称，贵宾团“与社会各阶层的当地人进行了交谈，参观了当地的学校和企业，拆穿了一些关于新疆的谣言，新疆地区的形象经常被一些西方政客、组织和媒体扭曲。”
 
-赵立坚将罗冠聪形容为“犯罪嫌疑人”，称此举对香港司法部门“构成严重的干涉”。
+伊朗驻华大使穆罕默德·克沙瓦尔兹扎德（Mohammad Keshavarz-Zadeh）特别赞扬了新疆清真寺的质量：
 
-他补充说：“英国应立即纠正其错误，并停止干涉香港事务和中国内政。”
+在回应一些西方媒体关于新疆“限制宗教信仰自由”的谣言时，大使说：“在访问位于乌鲁木齐的白大清真寺时，穆斯林人民依旧按着他们的意愿，在寺内正常进行伊斯兰宗教活动。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Lyb9RQjOLXsCd/images/83eedffc-a023-4425-bfa1-9ae3980f57a3.png?asset_id=b1f947fc-73cb-4a8f-9f5f-133eee56a6c9&amp;img_etag=%22a3353734b2fb63408ed12ebac5970893%22&amp;size=2560)](https://spark.adobe.com/page/Lyb9RQjOLXsCd/images/83eedffc-a023-4425-bfa1-9ae3980f57a3.png?asset_id=b1f947fc-73cb-4a8f-9f5f-133eee56a6c9&amp;img_etag=%22a3353734b2fb63408ed12ebac5970893%22&amp;size=1024)赵立坚 图片来源：中国政府网
+“作为一名穆斯林，我在这个清真寺做了祈祷。我看到人们可以自由的从事宗教活动。”默罕默德·克沙瓦尔兹扎德（Mohammad Keshavarz-Zadeh）大使说。寺内宽敞明亮，地毯柔软整洁，并设有特殊桌椅方便老年人和残疾人使用。
 
-罗冠聪是一名27岁的前香港立法会委员兼学生活动家，他在2020年7月香港实施《国家安全法》数周后逃亡到英国，该法案遭到了民主抗议者的反对。
+克沙瓦尔兹扎德说，寺内还设有抽水马桶、沐浴房、食堂和文化中心等设施。
 
-罗冠聪在推特上写道，经过四个月的多轮面试，他已经在英国获得了庇护。
+贵宾团对中共国的宣传做出了贡献，他们声称由于维吾尔恐怖主义的持续威胁，中共国在新疆的所有压迫行动都是合理的。中共官员巧妙地辩驳，新疆恐怖主义的减少，证明对新疆的高压是很有必要的。
 
-他写道：“根据国家安全法而受到通缉的事实表明，我受到了严重的政治迫害，不太可能没有风险地返回到香港。”
+“我赞赏中国政府和人民不仅在很大程度上控制了恐怖主义，而且给恐怖分子提供了新的生活方式，包括提供职业培训和教育的机会。这意味着新疆人民非但没有受到压制，反而获得了朝着和平与发展前进的机会。”尼泊尔大使马亨德拉·巴哈杜尔·潘迪（Mahendra Bahadur Pandey）指出。他的观点与中共国另一个重要的宣传相呼应，那就是新疆庞大的集中营实际上是具有超级激进的招募计划的“职业培训中心”。
 
-这位活动家强调了那些目前身处英国、来自香港的寻求庇护者们的困境，他们可能没有足够多的证据来申请庇护。
+到目前为止，中共已经能够从像伊朗这样的穆斯林国家那里获得足够的支持，使动员穆斯林关注维吾尔人困境的努力受到抑制，并与中共的客户国和商业伙伴勾结，以挫败国际人权运动。在联合国派遣事实调查团前往新疆的申请被拒绝时，中共则以豪华旅游的方式对待选定的宾客。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Lyb9RQjOLXsCd/images/1608de49-abe0-4b7b-8327-e3d448011738.png?asset_id=e16e149d-838d-4ba3-91ef-3d6b341466b5&amp;img_etag=%2276daa406c57b2546eab681bc63dab6c0%22&amp;size=2560)](https://spark.adobe.com/page/Lyb9RQjOLXsCd/images/1608de49-abe0-4b7b-8327-e3d448011738.png?asset_id=e16e149d-838d-4ba3-91ef-3d6b341466b5&amp;img_etag=%2276daa406c57b2546eab681bc63dab6c0%22&amp;size=1024)
-
-“我希望我的案件可以帮助英国内政部更多地了解香港的复杂局势。”
-
-他补充说：“为了能让更多抗议者逃离北京当局的专制压迫，内政部可以考虑采用更加广泛的证据。”
-
-**民主的拥护者**
-
-为了帮助逃离中共国的镇压，英国可能为多达百万的香港居民提供庇护，这些香港人和罗冠聪的命运，已经成为中共国与在1997年放弃了这片前殖民的英国在外交争执上的一个焦点。
-
-中共国今年早些时候表示，由于一月份英国推出了新的签证计划，为想离开香港的人士提供了获得英国国籍的途径，它将不承认签发给香港人的英国国民（海外）护照。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Lyb9RQjOLXsCd/images/f2e9972a-1215-4768-ad06-710192cfad90.png?asset_id=adc29efd-9616-44b0-97e0-e62cf7dc9761&amp;img_etag=%22630033bf0e89825ed1f4f0edcec63999%22&amp;size=2560)](https://spark.adobe.com/page/Lyb9RQjOLXsCd/images/f2e9972a-1215-4768-ad06-710192cfad90.png?asset_id=adc29efd-9616-44b0-97e0-e62cf7dc9761&amp;img_etag=%22630033bf0e89825ed1f4f0edcec63999%22&amp;size=1024)香港众志议员罗冠聪于2017年6月4日。照片：香港众志。
-
-最近几周，因中共国对英国的四个实体和包括立法者在内的九名个人的制裁，两国发生争执，这些人为捍卫中国的维吾尔族穆斯林少数群体而大声疾呼。
-
-去年，英国就三名香港众志主要活动人士被关押入狱而表示抗议，罗冠聪是香港众志的创党人之一。
-
-中共国在香港实施新国安法的当日，该党宣布解散。
-
-在流亡期间，罗冠聪继续在社交媒体上支持香港的民主团体。
-
-上个月，他抨击了对香港活动人士的大规模审判，称这一行动表明“中国共产党赤裸裸地滥用权力，并利用法院来展示这种权力”。
-
-🔗[原文链接](https://hongkongfp.com/2021/04/08/hong-kong-democracy-activist-granted-asylum-in-the-uk/)
+🔗[原文链接](https://www.breitbart.com/national-security/2021/04/06/china-wines-dines-foreign-diplomats-uyghur-region-xinjiang/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -85,6 +55,6 @@
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Lyb9RQjOLXsCd/images/2a9217f7-1549-446e-bf57-9fb29741160d.jpg?asset_id=c85755a7-ef39-495d-b9c1-33549723da36&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=2560)](https://spark.adobe.com/page/Lyb9RQjOLXsCd/images/2a9217f7-1549-446e-bf57-9fb29741160d.jpg?asset_id=c85755a7-ef39-495d-b9c1-33549723da36&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/A3W67vCxS34NA/images/2a9217f7-1549-446e-bf57-9fb29741160d.jpg?asset_id=c85755a7-ef39-495d-b9c1-33549723da36&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=2560)](https://spark.adobe.com/page/A3W67vCxS34NA/images/2a9217f7-1549-446e-bf57-9fb29741160d.jpg?asset_id=c85755a7-ef39-495d-b9c1-33549723da36&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
 0

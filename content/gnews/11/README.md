@@ -1,40 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4/10/2021 财经快讯：瑞士信贷增加对冲基金的限制；A股独自杀跌、外资4天甩卖132亿
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1072051/)
+## 【热点播报】怀俄明州通过法案，选民投票须出示身份证件
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1071958/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-8.jpg)
-[图片来源](https://businessinsider.com)
+作者：纽约香草山佛教部    369文驹
 
-**1.中共停止马云湖畔大学招生**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/LOGO3_1.jpg)
 
-[《金融时报》4月9日援引知情人士的话说，中共当局已迫使阿里巴巴集团创始人马云支持的一所精英商学院停止招生。该报称，总部位于杭州市（阿里巴巴总部所在地）的湖畔大学暂停了将于明年三月下旬开始的一年级课程。三年计划的学费为580,000元人民币（88,500.98美元）。入选2019年新生班的学生包括来自中国健身公司Keep和国内芯片公司Horizon Robotics的高管。该招生停顿之际，正值北京对马的业务镇压。去年下半年，在当局的压力下，阿里巴巴的金融子公司蚂蚁集团突然中止了计划在上海进行的370亿美元IPO。](https://www.oann.com/china-halts-new-enrollments-at-business-school-backed-by-jack-ma-ft/)
 
-**2.SEC表示密切关注SPAC产品的巨额收益预测**
 
-[美国证券交易委员会(SEC)向特殊目的收购公司(SPAC,一种投资基金，允许公共股票市场投资者投资私募股权交易)发出警告，警告他们提出的预测只会给未来的增长带来乐观的前景。该机构补充说，它将仔细查看SPAC的备案和披露情况。SPAC通常被认为是传统IPO的更便宜，更快的替代方案，使得许多营收前的初创公司得以上市。与通过传统IPO上市的公司相比，通常也允许SPAC赞助商更自由地提供对未来增长的预测，而传统IPO不允许公司披露未来的销售或收益。美国证交会表示，将对SPAC交易进行与传统IPO相同程度的审查。](https://markets.businessinsider.com/news/stocks/sec-spac-earnings-wild-projections-offering-black-check-ipo-2021-4-1030289555)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13.jpeg)
 
-评：坚持为真不破，坚决依法维权，要求SEC尽快查明GTV集团被中共诬告的事实真相。
+据美媒[the Gateway Pundit](https://www.thegatewaypundit.com/2021/04/wyoming-governor-signs-bill-requires-voter-polling-station/)报道，本周二，怀俄明州通过了一项法案《众议院法案75》，并于今年7月1日生效。该法案要求选民在投票前须出示有效身份证件，例如：身份证、部落身份证、驾照、护照、保险卡、军事卡、学生证等。
 
-**3.报告称，瑞士信贷在与Archegos Capital相关的47亿美元亏损后增加了对冲基金的限制**
+上月25日，佐治亚州通过了《2021选举诚信法》，该法案要求选民在邮寄选票中要提供有效身份证明，并将投票期限缩短至一周。另外上月初，爱荷华州通过法案将提前投票时间由29天缩短至20天。
 
-[据彭博社报道，瑞士信贷（Credit Suisse）正在对对冲基金的增加新的限制，此动作发生对冲基金公司Archegos Capital由于高杠杆头寸巨额亏损而爆仓，单日狂抛近200亿美元，致瑞士信贷亏损47亿美元之后。为了防止再次发生类似的崩溃，瑞士信贷正在收紧对冲基金的融资条款。据报道，瑞该银行正在将掉期协议的保证金要求从静态更改为动态。动态保证金要求将迫使其客户在头寸下降时发布更多的抵押品，而不是在合同开始时设定固定的保证金要求。瑞士信贷的举动是否更能表明对杠杆对冲基金的更大限制尚待观察。](https://markets.businessinsider.com/news/stocks/credit-suisse-hedge-fund-limits-billions-loss-archegos-capital-hwang-2021-4-1030289900)
+2020年美国总统大选期间明目张胆、肆无忌惮的造假，让全世界看到了中共渗透、破坏和操控美国的程度之深、范围之广。拜登政府的上台一度让中共洋洋自得，深以为蓝金黄美国，3F美国计划俨然奏效。然而美国人民不会选择就此遗忘，各州相继出台的法案就是对中共的反击。据统计，截止4月5日，针对去年大选舞弊案，美国47个州共提出361项法案，以修补制度的漏洞。
 
-**4.亚马逊正在将废弃的购物中心转变为运营中心**
+正义女神正一步步踏来，自由女神的光芒终将驱散黑暗。
 
-[亚马逊正在全国范围内抢购已关闭的大型购物中心，并将其转变为配送中心。亚马逊近一个月的收购包括在路易斯安那州的巴吞鲁日（Baton Rouge）和田纳西州的诺克斯维尔（Nnoxville）的购物中心。根据Coresight Research的一份报告，亚马逊在2016年至2019年期间总共购买了25个购物中心。某零售和工业分析师称，“低质量购物中心的现金流量正在迅速下降，卖掉‘死掉’的购物中心是一种更具吸引力的选择。](https://www.washingtonexaminer.com/news/amazon-expanding-converting-shopping-malls-fulfillment)
+审核/校对/发稿：雪梨
 
-**5.美国参议员批评苹果拒绝就反托拉斯问题提供证人**
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
-[苹果公司拒绝就有关苹果商店（App Store）竞争问题在即将到来的美国参议院小组委员会的听证会上作证。听证会原定于4月下旬举行，但尚未确定日期。听证会要求苹果及谷歌公司将一定的收益分享并制定严格的包含规则。民主党参议员艾米·克罗布彻和共和党参议员迈克李说，他们在上周五写信给苹果首席执行官蒂姆·库克敦促该公司重新考虑，称“苹果突然改变做法，拒绝提供证人的做法是不可接受的。”苹果没有立即回应置评请求。](https://www.oann.com/u-s-senators-criticize-apple-for-not-testifying-on-antitrust-concerns/)
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
 
-**6.A股独自杀跌、外资4天甩卖132亿**
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
 
-[4月9日，隔夜美股强势，但A股并未跟随，全天震荡走低，上证指数收盘跌0.92%报3450.68点，深证成指跌1.26%报13813.31点，创业板指跌1.54%报2783.33点。两市成交额不足7000亿元。北上资金在通道开启的四个交易日当中连续净卖出，总金额超过132亿元。此外，随着人民币近期贬值，美国10年期国债收益率快速飙升，中美利差有所收窄。今日公布的PPI数据高达4.4%，刷新28个月新高，通胀预期再度升温。](https://finance.sina.cn/stock/dpps/2021-04-09/detail-ikmyaawa8751511.d.html?from=wap)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-By 【金融组 – 雪梨Cheli】
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-素材搜集：Totoro
-
-0
++1
