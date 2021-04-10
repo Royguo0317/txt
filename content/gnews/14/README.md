@@ -1,139 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.7.2021PM-拜登新闻会上表示他尚未和习近平谈过意味着什么？
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1071127/)
+## 纽约时报居然刊登了科学家团体联名质疑WHO的公开信
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1071195/)
 
-视频剪辑 : Ablec(文A)、
-中听校： 洛杉矶天使农场 – 烟波浩淼
-英翻译：洛杉矶天使农场 – 飞利普
-英校对：洛杉矶天使农场 – 烟波浩淼
-字幕+视频制作：意大利达芬奇农场 – 紫苏花生
+翻译与评论：Gradient Boost
+![]()![](https://gnews.org/wp-content/uploads/2021/04/008-1.jpg)图片制作：澳喜农场©森森
+4月7日，纽约时报刊登了由一批科学家向世卫组织撰写的公开信件，这些科学家专业背景包括病毒学、动物学以及生化学等，而他们发布的公开信内容，则主要是质疑世卫组织近日发布的有关CCP病毒的调查报告。
 
-**博博士
-Dr. Bo**
-拜登说这个话的目的意思其实非常的绝决
-The purpose and meaning of what Biden said is absolutely decisive
+这封公开信从多个角度对世卫组织的调查结论提出质疑：
 
-这里面有两层意思
-There are two meanings in it
+首先是调查本身就带有明显的偏向性，将重点放在动物起源论或人畜共患病的假说上，而没有认真考虑其它的来源学说，例如实验室来源说的任何可能途径就完全没有提及。而即使是重点探究的动物起源论，也从一开始就缺乏严谨的具体细节论证。笔者认为这份报告有着明显转移矛盾或者带节奏的成分，针对某些中共痛点话题避而不谈，是明显的洗地行为。
 
-第一这个事情他还没有跟习提，还不能跟习提
-First, he hasn’t mentioned it to Xi, and he can’t mention it to Xi yet
+其次，调查中引用的数据内容有不少都来自未经国际同行或专家团评议的中共国研究调查。这些调查研究并没有在国际科学界出版、分享或者审议，从某种意义上来讲就是地地道道的“三无产品”。因此，笔者认为世卫报告所引用的内容很多来源都非常可疑，甚至就是直接捏造的内容，即使这些研究论文在所谓中共国的科学界经过了认证，那也基本上就是出于政治目的走个过场和形式。
 
-因为一旦提了的话
-Because once it is mentioned
+再者，所有最初的原始数据记录以及样本到现在仍然没有公布，而所谓中间宿主论的研究也没有找到与CCP病毒契合的野生动物样本。要知道现在已经进行过匹配测试的野生生物样本已经多达80,000个，然而一个契合的都没有找到。笔者认为这不恰好就是从侧面或者反面证实了所谓的中间宿主根本就是子虚乌有，因为这个病毒已开始就是针对人体而设计改造以及强化的。
 
-按照现在美国所掌握的情报，所掌握的信息
-according to the intelligence and information now possessed by the United States
+另外，世卫报告判定病毒来源于实验室或与实验室相关事故是“极不可能”的，却没有给出像样的证据或者充分的说明，而探讨实验室来源的相关文字还不到450个单词，仅占全报告的1%。然而世卫报告在还没有确定动物宿主究竟是何方神圣的情况下却堂而皇之地宣称动物来源“极有可能”，这样的逻辑推导或判断岂不显然是违反常识的？总而言之，以现在的证据根本就不能确定其一而推翻其它可能性的存在。
 
-这个提的话那就是摊牌，这是一
-It is a showdown. This is first one
+最后，一同参与调查的中国专家是否没有受到中共指示给出了公正的判定，这是十分值得怀疑的。笔者认为这些根本连怀疑都不用怀疑，中共国的各路“砖家”肯定都是遵从上意进行发言，或者应该说是现场背诵小作文也毫不夸张——即使高层早已为“砖家”们事先准备了剧本草稿，进行了充分的排练表演也丝毫不足为奇。
 
-第二就是美国已经对跟中共继续玩这种游戏已经兴趣不大了
-The second is that the U.S. is not quite interested in playing this game with the CCP
+基于这些质疑，这些科学家认为世卫的CCP病毒调查并没有进行独立而且必要的程序，他们认为有必要改变世卫原有的职权范围条例，任何最终决定或否决权利应交由世卫执行董事会，而不应是由任何国家政府说了算。同时负责调查的专家组成员的选拔也应该透明化，而专家组在调查时必须有权限全面接触所有试验设施以及数据。
 
-对中共来说其实更加的危险
-Actually, it is more dangerous for the CCP
+而对于5月份即将召开的世卫大会，公开信中也呼吁各国代表应争取不被限制的有关病毒起源方面的科学调查，争取强化重点实验室的国际监管与规范。而各国政府应该展开平行于世卫组织的同步调查，包括充分评估各种病毒来源假设，建立吹哨人系统，加强各国政府间以及专家团队的合作等。
 
-为什么，我们上一次在节目里说过
-Why? We said in the previous program
+总而言之，中共通过世卫报告为病毒来源盖棺定论的企图已经完全失败。中共甩锅心切，竟提出病毒来源于冷链运输，既违背事实又违反常识，经不起半点推敲。我们常说“为真不破”，那么“为假”必然会是千疮百孔，就像是世卫报告的内容，从分析到结论都是粗制滥造，带有明确的目的性和指向性，一看就知道是在带节奏，各国民众与政府怎会允许中共国蒙混过关？
 
-上次WHO到中国去，然后搞成那样一个政治秀
-the WHO was in China last time, it turned into such a political show
+现在就连纽约时报也开始发出质疑世卫调查报告的声音，显然美国新任政府的上台不仅没有让中南坑得到喘息机会，反而使不少左派媒体将矛头从川普转向了CCP病毒来源及新疆人权问题，进一步加速了追责的进程。
 
-到最后 出了一篇屎一样的报告
-and in the end, released with a report like shit
+（本文纯属个人观点）
 
-其实当时是国际社会
-Actually, at that time, it was the international community
+*审稿：Jenny*
 
-以美国为主正义力量
-mainly the United States as the main justice force
+新闻参考链接：
 
-给中共最后一次机会
-that gave the CCP one last chance
+[纽约时报](https://www.nytimes.com/interactive/2021/04/07/science/virus-inquiries-pandemic-origins.html)（英文）
 
-如果在这次里面你能够起码认个错
-If CCP can at least admit the mistake this time
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-起码能够把自己的责任稍微地揽到自己身上一点
-take their responsibility a little bit to themselves
-
-能够做出一个负责任的大国的样子，这件事情咱们还好说
-and act like a big responsible nation, then there is still chance to talk
-
-这次以后，完完全全中共还是继续各种各样的撒泼
-After this time, the CCP continued to be shrewish
-
-各种各样的脏水往外泼，往美国身上泼
-and pour all kinds of dirty words on the United States
-
-所以东西都往外
-So all issues belong to someone else
-
-把自己的责任推得一干二净
-push themselves all the responsibilities away clearly
-
-但我觉得还有一层原因就是说
-But I think another reason is that
-
-美国现在已经对于跟中共继续玩这种文字游戏
-the United States is not much interested in continuing this kind of wordplay and game
-
-口炮游戏没有多大兴趣了，脱钩又往前进了一步
-of invectives with CCP now， so the decoupling is one step forward
-
-**胡博士
-Dr. Hu**
-新疆还有病毒的事情加到一起
-Plus the issues of Xinjiang and viruses together
-早已经改变了背后的深邃
-that has already changed the depth behind it
-
-表面上，我们看到的湖面是平静的
-On the surface, the lake we see is calm
-
-底下早已掀起了滔天巨浪
-while there are already monstrous waves underneath.
-
-我们根本没有看到，已经都闹到了分手的边沿了
-Although we don’t see them at all, yet they are already on the edge of breaking up
-
-这个时候竟然还想挽回
-At this time, they even want to redeem
-
-这个就是第一个给大家传递的一个信息
-this is a first message to be delivered to everybody
-
-我觉得非常明显
-I think it’s very obvious
-
-然后，咱先不说病毒的事
-Then, let’s not talk about the virus first
-
-光说新疆种族灭绝
-just talk about the genocide in Xinjiang
-
-在VOA里面， 不是别的自媒体
-It is VOA, and not the other self-media
-
-里面讲的新疆种族灭绝是被比作纳粹
-to address the genocide in Xinjiang was compared to Nazis
-
-也就是说现在公开就把这个说了
-In other words, it’s now talk about this publicly
-
-现在就是纳粹，你想 , 美国把这个东西比作纳粹
-Now, this is Nazis. You imagine, the United States compares this matter to Nazis
-
-德国对这件事多么敏感，
-How sensitive Germany is to this matter
-
-默克尔无论如何你都不敢跟纳粹合作
-Merkel, in any case, you don’t even dare to cooperate with the Nazis
-
-是不是这个道理？
-Doesn’t this make sense?
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2.jpg)
 0
