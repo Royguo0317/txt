@@ -1,31 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共威胁不会给台湾任何反抗的机会
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1071134/)
+## 【香草诗词汇】UP TO YOU
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1071353/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：纽约香草山健身部 回响
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Y-1.jpg)youtube.com
-《零对冲》报道，中共英文官媒《环球时报》(Global Times)上周五发表了一篇措辞激烈的社论，表达了在围绕台湾的空前紧张局势之际北京方面的态势。它说，如果中共选择武力统一，那么不会给台湾任何反抗的机会。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-9.jpeg)
 
-这篇文章进一步威胁台湾，称台湾目前正在“冲向一场他们不可能赢的战争”。
 
-去年1月台湾总统蔡英文对中共威胁采取了强硬立场，同时台湾加深了与美国的合作，促使中共当局升级对台湾的战争威胁。去年，中共空军向台湾防空识别区出动了380架次左右的飞机，是1996年以来的最高水平。今年到目前为止，中共军方几乎每天都派飞机进入防空识别区。台湾外交部长吴钊燮表示，如果中共进攻，台湾将战斗到底。
 
-周一，中共辽宁号航母战斗群在台湾附近进行军事演习，并称其在台湾周围的活动是为了保护中共的主权。周三20架中共军机进入台湾防空识别区，其中包括4架可携带核弹头的H-6K轰炸机、10架J-16战斗机、两架Y-8反潜战斗机和一架空警500空降预警机。这是这段时间以来中共对台湾的最大规模的入侵。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片36-1.png)图片来源：http://m.tooopen.com/view/1107718.html
 
-拜登政府宣称对台湾的承诺“坚如磐石”。应对中共入侵行为，美国海军导弹驱逐舰约翰·s·麦凯恩(USS John S. McCain)周三对台湾海峡进行了一次“例行”过境，进一步加强了在台湾附近的军事行动。然后在第二天派美国马金岛两栖准备小组进入南中共海，从而加剧了紧张局势。
+生如蝼蚁？
+或立地顶天？
+UP TO YOU
+UP TO ACTION.
 
-此次威胁，即是中共向台北发出警告，也是向美国海军在南中国海巡逻发出警告。
+看叶简明、肖建华，看王健
+看多少个沉浮如梦如幻如露又如电
 
-这位分析人士说，解放军的演习不仅是警告，也展示了真正的能力，并在进行武力统一的军事实践，“岛上的军队没有一点机会”。
+UP TO YOU
+UP TO ACTION.
+生如蝼蚁，
+或立地顶天？
 
-台湾国防部本月将举行为期八天的计算机辅助军事演习，模拟中共大陆的进攻。还将于7月举行第二阶段的演习，包括实弹演习和反着陆演习，届时医院也将进行处理大规模伤亡的演习，同时扩充军备，做好了全面应对的准备。
+看哪一个地方一家店就卖出的160万余骨灰盒
+看多少国、多少家，连所谓官方数字都列不进去的病毒死难
+看那些被小白鼠的所谓“疫苗”接种者
+生如蝼蚁？
+或蝼蚁不如？！
+UP TO YOU
+UP TO ACTION.
 
-参考链接：
+看七哥、看东哥, 看Dr. Limeng Yan
+看多少次被倾国迫害污蔑，无所不用其极且欲除之而后快的艰险
 
-[https://www.zerohedge.com/geopolitical/china-new-threat-taiwan-islands-military-wont-stand-chance](https://www.zerohedge.com/geopolitical/china-new-threat-taiwan-islands-military-wont-stand-chance)
+生如蝼蚁，
+或立地顶天？
+UP TO YOU
+UP TO ACTION.
+
+看农场看联盟看战友千万万
+痛斥伪国使馆、惩贼灭贼力挺正义灭共、SEC前再不畏惧强权
+传播香港危机传播病毒真相狠扒邪恶画皮嘴脸
+香港圣城，精神永传，新中国联邦人重树尊严
+
+UP TO YOU
+UP TO ACTION.
+生如蝼蚁？
+或立地顶天！
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2.jpg)
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

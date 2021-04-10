@@ -1,100 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【时事解析】蛛丝马迹找元凶-为武汉病毒认祖归宗
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1070959/)
+## 德意志之鹰转推上榜的张辉博士手中是否已经握有中共病毒解药
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1071560/)
 
-作者：休斯顿星光农场 星会员 北评2025
+![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-8.png)
+撰稿：喜马拉雅的肉夹馍；审校：喜马拉雅的馍夹肉；校对：Maarago
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524.jpg)
-
-
-“乌啼鹊噪昏乔木，清明寒食谁家哭“，在这个清明节里，再多的语言也无法形容因武汉病毒而失去亲人的痛，再大的雨也洗不去280万条鲜活的生命的冤。武汉病毒肆虐地球已经一年多了，中共政府面对大量证据，依旧百般抵赖病毒的来源、拒绝调查、威胁和噤声知情者；充当帮凶的世卫组织和跑腿的科学家们，帮助中共病毒找来了蝙蝠、果子狸做替死鬼，更可笑的是连冷冻食品也未能逃过中共的魔爪。中共国有句古话：”若要人不知，除非己莫为“，再完美的作案现场也会留下蛛丝马迹。以下是本人发现并整理的线索，让世人看清楚病毒身后的元凶。
-
-**蛛丝马迹一：石正丽的焦虑与2015****年论文**
-
-据《世界报》报道，在2019年12月武汉病毒爆发后，武汉P4实验室病毒传染中心负责人石正丽曾一度因怀疑和焦虑病毒是否在她的实验室里泄露而无法入睡。她说因有大量的实习生进出实验室，不能排除有人操作失误，“的确这使我头脑乱了，闭不上眼睛 “。这个P4实验室的1位研究员可以同时带20名实习生，而法国1位研究员最多带3名实习生，所以从实验室泄露是符合逻辑的，石正丽为何焦虑就可以理解了。
-
-品葱网上的一位网友Snowy smile在《自然杂志》意外发现，石正丽在2015年就已经成功地合成了可以感染人体的SARS-CoV病毒，跟如今的武汉病毒SARS-CoV-2惊人的相似，并成功地在《自然杂志》上发表了论文。虽然病毒不是完全一致，但也证明了中共早就在做相关的病毒研究，所以世卫组织，你凭啥认为“武毒所”比“冷冻食品”还无辜？这个病毒研究所就在爆发地—武汉！武汉！
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-04-08-231719.jpg)
-*图片来源：《自然杂志》*
-
-**蛛丝马迹二：军方的背书–“基因生化武器”**
-
-石正丽及她的团队进行的课题研究也是有中共军方背书的。图片为2017年11月在中共国军网发表的一篇题为《基因武器真的能影响未来战争吗？》文章的节选。红线部分分析了基因武器也就是病毒，依据成熟的分子遗传学，极容易研制和更新换代，在投毒上又具有超强的隐秘性和难溯源性。所以在没有掌握基因序列的情况下，不是参与者很难及时研制疫苗并控制病毒。这篇文章简直就是对中共武汉病毒的完美注解！
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-04-08-232644.jpg)
+据[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午10:47 · 2021年4月9日](https://twitter.com/LawrenceSellin/status/1380532850928316418)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)转推的推文——
 
 
-*图片来源：www.81.cn*
 
-所以就不难理解，为什么2020年1月3日中共卫健委下令销毁武汉病毒样本，直至 5月份，中共仍拒绝分享武汉病毒分离株、临床标本及早期多位患者的详细信息了。
-
-**蛛丝马迹三：蹊跷的演习**
-
-截图为中共媒体湖北经视报道的中共武汉天河机场于2019年9月18日模拟演习。演习中预演了当机场有人感染了新型冠状病毒的模拟处置过程。要知道在武汉爆发病毒之前，中共政府从来没有任何信息介绍过此种病毒。即便在武汉病毒爆发之后，依然对外宣传“人不传染”。那么武汉天河机场怎么这么凑巧地在武汉病毒爆发前2个月就未卜先知这种病毒？连名字都帮助取好了？
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-04-08-232050.jpg)
+> Post by [@dezying](https://twitter.com/dezying?ref_src=twsrc%5Etfw) is right on target. Deyin Guo, who formerly worked at the Wuhan Institute of Virology, now in Guangzhou as is Hui Zhang, is an extension of the Wuhan group and a key link in the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [@Highlandlions](https://twitter.com/Highlandlions?ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wfvDgPRs88](https://t.co/wfvDgPRs88)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 9, 2021](https://twitter.com/LawrenceSellin/status/1380532850928316418?ref_src=twsrc%5Etfw)
 
 
-```
-图片来源：新浪湖北视经博客
-```
+
+Post by [@dezying](https://twitter.com/dezying)is right on target. Deyin Guo, who formerly worked at the Wuhan Institute of Virology, now in Guangzhou as is Hui Zhang, is an extension of the Wuhan group and a key link in the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) [@Highlandlions](https://twitter.com/Highlandlions)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click)
+
+中文大意：[@dezyingis](https://twitter.com/dezying)的推文正中靶心，郭德银以前是武汉病毒研究所的工作人员，现在和张辉一样在广州工作。他是武汉小组的延伸，也是＃[COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) @ [Highlandlions](https://twitter.com/Highlandlions)[＃CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click)[超限生物武器](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)[＃COVID19起源的关键环节](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click)
+
+那么被转推确认的[德意志之鹰@dezying](https://twitter.com/dezying)于[下午8:49 · 2021年4月9日](https://twitter.com/dezying/status/1380503121877725184)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发送的推文——
 
 
-让全世界疑窦丛生的这篇报道被贴在了新浪微博，跟帖了数万评论。点开评论会你发现什么叫“群众的眼睛是雪亮的”，“武汉病毒早已存在，病毒人传人“的真相网友们早已心知肚明，可是除了嘲讽和无奈，墙国百姓又能如何呢？
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-04-08-232411.jpg)
+> Hui Zhang's The Nanoparticle vaccination against SARS-CoV-2:
+> – Valid Animal model
+> – Robust immune response
+> – No ADE
+> Btw, Deying Guo is the dean of Zhongshan School of Medicine[https://t.co/HmuiupHdDU](https://t.co/HmuiupHdDU) [https://t.co/HCjpYByLX1](https://t.co/HCjpYByLX1) [pic.twitter.com/sWq5PGwQMq](https://t.co/sWq5PGwQMq)
+> — 德意志之鹰 (@dezying) [April 9, 2021](https://twitter.com/dezying/status/1380503121877725184?ref_src=twsrc%5Etfw)
 
 
-```
-图片来源：新浪湖北视经博客
-```
 
+到底说的啥呢——
 
-**蛛丝马迹四：中共某省警备机构提前囤积N95口罩**
+Hui Zhang’s The Nanoparticle vaccination against SARS-CoV-2: – Valid Animal model – Robust immune response – No ADE Btw, Deying Guo is the dean of Zhongshan School of Medicine [https://pubmed.ncbi.nlm.nih.gov/33275896/](https://t.co/HmuiupHdDU?amp=1)
 
-据国内战友提供的内部情报，2020年2月11日有人找他为某省警备机构采购口罩。说提前囤积的N95口罩已经用的差不多了，还需要再采购一批。要知道中共是在2020年1月19日《路德访谈》爆出了武汉病毒真相之后，才向世界宣布了“（武汉）病毒人传人”的信息。在短短十几天内，中共国就已经完全买不到N95口罩了，即便武汉的各大医院都很难找到N95口罩。让人狐疑的是，为什么中共军队居然提前囤积、使用了这么多的卫生防护物资，而且还要二次囤积购买？！不是说好了“人不传人”吗？
+中文大意：张辉的SARS-CoV-2纳米疫苗接种：-有效的动物模型-强大的免疫反应-没有ADE 顺便说一下，郭德银是中山医学院的院长
 
-**蛛丝马迹五：2013****年的台湾节目**
+在这则推文里附上了张辉论文的超连接——[Nanoparticle Vaccines Based on the Receptor Binding Domain (RBD) and Heptad Repeat (HR) of SARS-CoV-2 Elicit Robust Protective Immune Responses](https://pubmed.ncbi.nlm.nih.gov/33275896/)（基于SARS-CoV-2受体结合结构域（RBD）和七肽重复序列（HR）的纳米疫苗可引发强大的保护性免疫反应。），下面我们来看一看新上榜的中共毒王张辉博士的论文都含有哪些信息——
 
-蛛丝马迹不止在中共国内发现，台湾早在2013年5月6日民视新闻台【挑战新闻】栏目也有报道–中共实验室秘制“超級病毒”可杀上亿人!节目里的生化专家形象的讲述了中共大陆制造基因病毒是如此的简单：一个实验室里，几个博士通过剪切和粘结就能轻松地制成恐怖的基因生化武器。相信当时很多人都不以为然，现实却是七年后的世界果真被中共研制的人工合成的基因生化病毒掀得天翻地覆、人仰马翻！
+这篇论文的作者及单位分别是：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-04-08-232753.jpg)
+[Xiancai Ma](https://pubmed.ncbi.nlm.nih.gov/?term=Ma+X&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Fan Zou](https://pubmed.ncbi.nlm.nih.gov/?term=Zou+F&amp;cauthor_id=33275896) [2](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-2), [Fei Yu](https://pubmed.ncbi.nlm.nih.gov/?term=Yu+F&amp;cauthor_id=33275896) [3](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-3), [Rong Li](https://pubmed.ncbi.nlm.nih.gov/?term=Li+R&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Yaochang Yuan](https://pubmed.ncbi.nlm.nih.gov/?term=Yuan+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Yiwen Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Xiantao Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+X&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Jieyi Deng](https://pubmed.ncbi.nlm.nih.gov/?term=Deng+J&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Tao Chen](https://pubmed.ncbi.nlm.nih.gov/?term=Chen+T&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Zheng Song](https://pubmed.ncbi.nlm.nih.gov/?term=Song+Z&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Yidan Qiao](https://pubmed.ncbi.nlm.nih.gov/?term=Qiao+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Yikang Zhan](https://pubmed.ncbi.nlm.nih.gov/?term=Zhan+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Jun Liu](https://pubmed.ncbi.nlm.nih.gov/?term=Liu+J&amp;cauthor_id=33275896) [4](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-4), [Junsong Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+J&amp;cauthor_id=33275896) [3](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-3), [Xu Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+X&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Zhilin Peng](https://pubmed.ncbi.nlm.nih.gov/?term=Peng+Z&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Yuzhuang Li](https://pubmed.ncbi.nlm.nih.gov/?term=Li+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Yingtong Lin](https://pubmed.ncbi.nlm.nih.gov/?term=Lin+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Liting Liang](https://pubmed.ncbi.nlm.nih.gov/?term=Liang+L&amp;cauthor_id=33275896) [2](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-2), [Guanwen Wang](https://pubmed.ncbi.nlm.nih.gov/?term=Wang+G&amp;cauthor_id=33275896) [3](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-3), [Yingshi Chen](https://pubmed.ncbi.nlm.nih.gov/?term=Chen+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Qier Chen](https://pubmed.ncbi.nlm.nih.gov/?term=Chen+Q&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Ting Pan](https://pubmed.ncbi.nlm.nih.gov/?term=Pan+T&amp;cauthor_id=33275896) [5](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-5), [Xin He](https://pubmed.ncbi.nlm.nih.gov/?term=He+X&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Hui Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+H&amp;cauthor_id=33275896) [6](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-6)
 
-*图片来源：台湾【挑战新闻】视频截图*
+其中[Xiancai Ma](https://pubmed.ncbi.nlm.nih.gov/?term=Ma+X&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Rong Li](https://pubmed.ncbi.nlm.nih.gov/?term=Li+R&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Yaochang Yuan](https://pubmed.ncbi.nlm.nih.gov/?term=Yuan+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Yiwen Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1),  [Xiantao Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+X&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Jieyi Deng](https://pubmed.ncbi.nlm.nih.gov/?term=Deng+J&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Tao Chen](https://pubmed.ncbi.nlm.nih.gov/?term=Chen+T&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Zheng Song](https://pubmed.ncbi.nlm.nih.gov/?term=Song+Z&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Yidan Qiao](https://pubmed.ncbi.nlm.nih.gov/?term=Qiao+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Yikang Zhan](https://pubmed.ncbi.nlm.nih.gov/?term=Zhan+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Xu Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+X&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Zhilin Peng](https://pubmed.ncbi.nlm.nih.gov/?term=Peng+Z&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Yuzhuang Li](https://pubmed.ncbi.nlm.nih.gov/?term=Li+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Yingtong Lin](https://pubmed.ncbi.nlm.nih.gov/?term=Lin+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1),  [Yingshi Chen](https://pubmed.ncbi.nlm.nih.gov/?term=Chen+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Qier Chen](https://pubmed.ncbi.nlm.nih.gov/?term=Chen+Q&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Xin He](https://pubmed.ncbi.nlm.nih.gov/?term=He+X&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1),等作者均属于1 Institute of Human Virology, Key Laboratory of Tropical Disease Control of Ministry of Education, Guangdong Engineering Research Center for Antimicrobial Agent and Immunotechnology, Engineering Research Center of Gene Vaccine of Ministry of Education, Zhongshan School of Medicine, Sun Yat-sen University, Guangzhou, Guangdong, 510080, China. （中山大学中山医学院人类病毒研究所，教育部热带病控制教育部重点实验室，广东省抗菌剂与免疫技术工程研究中心，教育部基因疫苗工程研究中心，广州， 广东省510080）
 
-关于中共病毒来源的蛛丝马迹和蹊跷的事情远不止这些，欢迎读者朋友留言和提供更多的信息。相信随着时间推移，病毒所有的真相一定会大白于天下，必须让中共这个侩子手给所有死去的冤魂还有生者一个交代！正义或许会迟到，但一定不会缺席！
+其中[Fan Zou](https://pubmed.ncbi.nlm.nih.gov/?term=Zou+F&amp;cauthor_id=33275896) [2](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-2), [Liting Liang](https://pubmed.ncbi.nlm.nih.gov/?term=Liang+L&amp;cauthor_id=33275896) [2](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-2), 均属于Qianyang Biomedical Research Institute, Guangzhou, Guangdong, 510063, China.（千阳生物医学研究所，广东广州510063。）
 
-信息来源：
+其中[Fei Yu](https://pubmed.ncbi.nlm.nih.gov/?term=Yu+F&amp;cauthor_id=33275896) [3](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-3), [Junsong Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+J&amp;cauthor_id=33275896) [3](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-3), [Guanwen Wang](https://pubmed.ncbi.nlm.nih.gov/?term=Wang+G&amp;cauthor_id=33275896) [3](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-3),属于Guangdong Provincial People’s Hospital, Guangdong Academy of Medical Sciences, Guangzhou, Guangdong, 510080, China.（广东省医学科学院广东省人民医院，广东广州510080）
 
-[http://www.hubei.gov.cn/hbfb/rdgz/201506/t20150612\_1668633.shtml](http://www.hubei.gov.cn/hbfb/rdgz/201506/t20150612_1668633.shtml)
+其中[Jun Liu](https://pubmed.ncbi.nlm.nih.gov/?term=Liu+J&amp;cauthor_id=33275896) [4](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-4), 属于Institute of Human Virology, Key Laboratory of Tropical Disease Control of Ministry of Education, Guangdong Engineering Research Center for Antimicrobial Agent and Immunotechnology, Engineering Research Center of Gene Vaccine of Ministry of Education, Zhongshan School of Medicine, Sun Yat-sen University, Guangzhou, Guangdong, 510080, China; Qianyang Biomedical Research Institute, Guangzhou, Guangdong, 510063, China.（中山大学中山医学院人类病毒研究所，教育部热带病控制教育部重点实验室，广东省抗菌剂与免疫技术工程研究中心，教育部基因疫苗工程研究中心，广州， 广东，510080; 千阳生物医学研究所，广东广州510063。）
 
-[www.youtube.com/watch?v=1YlYGR8T\_Gs](https://www.youtube.com/watch?v=1YlYGR8T_Gs)
+其中[Ting Pan](https://pubmed.ncbi.nlm.nih.gov/?term=Pan+T&amp;cauthor_id=33275896) [5](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-5),属于Institute of Human Virology, Key Laboratory of Tropical Disease Control of Ministry of Education, Guangdong Engineering Research Center for Antimicrobial Agent and Immunotechnology, Engineering Research Center of Gene Vaccine of Ministry of Education, Zhongshan School of Medicine, Sun Yat-sen University, Guangzhou, Guangdong, 510080, China; Center for Infection and Immunity Study, School of Medicine, Sun Yat-sen University Shenzhen, Guangdong, 518107, China.（中山大学中山医学院人类病毒研究所，教育部热带病控制教育部重点实验室，广东省抗菌剂与免疫技术工程研究中心，教育部基因疫苗工程研究中心，广州， 广东，510080; 中山大学医学院感染与免疫研究中心，广东深圳518107）
 
-[http://www.81.cn/wjsm/2017-11/10/content\_7836382.htm](http://www.81.cn/wjsm/2017-11/10/content_7836382.htm)
+压轴的张辉博士[Hui Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+H&amp;cauthor_id=33275896) [6](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-6)属于Institute of Human Virology, Key Laboratory of Tropical Disease Control of Ministry of Education, Guangdong Engineering Research Center for Antimicrobial Agent and Immunotechnology, Engineering Research Center of Gene Vaccine of Ministry of Education, Zhongshan School of Medicine, Sun Yat-sen University, Guangzhou, Guangdong, 510080, China. Electronic address: [\[email protected\]](/cdn-cgi/l/email-protection#6e14060f000906575c2e030f0702401d171d1b400b0a1b400d00).（中山大学中山医学院人类病毒研究所，教育部热带病控制教育部重点实验室，广东省抗菌剂与免疫技术工程研究中心，教育部基因疫苗工程研究中心，广州， 广东省510080 电子地址：[\[email protected\]](/cdn-cgi/l/email-protection#42382a232c252a7b70022f232b2e6c313b31376c2726376c212c)。）
 
-[https://weibo.com/hubeijingshi?is\_all=1&stat\_date=201909&page=3#feedtop](https://weibo.com/hubeijingshi?is_all=1&amp;stat_date=201909&amp;page=3#feedtop)
+这篇论文的出版信息是：2020 Dec 15（2020年12月15日）;53(6):1315-1330.e9. doi: 10.1016/j.immuni.2020.11.015. Epub 2020 Nov 25（2020年11月25日）.
 
-[http://www.xinhuanet.com/2018-04/05/c\_1122640764.htm](http://www.xinhuanet.com/2018-04/05/c_1122640764.htm)
+根据谷歌翻译显示的这篇论文的摘要内容是：［已经针对全球COVID-19大流行提出了各种疫苗策略，每种策略都有引发免疫反应的独特策略。在这里，我们通过将自组装的24-mer铁蛋白与严重急性呼吸系统综合症冠状病毒2（SARS-CoV-2）的受体结合域（RBD）和/或七肽重复（HR）亚基共价缀合来开发纳米颗粒疫苗。刺突（S）蛋白。与单体疫苗相比，纳米颗粒疫苗引发了更强大的中和抗体和细胞免疫应答。接种了RBD和/或RBD-HR纳米粒子的RBD和RBD-HR纳米粒子接种的hACE2转基因小鼠在SARS-CoV-2攻击后肺中的病毒载量降低。 RBD-HR纳米颗粒疫苗还促进了针对其他冠状病毒的中和抗体和细胞免疫反应。恒河猴的纳米级疫苗接种可诱导中和抗体，并在加强免疫前对T细胞和B细胞产生反应；这些反应持续了三个多月。因此，基于RBD和HR的纳米颗粒提供了一种有前途的针对SARS-CoV-2和其他冠状病毒的疫苗接种方法。］
 
-[https://www.aboluowang.com/2020/0417/1438181.html?utm\_source=dlvr.it&utm\_medium=twitter](https://www.aboluowang.com/2020/0417/1438181.html?utm_source=dlvr.it&amp;utm_medium=twitter)
+看来这篇发表于2020年12月15日的论文中列明的纳米颗粒疫苗正是中共冠状病毒的解药，为了避免误导读者，在此特别声明，以上纯属笔者臆断，但是不是笔者臆断的部分已经由Lawrence Sellin博士进行了确认——[@dezyingis](https://twitter.com/dezying)的推文正中靶心！
 
-[https://www.nature.com/articles/nm.3985](https://www.nature.com/articles/nm.3985)
+这个张辉是何许人也？据[百度百科——张辉 （中山大学中山医学院特聘教授）](https://baike.baidu.com/item/%E5%BC%A0%E8%BE%89/4018666?fr=aladdin)：
 
-[https://pincong.rocks/article/27144](https://pincong.rocks/article/27144)
+［张辉博士，1982年毕业于[中山医学院](https://baike.baidu.com/item/%E4%B8%AD%E5%B1%B1%E5%8C%BB%E5%AD%A6%E9%99%A2)医学系，1988年在中山医获硕士学位；1988年赴美，在[纽约州立大学](https://baike.baidu.com/item/%E7%BA%BD%E7%BA%A6%E5%B7%9E%E7%AB%8B%E5%A4%A7%E5%AD%A6)上州医学中心直接攻读微生物学博士，1993年获[博士](https://baike.baidu.com/item/%E5%8D%9A%E5%A3%AB/2235621)学位。之后在费城托马斯-杰佛逊大学医学院作博士后和研究助理；1997年被聘为传染内科助理教授，2008年升为教授；2005—2008年，担任杰佛逊大学人类病毒学和生物防护研究所副所长。
 
-[http://www.chinaivdc.cn/sytz/zxdt/201610/t20161002\_134579.htm](http://www.chinaivdc.cn/sytz/zxdt/201610/t20161002_134579.htm)
+作为第一作者或通讯作者，张辉博士在诸多高影响的杂志，如《Nature》，《NEJM》(新英格兰医学杂志)，《Nature Medicine》，《PNAS》, 《JBC》，《JVI》(病毒学杂志)上发表论文。其共发表50多篇论文。论文总引次数在1800以上。他在很多有影响的专业会议上作重点发言(keynote speech)和一般发言(talk)。作为 Principle Investigator (PI), 现有2项美国NIH RO1基金和1项生物技术公司赞助的基金，并在1项助理教授的NIH KO1基金中任导师(Mentor)。作为副主编，参与了中国医药高校研究生教材《[分子病毒学](https://baike.baidu.com/item/%E5%88%86%E5%AD%90%E7%97%85%E6%AF%92%E5%AD%A6)》的编辑工作，并执笔编写了《人类免疫缺陷性病毒(HIV)》一章。］
 
-[https://www.sciengine.com/publisher/scp/journal/SCLS/60/12/10.1007/s11427-017-9263-6?slug=fulltext](https://www.sciengine.com/publisher/scp/journal/SCLS/60/12/10.1007/s11427-017-9263-6?slug=fulltext)
+［张辉博士长期参与了很多美国NIH、NSF科研项目的评估，也参与了很多国家包括[英国](https://baike.baidu.com/item/%E8%8B%B1%E5%9B%BD/144602)、[法国](https://baike.baidu.com/item/%E6%B3%95%E5%9B%BD/1173384)、荷兰、以色列、日本等国家或私人基金会科研项目的评估，并担任了中国若干科研项目包括SARS专项、重大传染病专项的海外评审专家。也是很多专业杂志，包括Nature、Nature Review of Microbiology、PNAS、Plos One、JBC、Journal of Virology、Virology、AIDS、AIDS Research and Human Retroviruses、Retrovirology、Human Gene Therapy等的审稿人。业余时间，张辉博士长期担任中山医美东校友会费城地区理事，是华夏中文学校新泽西樱桃山分校的创办人兼首任董事之一。
 
-编辑/校对/发稿：Helen
+最近受[中山大学](https://baike.baidu.com/item/%E4%B8%AD%E5%B1%B1%E5%A4%A7%E5%AD%A6/5672)邀请，张辉博士将回国全职担任[中山大学](https://baike.baidu.com/item/%E4%B8%AD%E5%B1%B1%E5%A4%A7%E5%AD%A6/5672)特聘教授，负责组建中山大学人类病毒学研究所，主要从事HIV的分子生物学的研究和[抗病毒药物](https://baike.baidu.com/item/%E6%8A%97%E7%97%85%E6%AF%92%E8%8D%AF%E7%89%A9/7331322)的开发。］
 
-更多資訊，歡迎點擊[休斯頓星光農場官方推特賬號](https://twitter.com/HLitstar?s=20)！
+看来这位新上榜的中共毒王张辉博士也是一位千人计划对象了，他的身份已经得到Lawrence Sellin博士的确认，他和郭德银在一起工作，郭德银团队是中共病毒起源的关键人物，郭德银已经大名鼎鼎，对于这位上榜新秀的张辉博士，我们要盯住他！
 
-更多節目資訊，歡迎進入[休斯頓星光G|TV官方鏈接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
-
+（文章内容仅代表作者个人观点）
 
 0
