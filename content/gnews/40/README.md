@@ -1,63 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】欧洲人权法院裁定强制接种疫苗合法
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1069819/)
+## 拜登承认几次放弃施压中共寻求病毒真相的机会
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1070064/)
 
-作者：纽约香草山农场 四季
+俄罗斯莫斯科喀秋莎农场 DongDong
 
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/BI-1.png)rebelnews.com
+美国总统拜登 2 月曾表示，他“有兴趣从中（共）国获得关于 中共病毒疫情起源的所有事实”，但据本周公开承认，他已经放弃了几次向中共国施压寻求答案的机会。
 
+拜登说，他将努力从中共国获得事实真相，他和高级政府官员已经与中共领导人进行了广泛的对话。但总统周二（4月 6 日）表示，他 “没有与习主席就中（共）国是否在中共病毒问题上误导世界进行过对话”。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+今年 2 月拜登曾与中共国国家主席习近平进行过一次私人电话通话，拜登政府的高级外交官上个月在阿拉斯加与中共国代表进行了长时间的会晤。两次会议的公开资料都未提到 病毒起源和中共国早期隐瞒病毒严重性的议题，在阿拉斯加峰会的公开视频部分也没有关于此话题的议题。
 
+也就是，至少拜登有两次机会向中共提出病毒来源真相的问询，至少应向中共施压，要求全面公开武汉病毒研究所真实的数据，但他并没有这样做。
 
+拜登政府未能就北京当局在掩盖病毒早期传播方面所扮演的角色向北京进行施压，这不禁让人怀疑白宫是否将这一问题视为公开所说的那样是真地高度优先。
 
-据《零对冲》网站4月9日报道，欧洲人权法院在一项重要的判决中裁定——强制接种疫苗是合法的。这可能会对COVID-19疫苗注射剂的推广产生重大影响。
+当记者今年 2 月问拜登，他是否“有兴趣惩罚中（共）国去年对 中共病毒不诚实的行为”时，拜登总统说他 “有兴趣了解这个问题的所有事实”。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-120.png)图源网络
+今年 3 月，国务院发言人斯内德·普莱斯（Ned Price）也将 病毒来源议题列为政府阿拉斯加峰会的首要任务之一。
 
-这项裁决是针对一些捷克家庭的申诉做出的。这些家庭因拒绝让其子女接受包括白喉、破伤风、百日咳、乙型肝炎和麻疹在内的九种疾病的强制性疫苗接种而被罚款，并被剥夺了托儿所的服务。
+“我们将与中方讨论那些更有挑战性的议题，如 中共病毒起源。” 普莱斯说。
 
-家长认为，该法案违反了关于尊重私人生活权的第8条。但法院不同意，并表示，强制接种疫苗符合儿童的“最大利益”，以确保“每个儿童都能通过接种疫苗或凭借群体免疫力免受严重疾病的侵害”。
+中共国一直被批评在早期有意淡化病毒的传染性和严重性，让它在几个月内不被发觉的情况下广泛传播，并放任演变成一场全球性危机。此外，还有人质疑该病毒的来源。世界卫生组织表示，它很可能是来自于武汉一个海鲜市场受感染动物，但美国政府质疑它是否是从附近的病毒学实验室（武汉病毒研究所）意外释放出来的。
 
-法院的判决书写道：“强制接种可被视为‘民主社会所必需的’”。
+据美国全国广播公司（NBC）新闻报道，美国情报官员并没有排除“实验室逃逸”的理论，指出中共国一直不肯与国际组织合作，并且很早就采取各种措施刻意隐瞒病毒的来源。
 
-虽然这一判决与COVID没有直接关系，但考虑到目前关于疫苗护照的争论，以及一些工作岗位上的工人是否应该被强制接种疫苗作为就业条件，这一裁决可能会产生重大影响。
+拜登和习近平最快可能在 4 月 22 日面对面，届时拜登将主持召开世界领导人虚拟气候峰会。习近平已收到邀请，但尚未正式确认出席。白宫拒绝评论拜登是否计划在活动中向习近平提出病毒起源问题。
 
-这一判决“加强了在当前COVID-19疫情条件下强制接种疫苗的可能性”，专门研究欧洲人权法院的法律专家尼古拉斯-赫维约（Nicolas Hervieu）告诉法新社。
+参考链接：
 
-世界卫生组织紧急委员会强调，疫苗对减少病毒传播的影响尚不清楚。根据该组织的说法，接种疫苗的有效性仍存在一些不确定性。目前，因接种疫苗的死亡和伤害层出不穷，全世界的科学家都在不断警示和质疑疫苗的安全性及其潜在危害。
+[1] [Biden Said He Would Press China on the Origins of COVID. He Hasn’t. – freebeacon.com – 2021/04/08](https://freebeacon.com/biden-administration/biden-said-he-would-press-china-on-the-origins-of-covid-he-hasnt/)
 
-辉瑞公司前副总裁兼过敏与呼吸系统首席科学家迈克尔-耶顿（Michael Yeadon）博士在接受采访时表示，各国政府针对COVID-19做出了“明显虚假”的宣传，包括危险变种的“谎言”，即：目前COVID-19的变种“不可能”逃脱免疫力。
-
-耶顿指出，制药公司已经开始为病毒“变种”开发不需要的“补种”（“加强剂”）疫苗。除了目前实验性的COVID-19疫苗运动外，这些公司还计划生产数十亿瓶“补种”疫苗。而美国食品药品监督管理局和欧洲药品管理局等监管机构已经宣布，由于这些“补种”疫苗将与之前获批紧急使用授权的注射剂非常相似，制药企业将不需要“进行任何临床安全研究”。
-
-耶顿还警示了“疫苗护照”的极权主义潜质。他说，回顾斯大林、毛泽东和希特勒的罪恶，“大规模人口灭绝”仍然是一个合乎逻辑的结果。这意味着每个人都必须“疯狂地战斗，以确保这个系统永远不会形成”。
-
-参考阅读：
-
-[European Court Of Human Rights Rules That Mandatory Vaccinations Are Legal](https://www.zerohedge.com/covid-19/european-court-human-rights-rules-mandatory-vaccinations-are-legal)
-
-[Former Pfizer VP: ‘Your government is lying to you in a way that could lead to your death.’](https://www.naturalnews.com/2021-04-08-pfizer-vp-your-government-is-lying-to-you.html#)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
+[2] [美国总统拜登称已邀请习近平和普京参加4月22日的全球气候变化虚拟峰会 – 路透社 – 2021/03/27](https://www.reuters.com/article/usa-biden-climate-china-xi-0327-idCNKBS2BJ03D)
 
 0

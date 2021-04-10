@@ -1,37 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 卢比奥获川普总统背书
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1069746/)
+## 美国商务部将七家中共超级计算机实体添加到被制裁的企业黑名单
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1069931/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+编者：林林虎
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/r-6.jpg)uslibertynews.com
-一度有令人失望的表现，敦促川普总统接受败选的事实，为假牧师傅希秋喊冤的马可·鲁比奥（Marco Rubio），经过一段时间的反省，似乎加深了对邪恶中共的认知，近期的言论和表现充满了对邪共的谴责，对川普总统的支持，或许经过川普总统的考察，认为“此人可用”，卢比奥获得了川普总统的背书。
+据RFI(法国国际广播电台)报道，美国商务部将七家中共企业列入制裁黑名单，这些企业今后需要得到美方批准才能参与美国企业的商业交易。这七家企业分别为：天津飞腾信息技术公司、上海集成电路技术与产业促进中心、信维微电子有限公司、国家超级计算济南中心、国家超级计算深圳中心、国家超级计算无锡中心以及国家超级计算郑州中心。
 
-此消息由川普总统的长子小唐纳德·川普（Donald J. Trump Jr）发推证实【1】：我的朋友@马可鲁比奥，是为数不多的当选共和党人之一，他明白共和党需要成为中产阶级工人的政党，而不是企业利益的政党。
+这七家实体因 “涉及制造超级计算机给中共军方使用、破坏军事稳定，或参与大规模杀伤性武器计划 “而被列入黑名单。
 
-很荣幸能和我父亲一起支持他连任！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-121.png)
 
-推文附上了川普总统的背书：
+美国官员长期以来一直抱怨，中国的公司一直受到中国共产党的控制，并代表中共军方收集敏感信息。中共此前对此表示，它并不从事军事间谍活动，显然不符合其真实的意图。
 
-马可·鲁比奥的背书
+“超级计算能力对于几乎所有现代武器和国家安全系统的发展至关重要，例如核武器和高超音速武器，”美国商务部部长吉娜-雷蒙多（Gina Raimondo）在一份声明中写道。”商务部将充分利用其权限，防止中共利用美国技术，从而破坏促进稳定的军事现代化进程”，她补充道。
 
-我很荣幸地向美国参议员卢比奥表示我的完全支持，马可一直是佛罗里达州人民的不知疲倦的倡导者，为减税而战，支持我们的第二修正案，我们的军队和退伍军人，强大的国防，以及所有被遗忘的美国男女。马可和我一起改革退伍军人协会，帮助我们的小企业发展，在他的帮助下，我们实现了妇女、非裔美国人、西班牙裔美国人、亚裔美国人以及几乎所有美国人的最低失业率，我们与古巴和委内瑞拉社区密切合作，取得了巨大进展。他还裁定“川普总统与俄罗斯没有任何关系，因为他主持了参议院情报委员会关于假俄罗斯、假俄罗斯、假俄罗斯的骗局，马可永远不会让佛罗里达州或我们国家的伟大人民失望！
+新规则限制美国对中共有关企业的出口，并立即生效。然而，它们不适用于来自美国供应商的已经在途的货物。
 
--总统唐纳德·川普
+在前总统川普（Donald Trump）的领导下，美国将一大批中共企业列入经济黑名单，包括智能手机制造商华为（Huawei）、芯片制造商中芯国际（SMIC）和最大的无人机制造商大疆科技（DJI Technology）。
 
-参考链接：
+[援引原文](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210408-%E5%A8%81%E8%83%81%E7%BE%8E%E5%9B%BD%E5%AE%89%E5%85%A8-%E5%8D%8E%E7%9B%9B%E9%A1%BF%E5%88%B6%E8%A3%81%E4%B8%83%E5%AE%B6%E4%B8%AD%E5%9B%BD%E8%B6%85%E7%BA%A7%E8%AE%A1%E7%AE%97%E6%9C%BA%E5%AE%9E%E4%BD%93)
 
-【1】https://twitter.com/DonaldJTrumpJr/status/1380509961705381888
-
-背书的文字整理：
-
-Endorsement of Marco Rubio
-
-It is my honor to give U.S. Senator Marco Rubio my Complete and Total Endorsement. Marco has been a tireless advocate for the people of Florida, fighting to cut taxes, supporting our Second Amendment, our Military and our Vets, a strong national defense, and all of the forgotten men and women of America. Marco worked with me to reform the VA and help our small businesses grow, and with his help, we achieved the lowest ever unemployment for women, African Americans, Hispanic Americans, Asian Americans, and almost all Americans Together, we worked closely with the Cuban and Venezuelan communities, and have made great progress. He also ruled that “President Trump was in no way involved with Russia, as he presided over the Senate Intelligence Committee on the FAKE Russia, Russia, Russia Hoax. Marco will never let the great people of Florida, or our Country, down！
-
-– President Donald J. Trump
+审核校对：鲁邦五世
+上传排版：CharlieNZ查理
 
 0
