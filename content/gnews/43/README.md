@@ -1,57 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】蓬佩奥将加盟福克斯新闻， 任撰稿人
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1070938/)
+## 康奈尔大学的教授们以压倒性多数反对与中共国建立伙伴关系
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1070961/)
 
-作者：纽约香草山健身部 Jack Li⽂阳
+翻译：洛杉矶天使农场–飞利普
+校对：洛杉矶天使农场–烟波浩淼
+审核：洛杉矶天使农场–断播
 
+**教授评议会以39票对16票反对与北大合作**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Cornell-1_736x514.jpg)康奈尔大学/油管截图
+康奈尔大学的教授们以压倒性的票数否决了校方提出的由中共政府资助的联合学位项目。
 
+康奈尔大学教授评议会周三否决了一项批准与中共北大合作的决议，理由是这个独裁政权侵犯人权，以及对学术自由的威胁。对这项项目的强烈反对使该校推进由中共国教育部出资的中共国伙伴关系的计划复杂化。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+越来越多的教师反对是全社会对美国精英大学和中共国之间有利可图关系评估的一部分。几十年来，康奈尔大学和其他美国一流大学在中共国建立了许多项目和合作伙伴关系，筹集了数亿美元。但随着中共政府的镇压越来越严厉，一些教授担心，他们的机构更看重有利可图的人际关系，而不是他们的道德准则。
 
+带领对这一伙伴关系提出指控的政府教授理查德·本塞尔（Richard Bensel）教授说，康奈尔大学坚决拒绝去承认任何中共侵犯人权，一个包括对穆斯林维吾尔人的种族灭绝的“完全放弃道德责任”的行为。
 
+本塞尔对《华盛顿自由灯塔报》说：“核心管理部门比五年前更加注重财政收入，更加注重物质生活。”在很多方面它基本上都抛弃了一所伟大大学对一些道德和伦理应该有的关注。”
 
-福克斯新闻（Fox News）周四宣布，前国务卿蓬佩奥已加⼊Fox News Media，担任撰稿⼈。
-![Former Secretary of State Mike Pompeo has joined Fox News Media as a contributor, CEO Suzanne Scott announced on Thursday. (AP Photo/John Raoux)]()![Former Secretary of State Mike Pompeo has joined Fox News Media as a contributor, CEO Suzanne Scott announced on Thursday. (AP Photo/John Raoux)](https://a57.foxnews.com/static.foxnews.com/foxnews.com/content/uploads/2021/02/640/320/Mike-Pompeo-CPAC-2021-AP.jpg?ve=1&amp;tl=1)图片来源：Fox News
-福克斯新闻⾸席执⾏官斯科特8⽇说：“蓬佩奥是美国在外交政策和国家安全问题上最受认可和尊重的声⾳之⼀。我期待他在我们所有平台上的贡献，与数百万观众分享他的独特⻅解。”
+康奈尔大学的教授们并不是唯一不赞成的人。康奈尔大学的学生领袖们一致投票要求“停止”和北大的合作，这表明教师的不满情绪正在蔓延到学生团体。而在全国各地，超过100名学者和教授签署了一封敦促西方大学完全公开他们与中共国的关系的信。
 
-蓬佩奥将加盟福克斯新闻频道和福克斯财经新闻⽹，包括⽩天和晚上⻩⾦时段。蓬佩奥明天就会在福斯招牌晨间节⽬Fox&Friends登场。
+成功的反对北大合作的运动鼓舞了教授们的勇气，他们正在推动更彻底的变革。本塞尔和英语系的乔安妮·麦考斯基(Joanie Mackowski)都提出了一些新的决议，这些决议将加强教授评议会在决定未来不仅与中共国，而且与所有独裁国家的伙伴关系方面的作用。这些决议的电子投票将于4月7日结束。
 
-蓬佩奥在福克斯新闻的稿件中说：“我打算提供坦率、直接的分析，让观众了解地缘政治、国际关系，以及有助于为美国带来前所未⻅的繁荣与安定的‘美国优先’政策。”蓬佩奥此番的⽬的，不仅是要给国⺠开智，还可以积聚更多的⽀持者，为2024⼤选作准备。
+麦考夫斯基说：“我们不希望只是为了安抚人们的一个表面的修订。”
 
-蓬佩奥曾任中央情报局局⻓，于2018年4⽉⾄2021年1⽉，在前总统川普的政府中担任国务卿。蓬佩奥在任国务卿期间，⼀贯主张⽤强硬⼿段对付中共，令中共恨之⼊⻣、闻⻛丧胆，中共称之为“全⺠公敌”。在离任前，蓬佩奥亲⼿认定中共犯下种族灭绝和反⼈类罪，为后任⾃如应对中共威胁，打下了基础。
+并不是所有的教授都热衷于限制大学与中共国的联系。计算机科学教授肯·伯曼(Ken Birman)说，他的父亲也是一名教授，因为他和铁幕国家有着牢固的学术联系，使他能够帮助移民申请拒签的苏联人获得签证，离开压迫他们的政权。他说，如果康奈尔大学放弃在中共国的项目，它可能“失去我们能够帮助的处境困难的人的筹码”。
 
-在川普总统在任期间，媒体的权⼒之⼤已经让⼈深有体会、⼼有余悸、瞠⽬结⾆。现阶段的媒体，⼀定程度上有着巨⼤的权⼒，甚⾄对在任政府有着相当⼤的影响和制约。
+其他教员为中共政府辩护。传播学教授康妮•袁（Connie Yuan）不认可中共镇压穆斯林维吾尔人的种族灭绝罪名，认为这是“相当具有误导性的”。
 
-在和中共国的关系上，拜登政府到⽬前为⽌，还是延续川普及蓬佩奥制定的强硬政策——不但没有削减， 还不断的加码，令中共对拜登就差撕破脸了。现在，拜登总统在白宫的抽屉⾥还放着⼏⼗本“灭共锦囊”，供拜登政府给中共慢慢享⽤。蓬佩奥作为现⾏政策的设计师之⼀，起到的就是监⼯、验收的作⽤。⽤中国的传统说法，蓬佩奥就是“监国”了。
+袁说：“康奈尔大学的很多教授认为这是一场人道主义灾难，他们在为维吾尔族穆斯林辩护。”我理解他们的好意，但在我看来，这是一个夸大现实或假消息。”
 
-蓬佩奥这⼀个华丽转身，从“全⺠公敌”成了⽩宫的“⽆冕之王”。他的下⼀站在哪⾥？值得期待。
+康奈尔大学教授评议会将于4月中旬重新召开会议，届时他们可能会讨论补充的立法来控制康奈尔大学与海外的联系。
 
-参考来源：
+原文作者：鹿谷由一郎（Yuichiro Kakutani）
+发布时间：2021年4月1日下午5:30
+原文链接：https://freebeacon.com/campus/cornell-professors-overwhelmingly-reject-china-partnership/
 
-[Former Secretary of State Mike Pompeo joins Fox News as contributor](https://www.foxnews.com/media/former-secretary-of-state-mike-pompeo-joins-fox-news)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-审核：正义的小新
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
-+1
+0

@@ -1,42 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国制裁七家中共国超级计算机实体
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1071591/)
+## 中共在新疆宴请外国代表团为种族灭绝洗地
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1071670/)
 
-新闻来源：《美国商务部》| 作者：美国商务部公共事务办公室（Office of Public Affairs）| 发布时间：2021年4月8日
+新闻来源：《布莱特巴特新闻网（Breitbart）》| 作者：约翰·海沃德（ John Hayward ）| 发布时间：2021年4月6日
 
-翻译/简评：随波逐流 | 校对：X-Wing飞得更高 | 审核：万人往 | Page：Daoiii
+翻译/简评：Claire | 校对：clau | 审核：万人往 | Page：Daoiii
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Dit9xCAbUDYuE/images/7833df18-a445-45a1-a978-b8f7754cda01.jpg?asset_id=9c324aea-fb3c-4a9a-8ef5-20abe7d3fff3&amp;img_etag=%22aa0762a4d97af5facc4c3c59b672d02f%22&amp;size=2560)](https://spark.adobe.com/page/Dit9xCAbUDYuE/images/7833df18-a445-45a1-a978-b8f7754cda01.jpg?asset_id=9c324aea-fb3c-4a9a-8ef5-20abe7d3fff3&amp;img_etag=%22aa0762a4d97af5facc4c3c59b672d02f%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/A3W67vCxS34NA/images/25b2312e-4cfb-42f3-b66e-c6fa75da0ddc.jpg?asset_id=76927a1f-c123-4dee-bb4f-b564d13c6deb&amp;img_etag=%223331fad454eae19500de836715fea4e4%22&amp;size=2560)](https://spark.adobe.com/page/A3W67vCxS34NA/images/25b2312e-4cfb-42f3-b66e-c6fa75da0ddc.jpg?asset_id=76927a1f-c123-4dee-bb4f-b564d13c6deb&amp;img_etag=%223331fad454eae19500de836715fea4e4%22&amp;size=1024)图片来源：Getty Images
 
 **简评：**
 
-**美国商务部4月8日宣布把7家中共国超级计算机公司列入“实体清单”，原因是这些公司从事危害美国国家安全或美国对外政策利益的行为。美国商务部工业与安全局周四做出最终决定，将以下七家中共国公司列入制裁名单，包括天津飞腾信息技术有限公司、上海集成电路技术与产业促进中心、深圳市信维微电子有限公司、国家超级计算深圳中心、国家超级计算济南中心、国家超级计算无锡中心、国家超级计算郑州中心。这些实体参与了供中共国军方单位使用的超级计算机的制造，参与了中共国军事现代化的工作和大规模杀伤性武器计划。美国商务部长雷蒙多表示，超级计算机对现代化武器与国家安全体系发展至关重要，商务部将充分利用权责，防止中共国利用美国技术支持这些破坏稳定的军事现代化行动。**
+本文讲述了在拒绝了联合国派遣事实调查团前往新疆的申请后，中共自己邀请一支所谓的专家团到新疆访问。而有的专家团成员本身就来自没有自由与人权的国家，例如伊朗。这样的访问团成了为中共洗地、唱赞歌的豪华旅游团。成员们在得到中共的“盛情款待”后，大肆宣扬新疆的穆斯林人民在中共的领导下信仰自由，生活越来越好，关押无辜民众的集中营也被美化成了中共有效控制恐怖主义、为恐怖分子提供了改过自新的机会的“职业培训中心”。访问团成员颠倒黑白、指鹿为马的嘴脸，彻底暴露了他们已经沦为中共傀儡的事实。
 
-**这几家受到制裁的公司都有着双重身份，对外声称是普通的商业公司，但是隐瞒了与中共军方的密切关系，实际上在秘密地为军方服务。对中共国这样一个极具侵略性的军事大国，美国一定会担心中共利用美国的技术实现军事现代化，并开发出运用超级计算能力的核武器和大规模杀伤性武器，从而威胁到美国的国家安全。这次制裁可以看出，美国无论哪个党当政，只要事关国家安全，它一定会竭尽全力围追堵截。上届美国政府已经把数十家中共国公司列入实体清单，华为、中芯国际等都名列其中，这次制裁可看作是拜登政府对川普政府政策的延续。中共想利用美国两党轮流执政所造成的“钟摆效应”来浑水摸鱼，采取拖延战术逃避制裁已经完全行不通了，相信未来会有更多的中共国公司受到制裁。**
+近年来，一些曾被关押的维吾尔人民向西方媒体供述他们在新疆再教育营的亲身经历，并指证所谓的再教育营内部的种种暴行：关押人员被洗脑、强迫劳动、父母与孩童被强迫分离、妇女强制绝育、遭受系统性性侵和虐待，甚至死亡。虽然中共外交部和驻外机构持续反驳，声称指控者捏造经历，制造假新闻，但越来越多的受害者站出来揭露中共的恶行。美国前国务卿迈克·彭培奥在离任前发表声明称，中共在新疆犯有种族灭绝和反人类罪，并列举了其种种劣性。对于这些罪行，任何一个有正义的民族和国家都不会袖手旁观。我们新中国联邦和爆料革命会继续传播真相到世界的每一个角落，揭露中共所有的谎言，让中共无底限的恶行曝光在阳光之下。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Dit9xCAbUDYuE/images/09d69330-2215-4108-b586-b8627d8bff6f.png?asset_id=790cfef8-cae3-4188-9005-3cfe71767b1b&amp;img_etag=%22ff401d895481cdbf23a2c10c155252da%22&amp;size=2560)](https://spark.adobe.com/page/Dit9xCAbUDYuE/images/09d69330-2215-4108-b586-b8627d8bff6f.png?asset_id=790cfef8-cae3-4188-9005-3cfe71767b1b&amp;img_etag=%22ff401d895481cdbf23a2c10c155252da%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/A3W67vCxS34NA/images/3294bfc9-3907-4fcf-8f7d-e6fa12512047.jpg?asset_id=b0ec8ab5-6e42-40f2-b143-f097821b3e6f&amp;img_etag=%22e33891f4a95ab4702ad93be569eb077f%22&amp;size=2560)](https://spark.adobe.com/page/A3W67vCxS34NA/images/3294bfc9-3907-4fcf-8f7d-e6fa12512047.jpg?asset_id=b0ec8ab5-6e42-40f2-b143-f097821b3e6f&amp;img_etag=%22e33891f4a95ab4702ad93be569eb077f%22&amp;size=1024)
 
 **原文翻译：**
 
-# **美国商务部将七家中共国超级计算机实体添加到制裁实体清单中，因为它们支持中共国军事现代化和其他破坏稳定的工作**
+# **中共国在新疆宴请外国访问团**
 
-美国商务部工业和安全局（BIS）已将七家中共国超级计算机实体添加到“制裁实体清单”中，因为这些实体从事危害美国国家安全或外交政策利益的活动。
+[!\[\]()!\[\](https://spark.adobe.com/page/A3W67vCxS34NA/images/b37c2277-aba5-4538-b561-726063c69f03.png?asset_id=8cad8a5f-c201-4f0b-bbd9-290d431b1f53&amp;img_etag=%22e2369b01406cfe6bd6457b8afa472497%22&amp;size=2560)](https://spark.adobe.com/page/A3W67vCxS34NA/images/b37c2277-aba5-4538-b561-726063c69f03.png?asset_id=8cad8a5f-c201-4f0b-bbd9-290d431b1f53&amp;img_etag=%22e2369b01406cfe6bd6457b8afa472497%22&amp;size=1024)
 
-今天的最终裁决将以下实体添加到制裁实体清单中：天津飞腾信息技术有限公司(Tianjin Phytium Information Technology)；上海集成电路技术与产业促进中心(Shanghai High-Performance Integrated Circuit Design Center)；深圳市信维微电子有限公司(SunwayMicroelectronics)；国家超级计算深圳中心(The National Supercomputing Center Shenzhen)；国家超级计算济南中心(The National Supercomputing Center Jinan)；国家超级计算无锡中心(The National Supercomputing Center Wuxi)和国家超级计算郑州中心(The National Supercomputing Center Zhengzhou)。这些实体参与制造了供中共国军方单位使用的超级计算机，参与了破坏稳定的军事现代化工作和/或大规模杀伤性武器（WMD）计划。
+中共为反驳针对新疆维吾尔族穆斯林的虐待和种族灭绝指控，招待了“来自21个国家的30多名外交官”组成的贵宾团，他们在3月20日至4月2日访问了新疆。
 
-美国商务部长吉娜·雷蒙多（Gina M.Raimondo）发表了以下声明：
+贵宾团成员包括来自伊朗等其他“拥有自由与人权”的国家的专家。
 
-“超级计算能力对于许多——或许对于几乎所有——现代武器和国家安全体系，比如核武器和高超音速武器的开发都是至关重要的。商务部将会充分利用其权责，阻止中共国利用美国技术推动破坏稳定的军事现代化行为。”
+据周日中共国官媒《环球时报》发表的一篇报道称，贵宾团对幸福的新疆居民拿来招待他们的囊赞不绝口，新疆本土的农业和烘培业，也可以是“近年来新疆社会和经济的发展”的证明。
 
-这些实体符合列入《出口管制条例》（EAR）744.11节所列的实体清单的标准。
+《环球时报》声称，贵宾团“与社会各阶层的当地人进行了交谈，参观了当地的学校和企业，拆穿了一些关于新疆的谣言，新疆地区的形象经常被一些西方政客、组织和媒体扭曲。”
 
-受这一变化影响的实体的完整列表包含在《联邦公报》中公开显示的管控名单中。
+伊朗驻华大使穆罕默德·克沙瓦尔兹扎德（Mohammad Keshavarz-Zadeh）特别赞扬了新疆清真寺的质量：
 
-制裁实体清单是美国商务部工业和安全局用来限制受《出口管制条例》管控的商品出口、再出口以及境内转让给那些被合理地认为参与、已参与、或者现在或即将构成重大风险会参与到危害美国国家安全或外交政策利益的活动的人（包括个人、组织、公司）的工具。附加许可要求适用于受《出口管制条例》管控的物品的出口、再出口和境内转让给清单上的实体，并且大多数商品许可例外授权的获得是受限制的。
+在回应一些西方媒体关于新疆“限制宗教信仰自由”的谣言时，大使说：“在访问位于乌鲁木齐的白大清真寺时，穆斯林人民依旧按着他们的意愿，在寺内正常进行伊斯兰宗教活动。”
 
-🔗[原文链接](https://www.commerce.gov/news/press-releases/2021/04/commerce-adds-seven-chinese-supercomputing-entities-entity-list-their)
+“作为一名穆斯林，我在这个清真寺做了祈祷。我看到人们可以自由的从事宗教活动。”默罕默德·克沙瓦尔兹扎德（Mohammad Keshavarz-Zadeh）大使说。寺内宽敞明亮，地毯柔软整洁，并设有特殊桌椅方便老年人和残疾人使用。
+
+克沙瓦尔兹扎德说，寺内还设有抽水马桶、沐浴房、食堂和文化中心等设施。
+
+贵宾团对中共国的宣传做出了贡献，他们声称由于维吾尔恐怖主义的持续威胁，中共国在新疆的所有压迫行动都是合理的。中共官员巧妙地辩驳，新疆恐怖主义的减少，证明对新疆的高压是很有必要的。
+
+“我赞赏中国政府和人民不仅在很大程度上控制了恐怖主义，而且给恐怖分子提供了新的生活方式，包括提供职业培训和教育的机会。这意味着新疆人民非但没有受到压制，反而获得了朝着和平与发展前进的机会。”尼泊尔大使马亨德拉·巴哈杜尔·潘迪（Mahendra Bahadur Pandey）指出。他的观点与中共国另一个重要的宣传相呼应，那就是新疆庞大的集中营实际上是具有超级激进的招募计划的“职业培训中心”。
+
+到目前为止，中共已经能够从像伊朗这样的穆斯林国家那里获得足够的支持，使动员穆斯林关注维吾尔人困境的努力受到抑制，并与中共的客户国和商业伙伴勾结，以挫败国际人权运动。在联合国派遣事实调查团前往新疆的申请被拒绝时，中共则以豪华旅游的方式对待选定的宾客。
+
+🔗[原文链接](https://www.breitbart.com/national-security/2021/04/06/china-wines-dines-foreign-diplomats-uyghur-region-xinjiang/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -45,6 +55,6 @@
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Dit9xCAbUDYuE/images/2a9217f7-1549-446e-bf57-9fb29741160d.jpg?asset_id=c85755a7-ef39-495d-b9c1-33549723da36&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=2560)](https://spark.adobe.com/page/Dit9xCAbUDYuE/images/2a9217f7-1549-446e-bf57-9fb29741160d.jpg?asset_id=c85755a7-ef39-495d-b9c1-33549723da36&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/A3W67vCxS34NA/images/2a9217f7-1549-446e-bf57-9fb29741160d.jpg?asset_id=c85755a7-ef39-495d-b9c1-33549723da36&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=2560)](https://spark.adobe.com/page/A3W67vCxS34NA/images/2a9217f7-1549-446e-bf57-9fb29741160d.jpg?asset_id=c85755a7-ef39-495d-b9c1-33549723da36&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
 0

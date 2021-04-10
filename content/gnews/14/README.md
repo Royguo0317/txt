@@ -1,86 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 偷梁换柱的愚民之术—疫苗之殇
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1071341/)
+## 德意志之鹰转推上榜的张辉博士手中是否已经握有中共病毒解药
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1071560/)
 
-作者：休斯顿星光农场 星会员 北评2025
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524.jpg)
-在中共病毒后疫情时期，世界各国的疫苗生意做得如火如荼，好不热闹。中共这个手里攥着武汉病毒原始基因序列的大老板更是当仁不让，一马当先！派出官员、各路专家学者出来站台营销，花样百出：“一辆奔驰换一针的疫苗，吃着火锅唱着歌免费打“、”没种疫苗的人会吃亏“、”谁接谁安全，早接早安全“，吆喝声此起彼伏，表演得认真卖力！近日，中共疾控中心、世卫疫苗开发顾问邵一鸣还专门出镜接受了中共央视的采访，新闻标题为：“还在‘疫苗接种犹豫’？中疾控专家这六个回答必须要看‘。现在我们一起来看看中共又在出什么幺蛾子。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-8.png)
+撰稿：喜马拉雅的肉夹馍；审校：喜马拉雅的馍夹肉；校对：Maarago
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-04-08-232943.jpg)
+据[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午10:47 · 2021年4月9日](https://twitter.com/LawrenceSellin/status/1380532850928316418)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)转推的推文——
 
-*图片来源：中共央视新闻截图*
 
-**1问：“（中共武汉病毒）疫苗不良反应大不大？”**
 
-专家：“疫苗副反应在安全范围内”
+> Post by [@dezying](https://twitter.com/dezying?ref_src=twsrc%5Etfw) is right on target. Deyin Guo, who formerly worked at the Wuhan Institute of Virology, now in Guangzhou as is Hui Zhang, is an extension of the Wuhan group and a key link in the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [@Highlandlions](https://twitter.com/Highlandlions?ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wfvDgPRs88](https://t.co/wfvDgPRs88)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 9, 2021](https://twitter.com/LawrenceSellin/status/1380532850928316418?ref_src=twsrc%5Etfw)
 
-邵一鸣表示， “采用传统技术灭活疫苗的安全性是非常好的，所以它的副反应完全是在安全的、可接受的范围之内，要不然国家药监局不会批准它进入使用。”还有市民担心，疫苗问世时间短，那它是否有远期副反应？对此，邵一鸣说：“灭活疫苗已经使用上百年了，我们完全掌控它的远期副反应，远期的安全性也是非常好的，百姓没有必要顾虑这个。”
 
-**评析：**
 
-记者问的是武汉病毒疫苗的不良反应，邵专家回答灭活疫苗已经使用了上百年。这完全是答非所问，偷梁换柱！即便这个灭活疫苗技术有上千年时间，也是其他国家的经验研制开发的疫苗。中共从未自己研制出过哪怕是兽用的灭活疫苗。这款武汉病毒疫苗是真正中共的处女作，是一个连前期实验数据至今都不敢公开、第三期人体实验都未做过的疫苗！你们是哪里来的自信？还说得这么绝对，可以完全掌控它的远期副反应？甚至关于疫苗施打后多久时间产生抗体，新闻上居然说出了三个完全不同的产生时间！这是在赌谁的运气好吗？
+Post by [@dezying](https://twitter.com/dezying)is right on target. Deyin Guo, who formerly worked at the Wuhan Institute of Virology, now in Guangzhou as is Hui Zhang, is an extension of the Wuhan group and a key link in the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) [@Highlandlions](https://twitter.com/Highlandlions)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click)
 
-有据可查的数字，香港自2月底开始实施接种疫苗至今，因接种中共科兴疫苗，造成55岁以上共14人死亡。
+中文大意：[@dezyingis](https://twitter.com/dezying)的推文正中靶心，郭德银以前是武汉病毒研究所的工作人员，现在和张辉一样在广州工作。他是武汉小组的延伸，也是＃[COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) @ [Highlandlions](https://twitter.com/Highlandlions)[＃CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click)[超限生物武器](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)[＃COVID19起源的关键环节](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click)
 
-**2问：“接种疫苗会得病吗？”**
+那么被转推确认的[德意志之鹰@dezying](https://twitter.com/dezying)于[下午8:49 · 2021年4月9日](https://twitter.com/dezying/status/1380503121877725184)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发送的推文——
 
-邵专家表示，疫苗造成疾病的情况非常罕见，一般是发生在接种减毒活疫苗情况下，发生率控制在百万分之一以下，“疫苗制剂本身不会造成疾病”。
 
-**评析：**
 
-首先，“疫苗制剂本身不会造成疾病”这句话想表达什么意思呢？是在暗示接种之后，如果真的产生不良反应或者疾病，不是疫苗的错，是我的运气不够好吗？这招先声夺人、撇清责任实在是太高了！其次，再看看疫苗数据网站Our World In Data研究报告，在巴西、智利、巴基斯坦和土耳其这几个主要接种了科兴疫苗的国家，确诊感染中共病毒的人数都是不降反升。特别在智利，接种疫苗的人群中有90%的人接种的是中共科兴疫苗。在《大纪元》制作的统计图表中可以看出，确诊人数从2月初的近4000例，到3月下旬上升至5000例，增幅近25%！莫非这就是邵专家所说的“百万分之一”吗？简直是信口开河，毫无公信力！
+> Hui Zhang's The Nanoparticle vaccination against SARS-CoV-2:
+> – Valid Animal model
+> – Robust immune response
+> – No ADE
+> Btw, Deying Guo is the dean of Zhongshan School of Medicine[https://t.co/HmuiupHdDU](https://t.co/HmuiupHdDU) [https://t.co/HCjpYByLX1](https://t.co/HCjpYByLX1) [pic.twitter.com/sWq5PGwQMq](https://t.co/sWq5PGwQMq)
+> — 德意志之鹰 (@dezying) [April 9, 2021](https://twitter.com/dezying/status/1380503121877725184?ref_src=twsrc%5Etfw)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-04-08-233227.jpg)
 
-*图片来源：《大纪元》*
 
-**3问：“疫苗的保护期只有半年？”**
+到底说的啥呢——
 
-邵专家答非所问地表示，“打过疫苗的人的免疫力比没有打过的强。”
+Hui Zhang’s The Nanoparticle vaccination against SARS-CoV-2: – Valid Animal model – Robust immune response – No ADE Btw, Deying Guo is the dean of Zhongshan School of Medicine [https://pubmed.ncbi.nlm.nih.gov/33275896/](https://t.co/HmuiupHdDU?amp=1)
 
-**4问：“病毒变异后，原来打的疫苗都白打了？”**
+中文大意：张辉的SARS-CoV-2纳米疫苗接种：-有效的动物模型-强大的免疫反应-没有ADE 顺便说一下，郭德银是中山医学院的院长
 
-邵专家表示，现有变异株只能部分降低疫苗的保护效率，“我们看到的保护效率下降一般是针对轻症病例，（疫苗）对重症病例的保护效率还是比较高的。”
+在这则推文里附上了张辉论文的超连接——[Nanoparticle Vaccines Based on the Receptor Binding Domain (RBD) and Heptad Repeat (HR) of SARS-CoV-2 Elicit Robust Protective Immune Responses](https://pubmed.ncbi.nlm.nih.gov/33275896/)（基于SARS-CoV-2受体结合结构域（RBD）和七肽重复序列（HR）的纳米疫苗可引发强大的保护性免疫反应。），下面我们来看一看新上榜的中共毒王张辉博士的论文都含有哪些信息——
 
-**评析：**
+这篇论文的作者及单位分别是：
 
-这真的是愚民有术！只想“呵呵”。所谓的专家，利用普通人不懂病毒疫苗的专业知识，使用“部分”、“比较高”模糊地文字搪塞，更没有提示在疫苗界最令人担心的ADE效应（Antibody-Dependent Enhancement）即抗体依赖的增強作用。甚至辉瑞疫苗（Pfizer）和莫德纳（Moderna）都没有完全结束临床测试阶段，也无法保证不会发生ADE效应。
+[Xiancai Ma](https://pubmed.ncbi.nlm.nih.gov/?term=Ma+X&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Fan Zou](https://pubmed.ncbi.nlm.nih.gov/?term=Zou+F&amp;cauthor_id=33275896) [2](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-2), [Fei Yu](https://pubmed.ncbi.nlm.nih.gov/?term=Yu+F&amp;cauthor_id=33275896) [3](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-3), [Rong Li](https://pubmed.ncbi.nlm.nih.gov/?term=Li+R&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Yaochang Yuan](https://pubmed.ncbi.nlm.nih.gov/?term=Yuan+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Yiwen Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Xiantao Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+X&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Jieyi Deng](https://pubmed.ncbi.nlm.nih.gov/?term=Deng+J&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Tao Chen](https://pubmed.ncbi.nlm.nih.gov/?term=Chen+T&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Zheng Song](https://pubmed.ncbi.nlm.nih.gov/?term=Song+Z&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Yidan Qiao](https://pubmed.ncbi.nlm.nih.gov/?term=Qiao+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Yikang Zhan](https://pubmed.ncbi.nlm.nih.gov/?term=Zhan+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Jun Liu](https://pubmed.ncbi.nlm.nih.gov/?term=Liu+J&amp;cauthor_id=33275896) [4](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-4), [Junsong Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+J&amp;cauthor_id=33275896) [3](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-3), [Xu Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+X&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Zhilin Peng](https://pubmed.ncbi.nlm.nih.gov/?term=Peng+Z&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Yuzhuang Li](https://pubmed.ncbi.nlm.nih.gov/?term=Li+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Yingtong Lin](https://pubmed.ncbi.nlm.nih.gov/?term=Lin+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Liting Liang](https://pubmed.ncbi.nlm.nih.gov/?term=Liang+L&amp;cauthor_id=33275896) [2](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-2), [Guanwen Wang](https://pubmed.ncbi.nlm.nih.gov/?term=Wang+G&amp;cauthor_id=33275896) [3](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-3), [Yingshi Chen](https://pubmed.ncbi.nlm.nih.gov/?term=Chen+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Qier Chen](https://pubmed.ncbi.nlm.nih.gov/?term=Chen+Q&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Ting Pan](https://pubmed.ncbi.nlm.nih.gov/?term=Pan+T&amp;cauthor_id=33275896) [5](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-5), [Xin He](https://pubmed.ncbi.nlm.nih.gov/?term=He+X&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Hui Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+H&amp;cauthor_id=33275896) [6](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-6)
 
-在过去对SARS和MERS的动物实验中得知，由于ADE效应引发的细胞因子风暴，令动物体内的免疫细胞过度反应从而攻击自身组织细胞。众所周知的例子就是武汉病毒吹哨人李文亮，最终不敌细胞因子风暴对身体的攻击而离世。所以，ADE效应的发生完全可能，但中共专家却只字不提，所以不得不去想想，为什么中共这么积极营销武汉病毒疫苗而且还是免费？他们自己和他们的家人都注射疫苗了吗？ “天下没有免费的午餐”！看看下面战友提供的中共内部信息就明白了。
+其中[Xiancai Ma](https://pubmed.ncbi.nlm.nih.gov/?term=Ma+X&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Rong Li](https://pubmed.ncbi.nlm.nih.gov/?term=Li+R&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Yaochang Yuan](https://pubmed.ncbi.nlm.nih.gov/?term=Yuan+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Yiwen Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1),  [Xiantao Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+X&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Jieyi Deng](https://pubmed.ncbi.nlm.nih.gov/?term=Deng+J&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Tao Chen](https://pubmed.ncbi.nlm.nih.gov/?term=Chen+T&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Zheng Song](https://pubmed.ncbi.nlm.nih.gov/?term=Song+Z&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Yidan Qiao](https://pubmed.ncbi.nlm.nih.gov/?term=Qiao+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Yikang Zhan](https://pubmed.ncbi.nlm.nih.gov/?term=Zhan+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Xu Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+X&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Zhilin Peng](https://pubmed.ncbi.nlm.nih.gov/?term=Peng+Z&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Yuzhuang Li](https://pubmed.ncbi.nlm.nih.gov/?term=Li+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Yingtong Lin](https://pubmed.ncbi.nlm.nih.gov/?term=Lin+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1),  [Yingshi Chen](https://pubmed.ncbi.nlm.nih.gov/?term=Chen+Y&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Qier Chen](https://pubmed.ncbi.nlm.nih.gov/?term=Chen+Q&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1), [Xin He](https://pubmed.ncbi.nlm.nih.gov/?term=He+X&amp;cauthor_id=33275896) [1](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-1),等作者均属于1 Institute of Human Virology, Key Laboratory of Tropical Disease Control of Ministry of Education, Guangdong Engineering Research Center for Antimicrobial Agent and Immunotechnology, Engineering Research Center of Gene Vaccine of Ministry of Education, Zhongshan School of Medicine, Sun Yat-sen University, Guangzhou, Guangdong, 510080, China. （中山大学中山医学院人类病毒研究所，教育部热带病控制教育部重点实验室，广东省抗菌剂与免疫技术工程研究中心，教育部基因疫苗工程研究中心，广州， 广东省510080）
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-04-10-015238.jpg)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-04-10-015205.jpg)
-**问：“为何西安一医生接种疫苗后仍被感染？”**
+其中[Fan Zou](https://pubmed.ncbi.nlm.nih.gov/?term=Zou+F&amp;cauthor_id=33275896) [2](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-2), [Liting Liang](https://pubmed.ncbi.nlm.nih.gov/?term=Liang+L&amp;cauthor_id=33275896) [2](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-2), 均属于Qianyang Biomedical Research Institute, Guangzhou, Guangdong, 510063, China.（千阳生物医学研究所，广东广州510063。）
 
-专家：“这位医生实现了二级防护。”
+其中[Fei Yu](https://pubmed.ncbi.nlm.nih.gov/?term=Yu+F&amp;cauthor_id=33275896) [3](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-3), [Junsong Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+J&amp;cauthor_id=33275896) [3](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-3), [Guanwen Wang](https://pubmed.ncbi.nlm.nih.gov/?term=Wang+G&amp;cauthor_id=33275896) [3](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-3),属于Guangdong Provincial People’s Hospital, Guangdong Academy of Medical Sciences, Guangzhou, Guangdong, 510080, China.（广东省医学科学院广东省人民医院，广东广州510080）
 
-**问：“不经常出门，是否可以不打疫苗？”**
+其中[Jun Liu](https://pubmed.ncbi.nlm.nih.gov/?term=Liu+J&amp;cauthor_id=33275896) [4](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-4), 属于Institute of Human Virology, Key Laboratory of Tropical Disease Control of Ministry of Education, Guangdong Engineering Research Center for Antimicrobial Agent and Immunotechnology, Engineering Research Center of Gene Vaccine of Ministry of Education, Zhongshan School of Medicine, Sun Yat-sen University, Guangzhou, Guangdong, 510080, China; Qianyang Biomedical Research Institute, Guangzhou, Guangdong, 510063, China.（中山大学中山医学院人类病毒研究所，教育部热带病控制教育部重点实验室，广东省抗菌剂与免疫技术工程研究中心，教育部基因疫苗工程研究中心，广州， 广东，510080; 千阳生物医学研究所，广东广州510063。）
 
-专家：“只有能打疫苗的人都打，篱笆才能扎牢。”
+其中[Ting Pan](https://pubmed.ncbi.nlm.nih.gov/?term=Pan+T&amp;cauthor_id=33275896) [5](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-5),属于Institute of Human Virology, Key Laboratory of Tropical Disease Control of Ministry of Education, Guangdong Engineering Research Center for Antimicrobial Agent and Immunotechnology, Engineering Research Center of Gene Vaccine of Ministry of Education, Zhongshan School of Medicine, Sun Yat-sen University, Guangzhou, Guangdong, 510080, China; Center for Infection and Immunity Study, School of Medicine, Sun Yat-sen University Shenzhen, Guangdong, 518107, China.（中山大学中山医学院人类病毒研究所，教育部热带病控制教育部重点实验室，广东省抗菌剂与免疫技术工程研究中心，教育部基因疫苗工程研究中心，广州， 广东，510080; 中山大学医学院感染与免疫研究中心，广东深圳518107）
 
-**评析：**
+压轴的张辉博士[Hui Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+H&amp;cauthor_id=33275896) [6](https://pubmed.ncbi.nlm.nih.gov/33275896/#affiliation-6)属于Institute of Human Virology, Key Laboratory of Tropical Disease Control of Ministry of Education, Guangdong Engineering Research Center for Antimicrobial Agent and Immunotechnology, Engineering Research Center of Gene Vaccine of Ministry of Education, Zhongshan School of Medicine, Sun Yat-sen University, Guangzhou, Guangdong, 510080, China. Electronic address: [\[email protected\]](/cdn-cgi/l/email-protection#6e14060f000906575c2e030f0702401d171d1b400b0a1b400d00).（中山大学中山医学院人类病毒研究所，教育部热带病控制教育部重点实验室，广东省抗菌剂与免疫技术工程研究中心，教育部基因疫苗工程研究中心，广州， 广东省510080 电子地址：[\[email protected\]](/cdn-cgi/l/email-protection#42382a232c252a7b70022f232b2e6c313b31376c2726376c212c)。）
 
-记者问为何医生接种疫苗后仍被感染？这位邵专家却左顾而言他。请问二级防护跟接种疫苗后为何仍然感染武汉病毒有关系吗？不是应该解释为什么中共疫苗没有起效果吗？看来中共民众真的很好忽悠，原来愚民就是这样养成的！
+这篇论文的出版信息是：2020 Dec 15（2020年12月15日）;53(6):1315-1330.e9. doi: 10.1016/j.immuni.2020.11.015. Epub 2020 Nov 25（2020年11月25日）.
 
-**总结：**
+根据谷歌翻译显示的这篇论文的摘要内容是：［已经针对全球COVID-19大流行提出了各种疫苗策略，每种策略都有引发免疫反应的独特策略。在这里，我们通过将自组装的24-mer铁蛋白与严重急性呼吸系统综合症冠状病毒2（SARS-CoV-2）的受体结合域（RBD）和/或七肽重复（HR）亚基共价缀合来开发纳米颗粒疫苗。刺突（S）蛋白。与单体疫苗相比，纳米颗粒疫苗引发了更强大的中和抗体和细胞免疫应答。接种了RBD和/或RBD-HR纳米粒子的RBD和RBD-HR纳米粒子接种的hACE2转基因小鼠在SARS-CoV-2攻击后肺中的病毒载量降低。 RBD-HR纳米颗粒疫苗还促进了针对其他冠状病毒的中和抗体和细胞免疫反应。恒河猴的纳米级疫苗接种可诱导中和抗体，并在加强免疫前对T细胞和B细胞产生反应；这些反应持续了三个多月。因此，基于RBD和HR的纳米颗粒提供了一种有前途的针对SARS-CoV-2和其他冠状病毒的疫苗接种方法。］
 
-注射疫苗已在中共国成了政治任务，新闻媒体也好，专家也罢，都成了中共的提线木偶，已经失去了它的公正力和权威。疫苗的安全性，百姓的死活，这样关系到国家命运的民生大事都没有他们升官发财重要。请问这样的政府怎么会拥有合法性？有什么资格管理一个国家？天若要它亡，必先令其狂！中共发动了这场生化病毒战争，也必将终结于生化病毒！我们拭目以待！
+看来这篇发表于2020年12月15日的论文中列明的纳米颗粒疫苗正是中共冠状病毒的解药，为了避免误导读者，在此特别声明，以上纯属笔者臆断，但是不是笔者臆断的部分已经由Lawrence Sellin博士进行了确认——[@dezyingis](https://twitter.com/dezying)的推文正中靶心！
 
-信息来源：
+这个张辉是何许人也？据[百度百科——张辉 （中山大学中山医学院特聘教授）](https://baike.baidu.com/item/%E5%BC%A0%E8%BE%89/4018666?fr=aladdin)：
 
-[https://www.ntdtv.com/gb/2021/04/02/a103086851.html](https://www.ntdtv.com/gb/2021/04/02/a103086851.html)
+［张辉博士，1982年毕业于[中山医学院](https://baike.baidu.com/item/%E4%B8%AD%E5%B1%B1%E5%8C%BB%E5%AD%A6%E9%99%A2)医学系，1988年在中山医获硕士学位；1988年赴美，在[纽约州立大学](https://baike.baidu.com/item/%E7%BA%BD%E7%BA%A6%E5%B7%9E%E7%AB%8B%E5%A4%A7%E5%AD%A6)上州医学中心直接攻读微生物学博士，1993年获[博士](https://baike.baidu.com/item/%E5%8D%9A%E5%A3%AB/2235621)学位。之后在费城托马斯-杰佛逊大学医学院作博士后和研究助理；1997年被聘为传染内科助理教授，2008年升为教授；2005—2008年，担任杰佛逊大学人类病毒学和生物防护研究所副所长。
 
-[https://www.epochtimes.com/gb/21/3/31/n12849775.htm](https://www.epochtimes.com/gb/21/3/31/n12849775.htm)
+作为第一作者或通讯作者，张辉博士在诸多高影响的杂志，如《Nature》，《NEJM》(新英格兰医学杂志)，《Nature Medicine》，《PNAS》, 《JBC》，《JVI》(病毒学杂志)上发表论文。其共发表50多篇论文。论文总引次数在1800以上。他在很多有影响的专业会议上作重点发言(keynote speech)和一般发言(talk)。作为 Principle Investigator (PI), 现有2项美国NIH RO1基金和1项生物技术公司赞助的基金，并在1项助理教授的NIH KO1基金中任导师(Mentor)。作为副主编，参与了中国医药高校研究生教材《[分子病毒学](https://baike.baidu.com/item/%E5%88%86%E5%AD%90%E7%97%85%E6%AF%92%E5%AD%A6)》的编辑工作，并执笔编写了《人类免疫缺陷性病毒(HIV)》一章。］
 
-编辑/校对/发稿：Helen
+［张辉博士长期参与了很多美国NIH、NSF科研项目的评估，也参与了很多国家包括[英国](https://baike.baidu.com/item/%E8%8B%B1%E5%9B%BD/144602)、[法国](https://baike.baidu.com/item/%E6%B3%95%E5%9B%BD/1173384)、荷兰、以色列、日本等国家或私人基金会科研项目的评估，并担任了中国若干科研项目包括SARS专项、重大传染病专项的海外评审专家。也是很多专业杂志，包括Nature、Nature Review of Microbiology、PNAS、Plos One、JBC、Journal of Virology、Virology、AIDS、AIDS Research and Human Retroviruses、Retrovirology、Human Gene Therapy等的审稿人。业余时间，张辉博士长期担任中山医美东校友会费城地区理事，是华夏中文学校新泽西樱桃山分校的创办人兼首任董事之一。
 
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+最近受[中山大学](https://baike.baidu.com/item/%E4%B8%AD%E5%B1%B1%E5%A4%A7%E5%AD%A6/5672)邀请，张辉博士将回国全职担任[中山大学](https://baike.baidu.com/item/%E4%B8%AD%E5%B1%B1%E5%A4%A7%E5%AD%A6/5672)特聘教授，负责组建中山大学人类病毒学研究所，主要从事HIV的分子生物学的研究和[抗病毒药物](https://baike.baidu.com/item/%E6%8A%97%E7%97%85%E6%AF%92%E8%8D%AF%E7%89%A9/7331322)的开发。］
 
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+看来这位新上榜的中共毒王张辉博士也是一位千人计划对象了，他的身份已经得到Lawrence Sellin博士的确认，他和郭德银在一起工作，郭德银团队是中共病毒起源的关键人物，郭德银已经大名鼎鼎，对于这位上榜新秀的张辉博士，我们要盯住他！
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
-
+（文章内容仅代表作者个人观点）
 
 0
