@@ -1,139 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.7.2021PM-拜登新闻会上表示他尚未和习近平谈过意味着什么？
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1071127/)
+## 小国立陶宛表现出的大国气势和智慧
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1071388/)
 
-视频剪辑 : Ablec(文A)、
-中听校： 洛杉矶天使农场 – 烟波浩淼
-英翻译：洛杉矶天使农场 – 飞利普
-英校对：洛杉矶天使农场 – 烟波浩淼
-字幕+视频制作：意大利达芬奇农场 – 紫苏花生
+撰稿**: **何处是我家
 
-**博博士
-Dr. Bo**
-拜登说这个话的目的意思其实非常的绝决
-The purpose and meaning of what Biden said is absolutely decisive
+“以毒灭共”是郭先生，是爆料革命吹响剿灭中国共产党的号角。他正在无声无息潜移默化的影响着每一个人，各种组织及世界上所有正义的，负责人的有勇气和有希望的国家。这就是~~~~~~~“蝴蝶效应”。
 
-这里面有两层意思
-There are two meanings in it
+立陶宛在大概两周前提出要退出北京出资主导的“17+1”论坛。
 
-第一这个事情他还没有跟习提，还不能跟习提
-First, he hasn’t mentioned it to Xi, and he can’t mention it to Xi yet
+看到这个消息后，我高兴和激动之余，很想和大家分享我个人的所思所想。
 
-因为一旦提了的话
-Because once it is mentioned
+当两天前读到德国之声评论员 “Konstantin Eggert “对立陶宛此举的评论文章，里面有几句话很是认同：“立陶宛的历史为这一问题提供了答案。立陶宛人从本国历史中吸取了教训，尤其是20世纪那段波罗的海三国被斯大林吞并的惨痛历史。而其中最重要的教训就是：面对专制政权，小国最重要的政治资本就是尊重。要想赢得对方的尊重，就必须表明立场，并做好为此付出代价的准备**”。**
 
-按照现在美国所掌握的情报，所掌握的信息
-according to the intelligence and information now possessed by the United States
+“同一些对北约已心生厌倦的欧洲国家相比，立陶宛一直对北约持极为坚定的支持立场”。
 
-这个提的话那就是摊牌，这是一
-It is a showdown. This is first one
+“拜登政府的对华路线似乎同其共和党前任差别不大。北约其他成员国对来自中国的挑战公开表态，也只是一个时间问题。面对中国的威胁恐吓，立陶宛宁可损失物质利益，也不肯屈服的决心，无疑为欧洲国家树立起了难得的榜样。
 
-第二就是美国已经对跟中共继续玩这种游戏已经兴趣不大了
-The second is that the U.S. is not quite interested in playing this game with the CCP
+战友们，这惊喜可并不意外，当郭先生在很久之前就无数次提到：全球灭共！自动灭共!那时有几人真的认同？真的相信？现在您还怀疑吗？
 
-对中共来说其实更加的危险
-Actually, it is more dangerous for the CCP
+“立陶宛”是一个在中共国被中共洗脑的义和团们眼里的蕞尔小国，是吃了熊心豹子胆，敢挑战中国共产党。哪来的勇气？哪来的自信？哪来的国力啊？
 
-为什么，我们上一次在节目里说过
-Why? We said in the previous program
+回答这个问题前，马上想起郭先生的山东河南话混合体：“共产党你完球蛋啦！ 共产党真完球蛋啦。北约其他成员国对来自中国的挑战公开表态，也只是一个时间问题**。**你只能欺骗中国老实的老百姓。谁不知道你啊~~~中国共产党。”
 
-上次WHO到中国去，然后搞成那样一个政治秀
-the WHO was in China last time, it turned into such a political show
+当上世纪90年代苏共濒临灭亡时，波罗的海三个国家的民众只是牵一牵手，绵延几百公里，跨越三国。他们赢得尊重，赢得今天的自由，还有可预期的明天。“立陶宛”可以说有成功的经验。
 
-到最后 出了一篇屎一样的报告
-and in the end, released with a report like shit
+爱沙尼亚，拉脱维亚，立陶宛，外交政策几乎是一致的，是共进共退（国内政策各不相同）。立陶宛这一表态是“蝴蝶效应”的发酵。蝴蝶翅膀的挥动，必将形成灭掉CCP的超级飓风，吹他个干干净净。
 
-其实当时是国际社会
-Actually, at that time, it was the international community
+立陶宛看似一个小国，一个弹丸之地，如此掷地有声的向中共大声的呐喊，是他们的智慧，是他们民族对美好未来选择的一个基本表现。挑战CCP几乎连美国都羞羞答答，瞻前顾后，躲躲闪闪。英国，德国表现就更差强人意，法国，意大利就不提啦！就这一点，立陶宛比超级大国还“大”。
 
-以美国为主正义力量
-mainly the United States as the main justice force
+所以，我向立陶宛表示敬意。他们不会在这件事上损失任何利益，亦不会付出什么代价。相反，立陶宛会得到更多的利益，更好的回报。
 
-给中共最后一次机会
-that gave the CCP one last chance
+相似的是，郭先生和爆料革命。看似一帮普通人，在短短几年把CCP说(我们还没动手呢)的就风雨飘摇，马上见他祖师爷“马克思~~~马上死”。
 
-如果在这次里面你能够起码认个错
-If CCP can at least admit the mistake this time
+战友们！你们看上去的小众也书写了一个工工整整的“大”。
 
-起码能够把自己的责任稍微地揽到自己身上一点
-take their responsibility a little bit to themselves
+爆料革命肯定会唤醒更多的家人，朋友和国人，明天我们也心手相连，不出国境的绵延几千公里。
 
-能够做出一个负责任的大国的样子，这件事情咱们还好说
-and act like a big responsible nation, then there is still chance to talk
+“共产党你完球蛋啦！！！”
 
-这次以后，完完全全中共还是继续各种各样的撒泼
-After this time, the CCP continued to be shrewish
+(本文仅代表作者个人观点)
 
-各种各样的脏水往外泼，往美国身上泼
-and pour all kinds of dirty words on the United States
+编辑：文远Bruce
 
-所以东西都往外
-So all issues belong to someone else
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
 
-把自己的责任推得一干二净
-push themselves all the responsibilities away clearly
+【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
+【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
 
-但我觉得还有一层原因就是说
-But I think another reason is that
+#####  参考资料: [评论：立陶宛挑战中国 风险虽大 却是明智之举](https://www.dw.com/zh/%E8%AF%84%E8%AE%BA%E7%AB%8B%E9%99%B6%E5%AE%9B%E6%8C%91%E6%88%98%E4%B8%AD%E5%9B%BD-%E9%A3%8E%E9%99%A9%E8%99%BD%E5%A4%A7-%E5%8D%B4%E6%98%AF%E6%98%8E%E6%99%BA%E4%B9%8B%E4%B8%BE/a-57108659)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
+#  
 
-美国现在已经对于跟中共继续玩这种文字游戏
-the United States is not much interested in continuing this kind of wordplay and game
-
-口炮游戏没有多大兴趣了，脱钩又往前进了一步
-of invectives with CCP now， so the decoupling is one step forward
-
-**胡博士
-Dr. Hu**
-新疆还有病毒的事情加到一起
-Plus the issues of Xinjiang and viruses together
-早已经改变了背后的深邃
-that has already changed the depth behind it
-
-表面上，我们看到的湖面是平静的
-On the surface, the lake we see is calm
-
-底下早已掀起了滔天巨浪
-while there are already monstrous waves underneath.
-
-我们根本没有看到，已经都闹到了分手的边沿了
-Although we don’t see them at all, yet they are already on the edge of breaking up
-
-这个时候竟然还想挽回
-At this time, they even want to redeem
-
-这个就是第一个给大家传递的一个信息
-this is a first message to be delivered to everybody
-
-我觉得非常明显
-I think it’s very obvious
-
-然后，咱先不说病毒的事
-Then, let’s not talk about the virus first
-
-光说新疆种族灭绝
-just talk about the genocide in Xinjiang
-
-在VOA里面， 不是别的自媒体
-It is VOA, and not the other self-media
-
-里面讲的新疆种族灭绝是被比作纳粹
-to address the genocide in Xinjiang was compared to Nazis
-
-也就是说现在公开就把这个说了
-In other words, it’s now talk about this publicly
-
-现在就是纳粹，你想 , 美国把这个东西比作纳粹
-Now, this is Nazis. You imagine, the United States compares this matter to Nazis
-
-德国对这件事多么敏感，
-How sensitive Germany is to this matter
-
-默克尔无论如何你都不敢跟纳粹合作
-Merkel, in any case, you don’t even dare to cooperate with the Nazis
-
-是不是这个道理？
-Doesn’t this make sense?
+#  
 
 0
