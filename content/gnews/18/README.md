@@ -1,67 +1,125 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 他们不想让我们知道的有关Covid-19的真相
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1069948/)
+## 【路德时评摘要】4.6.2021AM_布林肯：彻底和透明的调查这次病毒大流行的起源
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1070041/)
 
-- 作者: Mar Llera （ 2021年3月10日）
-- 中文翻译: 帅虎
-- 校稿：蚂蚁兄弟 carlos V
+视频剪辑 : Ablec(文A)
+中听校： 洛杉矶天使农场 – 烟波浩淼
+英翻译： 洛杉矶天使农场 – 烟波浩淼
+英翻译校对：洛杉矶天使农场 – 雨山溪桥客
+字幕+视频制作：意大利达芬奇农场 – 紫苏花生
 
+**路德**
+布林肯最重磅的最新讲话
+The most important latest speech from Antony Blinken
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+说我们将继续推进彻底和透明的调查这次病毒大流行的起源
+He said, we are looking and pushing for complete and transparent investigation into origin of the pandemic
 
-**西班牙2021年4月9日电/西喜社——**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/CHILEAEROPUERTOCOVID-1024x576-2-e1617993039929.jpg)
-自弗朗西斯科·佛朗哥1去世以后，专制主义在西班牙从未如此活跃。这一切都源于检察院厚脸皮地向行政部门提交一份检察报告。后来，议会以真正令人震惊的“国家警报状态”为借口而沉默。随后，又批准了一项以疫情为借口的”反虚假信息举措“，此举措堪比前总统拉霍伊(Rajoy)在位时的“禁声”措施，让人不由想起佛朗哥独裁专政时期。
+搞清楚到底发生了什么，从而避免任何生物威胁再次发生
+to learn what happened and so that the biological threat doesn’t happen again
 
-同时，此举措让我们清楚看到，只有异见人士才会被法律拘束。而最近，从表面上看来，副总统伊格莱西亚斯(Iglesias)的嘶吼乱叫仿造川普团队一样，对网络媒体的虚假新闻大肆抨击，而且无论是像安娜·帕斯托（Ana Pastor）这种有进取精神的新闻人物，还是她的同事费雷拉斯（Ferreras），没有人能够在“清算中”幸免于难，清算就是如此。
+否则我们将对不起我们的子孙后代
+Otherwise, we will badly let us future generations down
 
-如果不信，问问“我们能（Podemos）”党派那些被去除的党员就知道了。他们谴责说：反对他们的人都是法西斯主义，从此新的法西斯在以中国制造为伪装的前提下诞生。
+这是历史的关键时刻，我们要敢想，敢干
+This is critical moment, the time for us to think big and act boldly
 
-漫长的团结-民主-参与-工会-激进主义-生态学是没有任何用处的。我个人也在为上断头台做准备。
+美国将直面挑战
+And the United States will face the challenge
 
-欢迎参与世俗的裁判。
+前段时间布林肯接受采访的时候
+When Blinken was interviewed some time ago
 
-**持不同政见的科学家闫博士带来的证据，触碰了全球秩序的底线，因此，她的权利被剥夺也就不足为奇了。**
+说我们要预防第二次以及未来生物威胁
+He said that we have to prevent the second time as well as the future biological threat
 
-在这种情况下，记者是干什么的？应该要用他们敏锐的观察视角，在各媒体，扯蛋平台以及当权者之间，为”次真相”作斗争，称之为新的“核查制度”也不赖。
+我们当时说了，为什么要预防第二次?
+We (Lude Media) said at that time, why do they have to prevent the second time?
 
-最近，我有幸采访了在国际上的大名鼎鼎的受害者之一：闫丽梦博士。 或许您们已不记得她的名字了，她是几个月前受Iker Jiménez邀请，参加他的新冠病毒访谈节目的香港病毒科学家。之后，西班牙境内外的主流媒体都对闫博士的咨讯进行严厉打压，让她保持沉默。原因呢？她犯了一个错误，就是寻求像史蒂夫-班农这样有争议人物的庇护，并反对全球卫生官僚主义，最重要的是，敢于揭露一些危机的真相。
+就是，先做好防守
+which is, make the defense first
 
-至于班农，我不会为他美化形象，他自己有足够的能力证明。但说到全球健康卫生系统的精英们和闫博士对他们的谴责，我确实有话要说。这些不是只是观点，而是经过验证的事实，愿意调查的人都可以从本文中查寻所有的链接。
+因为美国已经意识到这就是中共的生物威胁
+Because the United States has realized that this is the biological threat of the CCP
 
-**很少有人知道，美国人的钱资助了在武汉****的****实验室，其中包括让某些病毒变得更危险，更容易传播的研究**
+布林肯这个词不是一个中性词，生物威胁恐怖主义
+The word, biological threat terrorism, that Brinken used is not a neutral word
 
-我注意到这位持不同政见的科学家闫博士在采访中出示的证据，触碰了全球秩序的底线，因此，她的权利被剥夺也就不足为奇了。
+要彻查，透明的调查
+It has to be thoroughly and transparently investigated
 
-除了中国之外，某些北美的人和组织也被她瞄准。所以闫博士不只跨越了一条“红线”，而是同时跨越两条“红线”。因此，她被敌人和所谓“朋友”都有所厌恶。
+如果来自自然的他会说这个话?
+If the virus comes from nature, would he say this?
 
-除了在冠状病毒研究领域享有盛誉的中国科学家石正丽、王林发(Wang Linfa音译)外，还有几位在公共卫生领域享有国际声誉的西方人物也在武汉实验室留下过足迹: 生态健康联盟主席—皮特·打杂客(Peter Daszak)；北卡罗来纳州教授—拉尔夫·巴里奇（Ralph Baric）和美国国立卫生研究院（NIH-NIAID）主任—安东尼·福奇（Anthony Fauci）。
+说什么对不起子孙后代，
+He should not say something about being sorry for future generations
 
-很少有人知道，打杂客和福奇用美国人的资金资助了巴里奇和石正丽在武汉的实验，包括致力于病毒“功能性增强”的实验，即让某些病毒变得更加危险并易于传播，“以便更好地潜伏病毒”。2015年，巴里奇成为了倍受争议的对象，因为他将基因工程技术应用于蝙蝠病毒，将其改造成“嵌合”的产卵，不仅能让老鼠半死不活，还能感染人体组织。
+因为自然的谁都不知道什么时候会出来
+Because if the virus came from nature, who doesn’t know when it will come out
 
-现在打杂客正从《柳叶刀》杂志为联合国提供了有关“大重启”政策的建议。巴里奇也从瑞德西韦(Remdesivir)的专利中获利，这是一种被无国界医生组织批评的中共病毒治疗方法，但其利润率高得离谱。至于无所不能的福齐，被里根提升为精英，尽管福奇管理能力有问题，但他一直游梭在美国政府高层里，地位太重要了，当然不能让闫丽梦这样的女孩坏了他的黄粱美梦。
+谁都不知道到底从哪个地方出来
+Nobody knows exactly where it will come out
 
-**几乎所有人认同世界卫生组织的国际调研，这显然是一种假象**
+这句话其实就告诉了生物威胁，就是超限生物武器
+This statement actually tells that the biological threat is the unrestricted bioweapon
 
-在一个被喜欢琐碎化的新闻行业里，闫博士的2020年9月和10月的两份报告所呈现的谜题过于复杂。 (报告1  2020年9月[https://zenodo.org/record/4028830#.YGwbnegzZPZ](https://zenodo.org/record/4028830#.YHCsdB9KjIU) 报告2  2020年10月[https://zenodo.org/record/4073131#.YHCtCR9KjIU](https://zenodo.org/record/4073131#.YHCtCR9KjIU))
+生物威胁为什么他现在不说叫生物战, 或者叫生物武器?
+(He said) biological threat. Why doesn’t he call it biowarfare or bioweapon at this moment?
 
-媒体的导向仍然是以左右、东西、南北对比为基础（在这方面，我们要记住，这个整个事情中还涉及到一个斯里兰卡人，香港巴斯德实验室前主任马利克-佩里斯）。
+因为这是超越生物武器，是叫超限生物武器
+Because this is beyond bioweapon and it is unrestricted bioweapon
 
-但活跃的病毒专家们解释模糊，颠覆了这种对立关系的分析范畴，也不符合任何确定的模式。闫博士不是挺川普派，也不是亲拜登派，甚至连性别话题也有争议，当闫博士强调军队里巾帼不让须眉时：提到陈薇将军对病毒学的了解而被提拔上来，被安排在委员会主任的位置上，负责抹去病毒大流行之初武毒所“犯罪”的痕迹。
+所以他用生物威胁先来告诉美国人这是生物威胁了
+So, he used the biological threat first to tell the Americans that this is a biological threat
 
-尽管有不可否认的利益关系以及可验证的真实性，但这一错综复杂的情节脚本却被大多数媒体所否定。而且就目前的疫情审查制度，新闻工作者们不想把它拍成纪录片、也没有想把它写成报道，甚至没有想把它写成资料性的文章。过于复杂，也受到威胁，总之，真实得以至于无法将其搬上屏幕展示给观众。几乎每个人都认同世界卫生组织的国际调研，这显然是一种假象，但它让我们暂时的宽心。
+生物恐怖主义其实就是超限生物武器
+Bioterrorism is actually unrestricted bioweapon
 
-注： 1. 朗西斯科·佛朗哥：Francisco Franco: 1936-1975 西班牙国独裁统治时期元首
+因为它不是一个生物战的概念
+Because it is not a concept of biowarfare
 
-编辑：Victor Torres；校对:阿伯塔 ；组稿：神奇四侠；发稿：信心的选择
+就像恐怖主义，当时的911
+It’s like terrorism. It was 911
 
-**原文链接:** [https://gaceta.es/actualidad/lo-que-no-quieren-que-sepamos-sobre-el-origen-de-la-covid-19-20210310-1536/](https://gaceta.es/actualidad/lo-que-no-quieren-que-sepamos-sobre-el-origen-de-la-covid-19-20210)
-**相关链接:** [https://gaceta.es/actualidad/covid-ano-ii-las-seis-lecciones-que-ya-deberiamos-haber-aprendido-20210311-1007/](https://gaceta.es/actualidad/covid-ano-ii-las-seis-lecciones-que-ya-deberiamos-haber-aprendido-20210311-1007/)
+它不是对你美国宣战，但这是恐怖主义
+it wasn’t a declaration of war against the United States, but it was terrorism
 
+现在中共搞得是生物恐怖主义，超限生物武器
+Now the Chinese Communist Party is engaging in bioterrorism using unrestricted bioweapon
 
+大家看明白没有?几个月以来都验证了美国拜登政府上台以后
+Do you see clearly? It’s been verified for several months after the Biden administration came to power
 
+真正的都已经各方面的准备工作都已经准备好了
+All the preparations have been fully completed
 
+中共他所有的威胁就是那种便宜的所谓的导弹
+All the Chinese Communist Party’s threats are their cheap so-called missiles
+
+能打个100多公里，是吧?
+which can make more than 100 kilometers, right?
+
+反正我万导齐发。就这种又便宜
+The CCP might launch tens of thousands their cheap missiles
+
+前面带一些东西。
+(They might) carry something on the missile warhead.
+
+带一些炸弹，甚至带一些生物的这种东西
+Or carry some bombs, even some biological stuff
+
+如果到你上空可能都危险
+If it comes over your sky, it may be dangerous
+
+所以一定要在半路就给你拦截掉
+So, it must be intercepted on its halfway
+
+当然韩国可能是一个巨大威胁，面临北朝鲜
+Of course, South Korea may have a huge threat, since it is facing North Korea
+
+所以这方面全部都准备好。准备好才说这话
+So, all are prepared. Preparations have been done before he could say this
 
 0

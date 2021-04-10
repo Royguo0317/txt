@@ -1,30 +1,89 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄罗斯暗示CCP病毒是美国的生物武器
-` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1070450/)
+## 每日新闻收集【4/9】
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1070521/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/usa_vs_russia.jpg)图片来源：www.geopolitica.ru
-#### 加拿大多伦多枫叶农场丁过
+**西班牙巴塞罗那喜悦农场** wenwu
 
-俄罗斯联邦安全会议秘书尼古拉·帕特鲁舍夫在接受公开釆访时暗示，**CCP**病毒与美国生物实验室有关。这位原俄罗斯[联邦安全局](https://zh.m.wikipedia.org/wiki/%E8%81%AF%E9%82%A6%E5%AE%89%E5%85%A8%E5%B1%80)、经济安全局的一把手自2008年起一直担任[俄罗斯联邦安全会议](https://zh.m.wikipedia.org/wiki/%E4%BF%84%E7%BE%85%E6%96%AF%E8%81%AF%E9%82%A6%E5%AE%89%E5%85%A8%E6%9C%83%E8%AD%B0)秘书，他在**2014**年和**2018**年分别被欧盟和美国制裁。
+中共病毒推特信息分享
 
-在**4**月**7**日的釆访中，当记者追问，美国在所谓的亚洲生物研究所开发生物武器吗？帕特鲁舍夫的回答是**:**莫斯科方面有充分的理由确信，美国正在俄中边境开发威力强大的生物武器，美国人在化学武器方面也有问题。美国在俄中两国边境附近控制、建立了越来越多的生物实验室，这些国家自己都搞不清楚，美国仔实验室究竟在做什么。但是帕特鲁舍夫说不出是美国的哪个欧亚实验室有问题。
 
-帕特鲁舍夫还宣称，美国马里兰州德特里克堡生物试验室在过去的数十年中一直从事军事生物武器的研究，试验室附近数次爆发其他地区极为罕见的疾病，这不得不引起人们的关注。中共外交部发言人赵立坚则直指美国在乌克兰建有**16**个生物实验室，并质问“为什么在全世界建造这么多实验室？美军在这些实验室和德特里克堡基地开展了哪些活动？”。实际上德特里克堡发现的病例是患者吸电子烟而导致的肺部受伤，没有任何证据表明，与类似于**CCP**病毒肺部损伤之间有任何相似，这是经卫生工作者证实的事实。
 
-凭普京老克格勃的深厚功底，及俄罗斯情报部门无孔不入的能力，俄罗斯肯定是最早掌握中共造毒放毒真凭实据的国家。而帕特鲁舍夫这样一位还在欧美制裁名单中的俄罗斯政坛重量级人物，公开向美国发难，说明美俄在乌克兰克里米亚问题上的对抗已经处于可能引发重大危机的边缘**, **这种对美国的质疑也是考验拜登对**CCP**病毒的真实态度，客观上是倒逼拜登在病毒溯源问题上尽快采取行动。
+> Sellin博士给出了中共释放病毒的三种可能状况：
+> 1 故意释放基因编辑改造过的冠状病毒
+> 2 逆转冠状病毒疫苗，使疫苗致病
+> 3 用冠状病毒测试疫苗效果，结果失败
+> 这是“SIXTA”的研判结果吗？乖乖啊😱 [https://t.co/DK8Xh4fcTX](https://t.co/DK8Xh4fcTX)
+> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [April 9, 2021](https://twitter.com/jsdfposjpqyuee1/status/1380402354168623104?ref_src=twsrc%5Etfw)
 
-其实，帕特鲁舍夫说话是留有余地的。他委婉的说**:**当前的俄美关系正处在自冷战结束以后的最低水平，拜登对普京的攻击，使本来就已紧张的局势进一步恶化，俄罗斯不希望俄美关系陷于一段新的冷战式的长期对抗。帕特鲁舍夫甚至呼吁，今天的俄美两国人民没有相互仇恨的理由，没有意识形态上的分裂，俄罗斯愿意与美国在缓解政治军事紧张等问题上进行合作，希望理智、思维正常的美国人可以在华盛顿占上风，开启具体的俄美对话，以处理那些不经两国建设性互动，便无法有效解决的问题。这番话是向美国示好及恶心拜登的，听起来令人动容，但是习近平听起来肯定不舒服。
 
-普京再凶悍也不愿意打仗，何况当今的俄罗斯财政处于极度空虚的状态。用通俗的话来说，普京要向拜登及北约传达**——**如果你们一定要支持乌克兰夺回克里米亚及顿巴斯的控制权，那么我就横下心和你们干到底，我力量不足就和中共结盟，在病毒、台湾问题上将和中共攻守同盟，都和你们为敌，如果你们认为这也无所谓，那只能说是你们把我逼上梁山的**……**我再问你们一遍，我们还有得谈吗？
+**`火来战友推特大意`**
+*Sellin博士给出了中共释放病毒的三种可能状况：
+ 1 故意释放基因编辑改造过的冠状病毒 
+2 逆转冠状病毒疫苗，使疫苗致病 
+3 用冠状病毒测试疫苗效果，结果失败 这是“SIXTA”的研判结果吗？*
 
-中共不仅是美国的敌人，也是俄罗斯、乌克兰与欧盟的敌人，如果美俄不结束这种并非必须立即分出胜负的纷争，尽快团结起来共同灭共，就无法有效扼止**CCP**病毒的变异及疫情的泛滥。长此以往，俄乌即使不交战也被**CCP**病毒彻底搞跨了，最终得益的是邪恶的中共！因此，以美国为首的北约在不正确的时间挑起乌俄危机，将造成反共力量的叛变分化和极大消耗，起码客观上是在帮助中共。
 
-参考链接：
+> 突然明白为什么中共国强制打疫苗…让所有老人打中国疫苗，是解决破产的养老金制度的好办法啊！ [https://t.co/lRA6M4PAU7](https://t.co/lRA6M4PAU7)
+> — 瞿水台 Qu Shuitai (@QuShuitai) [April 7, 2021](https://twitter.com/QuShuitai/status/1379880693526896649?ref_src=twsrc%5Etfw)
 
-[俄联邦安全会议秘书：美国在俄罗斯和中国边境附近制造生物武器](https://www.sohu.com/a/459562705_100071728)
 
-[Russia Hints that Coronavirus Is U.S. Bioweapon](https://www.breitbart.com/asia/2021/04/09/russia-hints-coronavirus-is-us-bioweapon/)
+**`瞿水台推特`**
+*突然明白为什么中共国强制打疫苗…让所有老人打中国疫苗，是解决破产的养老金制度的好办法啊*
 
-0
+
+> 塞林博士：武毒所的危宏平是被断定的冠状病毒的＂零号病人＂黄艳玲的导师。他与中共军方有联系，包括拥有冠状病毒的备受怀疑的舟山蝙蝠冠状病毒骨干ZC45/ZXC21的解放军第三军医大学！[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/ipkHGPsoCX](https://t.co/ipkHGPsoCX)
+> — 花岗岩 (@graniteofstone) [April 8, 2021](https://twitter.com/graniteofstone/status/1380076724046557189?ref_src=twsrc%5Etfw)
+
+
+**`花岗岩推特`**
+塞林博士：武毒所的危宏平是被断定的冠状病毒的＂零号病人＂黄艳玲的导师。他与中共军方有联系，包括拥有冠状病毒的备受怀疑的舟山蝙蝠冠状病毒骨干ZC45/ZXC21的解放军第三军医大学
+
+
+> Part of my first anonymous revelation of PLA lab-origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) on 19 Jan, 2020, via LuDe Media (English subtitle [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw))
+> I explained to Mr. LuDe for 2 Ds, then he delivered the information in his style. 
+> China gov was forced to conduct a serial actions immediately. [https://t.co/NIUwR96AM8](https://t.co/NIUwR96AM8)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 8, 2021](https://twitter.com/DrLiMengYAN1/status/1380281553029373952?ref_src=twsrc%5Etfw)
+
+
+**`闫博士推特`**
+*认证火来战友的信息*
+
+
+> Dr. Tess Lawrie, Director of the Evidence-Based Medicine Consultancy Ltd., urges people across the world to take charge of their health— even as governments & health authorities ignore evidence showing that ivermectin effectively prevents & treats COVID-19. [#ivermectinSavesLives](https://twitter.com/hashtag/ivermectinSavesLives?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/PJl8G1C5BR](https://t.co/PJl8G1C5BR)
+> — Frontline Covid-19 Critical Care (@Covid19Critical) [April 8, 2021](https://twitter.com/Covid19Critical/status/1380113196992843779?ref_src=twsrc%5Etfw)
+
+
+**`一线重症中共病毒患者监护的推特`**
+*泰斯·劳丽博士可证医学咨询有限公司主任敦促世界各地的人们负责自己的健康——即使**政府和卫生当局**屏蔽了伊维菌素有效预防和治疗中共病毒的证据*
+
+
+> New research out of Switzerland: [pic.twitter.com/vQlL9gsyp4](https://t.co/vQlL9gsyp4)
+> — Dr. Brian Tyson, MD 🇺🇸 (@btysonmd) [April 7, 2021](https://twitter.com/btysonmd/status/1379855518974365697?ref_src=twsrc%5Etfw)
+
+
+**`布莱恩·泰森医学博士推特`**
+*瑞士的新研究图表可见：由于人们使用羟氯喹，导致死亡人数降低三倍，效果明显*
+
+
+> The stopping of HCQ caused increase in death. It is a delayed response. Then the restart of HCQ caused the death rate to go back down.
+> — Dr. Brian Tyson, MD 🇺🇸 (@btysonmd) [April 7, 2021](https://twitter.com/btysonmd/status/1379857273992871936?ref_src=twsrc%5Etfw)
+
+
+**`布莱恩·泰森推特`**
+*HCQ的停止使用导致死亡人数增加。这是一个延迟响应。然后HCQ的重新使用导致死亡率下降*
+
+
+> COVID scandal: Feds ignored 2016 law requiring use of real world evidence [https://t.co/CySlfpqkMp](https://t.co/CySlfpqkMp)
+> — AssocAmerPhys&Surg (@AAPSonline) [April 7, 2021](https://twitter.com/AAPSonline/status/1379876169672101892?ref_src=twsrc%5Etfw)
+
+
+**`私人医生的声音`**
+*中共病毒丑闻：美联储无视2016年要求使用真实世界证据的法律。附极右翼《WND》的**`新闻链接`***：
+*福奇和政府的无视真实数据和法律，这造成了美国人无法使用爆料革命最先推荐的预防中共病毒药物*
+
+
+
+
++1

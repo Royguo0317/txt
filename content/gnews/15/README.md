@@ -1,125 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.6.2021AM_布林肯：彻底和透明的调查这次病毒大流行的起源
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1070041/)
+## 一年后中共才哀悼中印冲突中死亡的军人
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1070172/)
 
-视频剪辑 : Ablec(文A)
-中听校： 洛杉矶天使农场 – 烟波浩淼
-英翻译： 洛杉矶天使农场 – 烟波浩淼
-英翻译校对：洛杉矶天使农场 – 雨山溪桥客
-字幕+视频制作：意大利达芬奇农场 – 紫苏花生
+新闻来源：《布莱巴特新闻网（Breitbart）》| 作者：弗朗西斯·马特尔（Frances Martel ）| 发布时间：2021年4月5日
+翻译/简评：Claire | 校对：clau | 审核：万人往 | Page：Daoiii
 
-**路德**
-布林肯最重磅的最新讲话
-The most important latest speech from Antony Blinken
+[!\[\]()!\[\](https://spark.adobe.com/page/hEIBBuQ6Bv2VM/images/e466e3bf-86cb-427b-bceb-3660cec6e6ef.png?asset_id=e57e79d4-8281-440e-9840-cc1a3dce433d&amp;img_etag=%2285f4eef150ca87014d32923ce4ce167c%22&amp;size=1024)](https://spark.adobe.com/page/hEIBBuQ6Bv2VM/images/e466e3bf-86cb-427b-bceb-3660cec6e6ef.png?asset_id=e57e79d4-8281-440e-9840-cc1a3dce433d&amp;img_etag=%2285f4eef150ca87014d32923ce4ce167c%22&amp;size=1024)
 
-说我们将继续推进彻底和透明的调查这次病毒大流行的起源
-He said, we are looking and pushing for complete and transparent investigation into origin of the pandemic
+**简评：**
 
-搞清楚到底发生了什么，从而避免任何生物威胁再次发生
-to learn what happened and so that the biological threat doesn’t happen again
+**中共国政府在2020年6月的加尔万谷事件发生后八个月，才公布4名士兵的死亡并追授4人烈士和荣誉称号，允许向死难者致敬，此行为引起大量讨论和追思。加尔万谷事件是中印两国45年以来最严重的边界冲突。印方公布至少20名印度士兵死亡，而中共国的死亡人数是其2倍多。然而，中共国极力否认，称印度渲染炒作有关伤亡事件，误导国际舆论。对于未及时公布伤亡数字，中共国表示，冲突发生后，中方是为了保持克制，努力维护两国关系大局，推动局势降温缓和。中印边界的争议始终是两国的雷区，未来有可能会有更多的冲突事件发生。**
 
-否则我们将对不起我们的子孙后代
-Otherwise, we will badly let us future generations down
+**中印冲突的事实不得而知。由于中共“蓝金黄”计划的渗透，中共党媒和西方一些新闻媒体极力帮助中共散播谣言，歪曲事实，祸害世人，西方所谓的中立媒体也沦为中共剥夺世人了解真相权利的工具。郭先生不止一次在视频直播中爆料中共的肆意妄为和邪恶本质。我们新中国联邦人和爆料革命信守“唯真不破”，以“真”打击中共的假恶丑，以“真”唤醒被中共洗脑哄骗的世人，以“真”创造有法治的未来。爆料革命，唯真不破！**
 
-这是历史的关键时刻，我们要敢想，敢干
-This is critical moment, the time for us to think big and act boldly
+**原文翻译：**
 
-美国将直面挑战
-And the United States will face the challenge
+## 近一年后, 中共国向印度冲突中的死难者致敬
 
-前段时间布林肯接受采访的时候
-When Blinken was interviewed some time ago
+[!\[\]()!\[\](https://spark.adobe.com/page/hEIBBuQ6Bv2VM/images/7c2cfdbe-9e3e-40cf-b2e3-ac91da1c9215.png?asset_id=e484c5f3-9218-43f0-a5d0-918510629643&amp;img_etag=%22279be0c3b0f6d5be29cc5752c7eb849f%22&amp;size=1024)](https://spark.adobe.com/page/hEIBBuQ6Bv2VM/images/7c2cfdbe-9e3e-40cf-b2e3-ac91da1c9215.png?asset_id=e484c5f3-9218-43f0-a5d0-918510629643&amp;img_etag=%22279be0c3b0f6d5be29cc5752c7eb849f%22&amp;size=1024)
 
-说我们要预防第二次以及未来生物威胁
-He said that we have to prevent the second time as well as the future biological threat
+中共国周日组织了首次全国性的致敬活动，以悼念在2020年6月份中印边境冲突中牺牲的4名士兵，这是共产党近一年来首次允许对这一事件进行公开哀悼。
 
-我们当时说了，为什么要预防第二次?
-We (Lude Media) said at that time, why do they have to prevent the second time?
+2020年6月，中共国和印度士兵就中国人民解放军部队在印度拉达克地区（Ladakh region）的加尔万谷（Galwan Valley）的非法驻扎发生了冲突。据报道，解放军在该地区搭建了帐篷并袭击了试图接近的印度士兵。由于当时的印中边界交战条款不允许士兵携带枪支，导致印度士兵被解放军使用石头、包裹着铁丝网的棍棒和其他简陋武器攻击。据报道，陡峭的喜马拉雅地形导致许多人死于跌落悬崖和体温过低，此外还有战斗死亡。
 
-就是，先做好防守
-which is, make the defense first
+冲突发生后，印度政府立即发表声明，表示大约有20名士兵阵亡，而在此次冲突中牺牲的军衔最高的印度军人是比库马拉·桑托什·巴布（Bikkumalla Santosh Babu）上校。印度媒体称，有证据表明中共国军队的死亡人数是印度的两倍多，但中共国政府拒绝公布伤亡人数，坚决表示印度媒体在撒谎。
 
-因为美国已经意识到这就是中共的生物威胁
-Because the United States has realized that this is the biological threat of the CCP
+冲突发生八个月后，中共国媒体终于承认并表示只有4名士兵在冲突中遇难，他们是：陈红军 、肖思远、陈祥榕和王焯冉。中共国官媒《环球时报》合理化了延迟的公开哀悼，并指出，2021年4月4日是自加尔万谷事件（Galwan Valley incident）以来的第一个清明节。清明节是中国的传统节日，在这一天，家人相约去墓地纪念亡者并清扫整理他们的墓碑。
 
-布林肯这个词不是一个中性词，生物威胁恐怖主义
-The word, biological threat terrorism, that Brinken used is not a neutral word
+据《环球时报》报道：“中国各地的人们通过扫墓、送花，甚至用他们喜欢的食物来向这四位烈士表示敬意。”在烈士王焯冉的故乡河南省，官方媒体会见了他的母亲，并报道称，数十名当地居民带着祭品排队为烈士王焯冉扫墓。
 
-要彻查，透明的调查
-It has to be thoroughly and transparently investigated
+这个宣传机构报道：“王焯冉的母亲，现年51岁的杨素香，用毛巾擦拭了儿子的墓碑，取出了苹果、蛋糕和几瓶饮料，打开了包装，然后将它们放在墓碑前。周六清晨，来自王焯冉家乡的学生、警察、居民和当地村民也聚集在墓地广场上，向王焯冉致以敬意。”
 
-如果来自自然的他会说这个话?
-If the virus comes from nature, would he say this?
+中共国国防部在2月份把这4个人评为烈士，并称他们是在加尔万谷事件中丧生的唯一（四位）解放军士兵。国防部声称其中三人在与印度军队作战中牺牲，而另一位，王焯冉是在渡河奋力救助被攻击的战友时牺牲的。当时，《环球时报》重申，中方坚持认为是印度士兵非法越境进入中共国，而非中方，是印度士兵并率先发起攻击，而非中方的士兵。
 
-说什么对不起子孙后代，
-He should not say something about being sorry for future generations
+[!\[\]()!\[\](https://spark.adobe.com/page/hEIBBuQ6Bv2VM/images/2507bcd9-17fa-4c45-8d18-59f8d08412fc.png?asset_id=bf76843c-307e-49a4-b738-3d6c0df0eabe&amp;img_etag=%224b73d650a7cc308729123812f74971bb%22&amp;size=1024)](https://spark.adobe.com/page/hEIBBuQ6Bv2VM/images/2507bcd9-17fa-4c45-8d18-59f8d08412fc.png?asset_id=bf76843c-307e-49a4-b738-3d6c0df0eabe&amp;img_etag=%224b73d650a7cc308729123812f74971bb%22&amp;size=1024)牺牲士兵王焯冉的父母（来源网络）
 
-因为自然的谁都不知道什么时候会出来
-Because if the virus came from nature, who doesn’t know when it will come out
+《环球时报》声称：“2020年6月，印度军方违反先前的协议，越线搭设帐篷。出于对先前协议和礼节的尊重，中国军队的团长祁发宝上校与几名战士前往谈判。然而，印度军方非但未表示出诚意，反而部署了更多的士兵，企图迫使中国士兵让步。”
 
-谁都不知道到底从哪个地方出来
-Nobody knows exactly where it will come out
+《泰晤士报》称，八个月后，印度官员的说法恰恰相反：是中共国军队在印度领土上驻扎并搭建帐篷，而印度的比库马拉·桑托什·巴布（Bikkumalla Santosh Babu）上校是第一个接触对方的人。
 
-这句话其实就告诉了生物威胁，就是超限生物武器
-This statement actually tells that the biological threat is the unrestricted bioweapon
+中共国外交部花了数月时间否定印度政府的报告，并声称印度官员“大肆渲染”了此事件。
 
-生物威胁为什么他现在不说叫生物战, 或者叫生物武器?
-(He said) biological threat. Why doesn’t he call it biowarfare or bioweapon at this moment?
+在6月的冲突事件发生后不久，有印度消息人士告诉当地媒体，中共国士兵的死亡人数是印度的两倍多。
 
-因为这是超越生物武器，是叫超限生物武器
-Because this is beyond bioweapon and it is unrestricted bioweapon
+印度退役的四星陆军上将辛格（V.K.Singh）告诉《印度斯坦时报》：“中共国军队可能遭受（印度方面）两倍以上的伤亡。”事件发生后不久，印方声称在600名被涉及到此事件的士兵中， 至少20人牺牲。有报道称，巴布上校是被人推下悬崖后死亡的。
 
-所以他用生物威胁先来告诉美国人这是生物威胁了
-So, he used the biological threat first to tell the Americans that this is a biological threat
+此事件发生后不久，印度取消了长达数十年的边境枪支禁令。三个月后，2020年9月，印度军队在对峙中打响了45年来的第一枪。据报道，这次对峙还包括使用矛和棍棒，这是印度军队对中共国所谓的“西藏南部”采取的更大行动。印度军队在那个月占领了一个俯瞰班公湖（Pongong Tso）的山头。在班公湖的归属问题上，中印仍然具有争议。据报道，印度部队在那里建立了基地，由于其基地类似于之前中共国士兵建立在加尔万谷的基地，中共国政府表示愤怒，认为此举是入侵。
 
-生物恐怖主义其实就是超限生物武器
-Bioterrorism is actually unrestricted bioweapon
+与印度数月的紧张关系已成为中共国解放军的公关危机，因为中共国经常坚称解放军是世界上最危险的军事力量。独裁者习近平在12月悄无声息地替换了负责印度边境所在地西部战区司令部的将军，并任命了一位在该地区毫无经验的老将军。据报道，解放军已开始研发外骨骼服，因为从理论上讲，外骨骼服可以帮助训练有素的中共国士兵更有效地应对极端寒冷的温度和艰难的山区地形。
 
-因为它不是一个生物战的概念
-Because it is not a concept of biowarfare
+与此同时，中共国和印度的外交官已经进行了数月的协商，以防止进一步的敌对行动。自9月份以来，没有任何重大的暴力事件发生，但上周有报道称，中共国军方再次开始侵略印度领土。
 
-就像恐怖主义，当时的911
-It’s like terrorism. It was 911
+将喜马拉雅山上出现的可疑的合法村庄与中共国在属于菲律宾和越南的水域非法建造的人工岛进行比较，不难得出：“中共国不是通过直接使用武力，而是通过非对称和混合战争来推进其扩张主义。在南中国海的成功使中共国备受鼓舞，并将这剧本带到了喜马拉雅边境地区。”新德里政策研究中心的策略研究学教授布拉馬·切拉尼（Brahma Chellaney）上周告诉美国之音。
 
-它不是对你美国宣战，但这是恐怖主义
-it wasn’t a declaration of war against the United States, but it was terrorism
+🔗[原文链接](https://www.breitbart.com/asia/2021/04/05/china-honors-dead-india-clash-nearly-year-later/)
 
-现在中共搞得是生物恐怖主义，超限生物武器
-Now the Chinese Communist Party is engaging in bioterrorism using unrestricted bioweapon
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
-大家看明白没有?几个月以来都验证了美国拜登政府上台以后
-Do you see clearly? It’s been verified for several months after the Biden administration came to power
 
-真正的都已经各方面的准备工作都已经准备好了
-All the preparations have been fully completed
+编辑：【英国伦敦喜庄园编辑部】
 
-中共他所有的威胁就是那种便宜的所谓的导弹
-All the Chinese Communist Party’s threats are their cheap so-called missiles
+[!\[\]()!\[\](https://spark.adobe.com/page/hEIBBuQ6Bv2VM/images/2a9217f7-1549-446e-bf57-9fb29741160d.jpg?asset_id=c85755a7-ef39-495d-b9c1-33549723da36&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/hEIBBuQ6Bv2VM/images/2a9217f7-1549-446e-bf57-9fb29741160d.jpg?asset_id=c85755a7-ef39-495d-b9c1-33549723da36&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
-能打个100多公里，是吧?
-which can make more than 100 kilometers, right?
 
-反正我万导齐发。就这种又便宜
-The CCP might launch tens of thousands their cheap missiles
-
-前面带一些东西。
-(They might) carry something on the missile warhead.
-
-带一些炸弹，甚至带一些生物的这种东西
-Or carry some bombs, even some biological stuff
-
-如果到你上空可能都危险
-If it comes over your sky, it may be dangerous
-
-所以一定要在半路就给你拦截掉
-So, it must be intercepted on its halfway
-
-当然韩国可能是一个巨大威胁，面临北朝鲜
-Of course, South Korea may have a huge threat, since it is facing North Korea
-
-所以这方面全部都准备好。准备好才说这话
-So, all are prepared. Preparations have been done before he could say this
 
 0
