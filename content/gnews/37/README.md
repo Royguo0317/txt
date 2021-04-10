@@ -1,33 +1,89 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 为什么中共国不值得我们信任
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1070385/)
+## 每日新闻收集【4/9】
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1070521/)
 
-- 翻译: 帅虎
-- 校稿：蚂蚁兄弟
+**西班牙巴塞罗那喜悦农场** wenwu
+
+中共病毒推特信息分享
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年4月9日电/西喜社——**
+> Sellin博士给出了中共释放病毒的三种可能状况：
+> 1 故意释放基因编辑改造过的冠状病毒
+> 2 逆转冠状病毒疫苗，使疫苗致病
+> 3 用冠状病毒测试疫苗效果，结果失败
+> 这是“SIXTA”的研判结果吗？乖乖啊😱 [https://t.co/DK8Xh4fcTX](https://t.co/DK8Xh4fcTX)
+> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [April 9, 2021](https://twitter.com/jsdfposjpqyuee1/status/1380402354168623104?ref_src=twsrc%5Etfw)
 
-陈薇将军用了几周时间抹去了在武汉海鲜市场以及周边留下的作案痕迹，又用很多天篡改他们实验室的数据库。并且一年来，对那些提出独立调查的人进行了报复和打击。世卫组织团队明显选择了不透明性调查，其成员承受着巨大的压力，一个月内没有收到任何必需的文件来展开其调查工作。没有达成共识的路线。中共当局在提供数据方面设置重重阻力，也对卫生工作者施压；在全程监控下组织了一场新闻发布会，公布该团队的初步调查结果。最后，推动了中共关于疫情起源的原始说法：这是中共政权的宣传胜利。您们还觉得没有理由怀疑吗？华盛顿就有，而且不是令人不安的唐纳德·川普，而是接替他反面意识形态的接班人。
 
-**世卫组织反对武汉实验室是冠状病毒的源头的说法**
+**`火来战友推特大意`**
+*Sellin博士给出了中共释放病毒的三种可能状况：
+ 1 故意释放基因编辑改造过的冠状病毒 
+2 逆转冠状病毒疫苗，使疫苗致病 
+3 用冠状病毒测试疫苗效果，结果失败 这是“SIXTA”的研判结果吗？*
 
-作为研究团队成员，生态健康联盟（EHA）总裁—皮特·打杂客 (Peter Daszak)仍然警告媒体：“不要理会这些猜疑”。他的理由很明显，因为打杂客不应该是调查员，而应该是被调查者。他加入世卫组织委员会是一个明显的信号。 作为EHA负责人的他与武汉实验室的关系可以追溯到很久以前。他是主要犯罪嫌疑人：石正丽(Zhengli Shi)，王林发(Linfa Wang)，拉尔夫·巴里奇(Ralph Baric) 的朋友和同事。他多年来为他们提供资金，并获得了由安东尼-S-福齐领导的全能尼雅德的支持，现在也受到怀疑。
 
-他为该组织的融资做出了多年贡献，并争取到了由安东尼福奇(Anthony S. Fauci)领导的国家过敏与传染病研究所的鼎力支持，今天福奇同样也受到质疑。从一开始，打杂客就精心策划了一场宣传行动，讨好科学精英们，以达到共谋的目的，并让那些每天被爆出的合理合法的证人证据禁声或消失。他无视一个科学家应有的严谨态度，用”阴谋论者”一词来污蔑对手，并设法在《柳叶刀》杂志的中共病毒委员会中找到一席之地，为联合国的“伟大复兴”提供建议。尽管最初遭到拒绝，但在中共疫情期间，他还为自己的项目争取到了新的资金。最后，他在本应调查他的世卫组织小组中也获得了一个调查员的职位。
+> 突然明白为什么中共国强制打疫苗…让所有老人打中国疫苗，是解决破产的养老金制度的好办法啊！ [https://t.co/lRA6M4PAU7](https://t.co/lRA6M4PAU7)
+> — 瞿水台 Qu Shuitai (@QuShuitai) [April 7, 2021](https://twitter.com/QuShuitai/status/1379880693526896649?ref_src=twsrc%5Etfw)
 
-**这份****在中共官员的****全权****指导****和****访问****下****得出的科学****专****家团队结论**
 
-面对类似狐狸照顾母鸡的场景，不少西班牙媒体不自觉的扮演着中共宣传代言人的角色，在不同的方向上犹豫不决，甚至偏离了关键引导的路线。这种缺乏判断力情况下，让我们普通的“好心人”陷入危险，对狡猾政权的行事方式一无所知。还表明，对于病毒学家闫丽梦等人的新的疫情审查制度，让表达异议和言论自由黯然失色。关于什么是骗局，从来没有过像这样多的骗局。
+**`瞿水台推特`**
+*突然明白为什么中共国强制打疫苗…让所有老人打中国疫苗，是解决破产的养老金制度的好办法啊*
 
-即使在不知不觉中，西班牙也在输入 “中国制造 “的专制主义危险思想。而且，如果您们不相信我的话，可以关注一下（例如）最近政府吹鼓有关反对“虚假信息”的诉讼。
 
-编辑：Victor Torres；校对:阿伯塔 ；组稿：神奇四侠；发稿：信心的选择
+> 塞林博士：武毒所的危宏平是被断定的冠状病毒的＂零号病人＂黄艳玲的导师。他与中共军方有联系，包括拥有冠状病毒的备受怀疑的舟山蝙蝠冠状病毒骨干ZC45/ZXC21的解放军第三军医大学！[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/ipkHGPsoCX](https://t.co/ipkHGPsoCX)
+> — 花岗岩 (@graniteofstone) [April 8, 2021](https://twitter.com/graniteofstone/status/1380076724046557189?ref_src=twsrc%5Etfw)
 
-**原文链接:**[https://www.heraldo.es/noticias/opinion/2021/03/02/por-que-no-debemos-fiarnos-de-china-mar-llera-llorente-tribuna-1474766.html](https://www.heraldo.es/noticias/opinion/2021/03/02/por-que-no-debemos-fiarnos-de-china-mar-llera-llorente-tribuna-1474766.html)
+
+**`花岗岩推特`**
+塞林博士：武毒所的危宏平是被断定的冠状病毒的＂零号病人＂黄艳玲的导师。他与中共军方有联系，包括拥有冠状病毒的备受怀疑的舟山蝙蝠冠状病毒骨干ZC45/ZXC21的解放军第三军医大学
+
+
+> Part of my first anonymous revelation of PLA lab-origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) on 19 Jan, 2020, via LuDe Media (English subtitle [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw))
+> I explained to Mr. LuDe for 2 Ds, then he delivered the information in his style. 
+> China gov was forced to conduct a serial actions immediately. [https://t.co/NIUwR96AM8](https://t.co/NIUwR96AM8)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 8, 2021](https://twitter.com/DrLiMengYAN1/status/1380281553029373952?ref_src=twsrc%5Etfw)
+
+
+**`闫博士推特`**
+*认证火来战友的信息*
+
+
+> Dr. Tess Lawrie, Director of the Evidence-Based Medicine Consultancy Ltd., urges people across the world to take charge of their health— even as governments & health authorities ignore evidence showing that ivermectin effectively prevents & treats COVID-19. [#ivermectinSavesLives](https://twitter.com/hashtag/ivermectinSavesLives?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/PJl8G1C5BR](https://t.co/PJl8G1C5BR)
+> — Frontline Covid-19 Critical Care (@Covid19Critical) [April 8, 2021](https://twitter.com/Covid19Critical/status/1380113196992843779?ref_src=twsrc%5Etfw)
+
+
+**`一线重症中共病毒患者监护的推特`**
+*泰斯·劳丽博士可证医学咨询有限公司主任敦促世界各地的人们负责自己的健康——即使**政府和卫生当局**屏蔽了伊维菌素有效预防和治疗中共病毒的证据*
+
+
+> New research out of Switzerland: [pic.twitter.com/vQlL9gsyp4](https://t.co/vQlL9gsyp4)
+> — Dr. Brian Tyson, MD 🇺🇸 (@btysonmd) [April 7, 2021](https://twitter.com/btysonmd/status/1379855518974365697?ref_src=twsrc%5Etfw)
+
+
+**`布莱恩·泰森医学博士推特`**
+*瑞士的新研究图表可见：由于人们使用羟氯喹，导致死亡人数降低三倍，效果明显*
+
+
+> The stopping of HCQ caused increase in death. It is a delayed response. Then the restart of HCQ caused the death rate to go back down.
+> — Dr. Brian Tyson, MD 🇺🇸 (@btysonmd) [April 7, 2021](https://twitter.com/btysonmd/status/1379857273992871936?ref_src=twsrc%5Etfw)
+
+
+**`布莱恩·泰森推特`**
+*HCQ的停止使用导致死亡人数增加。这是一个延迟响应。然后HCQ的重新使用导致死亡率下降*
+
+
+> COVID scandal: Feds ignored 2016 law requiring use of real world evidence [https://t.co/CySlfpqkMp](https://t.co/CySlfpqkMp)
+> — AssocAmerPhys&Surg (@AAPSonline) [April 7, 2021](https://twitter.com/AAPSonline/status/1379876169672101892?ref_src=twsrc%5Etfw)
+
+
+**`私人医生的声音`**
+*中共病毒丑闻：美联储无视2016年要求使用真实世界证据的法律。附极右翼《WND》的**`新闻链接`***：
+*福奇和政府的无视真实数据和法律，这造成了美国人无法使用爆料革命最先推荐的预防中共病毒药物*
+
+
+
 
 +1

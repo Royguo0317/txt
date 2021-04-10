@@ -1,89 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日新闻收集【4/9】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1070521/)
+## 【战友心声】我们当帮助教会，躲过面前的大坑
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1070724/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
-
-中共病毒推特信息分享
+作者：纽约香草山福音部 武装的羔羊
 
 
 
-> Sellin博士给出了中共释放病毒的三种可能状况：
-> 1 故意释放基因编辑改造过的冠状病毒
-> 2 逆转冠状病毒疫苗，使疫苗致病
-> 3 用冠状病毒测试疫苗效果，结果失败
-> 这是“SIXTA”的研判结果吗？乖乖啊😱 [https://t.co/DK8Xh4fcTX](https://t.co/DK8Xh4fcTX)
-> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [April 9, 2021](https://twitter.com/jsdfposjpqyuee1/status/1380402354168623104?ref_src=twsrc%5Etfw)
-
-
-**`火来战友推特大意`**
-*Sellin博士给出了中共释放病毒的三种可能状况：
- 1 故意释放基因编辑改造过的冠状病毒 
-2 逆转冠状病毒疫苗，使疫苗致病 
-3 用冠状病毒测试疫苗效果，结果失败 这是“SIXTA”的研判结果吗？*
-
-
-> 突然明白为什么中共国强制打疫苗…让所有老人打中国疫苗，是解决破产的养老金制度的好办法啊！ [https://t.co/lRA6M4PAU7](https://t.co/lRA6M4PAU7)
-> — 瞿水台 Qu Shuitai (@QuShuitai) [April 7, 2021](https://twitter.com/QuShuitai/status/1379880693526896649?ref_src=twsrc%5Etfw)
-
-
-**`瞿水台推特`**
-*突然明白为什么中共国强制打疫苗…让所有老人打中国疫苗，是解决破产的养老金制度的好办法啊*
-
-
-> 塞林博士：武毒所的危宏平是被断定的冠状病毒的＂零号病人＂黄艳玲的导师。他与中共军方有联系，包括拥有冠状病毒的备受怀疑的舟山蝙蝠冠状病毒骨干ZC45/ZXC21的解放军第三军医大学！[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/ipkHGPsoCX](https://t.co/ipkHGPsoCX)
-> — 花岗岩 (@graniteofstone) [April 8, 2021](https://twitter.com/graniteofstone/status/1380076724046557189?ref_src=twsrc%5Etfw)
-
-
-**`花岗岩推特`**
-塞林博士：武毒所的危宏平是被断定的冠状病毒的＂零号病人＂黄艳玲的导师。他与中共军方有联系，包括拥有冠状病毒的备受怀疑的舟山蝙蝠冠状病毒骨干ZC45/ZXC21的解放军第三军医大学
-
-
-> Part of my first anonymous revelation of PLA lab-origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) on 19 Jan, 2020, via LuDe Media (English subtitle [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw))
-> I explained to Mr. LuDe for 2 Ds, then he delivered the information in his style. 
-> China gov was forced to conduct a serial actions immediately. [https://t.co/NIUwR96AM8](https://t.co/NIUwR96AM8)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 8, 2021](https://twitter.com/DrLiMengYAN1/status/1380281553029373952?ref_src=twsrc%5Etfw)
-
-
-**`闫博士推特`**
-*认证火来战友的信息*
-
-
-> Dr. Tess Lawrie, Director of the Evidence-Based Medicine Consultancy Ltd., urges people across the world to take charge of their health— even as governments & health authorities ignore evidence showing that ivermectin effectively prevents & treats COVID-19. [#ivermectinSavesLives](https://twitter.com/hashtag/ivermectinSavesLives?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/PJl8G1C5BR](https://t.co/PJl8G1C5BR)
-> — Frontline Covid-19 Critical Care (@Covid19Critical) [April 8, 2021](https://twitter.com/Covid19Critical/status/1380113196992843779?ref_src=twsrc%5Etfw)
-
-
-**`一线重症中共病毒患者监护的推特`**
-*泰斯·劳丽博士可证医学咨询有限公司主任敦促世界各地的人们负责自己的健康——即使**政府和卫生当局**屏蔽了伊维菌素有效预防和治疗中共病毒的证据*
-
-
-> New research out of Switzerland: [pic.twitter.com/vQlL9gsyp4](https://t.co/vQlL9gsyp4)
-> — Dr. Brian Tyson, MD 🇺🇸 (@btysonmd) [April 7, 2021](https://twitter.com/btysonmd/status/1379855518974365697?ref_src=twsrc%5Etfw)
-
-
-**`布莱恩·泰森医学博士推特`**
-*瑞士的新研究图表可见：由于人们使用羟氯喹，导致死亡人数降低三倍，效果明显*
-
-
-> The stopping of HCQ caused increase in death. It is a delayed response. Then the restart of HCQ caused the death rate to go back down.
-> — Dr. Brian Tyson, MD 🇺🇸 (@btysonmd) [April 7, 2021](https://twitter.com/btysonmd/status/1379857273992871936?ref_src=twsrc%5Etfw)
-
-
-**`布莱恩·泰森推特`**
-*HCQ的停止使用导致死亡人数增加。这是一个延迟响应。然后HCQ的重新使用导致死亡率下降*
-
-
-> COVID scandal: Feds ignored 2016 law requiring use of real world evidence [https://t.co/CySlfpqkMp](https://t.co/CySlfpqkMp)
-> — AssocAmerPhys&Surg (@AAPSonline) [April 7, 2021](https://twitter.com/AAPSonline/status/1379876169672101892?ref_src=twsrc%5Etfw)
-
-
-**`私人医生的声音`**
-*中共病毒丑闻：美联储无视2016年要求使用真实世界证据的法律。附极右翼《WND》的**`新闻链接`***：
-*福奇和政府的无视真实数据和法律，这造成了美国人无法使用爆料革命最先推荐的预防中共病毒药物*
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
+“现在强迫要打疫苗了；不打不让进市场买菜了；打了疫苗，就不怕病毒了。”
 
-+1
+昨晚刚和孩子们读完《圣经》，就收到上面的信息，是教会一位弟兄发来的。虽然并不是完全出乎意料，但也令我有一点点惊讶。从去年疫情开始，我就多次跟这位弟兄说，“这是共产党制造的生物武器，要吃羟氯喹和锌”——我还给了他羟氯喹——但他从来没有吃过。
+
+于是，我给他回复了以下信息：
+
+“这病毒是生物武器；你不是说你周围很安全吗？干嘛还要打疫苗？”
+
+然后，他回复我：
+
+“（生物武器说是）魔鬼撒旦的异端邪说；魔鬼到处欺骗基督徒，说不能打（疫苗）；我们这边的牧者都带头打了（疫苗），傻瓜才不打。”
+
+不打疫苗不让进市场买菜——这是近几天那个所谓的“五不”注意事项里的东西。此外，它还包括了不让坐公共交通工具，不让进超市、酒店，不让经营餐饮、酒店等，还影响子女上学什么的。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/73.jpg)图源网络
+
+这不禁让人想到《启示录》13章17节：“除了那受印记，有了兽名，或有兽名数目的，都不得做买卖。”
+
+这疫苗就是那个兽的印记吗？我不了解，但它绝对不是好东西。爆料革命战友们从一开始就知道，这个病毒是共产党在实验室中制造出来的生物武器。从闫博士那里，我们也知道，病毒有个ADE现象，会造成疫苗失效，甚至使人体遭受更大的伤害。倘若ADE的问题不解决，有效的疫苗从何而来呢？
+
+在我认识的人当中，从我好朋友（共产党员）的妻子，到我家族中的晚辈（医疗卫生行业），都有人打了疫苗。他们都说“是工作需要”，“是单位要求打的”。而且打了的人都觉得很幸运：有的告诉我说，我们中（共）国的疫苗没事；有的跟我说，“疫苗还是可以打滴”。
+
+无知太可怕了！
+
+更令我痛心的是，教会中的牧者也没有看到事实的真相，自己跳到坑里，也把弟兄姊妹也带到坑里了。
+
+“瞎子岂能领瞎子？两个人不是都要掉在坑里吗？”（路加福音6:39）
+
+那位弟兄没有告诉我，那个带头打疫苗的“牧者”是谁，所以，我不知道他是真基督徒，还是共匪潜伏到教会的假牧师。但只有两个可能：他要么是坏，要么就是无知。而无知的代价可能是一个人无法承受的。
+
+“我的民因无知识而灭亡……”（何西阿书 4:6）
+
+共产党是邪恶力量的彰显，它在地上行偷窃、杀害、毁坏之事，他们欺骗再欺骗，骗了70多年了。中共年复一年的洗脑，加上恐吓和利诱，民众基本的判断力都快被磨灭了——不论是教会内的人，还是教会外的人。
+
+爆料革命战友是先觉醒的，我们已经知道了事实的真相，我们的眼睛已经打开，已经看到了真相的光芒，不再是瞎子。而我们当中的基督徒弟兄姊妹，是有双重身份的人，有更多的责任去唤醒身边的教会，帮助教会躲过病毒和疫苗这些大坑。
+
+“人被拉到死地，你要解救；人将被杀，你须拦阻。你若说‘这事我未曾知道’，那衡量人心的岂不明白吗？保守你命的岂不知道吗？他岂不按各人所行的报应各人吗？”（箴言24:11-12）
+
+（本文观点仅代表作者）
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
+
+0
