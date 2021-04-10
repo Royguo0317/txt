@@ -1,75 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《纽约时报》记者“舔共”被曝光后 删除所有推文
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1072711/)
+## 菲律宾强烈抗议中共武装船只入侵
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1072783/)
 
-新闻来源： The National Pulse《国家脉动》| 作者：Natalie Winters （娜塔莉·温特斯）| 发布时间：2021年4月9日
-翻译/简评：文明明 | 校对/审核：万人往 | Page：小雨
-[!\[\]()!\[\](https://spark.adobe.com/page/ssMT9bIQXSzeI/images/343ac8f0-2bd2-487c-a0ca-6838a92b9627.jpg?asset_id=882993d1-5f22-4ad4-92f9-4cd1698e101c&amp;img_etag=%22757a53c475985f911835396753568809%22&amp;size=1024)](https://spark.adobe.com/page/ssMT9bIQXSzeI/images/343ac8f0-2bd2-487c-a0ca-6838a92b9627.jpg?asset_id=882993d1-5f22-4ad4-92f9-4cd1698e101c&amp;img_etag=%22757a53c475985f911835396753568809%22&amp;size=1024)
-**简评：**
+#### 翻译：Kal | 校对：人间四月
+![]()![](https://gnews.org/wp-content/uploads/2021/04/kal.jpg)图片来源：RFA
+据菲律宾《问询报》（Inquirer）4月7日报道，菲律宾对中共武装船只持续出现在其领海提出外交抗议。
 
-《纽约时报》的摄影总监和视觉记者、中共国官方媒体《中国日报》的前创意总监和自由撰稿人乔纳•凯塞尔在《国家脉动》曝光了他以往的推文后，删除了所有的推文。在这些被删除的推文中，凯塞尔多次承认他在为中共“工作”，由中共政府支付报酬。
+中共国外交部发言人表示，中共国“没有计划”在朱利安·费利佩(Julian Felipe)礁 （也称牛轭礁）“永久存在”，并补充说菲律宾应立即停止对该问题的“肆意炒作”。
 
-从他删推的举动来看，说明目前世界上的反共阵营正在发展壮大，越来越多的人意识到中共的危害。这些“洋五毛”也已经认识到自己过去沾沾自喜的“跪舔”已是不光彩的历史，做贼心虚地想要抹去证据。无论这些“洋五毛”是真觉醒，还是权宜之计，反共灭共之势已是无人可挡。
+周三开始，菲律宾对中共国船只继续出现在西菲律宾海礁提出每日外交抗议。菲律宾早些时候声称，该礁在菲律宾专属经济区(EEZ)范围内，要求中共将其在该地区的渔船和海上设施撤出，否则将面临“每天拖延”撤船的外交抗议。
 
-**原文翻译：**
+中共国外交部发言人赵立坚在4月6日周二的例行新闻发布会上表示中共国没有计划在该礁“永久存在”。然而，赵立坚认为该礁是南沙群岛的一部分，南沙群岛是中共政府于2020年在南海建立的两个行政区域之一。
 
-## 《国家脉动》挖出了一名《纽约时报》记者承认为中共“工作”的帖子后，这名记者删除了他所有的推文
+赵立坚说朱利安·费利佩礁及其周围海域一直是中共国渔民的重要渔场和庇护所。在恶劣的海况下，中共国渔船在这片水域捕鱼和避风是完全正常的。中共国渔船在有关海域作业和避风是上千年的惯例。不知道为什么有关方面称中共国渔民为“海上民兵”。这显示了别有用心的恶意。他还指责菲律宾企图利用他所说的“非法、无效的裁决否定中共国的主权和权益”。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ssMT9bIQXSzeI/images/35c7c0cb-6d26-4fbc-b7a8-aeddae9b0884.jpg?asset_id=5473a1d8-264c-46ab-9b9a-68144b7689f2&amp;img_etag=%22c66d994563ce116f6808d6eca6d0a1d3%22&amp;size=1024)](https://spark.adobe.com/page/ssMT9bIQXSzeI/images/35c7c0cb-6d26-4fbc-b7a8-aeddae9b0884.jpg?asset_id=5473a1d8-264c-46ab-9b9a-68144b7689f2&amp;img_etag=%22c66d994563ce116f6808d6eca6d0a1d3%22&amp;size=1024)
+他指的裁决就是2016年7月常设仲裁法院做出的有利于菲律宾的裁决。该裁决否定了中共国对包括西菲律宾海在内的南中国海扩张性的九段线主张。
 
-**《纽约时报》的摄影总监和视觉记者在《国家脉冲》曝光了他以往承认为中共“工作”的帖子后，删除了他所有的推文。**
+赵立坚说，菲律宾正在利用这个裁决来“否定中共国渔民在南沙群岛传统渔场的捕鱼历史和权利，这些历史和权利已经延续了长达千年之久。”“这违反了包括《联合国宪章》和《联合国海洋法公约》在内的国际法。这是完全不能接受的。”
 
-凯塞尔（Kessel）是中共国官方媒体《中国日报》（China Daily）的前创意总监和自由撰稿人，他拥有一些包括中共国信息部在内的客户。他还坚称为共产主义“政权”工作是有好处的。
+“我们希望菲方客观、正确看待此事，立即停止肆意炒作，避免给两国关系和南海整体和平稳定造成负面影响，”他补充说。
 
-截至2020年末，凯塞尔在推特上拥有超过23000个推文。但是，目前凯塞尔官方验证的帐户显示为“0条推文”。
+菲律宾外交部早些时候已经否认了中共国关于该礁是其“传统渔场”一部分的说法。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ssMT9bIQXSzeI/images/927d1250-c417-4490-b0fd-a65574538788.png?asset_id=3fd8687d-8c74-4a5a-89df-bebc12b1c903&amp;img_etag=%22fd868f025e0699e3d8c9d82829a61be5%22&amp;size=2560)](https://spark.adobe.com/page/ssMT9bIQXSzeI/images/927d1250-c417-4490-b0fd-a65574538788.png?asset_id=3fd8687d-8c74-4a5a-89df-bebc12b1c903&amp;img_etag=%22fd868f025e0699e3d8c9d82829a61be5%22&amp;size=1024)
+在4月5日的一份声明中，菲律宾外交部援引2016年的仲裁裁决称:“无论是否被视为传统捕鱼，传统都要服从法律。”
 
-KESSEL’S ACCOUNT| 凯塞尔的推特账号：0推文。《纽约时报》的摄影总监和视觉记者。我制作解析和调查性的记录短片，以及有创意的视觉新闻。
+美国国务院指出:“菲律宾共和国和中共国都是《联合国海洋法公约》的缔约方，以及2016年7月12日在南海仲裁案中作出的具有约束力的最终裁决，显然是适用于这种情况的唯一准则。”这一裁决“最终解决了南海的历史性权利和海洋权益问题。”
 
-《国家脉动》已将这些删除的推文存档。在这些已删除的推文中，凯塞尔称自己对重新设计《中国日报》而感到“兴奋”。
+评：自2016年杜特尔特上任菲律宾总统以来，在利益驱使之下，基本倒向中共一方，偶尔因南海问题出现争端，但会很快平息。同时，近5年来菲律宾持续从中共国拿到各种好处。此次中共主动挑起武装船只入侵菲律宾领海事件，持续在南海制造事端，似乎与“伸手”缅甸和台湾等遥相呼应，并有意加剧东南亚局势紧张，中共葫芦里卖什么药，目前还不得而知，只能静观其变。
 
-凯塞尔在为《中国日报》工作期间，曾多次发推文提到他在为中共“工作”，并从中共那里“获得报酬”。
+原文链接：[stop-wanton-hype-up-china-says-no-plan-to-keep-permanent-presence-in-wps-reef](https://globalnation.inquirer.net/194954/stop-wanton-hype-up-china-says-no-plan-to-keep-permanent-presence-in-wps-reef)
 
-他在2010年7月发推说：“为中共国工作有时候有它的好处。”
-
-2009年11月，他在推特上写道：“你知道你在为中共国工作时，当被问到如何描述你的工作场所时，你想到的第一个单词就是——和谐。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/ssMT9bIQXSzeI/images/cc71ddc5-4c08-45d3-95e0-32889b2097cc.jpg?asset_id=f5f49639-ec9c-4d0e-be14-307f9611a5e8&amp;img_etag=%226d4274dd1b2dc75e7ef6dbe559b610d8%22&amp;size=2560)](https://spark.adobe.com/page/ssMT9bIQXSzeI/images/cc71ddc5-4c08-45d3-95e0-32889b2097cc.jpg?asset_id=f5f49639-ec9c-4d0e-be14-307f9611a5e8&amp;img_etag=%226d4274dd1b2dc75e7ef6dbe559b610d8%22&amp;size=1024)
-
-NOW-DELETED TWEETS. 已删的推文
-
-*2010年7月26日推文：*
-
-*@landay 不，正在北京，4天紧急加班。为中共国工作有时候有它的好处:)*
-
-*2009年11月25日推文：*
-
-*我不记得何时将自己签给中共国作为“包身工”，但是，似乎这事正在发生…*
-
-*2009年11月1日推文：*
-
-*@Mkinsella 不，现在是由中共国政府给我报酬，是人民币，事实上可以折算成6800（美元）*
-
-*2009年11月26日推文：*
-
-*你知道你在为中共国工作时，当被问到如何描述你的工作场所时，你想到的第一个单词就是“和谐”*
-
-凯塞尔还赞扬了中共国的“国庆”假期，将中共的建政称为“非常酷”。
-
-🔗[原文链接](https://thenationalpulse.com/breaking/nyt-journo-erases-twitter-after-national-pulse-report/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/ssMT9bIQXSzeI/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/ssMT9bIQXSzeI/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
-
-
-
-+1
+0
