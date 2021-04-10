@@ -1,48 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 乔治亚州的新投票法一石掀起巨浪
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1071191/)
+## 【香草诗词汇】UP TO YOU
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1071353/)
 
-撰稿：Jenny
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-127.png)（民众响应川普的号召拒买可口可乐产品，推特截图）
-（民众响应川普的号召拒买可口可乐产品，推特截图）
+作者：纽约香草山健身部 回响
 
-上周包括可口可乐，微软公司，美国职棒大联盟，达美航空等超过200多家的美国大型公司都纷纷反对《乔治亚周的新投票法》，一石激起千层浪，已成为美国政治民生关注的焦点，由此对经济产生的巨大影响将无法估量。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-9.jpeg)
 
-周五，川普发了一份最新声明，他认为乔治亚州的选举改革法过于软弱无力，无法确保真正的投票完整性！
 
-顿时间，令这个共和党为首发起的新法案左右不讨好。
 
-同时川普指出  “选举日应该是选举日，而不是选举周或选举月。”
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片36-1.png)图片来源：http://m.tooopen.com/view/1107718.html
 
-他继续解释说：“有太多的日子可以投票。”  “在很长的一段时间内，可能会发生太多的“恶作剧”。 而您已在2020年总统大选中看到了这一切。
+生如蝼蚁？
+或立地顶天？
+UP TO YOU
+UP TO ACTION.
 
-同时他还表示“州长布兰·肯普（Brian Kemp）和佐治亚州国务卿应完全取消那些广泛的大规模邮寄投票，拆除那些危险和不安全的投递箱，并应保留和扩展签名验证以与历史选民档案进行比对 ， 除其他事项外！
+看叶简明、肖建华，看王健
+看多少个沉浮如梦如幻如露又如电
 
-最后他认为肯普州长屈服于激进的左翼“唤醒暴民”，因为后者威胁说如果他摆脱周末投票，就称他为种族主义者。尽管他做了妥协让步，但他们仍然称他为种族主义者！
+UP TO YOU
+UP TO ACTION.
+生如蝼蚁，
+或立地顶天？
 
-自乔治亚洲的新投票法案通过后
+看哪一个地方一家店就卖出的160万余骨灰盒
+看多少国、多少家，连所谓官方数字都列不进去的病毒死难
+看那些被小白鼠的所谓“疫苗”接种者
+生如蝼蚁？
+或蝼蚁不如？！
+UP TO YOU
+UP TO ACTION.
 
-美国职业棒球大联盟MLB宣布，为了回应乔治亚州的新投票法，联盟将把2021年全明星赛和选拔赛迁出亚特兰大，新的主办城市还在确定中，但预计将造成亚特兰大市相当大的经济损失。
+看七哥、看东哥, 看Dr. Limeng Yan
+看多少次被倾国迫害污蔑，无所不用其极且欲除之而后快的艰险
 
-前总统奥巴马周六发文祝贺大联盟”代表所有公民支持投票权的立场”。
+生如蝼蚁，
+或立地顶天？
+UP TO YOU
+UP TO ACTION.
 
-现任总统拜登则将乔治亚州的新法律称为“对宪法的攻击”，“是21世纪的种族隔离，必须停止”
+看农场看联盟看战友千万万
+痛斥伪国使馆、惩贼灭贼力挺正义灭共、SEC前再不畏惧强权
+传播香港危机传播病毒真相狠扒邪恶画皮嘴脸
+香港圣城，精神永传，新中国联邦人重树尊严
 
-而川普则呼吁抵制联赛，微软，拒买可口可乐产品，还号召支持者抵制更多对乔州新选举法提出批评的公司。
+UP TO YOU
+UP TO ACTION.
+生如蝼蚁？
+或立地顶天！
 
-(本文仅代表作者个人观点)
+校对/发稿：飞虹
 
-编辑：文远Bruce
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2.jpg)
 
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
 
-【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
-【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
 
-部分翻译链接：
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-[https://www.newsview.gr/2021/04/president-trump-blasts-new-election-law-slams-governor-kemp.html?m=1](https://www.newsview.gr/2021/04/president-trump-blasts-new-election-law-slams-governor-kemp.html?m=1)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
 0

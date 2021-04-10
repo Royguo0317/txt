@@ -1,110 +1,89 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 灵魂拷问
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1070418/)
+## 每日新闻收集【4/9】
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1070521/)
 
-俄罗斯莫斯科喀秋莎农场 小蚂蚁的自由
+**西班牙巴塞罗那喜悦农场** wenwu
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-7.jpg)俄罗斯莫斯科喀秋莎农场原创
-**灵魂拷问 **
+中共病毒推特信息分享
 
-全世界终于
-联合起来
-对共产党
-开始了灵魂拷问
-病毒从哪里来
-你回答呀
-共产党
-病毒从哪里来
-动物们依然喊着
-比窦娥还冤
-武汉的海鲜市场
-至今含着冤
-还有几百万的冤魂
-他们的家人
-依然在哭地喊天
-他们究竟得罪了谁
-要受此伤害
-那世卫组织的掩盖
-魔鬼的秘密约定
-在阳光下
-缩头缩尾
-你倒是回答呀共产党
-病毒从哪里来
-你不回答
-可是
-答案早就注定
-在你们打开潘多拉盒子的那一天
-无论撒了多少次谎
-一次唯真不破
-就破了所有的谎言
-即便你不说话
-注定真相只有一个
-颤抖吧
-恶魔
-你可听见集结号的声音
-忏悔吧
-恶魔
-为你的轮回留有一线生机
-地狱的大门
-已经敞开
 
-**魔鬼的眼睛 **
 
-魔鬼的眼睛
-紧紧盯紧
-每一个
-皮肉尚存的人
-即便已经骨瘦如柴
-也不会放过
-因为
-给他们输血的胖子们
-已经所剩无几
+> Sellin博士给出了中共释放病毒的三种可能状况：
+> 1 故意释放基因编辑改造过的冠状病毒
+> 2 逆转冠状病毒疫苗，使疫苗致病
+> 3 用冠状病毒测试疫苗效果，结果失败
+> 这是“SIXTA”的研判结果吗？乖乖啊😱 [https://t.co/DK8Xh4fcTX](https://t.co/DK8Xh4fcTX)
+> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [April 9, 2021](https://twitter.com/jsdfposjpqyuee1/status/1380402354168623104?ref_src=twsrc%5Etfw)
 
-可是
-骨瘦如柴的你们
-还不想反抗
-是否
-依然在期待
-魔鬼会仁慈
-或许
-会放过你
 
-天真的你们啊
-是有多么愚昧
-才会相信
-魔鬼会仁慈
-你可知道
-撒谎 欺骗 口蜜腹剑
-才是魔鬼的本性
-你却要幻想
-魔鬼偶尔会做人
-错了
+**`火来战友推特大意`**
+*Sellin博士给出了中共释放病毒的三种可能状况：
+ 1 故意释放基因编辑改造过的冠状病毒 
+2 逆转冠状病毒疫苗，使疫苗致病 
+3 用冠状病毒测试疫苗效果，结果失败 这是“SIXTA”的研判结果吗？*
 
-错了
-魔鬼只会披上人形外衣
-蒙蔽你
-直到把你的最后一滴血吸干
-就会把吸管
-对准你的后代
 
-所以啊
-韭菜们
-哦
-不
-输血包们
-你们还不反抗
-难道
-你们真地愿意看到
-你们的命运
-被后代们可悲地重复
-魔鬼的眼睛
-早已紧紧盯上了
-你们的后代
-和
-后代的后代
-和后代
+> 突然明白为什么中共国强制打疫苗…让所有老人打中国疫苗，是解决破产的养老金制度的好办法啊！ [https://t.co/lRA6M4PAU7](https://t.co/lRA6M4PAU7)
+> — 瞿水台 Qu Shuitai (@QuShuitai) [April 7, 2021](https://twitter.com/QuShuitai/status/1379880693526896649?ref_src=twsrc%5Etfw)
 
-0
+
+**`瞿水台推特`**
+*突然明白为什么中共国强制打疫苗…让所有老人打中国疫苗，是解决破产的养老金制度的好办法啊*
+
+
+> 塞林博士：武毒所的危宏平是被断定的冠状病毒的＂零号病人＂黄艳玲的导师。他与中共军方有联系，包括拥有冠状病毒的备受怀疑的舟山蝙蝠冠状病毒骨干ZC45/ZXC21的解放军第三军医大学！[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/ipkHGPsoCX](https://t.co/ipkHGPsoCX)
+> — 花岗岩 (@graniteofstone) [April 8, 2021](https://twitter.com/graniteofstone/status/1380076724046557189?ref_src=twsrc%5Etfw)
+
+
+**`花岗岩推特`**
+塞林博士：武毒所的危宏平是被断定的冠状病毒的＂零号病人＂黄艳玲的导师。他与中共军方有联系，包括拥有冠状病毒的备受怀疑的舟山蝙蝠冠状病毒骨干ZC45/ZXC21的解放军第三军医大学
+
+
+> Part of my first anonymous revelation of PLA lab-origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) on 19 Jan, 2020, via LuDe Media (English subtitle [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw))
+> I explained to Mr. LuDe for 2 Ds, then he delivered the information in his style. 
+> China gov was forced to conduct a serial actions immediately. [https://t.co/NIUwR96AM8](https://t.co/NIUwR96AM8)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 8, 2021](https://twitter.com/DrLiMengYAN1/status/1380281553029373952?ref_src=twsrc%5Etfw)
+
+
+**`闫博士推特`**
+*认证火来战友的信息*
+
+
+> Dr. Tess Lawrie, Director of the Evidence-Based Medicine Consultancy Ltd., urges people across the world to take charge of their health— even as governments & health authorities ignore evidence showing that ivermectin effectively prevents & treats COVID-19. [#ivermectinSavesLives](https://twitter.com/hashtag/ivermectinSavesLives?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/PJl8G1C5BR](https://t.co/PJl8G1C5BR)
+> — Frontline Covid-19 Critical Care (@Covid19Critical) [April 8, 2021](https://twitter.com/Covid19Critical/status/1380113196992843779?ref_src=twsrc%5Etfw)
+
+
+**`一线重症中共病毒患者监护的推特`**
+*泰斯·劳丽博士可证医学咨询有限公司主任敦促世界各地的人们负责自己的健康——即使**政府和卫生当局**屏蔽了伊维菌素有效预防和治疗中共病毒的证据*
+
+
+> New research out of Switzerland: [pic.twitter.com/vQlL9gsyp4](https://t.co/vQlL9gsyp4)
+> — Dr. Brian Tyson, MD 🇺🇸 (@btysonmd) [April 7, 2021](https://twitter.com/btysonmd/status/1379855518974365697?ref_src=twsrc%5Etfw)
+
+
+**`布莱恩·泰森医学博士推特`**
+*瑞士的新研究图表可见：由于人们使用羟氯喹，导致死亡人数降低三倍，效果明显*
+
+
+> The stopping of HCQ caused increase in death. It is a delayed response. Then the restart of HCQ caused the death rate to go back down.
+> — Dr. Brian Tyson, MD 🇺🇸 (@btysonmd) [April 7, 2021](https://twitter.com/btysonmd/status/1379857273992871936?ref_src=twsrc%5Etfw)
+
+
+**`布莱恩·泰森推特`**
+*HCQ的停止使用导致死亡人数增加。这是一个延迟响应。然后HCQ的重新使用导致死亡率下降*
+
+
+> COVID scandal: Feds ignored 2016 law requiring use of real world evidence [https://t.co/CySlfpqkMp](https://t.co/CySlfpqkMp)
+> — AssocAmerPhys&Surg (@AAPSonline) [April 7, 2021](https://twitter.com/AAPSonline/status/1379876169672101892?ref_src=twsrc%5Etfw)
+
+
+**`私人医生的声音`**
+*中共病毒丑闻：美联储无视2016年要求使用真实世界证据的法律。附极右翼《WND》的**`新闻链接`***：
+*福奇和政府的无视真实数据和法律，这造成了美国人无法使用爆料革命最先推荐的预防中共病毒药物*
+
+
+
+
++1

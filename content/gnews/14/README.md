@@ -1,23 +1,139 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中国联邦人新形象
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1071094/)
+## 【路德时评摘要】4.7.2021PM-拜登新闻会上表示他尚未和习近平谈过意味着什么？
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1071127/)
 
-作者：洛杉矶天使农场-Nio
-校对：洛杉矶天使农场-火枪手
-审核：洛杉矶天使农场-V
-![]()![](https://gnews.org/wp-content/uploads/2021/04/xwz.jpg)GTV投资者抗议美国SEC现场
-看到新中国联邦人为了维护自己的权利抗议美国证券管理委员会（SEC）和中共勾结非法的对待GTV投资者的游行非常激动，自己不能亲临现场感受那种维护权利的氛围很是遗憾。GTV投资者已经抗议连续五天，尽管昨天有雨大家还依然坚持，结果使SEC举报办主任迫于压力辞职。游行展现了我们新联邦中国人的勇气、追求正义、自信和阳光的形象。这也是新中国联邦人永不为奴的体现。新中国联邦人不再是中共国见官就怕、腿发软的中共国人形象。
+视频剪辑 : Ablec(文A)、
+中听校： 洛杉矶天使农场 – 烟波浩淼
+英翻译：洛杉矶天使农场 – 飞利普
+英校对：洛杉矶天使农场 – 烟波浩淼
+字幕+视频制作：意大利达芬奇农场 – 紫苏花生
 
-今天听郭先生说的一个人最重要的品质是勇气，这一点我非常有共鸣，几年前在中共国微信群讨论人的品质，我就说人最重要的品质就是勇气，无论男女。很多人不以为然，因为中共国受到几千年的帝王独裁思想的影响，见官喜欢下跪，尤其是近七十年在中共这个邪魔蹂躏之下，中共国多数有勇气的人已经被中共从身体上和精神上消灭殆尽，中共把奴民五术用得炉火纯青，所以很多人都不知道勇气为何物，见了当官的就产生畏惧心理，当官的说啥是啥，根本不知道当官的是为民众服务的，长此以往，把中共养成了一个想杀死全人类的大恶魔。
+**博博士
+Dr. Bo**
+拜登说这个话的目的意思其实非常的绝决
+The purpose and meaning of what Biden said is absolutely decisive
 
-中共这个犯罪团伙在全世界代表中共国人在全世界到处假骗偷，这些中共国的官员和很多与中共有密切关系的人在西方国家与人接触吃人家福利，占小便宜，随地扔垃圾，随地吐痰，对他人漠不关心，极度自私自利，一脸苦大仇深的表情和西方人不理解的行为方式，最近爆出中共官员杨洁篪夫妇美国社安号存在造假的嫌疑，这样一群中共官员代表中共国人在西方出入，和各国领导人交流，西方国家人怎么看待中共国国民呢？就像郭先生说的，就连班农先生在不认识郭先生之前都以为中共国人全是共产党员，全是中共官员那种假骗偷的猥琐形象。爆料革命把中共和中国人分开是多么大的功绩，对于扭转西方人对我们新联邦中国人的看法起了决定性的作用。很多西方人不把中共和中国人混为一谈。
+这里面有两层意思
+There are two meanings in it
 
-如今，我们新中国联邦人展现出有勇气、追求正义、执着的信仰、追求属于我们的权利和尊严形象。我们GTV的投资者投资的是信仰，这个媒体是独立的媒体，不畏强权，报道真实的事件，反映的是新联邦人的风貌。所有G系列的投资都是摧毁中共的强有力的武器，所以中共对美国证券管理委员会施压来破坏我们的投资。这说明中共多么惧怕我们！我们新联邦人生活在没有中共的日子是富足有尊严的，这也是中共最怕的结果。
+第一这个事情他还没有跟习提，还不能跟习提
+First, he hasn’t mentioned it to Xi, and he can’t mention it to Xi yet
 
-没有中共我们才能过上体面、富足、安全、有尊严的生活。新中国联邦人是有勇气、有正义、有担当的人群，是自尊尊他、自爱爱他、自强强人的世界公民。新中国联邦人永不为奴！
+因为一旦提了的话
+Because once it is mentioned
 
-【文章仅代表作者本人观点】
+按照现在美国所掌握的情报，所掌握的信息
+according to the intelligence and information now possessed by the United States
+
+这个提的话那就是摊牌，这是一
+It is a showdown. This is first one
+
+第二就是美国已经对跟中共继续玩这种游戏已经兴趣不大了
+The second is that the U.S. is not quite interested in playing this game with the CCP
+
+对中共来说其实更加的危险
+Actually, it is more dangerous for the CCP
+
+为什么，我们上一次在节目里说过
+Why? We said in the previous program
+
+上次WHO到中国去，然后搞成那样一个政治秀
+the WHO was in China last time, it turned into such a political show
+
+到最后 出了一篇屎一样的报告
+and in the end, released with a report like shit
+
+其实当时是国际社会
+Actually, at that time, it was the international community
+
+以美国为主正义力量
+mainly the United States as the main justice force
+
+给中共最后一次机会
+that gave the CCP one last chance
+
+如果在这次里面你能够起码认个错
+If CCP can at least admit the mistake this time
+
+起码能够把自己的责任稍微地揽到自己身上一点
+take their responsibility a little bit to themselves
+
+能够做出一个负责任的大国的样子，这件事情咱们还好说
+and act like a big responsible nation, then there is still chance to talk
+
+这次以后，完完全全中共还是继续各种各样的撒泼
+After this time, the CCP continued to be shrewish
+
+各种各样的脏水往外泼，往美国身上泼
+and pour all kinds of dirty words on the United States
+
+所以东西都往外
+So all issues belong to someone else
+
+把自己的责任推得一干二净
+push themselves all the responsibilities away clearly
+
+但我觉得还有一层原因就是说
+But I think another reason is that
+
+美国现在已经对于跟中共继续玩这种文字游戏
+the United States is not much interested in continuing this kind of wordplay and game
+
+口炮游戏没有多大兴趣了，脱钩又往前进了一步
+of invectives with CCP now， so the decoupling is one step forward
+
+**胡博士
+Dr. Hu**
+新疆还有病毒的事情加到一起
+Plus the issues of Xinjiang and viruses together
+早已经改变了背后的深邃
+that has already changed the depth behind it
+
+表面上，我们看到的湖面是平静的
+On the surface, the lake we see is calm
+
+底下早已掀起了滔天巨浪
+while there are already monstrous waves underneath.
+
+我们根本没有看到，已经都闹到了分手的边沿了
+Although we don’t see them at all, yet they are already on the edge of breaking up
+
+这个时候竟然还想挽回
+At this time, they even want to redeem
+
+这个就是第一个给大家传递的一个信息
+this is a first message to be delivered to everybody
+
+我觉得非常明显
+I think it’s very obvious
+
+然后，咱先不说病毒的事
+Then, let’s not talk about the virus first
+
+光说新疆种族灭绝
+just talk about the genocide in Xinjiang
+
+在VOA里面， 不是别的自媒体
+It is VOA, and not the other self-media
+
+里面讲的新疆种族灭绝是被比作纳粹
+to address the genocide in Xinjiang was compared to Nazis
+
+也就是说现在公开就把这个说了
+In other words, it’s now talk about this publicly
+
+现在就是纳粹，你想 , 美国把这个东西比作纳粹
+Now, this is Nazis. You imagine, the United States compares this matter to Nazis
+
+德国对这件事多么敏感，
+How sensitive Germany is to this matter
+
+默克尔无论如何你都不敢跟纳粹合作
+Merkel, in any case, you don’t even dare to cooperate with the Nazis
+
+是不是这个道理？
+Doesn’t this make sense?
 
 0
