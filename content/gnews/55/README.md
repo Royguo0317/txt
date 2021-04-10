@@ -1,125 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.6.2021AM_布林肯：彻底和透明的调查这次病毒大流行的起源
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1070041/)
+## 喀秋莎新闻参考- 2021年4月8日(星期四)
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1070308/)
 
-视频剪辑 : Ablec(文A)
-中听校： 洛杉矶天使农场 – 烟波浩淼
-英翻译： 洛杉矶天使农场 – 烟波浩淼
-英翻译校对：洛杉矶天使农场 – 雨山溪桥客
-字幕+视频制作：意大利达芬奇农场 – 紫苏花生
+俄罗斯莫斯科喀秋莎农场 土星
 
-**路德**
-布林肯最重磅的最新讲话
-The most important latest speech from Antony Blinken
+编辑上传 星河
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片2-16.png)
+一、新中国联邦新闻
 
-说我们将继续推进彻底和透明的调查这次病毒大流行的起源
-He said, we are looking and pushing for complete and transparent investigation into origin of the pandemic
+1.“路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=ENlLLqCocIU)、[晚间](https://www.youtube.com/watch?v=UZ5TAJL8IXo)）:
 
-搞清楚到底发生了什么，从而避免任何生物威胁再次发生
-to learn what happened and so that the biological threat doesn’t happen again
+Ⅰ. Sellin博士4月8日再发重磅推：中共国武汉病毒学研究所研究员危宏平，他是中共病毒“零号感染者”黄燕玲的指导老师，并与中共军方有联系，其中包括第三军医大学提供的中共病毒骨架：ZC45或ZXC21病毒。
 
-否则我们将对不起我们的子孙后代
-Otherwise, we will badly let us future generations down
+Ⅱ. 《华盛顿时报》周一报导称，在当前的非法移民危机中，美国国土安全部部长亚历杭德罗·马约尔卡斯（Alejandro Mayorkas）正在考虑扩大现有的边境墙，可能要重启由前总统川普（Donald Trump）倡导并开始的边境墙建设。
 
-这是历史的关键时刻，我们要敢想，敢干
-This is critical moment, the time for us to think big and act boldly
+2. 美国商务部周四表示，正在将7家中共国超级计算实体列入美国经济黑名单，因为它们协助中共国的军事努力。商务部表示，这七家”涉及制造中共国军事行动者使用的超级计算机，这些计算机属于破坏稳定的军事现代化努力，和/或大规模杀伤性武器计划”。
 
-美国将直面挑战
-And the United States will face the challenge
+3. 据中共媒体周四报导，武汉海鲜市场预计将被拆除，在2019年年底的疫情爆发初期，许多人被证实感染了中共冠状病毒。外交专家表示，这一可能的举动将引起国际社会的批评，可能会认为这是中共政府试图阻挠其他国家确定中共病毒来源的努力。
 
-前段时间布林肯接受采访的时候
-When Blinken was interviewed some time ago
+4. 美国周三警告中共，不要针对菲律宾和台湾采取日益激进的举动，提醒北京注意华盛顿对其伙伴的义务。国务院发言人内德·普莱斯对记者说：“对包括南中国海在内的太平洋地区的菲律宾武装部队，公共船只或飞机的武装袭击，将触发我们根据《美菲相互防卫条约》承担的义务。”
 
-说我们要预防第二次以及未来生物威胁
-He said that we have to prevent the second time as well as the future biological threat
+5. 众议员斯科特·佩里周四在接受Breitbart新闻专访时表示，美国总统拜登的基建计划相当于 “中共国优先政策”，也无法振兴美国日益减少的基础设施。
 
-我们当时说了，为什么要预防第二次?
-We (Lude Media) said at that time, why do they have to prevent the second time?
+6. 美国参议院外交关系委员会的领导人周四提出立法，通过促进人权、提供安全援助和打击虚假信息来提高国家反击中共扩大全球影响力的能力。
 
-就是，先做好防守
-which is, make the defense first
+7. 美国国务院周四淡化了对华盛顿和德黑兰如何恢复遵守2015年伊朗核协议会谈的预期，并表示美国特使很可能在周末会谈休息时回国。
 
-因为美国已经意识到这就是中共的生物威胁
-Because the United States has realized that this is the biological threat of the CCP
+8. 美国国务院在一份声明中表示，美国国务卿安东尼·布林肯和菲律宾外交部长特奥多罗·洛克辛周四在电话中表达了他们对中共国民兵舰艇在南中国海的共同关切。
 
-布林肯这个词不是一个中性词，生物威胁恐怖主义
-The word, biological threat terrorism, that Brinken used is not a neutral word
+9. 一项新的研究表明，轻度感染中共病毒的人在8个月后仍有症状。每10名医疗保健人员中就有一人在清除感染后30多周内报告疲劳或味觉和嗅觉的丧失。更重要的是，这些中度到严重的症状对他们的工作、社交或家庭生活产生了负面影响。
 
-要彻查，透明的调查
-It has to be thoroughly and transparently investigated
+10. 澳大利亚贸易部长丹·特汉说，澳大利亚政府将继续”非常清楚地”表明，中共对维吾尔族穆斯林人口的人权侵犯是 “完全不能接受的”。
 
-如果来自自然的他会说这个话?
-If the virus comes from nature, would he say this?
+11. 财经刊物《财新》周四称，中海油有限公司在中共国北方运营的一个海上石油生产平台发生火灾，已造成3人失踪。截至周四，V29钻井平台的大火仍未被扑灭，并补充说，目前尚不清楚有多少石油被泄漏。
 
-说什么对不起子孙后代，
-He should not say something about being sorry for future generations
+12. 台湾当局指控涉嫌中共间谍的商人向欣和他的妻子龚青洗钱，此前他们被自称是中国情报人员的王立强指认，并叛逃到澳大利亚。
 
-因为自然的谁都不知道什么时候会出来
-Because if the virus came from nature, who doesn’t know when it will come out
+13. 据国家媒体周四报道，中共国已在南中国海深处钻探，以从海底取回沉积物岩芯，这将引起与敌对声索国台湾和菲律宾以及美国的争议水域的紧张关系。
 
-谁都不知道到底从哪个地方出来
-Nobody knows exactly where it will come out
+14. 原本因涉嫌武器罪而被拘留的香港理工大学一年级学生吕世瑜，周四出庭时被控违反北京实施的国家安全法，犯有煽动分裂国家罪。
 
-这句话其实就告诉了生物威胁，就是超限生物武器
-This statement actually tells that the biological threat is the unrestricted bioweapon
+二、世界新闻
 
-生物威胁为什么他现在不说叫生物战, 或者叫生物武器?
-(He said) biological threat. Why doesn’t he call it biowarfare or bioweapon at this moment?
+1. 五角大楼周四宣布，随着俄罗斯决定将2.8万名军队转移到乌克兰边境加剧了紧张局势，国防部长奥斯汀将前往欧洲与美国盟友会面。这位国防高官周六将在德国、英国和比利时的北约总部会见政府和军方同行，然后前往以色列。
 
-因为这是超越生物武器，是叫超限生物武器
-Because this is beyond bioweapon and it is unrestricted bioweapon
+2. 美国总统拜登周四宣布了一系列有关枪支管制的行政行动和立法建议，称枪支暴力是”公共健康危机”，政府的行动并不违反第二修正案的权利。
 
-所以他用生物威胁先来告诉美国人这是生物威胁了
-So, he used the biological threat first to tell the Americans that this is a biological threat
+3. 曾批评缅甸军事政变的缅甸驻英国大使表示，他已被同事锁在伦敦办公室外。Kyaw Zwar Minn周三晚上被忠于军方政权的外交官同事禁止进入大使馆。
 
-生物恐怖主义其实就是超限生物武器
-Bioterrorism is actually unrestricted bioweapon
+4. 风险投资家和保守派政治捐赠者彼得·蒂尔，在周二的一次露面中敦促美国政府考虑对加密货币进行更严格的监管。”我确实想知道，在这一点上比特币是否也应该被认为（在一定程度上）是中共国对美国的金融武器。”
 
-因为它不是一个生物战的概念
-Because it is not a concept of biowarfare
+5. 美国周三在与伊拉克的会谈中同意撤走所有部署在打击”伊斯兰国”极端分子的剩余作战部队，不过美军仍将提供训练。
 
-就像恐怖主义，当时的911
-It’s like terrorism. It was 911
+6. 首席执行官苏珊娜·斯科特周四宣布，前国务卿迈克·蓬佩奥已加入福克斯新闻媒体，成为一名撰稿人。
 
-它不是对你美国宣战，但这是恐怖主义
-it wasn’t a declaration of war against the United States, but it was terrorism
+7. 据美国国家情报委员会预测《全球趋势》（[PDF](https://www.dni.gov/files/ODNI/documents/assessments/GlobalTrends_2040.pdf)）报告，随着人工智能、数字货币和气候变化等趋势重塑全球舞台，未来几十年将出现一个越来越没有领袖、越来越不稳定的世界。
 
-现在中共搞得是生物恐怖主义，超限生物武器
-Now the Chinese Communist Party is engaging in bioterrorism using unrestricted bioweapon
-
-大家看明白没有?几个月以来都验证了美国拜登政府上台以后
-Do you see clearly? It’s been verified for several months after the Biden administration came to power
-
-真正的都已经各方面的准备工作都已经准备好了
-All the preparations have been fully completed
-
-中共他所有的威胁就是那种便宜的所谓的导弹
-All the Chinese Communist Party’s threats are their cheap so-called missiles
-
-能打个100多公里，是吧?
-which can make more than 100 kilometers, right?
-
-反正我万导齐发。就这种又便宜
-The CCP might launch tens of thousands their cheap missiles
-
-前面带一些东西。
-(They might) carry something on the missile warhead.
-
-带一些炸弹，甚至带一些生物的这种东西
-Or carry some bombs, even some biological stuff
-
-如果到你上空可能都危险
-If it comes over your sky, it may be dangerous
-
-所以一定要在半路就给你拦截掉
-So, it must be intercepted on its halfway
-
-当然韩国可能是一个巨大威胁，面临北朝鲜
-Of course, South Korea may have a huge threat, since it is facing North Korea
-
-所以这方面全部都准备好。准备好才说这话
-So, all are prepared. Preparations have been done before he could say this
+8. 美国总统拜登周四宣布了一系列有关枪支管制的行政行动和立法建议，称枪支暴力是”公共健康危机”，政府的行动并不违反第二修正案的权利。
 
 0

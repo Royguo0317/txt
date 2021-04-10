@@ -1,27 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥敦促美国运动员抵制“种族灭绝奥运会”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1070902/)
+## 日本印度将举行2+2会谈对抗中共
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1070979/)
 
-俄罗斯莫斯科喀秋莎农场  银河
+俄罗斯莫斯科喀秋莎农场   银河
 
 编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/O-3.jpg)660citynews.com
-美国前国务卿蓬佩奥星期五建议美国运动员抵制明年在中共国举行的奥运会，他称之为“种族灭绝奥运会”。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/I-5.jpg)thediplomat.com
+《日经新闻》当地时间4月10日报道，随着中共在东中国海和南中国海霸权活动的加强，日本和印度计划最早于4月底将举行一场“2+2”的外交部长和国防部长会议，讨论针对中共威胁的安全合作问题。
 
-拜登政府一直未对抵制北京冬奥会的呼吁表态。国会议员约翰·卡特科在给拜登的信中写道:“在一个公开犯下种族灭绝罪行的国家参加奥运会，不仅破坏了这些共同的价值观，也给所有寻求自由和公正社会的人的希望蒙上了阴影。”
+日本外相茂木敏充和国防大臣岸信夫将参加与印度同行苏布拉马尼亚姆·杰桑卡和拉杰纳特·辛格的会谈。预计双方将确认，他们将共同努力，建立一个自由开放的印度洋-太平洋地区。
 
-共和党参议员里克·斯科特(Rick Scott)在本周二呼吁拜登总统申请在美国主办2022年冬奥会，指出中共“严重侵犯人权”，应将2022年冬奥会从北京迁至 “一个尊重自由、民主和人权的国家”。斯科特批评拜登和民主党人虚伪，指责
+此次会晤将为日本首相菅义伟(Yoshihide Suga)与印度总理莫迪(Narendra Modi)会晤时的安全讨论奠定基础。菅义伟计划在4月底至5月初的日本黄金周假期期间访问印度。这两个国家与美国和澳大利亚都是安全组织四方联盟的成员国。
 
-“拜登支持将美国职业棒球大联盟的比赛移出佐治亚州，但拒绝呼吁国际奥委会将奥运会移出正在对维吾尔族进行种族灭绝的中共国。”
+这将是两国继2019年11月在印度举行第一次2 + 2会议后的第二次会议，东京和新德里因抵御中共建立了更紧密的关系。双方去年签署了一项采购和交叉服务协议，让日本自卫队和印度军队共享食品和燃料等资源。
 
-早在2月便有多个国家议员提出抵制中共冬奥会。英国自由民主党领袖戴维(Ed Davey) 和工党议员克里斯·布莱恩特在内的英国议员呼吁英国队抵制北京冬奥会。加拿大13个议员签署了公开信要求国际奥委会(International Olympic Committee) 将2022年冬奥会移出中共国，以避免运动员受到“玷污”，并表示若在北京举行，本届奥运会将成为堪比1936年纳粹统治下的柏林奥运会般“耻辱的奥运会”。
+日本一直把外交政策的注意力集中在四方会谈上，并希望利用这次 2 + 2会议加深与新德里的合作。印度历来奉行不结盟政策试图保持外交关系的平衡，一直小心避免被卷入与中共的对抗中。
 
-在拜登政府仍犹豫不决的情况下，蓬佩奥再次向美国运动员喊话，呼吁抵制严重侵犯人权，犯下种族灭绝和反人类罪行的中共举办2022年冬奥会。
+上个月，日本向印度的安达曼和尼科巴群岛(Andaman and Nicobar Islands)提供了首个官方发展援助。这些岛屿位于马六甲海峡(Malacca Strait)的入口处，是世界上最重要的咽喉要道。虽然援助是为了安装电池储能系统，但分析人士表示，两国在这些岛屿上的合作意义重大，具有象征意义，表明两国关系在不断深化。
 
-参考链接：
+日本还在帮助印度东北部的梅加拉亚邦(Meghalaya)、米佐拉姆邦(Mizoram)、阿萨姆邦(Assam)和特里普拉邦(Tripura)等与孟加拉国和缅甸接壤区域开展公路连接项目。分析人士表示，印度在战略周边地区的参与增加，可能会令中共警觉。
 
-[https://justthenews.com/world/mike-pompeo-slams-chinas-genocide-olympics-urges-american-athletes-boycott-it](https://justthenews.com/world/mike-pompeo-slams-chinas-genocide-olympics-urges-american-athletes-boycott-it)
+日本印度会谈，就中共威胁的安全合作，将进一步促进两国的关系。预计双方将申明共同致力于建立一个自由开放的印太地区。
+
+参考链接:
+
+[https://asia.nikkei.com/Politics/International-relations/Indo-Pacific/Japan-and-India-to-hold-2-plus-2-talks-with-eye-on-China](https://asia.nikkei.com/Politics/International-relations/Indo-Pacific/Japan-and-India-to-hold-2-plus-2-talks-with-eye-on-China)
 
 0
