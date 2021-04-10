@@ -1,23 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日快讯08/04/2021：新中国联邦一定要投诉和揭露SEC卖美贼的腐败与中共勾结打击G-TV投资者；
-` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1069533/)
+## 美国商务部将7家中共国超级计算实体列入实体名单
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1069555/)
 
-Cantonese工作室
+翻译：洛杉矶天使农场 – 烟波浩淼
+校对：洛杉矶天使农场 – 雨山溪桥客
+审核：洛杉矶天使农场 – 黎明的光芒
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Picture6-1.png)
+美国商务部工业和安全局（BIS）已将7家中共国超级计算实体列入实体名单，这些实体从事的活动违反了美国的国家安全或外交政策利益。
 
-1
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210409-_4_of_5-1.png)
-2
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210409-_2_of_5-2.png)
-3
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210409-_3_of_5-3.png)
-播报：黄玫瑰
+今天的最终规则在实体名单中增加了以下实体：天津普天信息技术有限公司、上海高性能集成电路设计中心、顺威微电子有限公司、国家超级计算中心济南分公司、国家超级计算中心深圳分公司、国家超级计算中心无锡分公司、国家超级计算中心深圳分公司、国家超级计算中心无锡分公司，郑州国家超级计算中心。这些实体参与建造中共国军方使用的超级计算机，其破坏稳定的军事现代化努力和/或大规模杀伤性武器（WMD）计划。
 
-资料整理：黄玫瑰、陸柒陸捌、Ruby
+美国商务部长吉纳·M·雷蒙多（Gina M. Raimondo）多发表以下声明：
 
-海报制作：米线、 文静
+“超级计算能力对于许多——也许几乎所有——现代武器和国家安全系统的发展至关重要，例如核武器和高超音速武器。商务部将充分利用其权力来阻止中共国利用美国的技术来支持这些破坏稳定的军事现代化努力。”
 
-视频制作：文德
+这些实体符合列入《出口管理条例》（EAR）第744.11节所列实体名单的标准。
 
-+2
+受此变化影响的实体的完整列表包含在《联邦公报》中公开展示的规则中。
+
+实体清单是国际清算银行使用的一种工具，用于限制出口、再出口和国内转让受《出口管理条例》管制的物品给合理认为参与、已经参与或构成重大风险的人（个人、组织、公司），违反美国国家安全或外交政策利益的活动。附加的许可证要求适用于出口、再出口和向上市实体转让受EAR约束的物品的国内转让，并且大多数许可证例外的可用性是有限的。
+
+想了解更多信息，请访问[www.bis.doc.gov](https://www.bis.doc.gov)。
+
+原文作者：美国商务部公共事务办公室
+发布时间：2021年4月8 日
+原文链接：[https://www.commerce.gov/news/press-releases/2021/04/commerce-adds-seven-chinese-supercomputing-entities-entity-list-their](https://www.commerce.gov/news/press-releases/2021/04/commerce-adds-seven-chinese-supercomputing-entities-entity-list-their)
+
+0
