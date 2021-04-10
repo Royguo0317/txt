@@ -1,54 +1,89 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【文雍漫谈】谁让他求生不能 谁让他求告无门
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1070313/)
+## 每日新闻收集【4/9】
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1070521/)
 
-作者:文雍 | 校对:西川stanly |审核：万人往 |Page：小雨
+**西班牙巴塞罗那喜悦农场** wenwu
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Lvm5BZD4TgQqw/images/b0873485-f843-452f-8a1f-ced16d6c0e85.jpg?asset_id=4803716f-eb47-4152-b282-af2d9bf2dc95&amp;img_etag=%228e36e063e32a24fb7dd11eb21b95a3fd%22&amp;size=1024)](https://spark.adobe.com/page/Lvm5BZD4TgQqw/images/b0873485-f843-452f-8a1f-ced16d6c0e85.jpg?asset_id=4803716f-eb47-4152-b282-af2d9bf2dc95&amp;img_etag=%228e36e063e32a24fb7dd11eb21b95a3fd%22&amp;size=1024)
-
-北美最美的季节，与失控的变种病毒一起来了。
-
-正值樱花大展芳姿之际，年年此刻，整个城市都会陷入粉红色的世界，满眼都是花界的荷尔蒙，让人忍不住要小心呼吸，怕惊动了这些天国的美丽信使。然而昨夜一场时速29公里的大风让人揪心，这些花显然无法承受如此狂狷的拥抱，怕是要把春天一起带走了。
-
-是的，我一直生活在这样的悖论里：以为是花的凋零埋葬了春天，因为春天与花是如期而至的，到底谁是谁的象征？对于林黛玉那样爱花的人来说，当然花才是春天的注解。
-
-出去遛弯，看见不远处樱花树下一个仙女般的小女孩，粉红色的裙子在风中与花共舞，其美不可方物。女孩左手牵着男士、右手牵着女士，看上去是一家三口，孩子把两个大人的胳膊当成了秋千，双脚离地，被拎着胳膊提起来，在这明媚的春天里荡漾着。画面之美，让人暂时忘记病毒还在肆虐的现实。女孩看向我，口罩遮住了她大半张脸，却遮不住她清澈的眼神里的疑惑，我想她是看惯了戴口罩的人，对我这样“光着脸”出来的物种已经不适应了吧？
-
-一场疫情，改变了所有人的生活方式。在这个地球上，无论你身处多么荒僻的角落，都不敢说自己不担心，不害怕。从这个意义上说，所有人都失去了罗斯福四大自由中“免于恐惧的自由”。现在终于明白什么是“人类命运共同体”了，人类所有关于正义、文明的努力成了笑话。东半球一个傻瓜初中生的理想，在南半球、西半球、北半球都以高级黑的方式得以实现。如果事情到了今天还没意识到这个问题的严重性，人类最终将自食其果。
-
-单说每人每天消耗掉的难以降解的口罩，都是对环境的最大伤害和威胁。然而人们仍然在忍受，仍然没有走上街头，没有要求他们的政府向释放病毒的元凶追责！是这世界承平太久，人类都成了温水里的青蛙，还是惧怕邪恶势力的淫威？如果想不付出努力就获得自由，想不去捍卫民主就永远地拥有民主，那么人类最终既会失去民主，也会失去自由。
-
-道理很简单，我们都是这个大社会生态链上的一环，没有人可以置身事外。比如，一个大货车司机，他怎么会想到北斗技术上的瑕疵让自己殒命？这种高精尖的事情，本来是科学家的事，与用户何干？然而，有了杀鸡取卵的执法者，这一切就有了干系。科学上的瑕疵成了他们敛财创收的工具，也成了压垮处于水深火热之中底层大货司机的最后那一根稻草。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Lvm5BZD4TgQqw/images/70409b4c-21bc-4c52-a090-efda616a924c.png?asset_id=ceae7418-766d-4055-b933-dec1c6aff6c7&amp;img_etag=%226f4b45a74530299bbeb5dd322a0435ab%22&amp;size=2560)](https://spark.adobe.com/page/Lvm5BZD4TgQqw/images/70409b4c-21bc-4c52-a090-efda616a924c.png?asset_id=ceae7418-766d-4055-b933-dec1c6aff6c7&amp;img_etag=%226f4b45a74530299bbeb5dd322a0435ab%22&amp;size=1024)
-
-这样的悲剧本不该发生，然而它不但发生了，而且还有小粉红为执法者洗地，攻击大货车司机素质低、超载、超速、疲劳驾驶云云。这样的指责是相当的邪恶和不负责任的，谁给大货司机做过成本分析？他们的运营中包含了多少本来不该承担的费用？路桥费、天价油费、车辆维修费、各种名目的收费、罚款，这些政府部门哪个不是雁过拔毛的强盗？而豢养着这些强盗的中共政府，何曾对普通民众贫穷悲苦的生活有过一丝悲悯？
-
-有外媒报：大货司机一个季度起早贪黑风餐露宿，车轮不停地转，喂饱了那些贪婪的部门，自己只剩下区区5000元的利润，这可是一个季度的收入。在他那个上有一老下有三小的家庭，他是主要收入来源，那些丧心病狂的执法者因为一个并非是他的过错的过错，就罚掉他全部收入的五分之二，让他怎么活？他不堪重压撒手人寰，留下没有收入来源的一家人，接下来的日子怎么过？
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Lvm5BZD4TgQqw/images/0261c47f-15b0-4aba-97d4-865c5d6d5c30.png?asset_id=7c3fec14-2cdc-49c4-acfe-b2a11531a48b&amp;img_etag=%220ccff64af67cf114bcce3b0e49c54720%22&amp;size=1024)](https://spark.adobe.com/page/Lvm5BZD4TgQqw/images/0261c47f-15b0-4aba-97d4-865c5d6d5c30.png?asset_id=7c3fec14-2cdc-49c4-acfe-b2a11531a48b&amp;img_etag=%220ccff64af67cf114bcce3b0e49c54720%22&amp;size=1024)
-
-所谓的执法者们，不要以为混入体制内就是赵家人，就有了免死金牌，就可以免于被社会主义大棒砸倒。福建省寿宁信访局原局长柳乃华，一夜之间由“自己人”变成了“寻衅滋事”的维权者。他23岁的女儿高楼坠亡，警方裁定是自杀。而柳前局长认为其女儿是他杀，于是他维权、下跪、被维稳，被寻衅滋事，几天内走完他干了一辈子的工作流程，就如武则天时代的那个酷吏来俊臣一样，亲尝了请君入瓮的戏码。而问题还是那个问题，一根毛都没有改变。试想，如果柳局长在任期间能够与他的同事们一起推动中国的信访制度，给老百姓留个说话的空间，是不是也给自己留了一条后路？以为自己是中共绞肉机上的齿轮，没想到其实他也是齿轮碾压下的一坨肉。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Lvm5BZD4TgQqw/images/a459a53b-1166-41e0-a81b-2700d72c3b5c.jpg?asset_id=94b79a61-7533-4834-9176-bf27cccb2350&amp;img_etag=%226cc1490f1b49e1f47a193b8c0a8f5f04%22&amp;size=1024)](https://spark.adobe.com/page/Lvm5BZD4TgQqw/images/a459a53b-1166-41e0-a81b-2700d72c3b5c.jpg?asset_id=94b79a61-7533-4834-9176-bf27cccb2350&amp;img_etag=%226cc1490f1b49e1f47a193b8c0a8f5f04%22&amp;size=1024)
-
-许多时候，看到同为底层的同胞之间互相倾轧，难免耿耿于胸，不吐不快。接下来，想隔空对那些为中共洗地的五毛们说几句话：国与家的概念如果你们想不清楚，就想想如果有一天中共给不起你那五毛一条的爱国贴钱，你又身无长技以糊口，流落街头的时候，收留你的是你的国还是你的家？想明白了这个问题，你就知道你更应该去爱你的父母还是你那找不到责任人的国？
-
-还有，请对那些动辄要代表你的家伙提高警惕。当他们没问过你的意见就四处扬言“谁伤害了十四亿人的感情”、“十四亿人如何如何”的时候，请拒绝充当那个数字，告诉他们，十四亿不包括你，你的感情只有你用过情的人可以伤害。今天他们代表你声讨别人，明天你就会代表他们成为这个时代的炮灰。
-
-当然，做到这些可能很难，但你先做做看，要记住你的行为正是他们利益的源泉。你跪着，就永远低他们一等，他们就想把奴役你们进行到底。请相信，每个人的一小步，就是这个世界的一大步。如果你还心有余悸，可以继续围观，但不要再为高墙添砖。如果你还在犹豫，请看看我们新中国联邦这一年来取得的成绩，看看爆料革命四年来给这个世界带来的改变。如果你拥有一颗勇敢的心，如果你爱自己的家人，想给子孙后代一个不被奴役的未来，那么，加入新中国联邦，一起缔造一个没有共产党的新中国！
-
-***文章仅代表个人观点***
-
-编辑：【英国伦敦喜庄园编辑部】
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Lvm5BZD4TgQqw/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/Lvm5BZD4TgQqw/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+中共病毒推特信息分享
 
 
-+4
+
+> Sellin博士给出了中共释放病毒的三种可能状况：
+> 1 故意释放基因编辑改造过的冠状病毒
+> 2 逆转冠状病毒疫苗，使疫苗致病
+> 3 用冠状病毒测试疫苗效果，结果失败
+> 这是“SIXTA”的研判结果吗？乖乖啊😱 [https://t.co/DK8Xh4fcTX](https://t.co/DK8Xh4fcTX)
+> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [April 9, 2021](https://twitter.com/jsdfposjpqyuee1/status/1380402354168623104?ref_src=twsrc%5Etfw)
+
+
+**`火来战友推特大意`**
+*Sellin博士给出了中共释放病毒的三种可能状况：
+ 1 故意释放基因编辑改造过的冠状病毒 
+2 逆转冠状病毒疫苗，使疫苗致病 
+3 用冠状病毒测试疫苗效果，结果失败 这是“SIXTA”的研判结果吗？*
+
+
+> 突然明白为什么中共国强制打疫苗…让所有老人打中国疫苗，是解决破产的养老金制度的好办法啊！ [https://t.co/lRA6M4PAU7](https://t.co/lRA6M4PAU7)
+> — 瞿水台 Qu Shuitai (@QuShuitai) [April 7, 2021](https://twitter.com/QuShuitai/status/1379880693526896649?ref_src=twsrc%5Etfw)
+
+
+**`瞿水台推特`**
+*突然明白为什么中共国强制打疫苗…让所有老人打中国疫苗，是解决破产的养老金制度的好办法啊*
+
+
+> 塞林博士：武毒所的危宏平是被断定的冠状病毒的＂零号病人＂黄艳玲的导师。他与中共军方有联系，包括拥有冠状病毒的备受怀疑的舟山蝙蝠冠状病毒骨干ZC45/ZXC21的解放军第三军医大学！[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/ipkHGPsoCX](https://t.co/ipkHGPsoCX)
+> — 花岗岩 (@graniteofstone) [April 8, 2021](https://twitter.com/graniteofstone/status/1380076724046557189?ref_src=twsrc%5Etfw)
+
+
+**`花岗岩推特`**
+塞林博士：武毒所的危宏平是被断定的冠状病毒的＂零号病人＂黄艳玲的导师。他与中共军方有联系，包括拥有冠状病毒的备受怀疑的舟山蝙蝠冠状病毒骨干ZC45/ZXC21的解放军第三军医大学
+
+
+> Part of my first anonymous revelation of PLA lab-origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) on 19 Jan, 2020, via LuDe Media (English subtitle [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw))
+> I explained to Mr. LuDe for 2 Ds, then he delivered the information in his style. 
+> China gov was forced to conduct a serial actions immediately. [https://t.co/NIUwR96AM8](https://t.co/NIUwR96AM8)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 8, 2021](https://twitter.com/DrLiMengYAN1/status/1380281553029373952?ref_src=twsrc%5Etfw)
+
+
+**`闫博士推特`**
+*认证火来战友的信息*
+
+
+> Dr. Tess Lawrie, Director of the Evidence-Based Medicine Consultancy Ltd., urges people across the world to take charge of their health— even as governments & health authorities ignore evidence showing that ivermectin effectively prevents & treats COVID-19. [#ivermectinSavesLives](https://twitter.com/hashtag/ivermectinSavesLives?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/PJl8G1C5BR](https://t.co/PJl8G1C5BR)
+> — Frontline Covid-19 Critical Care (@Covid19Critical) [April 8, 2021](https://twitter.com/Covid19Critical/status/1380113196992843779?ref_src=twsrc%5Etfw)
+
+
+**`一线重症中共病毒患者监护的推特`**
+*泰斯·劳丽博士可证医学咨询有限公司主任敦促世界各地的人们负责自己的健康——即使**政府和卫生当局**屏蔽了伊维菌素有效预防和治疗中共病毒的证据*
+
+
+> New research out of Switzerland: [pic.twitter.com/vQlL9gsyp4](https://t.co/vQlL9gsyp4)
+> — Dr. Brian Tyson, MD 🇺🇸 (@btysonmd) [April 7, 2021](https://twitter.com/btysonmd/status/1379855518974365697?ref_src=twsrc%5Etfw)
+
+
+**`布莱恩·泰森医学博士推特`**
+*瑞士的新研究图表可见：由于人们使用羟氯喹，导致死亡人数降低三倍，效果明显*
+
+
+> The stopping of HCQ caused increase in death. It is a delayed response. Then the restart of HCQ caused the death rate to go back down.
+> — Dr. Brian Tyson, MD 🇺🇸 (@btysonmd) [April 7, 2021](https://twitter.com/btysonmd/status/1379857273992871936?ref_src=twsrc%5Etfw)
+
+
+**`布莱恩·泰森推特`**
+*HCQ的停止使用导致死亡人数增加。这是一个延迟响应。然后HCQ的重新使用导致死亡率下降*
+
+
+> COVID scandal: Feds ignored 2016 law requiring use of real world evidence [https://t.co/CySlfpqkMp](https://t.co/CySlfpqkMp)
+> — AssocAmerPhys&Surg (@AAPSonline) [April 7, 2021](https://twitter.com/AAPSonline/status/1379876169672101892?ref_src=twsrc%5Etfw)
+
+
+**`私人医生的声音`**
+*中共病毒丑闻：美联储无视2016年要求使用真实世界证据的法律。附极右翼《WND》的**`新闻链接`***：
+*福奇和政府的无视真实数据和法律，这造成了美国人无法使用爆料革命最先推荐的预防中共病毒药物*
+
+
+
+
++1

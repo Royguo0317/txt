@@ -1,125 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.6.2021AM_布林肯：彻底和透明的调查这次病毒大流行的起源
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1070041/)
+## 加主流媒体的烽烟（四）：愈来愈令世人惶恐失措的中共“帝国”！
+` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1070079/)
 
-视频剪辑 : Ablec(文A)
-中听校： 洛杉矶天使农场 – 烟波浩淼
-英翻译： 洛杉矶天使农场 – 烟波浩淼
-英翻译校对：洛杉矶天使农场 – 雨山溪桥客
-字幕+视频制作：意大利达芬奇农场 – 紫苏花生
+![]()![](https://gnews.org/wp-content/uploads/2021/04/毛习帝.jpg)
+加拿大魁北克主流媒体《魁北克日报》于4月6日刊登了由该报首席时政专栏作家，蒙特利尔大学政治经济学讲师，当地知名中共国问题分析专家洛伊克·塔塞（Loïc Tassé）撰写的系列有关中共本质的时政评论文章。本篇全面论述解析了中共政权的邪恶发展历史；中共国与生俱来的背信毁约，出尔反尔的外交宗旨；独裁者习近平极权统治后所沿袭的毛氏驾国驭民思想；以及中共政权种种倒行逆施对原有国际稳定秩序的彻底颠覆等众多关乎人类世界能否正常发展的关键问题。
 
-**路德**
-布林肯最重磅的最新讲话
-The most important latest speech from Antony Blinken
+并由此明确指出，目前由狂人兼低能的习近平统御下的中共霸权，如不及时对其从根本上全面遏制和消灭，那么它将会是人类自由社会以及人权民主的最大梦魇和终结者。
 
-说我们将继续推进彻底和透明的调查这次病毒大流行的起源
-He said, we are looking and pushing for complete and transparent investigation into origin of the pandemic
+全文编译如下：
 
-搞清楚到底发生了什么，从而避免任何生物威胁再次发生
-to learn what happened and so that the biological threat doesn’t happen again
+如今的中共国不再像许多西方国家所希望的那样，在世界平衡发展的格局中发挥其积极作用了。要知道早在1997年，它就曾使亚洲一度摆脱了严重的金融危机。并在2008年，也成为了当时全球经济复苏的主要动力之一。
 
-否则我们将对不起我们的子孙后代
-Otherwise, we will badly let us future generations down
+仍然是彼时的中共国，它甚至与美国政府结盟共同反击塔利班的危害。并最终如愿以偿地加入了WTO和国际气候协定组织。
 
-这是历史的关键时刻，我们要敢想，敢干
-This is critical moment, the time for us to think big and act boldly
+但是谁又能预计得到，就在短短几年内，中共国已脱缰蜕变为全球健康发展最不稳定的消极破坏因素。
 
-美国将直面挑战
-And the United States will face the challenge
+尽管2003年在遭受了非典（SRAS）肆虐的痛苦经历后，其领导人曾向世界信誓旦旦地保证再也不会发生这种混乱失控的危险局面。但中共国最终还是在黑暗中偷偷开启了传播致命（中共病毒）COVID-19危机的潘多拉之盒。
 
-前段时间布林肯接受采访的时候
-When Blinken was interviewed some time ago
+由于中共国长期以来不断自诩为一个发展中的弱国，因而它凭此在世界政治和经济领域内独享多项特权。但是，在其已成为世界上最大的经济体之后，它仍强求国际社会继续给予它只有那些贫穷落后的国家才会享有的优惠待遇。
 
-说我们要预防第二次以及未来生物威胁
-He said that we have to prevent the second time as well as the future biological threat
+不仅如此，中共国的前任领导人当时已经（和英国）签署了一项历史性重大协议（1984年赵紫阳和撒切尔签署的《中英联合声明》），该协议中明确规定中共当局在2047年之前不得以任何原因干预任何香港自身事务。但令举世错愕的是，中共统治者们竟公然撕毁条约，并暴力介入了香港内政。它们不仅蓄意破坏了香港惯有的稳定局势，更邪魔的是，这些恶棍处心积虑地彻底粉碎了曾经根生在那里的完整民主体系。
 
-我们当时说了，为什么要预防第二次?
-We (Lude Media) said at that time, why do they have to prevent the second time?
+更有其甚，现在中共当局正肆无忌惮地把其矛头尖指台湾，毕竟该岛是如此靠近中国大陆，双方皆欲寻求一种彼此都能接受的权益之计。其实，两岸冲突本可以通过双方理性沟通和外交协商而得到和平解决。但中共政权长期的独裁统治已经使其成为了不折不扣的霸权主义者。因此，现在的大陆比以往任何时候都更让台湾民众感到恐惧。
 
-就是，先做好防守
-which is, make the defense first
+中共这种迅速猖狂地走向邪恶绝境的背后主谋正是此人：习近平。他不惜借尸还魂，坚持以毛氏思想为其御政模板，其结果就好像是毛泽东死而复生又重新权掌生杀。但这次作为俨然成为“世界超级大国”的中共头号领导人，习近平的恣意妄为正在剧烈颠覆着几代人在他之前所创造的世界稳定秩序。
 
-因为美国已经意识到这就是中共的生物威胁
-Because the United States has realized that this is the biological threat of the CCP
+中共国貌似是世界上最大的科学强国之一，但它却始终以所谓“国家安全”为借口，拒绝和外界分享其一切有着关键科技价值的研究成果(如果这些成果存在地话)。
 
-布林肯这个词不是一个中性词，生物威胁恐怖主义
-The word, biological threat terrorism, that Brinken used is not a neutral word
+此外，中共国还拥有看起来无比强大的军队，可它毫不隐讳地全力支持那些被国际社会共同唾弃的（流氓）国家，譬如：委内瑞拉，伊朗，缅甸，北朝鲜等。
 
-要彻查，透明的调查
-It has to be thoroughly and transparently investigated
+同时，中共国虽然也自持有着强力的外交机构，但其颐指气使的发言人们，却在扣押人质，种族灭绝等诸多国际事件上，对加拿大及其盟国恶语中伤，毒言相向。
 
-如果来自自然的他会说这个话?
-If the virus comes from nature, would he say this?
+中共国表面上努力呼吁各国尽量减少温室气体排放，但它却倾其国力推动发展了国家燃煤电厂的污染项目建设。
 
-说什么对不起子孙后代，
-He should not say something about being sorry for future generations
+中共国试图向国际社会表明，其子民的基本权利在它的领土上得到了良好的尊重。但当局却对包括维吾尔在内的少数民族的“种族灭绝”迫害比以往任何时候都更加残酷。
 
-因为自然的谁都不知道什么时候会出来
-Because if the virus came from nature, who doesn’t know when it will come out
+自习近平上台掌舵以来至今，中共国司法制度的公正性经已荡然无存。而穷兵黩武则导致其国债高筑，赤字累累，民不聊生。脆弱的新闻自由体系早就崩塌殆尽，其人民也因此不敢再公开畅所欲言，倾表心声。
 
-谁都不知道到底从哪个地方出来
-Nobody knows exactly where it will come out
+可想而知，如果没有以上这些斑斑恶行，中共国本可以加强其作为稳定全球发展者的重要角色，更有可能成为自由与现代文明完美结合的典范。
 
-这句话其实就告诉了生物威胁，就是超限生物武器
-This statement actually tells that the biological threat is the unrestricted bioweapon
+但事与愿违，非常不幸的是，习近平驾驭的这架中共马车正在朝着与世界所期望的相反方向狂奔而去。现在，越来越多的人将其诧异惊恐的目光投向了这位企图君临天下的中共独裁者。疯子耶？智障耶？我们唯拭目以待！(全文完)
 
-生物威胁为什么他现在不说叫生物战, 或者叫生物武器?
-(He said) biological threat. Why doesn’t he call it biowarfare or bioweapon at this moment?
+正是：
 
-因为这是超越生物武器，是叫超限生物武器
-Because this is beyond bioweapon and it is unrestricted bioweapon
+庚子开岁毒八方，习冠包子加速狂。
 
-所以他用生物威胁先来告诉美国人这是生物威胁了
-So, he used the biological threat first to tell the Americans that this is a biological threat
+罔思仲勋为公仆，执欲焚身践帝王。
 
-生物恐怖主义其实就是超限生物武器
-Bioterrorism is actually unrestricted bioweapon
+弃信毁约湮香港，同室操戈台湾殇。
 
-因为它不是一个生物战的概念
-Because it is not a concept of biowarfare
+强暴枉誇中国梦，一带黄泉一路魍！
 
-就像恐怖主义，当时的911
-It’s like terrorism. It was 911
+[原文链接](https://www.journaldequebec.com/2021/04/06/un-empire-de-plus-en-plus-inquietant)
 
-它不是对你美国宣战，但这是恐怖主义
-it wasn’t a declaration of war against the United States, but it was terrorism
+- ![]()![](https://gnews.org/wp-content/uploads/2021/04/习冠帝-edited.jpg)图片来源：Twitter.com
 
-现在中共搞得是生物恐怖主义，超限生物武器
-Now the Chinese Communist Party is engaging in bioterrorism using unrestricted bioweapon
 
-大家看明白没有?几个月以来都验证了美国拜登政府上台以后
-Do you see clearly? It’s been verified for several months after the Biden administration came to power
-
-真正的都已经各方面的准备工作都已经准备好了
-All the preparations have been fully completed
-
-中共他所有的威胁就是那种便宜的所谓的导弹
-All the Chinese Communist Party’s threats are their cheap so-called missiles
-
-能打个100多公里，是吧?
-which can make more than 100 kilometers, right?
-
-反正我万导齐发。就这种又便宜
-The CCP might launch tens of thousands their cheap missiles
-
-前面带一些东西。
-(They might) carry something on the missile warhead.
-
-带一些炸弹，甚至带一些生物的这种东西
-Or carry some bombs, even some biological stuff
-
-如果到你上空可能都危险
-If it comes over your sky, it may be dangerous
-
-所以一定要在半路就给你拦截掉
-So, it must be intercepted on its halfway
-
-当然韩国可能是一个巨大威胁，面临北朝鲜
-Of course, South Korea may have a huge threat, since it is facing North Korea
-
-所以这方面全部都准备好。准备好才说这话
-So, all are prepared. Preparations have been done before he could say this
-
-0
++1

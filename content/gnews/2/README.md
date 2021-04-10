@@ -1,49 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】土中新疆人权问题再发酵，中共在土耳其踢到铁板
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1070887/)
+## 拜登将中共列为“最大挑战”要求增加国防预算
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1071040/)
 
-作者：纽约香草山健身部 Jack Li⽂阳
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/u-6.jpg)echock.com
+《每日传讯 》(The Daily Caller)报道，美国总统拜登(Joe Biden)在2022财年的预算中要求略微增加国防开支至7150亿美元，并将打击中共列为美国面临的“最大挑战”。
 
+拜登提出的第一个国防开支预算反映了五角大楼在经历了中东几十年的不平衡冲突后，一直在努力让美国军队有与实力相近的大国作战的准备。美国的国防开支比2020年增长1.6%，但比前川普总统任期内计划的增长要少。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+这国防预算的请求将应对来自中共的威胁列为首要挑战。该部门还将寻求阻止俄罗斯破坏稳定的行为。
 
+中共最近声称拥有世界上最大的海军，并继续在南中国海对台湾和美国军队施加压力。在于中共军事对峙日益升级之际，美国防预算将优先考虑新型武器系统的研发和新型海军舰艇的制造。
 
+拜登和国防部长奥斯汀在2月初下令成立一个特别工作组，对美国与中共的军事态势进行评估。拜登政府已将中共确定为美国的主要威胁，并将这场冲突定义为决定民主还是独裁领导世界走向未来的冲突。
 
-据《法⼴新闻》4⽉9⽇报道，近期，⼟⽿其因两个反对派领袖在推特发⽂谴责中共国新疆维吾尔⼈权迫害问题，导致与中共国关系紧张。随后，中共国⼤使馆与外交部点名回呛，⼟⽿其外交部也召⻅中（共）国⼤使表达不满。不过双⽅冲突并未就此结束，且持续发酵。
+参考链接：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-126.png)图片来源：Twitter
-
-⾸都安卡拉市政部⻔在中共国⼤使馆⻔前施⼯挖开⼤坑，其理由是检测⾃来⽔资源是否遭⼈盗⽤。⼀名安卡拉市政管理员发推⽂，贴出在中共国使馆⻔前的“挖洞照”，并称“中（共）国使馆本⽉可能不必交⽔费”，因为⽔断了。
-
-使⽤攻击下盘的超限战法，历来都是中共的拿⼿好戏。其对付⻄⽅⽂明国家，每每凑效，别⼈也不会和它⼀般计较。近年，⼟⽿其⼈和中共交往密切，既增强了相互的了解，也让土耳其学习了中共的底线思维，并灵活使⽤超限战——以其⼈之道，还治其⼈之身。土耳其⽤中共的⽅法证明，“⼟⽿其⼈不吃中共这⼀套”。中共驻⼟⽿其“战狗”群眼下⾯临着⽆⽔可⽤的艰难困境，相信⼟⽿其政府还有很多⼤招正在整装待发，不知中共外交部如何应对？是升级？是灭⽕？这考验着“战狗”的智⼒。
-
-参考阅读：
-
-[中（共）国驻土耳其使馆门前遭挖洞 施工说法不那么简单？](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210409-%E4%B8%AD%E5%9B%BD%E9%A9%BB%E5%9C%9F%E8%80%B3%E5%85%B6%E4%BD%BF%E9%A6%86%E9%97%A8%E5%89%8D%E9%81%AD%E6%8C%96%E6%B4%9E-%E6%96%BD%E5%B7%A5%E8%AF%B4%E6%B3%95%E4%B8%8D%E9%82%A3%E4%B9%88%E7%AE%80%E5%8D%95)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-审核：正义的小新
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
+[https://dailycaller.com/2021/04/09/biden-budget-defense-spending-china-navy/](https://dailycaller.com/2021/04/09/biden-budget-defense-spending-china-navy/)
 
 0

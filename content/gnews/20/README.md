@@ -1,89 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日新闻收集【4/9】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1070521/)
+## 独家：《2021年战略竞争法案》立法要求美国政府提交中共病毒大流行起源报告
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1070805/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
+**编撰：李昂纳多**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/32336566.jpg)资料图片：《2021年战略竞争法案》第214章截图
+美国参议院外交委员会的参议院领袖们在美国东部时间周四（4月8日）推出了《2021年战略竞争法案》来增加美国政府对抗中共的全球影响力。该法案要求民主共和两党针对中共国在经济，人权以及民主价值上做出行动，例如基于新疆少数民族的人权待遇对中共实施制裁，支持香港的民主，以及对台湾增强合作伙伴关系1。
 
-中共病毒推特信息分享
+在阅读该法案之时，笔者注意到法案的第214章题目为“关于COVID-19大流行病起源的报告”。第214章详细描述了《2021年战略竞争法案》将会如何立法要求美国现任政府将中共病毒起源相关所有信息提交给国会参众两院相关委员会作为进一步的行动依据。在214章a项2中，国会阐明了解中共病毒大流行的起源对美国未来准备，预防以及应对相似的健康威胁非常关键。同时由于中共病毒大流行对美国人民造成的重大损失，美国人民有权利了解美国政府针对大流行起源所拥有的信息。美国国会同意美国政府以及13个外国政府的意见，统一认为世界卫生组织派往中共国的国际团队在病毒起源调查上被“拖延，同时无法获得完整的原始数据和样品。其中包括世界卫生组织秘书长谭德塞在3月30日的声明中提到世界卫生组织的调查团队在访问原始数据时遭遇很多”困难“，并且”没有找到病毒来源“，”所有的假设都还成立“，以及需要独立专家调查所有相关的生物和环境数据，活病毒样本，以及疫情大流行初期所有相关的实验室研究人员来确定这场疫情大流行的起源。
 
+接下来，214章b项2是该章节最重要的一项。该项要求在法案颁布后的180天之内，国家情报总监在与国务卿，卫生及公共服务部长，能源部长以及其他相关部门人士的合作下必须搜集，整理信息，并且提交一份详细阐明中共病毒大流行起源的报告给国会相关的委员会。该报告必须包括的内容有：1.）评估中共病毒最有可能的来源，审查美国已经掌握和查明可能与中共病毒来源或者起源的相关资料和美国政府对新冠病毒来源的看法，以及调查武汉病毒研究所或其它来源，传播途径还有外溢的可能性。所有的信息必须依据美国政府迄今为止掌握的所有资料。2.）指明一种最有可能的中共病毒起源，同时需要展示美国政府是如何得出这个结论。3.）描述美国政府为了调查中共病毒起源具体做了事件，并且要提供一份美国政府行动的时间线。4.）详细描述美国和世界卫生组织要求或者已经得到有关中共病毒起源的数据。5.）叙述中共国为配合，阻碍或者阻挠调查中共病毒起源的行动，包括可能的实验室泄露以及释放假信息进行误导。调查的信息需要涵盖中央和地区政府。6.）详细叙述美国所掌握有关武汉病毒研究所以及相关研究机构对冠状病毒的研究和参与的功能增强实验。同时包括任何实验人员有过感染病毒并且患上和COVID-19类似症状最终诊断和健康状况，以及有关类似冠状病毒研究的时间线。7.）列出中共国在类似中共病毒大流行情况下必须要披露或者合作提供的信息。8.）评估美国和中共国在冠状病毒领域的研究合作，美国政府在2017年以后为中共国研究机构功能增强实验提供的资金来源，以及美国政府是否在2014至2017年间在禁止功能增强实验期间为中共国研究机构相关项目提供过资金。
 
+以上8点显示美国国会两党已经在对中共病毒起源调查方面达成一致，并且将会立法要求现任政府行政部门必须配合在180天内提供一个详细的调查报告。该报告除了提供给参众两院的外交委员会和情报委员会以外，两院的军事委员会也会收到该报告并根据报告做出相应的评估和行动。在爆料革命中，文贵先生和路德先生已经多次提及全世界军方拥有的情报证明中共病毒就是超限生物武器，因此不难看出这次的法案为什么要求将最终报告交给管理军队事务的军事委员会。在路德社在2020年1月19日第一次爆料中共病毒疫情以后，通过闫博士努力撰写的报告以及接受的媒体采访，文贵先生的人际网，以及所有爆料革命战友不懈的努力传播中共病毒真相的行动，美国两党终于决定通过立法的形式要求美国政府通过提交正式的报告的形式认定中共病毒起源。虽然这个世界已经因为中共病毒被黑暗笼罩，但是“一灯能破千年暗”，在爆料革命这盏明灯下，中国共产党试图用中共病毒这个超限生物武器的阴谋已经被彻底拆穿。随着美国政府两党对灭共达成一致，中共的黑暗必将被世界的光明消灭。
 
-> Sellin博士给出了中共释放病毒的三种可能状况：
-> 1 故意释放基因编辑改造过的冠状病毒
-> 2 逆转冠状病毒疫苗，使疫苗致病
-> 3 用冠状病毒测试疫苗效果，结果失败
-> 这是“SIXTA”的研判结果吗？乖乖啊😱 [https://t.co/DK8Xh4fcTX](https://t.co/DK8Xh4fcTX)
-> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [April 9, 2021](https://twitter.com/jsdfposjpqyuee1/status/1380402354168623104?ref_src=twsrc%5Etfw)
+**参考链接：**
 
-
-**`火来战友推特大意`**
-*Sellin博士给出了中共释放病毒的三种可能状况：
- 1 故意释放基因编辑改造过的冠状病毒 
-2 逆转冠状病毒疫苗，使疫苗致病 
-3 用冠状病毒测试疫苗效果，结果失败 这是“SIXTA”的研判结果吗？*
+1. [https://www.reuters.com/article/us-usa-china-senate/u-s-senate-panel-to-to-consider-major-china-competition-bill-on-april-14-source-idUSKBN2BV1UE?il=0](https://www.reuters.com/article/us-usa-china-senate/u-s-senate-panel-to-to-consider-major-china-competition-bill-on-april-14-source-idUSKBN2BV1UE?il=0)
+2. [https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
 
 
-> 突然明白为什么中共国强制打疫苗…让所有老人打中国疫苗，是解决破产的养老金制度的好办法啊！ [https://t.co/lRA6M4PAU7](https://t.co/lRA6M4PAU7)
-> — 瞿水台 Qu Shuitai (@QuShuitai) [April 7, 2021](https://twitter.com/QuShuitai/status/1379880693526896649?ref_src=twsrc%5Etfw)
+***发布**：文顾*
 
-
-**`瞿水台推特`**
-*突然明白为什么中共国强制打疫苗…让所有老人打中国疫苗，是解决破产的养老金制度的好办法啊*
-
-
-> 塞林博士：武毒所的危宏平是被断定的冠状病毒的＂零号病人＂黄艳玲的导师。他与中共军方有联系，包括拥有冠状病毒的备受怀疑的舟山蝙蝠冠状病毒骨干ZC45/ZXC21的解放军第三军医大学！[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/ipkHGPsoCX](https://t.co/ipkHGPsoCX)
-> — 花岗岩 (@graniteofstone) [April 8, 2021](https://twitter.com/graniteofstone/status/1380076724046557189?ref_src=twsrc%5Etfw)
-
-
-**`花岗岩推特`**
-塞林博士：武毒所的危宏平是被断定的冠状病毒的＂零号病人＂黄艳玲的导师。他与中共军方有联系，包括拥有冠状病毒的备受怀疑的舟山蝙蝠冠状病毒骨干ZC45/ZXC21的解放军第三军医大学
-
-
-> Part of my first anonymous revelation of PLA lab-origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) on 19 Jan, 2020, via LuDe Media (English subtitle [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw))
-> I explained to Mr. LuDe for 2 Ds, then he delivered the information in his style. 
-> China gov was forced to conduct a serial actions immediately. [https://t.co/NIUwR96AM8](https://t.co/NIUwR96AM8)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 8, 2021](https://twitter.com/DrLiMengYAN1/status/1380281553029373952?ref_src=twsrc%5Etfw)
-
-
-**`闫博士推特`**
-*认证火来战友的信息*
-
-
-> Dr. Tess Lawrie, Director of the Evidence-Based Medicine Consultancy Ltd., urges people across the world to take charge of their health— even as governments & health authorities ignore evidence showing that ivermectin effectively prevents & treats COVID-19. [#ivermectinSavesLives](https://twitter.com/hashtag/ivermectinSavesLives?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/PJl8G1C5BR](https://t.co/PJl8G1C5BR)
-> — Frontline Covid-19 Critical Care (@Covid19Critical) [April 8, 2021](https://twitter.com/Covid19Critical/status/1380113196992843779?ref_src=twsrc%5Etfw)
-
-
-**`一线重症中共病毒患者监护的推特`**
-*泰斯·劳丽博士可证医学咨询有限公司主任敦促世界各地的人们负责自己的健康——即使**政府和卫生当局**屏蔽了伊维菌素有效预防和治疗中共病毒的证据*
-
-
-> New research out of Switzerland: [pic.twitter.com/vQlL9gsyp4](https://t.co/vQlL9gsyp4)
-> — Dr. Brian Tyson, MD 🇺🇸 (@btysonmd) [April 7, 2021](https://twitter.com/btysonmd/status/1379855518974365697?ref_src=twsrc%5Etfw)
-
-
-**`布莱恩·泰森医学博士推特`**
-*瑞士的新研究图表可见：由于人们使用羟氯喹，导致死亡人数降低三倍，效果明显*
-
-
-> The stopping of HCQ caused increase in death. It is a delayed response. Then the restart of HCQ caused the death rate to go back down.
-> — Dr. Brian Tyson, MD 🇺🇸 (@btysonmd) [April 7, 2021](https://twitter.com/btysonmd/status/1379857273992871936?ref_src=twsrc%5Etfw)
-
-
-**`布莱恩·泰森推特`**
-*HCQ的停止使用导致死亡人数增加。这是一个延迟响应。然后HCQ的重新使用导致死亡率下降*
-
-
-> COVID scandal: Feds ignored 2016 law requiring use of real world evidence [https://t.co/CySlfpqkMp](https://t.co/CySlfpqkMp)
-> — AssocAmerPhys&Surg (@AAPSonline) [April 7, 2021](https://twitter.com/AAPSonline/status/1379876169672101892?ref_src=twsrc%5Etfw)
-
-
-**`私人医生的声音`**
-*中共病毒丑闻：美联储无视2016年要求使用真实世界证据的法律。附极右翼《WND》的**`新闻链接`***：
-*福奇和政府的无视真实数据和法律，这造成了美国人无法使用爆料革命最先推荐的预防中共病毒药物*
-
-
-
-
-+1
+0
