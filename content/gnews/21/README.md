@@ -1,79 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “掀锅盖”系列：NZ1-20210408-CCP抗议SEC对GYV投资者的伤害，不赢不休
-` 《爆料贵语--掀郭盖》NZ` [轉載自GNews](https://gnews.org/zh-hans/1071736/)
+## 2021年4月9日 文贵先生盖特 5
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1071783/)
 
-**郭先生口述内容：**
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-很多战友给我发信息问我
-
-关于看到咱们GTV的投资者去华盛顿
-
-还有纽约的SEC前面抗议很感动，问自己能做什么
-
-我觉得最起码你应该到SEC网站上
-
-反应SEC完全被共产党非法的、虚假的、间谍的、信息的操纵
-
-严重伤害了GTV投资者的合法权益
-
-你应该反应，这是起码的保护自己的权益
-
-不赢决不罢休，这必须给个说法
-
-昨天我看到小王子写出了四个对SEC的要求
-
-这是对的，这四个要求不答应是不行的
-
-特别是提到你和共产党是怎么沟通的
-
-你的信息是咋来的，你采用了什么信息
-
-你和中国警察怎么搞的
-
-昨天、前天有好几个就是警察冒充投资者，来骗取所谓的往回返钱
-
-第二就连美国籍的人，现在也被警察操弄
-
-因为他家人在国内，也是被警察操弄着来弄所谓的返钱
-
-这都是刑事犯罪，这是什么情况下发生的，是SEC的纵容下
-
-官僚与共产党的警察非法的沟通的结果
-
-给我们的GTV造成了巨大的伤害
-
-如果这次大家让SEC把大家真的伤害成功了
-
-那我们以后就没有机会再在美国任何合法投资
-
-你任何合法投资共产党都会用同样的招消灭你
-
-中共的中概股你不查，你查我们G-TV的合法投资
-
-到现在SEC没有一次说我们是违规违法的
-
-那帮共产党的中概股没有一个是合法的
-
-一个都没有，公平吗
-
-\*所有经过节选，编辑和剪辑的简报和视频形式仅供留存及传播，分享信息！
-
-\*所有信息以郭文贵先生源盖特视频和直播视频为准！
+4/9/2021 路德节选：郝董曝光中共体工队和国家队男女“混居” 中共腐败治下的运动界也不能脱俗，运动员不但要有成绩、还要会拍马匹、同流合污 4/9/2021 Lude Media (Selected): Mr. Hao Haidong Exposing the CCP-Run Sports Teams and the So-Called National Teams All “Sleeping Together” kbaThe CCP regime is corrupted, and its sports sector is no exception. Athletes must not only have achievements, but also be able to “please” their coaches and more Ship began to sink at the head.
 
 
 
-听写整理：面包树Savi
+[【2021年4月9日】文贵先生盖特原文](https://gtv.org/getter/6071297ddbc8001854a72101)
 
-翻译：Boredbug
-
-校对：SugarPup
-
-視頻製作：农夫
-
-审核：掀锅盖组
-
-上传：糊糊文婴
+**喜联盟Gnews编辑部**
 
 0

@@ -1,100 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【时事解析】蛛丝马迹找元凶-为武汉病毒认祖归宗
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1070959/)
+## 【香草诗词汇】UP TO YOU
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1071353/)
 
-作者：休斯顿星光农场 星会员 北评2025
+作者：纽约香草山健身部 回响
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524.jpg)
-
-
-“乌啼鹊噪昏乔木，清明寒食谁家哭“，在这个清明节里，再多的语言也无法形容因武汉病毒而失去亲人的痛，再大的雨也洗不去280万条鲜活的生命的冤。武汉病毒肆虐地球已经一年多了，中共政府面对大量证据，依旧百般抵赖病毒的来源、拒绝调查、威胁和噤声知情者；充当帮凶的世卫组织和跑腿的科学家们，帮助中共病毒找来了蝙蝠、果子狸做替死鬼，更可笑的是连冷冻食品也未能逃过中共的魔爪。中共国有句古话：”若要人不知，除非己莫为“，再完美的作案现场也会留下蛛丝马迹。以下是本人发现并整理的线索，让世人看清楚病毒身后的元凶。
-
-**蛛丝马迹一：石正丽的焦虑与2015****年论文**
-
-据《世界报》报道，在2019年12月武汉病毒爆发后，武汉P4实验室病毒传染中心负责人石正丽曾一度因怀疑和焦虑病毒是否在她的实验室里泄露而无法入睡。她说因有大量的实习生进出实验室，不能排除有人操作失误，“的确这使我头脑乱了，闭不上眼睛 “。这个P4实验室的1位研究员可以同时带20名实习生，而法国1位研究员最多带3名实习生，所以从实验室泄露是符合逻辑的，石正丽为何焦虑就可以理解了。
-
-品葱网上的一位网友Snowy smile在《自然杂志》意外发现，石正丽在2015年就已经成功地合成了可以感染人体的SARS-CoV病毒，跟如今的武汉病毒SARS-CoV-2惊人的相似，并成功地在《自然杂志》上发表了论文。虽然病毒不是完全一致，但也证明了中共早就在做相关的病毒研究，所以世卫组织，你凭啥认为“武毒所”比“冷冻食品”还无辜？这个病毒研究所就在爆发地—武汉！武汉！
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-04-08-231719.jpg)
-*图片来源：《自然杂志》*
-
-**蛛丝马迹二：军方的背书–“基因生化武器”**
-
-石正丽及她的团队进行的课题研究也是有中共军方背书的。图片为2017年11月在中共国军网发表的一篇题为《基因武器真的能影响未来战争吗？》文章的节选。红线部分分析了基因武器也就是病毒，依据成熟的分子遗传学，极容易研制和更新换代，在投毒上又具有超强的隐秘性和难溯源性。所以在没有掌握基因序列的情况下，不是参与者很难及时研制疫苗并控制病毒。这篇文章简直就是对中共武汉病毒的完美注解！
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-04-08-232644.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-9.jpeg)
 
 
-*图片来源：www.81.cn*
 
-所以就不难理解，为什么2020年1月3日中共卫健委下令销毁武汉病毒样本，直至 5月份，中共仍拒绝分享武汉病毒分离株、临床标本及早期多位患者的详细信息了。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片36-1.png)图片来源：http://m.tooopen.com/view/1107718.html
 
-**蛛丝马迹三：蹊跷的演习**
+生如蝼蚁？
+或立地顶天？
+UP TO YOU
+UP TO ACTION.
 
-截图为中共媒体湖北经视报道的中共武汉天河机场于2019年9月18日模拟演习。演习中预演了当机场有人感染了新型冠状病毒的模拟处置过程。要知道在武汉爆发病毒之前，中共政府从来没有任何信息介绍过此种病毒。即便在武汉病毒爆发之后，依然对外宣传“人不传染”。那么武汉天河机场怎么这么凑巧地在武汉病毒爆发前2个月就未卜先知这种病毒？连名字都帮助取好了？
+看叶简明、肖建华，看王健
+看多少个沉浮如梦如幻如露又如电
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-04-08-232050.jpg)
+UP TO YOU
+UP TO ACTION.
+生如蝼蚁，
+或立地顶天？
+
+看哪一个地方一家店就卖出的160万余骨灰盒
+看多少国、多少家，连所谓官方数字都列不进去的病毒死难
+看那些被小白鼠的所谓“疫苗”接种者
+生如蝼蚁？
+或蝼蚁不如？！
+UP TO YOU
+UP TO ACTION.
+
+看七哥、看东哥, 看Dr. Limeng Yan
+看多少次被倾国迫害污蔑，无所不用其极且欲除之而后快的艰险
+
+生如蝼蚁，
+或立地顶天？
+UP TO YOU
+UP TO ACTION.
+
+看农场看联盟看战友千万万
+痛斥伪国使馆、惩贼灭贼力挺正义灭共、SEC前再不畏惧强权
+传播香港危机传播病毒真相狠扒邪恶画皮嘴脸
+香港圣城，精神永传，新中国联邦人重树尊严
+
+UP TO YOU
+UP TO ACTION.
+生如蝼蚁？
+或立地顶天！
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2.jpg)
 
 
-```
-图片来源：新浪湖北视经博客
-```
 
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-让全世界疑窦丛生的这篇报道被贴在了新浪微博，跟帖了数万评论。点开评论会你发现什么叫“群众的眼睛是雪亮的”，“武汉病毒早已存在，病毒人传人“的真相网友们早已心知肚明，可是除了嘲讽和无奈，墙国百姓又能如何呢？
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-04-08-232411.jpg)
-
-
-```
-图片来源：新浪湖北视经博客
-```
-
-
-**蛛丝马迹四：中共某省警备机构提前囤积N95口罩**
-
-据国内战友提供的内部情报，2020年2月11日有人找他为某省警备机构采购口罩。说提前囤积的N95口罩已经用的差不多了，还需要再采购一批。要知道中共是在2020年1月19日《路德访谈》爆出了武汉病毒真相之后，才向世界宣布了“（武汉）病毒人传人”的信息。在短短十几天内，中共国就已经完全买不到N95口罩了，即便武汉的各大医院都很难找到N95口罩。让人狐疑的是，为什么中共军队居然提前囤积、使用了这么多的卫生防护物资，而且还要二次囤积购买？！不是说好了“人不传人”吗？
-
-**蛛丝马迹五：2013****年的台湾节目**
-
-蛛丝马迹不止在中共国内发现，台湾早在2013年5月6日民视新闻台【挑战新闻】栏目也有报道–中共实验室秘制“超級病毒”可杀上亿人!节目里的生化专家形象的讲述了中共大陆制造基因病毒是如此的简单：一个实验室里，几个博士通过剪切和粘结就能轻松地制成恐怖的基因生化武器。相信当时很多人都不以为然，现实却是七年后的世界果真被中共研制的人工合成的基因生化病毒掀得天翻地覆、人仰马翻！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-04-08-232753.jpg)
-
-*图片来源：台湾【挑战新闻】视频截图*
-
-关于中共病毒来源的蛛丝马迹和蹊跷的事情远不止这些，欢迎读者朋友留言和提供更多的信息。相信随着时间推移，病毒所有的真相一定会大白于天下，必须让中共这个侩子手给所有死去的冤魂还有生者一个交代！正义或许会迟到，但一定不会缺席！
-
-信息来源：
-
-[http://www.hubei.gov.cn/hbfb/rdgz/201506/t20150612\_1668633.shtml](http://www.hubei.gov.cn/hbfb/rdgz/201506/t20150612_1668633.shtml)
-
-[www.youtube.com/watch?v=1YlYGR8T\_Gs](https://www.youtube.com/watch?v=1YlYGR8T_Gs)
-
-[http://www.81.cn/wjsm/2017-11/10/content\_7836382.htm](http://www.81.cn/wjsm/2017-11/10/content_7836382.htm)
-
-[https://weibo.com/hubeijingshi?is\_all=1&stat\_date=201909&page=3#feedtop](https://weibo.com/hubeijingshi?is_all=1&amp;stat_date=201909&amp;page=3#feedtop)
-
-[http://www.xinhuanet.com/2018-04/05/c\_1122640764.htm](http://www.xinhuanet.com/2018-04/05/c_1122640764.htm)
-
-[https://www.aboluowang.com/2020/0417/1438181.html?utm\_source=dlvr.it&utm\_medium=twitter](https://www.aboluowang.com/2020/0417/1438181.html?utm_source=dlvr.it&amp;utm_medium=twitter)
-
-[https://www.nature.com/articles/nm.3985](https://www.nature.com/articles/nm.3985)
-
-[https://pincong.rocks/article/27144](https://pincong.rocks/article/27144)
-
-[http://www.chinaivdc.cn/sytz/zxdt/201610/t20161002\_134579.htm](http://www.chinaivdc.cn/sytz/zxdt/201610/t20161002_134579.htm)
-
-[https://www.sciengine.com/publisher/scp/journal/SCLS/60/12/10.1007/s11427-017-9263-6?slug=fulltext](https://www.sciengine.com/publisher/scp/journal/SCLS/60/12/10.1007/s11427-017-9263-6?slug=fulltext)
-
-编辑/校对/发稿：Helen
-
-更多資訊，歡迎點擊[休斯頓星光農場官方推特賬號](https://twitter.com/HLitstar?s=20)！
-
-更多節目資訊，歡迎進入[休斯頓星光G|TV官方鏈接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
-
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0
