@@ -1,72 +1,341 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】中共（CCP）串通美国证监会（SEC）无理打压GTV投资者
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1071829/)
+## 美国政要等每日重要信息0410.2021
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1071720/)
 
-作者：纽约香草山媒体部  文扬四海
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
 
 
+4月9日德意志之鹰回复劳伦斯-塞林博士推文：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4-12.jpg)
+张辉的《SARS-CoV-2的纳米粒子疫苗接种》。
 
-**问：什么是GTV？**
+- 有效的动物模型
+- 强有力的免疫反应
+- 无ADE
+另外，郭德银是中山医学院院长
+[https://pubmed.ncbi.nlm.nih.gov/33275896/](https://pubmed.ncbi.nlm.nih.gov/33275896/)
 
-答：GTV是一家专注发布和传播真相，强调唯真不破的灭共媒体平台。注册会员可以发布文字、图片和视频，有超过1000关注者的会员可以直播。现阶段主要发布揭露有关中国共产党(简称中共，英文缩写CCP)罪行的新闻、爆料、时评和访谈等。比如揭露曝光了中共对世界的蓝金黄，即通过舆论洗脑，金钱收买，黄色性交易等拿下各国关键人物；对美国的3f计划，即搞乱、搞弱、搞死美国；中共对全球发动的病毒超限战等等罪恶。
 
-**问：为什么有很多人投资GTV?**
+塞林博士回推：
 
-答：第一，在这个媒体虚假信息泛滥的时代，GTV从诞生起就自带唯真不破属性，敢于率先报道其他媒体不敢接触的深水区话题，特别是在灭共信息宣传方面遥遥领先其他媒体。多个优秀的直播节目都能轻松获得几十万、上百万的在线观看量。现在中共已被美国和西方多国定性为犯下种族灭绝罪，接下来必将定性中共犯下制造和故意投放病毒的反人类罪，中共将如当年的纳粹一样灰飞烟灭。GTV作为参与了灭共历史伟业的旗帜性媒体平台也必将成为伟大的传媒巨头，未来价值不可估量。第二，GTV创始人郭文贵先生开创历史先河，经过审核的真心灭共投资者，可以1美元1股购买GTV原始股，成为原始股东。出身于草根的中国人第一次有这样的机会成为百万、千万甚至亿万富翁，过上有体面、有尊严的生活。
-
-**问：为什么中共要打压GTV投资者？**
-
-答：如前所述，因为GTV是讲真话的媒体，是真正的灭共平台，揭露中共在历史上，在当下，全世界犯下的滔天罪行，尤其现在可以一剑封喉中共的病毒来源真相。同时GTV可以让广大草根灭共者有机会成为原始股东，轻轻松松身价千万，当有这么多勇敢，有正义还有钱的灭共者出现时将会是一股排山倒海的力量。而中共统治下的政权永远都只是大大小小的盗国贼官员及其家人才有机会发大财，广大老百姓都是被割的韭菜。所以中共心虚了，害怕了，它必须使出一切肮脏卑鄙的手段打压GTV投资者，阻止他们成功投资。
-
-**问：为什么美国的SEC会受制于中共，串通打压GTV投资者？**
-
-答：最重要的原因中共长期实施的蓝金黄计划，已成功拿下了世界很多国家各界的关键人物。美国的SEC当然也不能幸免。SEC里的一些美国人或是被中共钱色收买或是因为自身的把柄被中共抓住，为了自己的私利或是自保，不顾美国国家利益，丢弃职业操守，和中共狼狈为奸。多年来，SEC对中共赴美上市的白手套企业不加审计监管，任其虚假宣传，虚假做账，大肆圈钱，甚至偷窃美国核心技术。其中还不乏一些中共军方背景的企业。而对合法合规的，没有任何不良记录的GTV的投资却是各种无理调查，损害投资者利益，导致国内投资者的生命安全也受到威胁。还有一个原因就是，SEC对普通中国人的种族歧视。试想，如果是美国或其他西方国家的投资者，SEC敢这么傲慢无礼，无视投资者的财产和生命受到威胁吗？
-
-**问：中共和SEC具体如何勾结打压GTV投资者？**
-
-答：SEC采信了一位网名叫豆豆的原VOG投资者（其真实身份是中共特务）对整个GTV的虚假指控，对GTV长期无理调查至今。这位叫豆豆的特务甚至都不是GTV的真正原始股东投资者。原始股东投资者1300多人，除了一位叫手持钢叉的闰土的卧底特务外，没有一个声称被骗要求退款的。为了彻底清除中共特务的潜在隐患，郭先生已决定将所有这1300多人的投资退回，进行重新审核筛选。在这种情况下，中共疯狂到拿枪指着国内投资者，绑架全家，逼着他们给纽约检察官和美国证监会提供虚假证据，而这些检查官和SEC官员竟然要求被胁迫的投资者跟中共警察合作。导致这些投资者们生命和财产受到严重威胁，有的人甚至已被喝茶、被抓捕、被判刑被消失、被剥夺资产。有的投资者已长期居留美国，或是已取得了美国国籍，中共依然能够威胁这些投资者在国内的家人。SEC对GTV长达近10个月的无理调查，没有找出GTV的任何一条违法事实。全世界最顶级的评估机构对GTV的评估值完全认可，完全符合证券豁免法。
-
-**问：GTV投资者已采取什么措施维权?**
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-13-16.jpg)
-
-答：在美国的GTV投资者从4月5日开始从全美各地集结来到美国证券会楼下依法维权，抗议SEC和中共勾兑，导致投资者利益受损，生命受到威胁。其中一天还去了中共国大使馆门口抗议。投资者准备了宣传单、横幅、大型宣传车，宣传口号有：
-
-SEC Kowtows to the CCP （证监会跪舔中共)
-SEC Lied GTV Investors Died (证监会撒谎 GTV投资者受害）
-SEC Drives Business Away from US (证监会导致美国商机流失）
-
-SEC serves CCP （证监会伺候中共）
-SEC Allowed Unaudited CCP Companies Listed in the US Stock Market to Steal Trillions of Dollars （证监会纵容未经审查的中共白手套公司到美国股市圈钱数以兆记）
-SEC =Supporter Endorser of CCP （证监会给中共支持和背书）
-Hold CCP Collaborators Accountable （追究与中共同谋的责任）
-
-投资者对SEC提出了四个要求： 1.立即披露其与CCP的所有通信。 2.赔偿G-TV的投资者全部损失。 3.停止与中共的勾结，停止对投资者的迫害和歧视。 4.制止官僚主义的渎职行为。
-
-除了现场的抗议维权，还有很多投资者发邮件给SEC相关部门投诉反映情况。也有一些投资者给SEC的社交账号发送宣传资料曝光其和中共勾结的真相。
-
-**问：抗议维权取得了什么效果？**
-
-答：短短几天时间，到4月8日美国证监会突然宣布，SEC检举人办公室主任简·诺伯格，计划本月离开该机构。据可靠消息称，举报办主任正是迫于压力辞职的。
-
-线上线下的抗议维权还会继续直到SEC完全满足投资者提出的四大诉求。这是中国人第一次在海外为捍卫自己权益的发声。整个过程井然有序、行为恰当，在纽约和华盛顿大街上向外国朋友展现了新中国人最好的一面。
-
-校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+“德意志之鹰的帖子一针见血。郭德银，原在武汉病毒学研究所工作，现在和张辉一样在广州，是武汉病毒组的延伸，也是#COVID19起源的关键一环。
+@Highlandlions #中共病毒 #超限生物武器 #中共病毒大流行来源”
 
 
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+> Post by [@dezying](https://twitter.com/dezying?ref_src=twsrc%5Etfw) is right on target. Deyin Guo, who formerly worked at the Wuhan Institute of Virology, now in Guangzhou as is Hui Zhang, is an extension of the Wuhan group and a key link in the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [@Highlandlions](https://twitter.com/Highlandlions?ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wfvDgPRs88](https://t.co/wfvDgPRs88)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 9, 2021](https://twitter.com/LawrenceSellin/status/1380532850928316418?ref_src=twsrc%5Etfw)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+
+
+4月10日塞林博士推文：
+
+2017年，中共生物战负责人陈薇少将在一次秘密会议上说，“只有矛才能研究盾” &可能已经尝试用#COVID19等基因工程病毒合成通用的#新冠病毒疫苗。
+
+#中共病毒 #超限生物武器
+
+
+
+> In 2017, Maj Gen Wei Chen CCP's presumed biowarfare chief said in a secret meeting 只要有矛.才能研究盾 "you need a pike to study the shield" & may have tried to make a universal [#CoronaVaccine](https://twitter.com/hashtag/CoronaVaccine?src=hash&amp;ref_src=twsrc%5Etfw) with genetically-engineered viruses like [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/SUbqRy2Gmh](https://t.co/SUbqRy2Gmh)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 10, 2021](https://twitter.com/LawrenceSellin/status/1380825202137956355?ref_src=twsrc%5Etfw)
+
+
+
+“中共病毒大流行–是中共军民融合病毒研究/疫苗研发计划的产物–武汉是病毒工程、动物试验、疫苗生产和医院临床服务的多机构研发中心，病毒也是从这里释放出来的。”
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) – a product of the CCP’s fused military-civilian virus research/vaccine development program – where Wuhan acts as a multi-institutional R & D center for viral engineering, animal testing, vaccine production and hospital clinical services – and from where it was released. [pic.twitter.com/YQEZNzJU3j](https://t.co/YQEZNzJU3j)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 10, 2021](https://twitter.com/LawrenceSellin/status/1380832576726781959?ref_src=twsrc%5Etfw)
+
+
+图片信息：中共国生物统治的战争
+
+
+4月9日蓬佩奥先生推文：“我们很快就想出了如何移动全明星赛的方法，也许我们可以想出如何移动奥运会。美国运动员不应该参加种族灭绝奥运会。”
+
+史蒂夫-莫舍回推：“停止种族屠杀的奥林匹克”
+
+
+
+> Stop the Genocide Olympics! [https://t.co/UffSpuVhVm](https://t.co/UffSpuVhVm)
+> — StevenWMosher @StevenMosher on Parler (@StevenWMosher) [April 9, 2021](https://twitter.com/StevenWMosher/status/1380624976282275844?ref_src=twsrc%5Etfw)
+
+
+
+
+
+4月9日，共和党全国委员会推文：
+
+拜登支持抵制美国在乔治亚州的企业和工人，却安抚共产主义中国和伊朗等资助恐怖主义的政权。
+
+事实证明，当拜登承诺 “团结 “时，他指的是中国和伊朗，而不是美国人民。
+
+
+
+> Biden supported a boycott of American businesses and workers in Georgia but placates Communist China and terrorist-funding regimes like Iran. 
+> 
+> As it turns out, when Biden promised “unity,” he meant with China and Iran and not the American people. [https://t.co/MWEgJetZ9v](https://t.co/MWEgJetZ9v)
+> — RNC Research (@RNCResearch) [April 9, 2021](https://twitter.com/RNCResearch/status/1380591459070541824?ref_src=twsrc%5Etfw)
+
+
+
+4月9日，共和党全国委员会推文：
+
+安全不受拜登抵制（的事项）：
+习近平的灭绝人性的共产主义政权
+伊朗资助恐怖主义的制度
+
+拜登的抵制下不安全的：
+勤劳的乔治亚人
+
+
+
+> Safe from a Joe Biden boycott: 
+>  
+> ✔️ Xi Jinping’s genocidal communist regime 
+> ✔️ Iran’s terrorist-funding regime
+> 
+> Not safe from a Joe Biden boycott: 
+> 
+> ❌ Hard-working Georgians [https://t.co/MWEgJetZ9v](https://t.co/MWEgJetZ9v)
+> — RNC Research (@RNCResearch) [April 9, 2021](https://twitter.com/RNCResearch/status/1380554927081197573?ref_src=twsrc%5Etfw)
+
+
+
+4月9日美国白宫公布：拜登总统将签署设立美国最高法院总统委员会的行政命令。
+
+该信息引发很多美国议员、媒体人的强烈反对。人们称拜登要“让最高法院失效”。2020年总统竞选辩论时，川普总统曾质疑拜登今后会采取“让最高法院失效”的行动，拜登当时对此予以否认，今日却即将上演。
+
+
+
+> Joe is going to PACK THE COURT. PACK THE COURT. PACK THE COURT!!!!!!!!!!!!! WE WARNED YOU. YOU LET HIM GET AWAY WITHI IT !!! [https://t.co/uLpRBd3yB4](https://t.co/uLpRBd3yB4)
+> — Greg Kelly (@gregkellyusa) [April 9, 2021](https://twitter.com/gregkellyusa/status/1380555863941902336?ref_src=twsrc%5Etfw)
+
+
+
+4月9日玛莎-布莱克本议员的推文抨击拜登近日修改法案的行为：
+“乔-拜登和激进的左派将破坏我们的制度来夺取权力。这意味着铲除选举团和 “立法拖延演讲流程”，并让最高法院失效。”
+
+
+
+> Joe Biden and the radical left will destroy our institutions to seize power. This means eradicating the electoral college and the filibuster and packing the Supreme Court.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 9, 2021](https://twitter.com/MarshaBlackburn/status/1380569088834043905?ref_src=twsrc%5Etfw)
+
+
+
+
+
+美国边境危机持续，议员们纷纷行动。
+
+共和党参议员账号发推：
+
+归根结底是这样的。
+乔・拜登制造了一场危机
+而乔-拜登必须解决这个问题
+边境危机 // 本季终局
+
+
+
+> It all comes down to this.
+> 
+> Joe Biden created a crisis.
+> 
+> And Joe Biden must fix it.
+> 
+> —
+> 
+> Border Crisis // SEASON FINALE
+> 
+> Streaming now. [pic.twitter.com/YzJebp0qh3](https://t.co/YzJebp0qh3)
+> — Senate Republicans (@SenateGOP) [April 9, 2021](https://twitter.com/SenateGOP/status/1380596380515852297?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+4月9日华尔街日报文章：
+
+“新疆问题上的超民族主义也给中（共）国品牌带来了风险。
+“一些西方企业已成为民族主义的目标，但 “消费脱钩 “可能会两边割裂。”
+
+
+
+> Heard on the Street: Hyper-nationalism on Xinjiang poses risks for Chinese brands, too [https://t.co/R3M66KbibH](https://t.co/R3M66KbibH)
+> — WSJ China Real Time (@ChinaRealTime) [April 9, 2021](https://twitter.com/ChinaRealTime/status/1380388771963764737?ref_src=twsrc%5Etfw)
+
+
+
+
+
+4月9日：美国将中国超级计算机实体列入经济黑名单：[https://reut.rs/3d3h98R](https://reut.rs/3d3h98R)
+
+
+
+> U.S. adds Chinese supercomputing entities to economic blacklist: [https://t.co/btPBwbbtnw](https://t.co/btPBwbbtnw) [pic.twitter.com/VaIXyykFon](https://t.co/VaIXyykFon)
+> — U.S. Commerce Dept. (@CommerceGov) [April 9, 2021](https://twitter.com/CommerceGov/status/1380521190633189378?ref_src=twsrc%5Etfw)
+
+
+
+4月9日华尔街日报推文：美国将中共国实体列入黑名单，称其正在协助武器项目，并禁止美国公司向中国超级计算机开发者提供芯片。
+
+
+
+> The U.S. blacklisted Chinese entities it says are aiding weapons program and bars American companies from supplying chips to Chinese supercomputing developers [https://t.co/pxHuV0ArtD](https://t.co/pxHuV0ArtD)
+> — WSJ China Real Time (@ChinaRealTime) [April 9, 2021](https://twitter.com/ChinaRealTime/status/1380347275478769666?ref_src=twsrc%5Etfw)
+
+
+
+
+
+4月9日华尔街日报推文：
+
+@GeraldFSeib （该期刊执行编辑）称：台湾和中公国已经共存了70多年，但人们越来越担心中共国可能会采取军事措施来强制统一。
+
+
+
+> Taiwan and China have coexisted for more than seven decades, but concerns are rising that China may take military measures to force unification. [@GeraldFSeib](https://twitter.com/GeraldFSeib?ref_src=twsrc%5Etfw) explains. [#WSJWhatsNow](https://twitter.com/hashtag/WSJWhatsNow?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/YMeG4tQrtf](https://t.co/YMeG4tQrtf)
+> — The Wall Street Journal (@WSJ) [April 8, 2021](https://twitter.com/WSJ/status/1380188686776606723?ref_src=twsrc%5Etfw)
+
+
+
+
+
+你知道吗？@比尔盖茨 和 @拜耳公司 的 #合成生物学 #转基因生物 #气候 食物系统计划？”同一批巨头公司和权力结构创造了我们当前的危机 “正试图 “把我们卖回给他们自己提出的’解决方案'”– @NavdanyaInt做出伟大的深度剖析
+
+
+
+> Do you know about [@BillGates](https://twitter.com/BillGates?ref_src=twsrc%5Etfw) [@Bayer](https://twitter.com/Bayer?ref_src=twsrc%5Etfw) [#synbio](https://twitter.com/hashtag/synbio?src=hash&amp;ref_src=twsrc%5Etfw) [#GMO](https://twitter.com/hashtag/GMO?src=hash&amp;ref_src=twsrc%5Etfw) [#climate](https://twitter.com/hashtag/climate?src=hash&amp;ref_src=twsrc%5Etfw) food system plans? "the same giant corporations and power structures that created our current crises" are trying "to sell us back their own proposed ‘solutions’" – great deep dive by [@NavdanyaInt](https://twitter.com/NavdanyaInt?ref_src=twsrc%5Etfw) [https://t.co/h3Nx3oKfTN](https://t.co/h3Nx3oKfTN)
+> — Stacy Malkan (@StacyMalkan) [April 8, 2021](https://twitter.com/StacyMalkan/status/1380177182832607237?ref_src=twsrc%5Etfw)
+
+
+
+
+
+4月9日军队医疗系统推文：国防部现在已经对超过130万服务成员和受益人安排了超过200万#COVID19疫苗接种，一个月后，将有100万人完成接种疫苗！感谢每一个卷起袖子的人!
+
+
+
+> .[@DeptofDefense](https://twitter.com/DeptofDefense?ref_src=twsrc%5Etfw) has now administered more than 2 million [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#vaccinations](https://twitter.com/hashtag/vaccinations?src=hash&amp;ref_src=twsrc%5Etfw) to more than 1.3 million service members and beneficiaries, just a month after hitting the 1 million mark! Thank you to everyone who's rolled up their sleeves!
+> 
+> Full article: [https://t.co/O81Qo0BRYj](https://t.co/O81Qo0BRYj)
+> — Military Health System (@MilitaryHealth) [April 9, 2021](https://twitter.com/MilitaryHealth/status/1380604430828048384?ref_src=twsrc%5Etfw)
+
+
+
+
+
+4月7日，146空运机翼飞行员在加利福尼亚州休内姆港的海峡群岛空中国民警卫队站为军人家属注射#COVID19疫苗。
+
+
+
+> .[@146AirliftWing](https://twitter.com/146AirliftWing?ref_src=twsrc%5Etfw) Airmen administer [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) vaccines to military dependents at the Channel Islands Air National Guard Station, Port Hueneme, California. [https://t.co/W0sPugRxHQ](https://t.co/W0sPugRxHQ)
+> 
+> 📸 by TSgt Nieko Carzis
+> — U.S. Air Force (@usairforce) [April 9, 2021](https://twitter.com/usairforce/status/1380604935113412610?ref_src=twsrc%5Etfw)
+
+
+
+
+
+《美国每日邮报》4月8日：亨特-拜登如何得到未经授权的特勤局保护，乞求乔拜登竞选白宫（总统），并与妓女拍色情电影 [https://trib.al/Qzpk2dO](https://trib.al/Qzpk2dO)。
+
+
+
+> How Hunter Biden got unauthorized Secret Service protection, begged Joe to run for WH and made porn films with prostitutes [https://t.co/G67tCn6djD](https://t.co/G67tCn6djD) [pic.twitter.com/0yGvlPSkq0](https://t.co/0yGvlPSkq0)
+> — Daily Mail US (@DailyMail) [April 8, 2021](https://twitter.com/DailyMail/status/1380224405729640449?ref_src=twsrc%5Etfw)
+
+
+
+
+
+4月9日，凯里推文：我并不想”墨守成规”，但英国《每日邮报》报道，这是亨特-拜登在和朋友们放松。 朋友们是按小时付费的。 哼哼。 有点 “有趣”，但媒体似乎奇怪地不感兴趣。
+
+
+
+> I don’t mean to be a “stick in the mud” but the UK DAILY MAIL reports this is HUNTER BIDEN relaxing with friends. Friends paid by the hour. Hmmmm. Kind of “interesting” but the MEDIA seem strangely UNINTERESTED. Yet there’s a FEEDING FRENZY over that Florida tax collector. [pic.twitter.com/0Qyi1o4D8I](https://t.co/0Qyi1o4D8I)
+> — Greg Kelly (@gregkellyusa) [April 9, 2021](https://twitter.com/gregkellyusa/status/1380497772349120512?ref_src=twsrc%5Etfw)
+
+
+
+Newsmax媒体人格雷格-凯里亨特对乔拜登（总统）的影响超过国会任何议员们。
+
+
+
+> Hunter has more influence than any member of congress. [pic.twitter.com/lrc2difaKn](https://t.co/lrc2difaKn)
+> — Greg Kelly (@gregkellyusa) [April 9, 2021](https://twitter.com/gregkellyusa/status/1380473814371426305?ref_src=twsrc%5Etfw)
+
+
+
+顺便说一下，这张照片里的东西不止是有点不正常。 1. 它是专业摄影。 你有没有请过摄影师做 “父子 “布局？ 2. 亨特这样看着镜头的样子很诡异。 3. 为什么是黑白的，某种艺术项目？
+
+
+
+> By the way, Something is more than a little OFF in this picture. 1. It’s professionally done. Have you EVER hired a photographer for a ‘father son’ layout? 2. HUNTER looking at the camera like that is CREEPY. 3. Why in black and white, some sort of ART PROJECT? [pic.twitter.com/DJeNBUbsL8](https://t.co/DJeNBUbsL8)
+> — Greg Kelly (@gregkellyusa) [April 9, 2021](https://twitter.com/gregkellyusa/status/1380475148952821760?ref_src=twsrc%5Etfw)
+
+
+
+
+
+彭博新闻社4月10日：中国大使援引乒乓外交敦促合作
+中国驻美大使呼吁两国以历史为鉴，解决今天的争端，显然是为了给两国日益紧张的关系降温。
+
+
+
+> China’s ambassador to the U.S. called for the two countries to take history as a guide to solve today’s disputes [https://t.co/Uee4DBWHXP](https://t.co/Uee4DBWHXP)
+> — Bloomberg (@business) [April 10, 2021](https://twitter.com/business/status/1380810136650874881?ref_src=twsrc%5Etfw)
+
+
+
+
+
+美国行动主席4月9日的推文反映了不少美国人当下对川普总统的怀念和呼唤。
+
+“川普总统在这张办公桌上将要为美国所做的成就，要比乔-拜登在椭圆形办公室的成就更大。这是事实。”
+
+
+
+> President Trump is going to accomplish more for America at this desk than Joe Biden will in the Oval Office. FACT. [pic.twitter.com/qWk3DbFiB5](https://t.co/qWk3DbFiB5)
+> — Brigitte Gabriel (@ACTBrigitte) [April 9, 2021](https://twitter.com/ACTBrigitte/status/1380377131046346754?ref_src=twsrc%5Etfw)
+
+
+
+
+
+4月9日推文：4月7日，美国海军西奥多-罗斯福号航空母舰穿越#南中国海… [https://dvidshub.net/r/wvolql](https://dvidshub.net/r/wvolql)
+
+
+
+> The [#aircraftcarrier](https://twitter.com/hashtag/aircraftcarrier?src=hash&amp;ref_src=twsrc%5Etfw) USS Theodore Roosevelt transits the [#SouthChinaSea](https://twitter.com/hashtag/SouthChinaSea?src=hash&amp;ref_src=twsrc%5Etfw) April 7 … [https://t.co/kuN8ulTh1n](https://t.co/kuN8ulTh1n) [#Navy](https://twitter.com/hashtag/Navy?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/sjC9pKmKot](https://t.co/sjC9pKmKot)
+> — DVIDSHub (@DVIDSHub) [April 9, 2021](https://twitter.com/DVIDSHub/status/1380641672988594179?ref_src=twsrc%5Etfw)
+
+
+
+
+
+4月9日：你知道美国军方在20世纪60年代在格陵兰冰盖下建立了一个核动力北极研究中心吗？了解更多关于北极地区正在进行的永久冻土研究……[https://dvidshub.net/r/m2vg4j](https://dvidshub.net/r/m2vg4j)
+
+
+
+> Did you know the US [#military](https://twitter.com/hashtag/military?src=hash&amp;ref_src=twsrc%5Etfw) built a nuclear powered [#arctic](https://twitter.com/hashtag/arctic?src=hash&amp;ref_src=twsrc%5Etfw) research center under the [#Greenland](https://twitter.com/hashtag/Greenland?src=hash&amp;ref_src=twsrc%5Etfw) icecap in the 1960s? Learn more about the [#Permafrost](https://twitter.com/hashtag/Permafrost?src=hash&amp;ref_src=twsrc%5Etfw) research being done in the arctic … [https://t.co/ly7BO0U7iD](https://t.co/ly7BO0U7iD) [#science](https://twitter.com/hashtag/science?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/Fb9G0Mw1eS](https://t.co/Fb9G0Mw1eS)
+> — DVIDSHub (@DVIDSHub) [April 9, 2021](https://twitter.com/DVIDSHub/status/1380551086218518528?ref_src=twsrc%5Etfw)
+
+
+
+
+
+**为了呈现更多新闻，作者拟减少评论内容，让读者在纷繁的信息中寻找潮流和趋势，形成自己的判断。有任何意见和建议的读者欢迎留言反馈。**
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
 
 0
