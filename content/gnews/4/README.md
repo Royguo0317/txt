@@ -1,11 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 3/27/2021郭先生直播: 爆料革命的战友要有辨别真假的能力
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1073520/)
+## 慧眼看世界202104010（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1073530/)
 
-但凡当时对九指妖事件有半点仁慈、半点不觉悟的，你都要问问自己是否对事物的真假有基本辨别能力，否则即使你拥有了财富，也会给你带来灾难
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-By: 【秘密翻译组G-Translators】
+
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-1-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-2-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-3-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-4-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-5-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-6-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-7-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-8-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-1-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-2-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-3-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-4-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-5-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-6-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-7-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-8-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-9-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-10-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-11-7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-12-2.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0
