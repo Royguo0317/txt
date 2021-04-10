@@ -1,112 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】动物传代的逻辑问题和病毒专家的解惑
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1069782/)
+## 他们不想让我们知道的有关Covid-19的真相
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1069948/)
 
-视频剪辑 : Ablec(文A)
-中听校： 洛杉矶天使农场 – 烟波浩淼
-英翻译：洛杉矶天使农场 – 烟波浩淼
-英翻译校对：洛杉矶天使农场 – 雨山溪桥客
-字幕+视频制作：意大利达芬奇农场 – 紫苏花生/洛杉矶天使农场 – 小腾腾说
+- 作者: Mar Llera （ 2021年3月10日）
+- 中文翻译: 帅虎
+- 校稿：蚂蚁兄弟 carlos V
 
-**闫博士 (Dr. Yan)** 
-为了让这个病毒更好地能够适应人的ACE2受体
-In order to make the virus better adapt to the human ACE2 receptor
 
-就通过转基因，让这些老鼠出生的时候身体里就没有老鼠的ACE2受体，
-genetically modified the mouses, so that when they were born without the mouse ACE2 receptor
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-而全部都换成和人一样了
-and all of them were replaced with the human ACE2 receptor
+**西班牙2021年4月9日电/西喜社——**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/CHILEAEROPUERTOCOVID-1024x576-2-e1617993039929.jpg)
+自弗朗西斯科·佛朗哥1去世以后，专制主义在西班牙从未如此活跃。这一切都源于检察院厚脸皮地向行政部门提交一份检察报告。后来，议会以真正令人震惊的“国家警报状态”为借口而沉默。随后，又批准了一项以疫情为借口的”反虚假信息举措“，此举措堪比前总统拉霍伊(Rajoy)在位时的“禁声”措施，让人不由想起佛朗哥独裁专政时期。
 
-那么就算它是十伍代老鼠，一代老鼠5天，对不对
-So even if they are 15 generations of the mouses. A generation needs 5 days, right
+同时，此举措让我们清楚看到，只有异见人士才会被法律拘束。而最近，从表面上看来，副总统伊格莱西亚斯(Iglesias)的嘶吼乱叫仿造川普团队一样，对网络媒体的虚假新闻大肆抨击，而且无论是像安娜·帕斯托（Ana Pastor）这种有进取精神的新闻人物，还是她的同事费雷拉斯（Ferreras），没有人能够在“清算中”幸免于难，清算就是如此。
 
-这也就2个半月时间就可以搞定一个从本来它根本就不认识人的受体的病毒
-That’s only two and a half months to have the viruses that originally did not recognize the human receptor at all
+如果不信，问问“我们能（Podemos）”党派那些被去除的党员就知道了。他们谴责说：反对他们的人都是法西斯主义，从此新的法西斯在以中国制造为伪装的前提下诞生。
 
-转成特别特别喜欢人的受体
-It became to a receptor which is particularly like the human
+漫长的团结-民主-参与-工会-激进主义-生态学是没有任何用处的。我个人也在为上断头台做准备。
 
-一见以后就啪就冲过去，然后死扒着不放的这样一个病毒
-It is a virus that rushes over to the human receptor and won’t let go
+欢迎参与世俗的裁判。
 
-这就是它这个动物传代最可怕的地方
-This is the most terrifying part of this animal serial passage
+**持不同政见的科学家闫博士带来的证据，触碰了全球秩序的底线，因此，她的权利被剥夺也就不足为奇了。**
 
-然后，在实验室把它浓缩，
-Then, ( they ) condensed it in the laboratory
+在这种情况下，记者是干什么的？应该要用他们敏锐的观察视角，在各媒体，扯蛋平台以及当权者之间，为”次真相”作斗争，称之为新的“核查制度”也不赖。
 
-完全浓缩成一个类似自然进化的过程，就是高强度的
-completely condensed into a process that is similar to a natural evolution and that is high intensity
+最近，我有幸采访了在国际上的大名鼎鼎的受害者之一：闫丽梦博士。 或许您们已不记得她的名字了，她是几个月前受Iker Jiménez邀请，参加他的新冠病毒访谈节目的香港病毒科学家。之后，西班牙境内外的主流媒体都对闫博士的咨讯进行严厉打压，让她保持沉默。原因呢？她犯了一个错误，就是寻求像史蒂夫-班农这样有争议人物的庇护，并反对全球卫生官僚主义，最重要的是，敢于揭露一些危机的真相。
 
-然后同时在这个过程当中，已有一些在实验室开始修改过的基因密码,在这个老鼠体内自然而然会发生小小小小的变异
-In the meanwhile, some of the genetic codes that have been modified in the laboratory will naturally undergo a tiny mutation in the mouse body
+至于班农，我不会为他美化形象，他自己有足够的能力证明。但说到全球健康卫生系统的精英们和闫博士对他们的谴责，我确实有话要说。这些不是只是观点，而是经过验证的事实，愿意调查的人都可以从本文中查寻所有的链接。
 
-这个在一定程度上又可以掩盖掉之前在实验室里面人工编辑的一些痕迹
-In certain degree, this can cover up some traces of manual editing in the laboratory
+**很少有人知道，美国人的钱资助了在武汉****的****实验室，其中包括让某些病毒变得更危险，更容易传播的研究**
 
-这个是非常非常狡猾，而且是在整个新冠实验过程设计制作过程当中极为重要的一步
-This is very, very cunning process and is an extremely important step in the entire design and production process of the SRAS-Cov-2 experiment
+我注意到这位持不同政见的科学家闫博士在采访中出示的证据，触碰了全球秩序的底线，因此，她的权利被剥夺也就不足为奇了。
 
-**路德 (Mr. LUDE)**
-那个邓洪奎是做什么的，你能不能说一下？
-What does Dr. Deng Hongkui do, can you tell us about him?
+除了中国之外，某些北美的人和组织也被她瞄准。所以闫博士不只跨越了一条“红线”，而是同时跨越两条“红线”。因此，她被敌人和所谓“朋友”都有所厌恶。
 
-**闫博士 (Dr. Yan)**
-他是这方面的，自然学术期刊公布2019年10大科学人物
-He is the top 10 scientific figures of 2019 announced by Nature Academic Journal in this field
+除了在冠状病毒研究领域享有盛誉的中国科学家石正丽、王林发(Wang Linfa音译)外，还有几位在公共卫生领域享有国际声誉的西方人物也在武汉实验室留下过足迹: 生态健康联盟主席—皮特·打杂客(Peter Daszak)；北卡罗来纳州教授—拉尔夫·巴里奇（Ralph Baric）和美国国立卫生研究院（NIH-NIAID）主任—安东尼·福奇（Anthony Fauci）。
 
-他是唯一入选的中国科学家
-He is the only Chinese scientist who was selected
+很少有人知道，打杂客和福奇用美国人的资金资助了巴里奇和石正丽在武汉的实验，包括致力于病毒“功能性增强”的实验，即让某些病毒变得更加危险并易于传播，“以便更好地潜伏病毒”。2015年，巴里奇成为了倍受争议的对象，因为他将基因工程技术应用于蝙蝠病毒，将其改造成“嵌合”的产卵，不仅能让老鼠半死不活，还能感染人体组织。
 
-他是基因编辑方面非常牛的人物
-He is great figures in gene editing
+现在打杂客正从《柳叶刀》杂志为联合国提供了有关“大重启”政策的建议。巴里奇也从瑞德西韦(Remdesivir)的专利中获利，这是一种被无国界医生组织批评的中共病毒治疗方法，但其利润率高得离谱。至于无所不能的福齐，被里根提升为精英，尽管福奇管理能力有问题，但他一直游梭在美国政府高层里，地位太重要了，当然不能让闫丽梦这样的女孩坏了他的黄粱美梦。
 
-在这里我想强调的也就是说，这些人各有所长
-What I want to emphasize here is that each of these people has its own strengths
+**几乎所有人认同世界卫生组织的国际调研，这显然是一种假象**
 
-他们的独家擅长也好，或者他们广泛合作也好的一些领域都被用在了新冠病毒的创造和设计过程当中
-Either their exclusive expertise or their extensive collaboration was used in the creation and design process of the SARS-CoV-2
+在一个被喜欢琐碎化的新闻行业里，闫博士的2020年9月和10月的两份报告所呈现的谜题过于复杂。 (报告1  2020年9月[https://zenodo.org/record/4028830#.YGwbnegzZPZ](https://zenodo.org/record/4028830#.YHCsdB9KjIU) 报告2  2020年10月[https://zenodo.org/record/4073131#.YHCtCR9KjIU](https://zenodo.org/record/4073131#.YHCtCR9KjIU))
 
-**艾丽 (Ms. Ellie)**
-是啊，这个真的要看到，刚才我听闫博士讲的这个关于传代的问题
-Yeah, this really needs to be seen, just now I heard Dr. Yan talk about the (mouse) series passage
+媒体的导向仍然是以左右、东西、南北对比为基础（在这方面，我们要记住，这个整个事情中还涉及到一个斯里兰卡人，香港巴斯德实验室前主任马利克-佩里斯）。
 
-专门感染了人的ACE2的小老鼠来去传代，这个是非常的邪恶
-Specially infected with the humanized ACE2 mouse to do the series passage. This is very evil
+但活跃的病毒专家们解释模糊，颠覆了这种对立关系的分析范畴，也不符合任何确定的模式。闫博士不是挺川普派，也不是亲拜登派，甚至连性别话题也有争议，当闫博士强调军队里巾帼不让须眉时：提到陈薇将军对病毒学的了解而被提拔上来，被安排在委员会主任的位置上，负责抹去病毒大流行之初武毒所“犯罪”的痕迹。
 
-所以我觉得像今天的Sellin 博士他出来谈这个了
-So, I think Dr. Sellin stood out and talked about this today
+尽管有不可否认的利益关系以及可验证的真实性，但这一错综复杂的情节脚本却被大多数媒体所否定。而且就目前的疫情审查制度，新闻工作者们不想把它拍成纪录片、也没有想把它写成报道，甚至没有想把它写成资料性的文章。过于复杂，也受到威胁，总之，真实得以至于无法将其搬上屏幕展示给观众。几乎每个人都认同世界卫生组织的国际调研，这显然是一种假象，但它让我们暂时的宽心。
 
-特别是讲到生物武器和超限生物武器
-He especially talked about unrestricted Biofarwar and Bioweapon
+注： 1. 朗西斯科·佛朗哥：Francisco Franco: 1936-1975 西班牙国独裁统治时期元首
 
-这个绝对是闫博士首提啊，全世界首提
-This is definitely the first mention by Dr. Yan and the first mention in the world as well
+编辑：Victor Torres；校对:阿伯塔 ；组稿：神奇四侠；发稿：信心的选择
 
-为什么？因为没有把它做成武器，或者它不是用来专门攻击人类
-Why? Because if it wasn’t made into a weapon, or it wasn’t designed to specifically attack human
+**原文链接:** [https://gaceta.es/actualidad/lo-que-no-quieren-que-sepamos-sobre-el-origen-de-la-covid-19-20210310-1536/](https://gaceta.es/actualidad/lo-que-no-quieren-que-sepamos-sobre-el-origen-de-la-covid-19-20210)
+**相关链接:** [https://gaceta.es/actualidad/covid-ano-ii-las-seis-lecciones-que-ya-deberiamos-haber-aprendido-20210311-1007/](https://gaceta.es/actualidad/covid-ano-ii-las-seis-lecciones-que-ya-deberiamos-haber-aprendido-20210311-1007/)
 
-并且使用当作一个超限战的生物武器来对美国和西方国家进行攻击的话
-and use as an unrestricted warfare bioweapon to attack the United States and the West
 
-你就无法给它定罪
-You wouldn’t be able to convict it
 
-所以这个东西最后就会不了了之
-So, this (virus) will just end up in the end
 
-**路德 (Mr. LUDE)**
-对，艾丽女士说得太对了
-Yes, Ellie is so right
-
-**艾丽 (Ms. Ellie)**
-真正地把它坐实，就是生物武器
-To really put it in its spot. it is a bioweapon
-
-而且是通过超限战的模式
-and it is through the mode of unrestricted biowarfare
 
 0

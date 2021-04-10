@@ -1,89 +1,86 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日新闻收集【4/9】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1070521/)
+## 《路德时评》重磅解读《2021年战略竞争法》包含调查病毒来源真相
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1070752/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
-
-中共病毒推特信息分享
+直播视频：
 
 
 
-> Sellin博士给出了中共释放病毒的三种可能状况：
-> 1 故意释放基因编辑改造过的冠状病毒
-> 2 逆转冠状病毒疫苗，使疫苗致病
-> 3 用冠状病毒测试疫苗效果，结果失败
-> 这是“SIXTA”的研判结果吗？乖乖啊😱 [https://t.co/DK8Xh4fcTX](https://t.co/DK8Xh4fcTX)
-> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [April 9, 2021](https://twitter.com/jsdfposjpqyuee1/status/1380402354168623104?ref_src=twsrc%5Etfw)
+《路德时评》2021年4月10日晚间节目主要内容：
 
+一、快讯快评
 
-**`火来战友推特大意`**
-*Sellin博士给出了中共释放病毒的三种可能状况：
- 1 故意释放基因编辑改造过的冠状病毒 
-2 逆转冠状病毒疫苗，使疫苗致病 
-3 用冠状病毒测试疫苗效果，结果失败 这是“SIXTA”的研判结果吗？*
-
-
-> 突然明白为什么中共国强制打疫苗…让所有老人打中国疫苗，是解决破产的养老金制度的好办法啊！ [https://t.co/lRA6M4PAU7](https://t.co/lRA6M4PAU7)
-> — 瞿水台 Qu Shuitai (@QuShuitai) [April 7, 2021](https://twitter.com/QuShuitai/status/1379880693526896649?ref_src=twsrc%5Etfw)
-
-
-**`瞿水台推特`**
-*突然明白为什么中共国强制打疫苗…让所有老人打中国疫苗，是解决破产的养老金制度的好办法啊*
-
-
-> 塞林博士：武毒所的危宏平是被断定的冠状病毒的＂零号病人＂黄艳玲的导师。他与中共军方有联系，包括拥有冠状病毒的备受怀疑的舟山蝙蝠冠状病毒骨干ZC45/ZXC21的解放军第三军医大学！[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/ipkHGPsoCX](https://t.co/ipkHGPsoCX)
-> — 花岗岩 (@graniteofstone) [April 8, 2021](https://twitter.com/graniteofstone/status/1380076724046557189?ref_src=twsrc%5Etfw)
-
-
-**`花岗岩推特`**
-塞林博士：武毒所的危宏平是被断定的冠状病毒的＂零号病人＂黄艳玲的导师。他与中共军方有联系，包括拥有冠状病毒的备受怀疑的舟山蝙蝠冠状病毒骨干ZC45/ZXC21的解放军第三军医大学
-
-
-> Part of my first anonymous revelation of PLA lab-origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) on 19 Jan, 2020, via LuDe Media (English subtitle [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw))
-> I explained to Mr. LuDe for 2 Ds, then he delivered the information in his style. 
-> China gov was forced to conduct a serial actions immediately. [https://t.co/NIUwR96AM8](https://t.co/NIUwR96AM8)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 8, 2021](https://twitter.com/DrLiMengYAN1/status/1380281553029373952?ref_src=twsrc%5Etfw)
-
-
-**`闫博士推特`**
-*认证火来战友的信息*
-
-
-> Dr. Tess Lawrie, Director of the Evidence-Based Medicine Consultancy Ltd., urges people across the world to take charge of their health— even as governments & health authorities ignore evidence showing that ivermectin effectively prevents & treats COVID-19. [#ivermectinSavesLives](https://twitter.com/hashtag/ivermectinSavesLives?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/PJl8G1C5BR](https://t.co/PJl8G1C5BR)
-> — Frontline Covid-19 Critical Care (@Covid19Critical) [April 8, 2021](https://twitter.com/Covid19Critical/status/1380113196992843779?ref_src=twsrc%5Etfw)
-
-
-**`一线重症中共病毒患者监护的推特`**
-*泰斯·劳丽博士可证医学咨询有限公司主任敦促世界各地的人们负责自己的健康——即使**政府和卫生当局**屏蔽了伊维菌素有效预防和治疗中共病毒的证据*
-
-
-> New research out of Switzerland: [pic.twitter.com/vQlL9gsyp4](https://t.co/vQlL9gsyp4)
-> — Dr. Brian Tyson, MD 🇺🇸 (@btysonmd) [April 7, 2021](https://twitter.com/btysonmd/status/1379855518974365697?ref_src=twsrc%5Etfw)
-
-
-**`布莱恩·泰森医学博士推特`**
-*瑞士的新研究图表可见：由于人们使用羟氯喹，导致死亡人数降低三倍，效果明显*
-
-
-> The stopping of HCQ caused increase in death. It is a delayed response. Then the restart of HCQ caused the death rate to go back down.
-> — Dr. Brian Tyson, MD 🇺🇸 (@btysonmd) [April 7, 2021](https://twitter.com/btysonmd/status/1379857273992871936?ref_src=twsrc%5Etfw)
-
-
-**`布莱恩·泰森推特`**
-*HCQ的停止使用导致死亡人数增加。这是一个延迟响应。然后HCQ的重新使用导致死亡率下降*
-
-
-> COVID scandal: Feds ignored 2016 law requiring use of real world evidence [https://t.co/CySlfpqkMp](https://t.co/CySlfpqkMp)
-> — AssocAmerPhys&Surg (@AAPSonline) [April 7, 2021](https://twitter.com/AAPSonline/status/1379876169672101892?ref_src=twsrc%5Etfw)
-
-
-**`私人医生的声音`**
-*中共病毒丑闻：美联储无视2016年要求使用真实世界证据的法律。附极右翼《WND》的**`新闻链接`***：
-*福奇和政府的无视真实数据和法律，这造成了美国人无法使用爆料革命最先推荐的预防中共病毒药物*
+今日，土耳其安卡拉市长因中共在新疆犯下种族灭绝罪表示抗议，土共战狼大使因此辱骂土耳其安卡拉市市长，然后安卡拉市政切断了土共大使馆的水源供给。
 
 
 
+> 土共戰狼大使辱駡土耳其安卡拉市市長，然後安卡拉市政就把土共大使館的水給停了🤣🤣🤣。這種做法在西方主流文（Zhuang）明（Bi）國家看來是比較令人不齒的搞法，但是爲啥我讀著有種莫名的快感呢？ [https://t.co/HNd34ZDkh0](https://t.co/HNd34ZDkh0)
+> — Dr. Bo 🇺🇸🇹🇼🇭🇰 (@BoDiplo) [April 9, 2021](https://twitter.com/BoDiplo/status/1380531412302974980?ref_src=twsrc%5Etfw)
 
-+1
+
+
+路德社评论：
+
+现在，美国及欧洲国家都已经对中共在新疆犯下种族灭绝罪给予实锤定义，土耳其等其他国家在此政治正确的大旗下都会争抢政治利益，这就促使世界各国掀起以人权反共的大潮，中共在此大潮下只有两种选择，要么进行软化，用勾兑的方式解决此事，要么就是采取强硬的战狼外交，中共选择了后者。中共现在就采取强硬到底的方式以外打内，借助外部压力来挑起国内种族主义情绪，进一步推动党内集权。像土耳其这样不怎么守规矩的国家，他们会用其他方式对付中共，甚至还可能断电。
+
+二、《2021年战略竞争法》包含调查病毒来源真相
+
+美国参议院外交委员会发起的《2021年战略竞争法》，其中第214项“新冠疫情大流行报告”要求：
+
+1. 国家情报总监与其他美国政府部门合作，在法案通过后180天内搜集，整理并且提交国会一份有关中共病毒来源的报告……
+
+2. 该报告要包括中共病毒最有可能的来源，美国政府拥有的详细信息，以及武汉病毒研究所或者其他相关机构有关来源，传染力，泄漏等的相关信息。
+
+3. 指明一种最有可能的病毒来源，并且展示如何得到这个结论。
+
+4. 详细介绍美国和世卫组织要求或者得到有关病毒来源的数据……
+
+5. 记录中华人民共和国和中国共产党合作，阻挠或者阻碍对中共病毒来源和传染性调查的行动，包括可能的实验室泄漏，或者制造假信息。其中政府层面信息要包括中央以及地方政府……
+
+6. 详细介绍美国所掌握有关武汉病毒研究所以及相关研究机构对冠状病毒的研究以及功能增强实验，任何实验室工作人员有过类中共病毒的病症以及最终诊断，还有相关冠状病毒研究的时间线……
+
+7. 评估美国和中共国在冠状病毒研究的合作，美国政府在2017年以后为中共国在功能增强实验提供的资金，以及美国政府2014-2017年是否有提供中共国这种资金。
+
+
+
+> 补充[@lude\_media](https://twitter.com/lude_media?ref_src=twsrc%5Etfw) 路德社今早有关《2021年战略竞争法》的重要内容：
+> 
+> 《2021年战略竞争法》第214项“新冠疫情大流行报告”要求：
+> 
+> 1. 国家情报总监与其他美国政府部门合作，在法案通过后180天内搜集，整理并且提交国会一份有关新冠病毒来源的报告…… [pic.twitter.com/tPHl6MzD3T](https://t.co/tPHl6MzD3T)
+> — 李昂纳多 (@RealLiAngNaDuo) [April 9, 2021](https://twitter.com/RealLiAngNaDuo/status/1380635270933053453?ref_src=twsrc%5Etfw)
+
+
+
+路德社评论：
+
+1、《2021年战略竞争法》是由两党联合推出的针对中共且决定美国未来方向的法案，该法案明确要求军情部门要公开与中共病毒有关的所有详细信息，这使得该法案成为一份灭共法案。这份文件更像一份美国政府的爆料提纲，从罗列项目可以很清楚地看到美国军情部门已经掌握了中共病毒的所有情报信息。同时，这是一项情报披露文件，美国具有一定保密级别的政府官员都已经掌握中共病毒的秘密信息，一旦报告正式发布，这些秘密信息将被公开。
+
+2、该法案要求报告披露武毒所中有关中共病毒的所有信息，同时还要求公布最有可能的一项来源，并说明原因。纳瓦罗之所以敢在3月31日公开认定闫博士报告，这就说明关于中共病毒的所有调查和撰写调查报告已经完成，现在只需要补流程。
+
+3、该文件还要公布中共中央政府和地方政府如何阻挠对中共病毒来源和传染性调查的行动，同时军情记者比尔·格茨先生发布了一个重磅推特，他说：“美国务院已经成立反虚假信息部门——全球参与中心，该中心正在世界各地悄无声息地工作，以消除中国共产党在冠状病毒来源方面的虚假信息。”闫博士在第三份报告中重磅提及“超限误导”一词，可见各方在揭露中共病毒真相上进行着紧密合作。
+
+
+
+> State Department Global Engagement Center, the anti-disinformation unit, is working quietly around the world to neutralize Chinese Communist Party disinformation on the coronavirus origin [https://t.co/k6wOb8zGcY](https://t.co/k6wOb8zGcY)
+> — Bill Gertz (@BillGertz) [April 9, 2021](https://twitter.com/BillGertz/status/1380490308643917824?ref_src=twsrc%5Etfw)
+
+
+
+4、这份文件很清楚地告诉大众，中共病毒就是来自中共实验室，并且是经过功能增强型实验改造出来的，要求WHO等部门配合调查，揭露中共在病毒真相上如何进行超限科学误导，这都在向认定中共病毒就是中共发起的一场超限生物武器攻击发推进。
+
+5、路德社重磅爆料：**未来一定会成立总统病毒调查委员会（川普总统此前准备的板砖），拜登政府最关键的人物都在认真研究闫博士报告**。该法案明确规定法案正式生效后的180天内就会出具这份病毒调查报告。
+
+6、美国商务部制裁中共超级计算机的最重要原因就是中共长期利用超级计算机进行生物武器研发，中共也已经意识到事态的严重性，所以战狼外交官赵立坚想联手俄罗斯先发制人，指责美国政府在全世界建造生物实验室。但是，无论中共耍何种伎俩，只要认定舟山蝙蝠病毒就是中共病毒骨架，中共绝不可能逃脱惩罚。因为全世界只有中共军方才拥有舟山蝙蝠病毒，RaTG13就是中共指使石正丽伪造出来蒙骗全世界的假病毒。
+
+7、最新报道称美国两党联合提出的《2021年战略竞争法》将走快速审议通道，一旦通过，将成为正式法案，到时所有调查中共病毒信息的行为都具有强制性与合法性，美国甚至也有权要求中共配合调查，若中共不配合调查，美国就可以直接对中共采取行动，这就相当于美国在911恐怖袭击后通过《反恐法》。
+
+8、该法案正式生效后，中共绝不可能接受病毒调查，这时美国就能采取美元脱钩、将中共踢出Swift美元结算系统等制裁措施，如果中共依然不屈服，那美国将联合盟友采取强力手段向中共追责。
+
+[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+
+文章撰写：【重生】  编辑：【香柏树】
+
+0
