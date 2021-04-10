@@ -1,59 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104010（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1073530/)
+## 这叫“变相喊疼”
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1073505/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+#### 作者：斩草要除根
 
+原文主体意思是：习近平指出要加快形成能源节约型社会，需要鼓励全民参与，倡导勤俭节约的消费观，简约适度、绿色低碳的生活方式，反对奢侈浪费和不合理消费；推动科技创新，推动能源技术从引进跟随向自主创新转变；健全评价体系，推动其加强节能管理。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+#### 简评：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04.jpg)
+**习近平为什么提能源节约，说明目前中共国的能源形势非常严峻。首要问题是能源短缺，原油、天然气、煤炭都大量依赖进口；其次就是能源安全危机，2020年中共国限制澳洲煤进口出现的限电、电荒就闹了一出“卡别人脖子。自己翻白眼的”的笑话，第三能源短缺和能源安全并存的是能源高消耗所带来的环境风险，中共国的雾霾天就是环境污染最明显的例子。**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-1-2.jpg)
+**再来说一下能源技术水平：无论是核电技术、风力设备产业链、风电场设计和智能运维技术，或者是太阳能光、化学利用技术、或者是非常规油气探测技术、智能传感技术和清洁煤炭燃烧利用技术到污染物排放技术这些领域的自主创新能力都是不足和落后的。**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-2-2.jpg)
+**看待中共国里的新闻应该抱着”好事看一半，坏事三倍算”态度，个人觉得这篇新闻稿谈论的都是表面的，其隐藏在背后的真相其实很简单世界对中国的“卡脖子”已经从“点”开始形成了对“片”的影响。倡导勤俭节约”的意思是我们目前缺油少煤老百姓都来当着点；“推动科技创新”的意思是技术引进的路也走不动了，偷不成也买不到。借用中共外交部经常说的那句“搬起石头砸自己的脚”的话送还给中共，顺便加一句：谁疼谁知道。**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-3-2.jpg)
+**新闻来源链接**：🔗[**加快形成能源节约型社会**](http://www.xinhuanet.com/energy/2021-04/07/c_1127301240.htm)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-4-2.jpg)
+**参考文献链接：**🔗[我国能源技术革命体系战略研究](http://www.engineering.org.cn/ch/10.15302/J-SSCAE-2018.03.001)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-5-2.jpg)
+* * *
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-6-2.jpg)
+***审核/校对：****Ting Guo*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-7-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-8-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-1-3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-2-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-3-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-4-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-5-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-6-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-7-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-8-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-9-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-10-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-11-7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-12-2.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
+（免责声明：本文仅代表译者个人观点，跟GNEWS平台无关。）
 
 0
