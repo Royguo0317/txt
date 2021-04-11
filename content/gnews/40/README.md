@@ -1,59 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104010（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1073530/)
+## 2021年4月9日秘翻快报【头条新闻】
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1073944/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+新闻总结：
 
+***1.***清明节的武汉***32***万人挤满陵园
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+***2.***美国国务院发言人：对台湾的承诺“坚如盘石”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04.jpg)
+***3.***台湾外交部长吴钊燮称：面对中共台湾将奋战到底
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-1-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-2-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-3-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-4-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-5-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-6-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-7-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-8-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-1-3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-2-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-3-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-4-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-5-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-6-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-7-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-8-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-9-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-10-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-11-7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-12-2.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
+***4. GNEWS***文摘《中共大外宣在***YouTube***等自媒体宣称新疆维吾尔族过上好日子》
 
 0

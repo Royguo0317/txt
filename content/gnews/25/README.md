@@ -1,28 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疫苗有没有效，抗体说了不算，中宣部说了才算！疫苗与“灭白计划”有关？
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1073972/)
+## 50名武警突袭《叛逆新闻》记者Airbnb所租船房
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1074190/)
 
-作者：Stephen文文
+**阿黎**
 
-据中共央广网4月8日消息，中共卫健委不建议接种后进行常规检测抗体作为免疫成功与否的依据。翻译成人话也就是说，注射了中共疫苗以后不能以是否产生抗体作为疫苗是否有效的依据！疫苗是否有效不是你个人说的算，而是中共说有效就有效！为了维持其疫苗祸害世界的计划，中共已经完全进去疯癫，说胡话的状态了。
+4月10日，大约50名全副武装的警察周六突袭了《叛逆新闻》（Rebel News）为报道反封锁抗议活动设在船上的临时新闻报道总部，船房是从Airbnb租借的，船停泊在蒙特利尔的一个港口。
 
-目前绝大多数民众都知道通常COVID-19疫苗防止感染的原理都是通过诱导人体产生针对SARS- CoV-2的中和抗体，而只有人体产生了中和抗体，才能中和掉进入人体的病毒，保护人体免受伤害。中共卫健委则不认为将抗体产生与否作为疫苗是否有效的判断依据，这是赤裸裸的反科学、反智主义愚民宣传。那么也请问中共卫健委，如果抗体不能作为疫苗是否有效的判断依据之一，那么什么才可以作为疫苗有效与否的标准呢？
 
-中共在2020年底还在大肆宣扬自己疫苗的抗体转阳率高，将抗体作为有效率的依据，而仅仅三个月以后就来个180度大转弯，不将抗体作为有效性依据了！说明中共捂不住自己的假话了。在疫苗临床试验阶段，接种疫苗的人少，是否产生抗体，中共都能控制住，毕竟数据都在自己手里，想怎么宣传都可以。但是，大规模接种阶段，由于接种的普通民众数量大，民众自己去做抗体检测容易，那么中共疫苗的真实抗体转阳率低的事实就比较难隐瞒了。所以中共卫健委才急着跳出来宣扬不建议去进行抗体检测。也反证了中共疫苗的有效率低的问题。2020年12月，中共还在宣传其国药集团病毒灭活疫苗Ⅲ期临床试验数据显示中和抗体阳转率为99.52%！既然这么高的中和抗体转阳率，为什么要怕民众去检测抗体？
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/041101.jpg)
+> BREAKING: 50 Armed Police Raid Rebel News ([@RebelNewsOnline](https://twitter.com/RebelNewsOnline?ref_src=twsrc%5Etfw)) Reporters Airbnb, Arrest Them for 'Illegal Gathering' (VIDEOS) [https://t.co/nofe9vfmlS](https://t.co/nofe9vfmlS) [@ezralevant](https://twitter.com/ezralevant?ref_src=twsrc%5Etfw) [@TheRealKeean](https://twitter.com/TheRealKeean?ref_src=twsrc%5Etfw)
+> — Cassandra Fairbanks (@CassandraRules) [April 10, 2021](https://twitter.com/CassandraRules/status/1380998125855371271?ref_src=twsrc%5Etfw)
 
-除了中共疫苗的有效率低的问题，疫苗对性功能的影响也绝对不能小觑。中共4月9日辟谣称疫苗不会影响性功能。在题目为《新冠疫苗注射后真会影响性功能？尚无类似相关报道》的文章中称因为刘某曾与社区工作人员产生矛盾，因此造谣疫苗影响性能泄愤。中共的“辟谣”基本上等于是官宣，就像疫情初期中共“辟谣”病毒人传人一样。值得注意的是互联网诊疗平台上关于接种疫苗后性功能影响的咨询多了起来。可见不少接种了中共疫苗以后的人已经产生了性功能障碍问题。
 
-中共明知疫苗会影响性功能，还在大专院校中强推疫苗接种，这是在阉割民族未来！中共的邪恶可见一斑。我们还不知道除了中共疫苗外，辉瑞、Moderna、阿斯利康疫苗是否同样存在对性功能的影响，如果有的话，那么疫苗也应是中共“灭白计划”的一部分！
 
-[援引原文](https://3g.163.com/dy/article/G6O67MAN0536RWBA.html)
-[援引原文2](https://view.inews.qq.com/a/20201230A05Z3J00)
-[援引原文3](https://m.sohu.com/a/459636758_362042/?pvid=000115_3w_a)
+魁北克从复活节开始封城，于是人们上街示威反封城。《叛逆新闻》事先在Airbnb预定了船房，做为他们的新闻报道临时总部。警方得到消息后，派大批警察前来封锁，并逮捕了该媒体的记者。
 
-审核校对：鲁邦五世
-上传排版：糖果儿
 
-0
+
+> Montreal Police assaulted and brutally arrested David Menzies. [@RebelNewsOnline](https://twitter.com/RebelNewsOnline?ref_src=twsrc%5Etfw) Head to [https://t.co/nR2Ow1VfjH](https://t.co/nR2Ow1VfjH) for full report. [pic.twitter.com/YkJXLWET4T](https://t.co/YkJXLWET4T)
+> — Mocha Bezirgan (@BezirganMocha) [April 10, 2021](https://twitter.com/BezirganMocha/status/1380962642911760389?ref_src=twsrc%5Etfw)
+
+
+
+警方用警用红色胶带从外围封住了记者所在的AirBnb船只，他们说这是一个’犯罪现场’。” 当记者问警察他们究竟犯了什么罪时，警察能想到的就是我们住在酒店里是非法’集会’，违反了魁北克省的封锁规定。”事实上，《叛逆新闻》的人数比设施所设计的容量要少。”
+
+
+
+> Montreal police don’t have their search warrant yet. So they have deemed our Airbnb a crime scene. I’m not sure what they’re searching for — we have obviously uploaded our footage. They’re dragging it out to stop our work. So I shared my thoughts with them directly. [pic.twitter.com/BsErpxSJN5](https://t.co/BsErpxSJN5)
+> — Ezra Levant 🍁 (@ezralevant) [April 10, 2021](https://twitter.com/ezralevant/status/1380956658306793477?ref_src=twsrc%5Etfw)
+
+
+
+《叛逆新闻》创始人Ezra Levant指出，”这是蒙特利尔的警察，他们已经骚扰和殴打我们的记者好几周了。他们在报复，因为我们报道了他们的不当行为”。他还说，他遭到了警察的粗暴对待。
+
+艾兹拉-利宛特还说，蒙特利尔的腐败警察把我们从Airbnb赶了出来。现在他们将进去，在没有任何观察员的情况下，对房间进行搜查。我担心他们会栽赃毒品、武器或其他违禁品。
+
+《叛逆新闻》的主要记者大卫-蒙西斯（David Menzies)在与警察的争执中，被警察推搡，然后被数名警察粗暴地扭至警车旁，戴上手铐，扔到车后座里。
+
+推特上一个名为“Joe Warmington”的帐户发推说，如果记者无法做好自己的工作，就不再是一个自由的国家。
+
+另一个名为“the Ikonian ”的推特帐户发推说，如果法院不阻止政府和警察的这种行为，那么我们就完蛋了，我们需要移到法律和权利重要的地方。
+
+令人兴奋的是，几小时后，传来了巨大的好消息！蒙特利尔的警察无法让法官批准他们的搜查令！蒙特利尔的警察怂了！
+
+
+
+> 🚨HUGE VICTORY🚨 
+> 
+> Montreal’s police could not get a judge to approve their search warrant! They blinked!
+> 
+> David Menzies is being released from his illegal arrest!
+> 
+> The police have run away from the “crime scene!
+> 
+> I’m back in!
+> 
+> Viva le Quebec libre![https://t.co/roDg8jvAa1](https://t.co/roDg8jvAa1) [pic.twitter.com/WSvXZplsGG](https://t.co/WSvXZplsGG)
+> — Ezra Levant 🍁 (@ezralevant) [April 10, 2021](https://twitter.com/ezralevant/status/1381028608752369666?ref_src=twsrc%5Etfw)
+
+
+
+大卫-蒙西斯被非法逮捕释放了!警察从 “犯罪现场 “逃跑了!大卫回来了!
+
+蒙特利尔的法院没有沦陷，他们坚持正义，这的确是令人鼓舞的消息。加拿大还是有希望的。
+
++1

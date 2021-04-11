@@ -12,168 +12,168 @@
 
 ---
 
-### [面对病毒暴政 为何保持沉默](/content/gnews/1/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [美针对台湾问题明确化两指标](/content/gnews/2/README.md)
- ` G-NEWS TAIWAN`
-
-### [英国推出欢迎香港人定居计划](/content/gnews/3/README.md)
+### [拜登政府将日本置于美国亚洲政策的中心](/content/gnews/1/README.md)
  ` HimalayaRussia`
 
-### [郭先生0409VI美国与日、英、印合作灭掉共产党是唯一选择](/content/gnews/4/README.md)
- ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
+### [视频中共疫苗新骗术：吹嘘中共疫苗一针难求，忽悠中国老百姓打“免费”疫苗，这可能是真的吗？](/content/gnews/2/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [美国《2021战略竞争法》目录部分](/content/gnews/5/README.md)
+### [视频3/31/2021 不打疫苗将成「黑户」 中共各类恐怖规定曝光](/content/gnews/3/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [欧盟提议与美国暂停六个月关税](/content/gnews/4/README.md)
  ` HimalayaRussia`
 
-### [糟糕：苹果公司的蒂姆•库克抨击佐治亚州的选民身份法，因他站在中共一边删除了香港自由示威者使用的应用程序](/content/gnews/6/README.md)
+### [视频3/30/2021郭先生直播重点：关于“防骗”和G系列汇款问题四个要点](/content/gnews/5/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [美国两栖攻击舰加入在南中国海的航母群](/content/gnews/6/README.md)
  ` 康州盘古喜马拉雅农场`
 
-### [【日本：世界进步的关键2】日本半导体产业为何无法重振雄风？](/content/gnews/7/README.md)
+### [阿里被罚182亿相当于年净利润率12%](/content/gnews/7/README.md)
+ ` HimalayaRussia`
+
+### [055提早脱离编队极速回撤，抛下形只影单的辽宁号南海作秀](/content/gnews/8/README.md)
  ` G-NEWS TAIWAN`
 
-### [【世事解评】CCP病毒疫苗黑手伸向12-15岁青少年](/content/gnews/8/README.md)
+### [视频3/29/2021 连钟南山都不敢给疫苗打包票](/content/gnews/9/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频【字幕】4/10/2021文贵盖特：共产党的战狼外交，为什么迅速地变成了疯狗外交？人人喊打？](/content/gnews/10/README.md)
  ` 纽约香草山MOS01`
 
-### [美《2021战略竞争法》第214节关于中共病毒溯源](/content/gnews/9/README.md)
+### [面对病毒暴政 为何保持沉默](/content/gnews/11/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [美针对台湾问题明确化两指标](/content/gnews/12/README.md)
+ ` G-NEWS TAIWAN`
+
+### [英国推出欢迎香港人定居计划](/content/gnews/13/README.md)
  ` HimalayaRussia`
 
-### [郭先生0409V中共治下中国人的精神疾病和精神萎靡无法想象](/content/gnews/10/README.md)
+### [郭先生0409VI美国与日、英、印合作灭掉共产党是唯一选择](/content/gnews/14/README.md)
  ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
 
-### [缅甸军政府两日内杀害80余名平民](/content/gnews/11/README.md)
+### [美国《2021战略竞争法》目录部分](/content/gnews/15/README.md)
  ` HimalayaRussia`
 
-### [每日新闻收集【4/10】](/content/gnews/12/README.md)
+### [糟糕：苹果公司的蒂姆•库克抨击佐治亚州的选民身份法，因他站在中共一边删除了香港自由示威者使用的应用程序](/content/gnews/16/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [【日本：世界进步的关键2】日本半导体产业为何无法重振雄风？](/content/gnews/17/README.md)
+ ` G-NEWS TAIWAN`
+
+### [【世事解评】CCP病毒疫苗黑手伸向12-15岁青少年](/content/gnews/18/README.md)
+ ` 纽约香草山MOS01`
+
+### [美《2021战略竞争法》第214节关于中共病毒溯源](/content/gnews/19/README.md)
+ ` HimalayaRussia`
+
+### [郭先生0409V中共治下中国人的精神疾病和精神萎靡无法想象](/content/gnews/20/README.md)
+ ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
+
+### [缅甸军政府两日内杀害80余名平民](/content/gnews/21/README.md)
+ ` HimalayaRussia`
+
+### [每日新闻收集【4/10】](/content/gnews/22/README.md)
  ` wenwu`
 
-### [【香港要闻】香港「阿布泰」现象与黄色经济圈（上）](/content/gnews/13/README.md)
+### [【香港要闻】香港「阿布泰」现象与黄色经济圈（上）](/content/gnews/23/README.md)
  ` 喜馬拉雅-粵語組`
 
-### [郭先生0409IV我们的人生里面最精彩的是接受挑战并赢得挑战](/content/gnews/14/README.md)
+### [郭先生0409IV我们的人生里面最精彩的是接受挑战并赢得挑战](/content/gnews/24/README.md)
  ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
 
-### [50名武警突袭《叛逆新闻》记者Airbnb所租船房](/content/gnews/15/README.md)
+### [50名武警突袭《叛逆新闻》记者Airbnb所租船房](/content/gnews/25/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [【班农战斗室】861.862.863期简讯](/content/gnews/16/README.md)
+### [【班农战斗室】861.862.863期简讯](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [人民币的没落和G币的腾飞](/content/gnews/17/README.md)
+### [人民币的没落和G币的腾飞](/content/gnews/27/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [郭先生0409III七哥担心SEC抗议的战友不注意病毒和走错门](/content/gnews/18/README.md)
+### [郭先生0409III七哥担心SEC抗议的战友不注意病毒和走错门](/content/gnews/28/README.md)
  ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
 
-### [一言惊醒“梦中人”——墙内朋友圈惊现奇闻，点评中共国“四面楚歌”](/content/gnews/19/README.md)
+### [一言惊醒“梦中人”——墙内朋友圈惊现奇闻，点评中共国“四面楚歌”](/content/gnews/29/README.md)
  ` CANTONESE工作室`
 
-### [郭先生0409II爆料革命扭转了被中共彻底毁掉的中国人形象](/content/gnews/20/README.md)
+### [郭先生0409II爆料革命扭转了被中共彻底毁掉的中国人形象](/content/gnews/30/README.md)
  ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
 
-### [由中共北斗掉线引发的血案 浅谈事件背后真相（一）](/content/gnews/21/README.md)
+### [由中共北斗掉线引发的血案 浅谈事件背后真相（一）](/content/gnews/31/README.md)
  ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
 
-### [《路德社》精选新闻简讯：阿里巴巴被中共市场监管总局罚款182亿人民币](/content/gnews/22/README.md)
+### [《路德社》精选新闻简讯：阿里巴巴被中共市场监管总局罚款182亿人民币](/content/gnews/32/README.md)
  ` 路德社精选`
 
-### [郭先生0409I SEC抗议是首次规模性维护国人自己合法权益](/content/gnews/23/README.md)
+### [郭先生0409I SEC抗议是首次规模性维护国人自己合法权益](/content/gnews/33/README.md)
  ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
 
-### [“一带一路”债务陷阱使吉布提对中共热情不在](/content/gnews/24/README.md)
+### [“一带一路”债务陷阱使吉布提对中共热情不在](/content/gnews/34/README.md)
  ` 秘密翻译组G-Translators`
 
-### [疫苗有没有效，抗体说了不算，中宣部说了才算！疫苗与“灭白计划”有关？](/content/gnews/25/README.md)
+### [疫苗有没有效，抗体说了不算，中宣部说了才算！疫苗与“灭白计划”有关？](/content/gnews/35/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中共官员以健康为由试图躲避COVID-19疫苗接种：文件泄露](/content/gnews/26/README.md)
+### [中共官员以健康为由试图躲避COVID-19疫苗接种：文件泄露](/content/gnews/36/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国即将面临粮食安全问题](/content/gnews/27/README.md)
+### [中共国即将面临粮食安全问题](/content/gnews/37/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [中共如何利用病毒给韭菜们洗脑](/content/gnews/28/README.md)
+### [中共如何利用病毒给韭菜们洗脑](/content/gnews/38/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [视频【字幕】4/9/2021文贵盖特：为什么中国只有混家 骗家，没有企业家](/content/gnews/29/README.md)
+### [视频【字幕】4/9/2021文贵盖特：为什么中国只有混家 骗家，没有企业家](/content/gnews/39/README.md)
  ` 纽约香草山MOS01`
 
-### [2021年4月9日秘翻快报【头条新闻】](/content/gnews/30/README.md)
+### [2021年4月9日秘翻快报【头条新闻】](/content/gnews/40/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【战友心声】扭曲的社会体制——浅谈发生在我身边的人和事](/content/gnews/31/README.md)
+### [【战友心声】扭曲的社会体制——浅谈发生在我身边的人和事](/content/gnews/41/README.md)
  ` 纽约香草山MOS03`
 
-### [视频【字幕】4/9/2021文贵盖特：与战友们分享为G翻身设计新系列产品选择布．皮料的感觉！](/content/gnews/32/README.md)
+### [视频【字幕】4/9/2021文贵盖特：与战友们分享为G翻身设计新系列产品选择布．皮料的感觉！](/content/gnews/42/README.md)
  ` 纽约香草山MOS01`
 
-### [对强生疫苗产生不良反应后，第二个疫苗接种站点停止运营 &nbsp;](/content/gnews/33/README.md)
+### [对强生疫苗产生不良反应后，第二个疫苗接种站点停止运营 &nbsp;](/content/gnews/43/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【热点播报】美国放宽美国官员与台湾官员自由会晤的权限](/content/gnews/34/README.md)
+### [【热点播报】美国放宽美国官员与台湾官员自由会晤的权限](/content/gnews/44/README.md)
  ` 纽约香草山MOS01`
 
-### [台湾准备在南海击落中共无人机](/content/gnews/35/README.md)
+### [台湾准备在南海击落中共无人机](/content/gnews/45/README.md)
  ` HoustonLitstar`
 
-### [真实信息和错误信息—关于冠状病毒起源](/content/gnews/36/README.md)
+### [真实信息和错误信息—关于冠状病毒起源](/content/gnews/46/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [英国早在12月份就计划使用新冠证书](/content/gnews/37/README.md)
+### [英国早在12月份就计划使用新冠证书](/content/gnews/47/README.md)
  ` 喜马拉雅巴黎七星农场`
 
-### [这叫“变相喊疼”](/content/gnews/38/README.md)
+### [这叫“变相喊疼”](/content/gnews/48/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [【时事解析】瓮中之鳖不手软，日本印尼达协议](/content/gnews/39/README.md)
+### [【时事解析】瓮中之鳖不手软，日本印尼达协议](/content/gnews/49/README.md)
  ` HoustonLitstar`
 
-### [慧眼看世界202104010（图片新闻）](/content/gnews/40/README.md)
+### [慧眼看世界202104010（图片新闻）](/content/gnews/50/README.md)
  ` 神奇四侠`
 
-### [视频3/27/2021郭先生直播: 爆料革命的战友要有辨别真假的能力](/content/gnews/41/README.md)
+### [视频3/27/2021郭先生直播: 爆料革命的战友要有辨别真假的能力](/content/gnews/51/README.md)
  ` 秘密翻译组G-Translators`
 
-### [中国是水电大国|令邻国感到烦恼](/content/gnews/42/README.md)
+### [中国是水电大国|令邻国感到烦恼](/content/gnews/52/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [视频【路德时评粤语快报】04.09：美国参议院提出两党灭共法案《2021年战略竞争法案》 中共喉舌新闻联播加强反美宣传](/content/gnews/43/README.md)
+### [视频【路德时评粤语快报】04.09：美国参议院提出两党灭共法案《2021年战略竞争法案》 中共喉舌新闻联播加强反美宣传](/content/gnews/53/README.md)
  ` 喜馬拉雅-粵語組`
 
-### [视频3/27/2021郭先生直播: 中共控制世界和绑架中国人民的计划在过去70年里从未停止！](/content/gnews/44/README.md)
+### [视频3/27/2021郭先生直播: 中共控制世界和绑架中国人民的计划在过去70年里从未停止！](/content/gnews/54/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频【字幕】4/8/2021文贵盖特：美国解除伊朗的制裁，要查清共产党的病毒的真相](/content/gnews/45/README.md)
+### [视频【字幕】4/8/2021文贵盖特：美国解除伊朗的制裁，要查清共产党的病毒的真相](/content/gnews/55/README.md)
  ` 纽约香草山MOS01`
-
-### [【战友心声】跟着共产党快步走进火葬场](/content/gnews/46/README.md)
- ` 纽约香草山MOS03`
-
-### [【文贵视角】美国人已经相信能灭共](/content/gnews/47/README.md)
- ` 秘密翻译组G-Translators`
-
-### [“沮丧 失望和愤怒”德国四分之一的餐厅正面临灭亡](/content/gnews/48/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [GPS掉线会迷路 北斗掉线会没命（二）](/content/gnews/49/README.md)
- ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
-
-### [中产阶级拥有房屋的梦想正在破灭](/content/gnews/50/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [【热点播报】中共对阿里巴巴罚款182.28亿元，这笔特殊“党费”能否让马云保命？](/content/gnews/51/README.md)
- ` 纽约香草山MOS02`
-
-### [投资或帮助中共研发/投放超限生物武器的洋魔鬼们](/content/gnews/52/README.md)
- ` 喜马拉雅巴黎七星农场`
-
-### [中共官方首次承认中共病毒疫苗效率低下](/content/gnews/53/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [情况非常严峻 每天都很重要](/content/gnews/54/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [喀秋莎新闻参考- 2021年4月9日(星期五)](/content/gnews/55/README.md)
- ` HimalayaRussia`
 
