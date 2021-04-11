@@ -1,15 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月10日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1076915/)
+## 韩国恩典农场线下宣传中共病毒真相活动二
+` 恩典农场` [轉載自GNews](https://gnews.org/zh-hans/1076689/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+作者：追着曙光跑 校对：瑞沃路森
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4月10日第一个.jpg)
+韩国时间4月10日下午恩典农场线下战友们在首尔光华门宣传共产党病毒真相活动。
 
-4月10号：我们昨天的现在时间同一个．发生了很多很多的事情，这个世界在巨变中！新中国联邦人是世界上最大的获益者！也是最伟大的群体之一！
-![]()![](https://gnews.org/wp-content/uploads/2021/04/5f6c2943144f2ac320cb626cf73c96ec.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/6b1d5fadcaa14b402cbb5a0fa5a646a5.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/7da2b39c1791371e31ad4843c629b984.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/7fa6846a64e543b0b2a1ede900145e82.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/84f42aa9e9933ddb51fa68017df0512a.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/5882b9c6873d0a2c6a1da6b7b2b7dfff.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/e75d92a1834aff113c9f92cf81f90195.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/e7896f1ac03c3238fe3d96f32419503f.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/f942079f34d95f004e723461ddb3119a.jpg)
-[【2021年4月10日】文贵先生盖特原文](https://gtv.org/getter/6071a58edbc8001854a742e7)
+为了让更多的普通民众知道病毒的真相，韩国恩典农场线下的战友们每个星期六宣传中共病毒真相活动如期举行。下面的图片是战友们4月10日在首尔光华门的宣传中共病毒真相活动。战友们用英语和韩语进行宣传。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4月10日第二.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/4月10日第三.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/4月10日哈恩姐-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/4月10日路森.jpg)
+下图是瑞沃路森战友在向现场的警察讲解中共病毒以及中共不等于中国人的真相。韩国警察作为当地的执法机关的成员之一，能够走进他们的视野也意味着新中国联邦和爆料革命的传播范围越来越广。中共病毒真相和中共的邪恶本质会被越来越多的民众知道。推翻中共，指日可待！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4月10日路森解释病毒真相.jpg)
+如有韩国境内的战友想参加宣传活动，韩国恩典农场义工报名电话：010-7591-5041，欢迎韩国境内的战友们踊跃参加。
 
-**喜联盟Gnews编辑部**
-
-0
++1
