@@ -1,69 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 50名武警突袭《叛逆新闻》记者Airbnb所租船房
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1074190/)
+## 郭先生0409IV我们的人生里面最精彩的是接受挑战并赢得挑战
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1074237/)
 
-**阿黎**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-35.jpg)
+编辑整理：
 
-4月10日，大约50名全副武装的警察周六突袭了《叛逆新闻》（Rebel News）为报道反封锁抗议活动设在船上的临时新闻报道总部，船房是从Airbnb租借的，船停泊在蒙特利尔的一个港口。
+伦敦喜庄园：万物归一&杯酒渐浓；日本东京方舟农场：山川异域
 
+郭文贵先生在2021年4月9日的直播中谈到了SEC抗议是中国人第一次规模性维护自己合法权益的行动；谈到了爆料革命扭转了被中共彻底毁掉的中国人的形象；谈到了爆料革命唤醒世界让灭共由不可能变成必须等内容，本系列将根据郭先生在直播中涉及的不同方面逐一上传，以下为本系列第四部分——我们的人生里面最精彩的是接受挑战并赢得挑战
 
+据[4月9日 文贵直播：中共的意淫反而将帮助更快灭共；国内富豪都是复制偷窃技术，不是企业家；美国只能与英日印合作联合灭共；中共控制比特币，人民币数字化，消灭美元；美国人已经相信能灭共](https://gtv.org/video/id=607053ef6e11a756eddd33df)时间点43：41——
 
-> BREAKING: 50 Armed Police Raid Rebel News ([@RebelNewsOnline](https://twitter.com/RebelNewsOnline?ref_src=twsrc%5Etfw)) Reporters Airbnb, Arrest Them for 'Illegal Gathering' (VIDEOS) [https://t.co/nofe9vfmlS](https://t.co/nofe9vfmlS) [@ezralevant](https://twitter.com/ezralevant?ref_src=twsrc%5Etfw) [@TheRealKeean](https://twitter.com/TheRealKeean?ref_src=twsrc%5Etfw)
-> — Cassandra Fairbanks (@CassandraRules) [April 10, 2021](https://twitter.com/CassandraRules/status/1380998125855371271?ref_src=twsrc%5Etfw)
+帕提亚，帕提亚，这乱聊乱聊啊，所以说兄弟姐妹们，当你生人经历这个时候，我想再跟大家聊一个其它的今天的话题，我们的人生里面什么样东西是最精彩的？什么东西最精彩的？告诉大家，**我活到今天我所有经历过的事情到今天为止最最精彩的就是你接受挑战，并赢得这次挑战，一次又一次的挑战。当你接受挑战赢得挑战的时候实际上给你自己留下最重要的就是什么，你的勇气、你的勇敢和你的正义感。一次一次经过锤炼后，就是留在你生命中的钻石和黄金。**
 
+大家去看一看，英国皇室、所有的西班牙皇室、日本皇室评价一个人的时候不是你有没有钱，也不是你有没有权，他们看任何一个人只有一个评价结果——这个人是否有勇气。勇气几乎是男人和女人最后被评价的最高的境界，也就是贵族的气质，有勇气你再有正义，你就是完美的神在人间！**如果有勇气、有正义你再有能力，你就是神中之神，你可以代表上帝了！**
 
+我们恰恰的中国人缺乏的是勇气更不能谈上正义，你看看现在举国上下，昨天我看到有战友说国内利益阶层也就是共产党它绝对不想让这些老百姓们知道真相，然后卖给你的叫爱国主义、卖给你的叫奉献和牺牲，还有九指妖卖给你是佛祖上帝和正义和真相，永远卖你这东西，永远抓不着摸不着，就这帮孙子Low到极点。
 
-魁北克从复活节开始封城，于是人们上街示威反封城。《叛逆新闻》事先在Airbnb预定了船房，做为他们的新闻报道临时总部。警方得到消息后，派大批警察前来封锁，并逮捕了该媒体的记者。
+就是你看那个九指妖从开始到今天那个谎言到啥程度，她跟SEC通话，你去你大爷的这个烂货！你咋轮到你和SEC对话，你和SEC对话你给我看看。就这种谎言，她卖给你正义、上帝、神、公平，这就是所谓的统治你、欺骗你。
 
+被愚弄的傻子们，也就是国内的小粉红，也就是奴隶们，这些奴隶们最重要的事情，他不能让你剥削、被剥夺他的无知的权利、愚昧的权利，实际上是自己不敢面对现实，但是你但凡告诉真相的时候两边全都不愿意、都要攻击你，那就是我们新中国联邦，因为我们具备了这两边都没有的正义、勇气，如果再加上我们的无私，再加上我们的行动能力，那他们都没有。
 
+共产党有行动能力吗？一个国家十几亿人口的国家，这么大一个国家弄成这个德行的，让全世界仇恨、痛恨、厌恶，变成世界上的一口痰的民族，恶心不恶心，你怎么把国家经营的。第二，这么大的一个国家，把自己的私生子孙家人弄到国外去生存，在自己的国都不能生存，你觉得活得这是正常吗？你是赢家吗？在全世界上除了像狗一样疯狗地乱喊乱叫，有一点贵族精神吗？勇气？正义？行动能力？连自己都非常清楚，是在一个国家99％的人都是你的敌人，你还都没有勇气面对真相，有勇气吗？中国人民就更不用说了，就更别说啦。
 
-> Montreal Police assaulted and brutally arrested David Menzies. [@RebelNewsOnline](https://twitter.com/RebelNewsOnline?ref_src=twsrc%5Etfw) Head to [https://t.co/nR2Ow1VfjH](https://t.co/nR2Ow1VfjH) for full report. [pic.twitter.com/YkJXLWET4T](https://t.co/YkJXLWET4T)
-> — Mocha Bezirgan (@BezirganMocha) [April 10, 2021](https://twitter.com/BezirganMocha/status/1380962642911760389?ref_src=twsrc%5Etfw)
+那么在这种情况我们要看到的事情，就是我们这几天在华盛顿、在纽约看到的这些人的身上出来的、中国人的内在的、最美好的一面——勇气、正义、行动能力，还有对信仰的坚持。这就是新中国联邦，这就是我们追求的，这就是我们想要的，这就是我们中国人未来在中国、全世界要展示的中国人的形象。
 
+为什么说香港是我们圣城啊？香港人具备了这一切的特质，一切的特质，这一切都有！一切的特质，所以说我们尊敬香港、我们爱香港，香港是我们的圣城。到今天的时候我们看一看，又有多少人能活得像个人样，能有个基本判断、能有个基本的坚持。
 
+这些天这么多战友给我发信息请教这个、请教那个。我不敢说请教，我说我不敢被任何人请教，我也不想说教给任何人，我从小最恨的就是说教，那么我现在我想说的事情，就是我分享我这些人生中成长过来的经历。包括喝醉酒以后走错门号以后的感觉啊，哈哈，那感觉是挺好，但是不能老来啊，这不行啊，呵呵。
 
-警方用警用红色胶带从外围封住了记者所在的AirBnb船只，他们说这是一个’犯罪现场’。” 当记者问警察他们究竟犯了什么罪时，警察能想到的就是我们住在酒店里是非法’集会’，违反了魁北克省的封锁规定。”事实上，《叛逆新闻》的人数比设施所设计的容量要少。”
+所以说兄弟姐妹们，当今天我们看到这些的时候，我们真要珍惜新中国联邦、真要珍惜我们的爆料革命，还有我们的所有兄弟战友们带给我们这些最最重要和谁都忽视的、谁都不知道它价值的这些最最重要的美好行动。它在中国、在世界、在任何地方都将带给我们一代又一代人无穷无尽的骄傲，会成为一个生动的教科书。
 
+接上文——
 
+[郭先生0409I SEC抗议是首次规模性维护国人自己合法权益](https://gnews.org/zh-hans/1074065/)
 
-> Montreal police don’t have their search warrant yet. So they have deemed our Airbnb a crime scene. I’m not sure what they’re searching for — we have obviously uploaded our footage. They’re dragging it out to stop our work. So I shared my thoughts with them directly. [pic.twitter.com/BsErpxSJN5](https://t.co/BsErpxSJN5)
-> — Ezra Levant 🍁 (@ezralevant) [April 10, 2021](https://twitter.com/ezralevant/status/1380956658306793477?ref_src=twsrc%5Etfw)
+[郭先生0409II爆料革命扭转了被中共彻底毁掉的中国人形象](https://gnews.org/zh-hans/1074116/)
 
+[郭先生0409III七哥担心SEC抗议的战友不注意病毒和走错门](https://gnews.org/zh-hans/1074146/)
 
-
-《叛逆新闻》创始人Ezra Levant指出，”这是蒙特利尔的警察，他们已经骚扰和殴打我们的记者好几周了。他们在报复，因为我们报道了他们的不当行为”。他还说，他遭到了警察的粗暴对待。
-
-艾兹拉-利宛特还说，蒙特利尔的腐败警察把我们从Airbnb赶了出来。现在他们将进去，在没有任何观察员的情况下，对房间进行搜查。我担心他们会栽赃毒品、武器或其他违禁品。
-
-《叛逆新闻》的主要记者大卫-蒙西斯（David Menzies)在与警察的争执中，被警察推搡，然后被数名警察粗暴地扭至警车旁，戴上手铐，扔到车后座里。
-
-推特上一个名为“Joe Warmington”的帐户发推说，如果记者无法做好自己的工作，就不再是一个自由的国家。
-
-另一个名为“the Ikonian ”的推特帐户发推说，如果法院不阻止政府和警察的这种行为，那么我们就完蛋了，我们需要移到法律和权利重要的地方。
-
-令人兴奋的是，几小时后，传来了巨大的好消息！蒙特利尔的警察无法让法官批准他们的搜查令！蒙特利尔的警察怂了！
-
-
-
-> 🚨HUGE VICTORY🚨 
-> 
-> Montreal’s police could not get a judge to approve their search warrant! They blinked!
-> 
-> David Menzies is being released from his illegal arrest!
-> 
-> The police have run away from the “crime scene!
-> 
-> I’m back in!
-> 
-> Viva le Quebec libre![https://t.co/roDg8jvAa1](https://t.co/roDg8jvAa1) [pic.twitter.com/WSvXZplsGG](https://t.co/WSvXZplsGG)
-> — Ezra Levant 🍁 (@ezralevant) [April 10, 2021](https://twitter.com/ezralevant/status/1381028608752369666?ref_src=twsrc%5Etfw)
-
-
-
-大卫-蒙西斯被非法逮捕释放了!警察从 “犯罪现场 “逃跑了!大卫回来了!
-
-蒙特利尔的法院没有沦陷，他们坚持正义，这的确是令人鼓舞的消息。加拿大还是有希望的。
-
-+1
+0

@@ -1,147 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美《2021战略竞争法》第214节关于中共病毒溯源
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1074312/)
+## 【世事解评】CCP病毒疫苗黑手伸向12-15岁青少年
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1074246/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+纽约香草山农场 Delilah小胖
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-9.jpg)sdmayer.com
-4月8日，笔者第一时间发文报道了“美参议院将审议‘战略竞争法案’对抗中共”【1】，面对这份280多页的提案，自感能力和精力不足以承担对“重磅提案”的翻译和解读，期待着《路德社》、秘密翻译组，昨晚《路德社》作出了振奋人心的解读，令人回味无穷。
+【摘要】
 
-现将提案中涉及中共病毒部分摘译，供战友参考。
+美国密西根州上周青少年感染CCP病毒的病例激增，震惊全美。与此同时，辉瑞制药公司，非常“及时”地向美国食品药品监督管理局（FDA）递交了申请，希望获得其针对12-15岁的青少年人群的新冠疫苗获得审批通过。
 
-第214节. 关于中共病毒疫情起源的报告
+笔者认为，辉瑞制药公司提交青少年疫苗申请的时间，与特定州的特定人群的同时段爆发，有着某种蹊跷的联系。未经过同行评议、未进行过完整人体试验的疫苗，对青少年的潜在危害不可估量。青少年是国家的未来。一旦大规模接种，对国家的未来及命运，也会有无法估计的损害。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screen-Shot-2021-04-10-at-9.53.45-PM.png)图片来源：https://www.google.com/search?q=covid-19+cases+update&oq=cov&aqs=chrome.0.69i59j69i57j69i59j0i131i433l2j69i60l2j69i61.1529j0j7&sourceid=chrome&ie=UTF-8
+据NBC新闻网（[nbcnews.com](https://nbcnews.com)）2021年4月9日报道，美国的辉瑞制药公司（Pfizer-BioNTech）要求美国食品药品监督管理局（FDA）批准给12到15岁的青少年接种新冠疫苗的请求【1】。
 
-（a）国会意识–这是国会意识到的：
+上周，辉瑞声称，他们和德国合作伙伴 BioNTech 联合推出的CCP病毒疫苗的第3期临床试验表明，他们的疫苗对12至15岁的青少年是“安全的，并且百分百有效”。但是，这种说法还没有得到同行评议。
 
-（1）了解中共病毒疫情的起源至关重要，这样美国才能更好地准备、预防和应对未来疫情对健康的威胁；
+辉瑞公司的CEO 博尔拉 (Albert Bourla）说，希望在下一个学年开始前，也就是今年的8月底之前，可以给12到15岁年龄段的人群开始接种疫苗。更有田纳西州的医生为疫苗站台，声称：接下来的青少年接种，将贯穿整个抗疫进程。一位前FDA主管科学家也说，FDA的审批流程大概会需要几周的时间，目前提供的数据看起来是好的，而且与成人人群的数据一致。
 
-（2）鉴于中共病毒疫情对所有美国人的影响，美国人民理应了解美国政府掌握的有关中共病毒起源的信息；
+公开数据显示，目前已经有超过三分之一的美国人，至少接种过一针的CCP疫苗。辉瑞目前还计划对6到11岁的儿童开展CCP病毒疫苗的接种研究，并且第一针的试验，已经在今年3月份开始了。
 
-（3）国会与美国政府以及其他13个外国政府一样，对世界卫生组织派往中共国研究中共病毒起源的国际专家组“严重延误，无法获得完整的原始数据和样本”的事件表示关切；
+辉瑞公司的CCP病毒疫苗，是目前唯一被批准的针对16岁及以上的青少年使用的疫苗。其他美国目前使用的疫苗，如Modena和强生，均要求接种者年龄在18岁及以上。去年12月，Modena开始针对12岁到18岁的人群试验mRNA疫苗；Modena同时也在做针对6至11岁的人群的疫苗试验。
 
-（4）2021年3月30日，世卫组织总干事特德罗斯·阿达诺姆·盖布雷耶苏斯（Tedros Adhanom Ghebreyesus）博士的声明进一步确认，调查组在获取必要的原始数据时遇到了“困难”，即“我们尚未找到病毒的来源”，“所有假设仍在讨论中”；
+辉瑞公司要求针对青少年进行疫苗接种，是在美国一些州出现了青少年和儿童的新近爆发下提出来的。比如在密西根州，根据密西根州卫生和公共服务部门上周的数据，10到19岁之间的儿童和青少年的感染比率创历史新高。
 
-（5）对于独立专家来说，充分获取所有相关人、动物和环境数据、活病毒样本、（疫情）爆发早期阶段有关的研究，参与人员，确定这种流行病是如何出现的，这一点至关重要。
+另据CNBC报道，在美国的密西根州，新增CCP病毒感染病例再次压倒密西根州的医疗卫生系统【2】。州长敦促居民留在家中。州首席医疗长说，该州正在追踪991次的疫情爆发。密西根州长要求在接下来的两周里，学校可以选择停止青少年体育运动项目，以及避免在餐厅内就餐。但是，州长并没有强制要求学校和居民这样做。前段时间，密西根州开放了餐馆就餐，要求上限50%的入座率。
 
-（b）所需报告–在本法案颁布后180天内，国家情报总监与国务卿、卫生和公共服务部长、能源部长和其他相关执行部门协调，应向国会拨款委员会提交一份报告，包括：
+根据约翰·霍普金斯大学（Johns Hopkins University）的统计，密西根州的感染人数接近了该州去年11月20日左右的历史最高水平。周日平均新增感染人数超过7226人，比之前的一周上升23%。 该州的医疗卫生负责人Dr. Joneigh Khaldun在新闻简报中说，“我们每天看到太多的感染病例出现，我们的医疗系统人满为患。但还是没办法发现很多的感染者、也没有办法去追踪密切接触者。我们不知道到底哪里会再次爆发。但是，可以肯定的是，我们的统计数据一定远远低于实际感染人数。” 其实，美国历来对传染病有着良好的追踪系统，比如肝炎病毒携带者，即使没有发病，也会有居住地附近的医疗人员定期跟你联络，询问身体状况。并且保证对病人的医疗数据予以保密，比如他们不会在未经本人允许的情况下，告诉当事人的家人。这次CCP新冠大流行，使美国的病例追踪系统完全失灵。
 
-（1）武汉病毒学研究所（WIV）对中共病毒最可能的来源或起源的评估，包括对美国掌握的所有信息的详细审查，基于美国政府迄今为止的信息，已确定可能与中共病毒的来源或起源有关，包括人畜共患传播和泄露、武汉病毒研究所或其他来源、传播或泄露；
+现在密西根州爆发的CCP病毒是B.1.1.7 变种病毒。这一变种病毒早期出现在英国，现在是美国境内的主要流行毒种。Dr. Joneigh Khaldun指出，在1月和3月之间，该州共发现291例来自青少年运动项目的感染病例，涉及1091人。由此可见，青少年对CCP病毒没有抵抗力。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screen-Shot-2021-04-10-at-10.07.42-PM.png)图片来源：[https://covid.cdc.gov/covid-data-tracker/#compare-trends\_newcases](https://covid.cdc.gov/covid-data-tracker/#compare-trends_newcases)
+正如密西根州州长 Gretchen Whitmer 女士所说，“今天是密西根和中西部，明天可能是我们国家的另一个地区”。
 
-（2）美国政府对中共病毒病因学主要可信理论的鉴定，美国为验证这些理论所采取的步骤，以及美国情报机构、执行机构和执行办公室之间对中共病毒最可能来源或起源的评估或异议的差异，以及此类差异或异议的依据；
+伴随着CCP疫情去年一年在全美国的大爆发和大流行，我们可以非常清晰地看到，疫情爆发的高峰期，往往伴随着美国境内的一个个巨大的政治事件。比如去年9月的美国大选邮寄选票开始时，疫情感染曲线结束区间震荡，开始直线攀升。从11月初的大选最终投票到1月20号的总统就职典礼，疫情达到历史峰值。现在，从密西根州开始，我们又看到了CCP病毒感染人数再创新高。笔者在此不想妖魔化辉瑞制药公司，但这不得不令人怀疑，为什么首先出现在密西根州？真正再创历史新高的只有两个州，密西根州是其中之一。而青少年感染率激增，是密西根州本轮疫情再创新高的一个显著的特征。而美国大部分的州，虽然疫情有所抬头，但都在可控范围内。
 
-（3）描述美国政府为识别和调查中共病毒的来源所采取的所有措施，包括这些努力的时间表；
+密西根州是美国中西部的一个内陆州，挨近北美五大湖地区，是美国传统的制造业中心。辉瑞制药公司在密西根州建有其全世界最大的生产基地。密西根州久负盛名的底特律地区韦恩县（Wayne County），就是本次CCP病毒大流行期间疫情最为严重的县。相比德州和佛罗里达州最近的完全放开口罩禁令和放松疫情管控等不同，密西根州一直号召民众戴口罩出行，而且只是部分开放了餐厅室内就餐。而且，密西根州也不像邻海的州度假人群密集度高。但是，就这波疫情的严重程度看，密西根州却超过了德州和佛罗里达州，实在不可思议。
 
-（4）美国和世卫组织要求提供的数据的详细说明，以及有权接触以确定中共病毒的来源；
+自4月5日起，在密西根州，16岁及以上的，都可以获得至少1针的CCP新冠病毒疫苗【3】。根据一个密西根州2021年4月10日的学校通知，所有16岁和以上的，可以得到辉瑞的疫苗；18岁及以上的，可以获得Modena或者强生公司的疫苗。
 
-（5）以报告形式说明，中共国在调查或审查确定中共病毒的来源和传播方面的配合，阻挠或妨碍的努力，（报告）包括可能的实验室泄露，中共国或中国共产党制造和散播有关病毒来源和传播错误或虚假的信息，包括国家和地方政府以及卫生实体；
+笔者对密西根州CCP病毒新感染病例再次爆发表示担忧。更希望密西根人，尤其密西根的青少年，不要成为CCP病毒疫苗的受害者。企盼美国的针对CCP病毒的白皮书尽早出台，世界正义力量联合起来彻查CCP病毒真相。现在，就是看是病毒追责进展的速度快，还是制药企业追逐利润和政府部门追逐接种政绩来的快了。
 
-（6）美国政府关于武汉病毒研究所及相关设施已知信息的详细说明，包括中共病毒研究活动和功能获得研究、与实验室相关人员的任何疾病报告（症状与中共病毒一致）和最终诊断，以及与中共病毒相关研究的时间表；
+引用来源：
 
-（7）中共国任何已知约定的清单，即，在发生中共病毒疫情时中共国需要提供的披露和合作；以及
+【1】[https://www.nbcnews.com/health/health-news/pfizer-requests-fda-clearance-vaccine-kids-ages-12-15-n1263649](https://www.nbcnews.com/health/health-news/pfizer-requests-fda-clearance-vaccine-kids-ages-12-15-n1263649)
 
-（8）概述美国与中共国在中共病毒方面的接触，包括：
+【2】[https://www.cnbc.com/2021/04/09/covid-michigan-gov-whitmer-urges-residents-to-restrict-activity-as-new-cases-overwhelm-state-health-system.html](https://www.cnbc.com/2021/04/09/covid-michigan-gov-whitmer-urges-residents-to-restrict-activity-as-new-cases-overwhelm-state-health-system.html)
 
-（A）详细说明美国与武汉病毒研究所，以及中共国类似实验室在中共病毒方面的合作，包括详细说明美国政府赞助的研究和资助，以及外交合作，如“轨道1.5”和“轨道2”合作（笔者注：指个人、团体的“非国家行为”合作方式）；以及
+【3】[https://www.michigan.gov/documents/coronavirus/MI\_COVID-19\_Vaccination\_Prioritization\_Guidance\_2152021\_716344\_7.pdf](https://www.michigan.gov/documents/coronavirus/MI_COVID-19_Vaccination_Prioritization_Guidance_2152021_716344_7.pdf)
 
-（B）在2017年美国政府暂停资助后，对美国政府资助用于支持在中共国进行功能增益研究的任何额外资金进行评估，以及在暂停资金期间（2014—2017），是否有美国资金被用于中共国的功能增益研究。
+编辑/审核/发稿：正义的小新
 
-（c） 表格——（b）要求的报告应以非保密形式提交，但可包括保密附件。
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
-（d） 定义适当的国会委员会，在本节中，“适当的国会委员会”一词是指：
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
 
-（1） 参议院外交关系委员会；
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
 
-（2） 参议院情报特别委员会；
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-（3） 参议院健康、教育、劳动和养老金委员会；
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-（4） 参议院军事委员会；
-
-（5） 众议院外交事务委员会；
-
-（6） 众议院情报常设特别委员会；
-
-（7） 众议院能源和商业委员会；以及
-
-（8） 众议院军事委员会
-
-（本章节完）
-
-参考链接：
-
-【1】https://www.gnews.org/zh-hans/1065880/
-
-文字整理：
-
-SEC. 214. REPORT ON ORIGINS OF THE COVID–19 PANDEMIC.
-
-(a) SENSE OF CONGRESS. –t is the sense of Congress that—
-
-(1) it is critical to understand the origins of the COVID–19 pandemic so the United States can better prepare, prevent, and respond to pandemic health threats in the future;
-
-(2) given the impact of the COVID–19 pandemic on all Americans, the American people deserve
-
-to know what information the United States Government possesses about the origins of COVID–19, as appropriate;
-
-(3) Congress shares the concerns expressed by the United States Government and 13 other foreign governments that the international team of experts dispatched to the People’s Republic of China by the World Health Organization (WHO) to study the origins of the SARS–CoV–2 virus was ‘‘significantly
-
-delayed and lacked access to complete, original data and samples’’;
-
-(4) the March 30, 2021, statement by the Director-General of the WHO, Dr. Tedros Adhanom Ghebreyesus, further affirms that the investigative team had encountered ‘‘difficulties’’ in accessing
-
-necessary raw data, that ‘‘we have not yet found the source of the virus,’’ and that ‘‘all hypotheses remain on the table’’; and
-
-(5) it is critical for independent experts to have full access to all pertinent human, animal, and environmental data, live virus samples, research, and personnel involved in the early stages of the out- break relevant to determining how this pandemic emerged.
-
-(b) REPORT REQUIRED. –Not later than 180 days after enactment of this Act, the Director of National Intelligence, in coordination with the Secretary of State, the Secretary of Health and Human Services, the Secretary of Energy, and other relevant executive departments, shall submit to the appropriate committees of Congress a report consisting of–
-
-(1) an assessment of the most likely source or origin of the SARS–CoV–2 virus, including a detailed review of all information the United States possesses that it has identified as potentially relevant to the source or origin of the SARS–CoV–2 virus, including zoonotic transmission and spillover, the Wuhan Institute of Virology (WIV), or other sources of origin, transmission, or spillover, based on the information the United States Government has to date;
-
-(2) an identification of the leading credible theories of the etiology of the SARS–CoV–2 virus by the United States Government, the steps the United States has taken to validate those theories, and any
-
-variance in assessment or dissent among or between United States intelligence agencies, executive agencies, and executive offices of the most likely source or origin of the SARS–CoV–2 virus, and the basis for such variance or dissent;
-
-(3) a description of all steps the United States Government has taken to identify and investigate the source of the SARS–CoV–2 virus, including a timeline of such efforts;
-
-(4) a detailed description of the data to which the United States and the WHO have requested and
-
-have access to in order to determine the origin of the source of the SARS–CoV–2 virus;
-
-(5) an account of efforts by the PRC to cooperate with, impede, or obstruct any inquiry or investigation to determine the source and transmission of SARS–CoV–2 virus, including into a possible lab
-
-leak, or to create or spread misinformation or disinformation regarding the source and trans mission of SARS–CoV–2 virus by the PRC or CCP, including by national and local governmental and health entities;
-
-6) a detailed account of information known to the United States Government regarding the WIV   and associated facilities, including research activities on coronaviruses and gain-of-function research, any reported illnesses of persons associated with the laboratory with symptoms consistent with COVID–19 and the ultimate diagnosis, and a timeline of research relevant to coronaviruses;
-
-(7) a list of any known obligations on the PRC that require disclosure and cooperation in the event of a viral outbreak like SARS–CoV–2; and
-
-(8) an overview of United States engagement with the PRC with respect to coronaviruses that includes—
-
-(A) a detailed accounting of United States engagement with the WIV and similar labs in the PRC specific to coronaviruses, including a detailed accounting United States Government sponsored research and funding and diplomatic engagements such as ‘‘track 1.5’’ and ‘‘track 2’’ engagements; and
-
-(B) an assessment of any additional scrutiny of United States Government funding to support gain-of-function research in the PRC after the moratorium on such funding was lifted in 2017, and whether United States Government funding was used to support gain-of-function research in China, during the moratorium on gain-of-function research (2014–2017).
-
-(c) FORM. –The report required by subsection (b) shall be submitted in unclassified form but may include a classified annex.
-
-(d) APPROPRIATE COMMITTEES OF CONGRESS DEFINED. –In this section, the term ‘‘appropriate committees of Congress’’ means–
-
-(1) the Committee on Foreign Relations of the Senate;
-
-(2) the Select Committee on Intelligence of the Senate;
-
-(3) the Committee on Health, Education, Labor, and Pensions of the Senate;
-
-(4) the Committee on Armed Services of the Senate;
-
-(5) the Committee on Foreign Affairs of the House of Representatives;
-
-(6) the Permanent Select Committee on Intelligence of the House of Representatives;
-
-(7) the Committee on Energy and Commerce of the House of Representatives; and
-
-(8) the Committee on Armed Services of the House of Representatives
-
-0
++4

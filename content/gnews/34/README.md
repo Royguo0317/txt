@@ -1,44 +1,147 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0409V中共治下中国人的精神疾病和精神萎靡无法想象
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1074315/)
+## 美《2021战略竞争法》第214节关于中共病毒溯源
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1074312/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-36.jpg)
-编辑整理：
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-伦敦喜庄园：杯酒渐浓；纽约香草山农场：西林1；日本东京方舟农场：山川异域
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-9.jpg)sdmayer.com
+4月8日，笔者第一时间发文报道了“美参议院将审议‘战略竞争法案’对抗中共”【1】，面对这份280多页的提案，自感能力和精力不足以承担对“重磅提案”的翻译和解读，期待着《路德社》、秘密翻译组，昨晚《路德社》作出了振奋人心的解读，令人回味无穷。
 
-郭文贵先生在2021年4月9日的直播中谈到了SEC抗议是中国人第一次规模性维护自己合法权益的行动；谈到了爆料革命扭转了被中共彻底毁掉的中国人的形象；谈到了爆料革命唤醒世界让灭共由不可能变成必须等内容，本系列将根据郭先生在直播中涉及的不同方面逐一上传，以下为本系列第五部分——中共治下中国人的精神疾病和精神萎靡无法想象
+现将提案中涉及中共病毒部分摘译，供战友参考。
 
-据[4月9日 文贵直播：中共的意淫反而将帮助更快灭共；国内富豪都是复制偷窃技术，不是企业家；美国只能与英日印合作联合灭共；中共控制比特币，人民币数字化，消灭美元；美国人已经相信能灭共](https://gtv.org/video/id=607053ef6e11a756eddd33df)时间点50：12——
+第214节. 关于中共病毒疫情起源的报告
 
-然后你再看国内的那些企业，我们当看到所谓的富豪、所谓世界前十名、前一百名富豪的时候，我们要想到商人和企业家是根本性不同，我们要当企业家、我们绝对不能当商人，这是个基本的常识。**我们要创造财富、分享财富，而且是财富可以创造出来的产品和价值是有利于社会、是一个利他的行为，它应该是对社会有利的，而不是互害的。**
+（a）国会意识–这是国会意识到的：
 
-现在整个中国大家互害得利、互伤得利。**而我们新中国联邦就是要互利，利他才能得利，那就是企业家。生产文明、创造财富、利于社会、回报父母、强大国家，而不是将这个国家的未来全部卖掉。**
+（1）了解中共病毒疫情的起源至关重要，这样美国才能更好地准备、预防和应对未来疫情对健康的威胁；
 
-像农夫山泉，农夫山泉成为中国第一富豪，大家都知道叫什么？那个家伙叫什么？大家知道那个老板叫什么？看看大家啊，看看谁知道？（郭先生与战友们互动）［不是宗庆后，不是宗庆后，姓徐的，姓徐的。大自然搬运工，姓徐的，老公让我来灭共，腿肚子转筋，七哥好，爱郭者，新中联，七哥在梦里相见，十次相见，许家印，不是许家印，不是，不是，不是，不是啊，不是许家印。战友们都回答不出来啊。钟睒睒，对对，钟睒睒，钟睒睒，钟睒睒，钟睒睒（shǎn），钟睒睒（shǎn）是吧？钟睒睒（shǎn），钟睒睒（shǎn），不是我不用坐着说］。
+（2）鉴于中共病毒疫情对所有美国人的影响，美国人民理应了解美国政府掌握的有关中共病毒起源的信息；
 
-不就是，你说这水有啥文明啊？中国人不喝水，中国人喝雾霾都喝得很饱，是不是？你说那个农夫山泉啥玩意那水，而且那水质量非常差是不是？非常非常差！然后就是网络那几个大咖，你有一个手机，像什么华为还完球蛋了抄人家的，是不是？完全是抄人家的。**全是口水经济、复制经济、虚假经济、互害经济，这样的国家你值得人家尊重吗？**是不是啊？
+（3）国会与美国政府以及其他13个外国政府一样，对世界卫生组织派往中共国研究中共病毒起源的国际专家组“严重延误，无法获得完整的原始数据和样本”的事件表示关切；
 
-有一个日本的现在是我们下一步的GTV的一个投资者，我们正在谈。我们俩在通话当中他说了一句话，他说，郭先生，我作为一个日本人我无上的喜欢中国人，我爱中国人，我最爱吃中国餐，我家里边有两幅中国字画是我们家的传家宝。他说，**但是现在的中国人，他说这个精神上的疾病和精神上的整个的萎靡完全是无法想象的。**
+（4）2021年3月30日，世卫组织总干事特德罗斯·阿达诺姆·盖布雷耶苏斯（Tedros Adhanom Ghebreyesus）博士的声明进一步确认，调查组在获取必要的原始数据时遇到了“困难”，即“我们尚未找到病毒的来源”，“所有假设仍在讨论中”；
 
-就像刚才我们看到的前面的视频叫王洪光——高燕燕的老公、绿帽子王，你说他能不要脸到这敢说话，王洪光敢说那段话，你先回家把你老婆照顾好吧。那王岐山的手在你老婆那个肚子里面都泡成茧啦，王岐山天天拿手虐待你老婆，一虐待就俩小时，是不是，哇哇哇地叫，你把你老婆先解放了吧，你别解放台湾啦。你先查查你那孩子，现在中共流行亲子鉴定，你先搞搞你孩子那个到底是谁的DNA吧，是不是，王洪光。王岐山把你老婆虐待啥样你自己最清楚，竟然能在你在家的时候，王岐山进屋让你先出去，啊，把你轰到客厅去，你这种绿帽子王，你说这种变态。
+（5）对于独立专家来说，充分获取所有相关人、动物和环境数据、活病毒样本、（疫情）爆发早期阶段有关的研究，参与人员，确定这种流行病是如何出现的，这一点至关重要。
 
-所以这个日本的朋友说得非常好，就是整个精神萎靡，他说你看日本的技术积累、日本的技术研发、日本的整个技术创造，大家去查一查别听我的啊，上网上去查一查是中共的多少倍。日本是全世界第三，有时候排到第二的技术储备国家，中共是全世界最大的技术偷盗、复制国家，日本一亿人口，你说这个要不要脸，世界哪有这种事。我就纳闷了，为啥我们中国人就能相信九指妖这样说的话，你像九指妖、共产党它说的话，但凡你逆向地去说你有啥、你做了啥、你这东西哪来的，说话的结果呢，你看那九指妖连个脸都不敢露现在，这孙子啊她跟SEC对话，你知道SEC的英文咋说吗， 拿着个儿子到处行撞骗，连个保姆的、专业保姆都不如，你就这么个东西天天要卖上帝、卖自由、卖民主，你说要不要脸，欸，有人听、有人还信。
+（b）所需报告–在本法案颁布后180天内，国家情报总监与国务卿、卫生和公共服务部长、能源部长和其他相关执行部门协调，应向国会拨款委员会提交一份报告，包括：
 
-那在中共国共产党王洪光这号的，他竟然说解放台湾、解放全人类、要征服全宇宙，你问他你老婆呢？你老婆呢？你老婆嗷嗷叫的时候你在哪呢？他老婆到处说为什么爱王岐山，王岐山是个爷们，按今天她说的话——“有种”。王洪光就是个吹牛、就是一骗子、就是个嘴炮，就这么简单，就这也有人相信王洪光说的话，有人竟然嗨到不行。
+（1）武汉病毒学研究所（WIV）对中共病毒最可能的来源或起源的评估，包括对美国掌握的所有信息的详细审查，基于美国政府迄今为止的信息，已确定可能与中共病毒的来源或起源有关，包括人畜共患传播和泄露、武汉病毒研究所或其他来源、传播或泄露；
 
-**这个世界上最可怕的是，就你没有辨别真和假的能力、善和恶的能力。**所以这位日本朋友说**，现在看到爆料革命和看到过去四年爆料革命所说的事情都变成了现实，他说最希望中国人民强大，但不希望共产党继续愚昧让中国的老百姓走向这条不归路，成为全世界最不喜欢的人民。**这位日本朋友是让我很感动的，因为这话是发自他内心的，他没必要取悦于我。
+（2）美国政府对中共病毒病因学主要可信理论的鉴定，美国为验证这些理论所采取的步骤，以及美国情报机构、执行机构和执行办公室之间对中共病毒最可能来源或起源的评估或异议的差异，以及此类差异或异议的依据；
 
-接上文——
+（3）描述美国政府为识别和调查中共病毒的来源所采取的所有措施，包括这些努力的时间表；
 
-[郭先生0409I SEC抗议是首次规模性维护国人自己合法权益](https://gnews.org/zh-hans/1074065/)
+（4）美国和世卫组织要求提供的数据的详细说明，以及有权接触以确定中共病毒的来源；
 
-[郭先生0409II爆料革命扭转了被中共彻底毁掉的中国人形象](https://gnews.org/zh-hans/1074116/)
+（5）以报告形式说明，中共国在调查或审查确定中共病毒的来源和传播方面的配合，阻挠或妨碍的努力，（报告）包括可能的实验室泄露，中共国或中国共产党制造和散播有关病毒来源和传播错误或虚假的信息，包括国家和地方政府以及卫生实体；
 
-[郭先生0409III七哥担心SEC抗议的战友不注意病毒和走错门](https://gnews.org/zh-hans/1074146/)
+（6）美国政府关于武汉病毒研究所及相关设施已知信息的详细说明，包括中共病毒研究活动和功能获得研究、与实验室相关人员的任何疾病报告（症状与中共病毒一致）和最终诊断，以及与中共病毒相关研究的时间表；
 
-[郭先生0409IV我们的人生里面最精彩的是接受挑战并赢得挑战](https://gnews.org/zh-hans/1074237/)** **
+（7）中共国任何已知约定的清单，即，在发生中共病毒疫情时中共国需要提供的披露和合作；以及
+
+（8）概述美国与中共国在中共病毒方面的接触，包括：
+
+（A）详细说明美国与武汉病毒研究所，以及中共国类似实验室在中共病毒方面的合作，包括详细说明美国政府赞助的研究和资助，以及外交合作，如“轨道1.5”和“轨道2”合作（笔者注：指个人、团体的“非国家行为”合作方式）；以及
+
+（B）在2017年美国政府暂停资助后，对美国政府资助用于支持在中共国进行功能增益研究的任何额外资金进行评估，以及在暂停资金期间（2014—2017），是否有美国资金被用于中共国的功能增益研究。
+
+（c） 表格——（b）要求的报告应以非保密形式提交，但可包括保密附件。
+
+（d） 定义适当的国会委员会，在本节中，“适当的国会委员会”一词是指：
+
+（1） 参议院外交关系委员会；
+
+（2） 参议院情报特别委员会；
+
+（3） 参议院健康、教育、劳动和养老金委员会；
+
+（4） 参议院军事委员会；
+
+（5） 众议院外交事务委员会；
+
+（6） 众议院情报常设特别委员会；
+
+（7） 众议院能源和商业委员会；以及
+
+（8） 众议院军事委员会
+
+（本章节完）
+
+参考链接：
+
+【1】https://www.gnews.org/zh-hans/1065880/
+
+文字整理：
+
+SEC. 214. REPORT ON ORIGINS OF THE COVID–19 PANDEMIC.
+
+(a) SENSE OF CONGRESS. –t is the sense of Congress that—
+
+(1) it is critical to understand the origins of the COVID–19 pandemic so the United States can better prepare, prevent, and respond to pandemic health threats in the future;
+
+(2) given the impact of the COVID–19 pandemic on all Americans, the American people deserve
+
+to know what information the United States Government possesses about the origins of COVID–19, as appropriate;
+
+(3) Congress shares the concerns expressed by the United States Government and 13 other foreign governments that the international team of experts dispatched to the People’s Republic of China by the World Health Organization (WHO) to study the origins of the SARS–CoV–2 virus was ‘‘significantly
+
+delayed and lacked access to complete, original data and samples’’;
+
+(4) the March 30, 2021, statement by the Director-General of the WHO, Dr. Tedros Adhanom Ghebreyesus, further affirms that the investigative team had encountered ‘‘difficulties’’ in accessing
+
+necessary raw data, that ‘‘we have not yet found the source of the virus,’’ and that ‘‘all hypotheses remain on the table’’; and
+
+(5) it is critical for independent experts to have full access to all pertinent human, animal, and environmental data, live virus samples, research, and personnel involved in the early stages of the out- break relevant to determining how this pandemic emerged.
+
+(b) REPORT REQUIRED. –Not later than 180 days after enactment of this Act, the Director of National Intelligence, in coordination with the Secretary of State, the Secretary of Health and Human Services, the Secretary of Energy, and other relevant executive departments, shall submit to the appropriate committees of Congress a report consisting of–
+
+(1) an assessment of the most likely source or origin of the SARS–CoV–2 virus, including a detailed review of all information the United States possesses that it has identified as potentially relevant to the source or origin of the SARS–CoV–2 virus, including zoonotic transmission and spillover, the Wuhan Institute of Virology (WIV), or other sources of origin, transmission, or spillover, based on the information the United States Government has to date;
+
+(2) an identification of the leading credible theories of the etiology of the SARS–CoV–2 virus by the United States Government, the steps the United States has taken to validate those theories, and any
+
+variance in assessment or dissent among or between United States intelligence agencies, executive agencies, and executive offices of the most likely source or origin of the SARS–CoV–2 virus, and the basis for such variance or dissent;
+
+(3) a description of all steps the United States Government has taken to identify and investigate the source of the SARS–CoV–2 virus, including a timeline of such efforts;
+
+(4) a detailed description of the data to which the United States and the WHO have requested and
+
+have access to in order to determine the origin of the source of the SARS–CoV–2 virus;
+
+(5) an account of efforts by the PRC to cooperate with, impede, or obstruct any inquiry or investigation to determine the source and transmission of SARS–CoV–2 virus, including into a possible lab
+
+leak, or to create or spread misinformation or disinformation regarding the source and trans mission of SARS–CoV–2 virus by the PRC or CCP, including by national and local governmental and health entities;
+
+6) a detailed account of information known to the United States Government regarding the WIV   and associated facilities, including research activities on coronaviruses and gain-of-function research, any reported illnesses of persons associated with the laboratory with symptoms consistent with COVID–19 and the ultimate diagnosis, and a timeline of research relevant to coronaviruses;
+
+(7) a list of any known obligations on the PRC that require disclosure and cooperation in the event of a viral outbreak like SARS–CoV–2; and
+
+(8) an overview of United States engagement with the PRC with respect to coronaviruses that includes—
+
+(A) a detailed accounting of United States engagement with the WIV and similar labs in the PRC specific to coronaviruses, including a detailed accounting United States Government sponsored research and funding and diplomatic engagements such as ‘‘track 1.5’’ and ‘‘track 2’’ engagements; and
+
+(B) an assessment of any additional scrutiny of United States Government funding to support gain-of-function research in the PRC after the moratorium on such funding was lifted in 2017, and whether United States Government funding was used to support gain-of-function research in China, during the moratorium on gain-of-function research (2014–2017).
+
+(c) FORM. –The report required by subsection (b) shall be submitted in unclassified form but may include a classified annex.
+
+(d) APPROPRIATE COMMITTEES OF CONGRESS DEFINED. –In this section, the term ‘‘appropriate committees of Congress’’ means–
+
+(1) the Committee on Foreign Relations of the Senate;
+
+(2) the Select Committee on Intelligence of the Senate;
+
+(3) the Committee on Health, Education, Labor, and Pensions of the Senate;
+
+(4) the Committee on Armed Services of the Senate;
+
+(5) the Committee on Foreign Affairs of the House of Representatives;
+
+(6) the Permanent Select Committee on Intelligence of the House of Representatives;
+
+(7) the Committee on Energy and Commerce of the House of Representatives; and
+
+(8) the Committee on Armed Services of the House of Representatives
 
 0
