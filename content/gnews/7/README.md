@@ -1,205 +1,238 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/04/11 英喜时事速递
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1077300/)
+## 美国政要等每日重要信息0411.2021
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1077199/)
 
-收集：Filon，Near，Daniel，Cindy，感言，文大石
-*（世界协调时）部分信息收集于网络世界的各方，请自行甄别*
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
 
-## 西班牙喜悦农场Gnews：[德州州长颁布行政命令禁止设立 “疫苗护照”](https://gnews.org/zh-hans/1065254/)
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
 
-![USA: Jeder Fünfte geimpft, Diskussionen um Impfpass]()![USA: Jeder Fünfte geimpft, Diskussionen um Impfpass](https://cdn.aerzteblatt.de/bilder/2021/01/img261156716.jpg)
 
+## 中共病毒真相
 
-> 评论：科技应该是服务于人的，世界不能以发展科技的名义限制人权的自由，这有悖于人类文明发展进程。病毒真相悬而未决就更不应该让有效未知的疫苗捆绑世界。
+4月11日劳伦斯-塞林博士使用爆料革命美东香草山农场的文宣图发推，推文如下：
 
+由于发病前高病毒载量和在上呼吸道脱落，是弗林酶切位点对对人体ACE2预先适应的高亲和力的结果，增加的无症状传播是#中共病毒大流行与SARS 和 MERS相比具备了生物武器特征。
 
-## 英喜农场Gnews：[中共国的数字货币与比特币的区别](https://gnews.org/zh-hans/1069092/)
 
-![]()![](https://spark.adobe.com/page/NxTRalwqTG6uJ/images/28b40241-9fdc-40c6-bd8d-3d15a39350a7.jpg?asset_id=7101ffda-65b1-4d56-babf-b9cd6b6abc16&amp;img_etag=%223e60377f2747eb11ed0e0f465fb56b43%22&amp;size=2560)
 
+> Increased asymptomatic transmission is a bioweapon feature that [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) has compared to SARS & MERS, due to pre-symptom high viral loads & shedding in the upper respiratory tract, a result of furin cleavage site insertion & pre-adapted high affinity human ACE2 binding[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/lNB5cKdGen](https://t.co/lNB5cKdGen)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 11, 2021](https://twitter.com/LawrenceSellin/status/1381156085944422402?ref_src=twsrc%5Etfw)
 
-> 评论：中共国政府数字货币就是粮票的数字化形式，CCP不仅在政治上回归到了文革时代，经济上也不可避免的将要回到了毛时代。百姓的日子会苦成什么样，殷鉴不远。
 
+图片信息：
+高传染性
+低杀伤力
+显著的毒性
+对温度不敏感
+无症状传播率高
+抗环境变化的能力
+破坏力是前所未有的
 
-## 英喜农场 Gnews：[【文雍漫谈】谁让他求生不能 谁让他求告无门](https://gnews.org/zh-hans/1070313/)
 
-![]()![](https://spark.adobe.com/page/Lvm5BZD4TgQqw/images/b0873485-f843-452f-8a1f-ced16d6c0e85.jpg?asset_id=4803716f-eb47-4152-b282-af2d9bf2dc95&amp;img_etag=%228e36e063e32a24fb7dd11eb21b95a3fd%22&amp;size=1024)
+## 中共病毒疫苗
 
+4月9日据CNBC，辉瑞疫苗公司向FDA提交文件，将其中共病毒大流行（Covid-19）疫苗的紧急使用授权扩大到12至15岁的人。
 
-> 评论：没有谁不捍卫民主就可拥有民主，在中共绞肉体制齿轮上谁都难逃不做碾压下的那块肉。加入新中国联邦爆料革命，一起推倒中国共产党才能为子孙后代带来一个不被奴役的未来。
 
 
-## 英喜农场20210407-GTV UK: Mr. Bannon’s Weekly Interview Q3:中共计划用人民币取代美元的金融主导地位，美国將如何应对？
+> BREAKING: Pfizer files with the FDA to expand emergency use authorization for its Covid-19 vaccine to people between 12 and 15 years of age. [pic.twitter.com/SIXEtQfM1R](https://t.co/SIXEtQfM1R)
+> — CNBC Now (@CNBCnow) [April 9, 2021](https://twitter.com/CNBCnow/status/1380570522799472649?ref_src=twsrc%5Etfw)
 
 
-> 评论：经济战真正的杀手锏就是美元，美元是基于世界对美国政府完全的信任。我们应该明白政府大量花钱的赌博行为所带来灾祸最终还是将返还到百姓身上。
 
 
-## 英喜农场20210407-GTV UK: Mr. Bannon’s Weekly Interview Q8
 
+## 制裁中共国实体清单7家上榜
 
-> 评论：在中共体制下带着脚镣跳舞的中国老百姓根本无法有效参与到全球化的经济中来，产生的大部分劳动价值也都被中共压榨后作为在全世界去作恶的资本。
+4月10日美国商务部推文：商务部对中共国实施新的出口管制，将7个中共国实体列入实体清单，以应对其参与中国军事、破坏稳定的军事现代化努力和/或大规模杀伤性武器计划的情况：[https://bit.ly/2ReqAJZ。](https://bit.ly/2ReqAJZ。)
 
 
-## 全国政协召开双周协商座谈会—围绕“推动民族地区多渠道就业”协商议政 汪洋主持
 
-![全国政协召开双周协商座谈会围绕“推动民族地区多渠道就业”协商议政汪洋主持-新华网](https://lh3.googleusercontent.com/proxy/SZ2Zn_bJYVogMP3evcbPXH9LlyfBRKVmfN0D6HGZnB7cSCornAg838Z4bugeqTDL3LqWUhPQD3S3A6Wn-XW-xBZeTxszDxak39Qh6dX_1zExZC0E-_mQtQl2)
+> Commerce implements new export controls on China, adding 7 Chinese entities to the Entity List in response to their involvement with China’s military, its destabilizing military modernization efforts, and/or its weapons of mass destruction (WMD) programs: [https://t.co/0IGDiCl6rf](https://t.co/0IGDiCl6rf) [pic.twitter.com/6uz8Tb3iQN](https://t.co/6uz8Tb3iQN)
+> — U.S. Commerce Dept. (@CommerceGov) [April 10, 2021](https://twitter.com/CommerceGov/status/1380958779618037768?ref_src=twsrc%5Etfw)
 
 
-> 评论：CCP的数据，从去年到今年，回到农村工作的人数达到一千多万，数据还在持续增长中，新时代的上山下乡运动，活久见，还说有2亿多人选择了灵活就业，说白了就是失业人数达这么多。
 
+## 抵制中共通讯公司要彻底
 
-## 六国外长接连访华 携手抗疫增进互信—中国密集外交唱响合作主旋律（热点对话）
+4月8日大纪元高级编辑推文：”这是一个明显的漏洞。”@BrendanCarrFCC （联邦通讯委员会委员）表示，美国运营商只要用私人部门的资金，而不是联邦资金，仍然可以购买华为与中兴的装备，这不合理。”
 
-![六国外长接连访华中国密集外交唱响合作主旋律-中新网]()![六国外长接连访华中国密集外交唱响合作主旋律-中新网](http://www.chinanews.com/gn/2021/04-11/U587P4T8D9452215F19930DT20210411092223.jpg)
 
 
-> 评论：文贵先生4月10日直播说到，CCP连同俄罗斯及伊朗等几个独裁统治国主要通过“一带一路”控制亚欧大陆，其心可见，天灭中共带头大哥。
+> “That is a glaring loophole.”
+>  [@FCC](https://twitter.com/FCC?ref_src=twsrc%5Etfw) Commissioner [@BrendanCarrFCC](https://twitter.com/BrendanCarrFCC?ref_src=twsrc%5Etfw) says it doesn't make sense that U.S. carriers can still purchase Huawei & ZTE gear as long as they do so with private sector funds, not federal dollars.
+>  
+> 🔴PREMIERE 7:45pm ET: [https://t.co/7U9lbNbvE7](https://t.co/7U9lbNbvE7) [pic.twitter.com/5KG7Pvkrhi](https://t.co/5KG7Pvkrhi)
+> — Jan Jekielek (@JanJekielek) [April 8, 2021](https://twitter.com/JanJekielek/status/1380296582101405696?ref_src=twsrc%5Etfw)
 
 
-## 市场监管总局依法对阿里巴巴集团控股有限公司在中国境内网络零售平台服务市场实施”二选一”垄断行为作出行政处罚
 
-![市场监管总局依法对阿里涉嫌垄断行为立案调查_网易科技](https://nimg.ws.126.net/?url=http%3A%2F%2Fcms-bucket.ws.126.net%2F2020%2F1224%2Ff1b42c55j00qltjao001kc000xc00ipc.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
 
 
-> 评论：在墙国，最大的垄断就是CCP他们自己的几大家族，在社会主义制度下，民企没办法良性发展，想生存就得依附权利，所以到最后，民企做大了就是待宰羔羊，从另外一个角度看，拿阿里巴巴开刀，说明中共内斗如火如荼。
+## 中共渗透
 
+4月10日，国家脉动调查员记者Natallie Winters推文：美国联合航空公司一直在送美国孩子参加一个由中共高层宣传集团赞助的项目。
 
-## 金融支持海南全面深化改革开放
 
-![一揽子金融政策重磅登场！“一行两会一局”37条举措支持海南全面深化改革开放_人民币]()![一揽子金融政策重磅登场！“一行两会一局”37条举措支持海南全面深化改革开放_人民币](https://p6.itc.cn/q_70/images03/20210409/8437269c9ce84deba8519922e33296e4.jpeg)
 
+> 🚨EXC: United Airlines Has Been Sending American Kids On A Program Sponsored By A Top Chinese Communist Propaganda Group.[https://t.co/KHlcXdZezv](https://t.co/KHlcXdZezv)
+> — Natalie Winters (@nataliegwinters) [April 11, 2021](https://twitter.com/nataliegwinters/status/1381041995297218565?ref_src=twsrc%5Etfw)
 
-> 评论：CCP想把海南打造像深圳一样另一个经济特区作为习大神在位的政绩，其实，明白人都知道，CCP先挖坑引人进去投资建设，然后在适当时机收割变成自己家族的产业，换汤不换药的方子用了几十年，太LOW了。
 
 
-## 央视网：台湾外事部门一把手叫嚣：要战斗到最后一天
+4月10日，目前@纽约时报的几名工作人员此前受雇于#中共控制的英文报纸“人民日报”，该报近年来向美国媒体支付了数百万美元，以发布其国家批准的内容。
 
-![]()![](https://n.sinaimg.cn/sinakd20210410ac/400/w720h1280/20210410/6e43-knqqqmu3946782.jpg)
 
 
-> 评论：中共这是要下定决心武力攻台了吗？
+> Several current [@NYTimes](https://twitter.com/nytimes?ref_src=twsrc%5Etfw) staffers were previously employed by the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)-controlled English-language newspaper [#ChinaDaily](https://twitter.com/hashtag/ChinaDaily?src=hash&amp;ref_src=twsrc%5Etfw), which has in recent years paid US media millions of dollars to publish its state-approved content. [https://t.co/oCrJEnYiti](https://t.co/oCrJEnYiti)
+> — The Epoch Times (@EpochTimes) [April 11, 2021](https://twitter.com/EpochTimes/status/1381040553249406977?ref_src=twsrc%5Etfw)
 
 
-## 环球网：德媒刊文：中国年轻人正疏远西方文化
 
-![东方文化与西方文化的区别]()![东方文化与西方文化的区别](https://gss0.baidu.com/-fo3dSag_xI4khGko9WTAnF6hhy/zhidao/wh%3D600%2C800/sign=a4011c1b6563f6241c083105b774c7c0/b8014a90f603738dff699b00bd1bb051f819ecf5.jpg)
+4月8日《纽约时报》员工承认以前为中共工作–尽管”收取了它的好处”
 
 
-> 评论：中共为更好更方便的奴役墙内百姓来达到稳固自身统治的目的而主动切断墙内民间（包括年轻人在内）与西方的联系，而不是正疏远西方文化。
 
+> Great work by [@nataliegwinters](https://twitter.com/nataliegwinters?ref_src=twsrc%5Etfw) & [@RaheemKassam](https://twitter.com/RaheemKassam?ref_src=twsrc%5Etfw), exposing the NY Times “journalists” who previously worked for the Chinese Communist Party.[https://t.co/PFbnnIDHtO](https://t.co/PFbnnIDHtO)
+> — Steve Cortes (@CortesSteve) [April 10, 2021](https://twitter.com/CortesSteve/status/1381027551506751488?ref_src=twsrc%5Etfw)
 
-## 环球网:又来！日美在东海上空实施战斗训练，日媒：意在制约中国
 
-![不顧王毅警告！日、美在東海實施戰鬥訓練日媒：就是在制約中國](https://s.yimg.com/ny/api/res/1.2/eD5gUzitgLUCpe8U1WcwmA--/YXBwaWQ9aGlnaGxhbmRlcjt3PTY0MDtoPTUxMS4yODg4ODg4ODg4ODg5/https://s.yimg.com/uu/api/res/1.2/94Rmh4bDI5cFpIASFlKFaw--~B/aD03MTk7dz05MDA7YXBwaWQ9eXRhY2h5b24-/https://media.zenfs.com/ko/newtalk.tw/9fa2f4ab591e33b6c872548a41dd947c)
 
 
-> 评论：中共一边在试探日美“红线”，一边又给日美划”红线”。 如果中共继续作下去那就不只是制约中共国了。
 
+## 抵制可口可乐的呼声
 
-## 大党丨赤子之心
+可口可乐公司一贯支持中共，近日发起对乔治亚州对选民具备合法证件的新选举法做出反对，引起美国舆论的抵制。美国行动主席Brigitte Gabrel 推文：“真正的爱国者抵制可口可乐。”
 
-![大党丨赤子之心]()![大党丨赤子之心](http://imgcdn.yicai.com/vms-new/2021/04/0d81f6c0-02db-4346-876e-40c40c7dd5bc_0TlD.jpg)
 
 
-> 评论：中国共产党，以假、骗、黑、毒治理中国，西方世界都清楚知道共产主义的贪婪腐败，他们竟然还有脸说自己的党是“赤子之心”，现在还想以BGY 13579计划统治全世界。
+> True Patriots are boycotting Coke! [pic.twitter.com/iwiH65RbXD](https://t.co/iwiH65RbXD)
+> — Brigitte Gabriel (@ACTBrigitte) [April 10, 2021](https://twitter.com/ACTBrigitte/status/1380909426685644802?ref_src=twsrc%5Etfw)
 
 
-## 蒸发超2000亿！刚刚，顺丰王卫道歉：问题不会出现第二次！
 
-![蒸发超2000亿！刚刚，顺丰王卫道歉：问题不会出现第二次！|顺丰|王卫_新浪科技_新浪网]()![蒸发超2000亿！刚刚，顺丰王卫道歉：问题不会出现第二次！|顺丰|王卫_新浪科技_新浪网](https://n.sinaimg.cn/sinakd20210409ac/639/w1439h800/20210409/cea7-knqqqmu2047613.jpg)
 
 
-> 评论：中共内斗加快步伐，阿里的马云，顺丰的王卫只是台前的白手套，背后才是东家真正的较量，我们百姓目前保护好自己，好好看戏，顺带加根稻草。
+## 波音737的问题
 
+4月9日，波音公司告诉16家航空公司客户，由于后备电力问题器件，自去年11月飞机未停飞以来，已交付的17部波音737 Max飞机要停飞，影响可能从数小时到数天。美国联邦航空局表示，正在与波音&航空公司合作解决这一问题。
 
-## 北京日报客户端：为湖北武汉代言 中国外交天团这些名场面太热血了
 
-![为湖北武汉代言中国外交天团这些名场面太热血了(含视频)_手机新浪网]()![为湖北武汉代言中国外交天团这些名场面太热血了(含视频)_手机新浪网](https://n.sinaimg.cn/sinakd2021410s/484/w750h1334/20210410/1f8c-knqqqmu2391959.png)
 
+> Boeing tells 16 airline customers to ground some 737 Max jets that have been delivered since the plane was un-grounded last November. 
+> 
+> The FAA says it is working with Boeing & airlines on the issue. [pic.twitter.com/HBby6CDK9H](https://t.co/HBby6CDK9H)
+> — CNBC Now (@CNBCnow) [April 9, 2021](https://twitter.com/CNBCnow/status/1380510353050701828?ref_src=twsrc%5Etfw)
 
-> 评论：中共战狗外交团的罪行名场面。
 
 
-## 政事儿：山西日报：中央再打虎！山西省副省长、省公安厅厅长刘新云落马
 
-![中央再打虎！山西省副省长、省公安厅厅长刘新云落马|淄博市公安局_网易订阅](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0409%2Fb719967aj00qrama5000pc000hs00bug.jpg&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
 
+## 禁枪令
 
-> 评论：刘新云刚担任铲除黑恶组长，第二天就被调查。身为副省长和省公安厅厅长的刘新云4月9日刚被山西日报报道担任扫黑除恶专项斗争领导小组组长，随即就继续被山西日报报道4月9号他被接受纪律审查和监察调查，官场现形记！
+4月10日现任总统拜登推文：“这个国家的枪支暴力是一种流行病–国会早就该采取行动了。”此前前国务卿蓬佩奥先生曾说，解决坏人暴力问题就得让好人拥枪。
 
 
-## 网易：Nature起底论文造假工厂：工业化造假影响中国所有科研人员
 
-![Nature起底中国论文造假，问题普遍性正在影响中国学术信誉|文章|学术论文|science_网易订阅](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0325%2F8ff3f1d9p00qqifdd000ed200go00drg00hx00es.png&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
+> Gun violence in this country is an epidemic — and it’s long past time Congress take action.
+> — President Biden (@POTUS) [April 10, 2021](https://twitter.com/POTUS/status/1381026709248602115?ref_src=twsrc%5Etfw)
 
 
-> 评论：文章写到 “2007年中国买卖论文“产业”规模约为1.8亿元；到2009年，其规模已膨胀5.5倍，论文买卖的销售额近10亿元.论文造假工厂的重灾区是中国医院的医生” 。
 
 
-## 网易：连平：预计中国一季度GDP增长18%
 
-![](https://nimg.ws.126.net/?url=http%3A%2F%2Fcms-bucket.ws.126.net%2F2021%2F0409%2F1337400ap00qrag680013c000fl009jc.png&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
+## 恶心的拜登家
 
+4月9日Rumble报道了近日福克斯新闻和每日邮报再次曝光对爆料革命战友和GTV真相平台并不陌生的亨特拜登的“老照片”，报道称“恶心的亨特-拜登的新照片出现了”。福克斯新闻称2019年亨特拜登曾哀求父亲乔拜登参加总统竞选。
 
-> 评论：文章基调，中国经济形式一片大好，罗列了很多数据。也请大家抱着谦虚地心态看此文，主要是学习一下怎么说瞎话
+朱利安尼先生4月10日转推时称“这只是乔拜登犯罪家庭的一个例子”。
 
 
-## 法广：[中国驻瑞典大使遭指威胁记者 反对党联合要求驱逐出境](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210410-%E4%B8%AD%E5%9B%BD%E9%A9%BB%E7%91%9E%E5%85%B8%E5%A4%A7%E4%BD%BF%E9%81%AD%E6%8C%87%E5%A8%81%E8%83%81%E8%AE%B0%E8%80%85-%E5%8F%8D%E5%AF%B9%E5%85%9A%E8%81%94%E5%90%88%E8%A6%81%E6%B1%82%E9%A9%B1%E9%80%90%E5%87%BA%E5%A2%83)
 
-![瑞典自由记者悠野（Jojje Olson）资料照片](https://s.rfi.fr/media/display/5475ce62-99dd-11eb-812e-005056bf87d6/w:980/p:16x9/rdljzl.webp)
+> DISGUSTING New Photos of Hunter Biden Emerge [https://t.co/yq3hAXLEad](https://t.co/yq3hAXLEad)
+> — Rudy W. Giuliani (@RudyGiuliani) [April 9, 2021](https://twitter.com/RudyGiuliani/status/1380597743824089099?ref_src=twsrc%5Etfw)
 
 
-> 评论：瑞典自由记者悠野（Jojje Olson）因报导中国抵制H&M，再度遭中国大使馆威胁。基督教民主党（Christian Democrats）与瑞典民主党（Sweden Democrats）因中国大使馆多次威胁记者，要求驱逐中国大使桂从友。中共的战狼外交现在是横扫全球，离死不远了.
 
 
-## 法广：[生为房奴 死为坟奴](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E5%BE%AE%E8%A8%80%E5%BE%AE%E8%AF%AD/20210410-%E7%94%9F%E4%B8%BA%E6%88%BF%E5%A5%B4-%E6%AD%BB%E4%B8%BA%E5%9D%9F%E5%A5%B4)
 
-![清明节北京开放江青墓地，封锁赵紫阳墓地。2021年4月5日。](https://s.rfi.fr/media/display/5ce6d46a-9618-11eb-836c-005056a98db9/w:980/p:16x9/ZHAOZIYANG%20JIAGNQING.webp)
+> This is just an example of the Biden Crime Family. [https://t.co/9wjFGEX88N](https://t.co/9wjFGEX88N)
+> — Rudy W. Giuliani (@RudyGiuliani) [April 11, 2021](https://twitter.com/RudyGiuliani/status/1381125731791556611?ref_src=twsrc%5Etfw)
 
 
-> 评论：清明节前，一位网友吐槽，前往西安蓝田县白鹿原墓园扫墓的父母，看到了墓园醒目的“温馨提示”。要求购墓已满二十年或临近二十年的亡人家属到管理处缴费。一次必须缴纳二十年的费用，逾期不交，将按无主墓穴处理。有网友发帖说：“死无葬身之地这句话，听了这么多年，终于让我见到现实版了！还有比这更能荒唐的吗？”
 
+## 军事
 
-## 法广：[中国各地山寨白宫或埃菲尔铁塔也仿造紫禁城 官方说要管](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210410-%E4%B8%AD%E5%9B%BD%E5%90%84%E5%9C%B0%E5%B1%B1%E5%AF%A8%E7%99%BD%E5%AE%AB%E6%88%96%E5%9F%83%E8%8F%B2%E5%B0%94%E9%93%81%E5%A1%94%E4%B9%9F%E4%BB%BF%E9%80%A0%E7%B4%AB%E7%A6%81%E5%9F%8E-%E5%AE%98%E6%96%B9%E8%AF%B4%E8%A6%81%E7%AE%A1)
+4月10日，单日的#轰炸机任务部队的一对#B1 Lancer轰炸机开展任务，长约28小时，在爱琴海上空往返航行12 000多海里。
 
-![网传“山寨紫禁城” 照片](https://s.rfi.fr/media/display/64506532-99d7-11eb-8e26-005056a964fe/w:980/p:16x9/szz4.webp)
 
 
-> 评论：中共国的假擀面杖就是靠山寨出来的。
+> A single-day [#BomberTaskForce](https://twitter.com/hashtag/BomberTaskForce?src=hash&amp;ref_src=twsrc%5Etfw) mission took a pair of [#B1](https://twitter.com/hashtag/B1?src=hash&amp;ref_src=twsrc%5Etfw) Lancer [#bombers](https://twitter.com/hashtag/bombers?src=hash&amp;ref_src=twsrc%5Etfw) from [@28thBombWing](https://twitter.com/28thBombWing?ref_src=twsrc%5Etfw) approximately 28 hours and over 12,000 nautical miles in a round trip operation over the Aegean Sea. [@US\_Stratcom](https://twitter.com/US_Stratcom?ref_src=twsrc%5Etfw) [#BTF](https://twitter.com/hashtag/BTF?src=hash&amp;ref_src=twsrc%5Etfw) [#AnywhereAnytime](https://twitter.com/hashtag/AnywhereAnytime?src=hash&amp;ref_src=twsrc%5Etfw) [#GlobalStrike](https://twitter.com/hashtag/GlobalStrike?src=hash&amp;ref_src=twsrc%5Etfw) [#GlobalDeterrence](https://twitter.com/hashtag/GlobalDeterrence?src=hash&amp;ref_src=twsrc%5Etfw) [#Bone](https://twitter.com/hashtag/Bone?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/H30KvSRviD](https://t.co/H30KvSRviD)
+> — AFGSC (@AFGlobalStrike) [April 10, 2021](https://twitter.com/AFGlobalStrike/status/1380882022898470915?ref_src=twsrc%5Etfw)
 
 
-## 德国之声：[耐克阿迪被打马赛克 新疆棉争议如何收场？](https://www.dw.com/zh/%E8%80%90%E5%85%8B%E9%98%BF%E8%BF%AA%E8%A2%AB%E6%89%93%E9%A9%AC%E8%B5%9B%E5%85%8B-%E6%96%B0%E7%96%86%E6%A3%89%E4%BA%89%E8%AE%AE%E5%A6%82%E4%BD%95%E6%94%B6%E5%9C%BA/a-57148771)
 
-![China Kampagne gegen westliche Mode- und Sportfirmen]( "China Kampagne gegen westliche Mode- und Sportfirmen")![China Kampagne gegen westliche Mode- und Sportfirmen](https://static.dw.com/image/56983740_303.jpg "China Kampagne gegen westliche Mode- und Sportfirmen")
 
 
-> 评论：近期中共国的电视和网络综艺节目开始给出镜明星的耐克等品牌Logo打上马赛克，显示出北京在这一问题上毫不妥协的强硬态度。小编认为这就是自欺欺人，真能挡的住吗？
+预算案将中国列为 “头号挑战”，并呼吁需要 “利用 “太平洋威慑计划。
+[https://trib.al/TXoeRLl](https://trib.al/TXoeRLl)
 
 
-## 德国之声：[墙外文摘：“棉花战争”只是一场序曲？](https://www.dw.com/zh/%E5%A2%99%E5%A4%96%E6%96%87%E6%91%98%E6%A3%89%E8%8A%B1%E6%88%98%E4%BA%89%E5%8F%AA%E6%98%AF%E4%B8%80%E5%9C%BA%E5%BA%8F%E6%9B%B2/a-57098034)
 
-![Tableau | Xinjiang - Baumwollanbau | Uighren | 25.03.2021]( "Tableau | Xinjiang - Baumwollanbau | Uighren | 25.03.2021")![Tableau | Xinjiang - Baumwollanbau | Uighren | 25.03.2021](https://static.dw.com/image/56996335_303.jpg "Tableau | Xinjiang - Baumwollanbau | Uighren | 25.03.2021")
+> The budget identifies China as the “top challenge,” and calls out the need to “leverage” the Pacific Deterrence Initiative.[https://t.co/IBsnfIf0wG](https://t.co/IBsnfIf0wG) [pic.twitter.com/glpXXCrYIK](https://t.co/glpXXCrYIK)
+> — Navy Times (@NavyTimes) [April 9, 2021](https://twitter.com/NavyTimes/status/1380543466657218564?ref_src=twsrc%5Etfw)
 
 
-> 评论：新疆“棉花战争”中，中共主动推动了“脱钩化”。本来在各自国家帮中共说话的西方企业被“逼反”了。而经济上的脱钩化，会进一步推动政治上的敌对。
 
 
-## 新头条：[中国网友「抵制IKEA！」听闻上海店打三折，身体很诚实](https://newtalk.tw/news/view/2021-04-09/560994)
 
-![被中國抵制的IKEA日前推出上海徐匯店的清倉促銷活動，店內人山人海，彼時說「抵制」的氣燄不再。   圖 : 翻攝自《新聞晨報》微博]( "被中國抵制的IKEA日前推出上海徐匯店的清倉促銷活動，店內人山人海，彼時說「抵制」的氣燄不再。   圖 : 翻攝自《新聞晨報》微博")![被中國抵制的IKEA日前推出上海徐匯店的清倉促銷活動，店內人山人海，彼時說「抵制」的氣燄不再。   圖 : 翻攝自《新聞晨報》微博](https://s.newtalk.tw/album/news/561/606fbba8b1003.jpg "被中國抵制的IKEA日前推出上海徐匯店的清倉促銷活動，店內人山人海，彼時說「抵制」的氣燄不再。   圖 : 翻攝自《新聞晨報》微博")
+## 川普总统能否回归
 
+4月9日川普总统GAB发文。[点击查看原文。](https://gab.com/realdonaldtrump/posts/106036472698724196)川普总统对飞利浦亲王的追思之时，也是无数美国人怀念川普总统执政之时。川普总统的悼文，如同国家级别的问候，相较于现任国务卿布林肯发布的国务院冷冰冰的官方悼文，是发自内心情真意切的追思感怀。悼文如下。
 
-> 评论：老百姓的口袋最诚实！
+- ![]()![](https://gnews.org/wp-content/uploads/2021/04/trump0409-11.png)
 
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+全世界都在哀悼菲利普亲王的去世，他体现了联合王国和英联邦的崇高灵魂和自豪精神。
 
+梅拉尼和我向女王伊丽莎白二世陛下和整个皇室家族表示最深切和最深刻的哀悼。我们向英国人民致以最衷心的慰问。这对大不列颠，以及所有珍视我们文明的人来说，都是一个不可替代的损失。
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+菲利普王子定义了英国的尊严和优雅。他化身为英国安静的矜持、严厉的坚韧和不屈的正直。
+
+年轻时，他作为一名海军军官在第二次世界大战中为英国光荣而勇敢地服务。在地中海的战舰上，他看到了海上的战斗。随后，他参加了1943年盟军入侵西西里岛的关键战役。像他那一代人一样，在英国最黑暗的时刻，他为了上帝、国家、自由和自治的价值观，把自己的生命放在了线上，这也是美国和英国永远团结在一起的原因。
+
+七十年来，菲利普亲王将同样的责任感和使命感带到了他作为女王的后妃和丈夫的角色中。他受到他的同胞们的钦佩，也受到全世界所有人的尊重。他在服务、恒心和爱国主义方面的杰出典范将是他最伟大的遗产。
+
+在过去的几年里，梅拉尼娅和我很荣幸有机会访问英国。我们亲眼目睹了君主制是如何体现和传承英国人民的美德–没有人比菲利普亲王做得更好。
+
+在我们为他的逝世感到悲痛的同时，我们也要庆祝他的逝世，并重新致力于他奉献其非凡生命的价值观。我们将深深地怀念他。
+
+
+
+国务卿布林肯的悼词（新闻声明）如下。
+
+
+
+> Our condolences go out to the royal family and all of the United Kingdom on the passing of His Royal Highness The Prince Philip, Duke of Edinburgh. We will remember him as a devoted leader and a friend of the United States. [https://t.co/wECxPAu8zH](https://t.co/wECxPAu8zH)
+> — Ned Price (@StateDeptSpox) [April 10, 2021](https://twitter.com/StateDeptSpox/status/1380673928239144962?ref_src=twsrc%5Etfw)
+
+
+
+我谨代表美国人民，就爱丁堡公爵菲利普亲王殿下的逝世向联合王国王室和人民表示最深切的哀悼。
+
+菲利普亲王殿下从第二次世界大战期间的服役，到几十年来与女王伊丽莎白二世一起为英国人民服务，都体现了他对国家不折不扣的责任感。 他是美国的真正朋友。 我们缅怀他，并将在未来的岁月里记住他对职责和友谊的奉献。
+
+
+
+
+
+
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+
 0
