@@ -1,119 +1,238 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月4日郭先生盖特内容整理
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1077322/)
+## 美国政要等每日重要信息0411.2021
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1077199/)
 
-**郭先生在清明节的感受：**
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
 
-一：**感觉到世界的经济、政治，甚至全世界人民，像泰坦尼克号要撞向雪山一样的感觉**。
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
 
-①现在华尔街的人把自己大房子，赶快不赎回的抵押贷款。还不了钱，就不赎回了。都不要个人的Guarantee，都打大折卖公司，很多金融资产的往外卖。
 
-②玩金融的，现在是瑟瑟发抖。眼神贪婪，都不想失去。都想趁此机会捞一把，始终看着有没有机会弄个大的。
+## 中共病毒真相
 
-③人类的虚伪和懦弱，为了奢华、体面，玩大的、高级的。不敢面对真相，一步又一步的错误。每个人都恐惧，知道世界正在撞向冰山。在撞向冰山前，还想拉小提琴、听听音乐，最后一定藏身在水里。
+4月11日劳伦斯-塞林博士使用爆料革命美东香草山农场的文宣图发推，推文如下：
 
-这就是今天世界政治、经济的现状和形势。所以现在数字货币、加密货币这么厉害。战友们一定要看的更清楚、更明白，现在到啥时候了。人类从来没像现在这样，面临着重大的改变和挑战。这对有智慧、有本事的人是机会，愿每个战友都有智慧、本事把握住这次机会。
-
-现在泰坦尼克号倒闭当中，里面一定有英雄人物，也有脱险的人。新中国联邦就是拯救大船的，最后我们离开了泰坦尼克号。爆料革命当中，有些人一定要意志坚定。我们不是等船沉了救人，一定要让这个船沉不下去。
-
-世界巨变前，一定要搂住，搂不住的时候，一定是大灾大难伴随。此时不要贪，不要有幻想，要有各种防范。珍惜现在拥有的自由、健康，珍惜现在能听到七哥直播和盖特的机会。
-
-**二： 人的生命很脆弱，珍惜家人。为被共产党病毒杀死的无辜人们，烧纸、祈福。**
-
-1：四月是鬼月，清明节是阴阳交接，阴气很重的时候，也是人顿悟的时候。活生生的人就在身边消失了，然后烧成灰了，永远不能再回来了相见。
-
-每个人最后都是这个归宿，那么看一个人的人生时候，很多事情会想明白。啥东西都不是你的，什么东西都是身外之物。钱财、房子，最后一样都带不走，都得留在这个世界。
-
-2：一到清明节的时候，无论是郭先生的母亲、弟弟，还有当年在庆丰看守所死去的那些人，共产党病毒杀害无辜的人，这些冤魂野鬼，都让七哥很心痛的事。我们要为那些被共产党病毒杀死的无辜的人们，为不在人世的家人们，好好的为他们烧纸、祈福。
-
-3：很多战友发来，在国内过清明节的感受。武汉很多战友说，武汉的墓地都是便衣警察。有的人想到十字路口烧纸，被抓。火葬场旁边到处是警车。现在他们真正感受到了，冠状病毒死的人不可能就几百个，再加两个“0”都不止。很多战友不知道，一些战友是在武汉病毒中死去了，有的战友一家人死掉一半。
-
-5：感觉到中共灭亡前的疯狂。魔鬼一旦占到上风以后，那种狰狞的笑。相信被共产党病毒杀死的这些冤魂野鬼，是一个巨大的力量。最终会和新中国联邦人站在一起，一起灭共。共产党的灭亡一定是人间、阴间、天堂，共同合力的结果，把它给扒掉。
-
-6：越是新中国联邦在世界上扮演关键作用的时候，倡导正道主义的时候，世界经济即将崩塌的时候，越要想到家人最重要，要和家人呆一起。希望战友们真能懂得，家人是你唯一，没有比家人再重要的。
-
-中国人的文化当中，最重要、最关键的就是家人，永远别忘了这个主题。任何情况下，家人是你最重要、最可相信的。在清明节的时候，想想失去的亲人，再也回不来。爱你的家人，爱你身边的人，这是核心。
-
-我们都知道英国女王家里，是一个冷酷的家庭。发生这么多事情，出了那么多丑闻。跟他们聊天，在他们一生中，痛苦、挑战的永远是家庭的规则。但是不管如何，都认为家人最重要。
-
-7：谈生死的时候，会发现新中国联邦人的正道主义，是世界上最伟大的。只有我们的正道主义，才是人类的未来。
-
-世界上哪有几个像样的政府，只会干坏事，不会干好事。这些流氓政治家更邪恶，拼了命让大家打疫苗。这个疫苗的背后就是腐败，免费的，最后这些钱都是出在老百姓身上。没有一个政府生产一块钱财富，所有的财富都是人民创造的。
-
-像头两天美国花一万多亿，给每个人发1400块补助。现在马上加税，老板加税了，老板自己家里也不产钱，地里也不长美元。还得从老百姓的劳动里，剥削出来。最后羊毛一定长在羊身上，羊毛一定不会出在猪身上。
-
-不论是哪国都是一样，这是基本的常识。所以说政府、政客，没有一个是好东西。一辈子当啥，也不能当政客。掺乎啥，也不能掺乎政治。没好东西。
-
-**国内人和钱加速外逃**
-
-郭先生透露，现在国内有钱、有权的，钱、人都到海外了。共产党的老杂毛，还有政治局、各省的领导，各地的精英，国内聪明的人，以及天天喊爱国的人，很多把自己的钱和家人送到了海外。
-
-没有人，为了他们的国和他们的那个家要奉献终身。只有傻瓜，没本事的草根们、家人们，只能呆在国内，等着灾难的到来。打台湾，想跑也跑不了。把你孩子送上去当炮灰，经济崩溃，把你兜里的钱，全拿出来。把你家东西，变相的捐给党。这就是真正的奴隶制度，家族控制的家天下国家，不是人民所拥有的国家。
-
-这个世界很残酷，你和家人出来也活不了。在国内都没钱，更没钱转出来。总是那个1%或5% 10%的人统治者那99%和95%的人，而且要你的命，要你的钱，想要你怎么死就怎么死。没办法，这就是命运。
-
-**以毒灭共的进展**
-
-冠状病毒的事情，每秒每时都在发酵，不可能就这样过去。现在共产党找出一批年轻、讲英文、长得好看的，搞大外宣，抖音，Zoom等社交大量的搞，要替共产党洗地。但是冠状病毒是宣传洗不掉的，冠状病毒的来源和共产党制造的病毒，这个事实永远不会被埋没。
-
-打台湾，绝对是宣布你死亡的那一刻。香港的事情不会消失，不会拉到。美国、欧洲和西方世界的经济的重创，最后是一定找共产党算账。
-
-**G系列**
-
-**GTV重建投资的事情**
-
-1：很多人给郭先生发信息，说美国投资者要签什么合同。郭先生重申一遍：
-
-**所有有关G系列投资的决定，都要以七哥盖特和喜马拉雅联盟委员会发出的为准。**
-
-战友在直播中的聊天，还有个人的观点，都不能作为官方的数据。咱们要遵守这个原则，希望美国的战友投资者不要误会。等七哥和联盟委员会发出的通知，一切以这个为准。
-
-2：我们正在和律师开会，解决美国投资者参与GTV重建。机构投资不接受任何一个美国公民、美国居民的投资。如果有的话，美国SEC可能就有机会继续给找麻烦。希望大家能够理解。
-
-**其他方面：**
-
-1：像马来西亚外长到中国喊大哥，完全是痞子流氓文化，黑帮文化。外界的领域，都看不下去。只有中国人草根被洗脑的人吃这一套。
-
-2：人都是说着容易，做着就难。七哥是控制能力很强了，但还是有时候控制不住抽雪茄。
-
-3：咱是以钱灭共，以毒灭共。共产党正在以钱灭美。美国人不信，说咱造谣，胡说八道。现在美国人已经知道了，共产党灭白计划中，必须要以钱灭美。
-
-4：G-FASHION设计师为郭先生准备唱歌，设计了几套很性感的衣裳。
-
-5：当时泰坦尼克号的凯莉，不像大家想象的那样。当时她已经是50多岁了，是好几个孩子的母亲，也不那么漂亮。她到纽约去是为了看孩子，故事都是瞎编的。
-
-6：世界有身份的、政治的、情报界的人，说出的打疫苗的后遗症，吓死人了。
-
-7：大家最近看到黄金、石油没有大动静，不可能这样下去。霍斯姆海峡、苏伊士运河，还会出事。
-
-内容来源：
-
-【字幕】4/4/2021文贵盖特：全世界人民的安全．经济，政治，勇气和正义就像当年的泰坦尼克号一样，不可逆转的 撞上共产党的这个流氓的冰山
+由于发病前高病毒载量和在上呼吸道脱落，是弗林酶切位点对对人体ACE2预先适应的高亲和力的结果，增加的无症状传播是#中共病毒大流行与SARS 和 MERS相比具备了生物武器特征。
 
 
 
-> [【字幕】4/4/2021文贵盖特：全世界人民的安全．经济，政治，勇气和正义就像当年的泰坦尼克号一样，不可逆转的 撞上共产党的这个流氓的冰山](https://gnews.org/zh-hans/1049756/)
+> Increased asymptomatic transmission is a bioweapon feature that [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) has compared to SARS & MERS, due to pre-symptom high viral loads & shedding in the upper respiratory tract, a result of furin cleavage site insertion & pre-adapted high affinity human ACE2 binding[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/lNB5cKdGen](https://t.co/lNB5cKdGen)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 11, 2021](https://twitter.com/LawrenceSellin/status/1381156085944422402?ref_src=twsrc%5Etfw)
+
+
+图片信息：
+高传染性
+低杀伤力
+显著的毒性
+对温度不敏感
+无症状传播率高
+抗环境变化的能力
+破坏力是前所未有的
+
+
+## 中共病毒疫苗
+
+4月9日据CNBC，辉瑞疫苗公司向FDA提交文件，将其中共病毒大流行（Covid-19）疫苗的紧急使用授权扩大到12至15岁的人。
 
 
 
-【字幕】4/4/2021文贵盖特：清明节这个鬼四月是共同沉思人生．当下社会的最好的时机，只要解脱了生死的恐惧！人生再无任何大事，没有任何烦恼
+> BREAKING: Pfizer files with the FDA to expand emergency use authorization for its Covid-19 vaccine to people between 12 and 15 years of age. [pic.twitter.com/SIXEtQfM1R](https://t.co/SIXEtQfM1R)
+> — CNBC Now (@CNBCnow) [April 9, 2021](https://twitter.com/CNBCnow/status/1380570522799472649?ref_src=twsrc%5Etfw)
 
 
 
-> [【字幕】4/4/2021文贵盖特：清明节这个鬼四月是共同沉思人生．当下社会的最好的时机，只要解脱了生死的恐惧！人生再无任何大事，没有任何烦恼](https://gnews.org/zh-hans/1050010/)
+
+
+## 制裁中共国实体清单7家上榜
+
+4月10日美国商务部推文：商务部对中共国实施新的出口管制，将7个中共国实体列入实体清单，以应对其参与中国军事、破坏稳定的军事现代化努力和/或大规模杀伤性武器计划的情况：[https://bit.ly/2ReqAJZ。](https://bit.ly/2ReqAJZ。)
 
 
 
-【字幕】4/4/2021文贵盖特：明天上午9：30文贵乱聊直播，谈谈共产党的以钱灭美的计划
+> Commerce implements new export controls on China, adding 7 Chinese entities to the Entity List in response to their involvement with China’s military, its destabilizing military modernization efforts, and/or its weapons of mass destruction (WMD) programs: [https://t.co/0IGDiCl6rf](https://t.co/0IGDiCl6rf) [pic.twitter.com/6uz8Tb3iQN](https://t.co/6uz8Tb3iQN)
+> — U.S. Commerce Dept. (@CommerceGov) [April 10, 2021](https://twitter.com/CommerceGov/status/1380958779618037768?ref_src=twsrc%5Etfw)
 
 
 
-> [【字幕】4/4/2021文贵盖特：明天上午9：30文贵乱聊直播，谈谈共产党的以钱灭美的计划](https://gnews.org/zh-hans/1050330/)
+## 抵制中共通讯公司要彻底
+
+4月8日大纪元高级编辑推文：”这是一个明显的漏洞。”@BrendanCarrFCC （联邦通讯委员会委员）表示，美国运营商只要用私人部门的资金，而不是联邦资金，仍然可以购买华为与中兴的装备，这不合理。”
 
 
 
-整理：pride
+> “That is a glaring loophole.”
+>  [@FCC](https://twitter.com/FCC?ref_src=twsrc%5Etfw) Commissioner [@BrendanCarrFCC](https://twitter.com/BrendanCarrFCC?ref_src=twsrc%5Etfw) says it doesn't make sense that U.S. carriers can still purchase Huawei & ZTE gear as long as they do so with private sector funds, not federal dollars.
+>  
+> 🔴PREMIERE 7:45pm ET: [https://t.co/7U9lbNbvE7](https://t.co/7U9lbNbvE7) [pic.twitter.com/5KG7Pvkrhi](https://t.co/5KG7Pvkrhi)
+> — Jan Jekielek (@JanJekielek) [April 8, 2021](https://twitter.com/JanJekielek/status/1380296582101405696?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 中共渗透
+
+4月10日，国家脉动调查员记者Natallie Winters推文：美国联合航空公司一直在送美国孩子参加一个由中共高层宣传集团赞助的项目。
+
+
+
+> 🚨EXC: United Airlines Has Been Sending American Kids On A Program Sponsored By A Top Chinese Communist Propaganda Group.[https://t.co/KHlcXdZezv](https://t.co/KHlcXdZezv)
+> — Natalie Winters (@nataliegwinters) [April 11, 2021](https://twitter.com/nataliegwinters/status/1381041995297218565?ref_src=twsrc%5Etfw)
+
+
+
+4月10日，目前@纽约时报的几名工作人员此前受雇于#中共控制的英文报纸“人民日报”，该报近年来向美国媒体支付了数百万美元，以发布其国家批准的内容。
+
+
+
+> Several current [@NYTimes](https://twitter.com/nytimes?ref_src=twsrc%5Etfw) staffers were previously employed by the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)-controlled English-language newspaper [#ChinaDaily](https://twitter.com/hashtag/ChinaDaily?src=hash&amp;ref_src=twsrc%5Etfw), which has in recent years paid US media millions of dollars to publish its state-approved content. [https://t.co/oCrJEnYiti](https://t.co/oCrJEnYiti)
+> — The Epoch Times (@EpochTimes) [April 11, 2021](https://twitter.com/EpochTimes/status/1381040553249406977?ref_src=twsrc%5Etfw)
+
+
+
+4月8日《纽约时报》员工承认以前为中共工作–尽管”收取了它的好处”
+
+
+
+> Great work by [@nataliegwinters](https://twitter.com/nataliegwinters?ref_src=twsrc%5Etfw) & [@RaheemKassam](https://twitter.com/RaheemKassam?ref_src=twsrc%5Etfw), exposing the NY Times “journalists” who previously worked for the Chinese Communist Party.[https://t.co/PFbnnIDHtO](https://t.co/PFbnnIDHtO)
+> — Steve Cortes (@CortesSteve) [April 10, 2021](https://twitter.com/CortesSteve/status/1381027551506751488?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 抵制可口可乐的呼声
+
+可口可乐公司一贯支持中共，近日发起对乔治亚州对选民具备合法证件的新选举法做出反对，引起美国舆论的抵制。美国行动主席Brigitte Gabrel 推文：“真正的爱国者抵制可口可乐。”
+
+
+
+> True Patriots are boycotting Coke! [pic.twitter.com/iwiH65RbXD](https://t.co/iwiH65RbXD)
+> — Brigitte Gabriel (@ACTBrigitte) [April 10, 2021](https://twitter.com/ACTBrigitte/status/1380909426685644802?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 波音737的问题
+
+4月9日，波音公司告诉16家航空公司客户，由于后备电力问题器件，自去年11月飞机未停飞以来，已交付的17部波音737 Max飞机要停飞，影响可能从数小时到数天。美国联邦航空局表示，正在与波音&航空公司合作解决这一问题。
+
+
+
+> Boeing tells 16 airline customers to ground some 737 Max jets that have been delivered since the plane was un-grounded last November. 
+> 
+> The FAA says it is working with Boeing & airlines on the issue. [pic.twitter.com/HBby6CDK9H](https://t.co/HBby6CDK9H)
+> — CNBC Now (@CNBCnow) [April 9, 2021](https://twitter.com/CNBCnow/status/1380510353050701828?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 禁枪令
+
+4月10日现任总统拜登推文：“这个国家的枪支暴力是一种流行病–国会早就该采取行动了。”此前前国务卿蓬佩奥先生曾说，解决坏人暴力问题就得让好人拥枪。
+
+
+
+> Gun violence in this country is an epidemic — and it’s long past time Congress take action.
+> — President Biden (@POTUS) [April 10, 2021](https://twitter.com/POTUS/status/1381026709248602115?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 恶心的拜登家
+
+4月9日Rumble报道了近日福克斯新闻和每日邮报再次曝光对爆料革命战友和GTV真相平台并不陌生的亨特拜登的“老照片”，报道称“恶心的亨特-拜登的新照片出现了”。福克斯新闻称2019年亨特拜登曾哀求父亲乔拜登参加总统竞选。
+
+朱利安尼先生4月10日转推时称“这只是乔拜登犯罪家庭的一个例子”。
+
+
+
+> DISGUSTING New Photos of Hunter Biden Emerge [https://t.co/yq3hAXLEad](https://t.co/yq3hAXLEad)
+> — Rudy W. Giuliani (@RudyGiuliani) [April 9, 2021](https://twitter.com/RudyGiuliani/status/1380597743824089099?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> This is just an example of the Biden Crime Family. [https://t.co/9wjFGEX88N](https://t.co/9wjFGEX88N)
+> — Rudy W. Giuliani (@RudyGiuliani) [April 11, 2021](https://twitter.com/RudyGiuliani/status/1381125731791556611?ref_src=twsrc%5Etfw)
+
+
+
+## 军事
+
+4月10日，单日的#轰炸机任务部队的一对#B1 Lancer轰炸机开展任务，长约28小时，在爱琴海上空往返航行12 000多海里。
+
+
+
+> A single-day [#BomberTaskForce](https://twitter.com/hashtag/BomberTaskForce?src=hash&amp;ref_src=twsrc%5Etfw) mission took a pair of [#B1](https://twitter.com/hashtag/B1?src=hash&amp;ref_src=twsrc%5Etfw) Lancer [#bombers](https://twitter.com/hashtag/bombers?src=hash&amp;ref_src=twsrc%5Etfw) from [@28thBombWing](https://twitter.com/28thBombWing?ref_src=twsrc%5Etfw) approximately 28 hours and over 12,000 nautical miles in a round trip operation over the Aegean Sea. [@US\_Stratcom](https://twitter.com/US_Stratcom?ref_src=twsrc%5Etfw) [#BTF](https://twitter.com/hashtag/BTF?src=hash&amp;ref_src=twsrc%5Etfw) [#AnywhereAnytime](https://twitter.com/hashtag/AnywhereAnytime?src=hash&amp;ref_src=twsrc%5Etfw) [#GlobalStrike](https://twitter.com/hashtag/GlobalStrike?src=hash&amp;ref_src=twsrc%5Etfw) [#GlobalDeterrence](https://twitter.com/hashtag/GlobalDeterrence?src=hash&amp;ref_src=twsrc%5Etfw) [#Bone](https://twitter.com/hashtag/Bone?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/H30KvSRviD](https://t.co/H30KvSRviD)
+> — AFGSC (@AFGlobalStrike) [April 10, 2021](https://twitter.com/AFGlobalStrike/status/1380882022898470915?ref_src=twsrc%5Etfw)
+
+
+
+
+
+预算案将中国列为 “头号挑战”，并呼吁需要 “利用 “太平洋威慑计划。
+[https://trib.al/TXoeRLl](https://trib.al/TXoeRLl)
+
+
+
+> The budget identifies China as the “top challenge,” and calls out the need to “leverage” the Pacific Deterrence Initiative.[https://t.co/IBsnfIf0wG](https://t.co/IBsnfIf0wG) [pic.twitter.com/glpXXCrYIK](https://t.co/glpXXCrYIK)
+> — Navy Times (@NavyTimes) [April 9, 2021](https://twitter.com/NavyTimes/status/1380543466657218564?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 川普总统能否回归
+
+4月9日川普总统GAB发文。[点击查看原文。](https://gab.com/realdonaldtrump/posts/106036472698724196)川普总统对飞利浦亲王的追思之时，也是无数美国人怀念川普总统执政之时。川普总统的悼文，如同国家级别的问候，相较于现任国务卿布林肯发布的国务院冷冰冰的官方悼文，是发自内心情真意切的追思感怀。悼文如下。
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/04/trump0409-11.png)
+
+
+全世界都在哀悼菲利普亲王的去世，他体现了联合王国和英联邦的崇高灵魂和自豪精神。
+
+梅拉尼和我向女王伊丽莎白二世陛下和整个皇室家族表示最深切和最深刻的哀悼。我们向英国人民致以最衷心的慰问。这对大不列颠，以及所有珍视我们文明的人来说，都是一个不可替代的损失。
+
+菲利普王子定义了英国的尊严和优雅。他化身为英国安静的矜持、严厉的坚韧和不屈的正直。
+
+年轻时，他作为一名海军军官在第二次世界大战中为英国光荣而勇敢地服务。在地中海的战舰上，他看到了海上的战斗。随后，他参加了1943年盟军入侵西西里岛的关键战役。像他那一代人一样，在英国最黑暗的时刻，他为了上帝、国家、自由和自治的价值观，把自己的生命放在了线上，这也是美国和英国永远团结在一起的原因。
+
+七十年来，菲利普亲王将同样的责任感和使命感带到了他作为女王的后妃和丈夫的角色中。他受到他的同胞们的钦佩，也受到全世界所有人的尊重。他在服务、恒心和爱国主义方面的杰出典范将是他最伟大的遗产。
+
+在过去的几年里，梅拉尼娅和我很荣幸有机会访问英国。我们亲眼目睹了君主制是如何体现和传承英国人民的美德–没有人比菲利普亲王做得更好。
+
+在我们为他的逝世感到悲痛的同时，我们也要庆祝他的逝世，并重新致力于他奉献其非凡生命的价值观。我们将深深地怀念他。
+
+
+
+国务卿布林肯的悼词（新闻声明）如下。
+
+
+
+> Our condolences go out to the royal family and all of the United Kingdom on the passing of His Royal Highness The Prince Philip, Duke of Edinburgh. We will remember him as a devoted leader and a friend of the United States. [https://t.co/wECxPAu8zH](https://t.co/wECxPAu8zH)
+> — Ned Price (@StateDeptSpox) [April 10, 2021](https://twitter.com/StateDeptSpox/status/1380673928239144962?ref_src=twsrc%5Etfw)
+
+
+
+我谨代表美国人民，就爱丁堡公爵菲利普亲王殿下的逝世向联合王国王室和人民表示最深切的哀悼。
+
+菲利普亲王殿下从第二次世界大战期间的服役，到几十年来与女王伊丽莎白二世一起为英国人民服务，都体现了他对国家不折不扣的责任感。 他是美国的真正朋友。 我们缅怀他，并将在未来的岁月里记住他对职责和友谊的奉献。
+
+
+
+
+
+
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
 
 0

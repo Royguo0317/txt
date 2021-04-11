@@ -1,238 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0411.2021
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1077199/)
+## 4/11/2021 国内经济周报：多家金融机构反洗钱违规遭罚！3月份PPI大涨4.4%，下游制造企业利润承压
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1077540/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-13.jpg)
+图片来源： 视觉中国
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
+**1.多家金融机构涉及银行、券商和支付机构，反洗钱不力遭“双罚”**
 
+[券商中国4月9日发布消息，渤海银行、吉林亿联银行、长春发展农商行、吉林德惠农商行和辽源农商行5家机构及12位负责人，因存在违反反洗钱相关规定的违法行为，被央行长春支行行政处罚。4月7日，开源证券也因违法反洗钱管理规定，被央行西安分行对开源证券及相关责任人开出罚单。](https://www.sohu.com/a/460068049_177992?scm=1002.590044.0.10646-1931&amp;spm=smpc.ch15.content1-n-2.1.1618091904630y4TSo79)
 
-## 中共病毒真相
+评论：近期，反洗钱领域的监管持续加码,普遍采取“机构处罚”和“负责人处罚”的“双罚”措施，但处罚力度和金额方面则表现为“形式重于实质”“抓小放大“。
 
-4月11日劳伦斯-塞林博士使用爆料革命美东香草山农场的文宣图发推，推文如下：
+**2.大宗商品普涨推升3月PPI大涨4.4% 下游制造企业利润承压**
 
-由于发病前高病毒载量和在上呼吸道脱落，是弗林酶切位点对对人体ACE2预先适应的高亲和力的结果，增加的无症状传播是#中共病毒大流行与SARS 和 MERS相比具备了生物武器特征。
+[4月9日，国家统计局发布3月全国居民消费价格（CPI）同比上涨0.4%，较上月由负转正，猪肉价格的持续回落，使得CPI维持低位。由于去年3月物价逐渐摆脱疫情紧张状况，基数有所回落，故而推动3月CPI转正。](http://www.21jingji.com/2021/4-10/0MMDEzNzlfMTYyNDA0Mw.html)
 
+[3月PPI同比上涨4.4%，环比上涨1.6%；同比涨幅4.4%为2018年8月以来的高峰，原油、铁矿石、钢铁、铜、铝等生产原材料涨价尤为突出。大宗商品涨价向下游传导存在困难，使得工业生产者购进价格涨幅高于出厂价格，上游原材料价格涨幅明显高于下游制造业涨幅下游制造厂商利润受挤压。](http://www.21jingji.com/2021/4-10/0MMDEzNzlfMTYyNDA0Mw.html)
 
+评论：消费者物价指数CPI维持在低位，而生产物价指数PPI却通胀预期高涨，这种不正常的生产和消费模式最终只能通过企业的倒闭潮或经济崩盘去调整修复。
 
-> Increased asymptomatic transmission is a bioweapon feature that [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) has compared to SARS & MERS, due to pre-symptom high viral loads & shedding in the upper respiratory tract, a result of furin cleavage site insertion & pre-adapted high affinity human ACE2 binding[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/lNB5cKdGen](https://t.co/lNB5cKdGen)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 11, 2021](https://twitter.com/LawrenceSellin/status/1381156085944422402?ref_src=twsrc%5Etfw)
+**3.人民币最高升破6.5 ！60家上市公司汇兑损失过亿**
 
+[据证券时报统计，已发布2020年年报的上市公司中，合计汇兑净损失高达100.33亿元，相对于2019年的1.03亿元，增加明显。反映在A股相关企业汇兑损益上，对企业当期业绩影响较大，部分企业甚至因为汇兑损失拖累，2020年业绩转亏。2020年期间人民币汇率先贬后升，一度贬至7.1765后再反向持续升值至年末的6.5148。外币收入占比较高，或货币资产较多的公司，2020年损失惨重。外币负债占比较高的航空公司，在人民币升值的情况下则实现汇兑收益。国内三大航空公司近日披露的2020年年报显示，财报期间合计实现汇兑收益95.83亿元，去年同期为汇兑损失36.73亿元。](https://www.163.com/money/article/G7782OH300259DLP.html)
 
-图片信息：
-高传染性
-低杀伤力
-显著的毒性
-对温度不敏感
-无症状传播率高
-抗环境变化的能力
-破坏力是前所未有的
+评论： 在外汇管制，资本非自由流动和缺乏有效的外汇套保工具的中共国，无论持有外币资产或者外币负债的企业，亏损是实实在在的，所谓的“汇兑收益”也许只是个数字，最终能成功逃脱汇率上下波动轮番被割韭菜的宿命吗？
 
+**4.墓地销售乱象：价格浮动大，有墓园联合银行推出按揭贷遭质疑**
 
-## 中共病毒疫苗
+[据媒体报道，昆明一家墓园近日与银行合作推出“墓地按揭贷”金融服务项目。该项目最高可贷款20万元，贷款期限可达10年。项目经理称，由于行业特殊，不需要抵押便可贷款。该墓园随后在接受南都记者采访时表示，“（墓地贷）已取消”。“墓地贷”背后是近年墓地价格水涨船高，“比买房还贵”，殡葬行业可以获取的毛利润非常可观。有A股“殡葬第一股”之称的福成股份2020年年报披露，墓位销售、管理、殡葬服务收入占比7.72%，实现营收8238.6万元，毛利率达81%。南都记者调查发现，一些墓地销售人员报价浮动大，甚至有的高达百万，还有的销售人员声称购买墓地不需要死亡证明。](http://www.infzm.com/contents/204068)评论： 墓地价格水涨船高催生的“墓地按揭贷”成为一个高毛利的金融服务项目。生活在当下中共国，到底是死者的“不幸”还是生者的“不幸”。
 
-4月9日据CNBC，辉瑞疫苗公司向FDA提交文件，将其中共病毒大流行（Covid-19）疫苗的紧急使用授权扩大到12至15岁的人。
+**5.3月中共国乘用车销量比2019年同期下滑超10%**
 
+[据第一财经报道，中汽协报告指出，由于2020年3月基数较低，对比2019年累计历史数据来看，3月乘用车产销同比下降超过10%，且降幅逐月呈进一步扩大趋势。中汽协数据显示，今年第一季度，乘用车销量达507.6万辆，同比增长75.1%，但与2019年一季度数据相比，乘用车产销继续呈现下降，产销量分别同比下降5.2%和3.6%，降幅较1-2月相比分别扩大3%和2.2%。由于芯片短缺，近日福特、通用、现代等多家跨国车企宣部暂时关闭部分工厂。](https://www.163.com/money/article/G783V5AE002580S6.html)
 
+**6.每年亏损近亿元，运营仅3年的珠海有轨电车面临拆除**
 
-> BREAKING: Pfizer files with the FDA to expand emergency use authorization for its Covid-19 vaccine to people between 12 and 15 years of age. [pic.twitter.com/SIXEtQfM1R](https://t.co/SIXEtQfM1R)
-> — CNBC Now (@CNBCnow) [April 9, 2021](https://twitter.com/CNBCnow/status/1380570522799472649?ref_src=twsrc%5Etfw)
+[作为市政交通重点项目，珠海有轨电车一号线建成至今仅3年时间，却因乘车体验差，运营维护成本高等引发拆除争议。珠海市公交集团公布的数据显示，一号有轨电车运营期间，财政补贴拨款超过1.7亿元，每年折旧费4700多万元，仅此两项，年均成本达9100多万元。一位曾参与国内多条有轨电车设计、不愿具名的工程师告诉中国新闻周刊，国内多个城市有轨电车存在的通病，在于以工程设计单位和车辆厂商为主导，缺乏交通系统规划。不少线路选择偏重工程可实施性，未与公交线网协同。事实上，国内不少城市建设的有轨电车都存在上述问题。该工程师认为：对于有些城市而言，有轨电车只适合旅游景点或者产业园之间的接驳，而不适用于城市主流公共交通网的通勤，切不可盲目建设。](https://www.163.com/dy/article/G788S3HV0514BE2Q.html?clickfrom=w_yw)
 
+**7.外贸信托汇金18号逾4亿踩雷：已提资产保全，又现“刚性兑付”悬疑**
 
+[据经济观察报道，2019年6月份，外贸信托向北京市第二中级人民法院提起诉讼，法院判决赫美小贷向外贸信托支付截至2019年4月24日应转付而未转付的“汇金18号”借款人还款4.43亿元。追偿超过两年时间，外贸信托旗下消费金融产品“汇金18号”仍然未从深圳赫美小额公司的债务泥潭中解脱，外贸信托相关负责人2021年4月8日对经济观察报记者回应表示，公司一直按照信托合同的约定履行义务，目前正在进行资产保全阶段。](https://finance.sina.com.cn/roll/2021-04-09/doc-ikmxzfmk5937611.shtml)
 
+**8.兴业银行信用卡拉黑汇付天下等5家支付机构，调整积分业务规则**
 
+[据经济观察报道，兴业银行信用卡中心4月6日发布积分业务规则调整公告称，新增线上支付交易累计积分，取消汇付天下等5家第三方支付机构受理的交易积分累计，52个商户类别刷卡交易积分累计，新规则于2021年6月1日起生效。对此，支付行业分析人士张超表示，多家银行相继调整信用卡积分规则，其主要原因或许是打击市场上“职业羊毛党”通过POS机虚假刷单等手段进行违规套利的行为，有助于银行加强风控，遏制虚假交易，减少成本。](https://finance.sina.com.cn/china/jrxw/2021-04-08/doc-ikmyaawa8533581.shtml)
 
-## 制裁中共国实体清单7家上榜
+评论：对于中共国银行这些既得利益者来说，动了他们一点点利益“羊毛”就如同动了他们的命，他们却天天合法“剪羊毛”。
 
-4月10日美国商务部推文：商务部对中共国实施新的出口管制，将7个中共国实体列入实体清单，以应对其参与中国军事、破坏稳定的军事现代化努力和/或大规模杀伤性武器计划的情况：[https://bit.ly/2ReqAJZ。](https://bit.ly/2ReqAJZ。)
+**9.天价球鞋交易平台“得物”起底：鉴别费含金量几何？**
 
+[据南方都市报道，“天价球鞋”交易平台——“得物“因得益于国潮品牌被炒至天价而登上热搜。2020年1月1日，毒App更名为得物，宣称在在传统电商模式的基础上增加了鉴别真假与查验瑕疵的服务。据得物App披露的数据显示，该平台已累计鉴别超过1.17亿次，宣称在传统电商模式的基础上增加了鉴别真假与查验瑕疵的服务。但据了解，截至目前，各大奢侈品牌几乎没有设立鉴定部门，奢侈品鉴定行业目前也没有具有正规资质的执业资格考核。国内目前尚无奢侈品鉴定行业标准，监管也处于真空状态，奢侈品鉴定领域缺乏权威第三方机构。这意味着，得物的《运动鞋鉴别通用要求和判定方法》并不具有法律强制性和普适性。](http://www.infzm.com/contents/204254)
 
+评论：在中共国，买双运动鞋都需要找鉴证机构做真假鉴别，更糟糕的是网红鉴别机构也不一定合法权威，中共国韭菜产业链，割完一茬又一茬。
 
-> Commerce implements new export controls on China, adding 7 Chinese entities to the Entity List in response to their involvement with China’s military, its destabilizing military modernization efforts, and/or its weapons of mass destruction (WMD) programs: [https://t.co/0IGDiCl6rf](https://t.co/0IGDiCl6rf) [pic.twitter.com/6uz8Tb3iQN](https://t.co/6uz8Tb3iQN)
-> — U.S. Commerce Dept. (@CommerceGov) [April 10, 2021](https://twitter.com/CommerceGov/status/1380958779618037768?ref_src=twsrc%5Etfw)
+**10.不限户籍！深圳1000万数字人民币优惠福利**
 
+[据深圳本地宝报道，深圳罗湖区“数字人民币春之礼”活动于4月10日-23日开展，市民使用数字人民币消费可享额外优惠。活动期间，“数字人民币APP”用户在全市范围内指定商户使用数字人民币消费，即可在商家现有优惠的基础上，享受专属数字人民币支付方式的额外优惠。活动将通过“摇号抽签”抽取50万名新用户，福利包括：享受全单9折、满100减20、满300减50等不同商家优惠，优惠总额度1000万元。个人预约须同时满足两个条件: 一是仅限地理位置位于深圳市行政区域内在深个人参加，在深个人申请时须开启设备定位服务；二是使用中国大陆手机号码和第二代居民身份证进行申请登记。](https://www.sohu.com/a/460050274_355768?scm=1002.590044.0.10646-1931&amp;spm=smpc.ch15.content1-n-2.3.1618091904630y4TSo79)
 
+评论：你惦记的是福利优惠券，可中共政府惦记的是你的个人信息和账户现金，姜太公钓鱼，愿者上钩。
 
-## 抵制中共通讯公司要彻底
+By 【金融组 – Apple】
 
-4月8日大纪元高级编辑推文：”这是一个明显的漏洞。”@BrendanCarrFCC （联邦通讯委员会委员）表示，美国运营商只要用私人部门的资金，而不是联邦资金，仍然可以购买华为与中兴的装备，这不合理。”
+素材搜集：Totoro
 
-
-
-> “That is a glaring loophole.”
->  [@FCC](https://twitter.com/FCC?ref_src=twsrc%5Etfw) Commissioner [@BrendanCarrFCC](https://twitter.com/BrendanCarrFCC?ref_src=twsrc%5Etfw) says it doesn't make sense that U.S. carriers can still purchase Huawei & ZTE gear as long as they do so with private sector funds, not federal dollars.
->  
-> 🔴PREMIERE 7:45pm ET: [https://t.co/7U9lbNbvE7](https://t.co/7U9lbNbvE7) [pic.twitter.com/5KG7Pvkrhi](https://t.co/5KG7Pvkrhi)
-> — Jan Jekielek (@JanJekielek) [April 8, 2021](https://twitter.com/JanJekielek/status/1380296582101405696?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 中共渗透
-
-4月10日，国家脉动调查员记者Natallie Winters推文：美国联合航空公司一直在送美国孩子参加一个由中共高层宣传集团赞助的项目。
-
-
-
-> 🚨EXC: United Airlines Has Been Sending American Kids On A Program Sponsored By A Top Chinese Communist Propaganda Group.[https://t.co/KHlcXdZezv](https://t.co/KHlcXdZezv)
-> — Natalie Winters (@nataliegwinters) [April 11, 2021](https://twitter.com/nataliegwinters/status/1381041995297218565?ref_src=twsrc%5Etfw)
-
-
-
-4月10日，目前@纽约时报的几名工作人员此前受雇于#中共控制的英文报纸“人民日报”，该报近年来向美国媒体支付了数百万美元，以发布其国家批准的内容。
-
-
-
-> Several current [@NYTimes](https://twitter.com/nytimes?ref_src=twsrc%5Etfw) staffers were previously employed by the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)-controlled English-language newspaper [#ChinaDaily](https://twitter.com/hashtag/ChinaDaily?src=hash&amp;ref_src=twsrc%5Etfw), which has in recent years paid US media millions of dollars to publish its state-approved content. [https://t.co/oCrJEnYiti](https://t.co/oCrJEnYiti)
-> — The Epoch Times (@EpochTimes) [April 11, 2021](https://twitter.com/EpochTimes/status/1381040553249406977?ref_src=twsrc%5Etfw)
-
-
-
-4月8日《纽约时报》员工承认以前为中共工作–尽管”收取了它的好处”
-
-
-
-> Great work by [@nataliegwinters](https://twitter.com/nataliegwinters?ref_src=twsrc%5Etfw) & [@RaheemKassam](https://twitter.com/RaheemKassam?ref_src=twsrc%5Etfw), exposing the NY Times “journalists” who previously worked for the Chinese Communist Party.[https://t.co/PFbnnIDHtO](https://t.co/PFbnnIDHtO)
-> — Steve Cortes (@CortesSteve) [April 10, 2021](https://twitter.com/CortesSteve/status/1381027551506751488?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 抵制可口可乐的呼声
-
-可口可乐公司一贯支持中共，近日发起对乔治亚州对选民具备合法证件的新选举法做出反对，引起美国舆论的抵制。美国行动主席Brigitte Gabrel 推文：“真正的爱国者抵制可口可乐。”
-
-
-
-> True Patriots are boycotting Coke! [pic.twitter.com/iwiH65RbXD](https://t.co/iwiH65RbXD)
-> — Brigitte Gabriel (@ACTBrigitte) [April 10, 2021](https://twitter.com/ACTBrigitte/status/1380909426685644802?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 波音737的问题
-
-4月9日，波音公司告诉16家航空公司客户，由于后备电力问题器件，自去年11月飞机未停飞以来，已交付的17部波音737 Max飞机要停飞，影响可能从数小时到数天。美国联邦航空局表示，正在与波音&航空公司合作解决这一问题。
-
-
-
-> Boeing tells 16 airline customers to ground some 737 Max jets that have been delivered since the plane was un-grounded last November. 
-> 
-> The FAA says it is working with Boeing & airlines on the issue. [pic.twitter.com/HBby6CDK9H](https://t.co/HBby6CDK9H)
-> — CNBC Now (@CNBCnow) [April 9, 2021](https://twitter.com/CNBCnow/status/1380510353050701828?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 禁枪令
-
-4月10日现任总统拜登推文：“这个国家的枪支暴力是一种流行病–国会早就该采取行动了。”此前前国务卿蓬佩奥先生曾说，解决坏人暴力问题就得让好人拥枪。
-
-
-
-> Gun violence in this country is an epidemic — and it’s long past time Congress take action.
-> — President Biden (@POTUS) [April 10, 2021](https://twitter.com/POTUS/status/1381026709248602115?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 恶心的拜登家
-
-4月9日Rumble报道了近日福克斯新闻和每日邮报再次曝光对爆料革命战友和GTV真相平台并不陌生的亨特拜登的“老照片”，报道称“恶心的亨特-拜登的新照片出现了”。福克斯新闻称2019年亨特拜登曾哀求父亲乔拜登参加总统竞选。
-
-朱利安尼先生4月10日转推时称“这只是乔拜登犯罪家庭的一个例子”。
-
-
-
-> DISGUSTING New Photos of Hunter Biden Emerge [https://t.co/yq3hAXLEad](https://t.co/yq3hAXLEad)
-> — Rudy W. Giuliani (@RudyGiuliani) [April 9, 2021](https://twitter.com/RudyGiuliani/status/1380597743824089099?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> This is just an example of the Biden Crime Family. [https://t.co/9wjFGEX88N](https://t.co/9wjFGEX88N)
-> — Rudy W. Giuliani (@RudyGiuliani) [April 11, 2021](https://twitter.com/RudyGiuliani/status/1381125731791556611?ref_src=twsrc%5Etfw)
-
-
-
-## 军事
-
-4月10日，单日的#轰炸机任务部队的一对#B1 Lancer轰炸机开展任务，长约28小时，在爱琴海上空往返航行12 000多海里。
-
-
-
-> A single-day [#BomberTaskForce](https://twitter.com/hashtag/BomberTaskForce?src=hash&amp;ref_src=twsrc%5Etfw) mission took a pair of [#B1](https://twitter.com/hashtag/B1?src=hash&amp;ref_src=twsrc%5Etfw) Lancer [#bombers](https://twitter.com/hashtag/bombers?src=hash&amp;ref_src=twsrc%5Etfw) from [@28thBombWing](https://twitter.com/28thBombWing?ref_src=twsrc%5Etfw) approximately 28 hours and over 12,000 nautical miles in a round trip operation over the Aegean Sea. [@US\_Stratcom](https://twitter.com/US_Stratcom?ref_src=twsrc%5Etfw) [#BTF](https://twitter.com/hashtag/BTF?src=hash&amp;ref_src=twsrc%5Etfw) [#AnywhereAnytime](https://twitter.com/hashtag/AnywhereAnytime?src=hash&amp;ref_src=twsrc%5Etfw) [#GlobalStrike](https://twitter.com/hashtag/GlobalStrike?src=hash&amp;ref_src=twsrc%5Etfw) [#GlobalDeterrence](https://twitter.com/hashtag/GlobalDeterrence?src=hash&amp;ref_src=twsrc%5Etfw) [#Bone](https://twitter.com/hashtag/Bone?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/H30KvSRviD](https://t.co/H30KvSRviD)
-> — AFGSC (@AFGlobalStrike) [April 10, 2021](https://twitter.com/AFGlobalStrike/status/1380882022898470915?ref_src=twsrc%5Etfw)
-
-
-
-
-
-预算案将中国列为 “头号挑战”，并呼吁需要 “利用 “太平洋威慑计划。
-[https://trib.al/TXoeRLl](https://trib.al/TXoeRLl)
-
-
-
-> The budget identifies China as the “top challenge,” and calls out the need to “leverage” the Pacific Deterrence Initiative.[https://t.co/IBsnfIf0wG](https://t.co/IBsnfIf0wG) [pic.twitter.com/glpXXCrYIK](https://t.co/glpXXCrYIK)
-> — Navy Times (@NavyTimes) [April 9, 2021](https://twitter.com/NavyTimes/status/1380543466657218564?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 川普总统能否回归
-
-4月9日川普总统GAB发文。[点击查看原文。](https://gab.com/realdonaldtrump/posts/106036472698724196)川普总统对飞利浦亲王的追思之时，也是无数美国人怀念川普总统执政之时。川普总统的悼文，如同国家级别的问候，相较于现任国务卿布林肯发布的国务院冷冰冰的官方悼文，是发自内心情真意切的追思感怀。悼文如下。
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/trump0409-11.png)
-
-
-全世界都在哀悼菲利普亲王的去世，他体现了联合王国和英联邦的崇高灵魂和自豪精神。
-
-梅拉尼和我向女王伊丽莎白二世陛下和整个皇室家族表示最深切和最深刻的哀悼。我们向英国人民致以最衷心的慰问。这对大不列颠，以及所有珍视我们文明的人来说，都是一个不可替代的损失。
-
-菲利普王子定义了英国的尊严和优雅。他化身为英国安静的矜持、严厉的坚韧和不屈的正直。
-
-年轻时，他作为一名海军军官在第二次世界大战中为英国光荣而勇敢地服务。在地中海的战舰上，他看到了海上的战斗。随后，他参加了1943年盟军入侵西西里岛的关键战役。像他那一代人一样，在英国最黑暗的时刻，他为了上帝、国家、自由和自治的价值观，把自己的生命放在了线上，这也是美国和英国永远团结在一起的原因。
-
-七十年来，菲利普亲王将同样的责任感和使命感带到了他作为女王的后妃和丈夫的角色中。他受到他的同胞们的钦佩，也受到全世界所有人的尊重。他在服务、恒心和爱国主义方面的杰出典范将是他最伟大的遗产。
-
-在过去的几年里，梅拉尼娅和我很荣幸有机会访问英国。我们亲眼目睹了君主制是如何体现和传承英国人民的美德–没有人比菲利普亲王做得更好。
-
-在我们为他的逝世感到悲痛的同时，我们也要庆祝他的逝世，并重新致力于他奉献其非凡生命的价值观。我们将深深地怀念他。
-
-
-
-国务卿布林肯的悼词（新闻声明）如下。
-
-
-
-> Our condolences go out to the royal family and all of the United Kingdom on the passing of His Royal Highness The Prince Philip, Duke of Edinburgh. We will remember him as a devoted leader and a friend of the United States. [https://t.co/wECxPAu8zH](https://t.co/wECxPAu8zH)
-> — Ned Price (@StateDeptSpox) [April 10, 2021](https://twitter.com/StateDeptSpox/status/1380673928239144962?ref_src=twsrc%5Etfw)
-
-
-
-我谨代表美国人民，就爱丁堡公爵菲利普亲王殿下的逝世向联合王国王室和人民表示最深切的哀悼。
-
-菲利普亲王殿下从第二次世界大战期间的服役，到几十年来与女王伊丽莎白二世一起为英国人民服务，都体现了他对国家不折不扣的责任感。 他是美国的真正朋友。 我们缅怀他，并将在未来的岁月里记住他对职责和友谊的奉献。
-
-
-
-
-
-
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+校对: Opal
 
 0
