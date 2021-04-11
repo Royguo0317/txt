@@ -1,40 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共一日不灭，悲剧一刻不停
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1078047/)
+## 比尔盖茨被秘鲁法院指控对疫情担责后仍推行民众控制
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1077856/)
 
-作者：穆清 |校对：仙女儿-文善 |审核：Beicy-数学老师 | Page：小雨
+翻译&评论: 8 Mile
+![]()![](https://gnews.org/wp-content/uploads/2021/04/121-2.png)图片来自网络截图
+比尔-盖茨在这场新冠疫情中扮演着怎样的角色，似乎已经被他的演讲、宣传视频扒掉了底裤。这些既得利益集团，计划通过病毒、疫苗和防控手段达到限制民众自由，洗脑、控制民众的目的已经遭到了曝光和抵制。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/4wUWYLsLnxlRI/images/4064674e-9954-4826-af59-c5a7a7d40fab.jpg?asset_id=c49267cb-5599-4c7e-9e48-662a318e2f64&amp;img_etag=%22c5d50ca52e5982c64d2807d8df4e70a0%22&amp;size=1024)](https://spark.adobe.com/page/4wUWYLsLnxlRI/images/4064674e-9954-4826-af59-c5a7a7d40fab.jpg?asset_id=c49267cb-5599-4c7e-9e48-662a318e2f64&amp;img_etag=%22c5d50ca52e5982c64d2807d8df4e70a0%22&amp;size=1024)
+在暗中支持中共进行病毒实验研究，疫苗护照推行和挑动种族矛盾等，都离不开这些精英大鳄的联合布局和勾兑。共产主义也正是利用了人性中的恶、贪婪和控制欲收买了这些包括福奇、索罗斯和盖茨在内的利益集团。
 
-4月5日，河北沧州泊头市货车司机金德强途径唐山市丰润区超限检查站时，因北斗定位掉线，被处以扣车、罚款2000元。或因不能接受此处罚，金德强服农药自杀，最终抢救无效去世。年过半百的他在遗书里说，自己干运输10年了、没挣到钱、还落下一身病、也得坚持工作、已看透人生、活着太没有意思了……为了给广大卡车司机说句话，以死来唤醒领导对这一问题的重视。
+以下翻译引自《比尔-盖茨推崇一个世界联合政府，用”疫情消防队”控制民众》
 
-在中共国，金德强司机的悲剧只是亿万中国老百姓的缩影。为了生计，起早贪黑、勤勤恳恳，辛辛苦苦劳作一辈子，也不能让自己和家人过上体面的生活，还落下一身不治之症，然后在医院花光所有积蓄，让家庭负债累累，最后撒手人寰，结束悲惨的一生。可以说，在中共国无时无刻都在上演着金德强、杨改兰的悲剧，这早已司空见惯，见怪不怪了，民众已经麻木了。
+之前我们报道了秘鲁的一个法院指控比尔-盖茨对制造冠状病毒大流行负责。今天（2021年2月2日），盖茨似乎正利用这种流行病推动全球范围内对民众的控制。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/4wUWYLsLnxlRI/images/aa801f67-bcf9-4b27-85da-79052ab9a55a.jpg?asset_id=a1c9b9c2-1867-44c8-964b-60d52a7d09c1&amp;img_etag=%22b6967c23db90a547706236fc7274b9ad%22&amp;size=2560)](https://spark.adobe.com/page/4wUWYLsLnxlRI/images/aa801f67-bcf9-4b27-85da-79052ab9a55a.jpg?asset_id=a1c9b9c2-1867-44c8-964b-60d52a7d09c1&amp;img_etag=%22b6967c23db90a547706236fc7274b9ad%22&amp;size=1024)
+尽管没有人喜欢这个家伙，甚至没有人关心他说过什么，但比尔-盖茨仍致力于加倍推动暴政。在所谓的“后Covid-19世界”，盖茨坚持认为我们需要用“疫情消防队”进行控制，以防止出现新的流行病。
 
-在笔者看来，金德强司机的悲剧源于中共罪恶的体制，苛政猛如虎。在这个世界上，恐怕只有中共，荒唐的将罚款数、办件量、结案率等作为单位或个人绩效考核的硬性指标。简单的说，开多少罚单、抓多少人、结多少案都是事先计划好的，不能少。不管你辖区内有没有人违法，最终都要按事先的计划完成指标，这种本末倒置的事情在中共国治下无处不在。若完不成既定目标，往小的说，影响工资收入；往大的说，会被问责，影响晋升。迫于考核压力，各级各单位层层施压，想方设法加大执法力度，搞专项行动，到处设检查站，装电子眼。再不行，就四处“碰瓷”，谁不听话、不打点、不给好处就盯谁。中共法律历来混乱、宽泛，不怕你不违法，总有一条你靠得上、沾到边的，反正法律最终的解释权在中共不在你，他说是啥就是啥。
+那么，一个迫切需要回答的问题是，他们到底为什么要为“后Covid-19世界”做准备？难道他们已经准备好释放 Covid-21了吗？
 
-肯定有人会说，为什么不申诉、上访，用不着自杀呀。如果了解中共如何对待申诉、上访者的，就不会有这样的疑问了。一方面申诉程序繁琐、时间长，关键你的卡车也会一直被扣押，大多数人在面对潜在的高额成本时，会主动选择放弃，自认倒霉，乖乖受罚；另一方面，不接受处罚就以不配合执法相要挟，威胁恫吓你，或对你“特殊关照”，天天盯着你，找你麻烦。中共就是利用这样流氓的做法，解决了90%以上的申诉、上访者。
+盖茨和他的妻子在上周三发布的年度信件中，详细介绍了他们的新理念。但其Twitter上的视频也许以一种更有力的方式让观察者们明白了其中的含义。这个视频里，盖茨像是在世界地图上移动棋子一样移动各种小人偶。
 
-当然还是有不惜一切代价、坚决要上访的人。中共对付这些人依然有高招，首先给你的关系网查个底朝天，在你的亲朋好友里，总有一个是体制内的人，打亲情牌，胁迫他们给你做思想工作。再者，发动社区居委会、镇政府和本地信访部门的人，天天上门拜访你，扰乱你的生活。或者拿走你的证件，上黑名单，限制出行，派专人监视。99.99%的上访者会不堪其扰，就此作罢。如果还是让你侥幸闹到了省里、部里，还没等你向领导说出诉求，你所在地的政府就提前接到上级通知，要求把你强行带回。最后你仍然不依不挠，就随便找个罪名把你抓起来。例如寻衅滋事罪、扰乱公共秩序罪等，让你一个受害者瞬间变成违法的犯罪者。在中共国，历来不解决问题，只解决提出问题的人。
+盖茨这种对大众说话的方式，似乎把我们当成无法理解其意图的低能儿一样。这些小人偶描绘了不同种族的人类，盖茨将他们定位成“在世界各地，一旦疾病爆发，就能发现他们”。盖茨说道，如果所谓的“全球警报系统”识别出一种新的传染病病原体，由急救人员组成的团队就会像“疫情消防员”一样，赶往该地控制疫情。他用玩具飞机、直升机和身穿黄色防护服的人偶来说明自己的观点。
 
-在了解墙民生存、维权现状以及中共流氓执法的大背景下，不难看出金德强司机被“执法碰瓷”了，而且申诉无门，加上一生劳作被拖垮的身体，也不难感受到他内心积压的酸楚和绝望。在我们为他感到惋惜的同时，可悲的是还有很多像金德强司机一样的墙民，到死都看不清让你绝望窒息的根源来自中共国的体制，还天真的对上层领导抱有幻想，愚昧地认为上层领导都是好的，只是下层的小鬼在作恶。殊不知，正是你所维护的上层领导打着各种冠冕堂皇的旗号，背地里大肆敛财，你所接触到的下层小鬼只不过是他们压榨、剥削你的工具而已。
+盖茨说：“阻止下一场大流行需要大量投资，但我认为这是世界能买到的最好的保险。”然而，根据RT的报道，没有人喜欢他说的话。看来，普通民众肯定已经厌倦了做顺从的奴隶。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/4wUWYLsLnxlRI/images/4c682e17-5ae0-4b5e-8db9-0b45e66758cc.png?asset_id=30d9771a-8ce4-457b-a7f4-aa725f8c2614&amp;img_etag=%22f29b703385650a98e90b5a62d321aad7%22&amp;size=2560)](https://spark.adobe.com/page/4wUWYLsLnxlRI/images/4c682e17-5ae0-4b5e-8db9-0b45e66758cc.png?asset_id=30d9771a-8ce4-457b-a7f4-aa725f8c2614&amp;img_etag=%22f29b703385650a98e90b5a62d321aad7%22&amp;size=1024)
+即使盖茨在他的Twitter页面上屏蔽了除了他关注的人之外的评论，也无济于事。有评论员说，这是彻头彻尾的宣传，比尔对他的预防流行病方案自信到关闭了评论。
 
-在墙内，像金德强司机自杀事件通常是不会被曝出的。在笔者看来，正是他的遗书在网上迅速传开，特别是“我用我的死来唤醒领导对这个事情的重视”这句话，对民众的触动是巨大的，让人不禁质疑中共领导人是否真的体察民意、心系百姓。所谓丰润官方以正在调查为由，迟迟不公布结果，无非是想试试民众的反应，然后找一个替罪羔羊，装出一副为逝者伸张正义的姿态，以平息民愤，更重要的是粉碎民众质疑，保全中共领导人伟光正的形象。让金德强司机没想到的是，就算用生命也唤醒不了恶魔一丝怜悯，他的问题永远得不到解决。70年来，唯有新中国联邦才是我们14亿中国人的未来和希望，中共一日不灭，悲剧一刻不停。
+盖茨还建议，社交媒体平台需要帮助审查任何针对他的可笑想法进行攻击的言论。民众不允许公开表达他们对自由的渴望。盖茨希望奴隶制是你们唯一的选择。
 
-**文章仅代表个人观点**
+（本文纯属个人观点，以上翻译略有删简）
 
-编辑：【英国伦敦喜庄园编辑部】
+*审核：Runaway  编辑：MG1*
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+Source:
 
-[!\[\]()!\[\](https://spark.adobe.com/page/4wUWYLsLnxlRI/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/4wUWYLsLnxlRI/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+[Bill Gates Pushes For One-World Government With “Pandemic Fire Squads” To Control The Masses](https://en-volve.com/2021/02/04/bill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses/)
 
-
+[Bill Gates Twitter](https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%%20HYPERLINK%20&quot;https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F&quot;7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_%20HYPERLINK%20&quot;https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F&quot;&amp;%20HYPERLINK%20&quot;https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F&quot;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
 0

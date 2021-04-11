@@ -1,53 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美议员倡议扩大美台教育合作，以台湾取代孔子学院项目
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1078434/)
+## Mar Llera教授力挺闫丽梦博士揭示中共病毒真相
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1078397/)
 
-作者： 纽约香草山健身部 Jack Li文阳
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
-
+- 翻译：蚂蚁兄弟
+- 制图：七白石
 
 
-据美国之音报道，为遏制中共国的影响力，美国共和党联邦参、众议员敦促拜登政府扩大美台教育倡议，以台湾取代孔子学院的汉语教学项目。台湾驻美代表萧美琴对此表示欢迎，称此倡议可以确保双方的学术自由交流。
+更*多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片2-19.png)
+**西班牙2021年4月11日电/西喜社——**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/images15_mh1618150828194.jpg)
+上个月8日，塞维利亚大学新闻学教授Mar Llera应邀参加了由FAES组织的研讨会，与Nicolás de Pedro先生、Juan Pablo Cardenal先生和Fernando de Haro先生进行了座谈。
 
-美国田纳西州共和党联邦参议员布莱克本(Marsha Blackburn, R-TN)4月7日在一个声明中说，中共资助的孔子学院审查言论自由，她和其他参、众议员已经写信给教育部长卡多纳，敦促他扩大美国与民主伙伴台湾的教育合作倡议，以没有审查的替代项目来向美国学生提供中文学习以及中国文化教育。
+他们用70分钟的时间讲述了中国共产党政权对天主教徒和维吾尔人的迫害。这些都是最近的热点话题，对于中共造成的这些罪恶事件，全世界都感到震惊。
 
-布莱克本参议员一直对中共国政府利用孔子学院来影响美国学术和言论自由多有批评。
+Mar Llera是西班牙学术界和新闻界非常著名的新闻学教授。 而多年来，她对香港、台湾和中国的人权问题特别感兴趣。 她曾多次前往香港见证人权事件，她的奉献精神得到了国际组织的认可，并就这些问题发表了大量的文章。
 
-布莱克本提案的呼吁得到包括斯科特、霍利等参议员及夏伯特、朴银珠(Michelle Park Steel, R-CA)、金映玉（Young Kim）、哈什伯格等众议员的支持。
+几个月前，当中共病毒大流行席卷西班牙时，Llera教授对这种神秘病毒的来源非常焦虑。 当她了解到在郭文贵先生领导下的 “爆料革命”成功的帮助了闫丽梦博士从香港逃离的消息后，她决定对这位勇敢的异见医生进行独家采访。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/images-1.jpg)
+在一次视频交谈中，她们互相端详着对方，两位女士在非常友好、轻松的气氛中进行了交流，也对这次流行病交换了信息，澄清了观点。Llera教授感受到，英雄女科学家的真实、大方，对自己的工作非常敬业，用事实说话。
 
-议员们在3月18日写给美国教育部长米格尔·卡多纳(Miguel Cardona)的联名信中说，“孔子学院是由中共国出资和管理的，中共通过孔子学院来打压与中共利益有冲突的言论和活动”，并敦促美国教育部“探索一个没有审查的汉语及中华文化教学的替代选项，尤其是台湾提供的项目”。
+随后，Llera教授在Emmanuel Mounier哲学研究院的网站上发表了她的第一篇有关严博士揭露疫情的文章，包括摘要和完整版，她认为这个媒体是迄今为止最不容易受到中共渗透困扰的媒体审查的。
 
-议员们表示，美国国务院在2020年8月将美国的孔子学院认定为“外国代理人”机构。但中共国汉办却从那时起，将孔子学院改头换面为“国际教育基金会”，企图避开该认定，但让美国高等教育机构接受中共国的资助仍然是不可被接受的。
+[http://mounier.es/index.php?option=com\_content&view=category&layout=blog&id=49&Itemid=72](http://mounier.es/index.php?option=com_content&amp;view=category&amp;layout=blog&amp;id=49&amp;Itemid=72)
 
-台湾驻美代表萧美琴4月8日表示，美台之间几个月前签订了扩大双方教育交流项目的倡议，台湾在这些交流项目中所扮演的角色区别于孔子学院。
+最近，Llera教授又发表了两篇文章，以丰富媒体的内容，现在大家都在寻找有关COVID-19起源的真相的新闻，因为与中共勾结的科学家宣传的谎言，他们意识到世卫组织提供的报告是对人类智慧的侮辱。
 
-布莱克本这个星期还和参议员克鲁兹、斯科特及霍利等多名共和党参议员提出《孔子学院透明法》，其目的是要修正美国的1965年高等教育法，法案内容要求公开中共机构汉办与美国机构之间的项目参与协议，“以应对中共通过孔子学院施加不必要影响”。
+[https://www.heraldo.es/noticias/opinion/2021/03/02/por-que-no-debemos-fiarnos-de-china-mar-llera-llorente-tribuna-1474766.html](https://www.heraldo.es/noticias/opinion/2021/03/02/por-que-no-debemos-fiarnos-de-china-mar-llera-llorente-tribuna-1474766.html)
 
-2004年，马里兰大学帕克分校开设了美国第一所孔子学院。自此开始，美国高校开始涌现出越来越多的孔子学院。在最顶峰的时候有超过90所孔子学院。孔子学院不是简单的中国文化的传播者，其实际上是中共假文化交流之名，来掩饰其大外宣和间谍身份。大部分的孔子学院都属于中共的大使馆、领事馆的间谍分支机构，中共借此来控制中外学生，搜集情报，并威慑异见分子，进行红色渗透。他们的教师常常规避西藏、新疆和维吾尔族、台湾、香港等敏感话题。孔子学院代表中共向全球渗透，输出共产主义，挑战世界的普世价值。
+[http://mounier.es/index.php?option=com\_content&view=article&id=669:acontecimiento-137-la-verdad-es-insoportable&catid=51&Itemid=72](http://mounier.es/index.php?option=com_content&amp;view=article&amp;id=669:acontecimiento-137-la-verdad-es-insoportable&amp;catid=51&amp;Itemid=72)
 
-川普执政时期积极应对中共对美国学术领域的渗透，先是在2018年签署了《国防授权法》，禁止国防部资助设有孔子学院的美国大学；2020年国务院宣布将负责管理全美孔子学院的“孔子学院美国中心”列为外国代理人；2020年10月前国务卿蓬佩奥表示，希望在年底前关闭美国境内的所有孔子学院。根据美国全国学者联合会（National Association of Scholars）数据，截至2021年2月17日，美国还有55所孔子学院，此前已经关闭64家。
+这场大流行几乎造成了世界上每一个国家的重大经济衰退。 除了西语国家的社会政治问题外，政治领导人既没有时间也没有头脑去辨别问题，寻找可行的解决办法，以安抚绝望的民众的精神。
 
-当前反共灭共大潮滚滚而来，远离中共是大势所趋，以美国为首的西方各国已经行动起来了，孔子学院这种中共渗透世界的间谍机构，迟早会被全部扫进历史的垃圾堆。
+这个该死的中共病毒，几乎逼得所有国家都不得不屈服和接受所谓快速解决的办法就是获取疫苗的思想。但是，闫博士曾在多个场合说过，彻底解决的正确的办法是消灭中共。
 
-参考阅读：
+Llera教授的西班牙文出版物恰逢其时，在缺乏传播真相的声音的情况下，为这片几乎干涸的绿洲注入了光明和希望。 这个世界绝对需要这样的帮助。 对于Mar Llera教授，我们只能说：非常感谢您。 我们继续在这个旅途中，一起传播真相，直到中共真正被灭亡。
 
-[https://www.voachinese.com/a/members-of-us-congress-urged-biden-to-look-to-taiwan-as-alternative-to-chinas-confucius-institute-20210409/5847613.html](https://www.voachinese.com/a/members-of-us-congress-urged-biden-to-look-to-taiwan-as-alternative-to-chinas-confucius-institute-20210409/5847613.html)
+校对：阿伯塔；发稿：神奇四侠
 
-校对/发稿：飞虹
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.gg/PXVSzdHc6p)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpg)
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-0
++1
