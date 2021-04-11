@@ -1,53 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】跟着共产党快步走进火葬场
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1073341/)
+## 中国是水电大国|令邻国感到烦恼
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1073438/)
 
-作者：纽约香草山媒体部 蜜蜂
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-据中山大学生命科学学院4月9日发布的讣告，4月8日，中国共产党党员、中山大学教授、博士生导师、国家杰出青年科学基金获得者、生命科学学院院长赵勇因病于广州不幸逝世，终年45岁。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-144.png)
-
-踏着“清明节经济”的节奏，又一位党的好儿子带着党给与的光环不明不白地为党失去了生命之魂，快步走进了火葬场。赵勇年仅45岁，党龄却已有22年。
-
-1998年6月，赵勇毕业于南开大学生命科学学院，获理学学士学位；2003年6月毕业于武汉大学生命科学学院，获理学博士学位；2003年7月至2006年3月在武汉大学生命科学院从事博士后研究工作。2006年4月，他被中共送到美国德克萨斯州立大学从事“博士后研究工作”，随后，其打进美国Ellison基金会及美国衰老研究联合会（AFAR)，并于2009年起任美国德克萨斯州立大学助理讲师。此时，他已出色完成党交给他的“关荣使命”，为己争了光，为党谋了利。
-
-2011年6月，赵勇听从党的召唤，回国效劳于广州中山大学生命科学院，任学院教授。随后，他服从党的安排，先后任国际合作与交流处处长、人才发展办公室主任、校长助理。
-
-他在任期间为党效忠，积极开发生命科学研究，他在《Nature Communications》上发表了题为“Homologous recombination-dependent repair of telomeric DSBs in proliferating human cells”的研究论文，回答了“端粒上的DNA双链断裂能否被修复”这一领域内争论很久的科学问题。同时，也发现端粒DNA损伤激活了本被严格抑制的同源重组机制，从而修复DNA损伤。在此期间他涉猎广泛高深，还身兼两职：生命科学院党委书记和院长。这代表着，在学院内，党的一切勾当都由他全权代表，党叫干啥就干啥。
-
-如今，在类似光荣榜的讣告中人们找不到赵勇死亡的病因，不知是否难于启齿：是为党呕心沥血累死的呢，还是像其他尖端敏感领域科学研究人员一样，在关键时刻被灭口了呢？赵勇22年的党龄再次告诉我们：跟着共产党，走进火葬场。
-
-（本文观点仅代表作者）
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-审核：灵性探索
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+```
+信息来源：德国经济周刊 WirtschaftsWochen
+发布时间：2021年4月10日
+记者：约恩·彼得林（JörnPetring）
+```
 
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2-format1001-e1618088036592.jpg)封面来源：Liveo / Up42
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+卫星图像显示，中国是建造新水坝发电的主人。 他们应帮助中华人民共和国实现其雄心勃勃的气候目标。 但是，印度和其他东南亚国家正在对该计划发出警报。 “自上而上的经济”是与LiveEO的合作。
 
+中国将很快兴建一座大坝，其发电量将达到七个核电站的总和。目前，世界上最大的核反应堆的输出功率为七至​​八吉瓦。另一方面，据中国官方媒体报道，中国的新大坝可能达到60吉瓦(Gigawatt)。
 
+该项目的初稿名为Yarlung Tsangbo，已于去年11月提交。据此，新水坝的功率几乎是著名的三峡大坝（22.5吉瓦）的三倍，后者目前是世界上最大的发电厂。它的巨大尺寸只能在LiveEO卫星图像上猜到。
 
-0
+该项目仍处于计划阶段。但是，3月中旬中国人民代表大会通过的中国新的五年计划中提到了这一项目，这表明建筑工作将在可预见的将来开始。多年来，中国一直在建造新的水坝来发电。中（共）国对能源的饥渴持续增长，而北京的领导人发誓要在2060年使中国成为气候中和型国家。水电已经占中国电力结构的20％左右，使其成为最重要的能源，仅次于煤炭。
+
+迄今为止，目前同类项目中规模最大的项目是三峡大坝。建设工作始于1990年代中期。在2003年，这座大水坝首次供电，从那以后，它就配备了越来越多的涡轮机，以提高产量。
+
+#### 简评: 
+
+**德国经济周刊的这篇文章， 引起了我的注意。 中国的三峡大坝自从规划建设到发电， 不管建设质量如何，都是得到广泛质疑的大项目。 它影响了大坝地区的自然生态， 而效率并不是当初规划的那样， 周边的百姓并没有得到实惠。这个巨大的项目成为贪官们捞取利益的最好工具， 难道这样的灾难还要继续重演吗？这个项目要比现有的三峡大坝功率大三倍。 这样的庞然大物必然会成为下一个贪官们瓜分的对象。 倒霉的永远使穷苦的百姓，要支付这所有的一切。 只有消灭共产党， 改变这个体制， 才可能更客观更科学的评估这类项目。 但愿共产党能在这个项目实施之前倒台。 **
+
+**新闻来源链接：**🔗[China ist ein Wasserkraft-Gigant – zum Ärger seiner Nachbarn](https://www.wiwo.de/technologie/wirtschaft-von-oben/wirtschaft-von-oben-101-mega-staudamm-china-ist-ein-wasserkraft-gigant-zum-aerger-seiner-nachbarn/27036044.html)
+
+* * *
+
+*** 翻译整理/简评：** Shuizhuyu **审核/校对：**Ting Guo*
+
+（免责声明：本文仅代表译者个人观点，跟GNEWS平台无关。）
+
++1
