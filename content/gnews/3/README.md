@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2/4/2021闫博士建议主流媒体如何揭穿“打杂客”的谎言
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1077177/)
+## 2/4/2021中共用病毒迫使人们远离宗教
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1077270/)
 
-摘要：班农战斗室——闫博士建议主流媒体如何揭穿彼得·达扎克的谎言。
+摘要：班农战斗室——中共用病毒迫使人们远离宗教，这是一种更加隐蔽的共产主义形式。
 
 **By：【秘密翻译组 G-Translators】**
 
