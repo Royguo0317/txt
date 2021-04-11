@@ -1,135 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【班农战斗室】861.862.863期简讯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1074127/)
+## 每日新闻收集【4/10】
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1074292/)
 
-#### 翻译：七彩光
+**西班牙巴塞罗那喜悦农场** wenwu
 
-#### 校对/编辑：文泓
-![]()![](https://gnews.org/wp-content/uploads/2021/04/858-859-860_-1.png)
-图片来源：墨尔本雅典娜农场设计组（精灵蓝）
 
-主持人：史蒂夫.班农
 
-嘉宾：Ben Bergquam, Darren Beattie, John Lott, Mike Lindell, Dr. Peter Navarro, Boris Epshteyn, Victor Avila, Todd Bensman
+> Beijing forces elite Jack Ma academy’s name to be changed to “Wang Qishan Military Academy”[#jackma](https://twitter.com/hashtag/jackma?src=hash&amp;ref_src=twsrc%5Etfw) [#canceled](https://twitter.com/hashtag/canceled?src=hash&amp;ref_src=twsrc%5Etfw) [#goodbyeJack](https://twitter.com/hashtag/goodbyeJack?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/xGm7xadSM2](https://t.co/xGm7xadSM2)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [April 10, 2021](https://twitter.com/Jkylebass/status/1380832532183322630?ref_src=twsrc%5Etfw)
 
-#### **1、约翰.洛特被拜登关于枪支的大量谎言所震惊**
 
-约翰.洛特（John Lott）详细剖析了控枪新闻发布会上乔.拜登所陈述的令人震惊的大量谎言。
+1. 凯尔·巴斯**`推特`**：
+*北京强迫精英马云商学院（马云的杭州市优秀湖泛大学）改名为“王岐山军事学院”。附《金融时报》的**`新闻链接`***
 
-【**备注：**约翰.理查德.洛特（John Richard Lott Jr.）是美国经济学家、政治评论家，也是枪支权利倡导者和川普任期的政府官员，现担任司法项目办公室研究与统计高级顾问。】
 
-“我对那场短短的演讲中的充斥着大量谎言感到震惊”，洛特周五告诉《战斗室》。
+> China government owns successful [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) and unsuccessful vaccine, then promotes both to the world for their benefits under the help of [#UnrestrictedScientificMisinformation](https://twitter.com/hashtag/UnrestrictedScientificMisinformation?src=hash&amp;ref_src=twsrc%5Etfw).[#CCPLiedPeopleDied](https://twitter.com/hashtag/CCPLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/jXj6mVTvGd](https://t.co/jXj6mVTvGd)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 10, 2021](https://twitter.com/DrLiMengYAN1/status/1380898841617174534?ref_src=twsrc%5Etfw)
 
-洛特说，拜登针对的目标是枪械制造业，并称控枪是左派灾难性政策失败的挡箭牌，比如“减少为警方提供资金”。
 
-拜登谎称，缺乏枪支管制是2020年凶杀案增加的原因，而不是民主党执政的城市故意将罪犯从从监狱里（提前）释放，并且还减少警方所需资金支持。
+2. **`闫博士推特`**：
+*（塞林博士）中共军民融合项目中共病毒研究/疫苗开发计划的产物（新冠病毒） – 武汉是病毒工程、动物测试、疫苗生产和医院临床服务的多机构研发中心，中共病毒是从武汉故意投放到外卖
+（闫博士）中共政府拥有成功的“超限生物武器”（中共病毒）和失败的疫苗，然后在“超限科学误导的帮助下向世界推广两者，以谋取利益。#CCPLiedPeopleDied*
 
-洛特说：“凶杀案增加这么多，是因为政府不允许警察恪尽职守，而检察官也没有起诉这些罪犯。”
 
-“如果罪犯不担心被抓，即使被抓也不担心被起诉，你猜怎么着？他们肯定会从事更多的犯罪活动。”洛特说。
+> 卧槽劲爆！继巴基斯坦总理接种中共疫苗后检测出 [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) 阳性后，巴基斯坦总统今天也在接种中共疫苗后检测出阳性！
+> 中共疫苗成功对巴基斯坦总统和总理进行了double kill ! [https://t.co/oQzgNqlKOl](https://t.co/oQzgNqlKOl) [pic.twitter.com/WvdmH0stL6](https://t.co/WvdmH0stL6)
+> — 黄鹤楼大厨（新） (@GuoWarriors7) [March 30, 2021](https://twitter.com/GuoWarriors7/status/1376709205453795333?ref_src=twsrc%5Etfw)
 
-“去年枪支管制法修改的条款，要对其负什么责任呢？” 洛特问道。
 
-洛特作为《更多的枪支，更少的犯罪》一书的作者，他说，如果城市在犯罪问题上软弱无力，并减少警方相关经费，犯罪率就会上升，这不是什么难以理解的逻辑问题。
+3. **`黄鹤楼大厨推特`**：
+*卧槽劲爆！继巴基斯坦总理接种中共疫苗后检测出 #CCPVirus 阳性后，巴基斯坦总统今天也在接种中共疫苗后检测出阳性！ 中共疫苗成功对巴基斯坦总统和总理进行了double kill*
 
-洛特说，枪支管制“为他们提供了一个借口”，“当他们的政策失败的时候，他们就以此为借口归咎于他人。”
 
-#### 2、深层政府败类向MAGA宣战
+> 这是养猪呢还是去打仗😄 [pic.twitter.com/0tZkfGG1Mk](https://t.co/0tZkfGG1Mk)
+> — 圣斗士星矢 (@songjim5) [April 10, 2021](https://twitter.com/songjim5/status/1380918507458682880?ref_src=twsrc%5Etfw)
 
-《左轮新闻（Revolver News）》的达伦.比提（Darren Beattie）说，“深层政府”已经对MAGA宣战。
 
-比提揭露了这些“深层政府败类”签署了一份国安信，该信将美国爱国者们打为“国内恐怖分子”。
+4. **`圣斗士星矢推特`**
+*山东航空母舰每天吃7顿，比美国多2顿饭，这是养猪呢还是去打仗？*
 
-“这场新的‘反恐’战争将由你们来主演”，比提周五告诉《战斗室》观众和听众：“而且（主题）同样是关于腐败、无能与不道德。”
 
-“每个人都需要知道这些是什么样的人渣。”他说。
+> [#中共國](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9C%8B?src=hash&amp;ref_src=twsrc%5Etfw) 同一天發生，除黑除了自己？🤣🤣🤣 [pic.twitter.com/7EUIHRuoVB](https://t.co/7EUIHRuoVB)
+> — 暗夜KIN(新号回归) (@KIN20200604) [April 10, 2021](https://twitter.com/KIN20200604/status/1380695249756979204?ref_src=twsrc%5Etfw)
 
-人渣名单中包括詹姆斯.克拉珀（James Clapper），“一个作伪证的人，一个骗子，十足的人渣”。另外，被称为颜色革命“咖啡男孩”的迈克尔.麦克福尔（Michael McFaul），以及迈克尔.海登（Michael Hayden），分别是“一个众所周知的骗子”和“更狡猾的人渣”。
 
-【备注：詹姆斯·克拉珀（James Clapper），美国空军退役中将，是前国家情报局局长。1992年至1995年，他担任国防情报局局长。2001年9月至2006年6月，他担任国家地理空间情报局（NGA）局长。2010年6月5日，被提名为新任美国国家情报总监，接替刚刚辞职的布莱尔。2010年8月到2017年1月20日任国家情报总监，于川普总统就任当日辞职。】
+4. **`暗夜KIN推特`**
+*《扫黑除恶》第一时间成立的组长刘新云，刚上位就被干掉了。习神遇到困难了，不科学？*
 
-【备注：迈克尔•麦克福尔（Michael McFaul），目前是胡佛研究院的高级研究员，斯坦福大学的政治学教授、弗里曼•斯波利国际事务政治研究所的主要负责人、美国国家广播公司的分析员。2012年1月至2014年2月，他在俄罗斯担任美国驻俄罗斯的大使。】
 
-【备注：迈克尔.文森特.海登（Michael Vincent Hayden），美国空军退役四星上将，曾任美国国家安全局局长(1999.2005)、国家情报局首席副局长(2005.2006)、中央情报局局长(2006.2009)。2017年，海登成为CNN的国家安全分析师】
+> [#溫哥華](https://twitter.com/hashtag/%E6%BA%AB%E5%93%A5%E8%8F%AF?src=hash&amp;ref_src=twsrc%5Etfw) 市長宣布：暫停與 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hash&amp;ref_src=twsrc%5Etfw) 官員所有的會面 
+> 
+> 中共因新疆問題報復性制裁 [#加拿大](https://twitter.com/hashtag/%E5%8A%A0%E6%8B%BF%E5%A4%A7?src=hash&amp;ref_src=twsrc%5Etfw) 眾議員 [#莊文浩](https://twitter.com/hashtag/%E8%8E%8A%E6%96%87%E6%B5%A9?src=hash&amp;ref_src=twsrc%5Etfw) 等人。對此，莊文浩的好友、溫哥華市長甘迺迪日前宣布，暫停與所有中共官員的會面，以回應中共的霸凌行為，並批評中共對莊文浩的「反制裁」不是交外手段，而是欺凌行為。[https://t.co/e0U1frpjH9](https://t.co/e0U1frpjH9)
+> — 澳洲大紀元 (@epochtimesau) [April 10, 2021](https://twitter.com/epochtimesau/status/1380779414955376641?ref_src=twsrc%5Etfw)
 
-比提称该名单是一个“真正肮脏的流氓者展示画廊”。
 
-“这些签名者正在向所有的美国爱国者宣战”，他说：“是你，是我，是7400万像我们这样（支持川普）的美国人。”
+6. **`大纪元推特`**
+*郭先生爆料土耳其断水中共大使馆后，温哥华市长与中共官员断交*
 
-“这些人是骗子”，班农说：“比骗子更糟糕的是，他们不但是无能的”，并且还 ‘协助了’中共的崛起。”
 
-#### 3、2020年11月3日，来自于中共国的19次网络黑客攻击将5个州的选票转换给了拜登
+> 4/10 郭先生蓋特
+> 🔥美國務院會把台灣當做一個國家對待，並恢復了台灣駐華盛頓大使館「橡樹園」
+> 🔥本週美國會對中概股進行新的懲罰，歐洲跟進，日本在起草科技企業制裁條例
+> 🔥中共國駐瑞典、土耳其、法國、日本、美國的大使們，會被趕回中共國
+> 🔥疫苗經濟會成為災難，多國家會因中共的假疫苗向中共追責
+> — Cantonese工作室 (@Cantoneseteam) [April 10, 2021](https://twitter.com/Cantoneseteam/status/1380947840571088896?ref_src=twsrc%5Etfw)
 
-“我的枕头（My Pillow）”首席执行官（CEO）迈克.林德尔（Mike Lindell）表示，他掌握了11月3日来自中共国的网络攻击的确凿证据，这些攻击偷走了唐纳德.川普的五个州（选举结果）。
 
-“19次（黑客）网络攻击都来自中国”，林德尔周五告诉《战斗室》：“我们有人员在实地调查每一次攻击。”
+7. **`Cantonese工作室推特`**
+4/10 郭先生盖特
+美国务院会把台湾当做一个国家对待，并恢復了台湾驻华盛顿大使馆「橡树园」
+本周美国会对中概股进行新的惩罚，欧洲跟进，日本在起草科技企业制裁条例
+中共国驻瑞典、土耳其、法国、日本、美国的大使们，会被赶回中共国
+疫苗经济会成為灾难，多国家会因中共的假疫苗向中共追责
+摩根先生坚持不打疫苗，并展示了爆料革命的视频给他的医生团队看，最后医生同意他不打疫苗
+未来会有更多的人，参与到揭发共產党病毒真相的队伍。目前已经有人与欧洲、美国合作了
+华盛顿州末的政治聚会上，大家都在谈论，拜登政府对付共产党的胆量，会错过一次又一次战机，把美国人置于危险境地
+全世界都在通胀 ，全球经济大灾难会很快到来，大家不要往前冲
+共产党利用潜伏的特务攻击G系列，是因为G系列会取代他们，破灭只有中概股才能让大家赚钱的神话，
+要和我们合作的欧洲某机构本来认為要和中国人合作，只有与共产党合作，现在知道了，还可以和我们新中国联邦合作，这是巨大的机会
 
-林德尔说，一个独立的第三方权威机构核实了这些来自于中共国的IP地址、电脑、确切的位置和建筑物，以及用于登录进入的密码，还有他们在美国的合谋窃取选票的同伙们。
 
-“我们有他们留下的痕迹，有时间戳，第三方权威机构已经验证了这一切。”林德尔说。
-
-其中一次发生在（2021年）11月3日晚上11点03分，黑客网络攻击显示了选票从唐纳德.川普到乔.拜登的精确转换。
-
-“就是这19次黑客网络攻击，将威斯康星州、密歇根州、亚利桑那州、宾夕法尼亚州和佐治亚州这五个州的选票都进行了翻转，”林德尔说。
-
-“这已经足够了”，他说：“这是百分之百的证据。”
-
-林德尔说，他将在4月19日上线运行的新社交媒体平台“Frank”上播出这些证据，将持续至少5周播放。然后，他将形成一个讼诉案送达至最高法院。
-
-此外，林德尔还透露，由于受到威胁，现在已经站出来的举报人都被保护在安全的地方。
-
-“我们不仅仅有网络（黑客犯罪）证据”，他说：“我们还有证据证明是谁干的，谁为Smartmatic公司工作，等等所有证据。”
-
-【备注：Smartmatic公司是多米尼（Dominion）公司的子公司，其相关资料信息已经被国外大科技公司进行了隐藏，可以参阅GNews文章《[关于Dominion选票系统公司身后的Smartmatic](https://gnews.org/zh-hans/550304/)》】
-
-#### 4、迈克.林德尔的新社交媒体产品“Frank”将提前对VIP会员开放
-
-迈克.林德尔（Mike Lindell）在《战斗室》节目中展示预览了他的新社交媒体平台“Frank”，并表示该平台将于下周先面向VIP推出。
-
-林德尔表示，开发研究这个平台已经4年了，仅在安全方面就投入了超过200万美元。
-
-您可以在[FrankSpeech.com](http://frankspeech.com/)上了解更多关于注册的信息。该平台将于4月19日正式上线运行。
-
-#### 5、迈克.林德尔再次起诉多米尼公司：我们将以最大可能的规模追击它们
-
-“我的枕头（My Pillow）”首席执行官（CEO）迈克.林德尔（Mike Lindell）即将对多尼米公司（Dominion）和Smartmatic公司发起进攻，宣布发起另一项诉讼，起诉该投票机公司扼杀言论自由。
-
-“我们将以尽可能大规模的方式追击他们”，林德尔周五告诉《战斗室》：“我们的起诉也包括Smartmatic。它们是幕后主使。”
-
-林德尔说，自1798年以来，还没有一家公司以这种方式，即利用诉讼来威胁不同意见和扼杀言论自由。
-
-“这是18世纪以来，第一次有公司做出这样的事情”，林德尔说：“你能想象如果我们放任不管会出现什么后果吗？”
-
-“我想要追击他们”，他说：“因为他们的所作所为，所以‘我的枕头’公司要去追击他们……这是我们的第一修正案的权利。多米尼投票机（Dominion）公司通过使用诉讼来压制第一修正案，所以新闻媒体机构甚至都不敢让举报人出镜作证，导致人人自危。”
-
-这其中就包括福克斯新闻（Fox News），它对选民舞弊问题避而不谈，并因为（嘉宾）提出这个话题而切断了包括川普总统在内的嘉宾连线。
-
-“主流媒体都不会接受我上节目”，林德尔说：“我愿意上任何节目来谈论真相。福克斯不会让我上。你不得不思考这是为什么？”
-
-“你为什么不把自己作为一个新闻节目？” 林德尔说：“他们才应该是受采访的嘉宾。”
-
-#### 6、迈克.林德尔致力于开发亚马逊平台替代方案“我的商店”
-
-除了社交媒体平台外，迈克.林德尔（Mike Lindell）正在打造更多大科技公司产品的替代方案，他宣布正在开发一个名为“我的商店”的亚马逊竞争平台。
-
-周五，林德尔在《战斗室》的接受采访中披露了这个新项目。
-
-林德尔的名为“Frank ”的新社交媒体平台，综合了油管（YouTube）和推特（Twitter）的功能，将于4月19日正式上线。该平台将在本周末前提前向VIP会员开放注册。
-
-**原文链接：**
-
-1.  [John Lott ‘Shocked by the Number of Lies’ Biden Told About Guns](https://pandemic.warroom.org/2021/04/09/john-lott-shocked-by-the-number-of-lies-biden-told-about-guns/)
-
-2.  [Deep State Scum Declares War on MAGA](https://pandemic.warroom.org/2021/04/09/deep-state-scum-declares-war-on-maga/)
-
-3.  [19 Cyber Attacks from China Flipped 5 States to Biden on Nov. 3](https://pandemic.warroom.org/2021/04/09/19-cyber-attacks-from-china-flipped-5-states-to-biden-on-nov-3/)
-
-4.  [Mike Lindell’s New Social Media ‘Frank’ to Launch Early for VIPs](https://pandemic.warroom.org/2021/04/09/mike-lindells-new-social-media-frank-to-launch-early-for-vips/)
-
-5.  [Mike Lindell Suing Dominion AGAIN: ‘We’re Going After Them in the Biggest Way Possible’](https://pandemic.warroom.org/2021/04/09/mike-lindell-suing-dominion-again-were-going-after-them-in-the-biggest-way-possible/)
-
-6. [Mike Lindell Pursuing Amazon Alternative Called ‘My Store’](https://pandemic.warroom.org/2021/04/09/mike-lindell-pursuing-amazon-alternative-called-my-store/)
-
-0
++1

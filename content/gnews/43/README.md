@@ -1,69 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 50名武警突袭《叛逆新闻》记者Airbnb所租船房
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1074190/)
+## 缅甸军政府两日内杀害80余名平民
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1074265/)
 
-**阿黎**
+俄罗斯莫斯科喀秋莎农场 DongDong
 
-4月10日，大约50名全副武装的警察周六突袭了《叛逆新闻》（Rebel News）为报道反封锁抗议活动设在船上的临时新闻报道总部，船房是从Airbnb租借的，船停泊在蒙特利尔的一个港口。
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/N-4.jpg)news18.com
+自缅甸军方 2 月 1 日发动政变推翻了昂山素季领导的民选政府以来，反对军政府的抗议活动一直在继续，但抗议活动持续遭到了安全部队的暴力镇压。
 
+据《今日缅甸》（Myanmar Now）报道，以及“政治犯援助协会”（AAPP）表示，缅甸安全部队周五在距离仰光 90 公里附近的一个名为勃固（Bago）地点向抗议者发射步枪手榴弹。最初，因为安全部队将尸体集中堆积在一个佛塔大院中，封锁了该地区，无法获悉具体死亡人数。但稍后，由《今日缅甸》确认此次射击造成 80 余人死亡。
 
+“这就像种族灭绝一样，”该新闻媒体援引一位名叫 Ye Htut 的抗议组织者的话说，“他们（安全部队）向每一个影子射击。” 而社交媒体上已有消息表示，许多居民已经逃离事发当地。
 
-> BREAKING: 50 Armed Police Raid Rebel News ([@RebelNewsOnline](https://twitter.com/RebelNewsOnline?ref_src=twsrc%5Etfw)) Reporters Airbnb, Arrest Them for 'Illegal Gathering' (VIDEOS) [https://t.co/nofe9vfmlS](https://t.co/nofe9vfmlS) [@ezralevant](https://twitter.com/ezralevant?ref_src=twsrc%5Etfw) [@TheRealKeean](https://twitter.com/TheRealKeean?ref_src=twsrc%5Etfw)
-> — Cassandra Fairbanks (@CassandraRules) [April 10, 2021](https://twitter.com/CassandraRules/status/1380998125855371271?ref_src=twsrc%5Etfw)
+联合国周六（4月 10 日）发表公开声明说，已经接到报告说，缅甸安全部队在勃固市动用了重型火炮对付平民，而且受伤的民众没有得到治疗。国际危机组织缅甸问题高级顾问理查德·霍西（Richard Horsey）在联合国非正式会议上说：“缅甸正处于国家停摆和崩溃的边缘。”这是安理会成员首次公开讨论缅甸问题。
 
+据路透社报道，媒体在周六始终无法联系到缅甸军政府新闻发言人。
 
+人权组织“政治犯援助协会”每天都会统计被安全部队杀害和逮捕的抗议者人数，该组织此前表示，自政变到 8 日晚，安全部队共杀害 618 人。其中包括 48 名孩童，另有 2800 多人被拘捕。
 
-魁北克从复活节开始封城，于是人们上街示威反封城。《叛逆新闻》事先在Airbnb预定了船房，做为他们的新闻报道临时总部。警方得到消息后，派大批警察前来封锁，并逮捕了该媒体的记者。
+由于军政府对抗议民众无差别杀害，缅甸地方武装力量开始集结组成武装联盟，保护抗议民众和平民，拿起武器反抗军政府的暴政。
 
+据缅甸媒体报道，位于缅甸东部掸邦（Shan State）的一间警局在 10 日清晨，遭到少数民族武装团体联盟的攻击，导致至少 10 名警员死亡。
 
+发动攻击的是若开军（Arakan Army）、塔安民族解放军（Ta’ang National Liberation Army）和缅甸民族民主同盟军（Myanmar National Democratic Alliance Army）等组织联盟。
 
-> Montreal Police assaulted and brutally arrested David Menzies. [@RebelNewsOnline](https://twitter.com/RebelNewsOnline?ref_src=twsrc%5Etfw) Head to [https://t.co/nR2Ow1VfjH](https://t.co/nR2Ow1VfjH) for full report. [pic.twitter.com/YkJXLWET4T](https://t.co/YkJXLWET4T)
-> — Mocha Bezirgan (@BezirganMocha) [April 10, 2021](https://twitter.com/BezirganMocha/status/1380962642911760389?ref_src=twsrc%5Etfw)
+外界普遍认为缅甸军方背后有中共国政府撑腰，而有媒体将此次缅甸民众抗争当做缅甸版“六·四”。
 
+2 月 19 日有缅甸网名发布视频指，军队在曼德勒市开枪镇压民众时，疑似用汉语喊“一二三”口令。缅甸网民认为，这是中共幕后支持缅甸军事政变的又一个“证据”。
 
+英国军事和安全资讯公司“詹氏资讯集团”（Jane’s Information Group）8 日发表报告，指出缅甸军方已开始使用中共国制无人机监控民间的抗议活动，辅助其镇压行动。
 
-警方用警用红色胶带从外围封住了记者所在的AirBnb船只，他们说这是一个’犯罪现场’。” 当记者问警察他们究竟犯了什么罪时，警察能想到的就是我们住在酒店里是非法’集会’，违反了魁北克省的封锁规定。”事实上，《叛逆新闻》的人数比设施所设计的容量要少。”
+中企向缅甸出售武器由来已久，在当地已不是秘密。缅甸军方是中共在南部的军事盟友，中共政府早在10年前就已把安全防线从缅北一代推移到缅甸南部，整个缅甸都被北京视为在安全防线以内。
 
+参考链接：
 
+[1] [Myanmar security forces with rifle grenades kill over 80 protesters – monitoring group – REUTERS – 2021/04/10](https://www.reuters.com/article/us-myanmar-politics/myanmar-security-forces-with-rifle-grenades-kill-over-80-protesters-monitoring-group-idUSKBN2BX0D5%20)
 
-> Montreal police don’t have their search warrant yet. So they have deemed our Airbnb a crime scene. I’m not sure what they’re searching for — we have obviously uploaded our footage. They’re dragging it out to stop our work. So I shared my thoughts with them directly. [pic.twitter.com/BsErpxSJN5](https://t.co/BsErpxSJN5)
-> — Ezra Levant 🍁 (@ezralevant) [April 10, 2021](https://twitter.com/ezralevant/status/1380956658306793477?ref_src=twsrc%5Etfw)
+[2] [缅甸安全部队两天内打死80人 – VOA – 2021/04/11](https://www.voachinese.com/a/eighty-killed-in-myanmar-20210410/5848301.html)
 
-
-
-《叛逆新闻》创始人Ezra Levant指出，”这是蒙特利尔的警察，他们已经骚扰和殴打我们的记者好几周了。他们在报复，因为我们报道了他们的不当行为”。他还说，他遭到了警察的粗暴对待。
-
-艾兹拉-利宛特还说，蒙特利尔的腐败警察把我们从Airbnb赶了出来。现在他们将进去，在没有任何观察员的情况下，对房间进行搜查。我担心他们会栽赃毒品、武器或其他违禁品。
-
-《叛逆新闻》的主要记者大卫-蒙西斯（David Menzies)在与警察的争执中，被警察推搡，然后被数名警察粗暴地扭至警车旁，戴上手铐，扔到车后座里。
-
-推特上一个名为“Joe Warmington”的帐户发推说，如果记者无法做好自己的工作，就不再是一个自由的国家。
-
-另一个名为“the Ikonian ”的推特帐户发推说，如果法院不阻止政府和警察的这种行为，那么我们就完蛋了，我们需要移到法律和权利重要的地方。
-
-令人兴奋的是，几小时后，传来了巨大的好消息！蒙特利尔的警察无法让法官批准他们的搜查令！蒙特利尔的警察怂了！
-
-
-
-> 🚨HUGE VICTORY🚨 
-> 
-> Montreal’s police could not get a judge to approve their search warrant! They blinked!
-> 
-> David Menzies is being released from his illegal arrest!
-> 
-> The police have run away from the “crime scene!
-> 
-> I’m back in!
-> 
-> Viva le Quebec libre![https://t.co/roDg8jvAa1](https://t.co/roDg8jvAa1) [pic.twitter.com/WSvXZplsGG](https://t.co/WSvXZplsGG)
-> — Ezra Levant 🍁 (@ezralevant) [April 10, 2021](https://twitter.com/ezralevant/status/1381028608752369666?ref_src=twsrc%5Etfw)
-
-
-
-大卫-蒙西斯被非法逮捕释放了!警察从 “犯罪现场 “逃跑了!大卫回来了!
-
-蒙特利尔的法院没有沦陷，他们坚持正义，这的确是令人鼓舞的消息。加拿大还是有希望的。
-
-+1
+0
