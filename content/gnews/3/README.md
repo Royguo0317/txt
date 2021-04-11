@@ -1,41 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 意大利总理德拉吉称，意大利阻止中共半导体竞标
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1077881/)
+## 比尔盖茨被秘鲁法院指控对疫情担责后仍推行民众控制
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1077856/)
 
-简评/翻译：阿娜
+翻译&评论: 8 Mile
+![]()![](https://gnews.org/wp-content/uploads/2021/04/121-2.png)图片来自网络截图
+比尔-盖茨在这场新冠疫情中扮演着怎样的角色，似乎已经被他的演讲、宣传视频扒掉了底裤。这些既得利益集团，计划通过病毒、疫苗和防控手段达到限制民众自由，洗脑、控制民众的目的已经遭到了曝光和抵制。
 
-意大利总理马里奥-德拉吉（Mario Draghi）表示，他支持扩大国家对意大利企业的保护，此前他透露，意大利政府最近阻止了中共对一家半导体公司的收购。
+在暗中支持中共进行病毒实验研究，疫苗护照推行和挑动种族矛盾等，都离不开这些精英大鳄的联合布局和勾兑。共产主义也正是利用了人性中的恶、贪婪和控制欲收买了这些包括福奇、索罗斯和盖茨在内的利益集团。
 
-德拉吉周四在罗马对记者表示，他将支持经济发展部长简卡罗- 乔盖提 （Giancarlo Giorgetti）早些时候提出的呼吁，即把该国所谓的 “国家级的权力” 规则扩大到汽车和钢铁行业。
+以下翻译引自《比尔-盖茨推崇一个世界联合政府，用”疫情消防队”控制民众》
 
-德拉吉说，这些规则 “必要时必须使用”。”最近有一个案例，政府决定–一家意大利半导体公司，它将被一家中共国公司收购。但被阻止了。” 德拉吉没有说出涉案公司的名字。
+之前我们报道了秘鲁的一个法院指控比尔-盖茨对制造冠状病毒大流行负责。今天（2021年2月2日），盖茨似乎正利用这种流行病推动全球范围内对民众的控制。
 
-在近十年来最严重的股市溃败使公司容易被收购之后，欧盟官员被大政府压到了一个新的阶段，他们一直在争相保护其珍贵的资产。柏林、巴黎、罗马和马德里都加强了否决来自欧盟以外的投资。
+尽管没有人喜欢这个家伙，甚至没有人关心他说过什么，但比尔-盖茨仍致力于加倍推动暴政。在所谓的“后Covid-19世界”，盖茨坚持认为我们需要用“疫情消防队”进行控制，以防止出现新的流行病。
 
-扩展规则
+那么，一个迫切需要回答的问题是，他们到底为什么要为“后Covid-19世界”做准备？难道他们已经准备好释放 Covid-21了吗？
 
-反移民联盟党的乔盖提 （Giorgetti）早些时候表示，政府正在考虑扩大规则，这些规则涉及国家措施，以阻止或管理被认为具有战略意义的企业的外国所有权，包括汽车和钢铁行业。
+盖茨和他的妻子在上周三发布的年度信件中，详细介绍了他们的新理念。但其Twitter上的视频也许以一种更有力的方式让观察者们明白了其中的含义。这个视频里，盖茨像是在世界地图上移动棋子一样移动各种小人偶。
 
-最近阻止收购的决定是 “常识”，德拉吉说。”半导体的缺乏迫使许多汽车生产企业在去年放缓了生产，所以它已经成为一个战略行业，还有其他类似的行业。”
+盖茨这种对大众说话的方式，似乎把我们当成无法理解其意图的低能儿一样。这些小人偶描绘了不同种族的人类，盖茨将他们定位成“在世界各地，一旦疾病爆发，就能发现他们”。盖茨说道，如果所谓的“全球警报系统”识别出一种新的传染病病原体，由急救人员组成的团队就会像“疫情消防员”一样，赶往该地控制疫情。他用玩具飞机、直升机和身穿黄色防护服的人偶来说明自己的观点。
 
-联盟领导人马泰奥-萨尔维尼（Matteo Salvini）的政党支持德拉吉的政府，他上个月呼吁政府保护卡车和巴士企业依维柯SpA这一战略资产，称如果该公司被卖给中共国一汽集团，将是一场国家灾难。
+盖茨说：“阻止下一场大流行需要大量投资，但我认为这是世界能买到的最好的保险。”然而，根据RT的报道，没有人喜欢他说的话。看来，普通民众肯定已经厌倦了做顺从的奴隶。
 
-德拉吉表示，他的政府下一个进一步刺激措施的法令，涉及扩大预算赤字的要求，可能会比之前的数额更大。德拉吉已经获得了他的前任朱塞佩-孔特 (Giuseppe Conte) 最初要求的320亿欧元(380亿美元)方案的批准。
+即使盖茨在他的Twitter页面上屏蔽了除了他关注的人之外的评论，也无济于事。有评论员说，这是彻头彻尾的宣传，比尔对他的预防流行病方案自信到关闭了评论。
 
-**简评**：
+盖茨还建议，社交媒体平台需要帮助审查任何针对他的可笑想法进行攻击的言论。民众不允许公开表达他们对自由的渴望。盖茨希望奴隶制是你们唯一的选择。
 
-由于全球芯片产能紧张，全球最大芯片制造商于4月1日起提价10%- 20%。再加上2019年中美贸易战加剧，芯片相关技术和工艺受到更加严格的封锁，以华为和中兴为首的中共军方背景的公司遭到几乎停业的打击。基于以上两个主要因素，可能中共寄希望于在欧洲寻求芯片的供应，但是没有想到的是，欧洲也在觉醒，不可能让中共的计划得逞。因为提供中共芯片等中共需要的技术，就等于是出卖自己本国的国家安全和利益。
+（本文纯属个人观点，以上翻译略有删简）
 
-相信欧美情报的共享，对于中共想要称霸世界的野心已然是非常了解，特别是在这次中共掩盖病毒大流行后，义大利政府不可能任由中共在义大利买下或者渗透如此重要的战略产业。
+*审核：Runaway  编辑：MG1*
 
-[免责声明：评论仅代表作者本人的观点] 。
+Source:
 
-参考新闻链接：[Italy Blocked Chinese Semiconductor Bid, Draghi Says](https://www.bloomberg.com/news/articles/2021-04-08/italy-s-draghi-seeks-broader-shield-from-chinese-corporate-bids)
+[Bill Gates Pushes For One-World Government With “Pandemic Fire Squads” To Control The Masses](https://en-volve.com/2021/02/04/bill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses/)
 
-* * *
-
-校对：旦旦
-
+[Bill Gates Twitter](https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%%20HYPERLINK%20&quot;https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F&quot;7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_%20HYPERLINK%20&quot;https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F&quot;&amp;%20HYPERLINK%20&quot;https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F&quot;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
 0

@@ -1,17 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月10日 文贵先生盖特 5
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1077075/)
+## 2/4/2021闫博士建议主流媒体如何揭穿“打杂客”的谎言
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1077177/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+摘要：班农战斗室——闫博士建议主流媒体如何揭穿彼得·达扎克的谎言。
 
-4月10号：尊敬的战友们好！应很多战友们的要求，明天4月21号星期天上午9:30至10:00左右！文贵开始乱聊直播！
+**By：【秘密翻译组 G-Translators】**
 
-
-
-[【2021年4月10日】文贵先生盖特原文](https://gtv.org/getter/607256f4dbc8001854a770cf)
-
-**喜联盟Gnews编辑部**
-
-0
++1
