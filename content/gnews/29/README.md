@@ -1,48 +1,501 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】香港「阿布泰」现象与黄色经济圈（上）
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1074253/)
+## 美国《2021战略竞争法》目录部分
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1074345/)
 
-搜集\编撰：文燕
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-由「47 人案」中被控「串谋颠覆国家政权」的其中一名被告林景楠创办的「AbouThai 阿布泰国生活百货」，4月8 日在Facebook 表示，海关根据《消费品安全条例》怀疑公司多款泰国产品未按法例贴上足够标签，被海关检取市值近百万元的货品，并到办公室拘捕相关负责人。消息传开后，不少网民都认为海关有打压阿布泰之嫌，有相同政治理念的顾客纷纷光顾支持，以消费活动代替政治表态。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4111-1.jpg)
-据立场新闻报导，海关昨日（9 日）在总部召开记者会交代详情，指部门8 日展开行动，到一家连锁零售店集团旗下25 间分店及1 个货仓，检获14 款共8,805 支沐浴露、家居清洁剂等，市值约40 万港元，行动中拘捕1 名男董事。海关指，检获的货品未有标示就安全存放、使用、耗用或处置标示中、英文双语警告或警诫字句，涉嫌违反《消费品安全条例》的附属法例《消费品安全规例》。
+上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/A.png)aninews.in
+4月8日，笔者第一时间发文报道了“美参议院将审议‘战略竞争法案’对抗中共”【1】，面对这份280多页的提案，自感能力和精力不足以承担对“重磅提案”的翻译和解读，期待着《路德社》、秘密翻译组，昨晚《路德社》作出了振奋人心的解读，令人回味无穷。
 
-阿布泰指海关动员百人搜查旗下 26 间门市及仓库
-阿布泰为疏忽表示歉疚，承认疏忽，在门市过千款产品中漏贴了其中十多款产品的警告字句。但批评海关执法程式令人诧异，质疑海关动员逾百人检取近百万元货品，「有必要连仓库里未送出门市的产品都检取吗？」
+现将提案的目录摘译，供战友参考。 【2】
 
-阿布泰批评，海关执法程式令人感到诧异，提到按过往收到的投诉，海关只会对个别门市及产品作出警告或检控，但今次海关动员逾100 名贸易管制处人员，在全港26 间门市及仓库检取市值近百万元的货品，并到办公室拘捕相关负责人，对此感到非常无奈，「做错，我们会认，我们会改，会做得更好。但有必要连仓库里未送出门市的产品都检取吗？」
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4112-6.jpg)图片来源：立场新闻
-《立场》记者巡查有蓝店背景的优品360，以及市场类似的商店如日本城 等多间连锁店，发现部分清洁剂等商品的标签，均没标示中、英双语警告字句。日本城观塘及蓝田两间分店,最少有26款「问题商品」。优品360 部分分店，职员下午将没有中英文标签的货品收起。阿布泰在 facebook 表示，市民如果对其他「商户」或阿布泰出售的产品感到怀疑，欢迎致电海关举报。 「相信海关人员，定以保障消费者为首要原则，专业执法」。 《立场新闻》记者在观塘、蓝田、沙田、禾輋、马鞍山等地多间商户视察，发现海关所指「没双语警告标签」的情况在不同商户亦随处可见。
+议案
 
-点评：
+处理涉及中共国的问题。
 
-「AbouThai 阿布泰国生活百货」老板林景楠过去是海关人员，2015年因曾在「光复沙田」示威现场接受电视台访问，被海关无理解雇。其后他创立阿布泰国生活百货，并在全港连开多间分店，经常以黄店身分为民主运动发声，在黄店圈内为人所熟悉。 
+由美国参议院、众议院两院在国会通过，
 
-阿布泰是受惠于「黄色经济圈」的商家之一。林景楠认为，消费黄色经济圈不是抗争或示威，而是「表态」：「（政府）令我们无从表态，那我们就要找地方表态啊。」
+第1节  简称；目录
 
-林景楠于 2020 年 6 月决定直接参政。他认为自己是「打压中成长过来的人」，在民主派初选中，他的选举口号是「这不是政治，是香港人的事」。他在新界东取得 5,350 票，位列第十。
+（a）简称——本法可引述为“2021年战略竞争法”
 
-林景楠是被控串谋颠覆罪的 47 人中，少数获得保释的被告之一。他在早前 1 月 6 日被捕，1 月 7 日的保释后在接受传媒访问时反问，他作为一个香港人，为什么会被控颠覆国家的罪行？最后，他高呼了一句「香港人加油」，向在场记者深深鞠躬。
+（b）目录——本法案的目录如下：
 
-警方这次的执法到底是否打压林景楠、针对黄店？港府「司马昭之心，路人皆知」。优品360、日本城等商店，同样有入口货品没有中、英文标签，一样可以在市场售卖，海关也没有对他们执法检控，为什么只针对阿布泰，而放生优品360、日本城？
+第1节. 简称；目录
 
-【以上观点仅代表笔者本人 】
+第2节.调查结果
 
-资料来源：
+第3节. 定义
 
-[立场新闻：海关搜捕后　阿布泰分店人龙排到弥敦道　林景楠落铺致谢](https://www.thestandnews.com/politics/%E9%98%BF%E5%B8%83%E6%B3%B0%E8%A2%AB%E6%B5%B7%E9%97%9C%E6%AA%A2%E8%B5%B0%E8%BF%91%E7%99%BE%E8%90%AC%E8%B2%A8%E5%93%81-%E5%A4%9A%E5%AE%B6%E9%BB%83%E5%BA%97%E5%91%BC%E7%B1%B2-%E7%88%86%E8%B2%B7%E9%98%BF%E5%B8%83%E6%B3%B0-%E6%B6%88%E8%B2%BB%E5%BE%8C%E7%8D%B2%E5%84%AA%E6%83%A0/)
+第4节. 政策声明
 
-[立场新闻：日本城两分店至少](https://www.thestandnews.com/society/%E6%90%9C%E9%98%BF%E5%B8%83%E6%B3%B0-%E6%97%A5%E6%9C%AC%E5%9F%8E%E5%85%A9%E5%88%86%E5%BA%97%E8%87%B3%E5%B0%9119%E6%AC%BE%E5%95%86%E5%93%81%E6%B2%92%E4%B8%AD%E8%8B%B1%E6%96%87%E8%AD%A6%E5%91%8A-%E5%84%AA%E5%93%81360%E8%81%B7%E5%93%A1%E6%80%A5%E6%94%B6%E8%B5%B7-%E5%95%8F%E9%A1%8C%E8%B2%A8%E5%93%81/)[26 款商品标签没中英文警告　优品 360 职员急收起](https://www.thestandnews.com/society/%E6%90%9C%E9%98%BF%E5%B8%83%E6%B3%B0-%E6%97%A5%E6%9C%AC%E5%9F%8E%E5%85%A9%E5%88%86%E5%BA%97%E8%87%B3%E5%B0%9119%E6%AC%BE%E5%95%86%E5%93%81%E6%B2%92%E4%B8%AD%E8%8B%B1%E6%96%87%E8%AD%A6%E5%91%8A-%E5%84%AA%E5%93%81360%E8%81%B7%E5%93%A1%E6%80%A5%E6%94%B6%E8%B5%B7-%E5%95%8F%E9%A1%8C%E8%B2%A8%E5%93%81/)
+第5节. 国会意识
 
-[立场新闻：林景楠 — 从因言失业到东山再起，商人还想继续表态](https://www.thestandnews.com/politics/%E6%9E%97%E6%99%AF%E6%A5%A0-%E5%BE%9E%E5%9B%A0%E8%A8%80%E5%A4%B1%E6%A5%AD%E5%88%B0%E6%9D%B1%E5%B1%B1%E5%86%8D%E8%B5%B7-%E5%95%86%E4%BA%BA%E9%82%84%E6%83%B3%E7%B9%BC%E7%BA%8C%E8%A1%A8%E6%85%8B/)
+第6节. 构成规则
 
-[自媒体【森直口快】吴志森](https://youtu.be/Sn8ykokm2aI)
+标题1——未来竞争的投入
 
+副标题A——科学与技术
 
+第101节. 授权协助美国公司进行全球供应链多元化和管理
 
-审稿：卡西欧 \ 上传：天网灰灰
+副标题B——全球基础设施的发展
+
+第111节. 确定适当的国会委员会
+
+第112节. 国际品质基础设施投入标准的国议意识
+
+第113节. 美国对基础设施的支持
+
+第114节. 基础设施事务和辅助网络
+
+第115节. 先进可靠的能源基础设施战略
+
+第116节.中共国对外能源开发投入情况的报告
+
+副标题C——数字技术和数据联通
+
+第121节. 数字技术问题的国会意识
+
+第122节.数字连接和网络安全伙伴的关系
+
+副标题D——对抗中国共产党的影响
+
+第131节. 简称
+
+第132节. 授权
+
+第133节.关于中共国信息战和恶意影响行动的调查结果
+
+第134节. 富布赖特-海斯计划（Fulbright-Hays Program，笔者注：美国的一项文化交流项目）拨款授权
+
+第135节. 谴责反亚洲种族主义和歧视的国会意识
+
+第136节. 支持独立媒体和打击造谣
+
+第137节. 全球参与中心
+
+第138节.美国外国投资委员会对高等教育机构的某些外国馈送和合同的审查
+
+标题2——联盟和伙伴关系的投入
+
+副标题A——战略和外交事务
+
+第201节. 确定适当的国会委员会
+
+第202节.美国对印太盟国和伙伴的承诺和支持
+
+第203节. 与四国合作的国会意识
+
+第204节. 与东盟合作政策的声明
+
+第205节. 加强美国与东盟技术合作的国会意识，这些技术合作与中共国有关
+
+第206节. 中共国在国际组织中的影响力报告
+
+第207节. 与盟友和合作伙伴的定期交流
+
+第208节. 国务院技术合作办公室
+
+第209节. 美国在标准制定机构中的代表
+
+第210节.对华战略竞争中心地位的国会认识，这个中心地位是对中共国的制裁和其他方面的限制
+
+第211节. 与七国集团就中共国问题进行谈判的国会意识
+
+第212节. 加强美台伙伴关系
+
+第213节. 台湾政府的待遇
+
+第214节. 关于中共病毒大流行起源的报告
+
+第215节.加强与太平洋岛国的外交支持和经济接触
+
+第216节. 增加国务院对印度-太平洋地区的人员和资源投入
+
+第217节.提高美国在联合国系统的领导地位
+
+副标题B——国际安全事务
+
+第221节.定义
+
+第222节. 调查结果
+
+第223节. 支持印太安全伙伴关系的国会意识
+
+第224节. 政策声明
+
+第225节. 印度-太平洋地区的外国军事资助，东南亚海上安全项目和外交外联活动的拨款授权
+
+第226节. 印度-太平洋外国军事资助契约试点项目
+
+第227节. 印度-太平洋国际军事教育和训练的额外资金
+
+第228节. 优先考虑印度-太平洋地区过剩的国防物资转移
+
+第229节. 优先考虑印度-太平洋地区过剩的海军舰艇转移
+
+第230节. 关于在印度洋-太平洋国际水道和空域以及在南中国海的人工陆地特征的海上行动自由的政策声明
+
+第231节. 印度-太平洋盟国和伙伴能力发展报告
+
+第232节.国家技术和产业基础报告
+
+第233节.关于中共国军事设施对外联络的报告
+
+第234节. 关于普遍执行联合国对朝鲜制裁的政策声明
+
+第235节.对中共国军事设施所在国援助的限制
+
+副标题C——对付中共国的区域战略
+
+第241节.关于同世界各盟国和伙伴合作的政策声明，这些合作涉及到中共国
+
+第一部分-西半球
+
+第245节. 对美加关系的国会意识
+
+第246节. 关于中共国政府任意监禁加拿大公民的国会意识
+
+第247节. 加强与加拿大合作的战略
+
+第248节. 加强拉丁美洲和加勒比地区经济竞争力、治理、人权和法治的战略
+
+第249节. 参与拉丁美洲和加勒比的地区和国际组织
+
+第250节. 讨论中共国在拉丁美洲和加勒比地区的主权贷款的做法
+
+第251节. 拉丁美洲和加勒比地区的防务合作
+
+第252节.与拉丁美洲和加勒比地区民间社会就问责制、人权和普遍的监测技术的风险进行接触
+
+第二部分——跨大西洋联盟
+
+第255节. 关于跨大西洋联盟的国会意识
+
+第256节. 关于中共国加强跨大西洋合作的战略
+
+第257节. 加强跨大西洋合作，促进私营部门融资
+
+第258节.中伊、中俄合作情况的报告和简报
+
+第三部分——南亚和中亚
+
+第261节. 南亚和中亚的国会意识
+
+第262节. 加强与南亚和中亚合作的战略
+
+第四部分——非洲
+
+第271节. 评估中共国在非洲的政治、经济和安全的活动
+
+第272节. 提高美国在非洲的竞争力
+
+第273节. 非洲数字安全合作
+
+第274节.增加美国驻撒哈拉以南非洲大使馆人员，以关注中共国
+
+第275节. 支持非洲青年领导人的倡议
+
+第276节.非洲广播网
+
+第五部分——中东和北非
+
+第281节. 应对中共国在中东和北非的影响和进入的战略
+
+第282节. 关于中东和北非参与的国会意识
+
+第六部分北极地区
+
+第285节. 北极外交
+
+第七部分-大洋洲
+
+第291节. 美国参与大洋洲政策声明
+
+第292节. 大洋洲战略路线图
+
+标题3——我们价值观的投入
+
+第301节.香港促进民主的拨款授权书
+
+第302节. 在新疆维吾尔自治区实施有关强迫劳动的制裁
+
+第303节.在新疆维吾尔自治区对蓄意强奸、强迫堕胎、强迫绝育、非自愿避孕实施制裁
+
+标题4——我们经济治国方略的投入
+
+第401节. 关于中共国产业政策的国会发现和意识
+
+第402节. 侵犯知识产权者清单
+
+第403节. 中共国政府补贴清单
+
+第404节. 打击外国腐败行为
+
+第405节. 对有资格获得国际发展协会资助国家的债务减免
+
+第406节. 中共国政府利用香港规避美国法律和保护的方式和程度的报告
+
+第407节. 对中共国公司在美国资本市场存在情况的年度审查
+
+标题5——确保战略安全
+
+第501节. 关于战略安全和军备控制的调查结果
+
+第502节. 战略核对话合作
+
+第503节. 关于美国就核问题和弹道导弹问题同中共国接触的努力方面的报告
+
+有关链接：
+
+【1】https://www.gnews.org/zh-hans/1065880/
+
+【2】
+
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+
+文字整理：
+
+A BILL
+
+To address issues involving the People’s Republic of China.
+
+Be it enacted by the Senate and House of Representatives of the United States of America in Congress assembled,
+
+SECTION 1. SHORT TITLE; TABLE OF CONTENTS.
+
+(a) SHORT TITLE. — This Act may be cited as the ‘‘Strategic Competition Act of 2021’’.
+
+(b) TABLE OF CONTENTS. — The table of contents for this Act is as follows:
+
+Sec. 1. Short title; table of contents.
+
+Sec. 2. Findings.
+
+Sec. 3. Definitions.
+
+Sec. 4. Statement of policy.
+
+Sec. 5. Sense of Congress.
+
+Sec. 6. Rules of construction.
+
+TITLE I — INVESTING IN A COMPETITIVE FUTURE
+
+Subtitle A—Science and Technology
+
+Sec. 101. Authorization to assist United States companies with global supply chain diversification and management.
+
+Subtitle B—Global Infrastructure Development
+
+Sec. 111. Appropriate committees of Congress defined.
+
+Sec. 112. Sense of Congress on international quality infrastructure investment standards.
+
+Sec. 113. United States support for infrastructure.
+
+Sec. 114. Infrastructure Transaction and Assistance Network.
+
+Sec. 115. Strategy for advanced and reliable energy infrastructure.
+
+Sec. 116. Report on China’s investments in foreign energy development.
+
+Subtitle C—Digital Technology and Connectivity
+
+Sec. 121. Sense of Congress on digital technology issues.
+
+Sec. 122. Digital connectivity and cybersecurity partnership.
+
+Subtitle D—Countering Chinese Communist Party Influence
+
+Sec. 131. Short title.
+
+Sec. 132. Authorization.
+
+Sec. 133. Findings on Chinese information warfare and malign influence operations.
+
+Sec. 134. Authorization of appropriations for the Fulbright-Hays Program.
+
+Sec. 135. Sense of Congress condemning anti-Asian racism and discrimination.
+
+Sec. 136. Supporting independent media and countering disinformation.
+
+Sec. 137. Global engagement center.
+
+Sec. 138. Review by Committee on Foreign Investment in the United States of certain foreign gifts to and contracts with institutions of higher education.
+
+TITLE II—INVESTING IN ALLIANCES AND PARTNERSHIPS
+
+Subtitle A—Strategic and Diplomatic Matters
+
+Sec. 201. Appropriate congressional committees defined.
+
+Sec. 202. United States commitment and support for allies and partners in the Indo-Pacific.
+
+Sec. 203. Sense of Congress on cooperation with the Quad.
+
+Sec. 204. Statement of policy on cooperation with ASEAN.
+
+Sec. 205. Sense of Congress on enhancing United States–ASEAN cooperation on technology issues with respect to the People’s Republic of China.
+
+Sec. 206. Report on Chinese influence in international organizations.
+
+Sec. 207. Regulatory exchanges with allies and partners.
+
+Sec. 208. Technology partnership office at the Department of State.
+
+Sec. 209. United States representation in standards-setting bodies.
+
+Sec. 210. Sense of Congress on centrality of sanctions and other restrictions to strategic competition with China.
+
+Sec. 211. Sense of Congress on negotiations with G7 countries on the People’s Republic of China.
+
+Sec. 212. Enhancing the United States-Taiwan partnership.
+
+Sec. 213. Treatment of Taiwan government.
+
+Sec. 214. Report on origins of the COVID–19 pandemic.
+
+Sec. 215. Enhancement of diplomatic support and economic engagement with Pacific island countries.
+
+Sec. 216. Increasing Department of State personnel and resources devoted to the Indo-Pacific.
+
+Sec. 217. Advancing United States leadership in the United Nations System.
+
+Subtitle B—International Security Matters
+
+Sec. 221. Definitions.
+
+Sec. 222. Findings.
+
+Sec. 223. Sense of Congress regarding bolstering security partnerships in the Indo-Pacific.
+
+Sec. 224. Statement of policy.
+
+Sec. 225. Foreign military financing in the Indo-Pacific and authorization of appropriations for Southeast Asia maritime security programs and diplomatic outreach activities.
+
+Sec. 226. Foreign military financing compact pilot program in the Indo-Pacific.
+
+Sec. 227. Additional funding for international military education and training in the Indo-Pacific.
+
+Sec. 228. Prioritizing excess defense article transfers for the Indo-Pacific.
+
+Sec. 229. Prioritizing excess naval vessel transfers for the Indo-Pacific.
+
+Sec. 230. Statement of policy on maritime freedom of operations in international waterways and airspace of the Indo-Pacific and on artificial land features in the South China Sea.
+
+Sec. 231. Report on capability development of Indo-Pacific allies and partners.
+
+Sec. 232. Report on national technology and industrial base.
+
+Sec. 233. Report on diplomatic outreach with respect to Chinese military installations overseas.
+
+Sec. 234. Statement of policy regarding universal implementation of United Nations sanctions on North Korea.
+
+Sec. 235. Limitation on assistance to countries hosting Chinese military installations.
+
+Subtitle C—Regional Strategies to Counter the People’s Republic of China
+
+Sec. 241. Statement of policy on cooperation with allies and partners around the world with respect to the People’s Republic of China.
+
+PART I—WESTERN HEMISPHERE
+
+Sec. 245. Sense of Congress regarding United States-Canada relations.
+
+Sec. 246. Sense of Congress regarding the Government of China’s arbitrary imprisonment of Canadian citizens.
+
+Sec. 247. Strategy to enhance cooperation with Canada.
+
+Sec. 248. Strategy to strengthen economic competitiveness, governance, human rights, and the rule of law in Latin America and the Caribbean.
+
+Sec. 249. Engagement in regional and international organizations in Latin America and the Caribbean.
+
+Sec. 250. Addressing China’s sovereign lending practices in Latin America and the Caribbean.
+
+Sec. 251. Defense cooperation in Latin America and the Caribbean.
+
+Sec. 252. Engagement with civil society in Latin America and the Caribbean regarding accountability, human rights, and the risks of pervasive surveillance technologies.
+
+PART II—TRANSATLANTIC ALLIANCE
+
+Sec. 255. Sense of Congress on the Transatlantic alliance.
+
+Sec. 256. Strategy to enhance transatlantic cooperation with respect to the People’s Republic of China.
+
+Sec. 257. Enhancing Transatlantic cooperation on promoting private sector finance.
+
+Sec. 258. Report and briefing on cooperation between China and Iran and between China and Russia.
+
+PART III—SOUTH AND CENTRAL ASIA
+
+Sec. 261. Sense of Congress on South and Central Asia.
+
+Sec. 262. Strategy to enhance cooperation with South and Central Asia.
+
+PART IV—AFRICA
+
+Sec. 271. Assessment of political, economic, and security activity of the People’s Republic of China in Africa.
+
+Sec. 272. Increasing the competitiveness of the United States in Africa.
+
+Sec. 273. Digital security cooperation with respect to Africa.
+
+Sec. 274. Increasing personnel in United States embassies in sub-Saharan Africa focused on the People’s Republic of China.
+
+Sec. 275. Support for Young African Leaders Initiative.
+
+Sec. 276. Africa broadcasting networks.
+
+PART V—MIDDLE EAST AND NORTH AFRICA
+
+Sec. 281. Strategy to counter Chinese influence in, and access to, the Middle East and North Africa.
+
+Sec. 282. Sense of Congress on Middle East and North Africa engagement.
+
+PART VI—ARCTIC REGION
+
+Sec. 285. Arctic diplomacy.
+
+PART VII—OCEANIA
+
+Sec. 291. Statement of policy on United States engagement in Oceania.
+
+Sec. 292. Oceania strategic roadmap.
+
+TITLE III—INVESTING IN OUR VALUES
+
+Sec. 301. Authorization of appropriations for promotion of democracy in Hong Kong.
+
+Sec. 302. Imposition of sanctions relating to forced labor in the Xinjiang Uyghur Autonomous Region.
+
+Sec. 303. Imposition of sanctions with respect to systematic rape, coercive abortion, forced sterilization, or involuntary contraceptive implantation in the Xinjiang Uyghur Autonomous Region.
+
+TITLE IV—INVESTING IN OUR ECONOMIC STATECRAFT
+
+Sec. 401. Findings and sense of Congress regarding the PRC’s industrial policy.
+
+Sec. 402. Intellectual property violators list.
+
+Sec. 403. Government of the People’s Republic of China subsidies list.
+
+Sec. 404. Countering foreign corrupt practices.
+
+Sec. 405. Debt relief for countries eligible for assistance from the International Development Association.
+
+Sec. 406. Report on manner and extent to which the Government of China exploits Hong Kong to circumvent United States laws and protections.
+
+Sec. 407. Annual review on the presence of Chinese companies in United States capital markets.
+
+TITLE V—ENSURING STRATEGIC SECURITY
+
+Sec. 501. Findings on strategic security and arms control.
+
+Sec. 502. Cooperation on a strategic nuclear dialogue.
+
+Sec. 503. Report on United States efforts to engage the People’s Republic of China on nuclear issues and ballistic missile issues.
 
 0

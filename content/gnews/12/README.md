@@ -1,51 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国两栖攻击舰加入在南中国海的航母群
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1074503/)
+## 福克斯拿到川普演讲稿 棕榈滩成新政治权力中心
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1074630/)
 
-翻译：康州盘古农场 — 文远
-校对：康州盘古农场 — TrueSky
-审核：康州盘古农场 — 心照
+俄罗斯莫斯科喀秋莎农场 DongDong
 
-据《华盛顿时报》作者：[比尔·格茨](https://lmf6zwyjmoxa5d6ctkuh32lzje--www-washingtontimes-com.translate.goog/staff/bill-gertz/)，2021年4月9日报道
-![]()![](https://gnews.org/wp-content/uploads/2021/04/518E2923-D329-4023-A0C7-D876FF792ECB.jpeg) *图：2020年7月6日，由美国海军罗纳德·里根号（CVN 76，前）和尼米兹号（CVN 68，后）美国海军双航空母舰打击编队在南中国海航行的档案照片*
-周五，一艘美国攻击舰上的数千名海军陆战队员加入了在南中国海航行的美国航空母舰一个打击编队，在有争议的水域进行了联合军事演习，[中共国](https://lmf6zwyjmoxa5d6ctkuh32lzje--www-washingtontimes-com.translate.goog/topics/china/)声称这片水域是其海洋领土。
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/M-5.jpg)washingtonpost.com
+前总统川普将于周六（美东 4 月 10 日）晚上在共和党全国委员会的重要聚会上发表讲话，预计他将表示，如果共和党人坚持执行 “美国第一” 的政策，共和党将在 2022 年中期选举中重新赢得国会，并在 2024 年夺回白宫。
 
-美国[海军](https://lmf6zwyjmoxa5d6ctkuh32lzje--www-washingtontimes-com.translate.goog/topics/navy/)在一份声明中说，海军陆战队的马克西岛号是一艘两栖攻击舰，装备了数千名海军陆战队，直升机和倾斜旋翼部队运输机，于周五加入了西奥多·罗斯福号航空母舰进行综合行动。
+在他的海湖庄园度假村（Mar-a-lago Club）向共和党捐赠者发表的主题演讲中，这位前总统预计将在取消文化、拟议的枪支限制等问题上向拜登总统发难，尤其是对于当前在南部边境激增的非法移民问题。
 
-[海军](https://lmf6zwyjmoxa5d6ctkuh32lzje--www-washingtontimes-com.translate.goog/topics/navy/)第三两栖中队准将斯图尔特·巴特尚斯基（Stewart Bateshansky）舰长说：“这支远征打击部队充分表明，我们拥有一支可信赖的作战部队，能够应对任何突发事件，制止侵略，并提供区域安全与稳定，以支持自由和开放的印度太平洋区域。”
+预计川普会说，共和党人重新夺回权利就应该打“非法移民”牌。
 
-美国[海军](https://lmf6zwyjmoxa5d6ctkuh32lzje--www-washingtontimes-com.translate.goog/topics/navy/)描述此次舰船和航母协作打击群进行演习的行动为“支持自由和开放的印度洋-太平洋。”
+“现在，非法越境人数比 2006 年以来的任何时候都高，”川普在福克斯新闻获得的一份演讲稿中说，“仅就这个问题上，我们就可以赢得众议院、参议院和白宫。”
 
-[海军](https://lmf6zwyjmoxa5d6ctkuh32lzje--www-washingtontimes-com.translate.goog/topics/navy/)说，远征打击部队的演习包括战术机动和制定[海军](https://lmf6zwyjmoxa5d6ctkuh32lzje--www-washingtontimes-com.translate.goog/topics/navy/)和海军陆战队的联合指挥、控制和通信。
+“这是世界上最大的一个’自残式’灾难。应该让极左派的马拉·哈里斯负责边境安全，而乔·拜登向地球上的每一个移民发出了’邀请’，美国不设防了，可以自由进入了。”
 
-打击群包括一支由MV-22型倾斜旋翼运输机组成的中队和第15海军陆战队远征部队的约2200名海军陆战队，这是一个用于快速反应军事行动的空地特遣部队。
+预计川普将花不少时间谈及他在任时取得的成就，加倍强调他的“美国第一”愿景和对共和党的承诺。
 
-[海军](https://lmf6zwyjmoxa5d6ctkuh32lzje--www-washingtontimes-com.translate.goog/topics/navy/)和海军陆战队发言人没有透露中共国军舰或飞机是否监视了行动或试图破坏演习。
+“我今天晚上充满自信地站在你们面前，2022 年，我们将夺回众议院，我们将夺回参议院– 然后在 2024 年，共和党候选人将赢得白宫。” 川普在提供给福克斯新闻的预备讲话中说。
 
-过去，中国军舰曾命令美国军舰离开南中国海，并声称北京拥有约90％的水路。美国[海军](https://lmf6zwyjmoxa5d6ctkuh32lzje--www-washingtontimes-com.translate.goog/topics/navy/)拒绝中共国的宣称，并坚持南中国海是一个开放的国际航道。
+预计川普将指责拜登把 “美国最后 ” 放在首位，引发了取消文化（cancel culture）战争，没有兑现他团结国家的承诺。
 
-美国政府根据几年前的一项国际法庭裁决驳斥了[中共国](https://lmf6zwyjmoxa5d6ctkuh32lzje--www-washingtontimes-com.translate.goog/topics/china/)关于扩张其海权的主张，该裁决称这些主张为非法。
+川普曾在过往的演说中痛批“取消文化”，因为它“羞辱持不同意见者，夺走他们的工作”，是带有“极权主义”色彩的危险运动。
 
-[海军](https://lmf6zwyjmoxa5d6ctkuh32lzje--www-washingtontimes-com.translate.goog/topics/navy/)少将第九航母打击群司令道格·韦里西莫（Doug Verissimo）说：“[海军](https://lmf6zwyjmoxa5d6ctkuh32lzje--www-washingtontimes-com.translate.goog/topics/navy/)和海军陆战队联合团队过去一个世纪以来在该地区一直是一支稳定的力量，并将继续支持所有对和平、稳定与海洋自由的共同愿景的人们。”
+在演讲稿中，川普抨击所有干扰自由公平选举的觉醒（Woke）公司，并指责拜登率领达美航空、可口可乐和美国职业棒球大联盟抵制佐治亚州的新选举法。
 
-航空母舰编队包括罗斯福航母，导弹巡洋舰邦克山号和导弹驱逐舰罗素号。以及包括F / A-18 战斗机群和MH-60海鹰直升机群。
+川普还暗示，拜登在上任的头几周内没有遵守总统惯例向国会发表例行的国情咨文演讲（Joint Address），是想躲避美国人民。
 
-与马克西岛号两栖攻击舰一起的还有两栖运输船，萨默塞特号和圣地亚哥号，两个直升机中队和一个营登陆队。该[海军](https://lmf6zwyjmoxa5d6ctkuh32lzje--www-washingtontimes-com.translate.goog/topics/navy/)没有说明演习正发生在什么位置。
+川普在准备好的发言稿中说：“假新闻我懒得说了，但拜登没有精力、能力或体力在美国人民面前进行演讲”。
 
-由于马尼拉声称有争议的惠特森礁附近有200余艘中共国船只的集结，[中共国](https://lmf6zwyjmoxa5d6ctkuh32lzje--www-washingtontimes-com.translate.goog/topics/china/)目前与菲律宾处于僵持状态。
+众议院议长南希·佩洛西表示，拜登是否面对全体议员演讲要取决于国会大厦内是否仍残留有潜在冠状病毒（中共病毒），这应该有华府医疗团队来确认和安排。
 
-菲律宾官员称，这些船只上的船员是中共国海上民兵。菲律宾已经要求中共国船只离开该岛礁。迄今为止，中共国一直拒绝了这一要求。
+虽然川普未能连任，但他仍对共和党有巨大影响力。川普考虑在 2024 年再次竞选，组建筹款委员会，并把海湖庄园做位为共和党聚会的大本营。
 
-原文链接：[https://www.washingtontimes.com/news/2021/apr/9/marine-assault-vessel-joins-us-carrier-group-show-/](https://www.washingtontimes.com/news/2021/apr/9/marine-assault-vessel-joins-us-carrier-group-show-/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+川普的高级顾问杰森·米勒向福克斯新闻强调，川普仍然是共和党的核心。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+“周六的演讲欢迎所有访问海湖庄园的共和党捐赠者，他们面对面地听到川普总统的讲话，” 米勒说，“棕榈滩是新的政治权力中心，川普总统是共和党最好的使者。”
 
+看起来，福克斯新闻应该已独家获得了川普总统今晚的演讲稿大纲。从报道内容来看，川普总统今晚的演讲会开启共和党新一轮的对民主党的攻势，若民主党在美国有限和移民问题上有任何模糊之处，共和党人将会凝聚起来阻止民主党做出“错误的选择”。5月份是值得期待的又一个新篇章。
 
+参考链接：
 
-
+[1] [Trump to rally GOP at Mar-a-Lago and preview pathway for Republican victories – Fox News – 2021/04/11](https://www.foxnews.com/politics/trump-to-rally-gop-at-mar-a-lago-and-preview-pathway-for-republican-victories%20)
 
 0

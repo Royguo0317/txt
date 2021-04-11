@@ -1,35 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美针对台湾问题明确化两指标
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1074428/)
+## 欧盟提议与美国暂停六个月关税
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1074513/)
 
-文章作者：台湾宝岛农场 zhong
+俄罗斯莫斯科喀秋莎农场   银河
 
-## **美国国务院发布新对台交往准则**
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/U-7.jpg)money.cnn.com
+路透社报道，欧盟贸易专员东布罗夫斯基斯（Dombrovskis）周六表示，欧盟建议其与美国在6个月内暂停对数十亿美元进口商品征收关税。
 
-美国国务院公布最新的对台交往准则，放宽美台往来，以鼓励美台接触，反映双边深化的非官方关系。美国官员被允许在台湾驻美代表处公开会面，但仍明文禁止悬挂中华民国国旗。
+这将超越上月达成的为期4个月的停飞协议，并发出一个信号，表明布鲁塞尔正在就一场已持续16年的飞机补贴争端寻求妥协。
 
-国务院指出，新准则放宽与台湾之间的往来，维持双边的非官方关系，并提供行政部门有效执行基于台湾关系法、美中三公报与六项保证「一个中国」政策的明确讯息。
+东布罗夫斯基斯对新闻杂志表示：“我们提议暂停所有相互关税6个月，以达成一项谈判解决方案。”他补充称：“这将为大西洋两岸的行业和工人创造必要的喘息空间。”
 
-## **美国南海军事力量正面对峙中共**
+今年3月，双方同意暂停对75亿美元欧盟进口产品征收关税，以及暂停对40亿美元美国产品征收的所有关税，为期4个月。此前，世贸组织(WTO)就空客(Airbus)和波音(Boeing)飞机制造商补贴问题向美国提出了长期诉讼。美国贸易代表办公室(US trade representative’s office)表示，美国与欧盟需要达成和解，以应对中共国飞机行业新进者带来的挑战。对飞机行业未来补贴的限制以及监督和执行机制，将是欧盟和美国达成的协议的一部分。
 
-本月4日，美国DDG-89军舰，与中共辽宁号近距离接触。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/擷取411-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/擷取411-2.jpg)
-舰长坐姿说明了一切。
+东布罗夫斯基斯还表示，欧盟将密切关注美国总统拜登的”购买美国货”法律。该法律规定，美国公共合同只能授予美国公司。他表示：“我们的目标是推动全球采购市场尽可能开放。”
 
-DDG-89，多次通过台湾海峡，在监控中共军舰任务上，有着非常重要的地位。
+参考链接：
 
-参考新闻：[新头壳Newtalk](https://newtalk.tw/news/view/2021-04-10/561443)\[苹果即时](https://tw.appledaily.com/international/20210411/AZV3XHELRBDCFBLQNZDU7KUVUM/)
-
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
-
-文章审核：zhong
-
-文章发布： Little Liu
+[https://www.reuters.com/article/usa-europe-tariffs-idUSL1N2M304U](https://www.reuters.com/article/usa-europe-tariffs-idUSL1N2M304U)
 
 0

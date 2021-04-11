@@ -1,69 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 50名武警突袭《叛逆新闻》记者Airbnb所租船房
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1074190/)
+## 【日本：世界进步的关键2】日本半导体产业为何无法重振雄风？
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1074333/)
 
-**阿黎**
+文章作者：台湾宝岛农场 zhong
 
-4月10日，大约50名全副武装的警察周六突袭了《叛逆新闻》（Rebel News）为报道反封锁抗议活动设在船上的临时新闻报道总部，船房是从Airbnb租借的，船停泊在蒙特利尔的一个港口。
+[本系列文章第一篇点击此处回顾【日本：世界进步的关键1】](https://gnews.org/zh-hans/1071379/)
 
+美国为半导体行业先驱，被日本政府以集中资源的发展手段超越。美国针对日本半导体产品的「倾销行为」课征高达100%的反倾销税(报复性关税)。美国半导体制造随着日本兴起，早已大举退出DRAM（动态随机存取记忆体）市场。因此日本半导体衰败后，美国晶片市占并未回升，反被韩国三星取得发展优势。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/擷取410.jpg)
+## **日本半导体业因协定、税率丧失市占但仍有回复可能**
 
+《美日半导体协议》签署、反倾销税课征后，日本半导体发展遭受重挫。但事实上，日本NEC、东芝、日立、富士通、三菱等机电集团，在全球DRAM（动态随机存取记忆体）市场，拥有的技术经验、市占率和品牌形象等优势，并未被摧毁。同时，美国科技厂超过七成退出DRAM市场，因此日本半导体帝国回复是有可能的。
 
-> BREAKING: 50 Armed Police Raid Rebel News ([@RebelNewsOnline](https://twitter.com/RebelNewsOnline?ref_src=twsrc%5Etfw)) Reporters Airbnb, Arrest Them for 'Illegal Gathering' (VIDEOS) [https://t.co/nofe9vfmlS](https://t.co/nofe9vfmlS) [@ezralevant](https://twitter.com/ezralevant?ref_src=twsrc%5Etfw) [@TheRealKeean](https://twitter.com/TheRealKeean?ref_src=twsrc%5Etfw)
-> — Cassandra Fairbanks (@CassandraRules) [April 10, 2021](https://twitter.com/CassandraRules/status/1380998125855371271?ref_src=twsrc%5Etfw)
+## **日本**DRAM**产业优势地位消失：市场结构改变、需求改变**
 
+日本DRAM产业在1980年代以前，科技产品尚不普及的年代，日本DRAM产品研发着重在制造设备、原料的精进，以「高品质、高可靠性」等特色获得市场青睐；日本半导体产业模式采「垂直整合分工」，一家大企业可以统包制造设备、原物料生产、设计、制造代工流程。垂直整合分工，在半导体产业属于资金、技术高度密集的特性下，无法针对市场变化做出快速调整。
 
+1980年代末，市场结构改变打破了日本优势地位。科技产品逐渐普及、个人化电子设备需求增加，DRAM市场需求激增，科技业者的需求从高成本、高品质转向低成本、产能充足的取向。日本DRAM产业，资金挹注于在制造设备、材料科学方面的研发提高良率、垂直分工的方式，都无法快速应对市场需求的变化。
 
-魁北克从复活节开始封城，于是人们上街示威反封城。《叛逆新闻》事先在Airbnb预定了船房，做为他们的新闻报道临时总部。警方得到消息后，派大批警察前来封锁，并逮捕了该媒体的记者。
+半导体产业，是资金、技术高度密集的规模产业。半导体制造的各环节都有各自的专业性，若采垂直整合模式(一条龙服务)，将会导致竞争力不足。因此，半导体产业发展的关键是「专业化水平分工、产业链群聚」。
 
+## **日本半导体制造正式终结**
 
+日本受到美国报复性关税制裁的同时，韩国透过游说只被美国课征0.74%的反倾销税，因此韩国三星并未受到多大的冲击。而且在当时，三星在半导体领域中，不论是研发能力、技术储备、市占、产品良率都不足构成对美国的威胁。我相信这也是美国愿意被韩国游说，希望藉由韩国的发展实质削弱日本DRAM供应的寡占地位。
 
-> Montreal Police assaulted and brutally arrested David Menzies. [@RebelNewsOnline](https://twitter.com/RebelNewsOnline?ref_src=twsrc%5Etfw) Head to [https://t.co/nR2Ow1VfjH](https://t.co/nR2Ow1VfjH) for full report. [pic.twitter.com/YkJXLWET4T](https://t.co/YkJXLWET4T)
-> — Mocha Bezirgan (@BezirganMocha) [April 10, 2021](https://twitter.com/BezirganMocha/status/1380962642911760389?ref_src=twsrc%5Etfw)
+在1980年代末，微型处理器热潮兴起，美国半导体标准化委员会采用三星所提出的DRAM「双向型数据通选方案」，直接架空了日本在旧DRAM领域中的重要性，三星也取得了先机。但日本半导体制造衰败的关键仍是采取垂直分工模式，无法快速应对市场变化。
 
+当时日本半导体公司制造同样的元件，使用的设备数量是韩国的两倍之多。整体生产流程长、产能低、欠缺快速迎合市场变化的能力等诸多因素，综合导致日本半导体业的衰败。
 
+日本失去的半导体市占率，成为三星半导体产业获利、快速发展的主因。韩国直到现在都还是半导体制造大国，可笑的是韩国也是「倾尽全国之力」集中发展。
 
-警方用警用红色胶带从外围封住了记者所在的AirBnb船只，他们说这是一个’犯罪现场’。” 当记者问警察他们究竟犯了什么罪时，警察能想到的就是我们住在酒店里是非法’集会’，违反了魁北克省的封锁规定。”事实上，《叛逆新闻》的人数比设施所设计的容量要少。”
+## **半导体产业发展，较量于「水平分工后产业群聚」**
 
+从日本半导体制造业的先例来看，半导体产业发展的特色除了资金密集、持续性投入外，更重要的是如何适应快速变化的市场需求。
+日本被三星取代后，日本政府主导数家科技大厂组成Elpida（尔必达）半导体厂，从通用晶片市场退出，转战系统集成晶片领域。但时运不济，时逢2008年全球金融危机，DRAM供应过剩，Elpida（尔必达）仍然亏损，最后于2012年宣布破产并被美光并购。
 
+综观来说，日本之所以无法回复过去半导体制造雄风是忽视了半导体生产的每个环节都是竞争上的转捩点。半导体产业设计、代工制造是两个不同的专业领域，同时都需要大量的研发实力、经验、资金。若所有的生产环节都仰赖自身供给，整体竞争力、成本都无法取得优势，自然导致产业的衰落。
 
-> Montreal police don’t have their search warrant yet. So they have deemed our Airbnb a crime scene. I’m not sure what they’re searching for — we have obviously uploaded our footage. They’re dragging it out to stop our work. So I shared my thoughts with them directly. [pic.twitter.com/BsErpxSJN5](https://t.co/BsErpxSJN5)
-> — Ezra Levant 🍁 (@ezralevant) [April 10, 2021](https://twitter.com/ezralevant/status/1380956658306793477?ref_src=twsrc%5Etfw)
+## **韩国、台湾半导体产业**
 
+台湾、韩国半导体产业分工：原料日本进口、设备荷兰进口、技术依赖美国，自身负责代工制造。而台湾、韩国又有一个关键性的不同，韩国除了半导体代工制造之外，尚培养自身品牌。可以这样认为，对于三星而言，代工是顺便，主要设计、销售自身品牌，并非提供专业晶圆代工制造服务。
 
+而台积电从一开始便专攻代工制造市场，将资金用于先进制程研发，取得先进技术变提供给客户。三星取得先进制程后的精力，用来培养自身品牌，台积电则转向提高产品良率、交货准时性、产能提升等，配合客户需求与产品周期。
 
-《叛逆新闻》创始人Ezra Levant指出，”这是蒙特利尔的警察，他们已经骚扰和殴打我们的记者好几周了。他们在报复，因为我们报道了他们的不当行为”。他还说，他遭到了警察的粗暴对待。
+简单来说，三星、台积电等半导体厂，利用全球化分工降低成本，将资金集中在特定领域的发展。又台积电采取的策略是水平分工后形成产业聚落，韩国则是传统的垂直分工模式。
 
-艾兹拉-利宛特还说，蒙特利尔的腐败警察把我们从Airbnb赶了出来。现在他们将进去，在没有任何观察员的情况下，对房间进行搜查。我担心他们会栽赃毒品、武器或其他违禁品。
+日本在半导体材料方面目前是垄断地位，虽然代工制造部分衰败，但在上游的材料、设备供应部份，仍是不可取代。可以这样认为，台湾、韩国都经不起美国、日本的脱钩。美日想掐死台湾、韩国的半导体产业，分分钟的事情，只不过是要付出多少成本而已。
 
-《叛逆新闻》的主要记者大卫-蒙西斯（David Menzies)在与警察的争执中，被警察推搡，然后被数名警察粗暴地扭至警车旁，戴上手铐，扔到车后座里。
+（本文仅代表个人见解，内文仅供参考）
 
-推特上一个名为“Joe Warmington”的帐户发推说，如果记者无法做好自己的工作，就不再是一个自由的国家。
+[本系列文章第一篇点击此处回顾【日本：世界进步的关键1】](https://gnews.org/zh-hans/1071379/)
 
-另一个名为“the Ikonian ”的推特帐户发推说，如果法院不阻止政府和警察的这种行为，那么我们就完蛋了，我们需要移到法律和权利重要的地方。
+参考资料：[数位时代](https://www.bnext.com.tw/article/61224/japan-semiconductor-tsmc)、[财经新报](https://finance.technews.tw/2020/12/02/tsmc-vs-samsung-for-foundry/)、[日本半导体产业这令人唏嘘的兴衰背后，究竟发生了什么？](http://blog.udn.com/pienchien/112574812)
 
-令人兴奋的是，几小时后，传来了巨大的好消息！蒙特利尔的警察无法让法官批准他们的搜查令！蒙特利尔的警察怂了！
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
-> 🚨HUGE VICTORY🚨 
-> 
-> Montreal’s police could not get a judge to approve their search warrant! They blinked!
-> 
-> David Menzies is being released from his illegal arrest!
-> 
-> The police have run away from the “crime scene!
-> 
-> I’m back in!
-> 
-> Viva le Quebec libre![https://t.co/roDg8jvAa1](https://t.co/roDg8jvAa1) [pic.twitter.com/WSvXZplsGG](https://t.co/WSvXZplsGG)
-> — Ezra Levant 🍁 (@ezralevant) [April 10, 2021](https://twitter.com/ezralevant/status/1381028608752369666?ref_src=twsrc%5Etfw)
+文章审核：zhong
 
-
-
-大卫-蒙西斯被非法逮捕释放了!警察从 “犯罪现场 “逃跑了!大卫回来了!
-
-蒙特利尔的法院没有沦陷，他们坚持正义，这的确是令人鼓舞的消息。加拿大还是有希望的。
+文章发布：Little Liu
 
 +1
