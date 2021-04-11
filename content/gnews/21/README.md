@@ -1,34 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10名蒙特利尔警察围殴一名未戴口罩男子
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1077975/)
+## 比尔盖茨被秘鲁法院指控对疫情担责后仍推行民众控制
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1077856/)
 
-**阿黎**
+翻译&评论: 8 Mile
+![]()![](https://gnews.org/wp-content/uploads/2021/04/121-2.png)图片来自网络截图
+比尔-盖茨在这场新冠疫情中扮演着怎样的角色，似乎已经被他的演讲、宣传视频扒掉了底裤。这些既得利益集团，计划通过病毒、疫苗和防控手段达到限制民众自由，洗脑、控制民众的目的已经遭到了曝光和抵制。
 
-据推特上今天的一条视频显示，约10名蒙特利尔警察殴打一名男子，据说是因为这名男子没有戴口罩。
+在暗中支持中共进行病毒实验研究，疫苗护照推行和挑动种族矛盾等，都离不开这些精英大鳄的联合布局和勾兑。共产主义也正是利用了人性中的恶、贪婪和控制欲收买了这些包括福奇、索罗斯和盖茨在内的利益集团。
 
+以下翻译引自《比尔-盖茨推崇一个世界联合政府，用”疫情消防队”控制民众》
 
+之前我们报道了秘鲁的一个法院指控比尔-盖茨对制造冠状病毒大流行负责。今天（2021年2月2日），盖茨似乎正利用这种流行病推动全球范围内对民众的控制。
 
-> Out of control scumbags! [pic.twitter.com/6bCT3auxZB](https://t.co/6bCT3auxZB)
-> — Yaakov Pollak (@Yanky\_Pollak) [April 11, 2021](https://twitter.com/Yanky_Pollak/status/1381113712468189189?ref_src=twsrc%5Etfw)
+尽管没有人喜欢这个家伙，甚至没有人关心他说过什么，但比尔-盖茨仍致力于加倍推动暴政。在所谓的“后Covid-19世界”，盖茨坚持认为我们需要用“疫情消防队”进行控制，以防止出现新的流行病。
 
+那么，一个迫切需要回答的问题是，他们到底为什么要为“后Covid-19世界”做准备？难道他们已经准备好释放 Covid-21了吗？
 
+盖茨和他的妻子在上周三发布的年度信件中，详细介绍了他们的新理念。但其Twitter上的视频也许以一种更有力的方式让观察者们明白了其中的含义。这个视频里，盖茨像是在世界地图上移动棋子一样移动各种小人偶。
 
-只见一名警察用拳头猛击这名男子，并用胳膊猛力箍住男子的脖子，使其不能动弹和喘息，从而失去抵抗能力。其他警察一边帮助那名在行凶的警察控制男子，一边围住男子，似乎是在试图挡住围攻现场，避免被拍摄。
+盖茨这种对大众说话的方式，似乎把我们当成无法理解其意图的低能儿一样。这些小人偶描绘了不同种族的人类，盖茨将他们定位成“在世界各地，一旦疾病爆发，就能发现他们”。盖茨说道，如果所谓的“全球警报系统”识别出一种新的传染病病原体，由急救人员组成的团队就会像“疫情消防员”一样，赶往该地控制疫情。他用玩具飞机、直升机和身穿黄色防护服的人偶来说明自己的观点。
 
-现场有人在一遍一遍地喊：“为什么箍住他的脖子！”还有人喊道：“不要打这个可怜的人！”但警察们毫不为之所动，直到视频结束，也没有看到警察停手。
+盖茨说：“阻止下一场大流行需要大量投资，但我认为这是世界能买到的最好的保险。”然而，根据RT的报道，没有人喜欢他说的话。看来，普通民众肯定已经厌倦了做顺从的奴隶。
 
-一位叫Alex Woods 的推特网友发推说，这发生在蒙特利尔，却找不到任何主流媒体关于此事的报道。另一位叫matterempte的发推说，加拿大=共产主义接管、服从。
+即使盖茨在他的Twitter页面上屏蔽了除了他关注的人之外的评论，也无济于事。有评论员说，这是彻头彻尾的宣传，比尔对他的预防流行病方案自信到关闭了评论。
 
-加拿大的警察这样对人民实施暴力，着实让笔者愤怒！这与中共国和已完全被中共掌控的香港的警察虐待人民的方式没有区别。是加拿大警察得了中共的真传，还是他们本来就是这样的，只是现在由于自媒体的存在才被曝光？
+盖茨还建议，社交媒体平台需要帮助审查任何针对他的可笑想法进行攻击的言论。民众不允许公开表达他们对自由的渴望。盖茨希望奴隶制是你们唯一的选择。
 
-美国因为警察对黑人吸毒者弗洛伊德过度执法使其致死，由此引发了由一些别有用心的人（索罗斯、奥巴马等） 在全美发起黑命贵运动。黑命贵参加者上街破坏公共设施、砸商店，抢商店里的商品，恣扰行人，致使无数家商店长时间关闭甚至永久关闭，给这些店主、社区和整个美国社会造成了难以估量的损失。
+（本文纯属个人观点，以上翻译略有删简）
 
-加拿大还在重复美国的错误，难道加拿大政府不能吸取美国的教训？或者说加拿大政府以为加拿大人软弱，不像美国人一样轻易地去反抗？加拿大人在政府的共产主义集权压制和管控之下，已经怒火中烧，政府不要视而不见。加拿大人不会容忍政府的共产主义化加拿大的企图得逞。
+*审核：Runaway  编辑：MG1*
 
-* * *
+Source:
 
-*编辑、发稿 文锦*
+[Bill Gates Pushes For One-World Government With “Pandemic Fire Squads” To Control The Masses](https://en-volve.com/2021/02/04/bill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses/)
 
+[Bill Gates Twitter](https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%%20HYPERLINK%20&quot;https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F&quot;7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_%20HYPERLINK%20&quot;https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F&quot;&amp;%20HYPERLINK%20&quot;https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F&quot;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
 0

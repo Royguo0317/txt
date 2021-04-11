@@ -1,238 +1,128 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0411.2021
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1077199/)
+## 投资人敦促硅谷企业家们认清中共国的威胁
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1078056/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+新闻来源：Washington Times《华盛顿时报》| 作者：Bill Gertz比尔·戈茨| 发布时间： 2021年4月7日
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
+翻译/简评：Lin Yheh| 校对/审核：万人往 | Page：小六月
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/s.jpeg)
 
-## 中共病毒真相
+**简评：**
 
-4月11日劳伦斯-塞林博士使用爆料革命美东香草山农场的文宣图发推，推文如下：
+中共国利用源自美国的高科技建立了一个前所未有的监控体系，严重威胁着全世界的人权与自由。企业家彼得·泰尔认为硅谷的主要技术领导者需要对中共国的这种威胁有更好的了解，以对抗这个“万恶”中共政权。除了苹果公司需要在中共国生产手机之外，硅谷的大型科技公司在中共国没有太多的利益，这使得美国的科技行业在和中共国打交道时相比屈从于中共国威权体系的华尔街、好莱坞和美国大学相比更有优势。泰尔认为，硅谷的高科技行业在应对中共国的威胁方面做的还远远不够，需要“政治唤醒”，以便能够更清楚的看到中共国的威胁并做出有效的反击。
 
-由于发病前高病毒载量和在上呼吸道脱落，是弗林酶切位点对对人体ACE2预先适应的高亲和力的结果，增加的无症状传播是#中共病毒大流行与SARS 和 MERS相比具备了生物武器特征。
+新疆集中营中对维族人监控和洗脑；香港反送中运动中对舆论的控制和混淆，对香港勇士们定点抓捕；中共病毒爆发初期对李文亮医生的打压逮捕，封杀疫情的真实情况最终酿成全球大流行病。这一个个尽在眼前的血淋淋的事实证明中共国利用美国的技术打造的这个“万恶”的监控体系是多么的可怕。就像企业家彼得·泰尔所说的那样，硅谷的技术领袖应当更清醒的认识到的这种威胁。仅仅认识到威胁是不够的，美国的这些科技企业还需要进行有利的反击和科技脱钩，卸掉中共作恶的爪牙，与所有正义的力量站在一起，灭掉邪恶的中国共产党。
 
+**原文翻译：**
 
+# **硅谷被敦促认清中共国的威胁**
 
-> Increased asymptomatic transmission is a bioweapon feature that [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) has compared to SARS & MERS, due to pre-symptom high viral loads & shedding in the upper respiratory tract, a result of furin cleavage site insertion & pre-adapted high affinity human ACE2 binding[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/lNB5cKdGen](https://t.co/lNB5cKdGen)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 11, 2021](https://twitter.com/LawrenceSellin/status/1381156085944422402?ref_src=twsrc%5Etfw)
+[!\[\]()!\[\](https://spark.adobe.com/page/zKq59Wkp39KAu/images/265da916-4609-4507-9c99-d2cb07086a28.png?asset_id=13d1e175-16c2-4bd4-ae0d-67018d62eab1&amp;img_etag=%2278f1329be6d38530dea5f3c8c2a1f32d%22&amp;size=2560)](https://spark.adobe.com/page/zKq59Wkp39KAu/images/265da916-4609-4507-9c99-d2cb07086a28.png?asset_id=13d1e175-16c2-4bd4-ae0d-67018d62eab1&amp;img_etag=%2278f1329be6d38530dea5f3c8c2a1f32d%22&amp;size=1024)企业家彼得·泰尔（Peter Thiel）说，中共国已经建成为一个大规模的监控型国家，硅谷的科技领袖们应该把这个政权视为对手。（美联社）
 
+高科技风险投资家兼企业家彼得·泰尔（Peter Thiel）表示，硅谷的主要科技领袖们需要更好地理解中共国带来的挑战。
 
-图片信息：
-高传染性
-低杀伤力
-显著的毒性
-对温度不敏感
-无症状传播率高
-抗环境变化的能力
-破坏力是前所未有的
+泰尔先生周二在加利福尼亚州尼克松图书馆举行的一次会议上说：“我确实认为，以对抗的方式看待中共国将是一个有益的开端，而硅谷在这方面做的还没有那么好。”
 
+泰尔先生说，在习近平主席的领导下，中共国已经建成了一个前所未有的大规模监控型的国家，被他形容为“无恶不作”。
 
-## 中共病毒疫苗
+泰尔先生说：“在某种程度上，这确实是一次非凡的社会政治实验，以前从未有先例。在某些方面，斯大林可能仍比习近平更坏，杀死的人更多。但是，对人们的控制程度是非同寻常的。这有点像政权在你内心最深处并且完全出来了。”
 
-4月9日据CNBC，辉瑞疫苗公司向FDA提交文件，将其中共病毒大流行（Covid-19）疫苗的紧急使用授权扩大到12至15岁的人。
+中共国政府使用源自美国的高科技来监视通信和旅行，并且最近宣布了一系列关于加密货币的计划，该计划可用于跟踪常规的金融交易。
 
+泰尔先生说，习近平创造了一个中共版的圣奥古斯丁神学中的上帝：“完全在你之外又完全在你之内，并且知道关于你的一切。”
 
+泰尔先生说，在某些方面，美国科技行业与北京打交道时有“结构优势”，至少与多年来一直屈从于中共国威权体系的华尔街、好莱坞和美国大学相比是如此。原因是：除了依赖中共国生产手机的苹果公司外，大型科技公司并未从中共国获得太多收益。
 
-> BREAKING: Pfizer files with the FDA to expand emergency use authorization for its Covid-19 vaccine to people between 12 and 15 years of age. [pic.twitter.com/SIXEtQfM1R](https://t.co/SIXEtQfM1R)
-> — CNBC Now (@CNBCnow) [April 9, 2021](https://twitter.com/CNBCnow/status/1380570522799472649?ref_src=twsrc%5Etfw)
+他说：“如果看看其他五大科技公司——谷歌、脸书、亚马逊、微软，它们在中国的业务几乎很少。因此，他们自然不是亲中共国的群体。”
 
+泰尔先生认为，硅谷公司的另一个问题是“政治唤醒”。“他们自认为不是真正的美国公司，某种程度上，他们很难形成任何形式的坚决反共立场。”
 
+以脸书为例，一年前，来自香港的民主派中国员工与同情北京当局中共领导层的中共国移民之间就面临着一场内部斗争。
 
+泰尔先生说：“来自香港的员工都赞成抗议活动和言论自由。但是，脸书在中共国出生的员工比在香港出生的员工要多。出生自中共国的人实际上说，这只是西方的傲慢，脸书不应该站在香港一边。”
 
+其他大多数脸书员工都远离了这场争论。“但内部争论的感觉像是人们更多的是反对香港而不是支持香港。”该公司董事会成员泰尔先生说。
 
-## 制裁中共国实体清单7家上榜
+据报道，本周，脸书的一些员工担心该平台被用于中共国对西部省份新疆穆斯林的宣传，从而爆发了一场争议。
 
-4月10日美国商务部推文：商务部对中共国实施新的出口管制，将7个中共国实体列入实体清单，以应对其参与中国军事、破坏稳定的军事现代化努力和/或大规模杀伤性武器计划的情况：[https://bit.ly/2ReqAJZ。](https://bit.ly/2ReqAJZ。)
+泰尔先生是一位亿万富翁、自由主义者，并且是贝宝（PayPal）和从事大数据分析的软件公司——帕兰蒂尔（Palantir Technologies）的创始人。他是脸书的早期投资者之一。
 
+这位企业家还说，他曾在谷歌为中共国政府所做的工作以及拒绝美国军方代表使用其技术方面与谷歌发生冲突。
 
+泰尔先生说，他曾询问过谷歌的领导层，该公司的DeepMind人工智能项目是否被用于在中共国西部囚禁维吾尔族囚犯的集中营。他被告知，公司不知道，也没有向中共国政府询问此事。
 
-> Commerce implements new export controls on China, adding 7 Chinese entities to the Entity List in response to their involvement with China’s military, its destabilizing military modernization efforts, and/or its weapons of mass destruction (WMD) programs: [https://t.co/0IGDiCl6rf](https://t.co/0IGDiCl6rf) [pic.twitter.com/6uz8Tb3iQN](https://t.co/6uz8Tb3iQN)
-> — U.S. Commerce Dept. (@CommerceGov) [April 10, 2021](https://twitter.com/CommerceGov/status/1380958779618037768?ref_src=twsrc%5Etfw)
+谷歌采用了他所说的 “魔幻思维”——假装与中共国政府合作没问题，只参与部分项目。
 
+他说：“这是一厢情愿的结合。这是有用的白痴；它是共产党的‘第五专栏作家’的合作者或所有这些东西的叠加。但是我想，如果您从意识形态、人权角度或类似的角度来考虑它，我很想说这确实很种族歧视。就像是在说，因为他们看起来不同，他们不是白人，所以他们没有相同的权利。这是非常错误的，但我不知道您该如何理解。”
 
+**在南海的航母行动**
 
-## 抵制中共通讯公司要彻底
+由于中共国政府与美国盟友菲律宾之间的紧张关系日益加剧，以西奥多·罗斯福号航空母舰为首的航母打击群本周将在南中国海开展行动。
 
-4月8日大纪元高级编辑推文：”这是一个明显的漏洞。”@BrendanCarrFCC （联邦通讯委员会委员）表示，美国运营商只要用私人部门的资金，而不是联邦资金，仍然可以购买华为与中兴的装备，这不合理。”
+中共国已经在南沙群岛马尼拉拥有争议的珊瑚礁附近积聚了200多艘海船，这促使菲律宾空军每天派遣战机在该礁石上空巡逻。
 
+海军周三表示，“罗斯福”号打击群与马来西亚海军进行了联合行动——这是美国为加强在该地区的盟友关系以对抗中共国的军事侵犯而加大努力的一部分。
 
+中共国在海上建造了约3200英亩的人工岛屿，2018年开始在一些新的人工前哨基地上部署反舰和防空导弹。
 
-> “That is a glaring loophole.”
->  [@FCC](https://twitter.com/FCC?ref_src=twsrc%5Etfw) Commissioner [@BrendanCarrFCC](https://twitter.com/BrendanCarrFCC?ref_src=twsrc%5Etfw) says it doesn't make sense that U.S. carriers can still purchase Huawei & ZTE gear as long as they do so with private sector funds, not federal dollars.
->  
-> 🔴PREMIERE 7:45pm ET: [https://t.co/7U9lbNbvE7](https://t.co/7U9lbNbvE7) [pic.twitter.com/5KG7Pvkrhi](https://t.co/5KG7Pvkrhi)
-> — Jan Jekielek (@JanJekielek) [April 8, 2021](https://twitter.com/JanJekielek/status/1380296582101405696?ref_src=twsrc%5Etfw)
+海军表示，该航母与马来西亚皇家空军一起参加了军方之间的首次双边军演。
 
+第9航母打击群司令官道格·韦里斯西莫（Doug Verissimo）表示：“虽然我们很想面对面地进行会晤，但我很高兴我们能在线上进行会晤，以帮助深化两国之间的安全合作。我们对相互合作的持续追求对于维护印度太平洋地区的和平与安全至关重要。”
 
+演习涉及的空战训练在与中共国的任何冲突中都会有用。根据海军的一份声明，航母行动从周日开始，包括模拟空袭。
 
+打击舰队连同导弹巡洋舰和驱逐舰的部署是今年第二次在海上航行。
 
+维里西莫上将说：“在打击群的部署过程中，我们通过与澳大利亚、印度、日本、马来西亚和韩国的朋友一起行动，证明了我们对印太地区基于规则的秩序的承诺。”
 
-## 中共渗透
+除了练习海上打击外，该打击群还在进行反潜行动。
 
-4月10日，国家脉动调查员记者Natallie Winters推文：美国联合航空公司一直在送美国孩子参加一个由中共高层宣传集团赞助的项目。
+同时，据中共国官方媒体报道，中共国正在台湾周边更北的地方部署自己的航母。
 
+辽宁号航母周一在台湾以东航行，这是美国官员所说的旨在胁迫该岛民主的挑衅性军事行动的一部分。
 
+中共官媒《环球时报》报导说，航母行动表明，中共国军队有能力包围该岛，孤立其部队，“让他们无处可逃”。
 
-> 🚨EXC: United Airlines Has Been Sending American Kids On A Program Sponsored By A Top Chinese Communist Propaganda Group.[https://t.co/KHlcXdZezv](https://t.co/KHlcXdZezv)
-> — Natalie Winters (@nataliegwinters) [April 11, 2021](https://twitter.com/nataliegwinters/status/1381041995297218565?ref_src=twsrc%5Etfw)
+海军周三通过将导弹驱逐舰约翰·麦凯恩号（John S. McCain）送入紧张的台湾海峡，靠近中共国战机每天都会入侵的台湾的防空区。
 
+第七舰队发言人马克·兰福德（Mark Langford）中尉说， 麦凯恩号“根据国际法”驶过海峡。
 
+他说：“该舰通过台湾海峡，表明了美国对自由开放的印太地区的承诺。美军将继续在国际法允许的任何地方飞行、航行和行动。”
 
-4月10日，目前@纽约时报的几名工作人员此前受雇于#中共控制的英文报纸“人民日报”，该报近年来向美国媒体支付了数百万美元，以发布其国家批准的内容。
+据台湾国防部介绍，近一个月来，中共国战机几乎每天都会飞入南部防空区。最近的飞行包括8架歼-10战机、4架歼-16战机、2架KJ-500空中预警控制机和1架Y-8反潜战机。
 
+所有的飞行都发生在岛内西南地区附近，Y-8绕着台湾飞了半圈才返回大陆。
 
+**普京的超音速导弹**
 
-> Several current [@NYTimes](https://twitter.com/nytimes?ref_src=twsrc%5Etfw) staffers were previously employed by the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)-controlled English-language newspaper [#ChinaDaily](https://twitter.com/hashtag/ChinaDaily?src=hash&amp;ref_src=twsrc%5Etfw), which has in recent years paid US media millions of dollars to publish its state-approved content. [https://t.co/oCrJEnYiti](https://t.co/oCrJEnYiti)
-> — The Epoch Times (@EpochTimes) [April 11, 2021](https://twitter.com/EpochTimes/status/1381040553249406977?ref_src=twsrc%5Etfw)
+俄罗斯总统弗拉基米尔·普京（Vladimir Putin）最近披露了有关莫斯科一种自称为超级武器的秘密：一种名为“先鋒”（Avangard）的新型高超音速导弹。
 
+普京透露，该导弹在大气层边缘的飞行速度如此之快，以至于其弹头温度达到3632华氏度，同时仍处于受控飞行状态。
 
+据官方媒体《国际文传电讯社》3月26日报道，俄罗斯领导人说：“太阳表面的温度约为6000[摄氏度]。而我们最新的‘阿凡达’导弹系统尖端的温度达到近2000[摄氏度]。我现在说的是材料科学。导弹在飞行过程中就像冰淇淋一样，飞着飞着就融化了。但它却一直在接收指令，并维持通讯和状态保持可控。”
 
-4月8日《纽约时报》员工承认以前为中共工作–尽管”收取了它的好处”
+美国空军对超音速导弹助推器的飞行试验星期一失败了，该部门称这是该计划的挫折。五角大楼正在迅速制造高超音速导弹，以赶上中共国和俄罗斯的类似计划。
 
+俄罗斯国防部12月宣布，第一个装备“先鋒”导弹的导弹团将在奥伦堡附近投入战斗服役。据俄罗斯官员介绍，这种战略武器是一种核武装高超音速滑翔飞行器，在弹道导弹上进行近空间助推，速度可以达到27马赫。
 
+该装备将部署在SS-18导弹上，并最终部署在即将服役的SS-X-29重型洲际弹道导弹上，莫斯科称之为 “萨尔马特”。
 
-> Great work by [@nataliegwinters](https://twitter.com/nataliegwinters?ref_src=twsrc%5Etfw) & [@RaheemKassam](https://twitter.com/RaheemKassam?ref_src=twsrc%5Etfw), exposing the NY Times “journalists” who previously worked for the Chinese Communist Party.[https://t.co/PFbnnIDHtO](https://t.co/PFbnnIDHtO)
-> — Steve Cortes (@CortesSteve) [April 10, 2021](https://twitter.com/CortesSteve/status/1381027551506751488?ref_src=twsrc%5Etfw)
+俄罗斯军方认为 “先锋”是对美国部署导弹防御系统的回应。
 
+[!\[\]()!\[\](https://spark.adobe.com/page/zKq59Wkp39KAu/images/00e13f3d-3093-4eff-bc28-5531dc4b6c77.png?asset_id=1a056966-40ca-4c8f-91e7-3bdcc574b7d9&amp;img_etag=%2264fa633912df9b5f808a1e234c4f7782%22&amp;size=2560)](https://spark.adobe.com/page/zKq59Wkp39KAu/images/00e13f3d-3093-4eff-bc28-5531dc4b6c77.png?asset_id=1a056966-40ca-4c8f-91e7-3bdcc574b7d9&amp;img_etag=%2264fa633912df9b5f808a1e234c4f7782%22&amp;size=1024)
 
+[原文链接](https://www.washingtontimes.com/news/2021/apr/7/peter-thiel-warns-silicon-valley-of-chinas-surveil/)
 
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
-## 抵制可口可乐的呼声
+编辑：【英国伦敦喜庄园编辑部】
 
-可口可乐公司一贯支持中共，近日发起对乔治亚州对选民具备合法证件的新选举法做出反对，引起美国舆论的抵制。美国行动主席Brigitte Gabrel 推文：“真正的爱国者抵制可口可乐。”
-
-
-
-> True Patriots are boycotting Coke! [pic.twitter.com/iwiH65RbXD](https://t.co/iwiH65RbXD)
-> — Brigitte Gabriel (@ACTBrigitte) [April 10, 2021](https://twitter.com/ACTBrigitte/status/1380909426685644802?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 波音737的问题
-
-4月9日，波音公司告诉16家航空公司客户，由于后备电力问题器件，自去年11月飞机未停飞以来，已交付的17部波音737 Max飞机要停飞，影响可能从数小时到数天。美国联邦航空局表示，正在与波音&航空公司合作解决这一问题。
-
-
-
-> Boeing tells 16 airline customers to ground some 737 Max jets that have been delivered since the plane was un-grounded last November. 
-> 
-> The FAA says it is working with Boeing & airlines on the issue. [pic.twitter.com/HBby6CDK9H](https://t.co/HBby6CDK9H)
-> — CNBC Now (@CNBCnow) [April 9, 2021](https://twitter.com/CNBCnow/status/1380510353050701828?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 禁枪令
-
-4月10日现任总统拜登推文：“这个国家的枪支暴力是一种流行病–国会早就该采取行动了。”此前前国务卿蓬佩奥先生曾说，解决坏人暴力问题就得让好人拥枪。
-
-
-
-> Gun violence in this country is an epidemic — and it’s long past time Congress take action.
-> — President Biden (@POTUS) [April 10, 2021](https://twitter.com/POTUS/status/1381026709248602115?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 恶心的拜登家
-
-4月9日Rumble报道了近日福克斯新闻和每日邮报再次曝光对爆料革命战友和GTV真相平台并不陌生的亨特拜登的“老照片”，报道称“恶心的亨特-拜登的新照片出现了”。福克斯新闻称2019年亨特拜登曾哀求父亲乔拜登参加总统竞选。
-
-朱利安尼先生4月10日转推时称“这只是乔拜登犯罪家庭的一个例子”。
-
-
-
-> DISGUSTING New Photos of Hunter Biden Emerge [https://t.co/yq3hAXLEad](https://t.co/yq3hAXLEad)
-> — Rudy W. Giuliani (@RudyGiuliani) [April 9, 2021](https://twitter.com/RudyGiuliani/status/1380597743824089099?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> This is just an example of the Biden Crime Family. [https://t.co/9wjFGEX88N](https://t.co/9wjFGEX88N)
-> — Rudy W. Giuliani (@RudyGiuliani) [April 11, 2021](https://twitter.com/RudyGiuliani/status/1381125731791556611?ref_src=twsrc%5Etfw)
-
-
-
-## 军事
-
-4月10日，单日的#轰炸机任务部队的一对#B1 Lancer轰炸机开展任务，长约28小时，在爱琴海上空往返航行12 000多海里。
-
-
-
-> A single-day [#BomberTaskForce](https://twitter.com/hashtag/BomberTaskForce?src=hash&amp;ref_src=twsrc%5Etfw) mission took a pair of [#B1](https://twitter.com/hashtag/B1?src=hash&amp;ref_src=twsrc%5Etfw) Lancer [#bombers](https://twitter.com/hashtag/bombers?src=hash&amp;ref_src=twsrc%5Etfw) from [@28thBombWing](https://twitter.com/28thBombWing?ref_src=twsrc%5Etfw) approximately 28 hours and over 12,000 nautical miles in a round trip operation over the Aegean Sea. [@US\_Stratcom](https://twitter.com/US_Stratcom?ref_src=twsrc%5Etfw) [#BTF](https://twitter.com/hashtag/BTF?src=hash&amp;ref_src=twsrc%5Etfw) [#AnywhereAnytime](https://twitter.com/hashtag/AnywhereAnytime?src=hash&amp;ref_src=twsrc%5Etfw) [#GlobalStrike](https://twitter.com/hashtag/GlobalStrike?src=hash&amp;ref_src=twsrc%5Etfw) [#GlobalDeterrence](https://twitter.com/hashtag/GlobalDeterrence?src=hash&amp;ref_src=twsrc%5Etfw) [#Bone](https://twitter.com/hashtag/Bone?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/H30KvSRviD](https://t.co/H30KvSRviD)
-> — AFGSC (@AFGlobalStrike) [April 10, 2021](https://twitter.com/AFGlobalStrike/status/1380882022898470915?ref_src=twsrc%5Etfw)
-
-
-
-
-
-预算案将中国列为 “头号挑战”，并呼吁需要 “利用 “太平洋威慑计划。
-[https://trib.al/TXoeRLl](https://trib.al/TXoeRLl)
-
-
-
-> The budget identifies China as the “top challenge,” and calls out the need to “leverage” the Pacific Deterrence Initiative.[https://t.co/IBsnfIf0wG](https://t.co/IBsnfIf0wG) [pic.twitter.com/glpXXCrYIK](https://t.co/glpXXCrYIK)
-> — Navy Times (@NavyTimes) [April 9, 2021](https://twitter.com/NavyTimes/status/1380543466657218564?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 川普总统能否回归
-
-4月9日川普总统GAB发文。[点击查看原文。](https://gab.com/realdonaldtrump/posts/106036472698724196)川普总统对飞利浦亲王的追思之时，也是无数美国人怀念川普总统执政之时。川普总统的悼文，如同国家级别的问候，相较于现任国务卿布林肯发布的国务院冷冰冰的官方悼文，是发自内心情真意切的追思感怀。悼文如下。
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/trump0409-11.png)
-
-
-全世界都在哀悼菲利普亲王的去世，他体现了联合王国和英联邦的崇高灵魂和自豪精神。
-
-梅拉尼和我向女王伊丽莎白二世陛下和整个皇室家族表示最深切和最深刻的哀悼。我们向英国人民致以最衷心的慰问。这对大不列颠，以及所有珍视我们文明的人来说，都是一个不可替代的损失。
-
-菲利普王子定义了英国的尊严和优雅。他化身为英国安静的矜持、严厉的坚韧和不屈的正直。
-
-年轻时，他作为一名海军军官在第二次世界大战中为英国光荣而勇敢地服务。在地中海的战舰上，他看到了海上的战斗。随后，他参加了1943年盟军入侵西西里岛的关键战役。像他那一代人一样，在英国最黑暗的时刻，他为了上帝、国家、自由和自治的价值观，把自己的生命放在了线上，这也是美国和英国永远团结在一起的原因。
-
-七十年来，菲利普亲王将同样的责任感和使命感带到了他作为女王的后妃和丈夫的角色中。他受到他的同胞们的钦佩，也受到全世界所有人的尊重。他在服务、恒心和爱国主义方面的杰出典范将是他最伟大的遗产。
-
-在过去的几年里，梅拉尼娅和我很荣幸有机会访问英国。我们亲眼目睹了君主制是如何体现和传承英国人民的美德–没有人比菲利普亲王做得更好。
-
-在我们为他的逝世感到悲痛的同时，我们也要庆祝他的逝世，并重新致力于他奉献其非凡生命的价值观。我们将深深地怀念他。
-
-
-
-国务卿布林肯的悼词（新闻声明）如下。
-
-
-
-> Our condolences go out to the royal family and all of the United Kingdom on the passing of His Royal Highness The Prince Philip, Duke of Edinburgh. We will remember him as a devoted leader and a friend of the United States. [https://t.co/wECxPAu8zH](https://t.co/wECxPAu8zH)
-> — Ned Price (@StateDeptSpox) [April 10, 2021](https://twitter.com/StateDeptSpox/status/1380673928239144962?ref_src=twsrc%5Etfw)
-
-
-
-我谨代表美国人民，就爱丁堡公爵菲利普亲王殿下的逝世向联合王国王室和人民表示最深切的哀悼。
-
-菲利普亲王殿下从第二次世界大战期间的服役，到几十年来与女王伊丽莎白二世一起为英国人民服务，都体现了他对国家不折不扣的责任感。 他是美国的真正朋友。 我们缅怀他，并将在未来的岁月里记住他对职责和友谊的奉献。
-
-
-
-
-
-
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+[!\[\]()!\[\](https://spark.adobe.com/page/zKq59Wkp39KAu/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/zKq59Wkp39KAu/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
