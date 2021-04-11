@@ -1,99 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.8.2021PM-Sillin 博士首提舟山蝙蝠病毒骨架
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1078717/)
+## 【墻內新聞淺析】習近平|堅決遏制電信網絡詐騙犯罪多發高發態勢
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1078738/)
 
-视频剪辑 : Ablec(文A)
-中听校： 洛杉矶天使农场 – 烟波浩淼
-英翻译：洛杉矶天使农场 – 烟波浩淼
-英校对：洛杉矶天使农场 – 雨山溪桥客
-字幕+视频制作：洛杉矶天使农场 – 压箱底儿の希望
+#### 作者：Ru Wei
 
-**路德**
-Sellin 博士今天发推正式提到了舟山蝙蝠病毒骨架
-Dr. Sellin tweeted today and officially mentioned about the Zhoushan bat virus backbone
-我们之前做节目说过
-As we said in a previous show
-Sellin 博士前天发推说SIXTA
-Dr. Sellin tweeted the day before yesterday mentioned about the SIXTA
-那是二战时期最神秘的一个组织
-It was one of the most mysterious organizations during World War II
-专门破译和分析所有的
-It was dedicated to decode and analyze
-的秘密以及所有信息的无线电信号的
-all the secrets radio signals of all information
-当时德军和日军
-of the German and Japanese troops at that time
-现在美国以及盟国也有类似于这样的一个组织正在分析
-Now, the United States and allies have a similar organization that
-解密所有的病毒相关的机密
-decode and analyze all virus-related secrets
-他发推说这就是舟山蝙蝠病毒的骨架做的
-He tweeded that this is Zhoushan bat virus backbone
-这个对闫博士的报告最关键的进一步深入
-This is the most critical further insight for Dr. Yan’s report
-这就是（闫博士报告）里面写的ZC45舟山蝙蝠病毒
-This is Zhoushan bat virus written in Dr. Yan’s report
-我们在2020年1月19 日的时候，大家想想啊，
-Think about this, we were on Jan 19, 2020 to say it
-全世界只有中共说的62例（中共病毒感染者）时
-There were only 62 cases (of the CCP virus infection) that CCP told the world
-我们就说了大爆发
-We have said it will be an outbreak pandemic
-这几天布林肯号召美国
-In recent a few days, Blinken has called on the U.S. to
-一定要敢干
-dare to do it (investigate the origin of the CCP virus)
-先把防守做好，谨防第二波，第三波
-To do a good defense first, then, guard against the second wave and the third wave
-第二，一定要彻查，透明地彻查
-Second, we must conduct a thorough and transparent investigation
-这句话透明彻查，
-The sentence of thorough and transparent investigation
-大家有没有（想过）?
-Have you ever (ever thought) ?
-上次美国政府要透明彻查是什么时候？
-when was the last time the US government wanted to conduct a transparent and thorough investigation?
-伊拉克！萨达姆！要彻查
-For Iraq！ Saddam！ U.S did a thorough investigation
-过一段时间你听啊，一定是联合国
-After a while you will see, it must be the United Nations
-就像当年对萨达姆一样
-It’s just like when we treated Saddam Hussein
-联合国会通过一个决议，
-The United Nations needs pass a resolution
-美国都是按程序走，
-the United States will go through a procedure
-彻查病毒来源
-to investigate the origin of the virus thoroughly
-先理后兵，美国都这样，
-The U.S used to tell you the reason, then they dispatch their troop
-伊拉克，萨达姆这个也是一样
-It’s the same with Iraq and Saddam Hussein
-先给萨达姆说，我们的情报说，
-Firstly, they tell Saddam that our intelligence says that
-你这里有研制大规模伤性武器
-you have developed weapons of mass destruction
-我们要求彻查
-We request a thorough investigation
-联合国也通过决议彻查
-The United Nations also passed a resolution to conduct a thorough investigation
-然后给最后通牒三次
-Then give an ultimatum three times
-三次不干，小布什马上召开记者发布会。
-After three quits, Bush Jr. immediately held a press conference
-现通知萨达姆24小时之内离开，
-Saddam was now notified to leave within 24 hours
-让联会国去彻查，
-so that the United Nations will conduct a thorough investigation
-因为他们研制大规模杀伤性武器
-because they developed weapons of mass destruction
-你看看，商务部说
-You see, the U.S. Department of Commerce said that
-中共研究大规模杀伤性武器
-the CCP researched weapons of mass destruction
-你觉得我们说的还是危言耸听吗？
-Do you think what we are talking about is still alarmist?
+![]()![](https://gnews.org/wp-content/uploads/2021/04/150649430059cb475c6aadd-e1618169516224.jpg)封面來源：多維新聞
+
+【新華社北京2021年4月9日電】中共中央總書記、國家主席、中央軍委主席習近平近日對打擊治理電信網絡詐騙犯罪工作作出重要指示強調。近年來，各地區各部門貫徹黨中央決策部署，持續開展電信網絡詐騙犯罪打擊治理，取得了初步成效。要堅持以人民為中心，統籌發展和安全，強化系統觀念、法治思維，註重源頭治理、綜合治理，堅持齊抓共管、群防群治，全面落實打防管控各項措施和金融、通信、互聯網等行業監管主體責任，加強法律制度建設，加強社會宣傳教育防範，推進國際執法合作，堅決遏制此類犯罪多發高發態勢，為建設更高水平的平安中國、法治中國作出新的更大的貢獻。
+
+#### 簡評：
+
+**“黨、政、軍”權利集於一身，“公、檢、法”給人民定罪自導自演；官媒、自媒體、社交媒體、互聯網民企和私企、互聯網個人代購，被嚴格監督審查，整肅一新；疫苗、糧食、教育、就業、保險，成為懸在老百姓頭上的一把“屠刀”，隨時可以落下；現在我們的“習神”又出來親自指揮、親自部署，開始對電信行業下手，政治目的尤為明顯。所有這些舉措，無不顯示中共的瘋狂、野蠻，就像被逼到墻角的獵物，在做臨死前最後“歇斯底裏的嚎叫”。**
+
+**外部高壓持續、速度越來越快；新疆“種族滅絕、反人類罪”方興未艾、中共病毒溯源、追責，如火如荼；搞亂美國、搞弱美國、搞死美國，被揭露、被識破；北約、亞約，對中共逐漸形成合圍態勢。同中共脫鉤、向中共施壓、對中共追責，最後滅掉中共，已經形成共識。**
+
+**中共值此之際，所作所為，無非就是陰謀敗露後的撒潑打滾、混淆視聽、倒打一耙、把水攪混，反過來給國內老百姓洗腦、綁架更多的肉票同國外勢力耍流氓；對內實施白色恐怖，“互聯網管控”是為了中共國內下一步進入“墻內局域網時代”做準備；對“電信網絡管控”，是為了下一步進入“墻內電話局域網時代”做準備。中共對國內加強監控，全部都是為“閉關鎖國”做準備、全都都是為政權能夠得以延續做準備、全都都是在做垂死掙紮的最後的瘋狂的表演。**
+
+**參考信息鏈接：🔗**[習近平對打擊治理電信網絡詐騙犯罪工作作出重要指示強調 堅持以人民為中心 全面落實打防管控措施 堅決遏制電信網絡詐騙犯罪多發高發態勢 李克強作出批示](http://www.xinhuanet.com/politics/leaders/2021-04/09/c_1127313085.htm)
+
+* * *
+
+***審核/校對：****Ting Guo*
+
+（免責聲明：本文僅代表作者個人觀點，跟GNEWS平臺無關。）
 
 0

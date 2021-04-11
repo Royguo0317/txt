@@ -1,41 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 比尔盖茨被秘鲁法院指控对疫情担责后仍推行民众控制
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1077856/)
+## 美国参议员提出法案 透露全面打击中共国行动的细节
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1078196/)
 
-翻译&评论: 8 Mile
-![]()![](https://gnews.org/wp-content/uploads/2021/04/121-2.png)图片来自网络截图
-比尔-盖茨在这场新冠疫情中扮演着怎样的角色，似乎已经被他的演讲、宣传视频扒掉了底裤。这些既得利益集团，计划通过病毒、疫苗和防控手段达到限制民众自由，洗脑、控制民众的目的已经遭到了曝光和抵制。
+翻译:康州盘古农场 – 郭班之樱
+校对:康州盘古农场 – Mike Li
+编辑:康州盘古农场 – 蓝精灵
 
-在暗中支持中共进行病毒实验研究，疫苗护照推行和挑动种族矛盾等，都离不开这些精英大鳄的联合布局和勾兑。共产主义也正是利用了人性中的恶、贪婪和控制欲收买了这些包括福奇、索罗斯和盖茨在内的利益集团。
+《路透社》作者：帕特里夏（Patricia Zengerle），大卫·布伦斯特伦（David Brunnstrom），2021年4月8日更新报道
 
-以下翻译引自《比尔-盖茨推崇一个世界联合政府，用”疫情消防队”控制民众》
+华盛顿（路透社）-美国参议院外交关系委员会负责人周四提出一项法案，通过促进人权，提供安全援助和投资打击虚假信息，来抵制中共国不断扩大的全球影响力。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/AE469C38-BE59-4F33-B4C0-71CB21800E5D.jpeg)*图片：中国和美国的国旗在美国公司大楼外飘扬。2021年1月21日路透社/王廷舒*
+该措施草案的标题为“ 2021年战略竞争法”，要求采取外交和战略举措来反击北京，反映出民主党和共和党国会议员都对与中共国打交道持强硬态度。
 
-之前我们报道了秘鲁的一个法院指控比尔-盖茨对制造冠状病毒大流行负责。今天（2021年2月2日），盖茨似乎正利用这种流行病推动全球范围内对民众的控制。
+这份长达280页的法案既涉及与中共国的经济竞争，还涉及人道主义和民主价值观，例如制裁那些残害少数民族穆斯林维吾尔人和支持香港的民主人士的中共官员。
 
-尽管没有人喜欢这个家伙，甚至没有人关心他说过什么，但比尔-盖茨仍致力于加倍推动暴政。在所谓的“后Covid-19世界”，盖茨坚持认为我们需要用“疫情消防队”进行控制，以防止出现新的流行病。
+它（法案）强调有必要去“优先考虑为实现美国在印度太平洋地区的政治目标所需的军事投资。” 它呼吁在开支预算上，国会必须确保联邦预算与战略是“适当地保持一致”，与中国竞争势在必行的。
 
-那么，一个迫切需要回答的问题是，他们到底为什么要为“后Covid-19世界”做准备？难道他们已经准备好释放 Covid-21了吗？
+该法案建议从财政年度2022到2026为该地区提供总计6.55亿美元的外国军事资助，为同期的“印度太平洋海事安全倡议”和相关计划提供总计4.5亿美元的资助。
 
-盖茨和他的妻子在上周三发布的年度信件中，详细介绍了他们的新理念。但其Twitter上的视频也许以一种更有力的方式让观察者们明白了其中的含义。这个视频里，盖茨像是在世界地图上移动棋子一样移动各种小人偶。
+它将扩大美国外国投资委员会（CFIUS）的范围，该委员会将审查潜在的国家安全风险的金融交易。 但是，就像该法案的许多规定那样，此条款在通过委员会和参议院全体会议期间，是可以更改的。
 
-盖茨这种对大众说话的方式，似乎把我们当成无法理解其意图的低能儿一样。这些小人偶描绘了不同种族的人类，盖茨将他们定位成“在世界各地，一旦疾病爆发，就能发现他们”。盖茨说道，如果所谓的“全球警报系统”识别出一种新的传染病病原体，由急救人员组成的团队就会像“疫情消防员”一样，赶往该地控制疫情。他用玩具飞机、直升机和身穿黄色防护服的人偶来说明自己的观点。
+立法草案要求加强与台湾的伙伴关系，称这个自治岛为“美国印度太平洋战略的重要组成部分”，并提到美国官员与台湾同行的互动不应受到任何限制。 中共国认为台湾是（他们的）一个脱离的省。
 
-盖茨说：“阻止下一场大流行需要大量投资，但我认为这是世界能买到的最好的保险。”然而，根据RT的报道，没有人喜欢他说的话。看来，普通民众肯定已经厌倦了做顺从的奴隶。
+中共国外交部发言人赵立坚在周五的例行新闻发布会上说，中共国“坚决反对”该法案，并呼吁参议员们做多一点事情，以帮助中美关系的稳定发展。
 
-即使盖茨在他的Twitter页面上屏蔽了除了他关注的人之外的评论，也无济于事。有评论员说，这是彻头彻尾的宣传，比尔对他的预防流行病方案自信到关闭了评论。
+台湾外交部发言人欧江安对参议院的支持表示感谢，并表示将密切关注该立法的发展。
 
-盖茨还建议，社交媒体平台需要帮助审查任何针对他的可笑想法进行攻击的言论。民众不允许公开表达他们对自由的渴望。盖茨希望奴隶制是你们唯一的选择。
+该法案还提到，华盛顿必须鼓励盟国对于北京的“侵略和妄下断言行为”做更多的事情，包括要在军备控制方面共同努力。
 
-（本文纯属个人观点，以上翻译略有删简）
+由该委员会民主党主席参议员鲍勃·梅嫩德斯（Bob Menendez）和其排名最高的共和党参议员吉姆·里施（Jim Risch）提出，该法案草案已公布给委员会成员，将于于4月14日由专家小组讨论修正草案和投票。梅嫩德斯在一份声明中说：“我相信这项努力得到了必要的支持，下周将会获得参议院外交关系委员会的压倒性通过，此后不久也将获得参议院全体成员的支持。”
 
-*审核：Runaway  编辑：MG1*
+里施在一份声明中说，他也很高兴该法案包括了一项“强有力且可行的”计划，以努力消减中共国在美国大学中的影响。这项措施是民主党参议院多数党领袖查克·舒默（Chuck Schumer）在2月份宣布的一项快速通道法案的一部分，该行动旨在通过立法来对付中共国。
 
-Source:
+亚洲战略与国际研究中心专家邦妮·格拉泽（Bonnie Glaser）说：“国会非常关注中共国对美国利益所构成的各种挑战，并正在努力制定有效的应对措施。
 
-[Bill Gates Pushes For One-World Government With “Pandemic Fire Squads” To Control The Masses](https://en-volve.com/2021/02/04/bill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses/)
+参议院商务委员会将于4月14日举行一次听证会，以讨论其两党议案“无尽边界法”，以支持美国半导体产业。
 
-[Bill Gates Twitter](https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%%20HYPERLINK%20&quot;https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F&quot;7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_%20HYPERLINK%20&quot;https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F&quot;&amp;%20HYPERLINK%20&quot;https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F&quot;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
+大卫·布伦斯特伦（David Brunnstrom）和帕特里夏（Patricia Zengerle）报道；乔纳森·奥提斯（Jonathan Oatis）、大卫·格雷哥里奥（David Gregorio）、安德里亚·里奇（Andrea Ricci）和尼克·麦克菲（Nick Macfie）编辑
+
+原文链接：[https://www.reuters.com/article/us-usa-china-senate-idUSKBN2BV1UE](https://www.reuters.com/article/us-usa-china-senate-idUSKBN2BV1UE)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+
+
+
 0
