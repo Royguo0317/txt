@@ -1,41 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 比尔盖茨被秘鲁法院指控对疫情担责后仍推行民众控制
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1077856/)
+## 中共地方财政吃紧&nbsp; 推房地产税掠夺百姓财富
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1078210/)
 
-翻译&评论: 8 Mile
-![]()![](https://gnews.org/wp-content/uploads/2021/04/121-2.png)图片来自网络截图
-比尔-盖茨在这场新冠疫情中扮演着怎样的角色，似乎已经被他的演讲、宣传视频扒掉了底裤。这些既得利益集团，计划通过病毒、疫苗和防控手段达到限制民众自由，洗脑、控制民众的目的已经遭到了曝光和抵制。
+**作者：波士顿五月花农场 背靠背**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2021-04-11-coverphoto.jpg)（图片来自网络）
+据2021年4月10日《今日头条》报道，4月7日中共财政部税政司司长王建凡在中共国务院新闻办公室答界面新闻记者问时表示，“十四五”期间，财政部将“积极稳妥推进房地产税立法和改革”。[1]
 
-在暗中支持中共进行病毒实验研究，疫苗护照推行和挑动种族矛盾等，都离不开这些精英大鳄的联合布局和勾兑。共产主义也正是利用了人性中的恶、贪婪和控制欲收买了这些包括福奇、索罗斯和盖茨在内的利益集团。
+把房地产税归为地方税种，究其根本，是因为中共地方税收的收支差不断扩大，财政吃紧已接近崩盘边缘；通过增加房产税赋用于填充地方财政赤字造成的巨大窟窿，以解地方财政因无钱可花导致无“战狗”可用的燃眉之急。根据中共2020年财政部数据，地方一般公共预算本级收入100124亿元，同比下降0.9%[2]；地方一般公共预算支出210492亿元，同比增长3.3%。2020年有14个省份一般公共预算收入同比2019年下降，湖北和天津下降幅度较大，均超过20%[3]。可见中共各省都“缺钱”。
 
-以下翻译引自《比尔-盖茨推崇一个世界联合政府，用”疫情消防队”控制民众》
+中共国经济游走在崩溃边缘，房价悬挂在高位，房地产税成为中共提高财政收入来钱最快的不二选择。根据中共国人民银行调查统计司城镇居民家庭资产负债调查课题组，于2019年10月中下旬在全国30个省（自治区、直辖市）对3万余户城镇居民家庭开展了资产负债情况调查。调查数据显示城镇居民家庭户均总资产317.9万元，户均拥有住房1.5套，实物资产为主，实物资产中，74.2%为住房资产，住房资产占家庭总资产的比重为59.1%。[4]如果房产税真正落地实施，这么大一块市场“羊羔”，又可以让中共大薅老百姓羊毛，度过困顿的经济寒冬。
 
-之前我们报道了秘鲁的一个法院指控比尔-盖茨对制造冠状病毒大流行负责。今天（2021年2月2日），盖茨似乎正利用这种流行病推动全球范围内对民众的控制。
+在王建凡答记者问中，他还表示通过“进一步完善综合与分类相结合的个人所得税制度”来“提高直接税比重”，实现财富掠夺。据中共2020年财政部数据，主要税收收入项目中，个人所得税11568亿元，同比增长11.4%[2]，然而2019年的个人所得税10388亿元，同比下降25.1%[3]。正当2020年中共病毒（CCP VIRUS）疫情施虐全球，海外国家都在给本国老百姓发现金的情况下，中共反而加大了对个人所得税的征收，真真是名副其实的趁火打劫、落井下石“党”。
 
-尽管没有人喜欢这个家伙，甚至没有人关心他说过什么，但比尔-盖茨仍致力于加倍推动暴政。在所谓的“后Covid-19世界”，盖茨坚持认为我们需要用“疫情消防队”进行控制，以防止出现新的流行病。
+综上所述，一方面中共国的房地产存量房巨大，房价连年上涨，居民账面财富最大一块是住房；另一方面中共经济正与世界脱钩，走内循环经济，财政收入下降，新开税源是中共的必然选择，而最好的税源也只有房地产税。曾几何时炒房即可翻身的美梦已成过去时，房子即将成为烫手山芋。
 
-那么，一个迫切需要回答的问题是，他们到底为什么要为“后Covid-19世界”做准备？难道他们已经准备好释放 Covid-21了吗？
+(文章仅代作者观点，与GNEWS网站无关)
 
-盖茨和他的妻子在上周三发布的年度信件中，详细介绍了他们的新理念。但其Twitter上的视频也许以一种更有力的方式让观察者们明白了其中的含义。这个视频里，盖茨像是在世界地图上移动棋子一样移动各种小人偶。
+新闻来源：
 
-盖茨这种对大众说话的方式，似乎把我们当成无法理解其意图的低能儿一样。这些小人偶描绘了不同种族的人类，盖茨将他们定位成“在世界各地，一旦疾病爆发，就能发现他们”。盖茨说道，如果所谓的“全球警报系统”识别出一种新的传染病病原体，由急救人员组成的团队就会像“疫情消防员”一样，赶往该地控制疫情。他用玩具飞机、直升机和身穿黄色防护服的人偶来说明自己的观点。
+[1] [房地产税要来了，房价会涨还是跌？](https://www.toutiao.com/a6949113656470979079/)
+[2] [2019年财政收支情况](http://gks.mof.gov.cn/tongjishuju/202002/t20200210_3467695.htm)
+[3] [2020年财政收支情况](http://gks.mof.gov.cn/tongjishuju/202101/t20210128_3650522.htm)
+[4] [央行公布城镇居民“家底儿” 家庭负债以银行贷款为主](http://www.xinhuanet.com/2020-04/25/c_1125902781.htm)
 
-盖茨说：“阻止下一场大流行需要大量投资，但我认为这是世界能买到的最好的保险。”然而，根据RT的报道，没有人喜欢他说的话。看来，普通民众肯定已经厌倦了做顺从的奴隶。
+* * *
 
-即使盖茨在他的Twitter页面上屏蔽了除了他关注的人之外的评论，也无济于事。有评论员说，这是彻头彻尾的宣传，比尔对他的预防流行病方案自信到关闭了评论。
+*责任编辑：日本东京方舟农场 老蚂蚁666
+编辑/校对：英国喜庄园 AN
+发布：喜联盟编辑部 Isaiah4031*
 
-盖茨还建议，社交媒体平台需要帮助审查任何针对他的可笑想法进行攻击的言论。民众不允许公开表达他们对自由的渴望。盖茨希望奴隶制是你们唯一的选择。
-
-（本文纯属个人观点，以上翻译略有删简）
-
-*审核：Runaway  编辑：MG1*
-
-Source:
-
-[Bill Gates Pushes For One-World Government With “Pandemic Fire Squads” To Control The Masses](https://en-volve.com/2021/02/04/bill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses/)
-
-[Bill Gates Twitter](https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%%20HYPERLINK%20&quot;https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F&quot;7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_%20HYPERLINK%20&quot;https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F&quot;&amp;%20HYPERLINK%20&quot;https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F&quot;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
 0
