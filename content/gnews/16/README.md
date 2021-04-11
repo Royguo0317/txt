@@ -1,99 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.8.2021PM-Sillin 博士首提舟山蝙蝠病毒骨架
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1078717/)
+## 中共关于CCP病毒起源的信息战美国早有应对
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1078822/)
 
-视频剪辑 : Ablec(文A)
-中听校： 洛杉矶天使农场 – 烟波浩淼
-英翻译：洛杉矶天使农场 – 烟波浩淼
-英校对：洛杉矶天使农场 – 雨山溪桥客
-字幕+视频制作：洛杉矶天使农场 – 压箱底儿の希望
+#### 译评： WEN JIE |责编：人间四月
+![]()![](https://gnews.org/wp-content/uploads/2021/04/capture-17.jpg)图片来源：搜狐网
+《华盛顿时报》（TheWashingtongTimes）比尔·格茨（Bill Gertz）先生又发表了最新文章，指出鉴于中共在全球开展关于CCP病毒大爆发起源的虚假信息宣传，美国国务院全球接触中心（The Department’s Global Engagement Center）表示早已悄然无声在全球对那些“毫无根据的阴谋论”进行反击。
 
-**路德**
-Sellin 博士今天发推正式提到了舟山蝙蝠病毒骨架
-Dr. Sellin tweeted today and officially mentioned about the Zhoushan bat virus backbone
-我们之前做节目说过
-As we said in a previous show
-Sellin 博士前天发推说SIXTA
-Dr. Sellin tweeted the day before yesterday mentioned about the SIXTA
-那是二战时期最神秘的一个组织
-It was one of the most mysterious organizations during World War II
-专门破译和分析所有的
-It was dedicated to decode and analyze
-的秘密以及所有信息的无线电信号的
-all the secrets radio signals of all information
-当时德军和日军
-of the German and Japanese troops at that time
-现在美国以及盟国也有类似于这样的一个组织正在分析
-Now, the United States and allies have a similar organization that
-解密所有的病毒相关的机密
-decode and analyze all virus-related secrets
-他发推说这就是舟山蝙蝠病毒的骨架做的
-He tweeded that this is Zhoushan bat virus backbone
-这个对闫博士的报告最关键的进一步深入
-This is the most critical further insight for Dr. Yan’s report
-这就是（闫博士报告）里面写的ZC45舟山蝙蝠病毒
-This is Zhoushan bat virus written in Dr. Yan’s report
-我们在2020年1月19 日的时候，大家想想啊，
-Think about this, we were on Jan 19, 2020 to say it
-全世界只有中共说的62例（中共病毒感染者）时
-There were only 62 cases (of the CCP virus infection) that CCP told the world
-我们就说了大爆发
-We have said it will be an outbreak pandemic
-这几天布林肯号召美国
-In recent a few days, Blinken has called on the U.S. to
-一定要敢干
-dare to do it (investigate the origin of the CCP virus)
-先把防守做好，谨防第二波，第三波
-To do a good defense first, then, guard against the second wave and the third wave
-第二，一定要彻查，透明地彻查
-Second, we must conduct a thorough and transparent investigation
-这句话透明彻查，
-The sentence of thorough and transparent investigation
-大家有没有（想过）?
-Have you ever (ever thought) ?
-上次美国政府要透明彻查是什么时候？
-when was the last time the US government wanted to conduct a transparent and thorough investigation?
-伊拉克！萨达姆！要彻查
-For Iraq！ Saddam！ U.S did a thorough investigation
-过一段时间你听啊，一定是联合国
-After a while you will see, it must be the United Nations
-就像当年对萨达姆一样
-It’s just like when we treated Saddam Hussein
-联合国会通过一个决议，
-The United Nations needs pass a resolution
-美国都是按程序走，
-the United States will go through a procedure
-彻查病毒来源
-to investigate the origin of the virus thoroughly
-先理后兵，美国都这样，
-The U.S used to tell you the reason, then they dispatch their troop
-伊拉克，萨达姆这个也是一样
-It’s the same with Iraq and Saddam Hussein
-先给萨达姆说，我们的情报说，
-Firstly, they tell Saddam that our intelligence says that
-你这里有研制大规模伤性武器
-you have developed weapons of mass destruction
-我们要求彻查
-We request a thorough investigation
-联合国也通过决议彻查
-The United Nations also passed a resolution to conduct a thorough investigation
-然后给最后通牒三次
-Then give an ultimatum three times
-三次不干，小布什马上召开记者发布会。
-After three quits, Bush Jr. immediately held a press conference
-现通知萨达姆24小时之内离开，
-Saddam was now notified to leave within 24 hours
-让联会国去彻查，
-so that the United Nations will conduct a thorough investigation
-因为他们研制大规模杀伤性武器
-because they developed weapons of mass destruction
-你看看，商务部说
-You see, the U.S. Department of Commerce said that
-中共研究大规模杀伤性武器
-the CCP researched weapons of mass destruction
-你觉得我们说的还是危言耸听吗？
-Do you think what we are talking about is still alarmist?
+全球接触中心首次承认反击行为标志着拜登政府公开指责中共关于CCP病毒起源散布误导信息，并公开了国务院消除中共政府言论影响的行动。
+
+全球接触中心在发给《华盛顿时报》（The Washington Times）的一份声明中说到，自CCP病毒爆发以来，国务院就已经在信息领域开展了抵制中共政府的虚假信息和其他被操控的宣传策略。美国政府采取全局策略来识别和打击针对CCP病毒起源的虚假信息同时，也要关注那些被中共官员不断放大的关于CCP病毒起源的那些“毫无根据的阴谋论”。
+
+**中共无耻的虚假宣传**
+
+在最初指出该病毒是来自武汉一家野生动物市场后，中共政府发言人发起了全球信息攻势，声称CCP病毒来自国外。
+
+首先，中共官方媒体声称该病毒是参加2019年10月在武汉举行军运会时由美军士兵带到武汉的。美国政府发言人否认了这一说法，但中共国外交部副发言人赵立坚鼓吹这个说法，他在推文中断言是美国陆军引发了这个病毒大爆发。
+
+赵立坚的那个毫无顾忌的说法，被认为是中共政府的一项富有争议的“战狼”外交政策的一部分，他在推特上说根据中共最近的一项研究，有证据显示病毒是由美国制造的。
+
+接下来，依附中共的国有网络媒体CGTN炮制了一个视频，声称病毒是美国陆军在迪特里克堡生物战研究中心制造的。中共外交部发言人散布这个说法，上个月她呼吁联合国下面的世界卫生组织就病毒来源于美国军事实验室的指控进行调查。
+
+中共国对迪特里克堡这种公开的外交言论，似乎是被用来扭转在西方国家和美国不断增长的报道，报道暗示病毒实际上是由武汉病毒研究所（the Wuhan Institute of Virology）泄漏出来的，这是基于武汉研究所与中共军方进行秘密合作，在该实验室进行相似的病毒研究工作。
+
+最近被中共国科学家推广较多的宣传说法是CCP病毒通过冷冻食品的包装进入中共国，这一说法被许多病毒专家认为极不可能。近期由世界卫生组织和中共联合发布的报告就CCP病毒大爆发的起源未能查明确切原因，却说冷冻食品理论值得研究，同时认为武汉试验室泄漏理论“极为不可能”。
+
+**美国抵制虚假信息**
+
+全球接触中心的声明并没有指出国务院和其他机构在抵制虚假信息工作中采取的具体措施，发言人也没有回答声明以外的任何问题。
+
+拜登政府已经确认将抵制外国虚假信息作为其临时的国家安全指南的一部分。
+
+马克·卢比奥（Sen. Marco Rubio）参议员说在中共病毒大爆发期间，中共政府提供了误导性的、不准确的统计数据；并且让那些试图揭露中共病毒爆发规模和起源的事实真相的人保持沉默。
+
+来自佛罗里达州的共和党议员卢比奥先生认为，中共为了塑造其形象，采取自私自利的行为导致中共病毒在世界其他国家骤然爆发，再次证明中共国不能担当一个负责任的世界大国角色，不值得信任。他说：“我们必须要中共政府为它制造的致命病毒负责。我已经督促拜登政府就中共制造病毒方面的任何信息分享给世界和美国人民。”
+
+按照全球接触中心说法，美国政府正在敦促所有国家包括中共国，“负起责任进行任何必须的科学研究，并就相关信息进行迅速而透明的共享，以便更好的了解中共病毒大爆发的扩散和起源。这也能够让国际社会更好做准备，以应对和预防将来的病毒爆发威胁。”
+
+该声明还说，全球接触中心已经改变现有的反虚假信息计划，专门瞄准有关中共病毒大爆发的假信息和假宣传在“敏感人群”中传播。
+
+声明说道，全球接触中心致力于增强社会对虚假信息的适应能力，捍卫独立媒体。全球接触中心与国务院官员一起致力于南美、欧洲和非洲等国家的本地组织机构建设，用来提供和推广中共病毒大爆发的准确信息。接触中心还与独立组织和非政府组织一起努力追溯那些虚假信息和被政府操控的社会媒体，包括中共政府和非国家行为者的行为。
+
+国务院官员继续与美国和国际合作伙伴一起努力，对抵制虚假信息做出全球回应。声明中没有提及确切的就病毒起源与中共有关的虚假信息实例。
+
+专注中共国的国会委员会在其最近的年度报告中指出，中共政府采用挑战性的俄罗斯式的虚假信息实施方法来败坏民主国家的声誉，宣扬中共式的专制体制，并转移国际社会对病毒起源的关注。
+
+美中经济与安全审查委员会的报告说，中共发起一场范围广泛的虚假信息宣传活动，以寻求将病毒起源归咎于美国和其他人，同时转移全球对武汉这个实际起源地的关注。
+
+**效仿俄罗斯**
+
+外交关系委员会高级研究员约书亚·库兰兹克（Joshua Kurlantzick）表示，中共政府已经加大了虚假宣传力度，以抹黑民主国家并推广中共的政策。他在最近的一份报告中说，中共的信息宣传运动取得了有限的成功。
+
+库兰兹克说：“尽管中共曾经一度回避俄罗斯喜好的带有挑衅性和阴谋诡计式的虚假信息，但在CCP病毒大爆发期间，中共越来越多地转向使用这种方法。中共政府既在操纵事实信息，又在散布虚假信息，或故意提供假信息，以转移人们对病毒的来源的注意力，突出美国应对病毒的失败，并推广中共国应成为全球领导者。”
+
+中共国宣扬这样的观念，那就是包括中共国，俄罗斯和伊朗在内的专制政权在应对病毒大爆发方面要比民主国家做得更好，这是抹黑美国支持的战后全球国际秩序的广泛工作中的一部分。
+
+在中共的信息传递活动中，已经利用了成千上万个西方媒体的虚假账号来推动他们发布的信息。
+
+社交媒体巨头推特（Twitter）公司在6月份删除了大约23,750个活跃帐户和大概150,000个与之相关的帐户，据该社交媒体公司称，这些帐户推广并放大了与病毒大爆发有关的亲中共的消息。推特公司（Twitter）在一份声明中说，与中共国有联系的约17万个帐户正在使用“操控和协调”的方式来传播中共喜好的叙事内容。
+
+库兰兹克先生还说，美国情报机关已经报道说，中共情报机构或与间谍服务相关的机构使用短信和信息应用程序在美国散布关于CCP病毒恐慌的信息。他说：“官员一开始没有注意到中共的情报机构试图通过民众手机短信散布虚假信息，这个策略要求对美国的基础设施有非常杰出的认知。”库兰兹克先生表示，中共关于病毒的虚假信息对美国民众的影响“适度有效”。
+
+牛津互联网学院的汉娜·贝利说，除了有关病毒来源的虚假信息之外，中共国还传播了有关美国制造的病毒疫苗假消息和关键信息，以期引起人们对疫苗使用的不信任。
+
+* * *
+
+评：透过这篇文章，我们可以清楚了解，自CCP病毒爆发以来，充斥社交媒体的有关病毒的报道大部分都是由中共操控的虚假信息，或者按照中共需要释放的假信息。然而出乎意料的是美国对这些虚假信息早有准备，甚至在全球早有布局来抵制这些虚假信息报道。也正是因为这样，所以追随爆料革命的战友们以及坚决支持闫丽梦博士关于CCP病毒真相的战友们，直到现在才发现国际媒体已经开始报道病毒真相，尽管这些报道还没有切中要害，但是按照西方人士逻辑思维的方式，他们很快就会接近真相。中共的信息战似乎在过去的一年稍有成就，但是却没有想到美国早已经有布局应对那些虚假信息。现在中共在全世界追溯病毒真相的要求下，已经无处藏身，看来郭先生年初说的“以毒灭共”很快就要应验。
+
+&gt;&gt;原文链接&gt;&gt; [Information war: For the first time Biden admin. accuses China of lying about COVID-19](https://www.washingtontimes.com/news/2021/apr/8/state-department-fights-chinas-covid-origins-disin/)
 
 0
