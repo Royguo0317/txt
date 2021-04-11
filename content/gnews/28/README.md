@@ -1,32 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0409III七哥担心SEC抗议的战友不注意病毒和走错门
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1074146/)
+## 每日新闻收集【4/10】
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1074292/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-34.jpg)
-编辑整理：
+**西班牙巴塞罗那喜悦农场** wenwu
 
-纽约香草山农场：鹰(文言)；伦敦喜庄园：万物归一；日本东京方舟农场：山川异域
 
-郭文贵先生在2021年4月9日的直播中谈到了SEC抗议是中国人第一次规模性维护自己合法权益的行动；谈到了爆料革命扭转了被中共彻底毁掉的中国人的形象；谈到了爆料革命唤醒世界让灭共由不可能变成必须等内容，本系列将根据郭先生在直播中涉及的不同方面逐一上传，以下为本系列第三部分——七哥担心SEC抗议的战友不注意病毒和走错门
 
-据[4月9日 文贵直播：中共的意淫反而将帮助更快灭共；国内富豪都是复制偷窃技术，不是企业家；美国只能与英日印合作联合灭共；中共控制比特币，人民币数字化，消灭美元；美国人已经相信能灭共](https://gtv.org/video/id=607053ef6e11a756eddd33df)时间点39：30——
+> Beijing forces elite Jack Ma academy’s name to be changed to “Wang Qishan Military Academy”[#jackma](https://twitter.com/hashtag/jackma?src=hash&amp;ref_src=twsrc%5Etfw) [#canceled](https://twitter.com/hashtag/canceled?src=hash&amp;ref_src=twsrc%5Etfw) [#goodbyeJack](https://twitter.com/hashtag/goodbyeJack?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/xGm7xadSM2](https://t.co/xGm7xadSM2)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [April 10, 2021](https://twitter.com/Jkylebass/status/1380832532183322630?ref_src=twsrc%5Etfw)
 
-所以这几天来，我唯一的担心啊他们完了以后在华盛顿去吃饭去了，大家都不戴口罩了。哎呀，给我发给我视频，我真担心病毒。都有孩子有老人的，求求兄弟姐妹们，你们要注意病毒，这是我最最担心的，这个是最最可怕的，务必务必要在这方面小心，因为这些天病毒往上去越来越多。记得我一年前说过吗，当病毒被传染而且传染率提高、死亡率提高的时候你还被麻木的时候，这是最危险的。现在已经到了被麻木的时候了，很多人已经麻木了，非常非常麻木。
 
-但是你看看我们有一个战友给我发信息，说七哥，他全家全都得上了，全都得了。我们送给他羟氯喹，他全家里边人都好了，然后他一直说服一个旁边的邻居、美国人，让他去吃药，他就不吃，后来说他的邻居得上了，第二天去得时候他的邻居已经死了，到医院已经死了。然后发他死了，哎呀他死了，他死了，他死了，给我打电话哭得一塌糊涂。我说你看这没办法，咱们想尝试救任何人，但是有些人真的就是缘分，他不听话他最后就死了。那么这个时候大家要小心，病毒和死亡率都在提高，所以我看到华盛顿的大家一起吃饭的时候唱歌喝酒，七哥很担心。
+1. 凯尔·巴斯**`推特`**：
+*北京强迫精英马云商学院（马云的杭州市优秀湖泛大学）改名为“王岐山军事学院”。附《金融时报》的**`新闻链接`***
 
-另外一个担心，就那男男女女都那么帅，我特能理解那感受，都那么帅、身材都那么好，是不是？青春旺盛、激情迸发、使不完的精力，小酒一喝。会出啥事儿呢？我就想回到酒店，同住一个酒店还都在同一层楼，是不是，你说那9号那喝多了一看就成6号了，是不是？那2号一颠倒过来就成5号了，你说走错门儿咋办呢，你说这年轻少年。
 
-你说七哥啊从年轻过来过，当年我那时候还没结婚呢，那是84年的时候第一次到泰国去。到泰国以后帕提亚，哇塞！好像是个自由的天堂啊，是吧，一堆人，我们去的也是住同一个酒店。哇塞，北京去了几个漂亮的美眉，一路上我就，哎呀，不知道，所有人比我大的20岁的也照顾我，比我小的就一个比我小的都照顾我。照顾我，哎呀那时候小啊，是不是？这个夸帅那个夸帅，我那时候爱习武，翻跟头啥的提溜咣当的，住到酒店晚上喝酒，都邀请我喝酒啊，喝个没完，最后去了几个，那是三个人一个房间的女孩房间，然后房间再去喝，喝着喝着就喝过了，你都不知道，等醒来的时候在谁房间得半天才能明白，你知道那是发生什么结果。
+> China government owns successful [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) and unsuccessful vaccine, then promotes both to the world for their benefits under the help of [#UnrestrictedScientificMisinformation](https://twitter.com/hashtag/UnrestrictedScientificMisinformation?src=hash&amp;ref_src=twsrc%5Etfw).[#CCPLiedPeopleDied](https://twitter.com/hashtag/CCPLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/jXj6mVTvGd](https://t.co/jXj6mVTvGd)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 10, 2021](https://twitter.com/DrLiMengYAN1/status/1380898841617174534?ref_src=twsrc%5Etfw)
 
-哎呀，这都过去事儿了，咱都年轻过，都年轻过，但是是美好的夜晚，但是再也不能再发生。我就说战友们，这时候我很担心，别走错门儿。呵呵，别走错门，别走错门，啊别走错门，啊别走错门！呵呵，开玩笑，开玩笑，我们的Q May啊，搞音乐的本来血液里边就有火，激情浪漫，小酒一喝，旁边什么小飞象、小飞侠，还有什么小王子，是不是，还有我们的明道，喔噻那小身材好的是吧，然后你说这小酒一喝，是不是啊，路易十六，喝的路易十六，路易十六你说咋弄吧你说。
 
-接上文——
+2. **`闫博士推特`**：
+*（塞林博士）中共军民融合项目中共病毒研究/疫苗开发计划的产物（新冠病毒） – 武汉是病毒工程、动物测试、疫苗生产和医院临床服务的多机构研发中心，中共病毒是从武汉故意投放到外卖
+（闫博士）中共政府拥有成功的“超限生物武器”（中共病毒）和失败的疫苗，然后在“超限科学误导的帮助下向世界推广两者，以谋取利益。#CCPLiedPeopleDied*
 
-[郭先生0409I SEC抗议是首次规模性维护国人自己合法权益](https://gnews.org/zh-hans/1074065/)
 
-[郭先生0409II爆料革命扭转了被中共彻底毁掉的中国人形象](https://gnews.org/zh-hans/1074116/)
+> 卧槽劲爆！继巴基斯坦总理接种中共疫苗后检测出 [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) 阳性后，巴基斯坦总统今天也在接种中共疫苗后检测出阳性！
+> 中共疫苗成功对巴基斯坦总统和总理进行了double kill ! [https://t.co/oQzgNqlKOl](https://t.co/oQzgNqlKOl) [pic.twitter.com/WvdmH0stL6](https://t.co/WvdmH0stL6)
+> — 黄鹤楼大厨（新） (@GuoWarriors7) [March 30, 2021](https://twitter.com/GuoWarriors7/status/1376709205453795333?ref_src=twsrc%5Etfw)
 
-0
+
+3. **`黄鹤楼大厨推特`**：
+*卧槽劲爆！继巴基斯坦总理接种中共疫苗后检测出 #CCPVirus 阳性后，巴基斯坦总统今天也在接种中共疫苗后检测出阳性！ 中共疫苗成功对巴基斯坦总统和总理进行了double kill*
+
+
+> 这是养猪呢还是去打仗😄 [pic.twitter.com/0tZkfGG1Mk](https://t.co/0tZkfGG1Mk)
+> — 圣斗士星矢 (@songjim5) [April 10, 2021](https://twitter.com/songjim5/status/1380918507458682880?ref_src=twsrc%5Etfw)
+
+
+4. **`圣斗士星矢推特`**
+*山东航空母舰每天吃7顿，比美国多2顿饭，这是养猪呢还是去打仗？*
+
+
+> [#中共國](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9C%8B?src=hash&amp;ref_src=twsrc%5Etfw) 同一天發生，除黑除了自己？🤣🤣🤣 [pic.twitter.com/7EUIHRuoVB](https://t.co/7EUIHRuoVB)
+> — 暗夜KIN(新号回归) (@KIN20200604) [April 10, 2021](https://twitter.com/KIN20200604/status/1380695249756979204?ref_src=twsrc%5Etfw)
+
+
+4. **`暗夜KIN推特`**
+*《扫黑除恶》第一时间成立的组长刘新云，刚上位就被干掉了。习神遇到困难了，不科学？*
+
+
+> [#溫哥華](https://twitter.com/hashtag/%E6%BA%AB%E5%93%A5%E8%8F%AF?src=hash&amp;ref_src=twsrc%5Etfw) 市長宣布：暫停與 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hash&amp;ref_src=twsrc%5Etfw) 官員所有的會面 
+> 
+> 中共因新疆問題報復性制裁 [#加拿大](https://twitter.com/hashtag/%E5%8A%A0%E6%8B%BF%E5%A4%A7?src=hash&amp;ref_src=twsrc%5Etfw) 眾議員 [#莊文浩](https://twitter.com/hashtag/%E8%8E%8A%E6%96%87%E6%B5%A9?src=hash&amp;ref_src=twsrc%5Etfw) 等人。對此，莊文浩的好友、溫哥華市長甘迺迪日前宣布，暫停與所有中共官員的會面，以回應中共的霸凌行為，並批評中共對莊文浩的「反制裁」不是交外手段，而是欺凌行為。[https://t.co/e0U1frpjH9](https://t.co/e0U1frpjH9)
+> — 澳洲大紀元 (@epochtimesau) [April 10, 2021](https://twitter.com/epochtimesau/status/1380779414955376641?ref_src=twsrc%5Etfw)
+
+
+6. **`大纪元推特`**
+*郭先生爆料土耳其断水中共大使馆后，温哥华市长与中共官员断交*
+
+
+> 4/10 郭先生蓋特
+> 🔥美國務院會把台灣當做一個國家對待，並恢復了台灣駐華盛頓大使館「橡樹園」
+> 🔥本週美國會對中概股進行新的懲罰，歐洲跟進，日本在起草科技企業制裁條例
+> 🔥中共國駐瑞典、土耳其、法國、日本、美國的大使們，會被趕回中共國
+> 🔥疫苗經濟會成為災難，多國家會因中共的假疫苗向中共追責
+> — Cantonese工作室 (@Cantoneseteam) [April 10, 2021](https://twitter.com/Cantoneseteam/status/1380947840571088896?ref_src=twsrc%5Etfw)
+
+
+7. **`Cantonese工作室推特`**
+4/10 郭先生盖特
+美国务院会把台湾当做一个国家对待，并恢復了台湾驻华盛顿大使馆「橡树园」
+本周美国会对中概股进行新的惩罚，欧洲跟进，日本在起草科技企业制裁条例
+中共国驻瑞典、土耳其、法国、日本、美国的大使们，会被赶回中共国
+疫苗经济会成為灾难，多国家会因中共的假疫苗向中共追责
+摩根先生坚持不打疫苗，并展示了爆料革命的视频给他的医生团队看，最后医生同意他不打疫苗
+未来会有更多的人，参与到揭发共產党病毒真相的队伍。目前已经有人与欧洲、美国合作了
+华盛顿州末的政治聚会上，大家都在谈论，拜登政府对付共产党的胆量，会错过一次又一次战机，把美国人置于危险境地
+全世界都在通胀 ，全球经济大灾难会很快到来，大家不要往前冲
+共产党利用潜伏的特务攻击G系列，是因为G系列会取代他们，破灭只有中概股才能让大家赚钱的神话，
+要和我们合作的欧洲某机构本来认為要和中国人合作，只有与共产党合作，现在知道了，还可以和我们新中国联邦合作，这是巨大的机会
+
+
++1
