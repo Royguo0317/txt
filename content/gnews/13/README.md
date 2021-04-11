@@ -1,60 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共挑战SWIFT美元支付系统相当于找死
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1078695/)
+## 中共关于CCP病毒起源的信息战美国早有应对
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1078822/)
 
-**简述：在2021年4月7日的盖特视频中，郭先生分析中共挑战SWIFT系统是自己作死。人民币国际交易系统的全球交易额只占国际市场的2%，但是中共却想以此挑战美元国际支付系统，虽然中共国每年的粮食进口和出口产业都离了SWIFT系统不能活。他还透露美国只有灭共，美国经济才能重回强大，会不惜一切代价动用SWIFT、比特币、世界银行、IMF货币组织、世界贸易组织，全面对中共开战。也当然不会有美景冬奥会了。**
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210407-getter1.srt.txt)
-**中共挑战****SWIFT****美元支付系统相当于找死**
+#### 译评： WEN JIE |责编：人间四月
+![]()![](https://gnews.org/wp-content/uploads/2021/04/capture-17.jpg)图片来源：搜狐网
+《华盛顿时报》（TheWashingtongTimes）比尔·格茨（Bill Gertz）先生又发表了最新文章，指出鉴于中共在全球开展关于CCP病毒大爆发起源的虚假信息宣传，美国国务院全球接触中心（The Department’s Global Engagement Center）表示早已悄然无声在全球对那些“毫无根据的阴谋论”进行反击。
 
-**CCP Challenging SWIFT Is Equivalent to Committing A Suicide**
+全球接触中心首次承认反击行为标志着拜登政府公开指责中共关于CCP病毒起源散布误导信息，并公开了国务院消除中共政府言论影响的行动。
 
-你说，全世界SWIFT，也就是美元支付系统，这个支付系统在全世界大家知道每年来来往往将近上百万亿美元交易，上百万亿美元。共产党要挑战SWIFT，结果整了一个CIPS，就是所谓的人民币的国际支付系统，发动了几十个国家，上百个国家，非洲啊，是吧？俄罗斯啊，东欧啊……然后自己做自己，就这么做。一年做了3万多笔，3万多笔还是300多万笔我忘了，加在一起全年3亿多美元。SWIFT一天做300万甚至达到800万笔，一天做多少呢？4万亿或者3万亿美元。过去折腾了几年了，CIPS人民币的国际货币交易系统在全世界占2%，全世界占2%。然后呢要挑战SWIFT。找死呢吧？找死呢吧！
+全球接触中心在发给《华盛顿时报》（The Washington Times）的一份声明中说到，自CCP病毒爆发以来，国务院就已经在信息领域开展了抵制中共政府的虚假信息和其他被操控的宣传策略。美国政府采取全局策略来识别和打击针对CCP病毒起源的虚假信息同时，也要关注那些被中共官员不断放大的关于CCP病毒起源的那些“毫无根据的阴谋论”。
 
-You know about the SWIFT (Society for Worldwide Interbank Financial Telecommunication) system, which is a network tracking transactions in U.S. dollars. You all know that this system handles transactions in the order of trillions of dollars per year. Now the CCP is trying to challenge the SWIFT system and has launched the CIPS system (Cross-Border Inter-Bank Payments System), a so-called RMB international payment system. The CCP has mobilized about a hundred countries, including African countries, Russia, and Eastern Europe. Then they operate the system within themselves. But there are only approximately 30,000 transactions through the CIPS system a year. I am not so sure whether it is 30 thousand or 3 million transactions. Anyway, the total amount is about 300 million U.S. dollars per year. In comparison, the SWIFT system handles 3 million to even 8 million transactions per day. How much money in total per day? Four trillion or 3 trillion U.S. dollars per day. The CIPS RMB international transaction system has been around for a few years already, but it accounts for only 2% of the global market share. Nevertheless, the CCP still wants to challenge the SWIFT system. Does the CCP want to commit a suicide? They are arranging their own demise.
+**中共无耻的虚假宣传**
 
-这还不说，跟中国人民息息有关的（是）中国人买粮食，中国一年最低买5亿吨（粮食），像去年（的情况）到现在要买8亿吨甚至9亿吨（粮食）。（如果）不买这些粮食中国人就得饿死人，这是一定是这样的。它（共产党）买粮食要通过什么？阿姆斯特丹有SWIFT交易中心，纽约有SWIFT交易中心，比利时有SWIFT交易中心，总部在比利时，SWIFT。（因为）也逃税啊，是吧？
+在最初指出该病毒是来自武汉一家野生动物市场后，中共政府发言人发起了全球信息攻势，声称CCP病毒来自国外。
 
-In addition, China’s food importation is an issue that affects Chinese people directly. China must buy at least 500 million tons of grain per year. In a dire situation like last year, China has to import as much as 800 million or even 900 million tons of grain. If they do not import this much food, Chinese people will die due to the lack of food. It cannot be otherwise. How does the CCP complete its transactions for food purchases? There is a SWIFT trading center in Amsterdam, one in New York and one in Belgium. The headquarter is in Belgium for the sake of tax evasion, right?
+首先，中共官方媒体声称该病毒是参加2019年10月在武汉举行军运会时由美军士兵带到武汉的。美国政府发言人否认了这一说法，但中共国外交部副发言人赵立坚鼓吹这个说法，他在推文中断言是美国陆军引发了这个病毒大爆发。
 
-你动任何一分钱SWIFT都知道。这是真正的沼泽地大佬：SWIFT，还有美国的美联储。世界上国际三大机构：WTO国际贸易（组织），世界银行美国人说了算，IMF世界货币组织（是）一个欧洲人说了算，世界国际组织这三大机构，再加上SWIFT。你去想一想兄弟姐妹们，共产党挑战它（能）有机会吗？
+赵立坚的那个毫无顾忌的说法，被认为是中共政府的一项富有争议的“战狼”外交政策的一部分，他在推特上说根据中共最近的一项研究，有证据显示病毒是由美国制造的。
 
-The SWIFT system tracks every penny of U.S. Dollar transaction. The real “swamp” tycoons are  SWIFT and the U.S. Federal Reserve. There are three major international organizations in the world: the WTO (World Trade Organization), the World Bank controlled by Americans, and the IMF (International Monetary Fund) by Europeans. Think about these three major international organizations and the SWIFT system, brothers and sisters. Does the CCP have a chance to challenge them?
+接下来，依附中共的国有网络媒体CGTN炮制了一个视频，声称病毒是美国陆军在迪特里克堡生物战研究中心制造的。中共外交部发言人散布这个说法，上个月她呼吁联合国下面的世界卫生组织就病毒来源于美国军事实验室的指控进行调查。
 
-8亿吨的粮食不拿美金买拿什么买，啊？拿啥买？关键是最夸张的（共产党）一年的出口20万亿人民币，大概4万亿美元，大概每年出口4万亿美元，所有的（加一起）啊。那么这些是多少钱呢，战友们知道不？相当于6亿人口，（这6亿人）所有人靠这活着。如果1.8亿到2亿人的就业，按一家两三口人（算），就是5、6亿人靠这活着。你（共产党）这个要整不成，这一、二十万亿人民币（的出口量）就死球蛋了，你拿啥挑战美国？所以共产党它就（是在）作死呢，跟着俄罗斯要搞一个所谓的支付系统。俄罗斯搞支付系统一年搞下来多少钱知道不？6亿美元。丢死人了吧？！
+中共国对迪特里克堡这种公开的外交言论，似乎是被用来扭转在西方国家和美国不断增长的报道，报道暗示病毒实际上是由武汉病毒研究所（the Wuhan Institute of Virology）泄漏出来的，这是基于武汉研究所与中共军方进行秘密合作，在该实验室进行相似的病毒研究工作。
 
-In what currency could the CCP pay for the 800 million tons of grain if it is not in U.S. dollars? In what currency can the CCP pay for it? The most absurd thing is that the CCP’s exports are about 20 trillion yuan a year. That is equivalent to 4 trillion U.S. dollars. So, Chinese exports are about 4 trillion U.S. dollars in total a year. What does that mean, my fellow fighters? It is like 600 million people relying on this to survive. Let’s assume 180 million to 200 million workers rely on these jobs, and each of them has two or three family members. That would mean 500 to 600 million people live on these exports. If the CCP failed to do 10 to 20 trillion yuan of exports every year, it would be difficult for them to survive. So how can they challenge the U.S.? It’s really committing a suicide. They intend to create a payment system together with Russia. Do you know the value of all the transactions that the Russia’s system has handled in one year? The answer is $600 million U.S. dollars, which is too embarrassing, right?
+最近被中共国科学家推广较多的宣传说法是CCP病毒通过冷冻食品的包装进入中共国，这一说法被许多病毒专家认为极不可能。近期由世界卫生组织和中共联合发布的报告就CCP病毒大爆发的起源未能查明确切原因，却说冷冻食品理论值得研究，同时认为武汉试验室泄漏理论“极为不可能”。
 
-我想告诉大家什么，今天？共产党[面临的]是：如果很快世界银行剔除中共，IMF世界货币组织剔除中共，世界贸易组织剔除中共，支付系统美元SWIFT剔除中共，然后给共产党更加致命一击[的是]比特币被列为全世界的犯罪货币或比特币被美国所接受成为合法流通货币但是要接受这个条件 – 就是透明化。共产党高官的洗钱基本完球蛋！
+**美国抵制虚假信息**
 
-What do I want to tell everyone today? What situation will the CCP be facing if the World Bank kicks it out soon, the IMF kicks it out, the WTO kicks it out, and the SWIFT system kicks it out? And then a fatal strike to the CCP would be the Bitcoin being designated as an international criminal cryptocurrency or alternatively, being accepted by the U.S. as a legal currency, but with the condition that it must go transparent. If that happens, the money laundering scheme of the CCP’s high-ranking officials will be basically over.
+全球接触中心的声明并没有指出国务院和其他机构在抵制虚假信息工作中采取的具体措施，发言人也没有回答声明以外的任何问题。
 
-那就不是脱钩啦，那就是直接把钩（子）喂到了共产党这个愚蠢的猪的嗓子里边儿去啦！人家是钓鱼，这是钓猪！钓中共（这头）猪！所以说兄弟姐妹们，到那时候你们再看这个世界。所以现在你看这个世界多疯狂？
+拜登政府已经确认将抵制外国虚假信息作为其临时的国家安全指南的一部分。
 
-That is not just decoupling. It would be like pushing the hook directly into the throat of the stupid pig, the CCP pig. People typically fish. Yet, this is fishing for a pig, fishing the CCP pig. So, brothers and sisters, let us wait and see. So you see how crazy the world is right now.
+马克·卢比奥（Sen. Marco Rubio）参议员说在中共病毒大爆发期间，中共政府提供了误导性的、不准确的统计数据；并且让那些试图揭露中共病毒爆发规模和起源的事实真相的人保持沉默。
 
-美国内部所有的激励措施都用完，美元一定完球蛋。（美国）没有任何机会和余地阻止美元和美元经济下滑。共产党是垂死挣扎。只有灭共，美国经济才能重回强大，（但）也得（度得）过这个震荡期，这就是事实。（大家）坐好，坐好家里的椅子吧，兄弟姐妹们，没事儿把你家椅子多钉几根儿钉啊，（因为）这个世界现在很疯狂。
+来自佛罗里达州的共和党议员卢比奥先生认为，中共为了塑造其形象，采取自私自利的行为导致中共病毒在世界其他国家骤然爆发，再次证明中共国不能担当一个负责任的世界大国角色，不值得信任。他说：“我们必须要中共政府为它制造的致命病毒负责。我已经督促拜登政府就中共制造病毒方面的任何信息分享给世界和美国人民。”
 
-When the U.S. is running out all its stimulus plans, the U.S. dollar is bound to collapse. There is no chance for it to stop the U.S. dollars from declining or the downturn of the U.S. economy. The CCP is putting up a last-ditch struggle. Only by taking down the CCP can the U.S. economy regain its strength. Even if they do this, they must still go through a turbulent period. That is a fact. Everybody should sit still in your chair, brothers and sisters. When you have time, you’d better put a few more nails in your chair to make it more stable because the world is so crazy right now.
+按照全球接触中心说法，美国政府正在敦促所有国家包括中共国，“负起责任进行任何必须的科学研究，并就相关信息进行迅速而透明的共享，以便更好的了解中共病毒大爆发的扩散和起源。这也能够让国际社会更好做准备，以应对和预防将来的病毒爆发威胁。”
 
-当昨天、前天了解到美国要采取这些行动的时候，全面调查病毒必须调查真相，告诉世界谁不配合谁就是我的敌人，然后不惜一切代价动用SWIFT、比特币、世界银行、IMF货币组织、世界这个贸易组织，全面对中共开战。当然没有冬季奥运会了，啥概念，兄弟姐妹们？
+该声明还说，全球接触中心已经改变现有的反虚假信息计划，专门瞄准有关中共病毒大爆发的假信息和假宣传在“敏感人群”中传播。
 
-I learned yesterday and the day before that the U.S. will take some actions. The U.S. will conduct a comprehensive investigation of the origin of the virus to find out the truth. Whoever does not cooperate will be treated as an enemy. Then the U.S. will initiate full-scale warfare against the CCP via the SWIFT, Bitcoin, the World Bank, the IMF, and the WTO. Of course, there will be no [Beijing] Winter Olympics. What does that mean, brothers and sisters?
+声明说道，全球接触中心致力于增强社会对虚假信息的适应能力，捍卫独立媒体。全球接触中心与国务院官员一起致力于南美、欧洲和非洲等国家的本地组织机构建设，用来提供和推广中共病毒大爆发的准确信息。接触中心还与独立组织和非政府组织一起努力追溯那些虚假信息和被政府操控的社会媒体，包括中共政府和非国家行为者的行为。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/606dba8bdbc8001854a63a56](https://gtv.org/getter/606dba8bdbc8001854a63a56) (00:22-04:01, 07:43-09:54)
-鸣谢：
-[1] 感谢Antsee-GTV、 TING GUO 提供中文文本于 [https://gnews.org/zh-hans/1062405/](https://gnews.org/zh-hans/1062405/)
-[2] 感谢YY、Antsee-GTV、Liberte 提供英文翻译于 [https://gnews.org/1070330/](https://gnews.org/1070330/)
+国务院官员继续与美国和国际合作伙伴一起努力，对抵制虚假信息做出全球回应。声明中没有提及确切的就病毒起源与中共有关的虚假信息实例。
+
+专注中共国的国会委员会在其最近的年度报告中指出，中共政府采用挑战性的俄罗斯式的虚假信息实施方法来败坏民主国家的声誉，宣扬中共式的专制体制，并转移国际社会对病毒起源的关注。
+
+美中经济与安全审查委员会的报告说，中共发起一场范围广泛的虚假信息宣传活动，以寻求将病毒起源归咎于美国和其他人，同时转移全球对武汉这个实际起源地的关注。
+
+**效仿俄罗斯**
+
+外交关系委员会高级研究员约书亚·库兰兹克（Joshua Kurlantzick）表示，中共政府已经加大了虚假宣传力度，以抹黑民主国家并推广中共的政策。他在最近的一份报告中说，中共的信息宣传运动取得了有限的成功。
+
+库兰兹克说：“尽管中共曾经一度回避俄罗斯喜好的带有挑衅性和阴谋诡计式的虚假信息，但在CCP病毒大爆发期间，中共越来越多地转向使用这种方法。中共政府既在操纵事实信息，又在散布虚假信息，或故意提供假信息，以转移人们对病毒的来源的注意力，突出美国应对病毒的失败，并推广中共国应成为全球领导者。”
+
+中共国宣扬这样的观念，那就是包括中共国，俄罗斯和伊朗在内的专制政权在应对病毒大爆发方面要比民主国家做得更好，这是抹黑美国支持的战后全球国际秩序的广泛工作中的一部分。
+
+在中共的信息传递活动中，已经利用了成千上万个西方媒体的虚假账号来推动他们发布的信息。
+
+社交媒体巨头推特（Twitter）公司在6月份删除了大约23,750个活跃帐户和大概150,000个与之相关的帐户，据该社交媒体公司称，这些帐户推广并放大了与病毒大爆发有关的亲中共的消息。推特公司（Twitter）在一份声明中说，与中共国有联系的约17万个帐户正在使用“操控和协调”的方式来传播中共喜好的叙事内容。
+
+库兰兹克先生还说，美国情报机关已经报道说，中共情报机构或与间谍服务相关的机构使用短信和信息应用程序在美国散布关于CCP病毒恐慌的信息。他说：“官员一开始没有注意到中共的情报机构试图通过民众手机短信散布虚假信息，这个策略要求对美国的基础设施有非常杰出的认知。”库兰兹克先生表示，中共关于病毒的虚假信息对美国民众的影响“适度有效”。
+
+牛津互联网学院的汉娜·贝利说，除了有关病毒来源的虚假信息之外，中共国还传播了有关美国制造的病毒疫苗假消息和关键信息，以期引起人们对疫苗使用的不信任。
 
 * * *
 
-整理校对 & 新闻撰写：【7PawBear】字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+评：透过这篇文章，我们可以清楚了解，自CCP病毒爆发以来，充斥社交媒体的有关病毒的报道大部分都是由中共操控的虚假信息，或者按照中共需要释放的假信息。然而出乎意料的是美国对这些虚假信息早有准备，甚至在全球早有布局来抵制这些虚假信息报道。也正是因为这样，所以追随爆料革命的战友们以及坚决支持闫丽梦博士关于CCP病毒真相的战友们，直到现在才发现国际媒体已经开始报道病毒真相，尽管这些报道还没有切中要害，但是按照西方人士逻辑思维的方式，他们很快就会接近真相。中共的信息战似乎在过去的一年稍有成就，但是却没有想到美国早已经有布局应对那些虚假信息。现在中共在全世界追溯病毒真相的要求下，已经无处藏身，看来郭先生年初说的“以毒灭共”很快就要应验。
 
-+1
+&gt;&gt;原文链接&gt;&gt; [Information war: For the first time Biden admin. accuses China of lying about COVID-19](https://www.washingtontimes.com/news/2021/apr/8/state-department-fights-chinas-covid-origins-disin/)
+
+0
