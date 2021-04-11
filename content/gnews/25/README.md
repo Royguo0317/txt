@@ -1,11 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 3/27/2021郭先生直播: 中共控制世界和绑架中国人民的计划在过去70年里从未停止！
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1073468/)
+## 慧眼看世界202104010（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1073530/)
 
-2008年最大的财富洗劫是把全世界的黄金积攒在一部分人手里，这个话题除了郭先生没人敢提起。战友们不要被媒体左右，要相信自己的判断。郭先生2017年就说过共产党会在霍尔木兹海峡等几个战略要地制造麻烦，从而控制欧美和中东。中共70年来一直蓄谋绑架中国人民从而使其子孙统治全世界。郭先生因窥到其中秘密而遭到共产党的追杀。
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-By: 【秘密翻译组G-Translators】
+
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-1-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-2-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-3-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-4-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-5-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-6-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-7-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-8-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-1-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-2-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-3-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-4-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-5-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-6-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-7-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-8-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-9-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-10-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-11-7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-12-2.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0
