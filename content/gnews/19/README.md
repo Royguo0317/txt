@@ -1,99 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.8.2021PM-Sillin 博士首提舟山蝙蝠病毒骨架
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1078717/)
+## 中共海军在南中国海动作连连，火药桶即将点燃
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1078875/)
 
-视频剪辑 : Ablec(文A)
-中听校： 洛杉矶天使农场 – 烟波浩淼
-英翻译：洛杉矶天使农场 – 烟波浩淼
-英校对：洛杉矶天使农场 – 雨山溪桥客
-字幕+视频制作：洛杉矶天使农场 – 压箱底儿の希望
+#### 翻译：大甄 |责编：人间四月
+![]()![](https://gnews.org/wp-content/uploads/2021/04/140329110050_philippines_china_vessel_624x351_afp.jpg)图片来源： BBC
+据菲律宾阿尔托广播系统-纪事广播网（ABS-CBN）报道，ABS-CBN新闻组当时正在监视其他中共国船只的动向，22型导弹快艇便出现在仁爱礁，然后，这艘导弹快艇赶走了该新闻组乘坐的那艘船。
 
-**路德**
-Sellin 博士今天发推正式提到了舟山蝙蝠病毒骨架
-Dr. Sellin tweeted today and officially mentioned about the Zhoushan bat virus backbone
-我们之前做节目说过
-As we said in a previous show
-Sellin 博士前天发推说SIXTA
-Dr. Sellin tweeted the day before yesterday mentioned about the SIXTA
-那是二战时期最神秘的一个组织
-It was one of the most mysterious organizations during World War II
-专门破译和分析所有的
-It was dedicated to decode and analyze
-的秘密以及所有信息的无线电信号的
-all the secrets radio signals of all information
-当时德军和日军
-of the German and Japanese troops at that time
-现在美国以及盟国也有类似于这样的一个组织正在分析
-Now, the United States and allies have a similar organization that
-解密所有的病毒相关的机密
-decode and analyze all virus-related secrets
-他发推说这就是舟山蝙蝠病毒的骨架做的
-He tweeded that this is Zhoushan bat virus backbone
-这个对闫博士的报告最关键的进一步深入
-This is the most critical further insight for Dr. Yan’s report
-这就是（闫博士报告）里面写的ZC45舟山蝙蝠病毒
-This is Zhoushan bat virus written in Dr. Yan’s report
-我们在2020年1月19 日的时候，大家想想啊，
-Think about this, we were on Jan 19, 2020 to say it
-全世界只有中共说的62例（中共病毒感染者）时
-There were only 62 cases (of the CCP virus infection) that CCP told the world
-我们就说了大爆发
-We have said it will be an outbreak pandemic
-这几天布林肯号召美国
-In recent a few days, Blinken has called on the U.S. to
-一定要敢干
-dare to do it (investigate the origin of the CCP virus)
-先把防守做好，谨防第二波，第三波
-To do a good defense first, then, guard against the second wave and the third wave
-第二，一定要彻查，透明地彻查
-Second, we must conduct a thorough and transparent investigation
-这句话透明彻查，
-The sentence of thorough and transparent investigation
-大家有没有（想过）?
-Have you ever (ever thought) ?
-上次美国政府要透明彻查是什么时候？
-when was the last time the US government wanted to conduct a transparent and thorough investigation?
-伊拉克！萨达姆！要彻查
-For Iraq！ Saddam！ U.S did a thorough investigation
-过一段时间你听啊，一定是联合国
-After a while you will see, it must be the United Nations
-就像当年对萨达姆一样
-It’s just like when we treated Saddam Hussein
-联合国会通过一个决议，
-The United Nations needs pass a resolution
-美国都是按程序走，
-the United States will go through a procedure
-彻查病毒来源
-to investigate the origin of the virus thoroughly
-先理后兵，美国都这样，
-The U.S used to tell you the reason, then they dispatch their troop
-伊拉克，萨达姆这个也是一样
-It’s the same with Iraq and Saddam Hussein
-先给萨达姆说，我们的情报说，
-Firstly, they tell Saddam that our intelligence says that
-你这里有研制大规模伤性武器
-you have developed weapons of mass destruction
-我们要求彻查
-We request a thorough investigation
-联合国也通过决议彻查
-The United Nations also passed a resolution to conduct a thorough investigation
-然后给最后通牒三次
-Then give an ultimatum three times
-三次不干，小布什马上召开记者发布会。
-After three quits, Bush Jr. immediately held a press conference
-现通知萨达姆24小时之内离开，
-Saddam was now notified to leave within 24 hours
-让联会国去彻查，
-so that the United Nations will conduct a thorough investigation
-因为他们研制大规模杀伤性武器
-because they developed weapons of mass destruction
-你看看，商务部说
-You see, the U.S. Department of Commerce said that
-中共研究大规模杀伤性武器
-the CCP researched weapons of mass destruction
-你觉得我们说的还是危言耸听吗？
-Do you think what we are talking about is still alarmist?
+该新闻组成员赞布拉诺（Zambrano）说：“当中共海岸警卫队驶向我们时，我们正在前往仁爱礁，它越来越近了，我们可以通过镜头看到它。之后，它发出了无线电信号，并用英语确认我们的人员身份以及在做什么。”新闻组随后决定返回巴拉望，这时我们被快艇驱逐了。两艘较小但速度较快的船追赶了我们。这些船是装有导弹的“红稗级“22型导弹快艇。”
+
+此前有报道称，中共民兵武装船只连续恐吓菲律宾渔民，以及在这些海域非法捕鱼。今年三月，菲律宾海岸警卫队说，从菲律宾管辖的水域中发现了不少于220艘中共国渔船。
+
+1999年，菲律宾政府将马德雷山号登陆舰拖往南中国海，故意搁浅在南沙群岛的仁爱礁，并派驻海军陆战队队员驻守，使得这里成为菲律宾在与中共国存在的南沙群岛有争议海域的前哨，形成了菲律宾对仁爱礁的实际控制至今。 然而，从2013年开始，中共国增加了在仁爱礁附近的海上影响力，以抗议马尼拉的实际控制活动。该地区位于国际公认的菲律宾专属经济区（EEZ）内，周围水域是丰富的渔场。
+
+过去，中共国渔船和巡逻船来自中共海岸警卫队，并在仁爱礁附近被发现。这起最新驱逐事件可能是第一次在本海域发现的， 确定由人民解放军海军（中共国海军）操纵的*“*红稗级“22型导弹快艇。
+
+三月底，在美济礁（Mischief Reef）附近停泊有三艘22型导弹快艇快艇和一艘补给舰。该地区是中共海军在南中国海的军事基地之一。美济礁在菲律宾也被称为潘加尼万礁（Panganiban Reef），属于菲律宾专属经济区。最近几周有大量的中共国渔船停泊在有争议的珊瑚礁周围。但是，目前尚不清楚这些中共海军导弹快艇在哪里巡逻，以及是否永远部署在南中国海的前哨海军基地。
+
+去年11月，多种22型导弹快艇群连同三艘071型两栖综合登陆舰参加了南中国海的演习。这是中共大外宣，党媒《人民日报》的副刊《环球时报》所描述的， “这是一次实战演习，其中的导弹快艇接受了综合攻击和防御，防空和反恐方面的演练。”中共海军并未披露涉及22型导弹快艇的大规模演习发生的地点，而南中国海是一个非常大的区域。猜测可能是在接近大陆， 靠近海南岛或西沙群岛的永兴岛，导弹飞艇的演习作业相对较容易。 与其在更南面，远离中共国大陆（例如仁爱礁）的水域进行巡逻大不相同。这些量产的快艇，中共国在七年时间里建造了80多个样机，是中共国海军快速扩张计划的一部分。过去它们主要被当作一种沿海防御资产，现在它们也被用作远征，这可能对南中国海的军事平衡产生重大战略意义。
+
+事实上，22型导弹快艇特别配置了远征工作装备，具有强大的数据链和其他指挥控制能力，并且能与其他中共国飞机和军舰的协调作战。除了该设备外，这些双体船还装备精良，在舰首配备了八个鹰击83亚音速反舰导弹发射器和一枚快速射击的30mm H / PJ-13加特林式近防炮，用于与打击空中目标并提供防卫支援。短程防空交给机组人员操作的便携式防空系统。
+
+这些快艇的最大速度约为36节或38节，最远航程未披露，可能约为300英里。如前所述，在美济礁发现的22型导弹快艇伴随着一艘补给舰，该补给舰将能够大大增加其作战半径。
+
+除了该地区的海上活动外，中共在对南中国海的野心也体现在南沙群岛的人工岛礁军事基地建设中。自2014年以来，三个地点，特别是永暑礁、美济礁和渚碧礁都进行了人工扩建。在扩建的人工岛上配备了红旗9地空导弹和地面发射的鹰击12B飞航式反舰导弹，所有这三个人工岛上都建设了起降跑道，其中至少有一些能够支持轰炸机起降。南沙群岛上空还经常出现包括苏-30在内的中共国战斗机的远程空中巡逻。
+
+不仅将军舰和飞机部署到南沙群岛，而且将其转变为人造海军军事基地，为中共提供了一个平台，使中共可以宣称拥有广阔的经济区与主权，其中包括航运路线，捕鱼区和自然资源。从这些海军基地，中共将能够扩大其反介入和区域阻绝（A2 / AD）的保护范围，然后如果国际社会保持沉默的话，有可能要求控制整个南中国海地区。
+
+过去，中共否认在南中国海积极建立军事据点，但事实与其否认相反。尽管美国海军执行了”航行自由”的任务，但中共的军事主张却覆盖了该地区的最大部分。其他方面，中共一直不愿在南沙群岛以及更北部的西沙群岛上妥协。
+
+中共国已经有建成了一个像堡垒一样的人造海军基地网络，用以在南中国海的南端投射力量，并且有可能通过永久驻扎的战斗机，远程传感器和导弹系统进一步强化这些军事基地。但是，拥有22型导弹快艇的前向部署将提供额外的进攻型防御，并且从这些海军基地向外打击敌方海军。特别是导弹快艇的吃水深度浅和高速性，使其成为捍卫此类岛礁沿海权利的理想之选。而且，这些快艇的船员要求少，并且能够在复杂的水域进行军事操作，这将有助于维持中共海军强大的本地化存在。最重要的是，仅在南中国海南部，这些导弹武装飞艇的出现便向菲律宾和其他地区大国发出了强有力的信号，并在该地区提出了军事力量相互竞争的主张。
+
+&gt;&gt;原报道来源&gt;&gt; [Now China Has Cruise Missile Carrying Catamarans Chasing Away Ships In The South China Sea](https://www.thedrive.com/the-war-zone/40107/now-china-has-cruise-missile-carrying-catamarans-chasing-away-ships-in-the-south-china-sea)
+
+
 
 0

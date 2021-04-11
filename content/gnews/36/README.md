@@ -1,51 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共国制裁欧洲后，德国特里尔大学孔子学院被暂停一切活动
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1078232/)
+## Mar Llera教授力挺闫丽梦博士揭示中共病毒真相
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1078397/)
 
-作者：纽约香草山健身部 Jack Li文阳
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+- 翻译：蚂蚁兄弟
+- 制图：七白石
 
 
+更*多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！*
 
-据《法国国际⼴播电台》报道，就新疆⼈权问题，欧盟与中共国的相互制裁事件持续发酵，德国特⾥尔⼤学暂时停⽌该校孔⼦学院的⼀切活动。
+**西班牙2021年4月11日电/西喜社——**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/images15_mh1618150828194.jpg)
+上个月8日，塞维利亚大学新闻学教授Mar Llera应邀参加了由FAES组织的研讨会，与Nicolás de Pedro先生、Juan Pablo Cardenal先生和Fernando de Haro先生进行了座谈。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-149.png)图片来源：Getty Images
+他们用70分钟的时间讲述了中国共产党政权对天主教徒和维吾尔人的迫害。这些都是最近的热点话题，对于中共造成的这些罪恶事件，全世界都感到震惊。
 
-欧盟于3⽉22⽇宣布，就新疆⼈权迫害问题制裁四名中共国官员和⼀个实体。随后，中共国外交部当天⽴即采取报复⾏动，宣布对10名欧洲⼈员和4个实体进行制裁，加以反制——这次制裁包括了德国和瑞典的学者及研究机构。就这⼀事件，德国特⾥尔⼤学近⽇发表声明表示，为了声援受中共制裁的学者和学术⾃由原则，暂时停⽌该校孔⼦学院的⼀切活动。同时，该大学暂时停⽌外⽅院⻓职务。
+Mar Llera是西班牙学术界和新闻界非常著名的新闻学教授。 而多年来，她对香港、台湾和中国的人权问题特别感兴趣。 她曾多次前往香港见证人权事件，她的奉献精神得到了国际组织的认可，并就这些问题发表了大量的文章。
 
-因为新疆⼈权问题，世界多国与中共国之间接连的制裁和反制裁事件引发了一些列的连锁反应。前有H&M为代表的⼀⼤批国际品牌因为拒⽤新疆⾎泪棉花被抵制事件；后有⼟⽿其政治⼈物因在推特谴责中共新疆⼈权迫害后，遭到中共外交“战狗”狂咬，⼟⽿其安卡拉市政部⻔⾏动反制。今天，德国特⾥尔⼤学再出⼿，声援欧盟被中共制裁的来⾃德国和瑞典的学者及研究机构。
+几个月前，当中共病毒大流行席卷西班牙时，Llera教授对这种神秘病毒的来源非常焦虑。 当她了解到在郭文贵先生领导下的 “爆料革命”成功的帮助了闫丽梦博士从香港逃离的消息后，她决定对这位勇敢的异见医生进行独家采访。
 
-截⾄2021年2⽉17⽇，美国共有55所孔⼦学院——此前有64家已被关闭。德国的⼤学院校中尚有22所孔⼦学院。接下来，不知会不会跟上美国的脚步。
+在一次视频交谈中，她们互相端详着对方，两位女士在非常友好、轻松的气氛中进行了交流，也对这次流行病交换了信息，澄清了观点。Llera教授感受到，英雄女科学家的真实、大方，对自己的工作非常敬业，用事实说话。
 
-因为中共的罪行，相信接下来受到波及的国家和机构会越来越多。得道多助，失道寡助——中共越狂妄，世界反抗的呼声就会更⼤。相信越来越多的有正义感的⼈⼠会相继加⼊反共⾏列。
+随后，Llera教授在Emmanuel Mounier哲学研究院的网站上发表了她的第一篇有关严博士揭露疫情的文章，包括摘要和完整版，她认为这个媒体是迄今为止最不容易受到中共渗透困扰的媒体审查的。
 
-参考阅读：
+[http://mounier.es/index.php?option=com\_content&view=category&layout=blog&id=49&Itemid=72](http://mounier.es/index.php?option=com_content&amp;view=category&amp;layout=blog&amp;id=49&amp;Itemid=72)
 
-[声援学术自由 德国特里尔大学暂停校内孔子学院一切活动](https://www.rfi.fr/cn/%E7%A4%BE%E4%BC%9A/20210410-%E5%A3%B0%E6%8F%B4%E5%AD%A6%E6%9C%AF%E8%87%AA%E7%94%B1-%E5%BE%B7%E5%9B%BD%E7%89%B9%E9%87%8C%E5%B0%94%E5%A4%A7%E5%AD%A6%E6%9A%82%E5%81%9C%E6%A0%A1%E5%86%85%E5%AD%94%E5%AD%90%E5%AD%A6%E9%99%A2%E4%B8%80%E5%88%87%E6%B4%BB%E5%8A%A8)
+最近，Llera教授又发表了两篇文章，以丰富媒体的内容，现在大家都在寻找有关COVID-19起源的真相的新闻，因为与中共勾结的科学家宣传的谎言，他们意识到世卫组织提供的报告是对人类智慧的侮辱。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+[https://www.heraldo.es/noticias/opinion/2021/03/02/por-que-no-debemos-fiarnos-de-china-mar-llera-llorente-tribuna-1474766.html](https://www.heraldo.es/noticias/opinion/2021/03/02/por-que-no-debemos-fiarnos-de-china-mar-llera-llorente-tribuna-1474766.html)
 
-编辑/校对/发稿：Irene木木
+[http://mounier.es/index.php?option=com\_content&view=article&id=669:acontecimiento-137-la-verdad-es-insoportable&catid=51&Itemid=72](http://mounier.es/index.php?option=com_content&amp;view=article&amp;id=669:acontecimiento-137-la-verdad-es-insoportable&amp;catid=51&amp;Itemid=72)
 
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+这场大流行几乎造成了世界上每一个国家的重大经济衰退。 除了西语国家的社会政治问题外，政治领导人既没有时间也没有头脑去辨别问题，寻找可行的解决办法，以安抚绝望的民众的精神。
 
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+这个该死的中共病毒，几乎逼得所有国家都不得不屈服和接受所谓快速解决的办法就是获取疫苗的思想。但是，闫博士曾在多个场合说过，彻底解决的正确的办法是消灭中共。
 
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+Llera教授的西班牙文出版物恰逢其时，在缺乏传播真相的声音的情况下，为这片几乎干涸的绿洲注入了光明和希望。 这个世界绝对需要这样的帮助。 对于Mar Llera教授，我们只能说：非常感谢您。 我们继续在这个旅途中，一起传播真相，直到中共真正被灭亡。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+校对：阿伯塔；发稿：神奇四侠
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.gg/PXVSzdHc6p)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
-0
++1

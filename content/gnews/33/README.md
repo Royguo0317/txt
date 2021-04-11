@@ -1,36 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国依赖高科技原料
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1078368/)
+## 普京还没有接种第二剂疫苗
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1078502/)
 
-信息来源：德国经济周刊 （WirtschaftsWochen ） 原作者：特蕾莎·斯蒂恩斯（Teresa Stiens） 发布时间：2021年3月15日
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/P-11.jpg)finance.yahoo.com
+04月10日，弗拉基米尔·普京（Vladimir Putin）总统还没有接种预防中共病毒感染的疫苗的第二剂。俄罗斯领导人发言人德米特里·佩斯科夫告诉塔斯社。
 
+“还没有。”他说。佩斯科夫没有说明总统何时会接受第二次注射疫苗。
 
-全球高科技原材料之战即将到来：中共国威胁西方世界对稀土资源的依赖。  这个威胁是德国和欧洲的经济增长和创新实力的危机。
+据悉，普京已于3月23日接种了中共病毒疫苗的第一剂。当时，克里姆林宫没有说明他注射的是哪种药物，并解释说“所有的药物都是好的、可靠的”。
 
-当玻利维亚高原的乌尤尼盐沼（Salar de Uyuni）上空下雨时，盐湖的白色地壳上会形成一层薄薄的水。如果没有风，那么将近10,000平方公里的表面就像一面镜子，使地平线消失。在这片异常美丽的风景之下，是个现代宝藏。
+据佩斯科夫介绍，国家元首对接种疫苗的耐受性很好，没有副作用。普京本人后来解释说，他没有像其他一些领导人那样公开接种疫苗，不想“蒙混过关”。
 
-清洁和环境保护系统 ACISA – Advanced Clean Innovations for people and the environment Systems Alemania ）负责人的企业家沃尔夫 （Wolfgang Schmutz）想挖掘这一宝藏。
+克里姆林宫还宣布，一旦疫苗接种周期完成并建立起免疫力，俄罗斯领导人将扩大区域旅行的地理范围。
 
-乌尤尼盐沼（Salar de Uyuni）约有540万吨锂。原材料被称为“白金”。没有它，智能手机和电动汽车都将无法工作。 ACISA即将发生历史性政变。在八个联邦和州政府部门的帮助下，巴登-符腾堡州的公司将获得为期70年的盐湖开采协议。玻利维亚方面抗议活动后，2019年底撤回已经签署了一项协议。从那时起，ACISA没有开采出一克锂。
+参考链接：
 
-玻利维亚政府取消了与一家德国公司生产锂的合资企业。据ABI通讯社报道，波托西省州长周日（当地时间）表示，总统埃沃·莫拉莱斯（Evo Morales）政府已通过法令停止了该项目。（见文章末尾第二个链接）
+[https://www.rbc.ru/rbcfreenews/607194819a794770c2da4c3b](https://www.rbc.ru/rbcfreenews/607194819a794770c2da4c3b)
 
-简评:
-
-这篇报道是3月份发表在经济周刊上的， 配图引起了我的注意，上面的挖掘机上面都是中共国的标志， 相信这个项目的背后一定有他们的黑手。之后我查阅了其它的资料，相关的文章提到 “这个项目在签订后， 被他们的前总统，一个独裁统治者—莫拉莱斯叫停。” 结合我在推特上看到的推文， 在一辆汽车里面破获了填有莫拉莱斯的选票。这像不像我们所知的美国大选， 这些事情都连在了一起。不难看出， 中共的黑手是无处不在；中共不被灭掉， 世界没有安宁。
-
-参考新闻1 🔗 **[So hängt China den Westen bei den Hightech-Rohstoffen ab](https://www.wiwo.de/my/unternehmen/industrie/batterieproduktion-so-haengt-china-den-westen-bei-den-hightech-rohstoffen-ab/26948402.html)**
-
-参考新闻2 🔗 **[Bolivien stoppt Lithium-Projekt mit deutscher Firma](https://www.wiwo.de/rohstoffe-bolivien-stoppt-lithium-projekt-mit-deutscher-firma/25186092.html)**
-
-（声明：此文仅代表译者个人观点。）
-
-* * *
-
-翻译/整理/简评：Shuizhuyu
-校对/发稿：阿娜
-
-+1
+0

@@ -1,69 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104011（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1078564/)
+## 【墻內新聞淺析】習近平|堅決遏制電信網絡詐騙犯罪多發高發態勢
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1078738/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+#### 作者：Ru Wei
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/150649430059cb475c6aadd-e1618169516224.jpg)封面來源：多維新聞
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+【新華社北京2021年4月9日電】中共中央總書記、國家主席、中央軍委主席習近平近日對打擊治理電信網絡詐騙犯罪工作作出重要指示強調。近年來，各地區各部門貫徹黨中央決策部署，持續開展電信網絡詐騙犯罪打擊治理，取得了初步成效。要堅持以人民為中心，統籌發展和安全，強化系統觀念、法治思維，註重源頭治理、綜合治理，堅持齊抓共管、群防群治，全面落實打防管控各項措施和金融、通信、互聯網等行業監管主體責任，加強法律制度建設，加強社會宣傳教育防範，推進國際執法合作，堅決遏制此類犯罪多發高發態勢，為建設更高水平的平安中國、法治中國作出新的更大的貢獻。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01.jpg)
+#### 簡評：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02.jpg)
+**“黨、政、軍”權利集於一身，“公、檢、法”給人民定罪自導自演；官媒、自媒體、社交媒體、互聯網民企和私企、互聯網個人代購，被嚴格監督審查，整肅一新；疫苗、糧食、教育、就業、保險，成為懸在老百姓頭上的一把“屠刀”，隨時可以落下；現在我們的“習神”又出來親自指揮、親自部署，開始對電信行業下手，政治目的尤為明顯。所有這些舉措，無不顯示中共的瘋狂、野蠻，就像被逼到墻角的獵物，在做臨死前最後“歇斯底裏的嚎叫”。**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03.jpg)
+**外部高壓持續、速度越來越快；新疆“種族滅絕、反人類罪”方興未艾、中共病毒溯源、追責，如火如荼；搞亂美國、搞弱美國、搞死美國，被揭露、被識破；北約、亞約，對中共逐漸形成合圍態勢。同中共脫鉤、向中共施壓、對中共追責，最後滅掉中共，已經形成共識。**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-1.jpg)
+**中共值此之際，所作所為，無非就是陰謀敗露後的撒潑打滾、混淆視聽、倒打一耙、把水攪混，反過來給國內老百姓洗腦、綁架更多的肉票同國外勢力耍流氓；對內實施白色恐怖，“互聯網管控”是為了中共國內下一步進入“墻內局域網時代”做準備；對“電信網絡管控”，是為了下一步進入“墻內電話局域網時代”做準備。中共對國內加強監控，全部都是為“閉關鎖國”做準備、全都都是為政權能夠得以延續做準備、全都都是在做垂死掙紮的最後的瘋狂的表演。**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05.jpg)
+**參考信息鏈接：🔗**[習近平對打擊治理電信網絡詐騙犯罪工作作出重要指示強調 堅持以人民為中心 全面落實打防管控措施 堅決遏制電信網絡詐騙犯罪多發高發態勢 李克強作出批示](http://www.xinhuanet.com/politics/leaders/2021-04/09/c_1127313085.htm)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06.jpg)
+* * *
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07.jpg)
+***審核/校對：****Ting Guo*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-4.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-11.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/18-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/19-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/20-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/21-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/22-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/23.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/24.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/25.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/26.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
+（免責聲明：本文僅代表作者個人觀點，跟GNEWS平臺無關。）
 
 0
