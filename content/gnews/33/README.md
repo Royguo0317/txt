@@ -1,63 +1,501 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】CCP病毒疫苗黑手伸向12-15岁青少年
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1074246/)
+## 美国《2021战略竞争法》目录部分
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1074345/)
 
-纽约香草山农场 Delilah小胖
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-【摘要】
+上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/A.png)aninews.in
+4月8日，笔者第一时间发文报道了“美参议院将审议‘战略竞争法案’对抗中共”【1】，面对这份280多页的提案，自感能力和精力不足以承担对“重磅提案”的翻译和解读，期待着《路德社》、秘密翻译组，昨晚《路德社》作出了振奋人心的解读，令人回味无穷。
 
-美国密西根州上周青少年感染CCP病毒的病例激增，震惊全美。与此同时，辉瑞制药公司，非常“及时”地向美国食品药品监督管理局（FDA）递交了申请，希望获得其针对12-15岁的青少年人群的新冠疫苗获得审批通过。
+现将提案的目录摘译，供战友参考。 【2】
 
-笔者认为，辉瑞制药公司提交青少年疫苗申请的时间，与特定州的特定人群的同时段爆发，有着某种蹊跷的联系。未经过同行评议、未进行过完整人体试验的疫苗，对青少年的潜在危害不可估量。青少年是国家的未来。一旦大规模接种，对国家的未来及命运，也会有无法估计的损害。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screen-Shot-2021-04-10-at-9.53.45-PM.png)图片来源：https://www.google.com/search?q=covid-19+cases+update&oq=cov&aqs=chrome.0.69i59j69i57j69i59j0i131i433l2j69i60l2j69i61.1529j0j7&sourceid=chrome&ie=UTF-8
-据NBC新闻网（[nbcnews.com](https://nbcnews.com)）2021年4月9日报道，美国的辉瑞制药公司（Pfizer-BioNTech）要求美国食品药品监督管理局（FDA）批准给12到15岁的青少年接种新冠疫苗的请求【1】。
+议案
 
-上周，辉瑞声称，他们和德国合作伙伴 BioNTech 联合推出的CCP病毒疫苗的第3期临床试验表明，他们的疫苗对12至15岁的青少年是“安全的，并且百分百有效”。但是，这种说法还没有得到同行评议。
+处理涉及中共国的问题。
 
-辉瑞公司的CEO 博尔拉 (Albert Bourla）说，希望在下一个学年开始前，也就是今年的8月底之前，可以给12到15岁年龄段的人群开始接种疫苗。更有田纳西州的医生为疫苗站台，声称：接下来的青少年接种，将贯穿整个抗疫进程。一位前FDA主管科学家也说，FDA的审批流程大概会需要几周的时间，目前提供的数据看起来是好的，而且与成人人群的数据一致。
+由美国参议院、众议院两院在国会通过，
 
-公开数据显示，目前已经有超过三分之一的美国人，至少接种过一针的CCP疫苗。辉瑞目前还计划对6到11岁的儿童开展CCP病毒疫苗的接种研究，并且第一针的试验，已经在今年3月份开始了。
+第1节  简称；目录
 
-辉瑞公司的CCP病毒疫苗，是目前唯一被批准的针对16岁及以上的青少年使用的疫苗。其他美国目前使用的疫苗，如Modena和强生，均要求接种者年龄在18岁及以上。去年12月，Modena开始针对12岁到18岁的人群试验mRNA疫苗；Modena同时也在做针对6至11岁的人群的疫苗试验。
+（a）简称——本法可引述为“2021年战略竞争法”
 
-辉瑞公司要求针对青少年进行疫苗接种，是在美国一些州出现了青少年和儿童的新近爆发下提出来的。比如在密西根州，根据密西根州卫生和公共服务部门上周的数据，10到19岁之间的儿童和青少年的感染比率创历史新高。
+（b）目录——本法案的目录如下：
 
-另据CNBC报道，在美国的密西根州，新增CCP病毒感染病例再次压倒密西根州的医疗卫生系统【2】。州长敦促居民留在家中。州首席医疗长说，该州正在追踪991次的疫情爆发。密西根州长要求在接下来的两周里，学校可以选择停止青少年体育运动项目，以及避免在餐厅内就餐。但是，州长并没有强制要求学校和居民这样做。前段时间，密西根州开放了餐馆就餐，要求上限50%的入座率。
+第1节. 简称；目录
 
-根据约翰·霍普金斯大学（Johns Hopkins University）的统计，密西根州的感染人数接近了该州去年11月20日左右的历史最高水平。周日平均新增感染人数超过7226人，比之前的一周上升23%。 该州的医疗卫生负责人Dr. Joneigh Khaldun在新闻简报中说，“我们每天看到太多的感染病例出现，我们的医疗系统人满为患。但还是没办法发现很多的感染者、也没有办法去追踪密切接触者。我们不知道到底哪里会再次爆发。但是，可以肯定的是，我们的统计数据一定远远低于实际感染人数。” 其实，美国历来对传染病有着良好的追踪系统，比如肝炎病毒携带者，即使没有发病，也会有居住地附近的医疗人员定期跟你联络，询问身体状况。并且保证对病人的医疗数据予以保密，比如他们不会在未经本人允许的情况下，告诉当事人的家人。这次CCP新冠大流行，使美国的病例追踪系统完全失灵。
+第2节.调查结果
 
-现在密西根州爆发的CCP病毒是B.1.1.7 变种病毒。这一变种病毒早期出现在英国，现在是美国境内的主要流行毒种。Dr. Joneigh Khaldun指出，在1月和3月之间，该州共发现291例来自青少年运动项目的感染病例，涉及1091人。由此可见，青少年对CCP病毒没有抵抗力。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screen-Shot-2021-04-10-at-10.07.42-PM.png)图片来源：[https://covid.cdc.gov/covid-data-tracker/#compare-trends\_newcases](https://covid.cdc.gov/covid-data-tracker/#compare-trends_newcases)
-正如密西根州州长 Gretchen Whitmer 女士所说，“今天是密西根和中西部，明天可能是我们国家的另一个地区”。
+第3节. 定义
 
-伴随着CCP疫情去年一年在全美国的大爆发和大流行，我们可以非常清晰地看到，疫情爆发的高峰期，往往伴随着美国境内的一个个巨大的政治事件。比如去年9月的美国大选邮寄选票开始时，疫情感染曲线结束区间震荡，开始直线攀升。从11月初的大选最终投票到1月20号的总统就职典礼，疫情达到历史峰值。现在，从密西根州开始，我们又看到了CCP病毒感染人数再创新高。笔者在此不想妖魔化辉瑞制药公司，但这不得不令人怀疑，为什么首先出现在密西根州？真正再创历史新高的只有两个州，密西根州是其中之一。而青少年感染率激增，是密西根州本轮疫情再创新高的一个显著的特征。而美国大部分的州，虽然疫情有所抬头，但都在可控范围内。
+第4节. 政策声明
 
-密西根州是美国中西部的一个内陆州，挨近北美五大湖地区，是美国传统的制造业中心。辉瑞制药公司在密西根州建有其全世界最大的生产基地。密西根州久负盛名的底特律地区韦恩县（Wayne County），就是本次CCP病毒大流行期间疫情最为严重的县。相比德州和佛罗里达州最近的完全放开口罩禁令和放松疫情管控等不同，密西根州一直号召民众戴口罩出行，而且只是部分开放了餐厅室内就餐。而且，密西根州也不像邻海的州度假人群密集度高。但是，就这波疫情的严重程度看，密西根州却超过了德州和佛罗里达州，实在不可思议。
+第5节. 国会意识
 
-自4月5日起，在密西根州，16岁及以上的，都可以获得至少1针的CCP新冠病毒疫苗【3】。根据一个密西根州2021年4月10日的学校通知，所有16岁和以上的，可以得到辉瑞的疫苗；18岁及以上的，可以获得Modena或者强生公司的疫苗。
+第6节. 构成规则
 
-笔者对密西根州CCP病毒新感染病例再次爆发表示担忧。更希望密西根人，尤其密西根的青少年，不要成为CCP病毒疫苗的受害者。企盼美国的针对CCP病毒的白皮书尽早出台，世界正义力量联合起来彻查CCP病毒真相。现在，就是看是病毒追责进展的速度快，还是制药企业追逐利润和政府部门追逐接种政绩来的快了。
+标题1——未来竞争的投入
 
-引用来源：
+副标题A——科学与技术
 
-【1】[https://www.nbcnews.com/health/health-news/pfizer-requests-fda-clearance-vaccine-kids-ages-12-15-n1263649](https://www.nbcnews.com/health/health-news/pfizer-requests-fda-clearance-vaccine-kids-ages-12-15-n1263649)
+第101节. 授权协助美国公司进行全球供应链多元化和管理
 
-【2】[https://www.cnbc.com/2021/04/09/covid-michigan-gov-whitmer-urges-residents-to-restrict-activity-as-new-cases-overwhelm-state-health-system.html](https://www.cnbc.com/2021/04/09/covid-michigan-gov-whitmer-urges-residents-to-restrict-activity-as-new-cases-overwhelm-state-health-system.html)
+副标题B——全球基础设施的发展
 
-【3】[https://www.michigan.gov/documents/coronavirus/MI\_COVID-19\_Vaccination\_Prioritization\_Guidance\_2152021\_716344\_7.pdf](https://www.michigan.gov/documents/coronavirus/MI_COVID-19_Vaccination_Prioritization_Guidance_2152021_716344_7.pdf)
+第111节. 确定适当的国会委员会
 
-编辑/审核/发稿：正义的小新
+第112节. 国际品质基础设施投入标准的国议意识
 
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+第113节. 美国对基础设施的支持
 
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+第114节. 基础设施事务和辅助网络
 
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+第115节. 先进可靠的能源基础设施战略
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+第116节.中共国对外能源开发投入情况的报告
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+副标题C——数字技术和数据联通
 
-+4
+第121节. 数字技术问题的国会意识
+
+第122节.数字连接和网络安全伙伴的关系
+
+副标题D——对抗中国共产党的影响
+
+第131节. 简称
+
+第132节. 授权
+
+第133节.关于中共国信息战和恶意影响行动的调查结果
+
+第134节. 富布赖特-海斯计划（Fulbright-Hays Program，笔者注：美国的一项文化交流项目）拨款授权
+
+第135节. 谴责反亚洲种族主义和歧视的国会意识
+
+第136节. 支持独立媒体和打击造谣
+
+第137节. 全球参与中心
+
+第138节.美国外国投资委员会对高等教育机构的某些外国馈送和合同的审查
+
+标题2——联盟和伙伴关系的投入
+
+副标题A——战略和外交事务
+
+第201节. 确定适当的国会委员会
+
+第202节.美国对印太盟国和伙伴的承诺和支持
+
+第203节. 与四国合作的国会意识
+
+第204节. 与东盟合作政策的声明
+
+第205节. 加强美国与东盟技术合作的国会意识，这些技术合作与中共国有关
+
+第206节. 中共国在国际组织中的影响力报告
+
+第207节. 与盟友和合作伙伴的定期交流
+
+第208节. 国务院技术合作办公室
+
+第209节. 美国在标准制定机构中的代表
+
+第210节.对华战略竞争中心地位的国会认识，这个中心地位是对中共国的制裁和其他方面的限制
+
+第211节. 与七国集团就中共国问题进行谈判的国会意识
+
+第212节. 加强美台伙伴关系
+
+第213节. 台湾政府的待遇
+
+第214节. 关于中共病毒大流行起源的报告
+
+第215节.加强与太平洋岛国的外交支持和经济接触
+
+第216节. 增加国务院对印度-太平洋地区的人员和资源投入
+
+第217节.提高美国在联合国系统的领导地位
+
+副标题B——国际安全事务
+
+第221节.定义
+
+第222节. 调查结果
+
+第223节. 支持印太安全伙伴关系的国会意识
+
+第224节. 政策声明
+
+第225节. 印度-太平洋地区的外国军事资助，东南亚海上安全项目和外交外联活动的拨款授权
+
+第226节. 印度-太平洋外国军事资助契约试点项目
+
+第227节. 印度-太平洋国际军事教育和训练的额外资金
+
+第228节. 优先考虑印度-太平洋地区过剩的国防物资转移
+
+第229节. 优先考虑印度-太平洋地区过剩的海军舰艇转移
+
+第230节. 关于在印度洋-太平洋国际水道和空域以及在南中国海的人工陆地特征的海上行动自由的政策声明
+
+第231节. 印度-太平洋盟国和伙伴能力发展报告
+
+第232节.国家技术和产业基础报告
+
+第233节.关于中共国军事设施对外联络的报告
+
+第234节. 关于普遍执行联合国对朝鲜制裁的政策声明
+
+第235节.对中共国军事设施所在国援助的限制
+
+副标题C——对付中共国的区域战略
+
+第241节.关于同世界各盟国和伙伴合作的政策声明，这些合作涉及到中共国
+
+第一部分-西半球
+
+第245节. 对美加关系的国会意识
+
+第246节. 关于中共国政府任意监禁加拿大公民的国会意识
+
+第247节. 加强与加拿大合作的战略
+
+第248节. 加强拉丁美洲和加勒比地区经济竞争力、治理、人权和法治的战略
+
+第249节. 参与拉丁美洲和加勒比的地区和国际组织
+
+第250节. 讨论中共国在拉丁美洲和加勒比地区的主权贷款的做法
+
+第251节. 拉丁美洲和加勒比地区的防务合作
+
+第252节.与拉丁美洲和加勒比地区民间社会就问责制、人权和普遍的监测技术的风险进行接触
+
+第二部分——跨大西洋联盟
+
+第255节. 关于跨大西洋联盟的国会意识
+
+第256节. 关于中共国加强跨大西洋合作的战略
+
+第257节. 加强跨大西洋合作，促进私营部门融资
+
+第258节.中伊、中俄合作情况的报告和简报
+
+第三部分——南亚和中亚
+
+第261节. 南亚和中亚的国会意识
+
+第262节. 加强与南亚和中亚合作的战略
+
+第四部分——非洲
+
+第271节. 评估中共国在非洲的政治、经济和安全的活动
+
+第272节. 提高美国在非洲的竞争力
+
+第273节. 非洲数字安全合作
+
+第274节.增加美国驻撒哈拉以南非洲大使馆人员，以关注中共国
+
+第275节. 支持非洲青年领导人的倡议
+
+第276节.非洲广播网
+
+第五部分——中东和北非
+
+第281节. 应对中共国在中东和北非的影响和进入的战略
+
+第282节. 关于中东和北非参与的国会意识
+
+第六部分北极地区
+
+第285节. 北极外交
+
+第七部分-大洋洲
+
+第291节. 美国参与大洋洲政策声明
+
+第292节. 大洋洲战略路线图
+
+标题3——我们价值观的投入
+
+第301节.香港促进民主的拨款授权书
+
+第302节. 在新疆维吾尔自治区实施有关强迫劳动的制裁
+
+第303节.在新疆维吾尔自治区对蓄意强奸、强迫堕胎、强迫绝育、非自愿避孕实施制裁
+
+标题4——我们经济治国方略的投入
+
+第401节. 关于中共国产业政策的国会发现和意识
+
+第402节. 侵犯知识产权者清单
+
+第403节. 中共国政府补贴清单
+
+第404节. 打击外国腐败行为
+
+第405节. 对有资格获得国际发展协会资助国家的债务减免
+
+第406节. 中共国政府利用香港规避美国法律和保护的方式和程度的报告
+
+第407节. 对中共国公司在美国资本市场存在情况的年度审查
+
+标题5——确保战略安全
+
+第501节. 关于战略安全和军备控制的调查结果
+
+第502节. 战略核对话合作
+
+第503节. 关于美国就核问题和弹道导弹问题同中共国接触的努力方面的报告
+
+有关链接：
+
+【1】https://www.gnews.org/zh-hans/1065880/
+
+【2】
+
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+
+文字整理：
+
+A BILL
+
+To address issues involving the People’s Republic of China.
+
+Be it enacted by the Senate and House of Representatives of the United States of America in Congress assembled,
+
+SECTION 1. SHORT TITLE; TABLE OF CONTENTS.
+
+(a) SHORT TITLE. — This Act may be cited as the ‘‘Strategic Competition Act of 2021’’.
+
+(b) TABLE OF CONTENTS. — The table of contents for this Act is as follows:
+
+Sec. 1. Short title; table of contents.
+
+Sec. 2. Findings.
+
+Sec. 3. Definitions.
+
+Sec. 4. Statement of policy.
+
+Sec. 5. Sense of Congress.
+
+Sec. 6. Rules of construction.
+
+TITLE I — INVESTING IN A COMPETITIVE FUTURE
+
+Subtitle A—Science and Technology
+
+Sec. 101. Authorization to assist United States companies with global supply chain diversification and management.
+
+Subtitle B—Global Infrastructure Development
+
+Sec. 111. Appropriate committees of Congress defined.
+
+Sec. 112. Sense of Congress on international quality infrastructure investment standards.
+
+Sec. 113. United States support for infrastructure.
+
+Sec. 114. Infrastructure Transaction and Assistance Network.
+
+Sec. 115. Strategy for advanced and reliable energy infrastructure.
+
+Sec. 116. Report on China’s investments in foreign energy development.
+
+Subtitle C—Digital Technology and Connectivity
+
+Sec. 121. Sense of Congress on digital technology issues.
+
+Sec. 122. Digital connectivity and cybersecurity partnership.
+
+Subtitle D—Countering Chinese Communist Party Influence
+
+Sec. 131. Short title.
+
+Sec. 132. Authorization.
+
+Sec. 133. Findings on Chinese information warfare and malign influence operations.
+
+Sec. 134. Authorization of appropriations for the Fulbright-Hays Program.
+
+Sec. 135. Sense of Congress condemning anti-Asian racism and discrimination.
+
+Sec. 136. Supporting independent media and countering disinformation.
+
+Sec. 137. Global engagement center.
+
+Sec. 138. Review by Committee on Foreign Investment in the United States of certain foreign gifts to and contracts with institutions of higher education.
+
+TITLE II—INVESTING IN ALLIANCES AND PARTNERSHIPS
+
+Subtitle A—Strategic and Diplomatic Matters
+
+Sec. 201. Appropriate congressional committees defined.
+
+Sec. 202. United States commitment and support for allies and partners in the Indo-Pacific.
+
+Sec. 203. Sense of Congress on cooperation with the Quad.
+
+Sec. 204. Statement of policy on cooperation with ASEAN.
+
+Sec. 205. Sense of Congress on enhancing United States–ASEAN cooperation on technology issues with respect to the People’s Republic of China.
+
+Sec. 206. Report on Chinese influence in international organizations.
+
+Sec. 207. Regulatory exchanges with allies and partners.
+
+Sec. 208. Technology partnership office at the Department of State.
+
+Sec. 209. United States representation in standards-setting bodies.
+
+Sec. 210. Sense of Congress on centrality of sanctions and other restrictions to strategic competition with China.
+
+Sec. 211. Sense of Congress on negotiations with G7 countries on the People’s Republic of China.
+
+Sec. 212. Enhancing the United States-Taiwan partnership.
+
+Sec. 213. Treatment of Taiwan government.
+
+Sec. 214. Report on origins of the COVID–19 pandemic.
+
+Sec. 215. Enhancement of diplomatic support and economic engagement with Pacific island countries.
+
+Sec. 216. Increasing Department of State personnel and resources devoted to the Indo-Pacific.
+
+Sec. 217. Advancing United States leadership in the United Nations System.
+
+Subtitle B—International Security Matters
+
+Sec. 221. Definitions.
+
+Sec. 222. Findings.
+
+Sec. 223. Sense of Congress regarding bolstering security partnerships in the Indo-Pacific.
+
+Sec. 224. Statement of policy.
+
+Sec. 225. Foreign military financing in the Indo-Pacific and authorization of appropriations for Southeast Asia maritime security programs and diplomatic outreach activities.
+
+Sec. 226. Foreign military financing compact pilot program in the Indo-Pacific.
+
+Sec. 227. Additional funding for international military education and training in the Indo-Pacific.
+
+Sec. 228. Prioritizing excess defense article transfers for the Indo-Pacific.
+
+Sec. 229. Prioritizing excess naval vessel transfers for the Indo-Pacific.
+
+Sec. 230. Statement of policy on maritime freedom of operations in international waterways and airspace of the Indo-Pacific and on artificial land features in the South China Sea.
+
+Sec. 231. Report on capability development of Indo-Pacific allies and partners.
+
+Sec. 232. Report on national technology and industrial base.
+
+Sec. 233. Report on diplomatic outreach with respect to Chinese military installations overseas.
+
+Sec. 234. Statement of policy regarding universal implementation of United Nations sanctions on North Korea.
+
+Sec. 235. Limitation on assistance to countries hosting Chinese military installations.
+
+Subtitle C—Regional Strategies to Counter the People’s Republic of China
+
+Sec. 241. Statement of policy on cooperation with allies and partners around the world with respect to the People’s Republic of China.
+
+PART I—WESTERN HEMISPHERE
+
+Sec. 245. Sense of Congress regarding United States-Canada relations.
+
+Sec. 246. Sense of Congress regarding the Government of China’s arbitrary imprisonment of Canadian citizens.
+
+Sec. 247. Strategy to enhance cooperation with Canada.
+
+Sec. 248. Strategy to strengthen economic competitiveness, governance, human rights, and the rule of law in Latin America and the Caribbean.
+
+Sec. 249. Engagement in regional and international organizations in Latin America and the Caribbean.
+
+Sec. 250. Addressing China’s sovereign lending practices in Latin America and the Caribbean.
+
+Sec. 251. Defense cooperation in Latin America and the Caribbean.
+
+Sec. 252. Engagement with civil society in Latin America and the Caribbean regarding accountability, human rights, and the risks of pervasive surveillance technologies.
+
+PART II—TRANSATLANTIC ALLIANCE
+
+Sec. 255. Sense of Congress on the Transatlantic alliance.
+
+Sec. 256. Strategy to enhance transatlantic cooperation with respect to the People’s Republic of China.
+
+Sec. 257. Enhancing Transatlantic cooperation on promoting private sector finance.
+
+Sec. 258. Report and briefing on cooperation between China and Iran and between China and Russia.
+
+PART III—SOUTH AND CENTRAL ASIA
+
+Sec. 261. Sense of Congress on South and Central Asia.
+
+Sec. 262. Strategy to enhance cooperation with South and Central Asia.
+
+PART IV—AFRICA
+
+Sec. 271. Assessment of political, economic, and security activity of the People’s Republic of China in Africa.
+
+Sec. 272. Increasing the competitiveness of the United States in Africa.
+
+Sec. 273. Digital security cooperation with respect to Africa.
+
+Sec. 274. Increasing personnel in United States embassies in sub-Saharan Africa focused on the People’s Republic of China.
+
+Sec. 275. Support for Young African Leaders Initiative.
+
+Sec. 276. Africa broadcasting networks.
+
+PART V—MIDDLE EAST AND NORTH AFRICA
+
+Sec. 281. Strategy to counter Chinese influence in, and access to, the Middle East and North Africa.
+
+Sec. 282. Sense of Congress on Middle East and North Africa engagement.
+
+PART VI—ARCTIC REGION
+
+Sec. 285. Arctic diplomacy.
+
+PART VII—OCEANIA
+
+Sec. 291. Statement of policy on United States engagement in Oceania.
+
+Sec. 292. Oceania strategic roadmap.
+
+TITLE III—INVESTING IN OUR VALUES
+
+Sec. 301. Authorization of appropriations for promotion of democracy in Hong Kong.
+
+Sec. 302. Imposition of sanctions relating to forced labor in the Xinjiang Uyghur Autonomous Region.
+
+Sec. 303. Imposition of sanctions with respect to systematic rape, coercive abortion, forced sterilization, or involuntary contraceptive implantation in the Xinjiang Uyghur Autonomous Region.
+
+TITLE IV—INVESTING IN OUR ECONOMIC STATECRAFT
+
+Sec. 401. Findings and sense of Congress regarding the PRC’s industrial policy.
+
+Sec. 402. Intellectual property violators list.
+
+Sec. 403. Government of the People’s Republic of China subsidies list.
+
+Sec. 404. Countering foreign corrupt practices.
+
+Sec. 405. Debt relief for countries eligible for assistance from the International Development Association.
+
+Sec. 406. Report on manner and extent to which the Government of China exploits Hong Kong to circumvent United States laws and protections.
+
+Sec. 407. Annual review on the presence of Chinese companies in United States capital markets.
+
+TITLE V—ENSURING STRATEGIC SECURITY
+
+Sec. 501. Findings on strategic security and arms control.
+
+Sec. 502. Cooperation on a strategic nuclear dialogue.
+
+Sec. 503. Report on United States efforts to engage the People’s Republic of China on nuclear issues and ballistic missile issues.
+
+0

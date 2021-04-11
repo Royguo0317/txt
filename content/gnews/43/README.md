@@ -1,32 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0409III七哥担心SEC抗议的战友不注意病毒和走错门
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1074146/)
+## 50名武警突袭《叛逆新闻》记者Airbnb所租船房
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1074190/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-34.jpg)
-编辑整理：
+**阿黎**
 
-纽约香草山农场：鹰(文言)；伦敦喜庄园：万物归一；日本东京方舟农场：山川异域
+4月10日，大约50名全副武装的警察周六突袭了《叛逆新闻》（Rebel News）为报道反封锁抗议活动设在船上的临时新闻报道总部，船房是从Airbnb租借的，船停泊在蒙特利尔的一个港口。
 
-郭文贵先生在2021年4月9日的直播中谈到了SEC抗议是中国人第一次规模性维护自己合法权益的行动；谈到了爆料革命扭转了被中共彻底毁掉的中国人的形象；谈到了爆料革命唤醒世界让灭共由不可能变成必须等内容，本系列将根据郭先生在直播中涉及的不同方面逐一上传，以下为本系列第三部分——七哥担心SEC抗议的战友不注意病毒和走错门
 
-据[4月9日 文贵直播：中共的意淫反而将帮助更快灭共；国内富豪都是复制偷窃技术，不是企业家；美国只能与英日印合作联合灭共；中共控制比特币，人民币数字化，消灭美元；美国人已经相信能灭共](https://gtv.org/video/id=607053ef6e11a756eddd33df)时间点39：30——
 
-所以这几天来，我唯一的担心啊他们完了以后在华盛顿去吃饭去了，大家都不戴口罩了。哎呀，给我发给我视频，我真担心病毒。都有孩子有老人的，求求兄弟姐妹们，你们要注意病毒，这是我最最担心的，这个是最最可怕的，务必务必要在这方面小心，因为这些天病毒往上去越来越多。记得我一年前说过吗，当病毒被传染而且传染率提高、死亡率提高的时候你还被麻木的时候，这是最危险的。现在已经到了被麻木的时候了，很多人已经麻木了，非常非常麻木。
+> BREAKING: 50 Armed Police Raid Rebel News ([@RebelNewsOnline](https://twitter.com/RebelNewsOnline?ref_src=twsrc%5Etfw)) Reporters Airbnb, Arrest Them for 'Illegal Gathering' (VIDEOS) [https://t.co/nofe9vfmlS](https://t.co/nofe9vfmlS) [@ezralevant](https://twitter.com/ezralevant?ref_src=twsrc%5Etfw) [@TheRealKeean](https://twitter.com/TheRealKeean?ref_src=twsrc%5Etfw)
+> — Cassandra Fairbanks (@CassandraRules) [April 10, 2021](https://twitter.com/CassandraRules/status/1380998125855371271?ref_src=twsrc%5Etfw)
 
-但是你看看我们有一个战友给我发信息，说七哥，他全家全都得上了，全都得了。我们送给他羟氯喹，他全家里边人都好了，然后他一直说服一个旁边的邻居、美国人，让他去吃药，他就不吃，后来说他的邻居得上了，第二天去得时候他的邻居已经死了，到医院已经死了。然后发他死了，哎呀他死了，他死了，他死了，给我打电话哭得一塌糊涂。我说你看这没办法，咱们想尝试救任何人，但是有些人真的就是缘分，他不听话他最后就死了。那么这个时候大家要小心，病毒和死亡率都在提高，所以我看到华盛顿的大家一起吃饭的时候唱歌喝酒，七哥很担心。
 
-另外一个担心，就那男男女女都那么帅，我特能理解那感受，都那么帅、身材都那么好，是不是？青春旺盛、激情迸发、使不完的精力，小酒一喝。会出啥事儿呢？我就想回到酒店，同住一个酒店还都在同一层楼，是不是，你说那9号那喝多了一看就成6号了，是不是？那2号一颠倒过来就成5号了，你说走错门儿咋办呢，你说这年轻少年。
 
-你说七哥啊从年轻过来过，当年我那时候还没结婚呢，那是84年的时候第一次到泰国去。到泰国以后帕提亚，哇塞！好像是个自由的天堂啊，是吧，一堆人，我们去的也是住同一个酒店。哇塞，北京去了几个漂亮的美眉，一路上我就，哎呀，不知道，所有人比我大的20岁的也照顾我，比我小的就一个比我小的都照顾我。照顾我，哎呀那时候小啊，是不是？这个夸帅那个夸帅，我那时候爱习武，翻跟头啥的提溜咣当的，住到酒店晚上喝酒，都邀请我喝酒啊，喝个没完，最后去了几个，那是三个人一个房间的女孩房间，然后房间再去喝，喝着喝着就喝过了，你都不知道，等醒来的时候在谁房间得半天才能明白，你知道那是发生什么结果。
+魁北克从复活节开始封城，于是人们上街示威反封城。《叛逆新闻》事先在Airbnb预定了船房，做为他们的新闻报道临时总部。警方得到消息后，派大批警察前来封锁，并逮捕了该媒体的记者。
 
-哎呀，这都过去事儿了，咱都年轻过，都年轻过，但是是美好的夜晚，但是再也不能再发生。我就说战友们，这时候我很担心，别走错门儿。呵呵，别走错门，别走错门，啊别走错门，啊别走错门！呵呵，开玩笑，开玩笑，我们的Q May啊，搞音乐的本来血液里边就有火，激情浪漫，小酒一喝，旁边什么小飞象、小飞侠，还有什么小王子，是不是，还有我们的明道，喔噻那小身材好的是吧，然后你说这小酒一喝，是不是啊，路易十六，喝的路易十六，路易十六你说咋弄吧你说。
 
-接上文——
 
-[郭先生0409I SEC抗议是首次规模性维护国人自己合法权益](https://gnews.org/zh-hans/1074065/)
+> Montreal Police assaulted and brutally arrested David Menzies. [@RebelNewsOnline](https://twitter.com/RebelNewsOnline?ref_src=twsrc%5Etfw) Head to [https://t.co/nR2Ow1VfjH](https://t.co/nR2Ow1VfjH) for full report. [pic.twitter.com/YkJXLWET4T](https://t.co/YkJXLWET4T)
+> — Mocha Bezirgan (@BezirganMocha) [April 10, 2021](https://twitter.com/BezirganMocha/status/1380962642911760389?ref_src=twsrc%5Etfw)
 
-[郭先生0409II爆料革命扭转了被中共彻底毁掉的中国人形象](https://gnews.org/zh-hans/1074116/)
 
-0
+
+警方用警用红色胶带从外围封住了记者所在的AirBnb船只，他们说这是一个’犯罪现场’。” 当记者问警察他们究竟犯了什么罪时，警察能想到的就是我们住在酒店里是非法’集会’，违反了魁北克省的封锁规定。”事实上，《叛逆新闻》的人数比设施所设计的容量要少。”
+
+
+
+> Montreal police don’t have their search warrant yet. So they have deemed our Airbnb a crime scene. I’m not sure what they’re searching for — we have obviously uploaded our footage. They’re dragging it out to stop our work. So I shared my thoughts with them directly. [pic.twitter.com/BsErpxSJN5](https://t.co/BsErpxSJN5)
+> — Ezra Levant 🍁 (@ezralevant) [April 10, 2021](https://twitter.com/ezralevant/status/1380956658306793477?ref_src=twsrc%5Etfw)
+
+
+
+《叛逆新闻》创始人Ezra Levant指出，”这是蒙特利尔的警察，他们已经骚扰和殴打我们的记者好几周了。他们在报复，因为我们报道了他们的不当行为”。他还说，他遭到了警察的粗暴对待。
+
+艾兹拉-利宛特还说，蒙特利尔的腐败警察把我们从Airbnb赶了出来。现在他们将进去，在没有任何观察员的情况下，对房间进行搜查。我担心他们会栽赃毒品、武器或其他违禁品。
+
+《叛逆新闻》的主要记者大卫-蒙西斯（David Menzies)在与警察的争执中，被警察推搡，然后被数名警察粗暴地扭至警车旁，戴上手铐，扔到车后座里。
+
+推特上一个名为“Joe Warmington”的帐户发推说，如果记者无法做好自己的工作，就不再是一个自由的国家。
+
+另一个名为“the Ikonian ”的推特帐户发推说，如果法院不阻止政府和警察的这种行为，那么我们就完蛋了，我们需要移到法律和权利重要的地方。
+
+令人兴奋的是，几小时后，传来了巨大的好消息！蒙特利尔的警察无法让法官批准他们的搜查令！蒙特利尔的警察怂了！
+
+
+
+> 🚨HUGE VICTORY🚨 
+> 
+> Montreal’s police could not get a judge to approve their search warrant! They blinked!
+> 
+> David Menzies is being released from his illegal arrest!
+> 
+> The police have run away from the “crime scene!
+> 
+> I’m back in!
+> 
+> Viva le Quebec libre![https://t.co/roDg8jvAa1](https://t.co/roDg8jvAa1) [pic.twitter.com/WSvXZplsGG](https://t.co/WSvXZplsGG)
+> — Ezra Levant 🍁 (@ezralevant) [April 10, 2021](https://twitter.com/ezralevant/status/1381028608752369666?ref_src=twsrc%5Etfw)
+
+
+
+大卫-蒙西斯被非法逮捕释放了!警察从 “犯罪现场 “逃跑了!大卫回来了!
+
+蒙特利尔的法院没有沦陷，他们坚持正义，这的确是令人鼓舞的消息。加拿大还是有希望的。
+
++1

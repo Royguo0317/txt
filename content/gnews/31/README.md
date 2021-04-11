@@ -1,41 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 糟糕：苹果公司的蒂姆•库克抨击佐治亚州的选民身份法，因他站在中共一边删除了香港自由示威者使用的应用程序
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1074355/)
+## 英国推出欢迎香港人定居计划
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1074403/)
 
-翻译：康州盘古农场 – TrueSky
-校对：康州盘古农场 – Mike Li
-编辑：康州盘古农场 – 山东老爷们
-![]()![](https://gnews.org/wp-content/uploads/2021/04/3E34898A-1AA6-4AE3-BAC9-44402A9CFA5E.jpeg)
-**左派人士蒂姆****–****库克周一谴责佐治亚州的新选民身份证法。**
+俄罗斯莫斯科喀秋莎农场   银河
 
-**库克和其他左派人士一起谴责在美国投票时强迫一个人出示身份证的想法。**
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/E-1.jpg)cnbc.com
+《纽约邮报》报道，英国已经承诺提供4300万英镑（5900万美元）帮助从香港逃离到英国的人找到工作、住房和学校，这是在中共撕毁一国两制承诺，单方面通过并实施《国家安全法》，英国实施的允许香港百万人到英国定居的新举措。
 
-苹果CEO
+随着英国与北京就香港改革问题的争吵不断升级，英国向超过500万人敞开了大门，为他们提供在香港生活和工作的机会，并最终申请英国公民身份。周四宣布的大部分资金将由英国政府用于帮助英语语言支持和新移民住房费用的项目。政府还将推出12个虚拟区域办事处，为注册医疗保健和学校等任务提供帮助。
 
-@Tim\_Cook
+这些“受欢迎的中心”还将为如何在英国建立企业提供建议。
 
-在佐治亚州一项限制投票权的法律获得争议性通过后，他发表了讲话。
+英国社区部长罗伯特·詹里克(Robert Jenrick )表示:“该项目将确保英国(海外)国籍持有者及其家庭在抵达英国后有一个最好的开始，并帮助他们找到住所、孩子的学校、机会和成功。”
 
-蒂姆-库克是苹果公司的CEO–也就是一家开发出刷脸识别打开手机的公司!
-![]()![](https://gnews.org/wp-content/uploads/2021/04/ABEC885B-133E-4A5E-90BD-011438C612C2.jpeg)
-而在蒂姆-库克讲授格鲁吉亚选举的时候，应该注意到，蒂姆-库克为中共删除香港自由示威者使用的应用程序辩护!
+英国说，中共强加于香港的安全法和民主改革违反了1997年把这个半自治城市交还中共国的协议条款。部长们表示，该签证计划是履行协议的一种方式。
 
-真是一个变态的、被蒙蔽的人!
+中共对这一提议做出了愤怒的反应，并表示西方对中共在香港问题上的行动受到了错误信息和帝国遗留问题的影响。
 
-来自[Ifun.de](https://translate.google.com/translate?sl=auto&amp;tl=en&amp;u=https://www.ifun.de/ein-oder-vorgeladen-tim-cook-trifft-chinesische-regulierer-144774/)：
+自今年1月英国推出针对香港移民的政策以来，截至3月19日，已有大约2.7万人申请了新签证。尽管对总体需求的估计尚不确定，但政府预计未来5年的申请者人数将在25.8万至32.2万之间。
 
-在苹果软件百货商店删除中国关键应用一周后，CEO蒂姆-库克约见了中共国国家市场监管部门。
+参考链接：
 
-苹果因其讨好中共国的历程而备受诟病。在苹果老板蒂姆-库克上周试图为苹果商店将中国关键应用删除提供论证支持后，据说苹果高层经理Eddy Cue确保近年来为Apple TV+独家制作的动态影像内容不包含任何批评中共国的观点。
+[https://nypost.com/2021/04/08/uk-launches-welcome-package-for-resettling-hong-kongers/](https://nypost.com/2021/04/08/uk-launches-welcome-package-for-resettling-hong-kongers/)
 
-原文链接：https://www.thegatewaypundit.com/2021/04/awful-apples-tim-cook-slams-georgia-voter-law-siding-communist-china-removing-app-used-hong-kong-freedom-protesters/
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-
-
-+2
++1
