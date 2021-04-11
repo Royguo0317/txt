@@ -1,38 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疫苗能结束中共病毒吗？
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1078263/)
+## 【热点播报】中共国制裁欧洲后，德国特里尔大学孔子学院被暂停一切活动
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1078232/)
 
-作者：大明| 校对：仙女儿-文善| 审核：Beicy-数学老师| Page：我是球大哥
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NENagl90niNJU/images/3ff58f7b-a636-4612-a094-8e2c5886dcc7.jpg?asset_id=a3d3ce71-ca8e-437c-b1d6-624fbf07180b&amp;img_etag=%2236256a48dc9d24155f30eb9e573c68f2%22&amp;size=1024)](https://spark.adobe.com/page/NENagl90niNJU/images/3ff58f7b-a636-4612-a094-8e2c5886dcc7.jpg?asset_id=a3d3ce71-ca8e-437c-b1d6-624fbf07180b&amp;img_etag=%2236256a48dc9d24155f30eb9e573c68f2%22&amp;size=1024)
-
-全球感染中共病毒人数超过一亿三千万，死亡人数突破三百万。路透社4月6日公布的统计数字显示，冠状病毒杀人的节奏已明显加快：全球死于冠状病毒人数突破200万，用了一年多的时间；从200万增至300万，却只花了大约三个月时间。而不断变异的病毒和试图通过接种疫苗结束这场生化危机的人们正在进行一场竞赛。
-
-中共国通过行政命令、威胁利诱，蛊惑百姓接种中共自己生产的疫苗。长春的假疫苗案件，不杀不足以平息民愤，但是因为疫苗背后巨大的利益涉及中共高层，共匪政权就轻描淡写地走了过场。中共外交部赵奸夫（赵利坚）的家乡，儿童死于假疫苗，家属去卫生院讨要说法，却遭警察暴力镇压，竟然说出“警察就是国家暴力机器”的言论，欺负老百姓没枪。这就是中共的恶魔本性。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NENagl90niNJU/images/f4ba2f90-1322-46b5-9548-87b7bb45fd68.jpg?asset_id=c7a16cce-4033-4cf3-9824-f87b46eba48e&amp;img_etag=%229c2b2b25586618e3572f1cd7144b8e62%22&amp;size=1024)](https://spark.adobe.com/page/NENagl90niNJU/images/f4ba2f90-1322-46b5-9548-87b7bb45fd68.jpg?asset_id=c7a16cce-4033-4cf3-9824-f87b46eba48e&amp;img_etag=%229c2b2b25586618e3572f1cd7144b8e62%22&amp;size=1024)
-
-百姓对中共的疫苗安全问题心知肚明，加上不断传出的接种者感染，甚至不断传出疫苗导致死亡的报道，怎能不令人担心自己的生命安全？这自然导致百姓接种疫苗的意愿不高。全球大批量生产并投入接种的疫苗，除了中共国的疫苗外，美国的辉瑞疫苗是以色列一半国人接种的疫苗，欧洲的阿斯利康疫苗因为导致接种人死亡而被多国紧急叫停。全球除以色列外，其他国家似乎也在期盼通过加大疫苗接种率来“结束”疫情。但是现实真的会如其所期盼的那样吗？病毒传播有三个要素：传染源、传播途径、易感人群。福奇（Anthony Stephen Fauci）作为所谓的免疫学专家，在全世界对中共病毒的追根溯源上，一直扮演着绊脚石的角色，这次又吹捧疫苗接种后六个月内有防护效果，但是很显然全球无法统一时间集体接种疫苗，也就无法避免传染源的存在，肯定无法彻底解决病毒传播。
-
-爆料革命，路德节目在一年多前的1.19 ，第一次向全世界发出中共病毒人传人、大爆发、强变异的警告；病毒来源于中共实验室，是生化武器攻击了美国。自然的病毒在传播了两三代后会减弱，而中共病毒在欧美国家早已爆发三四波了，根本看不到减弱的迹象。这一切都说明了肆虐全球的病毒是中共军方实验室制造的超限生化武器，而且中共病毒还在不断的变异。随着真相的浮出水面，全世界人民也必将相信闫丽梦博士说出的“留给人类的时间不多了”。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NENagl90niNJU/images/47addbc1-fa41-4c0f-90e0-bf4f115e22ec.jpg?asset_id=cdcc0d98-aea7-4277-8d97-bf9e6b70f61f&amp;img_etag=%220d09261818a4db171e9cb8c145931979%22&amp;size=1024)](https://spark.adobe.com/page/NENagl90niNJU/images/47addbc1-fa41-4c0f-90e0-bf4f115e22ec.jpg?asset_id=cdcc0d98-aea7-4277-8d97-bf9e6b70f61f&amp;img_etag=%220d09261818a4db171e9cb8c145931979%22&amp;size=1024)
-
-只有消灭中共，就像消灭当年的纳粹一样，世界才能恢复安全。然而，鉴于中共病毒强变异的现实，或许病毒会在相当长的时间内与人类共存，这将成为人类文明史上不可磨灭的痛。这种痛也让我们认识到人类正在为自己的懦弱、自私与贪婪付出代价；这种痛更时刻鞭策着每一位新中国联邦人，坚定灭共，并时刻坚守属于自己的勇气、智慧与信仰。
-
-**文章仅代表个人观点**
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NENagl90niNJU/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/NENagl90niNJU/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+作者：纽约香草山健身部 Jack Li文阳
 
 
 
-+1
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+据《法国国际⼴播电台》报道，就新疆⼈权问题，欧盟与中共国的相互制裁事件持续发酵，德国特⾥尔⼤学暂时停⽌该校孔⼦学院的⼀切活动。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-149.png)图片来源：Getty Images
+
+欧盟于3⽉22⽇宣布，就新疆⼈权迫害问题制裁四名中共国官员和⼀个实体。随后，中共国外交部当天⽴即采取报复⾏动，宣布对10名欧洲⼈员和4个实体进行制裁，加以反制——这次制裁包括了德国和瑞典的学者及研究机构。就这⼀事件，德国特⾥尔⼤学近⽇发表声明表示，为了声援受中共制裁的学者和学术⾃由原则，暂时停⽌该校孔⼦学院的⼀切活动。同时，该大学暂时停⽌外⽅院⻓职务。
+
+因为新疆⼈权问题，世界多国与中共国之间接连的制裁和反制裁事件引发了一些列的连锁反应。前有H&M为代表的⼀⼤批国际品牌因为拒⽤新疆⾎泪棉花被抵制事件；后有⼟⽿其政治⼈物因在推特谴责中共新疆⼈权迫害后，遭到中共外交“战狗”狂咬，⼟⽿其安卡拉市政部⻔⾏动反制。今天，德国特⾥尔⼤学再出⼿，声援欧盟被中共制裁的来⾃德国和瑞典的学者及研究机构。
+
+截⾄2021年2⽉17⽇，美国共有55所孔⼦学院——此前有64家已被关闭。德国的⼤学院校中尚有22所孔⼦学院。接下来，不知会不会跟上美国的脚步。
+
+因为中共的罪行，相信接下来受到波及的国家和机构会越来越多。得道多助，失道寡助——中共越狂妄，世界反抗的呼声就会更⼤。相信越来越多的有正义感的⼈⼠会相继加⼊反共⾏列。
+
+参考阅读：
+
+[声援学术自由 德国特里尔大学暂停校内孔子学院一切活动](https://www.rfi.fr/cn/%E7%A4%BE%E4%BC%9A/20210410-%E5%A3%B0%E6%8F%B4%E5%AD%A6%E6%9C%AF%E8%87%AA%E7%94%B1-%E5%BE%B7%E5%9B%BD%E7%89%B9%E9%87%8C%E5%B0%94%E5%A4%A7%E5%AD%A6%E6%9A%82%E5%81%9C%E6%A0%A1%E5%86%85%E5%AD%94%E5%AD%90%E5%AD%A6%E9%99%A2%E4%B8%80%E5%88%87%E6%B4%BB%E5%8A%A8)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
+0

@@ -1,36 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国依赖高科技原料
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1078368/)
+## Mar Llera教授力挺闫丽梦博士揭示中共病毒真相
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1078397/)
 
-信息来源：德国经济周刊 （WirtschaftsWochen ） 原作者：特蕾莎·斯蒂恩斯（Teresa Stiens） 发布时间：2021年3月15日
+- 翻译：蚂蚁兄弟
+- 制图：七白石
 
 
+更*多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！*
 
-全球高科技原材料之战即将到来：中共国威胁西方世界对稀土资源的依赖。  这个威胁是德国和欧洲的经济增长和创新实力的危机。
+**西班牙2021年4月11日电/西喜社——**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/images15_mh1618150828194.jpg)
+上个月8日，塞维利亚大学新闻学教授Mar Llera应邀参加了由FAES组织的研讨会，与Nicolás de Pedro先生、Juan Pablo Cardenal先生和Fernando de Haro先生进行了座谈。
 
-当玻利维亚高原的乌尤尼盐沼（Salar de Uyuni）上空下雨时，盐湖的白色地壳上会形成一层薄薄的水。如果没有风，那么将近10,000平方公里的表面就像一面镜子，使地平线消失。在这片异常美丽的风景之下，是个现代宝藏。
+他们用70分钟的时间讲述了中国共产党政权对天主教徒和维吾尔人的迫害。这些都是最近的热点话题，对于中共造成的这些罪恶事件，全世界都感到震惊。
 
-清洁和环境保护系统 ACISA – Advanced Clean Innovations for people and the environment Systems Alemania ）负责人的企业家沃尔夫 （Wolfgang Schmutz）想挖掘这一宝藏。
+Mar Llera是西班牙学术界和新闻界非常著名的新闻学教授。 而多年来，她对香港、台湾和中国的人权问题特别感兴趣。 她曾多次前往香港见证人权事件，她的奉献精神得到了国际组织的认可，并就这些问题发表了大量的文章。
 
-乌尤尼盐沼（Salar de Uyuni）约有540万吨锂。原材料被称为“白金”。没有它，智能手机和电动汽车都将无法工作。 ACISA即将发生历史性政变。在八个联邦和州政府部门的帮助下，巴登-符腾堡州的公司将获得为期70年的盐湖开采协议。玻利维亚方面抗议活动后，2019年底撤回已经签署了一项协议。从那时起，ACISA没有开采出一克锂。
+几个月前，当中共病毒大流行席卷西班牙时，Llera教授对这种神秘病毒的来源非常焦虑。 当她了解到在郭文贵先生领导下的 “爆料革命”成功的帮助了闫丽梦博士从香港逃离的消息后，她决定对这位勇敢的异见医生进行独家采访。
 
-玻利维亚政府取消了与一家德国公司生产锂的合资企业。据ABI通讯社报道，波托西省州长周日（当地时间）表示，总统埃沃·莫拉莱斯（Evo Morales）政府已通过法令停止了该项目。（见文章末尾第二个链接）
+在一次视频交谈中，她们互相端详着对方，两位女士在非常友好、轻松的气氛中进行了交流，也对这次流行病交换了信息，澄清了观点。Llera教授感受到，英雄女科学家的真实、大方，对自己的工作非常敬业，用事实说话。
 
-简评:
+随后，Llera教授在Emmanuel Mounier哲学研究院的网站上发表了她的第一篇有关严博士揭露疫情的文章，包括摘要和完整版，她认为这个媒体是迄今为止最不容易受到中共渗透困扰的媒体审查的。
 
-这篇报道是3月份发表在经济周刊上的， 配图引起了我的注意，上面的挖掘机上面都是中共国的标志， 相信这个项目的背后一定有他们的黑手。之后我查阅了其它的资料，相关的文章提到 “这个项目在签订后， 被他们的前总统，一个独裁统治者—莫拉莱斯叫停。” 结合我在推特上看到的推文， 在一辆汽车里面破获了填有莫拉莱斯的选票。这像不像我们所知的美国大选， 这些事情都连在了一起。不难看出， 中共的黑手是无处不在；中共不被灭掉， 世界没有安宁。
+[http://mounier.es/index.php?option=com\_content&view=category&layout=blog&id=49&Itemid=72](http://mounier.es/index.php?option=com_content&amp;view=category&amp;layout=blog&amp;id=49&amp;Itemid=72)
 
-参考新闻1 🔗 **[So hängt China den Westen bei den Hightech-Rohstoffen ab](https://www.wiwo.de/my/unternehmen/industrie/batterieproduktion-so-haengt-china-den-westen-bei-den-hightech-rohstoffen-ab/26948402.html)**
+最近，Llera教授又发表了两篇文章，以丰富媒体的内容，现在大家都在寻找有关COVID-19起源的真相的新闻，因为与中共勾结的科学家宣传的谎言，他们意识到世卫组织提供的报告是对人类智慧的侮辱。
 
-参考新闻2 🔗 **[Bolivien stoppt Lithium-Projekt mit deutscher Firma](https://www.wiwo.de/rohstoffe-bolivien-stoppt-lithium-projekt-mit-deutscher-firma/25186092.html)**
+[https://www.heraldo.es/noticias/opinion/2021/03/02/por-que-no-debemos-fiarnos-de-china-mar-llera-llorente-tribuna-1474766.html](https://www.heraldo.es/noticias/opinion/2021/03/02/por-que-no-debemos-fiarnos-de-china-mar-llera-llorente-tribuna-1474766.html)
 
-（声明：此文仅代表译者个人观点。）
+[http://mounier.es/index.php?option=com\_content&view=article&id=669:acontecimiento-137-la-verdad-es-insoportable&catid=51&Itemid=72](http://mounier.es/index.php?option=com_content&amp;view=article&amp;id=669:acontecimiento-137-la-verdad-es-insoportable&amp;catid=51&amp;Itemid=72)
 
-* * *
+这场大流行几乎造成了世界上每一个国家的重大经济衰退。 除了西语国家的社会政治问题外，政治领导人既没有时间也没有头脑去辨别问题，寻找可行的解决办法，以安抚绝望的民众的精神。
 
-翻译/整理/简评：Shuizhuyu
-校对/发稿：阿娜
+这个该死的中共病毒，几乎逼得所有国家都不得不屈服和接受所谓快速解决的办法就是获取疫苗的思想。但是，闫博士曾在多个场合说过，彻底解决的正确的办法是消灭中共。
+
+Llera教授的西班牙文出版物恰逢其时，在缺乏传播真相的声音的情况下，为这片几乎干涸的绿洲注入了光明和希望。 这个世界绝对需要这样的帮助。 对于Mar Llera教授，我们只能说：非常感谢您。 我们继续在这个旅途中，一起传播真相，直到中共真正被灭亡。
+
+校对：阿伯塔；发稿：神奇四侠
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.gg/PXVSzdHc6p)
 
 +1
