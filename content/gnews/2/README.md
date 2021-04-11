@@ -1,99 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.8.2021PM-Sillin 博士首提舟山蝙蝠病毒骨架
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1078717/)
+## 【世事解评】狠捅马云，剑指江家，习近平殊死一搏——浅析重罚阿里巴巴背后深层原因
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1078775/)
 
-视频剪辑 : Ablec(文A)
-中听校： 洛杉矶天使农场 – 烟波浩淼
-英翻译：洛杉矶天使农场 – 烟波浩淼
-英校对：洛杉矶天使农场 – 雨山溪桥客
-字幕+视频制作：洛杉矶天使农场 – 压箱底儿の希望
+作者：纽约香草山农场  草根儿老炮
 
-**路德**
-Sellin 博士今天发推正式提到了舟山蝙蝠病毒骨架
-Dr. Sellin tweeted today and officially mentioned about the Zhoushan bat virus backbone
-我们之前做节目说过
-As we said in a previous show
-Sellin 博士前天发推说SIXTA
-Dr. Sellin tweeted the day before yesterday mentioned about the SIXTA
-那是二战时期最神秘的一个组织
-It was one of the most mysterious organizations during World War II
-专门破译和分析所有的
-It was dedicated to decode and analyze
-的秘密以及所有信息的无线电信号的
-all the secrets radio signals of all information
-当时德军和日军
-of the German and Japanese troops at that time
-现在美国以及盟国也有类似于这样的一个组织正在分析
-Now, the United States and allies have a similar organization that
-解密所有的病毒相关的机密
-decode and analyze all virus-related secrets
-他发推说这就是舟山蝙蝠病毒的骨架做的
-He tweeded that this is Zhoushan bat virus backbone
-这个对闫博士的报告最关键的进一步深入
-This is the most critical further insight for Dr. Yan’s report
-这就是（闫博士报告）里面写的ZC45舟山蝙蝠病毒
-This is Zhoushan bat virus written in Dr. Yan’s report
-我们在2020年1月19 日的时候，大家想想啊，
-Think about this, we were on Jan 19, 2020 to say it
-全世界只有中共说的62例（中共病毒感染者）时
-There were only 62 cases (of the CCP virus infection) that CCP told the world
-我们就说了大爆发
-We have said it will be an outbreak pandemic
-这几天布林肯号召美国
-In recent a few days, Blinken has called on the U.S. to
-一定要敢干
-dare to do it (investigate the origin of the CCP virus)
-先把防守做好，谨防第二波，第三波
-To do a good defense first, then, guard against the second wave and the third wave
-第二，一定要彻查，透明地彻查
-Second, we must conduct a thorough and transparent investigation
-这句话透明彻查，
-The sentence of thorough and transparent investigation
-大家有没有（想过）?
-Have you ever (ever thought) ?
-上次美国政府要透明彻查是什么时候？
-when was the last time the US government wanted to conduct a transparent and thorough investigation?
-伊拉克！萨达姆！要彻查
-For Iraq！ Saddam！ U.S did a thorough investigation
-过一段时间你听啊，一定是联合国
-After a while you will see, it must be the United Nations
-就像当年对萨达姆一样
-It’s just like when we treated Saddam Hussein
-联合国会通过一个决议，
-The United Nations needs pass a resolution
-美国都是按程序走，
-the United States will go through a procedure
-彻查病毒来源
-to investigate the origin of the virus thoroughly
-先理后兵，美国都这样，
-The U.S used to tell you the reason, then they dispatch their troop
-伊拉克，萨达姆这个也是一样
-It’s the same with Iraq and Saddam Hussein
-先给萨达姆说，我们的情报说，
-Firstly, they tell Saddam that our intelligence says that
-你这里有研制大规模伤性武器
-you have developed weapons of mass destruction
-我们要求彻查
-We request a thorough investigation
-联合国也通过决议彻查
-The United Nations also passed a resolution to conduct a thorough investigation
-然后给最后通牒三次
-Then give an ultimatum three times
-三次不干，小布什马上召开记者发布会。
-After three quits, Bush Jr. immediately held a press conference
-现通知萨达姆24小时之内离开，
-Saddam was now notified to leave within 24 hours
-让联会国去彻查，
-so that the United Nations will conduct a thorough investigation
-因为他们研制大规模杀伤性武器
-because they developed weapons of mass destruction
-你看看，商务部说
-You see, the U.S. Department of Commerce said that
-中共研究大规模杀伤性武器
-the CCP researched weapons of mass destruction
-你觉得我们说的还是危言耸听吗？
-Do you think what we are talking about is still alarmist?
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+说到这个周末国内最重磅的新闻，当然要属马云的阿里巴巴被处罚！4月10日（周六）上午，《新华社》发布消息：国家市场监管总局根据反垄断法，对阿里巴巴集团利用市场支配地位实施“二选一”行为，作出行政处罚的决定，责令其停止违法行为，并处以罚款182.28亿元。
+
+![]()![](https://static01.nyt.com/images/2019/06/14/world/14alibaba-1/merlin_154760592_e4d28db9-006d-42b1-b9d9-f4c68f2c38a3-master1050.jpg)图片来源：ALY SONG/REUTERS
+
+几乎同时，《人民日报》发表评论文章：“推动平台经济规范健康持续发展”。该文称，“（对阿里巴巴的）处罚体现了依法治国的基本要求，于法有据，于理应当”，并强调这一举措“促进公平竞争，反对垄断，防止资本无序扩张”。针对阿里巴巴的处罚，中共两家官方媒体同时发文，令人咋舌，同时也让人深感兹事体大、非同寻常！而在《新华社》发布的处罚消息中居然“晒出”，阿里巴巴的注册地址位于开曼群岛。这一信息耐人寻味，亦不禁让人浮想联翩！毕竟，稍有金融常识的人都知道，注册地位于开曼群岛的就是离岸公司。而注册离岸公司表面上是为避税，实际则是为了方便洗钱、藏钱和转移资产。
+
+对中共政商关系圈稍微了解的人应该清楚，阿里巴巴背后真正的老板是江家，且其股东中还涉及到众多中共权贵家族——马云只不过是服务他们的“白手套”和“前台掌柜”。自去年11月初，马云先是被约谈；随后，“蚂蚁金服”上市被叫停；同年12月底，监管部门对阿里巴巴立案调查；到今年4月10日，监管总局重罚阿里巴巴——从这一系列的事件和行动看，习近平当局正在对这一被江家控制的互联网金融“巨无霸”进行地毯式地排查和整肃。其目的非常明确——抓住对方金融的“七寸”，用来在政治上狠狠打击以江家为首的“上海帮”。
+
+郭先生在2月17日的直播中谈到，“蚂蚁金服”上市绝非为了圈钱那么简单，其真正目的是要把自己打造成一个金融“巨无霸”，试图控制和影响中（共）国金融。而今年又是“南普陀计划”的收割年——“上海帮”一直在处心积虑地拱倒习，换上自己人。因此，习目前在政治、经济上，可谓左支右绌、进退维谷。同时在国际上，习采取的“疯狗”外交已然引起世界公愤；更有中共的反人类及种族灭绝罪被“板上钉钉”；再加上中共病毒被追责已经大势所趋！这一切都使得党内纷纷议论，或可抛出习和其他几个人“顶雷”，承担中共全部罪责。
+
+如此内忧外患，必然让习心急如焚、寝食难安。然而“攘外必先安内”，那么铲除党内异己、保住“龙位”、让自己安全乃是习的第一要务！首当其冲的当然是和“江派”之间你死我活的党内终极搏斗。由于江家势力遍布党内，因此“上海帮”才是中（共）国政治真正的“沼泽地”。如果真有什么风吹草动，党内多数人肯定会站到江家那边。有鉴于此，江家势力之于习如骨鲠在喉，不除不快、不除不得安宁！
+
+以习这样政治亡命徒的性格，当然要大动干戈、主动出击，铲除心腹大患。于是，他通过打压和整肃“蚂蚁金服”及阿里巴巴，隔山打牛、敲山震虎，意图剑指江派老巢。其另外一个重要用意是，通过狠狠打击江派势力，以震慑党内其他人——不要“脚踩两条船”当“两面人”。这一举措也同时警告下面的人要保持政治判断力、政治领悟力、政治执行力，以及对领袖绝对的忠诚。
+
+郭先生说，罚阿里巴巴182亿只是办案费用，后面的故事还长着呢——只有出现江志城的名字才是真正办案的开始。看来“习江”斗的真正精彩大戏还没有拉开帷幕。咱们屏住呼吸、翘首以待，且看这场中共党内的“终极之战”！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
 
 0

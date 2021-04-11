@@ -1,69 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104011（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1078564/)
+## 怒了：美国两党议员共同立法对抗中共
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1078791/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+#### 译评：文盲2020 | 责编：沙拉猫
+![]()![](https://gnews.org/wp-content/uploads/2021/04/capture-16.jpg)图片来源：GETTY IMAGES
+《半岛电视台》4月9日对美即将推出了《2021年战略竞争法》发表了评论报道，指出美国这项新法案不仅针对的是与中共国的经济竞争，同时还包括了对新疆和香港人权问题的关注。
 
+**立法灭共**
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+随着中共对外咄咄逼人的姿态，近日，美国参议院外交关系委员会推出了《2021年战略竞争法》，通过促进人权、提供安全援助和投资打击虚假信息，来提高美国压制中共扩大全球影响力的能力。该法案涉及中共在香港新疆的人权问题，并规定了压制中共政府的外交和战略举措，突显了美国国会民主党和共和党在与中共对抗方面的强硬立场。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01.jpg)
+自从前总统川普（Donald Trump）开始发动贸易战以来，中共认为川普总统做法不公平，期待拜登（Joe Biden）上台后能缓解紧张局面，没想到拜登总统反而继续对中共保持强硬立场，让中共反应措手不及。针对中共在全球投资领域的领先事态，拜登总统前几日宣布了2万多亿美元的基础设施支出计划，作为对增强美国全球竞争力的投资。拜登明确表示，中共一方面从未停止其野心，一方面将希望寄托在美国的民主制度，认为美式民主太慢太局限太不团结，会拖住美国前进的步伐。** **
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02.jpg)
+**涉港涉疆**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03.jpg)
+《路透社》也对这份长达280页的法案进行了首次报道，称该法案涉及与中共的经济对抗，但也涉及人道主义和民主价值观，比如对少数民族穆斯林维吾尔人的迫害实施制裁，支持香港的民主等。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-1.jpg)
+**印太战略**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05.jpg)
+该法案着重强调“优先考虑实现美国在印太地区政治目标所需的军事投资“。它呼吁为此提供资金，称国会必须确保联邦预算与与中共对抗的战略要务 “保持一直”。该法案建议在2022至2026财年为印太地区提供总计6.55亿美元的外国军事融资资金，同期为 “印度-太平洋海上安全协议 “及相关方案提供总计4.5亿美元的资金。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06.jpg)
+法案还将扩大美国外国投资委员会（CFIUS）的权责范围，赋予CFIUS审查金融交易是否构成国家安全风险的权力。当然，在委员会和参议院全体会议上，这一条款与该法案的许多条款一样，可能会被修改。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07.jpg)
+**台湾关系 **
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08.jpg)
+立法草案呼吁加强与台湾的伙伴关系，称台湾岛是 “美国印太战略的重要组成部分”，并称不应该限制美国官员与台湾同行的互动。该法案还称，美国政府必须鼓励其他盟友对中共政府的 “侵略性和强硬行为 “采取更多措施，包括在军备控制方面，要继续强硬！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09.jpg)
+**火速立法**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-3.jpg)
+《2021年战略竞争法》草案由任外交关系委员会主席的民主党议员鲍勃·梅嫩德斯（Bob Menendez）和共和党首席议员吉姆·里施（Jim Risch）联合提出，并与提出的当晚递交给委员会成员，以便他们在4月14日的会议上进行讨论修改和投票。梅嫩德斯表示，他对法案在参议院外交关系委员会高票通过，以及随后获得参议院全体议员批准充满信心。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-4.jpg)
+里施在谈到该法案时称，法案包含了一项 “强有力的、可操作的 “应对中共在美国大学影响的计划。前国务卿蓬佩奥（Mike Pompeo ）去年底就曾发出警告称中共政府盗取美国技术创新，敦促美国大学仔细审查中共的公费留学生。蓬佩奥说，美国应该欢迎 “真正 “想在美国学习的中国人，但他指出了两起中国留学生被控从事间谍活动的案件，以及中共骚扰其海外学生的其他案例。而中共则反咬一口指责美国 “监控、骚扰和故意扣留 “中共国留学生和研究人员。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-11.jpg)
+参议院此次立法是美国“快速通道”行动的一部分，该“快速通道”行动是民主党参议院多数党领袖查克·舒默（Chuck Schumer） 2月份宣布的一项以立法遏制中共国的措施。战略与国际研究中心亚洲专家邦妮·葛来怡（Bonnie Glaser）称，国会极为关注中共对美国利益的各种挑战，并试图在其权限范围内制定有效的应对措施。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-2.jpg)
+* * *
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-2.jpg)
+评论：据悉，中南坑老家伙们坐立不安，惶惶不可终日！因为此项立法无异于给制裁中共出具合法证明，也就是从今往后，打击中共是有法可依，合情合理的事！反观中共的战狼外交，在国内大肆鼓吹民粹，忽悠小粉红对耐克、HM、阿迪达斯等200多个外资品牌进行民族仇恨宣传，号召全民抵制不采纳新疆棉花的外资公司。中共企图以愚蠢的煽动所谓民族仇恨的卑劣手段来掩盖在新疆的种族灭绝和对香港民主自由的践踏罪行，完全是打错了算盘。中共对全球发动CCP病毒生化战争，导致全球1.35亿人感染，291万人死亡，犯下了滔天的反人类罪！中共操纵美国大选，勾结SEC陷害揭露真相的GTV投资者。。。种种罪行，罄竹难书！此次立法是一个表明美国两党已达成灭共共识的强烈信号，接下来的将会是更进一步的实际打击行动！借用文贵先生的话：共产党，你完啦！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/18-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/19-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/20-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/21-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/22-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/23.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/24.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/25.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/26.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
+&gt;&gt;原报道链接&gt;&gt; [US Senate pushes ahead with tough measures to counter China](https://www.aljazeera.com/economy/2021/4/9/us-senate-pushes-ahead-with-tough-measures-to-counter-china)
 
 0
