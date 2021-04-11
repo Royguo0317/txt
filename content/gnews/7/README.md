@@ -1,39 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共和俄罗斯破坏了国际社会对缅甸的反应
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1079149/)
+## 吉尔吉斯斯坦外交人员接种中共国产疫苗后死亡
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1079182/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/MY.jpg)channelnewsasia.com
-路透社报道，欧盟最高外交官周日表示，俄罗斯和中共正在阻碍国际社会对缅甸军事政变作出一致反应，欧盟表示，如果缅甸恢复民主，欧盟将提供更多的经济刺激。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/K-2.jpg)eastoregonian.com
+吉尔吉斯斯坦驻俄罗斯大使馆新闻处报道，吉尔吉斯斯坦外交部领事司副司长巴赫季亚尔·沙基罗夫于4月1日逝世，死亡原因尚不清楚。
 
-欧盟外交政策负责人佐瑟·博雷利(Josep Borrell)在一篇博客中写道:“俄罗斯和中共阻止联合国安理会(UN Security Council)的企图，例如实施武器禁运，并不令人意外。”
+吉尔吉斯斯坦卫生部前发言人Elena Bayalinova在她的脸书页面上发布了一条信息称，年仅39岁，已去世的外交部领事司副司长沙基罗夫的亲属在与我通电话时表示，死者前一天接种中共产的国药集团SinoPfarm疫苗。
 
-代表欧盟27个成员国发言的博雷尔说，“缅甸的地缘政治竞争将使双方很难找到共同点”，“但我们有责任去尝试”。
+于3月19日抵达吉尔吉斯共和国150000剂中共国产疫苗，沙基罗夫因要去莫斯科进修课程，所以他决定保护自己并接种疫苗。卫生部前发言人呼吁吉尔吉斯共和国卫生部应进行客观的正式调查，并报告调查结果。
 
-据政治犯援助协会(AAPP)活动组织统计，自军方2月1日发动政变，从昂山素季的民选政府手中夺取政权以来，安全部队已经杀害了700多名手无寸铁的抗议者，其中包括46名儿童。其中包括上周五在仰光附近的巴戈镇(Bago)便有82名抗议者遇难，AAPP称那里是“杀戮场”。
+Elena Bayalinova在帖子中写道:“国家的医务工作者应该考虑到这一事实，并仔细检查公民接种疫苗，以避免可能的反应和并发症造成新的损失。”
 
-“当军队对自己的人民使用暴力时，全世界都在惊恐地注视着。”博雷尔说。
-
-中共和俄罗斯都与缅甸军方有联系，分别是缅甸第一大和第二大武器供应国。
-
-联合国安理会上星期呼吁释放昂山素季和其他被军方拘留的人，但没有谴责这次政变。
-
-欧盟正准备对缅甸军方所有的个人和公司实施新的制裁。今年3月，欧盟同意对11名与政变有关的个人实施第一批制裁，其中包括军方总司令。
-
-虽然欧盟在缅甸的经济影响力相对较小，但博雷尔说，如果缅甸恢复民主，欧盟可以加强与缅甸的经济联系。他说，这可能包括在可持续发展方面增加贸易和投资。2019年，欧盟对缅甸的外国直接投资总额为7亿美元，而来自中共的投资为190亿美元。
-
-联合国缅甸问题特使伯格纳(Christine Schraner Burgener)之前在联合国安理会闭门会议上警告说，缅甸可能面临“规模空前”的内战。在致命镇压后，缅甸的抗议活动仍在继续，联合国特使呼吁，“如果我们只等他们准备好谈判，地面局势只会恶化。缅甸将发生流血事件。” 她呼吁国际社会考虑采取“具有重大意义的行动”来恢复缅甸民主。
-
-美国贸易代表戴琪上个月表示，根据2013年的贸易和投资协定，美国将立即暂停与缅甸的所有接触，直到民主选举产生的政府回归。
-
-美国之前多次呼吁中共追究那些对政变负责的人的责任，利用其在缅甸的影响力，帮助恢复该国的民主政府。美国国务院发言人内德·普赖斯(Ned Price) 称，“我们已敦促中方发挥建设性作用，利用他们对缅甸军方的影响力，结束这场政变。”然而，中共置若未闻，继续利用安理会理事国身份阻碍联合国对缅甸军政府的制裁。
+吉尔吉斯共和国卫生和社会发展部尚未对该事件发表评论，而这条消息已被中共媒体屏蔽。
 
 参考链接：
 
-[https://www.reuters.com/article/us-myanmar-politics-eu/china-russia-undermine-international-myanmar-response-eus-top-diplomat-says-idUSKBN2BY0CO](https://www.reuters.com/article/us-myanmar-politics-eu/china-russia-undermine-international-myanmar-response-eus-top-diplomat-says-idUSKBN2BY0CO)
+[https://24.kg/english/188529\_COVID-19\_Kyrgyz\_Foreign\_Ministry\_employee\_dies\_after\_vaccination/](https://24.kg/english/188529_COVID-19_Kyrgyz_Foreign_Ministry_employee_dies_after_vaccination/)
 
 0

@@ -1,47 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】新疆棉事件显现蝴蝶效应，四大国际品牌在巴黎遭人权诉讼
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1078512/)
+## 慧眼看世界202104011（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1078564/)
 
-作者：纽约香草山健身部 Jack Li文阳
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-111.jpg)
-
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
 
-据法新报道，Zara、Uniqlo、Sandro，以及Skechers等著名时尚品牌，因为涉嫌使用了新疆维吾尔人受强迫劳动所制的棉花和棉制品，被数家人权组织率先在巴黎发起起诉，指控其侵犯人权，涉嫌犯有隐瞒强迫劳动，危害人类罪。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-上述4家企业品牌及其供应、服务、销售等上下游企业链商，均被连带控诉。指控方是反腐败非政府组织Sherpa,，商标道德团体le collectif Ethique sur l’étiquette, 欧洲维吾尔学院 l’Institut ouïghour d’Europe (IODE)，以及一名曾被关押在新疆的维吾尔女性。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片3-10.png)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02.jpg)
 
-这一诉讼案4月9日在巴黎由一个联合公告公布于众，该公告还告知将在欧洲多个地方发起诉讼。根据此一公告，巴黎的诉讼只是全球范围内维护维吾尔人人权组织所采取行动的一个部分。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03.jpg)
 
-根据控方公告，控方将在4月12日星期一在巴黎召开联合新闻发布会，届时社会学家，欧洲维吾尔学院共同创始人Dilnur Reyhan以及欧洲议员Raphaël Glucksmann将共同出席。Raphaël Glucksmann最近因批评中共国当局在新疆践踏人权而遭到中共制裁。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-1.jpg)
 
-新疆棉事件起于今年三月，中共挑动几十位明星，声称对瑞典时装品牌H&M终止合作，并煽动网民对几十家国际品牌发起攻击，号召抵制这些拒绝新疆棉的企业，在国际上引起轩然大波。中共煽动民族主义，利用新一代义和团，用抵制等经济手段，企图逼迫西方企业低头，进而向其政府施压，来达到脱离在国际上越来越窘迫困境的目的。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05.jpg)
 
-但事与愿违，中共的如意算盘看来又要落空了。中共在国际上满地打滚，见人就咬的下三滥路数，越来越让西方反感。进入2021年后，美英日印澳欧等国针对中共，频繁互动。各国在新疆人权问题上相继制裁中共官员和机构实体，中共在国际上越来越孤立。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06.jpg)
 
-现在，数个国际人权组织对4大国际品牌在巴黎发起诉讼，接下来，还会在世界多国起诉，必然会引起一系列的蝴蝶效应。如果诉讼胜诉，必然会有其他机构和组织相继模仿。这样，就对那些为了经济利益出卖良知的公司和机构，起到震慑作用，迫使它们纷纷离中共而去。据透露，新疆棉以后，撤出中共国的资金相当于一个西部省份的GDP。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07.jpg)
 
-首先挑起事件的中共，这次真是搬起石头砸了自己的脚。新疆棉事件还没完，事态将向何处去，非常值得期待。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08.jpg)
 
-参考阅读：
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09.jpg)
 
-[https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210411-%E6%96%B0%E7%96%86%E6%A3%89%E8%8A%B1-%E5%9B%9B%E5%A4%A7%E8%B7%A8%E5%9B%BD%E4%BC%81%E4%B8%9A%E5%9C%A8%E5%B7%B4%E9%BB%8E%E9%81%AD%E4%BA%BA%E6%9D%83%E8%AF%89%E8%AE%BC](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210411-%E6%96%B0%E7%96%86%E6%A3%89%E8%8A%B1-%E5%9B%9B%E5%A4%A7%E8%B7%A8%E5%9B%BD%E4%BC%81%E4%B8%9A%E5%9C%A8%E5%B7%B4%E9%BB%8E%E9%81%AD%E4%BA%BA%E6%9D%83%E8%AF%89%E8%AE%BC)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-3.jpg)
 
-校对/发稿：飞虹
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-4.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-11.jpg)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-2.jpg)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-2.jpg)
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-2.jpg)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-2.jpg)
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/18-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/19-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/21-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/22-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/23.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/24.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/25.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/26.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0

@@ -1,57 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】绝望的顶点——难以救赎的生命与灵魂
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1079035/)
+## 布林肯称谈论抵制北京冬奥会“为时过早”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1079241/)
 
-作者：纽约香草山农场 兰兰
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/O-4.jpg)thedailybeast.com
+Mediaite新闻报道，美国国务卿布林肯星期天在接受媒体采访时说，现在谈论美国抵制2022年北京奥运会还“为时过早”。
 
+上周，美国国务院发言人表示，美国将考虑抵制，但是随后拜登政府澄清说，目前这不在讨论范围内。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+周日，查克·托德(Chuck Todd)就中共病毒疫情和中共在新疆的种族灭绝罪行对布林肯进行了采访。托德问布林肯：“你怎么评价与中共或任何你认为正在进行种族灭绝的国家的贸易往来?”
 
+布林肯回答说:“我们需要使全世界团结起来，用一个声音谴责已经发生的和将继续发生的事情。我们需要采取实际的具体行动来确保，例如，我们的公司不会向中共提供他们可以用来镇压包括维吾尔族人口在内的东西。”
 
+他补充说，尽管我们坚决反对严重侵犯人权，反对种族灭绝行为，但是美国需要在一些牵扯利益的领域与中共合作。
 
-早上浏览新闻时看到知乎上的一篇帖子：“2021年4月8日，南京大学19幢有同学跳楼，发生了什么？” 每当看到这样的新闻，我内心的翻涌根本无法形容。人在面临死亡威胁的时候，会产生强烈的求生本能。倘若让一个人主动去寻求死亡，那他的生活一定是忍无可忍、无法继续、毫无希望到了生无可恋的程度，于是才会以死亡了断今生。这是一个悲痛的时刻。但凡人对生活还残存一丝希望，或者还有一点点信仰，听闻过些微佛法，那便至少还有精神的寄托，也不至于把自己逼上绝路，让游荡的灵魂难以救赎——佛曰：人身难得，佛法难闻。
+托德随后提出了抵制奥运会的呼声，并问道：“西方盟国是否会考虑抵制奥运会?”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-153.png)
+布林肯回答，“现在离奥运会还有一年左右的时间。我们不关注抵制。我们关注的是对话，与我们的盟友和伙伴密切磋商，倾听他们的意见，倾听他们的关切。但这是不成熟的。”
 
-无独有偶，4月7日，另一条新闻播报了卡车司机金德强因“北斗定位掉线”被罚款并扣车，金师傅百口莫辩下，绝望自杀。前段时间，笔者还听家里的亲戚说，七十几岁的健康老人选择在寒冷的深夜躲过家人的看护，最终跳楼结束生命。更不要提笔者经常看到的关于各种底层人民、弱势群体自杀、他杀的新闻。这类事件真的太让人压抑、悲痛、窒息了。但更可恶的是，当局总是以公权力来掩盖这些死亡的真相：他们将每一次的非正常死亡都归咎于死者自身的问题，与社会制度撇清关系。更甚至，当局还要炒作死者，树立当局珍惜生命、竭力救援的光明形象。
+共和党参议员里克·斯科特(Rick Scott)在本周二批评拜登和民主党人虚伪，指出中共“严重侵犯人权”，呼吁拜登总统申请在美国主办2022年冬奥会，应将2022年冬奥会从北京迁至 “一个尊重自由、民主和人权的国家”。美国前国务卿蓬佩奥更是向美国运动员喊话，呼吁抵制犯下种族灭绝和反人类罪行的中共举办的2022年冬奥会。
 
-欲得修成人身，需要经过无数的修炼和劫难，但却总有人因为看不到一丝丝的希望，偏偏放弃了这难得的人身。这是绝望，这是警醒，这也是呐喊：这个社会已经病态到了让人无法呼吸、无法生存的地步！活着的人们，勇敢一点，为自己本该有的生而为人的权利而奋斗。
-
-CCP造成的社会病态让人难以喘息。如果CCP得以继续，那还谈什么生活，每个人连生存都是问题。
-
-愿逝者安息。
-
-愿生者安康。
-
-愿CCP早日消亡。
-
-（本文观点仅代表作者）
-
-参考阅读：
-
-[2021年4月8日，南京大学19幢有同学跳楼，发生了什么？](https://www.zhihu.com/question/453521350)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+参考链接：
 
 
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+> [Sec. of State Blinken Says Talk of Boycotting 2022 Beijing Olympics Is ‘Premature’](https://www.mediaite.com/tv/sec-of-state-blinken-says-talk-of-boycotting-2022-beijing-olympics-is-premature/)
 
 
 
-+1
+0
