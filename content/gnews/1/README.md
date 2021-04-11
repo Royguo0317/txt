@@ -1,147 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美《2021战略竞争法》第214节关于中共病毒溯源
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1074312/)
+## 面对病毒暴政 为何保持沉默
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1074411/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+翻译：康州盘古农场-ww
+校对：康州盘古农场-Mike Li
+编辑：康州盘古农场-蓝精灵
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-9.jpg)sdmayer.com
-4月8日，笔者第一时间发文报道了“美参议院将审议‘战略竞争法案’对抗中共”【1】，面对这份280多页的提案，自感能力和精力不足以承担对“重磅提案”的翻译和解读，期待着《路德社》、秘密翻译组，昨晚《路德社》作出了振奋人心的解读，令人回味无穷。
+《零对冲》作者：泰勒杜登(TYLER DURDEN)，2021年4月8日发布，美国经济研究所Daniel Boudreaux撰写：
+![]()![](https://gnews.org/wp-content/uploads/2021/04/EFF7EAD4-1B3A-47FE-AF55-33A0F6A61950.jpeg)
+以必定存在的封锁怀疑论者的角度，我最近在英国注意到这样一份招聘广告：
 
-现将提案中涉及中共病毒部分摘译，供战友参考。
+这里有一个令人兴奋的职位，提供给经验丰富的通信专业人员：国家卫生部门（NHS）的通信团队中的高级领导。这个在核心部门工作的机会，将是你步入公务员未来职业生涯的第一步。
 
-第214节. 关于中共病毒疫情起源的报告
+**您将主要负责提供通信策略****，来****支持无症状监测的扩展，使检测正常化成为日常生活的一部分。 **该职位提供了与公共和私营部门的各种利益相关者合作的机会，并支持和传播我们的推广活动。
 
-（a）国会意识–这是国会意识到的：
+特别注意以上我用**粗体和斜体**标注的文字。
 
-（1）了解中共病毒疫情的起源至关重要，这样美国才能更好地准备、预防和应对未来疫情对健康的威胁；
+因为我是通过封锁怀疑论者收集的有关Covid-19发展的链接，注意到这则广告的。这些信息里，有一些是关于即将到来的疫苗护照制度的新闻条目 ，这则广告并没有让我感到惊讶，也因为到目前为止，人类已经被新冠病毒错乱综合征带来的邪恶，折磨了一年多。
 
-（2）鉴于中共病毒疫情对所有美国人的影响，美国人民理应了解美国政府掌握的有关中共病毒起源的信息；
+**如果我在2020年3月中旬之前遇到这则广告，我会****感到震惊****、惊愕、错愕。 **英国卫生当局正试图将无症状人群的检测作为日常生活的一部分，这一举措正在进行中。看到支持这种荒唐的侵犯隐私和侵犯自由的方式，我首先会去谷歌搜索，以确保这则广告不是一个骗局。如果我惊恐地发现它是真的，我会从键盘上发出愤怒的抗议。
 
-（3）国会与美国政府以及其他13个外国政府一样，对世界卫生组织派往中共国研究中共病毒起源的国际专家组“严重延误，无法获得完整的原始数据和样本”的事件表示关切；
+**但在2021年4月****看到这则****广告，却根本没有****让人****惊讶**。 这种侵犯自由的行为是大卫-哈特所说的 “卫生社会主义 “可以预见的部分，在过去的13个月里，它已经降临到很多人身上。
 
-（4）2021年3月30日，世卫组织总干事特德罗斯·阿达诺姆·盖布雷耶苏斯（Tedros Adhanom Ghebreyesus）博士的声明进一步确认，调查组在获取必要的原始数据时遇到了“困难”，即“我们尚未找到病毒的来源”，“所有假设仍在讨论中”；
+**多么悲伤****，这真是一个悲剧。**
 
-（5）对于独立专家来说，充分获取所有相关人、动物和环境数据、活病毒样本、（疫情）爆发早期阶段有关的研究，参与人员，确定这种流行病是如何出现的，这一点至关重要。
+看到这则广告，我不禁再次发问：自由之友在哪里？ 为什么这么多人在面对自由和文明遭到如此可怕的打击时，仍然保持沉默？我真的不明白，那么多曾经可靠的雄辩的自由之声，今天的却沉默不语。这些声音在过去一直在告诫政府官员的荒谬虚伪，以及这些官员的不正当动机。
 
-（b）所需报告–在本法案颁布后180天内，国家情报总监与国务卿、卫生和公共服务部长、能源部长和其他相关执行部门协调，应向国会拨款委员会提交一份报告，包括：
+**我**仍然**相信我**没有资格**对别人**的**沉默**进行评判。 但我可以在试图解释这种沉默的同时，避免做出评判。以下是我的**怀疑** ，**我强调是怀疑** ， 就是在许多自由主义者**、**古典自由主义者和自由市场保守派的脑海中，他们对新冠病毒暴政保持沉默与川普的联系。
 
-（1）武汉病毒学研究所（WIV）对中共病毒最可能的来源或起源的评估，包括对美国掌握的所有信息的详细审查，基于美国政府迄今为止的信息，已确定可能与中共病毒的来源或起源有关，包括人畜共患传播和泄露、武汉病毒研究所或其他来源、传播或泄露；
+**在2020年春天，主流媒体和大多数精英声音**，已经被他们**对唐纳德-川普的无比仇恨**所鼓动**，把新冠病毒的**责任直接都归咎于**川普。**
 
-（2）美国政府对中共病毒病因学主要可信理论的鉴定，美国为验证这些理论所采取的步骤，以及美国情报机构、执行机构和执行办公室之间对中共病毒最可能来源或起源的评估或异议的差异，以及此类差异或异议的依据；
+在他们看来，**川**普未能让国家以抗击新冠疫情的名义，采取更多措施限制人们的自由，是新冠病毒在美国爆发传播的主要原因。
 
-（3）描述美国政府为识别和调查中共病毒的来源所采取的所有措施，包括这些努力的时间表；
+在这里的事实变得不重要了。事实是**美国总统没有宪法权力以任何方式单方面封锁国家**，就像鲍里斯约翰逊封锁英国，或者州长戈尔·格罗尔·惠特默封锁密歇根州，还有其他州长封锁他们自己的州一样
 
-（4）美国和世卫组织要求提供的数据的详细说明，以及有权接触以确定中共病毒的来源；
+在我看来，川普给支持封锁的**安东尼福奇和比尔克斯**一个非常重要的位置，他们得以传达脱离上下文的信息，有时候甚至是故意的虚假的关于这种病毒的信息。尽管有大量的证据表明，封锁对于新冠病毒的传播，影响很小，甚至没有影响。这个事实在这里也变得那么不重要了。
 
-（5）以报告形式说明，中共国在调查或审查确定中共病毒的来源和传播方面的配合，阻挠或妨碍的努力，（报告）包括可能的实验室泄露，中共国或中国共产党制造和散播有关病毒来源和传播错误或虚假的信息，包括国家和地方政府以及卫生实体；
+川**普**确实发表了一长串关于新冠病毒的愚蠢的（在我看来）言论。 人们如此鄙视他，以至于无论他做了什么或者说了什么（除了“我立即辞职”以外），他从一开始就注定要被塑造成小人，因为新冠病毒必须被关注，必须把**Covid**的责任推到他的身上。
 
-（6）美国政府关于武汉病毒研究所及相关设施已知信息的详细说明，包括中共病毒研究活动和功能获得研究、与实验室相关人员的任何疾病报告（症状与中共病毒一致）和最终诊断，以及与中共病毒相关研究的时间表；
+人们认为川普应该受到谴责，这进一步助长了川普和一般政治右派的人就是罪魁祸首的说法，尤其是川普的支持者被认为与敌视科学有关。这篇文章不是探讨这种关联的正义性的地方。我在这里只做三点总结：第一，许多政治左翼人士认为的已经视为定论的科学，其实不是。第二，许多政治左派的人与政治右派的人一样，都有无视科学的习惯，不仅仅是经济科学。特别是当这样做能促进他们的政治目的时候。第三，最终必须如何进行权衡的，不是也不可能是科学，而是人类价值判断。 虽然公共政策应该以科学为依据，但公共政策不可能由科学来决定。任何持相反观点的人既不了解科学，也不了解社会。
 
-（7）中共国任何已知约定的清单，即，在发生中共病毒疫情时中共国需要提供的披露和合作；以及
+**以上这些事实都不重要。 唯一重要的是，**无论准确与否，川**普**与**反对以打击Covid的名义实施的封锁和其他限制**联系在了一起**。**与蓝州相比，红州对封锁和强制戴口罩的抵制更大，这一事实为这种关联提供了支持。因为今天川普和共和党处于美国政治和意识形态的“不科学”极点，因此得出了不合逻辑的结论。即新冠病毒的封锁和限制（被视为反川普主义的）是支持科学的，也是理性的和正当的。
 
-（8）概述美国与中共国在中共病毒方面的接触，包括：
+我怀疑，许多现在对此沉默的自由之友真的相信，右翼反对封锁和Covid癔症本身，就足以证明Covid封锁的价值和对Covid的强烈恐惧。**这些自由之友中的其他人可能对锁定和Covid**癔症**持沉默的怀疑，**但**不愿公开表达这些怀疑**，因为**担心会被视为**川**普**的支持者**。**
 
-（A）详细说明美国与武汉病毒研究所，以及中共国类似实验室在中共病毒方面的合作，包括详细说明美国政府赞助的研究和资助，以及外交合作，如“轨道1.5”和“轨道2”合作（笔者注：指个人、团体的“非国家行为”合作方式）；以及
+当然，面对这种对自由的不断挑战，每个现在奇怪的沉默的自由朋友都有自己独特的理由来保持沉默。 毫无疑问，我在这里对“任何川普主义的东西过敏”的解释并不能解释每个人的沉默。 **一些沉默的人真诚地（在我看来**如果**是莫名其妙地）确实相信Covid-19对人类构成了如此独特的严重威胁，以至于我们没有允许国家封锁我们，让我们戴口罩**，**以及**用**其他方式限制我们的**活动，而对此感到了失望**，**否则**只要国家认为有必要**的，没有问题**。**
 
-（B）在2017年美国政府暂停资助后，对美国政府资助用于支持在中共国进行功能增益研究的任何额外资金进行评估，以及在暂停资金期间（2014—2017），是否有美国资金被用于中共国的功能增益研究。
+其他一些人可能由于我猜测不出来的原因而陷入沉默。
 
-（c） 表格——（b）要求的报告应以非保密形式提交，但可包括保密附件。
+但我担心，许多自由之友今天的沉默，很大程度上源自于一种脆弱的认同：封锁反对派与川普主义是一体的。**对**川**普的憎恶是如此**强**烈，以至于推翻**了一种**常识**性的认识：**作为总统的**川**普并不具备国王坎特**所**吹嘘的那种权力**。与川普和他的追随者保持距离的渴望是如此强烈，以至于它似乎使许多人对正在进行的对自由和文明的不可原谅的破坏视而不见。
 
-（d） 定义适当的国会委员会，在本节中，“适当的国会委员会”一词是指：
+不要从上面推断我是川普的粉丝。我当然不是。从一开始我就一直批评他。但是当人们权衡专制主义的程度时，实际上可能是川普，将这种专制政权指责为煽动和助长，Covid的隔离，戴口罩，学校停课，还有关于Covid歇斯底里的暴政数量，仍然被政府官员煽动** **，病毒的政权的暴政远远超过了川普的暴政。
 
-（1） 参议院外交关系委员会；
+原文链接：https://www.zerohedge.com/covid-19/why-silence-face-covid-tyranny
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-（2） 参议院情报特别委员会；
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-（3） 参议院健康、教育、劳动和养老金委员会；
 
-（4） 参议院军事委员会；
-
-（5） 众议院外交事务委员会；
-
-（6） 众议院情报常设特别委员会；
-
-（7） 众议院能源和商业委员会；以及
-
-（8） 众议院军事委员会
-
-（本章节完）
-
-参考链接：
-
-【1】https://www.gnews.org/zh-hans/1065880/
-
-文字整理：
-
-SEC. 214. REPORT ON ORIGINS OF THE COVID–19 PANDEMIC.
-
-(a) SENSE OF CONGRESS. –t is the sense of Congress that—
-
-(1) it is critical to understand the origins of the COVID–19 pandemic so the United States can better prepare, prevent, and respond to pandemic health threats in the future;
-
-(2) given the impact of the COVID–19 pandemic on all Americans, the American people deserve
-
-to know what information the United States Government possesses about the origins of COVID–19, as appropriate;
-
-(3) Congress shares the concerns expressed by the United States Government and 13 other foreign governments that the international team of experts dispatched to the People’s Republic of China by the World Health Organization (WHO) to study the origins of the SARS–CoV–2 virus was ‘‘significantly
-
-delayed and lacked access to complete, original data and samples’’;
-
-(4) the March 30, 2021, statement by the Director-General of the WHO, Dr. Tedros Adhanom Ghebreyesus, further affirms that the investigative team had encountered ‘‘difficulties’’ in accessing
-
-necessary raw data, that ‘‘we have not yet found the source of the virus,’’ and that ‘‘all hypotheses remain on the table’’; and
-
-(5) it is critical for independent experts to have full access to all pertinent human, animal, and environmental data, live virus samples, research, and personnel involved in the early stages of the out- break relevant to determining how this pandemic emerged.
-
-(b) REPORT REQUIRED. –Not later than 180 days after enactment of this Act, the Director of National Intelligence, in coordination with the Secretary of State, the Secretary of Health and Human Services, the Secretary of Energy, and other relevant executive departments, shall submit to the appropriate committees of Congress a report consisting of–
-
-(1) an assessment of the most likely source or origin of the SARS–CoV–2 virus, including a detailed review of all information the United States possesses that it has identified as potentially relevant to the source or origin of the SARS–CoV–2 virus, including zoonotic transmission and spillover, the Wuhan Institute of Virology (WIV), or other sources of origin, transmission, or spillover, based on the information the United States Government has to date;
-
-(2) an identification of the leading credible theories of the etiology of the SARS–CoV–2 virus by the United States Government, the steps the United States has taken to validate those theories, and any
-
-variance in assessment or dissent among or between United States intelligence agencies, executive agencies, and executive offices of the most likely source or origin of the SARS–CoV–2 virus, and the basis for such variance or dissent;
-
-(3) a description of all steps the United States Government has taken to identify and investigate the source of the SARS–CoV–2 virus, including a timeline of such efforts;
-
-(4) a detailed description of the data to which the United States and the WHO have requested and
-
-have access to in order to determine the origin of the source of the SARS–CoV–2 virus;
-
-(5) an account of efforts by the PRC to cooperate with, impede, or obstruct any inquiry or investigation to determine the source and transmission of SARS–CoV–2 virus, including into a possible lab
-
-leak, or to create or spread misinformation or disinformation regarding the source and trans mission of SARS–CoV–2 virus by the PRC or CCP, including by national and local governmental and health entities;
-
-6) a detailed account of information known to the United States Government regarding the WIV   and associated facilities, including research activities on coronaviruses and gain-of-function research, any reported illnesses of persons associated with the laboratory with symptoms consistent with COVID–19 and the ultimate diagnosis, and a timeline of research relevant to coronaviruses;
-
-(7) a list of any known obligations on the PRC that require disclosure and cooperation in the event of a viral outbreak like SARS–CoV–2; and
-
-(8) an overview of United States engagement with the PRC with respect to coronaviruses that includes—
-
-(A) a detailed accounting of United States engagement with the WIV and similar labs in the PRC specific to coronaviruses, including a detailed accounting United States Government sponsored research and funding and diplomatic engagements such as ‘‘track 1.5’’ and ‘‘track 2’’ engagements; and
-
-(B) an assessment of any additional scrutiny of United States Government funding to support gain-of-function research in the PRC after the moratorium on such funding was lifted in 2017, and whether United States Government funding was used to support gain-of-function research in China, during the moratorium on gain-of-function research (2014–2017).
-
-(c) FORM. –The report required by subsection (b) shall be submitted in unclassified form but may include a classified annex.
-
-(d) APPROPRIATE COMMITTEES OF CONGRESS DEFINED. –In this section, the term ‘‘appropriate committees of Congress’’ means–
-
-(1) the Committee on Foreign Relations of the Senate;
-
-(2) the Select Committee on Intelligence of the Senate;
-
-(3) the Committee on Health, Education, Labor, and Pensions of the Senate;
-
-(4) the Committee on Armed Services of the Senate;
-
-(5) the Committee on Foreign Affairs of the House of Representatives;
-
-(6) the Permanent Select Committee on Intelligence of the House of Representatives;
-
-(7) the Committee on Energy and Commerce of the House of Representatives; and
-
-(8) the Committee on Armed Services of the House of Representatives
 
 0

@@ -1,135 +1,147 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【班农战斗室】861.862.863期简讯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1074127/)
+## 美《2021战略竞争法》第214节关于中共病毒溯源
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1074312/)
 
-#### 翻译：七彩光
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-#### 校对/编辑：文泓
-![]()![](https://gnews.org/wp-content/uploads/2021/04/858-859-860_-1.png)
-图片来源：墨尔本雅典娜农场设计组（精灵蓝）
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-9.jpg)sdmayer.com
+4月8日，笔者第一时间发文报道了“美参议院将审议‘战略竞争法案’对抗中共”【1】，面对这份280多页的提案，自感能力和精力不足以承担对“重磅提案”的翻译和解读，期待着《路德社》、秘密翻译组，昨晚《路德社》作出了振奋人心的解读，令人回味无穷。
 
-主持人：史蒂夫.班农
+现将提案中涉及中共病毒部分摘译，供战友参考。
 
-嘉宾：Ben Bergquam, Darren Beattie, John Lott, Mike Lindell, Dr. Peter Navarro, Boris Epshteyn, Victor Avila, Todd Bensman
+第214节. 关于中共病毒疫情起源的报告
 
-#### **1、约翰.洛特被拜登关于枪支的大量谎言所震惊**
+（a）国会意识–这是国会意识到的：
 
-约翰.洛特（John Lott）详细剖析了控枪新闻发布会上乔.拜登所陈述的令人震惊的大量谎言。
+（1）了解中共病毒疫情的起源至关重要，这样美国才能更好地准备、预防和应对未来疫情对健康的威胁；
 
-【**备注：**约翰.理查德.洛特（John Richard Lott Jr.）是美国经济学家、政治评论家，也是枪支权利倡导者和川普任期的政府官员，现担任司法项目办公室研究与统计高级顾问。】
+（2）鉴于中共病毒疫情对所有美国人的影响，美国人民理应了解美国政府掌握的有关中共病毒起源的信息；
 
-“我对那场短短的演讲中的充斥着大量谎言感到震惊”，洛特周五告诉《战斗室》。
+（3）国会与美国政府以及其他13个外国政府一样，对世界卫生组织派往中共国研究中共病毒起源的国际专家组“严重延误，无法获得完整的原始数据和样本”的事件表示关切；
 
-洛特说，拜登针对的目标是枪械制造业，并称控枪是左派灾难性政策失败的挡箭牌，比如“减少为警方提供资金”。
+（4）2021年3月30日，世卫组织总干事特德罗斯·阿达诺姆·盖布雷耶苏斯（Tedros Adhanom Ghebreyesus）博士的声明进一步确认，调查组在获取必要的原始数据时遇到了“困难”，即“我们尚未找到病毒的来源”，“所有假设仍在讨论中”；
 
-拜登谎称，缺乏枪支管制是2020年凶杀案增加的原因，而不是民主党执政的城市故意将罪犯从从监狱里（提前）释放，并且还减少警方所需资金支持。
+（5）对于独立专家来说，充分获取所有相关人、动物和环境数据、活病毒样本、（疫情）爆发早期阶段有关的研究，参与人员，确定这种流行病是如何出现的，这一点至关重要。
 
-洛特说：“凶杀案增加这么多，是因为政府不允许警察恪尽职守，而检察官也没有起诉这些罪犯。”
+（b）所需报告–在本法案颁布后180天内，国家情报总监与国务卿、卫生和公共服务部长、能源部长和其他相关执行部门协调，应向国会拨款委员会提交一份报告，包括：
 
-“如果罪犯不担心被抓，即使被抓也不担心被起诉，你猜怎么着？他们肯定会从事更多的犯罪活动。”洛特说。
+（1）武汉病毒学研究所（WIV）对中共病毒最可能的来源或起源的评估，包括对美国掌握的所有信息的详细审查，基于美国政府迄今为止的信息，已确定可能与中共病毒的来源或起源有关，包括人畜共患传播和泄露、武汉病毒研究所或其他来源、传播或泄露；
 
-“去年枪支管制法修改的条款，要对其负什么责任呢？” 洛特问道。
+（2）美国政府对中共病毒病因学主要可信理论的鉴定，美国为验证这些理论所采取的步骤，以及美国情报机构、执行机构和执行办公室之间对中共病毒最可能来源或起源的评估或异议的差异，以及此类差异或异议的依据；
 
-洛特作为《更多的枪支，更少的犯罪》一书的作者，他说，如果城市在犯罪问题上软弱无力，并减少警方相关经费，犯罪率就会上升，这不是什么难以理解的逻辑问题。
+（3）描述美国政府为识别和调查中共病毒的来源所采取的所有措施，包括这些努力的时间表；
 
-洛特说，枪支管制“为他们提供了一个借口”，“当他们的政策失败的时候，他们就以此为借口归咎于他人。”
+（4）美国和世卫组织要求提供的数据的详细说明，以及有权接触以确定中共病毒的来源；
 
-#### 2、深层政府败类向MAGA宣战
+（5）以报告形式说明，中共国在调查或审查确定中共病毒的来源和传播方面的配合，阻挠或妨碍的努力，（报告）包括可能的实验室泄露，中共国或中国共产党制造和散播有关病毒来源和传播错误或虚假的信息，包括国家和地方政府以及卫生实体；
 
-《左轮新闻（Revolver News）》的达伦.比提（Darren Beattie）说，“深层政府”已经对MAGA宣战。
+（6）美国政府关于武汉病毒研究所及相关设施已知信息的详细说明，包括中共病毒研究活动和功能获得研究、与实验室相关人员的任何疾病报告（症状与中共病毒一致）和最终诊断，以及与中共病毒相关研究的时间表；
 
-比提揭露了这些“深层政府败类”签署了一份国安信，该信将美国爱国者们打为“国内恐怖分子”。
+（7）中共国任何已知约定的清单，即，在发生中共病毒疫情时中共国需要提供的披露和合作；以及
 
-“这场新的‘反恐’战争将由你们来主演”，比提周五告诉《战斗室》观众和听众：“而且（主题）同样是关于腐败、无能与不道德。”
+（8）概述美国与中共国在中共病毒方面的接触，包括：
 
-“每个人都需要知道这些是什么样的人渣。”他说。
+（A）详细说明美国与武汉病毒研究所，以及中共国类似实验室在中共病毒方面的合作，包括详细说明美国政府赞助的研究和资助，以及外交合作，如“轨道1.5”和“轨道2”合作（笔者注：指个人、团体的“非国家行为”合作方式）；以及
 
-人渣名单中包括詹姆斯.克拉珀（James Clapper），“一个作伪证的人，一个骗子，十足的人渣”。另外，被称为颜色革命“咖啡男孩”的迈克尔.麦克福尔（Michael McFaul），以及迈克尔.海登（Michael Hayden），分别是“一个众所周知的骗子”和“更狡猾的人渣”。
+（B）在2017年美国政府暂停资助后，对美国政府资助用于支持在中共国进行功能增益研究的任何额外资金进行评估，以及在暂停资金期间（2014—2017），是否有美国资金被用于中共国的功能增益研究。
 
-【备注：詹姆斯·克拉珀（James Clapper），美国空军退役中将，是前国家情报局局长。1992年至1995年，他担任国防情报局局长。2001年9月至2006年6月，他担任国家地理空间情报局（NGA）局长。2010年6月5日，被提名为新任美国国家情报总监，接替刚刚辞职的布莱尔。2010年8月到2017年1月20日任国家情报总监，于川普总统就任当日辞职。】
+（c） 表格——（b）要求的报告应以非保密形式提交，但可包括保密附件。
 
-【备注：迈克尔•麦克福尔（Michael McFaul），目前是胡佛研究院的高级研究员，斯坦福大学的政治学教授、弗里曼•斯波利国际事务政治研究所的主要负责人、美国国家广播公司的分析员。2012年1月至2014年2月，他在俄罗斯担任美国驻俄罗斯的大使。】
+（d） 定义适当的国会委员会，在本节中，“适当的国会委员会”一词是指：
 
-【备注：迈克尔.文森特.海登（Michael Vincent Hayden），美国空军退役四星上将，曾任美国国家安全局局长(1999.2005)、国家情报局首席副局长(2005.2006)、中央情报局局长(2006.2009)。2017年，海登成为CNN的国家安全分析师】
+（1） 参议院外交关系委员会；
 
-比提称该名单是一个“真正肮脏的流氓者展示画廊”。
+（2） 参议院情报特别委员会；
 
-“这些签名者正在向所有的美国爱国者宣战”，他说：“是你，是我，是7400万像我们这样（支持川普）的美国人。”
+（3） 参议院健康、教育、劳动和养老金委员会；
 
-“这些人是骗子”，班农说：“比骗子更糟糕的是，他们不但是无能的”，并且还 ‘协助了’中共的崛起。”
+（4） 参议院军事委员会；
 
-#### 3、2020年11月3日，来自于中共国的19次网络黑客攻击将5个州的选票转换给了拜登
+（5） 众议院外交事务委员会；
 
-“我的枕头（My Pillow）”首席执行官（CEO）迈克.林德尔（Mike Lindell）表示，他掌握了11月3日来自中共国的网络攻击的确凿证据，这些攻击偷走了唐纳德.川普的五个州（选举结果）。
+（6） 众议院情报常设特别委员会；
 
-“19次（黑客）网络攻击都来自中国”，林德尔周五告诉《战斗室》：“我们有人员在实地调查每一次攻击。”
+（7） 众议院能源和商业委员会；以及
 
-林德尔说，一个独立的第三方权威机构核实了这些来自于中共国的IP地址、电脑、确切的位置和建筑物，以及用于登录进入的密码，还有他们在美国的合谋窃取选票的同伙们。
+（8） 众议院军事委员会
 
-“我们有他们留下的痕迹，有时间戳，第三方权威机构已经验证了这一切。”林德尔说。
+（本章节完）
 
-其中一次发生在（2021年）11月3日晚上11点03分，黑客网络攻击显示了选票从唐纳德.川普到乔.拜登的精确转换。
+参考链接：
 
-“就是这19次黑客网络攻击，将威斯康星州、密歇根州、亚利桑那州、宾夕法尼亚州和佐治亚州这五个州的选票都进行了翻转，”林德尔说。
+【1】https://www.gnews.org/zh-hans/1065880/
 
-“这已经足够了”，他说：“这是百分之百的证据。”
+文字整理：
 
-林德尔说，他将在4月19日上线运行的新社交媒体平台“Frank”上播出这些证据，将持续至少5周播放。然后，他将形成一个讼诉案送达至最高法院。
+SEC. 214. REPORT ON ORIGINS OF THE COVID–19 PANDEMIC.
 
-此外，林德尔还透露，由于受到威胁，现在已经站出来的举报人都被保护在安全的地方。
+(a) SENSE OF CONGRESS. –t is the sense of Congress that—
 
-“我们不仅仅有网络（黑客犯罪）证据”，他说：“我们还有证据证明是谁干的，谁为Smartmatic公司工作，等等所有证据。”
+(1) it is critical to understand the origins of the COVID–19 pandemic so the United States can better prepare, prevent, and respond to pandemic health threats in the future;
 
-【备注：Smartmatic公司是多米尼（Dominion）公司的子公司，其相关资料信息已经被国外大科技公司进行了隐藏，可以参阅GNews文章《[关于Dominion选票系统公司身后的Smartmatic](https://gnews.org/zh-hans/550304/)》】
+(2) given the impact of the COVID–19 pandemic on all Americans, the American people deserve
 
-#### 4、迈克.林德尔的新社交媒体产品“Frank”将提前对VIP会员开放
+to know what information the United States Government possesses about the origins of COVID–19, as appropriate;
 
-迈克.林德尔（Mike Lindell）在《战斗室》节目中展示预览了他的新社交媒体平台“Frank”，并表示该平台将于下周先面向VIP推出。
+(3) Congress shares the concerns expressed by the United States Government and 13 other foreign governments that the international team of experts dispatched to the People’s Republic of China by the World Health Organization (WHO) to study the origins of the SARS–CoV–2 virus was ‘‘significantly
 
-林德尔表示，开发研究这个平台已经4年了，仅在安全方面就投入了超过200万美元。
+delayed and lacked access to complete, original data and samples’’;
 
-您可以在[FrankSpeech.com](http://frankspeech.com/)上了解更多关于注册的信息。该平台将于4月19日正式上线运行。
+(4) the March 30, 2021, statement by the Director-General of the WHO, Dr. Tedros Adhanom Ghebreyesus, further affirms that the investigative team had encountered ‘‘difficulties’’ in accessing
 
-#### 5、迈克.林德尔再次起诉多米尼公司：我们将以最大可能的规模追击它们
+necessary raw data, that ‘‘we have not yet found the source of the virus,’’ and that ‘‘all hypotheses remain on the table’’; and
 
-“我的枕头（My Pillow）”首席执行官（CEO）迈克.林德尔（Mike Lindell）即将对多尼米公司（Dominion）和Smartmatic公司发起进攻，宣布发起另一项诉讼，起诉该投票机公司扼杀言论自由。
+(5) it is critical for independent experts to have full access to all pertinent human, animal, and environmental data, live virus samples, research, and personnel involved in the early stages of the out- break relevant to determining how this pandemic emerged.
 
-“我们将以尽可能大规模的方式追击他们”，林德尔周五告诉《战斗室》：“我们的起诉也包括Smartmatic。它们是幕后主使。”
+(b) REPORT REQUIRED. –Not later than 180 days after enactment of this Act, the Director of National Intelligence, in coordination with the Secretary of State, the Secretary of Health and Human Services, the Secretary of Energy, and other relevant executive departments, shall submit to the appropriate committees of Congress a report consisting of–
 
-林德尔说，自1798年以来，还没有一家公司以这种方式，即利用诉讼来威胁不同意见和扼杀言论自由。
+(1) an assessment of the most likely source or origin of the SARS–CoV–2 virus, including a detailed review of all information the United States possesses that it has identified as potentially relevant to the source or origin of the SARS–CoV–2 virus, including zoonotic transmission and spillover, the Wuhan Institute of Virology (WIV), or other sources of origin, transmission, or spillover, based on the information the United States Government has to date;
 
-“这是18世纪以来，第一次有公司做出这样的事情”，林德尔说：“你能想象如果我们放任不管会出现什么后果吗？”
+(2) an identification of the leading credible theories of the etiology of the SARS–CoV–2 virus by the United States Government, the steps the United States has taken to validate those theories, and any
 
-“我想要追击他们”，他说：“因为他们的所作所为，所以‘我的枕头’公司要去追击他们……这是我们的第一修正案的权利。多米尼投票机（Dominion）公司通过使用诉讼来压制第一修正案，所以新闻媒体机构甚至都不敢让举报人出镜作证，导致人人自危。”
+variance in assessment or dissent among or between United States intelligence agencies, executive agencies, and executive offices of the most likely source or origin of the SARS–CoV–2 virus, and the basis for such variance or dissent;
 
-这其中就包括福克斯新闻（Fox News），它对选民舞弊问题避而不谈，并因为（嘉宾）提出这个话题而切断了包括川普总统在内的嘉宾连线。
+(3) a description of all steps the United States Government has taken to identify and investigate the source of the SARS–CoV–2 virus, including a timeline of such efforts;
 
-“主流媒体都不会接受我上节目”，林德尔说：“我愿意上任何节目来谈论真相。福克斯不会让我上。你不得不思考这是为什么？”
+(4) a detailed description of the data to which the United States and the WHO have requested and
 
-“你为什么不把自己作为一个新闻节目？” 林德尔说：“他们才应该是受采访的嘉宾。”
+have access to in order to determine the origin of the source of the SARS–CoV–2 virus;
 
-#### 6、迈克.林德尔致力于开发亚马逊平台替代方案“我的商店”
+(5) an account of efforts by the PRC to cooperate with, impede, or obstruct any inquiry or investigation to determine the source and transmission of SARS–CoV–2 virus, including into a possible lab
 
-除了社交媒体平台外，迈克.林德尔（Mike Lindell）正在打造更多大科技公司产品的替代方案，他宣布正在开发一个名为“我的商店”的亚马逊竞争平台。
+leak, or to create or spread misinformation or disinformation regarding the source and trans mission of SARS–CoV–2 virus by the PRC or CCP, including by national and local governmental and health entities;
 
-周五，林德尔在《战斗室》的接受采访中披露了这个新项目。
+6) a detailed account of information known to the United States Government regarding the WIV   and associated facilities, including research activities on coronaviruses and gain-of-function research, any reported illnesses of persons associated with the laboratory with symptoms consistent with COVID–19 and the ultimate diagnosis, and a timeline of research relevant to coronaviruses;
 
-林德尔的名为“Frank ”的新社交媒体平台，综合了油管（YouTube）和推特（Twitter）的功能，将于4月19日正式上线。该平台将在本周末前提前向VIP会员开放注册。
+(7) a list of any known obligations on the PRC that require disclosure and cooperation in the event of a viral outbreak like SARS–CoV–2; and
 
-**原文链接：**
+(8) an overview of United States engagement with the PRC with respect to coronaviruses that includes—
 
-1.  [John Lott ‘Shocked by the Number of Lies’ Biden Told About Guns](https://pandemic.warroom.org/2021/04/09/john-lott-shocked-by-the-number-of-lies-biden-told-about-guns/)
+(A) a detailed accounting of United States engagement with the WIV and similar labs in the PRC specific to coronaviruses, including a detailed accounting United States Government sponsored research and funding and diplomatic engagements such as ‘‘track 1.5’’ and ‘‘track 2’’ engagements; and
 
-2.  [Deep State Scum Declares War on MAGA](https://pandemic.warroom.org/2021/04/09/deep-state-scum-declares-war-on-maga/)
+(B) an assessment of any additional scrutiny of United States Government funding to support gain-of-function research in the PRC after the moratorium on such funding was lifted in 2017, and whether United States Government funding was used to support gain-of-function research in China, during the moratorium on gain-of-function research (2014–2017).
 
-3.  [19 Cyber Attacks from China Flipped 5 States to Biden on Nov. 3](https://pandemic.warroom.org/2021/04/09/19-cyber-attacks-from-china-flipped-5-states-to-biden-on-nov-3/)
+(c) FORM. –The report required by subsection (b) shall be submitted in unclassified form but may include a classified annex.
 
-4.  [Mike Lindell’s New Social Media ‘Frank’ to Launch Early for VIPs](https://pandemic.warroom.org/2021/04/09/mike-lindells-new-social-media-frank-to-launch-early-for-vips/)
+(d) APPROPRIATE COMMITTEES OF CONGRESS DEFINED. –In this section, the term ‘‘appropriate committees of Congress’’ means–
 
-5.  [Mike Lindell Suing Dominion AGAIN: ‘We’re Going After Them in the Biggest Way Possible’](https://pandemic.warroom.org/2021/04/09/mike-lindell-suing-dominion-again-were-going-after-them-in-the-biggest-way-possible/)
+(1) the Committee on Foreign Relations of the Senate;
 
-6. [Mike Lindell Pursuing Amazon Alternative Called ‘My Store’](https://pandemic.warroom.org/2021/04/09/mike-lindell-pursuing-amazon-alternative-called-my-store/)
+(2) the Select Committee on Intelligence of the Senate;
+
+(3) the Committee on Health, Education, Labor, and Pensions of the Senate;
+
+(4) the Committee on Armed Services of the Senate;
+
+(5) the Committee on Foreign Affairs of the House of Representatives;
+
+(6) the Permanent Select Committee on Intelligence of the House of Representatives;
+
+(7) the Committee on Energy and Commerce of the House of Representatives; and
+
+(8) the Committee on Armed Services of the House of Representatives
 
 0

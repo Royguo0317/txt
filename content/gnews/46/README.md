@@ -1,28 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共官方首次承认中共病毒疫苗效率低下
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1073273/)
+## 【战友心声】跟着共产党快步走进火葬场
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1073341/)
 
-**路仁**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/高福.jpg)
-中共疾控中心主任高福本周六（4月10）号在成都举行的“中国疫苗与健康大会”上，首次代表中共官方承认国产疫苗效率低下，并不能达到免疫的目标。尽管中共官方宣布的其三款灭活疫苗和腺病毒载体疫苗的有效率都在70%以上，但是从巴西注射中共病毒的数据来看，其效率只有50.4%。中共将其再次感染的原因都归结于变种病毒。
-
-高福建议针对疫苗效率低下的解决办法：
-
-1. 调整两次注射的间隔
-2. 增加多一次注射
-3. 与其他种类疫苗混合注射
+作者：纽约香草山媒体部 蜜蜂
 
 
-来自上海的疫苗专家陶黎纳认为，中共国产灭活疫苗以及腺病毒载体疫苗和世界先进的mRNA疫苗用的不同的技术，产生的抗体少效率低下是自然的结论。而也就是这个所谓的专家，曾经在微博上曾经写了一篇《国产灭活COVID-19疫苗恐称为全球最不安全的疫苗》，被国内外媒体和网友疯传。后又急忙发帖认错，删帖了事。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/weibo-5.jpg)
-时至今日，中共官方依旧对国产疫苗的副作用不作报道, 所有的案例都没有报道。但据网上的一份南江县人民医院通知医生强制接种中共病毒已面临的文件来看，中共研发的国产疫苗，连自己人都信不过的。现在又要强制接种第三针，其险恶用心昭然若揭。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/fdad.jpg)
-[参考链接](https://www.scmp.com/news/china/science/article/3129053/china-considers-mixing-covid-19-vaccines-offer-more-protection?utm_term=Autofeed&amp;utm_medium=Social&amp;utm_content=article&amp;utm_source=Twitter#Echobox=1618066243)
 
-* * *
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-*编辑、发稿 文锦*
+
+
+据中山大学生命科学学院4月9日发布的讣告，4月8日，中国共产党党员、中山大学教授、博士生导师、国家杰出青年科学基金获得者、生命科学学院院长赵勇因病于广州不幸逝世，终年45岁。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-144.png)
+
+踏着“清明节经济”的节奏，又一位党的好儿子带着党给与的光环不明不白地为党失去了生命之魂，快步走进了火葬场。赵勇年仅45岁，党龄却已有22年。
+
+1998年6月，赵勇毕业于南开大学生命科学学院，获理学学士学位；2003年6月毕业于武汉大学生命科学学院，获理学博士学位；2003年7月至2006年3月在武汉大学生命科学院从事博士后研究工作。2006年4月，他被中共送到美国德克萨斯州立大学从事“博士后研究工作”，随后，其打进美国Ellison基金会及美国衰老研究联合会（AFAR)，并于2009年起任美国德克萨斯州立大学助理讲师。此时，他已出色完成党交给他的“关荣使命”，为己争了光，为党谋了利。
+
+2011年6月，赵勇听从党的召唤，回国效劳于广州中山大学生命科学院，任学院教授。随后，他服从党的安排，先后任国际合作与交流处处长、人才发展办公室主任、校长助理。
+
+他在任期间为党效忠，积极开发生命科学研究，他在《Nature Communications》上发表了题为“Homologous recombination-dependent repair of telomeric DSBs in proliferating human cells”的研究论文，回答了“端粒上的DNA双链断裂能否被修复”这一领域内争论很久的科学问题。同时，也发现端粒DNA损伤激活了本被严格抑制的同源重组机制，从而修复DNA损伤。在此期间他涉猎广泛高深，还身兼两职：生命科学院党委书记和院长。这代表着，在学院内，党的一切勾当都由他全权代表，党叫干啥就干啥。
+
+如今，在类似光荣榜的讣告中人们找不到赵勇死亡的病因，不知是否难于启齿：是为党呕心沥血累死的呢，还是像其他尖端敏感领域科学研究人员一样，在关键时刻被灭口了呢？赵勇22年的党龄再次告诉我们：跟着共产党，走进火葬场。
+
+（本文观点仅代表作者）
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+审核：灵性探索
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
 
 0
