@@ -1,61 +1,238 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭爆料串珠（230）假美钞、芬太尼是中共全力3F、BGY美国的重要手段
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1077851/)
+## 美国政要等每日重要信息0411.2021
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1077199/)
 
-**简述：美元的发行和全世界其他货币不一样，它是定期销毁。每个财政部长上来都签署美元回收，他收回就销毁，他就怕假美元嘛。但是，印假钞在这个世界上不仅有中共、北朝鲜，很多国家都印，但我相信中共是第一大！也就是共产党给自己的国民印了个假钞让你玩。就像我家Snow一样，给它假骨头棒，让它咬吧，真正吃不下去，不是真骨头。 所以，亲爱的战友们！不要再说连票，还有什么假钞、连号，这都不重要。唯一需要大家要记住的是，真正有很多美元，只要你有大钱的时候——完了！你真带不出来，绝对带不出来。……反过来我再告诉你美元的事情，你有美元你试试？你把你在大陆取到的几十万、几百万美元，你到美国来存存试试。你看有多少有问题的，台湾那100万美元一张的都出来了。我告诉他，无数次的经历，几十万美元到外边，啪就出问题了。这些美元都在中东、非洲，已经在东南亚、非法交易中，都是用现金交易；真正进入外国的金融系统，一下就麻烦了。——郭文贵2019年8月29日**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-13-24.jpg)
-封面图文：你在大陆能带500万美元出来吗？不可能。你只能通过大陆的银行系统往外汇，500万美元是吧？你一汇他就把假美元给你过滤掉了，还在内部循环呢。郭文贵19年8月29日
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
 
-2019年8月23日
-第二条，经济，经济！你给我加税是吧？我没有别的，我把我货币贬值，我给我美国朋友说很简单，我上你们家去，我要买你一台汽车，多少钱？10万美元，太贵了！美国说：“你买不买？加 1万美元，11万美元，”咱们这共产党说：“哎，还是太贵了！”“我加 25。”川普总统说 12万 5，结果中共说：“你加是吧？”一扭头，下边按了个开关，把我的钱，过去 10万的价值直接印成 20万美元，你还得赔我 7万 5，叫货币贬值，老子给你的钱是纸，12万 5都不给你了！川普总统不高兴了，你货币操纵！川普总统说了，你看，我本来给你说好的 10万美元，按美元结价，你的钱是 6块 8（汇率），现在我一涨到 12万 5美元一个车，一个凯迪拉克，你吧唧把你钱变了，变成了可能是现在是7.14、7.13了，还喊着：“我们不靠操纵货币，”结果背后就印钞票，川普就火了，货币操纵，你印假钞票，你给我的假钱嘛！好马上宣布，刚刚宣布了中国，管你买的东西加关税，5%到 10%，什么概念？你到我这来了，你拿假钱我就不会跟你这么做！然后美国还有一个美联储，美联储还老加息，一加息是什么？就美国生产车的人，借不了钱生产车的，你生产不了车了，你的原来的 10万美元的凯迪拉克可能是9万美元，你赚 1万美元，现在可能是 12万美元成本了！因为利息高了！这种情况下，没折了！中共在给你加税，你不赔钱吗？美国不就完了吗？所以川普总统公布了，说什么：“这会使美国失去几百万的工作机会”。
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
 
-你们到美国的中部，我给你们举个例子啊，就美国的很多中部的地方，就一个镇，它要安那个卫星电视，15000美元安那个卫星电视，整个镇子都可以看，大家都不兑这个钱，都现在那个镇子都没有卫星电视，90%的家里都是没有空调的，我告诉你他用不起空调，大多数都是宗教徒，天天在这会晚上念经，7、8点左右就睡觉，很多人都有病，美国可不是你们想象的那么富裕，那也有穷的。
 
-那个地方，大家要看到的事情，失去了绝大工作机会的人躲在深山里面，这些工作都是被共产党给夺走了。不但如此，美国失去了每年几千亿的贸易逆差。人家研究的精英硅谷圣地亚哥的精英们，搞的那些所有的技术产品，本来你中共的所有任何一个产品，像华为 5G研发费可能 5年到 10年你都拿不回来，这是为什么现在美国通讯商不愿意做5G，因为他拿不回来成本，但是人家是 0成本几乎拿走了，或者极低的成本，结果是什么？那就是川普总统抱怨了，汇率你操纵、产品知识产权是我的你不给我，你偷我的，然后你还要卖给我毒品，还要毒死我，哎！不算数，这时川普总统说了，这是少数人干的，习主席承诺了：毒品不卖了、货币不贬值、我也不偷你的知识产权了，好好！ 第四个，网络，现在大家都知道，所以说来了，现在是网络时代啊，网络时代涉及的安全和隐私啊，像咱们家密码大门一样，你不能老上我家，老是打开我家密码偷我家东西呀。看我们两口子在床上睡觉，我们两口子夫妻生活，你老看不行呀。你还拿去威胁，你还搞蓝金黄。
+## 中共病毒真相
 
-2019年8月29日
-另外一个，国内假钞、粮食的事情。很多人都在说取了钱，然后又到银行去存了，存进去了没问题。因为这事我不能太具体的说，在共产党内部印的钱，甭说你到中国银行去存百分之百没问题，或百分之九十九没问题，他有问题那不天天出事了吗？都在他内部循环，左手换右手玩的是假的嘛！关键是捣腾了你的钱，你汇出小额的也没问题，大额的钱你就弄不成了。
+4月11日劳伦斯-塞林博士使用爆料革命美东香草山农场的文宣图发推，推文如下：
 
-你汇出去时你别忘了，共产党不是背着美元到美国来，说我给你美元你给我新美元，不可能的。美元还在国内呢，这就是基本的逻辑。他煮了一锅烂肉，这些烂肉对于在这个屋裡面的人来说，你盛到碗里吃，你在锅里吃，你都得还回来，都在我这个锅裡面，你出不了我这个屋。结果是什么？这个屋里的人吃的都是烂肉，甚至是刚刚被挖出来的那种病猪肉。关键是这个猪肉，你千万别以为它就是真的，它就是病猪肉。在屋里怎么循环、怎么捣腾，锅里面都没问题；连号？连号太正常了。
+由于发病前高病毒载量和在上呼吸道脱落，是弗林酶切位点对对人体ACE2预先适应的高亲和力的结果，增加的无症状传播是#中共病毒大流行与SARS 和 MERS相比具备了生物武器特征。
 
-美元的发行和全世界其他货币不一样，它是定期销毁。每个财政部长上来都签署美元回收，他收回就销毁，他就怕假美元嘛。但是，印假钞在这个世界上不仅有中共、北朝鲜，很多国家都印，但我相信中共是第一大！也就是共产党给自己的国民印了个假钞让你玩。就像我家Snow一样，给它假骨头棒，让它咬吧，真正吃不下去，不是真骨头。
 
-所以，亲爱的战友们！不要再说连票，还有什么假钞、连号，这都不重要。唯一需要大家要记住的是，真正有很多美元，只要你有大钱的时候——完了！你真带不出来，绝对带不出来。
 
-我给大家举个最简单的例子，最近美国人在问我，他问芬太尼怎么到美国的，怎么能证明这个事情是共产党干的？我说我问你个最简单的问题……《大纪元》最近写了篇很好的报道，说郭文贵说了，芬太尼就是对美国的毒武器，那不仅仅如此。非常感谢《大纪元》写这篇文章，非常好！《大纪元》最近水平越来越高，格调越来越高，目标越来越清楚。而且，是直对共产党，影响巨大，非常佩服，非常感谢！
+> Increased asymptomatic transmission is a bioweapon feature that [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) has compared to SARS & MERS, due to pre-symptom high viral loads & shedding in the upper respiratory tract, a result of furin cleavage site insertion & pre-adapted high affinity human ACE2 binding[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/lNB5cKdGen](https://t.co/lNB5cKdGen)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 11, 2021](https://twitter.com/LawrenceSellin/status/1381156085944422402?ref_src=twsrc%5Etfw)
 
-——我要给他讲什么呢？芬太尼怎么来美国的，你就看一样，我说它是不是共产党的武器……所有战友今天在大陆，你拿三样东西，你去邮局寄去，任何渠道噢！邮寄一两酒，然后邮寄一盒月饼，再邮寄一公斤的芬太尼，你去寄寄试试！月饼一定给你打回去，酒绝对让你进不去，芬太尼绝对过，90%要过。共产党在这里边把芬太尼定义成什么？只要发往国外的芬太尼一律过关——把它定义为药物；把任何酒精定为危险品，月饼定为美国、西方不允许的食品，国家控制的食品。
 
-什么意思啊？就是共产党已经告诉了全国人民，只要能毒死外国人的，毒死美国人的，通通是国家利益——去！月饼都不行，一两酒都不行，甭说一斤酒，大家可以试去。
+图片信息：
+高传染性
+低杀伤力
+显著的毒性
+对温度不敏感
+无症状传播率高
+抗环境变化的能力
+破坏力是前所未有的
 
-反过来我再告诉你美元的事情，你有美元你试试？你把你在大陆取到的几十万、几百万美元，你到美国来存存试试。你看有多少有问题的，台湾那100万美元一张的都出来了。我告诉他，无数次的经历，几十万美元到外边，啪就出问题了。这些美元都在中东、非洲，已经在东南亚、非法交易中，都是用现金交易；真正进入外国的金融系统，一下就麻烦了。
 
-芬太尼是一样的，它是国家行为，它是个国家的行动，不是正常的行动。你在大陆能带500万美元出来吗？不可能的。你只能通过大陆的银行系统往外汇，500万美元是吧？你一汇他就把假美元给你过滤掉了，还在内部循环呢。
+## 中共病毒疫苗
 
-然后，只有共产党和盗国贼、欺民贼拿着这些前往到湄公河岸，到非洲买矿、买钻石，到那里边流通。那些毒品贩子也不敢随便去玩儿，那毒品贩子也通过非法手段去弄，暴露了也没问题。大家要明白，它这是一整套学问和逻辑，和芬太尼一样。芬太尼寄到美国没问题，在国内你去寄试试，不让你寄，这就是国家行为。
+4月9日据CNBC，辉瑞疫苗公司向FDA提交文件，将其中共病毒大流行（Covid-19）疫苗的紧急使用授权扩大到12至15岁的人。
 
-所以说，我们很多战友讨论的时候，真没有高人点出来这一点。你的美元在国内流通没有任何问题，都是小额的。大额的时候，只要你不是共产党的家人，随时它就把你干掉了，不是共产党的组织把你干掉了。但是，你输出去，输出不了，只有共产党能输出去。
 
-假钞票买钻石，而且，很多美国银行是辨别不出来的，而且一定是黑着的。这就是为什么墨西哥毒贩有几亿美元在那块搁着？他不知道很多都是假的。在中东买黑石油，买伊朗石油；买伊朗石油的钱，现在你知道多少钱吗？打七折，省出30%的钱。在伊朗内部，一个鸡蛋0.7美分到1.2美分，因为被制裁的。
 
-这些钱在伊朗都是现钞交易，它没有银行呀，都是假钞啊，共产党玩这个太牛啦！只要在这五个流氓国家，所谓的独裁国家，都可以这么玩。所以说，这个事情，我以为大家一下子就明白了，结果大家绕来绕去没闹明白。所以说，美钞、芬太尼就是共产党国家全力3F美国、BGY美国，它是一个重要的手段，大家千万要搞明白。
+> BREAKING: Pfizer files with the FDA to expand emergency use authorization for its Covid-19 vaccine to people between 12 and 15 years of age. [pic.twitter.com/SIXEtQfM1R](https://t.co/SIXEtQfM1R)
+> — CNBC Now (@CNBCnow) [April 9, 2021](https://twitter.com/CNBCnow/status/1380570522799472649?ref_src=twsrc%5Etfw)
 
-2020年6月15日
-香港事件，我说给你承诺香港事件他要能兑现，我说我郭文贵承担一切后果。不可能，它的经济已经完了，已经垮。再利用你，未来把你总统选举给搞坏，然后把自己经济搞起来。我说你这不是放虎归山嘛！
-说到这个大家都知道，美国还在哪一方面上大当呢？大家看到这三年爆料，美国更大的损失是在全世界上、战略的，整个的可以说是，美国是失去的过去这三十年。大家没感觉，在非洲、在亚洲、在欧洲、在南美洲，共产党的渗透，把美国这个国家的信用和战略布局和关系几乎全给打坏了。我说如果你们再给他一点儿机会，美国在世界上的形象和你建立的民主体制在人类上将遭受重创。
 
-我说你们将遇到最可怕的一个挑战——就是美元地位。美元一没，美军就没了；美军没了，美国就没了。我说世界上唯一一个国家，立这个所谓的数码法，叫中国的虚拟货币，老百姓不能用。虚拟货币它已经跟世界上几十个国家达成了协议，反的就是你美元，灭的就是你美元。它不用灭任何事情，这一点你们不用怀疑吧。它会放这一块吗？它不会放这一块。美元完了，美军还能行吗？你不要为了选举、为了你内部的政治，被它们利用。共产党是最懂得利用美国内部的叫钟摆效应，我第一个提出来的，两党之间的政治斗争。我说再被它利用了，真的是就完了。
-这又来了、又来了。419到现在，美国人为这个419和当初咱们被拔掉的直播，付出的代价。不是说龚小夏这些人的短视，如果当时她要跟班农先生、跟我保持好的关系，你看她啥感觉，是不是啊？更重要的是美国的短视，和美国被共产党的渗透之严重，付出的代价！金融领域你看到了什么程度？我有些现在不好意思说啊。这次共产党把美国最影响大选的人，私下全都买通了。最后一分钟一定会出手伤川普总统，内部定下来无论如何这次不能让川普总统赢。这是中南坑的核心——绝对不能让川普赢2020，这是中南坑一切一切。它知道川普总统赢了2020，共产党就真的就歇菜了、完蛋了。
 
-2021年1月6日
-记住美国没有了美元，美国屁毛不是。美国没有美元就没有强大的军队,没有美元和军队，只剩下啥，法律基石和信仰。
 
-[郭爆料串珠系列文章标题和链接汇总230 – 1](https://gnews.org/zh-hans/888831/)
 
-整理：德国感恩农场文迅等
-发稿：如风
-郭爆料串珠系列文章，都是从800多篇郭文贵先生直播听写文字版、盖特精选而成，有时也包含部分班农先生、路德社、闫丽梦博士直播文字，具有文献价值。由德国感恩农场文迅等按时间、主题整理。感谢战友听写！
+## 制裁中共国实体清单7家上榜
+
+4月10日美国商务部推文：商务部对中共国实施新的出口管制，将7个中共国实体列入实体清单，以应对其参与中国军事、破坏稳定的军事现代化努力和/或大规模杀伤性武器计划的情况：[https://bit.ly/2ReqAJZ。](https://bit.ly/2ReqAJZ。)
+
+
+
+> Commerce implements new export controls on China, adding 7 Chinese entities to the Entity List in response to their involvement with China’s military, its destabilizing military modernization efforts, and/or its weapons of mass destruction (WMD) programs: [https://t.co/0IGDiCl6rf](https://t.co/0IGDiCl6rf) [pic.twitter.com/6uz8Tb3iQN](https://t.co/6uz8Tb3iQN)
+> — U.S. Commerce Dept. (@CommerceGov) [April 10, 2021](https://twitter.com/CommerceGov/status/1380958779618037768?ref_src=twsrc%5Etfw)
+
+
+
+## 抵制中共通讯公司要彻底
+
+4月8日大纪元高级编辑推文：”这是一个明显的漏洞。”@BrendanCarrFCC （联邦通讯委员会委员）表示，美国运营商只要用私人部门的资金，而不是联邦资金，仍然可以购买华为与中兴的装备，这不合理。”
+
+
+
+> “That is a glaring loophole.”
+>  [@FCC](https://twitter.com/FCC?ref_src=twsrc%5Etfw) Commissioner [@BrendanCarrFCC](https://twitter.com/BrendanCarrFCC?ref_src=twsrc%5Etfw) says it doesn't make sense that U.S. carriers can still purchase Huawei & ZTE gear as long as they do so with private sector funds, not federal dollars.
+>  
+> 🔴PREMIERE 7:45pm ET: [https://t.co/7U9lbNbvE7](https://t.co/7U9lbNbvE7) [pic.twitter.com/5KG7Pvkrhi](https://t.co/5KG7Pvkrhi)
+> — Jan Jekielek (@JanJekielek) [April 8, 2021](https://twitter.com/JanJekielek/status/1380296582101405696?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 中共渗透
+
+4月10日，国家脉动调查员记者Natallie Winters推文：美国联合航空公司一直在送美国孩子参加一个由中共高层宣传集团赞助的项目。
+
+
+
+> 🚨EXC: United Airlines Has Been Sending American Kids On A Program Sponsored By A Top Chinese Communist Propaganda Group.[https://t.co/KHlcXdZezv](https://t.co/KHlcXdZezv)
+> — Natalie Winters (@nataliegwinters) [April 11, 2021](https://twitter.com/nataliegwinters/status/1381041995297218565?ref_src=twsrc%5Etfw)
+
+
+
+4月10日，目前@纽约时报的几名工作人员此前受雇于#中共控制的英文报纸“人民日报”，该报近年来向美国媒体支付了数百万美元，以发布其国家批准的内容。
+
+
+
+> Several current [@NYTimes](https://twitter.com/nytimes?ref_src=twsrc%5Etfw) staffers were previously employed by the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)-controlled English-language newspaper [#ChinaDaily](https://twitter.com/hashtag/ChinaDaily?src=hash&amp;ref_src=twsrc%5Etfw), which has in recent years paid US media millions of dollars to publish its state-approved content. [https://t.co/oCrJEnYiti](https://t.co/oCrJEnYiti)
+> — The Epoch Times (@EpochTimes) [April 11, 2021](https://twitter.com/EpochTimes/status/1381040553249406977?ref_src=twsrc%5Etfw)
+
+
+
+4月8日《纽约时报》员工承认以前为中共工作–尽管”收取了它的好处”
+
+
+
+> Great work by [@nataliegwinters](https://twitter.com/nataliegwinters?ref_src=twsrc%5Etfw) & [@RaheemKassam](https://twitter.com/RaheemKassam?ref_src=twsrc%5Etfw), exposing the NY Times “journalists” who previously worked for the Chinese Communist Party.[https://t.co/PFbnnIDHtO](https://t.co/PFbnnIDHtO)
+> — Steve Cortes (@CortesSteve) [April 10, 2021](https://twitter.com/CortesSteve/status/1381027551506751488?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 抵制可口可乐的呼声
+
+可口可乐公司一贯支持中共，近日发起对乔治亚州对选民具备合法证件的新选举法做出反对，引起美国舆论的抵制。美国行动主席Brigitte Gabrel 推文：“真正的爱国者抵制可口可乐。”
+
+
+
+> True Patriots are boycotting Coke! [pic.twitter.com/iwiH65RbXD](https://t.co/iwiH65RbXD)
+> — Brigitte Gabriel (@ACTBrigitte) [April 10, 2021](https://twitter.com/ACTBrigitte/status/1380909426685644802?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 波音737的问题
+
+4月9日，波音公司告诉16家航空公司客户，由于后备电力问题器件，自去年11月飞机未停飞以来，已交付的17部波音737 Max飞机要停飞，影响可能从数小时到数天。美国联邦航空局表示，正在与波音&航空公司合作解决这一问题。
+
+
+
+> Boeing tells 16 airline customers to ground some 737 Max jets that have been delivered since the plane was un-grounded last November. 
+> 
+> The FAA says it is working with Boeing & airlines on the issue. [pic.twitter.com/HBby6CDK9H](https://t.co/HBby6CDK9H)
+> — CNBC Now (@CNBCnow) [April 9, 2021](https://twitter.com/CNBCnow/status/1380510353050701828?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 禁枪令
+
+4月10日现任总统拜登推文：“这个国家的枪支暴力是一种流行病–国会早就该采取行动了。”此前前国务卿蓬佩奥先生曾说，解决坏人暴力问题就得让好人拥枪。
+
+
+
+> Gun violence in this country is an epidemic — and it’s long past time Congress take action.
+> — President Biden (@POTUS) [April 10, 2021](https://twitter.com/POTUS/status/1381026709248602115?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 恶心的拜登家
+
+4月9日Rumble报道了近日福克斯新闻和每日邮报再次曝光对爆料革命战友和GTV真相平台并不陌生的亨特拜登的“老照片”，报道称“恶心的亨特-拜登的新照片出现了”。福克斯新闻称2019年亨特拜登曾哀求父亲乔拜登参加总统竞选。
+
+朱利安尼先生4月10日转推时称“这只是乔拜登犯罪家庭的一个例子”。
+
+
+
+> DISGUSTING New Photos of Hunter Biden Emerge [https://t.co/yq3hAXLEad](https://t.co/yq3hAXLEad)
+> — Rudy W. Giuliani (@RudyGiuliani) [April 9, 2021](https://twitter.com/RudyGiuliani/status/1380597743824089099?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> This is just an example of the Biden Crime Family. [https://t.co/9wjFGEX88N](https://t.co/9wjFGEX88N)
+> — Rudy W. Giuliani (@RudyGiuliani) [April 11, 2021](https://twitter.com/RudyGiuliani/status/1381125731791556611?ref_src=twsrc%5Etfw)
+
+
+
+## 军事
+
+4月10日，单日的#轰炸机任务部队的一对#B1 Lancer轰炸机开展任务，长约28小时，在爱琴海上空往返航行12 000多海里。
+
+
+
+> A single-day [#BomberTaskForce](https://twitter.com/hashtag/BomberTaskForce?src=hash&amp;ref_src=twsrc%5Etfw) mission took a pair of [#B1](https://twitter.com/hashtag/B1?src=hash&amp;ref_src=twsrc%5Etfw) Lancer [#bombers](https://twitter.com/hashtag/bombers?src=hash&amp;ref_src=twsrc%5Etfw) from [@28thBombWing](https://twitter.com/28thBombWing?ref_src=twsrc%5Etfw) approximately 28 hours and over 12,000 nautical miles in a round trip operation over the Aegean Sea. [@US\_Stratcom](https://twitter.com/US_Stratcom?ref_src=twsrc%5Etfw) [#BTF](https://twitter.com/hashtag/BTF?src=hash&amp;ref_src=twsrc%5Etfw) [#AnywhereAnytime](https://twitter.com/hashtag/AnywhereAnytime?src=hash&amp;ref_src=twsrc%5Etfw) [#GlobalStrike](https://twitter.com/hashtag/GlobalStrike?src=hash&amp;ref_src=twsrc%5Etfw) [#GlobalDeterrence](https://twitter.com/hashtag/GlobalDeterrence?src=hash&amp;ref_src=twsrc%5Etfw) [#Bone](https://twitter.com/hashtag/Bone?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/H30KvSRviD](https://t.co/H30KvSRviD)
+> — AFGSC (@AFGlobalStrike) [April 10, 2021](https://twitter.com/AFGlobalStrike/status/1380882022898470915?ref_src=twsrc%5Etfw)
+
+
+
+
+
+预算案将中国列为 “头号挑战”，并呼吁需要 “利用 “太平洋威慑计划。
+[https://trib.al/TXoeRLl](https://trib.al/TXoeRLl)
+
+
+
+> The budget identifies China as the “top challenge,” and calls out the need to “leverage” the Pacific Deterrence Initiative.[https://t.co/IBsnfIf0wG](https://t.co/IBsnfIf0wG) [pic.twitter.com/glpXXCrYIK](https://t.co/glpXXCrYIK)
+> — Navy Times (@NavyTimes) [April 9, 2021](https://twitter.com/NavyTimes/status/1380543466657218564?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 川普总统能否回归
+
+4月9日川普总统GAB发文。[点击查看原文。](https://gab.com/realdonaldtrump/posts/106036472698724196)川普总统对飞利浦亲王的追思之时，也是无数美国人怀念川普总统执政之时。川普总统的悼文，如同国家级别的问候，相较于现任国务卿布林肯发布的国务院冷冰冰的官方悼文，是发自内心情真意切的追思感怀。悼文如下。
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/04/trump0409-11.png)
+
+
+全世界都在哀悼菲利普亲王的去世，他体现了联合王国和英联邦的崇高灵魂和自豪精神。
+
+梅拉尼和我向女王伊丽莎白二世陛下和整个皇室家族表示最深切和最深刻的哀悼。我们向英国人民致以最衷心的慰问。这对大不列颠，以及所有珍视我们文明的人来说，都是一个不可替代的损失。
+
+菲利普王子定义了英国的尊严和优雅。他化身为英国安静的矜持、严厉的坚韧和不屈的正直。
+
+年轻时，他作为一名海军军官在第二次世界大战中为英国光荣而勇敢地服务。在地中海的战舰上，他看到了海上的战斗。随后，他参加了1943年盟军入侵西西里岛的关键战役。像他那一代人一样，在英国最黑暗的时刻，他为了上帝、国家、自由和自治的价值观，把自己的生命放在了线上，这也是美国和英国永远团结在一起的原因。
+
+七十年来，菲利普亲王将同样的责任感和使命感带到了他作为女王的后妃和丈夫的角色中。他受到他的同胞们的钦佩，也受到全世界所有人的尊重。他在服务、恒心和爱国主义方面的杰出典范将是他最伟大的遗产。
+
+在过去的几年里，梅拉尼娅和我很荣幸有机会访问英国。我们亲眼目睹了君主制是如何体现和传承英国人民的美德–没有人比菲利普亲王做得更好。
+
+在我们为他的逝世感到悲痛的同时，我们也要庆祝他的逝世，并重新致力于他奉献其非凡生命的价值观。我们将深深地怀念他。
+
+
+
+国务卿布林肯的悼词（新闻声明）如下。
+
+
+
+> Our condolences go out to the royal family and all of the United Kingdom on the passing of His Royal Highness The Prince Philip, Duke of Edinburgh. We will remember him as a devoted leader and a friend of the United States. [https://t.co/wECxPAu8zH](https://t.co/wECxPAu8zH)
+> — Ned Price (@StateDeptSpox) [April 10, 2021](https://twitter.com/StateDeptSpox/status/1380673928239144962?ref_src=twsrc%5Etfw)
+
+
+
+我谨代表美国人民，就爱丁堡公爵菲利普亲王殿下的逝世向联合王国王室和人民表示最深切的哀悼。
+
+菲利普亲王殿下从第二次世界大战期间的服役，到几十年来与女王伊丽莎白二世一起为英国人民服务，都体现了他对国家不折不扣的责任感。 他是美国的真正朋友。 我们缅怀他，并将在未来的岁月里记住他对职责和友谊的奉献。
+
+
+
+
+
+
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
 
 0

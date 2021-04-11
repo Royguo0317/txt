@@ -1,41 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 比尔盖茨被秘鲁法院指控对疫情担责后仍推行民众控制
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1077856/)
+## 【热点播报】中共敲打布林肯，要其“认清形势，改弦更张”
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1077982/)
 
-翻译&评论: 8 Mile
-![]()![](https://gnews.org/wp-content/uploads/2021/04/121-2.png)图片来自网络截图
-比尔-盖茨在这场新冠疫情中扮演着怎样的角色，似乎已经被他的演讲、宣传视频扒掉了底裤。这些既得利益集团，计划通过病毒、疫苗和防控手段达到限制民众自由，洗脑、控制民众的目的已经遭到了曝光和抵制。
+作者：纽约香草山健身部 Jack Li文阳
 
-在暗中支持中共进行病毒实验研究，疫苗护照推行和挑动种族矛盾等，都离不开这些精英大鳄的联合布局和勾兑。共产主义也正是利用了人性中的恶、贪婪和控制欲收买了这些包括福奇、索罗斯和盖茨在内的利益集团。
 
-以下翻译引自《比尔-盖茨推崇一个世界联合政府，用”疫情消防队”控制民众》
 
-之前我们报道了秘鲁的一个法院指控比尔-盖茨对制造冠状病毒大流行负责。今天（2021年2月2日），盖茨似乎正利用这种流行病推动全球范围内对民众的控制。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-尽管没有人喜欢这个家伙，甚至没有人关心他说过什么，但比尔-盖茨仍致力于加倍推动暴政。在所谓的“后Covid-19世界”，盖茨坚持认为我们需要用“疫情消防队”进行控制，以防止出现新的流行病。
 
-那么，一个迫切需要回答的问题是，他们到底为什么要为“后Covid-19世界”做准备？难道他们已经准备好释放 Covid-21了吗？
 
-盖茨和他的妻子在上周三发布的年度信件中，详细介绍了他们的新理念。但其Twitter上的视频也许以一种更有力的方式让观察者们明白了其中的含义。这个视频里，盖茨像是在世界地图上移动棋子一样移动各种小人偶。
+中共官媒《中国⽇报》4⽉6⽇报道了一篇⽹评：《美国政府应当认清形势改弦更张》。⽂中说：在中美关系问题上，美国新政府正在重复上⼀届政府的错误，国务卿布林肯的不当⾔⾏就是⼀⼤证明。中共把美国现政府和川普政府相提并论，敲打布林肯。
 
-盖茨这种对大众说话的方式，似乎把我们当成无法理解其意图的低能儿一样。这些小人偶描绘了不同种族的人类，盖茨将他们定位成“在世界各地，一旦疾病爆发，就能发现他们”。盖茨说道，如果所谓的“全球警报系统”识别出一种新的传染病病原体，由急救人员组成的团队就会像“疫情消防员”一样，赶往该地控制疫情。他用玩具飞机、直升机和身穿黄色防护服的人偶来说明自己的观点。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/82.jpg)新闻截图
 
-盖茨说：“阻止下一场大流行需要大量投资，但我认为这是世界能买到的最好的保险。”然而，根据RT的报道，没有人喜欢他说的话。看来，普通民众肯定已经厌倦了做顺从的奴隶。
+中共在“⽹评”⾥⼀⼀历数了布林肯的罪状： 布林肯向美国国会提交报告，继续暂停⾹港的特殊关税地位；在过去⼀个⽉⾥，四次发推⽂“妄议”⾹港问题；对⾹港问题的态度，与臭名昭著的前国务卿蓬佩奥⼏乎⼀样。中共开始把布林肯等同于蓬佩奥。在不久的将来，看来蓬佩奥“全⺠公敌”的帽⼦就要易主了。中共使出了其擅⻓的双重标准、流氓做法：⼀边不许别⼈妄议⾹港，⼀边把其亲⾃导演的“弗洛伊德”事件说成是美国的⼈权问题，对美国指⼿画脚。
 
-即使盖茨在他的Twitter页面上屏蔽了除了他关注的人之外的评论，也无济于事。有评论员说，这是彻头彻尾的宣传，比尔对他的预防流行病方案自信到关闭了评论。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-148.png)图片来源：AFP
 
-盖茨还建议，社交媒体平台需要帮助审查任何针对他的可笑想法进行攻击的言论。民众不允许公开表达他们对自由的渴望。盖茨希望奴隶制是你们唯一的选择。
+“⽹评”道：“现在的美国政府更擅⻓隐藏在⼈权、⺠主的遮羞布下。”其背后的深意是说：藏在背后的拜登⽐川普更狡猾、更阴险。在“⽹评”的全⽂⾥，中共直呼其名地直指布林肯，但对拜登不敢提半句，仿佛这届美国政府的⽼⼤是布林肯，没拜登什么事。其实，中（共）国对拜登还抱有幻想，因此在⽂中絮絮叨叨的教育拜登，应当认清形势，改弦更张：美国的国内的⼈权问题也很糟糕，⾹港的事就别管了。中共靠隔空喊话拜登，把他们之间没有沟通对话渠道的秘密，再次⼤⽩于天下。
 
-（本文纯属个人观点，以上翻译略有删简）
+⽂中这样批评布林肯：“雕⾍⼩技，费尽⼼机破坏⾹港稳定与发展，难逃失败的命运。”意思是说，以布林肯为代表的美国政府，在⾹港问题上做得还不够，没有实质性的制裁，中共根本不在乎这些不痛不痒的伎俩。
 
-*审核：Runaway  编辑：MG1*
+中共的回应，通常就是对美国政府制裁中共国政策的最佳点评——美国政府做得是否到位，只要看中共的反应就知道。从“⽹评”中可以看到，本届美国政府做得还算称职。但其在应对中共威胁⽅⾯，还有很⼤的改善空间。拜登政府要争取得到中共“悬崖勒⻢，搬起⽯头砸⾃⼰脚”的“嘉奖”。
 
-Source:
+最后，中共总结性的奉劝美国政府要“认清形势，改弦更张”——中共⽼⽑病不改，总是颠倒⿊⽩、正话反说。其实，真正要认清形势的应该是中共。现在，因为中共的新疆维吾尔族⼈权迫害问题，其在国际上已经众叛亲离，成了过街⽼⿏。而在中共释放超限⽣化武器问题上，美国两党已经达成了共识，正在推进病毒溯源，相关⼯作也正在逐步展开。相信在美国的牵头下，⽇、澳、欧等⺠主发达国家很快就会跟进。对于现今的国际和中共国国内形势，中共应该要彻底认清楚，变“改弦更张”为“改朝换代”：解体中共，建⽴新联邦，才是其唯⼀出路。
 
-[Bill Gates Pushes For One-World Government With “Pandemic Fire Squads” To Control The Masses](https://en-volve.com/2021/02/04/bill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses/)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
-[Bill Gates Twitter](https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%%20HYPERLINK%20&quot;https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F&quot;7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_%20HYPERLINK%20&quot;https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F&quot;&amp;%20HYPERLINK%20&quot;https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F&quot;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
 0

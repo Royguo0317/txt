@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2/4/2021 闫博士：中共通过世卫组织虚假报告开脱罪行
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1077130/)
+## 2/4/2021中共用病毒迫使人们远离宗教
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1077270/)
 
-摘要：班农战斗室——闫博士：中共通过世卫组织虚假报告来开脱自己罪行，告诉世人他们是无辜的。
+摘要：班农战斗室——中共用病毒迫使人们远离宗教，这是一种更加隐蔽的共产主义形式。
 
 **By：【秘密翻译组 G-Translators】**
 

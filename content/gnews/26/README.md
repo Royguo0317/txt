@@ -1,11 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4/8/2021 路德节选：郝董爆料军队文工团生活糜烂不堪
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1077632/)
+## 【粤语配音】武汉、苏伊士运河、南海等咽喉要塞和人类经济福祉、美国繁荣息息相关
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1077792/)
 
-中共军队后宫、娱乐界权色交易横行，“著名导演”一语道破所谓的“肥水不流外人田”- 要捧红傍王朔的王子文
+3/28/2021 武汉、苏伊士运河、南海等咽喉要塞和人们的经济福祉、美国的繁荣息息相关。中共的任何干预都会造成巨大的涟漪效应。
 
-By: 【秘密翻译组G-Translators】
+By： 【秘密翻译组 G-Translators】
+
+
 
 0
