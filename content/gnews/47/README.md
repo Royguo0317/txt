@@ -1,69 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 50名武警突袭《叛逆新闻》记者Airbnb所租船房
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1074190/)
+## 郭先生0409VI美国与日、英、印合作灭掉共产党是唯一选择
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1074383/)
 
-**阿黎**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-37.jpg)
+编辑整理：
 
-4月10日，大约50名全副武装的警察周六突袭了《叛逆新闻》（Rebel News）为报道反封锁抗议活动设在船上的临时新闻报道总部，船房是从Airbnb租借的，船停泊在蒙特利尔的一个港口。
+纽约香草山农场：西林1；纽约香草山农场：清泉石上流；
 
+悉尼澳喜农场：Bruce(文远)；日本东京方舟农场：山川异域
 
+郭文贵先生在2021年4月9日的直播中谈到了SEC抗议是中国人第一次规模性维护自己合法权益的行动；谈到了爆料革命扭转了被中共彻底毁掉的中国人的形象；谈到了爆料革命唤醒世界让灭共由不可能变成必须等内容，本系列将根据郭先生在直播中涉及的不同方面逐一上传，以下为本系列第六部分——美国与日、英、印合作灭掉共产党是唯一选择
 
-> BREAKING: 50 Armed Police Raid Rebel News ([@RebelNewsOnline](https://twitter.com/RebelNewsOnline?ref_src=twsrc%5Etfw)) Reporters Airbnb, Arrest Them for 'Illegal Gathering' (VIDEOS) [https://t.co/nofe9vfmlS](https://t.co/nofe9vfmlS) [@ezralevant](https://twitter.com/ezralevant?ref_src=twsrc%5Etfw) [@TheRealKeean](https://twitter.com/TheRealKeean?ref_src=twsrc%5Etfw)
-> — Cassandra Fairbanks (@CassandraRules) [April 10, 2021](https://twitter.com/CassandraRules/status/1380998125855371271?ref_src=twsrc%5Etfw)
+据[4月9日 文贵直播：中共的意淫反而将帮助更快灭共；国内富豪都是复制偷窃技术，不是企业家；美国只能与英日印合作联合灭共；中共控制比特币，人民币数字化，消灭美元；美国人已经相信能灭共](https://gtv.org/video/id=607053ef6e11a756eddd33df)时间点57：00——
 
+这就是日本现在正在民间一个最大的民间开始爆发，都在思考谁是我们的威胁——共产党，中国人一定要成为我们的朋友，无论从经济、无论从文化、无论从军事、无论从地域都应该和中国人民友好相处，但是共产党在，日中友好的可能性是没有的。
 
+包括印度，现在印度我跟大家说过。记住七哥一再说的话，印度在24小时以前我说过一句话，我说吉布提、红海，记得吧？我发盖特，盖特上我发完以后，吉布提的伊朗的船就给炸了，七哥第一个说的吧。你看上去以色列炸伊朗的船是一个军事船，在吉布提，这是一个所谓的冲突，大家千万别忘了，这里边儿都有着各种战略的一种行动的结果。为什么我说吉布提？吉布提现在四股力量在那儿，美国人多年来二战以后一直有军事基地，俄罗斯的军事基地、中共的军事基地、日本的军事补给基地全在那儿。伊朗人想参与，当然了它太近了，红海是不是啊，霍尔木兹海峡、苏运士运河，咱简称吧就霍尔木兹海峡，马六甲供给线，几乎是亚洲的生命线。
 
-魁北克从复活节开始封城，于是人们上街示威反封城。《叛逆新闻》事先在Airbnb预定了船房，做为他们的新闻报道临时总部。警方得到消息后，派大批警察前来封锁，并逮捕了该媒体的记者。
+**共产党一带一路、要把人民币国际化、马六甲的供给线拿下，这就是它所有的一切嘛，就是新殖民主义嘛，**是不是啊，就是大陆的文明要挑战海洋文明，从亚洲开始亚洲说了算，然后掐住全世界的能源供给线、掐住亚洲的供给线，它就说了算，然后制造亚币，制造亚洲的所有的现代化数字金融，控制全世界、干掉美元，就这一切嘛！
 
+**吉布提这个地方是整个叫中东非最最关键的地方，第二个霍尔木兹海峡，也是马六甲海岸线最关键的能源补给基地。**在这个地方的利益是什么，以色列很关键，以色列在那儿有重大的利益。伊朗想抢，伊朗后边儿是有共产党支持着呢，然后一拐过来叙利亚、戈兰高地，是吧？沙特、科威特是吧？就这些地方它必占！所以共产党在这个地方它搞完苏运士运河、搞完马六甲、搞完这个大船，它接下来还会再搞，那再搞的时候就会把以色列和伊朗、沙特，把这所有的、特别是大家现在要看到的、伊朗的现在被美国解除制裁以后，这一切整个穆斯林世界会爆发起来。在这个里边儿就有一个以色列，以色列再跟中共之间不清不楚，这就热闹了。
 
+共产党最想的事情在此地造成麻烦、在此地造成能源争夺，能源争夺那就是局域性战争，局域性战争共产党就在中间有说数：这面儿跟着伊朗有一系列的千亿万亿的投资计划、能源天然气；这边儿跟沙特、跟阿联酋最大的、长期的、全天的24小时的特殊伙伴关系；然后在吉布提、中东非、安哥拉，安哥拉占了中国20%的能源供给，然后把这些全部控制，然后日本、印度就完球蛋了。
 
-> Montreal Police assaulted and brutally arrested David Menzies. [@RebelNewsOnline](https://twitter.com/RebelNewsOnline?ref_src=twsrc%5Etfw) Head to [https://t.co/nR2Ow1VfjH](https://t.co/nR2Ow1VfjH) for full report. [pic.twitter.com/YkJXLWET4T](https://t.co/YkJXLWET4T)
-> — Mocha Bezirgan (@BezirganMocha) [April 10, 2021](https://twitter.com/BezirganMocha/status/1380962642911760389?ref_src=twsrc%5Etfw)
+**它针对的是亚洲的日本和印度，日本和印度接下来会怎么办？日本和印度只要活下去，没有任何选择必须和中共干！**大家要干的时候，千万别忘了，印度要想干的时候它一定联合英国，很多个人的话我就不说了，这有些秘密，只有咱局部战友知道，涉及到个人的问题。为什么这样？因为印度和英国之间的文化、法律、金融的联系，一定联英抗中，日本一定是联美抗中。
 
+在这种情况下大家要记住，**英国、日本和印度是接下来抗共产党的最核心的，**大家会看到一系列的奇怪的事情都会发生，较量在马六甲，最终打的是美元。美元在这个时候就热闹了，现在大家看到比特币，比特币就两个选择，一个是彻底被国家化，就是过去的最牛的就是秘密去中心化，找不着老板，所以大家是绝对洗钱、绝对的避税的一个最佳的货币。
 
+大家要看到所有的比特币它最大的使用的地方叫深网、非法的交易。大家记住那个犯罪组织丝绸之路当时在深网被查的时候，在深网比特币一下子就跌下去了，百分之几十的交易没了。现在的比特币就是中共控制的，中共控制的比特币就是要打击美元、就是在深网运作的、就是要洗黑钱。暗钱有比特币，明的数字货币有共产党的中央银行搞的虚拟货币叫人民币数字化的人民币。在这种情况下美国现在想想，石油美元——石油被共产党干掉了、被共产党控制了，你还有美元吗？所有虚拟货币、比特币被共产党控制了，还有人民币数字化，你还有数字化美元吗？你没啦！然后你美元、你美国人现在你要跨过阿拉斯加给中共做油、做汽，你跟俄罗斯较量、你跟中东较量，你有机会吗？能源供给，你想磕头的机会都没有。因为它想要你的命，你磕头是没有用的。那这种情况下，美国能跟谁合作？美国只能跟日本、英国、印度去合作。合作前提是什么？他不能把14亿中国人给灭了哇，他只能灭掉共产党，这是没有选择的唯一选择。
 
-警方用警用红色胶带从外围封住了记者所在的AirBnb船只，他们说这是一个’犯罪现场’。” 当记者问警察他们究竟犯了什么罪时，警察能想到的就是我们住在酒店里是非法’集会’，违反了魁北克省的封锁规定。”事实上，《叛逆新闻》的人数比设施所设计的容量要少。”
+这就是为什么你看到了现在拜登，你看到了拜登他可以给伊朗松绑他绝对不会给病毒松绑。他可以在能源上他给各国让步，他给共产党让步的可能性绝对没有。他给共产党什么都松绑，在美元地位上绝对不会松绑。这是你看的为什么制裁中共的这七家企业，七哥都不想多说了，七哥几年前就说了，它一定的，这一百多家国有大企业和三百六十多家的中概股企业，100%都得拿走。
 
+接下来Swift支付系统一定是被踢出中共的，一定美元支付踢出去。这是没有任何的，世界上的三大国际组织——WT0把它踢出去、IMF货币组织把它踢出去、世界银行要给它要钱要把它踢出去，这是一定的结局。然后你还相信有港币吗？你还相信有国际人民币吗？
 
+接上文——
 
-> Montreal police don’t have their search warrant yet. So they have deemed our Airbnb a crime scene. I’m not sure what they’re searching for — we have obviously uploaded our footage. They’re dragging it out to stop our work. So I shared my thoughts with them directly. [pic.twitter.com/BsErpxSJN5](https://t.co/BsErpxSJN5)
-> — Ezra Levant 🍁 (@ezralevant) [April 10, 2021](https://twitter.com/ezralevant/status/1380956658306793477?ref_src=twsrc%5Etfw)
+[郭先生0409I SEC抗议是首次规模性维护国人自己合法权益](https://gnews.org/zh-hans/1074065/)
 
+[郭先生0409II爆料革命扭转了被中共彻底毁掉的中国人形象](https://gnews.org/zh-hans/1074116/)
 
+[郭先生0409III七哥担心SEC抗议的战友不注意病毒和走错门](https://gnews.org/zh-hans/1074146/)
 
-《叛逆新闻》创始人Ezra Levant指出，”这是蒙特利尔的警察，他们已经骚扰和殴打我们的记者好几周了。他们在报复，因为我们报道了他们的不当行为”。他还说，他遭到了警察的粗暴对待。
+[郭先生0409IV我们的人生里面最精彩的是接受挑战并赢得挑战](https://gnews.org/zh-hans/1074237/)
 
-艾兹拉-利宛特还说，蒙特利尔的腐败警察把我们从Airbnb赶了出来。现在他们将进去，在没有任何观察员的情况下，对房间进行搜查。我担心他们会栽赃毒品、武器或其他违禁品。
+[郭先生0409V中共治下中国人的精神疾病和精神萎靡无法想象](https://gnews.org/zh-hans/1074315/)
 
-《叛逆新闻》的主要记者大卫-蒙西斯（David Menzies)在与警察的争执中，被警察推搡，然后被数名警察粗暴地扭至警车旁，戴上手铐，扔到车后座里。
-
-推特上一个名为“Joe Warmington”的帐户发推说，如果记者无法做好自己的工作，就不再是一个自由的国家。
-
-另一个名为“the Ikonian ”的推特帐户发推说，如果法院不阻止政府和警察的这种行为，那么我们就完蛋了，我们需要移到法律和权利重要的地方。
-
-令人兴奋的是，几小时后，传来了巨大的好消息！蒙特利尔的警察无法让法官批准他们的搜查令！蒙特利尔的警察怂了！
-
-
-
-> 🚨HUGE VICTORY🚨 
-> 
-> Montreal’s police could not get a judge to approve their search warrant! They blinked!
-> 
-> David Menzies is being released from his illegal arrest!
-> 
-> The police have run away from the “crime scene!
-> 
-> I’m back in!
-> 
-> Viva le Quebec libre![https://t.co/roDg8jvAa1](https://t.co/roDg8jvAa1) [pic.twitter.com/WSvXZplsGG](https://t.co/WSvXZplsGG)
-> — Ezra Levant 🍁 (@ezralevant) [April 10, 2021](https://twitter.com/ezralevant/status/1381028608752369666?ref_src=twsrc%5Etfw)
-
-
-
-大卫-蒙西斯被非法逮捕释放了!警察从 “犯罪现场 “逃跑了!大卫回来了!
-
-蒙特利尔的法院没有沦陷，他们坚持正义，这的确是令人鼓舞的消息。加拿大还是有希望的。
-
-+1
+0

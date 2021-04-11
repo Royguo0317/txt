@@ -1,135 +1,501 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【班农战斗室】861.862.863期简讯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1074127/)
+## 美国《2021战略竞争法》目录部分
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1074345/)
 
-#### 翻译：七彩光
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-#### 校对/编辑：文泓
-![]()![](https://gnews.org/wp-content/uploads/2021/04/858-859-860_-1.png)
-图片来源：墨尔本雅典娜农场设计组（精灵蓝）
+上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/A.png)aninews.in
+4月8日，笔者第一时间发文报道了“美参议院将审议‘战略竞争法案’对抗中共”【1】，面对这份280多页的提案，自感能力和精力不足以承担对“重磅提案”的翻译和解读，期待着《路德社》、秘密翻译组，昨晚《路德社》作出了振奋人心的解读，令人回味无穷。
 
-主持人：史蒂夫.班农
+现将提案的目录摘译，供战友参考。 【2】
 
-嘉宾：Ben Bergquam, Darren Beattie, John Lott, Mike Lindell, Dr. Peter Navarro, Boris Epshteyn, Victor Avila, Todd Bensman
+议案
 
-#### **1、约翰.洛特被拜登关于枪支的大量谎言所震惊**
+处理涉及中共国的问题。
 
-约翰.洛特（John Lott）详细剖析了控枪新闻发布会上乔.拜登所陈述的令人震惊的大量谎言。
+由美国参议院、众议院两院在国会通过，
 
-【**备注：**约翰.理查德.洛特（John Richard Lott Jr.）是美国经济学家、政治评论家，也是枪支权利倡导者和川普任期的政府官员，现担任司法项目办公室研究与统计高级顾问。】
+第1节  简称；目录
 
-“我对那场短短的演讲中的充斥着大量谎言感到震惊”，洛特周五告诉《战斗室》。
+（a）简称——本法可引述为“2021年战略竞争法”
 
-洛特说，拜登针对的目标是枪械制造业，并称控枪是左派灾难性政策失败的挡箭牌，比如“减少为警方提供资金”。
+（b）目录——本法案的目录如下：
 
-拜登谎称，缺乏枪支管制是2020年凶杀案增加的原因，而不是民主党执政的城市故意将罪犯从从监狱里（提前）释放，并且还减少警方所需资金支持。
+第1节. 简称；目录
 
-洛特说：“凶杀案增加这么多，是因为政府不允许警察恪尽职守，而检察官也没有起诉这些罪犯。”
+第2节.调查结果
 
-“如果罪犯不担心被抓，即使被抓也不担心被起诉，你猜怎么着？他们肯定会从事更多的犯罪活动。”洛特说。
+第3节. 定义
 
-“去年枪支管制法修改的条款，要对其负什么责任呢？” 洛特问道。
+第4节. 政策声明
 
-洛特作为《更多的枪支，更少的犯罪》一书的作者，他说，如果城市在犯罪问题上软弱无力，并减少警方相关经费，犯罪率就会上升，这不是什么难以理解的逻辑问题。
+第5节. 国会意识
 
-洛特说，枪支管制“为他们提供了一个借口”，“当他们的政策失败的时候，他们就以此为借口归咎于他人。”
+第6节. 构成规则
 
-#### 2、深层政府败类向MAGA宣战
+标题1——未来竞争的投入
 
-《左轮新闻（Revolver News）》的达伦.比提（Darren Beattie）说，“深层政府”已经对MAGA宣战。
+副标题A——科学与技术
 
-比提揭露了这些“深层政府败类”签署了一份国安信，该信将美国爱国者们打为“国内恐怖分子”。
+第101节. 授权协助美国公司进行全球供应链多元化和管理
 
-“这场新的‘反恐’战争将由你们来主演”，比提周五告诉《战斗室》观众和听众：“而且（主题）同样是关于腐败、无能与不道德。”
+副标题B——全球基础设施的发展
 
-“每个人都需要知道这些是什么样的人渣。”他说。
+第111节. 确定适当的国会委员会
 
-人渣名单中包括詹姆斯.克拉珀（James Clapper），“一个作伪证的人，一个骗子，十足的人渣”。另外，被称为颜色革命“咖啡男孩”的迈克尔.麦克福尔（Michael McFaul），以及迈克尔.海登（Michael Hayden），分别是“一个众所周知的骗子”和“更狡猾的人渣”。
+第112节. 国际品质基础设施投入标准的国议意识
 
-【备注：詹姆斯·克拉珀（James Clapper），美国空军退役中将，是前国家情报局局长。1992年至1995年，他担任国防情报局局长。2001年9月至2006年6月，他担任国家地理空间情报局（NGA）局长。2010年6月5日，被提名为新任美国国家情报总监，接替刚刚辞职的布莱尔。2010年8月到2017年1月20日任国家情报总监，于川普总统就任当日辞职。】
+第113节. 美国对基础设施的支持
 
-【备注：迈克尔•麦克福尔（Michael McFaul），目前是胡佛研究院的高级研究员，斯坦福大学的政治学教授、弗里曼•斯波利国际事务政治研究所的主要负责人、美国国家广播公司的分析员。2012年1月至2014年2月，他在俄罗斯担任美国驻俄罗斯的大使。】
+第114节. 基础设施事务和辅助网络
 
-【备注：迈克尔.文森特.海登（Michael Vincent Hayden），美国空军退役四星上将，曾任美国国家安全局局长(1999.2005)、国家情报局首席副局长(2005.2006)、中央情报局局长(2006.2009)。2017年，海登成为CNN的国家安全分析师】
+第115节. 先进可靠的能源基础设施战略
 
-比提称该名单是一个“真正肮脏的流氓者展示画廊”。
+第116节.中共国对外能源开发投入情况的报告
 
-“这些签名者正在向所有的美国爱国者宣战”，他说：“是你，是我，是7400万像我们这样（支持川普）的美国人。”
+副标题C——数字技术和数据联通
 
-“这些人是骗子”，班农说：“比骗子更糟糕的是，他们不但是无能的”，并且还 ‘协助了’中共的崛起。”
+第121节. 数字技术问题的国会意识
 
-#### 3、2020年11月3日，来自于中共国的19次网络黑客攻击将5个州的选票转换给了拜登
+第122节.数字连接和网络安全伙伴的关系
 
-“我的枕头（My Pillow）”首席执行官（CEO）迈克.林德尔（Mike Lindell）表示，他掌握了11月3日来自中共国的网络攻击的确凿证据，这些攻击偷走了唐纳德.川普的五个州（选举结果）。
+副标题D——对抗中国共产党的影响
 
-“19次（黑客）网络攻击都来自中国”，林德尔周五告诉《战斗室》：“我们有人员在实地调查每一次攻击。”
+第131节. 简称
 
-林德尔说，一个独立的第三方权威机构核实了这些来自于中共国的IP地址、电脑、确切的位置和建筑物，以及用于登录进入的密码，还有他们在美国的合谋窃取选票的同伙们。
+第132节. 授权
 
-“我们有他们留下的痕迹，有时间戳，第三方权威机构已经验证了这一切。”林德尔说。
+第133节.关于中共国信息战和恶意影响行动的调查结果
 
-其中一次发生在（2021年）11月3日晚上11点03分，黑客网络攻击显示了选票从唐纳德.川普到乔.拜登的精确转换。
+第134节. 富布赖特-海斯计划（Fulbright-Hays Program，笔者注：美国的一项文化交流项目）拨款授权
 
-“就是这19次黑客网络攻击，将威斯康星州、密歇根州、亚利桑那州、宾夕法尼亚州和佐治亚州这五个州的选票都进行了翻转，”林德尔说。
+第135节. 谴责反亚洲种族主义和歧视的国会意识
 
-“这已经足够了”，他说：“这是百分之百的证据。”
+第136节. 支持独立媒体和打击造谣
 
-林德尔说，他将在4月19日上线运行的新社交媒体平台“Frank”上播出这些证据，将持续至少5周播放。然后，他将形成一个讼诉案送达至最高法院。
+第137节. 全球参与中心
 
-此外，林德尔还透露，由于受到威胁，现在已经站出来的举报人都被保护在安全的地方。
+第138节.美国外国投资委员会对高等教育机构的某些外国馈送和合同的审查
 
-“我们不仅仅有网络（黑客犯罪）证据”，他说：“我们还有证据证明是谁干的，谁为Smartmatic公司工作，等等所有证据。”
+标题2——联盟和伙伴关系的投入
 
-【备注：Smartmatic公司是多米尼（Dominion）公司的子公司，其相关资料信息已经被国外大科技公司进行了隐藏，可以参阅GNews文章《[关于Dominion选票系统公司身后的Smartmatic](https://gnews.org/zh-hans/550304/)》】
+副标题A——战略和外交事务
 
-#### 4、迈克.林德尔的新社交媒体产品“Frank”将提前对VIP会员开放
+第201节. 确定适当的国会委员会
 
-迈克.林德尔（Mike Lindell）在《战斗室》节目中展示预览了他的新社交媒体平台“Frank”，并表示该平台将于下周先面向VIP推出。
+第202节.美国对印太盟国和伙伴的承诺和支持
 
-林德尔表示，开发研究这个平台已经4年了，仅在安全方面就投入了超过200万美元。
+第203节. 与四国合作的国会意识
 
-您可以在[FrankSpeech.com](http://frankspeech.com/)上了解更多关于注册的信息。该平台将于4月19日正式上线运行。
+第204节. 与东盟合作政策的声明
 
-#### 5、迈克.林德尔再次起诉多米尼公司：我们将以最大可能的规模追击它们
+第205节. 加强美国与东盟技术合作的国会意识，这些技术合作与中共国有关
 
-“我的枕头（My Pillow）”首席执行官（CEO）迈克.林德尔（Mike Lindell）即将对多尼米公司（Dominion）和Smartmatic公司发起进攻，宣布发起另一项诉讼，起诉该投票机公司扼杀言论自由。
+第206节. 中共国在国际组织中的影响力报告
 
-“我们将以尽可能大规模的方式追击他们”，林德尔周五告诉《战斗室》：“我们的起诉也包括Smartmatic。它们是幕后主使。”
+第207节. 与盟友和合作伙伴的定期交流
 
-林德尔说，自1798年以来，还没有一家公司以这种方式，即利用诉讼来威胁不同意见和扼杀言论自由。
+第208节. 国务院技术合作办公室
 
-“这是18世纪以来，第一次有公司做出这样的事情”，林德尔说：“你能想象如果我们放任不管会出现什么后果吗？”
+第209节. 美国在标准制定机构中的代表
 
-“我想要追击他们”，他说：“因为他们的所作所为，所以‘我的枕头’公司要去追击他们……这是我们的第一修正案的权利。多米尼投票机（Dominion）公司通过使用诉讼来压制第一修正案，所以新闻媒体机构甚至都不敢让举报人出镜作证，导致人人自危。”
+第210节.对华战略竞争中心地位的国会认识，这个中心地位是对中共国的制裁和其他方面的限制
 
-这其中就包括福克斯新闻（Fox News），它对选民舞弊问题避而不谈，并因为（嘉宾）提出这个话题而切断了包括川普总统在内的嘉宾连线。
+第211节. 与七国集团就中共国问题进行谈判的国会意识
 
-“主流媒体都不会接受我上节目”，林德尔说：“我愿意上任何节目来谈论真相。福克斯不会让我上。你不得不思考这是为什么？”
+第212节. 加强美台伙伴关系
 
-“你为什么不把自己作为一个新闻节目？” 林德尔说：“他们才应该是受采访的嘉宾。”
+第213节. 台湾政府的待遇
 
-#### 6、迈克.林德尔致力于开发亚马逊平台替代方案“我的商店”
+第214节. 关于中共病毒大流行起源的报告
 
-除了社交媒体平台外，迈克.林德尔（Mike Lindell）正在打造更多大科技公司产品的替代方案，他宣布正在开发一个名为“我的商店”的亚马逊竞争平台。
+第215节.加强与太平洋岛国的外交支持和经济接触
 
-周五，林德尔在《战斗室》的接受采访中披露了这个新项目。
+第216节. 增加国务院对印度-太平洋地区的人员和资源投入
 
-林德尔的名为“Frank ”的新社交媒体平台，综合了油管（YouTube）和推特（Twitter）的功能，将于4月19日正式上线。该平台将在本周末前提前向VIP会员开放注册。
+第217节.提高美国在联合国系统的领导地位
 
-**原文链接：**
+副标题B——国际安全事务
 
-1.  [John Lott ‘Shocked by the Number of Lies’ Biden Told About Guns](https://pandemic.warroom.org/2021/04/09/john-lott-shocked-by-the-number-of-lies-biden-told-about-guns/)
+第221节.定义
 
-2.  [Deep State Scum Declares War on MAGA](https://pandemic.warroom.org/2021/04/09/deep-state-scum-declares-war-on-maga/)
+第222节. 调查结果
 
-3.  [19 Cyber Attacks from China Flipped 5 States to Biden on Nov. 3](https://pandemic.warroom.org/2021/04/09/19-cyber-attacks-from-china-flipped-5-states-to-biden-on-nov-3/)
+第223节. 支持印太安全伙伴关系的国会意识
 
-4.  [Mike Lindell’s New Social Media ‘Frank’ to Launch Early for VIPs](https://pandemic.warroom.org/2021/04/09/mike-lindells-new-social-media-frank-to-launch-early-for-vips/)
+第224节. 政策声明
 
-5.  [Mike Lindell Suing Dominion AGAIN: ‘We’re Going After Them in the Biggest Way Possible’](https://pandemic.warroom.org/2021/04/09/mike-lindell-suing-dominion-again-were-going-after-them-in-the-biggest-way-possible/)
+第225节. 印度-太平洋地区的外国军事资助，东南亚海上安全项目和外交外联活动的拨款授权
 
-6. [Mike Lindell Pursuing Amazon Alternative Called ‘My Store’](https://pandemic.warroom.org/2021/04/09/mike-lindell-pursuing-amazon-alternative-called-my-store/)
+第226节. 印度-太平洋外国军事资助契约试点项目
+
+第227节. 印度-太平洋国际军事教育和训练的额外资金
+
+第228节. 优先考虑印度-太平洋地区过剩的国防物资转移
+
+第229节. 优先考虑印度-太平洋地区过剩的海军舰艇转移
+
+第230节. 关于在印度洋-太平洋国际水道和空域以及在南中国海的人工陆地特征的海上行动自由的政策声明
+
+第231节. 印度-太平洋盟国和伙伴能力发展报告
+
+第232节.国家技术和产业基础报告
+
+第233节.关于中共国军事设施对外联络的报告
+
+第234节. 关于普遍执行联合国对朝鲜制裁的政策声明
+
+第235节.对中共国军事设施所在国援助的限制
+
+副标题C——对付中共国的区域战略
+
+第241节.关于同世界各盟国和伙伴合作的政策声明，这些合作涉及到中共国
+
+第一部分-西半球
+
+第245节. 对美加关系的国会意识
+
+第246节. 关于中共国政府任意监禁加拿大公民的国会意识
+
+第247节. 加强与加拿大合作的战略
+
+第248节. 加强拉丁美洲和加勒比地区经济竞争力、治理、人权和法治的战略
+
+第249节. 参与拉丁美洲和加勒比的地区和国际组织
+
+第250节. 讨论中共国在拉丁美洲和加勒比地区的主权贷款的做法
+
+第251节. 拉丁美洲和加勒比地区的防务合作
+
+第252节.与拉丁美洲和加勒比地区民间社会就问责制、人权和普遍的监测技术的风险进行接触
+
+第二部分——跨大西洋联盟
+
+第255节. 关于跨大西洋联盟的国会意识
+
+第256节. 关于中共国加强跨大西洋合作的战略
+
+第257节. 加强跨大西洋合作，促进私营部门融资
+
+第258节.中伊、中俄合作情况的报告和简报
+
+第三部分——南亚和中亚
+
+第261节. 南亚和中亚的国会意识
+
+第262节. 加强与南亚和中亚合作的战略
+
+第四部分——非洲
+
+第271节. 评估中共国在非洲的政治、经济和安全的活动
+
+第272节. 提高美国在非洲的竞争力
+
+第273节. 非洲数字安全合作
+
+第274节.增加美国驻撒哈拉以南非洲大使馆人员，以关注中共国
+
+第275节. 支持非洲青年领导人的倡议
+
+第276节.非洲广播网
+
+第五部分——中东和北非
+
+第281节. 应对中共国在中东和北非的影响和进入的战略
+
+第282节. 关于中东和北非参与的国会意识
+
+第六部分北极地区
+
+第285节. 北极外交
+
+第七部分-大洋洲
+
+第291节. 美国参与大洋洲政策声明
+
+第292节. 大洋洲战略路线图
+
+标题3——我们价值观的投入
+
+第301节.香港促进民主的拨款授权书
+
+第302节. 在新疆维吾尔自治区实施有关强迫劳动的制裁
+
+第303节.在新疆维吾尔自治区对蓄意强奸、强迫堕胎、强迫绝育、非自愿避孕实施制裁
+
+标题4——我们经济治国方略的投入
+
+第401节. 关于中共国产业政策的国会发现和意识
+
+第402节. 侵犯知识产权者清单
+
+第403节. 中共国政府补贴清单
+
+第404节. 打击外国腐败行为
+
+第405节. 对有资格获得国际发展协会资助国家的债务减免
+
+第406节. 中共国政府利用香港规避美国法律和保护的方式和程度的报告
+
+第407节. 对中共国公司在美国资本市场存在情况的年度审查
+
+标题5——确保战略安全
+
+第501节. 关于战略安全和军备控制的调查结果
+
+第502节. 战略核对话合作
+
+第503节. 关于美国就核问题和弹道导弹问题同中共国接触的努力方面的报告
+
+有关链接：
+
+【1】https://www.gnews.org/zh-hans/1065880/
+
+【2】
+
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+
+文字整理：
+
+A BILL
+
+To address issues involving the People’s Republic of China.
+
+Be it enacted by the Senate and House of Representatives of the United States of America in Congress assembled,
+
+SECTION 1. SHORT TITLE; TABLE OF CONTENTS.
+
+(a) SHORT TITLE. — This Act may be cited as the ‘‘Strategic Competition Act of 2021’’.
+
+(b) TABLE OF CONTENTS. — The table of contents for this Act is as follows:
+
+Sec. 1. Short title; table of contents.
+
+Sec. 2. Findings.
+
+Sec. 3. Definitions.
+
+Sec. 4. Statement of policy.
+
+Sec. 5. Sense of Congress.
+
+Sec. 6. Rules of construction.
+
+TITLE I — INVESTING IN A COMPETITIVE FUTURE
+
+Subtitle A—Science and Technology
+
+Sec. 101. Authorization to assist United States companies with global supply chain diversification and management.
+
+Subtitle B—Global Infrastructure Development
+
+Sec. 111. Appropriate committees of Congress defined.
+
+Sec. 112. Sense of Congress on international quality infrastructure investment standards.
+
+Sec. 113. United States support for infrastructure.
+
+Sec. 114. Infrastructure Transaction and Assistance Network.
+
+Sec. 115. Strategy for advanced and reliable energy infrastructure.
+
+Sec. 116. Report on China’s investments in foreign energy development.
+
+Subtitle C—Digital Technology and Connectivity
+
+Sec. 121. Sense of Congress on digital technology issues.
+
+Sec. 122. Digital connectivity and cybersecurity partnership.
+
+Subtitle D—Countering Chinese Communist Party Influence
+
+Sec. 131. Short title.
+
+Sec. 132. Authorization.
+
+Sec. 133. Findings on Chinese information warfare and malign influence operations.
+
+Sec. 134. Authorization of appropriations for the Fulbright-Hays Program.
+
+Sec. 135. Sense of Congress condemning anti-Asian racism and discrimination.
+
+Sec. 136. Supporting independent media and countering disinformation.
+
+Sec. 137. Global engagement center.
+
+Sec. 138. Review by Committee on Foreign Investment in the United States of certain foreign gifts to and contracts with institutions of higher education.
+
+TITLE II—INVESTING IN ALLIANCES AND PARTNERSHIPS
+
+Subtitle A—Strategic and Diplomatic Matters
+
+Sec. 201. Appropriate congressional committees defined.
+
+Sec. 202. United States commitment and support for allies and partners in the Indo-Pacific.
+
+Sec. 203. Sense of Congress on cooperation with the Quad.
+
+Sec. 204. Statement of policy on cooperation with ASEAN.
+
+Sec. 205. Sense of Congress on enhancing United States–ASEAN cooperation on technology issues with respect to the People’s Republic of China.
+
+Sec. 206. Report on Chinese influence in international organizations.
+
+Sec. 207. Regulatory exchanges with allies and partners.
+
+Sec. 208. Technology partnership office at the Department of State.
+
+Sec. 209. United States representation in standards-setting bodies.
+
+Sec. 210. Sense of Congress on centrality of sanctions and other restrictions to strategic competition with China.
+
+Sec. 211. Sense of Congress on negotiations with G7 countries on the People’s Republic of China.
+
+Sec. 212. Enhancing the United States-Taiwan partnership.
+
+Sec. 213. Treatment of Taiwan government.
+
+Sec. 214. Report on origins of the COVID–19 pandemic.
+
+Sec. 215. Enhancement of diplomatic support and economic engagement with Pacific island countries.
+
+Sec. 216. Increasing Department of State personnel and resources devoted to the Indo-Pacific.
+
+Sec. 217. Advancing United States leadership in the United Nations System.
+
+Subtitle B—International Security Matters
+
+Sec. 221. Definitions.
+
+Sec. 222. Findings.
+
+Sec. 223. Sense of Congress regarding bolstering security partnerships in the Indo-Pacific.
+
+Sec. 224. Statement of policy.
+
+Sec. 225. Foreign military financing in the Indo-Pacific and authorization of appropriations for Southeast Asia maritime security programs and diplomatic outreach activities.
+
+Sec. 226. Foreign military financing compact pilot program in the Indo-Pacific.
+
+Sec. 227. Additional funding for international military education and training in the Indo-Pacific.
+
+Sec. 228. Prioritizing excess defense article transfers for the Indo-Pacific.
+
+Sec. 229. Prioritizing excess naval vessel transfers for the Indo-Pacific.
+
+Sec. 230. Statement of policy on maritime freedom of operations in international waterways and airspace of the Indo-Pacific and on artificial land features in the South China Sea.
+
+Sec. 231. Report on capability development of Indo-Pacific allies and partners.
+
+Sec. 232. Report on national technology and industrial base.
+
+Sec. 233. Report on diplomatic outreach with respect to Chinese military installations overseas.
+
+Sec. 234. Statement of policy regarding universal implementation of United Nations sanctions on North Korea.
+
+Sec. 235. Limitation on assistance to countries hosting Chinese military installations.
+
+Subtitle C—Regional Strategies to Counter the People’s Republic of China
+
+Sec. 241. Statement of policy on cooperation with allies and partners around the world with respect to the People’s Republic of China.
+
+PART I—WESTERN HEMISPHERE
+
+Sec. 245. Sense of Congress regarding United States-Canada relations.
+
+Sec. 246. Sense of Congress regarding the Government of China’s arbitrary imprisonment of Canadian citizens.
+
+Sec. 247. Strategy to enhance cooperation with Canada.
+
+Sec. 248. Strategy to strengthen economic competitiveness, governance, human rights, and the rule of law in Latin America and the Caribbean.
+
+Sec. 249. Engagement in regional and international organizations in Latin America and the Caribbean.
+
+Sec. 250. Addressing China’s sovereign lending practices in Latin America and the Caribbean.
+
+Sec. 251. Defense cooperation in Latin America and the Caribbean.
+
+Sec. 252. Engagement with civil society in Latin America and the Caribbean regarding accountability, human rights, and the risks of pervasive surveillance technologies.
+
+PART II—TRANSATLANTIC ALLIANCE
+
+Sec. 255. Sense of Congress on the Transatlantic alliance.
+
+Sec. 256. Strategy to enhance transatlantic cooperation with respect to the People’s Republic of China.
+
+Sec. 257. Enhancing Transatlantic cooperation on promoting private sector finance.
+
+Sec. 258. Report and briefing on cooperation between China and Iran and between China and Russia.
+
+PART III—SOUTH AND CENTRAL ASIA
+
+Sec. 261. Sense of Congress on South and Central Asia.
+
+Sec. 262. Strategy to enhance cooperation with South and Central Asia.
+
+PART IV—AFRICA
+
+Sec. 271. Assessment of political, economic, and security activity of the People’s Republic of China in Africa.
+
+Sec. 272. Increasing the competitiveness of the United States in Africa.
+
+Sec. 273. Digital security cooperation with respect to Africa.
+
+Sec. 274. Increasing personnel in United States embassies in sub-Saharan Africa focused on the People’s Republic of China.
+
+Sec. 275. Support for Young African Leaders Initiative.
+
+Sec. 276. Africa broadcasting networks.
+
+PART V—MIDDLE EAST AND NORTH AFRICA
+
+Sec. 281. Strategy to counter Chinese influence in, and access to, the Middle East and North Africa.
+
+Sec. 282. Sense of Congress on Middle East and North Africa engagement.
+
+PART VI—ARCTIC REGION
+
+Sec. 285. Arctic diplomacy.
+
+PART VII—OCEANIA
+
+Sec. 291. Statement of policy on United States engagement in Oceania.
+
+Sec. 292. Oceania strategic roadmap.
+
+TITLE III—INVESTING IN OUR VALUES
+
+Sec. 301. Authorization of appropriations for promotion of democracy in Hong Kong.
+
+Sec. 302. Imposition of sanctions relating to forced labor in the Xinjiang Uyghur Autonomous Region.
+
+Sec. 303. Imposition of sanctions with respect to systematic rape, coercive abortion, forced sterilization, or involuntary contraceptive implantation in the Xinjiang Uyghur Autonomous Region.
+
+TITLE IV—INVESTING IN OUR ECONOMIC STATECRAFT
+
+Sec. 401. Findings and sense of Congress regarding the PRC’s industrial policy.
+
+Sec. 402. Intellectual property violators list.
+
+Sec. 403. Government of the People’s Republic of China subsidies list.
+
+Sec. 404. Countering foreign corrupt practices.
+
+Sec. 405. Debt relief for countries eligible for assistance from the International Development Association.
+
+Sec. 406. Report on manner and extent to which the Government of China exploits Hong Kong to circumvent United States laws and protections.
+
+Sec. 407. Annual review on the presence of Chinese companies in United States capital markets.
+
+TITLE V—ENSURING STRATEGIC SECURITY
+
+Sec. 501. Findings on strategic security and arms control.
+
+Sec. 502. Cooperation on a strategic nuclear dialogue.
+
+Sec. 503. Report on United States efforts to engage the People’s Republic of China on nuclear issues and ballistic missile issues.
 
 0

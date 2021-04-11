@@ -1,25 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [墙内热搜]中国的国企都是垄断企业
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1076599/)
+## 2021年4月10日 文贵先生盖特 2
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1076915/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/LOGO3_1.jpg)
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-香草山写作组：B. Star
+4月10号：我们昨天的现在时间同一个．发生了很多很多的事情，这个世界在巨变中！新中国联邦人是世界上最大的获益者！也是最伟大的群体之一！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/5f6c2943144f2ac320cb626cf73c96ec.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/6b1d5fadcaa14b402cbb5a0fa5a646a5.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/7da2b39c1791371e31ad4843c629b984.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/7fa6846a64e543b0b2a1ede900145e82.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/84f42aa9e9933ddb51fa68017df0512a.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/5882b9c6873d0a2c6a1da6b7b2b7dfff.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/e75d92a1834aff113c9f92cf81f90195.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/e7896f1ac03c3238fe3d96f32419503f.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/f942079f34d95f004e723461ddb3119a.jpg)
+[【2021年4月10日】文贵先生盖特原文](https://gtv.org/getter/6071a58edbc8001854a742e7)
 
-中国的国企都是垄断企业。私人企业做大之后，更多的是为政府服务，实质上也是垄断企业。所谓” 违反中国的《反垄断法》” ，无非是政府随时可以安上去的罪名。
+**喜联盟Gnews编辑部**
 
-根据市场监管总局网站公布, “经查，阿里巴巴集团在中国境内网络零售平台服务市场具有支配地位。自2015年以来, 阿里巴巴集团滥用该市场支配地位, 对平台内商家提出“二选一”要求，禁止平台内商家在其他竞争性平台开店或参加促销活动，并借助市场力量、平台规则和数据、算法等技术手段，采取多种奖惩措施保障“二选一”要求执行，维持、增强自身市场力量，获取不正当竞争优势。构成《反垄断法》第十七条第一款第（四）项禁止“没有正当理由，限定交易相对人只能与其进行交易”的滥用市场支配地位行为。 根据《反垄断法》第四十七条、第四十九条规定，综合考虑阿里巴巴集团违法行为的性质、程度和持续时间等因素，2021年4月10日，市场监管总局依法作出行政处罚决定，责令阿里巴巴集团停止违法行为，并处以其2019年中国境内销售额4557.12亿元4%的罚款，计182.28亿元。”
-
-182亿元人民币这个天价罚款是剥夺私人企业财产的一个方式 。CCP 根本没有给私人企业家提供稳定发展的环境。在中国大部分国企都是不同级别地区的垄断企业, 现在用反垄断法进一步大幅缩小私人企业的生存环境。私人企业家的生存环境越来越恶劣。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-146.png)图片来源：阿里巴巴集团
-编辑/审核/发稿： 浪迹天涯
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 0

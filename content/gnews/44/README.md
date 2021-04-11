@@ -1,85 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日新闻收集【4/10】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1074292/)
+## 面对病毒暴政 为何保持沉默
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1074411/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
+翻译：康州盘古农场-ww
+校对：康州盘古农场-Mike Li
+编辑：康州盘古农场-蓝精灵
 
+《零对冲》作者：泰勒杜登(TYLER DURDEN)，2021年4月8日发布，美国经济研究所Daniel Boudreaux撰写：
+![]()![](https://gnews.org/wp-content/uploads/2021/04/EFF7EAD4-1B3A-47FE-AF55-33A0F6A61950.jpeg)
+以必定存在的封锁怀疑论者的角度，我最近在英国注意到这样一份招聘广告：
 
+这里有一个令人兴奋的职位，提供给经验丰富的通信专业人员：国家卫生部门（NHS）的通信团队中的高级领导。这个在核心部门工作的机会，将是你步入公务员未来职业生涯的第一步。
 
-> Beijing forces elite Jack Ma academy’s name to be changed to “Wang Qishan Military Academy”[#jackma](https://twitter.com/hashtag/jackma?src=hash&amp;ref_src=twsrc%5Etfw) [#canceled](https://twitter.com/hashtag/canceled?src=hash&amp;ref_src=twsrc%5Etfw) [#goodbyeJack](https://twitter.com/hashtag/goodbyeJack?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/xGm7xadSM2](https://t.co/xGm7xadSM2)
-> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [April 10, 2021](https://twitter.com/Jkylebass/status/1380832532183322630?ref_src=twsrc%5Etfw)
+**您将主要负责提供通信策略****，来****支持无症状监测的扩展，使检测正常化成为日常生活的一部分。 **该职位提供了与公共和私营部门的各种利益相关者合作的机会，并支持和传播我们的推广活动。
 
+特别注意以上我用**粗体和斜体**标注的文字。
 
-1. 凯尔·巴斯**`推特`**：
-*北京强迫精英马云商学院（马云的杭州市优秀湖泛大学）改名为“王岐山军事学院”。附《金融时报》的**`新闻链接`***
+因为我是通过封锁怀疑论者收集的有关Covid-19发展的链接，注意到这则广告的。这些信息里，有一些是关于即将到来的疫苗护照制度的新闻条目 ，这则广告并没有让我感到惊讶，也因为到目前为止，人类已经被新冠病毒错乱综合征带来的邪恶，折磨了一年多。
 
+**如果我在2020年3月中旬之前遇到这则广告，我会****感到震惊****、惊愕、错愕。 **英国卫生当局正试图将无症状人群的检测作为日常生活的一部分，这一举措正在进行中。看到支持这种荒唐的侵犯隐私和侵犯自由的方式，我首先会去谷歌搜索，以确保这则广告不是一个骗局。如果我惊恐地发现它是真的，我会从键盘上发出愤怒的抗议。
 
-> China government owns successful [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) and unsuccessful vaccine, then promotes both to the world for their benefits under the help of [#UnrestrictedScientificMisinformation](https://twitter.com/hashtag/UnrestrictedScientificMisinformation?src=hash&amp;ref_src=twsrc%5Etfw).[#CCPLiedPeopleDied](https://twitter.com/hashtag/CCPLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/jXj6mVTvGd](https://t.co/jXj6mVTvGd)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 10, 2021](https://twitter.com/DrLiMengYAN1/status/1380898841617174534?ref_src=twsrc%5Etfw)
+**但在2021年4月****看到这则****广告，却根本没有****让人****惊讶**。 这种侵犯自由的行为是大卫-哈特所说的 “卫生社会主义 “可以预见的部分，在过去的13个月里，它已经降临到很多人身上。
 
+**多么悲伤****，这真是一个悲剧。**
 
-2. **`闫博士推特`**：
-*（塞林博士）中共军民融合项目中共病毒研究/疫苗开发计划的产物（新冠病毒） – 武汉是病毒工程、动物测试、疫苗生产和医院临床服务的多机构研发中心，中共病毒是从武汉故意投放到外卖
-（闫博士）中共政府拥有成功的“超限生物武器”（中共病毒）和失败的疫苗，然后在“超限科学误导的帮助下向世界推广两者，以谋取利益。#CCPLiedPeopleDied*
+看到这则广告，我不禁再次发问：自由之友在哪里？ 为什么这么多人在面对自由和文明遭到如此可怕的打击时，仍然保持沉默？我真的不明白，那么多曾经可靠的雄辩的自由之声，今天的却沉默不语。这些声音在过去一直在告诫政府官员的荒谬虚伪，以及这些官员的不正当动机。
 
+**我**仍然**相信我**没有资格**对别人**的**沉默**进行评判。 但我可以在试图解释这种沉默的同时，避免做出评判。以下是我的**怀疑** ，**我强调是怀疑** ， 就是在许多自由主义者**、**古典自由主义者和自由市场保守派的脑海中，他们对新冠病毒暴政保持沉默与川普的联系。
 
-> 卧槽劲爆！继巴基斯坦总理接种中共疫苗后检测出 [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) 阳性后，巴基斯坦总统今天也在接种中共疫苗后检测出阳性！
-> 中共疫苗成功对巴基斯坦总统和总理进行了double kill ! [https://t.co/oQzgNqlKOl](https://t.co/oQzgNqlKOl) [pic.twitter.com/WvdmH0stL6](https://t.co/WvdmH0stL6)
-> — 黄鹤楼大厨（新） (@GuoWarriors7) [March 30, 2021](https://twitter.com/GuoWarriors7/status/1376709205453795333?ref_src=twsrc%5Etfw)
+**在2020年春天，主流媒体和大多数精英声音**，已经被他们**对唐纳德-川普的无比仇恨**所鼓动**，把新冠病毒的**责任直接都归咎于**川普。**
 
+在他们看来，**川**普未能让国家以抗击新冠疫情的名义，采取更多措施限制人们的自由，是新冠病毒在美国爆发传播的主要原因。
 
-3. **`黄鹤楼大厨推特`**：
-*卧槽劲爆！继巴基斯坦总理接种中共疫苗后检测出 #CCPVirus 阳性后，巴基斯坦总统今天也在接种中共疫苗后检测出阳性！ 中共疫苗成功对巴基斯坦总统和总理进行了double kill*
+在这里的事实变得不重要了。事实是**美国总统没有宪法权力以任何方式单方面封锁国家**，就像鲍里斯约翰逊封锁英国，或者州长戈尔·格罗尔·惠特默封锁密歇根州，还有其他州长封锁他们自己的州一样
 
+在我看来，川普给支持封锁的**安东尼福奇和比尔克斯**一个非常重要的位置，他们得以传达脱离上下文的信息，有时候甚至是故意的虚假的关于这种病毒的信息。尽管有大量的证据表明，封锁对于新冠病毒的传播，影响很小，甚至没有影响。这个事实在这里也变得那么不重要了。
 
-> 这是养猪呢还是去打仗😄 [pic.twitter.com/0tZkfGG1Mk](https://t.co/0tZkfGG1Mk)
-> — 圣斗士星矢 (@songjim5) [April 10, 2021](https://twitter.com/songjim5/status/1380918507458682880?ref_src=twsrc%5Etfw)
+川**普**确实发表了一长串关于新冠病毒的愚蠢的（在我看来）言论。 人们如此鄙视他，以至于无论他做了什么或者说了什么（除了“我立即辞职”以外），他从一开始就注定要被塑造成小人，因为新冠病毒必须被关注，必须把**Covid**的责任推到他的身上。
 
+人们认为川普应该受到谴责，这进一步助长了川普和一般政治右派的人就是罪魁祸首的说法，尤其是川普的支持者被认为与敌视科学有关。这篇文章不是探讨这种关联的正义性的地方。我在这里只做三点总结：第一，许多政治左翼人士认为的已经视为定论的科学，其实不是。第二，许多政治左派的人与政治右派的人一样，都有无视科学的习惯，不仅仅是经济科学。特别是当这样做能促进他们的政治目的时候。第三，最终必须如何进行权衡的，不是也不可能是科学，而是人类价值判断。 虽然公共政策应该以科学为依据，但公共政策不可能由科学来决定。任何持相反观点的人既不了解科学，也不了解社会。
 
-4. **`圣斗士星矢推特`**
-*山东航空母舰每天吃7顿，比美国多2顿饭，这是养猪呢还是去打仗？*
+**以上这些事实都不重要。 唯一重要的是，**无论准确与否，川**普**与**反对以打击Covid的名义实施的封锁和其他限制**联系在了一起**。**与蓝州相比，红州对封锁和强制戴口罩的抵制更大，这一事实为这种关联提供了支持。因为今天川普和共和党处于美国政治和意识形态的“不科学”极点，因此得出了不合逻辑的结论。即新冠病毒的封锁和限制（被视为反川普主义的）是支持科学的，也是理性的和正当的。
 
+我怀疑，许多现在对此沉默的自由之友真的相信，右翼反对封锁和Covid癔症本身，就足以证明Covid封锁的价值和对Covid的强烈恐惧。**这些自由之友中的其他人可能对锁定和Covid**癔症**持沉默的怀疑，**但**不愿公开表达这些怀疑**，因为**担心会被视为**川**普**的支持者**。**
 
-> [#中共國](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9C%8B?src=hash&amp;ref_src=twsrc%5Etfw) 同一天發生，除黑除了自己？🤣🤣🤣 [pic.twitter.com/7EUIHRuoVB](https://t.co/7EUIHRuoVB)
-> — 暗夜KIN(新号回归) (@KIN20200604) [April 10, 2021](https://twitter.com/KIN20200604/status/1380695249756979204?ref_src=twsrc%5Etfw)
+当然，面对这种对自由的不断挑战，每个现在奇怪的沉默的自由朋友都有自己独特的理由来保持沉默。 毫无疑问，我在这里对“任何川普主义的东西过敏”的解释并不能解释每个人的沉默。 **一些沉默的人真诚地（在我看来**如果**是莫名其妙地）确实相信Covid-19对人类构成了如此独特的严重威胁，以至于我们没有允许国家封锁我们，让我们戴口罩**，**以及**用**其他方式限制我们的**活动，而对此感到了失望**，**否则**只要国家认为有必要**的，没有问题**。**
 
+其他一些人可能由于我猜测不出来的原因而陷入沉默。
 
-4. **`暗夜KIN推特`**
-*《扫黑除恶》第一时间成立的组长刘新云，刚上位就被干掉了。习神遇到困难了，不科学？*
+但我担心，许多自由之友今天的沉默，很大程度上源自于一种脆弱的认同：封锁反对派与川普主义是一体的。**对**川**普的憎恶是如此**强**烈，以至于推翻**了一种**常识**性的认识：**作为总统的**川**普并不具备国王坎特**所**吹嘘的那种权力**。与川普和他的追随者保持距离的渴望是如此强烈，以至于它似乎使许多人对正在进行的对自由和文明的不可原谅的破坏视而不见。
 
+不要从上面推断我是川普的粉丝。我当然不是。从一开始我就一直批评他。但是当人们权衡专制主义的程度时，实际上可能是川普，将这种专制政权指责为煽动和助长，Covid的隔离，戴口罩，学校停课，还有关于Covid歇斯底里的暴政数量，仍然被政府官员煽动** **，病毒的政权的暴政远远超过了川普的暴政。
 
-> [#溫哥華](https://twitter.com/hashtag/%E6%BA%AB%E5%93%A5%E8%8F%AF?src=hash&amp;ref_src=twsrc%5Etfw) 市長宣布：暫停與 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hash&amp;ref_src=twsrc%5Etfw) 官員所有的會面 
-> 
-> 中共因新疆問題報復性制裁 [#加拿大](https://twitter.com/hashtag/%E5%8A%A0%E6%8B%BF%E5%A4%A7?src=hash&amp;ref_src=twsrc%5Etfw) 眾議員 [#莊文浩](https://twitter.com/hashtag/%E8%8E%8A%E6%96%87%E6%B5%A9?src=hash&amp;ref_src=twsrc%5Etfw) 等人。對此，莊文浩的好友、溫哥華市長甘迺迪日前宣布，暫停與所有中共官員的會面，以回應中共的霸凌行為，並批評中共對莊文浩的「反制裁」不是交外手段，而是欺凌行為。[https://t.co/e0U1frpjH9](https://t.co/e0U1frpjH9)
-> — 澳洲大紀元 (@epochtimesau) [April 10, 2021](https://twitter.com/epochtimesau/status/1380779414955376641?ref_src=twsrc%5Etfw)
+原文链接：https://www.zerohedge.com/covid-19/why-silence-face-covid-tyranny
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-
-6. **`大纪元推特`**
-*郭先生爆料土耳其断水中共大使馆后，温哥华市长与中共官员断交*
-
-
-> 4/10 郭先生蓋特
-> 🔥美國務院會把台灣當做一個國家對待，並恢復了台灣駐華盛頓大使館「橡樹園」
-> 🔥本週美國會對中概股進行新的懲罰，歐洲跟進，日本在起草科技企業制裁條例
-> 🔥中共國駐瑞典、土耳其、法國、日本、美國的大使們，會被趕回中共國
-> 🔥疫苗經濟會成為災難，多國家會因中共的假疫苗向中共追責
-> — Cantonese工作室 (@Cantoneseteam) [April 10, 2021](https://twitter.com/Cantoneseteam/status/1380947840571088896?ref_src=twsrc%5Etfw)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 
-7. **`Cantonese工作室推特`**
-4/10 郭先生盖特
-美国务院会把台湾当做一个国家对待，并恢復了台湾驻华盛顿大使馆「橡树园」
-本周美国会对中概股进行新的惩罚，欧洲跟进，日本在起草科技企业制裁条例
-中共国驻瑞典、土耳其、法国、日本、美国的大使们，会被赶回中共国
-疫苗经济会成為灾难，多国家会因中共的假疫苗向中共追责
-摩根先生坚持不打疫苗，并展示了爆料革命的视频给他的医生团队看，最后医生同意他不打疫苗
-未来会有更多的人，参与到揭发共產党病毒真相的队伍。目前已经有人与欧洲、美国合作了
-华盛顿州末的政治聚会上，大家都在谈论，拜登政府对付共产党的胆量，会错过一次又一次战机，把美国人置于危险境地
-全世界都在通胀 ，全球经济大灾难会很快到来，大家不要往前冲
-共产党利用潜伏的特务攻击G系列，是因为G系列会取代他们，破灭只有中概股才能让大家赚钱的神话，
-要和我们合作的欧洲某机构本来认為要和中国人合作，只有与共产党合作，现在知道了，还可以和我们新中国联邦合作，这是巨大的机会
 
-
-+1
+0
