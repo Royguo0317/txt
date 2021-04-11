@@ -1,59 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104010（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1073530/)
+## 台湾准备在南海击落中共无人机
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1073702/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+作者：休斯顿星光农场 写作部 烽火
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
+【路透社】4月7日报道，中共派遣无人机在台湾控制的岛屿附近盘旋，台方表示一旦进入限制的水域和领空，可能会将其击落。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-04-10-170613.jpg)
+*图片来源：知乎网*
+
+台湾海岸警卫队所属的海洋事务委员会负责人李钟伟在议会发言时说，他们最近发现中共的无人机在普拉塔斯群岛上空盘旋，但是从来没有进入限制水域和领空，只是在一定距离上绕着这些岛屿飞了一圈。
+
+当被问及如果中共的无人机进入该禁区将如何应对时，李钟伟说：“进入之后，会按照规则来处理。如果我们需要开火，我们就开火。” 此前，台湾多次发现中共空军在这些岛屿附近活动，台湾海岸警卫队虽然定期部署海军陆战队，但只是轻描淡写地进行防御。
+
+据报道，去年10月，香港空中交通管制员警告一架飞往普拉塔斯群岛进行每周例行补给的台湾民航班机，并迫使其返航。
+
+普拉塔斯群岛位于有争议的水道上端，是距离香港最近的台控领土。自从香港“反送中“以来，普拉塔斯群岛成为香港人逃亡路线之一。台湾已经在靠近普拉塔斯群岛的地方拦截了至少一艘船，船上载有从香港逃亡的人，试图前往台湾。
+
+李钟伟表示，在台湾另一个主要的南海岛屿–伊图阿巴岛（又称太平岛，是南沙群岛的一部分）附近未发现中共派遣的无人机。 中共在南海海域的行动，看似为了封堵逃亡港胞，但其准备随时武统台湾的狼子野心已经世人皆知。台湾若仍无一战之心，抱着对中共的幻想，结局必将惨淡。
+
+信息来源：[https://www.reuters.com/article/us-southchinasea-taiwan-idUSKBN2BU1CV](https://www.reuters.com/article/us-southchinasea-taiwan-idUSKBN2BU1CV)
+
+编辑/校对/发稿：Helen
+
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-1-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-2-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-3-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-4-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-5-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-6-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-7-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-8-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-1-3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-2-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-3-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-4-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-5-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-6-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-7-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-8-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-9-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-10-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-11-7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-12-2.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
 
 0
