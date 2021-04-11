@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4/8/2021 路德节选：郝董爆料袁伟民烂账
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1077600/)
+## 4/8/2021 路德节选：郝董揭露中共国体育娱乐界毒品泛滥、淫乱之风横行
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1077655/)
 
-中共的体制造成连袁伟民这样带领女排夺得世界冠军的官员都腐败透顶，全是乱账黑账。
+郝董点名揭露中共国体育界、娱乐界的毒品滥用、聚众淫乱现象，每个字、每件事都是真实的
 
 By: 【秘密翻译组G-Translators】
 
