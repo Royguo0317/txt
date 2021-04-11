@@ -1,34 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 情况非常严峻 每天都很重要
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1073033/)
+## 【战友心声】跟着共产党快步走进火葬场
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1073341/)
 
-```
-信息来源：世界报网页版
-发布时间：2021年4月9日
-翻译整理/简评： Shuizhuyu
-```
+作者：纽约香草山媒体部 蜜蜂
 
 
-重症监护医师再次呼吁立即发布严厉的禁令。如果政客们不对感染数量的“急剧增加”采取立即行动，那么第三波大流行将超过第二波。
 
-德国的重症监护医生呼吁立即严厉锁定两到三个星期。德国重症监护和急诊医学跨学科协会主席格诺特·马克思（Gernot Marx）周五说，诊所的情况令人深感忧虑。 “它在剧烈恶化中。情况非常严峻。每天都很重要。”马克思大声疾呼，主张采取国家统一的方针政策。 “没有时间实施开放模式了。”
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-冠状病毒患者的数量不受控制且急剧增加，这“正如我们所预料的那样令人震惊地准确”。现在，患者的年龄大多在40至70岁之间。马克思说，在50岁以下的人群中，每五分之一的重症监护患者死亡，而在老年人中，平均每秒钟死亡。
 
-马克思警告说，如果不立即采取措施，第三波大流行将超越第二波。到4月底，Divi预计全国范围内将有5000多名冠状病毒重症患者。 Divi重症监护中心的科学主管克里斯蒂安·卡拉吉尼迪斯（Christian Karagiannidis）强调说：“诊所处于灾难般的状态。”德国的500家诊所已经不再接受冠状病毒的患者。
 
-#### 简评: 
+据中山大学生命科学学院4月9日发布的讣告，4月8日，中国共产党党员、中山大学教授、博士生导师、国家杰出青年科学基金获得者、生命科学学院院长赵勇因病于广州不幸逝世，终年45岁。
 
-**几天前，我曾发出过一篇新闻稿， 德国的重症病床只剩下1644个。 今天情况在急剧恶化中， 重症病房已经不接受新的病人， 这就意味着，重症病人得不到及时的救治。 再加上，重症病人病程都非常长，占用病床时间也比一般病人时间长， 情况确实危机。 而且新的病毒患者死亡率极高。 病毒真相白皮书什么时候才能出来， 这个病毒什么时候才能得到遏制， 真的太难了， 多少人还在病痛的挣扎中， 多少人还在面临生死。 **
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-144.png)
 
-**新闻来源链接：**🔗[„Es brennt. Die Lage ist sehr dramatisch. Jeder Tag zählt.“](https://www.welt.de/politik/deutschland/article230023733/Intensivstationen-Mediziner-fordern-umgehend-harten-Lockdown.html)
+踏着“清明节经济”的节奏，又一位党的好儿子带着党给与的光环不明不白地为党失去了生命之魂，快步走进了火葬场。赵勇年仅45岁，党龄却已有22年。
 
-* * *
+1998年6月，赵勇毕业于南开大学生命科学学院，获理学学士学位；2003年6月毕业于武汉大学生命科学学院，获理学博士学位；2003年7月至2006年3月在武汉大学生命科学院从事博士后研究工作。2006年4月，他被中共送到美国德克萨斯州立大学从事“博士后研究工作”，随后，其打进美国Ellison基金会及美国衰老研究联合会（AFAR)，并于2009年起任美国德克萨斯州立大学助理讲师。此时，他已出色完成党交给他的“关荣使命”，为己争了光，为党谋了利。
 
-***审核/校对：****Ting Guo*
+2011年6月，赵勇听从党的召唤，回国效劳于广州中山大学生命科学院，任学院教授。随后，他服从党的安排，先后任国际合作与交流处处长、人才发展办公室主任、校长助理。
 
-（免责声明：本文仅代表译者个人观点，跟GNEWS平台无关。）
+他在任期间为党效忠，积极开发生命科学研究，他在《Nature Communications》上发表了题为“Homologous recombination-dependent repair of telomeric DSBs in proliferating human cells”的研究论文，回答了“端粒上的DNA双链断裂能否被修复”这一领域内争论很久的科学问题。同时，也发现端粒DNA损伤激活了本被严格抑制的同源重组机制，从而修复DNA损伤。在此期间他涉猎广泛高深，还身兼两职：生命科学院党委书记和院长。这代表着，在学院内，党的一切勾当都由他全权代表，党叫干啥就干啥。
+
+如今，在类似光荣榜的讣告中人们找不到赵勇死亡的病因，不知是否难于启齿：是为党呕心沥血累死的呢，还是像其他尖端敏感领域科学研究人员一样，在关键时刻被灭口了呢？赵勇22年的党龄再次告诉我们：跟着共产党，走进火葬场。
+
+（本文观点仅代表作者）
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+审核：灵性探索
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
 
 0
