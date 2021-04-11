@@ -1,45 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Mar Llera教授力挺闫丽梦博士揭示中共病毒真相
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1078397/)
+## 欧议会呼吁欧盟和美国对俄实施更严厉制裁
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1078454/)
 
-- 翻译：蚂蚁兄弟
-- 制图：七白石
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/R-11.jpg)info.drillinginfo.com
+04月11日，如果顿巴斯局势升级，或者正在服刑的反对派领导人阿列克谢·纳瓦尔尼的健康状况恶化，欧盟和美国当局应该加强对俄罗斯的制裁。欧洲议会的主要派别欧洲人民党主席曼弗雷德·韦伯（Manfred Weber）在接受丰科（Funke）传媒集团采访时表达了这一观点。
 
-更*多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！*
+他认为，莫斯科“继续着危险的挑衅路线”，俄罗斯在乌克兰东部附近部署军队是对西方的 “考验”。“这个问题的答案必须是明确而坚定的。”这位政治家说。
 
-**西班牙2021年4月11日电/西喜社——**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/images15_mh1618150828194.jpg)
-上个月8日，塞维利亚大学新闻学教授Mar Llera应邀参加了由FAES组织的研讨会，与Nicolás de Pedro先生、Juan Pablo Cardenal先生和Fernando de Haro先生进行了座谈。
+正如韦伯指出的那样，欧盟和美国需要在政治上向俄罗斯领导层展示他们的处境。“在事态升级的情况下，大规模冻结寡头账户或使俄罗斯与SWIFT支付系统断开连接应该是现实的选择。在这种情况下，进一步建设横跨波罗的海的北溪2号管道将不再具有可持续性。”他补充说。
 
-他们用70分钟的时间讲述了中国共产党政权对天主教徒和维吾尔人的迫害。这些都是最近的热点话题，对于中共造成的这些罪恶事件，全世界都感到震惊。
+4月7日，彭博社援引消息人士的话报道称，美国当局将对与俄罗斯总统普京关系密切的人实施制裁，同时也在考虑驱逐俄罗斯外交官的可能性。俄罗斯外长拉夫罗夫在评论该刊物时表示，莫斯科将对美国采取的任何不友好措施作出回应。与此同时，他称华盛顿对莫斯科的政策是“一个死胡同，甚至可能是愚蠢的”。他认为，这“在实施制裁时宣布的目标方面没有带来任何结果”。
 
-Mar Llera是西班牙学术界和新闻界非常著名的新闻学教授。 而多年来，她对香港、台湾和中国的人权问题特别感兴趣。 她曾多次前往香港见证人权事件，她的奉献精神得到了国际组织的认可，并就这些问题发表了大量的文章。
+3月初，彭博社撰文称，在对俄罗斯实施新制裁的问题上，西方国家当局可能会采取“极端措施”。特别是，据该机构称，这种讨论正在华盛顿和伦敦之间进行。该机构的消息人士说，采取额外措施的一个原因可能是俄罗斯“将继续阻挠”对纳瓦尔尼中毒事件的调查。德国的军事专家以及法国和瑞典的实验室专家都声称，纳瓦尔尼是被诺维乔克集团的毒药毒害的。俄罗斯当局多次否认参与毒害这位反对派活动人士，并指出德国没有回答有关纳瓦尔尼情况的询问。
 
-几个月前，当中共病毒大流行席卷西班牙时，Llera教授对这种神秘病毒的来源非常焦虑。 当她了解到在郭文贵先生领导下的 “爆料革命”成功的帮助了闫丽梦博士从香港逃离的消息后，她决定对这位勇敢的异见医生进行独家采访。
+美国和欧盟因乌克兰局势、纳瓦尔尼中毒事件、北溪2号天然气管道建设、前俄联邦安全局上校谢尔盖·斯克里帕尔中毒事件等，对俄罗斯官员和公司实施制裁。
 
-在一次视频交谈中，她们互相端详着对方，两位女士在非常友好、轻松的气氛中进行了交流，也对这次流行病交换了信息，澄清了观点。Llera教授感受到，英雄女科学家的真实、大方，对自己的工作非常敬业，用事实说话。
+参考链接：[https://www.rbc.ru/politics/11/04/2021/60725b889a79479862b915fe](https://www.rbc.ru/politics/11/04/2021/60725b889a79479862b915fe)
 
-随后，Llera教授在Emmanuel Mounier哲学研究院的网站上发表了她的第一篇有关严博士揭露疫情的文章，包括摘要和完整版，她认为这个媒体是迄今为止最不容易受到中共渗透困扰的媒体审查的。
-
-[http://mounier.es/index.php?option=com\_content&view=category&layout=blog&id=49&Itemid=72](http://mounier.es/index.php?option=com_content&amp;view=category&amp;layout=blog&amp;id=49&amp;Itemid=72)
-
-最近，Llera教授又发表了两篇文章，以丰富媒体的内容，现在大家都在寻找有关COVID-19起源的真相的新闻，因为与中共勾结的科学家宣传的谎言，他们意识到世卫组织提供的报告是对人类智慧的侮辱。
-
-[https://www.heraldo.es/noticias/opinion/2021/03/02/por-que-no-debemos-fiarnos-de-china-mar-llera-llorente-tribuna-1474766.html](https://www.heraldo.es/noticias/opinion/2021/03/02/por-que-no-debemos-fiarnos-de-china-mar-llera-llorente-tribuna-1474766.html)
-
-[http://mounier.es/index.php?option=com\_content&view=article&id=669:acontecimiento-137-la-verdad-es-insoportable&catid=51&Itemid=72](http://mounier.es/index.php?option=com_content&amp;view=article&amp;id=669:acontecimiento-137-la-verdad-es-insoportable&amp;catid=51&amp;Itemid=72)
-
-这场大流行几乎造成了世界上每一个国家的重大经济衰退。 除了西语国家的社会政治问题外，政治领导人既没有时间也没有头脑去辨别问题，寻找可行的解决办法，以安抚绝望的民众的精神。
-
-这个该死的中共病毒，几乎逼得所有国家都不得不屈服和接受所谓快速解决的办法就是获取疫苗的思想。但是，闫博士曾在多个场合说过，彻底解决的正确的办法是消灭中共。
-
-Llera教授的西班牙文出版物恰逢其时，在缺乏传播真相的声音的情况下，为这片几乎干涸的绿洲注入了光明和希望。 这个世界绝对需要这样的帮助。 对于Mar Llera教授，我们只能说：非常感谢您。 我们继续在这个旅途中，一起传播真相，直到中共真正被灭亡。
-
-校对：阿伯塔；发稿：神奇四侠
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.gg/PXVSzdHc6p)
-
-+1
+0
