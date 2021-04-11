@@ -1,27 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】各国暂缓或限制阿斯利康中共病毒疫苗接种
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1077958/)
+## 比尔盖茨被秘鲁法院指控对疫情担责后仍推行民众控制
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1077856/)
 
-作者：纽约香草山媒体部 白木；香草山写作组 雪梨
+翻译&评论: 8 Mile
+![]()![](https://gnews.org/wp-content/uploads/2021/04/121-2.png)图片来自网络截图
+比尔-盖茨在这场新冠疫情中扮演着怎样的角色，似乎已经被他的演讲、宣传视频扒掉了底裤。这些既得利益集团，计划通过病毒、疫苗和防控手段达到限制民众自由，洗脑、控制民众的目的已经遭到了曝光和抵制。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS1919-【热点播报】各国暂缓或限制阿斯利康中共病毒疫苗接种-scaled.jpg)图片来源：网络
+在暗中支持中共进行病毒实验研究，疫苗护照推行和挑动种族矛盾等，都离不开这些精英大鳄的联合布局和勾兑。共产主义也正是利用了人性中的恶、贪婪和控制欲收买了这些包括福奇、索罗斯和盖茨在内的利益集团。
 
-据[英国卫报](https://www.theguardian.com/world/2021/apr/07/what-do-i-need-to-know-about-the-oxfordastrazeneca-vaccine)报道， 药品和保健品管理局（MHRA）承认接种阿斯利康疫苗于血栓之间可能存在联系。同一天，欧洲药品管理局（EMA）称，罕见的凝血综合征应该被列为牛津/阿斯利康注射液的一种非常罕见的副作用。
+以下翻译引自《比尔-盖茨推崇一个世界联合政府，用”疫情消防队”控制民众》
 
-阿斯利康中共病毒疫苗与一种少数的、但令人担心的与血小板水平低相关的血栓相关，其中包括一种罕见的脑血栓，称为脑静脉窦血栓（CVST）。
+之前我们报道了秘鲁的一个法院指控比尔-盖茨对制造冠状病毒大流行负责。今天（2021年2月2日），盖茨似乎正利用这种流行病推动全球范围内对民众的控制。
 
-截至（并包括）3月31日，MHRA表示，在接种超过2000万剂量的阿斯利康中共病毒疫苗后，共收到79份血栓并血小板水平低的报告，其中包括19例死亡案例。这相当于每百万个接种疫苗的人中就有4例将可能患有血栓并血小板水平低。其中，有51份报告和13例死亡病例是女性，44份报告和14例死亡病例与血小板水平低的CVST有关。在19例死亡病例中， 50岁以下11例， 30岁以下3例。据欧洲数据处理网络和管理系统[EudraVigilance](https://www.ema.europa.eu/en/news/astrazenecas-covid-19-vaccine-ema-finds-possible-link-very-rare-cases-unusual-blood-clots-low-blood)数据，截至4月4日，EudraVigilance共收到169例CVST和53例脾静脉血栓的报告。
+尽管没有人喜欢这个家伙，甚至没有人关心他说过什么，但比尔-盖茨仍致力于加倍推动暴政。在所谓的“后Covid-19世界”，盖茨坚持认为我们需要用“疫情消防队”进行控制，以防止出现新的流行病。
 
-鉴于此，各国纷纷暂缓或限制了阿斯利康疫苗的接种，英国建议30岁以下的人接种其他的中共病毒疫苗。法国、加拿大、意大利、德国、荷兰、西班牙等国设置不同的年龄区间接种阿斯利康中共病毒疫苗。这无疑将严重打击人们对中共病毒疫苗的信心。
+那么，一个迫切需要回答的问题是，他们到底为什么要为“后Covid-19世界”做准备？难道他们已经准备好释放 Covid-21了吗？
 
-虽然在病毒爆发早期，很多独立医疗从业者在治疗中共病毒方面上有突破性的进展，如Zelenko 医生，但他们提出的的早期预防及轻症治疗等方案却不断的受到主流媒体的审查，限制，打压。各国政府很有默契，在短短的几个月时间内，全世界将防疫重心定位在疫苗的研发，对疫苗推崇备至。没有一个国家站出来向中共索要病毒真相，却企图通过“疫苗经济”缓解国内的政治经济压力，幻想通过疫苗达到群体免疫，致百姓生死于不顾。
+盖茨和他的妻子在上周三发布的年度信件中，详细介绍了他们的新理念。但其Twitter上的视频也许以一种更有力的方式让观察者们明白了其中的含义。这个视频里，盖茨像是在世界地图上移动棋子一样移动各种小人偶。
 
-早在2020年1月19日，英雄科学家闫丽梦博士通过爆料革命路德社节目告知全世界，中共病毒来自中共实验室。郭文贵先生也向西方世界预警中共的“13579计划”，中共企图通过中共病毒要挟、统治全世界。
+盖茨这种对大众说话的方式，似乎把我们当成无法理解其意图的低能儿一样。这些小人偶描绘了不同种族的人类，盖茨将他们定位成“在世界各地，一旦疾病爆发，就能发现他们”。盖茨说道，如果所谓的“全球警报系统”识别出一种新的传染病病原体，由急救人员组成的团队就会像“疫情消防员”一样，赶往该地控制疫情。他用玩具飞机、直升机和身穿黄色防护服的人偶来说明自己的观点。
 
-现如今，中共病毒已造成上亿人感染，两百多万人死亡。的中共病毒在世界各地发生变异，注射疫苗的人们无时无刻不面对着ADE效应的风险。人们越来越意识到疫苗的安全性问题，各国政府、全球各大媒体也开始纷纷要求病毒真相。
+盖茨说：“阻止下一场大流行需要大量投资，但我认为这是世界能买到的最好的保险。”然而，根据RT的报道，没有人喜欢他说的话。看来，普通民众肯定已经厌倦了做顺从的奴隶。
 
-我们相信，中共病毒是超限生化武器这一真相将很快大白于天下，中共也必将为其对全人类犯下的罪行付出代价，共产主义必将被扫进历史的垃圾堆。希望在这期间能有更多有正义，有良知的人站出来发声，让更多的人知道病毒的真相，保护好自己和家人。
+即使盖茨在他的Twitter页面上屏蔽了除了他关注的人之外的评论，也无济于事。有评论员说，这是彻头彻尾的宣传，比尔对他的预防流行病方案自信到关闭了评论。
 
+盖茨还建议，社交媒体平台需要帮助审查任何针对他的可笑想法进行攻击的言论。民众不允许公开表达他们对自由的渴望。盖茨希望奴隶制是你们唯一的选择。
+
+（本文纯属个人观点，以上翻译略有删简）
+
+*审核：Runaway  编辑：MG1*
+
+Source:
+
+[Bill Gates Pushes For One-World Government With “Pandemic Fire Squads” To Control The Masses](https://en-volve.com/2021/02/04/bill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses/)
+
+[Bill Gates Twitter](https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%%20HYPERLINK%20&quot;https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F&quot;7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_%20HYPERLINK%20&quot;https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F&quot;&amp;%20HYPERLINK%20&quot;https://twitter.com/BillGates/status/1356374923078369281?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1356374923078369281%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F&quot;ref_url=https%3A%2F%2Fen-volve.com%2F2021%2F02%2F04%2Fbill-gates-pushes-for-one-world-government-with-pandemic-fire-squads-to-control-the-masses%2F)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
 0
