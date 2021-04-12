@@ -1,69 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104011（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1078564/)
+## 汽车显示器也被“卡脖子”了
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1073635/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+#### 作者：斩草要除根
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20190511101235_14974-e1618167001519.jpg)封面来源：LEADTEK DISPLAY
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+【**[参考消息](http://www.cankaoxiaoxi.com/auto/2021/0408/2439725.shtml)4月8日报道** 】韩国《亚洲时报》报道称，近日，中国政府组织召开车企和显示器制造企业会议，讨论了安装在汽车上的显示器供应不足的解决方案。吉利汽车、长安汽车、北京汽车、广州汽车和显示器制造企业京东方科技集团股份有限公司（BOE）等出席了当天的座谈会。随着智能汽车产品陆续发布，车载显示器的需求不断增加，因此出现了显示器供应不足的问题。这将成为全世界汽车行业发展的另一个不利因素。报道指出，最近，汽车行业因新冠疫情和美国德克萨斯州大规模停电等事件引发半导体供应不足，很多车企决定中断或调整汽车生产。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01.jpg)
+#### 简评：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02.jpg)
+**在“没有不好，只有最好”的厉害国，你会看到一个对中共国不利的消息报道，不是出自本国的新闻媒体而是需要通过引用外媒拐个弯的报道出来。平时牛皮吹破天，关键时刻全扯淡，声称本国的深天马公司车载显示已在2020年前三季度累计出货量登顶全球第一、TCL华星形成了覆盖全尺寸面板的完善布局，推出了含车载等在内的全场景覆盖的多元产品、蓝思科技公司早已提前布局全球中高端智能汽车市。原文中提到的智能汽车产品仅只处于发布阶段而不是量产，所以不存在因为智能汽车而使车载显示器需求增加一说。**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03.jpg)
+**这份新闻报道找了一些牵强的理由，来解释目前他们所面临的困境。而实际的真相是：为加强防备转为军事用途及网络攻击，加入出口管制国际框架的日本、美国等42个国家扩大管制对象，使中共国半导体材料进口受阻。其中美国对华为及中芯国际制裁一拳就打出了中共半导体的真实水平，文中最后一句说得没错，很多车企决定中断或调整汽车生产，但是这仅限于中共国的车企。**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-1.jpg)
+**新闻来源链接：**🔗[韩媒：中国车企面临显示器短缺 官方开座谈会研讨对策](http://www.cankaoxiaoxi.com/auto/2021/0408/2439725.shtml)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05.jpg)
+* * *
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06.jpg)
+***审核/校对：****Ting Guo*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-4.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-11.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/18-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/19-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/20-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/21-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/22-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/23.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/24.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/25.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/26.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
+（免责声明：本文仅代表译者个人观点，跟GNEWS平台无关。）
 
 0

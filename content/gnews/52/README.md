@@ -1,99 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.8.2021PM-Sillin 博士首提舟山蝙蝠病毒骨架
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1078717/)
+## 怒了：美国两党议员共同立法对抗中共
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1078791/)
 
-视频剪辑 : Ablec(文A)
-中听校： 洛杉矶天使农场 – 烟波浩淼
-英翻译：洛杉矶天使农场 – 烟波浩淼
-英校对：洛杉矶天使农场 – 雨山溪桥客
-字幕+视频制作：洛杉矶天使农场 – 压箱底儿の希望
+#### 译评：文盲2020 | 责编：沙拉猫
+![]()![](https://gnews.org/wp-content/uploads/2021/04/capture-16.jpg)图片来源：GETTY IMAGES
+《半岛电视台》4月9日对美即将推出了《2021年战略竞争法》发表了评论报道，指出美国这项新法案不仅针对的是与中共国的经济竞争，同时还包括了对新疆和香港人权问题的关注。
 
-**路德**
-Sellin 博士今天发推正式提到了舟山蝙蝠病毒骨架
-Dr. Sellin tweeted today and officially mentioned about the Zhoushan bat virus backbone
-我们之前做节目说过
-As we said in a previous show
-Sellin 博士前天发推说SIXTA
-Dr. Sellin tweeted the day before yesterday mentioned about the SIXTA
-那是二战时期最神秘的一个组织
-It was one of the most mysterious organizations during World War II
-专门破译和分析所有的
-It was dedicated to decode and analyze
-的秘密以及所有信息的无线电信号的
-all the secrets radio signals of all information
-当时德军和日军
-of the German and Japanese troops at that time
-现在美国以及盟国也有类似于这样的一个组织正在分析
-Now, the United States and allies have a similar organization that
-解密所有的病毒相关的机密
-decode and analyze all virus-related secrets
-他发推说这就是舟山蝙蝠病毒的骨架做的
-He tweeded that this is Zhoushan bat virus backbone
-这个对闫博士的报告最关键的进一步深入
-This is the most critical further insight for Dr. Yan’s report
-这就是（闫博士报告）里面写的ZC45舟山蝙蝠病毒
-This is Zhoushan bat virus written in Dr. Yan’s report
-我们在2020年1月19 日的时候，大家想想啊，
-Think about this, we were on Jan 19, 2020 to say it
-全世界只有中共说的62例（中共病毒感染者）时
-There were only 62 cases (of the CCP virus infection) that CCP told the world
-我们就说了大爆发
-We have said it will be an outbreak pandemic
-这几天布林肯号召美国
-In recent a few days, Blinken has called on the U.S. to
-一定要敢干
-dare to do it (investigate the origin of the CCP virus)
-先把防守做好，谨防第二波，第三波
-To do a good defense first, then, guard against the second wave and the third wave
-第二，一定要彻查，透明地彻查
-Second, we must conduct a thorough and transparent investigation
-这句话透明彻查，
-The sentence of thorough and transparent investigation
-大家有没有（想过）?
-Have you ever (ever thought) ?
-上次美国政府要透明彻查是什么时候？
-when was the last time the US government wanted to conduct a transparent and thorough investigation?
-伊拉克！萨达姆！要彻查
-For Iraq！ Saddam！ U.S did a thorough investigation
-过一段时间你听啊，一定是联合国
-After a while you will see, it must be the United Nations
-就像当年对萨达姆一样
-It’s just like when we treated Saddam Hussein
-联合国会通过一个决议，
-The United Nations needs pass a resolution
-美国都是按程序走，
-the United States will go through a procedure
-彻查病毒来源
-to investigate the origin of the virus thoroughly
-先理后兵，美国都这样，
-The U.S used to tell you the reason, then they dispatch their troop
-伊拉克，萨达姆这个也是一样
-It’s the same with Iraq and Saddam Hussein
-先给萨达姆说，我们的情报说，
-Firstly, they tell Saddam that our intelligence says that
-你这里有研制大规模伤性武器
-you have developed weapons of mass destruction
-我们要求彻查
-We request a thorough investigation
-联合国也通过决议彻查
-The United Nations also passed a resolution to conduct a thorough investigation
-然后给最后通牒三次
-Then give an ultimatum three times
-三次不干，小布什马上召开记者发布会。
-After three quits, Bush Jr. immediately held a press conference
-现通知萨达姆24小时之内离开，
-Saddam was now notified to leave within 24 hours
-让联会国去彻查，
-so that the United Nations will conduct a thorough investigation
-因为他们研制大规模杀伤性武器
-because they developed weapons of mass destruction
-你看看，商务部说
-You see, the U.S. Department of Commerce said that
-中共研究大规模杀伤性武器
-the CCP researched weapons of mass destruction
-你觉得我们说的还是危言耸听吗？
-Do you think what we are talking about is still alarmist?
+**立法灭共**
+
+随着中共对外咄咄逼人的姿态，近日，美国参议院外交关系委员会推出了《2021年战略竞争法》，通过促进人权、提供安全援助和投资打击虚假信息，来提高美国压制中共扩大全球影响力的能力。该法案涉及中共在香港新疆的人权问题，并规定了压制中共政府的外交和战略举措，突显了美国国会民主党和共和党在与中共对抗方面的强硬立场。
+
+自从前总统川普（Donald Trump）开始发动贸易战以来，中共认为川普总统做法不公平，期待拜登（Joe Biden）上台后能缓解紧张局面，没想到拜登总统反而继续对中共保持强硬立场，让中共反应措手不及。针对中共在全球投资领域的领先事态，拜登总统前几日宣布了2万多亿美元的基础设施支出计划，作为对增强美国全球竞争力的投资。拜登明确表示，中共一方面从未停止其野心，一方面将希望寄托在美国的民主制度，认为美式民主太慢太局限太不团结，会拖住美国前进的步伐。** **
+
+**涉港涉疆**
+
+《路透社》也对这份长达280页的法案进行了首次报道，称该法案涉及与中共的经济对抗，但也涉及人道主义和民主价值观，比如对少数民族穆斯林维吾尔人的迫害实施制裁，支持香港的民主等。
+
+**印太战略**
+
+该法案着重强调“优先考虑实现美国在印太地区政治目标所需的军事投资“。它呼吁为此提供资金，称国会必须确保联邦预算与与中共对抗的战略要务 “保持一直”。该法案建议在2022至2026财年为印太地区提供总计6.55亿美元的外国军事融资资金，同期为 “印度-太平洋海上安全协议 “及相关方案提供总计4.5亿美元的资金。
+
+法案还将扩大美国外国投资委员会（CFIUS）的权责范围，赋予CFIUS审查金融交易是否构成国家安全风险的权力。当然，在委员会和参议院全体会议上，这一条款与该法案的许多条款一样，可能会被修改。
+
+**台湾关系 **
+
+立法草案呼吁加强与台湾的伙伴关系，称台湾岛是 “美国印太战略的重要组成部分”，并称不应该限制美国官员与台湾同行的互动。该法案还称，美国政府必须鼓励其他盟友对中共政府的 “侵略性和强硬行为 “采取更多措施，包括在军备控制方面，要继续强硬！
+
+**火速立法**
+
+《2021年战略竞争法》草案由任外交关系委员会主席的民主党议员鲍勃·梅嫩德斯（Bob Menendez）和共和党首席议员吉姆·里施（Jim Risch）联合提出，并与提出的当晚递交给委员会成员，以便他们在4月14日的会议上进行讨论修改和投票。梅嫩德斯表示，他对法案在参议院外交关系委员会高票通过，以及随后获得参议院全体议员批准充满信心。
+
+里施在谈到该法案时称，法案包含了一项 “强有力的、可操作的 “应对中共在美国大学影响的计划。前国务卿蓬佩奥（Mike Pompeo ）去年底就曾发出警告称中共政府盗取美国技术创新，敦促美国大学仔细审查中共的公费留学生。蓬佩奥说，美国应该欢迎 “真正 “想在美国学习的中国人，但他指出了两起中国留学生被控从事间谍活动的案件，以及中共骚扰其海外学生的其他案例。而中共则反咬一口指责美国 “监控、骚扰和故意扣留 “中共国留学生和研究人员。
+
+参议院此次立法是美国“快速通道”行动的一部分，该“快速通道”行动是民主党参议院多数党领袖查克·舒默（Chuck Schumer） 2月份宣布的一项以立法遏制中共国的措施。战略与国际研究中心亚洲专家邦妮·葛来怡（Bonnie Glaser）称，国会极为关注中共对美国利益的各种挑战，并试图在其权限范围内制定有效的应对措施。
+
+* * *
+
+评论：据悉，中南坑老家伙们坐立不安，惶惶不可终日！因为此项立法无异于给制裁中共出具合法证明，也就是从今往后，打击中共是有法可依，合情合理的事！反观中共的战狼外交，在国内大肆鼓吹民粹，忽悠小粉红对耐克、HM、阿迪达斯等200多个外资品牌进行民族仇恨宣传，号召全民抵制不采纳新疆棉花的外资公司。中共企图以愚蠢的煽动所谓民族仇恨的卑劣手段来掩盖在新疆的种族灭绝和对香港民主自由的践踏罪行，完全是打错了算盘。中共对全球发动CCP病毒生化战争，导致全球1.35亿人感染，291万人死亡，犯下了滔天的反人类罪！中共操纵美国大选，勾结SEC陷害揭露真相的GTV投资者。。。种种罪行，罄竹难书！此次立法是一个表明美国两党已达成灭共共识的强烈信号，接下来的将会是更进一步的实际打击行动！借用文贵先生的话：共产党，你完啦！
+
+&gt;&gt;原报道链接&gt;&gt; [US Senate pushes ahead with tough measures to counter China](https://www.aljazeera.com/economy/2021/4/9/us-senate-pushes-ahead-with-tough-measures-to-counter-china)
 
 0

@@ -1,57 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】绝望的顶点——难以救赎的生命与灵魂
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1079035/)
+## 选择中共国的市场还是道德？西方品牌因奴役劳工的丑闻而被迫做出选择
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1079135/)
 
-作者：纽约香草山农场 兰兰
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+- 作者：Jenny Ball
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-早上浏览新闻时看到知乎上的一篇帖子：“2021年4月8日，南京大学19幢有同学跳楼，发生了什么？” 每当看到这样的新闻，我内心的翻涌根本无法形容。人在面临死亡威胁的时候，会产生强烈的求生本能。倘若让一个人主动去寻求死亡，那他的生活一定是忍无可忍、无法继续、毫无希望到了生无可恋的程度，于是才会以死亡了断今生。这是一个悲痛的时刻。但凡人对生活还残存一丝希望，或者还有一点点信仰，听闻过些微佛法，那便至少还有精神的寄托，也不至于把自己逼上绝路，让游荡的灵魂难以救赎——佛曰：人身难得，佛法难闻。
+**西班牙2021年4月11日电/西喜社——**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-153.png)
+H&M、耐克和阿迪达斯等西方知名服装品牌，因发表反对中共国对新疆少数民族“强迫劳动”的言论，而受到中国共产党的指责。
 
-无独有偶，4月7日，另一条新闻播报了卡车司机金德强因“北斗定位掉线”被罚款并扣车，金师傅百口莫辩下，绝望自杀。前段时间，笔者还听家里的亲戚说，七十几岁的健康老人选择在寒冷的深夜躲过家人的看护，最终跳楼结束生命。更不要提笔者经常看到的关于各种底层人民、弱势群体自杀、他杀的新闻。这类事件真的太让人压抑、悲痛、窒息了。但更可恶的是，当局总是以公权力来掩盖这些死亡的真相：他们将每一次的非正常死亡都归咎于死者自身的问题，与社会制度撇清关系。更甚至，当局还要炒作死者，树立当局珍惜生命、竭力救援的光明形象。
+这就是这些外国公司之前，将采购和制造网络紧紧的锁定在这个重要的棉花产地的结果。
 
-欲得修成人身，需要经过无数的修炼和劫难，但却总有人因为看不到一丝丝的希望，偏偏放弃了这难得的人身。这是绝望，这是警醒，这也是呐喊：这个社会已经病态到了让人无法呼吸、无法生存的地步！活着的人们，勇敢一点，为自己本该有的生而为人的权利而奋斗。
+据《华尔街日报》报道，上个月底，在H&M公司官方网站发表声明称“反对中共国在新疆实施强迫劳动”后，中国当局将H&M从中国最重要的智能手机应用平台上剔除。
 
-CCP造成的社会病态让人难以喘息。如果CCP得以继续，那还谈什么生活，每个人连生存都是问题。
+尽管H&M在中国有502家门店，但已经无法在GPS地图上找到其中的任何一家了。
 
-愿逝者安息。
+在中国的社交媒体微博上，中共国家媒体官员以及普通的中国公民都在谴责这些公司，称他们“辱华”，并在全国的各种网络论坛上传播各党派人士的谴责声明。
 
-愿生者安康。
+这场咄咄逼人的行动是在H&M去年正式宣布不再从新疆采购棉花之后开始的。”我们严格禁止在我们的供应链中使用任何类型的强迫劳动，无论在哪个国家或地区。”H&M声明中写道。
 
-愿CCP早日消亡。
+中国消费者也将愤怒的矛头指向耐克和阿迪达斯，这两家公司近几个月都以类似的方式发声。
 
-（本文观点仅代表作者）
+据中共官方报纸《环球时报》报导，前后共有30多位中国名星与耐克、阿迪达斯和H&M中断了代言和广告合作的协议。而中国国家媒体估计，如果这三家零售商决定不再从据报道发生种族灭绝的地区采购棉花，那么他们将失去多达14亿以上的中国消费者。
 
-参考阅读：
+上周，H&M发布了一份新的声明，恳请与中国消费者找到共同点，”找到前进的方向”。”中国对我们来说是一个非常重要的市场，我们对中国的长期承诺依然坚定。”声明中写道。
 
-[2021年4月8日，南京大学19幢有同学跳楼，发生了什么？](https://www.zhihu.com/question/453521350)
+据《纽约时报》报道，虽然中国当局只公开针对了H&M、耐克和阿迪达斯，但这股风潮同样影响到了汤米-菲戈（Tommy Hilfiger）、匡威和CK(Calvin Klein)，这些公司也因为同样的原因失去了他们在中国的品牌代言人。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+在过去的一年里，西方国家政府以各种理由谴责这个专制国家。而现在，双方的对话面临一种新的状态：西方公司要么为了市场，接受中共的国内政策, 要么，也许只能把他们在这个国家业已建立的市场网络，暗暗地撤离。
 
-编辑/校对/发稿：Irene木木
+国会-执行委员会2020年在关于中国的报告指出，该地区至少有180万少数民族被任意拘留。该地区存在严重的侵犯人权行为，包括酷刑、政治灌输、强迫放弃信仰和强迫劳动。新疆地区盛产棉花，除了原料外，还是一个合适的纺织和服装制造中心。
 
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+“全球供应链正日益面临被新疆维吾尔族强迫劳动制造的商品和产品污染的风险，”报告补充道。
 
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+“侵入式监控、行动限制，以及无法从面临拘留和其他报复风险的工人那里获得可靠信息，也使得尽职调查越来越无法进行。”
 
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+而北京方面并不承认这些指控。据美联社报道，北京声称，他们的举措是为了刺激该地区的经济增长，以及消除国家安全威胁。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+“所谓新疆地区存在的强迫劳动完全是虚构的，”商务部发言人高峰说。这位官员敦促外国公司 “纠正错误做法”。
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+审核：蚂蚁兄弟； 校稿：gokuabuela；发稿：信心的选择
 
+新闻链接：[https://www.westernjournal.com/chinese-market-morals-western-brands-forced-choose-amid-slave-labor-scandal/?ff\_source=Email&ff\_medium=conservative-brief-WJ&ff\_campaign=dailypm&ff\_content=western-journal&utm\_source=spotim&utm\_medium=spotim\_recirculation](https://www.westernjournal.com/chinese-market-morals-western-brands-forced-choose-amid-slave-labor-scandal/?ff_source=Email&amp;ff_medium=conservative-brief-WJ&amp;ff_campaign=dailypm&amp;ff_content=western-journal&amp;utm_source=spotim&amp;utm_medium=spotim_recirculation)
 
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-+1
+0
