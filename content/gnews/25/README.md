@@ -1,49 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】布林肯警告中共不要对台湾采取过激行动
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1079511/)
+## 警惕CCP离间中西方人民，坐收渔利
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1079912/)
 
-作者：纽约香草山美食部 蓝天大海
+作者：mia ba| 校对：文明明| 审核：Beicy-数学老师| Page：小六月
+[!\[\]()!\[\](https://spark.adobe.com/page/rKiK2NxCu76Oh/images/ecda5f00-925a-42a0-b1de-44712b1d90d8.jpg?asset_id=e4e2c1e8-0757-4dc8-86a7-d74da2aa7aed&amp;img_etag=%22fcef8514e2b365859716216d274a4a50%22&amp;size=1024)](https://spark.adobe.com/page/rKiK2NxCu76Oh/images/ecda5f00-925a-42a0-b1de-44712b1d90d8.jpg?asset_id=e4e2c1e8-0757-4dc8-86a7-d74da2aa7aed&amp;img_etag=%22fcef8514e2b365859716216d274a4a50%22&amp;size=1024)
+一、CCP到底是个什么玩意？
 
+CCP是典型的法西斯化的国家垄断资本主义，由于其本质上是新兴资本主义，在自身发展到扩张阶段后，必然会对外挑战已有的国际秩序，与老牌资本主义国家抢占利润和市场。由于它是靠假、骗、偷、黑、黄起家的，所以它对内会残酷镇压、吸血劳动人民，迫害异己、打击科学精神，搞独裁专政。可以预测，由于其畸形发展所带来的国内经济和社会结构不相容的矛盾，将迫使其在未来走向军事化与战争。
 
+二、CCP刻意妖魔化西方国家是发动战争的掠夺者、搞种族屠杀的邪魔、释放病毒的恶人，意欲何为？
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+CCP利用其一手把持的大内宣的垄断地位，在所有非官媒平台海量播放有关南京屠杀、美国病毒实验室德里克堡和美国发动伊拉克战争等负面小视频，其意图颇多。不仅向国内民众暗示美国及西方国家因为自身利益而发动种族屠杀式的侵华战争，利用民众的爱国热情煽动民族主义； 同时还抢占信息源头，混淆视听、颠倒黑白，挑拨中国人民仇恨美帝、攻击美帝。如此一来，CCP既打击了国际上的竞争者，又能让国内社会矛盾引起的民怨民愤得以释放。让民众来为自己当打手、做炮灰，削弱民间力量，阻止人民觉醒；让国内群众在混乱的信息战中更加敌友不分，善恶不辨，不明局势；让国际上进步的正义力量与国内善良正义、美好的劳动人民互相厮杀，而他们却坐收渔利，以达到一箭双雕之效。这样，CCP就能轻而易举地将欠中国人民的血债都推到美国和西方国家（所谓外人）的身上，而CCP带给世界人民的伤害又由中国人民来做挡箭牌，当其肉盾、为其买单。用CCP外交部自己的话说：世界上哪有这种好事？
 
+三、世界人民和中国人民该怎么办？
 
+CCP不同于以往的纳粹势力，它带有强烈的欺骗性和迷惑性。混淆是非、栽赃陷害、搬弄是非是它最擅长的阴毒能力，即所谓的宫斗、厚黑。招无底线、人无下限是它不同于以往人类历史上出现过的各种邪恶势力的最大特点。
 
-4月11日，美国国务卿布林肯接受了美国全国广播公司的采访。当采访中谈到台湾问题时，他说：“我们真正看到和关心的是，北京（中共）政府对待台湾日益激进的行动，这加剧了台湾海峡的紧张局势。”布林肯发出警告说，任何试图使用武力改变西太平洋现状的人，都将犯下“严重错误”。他还再次引用《与台湾关系法》（Taiwan Relations Act）指出，美国有责任依据该法“确保台湾有能力自卫并维持西太平洋地区的和平与安全。”
+由于错误的发展路径以及国内的经济压力，CCP对外侵略扩张将是历史的必然，也是其存在的自身本性与内在驱动力。中国人民没有获取信息的自由、没有言论自由、没有出版结社和抗议示威的自由、没有基本的公民权利。长期的闭目塞听，使许多人思想腐旧落后，形体猥琐羸弱。在CCP的挑拨离间和分化下，人民内部自相残杀、互害牟利，“自扫门前雪”的小农意识盛行。更可怕的是许多人是非不分、认敌为友、认钱为爹、认黑为亲。如此现状真的是让亲者痛 仇者快。完全落入CCP以左手打右手，将14亿人捆绑在自己的战车上勒索世界的“局”。
 
-![]()![](https://static01.nyt.com/images/2021/01/22/us/politics/00dc-blinken/merlin_180406656_ad5427db-af9f-46a6-9a98-deeeca087936-master1050.jpg)图片来源：ANNA MONEYMAKER FOR THE NEW YORK TIMES
+如今，唯一的破局之法就是要想方设法使世界人民和中国人民团结起来。世界人民需要深入详细地了解中国人民水深火热的处境，响应中国人民为自由而抗争的呼声，帮助中国人民推倒防火墙，让亿万人民能够接受到墙外的各种信息，不再只听一种声音，从而具有最起码的判断能力和信息识别能力。而中国人民则将面临血与火的洗礼，在现实的教育中重拾真理的价值，识别CCP的“假恶丑”，将CCP对中国人民犯下的的滔天罪行公诸于世，将CCP推上历史的审判台。
 
-在过去数月，中共国的军机频繁进入台湾防空识别区——仅3月26日一天就有多达20架军机进入台湾南部识别空域——挑战台湾的防御底线。台湾对此颇有怨言，而中共国则声称这是在执行自己的常规任务。白宫上周五表示，美国将密切关注中（共）国在台湾海峡不断增加的军事活动，其认为北京（中共）的行为可能会破坏地区稳定。
-
-中共国宣称对台湾拥有主权，而习近平为了摆脱内外交困的局面，一直威胁将使用武力收复台湾。可叹他们不顾2300万台湾同胞的感受，妄图让自由民主的台湾变成红色中（共）国的一个省，让台湾人民成为独裁政权统治下的奴隶。但是，香港的前车之鉴警醒了台湾人民，台湾没有其他选择，只有与美国和世界上的正义力量站在一起，才能阻止习近平妄图吞并台湾的野心。
-
-与此同时，拜登政府也加快了与台湾建立正常关系的步伐。继川普政府今年一月份签发“解除美台交往限制”令之后，拜登政府近日为此发布了美国政府与台湾对口部门进行互动的新准则。该准则允许台湾政府官员进入联邦机构，也允许美国官员参加台湾政府在双橡园（Twin Oaks）举行的活动。美台最近还签署了“设立海警工作组备忘录”，以协调双方在相关海域的警务工作。
-
-参考阅读：
-
-[Blinken warns of China’s ‘increasingly aggressive actions’ against Taiwan](https://www.reuters.com/article/us-usa-taiwan/blinken-warns-of-chinas-increasingly-aggressive-actions-against-taiwan-idUSKBN2BY0GO)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+（本文仅代表作者个人观点）
+[!\[\]()!\[\](https://spark.adobe.com/page/rKiK2NxCu76Oh/images/9a65d03c-fdf1-4ddc-a703-e508dd4d1a49.jpg?asset_id=dd794ae7-03a9-44e8-bdab-dd94a47ad34a&amp;img_etag=%2292559f321e5f730f9b4ee59c9db460ed%22&amp;size=1024)](https://spark.adobe.com/page/rKiK2NxCu76Oh/images/9a65d03c-fdf1-4ddc-a703-e508dd4d1a49.jpg?asset_id=dd794ae7-03a9-44e8-bdab-dd94a47ad34a&amp;img_etag=%2292559f321e5f730f9b4ee59c9db460ed%22&amp;size=1024)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
-
-
-
-+1
+编辑：【英国伦敦喜庄园编辑部】Edited by：【Himalaya London Club UK】
+[!\[\]()!\[\](https://spark.adobe.com/page/rKiK2NxCu76Oh/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/rKiK2NxCu76Oh/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+0
