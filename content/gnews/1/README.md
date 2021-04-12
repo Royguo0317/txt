@@ -1,29 +1,74 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中美对峙升级 世界目光聚焦台湾危机
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1083987/)
+## 【热点播报】路德快讯4月12日早：中共党史新颁布习地位超毛
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1082720/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：纽约香草山翻译部 GBW/文明世界
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/T-8.jpg)worldnews.whatfinger.com
-Just the News报道，中共长期以来一直想吞并、统一台湾，中共近期对台湾采取的越来越咄咄逼人的入侵姿态，让全世界的目光都集中在了台湾岛。
 
-中共和美国的航空母舰正在台湾海峡附近巡逻。台北正在进行军事演习，并增加紧急国防开支。美国国务卿布林肯(Antony Blinken)周日宣布:“任何试图以武力改变现状的人都将犯下严重的错误。”美国最高外交官严厉警告北京不要入侵。
 
-因台湾局势的影响，及世界不同阵营的形成和对立，令世界各国领导人如履薄冰。以加拿大总理贾斯汀·特鲁多(Justin Trudeau)为例，他的政府显然对著名的哈利法克斯国际安全论坛(Halifax International Security Forum)可能将约翰·麦凯恩奖(John McCain award)授予台湾总统的可能性感到苦恼。该论坛部分由加拿大政府资助。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-据Politico报道，加拿大政府威胁说，如果该论坛公开承认台湾领导人，加拿大政府将撤资。
 
-与加拿大相反，因为华盛顿和北京之间的针锋相对策略正在升级，拜登(Biden)政府似乎更愿意承认台湾。 除了派遣军舰在台湾附近巡逻外，美国国务院发言人内德·普莱斯解释说，美国政府周五放宽了与台北的非正式关系，该指令“强调台湾是一个充满活力的民主国家，是一个重要的安全和经济伙伴，也是国际社会中一股有益的力量”。
 
-布林肯周日在《会见媒体》(Meet the Press)节目上表示，“我们所看到的，也是我们真正担心的，是北京政府针对台湾的日益咄咄逼人的行动。”中共外交部发言人赵立坚反驳说，美国军舰是在进行“挑衅”，“向台独势力发出严重错误的信号，威胁和平与稳定”。
+1. 陆军将军理查德-克拉克（Gen. Richard D. Clarke, Jr.）：美国将成立一个特别工作组来打击中共的虚假信息。
 
-台湾危机将成为打破世界格局与和平的导火索。可以预见，一旦中共按耐不住对台湾出手，中共战狼战略体现的法西斯特性，将引起世界共鸣，必对其群起而攻之。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/QQ截图20210412111927.jpg)路德时评截图
 
-参考链接：
 
-[https://justthenews.com/world/asia/all-eyes-taiwan-us-china-tensions-rhetoric-heat](https://justthenews.com/world/asia/all-eyes-taiwan-us-china-tensions-rhetoric-heat)
+2. 美国知名记者比尔·戈茨（Bill Gertz）4月9号《华盛顿时报》著文，美国军方正在考虑信息战，“中（共）国的信息传递活动利用西方成千上万的虚假社交媒体账户来传播虚假信息，中（共）国虚假信息对病毒的影响非常有效。”
+
+- 路德：包括说什么病毒来自于美国德特里克堡等一系列虚假宣传和造谣。
+- 路德：美国终于明白，他们必须应对超限信息战。
+- 路德：特别是病毒的事，很容易分辨谁是英文五毛。
+- 墨博士：美国可以用技术对抗中共的人海战术。
+
+
+3. 美国和菲律宾将开始为期两周的联合军演。
+
+- 路德：中共在南海也是用民兵当炮灰，认为美军不敢打“平民”。中共没实力，就玩小伎俩。
+- 墨博士：菲律宾坚定地站在美国一边。
+
+
+4. 中共的宣传：中共为中国人民找到了一条光明的道路。
+
+- 路德：中国在中共之前有工业，并非一穷二白。
+- 路德：二战后，日本韩国都加入了世界新秩序，中共并没有加入新秩序。
+
+
+5. 最新的中共党史书把习近平的地位提升到毛泽东之上，习占了党史的四分之一，并称文革时期毛泽东没有错。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/QQ截图20210412111531.jpg)路德时评截图
+- 路德：习为自己盖棺定论了。江派，胡锦涛会怎么想？
+- 路德：中共一旦造神，神周边的人和老百姓就倒霉了。
+
+
+参考来源：
+
+[美特种作战司令官披露美军正在建立印太联合特遣队打击中共网络造谣水军意味着什么？美菲宣布将举行为期两周联合军演；中共党史新颁布习近平地位超越毛泽东了！](https://www.youtube.com/watch?v=GQbcjiWPeds)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑： 文明世界
+
+校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
+
 
 0
