@@ -1,27 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 布林肯警告中共对台湾激进行动将犯严重错误
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1079480/)
+## 菲律宾美国周一开始为期两周的联合军演
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1079685/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+俄罗斯莫斯科喀秋莎农场   银河
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/c-11.jpg)scmp.com
-雅虎新闻报道，美国国务卿布林肯(Antony Blinken)周日表示，美国担心中共对台湾的侵略行动，对中共发出警告称，任何试图用武力改变西太平洋现状的行为都将犯”严重错误”。
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/P-14.jpg)english.alarabiya.net
+路透社报道，菲律宾军方首脑周日表示，菲律宾和美国将从周一开始进行为期两周的联合军事演习，恢复去年因疫情而取消的年度训练活动。
 
-布林肯在接受美国全国广播公司“与媒体见面”节目采访时说:“我们所看到的，也是我们真正关心的，是北京政府针对台湾的日益激进的行动，加剧了海峡的紧张局势。”
+在周日菲律宾国防部长德尔芬·洛伦扎纳和美国国防部长劳埃德·奥斯汀进行了电话会议，会议讨论了演习、南中国海局势和最近的地区安全发展。奥斯汀还重申了两国之间《访问部队协议》的重要性。
 
-根据《与台湾关系法》(Taiwan Relations Act)，美国长期致力于确保台湾有能力自卫并维持西太平洋地区的和平与安全。“我们支持这些承诺，” 布林肯称，“我能告诉你的是，任何试图以武力改变现状的行为都将是一个严重的错误。”
+两国决定恢复此前取消的联合演习。此次“白利丹”（Balikatan)联合军演旨在测试两国军队应对自然灾害和激进极端分子袭击等威胁的准备程度。西里利托索贝亚纳(Ciilito Sobejana)中将表示，此次演习将缩减规模，只会有1700名士兵参加，其中700人来自美国，1000人来自菲律宾。此前的演习有多达7600名士兵参加。
 
-去年，中共空军向台湾防空识别区出动了380架次左右的飞机。今年到目前为止，中共军方几乎每天都派飞机进入防空识别区。中共航母在台湾海峡进行演习，并威胁称如果武力统一，台湾将没有任何反抗的机会。台湾外交部长吴钊燮表示，如果中共进攻，台湾将战斗到底。
+菲律宾抗议中共船只出现在其战略航道圣灵礁(Whitsun Reef) 200英里专属经济区内，并多次要求中共将这些船只移走而被拒绝。
 
-白宫上周五表示，正密切关注中共大陆在台湾海峡日益增多的军事活动，并称北京方面的行动可能会造成不稳定。同时美国促进印太区域结盟共同抵御中共威胁。日本作为美国在亚洲战略的核心，在东京美日2+2声明中，双方使用直率的语言表达共同应对中共对该地区的挑战。
+对于中共霸权主义扩张的入侵行为，菲律宾试图寻求美国的支援。洛钦代表菲律宾总统罗德里戈·杜特尔特(Rodrigo Duterte)重申:菲律宾军方没有能力对抗中共，但与它有共同防御条约约束的盟友美国有此能力。洛钦指出，基于菲美的共同防御条约，任何对菲律宾船只和对美方的攻击都会触发菲律宾与美国的共同防御条款。
 
-美国选择与日本合作表达关切，这一事实意义重大。此举表明，如果中共对台湾进行攻击，美日绝对不会袖手旁观。
+此次联合演习，表明美国对菲律宾和中共领土纠纷的立场。
 
 参考链接：
 
-[https://finance.yahoo.com/news/blinken-warns-chinas-increasingly-aggressive-131549959.html](https://finance.yahoo.com/news/blinken-warns-chinas-increasingly-aggressive-131549959.html)
+[https://www.reuters.com/article/us-philippines-usa-southchinasea/philippines-u-s-defence-chiefs-hope-to-resume-joint-military-drill-idUSKBN2BY07A](https://www.reuters.com/article/us-philippines-usa-southchinasea/philippines-u-s-defence-chiefs-hope-to-resume-joint-military-drill-idUSKBN2BY07A)
 
-+1
+
+
+0

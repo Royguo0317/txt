@@ -1,60 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共挑战SWIFT美元支付系统相当于找死
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1078695/)
+## 2017年4月25日文贵先生直播视频
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1078749/)
 
-**简述：在2021年4月7日的盖特视频中，郭先生分析中共挑战SWIFT系统是自己作死。人民币国际交易系统的全球交易额只占国际市场的2%，但是中共却想以此挑战美元国际支付系统，虽然中共国每年的粮食进口和出口产业都离了SWIFT系统不能活。他还透露美国只有灭共，美国经济才能重回强大，会不惜一切代价动用SWIFT、比特币、世界银行、IMF货币组织、世界贸易组织，全面对中共开战。也当然不会有美景冬奥会了。**
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210407-getter1.srt.txt)
-**中共挑战****SWIFT****美元支付系统相当于找死**
+**出品：Gnews编辑部郭先生资料库整理组**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image1.jpeg)
+郭先生号召大家一起推动中国的依法治国，表示会继续反对这些以黑反贪、以警反贪、以贪反贪的盗国贼，并强调三不反，郭七条初具雏形。
 
-**CCP Challenging SWIFT Is Equivalent to Committing A Suicide**
+以王岐山为首的盗国集团为阻止郭先生爆料罔顾事实、无视法律，利用国家机器制造各种事端。他们的行动恰巧反映了中国没有政府，只是由几个盗国贼控制着，他们控制了中国所有的热点事件，并直接从国库、从老百姓手中偷钱，所谓的*“*反贪*”*也成为他们牟利的工具。而习近平在十八大之后提出了一系列全面依法治国新理念新思想新战略，郭先生以不反习的策略，巧用*“*依法治国*”*打击盗国贼之流，正是以子之矛攻子之盾。
 
-你说，全世界SWIFT，也就是美元支付系统，这个支付系统在全世界大家知道每年来来往往将近上百万亿美元交易，上百万亿美元。共产党要挑战SWIFT，结果整了一个CIPS，就是所谓的人民币的国际支付系统，发动了几十个国家，上百个国家，非洲啊，是吧？俄罗斯啊，东欧啊……然后自己做自己，就这么做。一年做了3万多笔，3万多笔还是300多万笔我忘了，加在一起全年3亿多美元。SWIFT一天做300万甚至达到800万笔，一天做多少呢？4万亿或者3万亿美元。过去折腾了几年了，CIPS人民币的国际货币交易系统在全世界占2%，全世界占2%。然后呢要挑战SWIFT。找死呢吧？找死呢吧！
+**要点一：文贵先生的推特关注量过九万，号召大家一起推动中国依法治国的进程**
 
-You know about the SWIFT (Society for Worldwide Interbank Financial Telecommunication) system, which is a network tracking transactions in U.S. dollars. You all know that this system handles transactions in the order of trillions of dollars per year. Now the CCP is trying to challenge the SWIFT system and has launched the CIPS system (Cross-Border Inter-Bank Payments System), a so-called RMB international payment system. The CCP has mobilized about a hundred countries, including African countries, Russia, and Eastern Europe. Then they operate the system within themselves. But there are only approximately 30,000 transactions through the CIPS system a year. I am not so sure whether it is 30 thousand or 3 million transactions. Anyway, the total amount is about 300 million U.S. dollars per year. In comparison, the SWIFT system handles 3 million to even 8 million transactions per day. How much money in total per day? Four trillion or 3 trillion U.S. dollars per day. The CIPS RMB international transaction system has been around for a few years already, but it accounts for only 2% of the global market share. Nevertheless, the CCP still wants to challenge the SWIFT system. Does the CCP want to commit a suicide? They are arranging their own demise.
+我的推友已经超过九万，我们一起创造了推特世界的奇迹。我不会让大家失望，一定会继续反对这些以黑反贪、以警反贪、以贪反贪的盗国贼，推动中国依法治国的进程。希望广大推友和网友更多地支持我，一起推动依法治国。我深信在这个特殊的历史时刻和特殊的机遇下，我们有机会一起完成一件大事。
 
-这还不说，跟中国人民息息有关的（是）中国人买粮食，中国一年最低买5亿吨（粮食），像去年（的情况）到现在要买8亿吨甚至9亿吨（粮食）。（如果）不买这些粮食中国人就得饿死人，这是一定是这样的。它（共产党）买粮食要通过什么？阿姆斯特丹有SWIFT交易中心，纽约有SWIFT交易中心，比利时有SWIFT交易中心，总部在比利时，SWIFT。（因为）也逃税啊，是吧？
+**要点二：文贵先生爆料事件全球关注，爆料内容不仅真实而且证据确凿**
 
-In addition, China’s food importation is an issue that affects Chinese people directly. China must buy at least 500 million tons of grain per year. In a dire situation like last year, China has to import as much as 800 million or even 900 million tons of grain. If they do not import this much food, Chinese people will die due to the lack of food. It cannot be otherwise. How does the CCP complete its transactions for food purchases? There is a SWIFT trading center in Amsterdam, one in New York and one in Belgium. The headquarter is in Belgium for the sake of tax evasion, right?
+我们已经获得全世界一切有正义感的人们的关注，还有一些在历史上和中国有着千丝万缕关系的人，在高度关注着整个事态的发展。这是我们的机会也是挑战，更需要我们每一步都走得更精彩。我们所有提供的反贪资料和爆料都要有确凿证据，因为最后评判的人一定不是盗国者掌控的国家机器，而是十几亿中国人民和全世界关心中国的正义人士，最后我们会通过法律手段让这些盗国贼得到他们应有的惩罚。
 
-你动任何一分钱SWIFT都知道。这是真正的沼泽地大佬：SWIFT，还有美国的美联储。世界上国际三大机构：WTO国际贸易（组织），世界银行美国人说了算，IMF世界货币组织（是）一个欧洲人说了算，世界国际组织这三大机构，再加上SWIFT。你去想一想兄弟姐妹们，共产党挑战它（能）有机会吗？
+**要点三：文贵先生强调三不反**
 
-The SWIFT system tracks every penny of U.S. Dollar transaction. The real “swamp” tycoons are  SWIFT and the U.S. Federal Reserve. There are three major international organizations in the world: the WTO (World Trade Organization), the World Bank controlled by Americans, and the IMF (International Monetary Fund) by Europeans. Think about these three major international organizations and the SWIFT system, brothers and sisters. Does the CCP have a chance to challenge them?
+大家不要操之过急，关于我提供证据的真假，时间会给出答案，法律和司法机关也会给出答案，大家一定要有信心。我再次表明，不反习主席，我认为他是能帮我们实现宏伟大业的那个人；不反政府，不反中国。我们要做受人尊重的中国人，我们要客观、公正、守法，不能和盗国贼一样把假话当真话说，要让老百姓相信并当成理想。
 
-8亿吨的粮食不拿美金买拿什么买，啊？拿啥买？关键是最夸张的（共产党）一年的出口20万亿人民币，大概4万亿美元，大概每年出口4万亿美元，所有的（加一起）啊。那么这些是多少钱呢，战友们知道不？相当于6亿人口，（这6亿人）所有人靠这活着。如果1.8亿到2亿人的就业，按一家两三口人（算），就是5、6亿人靠这活着。你（共产党）这个要整不成，这一、二十万亿人民币（的出口量）就死球蛋了，你拿啥挑战美国？所以共产党它就（是在）作死呢，跟着俄罗斯要搞一个所谓的支付系统。俄罗斯搞支付系统一年搞下来多少钱知道不？6亿美元。丢死人了吧？！
+**要点四：盗国者威胁操纵、欲盖弥彰，旨在阻止文贵先生爆料**
 
-In what currency could the CCP pay for the 800 million tons of grain if it is not in U.S. dollars? In what currency can the CCP pay for it? The most absurd thing is that the CCP’s exports are about 20 trillion yuan a year. That is equivalent to 4 trillion U.S. dollars. So, Chinese exports are about 4 trillion U.S. dollars in total a year. What does that mean, my fellow fighters? It is like 600 million people relying on this to survive. Let’s assume 180 million to 200 million workers rely on these jobs, and each of them has two or three family members. That would mean 500 to 600 million people live on these exports. If the CCP failed to do 10 to 20 trillion yuan of exports every year, it would be difficult for them to survive. So how can they challenge the U.S.? It’s really committing a suicide. They intend to create a payment system together with Russia. Do you know the value of all the transactions that the Russia’s system has handled in one year? The answer is $600 million U.S. dollars, which is too embarrassing, right?
+这几天发生的事情，就像盗国贼们操纵709事件、泛亚事件、易租宝事件、雷洋事件、徐明事件、李明事件一样。我们公司因为专案组的查封无法履行承诺，被他们追到没有任何关系的美国来起诉我，其实他们就是海南航空的投资人，这种傲慢无理的做法实际上帮助了我们。包括VOA断播事件、外交部陆康的发言、还有所谓的红色通告、对我家人和员工的威胁，甚至24小时内逮捕了我们两个方正的董事——马楠和徐洋洋。这些愚蠢的行动充分证明了他们完全没有法律观念，根本不以事实为根据、以法律为准绳对待每一个公民，他们就是用威胁达到阻止任何人对他们爆料。
 
-我想告诉大家什么，今天？共产党[面临的]是：如果很快世界银行剔除中共，IMF世界货币组织剔除中共，世界贸易组织剔除中共，支付系统美元SWIFT剔除中共，然后给共产党更加致命一击[的是]比特币被列为全世界的犯罪货币或比特币被美国所接受成为合法流通货币但是要接受这个条件 – 就是透明化。共产党高官的洗钱基本完球蛋！
+**要点五：中共名义上反腐，实则由盗国集团完全控制**
 
-What do I want to tell everyone today? What situation will the CCP be facing if the World Bank kicks it out soon, the IMF kicks it out, the WTO kicks it out, and the SWIFT system kicks it out? And then a fatal strike to the CCP would be the Bitcoin being designated as an international criminal cryptocurrency or alternatively, being accepted by the U.S. as a legal currency, but with the condition that it must go transparent. If that happens, the money laundering scheme of the CCP’s high-ranking officials will be basically over.
+中国过去几年的反贪反腐、网络控制、媒体控制，其实就是这几个人在操控，用意就是要欺骗习主席，以达到他们真正的目的，同时收买国际刑警组织，让孟宏伟去当主席，用来威胁所有在海外的有正义感的华人，把他们变成红色通缉犯。所有这几年被操纵的国家行为，都是用来封锁他们过去的丑闻和掩盖他们从国库中偷钱的真相。他们直接从国库中偷钱，从贫穷的草根老百姓手中偷钱，你们以为把钱存进银行就安全了，而他们就是用贷款把你的钱全部从银行拿走。姚依林已经过世多年，姚家没有一个人有能力和权力让在完全不符合贷款条件的情况下从银行贷款几十亿、几百亿、上千亿，其根本原因就是王岐山可以抓捕任何银行的行长，甚至让他秘书周亮出面吃个饭，表明你们银行贪污的事件正在调查中，哪个银行敢不贷款给你。这些银行行长都是贪污腐败分子，他们的任命也都抓在了王岐山的手里，所以姚庆在海航一年飞行几百个小时、上百次。姚庆从2006年开始一直飞到现在，从来没有停止过，这不就是王岐山在海南建立的利益关系！所有姚庆得到的利益、尊重、荣誉和金钱，全部仰仗王岐山，就连公、检、法的孟建柱也依靠王岐山，他们是利益共同体。傅振华、孙力军也依靠他们，他们四个人左右了中国这几年的政局。在过去几年中，中国根本没有政府，就是这几个人在管理国家，控制了中国所有的热点事件。至于我的爆料是真是假，最后一定会有国家大审判，他们以为可以永远控制权力、控制媒体、控制丑闻，谁敢爆料跑出去，他们就用国际红军组织抓你、杀你。
 
-那就不是脱钩啦，那就是直接把钩（子）喂到了共产党这个愚蠢的猪的嗓子里边儿去啦！人家是钓鱼，这是钓猪！钓中共（这头）猪！所以说兄弟姐妹们，到那时候你们再看这个世界。所以现在你看这个世界多疯狂？
+**要点六：文贵先生永不屈服，希望大家站起来行动去维护自己的尊严和利益**
 
-That is not just decoupling. It would be like pushing the hook directly into the throat of the stupid pig, the CCP pig. People typically fish. Yet, this is fishing for a pig, fishing the CCP pig. So, brothers and sisters, let us wait and see. So you see how crazy the world is right now.
+当我们为了生命和尊严、为了家人的安危不顾一切的时候，一切都会变成我们的动力。希望所有的推友和网友不要发私信关心我，我需要的是你站起来行动，维护自己的尊严和利益。大家应该集体行动，根据我提供的线索来提供更多的和这些证据相关的信息。最近几天让我特别感动的是，有些网友给我发来了他们掌握的海航在海外的各种资料、信息，比如银行、存款、飞行期间的入住酒店、就餐等信息，这些在未来开全球新闻发布会的时候，都是非常重要的资料。再次恳请大家一致行动，去寻找揭发这些盗国贼和犯罪分子的真相和证据。我已经做好了一切的准备，决不屈服。
 
-美国内部所有的激励措施都用完，美元一定完球蛋。（美国）没有任何机会和余地阻止美元和美元经济下滑。共产党是垂死挣扎。只有灭共，美国经济才能重回强大，（但）也得（度得）过这个震荡期，这就是事实。（大家）坐好，坐好家里的椅子吧，兄弟姐妹们，没事儿把你家椅子多钉几根儿钉啊，（因为）这个世界现在很疯狂。
+**要点七：文贵先生永****远尊敬马建副部长**
 
-When the U.S. is running out all its stimulus plans, the U.S. dollar is bound to collapse. There is no chance for it to stop the U.S. dollars from declining or the downturn of the U.S. economy. The CCP is putting up a last-ditch struggle. Only by taking down the CCP can the U.S. economy regain its strength. Even if they do this, they must still go through a turbulent period. That is a fact. Everybody should sit still in your chair, brothers and sisters. When you have time, you’d better put a few more nails in your chair to make it more stable because the world is so crazy right now.
+马建副部长影响了我一生，他是我永远尊敬的人。你们会看到他的智慧、人品和他的人格魅力，他在被枪顶住的情况下还说出了这么重要的信息。我郭文贵是爱国的，是给国家做过多次贡献、立过一等功的人，是习总书记和孟建柱书记亲自给我签发的。我没拿国家一分钱，没干过一件违法的事情，但是他们罔顾事实。我就是一个爱国者，花钱、上当、还遭受灭顶之灾，大家一定要看到这个事实背后的本质。
 
-当昨天、前天了解到美国要采取这些行动的时候，全面调查病毒必须调查真相，告诉世界谁不配合谁就是我的敌人，然后不惜一切代价动用SWIFT、比特币、世界银行、IMF货币组织、世界这个贸易组织，全面对中共开战。当然没有冬季奥运会了，啥概念，兄弟姐妹们？
+**要点八：文贵先生号召大家寻找真相并推动依法治国**
 
-I learned yesterday and the day before that the U.S. will take some actions. The U.S. will conduct a comprehensive investigation of the origin of the virus to find out the truth. Whoever does not cooperate will be treated as an enemy. Then the U.S. will initiate full-scale warfare against the CCP via the SWIFT, Bitcoin, the World Bank, the IMF, and the WTO. Of course, there will be no [Beijing] Winter Olympics. What does that mean, brothers and sisters?
+希望大家和我一起寻找属于我们的真相和尊严，我们是草根、是穷人，但我们不是任人宰割的畜生，我们要找回做人最起码的尊严。一切都是刚刚开始，我会带给大家一个无法想象的未来和真相，我会给这个国家和人民带来新的希望，推动依法治国，让每个人都活得安全，让你们的钱都不被偷盗。一切用事实说话，咱们拭目以待。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/606dba8bdbc8001854a63a56](https://gtv.org/getter/606dba8bdbc8001854a63a56) (00:22-04:01, 07:43-09:54)
-鸣谢：
-[1] 感谢Antsee-GTV、 TING GUO 提供中文文本于 [https://gnews.org/zh-hans/1062405/](https://gnews.org/zh-hans/1062405/)
-[2] 感谢YY、Antsee-GTV、Liberte 提供英文翻译于 [https://gnews.org/1070330/](https://gnews.org/1070330/)
+**视频链接：**
 
-* * *
-
-整理校对 & 新闻撰写：【7PawBear】字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+[https://www.youtube.com/watch?v=\_LF-xygLmDg（第一段）](https://www.youtube.com/watch?v=_LF-xygLmDg（第一段）)[https://www.youtube.com/watch?v=FGexmCwgYRo（第二段）](https://www.youtube.com/watch?v=FGexmCwgYRo（第二段）)
 
 +1
