@@ -1,17 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月12日 文贵先生盖特 3
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1082569/)
+## 【每日快讯】11/04/2021：接种中共国疫苗后疫情加重
+` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1082487/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
-
-4月12号：第三次发盖特．七哥分享锻鍊身体的时刻！
+**制作：Cantonese工作室**
 
 
 
-[【2021年4月12日】文贵先生盖特原文](https://gtv.org/getter/60745c42dbc8001854a7f1e9)
+**播报：【二丫 】资料整理：【安妮】【二丫】【evitang（文林）】【郁金香】海报制作：【农民】视频制作：【ken】发布：【向阳6768】**
 
-**喜联盟Gnews编辑部**
+摘要：
 
-0
+1
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210412-__02.jpg)
+2
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210412-__03.jpg)
+3
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210412-__04.jpg)
+4
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210412-__05-1.jpg)
+5
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210412-__06.jpg)
+6
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210412-__07.jpg)
+7
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210412-__08.jpg)
+8
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210412-__09-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/0-3.jpg)
++1

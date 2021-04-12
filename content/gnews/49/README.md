@@ -1,44 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【超限生物武器】中共军方确认非典的非自然起源
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1082314/)
+## 【五月花报】中共国国家电视台纪录片为维吾尔族官员被判处死刑事件辩护
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1082502/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/LOGO3_1.jpg)
+五月花写作组 ｜ 翻译：Charline ｜ 编辑、美工、发布：灭共小宇宙
 
-译者: mi迷hu糊     校对: 无尽夏；无名
+![]()![](https://gnews.org/wp-content/uploads/2021/04/五月花报v新疆.jpg)
 
-2015年出版的中共军事教科书《非典非自然起源和人制人新种病毒基因武器》第140页再次指出, 非典（SARS, SARS-CoV）病毒不是自然起源。2021年的今天, 随着2019新冠病毒（SARS-CoV-2）大流行没有显示出缓解的迹象, 越来越多的人开始质疑此病毒是否如那些完全支持中国政府的人所声称的那样是来自大自然或蝙蝠。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-168.png)
-以下是第140页的摘录:
+引言：中央电视台4月2日播出的这部纪录片，是在紧张的国际背景下将中共国在新疆的镇压政策合法化运动的一部分。
 
-“而SARS-CoV 所致严重急性呼吸道综合征 不同人群内传播迅速,疫情遍及全球首例虽于2002年11月发生在我国广东,但9个月 后,截止2003年7月底全球共确诊 8098例,死亡774例(9.6%)。对人类健康,尤其是对我国造成的严重危害和巨大损失,馨竹难书。
+作者：西蒙·莱普拉特（SimonLeplâtre）（上海，来信）
 
-关于SARS-CoV 自然宿主或贮存宿主,已如本书多处提及:以流行病学、临床和分子病 毒学与系统发育学等诸多专业证据,我们断定:SARS-CoV 为非自然起源,因此,在自然界不 存在贮存宿主;虽Bt-SLCoV,如Rp3(D0071615)株,为SARS-CoV 的共同祖先, 但非直接祖先;而直接祖先(亲代1、亲代2、)在某个(些)实验室内。
+2021年4月8日上午11:56发布
 
-由于SARS-CoV 为非自然 起源,故进入人类及其近缘动物后即受到“逆向进化”之压力,使其自身的传染性和传播力急 剧下降,最终在人类及其近缘动物中消失; 又因为在自然界无其贮存宿主,无法生存和传代, 只能从地球上消失(除实验室保存之 SARS-CoV 标本及含其直接祖先的材料外)。所以不难得出结论:现在自然界和人群中已无 SARS 冠状病毒!
+* * *
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screen-Shot-2021-04-12-at-9.39.01-PM.png)2018年8月31日，一名妇女走过新疆喀什地区一栋标为学校的建筑物。 北京方面表示，已以分裂主义和腐败的罪名判处该地区两名前官员被判处死刑，包括教育部门前负责人。 吴汉关/ AP
+中共国发起了一项新的宣传运动，为其在新疆的镇压政策辩护。 在紧张的国际形势下，尤其是在3月底欧盟对几名中共国官员实施制裁之后，中央电视台CCTV于4月2日播出了一部纪录片，题为《暗中的战争：新疆反恐的挑战》，该台国际部CGTN也用法语播出。
 
-可见,SARS-CoV 的进化、起源及产生直至消失与 SARS 的发生、流行及其过程直至终 止, 均和上述诸种病毒及其所致疾病相差悬殊, 绝非同日而语。”
+### 维吾尔族：欧盟“定向制裁”引发中共国回应
 
-作者评论:
+这是有关新疆恐怖主义的四部系列纪录片中的最新一期，试图证明某些地方官员与国际恐怖组织的联系，以及 “两面派 “维吾尔族官员的影响，换句话说，就是据称在暗中活动却身居要职的叛徒。
 
-这本教科书应该是承认了在中国广东爆发的非典不是来自于自然。另外,科学家对病毒的特殊命名方式是有原因的。加之观察到，2003年，非典（SARS, SARS-CoV）起源于中国, 而2019年底或2020年初, 又名为SARS-CoV-2的2019新冠病毒也起源于中国, 并造成了高于非典一万三千倍的感染病例。就此分析, 唯一合理的解释是, 2019新冠病毒是非典的升级版, 并且也是在实验室开发出来的。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-169.png)
-审查/上传：浪迹天涯
+根据纪录片，当地一名前警察局长和一名前新疆教育局局长被判处死刑，另外三名教育官员被判处无期徒刑。后者被指控参与编写 “可能模糊和破坏民族认同感 “的教科书。
 
-**【超限生物武器】系列****：**
+4月6日星期二，新疆政府确认了对这两名官员的死刑判决，缓期两年执行——这一判决通常会被减为无期徒刑。这些前官员在2017年至2019年之间被逮捕，当时在新疆发生了大规模的镇压行动，超过100万维吾尔族、哈萨克族和其他穆斯林少数民族被关押在 “再教育 “营。中共在否认这些营地的存在后，现在又把它们说成是 “职业培训中心”。
 
-中文译文:
+### 中共为新疆政策辩护
 
-1. 非典病毒–中共国军事教材中详尽阐述的一种生物武器[https://gnews.org/zh-hans/988271/](https://gnews.org/zh-hans/988271/)
-2. 中共首例人造生物病毒SARS的真相 [https://gnews.org/zh-hans/1003167](https://gnews.org/zh-hans/1003167)/
+3月底，中共国对欧盟、美国、加拿大和英国的制裁作出了反应，进而制裁了这些国家的数十名政治人物、研究人员和机构。此后，由于存在维吾尔族人被强迫劳动的现象，西方服装品牌发起了一场针对采购新疆棉花的大型抵制运动，这些品牌已经切断了从新疆的棉花供应。
 
+之后，中共官方媒体加倍努力，为自2017年以来在中共国西部自治区实施的政策辩护，其目的尤其是要证明维吾尔人实施的多次袭击与国际恐怖运动“东突厥斯坦伊斯兰运动”（MITO）之间的联系。它的存在现在是有争议的：由于缺乏证据表明该运动仍然存在，华盛顿于2020年将MITO从其恐怖组织名单中删除。
 
-英文原文:
+* * *
 
-1. A Bioweapon Elaborated in Chinese Military Program’s Textbook: [https://gnews.org/901853/](https://gnews.org/901853/)
-2. The Truth of SARS, CCP’s First Artificial Organism Virus: [https://gnews.org/901948/](https://gnews.org/901948/)
-3. The Unnatural Origin of SARS Confirmed by the Chinese Military[https://gnews.org/908635/](https://gnews.org/908635/)
+### 原文链接：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-+1
+[Un documentaire de la chaîne d’Etat chinoise justifie la condamnation à mort de responsables ouïgours](https://www.lemonde.fr/international/article/2021/04/08/un-documentaire-de-la-chaine-d-etat-chinoise-justifie-la-condamnation-a-mort-de-responsables-ouigours_6076011_3210.html)
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+
+0
