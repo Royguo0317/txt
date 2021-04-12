@@ -1,69 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104011（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1078564/)
+## 利用“高科技”抢钱
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1078884/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+#### 作者：斩草要除根
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/aYS2tqgFRR_small-e1618171590609.jpg)封面来源：寻图网站
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+**原文写到：**近日袁先生向南方+反映称自己在广台高速公路43公里200米处因为转道压到实线，所以“吃”到罚单。而他自己在缴纳罚单时，发现交款系统显示已有超过62万人在此违章、罚款金额超过1.2亿。有声音质疑如此高频的罚款，路政交警是否应该检讨道路划线设置是否有不合理的情况 。8日佛山公安交警部门对此表示， 广台高速公路43公里路段的标志标线，经过验收合格投入使用，路经司机应当知晓该路段上述交通信号的含义，且有足够的时间、距离看见上述交通信号，并应当遵循交通信号指示安全行驶。媒体跟进后，相关部门马上进行了处理，处理的方式是：勒紧相关软件屏蔽累计被处罚人数的显示。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01.jpg)
+#### 简评：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02.jpg)
+**有行业研究机构报告指出，中共国是监控摄像头增长最快的国家，共装有1.76亿监控摄像头，其中，在道路交通系统中，摄像头的数量达到了2400万个，根据公安部交通管理局最新数据，2020年全国交通罚款总额3000亿元左右，平均每辆车罚款一千多块，一个摄像头相当于一台印钞机，个别摄像头一年甚至能贡献几千万，利润一年超一个上市公司。**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03.jpg)
+**“罚款经济”在中共国长期存在，特别是“交通罚款经济” ，它是解决地方财政危机的重要手段之一。 但是一年几千亿的交通罚款用于何处却没人知道。中共利用“高科技”抢钱 ，在中共国的摄像头下，妇女儿童走失被拐几十年找不到，但交通罚款却没有一条漏网之鱼。**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-1.jpg)
+**原文链接：**[超62万张罚单？佛山这个高频违章的岔道口，你经过没？](http://pc.nfapp.southcn.com/5467/5082437.html)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05.jpg)
+* * *
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06.jpg)
+*** 审核/校对：**Ting Guo*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-4.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-11.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/18-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/19-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/20-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/21-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/22-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/23.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/24.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/25.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/26.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
+（免责声明：本文仅代表作者个人观点，跟GNEWS平台无关。）
 
 0

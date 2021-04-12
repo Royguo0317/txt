@@ -1,53 +1,99 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美议员倡议扩大美台教育合作，以台湾取代孔子学院项目
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1078434/)
+## 【路德时评摘要】4.8.2021PM-Sillin 博士首提舟山蝙蝠病毒骨架
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1078717/)
 
-作者： 纽约香草山健身部 Jack Li文阳
+视频剪辑 : Ablec(文A)
+中听校： 洛杉矶天使农场 – 烟波浩淼
+英翻译：洛杉矶天使农场 – 烟波浩淼
+英校对：洛杉矶天使农场 – 雨山溪桥客
+字幕+视频制作：洛杉矶天使农场 – 压箱底儿の希望
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
-
-
-
-据美国之音报道，为遏制中共国的影响力，美国共和党联邦参、众议员敦促拜登政府扩大美台教育倡议，以台湾取代孔子学院的汉语教学项目。台湾驻美代表萧美琴对此表示欢迎，称此倡议可以确保双方的学术自由交流。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片2-19.png)
-
-美国田纳西州共和党联邦参议员布莱克本(Marsha Blackburn, R-TN)4月7日在一个声明中说，中共资助的孔子学院审查言论自由，她和其他参、众议员已经写信给教育部长卡多纳，敦促他扩大美国与民主伙伴台湾的教育合作倡议，以没有审查的替代项目来向美国学生提供中文学习以及中国文化教育。
-
-布莱克本参议员一直对中共国政府利用孔子学院来影响美国学术和言论自由多有批评。
-
-布莱克本提案的呼吁得到包括斯科特、霍利等参议员及夏伯特、朴银珠(Michelle Park Steel, R-CA)、金映玉（Young Kim）、哈什伯格等众议员的支持。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/images-1.jpg)
-
-议员们在3月18日写给美国教育部长米格尔·卡多纳(Miguel Cardona)的联名信中说，“孔子学院是由中共国出资和管理的，中共通过孔子学院来打压与中共利益有冲突的言论和活动”，并敦促美国教育部“探索一个没有审查的汉语及中华文化教学的替代选项，尤其是台湾提供的项目”。
-
-议员们表示，美国国务院在2020年8月将美国的孔子学院认定为“外国代理人”机构。但中共国汉办却从那时起，将孔子学院改头换面为“国际教育基金会”，企图避开该认定，但让美国高等教育机构接受中共国的资助仍然是不可被接受的。
-
-台湾驻美代表萧美琴4月8日表示，美台之间几个月前签订了扩大双方教育交流项目的倡议，台湾在这些交流项目中所扮演的角色区别于孔子学院。
-
-布莱克本这个星期还和参议员克鲁兹、斯科特及霍利等多名共和党参议员提出《孔子学院透明法》，其目的是要修正美国的1965年高等教育法，法案内容要求公开中共机构汉办与美国机构之间的项目参与协议，“以应对中共通过孔子学院施加不必要影响”。
-
-2004年，马里兰大学帕克分校开设了美国第一所孔子学院。自此开始，美国高校开始涌现出越来越多的孔子学院。在最顶峰的时候有超过90所孔子学院。孔子学院不是简单的中国文化的传播者，其实际上是中共假文化交流之名，来掩饰其大外宣和间谍身份。大部分的孔子学院都属于中共的大使馆、领事馆的间谍分支机构，中共借此来控制中外学生，搜集情报，并威慑异见分子，进行红色渗透。他们的教师常常规避西藏、新疆和维吾尔族、台湾、香港等敏感话题。孔子学院代表中共向全球渗透，输出共产主义，挑战世界的普世价值。
-
-川普执政时期积极应对中共对美国学术领域的渗透，先是在2018年签署了《国防授权法》，禁止国防部资助设有孔子学院的美国大学；2020年国务院宣布将负责管理全美孔子学院的“孔子学院美国中心”列为外国代理人；2020年10月前国务卿蓬佩奥表示，希望在年底前关闭美国境内的所有孔子学院。根据美国全国学者联合会（National Association of Scholars）数据，截至2021年2月17日，美国还有55所孔子学院，此前已经关闭64家。
-
-当前反共灭共大潮滚滚而来，远离中共是大势所趋，以美国为首的西方各国已经行动起来了，孔子学院这种中共渗透世界的间谍机构，迟早会被全部扫进历史的垃圾堆。
-
-参考阅读：
-
-[https://www.voachinese.com/a/members-of-us-congress-urged-biden-to-look-to-taiwan-as-alternative-to-chinas-confucius-institute-20210409/5847613.html](https://www.voachinese.com/a/members-of-us-congress-urged-biden-to-look-to-taiwan-as-alternative-to-chinas-confucius-institute-20210409/5847613.html)
-
-校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpg)
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+**路德**
+Sellin 博士今天发推正式提到了舟山蝙蝠病毒骨架
+Dr. Sellin tweeted today and officially mentioned about the Zhoushan bat virus backbone
+我们之前做节目说过
+As we said in a previous show
+Sellin 博士前天发推说SIXTA
+Dr. Sellin tweeted the day before yesterday mentioned about the SIXTA
+那是二战时期最神秘的一个组织
+It was one of the most mysterious organizations during World War II
+专门破译和分析所有的
+It was dedicated to decode and analyze
+的秘密以及所有信息的无线电信号的
+all the secrets radio signals of all information
+当时德军和日军
+of the German and Japanese troops at that time
+现在美国以及盟国也有类似于这样的一个组织正在分析
+Now, the United States and allies have a similar organization that
+解密所有的病毒相关的机密
+decode and analyze all virus-related secrets
+他发推说这就是舟山蝙蝠病毒的骨架做的
+He tweeded that this is Zhoushan bat virus backbone
+这个对闫博士的报告最关键的进一步深入
+This is the most critical further insight for Dr. Yan’s report
+这就是（闫博士报告）里面写的ZC45舟山蝙蝠病毒
+This is Zhoushan bat virus written in Dr. Yan’s report
+我们在2020年1月19 日的时候，大家想想啊，
+Think about this, we were on Jan 19, 2020 to say it
+全世界只有中共说的62例（中共病毒感染者）时
+There were only 62 cases (of the CCP virus infection) that CCP told the world
+我们就说了大爆发
+We have said it will be an outbreak pandemic
+这几天布林肯号召美国
+In recent a few days, Blinken has called on the U.S. to
+一定要敢干
+dare to do it (investigate the origin of the CCP virus)
+先把防守做好，谨防第二波，第三波
+To do a good defense first, then, guard against the second wave and the third wave
+第二，一定要彻查，透明地彻查
+Second, we must conduct a thorough and transparent investigation
+这句话透明彻查，
+The sentence of thorough and transparent investigation
+大家有没有（想过）?
+Have you ever (ever thought) ?
+上次美国政府要透明彻查是什么时候？
+when was the last time the US government wanted to conduct a transparent and thorough investigation?
+伊拉克！萨达姆！要彻查
+For Iraq！ Saddam！ U.S did a thorough investigation
+过一段时间你听啊，一定是联合国
+After a while you will see, it must be the United Nations
+就像当年对萨达姆一样
+It’s just like when we treated Saddam Hussein
+联合国会通过一个决议，
+The United Nations needs pass a resolution
+美国都是按程序走，
+the United States will go through a procedure
+彻查病毒来源
+to investigate the origin of the virus thoroughly
+先理后兵，美国都这样，
+The U.S used to tell you the reason, then they dispatch their troop
+伊拉克，萨达姆这个也是一样
+It’s the same with Iraq and Saddam Hussein
+先给萨达姆说，我们的情报说，
+Firstly, they tell Saddam that our intelligence says that
+你这里有研制大规模伤性武器
+you have developed weapons of mass destruction
+我们要求彻查
+We request a thorough investigation
+联合国也通过决议彻查
+The United Nations also passed a resolution to conduct a thorough investigation
+然后给最后通牒三次
+Then give an ultimatum three times
+三次不干，小布什马上召开记者发布会。
+After three quits, Bush Jr. immediately held a press conference
+现通知萨达姆24小时之内离开，
+Saddam was now notified to leave within 24 hours
+让联会国去彻查，
+so that the United Nations will conduct a thorough investigation
+因为他们研制大规模杀伤性武器
+because they developed weapons of mass destruction
+你看看，商务部说
+You see, the U.S. Department of Commerce said that
+中共研究大规模杀伤性武器
+the CCP researched weapons of mass destruction
+你觉得我们说的还是危言耸听吗？
+Do you think what we are talking about is still alarmist?
 
 0

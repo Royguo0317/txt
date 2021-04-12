@@ -1,87 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港专题】港版文革2.0（六）整风运动 之 红蓝互斗
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1078360/)
+## 中共挑战SWIFT美元支付系统相当于找死
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1078695/)
 
-搜集/编撰：天灭中共 / 封面合成：文粤
+**简述：在2021年4月7日的盖特视频中，郭先生分析中共挑战SWIFT系统是自己作死。人民币国际交易系统的全球交易额只占国际市场的2%，但是中共却想以此挑战美元国际支付系统，虽然中共国每年的粮食进口和出口产业都离了SWIFT系统不能活。他还透露美国只有灭共，美国经济才能重回强大，会不惜一切代价动用SWIFT、比特币、世界银行、IMF货币组织、世界贸易组织，全面对中共开战。也当然不会有美景冬奥会了。**
+[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210407-getter1.srt.txt)
+**中共挑战****SWIFT****美元支付系统相当于找死**
 
-**自从梁振英之流率先在香港刮起文革歪风，主攻林郑月娥争夺下届特首之后，批斗就成为香港政界的日常，起初是红蓝阵营（亲共派）对黄营（亲民主派）的批斗，后来是针对林郑月娥，再之后就演变成红蓝之间的互斗。**
+**CCP Challenging SWIFT Is Equivalent to Committing A Suicide**
 
-这种互斗的背后，是建制阵营内不同势力之间的争夺战。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image001-14.png)图片：香港立法会
-一直以来，公务员AO系统 (蓝营) 及建制派的议会系统 (红营) 互不干涉，各自修行。过往，因为有民主派，这个红蓝阵营的共同敌人，他们内部的斗争就较为低调，以求团结一致对抗民主派。
+你说，全世界SWIFT，也就是美元支付系统，这个支付系统在全世界大家知道每年来来往往将近上百万亿美元交易，上百万亿美元。共产党要挑战SWIFT，结果整了一个CIPS，就是所谓的人民币的国际支付系统，发动了几十个国家，上百个国家，非洲啊，是吧？俄罗斯啊，东欧啊……然后自己做自己，就这么做。一年做了3万多笔，3万多笔还是300多万笔我忘了，加在一起全年3亿多美元。SWIFT一天做300万甚至达到800万笔，一天做多少呢？4万亿或者3万亿美元。过去折腾了几年了，CIPS人民币的国际货币交易系统在全世界占2%，全世界占2%。然后呢要挑战SWIFT。找死呢吧？找死呢吧！
 
-但国安法后，民主派逐渐失去一切参政议政空间，红蓝之间过去积累的矛盾就自然浮出水面，加上中共决定收紧全面管治权的脚步越走越快，建制阵营可以明显感受到权力被一再的收窄，一些本来在建制阵营的政客眼见议会的实权被中共吞噬的所剩无几，于是就想染指政务官的实权。
+You know about the SWIFT (Society for Worldwide Interbank Financial Telecommunication) system, which is a network tracking transactions in U.S. dollars. You all know that this system handles transactions in the order of trillions of dollars per year. Now the CCP is trying to challenge the SWIFT system and has launched the CIPS system (Cross-Border Inter-Bank Payments System), a so-called RMB international payment system. The CCP has mobilized about a hundred countries, including African countries, Russia, and Eastern Europe. Then they operate the system within themselves. But there are only approximately 30,000 transactions through the CIPS system a year. I am not so sure whether it is 30 thousand or 3 million transactions. Anyway, the total amount is about 300 million U.S. dollars per year. In comparison, the SWIFT system handles 3 million to even 8 million transactions per day. How much money in total per day? Four trillion or 3 trillion U.S. dollars per day. The CIPS RMB international transaction system has been around for a few years already, but it accounts for only 2% of the global market share. Nevertheless, the CCP still wants to challenge the SWIFT system. Does the CCP want to commit a suicide? They are arranging their own demise.
 
-工联会对自由党，民建联对新民党，乡事派对公务员，旧制公务员对新制公务员，互相大混战，彼此出尽浑身解数，发动舆论攻势，向中共展示自己「斗人」的实力之余，更力求「斗走」政务官，腾出位置给自己人，亦可借此向低级公务员示威，要他们听任自己的指示，获得更多实权。
+这还不说，跟中国人民息息有关的（是）中国人买粮食，中国一年最低买5亿吨（粮食），像去年（的情况）到现在要买8亿吨甚至9亿吨（粮食）。（如果）不买这些粮食中国人就得饿死人，这是一定是这样的。它（共产党）买粮食要通过什么？阿姆斯特丹有SWIFT交易中心，纽约有SWIFT交易中心，比利时有SWIFT交易中心，总部在比利时，SWIFT。（因为）也逃税啊，是吧？
 
-总之这场红蓝阵营之间的权力争夺战，是愈演愈烈。
+In addition, China’s food importation is an issue that affects Chinese people directly. China must buy at least 500 million tons of grain per year. In a dire situation like last year, China has to import as much as 800 million or even 900 million tons of grain. If they do not import this much food, Chinese people will die due to the lack of food. It cannot be otherwise. How does the CCP complete its transactions for food purchases? There is a SWIFT trading center in Amsterdam, one in New York and one in Belgium. The headquarter is in Belgium for the sake of tax evasion, right?
 
-**「爱国者」整风运动**
+你动任何一分钱SWIFT都知道。这是真正的沼泽地大佬：SWIFT，还有美国的美联储。世界上国际三大机构：WTO国际贸易（组织），世界银行美国人说了算，IMF世界货币组织（是）一个欧洲人说了算，世界国际组织这三大机构，再加上SWIFT。你去想一想兄弟姐妹们，共产党挑战它（能）有机会吗？
 
-在中共阉割香港民主选举制度的前夕，港澳办主任夏宝龙为了帮中共造势，不断重申所谓的「爱国者治港」。不过，就未有对「爱国者治港」应如何演绎作出具体解释，因此触发了红蓝阵营之间的一场「爱国者」整风运动。
+The SWIFT system tracks every penny of U.S. Dollar transaction. The real “swamp” tycoons are  SWIFT and the U.S. Federal Reserve. There are three major international organizations in the world: the WTO (World Trade Organization), the World Bank controlled by Americans, and the IMF (International Monetary Fund) by Europeans. Think about these three major international organizations and the SWIFT system, brothers and sisters. Does the CCP have a chance to challenge them?
 
-2021年2月27日，中联办控制的《大公报》和《文汇报》开始「发功」，4日前才刚获宣布晋升为食物及卫生局常任秘书长的刘利群被连续炮轰。
+8亿吨的粮食不拿美金买拿什么买，啊？拿啥买？关键是最夸张的（共产党）一年的出口20万亿人民币，大概4万亿美元，大概每年出口4万亿美元，所有的（加一起）啊。那么这些是多少钱呢，战友们知道不？相当于6亿人口，（这6亿人）所有人靠这活着。如果1.8亿到2亿人的就业，按一家两三口人（算），就是5、6亿人靠这活着。你（共产党）这个要整不成，这一、二十万亿人民币（的出口量）就死球蛋了，你拿啥挑战美国？所以共产党它就（是在）作死呢，跟着俄罗斯要搞一个所谓的支付系统。俄罗斯搞支付系统一年搞下来多少钱知道不？6亿美元。丢死人了吧？！
 
-《大公报》头版狙击刘利群，指她在2019 年任职食环署署长时，持双重标准，放任「黑暴」文宣滞留，但却对爱国爱党的标语作迅速清理，因此认为她的行为不符合「爱国者」标准。
+In what currency could the CCP pay for the 800 million tons of grain if it is not in U.S. dollars? In what currency can the CCP pay for it? The most absurd thing is that the CCP’s exports are about 20 trillion yuan a year. That is equivalent to 4 trillion U.S. dollars. So, Chinese exports are about 4 trillion U.S. dollars in total a year. What does that mean, my fellow fighters? It is like 600 million people relying on this to survive. Let’s assume 180 million to 200 million workers rely on these jobs, and each of them has two or three family members. That would mean 500 to 600 million people live on these exports. If the CCP failed to do 10 to 20 trillion yuan of exports every year, it would be difficult for them to survive. So how can they challenge the U.S.? It’s really committing a suicide. They intend to create a payment system together with Russia. Do you know the value of all the transactions that the Russia’s system has handled in one year? The answer is $600 million U.S. dollars, which is too embarrassing, right?
 
-《文汇报》则引述多名建制派立法会议员，包括民建联梁志祥、陈恒镔、柯创盛、新民党容海恩、工联会麦美娟等的批评，指刘利群表现不佳，懒于清理「连侬墙」，是严重失职，并责问「究竟刘利群升职有没有和她的工作绩效挂钩？公务员事务局要作检讨。」
+我想告诉大家什么，今天？共产党[面临的]是：如果很快世界银行剔除中共，IMF世界货币组织剔除中共，世界贸易组织剔除中共，支付系统美元SWIFT剔除中共，然后给共产党更加致命一击[的是]比特币被列为全世界的犯罪货币或比特币被美国所接受成为合法流通货币但是要接受这个条件 – 就是透明化。共产党高官的洗钱基本完球蛋！
 
-翌日，《大公》《文汇》再次对另一政务官进行攻击，财经事务及库务局常任秘书长刘焱被指出席财政预算案记者会时，佩戴印有「疑似5、1 口号」的口罩，批评刘焱有「港独」之嫌。
+What do I want to tell everyone today? What situation will the CCP be facing if the World Bank kicks it out soon, the IMF kicks it out, the WTO kicks it out, and the SWIFT system kicks it out? And then a fatal strike to the CCP would be the Bitcoin being designated as an international criminal cryptocurrency or alternatively, being accepted by the U.S. as a legal currency, but with the condition that it must go transparent. If that happens, the money laundering scheme of the CCP’s high-ranking officials will be basically over.
 
-一时间，党媒、建制派红营全部将炮火对准AO党狂轰乱炸。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image003-11.jpg)（冯炜光 图片来源：苹果日报）
-**梁粉出手激化内斗**
+那就不是脱钩啦，那就是直接把钩（子）喂到了共产党这个愚蠢的猪的嗓子里边儿去啦！人家是钓鱼，这是钓猪！钓中共（这头）猪！所以说兄弟姐妹们，到那时候你们再看这个世界。所以现在你看这个世界多疯狂？
 
-与此同时，自恃头号「梁粉」（梁振英派）的冯炜光借着这场舆论攻势，再次将林郑及其政务官摆在中共的对立面，更想利用建制红营，激化红蓝斗争，彻底瓦解手握实权的建制蓝营。
+That is not just decoupling. It would be like pushing the hook directly into the throat of the stupid pig, the CCP pig. People typically fish. Yet, this is fishing for a pig, fishing the CCP pig. So, brothers and sisters, let us wait and see. So you see how crazy the world is right now.
 
-他随即在建制派网媒「HKG 报」上，发表题为「香港最大的『反中』政党—AO 党」的文章，形容「AO 党」（即所有政务官）是香港最大的「反中」政党，暗示公务员事务局局长聂德权、商务及经济发展局局长邱腾华极不称职，更有不点名指责特首林郑月娥「放任自己人」之嫌。他续指，董建华及梁振英非 AO 出身，出任特首时遭到 AO 党的不满，证明政务官不肯和中央信任的非 AO 出身特首合作。
+美国内部所有的激励措施都用完，美元一定完球蛋。（美国）没有任何机会和余地阻止美元和美元经济下滑。共产党是垂死挣扎。只有灭共，美国经济才能重回强大，（但）也得（度得）过这个震荡期，这就是事实。（大家）坐好，坐好家里的椅子吧，兄弟姐妹们，没事儿把你家椅子多钉几根儿钉啊，（因为）这个世界现在很疯狂。
 
-究其原因，他认为是AO「重英轻中」，「表面上」不反中，而暗地里「去中共化」、不想让中央监督，他一再强调，AO 是「香港最大的执政党」、亦是「最大的暗里反中」的政党。
+When the U.S. is running out all its stimulus plans, the U.S. dollar is bound to collapse. There is no chance for it to stop the U.S. dollars from declining or the downturn of the U.S. economy. The CCP is putting up a last-ditch struggle. Only by taking down the CCP can the U.S. economy regain its strength. Even if they do this, they must still go through a turbulent period. That is a fact. Everybody should sit still in your chair, brothers and sisters. When you have time, you’d better put a few more nails in your chair to make it more stable because the world is so crazy right now.
 
-因此，他建议将700多名政务主任的人事档案，呈交港澳办和中联办的对口单位，由两办掌握作为「治港者」的政务主任的背景和往绩，将来政务主任的擢升须由两办副署同意，兼且由驻港国安公署审查背景及往绩。
+当昨天、前天了解到美国要采取这些行动的时候，全面调查病毒必须调查真相，告诉世界谁不配合谁就是我的敌人，然后不惜一切代价动用SWIFT、比特币、世界银行、IMF货币组织、世界这个贸易组织，全面对中共开战。当然没有冬季奥运会了，啥概念，兄弟姐妹们？
 
-冯炜光的文章甫一刊登，就得到许多党媒的转载，不少建制派议员亦都他言论表示赞同。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image004-4.jpg)（叶刘淑仪 图片来源：苹果日报）
-**叶刘淑仪揭「司马昭之心」**
+I learned yesterday and the day before that the U.S. will take some actions. The U.S. will conduct a comprehensive investigation of the origin of the virus to find out the truth. Whoever does not cooperate will be treated as an enemy. Then the U.S. will initiate full-scale warfare against the CCP via the SWIFT, Bitcoin, the World Bank, the IMF, and the WTO. Of course, there will be no [Beijing] Winter Olympics. What does that mean, brothers and sisters?
 
-政务主任出身，新民党立法会议员叶刘淑仪第一时间反应了过来，出面调停，阻止斗争进一步激化。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/606dba8bdbc8001854a63a56](https://gtv.org/getter/606dba8bdbc8001854a63a56) (00:22-04:01, 07:43-09:54)
+鸣谢：
+[1] 感谢Antsee-GTV、 TING GUO 提供中文文本于 [https://gnews.org/zh-hans/1062405/](https://gnews.org/zh-hans/1062405/)
+[2] 感谢YY、Antsee-GTV、Liberte 提供英文翻译于 [https://gnews.org/1070330/](https://gnews.org/1070330/)
 
-她在脸书及电台访问中指出，有人利用中央提出的「爱国者治港」大造文章，打击公务员士气，有公务员因此而提早离职，她还表示自己留意到新民党部份党友都「跟风地批评」，呼吁大家「对事不对人」。
+* * *
 
-她觉得现时的香港百废待兴，不少政策需要资深政务官处理，「就算有忠诚的局长，草拟宣誓条例都需要公务员帮忙」，直指「用无厘头、无事实根据言论去攻击政务官，是伤害香港利益，亦等同伤害国家利益」。
+整理校对 & 新闻撰写：【7PawBear】字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-另外，对于冯炜光的建议，叶刘认为「没有必要」，「政务官的升迁制度一直行之有效，而政务官是否真正爱国已经有宣誓制度处理，不需要横生枝节。」
-
-其实，要洞悉冯炜光的「司马昭之心」不是难事，他这么做，无非是为了拍中共和梁振英的马屁，帮梁振英出任下届特首之余，为自己谋得一官半职。
-
-而对于建制红营来讲，目的也很明确，推倒政务官，自己取而代之。因此，叶刘淑仪突然出来调停，并不是针对「梁粉」这么简单。
-
-在这件事上，一直若隐若现的中共，究竟扮演什么角色？有没有在筹谋什么？或者才是叶刘淑仪最担心的关键之处。
-
-以上观点仅代表笔者
-
-「资料来源」：
-
-[香港最大的「反中」政党——AO党](https://hkgpao.com/articles/1019620?fbclid=IwAR1KIpFGOIAeggVNYQwqHGJRe0KJON0ZfUhgCToUpeqB32g8O3gZdR9D8tY)
-
-覆核：卡西欧 / 上传：文粤
-
-导读：
-
-港版文革2.0
-
-[【香港专题】 港版文革2.0（一）国安举报热线 「文革式人斗人」](https://gnews.org/zh-hans/1054640/)
-
-[【香港专题】 港版文革2.0（二）中共以『文化央企』荼毒出版界 图推动「人心回归」](https://gnews.org/zh-hans/1064838/)
-
-[【香港专题】 港版文革2.0（三）香港主流媒体「染红」自我审查 严重实为政府喉舌](https://gnews.org/zh-hant/1066816/)
-
-[【香港专题】 港版文革2.0（四）政府操弄电台发牌权 中共式记者发牌制移植香港](https://gnews.org/zh-hans/1069543/)
-
-[【香港专题】 港版文革2.0（五）特首选战之 689 VS 777（上篇）](https://gnews.org/zh-hans/1072492/)
-
-[【香港专题】 港版文革2.0（五）特首选战之 689 VS 777（下篇）](https://gnews.org/zh-hans/1072579/)
-
-0
++1

@@ -1,99 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.8.2021PM-Sillin 博士首提舟山蝙蝠病毒骨架
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1078717/)
+## 川普脱稿演讲追杀麦康奈尔及福奇等
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1078682/)
 
-视频剪辑 : Ablec(文A)
-中听校： 洛杉矶天使农场 – 烟波浩淼
-英翻译：洛杉矶天使农场 – 烟波浩淼
-英校对：洛杉矶天使农场 – 雨山溪桥客
-字幕+视频制作：洛杉矶天使农场 – 压箱底儿の希望
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**路德**
-Sellin 博士今天发推正式提到了舟山蝙蝠病毒骨架
-Dr. Sellin tweeted today and officially mentioned about the Zhoushan bat virus backbone
-我们之前做节目说过
-As we said in a previous show
-Sellin 博士前天发推说SIXTA
-Dr. Sellin tweeted the day before yesterday mentioned about the SIXTA
-那是二战时期最神秘的一个组织
-It was one of the most mysterious organizations during World War II
-专门破译和分析所有的
-It was dedicated to decode and analyze
-的秘密以及所有信息的无线电信号的
-all the secrets radio signals of all information
-当时德军和日军
-of the German and Japanese troops at that time
-现在美国以及盟国也有类似于这样的一个组织正在分析
-Now, the United States and allies have a similar organization that
-解密所有的病毒相关的机密
-decode and analyze all virus-related secrets
-他发推说这就是舟山蝙蝠病毒的骨架做的
-He tweeded that this is Zhoushan bat virus backbone
-这个对闫博士的报告最关键的进一步深入
-This is the most critical further insight for Dr. Yan’s report
-这就是（闫博士报告）里面写的ZC45舟山蝙蝠病毒
-This is Zhoushan bat virus written in Dr. Yan’s report
-我们在2020年1月19 日的时候，大家想想啊，
-Think about this, we were on Jan 19, 2020 to say it
-全世界只有中共说的62例（中共病毒感染者）时
-There were only 62 cases (of the CCP virus infection) that CCP told the world
-我们就说了大爆发
-We have said it will be an outbreak pandemic
-这几天布林肯号召美国
-In recent a few days, Blinken has called on the U.S. to
-一定要敢干
-dare to do it (investigate the origin of the CCP virus)
-先把防守做好，谨防第二波，第三波
-To do a good defense first, then, guard against the second wave and the third wave
-第二，一定要彻查，透明地彻查
-Second, we must conduct a thorough and transparent investigation
-这句话透明彻查，
-The sentence of thorough and transparent investigation
-大家有没有（想过）?
-Have you ever (ever thought) ?
-上次美国政府要透明彻查是什么时候？
-when was the last time the US government wanted to conduct a transparent and thorough investigation?
-伊拉克！萨达姆！要彻查
-For Iraq！ Saddam！ U.S did a thorough investigation
-过一段时间你听啊，一定是联合国
-After a while you will see, it must be the United Nations
-就像当年对萨达姆一样
-It’s just like when we treated Saddam Hussein
-联合国会通过一个决议，
-The United Nations needs pass a resolution
-美国都是按程序走，
-the United States will go through a procedure
-彻查病毒来源
-to investigate the origin of the virus thoroughly
-先理后兵，美国都这样，
-The U.S used to tell you the reason, then they dispatch their troop
-伊拉克，萨达姆这个也是一样
-It’s the same with Iraq and Saddam Hussein
-先给萨达姆说，我们的情报说，
-Firstly, they tell Saddam that our intelligence says that
-你这里有研制大规模伤性武器
-you have developed weapons of mass destruction
-我们要求彻查
-We request a thorough investigation
-联合国也通过决议彻查
-The United Nations also passed a resolution to conduct a thorough investigation
-然后给最后通牒三次
-Then give an ultimatum three times
-三次不干，小布什马上召开记者发布会。
-After three quits, Bush Jr. immediately held a press conference
-现通知萨达姆24小时之内离开，
-Saddam was now notified to leave within 24 hours
-让联会国去彻查，
-so that the United Nations will conduct a thorough investigation
-因为他们研制大规模杀伤性武器
-because they developed weapons of mass destruction
-你看看，商务部说
-You see, the U.S. Department of Commerce said that
-中共研究大规模杀伤性武器
-the CCP researched weapons of mass destruction
-你觉得我们说的还是危言耸听吗？
-Do you think what we are talking about is still alarmist?
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/A-13.jpg)newsweek.com
+面对近期频繁刷存在感的中共女婿麦康奈尔称赞福奇、力挺“叛徒”的举动【1】，光明磊落的人们普遍感受，不予以回击就不是川普总统的风格，果不其然，昨晚川普总统在马阿拉哥俱乐部的讲演，对相关人进行了抨击。
+
+《福克斯新闻》发表文章，题目为“川普总统在脱稿的马阿拉哥演讲中追杀麦康奈尔、福奇”，文章摘要说，这位前总统还发誓要帮助共和党在2022年夺回参众两院。【2】
+
+全文如下：
+
+川普总统星期六晚上在共和党全国委员会的一次主要捐助者聚会上发表了一番完全不合常规的讲话，抨击参议院共和党领袖麦康奈尔，称他为“笨蛋儿子”。
+
+这项活动在川普总统位于佛罗里达州棕榈滩的马阿拉哥俱乐部举行，美国第45任总统在那里发表了一次主旨演讲，而演讲偏离了提前发表的演讲内容。
+
+据《华盛顿邮报》报道，川普总统在谈及1月6日的美国国会对2020年选举结果认证时说：“如果那是舒默，而不是这个笨蛋儿子米奇·麦康奈尔，他们永远不会允许这种事情发生。”
+
+川普总统说“他们会与之抗争的。”他还一度把这次选举称为（有利于共和党的）“牛市”。
+
+川普总统在演讲中誓言，他将帮助共和党在2022年赢回国会多数席位。
+
+据路透社报道，他在事先准备好的讲话中说：“今晚，我满怀信心地站在你们面前，我们将在2022年夺回众议院，夺回参议院。”
+
+川普总统没有说明是否计划再次竞选总统，但向捐赠者保证“2024年，一位共和党候选人将赢得白宫”。
+
+据路透社报道，他表示，任何可能宣布自己参选的消息都可能在2022年中期选举之后公布。
+
+对彭斯失望
+
+据报道，川普总统在大约50分钟的演讲中，包括谈到麦康奈尔时，几次偏离了他事先准备好的讲话。
+
+这位前总统还表示，他对前副总统彭斯没有去争取1月份的选举认证感到“失望”。
+
+《华盛顿邮报》称，川普总统对2020年选举团认证结果感叹道：“我希望迈克·彭斯有勇气把它送回立法机构。我很喜欢他，我太失望了。”
+
+据报道，彭斯和麦康奈尔都没有出席。
+
+据报道，川普总统还重复了有关11月选举被操纵的说法。
+
+川普总统在谴责边境局势时说，“他们是从中东进来的，他们没有派最好的人，有杀人犯，强奸犯，毒贩。”
+
+福奇“全是废话”
+
+川普总统还指责了他的前交通部长、麦康奈尔的妻子赵小兰（Elaine Chao），赵在1月6日国会骚乱后辞职。川普总统说，他雇用赵后，她从未说过“谢谢”。
+
+川普总统赞扬了自己去年对中共病毒疫情的反应，并嘲笑白宫首席医疗顾问福奇在疫情之初就首次建议不要戴口罩，他还开玩笑说，福奇现在希望美国人戴“五层”口罩。
+
+“你见过这么多废话的人吗？” 据《华盛顿邮报》报道，他问福奇。
+
+川普总统甚至表示，最近有人建议将疫苗命名为“川普苗”，因为“曲速行动”（Operation Warp Speed）去年帮助加速了疫苗的研发。
+
+他表扬了一些州长，南达科他州的克里斯蒂·诺姆（Kristi Noem）和佛罗里达州的罗恩·德桑蒂斯（Ron DeSantis），感谢他们在疫情期间重新开放经济，而其他州仍然关闭。
+
+据《政治》（Politico）网报道，除了周六晚上的马阿拉哥晚会（Mar-a-Lago Soiree）之外，本周末为期三天的共和党静修期间的大部分活动都在棕榈滩四季度假村举行。
+
+参考链接：
+
+【1】
+
+
+
+> [麦康奈尔支持共和党“叛徒”之一竞选连任](https://gnews.org/zh-hans/1078252/)
+
+
+
+【2】[https://www.foxnews.com/politics/trump-goes-after-mcconnell-fauci-during-gop-speech-at-mar-a-lago](https://www.foxnews.com/politics/trump-goes-after-mcconnell-fauci-during-gop-speech-at-mar-a-lago)
 
 0
