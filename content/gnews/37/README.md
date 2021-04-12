@@ -1,31 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以色列将与美就新伊朗核协议密切合作
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1080686/)
+## 【每日快讯】11/04/2021：接种中共国疫苗后疫情加重
+` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1082487/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+**制作：Cantonese工作室**
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/D-2.jpg)dawn.com
-《法兰西24》报道，以色列国防部长本尼·甘茨(Benny Gantz)周日对美国国防部长劳埃德·奥斯汀(Lloyd Austin)表示，以色列将与华盛顿合作，以确保任何有关伊朗核计划的“新协议”都将维护地区安全。
 
-甘茨说:“我们将与我们的美国盟友密切合作，以确保与伊朗达成的任何新协议都将保障世界和美国的重要利益，防止在我们地区发生危险的军备竞赛，并保护以色列。”以色列强烈反对2015年伊朗核协议，此次重新开始伊朗核协议的谈判之际，拜登政府首次对以色列进行了高层访问。
 
-奥斯汀表示，华盛顿将与以色列合作，“推进共同的安全利益和优先事项”。
+**播报：【二丫 】资料整理：【安妮】【二丫】【evitang（文林）】【郁金香】海报制作：【农民】视频制作：【ken】发布：【向阳6768】**
 
-奥斯汀强调美国与以色列的关系“坚如磐石”，他说，美国将“继续密切磋商，以确保以色列的军事优势，并加强以色列的安全”。
+摘要：
 
-就在奥斯汀访问以色列的前几天，美国表示，已就恢复德黑兰与世界大国之间陷入僵局的核协议提出了“非常严肃”的想法。
-
-以色列在鹰派总理本雅明·内塔尼亚胡(Benjamin Netanyahu)的领导下一直强烈批评伊朗核协议，这可以追溯到巴拉克·奥巴马(Barack Obama)政府就该协议进行谈判的时期。当川普总统2018年退出该协议并对德黑兰实施制裁时，内塔尼亚胡鼓掌欢迎。
-
-内塔尼亚胡周三表示，以色列不会受制于一项可使伊朗发展核武器的核协议。他说，与伊朗达成的协议将为其拥有核武器铺平道路，核武器将威胁到以色列的安危，以色列不会以任何形势妥协。
-
-迄今为止，华盛顿方面要求伊朗恢复遵守协议，而德黑兰方面则坚持终止美国的所有制裁，双方都要求对方先采取行动，虽然已经取得了进展但仍未有最终结果。
-
-参考链接：
-
-[https://www.france24.com/en/middle-east/20210411-israel-says-it-will-work-closely-with-us-on-any-new-iran-nuclear-deal](https://www.france24.com/en/middle-east/20210411-israel-says-it-will-work-closely-with-us-on-any-new-iran-nuclear-deal)
-
-0
+1
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210412-__02.jpg)
+2
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210412-__03.jpg)
+3
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210412-__04.jpg)
+4
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210412-__05-1.jpg)
+5
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210412-__06.jpg)
+6
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210412-__07.jpg)
+7
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210412-__08.jpg)
+8
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210412-__09-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/0-3.jpg)
++1
