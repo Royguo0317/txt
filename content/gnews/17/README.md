@@ -1,83 +1,109 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】美国证监会与中共勾结 伤害了中国爱国者和美国民众
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1079861/)
+## 中共超限战灭港计划（三十三）六七暴动之斗委会
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1081124/)
 
-作者：纽约香草山农场  Husky蓝雨/GBWater
+搜集/撰文：岁月如歌 / 封面合成：文粤
 
+**吴荻舟****8/7****日记**
 
+1、大埔区共80个村，连市区共5万人。该区已成立“斗委会”约3千人已组织起来；青年参加学习毛着的有2-300人。 2、元朗横台村，老游击区，村民3千人。我们在这里有一定的群众基础。元朗区已成立各界斗委会。 3、沙头角，村民7-800人，已成立“斗委会”群众发动较好。 4、西贡区3万人，已有“斗委会”，领导权在李秉礼手中，未有中、下层农、渔民参加。该区属下十余村，目前只个别村有些工作，已组织3百余名中、小学生。 5、荃湾区23万人，其中工人4万人，主要是纱厂。原蒋帮势力较大，近年来已有较大的变化。我影响的工人已有一万二千余人，其中积子10%已成了（成立）各业斗委会。 6、长洲，是新界成立斗委会最早的，下农、渔、青年斗争情绪较高。但领导有怕字当头。 7、上水：60多名公共汽车工人和印刷厂工人成立了斗委会。我建议：渔民要起来，此起彼落，E（指港英政府）力不足，不能应付，疲之，并减市区压力。 8、粉岭附近20多个村已有5个村发动了，总之，HKE在新界只能控重点市镇，对农村则不很严密，有充分发动群众的便利。 7月10日日记落后：教会、官立学校1、罗富国、英皇、侵信会书院、圣加罗中学、金文泰中学、庇理罗士女校、香港工专，和香港大学。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+以上都成立（斗委会）。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4122.jpg)图片来自众新闻
+日记里记载着香港几乎所有的村落、学校、教会、教会学校，基本都成立了斗委会。有一点值得注意的是“已组织300中、小学生”。这个是可怕的，连小学生都发展了，这也是为何六七暴动有有很多少年犯的原因。这些孩子因为曾经参与暴动入狱，导致有的人一辈子都背上沉重的精神枷锁，无法面对；有的人为了平反一生的都在寻求政府给他洗脱这顶帽子。中共为了所谓的通过批斗港英政府，扩大其在香港影响力，掌控香港实际领导权，但又不收回香港，祸害了多少孩子。有的人至今都不知道自己小时候加入的组织、干的事是为中共卖命；有的人知道自己曾经干过什么，却不愿意或者不敢承认，不敢面对，是为此事感到羞耻还是害怕，抑或是还在继续为中共卖命，不得而知。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4123.jpg)图片来自FB
+前地下党员梁慕娴女士在这段历史中是最基层的领导，是真正把周恩来指示变成真实行动的人，也就是最前线的人。她这一生都在为这件事忏悔，但她选择面对历史，敢于承认自己犯过的错，也真诚为干过这件事向香港人道歉。 《梁慕娴：香港消失的“地下党”》一文回忆讲述她的经历，也填补很多历史空白。 「五十年前，发生在香港的“六七暴动”，是笔者毕生之痛，从未忘记，也不愿忘记」。她听邢福增教授的讲座《动荡时代的挑战：“六七暴动”与香港基督教》牵起回忆，她对一些人有意隐瞒真相，否定事实，为六七暴动洗白感到愤怒，她为此作出回应。她和阎丽梦博士揭穿中共超限战生化武器一样，是参与者，知根知底，本身就是证据、证人。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4124.jpg)图片来自众新闻
+邢福增教授在过去的《大公报》中搜集到曾参与的50多所教会学校「圣士提反女校、圣保罗男女校、华仁书院、培道女子中学、英华女校、基协实用中学……啊！我不禁惊呼，这不就是我们当时所组织和领导的斗委会吗？从来没有人如此精细的研究出这样完整的名单，如果加上非教会名单，如皇仁书院、英皇书院、伊利沙伯中学等，原来真有近百个“斗委会”。看到那些由我自己直接组成和领导的“斗委会”名字，我全身发热，头顶出汗，像是一个小偷被人搜出赃物，羞愧之心油然而生，我深深地吸了一口气，无限伤感」。在吴荻舟的日记里不但罗列了名单也在指挥这些学校行动，「26/6，1、皇仁、真光，不要孤立行动，要随大流，只要不单独搞一套，就不会暴露。请速通知下去，如皇仁、真光这样做，反突出和暴露了自己，如果是我们布置的话，要马上纠正。2、强调统一领导，同意指挥部关于塑胶工会的斗争小结提出的意见」。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4125.jpg)图片来自苹果日报
+梁慕娴女士曾经是地下党员，“学友社”主席，直接受港澳工委（原新华社香港分社，今中联办）领导，直接领导人梁焕然（大姐）和欧阳成潮（大陈），传达方式都是口头面授。她对那些以六七暴动为题材写的报导、纪实、回忆录、纪录片等的人能够真实面对历史的人表示赞赏和感谢，「所有的作品资料浩繁，证据确凿，有些引用当时的国务院外事办公室港澳组副组长吴荻舟的“六七笔记”所记录的资料最有说服力，驳斥了那些荒谬的言论」，对隐瞒曲解洗白的人也毫不客气，直接点名批评并揭穿。 「认同“暴动”事件的真实性质不容否认」。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4126.jpg)石中英，图片来自苹果日报
+石中英口述文章《我的「六七」文化之旅》和他的讲座遭到梁慕娴女士的炮轰。她说如果看过石中英文章或者听过他的讲座，你会发现他在着力撇除两个关系：撇除《青年乐园》与地下党的关系，撇除他和《青年乐园》的关系。石非常敏感和忌违有关左派的东西，连在理工大学讲座的宣传单上印有「左派刊物」都感到不适而抗议。对于他曾经在《青年乐园》所干的事一味强调他只是个“派报员”（送报纸的人）。梁慕娴女士揭穿他做送报员生涯结束不等于他已经离开了地下党组织，他仍继续参与金文泰中学读书会，是金文泰中学的三剑客之一。他到《青年乐园》送报纸就是经过读书会介绍的。这个读书会后来在六七暴动中成为斗委会，石也在其中，该斗委会印制「爱国无罪，抗暴有理」宣传单，石也因这份传单被港英控以「藏有煽动性标语罪」而入狱成为少年犯，石中英隐瞒了自己这点历史
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4127.jpg)图片来自香港资深传媒人联谊会
+陈伟中的专题文章《志•青春——甲子回望〈青年乐园〉》在有意洗白《青年乐园》：「不管它创立的真正目的和背后真正隶属的组织为何，它在协助学生成长，倡导文学创作所作的贡献和发挥的作用，不应因刊物的政治背景，或是因「六七暴动」禁刊而被一并抺杀。当《中国学生周报》（国民党的报纸）早己能够超脱美元资助的政治目的，而被反覆审视，回顾甚或推崇的时候，《青年乐园》为什么不能超脱左派资金，中共机构等刻板的政治定位，而被重新回顾和检视，找回它在历史中应有的位置呢？ 」陈伟中的言词就像现在的中共说美国一样狡辩：美国你以前也杀过人，你也有种族歧视，你不能说我。说A他用B来偷换概念，曲线洗白。
 
+《青年乐园》虽然短命，但是它是出版的刊物，并在特定时期发挥过作用，影响着那个时代的学生，是祸害了那一代的学生，并非陈伟中说的协助学生成长有功。这是还原历史不可轻易抹去，或者美化的痕迹。
 
+（未完待续）
 
-2021年4月5日，GTV传媒集团（GTV）的投资者分别聚集在华盛顿特区和纽约的证券交易委员会（SEC）办公室前，抗议SEC在调查GTV投资时与中共勾结。
+【本文仅代表作者个人观点】
 
-GTV成立于2020年4月20日，是一家帮助中国草根宣传真相和灭共资讯的视频流媒体公司，也是世界上为数不多的自始至终传播新冠病毒大流行真相的媒体平台。GTV之所以选择美国作为大本营，是因为GTV和其支持者们认同美国自由、平等的价值观，亦对美国的资本市场和司法体系充满信心。
+资料来源：
+[香港文化资料库香港文化资料库-梁慕娴：我所知道的《青年乐园》](https://hongkongcultures.blogspot.com/2018/05/blog-post_11.html)
 
-然而，在SEC对GTV的调查过程中，其将1300名GTV股东的投资款项和人身安全置于危险境地的同时，却一直允许与中共关联的诈骗公司从美国民众手里大量集资。SEC的双重标准与保护投资者和促进建立公众信任的市场环境的使命背道而驰。
+[梁慕娴：香港消失的“地下党”](https://www.chinesepen.org/blog/archives/100892)
 
-为了打击GTV，中共编造文件，对GTV进行诬陷。同时，中共胁迫许多身在中国的投资者向GTV要求退还投资款到中共指定账户，并且向SEC举报GTV投资诈骗。2020年7月，SEC因中共的指控展开了对GTV的调查。此后，GTV全力配合调查，哪怕为此产生了数百万美元的法律费用。然而，SEC在没有找到任何GTV违规行为的情况下，仍拒绝结案。同时，由于银行账户被监管，GTV失去了投资资金的使用权。这也导致了越来越多的GTV中国投资者被中共拘留、失踪和谋杀。这意味着，SEC可能向中共泄露了投资者的信息，成为杀人者的帮凶。
+[《](https://1967.hk.com/%E3%80%8A1967%E5%B9%B4%E8%81%AF%E8%BE%A6%E5%B7%A5%E4%BD%9C%E6%83%85%E6%B3%81%E3%80%8B/%E4%B8%AD%E5%9B%BD%E8%BF%91%E7%8E%B0%E4%BB%A3%E5%8E%86%E5%8F%B2%EF%BC%8C%E9%A6%99%E6%B8%AF1967%EF%BC%8C%E9%A6%99%E6%B8%AF%E5%85%AD%E4%B8%83%E6%9A%B4%E5%8A%A8%EF%BC%8C%E5%8F%8D%E8%8B%B1%E6%8A%97/)[1967年联办工作情况》/中国近现代历史](https://1967.hk.com/%E3%80%8A1967%E5%B9%B4%E8%81%AF%E8%BE%A6%E5%B7%A5%E4%BD%9C%E6%83%85%E6%B3%81%E3%80%8B/%E4%B8%AD%E5%9B%BD%E8%BF%91%E7%8E%B0%E4%BB%A3%E5%8E%86%E5%8F%B2%EF%BC%8C%E9%A6%99%E6%B8%AF1967%EF%BC%8C%E9%A6%99%E6%B8%AF%E5%85%AD%E4%B8%83%E6%9A%B4%E5%8A%A8%EF%BC%8C%E5%8F%8D%E8%8B%B1%E6%8A%97/)
 
-相反的是，SEC让那些和中共关联的诈骗公司轻易地从美国民众那里募集资金。根据高盛的数据，截至2020年6月，美国本土投资者拥有价值3500亿美元的中概股，日交易量达81亿美元，占美国股市日成交量的6%。这些公司包括瑞幸咖啡，其上市仅一年，股价就因会计违规而暴跌；百度、阿里巴巴和腾讯用其电脑计算能力帮助中共在中国审查言论、监视中国人民，这一事实人尽皆知；中海油作为石油巨头，与中共的军方和海外情报网息息相关。SEC让中共用美国人的钱来加强其在中国的专制模式和全球侵略——这个漏洞已经存在了几十年 ，直到2020年，美国颁布了《外国公司问责法案》后才被堵上。
+导读：
+中共超限战灭港计划
 
-今天，勇敢的GTV股东们站出来对抗中共——甚至当抗议活动在华盛顿和纽约进行时，中共警察还在威胁抗议者在中国和欧洲的家人们。我们赞扬GTV投资人在美国维护自己合法权益的举动，同时也敦促SEC对投资人诉求的回应：
+[中共超限战灭港计划（一）权贵家族在香港的扩张](https://gnews.org/zh-hans/958921/)
 
-1. 调查SEC工作人员与中共勾结的问题；
+[中共超限战灭港计划（二）香港地下党员](https://gnews.org/zh-hans/961318/)
 
-2. 调查SEC工作人员的政治和种族歧视问题；
+[中共超限战灭港计划（三）中共早期地下党员梁慕娴](https://gnews.org/zh-hans/964147/)
 
-3. 追究肇事者的责任；
+[中共超限战灭港计划（四）香港早期活跃人物司徒华的前半生](https://gnews.org/zh-hans/966481/)
 
-4. 对GTV投资者的损失进行评估和赔偿。
+[中共超限战灭港计划（五）司徒华的下半生](https://gnews.org/zh-hans/969837/)
 
-如果美国不能坚持法治，不能维护资本市场的公平性，那么美国就会丧失作为世界领袖的公信力。为了重建公众对美国的信任，SEC有必要就GTV事件进行透明和彻底的自查。
+[中共超限战灭港计划（六）五区公投](https://gnews.org/zh-hans/972231/https:/gnews.org/zh-hans/972231/)
 
-![]()![](https://media.discordapp.net/attachments/721544615953432698/828844640320487444/image0.jpg?width=1083&amp;height=609)
+[中共超限战灭港计划（七）五区公投的前因与后果](https://gnews.org/zh-hans/975744/)
 
-**附：英文版**
+[中共超限战灭港计划（八）](https://gnews.org/zh-hans/977519/)[23条之战与五区公投后果](https://gnews.org/zh-hans/977519/)
 
-On April 5, 2021, GTV Media Group (GTV) investors gathered at the Securities and Exchange Commission (SEC) offices in Washington D.C. and New York to protest against the SEC’s collusion with the Chinese Communist Party (CCP) in a case involving GTV, a video streaming company that helps Chinese grassroots advocate for truth and destruction of the CCP regime. As the SEC put 1,300 GTV shareholders’ investment and their personal safety at risk, it had been allowing fraudulent companies with links to the CCP to raise massive amounts of capital from the American public. The SEC’s double standards are against its mission of protecting investors and promoting a market environment that is worthy of the public’s trust.
+[中共超限战灭港计划（九）中共十三届四次会议](https://gnews.org/zh-hans/981210/)
 
-Founded on April 20, 2020, GTV is among the few media platforms in the world that have been consistently telling the truth of COVID-19. GTV chose the U.S. to be its home base because GTV and the supporters share the American values of freedom and equality and have faith in the U.S. judicial system and capital markets.
+[中共超限战灭港计划（十）梁慕娴揭露香港中共地下党](https://gnews.org/zh-hans/983319/)
 
-To crackdown on GTV, the CCP fabricated documents and made false accusations about GTV. Many GTV investors in China were coerced by the CCP to demand refunding GTV investment to the CCP appointed bank accounts and reporting GTV to the SEC as a scam. In July 2020, the SEC opened an unjustified investigation of GTV. Since then, GTV has fully cooperated with the SEC and incurred millions of dollars of legal expenses. Despite the fact that the SEC found no wrongdoings by GTV, it refused to close the case. In the meantime, GTV lost access to the invested funds as its bank accounts were put under regulatory supervision. More and more GTV investors in China were detained, disappeared, and murdered by the CCP. It implies that the SEC might have leaked investors’ information to the CCP and become an accomplice of the murderer.
+[中共超限战灭港计划（十一）梁振英的地下党员身分之争](https://gnews.org/zh-hans/986516/)
 
-In contrast, the SEC made it very easy for fraudulent companies with ties to the CCP to raise capital from the American public. According to Goldman Sachs, as of June 2020, the US-based investors owned $350 billion worth of Chinese ADRs with a daily trading volume of $8.1 billion, representing 6% of daily stock market turnover in the US. For example, Luckin coffee stock price crashed over accounting irregularities just one year after its IPO. Baidu, Alibaba, and Tencent are known to lend their computing power to the CCP to censor speech in China and surveil the Chinese people. CNOOC, an oil giant, is linked to the CCP’s military and overseas intelligence network. The SEC let the CCP use Americans’ money to strengthen its authoritarian model in China and to promote its global aggression. Such loopholes had existed for decades until the Holding Foreign Companies Accountable Act was enacted in 2020.
+[中共超限战灭港计划（十二）林郑月娥共产党员身分](https://gnews.org/zh-hans/990380/)
 
-Today, the brave GTV shareholders are standing up to the CCP. Even when the protest was taking place in D.C. and New York, the CCP police were threatening protesters’ family members in China and Europe. We praise the GTV investors for defending their legal rights in the US. The SEC should answer their demands.
+[中共超限战灭港计划（十三）老鼠窝中联办](https://gnews.org/zh-hans/992518/)
 
-1. To investigate collusion between the SEC staff members and the CCP;
-2. To investigate political and racial discrimination by the SEC staff members;
-3. To hold perpetrators accountable;
-4. To assess and compensate for GTV investors’ loss;
+[中共超限战灭港计划（十四）占领舆论阵地之两封密电](https://gnews.org/zh-hans/997143/)
 
+[中共超限战灭港计划（十五）占领舆论阵地之私营报纸的存亡](https://gnews.org/zh-hans/1001701/)
 
-If the U.S. doesn’t uphold the rule of law and maintain fair capital markets, it will have little credibility to be the world leader. A transparent and thorough investigation of the SEC’s handling of the GTV case is necessary to rebuild the public’s trust in the US.
+[中共超限战灭港计划（十六）抢占香港舆论阵地之共英之约](https://gnews.org/zh-hans/1006899/)
 
-参考阅读：
+[中共超限战灭港计划（十七）抢占舆论阵地之雨后春笋](https://gnews.org/zh-hans/1012264/)
 
-[China-US clash over stock market rules casts doubt over $1tn of listings](https://asia.nikkei.com/Business/Markets/China-US-clash-over-stock-market-rules-casts-doubt-over-1tn-of-listings)
+[中共超限战灭港计划（十八）抢占香港舆论阵地之张五场](https://gnews.org/zh-hans/1016253/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+[中共超限战灭港计划（十九）传媒舆论分](https://gnews.org/zh-hans/1020122/)[析](https://gnews.org/zh-hans/1020122/)
 
-编辑/校对/发稿：Irene木木
+[中共超限战灭港计划（二十）新时代舆论战之反送中运动](https://gnews.org/zh-hans/1024389/)
 
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+[中共超限战灭港计划（二十一）新时代舆论战之中共新战略](https://gnews.org/zh-hans/1028829/)
 
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+[中共超限战灭港计划（二十二）双十暴动](https://gnews.org/zh-hans/1036475/)[(上)](https://gnews.org/zh-hans/1036475/)
 
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+[中共超限战灭港计划（二十三）双十暴动](https://gnews.org/zh-hans/1039951/)[(下)](https://gnews.org/zh-hans/1039951/)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+[中共超限战灭港计划（二十四）暗杀周恩来](https://gnews.org/zh-hans/1046701/)
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+[中共超限战灭港计划（二十五）六七暴动前的澳门](https://gnews.org/zh-hans/1049039/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+[中共超限战灭港计划（二十六）六七暴动前的香港](https://gnews.org/zh-hans/1050567/)
 
+[中共超限战灭港计划（二十七）六七暴动之中共左派策动政治潮](https://gnews.org/zh-hans/1054412/)
 
+[中共超限战灭港计划（二十八）六七暴动之是谁煽动年轻人](https://gnews.org/zh-hans/1061090/)
 
+[中共超限战灭港计划（二十九）六七暴动之福建帮](https://gnews.org/zh-hans/1064591/)
 
+[中共超限战灭港计划（三十）六七暴动与周恩来](https://gnews.org/zh-hans/1068197/)
+
+[中共超限战灭港计划（三十一）六七暴动之吴荻舟笔记（上）](https://gnews.org/zh-hans/1071326/)
+
+[中共超限战灭港计划（三十二）六七暴动之吴荻舟笔记（下）](https://gnews.org/zh-hans/1076730/)
+
+审稿：卡西欧 /上传：天网灰灰
 
 0
