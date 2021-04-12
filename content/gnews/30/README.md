@@ -1,25 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 吉尔吉斯斯坦外交人员接种中共国产疫苗后死亡
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1079182/)
+## 布林肯警告中共对台湾激进行动将犯严重错误
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1079480/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+俄罗斯莫斯科喀秋莎农场   银河
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/K-2.jpg)eastoregonian.com
-吉尔吉斯斯坦驻俄罗斯大使馆新闻处报道，吉尔吉斯斯坦外交部领事司副司长巴赫季亚尔·沙基罗夫于4月1日逝世，死亡原因尚不清楚。
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/c-11.jpg)scmp.com
+雅虎新闻报道，美国国务卿布林肯(Antony Blinken)周日表示，美国担心中共对台湾的侵略行动，对中共发出警告称，任何试图用武力改变西太平洋现状的行为都将犯”严重错误”。
 
-吉尔吉斯斯坦卫生部前发言人Elena Bayalinova在她的脸书页面上发布了一条信息称，年仅39岁，已去世的外交部领事司副司长沙基罗夫的亲属在与我通电话时表示，死者前一天接种中共产的国药集团SinoPfarm疫苗。
+布林肯在接受美国全国广播公司“与媒体见面”节目采访时说:“我们所看到的，也是我们真正关心的，是北京政府针对台湾的日益激进的行动，加剧了海峡的紧张局势。”
 
-于3月19日抵达吉尔吉斯共和国150000剂中共国产疫苗，沙基罗夫因要去莫斯科进修课程，所以他决定保护自己并接种疫苗。卫生部前发言人呼吁吉尔吉斯共和国卫生部应进行客观的正式调查，并报告调查结果。
+根据《与台湾关系法》(Taiwan Relations Act)，美国长期致力于确保台湾有能力自卫并维持西太平洋地区的和平与安全。“我们支持这些承诺，” 布林肯称，“我能告诉你的是，任何试图以武力改变现状的行为都将是一个严重的错误。”
 
-Elena Bayalinova在帖子中写道:“国家的医务工作者应该考虑到这一事实，并仔细检查公民接种疫苗，以避免可能的反应和并发症造成新的损失。”
+去年，中共空军向台湾防空识别区出动了380架次左右的飞机。今年到目前为止，中共军方几乎每天都派飞机进入防空识别区。中共航母在台湾海峡进行演习，并威胁称如果武力统一，台湾将没有任何反抗的机会。台湾外交部长吴钊燮表示，如果中共进攻，台湾将战斗到底。
 
-吉尔吉斯共和国卫生和社会发展部尚未对该事件发表评论，而这条消息已被中共媒体屏蔽。
+白宫上周五表示，正密切关注中共大陆在台湾海峡日益增多的军事活动，并称北京方面的行动可能会造成不稳定。同时美国促进印太区域结盟共同抵御中共威胁。日本作为美国在亚洲战略的核心，在东京美日2+2声明中，双方使用直率的语言表达共同应对中共对该地区的挑战。
+
+美国选择与日本合作表达关切，这一事实意义重大。此举表明，如果中共对台湾进行攻击，美日绝对不会袖手旁观。
 
 参考链接：
 
-[https://24.kg/english/188529\_COVID-19\_Kyrgyz\_Foreign\_Ministry\_employee\_dies\_after\_vaccination/](https://24.kg/english/188529_COVID-19_Kyrgyz_Foreign_Ministry_employee_dies_after_vaccination/)
+[https://finance.yahoo.com/news/blinken-warns-chinas-increasingly-aggressive-131549959.html](https://finance.yahoo.com/news/blinken-warns-chinas-increasingly-aggressive-131549959.html)
 
-0
++1

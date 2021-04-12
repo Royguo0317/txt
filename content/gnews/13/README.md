@@ -1,88 +1,103 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日新闻收集【4/11】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1079629/)
+## 世界正在觉醒，“中共病毒”的来源终将大白于天下
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1080032/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
+新闻来源：Daily Mail《英国每日邮报》| 作者：蒂姆·斯蒂金斯（Tim Stickings）| 发布时间：2021年3月18日
 
-4月11日郭文贵先生直播援引王岐山的话，中共走向灭亡后全世界的人都想知道郭文贵是谁；美国疫苗的副作用在突显，8-10月或看到疫苗的次生灾难；香港手足感谢送车师。
+翻译/简评：毛毛猫猫 |校对/审核：Beicy-数学老师 |Page：小雨
 
+[!\[\]()!\[\](https://spark.adobe.com/page/WLiiySO5e7sHL/images/181cfae6-beda-492a-85dd-7aeebcde4476.jpg?asset_id=c5fb5cd1-6d9e-4580-b358-95235a345610&amp;img_etag=%22243db0cd510828d6f5b57bcb38a23ddb%22&amp;size=2560)](https://spark.adobe.com/page/WLiiySO5e7sHL/images/181cfae6-beda-492a-85dd-7aeebcde4476.jpg?asset_id=c5fb5cd1-6d9e-4580-b358-95235a345610&amp;img_etag=%22243db0cd510828d6f5b57bcb38a23ddb%22&amp;size=1024)
 
+**简评：**
 
-> 王岐山人老，但脑子不糊涂。
-> 我也相信，随着共产党走向灭亡，爆料革命走向胜利，不仅是所有中国人，全世界的人都想知道：郭文贵是谁？他领导的爆料革命和新中国联邦都干了些啥？
-> 
-> 战友中谁了解得最全面最详细？（大言不惭地说）瞿水台😊 [pic.twitter.com/UwrtsMM1Zj](https://t.co/UwrtsMM1Zj)
-> — 瞿水台 Qu Shuitai (@QuShuitai) [April 11, 2021](https://twitter.com/QuShuitai/status/1381372632424189957?ref_src=twsrc%5Etfw)
+中共病毒肆虐已经造成了全球260万人罹难。然而在这场疫情大流行的一年以后，关于病毒起源的争论仍在持续， 尽管姗姗来迟的世界卫生组织对疫情首发地武汉的所谓调查已经结束， 但相关报告却迟迟不能出炉。 在其幕后这场没有硝烟的战火中，事实与谎言，正义与邪恶的博弈正在殊死进行中。虽然中共方面罔顾事实极力宣扬病毒源于自然，越来越多的线索证据已经将病毒源头指向武汉病毒研究所，越来越多的有良知的科学家已经勇敢地站出来作证，终有一天真相会大白于天下。
 
+**原文翻译：**
 
-1. **`瞿水台推特`**
-*王岐山人老，但脑子不糊涂。 我也相信，随着共产党走向灭亡，爆料革命走向胜利，不仅是所有中国人，全世界的人都想知道：郭文贵是谁？他领导的爆料革命和新中国联邦都干了些啥？ 战友中谁了解得最全面最详细？（大言不惭地说）瞿水台*
+## **“武汉实验室泄露理论”被正在调查Covid-19起源的世卫组织-北京联合调查组放弃。调查组的中方负责人否认因专家意见不一致而导致报告迟迟未发布。**
 
-
-> Fauci funded the Wuhan lab and authorized gain of function genetic engineering at Wuhan to make bat viruses more dangerous. If SARS-CoV-2 came from Wuhan Lab, Fauci is Father. US biologist Bret Weinstein s 90 per cent chance it leaked from the lab[https://t.co/SjM1arJ9xk](https://t.co/SjM1arJ9xk)
-> — Peter Navarro (@RealPNavarro) [April 11, 2021](https://twitter.com/RealPNavarro/status/1381374662450499585?ref_src=twsrc%5Etfw)
+- 科学家小组将于下周公布这份具有非常高的政治敏感度的报告
+- 调查组的中方负责人称不会进一步探讨实验室泄露理论
+- 美国宣称病毒是从武汉一家秘密的病毒学实验室泄露出来的
 
 
-2. **`皮特·纳瓦罗推特`**
-*福奇资助了武汉实验室，并授权在武汉实验室进行功能基因工程研究，使得蝙蝠病毒更加危险。 如果SARS-CoV-2来自武汉实验室，福奇则是病毒之父。 美国生物学家布雷特·温斯坦（Bret Weinstein）从武汉实验室泄漏的机率达90％
-附**`《美国太阳网》新闻`***
+一位中共国科学家说，新冠肺炎(COVID-19)是从武汉某实验室泄露的理论已经被世卫组织调查疫情起源的专家放弃了。
+
+世卫组织—北京联合小组在今年1月和2月访问武汉后，将于下周发布这份极具政治敏感度的报告。联合调查小组在这次访问过程中的遭遇使得外界对中共国的透明度提出了进一步的质疑。
+
+世卫组织表示，该报告目前尚未完成，但该小组的中共国方面的负责人梁万年告诉一些中共国有媒体，实验室泄漏理论被认为“极不可能”，并且不会对此再做进一步调查。
+
+梁万年说，“未来的病毒起源追踪任务将不再关注这一领域，除非有新的证据”。
+
+他补充说，这些调查结果是世卫组织和中共国科学家达成的“共识”，并否认报告被推迟是因为专家之间对这一结论存在分歧。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/WLiiySO5e7sHL/images/7ac05f48-301b-464b-840e-d89a7be8873b.jpg?asset_id=638af168-3101-45dd-b54f-0dd195e3d51c&amp;img_etag=%22fa9a701de7feb5df8c7ad0c3e24ffe20%22&amp;size=2560)](https://spark.adobe.com/page/WLiiySO5e7sHL/images/7ac05f48-301b-464b-840e-d89a7be8873b.jpg?asset_id=638af168-3101-45dd-b54f-0dd195e3d51c&amp;img_etag=%22fa9a701de7feb5df8c7ad0c3e24ffe20%22&amp;size=1024)专家组中方负责人梁万年说，专家们一致认为，冠状病毒是从武汉实验室泄露的—“可能性极小”。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/WLiiySO5e7sHL/images/726767d7-a693-4d76-b8c3-9259ec121a20.jpg?asset_id=bd584a94-fac3-456a-9f12-6f00971d84f1&amp;img_etag=%22f2cb23f32386da5ba9c41a7f29b3e58e%22&amp;size=1024)](https://spark.adobe.com/page/WLiiySO5e7sHL/images/726767d7-a693-4d76-b8c3-9259ec121a20.jpg?asset_id=bd584a94-fac3-456a-9f12-6f00971d84f1&amp;img_etag=%22f2cb23f32386da5ba9c41a7f29b3e58e%22&amp;size=1024)图为武汉病毒学研究所。自2019年12月，新冠病毒在这个中共国城市首次被发现，继而在全世界范围内蔓延，该城市一直饱受争议。
+
+这份备受期待的报告将研究一系列关于病毒如何首次从动物传染到人类的理论—蝙蝠是主要嫌疑之一。
+
+但华盛顿和其他一些人宣扬的理论是，这次疫情不是自然界造成的，而是武汉一家秘密的病毒学实验室发生泄漏或意外造成的。
+
+川普政府在其任上的最后几天声称，在第一批病例被证实之前，该实验室的一些研究人员已于2019年秋季生病。
+
+中共国一直否认这些说法，并试图扰乱公众对该病毒最初源自武汉的印象。
+
+世卫组织专家的任务是寻找答案，但他们的武汉之行却因中共国当局掩盖事实而受到影响。
+
+英美两国此前与北京当局就此事进行了数月的谈判，他们就世卫组织此行中受到的遭遇对中共国的透明度提出了担忧。
+
+而北京方面领导小组的组长，中共国的专家梁先生则驳斥了美国的说法，他说，在2019年12月之前就没有发现任何感染病例。
+
+当被问及是否因为专家意见不一致而报告被推迟时，梁万年表示，联合调查小组得出的结果“是中外专家的共识”。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/WLiiySO5e7sHL/images/70fe702b-b373-4845-acd5-62935610d48d.jpg?asset_id=75edc9a3-2344-4be3-b092-f085b5ceea15&amp;img_etag=%224fa1af17ae6d801a148997f8c38e7757%22&amp;size=1024)](https://spark.adobe.com/page/WLiiySO5e7sHL/images/70fe702b-b373-4845-acd5-62935610d48d.jpg?asset_id=75edc9a3-2344-4be3-b092-f085b5ceea15&amp;img_etag=%224fa1af17ae6d801a148997f8c38e7757%22&amp;size=1024)世卫组织专家组成员到场参观中共国抗击“新冠肺炎”的博物馆展览，这次参观让人们对中共国的透明度产生怀疑。
+
+“我们希望最大限度地提出一份完整、严谨、科学的报告，所以这个过程需要一些时间”，他告诉中共官媒《环球时报》的记者说。
+
+“很难指望双方30多位科学家在一个月的时间内对所有问题给出明确的答案。”
+
+梁万年在接受采访时断言，“病毒是天然来源”，他说“这次疫情是由实验室泄漏造成的可能性极小”。
+
+他说，专家们已经访问了处于实验室泄漏理论中心的武汉病毒学研究所，并声称他们与那里的专家进行了“坦诚、深入的交流”。
+
+“经过他们的实地考察和研究，专家组一致认为，病毒从实验室泄露的可能性极小。”梁万年说。
+
+“所以未来的病毒起源追踪任务将不再集中在这个领域，除非有新的证据。”
+
+世卫组织发言人Christian Lindmeier周二告诉记者，调查结果可能会在下周公布，他说在那之前“根本没有准备好”。
+
+“我们从技术专家、考察团成员那里听到的消息是，报告很可能下周这时就会出来，”他补充说。
+
+[![](https://spark.adobe.com/page/WLiiySO5e7sHL/images/60a93104-0b11-489a-9beb-b2b736b21d95?asset_id=b6b8dc18-1310-4d56-be64-60044b9ec526&amp;img_etag=%22ae420f601b9328012a3c548f9c6268ee%22&amp;size=2560)](https://spark.adobe.com/page/WLiiySO5e7sHL/images/60a93104-0b11-489a-9beb-b2b736b21d95?asset_id=b6b8dc18-1310-4d56-be64-60044b9ec526&amp;img_etag=%22ae420f601b9328012a3c548f9c6268ee%22&amp;size=1024)世卫组织小组今年早些时候访问武汉期间，中共国安保人员在病毒实验室外守候。
+
+林德梅尔说，与中共国同行一起起草报告的专家团队仍在对文件进行定稿。
+
+“专家们正在一起起草，而且……参与的人越多，人们就越要有发言权，”他说。
+
+“他们想把它做好。这才是最重要的部分。”
+
+该团队最初计划迅速公布一份初步报告，但这一计划在2月份被搁置，没有明确解释。
+
+世卫组织负责人Tedros Adhanom Ghebreyesus随后承诺，报告全文将在本周某个时候公布，并承诺让成员国提前了解报告结论。
+
+但是，报告推出的时间持续被推迟，引发了对联合国卫生机构对全面和独立调查的呼吁反应迟缓的再次批评。
+
+在与中共国的外交角力中，花了几个月的时间来挑选这10名国际专家，包括流行病学家和动物卫生专家。
+
+终于，这些专家在新冠病毒在武汉首次被发现、然后在世界各地爆发，并且造成260多万人死亡的一年多后到达武汉开始了这次的调查。
+
+🔗[原文链接](https://www.dailymail.co.uk/news/article-9375795/Wuhan-lab-theory-ABANDONED-joint-Beijing-team.html)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
-> It seems Ruifu Yang's article on "bioterrorism and bioweapons" was deleted after I posted the previous tweet. 
-> 
-> I kept the screenshot and HTML file. 🤓
-> Here we go:[#UnrestrictedScientificMisinformation](https://twitter.com/hashtag/UnrestrictedScientificMisinformation?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/L6wsDG0KaU](https://t.co/L6wsDG0KaU)
-> — 德意志之鹰 (@dezying) [April 11, 2021](https://twitter.com/dezying/status/1381248705156821001?ref_src=twsrc%5Etfw)
+编辑：【英国伦敦喜庄园编辑部】
 
+[!\[\]()!\[\](https://spark.adobe.com/page/WLiiySO5e7sHL/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/WLiiySO5e7sHL/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
-3. **`德意志之鹰推特`**
-*看来**杨瑞馥**之前发过的推文后，关于“生物恐怖主义和生物武器”的文章被删除了。我保留了截图和HTML文件。可在以下网页中输入：生物恐怖攻击
-http://www.bjsbnet.com/Article/Search*
-
-
-> 逐步深入，塞林博士：[#COVID19实际上是武汉市经过秘密多机构测试的几种工程化冠状病毒之一](https://twitter.com/hashtag/COVID19%E5%AE%9E%E9%99%85%E4%B8%8A%E6%98%AF%E6%AD%A6%E6%B1%89%E5%B8%82%E7%BB%8F%E8%BF%87%E7%A7%98%E5%AF%86%E5%A4%9A%E6%9C%BA%E6%9E%84%E6%B5%8B%E8%AF%95%E7%9A%84%E5%87%A0%E7%A7%8D%E5%B7%A5%E7%A8%8B%E5%8C%96%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92%E4%B9%8B%E4%B8%80?src=hash&amp;ref_src=twsrc%5Etfw)，例如基于NSP的（DG，ZLS）减毒异源疫苗，[#COVID发布方案1](https://twitter.com/hashtag/COVID%E5%8F%91%E5%B8%83%E6%96%B9%E6%A1%881?src=hash&amp;ref_src=twsrc%5Etfw)、2或3。既然如此详细，美国是否已经拿到中共病毒库的全部资料了？ [https://t.co/VQf4iwjhlO](https://t.co/VQf4iwjhlO)
-> — 墨博士 (@4RxMbPD3YbeN1fS) [April 11, 2021](https://twitter.com/4RxMbPD3YbeN1fS/status/1381199032626782213?ref_src=twsrc%5Etfw)
-
-
-4. **`墨博士推特`***逐步深入，塞林博士：#COVID19实际上是武汉市经过秘密多机构测试的几种工程化冠状病毒之一，例如基于NSP的（DG，ZLS）减毒异源疫苗，#COVID发布方案1、2或3。既然如此详细，美国是否已经拿到中共病毒库的全部资料了*
-
-
-> 中国科兴疫苗神奇发力 智利主教接种2剂后仍确诊
-> 智利罗马天主教教会10日在推特上表示，现年76岁的圣地牙哥天主教会枢机主教布拉科（Celestino Aós Braco）确诊新冠肺炎（COVID-19），辅助主教洛伦泽利（Alberto Lorenzelli）也出现类似症状而入院观察。据悉，两位主教皆曾打过2剂中国科兴疫苗。 [pic.twitter.com/eMPpor1dUy](https://t.co/eMPpor1dUy)
-> — 老司机 (@h5LPyKL7TP6jjop) [April 11, 2021](https://twitter.com/h5LPyKL7TP6jjop/status/1381331359235371008?ref_src=twsrc%5Etfw)
-
-
-5. **`老司机推特`**
-*中国科兴疫苗神奇发力 智利主教接种2剂后仍确诊 智利罗马天主教教会10日在推特上表示，现年76岁的圣地牙哥天主教会枢机主教**布拉科（Celestino Aós Braco）**确诊新冠肺炎（COVID-19），辅助主教**洛伦泽利（Alberto Lorenzelli）**也出现类似症状而入院观察。据悉，两位主教皆曾打过2剂中国科兴疫苗*
-
-
-> 塞林博士深谙中共超限战和中华传统：最厉害的毒药就是无色无味的毒药，杀人细无声——无症状传播的增加是一种生物武器功能，[#COVID19与SARS和MERS相比](https://twitter.com/hashtag/COVID19%E4%B8%8ESARS%E5%92%8CMERS%E7%9B%B8%E6%AF%94?src=hash&amp;ref_src=twsrc%5Etfw)，由于症状前高病毒载量和上呼吸道脱落，弗林蛋白酶切割位点插入和预先适应性高亲和力人类ACE2结合的结果 [https://t.co/b4I5TvCoxY](https://t.co/b4I5TvCoxY)
-> — 墨博士 (@4RxMbPD3YbeN1fS) [April 11, 2021](https://twitter.com/4RxMbPD3YbeN1fS/status/1381160364818145281?ref_src=twsrc%5Etfw)
-
-
-6. **`墨博士推特`**
-*塞林博士深谙中共超限战和中华传统：最厉害的毒药就是无色无味的毒药，杀人细无声——无症状传播的增加是一种生物武器功能，[#COVID19与SARS和MERS相比](https://twitter.com/hashtag/COVID19%E4%B8%8ESARS%E5%92%8CMERS%E7%9B%B8%E6%AF%94?src=hashtag_click)，由于症状前高病毒载量和上呼吸道脱落，弗林蛋白酶切割位点插入和预先适应性高亲和力人类ACE2结合的结果*
-
-
-> [https://t.co/pOXeTpXBWi](https://t.co/pOXeTpXBWi)
-> //致全港的送車師：
-> 當日得知我需還押後，我緩緩地走到法庭下的羈留室。我當時沒有流下眼淚，我在想我有什麼需要向律師交代。當我看見律師後，把我最軟弱的一面在他們面前展露無遺，我感十分害怕，害怕我適應不到還押的生活、害怕被人打…… [pic.twitter.com/lP1lRiwfJj](https://t.co/lP1lRiwfJj)
-> — RL😷 (@RL2359) [April 10, 2021](https://twitter.com/RL2359/status/1380739965085229056?ref_src=twsrc%5Etfw)
-
-
-7. **`RL推特`**
-*//致全港的送车师：
-当日得知我需还押后，我缓缓地走到法庭下的羁留室。我当时没有流下眼泪，我在想我有什麼需要向律师交代。当我看见律师后，把我最软弱的一面在他们面前展露无遗，我感十分害怕，害怕我适应不到还押的生活、害怕被人打…过了一段时间，我与另一个人一起锁上手銬，当时我真的有一种被人遗弃的condom般的感觉。囚车内只有我一个手足，感到十分孤单。当闸门慢慢升起时，我看见一道道的闪光。原来是十多个送车师在等候我。好像在黑暗中带一点𥌓光。我听到你们不断呼唤我的名字、不断叫我支持下去、撑下去。我在囚车哭泣洒泪，看见你们在行车道路上追着我的囚车，真的很想跟你们说：「不要追，我会撑下去。」
-顺便囚车把我送到另一个法庭内等候，在另一个法庭门前我又看见另一班送车是由同样呼唤着我的名字，心想：你们的消息真灵通。在此，我要十分感激全港的送车师，是你们带点温暖给手足，让手足知道自己不是一个人作战下去。当日的情景我这辈子也会牢牢记住。送车师，多谢你们。
-最后，我亦要感谢石墙花在我遇到困难时伸出援手，提供物资，派发「定心丸」给手足们。石墙花、邵家臻， 十分感谢你们。
-在此，祝好人这辈子都平安和快乐。
-手足上//*
-
-
-
-
-
-
-+1
+0

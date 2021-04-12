@@ -1,99 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.8.2021PM-Sillin 博士首提舟山蝙蝠病毒骨架
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1078717/)
+## 喀秋莎新闻参考- 2021年4月10日(星期六)
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1078942/)
 
-视频剪辑 : Ablec(文A)
-中听校： 洛杉矶天使农场 – 烟波浩淼
-英翻译：洛杉矶天使农场 – 烟波浩淼
-英校对：洛杉矶天使农场 – 雨山溪桥客
-字幕+视频制作：洛杉矶天使农场 – 压箱底儿の希望
+俄罗斯莫斯科喀秋莎农场 土星
 
-**路德**
-Sellin 博士今天发推正式提到了舟山蝙蝠病毒骨架
-Dr. Sellin tweeted today and officially mentioned about the Zhoushan bat virus backbone
-我们之前做节目说过
-As we said in a previous show
-Sellin 博士前天发推说SIXTA
-Dr. Sellin tweeted the day before yesterday mentioned about the SIXTA
-那是二战时期最神秘的一个组织
-It was one of the most mysterious organizations during World War II
-专门破译和分析所有的
-It was dedicated to decode and analyze
-的秘密以及所有信息的无线电信号的
-all the secrets radio signals of all information
-当时德军和日军
-of the German and Japanese troops at that time
-现在美国以及盟国也有类似于这样的一个组织正在分析
-Now, the United States and allies have a similar organization that
-解密所有的病毒相关的机密
-decode and analyze all virus-related secrets
-他发推说这就是舟山蝙蝠病毒的骨架做的
-He tweeded that this is Zhoushan bat virus backbone
-这个对闫博士的报告最关键的进一步深入
-This is the most critical further insight for Dr. Yan’s report
-这就是（闫博士报告）里面写的ZC45舟山蝙蝠病毒
-This is Zhoushan bat virus written in Dr. Yan’s report
-我们在2020年1月19 日的时候，大家想想啊，
-Think about this, we were on Jan 19, 2020 to say it
-全世界只有中共说的62例（中共病毒感染者）时
-There were only 62 cases (of the CCP virus infection) that CCP told the world
-我们就说了大爆发
-We have said it will be an outbreak pandemic
-这几天布林肯号召美国
-In recent a few days, Blinken has called on the U.S. to
-一定要敢干
-dare to do it (investigate the origin of the CCP virus)
-先把防守做好，谨防第二波，第三波
-To do a good defense first, then, guard against the second wave and the third wave
-第二，一定要彻查，透明地彻查
-Second, we must conduct a thorough and transparent investigation
-这句话透明彻查，
-The sentence of thorough and transparent investigation
-大家有没有（想过）?
-Have you ever (ever thought) ?
-上次美国政府要透明彻查是什么时候？
-when was the last time the US government wanted to conduct a transparent and thorough investigation?
-伊拉克！萨达姆！要彻查
-For Iraq！ Saddam！ U.S did a thorough investigation
-过一段时间你听啊，一定是联合国
-After a while you will see, it must be the United Nations
-就像当年对萨达姆一样
-It’s just like when we treated Saddam Hussein
-联合国会通过一个决议，
-The United Nations needs pass a resolution
-美国都是按程序走，
-the United States will go through a procedure
-彻查病毒来源
-to investigate the origin of the virus thoroughly
-先理后兵，美国都这样，
-The U.S used to tell you the reason, then they dispatch their troop
-伊拉克，萨达姆这个也是一样
-It’s the same with Iraq and Saddam Hussein
-先给萨达姆说，我们的情报说，
-Firstly, they tell Saddam that our intelligence says that
-你这里有研制大规模伤性武器
-you have developed weapons of mass destruction
-我们要求彻查
-We request a thorough investigation
-联合国也通过决议彻查
-The United Nations also passed a resolution to conduct a thorough investigation
-然后给最后通牒三次
-Then give an ultimatum three times
-三次不干，小布什马上召开记者发布会。
-After three quits, Bush Jr. immediately held a press conference
-现通知萨达姆24小时之内离开，
-Saddam was now notified to leave within 24 hours
-让联会国去彻查，
-so that the United Nations will conduct a thorough investigation
-因为他们研制大规模杀伤性武器
-because they developed weapons of mass destruction
-你看看，商务部说
-You see, the U.S. Department of Commerce said that
-中共研究大规模杀伤性武器
-the CCP researched weapons of mass destruction
-你觉得我们说的还是危言耸听吗？
-Do you think what we are talking about is still alarmist?
+编辑 НастяApfel(娜斯佳)    上传 星河
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片10-5.png)
+一、新中国联邦新闻
+
+1.“路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=LDYUx1-ajX0)、[晚间](https://www.youtube.com/watch?v=NcLDzsmKhBU)）:
+
+Ⅰ. 《2021年战略竞争法》是由两党联合推出的针对中共且决定美国未来方向的法案，该法案明确要求军情部门要公开与中共病毒有关的所有详细信息，这使得该法案成为一份灭共法案。这份文件更像一份美国政府的爆料提纲，从罗列的项目可以很清楚地看到美国军情部门已经掌握了中共病毒的所有情报信息。
+
+Ⅱ. 最新报道称美国两党联合提出的《2021年战略竞争法》将走快速审议通道，一旦通过，将成为正式法案，届时所有调查中共病毒信息的行为都具有强制性与合法性，美国甚至有权要求中共配合调查。
+
+III. 网易新闻网4月9日发表一篇《刘和平：中美能避免恶性竞争走向良性竞争吗？》的评论文章，刘和平认为《2021年战略竞争法》在某种程度上意味着中美新一轮的世纪性战略竞争已经正式拉开了帷幕，美国国会把跟中共国的战略竞争正式上升到法律与制度的层面。
+
+2. 中共驻美国大使崔天凯在星期六的录音讲话中表示，双方应发扬乒乓外交的精神，谋求共同立场，呼吁两国以历史为指导，解决今天的争端。这显然是想缓解两国之间日益紧张的局势。
+
+3. 周六，中共疾控中心主任高福在位于中国西南成都市的一次会议上表示，中共疫苗”有效率并不高”。
+
+4. 菲律宾国防部长德芬·洛伦扎纳和美国国防部长劳埃德·奥斯汀三世周日讨论了南中国海的局势，表示希望恢复去年被取消的两国“巴利卡丹”联合军演。
+
+5. 中共网络空间管理局（CAC）的一个部门周五发布通知说，开通了一条举报热线，举报网上诋毁执政的共产党及其历史的言论，声称在今年7月党的100周年纪念日之前打击 “历史虚无主义者”。
+
+6. 在与东拉达克剩余地区进行的最新一轮中印军事脱离接触谈判中没有取得进展。中共军方声称，印度应该珍惜边境地区紧张局势降级和降温的”当前积极趋势”。知情人士周六在新德里表示，中共代表团以”有预谋的心态”抵达会谈。
+
+7. 澳大利亚一些顶尖大学已经聘请了一位中共国问题专家来检测外国干涉的风险，其中包括对至少一所院校的学者进行审计，看看他们是否有秘密的第二份工作。悉尼、新南威尔士、蒙纳士和昆士兰州的大学都通过咨询公司McGrathNicol聘请了前记者和政府顾问约翰·加诺特（johngarnaut），此举旨在向联邦政府保证，他们正在认真对待这一问题。
+
+8. 缅甸政治犯援助协会（AAPP）监察组和一家国内新闻机构说，缅甸安全部队周五向仰光附近一个城镇的抗议者发射了步枪手榴弹，造成80多人死亡。“这就像种族灭绝，” 该新闻媒体援引一位名叫叶赫图特（Ye Htut）的抗议组织者的话说，“他们在向每一个影子射击。”
+
+9. 4月8日，中共国家粮食和物资储备局副局长黄炜在国务院新闻办公室举办的国务院政策例行吹风会上宣布，经过修订后的《粮食流通管理条例》将自2021年4月15日起施行。令人关注的是，在新修订的条例中，“粮食安全党政同责”第一次在行政法规中得以明确规定。
+
+10. 吉尔吉斯斯坦外交部领事服务司副司长巴赫季亚尔·沙基罗夫4月1日去世,此前沙基罗夫首批次注射了中共疫苗。
+
+二、世界新闻
+
+1. 美国前总统川普将于周六晚上在共和党全国委员会的一次重要聚会上发表讲话，预计他将表示，如果共和党人坚持”美国第一”的议程，共和党将在2022年重新赢得国会，并在2024年夺回白宫。
+
+2. 德国报纸《明镜周刊》周六援引欧盟贸易主管瓦尔蒂斯·东布罗夫斯基斯（Valdis Dombrovskis）的话说，欧盟已经提议它和美国暂停对数十亿美元进口商品征收六个月的关税。
+
+3. 华盛顿大学健康指标与评估研究所（IHME）的一个模型预测，到今年8月1日，美国将约有618,523人死于冠状病毒，即使95%的美国人出门佩戴口罩，死亡人数也将会达到604413人。
+
+4. 日本农林水产省4月9日公布了禁止出境携带的1975个品种的种子，若违反规定，将对个人处以10年以下徒刑或罚款低于1000万日元（约合人民币60万元）。
 
 0
