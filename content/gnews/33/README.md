@@ -1,60 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共挑战SWIFT美元支付系统相当于找死
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1078695/)
+## 【世事解评】狠捅马云，剑指江家，习近平殊死一搏——浅析重罚阿里巴巴背后深层原因
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1078775/)
 
-**简述：在2021年4月7日的盖特视频中，郭先生分析中共挑战SWIFT系统是自己作死。人民币国际交易系统的全球交易额只占国际市场的2%，但是中共却想以此挑战美元国际支付系统，虽然中共国每年的粮食进口和出口产业都离了SWIFT系统不能活。他还透露美国只有灭共，美国经济才能重回强大，会不惜一切代价动用SWIFT、比特币、世界银行、IMF货币组织、世界贸易组织，全面对中共开战。也当然不会有美景冬奥会了。**
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210407-getter1.srt.txt)
-**中共挑战****SWIFT****美元支付系统相当于找死**
+作者：纽约香草山农场  草根儿老炮
 
-**CCP Challenging SWIFT Is Equivalent to Committing A Suicide**
 
-你说，全世界SWIFT，也就是美元支付系统，这个支付系统在全世界大家知道每年来来往往将近上百万亿美元交易，上百万亿美元。共产党要挑战SWIFT，结果整了一个CIPS，就是所谓的人民币的国际支付系统，发动了几十个国家，上百个国家，非洲啊，是吧？俄罗斯啊，东欧啊……然后自己做自己，就这么做。一年做了3万多笔，3万多笔还是300多万笔我忘了，加在一起全年3亿多美元。SWIFT一天做300万甚至达到800万笔，一天做多少呢？4万亿或者3万亿美元。过去折腾了几年了，CIPS人民币的国际货币交易系统在全世界占2%，全世界占2%。然后呢要挑战SWIFT。找死呢吧？找死呢吧！
 
-You know about the SWIFT (Society for Worldwide Interbank Financial Telecommunication) system, which is a network tracking transactions in U.S. dollars. You all know that this system handles transactions in the order of trillions of dollars per year. Now the CCP is trying to challenge the SWIFT system and has launched the CIPS system (Cross-Border Inter-Bank Payments System), a so-called RMB international payment system. The CCP has mobilized about a hundred countries, including African countries, Russia, and Eastern Europe. Then they operate the system within themselves. But there are only approximately 30,000 transactions through the CIPS system a year. I am not so sure whether it is 30 thousand or 3 million transactions. Anyway, the total amount is about 300 million U.S. dollars per year. In comparison, the SWIFT system handles 3 million to even 8 million transactions per day. How much money in total per day? Four trillion or 3 trillion U.S. dollars per day. The CIPS RMB international transaction system has been around for a few years already, but it accounts for only 2% of the global market share. Nevertheless, the CCP still wants to challenge the SWIFT system. Does the CCP want to commit a suicide? They are arranging their own demise.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-这还不说，跟中国人民息息有关的（是）中国人买粮食，中国一年最低买5亿吨（粮食），像去年（的情况）到现在要买8亿吨甚至9亿吨（粮食）。（如果）不买这些粮食中国人就得饿死人，这是一定是这样的。它（共产党）买粮食要通过什么？阿姆斯特丹有SWIFT交易中心，纽约有SWIFT交易中心，比利时有SWIFT交易中心，总部在比利时，SWIFT。（因为）也逃税啊，是吧？
 
-In addition, China’s food importation is an issue that affects Chinese people directly. China must buy at least 500 million tons of grain per year. In a dire situation like last year, China has to import as much as 800 million or even 900 million tons of grain. If they do not import this much food, Chinese people will die due to the lack of food. It cannot be otherwise. How does the CCP complete its transactions for food purchases? There is a SWIFT trading center in Amsterdam, one in New York and one in Belgium. The headquarter is in Belgium for the sake of tax evasion, right?
 
-你动任何一分钱SWIFT都知道。这是真正的沼泽地大佬：SWIFT，还有美国的美联储。世界上国际三大机构：WTO国际贸易（组织），世界银行美国人说了算，IMF世界货币组织（是）一个欧洲人说了算，世界国际组织这三大机构，再加上SWIFT。你去想一想兄弟姐妹们，共产党挑战它（能）有机会吗？
+说到这个周末国内最重磅的新闻，当然要属马云的阿里巴巴被处罚！4月10日（周六）上午，《新华社》发布消息：国家市场监管总局根据反垄断法，对阿里巴巴集团利用市场支配地位实施“二选一”行为，作出行政处罚的决定，责令其停止违法行为，并处以罚款182.28亿元。
 
-The SWIFT system tracks every penny of U.S. Dollar transaction. The real “swamp” tycoons are  SWIFT and the U.S. Federal Reserve. There are three major international organizations in the world: the WTO (World Trade Organization), the World Bank controlled by Americans, and the IMF (International Monetary Fund) by Europeans. Think about these three major international organizations and the SWIFT system, brothers and sisters. Does the CCP have a chance to challenge them?
+![]()![](https://static01.nyt.com/images/2019/06/14/world/14alibaba-1/merlin_154760592_e4d28db9-006d-42b1-b9d9-f4c68f2c38a3-master1050.jpg)图片来源：ALY SONG/REUTERS
 
-8亿吨的粮食不拿美金买拿什么买，啊？拿啥买？关键是最夸张的（共产党）一年的出口20万亿人民币，大概4万亿美元，大概每年出口4万亿美元，所有的（加一起）啊。那么这些是多少钱呢，战友们知道不？相当于6亿人口，（这6亿人）所有人靠这活着。如果1.8亿到2亿人的就业，按一家两三口人（算），就是5、6亿人靠这活着。你（共产党）这个要整不成，这一、二十万亿人民币（的出口量）就死球蛋了，你拿啥挑战美国？所以共产党它就（是在）作死呢，跟着俄罗斯要搞一个所谓的支付系统。俄罗斯搞支付系统一年搞下来多少钱知道不？6亿美元。丢死人了吧？！
+几乎同时，《人民日报》发表评论文章：“推动平台经济规范健康持续发展”。该文称，“（对阿里巴巴的）处罚体现了依法治国的基本要求，于法有据，于理应当”，并强调这一举措“促进公平竞争，反对垄断，防止资本无序扩张”。针对阿里巴巴的处罚，中共两家官方媒体同时发文，令人咋舌，同时也让人深感兹事体大、非同寻常！而在《新华社》发布的处罚消息中居然“晒出”，阿里巴巴的注册地址位于开曼群岛。这一信息耐人寻味，亦不禁让人浮想联翩！毕竟，稍有金融常识的人都知道，注册地位于开曼群岛的就是离岸公司。而注册离岸公司表面上是为避税，实际则是为了方便洗钱、藏钱和转移资产。
 
-In what currency could the CCP pay for the 800 million tons of grain if it is not in U.S. dollars? In what currency can the CCP pay for it? The most absurd thing is that the CCP’s exports are about 20 trillion yuan a year. That is equivalent to 4 trillion U.S. dollars. So, Chinese exports are about 4 trillion U.S. dollars in total a year. What does that mean, my fellow fighters? It is like 600 million people relying on this to survive. Let’s assume 180 million to 200 million workers rely on these jobs, and each of them has two or three family members. That would mean 500 to 600 million people live on these exports. If the CCP failed to do 10 to 20 trillion yuan of exports every year, it would be difficult for them to survive. So how can they challenge the U.S.? It’s really committing a suicide. They intend to create a payment system together with Russia. Do you know the value of all the transactions that the Russia’s system has handled in one year? The answer is $600 million U.S. dollars, which is too embarrassing, right?
+对中共政商关系圈稍微了解的人应该清楚，阿里巴巴背后真正的老板是江家，且其股东中还涉及到众多中共权贵家族——马云只不过是服务他们的“白手套”和“前台掌柜”。自去年11月初，马云先是被约谈；随后，“蚂蚁金服”上市被叫停；同年12月底，监管部门对阿里巴巴立案调查；到今年4月10日，监管总局重罚阿里巴巴——从这一系列的事件和行动看，习近平当局正在对这一被江家控制的互联网金融“巨无霸”进行地毯式地排查和整肃。其目的非常明确——抓住对方金融的“七寸”，用来在政治上狠狠打击以江家为首的“上海帮”。
 
-我想告诉大家什么，今天？共产党[面临的]是：如果很快世界银行剔除中共，IMF世界货币组织剔除中共，世界贸易组织剔除中共，支付系统美元SWIFT剔除中共，然后给共产党更加致命一击[的是]比特币被列为全世界的犯罪货币或比特币被美国所接受成为合法流通货币但是要接受这个条件 – 就是透明化。共产党高官的洗钱基本完球蛋！
+郭先生在2月17日的直播中谈到，“蚂蚁金服”上市绝非为了圈钱那么简单，其真正目的是要把自己打造成一个金融“巨无霸”，试图控制和影响中（共）国金融。而今年又是“南普陀计划”的收割年——“上海帮”一直在处心积虑地拱倒习，换上自己人。因此，习目前在政治、经济上，可谓左支右绌、进退维谷。同时在国际上，习采取的“疯狗”外交已然引起世界公愤；更有中共的反人类及种族灭绝罪被“板上钉钉”；再加上中共病毒被追责已经大势所趋！这一切都使得党内纷纷议论，或可抛出习和其他几个人“顶雷”，承担中共全部罪责。
 
-What do I want to tell everyone today? What situation will the CCP be facing if the World Bank kicks it out soon, the IMF kicks it out, the WTO kicks it out, and the SWIFT system kicks it out? And then a fatal strike to the CCP would be the Bitcoin being designated as an international criminal cryptocurrency or alternatively, being accepted by the U.S. as a legal currency, but with the condition that it must go transparent. If that happens, the money laundering scheme of the CCP’s high-ranking officials will be basically over.
+如此内忧外患，必然让习心急如焚、寝食难安。然而“攘外必先安内”，那么铲除党内异己、保住“龙位”、让自己安全乃是习的第一要务！首当其冲的当然是和“江派”之间你死我活的党内终极搏斗。由于江家势力遍布党内，因此“上海帮”才是中（共）国政治真正的“沼泽地”。如果真有什么风吹草动，党内多数人肯定会站到江家那边。有鉴于此，江家势力之于习如骨鲠在喉，不除不快、不除不得安宁！
 
-那就不是脱钩啦，那就是直接把钩（子）喂到了共产党这个愚蠢的猪的嗓子里边儿去啦！人家是钓鱼，这是钓猪！钓中共（这头）猪！所以说兄弟姐妹们，到那时候你们再看这个世界。所以现在你看这个世界多疯狂？
+以习这样政治亡命徒的性格，当然要大动干戈、主动出击，铲除心腹大患。于是，他通过打压和整肃“蚂蚁金服”及阿里巴巴，隔山打牛、敲山震虎，意图剑指江派老巢。其另外一个重要用意是，通过狠狠打击江派势力，以震慑党内其他人——不要“脚踩两条船”当“两面人”。这一举措也同时警告下面的人要保持政治判断力、政治领悟力、政治执行力，以及对领袖绝对的忠诚。
 
-That is not just decoupling. It would be like pushing the hook directly into the throat of the stupid pig, the CCP pig. People typically fish. Yet, this is fishing for a pig, fishing the CCP pig. So, brothers and sisters, let us wait and see. So you see how crazy the world is right now.
+郭先生说，罚阿里巴巴182亿只是办案费用，后面的故事还长着呢——只有出现江志城的名字才是真正办案的开始。看来“习江”斗的真正精彩大戏还没有拉开帷幕。咱们屏住呼吸、翘首以待，且看这场中共党内的“终极之战”！
 
-美国内部所有的激励措施都用完，美元一定完球蛋。（美国）没有任何机会和余地阻止美元和美元经济下滑。共产党是垂死挣扎。只有灭共，美国经济才能重回强大，（但）也得（度得）过这个震荡期，这就是事实。（大家）坐好，坐好家里的椅子吧，兄弟姐妹们，没事儿把你家椅子多钉几根儿钉啊，（因为）这个世界现在很疯狂。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
-When the U.S. is running out all its stimulus plans, the U.S. dollar is bound to collapse. There is no chance for it to stop the U.S. dollars from declining or the downturn of the U.S. economy. The CCP is putting up a last-ditch struggle. Only by taking down the CCP can the U.S. economy regain its strength. Even if they do this, they must still go through a turbulent period. That is a fact. Everybody should sit still in your chair, brothers and sisters. When you have time, you’d better put a few more nails in your chair to make it more stable because the world is so crazy right now.
+编辑/校对/发稿：Irene木木
 
-当昨天、前天了解到美国要采取这些行动的时候，全面调查病毒必须调查真相，告诉世界谁不配合谁就是我的敌人，然后不惜一切代价动用SWIFT、比特币、世界银行、IMF货币组织、世界这个贸易组织，全面对中共开战。当然没有冬季奥运会了，啥概念，兄弟姐妹们？
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
-I learned yesterday and the day before that the U.S. will take some actions. The U.S. will conduct a comprehensive investigation of the origin of the virus to find out the truth. Whoever does not cooperate will be treated as an enemy. Then the U.S. will initiate full-scale warfare against the CCP via the SWIFT, Bitcoin, the World Bank, the IMF, and the WTO. Of course, there will be no [Beijing] Winter Olympics. What does that mean, brothers and sisters?
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/606dba8bdbc8001854a63a56](https://gtv.org/getter/606dba8bdbc8001854a63a56) (00:22-04:01, 07:43-09:54)
-鸣谢：
-[1] 感谢Antsee-GTV、 TING GUO 提供中文文本于 [https://gnews.org/zh-hans/1062405/](https://gnews.org/zh-hans/1062405/)
-[2] 感谢YY、Antsee-GTV、Liberte 提供英文翻译于 [https://gnews.org/1070330/](https://gnews.org/1070330/)
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
 
-* * *
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-整理校对 & 新闻撰写：【7PawBear】字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-+1
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
+0
