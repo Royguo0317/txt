@@ -1,37 +1,127 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统无私的为国家奉献的同时创造了失去最多净资产的记录
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1088321/)
+## 【路德时评摘要】4.11.2021PM-中共宣传美航母遇见辽宁号灰溜溜离开
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1089819/)
 
-【日本东京方舟农场】  翻译：Jay Cheung     校对：miumiu law
+视频剪辑 : Ablec(文A)
+中听校： 洛杉矶天使农场 – 烟波浩淼
+英翻译：洛杉矶天使农场 –飞利普
+英校对：洛杉矶天使农场 – 烟波浩淼
+字幕+视频制作：洛杉矶天使农场 – 小腾腾说
 
-据《网关专家》近期报道，《福布斯》（Forbes）杂志公布了全球富豪榜，川普总统仍然在榜。然而在他担任总统期间，川普总统的净资产减少了10亿美元。在世界历史上绝无可能有哪个人服务国家而让自己的财产损失如此之多。
+**路德:**
+《环球新军事》说，
+The CCP’s Global New Military news said
+中共国航母罕见出动
+that the dispatch of Chinese aircraft carrier is rarely seen
 
-《福布斯》杂志的丹·亚历山大（Dan Alexander）报道说，自从他于2017年1月进入白宫到几个月前离任，唐纳德·川普（Donald Trump）的财富减少了近三分之一，从35亿美元降到24亿美元。并且还说，在他担任总统期间，川普在富豪榜的排名下降了300位。
+美国航母一看就灰溜溜离开
+but the US aircraft carrier left dejectedly as soon as seeing it
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/2AFB3F41-7D13-49DE-9DEE-779DE12F08BD.jpeg)
+看看它怎么对内洗脑忽悠的
+Let’s see how this report is brainwashing and deceptive to its readers
 
-这使川普总统成为世界历史上最慷慨最无私的人，因服务于国家而失去最多净资产。
+它说中共舰队将美军给堵住了
+It said that the US army had been blocked by the CCP’s fleet
 
-但是可悲的是，亚历山大是福布斯杂志许多声名狼藉的记者中的其中一位。该出版物曾经是很保守的，在过去几年随着其他媒体一道走入了社会黑暗面。
+辽宁舰旁边的055型导弹驱逐舰，南昌舰
+Either 055 missile destroyer or Nanchang warship beside the Liaoning aircraft carrier
 
-亚历山大试图说川普总统的净资产减少是由于商业决策不当造成的（他每月赚几千美元却来批评一位亿万富翁）。
+它绝对是一座移动的火力堡垒
+It is absolutely a moving firepower fortress
 
-亚历山大的报道说，每个投资者在某个时间点都会因为持有资产太久而自责。然而或许没有任何人像川普那样做出如此巨大的误判。川普总统拒绝上任时剥离其投资，在担任总统的几年里一直深陷道德困境，同时也错过了在他自己推动的市场繁荣中获利的机会。
+其超过万吨的身躯，综合作战能力
+its body weighted more than 10K tons with an integrative combat capability
 
-亚历山大的说法显得他是多么彻底的丧失理智，根本不懂真正的原因，以及没有一点历史知识。川普总统绝不能在他担任总统时投资市场。如果他担任总统时投资市场，在奥巴马几年糟糕的经济发展之后，川普总统为重振经济而采取的任何举动都会遭到批评，都会受到像亚历山大这样的媒体人士批评犯规。
+已超过美军提康德罗加级导弹巡逻舰
+And has surpassed the US Ticonderoga missile patrol ship
 
-川普在担任总统期间放弃了所有的交易，并且放弃了总统年薪。他为防止人们说他有不诚实的行为作出很多努力，然而仍然有媒体造谣说他在担任总统期间赚钱了。
+美军因为惧怕这个导弹驱逐舰所以灰溜溜地离开
+The US military left dejectedly is because of the fear of this missile destroyer
 
-不像奥巴马、拜登和克林顿夫妇，他们在担任公职期间赚取了几百万美元，川普总统的行为很光荣。可以说，在我们的人生中，他比任何政治人物对国家的贡献都多，却遭受像亚历山大这样的一群垃圾根据自己的喜好来抱怨他。
+忽悠习神的。为什么我们今天说这个？
+It’s a hoax to Xi God. Why do we mention this today？
 
-川普总统显然为国家做了贡献，为国家奉献了自己，也为这个国家带来比任何政治家都要多的（抱怨总统的）“垃圾”。
+这篇就是写给中南坑习神看的
+The report is written to Xi God in Zhongnan hai
 
-评：毋庸置疑，唐纳德·川普总统无疑是美国历史上最具影响力的总统之一，尤其是他在当今中共依靠腐败和不光彩的手段控制的国际舆论圈中，彻底看清楚了中共的“假”“骗”“偷”等伎俩，彻底掀起国际反共大潮，才不至于让这个世界彻底被中共操控，也给中国人民带来希望。历史将会给予川普总统最伟大的定论。
+就跟当年写给那个慈禧太后
+Just like the report written to Empress Dowager Cixi back then
 
-注：本文仅代表译者观点
+你看被我们义和团给吓着了吧。美国是纸老虎
+You see, they are scared by CCP’s “Boxers”. The America is a paper tiger
 
-原文链接：[https://www.thegatewaypundit.com/2021/04/president-trump-sets-record-giving-net-worth-selflessly-serving-country/?ff\_source=Email&ff\_medium=the-gateway-pundit&ff\_campaign=dailyam&ff\_content=daily](https://www.thegatewaypundit.com/2021/04/president-trump-sets-record-giving-net-worth-selflessly-serving-country/?ff_source=Email&amp;ff_medium=the-gateway-pundit&amp;ff_campaign=dailyam&amp;ff_content=daily)
+习神看了以后很开心
+Xi God was very happy after reading it
+
+你看，（美军舰）跟我们一对就跑了
+You see, (US warship) ran away once encounter with CCP’s fleet
+
+他知道航母肯定搞不过别人
+The CCP knew that their aircraft carrier would not be able to defeat over others
+
+所以就说因为我们有导弹驱逐舰，所以美军就害怕了
+because CCP had missile destroyer, so the report said that the US army was afraid then.
+
+自我意淫。我们从逻辑上来看，中共的导弹驱逐舰有多落后?
+Self-daydream. Let’s look logically how backward the CCP’s missile destroyer is?
+
+它觉得就是因为一万吨，当然了
+The CCP thought because the displacement of the destroyer is 10K tons. Of course
+
+这个东西一定是对中南坑习神还有中共统治下的14亿老百姓
+this report is certainly shown for Xi God of Zhongnan Hai and 1.4 billion people under the rule of CCP
+
+它是有洗脑作用的
+it has the brainwashing effect
+
+它现在就是介于驱逐舰和巡洋舰之间搞了一个大型的驱逐舰
+At present, the CCP just built a larger destroyer between the current destroyer and the cruiser
+
+中共的创新就这个概念，比如一辆车本来是帕萨特的底盘
+This is CCP’s concept of innovation. Like a car has a Passat chassis originally
+
+然后用帕萨特的底盘改装成一个越野车
+then it is refitted into an SUV with Passat chassis.
+
+你看这就是我们的创新能力
+You see, this is CCP’s innovation capability
+
+我们的创新能力就体现在这里
+Its innovation capability is embodied here
+
+这个驱逐舰充分的体系(现)了中共所谓我们就是善于改装
+This destroyer fully reflects what the CCP so-called “We are good at refitting”
+
+我直接把驱逐舰变成巡洋舰
+They directly turned the destroyer into a cruiser
+
+变大，装的导弹多了，这就是我们的创新
+Make it bigger and carry more missiles. This is their innovation
+
+这就是中共内部自我意淫的
+This is what the CCP’s self-daydream is
+
+真正美国的创新是从无到有
+The American real innovation starts from scratch
+
+中共的所谓创新，就像华为手机
+The so-called innovation of the CCP is like Huawei’s mobile phone
+
+换个壳，漂亮一点，换个摄像头，这就叫创新
+Redesign a case, nicer looking and replace a better camera. This is called innovation
+
+用德国最好的赛思(蔡司)的摄像头，这就叫创新
+Equipped with German’s best Zeiss lens, this is called innovation
+
+他们永远都停留在这个意义上
+They will always stay in this sense
+
+刚刚博博士给我发私信，他说（中共）胡扯
+Just now Dr. Bo sent me a text message. He said (CCP is) bullshit
+
+055根本没有去南海，知道吧
+You know it , the 055 missile destroyer didn’t go to the South China Sea at all
 
 0

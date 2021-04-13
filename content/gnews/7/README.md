@@ -1,66 +1,78 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共精心布局多年&nbsp; 收买议员里应外合&nbsp; 抽走黄金打垮美元
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1090422/)
+## 2021/03/31 班农专访(6)：CCP通过网络攻击干预外国选举
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1090490/)
 
-**简述：郭先生在2021年4月5日的GTV直播中警告美国人，中共从2006年就开始精心布局，通过收买廉价的美国议员里应外合，耸动各国从美国抽走黄金储备，来达到击垮美元的目的。从最近各国媒体和美国议会的动向来看，中共已经全面开始行动！**
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210405-live-p1.srt.txt)
-**中共精心布局多年****  ****收买议员里应外合****  ****抽走黄金打垮美元**
+视频字幕：雨中漫步 | 听写/翻译：Cow | 校对：Wade | 简评/文字整理/编辑：胖丁 | Page：青山
 
-**The CCP Has Been Working on Moving Gold Reserves Out of the US to Defeat US Dollars for Years**
+[!\[\]()!\[\](https://spark.adobe.com/page/VI9gf5KAXPxK6/images/8fdfecad-462e-4767-ba81-26c3415b17a6.jpg?asset_id=879eee46-4ac7-49a5-9d74-2b1d0c901e24&amp;img_etag=%2290b1ba943af6d2138005a136f0f66138%22&amp;size=1024)](https://spark.adobe.com/page/VI9gf5KAXPxK6/images/8fdfecad-462e-4767-ba81-26c3415b17a6.jpg?asset_id=879eee46-4ac7-49a5-9d74-2b1d0c901e24&amp;img_etag=%2290b1ba943af6d2138005a136f0f66138%22&amp;size=1024)
 
-最近看见了吗？全世界媒体在上周开始起全面报道：“要开始，是时候啦！受够啦！Enough！Enough！我们要到美国看看我们的黄金在不在！”
+**简评：**
 
-Have you seen it lately? Since last week, the world’s media has been all over this matter – “Let’s do it! It’s about the time!” “Enough! Enough!” “We need to see if our gold is still in the United States!”
+CCP不止一次的通过网络攻击干预外国选举，中共也是种族骚乱（黑命贵）的幕后黑手。没有什么是CCP不敢干的。中共统治中国70年间，导致9千万成年人非正常死亡，4亿婴儿被堕胎，其中绝大多数是女婴，这是史无前例的谋杀。中共是一个利用西方科技和资本控制中国老百姓的杀人犯罪组织。这是当今世界的核心问题，而这个问题不会自行解决。中共现在已经将它的罪恶通过病毒传到了全世界，而西方世界为了经济利益还在维护中共。
 
-8000吨也好9000吨也好，美国储放的黄金，我真的不相信真的在那儿。从过去布雷森系统1973年之后到现在这个黄金，以货币本位的黄金，我告诉你未来黄金未来一定值大钱，包括银，黄金、银一定不是1800，一定超过一万块美金，按今天的价格一定超过一万，只是时间的问题。所有的信用纸币一定崩塌！一定崩塌！就是在什么时间、什么方式的问题。
+[GTV视频链接](https://gtv.org/video/id=606805fadbc8001854a4e839)
 
-I really don’t believe that the gold kept in the U.S. is really there, no matter it is 8,000 tons or 9,000 tons. From the post Bretton Woods System era in 1973 to the present time with currency-based gold, let me tell you, gold will worth big money in the future, and that includes both silver and gold. The price will definitely not be $1800, and will definitely exceed $10,000. Based on today’s price, it will definitely be over $10,000, just a matter of time. All credit-based currencies will collapse! Definitely! It’s only a matter of when and how.
 
-那么在美国这些黄金要没有了，那个科恩他说的是对的。科恩不可能乱讲话一点根据没有，他再好色他不能乱讲话，拉加德当了IMF主席以后，最重要的当时就是被警告，你敢提一次这个事情你也完蛋。原来一个日本的，好像一个日本裔的人在IMF的货币组织也想提，最后很快就辞职了，这是改变世界货币命运的。
 
-So, if the gold kept in the United States is gone… What Kahn (note: Dominique Strauss-Kahn, Former President of IMF) has said is right. Kahn cannot say something totally baseless, no matter how lustful he is, he cannot say something like this baselessly. After Lagarde (Christine Madeleine Odette Lagarde) became the IMF President, the most important thing happened to her at that time was being warned that if you dare to mention this thing for once, your career will be over. Once a Japanese descent who was in the IMF attempted to bring this up, and he ended up with being quickly resigned, because this is something that can change the fate of the world’s currencies.
+**视频字幕：**
 
-美国会不会接受储存黄金？我告诉你共产党还有更厉害的一招儿，共产党在美国所有的行贿的议员。我告诉大家一个某国元首，他说：“Miles，共产党很聪明啊，说让我到美国去搞几个所谓的国会议员作为朋友。”我说：“为什么呀？”他说：“未来要影响力呀。”他说：“他们为什么要对司法委员会、金融委员会、情报委员会、能源委员会那么关键，” 他说，“特别对金融委员会，然后要有发起议案的议员。”他说：“实际很少钱，捐个几万美元就行了，就搞定一个。他们为什么要这么干？”
+CCP被怀疑通过网络攻击西澳洲议会的州选举，这不是第一次CCP干预外国的选举. 你认为操纵选举是CCP网络攻击的一个首要目的吗？
 
-So will the United States accept the fact that the CCP’s keeping the gold? Let me tell you that the CCP has a more ruthless tactic, that is bribing Congressmen of the United States. I can tell you that a chief of a certain country once said to me, “Miles, the CCP is very smart. They wanted me to go to the U.S. to make friends with several so-called members of the Congress.” I asked, “Why?” “The CCP wants to have influence in the U.S. in the future,” he said, “and that’s why they see the Judiciary Committee, the Finance Committee, the Intelligence Committee, the Energy Committee [of the Congress] as so critical to them.” He continued, “Especially the Finance Committee. And then they need to have congressmen who can introduce the bill.” He said, “These kinds of things actually do not need a lot of money. Just a few tens of thousands of dollars of donation will work. Why do they want to do this?”
+是的，这就是为什么我讨论网络超限战，Michael Lindel 今天会来我的《作战室》。
 
-我当时我的眼睛就亮了，“哎呀，”我说，“共产党这所有的准备是和未来就是他们的要以钱灭美的时候、要查美国黄金的时候，美国议员必须得有呼应。”我当时就想到这一点了，“哎呀，”我说，“这事儿有意思，哎呀，”我说，“你要给我讲讲这个细节。”啊，他给我大致讲了讲。我知道老共已经深深地植根于准备这场战争。
+枕头哥Michael Lindel 是爱国者，人们说他是和文贵一样的疯子。说他很疯狂，今天他会来。
 
-My eyes lit up immediately. “Gee,” I said, “all the CCP’s preparations were in line with their plan: in the future when they are ready to destroy the U.S. with money and ready to launch investigations into the gold reserves in the U.S., they need to have American congressmen to echo.” I thought of that at that very moment. “Oh, my!” I said, “That’s interesting.” I asked him, “You need to let me know more details about this.” He then told me briefly, and then I knew that the CCP was already preparing for this war insidiously and secretly.
+他制作了一部叫《绝对真相》的电影，时长2小时，揭晓了绝对的干预。
 
-最近美国最起码超过两到三个议员要提起，自己人提起核查美国给外国储备的黄金，包括美国黄金。
+电影展示了中共干预2020年的美国总统大选， 我现在还没有看到证据，但是他讲述的就是投票机、数据以及所有这些操纵。并且他说他已经得到了关于“多米尼”投票机的证据。所以我们一定要看看。
 
-Recently, at least two or three U.S. Congressmen are proposing to have the U.S. to voluntarily verify its gold reserves for foreign countries, including America’s own gold reserves as well.
+我认为这部电影非常重要。中共是种族骚乱（黑命贵）的幕后黑手，也是操控选举的幕后黑手。
 
-所以说，我这过去这一两周我一看，共产党出手了，出手啦！
+西澳洲是一个最有力的证据。没有什么是CCP不敢做的。
 
-So, based on what I observed the last couple of weeks, I know that the CCP has made the move. They have started to take actions!
+人们说，班农你总是说CCP很坏、他们很糟糕。我说，看看他们怎样对待中国人。看他们怎样对待中国人吧！
 
-让拜登干的事儿基本上拜登都干完了，应付差不多了，呵呵，该谈的也谈啦，是吧？新疆大屠杀属于文化问题、文化冲突；然后香港也没采取惩罚；冠状病毒现在不准谈，不是共产党的。你看基本都做完了。
+9千万中国成年人要么饿死、要么被投进监狱或者被处死
 
-Biden has basically done all the things that he was asked to do [by the CCP], and has said everything that he was supposed to say, right? The Xinjiang massacre is a cultural issue or a cultural conflict; there has been no punishment for what the CCP did to Hong Kong; and the coronavirus is not allowed to be talked about and it has nothing to do with the CCP. You see, Biden has basically done all of that.
+70年间9千万中国人丧生。还有4亿婴儿被强迫堕胎，特别是女婴。
 
-然后全世界铺天盖地在上周，所有这些国家、各大媒体包括拉脱维亚、匈牙利、意大利的报纸都在说该到美国去查黄金了，该把美金拿回来了，关键问题[是]在上周就有七八个国家把大量的黄金运回了国家，包括日本啊，包括日本。恐怖不？
+有40-80%的堕胎是女婴。在世界的历史中从来没有一个政权如此大量地谋杀、如此对待他自己的人民。
 
-And then last week, this was extensively covered by media all over the world. All these countries and all the mass media, including Latvia, Hungary, Italy’s newspapers were saying that it’s time to go to the U.S. to check our gold reserves, and it is time to take back our gold. The problem is that in the last week there were already seven or eight countries that had shipped a large amount of gold back to their countries, and that included Japan. Japan! Scary, isn’t it?
+这不是他们对外攻击其他国家，虽然那样很坏，但中共更坏，牠们屠杀自己的人民。整个世界就坐在那儿看着。
 
-同时美国几个议员提议要查美国黄金储备。就花几万美元就可以搞定[几个议员]。而这是美国（口误，应为中国）在2006年就开始准备、中共就准备的，最近全开始了。战友去想想，这个结局会是什么？美元崩塌、美国经济崩塌、美国的信用崩塌。
+中国文明是人类历史中最伟大的文明之一，在艺术、写作、文学、宗教、哲学、科学、数学、技术领域的领导者。千年前西方人还住在山洞里的时候就有了中国文明。中国就是一个非常有品味的社会了。
 
-And concurrently, several U.S. congressmen proposed to check the U.S. gold reserves. It only takes tens of thousands of dollars to buy out a congressman. And this is what the CCP has been preparing since 2006, and it has all started recently. Our fellow fighters, think about it, where this will lead to? The collapse of the U.S. dollar, the collapse of the U.S. economy, and the collapse of the credit of the U.S.!
+为什么地球上仅剩的被奴役的主要文明不是在非洲、不是在中东、不是在拉丁美洲那些非常糟糕的地方。那里总体上还有一点点自由，对吧？可是在中国大陆没有一点自由。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=606b0c896e11a756edd89042](https://gtv.org/video/id=606b0c896e11a756edd89042) (1:04:04-1:07:11, 1:07:35-1:08:57)
-鸣谢：感谢湘江之水、Winner为自由而战（文祥）、万物归一、柒号G币、Bruce(文远)、山川异域提供中文文本于 [https://gnews.org/zh-hans/1060164/](https://gnews.org/zh-hans/1060164/)
+老百姓供养的西方机构利用中共这样的杀人机器屠杀百姓，这个世界为何还在袖手旁观？
 
-* * *
+我们今天的核心问题很简单，为什么中华文明被奴役，而西方和其他国家却从中牟利？
 
-*翻译：【rainbow】字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】*
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+维持中共对中国百姓的奴役符合这些人（西方精英）的利益。
 
-+1
+中共会做任何事情来转移人们对此的关注。它会说郭文贵是个坏人，班农是个坏人，博明是坏人，皮特纳瓦罗是坏人，所有这些人都是坏人。
+
+当前世界的核心问题是：奴役中国人民和毁灭中华文明的杀人犯罪组织—-中共，不是合法政府。
+
+中共是一个利用西方科技和资本控制中国百姓的杀人犯罪组织。
+
+这就是当今世界的核心问题。这个问题不会自行解决。 现在，显而易见，它已经将CCP病毒传播到全世界。
+
+现在他们的罪行已经波及到了全世界。世界做了什么呢？顾左右而言他，说：噢，不是，不是，病毒来自千英里之外的蝙蝠洞，魔幻般地出现在了海鲜市场。中共把我们当傻子吗？
+
+这说明中共对西方毫无尊重！牠们利用打杂克这样的走狗公然撒谎。他们制造了一个粗劣的谎言期望人们相信。
+
+猜猜因为什么？因为这样的谎言符合西方精英的经济利益。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/VI9gf5KAXPxK6/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/VI9gf5KAXPxK6/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+
+0
