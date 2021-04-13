@@ -1,62 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 轰动新闻：律师马修·德佩尔诺报告指出密歇根州投票系统的电脑主板嵌入调制解调器芯片
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1085910/)
+## 前加国驻华大使：加政府对中共姿态“丢人且可耻！”
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1086126/)
 
-【日本东京方舟农场】  翻译：Jay Cheung   校对：文小律
+**路仁**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/地瓜土豆的故事.png)
+据《POLITICO》4月12日报道，[小土豆政府威胁哈利法克斯安全论坛不要给台湾颁奖！](https://www.politico.com/news/2021/04/11/trudeau-hailfax-security-forum-taiwan-480722)小土豆联邦政府官员威胁如果该论坛颁奖给台湾总统蔡英文，将撤回对该论坛的资助。文中直接点名，小土豆政府是惧怕中国共产党而做出的这个决定。
 
-据《网关专家》报道，周五律师马修·德佩尔诺（Matthew** **DePerno）在调查选举欺诈的进程中发布了如题的轰动性新闻。
+对此，曾任加拿大驻中共国大使的赵朴（Guy Saint-Jacques）怒斥自由党政府对待中共的态度是“丢人，并且可耻的！” 。他认为加拿大政府完全可以容易地对此事保持沉默，因为这个机构所颁的奖项并不由加拿大联邦政府控制。他呼吁小土豆向拜登政府看齐，至少拜登政府清楚的表达了对中共国的政策，尤其是对台湾的政策。
 
-数月以来提供投票系统电脑的公司声称他们的电脑无法连接互联网。
+另一位前加拿大驻华大使戴维·慕洛尼（David Mulroney）也通过推特指出这个决定是个“国家耻辱”, 他写到：“加拿大的女权主义外交政策却不能容忍这个星球上最勇敢、最有原则和最被严重威胁的女性”。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/David.jpg)
+美国前参议院麦凯恩的女儿梅根也在推特上怒斥：“加拿大政府是一群宽容中共人类灭绝的懦夫！”
 
-在报告中，根据密歇根法庭的文件，德佩尔诺揭露了ES&S DS200投票系统的主板上安装有一款Telit LE910-SV1调制解调器的芯片。
+保守党外交事务议员庄文浩评论说：“小土豆的自由党政府非但不支持台湾，而且还威胁如果论坛继续颁奖的话将撤回资助,这种让批评中共国的声音消失的企图是可耻的，加拿大应该同反对中国共产党侵犯人权和国际法的人站在一起，并为此发声。”
 
-按照帕特里克·科而贝克（Patrick Colbeck）在《Let’s Fix Stuff 》节目中的说法，该芯片使用了威瑞森（Verizon ）的一款商业SIM卡，该卡被特定用于ES&S DS200，便于接入点(APN)配置的设定。
+*参考链接*：
 
-**前任议员****帕特里克·科而贝克说****Telit LE910-SV1****调制解调器的芯片可以做些什么**
+[Ambassadors, opposition denounce ‘shameful’ Liberal posture toward China following Taiwan report](https://nationalpost.com/news/politics/ambassadors-opposition-denounce-shameful-liberal-posture-toward-china-following-taiwan-report)
 
-- 使投票系统设备与选举服务器之间的通信成为可能
-- 被设计用于虚拟私人网络
-- 测试表明，同一SIM卡可以单独使用于无线热点设备，然后这个热点设备可以加入与ES&S投票机相同的接入点（APN）
+* * *
 
-
-**下面是帕特里克·科而贝克更多的精彩发现**
-
-所有人的注意力都关注在选举结果的操纵是通过软件进行的，很少有人关注硬件。恶意软件可以被嵌入到硬件和软件中。马修·德佩尔诺律师对安特里姆郡（Antrim County）就选举欺诈进行调查，以下所列的发现结果如此重要的原因。
-
-**发现了什么？**
-
-- Telit LE910-SV1调制解调器的芯片被安装在ES&S DS200投票机的主板上
-- 芯片使用了威尔森（Verizon）的商业SIM卡，该卡被特定用于ES&S DS200，便于接入点(APN)配置的设定。
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/345F3598-17D5-4615-81E1-3D47504BF5D7.jpeg)安装了Telit LE910-SV1调制解调器芯片的ESS DS200主板
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/E7CB7DC7-D891-4501-8336-4E05C74EAC56.jpeg)
-
-**Telit LE910-SV1****调制解调器芯片可以做什么？**
-
-- 使投票系统设备与选举服务器之间的通信成为可能
-- 被设计用于虚拟私人网络
-- 测试表明，同一SIM卡可以单独使用于无线热点设备，然后这个热点设备可以加入与ES&S投票机相同的接入点（APN）
-
-
-**ES&DS200****使用说明书说明了为什么这个很重要**
-
-- ES&S的选举设备用在密西根州的八个郡：阿尔科纳Alcona，贝Bay，埃米特Emmet，大特拉弗斯Grand Traverse，卡拉马祖Kalamazoo，马科姆Macomb，梅森Mason，罗斯康蒙Roscommon。
-- 它表明计算机可以在没有任何可识别的以太网或外部调制解调器连接的情况下连接到英特网
-- 它证明多米尼（Dominion）投票系统并不是唯一有安全漏洞的电子投票系统
-- 除非撬开机箱才能发现硬件，否则很难检测到这样的硬件
-- 推动严格的硬件认证和软件认证势在必行
-- 有权访问任何SIM卡的任何人都可以对接入点（APN）进行预编程访问。
-- 演示了如何以最小的被检测到的风险，将电子投票系统连接到英特网。
-
-
-评：2020美国总统选举欺诈是不争的事实，更多证据的发现揭露选举被操纵的方式和方法。虽然说拜登已经就任总统，更多证据被发掘出来会不会改变这个结果，译者认为还是有一定的可能性。
-
-注：本文仅代表译者观点
-
-参考链接：[https://www.thegatewaypundit.com/2021/04/explosive-investigators-attorney-deperno-discover-modem-chips-embedded-michigan-voting-system-computer-motherboards/?ff\_source=Email&ff\_medium=the-gateway-pundit&ff\_campaign=dailyam&ff\_content=daily](https://www.thegatewaypundit.com/2021/04/explosive-investigators-attorney-deperno-discover-modem-chips-embedded-michigan-voting-system-computer-motherboards/?ff_source=Email&amp;ff_medium=the-gateway-pundit&amp;ff_campaign=dailyam&amp;ff_content=daily)
+*编辑、发稿 文锦*
 
 0

@@ -1,127 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.11.2021PM-中共宣传美航母遇见辽宁号灰溜溜离开
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1089819/)
+## 各国联合抵制北京冬奥会 日本态度受关注
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1089865/)
 
-视频剪辑 : Ablec(文A)
-中听校： 洛杉矶天使农场 – 烟波浩淼
-英翻译：洛杉矶天使农场 –飞利普
-英校对：洛杉矶天使农场 – 烟波浩淼
-字幕+视频制作：洛杉矶天使农场 – 小腾腾说
+俄罗斯莫斯科喀秋莎农场 奥法
 
-**路德:**
-《环球新军事》说，
-The CCP’s Global New Military news said
-中共国航母罕见出动
-that the dispatch of Chinese aircraft carrier is rarely seen
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/P-15.jpg)8jin.net
+世界正密切关注日本首相菅义伟与美国总统拜登将于16日在美国华盛顿举行的日美首脑会议。这是拜登自从一月上任以来首次举行的外国领导人会议。届时，美国国务院将谈论中共当局迫害维吾尔族从而导致的“种族灭绝”事件，并且会提出与同盟国和友好国家进行“联合抵制”北京冬奥会的可能性。如果容忍中国共产党政府对人权的压制和军事霸权的扩张，将刺激西方国家回忆起在1936年对柏林奥运会的容忍，并在遭受纳粹德国迫害的情况下允许纳粹德国的崛起。
 
-美国航母一看就灰溜溜离开
-but the US aircraft carrier left dejectedly as soon as seeing it
+美国国务院发言人内德·普莱斯（Ned Price）在7日的新闻发布会上说，他将与世界各地的盟友和朋友密切讨论关于参加北京冬季奥运会的问题。 这暗示了抵制北京冬奥会的可能性。
 
-看看它怎么对内洗脑忽悠的
-Let’s see how this report is brainwashing and deceptive to its readers
+普莱斯说：“我们对中共的侵犯人权行为和在新疆维吾尔自治区的种族灭绝表示关注。”“我们最近联合英国，加拿大和欧盟做出了制裁造成新疆暴行的负责人的决定。我们正在努力解决所有共同关切的问题，抵制北京冬奥会也是其中之一。”
 
-它说中共舰队将美军给堵住了
-It said that the US army had been blocked by the CCP’s fleet
+值得注意的是，参加奥运会问题与“压制人权”有着明确的关联。
 
-辽宁舰旁边的055型导弹驱逐舰，南昌舰
-Either 055 missile destroyer or Nanchang warship beside the Liaoning aircraft carrier
+白宫发言人珍·普萨基（Jen Psaki）在7日的新闻发布会上说，“我从未与盟国讨论过联合抵制北京冬奥会”，但是是否参加北京冬奥会取决于与每个国家的讨论。不仅取决于美国还取决于欧盟和英国等国家。她说，像加拿大，澳大利亚和新西兰等支持“自由与民主”的国家已经提出共同抵制北京冬奥会。
 
-它绝对是一座移动的火力堡垒
-It is absolutely a moving firepower fortress
+西方国家依然记得纳粹对犹太人的迫害，并且对1936年允许希特勒（Adolf Hitler）举办柏林奥运会有着痛苦的回忆。基于此，西方在批评中共的种族灭绝的同时很难参加北京冬奥会。
 
-其超过万吨的身躯，综合作战能力
-its body weighted more than 10K tons with an integrative combat capability
+如果西方民主国家团结起来抵制北京冬奥会，情况将完全不同于现在每个国家对中共的松散的围困。即使对政治不感兴趣的人也会认识到他们不能与中共共存。
 
-已超过美军提康德罗加级导弹巡逻舰
-And has surpassed the US Ticonderoga missile patrol ship
+已经有许多人认为“中共与我们不同，它是对自由与民主的威胁。”北京冬奥会作为发扬中共声望的机会，如果受到抵制，将对中共的独裁统治起到很大的打击作用。
 
-美军因为惧怕这个导弹驱逐舰所以灰溜溜地离开
-The US military left dejectedly is because of the fear of this missile destroyer
+习近平政府在北京冬奥会之前避免过度使用武力。然而，如此重大事件如果受到决定性的伤害，并且可能动摇政权基础进而表现出政权的非合法性，那么中共可能被迫采取行动夺取台湾和尖阁诸岛（钓鱼岛），并试图以此增加中共的向心力。因为如果什么行动都不采取而任由北京冬奥会被抵制，中共国内的反习势力将复活并获得发展势头。
 
-忽悠习神的。为什么我们今天说这个？
-It’s a hoax to Xi God. Why do we mention this today？
+在美国，印度太平洋军队的新老指挥官最近向参议院军事委员会作证说，“中共对台湾的入侵比大多数人预期的要近”，并且越来越多的人发出台湾可能被入侵的警告。当谈到抵制北京冬奥会时，很容易想到美军将处于最高戒备状态。
 
-这篇就是写给中南坑习神看的
-The report is written to Xi God in Zhongnan hai
+这样说来，日本也就成了关注的焦点。美国，英国和欧盟在3月22日因为中共镇压维吾尔人而对中共国实施制裁时，日本并没有加入。日本没有参与联合声明，也没有独自发表批评。
 
-就跟当年写给那个慈禧太后
-Just like the report written to Empress Dowager Cixi back then
+内阁官房长官加藤勝信在新闻发布会上被记者问到维吾尔人权问题时，他说“我对自治区的人权状况深表关切” 。加藤甚至说，“没有以人权为理由实施制裁的规定”。这等同于说“不采取任何行动”。
 
-你看被我们义和团给吓着了吧。美国是纸老虎
-You see, they are scared by CCP’s “Boxers”. The America is a paper tiger
+如果日本继续采取这种态度，世界将质疑日本对自由和民主的信念。 如果发生这种情况，将动摇日美同盟的基础。这也与依靠美国的支援来捍卫尖阁诸岛（钓鱼岛）的态度相矛盾。
 
-习神看了以后很开心
-Xi God was very happy after reading it
+定于16日举行的日美首脑会议，是菅义伟首相带领日本摆脱对中共的“软弱”姿态，并重新获得美国信任的机会。菅义伟首相应该与美国一起强烈谴责中共对人权的镇压。最重要的是，日本必须表达保护台湾和尖阁诸岛（钓鱼岛）的坚定决心。
 
-你看，（美军舰）跟我们一对就跑了
-You see, (US warship) ran away once encounter with CCP’s fleet
+参考链接：
 
-他知道航母肯定搞不过别人
-The CCP knew that their aircraft carrier would not be able to defeat over others
-
-所以就说因为我们有导弹驱逐舰，所以美军就害怕了
-because CCP had missile destroyer, so the report said that the US army was afraid then.
-
-自我意淫。我们从逻辑上来看，中共的导弹驱逐舰有多落后?
-Self-daydream. Let’s look logically how backward the CCP’s missile destroyer is?
-
-它觉得就是因为一万吨，当然了
-The CCP thought because the displacement of the destroyer is 10K tons. Of course
-
-这个东西一定是对中南坑习神还有中共统治下的14亿老百姓
-this report is certainly shown for Xi God of Zhongnan Hai and 1.4 billion people under the rule of CCP
-
-它是有洗脑作用的
-it has the brainwashing effect
-
-它现在就是介于驱逐舰和巡洋舰之间搞了一个大型的驱逐舰
-At present, the CCP just built a larger destroyer between the current destroyer and the cruiser
-
-中共的创新就这个概念，比如一辆车本来是帕萨特的底盘
-This is CCP’s concept of innovation. Like a car has a Passat chassis originally
-
-然后用帕萨特的底盘改装成一个越野车
-then it is refitted into an SUV with Passat chassis.
-
-你看这就是我们的创新能力
-You see, this is CCP’s innovation capability
-
-我们的创新能力就体现在这里
-Its innovation capability is embodied here
-
-这个驱逐舰充分的体系(现)了中共所谓我们就是善于改装
-This destroyer fully reflects what the CCP so-called “We are good at refitting”
-
-我直接把驱逐舰变成巡洋舰
-They directly turned the destroyer into a cruiser
-
-变大，装的导弹多了，这就是我们的创新
-Make it bigger and carry more missiles. This is their innovation
-
-这就是中共内部自我意淫的
-This is what the CCP’s self-daydream is
-
-真正美国的创新是从无到有
-The American real innovation starts from scratch
-
-中共的所谓创新，就像华为手机
-The so-called innovation of the CCP is like Huawei’s mobile phone
-
-换个壳，漂亮一点，换个摄像头，这就叫创新
-Redesign a case, nicer looking and replace a better camera. This is called innovation
-
-用德国最好的赛思(蔡司)的摄像头，这就叫创新
-Equipped with German’s best Zeiss lens, this is called innovation
-
-他们永远都停留在这个意义上
-They will always stay in this sense
-
-刚刚博博士给我发私信，他说（中共）胡扯
-Just now Dr. Bo sent me a text message. He said (CCP is) bullshit
-
-055根本没有去南海，知道吧
-You know it , the 055 missile destroyer didn’t go to the South China Sea at all
+[https://news.yahoo.co.jp/articles/d19b4b3e124430225f0c52cec08e44ed73bb8e4c](https://news.yahoo.co.jp/articles/d19b4b3e124430225f0c52cec08e44ed73bb8e4c)
 
 0
