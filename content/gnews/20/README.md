@@ -1,30 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国暂停使用强生疫苗
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1086263/)
+## 中共倒打一耙 要求调查美国生物武器实验室
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1086584/)
 
-翻译&评论：Runaway
-![]()![](https://gnews.org/wp-content/uploads/2021/04/johnson-johnson-vaccine415505060.jpg)网络截图
-据《纽约时报》报道，美国疾病控制中心（CDC）和食品与药物管理局（FDA）发表联合声明，将在联邦范围内停止使用强生COVID-19疫苗，以便进一步检查其安全问题。
+新闻来源：《国家脉动（ National Pulse ）》| 作者：NATALIE WINTERS | 发布时间：2021年4月8日
+翻译/简评：Dreamer文童 | 校对：感恩 | 审核：万人往 | Page：Daoiii
 
-美国六名强生COVID-19疫苗接受者在接种疫苗后约两周内出现罕见的血栓栓塞，六个接种者都是18至48岁的妇女，内布拉斯加州的一名妇女死亡，另一名妇女已病危住院。
+[!\[\]()!\[\](https://spark.adobe.com/page/5WeIFTzYujCvg/images/b1067b74-7bd2-447d-a046-fef25e8e0fb9.jpg?asset_id=a0a543f4-3715-40e7-a5d4-91d0c396d2f0&amp;img_etag=%2268485c48946ac79e9dc15a1a87af3973%22&amp;size=1024)](https://spark.adobe.com/page/5WeIFTzYujCvg/images/b1067b74-7bd2-447d-a046-fef25e8e0fb9.jpg?asset_id=a0a543f4-3715-40e7-a5d4-91d0c396d2f0&amp;img_etag=%2268485c48946ac79e9dc15a1a87af3973%22&amp;size=1024)图片来源网络
 
-根据美国疾病控制与预防中心的数据，到目前为止，美国已有近700万人接受了强生公司的注射，另外约有900万剂被运往各州。“出于谨慎起见，我们建议暂停使用该疫苗”，FDA生物制剂评估和研究中心主任Peter Marks博士和CDC实验室首席副主任Anne Schuchat博士在联合声明中说， “目前，这些不良事件似乎极为罕见。”
+**简评：**
 
-虽然此举是对各州卫生从业人员的建议，但预计联邦政府将在所有由联邦政府运营的疫苗接种地点暂停疫苗的接种。 联邦官员期望州卫生官员将其作为强烈的信号来做同样的事情。 在宣布这一消息的两个小时内，共和党俄亥俄州的州长迈克·德维恩（Mike DeWine）建议该州的所有医疗机构暂时停止强生疫苗的注射。
+**今年一月份，世卫组织作秀般地对武汉进行所谓的病毒溯源调查，不但全程在中共单方安排下进行，而且根本未进入武汉病毒研究所实验室。随后发布的报告受到各方质疑，就连谭德塞本人都承认调查团未获取原始数据。**
 
-F.D.A.的科学家和C.D.C. 将联合检查疫苗与疾病之间的可能联系，并确定F.D.A. 应继续授权所有成年人使用该疫苗，或限制授权。 C.D.C.外部咨询委员会的紧急会议定于星期三举行。
+**然而近日，中共官媒《环球时报》呼吁对美国的生物武器实验室进行调查，以获取病毒起源的线索，外交部发言人赵立坚也进行了呼应。这种做法是极其愚蠢的，不但在国际上绝不会被认可，反而更加激怒被病毒折磨一年多的美国人民。中共的无理叫嚣只不过是向墙内小粉红继续灌输虚假信息，同时掀起反美情绪。去年五月份，中共的非官方媒体就已经向墙内民众进行类似宣传，暗示美国德特里克堡生物实验室与此次疫情爆发有关。现在中共官方正面呼吁对美国生物武器实验室进行调查，意味着病毒追责已经到了最后的关键时刻，之前的媒体战搅混水策略失败，不得不进入最后的耍泼撒赖阶段。**
 
-强生公司在新闻稿中说：“我们知道Covid-19疫苗已经报道了血栓栓塞事件，包括血小板减少症。 目前，在这些罕见事件与Janssen Covid-19疫苗之间尚未建立明确的因果关系。” 詹森（Janssen）是研发疫苗的强生公司部门的名称。
+**原文翻译：**
 
-评论：不出所料强生公司的声明与阿斯利康公司的声明如出一辙。在病毒的来源没有查清之前，匆忙上马的疫苗只能造成更大的危机。
+## 中共拒绝世卫组织进入武汉实验室后，要求调查美国生物武器实验室
 
-（本文仅代表个人观点）
+[!\[\]()!\[\](https://spark.adobe.com/page/5WeIFTzYujCvg/images/509e9cd5-3b3d-427f-ab85-7fe266bd8d40.png?asset_id=91daed20-925e-4468-8d08-7f099fd857ea&amp;img_etag=%2214fed86e46aa0242e4712bd91abee797%22&amp;size=2560)](https://spark.adobe.com/page/5WeIFTzYujCvg/images/509e9cd5-3b3d-427f-ab85-7fe266bd8d40.png?asset_id=91daed20-925e-4468-8d08-7f099fd857ea&amp;img_etag=%2214fed86e46aa0242e4712bd91abee797%22&amp;size=1024)
 
-原文：[U.S. Calls for Pause on Johnson & Johnson Vaccine After Clotting Cases](https://www.nytimes.com/2021/04/13/us/politics/johnson-johnson-vaccine-blood-clots-fda-cdc.html)
+**尽管中共拒绝世界卫生组织官员对武汉病毒研究所进行有意义的访问，但中共政权现在呼吁对美国生物武器实验室进行调查。**
 
-*审核 &编辑：Runaway*
+据官媒《环球时报》报道，“在俄罗斯提出请求后，要求调查美国生物实验室的呼声越来越高”，来自俄罗斯和中共国政府的官员都“呼吁对美国神秘的生物实验室进行调查，以便更好地了解冠状病毒的起源。”
+
+“专家表示，对美国生物实验室的调查可能会提供病毒起源的线索；然而，美国继续无视国际社会对其神秘生物实验室的质疑，”该报道继续补充道，“有充分的理由相信美国正在这些实验室中开发生物武器，而且在这些实验室周围已经有爆发非典型性疾病的报道。”
+
+该媒体还援引中共国现代国际关系研究院研究员李伟的观点，他坚持认为“对美国生物实验室的彻底调查可能会提供病毒来源的线索。”
+
+除官媒外，中共国外交部发言人赵立坚等党政官员也“敦促美国对关注进行回应，并全面澄清美国境内外的生物军事化活动，同时停止阻挠《生物武器公约》规定的核查机制的建立。”
+
+🔗[原文链接](https://thenationalpulse.com/breaking/ccp-calls-for-us-lab-probe/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/5WeIFTzYujCvg/images/2a9217f7-1549-446e-bf57-9fb29741160d.jpg?asset_id=c85755a7-ef39-495d-b9c1-33549723da36&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/5WeIFTzYujCvg/images/2a9217f7-1549-446e-bf57-9fb29741160d.jpg?asset_id=c85755a7-ef39-495d-b9c1-33549723da36&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
 
 

@@ -1,25 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国女王伊丽莎白二世的丈夫菲利普亲王去世（玫瑰看新闻2021/04/09 第81期）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1085974/)
+## 【香草诗词汇】春花怒放
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1086085/)
 
-本期焦点新闻摘要：
+图作者：纽约香草山健身部 Jack Li文阳
 
-\*英国女王伊丽莎白二世的丈夫菲利普亲王去世
+诗作者：文鹰
 
-\*美将把剩余战斗部队全数调离伊拉克时间待确认
+![]()![](https://gnews.org/wp-content/uploads/2021/04/logo-5.jpg)
 
-\*美国务卿推特喊话WHO改革回到正轨
 
-\*缅甸安全部队与反军政府示威者爆发血腥冲突美国扩大制裁
 
-\*Sellin博士公布中共病毒的零号患者
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片48.png)
 
-\*专家警告说，中共加快了可能入侵台湾的时间点
+蒙蒙春雾随花至，
 
-\*科学家发公开信要求全面调查中共病毒来源
+朵朵心花沁蕊香。
 
-\*公墓涌现大量人流，引起人们对武汉市实际死亡人数的质疑
+浩浩联邦四海屹，
+
+滔滔灭共浪潮狂。
+
+
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2.jpg)
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

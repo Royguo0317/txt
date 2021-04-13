@@ -1,41 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【圣城香港】香港市民摆设街站呼吁抵制新疆血棉
-` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1086167/)
+## 跟谁学一年被多次做空 中概股或将集体退市
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1086341/)
 
-作者：香草山香港部
+撰稿：金生水
+![]()![](https://gnews.org/wp-content/uploads/2021/04/001-1.png)图片来自网络
+据大纪元报道，在美国上市交易的中概股“跟谁学”一年时间被做空了十六次，同时股价遭遇11连阴，其市值在两个月的时间内蒸发了几乎80%，大约2000亿人民币。
 
+从2020年5月至今，多家机构共16次对“跟谁学”发布了做空报告，部分报告指出通过对“跟谁学”的五万多名客户进行了分析，至少有7成客户是机器人，70%至80%收入造假，同时该公司还存在一系列造假问题，如刷单、教师资格证造假、现金流造假等。
 
+“跟谁学”自2019年6月在纽交所上市以来，保持了连续8个季度的三位数收入增长，但去年10月股价一度暴跌三成，并且在之后的两个月内股票价格被腰斩。这和多家机构出具和“跟谁学”的做空报告有关，尽管“跟谁学”一直否认做空报告，其创始人陈向东也宣布用5000万美元回购股票，但这些举措都没能阻止股票继续下跌。
 
+知名做空机构浑水公司CEO卡尔森‧布洛克（Carson Block）表示: 目前浑水公司仍在做空“跟谁学”，这间公司几乎是彻头彻尾的欺诈。
 
-> 近日媒体披露不少国际知名品牌，包括无印良品、ZARA等的产品都是由新疆棉制成。而新疆棉的采集和生产过程，牵涉到中共打压维吾尔族人权，还有强制劳动等人权议题，好多欧美国家和国际组织，都已经公开呼吁各大服装品牌将生产线撤出新疆。
-> 
-> 香港职工盟在过去两天，联同香港维吾尔人权关注组，在不同地区摆设街站，派发有关新疆血汗棉的传单，呼吁大家抵制使用涉及新疆棉的品牌，包括无印良品、ZARA和FILA，不要成为中共打压维吾尔人权的帮凶。
+不仅如此，跟谁学也因为造假和欺诈等问题在中共国国内饱受质疑，有投资人起诉跟谁学没有如实向投资者披露盈利、收入、师资、学生数量情况等问题，同时该公司也因为涉嫌虚假宣传等问题接到诸多投诉。
 
+美国证券交易委员会（SEC）在3月24日表示，在美国上市的外国企业必须符合美国会计标准以及审计要求，否则就将会被SEC除名。消息一出，多家机构集体抛售中概股，中概股集体遭遇重创，股价大幅度下跌，其中不乏一些知名企业，如腾讯、爱奇艺等。
 
-—[职工盟(HKCTU)Facebook网页](https://www.facebook.com/HKCTU/)
+文贵先生最早在17年就指出中概股在美国圈钱、骗钱，十有八九都有财务造假和洗钱等问题。未来在华尔街上市的中概股将面临团灭，而中概股倒闭潮开始的时候，也就是中共国经济崩塌的时候。这再一次的验证了文贵先生的爆料，唯真不破，是假就灭！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS1985-香港市民摆设街站呼吁抵制新疆血棉.png)图片来源：(HKCTU)Facebook网页
+（文章内容仅代表个人观点）
 
+*审稿：**Gradient Boost*
 
+参考链接：
 
+[https://www.epochtimes.com/gb/21/4/6/n12860778.htm](https://www.epochtimes.com/gb/21/4/6/n12860778.htm)
 
-> 未来一周巴黎司法何时庭审数家著名名牌成衣公司Zara, Uniqlo, Sandro 以及Skechers遭控诉讼案引发关注。多家人权机构以及个体起诉这些公司滥用中国新疆棉质材料，因这些棉制品涉嫌由新疆维吾尔人遭强制劳动生产，这些公司涉嫌犯有侵犯人权之过。这是在法国第一起大规模司法起诉行动，公诉方指将在欧洲及全球多地兴诉，指控并追究涉嫌应用新疆棉花的公司。上述企业如何应诉也皆受聚焦。
+[https://www.epochtimes.com/gb/21/4/12/n12875753.htm](https://www.epochtimes.com/gb/21/4/12/n12875753.htm)
 
+[https://www.epochtimes.com/gb/21/3/25/n12834044.htm](https://www.epochtimes.com/gb/21/3/25/n12834044.htm)
 
-–《[新疆棉花：四大跨国企业在巴黎遭人权诉讼](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210411-%E6%96%B0%E7%96%86%E6%A3%89%E8%8A%B1-%E5%9B%9B%E5%A4%A7%E8%B7%A8%E5%9B%BD%E4%BC%81%E4%B8%9A%E5%9C%A8%E5%B7%B4%E9%BB%8E%E9%81%AD%E4%BA%BA%E6%9D%83%E8%AF%89%E8%AE%BC)》
+[https://www.epochtimes.com/gb/21/4/10/n12870513.htm](https://www.epochtimes.com/gb/21/4/10/n12870513.htm)
 
-校对/发稿：雪梨
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！+1
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
 0
