@@ -1,27 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧盟征源自中共的铝制品反倾销税
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1083719/)
+## 慧眼看世界202104012（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1083789/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/n-7.jpg)en.thepress.mv
-欧盟对源自中共的铝材平板轧制产品征收临时反倾销关税，以遏制其对欧盟生产商的竞争。
 
-这些关税针对涉嫌以低于成本价在欧盟销售铝平板轧制产品的中共出口商。根据欧盟官方报道，征收税务比率在19.3%到46.7%之间，具体取决于出口商。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-进口关税是2020年8月根据欧洲铝业的倾销投诉展开的一项调查的初步结果。新关税将于周二生效，有效期为6个月，可能会延长5年。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-1.jpg)
 
-这是欧盟与中共的又一场公开角力。上个月，欧盟，加拿大，美国，英国就新疆种族灭绝罪行联合对中共发起了制裁行动，这是在八九六四天安门血腥镇压手无寸铁的亲民主学生后欧盟首次制裁中共。中共立刻对欧盟进行了更广泛的制裁报复，制裁对象包括欧洲议员、外交官、机构与相关家属，禁止他们所在的企业同中共国进行往来。欧洲国家召见中共驻本国大使以抗议中共的反制行为。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-1.jpg)
 
-欧盟与美国关系进一步回暖，双方开始结盟合作。上个月双方达成的为期4个月的停飞协议，本周欧盟建议其和美国在6个月内暂停对数十亿美元进口商品征收的关税。而之前法国，德国军舰穿行南中国海对美国进行支援。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-1.jpg)
 
-毋庸置疑，欧洲与中共的蜜月期已经成为过去。现在全世界都将目光投向了中共病毒真相，要求对中共追责。欧盟是否会加入追溯病毒来源消灭中共的角力，相信会很快揭晓。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-2.jpg)
 
-参考链接：
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-1.jpg)
 
-[https://www.bloomberg.com/news/articles/2021-04-12/eu-sets-provisional-tariffs-19-3-to-46-7-on-china-alu-products](https://www.bloomberg.com/news/articles/2021-04-12/eu-sets-provisional-tariffs-19-3-to-46-7-on-china-alu-products)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-4.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-3.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0
