@@ -1,54 +1,127 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读Sellin博士挖出港大P3实验室团队，并揭露中共病毒与舟山病毒最重要的关联点
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1088305/)
+## 【路德时评摘要】4.11.2021PM-中共宣传美航母遇见辽宁号灰溜溜离开
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1089819/)
 
-直播视频：
+视频剪辑 : Ablec(文A)
+中听校： 洛杉矶天使农场 – 烟波浩淼
+英翻译：洛杉矶天使农场 –飞利普
+英校对：洛杉矶天使农场 – 烟波浩淼
+字幕+视频制作：洛杉矶天使农场 – 小腾腾说
 
+**路德:**
+《环球新军事》说，
+The CCP’s Global New Military news said
+中共国航母罕见出动
+that the dispatch of Chinese aircraft carrier is rarely seen
 
+美国航母一看就灰溜溜离开
+but the US aircraft carrier left dejectedly as soon as seeing it
 
-《路德时评》2021年4月13日早间节目主要内容：
+看看它怎么对内洗脑忽悠的
+Let’s see how this report is brainwashing and deceptive to its readers
 
-**·**Sellin博士挖出港大P3实验室，揭露中共病毒与舟山病毒最重要关联点
+它说中共舰队将美军给堵住了
+It said that the US army had been blocked by the CCP’s fleet
 
-Sellin博士4月13日发出一重磅推文：众所周知，用精氨酸（R）替代2002-2004年爆发的SARS病毒中E蛋白的氨基酸E69和G70，其毒性会增加。中共病毒和蝙蝠冠状病毒ZC45，RacCS203和RaTG13都具有相同的E蛋白，并且在E蛋白中可以看到这种取代。
+辽宁舰旁边的055型导弹驱逐舰，南昌舰
+Either 055 missile destroyer or Nanchang warship beside the Liaoning aircraft carrier
 
+它绝对是一座移动的火力堡垒
+It is absolutely a moving firepower fortress
 
+其超过万吨的身躯，综合作战能力
+its body weighted more than 10K tons with an integrative combat capability
 
-> It is known that replacing the E Protein's amino acids E69 & G70 in the 2002-2004 SARS-CoV-1 pandemic virus with arginine (R), virulence would increase. Such a substitution is seen in the identical E Proteins of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) & bat coronaviruses ZC45, RacCS203 & RaTG13.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/fgTCsvbCW8](https://t.co/fgTCsvbCW8)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 13, 2021](https://twitter.com/LawrenceSellin/status/1381939134936268805?ref_src=twsrc%5Etfw)
+已超过美军提康德罗加级导弹巡逻舰
+And has surpassed the US Ticonderoga missile patrol ship
 
+美军因为惧怕这个导弹驱逐舰所以灰溜溜地离开
+The US military left dejectedly is because of the fear of this missile destroyer
 
+忽悠习神的。为什么我们今天说这个？
+It’s a hoax to Xi God. Why do we mention this today？
 
-路德社评论：
+这篇就是写给中南坑习神看的
+The report is written to Xi God in Zhongnan hai
 
-1、2003年爆发SARS疫情时，港大P3实验室的Malik、管轶、袁国勇和潘烈文对SARS病毒进行深入研究后有一重大发现，如果将SARS病毒E蛋白中的氨基酸E69和G70用精氨酸（R）代替，病毒的毒性以及病毒复制能力会大大增强，并且能让病毒增加感染脑部和神经系统的能力，这就是港大P3实验室取得的重大研究成果。
+就跟当年写给那个慈禧太后
+Just like the report written to Empress Dowager Cixi back then
 
-2、除此之外，现在世界上已知的E蛋白中的氨基酸E69和G70被精氨酸（R）代替的病毒只有三种，分别是舟山蝙蝠病毒ZC45，RacCS203（王林发在泰国发现）和RaTG13（石正丽杜撰的假病毒），RacCS203是中共科学家王林发在泰国找到的蝙蝠冠状病毒，舟山蝙蝠病毒是中共军方科学家王长军教授发现的，这就是中共要极力隐瞒舟山蝙蝠病毒的原因。
+你看被我们义和团给吓着了吧。美国是纸老虎
+You see, they are scared by CCP’s “Boxers”. The America is a paper tiger
 
-3、闫博士在第三份报告详细介绍了这点，港大P3实验室也是参与中共病毒研究的共犯之一，美国军情部门现在总算看明白港大P3实验室的重要性，Malik才是真正的毒王。越来越多的临床研究发现，中共病毒感染者的脑损伤情况比其他病毒严重，这种脑部伤残将影响终身。
+习神看了以后很开心
+Xi God was very happy after reading it
 
-4、近日，管轶和Malik获2021年度约翰·狄克斯加拿大盖尔德纳全球卫生奖，获奖理由为他们“深入了解亚洲各地新发传染病，尤其是人畜共患流感及严重急性呼吸综合征（SARS）的暴发源头和疫情防控等方面作出的重大贡献”[1]。港大P3实验室才是全球冠状病毒研究最核心的实验室，Sellin发出的重磅推特将瞄准镜对准了该实验室。
+你看，（美军舰）跟我们一对就跑了
+You see, (US warship) ran away once encounter with CCP’s fleet
 
-5、闫博士之所以能如此确定舟山蝙蝠病毒就是中共病毒的骨架，就是因为闫博士丈夫告诉闫博士中共病毒就是用舟山蝙蝠病毒改造而来的，闫博士再结合Malik电脑中存有的病毒研究信息，以及从其他方面获得的情报得知中共病毒的严重性，闫博士才通过路德社告诉全世界。
+他知道航母肯定搞不过别人
+The CCP knew that their aircraft carrier would not be able to defeat over others
 
-6、中共为了找到舟山蝙蝠病毒耗费动用了大量的人力物力，高福在2009-2014年申请的基金项目就是在全国寻找各式各样的病毒，他在基金计划书中明确写到至少要找到2-3种具有脑部感染能力的新型动物病毒，这就是依据港大P3实验室在SARS病毒中的重大发现而设计的。所以Malik非常重要，他同时拥有MD和PHD双学位，潘烈文是搞病毒结构的，袁国勇和管轶都是搞医学的，中共此时推出Malik和管轶就是为让他们将来能与闫博士进行PK。
+所以就说因为我们有导弹驱逐舰，所以美军就害怕了
+because CCP had missile destroyer, so the report said that the US army was afraid then.
 
-7、路德社多次爆料香港P3实验室是全世界研究冠状病毒最顶尖的实验室，美国有技术但是没有病毒样本，中共还投入大量资金支持冠状病毒研究，Malik和钟南山关系非常紧密，钟南山团队中赵金存就是专门从事病毒研究的科学家。港大P3实验室拥有全球最牛的病毒分离技术，闫博士丈夫就是负责病毒分离的全球最顶尖的病毒专家，所以钟南山获取样本后就送到港大P3实验室进行病毒分离和培养。
+自我意淫。我们从逻辑上来看，中共的导弹驱逐舰有多落后?
+Self-daydream. Let’s look logically how backward the CCP’s missile destroyer is?
 
-8、2003年爆发的SARS病毒疫情，管轶找到SARS的中间宿主果子狸，Malik率先分离出SARS病毒（中共卫生部当时还分不清是病毒还是细菌），潘烈文是第一个做出快速检测SARS病毒试剂盒的，港大P3实验室就是因SARS病毒才奠定了江湖地位。现在流行的中共病毒究竟会对人体神经系统造成何种影响还没有完全了解，闫博士还在研究中，这就是闫博士口中所说的留给人类的时间不多了。
+它觉得就是因为一万吨，当然了
+The CCP thought because the displacement of the destroyer is 10K tons. Of course
 
-9、管轶曾说实验室出现病毒泄漏是不可能导致全球大爆发的，他还说蝙蝠病毒不可能直接传染给人类，这些是行内人都知道的事实。但是，中共却傻乎乎地让石正丽伪造RaTG13来混淆视听，中共想方设法不让外界知道舟山蝙蝠病毒就是中共病毒骨架，所以当知情者得知闫博士与爆料革命路德社取得联系后表现得极为恐慌，身怕自己会为此丧命。
+这个东西一定是对中南坑习神还有中共统治下的14亿老百姓
+this report is certainly shown for Xi God of Zhongnan Hai and 1.4 billion people under the rule of CCP
 
-10、Sellin博士是上校军衔，美国的上校军衔是某个专业技能达到最高级别的职位，很多专职军官或职业军官的最高级别就是上校，Sellin博士在2006年退役前任太平洋特种作战司令部参谋长，之后就无法找到有关他的任职信息，他还曾在阿斯利康制药有限公司、IBM以及NIH担任重要职位。他现在每天就在推特上发布有关中共病毒的情报消息，再结合他的履历，我们可以推断Sellin博士应该是全程参与调查中共病毒真相的军情人士，现在就是代表美国军方向全世界传递病毒真相。
+它是有洗脑作用的
+it has the brainwashing effect
 
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+它现在就是介于驱逐舰和巡洋舰之间搞了一个大型的驱逐舰
+At present, the CCP just built a larger destroyer between the current destroyer and the cruiser
 
-参考文章：
+中共的创新就这个概念，比如一辆车本来是帕萨特的底盘
+This is CCP’s concept of innovation. Like a car has a Passat chassis originally
 
-[1]http://zhishifenzi.com/news/other/11128.html
+然后用帕萨特的底盘改装成一个越野车
+then it is refitted into an SUV with Passat chassis.
 
-文章撰写：【迦密】  编辑：【西奈】
+你看这就是我们的创新能力
+You see, this is CCP’s innovation capability
 
-+2
+我们的创新能力就体现在这里
+Its innovation capability is embodied here
+
+这个驱逐舰充分的体系(现)了中共所谓我们就是善于改装
+This destroyer fully reflects what the CCP so-called “We are good at refitting”
+
+我直接把驱逐舰变成巡洋舰
+They directly turned the destroyer into a cruiser
+
+变大，装的导弹多了，这就是我们的创新
+Make it bigger and carry more missiles. This is their innovation
+
+这就是中共内部自我意淫的
+This is what the CCP’s self-daydream is
+
+真正美国的创新是从无到有
+The American real innovation starts from scratch
+
+中共的所谓创新，就像华为手机
+The so-called innovation of the CCP is like Huawei’s mobile phone
+
+换个壳，漂亮一点，换个摄像头，这就叫创新
+Redesign a case, nicer looking and replace a better camera. This is called innovation
+
+用德国最好的赛思(蔡司)的摄像头，这就叫创新
+Equipped with German’s best Zeiss lens, this is called innovation
+
+他们永远都停留在这个意义上
+They will always stay in this sense
+
+刚刚博博士给我发私信，他说（中共）胡扯
+Just now Dr. Bo sent me a text message. He said (CCP is) bullshit
+
+055根本没有去南海，知道吧
+You know it , the 055 missile destroyer didn’t go to the South China Sea at all
+
+0
