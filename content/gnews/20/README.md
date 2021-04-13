@@ -1,41 +1,127 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国88家科创公司取消今年上市计划
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1086742/)
+## 【路德时评摘要】4.11.2021PM-中共宣传美航母遇见辽宁号灰溜溜离开
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1089819/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+视频剪辑 : Ablec(文A)
+中听校： 洛杉矶天使农场 – 烟波浩淼
+英翻译：洛杉矶天使农场 –飞利普
+英校对：洛杉矶天使农场 – 烟波浩淼
+字幕+视频制作：洛杉矶天使农场 – 小腾腾说
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/K-3.jpg)economictimes.indiatimes.com
-中共国创业企业如今内外交困，国内中共提高了上市审核标准，国外美国政府不断进行科技制裁，许多公司不得已延迟上市时间。预计今后创业公司会遇到更多困难。
+**路德:**
+《环球新军事》说，
+The CCP’s Global New Military news said
+中共国航母罕见出动
+that the dispatch of Chinese aircraft carrier is rarely seen
 
-这种影响在上交所的科创板块上尤其明显。 2021 年的前三个半月里，已有 88 家公司，甚至包括一些中共国最有前途的独角兽公司，宣布暂停或取消首次公开募股的计划。
+美国航母一看就灰溜溜离开
+but the US aircraft carrier left dejectedly as soon as seeing it
 
-这个以科技为重点的板块成立于 2019 年，当时得到了习的力挺，日后发展成为中共国科技企业的重要聚集地。但即使在 1-3 月全球 IPO 数量创下 25 年新高的情况下，中共国科创板块市场最近几个月的注销上市的公司数量仍旧比前 18 个月的注销数量还要多很多。
+看看它怎么对内洗脑忽悠的
+Let’s see how this report is brainwashing and deceptive to its readers
 
-政府一直在想方设法帮快速成长的公司筹集资金，以提高中共国在与美国的技术竞争中的地位。但政府在 2020 年 11 月叫停当时全球最大 IPO 的蚂蚁金服的上市计划后，凸显北京当局已将重心从促经济增长转移到加强党对金融市场的全面控制上。
+它说中共舰队将美军给堵住了
+It said that the US army had been blocked by the CCP’s fleet
 
-蚂蚁金服是阿里集团控股的一个部门，是主导中共国在线支付市场的两家公司之一。北京当局的金融监管在周一表示，蚂蚁金服会重组为一家由央行监管的金融控股公司，此前监管部门已经与阿里集团代表进行了三次接触。
+辽宁舰旁边的055型导弹驱逐舰，南昌舰
+Either 055 missile destroyer or Nanchang warship beside the Liaoning aircraft carrier
 
-中共国证监会在 1 月底宣布了关于 IPO 的新规定，包括会不定期对申请 IPO 的公司进行临检。这表示中共政府会专门针对它认为有问题的公司进行临时检查。
+它绝对是一座移动的火力堡垒
+It is absolutely a moving firepower fortress
 
-中共国证监会主席易会满 3 月表示，北京当局会对试图强行上市的“有问题”的公司采取强制措施， 这种“高压整顿”的策略已经初显成效。
+其超过万吨的身躯，综合作战能力
+its body weighted more than 10K tons with an integrative combat capability
 
-阿里集团 CEO 张近东周一（4月 12 日）表示，公司会积极配合监管部门的各种行动。当天，阿里巴巴股价在香港市场上涨了 6.5%，张近东的这一表态符合大众的预期。加之上周六（4月 10 日）阿里集团被课以创纪录的 182 亿元人民币(27.5 亿美元)罚款，意味着监管机构暂时不会对阿里集团采取进一步制裁措施。
+已超过美军提康德罗加级导弹巡逻舰
+And has surpassed the US Ticonderoga missile patrol ship
 
-从长期来看政府加强控制可能会对股价造成负面影响。2月和 3 月退出 IPO 计划的独角兽公司包括开发面部识别技术的依图科技和为自动驾驶汽车制造传感器的禾赛科技，他们每家的估值都在 20 亿美元左右。
+美军因为惧怕这个导弹驱逐舰所以灰溜溜地离开
+The US military left dejectedly is because of the fear of this missile destroyer
 
-依图科技官方解释说，公司需要更多时间来改善并适应更严格的上市准则。
+忽悠习神的。为什么我们今天说这个？
+It’s a hoax to Xi God. Why do we mention this today？
 
-上交所 4 月 2 日宣布，阿里巴巴竞争对手京东科技也撤回了 IPO 申请。京东科技与蚂蚁集团在许多相同的领域存在竞争关系，如消费贷款。京东科技曾打算在科创板块市场融资 200 亿元。
+这篇就是写给中南坑习神看的
+The report is written to Xi God in Zhongnan hai
 
-美国对中共国科技公司的施压也是导致科创板块 IPO 寒冬的原因之一。美国上周将 7 家中共国超级计算中心列入实体黑名单。外界猜测拜登政府可能会出手整顿清理在美上市的中共国科技初创企业的业务。
+就跟当年写给那个慈禧太后
+Just like the report written to Empress Dowager Cixi back then
 
-整个科创板块市场上空乌云密布。统计科创板块中许多大公司的 50 指数后发现，该数据已从去年夏天的同期最高点下跌了近 30%，而同比全球股票的 MSCI ACWI 指数却处于持续上涨状态。
+你看被我们义和团给吓着了吧。美国是纸老虎
+You see, they are scared by CCP’s “Boxers”. The America is a paper tiger
 
-参考链接:
+习神看了以后很开心
+Xi God was very happy after reading it
 
-[1] [88 tech startups ditch China IPOs in 2021 as headwinds mount – NIKKEI – 2021/04/13](https://asia.nikkei.com/Business/China-tech/88-tech-startups-ditch-China-IPOs-in-2021-as-headwinds-mount)
+你看，（美军舰）跟我们一对就跑了
+You see, (US warship) ran away once encounter with CCP’s fleet
+
+他知道航母肯定搞不过别人
+The CCP knew that their aircraft carrier would not be able to defeat over others
+
+所以就说因为我们有导弹驱逐舰，所以美军就害怕了
+because CCP had missile destroyer, so the report said that the US army was afraid then.
+
+自我意淫。我们从逻辑上来看，中共的导弹驱逐舰有多落后?
+Self-daydream. Let’s look logically how backward the CCP’s missile destroyer is?
+
+它觉得就是因为一万吨，当然了
+The CCP thought because the displacement of the destroyer is 10K tons. Of course
+
+这个东西一定是对中南坑习神还有中共统治下的14亿老百姓
+this report is certainly shown for Xi God of Zhongnan Hai and 1.4 billion people under the rule of CCP
+
+它是有洗脑作用的
+it has the brainwashing effect
+
+它现在就是介于驱逐舰和巡洋舰之间搞了一个大型的驱逐舰
+At present, the CCP just built a larger destroyer between the current destroyer and the cruiser
+
+中共的创新就这个概念，比如一辆车本来是帕萨特的底盘
+This is CCP’s concept of innovation. Like a car has a Passat chassis originally
+
+然后用帕萨特的底盘改装成一个越野车
+then it is refitted into an SUV with Passat chassis.
+
+你看这就是我们的创新能力
+You see, this is CCP’s innovation capability
+
+我们的创新能力就体现在这里
+Its innovation capability is embodied here
+
+这个驱逐舰充分的体系(现)了中共所谓我们就是善于改装
+This destroyer fully reflects what the CCP so-called “We are good at refitting”
+
+我直接把驱逐舰变成巡洋舰
+They directly turned the destroyer into a cruiser
+
+变大，装的导弹多了，这就是我们的创新
+Make it bigger and carry more missiles. This is their innovation
+
+这就是中共内部自我意淫的
+This is what the CCP’s self-daydream is
+
+真正美国的创新是从无到有
+The American real innovation starts from scratch
+
+中共的所谓创新，就像华为手机
+The so-called innovation of the CCP is like Huawei’s mobile phone
+
+换个壳，漂亮一点，换个摄像头，这就叫创新
+Redesign a case, nicer looking and replace a better camera. This is called innovation
+
+用德国最好的赛思(蔡司)的摄像头，这就叫创新
+Equipped with German’s best Zeiss lens, this is called innovation
+
+他们永远都停留在这个意义上
+They will always stay in this sense
+
+刚刚博博士给我发私信，他说（中共）胡扯
+Just now Dr. Bo sent me a text message. He said (CCP is) bullshit
+
+055根本没有去南海，知道吧
+You know it , the 055 missile destroyer didn’t go to the South China Sea at all
 
 0
