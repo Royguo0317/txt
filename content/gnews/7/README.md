@@ -1,47 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共倒打一耙 要求调查美国生物武器实验室
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1086584/)
+## 中共空军大规模连续入侵台湾防空识别区
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1086681/)
 
-新闻来源：《国家脉动（ National Pulse ）》| 作者：NATALIE WINTERS | 发布时间：2021年4月8日
-翻译/简评：Dreamer文童 | 校对：感恩 | 审核：万人往 | Page：Daoiii
+俄罗斯莫斯科喀秋莎农场 DongDong
 
-[!\[\]()!\[\](https://spark.adobe.com/page/5WeIFTzYujCvg/images/b1067b74-7bd2-447d-a046-fef25e8e0fb9.jpg?asset_id=a0a543f4-3715-40e7-a5d4-91d0c396d2f0&amp;img_etag=%2268485c48946ac79e9dc15a1a87af3973%22&amp;size=1024)](https://spark.adobe.com/page/5WeIFTzYujCvg/images/b1067b74-7bd2-447d-a046-fef25e8e0fb9.jpg?asset_id=a0a543f4-3715-40e7-a5d4-91d0c396d2f0&amp;img_etag=%2268485c48946ac79e9dc15a1a87af3973%22&amp;size=1024)图片来源网络
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/T-10.jpg)rappler.com
+据路透社报道，周一（4月 12 日）台湾岛内政府称，包括战斗机和核能力轰炸机在内的 25 架中共国空军飞机，按战时编队进入台湾防空识别区（ADIZ），这是迄今为止最大的一次共军飞机扰台报道，也是连续第 10 天中共军机扰台。
 
-**简评：**
+就在一天前的周日（4月 11 日），美国国务卿布林肯在接受美国全国广播公司（NBC）节目“Meet the Press”采访中表示，美国非常关切中共国针对台湾的侵略性行动，这加剧了（台湾）海峡的紧张局势。他警告说，任何人试图通过武力改变西太平洋的现状都将犯下“严重错误”。
 
-**今年一月份，世卫组织作秀般地对武汉进行所谓的病毒溯源调查，不但全程在中共单方安排下进行，而且根本未进入武汉病毒研究所实验室。随后发布的报告受到各方质疑，就连谭德塞本人都承认调查团未获取原始数据。**
+上周五（4月 9 日）拜登政府颁布了新的美台外交官交往准则，明确决定将保留川普政府美台交往准则中大多数政策，重点鼓励美国官员会见台湾外交官员。华府未详细披露新准则详细内容，但美国官员允许在美国联邦大楼内接待台湾官员，并在其政府办公室会见台湾同行。台湾官员也可以去华盛顿的前台湾驻美国大使的官邸双橡树庄园（Twin Oaks estate）参加活动。此新准则的颁布深深触动了北京当局，令其异常愤怒。
 
-**然而近日，中共官媒《环球时报》呼吁对美国的生物武器实验室进行调查，以获取病毒起源的线索，外交部发言人赵立坚也进行了呼应。这种做法是极其愚蠢的，不但在国际上绝不会被认可，反而更加激怒被病毒折磨一年多的美国人民。中共的无理叫嚣只不过是向墙内小粉红继续灌输虚假信息，同时掀起反美情绪。去年五月份，中共的非官方媒体就已经向墙内民众进行类似宣传，暗示美国德特里克堡生物实验室与此次疫情爆发有关。现在中共官方正面呼吁对美国生物武器实验室进行调查，意味着病毒追责已经到了最后的关键时刻，之前的媒体战搅混水策略失败，不得不进入最后的耍泼撒赖阶段。**
+中共国宣称台湾是其最敏感的领土问题，也是美国不应逾越的红线。它从未放弃可能使用武力来确保最终统一。此次，25 架中共飞机按战时编队空前规模大举入侵台湾防空识别区，显示中共国正在不断试探美国真正的底线，同时向美国表明其绝不放弃武统台湾的决心。
 
-**原文翻译：**
+参考链接：
 
-## 中共拒绝世卫组织进入武汉实验室后，要求调查美国生物武器实验室
+[1] [Taiwan reports largest incursion yet by Chinese air force – REUTERS – 2021/04/12](https://www.reuters.com/article/instant-article/idUSL1N2M516J)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/5WeIFTzYujCvg/images/509e9cd5-3b3d-427f-ab85-7fe266bd8d40.png?asset_id=91daed20-925e-4468-8d08-7f099fd857ea&amp;img_etag=%2214fed86e46aa0242e4712bd91abee797%22&amp;size=2560)](https://spark.adobe.com/page/5WeIFTzYujCvg/images/509e9cd5-3b3d-427f-ab85-7fe266bd8d40.png?asset_id=91daed20-925e-4468-8d08-7f099fd857ea&amp;img_etag=%2214fed86e46aa0242e4712bd91abee797%22&amp;size=1024)
-
-**尽管中共拒绝世界卫生组织官员对武汉病毒研究所进行有意义的访问，但中共政权现在呼吁对美国生物武器实验室进行调查。**
-
-据官媒《环球时报》报道，“在俄罗斯提出请求后，要求调查美国生物实验室的呼声越来越高”，来自俄罗斯和中共国政府的官员都“呼吁对美国神秘的生物实验室进行调查，以便更好地了解冠状病毒的起源。”
-
-“专家表示，对美国生物实验室的调查可能会提供病毒起源的线索；然而，美国继续无视国际社会对其神秘生物实验室的质疑，”该报道继续补充道，“有充分的理由相信美国正在这些实验室中开发生物武器，而且在这些实验室周围已经有爆发非典型性疾病的报道。”
-
-该媒体还援引中共国现代国际关系研究院研究员李伟的观点，他坚持认为“对美国生物实验室的彻底调查可能会提供病毒来源的线索。”
-
-除官媒外，中共国外交部发言人赵立坚等党政官员也“敦促美国对关注进行回应，并全面澄清美国境内外的生物军事化活动，同时停止阻挠《生物武器公约》规定的核查机制的建立。”
-
-🔗[原文链接](https://thenationalpulse.com/breaking/ccp-calls-for-us-lab-probe/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/5WeIFTzYujCvg/images/2a9217f7-1549-446e-bf57-9fb29741160d.jpg?asset_id=c85755a7-ef39-495d-b9c1-33549723da36&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/5WeIFTzYujCvg/images/2a9217f7-1549-446e-bf57-9fb29741160d.jpg?asset_id=c85755a7-ef39-495d-b9c1-33549723da36&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
-
-
+[2] [美国国务卿布林肯对“中国对台湾越来越多的侵略性行动”发出警告 – 路透社 – 2021/04/11](https://cn.reuters.com/article/usa-taiwan-china-0411-sun-idCNKBS2BZ012)
 
 0
