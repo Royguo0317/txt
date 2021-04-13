@@ -1,53 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【G时评】那些耳熟能详的洗脑句子（2）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1084793/)
+## 欧洲因中共病毒疫情死亡人数冲破百万
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1084837/)
 
-#### 作者/编辑：Giselle
-![]()![](https://gnews.org/wp-content/uploads/2021/04/习.png)
-图片来源：墨尔本雅典娜农场设计组（姐夫说说）
+俄罗斯莫斯科喀秋莎农场   银河
 
-**1，大树底下好乘凉**
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/D-3.jpg)postcourier.com.pg
+《法兰西24报道》，周一欧洲经历了100万中共病毒死亡人数的严峻里程碑。世界卫生组织(world Health organization)警告称，尽管采取了广泛措施来阻止感染，但感染人数仍继续增长。
 
-——小心鸟屎。
+世卫组织中共病毒的技术负责人玛丽亚·范·克尔霍夫(Maria Van Kerkhove)说，“我们现在正处于疫情的关键时刻”，这次大流行的轨迹正持续增长。
 
-**2，多一事不如少一事**
+迄今为止，中共病毒已经造成全世界293万多人死亡，近1.36亿人感染。
 
-——所以基本没你啥事。
+近期国际社会对追查中共病毒来源的呼声越来越高。《纽约邮报》专栏作家Steven W. Mosher发表了一篇题为《中共国对中共病毒起源撒的谎越来越离谱》的文章，文中指出美国国务院调查中共病毒源头工作组前负责人认为，病毒不仅来自武汉病毒研究所，而且是超限生物武器研究的结果。爆料革命闫丽梦博士更是对病毒来源与中共实验室提供了坚实的科学依据。
 
-**3，耳闻是虚，眼观为实**
+这是世界新秩序的分水岭，疫情导致国际经济秩序的崩塌，出现全球经济和人道主义危机及意识形态的碰撞。以毒灭共已经势不可挡，全球多个国家将集体向中共追责，消灭中共打造世界新秩序的时代已经来临。
 
-——你所听见的，都是他们希望你听见的；
+参考链接：
 
-你所看见的，都是他们希望你看见的。
+[https://www.france24.com/en/europe/20210413-europe-s-covid-19-death-toll-surpasses-one-million-as-cases-continue-to-rise](https://www.france24.com/en/europe/20210413-europe-s-covid-19-death-toll-surpasses-one-million-as-cases-continue-to-rise)
 
-所以，多想想，动动脑子。
+[https://nypost.com/2021/03/27/chinas-deception-over-covid-origins-more-outrageous-every-day/](https://nypost.com/2021/03/27/chinas-deception-over-covid-origins-more-outrageous-every-day/)
 
-**4，蜉蝣撼大树**
-
-——你说蜉蝣自不量力，那如何解释“蚁穴溃千堤”？
-
-**5，毫不利己，专门利人**
-
-——“己”是你的“己”，“人”是我的“人”。
-
-翻译成人话就是：毫不利你，专门利我。
-
-**6，深挖洞，广积粮，不称霸**
-
-——不称霸，你挖洞储粮干啥？当地鼠啊？
-
-**7，与天斗，其乐无穷；与地斗，其乐无穷；与人斗，其乐无穷。**
-
-——天、地、人，都是你的敌人，所以，你能不完球蛋吗？
-
-**8，革命战士是块砖，哪里需要哪里搬。**
-
-——你全家都是砖！
-
-你要上赶子去当一块砌猪圈的砖，赶紧去！
-
-（文章内容仅代表作者个人观点）
-
-+1
+0

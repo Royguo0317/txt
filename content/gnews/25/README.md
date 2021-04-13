@@ -1,49 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲大型连锁超市从中共国撤回购物纸袋生产线
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1085236/)
+## 【世事解評】黑山共和國深陷中共“一帶一路”巨債陷阱，求助歐盟遭拒
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1085322/)
 
-翻译与评论：Shirley
-![]()![](https://gnews.org/wp-content/uploads/2021/04/135.png)网络图片
-澳洲第二大连锁超市Woolworths已经开始在澳洲制造纸质购物袋。该公司在一份声明中表示，它已经与Detpak公司达成了一项价值数百万澳元的协议，将在国内生产购物袋。
+作者：紐約香草山健身部Jack Li文陽
 
-去年6月，Woolworths在推出纸袋后面临顾客的强烈反弹，一些愤怒的消费者在发现这些袋子是中共国生产的后，在社交媒体上抱怨。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
-“真是耻辱。当然不会用这些袋子了。“一个人在Facebook上写道。
 
-一些相关人士也表示，Woolworths并没有投资创造澳大利亚的就业机会。
 
-该公司的一位发言人当时表示，Woolworths本想提供澳大利亚制造的袋子，但国内没有一家制造商能够完成这项工作。
+據綜合報道，歐洲巴爾幹半島西南部的黑山共和國，身陷中共“一帶一路”龐大的債務危機，近來求助歐盟，以償還超過10億歐元的中共債務，遭到歐盟拒絕。
 
-澳洲民众对Woolworths使用中共国制造购物纸袋的愤怒反弹，源于澳大利亚外交部长佩恩（Marise Payne），在她去年四月公开呼吁世界卫生组织调查中共病毒的起源后，中共国开始对澳洲产大麦、铜、糖、牛肉、煤、龙虾、木材、葡萄酒、羊肉等实施制裁。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片27-2.png)
 
-在本周一的公告中，Woolworths表示，自去年年初以来，它已经与Detpak合作。生产规模将扩大，要足以供应公司在全澳各地的，数百家连锁超市的需求。
+2014年黑山與中共國進出口銀行簽約，貸款建造長達165公裏的高速公路以連接鄰國塞爾維亞，據悉這條尚未完成的高速公路估計成本爲每公裏2380萬美元，被認爲是世界上最昂貴的公路之一。
 
-公告说，维多利亚州、塔斯马尼亚州、西澳大利亚州、南澳大利亚州和北领地的顾客现在已经获得了澳大利亚制造的袋子。
+黑山共和國國曾是南斯拉夫的六個加盟共和國之一。2003年，南斯拉夫改名爲塞爾維亞和黑山。黑山在2006年宣布獨立，並在2017年加入北約。黑山的國土面積爲13000多平方公裏，人口約64萬。
 
-Woolworths超市董事总经理Natalie Davis表示： “纸质购物袋是我们产品系列的永久组成部分，我们正在与当地制造商Detpak合作，努力支持新的澳大利亚就业机会。 “
+有經濟專家警告稱，黑山目前的經濟狀況已無法承受這個基建項目帶來的高額債務。也有人擔心，債務問題將使黑山在國際局勢上難以擺脫中共國的擺布。
 
-此举在制造领域创造了25个新的本地就业机会。
+黑山共和國財政部長近日向歐盟求助償還貸款。他透露，這個項目是由上屆政府同意的，他坦言，該國的基礎設施依賴中共國的程度令人震驚。而這筆債務占該國總債務的1/4。不過歐盟表示，歐盟不會償還其向第三方的貸款。
 
-中共国的战狼式外交，激发了澳洲普通民众的爱国情结。民众自发抵制中共国制造产品，致使Woolworths这样的连锁超市不得不做出反应。相信澳洲的各行各业，都会将越来越多的产品带回到澳洲生产，而战狼外交的结局只能是自食苦果。
+位于美國華盛頓的智庫全球發展中心（Center for Global Development）出具的報告也指出黑山的債務問題嚴重，並把黑山列爲一帶一路沿線“最爲弱勢的八個國家”之一。
 
-（本文仅代表个人观点）
+中共通過藍金黃輸出“一帶一路”，向海外國家輸出國內過剩的産能，掠奪當地資源、能源和地緣政治優勢與話語權，用債務陷阱征服發展中國家。黑山負巨債修建的昂貴高速公路，對本國經濟並不會有什麽幫助，對老百姓更沒有什麽好處，因爲老百姓根本負擔不起高昂的過路費用。中共“一帶一路”的本質就是經濟殖民，發展中國家引進“一帶一路”無疑是引火燒身。中共能做的項目只能是建高速路、體育場館、鐵路等基礎設施，這些項目在落後國家根本就是高消費。這些國家最後必定會落入中共預設的陷阱，喪失經濟獨立性和政治獨立性。所以“一帶一路”就是一條不歸路，黃泉路，參加“一帶一路”的國家，必定會債台高築、喪權辱國、割地賠款、 淪爲中共的政治附庸國，成爲其打手。中共不滅，這些國家難以擺脫中共的魔爪，只有和正義聯盟聯合，共同滅共，才是其唯一的出路。
 
-*审稿：**Gradient Boost**编辑：**MG1*
+參考閱讀：
 
-新闻参考链接：
+[https://ec.ltn.com.tw/article/breakingnews/3497775](https://ec.ltn.com.tw/article/breakingnews/3497775)
 
-[澳洲新闻网](https://www.news.com.au/finance/business/retail/woolworths-to-make-paper-bags-in-australia-instead-of-china-after-customer-fury/news-story/02e66c683c18b00bf91a99db63bdc6d4)（英文）
+校對/發稿：飛虹
 
-[每日邮报](https://www.dailymail.co.uk/news/article-8386913/Woolworths-faces-massive-backlash-bringing-paper-bags-China.html)（英文）
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
-[ABC新闻之一](https://www.abc.net.au/news/2020-04-19/payne-calls-for-inquiry-china-handling-of-coronavirus-covid-19/12162968)（英文）
 
-[ABC新闻之二](https://www.abc.net.au/news/2021-01-03/heres-what-happened-between-china-and-australia-in-2020/13019242)（英文）
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+更多資訊，歡迎訂閱[美東香草山農場官方中文推特賬號](https://twitter.com/MosHimalaya_CN)！
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
-+2
+英文資訊，歡迎訂閱[美東香草山農場官方英文推特賬號](https://twitter.com/MosHimalaya)！
+
+更多視頻，歡迎關注[美東香草山農場官方YouTube賬號](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，歡迎浏覽[美東香草山GNEWS官方鏈接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山節目資訊，歡迎登陸[G|TV](https://gtv.org/) — [MOS Talk香草山訪談](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之聲](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+0

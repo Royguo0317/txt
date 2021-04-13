@@ -1,71 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共在其反美联盟中孤立无援
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1084908/)
+## 美国人对中国共产党的威胁和觉醒远远不够
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1083545/)
 
-翻译：康州盘古农场 – 柯镇恶
-校对：康州盘古农场 – Mike Li
-编辑：康州盘古农场 – 蓝精灵
+**简述：在2021年4月5日的GTV直播中，郭先生批评了美国私人公司的贪婪和对国家毫无责任感，可是皮之不存，毛将焉附？另外美国官员和执法部门的腐败、被中共的收买和无知使他们对共产党的威胁完全没有认识。随着美国经济和黄金出问题，共产党的以钱灭美计划、灭白计划、3F计划和“蓝金黄”的深度影响将逐渐会显现出来。**
+[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210405-live-p2.srt.txt)
+**美国人对共产党的威胁和觉醒远远不够**
 
-据《大纪元》，作者：Yang Wei，2021年4月10日发布
-![]()![](https://gnews.org/wp-content/uploads/2021/04/48716065-B07A-4D41-96E4-28EBBB427FA8.jpeg)
-中国共产党的高层领导人想赢得几个所谓的盟友来组成反美同盟，但发现自己一个人站在反美战线上孤立无援。表面上看，俄罗斯、朝鲜和伊朗似乎在帮助中共对抗美国，实际上他们正在将中共推到最前沿，每个国家都想借此机会为自己谋取利益。
+**Americans’ Understanding of the CCP’s Threat Is Far From Enough**
 
-**中共政权尴尬的孤立**
+这个国家现在是华尔街和好莱坞还有美国科技公司的腐败贪婪，它最终它要付出代价的。就像美国的私人公司 3M 公司在美国最需要口罩的时候，它就在电视上说：“欸，我没有义务给你口罩啊。”对呀，就像川普还有皮特纳瓦罗还有蓬佩奥都说美国是私人公司，私人公司一切向往利益，它完全不考虑政治。这是对的，按规则说是对的，但是这个国家要完了，你这私人企业也都完球蛋。他们太贪婪了，你跟共产党做生意，你去！
 
-据中共喉舌新华社报道，4月7日，习近平与德国总理默克尔进行了电话交谈。对中共而言，德国是西方阵营中最薄弱的一环。在国际经济不景气的情况下，中共高层领导人总是把德国作为他们的最后依靠。当中共与美国和欧洲直接陷入僵局时，习近平再次寄希望于德国。这次给德国领导人的电话表明，中共已经陷入国际孤立。
+The corruption and greed of Wall Street and Hollywood as well as Big Tech companies in this country will eventually make this country pay the price. Just like when the Americans needed masks the most, the private company 3M said on TV: “Hey, I have no obligation to give you masks.” Yes, it’s just like what Trump, Peter Navarro and Pompeo said: the United States is like a private company, and all private companies seek profits and don’t care about politics at all. That is correct. Theoretically, it is right, but if this country is going to be over, you, a private enterprise, will be over too. They are too greedy. If you want to do business with the CCP, just go ahead.
 
-新华社的报告主要涵盖了习近平在电话中所说的话：“他希望德国保持开放，为两国企业扩大互利合作创造更多便利。” “中国随时准备与欧盟合作……共同实行多边主义”和“促进公平合理的疫苗分发”。当然，习近平希望德国和欧洲不会与美国携手抗击中共。同时，他继续为德国公司画大饼，并大力宣传疫苗合作。
+美元都没了你啥都没了，什么美国的豪宅呀、自由女神啊、民主啊、信仰，想啥都没了。这个国家是高成本地运作，完全靠一个高成本、高质量法律体系，维护的就是一个问题——美元。美国唯一让美元能够存在就是美国的航空母舰、美国的强大的军队和国家的科技能力。当美元没有的时候美国军队就没了，美国军队没了美国的利益就没了，美国利益就没了，这些人才也不聚集美国了，美国就完了。那你说美国企业呢还有行吗？像Elon Musk这样的人他就不会待在美国，他弄不好迁都，把他公司迁到香港、去上海去了或者到欧洲去了。
 
-默克尔的反应是什么呢？新华社报道：“默克尔说，欧盟在外交关系中坚持独立。” 这样的声明至少表明，德国不会站在中共一边。实际上，日本和德国即将就外交与国防问题举行2 + 2部长级会谈。我不知道习近平和默克尔是否讨论过这个具体问题。新华社还表示，默克尔“希望在公平分配和相互认可COVID-19疫苗等问题上与中共保持沟通。”这种呼吁，没有太多共识，也没有实际结果，只是象征性的。这次电话会议只是揭示了中共在世界上的尴尬地位。
+When the U.S. dollar is gone, you will lose everything, including your mansions in the U.S., the Statue of Liberty, democracy, faith, and everything you can think of. This country operates at a high cost. It relies entirely on a high-cost and high-quality legal system to maintain just one thing – the U.S. dollar. The only thing the U.S. relies on to keep the existence of U.S. dollar is its aircraft carriers, its powerful military, and the its technological capabilities. When the U.S. dollar is gone, the military will be gone, and when the U.S. military is gone, the interests of America will be gone, and when the American interests are gone, the U.S. will never attract talents to come here, and then America will be done. Do you think American companies will still be okay? People like Elon Musk would not stay in the U.S. anymore. He could move his headquarters to Hong Kong, Shanghai, or Europe.
 
-**中共与伊朗相互利用**
+这是美国人他一定要意识到的，现在你看到美国这个下边的官员，不管这些执法部门的腐败到了什么程度。腐败、被收买和无知，对共产党的威胁完全没有认识。没有我们新中国联邦没有爆料革命美国人绝对达不到今天这个程度，今天美国人对共产党的威胁和觉醒远远是不够的。
 
-在3月27日，伊朗与中共签署了为期25年，涉及金额4千亿美元的战略和经济伙伴关系。这继续助长了中共正在进行的“一带一路”霸权计划。
+This is what Americans must be aware of. Now you see how severe the corruption of the officials in the U.S. government and all kinds of law enforcement agencies has become. Look at their corruption, how they’re being bribed, how ignorant, and how they totally have no idea about the threat of the CCP. If not for our New Federal State of China (NFSC) and Whistleblower Movement, definitely Americans would not reach the level of understanding that they have today. Nevertheless, Americans’ understanding of the threat of the CCP is still far from enough.
 
-中共当然希望利用伊朗及其支持的恐怖组织将美国军队进一步拖入中东，但是在美国新政府与伊朗于二月在叙利亚进行的第一轮间接试探性军事接触之后，伊朗并没有增加它对美国的军事挑衅。实际上，为了争取更大的利益，伊朗于4月7日开始与美国进行谈判。伊朗可能会将中共最近对太平洋地区向美国发起的大规模挑战当作讨价还价的筹码。
+这次美国经济出了问题、黄金出了问题，共产党的以钱灭美的计划和灭白计划和制造种族对立矛盾的计划和“蓝金黄”的深度逐渐会显现出来。
 
-美国新任国防部长劳埃德·奥斯丁（Lloyd Austin）在中东地区拥有丰富的实践经验，也应高度重视中东局势。但是，他没有提出增加中东部队的计划。相反，他正在执行一项从阿富汗撤军的计划。伊朗自然是不希望美军大规模部署在其周边地区。伊朗希望中共能够在太平洋地区更多地挑衅美军，这将减轻伊朗的压力，同时可能对美伊谈判有利。因为伊朗最终还是希望达成协议，而不是与美军开战。
+This time, the U.S. economy has encountered problems and the gold price has encountered problems. The deep effect of the CCP’s plan to destroy the U.S. with money and its plan to eliminate white people and to create racial conflicts and its BGY plot will gradually become apparent.
 
-**朝鲜光说不做**
+然后美国这两万亿美元所谓的基建和一万多亿美元的基建，这三万多亿美元都要从企业家的身上拿出来，企业家会再从这些穷老百姓手里拿回来。但这个过程它是需要时间的，它不是一天两天，它不像共产党一样把马云、马化腾是不是把这些老板全抓了，它做不到的，国家就没了。
 
-在阿拉斯加紧张的中美会议之后，中共立即与朝鲜进行了公开互动。朝鲜还进行了短程导弹试验。朝鲜甚至发表了对白宫的威胁声明。但是它没有对核试验发表过高调的要求，也没有发射高级远程弹道导弹。
+And then the so-called $2 trillion infrastructure plan and the additional over $1 trillion in infrastructure, a total of over $3 trillion must be taken from entrepreneurs, and entrepreneurs will take the money from the hands of the deplorables. But this process will need time; not one or two days. It will not be like the CCP robbing all the bosses such as Jack Ma and Ma Huateng. It [the U.S.] cannot be like that, otherwise, the country will be done for.
 
-朝鲜和中共继续轮流扮演威胁美国的角色，但朝鲜似乎知道见好就收。毕竟，美国新政府公开表示，它一直在尝试通过直接渠道与朝鲜进行沟通。朝鲜的最终目标是利用核武器作为谈判筹码，以实现与美国关系的突破。朝鲜很清楚，中共的实力不足以成为美国的对手，而朝鲜甚至没有资格挑战美国。金正恩知道，一旦与美国发生战争，他本人就会很快被斩首，他也不敢冒险。
+它要一个时间，在这个时间当中可能美国人就完全失去了世界第一经济强国、第一科技强国、第一军事强国、第一信用之国和信用美元体系全部崩塌。剩下的美国可能是哪儿叫美国，德州德克萨斯叫美国，美塔那、马塔那叫美国，爱荷华州，Idaho 就是黄石公园叫美国，其它都不叫美国，像什么纽约、洛杉矶啊估计都乱了。
 
-朝鲜真的不想为中共打一场代理人战争。如果中美冲突加剧，只要朝鲜不盲目冲动，它可能仍然有机会与美国破冰。相反，如果中美关系得到真正的缓解，朝鲜可能会成为被遗弃的棋子。因此，当中国航母再次冲向太平洋时，朝鲜保持沉默。
+It will need some time, but during this process, Americans will likely completely lose the world’s largest economic power, the largest technological power, the largest military power, and the number one creditworthy country, and the credible U.S. dollar system will completely collapse. The rest of the U.S. that may still be called America will be places like Texas, Montana, and Idaho – where the Yellowstone is. And the rest will not be America anymore, such as New York and Los Angeles, where I guess will be totally messed up.
 
-**俄罗斯也在利用中共**
+这就是共产党想要的，搞弱、搞乱、搞死美国、蓝金黄、三F方案、蓝金黄方案、灭白计划。这都是共产党是一系列的，从科恩，从IMF世界银行，从所有的，从国会，从情报部门儿，从司法部门，你看那 Higginbotham 那司法部的，就为了遣返郭文贵他能收几百万、几千万美元。
 
-俄罗斯的军事行动引起了美国的注意，但它们并没有帮助中共遏制美国军队。美国军方无意干预俄罗斯和乌克兰之间的任何可能的战争。相反，俄罗斯可能会利用中共与美国和西方的进一步对抗，来浑水摸鱼，试图解决与乌克兰的冲突。这是前苏联或独联合体的种族冲突，与美国的利益无关。当然，美国不想在任何地区看到战争，也不想俄罗斯任意破坏国际规则。
+This is exactly what the CCP wants – to weaken, to mess up, and to kill the U.S. (a.k.a., the 3F plan), to employ the BGY plot, and to exterminate the white people. These are a series of plans of the CCP, starting from Khan in the IMF World Bank (Dominique Strauss-Kahn, the former President of IMF), to the Congress, to the intelligence departments, to the Justice Department. You look at (George) Higginbotham in the Department of Justice, who accepted millions, tens of millions of dollars of bribes to just to repatriate me, Miles Guo.
 
-实际上，北约受到俄罗斯的影响更大，这实际上向北约欧洲国家敲响了警钟。面对迫在眉睫的威胁，乌克兰还表达了加入北约的愿望。俄罗斯已经明确表示不会与中共结盟。相反，它应该希望中共会更多地牵制美国军方。最好将两艘航母都拉到太平洋和南中国海。如果中共继续对欧盟采取敌对行动，俄罗斯侵略乌克兰的政治压力将大大减轻。
+刘特佐，你看刘特佐那什么概念，把马…大家还记得吧，马哈蒂尔上去了把纳吉布干掉了，人家纳吉布又派了个把马哈蒂尔干掉了，马哈蒂尔上来以后现在弄了个西丁外交部长，就是人家纳吉布的人家的亲表兄弟，人家纳吉布的亲表弟又回到北京，在刘特佐的安排下，孟建柱的私生子的安排下，公开在外交部喊：“王毅你是我大哥”，哈哈，共产党这邪恶到啥程度。
 
-我认为俄罗斯根本没有帮助中共对抗美国的打算。在中共四处制造的国际混乱中，俄罗斯正在努力增强自己的利益。
+Jo Low, you look at Jo Low. People may remember that Mahathir came to power to replace Najib, but Najib sent another one to replace Mahathir. After Mahathir came to power, he hired Hishammuddin (Hishammuddin bin Hussein) as the Minister of Foreign Affairs, who is the cousin of Najib. And this cousin of Najib’s went to Beijing, which was arranged by Jo Low, who is Meng Jianzhu’s illegitimate son, and publicly called Wang Yi in the Ministry of Foreign Affairs, “You are my elder brother.”  Haha, how evil is the CCP!
 
-中共希望赢得并利用俄罗斯、伊朗和朝鲜。虽然这三个国家私下对中共都有自己的承诺，但没有一个国家冲向反美主义的最前沿。只有中共自己最活跃。这三个国家实际上是在利用中共，不失时机地寻求自己的利益。
+你再看看阿拉斯加那个会面，大家我最起码我在那个YouTube上我看了三遍了，我认真地看了三遍。每一个字儿、每一句话都是精心的安排。每一个字儿、每一句话都是对美国的羞辱和侮辱。那个阿拉斯加的见面绝对等同于当年撒切尔夫人在北京跌倒那一跤。
 
-中共外交部长王毅最近还会见了韩国、菲律宾、马来西亚、新加坡和印度尼西亚的外交部长。当然，他试图将这些邻国吸引到中共一边。但是很明显，这些国家不太可能进入反美阵营。
+Please also look at the meeting in Alaska, everyone. I’ve watched it at least three times on YouTube, very carefully. Every word and every sentence was carefully written. Every word and every sentence is a humiliation and insult to the U.S. The Alaska meeting is absolutely equivalent to the incidence when Margaret Thatcher fell in Beijing years ago.
 
-韩国首尔刚刚同意提供财政支持，以支持美军在朝鲜半岛的广泛存在。马来西亚刚刚在南中国海与美军进行了联合军事演习。在菲律宾和新加坡都有美国军事基地。这些国家都依靠美国的军事保护。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=606b0c896e11a756edd89042](https://gtv.org/video/id=606b0c896e11a756edd89042) (1:14:01-1:18:38)
 
-当中共尝试与美国对抗时，这些国家正在利用这一机会来最大程度地受益，并避免冒犯任何一个国家。中共高层官员不能指望这些国家是反美的。他们只能试图向党内证明与这些国家的依然存在联系。当然，他们必须私下向这些国家付出高昂的代价。中共当局能做的也就只有这些了。
+鸣谢：感谢笑笑、YIMING（文鸣）、山川异域提供中文文本于 [https://gnews.org/zh-hans/1060270/](https://gnews.org/zh-hans/1060270/)
 
-中共的反美联盟显然未能成立，反而将自己推向了一个孤立的前线。
+* * *
 
-原文作者：Yang Wei
+字幕：【JennyL】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-发布时间：2021年4月10日
-
-原文链接：[https://www.theepochtimes.com/the-ccp-is-alone-in-its-anti-american-alliance\_3768605.html](https://www.theepochtimes.com/the-ccp-is-alone-in-its-anti-american-alliance_3768605.html)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-
-
-
-
-0
++1

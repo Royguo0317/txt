@@ -1,45 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】清明祭·英魂
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1085484/)
+## 布莱克本参议员表示中俄朝伊是邪恶轴心
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1085500/)
 
-作者：纽约香草山健身部Ivy001 配图：Lack Li文阳
+台湾宝岛农场 Amitofu
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/logo-5.jpg)
+美国田纳西州参议员马莎·布莱克本4月11日参加福克斯新闻直播，讨论拜登总统如何应对中共对台湾的威胁。马莎·布莱克本表示，我们都知道中共、俄罗斯、伊朗和朝鲜是新的邪恶轴心。中共非常激进的测试拜登政府。几代美国人已承诺保护台湾，我们将支持和保护民主。我们全球的盟友和印度太平洋地区的盟友都理解美国坚定争取民主的立场。
 
+拜登政府应该向台湾以及全球的盟友站在一起反对中共，中共侵入南海礁岛、武力统治台湾、打压香港的民主自由、一带一路债务外交、对新疆维吾尔族种族灭绝，试图建立一个中共帝国，就像旧苏联时期一样，这是我们必须保持专注的地方。
 
+[Sen. Marsha Blackburn: China is part of ‘new axis of evil’](https://www.foxnews.com/politics/marsha-blackburn-china-new-axis-of-evil)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片31-2.png)
+审核:Athena雅典娜 发布:Amitofu
 
-在一个四月天
-走十里路
-带一卷联邦旗
-选一颗百年花树
-燃一瓣心香
-注一壶清茶
-唱一曲Take down CCP
-许君一诺
-待到
-山河光复
-七芒星闪耀
-蓝旗飞扬时
-樱花树下祭香魂
-
-校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2.jpg)
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
 0
