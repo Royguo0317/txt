@@ -1,37 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “一带一路”使黑山深陷债务风险与环境威胁
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1085567/)
+## 【世事解评】中共威胁（1）——序言
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1085698/)
 
-拟稿：金生水
-![]()![](https://gnews.org/wp-content/uploads/2021/04/beltroad.png)图片来自网络
-据英国《金融时报》4月11日报道，黑山共和国近日向欧盟请求经济援助，以偿还一笔10亿美元来自中共国的贷款，用于一个尚未完成的高速公路项目，该项目严重损害了这个来自巴尔干西部小国的财政状况。
+作者：纽约香草山写作组 文尊
 
-2014年，黑山共和国与中国进出口银行（ExIm Bank）签署协议，以美元计价的近10亿美元的贷款，为这条公路成本的85％提供资金。 黑山共和国财政部长米洛伊科·斯帕希奇（Milojko Spajic）说，首个41公里路段，占总长度的四分之一，每公里造价2000万欧元，是世界上每公里造价最昂贵的高速公路之一。
-
-根据塞尔维亚媒体《Balkan insight》的一篇报道中指出在2019年6月当地著名监督机构（NGO MANS）便警告说中方施工队正在摧毁塔拉河，包括其受联合国教科文组织保护的地区。它说，桥梁的建造以及砾石和沙子的开采和处置严重破坏了河床。
-
-早在2016年该机构便督促本国政府可持续发展与旅游部门调查此项目，但检方坚称项目并未对环境造成重大破坏。“检察官的调查仅涉及在项目附近的建筑工地发生的破坏的一小部分，而真正受到环境破坏的部分仍然没有得到当局的足够重视。”来自NGO MANS的米诺瓦克（Dejan Milovac）表示。
-
-科拉辛镇（位于项目附近）的检方在新闻稿中表示：中方施工公司在未提交环境保护措施报告的情况下开始施工，对周遭环境造成了更大的破坏，这是违反法律的。
-
-回到经济角度来看，中共国持有黑山四分之一的债务，尽管高速公路的建设被严重拖延，但第一笔还款将于7月进行。如果黑山共和国违约，则合同条款赋予中共国获得黑山土地抵押的权利。不仅如此，黑山共和国政府之前还与中国财团签署了一份价值5400万欧元的合同，以购买该国的火力发电厂。
-
-与此同时，黑山共和国政府正在与北京方面就另一笔价值1.27亿欧元的未偿还债务进行谈判。该国财政部长表示对于基础设施建设目前黑山依赖中共国，这从地缘政治角度考虑并不合理，黑山必须和欧盟盟友保持更紧密的联系，尤其是在经济方面。
-
-来自牛津大学的学者特纳·普雷莱茨（Tena Prelec）说：“欧盟应该介入，黑山共和国是欧盟的后院，欧盟必须拿出行动证明自己是一个地缘政治的参与者”。
-
-文章内容仅代表个人观点
-
-参考链接：
-
-[Montenegro calls for EU help over $1bn Chinese highway loan](https://www.ft.com/content/3dd7a516-5352-4f48-bfac-236e43b2342d)
-
-**[Montenegro Probes Chinese Highway Builder’s Damage to Protected River](https://balkaninsight.com/2021/03/03/montenegro-probes-chinese-highway-builders-damage-to-protected-river/)**
-
-*审核：Runaway*
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
 
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片38-2.png)*5G之战是阵地战，也是决定是否由共产集权来统治世界的终极战。 图源网络*
+
+今时今日，中共的霸权主义已在世界崭露头角，迅速成长起来的第二经济实体已经开始平视美国。借着“一带一路”的阴谋和5G市场的争夺之战中共已经让美国面临着继独立战争、南北战争、一战二战及冷战后的最大威胁。 当中共的华为4G已在全球170个国家覆盖并运行的时候，美国的电信公司却主要覆盖在本土和南美少数国家。资本主义的美国商人一边享受着自由民主的空气，一边在自由市场的土地上贪婪地赚取着本土财富。然而，共产主义的中共却在进行着全球的扩张，意图统治世界。
+
+2020年，当中共以一国之力支持着华为在全球进行5G布局时，美国这边还在等待国防部批准释放100兆赫（MHz）的连续中频段频谱用于商业5G。如果没有爆料革命，如果没有觉醒的美国人，不得不说中共的阴谋差点得逞。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片40-2.png)
+
+不可否认的是，作为一战、二战和冷战利益收获国的美国，长期以来出于资本主义本能对利益的追逐与贪婪，一度因骄傲自满而放松了对共产主义势力威胁的警惕心。擅于伪装的共产主义总是言行不一，以毛、邓为代表的中共领导人一方面在国际上示弱以获得美国的资助，另一方面在国内却发动宣传机器示强，利用人民的爱国主义自导自演一部强国富民的励志大片，背后却在精心策划着一场霸权世界的阴谋。 真正的中国梦实际上是霸权世界的梦想。在美国的帮助下，中共国加入WTO，再借着2008年奥运的东风，迅速成长为第二大经济强国。 她的表面浮华一度蒙蔽了世人，甚至让人开始崇拜社会主义集权，就连美国这样的民主社会的灯塔也出现了分化，认为中共国是可以培养的社会主义，是会对世界有利的共产主义。然而，共产主义开始变本加厉地诱敌深入，不断利用“蓝金黄”绑架各个阶层，抓住人性的弱点摧毁人的道德观。这场中美之战从贸易战演变为阵地战，最后的时刻不仅是共产主义与资本主义的较量，更是正义与邪恶的终极之战。
+
+中共是一毒物，凡是剧毒的物体都特别善于用绚丽的外衣来伪装自己。它也是一个聪明的癌细胞，从未停止过侵蚀健康细胞，只要一有机会他就会立马附着上去直至摧毁整个机体。
+
+（待续……）
+
+相关文章/视频链接：
+
+【热点播报】“大重构” 是拯救世界还是惊天大阴谋 – GNEWS
+
+【世事解评】保护亚裔行政令—似曾相识的历史重现 – GNEWS
+
+[【世事解评】共产主义蚕食世界（一）- 共产主义遍及全球 – GNEWS](https://gnews.org/zh-hans/860316/)
+
+[【世事解评】共产主义蚕食世界（二）——文化渗透的九层妖塔：好莱坞 – GNEWS](https://www.gnews.org/zh-hans/879129/)
+
+[【世事解评】共产主义蚕食世界（三）提名“黑命贵”的无耻篇章 – GNEWS](https://gnews.org/zh-hans/854281/),
+
+[【世事解评】共产主义蚕食世界（四）——精英集团 – GNEWS](https://www.gnews.org/zh-hans/879575/)
+
+[【世事解评】共产主义蚕食世界（五）—共产主义的圈套：文化与环保 – GNEWS](https://www.gnews.org/zh-hans/916325/)
+
+【世事解评】共产主义蚕食世界（六）- 环保主义与灭资计划
+
+【世事解评】共产主义蚕食世界（七）- 中共壮大的历史根源
+
+【世事解评】共产主义蚕食世界（八）- 盗国计划席卷全球
+
+【世事解评】共产主义蚕食世界（九）——共产主义的圈套：全球化与世界政府
+
+【世事解评】共产主义蚕食世界（十）——共产主义如何摧毁家庭
+
+*《盘古相聚》精彩直播*
+
+[https://gtv.org/video/id=5ff67170f579a75e0bc8c7e4](https://gtv.org/video/id=5ff67170f579a75e0bc8c7e4)
+
+[https://gtv.org/video/id=5fffac13f579a75e0bd6bbe3](https://gtv.org/video/id=5fffac13f579a75e0bd6bbe3)
+
+[https://gtv.org/video/id=6008e5f0f579a75e0be49070](https://gtv.org/video/id=6008e5f0f579a75e0be49070)
+
+[https://gtv.org/d2f68941-9fc0-44da-adbe-1e1139a46d6f](https://gtv.org/d2f68941-9fc0-44da-adbe-1e1139a46d6f)
+
+[http://gtv.org/video/id=601b58ea3f8a013ab47bbd5a](http://gtv.org/video/id=601b58ea3f8a013ab47bbd5a)
+
+[http://gtv.org/video/id=6041406794761a708f1aaa1a](http://gtv.org/video/id=6041406794761a708f1aaa1a)
+
+[http://gtv.org/video/id=604042cc94761a708f19dbdd](http://gtv.org/video/id=604042cc94761a708f19dbdd)
+
+[https://gtv.org/video/id=60497d1075e88a51e6ea3473](https://gtv.org/video/id=60497d1075e88a51e6ea3473)
+
+[https://gtv.org/video/id=605be465a26ac57138e470b6](https://gtv.org/video/id=605be465a26ac57138e470b6)
+
+[https://gtv.org/video/id=606e599b6e11a756eddb8a9f](https://gtv.org/video/id=606e599b6e11a756eddb8a9f)
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

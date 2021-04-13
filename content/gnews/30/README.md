@@ -1,62 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共国是邪恶轴心国之首！
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1085204/)
+## 澳洲大型连锁超市从中共国撤回购物纸袋生产线
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1085236/)
 
-作者：纽约香草山福音部 能灯山神
+翻译与评论：Shirley
+![]()![](https://gnews.org/wp-content/uploads/2021/04/135.png)网络图片
+澳洲第二大连锁超市Woolworths已经开始在澳洲制造纸质购物袋。该公司在一份声明中表示，它已经与Detpak公司达成了一项价值数百万澳元的协议，将在国内生产购物袋。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
+去年6月，Woolworths在推出纸袋后面临顾客的强烈反弹，一些愤怒的消费者在发现这些袋子是中共国生产的后，在社交媒体上抱怨。
 
+“真是耻辱。当然不会用这些袋子了。“一个人在Facebook上写道。
 
+一些相关人士也表示，Woolworths并没有投资创造澳大利亚的就业机会。
 
-美参议院布莱克本在福克斯采访中称中共国是邪恶轴心国之首。
+该公司的一位发言人当时表示，Woolworths本想提供澳大利亚制造的袋子，但国内没有一家制造商能够完成这项工作。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片25-2.png)
+澳洲民众对Woolworths使用中共国制造购物纸袋的愤怒反弹，源于澳大利亚外交部长佩恩（Marise Payne），在她去年四月公开呼吁世界卫生组织调查中共病毒的起源后，中共国开始对澳洲产大麦、铜、糖、牛肉、煤、龙虾、木材、葡萄酒、羊肉等实施制裁。
 
-“邪恶轴心国”是小布什2002年提出的概念，指支持恐怖主义的国家，当时包括伊拉克、朝鲜和伊朗。这个观点公布后没多久美国对伊拉克开战。
+在本周一的公告中，Woolworths表示，自去年年初以来，它已经与Detpak合作。生产规模将扩大，要足以供应公司在全澳各地的，数百家连锁超市的需求。
 
-布莱克本说：“ 中共政府的目标就是要建立一个全球的帝国，美国必须保卫台湾，保卫民主制度。我们知道中共具有侵略性，我们全球的盟友都得到了这一信号，一起对付中共要对台湾的侵略，中共比前苏联具有更大的威胁。”
+公告说，维多利亚州、塔斯马尼亚州、西澳大利亚州、南澳大利亚州和北领地的顾客现在已经获得了澳大利亚制造的袋子。
 
-中共是邪恶轴心国之首在美国的媒体引起巨大的反应，这个标签让中共与伊拉克并排在一起。前期路德社说过“中共参与大规模杀伤性武器研究”，萨达姆当时也是大规模杀伤性武器，伊拉克之所以被称为邪恶轴心国，对伊拉克动武的最重要的理由不是支持恐怖主义，而是“大规模杀伤性武器”。
+Woolworths超市董事总经理Natalie Davis表示： “纸质购物袋是我们产品系列的永久组成部分，我们正在与当地制造商Detpak合作，努力支持新的澳大利亚就业机会。 “
 
-美国为什么不对伊朗、朝鲜动手，因为有些东西是你不能碰的底线，这就是大规模杀伤性武器。中共支持恐怖主义美国有其他办法打击，但你研究大规模杀伤性武器超限战病毒，触碰了不能做的底线，中共病毒“就是大规模杀伤性武器”。这一极端行为触犯了这个底线，中共全世界放病毒、又结盟、又称霸的结果就是要付出代价，一旦发现你越过这个底线必须灭掉！所以伊拉克萨达姆必须被灭掉。换言之，中共的下场也大抵如此。
+此举在制造领域创造了25个新的本地就业机会。
 
-* * *
+中共国的战狼式外交，激发了澳洲普通民众的爱国情结。民众自发抵制中共国制造产品，致使Woolworths这样的连锁超市不得不做出反应。相信澳洲的各行各业，都会将越来越多的产品带回到澳洲生产，而战狼外交的结局只能是自食苦果。
 
-路德社其他最新时事分享：
+（本文仅代表个人观点）
 
-1. 前美国家情报总监福克斯采访称现任政府必须找出病毒来源答案！
+*审稿：**Gradient Boost**编辑：**MG1*
 
+新闻参考链接：
 
-2. 根据严丽梦博士的第三份报告，“超限科学误导”中共病毒的来源线索都已明确，为什么中共如此害怕用媒体超限战搅浑水，因为美国官方一旦验证，中共必结束！这就是郭先生常说的“以毒灭共”。
+[澳洲新闻网](https://www.news.com.au/finance/business/retail/woolworths-to-make-paper-bags-in-australia-instead-of-china-after-customer-fury/news-story/02e66c683c18b00bf91a99db63bdc6d4)（英文）
 
-3. 中共25架次战机骚扰台湾放空识别区！
+[每日邮报](https://www.dailymail.co.uk/news/article-8386913/Woolworths-faces-massive-backlash-bringing-paper-bags-China.html)（英文）
 
-【新中国联邦】
+[ABC新闻之一](https://www.abc.net.au/news/2020-04-19/payne-calls-for-inquiry-china-handling-of-coronavirus-covid-19/12162968)（英文）
 
-爆料革命‼️唯真不破‼️
+[ABC新闻之二](https://www.abc.net.au/news/2021-01-03/heres-what-happened-between-china-and-australia-in-2020/13019242)（英文）
 
-正道主义‼️万佛万神‼️
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-敬畏万物‼️感恩天地‼️
-
-同心同德‼️与善同在‼️
-
-校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpg)
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-0
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
++2
