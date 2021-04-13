@@ -1,31 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 前防长预警澳正处在被中共卷入战争的边缘
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1089818/)
+## 【热点播报】美国食品和药物管理局（FDA）宣布暂停使用强生中共病毒疫苗
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1089936/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+作者：香草山写作4组 兰兰 ； 雪梨
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/A-15.jpg)news.com.au
-周一（4月 12 日），澳洲前防长派恩（Christopher Pyne）预警，随着台海局势日益恶化，澳洲正处在被中共卷入战争的边缘。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS1984-【热点播报】美国食品和药物管理局（FDA）宣布暂停使用强生公司中共病毒疫苗.jpeg)
 
-据澳洲广播公司报导，周一在阿德莱德大学法学院发表演讲时，这位经验丰富的外交军事家向学生们表示，如今在印太（印度洋-太平洋）地区发生 “热战”（kinetic war）的可能性比他 2016 年被任命为国防工业部长时要高得多。
+据[纽约邮报](https://nypost.com/2021/04/13/us-will-temporarily-stop-using-johnson-johnsons-covid-19-vaccine/)4月13日报道，因接种强生中共病毒疫苗引发血栓病例，美国食品和药物管理局（FDA）宣布暂停使用强生疫苗。FDA说：“出于谨慎考虑，我们建议暂停使用该疫苗。” “这种特定类型的血栓的治疗不同于通常可能进行的治疗。”
 
-派恩总结了中共国大规模增加军费的情况。“虽然美国的军费开支仍占全球军事开支的二分之一，但中（共）公布的国防开支在 2021 年将达到（惊人的） 2100 亿美元。” 和平时期，没有哪个国家会主动增加国防开支。更为可怕的是“中共军队完全具备与美国及其在西印度洋-太平洋和东南亚岛链周围的盟国展开一场不对称战争的能力，澳洲就是盟国成员之一。”
+一位联邦官员告诉[CNN](https://www.cnn.com/2021/04/13/health/johnson-vaccine-blood-clots-cdc-fda/index.html)，疾病预防控制中心（CDC）和美国食品药品管理局（FDA）正在认真研究血栓和强生疫苗的问题，并努力收集数据。
 
-中共既有成为世界霸主的野心，又漠视人权和世界规则。“中共的战略姿态已不像过去那样温和，他们毫不隐讳地展示自己的实力。”这是真正的战争，而战争就会涉及生命、军事设施的破坏和侵略者及爱国者。
+报告显示，在接种强生疫苗后，美国联邦卫生机构共收到6例血栓病例，均为女性，年龄在18至48岁之间，她们在接种疫苗后约两周内出现血栓。其中，1人死亡，1人病危住院。
 
-北京当局在镇压香港运动和对待中共国维吾尔族少数民族的问题上不但展示了他们的军事实力，更展现出他的残酷无情和对生命的漠视。
+据悉，因接种强生疫苗，欧洲卫生部门已经报告了“四起严重的不寻常血栓病例”。欧洲当局表示，他们仍在调查这些病例，“目前尚不清楚”疫苗与血栓之间是否存在因果关系。
 
-派恩说，最令人担忧的是，中共向台湾所施加的军事政治压力，令台湾时刻处于战争危机之中 。台湾现已成为印太区域最有可能爆发局部战争的地方。尽管上个月美国印太司令部司令、海军上将戴维森（Philip S Davidson）说，美国必须保护其太平洋领土不受中共可能的入侵，但中共连日来频繁派增派军机扰台，凸显其武统台湾的决心。
+在美国，疫苗犹豫症已经是一个问题。在美国卫生官员鼓励人民尽快接种疫苗的时候，这些与强生疫苗有关的血栓病例的新闻报道可能会使一些美国人对接种疫苗更加犹豫。CDC和FDA的官员正在思考，如何在不给人造成强生疫苗可能有问题的印象的情况下，就这个问题进行沟通。
 
-派恩认为，未来十年内，亚太地区有可能发生一场涉及中共国的 “真正战争”。“这不是危言耸听，这是你我在未来 5 到 10 年内很可能要面对的事情。”
+强生公司在一份声明中表示，其对副作用的追踪显示，“接种疫苗后出现了少数非常罕见的事件”。目前，这些罕见事件与强生COVID-19疫苗之间尚未建立明确的因果关系。
 
-参考链接：
 
-[1] [War involving China in the Indo-Pacific region highly likely, warns Christopher Pyne – news.com.au – 2021/04/13](https://www.news.com.au/technology/innovation/military/war-involving-china-in-the-indopacific-region-highly-likely-warns-christopher-pyne/news-story/94533d769d72f42558f6db85062c90a1%20)
 
-[2] [澳洲前防长警告中共恐在印太地区引发战争 – 大纪元 – 2021/04/13](https://www.epochtimes.com/b5/21/4/13/n12876039.htm)
+编辑/审核/发稿：雪梨
 
-0
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
++1
