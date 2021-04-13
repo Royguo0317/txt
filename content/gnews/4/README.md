@@ -1,38 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【各抒己见】平时看不见偶尔露狰容
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1084435/)
+## 【热点播报】五角大楼正在研发植入皮下的芯片以检测和清除CCP病毒
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1084571/)
 
-作者：喜马拉雅东京樱花团 / 待命（文晓）
+作者：香草山农场  Delilah小胖
 
-![](https://lh6.googleusercontent.com/7pNC8pMLN-kLieSaVjyeUS9M5BiA1wk9HKV6JN3P8hqpRL-q9qtDFTioV3ntrCvSD_k4pGVfvRZGPnn_81iv8g7YVnPLELIyG2xLbtof1rVDoxL2obpycktOMxz3xx19O9-86QHh)
-图片源自【为保护在日同胞财产安全，使馆官方带大家破解诈骗新套路！】
+据populist.press网站2021年4月12日头条报道，美国五角大楼的科学家正在一个始建于冷战高峰期的实验室进行一项研究。这项研究是将芯片植入人体皮肤内。该芯片可检测到CCP病毒（COVID-19）感染。该研究还包含一个革命性的过滤器，如果把这个过滤器跟透析机相连接，还会从人体的血液中过滤掉CCP病毒。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screen-Shot-2021-04-12-at-10.41.49-PM.png)图片来源：https://www.dailymail.co.uk/news/article-9460389/Pentagon-scientists-invent-microchip-senses-COVID-19-body-symptoms.html
+这听起来真够酷的，对吧？
 
-笔者曾于4月2日撰文【这是谁建的，以什么为目的的公众号？】投稿Gnews，提出了对名为“在日华人圈”这个微信公众号的怀疑，质疑它是受中共指使、有目的的发文平台。昨晚，这个公众号再次发文【日本不顾舆论谴责决议排放福岛核废水入海，将影响几何？】和【为保护在日同胞财产安全，使馆官方带大家破解诈骗新套路！】两篇。但这次，两篇文章本身不是笔者写这篇文章的目的。写这篇文章，是因为当笔者点开【为保护在日同胞财产安全，使馆官方带大家破解诈骗新套路！】这篇文章时，看到了一行令笔者吃惊的文字。
+这个研究团队隶属于国防高级研究计划局（Defense Advanced Research Project Agency，简称“DARPA”),他们已经在阻止和终止大流行病方面进行了多年的研究。
 
-这个公众号的文章，通常在文章题目与正文之间有一行，靠左侧显示蓝色文字“在日华人圈”链接。可昨晚，当笔者点开这篇文章时，却显示的是“驻日大使馆在日华人圈”。笔者大吃一惊，情急之下以为是自己之前大意，没有留意到“驻日大使馆”这几个字，急忙打开之前这个公众号的文章确认，结果，之前的文章的确是只有“在日华人圈”几个字。又打开昨晚同时发的另一篇【日本不顾舆论谴责决议排放福岛核废水入海，将影响几何？】，结果也是只有“在日华人圈”几个字。于是，马上返回刚刚发表的这篇文章截图（上图）为证。
+这个研究小组对研究案例进行评估，然后找出巧妙的解决方案。这些解决方案堪比科幻小说，而不是一般的工作实验室。
 
-庆幸自己四年来跟随文贵先生练就了火眼金睛，这下不用猜了，彻底明白了，可以确定了，这是驻日中国大使馆的微信公众号。请留意它的宣传用语: “2013年成立，以华人团结、互助为口号…，5年间发展了10万华人粉丝…，现已成为日本最具影响力华人公益组织。70万华人最信赖公益平台”。绝对的中共语气、绝对的中共傲慢，连标点符号都写错的，绝对的中共拙劣文笔。另外，文章中也有多处文法错误，请大家认真看看如下配图，图中有【日本不顾舆论谴责决议排放福岛核废水入海，将影响几何？】这篇文章中的文法错误实例。会不会是中共下达的任务太急，连校对都没做就发表了？以至于把真名“驻日中国大使馆”都给暴露出来了。假如有一天这个公众号意识到出错了，会不会删除“驻日大使馆”这几个字？说不定。
+这个研究小组在一个周日晚间的叫做“60分钟（60 Minute)”的访谈中，谈到他们最近的一项研究是他们用芯片在人体内探测新冠病毒，而且是在发病之前就探测到。
 
-![](https://lh4.googleusercontent.com/3IZ3rjgvzmptwUf3chR8LYrGd3o1oinCWwIKNENs-GZnogH8vSLDIehGwLw3lC6Ft_CKN-d-CtDcKgBGWYdUclptFPSBQ440tROnUNJWDZGeRZ5-h2SenOCtf9nR-gOVMhdSQ47b)
+更多细节报道，请参见如下链接，笔者也将做进一步的跟进报道。
 
-（文法错误实例之一，截图于【日本不顾舆论谴责决议排放福岛核废水入海，将影响几何？】）
+[https://www.dailymail.co.uk/news/article-9460389/Pentagon-scientists-invent-microchip-senses-COVID-19-body-symptoms.html](https://www.dailymail.co.uk/news/article-9460389/Pentagon-scientists-invent-microchip-senses-COVID-19-body-symptoms.html)
 
-![](https://lh3.googleusercontent.com/tKTLaFV5Tyxl7I_O14Pvj661q8s_u9wT2vAB3wERBMa1ogtzOzbQHMO2o1qzmOYqjM2BcgaBHERbi8bcjyShgbCJEz4lSbGVTC_EREDP4xGCQmuZHriT1agca2cHvl7nyFZZU2vD)
+引用来源：[https://populist.press/the-pentagon-is-now-prepared-to-chip-americans/](https://populist.press/the-pentagon-is-now-prepared-to-chip-americans/)
 
-（文法错误实例之二，截图于【日本不顾舆论谴责决议排放福岛核废水入海，将影响几何？】）
+审核/发稿：正义的小新
 
-再次提醒大家，这个公众号叫做“在日华人圈”。
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
 
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-*校对：喜马拉雅东京樱花团 / 東洋武士*
-*责任编辑：喜马拉雅东京樱花团 / 文小白*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews.org/wp-content/uploads/2021/04/二维码.jpg)
-0411C060c
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0
