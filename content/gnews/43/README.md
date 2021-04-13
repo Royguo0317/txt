@@ -1,51 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104012（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1083789/)
+## 2021年4月12日灭共要闻快报
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1083947/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+重点内容：
 
+***Paypal***联合创始人：比特币是中共对抗美国的金融武器；
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+浙江台州医护开始跳***“***打疫苗舞***”***！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01-1.jpg)
+中共官员普遍躲避国产疫苗；
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02-1.jpg)
+中共罚阿里巴巴***188***亿；
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03-1.jpg)
+邪恶体制缩影：卡车司机痛斥交管部门敛财政策
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-4.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-3.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
+**By**：【秘翻组**–**上天造灭疫组】
 
 0

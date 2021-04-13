@@ -1,49 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 第三期，新中国联邦战友人物周刊
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1084503/)
+## 【热点播报】五角大楼正在研发植入皮下的芯片以检测和清除CCP病毒
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1084571/)
 
-**编辑：木子，设计：木子，图片：卡卡西**
+作者：香草山农场  Delilah小胖
 
-**郭先生**
+据populist.press网站2021年4月12日头条报道，美国五角大楼的科学家正在一个始建于冷战高峰期的实验室进行一项研究。这项研究是将芯片植入人体皮肤内。该芯片可检测到CCP病毒（COVID-19）感染。该研究还包含一个革命性的过滤器，如果把这个过滤器跟透析机相连接，还会从人体的血液中过滤掉CCP病毒。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screen-Shot-2021-04-12-at-10.41.49-PM.png)图片来源：https://www.dailymail.co.uk/news/article-9460389/Pentagon-scientists-invent-microchip-senses-COVID-19-body-symptoms.html
+这听起来真够酷的，对吧？
 
-**摘要：**七哥从二零一七年爆料就告诉大家，共产党的一带一路，所谓的马六甲战略计划，还有吉布提军事基地，包括在中东的军事基地，还有对伊朗的核心战略，甚至包括对所有的一带一路、二零二五、二零三五的规划，核心目的就是干掉美元。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/image003-14.jpg)
-**闫丽梦博士**
+这个研究团队隶属于国防高级研究计划局（Defense Advanced Research Project Agency，简称“DARPA”),他们已经在阻止和终止大流行病方面进行了多年的研究。
 
-**摘要：**做动物实验的时候，很多东西虽然可以模拟，但它终归不是人。通过小老鼠用基因编辑方式把它体内的ACE2受体替换成人的，也就是说老鼠本来和人一样，全身各个器官、血管里面都有这个受体，但它是老鼠受体，多少和人有些不同。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/image005-8.jpg)
-**路德先生**
+这个研究小组对研究案例进行评估，然后找出巧妙的解决方案。这些解决方案堪比科幻小说，而不是一般的工作实验室。
 
-**摘要：**路德先生结合Gnews医学界业内战友的文章分析，闫博士提出的“不受限制的科学误导”展示了某些个人执行的掩饰行为和闫博士团队合力揭露中共病毒的努力，也自证了CCP《超限生物战》（科学领域）的著作。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/image007-17.jpg)
-**安红女士**
+这个研究小组在一个周日晚间的叫做“60分钟（60 Minute)”的访谈中，谈到他们最近的一项研究是他们用芯片在人体内探测新冠病毒，而且是在发病之前就探测到。
 
-**摘要：**之前中共国的科学家也曾经发现过胰岛素、衣原体病毒，可以说是在生物学上曾经在国际上占有一些地位，但是中共国制下的科学家们，要不死于非命，要不一个人的成果若干人来分，最终消失在浩瀚的人海里，真的不知道他们是谁。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/image009-10.jpg)
-**博博士**
+更多细节报道，请参见如下链接，笔者也将做进一步的跟进报道。
 
-**摘要：**乌克兰现在催促北约，赶紧把乌克兰的北约成员国身份的批准赶紧给批下来，这才是对于俄罗斯最强有力的响应，为什么呢？因为乌克兰不是北约的成员国，但是它是属于想要加入北约的国家，然后申请已经交了。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/image011-5.jpg)
-**艾丽女士**
+[https://www.dailymail.co.uk/news/article-9460389/Pentagon-scientists-invent-microchip-senses-COVID-19-body-symptoms.html](https://www.dailymail.co.uk/news/article-9460389/Pentagon-scientists-invent-microchip-senses-COVID-19-body-symptoms.html)
 
-**摘要：**卡扎菲声称利比亚是社会主义国家，是他自己定义的“绿色主义”。他的“绿皮书”，其实与环保、自然没有任何关系，他主张所有官员要为人民服务，所以不能有任何头衔，包括他自己。
+引用来源：[https://populist.press/the-pentagon-is-now-prepared-to-chip-americans/](https://populist.press/the-pentagon-is-now-prepared-to-chip-americans/)
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/image013-4.jpg)
+审核/发稿：正义的小新
 
-**墨博士**
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
-**摘要：**中共各个部委非常忙碌，为了反美和反西方不遗余力搞事端，为了让习总加速师满意。但实际是为了掩盖西方世界开始在各个领域与中共国全面脱钩的事实。但这些急于表现的官员却忽略了习总加速师并没有就这些问题有明确的表态
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/image015-3.jpg)
-**冠博士**
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
 
-**摘要：**两份报告依次出台以毒灭共，开启到一个新阶段。两份报告一个是WHO和中共演戏的报告，另一个是闫博士第三份报告正式出台。WHO报告是中共想要演戏骗全世界，搞了一出闹剧。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/image017-3.jpg)
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
 
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-审核：玫瑰天空
-
-上传：糊糊文婴
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

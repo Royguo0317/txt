@@ -1,38 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】追求幸福与灭共事业
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1084174/)
+## 【热点播报】中共打算在七月前攻打台湾控制的东沙岛
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1084330/)
 
-作者：纽约香草山写作二组 文雨清风
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+作者：纽约香草山农场 Billwilliam
 
 
 
-对《大话西游之大圣娶亲》这部电影，大家应该是耳熟能详了。在电影中，孙悟空在时空的轮回中执迷于对白晶晶的“错爱”，一次又一次地伤害了真爱他的紫霞仙子，等他明白这一切的时候，却没有选择跟紫霞在一起，而是跟随唐三藏去西天求取真经了。孙悟空历经苦难之后，方得顿悟：世间人人皆苦，所谓我佛慈悲，我不下地狱谁下地狱。为度世间人的苦难，他毅然决然踏上了去西天的路途。这让我想起郭文贵先生的人生境遇，他在中共国这个“大粪坑”里沉浮，人生大起大落。他深知这些苦难的由来和根源，却没有选择与魔鬼共舞或偏安一隅，而是少年知事，卧薪尝胆，汇聚八方英才，担起救民于水火的历史使命，也成就了战神可敬可佩的人生和信仰。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-![]()![](https://media.discordapp.net/attachments/721544615953432698/827333039515238470/image0.png?width=1083&amp;height=609)
 
-由此，我想谈谈我对灭共与追求幸福之间关系和必然关联的理解。
 
-追求幸福是我们每个人的天赋人权，也是我们每个人此生最终的目的。从这个意义上说，灭共不是我们的终极目标，幸福才是。
+印度新闻媒体WION视频报道称，中共解放军打算在今年7月前占领台湾西侧的东沙岛。该岛礁目前由台湾，或者说中华民国控制。那么，中共武力夺岛的举动可能会引发小规模的冲突甚至交火。
 
-但不幸的是，我们生活在CCP治下的中国，每个人都生活在人与人、人与自然撕裂的关系里，生活在谎言、仇恨和暴力的循环中，苦苦挣扎。而幸运的是，有我们新中国联邦人勇敢地站出来，向CCP强加的命运说“不”。我们懂得，所有人都被这个邪恶的共产体制绑架了，人人自危，更遑论幸福。所以，我们明白幸福的真谛和珍贵，我们能做到心中没有恨，只有爱。我们懂得不管是被体制压迫的“草根”，还是既得利益者，没有人不是生活在不安、焦虑和黑暗中。
+东沙岛位于台湾西南，距离香港很近，距离高雄市275英里，岛上驻扎有台湾的海军陆战队。自2020年以来，中共军用无人机一直在骚扰该水域。台湾回应称，在必要情况下会击落中共的无人机。目前，台湾派遣F-16战机在该岛附近巡逻。[1]
 
-既然把追求幸福作为人生的终极目的，我们就需要给幸福下一个定义。在我看来，一个拥有幸福的人，最重要的就是对自己命运拥有掌控感。现在是科技的时代，是信息大爆炸时代，社会对我们每个人能力的最大考验，是看我们是否拥有获取信息的渠道，能否对信息进行甄别、整理和总结，并在此基础上对自己的真实处境做出正确的判断，对自己的行为才做出正确的选择，把握自己的命运。其核心和实质就是能否获得真相！但是，CCP伙同世界的邪恶力量，在真相之上盖了“九层妖塔”，妄图掩盖真相，用虚幻的谎言和假象迷惑、操控和奴役我们。由于CCP拥有的庞大的资源、无限的权力以及国家机器，普通人难以与之抗衡和匹敌，因而在他们的操控下，获得真相和真理的代价巨大，远超一个正常人的想象。也因此，CCP是我们追求幸福道路上必须要拆掉的路障。
+据称，解放军攻打东沙岛是为了献礼7月的中共建党100周年纪念——中共想要宣告它有能力占领属于台湾的岛屿。东沙岛面积小，地势平缓，易攻难守，同时地理位置具有重要的战略意义，这些也是可能遭受中共攻打的原因。[1]
 
-不过，“多行不义必自毙”，CCP的一意孤行、肆无忌惮，已经让它犯下了滔天罪行，反人类罪和种族灭绝罪已经把CCP钉死在历史的耻辱柱上。在新中国联邦人不断的呐喊声中，世界上越来越多正义之士、有识之士正在觉醒，并正在不可逆转地联结成巨大的反共同盟，成为灭共、反共的强大力量。我们已经能够看到共产党覆灭的日子正在到来，也已经能够感觉到幸福的脚步离我们越来越近。
+![]()![](https://images-ext-1.discordapp.net/external/IJ0UmV7prp6hBewXz2srvTT2N0SCEegADbMvTqvQlTk/https/www.navalnews.com/wp-content/uploads/2020/04/USMC-will-likely-integrate-the-NSM-on-unmanned-JLTV-ROGUE-Fires-vehicle.jpg)图片来源：[Naval News](https://www.navalnews.com/naval-news/2021/02/usmc-tested-a-naval-strike-missile-from-a-jltv-based-mobile-launch-platform/)
 
-我们的老朋友斯蒂夫·班农先生和亲爱的文贵先生都说过，消灭共产党，中国走向民主化、自由化、法制化的社会将是21世纪上半叶世界最重要的事业。从另一个角度看，这也将是保证我们普通中国人获得幸福的基石。
+就在中共准备武力威胁台湾时，美军也在紧锣密鼓地进行夺岛训练。据军事网站《国家利益》报道，美国海军陆战队前几天在日本冲绳附近的伊江岛进行夺岛演练，这是代号“贵族之怒”演习的一部分。在AH-1Z“眼镜蛇”武装直升机的掩护下，100多名海军陆战队员乘坐V-22“鱼鹰”直升机模拟抢占海岛上的机场。当晚，趁着夜幕，美国空军的MC-130J运输机搭载M142高机动性多管火箭炮系统（HIMARS）飞抵该岛屿。飞机降落后，陆战队员迅速架设火箭炮，并对远程目标进行打击。数分钟后，发射完毕，火箭炮被重新装上运输机撤离。陆战队员们也乘坐直升机撤退。[2]
+
+这次演习反映了美国海军陆战队的最新战术，其注重于快速机动性和远程精确打击能力。据称，海军陆战队放弃了笨重且射程近的坦克，转而装备能够远程攻击的火箭炮和导弹。虽然参加这次演习的是多管火箭炮，但是未来实战中极可能出现的是改装版的“联合轻型战术车”（JLTV）。这是一种轻型轮式装甲车，配备有两枚重型反舰导弹（NSM“海军打击“导弹)，给人一种“小车扛大导弹”的感觉。改装的JLTV装甲车可以遥控无人驾驶[2]。NSM导弹是非常可怕的舰艇杀手，射程185公里，掠海飞行，而且具有末端机动变轨能力[3]。因为地球是圆的，几十公里外贴近海面飞行的导弹处于地平线以下，舰载雷达不易探测。另外，除了采用“打了就跑”的战术，海军陆战队还可以将JLTV战车隐藏在海岛上，远程遥控发射反舰导弹攻击进犯的水面舰只[2]。
+
+综上所述，只要美国真的有保卫台湾的决心，从军事上，美军有能力击退来袭的共军。国务卿布林肯刚刚宣布，任何妄图通过武力来改变现状的人都将是大错特错。奉劝中共发兵前仔细想想，国际社会不会对台湾坐视不管。中共侵犯台湾的时刻，就是中共灭亡之时。
+
+参考阅读：
+
+1. [“Gravitas: Is China trying to capture a new island?” *WION*, April 12, 2021.](https://youtu.be/L_9Rqt_TlGE)
+2. [“The Marines are Preparing to Assault South China Sea Islands,” Larson, Caleb, *The National Interest*, April 10, 2021.](https://nationalinterest.org/blog/reboot/marines-are-preparing-assault-south-china-sea-islands-182403)
+3. [“Here’s How the U.S. Marine Corps Will Sink Chinese Ships,” Larson, Caleb, *The National Interest*, September 8, 2020.](https://nationalinterest.org/blog/buzz/here%E2%80%99s-how-us-marine-corps-will-sink-chinese-ships-168535)
+
 
 ![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
-编辑/审核/校对：飞虹
+审核：灵性探索
 
-发稿：Irene木木
+编辑/校对/发稿：Irene木木
 
 更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
@@ -44,10 +49,10 @@
 
 更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-+1
+0

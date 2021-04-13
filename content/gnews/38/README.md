@@ -1,27 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 智利圣地亚哥大主教接种中共疫苗后检测呈阳性
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1083936/)
+## 中美对峙升级 世界目光聚焦台湾危机
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1083987/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-14.jpg)agensir.it
-路透社报道，周六，智利罗马天主教会在推特上发布声明称，智利首都圣地亚哥大主教塞莱斯蒂诺·奥斯(Celestino Aos)在中共病毒检测呈阳性后已入院治疗。此前注射中共疫苗。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/T-8.jpg)worldnews.whatfinger.com
+Just the News报道，中共长期以来一直想吞并、统一台湾，中共近期对台湾采取的越来越咄咄逼人的入侵姿态，让全世界的目光都集中在了台湾岛。
 
-本周，教会确认76岁的奥斯和圣地亚哥辅助主教阿尔贝托·洛伦泽利主教(Monsignor Alberto Lorenzelli)在中共病毒检测中呈阳性。教会说，两人都接受了智利卫生当局正在接种的中共国科兴的两剂疫苗，第二剂于3月11日接种。
+中共和美国的航空母舰正在台湾海峡附近巡逻。台北正在进行军事演习，并增加紧急国防开支。美国国务卿布林肯(Antony Blinken)周日宣布:“任何试图以武力改变现状的人都将犯下严重的错误。”美国最高外交官严厉警告北京不要入侵。
 
-教会在周六的声明中说，“根据医嘱，以预防的方式”，奥斯和洛伦泽利被送往首都的一所大学医院。“尽管这种疾病的影响是温和的，但需要用专门的设备来解决，以避免可能的并发症。”声明补充说洛伦泽利的病情没有好转。
+因台湾局势的影响，及世界不同阵营的形成和对立，令世界各国领导人如履薄冰。以加拿大总理贾斯汀·特鲁多(Justin Trudeau)为例，他的政府显然对著名的哈利法克斯国际安全论坛(Halifax International Security Forum)可能将约翰·麦凯恩奖(John McCain award)授予台湾总统的可能性感到苦恼。该论坛部分由加拿大政府资助。
 
-智利大学最近对国家疫苗接种数据和感染率进行的一项研究表明，在二次接种后两周，科兴疫苗预防中共病毒感染的有效性为54%。
+据Politico报道，加拿大政府威胁说，如果该论坛公开承认台湾领导人，加拿大政府将撤资。
 
-未来一周智利政府将发布一份更广泛、真实的研究报告，内容是关于在智利大规模疫苗接种运动中，正在使用的科兴和辉瑞疫苗的有效性评估。
+与加拿大相反，因为华盛顿和北京之间的针锋相对策略正在升级，拜登(Biden)政府似乎更愿意承认台湾。 除了派遣军舰在台湾附近巡逻外，美国国务院发言人内德·普莱斯解释说，美国政府周五放宽了与台北的非正式关系，该指令“强调台湾是一个充满活力的民主国家，是一个重要的安全和经济伙伴，也是国际社会中一股有益的力量”。
 
-近期，报道称年仅39岁的吉尔吉斯斯坦外交部领事司副司长巴赫季亚尔·沙基罗夫于4月1日逝世，死亡原因尚不清楚。死者前一天接种中共产的国药集团SinoPfarm疫苗。吉尔吉斯共和国卫生部发言人呼吁国家应仔细检查公民接种疫苗，以避免可能的反应和并发症造成新的损失。
+布林肯周日在《会见媒体》(Meet the Press)节目上表示，“我们所看到的，也是我们真正担心的，是北京政府针对台湾的日益咄咄逼人的行动。”中共外交部发言人赵立坚反驳说，美国军舰是在进行“挑衅”，“向台独势力发出严重错误的信号，威胁和平与稳定”。
+
+台湾危机将成为打破世界格局与和平的导火索。可以预见，一旦中共按耐不住对台湾出手，中共战狼战略体现的法西斯特性，将引起世界共鸣，必对其群起而攻之。
 
 参考链接：
 
-[https://www.reuters.com/article/us-health-coronavirus-chile-archbishop-idUSKBN2BX0KN](https://www.reuters.com/article/us-health-coronavirus-chile-archbishop-idUSKBN2BX0KN)
+[https://justthenews.com/world/asia/all-eyes-taiwan-us-china-tensions-rhetoric-heat](https://justthenews.com/world/asia/all-eyes-taiwan-us-china-tensions-rhetoric-heat)
 
 0
