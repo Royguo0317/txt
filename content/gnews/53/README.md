@@ -1,34 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以色列摩萨德情报机构称对伊朗断电事件负责
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1084670/)
+## 【热点播报】美国应抵制北京举办的2022冬季奥运会
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1084194/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+翻译：纽约香草山翻译部 雪莲
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/I-9.jpg)financialexpress.com
-布赖特巴特新闻(Breitbart News)报道，以色列媒体称，以色列摩萨德情报机构宣布对伊朗纳坦兹核设施断电负责。伊朗称这是“恐怖行为”，将“保留对作恶者采取行动的权利”。
 
-伊朗外长贾瓦德·扎里夫(Javad Zarif)周一指责以色列对其地下纳坦兹核设施进行破坏袭击，德黑兰称这是“核恐怖主义行为”。扎里夫称，“犹太复国主义者”试图“报复我们在解除制裁方面取得的进展……他们公开表示，他们不会允许这种情况发生。”但我们要向犹太复国主义者报仇。
 
-《耶路撒冷邮报》报道说，伊朗星期六夸耀它正在这个设施里操作先进的离心机，这次停电显然是网络攻击的结果，“对伊朗铀浓缩计划的核心造成了严重破坏”。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/LOGO3_1-1.jpg)
 
-报道称，该设施的铀浓缩活动已经停止，目前没有造成人员伤亡。据称，在纳坦兹核设施发生了几起爆炸事件，估计这可使伊朗的核项目倒退了几个月。
 
-事件发生后不久，伊朗参加在维也纳举行的核谈判的特使阿巴斯·阿拉基(Abbas Araqji)说，“我们无意停止20%的铀浓缩和使用先进的离心机。”
 
-停电的消息传出后，美国国防部长奥斯汀星期天抵达以色列，与以色列总理内塔尼亚胡和国防部长甘茨举行会谈。甘茨在会后说:“今天的德黑兰对国际安全、整个中东和以色列构成了战略威胁。”他说:“我们将与我们的美国盟友密切合作，确保与伊朗达成的任何新协议都将保障世界和美国的切身利益，防止我们地区发生危险的军备竞赛，保护以色列。”
+据布赖特巴特(Breitbart)新闻网2021年4月7号的报导，周二，前美国国务卿蓬佩奥(Mike Pompeo)在和美国前国家安全顾问罗伯特.奥布莱恩 (Robert O’Brien) 共同主持的理查德尼克松基金研讨会 (Richard Nixon Foundation’s Nixon Seminar) 的开幕式上， 蓬佩奥表示，计划于2022年在北京举办的冬季奥运会是“种族灭绝奥运会”。他还说，基于中共对新疆维吾尔族人犯下的种族灭绝罪，以及对中国人民言论自由的压制和镇压，美国不应该派他们的运动员去这个充满危险的国家，因为美国人很可能因为说了一句实话而被抓进中共监狱。蓬佩奥呼吁国际奥委会寻求一个解决办法，尽快把这一体育明星云集的盛会改到另外一个地方举办，或给冬奥会另外选择一个地址。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture2.jpg)*File image of Mike Pompeo looking on during a news briefing at the White House last year. By Erin Schaff © 2020 The New York Times*
+*Image source:*[*https://www.firstpost.com/sports/former-secretary-of-state-mike-pompeo-calls-for-us-to-boycott-beijing-winter-olympics-9385371.html*](https://www.firstpost.com/sports/former-secretary-of-state-mike-pompeo-calls-for-us-to-boycott-beijing-winter-olympics-9385371.html)
+与会嘉宾商业巨头前谷歌CEO彼得（ Peter Thiel）也在尼克松基金研讨会发言表示，即使不像被全面抵制的1980年莫斯科奥运会，也会出现抵制北京冬奥会的高潮，不会有很多西方国家首脑出席2022年北京冬季奥运会。也许会类似2014年索契冬奥会一样糟糕，虽然那届冬奥会没有受到任何抵制。
 
-几天前，以色列总理本雅明内塔尼亚胡(Benjamin Netanyaya)对拜登政府进行了尖锐的指责，警告称，以色列不会受到与伊朗重新谈判的核协议的约束，该协议将使这个伊斯兰共和国在数年内获得一枚核弹。
+前安全顾问奥布莱恩也谈到，他在任期间看到中共的人权行为越来越恶劣，他提醒那些还想去中共国的人以及还想与中共国合作的贪婪公司，不要为了钱和利益，冒这个风险，成为习近平的“客人“ 被延期留在北京而无法返回美国。
 
-本次会面上内塔尼亚胡对奥斯汀说，“作为以色列总理，我的政策是明确的——我永远不会允许伊朗获得核能力来实现其消灭以色列的种族灭绝目标。”奥斯汀并未直接对伊朗话题进行回复，仅表示:“我非常高兴我们就一些对我们两国重要的安全问题进行了讨论。”
+评论：
 
-这次袭击使以色列的主要安全伙伴美国重新加入旨在限制德黑兰核计划的核协议的努力复杂化，因以色列不惜用袭击伊朗核设施的方式表明绝不允许伊朗获得核武器的态度。中东局势再度紧张。
+奥运会本是弘扬和平和自由的盛会。而现在在越来越多的证据指向病毒来源于中共军方实验室，任疫情在全世界肆虐至今；中共在被定性为犯下种族灭绝的罪行后，还在不断掩盖其罪责，对内继续残害国民，对外继续超限战实行扩张。在这样的情况下，全世界应该联合抵制2022的北京冬季奥运会，唤醒全世界一起灭掉中共这个邪恶的政权。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-18.jpg)*Exiled Tibetans hold a protest against the holding of the 2022 Winter Olympics in Beijing in Dharmsala,* *India, in February. (AP Photo / Ashwini Bhatia, File)*
+*Image source:*[*https://www.seattletimes.com/opinion/how-to-handle-the-genocide-olympics-in-beijing/*](https://www.seattletimes.com/opinion/how-to-handle-the-genocide-olympics-in-beijing/)
+原文链接： [https://www.breitbart.com/politics/2021/04/07/pompeo-no-american-participate-2022-beijing-winter-genocide-olympics/](https://www.breitbart.com/politics/2021/04/07/pompeo-no-american-participate-2022-beijing-winter-genocide-olympics/)
 
-参考链接：
-[https://www.foxnews.com/world/iran-blames-israel-for-sabotage-at-nuclear-facility](https://www.foxnews.com/world/iran-blames-israel-for-sabotage-at-nuclear-facility)
+校对：Cosmo / 发稿：Jenny
 
-[https://www.breitbart.com/middle-east/2021/04/12/report-israels-mossad-behind-iran-nuke-site-power-cut/](https://www.breitbart.com/middle-east/2021/04/12/report-israels-mossad-behind-iran-nuke-site-power-cut/)
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
-+1
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+0

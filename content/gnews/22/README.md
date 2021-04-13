@@ -1,32 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲大型连锁超市从中共国撤回购物纸袋生产线
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1085236/)
+## 微信和支付宝逃避澳洲金融情报中心监管
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1085292/)
 
 翻译与评论：Shirley
-![]()![](https://gnews.org/wp-content/uploads/2021/04/135.png)网络图片
-澳洲第二大连锁超市Woolworths已经开始在澳洲制造纸质购物袋。该公司在一份声明中表示，它已经与Detpak公司达成了一项价值数百万澳元的协议，将在国内生产购物袋。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/133.jpg)网络图片
+中共国最大的两家支付服务商——微信支付和支付宝——尽管在澳洲运营了近十年，交易量巨大，但却不在澳洲交易报告和分析中心的管辖范围之内。由于目前反洗钱制度存在漏洞，这些平台用户进行的交易逃避了当局的检测。
 
-去年6月，Woolworths在推出纸袋后面临顾客的强烈反弹，一些愤怒的消费者在发现这些袋子是中共国生产的后，在社交媒体上抱怨。
+《澳洲人报》了解到，用微信支付和支付宝的钱包交易，没有向税务机关披露，也不会产生商品和服务税。这主要是通过避开零售商的支付点终端，直接向应用程序的用户进行交易，而这些交易对澳大利亚监管机构来说并不可见。
 
-“真是耻辱。当然不会用这些袋子了。“一个人在Facebook上写道。
+支付宝和微信支付是通过一个阶梯式的程序将钱转出中国的，但这一程序并没有为澳洲金融情报中心（Austrac）提供任何可见性，也不允许建立可疑事项报告的可能性。
 
-一些相关人士也表示，Woolworths并没有投资创造澳大利亚的就业机会。
+悉尼大学法学院讲师Derwent Coshott表示，支付宝和微信支付的交易记录，只有中国当局可以获得。
 
-该公司的一位发言人当时表示，Woolworths本想提供澳大利亚制造的袋子，但国内没有一家制造商能够完成这项工作。
+微信在提交给 “外国通过社交媒体进行干涉问题特别委员会 “的文件中表示，微信在澳大利亚每天有69万用户，其母公司腾讯拥有澳大利亚的先买后付（Afterpay）的股份。支付宝则拒绝提供其在澳洲的用户群细节。
 
-澳洲民众对Woolworths使用中共国制造购物纸袋的愤怒反弹，源于澳大利亚外交部长佩恩（Marise Payne），在她去年四月公开呼吁世界卫生组织调查中共病毒的起源后，中共国开始对澳洲产大麦、铜、糖、牛肉、煤、龙虾、木材、葡萄酒、羊肉等实施制裁。
+在澳洲，支付宝和微信支付的交易由Quest Payments和澳洲联邦银行（CBA）处理，然而据《澳洲人报》了解，这两家供应商对交易的性质都不太了解。联邦银行还拒绝透露其处理的支付宝交易的详情。
 
-在本周一的公告中，Woolworths表示，自去年年初以来，它已经与Detpak合作。生产规模将扩大，要足以供应公司在全澳各地的，数百家连锁超市的需求。
+微信支付和支付宝在悉尼设有办事处。但这两家平台都拒绝将业务注册地设在澳大利亚，并向澳大利亚金融监管机构公开账目。
 
-公告说，维多利亚州、塔斯马尼亚州、西澳大利亚州、南澳大利亚州和北领地的顾客现在已经获得了澳大利亚制造的袋子。
+类似的支付平台，如美国的PayPal在澳洲有注册，并受到当地反洗钱管制。目前PayPal本身也因怀疑其平台可能被用于协助洗钱而接受Austrac的审查。
 
-Woolworths超市董事总经理Natalie Davis表示： “纸质购物袋是我们产品系列的永久组成部分，我们正在与当地制造商Detpak合作，努力支持新的澳大利亚就业机会。 “
+我们想知道的是，微信支付和支付宝为什么刻意绕开了澳洲相关部门的监管？澳洲的CBA等金融交易商的所属权是谁？为什么在代理微信支付和支付宝的同时却表示对他们在当地实施的犯罪行为毫无察觉？
 
-此举在制造领域创造了25个新的本地就业机会。
-
-中共国的战狼式外交，激发了澳洲普通民众的爱国情结。民众自发抵制中共国制造产品，致使Woolworths这样的连锁超市不得不做出反应。相信澳洲的各行各业，都会将越来越多的产品带回到澳洲生产，而战狼外交的结局只能是自食苦果。
+由此我们也明白了，澳洲最大的银行—CBA，为什么极力阻挠澳洲的战友投资G系列的原因。
 
 （本文仅代表个人观点）
 
@@ -34,16 +32,10 @@ Woolworths超市董事总经理Natalie Davis表示： “纸质购物袋是我�
 
 新闻参考链接：
 
-[澳洲新闻网](https://www.news.com.au/finance/business/retail/woolworths-to-make-paper-bags-in-australia-instead-of-china-after-customer-fury/news-story/02e66c683c18b00bf91a99db63bdc6d4)（英文）
-
-[每日邮报](https://www.dailymail.co.uk/news/article-8386913/Woolworths-faces-massive-backlash-bringing-paper-bags-China.html)（英文）
-
-[ABC新闻之一](https://www.abc.net.au/news/2020-04-19/payne-calls-for-inquiry-china-handling-of-coronavirus-covid-19/12162968)（英文）
-
-[ABC新闻之二](https://www.abc.net.au/news/2021-01-03/heres-what-happened-between-china-and-australia-in-2020/13019242)（英文）
+[澳洲人报](https://www.theaustralian.com.au/business/financial-services/how-wechat-and-alipay-slip-austracs-net/news-story/7efdb3b781c93bcf5c44c4f3a409efe1)（英文）
 
 [【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
 [【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
 ![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
-+2
+0

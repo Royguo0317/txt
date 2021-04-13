@@ -1,63 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国人对中国共产党的威胁和觉醒远远不够
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1083545/)
+## 郭先生0411IX看任何一个人就想他关在清丰看守所会是啥样
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1085004/)
 
-**简述：在2021年4月5日的GTV直播中，郭先生批评了美国私人公司的贪婪和对国家毫无责任感，可是皮之不存，毛将焉附？另外美国官员和执法部门的腐败、被中共的收买和无知使他们对共产党的威胁完全没有认识。随着美国经济和黄金出问题，共产党的以钱灭美计划、灭白计划、3F计划和“蓝金黄”的深度影响将逐渐会显现出来。**
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210405-live-p2.srt.txt)
-**美国人对共产党的威胁和觉醒远远不够**
+编辑整理：
 
-**Americans’ Understanding of the CCP’s Threat Is Far From Enough**
+纽约香草山农场：某某(文成)；多伦多枫叶农场：OnePunchD；日本东京方舟农场：山川异域
+![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-52.jpg)
+郭文贵先生的[2021年4月11号 文贵直播](https://gtv.org/video/id=6072f7c36e11a756eddfaf32)应该算是历史大变革前夜的一次令人振聋发聩的直白，这次直播告诉我们为什么中共具备了美国必须与它开战的所有条件，以及美国一旦与中共开战在欧洲和美国的共产党员和国企成员将被关进集中营，以及爆料革命要打造的就是让正义力量成为新中国联邦的国家力量和民族力量等重要内容，其实在郭先生开启爆料革命之初就已经开始了寻找正义力量的工作，在战友们申请郭战帽时要求战友们提供的相关信息从某种意义上就算是这种寻找的一次具体体现，本系列将根据郭先生直播中涉及的不同侧重点逐一上传，以下为本系列第九部分——看任何一个人就想他关在清丰看守所会是啥样
 
-这个国家现在是华尔街和好莱坞还有美国科技公司的腐败贪婪，它最终它要付出代价的。就像美国的私人公司 3M 公司在美国最需要口罩的时候，它就在电视上说：“欸，我没有义务给你口罩啊。”对呀，就像川普还有皮特纳瓦罗还有蓬佩奥都说美国是私人公司，私人公司一切向往利益，它完全不考虑政治。这是对的，按规则说是对的，但是这个国家要完了，你这私人企业也都完球蛋。他们太贪婪了，你跟共产党做生意，你去！
+据[2021年4月11号 文贵直播](https://gtv.org/video/id=6072f7c36e11a756eddfaf32)时间点1：31：52——
 
-The corruption and greed of Wall Street and Hollywood as well as Big Tech companies in this country will eventually make this country pay the price. Just like when the Americans needed masks the most, the private company 3M said on TV: “Hey, I have no obligation to give you masks.” Yes, it’s just like what Trump, Peter Navarro and Pompeo said: the United States is like a private company, and all private companies seek profits and don’t care about politics at all. That is correct. Theoretically, it is right, but if this country is going to be over, you, a private enterprise, will be over too. They are too greedy. If you want to do business with the CCP, just go ahead.
+这位所谓的知美派，这话因为他说了，我说我有些话可能直播中说，他说你别说我名字就行了，我这可以说的。他说他和另外一个前常委，前常委，还有一位前副总理，这个人当年我跟他还有当年的副总理曾培炎我们深深地聊过，他说你记得当年和曾培炎咱们聊吗？他说在那个酒店里面咱们聊了几个小时，旁边那个人，啊，我说我知道现在牛了，他说我跟那个人一起见了一个他的所谓老领导——常委，也谈我们这次的秘密会议吧。这位常委就说了一句话，他说郭文贵能在西方折腾到今天，自有他的道理。这位常委不多说，就这一句话。
 
-美元都没了你啥都没了，什么美国的豪宅呀、自由女神啊、民主啊、信仰，想啥都没了。这个国家是高成本地运作，完全靠一个高成本、高质量法律体系，维护的就是一个问题——美元。美国唯一让美元能够存在就是美国的航空母舰、美国的强大的军队和国家的科技能力。当美元没有的时候美国军队就没了，美国军队没了美国的利益就没了，美国利益就没了，这些人才也不聚集美国了，美国就完了。那你说美国企业呢还有行吗？像Elon Musk这样的人他就不会待在美国，他弄不好迁都，把他公司迁到香港、去上海去了或者到欧洲去了。
+最后给他出门的时候给他说，欸，你没买他那什么投资G-TV、 G币吧。然后他说，唉呀，我没有，我没有。他说你有你小子也不跟我说。然后约他去钓鱼，钓鱼的时候又问他，欸，你真没买他G币吧，他说还没开始卖呢。他说还没开始卖你都知道啊，然后钓鱼的时候给这小子又说，他说你去看那个盘古，我就爱吃盘古的饭，我们家人都爱去吃，他说还有他那个日餐厅，他说当年我是去两次去河南，当时到那去调研，他说我都去他裕达去吃饭，我还去吃裕达楼下的四川餐厅，比四川做得都好，然后说楼上哎呀他那个文旗做得漂亮，他说一个这么个人，这个小伙子20多岁从被关押出来能整成这个样子，这真是个够奇了啊。
 
-When the U.S. dollar is gone, you will lose everything, including your mansions in the U.S., the Statue of Liberty, democracy, faith, and everything you can think of. This country operates at a high cost. It relies entirely on a high-cost and high-quality legal system to maintain just one thing – the U.S. dollar. The only thing the U.S. relies on to keep the existence of U.S. dollar is its aircraft carriers, its powerful military, and the its technological capabilities. When the U.S. dollar is gone, the military will be gone, and when the U.S. military is gone, the interests of America will be gone, and when the American interests are gone, the U.S. will never attract talents to come here, and then America will be done. Do you think American companies will still be okay? People like Elon Musk would not stay in the U.S. anymore. He could move his headquarters to Hong Kong, Shanghai, or Europe.
+是的，任何一个人你去想想，我看任何人的时候，我就想如果这个人被关到清丰看守所会啥样。坏了，我这一说说出我的秘密了。
 
-这是美国人他一定要意识到的，现在你看到美国这个下边的官员，不管这些执法部门的腐败到了什么程度。腐败、被收买和无知，对共产党的威胁完全没有认识。没有我们新中国联邦没有爆料革命美国人绝对达不到今天这个程度，今天美国人对共产党的威胁和觉醒远远是不够的。
+我看任何一个总统还有大咖的时候，我一想你比如说我和那路德，如果路德被关在清丰看守所他会啥样呢，俩月绝对拉稀、绝对完，让他干啥干啥。老江呢，你说老江被钉在清丰看守所会啥样呢，两天，让他干啥他干啥。然后我想科学家这号人被关在清丰看守所干什么，就像我们隔壁的女号，天天往隔壁号扔那个月经纸。“兄弟们，给你礼物！”，咵，过来一看血乎啦啦的月经纸，哇噻，就扔过来了，然后 “给点草。” 就要点烟，我们就想办法弄点草扔过去啊。
 
-This is what Americans must be aware of. Now you see how severe the corruption of the officials in the U.S. government and all kinds of law enforcement agencies has become. Look at their corruption, how they’re being bribed, how ignorant, and how they totally have no idea about the threat of the CCP. If not for our New Federal State of China (NFSC) and Whistleblower Movement, definitely Americans would not reach the level of understanding that they have today. Nevertheless, Americans’ understanding of the threat of the CCP is still far from enough.
+我再想想我跟外国元首打交道，还有那些什么世界富豪，我这眼睛一眯瞪眼一想，哟这小子、这孙子要被关在清丰看守所带上脚镣手铐饿他一星期啥样，我一想这小子让他干啥他干啥。很少人让我能叫我发自内心地尊重说他能撑下去，撑一两年、两三年，还有信仰还能活着出来，真的太难了。
 
-这次美国经济出了问题、黄金出了问题，共产党的以钱灭美的计划和灭白计划和制造种族对立矛盾的计划和“蓝金黄”的深度逐渐会显现出来。
+反过来我看共产党的官，**当你看共产党官员的时候，你就想想这个人，一看进去一定是哭爹叫娘，所以啊在我眼里面很少让我心里面觉得这个人是什么有骨头的人，让我内心尊敬你很难，这是七哥衡量人的秘密。**你别看我嘴上说再好，我内心里衡量人是有一杆秤的，你像九指妖这号人进去，那就吃屎了就，是吧，那她就魔障了——百分之百魔障了，又是上帝又是下帝的，又是上床又是下床的。
 
-This time, the U.S. economy has encountered problems and the gold price has encountered problems. The deep effect of the CCP’s plan to destroy the U.S. with money and its plan to eliminate white people and to create racial conflicts and its BGY plot will gradually become apparent.
+那你想想吧，那人家昨天安红的节目做得多好，是不是啊，安红这号人进去以后我估计关两年、三年，越关越硬，属于那种浑不吝的主儿，切不烂、剁不透，就这么个主儿。你像郝海东、叶钊颖这号人，你弄他多少他不会的，永远不会的。它是经历给你造成，不光是个人品的问题。我为啥说路德先生俩月他就完了，因为他没有经历过这事。
 
-然后美国这两万亿美元所谓的基建和一万多亿美元的基建，这三万多亿美元都要从企业家的身上拿出来，企业家会再从这些穷老百姓手里拿回来。但这个过程它是需要时间的，它不是一天两天，它不像共产党一样把马云、马化腾是不是把这些老板全抓了，它做不到的，国家就没了。
+你像江财神他东北来的，就我在那里面关的东北人基本上进去以后，最爱磕头下跪的都东北人。我在东北生活就是东北人这句话真的是你有时候没法说，你看他在外边膀大腰粗的、横通着、张嘴这样，就是流氓假仗义，进去以后哭爹叫娘大多数都是东北人，最快最早的。那硬气人还真是山东人、河南人、湖北人，那广东人硬气着嘞，最最怂的就东北帮，东北人，哎呀怂得我一看东北，我们东北老乡一进去我就知道完了，一定是哭爹叫娘让干啥干啥。我在里面关的时候，给我端茶倒水的，不是茶，就是天天给我照顾我的，我是号长啊，是吧？基本上都东北的，基本上都东北的。隔壁扔过来的那个月经纸的最多的都是东北的，最多的，东北的、蒙古的，是吧？开玩笑，我们科学家不会，我们科学家山东人，科学家估计在里面搞研究了，研究小白鼠。
 
-And then the so-called $2 trillion infrastructure plan and the additional over $1 trillion in infrastructure, a total of over $3 trillion must be taken from entrepreneurs, and entrepreneurs will take the money from the hands of the deplorables. But this process will need time; not one or two days. It will not be like the CCP robbing all the bosses such as Jack Ma and Ma Huateng. It [the U.S.] cannot be like that, otherwise, the country will be done for.
+接上文——
 
-它要一个时间，在这个时间当中可能美国人就完全失去了世界第一经济强国、第一科技强国、第一军事强国、第一信用之国和信用美元体系全部崩塌。剩下的美国可能是哪儿叫美国，德州德克萨斯叫美国，美塔那、马塔那叫美国，爱荷华州，Idaho 就是黄石公园叫美国，其它都不叫美国，像什么纽约、洛杉矶啊估计都乱了。
+[郭先生0411I王岐山认真了解并评价郭先生的秘密电话会谈](https://gnews.org/zh-hans/1082788/)
 
-It will need some time, but during this process, Americans will likely completely lose the world’s largest economic power, the largest technological power, the largest military power, and the number one creditworthy country, and the credible U.S. dollar system will completely collapse. The rest of the U.S. that may still be called America will be places like Texas, Montana, and Idaho – where the Yellowstone is. And the rest will not be America anymore, such as New York and Los Angeles, where I guess will be totally messed up.
+[郭先生0411II中共治下的中国完全成了流氓国家和邪恶国家](https://gnews.org/zh-hans/1082850/)
 
-这就是共产党想要的，搞弱、搞乱、搞死美国、蓝金黄、三F方案、蓝金黄方案、灭白计划。这都是共产党是一系列的，从科恩，从IMF世界银行，从所有的，从国会，从情报部门儿，从司法部门，你看那 Higginbotham 那司法部的，就为了遣返郭文贵他能收几百万、几千万美元。
+[郭先生0411III美国因支持中国人民而相信中共等到的是什么](https://gnews.org/zh-hans/1082946/)
 
-This is exactly what the CCP wants – to weaken, to mess up, and to kill the U.S. (a.k.a., the 3F plan), to employ the BGY plot, and to exterminate the white people. These are a series of plans of the CCP, starting from Khan in the IMF World Bank (Dominique Strauss-Kahn, the former President of IMF), to the Congress, to the intelligence departments, to the Justice Department. You look at (George) Higginbotham in the Department of Justice, who accepted millions, tens of millions of dollars of bribes to just to repatriate me, Miles Guo.
+[郭先生0411IV今日中共就是当年偷袭珍珠港的日本之翻版](https://gnews.org/zh-hans/1083526/)
 
-刘特佐，你看刘特佐那什么概念，把马…大家还记得吧，马哈蒂尔上去了把纳吉布干掉了，人家纳吉布又派了个把马哈蒂尔干掉了，马哈蒂尔上来以后现在弄了个西丁外交部长，就是人家纳吉布的人家的亲表兄弟，人家纳吉布的亲表弟又回到北京，在刘特佐的安排下，孟建柱的私生子的安排下，公开在外交部喊：“王毅你是我大哥”，哈哈，共产党这邪恶到啥程度。
+[郭先生0411V现在不是灭不灭共而是什么时候灭共的问题](https://gnews.org/zh-hans/1084679/)
 
-Jo Low, you look at Jo Low. People may remember that Mahathir came to power to replace Najib, but Najib sent another one to replace Mahathir. After Mahathir came to power, he hired Hishammuddin (Hishammuddin bin Hussein) as the Minister of Foreign Affairs, who is the cousin of Najib. And this cousin of Najib’s went to Beijing, which was arranged by Jo Low, who is Meng Jianzhu’s illegitimate son, and publicly called Wang Yi in the Ministry of Foreign Affairs, “You are my elder brother.”  Haha, how evil is the CCP!
+[郭先生0411VI美国决定开战必须具备的条件中共都给凑齐了](https://gnews.org/zh-hans/1084735/)
 
-你再看看阿拉斯加那个会面，大家我最起码我在那个YouTube上我看了三遍了，我认真地看了三遍。每一个字儿、每一句话都是精心的安排。每一个字儿、每一句话都是对美国的羞辱和侮辱。那个阿拉斯加的见面绝对等同于当年撒切尔夫人在北京跌倒那一跤。
+[郭先生0411VII一旦开战共产党员及国企成员必被关进集中营](https://gnews.org/zh-hans/1084848/)
 
-Please also look at the meeting in Alaska, everyone. I’ve watched it at least three times on YouTube, very carefully. Every word and every sentence was carefully written. Every word and every sentence is a humiliation and insult to the U.S. The Alaska meeting is absolutely equivalent to the incidence when Margaret Thatcher fell in Beijing years ago.
+[郭先生0411VIII要把正义力量变成新中国的国家力量民族力量](https://gnews.org/zh-hans/1084945/)
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=606b0c896e11a756edd89042](https://gtv.org/video/id=606b0c896e11a756edd89042) (1:14:01-1:18:38)
-
-鸣谢：感谢笑笑、YIMING（文鸣）、山川异域提供中文文本于 [https://gnews.org/zh-hans/1060270/](https://gnews.org/zh-hans/1060270/)
-
-* * *
-
-字幕：【JennyL】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
-+1
+0
