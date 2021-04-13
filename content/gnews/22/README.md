@@ -1,19 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 假打中共病毒疫苗小视频合集
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1083661/)
+## 慧眼看世界202104012（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1083789/)
 
-整理： 公民意识
-Maarten Wynants台湾几个小政客也参与了表演秘鲁总统来自网易的曝光，美国也有假打疫苗的
-假打疫苗的注射器和普通的不一样，针头能缩进去，针管里的液体也可以隐藏起来不从针头打出来，这么巧妙的设计，很有中共特色嘛。
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-未知来源，知道的请留言，后续会补上。空手打疫苗挺厉害的。
 
-连打了哪只胳膊都搞不清楚，中共党员兼演员福奇同志这疫苗打得够假了。如果把镜头拉近也许能看到更多的破绽。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/以色列总统本雅明·内塔尼亚胡.jpg)以色列总统本雅明·内塔尼亚胡
-* * *
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-*发稿 文锦*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-4.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-3.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0

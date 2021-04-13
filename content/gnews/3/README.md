@@ -1,53 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】面对中共病毒：人类正在做的5件最愚蠢的事情
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1084105/)
+## 白宫放宽美国官员与台湾官员自由会晤的权限
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1084192/)
 
-作者：纽约香草山写作组五组   四季
+翻译：洛杉矶天使农场–烟波浩淼
+校对：洛杉矶天使农场–雨山溪桥客
+审核：洛杉矶天使农场–断播
+![]()![](https://gnews.org/wp-content/uploads/2021/04/taiwanusofficials.jpg)图片来自美联社
+上周五，白宫就台湾问题引发的中美紧张局势发表声明，[称](https://twitter.com/W7VOA/status/1380567307286671362)美国“不寻求与中共国对抗”，但对中共在该地区“可能破坏稳定”的行动表示担忧。
+
+此前，白宫新闻秘书普萨基被问及美国政府是否认为中共国正处于入侵台湾的风口浪尖。但就避免“对抗”而言，周五的另一项声明几乎确保了对抗正是我们的方向：**拜登政府刚刚开放了美国官员与台湾官员自由会晤的权限**。
+
+尽管几十年来，美国一直根据“一中”政策，对本国外交官和官员举行此类会议保持严格的规定和限制，但这些规定和限制现在已基本取消。
+
+英国《金融时报》在[周五公布指导方针](https://www.ft.com/content/beb5280d-6f1e-450c-a948-820e1f06e10b)后，叙述了以下细节：“**根据新的拜登政府指导方针，美国官员将能够更自由地与台湾官员会面**，这是白宫**旨在遏制中共在该地区不断加剧的侵略行为**的最新举措。”
+
+美国官员称，美国国务院将于周五发布新规定，这**将放宽数十年来阻碍美国和台湾外交官会晤的限制。**
+
+然而，仍然会有“护栏”存在——例如在台湾的特定节日举行会议，这将被认为是特别无礼的举动，这肯定会招致中共违反“一中”立场的指责。不管怎样，中共国近来频繁提出这一指控，特别是在川普政府的最后6个月内，有多个史无前例的美国代表团访问了该岛。**上个月，在拜登的领导下，美国驻帕劳（****Palau****）大使成为自1979****年以来在台湾接待的首位美国大使**。
 
 
 
+> China sends more fighter jets into Taiwan's air defense zone as Taipei's FM Joseph Wu says his country will fight to the end if Beijing attacks[https://t.co/6OU1eE2axq](https://t.co/6OU1eE2axq)
+> — DAILY SABAH (@DailySabah) [April 7, 2021](https://twitter.com/DailySabah/status/1379843947887988740?ref_src=twsrc%5Etfw)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/LOGO3_1-1.jpg)
 
+*每日沙巴 @DailySabah · 2021 年4月7*
+*中共国向台北防空区派出更多战机*
+英国《金融时报》继续[评论](https://www.ft.com/content/beb5280d-6f1e-450c-a948-820e1f06e10b)说：“虽然拜登最近几个月审查了指导方针，但有迹象表明，他将采取比奥巴马政府时期更为宽松的做法。美国代理驻日大使约瑟夫·杨（Joseph Young）最近在东京官邸欢迎台湾驻日大使到访，并在推特上公布了这次访问，呼应了蓬佩奥宣布后川普驻荷兰大使的类似举动。”
 
-《自然新闻》4月11日的评论呼吁，疾控中心一直都在宣扬，让人们在接种系列疫苗后，还必须保持社交距离，戴上口罩，不要靠近任何人，甚至不要拥抱你的亲戚，不要触碰任何东西。而这些都是宣传和谎言。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-17.jpg)
-笔者指出，口罩造成细菌感染和氧气摄入量的损失，导致整个人体输送的营养物质减少。这直接造成了免疫功能的恶化。那些整天戴着口罩，整天使用抗菌剂的人，以及保持社交距离的人，他们将受到最严重的打击。
+中共方面对放宽指导方针的反应和迫在眉睫的抗议无疑将是激烈的，而且可能涉及到对台湾声称拥有领土的海空入侵的持续升级，同时美国也通过派遣自己的军舰进入南中国海来“回应”这些威胁性举动。
 
-据《底特律新闻》报道，多达246名接种冠状病毒疫苗的密歇根州居民被检测出冠状病毒阳性，其中包括3人已经死亡。
+原文作者：泰勒·德登（TylerDurden）
+发布时间：2021年4月9日星期五下午6:40
+原文链接：[https://www.zerohedge.com/political/white-house-eases-us-officials-ability-freely-meet-taiwan-counterparts](https://www.zerohedge.com/political/white-house-eases-us-officials-ability-freely-meet-taiwan-counterparts)
 
-这是因为mRNA技术具有通过细胞和DNA内部的“开关翻转”来完全关闭人类免疫系统的能力。信使RNA可以从字面上指导人类细胞像癌细胞一样发挥功能，同时抑制与流氓细胞作战的自然免疫功能。这是基于斯隆凯特琳研究所的分子生物学家的临床研究，这与CDC和疫苗制造商现在告诉大家的Covid疫苗完全相反。
-
-笔者指出了美国人正在做的以下5件最愚蠢的事情，破坏了免疫功能，增加了对变异Covid病毒的敏感性。
-
-1. 注射mRNA系列疫苗，真的很笨（而且很致命）。
-
-2. 社交疏远真的很白痴。
-
-3. 整天戴着口罩真的很蠢。
-
-4. 什么都用抗菌剂真的很无知。
-
-5. 和其他“打过疫苗”的羊群一起放牧是超级愚蠢的。
-
-越来越多的媒体，科学家和病毒学家都站出来揭露疫苗对人类的伤害。中共国对人民的洗脑术显然已经蔓延到了全世界，我们的健康从未像现在这样受到腐败政客的影响和伤害。人类是时候认真的考虑这5种愚蠢的行为是不是还应该继续了。
-
-[https://www.naturalnews.com/2021-04-11-5-dumbest-things-americans-doing-more-susceptible-covid19-mutations.html#](https://www.naturalnews.com/2021-04-11-5-dumbest-things-americans-doing-more-susceptible-covid19-mutations.html#)
-
-[https://www.zerohedge.com/covid-19/246-fully-vaccinated-michigan-residents-catch-covid-19-3-die](https://www.zerohedge.com/covid-19/246-fully-vaccinated-michigan-residents-catch-covid-19-3-die)
-
-校对/发稿：Jenny
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-![]()
 0

@@ -1,66 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国没有真正的企业家&nbsp; 只会搞战狼糊弄自己
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1083578/)
+## [文贵先生盖特]摘录：2021.04.08民主党要想赢和共和党想赢，只有一个主题，灭共！以毒灭共！
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1083899/)
 
-**简述：在2021年4月9日的盖特视频中，郭先生感叹中共国没有真正的企业家，只有混家，而美国的一个 Elon Musk 干的事是多少个国家都做不到的。中共国对现代文明没有贡献，却天天吹嘘自己的富豪排名和假装战狼，糊弄自己，非常可悲。**
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210409-getter2.srt.txt)
-**中共国没有真正的企业家****  ****只会搞战狼糊弄自己**
+初稿  荷兰豆炒腊肉
+校对  荷兰豆炒腊肉、树懒
 
-**There Are No Real Entrepreneurs in Communist China**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/041302.PNG.jpg)
 
-我今天早上直播的时候没有说到，你看这个企业家，我今天看到一个关于 Elon Musk 的特斯拉的某个项目的计划啊什么的，基金里面的这个研究人员[的报告]。你看一个特斯拉干了多少事？是多少个国家做不到的事，一个企业家做到了？这就是美国的伟大。
+**不能到抗议现场的战友应该到****SEC****网站上反映，写出四个对****SEC****的要求**
 
-I didn’t talk about it during the live broadcast this morning. Let’s talk about entrepreneurs. I read a project planning report related to Elon Musk’s Tesla today. It’s a report made by researchers of the foundation. You can see that too many things have been accomplished by only one Tesla. These things can’t even be done by many countries, but one entrepreneur did it! This is the greatness of America.
+今天都四月八号了，兄弟姐妹。刚刚很多战友给我发信息，很多咱们的GTV的投资者看到华盛顿还有纽约的SEC前面抗议很感动，问我自己能做什么。不能到现场的能做的，最起码应该到SEC网站上反映，SEC完全被共产党的非法的、虚假的、间谍的信息的操弄，严重伤害了GTV投资者的合法权益。你应该反映，这是起码的保护自己的权益，也是作为一个新中国联邦人，你维护自己利益要做的事情，这是最好的办法。我非常的感动，看到咱们的战友们衣装整齐，男的女的都是整理好头发，穿好衣服，规规矩矩的守法的，斗志昂扬，意志坚定地维护自己的权益和尊严，这才叫做一个人！你连这你都做不到，谁能保护你呀？没有共产党你能咋地？你能干啥？
 
-还有，你再看iPhone，iPhone下一步的整个换代产品已经不是这么简单了，换代产品还有整个的它未来要和量子电脑和超级电脑的结合，和天空 Wi-Fi 的结合，这了不得了。
+**合法的拿起自己的武器维护自己的权益，为我们的尊严而战 ，不赢决不罢休！**
 
-Also, think about the iPhone. The next generation of iPhone will not be so simple anymore. It will be combined with quantum computers and supercomputers and with Sky Wi-Fi in the future, which is amazing.
+兄弟姐妹们，这是给大家的集体回复。七哥没有任何建议，就是合法的拿起自己的武器维护自己的权益，不赢决不罢休，这必须给个说法。小王子写出了四个对SEC的要求，这是对的，这四个要求不答应是不行的。特别是你和共产党是怎么沟通的，你的信息是咋来的？你采用了什么信息？你和中国警察怎么搞的？昨天前天有好几个原来GTV的投资者，原手机号，声音都像本人。我一听根本不是本人，是大陆的警察冒充他来和我联系，让我祖宗八辈骂一顿。最后这小子给骂急了，说郭文贵，我们一定收拾你，人民警察不会放过你。我说你孙子是警察吧？就是警察冒充投资者来骗取所谓的往回返钱。
 
-看看 Elon Musk [研制]的无人机、无人汽车、大货车、火箭、天空 Wi-Fi，整个卫星发射系统基地，和未来的无人驾驶的汽车整个系统。这个人简直是真的是超人呐，真的是钢铁侠的在世啊，钢铁侠也没他整的那么明白。而且人家该干啥干啥，这样的人在中国能活的了吗？早活不了了。
+第二，就连美国籍的人现在也被警察操弄，因为他家人在国内，也是被警察操纵来所谓的返钱。这都是刑事犯罪。这是什么情况下发生的？是SEC的纵容下，官僚与共产党的警察非法沟通的结果，给我们GTV造成巨大的伤害。如果这次让SEC把大家真的伤害成功了，那我们以后就没有机会再来美国任何合法投资，任何合法投资共产党都可以用同样的招消灭你。只有共产党的私生子女，还有共产党的生殖器关系的那些亲人、家人们才有机会、才有能力拿到初始投资、天使投资，才能拿到所谓原始股，永远没咱这帮人的机会！在美国你都没这机会，你在中国你就更没这机会了，就这么简单的道理。为我们现在的利益而战，为我们的尊严而战，为我们的机会而战，也是为我们的未来后代子子孙孙而战！这不是钱的事情。
 
-Take a look at Elon Musk’s drones, unmanned vehicles and trucks, rockets, sky Wi-Fi, the entire satellite launch system and base, and the whole system of unmanned vehicles in the future. This person is really a Superman, really is a living Iron Man. Even Iron Man couldn’t be as great as he is. Moreover, he can still live a normal life and do whatever he wants. Do you think such people can survive in China? He would have died long ago.
+看谁腰弯下去，看谁妥协，看谁为了眼前那点东西卖掉自己的祖宗，卖掉自己的尊严，卖掉自己的未来！这就是最基本的常识，绝不会罢休的。为什么他们搞ZOOM，搞抖音到美国来？搞几百亿美元。他们当时几个人偷的人家技术，而且完全跟共产党非法勾当，他们能轮到我们战友们去初始投资吗？有这机会吗？那些欺民贼，你整个GTV出来让我投投，或者你告诉我共产党的抖音、ZOOM，还有微信，阿里巴巴能让我们初始投资吗？唯一是属于我们草根自己拥有这个初始的投资的当原始股东，当创始股东，我们用生命换来的平台，被SEC和共产党这样打压，这就叫垄断！这就叫独裁！把所有属于大家的机会，变成几个人和几个家族拥有。当你去尝试去做，他要消灭你，他要夺走你这个机会，这叫机会垄断。起码的常识，这是多少个千千万万、亿万个战友，用生命和鲜血奋斗了四年，斗争出来这么一个机会。这么一个有价值、有商业价值、有信仰价值的综合平台，他们要找各种理由给灭了。那好啊，你把抖音，你把ZOOM的初始投资让我们来做呗，对不对啊？
 
-这就是整个中国人不明白的事，为什么中国人不问问，中国[为什么]从来没有一个 Elon Musk？[为什么]没有[自主研发生产]一个iPhone手机？甚至连个三星集团都没有。为什么整个14亿的中国人连马桶盖都搞不出来？[中国人]问问自己的国家，扪心自问，你所有开的车，现在文明的东西，哪一样是中国人研发出来的？
+中共的中概股你不查，你查我们GTV的合法投资，到现在我们没有一样违规违法的，我们花了将近五百多万美元律师费，我们最终可能达到两三千万美元律师费。到现在SEC没有一次说我们违规违法，没有一次！我们能做到这个样子，那帮共产党的中概股没有一个合法的，一个都没有。但是他们所有的这些原始投资都是给美国的这些卖美贼，还有共产党的那些所有的卖国贼和共产党老杂毛们来搞的，公平吗？现在看着在华盛顿纽约大街上站着的我们的战友们，哪个人可以拥有那些人的机会呢？永远不会。所以他现在看到你们拥有这个机会的时候，他就觉得他受不了。所以说我们必须斗争，必须战斗到底，依法斗争，依法斗争到底。
 
-This is something that the Chinese don’t understand. Why don’t the Chinese ask why there has been no Elon Musk in China? Why hasn’t there been anything like iPhone [invented in China]? Not even a Samsung Group. Why can’t China make even a toilet seat with a population of 1.4 billion? Go ask your country and ask yourself what things, either the cars that you drive or anything in the civilized world, were invented by Chinese?
+**民主党要想赢和共和党想赢，只有一个主题，灭共！以毒灭共。**
+**美国不制裁伊朗，新中国联邦得利**
 
-中国没有企业家，只有混家。混子的混家，只有大混家、中混家、小混家、小痞子混家。[中共国]没有企业家，这是一个民族的悲哀。美国随便一个企业几万亿美元市值，那是真的，不是炒出来的。不会像中共似的。房子[是]用来住的，不是炒的。是吧？疫苗是用来打的不是用来炒的。中国啥都要炒，炒到啥都没有。一代又一代人炒，把命炒没了，炒了好几代没炒出任何东西来，锅都炒干了。
+接着说，这几天大家现在已经看到伊朗的这个事情，美国没有制裁了，对咱是好事。伊朗没制裁了，伊朗一放开了，伊朗和老共可能不站在一起，中东就会发生。伊朗是三驾马车，一直想当老大。第二是伊拉克，这才为什么发生了两伊战争。第三是沙特。三架马车要开干，实际就是三架火车要撞，都要抢着跟共产党好，同时也抢着和老美好，中东战火重启开始，这种竞争的背后最后还是新中国联邦得利。咱不想让他们战争，但是他们的斗争对我们新中国联邦来讲是机会。这三个国家哪一个愿意与新中国联盟为敌呀？永远不会。这就是我们的机会，对老美来讲不是好事，对老共来讲也不是好事。但对待咱们来讲是好事。因为毕竟伊朗是穆斯林，伊朗没制裁是因为奥巴马总统的穆斯林宗教信仰，还有和拜登之间的政治利益，但对新中国来说是好事。另外一个，放过伊朗，绝不会放过共产党。
 
-There are no real entrepreneurs in China, only rascals. There are only big rascals, middle rascals, small rascals, and little ruffians. China has no entrepreneurs, which is sad for a nation. The market value of any company in the U.S. could be several trillion dollars, and that number is real, not something by stock speculation. It’s not like the CCP – everything is like stock speculation. For example, the house is supposed for living, not for speculation, right? The vaccine is for fighting the virus, not for speculation. Everything is like this in China, so it has nothing real. They do this generation after generation until they lose their lives in it, until they find nothing is left for them.
+所以大家你们看到了对共的病毒严查，是我做梦听说的。这一点拜登政府已经达成共识，这点上必须不能妥协，因为妥协自己被赶出白宫去就完蛋了。这个不会妥协，对我们是好事。还有一个，在明年二零二二中期选举，民主党要想赢和共和党想赢，只有一个主题，灭共！查病毒真相，以毒灭共。还有以钱灭共，谁也挡不着咱。现在美国经济，美元黄金，大家看到黄金了吗？看到大宗贸易了吗？七哥刚说完苏伊士运河和霍尔木兹海峡还得出事，美国这些投资者说：老郭啊不可能，我说不可能你等着。刚说完二十四小时又出事儿。大家注意到共产党在中东的军事基地是干啥的？第一个他就是搞破坏，控制霍尔木兹海峡，控制苏伊士运河，控制吉布提，红海的石油运输，最终到马六甲。
 
-然后现在搞战狼[外交]，糊弄自己。就是这个世界上很可怕的，就是没有一个国家民族再喜欢所谓的壮肾药的，壮肾药的。伟哥最大的销售市场是中国，但是伟哥不是中国发明的，这不是悲剧吗？但却要在全世界炒[作]，我们有全世界最牛的排名富豪。[CCP]有豪，[但]你有富吗？这就是说未来世界上最最重要的战友是什么？[答案是]金融产品、科技。金融和科技，你真正的[核心]是你有原创的和原始的知识产权，你才能得到世界的尊重，你才有真正的实力，否则你不是骗自己吗？糊弄啥呢？
+这就跟当时二战的时候，日本的山本五十六和美国的伊顿在打珍珠岛之前说的话，美国是日本百分之八十的油的供应，你有天不供应我咋办呢？那意思说老子得打你，所以说打了珍珠港。现在老共一模一样，我不控制这个霍尔木兹海峡苏伊士运河，那以后你打我咋办呢？现在想我要把日本、把美国的粮给断了，把你的市场给断了，这好啊，他打他的，咱发咱的财，这叫以钱灭共。把他们打的仗，打剩下的战场咱去收拾。还有更重要的信息，我现在来不及了，今天先说到这儿。
 
-Then now you [the CCP] pretend you are a war wolf to fool yourself. This is a very scary thing. There has been no any other country or nation in this world whose people like the so-called “kidney-strengthening” medicine [like China]. The biggest sales market for Viagra is China, but Viagra was not even invented in China. Isn’t this a tragedy? But it tells the whole world: “We have the world’s best ranked rich people.” You have upstarts, but do you have real rich people? My fellow fighters, what is the most important in the world in the future? The answer is financial products and technology. The key is that you need to have original intellectual properties. Only then can you be respected by the world, and only then can you have real strength. Otherwise, wouldn’t it be like you are lying to yourself? Who are you trying to fool?
+审核校对：鲁邦五世
+上传排版：糖果儿
 
-你连个耐克鞋都做不明白。中国李宁鞋，你看看李宁鞋有几个[原创]？还卖四五万一双。有几个是你原创的？能代表中国人文化的？那鞋在中国那地方穿的真的就合适吗？中国人运动的时候穿运动鞋没事，平常穿运动鞋你觉得好看吗？真不如过去所谓的中国穿的那个球鞋。还有中国那叫什么“红蜻蜓”[皮鞋]，我觉得挺好的。虽然李宁的很多家人也支持爆料革命，[但是]咱[们]实话实说，是吧，这是个基本的常识。
-
-You can’t even make shoes like Nike’s. Look at China’s Li-Ning shoes, how many techniques used in the shoes are their original work? They charge forty to fifty thousand a pair, but how many techniques have originated from them? How can they represent the Chinese culture? Are those shoes really suitable for Chinese? It’s okay for Chinese people to wear sneakers when they exercise, but do you think they look good on you as a casual wear? They are not even as good as the so-called tennis shoes worn by Chinese in the past. I think China’s Red Dragonfly shoes are pretty good though. Although many of Li-Ning’s family members also support our Whistleblower Movement, but we need to be honest on this, right? This is a basic common sense.
-
-中国人有信仰吗？你看看美国的企业家里面有多少人是有虔诚的信仰？现在你看G系列里面几乎99%都是外国人。没有那么多事儿，大家就[是专注]干事[工作]。我昨天跟咱们一个秘密团队[开会]，研发的这个盖特他们做演讲。[秘密团队]都是我们中国人。哎呀，真好，这些孩子们。这些孩子他们演讲的时候那种认真执着[的样子]，我觉得真的中国人太伟大了。我为[爆料革命有]这样的战友，跟这样的人在一起工作我觉得特别幸福。他们那么真诚，那么善良，那么包容。
-
-Do the Chinese have faith? See how many American entrepreneurs have devout beliefs? Now you can see that almost 99% of the people working for the G series are foreigners, so there are not many distracting things, and everyone is jsut focusing on the work. Yesterday, I had a meeting with a secret team of Getter developers, and they gave a talk. They are all Chinese, a bunch of awesome kids. Watching how serious and devoted these kids were when giving the talk, I deeply felt that Chinese people are really great. And I feel so lucky to have such great fellow fighters to work with. They are so sincere, so kind, and so tolerant.
-
-这就是我们新中国联邦能把中国人最美好的一面，能给发扬出来，而且能变成一个人的尊严，能变成健康的财富，最终会演变成像美国的 Elon Musk 这样的企业家，诞生无数个。那才是我们新中国联邦最庆幸的[事情]。未来走在DC大街上，纽约大街抗议的人。他们未来会发现这些人当中会出来多少个伟大的企业家，而不是[CCP那样的]炒家，混家。
-
-This is how the New Federal State of China (NFSC) brings out the nicest side of Chinese, and then turns it to the dignity and healthy wealth of these people. Eventually, they will grow into entrepreneurs like Elon Musk in the U.S., numerous of them. That will be the most fortunate thing for our NFSC. In the future, among the people who protested on D.C. and New York’s streets, many will become great entrepreneurs rather than rascals [like the CCP].
-
-这是我们新中国联邦最重要的！
-
-This is the most important thing to our NFSC!
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/6070b66fdbc8001854a6f459](https://gtv.org/getter/6070b66fdbc8001854a6f459) (3:58-9:25)
-鸣谢：感谢盘古小蚂蚁、Antsee-GTV、TING GUO 提供中文文本于 [https://gnews.org/zh-hans/1071735/](https://gnews.org/zh-hans/1071735/)
-
-* * *
-
-字幕：【JennyL】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
-+1
+0
