@@ -1,53 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 第二期，新中国联邦人物周刊
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1084440/)
+## 【热点播报】五角大楼正在研发植入皮下的芯片以检测和清除CCP病毒
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1084571/)
 
-**记者：童娟，编辑：木子，设计：木子，图片：卡卡西**
+作者：香草山农场  Delilah小胖
 
-**郭文贵先生**
+据populist.press网站2021年4月12日头条报道，美国五角大楼的科学家正在一个始建于冷战高峰期的实验室进行一项研究。这项研究是将芯片植入人体皮肤内。该芯片可检测到CCP病毒（COVID-19）感染。该研究还包含一个革命性的过滤器，如果把这个过滤器跟透析机相连接，还会从人体的血液中过滤掉CCP病毒。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screen-Shot-2021-04-12-at-10.41.49-PM.png)图片来源：https://www.dailymail.co.uk/news/article-9460389/Pentagon-scientists-invent-microchip-senses-COVID-19-body-symptoms.html
+这听起来真够酷的，对吧？
 
-**摘要：**啥叫WHO？ 这就是英文和中文的差距，他们的英文是：World Health Organization，世界卫生组织。我们按照中国人的拼音拼写，这个WHO就是Wu Han Organization LLC，我们把它称为武汉领导世界有限责任公司
+这个研究团队隶属于国防高级研究计划局（Defense Advanced Research Project Agency，简称“DARPA”),他们已经在阻止和终止大流行病方面进行了多年的研究。
 
-**闫博士**
+这个研究小组对研究案例进行评估，然后找出巧妙的解决方案。这些解决方案堪比科幻小说，而不是一般的工作实验室。
 
-**摘要：**正如我们的第二份报告所揭示的那样，中共的科学误导和掩盖早在首次爆发之前就开始了，这表明SARS-CoV-2/生物武器的释放不是偶然的，而应该是故意的。有证据表明，疫情的爆发应该是源于生物武器的小区检测，而导致生物武器的失控。
+这个研究小组在一个周日晚间的叫做“60分钟（60 Minute)”的访谈中，谈到他们最近的一项研究是他们用芯片在人体内探测新冠病毒，而且是在发病之前就探测到。
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/image003-13.jpg)
+更多细节报道，请参见如下链接，笔者也将做进一步的跟进报道。
 
-**人物专访**** ****冠军的后妈**
+[https://www.dailymail.co.uk/news/article-9460389/Pentagon-scientists-invent-microchip-senses-COVID-19-body-symptoms.html](https://www.dailymail.co.uk/news/article-9460389/Pentagon-scientists-invent-microchip-senses-COVID-19-body-symptoms.html)
 
-**摘要：**她在《我是音雄》中活泼特别；她在《灭共杂谈》中睿智健谈；她对战友惺惺相惜的珍爱；她对未来无限精彩的憧憬；她向我们展现了积极向上又真实坦诚的一面。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/image005-7.jpg)
-**路德先生**
+引用来源：[https://populist.press/the-pentagon-is-now-prepared-to-chip-americans/](https://populist.press/the-pentagon-is-now-prepared-to-chip-americans/)
 
-**摘要：**CNN采访了前CDC主任，明确说病毒来自中共武汉实验室，之后纽约邮报知名专栏作者史蒂文莫瑟追了一篇文章，这是一种统一行动，左右派一起统一行动，是继1月20号之后民主党共和党联合灭共的开始。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/image007-16.jpg)
-**安红女士**
+审核/发稿：正义的小新
 
-**摘要：**请大家再坚持，你就是最后那棵稻草，就是最后那一颗射向中共的子弹，就是那一名我们爆料革命中冲在最前面浴血奋战的战士。大家一起加油！
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/image009-9.jpg)
-**胡博士**
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
-**摘要：**一些“砖家”一定会拿底下那张肺炎死亡率来忽悠大家，然而这些专家绝对不会给你看对应的上面那张全因死亡率的图，也不会解释为什么WIV附近（黄色圈）全因死亡率增加为什么到了下图就消失了，真的都被CCP躲猫猫整死了么？
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/image011-4.jpg)
-**艾丽女士**
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
 
-**摘要：**己所不欲勿施于人。这句话如果成立，背后隐含着这样一个逻辑：我们每个人是差不多的，欲望、爱好和需求都是相同的，只要我的动机是为你好，就要把我的想法强加给你，而我讨厌的绝对不会给你。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/image014-2.jpg)
-**博博士**
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
 
-**摘要：**谭德塞反水中共要求重新调查实验室来源，这个转向我们其实曾经提过，因为谭德赛毕竟是一个专业人士，也亲自参与了整个过程。报告为什么一直没出？就是WHO和中共在讲数，就是说到底要怎么搞？
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/image015-2.jpg)
-**墨博士**
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-**摘要：**阿拉斯加中美会谈后，中共外交进入全面“自嗨”模式，中共外交官员从“窝里横”到开启对外辱骂的“疯狗”模式。上从王杨二人，下到各国使馆，都被个人领导情绪所左右，是习总加速师的真实写照。中共外交处于奔溃边缘。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/image017-2.jpg)
-
-
-**审核：玫瑰天空**
-
-**上传：糊糊文婴**
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0
