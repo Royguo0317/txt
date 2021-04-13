@@ -17,6 +17,11 @@
 **郭文贵MILES** `2021-02-21T15:56:09`
 ##
 
+[4月13号第二次发盖特：为什么美国和欧洲．每小时都有灭共的巨大的力量在凝聚和行动？￼我们战友们一定要客观冷静的看待G系列的投资！](/content/getter/content/2021/04/6075b586dbc8001854a83ca3.md)
+
+**郭文贵MILES** `2021-04-13T15:15:18`
+##
+
 [4月13号：尊敬的战友们好……昨天我推出健身的视频后．很多战友发信息说这个视频证明了郭3秒是事实上是郭三强……把我笑得简直是受不了了，有欺民贼说文贵只能是咬着牙...](/content/getter/content/2021/04/6075a527dbc8001854a83780.md)
 
 **郭文贵MILES** `2021-04-13T14:05:27`
@@ -155,10 +160,5 @@
 [4/5/2021 Miles Guo: “The CCP’s Plan to Take Down the U.S. with Money”, which per...](/content/getter/content/2021/04/606ce70adbc8001854a60d7c.md)
 
 **郭文贵MILES** `2021-04-06T22:56:10`
-##
-
-[武汉到底死了多少人？ How many people actually died in the Wuhan pandemic?](/content/getter/content/2021/04/606ce5dddbc8001854a60d1c.md)
-
-**郭文贵MILES** `2021-04-06T22:51:09`
 ##
 
