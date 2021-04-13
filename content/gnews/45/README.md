@@ -1,35 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共发起最新运动打击基督教家庭教会
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1084760/)
+## 欧洲因中共病毒疫情死亡人数冲破百万
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1084837/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-19.jpg)christiantoday.com
-布赖特巴特新闻(Breitbart News)报道，本月，中共民政部发起了一场最新运动，旨在打击在政府批准的机构之外的独立宗教活组织。中共发起了新一轮针对家庭教会和地下基督教社区的迫害。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/D-3.jpg)postcourier.com.pg
+《法兰西24报道》，周一欧洲经历了100万中共病毒死亡人数的严峻里程碑。世界卫生组织(world Health organization)警告称，尽管采取了广泛措施来阻止感染，但感染人数仍继续增长。
 
-在四川省，中共公布了一份84个“非法社会组织”的名单，其中包括成都的独立基督教协会“早雨盟约教会”(Early Rain Covenant Church)。中共警方于2018年12月突袭了早雨盟约教堂，逮捕了数百人，其中包括前法学家、人权捍卫者牧师。一年后，成都一家法院以“煽动颠覆国家政权罪”判处王怡9年有期徒刑，中共咽喉《环球时报》称王怡是“被西方价值观洗脑”的煽动者。
+世卫组织中共病毒的技术负责人玛丽亚·范·克尔霍夫(Maria Van Kerkhove)说，“我们现在正处于疫情的关键时刻”，这次大流行的轨迹正持续增长。
 
-根据福克斯的最新报道，中共正试图通过将基督徒关押在移动的“改造设施”来给他们洗脑。援引自《自由亚洲电台》上周播出的一名化名李跃泽的男子的故事，他说自己在一个没有窗户的房间里被殴打了近10个月。
+迄今为止，中共病毒已经造成全世界293万多人死亡，近1.36亿人感染。
 
-李说，他是在2018年当局突袭他的家庭教会后被拘留的。“没有窗户，没有通风，也不允许有室外时间。”他说，“我每天只吃两顿饭，由指定的人送到房间。”
+近期国际社会对追查中共病毒来源的呼声越来越高。《纽约邮报》专栏作家Steven W. Mosher发表了一篇题为《中共国对中共病毒起源撒的谎越来越离谱》的文章，文中指出美国国务院调查中共病毒源头工作组前负责人认为，病毒不仅来自武汉病毒研究所，而且是超限生物武器研究的结果。爆料革命闫丽梦博士更是对病毒来源与中共实验室提供了坚实的科学依据。
 
-当局对他进行了威胁、侮辱和恐吓。如果“你拒绝，你会被认为态度不好，他们会拘留你，并继续打你。”
-
-中共一直在利用针对基督徒的移动“洗脑”中心，迫使他们放弃自己的信仰。这些中心使用殴打、灌输和单独监禁来诱导自残。这种压制影响了新教徒和天主教徒， 牧师的从业人员已经消失了“五年，六年，甚至十年”。
-
-在习近平主席的领导下，中共政府寻求对全国所有宗教活动进行更大的控制，并向基督徒施压，要求他们要么加入中共天主教爱国协会(Chinese Catholic Patriotic association)，要么加入同样由共产党运营的爱国三自教会(Patriotic three self Church)。中共当局要求经批准的教会的牧师将他们的信息与中国共产主义的意识形态相适应，以实现“中共化”基督教，或使其与马克思主义相适应。许多基督徒拒绝这两种选择，进而选择加入地下天主教会或“家庭教会”，在那里，一小群基督徒聚集在一起祈祷、崇拜和学习圣经。中共对此进行了更严厉残暴的打压。
-
-中共将基督教的教义视为对中共极权专治的挑战。基督教反对个人崇拜，讲求人是平等的，自由的，有尊严的。《美国独立宣言》就是对此信仰最好的诠释，“我们认为下述真理是不言而喻的：人人生而平等，造物主赋予他们若干不可让与的权利，其中包括生存权、自由权和追求幸福的权利。为了保障这些权利，人类才在他们中间建立政府，而政府的正当权力，则是经被治者同意所授予的。然而，当始终追求同一目标的一系列滥用职权和强取豪夺的行为表明政府企图把人民置于专制暴政之下时，人民就有权，也有义务，去推翻这样的政府，并为其未来的安全提供新的保障。”
-
-中共倒行逆施导致天怒人怨。现在万分惧怕国内任何挑战中共极权的意识形态的存在。星星之火可以燎原，中共对言论和宗教严厉控制，说明中共外厉内荏，担心民间团队和公众言论事件会成为推翻中共摇摇欲坠政权的力量。
+这是世界新秩序的分水岭，疫情导致国际经济秩序的崩塌，出现全球经济和人道主义危机及意识形态的碰撞。以毒灭共已经势不可挡，全球多个国家将集体向中共追责，消灭中共打造世界新秩序的时代已经来临。
 
 参考链接：
 
-[https://www.breitbart.com/asia/2021/04/11/report-china-intensifies-crackdown-christian-house-churches/](https://www.breitbart.com/asia/2021/04/11/report-china-intensifies-crackdown-christian-house-churches/)
+[https://www.france24.com/en/europe/20210413-europe-s-covid-19-death-toll-surpasses-one-million-as-cases-continue-to-rise](https://www.france24.com/en/europe/20210413-europe-s-covid-19-death-toll-surpasses-one-million-as-cases-continue-to-rise)
 
-[https://www.foxnews.com/world/china-brainwashing-christians](https://www.foxnews.com/world/china-brainwashing-christians)
+[https://nypost.com/2021/03/27/chinas-deception-over-covid-origins-more-outrageous-every-day/](https://nypost.com/2021/03/27/chinas-deception-over-covid-origins-more-outrageous-every-day/)
 
 0

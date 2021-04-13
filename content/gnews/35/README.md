@@ -1,63 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国人对中国共产党的威胁和觉醒远远不够
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1083545/)
+## 从刘新云被查看中共政法系统教育整顿
+` 喜韩Gnews中文` [轉載自GNews](https://gnews.org/zh-hans/1084883/)
 
-**简述：在2021年4月5日的GTV直播中，郭先生批评了美国私人公司的贪婪和对国家毫无责任感，可是皮之不存，毛将焉附？另外美国官员和执法部门的腐败、被中共的收买和无知使他们对共产党的威胁完全没有认识。随着美国经济和黄金出问题，共产党的以钱灭美计划、灭白计划、3F计划和“蓝金黄”的深度影响将逐渐会显现出来。**
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210405-live-p2.srt.txt)
-**美国人对共产党的威胁和觉醒远远不够**
+**     作者：就想搞个大新闻**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/微信截图_20210413123756-2.png)
+4月9日下午，中共中央纪委国家监委网站发布消息：山西省副省长、省公安厅厅长刘新云涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。
 
-**Americans’ Understanding of the CCP’s Threat Is Far From Enough**
+**“上午扫黑，下午被扫”的公安厅长**
 
-这个国家现在是华尔街和好莱坞还有美国科技公司的腐败贪婪，它最终它要付出代价的。就像美国的私人公司 3M 公司在美国最需要口罩的时候，它就在电视上说：“欸，我没有义务给你口罩啊。”对呀，就像川普还有皮特纳瓦罗还有蓬佩奥都说美国是私人公司，私人公司一切向往利益，它完全不考虑政治。这是对的，按规则说是对的，但是这个国家要完了，你这私人企业也都完球蛋。他们太贪婪了，你跟共产党做生意，你去！
+4月2日，在山西省严厉打击生态环境违法犯罪“昆仑2021”暨“利剑斩污”专项行动动员部署会议上，刘新云还出席会议并讲话，这是他最后一次公开露面。
 
-The corruption and greed of Wall Street and Hollywood as well as Big Tech companies in this country will eventually make this country pay the price. Just like when the Americans needed masks the most, the private company 3M said on TV: “Hey, I have no obligation to give you masks.” Yes, it’s just like what Trump, Peter Navarro and Pompeo said: the United States is like a private company, and all private companies seek profits and don’t care about politics at all. That is correct. Theoretically, it is right, but if this country is going to be over, you, a private enterprise, will be over too. They are too greedy. If you want to do business with the CCP, just go ahead.
+据知情人士透露，直至被通报调查当天，刘新云仍在省里开会，下班后即被带走。当天的《山西日报》还报道了刘新云部署全省扫黑工作的新闻，对于刘新云被查，当地人戏称为“上午扫黑，下午被扫”。
 
-美元都没了你啥都没了，什么美国的豪宅呀、自由女神啊、民主啊、信仰，想啥都没了。这个国家是高成本地运作，完全靠一个高成本、高质量法律体系，维护的就是一个问题——美元。美国唯一让美元能够存在就是美国的航空母舰、美国的强大的军队和国家的科技能力。当美元没有的时候美国军队就没了，美国军队没了美国的利益就没了，美国利益就没了，这些人才也不聚集美国了，美国就完了。那你说美国企业呢还有行吗？像Elon Musk这样的人他就不会待在美国，他弄不好迁都，把他公司迁到香港、去上海去了或者到欧洲去了。
+3月31日，全国第一批政法队伍教育整顿中央第三督导组进驻山西，刘新云也参加了当天的动员大会。9天后，刘新云就落马了。他也是今年中共对政法系统进行所谓的教育整顿以来，首个被查的省公安厅厅长。
 
-When the U.S. dollar is gone, you will lose everything, including your mansions in the U.S., the Statue of Liberty, democracy, faith, and everything you can think of. This country operates at a high cost. It relies entirely on a high-cost and high-quality legal system to maintain just one thing – the U.S. dollar. The only thing the U.S. relies on to keep the existence of U.S. dollar is its aircraft carriers, its powerful military, and the its technological capabilities. When the U.S. dollar is gone, the military will be gone, and when the U.S. military is gone, the interests of America will be gone, and when the American interests are gone, the U.S. will never attract talents to come here, and then America will be done. Do you think American companies will still be okay? People like Elon Musk would not stay in the U.S. anymore. He could move his headquarters to Hong Kong, Shanghai, or Europe.
+“刘新云作风霸道，在山西警界名声极差。他对下属较为苛刻，基层派出所民警长期超负荷工作，对他很不满。在督导组进驻山西省公安厅之后，单位意见箱几乎每天都有大量针对他的举报信。”山西当地人士透露，得知其被查后，山西省公安厅一位原副厅长兴奋不已，专门写了一首打油诗，以庆贺刘新云被斩落马下。
 
-这是美国人他一定要意识到的，现在你看到美国这个下边的官员，不管这些执法部门的腐败到了什么程度。腐败、被收买和无知，对共产党的威胁完全没有认识。没有我们新中国联邦没有爆料革命美国人绝对达不到今天这个程度，今天美国人对共产党的威胁和觉醒远远是不够的。
+官方资料显示，刘新云1981年从山东省公安学校毕业以后，从淄博市公安局一名普通民警做起，历任淄博市公安局政委、菏泽市公安局局长、济南市公安局局长、公安部网络安全保卫局局长。2018年，刘新云调任山西省副省长、省公安厅厅长，直至此番被查。
 
-This is what Americans must be aware of. Now you see how severe the corruption of the officials in the U.S. government and all kinds of law enforcement agencies has become. Look at their corruption, how they’re being bribed, how ignorant, and how they totally have no idea about the threat of the CCP. If not for our New Federal State of China (NFSC) and Whistleblower Movement, definitely Americans would not reach the level of understanding that they have today. Nevertheless, Americans’ understanding of the threat of the CCP is still far from enough.
+梳理刘新云的警界生涯可知，刘新云从警40年，有33年在山东工作。消息人士说，刘新云落马，除与在山西省任职期间工作内容相关，不排除牵扯到其当年在淄博和菏泽的一些工作经历。“他在山东任职期间，和一些商人关系密切。2011年12月，刘新云调任济南市副市长、市公安局局长，与此同时，山东省委常委、秘书长王敏调任济南市委书记。一般来说，公安局长都是地方党委一把手的亲信。刘新云和王敏关系不一般。”分析人士指出。
 
-这次美国经济出了问题、黄金出了问题，共产党的以钱灭美的计划和灭白计划和制造种族对立矛盾的计划和“蓝金黄”的深度逐渐会显现出来。
+王敏任职济南市委书记期间，薄熙来在济南中级人民法院受审，王敏曾在某高档酒店宴请薄熙来亲属，刘新云可能也参与其中。2014年12月，王敏落马，几乎与此同时，刘新云调任公安部网络安全保卫局局长。“刘新云能全身而退，并进入位高权重的公安部任职，想必是在中央政法委和公安部找到了更过硬的靠山。”分析人士说。
 
-This time, the U.S. economy has encountered problems and the gold price has encountered problems. The deep effect of the CCP’s plan to destroy the U.S. with money and its plan to eliminate white people and to create racial conflicts and its BGY plot will gradually become apparent.
+中国内地一家媒体指出，刘新云在公安部任职期间，与去年落马的上海市副市长、公安局长龚道安有数年交集。2010年11月至2017年6月，龚道安在公安部工作，正好与2014年12月至2018年1月在公安部工作的刘新云存在一定重合时间段。日后两人又先后分别从公安部空降上海和山西任职。而就在刘新云被查前11天，龚道安因涉嫌受贿，其案由中央纪委国家监委调查终结后，移送最高人民检察院审查起诉。“刘新云在仕途的关键时期，经历了孟建柱、郭声琨两位公安部长，而这些人都不是习近平的亲信。刘新云的落马，应该是在政治斗争中站错了队，绝对不是‘作风霸道、被商人围猎’那么简单。”分析人士说。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/微信截图_20210413123815-4.png)
+**“有比例、有名额”的政法队伍教育整顿**
 
-然后美国这两万亿美元所谓的基建和一万多亿美元的基建，这三万多亿美元都要从企业家的身上拿出来，企业家会再从这些穷老百姓手里拿回来。但这个过程它是需要时间的，它不是一天两天，它不像共产党一样把马云、马化腾是不是把这些老板全抓了，它做不到的，国家就没了。
+**  **** **2月27日，中共在北京召开全国政法队伍教育整顿动员部署会议。这个政法队伍教育整顿领导小组可谓“阵容强大”，不仅有“公检法司”各大系统一把手，还包括中纪委、中组部、中宣部等部门头面人物。
 
-And then the so-called $2 trillion infrastructure plan and the additional over $1 trillion in infrastructure, a total of over $3 trillion must be taken from entrepreneurs, and entrepreneurs will take the money from the hands of the deplorables. But this process will need time; not one or two days. It will not be like the CCP robbing all the bosses such as Jack Ma and Ma Huateng. It [the U.S.] cannot be like that, otherwise, the country will be done for.
+“这次政法队伍教育整顿其实就是习近平对政法系统的又一次清洗，为此中央还专门规定了查处案件比例和人数。”知情人士表示，北京强令，对政法队伍人员违法犯罪问题线索要“倒查二十年”，有的省份更是要求“倒查三十年”。为了清洗政法系统中对自己不“绝对忠诚”的人员，习近平费劲了心机。最近，“倒查二十年”的风气也刮到了医疗卫生等领域，有退休十多年的医院院长由于“屁股擦不干净”，选择了跳楼自尽，被当地政府部门宣布为“抑郁死”。
 
-它要一个时间，在这个时间当中可能美国人就完全失去了世界第一经济强国、第一科技强国、第一军事强国、第一信用之国和信用美元体系全部崩塌。剩下的美国可能是哪儿叫美国，德州德克萨斯叫美国，美塔那、马塔那叫美国，爱荷华州，Idaho 就是黄石公园叫美国，其它都不叫美国，像什么纽约、洛杉矶啊估计都乱了。
+分析人士认为，习近平对政法队伍开展清洗，是为了将来开展更大规模的政治运动。军队是中共的“枪杆子”，政法系统是中共的“刀把子”。历史上，毛泽东在取得了林彪等军队系统高官的支持后，清洗了以罗瑞卿为首的公安系统，才顺利发动了文化大革命。如今，习近平在抓捕、撤换了成千上万的中高级军官后，将清洗重点转向政法系统是自然而然的事情，公安系统更是清洗的重中之重。
 
-It will need some time, but during this process, Americans will likely completely lose the world’s largest economic power, the largest technological power, the largest military power, and the number one creditworthy country, and the credible U.S. dollar system will completely collapse. The rest of the U.S. that may still be called America will be places like Texas, Montana, and Idaho – where the Yellowstone is. And the rest will not be America anymore, such as New York and Los Angeles, where I guess will be totally messed up.
+除了直接查处问题官员，将政法系统高官调任其他系统也是清洗的一大妙招。1970年出生，曾任上海市公安局副局长、公安局技术侦查局局长的曹忠平，2020年10月，就被调到了湖北省任民政厅厅长。“虽然级别相同，但从权势熏天的公安部调到湖北任民政厅长，这是个不同寻常的新号。换言之，下一步很有可能就是被调查。”分析人士说。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/微信截图_20210413123824-2.png)
+消息人士认为，清洗完政法系统后，中共组织系统也许会是下一个被“教育整顿”的目标，因为它掌管着中共的“印把子”。在中共政治体系中，纪委系统负责“摘帽子”，组织系统负责“戴帽子”。清洗组织系统，既能够充实中共的“钱袋子”，又能给习近平的亲信们“腾位子”，何乐而不为呢？“习近平最近对政法系统的清洗，对反对派是一种震慑，他最根本的目的还是为了明年的二十大。只有彻底掌握了政法系统，他才能确保自己在二十大的政治安全。未来是否针对组织系统展开专项整治，还得继续观察。”分析人士说。
 
-这就是共产党想要的，搞弱、搞乱、搞死美国、蓝金黄、三F方案、蓝金黄方案、灭白计划。这都是共产党是一系列的，从科恩，从IMF世界银行，从所有的，从国会，从情报部门儿，从司法部门，你看那 Higginbotham 那司法部的，就为了遣返郭文贵他能收几百万、几千万美元。
+【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-This is exactly what the CCP wants – to weaken, to mess up, and to kill the U.S. (a.k.a., the 3F plan), to employ the BGY plot, and to exterminate the white people. These are a series of plans of the CCP, starting from Khan in the IMF World Bank (Dominique Strauss-Kahn, the former President of IMF), to the Congress, to the intelligence departments, to the Justice Department. You look at (George) Higginbotham in the Department of Justice, who accepted millions, tens of millions of dollars of bribes to just to repatriate me, Miles Guo.
+【**责任编辑**】：韩国首尔喜韩农场Gnews中文小组
 
-刘特佐，你看刘特佐那什么概念，把马…大家还记得吧，马哈蒂尔上去了把纳吉布干掉了，人家纳吉布又派了个把马哈蒂尔干掉了，马哈蒂尔上来以后现在弄了个西丁外交部长，就是人家纳吉布的人家的亲表兄弟，人家纳吉布的亲表弟又回到北京，在刘特佐的安排下，孟建柱的私生子的安排下，公开在外交部喊：“王毅你是我大哥”，哈哈，共产党这邪恶到啥程度。
+### **欢迎战友加入韩国首尔喜韩农场**
 
-Jo Low, you look at Jo Low. People may remember that Mahathir came to power to replace Najib, but Najib sent another one to replace Mahathir. After Mahathir came to power, he hired Hishammuddin (Hishammuddin bin Hussein) as the Minister of Foreign Affairs, who is the cousin of Najib. And this cousin of Najib’s went to Beijing, which was arranged by Jo Low, who is Meng Jianzhu’s illegitimate son, and publicly called Wang Yi in the Ministry of Foreign Affairs, “You are my elder brother.”  Haha, how evil is the CCP!
+[韩国首尔农场 **GTV**](https://gtv.org/user/5ec1f79982e098349fd799ad)
 
-你再看看阿拉斯加那个会面，大家我最起码我在那个YouTube上我看了三遍了，我认真地看了三遍。每一个字儿、每一句话都是精心的安排。每一个字儿、每一句话都是对美国的羞辱和侮辱。那个阿拉斯加的见面绝对等同于当年撒切尔夫人在北京跌倒那一跤。
+[韩国首尔喜韩农场 **Discord**](https://discord.gg/Z8jENsM)
 
-Please also look at the meeting in Alaska, everyone. I’ve watched it at least three times on YouTube, very carefully. Every word and every sentence was carefully written. Every word and every sentence is a humiliation and insult to the U.S. The Alaska meeting is absolutely equivalent to the incidence when Margaret Thatcher fell in Beijing years ago.
+[韩国首尔喜韩农场 **Youtube**](https://www.youtube.com/channel/UCdxCALFQp1y1fo29gR1rEQQ)
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=606b0c896e11a756edd89042](https://gtv.org/video/id=606b0c896e11a756edd89042) (1:14:01-1:18:38)
-
-鸣谢：感谢笑笑、YIMING（文鸣）、山川异域提供中文文本于 [https://gnews.org/zh-hans/1060270/](https://gnews.org/zh-hans/1060270/)
-
-* * *
-
-字幕：【JennyL】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
-+1
+0
