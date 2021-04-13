@@ -1,63 +1,122 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国人对中国共产党的威胁和觉醒远远不够
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1083545/)
+## G币VS黄金，CBDC，比特币，FB币(2-1)第一部分
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1085058/)
 
-**简述：在2021年4月5日的GTV直播中，郭先生批评了美国私人公司的贪婪和对国家毫无责任感，可是皮之不存，毛将焉附？另外美国官员和执法部门的腐败、被中共的收买和无知使他们对共产党的威胁完全没有认识。随着美国经济和黄金出问题，共产党的以钱灭美计划、灭白计划、3F计划和“蓝金黄”的深度影响将逐渐会显现出来。**
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210405-live-p2.srt.txt)
-**美国人对共产党的威胁和觉醒远远不够**
+文章作者:台湾宝岛农场 樱桃的奇幻之旅
+![]()![](https://gnews.org/wp-content/uploads/2021/04/擷取413.jpg)
+**[点击此处观看G币VS黄金，CBDC，比特币，FB币(2- 2)第二部分](https://gnews.org/zh-hans/1085149/)**
 
-**Americans’ Understanding of the CCP’s Threat Is Far From Enough**
+2020年中共病毒爆发后，各国政府为了免于经济衰退，宽松货币政策即大量印钞。而疫情延烧到实体商店受到冲击，电子商务零售成长大幅加速，全球支付快速增长，也改变了人类的支付习惯。加密货币-比特币疯涨，科技公司如Facebook推出Diem的数位货币，全球央行开始更积极讨论及加速发展「央行数位货币(CBDC)」的推出可能性。而G系列经济生态圈的形成，G币的G-Coin及G-Dollar即将发行也将迎来世界投资界的关注。
 
-这个国家现在是华尔街和好莱坞还有美国科技公司的腐败贪婪，它最终它要付出代价的。就像美国的私人公司 3M 公司在美国最需要口罩的时候，它就在电视上说：“欸，我没有义务给你口罩啊。”对呀，就像川普还有皮特纳瓦罗还有蓬佩奥都说美国是私人公司，私人公司一切向往利益，它完全不考虑政治。这是对的，按规则说是对的，但是这个国家要完了，你这私人企业也都完球蛋。他们太贪婪了，你跟共产党做生意，你去！
 
-The corruption and greed of Wall Street and Hollywood as well as Big Tech companies in this country will eventually make this country pay the price. Just like when the Americans needed masks the most, the private company 3M said on TV: “Hey, I have no obligation to give you masks.” Yes, it’s just like what Trump, Peter Navarro and Pompeo said: the United States is like a private company, and all private companies seek profits and don’t care about politics at all. That is correct. Theoretically, it is right, but if this country is going to be over, you, a private enterprise, will be over too. They are too greedy. If you want to do business with the CCP, just go ahead.
+|  | 加密货币G-Coin | 加密货币比特币 | 现金 | 央行数位货币(CBDC) | FaceBookLibra/Diem币 | 黄金 |
+| --- | --- | --- | --- | --- | --- | --- |
+| 效力 | 不具法偿效力 | 不具法偿效效力 | 具法偿效力 | 具法偿效力 | 不具法偿效力 | 不具法偿效力 |
+| 发行 | 私人 | 私人 | 政府 | 政府 | 私人 | 私人 |
+| 发行以锚 | 以黄金20%做储备 | 无 | 国家信用(外汇或部分黄金) | 国家信用(外汇或部份黄金) | 无 | 黄金实体 |
+| 供给有限(稀缺性) | 100年共计1000亿枚 | 2100万枚 | 可短期内大量创造 | 可短内大量创造 | 可短期内大量创造 | 每年约增产2500-3000吨 |
+| 价值定义 | 价格浮动 | 价格浮动 | 绑定法币 | 绑定法币 | 绑定法币 | 价格浮动 |
+| 技术定义 | 中心化 | 去中心化 | 中心化/去中心化 | 中心化/去中心化 | 去中心化 | 去中心化 |
+| 支付功能 | V |  | V | V | V |  |
+| 型式 | 电子 | 电子 | 实体 | 电子 | 电子 | 实体 |
 
-美元都没了你啥都没了，什么美国的豪宅呀、自由女神啊、民主啊、信仰，想啥都没了。这个国家是高成本地运作，完全靠一个高成本、高质量法律体系，维护的就是一个问题——美元。美国唯一让美元能够存在就是美国的航空母舰、美国的强大的军队和国家的科技能力。当美元没有的时候美国军队就没了，美国军队没了美国的利益就没了，美国利益就没了，这些人才也不聚集美国了，美国就完了。那你说美国企业呢还有行吗？像Elon Musk这样的人他就不会待在美国，他弄不好迁都，把他公司迁到香港、去上海去了或者到欧洲去了。
 
-When the U.S. dollar is gone, you will lose everything, including your mansions in the U.S., the Statue of Liberty, democracy, faith, and everything you can think of. This country operates at a high cost. It relies entirely on a high-cost and high-quality legal system to maintain just one thing – the U.S. dollar. The only thing the U.S. relies on to keep the existence of U.S. dollar is its aircraft carriers, its powerful military, and the its technological capabilities. When the U.S. dollar is gone, the military will be gone, and when the U.S. military is gone, the interests of America will be gone, and when the American interests are gone, the U.S. will never attract talents to come here, and then America will be done. Do you think American companies will still be okay? People like Elon Musk would not stay in the U.S. anymore. He could move his headquarters to Hong Kong, Shanghai, or Europe.
+## **黄金**
 
-这是美国人他一定要意识到的，现在你看到美国这个下边的官员，不管这些执法部门的腐败到了什么程度。腐败、被收买和无知，对共产党的威胁完全没有认识。没有我们新中国联邦没有爆料革命美国人绝对达不到今天这个程度，今天美国人对共产党的威胁和觉醒远远是不够的。
+黄金由于具备了供给有限，自古以来具有货币功能，在金本位时代以35美元兑换一盎司黄金，各国以黄金为担保发行各国纸币数量，但于数量有限，在景气繁荣时，产出更多的货物，当时货币无法产出更多数量来流量。反之，当景气衰退时，数量限制及无法增加数量，政府即失去货币宽松政策挹注流动性的能力，而造成银行挤兑及长期经济衰退等影响。
 
-This is what Americans must be aware of. Now you see how severe the corruption of the officials in the U.S. government and all kinds of law enforcement agencies has become. Look at their corruption, how they’re being bribed, how ignorant, and how they totally have no idea about the threat of the CCP. If not for our New Federal State of China (NFSC) and Whistleblower Movement, definitely Americans would not reach the level of understanding that they have today. Nevertheless, Americans’ understanding of the threat of the CCP is still far from enough.
+1976年国际货币基金终于批准终止布列敦森林体系，即各国货币不再用黄金做价格担保品，黄金与美元不再绑定固定价值，各国发行货币均以政府信用担保，同时大部份货币之间的汇率则转为浮动汇率。以美国为经济实力最强大，之后在国际货币迎来「美元霸权」的时代。在当时各国抛售黄金约1/5，货币以美元为主要储备。
 
-这次美国经济出了问题、黄金出了问题，共产党的以钱灭美的计划和灭白计划和制造种族对立矛盾的计划和“蓝金黄”的深度逐渐会显现出来。
+2008-09年美国次贷危机造成全球金融海啸，各国政府为了资金流通，宽松货币政策，造成货币贬值，各国央行意识到资产配置多样化，信用货币体系，而背后除美元或一蓝子货币担保，并开始买入黄金为储备担保。
 
-This time, the U.S. economy has encountered problems and the gold price has encountered problems. The deep effect of the CCP’s plan to destroy the U.S. with money and its plan to eliminate white people and to create racial conflicts and its BGY plot will gradually become apparent.
+黄金供给有限及成本提高至每盎司1000美元。从过去30年存量观察，黄金年均产量位在2500-3000吨，由于矿源及储量有限，开采成本由每盎司200美元己提升至今1000美元。
 
-然后美国这两万亿美元所谓的基建和一万多亿美元的基建，这三万多亿美元都要从企业家的身上拿出来，企业家会再从这些穷老百姓手里拿回来。但这个过程它是需要时间的，它不是一天两天，它不像共产党一样把马云、马化腾是不是把这些老板全抓了，它做不到的，国家就没了。
+黄金储备在各国财政储备占有重要地位，一方面是出于对汇率保障，另一方面可以对冲美元贬值带来的损失。其中以美国为全球最多的黄金储备量，使得黄金成为美元之外「准货币」。
 
-And then the so-called $2 trillion infrastructure plan and the additional over $1 trillion in infrastructure, a total of over $3 trillion must be taken from entrepreneurs, and entrepreneurs will take the money from the hands of the deplorables. But this process will need time; not one or two days. It will not be like the CCP robbing all the bosses such as Jack Ma and Ma Huateng. It [the U.S.] cannot be like that, otherwise, the country will be done for.
+## **各国官方黄金储备排行**
 
-它要一个时间，在这个时间当中可能美国人就完全失去了世界第一经济强国、第一科技强国、第一军事强国、第一信用之国和信用美元体系全部崩塌。剩下的美国可能是哪儿叫美国，德州德克萨斯叫美国，美塔那、马塔那叫美国，爱荷华州，Idaho 就是黄石公园叫美国，其它都不叫美国，像什么纽约、洛杉矶啊估计都乱了。
 
-It will need some time, but during this process, Americans will likely completely lose the world’s largest economic power, the largest technological power, the largest military power, and the number one creditworthy country, and the credible U.S. dollar system will completely collapse. The rest of the U.S. that may still be called America will be places like Texas, Montana, and Idaho – where the Yellowstone is. And the rest will not be America anymore, such as New York and Los Angeles, where I guess will be totally messed up.
+|  | 国家/组织 | 数量(吨) |  | 国家/组织 | 数量(吨) |
+| --- | --- | --- | --- | --- | --- |
+| 1 | 美国 | 8133 | 8  | 俄罗斯 | 934 |
+| 2 | 德国 | 3391 | 9 | 日本 | 765 |
+| 3 | 国际货币基金组织 | 2814 | 10 | 荷兰 | 612 |
+| 4 | 义大利 | 2541 | 11 | 印度 | 557 |
+| 5 | 法国 | 2435 | 12 | 欧洲央行 | 502 |
+| 6 | 中国 | 1054 | 13 | 台湾 | 423 |
+| 7 | 瑞士 | 1040 | 14 | 葡萄牙 | 382 |
 
-这就是共产党想要的，搞弱、搞乱、搞死美国、蓝金黄、三F方案、蓝金黄方案、灭白计划。这都是共产党是一系列的，从科恩，从IMF世界银行，从所有的，从国会，从情报部门儿，从司法部门，你看那 Higginbotham 那司法部的，就为了遣返郭文贵他能收几百万、几千万美元。
+资料来源:世界黄金协会
 
-This is exactly what the CCP wants – to weaken, to mess up, and to kill the U.S. (a.k.a., the 3F plan), to employ the BGY plot, and to exterminate the white people. These are a series of plans of the CCP, starting from Khan in the IMF World Bank (Dominique Strauss-Kahn, the former President of IMF), to the Congress, to the intelligence departments, to the Justice Department. You look at (George) Higginbotham in the Department of Justice, who accepted millions, tens of millions of dollars of bribes to just to repatriate me, Miles Guo.
 
-刘特佐，你看刘特佐那什么概念，把马…大家还记得吧，马哈蒂尔上去了把纳吉布干掉了，人家纳吉布又派了个把马哈蒂尔干掉了，马哈蒂尔上来以后现在弄了个西丁外交部长，就是人家纳吉布的人家的亲表兄弟，人家纳吉布的亲表弟又回到北京，在刘特佐的安排下，孟建柱的私生子的安排下，公开在外交部喊：“王毅你是我大哥”，哈哈，共产党这邪恶到啥程度。
+由于2008年全球进入低利率己降无可降，联准会因次贷危机，挽救经济衰退，接连推出QE1, QE2,QE3的大量宽松货币政策-大量印钞，及至2020年中共病毒肆虐，全球政府再次大量QE，而带动黄金创下去年新高至2069美元.
 
-Jo Low, you look at Jo Low. People may remember that Mahathir came to power to replace Najib, but Najib sent another one to replace Mahathir. After Mahathir came to power, he hired Hishammuddin (Hishammuddin bin Hussein) as the Minister of Foreign Affairs, who is the cousin of Najib. And this cousin of Najib’s went to Beijing, which was arranged by Jo Low, who is Meng Jianzhu’s illegitimate son, and publicly called Wang Yi in the Ministry of Foreign Affairs, “You are my elder brother.”  Haha, how evil is the CCP!
+**2021/3/27**郭文贵先生在视频对目前经济危机评论，可以从黄金指标来检视：
 
-你再看看阿拉斯加那个会面，大家我最起码我在那个YouTube上我看了三遍了，我认真地看了三遍。每一个字儿、每一句话都是精心的安排。每一个字儿、每一句话都是对美国的羞辱和侮辱。那个阿拉斯加的见面绝对等同于当年撒切尔夫人在北京跌倒那一跤。
+2008年黄金储量是30万吨，即30万亿美元。黄金官方约占20%即6万吨，50-55%在沼泽地球约持有黄金约在15-16万吨。主要在当时金融危机时，黄金价格下跌时，许多国家不明究理抛售黄金，大量实行QE货币超发救经济，而沼泽地趁机接手黄金后，黄金价格并稳定上涨。另外2021/4/5文贵先生视频也再次警示:中共正在劝说许多个家拿走在美国储备的黄金，并改储放在中共国，而中共国将黄金的等值贷款予对方国，那将对美国造成怎样的灾难?
 
-Please also look at the meeting in Alaska, everyone. I’ve watched it at least three times on YouTube, very carefully. Every word and every sentence was carefully written. Every word and every sentence is a humiliation and insult to the U.S. The Alaska meeting is absolutely equivalent to the incidence when Margaret Thatcher fell in Beijing years ago.
+从文贵先生警示，可以看出目前全球约1/2黄金在沼泽地，而美国从去年爆发中共病毒大量印钞，这些沼泽将控制大多数黄金，未来黄金将重回资产投资者的视线，价格将上涨指日可期。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=606b0c896e11a756edd89042](https://gtv.org/video/id=606b0c896e11a756edd89042) (1:14:01-1:18:38)
+## 黄金优缺点:
 
-鸣谢：感谢笑笑、YIMING（文鸣）、山川异域提供中文文本于 [https://gnews.org/zh-hans/1060270/](https://gnews.org/zh-hans/1060270/)
+优势:1)供给有限,具备稀缺性;2)耐久存放;3)具有货币特质;4)保值-最佳面对恶性通膨，及债务规模飙升;4)央行最适储备功能; 5)去中心化，易于洗钱。
 
-* * *
+缺点:1)不易方便携带，无法自由移动支付功能达到自由资本移动;2)利率越高,现金可生利息;因为黄金只是块石头,无法产生利息，黄金价格越弱;3)限制财政政策，无法资金流动能力。
 
-字幕：【JennyL】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+## **法币:分现金纸钞及CBDC**(Central Bank Digital Currency,**央行数字货币)**
 
-+1
+法币是靠政府法令使其成为合法通货的货币。发行法定货币的国家，会将其法币与一种(如美元)或数种外币挂钩，并以政府外汇储备维持其汇价在一定水平。亦有法币是没有资产为锚定，价值自由浮动，倚靠发行者国家控制发行数量来维持。目前全球最强法币是以美元为基础，即一国以出口外汇获得美元，即以美元为担保来印制各国的货币数量。但货币的交易方式透过统一国家的中心交易清算金融机构处理。
+
+## **美元霸权的地位**
+
+布雷顿森林体系崩溃后，美元与黄金脱钩，去掉金本位制，美国为全球最大的经济体，美元成了黄金的替代品，亦成为国际间最为通用货币，许多国家的货币数量是以自己拥有的美元数量来锚定。就如同在金本位的货币是以黄金数量为基础来创造货币一样，故美元约60%做为各国的储备货币，这就是现在全球货币的本质。
+
+各国储备货币类别:美元:60%,欧元:21%;日圆:6%;英磅4%;人民幤2%;加币:2%;澳币:2%;其他:3% (资料来源:IMF, BIS)
+
+## **目前美元是否贬值为几个因素:**
+
+1).经济衰退-大量印钞:由于联准会预计至2023年维持目前利率不变，也就是接近0%的利率水平不变，同时此次美国拜登政府大规模推出购债以及各项融通政策，使美元货币供给暴増20%以上，美元将再次大幅的贬值。
+
+2)债台高筑:美国国债在2021/3/1日己达28万亿美元，平均美国每一家庭约负约28万美元.(美国财政贸易双赤需要外资支撑)。
+
+3)替代货币的涌现:2020年中共病毒爆发，电子支付系统改变及资产保值，最有名当属比特币飙涨，己成为一些企业及一些国家考虑做为货币储备。
+
+4)地缘政治力量正持续减弱:中共国挑战美元国际结算地位。近期中国及伊朗的石油交换，不再透过美元体系及中国为一带一路为周边各国的债权国，为未来推动中国的人民币或数字货币方式做为结算体系。
+
+## CBDC(央行数位货币)
+
+由各国央行推出「数位货币形式存在的纸币,电子现金」，等同于当地国的现金。 CBDC是以各国的国家信用背书，推出的央行数位货币，币值更加稳定，具有法币的效力可信赖的，使用便捷，并可供人们广泛用于收付款的货币。数位货币使资金流动变得容易，发行成本更低，交易速度更快。未来各国央行可以直接将数位货币发行到用户的线上钱包。
+
+现各国政府面临着加密货币如比特币，科技公司如脸书的Diam及未来一些私人机构发行的数字货币兴起，由于可跨境支付及去中心化。目前政府缺乏完善的监管规范，如果让这些数位货币任其发展，一旦被大众承认及使用，未来将延伸国际洗钱，反恐资金筹措，金融犯罪等，将危及本国政府的货币金融体系及影响制定财政政策措施。各国发展数字货币(CBDC)己成未来趋势，目前许多国家央行开始讨论及探索创造数位版现金的方法，并制定相关规范，更加速推动民众接受的信心。
+
+中国为全球最积极推广「数字人民币」亦就是同「央行数字货币(CBDC)」概念一样，目前以发红包方式采试点。中共国为能更极权控制本国人民及金融政策，并加速推动国家的数字货币，尤其人民币更想要取代美元地位。近期中国与伊朗合作石油以人民币为支付，一带一路为周边国的债权国等，均为将来以「数字人民币」铺路，而这些策略亦将削弱美元在国际的地位.
+
+## CDBC优缺点:
+
+优点:可取代现钞做为电子快速交易，由于电子化，银行不会有挤兑的危机，并且减少印钞成本等。具中心化，可以监控洗钱及反恐资金筹措及监督金融犯罪。
+
+缺点:同现金现钞一样，每当经济衰退，各国政府大量印钞，将造成货币增发而贬值。
+
+**[点击此处观看G币VS黄金，CBDC，比特币，FB币(2- 2)第二部分](https://gnews.org/zh-hans/1085149/)**
+
+资枓来源:
+
+[央行数位货币之发展趋势](https://www.bankchb.com/chb_2a_resource/leap_do/gallery/1614821310626/70-1&amp;2專題論述.pdf)
+
+[现金、电子支付、CBDC的消长，央行数位货币的发展趋势| TechNews科技新报](https://finance.technews.tw/2021/03/19/the-development-trend-of-central-bank-digital-currency/)
+
+[黄金储备](https://www.cnyes.com/CentralBank/goldResere.htm)
+
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+
+文章审核：zhong
+
+文章发布：Little Liu
+
+0
