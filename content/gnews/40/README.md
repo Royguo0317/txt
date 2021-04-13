@@ -1,31 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 前防长预警澳正处在被中共卷入战争的边缘
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1089818/)
+## 【热点播报】参议员霍利：需立法打破大型科技公司垄断
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1089990/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+纽约香草山写作组   四季
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/A-15.jpg)news.com.au
-周一（4月 12 日），澳洲前防长派恩（Christopher Pyne）预警，随着台海局势日益恶化，澳洲正处在被中共卷入战争的边缘。
+4月13日，加拿大保守在线新闻杂志The Post Millennial 报道了参议员乔希-霍利（Josh Hawley）周二晚上接受福克斯塔克-卡尔森（Tucker Carlson）的采访，谈到了他打算对那些在他看来已经实现非法垄断的大型科技公司进行立法。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-21.png)图片来源：卡尔森节目截图
+该法案是“一项废除现代信任议程，将禁止市场缺口超过1000亿美元的公司进行并购。它还将授权联邦贸易委员会，对在线市场中占主导地位的数字公司进行监管”。
 
-据澳洲广播公司报导，周一在阿德莱德大学法学院发表演讲时，这位经验丰富的外交军事家向学生们表示，如今在印太（印度洋-太平洋）地区发生 “热战”（kinetic war）的可能性比他 2016 年被任命为国防工业部长时要高得多。
+卡尔森指出，霍利参议员制定这项立法的时间刚刚好。据悉，有超过100家公司聚在一起，试图想办法修改选举法。
 
-派恩总结了中共国大规模增加军费的情况。“虽然美国的军费开支仍占全球军事开支的二分之一，但中（共）公布的国防开支在 2021 年将达到（惊人的） 2100 亿美元。” 和平时期，没有哪个国家会主动增加国防开支。更为可怕的是“中共军队完全具备与美国及其在西印度洋-太平洋和东南亚岛链周围的盟国展开一场不对称战争的能力，澳洲就是盟国成员之一。”
+霍利说，这个法案“是让美国人民重新控制他们的民主，而不再是这些巨型公司。任何公司都不应该大到如此强大，以至于可以控制政治进程，可以凌驾于选民的意志之上。此外，还将阻止为了成立这样的超大型公司，而进行的公司合并或相互收购。同样，根据这项新法律，银行也将被迫放慢步伐，对违反信托法的人将施加“更严厉的惩罚”。
 
-中共既有成为世界霸主的野心，又漠视人权和世界规则。“中共的战略姿态已不像过去那样温和，他们毫不隐讳地展示自己的实力。”这是真正的战争，而战争就会涉及生命、军事设施的破坏和侵略者及爱国者。
+霍利希望有一个“反托拉斯法的新焦点”，这应该是关于促进竞争的。自由，在存在竞争时能得到保护，而不是在垄断时得到保护。
 
-北京当局在镇压香港运动和对待中共国维吾尔族少数民族的问题上不但展示了他们的军事实力，更展现出他的残酷无情和对生命的漠视。
+由于大型科技公司的垄断，他们越来越多的执掌了这个世界的话语权。垄断造成对真正的自由市场的破坏，企业家失去了创新的空间，并且形成了一股政治力量，钳制人民的言论自由。近年来，包括欧盟在内的很多国家都在扩大对大型网络公司的控管，希望降低其对市场的垄断。
 
-派恩说，最令人担忧的是，中共向台湾所施加的军事政治压力，令台湾时刻处于战争危机之中 。台湾现已成为印太区域最有可能爆发局部战争的地方。尽管上个月美国印太司令部司令、海军上将戴维森（Philip S Davidson）说，美国必须保护其太平洋领土不受中共可能的入侵，但中共连日来频繁派增派军机扰台，凸显其武统台湾的决心。
+原文链接：[https://thepostmillennial.com/watch-senator-josh-hawley-lays-out-plans-to-break-up-big-tech-monopolies](https://thepostmillennial.com/watch-senator-josh-hawley-lays-out-plans-to-break-up-big-tech-monopolies)
 
-派恩认为，未来十年内，亚太地区有可能发生一场涉及中共国的 “真正战争”。“这不是危言耸听，这是你我在未来 5 到 10 年内很可能要面对的事情。”
+审核/发稿：正义的小新
 
-参考链接：
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
-[1] [War involving China in the Indo-Pacific region highly likely, warns Christopher Pyne – news.com.au – 2021/04/13](https://www.news.com.au/technology/innovation/military/war-involving-china-in-the-indopacific-region-highly-likely-warns-christopher-pyne/news-story/94533d769d72f42558f6db85062c90a1%20)
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
 
-[2] [澳洲前防长警告中共恐在印太地区引发战争 – 大纪元 – 2021/04/13](https://www.epochtimes.com/b5/21/4/13/n12876039.htm)
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

@@ -1,38 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美媒指拜登政府的软弱纵容中共做大
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1090251/)
+## 中共精心布局多年&nbsp; 收买议员里应外合&nbsp; 抽走黄金打垮美元
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1090422/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+**简述：郭先生在2021年4月5日的GTV直播中警告美国人，中共从2006年就开始精心布局，通过收买廉价的美国议员里应外合，耸动各国从美国抽走黄金储备，来达到击垮美元的目的。从最近各国媒体和美国议会的动向来看，中共已经全面开始行动！**
+[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210405-live-p1.srt.txt)
+**中共精心布局多年****  ****收买议员里应外合****  ****抽走黄金打垮美元**
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/DS.jpg)abandonthecube.com
-Newsmax社评文章4月13日指出，拜登政府对中共的软弱留下的权力真空，将促使中共不仅在中东崛起和有能力进行网络攻击，而且在全球范围内，中共将可能宣称自己是最有统治力的超级大国。
+**The CCP Has Been Working on Moving Gold Reserves Out of the US to Defeat US Dollars for Years**
 
-这对美国没有好处。中共一直试图在经济和军事上篡夺美国作为世界上最强大国家的地位。
+最近看见了吗？全世界媒体在上周开始起全面报道：“要开始，是时候啦！受够啦！Enough！Enough！我们要到美国看看我们的黄金在不在！”
 
-我们可以看到中共的全球战略在三个关键领域发挥作用。首先是最近宣布的与伊朗长达25年的合作关系，其次是创建政府控制的加密货币“数字人民币”;第三，中共的“一带一路”倡议。
+Have you seen it lately? Since last week, the world’s media has been all over this matter – “Let’s do it! It’s about the time!” “Enough! Enough!” “We need to see if our gold is still in the United States!”
 
-“一带一路”被称为“新丝绸之路”。简而言之，国际清算银行是一条横跨欧洲、非洲、澳大利亚和太平洋诸岛的大型新贸易通道，将中共置于其中心。中共的大量外国投资包括新建公路、新建铁路、新建海港和新机场，许多评论指出这是中共借债给当地政府的债务陷阱。如果一个国家拖欠债务，中共同意要么控制基础设施，要么控制土地。这些精明但具有战略意义的举措确保了中共完全控制特定贸易环境的能力，以及将包括美国在内的竞争对手拒之门外的能力。这种经过计算的投资部署，使中共无需动用军事力量，就可以对一个国家实施外交和金融控制。
+8000吨也好9000吨也好，美国储放的黄金，我真的不相信真的在那儿。从过去布雷森系统1973年之后到现在这个黄金，以货币本位的黄金，我告诉你未来黄金未来一定值大钱，包括银，黄金、银一定不是1800，一定超过一万块美金，按今天的价格一定超过一万，只是时间的问题。所有的信用纸币一定崩塌！一定崩塌！就是在什么时间、什么方式的问题。
 
-从本质上说，中共正在各国建立重要的经济立足点，以缓冲美国军事存在和经济扩张的影响。
+I really don’t believe that the gold kept in the U.S. is really there, no matter it is 8,000 tons or 9,000 tons. From the post Bretton Woods System era in 1973 to the present time with currency-based gold, let me tell you, gold will worth big money in the future, and that includes both silver and gold. The price will definitely not be $1800, and will definitely exceed $10,000. Based on today’s price, it will definitely be over $10,000, just a matter of time. All credit-based currencies will collapse! Definitely! It’s only a matter of when and how.
 
-再来解读中东局势和中共最近宣布的与伊朗的伙伴关系。40多年来，伊朗和美国一直处于令人难以置信的敌对地位，这一举动只会导致美国在让伊朗承担责任方面处于弱势地位。
+那么在美国这些黄金要没有了，那个科恩他说的是对的。科恩不可能乱讲话一点根据没有，他再好色他不能乱讲话，拉加德当了IMF主席以后，最重要的当时就是被警告，你敢提一次这个事情你也完蛋。原来一个日本的，好像一个日本裔的人在IMF的货币组织也想提，最后很快就辞职了，这是改变世界货币命运的。
 
-中共向这个世界上大多数人都担心制造核弹的国家提供经济援助，并不断威胁以色列的生存。美国政府通过经济制裁和军事打击来减缓伊朗在这方面的进展，美国别无选择以这些政策来限制伊朗滥用铀浓缩设施，减缓其现有的核研究能力。而中共无视美国制裁，通过购买伊朗石油和增加投资对伊朗进行援助，这将使伊朗无视西方反对其制造核武器的压力。在最坏的情况下，中共的投资可能包括由中共建造和配备的重水浓缩设施，这也意味着美国可能没有能力在不引发与中共政府直接军事冲突的情况下对伊朗这些设施进行军事打击。
+So, if the gold kept in the United States is gone… What Kahn (note: Dominique Strauss-Kahn, Former President of IMF) has said is right. Kahn cannot say something totally baseless, no matter how lustful he is, he cannot say something like this baselessly. After Lagarde (Christine Madeleine Odette Lagarde) became the IMF President, the most important thing happened to her at that time was being warned that if you dare to mention this thing for once, your career will be over. Once a Japanese descent who was in the IMF attempted to bring this up, and he ended up with being quickly resigned, because this is something that can change the fate of the world’s currencies.
 
-与此同时，中共继续控制的经济威胁非常真实，中共“数字人民币”的创建可能被证明是中共夺取经济权力的关键。
+美国会不会接受储存黄金？我告诉你共产党还有更厉害的一招儿，共产党在美国所有的行贿的议员。我告诉大家一个某国元首，他说：“Miles，共产党很聪明啊，说让我到美国去搞几个所谓的国会议员作为朋友。”我说：“为什么呀？”他说：“未来要影响力呀。”他说：“他们为什么要对司法委员会、金融委员会、情报委员会、能源委员会那么关键，” 他说，“特别对金融委员会，然后要有发起议案的议员。”他说：“实际很少钱，捐个几万美元就行了，就搞定一个。他们为什么要这么干？”
 
-随着“一带一路”计划继续加快对海外市场的金融投资，人们可以预期，中共将坚持要求那些难以偿还债务的国家采用或至少投资于数字人民币。这反过来又会加速人民币的总使用量，然后可以用于更多的投资等等。
+So will the United States accept the fact that the CCP’s keeping the gold? Let me tell you that the CCP has a more ruthless tactic, that is bribing Congressmen of the United States. I can tell you that a chief of a certain country once said to me, “Miles, the CCP is very smart. They wanted me to go to the U.S. to make friends with several so-called members of the Congress.” I asked, “Why?” “The CCP wants to have influence in the U.S. in the future,” he said, “and that’s why they see the Judiciary Committee, the Finance Committee, the Intelligence Committee, the Energy Committee [of the Congress] as so critical to them.” He continued, “Especially the Finance Committee. And then they need to have congressmen who can introduce the bill.” He said, “These kinds of things actually do not need a lot of money. Just a few tens of thousands of dollars of donation will work. Why do they want to do this?”
 
-很明显，中共不断地推开边界，为对抗创造了条件，而减缓这种情况的唯一方法就是阻碍他们。华盛顿必须认识到这一点的必要性。
+我当时我的眼睛就亮了，“哎呀，”我说，“共产党这所有的准备是和未来就是他们的要以钱灭美的时候、要查美国黄金的时候，美国议员必须得有呼应。”我当时就想到这一点了，“哎呀，”我说，“这事儿有意思，哎呀，”我说，“你要给我讲讲这个细节。”啊，他给我大致讲了讲。我知道老共已经深深地植根于准备这场战争。
 
-如果拜登政府面对中共继续软弱，美国可能会发现我们的全球准入受到限制，我们开展业务的能力受到削弱，随着中共取代美国的影响力，美国经济衰退的压力也会慢慢加大。
+My eyes lit up immediately. “Gee,” I said, “all the CCP’s preparations were in line with their plan: in the future when they are ready to destroy the U.S. with money and ready to launch investigations into the gold reserves in the U.S., they need to have American congressmen to echo.” I thought of that at that very moment. “Oh, my!” I said, “That’s interesting.” I asked him, “You need to let me know more details about this.” He then told me briefly, and then I knew that the CCP was already preparing for this war insidiously and secretly.
 
-正如爆料革命创始人郭文贵先生所揭露的，中共以毒灭美，以钱灭美，用蓝金黄、3F计划搞弱美国、搞乱美国、搞死美国的战略已经初见成效。美元地位岌岌可危，因中共疫情影响，世界即将迎来经济大崩溃。如果美国仍不警醒，继续勾兑纵容中共，将付出沉重的代价。
+最近美国最起码超过两到三个议员要提起，自己人提起核查美国给外国储备的黄金，包括美国黄金。
 
-参考链接：
-[https://www.newsmax.com/sethdenson/washington-leadership/2021/04/13/id/1017405/](https://www.newsmax.com/sethdenson/washington-leadership/2021/04/13/id/1017405/)
+Recently, at least two or three U.S. Congressmen are proposing to have the U.S. to voluntarily verify its gold reserves for foreign countries, including America’s own gold reserves as well.
 
-0
+所以说，我这过去这一两周我一看，共产党出手了，出手啦！
+
+So, based on what I observed the last couple of weeks, I know that the CCP has made the move. They have started to take actions!
+
+让拜登干的事儿基本上拜登都干完了，应付差不多了，呵呵，该谈的也谈啦，是吧？新疆大屠杀属于文化问题、文化冲突；然后香港也没采取惩罚；冠状病毒现在不准谈，不是共产党的。你看基本都做完了。
+
+Biden has basically done all the things that he was asked to do [by the CCP], and has said everything that he was supposed to say, right? The Xinjiang massacre is a cultural issue or a cultural conflict; there has been no punishment for what the CCP did to Hong Kong; and the coronavirus is not allowed to be talked about and it has nothing to do with the CCP. You see, Biden has basically done all of that.
+
+然后全世界铺天盖地在上周，所有这些国家、各大媒体包括拉脱维亚、匈牙利、意大利的报纸都在说该到美国去查黄金了，该把美金拿回来了，关键问题[是]在上周就有七八个国家把大量的黄金运回了国家，包括日本啊，包括日本。恐怖不？
+
+And then last week, this was extensively covered by media all over the world. All these countries and all the mass media, including Latvia, Hungary, Italy’s newspapers were saying that it’s time to go to the U.S. to check our gold reserves, and it is time to take back our gold. The problem is that in the last week there were already seven or eight countries that had shipped a large amount of gold back to their countries, and that included Japan. Japan! Scary, isn’t it?
+
+同时美国几个议员提议要查美国黄金储备。就花几万美元就可以搞定[几个议员]。而这是美国（口误，应为中国）在2006年就开始准备、中共就准备的，最近全开始了。战友去想想，这个结局会是什么？美元崩塌、美国经济崩塌、美国的信用崩塌。
+
+And concurrently, several U.S. congressmen proposed to check the U.S. gold reserves. It only takes tens of thousands of dollars to buy out a congressman. And this is what the CCP has been preparing since 2006, and it has all started recently. Our fellow fighters, think about it, where this will lead to? The collapse of the U.S. dollar, the collapse of the U.S. economy, and the collapse of the credit of the U.S.!
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=606b0c896e11a756edd89042](https://gtv.org/video/id=606b0c896e11a756edd89042) (1:04:04-1:07:11, 1:07:35-1:08:57)
+鸣谢：感谢湘江之水、Winner为自由而战（文祥）、万物归一、柒号G币、Bruce(文远)、山川异域提供中文文本于 [https://gnews.org/zh-hans/1060164/](https://gnews.org/zh-hans/1060164/)
+
+* * *
+
+*翻译：【rainbow】字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】*
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
++1

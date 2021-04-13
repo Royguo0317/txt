@@ -1,127 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.11.2021PM-中共宣传美航母遇见辽宁号灰溜溜离开
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1089819/)
+## 【世事解评】畅想新中国联邦电子公民的可能性
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1080335/)
 
-视频剪辑 : Ablec(文A)
-中听校： 洛杉矶天使农场 – 烟波浩淼
-英翻译：洛杉矶天使农场 –飞利普
-英校对：洛杉矶天使农场 – 烟波浩淼
-字幕+视频制作：洛杉矶天使农场 – 小腾腾说
+香草山写作组：Paul Li
 
-**路德:**
-《环球新军事》说，
-The CCP’s Global New Military news said
-中共国航母罕见出动
-that the dispatch of Chinese aircraft carrier is rarely seen
+2020年6月4号郭文贵先生宣告新中国联邦成立，此后建立了喜马拉雅农场联盟和分布于世界各地的农场，以此服务战友。利用互联网管理农场和联盟的运作，这为中国人描绘了怎样的未来呢？用一个时髦的概念描述的话，新中国联邦是个云端国家，全球化，网络化，便捷，但又具有实实在在服务新中国联邦公民的功能性。
 
-美国航母一看就灰溜溜离开
-but the US aircraft carrier left dejectedly as soon as seeing it
+参考爱沙尼亚的线上国家的经验。爱沙尼亚的电力公司、自来水公司、医院、政府、交通等公共服务全部上线，所有爱沙尼亚居民颁发有数字签名的身份证，居民们可以通过这张卡片访问所有的公共服务。爱沙尼亚有线上投票系统，并在2007 年 3 月举行了全球第一次网络国会成员选举。
+![This image has an empty alt attribute; its file name is v2-b8cd2fa34a42809b119de0e0fa70ff88_1440w-1.jpeg]()![This image has an empty alt attribute; its file name is v2-b8cd2fa34a42809b119de0e0fa70ff88_1440w-1.jpeg](https://gnews.org/wp-content/uploads/2021/04/v2-b8cd2fa34a42809b119de0e0fa70ff88_1440w-1.jpeg)图片来自网络
+利用区块链技术，确保公民可以监督政府工作人员对数据的访问。例如你可以查询自己的信息被那些人访问过，如果你的病例被一个奇怪的警察看过，而且未经授权，那么他将被问责。2014 年，e-Residency 项目应运而生，该项目把分散在世界各地的电子公民聚集起来建设一个数字国家，而没有国界的阻隔。这个项目受到世界各地人们的欢迎，据说安倍首相也申请了e-Residency。
 
-看看它怎么对内洗脑忽悠的
-Let’s see how this report is brainwashing and deceptive to its readers
+爱沙尼亚的网上国家实践不仅是把一些服务网络化方便了民众，而且实现了信息的监督，公民更便捷的参与国家治理，而且没有国界的限制，无论身在何处，都可以参与国家的管理。而政府的角色更像是服务型的公司。
 
-它说中共舰队将美军给堵住了
-It said that the US army had been blocked by the CCP’s fleet
+新中国联邦会有自己的货币喜马拉雅币，将是全球自由流通的最便捷的支付手段。同时新中国联邦有自己的媒体平台GTV，贸易体系GMALL和GFashion，甚至可能有新中国联邦护照，以及遍布全球的“农场”。这将是一个没有国界的云端国家，每个新中国联邦人都可以接入网络参与其中。
 
-辽宁舰旁边的055型导弹驱逐舰，南昌舰
-Either 055 missile destroyer or Nanchang warship beside the Liaoning aircraft carrier
+新中国联邦也不会代替任何国家政府的实体，每个新中国联邦公民可以依然生活于自己的所在国。新中国联邦估计也会接受其他人加入，无论是来自中国，还是美国，还是印度。这种新的权力体系横空出世，不像之前的任何一个政权局限于某个地域或民族，而是像互联网一样遍布全球，像区块链一样有迹可查。
 
-它绝对是一座移动的火力堡垒
-It is absolutely a moving firepower fortress
+中共的独裁、抢劫公民财富的行为，使千万有知识有财富的中国人加入新中国联邦，而这正好成就了一种新的组织形式，并超越之前的国家形式。中共的恶才成就了新中国联邦的巨大人气，无疑远超爱沙尼亚的e-Residency。这种新的形式具有监督任何一个未来中国政府的能力，未来中国的政府只能成为一个服务型的政府，就像小区的物业，干得不好就得换掉，这是一个多么值得期待的未来。
 
-其超过万吨的身躯，综合作战能力
-its body weighted more than 10K tons with an integrative combat capability
+[参考资料](https://www.zhihu.com/question/33551879)
 
-已超过美军提康德罗加级导弹巡逻舰
-And has surpassed the US Ticonderoga missile patrol ship
+审核/发稿：正义的小新
 
-美军因为惧怕这个导弹驱逐舰所以灰溜溜地离开
-The US military left dejectedly is because of the fear of this missile destroyer
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
-忽悠习神的。为什么我们今天说这个？
-It’s a hoax to Xi God. Why do we mention this today？
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
 
-这篇就是写给中南坑习神看的
-The report is written to Xi God in Zhongnan hai
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
 
-就跟当年写给那个慈禧太后
-Just like the report written to Empress Dowager Cixi back then
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-你看被我们义和团给吓着了吧。美国是纸老虎
-You see, they are scared by CCP’s “Boxers”. The America is a paper tiger
-
-习神看了以后很开心
-Xi God was very happy after reading it
-
-你看，（美军舰）跟我们一对就跑了
-You see, (US warship) ran away once encounter with CCP’s fleet
-
-他知道航母肯定搞不过别人
-The CCP knew that their aircraft carrier would not be able to defeat over others
-
-所以就说因为我们有导弹驱逐舰，所以美军就害怕了
-because CCP had missile destroyer, so the report said that the US army was afraid then.
-
-自我意淫。我们从逻辑上来看，中共的导弹驱逐舰有多落后?
-Self-daydream. Let’s look logically how backward the CCP’s missile destroyer is?
-
-它觉得就是因为一万吨，当然了
-The CCP thought because the displacement of the destroyer is 10K tons. Of course
-
-这个东西一定是对中南坑习神还有中共统治下的14亿老百姓
-this report is certainly shown for Xi God of Zhongnan Hai and 1.4 billion people under the rule of CCP
-
-它是有洗脑作用的
-it has the brainwashing effect
-
-它现在就是介于驱逐舰和巡洋舰之间搞了一个大型的驱逐舰
-At present, the CCP just built a larger destroyer between the current destroyer and the cruiser
-
-中共的创新就这个概念，比如一辆车本来是帕萨特的底盘
-This is CCP’s concept of innovation. Like a car has a Passat chassis originally
-
-然后用帕萨特的底盘改装成一个越野车
-then it is refitted into an SUV with Passat chassis.
-
-你看这就是我们的创新能力
-You see, this is CCP’s innovation capability
-
-我们的创新能力就体现在这里
-Its innovation capability is embodied here
-
-这个驱逐舰充分的体系(现)了中共所谓我们就是善于改装
-This destroyer fully reflects what the CCP so-called “We are good at refitting”
-
-我直接把驱逐舰变成巡洋舰
-They directly turned the destroyer into a cruiser
-
-变大，装的导弹多了，这就是我们的创新
-Make it bigger and carry more missiles. This is their innovation
-
-这就是中共内部自我意淫的
-This is what the CCP’s self-daydream is
-
-真正美国的创新是从无到有
-The American real innovation starts from scratch
-
-中共的所谓创新，就像华为手机
-The so-called innovation of the CCP is like Huawei’s mobile phone
-
-换个壳，漂亮一点，换个摄像头，这就叫创新
-Redesign a case, nicer looking and replace a better camera. This is called innovation
-
-用德国最好的赛思(蔡司)的摄像头，这就叫创新
-Equipped with German’s best Zeiss lens, this is called innovation
-
-他们永远都停留在这个意义上
-They will always stay in this sense
-
-刚刚博博士给我发私信，他说（中共）胡扯
-Just now Dr. Bo sent me a text message. He said (CCP is) bullshit
-
-055根本没有去南海，知道吧
-You know it , the 055 missile destroyer didn’t go to the South China Sea at all
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0
