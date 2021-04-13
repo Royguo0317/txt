@@ -1,51 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104012（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1083789/)
+## 【郭先生直播要点回顾】2017年4月26日文贵推友过10万感谢视频
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1083932/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+**出品：Gnews编辑部郭先生资料库整理组**
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片1-27.png)
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+*郭先生筹备首次全球新闻发布会，遭受盗国集团全面攻击，不仅以国家的名义威胁推特公司非法关闭账号，还通过各种渠道威胁家人、员工和合伙人。*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01-1.jpg)
+**要点一：推特账户被非法关闭**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02-1.jpg)
+今天我的推特又被盗国贼派来的五毛水军们，用各种非法手段捣乱。中共政府通过个人关系以国家的名义进行威胁，导致我的账户再次被非法关闭。经过我们律师团队、朋友的帮忙已经恢复。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03-1.jpg)
+**要点二：家人、合伙人、员工受到威胁或抓捕**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-2.jpg)
+老领导跟我联系后有了反应，从昨天到现在接到很多通过朋友或当地流氓黑社会的威胁电话，还有人威胁了我的合伙人。他们对我召开全球新闻记者招待会非常恐惧，还有来自中共高层的各种威胁。我的很多员工因为长期关押受不了，想自杀。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05-1.jpg)
+**要点三：近期****工作重点****是****全球新闻发布会**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06-1.jpg)
+我近期工作的重点是全球媒体大会，极有可能邀请一位比我价值高百倍千倍的关键人物参加，正在协调中。我建议本次会议的主题是推动中国依法治国，招待会的举行时间初步定于5月底或6月的第一周，可能会在纽约。律师团队正在对我准备爆料的人和事，特别是涉及当地法律的问题进行研究，因为我要求播放的视频中很多属于不雅视频。我们会把爆料的信息提供给媒体，这就需要第三方的法律团队预先进行核实，所以会推迟时间。我会尽可能的邀请一些重要的推友来参加这次的全球媒体大会。会上将会播出马建副部长的视频、邪性视频、为什么见达赖喇嘛、王岐山、姚庆、孟建柱、傅政华的更多猛料。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07-1.jpg)
+**要点四：吴先生****妄加评论马****建****副部长和我们所涉及的事情**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08-1.jpg)
+今天在明镜火拍对吴先生的采访中，我最不喜欢的是对马建副部长的妄加判断，他是在完全失去自由的情况下接受的采访，所说的绝大多数事情都是相反的、假的。吴先生强调自己是文人，怀疑我这个草根的爆料内容，你的评论是极其不客观、不符合事实的。我的好坏与我爆料内容的真实性和所揭发的贪污者、盗国贼们没有关系。请不要对我的家人、员工和马建副部长妄加评论，希望大家把更多的精力用于验证爆料的真实性和影响性上。在过去的几个月，我已经推动了中共内部积极的变化，历史上能让中国政府的最高层引起如此高度的重视的可谓是前无古人，后无来者。中国政府、盗国贼们的疯狂行动，已经证明了我爆料的能力、威力和影响力。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09-1.jpg)
+**视频链接**：[https://www.youtube.com/watch?v=efyoe8UyF8c](https://www.youtube.com/watch?v=efyoe8UyF8c)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-4.jpg)
+* * *
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-3.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
+*发布：纽约香草山农场 shangshang*
 
 0

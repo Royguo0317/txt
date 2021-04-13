@@ -1,47 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共发动举国之力推广疫苗接种
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1083635/)
+## 中共国没有真正的企业家&nbsp; 只会搞战狼糊弄自己
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1083578/)
 
-#### 译评：zzballack | 责编： 沙拉猫
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4112-7.jpg)图片来源：WAMC
-据华盛顿邮报最新报道，在中共病毒肆虐中国一年后，中共当局不得不通过利用社会施压、物质奖励、舆论宣传和胁迫等手段来忽悠没有急迫接种需求的人打疫苗。
+**简述：在2021年4月9日的盖特视频中，郭先生感叹中共国没有真正的企业家，只有混家，而美国的一个 Elon Musk 干的事是多少个国家都做不到的。中共国对现代文明没有贡献，却天天吹嘘自己的富豪排名和假装战狼，糊弄自己，非常可悲。**
+[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210409-getter2.srt.txt)
+**中共国没有真正的企业家****  ****只会搞战狼糊弄自己**
 
-调查显示，尽管人们接种疫苗的意愿很高，但是第二大经济体的接种推广进度仍旧滞后。中共公共卫生部门的官员说在夏季之前要达到40%的人口接种率。国家卫健委称，在过去的一周，大陆每天有450万人接种，截止本周五（2021年4月9日）大陆已经有1亿6100万的人完成接种。牛津大学的数据追踪项目Our World in Data显示，大陆有11%的人至少接种了一剂疫苗。这个数字跟群体免疫要求的80%接种率相比是远远不够的，而美国疾控中心的数据显示，有三分之一的美国人接种了疫苗。
-![](https://lh5.googleusercontent.com/qoJOko943_DTdqeuQMfIkbBEBiyK0sQmz0bdtCOmxVRzxfZ_taWrd0qFhkEef8GcSfXH1WEHn-n-I9R4KfS_84i-uOXnbKoIWPAWN9ukGJms82wSBt70bIQYDOv7MB4l9IZN_P95)![](https://lh6.googleusercontent.com/P6jFU9jXiDrfd_DggfRo3VQ7NDX9HC4zJXTAYGfAwAn7QbuBXkz5MrnVUabls97iCwJDId-yA_vIJaY30Zeo8jw6T02Xz3ZLMewDzG4qWksjcUqm53qwR0pEtp0LA5U9c4a9-MVF)
-中共推广疫苗接种的另一大挑战是其当前使用疫苗的有效性低。初步数据显示，中共疫苗的有效性只有50%到80%（评：真实数据远低于此，根据秘鲁媒体报道最低的仅有11.5%）。中共疾控中心主任高福称，当局正在寻求通过调整剂量、多打一针或者改变多次接种的时间间隔等措施来提高疫苗保护率。（评：这些措施不仅不会提高保护率反而增加感染中共病毒的几率）
+**There Are No Real Entrepreneurs in Communist China**
 
-上月，一位中共高级官员在和地方官员就加速疫苗接种的远程会议中提到，疫苗接种对于世界第二大经济体（评：擀面杖子经济全是吹的）的复苏至关重要。一位中共力捧的所谓知名公共卫生专家甚至把接种疫苗和爱国主义与国家安全关联在了一起。由于人们的低接种意愿，中共的居委会、企业、学校被要求主动给人们推广疫苗，而非民众自己上门预约登记。社区工作人员和居住小区经理通过打电话和上门拜访来指导老年人如何通过手机来预约疫苗接种，同时还派发说明书，设置宣传点以求为尚存疑虑的人答疑解惑。据大部分人反映，他们都被其所在的工作单位和物业管理人员多次询问是否要预约接种疫苗。
+我今天早上直播的时候没有说到，你看这个企业家，我今天看到一个关于 Elon Musk 的特斯拉的某个项目的计划啊什么的，基金里面的这个研究人员[的报告]。你看一个特斯拉干了多少事？是多少个国家做不到的事，一个企业家做到了？这就是美国的伟大。
 
-在中共国首都北京，如果雇员接种率达到80%，那么其所在的商店、餐厅和市场可以在入口处挂上绿色证书。街上醒目的红色标语横幅和社交媒体平台上的上口段子也在忽悠百姓接种疫苗。截止四月上旬，北京2150万人口中有一半至少接种了一剂疫苗，当地卫生官员上周表示要在5月底之前达到所有成年人都接种的目标。
+I didn’t talk about it during the live broadcast this morning. Let’s talk about entrepreneurs. I read a project planning report related to Elon Musk’s Tesla today. It’s a report made by researchers of the foundation. You can see that too many things have been accomplished by only one Tesla. These things can’t even be done by many countries, but one entrepreneur did it! This is the greatness of America.
 
-### 斯伟江（Si Weijiang），大邦律师事务所上海总部的合伙人，在单位通过微信通知疫苗接种预约登记之后就进行了预约，并于3月25日在体育馆设立的接种点完成了第一剂注射。他说他把接种当作是自己的社会责任，在看到同事和朋友接种之后对于疫苗安全的担忧得到缓和。
+还有，你再看iPhone，iPhone下一步的整个换代产品已经不是这么简单了，换代产品还有整个的它未来要和量子电脑和超级电脑的结合，和天空 Wi-Fi 的结合，这了不得了。
 
-中国的疫苗接种在今年开始缓慢推广。由于中共疫苗厂商受限于产能和专注于出口，无法达到据华尔街日报报道的在2月中旬农历新年之前接种5000万人的内部目标。其他成功控制中共病毒传播的亚太国家在接种上也滞后大部分西方国家。
-![](https://lh5.googleusercontent.com/4o9ZscCtxC8wl0t2X0PuFleFQqR5oYzUG1DHoyRSpnzCEO8RIZLqDSe-t6s4CbI49hqGrrQN6eDQPLNe7yFojD7aehXzXvEqBscAuzrqPfRcCRzwcvY1zEamtanwozNf0pFAaZF5)
-几个月前，中共公共卫生专家提到人们缺少疫苗接种的紧迫感。去年12月到今年3月，来自北大、中共疾控中心和国家卫健委的研究人员进行了一项全国调查，收集超过2000名受访者的数据显示，接种意愿在90%左右。但是在疫情最高峰到所谓中共控制住疫情这段时间，人们的意愿接种率从58% 跌到23% 。
-![](https://lh3.googleusercontent.com/5KzGyi58L5XY906wdr5kgT-FqeKXYB5xTsWBVZS8jzboMpYlyW3eMva2_5sIIYKnZvvb7Gb8lxUcHtyekvuTpz5d5KGGctFsQ-9m30g0Fenf6Fy2jyZUrzmxK7-o71Dw_rX_U4Ne)
-在上述和对东部省份浙江的医护人员进行调查后的报告中表明，人们不愿接种的主要原因有：不方便、担忧疫苗的安全性和觉得感染的风险低。
-![](https://lh5.googleusercontent.com/xRJpwxfXIe8vpdVcPInUMwByZuNDCiAuS0WEdTFJy49beowCRazoKFivZ515W6s09QHJkI51GXCCB_E4x3C2SDIj-Oo4qxONH6VZWZef4fmcD5qLXa1Q6k6USXqTQ7YhDNBCctab)![](https://lh5.googleusercontent.com/MxjYrsYwCs85O6sz3bcSGpajHqetS-bGOSuY0Aq8adAKcKBGGhfmYyae05KpCUdQQwTMJxHvhPG3YX324rJfIVggF-gucGQnpswdniNT4VIM1C7fx5na5wyj_tRjeOuck_WscHZw)
-中共批准的五种疫苗都没被包括在世卫组织的紧急使用名单中，并且中共疫苗厂商没有公开详细的有效性数据。近几年，假疫苗、毒疫苗和无效疫苗的丑闻让人们对中共疫苗厂商和销售商避而远之。但是，在上述的全国调查中仍有近一半的受访者较于进口疫苗更倾向于国产疫苗。
+Also, think about the iPhone. The next generation of iPhone will not be so simple anymore. It will be combined with quantum computers and supercomputers and with Sky Wi-Fi in the future, which is amazing.
 
-在意大利公司担任市场经理的张先生（Simon Zhang）表示，对他来说，是否接种疫苗需要很多原因和理由，现在他继续等待观望。张先生2月份从意大利搬迁到了他的家乡河南省郑州市，他担忧疫苗能否抵抗未来变种毒株以及有效保护期短。
+看看 Elon Musk [研制]的无人机、无人汽车、大货车、火箭、天空 Wi-Fi，整个卫星发射系统基地，和未来的无人驾驶的汽车整个系统。这个人简直是真的是超人呐，真的是钢铁侠的在世啊，钢铁侠也没他整的那么明白。而且人家该干啥干啥，这样的人在中国能活的了吗？早活不了了。
 
-据一位中共疾控中心官员透露，截止三月下旬，中共国已设立了超过27000个接种点。接种点开放到晚间，医疗队被派遣到大学、警察局和居住小区提供上门服务。一些地方政府出台了接种疫苗后可获得价值7.5美元优惠券、免费冰淇淋和鸡蛋等激励措施。对不接种的民众，有些地方政府以实施惩罚来威胁。上周，海南省万城镇官员提出禁止抗拒接种者乘坐公共交通，但在媒体报道后就此道了歉。在西南的四个边境城镇，接种是短期内强制的。三月末，中缅边境小镇瑞丽因为出现群聚感染封城之后，当局从4月2日开启了5天内接种30万人的闪电行动。周四，当局叫停这一行动，转而对居民进行第二轮核酸检测。
+Take a look at Elon Musk’s drones, unmanned vehicles and trucks, rockets, sky Wi-Fi, the entire satellite launch system and base, and the whole system of unmanned vehicles in the future. This person is really a Superman, really is a living Iron Man. Even Iron Man couldn’t be as great as he is. Moreover, he can still live a normal life and do whatever he wants. Do you think such people can survive in China? He would have died long ago.
 
-疫苗产量的瓶颈持续影响一些地区的接种进度。有些城市延长了接种第二剂的时间窗口。海南省省会海口市，除了参加一年一度博鳌论坛会议的工作人员外，其他人暂停接种。用于装载疫苗的玻璃瓶仍然处于短缺，就职于咨询公司Gavekal Dragonomics的分析员埃尔南·崔(Ernan Cui)称，解决问题并在今年达到群体免疫仍然很难，但不是不可能。
+这就是整个中国人不明白的事，为什么中国人不问问，中国[为什么]从来没有一个 Elon Musk？[为什么]没有[自主研发生产]一个iPhone手机？甚至连个三星集团都没有。为什么整个14亿的中国人连马桶盖都搞不出来？[中国人]问问自己的国家，扪心自问，你所有开的车，现在文明的东西，哪一样是中国人研发出来的？
+
+This is something that the Chinese don’t understand. Why don’t the Chinese ask why there has been no Elon Musk in China? Why hasn’t there been anything like iPhone [invented in China]? Not even a Samsung Group. Why can’t China make even a toilet seat with a population of 1.4 billion? Go ask your country and ask yourself what things, either the cars that you drive or anything in the civilized world, were invented by Chinese?
+
+中国没有企业家，只有混家。混子的混家，只有大混家、中混家、小混家、小痞子混家。[中共国]没有企业家，这是一个民族的悲哀。美国随便一个企业几万亿美元市值，那是真的，不是炒出来的。不会像中共似的。房子[是]用来住的，不是炒的。是吧？疫苗是用来打的不是用来炒的。中国啥都要炒，炒到啥都没有。一代又一代人炒，把命炒没了，炒了好几代没炒出任何东西来，锅都炒干了。
+
+There are no real entrepreneurs in China, only rascals. There are only big rascals, middle rascals, small rascals, and little ruffians. China has no entrepreneurs, which is sad for a nation. The market value of any company in the U.S. could be several trillion dollars, and that number is real, not something by stock speculation. It’s not like the CCP – everything is like stock speculation. For example, the house is supposed for living, not for speculation, right? The vaccine is for fighting the virus, not for speculation. Everything is like this in China, so it has nothing real. They do this generation after generation until they lose their lives in it, until they find nothing is left for them.
+
+然后现在搞战狼[外交]，糊弄自己。就是这个世界上很可怕的，就是没有一个国家民族再喜欢所谓的壮肾药的，壮肾药的。伟哥最大的销售市场是中国，但是伟哥不是中国发明的，这不是悲剧吗？但却要在全世界炒[作]，我们有全世界最牛的排名富豪。[CCP]有豪，[但]你有富吗？这就是说未来世界上最最重要的战友是什么？[答案是]金融产品、科技。金融和科技，你真正的[核心]是你有原创的和原始的知识产权，你才能得到世界的尊重，你才有真正的实力，否则你不是骗自己吗？糊弄啥呢？
+
+Then now you [the CCP] pretend you are a war wolf to fool yourself. This is a very scary thing. There has been no any other country or nation in this world whose people like the so-called “kidney-strengthening” medicine [like China]. The biggest sales market for Viagra is China, but Viagra was not even invented in China. Isn’t this a tragedy? But it tells the whole world: “We have the world’s best ranked rich people.” You have upstarts, but do you have real rich people? My fellow fighters, what is the most important in the world in the future? The answer is financial products and technology. The key is that you need to have original intellectual properties. Only then can you be respected by the world, and only then can you have real strength. Otherwise, wouldn’t it be like you are lying to yourself? Who are you trying to fool?
+
+你连个耐克鞋都做不明白。中国李宁鞋，你看看李宁鞋有几个[原创]？还卖四五万一双。有几个是你原创的？能代表中国人文化的？那鞋在中国那地方穿的真的就合适吗？中国人运动的时候穿运动鞋没事，平常穿运动鞋你觉得好看吗？真不如过去所谓的中国穿的那个球鞋。还有中国那叫什么“红蜻蜓”[皮鞋]，我觉得挺好的。虽然李宁的很多家人也支持爆料革命，[但是]咱[们]实话实说，是吧，这是个基本的常识。
+
+You can’t even make shoes like Nike’s. Look at China’s Li-Ning shoes, how many techniques used in the shoes are their original work? They charge forty to fifty thousand a pair, but how many techniques have originated from them? How can they represent the Chinese culture? Are those shoes really suitable for Chinese? It’s okay for Chinese people to wear sneakers when they exercise, but do you think they look good on you as a casual wear? They are not even as good as the so-called tennis shoes worn by Chinese in the past. I think China’s Red Dragonfly shoes are pretty good though. Although many of Li-Ning’s family members also support our Whistleblower Movement, but we need to be honest on this, right? This is a basic common sense.
+
+中国人有信仰吗？你看看美国的企业家里面有多少人是有虔诚的信仰？现在你看G系列里面几乎99%都是外国人。没有那么多事儿，大家就[是专注]干事[工作]。我昨天跟咱们一个秘密团队[开会]，研发的这个盖特他们做演讲。[秘密团队]都是我们中国人。哎呀，真好，这些孩子们。这些孩子他们演讲的时候那种认真执着[的样子]，我觉得真的中国人太伟大了。我为[爆料革命有]这样的战友，跟这样的人在一起工作我觉得特别幸福。他们那么真诚，那么善良，那么包容。
+
+Do the Chinese have faith? See how many American entrepreneurs have devout beliefs? Now you can see that almost 99% of the people working for the G series are foreigners, so there are not many distracting things, and everyone is jsut focusing on the work. Yesterday, I had a meeting with a secret team of Getter developers, and they gave a talk. They are all Chinese, a bunch of awesome kids. Watching how serious and devoted these kids were when giving the talk, I deeply felt that Chinese people are really great. And I feel so lucky to have such great fellow fighters to work with. They are so sincere, so kind, and so tolerant.
+
+这就是我们新中国联邦能把中国人最美好的一面，能给发扬出来，而且能变成一个人的尊严，能变成健康的财富，最终会演变成像美国的 Elon Musk 这样的企业家，诞生无数个。那才是我们新中国联邦最庆幸的[事情]。未来走在DC大街上，纽约大街抗议的人。他们未来会发现这些人当中会出来多少个伟大的企业家，而不是[CCP那样的]炒家，混家。
+
+This is how the New Federal State of China (NFSC) brings out the nicest side of Chinese, and then turns it to the dignity and healthy wealth of these people. Eventually, they will grow into entrepreneurs like Elon Musk in the U.S., numerous of them. That will be the most fortunate thing for our NFSC. In the future, among the people who protested on D.C. and New York’s streets, many will become great entrepreneurs rather than rascals [like the CCP].
+
+这是我们新中国联邦最重要的！
+
+This is the most important thing to our NFSC!
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/6070b66fdbc8001854a6f459](https://gtv.org/getter/6070b66fdbc8001854a6f459) (3:58-9:25)
+鸣谢：感谢盘古小蚂蚁、Antsee-GTV、TING GUO 提供中文文本于 [https://gnews.org/zh-hans/1071735/](https://gnews.org/zh-hans/1071735/)
 
 * * *
 
-译评：近期中共开始动用各方力量忽悠百姓做小白鼠打疫苗：从央视李梓萌恶心的“我们一起打疫苗 一起苗苗苗苗苗”，到中共力捧的专家张文宏忽悠年轻人打疫苗就是为国做贡献，并鼓吹国产疫苗安全性高，再到地方各政府推出的接种后有鸡蛋、优惠券等物质奖励及对不接种者实施惩罚，以及各机关单位、学校、企业开始通知预约登记接种等等。。。这又是一次中共发动的与土改、反右、大跃进、大饥荒期间强征农民粮食、文革无二的政治运动，这次波及范围更广，影响程度更大，关系到了每一个人每一个家庭的生命安全。
+字幕：【JennyL】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-在中共利用超限生物武器配合虚假信息发起的第三次世界大战中，中国人民要想保财保命，只能从历史中吸取经验教训，即：凡是中共大力鼓吹宣扬提倡的都要反着看、听、想、做，不要一时贪图中共的小恩小惠，如物质奖励或疫苗接种免费而付出巨大代价。网上泄露的中共内部文件也显示体制内很多人都对中共疫苗避而远之，用高血压、糖尿病、过敏等原因拒绝接种。
-
-闫丽梦博士多次强调，在不搞清楚中共病毒源头前提下不可能有有效疫苗，何况其强变异特征会导致疫苗有效期有限，群体免疫很难实现。也提到中国几千年历史从来没有研发成功过一款疫苗，连疫苗瓶也无法生产。更有其他国家如智利、菲律宾、波兰等国家购买并接种中共疫苗后疫情不但没有缓解，感染和死亡人数反而急剧增长，导致了新一波疫情高峰的事例佐证了中共疫苗更毒于中共病毒本身。
-
-人微言轻，但有幸借助爆料革命这个影响力巨大的平台向中共官僚体系的各层级官员呼吁，不要再助纣为虐，为了完成上级下达的任务指标贪恋仕途权力财富而罔顾人命。中共大限将至，以美国为首的世界各国必将对中共病毒大流行的始作俑者 –中国共产党 –这个犯下种族灭绝罪和反人类罪的跨国犯罪组织进行追责和审判，首当其冲的必然是处于金字塔顶层的盗国贼家族。其他各层级官员应积极配合爆料革命揭露中共黑幕，传递病毒和疫苗真相拯救众生，不再成为中共作恶机器的一环，得到新中国联邦的大赦迎新生。
-
-&gt;&gt;原文报道链接&gt;&gt; [China’s Covid-19 Vaccination Campaign Gets Off to Slow Start](https://www.wsj.com/articles/china-knocks-on-peoples-doors-to-speed-up-domestic-covid-19-vaccination-11618069774)
-
-0
++1
