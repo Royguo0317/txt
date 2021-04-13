@@ -1,39 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫放宽美国官员与台湾官员自由会晤的权限
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1084192/)
+## 【热点播报】中共打算在七月前攻打台湾控制的东沙岛
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1084330/)
 
-翻译：洛杉矶天使农场–烟波浩淼
-校对：洛杉矶天使农场–雨山溪桥客
-审核：洛杉矶天使农场–断播
-![]()![](https://gnews.org/wp-content/uploads/2021/04/taiwanusofficials.jpg)图片来自美联社
-上周五，白宫就台湾问题引发的中美紧张局势发表声明，[称](https://twitter.com/W7VOA/status/1380567307286671362)美国“不寻求与中共国对抗”，但对中共在该地区“可能破坏稳定”的行动表示担忧。
-
-此前，白宫新闻秘书普萨基被问及美国政府是否认为中共国正处于入侵台湾的风口浪尖。但就避免“对抗”而言，周五的另一项声明几乎确保了对抗正是我们的方向：**拜登政府刚刚开放了美国官员与台湾官员自由会晤的权限**。
-
-尽管几十年来，美国一直根据“一中”政策，对本国外交官和官员举行此类会议保持严格的规定和限制，但这些规定和限制现在已基本取消。
-
-英国《金融时报》在[周五公布指导方针](https://www.ft.com/content/beb5280d-6f1e-450c-a948-820e1f06e10b)后，叙述了以下细节：“**根据新的拜登政府指导方针，美国官员将能够更自由地与台湾官员会面**，这是白宫**旨在遏制中共在该地区不断加剧的侵略行为**的最新举措。”
-
-美国官员称，美国国务院将于周五发布新规定，这**将放宽数十年来阻碍美国和台湾外交官会晤的限制。**
-
-然而，仍然会有“护栏”存在——例如在台湾的特定节日举行会议，这将被认为是特别无礼的举动，这肯定会招致中共违反“一中”立场的指责。不管怎样，中共国近来频繁提出这一指控，特别是在川普政府的最后6个月内，有多个史无前例的美国代表团访问了该岛。**上个月，在拜登的领导下，美国驻帕劳（****Palau****）大使成为自1979****年以来在台湾接待的首位美国大使**。
+作者：纽约香草山农场 Billwilliam
 
 
 
-> China sends more fighter jets into Taiwan's air defense zone as Taipei's FM Joseph Wu says his country will fight to the end if Beijing attacks[https://t.co/6OU1eE2axq](https://t.co/6OU1eE2axq)
-> — DAILY SABAH (@DailySabah) [April 7, 2021](https://twitter.com/DailySabah/status/1379843947887988740?ref_src=twsrc%5Etfw)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
-*每日沙巴 @DailySabah · 2021 年4月7*
-*中共国向台北防空区派出更多战机*
-英国《金融时报》继续[评论](https://www.ft.com/content/beb5280d-6f1e-450c-a948-820e1f06e10b)说：“虽然拜登最近几个月审查了指导方针，但有迹象表明，他将采取比奥巴马政府时期更为宽松的做法。美国代理驻日大使约瑟夫·杨（Joseph Young）最近在东京官邸欢迎台湾驻日大使到访，并在推特上公布了这次访问，呼应了蓬佩奥宣布后川普驻荷兰大使的类似举动。”
 
-中共方面对放宽指导方针的反应和迫在眉睫的抗议无疑将是激烈的，而且可能涉及到对台湾声称拥有领土的海空入侵的持续升级，同时美国也通过派遣自己的军舰进入南中国海来“回应”这些威胁性举动。
+印度新闻媒体WION视频报道称，中共解放军打算在今年7月前占领台湾西侧的东沙岛。该岛礁目前由台湾，或者说中华民国控制。那么，中共武力夺岛的举动可能会引发小规模的冲突甚至交火。
 
-原文作者：泰勒·德登（TylerDurden）
-发布时间：2021年4月9日星期五下午6:40
-原文链接：[https://www.zerohedge.com/political/white-house-eases-us-officials-ability-freely-meet-taiwan-counterparts](https://www.zerohedge.com/political/white-house-eases-us-officials-ability-freely-meet-taiwan-counterparts)
+东沙岛位于台湾西南，距离香港很近，距离高雄市275英里，岛上驻扎有台湾的海军陆战队。自2020年以来，中共军用无人机一直在骚扰该水域。台湾回应称，在必要情况下会击落中共的无人机。目前，台湾派遣F-16战机在该岛附近巡逻。[1]
+
+据称，解放军攻打东沙岛是为了献礼7月的中共建党100周年纪念——中共想要宣告它有能力占领属于台湾的岛屿。东沙岛面积小，地势平缓，易攻难守，同时地理位置具有重要的战略意义，这些也是可能遭受中共攻打的原因。[1]
+
+![]()![](https://images-ext-1.discordapp.net/external/IJ0UmV7prp6hBewXz2srvTT2N0SCEegADbMvTqvQlTk/https/www.navalnews.com/wp-content/uploads/2020/04/USMC-will-likely-integrate-the-NSM-on-unmanned-JLTV-ROGUE-Fires-vehicle.jpg)图片来源：[Naval News](https://www.navalnews.com/naval-news/2021/02/usmc-tested-a-naval-strike-missile-from-a-jltv-based-mobile-launch-platform/)
+
+就在中共准备武力威胁台湾时，美军也在紧锣密鼓地进行夺岛训练。据军事网站《国家利益》报道，美国海军陆战队前几天在日本冲绳附近的伊江岛进行夺岛演练，这是代号“贵族之怒”演习的一部分。在AH-1Z“眼镜蛇”武装直升机的掩护下，100多名海军陆战队员乘坐V-22“鱼鹰”直升机模拟抢占海岛上的机场。当晚，趁着夜幕，美国空军的MC-130J运输机搭载M142高机动性多管火箭炮系统（HIMARS）飞抵该岛屿。飞机降落后，陆战队员迅速架设火箭炮，并对远程目标进行打击。数分钟后，发射完毕，火箭炮被重新装上运输机撤离。陆战队员们也乘坐直升机撤退。[2]
+
+这次演习反映了美国海军陆战队的最新战术，其注重于快速机动性和远程精确打击能力。据称，海军陆战队放弃了笨重且射程近的坦克，转而装备能够远程攻击的火箭炮和导弹。虽然参加这次演习的是多管火箭炮，但是未来实战中极可能出现的是改装版的“联合轻型战术车”（JLTV）。这是一种轻型轮式装甲车，配备有两枚重型反舰导弹（NSM“海军打击“导弹)，给人一种“小车扛大导弹”的感觉。改装的JLTV装甲车可以遥控无人驾驶[2]。NSM导弹是非常可怕的舰艇杀手，射程185公里，掠海飞行，而且具有末端机动变轨能力[3]。因为地球是圆的，几十公里外贴近海面飞行的导弹处于地平线以下，舰载雷达不易探测。另外，除了采用“打了就跑”的战术，海军陆战队还可以将JLTV战车隐藏在海岛上，远程遥控发射反舰导弹攻击进犯的水面舰只[2]。
+
+综上所述，只要美国真的有保卫台湾的决心，从军事上，美军有能力击退来袭的共军。国务卿布林肯刚刚宣布，任何妄图通过武力来改变现状的人都将是大错特错。奉劝中共发兵前仔细想想，国际社会不会对台湾坐视不管。中共侵犯台湾的时刻，就是中共灭亡之时。
+
+参考阅读：
+
+1. [“Gravitas: Is China trying to capture a new island?” *WION*, April 12, 2021.](https://youtu.be/L_9Rqt_TlGE)
+2. [“The Marines are Preparing to Assault South China Sea Islands,” Larson, Caleb, *The National Interest*, April 10, 2021.](https://nationalinterest.org/blog/reboot/marines-are-preparing-assault-south-china-sea-islands-182403)
+3. [“Here’s How the U.S. Marine Corps Will Sink Chinese Ships,” Larson, Caleb, *The National Interest*, September 8, 2020.](https://nationalinterest.org/blog/buzz/here%E2%80%99s-how-us-marine-corps-will-sink-chinese-ships-168535)
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+审核：灵性探索
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
 
 0
