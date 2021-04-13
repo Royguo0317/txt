@@ -1,35 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】参议员霍利：需立法打破大型科技公司垄断
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1089990/)
+## 美认为日从福岛排放核污水的决定透明
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1090071/)
 
-纽约香草山写作组   四季
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-4月13日，加拿大保守在线新闻杂志The Post Millennial 报道了参议员乔希-霍利（Josh Hawley）周二晚上接受福克斯塔克-卡尔森（Tucker Carlson）的采访，谈到了他打算对那些在他看来已经实现非法垄断的大型科技公司进行立法。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-21.png)图片来源：卡尔森节目截图
-该法案是“一项废除现代信任议程，将禁止市场缺口超过1000亿美元的公司进行并购。它还将授权联邦贸易委员会，对在线市场中占主导地位的数字公司进行监管”。
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/J-4.jpg)businessinsider.in
+04月13日，美国认为日本向海洋倾倒放射性净化水的决定是平衡和透明的。美国国务院新闻处负责人内德·普莱斯表示。
 
-卡尔森指出，霍利参议员制定这项立法的时间刚刚好。据悉，有超过100家公司聚在一起，试图想办法修改选举法。
+普莱斯说，华盛顿知道日本当局已经考虑了几种处理水的方案，这些水位于2011年发生事故的福岛第一核电站。
 
-霍利说，这个法案“是让美国人民重新控制他们的民主，而不再是这些巨型公司。任何公司都不应该大到如此强大，以至于可以控制政治进程，可以凌驾于选民的意志之上。此外，还将阻止为了成立这样的超大型公司，而进行的公司合并或相互收购。同样，根据这项新法律，银行也将被迫放慢步伐，对违反信托法的人将施加“更严厉的惩罚”。
+“在这种独特而复杂的情况下，日本权衡了各种选择和后果，其决定是透明的，似乎采取了一种符合普遍接受的核安全标准的方法。”普莱斯说。
 
-霍利希望有一个“反托拉斯法的新焦点”，这应该是关于促进竞争的。自由，在存在竞争时能得到保护，而不是在垄断时得到保护。
+他还补充说，美国期待与日本政府就这一议题进一步合作和信息共享。
 
-由于大型科技公司的垄断，他们越来越多的执掌了这个世界的话语权。垄断造成对真正的自由市场的破坏，企业家失去了创新的空间，并且形成了一股政治力量，钳制人民的言论自由。近年来，包括欧盟在内的很多国家都在扩大对大型网络公司的控管，希望降低其对市场的垄断。
+此前，日本宣布决定将福岛第一核电站的放射性净化水倒入海洋。核电站用于冷却核反应堆的水不能完全清除放射性元素。所以要把水用纯液体稀释后倒入大海。经过处理的水现在储存在福岛1号现场的水箱中。
 
-原文链接：[https://thepostmillennial.com/watch-senator-josh-hawley-lays-out-plans-to-break-up-big-tech-monopolies](https://thepostmillennial.com/watch-senator-josh-hawley-lays-out-plans-to-break-up-big-tech-monopolies)
+日本首相菅义伟（Hoshihide Suga）表示，政府将监督该程序的安全性。
 
-审核/发稿：正义的小新
+中共国外交部对日本将福岛水倒入海洋的决定提出批评。北京称，东京做出这样的决定“没有与周边国家和国际社会充分协商”。该部还指出，日本核电站的水可能会对海洋环境和邻国居民的健康产生不利影响，即使经过净化，也含有放射性元素。
 
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+参考链接：
 
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+[https://www.rbc.ru/rbcfreenews/607539ab9a794760604aefbc](https://www.rbc.ru/rbcfreenews/607539ab9a794760604aefbc)
 
 0

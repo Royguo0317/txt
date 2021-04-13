@@ -1,127 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.11.2021PM-中共宣传美航母遇见辽宁号灰溜溜离开
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1089819/)
+## 喀秋莎新闻参考- 2021年4月12日(星期一)
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1089876/)
 
-视频剪辑 : Ablec(文A)
-中听校： 洛杉矶天使农场 – 烟波浩淼
-英翻译：洛杉矶天使农场 –飞利普
-英校对：洛杉矶天使农场 – 烟波浩淼
-字幕+视频制作：洛杉矶天使农场 – 小腾腾说
+俄罗斯莫斯科喀秋莎农场 土星
 
-**路德:**
-《环球新军事》说，
-The CCP’s Global New Military news said
-中共国航母罕见出动
-that the dispatch of Chinese aircraft carrier is rarely seen
+编辑 НастяApfel(娜斯佳)    上传 星河
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片1-30.png)
+一、新中国联邦新闻
 
-美国航母一看就灰溜溜离开
-but the US aircraft carrier left dejectedly as soon as seeing it
+1. “路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=GQbcjiWPeds)、[晚间](https://www.youtube.com/watch?v=6BxSRbBkNZ0)）:
 
-看看它怎么对内洗脑忽悠的
-Let’s see how this report is brainwashing and deceptive to its readers
+大纪元4月10日报道，长期以来，中共在多条战线上对美国发动非常规战，其中之一是利用网络大军，在非武装冲突的“灰色地带”，对美国进行秘密的宣传和虚假信息活动。美国特种作战司令部现已做好准备，以应对中共发动的信息战。美国网络司令部也在着手解决中共在美国境内发动的网络攻击问题。
 
-它说中共舰队将美军给堵住了
-It said that the US army had been blocked by the CCP’s fleet
+2. 欧盟对原产于中共国的进口铝平轧商品征收临时关税，以遏制其对欧盟生产商的竞争。据欧盟官方公报，根据出口国的不同，他们征收关税的税率在19.3%到46.7%之间。
 
-辽宁舰旁边的055型导弹驱逐舰，南昌舰
-Either 055 missile destroyer or Nanchang warship beside the Liaoning aircraft carrier
+3. 美国国际宗教自由委员会(USCIRF)的领导人周日表示，他们对被列入中共制裁名单感到”受宠若惊”。
 
-它绝对是一座移动的火力堡垒
-It is absolutely a moving firepower fortress
+4. 周一，中共与斯里兰卡签署了一项5亿美元的贷款协议，科伦坡希望此举能提高其外汇储备，自去年疫情发生以来，外汇储备一直处于严重紧张状态。这是斯里兰卡去年申请的10亿美元贷款的第二部分。
 
-其超过万吨的身躯，综合作战能力
-its body weighted more than 10K tons with an integrative combat capability
+5. 澳洲国民党参议员马特·卡纳万（Matt Canavan ）表示，净零排放目标是一个”骗局”，本质上是给中共一张“空白支票”，让它在该地区继续推行侵略性的军事策略。
 
-已超过美军提康德罗加级导弹巡逻舰
-And has surpassed the US Ticonderoga missile patrol ship
+6. 加拿大防长萨吉安(Harjit Sajjan)周一将矛头指向最近中共在南海的军事扩张。”我们将继续支持我们在亚太地区的盟友和合作伙伴，特别是面对破坏和平与稳定的单边行动。”两周前，国防部证实，一艘加拿大军舰在3月底从文莱前往越南时航行穿越南中国海。
 
-美军因为惧怕这个导弹驱逐舰所以灰溜溜地离开
-The US military left dejectedly is because of the fear of this missile destroyer
+7. 迫于国内执政的共产党和国外的美国政府的压力，中共国的初创企业已经开始重新考虑上市计划，预计未来还会遇到更多障碍。这一影响在上海证交所的明星市场尤为明显，在2021年的前三个半月，包括一些中共国最有前途的独角兽在内的88家公司，暂停或取消了原定的首次公开募股计划。
 
-忽悠习神的。为什么我们今天说这个？
-It’s a hoax to Xi God. Why do we mention this today？
+8. 中共国家统计局上周五公布，3月份居民消费价格指数(CPI)同比上涨0.4%，同时，工业品出厂价格指数(PPI)同比上涨4.4%，并创下2018年7月以来的最高值。这两项指标的涨幅都超过了预期。
 
-这篇就是写给中南坑习神看的
-The report is written to Xi God in Zhongnan hai
+9. 中共国家副主席王岐山的密友董宏，12日被中共中央纪委通报，对其开除党籍，进行立案审查。
 
-就跟当年写给那个慈禧太后
-Just like the report written to Empress Dowager Cixi back then
+10. 中共全国政协外事委副主任、前上海市长杨雄因心脏病突发，4月12日凌晨在上海华山医院去世。据报道，杨雄与江泽民长子江绵恒关系密切。
 
-你看被我们义和团给吓着了吧。美国是纸老虎
-You see, they are scared by CCP’s “Boxers”. The America is a paper tiger
+11．加拿大政府在最新的赴中共国旅游建议中警告说，与新疆维吾尔族自治区有家庭或族裔联系的人，可能会面临“被任意拘留的危险”。
 
-习神看了以后很开心
-Xi God was very happy after reading it
+12. 上周，美国将天津飞腾等7家中共大陆超算实体列入出口管制清单。4月12日台积电已停止承接天津飞腾的相关订单。
 
-你看，（美军舰）跟我们一对就跑了
-You see, (US warship) ran away once encounter with CCP’s fleet
+13. 香港媒体报导，当地中小学教科书有关历史的内容，出现紧跟内地的趋势，把原来的“中华民国政府”迁台改成了“中国国民党”迁台。
 
-他知道航母肯定搞不过别人
-The CCP knew that their aircraft carrier would not be able to defeat over others
+14. 英国协助那些持有英国国民海外护照（BNO）的港人移居英国，没有因中共违反《中英联合声明》而直接对抗，继宣布以4310万镑帮助BNO港人融入当地社会之后，英国更新了BNO申请签证指南，允许BNO持有人的配偶或伴侣，以及未满18岁的子女可分开申请签证，毋须以整个家庭一起申请。
 
-所以就说因为我们有导弹驱逐舰，所以美军就害怕了
-because CCP had missile destroyer, so the report said that the US army was afraid then.
+15. 中共国务院新闻办公室4月12日透露，《海南自由贸易港法》已完成全国人大常委会一审。
 
-自我意淫。我们从逻辑上来看，中共的导弹驱逐舰有多落后?
-Self-daydream. Let’s look logically how backward the CCP’s missile destroyer is?
+二、世界新闻
 
-它觉得就是因为一万吨，当然了
-The CCP thought because the displacement of the destroyer is 10K tons. Of course
+1. 共和党参议员委员会周一宣布，该委员会向前总统川普颁发了第一个”自由冠军”奖。参议员佛罗里达州前州长里克·斯科特（Rick Scott）向川普颁发了该奖项，表彰他任命了三名最高法院大法官，削减了中产阶级的税收并确保了南部边境的安全。
 
-这个东西一定是对中南坑习神还有中共统治下的14亿老百姓
-this report is certainly shown for Xi God of Zhongnan Hai and 1.4 billion people under the rule of CCP
+2. 周一，以色列总理本雅明·内塔尼亚胡对来访的美国防长劳埃德·奥斯汀表示，以色列和美国达成一致，绝不允许伊朗获得核武器。
 
-它是有洗脑作用的
-it has the brainwashing effect
+3. 白宫发言人普萨基周一表示，白宫周一举行的有关半导体芯片短缺的会议，将不会立即就如何应对芯片短缺的问题做出决定或公告。她告诉记者，拜登总统希望直接听取受芯片短缺影响的公司的意见。
 
-它现在就是介于驱逐舰和巡洋舰之间搞了一个大型的驱逐舰
-At present, the CCP just built a larger destroyer between the current destroyer and the cruiser
-
-中共的创新就这个概念，比如一辆车本来是帕萨特的底盘
-This is CCP’s concept of innovation. Like a car has a Passat chassis originally
-
-然后用帕萨特的底盘改装成一个越野车
-then it is refitted into an SUV with Passat chassis.
-
-你看这就是我们的创新能力
-You see, this is CCP’s innovation capability
-
-我们的创新能力就体现在这里
-Its innovation capability is embodied here
-
-这个驱逐舰充分的体系(现)了中共所谓我们就是善于改装
-This destroyer fully reflects what the CCP so-called “We are good at refitting”
-
-我直接把驱逐舰变成巡洋舰
-They directly turned the destroyer into a cruiser
-
-变大，装的导弹多了，这就是我们的创新
-Make it bigger and carry more missiles. This is their innovation
-
-这就是中共内部自我意淫的
-This is what the CCP’s self-daydream is
-
-真正美国的创新是从无到有
-The American real innovation starts from scratch
-
-中共的所谓创新，就像华为手机
-The so-called innovation of the CCP is like Huawei’s mobile phone
-
-换个壳，漂亮一点，换个摄像头，这就叫创新
-Redesign a case, nicer looking and replace a better camera. This is called innovation
-
-用德国最好的赛思(蔡司)的摄像头，这就叫创新
-Equipped with German’s best Zeiss lens, this is called innovation
-
-他们永远都停留在这个意义上
-They will always stay in this sense
-
-刚刚博博士给我发私信，他说（中共）胡扯
-Just now Dr. Bo sent me a text message. He said (CCP is) bullshit
-
-055根本没有去南海，知道吧
-You know it , the 055 missile destroyer didn’t go to the South China Sea at all
+4. 伊朗一名高级官员周一指责以色列对其地下纳坦兹核设施进行破坏袭击，德黑兰称之为”核恐怖主义”行为。
 
 0

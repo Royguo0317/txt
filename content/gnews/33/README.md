@@ -1,64 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】路德快讯4月12日晚： 中共国是新邪恶轴心之首
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1084198/)
+## 川普总统无私的为国家奉献的同时创造了失去最多净资产的记录
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1088321/)
 
-作者：香草山翻译部 GBW/ 文明世界
+【日本东京方舟农场】  翻译：Jay Cheung     校对：miumiu law
 
+据《网关专家》近期报道，《福布斯》（Forbes）杂志公布了全球富豪榜，川普总统仍然在榜。然而在他担任总统期间，川普总统的净资产减少了10亿美元。在世界历史上绝无可能有哪个人服务国家而让自己的财产损失如此之多。
 
+《福布斯》杂志的丹·亚历山大（Dan Alexander）报道说，自从他于2017年1月进入白宫到几个月前离任，唐纳德·川普（Donald Trump）的财富减少了近三分之一，从35亿美元降到24亿美元。并且还说，在他担任总统期间，川普在富豪榜的排名下降了300位。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2AFB3F41-7D13-49DE-9DEE-779DE12F08BD.jpeg)
 
+这使川普总统成为世界历史上最慷慨最无私的人，因服务于国家而失去最多净资产。
 
+但是可悲的是，亚历山大是福布斯杂志许多声名狼藉的记者中的其中一位。该出版物曾经是很保守的，在过去几年随着其他媒体一道走入了社会黑暗面。
 
-## 参议员在福克斯称中共国为邪恶轴心之首意味着什么？前国家情报总监福克斯采访推动现任政府必须找出来源答案；中共25架次战机骚扰台湾防空识别区；
+亚历山大试图说川普总统的净资产减少是由于商业决策不当造成的（他每月赚几千美元却来批评一位亿万富翁）。
 
-1. 美国驻华领事馆转发了美国务院对台新政策声明：我们发布指导方针，鼓励美国政府与台湾接触，并根据我们的 “一个中国”的政策，加强我们的关系。
+亚历山大的报道说，每个投资者在某个时间点都会因为持有资产太久而自责。然而或许没有任何人像川普那样做出如此巨大的误判。川普总统拒绝上任时剥离其投资，在担任总统的几年里一直深陷道德困境，同时也错过了在他自己推动的市场繁荣中获利的机会。
 
+亚历山大的说法显得他是多么彻底的丧失理智，根本不懂真正的原因，以及没有一点历史知识。川普总统绝不能在他担任总统时投资市场。如果他担任总统时投资市场，在奥巴马几年糟糕的经济发展之后，川普总统为重振经济而采取的任何举动都会遭到批评，都会受到像亚历山大这样的媒体人士批评犯规。
 
-博博士：台湾可以代表 “一个中国”。
+川普在担任总统期间放弃了所有的交易，并且放弃了总统年薪。他为防止人们说他有不诚实的行为作出很多努力，然而仍然有媒体造谣说他在担任总统期间赚钱了。
 
-2. 中共空军25架飞机入侵台湾防空识别区，创历史纪录。
+不像奥巴马、拜登和克林顿夫妇，他们在担任公职期间赚取了几百万美元，川普总统的行为很光荣。可以说，在我们的人生中，他比任何政治人物对国家的贡献都多，却遭受像亚历山大这样的一群垃圾根据自己的喜好来抱怨他。
 
-3. 共和党建制派参议员布莱克本 (Sen. Marsha Blackburn)：中（共）国、俄罗斯、伊朗、朝鲜，这就是新的邪恶轴心。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/QQ截图20210412220046.jpg)
-a. 路德：”邪恶轴心 “是由小布什打伊拉克前夕提出的，理由是伊拉克拥有大规模杀伤性武器。 “轴心国 “原指二战期间的德意联盟。
+川普总统显然为国家做了贡献，为国家奉献了自己，也为这个国家带来比任何政治家都要多的（抱怨总统的）“垃圾”。
 
-b. 路德：中共违背了它在《三个联合公报》中的承诺，即中（共）国不结盟、不称霸。
+评：毋庸置疑，唐纳德·川普总统无疑是美国历史上最具影响力的总统之一，尤其是他在当今中共依靠腐败和不光彩的手段控制的国际舆论圈中，彻底看清楚了中共的“假”“骗”“偷”等伎俩，彻底掀起国际反共大潮，才不至于让这个世界彻底被中共操控，也给中国人民带来希望。历史将会给予川普总统最伟大的定论。
 
-4. 前美国情报总监拉特克利夫 （John Ratcliffe）：世卫组织关于病毒来源的报告 “真的很虚假”。拉特克利夫和蓬佩奥讨论了RaTG13。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/QQ截图20210412215153.jpg)
-a. 路德：RaTG13是中共的虚假信息。 中共故意不提舟山蝙蝠病毒，并编造RaTG13。
+注：本文仅代表译者观点
 
-b. 路德：石正丽忘了在编造的RaTG13中放入弗林酶切位点。
-
-c. 塞林博士在推特上提到了100%相同的E蛋白和假造的RaTG13。
-
-参考来源：
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑： 文明世界
-
-校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
+原文链接：[https://www.thegatewaypundit.com/2021/04/president-trump-sets-record-giving-net-worth-selflessly-serving-country/?ff\_source=Email&ff\_medium=the-gateway-pundit&ff\_campaign=dailyam&ff\_content=daily](https://www.thegatewaypundit.com/2021/04/president-trump-sets-record-giving-net-worth-selflessly-serving-country/?ff_source=Email&amp;ff_medium=the-gateway-pundit&amp;ff_campaign=dailyam&amp;ff_content=daily)
 
 0

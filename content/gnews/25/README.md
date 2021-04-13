@@ -1,29 +1,127 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【视频】法院盘剥民企连环套 索要贿赂还要拍卖其土地
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1089677/)
+## 【路德时评摘要】4.11.2021PM-中共宣传美航母遇见辽宁号灰溜溜离开
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1089819/)
 
-视频处理：文治
+视频剪辑 : Ablec(文A)
+中听校： 洛杉矶天使农场 – 烟波浩淼
+英翻译：洛杉矶天使农场 –飞利普
+英校对：洛杉矶天使农场 – 烟波浩淼
+字幕+视频制作：洛杉矶天使农场 – 小腾腾说
 
-文本评论：战刀
+**路德:**
+《环球新军事》说，
+The CCP’s Global New Military news said
+中共国航母罕见出动
+that the dispatch of Chinese aircraft carrier is rarely seen
 
-编辑： Summer
+美国航母一看就灰溜溜离开
+but the US aircraft carrier left dejectedly as soon as seeing it
 
-本文来自小研的视频。这是河南省隆庆祥服饰有限公司总裁姜书敏，实名举报郑州中级法院院长于东辉，于东辉郑州中级法院院长向该公司索要巨额财产，该公司因没能达到于东辉的全部要求，反受其害，法院突然把执行款二亿多元退给了别人，并擅自修改省法院的决定，并执行价值十亿多元的土地二次拍卖，以下是录音证据，中院院长在电话里告诉对方，此案件至少得损失六七千万元，我找人帮忙把这事办了，并告诉袁就是你拿三分之一共2000多万你也合适，关键还有安全问题，袁已给他上千万和几百万的礼物，于院长让袁给他买虫草，袁说他这次单独从青海给他买的品质非常好，三十五六万一斤，因为青海虫草最好，购买来五斤以到货，袁说他没有司机电话，于院长说我把司机电话发给你，并强调送货人一定要安全可靠，不能让别人知道。这就是中共独裁专制下的司法，他们撕毁法律，用强权掠夺人民的私有财产，打压民营企业，于东辉索要敲诈勒索达不到他的受贿要求后，并决定把土地资产拍卖。这就是邪恶的中国共产党。
+看看它怎么对内洗脑忽悠的
+Let’s see how this report is brainwashing and deceptive to its readers
 
-网友评论： 这是中共割韭菜的连环套！ 共黨干剖割你們所有韭菜！ 半斤八两彼此彼此的你們一群乌合之众！ 你們割老百姓韭菜！ 他们去哪里伸冤？
+它说中共舰队将美军给堵住了
+It said that the US army had been blocked by the CCP’s fleet
 
-【免责声明】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+辽宁舰旁边的055型导弹驱逐舰，南昌舰
+Either 055 missile destroyer or Nanchang warship beside the Liaoning aircraft carrier
 
-**欢迎战友加入旧金山金喜准农场**
+它绝对是一座移动的火力堡垒
+It is absolutely a moving firepower fortress
 
-[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+其超过万吨的身躯，综合作战能力
+its body weighted more than 10K tons with an integrative combat capability
 
-[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
+已超过美军提康德罗加级导弹巡逻舰
+And has surpassed the US Ticonderoga missile patrol ship
 
-[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
+美军因为惧怕这个导弹驱逐舰所以灰溜溜地离开
+The US military left dejectedly is because of the fear of this missile destroyer
 
-[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
+忽悠习神的。为什么我们今天说这个？
+It’s a hoax to Xi God. Why do we mention this today？
+
+这篇就是写给中南坑习神看的
+The report is written to Xi God in Zhongnan hai
+
+就跟当年写给那个慈禧太后
+Just like the report written to Empress Dowager Cixi back then
+
+你看被我们义和团给吓着了吧。美国是纸老虎
+You see, they are scared by CCP’s “Boxers”. The America is a paper tiger
+
+习神看了以后很开心
+Xi God was very happy after reading it
+
+你看，（美军舰）跟我们一对就跑了
+You see, (US warship) ran away once encounter with CCP’s fleet
+
+他知道航母肯定搞不过别人
+The CCP knew that their aircraft carrier would not be able to defeat over others
+
+所以就说因为我们有导弹驱逐舰，所以美军就害怕了
+because CCP had missile destroyer, so the report said that the US army was afraid then.
+
+自我意淫。我们从逻辑上来看，中共的导弹驱逐舰有多落后?
+Self-daydream. Let’s look logically how backward the CCP’s missile destroyer is?
+
+它觉得就是因为一万吨，当然了
+The CCP thought because the displacement of the destroyer is 10K tons. Of course
+
+这个东西一定是对中南坑习神还有中共统治下的14亿老百姓
+this report is certainly shown for Xi God of Zhongnan Hai and 1.4 billion people under the rule of CCP
+
+它是有洗脑作用的
+it has the brainwashing effect
+
+它现在就是介于驱逐舰和巡洋舰之间搞了一个大型的驱逐舰
+At present, the CCP just built a larger destroyer between the current destroyer and the cruiser
+
+中共的创新就这个概念，比如一辆车本来是帕萨特的底盘
+This is CCP’s concept of innovation. Like a car has a Passat chassis originally
+
+然后用帕萨特的底盘改装成一个越野车
+then it is refitted into an SUV with Passat chassis.
+
+你看这就是我们的创新能力
+You see, this is CCP’s innovation capability
+
+我们的创新能力就体现在这里
+Its innovation capability is embodied here
+
+这个驱逐舰充分的体系(现)了中共所谓我们就是善于改装
+This destroyer fully reflects what the CCP so-called “We are good at refitting”
+
+我直接把驱逐舰变成巡洋舰
+They directly turned the destroyer into a cruiser
+
+变大，装的导弹多了，这就是我们的创新
+Make it bigger and carry more missiles. This is their innovation
+
+这就是中共内部自我意淫的
+This is what the CCP’s self-daydream is
+
+真正美国的创新是从无到有
+The American real innovation starts from scratch
+
+中共的所谓创新，就像华为手机
+The so-called innovation of the CCP is like Huawei’s mobile phone
+
+换个壳，漂亮一点，换个摄像头，这就叫创新
+Redesign a case, nicer looking and replace a better camera. This is called innovation
+
+用德国最好的赛思(蔡司)的摄像头，这就叫创新
+Equipped with German’s best Zeiss lens, this is called innovation
+
+他们永远都停留在这个意义上
+They will always stay in this sense
+
+刚刚博博士给我发私信，他说（中共）胡扯
+Just now Dr. Bo sent me a text message. He said (CCP is) bullshit
+
+055根本没有去南海，知道吧
+You know it , the 055 missile destroyer didn’t go to the South China Sea at all
 
 0
