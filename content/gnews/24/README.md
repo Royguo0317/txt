@@ -1,38 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【各抒己见】警惕CCP离间中西方人民坐收渔利
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1084469/)
+## 【热点播报】五角大楼正在研发植入皮下的芯片以检测和清除CCP病毒
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1084571/)
 
-作者：喜马拉雅东京樱花团传媒组
+作者：香草山农场  Delilah小胖
 
-![](https://lh3.googleusercontent.com/E791x1VtdIXuPTTvCPM5ZgvgHnq09_QbrHPed2l7wPDcZYgpSJVgwhP2ouergM_zTkkAGai1D24cYSeVBOE_cxz1Qa2ZPR1ocW71c54WCKdAtbKxovlBVAbnNzSPfdPeXWBdxeck)
-樱花团藤丸战友制作
+据populist.press网站2021年4月12日头条报道，美国五角大楼的科学家正在一个始建于冷战高峰期的实验室进行一项研究。这项研究是将芯片植入人体皮肤内。该芯片可检测到CCP病毒（COVID-19）感染。该研究还包含一个革命性的过滤器，如果把这个过滤器跟透析机相连接，还会从人体的血液中过滤掉CCP病毒。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screen-Shot-2021-04-12-at-10.41.49-PM.png)图片来源：https://www.dailymail.co.uk/news/article-9460389/Pentagon-scientists-invent-microchip-senses-COVID-19-body-symptoms.html
+这听起来真够酷的，对吧？
 
-1、CCP到底是个什么玩意？
+这个研究团队隶属于国防高级研究计划局（Defense Advanced Research Project Agency，简称“DARPA”),他们已经在阻止和终止大流行病方面进行了多年的研究。
 
-CCP是典型的修正主义集团，法西斯化的国家垄断资本主义，假马克思主义政党（日本共产党批评其践踏基本民主的做法）。由于是新兴资本主义，在自身发展到扩张阶段后，必然对外挑战已有的国际秩序，与老牌资本主义国家抢占利润和市场。由于靠假骗偷黑黄起家，对内残酷镇压吸血劳动人民，迫害异己打击科学精神，搞独裁专政。可以预测，由于其畸形发展带来的国内经济社会结构不相容的矛盾，将迫使其在未来走向军事化与战争方向。
+这个研究小组对研究案例进行评估，然后找出巧妙的解决方案。这些解决方案堪比科幻小说，而不是一般的工作实验室。
 
-2、 妖魔化西方是发动战争的掠夺者，搞种族屠杀的邪魔，释放病毒的恶人意欲何为？
+这个研究小组在一个周日晚间的叫做“60分钟（60 Minute)”的访谈中，谈到他们最近的一项研究是他们用芯片在人体内探测新冠病毒，而且是在发病之前就探测到。
 
-CCP利用其一手把持的国内宣传绝对垄断地位，在所有非官方宣传媒平台海量播放南京屠杀，美国德里克堡病毒实验室，美国发动伊拉克战争等负面小视频，意图颇多：向国内民众暗示美国及西方因自身利益发动种族屠杀式侵华战争；利用民族主义，爱国心理，混乱的信息战战场，颠倒黑白，挑拨中国人民恨美帝打美帝。如此CCP既打击了国际上的竞争者又释放或转移了国内社会矛盾累积的民怨情绪，让人民为自己当打手，做炮灰，削弱人民力量阻止人民觉醒；让国内群众在混乱的信息战中更加敌友不分、善恶不辨、不明局势，让国际进步正义力量与国内善良正义美好的劳动人民互相厮杀，以达到坐收渔利的一箭双雕之效。这样，CCP欠中国人民的血债因可能的战争可以全推到美国和西方国家（所谓外人）头上，而CCP给世界人民带来的破坏又有中国人民挡在前面当肉盾为其买单，用CCP外交部自己的话说：世界上哪有这种好事？
+更多细节报道，请参见如下链接，笔者也将做进一步的跟进报道。
 
-3、 世界人民和中国人民该怎么办？
+[https://www.dailymail.co.uk/news/article-9460389/Pentagon-scientists-invent-microchip-senses-COVID-19-body-symptoms.html](https://www.dailymail.co.uk/news/article-9460389/Pentagon-scientists-invent-microchip-senses-COVID-19-body-symptoms.html)
 
-CCP不同于以往的纳粹势力，它带有强烈的欺骗性和迷惑性，他擅长混淆是非、栽赃陷害的黑阴毒能力，即所谓的宫斗厚黑学。招无底线、人无下限是它不同于以往人类历史上出现过的各种邪恶势力的最大特点。
+引用来源：[https://populist.press/the-pentagon-is-now-prepared-to-chip-americans/](https://populist.press/the-pentagon-is-now-prepared-to-chip-americans/)
 
-由于错误的发展路径以及国内经济压力，CCP侵略扩张是历史必然事件，也是其存在的自身本性与内在驱动力。中国人民没有获取信息的自由，没有言论自由、出版结社、抗议示威的自由和基本公民权利，长期的闭目塞听，思想腐旧落后，体育猥琐羸弱，在CCP的挑拨离间分化下，人民内部自相残杀、互害牟利，流行小农意识自扫门前雪，深受CCP统治的毒害而不自知，更认敌为友，认钱为爹，认黑为亲，此现状让亲者痛仇者快。以上方便了CCP以左手打右手，捆绑14亿百姓在自己的战车上勒索世界。
+审核/发稿：正义的小新
 
-中国人民则即将面临血与火的洗礼，唯一的破局之处就是世界人民和中国人民团结起来。想方设法使世界人民深入详细地了解中国人民的水深火热的处境，并响应中国人民自由的呼声，协助中国人民推倒长城防火墙。这样就能让亿万民众接受到来自世界的真实信息，不再只听一种声音，有助于提升最基本的判断能力和信息识别能力，在现实中重拾真理的价值，识别CCP的假恶丑，最终必将亲自审判CCP对中国人民犯下的滔天罪行。
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
 
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-*校对：喜马拉雅东京樱花团 / 東洋武士*
-*责任编辑：喜马拉雅东京樱花团 / 文小白*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews.org/wp-content/uploads/2021/04/二维码.jpg)
-0411C064c
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

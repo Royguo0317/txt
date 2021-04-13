@@ -1,52 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共潘多拉盒子—中共一系列控制世界的邪恶计划
-` 恩典农场` [轉載自GNews](https://gnews.org/zh-hans/1084540/)
+## 【热点播报】美国应抵制北京举办的2022冬季奥运会
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1084194/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/文章开头.png)
-图文设计：麦田67号  校对：追着曙光跑
-
-中共潘多拉盒子就是中共一系列控制全世界的邪恶计划，这些计划也是中共对全世界的大屠杀，目前正在上演。爆料革命发起人郭文贵先生掌握中共潘多拉盒子的核心秘密，以下是目前揭露的中共潘多拉盒子核心计划的部分内容概要。
-
-91号文件：70年来中共有关性爱，海外关系，子女留学，私生子女，财富转移，内斗，监听录像
-
-94号文件：中共针对西方的长期邪恶作战计划，中共内部的军事发展计划，其中的“特别国家安全基金”更像是中共财富路线地图
-
-双龙计划：即在香港镇压反送中运动如果失控，如果美国对中共全面进行制裁，全面进行封锁，中共将对台湾采取军事行动，武力收复台湾，这叫双龙计划
-
-9号文件：一带一路，2025，2035，2049，掏空美国国家产业，人民币国际化，19大修宪，习王终身执政，领导全世界，干掉美国，跟全世界自由，民主，法治决裂，打造五国联盟即反美集团，对老百姓开启商鞅之策—愚民  弱民  苦民
-
-建筑艺术项目：中共海外私生子名册，中共红色家族的基因地图，财富地图，政治地图
-
-13579计划：中共制造生物武器的计划  描述如何利用P3和P4实验室制造生物武器，全世界投毒
-
-3F计划：搞弱美国，搞乱美国，搞死美国，控制了美国就控制了全世界
-
-BGY蓝金黄计划：蓝—全面控制网络和媒体 包括网络攻击
-
-金—用利益和金钱去勾兑腐蚀
-
-黄—用性控制勒索从而控制人的言行 破坏世界秩序从而控制世界
-
-灭白计划：3F方案，13579计划，2025，2035计划核心，虚拟币干掉美元  病毒干掉白人
-
-辛普森计划：世界各地都有“温莎公爵”和众多的“辛普森夫人”，长期潜伏在欧盟的共产党燕子，这是共产党在欧洲执行的“辛普森计划”。欧洲破获大量“辛普森夫人”。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/681.png)
-相关内容链接：
-
-中共威胁全球的潘多拉盒子里到底有什么：
-
-
-> [中共威胁全球的潘多拉盒子里到底有什么](https://gnews.org/zh-hans/580291/)
-
-
-中共潘多拉盒子之9号文件：
-
-
-> [中共潘多拉盒子之9号文件](https://gnews.org/zh-hans/612263/)
+翻译：纽约香草山翻译部 雪莲
 
 
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/LOGO3_1-1.jpg)
+
+
+
+据布赖特巴特(Breitbart)新闻网2021年4月7号的报导，周二，前美国国务卿蓬佩奥(Mike Pompeo)在和美国前国家安全顾问罗伯特.奥布莱恩 (Robert O’Brien) 共同主持的理查德尼克松基金研讨会 (Richard Nixon Foundation’s Nixon Seminar) 的开幕式上， 蓬佩奥表示，计划于2022年在北京举办的冬季奥运会是“种族灭绝奥运会”。他还说，基于中共对新疆维吾尔族人犯下的种族灭绝罪，以及对中国人民言论自由的压制和镇压，美国不应该派他们的运动员去这个充满危险的国家，因为美国人很可能因为说了一句实话而被抓进中共监狱。蓬佩奥呼吁国际奥委会寻求一个解决办法，尽快把这一体育明星云集的盛会改到另外一个地方举办，或给冬奥会另外选择一个地址。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture2.jpg)*File image of Mike Pompeo looking on during a news briefing at the White House last year. By Erin Schaff © 2020 The New York Times*
+*Image source:*[*https://www.firstpost.com/sports/former-secretary-of-state-mike-pompeo-calls-for-us-to-boycott-beijing-winter-olympics-9385371.html*](https://www.firstpost.com/sports/former-secretary-of-state-mike-pompeo-calls-for-us-to-boycott-beijing-winter-olympics-9385371.html)
+与会嘉宾商业巨头前谷歌CEO彼得（ Peter Thiel）也在尼克松基金研讨会发言表示，即使不像被全面抵制的1980年莫斯科奥运会，也会出现抵制北京冬奥会的高潮，不会有很多西方国家首脑出席2022年北京冬季奥运会。也许会类似2014年索契冬奥会一样糟糕，虽然那届冬奥会没有受到任何抵制。
+
+前安全顾问奥布莱恩也谈到，他在任期间看到中共的人权行为越来越恶劣，他提醒那些还想去中共国的人以及还想与中共国合作的贪婪公司，不要为了钱和利益，冒这个风险，成为习近平的“客人“ 被延期留在北京而无法返回美国。
+
+评论：
+
+奥运会本是弘扬和平和自由的盛会。而现在在越来越多的证据指向病毒来源于中共军方实验室，任疫情在全世界肆虐至今；中共在被定性为犯下种族灭绝的罪行后，还在不断掩盖其罪责，对内继续残害国民，对外继续超限战实行扩张。在这样的情况下，全世界应该联合抵制2022的北京冬季奥运会，唤醒全世界一起灭掉中共这个邪恶的政权。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-18.jpg)*Exiled Tibetans hold a protest against the holding of the 2022 Winter Olympics in Beijing in Dharmsala,* *India, in February. (AP Photo / Ashwini Bhatia, File)*
+*Image source:*[*https://www.seattletimes.com/opinion/how-to-handle-the-genocide-olympics-in-beijing/*](https://www.seattletimes.com/opinion/how-to-handle-the-genocide-olympics-in-beijing/)
+原文链接： [https://www.breitbart.com/politics/2021/04/07/pompeo-no-american-participate-2022-beijing-winter-genocide-olympics/](https://www.breitbart.com/politics/2021/04/07/pompeo-no-american-participate-2022-beijing-winter-genocide-olympics/)
+
+校对：Cosmo / 发稿：Jenny
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

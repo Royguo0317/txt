@@ -1,51 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0411VII一旦开战共产党员及国企成员必被关进集中营
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1084848/)
+## 美国人对中国共产党的威胁和觉醒远远不够
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1083545/)
 
-编辑整理：
+**简述：在2021年4月5日的GTV直播中，郭先生批评了美国私人公司的贪婪和对国家毫无责任感，可是皮之不存，毛将焉附？另外美国官员和执法部门的腐败、被中共的收买和无知使他们对共产党的威胁完全没有认识。随着美国经济和黄金出问题，共产党的以钱灭美计划、灭白计划、3F计划和“蓝金黄”的深度影响将逐渐会显现出来。**
+[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210405-live-p2.srt.txt)
+**美国人对共产党的威胁和觉醒远远不够**
 
-奥克兰伊甸农场：柒号G币；伦敦喜庄园：杯酒渐浓；
+**Americans’ Understanding of the CCP’s Threat Is Far From Enough**
 
-巴塞罗那喜悦农场：笑笑；日本东京方舟农场：山川异域
-![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-50.jpg)
-郭文贵先生的[2021年4月11号 文贵直播](https://gtv.org/video/id=6072f7c36e11a756eddfaf32)应该算是历史大变革前夜的一次令人振聋发聩的直白，这次直播告诉我们为什么中共具备了美国必须与它开战的所有条件，以及美国一旦与中共开战在欧洲和美国的共产党员和国企成员将被关进集中营，以及爆料革命要打造的就是让正义力量成为新中国联邦的国家力量和民族力量等重要内容，其实在郭先生开启爆料革命之初就已经开始了寻找正义力量的工作，在战友们申请郭战帽时要求战友们提供的相关信息从某种意义上就算是这种寻找的一次具体体现，本系列将根据郭先生直播中涉及的不同侧重点逐一上传，以下为本系列第七部分——一旦开战共产党员及国企成员必被关进集中营
+这个国家现在是华尔街和好莱坞还有美国科技公司的腐败贪婪，它最终它要付出代价的。就像美国的私人公司 3M 公司在美国最需要口罩的时候，它就在电视上说：“欸，我没有义务给你口罩啊。”对呀，就像川普还有皮特纳瓦罗还有蓬佩奥都说美国是私人公司，私人公司一切向往利益，它完全不考虑政治。这是对的，按规则说是对的，但是这个国家要完了，你这私人企业也都完球蛋。他们太贪婪了，你跟共产党做生意，你去！
 
-据[2021年4月11号 文贵直播](https://gtv.org/video/id=6072f7c36e11a756eddfaf32)时间点——
+The corruption and greed of Wall Street and Hollywood as well as Big Tech companies in this country will eventually make this country pay the price. Just like when the Americans needed masks the most, the private company 3M said on TV: “Hey, I have no obligation to give you masks.” Yes, it’s just like what Trump, Peter Navarro and Pompeo said: the United States is like a private company, and all private companies seek profits and don’t care about politics at all. That is correct. Theoretically, it is right, but if this country is going to be over, you, a private enterprise, will be over too. They are too greedy. If you want to do business with the CCP, just go ahead.
 
-那么接下来美国要做什么事情，大家一定要记住，二战前，美国参与二战、美国参与包括打日本，美国的国会通过了什么法案？美国的国会通过了什么样的排日包括日侨的法案，大家好好看看，好好看看大家有知道的吧？经济法案、日侨法案、对德法案、对德经济法案，大家都知道吧？集中营，知道集中营把日本人集中营给搞起来了，大家记得吧？啊，日本集中营。还有啥呀？战友太厉害了，这是谁写的？“雅典辣豆”牛！没收财产、《租借法案》、送日本人去欧洲当兵、北约联盟战略竞争法案、日本人被关起了，所有日侨被抓监狱。
+美元都没了你啥都没了，什么美国的豪宅呀、自由女神啊、民主啊、信仰，想啥都没了。这个国家是高成本地运作，完全靠一个高成本、高质量法律体系，维护的就是一个问题——美元。美国唯一让美元能够存在就是美国的航空母舰、美国的强大的军队和国家的科技能力。当美元没有的时候美国军队就没了，美国军队没了美国的利益就没了，美国利益就没了，这些人才也不聚集美国了，美国就完了。那你说美国企业呢还有行吗？像Elon Musk这样的人他就不会待在美国，他弄不好迁都，把他公司迁到香港、去上海去了或者到欧洲去了。
 
-咋样？兄弟姐妹们，如果没有新中国联邦，我可以告诉大家，一定会发生中国共产党员和家人在美国在欧洲被送到集中营去。这个一定会发生的，现在唯一的就是谁被送集中营，新中国联邦人就是要成为不被送集中营的海外华人。
+When the U.S. dollar is gone, you will lose everything, including your mansions in the U.S., the Statue of Liberty, democracy, faith, and everything you can think of. This country operates at a high cost. It relies entirely on a high-cost and high-quality legal system to maintain just one thing – the U.S. dollar. The only thing the U.S. relies on to keep the existence of U.S. dollar is its aircraft carriers, its powerful military, and the its technological capabilities. When the U.S. dollar is gone, the military will be gone, and when the U.S. military is gone, the interests of America will be gone, and when the American interests are gone, the U.S. will never attract talents to come here, and then America will be done. Do you think American companies will still be okay? People like Elon Musk would not stay in the U.S. anymore. He could move his headquarters to Hong Kong, Shanghai, or Europe.
 
-**在海外的共产党员和家人和过去曾经在共产党干过的，你记住我今天说的话，比当年的日本人集中营还要可怕，而且根本不是美国哪个政客哪个党能决定的。**冠状病毒一旦真相出来，开战以后或者打台湾以后日军造成重大伤害，就像王洪光还有张召忠还什么灿荣这些流氓所谓政客、大V们、胡锡进，**所谓攻击美国第七舰队这事发生以后，中国人在欧洲、在世界，首先你共产党员还有什么国有企业一定会被关进集中营中去。**
+这是美国人他一定要意识到的，现在你看到美国这个下边的官员，不管这些执法部门的腐败到了什么程度。腐败、被收买和无知，对共产党的威胁完全没有认识。没有我们新中国联邦没有爆料革命美国人绝对达不到今天这个程度，今天美国人对共产党的威胁和觉醒远远是不够的。
 
-（郭先生念战友留言：金灿荣），对了，金灿荣，根本不是什么美国，你有一百个川普、一千个拜登你也做不了这个决定，那是美国和欧洲的西方民意决定的。那真的是人类上第一次地球的生死大决战，共产党是很有可能是放核武器的，共产党有六千枚，美国有六万枚，还打核战，你打个屁战呐。一定是它投核弹在中共整个头上中国人民就惨了，然后可能到蒙古也可能在西藏高原上就炸了，中国一大半土地上都变成了核辐射区，都在亚洲，不会飞出亚洲，没有一个核导弹能飞出亚洲去我可以告诉大家。
+This is what Americans must be aware of. Now you see how severe the corruption of the officials in the U.S. government and all kinds of law enforcement agencies has become. Look at their corruption, how they’re being bribed, how ignorant, and how they totally have no idea about the threat of the CCP. If not for our New Federal State of China (NFSC) and Whistleblower Movement, definitely Americans would not reach the level of understanding that they have today. Nevertheless, Americans’ understanding of the threat of the CCP is still far from enough.
 
-那时候俄罗斯跟他干，北朝鲜，你开玩笑呢！人家是拿着远红外线瞄准镜，你拿着菜刀跟人家拼，还带着几个小兄弟拿着烧火棍——我跟你拼！早就给你撂倒了，是吧。拿火棍的小北朝鲜上一边呆着去吧你，俄罗斯百分之一亿都不会跟你掺乎。老不早去跟美国说，欸，我不掺乎啊！一定是这结局。
+这次美国经济出了问题、黄金出了问题，共产党的以钱灭美的计划和灭白计划和制造种族对立矛盾的计划和“蓝金黄”的深度逐渐会显现出来。
 
-剩下还有谁呀？巴基斯坦、伊朗，你开玩笑呢吧！伊朗在正常下美国人把伊朗给平了很难，地势、战略、几千万人口。但是要到了那时候，把伊朗给灭了那分分钟的事，是吧。你去凭着巴基斯坦拿着个金属的打狗棍子、北朝鲜拿着烧火棍子，然后跟美国人拿着远红外瞄准镜去跟你打，不可能，扯淡的事！
+This time, the U.S. economy has encountered problems and the gold price has encountered problems. The deep effect of the CCP’s plan to destroy the U.S. with money and its plan to eliminate white people and to create racial conflicts and its BGY plot will gradually become apparent.
 
-所以说兄弟姐妹们，我们海外华人真别作了。几个月以前七哥说会仇视亚裔人，你们以为是假的。你看现在纽约的抗议，为啥我们现在不到时候组织，我们要组织就要组织个像样的，上大街上喊能解决问题吗？有影响，没有影响力！我们要彻底的在媒体上，这是为什么要发展G-TV、G-News，为什么要联合美国的班农、朱利安尼、川普和美国民主党的几个大佬们，就是要，包括蓬佩奧这些人，让西方主流上要把中国人和中共分开，他们说一句话比你在纽约大街上转一百圈都管用。
+然后美国这两万亿美元所谓的基建和一万多亿美元的基建，这三万多亿美元都要从企业家的身上拿出来，企业家会再从这些穷老百姓手里拿回来。但这个过程它是需要时间的，它不是一天两天，它不像共产党一样把马云、马化腾是不是把这些老板全抓了，它做不到的，国家就没了。
 
-新中国联邦人每时在做什么，G-TV、G-News你觉得就是简单、就是要赚钱吗？那你们有的是机会，美国有那么多上市公司、欧洲上市公司，你去投它就完了嘛，你投这G-TV、G-News干嘛！从第一天就告诉你，G-TV、G-News所存在的风险和它的价值，如果你真认为它就是个赚钱的平台工具的话，你干嘛不去找别人去投资去，纯投资。你在美国有多少机会啊，对吧？
+And then the so-called $2 trillion infrastructure plan and the additional over $1 trillion in infrastructure, a total of over $3 trillion must be taken from entrepreneurs, and entrepreneurs will take the money from the hands of the deplorables. But this process will need time; not one or two days. It will not be like the CCP robbing all the bosses such as Jack Ma and Ma Huateng. It [the U.S.] cannot be like that, otherwise, the country will be done for.
 
-所以说兄弟姐妹们，一个人的看清真相和一个正常的思维它有多重要！多重要！你看看这个时候大家知道，**七哥在一年前说，一定不能让外国人把中国人跟共产党等同起来，这事儿有多大！**
+它要一个时间，在这个时间当中可能美国人就完全失去了世界第一经济强国、第一科技强国、第一军事强国、第一信用之国和信用美元体系全部崩塌。剩下的美国可能是哪儿叫美国，德州德克萨斯叫美国，美塔那、马塔那叫美国，爱荷华州，Idaho 就是黄石公园叫美国，其它都不叫美国，像什么纽约、洛杉矶啊估计都乱了。
 
-当年二战珍珠岛前，日本有个叫日本学社，日本学社就是今天所谓的中国的统战部，在全世界有日籍的地方进行宣传日本的文化、日本的饮食。日本学社出过几个牛人，其中有个叫朝田和夫的人，朝田和夫就在美国在欧洲就说过，日本人到了欧洲、到了巴西、到了美国就应该入土、加入这个文化、入乡随俗，而且不能完全跟随日本的政策、跟随日本的观点，这个人最后救了很多日本人。但是日本人很多弄到集中营的人多惨呐，多惨呐。
+It will need some time, but during this process, Americans will likely completely lose the world’s largest economic power, the largest technological power, the largest military power, and the number one creditworthy country, and the credible U.S. dollar system will completely collapse. The rest of the U.S. that may still be called America will be places like Texas, Montana, and Idaho – where the Yellowstone is. And the rest will not be America anymore, such as New York and Los Angeles, where I guess will be totally messed up.
 
-接上文——
+这就是共产党想要的，搞弱、搞乱、搞死美国、蓝金黄、三F方案、蓝金黄方案、灭白计划。这都是共产党是一系列的，从科恩，从IMF世界银行，从所有的，从国会，从情报部门儿，从司法部门，你看那 Higginbotham 那司法部的，就为了遣返郭文贵他能收几百万、几千万美元。
 
-[郭先生0411I王岐山认真了解并评价郭先生的秘密电话会谈](https://gnews.org/zh-hans/1082788/)
+This is exactly what the CCP wants – to weaken, to mess up, and to kill the U.S. (a.k.a., the 3F plan), to employ the BGY plot, and to exterminate the white people. These are a series of plans of the CCP, starting from Khan in the IMF World Bank (Dominique Strauss-Kahn, the former President of IMF), to the Congress, to the intelligence departments, to the Justice Department. You look at (George) Higginbotham in the Department of Justice, who accepted millions, tens of millions of dollars of bribes to just to repatriate me, Miles Guo.
 
-[郭先生0411II中共治下的中国完全成了流氓国家和邪恶国家](https://gnews.org/zh-hans/1082850/)
+刘特佐，你看刘特佐那什么概念，把马…大家还记得吧，马哈蒂尔上去了把纳吉布干掉了，人家纳吉布又派了个把马哈蒂尔干掉了，马哈蒂尔上来以后现在弄了个西丁外交部长，就是人家纳吉布的人家的亲表兄弟，人家纳吉布的亲表弟又回到北京，在刘特佐的安排下，孟建柱的私生子的安排下，公开在外交部喊：“王毅你是我大哥”，哈哈，共产党这邪恶到啥程度。
 
-[郭先生0411III美国因支持中国人民而相信中共等到的是什么](https://gnews.org/zh-hans/1082946/)
+Jo Low, you look at Jo Low. People may remember that Mahathir came to power to replace Najib, but Najib sent another one to replace Mahathir. After Mahathir came to power, he hired Hishammuddin (Hishammuddin bin Hussein) as the Minister of Foreign Affairs, who is the cousin of Najib. And this cousin of Najib’s went to Beijing, which was arranged by Jo Low, who is Meng Jianzhu’s illegitimate son, and publicly called Wang Yi in the Ministry of Foreign Affairs, “You are my elder brother.”  Haha, how evil is the CCP!
 
-[郭先生0411IV今日中共就是当年偷袭珍珠港的日本之翻版](https://gnews.org/zh-hans/1083526/)
+你再看看阿拉斯加那个会面，大家我最起码我在那个YouTube上我看了三遍了，我认真地看了三遍。每一个字儿、每一句话都是精心的安排。每一个字儿、每一句话都是对美国的羞辱和侮辱。那个阿拉斯加的见面绝对等同于当年撒切尔夫人在北京跌倒那一跤。
 
-[郭先生0411V现在不是灭不灭共而是什么时候灭共的问题](https://gnews.org/zh-hans/1084679/)
+Please also look at the meeting in Alaska, everyone. I’ve watched it at least three times on YouTube, very carefully. Every word and every sentence was carefully written. Every word and every sentence is a humiliation and insult to the U.S. The Alaska meeting is absolutely equivalent to the incidence when Margaret Thatcher fell in Beijing years ago.
 
-[郭先生0411VI美国决定开战必须具备的条件中共都给凑齐了](https://gnews.org/zh-hans/1084735/)** **
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=606b0c896e11a756edd89042](https://gtv.org/video/id=606b0c896e11a756edd89042) (1:14:01-1:18:38)
 
-0
+鸣谢：感谢笑笑、YIMING（文鸣）、山川异域提供中文文本于 [https://gnews.org/zh-hans/1060270/](https://gnews.org/zh-hans/1060270/)
+
+* * *
+
+字幕：【JennyL】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
++1
