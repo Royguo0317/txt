@@ -1,57 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共对西方维护人权品牌采取报复性措施
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1084334/)
+## 欧洲因中共病毒疫情死亡人数冲破百万
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1084837/)
 
-翻译：纽约香草山翻译部 bright.lee.dt
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/D-3.jpg)postcourier.com.pg
+《法兰西24报道》，周一欧洲经历了100万中共病毒死亡人数的严峻里程碑。世界卫生组织(world Health organization)警告称，尽管采取了广泛措施来阻止感染，但感染人数仍继续增长。
 
+世卫组织中共病毒的技术负责人玛丽亚·范·克尔霍夫(Maria Van Kerkhove)说，“我们现在正处于疫情的关键时刻”，这次大流行的轨迹正持续增长。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/LOGO3_1-1.jpg)
+迄今为止，中共病毒已经造成全世界293万多人死亡，近1.36亿人感染。
 
+近期国际社会对追查中共病毒来源的呼声越来越高。《纽约邮报》专栏作家Steven W. Mosher发表了一篇题为《中共国对中共病毒起源撒的谎越来越离谱》的文章，文中指出美国国务院调查中共病毒源头工作组前负责人认为，病毒不仅来自武汉病毒研究所，而且是超限生物武器研究的结果。爆料革命闫丽梦博士更是对病毒来源与中共实验室提供了坚实的科学依据。
 
+这是世界新秩序的分水岭，疫情导致国际经济秩序的崩塌，出现全球经济和人道主义危机及意识形态的碰撞。以毒灭共已经势不可挡，全球多个国家将集体向中共追责，消灭中共打造世界新秩序的时代已经来临。
 
-据英国广播公司(BBC)周三报道，中共最近将电视节目中出现的国际知名品牌统一进行模糊处理，无论是出现在背景还是明星的服装用品上。
+参考链接：
 
-报道称，在近几期中共国热门综艺节目《浪花一朵朵》最近的剧情中，”现在出现了一些歌手和演员，他们看起来就像漂浮在云端一样，这要归功于他们模糊不清的鞋子”。中共国的真人秀节目《创造营2021》最近出现了一些明星从脖子以下都是模糊的，因为他们的上衣和裤子都是西方品牌。上个月，真人秀比赛节目《青春有你》向后期制作编辑提出了一项特别繁琐的工作要求，因为该节目中至少有50名选手穿着印有西方品牌标志的T恤。”该节目背后的制作公司爱奇艺（iQiyi）曾于3月25日发出通知，称不得不推迟最近一期节目，但没有给出理由，”BBC报道说。”然而两天后，观众立即发现，50多人的T恤上的品牌标识被进行了模糊处理。”
+[https://www.france24.com/en/europe/20210413-europe-s-covid-19-death-toll-surpasses-one-million-as-cases-continue-to-rise](https://www.france24.com/en/europe/20210413-europe-s-covid-19-death-toll-surpasses-one-million-as-cases-continue-to-rise)
 
-这些让观众摸不着头脑的操作，起因为、就是美国、英国、欧盟和加拿大于3月22日因中共国官员涉嫌在中共国新疆地区侵犯人权的行为联合实施制裁。行为包括强迫维吾尔族，一个逊尼派穆斯林突厥人群体以及其他地区少数民族在强迫奴隶劳动条件下收割棉花。新疆是中共国与中亚多国接壤的一个边疆地区。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture3-1.jpg)图片来自网络
-针对3月22日的联合制裁，中共于3月26日对英国政府官员和机构实施报复性制裁，这些报复性制裁除了对中共国内民众洗脑宣扬中共威严外，对被制裁机构和个人其实并无实际伤害。但一些使用新疆棉花的外国零售商紧随其后，也对制裁消息作出反应，谴责中共在该地区涉嫌强迫当地民众劳动。公众对新疆棉的强烈抗议引起了中共的强烈反应，中共当局对所有批评强迫维吾尔族奴隶劳动的外国品牌发起了有针对性的攻击。
-
-瑞典快时尚巨头H&M因宣布将停止购买新疆棉，成为3月22日中共受到制裁后，首批被中共锁定的西方品牌之一。从3月26日开始，在中共官员的授意下，H&M几乎被从已经经过中共当局严密审查的互联网上抹除踪迹。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture4.jpg)图片来自网络
-在此后近两周的时间里，又有更多西方服装零售商的网店被中共网络审查人员封杀。”一些卷入争议的品牌包括耐克、阿迪达斯和彪马–它们都是 “更好的棉花计划”（BCI）的成员，这是一个促进可持续棉花生产的非营利组织，”英国广播公司4月7日报道。”该组织在10月表示，已经暂停了在新疆的活动以及该地区棉花的许可，理由是指控和’日益增加的强迫劳动风险’。”
-
-译者评：全球抵制奴隶棉，
-
-中共抵赖把谎撒，
-
-以市要挟流氓像，
-
-一叶障目欺自人，
-
-奈何民心藏不住，
-
-促销打折抢破头，
-
-重金满屏马赛克，
-
-到头还是无用功。
-
-原文鏈結：[https://www.breitbart.com/asia/2021/04/07/chinese-censors-blur-western-brand-logos-tv-programs/](https://www.breitbart.com/asia/2021/04/07/chinese-censors-blur-western-brand-logos-tv-programs/)
-
-校对：Renyi / 发稿：Jenny
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+[https://nypost.com/2021/03/27/chinas-deception-over-covid-origins-more-outrageous-every-day/](https://nypost.com/2021/03/27/chinas-deception-over-covid-origins-more-outrageous-every-day/)
 
 0
