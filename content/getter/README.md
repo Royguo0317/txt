@@ -17,6 +17,11 @@
 **郭文贵MILES** `2021-02-21T15:56:09`
 ##
 
+[4月13号：尊敬的战友们好……昨天我推出健身的视频后．很多战友发信息说这个视频证明了郭3秒是事实上是郭三强……把我笑得简直是受不了了，有欺民贼说文贵只能是咬着牙...](/content/getter/content/2021/04/6075a527dbc8001854a83780.md)
+
+**郭文贵MILES** `2021-04-13T14:05:27`
+##
+
 [4月12號：第三次發蓋特．七哥分享鍛鍊身體的時刻！￼](/content/getter/content/2021/04/60745c42dbc8001854a7f1e9.md)
 
 **郭文贵MILES** `2021-04-12T14:42:10`
@@ -155,10 +160,5 @@
 [武汉到底死了多少人？ How many people actually died in the Wuhan pandemic?](/content/getter/content/2021/04/606ce5dddbc8001854a60d1c.md)
 
 **郭文贵MILES** `2021-04-06T22:51:09`
-##
-
-[4月6号：谁会相信北京的冬奥会能成功举行，谁就是脑子有问题！￼ https://twitter.com/CNBCnow/status/1379516671447...](/content/getter/content/2021/04/606ce44ddbc8001854a60cca.md)
-
-**郭文贵MILES** `2021-04-06T22:44:29`
 ##
 

@@ -1,49 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲大型连锁超市从中共国撤回购物纸袋生产线
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1085236/)
+## 【热点播报】中共被布林肯警告后，派出25架次军机扰台，公然对抗
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1085374/)
 
-翻译与评论：Shirley
-![]()![](https://gnews.org/wp-content/uploads/2021/04/135.png)网络图片
-澳洲第二大连锁超市Woolworths已经开始在澳洲制造纸质购物袋。该公司在一份声明中表示，它已经与Detpak公司达成了一项价值数百万澳元的协议，将在国内生产购物袋。
+作者：纽约香草山健身部 Jack Li文阳
 
-去年6月，Woolworths在推出纸袋后面临顾客的强烈反弹，一些愤怒的消费者在发现这些袋子是中共国生产的后，在社交媒体上抱怨。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
-“真是耻辱。当然不会用这些袋子了。“一个人在Facebook上写道。
 
-一些相关人士也表示，Woolworths并没有投资创造澳大利亚的就业机会。
 
-该公司的一位发言人当时表示，Woolworths本想提供澳大利亚制造的袋子，但国内没有一家制造商能够完成这项工作。
+据综合报道称，美国国务卿布林肯对“中共国对台湾越来越多的侵略性行动”发出警告后，中共悍然派出单日25架次军机回应，创出共机单日扰台西南空域的新纪录。
 
-澳洲民众对Woolworths使用中共国制造购物纸袋的愤怒反弹，源于澳大利亚外交部长佩恩（Marise Payne），在她去年四月公开呼吁世界卫生组织调查中共病毒的起源后，中共国开始对澳洲产大麦、铜、糖、牛肉、煤、龙虾、木材、葡萄酒、羊肉等实施制裁。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片29-2.png)
 
-在本周一的公告中，Woolworths表示，自去年年初以来，它已经与Detpak合作。生产规模将扩大，要足以供应公司在全澳各地的，数百家连锁超市的需求。
+根据台湾国军“即时军事动态”专区揭露的资讯称，中共国今日扰台的军机包括2架次“运-8”反潜机、1架次“空警-500”预警机、4架次“歼-10”战斗机、4架次“轰-6K”轰炸机，以及多达14架次的“歼-16”战斗机。
 
-公告说，维多利亚州、塔斯马尼亚州、西澳大利亚州、南澳大利亚州和北领地的顾客现在已经获得了澳大利亚制造的袋子。
+这是自台湾国防部去年9月17日设立“即时军事动态”专区后，中国军机扰台外围空域最多架次的纪录。次多纪录则为今年3月26日的20架次。
 
-Woolworths超市董事总经理Natalie Davis表示： “纸质购物袋是我们产品系列的永久组成部分，我们正在与当地制造商Detpak合作，努力支持新的澳大利亚就业机会。 “
+另据报道说，近日在网上传出一段台湾空军实施广播驱离时与共机发生的简短对话，发生时间是4月10日早上共机3度侵扰台西南防空识别区，到第4次约在上午10时30分时进入西南空域，台空军升空应对，并于11时06分采取广播驱离，这段音频可明确听到台空军喊话：“中华民国空军广播，位于台湾西南空域高度15000公尺的中共军机注意！你已进入我ADIZ，影响我飞航安全，立即回转脱离！”不料广播后共机则回呛：“这里都是中国空域，你们很快就能适应了。”
 
-此举在制造领域创造了25个新的本地就业机会。
+美国国务卿布林肯4月11日表示，美国对中共国针对台湾的侵略性行动感到关切，并警告称任何人企图通过武力，改变西太平洋现状都将犯下“严重错误”。布林肯表示，美国对西太平洋的和平与安全有严肃的承诺。
 
-中共国的战狼式外交，激发了澳洲普通民众的爱国情结。民众自发抵制中共国制造产品，致使Woolworths这样的连锁超市不得不做出反应。相信澳洲的各行各业，都会将越来越多的产品带回到澳洲生产，而战狼外交的结局只能是自食苦果。
+在布林肯此番讲话后，中共随即悍然派出近年最多的军机架次扰台，摆出一副公然对抗的架势。中共外交近期频发的疯狗乱咬式外交，颇得习近平的赞赏，军方看来也不甘落后。频繁派出舰队和军机在台海和南中国海附近进行军事行动。值得注意的是，这些超出中共国常规的军事动作，在拜登政府上任后，不断升级。习近平对拜登政府没有对他言听计从，多有失望。每每摆出外交和军事的对抗架势，并不断升温。习近平就像斗牛场上被激怒的公牛，一看到红布，就要往前冲撞。殊不知，中共越是对抗，拜登政府就越难下台，双方就越不会达成共识，对抗到底。习近平的狂妄自大、不可一世，对中共来说就是死路一条。
 
-（本文仅代表个人观点）
+参考阅读：
 
-*审稿：**Gradient Boost**编辑：**MG1*
+[https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210412-%E8%A7%A3%E6%94%BE%E5%86%9B%E5%86%9B%E6%9C%BA%E4%BB%8A%E5%A4%A7%E4%B8%BE%E6%89%B0%E5%8F%B0-25%E6%9E%B6%E6%AC%A1https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210412-%E8%A7%A3%E6%94%BE%E5%86%9B%E5%86%9B%E6%9C%BA%E6%89%B0%E5%8F%B0%E5%9B%9E%E5%BA%94%E9%A9%B1%E7%A6%BB%E7%A7%B0-%E8%BF%99%E9%87%8C%E9%83%BD%E6%98%AF%E4%B8%AD%E5%9B%BD%E7%A9%BA%E5%9F%9F%EF%BC%8C%E4%BD%A0%E4%BB%AC%E5%BE%88%E5%BF%AB%E5%B0%B1%E8%83%BD%E9%80%82%E5%BA%94%E4%BA%86](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210412-%E8%A7%A3%E6%94%BE%E5%86%9B%E5%86%9B%E6%9C%BA%E4%BB%8A%E5%A4%A7%E4%B8%BE%E6%89%B0%E5%8F%B0-25%E6%9E%B6%E6%AC%A1https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210412-%E8%A7%A3%E6%94%BE%E5%86%9B%E5%86%9B%E6%9C%BA%E6%89%B0%E5%8F%B0%E5%9B%9E%E5%BA%94%E9%A9%B1%E7%A6%BB%E7%A7%B0-%E8%BF%99%E9%87%8C%E9%83%BD%E6%98%AF%E4%B8%AD%E5%9B%BD%E7%A9%BA%E5%9F%9F%EF%BC%8C%E4%BD%A0%E4%BB%AC%E5%BE%88%E5%BF%AB%E5%B0%B1%E8%83%BD%E9%80%82%E5%BA%94%E4%BA%86)
 
-新闻参考链接：
+校对/发稿：飞虹
 
-[澳洲新闻网](https://www.news.com.au/finance/business/retail/woolworths-to-make-paper-bags-in-australia-instead-of-china-after-customer-fury/news-story/02e66c683c18b00bf91a99db63bdc6d4)（英文）
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpg)
 
-[每日邮报](https://www.dailymail.co.uk/news/article-8386913/Woolworths-faces-massive-backlash-bringing-paper-bags-China.html)（英文）
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
-[ABC新闻之一](https://www.abc.net.au/news/2020-04-19/payne-calls-for-inquiry-china-handling-of-coronavirus-covid-19/12162968)（英文）
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
 
-[ABC新闻之二](https://www.abc.net.au/news/2021-01-03/heres-what-happened-between-china-and-australia-in-2020/13019242)（英文）
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
-+2
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+0

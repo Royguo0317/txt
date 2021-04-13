@@ -1,25 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国女王伊丽莎白二世的丈夫菲利普亲王去世（玫瑰看新闻2021/04/09 第81期）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1085974/)
+## 【每日快讯】04/12/2021美军正在建立第一只“印度&#8212;太平洋联合特遣队”目的是打击“中共水军”。
+` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1086180/)
 
-本期焦点新闻摘要：
+**制作：Cantonese工作室**
 
-\*英国女王伊丽莎白二世的丈夫菲利普亲王去世
 
-\*美将把剩余战斗部队全数调离伊拉克时间待确认
 
-\*美国务卿推特喊话WHO改革回到正轨
+**播報：【Annie喜馬拉雅 】整理：【陸柒陸捌 】【閃電】海報製作：【儂民】視頻製作:【Annie喜馬拉雅】推流、上傳：【星星】发布：【向阳6768】**
 
-\*缅甸安全部队与反军政府示威者爆发血腥冲突美国扩大制裁
+摘要：
 
-\*Sellin博士公布中共病毒的零号患者
-
-\*专家警告说，中共加快了可能入侵台湾的时间点
-
-\*科学家发公开信要求全面调查中共病毒来源
-
-\*公墓涌现大量人流，引起人们对武汉市实际死亡人数的质疑
-
+1
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-1-1.png)
+2
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-2-1.png)
+3
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-3-1.png)
+4
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-4-1.png)
+5
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-5-1.png)
+6
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-6-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/04/0-3.jpg)
 0

@@ -1,43 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】春花怒放
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1086085/)
+## 新研究显示中共病毒的南非变种能突破辉瑞疫苗的防线
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1086244/)
 
-图作者：纽约香草山健身部 Jack Li文阳
+4/11/2021 新研究显示，与原始毒株相比，南非新冠病毒变种更能突破辉瑞疫苗的防护。而辉瑞董事会成员斯科特⋅高特立博博士则坚称，感染了1351变异毒株的所有患者都没有完成全部疫苗接种。
 
-诗作者：文鹰
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/logo-5.jpg)
+By： 【秘密翻译组 G-Translators】
 
 
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片48.png)
-
-蒙蒙春雾随花至，
-
-朵朵心花沁蕊香。
-
-浩浩联邦四海屹，
-
-滔滔灭共浪潮狂。
-
-
-
-校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2.jpg)
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0
