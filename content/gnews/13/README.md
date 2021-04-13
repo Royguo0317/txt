@@ -1,27 +1,127 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 不能避免交叉感染的云南瑞丽方舱医院的所有额外功能都是扯淡
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1089678/)
+## 【路德时评摘要】4.11.2021PM-中共宣传美航母遇见辽宁号灰溜溜离开
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1089819/)
 
-【日本东京方舟农场】撰稿：Maarago 素材整理：文柯Miles 校对：miumiu law
+视频剪辑 : Ablec(文A)
+中听校： 洛杉矶天使农场 – 烟波浩淼
+英翻译：洛杉矶天使农场 –飞利普
+英校对：洛杉矶天使农场 – 烟波浩淼
+字幕+视频制作：洛杉矶天使农场 – 小腾腾说
 
-据[凤凰视频客户端](https://weibo.com/2810833971?refer_flag=1001030103_) [2021年4月13日19:22](https://weibo.com/2810833971/KaK1Q3oxV?refer_flag=1001030103_)
+**路德:**
+《环球新军事》说，
+The CCP’s Global New Military news said
+中共国航母罕见出动
+that the dispatch of Chinese aircraft carrier is rarely seen
 
-【内景曝光！[#云南瑞丽方舱医院建成#](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E7%91%9E%E4%B8%BD%E6%96%B9%E8%88%B1%E5%8C%BB%E9%99%A2%E5%BB%BA%E6%88%90%23)】4月12日，瑞丽市方舱（康复）医院已完成各项准备工作，目前功能定位是收治定点医院出院的康复期患者。瑞丽市从4月6日起，迅速完成设施设备安装调试，配置工作人员99名，即将投入使用。 ​
+美国航母一看就灰溜溜离开
+but the US aircraft carrier left dejectedly as soon as seeing it
 
-另据[新京报我们视频](https://weibo.com/6124642021?refer_flag=1001030103_) [2021年4月13日18:31](https://weibo.com/6124642021/KaJGTm11E?refer_flag=1001030103_)
+看看它怎么对内洗脑忽悠的
+Let’s see how this report is brainwashing and deceptive to its readers
 
-【[#瑞丽方舱康复医院内景#](https://s.weibo.com/weibo?q=%23%E7%91%9E%E4%B8%BD%E6%96%B9%E8%88%B1%E5%BA%B7%E5%A4%8D%E5%8C%BB%E9%99%A2%E5%86%85%E6%99%AF%23)：有免费网络 还有运动和阅读区】4月12日，瑞丽市疫情防控工作指挥部发布消息，瑞丽市方舱（康复）医院已完成各项准备工作，即将投入使用。方舱（康复）医院目前功能定位是收治定点医院出院的康复期患者。医院配备有被褥、床头柜、台灯等生活物品，卫生间、洗漱台、淋浴室等生活设施齐全，同时开通了免费网络。目前已达到启用条件。
+它说中共舰队将美军给堵住了
+It said that the US army had been blocked by the CCP’s fleet
 
-如果瑞丽方舱医院是一家民宿设施，那么官媒标榜它具有这些免费网络、床头柜、台灯、卫生间、淋浴室等生活设施也算正常，但是瑞丽方舱医院是一个目前收治定点医院出院的康复期患者，根据视频显示我们知道瑞丽方舱收治的是中共病毒康复患者，如果说康复患者没有传染危险，那么就没有必要对医护人员培训穿戴防护服，可是在有中共病毒传染性危险的情况下，瑞丽方舱医院的所有患者床铺是通透的，所有的卫生间是公用的，所有的区域都是敞开的，在这样的敞开环境中如果有一例含有病毒的患者，是不是就意味着方舱医院就是一个集中感染的高危地区？是不是就意味着本来治愈了，到了方舱医院又增加了感染的危险？
+辽宁舰旁边的055型导弹驱逐舰，南昌舰
+Either 055 missile destroyer or Nanchang warship beside the Liaoning aircraft carrier
 
-在瑞丽方舱医院根本不可能避免交叉感染的情况下，现在官方对瑞丽方舱医院的功能定位放在收治定点医院出院的康复期患者上，这个定位说明方舱医院不具备治疗中共病毒确诊患者的能力，而只作为一个康复期患者出院前的准隔离或者说是过渡设施。目前的瑞丽疫情是怎样的？在官媒中我们无法找到准确数据，但是瑞丽所在的德宏州的[德宏州疫情实时大数据（更新至2021年4月13日22：00）](https://voice.baidu.com/act/newpneumonia/newpneumonia/?from=osari_aladin_banner&amp;city=%E4%BA%91%E5%8D%97-%E5%BE%B7%E5%AE%8F%E5%B7%9E)为现有确诊79名，累计确诊92名，累计治愈13名——
+它绝对是一座移动的火力堡垒
+It is absolutely a moving firepower fortress
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/8DB104A6-945E-4B91-8BF0-0F93766AB9AB.jpeg)
+其超过万吨的身躯，综合作战能力
+its body weighted more than 10K tons with an integrative combat capability
 
-作为德宏州下辖县级市的瑞丽其现有确诊和累计治愈都肯定要小于这个德宏的疫情汇总数，在这样的数字下还要建设和投入使用的瑞丽方舱医院可以说明两个可能：一是现有疫情数据被严重造假了，为缓解实际的定点医院的床位压力必须要设立一个缓冲的方舱医院；二是当地领导已经预盼到未来瑞丽周边地区会出现大爆发，提前为定点医院的康复期患者做好缓解措施。但是无论哪一种可能，我们都要明白一点，按目前中共官媒所显示的现状，在不能避免交叉感染的情况下，云南瑞丽方舱医院即使其他额外功能被吹上了天也全是扯淡——它实际上就是一个病毒感染加油站。
+已超过美军提康德罗加级导弹巡逻舰
+And has surpassed the US Ticonderoga missile patrol ship
 
-注：文章内容仅代表作者个人观点
+美军因为惧怕这个导弹驱逐舰所以灰溜溜地离开
+The US military left dejectedly is because of the fear of this missile destroyer
+
+忽悠习神的。为什么我们今天说这个？
+It’s a hoax to Xi God. Why do we mention this today？
+
+这篇就是写给中南坑习神看的
+The report is written to Xi God in Zhongnan hai
+
+就跟当年写给那个慈禧太后
+Just like the report written to Empress Dowager Cixi back then
+
+你看被我们义和团给吓着了吧。美国是纸老虎
+You see, they are scared by CCP’s “Boxers”. The America is a paper tiger
+
+习神看了以后很开心
+Xi God was very happy after reading it
+
+你看，（美军舰）跟我们一对就跑了
+You see, (US warship) ran away once encounter with CCP’s fleet
+
+他知道航母肯定搞不过别人
+The CCP knew that their aircraft carrier would not be able to defeat over others
+
+所以就说因为我们有导弹驱逐舰，所以美军就害怕了
+because CCP had missile destroyer, so the report said that the US army was afraid then.
+
+自我意淫。我们从逻辑上来看，中共的导弹驱逐舰有多落后?
+Self-daydream. Let’s look logically how backward the CCP’s missile destroyer is?
+
+它觉得就是因为一万吨，当然了
+The CCP thought because the displacement of the destroyer is 10K tons. Of course
+
+这个东西一定是对中南坑习神还有中共统治下的14亿老百姓
+this report is certainly shown for Xi God of Zhongnan Hai and 1.4 billion people under the rule of CCP
+
+它是有洗脑作用的
+it has the brainwashing effect
+
+它现在就是介于驱逐舰和巡洋舰之间搞了一个大型的驱逐舰
+At present, the CCP just built a larger destroyer between the current destroyer and the cruiser
+
+中共的创新就这个概念，比如一辆车本来是帕萨特的底盘
+This is CCP’s concept of innovation. Like a car has a Passat chassis originally
+
+然后用帕萨特的底盘改装成一个越野车
+then it is refitted into an SUV with Passat chassis.
+
+你看这就是我们的创新能力
+You see, this is CCP’s innovation capability
+
+我们的创新能力就体现在这里
+Its innovation capability is embodied here
+
+这个驱逐舰充分的体系(现)了中共所谓我们就是善于改装
+This destroyer fully reflects what the CCP so-called “We are good at refitting”
+
+我直接把驱逐舰变成巡洋舰
+They directly turned the destroyer into a cruiser
+
+变大，装的导弹多了，这就是我们的创新
+Make it bigger and carry more missiles. This is their innovation
+
+这就是中共内部自我意淫的
+This is what the CCP’s self-daydream is
+
+真正美国的创新是从无到有
+The American real innovation starts from scratch
+
+中共的所谓创新，就像华为手机
+The so-called innovation of the CCP is like Huawei’s mobile phone
+
+换个壳，漂亮一点，换个摄像头，这就叫创新
+Redesign a case, nicer looking and replace a better camera. This is called innovation
+
+用德国最好的赛思(蔡司)的摄像头，这就叫创新
+Equipped with German’s best Zeiss lens, this is called innovation
+
+他们永远都停留在这个意义上
+They will always stay in this sense
+
+刚刚博博士给我发私信，他说（中共）胡扯
+Just now Dr. Bo sent me a text message. He said (CCP is) bullshit
+
+055根本没有去南海，知道吧
+You know it , the 055 missile destroyer didn’t go to the South China Sea at all
 
 0

@@ -1,27 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美参院推出两党议案:与北京展开全面战略竞争（玫瑰看新闻2021/04/10 第82期）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1086089/)
+## 【每日快讯】04/12/2021美军正在建立第一只“印度&#8212;太平洋联合特遣队”目的是打击“中共水军”。
+` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1086180/)
 
-本期焦点新闻摘要：
+**制作：Cantonese工作室**
 
-\*美参院推出两党议案:与北京展开全面战略竞争
 
-\*白宫称中国在台湾海峡日益增加军事活动可能破坏稳定
 
-\*美国前国务卿蓬佩奥获聘担任福斯新闻固定评论员
+**播報：【Annie喜馬拉雅 】整理：【陸柒陸捌 】【閃電】海報製作：【儂民】視頻製作:【Annie喜馬拉雅】推流、上傳：【星星】发布：【向阳6768】**
 
-\*美国发布鼓励与台湾交往的新指引
+摘要：
 
-\*重大考古发现: 3000年埃及“失落的黄金城”出土
-
-\*辉瑞请求授权对美12至15岁民众注射所生产疫苗
-
-\*欧盟调查注射强生和阿斯利康疫苗后分别出现血凝块和出血情况的报告
-
-\*CDC主任称英国变种病毒已成为美国最普遍的新冠毒株
-
-\*中共人权研究会发表《美国对外侵略战争造成严重人道主义灾难》
-
+1
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-1-1.png)
+2
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-2-1.png)
+3
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-3-1.png)
+4
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-4-1.png)
+5
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-5-1.png)
+6
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-6-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/04/0-3.jpg)
 0

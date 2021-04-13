@@ -1,127 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.11.2021PM-中共宣传美航母遇见辽宁号灰溜溜离开
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1089819/)
+## 俄以新程序任命联邦安全局局长
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1089930/)
 
-视频剪辑 : Ablec(文A)
-中听校： 洛杉矶天使农场 – 烟波浩淼
-英翻译：洛杉矶天使农场 –飞利普
-英校对：洛杉矶天使农场 – 烟波浩淼
-字幕+视频制作：洛杉矶天使农场 – 小腾腾说
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-**路德:**
-《环球新军事》说，
-The CCP’s Global New Military news said
-中共国航母罕见出动
-that the dispatch of Chinese aircraft carrier is rarely seen
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/f-1.jpg)digitalcombatsimulator.com
+04月12日，国家元首只有与联邦委员会协商后才能任命联邦安全局（FSO）局长。相关法令由普京总统签署。该文件已在法律信息的官方门户网站上公布。
 
-美国航母一看就灰溜溜离开
-but the US aircraft carrier left dejectedly as soon as seeing it
+这项法令表示：“俄罗斯联邦安全局的领导是由俄罗斯联邦总统与俄罗斯联邦联邦议会联邦委员会协商后任命的，并由俄罗斯联邦总统解职。”
 
-看看它怎么对内洗脑忽悠的
-Let’s see how this report is brainwashing and deceptive to its readers
+该法令自签署之日起生效。
 
-它说中共舰队将美军给堵住了
-It said that the US army had been blocked by the CCP’s fleet
+联邦安全局是负责保护国家总统、政府成员和其他官员的特殊部门。自2016年起，该局由德米特里·科赫涅夫（Dmitry Kochnev）领导，他在2020年晋升为陆军上将。
 
-辽宁舰旁边的055型导弹驱逐舰，南昌舰
-Either 055 missile destroyer or Nanchang warship beside the Liaoning aircraft carrier
+此前，安全局局长只能由国家元首任命。同时，总统仍将任命该局的副局长，并确定其人数。
 
-它绝对是一座移动的火力堡垒
-It is absolutely a moving firepower fortress
+去年11月，普京根据去年夏天通过的宪法修正案签署了法律修正案。他们为任命权力集团的部长设置了一个新程序。与联邦安全局长的情况一样，现在国家元首只有在与联邦委员会协商后才能批准他们担任这一职务。
 
-其超过万吨的身躯，综合作战能力
-its body weighted more than 10K tons with an integrative combat capability
+参考链接：
 
-已超过美军提康德罗加级导弹巡逻舰
-And has surpassed the US Ticonderoga missile patrol ship
-
-美军因为惧怕这个导弹驱逐舰所以灰溜溜地离开
-The US military left dejectedly is because of the fear of this missile destroyer
-
-忽悠习神的。为什么我们今天说这个？
-It’s a hoax to Xi God. Why do we mention this today？
-
-这篇就是写给中南坑习神看的
-The report is written to Xi God in Zhongnan hai
-
-就跟当年写给那个慈禧太后
-Just like the report written to Empress Dowager Cixi back then
-
-你看被我们义和团给吓着了吧。美国是纸老虎
-You see, they are scared by CCP’s “Boxers”. The America is a paper tiger
-
-习神看了以后很开心
-Xi God was very happy after reading it
-
-你看，（美军舰）跟我们一对就跑了
-You see, (US warship) ran away once encounter with CCP’s fleet
-
-他知道航母肯定搞不过别人
-The CCP knew that their aircraft carrier would not be able to defeat over others
-
-所以就说因为我们有导弹驱逐舰，所以美军就害怕了
-because CCP had missile destroyer, so the report said that the US army was afraid then.
-
-自我意淫。我们从逻辑上来看，中共的导弹驱逐舰有多落后?
-Self-daydream. Let’s look logically how backward the CCP’s missile destroyer is?
-
-它觉得就是因为一万吨，当然了
-The CCP thought because the displacement of the destroyer is 10K tons. Of course
-
-这个东西一定是对中南坑习神还有中共统治下的14亿老百姓
-this report is certainly shown for Xi God of Zhongnan Hai and 1.4 billion people under the rule of CCP
-
-它是有洗脑作用的
-it has the brainwashing effect
-
-它现在就是介于驱逐舰和巡洋舰之间搞了一个大型的驱逐舰
-At present, the CCP just built a larger destroyer between the current destroyer and the cruiser
-
-中共的创新就这个概念，比如一辆车本来是帕萨特的底盘
-This is CCP’s concept of innovation. Like a car has a Passat chassis originally
-
-然后用帕萨特的底盘改装成一个越野车
-then it is refitted into an SUV with Passat chassis.
-
-你看这就是我们的创新能力
-You see, this is CCP’s innovation capability
-
-我们的创新能力就体现在这里
-Its innovation capability is embodied here
-
-这个驱逐舰充分的体系(现)了中共所谓我们就是善于改装
-This destroyer fully reflects what the CCP so-called “We are good at refitting”
-
-我直接把驱逐舰变成巡洋舰
-They directly turned the destroyer into a cruiser
-
-变大，装的导弹多了，这就是我们的创新
-Make it bigger and carry more missiles. This is their innovation
-
-这就是中共内部自我意淫的
-This is what the CCP’s self-daydream is
-
-真正美国的创新是从无到有
-The American real innovation starts from scratch
-
-中共的所谓创新，就像华为手机
-The so-called innovation of the CCP is like Huawei’s mobile phone
-
-换个壳，漂亮一点，换个摄像头，这就叫创新
-Redesign a case, nicer looking and replace a better camera. This is called innovation
-
-用德国最好的赛思(蔡司)的摄像头，这就叫创新
-Equipped with German’s best Zeiss lens, this is called innovation
-
-他们永远都停留在这个意义上
-They will always stay in this sense
-
-刚刚博博士给我发私信，他说（中共）胡扯
-Just now Dr. Bo sent me a text message. He said (CCP is) bullshit
-
-055根本没有去南海，知道吧
-You know it , the 055 missile destroyer didn’t go to the South China Sea at all
+[https://www.rbc.ru/rbcfreenews/607474059a7947301c321d53](https://www.rbc.ru/rbcfreenews/607474059a7947301c321d53)
 
 0
