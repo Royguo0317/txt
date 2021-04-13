@@ -1,63 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国人对中国共产党的威胁和觉醒远远不够
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1083545/)
+## 美加疫情再度爆发，留给人类的时间不多了！
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1084979/)
 
-**简述：在2021年4月5日的GTV直播中，郭先生批评了美国私人公司的贪婪和对国家毫无责任感，可是皮之不存，毛将焉附？另外美国官员和执法部门的腐败、被中共的收买和无知使他们对共产党的威胁完全没有认识。随着美国经济和黄金出问题，共产党的以钱灭美计划、灭白计划、3F计划和“蓝金黄”的深度影响将逐渐会显现出来。**
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210405-live-p2.srt.txt)
-**美国人对共产党的威胁和觉醒远远不够**
+加拿大多伦多枫叶农场 军迷Wilson
 
-**Americans’ Understanding of the CCP’s Threat Is Far From Enough**
+据路透社4月12日报道，由于更具传染性的病毒变异毒株的泛滥，美国上周报告的CCP病毒感染病例上升8%，达到有记录以来最高的49万例/周，而且是连续第四周感染率上升。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/EwV-j5MUYAEQMAr.jpg)
+根据美国疾病控制与预防中心提供的数据，在3月13日之前的四周，密歇根州约39%的新病例是从英国传播过来的B.1.1.7变异病毒，巴西及南非的CCP变种病毒传播速度也很快。由于要完成动态中全国性的统计难度很大，感染人数的报告往往滞后一个月左右。
 
-这个国家现在是华尔街和好莱坞还有美国科技公司的腐败贪婪，它最终它要付出代价的。就像美国的私人公司 3M 公司在美国最需要口罩的时候，它就在电视上说：“欸，我没有义务给你口罩啊。”对呀，就像川普还有皮特纳瓦罗还有蓬佩奥都说美国是私人公司，私人公司一切向往利益，它完全不考虑政治。这是对的，按规则说是对的，但是这个国家要完了，你这私人企业也都完球蛋。他们太贪婪了，你跟共产党做生意，你去！
+时至今日，密歇根州的B.1.1.7变异病毒感染率及感染人数，已较一个月前大幅上升。因此，美国疾病控制和预防中心主任罗谢尔·瓦伦斯基紧急呼吁，密歇根州应实施居家封闭，以应对当前感染、住院、死亡人数激增的严峻局面，而其他州的现状及前景同样不容乐观。
 
-The corruption and greed of Wall Street and Hollywood as well as Big Tech companies in this country will eventually make this country pay the price. Just like when the Americans needed masks the most, the private company 3M said on TV: “Hey, I have no obligation to give you masks.” Yes, it’s just like what Trump, Peter Navarro and Pompeo said: the United States is like a private company, and all private companies seek profits and don’t care about politics at all. That is correct. Theoretically, it is right, but if this country is going to be over, you, a private enterprise, will be over too. They are too greedy. If you want to do business with the CCP, just go ahead.
+值得警惕的是，美国疫情的再度爆发，是在美国已经完成大量疫苗注射的情况下发生的。据美国疾控中心称，截至4月11日，36%的美国人至少接种了一剂疫苗，22%的人已经完成疫苗接种，刚刚过去的一周，美国平均每天注射了310万剂疫苗。疫情的爆发，有两方面的原因，一是人们响应政府放开封锁，二是变异病毒传染性更强，而不同疫苗的作用参差不齐，但总的来说，疫苗对变异病毒的作用有限。
 
-美元都没了你啥都没了，什么美国的豪宅呀、自由女神啊、民主啊、信仰，想啥都没了。这个国家是高成本地运作，完全靠一个高成本、高质量法律体系，维护的就是一个问题——美元。美国唯一让美元能够存在就是美国的航空母舰、美国的强大的军队和国家的科技能力。当美元没有的时候美国军队就没了，美国军队没了美国的利益就没了，美国利益就没了，这些人才也不聚集美国了，美国就完了。那你说美国企业呢还有行吗？像Elon Musk这样的人他就不会待在美国，他弄不好迁都，把他公司迁到香港、去上海去了或者到欧洲去了。
+美国的邻居加拿大情况更加严重，今天报告的全国新增病例已接近1.1万例，其中，英国B.1.1.7变异病毒的感染人数以每周25%的速度递增，年轻人被感染后成为重症患者及死亡人数均呈上升态势。人口占加拿大40%以上的安省今天宣布，在春假后关闭全省学校，将中小学生全部转为“在线学习”。省长福特说：“我们的疫情正在迅速恶化，创纪录的CCP病毒感染病例和入院人数可能使我们的医疗体系不堪重负”。
 
-When the U.S. dollar is gone, you will lose everything, including your mansions in the U.S., the Statue of Liberty, democracy, faith, and everything you can think of. This country operates at a high cost. It relies entirely on a high-cost and high-quality legal system to maintain just one thing – the U.S. dollar. The only thing the U.S. relies on to keep the existence of U.S. dollar is its aircraft carriers, its powerful military, and the its technological capabilities. When the U.S. dollar is gone, the military will be gone, and when the U.S. military is gone, the interests of America will be gone, and when the American interests are gone, the U.S. will never attract talents to come here, and then America will be done. Do you think American companies will still be okay? People like Elon Musk would not stay in the U.S. anymore. He could move his headquarters to Hong Kong, Shanghai, or Europe.
+据安省医院协会的报告，由于医院人满为患，不得不将成年人送往儿童医院，并准备了野战医院。另外，令人心情异常沉重的是，随着医疗资源的紧缺，安省将有选择性地放弃对部分感染患者的救治，即医生可以根据评估，拒绝对可能存活12个月机会低于20%的患者提供维持生命的护理。这意味着部分患者将在无助的痛苦中等待死亡。
 
-这是美国人他一定要意识到的，现在你看到美国这个下边的官员，不管这些执法部门的腐败到了什么程度。腐败、被收买和无知，对共产党的威胁完全没有认识。没有我们新中国联邦没有爆料革命美国人绝对达不到今天这个程度，今天美国人对共产党的威胁和觉醒远远是不够的。
+安省科学咨询统计表成员兼重症监护医生拉维娜·蒙希介绍，几个月以来她们一直预测感染人数将激增。她透露，在最近的一次值班中，她想给一个患者的儿子打电话，却发现这位患者的儿子被送进了街对面的重症监护病房……
 
-This is what Americans must be aware of. Now you see how severe the corruption of the officials in the U.S. government and all kinds of law enforcement agencies has become. Look at their corruption, how they’re being bribed, how ignorant, and how they totally have no idea about the threat of the CCP. If not for our New Federal State of China (NFSC) and Whistleblower Movement, definitely Americans would not reach the level of understanding that they have today. Nevertheless, Americans’ understanding of the threat of the CCP is still far from enough.
+去年，历经生死考验的英雄科学家闫丽梦博士，从香港逃亡到美国，在接受福克斯新闻采访时揭露中共和WHO掩盖病毒真相，指出CCP病毒是至今人类遇到的最厉害的病毒，是因为它在中共军方实验室中完成了功能增强改造，是中共故意释放的超限生物武器。
 
-这次美国经济出了问题、黄金出了问题，共产党的以钱灭美的计划和灭白计划和制造种族对立矛盾的计划和“蓝金黄”的深度逐渐会显现出来。
+CCP病毒的恐怖在于它能够自主变异，所以不能指望“群体免疫”(现在群体免疫已被证明是无效的)，也不会有疫苗能制服它，况且中共的生物武器库中还有数万种不同毒株的病毒，中共随时都有可能把它们释放出来。因此，近一年以前的闫博士就严肃呼吁，只有消灭中共，才能拿到解开病毒基因密码的钥匙，才能一劳永逸地根除中共荼毒人类的祸患，否则，“留给人类的时间已经不多了！”。
 
-This time, the U.S. economy has encountered problems and the gold price has encountered problems. The deep effect of the CCP’s plan to destroy the U.S. with money and its plan to eliminate white people and to create racial conflicts and its BGY plot will gradually become apparent.
-
-然后美国这两万亿美元所谓的基建和一万多亿美元的基建，这三万多亿美元都要从企业家的身上拿出来，企业家会再从这些穷老百姓手里拿回来。但这个过程它是需要时间的，它不是一天两天，它不像共产党一样把马云、马化腾是不是把这些老板全抓了，它做不到的，国家就没了。
-
-And then the so-called $2 trillion infrastructure plan and the additional over $1 trillion in infrastructure, a total of over $3 trillion must be taken from entrepreneurs, and entrepreneurs will take the money from the hands of the deplorables. But this process will need time; not one or two days. It will not be like the CCP robbing all the bosses such as Jack Ma and Ma Huateng. It [the U.S.] cannot be like that, otherwise, the country will be done for.
-
-它要一个时间，在这个时间当中可能美国人就完全失去了世界第一经济强国、第一科技强国、第一军事强国、第一信用之国和信用美元体系全部崩塌。剩下的美国可能是哪儿叫美国，德州德克萨斯叫美国，美塔那、马塔那叫美国，爱荷华州，Idaho 就是黄石公园叫美国，其它都不叫美国，像什么纽约、洛杉矶啊估计都乱了。
-
-It will need some time, but during this process, Americans will likely completely lose the world’s largest economic power, the largest technological power, the largest military power, and the number one creditworthy country, and the credible U.S. dollar system will completely collapse. The rest of the U.S. that may still be called America will be places like Texas, Montana, and Idaho – where the Yellowstone is. And the rest will not be America anymore, such as New York and Los Angeles, where I guess will be totally messed up.
-
-这就是共产党想要的，搞弱、搞乱、搞死美国、蓝金黄、三F方案、蓝金黄方案、灭白计划。这都是共产党是一系列的，从科恩，从IMF世界银行，从所有的，从国会，从情报部门儿，从司法部门，你看那 Higginbotham 那司法部的，就为了遣返郭文贵他能收几百万、几千万美元。
-
-This is exactly what the CCP wants – to weaken, to mess up, and to kill the U.S. (a.k.a., the 3F plan), to employ the BGY plot, and to exterminate the white people. These are a series of plans of the CCP, starting from Khan in the IMF World Bank (Dominique Strauss-Kahn, the former President of IMF), to the Congress, to the intelligence departments, to the Justice Department. You look at (George) Higginbotham in the Department of Justice, who accepted millions, tens of millions of dollars of bribes to just to repatriate me, Miles Guo.
-
-刘特佐，你看刘特佐那什么概念，把马…大家还记得吧，马哈蒂尔上去了把纳吉布干掉了，人家纳吉布又派了个把马哈蒂尔干掉了，马哈蒂尔上来以后现在弄了个西丁外交部长，就是人家纳吉布的人家的亲表兄弟，人家纳吉布的亲表弟又回到北京，在刘特佐的安排下，孟建柱的私生子的安排下，公开在外交部喊：“王毅你是我大哥”，哈哈，共产党这邪恶到啥程度。
-
-Jo Low, you look at Jo Low. People may remember that Mahathir came to power to replace Najib, but Najib sent another one to replace Mahathir. After Mahathir came to power, he hired Hishammuddin (Hishammuddin bin Hussein) as the Minister of Foreign Affairs, who is the cousin of Najib. And this cousin of Najib’s went to Beijing, which was arranged by Jo Low, who is Meng Jianzhu’s illegitimate son, and publicly called Wang Yi in the Ministry of Foreign Affairs, “You are my elder brother.”  Haha, how evil is the CCP!
-
-你再看看阿拉斯加那个会面，大家我最起码我在那个YouTube上我看了三遍了，我认真地看了三遍。每一个字儿、每一句话都是精心的安排。每一个字儿、每一句话都是对美国的羞辱和侮辱。那个阿拉斯加的见面绝对等同于当年撒切尔夫人在北京跌倒那一跤。
-
-Please also look at the meeting in Alaska, everyone. I’ve watched it at least three times on YouTube, very carefully. Every word and every sentence was carefully written. Every word and every sentence is a humiliation and insult to the U.S. The Alaska meeting is absolutely equivalent to the incidence when Margaret Thatcher fell in Beijing years ago.
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=606b0c896e11a756edd89042](https://gtv.org/video/id=606b0c896e11a756edd89042) (1:14:01-1:18:38)
-
-鸣谢：感谢笑笑、YIMING（文鸣）、山川异域提供中文文本于 [https://gnews.org/zh-hans/1060270/](https://gnews.org/zh-hans/1060270/)
+参考链接：
+1.[Ontario hospitals may have to withhold care as COVID-19 fills ICUs](https://www.reuters.com/article/us-health-coronavirus-canada-hospitals-idUSKBN2BZ205)
+2.[U.S. COVID cases march higher, hospitalizations up for second week in a row](https://www.reuters.com/article/us-health-coronavirus-usa-trends-graphic-idUSKBN2BZ2RP)
+3.[重磅！安省政府刚刚宣布：关闭全省学校](https://info.51.ca/news/canada/2021-04/987495.html)
 
 * * *
 
-字幕：【JennyL】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+编辑 发稿 云起时
 
-+1
++2
