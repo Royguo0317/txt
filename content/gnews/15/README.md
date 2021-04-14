@@ -1,39 +1,133 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登信使团抵台当天中共台海军演骤然升级
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1094233/)
+## 【香草诗词汇】致SEC门前抗议的勇士们！
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1094433/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+**作者：纽约香草山美食部 小猪胖胖681**
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/T-11.jpg)channelnewsasia.com
-北京（路透社）报道，北京当局把周三（4月 14 日）在台湾附近的军事演习称为 “实战化演练”。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/logo-5.jpg)
 
-稍早台湾外交部表示，美国政府非官方代表团前参议员克里斯·多德（Christopher Dodd）和前副国务卿理查德·阿米蒂奇（Richard Armitage）和詹姆斯·斯坦伯格（James Steinberg）周三乘坐一架没有标记的私人飞机抵达台湾，一位白宫官员称这是总统对台湾及其民主的承诺的 “个人信号”。他们将于周四会见台湾总统蔡英文，此行使中美关系进一步紧张。
 
-北京当局连续数日派战机和轰炸机入侵台湾防空识别区（ADIZ），并调遣一艘中共国航母南海附近进行军事演习，中共在台海日益频繁的军事行动引起台湾政府的愤怒。
 
-周一（4月 12 日）台湾岛内政府称，包括战斗机和核能力轰炸机在内的 25 架中共国空军飞机，按战时编队进入台湾防空识别区，这是迄今为止最大的一次共军飞机扰台报道。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片78.png)
 
-中共国台办声称，台湾政府和台独人员与 “外部敌对势力” 相互勾结。
+视野里
 
-“在台湾海峡组织的军事实战演练，是为应对当前台海安全形势、维护国家主权的必要行动。” 国台办发言人马晓光说，“解放军的军演和训练行动，就是在传递一个信号，我们遏制台独、台美勾结的决心不是说说而已。”
+一张张青春活力的面孔
 
-中共国此前几乎没有对近来在台湾周边的军事行动作过出公开评论，国防部在 1 月下旬仅称其为 “军事活动”。
+衣衫整洁
 
-台湾总统府发言人表示，美国政府非官方代表团此行 “再次表明台美关系坚如磐石，是美国跨党派支持台湾的充分体现”。
+举手头足的
 
-蔡英文曾多次表示，台湾是一个独立的国家，正式名称叫中华民国。
+优雅风度
 
-马英九说美方官员与蔡英文的会面 “只会加剧台海紧张局势”，至于是以官方访问还是以非官方访问的方式进行，并不重要。
+让西方世界的人
 
-“我们坚决反对美国夸大所谓‘中共国军事威胁’的说法，坚决反对美国打‘台湾牌’，继续向台独势力发出错误信号。” 他还说，台独是死路一条，执政的民进党是想“以武谋独”。
+为之震撼！
 
-参考链接：
+是谁？
 
-[1] [As Biden’s emissaries go to Taiwan, China terms exercises ’combat drills’ – REUTERS – 2021/04/13](https://www.reuters.com/article/us-usa-taiwan-china/china-says-its-taiwan-strait-military-drills-necessary-to-address-security-situation-idUSKBN2C109Y?il=0)
+为我新中国联邦的勇士
 
-[2] [（重发）中国国台办警告美国勿向“台独”发错误信号 解放军实战演练是维护国家主权必要行动 – 路透社 – 2021/04/13](https://www.reuters.com/article/china-pla-drill-taiwan-strait-0414-wedn-idCNKBS2C10AR)
+视频前的我
+
+老泪纵横
+
+这世间
+
+最缺的
+
+就是勇气和正义
+
+这样的
+
+可爱的一群勇士们
+
+来自我
+
+新中国联邦
+
+殊不知
+
+在中共（国）的丑化下
+
+猥琐无耻的欺民贼
+
+污损了
+
+海外中国人的形象
+
+如今
+
+那些
+
+站在SEC门口抗议的勇士们
+
+不顾个人安危
+
+为SEC对GTV投资者的不公
+
+勇敢的抗议着
+
+呐喊着
+
+此举
+
+震撼了西方世界
+
+他们说
+
+历史几十年
+
+从没见过
+
+如此风貌的中国人
+
+为不公
+
+勇敢地站出来
+
+当街抗议！
+
+是的
+
+前方的勇士
+
+用自己的实际行动
+
+告诉
+
+SEC
+
+告诉
+
+和中共勾兑的暗黑实力
+
+铮铮傲骨
+
+扬我新中国联邦人之魂
+
+勇敢正义
+
+乃我新中国联邦之幸事！
+
+新中国联邦人
+
+永不为奴！
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2.jpg)
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

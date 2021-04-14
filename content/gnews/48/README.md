@@ -1,43 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《文贵说》| 图片连载（七十）
-` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/1079478/)
+## 【有声读物】童年的味道（四）
+` MOSRec` [轉載自GNews](https://gnews.org/zh-hans/1093703/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/545.jpg)
-**无我，就是你的牺牲精神。没你不行，但你别把没你不行，等同于你最重要。**
+配音：香草山写作组 公平
 
-**—— 郭文贵先生 2020年8月16日**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/2020-9-16__1.jpg)
-**相对条件下对物质世界的改变，这叫空；当你找清世界之日，解决明白了，那叫悟。**
-
-**—— 郭文贵先生 2020年8月16日**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/2020-9-15__1.jpg)
-**客观地对待自己，客观地看待别人，理性地面对事实，而且不能有畸形的心理，羡慕妒忌恨，贪、嗔、痴、慢、疑。**
-
-**—— 郭文贵先生 2020年8月16日**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/2020-9-16-2__1.jpg)
-**你不要把自己的道德信仰强加于别人，你更不要把自己的利益跟信仰连在一起。**
-
-**—— 郭文贵先生 2020年8月16日**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/2020-9-18__1.jpg)
-**新世界和旧世界！最大的差距就是真和假的差距，善和恶的差距。**
-
-**—— 郭文贵先生 2020年8月16日**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/s22.jpg)
-**我们是人类走向新世界，我们是走在最前边的人，我们已经改变了这个世界，谁也改变不了这个事实。**
-
-**—— 郭文贵先生 2020年8月16日**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/2020-9-19__1.jpg)
-**战友们如果你们，要记住，当你体会到任何一次成功的时候，和你在没干成功之前是完全不一样的。**
-
-**—— 郭文贵先生 2020年8月16日**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-- [***更多精美海报请点击G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4)
+三年自然灾害后期，我依稀记事了。那时的口粮是严格定量的，每人每天只能吃自己的那一份。怎样控制各人的定量呢？记得爷爷有一杆秤，把各人的定量口粮称出来，放在空罐头盒里，大人用大点的盒子，小孩用小点的，然后用一口很大的锅来蒸。那时的米比现在用作健康食品的糙米还要糙，上面有很多麸皮。每天的蔬菜是“飞机包菜”——这名字让我印象深刻。所谓“飞机包菜”，就是因为肥料不足而没有收心，或者说是没法长好的包菜。这种包菜基本上没有菜心，都是老帮叶子，可就是这样的菜都不能保证供应。由于当时食用油也很紧张（凭票供应，每人每月二两），奶奶做菜基本用盐水煮。菜梆子老，加上煮的时间长，出锅的时候其色相可想而知；至于口味，则是难以下咽。
 
+文字版原文：[【言于其食】童年的味道（四）](https://gnews.org/zh-hans/1090942/)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
+发稿：雪梨
 
-+1
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+0

@@ -1,42 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】强迫自白受害者联署敦促欧洲禁播中共国CGTN
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1093644/)
+## 【灭共头条】社媒巨头助中共病毒为虐 无数美国人因舆论垄断丧失生机
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1093726/)
 
-作者：纽约香草山健身部 童谣
+#### 撰稿：Ermat【㊙️翻Gnews原创组】
+责编：萌萌的朋克
+![]()![](https://gnews.org/wp-content/uploads/2021/04/bigtech.jpg)图片来源：socialmediaweek.org
+据自然新闻（Natural News）4月13日报道， 主流媒体和大科技公司对中共病毒早期治疗方案的压制、审查、屏蔽，导致了数十万人无谓的死亡。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
+彼得·麦卡洛（Peter McCullough）博士说，如果推特和脸书等平台能让人们了解锌和绿茶等对病毒的安全有效性，那么美国超过50万例死亡病例中的绝大多数是可以避免的。麦卡洛博士是内科医生和心脏病专家，同时也是德克萨斯农工大学健康科学中心的医学教授。
 
+在疫情初期，他将同行评审论文中的四张幻灯片，整合成了一个视频，该论文发表在世界上最好的医学期刊之一。这段视频在YouTube上 迅速传播，但一周内就因违反 “社区条款 “被撤下。
 
+“难怪我们在德克萨斯州有4.5万人死亡。”麦卡洛博士指出，媒体和政客们都在积极抵制所有关于中共病毒早期治疗的信息。德克萨斯州的普通人认为没有治疗方法！有一些可行的补救措施诸如：羟氯喹（HCQ），锌和表儿茶素，可以帮助防止病情加剧。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片73.png)图片来源：德语新闻中文网
+时代变迁，万物更迭。然而，永远不变的是人性，和人性中那永无止境的贪欲！推特、脸书和You Tube依仗着自身的垄断地位和“230条款”，联手建起了一道“舆论铁幕”，这让它们可以在社交平台上”拉黑”一切不同的声音。而媒体、商业集团在利益上的“深度交织”，以及肆虐的中共病毒，再次让世界进入到无底的黑暗！
 
-据法新社4月11日报导，13名自称“被迫在中国电视上认罪”的受害者敦促欧洲通信卫星公司（Eutelsat）重新考虑是否让中国环球电视网（CGTN）和CCTV4频道上架。
+参考链接：
 
-人权观察组织保护卫士（Safeguard Defenders）公布了一封联名信件，详细列出了中共国一系列迫害人权的行为，包括对这些受害者们逼供，并拒绝给他们接受公平审判的权利。信件内容提到：“要求欧盟国家确定民主社会中的电视供应商是否应该继续在道德上与这些故意扭曲、通过酷刑获得的信息共谋。”
+[Big Tech murdered Americans by censoring safe and effective Covid-19 treatments](https://www.newstarget.com/2021-04-13-big-tech-murdered-americans-censoring-natural-covid-19-treatments.html)
 
-反送中事件后，香港圣城的惨痛经历成为曝光中共体制下摧残人权邪恶本质的第一把灯火，后续新疆维吾尔族集中营再次引发了世界对纳粹中共种族灭绝和反人类罪行的集体愤恨和抵制。在无数受害者长年被中共镇压却被轻易抹去媒体痕迹之后，隐蔽的宣泄窗口彻底打开。一直以来各种被压制的声音也终于开始如雨后春笋般接连爆发。
+（本文仅代表作者个人观点）
 
-保护卫士所揭露的只是中共受害者的冰山一角。正如当前能够站出来的受害者只有十几名，而其他许多受害者都还在监狱中受着酷刑与磨难，甚至有人早已被非法处决。“这些受害者没有办法要求赔偿，唯一能阻止这一切的方法是电视监管机构进行调查并采取措施。”
-
-看到受害者联署信件如此真切又无助，欧盟国家中仍有法国和英国对CGTN的禁播显得犹豫不决，十足受到中共资金利益的巨大牵扯。在香港、维吾尔、被迫在电视上认罪的受害者等正在发生的一系列人权悲剧面前，选择为了金钱向魔鬼妥协的民族最终只能成为共产红魔永远的奴隶。
-
-1. 引用来源 #1 source [德语新闻中文网](https://www.dw.com/zh/%E5%BC%BA%E8%BF%AB%E8%87%AA%E7%99%BD%E5%8F%97%E5%AE%B3%E8%80%85%E8%81%94%E7%BD%B2-%E6%95%A6%E4%BF%83%E6%AC%A7%E6%B4%B2%E7%A6%81%E6%92%AD%E4%B8%AD%E5%9B%BDcgtn/a-57163993)
-
-
-校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpg)
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-0
++1
