@@ -1,15 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月14日 文贵先生盖特 7
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1094686/)
+## 人权组织敦促抵制中共“种族灭绝奥运会”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1094742/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+俄罗斯莫斯科喀秋莎农场    银河
 
-4月14日：凡帝岗．世界宗教中心的真正的沼泽的主人之一．宗教界的王岐山．凡帝岗与中共交易的推动者PIETRO……出大事啦……跟着共产党走进火葬场！ [https://www.washingtontimes.com/news/2021/apr/13/is-dr-fauci-the-father-of-the-pandemic/](https://www.washingtontimes.com/news/2021/apr/13/is-dr-fauci-the-father-of-the-pandemic/)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1e3d7193fd9fb3e720c9dc12e68f3a7f.jpg)
-[【2021年4月14日】文贵先生盖特原文](https://gtv.org/getter/60772dbf51632a0de7b935be)
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/O-5.jpg)fltimes.com
+布赖特巴特新闻(Breitbart News)4月14日报道，妇女权利无国界组织敦促奥委会将2022年冬季奥运会移出中共，否则将面临抵制这届“种族灭绝运动会”的风险。
 
-**喜联盟Gnews编辑部**
+妇女权利无国界组织准备了一封致美国奥林匹克委员会(USOC)的公开信，并向国际奥林匹克委员会(IOC)提交了一份副本，抗议目前选择的2022年冬奥会的举办地。
+
+妇女权利无国界组织总统的雷吉·利特约翰(Reggie Littlejohn)控诉中共除了正在进行的对维吾尔人的种族灭绝，中共还有许多“其他人权暴行，如宗教迫害，强迫堕胎和绝育，强迫器官摘取，强迫劳动和大规模监视。”
+
+利特约翰说，中国共产党还“拘留持不同政见者和揭发者、无与伦比的环境掠夺和中共病毒在世界上的释放”，使其成为世界上最严重的侵犯人权者之一。
+
+在信中，人权组织提醒美国奥委会和国际奥委会“对1948年《防止及惩治种族灭绝公约》所作的宪章承诺和国际义务”。
+
+这封信提醒奥林匹克当局，1936年在德国柏林举行的奥运会“被证明是阿道夫·希特勒的第三帝国一笔巨大的宣传意外之财，为其提供了毫无根据的国际声望、合法性和信誉。”这些好处为“纳粹政权随后对600万犹太人实施的种族灭绝大屠杀以及希特勒在世界大战期间促成的骇人听闻的反人类罪行提供了一个烟幕”。今天，“我们正面临着另一个极权主义政权积极参与的另一场种族灭绝，这是反人类罪行之一。”然而，奥运当局正准备让中共“获得并利用一笔宣传巨款，让纳粹享受的东西相形见绌。”
+
+公开信最后呼吁“国际社会紧急努力，将2022年冬奥会转移到另一个地点”，为“种族灭绝奥运会”提供一个“自由奥运会”的选择。声明称：“如果做不到这一点，请注意，我们将竭尽全力抵制奥运会。”
+
+参考链接：
+
+[https://www.breitbart.com/national-security/2021/04/14/human-rights-groups-prepare-boycott-of-chinas-olympic-genocide-games/](https://www.breitbart.com/national-security/2021/04/14/human-rights-groups-prepare-boycott-of-chinas-olympic-genocide-games/)
 
 0
