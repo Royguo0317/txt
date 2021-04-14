@@ -1,55 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 光影传镜：贵族精神
-` 喜马拉雅光影传镜` [轉載自GNews](https://gnews.org/zh-hans/1091086/)
+## 俄称在乌克兰附近集结军队是对北约的回应
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1091615/)
 
-编辑：喜马拉雅光影传镜
+俄罗斯莫斯科喀秋莎农场   银河
 
-在一些人的意识中，有钱人和贵族是一样的，没有区别。但实际上，这是两回事。贵族的是代表尊严和品行，富有的是物质，珍贵的是精神。高尚的精神意味着这个人必须自律，克己，奉献和为国家服务，这样才会受到别人的爱戴。
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/UK.jpg)top-news.online
+美联社报道，俄罗斯国防部长周二表示，该国在西部的大规模军事集结是预备演习的一部分，此次演习是对美国及其北约盟国在俄罗斯边境附近加强军力的持续努力的回应。这次演习让邻国乌克兰感到担忧，并引起北约的警告。
 
-1944 会换汽车火星塞的英国公主伊丽莎白
+俄罗斯国防部长谢尔盖·绍伊古 (Sergey Shoygu)说，过去三周，俄罗斯军方在西部地区部署了两支军队和三个空降编队，“作为对北约威胁俄罗斯的军事活动的回应。”他说，“军队已经显示出充分准备完成确保国家安全的任务。”
 
-在二战期间担任卡车机械师。
+美国及其盟友对俄罗斯军队集中在乌克兰边境地区以及乌克兰东部违反停火协议的行为发出警告。自莫斯科2014年合并乌克兰的克里米亚半岛以来，乌克兰东部的分离主义分子和乌克兰军队一直处于冲突之中。
 
-From: Harper’s BAZAAR US
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-14-82.jpg)
-1945 学会驾驭卡车的英国公主
+乌克兰东部的战斗已经造成超过1万4千人死亡，通过谈判达成政治解决方案的努力陷入停滞。北约秘书长周二称俄罗斯最近在乌克兰边境的部署是2014年以来最大规模的军队集中。拜登总统星期二在与俄罗斯总统普京通话时对俄罗斯的军事集结表示关切，并“呼吁俄罗斯缓和紧张局势”。
 
-照片中的伊丽莎白穿上女子辅助服务团的制服，在团队中担任工程师与卡车司机。
+在最近的紧张局势中，美国两艘美国军舰将于4月14日和15日驶往黑海，并在那里停留到5月4日和5日。过去几年，美国海军舰艇定期访问黑海，这令莫斯科感到不安。
 
-From: Harper’s BAZAAR US
-![]()![](https://gnews.org/wp-content/uploads/2021/04/2-30.jpg)
-伊丽莎白女王登基
+俄罗斯副外长谢尔盖·里亚布科夫 (Sergei Ryabkov)谴责这一最新部署是“公然挑衅”，并补充说，“我们警告美国，为了他们自己的利益，应该远离克里米亚和我们的黑海海岸。”
 
-From: Harper’s BAZAAR US
-![]()![](https://gnews.org/wp-content/uploads/2021/04/女王登基.jpg)
-1986年10月伊莉萨白女王访华时与菲利普亲王登长城
-![]()![](https://gnews.org/wp-content/uploads/2021/04/115596810_tv032280109-1.jpg)
-伊莉萨白二世女王1965年出访西德，是半个世纪以来首次到访德国的英国君主
-![]()![](https://gnews.org/wp-content/uploads/2021/04/115596544_15aa8220-1067-4140-b266-0fdb95848bb4.jpg)
-刚去世的菲利浦亲王在二战中曾是一名海军军官
-![]()![](https://gnews.org/wp-content/uploads/2021/04/菲利普亲王.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1000.jpg)
-在阿富汗服役中的哈里王子
+里亚布科夫重申，“如果局势升级，我们将尽一切努力确保我们自己的安全和公民的安全，无论他们在什么时候。”他还说，“基辅及其西方管理人员将为这种假想升级的后果承担全部责任。”
 
+参考链接：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/阿富汗.jpg)
-服役中的哈里王子
-![]()![](https://gnews.org/wp-content/uploads/2021/04/哈里王子在阿富汗.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/srchttp___cimg2.163.com_catchimg_20100510_7ULKFS8A_0.jpgreferhttp___cimg2.163.jpg)
-* * *
-
-中国有大量的富豪和官员家族团体，而“贵族”这两字蕴含的荣誉感和责任感和他们完全无关。表面上做出的“社会贡献”也只是捞取利益或者用来炫耀。
-
-国内的豪车游行
-![]()![](https://gnews.org/wp-content/uploads/2021/04/6a00d8341c630a53ef017744b2b62b970d-600wi.jpg)
-国外的豪车游行
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06d8d898-c2c5-11e9-ad8c-27551fb90b05_image_hires_180943.jpg)
-多伦多留学生豪车游行
-![]()![](https://gnews.org/wp-content/uploads/2021/04/多伦多中国留学生豪车游行.jpg)
-**\*栏目长期征集战友原创摄影作品；原创绘画作品；原创精彩视频作品。**
-
-审核：玫瑰天空
-
-发布：喜马拉雅摄影师
+[https://apnews.com/article/ukraine-moscow-russia-sergei-shoigu-united-states-9e23a53ca4db61dab2fbf7897d60b1be](https://apnews.com/article/ukraine-moscow-russia-sergei-shoigu-united-states-9e23a53ca4db61dab2fbf7897d60b1be)
 
 0
