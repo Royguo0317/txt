@@ -1,120 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国对阿里巴巴集团在境内网络零售市场滥用市场支配地位处以超过27.5亿美元罚款
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1092068/)
+## 【世事解评】以假治国 — — 中共街面房改造的“城市包皮工程”
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1092020/)
 
-[https://gtv.org/getter/60748247dbc8001854a7fd14](https://gtv.org/getter/60748247dbc8001854a7fd14)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/7C5F72CB-636A-4E7D-B0FB-9EFAEF9A2CF2.jpeg)
-内容：
+![]()![](https://gnews.org/wp-content/uploads/2021/04/LOGO3_1-1.jpg)
 
-来自路透社(Reuters) 2021年4月10日的推特
+作者：香草山写作组 文帝
 
-China slapped a record 2.75 billion fine on Alibaba after an anti-monopoly probe found the e-commerce gains abused its dominant market position for several years
+改造没几年的“包皮墙”正在崩塌之中, 先不论其中安全问题，就看看这以假治国的样子。养肥了多少官员，增加了多少GDP。敢问“擀面杖子”还能再假一点吗？
+![]()![](https://cdn.discordapp.com/attachments/821317843764641814/831772818126536724/unknown.png)
+图1：某城市主干道连接一环与二环的主路实拍
+![]()![](https://cdn.discordapp.com/attachments/821317843764641814/831772851034914856/unknown.png)![]()![](https://cdn.discordapp.com/attachments/821317843764641814/831772876507185192/unknown.png)
+图2与3：某城市主干道连接一环与二环的主路实拍
+![]()![](https://cdn.discordapp.com/attachments/821317843764641814/831772902751338516/unknown.png)![]()![](https://cdn.discordapp.com/attachments/821317843764641814/831772918249160744/unknown.png)
+图4与5：某城市一环内主干道实拍（此处刚完工2年）
 
-中共国对阿里巴巴集团控股有限公司在中国境内网络零售平台服务市场滥用市场支配地位处以超过27.5亿美元罚款
+当然，为了个人的荷包与GDP的增速，这样迅速垮塌和废弃的工程，自然可以满足创造经济的需要。此起彼伏的“包皮工程”在城市已经是大热门。
+![]()![](https://cdn.discordapp.com/attachments/821317843764641814/831772951731765308/unknown.png)![]()![](https://cdn.discordapp.com/attachments/821317843764641814/831772970124967966/unknown.png)
+图6与7：某地在建包皮工程实拍。
+![]()![](https://cdn.discordapp.com/attachments/821317843764641814/831772976743579668/unknown.png)
+图8：一环路边已经完工的包皮工程。
 
-Chinese regulators have slapped a 2.75 billion fine on Alibaba
+当“假”已经蔓延到生活的各个角落，你也许觉得没什么，反正这样也更加美观。试想一下，这样的“包皮”工程随时会有意外掉落“墙皮”，这难道不可怕吗？
 
-中共国的监管机构已对阿里巴巴处以27.5亿美元的罚款
+所有人每天都暴露在一个看似繁华，实则危机丛生的环境中。谁会安全？当“假”被奉为治国之策，那谁还能真正脚踏实地创造价值？在这种氛围下生活的每个人，都如这些“包皮工程”一样，看似富有，实则没有一个真实的东西——这真是像极了“中共国”的现状。这也像极了“被中共洗脑的人们”，拥有数套房产和车，实际贷款缠身困守其中。
 
-The e-commerce group founded by Jack Ma
+最后一个末世荒诞建筑——灵房，献祭给这虚假的时代。以“假”还“假”。
+![]()![](https://cdn.discordapp.com/attachments/821317843764641814/831772998121160744/unknown.png)
+图9：网红地点一代表建筑(建筑颜色：紫色)。
 
-马云成立的该电子商务集团
+编辑/审核/发稿： 浪迹天涯
 
-is accused of violating anti-monopoly rules
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-被指控违反反垄断规则
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-And abusing its dominant market position of particular concern was a practice
-
-在中国境内网络零售平台服务市场滥用市场支配地位
-
-where Alibaba is alleged to have forbidden merchants
-
-据称阿里巴巴禁止其商家
-
-from listing on other e-commerce platforms
-
-在其他电子商务平台上市交易
-
-The fine which is equivalent to around four percent of Alibaba’s revenues in 2019,
-
-罚款相当于阿里巴巴2019年收益的约4％，
-
-is the highest ever anti-trust penalty to be imposed in China
-
-是中共国有史以来最高的反垄断处罚
-
-It comes amid an unprecedented regulatory crackdown
-
-发生在前所未有的监管镇压之际
-
-on the country’s homegrown technology conglomerates
-
-在该国本土的技术企业集团中
-
-Ma’s business empire has faced particular scrutiny
-
-马云的商业帝国面临着特别的审查
-
-after he criticized China’s regulatory system back in October
-
-在他十月份批评中共国的监管体系之后
-
-A month later authorities halted a planned 37 billion IPO from Ant Group –
-
-一个月后，有关部门叫停了蚂蚁集团—阿里巴巴的互联网金融部门
-
-Alibaba’s internet finance arm
-
-计划进行的370亿美元的首次公开募股
-
-Then came the launch of the anti-trust probe into Alibaba in late December
-
-然后在12月下旬对阿里巴巴发起反垄断调查
-
-In a statement the Chinese company said
-
-阿里巴巴在一份声明中说
-
-it accepted the regulator’s decision
-
-它接受了监管机构的决定
-
-and would implement the ruling
-
-并将执行该裁定
-
-it added that it wold work to improve corporate compliance
-
-它补充说，这将有助于提高公司的合规性
-
-Beijing has vowed to strengthen oversight of its big tech firms
-
-中共北京发誓要加强对那些跻身在世界上最大
-
-which rank among the world’s largest and most valuable
-
-最有价值的行列的大型科技公司的监督
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接: https://twitter.com/reuters/status/1380873197734617096?s=24
-
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 -Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-
-
-
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

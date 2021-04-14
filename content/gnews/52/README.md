@@ -1,11 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10/21/2020 Richard Urso博士解释禁用羟氯喹的原因
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1091739/)
+## 中共国真正想要的是台湾的芯片
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1086335/)
 
-长期服用羟氯喹的效果如同打了疫苗，羟氯喹不但能抵御流感病毒、中共病毒和其他冠状病毒，而且能摧垮整个医药行业。
+4/10/2021 台湾的芯片在军、民两个领域都具有巨大的应用。中共国需要这些芯片装备其所有先进的武器。美国也需要那些芯片。中共国并不关心2400万台湾人。他们想要是芯片。
 
-By: 【秘密翻译组G-Translators】
+By： 【秘密翻译组 G-Translators】
+
+
 
 0
