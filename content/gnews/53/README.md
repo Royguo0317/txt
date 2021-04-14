@@ -1,101 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】路德4月13日晚要点速览: 热议！CNN首席医疗记者Gupta转向支持闫博士立场
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1091298/)
+## 美代表团抵达前，中共国在台湾附近举行 &#8220;作战演习&#8221;
+` Víctor Torres` [轉載自GNews](https://gnews.org/zh-hans/1093990/)
 
-作者：香草山翻译部 GBW/文明世界
+编译：Victor Torres
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot_20210414-093614_Gallery.jpg)
 
+据零对冲4月14日报道，中共国周三在台湾附近举行了挑衅性的新军事演习，并称其为 “作战演习”。这些演习被认为是在传递一种特别 “威胁 “的信息，因为它们是在美国前高级官员率领的美国代表团抵达台北前几个小时举行的。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+这次演习似乎是北京对拜登支持民主的台湾岛的 “个人信号 “的 “反信号”，也是在白宫公布新的指导方针后的短短几天，该指导方针大大放宽了之前对美国官员与台湾同行会面的长期限制。
 
+“美国总统拜登周三派出了一个由前高级官员组成的非官方代表团前往台湾，以示对这个中共国声称属于它的民主岛屿的支持，”半岛电视台报道。
 
+该代表团被称为拜登赴台的 “非官方代表团”，由前参议员克里斯·多德(Chris Dodd)、前副州务卿理查德·阿米蒂奇（Richard Armitage）和前美国副国务卿詹姆斯·斯坦伯格(James Steinberg)率领。
 
-**CNN首席医疗记者古普塔（Dr. Sanjay Gupta）博士之前做节目专门反对闫博士报告结论，现在非常坚定完全支持闫博士报告结论意味着什么？**
+“选择这三个人–他们是台湾的长期朋友，并且与拜登总统个人关系密切的高级政治家–发出了一个关于美国对台湾及其民主的承诺的重要信号，”美国的一份声明说。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/58-1.jpg)路德时评截图
+解放军的作战演习是在中共国空军派出”史上最大规模 “25架军机入侵台湾领空的后一天举行的。
 
-1. CNN的古普塔（Dr. Sanjay Gupta）博士表示支持前疾控中心主任Robert Redfield博士的观点，即导致COVID-19的病毒很可能从武汉的实验室意外逃逸，该理论符合奥卡姆剃刀（Occam’s razor principle）原理。
+中共国台办声称，台湾政府和所谓的 “分裂分子 “正在 “与外部势力勾结”，试图破坏和平与稳定。
 
-- 奥卡姆剃刀原理表明，最简单的解释——即需要最少假设的解决方案——是最可取的。
+“人民解放军在台湾海峡组织实战演习，是应对台海安全形势、维护国家主权的必要行动，”发言人马晓光说。
 
+鉴于中共国刚刚似乎大大提升了其在台湾岛周围的威胁程度，现在很可能是美国海军进行军舰 “航行自由 “航行穿越台湾海峡的一个不太理想的时机，然而，这样的事情很可能会在未来几周内发生，因为华盛顿会觉得有必要 “回应 “北京不断增长加紧的态势。
 
-a. 古普塔（Gupta）博士是CNN的台柱
+新闻来源:
 
-- 他是神经外科医生，曾多次获得艾美奖，为他赢得CNN首席医疗记者的席位。
-
-
-b. CNN已经打开大门放出不同的声音
-
-- 让民主党人了解病毒的真正来源。
-
-
-c. 过去，CNN称“实验室起源”是阴谋论。
-
-- 古普塔Gupta承认，他过去不接受实验室起源，是因为共和党在推广这一理论。
-
-
-d. 路德：“头牌主播Gupta反CNN”纯属CNN的巧妙炒作
-
-- CNN如果不支持古普塔Gupta就不会播他的节目了。
-
-
-e. 纳瓦罗和班农对CNN的实验室来源报道表示欢迎。
-
-纳瓦罗恭喜古普塔博士破格唱反调，提醒CNN大选已经结束，该回来讲讲真相了。并指出，病毒有99.9％的可能性来自武汉实验室——由Fauci资助！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/59-3.jpg)
-
-f. 路德透露：闫博士以后也会出现在左派媒体上。
-
-- 会让所有美国人知道闫博士。
-
-
-g. 路德：最终，美国人将了解
-
-- 119：2020年1月19日，路德节目爆料COVID-19新冠
-
-
-- 128：2020年1月28日，特朗普发布旅行禁令背后的原因。
-
-
-- 香港：是香港民运唤醒闫博士。
-
-
-- 3F计划：2017年文贵先生警告中共的3F计划要摧毁美国。
-
-
-2. 王毅：口出恶言， 羞辱布林肯国务卿
-
-- 布林肯将成为第二个蓬佩奥
-- 最差的国务卿
-- 两人之间的差距就是几磅肥肉
-
-
-信息来源：
-[4/13/2021 路德时评（路博冠谈）：CNN著名主播古普塔博士之前做节目专门反对闫博士报告结论，现在非常坚定完全支持闫博士报告结论意味着什么？](https://www.youtube.com/watch?v=IUDmDfpbuOs)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑： 文明世界
-
-校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
+[https://www.zerohedge.com/geopolitical/china-holds-rare-combat-drills-near-taiwan-ahead-us-delegations-arrival](https://www.zerohedge.com/geopolitical/china-holds-rare-combat-drills-near-taiwan-ahead-us-delegations-arrival)
 
 0

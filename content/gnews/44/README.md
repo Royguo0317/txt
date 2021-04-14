@@ -1,43 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【信仰之声】新巴别塔——Transhumanism
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1094135/)
+## 2021年4月14日 文贵先生盖特 4
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1094142/)
 
-作者：纽约香草山福音部  JingleChenge
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
-
-
-
-生物科技和计算机技术正在给我们的时代带来天翻地覆的变化。Gene Editing、Gene Slicing 等基因技术的应用越来越普遍了，连 COVID19 Vaccine 都用了这样的技术。这些技术正与日新月异的计算机芯片、Machine Learning、AI、Robot 结合，广泛地应用于医药、医疗、诊断、保健等所涉及的方方面面，在造福人群的同时，也带来了许多隐患。
-
-你可能会说，医治疾病有什么不好，提高生活质量有什么不好，延长年日有什么不好？是的，如果仅至于此，很好。但在其背后支持的财团、菁英，和 Tech Oligarchs 们，当真是这么想的吗？我们知道他们以此为幌子，所寻求的却是他们自己的长生不老吗？ 在他们正在建立的 technoutopian 城和塔里，他们会像种植蔬菜一样用自己的DNA种植心脏、肝脏、肾脏等人体器官，方便自己随时更换；会用自己的DNA种植一个人，当自己年老体衰时把自己的记忆、思想、学识移植到这个人身上，从而让自己继续活着，一直年轻又健康地活着；会将 computer chips 插入人脑，使人可以瞬间获得任何知识，造出无所不能的新人种——超人；甚至会把人的记忆下载、上传到云端，从此活在计算机里，永远不死，成为神。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片76.png)
-
-日光之下无新事，现今的事过去早已有了。人有权有势有钱之后，就会舍不下，怕死，心中又没有永生的盼望与确据，自然就会想方设法延长年日，以期永远活着，正如中国历史上的帝王们一样。 知道了这些菁英和 Tech Oligarchs 们的终极目标，就容易理解现在发生的各种乱象，包括打压保守派、控制言论、迫害基督徒、cancel culture了。他们正在掀起、利用这些乱象，一步一步引人远离、背叛宇宙万物的创造者，期望能最终登上这新巴别塔的Transhuman 塔顶 ，成为一个新兴人种，永远活着，如神一般。
-
-我们每个人的数据，每个程序员写的代码，上传的每一张照片、打的每一个电话、点的每一个赞、发的每一个帖就是他们所用的砖。 正像第一座巴别塔倒了，历代帝王们也都死了，这第二座新巴别塔也不可能建成。而且这次上帝都不必下来看，就坐在天上发笑，嗤笑他们；在怒中责备他们，在烈怒中惊吓他们（诗篇2:4,5）。凡是想通天的、如神一样的、甚至成为神的，都必跌得前仰后翻，鼻青脸肿。
-
-从亚当、夏娃开始的人类历史已经告诉了我们答案， “按着定命，人人都有一死”(希伯来书9:27)。耶稣才是道路、真理、生命、永生。若不借着祂，没有人能到天父那里去( 约翰福音14:6)。 耶稣基督的信徒们却能因信与天父连接，在基督里成为新造的人，一个真正的新兴人种，有真理的仁义和圣洁，生命和记忆联入永恒，不再有死亡的恐惧和担忧，是已经出死入生了。信徒们从相信的那一刻起就藉着耶稣基督这座天梯通了天，天城就以每位信徒的生命为砖造在他们中间。
-
-朋友们，你愿意成为这样的 New Human Kind 新兴人种吗？借助”信”这一高科技，一步登天，就在今日。
-
-校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2.jpg)
+班农战斗室：功能增强设计是为了让科学家可以确切了解病毒的致病机理，对病毒爆发进行早期预警和准备，但它非常适合用于生化战 Bannon’s War Room: Gain of functions were designed so scientists could understand exactly how the viruses cause disease and have early warning and get ready for an outbreak. But it’s perfect for biological warfare.
 
 
 
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+[【2021年4月14日】文贵先生盖特原文](https://gtv.org/getter/6076fc1351632a0de7b8fd2e)
 
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+**喜联盟Gnews编辑部**
 
 0
