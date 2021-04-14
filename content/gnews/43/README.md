@@ -1,23 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【百姓小妍】因北斗掉线自杀司机头七刚过 广东又现卡友割腕证清白!
-` 小妍说` [轉載自GNews](https://gnews.org/zh-hans/1091913/)
+## 【每日快讯】04/13/2021：Dr.LawrenceSellin发推挖出港大实验室团队是CCP病毒改造的真正研究核心所在
+` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1092214/)
 
-作者：[小妍说](https://gnews.org/zh-hans/?s=%E5%B0%8F%E5%A6%8D%E8%AF%B4)  旧金山金喜农场
+**Cantonese工作室**
 
-山东货车司机赵师傅驾驶的车辆在满水满油的情况下装货时称重为49.89吨，沿途经过山东、江苏、安徽、江西、广东，均未显示超顿（按照交通运输部与公安部办公厅《关于规范治理超限超载专项行动有关执法工作的通知》“超过规定限载标准1吨以内的,予以警告后放行”。)车辆行至广东清远超限站时称重为50.24吨，面临罚款500元记分3分，还要卸货耽误到次日，货物迟到要承担违约金。赵师傅再三要求复磅无果后,在交通执法大厅内采取过激行为—割腕，事后在该超限站复磅结果为49.96吨。
 
-【免责声明】尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-**欢迎战友加入旧金山金喜准农场**
 
-[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
 
-[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
+**播报：【文依】 资料整理： 【 文依 】【专业家庭煮妇】海报制作：【米线】视频制作: 【 文德】 推流：【 星星】发布：【 向阳6768】**
 
-[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
+摘要：
 
-[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
-
+1
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image1-1.png)
+2
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image2.png)
+3
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image3.png)![]()![](https://gnews.org/wp-content/uploads/2021/04/0-3.jpg)
 0
