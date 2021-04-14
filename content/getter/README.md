@@ -17,6 +17,11 @@
 **郭文贵MILES** `2021-02-21T15:56:09`
 ##
 
+[4月14号：尊敬的战友们好……本来准备马上开始的直播，由于突发事件．有重要的灭共战略伙伴要开会，所以直播推迟到明天上午．9:30开始！非常非常的抱歉， 应很多战...](/content/getter/content/2021/04/6076ed6651632a0de7b8eb07.md)
+
+**郭文贵MILES** `2021-04-14T13:25:58`
+##
+
 [史蒂芬·哈特菲尔博士：因为抹黑羟氯喹，福奇以及美国食品药品管理局的伍德科克要为数十万死去的美国人负责  Dr. Steven Hatfill: Fauci, F...](/content/getter/content/2021/04/60764f5ddbc8001854a85a9b.md)
 
 **郭文贵MILES** `2021-04-14T02:11:41`
@@ -155,10 +160,5 @@
 [国务卿布林肯：这是一个关键时刻，美国将直面挑战！  Secretary of State Blinken: This is a pivotal moment, ...](/content/getter/content/2021/04/606d9d5bdbc8001854a63299.md)
 
 **郭文贵MILES** `2021-04-07T11:54:03`
-##
-
-[文贵的警告再次应验：苏伊士运河或霍尔木兹海峡迟早会再出事  Miles Guo’s warning came true again: A matter of t...](/content/getter/content/2021/04/606d7f5fdbc8001854a62dd5.md)
-
-**郭文贵MILES** `2021-04-07T09:46:07`
 ##
 
