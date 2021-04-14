@@ -1,39 +1,120 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【聚焦】毒王裴伟士和管轶获得2021年“小诺贝尔奖”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1091748/)
+## 中共国对阿里巴巴集团在境内网络零售市场滥用市场支配地位处以超过27.5亿美元罚款
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1092068/)
 
-#### 作者： 翼族/文纸鹤
+[https://gtv.org/getter/60748247dbc8001854a7fd14](https://gtv.org/getter/60748247dbc8001854a7fd14)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/7C5F72CB-636A-4E7D-B0FB-9EFAEF9A2CF2.jpeg)
+内容：
 
-#### 编辑：翼族
-![]()![](https://gnews.org/wp-content/uploads/2021/04/321-1.png)
-图片来源：汕头大学网站
+来自路透社(Reuters) 2021年4月10日的推特
 
-根据汕头大学网站4月7日的报道[【1】](https://www.stu.edu.cn/info/1085/7106.htm)：
+China slapped a record 2.75 billion fine on Alibaba after an anti-monopoly probe found the e-commerce gains abused its dominant market position for several years
 
-**汕头大学****·****香港大学联合病毒学研究所所长、粤港新发传染病联合实验室主任管轶教授荣获****2021****年度约翰****‧****狄克斯加拿大盖尔德纳全球卫生奖（****John Dirks Canada Gairdner Global Health Award****）。**
+中共国对阿里巴巴集团控股有限公司在中国境内网络零售平台服务市场滥用市场支配地位处以超过27.5亿美元罚款
 
-**约翰****‧****狄克斯加拿大盖尔德纳全球卫生奖由加拿大盖尔德纳基金会颁发。****2021****年度约翰****‧****狄克斯加拿大盖尔德纳全球卫生奖由管轶教授与他在香港大学的同事裴伟士教授（****Joseph Sriyal Malik Peiris****）共同分享，以表彰他们在深入了解亚洲各地新发传染病尤其是人畜流感及严重急性呼吸系统综合症（****SARS****）、中东呼吸系统综合症（****MERS****），揭示其爆发源头，提出疫情防控措施和策略等方面的重大贡献。**
+Chinese regulators have slapped a 2.75 billion fine on Alibaba
 
-**约翰****‧****狄克斯加拿大盖尔德纳全球卫生奖自****2009****年设立以来，全球共有****16****人获得此项殊荣。其中包括****2014****年的获奖者大村智（****Satoshiōmura****）和****2016****年的获奖者安东尼****·****福奇（****Anthony Fauci****）。大村智长期从事微生物活性物质研究，****2015****年获得诺贝尔生理学或医学奖。其研究发现的****avermectin****（阿维菌素）被誉为****20****世纪自青霉素发现以来对人类最重大的贡献之一。**
+中共国的监管机构已对阿里巴巴处以27.5亿美元的罚款
 
-**管轶教授于2000年在汕头大学创建实验室，先后建立了汕头大学医学院/香港大学医学院联合流感研究中心（2001）、汕头大学医学院国际感染与免疫研究所（2007）、汕头大学•香港大学联合病毒学研究所（2016）、教育部病毒学与新发传染病国际合作联合实验室（2016）与粤港新发传染病联合实验室（2019），并担任负责人。2012年底实验室入选广东省“感染病与分子免疫病理”重点实验室，2013年初成为省国际科技合作基地。2020年，在广东省和汕头市人民政府的大力支持和促进下，实验室被纳入广东省生物安全实验室建设体系，并于2021年1月经国家发改委批复纳入国家建设规划。**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/222-1.png)
-图片来源：汕头大学网站
+The e-commerce group founded by Jack Ma
 
-长期关注病毒真相并跟随爆料革命的朋友，都知道裴伟士（Malik Peiris）这位在病毒生物学界泰斗级的人物、院士、病毒学家，一个本应为人类福祉而工作的科学家，实际上却是中共的帮凶，一个制造了病毒的大魔头。2021年这个所谓的“全球卫生奖”由管轶和裴伟士共同获得，以表彰他们对揭示病毒爆发源头和提出疫情防控措施及策略有重大贡献，这个世界也真够滑稽的！
+马云成立的该电子商务集团
 
-盖尔德纳基金会成立于1957年，由多伦多证券经纪人詹姆斯‧盖尔德纳（James Gairdner）创建，旨在奖励研究发现对科学进步和人类健康产生重要影响的科学家。自1959年颁发首届盖尔德纳奖起，已有395名科学家获得该奖项，其中有95人继而获颁了诺贝尔奖，因此盖尔德纳也因此被誉为诺贝尔奖的预备奖或“小诺贝尔奖”。耐人寻味的是2016年的获奖者——安东尼·福奇（Anthony Fauci），福奇作为美国国家过敏和传染病研究所的所长，不但资助了中共武汉病毒研究所的病毒功能增强研究，而且还对这次中共病毒在美国造成的重大伤亡负有不可推卸的责任。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/231.png)
-图片来源：汕头大学网站
+is accused of violating anti-monopoly rules
 
-而此次获奖的管轶教授，在汕头大学网站上的履历也十分华丽，他先后担任重大专项《SARS病毒动物宿主研究》的首席科学家，主持WHO和NIH的“全球大流感的预备”项目，负责国家重点研发计划“病毒性新发传染病的研究与防治”及“MERS冠状病毒的动物起源进化及传播研究”、以及新型冠状病毒科技攻关等多项流感、新发传染性疾病防控重大课题项目。如果没有爆料革命，相信绝大多数被蒙蔽的民众都会为这些“科学家”的学识和勇气所倾倒，但是实际上这些科学界的败类只不过是为中共卖命的凶手而已。
+被指控违反反垄断规则
 
-来自于香港大学实验室的闫丽梦博士，通过119《路德社》节目的爆料已经拯救了无数人的生命。闫博士直指中共病毒就是舟山蝙蝠病毒改造而来的生物武器，她使用自己的专业知识，结合在裴伟士电脑中看到的病毒研究信息和其它方面获得的情报，已发布了三份关于中共病毒的严谨的科学报告，至今无人能够辩驳。而黔驴技穷的中共只有通过污蔑抹黑威胁闫博士来为自己脱罪。
+And abusing its dominant market position of particular concern was a practice
 
-另一方面，中共为了洗脱罪名，深度蓝金黄西方的科学界和学术界，比如找皮特·达扎克这种科学败类来为自己站台。加拿大的盖尔德纳基金会给裴伟士和管轶颁奖的荒唐举动，相信也是中共使用的一种障眼法。然而中共病毒的真相只有一个，病毒是来自于中共实验室的生化武器，随着证据越来越多的揭示，以及舆论的导向，全世界人们向中共追责的那一刻并不遥远，中共的灭亡指日可待。
+在中国境内网络零售平台服务市场滥用市场支配地位
 
-（文章内容仅代表作者观点）
+where Alibaba is alleged to have forbidden merchants
+
+据称阿里巴巴禁止其商家
+
+from listing on other e-commerce platforms
+
+在其他电子商务平台上市交易
+
+The fine which is equivalent to around four percent of Alibaba’s revenues in 2019,
+
+罚款相当于阿里巴巴2019年收益的约4％，
+
+is the highest ever anti-trust penalty to be imposed in China
+
+是中共国有史以来最高的反垄断处罚
+
+It comes amid an unprecedented regulatory crackdown
+
+发生在前所未有的监管镇压之际
+
+on the country’s homegrown technology conglomerates
+
+在该国本土的技术企业集团中
+
+Ma’s business empire has faced particular scrutiny
+
+马云的商业帝国面临着特别的审查
+
+after he criticized China’s regulatory system back in October
+
+在他十月份批评中共国的监管体系之后
+
+A month later authorities halted a planned 37 billion IPO from Ant Group –
+
+一个月后，有关部门叫停了蚂蚁集团—阿里巴巴的互联网金融部门
+
+Alibaba’s internet finance arm
+
+计划进行的370亿美元的首次公开募股
+
+Then came the launch of the anti-trust probe into Alibaba in late December
+
+然后在12月下旬对阿里巴巴发起反垄断调查
+
+In a statement the Chinese company said
+
+阿里巴巴在一份声明中说
+
+it accepted the regulator’s decision
+
+它接受了监管机构的决定
+
+and would implement the ruling
+
+并将执行该裁定
+
+it added that it wold work to improve corporate compliance
+
+它补充说，这将有助于提高公司的合规性
+
+Beijing has vowed to strengthen oversight of its big tech firms
+
+中共北京发誓要加强对那些跻身在世界上最大
+
+which rank among the world’s largest and most valuable
+
+最有价值的行列的大型科技公司的监督
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接: https://twitter.com/reuters/status/1380873197734617096?s=24
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 -Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+
+
 
 0

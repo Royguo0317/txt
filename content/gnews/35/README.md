@@ -1,29 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄称在乌克兰附近集结军队是对北约的回应
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1091615/)
+## 【热点播报】CNN 作茧自缚——惊爆炮制假新闻内幕
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1091712/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：纽约香草山写作组：文尊
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/UK.jpg)top-news.online
-美联社报道，俄罗斯国防部长周二表示，该国在西部的大规模军事集结是预备演习的一部分，此次演习是对美国及其北约盟国在俄罗斯边境附近加强军力的持续努力的回应。这次演习让邻国乌克兰感到担忧，并引起北约的警告。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
-俄罗斯国防部长谢尔盖·绍伊古 (Sergey Shoygu)说，过去三周，俄罗斯军方在西部地区部署了两支军队和三个空降编队，“作为对北约威胁俄罗斯的军事活动的回应。”他说，“军队已经显示出充分准备完成确保国家安全的任务。”
 
-美国及其盟友对俄罗斯军队集中在乌克兰边境地区以及乌克兰东部违反停火协议的行为发出警告。自莫斯科2014年合并乌克兰的克里米亚半岛以来，乌克兰东部的分离主义分子和乌克兰军队一直处于冲突之中。
 
-乌克兰东部的战斗已经造成超过1万4千人死亡，通过谈判达成政治解决方案的努力陷入停滞。北约秘书长周二称俄罗斯最近在乌克兰边境的部署是2014年以来最大规模的军队集中。拜登总统星期二在与俄罗斯总统普京通话时对俄罗斯的军事集结表示关切，并“呼吁俄罗斯缓和紧张局势”。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片52.png)图片来源：Project Veritas
 
-在最近的紧张局势中，美国两艘美国军舰将于4月14日和15日驶往黑海，并在那里停留到5月4日和5日。过去几年，美国海军舰艇定期访问黑海，这令莫斯科感到不安。
+今天（4月13日）， 由Project Veritas秘密拍摄的一段视频在网络大肆流传，其中揭露了CNN是如何预谋策划了一些列的假新闻，再次证实CNN已经沦为左派的喉舌，只为政治服务。
 
-俄罗斯副外长谢尔盖·里亚布科夫 (Sergei Ryabkov)谴责这一最新部署是“公然挑衅”，并补充说，“我们警告美国，为了他们自己的利益，应该远离克里米亚和我们的黑海海岸。”
+秘密拍摄的视频显示：CNN技术总监Charlie Chester承认网络（媒体）参与了中共“大外宣”，将川普踢出白宫。他加入CNN的原因也是希望成为其中的一员。 比如他们看到川普有一次手发抖，于是他们召集了一大批医护人员共同杜撰了一个故事，目的是要告诉民众川普的健康出了问题，神经系统受损，他不再适合任何工作。相反，在拜登这头，他们捕获的镜头永远都是拜登慢跑这样非常健康的画面。
 
-里亚布科夫重申，“如果局势升级，我们将尽一切努力确保我们自己的安全和公民的安全，无论他们在什么时候。”他还说，“基辅及其西方管理人员将为这种假想升级的后果承担全部责任。”
+Chester同时还透露了CNN下一步的计划，那就是当人们对COVID疲劳后，CNN就会开始关注气候问题，提高对气候变化的认识。并且表示这项议程已经在他们的办公桌上了。 （请参考气候问题相关文章：[共产主义蚕食世界- 环保主义与灭资计划](https://gnews.org/zh-hans/934497/)）。
 
-参考链接：
+当记者追问“是谁来决定？”时，Chester的回答是网络负责人Jeff Zucker。
 
-[https://apnews.com/article/ukraine-moscow-russia-sergei-shoigu-united-states-9e23a53ca4db61dab2fbf7897d60b1be](https://apnews.com/article/ukraine-moscow-russia-sergei-shoigu-united-states-9e23a53ca4db61dab2fbf7897d60b1be)
+CNN一向善于用谎言去制造谎言，总有一天，人们会离你远去，任凭你在谎言中尽情表演。
+
+参考消息来源：https://www.projectveritas.com/news/part-1-cnn-director-admits-network-engaged-in-propaganda-to-remove-trump/
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpg)
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0
