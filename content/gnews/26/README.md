@@ -1,66 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共精心布局多年&nbsp; 收买议员里应外合&nbsp; 抽走黄金打垮美元
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1090422/)
+## 【劲爆】共产党灭亡的内部厮杀口子逐渐扩大（三）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1090244/)
 
-**简述：郭先生在2021年4月5日的GTV直播中警告美国人，中共从2006年就开始精心布局，通过收买廉价的美国议员里应外合，耸动各国从美国抽走黄金储备，来达到击垮美元的目的。从最近各国媒体和美国议会的动向来看，中共已经全面开始行动！**
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210405-live-p1.srt.txt)
-**中共精心布局多年****  ****收买议员里应外合****  ****抽走黄金打垮美元**
+五月花写作组 ｜ 作者：义武奋扬 ｜ 编辑、美工、发布：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/04/共产党内部厮杀v3.jpg)
+### 往期链接：
 
-**The CCP Has Been Working on Moving Gold Reserves Out of the US to Defeat US Dollars for Years**
+[【劲爆】共产党灭亡的内部厮杀口子逐渐扩大（一）](https://gnews.org/zh-hans/1089688/)
 
-最近看见了吗？全世界媒体在上周开始起全面报道：“要开始，是时候啦！受够啦！Enough！Enough！我们要到美国看看我们的黄金在不在！”
-
-Have you seen it lately? Since last week, the world’s media has been all over this matter – “Let’s do it! It’s about the time!” “Enough! Enough!” “We need to see if our gold is still in the United States!”
-
-8000吨也好9000吨也好，美国储放的黄金，我真的不相信真的在那儿。从过去布雷森系统1973年之后到现在这个黄金，以货币本位的黄金，我告诉你未来黄金未来一定值大钱，包括银，黄金、银一定不是1800，一定超过一万块美金，按今天的价格一定超过一万，只是时间的问题。所有的信用纸币一定崩塌！一定崩塌！就是在什么时间、什么方式的问题。
-
-I really don’t believe that the gold kept in the U.S. is really there, no matter it is 8,000 tons or 9,000 tons. From the post Bretton Woods System era in 1973 to the present time with currency-based gold, let me tell you, gold will worth big money in the future, and that includes both silver and gold. The price will definitely not be $1800, and will definitely exceed $10,000. Based on today’s price, it will definitely be over $10,000, just a matter of time. All credit-based currencies will collapse! Definitely! It’s only a matter of when and how.
-
-那么在美国这些黄金要没有了，那个科恩他说的是对的。科恩不可能乱讲话一点根据没有，他再好色他不能乱讲话，拉加德当了IMF主席以后，最重要的当时就是被警告，你敢提一次这个事情你也完蛋。原来一个日本的，好像一个日本裔的人在IMF的货币组织也想提，最后很快就辞职了，这是改变世界货币命运的。
-
-So, if the gold kept in the United States is gone… What Kahn (note: Dominique Strauss-Kahn, Former President of IMF) has said is right. Kahn cannot say something totally baseless, no matter how lustful he is, he cannot say something like this baselessly. After Lagarde (Christine Madeleine Odette Lagarde) became the IMF President, the most important thing happened to her at that time was being warned that if you dare to mention this thing for once, your career will be over. Once a Japanese descent who was in the IMF attempted to bring this up, and he ended up with being quickly resigned, because this is something that can change the fate of the world’s currencies.
-
-美国会不会接受储存黄金？我告诉你共产党还有更厉害的一招儿，共产党在美国所有的行贿的议员。我告诉大家一个某国元首，他说：“Miles，共产党很聪明啊，说让我到美国去搞几个所谓的国会议员作为朋友。”我说：“为什么呀？”他说：“未来要影响力呀。”他说：“他们为什么要对司法委员会、金融委员会、情报委员会、能源委员会那么关键，” 他说，“特别对金融委员会，然后要有发起议案的议员。”他说：“实际很少钱，捐个几万美元就行了，就搞定一个。他们为什么要这么干？”
-
-So will the United States accept the fact that the CCP’s keeping the gold? Let me tell you that the CCP has a more ruthless tactic, that is bribing Congressmen of the United States. I can tell you that a chief of a certain country once said to me, “Miles, the CCP is very smart. They wanted me to go to the U.S. to make friends with several so-called members of the Congress.” I asked, “Why?” “The CCP wants to have influence in the U.S. in the future,” he said, “and that’s why they see the Judiciary Committee, the Finance Committee, the Intelligence Committee, the Energy Committee [of the Congress] as so critical to them.” He continued, “Especially the Finance Committee. And then they need to have congressmen who can introduce the bill.” He said, “These kinds of things actually do not need a lot of money. Just a few tens of thousands of dollars of donation will work. Why do they want to do this?”
-
-我当时我的眼睛就亮了，“哎呀，”我说，“共产党这所有的准备是和未来就是他们的要以钱灭美的时候、要查美国黄金的时候，美国议员必须得有呼应。”我当时就想到这一点了，“哎呀，”我说，“这事儿有意思，哎呀，”我说，“你要给我讲讲这个细节。”啊，他给我大致讲了讲。我知道老共已经深深地植根于准备这场战争。
-
-My eyes lit up immediately. “Gee,” I said, “all the CCP’s preparations were in line with their plan: in the future when they are ready to destroy the U.S. with money and ready to launch investigations into the gold reserves in the U.S., they need to have American congressmen to echo.” I thought of that at that very moment. “Oh, my!” I said, “That’s interesting.” I asked him, “You need to let me know more details about this.” He then told me briefly, and then I knew that the CCP was already preparing for this war insidiously and secretly.
-
-最近美国最起码超过两到三个议员要提起，自己人提起核查美国给外国储备的黄金，包括美国黄金。
-
-Recently, at least two or three U.S. Congressmen are proposing to have the U.S. to voluntarily verify its gold reserves for foreign countries, including America’s own gold reserves as well.
-
-所以说，我这过去这一两周我一看，共产党出手了，出手啦！
-
-So, based on what I observed the last couple of weeks, I know that the CCP has made the move. They have started to take actions!
-
-让拜登干的事儿基本上拜登都干完了，应付差不多了，呵呵，该谈的也谈啦，是吧？新疆大屠杀属于文化问题、文化冲突；然后香港也没采取惩罚；冠状病毒现在不准谈，不是共产党的。你看基本都做完了。
-
-Biden has basically done all the things that he was asked to do [by the CCP], and has said everything that he was supposed to say, right? The Xinjiang massacre is a cultural issue or a cultural conflict; there has been no punishment for what the CCP did to Hong Kong; and the coronavirus is not allowed to be talked about and it has nothing to do with the CCP. You see, Biden has basically done all of that.
-
-然后全世界铺天盖地在上周，所有这些国家、各大媒体包括拉脱维亚、匈牙利、意大利的报纸都在说该到美国去查黄金了，该把美金拿回来了，关键问题[是]在上周就有七八个国家把大量的黄金运回了国家，包括日本啊，包括日本。恐怖不？
-
-And then last week, this was extensively covered by media all over the world. All these countries and all the mass media, including Latvia, Hungary, Italy’s newspapers were saying that it’s time to go to the U.S. to check our gold reserves, and it is time to take back our gold. The problem is that in the last week there were already seven or eight countries that had shipped a large amount of gold back to their countries, and that included Japan. Japan! Scary, isn’t it?
-
-同时美国几个议员提议要查美国黄金储备。就花几万美元就可以搞定[几个议员]。而这是美国（口误，应为中国）在2006年就开始准备、中共就准备的，最近全开始了。战友去想想，这个结局会是什么？美元崩塌、美国经济崩塌、美国的信用崩塌。
-
-And concurrently, several U.S. congressmen proposed to check the U.S. gold reserves. It only takes tens of thousands of dollars to buy out a congressman. And this is what the CCP has been preparing since 2006, and it has all started recently. Our fellow fighters, think about it, where this will lead to? The collapse of the U.S. dollar, the collapse of the U.S. economy, and the collapse of the credit of the U.S.!
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=606b0c896e11a756edd89042](https://gtv.org/video/id=606b0c896e11a756edd89042) (1:04:04-1:07:11, 1:07:35-1:08:57)
-鸣谢：感谢湘江之水、Winner为自由而战（文祥）、万物归一、柒号G币、Bruce(文远)、山川异域提供中文文本于 [https://gnews.org/zh-hans/1060164/](https://gnews.org/zh-hans/1060164/)
+[【劲爆】共产党灭亡的内部厮杀口子逐渐扩大（二）](https://gnews.org/zh-hans/1090151/)
 
 * * *
 
-*翻译：【rainbow】字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】*
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+（接上文）
 
-+1
+共产党修改党史，习近平占四分之一篇幅，超过毛泽东，那是在文宣造势，习近平不一定知道，但是他派系也肯定有明白人知道不可能把你习近平宣传成神就不是二百斤的大胖子了，但还要这样干就是和敌对派系的斗争已经进入了掐脖子、捅肚子的阶段。发这种骗鬼的文宣能让傻子信最好，没有傻子信也聊胜于无，而且是给己方派系壮胆助威。
+
+综合以上新闻，可以看出上海帮逐渐处于劣势，杨雄这样重要的成员之一无故暴毙，应该就是上海帮自己干的灭口。
+
+从2020年4月份孙力军被捕后，到现在已经一年有余。既然没有让孙力军死掉，那么上海帮有灭帮之祸的证据或多或少已被习近平撬出来一点点。共产党内部要干掉一些人，对于没有后台的如国安部副部长马建等人，习近平或者王岐山签一个字就能抓起来。而有后台的至少要列出一些违反帮规家法的证据，让中间派系头领赞成，敌对派系头领无话可说的证据，当然其中就看各派系头领的明面上的口炮能力以及私底下的权力势力运作。
+
+共产党是个巨大的犯罪组织，有黑社会一样的不被外人知道的帮规家法。例如周永康以前也是常委之一，但因为口无遮拦，威胁敢抓他就把其他常委换器官的事公告天下，本来江家就要对他背叛一事找他算账，又威胁各个常委，自然各派系头领可能开会表决，同意把他拿下。否则没道理张春贤2015年时无界新闻发出一篇建议习近平下台的信，又在新疆问题上与孟建柱不合，深深得罪习近平和孟建柱都没什么事，可能张春贤这样干违反明面上的党章但没违反帮规家法。
+
+所以可能习近平准备把杨雄抓起来，由点扩面，从他嘴里再挖出大鱼，形成株连之势把上海帮一网打尽，但上海帮先下手为强把杨雄先做掉灭口。而把通晓英国上下情况的刘晓明调出英国，出任劳什子朝鲜半岛事务代表，以前这个职位是专门为了六方会谈情况做准备的，但现在还有六方会谈吗？而且共产党释放生物武器后，欧美各国对于这事是对共产党步步紧逼的态度，完全不可能理会朝鲜半岛的任何事。而中南坑现在却干这种南辕北辙的事。
+
+之前文章提到上海帮面对习派掌握合法名义的打击，只能内外搞事，对内自己出力把经济泡沫刺破，对外则战狼外交让共产党的国际环境更加险恶，只有这样围魏救赵，自己派系才能觅得一时喘息之机，甚至浑水摸鱼反守为攻也行。于是让刘晓明回来，截至目前并未安排新人接替刘晓明，使得对英外交罢工，破坏共产党对英国的外交环境。
+
+从这几则新闻可以看到，习派出了两招半，约谈蚂蚁集团和修改新党史，准备抓捕杨雄。上海帮出了一招半，调刘晓明回来和把杨雄灭口。所以从这来看习攻沪守，上海帮处于下风。从把杨雄灭口的果决态度上看，前有杨王战狼表演，沪粤房贷新政，后有把刘晓明调回放任对英外交环境恶化，上海帮保帮毁党的决心日益坚定。就看什么时候把崔天凯调走并不再安排新人接替他的职位，那就说明共产党外交系统全面崩溃，国际环境全面恶化，灭共也指日可待！
+
+（全文完）
+
+* * *
+
+### 精彩回顾：
+
+[【重磅】共产党将如何灭亡（政治篇）（一）](https://gnews.org/zh-hans/1035906/)
+
+[【重磅】共产党将如何灭亡（政治篇）（二）](https://gnews.org/zh-hans/1039040/)
+
+[【分析】共产党将如何灭亡（经济篇）（一）](https://gnews.org/zh-hans/1047042/)
+
+[【分析】共产党将如何灭亡（经济篇）（二）](https://gnews.org/zh-hans/1058320/)
+
+[【分析】共产党将如何灭亡（经济篇）（三）](https://gnews.org/zh-hans/1058773/)
+
+[【深度】共产党将如何灭亡（文化篇）（一）](https://gnews.org/zh-hans/1049066/)
+
+[【深度】共产党将如何灭亡（文化篇）（二）](https://gnews.org/zh-hans/1062568/)
+
+[【深度】共产党将如何灭亡（文化篇）（三）](https://gnews.org/zh-hans/1062577/)
+
+[【预测】共产党将如何灭亡（国际篇）（一）](https://gnews.org/zh-hans/1077458/)
+
+[【预测】共产党将如何灭亡（国际篇）（二）](https://gnews.org/zh-hans/1079950/)
+
+[【预测】共产党将如何灭亡（国际篇）（三）](https://gnews.org/zh-hans/1080012/)
+
+* * *
+
+（本文仅代表作者个人观点，与GNews平台无关）
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+
+0

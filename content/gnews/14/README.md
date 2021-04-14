@@ -1,264 +1,261 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美《2021战略竞争法》第二节“调查结论”摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1090512/)
+## 美国政要等每日信息拾贝0413.2021
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1086071/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/PP-1.jpg)threatconnect.com
-本节要点：
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
+## 中共病毒
 
-中共国先行政策威胁到国际秩序，使国际社会未来几十年的和平、繁荣和自由面临危险；自中美建交后，美国在7大方面帮助了中共国；中共国对个人自由的限制，在国内推行一种日益独裁的治理模式，以及一种咄咄逼人的强硬外交政策，这些政策经常蓄意损害别国利益，违背美国的核心价值观和其他国家的价值观，无论是在印度洋-太平洋地区还是其他地区，为了响应中共的这一战略决策，美国不得不重新审视和修改对中共国的战略。
+4月12日至13日早，关于中共病毒真相的推文链如下。
 
-中共国正在推广其治理模式，并试图通过以下方式削弱其他治理模式：破坏民主体制，颠覆金融机构，强迫企业遵守中共国的政策，利用虚假信息掩盖（A）至（C）项所述行为的性质。中共病毒疫情加剧并加速了中共国这些行为的趋势，中共国利用了全世界对中共病毒疫情的关注，（A）迅速破坏香港自治，包括对香港实行所谓的“国家安全法”，（B）在东海和南海大肆施压。（C）加剧与印度的紧张关系；以及（D）参与广泛的、由政府指导的造谣活动，以掩盖中共病毒严重性的努力，散布对疫情起源的混淆，并诋毁美国及其盟国和全球卫生努力。
+劳伦斯-塞林博士的推文越来越专业化，字里行间都是情报：（详细解读请收看[路德时评13日早间节目](https://gtv.org/video/id=607591cb6e11a756ede1d9db)）
 
-欲了解更多的内容，请看本节全文。
+“众所周知，将2002-2004年SARS-CoV-1大流行病毒中E蛋白的氨基酸E69和G70替换为精氨酸（R），毒力会增加。在#COVID19和蝙蝠冠状病毒ZC45、RacCS203和RaTG13的相同E蛋白中也可以看到这样的替换。#中共病毒”
 
-第2节. 调查结论
+英雄科学家闫博士回推：
 
-国会得出以下结论：
+“值得注意的是，RaTG13是假的，如第二份闫氏报告所示，而RacCS203是王林发（Daszak与石正丽的长期合作者）在2021年2月9日发表的补充 ‘自然起源证据’。
+所以#COVID19的E蛋白在现实中只与其骨架ZC45/ZXC21病毒相同。”
 
-（1）中共国（PRC）正在利用其政治、外交、经济、军事、技术和意识形态的力量，成为美国的战略、对等的、全球竞争对手。中共国在这些领域日益奉行的政策，与美国、美国的合作伙伴和世界其他大部分国家的利益和价值观背道而驰。
+爆料革命战友德意志之鹰回复闫博士：
 
-（2）中共国现行政策：
-（A）威胁到国际秩序的未来性质，并正在形成管控国家间关系的规则、规范和制度
-（B）这将危及美国保障国家利益的能力
-（C）将使国际社会未来几十年的和平、繁荣和自由面临危险
+自称蝙蝠侠王林发，他的目的是混淆调查。他说“将基因多样化的SC2r-CoVs的地理分布从日本和中国扩展到泰国，覆盖4800公里。”不对！王先生知道实验室工程的可信度很高。
 
-（3）1979年，美国与中共国实现邦交正常化后，美国积极促进中共国的经济社会发展，确保中共国参与自由开放的国际秩序，并从中受益。美国追求这些目标，并通过以下方式为中（共）国人民的福祉作出了贡献：
-（A）加强了与中共国的贸易关系，增加了（更多的）全球资本市场准入
-（B）推动中共国加入世界贸易组织
-（C）提供发展资金和技术援助
-（D）促进研究合作
-（E）培养中（共）国优秀学生
-（F）允许转让尖端技术和科学知识
-（G）提供情报和军事援助
 
-（4）现在很明显，中共国已经选择奉行国家主导的重商主义经济政策，通过增加对个人自由的限制，在国内推行一种日益独裁的治理模式，以及一种咄咄逼人的强硬外交政策，这些政策经常蓄意损害别国利益，违背美国的核心价值观和其他国家的价值观，无论是在印度洋-太平洋地区还是其他地区，为了响应中共的这一战略决策，美国不得不重新审视和修改对中共国的战略。
 
-（5）中共总书记、国家主席习近平把“中华民族伟大复兴”上升为中共国内政外交的核心，他的计划要求：
-（A）中国共产党强有力的集中领导
-（B）军事力量集中
-（C）中国共产党在国家和经济中的强大作用
-（D）寻求控制广泛领土主张的侵略性外交政策
-（E）否认任何被认为是威胁中共的普世价值观和个人权利
+> To note, RaTG13 is fake as shown in the 2nd Yan Report, while RacCS203 is published to add “nature-origin evidence” on 9 Feb 2021, by Linfa WANG (Daszak & SHI’s long-term collaborator).
+> So E protein of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) is only identical with its backbone ZC45/ZXC21 virus in the reality. [https://t.co/S9B92s9jpo](https://t.co/S9B92s9jpo)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 13, 2021](https://twitter.com/DrLiMengYAN1/status/1381949982794776578?ref_src=twsrc%5Etfw)
 
-（6）中共国认为，它的列宁主义治理模式，即“中共特色社会主义”，优于美国和其他民主国家的宪法模式，并且与之相悖。中共称赞这种治理方式对确保中共作为全球领导者的地位和塑造世界未来至关重要，习近平在2013年的讲话中说：“我们坚信，随着中（共）国特色社会主义的发展，我们的社会主义制度的优越性将日益增强……[以及]我们国家的发展道路将对世界产生越来越大的影响。”
 
-（7）中共国的目标是首先在印太地区建立区域霸权，然后利用这一主导地位推动中共国成为“世界领先大国”，形成有利于中国共产党利益的国际秩序。要实现这些目标，就必须利用强大的军事和先进的技术能力，不顾其他国家的利益，实现中共国的目标，把中共国变成一个在中国共产党严格统治下的富裕国家。
 
-（8）中共国正在通过对全球信息的布局和影响力行动，改变当前建立在规则和自由开放的理念和原则基础上的国际秩序，寻求重新界定国际法律和规范，以符合中国共产党的目标，拒绝国际公认人权的合法性，为了中共国和其他独裁政权的利益，以牺牲美国和国际社会的利益为代价，谋求加入多国组织的领导层和议程。2018年12月，习近平主席建议中国共产党将其“历史使命”视为不仅治理中共国，而且深刻影响全球治理，造福中国共产党。
 
-（9）中共正在鼓励其他国家学习中共国特色社会主义的模式，在2017年党的十九大上，习近平主席说，中共国可以成为其他国家的发展模式，运用“中共国智慧”和“中共国解决问题的方法”。
 
-（10）中共国正在推广其治理模式，并试图通过以下方式削弱其他治理模式：
-（A）破坏民主体制
-（B）颠覆金融机构
-（C）强迫企业遵守中共国的政策
-（D）利用虚假信息掩盖（A）至（C）项所述行为的性质
+> What Linfang Wang (self-claimed Batman) aimed is to muddle the investigation:
+> "extended the geographic distribution of genetically diverse SC2r-CoVs from Japan and China to Thailand over a 4800km range."
+> 
+> No! Wang knows lab engineering is highly plausible:[https://t.co/jvKwryXN9W](https://t.co/jvKwryXN9W) [https://t.co/Ww3WDsC8b5](https://t.co/Ww3WDsC8b5)
+> — 德意志之鹰 (@dezying) [April 13, 2021](https://twitter.com/dezying/status/1381952004499636227?ref_src=twsrc%5Etfw)
 
-（11）中共国已接近成为全球科技领导者的目标，2018年5月，习近平主席表示，中共国要实现“繁荣复兴”，需要“努力成为世界主要科技创新中心”，中共国在教育、研究和发展方面投入了相当于几十亿美元的资金，并建立了一个专门的机构。
 
-（12）中共国成为“制造业和技术超级大国”和推动具有中共国特色的创新的努力，是以牺牲人权和长期存在的有关经济竞争的国际规则和规范为代价的，并对美国国家安全以及盟国和志同道合国家的安全提出了挑战。特别是中共国通过群众监督、社会信用体系和国家在互联网治理中的重要作用，推进其不自由的政治和社会政策，通过这些手段，中共加强了政府对公民日常生活的直接和间接控制，其“军民融合”的国家战略要求越来越多地推动全球创新的民用和商业研究被用于发展新的军事能力。
 
-（13）中共国正在利用合法和非法手段，实现其成为制造业大国和科技超级大国的目标，中共国以反竞争的方式采用国家指导的产业政策，以确保中共国公司的主导地位，中国共产党参与并鼓励积极破坏自由和开放的国际市场的行动，如知识产权盗窃、强迫技术转让等转让、监管和财政补贴，以及作为中共国和外国公司之间商业和商业协议的一部分，中共能强制访问专有数据。
+德意志之鹰战友回推塞林博士：
 
-（14）第（13）款所述政策旨在冻结美国和其他外国公司进入中共国市场，同时削弱其他重要市场的竞争。对中共国企业的大量补贴包括可能违反其世界贸易组织（WTO）的规定承诺。2018年5月，习近平主席表示，中共国的目标是保持“创新和发展安全倡议，在[中共]自己的手中”。
+我可以提供一些逻辑联系吗？
+执着者面对马利克-佩里斯和他的港大队在2010年的表现。
+[https://pubmed.ncbi.nlm.nih.gov/20861307/](https://pubmed.ncbi.nlm.nih.gov/20861307/)
 
-（15）中共国正在通过各种途径推进其全球目标，包括签署“一带一路”倡议（在本节中称为“BRI”），它包含在中共国宪法中，包括数字丝绸之路和健康丝绸之路。中共国将“一带一路”描述为一个对所有国家都直接和完全有益的计划，最终，中共国寻求推进以中共国为中心的经济体系，使之成为中共国全球野心最具体的地理代表。“一带一路”增强了中共国有企业在全球市场的经济影响力，加剧了中共国对世界各国政府领导人的政治操控，并为港口和铁路等战略节点提供了更广的通道，通过“一带一路”，（有关国在）经济上的依赖，中共国寻求政治上的尊重。
+结果发现SARS-CoV-2发病的关键。
+[https://pubmed.ncbi.nlm.nih.gov/32891874/](https://pubmed.ncbi.nlm.nih.gov/32891874/)
 
-（16）中共国正在执行一项计划，在印度洋-太平洋地区建立地区霸权，并将美国赶出该地区。作为一个太平洋大国，美国建立并支持持久的联盟和经济伙伴关系，以确保和平与繁荣，并在一个自由和开放的印太地区促进法治和政治多元化。相比之下，中共国在该地区使用经济和军事胁迫手段来维护自己的利益。
+附赠：闫丽梦博士对香港大学稔熟的信息。
+[https://nature.com/articles/s41586-020-2342-5](https://nature.com/articles/s41586-020-2342-5)
 
-（17）中共国的军事战略旨在阻止美国军队在西太平洋地区活动，并削弱美国的安全保障。
+塞林博士回复道：
 
-（18）中共国正积极寻求对印度洋-太平洋关键陆路、海道和领空的独家控制，希望最终在该地区以外发挥更大的影响力，这包括对商业活动、能源勘探、运输，以及在国际法允许的地区开展安全行动。
+“@德意志之鹰 正确的科普文章展示了通过修改E蛋白来增加#COVID19的毒性，从而 “比SARS-CoV 的E蛋白更能有效地破坏肺上皮屏障、并放大炎症的过程”
+https://doi.org/10.3389/fmicb.2020.02086…
 
-（19）中共国通过任何最终可能需要的手段寻求与台湾的所谓“实现统一”，中共坚持所谓的“实现统一”是台湾的唯一选择，使得这一目标具有内在的武力胁迫性。2019年1月，习近平主席表示，中（共）国“不承诺放弃使用武力，保留采取一切必要手段的选择”。台湾体现的民主价值观和经济自由主义挑战了习主席实现民族复兴的目标。中共国计划利用台湾在第一岛链的战略主导地位，把力量投射到第二岛链和更远的地方。
 
-（20）在南中国海，中共国进行非法造岛活动，威胁航行自由和商业自由，破坏环境，增强解放军的力量投射能力，胁迫和恐吓其他地区的主权国家，以推进其非法主权要求，控制周边国家水域。尽管习近平主席在2015年9月的讲话中说，中共国没有将南中国海军事化，但是2017年党的十九大，习近平主席宣布“南海岛礁建设稳步推进”。
 
-（21）中共国正在迅速地使解放军现代化，使其在装备和进行现代化军事行动方面的能力和水平超过美国，其军事理论从“足以[满足]中共国的防御需要”，转变为“与中共国的防御需要相称”的力量国际地位。最终，这种转变可以使中共国通过武力威胁将其意志强加于印太地区。2017年，习主席为解放军的发展确立了以下发展基准：
-（A）到2020年，一支信息化和战略能力增强的机械化部队
-（B）到2035年中国国防全面现代化
-（C）到2050年，中国人民解放军全面转变为世界一流的军队
+> Correct scientific articles are shown by [@dezying](https://twitter.com/dezying?ref_src=twsrc%5Etfw) linking an increase in [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)'s virulence by modifying the E Protein to "disrupt the pulmonary epithelial barrier and amplify the inflammatory process more effectively than SARS-CoV E does"[https://t.co/gCQV9J5VjQ](https://t.co/gCQV9J5VjQ)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/m4Vzq9m4E9](https://t.co/m4Vzq9m4E9)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 13, 2021](https://twitter.com/LawrenceSellin/status/1381963736399769609?ref_src=twsrc%5Etfw)
 
-（22）本节所述的中共国战略和支持政策损害了美国的利益，例如：
-（A）维护自由开放的国际秩序
-（B）维护具有自由规范和价值观的国际机构的完整性
-（C）在印度洋-太平洋地区保持有利的力量平衡
-（D）确保盟国的防卫
-（E）保持开放的海上和空中通道
-（F）通过开放和透明的市场促进商业自由流动
-（G）促进个人自由和人权
 
-（23）全球中共病毒疫情加剧并加速了中共国这些行为的趋势，因此增加了对美国全球领导地位和竞争态势的需求。中共国利用了全世界对中共病毒疫情的关注：
-（a）迅速破坏香港自治，包括对香港实行所谓的“国家安全法”
-（B）在东海和南海大肆施压
-（C）加剧与印度的紧张关系
-（D）参与广泛的、由政府指导的造谣活动，以掩盖中共国政府中共病毒严重性的努力，散布对疫情起源的混淆，并诋毁美国及其盟国和全球卫生努力
 
-（24）为了应对中共国的战略和政策，美国必须采取与中共国进行战略竞争的政策，以保护和促进我们的切身利益和价值观。
 
-（25）美国对中共国的战略竞争政策是对印太和世界更广泛战略方针的一部分，该方针以美国的盟国和伙伴为中心，促进共同的价值观和利益，维护和加强一个自由、开放、民主、包容的世界，基于规则、稳定和多样化的地区。
 
-（本节完）
+彭博社今日讯，“得了COVID19就不会再得病吗？在形成大流行的过程中，人们对SARS-CoV-2病毒的免疫反应保护有多好，有多长”。尽管文章的问与答对中共病毒感染、疫苗和免疫性存在显而易见的误导，文章指出：更多无症状的感染没有被检测到，但是正在发生。对69%的检测人群进行研究发现，有0.65%的人再次呈阳性。
 
-美国两党对中共的认识在迅速清醒，由这节可以很清晰地看到。《2021战略竞争法》将通过快速通道，相信很快会成为灭共的重磅法案得以通过。接下来灭共的进程必然加速，我们拭目以待。
 
-原文链接：
 
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+> Can you get Covid-19 twice? What reinfection cases really mean [https://t.co/2Lx3sBh05d](https://t.co/2Lx3sBh05d)
+> — Bloomberg (@business) [April 13, 2021](https://twitter.com/business/status/1381944511564242947?ref_src=twsrc%5Etfw)
 
-文字整理：
 
-SEC. 2. FINDINGS
 
-Congress makes the following findings：
 
-(1) The Peoples Republic of China (PRC) is leveraging its political, diplomatic, economic, military, technological, and ideological power to become strategic, near-peer, global competitor of the United States. The policies increasingly pursued by the PRC in these domains are contrary to the interests and values of the United States. its partners and much of the rest of the world.
 
-(2) The current policies being pursued by the PRC–
 
-(A) threaten the future character of the international order and are shaping the rules, norms, and institutions that govern relations among states.
 
-(B) will put at risk the ability of the United States to secure its national interests.
+## 中共病毒疫苗
 
-(C)will put at risk the future peace, prosperity, and freedom of the international community in the coming decades
+13日班农先生疫情作战室谈到，科学证据表明疫苗无效，数日前有媒体爆出某些疫苗发现导致血栓的新闻。今日该报道出现在更多媒体，权威机构对由川普总统支持开发的强生疫苗给出明确意见。
 
-(3) After normalizing diplomatic relations with the PRC in 1979, the United States actively worked to advance the PRCS economic and social development to ensure that it participated in, and benefitted from, the free and open international order. The United States pursued these goals and contributed to the welfare of the Chinese people by–
+据JustTheNews ：在罕见血栓报告后，CDC（美国疾控防止中心）、FDA（美国药品食品管理局）建议暂停强生COVID疫苗的使用。联邦机构说，他们正在调查6名妇女在他们接受疫苗接种后的日子里的血块。
 
-(A) increasing the PRC’s trade relations and access to global capital markets.
 
-(B) promoting the PRC’s accession to the World Trade Organization.
 
-(C) providing development finance and technical assistances.
+> CDC, FDA recommend pause in Johnson & Johnson COVID vaccine after reports of rare blood clots [https://t.co/Hn4EKB7ZJH](https://t.co/Hn4EKB7ZJH) via [@JustTheNews](https://twitter.com/JustTheNews?ref_src=twsrc%5Etfw)
+> — 🛳盘古战龙巡洋舰⚓️喜马拉雅的文雅Wenya Himalaya 🌊 (@ozwenya) [April 13, 2021](https://twitter.com/ozwenya/status/1382069534295674880?ref_src=twsrc%5Etfw)
 
-(D) promoting research collaboration.
 
-(E) educating the PRC’s top students;
 
-(F) permitting transfers of cutting-edge technologies and scientific knowledge; and
 
-(G) providing intelligence and military assistance.
 
-(4) It is now clear that the PRC has chosen to pursue state-led, mercantilist economic policies, an increasingly authoritarian governance model at home through increased restrictions on personal freedoms and an aggressive and assertive foreign policy. These policies frequently and deliberately undermine States interests and are contrary to core United States values and the values of other nations, both in the Indo-Pacific and beyond. In response to this strategic decision of the CCP, the United States has been compelled to reexamine and revise its strategy towards the PRC.
+据彭博社，美国广而告之，呼吁暂停引起血栓的强生疫苗。
 
-(5) The General Secretary of the Chinese Communist Party and the President of the People’s Republic of China, Xi Jinping, has elevated the “Great Rejuvenation of the Chinese Nation” central to the domestic and foreign policy of the PRC. His program demands-
+FDA（美国食品和药物管理局）的官员说“我们建议暂停使用这种疫苗，是出于非常谨慎的考虑，”暂停可能在 “几天内 “结束。暂停的一个关键原因是血栓的正常治疗，血液稀释剂肝素，可能使疾病恶化，甚至致死。一个月前接种疫苗的人风险很低，但在过去几周内有人应该注意到头痛、腿痛、腹痛和呼吸急促。
 
-(A) strong, centralized CCP leadership;
+文章称，这一决定是在美国疫苗接种工作的关键时刻做出，最近几周加速推广疫苗，冠状病毒美国中西部地区变种导致疫情恶。在阿斯利康公司（AstraZeneca Plc）的疫苗出现类似问题导致延误后，可能促使美国减缓注射疫苗，并加剧全球对疫苗的担忧。
 
-(B) concentration of military power;
+CDC副主任Anne Schuchat强调，辉瑞公司-BioNTech SE疫苗和Moderna公司的疫苗没有出现血小板数量低的凝血事件。
 
-(C) a strong role for the CCP in the state and the economy;
+报道当日强生股价在纽约交易中下跌2.2％至158.15美元。
 
-(D) an aggressive foreign policy seeking control over broadly asserted territorial claims;
+此前强生公司疫苗因单剂注射受到欢迎，而辉瑞和Moderna疫苗需要两个剂量间隔几个星期注射。
 
-(E) the denial of any universal values and individual rights that are deemed to threaten the CCP.
 
-(6) The PRC views its Leninist model of governance, “socialism with Chinese characteristics”, as superior to, and at odds with, the constitutional models of the United States and other democracies. This approach to governance is lauded by the CCP as essential to securing the PRC’s status as a global leader, and to shaping the future of the world. In a 2013 speech, President Xi said, “We firmly believe that as socialism with Chinese characteristics develops inevitable that the superiority of our socialist system will be increasingly ap-parent…(and) our country’s road of development will have increasingly greater influence on the world.”
 
-(7) The PRC’s objectives are to first establish regional hegemony over the Indo-Pacific and then to use that dominant position to propel the PRC to be-come the “leading world power, “shaping an inter-national order that is conducive to the CCP’s interests. Achieving these objectives requires turning the PRC into a wealthy nation under strict CCP rule by using a strong military and advanced technological capability to pursue the PRC’s objectives, regardless of other countries interests.
+> U.S. health officials seek to pause use of Johnson & Johnson’s Covid-19 vaccine on concerns about rare and severe blood clotting side effects [https://t.co/uP2o40B9tk](https://t.co/uP2o40B9tk)
+> — Bloomberg (@business) [April 13, 2021](https://twitter.com/business/status/1381941242674745350?ref_src=twsrc%5Etfw)
 
-(8) The PRC is reshaping the current international order, which is built upon the rule and free and open ideals and principles, by conducting global information and influence operations, seeking to redefine international laws and norms to align with the objectives of the CCP, rejecting the legitimacy of internationally recognized human rights, and seeking to co-opt the leadership and agenda of multinational organizations for the benefit of the PRC and other authoritarian regimes at the expense of the interests of the United States and the international community. In December 2018, President Xi suggested that the CCP views its “historic mission” as not only to govern China, but also to profoundly influence global governance to benefit the CCP.
 
-(9) The PRC is encouraging other countries to follow its model of “socialism with Chinese characteristics. urine the 19th Party Congress in 2017 President Xi said that the PRC could serve as a model of development for other countries by utilizing Chinese wisdom ” and a ” Chinese approach to solving problems”.
 
-(10) The PRC is promoting its governance model and attempting to weaken other models of governance by-
 
-(A) undermining democratic institutions;
 
-(B) subverting financial institutions;
+前总统川普今日GAB回应此新闻道：
 
-(C) coercing businesses to accommodate the policies of the PRC; and
+拜登政府允许美国食品和药物管理局（FDA）和疾病预防控制中心（CDC）叫停强生公司COVID-19（中共病毒大流行）疫苗的使用，这对全世界的人民都是一种可怕的伤害。这种疫苗的效果已经非同一般，但现在它的声誉将受到永久性的挑战。已经使用过该疫苗的人都会起哄，也许这一切都是为了政治，也许是FDA对辉瑞的偏爱。FDA，尤其是内部存在长期官僚的人，必须得到控制。他们不应该因为可能是政治原因，或者是由于他们在辉瑞公司的朋友建议，才会做出这样的破坏。他们会做这样的事情，让自己看起来很重要。记住，是FDA与辉瑞公司合作，在2020年总统大选后两天宣布批准疫苗。他们不怎么喜欢我，因为我把他们逼得非常紧。但如果我不这样做，你3-5年内都不会有疫苗，也许根本就没有。他们要花好几年的时间来行动！做好检测，清理记录，尽快让强生疫苗重新上线。唯有我们伟大的疫苗，才能打败中（共）国病毒! （[https://gab.com/realdonaldtrump](https://gab.com/realdonaldtrump)）
 
-(D) using disinformation to disguise the nature of the actions described in subparagraphs (A) through (C).
 
-(11) The PRC is close to its goal of becoming the global leader in science and technology. In May 2018, President Xi said that for the PRC to reach “prosperity and rejuvenation “, it needs to ” endeavor to be a major world center for science and innovation”. The PRC has invested the equivalent of billions of dollars into education and research and development and established.
 
-(12) The PRC’s drive to become a “manufacturing and technological superpower ” and to pro -mote innovation with Chinese characteristics is coming at the expense of human rights and long-standing international rules and norms with respect to economic competition, and presents a challenge to United States national security and the security of allies and like-minded countries. In particular, the
+据JustTheNews, 中共国疾病预防控制中心主任高福周六表示：”我们将解决目前疫苗保护率不高的问题。”这是中国政府罕见地承认与病毒有关的失败或缺陷。
+不过，高福周日告诉美联社，他说的是全世界的疫苗，而不仅仅是中国制造的疫苗。他说，政府计划开始将它们混合使用，以提高效果。
 
-PRC advances its illiberal political and social policies through mass surveillance, social credit systems, and a significant role of the state in internet governance. Through these means, the PRC increases direct and indirect government control over its citizens’ everyday lives. Its national strategy of ‘‘civil-military fusion’’ mandates that civil and commercial research, which increasingly drives global innovation, is leveraged to develop new military capabilities.
+小议，这会是怎样的信号和误导？是此前Merrit 博士提出的病毒特洛伊木马要上演了吗？
 
-(13) The PRC is using legal and illegal means to achieve its objective of becoming a manufacturing
 
-and technological superpower. The PRC uses state directed industrial policies in anticompetitive ways to ensure the dominance of PRC companies. The CCP engages in and encourages actions that actively undermine a free and open international market, such as intellectual property theft, forced technology
 
-transfers, regulatory and financial subsidies, and mandatory CCP access to proprietary data as part of
+> Top Chinese health official admits domestic [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) vaccines have low effectiveness [#JustTheNews](https://twitter.com/hashtag/JustTheNews?src=hash&amp;ref_src=twsrc%5Etfw) [@nicks847](https://twitter.com/nicks847?ref_src=twsrc%5Etfw) [https://t.co/5pJLtd5urB](https://t.co/5pJLtd5urB)
+> — Just the News (@JustTheNews) [April 12, 2021](https://twitter.com/JustTheNews/status/1381590432451289094?ref_src=twsrc%5Etfw)
 
-business and commercial agreements between Chinese and foreign companies.
 
-(14)The policies referred to in paragraph (13) are designed to freeze United States and other foreign firms out of the PRC market, while eroding competition in other important markets. The heavy
 
-subsidization of Chinese companies includes potential violation of its World Trade Organization
 
-commitments. In May 2018, President Xi said that the PRC aims to keep the ‘‘initiatives of innovation and development security . . . in [China’s] own hands’’.
 
-(15) The PRC is advancing its global objectives through a variety of avenues, including its signature
+## 联欧对抗“恶毒的国家行为者”
 
-initiative, the Belt and Road Initiative (referred to in this section as ‘‘BRI’’), which is enshrined in the Chinese Constitution and includes the Digital Silk Road and Health Silk Road. The PRC describes BRI as a straightforward and wholly beneficial plan for all countries. Eventually, it seeks to advance an economic system with the PRC at its center, making it the most concrete geographical representation of the PRC’s global ambitions.BRI increases the economic influence of state-owned Chinese firms in
+布林肯国务卿今日推文：我们已抵达布鲁塞尔，期待着与我们的欧洲伙伴讨论关键的优先事项。我们还将继续就这些问题与我们最亲密的盟友进行重要接触，因为**我们期待着共同面对恶毒的国家行为者和其他共同的挑战。**
 
-global markets, enhances the PRC’s political lever age with government leaders around the world, and provides greater access to strategic nodes such as ports and railways. Through BRI, the PRC seeks
 
-political deference through economic dependence.
 
-(16) The PRC is executing a plan to establish regional hegemony over the Indo-Pacific and displace the United States from the region. As a Pacific power, the United States has built and supported enduring alliances and economic partnerships that secure peace and prosperity and promote the rule of law and political pluralism in a free and open Indo-Pacific. In contrast, the PRC uses economic and military coercion in the region to secure its own interests.
+> Arrived in Brussels and look forward to discussing key priorities with our European partners. We will also continue our important engagement with our closest Allies on these issues as we look to confront malign state actors and other shared challenges.
+> — Secretary Antony Blinken (@SecBlinken) [April 13, 2021](https://twitter.com/SecBlinken/status/1381868402239811586?ref_src=twsrc%5Etfw)
 
-(17) The PRC’s military strategy seeks to keep the United States military from operating in the Western Pacific and erodes United States security guarantees.
 
-(18) The PRC is aggressively pursuing exclusive control of critical land routes, sea lanes, and air space in the Indo-Pacific in the hopes of eventually exercising greater influence beyond the region. This includes lanes crucial to commercial activity, energy exploration, transport, andthe exercise of security operations in areas permitted under international law.
 
-(19)The PRC seeks so-called ‘‘reunification’’ with Taiwan through whatever means may ultimately be required. The CCP’s insistence that so-called ‘‘reunification’’ is Taiwan’s only option makes this goal inherently coercive. In January 2019, President Xi stated that the PRC ‘‘make[s] no promise to renounce the use of force and reserve[s] the option of taking all necessary means’’. Taiwan’s embodiment of democratic values and economic liberalism challenges President Xi’s goal of achieving
+## 核处理
 
-national rejuvenation. The PRC plans to exploit Taiwan’s dominant strategic position in the First Island
+我们感谢日本努力在处置福岛第一核电站处理水方面所做工作的透明性。我们期待着日本政府继续与国际原子能机构的合作。
 
-Chain and to project power into the Second Island Chain and beyond.
 
-(20) In the South China Sea, the PRC has executed an illegal island-building campaign that threatens freedom of navigation and the free-flow of commerce, damages the environment, bolsters the PLA power projection capabilities, and coerces and intimidates other regional claimants in an effort to advance its unlawful claims and control the waters around neighboring countries. Despite President Xi’s September 2015 speech, in which he said the PRC was not militarizing the South China Sea, during
 
-the 2017 19th Party Congress, President Xi announced that ‘‘construction on islands and reefs in the South China Sea have seen steady progress’’.
+> We thank Japan for its transparent efforts in its decision to dispose of the treated water from the Fukushima Daiichi site. We look forward to the Government of Japan's continued coordination with the [@iaeaorg](https://twitter.com/iaeaorg?ref_src=twsrc%5Etfw).
+> — Secretary Antony Blinken (@SecBlinken) [April 13, 2021](https://twitter.com/SecBlinken/status/1381769108316954626?ref_src=twsrc%5Etfw)
 
-(21) The PRC is rapidly modernizing the PLA to attain a level of capacity and capability superior to the United States in terms of equipment and conduct of modern military operations by shifting its military doctrine from having a force ‘‘adequate [for] China’s defensive needs’’ to having a force ‘‘commensurate with China’s international status’’. Ultimately, this transformation could enable China
 
-to impose its will in the Indo-Pacific region through the threat of military force. In 2017, President Xi
 
-established the following developmental benchmarks for the advancement of the PLA:
 
-(A) A mechanized force with increased informatized and strategic capabilities by 2020.
 
-(B) The complete modernization of China’s national defense by 2035.
+## 团结穆斯林人
 
-(C) The full transformation of the PLA into a world-class force by 2050.
+国务卿布林肯于今日穆斯林斋月季开始日，讲话强调对穆斯林人在抗疫一线工作的感谢，他发推称“今天，我祝愿美国和世界各地的所有穆斯林过一个幸福的斋月。”
 
-(22) The PRC’s strategy and supporting policies described in this section undermine United States interests, such as—
 
-(A) upholding a free and open international order;
 
-(B) maintaining the integrity of international institutions with liberal norms and values;
+> Today I wish all Muslims in the United States and around the world a blessed Ramadan. [#RamadanKareem](https://twitter.com/hashtag/RamadanKareem?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/e3gSiZCG14](https://t.co/e3gSiZCG14)
+> — Secretary Antony Blinken (@SecBlinken) [April 12, 2021](https://twitter.com/SecBlinken/status/1381603531115876354?ref_src=twsrc%5Etfw)
 
-(C) preserving a favorable balance of power in the Indo-Pacific;
 
-(D) ensuring the defense of its allies;
 
-(E) preserving open sea and air lanes;
 
-(F) fostering the free flow of commerce through open and transparent markets; and
 
-(G) promoting individual freedom and human rights.
+## 中共病毒疫情对人的控制
 
-(23) The global COVID–19 pandemic has intensified and accelerated these trends in the PRC’s behavior and therefore increased the need for United States global leadership and a competitive posture. The PRC has capitalized on the world’s focus on the COVID–19 pandemic by—
+The Blaze 4月8日一篇报道，YouTube删除了罗里达州州长罗恩-德桑蒂斯弗与有资质的医学专家在圆桌会议上讨论中共病毒疫情大流行的视频，称其违反了《社区指南》。
 
-(A) moving rapidly to undermine Hong Kong’s autonomy, including imposing a so called ‘‘national security law’’ on Hong Kong;
+文章称3月18日前川普白宫冠状病毒顾问斯科特-阿特拉斯博士、流行病学家苏尼特拉-古普塔教授、研究人员杰伊-巴塔查里亚博士和马丁-库尔多夫博士参加了圆桌会议。
 
-(B) aggressively imposing its will in the East and South China Seas;
+会议指出在流行病期间为减轻病毒传播而采取的公共政策措施，包括隔离健康人、关闭企业和强制佩戴口罩，其部分原因是出于恐惧，而不是出于科学。
 
-(C) contributing to increased tensions with India; and
+马克-卢比奥议员就此发推：“有朝一日，即使是同意此举的人，也会对权力集中到这些未经选举的公众监管人手中而感到遗憾。”
 
-(D) engaging in a widespread and government-directed disinformation campaign to obscure the PRC Government’s efforts to cover up the seriousness of COVID–19, sow confusion about the origination of the outbreak, and discredit the United States, its allies, and global health efforts.
 
-(24) In response to the PRC’s strategy and policies, the United States must adopt a policy of strategic competition with the PRC to protect and promote our vital interests and values.
 
-(25) The United States’ policy of strategic competition with respect to the People’s Republic of China is part of a broader strategic approach to the Indo-Pacific and the world which centers with United States allies and partners to advance shared values and interests and to preserve and enhance a free, open, democratic, inclusive, rules-based, stable, and diverse region.
+> According to reports [@google](https://twitter.com/Google?ref_src=twsrc%5Etfw) [@YouTube](https://twitter.com/YouTube?ref_src=twsrc%5Etfw) censored video of a roundtable by [@GovRonDeSantis](https://twitter.com/GovRonDeSantis?ref_src=twsrc%5Etfw) 
+> 
+> The day is coming when even those who agree with this move will regret the power concentrated into the hands of these unelected gatekeepers of the public square [https://t.co/f8ZM0z0Z0a](https://t.co/f8ZM0z0Z0a)
+> — Marco Rubio (@marcorubio) [April 9, 2021](https://twitter.com/marcorubio/status/1380533397546745858?ref_src=twsrc%5Etfw)
+
+
+
+## “一切都已经开始”？
+
+当日卢比奥议员推文：劳尔-卡斯特罗卸任#古巴共产党党魁并不是真正的改变。但真正的变革已经在进行中了。
+
+
+
+> Raul Castro stepping down as head of the Communist Party in [#Cuba](https://twitter.com/hashtag/Cuba?src=hash&amp;ref_src=twsrc%5Etfw) isn’t real change
+> 
+> But real change is already underway nonetheless
+> — Marco Rubio (@marcorubio) [April 13, 2021](https://twitter.com/marcorubio/status/1381944695408975874?ref_src=twsrc%5Etfw)
+
+
+
+## 抨击拜登
+
+前川普竞选官员大卫-博西（David Bossie）在周一“真正美国之音”节目中接受采访时抨击拜登总统大谈“团结”，拜登“绝对是这个国家有史以来最激进、最左翼的社会主义总统”。
+
+
+
+> .[@David\_Bossie](https://twitter.com/David_Bossie?ref_src=twsrc%5Etfw): [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) is ‘most radical, left-wing socialist president’ America has ever had [#JustTheNews](https://twitter.com/hashtag/JustTheNews?src=hash&amp;ref_src=twsrc%5Etfw) [@alexnitzberg](https://twitter.com/alexnitzberg?ref_src=twsrc%5Etfw) [https://t.co/wrPmRvCQ2I](https://t.co/wrPmRvCQ2I)
+> — Just the News (@JustTheNews) [April 13, 2021](https://twitter.com/JustTheNews/status/1381763973893271554?ref_src=twsrc%5Etfw)
+
+
+
+## 与中共国大战
+
+Newsmax 今日重磅节目，堪称美国舆论先导，今日的内容是美国舆论的试水器、搅拌器，官方定论的序曲，将成为未来美国民众的广泛认识。内容概括如下。
+
+节目标题：“共产中国的同盟在美国”。红色字体强调“与中（共）国的大战”，主持人在节目中劲爆：“拜登政府确实正在使美国处在共产中国的控制之下，中共国是当今对人类的巨大威胁。拜登副总统2011年时在说服美国，称邪恶帝国中共国崛起对美国是有利的。”历史视频中，拜登说“崛起的中（共）国是积极的进步，不仅对中（共）国自身，对美国和西方世界都是。”主持人说，这个说法过去和现在都是谎言，中（共）国崛起过去和现在都是对世界的灾难。拜登政府让之崛起的是下一个希特勒，以及希特勒的整个政府和军队的愚弄。”节目播放了李毅讲话的著名桥段，“只要中国人每天都吃饭睡觉作息，就把美国逼死了”。主持人说，“把美国逼死就是拜登所说的对美国‘积极的进步’。过去几十年发生的事情显示了中(共)国气焰嚣张，中（共）国故意散布病毒导致了疫情大流行。再看看拜登今天说什么，啊！中共国要把美国逼死，可是拜登却对中共国不要对抗只是竞争！”“拜登的国务卿布林肯对宇宙最大的人权侵犯者却说不进行对抗！”
+
+主持人指出，中共国对黑人的歧视最严重。中共国社交媒体、国家审查言论广泛歧视黑人，把非洲人标榜成强奸犯、贩毒者、艾滋病携带者。中共国和所有共产主义一样是骗子。黑命贵运动为什么对中共国歧视黑人的种族歧视沉默？ANTIFA从美国内部摧毁美国，中共从外部工作摧毁美国。中共国是美国最大的威胁！
+
+
+
+> Rep. Guy Reschenthaler said this piece by Newsmax TV's Chris Salcedo on Communist China should be viewed by all incoming Congress members: [https://t.co/VlT7z8v2lm](https://t.co/VlT7z8v2lm) [pic.twitter.com/r3bJrUT3Dk](https://t.co/r3bJrUT3Dk)
+> — Newsmax (@newsmax) [April 13, 2021](https://twitter.com/newsmax/status/1381926387255144450?ref_src=twsrc%5Etfw)
+
+
+
+## 川普先生今日GAB
+
+假新闻CNN，依靠所有的匿名消息来源，也就是说他们很可能编造了整件事情，写了一个非常不诚实的故事，声称国会议员马特-盖茨要求在佛罗里达州棕榈滩的Mar-a-Lago与我见面，但被拒绝了。这完全是假的。CNN为什么不调查和写轻如鸿毛的民主党议员埃里克-斯沃尔韦尔（Eric Swalwell），他与中共国间谍方方有过一段复杂的身体关系，但不知为何却曾任职于声名显赫的众议院情报委员会。斯沃韦尔曾参加总统竞选，却在民调中以创纪录的0选票落选，他已经成为美国国家安全威胁–他应该立即被从委员会中除名! （[https://gab.com/realdonaldtrump/posts/106055482361552886](https://gab.com/realdonaldtrump/posts/106055482361552886)）
+
+
+
+## 未来股市
+
+今日彭博社发推关于亚洲股市攀升的文章，却在推文中使用这样的图片，文字：“股市未来下跌”。这是对西方民众的警示。
+
+
+
+> Stock futures drop [https://t.co/nx3sI68ASw](https://t.co/nx3sI68ASw) [pic.twitter.com/GycUE4CuKT](https://t.co/GycUE4CuKT)
+> — Bloomberg Markets (@markets) [April 13, 2021](https://twitter.com/markets/status/1381927204171436036?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
 
 0
