@@ -1,225 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日信息拾贝0414.2021
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1092067/)
+## 【香港专题】港版文革2.0（八）清洗教育系统—历史题变政治问题
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1092679/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+搜集\编撰：文法 / 封面合成：文粤
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)
-图片来源：康州盘古农场 霹雳年
+**香港受港英殖民地政府统治一百五十年，深受自由主义熏陶。因此，香港的核心价值自由和法治始终发挥应有的意识形态作用，当红色政权欲占领香港，在整个反送中运动中，学生走在历史转折的惊涛骇浪的最前方，因为他们最担忧的是未来。教育局指，自2019开始的香港反送中示威活动中，分别约有 10 名专上院校教职员及 100 名中小学教职员因社会事件而被捕。同时，有大约 2,000 名专上院校学生，及约 1,600 名 18 岁以下未成年人士因涉及社会事件被捕。**
 
-## 中共病毒真相—充分肯定了爆料革命
+**中共试图将香港发展红色专政的根据地，改变香港人的思想才能维稳统治。改变意识形态即需文化大革命，教育界的文革，方法无非是“整风运动”、“人斗人”、外行专政内行，篡改历史真相教材等手段。相信这场预谋早已开始，只是等待一个时机。**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/41412.jpg)
+**一道热炒的历史题引发的政治风波**
 
-4月14日凌晨劳伦斯-塞林博士爆料作战愈战愈勇，针对在欧洲PMC发表的中共洗地报告《从中国云南省蝙蝠身上分离到的具有复杂重组的新型SARS-CoV-2相关病毒》，塞林博士把火来战友关于天使科学家闫丽梦博士和路德先生的海报发推，称：
+2020年5月香港中学文凭考试历史科考试中的历史题激起一次政治风波，就一条让考生评论「1900至1945年间日本对中国带来利多于弊」的开放式问题，教育局深夜发宣言措辞严厉，强力谴责审查官局要公开交代，并指向“严重伤害日本侵华战争中受莫大苦难的国民的感情和尊严”；其后群魔乱舞，建制派，党媒大公报，北京五毛群起而攻之，将本身而无人留意的DSE历史科试题炒成热话。教育局要求考评局取消此考题，相关试题最终取消。历史科试题风波爆出之后，出题的考评局评核发展部经理（历史）杨颖宇于Facebook 私下发表的「没有日本侵华，哪有新中国」的帖文截图，随即被《大公报》等刊登以及大肆抨击。杨颖宇已经在2020年8 月请辞，据《苹果日报》及《明报》报道，杨近日离职前向考评局同事发道别电邮，披露请辞是因庞大政治压力，指教局完成调查后，自己亦势将被解雇。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/41413.jpg)
+这道题是开放式题目，考生大可以回答弊大于利。其次，此题的期间是1900-1945，并非只包括侵华史，晚清时期日本政制对清廷宪政改革有重大的参考价值和贡献。当局完全忽视1900-1931之间的历史事实，突揪斗侵华史此为何意？
 
-“2018年 “新发现 “的PrC31蝙蝠冠状病毒是否是中共科学家用来支撑中共病毒大流行欺诈性的自然来源理论的，是另一个RaTG13一样的假序列？
-敬请关注。
+日本发起二战，侵略中国及东亚等地区，这段历史是不争的事实。透过分析，思考从正反两面去讨论一个本身已经被广泛定性的话题，引起这么大的风波，暗流涌动，教育问题又变成了政治问题，文革风再现。
 
-#中共病毒 #超限生物武器 #冠状病毒[https://europepmc.org/article/PPR/PPR299488](https://europepmc.org/article/PPR/PPR299488)”
+1900至1945年间的“中共国”即包括了晚清，也包括了中华民国而不是中共国，要伤害也该是伤害中华民国国民的感情和尊严？中共代表了前朝的国民来谈伤害感情的话题，实在不合逻辑。
 
+**若无日本侵华，就无中共国**
 
+历史从来都是具有两面性，再具争议的历史人物都有功过评价，读历史就是要了解正反两面的历史观再作出客观的评论。但中共不尊重历史，不讲事实，更不允许独立思考。
 
-> Is the "newly discovered" 2018-isolated PrC31 bat coronavirus another RaTG13-like fake sequence used by CCP scientists to buttress the fraudulent naturally-occurring theory of the [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw)?
-> Stay tuned.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/CKnRE64l4y](https://t.co/CKnRE64l4y) [pic.twitter.com/ClZUrgbWP1](https://t.co/ClZUrgbWP1)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 14, 2021](https://twitter.com/LawrenceSellin/status/1382229297302278144?ref_src=twsrc%5Etfw)
+如果没有日本侵华，那么蒋介石就不会因为对抗日本而改变攘外必先安内的政策，也就给了中共发展壮大的机会，在后方发展根据地。如果无当年日本侵华，以毛泽东为首的共产党早就被蒋介石成功清党，「二万五千里长征」逃至陕北苟延残喘，差点全军覆没。抗日战争对中共国而言当然是利大于弊。没有抗日战争，就没有中共国的存在。毛泽东曾多次感谢过日本侵华，听起来是一种黑色幽默，实际彼道理正是此道理。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/41414.jpg)
+红色文化的基因就是对独立之自由思想的霸凌，只搞一言堂，只有伟光正和假大空。所以才有今天发展越来越可怕的”各种精神“领导的中共国，港府俯首贴耳，教育局长在记者会上称“只有弊，没有利。” 是将教育带进了“听党话”、“跟党走”的一言堂。
 
+港府这次行为，除了对考生造成严重不公，更会大大削弱文凭试的国际认受性。港府这次种下祸根，严重侵蚀了学术自由。中共为求“政治正确”罔顾历史事实，让后代子孙只知道片面和有误导性的“历史事实”，抹杀了炎黄子孙对历史真相的知情权，更扼杀了学子的独立思考和批判能力。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/41416.jpg)
+【本文观点仅代表笔者个人】
 
+资料来源：
 
+[立场新闻 ：](https://www.thestandnews.com/politics/%E6%95%99%E8%82%B2%E5%B1%80-110-%E5%A4%A7%E4%B8%AD%E5%B0%8F%E5%AD%B8%E6%95%99%E8%81%B7%E5%93%A1-3600-%E5%AD%B8%E7%94%9F%E5%9B%A0%E7%A4%BE%E6%9C%83%E9%81%8B%E5%8B%95%E8%A2%AB%E6%8D%95/?fb_comment_id=2987621761325409_2989974647756787)[110 大中小学教职员。 。 。](https://www.thestandnews.com/politics/%E6%95%99%E8%82%B2%E5%B1%80-110-%E5%A4%A7%E4%B8%AD%E5%B0%8F%E5%AD%B8%E6%95%99%E8%81%B7%E5%93%A1-3600-%E5%AD%B8%E7%94%9F%E5%9B%A0%E7%A4%BE%E6%9C%83%E9%81%8B%E5%8B%95%E8%A2%AB%E6%8D%95/?fb_comment_id=2987621761325409_2989974647756787)
 
+[立场新闻 ：教育局打开新文革第一枪，。 。 。](https://www.thestandnews.com/politics/%E6%95%99%E8%82%B2%E5%B1%80%E6%89%93%E9%96%8B%E6%96%B0%E6%96%87%E9%9D%A9%E7%AC%AC%E4%B8%80%E6%A7%8D-%E6%AD%B7%E5%8F%B2%E7%9C%9F%E7%9B%B8%E6%B0%B8%E9%81%A0%E4%BF%82%E6%A5%B5%E6%AC%8A%E6%AD%BB%E7%A9%B4/)
 
-美国灭共进入信息反制战、舆论引导战。4月13日皮特纳瓦罗博士在华盛顿时报发表文章《蝠奇博士是 “大流行之父 “吗？》，文章称蝠奇博士所在的美国国立卫生研究院将美国纳税人的钱–约700万美元–注入武汉病毒实验室。
+[立场新闻 ：教育局长荒谬绝伦；文革式批斗种祸根](https://www.thestandnews.com/politics/%E6%95%99%E8%82%B2%E5%B1%80%E9%95%B7%E8%8D%92%E8%AC%AC%E7%B5%95%E5%80%AB-%E6%96%87%E9%9D%A9%E5%BC%8F%E6%89%B9%E9%AC%A5%E7%A8%AE%E7%A6%8D%E6%A0%B9/)
 
-英雄科学家闫博士转推这篇文章时引用纳瓦罗博士的话：
+[立场新闻 ：考评局三度回应历史科试题被指偏颇。 。 。](https://www.thestandnews.com/politics/%E8%80%83%E8%A9%95%E5%B1%80%E4%B8%89%E5%BA%A6%E5%9B%9E%E6%87%89%E6%AD%B7%E5%8F%B2%E7%A7%91%E8%A9%A6%E9%A1%8C%E8%A2%AB%E6%8C%87%E5%81%8F%E9%A0%97-%E5%8D%81%E5%88%86%E9%87%8D%E8%A6%96%E6%95%99%E8%82%B2%E5%B1%80%E5%8F%8A%E5%A4%96%E7%95%8C%E6%84%8F%E8%A6%8B-%E5%B0%87%E5%9A%B4%E8%82%85%E8%B7%9F%E9%80%B2%E8%99%95%E7%90%86/)
 
-“如果一种致命的病毒在亚洲唯一的生物武器实验室几公里范围内出现，根据奥卡姆剃刀（简约法则），最简单的解释通常是正确的。因此，SARS-CoV-2来自武汉实验室。”
+导读：
 
-#超限生物武器”
+[【香港专题】 港版文革](https://gnews.org/zh-hans/1054640/)[2.0（一）国安举报热线 「文革式人斗人」](https://gnews.org/zh-hans/1054640/)
 
+[【香港专题】 港版文革](https://gnews.org/zh-hans/1064838/)[2.0（二）中共以『文化央企』荼毒出版界 图推动「人心回归」](https://gnews.org/zh-hans/1064838/)
 
+[【香港专题】 港版文革](https://gnews.org/zh-hant/1066816/)[2.0（三）香港主流媒体「染红」自我审查 严重实为政府喉舌](https://gnews.org/zh-hant/1066816/)
 
-> “If a deadly virus pops up within several kilometers of the only bio-weapons lab in Asia, the simplest explanation, according to Occam’s razor, is usually the right one. Ergo, SARS-CoV-2 came from the Wuhan Lab.”
-> – Dr. Peter Navarro[#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/DUhplmLfnE](https://t.co/DUhplmLfnE)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 13, 2021](https://twitter.com/DrLiMengYAN1/status/1382060042933956611?ref_src=twsrc%5Etfw)
+[【香港专题】 港版文革](https://gnews.org/zh-hans/1069543/)[2.0（四）政府操弄电台发牌权 中共式记者发牌制移植香港](https://gnews.org/zh-hans/1069543/)
 
+[【香港专题】 港版文革](https://gnews.org/zh-hans/1072492/)[2.0（五）特首选战之 689 VS 777（上篇）](https://gnews.org/zh-hans/1072492/)
 
+[【香港专题】 港版文革](https://gnews.org/zh-hans/1072579/)[2.0（五）特首选战之 689 VS 777（下篇）](https://gnews.org/zh-hans/1072579/)
 
-MSN报道：CNN首席医学记者古普塔（Sanjay Gupta）博士打破束缚，表示支持前疾控中心主任Robert Redfield博士的观点，即导致COVID-19的病毒很可能从武汉的实验室意外泄漏。
+[【香港专题】 港版文革](https://gnews.org/zh-hans/1078360/)[2.0（六）整风运动 之 红蓝互斗](https://gnews.org/zh-hans/1078360/)
 
-纳瓦罗博士4月13日就此发推：“恭喜古普塔打破陈规。 CNN注意： 现在选举已经结束了，不如我们回去讲讲真相吧。99.9%的可能性是病毒来自蝠奇资助的武汉实验室。联系起来想想吧。”
+[【香港专题】港版文革](https://gnews.org/zh-hans/1084193/)[2.0（七）整风运动之黄雀在后](https://gnews.org/zh-hans/1084193/)
 
-
-
-> Congrats to Gupta for breaking ranks. Note to CNN: Now that election is over, how about we get back to some truth-telling. 99.9% probability virus came from Wuhan Lab — which Fauci funded! connect the dots!! [@CNN](https://twitter.com/CNN?ref_src=twsrc%5Etfw) [@JohnBerman](https://twitter.com/JohnBerman?ref_src=twsrc%5Etfw) [@drsanjaygupta](https://twitter.com/drsanjaygupta?ref_src=twsrc%5Etfw) [https://t.co/V1Is0Kn6h6](https://t.co/V1Is0Kn6h6)
-> — Peter Navarro (@RealPNavarro) [April 13, 2021](https://twitter.com/RealPNavarro/status/1382047171705503745?ref_src=twsrc%5Etfw)
-
-
-
-## 与中共国大战开篇
-
-4月14日Newsmax电视主播Chris Salcedo本周将开始系列节目“与中（共）国大战”。他在早前的视频中曾语出惊人，称：
-
-“美国处在共产中国的控制之下……中共国是当今对人类自由巨大的威胁。中（共）国崛起过去和现在都是对世界的灾难……拜登政府让之崛起的是下一个希特勒，以及希特勒对整个政府和军队的愚弄……中（共）国故意散布病毒导致了疫情大流行……中共国要把美国逼死，可是拜登却对中共国不要对抗只是竞争！”
-
-他还指出，中共国对黑人的歧视最严重。中共国社交媒体、国家审查言论广泛歧视黑人，把非洲人标榜成强奸犯、贩毒者、艾滋病携带者。中共国和所有共产主义一样是骗子。黑命贵运动为什么对中共国歧视黑人的种族歧视沉默？ANTIFA从美国内部摧毁美国，中共从外部工作摧毁美国。中共国是美国最大的威胁！
-
-
-
-> Chris Salcedo details the human rights violations of CCP – 'how can they get away with this?' [https://t.co/VlT7z8drtO](https://t.co/VlT7z8drtO) [pic.twitter.com/Y33MSEqRQv](https://t.co/Y33MSEqRQv)
-> — Newsmax (@newsmax) [April 13, 2021](https://twitter.com/newsmax/status/1382113873650679808?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> Rep. Guy Reschenthaler said this piece by Newsmax TV's Chris Salcedo on Communist China should be viewed by all incoming Congress members: [https://t.co/VlT7z8v2lm](https://t.co/VlT7z8v2lm) [pic.twitter.com/r3bJrUT3Dk](https://t.co/r3bJrUT3Dk)
-> — Newsmax (@newsmax) [April 13, 2021](https://twitter.com/newsmax/status/1381926387255144450?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 股市“胖手指”
-
-巴克莱银行(Barclays Plc)股价短线下跌高达9.9%，创下一年多来盘中跌幅之最，交易员称这很可能是由于一个被称为 “胖手指 “的交易错误。
-
-
-
-> Barclays share price rebounds after a so-called “fat finger” trading error [https://t.co/IfSAR6Xhgw](https://t.co/IfSAR6Xhgw) [pic.twitter.com/UYpLYmYEYD](https://t.co/UYpLYmYEYD)
-> — Bloomberg (@business) [April 14, 2021](https://twitter.com/business/status/1382249386005172224?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 苏伊士运河
-
-苏伊士运河长达一周的堵塞后，新加坡为从苏伊士港出发的集装箱船潮做准备。
-
-
-
-> One of Asia’s busiest ports is preparing for an influx of ships after a week-long blockage at the Suez Canal [https://t.co/WvWsvbnAxO](https://t.co/WvWsvbnAxO)
-> — Bloomberg (@business) [April 14, 2021](https://twitter.com/business/status/1382239464228069381?ref_src=twsrc%5Etfw)
-
-
-
-## 起诉拜登
-
-据Newsmax, 德州就拜登取消川普的 “留守墨西哥 “规则提起诉讼。
-
-
-
-> Texas sues over Biden scrapping Trump's 'stay in Mexico' rule: [https://t.co/wkSBiqlYJi](https://t.co/wkSBiqlYJi) [pic.twitter.com/ZqLd2X1tEU](https://t.co/ZqLd2X1tEU)
-> — Newsmax (@newsmax) [April 14, 2021](https://twitter.com/newsmax/status/1382249798074503168?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 
-
-
-
-## 信息通讯技术供应链规范落实行动
-
-今日美国商务部发布美国商务部关于根据信息通讯技术供应链行政命令采取的行动的声明。内容如下。
-
-今天，商务部向一家中国公司发出传票，以支持根据第13873号行政命令 “确保信息和通信技术及服务供应链安全 “对交易进行审查。今天采取的行动是调查涉及该公司的交易是否符合行政命令规定的标准的重要一步。
-
-在美国不受限制地获取或使用由外国对手所拥有、控制或受其管辖或指示的人所设计、开发、制造或供应的信息通讯技术供应链，对美国的国家安全利益构成重大威胁。今天送达的传票使商务部能够收集有助于确定美国及其公民安全所面临的潜在风险的信息。商务部希望与该公司合作，完成彻底审查。
-
-
-
-> U.S. Department of Commerce Statement on Actions Taken Under ICTS Supply Chain Executive Order: [https://t.co/u5rL89X19d](https://t.co/u5rL89X19d)
-> — U.S. Commerce Dept. (@CommerceGov) [April 13, 2021](https://twitter.com/CommerceGov/status/1381994751738667013?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 中共国中介公司
-
-据彭博社，中共国学生向中共国中介公司支付12000美元或更多的费用，以获得实习机会，并最终在高盛和花旗集团等华尔街权贵公司找到工作。
-
-
-
-> Chinese firms are charging $12,000 or more to help students land internships and eventually jobs at Wall Street powerhouses such as Goldman Sachs and Citigroup [https://t.co/BjLgeNi9NC](https://t.co/BjLgeNi9NC)
-> — Bloomberg (@business) [April 14, 2021](https://twitter.com/business/status/1382257844427317249?ref_src=twsrc%5Etfw)
-
-
-
-## 核处理
-
-日本政府已决定在两年内开始将福岛核电站处理后的放射性水排放到太平洋中–这一方案遭到渔民、居民和日本邻国的激烈反对。
-
-
-
-> Japan's government has decided to start releasing treated radioactive water from the Fukushima nuclear plant into the Pacific Ocean in two years — an option fiercely opposed by fishermen, residents and Japan's neighbors. [https://t.co/UaLE2qnwMu](https://t.co/UaLE2qnwMu)
-> — NBC News (@NBCNews) [April 14, 2021](https://twitter.com/NBCNews/status/1382246273248530433?ref_src=twsrc%5Etfw)
-
-
-
-4月14日据NBC新闻，白宫表示，在乌克兰局势日益紧张的情况下，美国总统拜登建议在未来几个月内与普京总统 “在第三国 “会面，讨论美俄两国面临的问题。
-
-
-
-> President Biden suggests meeting President Putin “in a third country” in the coming months to discuss issues facing the U.S. and Russia amid growing tensions in Ukraine, the White House says. [https://t.co/EBupgpEkB5](https://t.co/EBupgpEkB5)
-> — NBC News (@NBCNews) [April 14, 2021](https://twitter.com/NBCNews/status/1382238480730882048?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 台湾外交
-
-据华尔街时报，台湾岛未来与北京的紧张关系将加剧之时，率领拜登政府派出的第一个非官方代表团访台。来自康涅狄格州的前民主党参议员克里斯托弗-多德（Christopher J. Dodd）和前国务院高级官员理查德-阿米蒂奇（Richard Armitage）和詹姆斯-斯坦伯格（James Steinberg）已于当地时间周三14日下午到达台北。
-
-
-
-> A former U.S. senator and two former senior State Department officials are traveling to Taiwan, leading the first unofficial delegation dispatched by the Biden administration, amid heightened tensions with Beijing over the island's future by [@chao\_deng](https://twitter.com/Chao_Deng?ref_src=twsrc%5Etfw) [https://t.co/fDQCOUYtI7](https://t.co/fDQCOUYtI7)
-> — WSJ China Real Time (@ChinaRealTime) [April 14, 2021](https://twitter.com/ChinaRealTime/status/1382257393489313793?ref_src=twsrc%5Etfw)
-
-
-
-台湾外交部推文：
-
-台湾、美国、日本和全球反恐论坛开启首次欧盟合作。在#COVID19中加强供应链弹性和#SME响应能力的问题上，志同道合的伙伴们是一致的。衷心感谢欧盟台湾代表Filip Grzegorzewski、德国代表Prinz的支持。
-
-
-
-> Great [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw)🇹🇼, [#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw)🇺🇸, [#Japan](https://twitter.com/hashtag/Japan?src=hash&amp;ref_src=twsrc%5Etfw)🇯🇵 & [#GCTF](https://twitter.com/hashtag/GCTF?src=hash&amp;ref_src=twsrc%5Etfw)-debutants [#EU](https://twitter.com/hashtag/EU?src=hash&amp;ref_src=twsrc%5Etfw)🇪🇺 cooperation! The like-minded partners are on the same page when it comes to strengthening supply chain resilience & [#SME](https://twitter.com/hashtag/SME?src=hash&amp;ref_src=twsrc%5Etfw) responsiveness amid [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw). A big thanks to [@grzegorzewskif](https://twitter.com/grzegorzewskif?ref_src=twsrc%5Etfw) & [#Germany](https://twitter.com/hashtag/Germany?src=hash&amp;ref_src=twsrc%5Etfw)🇩🇪 Rep. Prinz for the support. [pic.twitter.com/9iTgFpoh8J](https://t.co/9iTgFpoh8J)
-> — 外交部 Ministry of Foreign Affairs, ROC (Taiwan) 🇹🇼 (@MOFA\_Taiwan) [April 14, 2021](https://twitter.com/MOFA_Taiwan/status/1382230023860486144?ref_src=twsrc%5Etfw)
-
-
-
-## “COVID-19专利”
-
-据美国专利商标局，美国专利商标局公布人类特殊专利COVID-19类别。
-
-华盛顿–美国专利商标局(USPTO)4月5日宣布，将在其 “人类专利计划 “中为应对COVID-19流行病的发明推出一个特殊类别。这个新的奖励类别将为专利申请人、持有人和被许可人提供商业激励，他们的发明跟踪、预防、诊断或治疗COVID-19。正在开发或已经开发出与COVID-19相关的技术，包括跟踪、诊断、预防或治疗该疾病的技术的相关方，一旦提交专利申请，就有资格提交该奖项的申请。
-
-小议，如果中共作为制造COVID19的邪恶专利人的话，英雄科学家闫博士则是拯救人类的专利人，墨博士是找出初期预防解药的专利人，文贵先生是爆料革命、新中国联邦、灭共、扭转人类黑暗大重启的专利人，爆料革命所有战友是开启和践行新中国联邦文明生态的专利人。
-
-
-
-> Today, the [#USPTO](https://twitter.com/hashtag/USPTO?src=hash&amp;ref_src=twsrc%5Etfw) and [@CommerceGov](https://twitter.com/CommerceGov?ref_src=twsrc%5Etfw) announced a [#Patents4Humanity](https://twitter.com/hashtag/Patents4Humanity?src=hash&amp;ref_src=twsrc%5Etfw) category to recognize innovators whose special inventions have helped address the COVID-19 pandemic. Learn more about the program and eligibility for the award: [https://t.co/PJMC8iS1Wf](https://t.co/PJMC8iS1Wf) [pic.twitter.com/2Jqh6Sb1Kd](https://t.co/2Jqh6Sb1Kd)
-> — USPTO (@uspto) [April 5, 2021](https://twitter.com/uspto/status/1379116717323005952?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-
-
-
-
-
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》希望诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+审稿：文燕 、文粤 / 上传：天网灰灰
 
 0

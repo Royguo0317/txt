@@ -1,17 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月13日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1092318/)
+## 所有四种类型的证据都指向了实验室泄漏
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1092418/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+4/4/2021 布雷特·温斯坦博士：所有四种类型的证据都指向了实验室泄漏。
 
-4月13号第二次发盖特：为什么美国和欧洲．每小时都有灭共的巨大的力量在凝聚和行动？我们战友们一定要客观冷静的看待G系列的投资！
+By： 【秘密翻译组 G-Translators】
 
 
 
-[【2021年4月13日】文贵先生盖特原文](https://gtv.org/getter/6075b586dbc8001854a83ca3)
-
-**喜联盟Gnews编辑部**
-
-0
++1
