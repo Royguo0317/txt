@@ -1,27 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄以新程序任命联邦安全局局长
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1089930/)
+## 【热点播报】参议员霍利：需立法打破大型科技公司垄断
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1089990/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+纽约香草山写作组   四季
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/f-1.jpg)digitalcombatsimulator.com
-04月12日，国家元首只有与联邦委员会协商后才能任命联邦安全局（FSO）局长。相关法令由普京总统签署。该文件已在法律信息的官方门户网站上公布。
+4月13日，加拿大保守在线新闻杂志The Post Millennial 报道了参议员乔希-霍利（Josh Hawley）周二晚上接受福克斯塔克-卡尔森（Tucker Carlson）的采访，谈到了他打算对那些在他看来已经实现非法垄断的大型科技公司进行立法。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-21.png)图片来源：卡尔森节目截图
+该法案是“一项废除现代信任议程，将禁止市场缺口超过1000亿美元的公司进行并购。它还将授权联邦贸易委员会，对在线市场中占主导地位的数字公司进行监管”。
 
-这项法令表示：“俄罗斯联邦安全局的领导是由俄罗斯联邦总统与俄罗斯联邦联邦议会联邦委员会协商后任命的，并由俄罗斯联邦总统解职。”
+卡尔森指出，霍利参议员制定这项立法的时间刚刚好。据悉，有超过100家公司聚在一起，试图想办法修改选举法。
 
-该法令自签署之日起生效。
+霍利说，这个法案“是让美国人民重新控制他们的民主，而不再是这些巨型公司。任何公司都不应该大到如此强大，以至于可以控制政治进程，可以凌驾于选民的意志之上。此外，还将阻止为了成立这样的超大型公司，而进行的公司合并或相互收购。同样，根据这项新法律，银行也将被迫放慢步伐，对违反信托法的人将施加“更严厉的惩罚”。
 
-联邦安全局是负责保护国家总统、政府成员和其他官员的特殊部门。自2016年起，该局由德米特里·科赫涅夫（Dmitry Kochnev）领导，他在2020年晋升为陆军上将。
+霍利希望有一个“反托拉斯法的新焦点”，这应该是关于促进竞争的。自由，在存在竞争时能得到保护，而不是在垄断时得到保护。
 
-此前，安全局局长只能由国家元首任命。同时，总统仍将任命该局的副局长，并确定其人数。
+由于大型科技公司的垄断，他们越来越多的执掌了这个世界的话语权。垄断造成对真正的自由市场的破坏，企业家失去了创新的空间，并且形成了一股政治力量，钳制人民的言论自由。近年来，包括欧盟在内的很多国家都在扩大对大型网络公司的控管，希望降低其对市场的垄断。
 
-去年11月，普京根据去年夏天通过的宪法修正案签署了法律修正案。他们为任命权力集团的部长设置了一个新程序。与联邦安全局长的情况一样，现在国家元首只有在与联邦委员会协商后才能批准他们担任这一职务。
+原文链接：[https://thepostmillennial.com/watch-senator-josh-hawley-lays-out-plans-to-break-up-big-tech-monopolies](https://thepostmillennial.com/watch-senator-josh-hawley-lays-out-plans-to-break-up-big-tech-monopolies)
 
-参考链接：
+审核/发稿：正义的小新
 
-[https://www.rbc.ru/rbcfreenews/607474059a7947301c321d53](https://www.rbc.ru/rbcfreenews/607474059a7947301c321d53)
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0
