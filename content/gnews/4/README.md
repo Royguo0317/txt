@@ -1,55 +1,120 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美左右两派加速核查病毒真相，真相只有一个！CCP你完了！
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1091817/)
+## 中共国对阿里巴巴集团在境内网络零售市场滥用市场支配地位处以超过27.5亿美元罚款
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1092068/)
 
-作者：纽约香草山福音部 能灯山神
+[https://gtv.org/getter/60748247dbc8001854a7fd14](https://gtv.org/getter/60748247dbc8001854a7fd14)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/7C5F72CB-636A-4E7D-B0FB-9EFAEF9A2CF2.jpeg)
+内容：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
+来自路透社(Reuters) 2021年4月10日的推特
+
+China slapped a record 2.75 billion fine on Alibaba after an anti-monopoly probe found the e-commerce gains abused its dominant market position for several years
+
+中共国对阿里巴巴集团控股有限公司在中国境内网络零售平台服务市场滥用市场支配地位处以超过27.5亿美元罚款
+
+Chinese regulators have slapped a 2.75 billion fine on Alibaba
+
+中共国的监管机构已对阿里巴巴处以27.5亿美元的罚款
+
+The e-commerce group founded by Jack Ma
+
+马云成立的该电子商务集团
+
+is accused of violating anti-monopoly rules
+
+被指控违反反垄断规则
+
+And abusing its dominant market position of particular concern was a practice
+
+在中国境内网络零售平台服务市场滥用市场支配地位
+
+where Alibaba is alleged to have forbidden merchants
+
+据称阿里巴巴禁止其商家
+
+from listing on other e-commerce platforms
+
+在其他电子商务平台上市交易
+
+The fine which is equivalent to around four percent of Alibaba’s revenues in 2019,
+
+罚款相当于阿里巴巴2019年收益的约4％，
+
+is the highest ever anti-trust penalty to be imposed in China
+
+是中共国有史以来最高的反垄断处罚
+
+It comes amid an unprecedented regulatory crackdown
+
+发生在前所未有的监管镇压之际
+
+on the country’s homegrown technology conglomerates
+
+在该国本土的技术企业集团中
+
+Ma’s business empire has faced particular scrutiny
+
+马云的商业帝国面临着特别的审查
+
+after he criticized China’s regulatory system back in October
+
+在他十月份批评中共国的监管体系之后
+
+A month later authorities halted a planned 37 billion IPO from Ant Group –
+
+一个月后，有关部门叫停了蚂蚁集团—阿里巴巴的互联网金融部门
+
+Alibaba’s internet finance arm
+
+计划进行的370亿美元的首次公开募股
+
+Then came the launch of the anti-trust probe into Alibaba in late December
+
+然后在12月下旬对阿里巴巴发起反垄断调查
+
+In a statement the Chinese company said
+
+阿里巴巴在一份声明中说
+
+it accepted the regulator’s decision
+
+它接受了监管机构的决定
+
+and would implement the ruling
+
+并将执行该裁定
+
+it added that it wold work to improve corporate compliance
+
+它补充说，这将有助于提高公司的合规性
+
+Beijing has vowed to strengthen oversight of its big tech firms
+
+中共北京发誓要加强对那些跻身在世界上最大
+
+which rank among the world’s largest and most valuable
+
+最有价值的行列的大型科技公司的监督
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接: https://twitter.com/reuters/status/1380873197734617096?s=24
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 -Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 
 
-CNN著名主播古普塔医生认为病毒来自武汉实验室！他在Mediaite采访中支持前CDC主任关于病毒的武汉实验室来源的观点。他说该采访实际长达20多小时，钱CDC主任非常坚定地认为病毒来源于实验室。根据卡姆剃刀原则，这是最合理的来源，主持人坦白。他开始不接受实验室来源一说，因为这之前是共和党一党推动的，而现在不同了……！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片54.png)
-
-CNN著名主播古普塔博士之前专门反对闫博士的报告和论文，现在360度大转弯，非常坚定地完全支持闫博士报告！古普塔站出来非常重要，他是医生出身，又是CNN的当家著名主持，在美国影响力又很大。现在是美国左右两党媒体在一致揭露病毒真相。
-
-正如今天班农先生所说：闫博士和“狂人”郭文贵先生，你们是对的。如果一年前早听你们的，我们可以救几百万人的性命，如果早消灭中共，他们早消失了。就像歌中唱到的，中共被灭，中国人民得自由，世界得安宁。就不会有台湾问题不会有南海问题 ，中共这个跨国犯罪组织早就烟消云散了！
-
-这是个经过了“功能增强性”改造的病毒，闫丽梦博士冒着生命危险离开香港，来到西方，准确地告诉西方人到底发生了什么！她是北京疾控中心内幕的事实证人，她是世界卫生组织香港参考实验室的证人。
-
-今天！纳瓦罗很高兴：我们该如何讲真话呢？99.9%的病毒来自武汉实验室。
-
-今天！前美国CDC总监雷德菲尔德博士公开站出来证实病毒来自武汉实验室这一事实。
-
-今天！前国务卿蓬佩奥也说：有大量证据表明武汉病毒是实验室泄漏而传播的。
-
-从3月1日起到今天刚刚一个多月，美国两党两派一致、明确地告诉中共：CCP，你死定了！
-
-【中国联邦】
-
-爆料革命‼️唯真不破‼️
-
-正道主义‼️万佛万神‼️
-
-敬畏万物‼️感恩天地‼️
-
-同心同德‼️与善同在‼️
-
-校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpg)
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

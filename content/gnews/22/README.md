@@ -1,60 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【樱华乐章5期】抗争乐章 八九六四中的音乐
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1091548/)
+## 【热点播报】CNN 作茧自缚——惊爆炮制假新闻内幕
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1091712/)
 
-作者：喜马拉雅东京樱花团/待命(文晓)
+作者：纽约香草山写作组：文尊
 
-![](https://lh3.googleusercontent.com/eFxHUa4-2aHy-wVPp3FTLHnl-Yzn23YeHed98CloeUYwt3jOebSSfQSH3oYwHt39lufywIWdo8yn9Zh39jmpL8wHhM7WzihEajOOOwtsc7byO0r8xNPdkGXNYQ7lhGd61e_VHYed)
-（图片源自 日本樱花团）
-
-【樱华乐章】记录灭共路上的每一个旋律，本期节目主要介绍的是八九六四中的音乐，童安格为八九六四创作的歌曲《六月四日》。
-
-提起童安格创作演唱的《六月四日》这首歌，想必大多数中国人都没听过。但大家都熟悉《耶利亚女郎》的创作演唱者童安格。
-
-歌曲 耶利亚女郎
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
 
 
-《耶利亚女郎》是童安格在部队当兵时，在男人堆儿里创作的，对爱的美好向往之力作。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片52.png)图片来源：Project Veritas
 
-1989年，童安格制作《梦开始的地方》这部专辑时，自己倾情演唱了《耶利亚女郎》，将其收入专辑中，这首歌让童安格红透中国。但是，大陆歌迷不知道的是，包含了这首歌的专辑《梦开始的地方》里面，还有一首童安格专门为六四创作的歌曲《六月四日》，在港台广为传唱。这首歌被中共列为禁歌，至今墙国的网上仍然查不到，很多国人根本不知道有这首歌･･････
+今天（4月13日）， 由Project Veritas秘密拍摄的一段视频在网络大肆流传，其中揭露了CNN是如何预谋策划了一些列的假新闻，再次证实CNN已经沦为左派的喉舌，只为政治服务。
 
-这是一首什么样的歌，竟使中共吓得不敢让国人听？让我们来看看这首歌的歌词。
+秘密拍摄的视频显示：CNN技术总监Charlie Chester承认网络（媒体）参与了中共“大外宣”，将川普踢出白宫。他加入CNN的原因也是希望成为其中的一员。 比如他们看到川普有一次手发抖，于是他们召集了一大批医护人员共同杜撰了一个故事，目的是要告诉民众川普的健康出了问题，神经系统受损，他不再适合任何工作。相反，在拜登这头，他们捕获的镜头永远都是拜登慢跑这样非常健康的画面。
 
-《六月四日》
+Chester同时还透露了CNN下一步的计划，那就是当人们对COVID疲劳后，CNN就会开始关注气候问题，提高对气候变化的认识。并且表示这项议程已经在他们的办公桌上了。 （请参考气候问题相关文章：[共产主义蚕食世界- 环保主义与灭资计划](https://gnews.org/zh-hans/934497/)）。
 
-天安门前开口说，不吃不喝也不走，长江黄河没有错，因为他们认得我。
+当记者追问“是谁来决定？”时，Chester的回答是网络负责人Jeff Zucker。
 
-风大的谁先过，雨大的说先说，生命谁没有，不能不为真理活。
+CNN一向善于用谎言去制造谎言，总有一天，人们会离你远去，任凭你在谎言中尽情表演。
 
-天安门前开口说，全世界都听得懂，大街小巷都在传，哑巴也会说自由。
+参考消息来源：https://www.projectveritas.com/news/part-1-cnn-director-admits-network-engaged-in-propaganda-to-remove-trump/
 
-风大的谁先过，雨大的说先说，生命谁没有，不能不为真理活。
+校对/发稿：飞虹
 
-万里长城万里长，长城外面是故乡，高粱肥大豆香，遍地黄金少灾殃。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpg)
 
-歌曲[六月四日](https://www.youtube.com/watch?v=Cd4CZIWuuNY)
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
 
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
 
-战友们，我们一起见证了这首歌的歌，歌词中没有一句骂中共的话，没有一句直接指责中共的话，没有一句违反宪法的话。可为什么中共那么怕？为什么中共要剥夺国民听歌的权利？归根结底就中共做贼心虚。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-
-
-**更多详细内容，欢迎点击下方的东京樱花团GTV节目《樱华乐章》进行观看
-**[樱花之声 樱花乐章 抗争乐章 八九六四中的音乐](https://gtv.org/video/id=6074ecfd6e11a756ede1514d)
-
-
-
-
-
-文章只代表作者观点，与GNEWS网站无关
-
-責任編輯：喜马拉雅东京樱花团/文小白
-*发布：喜马拉雅东京樱花团/煙火1095*
-![]()![](https://gnews.org/wp-content/uploads/2021/04/7-7.jpg)
-0413C075h
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0
