@@ -1,17 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月13日 文贵先生盖特 4
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1092353/)
+## 《路德社》精选新闻简讯：以色列媒体称在伊朗核电站发生的“神秘”停电事件“不是一个事故”
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1092530/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-史蒂芬·哈特菲尔博士：因为抹黑羟氯喹，福奇以及美国食品药品管理局的伍德科克要为数十万死去的美国人负责 Dr. Steven Hatfill: Fauci, FDA’s Woodcock Responsible for Hundreds of Thousands of American Deaths for Smearing Hydroxychloroquine
+![]()![](https://gnews.org/wp-content/uploads/2021/04/041401-1.jpg)
 
+伊朗原子能委员会宣布周日发生“事件”，破坏了纳坦兹铀浓缩设施的电网。在《耶路撒冷邮报》的独家报道称，这起神秘事件似乎是外界实体的蓄意攻击，其破坏程度远远超出了伊斯兰共和国目前的官方定义，并强调这不是“意外”。根据报告，所谓的事故似乎是由网络攻击造成的。
 
+纳坦兹的设施以前曾在2020年6月的一次袭击中被破坏，造成了大火，后来广泛地被以色列情报局监视。该设施最近的一次重大停电事件进一步导致人们广泛怀疑以色列对该地点发动了另一场破坏性的网络攻击。
 
-[【2021年4月13日】文贵先生盖特原文](https://gtv.org/getter/60764f5ddbc8001854a85a9b)
+中共一直在金钱和物质等方面资助伊朗在中东搞事，所以这次在纳坦兹重启和扩大浓缩铀活动的背后黑手可能就是中共，而被“神秘”停电事件袭击疑似以色列所为，其背后是美国强大的黑科技技术。中共想利用伊朗在中东制造核扩散危机来转移矛盾，却迎来了美国的降维打击。这种兔子打拳般地下三滥招在美国强大的科技和军事力量面前毫无用武之地。可见无论中共怎么折腾都无法改变其制造和释放超限生物武器病毒而被全世界追责的命运，灭共已成定局。
 
-**喜联盟Gnews编辑部**
+[援引原文](https://www.zerohedge.com/geopolitical/mystery-blackout-incident-iran-nuclear-site-not-accident-israeli-media)
+
+本文作者：wuxin
+审核校对：鲁邦五世
+上传排版：糖果儿
 
 0

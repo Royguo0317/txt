@@ -1,120 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国对阿里巴巴集团在境内网络零售市场滥用市场支配地位处以超过27.5亿美元罚款
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1092068/)
+## 【信仰之声】论天国的仇敌——（四）仇敌CCP最后的疯狂
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1092199/)
 
-[https://gtv.org/getter/60748247dbc8001854a7fd14](https://gtv.org/getter/60748247dbc8001854a7fd14)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/7C5F72CB-636A-4E7D-B0FB-9EFAEF9A2CF2.jpeg)
-内容：
+作者：香草山福音部 捆绑CCP一千年
 
-来自路透社(Reuters) 2021年4月10日的推特
-
-China slapped a record 2.75 billion fine on Alibaba after an anti-monopoly probe found the e-commerce gains abused its dominant market position for several years
-
-中共国对阿里巴巴集团控股有限公司在中国境内网络零售平台服务市场滥用市场支配地位处以超过27.5亿美元罚款
-
-Chinese regulators have slapped a 2.75 billion fine on Alibaba
-
-中共国的监管机构已对阿里巴巴处以27.5亿美元的罚款
-
-The e-commerce group founded by Jack Ma
-
-马云成立的该电子商务集团
-
-is accused of violating anti-monopoly rules
-
-被指控违反反垄断规则
-
-And abusing its dominant market position of particular concern was a practice
-
-在中国境内网络零售平台服务市场滥用市场支配地位
-
-where Alibaba is alleged to have forbidden merchants
-
-据称阿里巴巴禁止其商家
-
-from listing on other e-commerce platforms
-
-在其他电子商务平台上市交易
-
-The fine which is equivalent to around four percent of Alibaba’s revenues in 2019,
-
-罚款相当于阿里巴巴2019年收益的约4％，
-
-is the highest ever anti-trust penalty to be imposed in China
-
-是中共国有史以来最高的反垄断处罚
-
-It comes amid an unprecedented regulatory crackdown
-
-发生在前所未有的监管镇压之际
-
-on the country’s homegrown technology conglomerates
-
-在该国本土的技术企业集团中
-
-Ma’s business empire has faced particular scrutiny
-
-马云的商业帝国面临着特别的审查
-
-after he criticized China’s regulatory system back in October
-
-在他十月份批评中共国的监管体系之后
-
-A month later authorities halted a planned 37 billion IPO from Ant Group –
-
-一个月后，有关部门叫停了蚂蚁集团—阿里巴巴的互联网金融部门
-
-Alibaba’s internet finance arm
-
-计划进行的370亿美元的首次公开募股
-
-Then came the launch of the anti-trust probe into Alibaba in late December
-
-然后在12月下旬对阿里巴巴发起反垄断调查
-
-In a statement the Chinese company said
-
-阿里巴巴在一份声明中说
-
-it accepted the regulator’s decision
-
-它接受了监管机构的决定
-
-and would implement the ruling
-
-并将执行该裁定
-
-it added that it wold work to improve corporate compliance
-
-它补充说，这将有助于提高公司的合规性
-
-Beijing has vowed to strengthen oversight of its big tech firms
-
-中共北京发誓要加强对那些跻身在世界上最大
-
-which rank among the world’s largest and most valuable
-
-最有价值的行列的大型科技公司的监督
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接: https://twitter.com/reuters/status/1380873197734617096?s=24
-
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 -Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
 
 
 
+不要上去，因为耶和华不在你们中间，恐怕你们被仇敌杀败了（民14:42 、申1:42）。
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Unknown-3.jpg)
+
+以色列人因着报虚假恶信被耶和华击杀后，百姓清早起来，上山顶去欲群起奋勇，奔赴前线杀敌，摩西就训斥百姓说，“耶和华不在你们中间”，为什么要违背神呢？这就好比我们按着己意一心支持美国前总统特朗普谋求连任，迅速灭共一样，当选举结果出来，全球一片哗然后，爆料革命战友们要么失落，要么离弃队伍，要么像奋锐党人一样叫嚣着整日骂拜登，骂我们的仇敌CCP，但我们有没有想过，这些都出于神意吗？
+
+我们在平安时，不懂得珍惜神所赐的平安，常体贴自己的肉体，面对属灵的争战总是贪生怕死，畏缩不前，一旦遭遇中共一点点逼迫，就奋起叫嚣着，热血沸腾要为耶和华神大发热心，却惹动神的怒。然而，没有神同在的争战只能遭遇更大的失败，使自己置身于更大的危险境地，基督徒在面对属灵争战时要有这样信心的确据，“有我与你同在，必没有人下手害你……”（使徒行传 18:10 ）
+
+我们生命的光景如此黯淡无光吗？为何总看不到圣灵的同在呢？要知道，我们跌倒时，很容易绊倒我们的弟兄姊妹，仇敌CCP更耻笑我们，使基督的名受损。我们在基督里建造生命最重要的功课就是膝盖上的功夫——忏悔、祷告，而不是逞匹夫之勇，更不是将功补过。神要的是我们敬虔的实际。
+
+看呐！我们的仇敌CCP即将被击杀，我们要“报告耶和华的恩年，和我们神报仇的日子，安慰一切悲哀的人”（以赛亚书 61:2）。因耶和华神要亲自为祂的子民报仇。
+
+（2021年4月14日写于东亚）
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2.jpg)
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

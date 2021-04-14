@@ -1,40 +1,113 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 安东尼•布林肯警告中共切勿攻击台湾
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1091989/)
+## 中共国对阿里巴巴集团在境内网络零售市场滥用市场支配地位处以超过27.5亿美元罚款
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1092068/)
 
-翻译：康州盘古农场-战友小鸡
-校对：康州盘古农场-Mike Li
-编辑：康州盘古农场-蓝精灵
+[https://gtv.org/getter/60748247dbc8001854a7fd14](https://gtv.org/getter/60748247dbc8001854a7fd14)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/7C5F72CB-636A-4E7D-B0FB-9EFAEF9A2CF2.jpeg)
+内容：
 
-据《华盛顿邮报》记者比尔.格茨2021年4月12日报道
-![]()![](https://gnews.org/wp-content/uploads/2021/04/FC80AB58-4208-4816-AC14-DCF45F10DA12.jpeg)
-国务卿安东尼.布林肯周日在台湾海峡两岸紧张局势和活动加剧之际，警告中共切勿攻击台湾。“我可以告诉你的是，任何人试图用武力改变现状，都是一个严重的错误，”布林肯先生在被问及美国是否会保护台湾岛免受大陆攻击时说。
+来自路透社(Reuters) 2021年4月10日的推特
 
-此刻中美在台湾问题上关系日益紧张，北京还试图控制与菲律宾有争议的南海海域。由美国海军“西奥多-罗斯福”号航母打击群和海军“马金岛”号两栖攻击舰率领的约2000名海军陆战队员，目前正在南海进行战争军演。
+China slapped a record 2.75 billion fine on Alibaba after an anti-monopoly probe found the e-commerce gains abused its dominant market position for several years
 
-美国国务卿还警告莫斯科不要对乌克兰采取军事行动，因为俄罗斯军队在边境附近集结。
+中共国对阿里巴巴集团控股有限公司在中国境内网络零售平台服务市场滥用市场支配地位处以超过27.5亿美元罚款
 
-在台湾问题上，布林肯先生说，美国注意到中共对该岛的军事姿态日益增强，北京将该岛视为了一个它的独立省份。“我们所看到的，也是我们真正关注的是，北京政府针对台湾的行动越来越咄咄逼人，加剧了海峡的紧张局势。”他说。
+Chinese regulators have slapped a 2.75 billion fine on Alibaba
 
-根据1979年《台湾关系法》，美国对台湾保持法律承诺。该法案没有保证美国对台湾岛的防卫，但要求通过近年来数百亿美元的军售帮助台北政府维持防御能力。台湾关系法是“两党多年来存在的承诺，以确保台湾有能力保护自己，并确保我们能在西太平洋维持和平与安全，”布林肯先生在NBC的 “见面记者会”上说。“我们信守这些承诺。”在被问及美国的承诺是否包括使用军事力量时，布林肯先生回避了这个问题。“我不会去做假设，”他说。“我只能告诉你们，我们对台湾能够自卫有严肃的承诺。我们对西太平洋的和平与安全有着严肃的承诺。而在这种情况下，任何人试图用武力改变这种现状，都是一个严重的错误。”
+中共国的监管机构已对阿里巴巴处以27.5亿美元的罚款
 
-最近几周，中共加强了进入岛国防空识别区的飞机飞行，每次多达10架战机。与此同时，中国国家媒体增加了威胁性的言论，促使布林肯先生为该岛进行辩护并批评北京。
+The e-commerce group founded by Jack Ma
 
-中共下属媒体《环球时报》发表了一段视频报导，内容是一架解放军飞机被台湾喷气式拦截机追踪的短片。“这都是在中国的领空内，你们很快就会习惯的。”在片中可以听到一名解放军飞行员对台湾同行喊话。
+马云成立的该电子商务集团
 
-当被问及中国是否会将美国对俄罗斯2014年接管乌克兰克里米亚半岛的有限反应，误读为软弱时，布林肯先生说，他不同意美国的反应不够强硬的说法。“关于克里米亚，关于顿巴斯，美国当年带领国际社会做出了非常大的努力，我们对俄罗斯在克里米亚、在顿巴斯的侵略行为，进行了实际上的施压和制裁。”他说。关于乌克兰的评论，是在俄罗斯军队在乌克兰边境附近集结部队，并发射短程 “伊斯坎德尔”导弹的情况下发表的。“在我们现在发言的时候，我必须告诉你，我们对俄罗斯在乌克兰边境的行动感到真正的担忧，”布林肯先生说。“在这些边境上集结的俄罗斯军队比2014年俄罗斯首次入侵以来的任何时候都多。”他说，国务院正在与美国在欧洲的所有盟友和伙伴保持密切联系，“我们所有人都有同样的担忧”。布林肯先生还向莫斯科发出警告。“拜登总统对此非常清楚，”他没有做详细说明但回应说，“如果俄罗斯轻率或侵略性地采取行动，它将付出代价和承担产生的后果。”
+is accused of violating anti-monopoly rules
 
-关于北京当局对中国西部少数民族维吾尔人的大规模镇压，布林肯先生被问到，如何能判定“和中国做生意“和“国务院定义的中共在新疆实施种族灭绝行为 “的关联是合理的。” “当谈到我们从北京政府那里看到的情况，北京在新疆对维吾尔人采取的行动，是的，我认为这正是正确的描述，”布林肯先生说。北京政府否认参与了种族灭绝或镇压，将他们在新疆的行为包括拘禁100多万维吾尔族和其他少数民族的行动描述为“再教育”。布林肯先生说：“实际上，我们需要采取具体的行动来实施，例如，我们的公司都不再向中共国提供他们可以用来镇压包括维吾尔族在内的民众所需要的商品。”布林肯先生还说，在中国利用强迫劳动制造的产品需要被禁止。布林肯先生说，拜登政府的政策仍然是在互利领域与中共合作，同时反对侵犯人权和维吾尔族种族灭绝。
+被指控违反反垄断规则
 
-当被问及美国是否会带头抵制2022年冬奥会时，布林肯先生说，“我们还没到那一步”。“这距离奥运会还有一年左右的时间，”他说。“我们的重点不是抵制。我们关注的是沟通，与我们的盟友和合作伙伴密切协商，倾听他们的意见，倾听关注。但抵制还为时过早。”
+And abusing its dominant market position of particular concern was a practice
 
-布林肯先生还讨论了世界卫生组织和中共国政府关于COVID-19大流行病起源的联合报告。当被问及因隐瞒疫情细节而受到指责的中国，是否知道疾病爆发是如何开始的，布林肯先生说。“我想中国知道，在COVID早期阶段，它没有做它所需要做的事情，及时地让国际专家进入，及时地分享信息，及时地提供真正的透明度。””而这种失败的一个结果是，病毒失控的速度更快，而且我认为，其结果可能变得更加恶劣，”他说。布林肯先生并没有要求中共披露它所知道的关于COVID的情况，而是呼吁建立一个更好的全球卫生安全系统，可以对未来疾病的爆发发出警告。“这意味着对透明度、信息共享、专家准入做出真正的承诺，”
+在中国境内网络零售平台服务市场滥用市场支配地位
 
-在阿富汗问题上，布林肯先生说，拜登总统希望结束战争，让美国军人回家，并正在努力与阿富汗政府和仍被指定为国际恐怖组织的塔利班达成和解。
+where Alibaba is alleged to have forbidden merchants
 
-文章来源链接: [https://www.washingtontimes.com/news/2021/apr/11/antony-blinken-warns-china-against-attacking-taiwa/](https://www.washingtontimes.com/news/2021/apr/11/antony-blinken-warns-china-against-attacking-taiwa/)
+据称阿里巴巴禁止其商家
+
+from listing on other e-commerce platforms
+
+在其他电子商务平台上市交易
+
+The fine which is equivalent to around four percent of Alibaba’s revenues in 2019,
+
+罚款相当于阿里巴巴2019年收益的约4％，
+
+is the highest ever anti-trust penalty to be imposed in China
+
+是中共国有史以来最高的反垄断处罚
+
+It comes amid an unprecedented regulatory crackdown
+
+发生在前所未有的监管镇压之际
+
+on the country’s homegrown technology conglomerates
+
+在该国本土的技术企业集团中
+
+Ma’s business empire has faced particular scrutiny
+
+马云的商业帝国面临着特别的审查
+
+after he criticized China’s regulatory system back in October
+
+在他十月份批评中共国的监管体系之后
+
+A month later authorities halted a planned 37 billion IPO from Ant Group –
+
+一个月后，有关部门叫停了蚂蚁集团—阿里巴巴的互联网金融部门
+
+Alibaba’s internet finance arm
+
+计划进行的370亿美元的首次公开募股
+
+Then came the launch of the anti-trust probe into Alibaba in late December
+
+然后在12月下旬对阿里巴巴发起反垄断调查
+
+In a statement the Chinese company said
+
+阿里巴巴在一份声明中说
+
+it accepted the regulator’s decision
+
+它接受了监管机构的决定
+
+and would implement the ruling
+
+并将执行该裁定
+
+it added that it wold work to improve corporate compliance
+
+它补充说，这将有助于提高公司的合规性
+
+Beijing has vowed to strengthen oversight of its big tech firms
+
+中共北京发誓要加强对那些跻身在世界上最大
+
+which rank among the world’s largest and most valuable
+
+最有价值的行列的大型科技公司的监督
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接: https://twitter.com/reuters/status/1380873197734617096?s=24
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 -Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场-文韵
 [!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
 康州盘古农场欢迎您加入:(或点击上方图片）
 
@@ -42,4 +115,6 @@
 
 
 
-+1
+
+
+0
