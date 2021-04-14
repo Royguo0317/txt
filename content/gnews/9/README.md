@@ -1,21 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 布林肯表示美国对台湾有承诺确保台湾的自卫能力
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1093998/)
+## CNN名记者古普塔反了CNN对中共病毒的立场
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1094073/)
 
-布林肯：根据《台湾关系法》美国对台湾有承诺确保台湾的自卫能力
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-Blinken: We have a commitment to Taiwan under the Taiwan Relations Act, to make sure that Taiwan has the ability to defend itself
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-21.jpg)sakafete.com
+3月28日桑杰·古普塔（Sanjay Gupta）在CNN《特别报道》栏目，有倾向性地报道了中共病毒“实验室泄露”理论，此节目3月26日的“剧透”中，首爆前疾控中心主任雷德菲尔德博士的“实验室泄露”说，笔者对CNN此举感到惊讶的同时，觉得是CNN试图挽回惨淡收视率的企图，也没排除拜登政府的运作结果，更大的可能则是文贵先生、班农先生、纳瓦罗先生、蓬佩奥国务卿等战略家推进的结果。
 
-美国国务卿布林肯表示，中共对台湾武力侵犯的威胁日益俱增，美国两党长期对台湾关系法的承诺，向台湾提供防御性武器让台湾有能力自我防卫，任何人若试图靠武力改变西太平洋的和平现状，将会犯下严重错误。美国将与世界各国团结一起面对中共对新疆维族人的种族灭绝。
+笔者对两则新闻进行了较全面和及时的跟进【1】、【2】。
 
-根据《台湾关系法》美国向台湾提供防御性武器；和维持美国抵抗任何可能损害台湾人民安全或社会或经济体系诉诸武力或其他形式的胁迫的能力。第2条规定的政策，美国将向台湾提供必要数量的国防军备和国防服务，以确保台湾能够保持足够的自卫能力。
+《美国新闻网》4月13日对古普塔有了最新报道，题目“CNN的古普塔改变了CNN的立场，称中共病毒可能来自实验室”。
 
-[U.S. Department of State:We are prepared to defend Taiwan militarily](https://www.state.gov/secretary-antony-j-blinken-with-chuck-todd-of-nbcs-meet-the-press/)
+全文如下：
 
-資料來源:秘密翻译组
+美国有线电视新闻网（CNN）首席医学记者桑杰·古普塔（Sanjay Gupta）反驳了CNN（曾经的）对中共病毒的立场，表示病毒可能来自武汉实验室。
 
-审核:Athena雅典娜 发布:Amitofu
+“有理由怀疑这是病毒的起源，武汉的一个大型病毒学实验室，碰巧在研究蝙蝠冠状病毒，”古普塔说，“仅仅从奥卡姆剃刀的角度来看，找到最简单的解释，就有意义了。”
+
+在最近的一次采访中，古普塔似乎为前疾控中心主任罗伯特·雷德菲尔德辩护，此前CNN批评了雷德菲尔的说法。
+
+美国有线电视新闻网（CNN），连同中国共产党和拜登政府，继续声称病毒是自然出现，但古普塔似乎不同意。
+
+“我不同意有人说的’这显然是来自海鲜市场’，你会说，那背后的证据呢？”普塔解释说，“有很多人从来没有去过那家海鲜市场，他们还是被感染了。所有这些悬而未决的问题，即使是现在的世界卫生组织总干事谭德塞也表示，所有的选择、所有的可能性仍然在讨论中。”
+
+古普塔还批评世界卫生组织允许中共国政府控制对中共病毒起源的调查，他承认，由于这种可疑的掩盖，我们可能永远也找不到真相。（原文完）
+
+作为病毒专业外行人士，笔者与古普塔同样地担心中共的掩盖，“我们可能永远也找不到真相”，中共无恶不作，相应的毁灭罪证更是无底线，完全符合恶魔的逻辑，恶魔不会留下任何证明是恶魔的证据。但是，我们还应该坚信，“魔高一尺，道高一丈”，正义终究会战胜邪恶！
+
+参考链接：
+
+【1】[https://gnews.org/zh-hans/1023905/](https://gnews.org/zh-hans/1023905/)
+
+【2】[https://gnews.org/zh-hant/1038363/](https://gnews.org/zh-hant/1038363/)
+
+【3】[https://www.oann.com/cnns-gupta-breaks-from-network-stance-says-covid-could-come-from-lab/](https://www.oann.com/cnns-gupta-breaks-from-network-stance-says-covid-could-come-from-lab/)
 
 0
