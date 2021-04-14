@@ -1,36 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本媒体深刻剖析人民币的野心
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1090329/)
+## 中共精心布局多年&nbsp; 收买议员里应外合&nbsp; 抽走黄金打垮美元
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1090422/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+**简述：郭先生在2021年4月5日的GTV直播中警告美国人，中共从2006年就开始精心布局，通过收买廉价的美国议员里应外合，耸动各国从美国抽走黄金储备，来达到击垮美元的目的。从最近各国媒体和美国议会的动向来看，中共已经全面开始行动！**
+[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210405-live-p1.srt.txt)
+**中共精心布局多年****  ****收买议员里应外合****  ****抽走黄金打垮美元**
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Y-2.jpg)blocksats.com
-日本新闻网 (Nippon News Network)的一篇社论对中共人民币的野心进行了深刻剖析。习近平领导的中共政府试图瓦解和取代美元主导地位，中共计划在2022年实现“数字人民币”的历史性发布，与北京冬奥会同步。通过创造世界上第一种主权数字货币，挑战美元标准。
+**The CCP Has Been Working on Moving Gold Reserves Out of the US to Defeat US Dollars for Years**
 
-2021年，习近平政府计划利用数字人民币(e-yuan)来削弱美元的主导地位。中共已使用暴力镇压、国安法和选举改革实现对主要以美元计价的金融中心之一——香港的控制，同时中共调用力量控制巨大的阿里巴巴集团在线资本的聚集。
+最近看见了吗？全世界媒体在上周开始起全面报道：“要开始，是时候啦！受够啦！Enough！Enough！我们要到美国看看我们的黄金在不在！”
 
-根据中共政府的战略，到今年年底，阿里巴巴建立的数字支付基础设施将能够流通由中共国人民银行发行的数字人民币。这种数字货币将可能进一步延伸到中共扩张的“一带一路”贸易沿线的国家、地区和贸易伙伴，并侵蚀美元标准。
+Have you seen it lately? Since last week, the world’s media has been all over this matter – “Let’s do it! It’s about the time!” “Enough! Enough!” “We need to see if our gold is still in the United States!”
 
-香港一直是中共的货币来源，中共政府于2020年6月对香港实施《国家安全法》旨在将这个国际金融中心置于中共的监督和控制之下。正当我们认为，一个自由的香港的衰落将意味着中共政府自1949年成立中华人民共和国以来“长期规划和充分利用”香港的战略结束时，中共迫使阿里巴巴和许多其他中共互联网巨头在香港证券交易所上市。这推高了股价，从而吸引贪婪的机构投资者、投资基金和其他西方金融资本，而中共政府现在正将以这些资本扣留为要挟，防止西方对中共实施制裁。
+8000吨也好9000吨也好，美国储放的黄金，我真的不相信真的在那儿。从过去布雷森系统1973年之后到现在这个黄金，以货币本位的黄金，我告诉你未来黄金未来一定值大钱，包括银，黄金、银一定不是1800，一定超过一万块美金，按今天的价格一定超过一万，只是时间的问题。所有的信用纸币一定崩塌！一定崩塌！就是在什么时间、什么方式的问题。
 
-川普政府于2019年11月颁布了《香港人权和民主法》，允许美国政府禁止港元兑换美元。然而，由于担心全球金融市场陷入混乱，这些措施没有得到实施。如果动用这一条款，将对中共内地构成重大打击。中共内地使用港元作为获取美元的中介，而港元与人民币可自由兑换。如果终止了港币和美元的兑换流通，港币和人民币将面临崩溃。
+I really don’t believe that the gold kept in the U.S. is really there, no matter it is 8,000 tons or 9,000 tons. From the post Bretton Woods System era in 1973 to the present time with currency-based gold, let me tell you, gold will worth big money in the future, and that includes both silver and gold. The price will definitely not be $1800, and will definitely exceed $10,000. Based on today’s price, it will definitely be over $10,000, just a matter of time. All credit-based currencies will collapse! Definitely! It’s only a matter of when and how.
 
-中共目前使用的数字支付网络是由阿里巴巴成员蚂蚁金服(Ant)的结算平台支付宝(Alipay)和腾讯(Tencent)的主要互联网服务平台微信支付(微信Pay)建立的。为了控制这一基础设施，党设计并准备发行数字人民币。该货币已经在深圳和苏州试行，当局计划在2022年2月北京冬季奥运会前做好准备，从而使中共央行能够流通世界上第一种主权数字货币。
+那么在美国这些黄金要没有了，那个科恩他说的是对的。科恩不可能乱讲话一点根据没有，他再好色他不能乱讲话，拉加德当了IMF主席以后，最重要的当时就是被警告，你敢提一次这个事情你也完蛋。原来一个日本的，好像一个日本裔的人在IMF的货币组织也想提，最后很快就辞职了，这是改变世界货币命运的。
 
-与此同时，中共传统的银行体系——人民银行向商业银行提供现金，然后商业银行允许公民通过存款账户使用人民币，保留了纸币的流通。消费者和企业目前通过支付宝和微信支付在智能手机、个人电脑和其他设备上购物时使用的所有其他货币都将被数字货币取代。这意味着，新货币将导致与14亿用户的电子支付市场相关的所有交易数据被整合到党控制的人民银行。此前，该市场一直是阿里巴巴和腾讯等公司的专属领域。
+So, if the gold kept in the United States is gone… What Kahn (note: Dominique Strauss-Kahn, Former President of IMF) has said is right. Kahn cannot say something totally baseless, no matter how lustful he is, he cannot say something like this baselessly. After Lagarde (Christine Madeleine Odette Lagarde) became the IMF President, the most important thing happened to her at that time was being warned that if you dare to mention this thing for once, your career will be over. Once a Japanese descent who was in the IMF attempted to bring this up, and he ended up with being quickly resigned, because this is something that can change the fate of the world’s currencies.
 
-伴随金融交易而来的是参与金融交易的个人、企业和组织的各种信息。中共过渡到数字货币,中共极权通过监测网络可以监控所有的金融交易和个人信息，从而巩固了监视国家的无形恐怖。如果数字人民币在香港也进行流通，中共将能详细的监控转移资金的个人、时间和目的。
+美国会不会接受储存黄金？我告诉你共产党还有更厉害的一招儿，共产党在美国所有的行贿的议员。我告诉大家一个某国元首，他说：“Miles，共产党很聪明啊，说让我到美国去搞几个所谓的国会议员作为朋友。”我说：“为什么呀？”他说：“未来要影响力呀。”他说：“他们为什么要对司法委员会、金融委员会、情报委员会、能源委员会那么关键，” 他说，“特别对金融委员会，然后要有发起议案的议员。”他说：“实际很少钱，捐个几万美元就行了，就搞定一个。他们为什么要这么干？”
 
-中共政府的野心没有界限。通过促进数字货币在“一带一路”国家和地区的使用，从欧亚大陆延伸至非洲，进而影响到中共的贸易伙伴日本、美国、欧洲、中美洲和南美洲，中共的政府将能够大大削弱使用美元的金融网络。
+So will the United States accept the fact that the CCP’s keeping the gold? Let me tell you that the CCP has a more ruthless tactic, that is bribing Congressmen of the United States. I can tell you that a chief of a certain country once said to me, “Miles, the CCP is very smart. They wanted me to go to the U.S. to make friends with several so-called members of the Congress.” I asked, “Why?” “The CCP wants to have influence in the U.S. in the future,” he said, “and that’s why they see the Judiciary Committee, the Finance Committee, the Intelligence Committee, the Energy Committee [of the Congress] as so critical to them.” He continued, “Especially the Finance Committee. And then they need to have congressmen who can introduce the bill.” He said, “These kinds of things actually do not need a lot of money. Just a few tens of thousands of dollars of donation will work. Why do they want to do this?”
 
-除了数字货币的野心，中共更对美国的黄金储备下手。据郭文贵先生揭露，目前世界上绝大多数的黄金储备是在美国，中共向把黄金储备在美国的国家游说，劝说它们将黄金存放在中共国，并许诺存一吨黄金给一吨黄金相对应的美元贷款，贷款利息为零。委内瑞拉、土耳其、法国、匈牙利、斯洛伐克等15个国家已经同意。若这些国家照做兑现，这将使美元崩塌，美国经济和信用的崩塌。
+我当时我的眼睛就亮了，“哎呀，”我说，“共产党这所有的准备是和未来就是他们的要以钱灭美的时候、要查美国黄金的时候，美国议员必须得有呼应。”我当时就想到这一点了，“哎呀，”我说，“这事儿有意思，哎呀，”我说，“你要给我讲讲这个细节。”啊，他给我大致讲了讲。我知道老共已经深深地植根于准备这场战争。
 
-文贵先生指出，美国对中共的认识还远远不够，中共的人民币野心已经将目标对准打垮美元及其支付系统，以取代美元的主导地位。以钱灭共，灭白计划，蓝金黄策略，种族矛盾的影响将相继体现。美国如何应对中共威胁，是否会果断进行反击，将对整个世界带来深远的影响。
+My eyes lit up immediately. “Gee,” I said, “all the CCP’s preparations were in line with their plan: in the future when they are ready to destroy the U.S. with money and ready to launch investigations into the gold reserves in the U.S., they need to have American congressmen to echo.” I thought of that at that very moment. “Oh, my!” I said, “That’s interesting.” I asked him, “You need to let me know more details about this.” He then told me briefly, and then I knew that the CCP was already preparing for this war insidiously and secretly.
 
-参考链接：
-[https://www.nippon.com/en/in-depth/d00673/](https://www.nippon.com/en/in-depth/d00673/)
+最近美国最起码超过两到三个议员要提起，自己人提起核查美国给外国储备的黄金，包括美国黄金。
 
-0
+Recently, at least two or three U.S. Congressmen are proposing to have the U.S. to voluntarily verify its gold reserves for foreign countries, including America’s own gold reserves as well.
+
+所以说，我这过去这一两周我一看，共产党出手了，出手啦！
+
+So, based on what I observed the last couple of weeks, I know that the CCP has made the move. They have started to take actions!
+
+让拜登干的事儿基本上拜登都干完了，应付差不多了，呵呵，该谈的也谈啦，是吧？新疆大屠杀属于文化问题、文化冲突；然后香港也没采取惩罚；冠状病毒现在不准谈，不是共产党的。你看基本都做完了。
+
+Biden has basically done all the things that he was asked to do [by the CCP], and has said everything that he was supposed to say, right? The Xinjiang massacre is a cultural issue or a cultural conflict; there has been no punishment for what the CCP did to Hong Kong; and the coronavirus is not allowed to be talked about and it has nothing to do with the CCP. You see, Biden has basically done all of that.
+
+然后全世界铺天盖地在上周，所有这些国家、各大媒体包括拉脱维亚、匈牙利、意大利的报纸都在说该到美国去查黄金了，该把美金拿回来了，关键问题[是]在上周就有七八个国家把大量的黄金运回了国家，包括日本啊，包括日本。恐怖不？
+
+And then last week, this was extensively covered by media all over the world. All these countries and all the mass media, including Latvia, Hungary, Italy’s newspapers were saying that it’s time to go to the U.S. to check our gold reserves, and it is time to take back our gold. The problem is that in the last week there were already seven or eight countries that had shipped a large amount of gold back to their countries, and that included Japan. Japan! Scary, isn’t it?
+
+同时美国几个议员提议要查美国黄金储备。就花几万美元就可以搞定[几个议员]。而这是美国（口误，应为中国）在2006年就开始准备、中共就准备的，最近全开始了。战友去想想，这个结局会是什么？美元崩塌、美国经济崩塌、美国的信用崩塌。
+
+And concurrently, several U.S. congressmen proposed to check the U.S. gold reserves. It only takes tens of thousands of dollars to buy out a congressman. And this is what the CCP has been preparing since 2006, and it has all started recently. Our fellow fighters, think about it, where this will lead to? The collapse of the U.S. dollar, the collapse of the U.S. economy, and the collapse of the credit of the U.S.!
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=606b0c896e11a756edd89042](https://gtv.org/video/id=606b0c896e11a756edd89042) (1:04:04-1:07:11, 1:07:35-1:08:57)
+鸣谢：感谢湘江之水、Winner为自由而战（文祥）、万物归一、柒号G币、Bruce(文远)、山川异域提供中文文本于 [https://gnews.org/zh-hans/1060164/](https://gnews.org/zh-hans/1060164/)
+
+* * *
+
+*翻译：【rainbow】字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】*
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
++1

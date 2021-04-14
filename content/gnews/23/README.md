@@ -1,66 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共精心布局多年&nbsp; 收买议员里应外合&nbsp; 抽走黄金打垮美元
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1090422/)
+## 2021/04/07 班农专访(1)：闫丽梦博士第三份病毒起源报告
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1090444/)
 
-**简述：郭先生在2021年4月5日的GTV直播中警告美国人，中共从2006年就开始精心布局，通过收买廉价的美国议员里应外合，耸动各国从美国抽走黄金储备，来达到击垮美元的目的。从最近各国媒体和美国议会的动向来看，中共已经全面开始行动！**
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210405-live-p1.srt.txt)
-**中共精心布局多年****  ****收买议员里应外合****  ****抽走黄金打垮美元**
+视频字幕：JohnsonR | 听写/翻译：Roberts | 校对：势不可挡 | 简评/文字整理/编辑：胖丁 | Page：青山
 
-**The CCP Has Been Working on Moving Gold Reserves Out of the US to Defeat US Dollars for Years**
+[!\[\]()!\[\](https://spark.adobe.com/page/qoQiGjPceB6uQ/images/10a876c2-2e0a-46f2-a9d6-ef28094c4861.png?asset_id=ab7d40db-1740-431f-b054-04ea81349133&amp;img_etag=%22ee921ab8efe815ccd7f5f26885bc1c0c%22&amp;size=1024)](https://spark.adobe.com/page/qoQiGjPceB6uQ/images/10a876c2-2e0a-46f2-a9d6-ef28094c4861.png?asset_id=ab7d40db-1740-431f-b054-04ea81349133&amp;img_etag=%22ee921ab8efe815ccd7f5f26885bc1c0c%22&amp;size=1024)
 
-最近看见了吗？全世界媒体在上周开始起全面报道：“要开始，是时候啦！受够啦！Enough！Enough！我们要到美国看看我们的黄金在不在！”
+**简评：**
 
-Have you seen it lately? Since last week, the world’s media has been all over this matter – “Let’s do it! It’s about the time!” “Enough! Enough!” “We need to see if our gold is still in the United States!”
+闫丽梦博士第三份报告发表之后，由《国家脉动》、纳瓦罗博士、《战斗室》不断推动和揭露，许多主流媒体开始谈论病毒泄露说。连世卫组织内的中共走狗谭德赛也不得不出来声明，没有证据证明病毒来自距武汉千英里之外、老挝边界附近的蝙蝠洞，通过中间动物宿主来到武汉。拜登政府也不得不开始谈论。后续真正的行动来自于五眼联盟，澳大利亚、加拿大、美国、英国。 还有像闫梦博士，《战斗室》、纳瓦罗和GTV这样的节目持续施加压力。
 
-8000吨也好9000吨也好，美国储放的黄金，我真的不相信真的在那儿。从过去布雷森系统1973年之后到现在这个黄金，以货币本位的黄金，我告诉你未来黄金未来一定值大钱，包括银，黄金、银一定不是1800，一定超过一万块美金，按今天的价格一定超过一万，只是时间的问题。所有的信用纸币一定崩塌！一定崩塌！就是在什么时间、什么方式的问题。
+[GTV视频链接](https://gtv.org/video/id=606fe3d9dbc8001854a6b718)
 
-I really don’t believe that the gold kept in the U.S. is really there, no matter it is 8,000 tons or 9,000 tons. From the post Bretton Woods System era in 1973 to the present time with currency-based gold, let me tell you, gold will worth big money in the future, and that includes both silver and gold. The price will definitely not be $1800, and will definitely exceed $10,000. Based on today’s price, it will definitely be over $10,000, just a matter of time. All credit-based currencies will collapse! Definitely! It’s only a matter of when and how.
 
-那么在美国这些黄金要没有了，那个科恩他说的是对的。科恩不可能乱讲话一点根据没有，他再好色他不能乱讲话，拉加德当了IMF主席以后，最重要的当时就是被警告，你敢提一次这个事情你也完蛋。原来一个日本的，好像一个日本裔的人在IMF的货币组织也想提，最后很快就辞职了，这是改变世界货币命运的。
 
-So, if the gold kept in the United States is gone… What Kahn (note: Dominique Strauss-Kahn, Former President of IMF) has said is right. Kahn cannot say something totally baseless, no matter how lustful he is, he cannot say something like this baselessly. After Lagarde (Christine Madeleine Odette Lagarde) became the IMF President, the most important thing happened to her at that time was being warned that if you dare to mention this thing for once, your career will be over. Once a Japanese descent who was in the IMF attempted to bring this up, and he ended up with being quickly resigned, because this is something that can change the fate of the world’s currencies.
+**视频字幕：**
 
-美国会不会接受储存黄金？我告诉你共产党还有更厉害的一招儿，共产党在美国所有的行贿的议员。我告诉大家一个某国元首，他说：“Miles，共产党很聪明啊，说让我到美国去搞几个所谓的国会议员作为朋友。”我说：“为什么呀？”他说：“未来要影响力呀。”他说：“他们为什么要对司法委员会、金融委员会、情报委员会、能源委员会那么关键，” 他说，“特别对金融委员会，然后要有发起议案的议员。”他说：“实际很少钱，捐个几万美元就行了，就搞定一个。他们为什么要这么干？”
+闫梦博士发表了她的第三份报告后，许多主流媒体开始谈论病毒泄露说。而且布林肯国务卿说美国要找到真相，有关病毒的真相。你认为美国会采取什么行动？
 
-So will the United States accept the fact that the CCP’s keeping the gold? Let me tell you that the CCP has a more ruthless tactic, that is bribing Congressmen of the United States. I can tell you that a chief of a certain country once said to me, “Miles, the CCP is very smart. They wanted me to go to the U.S. to make friends with several so-called members of the Congress.” I asked, “Why?” “The CCP wants to have influence in the U.S. in the future,” he said, “and that’s why they see the Judiciary Committee, the Finance Committee, the Intelligence Committee, the Energy Committee [of the Congress] as so critical to them.” He continued, “Especially the Finance Committee. And then they need to have congressmen who can introduce the bill.” He said, “These kinds of things actually do not need a lot of money. Just a few tens of thousands of dollars of donation will work. Why do they want to do this?”
+首先你的听众应该明白，闫丽梦博士是我们真正的英雄。 尤其是由于她无畏揭露湖北和武汉所发生的事情，美国（对病毒的认识）有了很大提高。
 
-我当时我的眼睛就亮了，“哎呀，”我说，“共产党这所有的准备是和未来就是他们的要以钱灭美的时候、要查美国黄金的时候，美国议员必须得有呼应。”我当时就想到这一点了，“哎呀，”我说，“这事儿有意思，哎呀，”我说，“你要给我讲讲这个细节。”啊，他给我大致讲了讲。我知道老共已经深深地植根于准备这场战争。
+自从她逃离香港以来，她一直就是英雄。她说的每一件事都被证明是真实的。
 
-My eyes lit up immediately. “Gee,” I said, “all the CCP’s preparations were in line with their plan: in the future when they are ready to destroy the U.S. with money and ready to launch investigations into the gold reserves in the U.S., they need to have American congressmen to echo.” I thought of that at that very moment. “Oh, my!” I said, “That’s interesting.” I asked him, “You need to let me know more details about this.” He then told me briefly, and then I knew that the CCP was already preparing for this war insidiously and secretly.
+中共五毛水军和美国以及全世界支持中共的人嘲笑和讽刺她的报告。
 
-最近美国最起码超过两到三个议员要提起，自己人提起核查美国给外国储备的黄金，包括美国黄金。
+然而她的报告非常了不起。 她上Tucker Carlson的节目，上《战斗室》节目，接受很多媒体的采访，比如Newsmax。 她是一个非常好的人，非常勇敢。
 
-Recently, at least two or three U.S. Congressmen are proposing to have the U.S. to voluntarily verify its gold reserves for foreign countries, including America’s own gold reserves as well.
+我认为她为每一个立志推翻中共的人树立了榜样。
 
-所以说，我这过去这一两周我一看，共产党出手了，出手啦！
+她的见解鼓舞人们，特别是鼓舞一些研究机构关注到底武汉和那里的人发生了一系列什么样的事情。
 
-So, based on what I observed the last couple of weeks, I know that the CCP has made the move. They have started to take actions!
+我认为拜登政府刚刚开始谈论这个话题，但是他们是被迫的。
 
-让拜登干的事儿基本上拜登都干完了，应付差不多了，呵呵，该谈的也谈啦，是吧？新疆大屠杀属于文化问题、文化冲突；然后香港也没采取惩罚；冠状病毒现在不准谈，不是共产党的。你看基本都做完了。
+由于《国家脉动》、闫梦博士的第三份报告、纳瓦罗博士、《战斗室》不断地揭露福奇，揭露打杂克，揭露生态健康联盟，揭露医疗健康产业的妥协，特别是公共健康部门，比如日内瓦的世卫组织，每天揭露他们与中共勾结的丑闻，迫使他们有了改变。
 
-Biden has basically done all the things that he was asked to do [by the CCP], and has said everything that he was supposed to say, right? The Xinjiang massacre is a cultural issue or a cultural conflict; there has been no punishment for what the CCP did to Hong Kong; and the coronavirus is not allowed to be talked about and it has nothing to do with the CCP. You see, Biden has basically done all of that.
+我们使得他们非常不舒服，甚至世卫组织的谭德塞这个中共的走狗都说他们的报告没有足够的证据表明病毒来自距武汉千英里之外、老挝边界附近的蝙蝠洞，通过中间动物宿主来到武汉。
 
-然后全世界铺天盖地在上周，所有这些国家、各大媒体包括拉脱维亚、匈牙利、意大利的报纸都在说该到美国去查黄金了，该把美金拿回来了，关键问题[是]在上周就有七八个国家把大量的黄金运回了国家，包括日本啊，包括日本。恐怖不？
+现在你们听到拜登政府，尤其是布林肯和其他人开始说要起底武汉病毒实验室，但是我相信不会有很多行动。
 
-And then last week, this was extensively covered by media all over the world. All these countries and all the mass media, including Latvia, Hungary, Italy’s newspapers were saying that it’s time to go to the U.S. to check our gold reserves, and it is time to take back our gold. The problem is that in the last week there were already seven or eight countries that had shipped a large amount of gold back to their countries, and that included Japan. Japan! Scary, isn’t it?
+我认为真正的行动来自于五眼联盟，澳大利亚、加拿大、美国、英国。 像闫丽梦博士，《战斗室》这样的节目和纳瓦罗，还有你们的节目，给他们施加持续的压力。
 
-同时美国几个议员提议要查美国黄金储备。就花几万美元就可以搞定[几个议员]。而这是美国（口误，应为中国）在2006年就开始准备、中共就准备的，最近全开始了。战友去想想，这个结局会是什么？美元崩塌、美国经济崩塌、美国的信用崩塌。
+因为精英阶层，尤其是妥协的公共卫生官员，大部分都与中共勾结，试图让人们相信病毒来自于距武汉千英里之外的蝙蝠洞。
 
-And concurrently, several U.S. congressmen proposed to check the U.S. gold reserves. It only takes tens of thousands of dollars to buy out a congressman. And this is what the CCP has been preparing since 2006, and it has all started recently. Our fellow fighters, think about it, where this will lead to? The collapse of the U.S. dollar, the collapse of the U.S. economy, and the collapse of the credit of the U.S.!
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=606b0c896e11a756edd89042](https://gtv.org/video/id=606b0c896e11a756edd89042) (1:04:04-1:07:11, 1:07:35-1:08:57)
-鸣谢：感谢湘江之水、Winner为自由而战（文祥）、万物归一、柒号G币、Bruce(文远)、山川异域提供中文文本于 [https://gnews.org/zh-hans/1060164/](https://gnews.org/zh-hans/1060164/)
 
-* * *
+编辑：【英国伦敦喜庄园编辑部】
 
-*翻译：【rainbow】字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】*
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+[!\[\]()!\[\](https://spark.adobe.com/page/qoQiGjPceB6uQ/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/qoQiGjPceB6uQ/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
-+1
+0
