@@ -1,50 +1,122 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 大法官托马斯阐述终结大科技公司专制暴政的方式
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1091652/)
+## 美国特种作战司令部反击中共国的虚假信息战
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1091698/)
 
-翻译：洛杉矶天使农场 – Jessi/詹茜
-校对：洛杉矶天使农场 – Feihua
-审核：洛杉矶天使农场 – 黎明的光芒
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Picture1-23.png)（索尔·勒布（SAUL LOEB）/法新社摄）
-周一，克拉伦斯·托马斯（ Clarence Thomas）大法官宣布美国最高法院很快将要终结大科技公司的专制暴政。他提及了脸书和谷歌这样的社交媒体存在的的“[明显](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)”问题，二者运用无限的权力审查它们不喜欢的用户的观点。
+新闻来源：《The Washington Times《华盛顿时报》》| 作者：Bill Gertz 比尔·戈茨 | 发布时间：2021年3月31日
 
-他认为，这些科技巨头应该应该像[普通运营商](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)那一样受到监管，按照法律要求为服务于所有的顾客。美国电话电报公司（AT&T）不能拒绝给你开通电话帐户，或者限制你的通话。美国铁路公司（Amtrak）不能自行选择乘坐火车的人。
+翻译/简评：原乡人 | 校对：Beicy-数学老师 | 审核：万人往 | Page：青山
 
-正当民主党控制的国会要求科技巨头加强而不是减少审查的时候，托马斯的观点带来了希望。3月25日，众议院的能源和商业委员会日，[在民主党](https://nypost.com/2021/03/25/zuckerberg-calls-for-section-230-reforms-as-lawmakers-vow-crackdown/)的[众议院能源委员会和商务部](https://energycommerce.house.gov/committee-activity/hearings/hearing-on-disinformation-nation-social-medias-role-in-promoting)（[House Committee on Energy and Commerce](https://energycommerce.house.gov/committee-activity/hearings/hearing-on-disinformation-nation-social-medias-role-in-promoting) ）下令科技公司的首席执行官们取缔’假信息’，打压”[破坏社会正义运动](https://www.wsj.com/articles/congress-summons-its-speech-regulators-11616711928)”观点。说起来这真像真正的极权主义的作派。
-托马斯是是[在涉及唐纳德·川普（Donald Trump）的一宗案件的背景下作出的](https://nypost.com/2021/04/05/supreme-court-dismisses-case-about-trump-blocking-critics-on-twitter/)做出上述突破性的声明的。做为总统，他阻止批评者们评论或转发他的推文。[批评人士提起诉讼](https://knightcolumbia.org/cases/knight-institute-v-trump)，称总统的推特是一个公共论坛。最高法院做出了裁决，裁定[该案现在已经无意义了，因为川普已经不在职](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)。托马斯同意地方法院的裁决，即川普侵犯了他的批评者的第一修正案（ First Amendment ）规定的发言权。
+[!\[\]()!\[\](https://spark.adobe.com/page/YHH6Qs4DtTCXj/images/299987bd-45e4-4554-9c38-ef89a2ede2bd.jpg?asset_id=36c3db9c-88be-42f7-baeb-132266005e56&amp;img_etag=%22f24546e8d7a3eb3e416e86a8e47e5c3c%22&amp;size=2560)](https://spark.adobe.com/page/YHH6Qs4DtTCXj/images/299987bd-45e4-4554-9c38-ef89a2ede2bd.jpg?asset_id=36c3db9c-88be-42f7-baeb-132266005e56&amp;img_etag=%22f24546e8d7a3eb3e416e86a8e47e5c3c%22&amp;size=1024)
 
-但是托马斯认为，“[更为明显的担忧](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)”不是川普对几个批评者所做的事情，而是科技巨头们拥有审查或者完全禁止用户、甚至一个总统的权力。
+**简评：**
 
-对脸书和谷歌有权“[随时随地以任何理由或无理由](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)” 注销帐户的行为，托马斯表示震惊。他写道: “[脸书控制在一个人的手中……谷歌控制在两个人的手中”](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)。他们决定着几十亿人能表达或听到什么观点。
+美特战司令部司令理查德•克拉克将军2021年3月25日在参议院军事委员会听证会上透露，已成立“印度—太平洋联合特遣部队”，反击中共国的虚假信息战，随时准备完成秘密作战任务。
 
-托马斯说，当未来再有争议到达最高法院的时候，这种权力必须得到控制。大科技公司的支持者认为，因为他们是私人公司，他们可以自由审查。第一修正案的目的只禁止政府压制观点。但是托马斯说，最高法院[早就了解这些科技公司](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)了。这些公司[比私人公司更像普通承运人或公用事业公司](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)，所以他们必须对所有的公众开放。
+美网络司令部司令将军保罗·仲宗根将军也在最近披露，中共国和俄罗斯网军如何在美国本土对美发起网络战，同时利用美国宪法第四修正案授予的保护隐私权法，在法律程序启动前逃之夭夭。发现问题、解决问题，网络司令部也已经在行动。
 
-托马斯还将他们与如宾馆和棒球场所之类的[公共设](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)施进行比较，法律要求这些公共设施服务于每一个人，不得歧视。
+中共对美发动的信息战、法律战已被美军和美国情报机构识破，中共在美肆意妄为的日子结束了，正义可能会迟到，但是绝对不会缺席！
 
-托马斯认为，随着新型公司的出现，大科技专制暴政的问题并没有通过竞争得到解决。他指出“[巨大的进入壁垒](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)”，帕勒（Parler）的命运证明了这一点。当帕勒提供了一个没有审查的平台时，[大型科技公司联合起来打垮了它](https://nypost.com/2021/01/10/big-techs-assault-on-parler-proves-its-gone-full-cartel/)。
+**原文翻译：**
 
-有人称赞托马斯此举是“[邀请国会宣布推特、脸书和类似公司为公共运营商](https://www.politico.com/news/2021/04/05/justice-clarence-thomas-trump-twitter-ban-479046)。”
+## 美特战司令部对中共国发动信息战
 
-但是事实是，民主党人对自由的思想交流毫无兴趣。
+[!\[\]()!\[\](https://spark.adobe.com/page/YHH6Qs4DtTCXj/images/3984a9be-e36e-4ffb-a39b-b37224c3da1d.jpg?asset_id=e14bcdb1-75d5-4928-89c6-14bc7b22ad27&amp;img_etag=%22ab6556a2264065682597e87b3f1fec0f%22&amp;size=1024)](https://spark.adobe.com/page/YHH6Qs4DtTCXj/images/3984a9be-e36e-4ffb-a39b-b37224c3da1d.jpg?asset_id=e14bcdb1-75d5-4928-89c6-14bc7b22ad27&amp;img_etag=%22ab6556a2264065682597e87b3f1fec0f%22&amp;size=1024)理查德•克拉克(Richard D. Clarke)上将向参议院军事委员会陈述特种作战司令部如何将重点从打击恐怖主义转向应对来自中共国的新威胁。(美联社)
 
-他们宁愿脸书的首席执行官扎克伯格（ Zuckerberg）代表他们审查其竞争者。
+美国特种作战司令部（SOCOM特战司令部）正在将重点从打击恐怖分子转向打击中共国的虚假信息，并准备将来与中共国发生冲突时完成秘密作战任务。
 
-而且他们不指望总统乔•拜登（Joe Biden）。[他](https://dailycaller.com/2021/01/10/biden-big-tech-apple-facebook-trump-parler/)的[过渡时期和挑选的新政府人选中](https://dailycaller.com/2021/01/10/biden-big-tech-apple-facebook-trump-parler/)有[14名来自](https://dailycaller.com/2021/01/10/biden-big-tech-apple-facebook-trump-parler/)苹果、脸书、推特、谷歌和亚马逊。据《每日来电者》（Daily Caller）的统计。
+特战司令部司令陆军上将理查德·克拉克(Richard D. Clarke)在最近的参议院证词中披露了该司令部关注的新重点——新成立的一支印度-太平洋联合特遣队。
 
-或许拜登能当上总统在某种程度上应该归功于科技巨头们。当《纽约邮报》（ New York Post ）发表了一篇报道，记录了中共国公司与拜登家族交易时，包括总统候选人乔•拜登），[硅谷将其标记为虚假信息](https://nypost.com/2020/12/16/covering-for-hunter-biden-why-americans-distrust-the-media/)。 [脸书撤销了该信息](https://nypost.com/2020/10/14/facebook-limits-spread-of-the-posts-hunter-biden-expose/)，而[推特则完全锁定了邮报的帐户](https://nypost.com/2020/10/16/twitter-still-holding-the-posts-account-hostage-over-hunter-biden-links/)。大选前几周，投票人被剥夺了可能影响他们选择的信息。
+克拉克将军上周向参议院军事委员会汇报，该特遣部队是“国际日期变更线以西战区”第一支反虚假信息部队。
 
-现在，在民主党执政的情况下，议员们不可能将科技公司归为公共运营商。但是托马斯说，[法院无论如何都可以运用这种推理](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)，而不必等待国会的同意。
+四星上将表示：“信息战是这支部队不可缺失的一部分，在信息领域，中共国对于编造虚假故事、传递模糊信息很在行，我们事实上有能力压制他们不断播撒的部分虚假信息。”
 
-在那之前，公众只会听到硅谷想要他们听到的。就在上周，拉拉·特朗普（Lara Trump）在脸书上发布了对前总统的采访。[脸书](https://nypost.com/2021/03/31/facebook-scrubs-donald-trump-interview-with-daughter-in-law-lara/)立即[将其删除](https://nypost.com/2021/03/31/facebook-scrubs-donald-trump-interview-with-daughter-in-law-lara/)，并解释说“[再有唐纳德·川普的声音发布](https://nypost.com/2021/03/31/facebook-scrubs-donald-trump-interview-with-daughter-in-law-lara/)的[内容将被删除](https://nypost.com/2021/03/31/facebook-scrubs-donald-trump-interview-with-daughter-in-law-lara/)。”
+[!\[\]()!\[\](https://spark.adobe.com/page/YHH6Qs4DtTCXj/images/fb5ae532-d15f-419d-a32f-ae7222a04e6e.jpg?asset_id=5eaeb850-049a-4894-a61f-d8139832f490&amp;img_etag=%2266939e50e34e9a9f22701cee62c9108c%22&amp;size=2560)](https://spark.adobe.com/page/YHH6Qs4DtTCXj/images/fb5ae532-d15f-419d-a32f-ae7222a04e6e.jpg?asset_id=5eaeb850-049a-4894-a61f-d8139832f490&amp;img_etag=%2266939e50e34e9a9f22701cee62c9108c%22&amp;size=1024)
 
-只有最高法院才会恢复未经审查的政治言论，这是美国的理想。托马斯的意见为我们指明了方向。
+中共国发起了精心策划的宣传战及虚假信息战，对此商业新闻媒体或政府却很少曝光。例如，中共国官员散布新冠肺炎是由美国军队带入中共国的谎言，企图以此转移人们对他们处理大瘟疫的批评。
 
-原文作者：贝茜·麦考伊（Betsy McCaughey）博士是纽约州前副州长
-发表时间：2021年4月7日
-原文链接： https://www.newsmax.com/mccaughey/justice-thomas-supreme-court-silicon-valley-big-tech-tyranny/2021/04/07/id/1016707/
+克拉克将军称，信息战是军队现代化的重要组成部分，其他部分包括新型武器和作战能力。该司令部每年约160亿美元的预算中，有很大一部分将用于开发新型精准打击导弹、提升情报能力以及运用高科技人工智能系统。
+
+他说：“为了有效应对未来的竞争，我们必须实现精准打击、[情报、监视、侦察能力]的现代化，以便[部队]做到临危不惧、闻风而动、出其不意。”
+
+其他新系统将包括加密通信和电子战装备。
+
+直到最近，打击恐怖分子是特战司令部的主要工作，以后仍然如此，但同时美国与中共国以及俄罗斯等“大国”战略对手的竞争将是未来一大重点。
+
+克拉克将军说，这两个国家都在武装冲突水平之下的“灰色地带”攻击美国，因此，“在信息领域展开工作至关紧要。”
+
+今年1月包括克拉克将军在内的9名作战司令部司令联名致信国家情报总监，寻求更多支持以揭露中共国和俄罗斯的恶意活动，五角大楼作出回应取消了一些限制。
+
+“特战司令部与其他作战司令部一起，将继续重点关注信息领域，为打击对手提供最佳作战能力。”克拉克将军称。
+
+自2001年以来，部队接受了与中东恐怖分子作战所需的文化和语言技能培训。现在，他们正在接受训练，把对付中共国作为主要重点。
+
+克拉克将军在准备好的证词中说，军方目前的许多挑战都发生在信息领域，“虚假信息正以难以想象的速度和规模、跨越地缘政治界限，被用作政治武器投入战场。”
+
+目前拥有近5000名军人的特战部队处于2001年以来的最低兵力部署水平，近40%的兵力将调整为应对中共国和俄罗斯的威胁，内容包括加强对抗中共国、俄罗斯和其他大国的联盟合作，以及在非武装冲突领域的作战培训及其他措施。
+
+特战司令部领衔指挥五角大楼的“军事信息协助攻势”(Military Information Support Operations MISO)负责与敌人打心理战。该司令部还负责MISO网络作战中心的运作，该中心被称为军事互联网作战的旗舰，负责揭露和打击网络外国宣传和虚假信息。
+
+今年，特战司令部将增加第一批外国合作伙伴和机构间联络官加入MISO网络作战中心。
+
+特战司令部在过去5年中花费了90亿美元用于武器和系统的现代化，其中包括AC-130和MC-130空中炮艇以及用于精准打击的导弹原型。根据预算文件，特战司令部还获得了数百枚AGM-176“格里芬”空对地导弹和小型滑翔弹药，以及小直径炸弹和精准制导弹药海上系统。
+
+秘密作战行动的海军武器完成图纸设计的有：湿式及干式潜水器、无人机潜艇以及秘密攻敌作战船只。
+
+参议院军事委员会排名第一的共和党人、俄克拉荷马州参议员詹姆斯·英霍夫(James M. Inhofe)在上周的听证会上表示，中共国和俄罗斯两国正在扩大非正规战，涉及全球范围内的网络攻击、虚假信息、代理部队和经济讹诈。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/YHH6Qs4DtTCXj/images/31722bbd-da59-4567-95f2-00493d00ca4e.jpg?asset_id=3ab0d836-4c2d-4c63-9543-6b1f52d1d7f7&amp;img_etag=%22fce68fa25d482d82787b2722de5258c5%22&amp;size=2560)](https://spark.adobe.com/page/YHH6Qs4DtTCXj/images/31722bbd-da59-4567-95f2-00493d00ca4e.jpg?asset_id=3ab0d836-4c2d-4c63-9543-6b1f52d1d7f7&amp;img_etag=%22fce68fa25d482d82787b2722de5258c5%22&amp;size=1024)詹姆斯·英霍夫(James M. Inhofe)
+
+“他们已经证明这些策略在乌克兰、叙利亚和南中国海等地是有效的，现在他们正在向非洲和西半球输出这些策略。”英霍夫先生说。
+
+美军网络司令部对来自美国本土的网络攻击束手无策
+
+五角大楼网络司令部司令保罗·仲宗根(Paul Nakasone)将军最近披露，来自中共国和俄罗斯的黑客如何老练地利用美国的各种保护隐私权的法律，阻止美军网络司令部和美国国家安全局监控及挫败他们的网络攻击。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/YHH6Qs4DtTCXj/images/41a35281-4594-4091-a25b-8fd0eb13972c.jpg?asset_id=f528acc7-cf3d-4150-992a-d3ad2be02844&amp;img_etag=%22f826369992be07163551f2af07de683c%22&amp;size=2560)](https://spark.adobe.com/page/YHH6Qs4DtTCXj/images/41a35281-4594-4091-a25b-8fd0eb13972c.jpg?asset_id=f528acc7-cf3d-4150-992a-d3ad2be02844&amp;img_etag=%22f826369992be07163551f2af07de683c%22&amp;size=1024)保罗·仲宗根(Paul Nakasone)
+
+中曾根将军说，该司令部一直在努力应对源自俄罗斯的对SolarWinds网络攻击和与中共国有关的微软网络攻击。
+
+在参议院军事委员会的听证会上，当被问及如何遏制敌对网络攻击的程度时，仲宗根将军表示：“我认为第一个教训是，这给我们都敲响了警钟，我们不能等闲视之，他们是敌手，作战形式越来越复杂，范围越来越广，规模越来越大。”
+
+美国“宪法第四修正案”的隐私权法保护人们免受不合理的搜查和扣押，因此网络司令部和国家安全局的任务重点集中在海外。
+
+仲宗根将军称：“我们确实必须具备知己（知彼）的能力，现在却我们很难知己，因为我们的对手能够源源不断地进入我们国家，能够非常及时、非常有效地利用我们的基础设施来对付我们。”
+
+将军指出，有报道称外国干涉美国大选，我们需要更好地了解外国对手在美国国内的行动。
+
+网络司令部和国家安全局可以侦测到外国的网络活动和攻击，但先进的网军行动迅速，并知道美国的法律和政策禁止军事和情报机构在美国境内开展活动。
+
+以往的电子攻击来自世界不同地区，近年来黑客在美国境内活动，这给国家安全局和网络司令部造成了一个“盲点”，仲宗根司令称其为“灌水入有洞之桶”。
+
+网络司令部约有6000人的兵力，并组建了133个小组进行防御性和进攻性的网络作战，美国国家安全局有多达4万名员工。
+
+“我们可以拥有所有想要的能力、所有想要的团队，但如果我们灌水的桶上有一个洞，而水流出的速度比灌入的速度还要快，那就有问题了，”他说，“我用它来比喻目前的负荷能力，我们应该从国家战略大纵深角度看待当前问题。”
+
+拜登政府正在寻求解决这个问题，尽管仲宗根司令没有对此作详细说明。
+
+根据政策和法律，网络司令部和国家安全局在美国境外活动；联邦调查局和其他机构有权在国内行动，但缺乏网络司令部和国家安全局配备的各种技术能力。
+
+“不过我现在可以确定的是，我们的对手明白，他们可以进入美国，并迅速利用互联网服务提供商，上网进行一系列活动，然后在搜查令发出之前，即我们真正可以让美国的民事当局对其监控之前，从网上撤退，”他说，“这就是我们现在面临的挑战。”
+
+他表示，一个解决方案是在政府和私营部门之间建立更大的伙伴关系。
+
+将军称，除了要跨越国家内外有别的法律鸿沟，还需要完善信息共享，以应对网络攻击。
+
+SolarWinds和微软的攻击发生在美国，法律障碍和缺乏激励措施阻止了私营企业与政府分享有关攻击的信息。
+
+这位四星将军表示：“作为政府，我们难以掌握实际入侵的总体情况，不过我们正在解决之一难题。”
+
+🔗[原文链接](https://www.washingtontimes.com/news/2021/mar/31/socom-fights-chinas-disinformation/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/YHH6Qs4DtTCXj/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/YHH6Qs4DtTCXj/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

@@ -1,48 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻简评】不管“疫苗护照”怎么诱惑，你应该想办法保命救财
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1091342/)
+## 澳洲阿德莱德大学拒绝来自中共的研究资金
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1091407/)
 
-作者：喜马拉雅东京樱花团 / 自强BILL
+俄罗斯莫斯科喀秋莎农场   银河
 
-![](https://lh4.googleusercontent.com/YmWowcpIXahkNGKABKb2sLjQaZe6E6be5sxRbg4kyEGE4p-h8BKTA4l5Vqy4SkrmUAFw8K2VcUnh7UtSu5Yr6mzZzsqw7iYEB77qnwEBxKsWJf8ltPzM-oc4UGxLCXvg1li5A9yh)
-图片为日本东京樱花团勉强生战友制作
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/A-16.jpg)adelaidenow.com.au
+《先驱太阳报》 (Herald Sun)报道，澳洲阿德莱德大学(Adelaide University)拒绝了来自中共的数百万美元研究资金，理由是涉嫌与军事或安全项目有关。
 
-本周CDC宣布，四分之一的美国成年人，大约有七千万左右，已接种CCP病毒疫苗，约有三分之一的成年人已接种了第一剂疫苗。
+一个有关先进材料的项目被发现部分由一家香港公司提供资金，该公司的利益延伸至中共内地更深处的涉及可能与洗钱或隐藏资产有关的所有者。先进材料通常有军事用途。阿德莱德以涉嫌与中共军事安全有关，拒绝了来自该公司的科研资金。
 
-各州现在已承诺向任何人开放疫苗接种。从下周一开始，年龄在16周岁以上。因此接种疫苗的国家越来越多。新的大流行病毒情况下，如果你注射疫苗，你会获得一个证书，大家称为“疫苗护照”。那么，我们是否应该证明我们已经接种疫苗呢？
+阿德莱德大学也拒绝了外国大学“与核武器计划有关”的合作，阿德莱德大学没有透露涉及的外国大学的名字，但表示，这五所大学中有两所风险很高，因为它们的国防研究“和核武器项目有关联”。
 
-美国联邦政府表示，可能不会要求强制性的疫苗护照。但是，一些大学的学生，回到学校，却被要求出示疫苗护照。去球场看比赛，观众进场，也要求出示疫苗护照。另外，挪威邮轮也要求，所有乘客需要证明已经接种疫苗。
+阿德莱德大学副校长Peter Hoj和科研副校长Anton Middelberg出席了联邦高等教育安全风险调查委员会，随后将这些信息提交给了该委员会。阿德莱德大学是澳大利亚从事国防研究最深入的大学之一，该校领导人称需警惕国际。他们说，“尽管国际接触与合作是成功的促成因素，但国际合作与保护主权利益之间的平衡，以前很少像现在这样既重要又令人担忧。”
 
-在公共卫生和公民权利两者之间，专家认为，你有权对自己做出决定，是不是要打疫苗，但是，你无权对他人造成伤害。如果您患有传染病，并且在公共场合出门，你没有戴口罩，你也没有接种疫苗，那么，你真的有可能危及别人的生命健康。
+该大学透露，自2016年以来，它已获得联邦政府在敏感国防或安全领域的许可，获得了6个软件或技术出口许可和5个货物出口许可，但没有透露目的地或价值。
 
-在疫苗没有成功完成大规模三期临床试验之前，无安全保证的情况下，建议你不要打疫苗。如果你被误导去打疫苗，你可能会感觉头痛，皮肤发痒，有不确定的潜在风险，甚至可能危及你的生命。
+参考链接：
 
-那么，你在面对疫苗护照的“诱导”，你应该怎么办才是更明智的？
+[https://www.heraldsun.com.au/news/south-australia/adelaide-university-rejects-lucrative-research-funding-from-china-because-of-suspected-defence-connections/news-story/7eff379de9f93283ddadd525be337138](https://www.heraldsun.com.au/news/south-australia/adelaide-university-rejects-lucrative-research-funding-from-china-because-of-suspected-defence-connections/news-story/7eff379de9f93283ddadd525be337138)
 
-做好防疫，戴好口罩，勤洗手，参考新中国联邦专家的建议，吃羟氯喹预防，或加锌片进行治疗。具体你需要吃多少剂量，请联系你的医生或参考医学专家的方案。
-
-最后，请你保持关注，我们一定要找到病毒来源是哪里……
-
-祝您身体健康！
-
-新闻来源：
-
-
-
-
-
-
-
-*免责申明：本文只代表作者观点，与GNews网站无关。*
-
-*校对：喜马拉雅东京樱花团 / 東洋武士*
-*责任编辑：喜马拉雅东京樱花团 / 文小白*
-*发布：喜马拉雅东京樱花团 /* *煙火1095*
-![]()![](https://gnews.org/wp-content/uploads/2021/04/二维码-1.jpg)
-0413C069c
-
-
-
-0
++1

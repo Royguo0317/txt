@@ -1,25 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲阿德莱德大学拒绝来自中共的研究资金
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1091407/)
+## 伊朗违反核协议称将进行60%的铀浓缩活动
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1091534/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/A-16.jpg)adelaidenow.com.au
-《先驱太阳报》 (Herald Sun)报道，澳洲阿德莱德大学(Adelaide University)拒绝了来自中共的数百万美元研究资金，理由是涉嫌与军事或安全项目有关。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/R-12.jpg)theglobepost.com
+据当地媒体报道，伊朗周二表示，将开始进行纯度达到60%的铀浓缩活动。几天前，伊朗纳坦兹核设施遭到疑似以色列袭击。
 
-一个有关先进材料的项目被发现部分由一家香港公司提供资金，该公司的利益延伸至中共内地更深处的涉及可能与洗钱或隐藏资产有关的所有者。先进材料通常有军事用途。阿德莱德以涉嫌与中共军事安全有关，拒绝了来自该公司的科研资金。
+伊朗星期二早些时候向国际原子能机构转达了这一决定，最近几个月，伊朗将浓缩铀的纯度提高到了20%，远高于核协议规定的3.67%的上限。现提出进行纯度达到60%的铀浓缩活动，此举将严重违反伊朗2015年与世界大国签署的核协议。
 
-阿德莱德大学也拒绝了外国大学“与核武器计划有关”的合作，阿德莱德大学没有透露涉及的外国大学的名字，但表示，这五所大学中有两所风险很高，因为它们的国防研究“和核武器项目有关联”。
+伊朗新闻电视台报道，伊朗将很快更换在纳坦兹遭到破坏的离心机，而且还将在该核设施再安装1000台浓缩能力提高50%的离心机。《纽约时报》称，一个爆炸装置被秘密带入纳坦兹的设施，并远程引爆，摧毁了电力系统。在袭击发生的前一天，伊朗刚刚宣布，它在纳坦兹启动了先进的IR-6铀浓缩离心机，这也违反了它根据2015年核协议做出的承诺，该协议规定伊朗只能使用第一代IR-1离心机。
 
-阿德莱德大学副校长Peter Hoj和科研副校长Anton Middelberg出席了联邦高等教育安全风险调查委员会，随后将这些信息提交给了该委员会。阿德莱德大学是澳大利亚从事国防研究最深入的大学之一，该校领导人称需警惕国际。他们说，“尽管国际接触与合作是成功的促成因素，但国际合作与保护主权利益之间的平衡，以前很少像现在这样既重要又令人担忧。”
+以色列媒体称，以色列摩萨德情报机构宣布对伊朗纳坦兹核设施断电负责。伊朗称这是“恐怖行为”，将“保留对作恶者采取行动的权利”。
 
-该大学透露，自2016年以来，它已获得联邦政府在敏感国防或安全领域的许可，获得了6个软件或技术出口许可和5个货物出口许可，但没有透露目的地或价值。
+根据最初与英国、中共国、法国、德国、俄罗斯和美国这六个大国达成的协议，伊朗同意限制其核活动，以换取解除对伊朗的制裁。现伊朗正与各国对恢复核协议进行谈判，尚未与美国就撤销制裁问题达成共识。
+
+美国国防部长奥斯汀星期天抵达以色列，与以色列总理内塔尼亚胡和国防部长甘茨举行会谈。内塔尼亚胡表示“永远不会允许伊朗获得核能力来实现其消灭以色列的种族灭绝目标。”
+
+面对以色列的强硬表态，伊朗声称将进行纯度达到60%的铀浓缩活动进一步对美国施压。面对此困局，让美国重新加入旨在限制德黑兰核计划的核协议的努力变得更加复杂。
 
 参考链接：
 
-[https://www.heraldsun.com.au/news/south-australia/adelaide-university-rejects-lucrative-research-funding-from-china-because-of-suspected-defence-connections/news-story/7eff379de9f93283ddadd525be337138](https://www.heraldsun.com.au/news/south-australia/adelaide-university-rejects-lucrative-research-funding-from-china-because-of-suspected-defence-connections/news-story/7eff379de9f93283ddadd525be337138)
+[https://english.kyodonews.net/news/2021/04/cf1b89ec5aac-iran-vows-to-start-60-uranium-enrichment-in-breach-of-nuclear-deal.html](https://english.kyodonews.net/news/2021/04/cf1b89ec5aac-iran-vows-to-start-60-uranium-enrichment-in-breach-of-nuclear-deal.html)
 
-+1
+0

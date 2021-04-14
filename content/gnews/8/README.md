@@ -1,53 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙内热搜】实地探访：美国驻成都大使馆关闭9个月后，近况如何？
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1092019/)
+## 【百姓小妍】因北斗掉线自杀司机头七刚过 广东又现卡友割腕证清白!
+` 小妍说` [轉載自GNews](https://gnews.org/zh-hans/1091913/)
 
-作者：纽约香草山 文帝
+作者：[小妍说](https://gnews.org/zh-hans/?s=%E5%B0%8F%E5%A6%8D%E8%AF%B4)  旧金山金喜农场
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
+山东货车司机赵师傅驾驶的车辆在满水满油的情况下装货时称重为49.89吨，沿途经过山东、江苏、安徽、江西、广东，均未显示超顿（按照交通运输部与公安部办公厅《关于规范治理超限超载专项行动有关执法工作的通知》“超过规定限载标准1吨以内的,予以警告后放行”。)车辆行至广东清远超限站时称重为50.24吨，面临罚款500元记分3分，还要卸货耽误到次日，货物迟到要承担违约金。赵师傅再三要求复磅无果后,在交通执法大厅内采取过激行为—割腕，事后在该超限站复磅结果为49.96吨。
 
+【免责声明】尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
+**欢迎战友加入旧金山金喜准农场**
 
-美国驻成都大使馆自2020年7月27日正式关闭以来，已近9个月。美国驻中共国大使被召回，导致美国驻中共大使空缺也已经超过半年时间。在中美关系持续僵持之下，见证历史的不仅是个人，还有那些标志性建筑。
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片58.png)原美国驻中共国成都大使馆(一侧)
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片59.png)原美国驻中共国成都大使馆
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
 
-原美国驻中共国成都大使馆门前围起“地铁工程”施工标识，大门依旧紧闭，窗户紧锁。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片60.png)原美国驻中共国成都大使馆(正门)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片61.png)原美国驻中共国成都大使馆(岗亭处)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片62.png)原美国驻中共国成都大使馆(一侧)
-
-现场勘察发现，临近的区域有地铁修建工程，而此处与工程并不相关。推测应该是表面以“修地铁”的借口，将此处“合理化”封闭。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片66.png)原美国驻中共国成都大使馆(正对面)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片63.png)原美国驻中共国成都大使馆(正对面)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片64.png)原美国驻中共国成都大使馆(正对面)
-
-曾经在美国驻中共国成都大使馆前相关的旅游、签证等相关店铺业务，已经几乎全部倒闭。
-
-
-
-校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpg)
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
 
 0
