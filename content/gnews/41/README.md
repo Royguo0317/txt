@@ -1,50 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/04/07 班农专访(9)：假记者释放新闻否认新疆集中营
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1090498/)
+## FDA和CDC呼吁停止已经给数百万美国人提供的COVID疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1090528/)
 
-视频字幕：JohnsonR | 听写/翻译：Wade | 校对：Roberts | 简评/文字整理/编辑：胖丁 | Page：青山
-[!\[\]()!\[\](https://spark.adobe.com/page/RXIYIjUiPx5pG/images/ba6f32a5-fc8d-445f-bf49-a4eacdaee439.jpg?asset_id=8c7b2f04-64b2-49fe-9696-9a27ef1d8a25&amp;img_etag=%227816f29513e1d666f185f3f1089d0887%22&amp;size=2560)](https://spark.adobe.com/page/RXIYIjUiPx5pG/images/ba6f32a5-fc8d-445f-bf49-a4eacdaee439.jpg?asset_id=8c7b2f04-64b2-49fe-9696-9a27ef1d8a25&amp;img_etag=%227816f29513e1d666f185f3f1089d0887%22&amp;size=1024)
-**简评：**
-
-一名没有证件的假记者发布消息称新疆集中营不存在强制绝育和强制劳动，被怀疑是中共的大外宣。因为爆料革命新中国联邦，GNews，GTV和战斗室的存在，中共电视台和中共政府的宣传机构已经失去了信任。为了防止西方国家联合抵制北京冬奥会，中共大外宣竭力否认发生在新疆的种族灭绝行为。
-
-[GTV视频链接](https://gtv.org/video/id=606fe4b7dbc8001854a6b761)
+- 翻译评论：Jenny Ball
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**视频字幕：**
+**西班牙2021年4月13日电/西喜社——**
 
-**TCC:** 最近一篇报道声称，对中共新疆集中营强制绝育和强制劳动的指控是虚假新闻。
+联邦当局呼吁暂时停止使用强生冠状病毒疫苗，直到他们评估该疫苗引起血液凝块的风险为止。
 
-《勒芒》等法国媒体经调查后发现从未给这篇报道的记者Loring Bermont发放记者证。你对此有什么看法？
+美国食品药品监督管理局和疾病预防控制中心于周二上午发表联合声明，宣布暂停接种疫苗。
 
-**Bannon: **我认为这是中共大外宣的操作。要知道，因为爆料革命，新中国联邦，Gnews，GTV和战斗室的存在，已经让人们唾弃了央视海外频道。
+“截至4月12日，美国疾病预防控制委员会CDC和FDA已经注射了超过680万剂强生疫苗，而FDA正在审查有关数据，这些数据涉及6例报告美国罕见的严重血凝块病例。”
 
-它在英国已经失去了市场，它是中央电视台和中共政府的宣传机器，而不是真正的电视媒体，所以它失去了市场。
+声明说：“人们发现一种称为脑静脉窦血栓形成（CVST）的血凝块与低水平的血小板（血小板减少症）结合在一起。这六例病例均发生在18至48岁之间的妇女中，并且在接种疫苗后6至13天出现了症状。”
 
-所以它需要另外开辟市场。我认为这很可疑，Bermont是否真实存在？
+声明说，这种血块的治疗与大多数血块不同，标准治疗涉及一种称为肝素的药物，“可能是危险的，需要采取替代治疗。”
 
-除非我看到更多证据，否则我认为Bermont并不存在，在我看来这就是中共放出的假消息搅浑水。
+疾病预防控制委员会将在周三举行会议，“以进一步审查这些案件并评估其潜在意义。 FDA将审查该分析，因为它还将调查这些案件。”
 
-关键是，中共对于新疆的报道非常敏感，它们非常在乎冬奥会。
+“在该过程完成之前，出于谨慎考虑，我们建议暂停使用该疫苗。这一点在一定程度上很重要，以确保医疗保健提供者群体意识到这些不良事件的可能性，并且由于这种血块需要采取独特的治疗措施，因此可以计划适当的识别和管理。”
 
-它们现在害怕的是，如果更多（关于新疆的）真相在欧洲和美国公之于众，会导致这些国家联合抵制冬奥会，这是他们担心的。
+“接种强生疫苗的人在接种疫苗后三周内出现严重的头痛，腹痛，腿痛或呼吸急促，应与医疗保健提供者联系。
 
-可以看出中共是多么害怕，所以放出了很多假新闻（转移视线）。
+上周，对强生疫苗的数种不良反应导致科罗拉多州当局关闭了丹佛郊区的大规模疫苗接种地点。
 
-这也是为什么你们的节目非常重要。
+**评论：抛去对疫苗制造过程的基本常识的了解，如必经的三期试验：实验室，动物，人体，我们从这些恐怖的疫苗接种事故中，是否应该问问政府和大制药公司以及科学界，不知道病毒来源的原始信息，就不知道病毒的构成，如何能够生产出防御病毒的疫苗？现在的疫苗到底是为了保护人民的健康还是别有用心？**
 
-我每周都上你们的节目，因为对我而言Gnews和GTV是全世界对中国人民自由最重要的平台之一。
+编辑：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+**素材来源：**[西方杂志新闻, 4月13日发布的杰克·戴维斯（Jack Davis）文章](https://www.westernjournal.com/fda-cdc-call-halt-covid-vaccine-already-given-millions-americans/?utm_source=Email&amp;utm_medium=WJBreaking&amp;utm_campaign=breaking&amp;utm_content=western-journal)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/RXIYIjUiPx5pG/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/RXIYIjUiPx5pG/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 0

@@ -1,261 +1,97 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日信息拾贝0413.2021
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1086071/)
+## 【世事解评】数字人民币对墙内百姓生活的影响
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1090493/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+作者：纽约香草山金融部 AT
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
-## 中共病毒
 
-4月12日至13日早，关于中共病毒真相的推文链如下。
 
-劳伦斯-塞林博士的推文越来越专业化，字里行间都是情报：（详细解读请收看[路德时评13日早间节目](https://gtv.org/video/id=607591cb6e11a756ede1d9db)）
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-“众所周知，将2002-2004年SARS-CoV-1大流行病毒中E蛋白的氨基酸E69和G70替换为精氨酸（R），毒力会增加。在#COVID19和蝙蝠冠状病毒ZC45、RacCS203和RaTG13的相同E蛋白中也可以看到这样的替换。#中共病毒”
 
-英雄科学家闫博士回推：
 
-“值得注意的是，RaTG13是假的，如第二份闫氏报告所示，而RacCS203是王林发（Daszak与石正丽的长期合作者）在2021年2月9日发表的补充 ‘自然起源证据’。
-所以#COVID19的E蛋白在现实中只与其骨架ZC45/ZXC21病毒相同。”
+**【什么是数字人民币】**
 
-爆料革命战友德意志之鹰回复闫博士：
+数字人民币是由中（共）国人民银行牵头研发的，暂时被定名为“DC/EP”（即“数字货币/电子支付”的缩写）。
 
-自称蝙蝠侠王林发，他的目的是混淆调查。他说“将基因多样化的SC2r-CoVs的地理分布从日本和中国扩展到泰国，覆盖4800公里。”不对！王先生知道实验室工程的可信度很高。
+中（共）国人民银行规定：数字人民币和纸质人民币等值，可以与后者自由兑换，功能属性与纸钞完全一样，只不过是数字化形态。数字人民币虽然也是虚拟货币，和比特币等基于区块链技术的现有加密数字货币不同的是，中（共）国央行仍是货币的发行者，且用户注册需要使用实名。
 
+![]()![](https://cdn.pingwest.com/portal/2020/04/27/__8775h3ARDFA5w4F8B1T8N5AQmC_dd5.jpg?x-oss-process=style/article-body)图源网络
 
+**【数字人民币的发展历程】**
 
-> To note, RaTG13 is fake as shown in the 2nd Yan Report, while RacCS203 is published to add “nature-origin evidence” on 9 Feb 2021, by Linfa WANG (Daszak & SHI’s long-term collaborator).
-> So E protein of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) is only identical with its backbone ZC45/ZXC21 virus in the reality. [https://t.co/S9B92s9jpo](https://t.co/S9B92s9jpo)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 13, 2021](https://twitter.com/DrLiMengYAN1/status/1381949982794776578?ref_src=twsrc%5Etfw)
+2014年，中（共）国人民银行成立中（共）国人民银行数字货币研究所，进行专项研究。
 
+2017年末，DC/EP在坚持双层运营、现金（M0）替代、可控匿名的前提下，基本完成了顶层设计、标准制定、功能研发和联调测试等工作。
 
+2020年8月14日，中（共）国商务部提出：在京津冀、长三角、粤港澳大湾区及中西部具备条件的试点地区，开展数字人民币试点运行。先由深圳、成都、苏州、雄安新区等地及未来冬奥场景相关部门协助推进，而全面深化试点地区为北京、天津、上海、重庆（涪陵区等21个市辖区）、海南等28个省市（区域）。
 
+2020年10月8日，深圳市人民政府联合中（共）国人民银行开展数字人民币红包试点。
 
+2020年10月，中共中央办公厅、国务院办公厅联合发布的《深圳建设中（共）国特色社会主义市场经济先行示范区综合改革试点实施方案（2020-2025）》规定，数字人民币不能出境使用，不能买卖黄金和美元，只能在境内的资本市场流通，可在房地产市场、股票投资等境内交易中使用。
 
-> What Linfang Wang (self-claimed Batman) aimed is to muddle the investigation:
-> "extended the geographic distribution of genetically diverse SC2r-CoVs from Japan and China to Thailand over a 4800km range."
-> 
-> No! Wang knows lab engineering is highly plausible:[https://t.co/jvKwryXN9W](https://t.co/jvKwryXN9W) [https://t.co/Ww3WDsC8b5](https://t.co/Ww3WDsC8b5)
-> — 德意志之鹰 (@dezying) [April 13, 2021](https://twitter.com/dezying/status/1381952004499636227?ref_src=twsrc%5Etfw)
+2020年10月23日，中（共）国人民银行就《中华人民共和国中（共）国人民银行法（修订草案征求意见稿）》公开征求意见。根据征求意见稿第十九条加入了“人民币包括实物形式和数位形式”这一条文，代表了数字人民币将被赋予法律地位。
 
+2020年12月4日，江苏省苏州市面向符合条件的苏州市民发放了2000万元数字人民币消费红包，此次试点的使用者可在指定的线下和线上商铺消费。
 
+2021年1月，深圳市在福田区开展数字人民币红包试点，共计2000万元。
 
-德意志之鹰战友回推塞林博士：
+2021年1月5日，上海市同仁医院试点数字人民币使用。
 
-我可以提供一些逻辑联系吗？
-执着者面对马利克-佩里斯和他的港大队在2010年的表现。
-[https://pubmed.ncbi.nlm.nih.gov/20861307/](https://pubmed.ncbi.nlm.nih.gov/20861307/)
+2021年2月7日，北京市启动“数位王府井 冰雪购物节”数字人民币红包预约活动，面向在京个人发放1000万元数字人民币红包。
 
-结果发现SARS-CoV-2发病的关键。
-[https://pubmed.ncbi.nlm.nih.gov/32891874/](https://pubmed.ncbi.nlm.nih.gov/32891874/)
+2021年2月24日，成都市启动“数字人民币 红包迎新春”活动，面向在蓉个人发放总额4000万元的数字人民币消费红包。
 
-附赠：闫丽梦博士对香港大学稔熟的信息。
-[https://nature.com/articles/s41586-020-2342-5](https://nature.com/articles/s41586-020-2342-5)
+从以上数据可以看出，2020下半年开始，人民币数字化的步伐明显加快。
 
-塞林博士回复道：
+**【数字货币与电子支付不同】**
 
-“@德意志之鹰 正确的科普文章展示了通过修改E蛋白来增加#COVID19的毒性，从而 “比SARS-CoV 的E蛋白更能有效地破坏肺上皮屏障、并放大炎症的过程”
-https://doi.org/10.3389/fmicb.2020.02086…
+很多人混淆了数字货币与电子支付的概念，认为人民币是否数字化，对人们的日常生活几无影响。毕竟，现在“微信支付”和“支付宝”的普及，几乎涵盖了人们日常生活的方方面面，人们买东西大多使用电子支付了，出门几乎不带现金，这已是墙内生活的常态。其实，二者是两个不同的概念：电子支付是支付手段，数字货币是支付内容。“支付宝”和“微信支付”是阿里巴巴和腾讯公司建立的两个支付平台，其支付内容，现在是实体人民币，将来是数字人民币。
 
+**【数字货币对人民生活的影响】**
 
+中共央行对数字货币的解释是，用其来替代流通中的现金（M0），即纸币和硬币。在中（共）国，M0指在社会上流通的可立即使用的现金——存在银行账户上的不算。而数字货币要替代的就是这部分看得见、摸得着的货币。
 
-> Correct scientific articles are shown by [@dezying](https://twitter.com/dezying?ref_src=twsrc%5Etfw) linking an increase in [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)'s virulence by modifying the E Protein to "disrupt the pulmonary epithelial barrier and amplify the inflammatory process more effectively than SARS-CoV E does"[https://t.co/gCQV9J5VjQ](https://t.co/gCQV9J5VjQ)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/m4Vzq9m4E9](https://t.co/m4Vzq9m4E9)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 13, 2021](https://twitter.com/LawrenceSellin/status/1381963736399769609?ref_src=twsrc%5Etfw)
+那么，一旦数字货币完全取代流通现金，会对墙内人民的生活造成什么影响呢？
 
+📌**失去对个人财富支配的自由**
 
+数字货币可以进行属性标记，这使央行对现金交易可以实现时时监控，而且还能操纵或阻止交易发生。中共通过控制个人对数字货币的使用，从而达到密切掌握及管控个人财富，甚至操控个人社会生活的目的。
 
+比如，中共可以规定某些数字货币用于某种商品消费，甚至只能在某个地区消费，不能跨区域使用等——这类似文革时的粮票、布票。假如百姓账上有数字货币，但被央行规定只能用于买日用消费品，那你就不能兑换美金，因为数字钱包里没有这个属性的数字货币可供使用。而且在2020年10月国务院出台的规定中，明确数字货币不能购买美元，不能出境使用。那么，以后就很有可能当民众计划出国旅行时，被换外汇卡死。普通老百姓只能拥有人民币，没有外汇也就不可能再出国。中共把中国人逃离其统治的道路封死了。
 
+如果数字货币规定的某种特定类别的消费不能完成，那这笔资金也不能被他用，将处于冻结状态。例如，某部分数字货币只能用于户口所在城市的房租支付，倘若该账户持有人不在户口所在地生活，而是在另一个城市租房居住，那这部分数字货币就无法使用。这部分钱对于他来说，只是在账户上以数字的形式存在——看得见，但用不了——造成资金闲置，即使有钱也不能花，实际上是个人财富的缩水。同时，该账户持有人可能还面临一个问题，就是在数字人民币施行后，他由于没有可用于在生活城市支付房租的数字人民币，而被迫离开。中共通过控制数字货币实现了对墙内百姓流动管控的目的。因此，数字人民币的快速推广及使用，不仅是一种新货币体系，更是中共监控百姓技术手段的升级。数字人民币将改变墙内百姓的生活状态：通过控制个人经济活动，从而改变个人生活决策——这样更隐蔽、更有效。
 
-彭博社今日讯，“得了COVID19就不会再得病吗？在形成大流行的过程中，人们对SARS-CoV-2病毒的免疫反应保护有多好，有多长”。尽管文章的问与答对中共病毒感染、疫苗和免疫性存在显而易见的误导，文章指出：更多无症状的感染没有被检测到，但是正在发生。对69%的检测人群进行研究发现，有0.65%的人再次呈阳性。
+当然，以上只是我们根据数字货币的特性及对中共无底限残暴的了解，推测出的几种可能性。但不可否认的是，现实中数字货币推行后，其影响会渗透到人们生活的方方面面。至于，上述情况是否一定会发生呢？以现在国内的经济状况及未来全球声讨中共的形势发展看，在中共经济捉襟见肘、外部压力增大的情况下，上述举措很有可能被施行。
 
+📌**个人财富的安全性无保障**
 
+数字货币的特性决定，交易双方均可匿名，但对于央行却是全透明。因为数字人民币是中心化的，因此人民银行可以掌握全量资讯，利用巨量资料、人工智慧等技术，分析交易资料和资金流向，追踪一切经济活动。从此，人民的一切经济行为及个人财富、消费习惯等，尽在央行管控之中。
 
-> Can you get Covid-19 twice? What reinfection cases really mean [https://t.co/2Lx3sBh05d](https://t.co/2Lx3sBh05d)
-> — Bloomberg (@business) [April 13, 2021](https://twitter.com/business/status/1381944511564242947?ref_src=twsrc%5Etfw)
+在实体货币下，百姓从银行取出的现金，某种程度上脱离了央行的管控，中共政府对于这部分在个人手里的资金流向不能完全控制；数字货币实施后，这一个漏洞将被堵住。个人的每一分钱，都在央行的监控下，而且还可以计划管理其流向。如果中共政府认为有必要，它可以分秒之内让个人的资金归零，从财富上彻底控制每一个人，在经济上把中国人打跪下，让百姓彻底屈服，放弃反抗。中共以“商鞅驭民五术”的“贫民”之术，实现中共对百姓的极度高压管控与维稳。
 
+继2019年中共打开了第一个“潘多拉盒子”，释放出中共病毒后，2020年中共紧锣密鼓地加快了人民币数字化的进程，“潘多拉盒子”将再次被打开：对外用数字人民币推进人民币的国际化，挑战美元世界储备货币的地位，进而助其实现搞乱美国、搞垮美国、搞死美国的战略；对内施行个人财富的极度管控，以及全面回到计划经济时代，以此实现中共称霸世界的野心。由此可见，中共在对内高度专制集权、对外强势扩张的路上飞奔。上帝欲让其灭亡，必先让其疯狂！中共在毁灭的道路上，距离终点越来越近。
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
+编辑/校对/发稿：Irene木木
 
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
 
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
 
-## 中共病毒疫苗
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-13日班农先生疫情作战室谈到，科学证据表明疫苗无效，数日前有媒体爆出某些疫苗发现导致血栓的新闻。今日该报道出现在更多媒体，权威机构对由川普总统支持开发的强生疫苗给出明确意见。
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-据JustTheNews ：在罕见血栓报告后，CDC（美国疾控防止中心）、FDA（美国药品食品管理局）建议暂停强生COVID疫苗的使用。联邦机构说，他们正在调查6名妇女在他们接受疫苗接种后的日子里的血块。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
 
-> CDC, FDA recommend pause in Johnson & Johnson COVID vaccine after reports of rare blood clots [https://t.co/Hn4EKB7ZJH](https://t.co/Hn4EKB7ZJH) via [@JustTheNews](https://twitter.com/JustTheNews?ref_src=twsrc%5Etfw)
-> — 🛳盘古战龙巡洋舰⚓️喜马拉雅的文雅Wenya Himalaya 🌊 (@ozwenya) [April 13, 2021](https://twitter.com/ozwenya/status/1382069534295674880?ref_src=twsrc%5Etfw)
 
-
-
-
-
-据彭博社，美国广而告之，呼吁暂停引起血栓的强生疫苗。
-
-FDA（美国食品和药物管理局）的官员说“我们建议暂停使用这种疫苗，是出于非常谨慎的考虑，”暂停可能在 “几天内 “结束。暂停的一个关键原因是血栓的正常治疗，血液稀释剂肝素，可能使疾病恶化，甚至致死。一个月前接种疫苗的人风险很低，但在过去几周内有人应该注意到头痛、腿痛、腹痛和呼吸急促。
-
-文章称，这一决定是在美国疫苗接种工作的关键时刻做出，最近几周加速推广疫苗，冠状病毒美国中西部地区变种导致疫情恶。在阿斯利康公司（AstraZeneca Plc）的疫苗出现类似问题导致延误后，可能促使美国减缓注射疫苗，并加剧全球对疫苗的担忧。
-
-CDC副主任Anne Schuchat强调，辉瑞公司-BioNTech SE疫苗和Moderna公司的疫苗没有出现血小板数量低的凝血事件。
-
-报道当日强生股价在纽约交易中下跌2.2％至158.15美元。
-
-此前强生公司疫苗因单剂注射受到欢迎，而辉瑞和Moderna疫苗需要两个剂量间隔几个星期注射。
-
-
-
-> U.S. health officials seek to pause use of Johnson & Johnson’s Covid-19 vaccine on concerns about rare and severe blood clotting side effects [https://t.co/uP2o40B9tk](https://t.co/uP2o40B9tk)
-> — Bloomberg (@business) [April 13, 2021](https://twitter.com/business/status/1381941242674745350?ref_src=twsrc%5Etfw)
-
-
-
-
-
-前总统川普今日GAB回应此新闻道：
-
-拜登政府允许美国食品和药物管理局（FDA）和疾病预防控制中心（CDC）叫停强生公司COVID-19（中共病毒大流行）疫苗的使用，这对全世界的人民都是一种可怕的伤害。这种疫苗的效果已经非同一般，但现在它的声誉将受到永久性的挑战。已经使用过该疫苗的人都会起哄，也许这一切都是为了政治，也许是FDA对辉瑞的偏爱。FDA，尤其是内部存在长期官僚的人，必须得到控制。他们不应该因为可能是政治原因，或者是由于他们在辉瑞公司的朋友建议，才会做出这样的破坏。他们会做这样的事情，让自己看起来很重要。记住，是FDA与辉瑞公司合作，在2020年总统大选后两天宣布批准疫苗。他们不怎么喜欢我，因为我把他们逼得非常紧。但如果我不这样做，你3-5年内都不会有疫苗，也许根本就没有。他们要花好几年的时间来行动！做好检测，清理记录，尽快让强生疫苗重新上线。唯有我们伟大的疫苗，才能打败中（共）国病毒! （[https://gab.com/realdonaldtrump](https://gab.com/realdonaldtrump)）
-
-
-
-据JustTheNews, 中共国疾病预防控制中心主任高福周六表示：”我们将解决目前疫苗保护率不高的问题。”这是中国政府罕见地承认与病毒有关的失败或缺陷。
-不过，高福周日告诉美联社，他说的是全世界的疫苗，而不仅仅是中国制造的疫苗。他说，政府计划开始将它们混合使用，以提高效果。
-
-小议，这会是怎样的信号和误导？是此前Merrit 博士提出的病毒特洛伊木马要上演了吗？
-
-
-
-> Top Chinese health official admits domestic [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) vaccines have low effectiveness [#JustTheNews](https://twitter.com/hashtag/JustTheNews?src=hash&amp;ref_src=twsrc%5Etfw) [@nicks847](https://twitter.com/nicks847?ref_src=twsrc%5Etfw) [https://t.co/5pJLtd5urB](https://t.co/5pJLtd5urB)
-> — Just the News (@JustTheNews) [April 12, 2021](https://twitter.com/JustTheNews/status/1381590432451289094?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 联欧对抗“恶毒的国家行为者”
-
-布林肯国务卿今日推文：我们已抵达布鲁塞尔，期待着与我们的欧洲伙伴讨论关键的优先事项。我们还将继续就这些问题与我们最亲密的盟友进行重要接触，因为**我们期待着共同面对恶毒的国家行为者和其他共同的挑战。**
-
-
-
-> Arrived in Brussels and look forward to discussing key priorities with our European partners. We will also continue our important engagement with our closest Allies on these issues as we look to confront malign state actors and other shared challenges.
-> — Secretary Antony Blinken (@SecBlinken) [April 13, 2021](https://twitter.com/SecBlinken/status/1381868402239811586?ref_src=twsrc%5Etfw)
-
-
-
-## 核处理
-
-我们感谢日本努力在处置福岛第一核电站处理水方面所做工作的透明性。我们期待着日本政府继续与国际原子能机构的合作。
-
-
-
-> We thank Japan for its transparent efforts in its decision to dispose of the treated water from the Fukushima Daiichi site. We look forward to the Government of Japan's continued coordination with the [@iaeaorg](https://twitter.com/iaeaorg?ref_src=twsrc%5Etfw).
-> — Secretary Antony Blinken (@SecBlinken) [April 13, 2021](https://twitter.com/SecBlinken/status/1381769108316954626?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 团结穆斯林人
-
-国务卿布林肯于今日穆斯林斋月季开始日，讲话强调对穆斯林人在抗疫一线工作的感谢，他发推称“今天，我祝愿美国和世界各地的所有穆斯林过一个幸福的斋月。”
-
-
-
-> Today I wish all Muslims in the United States and around the world a blessed Ramadan. [#RamadanKareem](https://twitter.com/hashtag/RamadanKareem?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/e3gSiZCG14](https://t.co/e3gSiZCG14)
-> — Secretary Antony Blinken (@SecBlinken) [April 12, 2021](https://twitter.com/SecBlinken/status/1381603531115876354?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 中共病毒疫情对人的控制
-
-The Blaze 4月8日一篇报道，YouTube删除了罗里达州州长罗恩-德桑蒂斯弗与有资质的医学专家在圆桌会议上讨论中共病毒疫情大流行的视频，称其违反了《社区指南》。
-
-文章称3月18日前川普白宫冠状病毒顾问斯科特-阿特拉斯博士、流行病学家苏尼特拉-古普塔教授、研究人员杰伊-巴塔查里亚博士和马丁-库尔多夫博士参加了圆桌会议。
-
-会议指出在流行病期间为减轻病毒传播而采取的公共政策措施，包括隔离健康人、关闭企业和强制佩戴口罩，其部分原因是出于恐惧，而不是出于科学。
-
-马克-卢比奥议员就此发推：“有朝一日，即使是同意此举的人，也会对权力集中到这些未经选举的公众监管人手中而感到遗憾。”
-
-
-
-> According to reports [@google](https://twitter.com/Google?ref_src=twsrc%5Etfw) [@YouTube](https://twitter.com/YouTube?ref_src=twsrc%5Etfw) censored video of a roundtable by [@GovRonDeSantis](https://twitter.com/GovRonDeSantis?ref_src=twsrc%5Etfw) 
-> 
-> The day is coming when even those who agree with this move will regret the power concentrated into the hands of these unelected gatekeepers of the public square [https://t.co/f8ZM0z0Z0a](https://t.co/f8ZM0z0Z0a)
-> — Marco Rubio (@marcorubio) [April 9, 2021](https://twitter.com/marcorubio/status/1380533397546745858?ref_src=twsrc%5Etfw)
-
-
-
-## “一切都已经开始”？
-
-当日卢比奥议员推文：劳尔-卡斯特罗卸任#古巴共产党党魁并不是真正的改变。但真正的变革已经在进行中了。
-
-
-
-> Raul Castro stepping down as head of the Communist Party in [#Cuba](https://twitter.com/hashtag/Cuba?src=hash&amp;ref_src=twsrc%5Etfw) isn’t real change
-> 
-> But real change is already underway nonetheless
-> — Marco Rubio (@marcorubio) [April 13, 2021](https://twitter.com/marcorubio/status/1381944695408975874?ref_src=twsrc%5Etfw)
-
-
-
-## 抨击拜登
-
-前川普竞选官员大卫-博西（David Bossie）在周一“真正美国之音”节目中接受采访时抨击拜登总统大谈“团结”，拜登“绝对是这个国家有史以来最激进、最左翼的社会主义总统”。
-
-
-
-> .[@David\_Bossie](https://twitter.com/David_Bossie?ref_src=twsrc%5Etfw): [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) is ‘most radical, left-wing socialist president’ America has ever had [#JustTheNews](https://twitter.com/hashtag/JustTheNews?src=hash&amp;ref_src=twsrc%5Etfw) [@alexnitzberg](https://twitter.com/alexnitzberg?ref_src=twsrc%5Etfw) [https://t.co/wrPmRvCQ2I](https://t.co/wrPmRvCQ2I)
-> — Just the News (@JustTheNews) [April 13, 2021](https://twitter.com/JustTheNews/status/1381763973893271554?ref_src=twsrc%5Etfw)
-
-
-
-## 与中共国大战
-
-Newsmax 今日重磅节目，堪称美国舆论先导，今日的内容是美国舆论的试水器、搅拌器，官方定论的序曲，将成为未来美国民众的广泛认识。内容概括如下。
-
-节目标题：“共产中国的同盟在美国”。红色字体强调“与中（共）国的大战”，主持人在节目中劲爆：“拜登政府确实正在使美国处在共产中国的控制之下，中共国是当今对人类的巨大威胁。拜登副总统2011年时在说服美国，称邪恶帝国中共国崛起对美国是有利的。”历史视频中，拜登说“崛起的中（共）国是积极的进步，不仅对中（共）国自身，对美国和西方世界都是。”主持人说，这个说法过去和现在都是谎言，中（共）国崛起过去和现在都是对世界的灾难。拜登政府让之崛起的是下一个希特勒，以及希特勒的整个政府和军队的愚弄。”节目播放了李毅讲话的著名桥段，“只要中国人每天都吃饭睡觉作息，就把美国逼死了”。主持人说，“把美国逼死就是拜登所说的对美国‘积极的进步’。过去几十年发生的事情显示了中(共)国气焰嚣张，中（共）国故意散布病毒导致了疫情大流行。再看看拜登今天说什么，啊！中共国要把美国逼死，可是拜登却对中共国不要对抗只是竞争！”“拜登的国务卿布林肯对宇宙最大的人权侵犯者却说不进行对抗！”
-
-主持人指出，中共国对黑人的歧视最严重。中共国社交媒体、国家审查言论广泛歧视黑人，把非洲人标榜成强奸犯、贩毒者、艾滋病携带者。中共国和所有共产主义一样是骗子。黑命贵运动为什么对中共国歧视黑人的种族歧视沉默？ANTIFA从美国内部摧毁美国，中共从外部工作摧毁美国。中共国是美国最大的威胁！
-
-
-
-> Rep. Guy Reschenthaler said this piece by Newsmax TV's Chris Salcedo on Communist China should be viewed by all incoming Congress members: [https://t.co/VlT7z8v2lm](https://t.co/VlT7z8v2lm) [pic.twitter.com/r3bJrUT3Dk](https://t.co/r3bJrUT3Dk)
-> — Newsmax (@newsmax) [April 13, 2021](https://twitter.com/newsmax/status/1381926387255144450?ref_src=twsrc%5Etfw)
-
-
-
-## 川普先生今日GAB
-
-假新闻CNN，依靠所有的匿名消息来源，也就是说他们很可能编造了整件事情，写了一个非常不诚实的故事，声称国会议员马特-盖茨要求在佛罗里达州棕榈滩的Mar-a-Lago与我见面，但被拒绝了。这完全是假的。CNN为什么不调查和写轻如鸿毛的民主党议员埃里克-斯沃尔韦尔（Eric Swalwell），他与中共国间谍方方有过一段复杂的身体关系，但不知为何却曾任职于声名显赫的众议院情报委员会。斯沃韦尔曾参加总统竞选，却在民调中以创纪录的0选票落选，他已经成为美国国家安全威胁–他应该立即被从委员会中除名! （[https://gab.com/realdonaldtrump/posts/106055482361552886](https://gab.com/realdonaldtrump/posts/106055482361552886)）
-
-
-
-## 未来股市
-
-今日彭博社发推关于亚洲股市攀升的文章，却在推文中使用这样的图片，文字：“股市未来下跌”。这是对西方民众的警示。
-
-
-
-> Stock futures drop [https://t.co/nx3sI68ASw](https://t.co/nx3sI68ASw) [pic.twitter.com/GycUE4CuKT](https://t.co/GycUE4CuKT)
-> — Bloomberg Markets (@markets) [April 13, 2021](https://twitter.com/markets/status/1381927204171436036?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
 
 0
