@@ -1,25 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美立法加速维吾尔难民申请
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1091211/)
+## 澳洲阿德莱德大学拒绝来自中共的研究资金
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1091407/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/U-12.jpg)thelondonpost.net
-路透社报道，美国两党参议员周二提出一项法案以推进加速维吾尔族难民申请，该法案与美国众议院的一项法案相一致，即帮助被中共残暴施以种族灭绝的维吾尔族人。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/A-16.jpg)adelaidenow.com.au
+《先驱太阳报》 (Herald Sun)报道，澳洲阿德莱德大学(Adelaide University)拒绝了来自中共的数百万美元研究资金，理由是涉嫌与军事或安全项目有关。
 
-共和党参议员马尔科·卢比奥（Marco Rubio）和民主党参议员克里斯·库恩斯（Chris Coons）提出了“维吾尔人人权保护法”，该法案将优先给予维吾尔人和其他群体难民地位，包括在中共新疆地区或逃离新疆时受到压迫的哈萨克人和吉尔吉斯人。
+一个有关先进材料的项目被发现部分由一家香港公司提供资金，该公司的利益延伸至中共内地更深处的涉及可能与洗钱或隐藏资产有关的所有者。先进材料通常有军事用途。阿德莱德以涉嫌与中共军事安全有关，拒绝了来自该公司的科研资金。
 
-优先地位将允许数百甚至数千名维吾尔人放弃联合国的推荐，直接以难民身份向美国政府提出申请，从而减少了中共政府可能会被第三国通知并要求将他们遣返回中共的担忧。
+阿德莱德大学也拒绝了外国大学“与核武器计划有关”的合作，阿德莱德大学没有透露涉及的外国大学的名字，但表示，这五所大学中有两所风险很高，因为它们的国防研究“和核武器项目有关联”。
 
-库恩斯指出美国必须继续公开反对中共新疆的人权镇压。参议院的法案补充了众议院3月提出的版本，使得共和党和民主党达成一致，对新疆维吾尔人难民法案可能升级成为法律。
+阿德莱德大学副校长Peter Hoj和科研副校长Anton Middelberg出席了联邦高等教育安全风险调查委员会，随后将这些信息提交给了该委员会。阿德莱德大学是澳大利亚从事国防研究最深入的大学之一，该校领导人称需警惕国际。他们说，“尽管国际接触与合作是成功的促成因素，但国际合作与保护主权利益之间的平衡，以前很少像现在这样既重要又令人担忧。”
 
-该法案还鼓励美国的合作伙伴和盟友为维吾尔人提供难民住宿。
+该大学透露，自2016年以来，它已获得联邦政府在敏感国防或安全领域的许可，获得了6个软件或技术出口许可和5个货物出口许可，但没有透露目的地或价值。
 
 参考链接：
 
-[https://www.reuters.com/article/us-usa-china-uighurs-idUSKBN2C02FN](https://www.reuters.com/article/us-usa-china-uighurs-idUSKBN2C02FN)
+[https://www.heraldsun.com.au/news/south-australia/adelaide-university-rejects-lucrative-research-funding-from-china-because-of-suspected-defence-connections/news-story/7eff379de9f93283ddadd525be337138](https://www.heraldsun.com.au/news/south-australia/adelaide-university-rejects-lucrative-research-funding-from-china-because-of-suspected-defence-connections/news-story/7eff379de9f93283ddadd525be337138)
 
-0
++1

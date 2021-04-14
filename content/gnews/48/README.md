@@ -1,261 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日信息拾贝0413.2021
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1086071/)
+## 浅谈如何实现正道主义——守夜人国家与正义论
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1090644/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+作者：洛杉矶天使农场 – 火枪手
+校对：洛杉矶天使农场 – feihua
+审核：洛杉矶天使农场 – 断播
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
-## 中共病毒
+摘要：正道主义，是新中国联邦创始人郭文贵先生首次提出的概念，笔者想把仅从个人角度所理解的什么是正道主义分享给大家。个人认为正道主义的实现离不开守夜人政府理论和正义论。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/正道主义.jpg)
+正道主义，是新中国联邦创始人郭文贵先生首次提出的概念，郭先生在多次的直播和采访中也对正道主义有详细的解释。笔者想把仅从个人角度所理解的什么是正道主义分享给大家。个人认为正道主义的实现离不开守夜人政府理论和正义论。
 
-4月12日至13日早，关于中共病毒真相的推文链如下。
+关于正道主义，我们首先必须认识正道主义的核心是什么？个人理解，那就是: 敬畏自然，遵守自然和宇宙法则，敬畏天道，即有神论，这就是信仰(这里不去讨论宗教有关的问题)。而共产邪灵所宣扬的无神论则彻底破坏了人们的信仰。
 
-劳伦斯-塞林博士的推文越来越专业化，字里行间都是情报：（详细解读请收看[路德时评13日早间节目](https://gtv.org/video/id=607591cb6e11a756ede1d9db)）
+天道有阴阳，人性有善恶。正道主义尊重敬畏自然，宇宙。那么不可忽视和否认的就是人性的自然法则。在这个基础上，如何实现正道主义呢，在此笔者分享两个概念。
 
-“众所周知，将2002-2004年SARS-CoV-1大流行病毒中E蛋白的氨基酸E69和G70替换为精氨酸（R），毒力会增加。在#COVID19和蝙蝠冠状病毒ZC45、RacCS203和RaTG13的相同E蛋白中也可以看到这样的替换。#中共病毒”
+一，守夜人国家
 
-英雄科学家闫博士回推：
+守夜人国家（Night-watchman state），是一种主张在自由社会里，政府的大小以及所扮演的角色应该最小化—直要有能力保护每个人的自由、防范侵犯自由的行为即可，以此最大化每个人的自由。许多最小政府主义者将自己视为自由意志主义的一环，并自称是为了延续在古典自由主义哲学里的传统。这个称呼的产生，或许是因为自由意志主义与无政府主义之间的一些差异。自由意志主义者相信，建立一个在保护个人自由的同时也不侵犯到个人自由的政府是可能的；而无政府主义则相信，政府的存在注定会侵犯到个人自由；最小政府主义相信，保留一个最小化的政府来维持个人自由是必要的。
 
-“值得注意的是，RaTG13是假的，如第二份闫氏报告所示，而RacCS203是王林发（Daszak与石正丽的长期合作者）在2021年2月9日发表的补充 ‘自然起源证据’。
-所以#COVID19的E蛋白在现实中只与其骨架ZC45/ZXC21病毒相同。”
+一些最小政府主义者通常解释他们对于国家的看法，而不是提出在实务上的结果。比如罗伯特·诺齐克在他的《Anarchy, State and Utopia 》一书里定义了最小政府的角色：“我们对于国家的结论便是最小化的政府，限制在提供保护以制止暴力的最小功能上，如偷窃、诈欺，并且监督人们互相订定之契约的制行等等，这些都是正当的；但若再进一步的扩张国家，便会侵犯到个人的权利，这便是不正当的；最小化的国家便是以这些作为原则。两件重要的意义为：政府不可以动用强制的手段逼迫某些市民去援助其他市民，或是为了政府自身的利益以及进行保护服务而去禁止人们的行动。”
 
-爆料革命战友德意志之鹰回复闫博士：
+守夜人国家政府的唯一职能是保护公民的权利。笔者认为这种理念最大限度尊重了人性的自然法则，是符合正道主义核心的价值的。
 
-自称蝙蝠侠王林发，他的目的是混淆调查。他说“将基因多样化的SC2r-CoVs的地理分布从日本和中国扩展到泰国，覆盖4800公里。”不对！王先生知道实验室工程的可信度很高。
+二，正义论
 
+那么如何让守夜人政府能够公正的保护公民的权利呢？这里引出第二个概念正义论。
 
+《正义论》（《A Theory of Justice》），是一本具有里程碑意义的政治哲学与伦理学著作，作者是约翰·罗尔斯。1971年初版，1975年与1999年出版修订本。在该书中，罗尔斯尝试用社会契约的衍生方式来解决分配公正（distributive justice）的问题，由此产生的理论被称为以公平体现的正义，或略作公平即正义（justice as fairness），理论导出了他的正义两原则：自由原则和平等原则。其中平等原则详细表述为机会均等原则和差别原则。有时候的某种情况下，人类必须奇怪或正当。
 
-> To note, RaTG13 is fake as shown in the 2nd Yan Report, while RacCS203 is published to add “nature-origin evidence” on 9 Feb 2021, by Linfa WANG (Daszak & SHI’s long-term collaborator).
-> So E protein of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) is only identical with its backbone ZC45/ZXC21 virus in the reality. [https://t.co/S9B92s9jpo](https://t.co/S9B92s9jpo)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 13, 2021](https://twitter.com/DrLiMengYAN1/status/1381949982794776578?ref_src=twsrc%5Etfw)
+而正义论最核心的理论就是，程序正义。约翰·罗尔斯在《正义论》中区分了三种不同的程序正义
+一、完善的程序正义
+二、不完善的程序正义
+三、纯粹的程序正义
+(由于篇幅有限这里不赘述具体理论)
 
+而纯粹的程序正义有自身的特征，那就是：“在纯粹程序正义中，不存在对正当结果的独立标准，而是存在一种正确的或公平的程序，这种程序若被人恰当地遵守，其结果也会是正确的或公平的。”也就是说不论结果如何只要程序公正，都被认为是正义的。
 
+另外补充一个正义论的原则供参考
 
+正义原则：
+　１･平等自由权：每一个人对最广泛的基本自由，和他人一样具有平等权利。
+　２･社会和经济的不平等安排，满足以下两个条件：
+　　（１）对最差阶级有利（差异原则 difference principle）
+　　（２）地位和职务对所有人开放（机会均等原则)
 
-
-> What Linfang Wang (self-claimed Batman) aimed is to muddle the investigation:
-> "extended the geographic distribution of genetically diverse SC2r-CoVs from Japan and China to Thailand over a 4800km range."
-> 
-> No! Wang knows lab engineering is highly plausible:[https://t.co/jvKwryXN9W](https://t.co/jvKwryXN9W) [https://t.co/Ww3WDsC8b5](https://t.co/Ww3WDsC8b5)
-> — 德意志之鹰 (@dezying) [April 13, 2021](https://twitter.com/dezying/status/1381952004499636227?ref_src=twsrc%5Etfw)
-
-
-
-德意志之鹰战友回推塞林博士：
-
-我可以提供一些逻辑联系吗？
-执着者面对马利克-佩里斯和他的港大队在2010年的表现。
-[https://pubmed.ncbi.nlm.nih.gov/20861307/](https://pubmed.ncbi.nlm.nih.gov/20861307/)
-
-结果发现SARS-CoV-2发病的关键。
-[https://pubmed.ncbi.nlm.nih.gov/32891874/](https://pubmed.ncbi.nlm.nih.gov/32891874/)
-
-附赠：闫丽梦博士对香港大学稔熟的信息。
-[https://nature.com/articles/s41586-020-2342-5](https://nature.com/articles/s41586-020-2342-5)
-
-塞林博士回复道：
-
-“@德意志之鹰 正确的科普文章展示了通过修改E蛋白来增加#COVID19的毒性，从而 “比SARS-CoV 的E蛋白更能有效地破坏肺上皮屏障、并放大炎症的过程”
-https://doi.org/10.3389/fmicb.2020.02086…
-
-
-
-> Correct scientific articles are shown by [@dezying](https://twitter.com/dezying?ref_src=twsrc%5Etfw) linking an increase in [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)'s virulence by modifying the E Protein to "disrupt the pulmonary epithelial barrier and amplify the inflammatory process more effectively than SARS-CoV E does"[https://t.co/gCQV9J5VjQ](https://t.co/gCQV9J5VjQ)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/m4Vzq9m4E9](https://t.co/m4Vzq9m4E9)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 13, 2021](https://twitter.com/LawrenceSellin/status/1381963736399769609?ref_src=twsrc%5Etfw)
-
-
-
-
-
-彭博社今日讯，“得了COVID19就不会再得病吗？在形成大流行的过程中，人们对SARS-CoV-2病毒的免疫反应保护有多好，有多长”。尽管文章的问与答对中共病毒感染、疫苗和免疫性存在显而易见的误导，文章指出：更多无症状的感染没有被检测到，但是正在发生。对69%的检测人群进行研究发现，有0.65%的人再次呈阳性。
-
-
-
-> Can you get Covid-19 twice? What reinfection cases really mean [https://t.co/2Lx3sBh05d](https://t.co/2Lx3sBh05d)
-> — Bloomberg (@business) [April 13, 2021](https://twitter.com/business/status/1381944511564242947?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-## 中共病毒疫苗
-
-13日班农先生疫情作战室谈到，科学证据表明疫苗无效，数日前有媒体爆出某些疫苗发现导致血栓的新闻。今日该报道出现在更多媒体，权威机构对由川普总统支持开发的强生疫苗给出明确意见。
-
-据JustTheNews ：在罕见血栓报告后，CDC（美国疾控防止中心）、FDA（美国药品食品管理局）建议暂停强生COVID疫苗的使用。联邦机构说，他们正在调查6名妇女在他们接受疫苗接种后的日子里的血块。
-
-
-
-> CDC, FDA recommend pause in Johnson & Johnson COVID vaccine after reports of rare blood clots [https://t.co/Hn4EKB7ZJH](https://t.co/Hn4EKB7ZJH) via [@JustTheNews](https://twitter.com/JustTheNews?ref_src=twsrc%5Etfw)
-> — 🛳盘古战龙巡洋舰⚓️喜马拉雅的文雅Wenya Himalaya 🌊 (@ozwenya) [April 13, 2021](https://twitter.com/ozwenya/status/1382069534295674880?ref_src=twsrc%5Etfw)
-
-
-
-
-
-据彭博社，美国广而告之，呼吁暂停引起血栓的强生疫苗。
-
-FDA（美国食品和药物管理局）的官员说“我们建议暂停使用这种疫苗，是出于非常谨慎的考虑，”暂停可能在 “几天内 “结束。暂停的一个关键原因是血栓的正常治疗，血液稀释剂肝素，可能使疾病恶化，甚至致死。一个月前接种疫苗的人风险很低，但在过去几周内有人应该注意到头痛、腿痛、腹痛和呼吸急促。
-
-文章称，这一决定是在美国疫苗接种工作的关键时刻做出，最近几周加速推广疫苗，冠状病毒美国中西部地区变种导致疫情恶。在阿斯利康公司（AstraZeneca Plc）的疫苗出现类似问题导致延误后，可能促使美国减缓注射疫苗，并加剧全球对疫苗的担忧。
-
-CDC副主任Anne Schuchat强调，辉瑞公司-BioNTech SE疫苗和Moderna公司的疫苗没有出现血小板数量低的凝血事件。
-
-报道当日强生股价在纽约交易中下跌2.2％至158.15美元。
-
-此前强生公司疫苗因单剂注射受到欢迎，而辉瑞和Moderna疫苗需要两个剂量间隔几个星期注射。
-
-
-
-> U.S. health officials seek to pause use of Johnson & Johnson’s Covid-19 vaccine on concerns about rare and severe blood clotting side effects [https://t.co/uP2o40B9tk](https://t.co/uP2o40B9tk)
-> — Bloomberg (@business) [April 13, 2021](https://twitter.com/business/status/1381941242674745350?ref_src=twsrc%5Etfw)
-
-
-
-
-
-前总统川普今日GAB回应此新闻道：
-
-拜登政府允许美国食品和药物管理局（FDA）和疾病预防控制中心（CDC）叫停强生公司COVID-19（中共病毒大流行）疫苗的使用，这对全世界的人民都是一种可怕的伤害。这种疫苗的效果已经非同一般，但现在它的声誉将受到永久性的挑战。已经使用过该疫苗的人都会起哄，也许这一切都是为了政治，也许是FDA对辉瑞的偏爱。FDA，尤其是内部存在长期官僚的人，必须得到控制。他们不应该因为可能是政治原因，或者是由于他们在辉瑞公司的朋友建议，才会做出这样的破坏。他们会做这样的事情，让自己看起来很重要。记住，是FDA与辉瑞公司合作，在2020年总统大选后两天宣布批准疫苗。他们不怎么喜欢我，因为我把他们逼得非常紧。但如果我不这样做，你3-5年内都不会有疫苗，也许根本就没有。他们要花好几年的时间来行动！做好检测，清理记录，尽快让强生疫苗重新上线。唯有我们伟大的疫苗，才能打败中（共）国病毒! （[https://gab.com/realdonaldtrump](https://gab.com/realdonaldtrump)）
-
-
-
-据JustTheNews, 中共国疾病预防控制中心主任高福周六表示：”我们将解决目前疫苗保护率不高的问题。”这是中国政府罕见地承认与病毒有关的失败或缺陷。
-不过，高福周日告诉美联社，他说的是全世界的疫苗，而不仅仅是中国制造的疫苗。他说，政府计划开始将它们混合使用，以提高效果。
-
-小议，这会是怎样的信号和误导？是此前Merrit 博士提出的病毒特洛伊木马要上演了吗？
-
-
-
-> Top Chinese health official admits domestic [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) vaccines have low effectiveness [#JustTheNews](https://twitter.com/hashtag/JustTheNews?src=hash&amp;ref_src=twsrc%5Etfw) [@nicks847](https://twitter.com/nicks847?ref_src=twsrc%5Etfw) [https://t.co/5pJLtd5urB](https://t.co/5pJLtd5urB)
-> — Just the News (@JustTheNews) [April 12, 2021](https://twitter.com/JustTheNews/status/1381590432451289094?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 联欧对抗“恶毒的国家行为者”
-
-布林肯国务卿今日推文：我们已抵达布鲁塞尔，期待着与我们的欧洲伙伴讨论关键的优先事项。我们还将继续就这些问题与我们最亲密的盟友进行重要接触，因为**我们期待着共同面对恶毒的国家行为者和其他共同的挑战。**
-
-
-
-> Arrived in Brussels and look forward to discussing key priorities with our European partners. We will also continue our important engagement with our closest Allies on these issues as we look to confront malign state actors and other shared challenges.
-> — Secretary Antony Blinken (@SecBlinken) [April 13, 2021](https://twitter.com/SecBlinken/status/1381868402239811586?ref_src=twsrc%5Etfw)
-
-
-
-## 核处理
-
-我们感谢日本努力在处置福岛第一核电站处理水方面所做工作的透明性。我们期待着日本政府继续与国际原子能机构的合作。
-
-
-
-> We thank Japan for its transparent efforts in its decision to dispose of the treated water from the Fukushima Daiichi site. We look forward to the Government of Japan's continued coordination with the [@iaeaorg](https://twitter.com/iaeaorg?ref_src=twsrc%5Etfw).
-> — Secretary Antony Blinken (@SecBlinken) [April 13, 2021](https://twitter.com/SecBlinken/status/1381769108316954626?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 团结穆斯林人
-
-国务卿布林肯于今日穆斯林斋月季开始日，讲话强调对穆斯林人在抗疫一线工作的感谢，他发推称“今天，我祝愿美国和世界各地的所有穆斯林过一个幸福的斋月。”
-
-
-
-> Today I wish all Muslims in the United States and around the world a blessed Ramadan. [#RamadanKareem](https://twitter.com/hashtag/RamadanKareem?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/e3gSiZCG14](https://t.co/e3gSiZCG14)
-> — Secretary Antony Blinken (@SecBlinken) [April 12, 2021](https://twitter.com/SecBlinken/status/1381603531115876354?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 中共病毒疫情对人的控制
-
-The Blaze 4月8日一篇报道，YouTube删除了罗里达州州长罗恩-德桑蒂斯弗与有资质的医学专家在圆桌会议上讨论中共病毒疫情大流行的视频，称其违反了《社区指南》。
-
-文章称3月18日前川普白宫冠状病毒顾问斯科特-阿特拉斯博士、流行病学家苏尼特拉-古普塔教授、研究人员杰伊-巴塔查里亚博士和马丁-库尔多夫博士参加了圆桌会议。
-
-会议指出在流行病期间为减轻病毒传播而采取的公共政策措施，包括隔离健康人、关闭企业和强制佩戴口罩，其部分原因是出于恐惧，而不是出于科学。
-
-马克-卢比奥议员就此发推：“有朝一日，即使是同意此举的人，也会对权力集中到这些未经选举的公众监管人手中而感到遗憾。”
-
-
-
-> According to reports [@google](https://twitter.com/Google?ref_src=twsrc%5Etfw) [@YouTube](https://twitter.com/YouTube?ref_src=twsrc%5Etfw) censored video of a roundtable by [@GovRonDeSantis](https://twitter.com/GovRonDeSantis?ref_src=twsrc%5Etfw) 
-> 
-> The day is coming when even those who agree with this move will regret the power concentrated into the hands of these unelected gatekeepers of the public square [https://t.co/f8ZM0z0Z0a](https://t.co/f8ZM0z0Z0a)
-> — Marco Rubio (@marcorubio) [April 9, 2021](https://twitter.com/marcorubio/status/1380533397546745858?ref_src=twsrc%5Etfw)
-
-
-
-## “一切都已经开始”？
-
-当日卢比奥议员推文：劳尔-卡斯特罗卸任#古巴共产党党魁并不是真正的改变。但真正的变革已经在进行中了。
-
-
-
-> Raul Castro stepping down as head of the Communist Party in [#Cuba](https://twitter.com/hashtag/Cuba?src=hash&amp;ref_src=twsrc%5Etfw) isn’t real change
-> 
-> But real change is already underway nonetheless
-> — Marco Rubio (@marcorubio) [April 13, 2021](https://twitter.com/marcorubio/status/1381944695408975874?ref_src=twsrc%5Etfw)
-
-
-
-## 抨击拜登
-
-前川普竞选官员大卫-博西（David Bossie）在周一“真正美国之音”节目中接受采访时抨击拜登总统大谈“团结”，拜登“绝对是这个国家有史以来最激进、最左翼的社会主义总统”。
-
-
-
-> .[@David\_Bossie](https://twitter.com/David_Bossie?ref_src=twsrc%5Etfw): [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) is ‘most radical, left-wing socialist president’ America has ever had [#JustTheNews](https://twitter.com/hashtag/JustTheNews?src=hash&amp;ref_src=twsrc%5Etfw) [@alexnitzberg](https://twitter.com/alexnitzberg?ref_src=twsrc%5Etfw) [https://t.co/wrPmRvCQ2I](https://t.co/wrPmRvCQ2I)
-> — Just the News (@JustTheNews) [April 13, 2021](https://twitter.com/JustTheNews/status/1381763973893271554?ref_src=twsrc%5Etfw)
-
-
-
-## 与中共国大战
-
-Newsmax 今日重磅节目，堪称美国舆论先导，今日的内容是美国舆论的试水器、搅拌器，官方定论的序曲，将成为未来美国民众的广泛认识。内容概括如下。
-
-节目标题：“共产中国的同盟在美国”。红色字体强调“与中（共）国的大战”，主持人在节目中劲爆：“拜登政府确实正在使美国处在共产中国的控制之下，中共国是当今对人类的巨大威胁。拜登副总统2011年时在说服美国，称邪恶帝国中共国崛起对美国是有利的。”历史视频中，拜登说“崛起的中（共）国是积极的进步，不仅对中（共）国自身，对美国和西方世界都是。”主持人说，这个说法过去和现在都是谎言，中（共）国崛起过去和现在都是对世界的灾难。拜登政府让之崛起的是下一个希特勒，以及希特勒的整个政府和军队的愚弄。”节目播放了李毅讲话的著名桥段，“只要中国人每天都吃饭睡觉作息，就把美国逼死了”。主持人说，“把美国逼死就是拜登所说的对美国‘积极的进步’。过去几十年发生的事情显示了中(共)国气焰嚣张，中（共）国故意散布病毒导致了疫情大流行。再看看拜登今天说什么，啊！中共国要把美国逼死，可是拜登却对中共国不要对抗只是竞争！”“拜登的国务卿布林肯对宇宙最大的人权侵犯者却说不进行对抗！”
-
-主持人指出，中共国对黑人的歧视最严重。中共国社交媒体、国家审查言论广泛歧视黑人，把非洲人标榜成强奸犯、贩毒者、艾滋病携带者。中共国和所有共产主义一样是骗子。黑命贵运动为什么对中共国歧视黑人的种族歧视沉默？ANTIFA从美国内部摧毁美国，中共从外部工作摧毁美国。中共国是美国最大的威胁！
-
-
-
-> Rep. Guy Reschenthaler said this piece by Newsmax TV's Chris Salcedo on Communist China should be viewed by all incoming Congress members: [https://t.co/VlT7z8v2lm](https://t.co/VlT7z8v2lm) [pic.twitter.com/r3bJrUT3Dk](https://t.co/r3bJrUT3Dk)
-> — Newsmax (@newsmax) [April 13, 2021](https://twitter.com/newsmax/status/1381926387255144450?ref_src=twsrc%5Etfw)
-
-
-
-## 川普先生今日GAB
-
-假新闻CNN，依靠所有的匿名消息来源，也就是说他们很可能编造了整件事情，写了一个非常不诚实的故事，声称国会议员马特-盖茨要求在佛罗里达州棕榈滩的Mar-a-Lago与我见面，但被拒绝了。这完全是假的。CNN为什么不调查和写轻如鸿毛的民主党议员埃里克-斯沃尔韦尔（Eric Swalwell），他与中共国间谍方方有过一段复杂的身体关系，但不知为何却曾任职于声名显赫的众议院情报委员会。斯沃韦尔曾参加总统竞选，却在民调中以创纪录的0选票落选，他已经成为美国国家安全威胁–他应该立即被从委员会中除名! （[https://gab.com/realdonaldtrump/posts/106055482361552886](https://gab.com/realdonaldtrump/posts/106055482361552886)）
-
-
-
-## 未来股市
-
-今日彭博社发推关于亚洲股市攀升的文章，却在推文中使用这样的图片，文字：“股市未来下跌”。这是对西方民众的警示。
-
-
-
-> Stock futures drop [https://t.co/nx3sI68ASw](https://t.co/nx3sI68ASw) [pic.twitter.com/GycUE4CuKT](https://t.co/GycUE4CuKT)
-> — Bloomberg Markets (@markets) [April 13, 2021](https://twitter.com/markets/status/1381927204171436036?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+由上述两个概念，可以从中找到和正道主义完美契合的具有指导性的理论支持，并能得以实现。因为这都是完全尊重了人类自然的规律和法则。由于笔者并不是有政治和哲学背景专业人士，仅个人认知观点供大家讨论。相信未来新中国联邦政策制定者一定会让正道主义成为所有华人所坚守和追随的信仰。
 
 0
