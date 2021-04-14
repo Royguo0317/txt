@@ -1,225 +1,223 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日信息拾贝0414.2021
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1092067/)
+## 2021/04/14 英喜时事速递
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1092693/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+收集：Filon，Near，Daniel，Cindy，感言，文大石
+*（世界协调时）部分信息收集于网络世界的各方，请自行甄别*
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)
-图片来源：康州盘古农场 霹雳年
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/coverHD-8.jpg)
 
-## 中共病毒真相—充分肯定了爆料革命
 
-4月14日凌晨劳伦斯-塞林博士爆料作战愈战愈勇，针对在欧洲PMC发表的中共洗地报告《从中国云南省蝙蝠身上分离到的具有复杂重组的新型SARS-CoV-2相关病毒》，塞林博士把火来战友关于天使科学家闫丽梦博士和路德先生的海报发推，称：
+## 新西兰农场Gnews：[爱国三种人](https://gnews.org/zh-hans/1085359/)
 
-“2018年 “新发现 “的PrC31蝙蝠冠状病毒是否是中共科学家用来支撑中共病毒大流行欺诈性的自然来源理论的，是另一个RaTG13一样的假序列？
-敬请关注。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/041307.jpg)
 
-#中共病毒 #超限生物武器 #冠状病毒[https://europepmc.org/article/PPR/PPR299488](https://europepmc.org/article/PPR/PPR299488)”
 
+> 评论：什么是真正的爱国者？政党不分、党国不分，没有独立思考能力的人无法真正爱国。这些糊涂虫容易被利己主义爱国者利用，以爱国的名义伤害自己，残害他人。
 
 
-> Is the "newly discovered" 2018-isolated PrC31 bat coronavirus another RaTG13-like fake sequence used by CCP scientists to buttress the fraudulent naturally-occurring theory of the [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw)?
-> Stay tuned.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/CKnRE64l4y](https://t.co/CKnRE64l4y) [pic.twitter.com/ClZUrgbWP1](https://t.co/ClZUrgbWP1)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 14, 2021](https://twitter.com/LawrenceSellin/status/1382229297302278144?ref_src=twsrc%5Etfw)
 
+## 英喜农场Gnews：[中共国考虑混合接种新冠疫苗提高保护率](https://gnews.org/zh-hans/1082681/)
 
+![]()![](https://spark.adobe.com/page/dWvFs2GLpmkJF/images/4b915600-f651-4481-89ad-44e5707fa1ab.jpg?asset_id=32dcd26b-8d57-43cb-b344-29adccd9f9f5&amp;img_etag=%225ab18803a0a44d28dd11a76d50b70abb%22&amp;size=2560)
 
 
+> 评论：不靠谱疫苗的问题逐渐显露出来。CCP之所以能靠这些扯蛋专家随意引导舆论，是因为民众已经散失了独立思考的能力。CCP每天让百姓忙于生计无力思考。破此局唯一的手段就是要努力传播真相，只有真相才能重新让人们拥有思考能力。
 
-美国灭共进入信息反制战、舆论引导战。4月13日皮特纳瓦罗博士在华盛顿时报发表文章《蝠奇博士是 “大流行之父 “吗？》，文章称蝠奇博士所在的美国国立卫生研究院将美国纳税人的钱–约700万美元–注入武汉病毒实验室。
 
-英雄科学家闫博士转推这篇文章时引用纳瓦罗博士的话：
+## 英喜农场Gnews：[中共国问题专家：新冠病毒是一种生物武器](https://gnews.org/zh-hans/1082628/)
 
-“如果一种致命的病毒在亚洲唯一的生物武器实验室几公里范围内出现，根据奥卡姆剃刀（简约法则），最简单的解释通常是正确的。因此，SARS-CoV-2来自武汉实验室。”
+![]()![](https://spark.adobe.com/page/AnZhksie4fS6D/images/0df2bb61-0e2a-476c-a0ae-77833da41da5.jpg?asset_id=1ac765f9-144b-4422-92ba-e79c1d86a695&amp;img_etag=%22b750e77b2e02782801933cfb7554260a%22&amp;size=1024)
 
-#超限生物武器”
 
+> 评论：中共国问题专家史蒂文•莫舍(Steven Mosher)认为，新冠病毒是一种生物武器。从意愿上和能力上CCP都有需要和实力制造生物武器，“CCP的超限生物武器”不是阴谋论。是不断被验证的邪恶计划。
 
 
-> “If a deadly virus pops up within several kilometers of the only bio-weapons lab in Asia, the simplest explanation, according to Occam’s razor, is usually the right one. Ergo, SARS-CoV-2 came from the Wuhan Lab.”
-> – Dr. Peter Navarro[#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/DUhplmLfnE](https://t.co/DUhplmLfnE)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 13, 2021](https://twitter.com/DrLiMengYAN1/status/1382060042933956611?ref_src=twsrc%5Etfw)
+## 环球网：回应美国务卿对华新冠指责，赵立坚：美国个别政客从哪里来的底气和颜面？
 
+![2021年4月13日外交部发言人赵立坚主持例行记者会— 中华人民共和国外交部]()![2021年4月13日外交部发言人赵立坚主持例行记者会— 中华人民共和国外交部](https://www.mfa.gov.cn/web/fyrbt_673021/W020210413716476887752.jpg)
 
 
-MSN报道：CNN首席医学记者古普塔（Sanjay Gupta）博士打破束缚，表示支持前疾控中心主任Robert Redfield博士的观点，即导致COVID-19的病毒很可能从武汉的实验室意外泄漏。
+> 评论：中共外交部，现在俨然成了疯狗外交部，泼妇骂街、恐吓、威胁，成了人人喊打的过街老鼠，一点大国风范礼仪之邦都没有，只有干了坏事才这样心虚给自己壮胆吧
 
-纳瓦罗博士4月13日就此发推：“恭喜古普塔打破陈规。 CNN注意： 现在选举已经结束了，不如我们回去讲讲真相吧。99.9%的可能性是病毒来自蝠奇资助的武汉实验室。联系起来想想吧。”
 
+## 环球网： 单日架次创新高 25架次解放军军机昨日入台西南空域
 
+![单日架次创新高！25架次解放军军机昨日进入台西南空域-新华网](https://lh3.googleusercontent.com/proxy/V2_U0FDZLTl6f1tQNO-KsxYpExqLo3DkfDAUdcy2kuzdjq8AXjhntTVlzZre5Vlqe8WykacCdgCLpJCh7rqyjFFbZ1F2PNKLMVQCsNDVORu9OpVZLYK4m_2Jhi1wHQ)
 
-> Congrats to Gupta for breaking ranks. Note to CNN: Now that election is over, how about we get back to some truth-telling. 99.9% probability virus came from Wuhan Lab — which Fauci funded! connect the dots!! [@CNN](https://twitter.com/CNN?ref_src=twsrc%5Etfw) [@JohnBerman](https://twitter.com/JohnBerman?ref_src=twsrc%5Etfw) [@drsanjaygupta](https://twitter.com/drsanjaygupta?ref_src=twsrc%5Etfw) [https://t.co/V1Is0Kn6h6](https://t.co/V1Is0Kn6h6)
-> — Peter Navarro (@RealPNavarro) [April 13, 2021](https://twitter.com/RealPNavarro/status/1382047171705503745?ref_src=twsrc%5Etfw)
 
+> 评论：中共快要忍不住对台湾动武了吗？
 
 
-## 与中共国大战开篇
+## 参考消息 ：“蓬佩奥今年访台几率大？” “是”！
 
-4月14日Newsmax电视主播Chris Salcedo本周将开始系列节目“与中（共）国大战”。他在早前的视频中曾语出惊人，称：
+![台官员：蓬佩奥今年访台机率很大| 早报]()![台官员：蓬佩奥今年访台机率很大| 早报](https://static.zaobao.com/s3fs-public/styles/article_large_full/public/2021-04/001_0.jpg?apH2gGQE_pj.4UjefK5irXlkVaQv7YpE&amp;itok=cmMajb1R)
 
-“美国处在共产中国的控制之下……中共国是当今对人类自由巨大的威胁。中（共）国崛起过去和现在都是对世界的灾难……拜登政府让之崛起的是下一个希特勒，以及希特勒对整个政府和军队的愚弄……中（共）国故意散布病毒导致了疫情大流行……中共国要把美国逼死，可是拜登却对中共国不要对抗只是竞争！”
 
-他还指出，中共国对黑人的歧视最严重。中共国社交媒体、国家审查言论广泛歧视黑人，把非洲人标榜成强奸犯、贩毒者、艾滋病携带者。中共国和所有共产主义一样是骗子。黑命贵运动为什么对中共国歧视黑人的种族歧视沉默？ANTIFA从美国内部摧毁美国，中共从外部工作摧毁美国。中共国是美国最大的威胁！
+> 评论：中共对蓬佩奥今年大概率访台一事感到很紧张。
 
 
+## 央视新闻 : 英雄湖北，无畏前行！湖北全球特别推介英文宣传片来了
 
-> Chris Salcedo details the human rights violations of CCP – 'how can they get away with this?' [https://t.co/VlT7z8drtO](https://t.co/VlT7z8drtO) [pic.twitter.com/Y33MSEqRQv](https://t.co/Y33MSEqRQv)
-> — Newsmax (@newsmax) [April 13, 2021](https://twitter.com/newsmax/status/1382113873650679808?ref_src=twsrc%5Etfw)
+![英雄湖北，无畏前行！湖北全球特别推介英文宣传片来了-中新网]()![英雄湖北，无畏前行！湖北全球特别推介英文宣传片来了-中新网](http://i2.chinanews.com/simg/hnhd/2021/04/13/20/12586846072032807532.jpg)
 
 
+> 评论：CCP一贯把苦难国难宣传成自己的丰功伟绩，武汉因CCP VIRUS死了多少人，到现在没有一个真实数字，疫情肆虐还没结束，共匪自导自演的赞歌却在全世界高调宣传了
 
 
+## 央视网 : 20万吨退役电池大量流入黑市 新能源汽车如何避免“新污染”？
 
-> Rep. Guy Reschenthaler said this piece by Newsmax TV's Chris Salcedo on Communist China should be viewed by all incoming Congress members: [https://t.co/VlT7z8v2lm](https://t.co/VlT7z8v2lm) [pic.twitter.com/r3bJrUT3Dk](https://t.co/r3bJrUT3Dk)
-> — Newsmax (@newsmax) [April 13, 2021](https://twitter.com/newsmax/status/1381926387255144450?ref_src=twsrc%5Etfw)
+![20万吨退役电池大量流入黑市新能源汽车如何避免“新污染”？]()![20万吨退役电池大量流入黑市新能源汽车如何避免“新污染”？](http://i2.chinanews.com/simg/hd/2021/04/13/smimg_bfa3503cfe8f45629f33fc9fbb74edce.jpg)
 
 
+> 评论：CCP经济发展这几十年，环境污染简直不堪入目，地下浅表水至少85%已经被污染，空气也同样严重，关于新能源汽车，最大的缺陷就是电池储电量，电池造假肯定是个产业链，国家质量监管形同虚设
 
 
+## 澎湃新闻 ： 外交部驳美国国务卿布林肯涉疫情言论：你始终叫不醒装睡的人
 
-## 股市“胖手指”
+![外交部驳美国国务卿布林肯涉疫情言论：你始终叫不醒装睡的人]()![外交部驳美国国务卿布林肯涉疫情言论：你始终叫不醒装睡的人](https://img.qiluyidian.net/2021412c5b05e1967d64ab1e72aa6a0a42b2490.png?imageView2/1/w/690/h/388/interlace/1/q/100|imageslim)
 
-巴克莱银行(Barclays Plc)股价短线下跌高达9.9%，创下一年多来盘中跌幅之最，交易员称这很可能是由于一个被称为 “胖手指 “的交易错误。
 
+> 评论：面对美方对疫情初期中共未尽责任的质问，中共疯狗继续强词夺理倒打一耙。
 
 
-> Barclays share price rebounds after a so-called “fat finger” trading error [https://t.co/IfSAR6Xhgw](https://t.co/IfSAR6Xhgw) [pic.twitter.com/UYpLYmYEYD](https://t.co/UYpLYmYEYD)
-> — Bloomberg (@business) [April 14, 2021](https://twitter.com/business/status/1382249386005172224?ref_src=twsrc%5Etfw)
+## 澎湃新闻 ： 三亚“海胆事件”店家称将起诉消费者，当事人回应：相信法律
 
+![三亚海胆事件，有反转？_媒体_澎湃新闻-The Paper]()![三亚海胆事件，有反转？_媒体_澎湃新闻-The Paper](https://imagepphcloud.thepaper.cn/pph/image/125/956/468.jpg)
 
 
+> 评论：三亚“海胆事件”背后影射了中共治下的道德缺失、信仰缺失、只有人治没有法制的一个人与人互害的普遍现象，只有灭共后中国社会未来才有可能恢复正常。
 
 
-## 苏伊士运河
+## 微天下：【#福岛核废水排海还能吃海鲜吗#？】
 
-苏伊士运河长达一周的堵塞后，新加坡为从苏伊士港出发的集装箱船潮做准备。
+#如何看待日本福岛核废水排海# @中国三农发布 发表评论称，“德国海洋研究机构判断说，核污水入海57天可污染大半个太平洋。对我们国家来说，很难独善其身。
 
+![还能放心吃海鲜吗？日本要将核废水排向大海，可能影响每个人_菅义伟]()![还能放心吃海鲜吗？日本要将核废水排向大海，可能影响每个人_菅义伟](https://p6.itc.cn/q_70/images03/20210414/c2d9085289d445d09cb08534dc9aa3a4.jpeg)
 
 
-> One of Asia’s busiest ports is preparing for an influx of ships after a week-long blockage at the Suez Canal [https://t.co/WvWsvbnAxO](https://t.co/WvWsvbnAxO)
-> — Bloomberg (@business) [April 14, 2021](https://twitter.com/business/status/1382239464228069381?ref_src=twsrc%5Etfw)
+> 评论：中共大肆炒作福岛排水事件，夸大其危害性，很明显在这个时候起到泄民愤，和开启对日敌意的作用。
 
 
+## 中国青年报 – 研究显示：我国研究生群体抑郁焦虑问题显著
 
-## 起诉拜登
+![我国研究生群体抑郁焦虑问题显著_腾讯新闻](https://inews.gtimg.com/newsapp_bt/0/13405087875/1000)
 
-据Newsmax, 德州就拜登取消川普的 “留守墨西哥 “规则提起诉讼。
 
+> 评论：研究生扩招本就是CCP解决大学毕业生就业困难的一招缓兵之计，但是困难并未得到有效解决。当耗费更多的青春发现依然无法改变局面，抑郁焦虑是肯定会出现的。
 
 
-> Texas sues over Biden scrapping Trump's 'stay in Mexico' rule: [https://t.co/wkSBiqlYJi](https://t.co/wkSBiqlYJi) [pic.twitter.com/ZqLd2X1tEU](https://t.co/ZqLd2X1tEU)
-> — Newsmax (@newsmax) [April 14, 2021](https://twitter.com/newsmax/status/1382249798074503168?ref_src=twsrc%5Etfw)
+## 网易：房子无人接盘，有市无价，所谓的价格只是中介门前的一纸标签而已
 
+![房子无人接盘，有市无价，所谓的价格只是中介门前的一纸标签而已_手机网易网](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0411%2Ff184aa2bj00qre8r500kxc000zk00nom.jpg&amp;thumbnail=720x540&amp;quality=85&amp;type=jpg)
 
 
+> 评论：现在许多房子高位已无人接盘，有市无价，没有成交。房贷利率在不断上调，不少银行已经停止放贷！
 
 
-## 
+## 人民日报海外网 : 港府将于12月举行立法会选举 2022年3月选举行政长官
 
+![香港特首选举或添“确认书” 传林郑连任| 德国之声来自德国介绍德国| DW | 05.08.2020]()![香港特首选举或添“确认书” 传林郑连任| 德国之声来自德国介绍德国| DW | 05.08.2020](https://static.dw.com/image/51110561_403.jpg)
 
 
-## 信息通讯技术供应链规范落实行动
+> 评论：中国的“圣城“香港历经的磨难一定会被老天重新眷顾的，香港人不畏强权，追求自由，是墙内国人的楷模
 
-今日美国商务部发布美国商务部关于根据信息通讯技术供应链行政命令采取的行动的声明。内容如下。
 
-今天，商务部向一家中国公司发出传票，以支持根据第13873号行政命令 “确保信息和通信技术及服务供应链安全 “对交易进行审查。今天采取的行动是调查涉及该公司的交易是否符合行政命令规定的标准的重要一步。
+## 新华社 : 财经聚焦一个App控制全球18万个网络摄像头！万名会员付费偷窥隐私“直播”
 
-在美国不受限制地获取或使用由外国对手所拥有、控制或受其管辖或指示的人所设计、开发、制造或供应的信息通讯技术供应链，对美国的国家安全利益构成重大威胁。今天送达的传票使商务部能够收集有助于确定美国及其公民安全所面临的潜在风险的信息。商务部希望与该公司合作，完成彻底审查。
+![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0413%2F5266d3a2j00qrhrs5004mc000wl00ugc.jpg&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
 
 
+> 评论：在墙国，最厉害的管控工具就是“天眼工程”，据说，墙国共有6亿多个摄像头监控14亿国人，手机APP就更不用说了，随时随地在用现在的“一码通”、大数据等偷窥和收集个人隐私，其实最不要脸的就是CCP自己
 
-> U.S. Department of Commerce Statement on Actions Taken Under ICTS Supply Chain Executive Order: [https://t.co/u5rL89X19d](https://t.co/u5rL89X19d)
-> — U.S. Commerce Dept. (@CommerceGov) [April 13, 2021](https://twitter.com/CommerceGov/status/1381994751738667013?ref_src=twsrc%5Etfw)
 
+## 矿业汇：中企海外再获35亿吨铁矿资源，含铁品位达到57%，属露天开采！
 
+![澳洲铁矿石彻底凉了？中企拿下这国矿区开采权，储量超40亿吨|露天矿_网易订阅](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0331%2F276fe0cep00qqtzen01b2c000n300ehm.png&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
 
 
+> 评论：联合体与阿尔及利亚国家钢铁矿业公司（FERAAL）签署合作谅解备忘录，对开发加拉·杰比莱特铁矿（Gara Djebilet）开展可行性研究，并根据研究结论确定合作开发方案。中共为被主流国家孤立后，努力寻找获取各种矿产资源的渠道
 
-## 中共国中介公司
 
-据彭博社，中共国学生向中共国中介公司支付12000美元或更多的费用，以获得实习机会，并最终在高盛和花旗集团等华尔街权贵公司找到工作。
+## 新浪：广东外贸企业人士：银行卡被冻结的情况“特别频繁”
 
+![广东外贸企业人士： 银行卡被冻结的情况“特别频繁”_手机新浪网]()![广东外贸企业人士： 银行卡被冻结的情况“特别频繁”_手机新浪网](https://k.sinaimg.cn/n/spider2021412/155/w650h305/20210412/9ba3-knqqqmv0319087.jpg/w700h350z1l10t109b8.jpg)
 
 
-> Chinese firms are charging $12,000 or more to help students land internships and eventually jobs at Wall Street powerhouses such as Goldman Sachs and Citigroup [https://t.co/BjLgeNi9NC](https://t.co/BjLgeNi9NC)
-> — Bloomberg (@business) [April 14, 2021](https://twitter.com/business/status/1382257844427317249?ref_src=twsrc%5Etfw)
+> 评论：义乌外贸商户反映，近期其银行账户被全国各地公安机关冻结情况频发，造成企业因流动资金问题濒临破产等后果。共产党对金融崩盘很恐惧，管控严格
 
 
+## 法广：[黑山欠中国债务即将到期无力还款 求助欧盟或土地抵押](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210413-%E9%BB%91%E5%B1%B1%E6%AC%A0%E4%B8%AD%E5%9B%BD%E5%80%BA%E5%8A%A1%E5%8D%B3%E5%B0%86%E5%88%B0%E6%9C%9F%E6%97%A0%E5%8A%9B%E8%BF%98%E6%AC%BE-%E6%B1%82%E5%8A%A9%E6%AC%A7%E7%9B%9F%E6%88%96%E5%9C%9F%E5%9C%B0%E6%8A%B5%E6%8A%BC)
 
-## 核处理
+![网传黑山景色](https://s.rfi.fr/media/display/b5b6613a-9c69-11eb-9ae1-005056a964fe/w:980/p:16x9/hsj-1.webp)
 
-日本政府已决定在两年内开始将福岛核电站处理后的放射性水排放到太平洋中–这一方案遭到渔民、居民和日本邻国的激烈反对。
 
+> 评论：中共贷款的目的就是要控制这些国家的经济和政治。
 
 
-> Japan's government has decided to start releasing treated radioactive water from the Fukushima nuclear plant into the Pacific Ocean in two years — an option fiercely opposed by fishermen, residents and Japan's neighbors. [https://t.co/UaLE2qnwMu](https://t.co/UaLE2qnwMu)
-> — NBC News (@NBCNews) [April 14, 2021](https://twitter.com/NBCNews/status/1382246273248530433?ref_src=twsrc%5Etfw)
+## 法广：[有外国网站售亚裔我不是中国人“自保”T恤](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210413-%E6%9C%89%E5%A4%96%E5%9B%BD%E7%BD%91%E7%AB%99%E5%94%AE%E4%BA%9A%E8%A3%94%E6%88%91%E4%B8%8D%E6%98%AF%E4%B8%AD%E5%9B%BD%E4%BA%BA-%E8%87%AA%E4%BF%9D-t%E6%81%A4)
 
+![网传印有“我不是中国人”T恤 资料照片](https://s.rfi.fr/media/display/b95bb6ee-9c52-11eb-a89d-005056a9b1a7/w:980/p:16x9/bszgrtx.webp)
 
 
-4月14日据NBC新闻，白宫表示，在乌克兰局势日益紧张的情况下，美国总统拜登建议在未来几个月内与普京总统 “在第三国 “会面，讨论美俄两国面临的问题。
+> 评论：中共就是要把中共和中国人绑架在一起，以达到其掀起民族仇恨的目的。中共不等于中国人！
 
 
+## 法广：[乐视网财务受控造假长达10年 贾跃亭远避美国追偿难？](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210413-%E4%B9%90%E8%A7%86%E7%BD%91%E8%B4%A2%E5%8A%A1%E5%8F%97%E6%8E%A7%E9%80%A0%E5%81%87%E9%95%BF%E8%BE%BE10%E5%B9%B4-%E8%B4%BE%E8%B7%83%E4%BA%AD%E8%BF%9C%E9%80%83%E7%BE%8E%E5%9B%BD%E8%BF%BD%E5%81%BF%E9%9A%BE)
 
-> President Biden suggests meeting President Putin “in a third country” in the coming months to discuss issues facing the U.S. and Russia amid growing tensions in Ukraine, the White House says. [https://t.co/EBupgpEkB5](https://t.co/EBupgpEkB5)
-> — NBC News (@NBCNews) [April 14, 2021](https://twitter.com/NBCNews/status/1382238480730882048?ref_src=twsrc%5Etfw)
+![关于乐视网的报道图片](https://s.rfi.fr/media/display/681f97bc-9c3b-11eb-a45e-005056a9b1a7/w:980/p:16x9/ysw5.webp)
 
 
+> 评论：乐视网被指连续10年财务造假，创下A股造假罚款纪录。自从乐视网2017年出现资金链断裂危机后，贾跃亭避走美国
 
 
+## 法广：[大量采购电子元器件 中国3月份进口大幅增长38.1％](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210413-%E5%A4%A7%E9%87%8F%E9%87%87%E8%B4%AD%E7%94%B5%E5%AD%90%E5%85%83%E5%99%A8%E4%BB%B6-%E4%B8%AD%E5%9B%BD3%E6%9C%88%E4%BB%BD%E8%BF%9B%E5%8F%A3%E5%A4%A7%E5%B9%85%E5%A2%9E%E9%95%BF38-1%EF%BC%85)
 
-## 台湾外交
+![芯片报道图片](https://s.rfi.fr/media/display/a0ed6fbe-661d-11eb-a0ed-005056bff430/w:980/p:16x9/xpxp.webp)
 
-据华尔街时报，台湾岛未来与北京的紧张关系将加剧之时，率领拜登政府派出的第一个非官方代表团访台。来自康涅狄格州的前民主党参议员克里斯托弗-多德（Christopher J. Dodd）和前国务院高级官员理查德-阿米蒂奇（Richard Armitage）和詹姆斯-斯坦伯格（James Steinberg）已于当地时间周三14日下午到达台北。
 
+> 评论：大量进口电子元器件其目的有可能是为了应对未来对中共国的更多制裁。
 
 
-> A former U.S. senator and two former senior State Department officials are traveling to Taiwan, leading the first unofficial delegation dispatched by the Biden administration, amid heightened tensions with Beijing over the island's future by [@chao\_deng](https://twitter.com/Chao_Deng?ref_src=twsrc%5Etfw) [https://t.co/fDQCOUYtI7](https://t.co/fDQCOUYtI7)
-> — WSJ China Real Time (@ChinaRealTime) [April 14, 2021](https://twitter.com/ChinaRealTime/status/1382257393489313793?ref_src=twsrc%5Etfw)
+## 法广：[中国向美国说我们目前平起平坐](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210413-%E4%B8%AD%E5%9B%BD%E5%90%91%E7%BE%8E%E5%9B%BD%E8%AF%B4%E6%88%91%E4%BB%AC%E7%9B%AE%E5%89%8D%E5%B9%B3%E8%B5%B7%E5%B9%B3%E5%9D%90)
 
+![中美关系图片](https://s.rfi.fr/media/display/68ff8e6c-25b2-11eb-a72a-005056bff430/w:980/p:16x9/zmtp.webp)
 
 
-台湾外交部推文：
+> 评论：中共的战狼外交越走越远。
 
-台湾、美国、日本和全球反恐论坛开启首次欧盟合作。在#COVID19中加强供应链弹性和#SME响应能力的问题上，志同道合的伙伴们是一致的。衷心感谢欧盟台湾代表Filip Grzegorzewski、德国代表Prinz的支持。
 
+## 法广：[港版「上山下乡」？ 港府拟派官员到中国单位「挂单」 认同到乡县实习](https://www.rfi.fr/cn/%E6%B8%AF%E6%BE%B3%E5%8F%B0/20210413-%E6%B8%AF%E7%89%88-%E4%B8%8A%E5%B1%B1%E4%B8%8B%E4%B9%A1-%E6%B8%AF%E5%BA%9C%E6%8B%9F%E6%B4%BE%E5%AE%98%E5%91%98%E5%88%B0%E4%B8%AD%E5%9B%BD%E5%8D%95%E4%BD%8D-%E6%8C%82%E5%8D%95-%E8%AE%A4%E5%90%8C%E5%88%B0%E4%B9%A1%E5%8E%BF%E5%AE%9E%E4%B9%A0)
 
+![香港特首林郑月娥2021年4月8日在立法会接受议员质询。](https://s.rfi.fr/media/display/bd80177a-9c24-11eb-a3bc-005056bff430/w:980/p:16x9/2021-04-08T045602Z_1862921277_RC2GRM9F7VY3_RTRMADP_3_HONGKONG-SECURITY-CARRIE-LAM.webp)
 
-> Great [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw)🇹🇼, [#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw)🇺🇸, [#Japan](https://twitter.com/hashtag/Japan?src=hash&amp;ref_src=twsrc%5Etfw)🇯🇵 & [#GCTF](https://twitter.com/hashtag/GCTF?src=hash&amp;ref_src=twsrc%5Etfw)-debutants [#EU](https://twitter.com/hashtag/EU?src=hash&amp;ref_src=twsrc%5Etfw)🇪🇺 cooperation! The like-minded partners are on the same page when it comes to strengthening supply chain resilience & [#SME](https://twitter.com/hashtag/SME?src=hash&amp;ref_src=twsrc%5Etfw) responsiveness amid [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw). A big thanks to [@grzegorzewskif](https://twitter.com/grzegorzewskif?ref_src=twsrc%5Etfw) & [#Germany](https://twitter.com/hashtag/Germany?src=hash&amp;ref_src=twsrc%5Etfw)🇩🇪 Rep. Prinz for the support. [pic.twitter.com/9iTgFpoh8J](https://t.co/9iTgFpoh8J)
-> — 外交部 Ministry of Foreign Affairs, ROC (Taiwan) 🇹🇼 (@MOFA\_Taiwan) [April 14, 2021](https://twitter.com/MOFA_Taiwan/status/1382230023860486144?ref_src=twsrc%5Etfw)
 
+> 评论：毛泽东在文革期间发起城市知识青年到农村接受农民再教育的「上山下乡」有机会在香港与中国内地之间重现。难道港版的文化大革命要来了吗！
 
 
-## “COVID-19专利”
+## 澎湃新闻：瑞金通报疑似红黄蓝幼儿园教师发男童闻脚照片：停职接受调查 
 
-据美国专利商标局，美国专利商标局公布人类特殊专利COVID-19类别。
+![幼师发男童闻脚照被拘7天红黄蓝到底怎么了？_新浪财经_新浪网]()![幼师发男童闻脚照被拘7天红黄蓝到底怎么了？_新浪财经_新浪网](https://n.sinaimg.cn/finance/crawl/9/w550h259/20210414/7763-knqqqmv5623838.png)
 
-华盛顿–美国专利商标局(USPTO)4月5日宣布，将在其 “人类专利计划 “中为应对COVID-19流行病的发明推出一个特殊类别。这个新的奖励类别将为专利申请人、持有人和被许可人提供商业激励，他们的发明跟踪、预防、诊断或治疗COVID-19。正在开发或已经开发出与COVID-19相关的技术，包括跟踪、诊断、预防或治疗该疾病的技术的相关方，一旦提交专利申请，就有资格提交该奖项的申请。
 
-小议，如果中共作为制造COVID19的邪恶专利人的话，英雄科学家闫博士则是拯救人类的专利人，墨博士是找出初期预防解药的专利人，文贵先生是爆料革命、新中国联邦、灭共、扭转人类黑暗大重启的专利人，爆料革命所有战友是开启和践行新中国联邦文明生态的专利人。
+> 评论：恶魔乱舞的社会，谁都无法避免不与魔鬼擦肩。不仅无法独善其身，更谈不上保护自己家人与后代。既得利益者，就能保证谁都能幸免吗？答案是否定的。
 
 
+## 中国日报 – 希腊前财长：中国在非洲投资建设，比西方国家的殖民征服人道多了
 
-> Today, the [#USPTO](https://twitter.com/hashtag/USPTO?src=hash&amp;ref_src=twsrc%5Etfw) and [@CommerceGov](https://twitter.com/CommerceGov?ref_src=twsrc%5Etfw) announced a [#Patents4Humanity](https://twitter.com/hashtag/Patents4Humanity?src=hash&amp;ref_src=twsrc%5Etfw) category to recognize innovators whose special inventions have helped address the COVID-19 pandemic. Learn more about the program and eligibility for the award: [https://t.co/PJMC8iS1Wf](https://t.co/PJMC8iS1Wf) [pic.twitter.com/2Jqh6Sb1Kd](https://t.co/2Jqh6Sb1Kd)
-> — USPTO (@uspto) [April 5, 2021](https://twitter.com/uspto/status/1379116717323005952?ref_src=twsrc%5Etfw)
+![希腊前财长：中国在非洲的投资建设可比100年前西方国家的殖民征服人道多了- 中国日报网]()![希腊前财长：中国在非洲的投资建设可比100年前西方国家的殖民征服人道多了- 中国日报网](http://img3.chinadaily.com.cn/images/202009/19/5f65c7c9a3101e7c9203aecc.png)
 
 
+> 评论：任何国家行为背后都有其国家目的，但流氓团体只能给其它地区输送流氓文化。CCP在中国大陆百姓还如此贫穷的情形下大力扩张海外是为了什么？控制它国好服务其家族利益。
 
 
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
-
-
-
-
-
-
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》希望诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
-
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
