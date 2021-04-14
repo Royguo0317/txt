@@ -1,42 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/03/31 班农专访（结论）：班农先生高度称赞GTV
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1090507/)
+## 【热点播报】美国“白人暴徒”袭击穆斯林也是种族灭绝吗？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1090133/)
 
-视频字幕：雨中漫步 | 听写/翻译：Wade | 校对：Roberts | 简评/文字整理/编辑：胖丁 | Page：青山
+作者：香草山翻译组 – Leo Chan
 
-[!\[\]()!\[\](https://spark.adobe.com/page/8OTZBKFRVVmaG/images/5e80196b-4c9c-4e85-b685-4348d85b9c1f.jpg?asset_id=de4b3bfe-ae2d-488b-a7e3-58ad77347082&amp;img_etag=%22bc4b4a4a936966d6c31fc04263009f69%22&amp;size=1024)](https://spark.adobe.com/page/8OTZBKFRVVmaG/images/5e80196b-4c9c-4e85-b685-4348d85b9c1f.jpg?asset_id=de4b3bfe-ae2d-488b-a7e3-58ad77347082&amp;img_etag=%22bc4b4a4a936966d6c31fc04263009f69%22&amp;size=1024)
+据布赖特巴特（[BREITBART](https://www.breitbart.com/)）新闻网2021年4月7日报道，中共外交部发言人赵立坚周三称在2001年911恐袭当天的下午，一些“白人暴徒”袭击了美国当地的穆斯林，以此为中共对维吾尔族穆斯林人民的种族灭绝行为辩护。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/NT018_P1.jpg)
+赵声称，美国也有对其原住民“种族灭绝”和“恐怖的系统性种族清洗和屠杀”的历史。
 
-**简评：**
+包括目击者证词和卫星图像大量证据表明，中共在新疆这个中国西部最大的自治区建立了1000多个集中营，监禁了包括维吾尔族、哈萨克族和柯尔克孜族等多达300万穆斯林少数民族。据幸存者说，集中营里的恶警对被监禁者强行洗脑和施以酷刑，他们不仅经常强奸被监禁者，而且还对他们进行与摘取活体器官相关联的医学检查。除此之外，中共还拆除了上万座清真寺，到处安装先进的监视系统，并迫使数十万维吾尔族人沦为棉奴。
 
-班农先生强调GTV的工作是高贵的，是站在历史正确的一边，为自己的同胞争取自由做出了巨大的牺牲。当中囯人民最终获得自由的时候，新中国联邦GTV功不可没。
+身为中共喉舌的赵立坚在毫无任何实证的情况下，无端指责美国通过美军向全球释放了中共冠状病毒。但目前所有证据都表明，中共冠状病毒于2019年底起源于中国湖北省。
 
-[GTV视频链接](https://gtv.org/video/id=6067377949339063d0621adc)
+川普和拜登两届美国政府都将中共针对维吾尔族人民的恶行定义为“种族灭绝”。美国国务院发言人内德·普莱斯（Ned Price）周二再次使用了有关中共 “种族灭绝” 行为的字眼。
+
+对此，赵立坚称：“我们已经反复说过，所谓对新疆“种族灭绝”的指控是世纪谎言，美国越是将自己伪装成人权捍卫者，并努力捏造中共国的人权状况，就越暴露出其国内严重的人权问题以及由此所带来的罪恶感。 赵立坚将美国对专制政权的制裁等同于对中国的种族灭绝的指控。 赵说中共国的穆斯林比美国的穆斯林生活得更自由，但他却无视中共国的穆斯林在新疆集中营中被监禁、被绝育、被失踪、被酷刑、被奴役和被杀害等反人类罪和种族灭绝的恶行。
+
+赵立坚称：“911之后，穆斯林团体成了白人暴徒的袭击对象，在美国的一些城市发生了捣毁和洗劫清真寺的暴行。” 但赵发言人却列举不出这些事件在美国所发生的具体时间和地点。
+
+赵立坚补充说：“美国的一项民意调查显示，超过80％的受访者认为穆斯林在美国受到歧视。” 但赵并未表明其所引用的报告出自哪家民意调查公司或研究机构。
+
+在911事件发生后，FBI确实有[记录](https://www.sfgate.com/news/article/FBI-sees-leap-in-anti-Muslim-hate-crimes-9-11-2750152.php)显示在美国针对穆斯林的事件数量有所增加，但这些都是个体犯罪，而且并没有证据表明美国白人的犯罪率高于其他族裔，更不用说使用“白人暴徒”这个词了。事实上，在美国，无论是针对穆斯林的袭击或任何种族的袭击都会起诉， 而不是像目前中共那样以国家行为在新疆对穆斯林群体实施的种族灭绝行为。 乔治·布什总统（George W. Bush）在911后首次公开[露面](https://www.washingtonpost.com/archive/politics/2001/09/18/bush-visits-mosque-to-forestall-hate-crimes/d6c41c9c-9e89-4008-b7f9-292e352bc7c7/)的其中一个地点就是在华盛顿伊斯兰中心的清真寺，他在那里敦促美国人民对穆斯林保持和平与谅解。
+
+布什在活动中说：“恐怖的面孔并非伊斯兰教的真正信仰，伊斯兰教是和平的。”
+
+相反，中共在国内取缔了很多伊斯兰教的活动和习俗。在独裁者习近平的领导下，中共发起了一场运动，将中共国内五种合法宗教（伊斯兰教、基督教、天主教、道教和佛教）更加“中共国化中共化。”这项运动要求清真寺将伊斯兰教铭文碑或信仰誓词“除了真主，没有别的神，穆罕默德是他的先知”全部移除，取而代之悬挂上大型横幅，大力赞美习近平和宣传共产主义。
+
+虽然新疆现仍有一些清真寺完好幸存，但数以万计的清真寺已经消失。据澳大利亚战略政策研究所（ASPI）在九月的一份报告记录，自2017年以来，16000座清真寺被中共摧毁，并在很多被摧毁的清真寺原址上修建公共厕所，公然侮辱穆斯林！
+
+原文链接：
+
+[https://www.breitbart.com/asia/2021/04/07/china-compares-uyghur-genocide-to-alleged-white-mobs-attacking-american-muslims/](https://www.breitbart.com/asia/2021/04/07/china-compares-uyghur-genocide-to-alleged-white-mobs-attacking-american-muslims/)
+
+校对：Stay(文苑) 审核/发稿：瑞卡
 
 
 
-**视频字幕：**
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
-你们的斗争是高贵的。
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
 
-我非常非常荣幸，每周能参与你们的节目。
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
 
-你们提出的问题比他们在白宫新闻发佈会上向美国总统提出的问题强太多了。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-你们做的很出色。
-
-我们站在历史正确的一边，中国人民终将会获得自由，当中囯人民获得自由的时候，你们功不可没，因为你们为了自己同胞的自由做出了巨大的牺牲。
-
-所以能够成为这场运动中的小小一员，令我非常自豪。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/8OTZBKFRVVmaG/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/8OTZBKFRVVmaG/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

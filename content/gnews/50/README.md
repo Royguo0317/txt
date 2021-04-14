@@ -1,69 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】接受中共第三次约谈，蚂蚁集团上岸了吗？
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1089921/)
+## 中共精心布局多年&nbsp; 收买议员里应外合&nbsp; 抽走黄金打垮美元
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1090422/)
 
-作者：纽约香草山农场 乱谈秦
+**简述：郭先生在2021年4月5日的GTV直播中警告美国人，中共从2006年就开始精心布局，通过收买廉价的美国议员里应外合，耸动各国从美国抽走黄金储备，来达到击垮美元的目的。从最近各国媒体和美国议会的动向来看，中共已经全面开始行动！**
+[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210405-live-p1.srt.txt)
+**中共精心布局多年****  ****收买议员里应外合****  ****抽走黄金打垮美元**
 
+**The CCP Has Been Working on Moving Gold Reserves Out of the US to Defeat US Dollars for Years**
 
+最近看见了吗？全世界媒体在上周开始起全面报道：“要开始，是时候啦！受够啦！Enough！Enough！我们要到美国看看我们的黄金在不在！”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+Have you seen it lately? Since last week, the world’s media has been all over this matter – “Let’s do it! It’s about the time!” “Enough! Enough!” “We need to see if our gold is still in the United States!”
 
+8000吨也好9000吨也好，美国储放的黄金，我真的不相信真的在那儿。从过去布雷森系统1973年之后到现在这个黄金，以货币本位的黄金，我告诉你未来黄金未来一定值大钱，包括银，黄金、银一定不是1800，一定超过一万块美金，按今天的价格一定超过一万，只是时间的问题。所有的信用纸币一定崩塌！一定崩塌！就是在什么时间、什么方式的问题。
 
+I really don’t believe that the gold kept in the U.S. is really there, no matter it is 8,000 tons or 9,000 tons. From the post Bretton Woods System era in 1973 to the present time with currency-based gold, let me tell you, gold will worth big money in the future, and that includes both silver and gold. The price will definitely not be $1800, and will definitely exceed $10,000. Based on today’s price, it will definitely be over $10,000, just a matter of time. All credit-based currencies will collapse! Definitely! It’s only a matter of when and how.
 
-据中共《新华网》报道，2021年4月12日，中共国人民银行、银保监会、证监会、外汇局等金融管理部门再次联合约谈蚂蚁集团。人民银行副行长潘功胜代表四部门就约谈情况回答了记者提问。
+那么在美国这些黄金要没有了，那个科恩他说的是对的。科恩不可能乱讲话一点根据没有，他再好色他不能乱讲话，拉加德当了IMF主席以后，最重要的当时就是被警告，你敢提一次这个事情你也完蛋。原来一个日本的，好像一个日本裔的人在IMF的货币组织也想提，最后很快就辞职了，这是改变世界货币命运的。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/48-1.jpg)网页截图：新华网
+So, if the gold kept in the United States is gone… What Kahn (note: Dominique Strauss-Kahn, Former President of IMF) has said is right. Kahn cannot say something totally baseless, no matter how lustful he is, he cannot say something like this baselessly. After Lagarde (Christine Madeleine Odette Lagarde) became the IMF President, the most important thing happened to her at that time was being warned that if you dare to mention this thing for once, your career will be over. Once a Japanese descent who was in the IMF attempted to bring this up, and he ended up with being quickly resigned, because this is something that can change the fate of the world’s currencies.
 
-这次问答的核心是蚂蚁集团的整改内容。管理部门要求整改内容包括五个方面：一是断开支付宝与“花呗”、“借呗”等其他金融产品的不当连接；二是依法持牌经营个人征信业务；三是蚂蚁集团整体申设为金融控股公司；四是认真整改违规信贷、保险、理财等金融活动，控制高杠杆和风险传染；五是管控重要基金产品的流动性风险，主动压降余额宝余额。
+美国会不会接受储存黄金？我告诉你共产党还有更厉害的一招儿，共产党在美国所有的行贿的议员。我告诉大家一个某国元首，他说：“Miles，共产党很聪明啊，说让我到美国去搞几个所谓的国会议员作为朋友。”我说：“为什么呀？”他说：“未来要影响力呀。”他说：“他们为什么要对司法委员会、金融委员会、情报委员会、能源委员会那么关键，” 他说，“特别对金融委员会，然后要有发起议案的议员。”他说：“实际很少钱，捐个几万美元就行了，就搞定一个。他们为什么要这么干？”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/49-4.jpg)网页截图：蚂蚁集团微信公众号
+So will the United States accept the fact that the CCP’s keeping the gold? Let me tell you that the CCP has a more ruthless tactic, that is bribing Congressmen of the United States. I can tell you that a chief of a certain country once said to me, “Miles, the CCP is very smart. They wanted me to go to the U.S. to make friends with several so-called members of the Congress.” I asked, “Why?” “The CCP wants to have influence in the U.S. in the future,” he said, “and that’s why they see the Judiciary Committee, the Finance Committee, the Intelligence Committee, the Energy Committee [of the Congress] as so critical to them.” He continued, “Especially the Finance Committee. And then they need to have congressmen who can introduce the bill.” He said, “These kinds of things actually do not need a lot of money. Just a few tens of thousands of dollars of donation will work. Why do they want to do this?”
 
-当天，蚂蚁集团在其微信公众号用中英双语回应称，“将在金融管理部门的指导下，认真落实整改有关工作”，“自觉把企业发展融入国家战略大局”。当地《浙江新闻》亦发文《浙江省促进金融科技规范健康发展》表态，“近期，浙江省地方金融监管局深入学习领会习近平总书记关于强化反垄断和防止资本无序扩张、促进平台经济健康发展的重要指示精神”，并将“以实际行动坚决做到‘两个维护’”。
+我当时我的眼睛就亮了，“哎呀，”我说，“共产党这所有的准备是和未来就是他们的要以钱灭美的时候、要查美国黄金的时候，美国议员必须得有呼应。”我当时就想到这一点了，“哎呀，”我说，“这事儿有意思，哎呀，”我说，“你要给我讲讲这个细节。”啊，他给我大致讲了讲。我知道老共已经深深地植根于准备这场战争。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/47-12.jpg)网页截图：浙江新闻
+My eyes lit up immediately. “Gee,” I said, “all the CCP’s preparations were in line with their plan: in the future when they are ready to destroy the U.S. with money and ready to launch investigations into the gold reserves in the U.S., they need to have American congressmen to echo.” I thought of that at that very moment. “Oh, my!” I said, “That’s interesting.” I asked him, “You need to let me know more details about this.” He then told me briefly, and then I knew that the CCP was already preparing for this war insidiously and secretly.
 
-回顾之前2020年11月2日，四部门也曾对蚂蚁集团实际控制人马云、董事长井贤栋和总裁胡晓明进行了监管约谈。约谈次日11月3日，蚂蚁集团A股科创板和H股上市被按下“暂停键”。随后12月24日，中共官方消息称，四部门将于近日（实际26日）再次约谈蚂蚁集团。祸不单行，24日也是中共公布阿里巴巴被反垄断立案调查之消息的时间。
+最近美国最起码超过两到三个议员要提起，自己人提起核查美国给外国储备的黄金，包括美国黄金。
 
-约谈内容对比上次（即2020年12月26日），此次方向一致，但更具体、更严格。想必在这四个多月的时间里，双方在背后应该经过多次讨价还价和交锋，但从结果上看，蚂蚁集团又变回了“马已经服”。
+Recently, at least two or three U.S. Congressmen are proposing to have the U.S. to voluntarily verify its gold reserves for foreign countries, including America’s own gold reserves as well.
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-198.png)图片来源：RFA
+所以说，我这过去这一两周我一看，共产党出手了，出手啦！
 
-最关键的一点就是，此次约谈明确定性蚂蚁集团“整体”上是金融控股公司，“所有从事金融活动的机构全部纳入金融控股公司接受监管”，这意味着蚂蚁集团将面临更严格的约束和监管。而在此之前，中共早就冲着蚂蚁集团准备好了“紧箍咒”：2020年9月11日，人民银行印发了《金融控股公司监督管理试行办法》，并于当年11月1日施行。
+So, based on what I observed the last couple of weeks, I know that the CCP has made the move. They have started to take actions!
 
-另外值得注意的一点是，中共要求蚂蚁集团断开支付宝与“花呗”、“借呗”等其他金融产品的不当连接。“花呗”、“借呗”属于微贷业务，增长迅速，是蚂蚁集团第一大营收支柱，利润几乎占其半壁江山。此次整改意味着，蚂蚁集团用30亿元资本金撬动3000亿元贷款的高杠杆时代一去不复返了。
+让拜登干的事儿基本上拜登都干完了，应付差不多了，呵呵，该谈的也谈啦，是吧？新疆大屠杀属于文化问题、文化冲突；然后香港也没采取惩罚；冠状病毒现在不准谈，不是共产党的。你看基本都做完了。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-199.png)
+Biden has basically done all the things that he was asked to do [by the CCP], and has said everything that he was supposed to say, right? The Xinjiang massacre is a cultural issue or a cultural conflict; there has been no punishment for what the CCP did to Hong Kong; and the coronavirus is not allowed to be talked about and it has nothing to do with the CCP. You see, Biden has basically done all of that.
 
-由于蚂蚁集团不再是一家科技公司且将面临严格的金融监管，据媒体此前报道，外界对其估值，较去年IPO前3150亿美元暴跌1/3到2/3不等。
+然后全世界铺天盖地在上周，所有这些国家、各大媒体包括拉脱维亚、匈牙利、意大利的报纸都在说该到美国去查黄金了，该把美金拿回来了，关键问题[是]在上周就有七八个国家把大量的黄金运回了国家，包括日本啊，包括日本。恐怖不？
 
-阿里蚂蚁系和马云最近可谓厄运连连——阿里巴巴刚交完182.28亿元“党费”。归根究底，蚂蚁集团该不该治？该治。但是有民众为中共的举措叫好，以为是“维护国家金融安全”——这就太糊涂了。要知道，这个国是“党”的，“党”是少数几个人的，民众只是这个国不可缺少的“奴隶”与“韭菜”，还真把自己当成国家的主人了。试问下，这些违规或者不完善的问题，是一天两天的事吗？阿里蚂蚁系在中共的眼皮底下发展了这么多年，已经是“巨无霸”了，你以为中共监管部门看不到？恰恰相反，有人一直在为阿里蚂蚁系保驾护航，而监管部门更是看风向、听主人的话办事而已。这些情况，只要你去了解下阿里蚂蚁系背后的股东，即可明白。至于约谈意见里“保障个人和国家信息安全”等官话、套话就更荒唐了，小粉红们应该都有体会，中共国个人信息啥时候安全了。
+And then last week, this was extensively covered by media all over the world. All these countries and all the mass media, including Latvia, Hungary, Italy’s newspapers were saying that it’s time to go to the U.S. to check our gold reserves, and it is time to take back our gold. The problem is that in the last week there were already seven or eight countries that had shipped a large amount of gold back to their countries, and that included Japan. Japan! Scary, isn’t it?
 
-说到底，就算有人保护，当马云等商人发展到了威胁中共极权统治根基的地步时，那他们“必死无疑”——当然，你人走，财产留下给我控制。毕竟，金融是独裁者必须控制的命门，更何况你还搞了科技，搞了大数据，搞了必须被控制的教育——关键在于，你还是被“对手”控制的。每一个中共国的商业垄断巨头，都是中共一个或几个盗国贼家族的“白手套”：当你和你的主人对我产生了威胁，自然先拿你开刀，这就是中共内斗手段之一。另外，对于主人来说，“猪”养肥了，也就非宰你不可了。
+同时美国几个议员提议要查美国黄金储备。就花几万美元就可以搞定[几个议员]。而这是美国（口误，应为中国）在2006年就开始准备、中共就准备的，最近全开始了。战友去想想，这个结局会是什么？美元崩塌、美国经济崩塌、美国的信用崩塌。
 
-蚂蚁集团和阿里巴巴被“步步紧逼”，马云的“消失”，这些都不是偶然。蚂蚁集团的此次整改，只是中共内部斗争与“宰马”的小场景，事情远没有结束。
+And concurrently, several U.S. congressmen proposed to check the U.S. gold reserves. It only takes tens of thousands of dollars to buy out a congressman. And this is what the CCP has been preparing since 2006, and it has all started recently. Our fellow fighters, think about it, where this will lead to? The collapse of the U.S. dollar, the collapse of the U.S. economy, and the collapse of the credit of the U.S.!
 
-（本文仅代表作者观点）
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=606b0c896e11a756edd89042](https://gtv.org/video/id=606b0c896e11a756edd89042) (1:04:04-1:07:11, 1:07:35-1:08:57)
+鸣谢：感谢湘江之水、Winner为自由而战（文祥）、万物归一、柒号G币、Bruce(文远)、山川异域提供中文文本于 [https://gnews.org/zh-hans/1060164/](https://gnews.org/zh-hans/1060164/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+* * *
 
-编辑/校对/发稿：Irene木木
+*翻译：【rainbow】字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】*
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
-0
++1
