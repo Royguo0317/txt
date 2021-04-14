@@ -1,41 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【SEC抗议】专访「小王子」：为四点诉求战斗到底，中华男儿请站出来支持我们！
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1091497/)
+## 大法官托马斯阐述终结大科技公司专制暴政的方式
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1091652/)
 
-**GNEWS记者：华盛顿DC农场 DC教练**
+翻译：洛杉矶天使农场 – Jessi/詹茜
+校对：洛杉矶天使农场 – Feihua
+审核：洛杉矶天使农场 – 黎明的光芒
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Picture1-23.png)（索尔·勒布（SAUL LOEB）/法新社摄）
+周一，克拉伦斯·托马斯（ Clarence Thomas）大法官宣布美国最高法院很快将要终结大科技公司的专制暴政。他提及了脸书和谷歌这样的社交媒体存在的的“[明显](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)”问题，二者运用无限的权力审查它们不喜欢的用户的观点。
 
-**摘要：**今天记者特别采访到参与多次游行活动的小王子。作为支持中国民主自由的年轻一代，小王子受到香港抗争运动的感召，他在用行动向香港学习。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片1-32.png) 在SEC总部进行的抗议活动
-SEC抗议进行到第七天，今天记者特别采访到参与多次游行活动的小王子。作为支持中国民主自由的年轻一代，小王子受到香港抗争运动的感召，他在用行动向香港学习。他希望，越来越多的人站出来，揭露中国共产党的黑暗，加入建立中国民主自由的正义行动，这样中国人才能真正挺起腰板站起来。
+他认为，这些科技巨头应该应该像[普通运营商](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)那一样受到监管，按照法律要求为服务于所有的顾客。美国电话电报公司（AT&T）不能拒绝给你开通电话帐户，或者限制你的通话。美国铁路公司（Amtrak）不能自行选择乘坐火车的人。
 
-记者：“小王子您好，请简单的介绍下自己好吗？”
- 小王子：“2019年的香港运动真正彻底唤醒了我，香港人的抗争和对黑暗中共的揭露，在香港人身上让我们看到中国人是有血性的，中国人是配得上自由民主的。这一点让我十分感动，因为当时我正准备去香港上学，也是因为香港抗争，我没能去香港上学。所以说香港事件，最终让我决定，开始加入为中国人建立民主自由的行动。”
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片2-25.png) 在华盛顿游行发表演讲
-记者：“小王子参加和组织了多次的抗议活动，包括抗议中共在美国的渗透，请简单介绍一下，你参加和组织这些活动的基本情况。”
- 小王子：“我总共参加过三次活动。第一次在德州，揭穿「傅希秋」假牧师真特务的依法惩贼活动；第二次，在1114华盛顿DC，支持美国宪法、支持川普总统、支持美国选举自由，揭露共产党真相的活动，并且当时我在现场发表了一个演讲。第三次就是现在，作为GTV的投资者，我们从美国各地自发组织到SEC总部抗议。这次抗议，针对SEC被共产党渗透后，对GTV投资者进行政治打压和种族歧视，我们用行动来维护我们的权利。”
- “抗议到今天我的感受是，自由绝对不是免费的，自由是要用行动去捍卫的，我也号召更多的GTV投资者和更多的中国人能够清楚的认识到这一点。只做白日梦，共产党永远会在那里。只有我们站起来，用我们的行动向香港人学习，用合法、合理、和平的手段去维护自己的权利，我们中国人才能真正挺起腰板站起来。”
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片3-15.png) 接受GNEWS记者采访
-记者：“您对SEC提出的四大要求，可以具体介绍一下吗？”
- 小王子：“第一，要求SEC公开与共产党政府之间勾兑的通讯记录。尤其是和中共黑警、国安、国宝之间的通信记录。因为如果SEC没有和共产党勾兑，那么我们GTV投资人的信息是怎么样被共产党获得的呢？共产党又是怎么样找到墙内的投资者，对他们进行人身迫害和政治迫害的？所以，我们要求SEC必须公开这些信息。”
- “第二，要求SEC必须全额赔偿对于GTV投资者所造成的损失。在国内我们有很多被喝茶、被消失的投资者，这些被抓进去的投资者，他们的损失是永远无法用金钱衡量的，这个伤害也是永远不可能逆转的。”
- “第三，要求SEC即刻停止和共产党的勾兑，即刻停止对GTV投资者进行的种族歧视和政治打压。”
- “第四，要求SEC立刻停止官僚主义，停止用官僚的手段对GTV投资者的打压。我们要求和SEC法庭上见，用法律手段合理、快速的解决问题。”
- “补充一点，我们此次活动是自发组织的，作为GTV投资者，我们反对的绝对不是美国证监会，也不是美国政府，更不是美国的法律。我们反对的根本核心是，共产党利用美国体制和人性的漏洞，对美国证监会进行的渗透。我们反的是共产党的邪恶，反的是共产党的3F计划和蓝金黄计划，以及这些和共产党勾兑的美国官僚。我们捍卫的是美国的法治体制，捍卫的是美国的民主自由，捍卫的是美国的言论自由，我们的目的是向美国公众去揭露真相。”
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片4-14.png) 抗议现场与美国人交流
-记者：“您觉得您向SEC提出的四点要求，有信心实现吗？”
- 小王子：“我觉得这个和信心没有关系。它是必须要实现的，正义必须要得到伸张，邪恶必须要被打压。SEC和共产党的勾兑，就是和撒旦魔鬼所做的交易。所以说，不是我有没有信心达成这四点要求，它必须要达成，不达成我们绝对不离开，我们会继续战斗下去。Edmund Burk说过一句话，“The only thing necessary for the triumph of evil is for good men to do nothing.”如果好人不站起来捍卫权利，这个世界就会被恶魔控制。所以我们必须要去伸张正义，不达到目标绝对不罢休。”
- 记者：“您觉得这次SEC抗议活动，对在美国和全世界的华人有什么样的影响？
- 小王子：“全球的华人尤其在美国的华人，我们要让那些腰板挺不起来的人看到，行动在美国是有结果的。用行动捍卫自由和自己的权益是被世人认可的。在美国你是有权利用第一修正案，宪法赋予你的权利，去上街抗议游行。反对政府的政治打压，对政府进行一个合理的反制，这就是美国体制最优越的地方，这也是我们所有中国人需要学习的地方。因为只有制衡才能有平衡，只有平衡才能有平稳的发展。未来所有的华人，请记住当你遇到问题的时候，请你一定要用法律手段，和平的手段去解决问题，而不是用共产党偷鸡摸狗的蓝金黄手段解决问题。否则，你一定会得到和撒旦魔鬼一样的结果。”
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片5-13.png) 和其他抗议者交谈
-记者：“最后，请小王子向GNEWS读者说几句话。”
- 小王子：“我最想说是，我希望能够看到更多的，在我这个年龄阶段的中国年轻人，尤其是男子汉们真正的站起来。我们整个中国现在有点阴盛阳衰的感觉，中国真正的男儿很多我现在已经找不到了。所以，我希望当你看到这篇文章时，请你一定要站出来，支持我们这样的正义活动。因为你的支持，并不是仅仅为了你自己，更是为了你的孩子，你的家人，你的未来。我希望能看到更多的年轻人，尤其是男子汉站出来支持我们。”
+正当民主党控制的国会要求科技巨头加强而不是减少审查的时候，托马斯的观点带来了希望。3月25日，众议院的能源和商业委员会日，[在民主党](https://nypost.com/2021/03/25/zuckerberg-calls-for-section-230-reforms-as-lawmakers-vow-crackdown/)的[众议院能源委员会和商务部](https://energycommerce.house.gov/committee-activity/hearings/hearing-on-disinformation-nation-social-medias-role-in-promoting)（[House Committee on Energy and Commerce](https://energycommerce.house.gov/committee-activity/hearings/hearing-on-disinformation-nation-social-medias-role-in-promoting) ）下令科技公司的首席执行官们取缔’假信息’，打压”[破坏社会正义运动](https://www.wsj.com/articles/congress-summons-its-speech-regulators-11616711928)”观点。说起来这真像真正的极权主义的作派。
+托马斯是是[在涉及唐纳德·川普（Donald Trump）的一宗案件的背景下作出的](https://nypost.com/2021/04/05/supreme-court-dismisses-case-about-trump-blocking-critics-on-twitter/)做出上述突破性的声明的。做为总统，他阻止批评者们评论或转发他的推文。[批评人士提起诉讼](https://knightcolumbia.org/cases/knight-institute-v-trump)，称总统的推特是一个公共论坛。最高法院做出了裁决，裁定[该案现在已经无意义了，因为川普已经不在职](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)。托马斯同意地方法院的裁决，即川普侵犯了他的批评者的第一修正案（ First Amendment ）规定的发言权。
 
-责任编辑：华盛顿DC农场 荧然
+但是托马斯认为，“[更为明显的担忧](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)”不是川普对几个批评者所做的事情，而是科技巨头们拥有审查或者完全禁止用户、甚至一个总统的权力。
 
-编辑/校对：华盛顿DC农场 光之子(沙加)
+对脸书和谷歌有权“[随时随地以任何理由或无理由](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)” 注销帐户的行为，托马斯表示震惊。他写道: “[脸书控制在一个人的手中……谷歌控制在两个人的手中”](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)。他们决定着几十亿人能表达或听到什么观点。
 
-发布：闪电训练
+托马斯说，当未来再有争议到达最高法院的时候，这种权力必须得到控制。大科技公司的支持者认为，因为他们是私人公司，他们可以自由审查。第一修正案的目的只禁止政府压制观点。但是托马斯说，最高法院[早就了解这些科技公司](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)了。这些公司[比私人公司更像普通承运人或公用事业公司](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)，所以他们必须对所有的公众开放。
+
+托马斯还将他们与如宾馆和棒球场所之类的[公共设](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)施进行比较，法律要求这些公共设施服务于每一个人，不得歧视。
+
+托马斯认为，随着新型公司的出现，大科技专制暴政的问题并没有通过竞争得到解决。他指出“[巨大的进入壁垒](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)”，帕勒（Parler）的命运证明了这一点。当帕勒提供了一个没有审查的平台时，[大型科技公司联合起来打垮了它](https://nypost.com/2021/01/10/big-techs-assault-on-parler-proves-its-gone-full-cartel/)。
+
+有人称赞托马斯此举是“[邀请国会宣布推特、脸书和类似公司为公共运营商](https://www.politico.com/news/2021/04/05/justice-clarence-thomas-trump-twitter-ban-479046)。”
+
+但是事实是，民主党人对自由的思想交流毫无兴趣。
+
+他们宁愿脸书的首席执行官扎克伯格（ Zuckerberg）代表他们审查其竞争者。
+
+而且他们不指望总统乔•拜登（Joe Biden）。[他](https://dailycaller.com/2021/01/10/biden-big-tech-apple-facebook-trump-parler/)的[过渡时期和挑选的新政府人选中](https://dailycaller.com/2021/01/10/biden-big-tech-apple-facebook-trump-parler/)有[14名来自](https://dailycaller.com/2021/01/10/biden-big-tech-apple-facebook-trump-parler/)苹果、脸书、推特、谷歌和亚马逊。据《每日来电者》（Daily Caller）的统计。
+
+或许拜登能当上总统在某种程度上应该归功于科技巨头们。当《纽约邮报》（ New York Post ）发表了一篇报道，记录了中共国公司与拜登家族交易时，包括总统候选人乔•拜登），[硅谷将其标记为虚假信息](https://nypost.com/2020/12/16/covering-for-hunter-biden-why-americans-distrust-the-media/)。 [脸书撤销了该信息](https://nypost.com/2020/10/14/facebook-limits-spread-of-the-posts-hunter-biden-expose/)，而[推特则完全锁定了邮报的帐户](https://nypost.com/2020/10/16/twitter-still-holding-the-posts-account-hostage-over-hunter-biden-links/)。大选前几周，投票人被剥夺了可能影响他们选择的信息。
+
+现在，在民主党执政的情况下，议员们不可能将科技公司归为公共运营商。但是托马斯说，[法院无论如何都可以运用这种推理](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)，而不必等待国会的同意。
+
+在那之前，公众只会听到硅谷想要他们听到的。就在上周，拉拉·特朗普（Lara Trump）在脸书上发布了对前总统的采访。[脸书](https://nypost.com/2021/03/31/facebook-scrubs-donald-trump-interview-with-daughter-in-law-lara/)立即[将其删除](https://nypost.com/2021/03/31/facebook-scrubs-donald-trump-interview-with-daughter-in-law-lara/)，并解释说“[再有唐纳德·川普的声音发布](https://nypost.com/2021/03/31/facebook-scrubs-donald-trump-interview-with-daughter-in-law-lara/)的[内容将被删除](https://nypost.com/2021/03/31/facebook-scrubs-donald-trump-interview-with-daughter-in-law-lara/)。”
+
+只有最高法院才会恢复未经审查的政治言论，这是美国的理想。托马斯的意见为我们指明了方向。
+
+原文作者：贝茜·麦考伊（Betsy McCaughey）博士是纽约州前副州长
+发表时间：2021年4月7日
+原文链接： https://www.newsmax.com/mccaughey/justice-thomas-supreme-court-silicon-valley-big-tech-tyranny/2021/04/07/id/1016707/
+
+
 
 0
