@@ -1,23 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】04/13/2021：Dr.LawrenceSellin发推挖出港大实验室团队是CCP病毒改造的真正研究核心所在
-` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1092214/)
+## 2021年4月13日 文贵先生盖特 4
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1092353/)
 
-**Cantonese工作室**
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+
+史蒂芬·哈特菲尔博士：因为抹黑羟氯喹，福奇以及美国食品药品管理局的伍德科克要为数十万死去的美国人负责 Dr. Steven Hatfill: Fauci, FDA’s Woodcock Responsible for Hundreds of Thousands of American Deaths for Smearing Hydroxychloroquine
 
 
 
+[【2021年4月13日】文贵先生盖特原文](https://gtv.org/getter/60764f5ddbc8001854a85a9b)
 
+**喜联盟Gnews编辑部**
 
-**播报：【文依】 资料整理： 【 文依 】【专业家庭煮妇】海报制作：【米线】视频制作: 【 文德】 推流：【 星星】发布：【 向阳6768】**
-
-摘要：
-
-1
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image1-1.png)
-2
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image2.png)
-3
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image3.png)![]()![](https://gnews.org/wp-content/uploads/2021/04/0-3.jpg)
 0
