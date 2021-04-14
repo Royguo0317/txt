@@ -1,67 +1,120 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【聚焦】东非小国吉布提与中共国渐行渐远
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1091781/)
+## 中共国对阿里巴巴集团在境内网络零售市场滥用市场支配地位处以超过27.5亿美元罚款
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1092068/)
 
-翻译：truth\_forever
+[https://gtv.org/getter/60748247dbc8001854a7fd14](https://gtv.org/getter/60748247dbc8001854a7fd14)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/7C5F72CB-636A-4E7D-B0FB-9EFAEF9A2CF2.jpeg)
+内容：
 
-校对：文泓
+来自路透社(Reuters) 2021年4月10日的推特
 
-编辑：翼族
-![]()![](https://gnews.org/wp-content/uploads/2021/04/unnamed-1.png)
-图片来源：墨尔本雅典娜农场设计组（精灵蓝）
+China slapped a record 2.75 billion fine on Alibaba after an anti-monopoly probe found the e-commerce gains abused its dominant market position for several years
 
-吉布提是“非洲之角”的一个重要地缘政治中心【注：非洲之角，又称东北非洲或索马里半岛。作为一个更大的地区概念，非洲之角包括了吉布提、埃塞俄比亚、厄立特里亚和索马里等国家】，周五将在那里举行总统选举投票。关于该国的国际争论焦点是中共国通过“一带一路”倡议使其纳入了中共国的经济轨道中，但专家表示，吉布提的现状说明中共国庞大的投资和贷款项目存在着（现实）的局限性。
+中共国对阿里巴巴集团控股有限公司在中国境内网络零售平台服务市场滥用市场支配地位处以超过27.5亿美元罚款
 
-自伊斯梅尔·奥马尔·盖莱 (Ismail Omar Guelleh) 总统上任以来，中共国或许尚未在吉布提发挥重要作用。目前盖莱总统正在竞选第五个任期，大选过后，预计中共国将会保持对这个东非国家的经济控制。
+Chinese regulators have slapped a 2.75 billion fine on Alibaba
 
-在许多方面，吉布提与中共国的关系可作为一个研究的案例，显示了北京利用其全球基础设施投资战略，即“一带一路”倡议，扩大其经济影响并巩固其作为非洲第一大投资国的地位。由于非洲经济和人口的蓬勃发展，使其成为了地缘政治的优先地区。
+中共国的监管机构已对阿里巴巴处以27.5亿美元的罚款
 
-该案例也展示了一个缺乏自然资源的非洲小国如何向国际大国敞开大门，利用其处于红海入海口的战略位置获取利益的故事。
+The e-commerce group founded by Jack Ma
 
-由于接受了中共国资本和贷款的大量流入，吉布提发现自己处于严重的经济依赖状况，以至于“威胁到了国家主权”，里尔天主教大学的“非洲之角”专家索尼娅勒·古里列克 (Sonia Le Gourellec) 在《国防评论》中如此写道。
+马云成立的该电子商务集团
 
-**成为非洲的新加坡？**
+is accused of violating anti-monopoly rules
 
-2017年中共国在吉布提建立了军事基地，这是解放军在国境之外唯一的常设基地，彰显了两国之间的紧密关系。那里的400名中共国士兵距离驻扎着约4000人的美国军事基地只有7公里。日本和意大利也在吉布提设有军队。法国是1883年至1977年吉布提的帝国统治者，在该国设有它在非洲最大的军事基地，大约有1500名士兵常驻。
+被指控违反反垄断规则
 
-北京早在2000年初就已将目光投向吉布提，投资建设学校和体育馆，翻修道路和官邸，包括外交部。自习近平主席于2012年掌权并于次年启动“一带一路”倡议后，中共国加强了对吉布提的投资。
+And abusing its dominant market position of particular concern was a practice
 
-习近平领导下的三项最重要成就，分别是大型多用途的多拉雷港（Doraleh）、吉布提和埃塞俄比亚之间的铁路线以及两国之间的天然气管道。吉布提还拥有中共国建造的国际自由贸易区，园区内企业无需缴纳所得税、财产税、红利税或增值税即可开展业务。在2012年至2020年期间，中共国总计在吉布提的投资和贷款上耗费了140亿美元（约118亿欧元）。
+在中国境内网络零售平台服务市场滥用市场支配地位
 
-英国一位“非洲之角”专家私下表示，北京之所以在吉布提投入大量资金，是因为作为该地区少数几个政治稳定的国家之一，吉布提可以在中共国庞大的“海上丝绸之路”网络中，支撑起了非洲的一部分。
+where Alibaba is alleged to have forbidden merchants
 
-非洲世界研究所(Institute of African Worlds)的历史学家盖拉德·普鲁尼尔(Gerard Prunier)补充道，吉布提是通往如埃塞俄比亚等更具经济前途的非洲内陆国家的桥头堡。
+据称阿里巴巴禁止其商家
 
-巴黎CNRS智囊团的中非关系专家蒂埃里·皮诺特(Thierry Pairault)表示，吉布提从中共国的投资和贷款中得到了明显的好处。该国显然对资金有需求，并且“没有其它国家可以求助”。
+from listing on other e-commerce platforms
 
-美国驻联合国大使高级顾问扎克·维尔廷(Zach Vertin)在2020年为布鲁金斯学会(Brookings Institution)发表的一份报告中写道：“吉布提的精英人士认为，中共国的金融、技术和（大宗）贸易量可以……推动他们国家成为非洲的新加坡。”
+在其他电子商务平台上市交易
 
-维尔廷继续写道：“吉布提的目标很明确，像新加坡一样，利用其独特的地理优势，在世界向亚洲和印度洋-太平洋转移的过程中，成为全球物流、服务和转运的中心。”
+The fine which is equivalent to around four percent of Alibaba’s revenues in 2019,
 
-**中共国开始局促不安**
+罚款相当于阿里巴巴2019年收益的约4％，
 
-普鲁尼尔说：“中吉关系近年来已逐渐淡化，就像一段慢慢解体的婚姻。”
+is the highest ever anti-trust penalty to be imposed in China
 
-债务是一个绕不过去的问题。中共国持有吉布提70%以上的债务。一些观察员认为这随时威胁到该国的主权。他们担心吉布提将遭受与斯里兰卡相同的命运。斯里兰卡就不得不将港口控制权移交给中共国公司，因为它无法偿还与中共国签署的贷款。
+是中共国有史以来最高的反垄断处罚
 
-不过，中共国已经“从斯里兰卡的失误中吸取了教训”，这位匿名的英国专家说：“它变得更愿意重新协商谈判债务，因为它不想（自己）看起来像个坏人。”
+It comes amid an unprecedented regulatory crackdown
 
-问题在于中共国投资和贷款给吉布提带来的收益似乎令人怀疑。例如多拉雷港口，看起来是“出口外向型的”，皮诺特说，但它对当地就业并没有多大作用，主要是中共国的公司从中获利。
+发生在前所未有的监管镇压之际
 
-这位英国专家说：“中共国的钱对吉布提人的生活影响非常有限。”
+on the country’s homegrown technology conglomerates
 
-中共国的热情也在降温。一些项目进展缓慢，例如通往埃塞俄比亚的铁路。皮诺特说：“中国人意识到，他们资助的项目不一定能获得回报。”
+在该国本土的技术企业集团中
 
-普鲁尼尔说：“（现在）他们的军事基地也开始感到局促不安，因为美国人就在旁边，法国人也在附近。”
+Ma’s business empire has faced particular scrutiny
 
-这种关系的降温似乎不太可能促使中共国完全脱离吉布提。这位英国专家说：“这仍然是‘一带一路’倡议的重要组成部分。”
+马云的商业帝国面临着特别的审查
 
-但这可能导致吉布提与法国等其它国际参与者之间建立更紧密的联系。皮诺特说：“虽然就借钱（贷款条件）而言，没有其他国家能做到中共国这样，但吉布提加深与其它国家的联系是正当合理的。”
+after he criticized China’s regulatory system back in October
 
-原文链接：
+在他十月份批评中共国的监管体系之后
 
-[Djibouti-China marriage ‘slowly unravelling’ as investment project disappoints](https://www.france24.com/en/africa/20210409-djibouti-china-marriage-slowly-unravelling-as-investment-project-disappoints)
+A month later authorities halted a planned 37 billion IPO from Ant Group –
+
+一个月后，有关部门叫停了蚂蚁集团—阿里巴巴的互联网金融部门
+
+Alibaba’s internet finance arm
+
+计划进行的370亿美元的首次公开募股
+
+Then came the launch of the anti-trust probe into Alibaba in late December
+
+然后在12月下旬对阿里巴巴发起反垄断调查
+
+In a statement the Chinese company said
+
+阿里巴巴在一份声明中说
+
+it accepted the regulator’s decision
+
+它接受了监管机构的决定
+
+and would implement the ruling
+
+并将执行该裁定
+
+it added that it wold work to improve corporate compliance
+
+它补充说，这将有助于提高公司的合规性
+
+Beijing has vowed to strengthen oversight of its big tech firms
+
+中共北京发誓要加强对那些跻身在世界上最大
+
+which rank among the world’s largest and most valuable
+
+最有价值的行列的大型科技公司的监督
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接: https://twitter.com/reuters/status/1380873197734617096?s=24
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 -Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+
+
 
 0

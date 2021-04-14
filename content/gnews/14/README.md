@@ -1,23 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】04/13/2021：Dr.LawrenceSellin发推挖出港大实验室团队是CCP病毒改造的真正研究核心所在
-` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1092214/)
+## 2021年4月13日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1092331/)
 
-**Cantonese工作室**
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
+
+4月13日：新中国联邦人－爆料革命从2019年的十二月份到现在！一次次的拯救世界上有正义感．有智慧．有常识．的人们！同时也让这个世界上丑陋．贪生怕死．虚伪．假信仰．伪宗教．伪正义者．大白于天下，并且在共产党的疫苗经济．疫苗政治！面前．走上了不归路，一切都已经开始！
 
 
 
+[【2021年4月13日】文贵先生盖特原文](https://gtv.org/getter/6075f6f3dbc8001854a84819)
 
+**喜联盟Gnews编辑部**
 
-**播报：【文依】 资料整理： 【 文依 】【专业家庭煮妇】海报制作：【米线】视频制作: 【 文德】 推流：【 星星】发布：【 向阳6768】**
-
-摘要：
-
-1
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image1-1.png)
-2
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image2.png)
-3
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image3.png)![]()![](https://gnews.org/wp-content/uploads/2021/04/0-3.jpg)
 0
