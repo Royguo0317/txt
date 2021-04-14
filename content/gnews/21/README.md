@@ -1,53 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙内热搜】实地探访：美国驻成都大使馆关闭9个月后，近况如何？
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1092019/)
+## 【百姓小妍】中共国最底层的货车司机写给中共政府的一封信
+` 小妍说` [轉載自GNews](https://gnews.org/zh-hans/1092082/)
 
-作者：纽约香草山 文帝
+作者：[小妍说](https://gnews.org/zh-hans/?s=%E5%B0%8F%E5%A6%8D%E8%AF%B4)  旧金山金喜农场
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
+他在信中介绍，他是生活在中共国社会最底层的货车司机，写这篇文章，实属无奈，他们真的已经生活不下去了，真的不要在我们身上榨油了，我们已经骨瘦如柴了，请爱护你们的公民，让我们这种特殊车辆有一定的生存空间吧！我只是想好好活着！最后提到请路过的朋友看看，不求点赞，只求转发。
 
+【免责声明】尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
+**欢迎战友加入旧金山金喜准农场**
 
-美国驻成都大使馆自2020年7月27日正式关闭以来，已近9个月。美国驻中共国大使被召回，导致美国驻中共大使空缺也已经超过半年时间。在中美关系持续僵持之下，见证历史的不仅是个人，还有那些标志性建筑。
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片58.png)原美国驻中共国成都大使馆(一侧)
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片59.png)原美国驻中共国成都大使馆
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
 
-原美国驻中共国成都大使馆门前围起“地铁工程”施工标识，大门依旧紧闭，窗户紧锁。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片60.png)原美国驻中共国成都大使馆(正门)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片61.png)原美国驻中共国成都大使馆(岗亭处)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片62.png)原美国驻中共国成都大使馆(一侧)
-
-现场勘察发现，临近的区域有地铁修建工程，而此处与工程并不相关。推测应该是表面以“修地铁”的借口，将此处“合理化”封闭。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片66.png)原美国驻中共国成都大使馆(正对面)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片63.png)原美国驻中共国成都大使馆(正对面)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片64.png)原美国驻中共国成都大使馆(正对面)
-
-曾经在美国驻中共国成都大使馆前相关的旅游、签证等相关店铺业务，已经几乎全部倒闭。
-
-
-
-校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpg)
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
 
 0

@@ -1,16 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月13日 文贵先生盖特 1
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1092271/)
+## 2021年4月13日 文贵先生盖特 4
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1092353/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-4月13号：尊敬的战友们好……昨天我推出健身的视频后．很多战友发信息说这个视频证明了郭3秒是事实上是郭三强……把我笑得简直是受不了了，有欺民贼说文贵只能是咬着牙做一次。👉👉👉今天在录一段给大家看一看……看看郭3秒到底能做多长时间？关键是能一直做🙈天天做……你懂的🙈🙈🙈为什么从昨天到现在这么多人要投G系列！
+史蒂芬·哈特菲尔博士：因为抹黑羟氯喹，福奇以及美国食品药品管理局的伍德科克要为数十万死去的美国人负责 Dr. Steven Hatfill: Fauci, FDA’s Woodcock Responsible for Hundreds of Thousands of American Deaths for Smearing Hydroxychloroquine
 
 
 
-[【2021年4月13日】文贵先生盖特原文](https://gtv.org/getter/6075a527dbc8001854a83780)
+[【2021年4月13日】文贵先生盖特原文](https://gtv.org/getter/60764f5ddbc8001854a85a9b)
 
 **喜联盟Gnews编辑部**
 
