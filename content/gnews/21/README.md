@@ -1,25 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美向一中共公司发出传票要求进行供应链审查
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1091351/)
+## 澳洲阿德莱德大学拒绝来自中共的研究资金
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1091407/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/I-10.jpg)istockphoto.com
-路透社报道，美国商务部周二向一家未透露姓名的中共公司发出传票，以评估其是否对美国国家安全构成任何风险，这是拜登政府对供应链进行评估的一部分。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/A-16.jpg)adelaidenow.com.au
+《先驱太阳报》 (Herald Sun)报道，澳洲阿德莱德大学(Adelaide University)拒绝了来自中共的数百万美元研究资金，理由是涉嫌与军事或安全项目有关。
 
-拜登总统对中共公司采取了相对强硬的立场，类似于前川普政府，他引用了美国的国家安全法，并强调中共是美国最严重的竞争对手。
+一个有关先进材料的项目被发现部分由一家香港公司提供资金，该公司的利益延伸至中共内地更深处的涉及可能与洗钱或隐藏资产有关的所有者。先进材料通常有军事用途。阿德莱德以涉嫌与中共军事安全有关，拒绝了来自该公司的科研资金。
 
-“今天送达的传票允许商务部收集信息，有助于确定美国及其公民的安全面临的潜在风险，”商务部声明说，“希望与该公司合作，完成彻底的审查。”
+阿德莱德大学也拒绝了外国大学“与核武器计划有关”的合作，阿德莱德大学没有透露涉及的外国大学的名字，但表示，这五所大学中有两所风险很高，因为它们的国防研究“和核武器项目有关联”。
 
-今年3月，司法部表示，已经向多家在美国提供信息和通信技术服务的中共公司发出了类似的传票，以确定它们是否对国家安全构成威胁。
+阿德莱德大学副校长Peter Hoj和科研副校长Anton Middelberg出席了联邦高等教育安全风险调查委员会，随后将这些信息提交给了该委员会。阿德莱德大学是澳大利亚从事国防研究最深入的大学之一，该校领导人称需警惕国际。他们说，“尽管国际接触与合作是成功的促成因素，但国际合作与保护主权利益之间的平衡，以前很少像现在这样既重要又令人担忧。”
 
-拜登政府表示，尽管遭到美国企业的反对，但政府计划继续川普时期针对被视为对美国构成威胁的中共科技公司的规定。
+该大学透露，自2016年以来，它已获得联邦政府在敏感国防或安全领域的许可，获得了6个软件或技术出口许可和5个货物出口许可，但没有透露目的地或价值。
 
 参考链接：
 
-[https://www.reuters.com/article/us-usa-china-commerce-idUSKBN2C029U](https://www.reuters.com/article/us-usa-china-commerce-idUSKBN2C029U)
+[https://www.heraldsun.com.au/news/south-australia/adelaide-university-rejects-lucrative-research-funding-from-china-because-of-suspected-defence-connections/news-story/7eff379de9f93283ddadd525be337138](https://www.heraldsun.com.au/news/south-australia/adelaide-university-rejects-lucrative-research-funding-from-china-because-of-suspected-defence-connections/news-story/7eff379de9f93283ddadd525be337138)
 
-0
++1

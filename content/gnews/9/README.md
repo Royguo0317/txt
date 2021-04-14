@@ -1,50 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 大法官托马斯阐述终结大科技公司专制暴政的方式
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1091652/)
+## 当法治社会沦为人治 又遇上公共卫生危机之时
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1091673/)
 
-翻译：洛杉矶天使农场 – Jessi/詹茜
-校对：洛杉矶天使农场 – Feihua
-审核：洛杉矶天使农场 – 黎明的光芒
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Picture1-23.png)（索尔·勒布（SAUL LOEB）/法新社摄）
-周一，克拉伦斯·托马斯（ Clarence Thomas）大法官宣布美国最高法院很快将要终结大科技公司的专制暴政。他提及了脸书和谷歌这样的社交媒体存在的的“[明显](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)”问题，二者运用无限的权力审查它们不喜欢的用户的观点。
+作者：Saintyoung | 校对：仙女儿-文善 | 审核：free dust | Page: Daoiii
 
-他认为，这些科技巨头应该应该像[普通运营商](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)那一样受到监管，按照法律要求为服务于所有的顾客。美国电话电报公司（AT&T）不能拒绝给你开通电话帐户，或者限制你的通话。美国铁路公司（Amtrak）不能自行选择乘坐火车的人。
+[!\[\]()!\[\](https://spark.adobe.com/page/jy6UPCK0HgRpI/images/542ab99f-ffb0-488d-96f5-201eaacf4c93.jpg?asset_id=255b111a-48b0-4529-a86b-3369bf2ffab6&amp;img_etag=%2276ffe6ac023a996707b83c6bfc5f66f8%22&amp;size=1024)](https://spark.adobe.com/page/jy6UPCK0HgRpI/images/542ab99f-ffb0-488d-96f5-201eaacf4c93.jpg?asset_id=255b111a-48b0-4529-a86b-3369bf2ffab6&amp;img_etag=%2276ffe6ac023a996707b83c6bfc5f66f8%22&amp;size=1024)
 
-正当民主党控制的国会要求科技巨头加强而不是减少审查的时候，托马斯的观点带来了希望。3月25日，众议院的能源和商业委员会日，[在民主党](https://nypost.com/2021/03/25/zuckerberg-calls-for-section-230-reforms-as-lawmakers-vow-crackdown/)的[众议院能源委员会和商务部](https://energycommerce.house.gov/committee-activity/hearings/hearing-on-disinformation-nation-social-medias-role-in-promoting)（[House Committee on Energy and Commerce](https://energycommerce.house.gov/committee-activity/hearings/hearing-on-disinformation-nation-social-medias-role-in-promoting) ）下令科技公司的首席执行官们取缔’假信息’，打压”[破坏社会正义运动](https://www.wsj.com/articles/congress-summons-its-speech-regulators-11616711928)”观点。说起来这真像真正的极权主义的作派。
-托马斯是是[在涉及唐纳德·川普（Donald Trump）的一宗案件的背景下作出的](https://nypost.com/2021/04/05/supreme-court-dismisses-case-about-trump-blocking-critics-on-twitter/)做出上述突破性的声明的。做为总统，他阻止批评者们评论或转发他的推文。[批评人士提起诉讼](https://knightcolumbia.org/cases/knight-institute-v-trump)，称总统的推特是一个公共论坛。最高法院做出了裁决，裁定[该案现在已经无意义了，因为川普已经不在职](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)。托马斯同意地方法院的裁决，即川普侵犯了他的批评者的第一修正案（ First Amendment ）规定的发言权。
+自2020年至今，香港前后经历了四波中共新型冠状病毒的肆虐，如今第四波疫情貌似接近尾声。然而，目前社会上仍然持续出现不明感染源头的病例，在第四波疫情状况尚未明朗的情况下，特区政府林郑月娥女士又开启了其所谓的社会、经济和民生等各方面的“复苏大计”。2021年4月12日，港政府宣布即将有条件的放宽防疫措施，包括大陆居民入境香港毋须进行强制检疫等安排。
 
-但是托马斯认为，“[更为明显的担忧](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)”不是川普对几个批评者所做的事情，而是科技巨头们拥有审查或者完全禁止用户、甚至一个总统的权力。
+香港一直是一个文明程度相当之高的国际城巿，每当有公共卫生危机发生之时，整体的社会自我保护意识是可以称得上理想的。在疫情爆发初期及随后的疫情发展期间，香港市民整体上是尽力遵从当地卫生或传染病专家的建议的，其佩戴口罩的广泛程度之高，相信不会输给世界上任何一个国家或城巿，这亦和香港曾经遭受过致命的公共卫生危机事件有关。
 
-对脸书和谷歌有权“[随时随地以任何理由或无理由](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)” 注销帐户的行为，托马斯表示震惊。他写道: “[脸书控制在一个人的手中……谷歌控制在两个人的手中”](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)。他们决定着几十亿人能表达或听到什么观点。
+香港回归中共国后不久，在2003年曾经历了一场突如其来的沙士瘟疫，但凭着香港医护人员及专家们的专业抗疫，并在全社会和巿民的整体配合下，把疫情控制于本地，有效遏制了疫情向外地蔓延传播的风险。当年的疫情虽然最终得以控制，但香港的很多专业医护人员也为此付出了的其宝贵的生命。在经历了对抗沙士疫情危机之后，香港对公共卫生的危机处理、投放资源方面均作出了相关的危机管理安排，为社会应对突发的公共卫生危机留下了宝贵的经验，这亦是一个文明法治的社会应有的反应及表现。犹记得美国华尔街日报在2020年初，也曾为此撰文，提到香港能够维持低感染率便是归功于拥有处理公共卫生危机的经验，以及拥有传染病和医护等领域的专业人才。
 
-托马斯说，当未来再有争议到达最高法院的时候，这种权力必须得到控制。大科技公司的支持者认为，因为他们是私人公司，他们可以自由审查。第一修正案的目的只禁止政府压制观点。但是托马斯说，最高法院[早就了解这些科技公司](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)了。这些公司[比私人公司更像普通承运人或公用事业公司](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)，所以他们必须对所有的公众开放。
+[!\[\]()!\[\](https://spark.adobe.com/page/jy6UPCK0HgRpI/images/6d6b0e4f-dcda-4c82-8550-a2c72f101bf7.jpg?asset_id=b36dabda-ba8d-4597-96f6-5860e992cd7f&amp;img_etag=%22391f1e0344621a35642802d606143e9b%22&amp;size=1024)](https://spark.adobe.com/page/jy6UPCK0HgRpI/images/6d6b0e4f-dcda-4c82-8550-a2c72f101bf7.jpg?asset_id=b36dabda-ba8d-4597-96f6-5860e992cd7f&amp;img_etag=%22391f1e0344621a35642802d606143e9b%22&amp;size=1024)
 
-托马斯还将他们与如宾馆和棒球场所之类的[公共设](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)施进行比较，法律要求这些公共设施服务于每一个人，不得歧视。
+不过，当香港的法治沦为人治之时，纵然有多么健全的公共卫生危机处理机制，抑或拥有众多富有经验的医护专业人员及专家，一切都会变得失灵。回顾2020年至今，从新冠肺炎病毒进入香港之前以及后来的数波疫情发生，现届特区政府至今应对疫情的傲慢态度，以及选择性制定防疫政策的处理手法，终究会为香港应对公共卫生危机的历史写下失败的一页。
 
-托马斯认为，随着新型公司的出现，大科技专制暴政的问题并没有通过竞争得到解决。他指出“[巨大的进入壁垒](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)”，帕勒（Parler）的命运证明了这一点。当帕勒提供了一个没有审查的平台时，[大型科技公司联合起来打垮了它](https://nypost.com/2021/01/10/big-techs-assault-on-parler-proves-its-gone-full-cartel/)。
+2020年1月份，正值湖北省疫情爆发，香港特区政府只是向来自湖北省的入境者要求填写健康申报表，以此作为防疫措施。对于特区政府应对疫情危机的漫不经心，以及不聆听社会、医护人员及专家们的意见，最终迫使香港当地医护人员于2020年2月3至7日进行罢工行动，向政府和医院管理局要求争取全面封关。此次罢工旨在将新冠病毒疫情对香港的危害控制至最低，并向前线医护人员提供足够的保护装备，罢工行动最终却在政府拒绝其要求的情况下黯然收场。政府以确保大陆重要生活物资供应香港，以及中港两地需要开展必要活动为由而拒绝封关，并将其荒诞的防疫政策美其名曰“张驰有道”。
 
-有人称赞托马斯此举是“[邀请国会宣布推特、脸书和类似公司为公共运营商](https://www.politico.com/news/2021/04/05/justice-clarence-thomas-trump-twitter-ban-479046)。”
+[!\[\]()!\[\](https://spark.adobe.com/page/jy6UPCK0HgRpI/images/459675da-264a-4395-8361-5442aa511e7b.jpg?asset_id=2fddc905-f409-4c68-b81b-3d4bafa33b37&amp;img_etag=%22ced669b78d6d3b6c25cd111f1c9a5fc7%22&amp;size=1024)](https://spark.adobe.com/page/jy6UPCK0HgRpI/images/459675da-264a-4395-8361-5442aa511e7b.jpg?asset_id=2fddc905-f409-4c68-b81b-3d4bafa33b37&amp;img_etag=%22ced669b78d6d3b6c25cd111f1c9a5fc7%22&amp;size=1024)
 
-但是事实是，民主党人对自由的思想交流毫无兴趣。
+疫情早期采取匪夷所思的“不封关”
 
-他们宁愿脸书的首席执行官扎克伯格（ Zuckerberg）代表他们审查其竞争者。
+同时，在疫情发展期间，特区政府持续向指定人士发出医学监察通知书（指相关人士毋须进行14天隔离检疫，只须戴口罩和每天测量体温两次，如有不适，应向卫生署呈报。）当保安局及卫生署分别受到立法会议员及媒体的问询之后，方才透露向入境人士发出医学监察通知书的相关数据。保安局于2020年2月至5月在香港各出入境管制站，发出超过20万张医学监察通知书，而卫生署则于6月至7月发出大约9万张医学监察通知书。根据数据显示，当时有33类人士获得豁免检疫，包括跨境货车司机、机组人员、船员、政府人员等，这就是香港疫情来源所在，也是疫情长期未能杜绝的主因。
 
-而且他们不指望总统乔•拜登（Joe Biden）。[他](https://dailycaller.com/2021/01/10/biden-big-tech-apple-facebook-trump-parler/)的[过渡时期和挑选的新政府人选中](https://dailycaller.com/2021/01/10/biden-big-tech-apple-facebook-trump-parler/)有[14名来自](https://dailycaller.com/2021/01/10/biden-big-tech-apple-facebook-trump-parler/)苹果、脸书、推特、谷歌和亚马逊。据《每日来电者》（Daily Caller）的统计。
+随着豁免强制检疫政策事件的曝光以及受到全社会的关注，社会各界开始要求港政府收紧及取消豁免强制检疫政策，尤其是那些来自世界各地的机组人员和海运船员。然而，政府政务司的回应是以人道主义为由，容许相关人员上岸，进入香港后也无须被强制隔离，只须进行医学监察。根据运输及房屋局的数据，2020年2月至7月期间，大约有一万人次船员上岸。香港在特区政府漏洞百出的抗疫措施管治下，疫情在短期内以几何级的传播速度攀升。特区政府的抗疫手法也饱受各方的批评，最终在疫情无法有效控制的情况下作出让步，政府开始收紧相关豁免强制检疫政策。
 
-或许拜登能当上总统在某种程度上应该归功于科技巨头们。当《纽约邮报》（ New York Post ）发表了一篇报道，记录了中共国公司与拜登家族交易时，包括总统候选人乔•拜登），[硅谷将其标记为虚假信息](https://nypost.com/2020/12/16/covering-for-hunter-biden-why-americans-distrust-the-media/)。 [脸书撤销了该信息](https://nypost.com/2020/10/14/facebook-limits-spread-of-the-posts-hunter-biden-expose/)，而[推特则完全锁定了邮报的帐户](https://nypost.com/2020/10/16/twitter-still-holding-the-posts-account-hostage-over-hunter-biden-links/)。大选前几周，投票人被剥夺了可能影响他们选择的信息。
+[!\[\]()!\[\](https://spark.adobe.com/page/jy6UPCK0HgRpI/images/bf29afbc-6b49-4fe6-9867-1ee8ebca8095.jpg?asset_id=18987605-b979-4020-979b-f1c99b286b4b&amp;img_etag=%22871d1dda163ad4aee12161c681b19567%22&amp;size=1024)](https://spark.adobe.com/page/jy6UPCK0HgRpI/images/bf29afbc-6b49-4fe6-9867-1ee8ebca8095.jpg?asset_id=18987605-b979-4020-979b-f1c99b286b4b&amp;img_etag=%22871d1dda163ad4aee12161c681b19567%22&amp;size=1024)
 
-现在，在民主党执政的情况下，议员们不可能将科技公司归为公共运营商。但是托马斯说，[法院无论如何都可以运用这种推理](https://www.supremecourt.gov/orders/courtorders/040521zor_3204.pdf)，而不必等待国会的同意。
+同年8月，政府的“张弛有道”抗疫政策以失败告终后，港府及建制派开始互相配合推广全民检测。正当全民检测备受社会各方质疑其成效之时，林郑月娥女士又绕过本地传染病方面的专家，自行向中共请求派人员前往香港，协助进行全民检测，而负责全民检测的中资机构也是政府钦定的，此举被批评为矮化香港本地医疗人员及其专业服务水平。自疫情爆发以来，特区政府对当地的抗疫资源投入也有所欠缺，比如一直未按照专家所建议的，提高香港本地检测机构的日检测量，反而是劳民伤财另行请求中共协助。
 
-在那之前，公众只会听到硅谷想要他们听到的。就在上周，拉拉·特朗普（Lara Trump）在脸书上发布了对前总统的采访。[脸书](https://nypost.com/2021/03/31/facebook-scrubs-donald-trump-interview-with-daughter-in-law-lara/)立即[将其删除](https://nypost.com/2021/03/31/facebook-scrubs-donald-trump-interview-with-daughter-in-law-lara/)，并解释说“[再有唐纳德·川普的声音发布](https://nypost.com/2021/03/31/facebook-scrubs-donald-trump-interview-with-daughter-in-law-lara/)的[内容将被删除](https://nypost.com/2021/03/31/facebook-scrubs-donald-trump-interview-with-daughter-in-law-lara/)。”
+[!\[\]()!\[\](https://spark.adobe.com/page/jy6UPCK0HgRpI/images/4ba5ab3b-b0c5-4061-8760-746868b61479.jpg?asset_id=0a4bb16f-081b-4d23-aa25-fedd2fb54ba4&amp;img_etag=%22cc46408bc93a6ed94dec0841eef98754%22&amp;size=1024)](https://spark.adobe.com/page/jy6UPCK0HgRpI/images/4ba5ab3b-b0c5-4061-8760-746868b61479.jpg?asset_id=0a4bb16f-081b-4d23-aa25-fedd2fb54ba4&amp;img_etag=%22cc46408bc93a6ed94dec0841eef98754%22&amp;size=1024)
 
-只有最高法院才会恢复未经审查的政治言论，这是美国的理想。托马斯的意见为我们指明了方向。
+截至今天2021年4月13日，香港的确诊人数超过11,600例，死亡案例超过200宗。特区政府对抗疫情政策之漏洞，和造成的负面影响实在罄竹难书，致命的教训仍历历在目。如今林郑月娥女士又宣布疫情已经受控，以需要平衡社会正常生活为由，即将作出放宽防疫措施之举。回望过去一年多，每当疫情即将得到阶段性控制之时，也就是特区政府开始大举放宽防疫措施之日，总为下一阶段的疫情爆发埋下伏线。在可预见的未来，香港也注定无法如台湾般成为抗疫的模范，即使她具备所有抗疫必备的条件。香港社会现况只能逆来顺受，抗疫本应以科学为本，但是曾经法治的香港，如今已经沦为赤裸裸的人治，抗疫政策已经成为政府或既得利益者获取经济或政治利益的工具，个人肆意执政代替集体智慧，弃整体社会福祉于不顾，最终受苦的只有普通百姓。香港当年推行的高官问责制如今形同虚设，即使其政策造成人命伤亡也毋须被问责下台，甚至连一声道歉也省却了。
 
-原文作者：贝茜·麦考伊（Betsy McCaughey）博士是纽约州前副州长
-发表时间：2021年4月7日
-原文链接： https://www.newsmax.com/mccaughey/justice-thomas-supreme-court-silicon-valley-big-tech-tyranny/2021/04/07/id/1016707/
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/jy6UPCK0HgRpI/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/jy6UPCK0HgRpI/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
