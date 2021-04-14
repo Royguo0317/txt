@@ -1,17 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月13日 文贵先生盖特 3
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1094122/)
+## 研究发现辉瑞疫苗接种者更易感染南非变种病毒
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1094205/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+俄罗斯莫斯科喀秋莎农场 DongDong
 
-班农战斗室：羟氯喹有效预防了中共病毒患者发展为重症的可能，同时疫苗的严重不良反应亟待研究 Bannon’s War Room: Hydroxychloroquine prevents CCP virus patients from developing severe prognosis, while the dire adverse effect of current vaccines remains to be investigated.
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/cc.jpg)exoportail.com
+《国家脉动》4月13日报道，以色列特拉维夫大学（Tel Aviv University）的一项新研究发现，接种了辉瑞（Pfizer）疫苗的人，患中共病毒南非变种的可能性是未接种疫苗的 8 倍。
 
+由于 B.1.351 这个变体最初于 2020 年 12 月在南非检测到，于 2021 年 1 月首次在美国被确认，因此 B.1.351 也称为南非变种。
 
+“这是世界上第一项基于真实世界数据的研究，表明与原始病毒和英国变种相比，疫苗对南非变种的效果较差。” 以色列顶级医疗服务机构克拉里特卫生服务（Clalit Health Services）的研究主任兰·巴利塞尔（Ran Balicer）教授说，他也参与了这项研究。
 
-[【2021年4月14日】文贵先生盖特原文](https://gtv.org/getter/6076f68f51632a0de7b8f5b7)
+同行评议的研究对两组样本进行对比研究，每组样本都是 400 名人员。A组是要求 “至少接种一针辉瑞疫苗 ”，同时接触了南非的变种病毒。B组要求是未接种疫苗，但同样也接触了南非的变种病毒。
 
-**喜联盟Gnews编辑部**
+研究结果显示，“接种疫苗 A 组与未接种疫苗 B 组比对，发现 B.1.351 变种的病毒的比例 A 组是 B 组的 8 倍，或者说是 A 组 5.4%对 B 组的 0.7%。” 辉瑞生物科技公司的疫苗本应该具有很强的保护性，但研究结果显然表明该公司疫苗对南非病毒株的抵抗性不强。
+
+特拉维夫大学的阿迪-斯特恩（Adi Stern）承认，这项研究结果喜忧参半。
+
+“我们发现，完成两剂疫苗接种的群体中发现感染南非变种病毒的比例远高于未接种疫苗的群体。” 斯特恩说。
+
+“这意味着某种程度上，南非变种病毒能突破疫苗的防御机制。”
+
+他补充说，“基于普通人的标准，我们本以为只会发现一例南非变种病毒，但结果是看到了8例。 显然，这个结果并没有让我感到高兴。”
+
+不过，目前，中共病毒的南非变种病毒占以色列中共病毒病例的比例还不到 1%。阿迪·斯特恩说，根据研究结果，应该 “密切持续关注并努力遏制” B.1.351 变种在以色列的蔓延。
+
+以色列最近实行了一项极具争议性的 “疫苗护照 ”制度，该制度给予接种过疫苗的人以未接种疫苗的人所没有的特权，“疫苗护照 ”制度饱受公民自由团体的广泛批评。
+
+如果上述研究成果得到科学界进一步广泛认同，那么岂不是意味着“疫苗护照”的公民与未接种疫苗公民相比，更容易感染南非变种病毒？“疫苗护照”存在的意义则荡然无存。
+
+参考链接：
+
+[1] [COVID Variants Affect Vaccinated More Than Unvaccinated, Study Claims – 国家脉动 – 2021/04/13](https://thenationalpulse.com/breaking/covid-variants-affect-vaccinated-more-than-unvaccinated-study-claims/)
 
 0

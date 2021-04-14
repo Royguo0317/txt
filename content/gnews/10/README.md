@@ -1,16 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月14日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1094107/)
+## 2021年4月14日 文贵先生盖特 4
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1094142/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-4月14号：只有爆料革命．只有新中国联邦……唤醒了这个世界，拯救了这个世界！勇敢的承担的责任，所有的75亿人口当中，有几个人有几个组织！敢像我们一样．承担这样的责任……冒这样的风险，不信爆料革命和新中国联盟的代价一次又一次的后果是什么？我们不喜欢坏人，相信我们！我们希望好人和有信仰的人．能听到我们的声音！看看这个世界有多么的荒唐和荒缪吧，都是因为共产党！
+班农战斗室：功能增强设计是为了让科学家可以确切了解病毒的致病机理，对病毒爆发进行早期预警和准备，但它非常适合用于生化战 Bannon’s War Room: Gain of functions were designed so scientists could understand exactly how the viruses cause disease and have early warning and get ready for an outbreak. But it’s perfect for biological warfare.
 
 
 
-[【2021年4月14日】文贵先生盖特原文](https://gtv.org/getter/6076f18451632a0de7b8ef96)
+[【2021年4月14日】文贵先生盖特原文](https://gtv.org/getter/6076fc1351632a0de7b8fd2e)
 
 **喜联盟Gnews编辑部**
 

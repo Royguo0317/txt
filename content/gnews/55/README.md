@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登在电视上流泪是政治做戏吗？
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1093134/)
+## 郭文贵：武汉到底死了多少人？
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1093262/)
 
-4/5/2021 亨特·拜登不知道笔记本电脑是不是他的，在电视上流泪是政治做戏吗？
+4/5/2021 郭文贵：武汉到底死了多少人？
 
 By： 【秘密翻译组 G-Translators】
 

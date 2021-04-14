@@ -1,31 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】童年的味道（四）
-` MOSRec` [轉載自GNews](https://gnews.org/zh-hans/1093703/)
+## 美国DNI报告称中共国为&#8221;旗鼓相当&#8221;的竞争对手
+` Víctor Torres` [轉載自GNews](https://gnews.org/zh-hans/1093894/)
 
-配音：香草山写作组 公平
+编译:Víctor Torres
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/000_8Z3982-e1611076000387.jpg)网络图片
 
+据《news break》4月13日报道，美国周二公布的一份年度情报评估报告显示，在中共病毒大流行病造成的干扰下，美国面临着 “多样化的威胁”，尤其是来自中共国等国的威胁。
 
+国家情报总监办公室表示，在气候变化和技术快速变化的背景下，这种威胁给美国情报界带来了新的挑战。报告说，中共国作为一个 “旗鼓相当”的竞争对手，将在经济、军事和技术等多个方面对美国构成挑战。
 
-三年自然灾害后期，我依稀记事了。那时的口粮是严格定量的，每人每天只能吃自己的那一份。怎样控制各人的定量呢？记得爷爷有一杆秤，把各人的定量口粮称出来，放在空罐头盒里，大人用大点的盒子，小孩用小点的，然后用一口很大的锅来蒸。那时的米比现在用作健康食品的糙米还要糙，上面有很多麸皮。每天的蔬菜是“飞机包菜”——这名字让我印象深刻。所谓“飞机包菜”，就是因为肥料不足而没有收心，或者说是没法长好的包菜。这种包菜基本上没有菜心，都是老帮叶子，可就是这样的菜都不能保证供应。由于当时食用油也很紧张（凭票供应，每人每月二两），奶奶做菜基本用盐水煮。菜梆子老，加上煮的时间长，出锅的时候其色相可想而知；至于口味，则是难以下咽。
+国家情报总监(DNI)报告称，”主要对手和竞争对手正在加强和锻炼他们的军事、网络和其他能力，提高了美国和盟军的风险，削弱了我们的常规威慑力，并恶化了大规模杀伤性武器的长期威胁，”
 
-文字版原文：[【言于其食】童年的味道（四）](https://gnews.org/zh-hans/1090942/)
+DNI报告指出，即使在各国推动针对新型冠状病毒的疫苗接种时，这种大流行病也是一种挑战。它说，这场大流行带来的 “政治余震 “将持续多年。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+“中共病毒大流行的影响将继续给政府和社会带来压力，加剧人道主义和经济危机、政治动荡和地缘政治竞争，诸如中共国和俄罗斯等国家通过’疫苗外交’等途径寻求优势，”报告说。
 
-发稿：雪梨
+新闻来源:
 
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+[https://www.newsbreak.com/news/2203495457206/intelligence-report-china-iran-north-korea-russia-pose-threats-to-u-s](https://www.newsbreak.com/news/2203495457206/intelligence-report-china-iran-north-korea-russia-pose-threats-to-u-s)
 
 0
