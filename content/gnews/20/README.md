@@ -1,78 +1,93 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国、日本和印度是接下来对抗共产党的最核心力量
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1093613/)
+## 【香港快讯】 4月14日 阉割版选举修例或反激发市民投白票 清洗民主派选委票仓
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1093879/)
 
-**简述：郭文贵先生在2021年4月9日的直播中分析中共在红海、霍尔木兹海峡、苏运士运河、马六甲的一系列动作，最终目的是击垮美元，最直接的受害者是日本和印度。印度跟英国合作，日本和美国合作，最终各国合作灭掉共产党是唯一的选择。**
+搜集/整理：【喜马拉雅-粤语组】阿恩、PO /封面合成：文粤
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image001-24.png)
+**立法会地区直选 10 个选区公布 40 席选委采全票制**
 
-**英国、日本和印度是接下来对抗共产党的最核心力量**
+地区直选 35 变 20 政府修改后的选举制度，立法会议席增加到 90 席，但地区直选由原本的 35 席减到仅余 20 席，选区 5 变 10个。 10 个新划分的地区选区，每个的人口约 66 万到 82 万人，每区选出两名议员，该区选民可以在候选人中选一人，该区得票最多的两人当选。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image002-24.jpg)
+**清洗民主派选委票仓**
 
-**Britain, Japan, and India Will Be the Most Important Forces for Fighting the CCP**
+政府昨日公布新选举办法条例草案，在特首选委会当中，原本属于民主派票仓的专业界别的组成细节终曝光。上届由民主派攻下的多个专业界别，包括法律界、社福界、教育界等，均被强行加插当然议席、提名议席，各界别亲中组织掌舵人、中港官方委任人士毋须经过选举，即可晋身选委。此外，大部分专业界别亦由专业人士「一人一票」变为团体票，大量亲中团体、社团、公营机构更获指明有投票权，相信在新制度下，亲中人士、亲政府人士几近包揽专业界别议席。政制及内地事务局局长曾国卫介绍草案时大赞中共出手「合宪合法、有理有据、出师有名、掷地有声」。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image004-6.jpg)
+**阉割版选举修例或反激发市民投白票**
 
-这就是日本现在正在民间一个最大的民间开始爆发，都在思考谁是我们的威胁——共产党，中国人一定要成为我们的朋友，无论从经济、无论从文化、无论从军事、无论从地域都应该和中国人民友好相处，但是共产党在，日中友好的可能性是没有的。
+政府为阻止鼓吹投白票行动，以表达对北京阉割香港选举制度的不满，不惜建议修例，订明任何人在选举期间，借公开活动「煽惑」他人不投票、投白票或废票，即属干犯非法行为。不少网民昨日（13日）就政府如何介定「煽惑」他人存疑，纷纷提出不同情境（详见表），担心会否随时误堕法网。研究香港选举多年的中大政治与行政学系高级讲师蔡子强认为，政府至今未能清楚交代何谓「煽惑」行为，近年政府很多的主张，最终都会带来相反效果，包括不断呼吁港人使用「安心出行」手机程式，结果很多市民宁愿填纸亦不使用；近期海关动员逾百人搜查「黄店」阿布泰国生活百货后，结果激发大批港人排队支持：政府现在规管投白票，又会产生逆反心态，他认为政府应搁置修例。
 
-Japanese people have started to think about who is their threat, which is the Chinese Communist Party (CCP). They believe that the Chinese people definitely are their friends, considering the economy, the culture, the military, and the location. However, as long as the CCP exists, there will be no possibility of Sino-Japanese friendship.
+曾任选管会主席的胡国兴，在2004年的立法会选举前受访，亦曾公开表明如果选民没有属意候选人，可投下白票，「这并不影响选举制度，反而表现选民对制度的信心」 。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image006-3.png)
+**荒谬绝伦 呼吁投弃权票、不投票囚三年**
 
-包括印度，现在印度，我跟大家说过。记住七哥一再说的话，印度在24小时以前我说过一句话，我说吉布提、红海，记得吧？我发盖特，盖特上我发完以后，吉布提的伊朗的船就给炸了，七哥第一个说的吧？你看上去以色列炸伊朗的船是一个军事船，在吉布提，这是一个所谓的冲突。大家千万别忘了，这里边儿都有着各种战略的一种行动的结果。
+香港选举制度为剥夺港人民主权利，同时利用法律为工具，令表达不满亦要面对刑责。特首林郑月娥昨宣布修改本港选举制度后的选举安排，相关条例草案今日即提交立法会首读，更首次引入煽惑他人不投票、投白票或废票等定为刑事罪行，在寓所窗口张贴呼吁不投票或投白票标语，又或在衣服展示或佩戴徽章亦属违法，最高可判囚三年。有法律学者言，从未闻外国有限制煽动他人投白票案例；有记者追问曾国卫背后法理基础、有否外国例子及会否损害言论自由，曾国卫一直「兜圈」回避回应。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image007-18.jpg)
+**收紧查选民名册 恐助长种票歪风**
 
-Now let me talk about India. I have told you before. Remember that I, Brother Miles have said this over and over again. About 24 hours ago, I talked about Djibouti and the Red Sea. Remember that? After I posted the Getter, the Iranian ship in Djibouti was blown up. Brother Miles was the first one who said this, right? It seemed that the ship bombed by Israel in Djibouti is an Iranian military ship and this was a so-called military conflict. But don’t forget, this is a result of various strategic actions.
+港府配合中共阉割香港选举制度，港人连监察选举的权利亦逐步被剥夺。行政会议今日通过《2021年完善选举制度（综合修订）条例草案》，档建议限制选民登记册只限认可传媒、政党及候选人查阅，而且名册只会显示选民姓名的第一个字。香港记者协会批评政府借保护私隐之名，钳制传媒监察工作。有区议员指出，举报怀疑种票个案须提供疑似种票人的全名及住址，担心措施一但实施，反令种票情况恶化，助长种票歪风。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image009-4.png)
+**尹兆坚,黄碧云被控藐视罪今提堂 押后待终院就立会特权法作最终裁决**
 
-为什么我说吉布提？吉布提现在四股力量在那儿，美国人多年来二战以后一直有军事基地，俄罗斯的军事基地、中共的军事基地、日本的军事补给基地全在那儿。伊朗人想参与，当然了它太近了，红海，是不是啊？霍尔木兹海峡、苏运士运河，咱简称吧就霍尔木兹海峡—马六甲供给线，几乎是亚洲的生命线。
+民主党两名前立法会议员尹兆坚和黄碧云被指干扰去年10月立法会两个事务委员选举正副主席的程序，日前被落案控告违反《立法会（权力及特权）条例》的藐视罪，今日下午在东区裁判法院提堂。案件押后半年再提堂，等待终审法院今年8月审理梁国雄抢文件案和颁布判决。该案会探讨特权法议题，包括藐视罪可否控告议员。两人获准在本案保释，惟尹兆坚因初选案而须继续还柙。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image010-3.jpg)
+**林朗彦瘦12公斤出狱 叹物是人非**
 
-Why did I mention Djibouti? There are four different driving forces in Djibouti now. The Americans have had military bases there for many years since World War II. The Russian military bases, the CCP’s military bases, and the Japanese military supply bases are all there. The Iranians also want to be a player because, for the obvious reason, it is too close. The area of the Red Sea, the Strait of Hormuz, and the Suez Canal – let’s just call it the Hormuz-Malacca Supply Line – is the lifeline of Asia.
+前香港众志黄之锋、周庭和林朗彦涉在前年6月包围员警总部，分别被重判13.5月、10个月及7个月，刑期最短的林本月12日刑满出狱。林今日在facebook撰文，形容今次入狱如同坐上了《那夜凌晨》里的红van，一出狱霎时间认识的人就都不见了。当政权用监禁磨蚀抗争者的意志，他决定将坐牢当成「文康体艺培训camp」，阅书读报、画铅笔素描、跑步打篮球，当「坚持过去了，付出过的已经不知不觉地叠加起来了」。
 
-共产党一带一路，要把人民币国际化，马六甲的供给线拿下，这就是它所有的一切嘛，就是新殖民主义嘛，是不是啊？就是大陆的文明要挑战海洋文明，从亚洲开始亚洲说了算，然后掐住全世界的能源供给线、掐住亚洲的供给线，它就说了算。然后制造亚币，制造亚洲的所有的现代化数字金融，控制全世界，干掉美元，就这一切嘛！
+他直言，难以写出任何「出狱感言」，比起牢外很多人处于高压的恐惧，刚出狱自己反而有种格格不入的积极，但他始终觉得，在新的时代形势下，透过写作捉紧某个需要扶持的人，总好过翘起双臂，终于下了笔。
 
-The CCP’s Belt and Road Initiative, the globalization of the RMB, and the seize of Malacca’s supply line, are everything that it [the CCP] wants. It’s essentially the neo-colonialism, right? It’s essentially the continental civilization challenging the maritime civilization. It [the CCP] will start this with dominating Asia first, and then it will snatch the energy supply lines of the world and the supply lines of Asia, so it can have the final say there. And then it will make Asian currencies, make all modern digital finances in Asia, control the world, and eventually get rid of the U.S. dollar. And that’s the whole plan!
+他呼吁，墙外的人要「用好每一日，珍惜会流动的时间」，因为狱中手足「已经挤进那凝结了的果冻状时间，去面对他们自己的课题」。
 
-吉布提这个地方是整个叫中东非最最关键的地方，第二个霍尔木兹海峡，也是马六甲海岸线最关键的能源补给基地。在这个地方的利益是什么，以色列很关键，以色列在那儿有重大的利益。伊朗想抢，伊朗后边儿是有共产党支持着呢。然后一拐过来叙利亚、戈兰高地，是吧？沙特、科威特是吧？就这些地方它必占！
+**人物介绍：**
 
-Djibouti is the most critical place in the entire Middle East and Africa. The second one is the Strait of Hormuz, which is also the most critical energy supply base on the Malacca coastline. Whose interests are in this place? Israel is a key player, and it has significant interests there. Iran wants to seize it, and it has the CCP behind its back. And then Syria, the Golan Heights, Saudi Arabia, and Kuwait, right? It must occupy all these places!
+**林朗彦（英语：Ivan Lam，1994年7月18日生），公开大学社会科学学士（政治及公共行政）， 学民思潮创办人之一，前香港众志主席，因2019年6月包围员警总部被重判7入狱个月，2021年4月12日刑满出狱。**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image012-7.jpg)
+**女咖啡师暴动纵火罪成囚四年半**
 
-所以共产党在这个地方它搞完苏运士运河、搞完马六甲、搞完这个大船，它接下来还会再搞，那再搞的时候就会把以色列和伊朗、沙特，把这所有的…特别是大家现在要看到的、伊朗的现在被美国解除制裁以后，这一切整个穆斯林世界会爆发起来。在这个里边儿就有一个以色列，以色列再跟中共之间不清不楚，这就热闹了。
+示威者前年9月在旺角警署外纵火堵路，事后一名年轻女咖啡师萧乐婷（27岁）在现场附近一辆私家车上遇警截查，警方其后在她的背囊内搜出雷射笔。案件经审讯后，女咖啡师被裁定两项纵火罪及一项暴动罪成，法官姚勋智今判她入狱四年半。散庭后，女被告男友大叫「好快过，我等你出来就结婚！」被告含泪点头回应；其父亦哭着大叫「政府无良呀！残害青年呀！」，并与女儿男友抱头痛哭。其他旁听人士亦忍不住落泪，纷纷上前安慰二人，囚室内亦传来被告的哭声，庭内一片愁云惨雾。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image014-4.jpg)
+**「大三罢」地盘工为救人阻差办公罪成判感化 律政司要求改判监不果**
 
-So in this region, after the CCP screwed the Suez Canal, Malacca, and this big ship, it will do it again. When it does it again, it will stir up Israel, Iran, and Saudi Arabia, and everyone. You should especially see that after the sanctions on Iran are lifted by the U.S., the entire Muslim world will be stirred up. There is also Israel in this region, whose relationship with the CCP has been vague. So it will be really fun.
+前年11.11「大三罢」，西湾河有警长枪伤示威者，其间梁咏康（37岁）被指故意阻挠警方追截示威者，被控蓄意阻挠在正当执行职务的警务人员。梁咏康早前认罪，主任裁判官钱礼基于被告认罪为「最大的求情理由」，判他接受12个月感化。律政司不满判刑过轻，今提出覆核，要求改判监禁式刑罚。主任裁判官钱礼称被告并未对警员造成伤害，控方引用的袭警案例并不适用，最终拒绝律政司申请，维持原判。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image016-4.png)
+**卫生防护中心前顾问医生 涉私下收逾400万服务费 遭廉署起诉**
 
-共产党最想的事情在此地造成麻烦，在此地造成能源争夺，能源争夺那就是局域性战争，局域性战争共产党就在中间有说数：这面儿跟着伊朗有一系列的千亿万亿的投资计划、能源天然气；这边儿跟沙特、跟阿联酋最大的、长期的、全天的24小时的特殊伙伴关系；然后在吉布提、中东非、安哥拉，安哥拉占了中国20%的能源供给，然后把这些全部控制；然后日本、印度就完球蛋了。
+廉政公署昨日（12日）落案起诉一名卫生防护中心前顾问医生，控告涉嫌公职人员行为失当及欺诈，在中心为三个国际及海外卫生组织提供总值逾420万港元的结核药物测试及其他服务时，滥用公职以谋取私利。被控共7项罪名，包括4项公职人员行为失当，违反普通法；2项欺诈，违反《盗窃罪条例》第16A(1)条；及一项使用虚假文书，违反《刑事罪行条例》第73条。
 
-What the CCP wants the most is to create troubles in this region and to make everyone compete for energy in this region. Competing for energy will lead to a regional war, so the CCP can find leverages in the midst of all this. It can have a series of trillions of dollars of investment in Iran and purchase its oil and gas, and at the same time it can have the largest, long-term, 24-hour special partnership with Saudi Arabia and the UAE; and then it can control Djibouti, the Central and East Africa, Angola, which accounts for 20% of China’s energy supply, and after it controls all these, Japan and India will be finished.
+案情指，甘启文未经卫生署批准，分别与日本国立感染症研究所、世界卫生组织和创新诊断基金会代表签订合作协议，再促使卫生署职员举办工作坊、会议等活动, 收取资助和服务费。再意图诈骗而诱使世卫代表签订另外三份培训和药物敏感测试协议，让约8万美元（转账至香港微生物学医生协会银行户口。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image017-4.jpg)
+**东华三院紧跟中共步伐推进国安教育**
 
-它针对的是亚洲的日本和印度。日本和印度接下来会怎么办？日本和印度只要活下去，没有任何选择，必须和中共干！大家，要干的时候，千万别忘了，印度要想干的时候它一定联合英国，很多个人的话我就不说了，这有些秘密，只有咱局部战友知道，涉及到个人的问题。为什么这样？因为印度和英国之间的文化、法律、金融的联系，一定联英抗中；日本一定是联美抗中。
+开办18间中学和14间小学的东华三院，去年底推出《国安教育参考资源套》，内容紧跟官方口径。资源套指过去香港发生的事件「不法分子企图分裂国家、颠覆政权、进行恐怖活动」。有教育学者质疑前者说法并无任何证据，后者更鼓动师生仇恨外国，批评东华三院「跟足政权口吻」表忠。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image018-1.jpg)
+**四成中小学参与国安网上问答比赛敷衍交差**
 
-It targets Japan and India in Asia. Then what will Japan and India do next? As long as Japan and India want to survive, they have no choice but to fight against the CCP! Everyone, please don’t forget, when India is ready to fight, it must unite with Britain. (There are many things that I can’t say here. There are some secrets that I can only share within a small circle of our fellow fighters because of some privacy issues.) Why is that? Because of the cultural, legal, and financial ties between India and Britain, it [India] must be united with Britain to fight against China, and Japan must be united with the U.S. to fight against China.
+「全民国家安全教育日」明天（15日）举行，教育局透露，现时全港约有1,000间开办本地课程的中小学，分别有90间和400间中小学参加官方壁报设计比赛和网上问答比赛，提交了共200份作品，各占全港中小学的约一成和四成。有为学校报名参赛的校长坦言，官方的国安教育予人政治先行和强推之感，学校本身已因疫情而课时大减，理应以学习知识和学生的升学前途为先，为了「奉承」上位者而浪费宝贵教学时间，他也感无奈，惟会「做戏」让学生用10分钟完成比赛，以求「交差」。校长直言，官员或因工作岗位或政治责任而把国安教育放首位，但对教育界和学生而言却未必如此，认为只要不违法就可。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image020-4.png)
+**郭荣铿申请退出公民党 感谢各方关心慰问**
 
-在这种情况下大家要记住，英国、日本和印度是接下来抗共产党的最核心的，大家会看到一系列的奇怪的事情都会发生。较量在马六甲，最终打的是美元。美元在这个时候就热闹了。
+公民党成员、立法会法律界前议员郭荣铿13日在facebook发帖称，已正式向公民党提出退党申请，并感谢各方友好的关心和慰问。郭荣铿表示衷心感谢公民党，尤其是余若薇、梁家杰及吴霭仪一直以来的栽培、支持与包容，让他有机会服务香港市民，捍卫香港的核心价值。
 
-In this case, everyone should remember that Britain, Japan, and India will be the most important forces for fighting the CCP. You will see that a series of bizarre things will happen. The competitions are in Malacca, but the target is the U.S. dollar. The fate of the U.S. dollar will be interesting by that time.
+加拿大传媒The Globe and Mail早前报道，郭荣铿与家人已移民到其出生地加拿大展开新生活，并计划重新取得加拿大公民身分。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image021-3.png)
+**「安心出行」首年开支 520 万元　下载约 370 万次**
 
-现在大家看到比特币，比特币就两个选择，一个是彻底被国家化，就是过去的最牛的就是秘密去中心化，找不着老板，所以大家是绝对洗钱、绝对的避税的一个最佳的货币。大家要看到所有的比特币它最大的使用的地方叫深网、非法的交易。大家记住那个犯罪组织 “丝绸之路” 当时在深网被查的时候，在深网比特币一下子就跌下去了，百分之几十的交易没了。现在的比特币就是中共控制的，中共控制的比特币就是要打击美元，就是在深网运作的，就是要洗黑钱。暗钱有比特币，明的数字货币有共产党的中央银行搞的虚拟货币叫人民币数字化的人民币。
+港府创新及科技局公布资料显示，2020-21 年度，「安心出行」开发及改善开支约300 万元，加上约120 万元推广及约100 万元系统运作，首年开支约520 万元。 2021-22 年度，政府拨予开发与广东省和澳门的「健康码」数据转换系统、广东省和澳门跨境往来及「回港易」计划预约系统的预算，高达 2,750 万元。截至 2021 年 4 月 7 日，「安心出行」的下载数字为超过 373 万；有约 240 名确诊者或初步确诊者通过程式向卫生防护中心提供出行纪录。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image023-4.png)
+**誓不封关, 来港获豁免检疫人士一年近61万 半年增近一倍**
 
-Now, everyone has realized that there are only two options left for Bitcoin. One is to be completely nationalized. The best thing about it in the past is its secrecy and decentralization. Since no one can find the boss, it’s absolutely the best currency for money laundering and tax avoidance. Everyone should see that Bitcoins are most frequently used in a place called the deep web for making illegal transactions. Everyone should remember that when the criminal organization called Silk Road was investigated on the deep web, Bitcoin’s price fell suddenly, and tens of percent of transactions were gone. Bitcoin is currently controlled by the CCP. The CCP controls the Bitcoin in order to attack the U.S. dollar, it’s meant to be operated on the deep web, and it’s meant to launder money. So, under the ground there is Bitcoin, and above the ground there is the CCP’s virtual currency of the CCP’s central bank, called the digitalized RMB.
+行政长官林郑月于去年中共病毒爆发之初，眼见病毒由内地输入本港，仍然坚拒封关；第三副疫情继续带入社区, 林郑仍然坚决认为制度没问题。食物及卫生局提交立法会的文件显示，去年2月至今年2月，向获豁免人士发出近60.8万张代表免检疫的医学监察通知书，较去年7月《香港电台》率先披露的29万多张，半年内增近1倍。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image024-1.jpg)
+**重光团队伦敦登大型文宣实体广告**
 
-在这种情况下，美国现在想想，石油美元、石油被共产党干掉了、被共产党控制了，你还有美元吗？所有虚拟货币、比特币被共产党控制了，还有人民币数字化，你还有数字化美元吗？你没啦！然后你美元、你美国人现在你要跨过阿拉斯加给中共做油、做汽，你跟俄罗斯较量、你跟中东较量，你有机会吗？能源供给，你想磕头的机会都没有。因为它想要你的命，你磕头是没有用的。那这种情况下，美国能跟谁合作？美国只能跟日本、英国、印度去合作。合作前提是什么？他不能把14亿中国人给灭了哇，他只能灭掉共产党，这是没有选择的唯一选择。
+「重光团队」（Stand With Hong Kong）联同5个在英协助港人的机构，在英国伦敦公路刊登大型实体广告，内容提到「HONG KONG IS NOT A PLACE, HONG KONG IS ITS PEOPLE」（香港不止是一个地方，香港就是当地民众）、「WE DARE TO BE FREE」（我们敢于自由）、「LET’s FIND STRENGTH IN EACH OTHER」（让每个人都能找到自己的力量）等。团队又表示，希望借广告向全世界告知「香港人没有放弃过！」并指会持续进行政治倡议工作，连结更多英国当地民众和香港人，令英国人可以认识并联系不同协助港人的组织，及宣扬香港民族的不屈精神和身份独特之处，并呼吁国际继续惩罚中共。
 
-Under such circumstances, the U.S. should think about the oil-based dollar. If the oil supply is destroyed by the CCP or controlled by the CCP, would there still be dollars? If all virtual currencies and Bitcoin are controlled by the CCP and the RMB is digitized, would still there be digitized dollar? No! When you, Americans, make oil and gas for the CCP across Alaska and compete with Russia and the Middle East, do you have a chance? You won’t have a chance even if you are willing to kowtow to it. If it [the CCP] wants your life, it’s useless for you to kowtow. In that case, who can the U.S. cooperate with? It can only collaborate with Japan, Britain, and India. What is the premise for this collaboration? It can only be taking down the CCP because it’s not possible to take down all 1.4 billion Chinese people. This is the only option when there are no other options.
+资料来源：[立场新闻（1）](https://www.thestandnews.com/politics/%E9%96%B9%E5%89%B2%E9%81%B8%E8%88%89-%E7%AB%8B%E6%B3%95%E6%9C%83%E5%9C%B0%E5%8D%80%E7%9B%B4%E9%81%B8-10-%E5%80%8B%E9%81%B8%E5%8D%80%E5%85%AC%E5%B8%83-40-%E5%B8%AD%E9%81%B8%E5%A7%94%E6%8E%A1%E5%85%A8%E7%A5%A8%E5%88%B6/)、[立场新闻（2）](https://www.thestandnews.com/politics/%E9%96%B9%E5%89%B2%E9%81%B8%E8%88%89-%E6%B8%85%E9%99%A4%E6%B0%91%E4%B8%BB%E6%B4%BE%E9%81%B8%E5%A7%94%E7%A5%A8%E5%80%89-%E5%BC%B7%E5%8A%A0%E7%95%B6%E7%84%B6%E6%8F%90%E5%90%8D%E8%AD%B0%E5%B8%AD-%E5%80%8B%E4%BA%BA%E7%A5%A8%E6%94%B9%E5%9C%98%E9%AB%94%E7%A5%A8-%E5%8B%A2%E5%85%A8%E9%9D%A2%E6%9F%93%E7%B4%85/)、[苹果日报（3）](https://hk.appledaily.com/local/20210414/YHEMCKGAZNAUBH46ZNXNXYBYQM/)、[苹果日报（4）](https://hk.appledaily.com/local/20210414/4NQTCMGL5NB6JPRJH3FUFYSQTA/)、[苹果日报（5）](https://hk.appledaily.com/local/20210414/FAVF7N5UBFBEVIU2NWRH4QXSEU/)、[苹果日报（6）](https://hk.appledaily.com/local/20210414/FAVF7N5UBFBEVIU2NWRH4QXSEU/)、[苹果日报（7）](https://hk.appledaily.com/local/20210414/FAVF7N5UBFBEVIU2NWRH4QXSEU/)、[苹果日报（8）](https://hk.appledaily.com/local/20210414/PEMUB3VQGZDULPGDFIUITUCVOI/)、[苹果日报（9）](https://hk.appledaily.com/local/20210414/YBBMCS5ECVDI3CFLCUQRBUR47Y/)、[苹果日报（10）](https://hk.appledaily.com/local/20210414/YBBMCS5ECVDI3CFLCUQRBUR47Y/)、[苹果日报（11）](https://hk.appledaily.com/local/20210414/YBBMCS5ECVDI3CFLCUQRBUR47Y/)、[苹果日报（12）](https://hk.appledaily.com/local/20210414/NLD5B6ZZWFE5HDZAYXVQKQR534/)、[明报（13）](https://m.mingpao.com/ins/%E6%B8%AF%E8%81%9E/article/20210413/s00001/1618318016654/%E9%83%AD%E6%A6%AE%E9%8F%97%E7%94%B3%E8%AB%8B%E9%80%80%E5%87%BA%E5%85%AC%E6%B0%91%E9%BB%A8-%E6%84%9F%E8%AC%9D%E5%90%84%E6%96%B9%E9%97%9C%E5%BF%83%E6%85%B0%E5%95%8F)、[立场新闻（14）](https://www.thestandnews.com/politics/%E5%AE%89%E5%BF%83%E5%87%BA%E8%A1%8C-%E9%A6%96%E5%B9%B4%E9%96%8B%E6%94%AF-520-%E8%90%AC%E5%85%83-%E4%B8%8B%E8%BC%89%E7%B4%84-370-%E8%90%AC%E6%AC%A1/)、[苹果日报（15）](https://www.thestandnews.com/politics/%E5%AE%89%E5%BF%83%E5%87%BA%E8%A1%8C-%E9%A6%96%E5%B9%B4%E9%96%8B%E6%94%AF-520-%E8%90%AC%E5%85%83-%E4%B8%8B%E8%BC%89%E7%B4%84-370-%E8%90%AC%E6%AC%A1/)、[苹果日报（16）](https://hk.appledaily.com/local/20210414/NEUT2EM3JRA6BCKUEON6LGPCHQ/)
 
-这就是为什么你看到了现在拜登，你看到了拜登他可以给伊朗松绑，他绝对不会给病毒松绑。他可以在能源上给各国让步，他给共产党让步的可能性绝对没有。他给共产党什么都松绑，在美元地位上绝对不会松绑。这是为什么你看到制裁中共的这七家企业，七哥都不想多说了。七哥几年前就说了，它一定的，这一百多家国有大企业和三百六十多家的中概股企业，100%都得拿走。
+封面素材：立场新闻
 
-This is why you see that Biden can let Iran get away, but he will never let the virus go. He is willing to compromise with other countries in terms of energy, but there is absolutely no possibility that he will compromise with the CCP. Even if he is willing to compromise with the CCP on certain things, he will never compromise on the position of the U.S. dollar. This is why you’ve seen the sanctions on seven enterprises of the CCP. I, your Brother Miles don’t want to say this again because I have said it a few years ago. There are more than one hundred large, state-owned enterprises and more than three hundred and sixty China Concept Stocks, and 100% of them will be kicked out of the U.S.
-
-接下来，SWIFT 支付系统一定是被踢出中共的，一定美元支付踢出去。这是没有任何的…世界上的三大国际组织——WTO把它踢出去，IMF货币组织把它踢出去，世界银行要给它要钱要把它踢出去，这是一定的结局。然后你还相信有港币吗？你还相信有国际人民币吗？
-
-Next, the SWIFT will definitely kick the CCP out of its system and stop it from using the U.S. dollars for any transactions. This is without question. Among the three major international organizations in the world, the WTO will kick the CCP out, the IMF will kick it out, and the World Bank will kick it out. This is a definite ending. Then do you believe Hong Kong dollars will still exist? Do you still believe there will be the internationalized RMB?
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=607053ef6e11a756eddd33df](https://gtv.org/video/id=607053ef6e11a756eddd33df) (57:00-1:04:49)
-鸣谢：感谢西林1、清泉石上流、Bruce(文远)、山川异域提供中文文本于 [https://gnews.org/zh-hans/1074383/](https://gnews.org/zh-hans/1074383/)
-
-* * *
-
-*字幕：【V%】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】*
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+审核：卡西欧 / 上传：文粤
 
 0
