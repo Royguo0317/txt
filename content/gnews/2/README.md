@@ -2,11 +2,12 @@
 ---
 
 ## 中共欲把义务教育年限从9年制改成7年制
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1093355/)
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1093537/)
 
 **撰稿: xinyuan**
-
 **审核: MOMOYAN, pv0**
+
+
 
 ![]()![](https://gnews.org/wp-content/uploads/2021/04/97.jpg)**图片: 昆仑竹**
 
@@ -34,7 +35,7 @@
 
 **本文仅代表作者个人观点。**
 
-**参考信息:**
+**参考信息: **
 
 [合肥“学制改革班”来了！小学只要上4年！](https://3g.163.com/dy/article/G7530M5G05148U1A.html?spss=adap_pc)
 
@@ -45,7 +46,5 @@
 * * *
 
 **发布: 法国巴黎七星编辑组**
-
-
 
 0

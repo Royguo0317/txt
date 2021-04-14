@@ -1,225 +1,83 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日信息拾贝0414.2021
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1092067/)
+## 中美脱钩｜美国最新「年度威胁评估」: 中共是头号威胁
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1092753/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+**撰稿: 天灭中共       **
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)
-图片来源：康州盘古农场 霹雳年
+**审核: 莫黎**
 
-## 中共病毒真相—充分肯定了爆料革命
+![]()![](https://gnews.org/wp-content/uploads/2021/04/001234.jpeg)**图源: DNI**
 
-4月14日凌晨劳伦斯-塞林博士爆料作战愈战愈勇，针对在欧洲PMC发表的中共洗地报告《从中国云南省蝙蝠身上分离到的具有复杂重组的新型SARS-CoV-2相关病毒》，塞林博士把火来战友关于天使科学家闫丽梦博士和路德先生的海报发推，称：
 
-“2018年 “新发现 “的PrC31蝙蝠冠状病毒是否是中共科学家用来支撑中共病毒大流行欺诈性的自然来源理论的，是另一个RaTG13一样的假序列？
-敬请关注。
 
-#中共病毒 #超限生物武器 #冠状病毒[https://europepmc.org/article/PPR/PPR299488](https://europepmc.org/article/PPR/PPR299488)”
+美国国家情报总监办公室（Office of the Director of National Intelligence）于当地时间周二（13日）发表《2021 年度威胁评估》报告，报告长达27页，由美国情报总监办公室，结合全美 18 个情报机构的资讯来撰写，报告将“中共迫切寻求全球影响力”列为国家安全的首要威胁，排名高于俄罗斯、伊朗以及北韩。
 
 
 
-> Is the "newly discovered" 2018-isolated PrC31 bat coronavirus another RaTG13-like fake sequence used by CCP scientists to buttress the fraudulent naturally-occurring theory of the [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw)?
-> Stay tuned.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/CKnRE64l4y](https://t.co/CKnRE64l4y) [pic.twitter.com/ClZUrgbWP1](https://t.co/ClZUrgbWP1)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 14, 2021](https://twitter.com/LawrenceSellin/status/1382229297302278144?ref_src=twsrc%5Etfw)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/002345.jpg)**图源: USDA**
 
 
 
+**「报告内容解析」**
 
+**1****、中共是****“****新邪恶轴心国****”****之首**
 
-美国灭共进入信息反制战、舆论引导战。4月13日皮特纳瓦罗博士在华盛顿时报发表文章《蝠奇博士是 “大流行之父 “吗？》，文章称蝠奇博士所在的美国国立卫生研究院将美国纳税人的钱–约700万美元–注入武汉病毒实验室。
+早前（11日）美国建制派共和党参议员玛莎·布莱克本（Marsha Blackburn）在福克斯节目中，重新演绎了2002年小布什总统提出的“邪恶轴心”的概念。
 
-英雄科学家闫博士转推这篇文章时引用纳瓦罗博士的话：
+她认为，中共制造病毒、输出邪恶，对美国充满敌意，对世界其他国家也构成巨大威胁。因此，中共、北韩、伊朗和俄罗斯俨然组成了“新邪恶轴心国”。
 
-“如果一种致命的病毒在亚洲唯一的生物武器实验室几公里范围内出现，根据奥卡姆剃刀（简约法则），最简单的解释通常是正确的。因此，SARS-CoV-2来自武汉实验室。”
+而在这份年度威胁评估报告中，亦有不少篇幅就这个观念有类似而详细的阐述。报告指出，北京、莫斯科、德黑兰和平壤在疫情之下，所展示出的行动力，旨在加深自身利益，并要美国及其盟友付出代价。而中共期望成为世界强国，期望在经济、军事及科技上挑战美国地位，同时迫切寻求改变国际标准的野心，已经成为美国头号安全威胁。
 
-#超限生物武器”
+报告指中共当局寻求在未来十年内，增加将其核武库存至少一倍，并继续扩充其海外军事基地，加强其太空军事部署。目前，中共已拥有反太空武器的能力，相信可对美国飞船的高科技探测仪器进行阻挡。
 
+**2****、中共的****“****科技驱动威权主义****”**
 
+报告续指，由于俄罗斯与中共的“战略合作”关系不断扩张，加上俄罗斯的黑客，有能力入侵全球1.8万个电脑网络，而中共擅长用各种手段，包括投资、情报活动甚至偷窃，来增强科技力量，从而使两国成为美国最大的情报威胁。
 
-> “If a deadly virus pops up within several kilometers of the only bio-weapons lab in Asia, the simplest explanation, according to Occam’s razor, is usually the right one. Ergo, SARS-CoV-2 came from the Wuhan Lab.”
-> – Dr. Peter Navarro[#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/DUhplmLfnE](https://t.co/DUhplmLfnE)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 13, 2021](https://twitter.com/DrLiMengYAN1/status/1382060042933956611?ref_src=twsrc%5Etfw)
+报告提到: 现时，中共的网络技术最低限度已能够对美国关键基础设施构成局部临时干扰，而其网络监控、黑客入侵方面的能力，也已不止于镇压境内异见，开始干涉其他国家。
 
+中共通过网络水军，干预美国网站，阻挠不利于其控制意识形态的内容传播，冀对受众进行洗脑式的误导，塑造公众舆论，向反对声音施压，削弱对中共当局的批评，以此在全世界扩张其“科技驱动威权主义 (Technology-drive authoritarianism) ”。
 
+**3****、中共实现野心的手段之一：迫使台湾统一**
 
-MSN报道：CNN首席医学记者古普塔（Sanjay Gupta）博士打破束缚，表示支持前疾控中心主任Robert Redfield博士的观点，即导致COVID-19的病毒很可能从武汉的实验室意外泄漏。
+报告还就台湾问题作出警示，“中共为争取成为世界强国，无所不用其极，而迫使台湾统一就是选项之一。”
 
-纳瓦罗博士4月13日就此发推：“恭喜古普塔打破陈规。 CNN注意： 现在选举已经结束了，不如我们回去讲讲真相吧。99.9%的可能性是病毒来自蝠奇资助的武汉实验室。联系起来想想吧。”
+据报告预测，接下来，中共会对台湾政府进行更严厉的施压，把台湾描绘成一个遭国际孤立、依赖中共经济支援的地区，同时增加对台湾的军事骚扰，企图逼迫台湾向两岸统一迈进。
 
+而美国方面若增加与台湾政府往来一定会继续遭到中共“泼妇骂街式”的批评。不仅如此，中共还会继续在东亚及西太平洋地区，散播不实消息，令人怀疑美国会否信守对台湾的承诺，借此摧毁台湾对捍卫民主的信心，实现中共影响力的进一步延展。
 
+对于南海问题，中共会以恐吓其他东南亚国家，并增加地区的空军、海军和海警数目的方式，宣示其对具争议海域的控制力，迫使他们支持中共在领土问题，台湾主权问题作出妥协。至于东海，相信中共会以相同手法，向日本施压。
 
-> Congrats to Gupta for breaking ranks. Note to CNN: Now that election is over, how about we get back to some truth-telling. 99.9% probability virus came from Wuhan Lab — which Fauci funded! connect the dots!! [@CNN](https://twitter.com/CNN?ref_src=twsrc%5Etfw) [@JohnBerman](https://twitter.com/JohnBerman?ref_src=twsrc%5Etfw) [@drsanjaygupta](https://twitter.com/drsanjaygupta?ref_src=twsrc%5Etfw) [https://t.co/V1Is0Kn6h6](https://t.co/V1Is0Kn6h6)
-> — Peter Navarro (@RealPNavarro) [April 13, 2021](https://twitter.com/RealPNavarro/status/1382047171705503745?ref_src=twsrc%5Etfw)
+**4****、俄、伊、朝依然具危险性**
 
+除中共外，虽然外界很多声音认为俄罗斯势力正在减弱，但报告认为，俄罗斯并未停止寻求破坏美国影响力的途径，多次试图在西方国家及西方盟友之间挑起不和，还以回避同美国正面冲突的方式，透过影响网上舆论、外国雇佣兵及军事演习，推进自身对美国的威胁。
 
+此外，伊朗屡次违反核协议，并恢复一系列的核活动，对美国及盟友在中东的利益构成持续威胁，因此对伊朗的制裁一日都不能放松。
 
-## 与中共国大战开篇
+而北韩方面，金正恩正致力于发展核武器、研发弹道导弹，并继续研究生化武器，显示其对发展大规模杀伤力武器的兴趣有增无减，这对美日韩都是一大威胁。
 
-4月14日Newsmax电视主播Chris Salcedo本周将开始系列节目“与中（共）国大战”。他在早前的视频中曾语出惊人，称：
+**5****、首谈病毒：疫情****“****余震****”****将持续多年**
 
-“美国处在共产中国的控制之下……中共国是当今对人类自由巨大的威胁。中（共）国崛起过去和现在都是对世界的灾难……拜登政府让之崛起的是下一个希特勒，以及希特勒对整个政府和军队的愚弄……中（共）国故意散布病毒导致了疫情大流行……中共国要把美国逼死，可是拜登却对中共国不要对抗只是竞争！”
+不同于去年的《威胁评估报告》，今年的报告首次展示了美国情报部门对武汉肺炎疫情的看法。
 
-他还指出，中共国对黑人的歧视最严重。中共国社交媒体、国家审查言论广泛歧视黑人，把非洲人标榜成强奸犯、贩毒者、艾滋病携带者。中共国和所有共产主义一样是骗子。黑命贵运动为什么对中共国歧视黑人的种族歧视沉默？ANTIFA从美国内部摧毁美国，中共从外部工作摧毁美国。中共国是美国最大的威胁！
+报告指，就算有疫苗，全球依然无一国家能完全免受影响，疫情会在未来一年导致人道和经济危机、政局动荡、地缘政治竞争，并且这股“余震”将持续多年。
 
+疫后复苏过程将继续对政府及社会构成压力，一些地区因为卫生服务崩溃而导致持续的卫生紧急状况。而国与国之间也会因为争利而变得关系紧张，发展中国家的经济后遗症更尤其严重，届时，全球粮食的不稳定情况将达十多年来的高峰。
 
 
-> Chris Salcedo details the human rights violations of CCP – 'how can they get away with this?' [https://t.co/VlT7z8drtO](https://t.co/VlT7z8drtO) [pic.twitter.com/Y33MSEqRQv](https://t.co/Y33MSEqRQv)
-> — Newsmax (@newsmax) [April 13, 2021](https://twitter.com/newsmax/status/1382113873650679808?ref_src=twsrc%5Etfw)
 
 
 
+**参考信息: **
 
+[2021 ANNUAL THREAT ASSESSMENT OF THE U.S. INTELLIGENCE COMMUNITY](https://www.dni.gov/index.php/newsroom/reports-publications/reports-publications-2021/item/2204-2021-annual-threat-assessment-of-the-u-s-intelligence-community)
 
-> Rep. Guy Reschenthaler said this piece by Newsmax TV's Chris Salcedo on Communist China should be viewed by all incoming Congress members: [https://t.co/VlT7z8v2lm](https://t.co/VlT7z8v2lm) [pic.twitter.com/r3bJrUT3Dk](https://t.co/r3bJrUT3Dk)
-> — Newsmax (@newsmax) [April 13, 2021](https://twitter.com/newsmax/status/1381926387255144450?ref_src=twsrc%5Etfw)
 
 
+* * *
 
-
-
-## 股市“胖手指”
-
-巴克莱银行(Barclays Plc)股价短线下跌高达9.9%，创下一年多来盘中跌幅之最，交易员称这很可能是由于一个被称为 “胖手指 “的交易错误。
-
-
-
-> Barclays share price rebounds after a so-called “fat finger” trading error [https://t.co/IfSAR6Xhgw](https://t.co/IfSAR6Xhgw) [pic.twitter.com/UYpLYmYEYD](https://t.co/UYpLYmYEYD)
-> — Bloomberg (@business) [April 14, 2021](https://twitter.com/business/status/1382249386005172224?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 苏伊士运河
-
-苏伊士运河长达一周的堵塞后，新加坡为从苏伊士港出发的集装箱船潮做准备。
-
-
-
-> One of Asia’s busiest ports is preparing for an influx of ships after a week-long blockage at the Suez Canal [https://t.co/WvWsvbnAxO](https://t.co/WvWsvbnAxO)
-> — Bloomberg (@business) [April 14, 2021](https://twitter.com/business/status/1382239464228069381?ref_src=twsrc%5Etfw)
-
-
-
-## 起诉拜登
-
-据Newsmax, 德州就拜登取消川普的 “留守墨西哥 “规则提起诉讼。
-
-
-
-> Texas sues over Biden scrapping Trump's 'stay in Mexico' rule: [https://t.co/wkSBiqlYJi](https://t.co/wkSBiqlYJi) [pic.twitter.com/ZqLd2X1tEU](https://t.co/ZqLd2X1tEU)
-> — Newsmax (@newsmax) [April 14, 2021](https://twitter.com/newsmax/status/1382249798074503168?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 
-
-
-
-## 信息通讯技术供应链规范落实行动
-
-今日美国商务部发布美国商务部关于根据信息通讯技术供应链行政命令采取的行动的声明。内容如下。
-
-今天，商务部向一家中国公司发出传票，以支持根据第13873号行政命令 “确保信息和通信技术及服务供应链安全 “对交易进行审查。今天采取的行动是调查涉及该公司的交易是否符合行政命令规定的标准的重要一步。
-
-在美国不受限制地获取或使用由外国对手所拥有、控制或受其管辖或指示的人所设计、开发、制造或供应的信息通讯技术供应链，对美国的国家安全利益构成重大威胁。今天送达的传票使商务部能够收集有助于确定美国及其公民安全所面临的潜在风险的信息。商务部希望与该公司合作，完成彻底审查。
-
-
-
-> U.S. Department of Commerce Statement on Actions Taken Under ICTS Supply Chain Executive Order: [https://t.co/u5rL89X19d](https://t.co/u5rL89X19d)
-> — U.S. Commerce Dept. (@CommerceGov) [April 13, 2021](https://twitter.com/CommerceGov/status/1381994751738667013?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 中共国中介公司
-
-据彭博社，中共国学生向中共国中介公司支付12000美元或更多的费用，以获得实习机会，并最终在高盛和花旗集团等华尔街权贵公司找到工作。
-
-
-
-> Chinese firms are charging $12,000 or more to help students land internships and eventually jobs at Wall Street powerhouses such as Goldman Sachs and Citigroup [https://t.co/BjLgeNi9NC](https://t.co/BjLgeNi9NC)
-> — Bloomberg (@business) [April 14, 2021](https://twitter.com/business/status/1382257844427317249?ref_src=twsrc%5Etfw)
-
-
-
-## 核处理
-
-日本政府已决定在两年内开始将福岛核电站处理后的放射性水排放到太平洋中–这一方案遭到渔民、居民和日本邻国的激烈反对。
-
-
-
-> Japan's government has decided to start releasing treated radioactive water from the Fukushima nuclear plant into the Pacific Ocean in two years — an option fiercely opposed by fishermen, residents and Japan's neighbors. [https://t.co/UaLE2qnwMu](https://t.co/UaLE2qnwMu)
-> — NBC News (@NBCNews) [April 14, 2021](https://twitter.com/NBCNews/status/1382246273248530433?ref_src=twsrc%5Etfw)
-
-
-
-4月14日据NBC新闻，白宫表示，在乌克兰局势日益紧张的情况下，美国总统拜登建议在未来几个月内与普京总统 “在第三国 “会面，讨论美俄两国面临的问题。
-
-
-
-> President Biden suggests meeting President Putin “in a third country” in the coming months to discuss issues facing the U.S. and Russia amid growing tensions in Ukraine, the White House says. [https://t.co/EBupgpEkB5](https://t.co/EBupgpEkB5)
-> — NBC News (@NBCNews) [April 14, 2021](https://twitter.com/NBCNews/status/1382238480730882048?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 台湾外交
-
-据华尔街时报，台湾岛未来与北京的紧张关系将加剧之时，率领拜登政府派出的第一个非官方代表团访台。来自康涅狄格州的前民主党参议员克里斯托弗-多德（Christopher J. Dodd）和前国务院高级官员理查德-阿米蒂奇（Richard Armitage）和詹姆斯-斯坦伯格（James Steinberg）已于当地时间周三14日下午到达台北。
-
-
-
-> A former U.S. senator and two former senior State Department officials are traveling to Taiwan, leading the first unofficial delegation dispatched by the Biden administration, amid heightened tensions with Beijing over the island's future by [@chao\_deng](https://twitter.com/Chao_Deng?ref_src=twsrc%5Etfw) [https://t.co/fDQCOUYtI7](https://t.co/fDQCOUYtI7)
-> — WSJ China Real Time (@ChinaRealTime) [April 14, 2021](https://twitter.com/ChinaRealTime/status/1382257393489313793?ref_src=twsrc%5Etfw)
-
-
-
-台湾外交部推文：
-
-台湾、美国、日本和全球反恐论坛开启首次欧盟合作。在#COVID19中加强供应链弹性和#SME响应能力的问题上，志同道合的伙伴们是一致的。衷心感谢欧盟台湾代表Filip Grzegorzewski、德国代表Prinz的支持。
-
-
-
-> Great [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw)🇹🇼, [#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw)🇺🇸, [#Japan](https://twitter.com/hashtag/Japan?src=hash&amp;ref_src=twsrc%5Etfw)🇯🇵 & [#GCTF](https://twitter.com/hashtag/GCTF?src=hash&amp;ref_src=twsrc%5Etfw)-debutants [#EU](https://twitter.com/hashtag/EU?src=hash&amp;ref_src=twsrc%5Etfw)🇪🇺 cooperation! The like-minded partners are on the same page when it comes to strengthening supply chain resilience & [#SME](https://twitter.com/hashtag/SME?src=hash&amp;ref_src=twsrc%5Etfw) responsiveness amid [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw). A big thanks to [@grzegorzewskif](https://twitter.com/grzegorzewskif?ref_src=twsrc%5Etfw) & [#Germany](https://twitter.com/hashtag/Germany?src=hash&amp;ref_src=twsrc%5Etfw)🇩🇪 Rep. Prinz for the support. [pic.twitter.com/9iTgFpoh8J](https://t.co/9iTgFpoh8J)
-> — 外交部 Ministry of Foreign Affairs, ROC (Taiwan) 🇹🇼 (@MOFA\_Taiwan) [April 14, 2021](https://twitter.com/MOFA_Taiwan/status/1382230023860486144?ref_src=twsrc%5Etfw)
-
-
-
-## “COVID-19专利”
-
-据美国专利商标局，美国专利商标局公布人类特殊专利COVID-19类别。
-
-华盛顿–美国专利商标局(USPTO)4月5日宣布，将在其 “人类专利计划 “中为应对COVID-19流行病的发明推出一个特殊类别。这个新的奖励类别将为专利申请人、持有人和被许可人提供商业激励，他们的发明跟踪、预防、诊断或治疗COVID-19。正在开发或已经开发出与COVID-19相关的技术，包括跟踪、诊断、预防或治疗该疾病的技术的相关方，一旦提交专利申请，就有资格提交该奖项的申请。
-
-小议，如果中共作为制造COVID19的邪恶专利人的话，英雄科学家闫博士则是拯救人类的专利人，墨博士是找出初期预防解药的专利人，文贵先生是爆料革命、新中国联邦、灭共、扭转人类黑暗大重启的专利人，爆料革命所有战友是开启和践行新中国联邦文明生态的专利人。
-
-
-
-> Today, the [#USPTO](https://twitter.com/hashtag/USPTO?src=hash&amp;ref_src=twsrc%5Etfw) and [@CommerceGov](https://twitter.com/CommerceGov?ref_src=twsrc%5Etfw) announced a [#Patents4Humanity](https://twitter.com/hashtag/Patents4Humanity?src=hash&amp;ref_src=twsrc%5Etfw) category to recognize innovators whose special inventions have helped address the COVID-19 pandemic. Learn more about the program and eligibility for the award: [https://t.co/PJMC8iS1Wf](https://t.co/PJMC8iS1Wf) [pic.twitter.com/2Jqh6Sb1Kd](https://t.co/2Jqh6Sb1Kd)
-> — USPTO (@uspto) [April 5, 2021](https://twitter.com/uspto/status/1379116717323005952?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-
-
-
-
-
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》希望诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+**发布: 法国巴黎七星编辑组**
 
 0
