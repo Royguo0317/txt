@@ -1,34 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拍摄执法现场是中共流氓“神圣不可侵犯”的霸权
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1094792/)
+## CNN通过制造“宣传” 赶走了川普，又制造“恐惧（气氛）”通过了气候议程
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1094795/)
 
-作者：胖丁| 校对/ 审核：宁缺| Page：我是球大哥
-
-[!\[\]()!\[\](https://spark.adobe.com/page/AqImhKXs33tGQ/images/f662693e-7b7d-40cb-a2b9-73b911421809.jpg?asset_id=0da4f450-351a-46f7-a0de-74c2dd0f564d&amp;img_etag=%229be2bb216364d5138d6a010cc26b6cab%22&amp;size=1024)](https://spark.adobe.com/page/AqImhKXs33tGQ/images/f662693e-7b7d-40cb-a2b9-73b911421809.jpg?asset_id=0da4f450-351a-46f7-a0de-74c2dd0f564d&amp;img_etag=%229be2bb216364d5138d6a010cc26b6cab%22&amp;size=1024)
-
-[视频链接](https://discord.com/channels/720597592404131930/805593797072650250/829808128475922462)
-
-俗话说，双拳难敌四手，好汉架不住群狼。2021年4月7日，广东一男子因为拍摄城管执法，手机被夺走，自己也被一帮恶狼般的城管和警察撂倒。他的结果可想而知：轻则重伤，重则残废，甚至命都可能丢掉。
-
-在墙内，无论是警察执法还是城管执法都会装模作样地用摄像机拍摄整个执法过程。同样是记录执法过程，为什么老百姓自己拍就不行了呢？很明显，这些爪牙记录行动的整个过程可以假惺惺地展现中共法制社会的表象。但是所有的画面将来都可以通过讲政治的方式出现，或者讲政治地消失，甚至截取扭曲，一切都为了官字两张嘴的需要。中共官员需要的是可以控制在手中的证据，老百姓拍摄执法现场严重侵害的是政府“神圣不可侵犯”的霸权。这些过于真实而且不可控的画面万一流到网络上，让习惯了以无可奉告搪塞民口的特权饭桶们情何以堪？
-
-中共国以警治国，以黑治国，警察比黑社会都霸道。因为中共国的警察就是有执照的流氓，打人天经地义，抓人不算违法。就算城管是非警察编制，一样欺行霸市，把普通民众当成奴隶般非打即骂，还不能反抗。如果反抗，只会遭到更严厉的镇压。普通老百姓想做个小生意维持生计，不是被城管欺压，就是被警察抓捕。路人如果有谁“路见不平一声吼”，城管绝对是“该出手时就出手”。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/AqImhKXs33tGQ/images/1229724d-ee4c-464a-a6f6-03d0dd39a89d.jpg?asset_id=5d407c5f-62cd-4330-87e9-5a9fa83af989&amp;img_etag=%226c1317b22756b9e370692cb300c4a1fe%22&amp;size=1024)](https://spark.adobe.com/page/AqImhKXs33tGQ/images/1229724d-ee4c-464a-a6f6-03d0dd39a89d.jpg?asset_id=5d407c5f-62cd-4330-87e9-5a9fa83af989&amp;img_etag=%226c1317b22756b9e370692cb300c4a1fe%22&amp;size=1024)
-
-就算是真正的黑帮组织，也遵循“盗亦有道”，有自己的江湖规矩：不恃强凌弱，不以多欺少。中共国常常上演一帮城管和警察对付一两个赤手空拳老百姓的惨剧，而且下手狠毒，绝对不计后果。中共国的老百姓生存艰难，没有法制，如果不推翻这个邪恶的政党，艰难的就不仅仅是生活，而是生命都没有保证。
-
-*文章仅代表个人观点*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+- 作者：Jenny Ball
 
 
-编辑：【英国伦敦喜庄园编辑部】
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AqImhKXs33tGQ/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/AqImhKXs33tGQ/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+**西班牙2021年4月14日电/西喜社——**
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/p2600152a874908858-ss.jpg)网络图片：secretchina.com
+
+詹姆斯·奥基夫（James O’Keefe）的“真相揭露”（Project Veritas）“周二发布了爆炸性视频，该视频显示CNN技术总监查理·切斯特（Charlie Chester）承认，该平台目标是让川普总统下台，所以在鲜为人知的问题上进行了“大肆宣传”。
+
+视频虽然具有爆炸性，但很多人可能不会感到太惊讶。 民意调查显示，CNN是最不受信任的有线电视新闻网，并且是美国最具分裂性的媒体品牌。
+
+在CNN及其工作人员将川普赶下台的过程中，切斯特在与“真相揭露”卧底记者的各种接触中，发表了以下言论：
+
+“看看我们做了什么，我们[CNN]把川普赶出局了。 我100％会说，而且100％相信，如果不是CNN的话，我不知道特朗普会不会被淘汰……我来到CNN是因为我想成为他们其中的一员”。
+
+“这将是我们[CNN]的重点。 就像我们的重点是让川普下台，对吗？ 不说了，就是这么回事，对吧？ 因此，我们接下来要做的事情就是提高对气候变化的意识。”
+
+关于CNN制造 “宣传 ”来损害特朗普，切斯特说：“ [川普]的手在颤抖，我想。 我们请来了这么多医学界人士来讲述一个全是猜测的故事—他在神经系统上受到了损害，而他正在失去理智。无论如何他不适合。我们创建了一个连我们自己都一无所知的故事。 就是这样—我认为这就是宣传。”
+
+切斯特说，要有一个预定的议程来掩盖气候变化，并使用“恐惧”来推销它，他说：“我认为有一个COVID的疲劳。 因此，就像每当出现一个新故事时，[CNN]就会抓住它。 他们已经在我们的办公室宣布，一旦向公众开放-我们将开始着重关注气候。”
+
+“我有一种感觉，它会用不断播放冰块融化，天气变暖的视频，以及它对经济的影响，”
+
+气候变化是“类似”下一个大流行病的故事，我们把它说死，但这个故事是持久性的”。 你明白我的意思吗？ 就像大流行病有一个明确的结局一样。它将会逐渐缩小到不再是问题的地步。 气候变化可能要花费数年的时间，所以[CNN] 将大概能榨取相当多的时间。”
+
+“做好准备，它就要来了。 气候变化将成为CNN的下一个COVID问题。”
+
+当被问及CNN是否打算利用“恐惧”来推动他们的议程时，切斯特说：“是的。 恐惧是个卖点。”
+
+**评论：中共之所以能够用谎言欺骗中国人民和世界70多年，它的防火墙，和对外大外宣，目的都是左右舆论导向达到它继续当政奴役中国人民和最好统治世界的最终目的。“真相揭露”的事实，让民主国家的人民也看到了宣传邪恶的巨大作用，从而不在被所谓的主流媒体左右，用常识去看清真相，去守护我们的自由和权益。**
+
+编辑：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
+
+**素材来源：**2021年4月14日，瑞安·萨维德拉（RyanSaavedra） [https://www.dailywire.com](https://www.dailywire.com/news/cnn-director-we-worked-to-oust-trump-we-create-propaganda-use-fear-to-pass-climate-agenda?utm_campaign=dw_newsletter&amp;utm_medium=email&amp;_hsmi=121314580&amp;_hsenc=p2ANqtz-8mBnAgo5yvqSRZx_RH1K86wcyuSKyn53Toi55b99c8EhEdqMN-kxLudn3a5b4HW--OSdLGkXMgbEp2nkgU6EmwYYS-JA&amp;utm_content=non_insiders&amp;utm_source=housefile)
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 0
