@@ -1,29 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 台湾停止向中共超级计算中心实体供应芯片
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1094898/)
+## 中共开通“非法历史评论”举报热线
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1095013/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+翻译：康州盘古农场 – 柯镇恶
+校对：康州盘古农场 – Mike Li
+编辑：康州盘古农场 – 蓝精灵
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/TW-1.jpg)bworldonline.com
-路透社报道，台湾周三表示，其芯片企业将遵守美国规定。美国政府上周将7家中共超级计算机实体列入经济黑名单，台湾跟随美国规定，台北一家芯片制造商暂停了其中一家中共实体的订单。
+据《路透社》作者：托马森，2021年4月11日发布:
 
-美国商务部表示他们“参与了中共军方使用的超级计算机的建造、破坏稳定的军事现代化努力和大规模杀伤性武器项目”。美国商务部长吉娜·雷蒙多 (Gina Raimondo)在一份声明中表示：“超级计算能力对于许多，或许几乎所有现代武器和国家安全系统的发展都至关重要，比如核武器和高超音速武器。”
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/1-14-85.jpg)
 
-被列入美国实体清单的公司或其他公司必须向美国商务部申请许可证，在申请从美国供应商获得产品许可时，商务部将面临严格审查。
+中共的网络监管机构已经开通了一条热线，用来举报诋毁执政的共产党及其历史的言论，并誓言在党的七十周年纪念日之前严厉打击“历史虚无主义者”。
 
-台湾芯片企业是全球半导体的主要供应商，台湾经济部长王美花说，将遵守台湾和美国的规定。她指出，“我们的公司，无论是生产商还是出口商，都必须符合我们国家的规定。当然，美国有新的规定，我们的公司将会关注并遵守美国规定的关键标准。”
+根据中共网络空间管理局（Cyberspace Administration）周五发布的一则通知称， 该热线用来让人们举报网民的以下行为： “歪曲”党的历史、攻击党的领导和政策、诋毁民族英雄和“否认先进社会主义文化的优越性”。
 
-美国此举正值其与中共在台湾问题上的日益紧张之际。中共从未放弃武力统一台湾，与此同时，全球半导体短缺已将台湾推入科技供应链的中心位置。
+通知说：“有些别有用心的人……在网上散布历史虚无主义的虚假信息，恶意歪曲、贬低和否定党的历史。”
 
-周二，台湾晶芯科技有限公司(Alchip Technologies Ltd .，简称：晶芯科技)表示，已经停止了与天津飞腾信息技术公司(Tianjin Phytium Information Technology，简称：飞腾信息技术)相关的所有产品的生产。
+通知说：“我们希望互联网用户中的大多数能积极参与监督社会……并踊跃地举报有害信息。”
 
-飞腾信息技术公司周三股价暴跌9.9%，自美国商务部上周宣布上述消息以来，其股价跌幅已超过三分之一。
+在中共国，“历史虚无主义”是用来形容公众对中国共产党对历史事件的描述表示怀疑。中国的互联网受到中共的严格审查。在中共国，大多数外国社交媒体网络、搜索引擎和新闻媒体都被中共禁用。互联网主管部门通常会在重大事件（包括历史纪念日、政治会议和体育赛事）之前增加审查制度和在线监管的力度。
 
-参考链接：
+该通知并未具体说明被热线电话举报的人士将受到什么处罚。但是已有中国网民因为发表了批评该县领导、政策和历史的内容，而面临入狱和其他法律处罚。今年早些时候发布的法律修正案规定，“侮辱、诽谤”中华民族英雄和烈士将面临最高三年的监禁。上周，在中国东部江苏省，一名19岁男子在网上对日本1937年占领南京事件进行了“侮辱性”评论后，当局对他进行了拘捕。
 
-[https://www.reuters.com/article/us-taiwan-usa-semiconductors/taiwan-says-its-chip-firms-will-adhere-to-new-u-s-rules-blacklisting-china-supercomputing-entities-idUSKBN2C10CU](https://www.reuters.com/article/us-taiwan-usa-semiconductors/taiwan-says-its-chip-firms-will-adhere-to-new-u-s-rules-blacklisting-china-supercomputing-entities-idUSKBN2C10CU)
+根据现行法律，中国社交媒体网站如果未能审查关键内容，也将面临经济制裁和暂时停止服务。
+
+原文链接：[https://www.newsmax.com/newsfront/china-hotline-history-comments/2021/04/11/id/1017122/](https://www.newsmax.com/newsfront/china-hotline-history-comments/2021/04/11/id/1017122/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

@@ -1,29 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 人权组织敦促抵制中共“种族灭绝奥运会”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1094742/)
+## 塞尔维亚暂停紫金矿业在该国的铜矿施工
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1094908/)
 
-俄罗斯莫斯科喀秋莎农场    银河
+俄罗斯莫斯科喀秋莎农场   银河
 
 编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/O-5.jpg)fltimes.com
-布赖特巴特新闻(Breitbart News)4月14日报道，妇女权利无国界组织敦促奥委会将2022年冬季奥运会移出中共，否则将面临抵制这届“种族灭绝运动会”的风险。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Z-2.jpg)mining.com
+路透社报道，塞尔维亚矿业和能源部长周三表示，由于中共紫金矿业集团未能遵守环境标准，塞尔维亚已下令该集团暂停该国唯一铜矿的竖井施工，并要求其紧急完成一座废水处理厂的建设。
 
-妇女权利无国界组织准备了一封致美国奥林匹克委员会(USOC)的公开信，并向国际奥林匹克委员会(IOC)提交了一份副本，抗议目前选择的2022年冬奥会的举办地。
+塞尔维亚矿业和能源部长米哈伊洛维奇（Zorana Mihajlovic）说，有关部门3月底已下令紫金矿业位于塞尔维亚的子公司停止贾玛 (Jama) 铜矿竖井的施工。
 
-妇女权利无国界组织总统的雷吉·利特约翰(Reggie Littlejohn)控诉中共除了正在进行的对维吾尔人的种族灭绝，中共还有许多“其他人权暴行，如宗教迫害，强迫堕胎和绝育，强迫器官摘取，强迫劳动和大规模监视。”
+紫金矿业成为塞尔维亚铜矿联合体的战略合作伙伴，该联合体包括Jama铜矿。中共在塞尔维亚投资了数十亿欧元，主要是以软贷款的形式，为高速公路和能源项目提供融资。紫金矿业在塞尔维亚的子公司上周表示，计划在2021年投资4.08亿美元，对旗下矿山和冶炼厂的环境标准进行检修、扩张和改善。
 
-利特约翰说，中国共产党还“拘留持不同政见者和揭发者、无与伦比的环境掠夺和中共病毒在世界上的释放”，使其成为世界上最严重的侵犯人权者之一。
+紫金矿业在塞尔维亚的子公司周三晚些时候发表声明说，居民投诉噪音大后，按照当局的命令，已经停止了位于博尔镇贾玛 (Jama)铜矿的通风井施工。
 
-在信中，人权组织提醒美国奥委会和国际奥委会“对1948年《防止及惩治种族灭绝公约》所作的宪章承诺和国际义务”。
+米哈伊洛维奇表示，紫金矿业还接到命令，紧急完成一座废水处理厂的建设，以改善多瑙河支流佩克河的污染情况。紫金矿业被要求于4月30日前停止所有违规行为。
 
-这封信提醒奥林匹克当局，1936年在德国柏林举行的奥运会“被证明是阿道夫·希特勒的第三帝国一笔巨大的宣传意外之财，为其提供了毫无根据的国际声望、合法性和信誉。”这些好处为“纳粹政权随后对600万犹太人实施的种族灭绝大屠杀以及希特勒在世界大战期间促成的骇人听闻的反人类罪行提供了一个烟幕”。今天，“我们正面临着另一个极权主义政权积极参与的另一场种族灭绝，这是反人类罪行之一。”然而，奥运当局正准备让中共“获得并利用一笔宣传巨款，让纳粹享受的东西相形见绌。”
-
-公开信最后呼吁“国际社会紧急努力，将2022年冬奥会转移到另一个地点”，为“种族灭绝奥运会”提供一个“自由奥运会”的选择。声明称：“如果做不到这一点，请注意，我们将竭尽全力抵制奥运会。”
+全球健康和污染监督机构联盟在2019年的报告中称，塞尔维亚是欧洲污染最严重的国家。上周六，数千人聚集在首都贝尔格莱德，抗议政府缺乏行动防止主要由工业和采矿业造成的污染。
 
 参考链接：
 
-[https://www.breitbart.com/national-security/2021/04/14/human-rights-groups-prepare-boycott-of-chinas-olympic-genocide-games/](https://www.breitbart.com/national-security/2021/04/14/human-rights-groups-prepare-boycott-of-chinas-olympic-genocide-games/)
+[https://www.reuters.com/article/us-serbia-mining-china/serbia-halts-china-owned-mine-over-environmental-breaches-idUSKBN2C111G](https://www.reuters.com/article/us-serbia-mining-china/serbia-halts-china-owned-mine-over-environmental-breaches-idUSKBN2C111G)
 
 0

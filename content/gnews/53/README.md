@@ -1,29 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄外交部通报俄准备被SWIFT拒绝
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1094360/)
+## 【热点播报】开盘价每股381美金，Coinbase纳斯达克首秀市值超660亿美金
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1094540/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+作者：纽约香草山写作组 Delilah小胖
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/S-19.jpg)rt.com
-04月14日，俄罗斯外交部副部长亚历山大·潘金（Alexander Pankin）告诉俄新社记者，俄罗斯将在与SWIFT银行间支付系统断开连接的情况下使用其他方案，但到目前为止，莫斯科并没有放弃使用该系统。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
-“我们尚未放弃SWIFT，但如果我们被SWIFT拒绝，我们将使用（其他系统）。”潘金说。
 
-副部长补充说，目前尚未讨论开发可能替代SWIFT方案的合作伙伴问题。
 
-RBC要求SWIFT的新闻处发表评论。
+世界上目前最大的虚拟货币交易平台 Coinbase.com，股票代码：COIN，2021年4月14日，星期三下午1点30分，正式登陆美股纳斯达克市场。开盘价美股381美金，高出昨天市场收盘后纳斯达克给出的每股250美金的预估价52.4%。
 
-此前，潘金表示，由于技术的发展，俄罗斯可能会出现另一种支付系统。据他介绍，新的支付系统将更加先进，不会宣称自己在这个领域的垄断地位。该副部长指出，它们的产生可能不仅与政治有关，也与支付现代化的需要有关。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片83.png)
 
-3月，俄罗斯外长拉夫罗夫表示，俄罗斯应该放弃西方支付系统，转而使用美元以外的货币进行结算。拉夫罗夫解释说，美国已宣布其目标是“限制俄罗斯联邦和中共国技术发展的可能性”。俄罗斯总统发言人德米特里·佩斯科夫则也不排除该国可能被强制断开与SWIFT的连接，作为另一项制裁。
+Coinbase开盘后，最高冲到美股429.54美金。开盘后15分钟左右的成交量就超过了3300万股。
 
-此前，总统发言人德米特里·佩斯科夫表示，作为制裁的一部分，西方国家可能会剥夺俄罗斯人使用国际支付系统Visa和MasterCard信用卡的机会。他同时补充说，俄罗斯的“米尔（Mir）”支付系统已经“得到加强”，“没有人怀疑”未来会“在全球范围内使用”。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片82.png)
 
-参考链接：
+爆料革命的郭文贵先生，在Coinbase上市钟声敲响不久，发盖特表示：
 
-[https://www.rbc.ru/rbcfreenews/60765c989a7947398e519051](https://www.rbc.ru/rbcfreenews/60765c989a7947398e519051)
+“4月14号：我们的未来比这个还要让你兴奋，刺激！只有新中国联邦能让我们一起共同创造这样的美好！和奇迹！能让你的人生无限精彩！新的时代！新的金融世纪已经开始！我们是真正的弄潮者！”
 
-0
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片81.png)
+
+在昨天，郭文贵先生也发盖特说：
+
+“4月13号：G系列未来被市场承认的价格，和每一个公司的总市值都会超过他们（Coinbase）！这个时代是属于我们的。如果我们太早太晚的到来都是灾难！我们占尽了天时、地利、人和，这就是上天给我们的机会，给我们的力量，让我们去灭共。莘县阳谷县搭县走着看！”
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片80.png)
+
+“新的金融世纪已经开始”。爆料革命战友，让我们努力成为这其中的弄潮儿，G系列自己的金融灭共大幕也已经拉开，G系列虚拟货币产品蓄势待发，即将登场！
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpg)
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
++1

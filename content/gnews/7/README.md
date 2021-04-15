@@ -1,84 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日新闻收集【4/14】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1095200/)
+## 分析：美国“是否”应该抵制北京2022年冬奥会
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1095383/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
+翻译：康州盘古农场 – 柯镇恶
+校对：康州盘古农场 – TrueSky
+编辑：康州盘古农场 – 蓝精灵
 
-由郭文贵先生和爆料革命战友掀起的【以毒灭共】运动。真相永远只有一个：中共制造了中共病毒和中共疫苗。以下7则推文借以分享：
+据《华盛顿邮报》作者：Ishaan Tharoor，2021年4月12日报道：
 
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/1-14-105.jpg)
 
+美国国务院发言人周二表示，有可能对中共的侵犯人权行为进行奥林匹克运动会抵制，但一位高级官员稍后表示，没有讨论计划。仿佛已经没有足够的中美摩擦事件，但是一个新兴的争议事件正在逐渐发酵：**抵制北京2022年冬季奥运会的呼声越来越高。**
 
-> 来自医生 [@richardursomd](https://twitter.com/richardursomd?ref_src=twsrc%5Etfw) 最新采访视频：
-> 羟氯喹可以阻止病毒的进入，并且可以使得病毒的生长非常缓慢，不能真正产生毒性很强的颗粒，长期服用羟氯喹基本等于打了疫苗，而且不仅对 [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) 有效，对所有的冠状病毒、流感都有效，这会摧毁整个疫苗市场甚至流感医药市场！
-> 这就是为什么羟氯喹被打压！ [pic.twitter.com/6Ss2Cto9BU](https://t.co/6Ss2Cto9BU)
-> — 黄鹤楼大厨（新） (@GuoWarriors7) [April 14, 2021](https://twitter.com/GuoWarriors7/status/1382332503839498243?ref_src=twsrc%5Etfw)
+距离比赛还有10个月的时间，考虑到当前[冠状病毒](https://www.washingtonpost.com/coronavirus/?itid=lk_inline_manual_5)大流行带来的的不确定性，这个时间可能会更长。但是，该事件成为爆发点却并不算早。对中国执政的共产党的批评者（包括由180多个人权组织组成的联盟）认为，基于该政权的人权侵犯记录和地缘政治恶行，理应剥夺它利用像奥运会这样的盛事来塑造自己形象的权利。
 
+中国人权律师滕彪（[Teng Biao](https://www.washingtonpost.com/opinions/2021/02/04/beijing-olympics-2022-genocide-games/?itid=lk_inline_manual_8)）今年早些时候写道：“2015年，北京获得了主办2022年奥运会的权利。就在同一年，它严厉打击了中国各地的律师和活动家”。“从那时起，它就已经在拘留记者；骚扰和攻击活动家和持不同政见者，即使是境外的也不放过；关闭非政府组织；拆除基督教教堂、藏族寺庙和穆斯林清真寺；迫害甚至是杀害——法轮功信徒；并大大加强了对媒体、互联网、大学和出版商的控制”。
 
-1. **`黄鹤楼大厨推特`**（附秘密翻译组视频）：
-*羟氯喹可以阻止病毒的进入，并且可以使得病毒的生长非常缓慢，不能真正产生毒性很强的颗粒，长期服用羟氯喹基本等于打了疫苗，而且不仅对 [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click) 有效，对所有的冠状病毒、流感都有效，这会摧毁整个疫苗市场甚至流感医药市场！ 这就是为什么羟氯喹被打压！*
+前国务卿迈克·彭培奥（Mike Pompeo）在上周的一次活动中说：“我认为不应该有美国人参加‘种族灭绝奥运会’。” 他指的是有关中共当局在新疆地区，对维吾尔族和哈萨克族妇女进行强奸和大规模绝育的报道，一些专家和美国国务院称这相当于种族灭绝。抵制北京2022冬奥会已成为共和党人中的热门活动。众议员约翰·卡特科（John Katko，R-N.Y.）说：“世界正在注视着我们的下一步行动。”
 
+保守派的美国企业研究所（American Enterprise Institute ）的[政策文件](https://www.aei.org/research-products/report/move-the-games-what-to-do-about-the-2022-beijing-olympics/)指出：“鉴于中共残暴的的人权记录，在疫情爆发初期对COVID-19的不当处理以及其对外界的敌对情绪，奥运会应该从北京移出。”该文件同时认为，美国应该利用国际社会对奥运会的关注来迫使中共统治集团“改正路线”。
 
-> 《外交政策》这篇文章很能反映舆论的变化：
-> 要把Covid19这样的流行瘟疫当作“大规模杀伤武器，如核扩散、化武”一样认真对待！
-> “take pandemic containment as seriously as we take other dangers of mass destruction, such as nuclear proliferation and chemical weapons.”[https://t.co/kHIgXD5eOY](https://t.co/kHIgXD5eOY)
-> — 德意志之鹰 (@dezying) [April 14, 2021](https://twitter.com/dezying/status/1382433110114062339?ref_src=twsrc%5Etfw)
+**拜登政府本周提供了一些混淆的信息。**首先，国务院发言人内德·普莱斯（Ned Price）[周二](https://www.bloomberg.com/news/articles/2021-04-07/u-s-comments-on-beijing-olympics-spur-talk-of-possible-boycott)表示，抵制冬季奥运会是“我们当然希望与志同道合的盟友讨论的事情”。但是国务院随后澄清说，没有就抵制进行高级别讨论的计划。第二天，白宫新闻秘书詹·普萨基（Jen Psaki）试图回避此事。她说：“我们尚未讨论，也没有讨论与盟友和伙伴的联合抵制。”
 
+在上周的一次活动中，美国奥林匹克与残奥会董事会主席苏珊·里昂（Susanne Lyons）表示，她的组织反对“运动员抵制，因为我们知道，（运动员）抵制会对运动员产生负面影响，而且不能有效解决全球问题。” 人们普遍记得，美国抵制1980年莫斯科夏季奥林匹克运动会，随后苏联抵制1984年洛杉矶奥运会作为对抗。这种不幸的冷战冲突事[件，](https://www.nationalcoldwarexhibition.org/schools-colleges/national-curriculum/social-economic-issues/olympic-boycotts.aspx#:~:text=In%201984%2C%20the%20American%20city,move%20for%20the%201980%20boycott.)在很大程度上伤害了合格的参与者。同时，活动的组织者表示，他们坚持非政治取向。国际奥委会在提供给Axios的一份声明中说：“鉴于参加奥运会的多样性，国际奥委会必须在所有全球政治问题上保持中立”，他补充说，尽管国际奥委会致力于维护人权，但“既没有权力，也没有能力，去改变主权国家法律或政治制度。”
 
-2. **`德意志之鹰推特`**：
-*要把Covid-19这样的流行瘟疫当作“大规模杀伤武器，如核扩散、化武”一样认真对待。附《外交政策》的**`新闻链接`***
+中共官员也发出了类似的口吻。外交部发言人赵立坚说： “体育政治化将损害《奥林匹克宪章》的精神和各国运动员的利益”。 中共政府否认对新疆发生的事情国际评估，还威胁说，如果抵制行动继续下去，中共将做出 “强烈回应”。
 
+**但是重大体育赛事，尤其是像奥运会这样的国际盛会，始终具有政治意义**。上个世纪最具标志性的奥林匹克时刻也许是一次政治抗议的行为（译注：指1968年墨西哥夏季奥运会上的抗议行为）。2008年北京夏季奥运会是发展中的中共国的崛起派对。在蓬勃发展的首都，整个社区都为奥运场馆腾出了空间。时任总统乔治·W·布什（George W. Bush）出席会议。他积极参与，放弃了对人权的关注。
 
-> [#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw), 13 Apr, 2021
-> Bioweapon expert Dr. Hatfill: Gain-of-function experiment is perfect for bioweapon design. US didn’t use it for bioweapon, but China government did.[#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/IdQzsBbewj](https://t.co/IdQzsBbewj)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 14, 2021](https://twitter.com/DrLiMengYAN1/status/1382439148787748866?ref_src=twsrc%5Etfw)
+现在的情况远没有那么乐观，美国高级别政治代表团在明年二月前往北京的可能性很小。作为对上个月参议员罗姆尼（R-Utah）呼吁“经济和外交抵制”的回应，纽约时报专栏作家尼古拉斯·克里斯托夫（Nicholas Kristof）写道： “运动员应该参加比赛，电视台应该播出比赛，但政府官员和公司应该远离比赛”。克里斯托夫补充说：“我希望在北京的运动员能够抓住一切机会，提醒人们注意中共对新疆或其他地方的镇压。”
 
+抵制的问题仍然很敏感：外国政府和跨国公司对激起中共的愤怒保持谨慎——一些公司已经饱受其苦，因为他们为新疆的大规模拘留营和在新疆的发生的强迫劳动而大声疾呼。战略与国际研究中心（Center for Strategic and International Studies）的一名亚洲专家邦妮·格拉泽（Bonnie Glaser）告诉彭博新闻社： “可能有选择地禁止从中共进口某些产品，这能显示出国家拒绝奥运会和抵制中共公司的意图。”对于更依赖于中共投资和贸易的国家而言，情况更是如此。但是，在美国，聚光灯照在了赞助冬奥会的大公司身上。尽管它们中的多数都在国内政治问题上表达了自己的声音，但他们在新疆问题上却避而不谈。
 
-3. **`闫丽梦博士推特`**：
-*（转喜站）CNN的古普塔医生终于站到闫丽梦博士这边了！如果人们早听闫博士的，听郭文贵的，听战斗室的，中共这个跨国犯罪组织早就被灭了，几百万人也不会死，世界也不会变成现在这样*
-*生物武器专家哈特菲尔德说：「功能增强」是完美的生物武器技术——班农*
-*（闫回复）「功能增强」是完美的生物武器技术，美国没有使用这项生物武器技术，但中共国使用了*
+《华盛顿邮报》社论页面编辑弗雷德·希亚特（Fred Hiatt）写道，“在维吾尔族妇女遭到强奸、绝育和被迫卖淫的同时，这些公司真的觉得我们能严肃看待，他们在性别平等上的自我庆祝吗？”。“距离冬奥会开幕还有十多个月。这些公司可以对中共政府说：解放集中营，让维族人生活在和平中。让外部观察者来看到你确实已经这样做了。然后再开始奥运会。”
 
+原文链接：[https://www.washingtonpost.com/world/2021/04/12/olympics-china-boycott/](https://www.washingtonpost.com/world/2021/04/12/olympics-china-boycott/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-> ⚡️国家情报总监海恩斯在参议院情报委员会听证时，正式确认中共实验室是病毒的两个可能来源之一
-> 这是美国高层情报官员第一次官方确认实验室来源的可能性
-> 中情局局长伯恩斯和军情领导人仲宗根将军说，正在利用一切可能的资源和方式彻查真相 [pic.twitter.com/z9e6EyL3VG](https://t.co/z9e6EyL3VG)
-> — 嘻禧僖囍 (@xi\_GLB) [April 14, 2021](https://twitter.com/xi_GLB/status/1382479373903622144?ref_src=twsrc%5Etfw)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-
-4. **`喜站推特`**：
-*国家情报总监海恩斯在参议院情报委员会听证时，正式确认中共实验室是病毒的两个可能来源之一 
-这是美国高层情报官员第一次官方确认实验室来源的可能性 中情局局长伯恩斯和军情领导人仲宗根将军说，正在利用一切可能的资源和方式彻查真相*
-
-
-> Conspiracy theory no more: DNI reveals coronavirus leak from Chinese lab is one of two theories adopted by US intelligence analysts on the origin of the Covid-19 pandemic [https://t.co/QhOEAPqwvp](https://t.co/QhOEAPqwvp)
-> — Bill Gertz (@BillGertz) [April 14, 2021](https://twitter.com/BillGertz/status/1382380043129737216?ref_src=twsrc%5Etfw)
-
-
-5. **`比尔·格茨推特`**：
-*阴谋论不再存在：美国国家情报总监海恩斯，中共国实验室泄露冠状病毒是美国情报分析师关于新冠病毒疫情起源的两种理论之一。附《华盛顿时报》**`新闻链接`***
-
-
-> 参议院情报委员会听证会：世界五大邪恶集团中，中共是最大威胁，没有之一
-> 参议员萨斯发言说，两党已经达成共识：所有的威胁都来自于习近平和中共，而不是中国人民。他号召两党一同向美国民众反反复复传播这一概念，让民众分清中共和中国人，认清中国人民是无辜的受害者
-> 评:美情报大佬齐聚一堂所为何来 [pic.twitter.com/v5noeZrjb7](https://t.co/v5noeZrjb7)
-> — 嘻禧僖囍 (@xi\_GLB) [April 14, 2021](https://twitter.com/xi_GLB/status/1382465813370662916?ref_src=twsrc%5Etfw)
-
-
-6. **`喜站推特`**：
-*参议院情报委员会听证会：世界五大邪恶集团中，中共是最大威胁，没有之一 
-参议员萨斯发言说，两党已经达成共识：所有的威胁都来自于习近平和中共，而不是中国人民。他号召两党一同向美国民众反反复复传播这一概念，让民众分清中共和中国人，认清中国人民是无辜的受害者 
-评:美情报大佬齐聚一堂所为何来*
-
-
-> 难道拜登学习了楚汉相争是的妙计：明修栈道，暗渡陈仓。看来拜登政府里的中国通很多。 [https://t.co/QbQdb70Xqz](https://t.co/QbQdb70Xqz)
-> — 墨博士 (@4RxMbPD3YbeN1fS) [April 14, 2021](https://twitter.com/4RxMbPD3YbeN1fS/status/1382479054780071944?ref_src=twsrc%5Etfw)
-
-
-7. **`墨博士推特`**：
-*（法广）拜登派克里去上海 派老友去挺台
-（墨博士）难道拜登学习了楚汉相争是的妙计：明修栈道，暗渡陈仓。看来拜登政府里的中国通很多*
-
-
-+1
+0

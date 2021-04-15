@@ -1,47 +1,84 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美媒发纳瓦罗专稿：国会定会彻查福奇博士
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1094979/)
+## 每日新闻收集【4/14】
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1095200/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+**西班牙巴塞罗那喜悦农场** wenwu
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/PF.jpg)myjoyonline.com
-皮特·纳瓦罗（ Peter Navarro）于4月 13日在《华盛顿时报》刊登名为《福奇博士是 “疫情之父 ” 吗？》的署名文章，预示着保守党已完全准备好正式揭开福奇与中共勾结通过生物基因工程制造人工编辑的功能增强病毒的内幕。或许，不久美国务院关于中共病毒来源真相的报告就会发布，而纳瓦罗先生的这篇文章很可能就是为该重磅报告的正式发布做舆论预热。
+由郭文贵先生和爆料革命战友掀起的【以毒灭共】运动。真相永远只有一个：中共制造了中共病毒和中共疫苗。以下7则推文借以分享：
 
-美国疾病控制和预防中心前主任罗伯特·雷德菲尔德博士（Robert Redfield）认为 SARS-CoV-2 病毒起源于武汉病毒研究所。
 
-如果雷德菲尔德博士是正确的–他几乎可以肯定是正确的–那么美国国家卫生研究院的福奇（Anthony Fauci）博士必须为这场疫情承担重大责任，这场大流行病已经导致 50 多万美国人死亡，将数千万美国人推到了失业的边缘，并让美国经损失了数万亿美元的财富。
 
-SARS-CoV-2 首次出现在 2019 年秋天，分布于中共国武汉海鲜市场和武汉病毒研究所几公里范围内。“海鲜市场”理论认为，感染病毒的动物个体在待宰杀、烹饪和食用过程中，经由中间动物宿主传染给人类。而“武汉实验室” 理论则假设病毒经由实验室逃逸出来。
+> 来自医生 [@richardursomd](https://twitter.com/richardursomd?ref_src=twsrc%5Etfw) 最新采访视频：
+> 羟氯喹可以阻止病毒的进入，并且可以使得病毒的生长非常缓慢，不能真正产生毒性很强的颗粒，长期服用羟氯喹基本等于打了疫苗，而且不仅对 [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) 有效，对所有的冠状病毒、流感都有效，这会摧毁整个疫苗市场甚至流感医药市场！
+> 这就是为什么羟氯喹被打压！ [pic.twitter.com/6Ss2Cto9BU](https://t.co/6Ss2Cto9BU)
+> — 黄鹤楼大厨（新） (@GuoWarriors7) [April 14, 2021](https://twitter.com/GuoWarriors7/status/1382332503839498243?ref_src=twsrc%5Etfw)
 
-“海鲜市场”理论有前例支持。中共国的首例 SARS 毒株 SARS-CoV-1，刚一发现就被迅速追溯定位到海鲜市场肉食果子狸处，因为在其体内发现了几乎相同的样本病毒。
 
-但是，当前在对数千只动物进行检测后，病毒学家仍未找到与今日在中共国发现的 SARS-CoV-2 病毒有关联的 “直系祖先”。因此，SARS-CoV-2 来自武汉海鲜市场的可能性极小。这就只剩下了“武汉实验室”理论。
+1. **`黄鹤楼大厨推特`**（附秘密翻译组视频）：
+*羟氯喹可以阻止病毒的进入，并且可以使得病毒的生长非常缓慢，不能真正产生毒性很强的颗粒，长期服用羟氯喹基本等于打了疫苗，而且不仅对 [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click) 有效，对所有的冠状病毒、流感都有效，这会摧毁整个疫苗市场甚至流感医药市场！ 这就是为什么羟氯喹被打压！*
 
-武汉病毒研究所的生物安全等级为 “P4”，这里存放着地球上最危险的病原体，包括致命的埃博拉病毒。但是，没有谁能确保 P4 级实验室就是 100%安全的，史上实验室泄露病原体的例子不胜枚举。
 
-因此，武汉实验室意外泄露 SARS-CoV-2 是完全合理的假设。考虑到美国国务院 2018 年曾预警武汉病毒研究所存在安全隐患和管理缺陷，有可能引发 “SARS 那样的全球疫情”，该假设理论尤为可信。（中共不能否认美国政府未曾发出预警的事实）。
+> 《外交政策》这篇文章很能反映舆论的变化：
+> 要把Covid19这样的流行瘟疫当作“大规模杀伤武器，如核扩散、化武”一样认真对待！
+> “take pandemic containment as seriously as we take other dangers of mass destruction, such as nuclear proliferation and chemical weapons.”[https://t.co/kHIgXD5eOY](https://t.co/kHIgXD5eOY)
+> — 德意志之鹰 (@dezying) [April 14, 2021](https://twitter.com/dezying/status/1382433110114062339?ref_src=twsrc%5Etfw)
 
-还有奥卡姆剃刀的逻辑。如果在亚洲唯一的生物武器研究实验室几公里范围内出现致命的病毒，根据奥卡姆剃刀理论，去繁就简的解释通常最接近事实。因此，结论就是 SARS-CoV-2 来自武汉实验室。
 
-还原事实真相是，SARS-CoV-2 与中华菊头蝠（horseshoe bats）身上发现的病毒最为相似，武毒所广泛收集了这些罕见的新型病毒。当确认许多样本毒株是由中共国号称“蝙蝠女” 石正丽带到武毒所的消息后，中共对整个事态发展失去了控制。在中共国政府对石女士封杀禁声之前，她曾表示担心病毒或许来自于她实验室的无意泄露。
+2. **`德意志之鹰推特`**：
+*要把Covid-19这样的流行瘟疫当作“大规模杀伤武器，如核扩散、化武”一样认真对待。附《外交政策》的**`新闻链接`***
 
-当谈及 SARS-CoV-2 是否有可能是基因工程项目的产物时，这种令人听起来毛骨悚然的科研计划就少不了要提及福奇博士。2017 年，在没有充分预警川普政府的情况下，福奇博士和他的美国国立卫生研究院的同事弗朗西斯·科林斯（Francis Collins）博士就重新授权中共国在武汉病毒研究所内展开所谓的病毒功能增强研究。
 
-“功能增强”是一种提高病毒致人类染病能力的基因工程编辑项目。因为病毒功能增强研究存在致命危险性，奥巴马政府 在 2014 年做出了限制此类实验的决定。但在推动功能增强研究的过程中，福奇和科林斯博士单方面裁撤了奥巴马政府划定的红线。
+> [#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw), 13 Apr, 2021
+> Bioweapon expert Dr. Hatfill: Gain-of-function experiment is perfect for bioweapon design. US didn’t use it for bioweapon, but China government did.[#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/IdQzsBbewj](https://t.co/IdQzsBbewj)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 14, 2021](https://twitter.com/DrLiMengYAN1/status/1382439148787748866?ref_src=twsrc%5Etfw)
 
-事实上，SARS-CoV-2 表现出几种非同寻常的功能特性，这表明该病毒已经被人为的基因工程编辑过。例如，与 SARS-CoV-1 和大多数其他病毒不同，SARS-CoV-2 的特点是高度的 “ 无症状传播”，这使得该病毒的传染性大大增强，因此也更加致命。
 
-高度的（区域化）非对等传播，表明此病毒有可能经过武器化编辑。而且，现在也观察到该病毒具有快速变异、变异后更加致命的特点，证明了以上猜测。在此，美国国务院透露，武汉病毒研究所自 2017 年起就开始与中共军方一起进行合作研究。就在同年，福奇和科林斯博士批准了武汉的功能增强研究立项。
+3. **`闫丽梦博士推特`**：
+*（转喜站）CNN的古普塔医生终于站到闫丽梦博士这边了！如果人们早听闫博士的，听郭文贵的，听战斗室的，中共这个跨国犯罪组织早就被灭了，几百万人也不会死，世界也不会变成现在这样*
+*生物武器专家哈特菲尔德说：「功能增强」是完美的生物武器技术——班农*
+*（闫回复）「功能增强」是完美的生物武器技术，美国没有使用这项生物武器技术，但中共国使用了*
 
-结论就是“福奇是（此次）疫情之父 ”。福奇博士的美国国立卫生研究院通过名为彼得·达扎克（ Peter Daszak）的邪恶之人拿美国纳税人的钱（大约 700 万美元）资助了武汉病毒实验室的研究。在全球大流行之前，达扎克先生本人也曾在武汉实验室吹嘘过病毒的基因工程项目。
 
-如果雷德菲尔德博士和奥卡姆剃刀是对的，果真是武汉病毒实验室研制了 SARS-CoV-2，那么历史将证明中共和福奇博士就是史上“脑回路最不正常”的两个人。如果他们不是脑子出了问题，必定是史上最具毁灭性的两个“好兄弟”。事实毫无争议，正是福奇博士资助了武汉病毒实验室，并亲手摘下了华府套在的病毒功能增强研究之上的“紧箍咒”。不久，美国国会必定会就此事展开彻底调查。
+> ⚡️国家情报总监海恩斯在参议院情报委员会听证时，正式确认中共实验室是病毒的两个可能来源之一
+> 这是美国高层情报官员第一次官方确认实验室来源的可能性
+> 中情局局长伯恩斯和军情领导人仲宗根将军说，正在利用一切可能的资源和方式彻查真相 [pic.twitter.com/z9e6EyL3VG](https://t.co/z9e6EyL3VG)
+> — 嘻禧僖囍 (@xi\_GLB) [April 14, 2021](https://twitter.com/xi_GLB/status/1382479373903622144?ref_src=twsrc%5Etfw)
 
-参考链接：
 
-[1] [Is Dr. Fauci the ’Father of the Pandemic?’ – Washington Times – 2021/04/14](https://www.washingtontimes.com/news/2021/apr/13/is-dr-fauci-the-father-of-the-pandemic/)
+4. **`喜站推特`**：
+*国家情报总监海恩斯在参议院情报委员会听证时，正式确认中共实验室是病毒的两个可能来源之一 
+这是美国高层情报官员第一次官方确认实验室来源的可能性 中情局局长伯恩斯和军情领导人仲宗根将军说，正在利用一切可能的资源和方式彻查真相*
 
-0
+
+> Conspiracy theory no more: DNI reveals coronavirus leak from Chinese lab is one of two theories adopted by US intelligence analysts on the origin of the Covid-19 pandemic [https://t.co/QhOEAPqwvp](https://t.co/QhOEAPqwvp)
+> — Bill Gertz (@BillGertz) [April 14, 2021](https://twitter.com/BillGertz/status/1382380043129737216?ref_src=twsrc%5Etfw)
+
+
+5. **`比尔·格茨推特`**：
+*阴谋论不再存在：美国国家情报总监海恩斯，中共国实验室泄露冠状病毒是美国情报分析师关于新冠病毒疫情起源的两种理论之一。附《华盛顿时报》**`新闻链接`***
+
+
+> 参议院情报委员会听证会：世界五大邪恶集团中，中共是最大威胁，没有之一
+> 参议员萨斯发言说，两党已经达成共识：所有的威胁都来自于习近平和中共，而不是中国人民。他号召两党一同向美国民众反反复复传播这一概念，让民众分清中共和中国人，认清中国人民是无辜的受害者
+> 评:美情报大佬齐聚一堂所为何来 [pic.twitter.com/v5noeZrjb7](https://t.co/v5noeZrjb7)
+> — 嘻禧僖囍 (@xi\_GLB) [April 14, 2021](https://twitter.com/xi_GLB/status/1382465813370662916?ref_src=twsrc%5Etfw)
+
+
+6. **`喜站推特`**：
+*参议院情报委员会听证会：世界五大邪恶集团中，中共是最大威胁，没有之一 
+参议员萨斯发言说，两党已经达成共识：所有的威胁都来自于习近平和中共，而不是中国人民。他号召两党一同向美国民众反反复复传播这一概念，让民众分清中共和中国人，认清中国人民是无辜的受害者 
+评:美情报大佬齐聚一堂所为何来*
+
+
+> 难道拜登学习了楚汉相争是的妙计：明修栈道，暗渡陈仓。看来拜登政府里的中国通很多。 [https://t.co/QbQdb70Xqz](https://t.co/QbQdb70Xqz)
+> — 墨博士 (@4RxMbPD3YbeN1fS) [April 14, 2021](https://twitter.com/4RxMbPD3YbeN1fS/status/1382479054780071944?ref_src=twsrc%5Etfw)
+
+
+7. **`墨博士推特`**：
+*（法广）拜登派克里去上海 派老友去挺台
+（墨博士）难道拜登学习了楚汉相争是的妙计：明修栈道，暗渡陈仓。看来拜登政府里的中国通很多*
+
+
++1

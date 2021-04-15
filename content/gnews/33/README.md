@@ -1,15 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月14日 文贵先生盖特 7
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1094686/)
+## 美情报称朝鲜今年可能恢复核试验
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1094877/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+俄罗斯莫斯科喀秋莎农场   银河
 
-4月14日：凡帝岗．世界宗教中心的真正的沼泽的主人之一．宗教界的王岐山．凡帝岗与中共交易的推动者PIETRO……出大事啦……跟着共产党走进火葬场！ [https://www.washingtontimes.com/news/2021/apr/13/is-dr-fauci-the-father-of-the-pandemic/](https://www.washingtontimes.com/news/2021/apr/13/is-dr-fauci-the-father-of-the-pandemic/)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1e3d7193fd9fb3e720c9dc12e68f3a7f.jpg)
-[【2021年4月14日】文贵先生盖特原文](https://gtv.org/getter/60772dbf51632a0de7b935be)
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/NK.jpg)peopleandpowerngr.com
+来自The Defense Post的报道，美国情报专家在周二发布的一份报告中表示，朝鲜可能会在今年恢复核试验，以迫使拜登政府与之展开对话。
 
-**喜联盟Gnews编辑部**
+“朝鲜领导人金正恩可能会采取一些具有侵略性和潜在破坏稳定的行动来重塑地区安全环境，并在美国及其盟友之间制造隔阂，包括恢复核武器和洲际弹道导弹(ICBM)试验。”美国国家情报总监办公室在一份解决美国在世界各地面临的威胁的报告中表示。
+
+报告称，“我们评估认为，金正恩将核武器视为对外国干预的终极威慑，并相信随着时间的推移，他将获得国际社会作为核大国的接受和尊重。”“金正恩可能正在考虑今年恢复远程导弹或核试验，试图迫使美国按照平壤的条件与他打交道。”
+
+这份27页的报告还谈到了伊朗的核项目，预计伊朗星期二将宣布开始进行纯度高达60%的铀浓缩活动。这将使朝鲜更接近用于制造核武器的铀含量达到90%的门槛。
+
+报告说，“我们继续评估，伊朗目前没有进行我们认为制造核装置所必需的关键核武器开发活动。”“如果伊朗不能获得解除制裁的机会，伊朗官员可能会考虑多种选择，从进一步浓缩高达60%的铀，到设计和建造一个新的40兆瓦的重水反应堆。”
+
+伊朗和朝鲜作为中共同盟，正持续对美国施压以试图增加国际话语权。
+
+参考链接：
+
+[https://www.thedefensepost.com/2021/04/14/north-korea-could-resume-nuclear-tests/](https://www.thedefensepost.com/2021/04/14/north-korea-could-resume-nuclear-tests/)
 
 0

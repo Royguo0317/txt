@@ -1,80 +1,93 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.9.2021PM-战略竞争法案包含病毒来源真相调查
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1095222/)
+## “掀锅盖”系列：201210412大佬们后悔跟中共走太近，唯有灭共才最精彩
+` 《爆料贵语--掀郭盖》NZ` [轉載自GNews](https://gnews.org/zh-hans/1095446/)
 
-视频剪辑 : Ablec(文A)
-中听校： 洛杉矶天使农场 – 雨山溪桥客
-英翻译：洛杉矶天使农场 –Arthur文徐
-英校对：洛杉矶天使农场 – 烟波浩淼
-字幕+视频制作：意大利达芬奇农场 – 紫苏花生
+郭先生口述内容：
 
-**路德**
-今天早上我们提到的2021年战略竞争法案
-We mentioned the 2021strategic competition bill
-里面有重要的内容，现在我们已经拿到了全文啊
-It contains very important information, now we have the full text
-而且全文里面关于这个病毒来源的报告
-It has full report about the origin of CCP-virus
-这里面信息太重要了
-This information is critical
-要求在180天一定要递交给国会一份关于新冠病毒来源的报告
-It requests a full COVID19 report to be provided to the congress
-这里面等等啊还有很多信息
-It contains very critical information
-包括对中共的实验室泄漏和造假信息等等都要彻查
-Including thorough investigation about CCP lab leakage and misinformation
-这里面包含的这些信息，我待会说这里面有故事的啊
-As for the information in the report, I will share the story with you guys later
-这情报口提交就可以了，不需要司法认定
-All is needed is information from the intelligence bureaus, not need for court confirmation
-只需要情报提交，大家有没有觉得这个玩法和当年伊拉克那个很像
-Just intelligence, don’t you guys think this is rather similar to the trick played on Iraq war?
-bo博士，是不是？
-Dr. Bo don’t you think so?
-那瓦罗前几天3月31日敢说闫博士的报告太棒了
-Peter Nevero said on March 31, Dr Yan’s report was brilliant
-说明这所有的已经做好了
-Indicating all of this is ready
+啊前天晚上我跟一个基金大佬
 
-**博博士**
-我有种感觉，这个报告已经写好了，就等着出来！
-I feel this report is ready and can be published any moment
+这个老头子这个是不行了
 
-**路德**
-就等着！说白了就等着两党来共同走流程
-Just wait! Basically, just waiting for both parties go through the procedure together
-更重要的是中共如何阻挠对新冠病毒调查
-More importantly, no matter how CCP try to impede the investigation on the COVID19 包括实验室泄漏，制造各种假信息
-Including lab leakage, and all kinds of misinformation
-所有的报告其实就是超限生物武器的一个报告
-All the reports is basically a report about this unrestricted bioweapon
-这个超限生物武器包括什么？
-what does this unrestricted bioweapon include?
-是不是，包括你如何搅混水，事后搅混水，这都要调查出来
-Right? Including CCP’s attempt to stir up the water, all will be investigated
-最重要的是赵立坚，外交部的赵立坚质问为何美国满世界建造这么多实验室
-More importantly, Zhao Lijiang from CCP foreign ministry questioned US about building all that many labs in the world
-你看，他说的话说为何美国独家反对禁止生物武器公约？
-He was question, why US is against bills to ban bioweapon?
-我们昨天做节目说这个大规模杀伤性武器
-Yesterday, we talked in our show about this mass destruction weapon
-中共违反了大规模杀伤性里面主要提的就是生物武器
-The CCP violated the MDW, the most important part is bioweapon
-中共现在反过来反咬一口
-Now, CCP is backfiring
-这个是赵立坚说的，拜登小布什当时一起灭萨达姆，一样的
-What Zhao Lijiang said, Biden and Bush Jr. when they work together to take down Sadam, it was the same trick
-是不是，外交关系委员会，也是，你只要情报口确认
-Isn’t that correct, council of foreign relations, the same situation, all you need is intelligence confirmation
-得到这个结论就可以了这里面包含的信息量太大了
-And come to this conclusion, it contains too much information
-所以我一看到这个的时候
-So, when I saw this
-咋们的莱昂纳多太棒了就把这个部分找出来
-Leo did a great job
-大家看原文在这里，大家可以自己去翻，214项
-The original document is here, you guys can do your translation, it has 214 pages
+他现在他发现他觉得
+
+以后他的人生中
+
+这个污点就是跟中共的合作
+
+我说你的家族
+
+永远走到全世界都抬不起头来
+
+因为你给中共太近了
+
+就像当年你在二战前的德国
+
+和日本的帝国做过生意
+
+你跟日本的军人和德国的希特勒纳粹做过生意
+
+你家好意思说吗
+
+你不好意思说
+
+他说这个共产党被列为
+
+种族大屠杀反人类罪以后
+
+还有冠状病毒的发生和香港事件的发生
+
+他说我感觉到这个可能真让你说对了
+
+这老人家就像这样一样
+
+快走了现在要等着说多让我活上一年
+
+看看共产党的结局
+
+就像一个某个人加州的人
+
+过世前给我打电话说
+
+Miles我最最一生后悔的
+
+就是跟共产党走的太近了
+
+而这么多年我竟然宣传毛泽东
+
+我想告诉战友们的事情
+
+不要浪费生命
+
+只有一件事情是最伟大的事业
+
+灭共
+
+我们这一辈子活着
+
+可悲的事情遇到了共产党
+
+可幸的事情是我们去灭共产党
+
+没有比我们再精彩的
+
+\*所有经过节选，编辑和剪辑的简报和视频形式仅供留存及传播，分享信息！
+
+\*所有信息以郭文贵先生源盖特视频和直播视频为准！
+
+听写整理：作而无作
+
+翻译：Kazusa（文紗）
+
+校对：SugarPup
+
+视频制作：农夫
+
+审核：掀锅盖组
+
+上传：糊糊文婴
+
+文贵先生盖特
 
 0

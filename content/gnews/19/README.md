@@ -1,306 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第四节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1094936/)
+## 百姓挨饿 粮商破财即将来临——评《粮食流通管理条例》修订的真正意图
+` 喜韩Gnews中文` [轉載自GNews](https://gnews.org/zh-hans/1095081/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**作者：首尔喜韩农场  DS  配图：喜韩闪闪**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/IMG_2436.jpg)
+为了便于墙内传播，减少敏感字，把\*\*党称为马劣帮派，简称马帮。
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/UA.jpg)technewsworld.com
-**本节要点**：
+《粮食流通管理条例》已经2021年1月4日国务院第121次常务会议修订通过，2月15日发文，4月8日公布，4月15日起施行。
 
-美国的政治制度和国家力量的主要基础，是建立在与中共国进行长期的政治、经济、技术和军事方面的竞争。
+4月8日国务院政策例行吹风会，国家粮食和物资储备局副局长黄炜表示，条例修订主要内容如下：
 
-中共国既不能控制印太地区，也不能胁迫邻国。
+1、严格规范政策性粮食经营活动。
 
-美国的盟友保持信心，能够抵御和打击中共国的颠覆和不当的影响。
+2、取消粮食收购资格行政许可，加强事中、事后监管。
 
-美国及其盟国的综合实力足以向中共国表明，企图统治其他国家的风险大于潜在的利益。
+3、强化粮食质量安全监管。
 
-确保CCP不能：颠覆开放和民主的社会，扭曲全球市场，操纵国际贸易体系，经济、军事手段胁迫他国等。
+4、防止和减少粮食损失浪费。
 
-最大限度地发挥美国的优势，增加中共国损害美国及伙伴利益和价值念的成本。
+5、加大对违法行为的惩处力度。
 
-使美国大学和其他学术机构、州和地方立法者，能够识别并保持警惕，中共在美国的不当影响所带来的风险。
+6、明确监督管理职责。“粮食安全党政同责”首次写入我国法规。
 
-追究中共国政府的责任：侵犯和践踏人权，对宗教习俗的限制，破坏和废除与人权有关的条约、其他国际协定和其他国际规范。
+从黄炜的发言来看，讲的没问题，但，马帮的本性是基本不说实话，这次，虽然没说谎，但却是避重就轻，需要深入分析。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/IMG_2448-scaled.jpg)
+**一、公布条例的时机很敏感，说明他们意识到形势不妙了。**
 
-揭露中共国利用腐败、镇压、胁迫和其他恶意行为，获取不公平的经济利益。
+此条例于1月初完成，却拖了三个月才发布，距离条例生效只有一个星期，不给条例涉及到的各相关方充分的准备时间，非常反常，这说明修改的内容影响很大，不到万不得已，马帮是不会实施的。
 
-削弱解放军在第一岛链和第二岛链内投射力量和建立争议区域的能力。
+那是什么原因逼马帮紧急推出新条例呢？
+![]()![](https://gnews.org/wp-content/uploads/2021/04/IMG_2433-scaled.jpg)
+1. **白等时代的米国让马帮真的白等了。**
 
-削弱解放军对邻国的胁迫能力。
 
-欲了解更多的内容，请看本节全文（仅供参考）。
+马帮有白等儿子的小辫子，以为可以遥控白等，但白等只在形式上和口头上给了马帮一点面子，比如阿拉斯加会谈任由中方代表教训了10多分钟，给足了中方面子，而在立法和制裁行动上，则比川普还要狠，比如继续执行川普的对华关税政策、制裁7家中国超级计算中心（这是向病毒追究责任的信号，因为这7家参与了病毒的模型设计），这令马帮感到真的白等了，那么以后外汇来源就基本会枯竭，而大量的粮食进口需求则无法满足，因此必须马上控制国内粮食的分配权，否则马帮的家奴——公检法和军人就会因挨饿而不听指挥。
 
-**第4节 政策声明**
+- **以病毒和毒疫苗消灭人口的计划未达目标。**
 
-**（a）目标–在与中共国进行战略竞争时，美国的政策是追求以下目标：**
 
-（1）美国的全球领导作用是持续的，其政治制度和国家力量的主要基础，建立在就政治、经济、技术和军事领域与中共国长期竞争的状态下。
+本来马帮偷偷发动病毒生化战争，又用毒疫苗二次进攻，在WHO谭书记和福奇等同志的配合下，即将控制全世界，哪想到上天安排了闫博士挺身而出，通过郭先生成立的法治基金、法治社会和暴料革命路德社及时向全世界预警，揭开马帮的毒计，导致马帮消灭人口、减少粮食需求和养老金需求的计划失败，因此在无法扭转中米关系的情况下，只有控制国内的资源来确保镇权的稳定。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/IMG_2446-scaled.jpg)
+**二、条例取消粮食收购资格行政许可，将使大量新进入的粮商被割韮菜，还有可能替马帮背锅。**
 
-（2）印度洋-太平洋地区的力量平衡仍然有利于美国及其盟国，美国及其盟国保持不受限制地进入该地区，包括通过航行自由和商业自由流动，符合国际法和国际惯例，中共国既不能控制该地区，也不能胁迫邻国。
+以前经营粮食，需要许可证，马帮控制许可证的审批权，虽然能权力寻租，但仍然有很多资金无法进入粮食经营领域，此次放开许可，在2020年粮价上涨的驱动下，会有不少资金进来，但新增资金不会注意新条例给了党政一把手采取粮食应急机制的权力，第三十五条规定：粮食应急预案启动后，粮食经营者必须按照国家要求承担应急任务，服从国家的统一安排和调度，保证应急的需要。
 
-（3）美国的盟友和伙伴–
-（A）对美国的领导及其对印太地区的承诺保持信心
-（B）能够抵御和打击中共国的颠覆和不当的影响
-（C）与美国结盟，制定有利于国际社会的全球规则、规范和标准
+服从国家的统一安排和调度，就是说，马帮可以依法使用粮商的粮食，粮商无权要求自身的权益，因为条例没说有偿调度！
 
-（4）美国及其盟国和伙伴的综合实力足以向中共国表明，企图统治其他国家的风险大于潜在的利益。
+取消许可证，万一控制不住粮价或粮食供给不足而引起民愤，马帮还可以把责任转移到经销商头上，由他们背锅。
 
-（5）美国领导着自由和开放的国际秩序，这一秩序由坚忍的国家和机构建立，这些国家和机构坚持和捍卫包括主权、法治、个人自由和人权在内的原则，国际秩序得到加强，以挫败不自由和独裁者破坏稳定的企图。
+**三、粮商想赚大钱？没门！**
 
-（6）21世纪国际交往的主要规则、规范和标准得以维持，包括–
-（A）保护人权、商业参与、投资以及技术
-（B）这些规则、规范和标准符合美国、其盟国和伙伴以及自由世界的价值观和利益
+受天气影响和病毒的大流行，国际粮价大幅上涨，因此不少粮商期望能在粮市大赚一笔。但条例第五条规定：粮食经营活动不得损害国家利益和社会公共利益。第十六条规定：销售粮食，不得囤积居奇、垄断或者操纵粮食价格、欺行霸市。
 
-（7）确保中共不能–
-（A）颠覆开放和民主的社会
-（B）扭曲全球市场
-（C）操纵国际贸易体系
-（D）以经济、军事手段胁迫他国
-（E）或者利用其技术优势损害个人自由或其他国家的国家安全利益
+根据这二条，马帮可以把粮商的超额利润随意拿走！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/IMG_2447-scaled.jpg)
+**四、即使粮食紧缺，农民也要交粮，也不会有高价售粮的机会！**
 
-（8）美国会阻止与中共国的军事冲突，两国都致力于降低冲突风险。
+第二十九条规定：必要时可由国务院……对重点粮食品种在粮食主产区实行政策性收储。当粮食价格显著上涨或者有可能显著上涨时，国务院……采取价格干预措施。
 
-**（b）政策–为了实现（a）小节中规定的目标，美国的政策是：**
+政策性收储，意味着即使粮食紧缺，你们农民也要交出粮食！如果粮价贵了，马帮要干预，农民的收入不会提高的。
 
-（1）通过在市场经济增长、教育、科技创新、民主制度等领域进一步加强美国国内基础建设，提高美国追求其重要的经济、外交政策和国家安全利益的能力。
+根据上述分析可知，大墙国粮食紧缺是早晚的事，即使粮价不上涨，普通老百姓也买不到足够的粮食。所以现在但凡你心里有一点点的疑惑的，就抓紧时间存粮吧！
 
-（2）在政治、外交、经济、发展、军事、信息和技术领域推行与中共国的战略竞争方略，最大限度地发挥美国的优势，增加中共国损害美国和美国盟国及伙伴利益和价值观的成本。
+【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-（3）领导一个自由、开放和安全的国际体系，其特点是不受胁迫、法治、开放市场和商业自由流动，共同致力于安全与和平解决争端、人权以及良好和透明的治理。
+【**责任编辑**】：韩国首尔喜韩农场Gnews中文小组
 
-（4）加强和深化美国的联盟和伙伴关系，优先考虑印度洋-太平洋和欧洲，采取更大的双边和多边合作举措，促进共同利益和价值观，增强伙伴国家的信心，即美国现在是，并将继续是一个强大、坚定的国家，和可靠的合伙人。
+### **欢迎战友加入韩国首尔喜韩农场**
 
-（5）鼓励和帮助美国的盟国和伙伴提高自己的能力和复原力，以追求、捍卫和保护共同的利益和价值观，免受胁迫和外部压力。
+[韩国首尔农场 **GTV**](https://gtv.org/user/5ec1f79982e098349fd799ad)
 
-（6）在美中经济关系中寻求公平、互惠待遇和健康的竞争–
-（A）推进政策，加强美国经济，反对不公平和非法的商业或贸易行为，和对美国企业的胁迫
-（B）必要时收紧美国法律法规，防止中共国试图损害美国经济竞争力
+[韩国首尔喜韩农场 **Discord**](https://discord.gg/Z8jENsM)
 
-（7）展示全球新兴市场中私营企业主导增长的价值，包括通过使用美国政府工具–
-（A）支持更多的私营部门投资，推进以法治为基础的能力建设的举措
-（B）促进开放市场
-（C）建立明确的政策和监管框架
-（D 加强重点经济部门管理
-（E）打击腐败
-（F）促进和支持与伙伴国和美国私营部门加强合作，发展安全和可持续的基础设施
-（8）带头推动国际规则和规范的发展，以促进自由和互惠贸易以及开放和一体化的市场。
-
-（9）积极开展商业外交，支持美国公司和伙伴国寻求公平竞争的企业。
-
-（10）通过以下措施，确保美国在关键和新兴技术的创新方面处于领先地位，如下一代电信、人工智能、量子计算、半导体和生物技术–
-（A）为私营部门提供必要的投资和具体的激励措施，以加速此类技术的发展
-（B）使盟国和伙伴的出口管制和投资筛选制度及相关政策和条例现代化并与之协调
-（C）加强美国在技术标准制定机构和途径中的领导地位，以制定有关使用新兴关键技术的规范
-（D）减少美国的壁垒，增加与盟国和合作伙伴在关键技术研究和共同开发方面的合作激励
-（E）通过以下措施，与盟国和合作伙伴合作，保护关键技术–
-（i）制定多边出口管制措施
-（ii）国防技术安全能力建设
-（iii）保护供应链中的瓶颈
-（iv）确保多样化
-（F）设计向盟国和伙伴出口的主要防御能力
-
-（11）使美国人民，包括私营部门、民间社会、大学和其他学术机构、州和地方立法者，以及其他相关行为者，能够识别并保持警惕，中共在美国的不当影响所带来的风险。
-
-（12）采取措施减轻第（11）款所述风险，同时仍保留在美国和中共国共同利益的其他领域进行经济接触、学术研究和合作的机会。
-
-（13）与先进的民主国家和其他愿意合作的伙伴合作，促进以下理念和原则–
-（A）推进自由开放的国际秩序
-（B）加强民主体制
-（C）保护和促进人权
-（D）坚持新闻自由和实事求是的报道
-
-（14）在联合国及其联系机构和其他多边组织发挥有效的领导作用，并捍卫这些组织的完整性，防止不自由和独裁国家的合作。
-
-（15）在美国与中共国的关系中优先捍卫基本自由和人权。
-
-（16）与盟国、合作伙伴和多边组织合作，利用其重要和不断增长的能力，建立一个志同道合的国家网络，以维持和加强自由和开放的秩序，应对地区和全球挑战，追究中共国政府的责任–
-（A）侵犯和践踏人权
-（B）对宗教习俗的限制
-（C）破坏和废除与人权有关的条约、其他国际协定和其他国际规范
-
-（17）揭露中共国利用腐败、镇压、胁迫和其他恶意行为，获取不公平的经济利益，尊重其他国家的政治和战略目标重点。
-
-（18）维持美国进入西太平洋，包括–
-（A）增加美国在印太地区前沿部队的部署
-（B）通过对现有以及新平台，新兴技术，关键的战区武装结构和调配能力、联合作战概念以及多样化、作战弹性和政治可持续态势的投入，实现美国军队的现代化
-（C）与盟国和合作伙伴进行演习–
-（i）削弱人民解放军在第一岛链和第二岛链内投射力量和建立争议区域的能力
-（ii）削弱人民解放军对邻国的胁迫能力
-（iii）特别是在台湾海峡、东海和南中国海，保持海上和空中航道的畅通
-（iv）从美国及其盟国和合作伙伴那里投射力量，以展示赢得胜利的组织能力
-
-（19）从以下方面阻止中共国–
-（A）按照2018年国防战略的要求，敦促印太国家，包括发展更具战斗力的可靠部队，这些部队在接触、冲锋和增援层面由盟国和伙伴综合在一起，能够粉碎中共国在西太平洋第一或第二岛链及其后的任何胜利的企图
-（B）在武装冲突程度以下使用灰色地带的战术
-（C）或挑起武装冲突
-
-（20）加强美国与中共军方之间的沟通，改进降级程序，以消除冲突，降低意外冲突的风险，包括通过高层访问和军民官员之间的经常性交流，以及符合美国利益的其他措施。
-
-（21）在利益一致的情况下与中共国合作，包括通过双边或多边方式，并酌情在联合国进行合作。
-（第4节完）
-
-这是《2021战略竞争法案》在政策层面应对中共的措施，可以肯定，没有文贵先生引领的爆料革命，国会山的立法者很难提出这样的目标，以及相应措施。
-
-原文链接：
-
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
-
-文字整理：
-
-SEC. 4. STATEMENT OF POLICY.
-
-(a)        OBJECTIVES. – It is the policy of the United States, in pursuing strategic competition with the PRC, to pursue the following objectives:
-
-(1) The United States global leadership role is sustained and its political system and major foundations of national power are postured for long-term political, economic, technological, and military competition with the PRC.
-
-(2) The balance of power in the Indo-Pacific remains favorable to the United States and its allies. The United States and its allies maintain unfettered access to the region, including through freedom of navigation and the free flow of commerce, consistent with international law and practice, and the PRC neither dominates the region nor coerces its neighbors.
-
-(3) The allies and partners of the United States –
-
-(A) maintain confidence in United States leadership and its commitment to the Indo-Pacific region; (B) can withstand and combat subversion and undue influence by the PRC; and
-
-(C) align themselves with the United States in setting global rules, norms, and standards that benefit the international community.
-
-(4) The combined weight of the United States and its allies and partners is strong enough to demonstrate to the PRC that the risks of attempts to dominate other states outweigh the potential benefits.
-
-(5) The United States leads the free and open international order, which is comprised of resilient states and institutions that uphold and defend principles, including sovereignty, rule of law, individual freedom, and human rights. The international order is strengthened to defeat attempts at destabilization by illiberal and authoritarian actors.
-
-(6) The key rules, norms, and standards of international engagement in the 21st century are maintained, including the –
-
-(A) protection of human rights, commercial engagement and investment, and technology; and 22 (B) that such rules, norms, and standards are in alignment with the values and interests of the United States, its allies and partners, and the free world.
-
-(7) Assure that the CCP does not –
-
-(A) subvert open and democratic societies;
-
-(B) distort global markets;
-
-(C) manipulate the international trade system;
-
-(D) coerce other nations via economic and military means; or
-
-(E) use its technological advantages to undermine individual freedoms or other states’ national security interests.
-
-(8) The United States deters military confrontation with the PRC and both nations work to reduce the risk of conflict.
-
-(b) POLICY. -It is the policy of the United States, in pursuit of the objectives set forth in subsection (a) –
-
-(1) to strengthen the United States domestic foundation by reinvesting in market-based economic growth, education, scientific and technological innovation, democratic institutions, and other areas that improve the United States ability to pursue its vital economic, foreign policy, and national security interests;
-
-(2) to pursue a strategy of strategic competition with the PRC in the political, diplomatic, economic, development, military, informational, and technological realms that maximizes United States strengths and increases the costs for the PRC of harming United States interests and values of those of United States allies and partners;
-
-(3) to lead a free, open, and secure international system characterized by freedom from coercion, rule of law, open markets and the free flow of commerce, and a shared commitment to security and peaceful resolution of disputes, human rights, and good and transparent governance;
-
-(4) to strengthen and deepen United States alliances and partnerships, prioritizing the Indo-Pacific and Europe, by pursuing greater bilateral and multilateral cooperative initiatives that advance shared interests and values and bolster partner countries’ confidence that the United States is and will remain a strong, committed, and constant partner;
-
-(5) to encourage and aid United States allies and partners in boosting their own capabilities and resiliency to pursue, defend, and protect shared interests and values, free from coercion and external pressure;
-
-(6) to pursue fair, reciprocal treatment and healthy competition in United States-China economic relations by –
-
-(A) advancing policies that harden the United States economy against unfair and illegal commercial or trading practices and the coercion of United States businesses; and
-
-(B) tightening United States laws and regulations as necessary to prevent the PRC’s attempts to harm United States economic competitiveness;
-
-(7) to demonstrate the value of private sector-led growth in emerging markets around the world, including through the use of United States Government tools that –
-
-(A) support greater private sector investment and advance capacity-building initiatives that are grounded in the rule of law;
-
-(B) promote open markets;
-
-(C) establish clear policy and regulatory frameworks;
-
-(D) improve the management of key economic sectors;
-
-(E) combat corruption; and
-
-(F) foster and support greater collaboration with and among partner countries and the United States private sector to develop secure and sustainable infrastructure;
-
-(8) to lead in the advancement of international rules and norms that foster free and reciprocal trade and open and integrated markets;
-
-(9) to conduct vigorous commercial diplomacy in support of United States companies and businesses in partner countries that seek fair competition;
-
-(10) to ensure that the United States leads in the innovation of critical and emerging technologies, such as next-generation telecommunications, artificial intelligence, quantum computing, semiconductors, and biotechnology, by –
-
-(A) providing necessary investment and concrete incentives for the private sector to accelerate development of such technologies;
-
-(B) modernizing and harmonizing with allies and partners export controls and investment screening regimes and associated policies and regulations;
-
-(C) enhancing United States leadership in technical standards-setting bodies and avenues for developing norms regarding the use of emerging critical technologies;
-
-(D) reducing United States barriers and increasing incentives for collaboration with allies and partners on the research and codevelopment of critical technologies;
-
-(E) collaborating with allies and partners to protect critical technologies by –
-
-(i) crafting multilateral export control measures;
-
-(ii) building capacity for defense technology security;
-
-(iii)safeguarding chokepoints in the supply chains; and
-
-(iv)ensuring diversification; and
-
-(F) designing major defense capabilities for export to allies and partners;
-
-(11) to enable the people of the United States, including the private sector, civil society, universities and other academic institutions, State and local legislators, and other relevant actors to identify and remain vigilant to the risks posed by undue influence of the CCP in the United States;
-
-(12) to implement measures to mitigate the risks referred to in paragraph (11), while still preserving opportunities for economic engagement, academic research, and cooperation in other areas where the United States and the PRC share interests;
-
-(13) to collaborate with advanced democracies and other willing partners to promote ideals and principles that –
-
-(A) advance a free and open international order;
-
-(B) strengthen democratic institutions;
-
-(C) protect and promote human rights; and
-
-(D) uphold a free press and fact-based reporting;
-
-(14) to demonstrate effective leadership at the United Nations, its associated agencies, and other multilateral organizations and defend the integrity of these organizations against co-optation by illiberal and authoritarian nations;
-
-(15) to prioritize the defense of fundamental freedoms and human rights in the United States relationship with the PRC;
-
-(16) to cooperate with allies, partners, and multilateral organizations, leveraging their significant and growing capabilities to build a network of like-minded states that sustains and strengthens a free and open order and addresses regional and global challenges to hold the Government of the PRC accountable for –
-
-(A) violations and abuses of human rights;
-
-(B) restrictions on religious practices; and,
-
-(C) undermining and abrogating treaties, other international agreements, and other international norms related to human rights;
-
-(17) to expose the PRC’s use of corruption, repression, coercion, and other malign behavior to attain unfair economic advantage and deference of other nations to its political and strategic objectives;
-
-(18) to maintain United States access to the Western Pacific, including by-
-
-(A) increasing United States forward-deployed forces in the Indo-Pacific region;
-
-(B) modernizing the United States military through investments in existing and new platforms,
-
-emerging technologies, critical in-theater force structure and enabling capabilities, joint operational concepts, and a diverse, operationally resilient and politically sustainable posture; and
-
-(C) operating and conducting exercises with allies and partners –
-
-(i) to mitigate the PLA’s ability to project power and establish contested zones within the First and Second Island Chains;
-
-(ii) to diminish the ability of the PLA to coerce its neighbors;
-
-(iii) to maintain open sea and air lanes, particularly in the Taiwan Strait, the East China Sea, and the South China Sea; and
-
-(iv) to project power from the United States and its allies and partners to demonstrate the ability to conduct contested logistics;
-
-(19) to deter the PRC from –
-
-(A) coercing Indo-Pacific nations, including by developing more combat-credible forces that are integrated with allies and partners in contact, blunt, and surge layers and able to defeat any PRC theory of victory in the First or Second Island Chains of the Western Pacific and beyond, as called for in the 2018 National Defense Strategy;
-
-(B) using gray-zone tactics below the level of armed conflict; or
-
-(C) initiating armed conflict;
-
-(20) to strengthen United States-PRC military to-military communication and improve de-escalation procedures to deconflict operations and reduce the risk of unwanted conflict, including through high level visits and recurrent exchanges between civilian and military officials and other measures, in alignment with United States interests; and
-
-(21) to cooperate with the PRC if interests align, including through bilateral or multilateral means and at the United Nations, as appropriate.
+[韩国首尔喜韩农场 **Youtube**](https://www.youtube.com/channel/UCdxCALFQp1y1fo29gR1rEQQ)
 
 0
