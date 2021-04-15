@@ -1,31 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：日本可果美公司停止从新疆地区进口西红柿酱
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1095263/)
+## 【老江观点】—150万美元，我哭了……
+` Laojiang` [轉載自GNews](https://gnews.org/zh-hans/1095226/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
+150万美元，计185万加元，在加拿大能买到什么样的房子？  如下图中所示，这是现在在出售的一套房子，7个卧室6个卫生间，电影院、健身房、会议室、几个小的独立办公室、室外泳池，单独的大车库，精装修，电器齐全，包括炉灶、电烤箱、洗碗机、3套洗衣机和烘干机，全套的洗浴设施、整间的衣帽间……（搞得好像我是卖房子的似的），实际面积643平米，如图6430平方英尺，占地1.31公顷，永久产权哦。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-3.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-4.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-5.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-6.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-9.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-11.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-12.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-19.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-16.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-17.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-23.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-24.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-25.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-27.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-28.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-29.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-30.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-14-at-9.15.30-PM.jpeg)
+150万人民币在牛X国能买什么房子，我不好意思往上贴图，寒碜丢不起人，一个80平米的鸽子笼，还是什么建筑面积，有至少25平米的“公摊”面积含在内，70年使用权，没有装修……也许你要说，这不公平，150万美元等于1000多万人民币呢。 1000万人民币在牛X国能买什么房子？ 如下图，200平米？ 建筑面积？70年产权？没有装修没有电器的空壳？没有室外私属设施？说强拆就强拆，管你装修往里搭了多少钱……我没有说错吧。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b1.png)![]()![](https://gnews.org/wp-content/uploads/2021/04/b2.png)![]()![](https://gnews.org/wp-content/uploads/2021/04/d1.png)
+更何况，在海外赚150万美元付出劳动，和在牛X国赚150万冥币付出的劳动和时间是差不多的，人家还有医保、退休保、各种福利保……简单说，同样的付出，中共国老百姓付出的甚至更多，得到的回报确实差距如此之大，创造的财富哪里去了？ 答案不言而喻，都被中共贪官抢夺去了，给这些畜生的家人拿到海外消费了。
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/image002-25.jpg)
+说到这里，牛X国的同胞们，你们还相信“爹亲娘亲不如党亲”的谎言吗？ 还相信中共这个骗子流氓集团“一切为了人民”“爱党就是爱国”的洗脑骗术吗？
 
-据网易报导，日本“西红柿酱之王”可果美（Kagome）已经停止进口中国新疆的西红柿。因为中共虐待新疆穆斯林的指控，越来越多西方品牌停止从新疆采购产品。此前，H&M、耐克等国际服装企业因抵制新疆棉花声明，被中共的官媒利用此事件肆意抹黑，中共煽动所谓的民族情绪，用不对称信息洗脑大陆民众，营造出一种“全民抵制”的氛围。
+对比一下，同样的辛苦劳动，同样的一生，我们的父辈祖辈，受共产党盘剥和奴役，却从来没有机会享受到150万的房子，我真的哭了，为我自己可怜的父母，还有同样为党为国奉献一生仍然偏安与不到50平米的小楼房里，临老患重病却付不起医疗费的岳父岳母……
 
-日本可果美周三表示，已停止从中国新疆地区采购西红柿酱，此举正值欧美公司对新疆维吾尔族人被中共强迫劳动，虐待等行为表示担忧之际。直到现在，国际上的关注点多集中在新疆的棉花上，全球时尚品牌都对该地区维吾尔人受到的压迫提出不满，并因此面临被中共抵制的风险。
+中共国的同胞们，真希望你能看看这实实在在的对比，好好思考一下，同样的人生，却不能享受同样的生活。那个靠骗靠抢发家并执政的中国共产党，就是剥夺我们好好活一回的罪恶强盗，早日推翻中共，我们都有一个公平的争取美好生活的机会，哪怕，也仅仅是为了下一代……
 
-当然，中共一贯的做法就是否认了所有关于新疆地区人权压迫的指控。
-
-可果美发言人北川一正表示：“日益严重的人权问题是我们考虑的一个因素，但这不是停止在那里采购的唯一原因，任何从该地区采购的剩余西红柿酱都将在今年使用。来自新疆地区的西红柿酱仅占可果美全部产量的1%左右。公司决定从哪里获得原材料时，会考虑成本、可持续性和其他因素。”
-
-中国是世界上主要的西红柿和棉花出口国之一，西红柿2019年产量占全球总量的35%，即6276万吨。由于新疆日照充足，昼夜温差大，中国的西红柿有相当一部分种植在新疆。美国从1月开始禁止进口这两种产品，并敦促全球的公司 “密切审查其供应链”，因为新疆地区的人权迫害问题。
-
-
-
-[原文链结](https://c.m.163.com/news/a/G7HRFUSL0001899O.html)
-
-本文作者：林林虎
-
-审核校对：鲁邦五世
-
-上传排版：糊糊文婴
-
-0
++2
