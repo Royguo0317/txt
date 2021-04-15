@@ -1,84 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日新闻收集【4/14】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1095200/)
+## 美国正在开发一种检测无症状COVID-19的微芯片
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1095233/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
+翻译:康州盘古农场 – Mike Li
+校对:康州盘古农场 – TrueSky
+编辑:康州盘古农场 – 蓝精灵
 
-由郭文贵先生和爆料革命战友掀起的【以毒灭共】运动。真相永远只有一个：中共制造了中共病毒和中共疫苗。以下7则推文借以分享：
+据《NEWSMAX》作者：Harriet Alexander，2021年4月11日报道：
 
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/1-14-102.jpg)
 
+– 五角大楼的秘密部门的科学家们正在研究和开发病毒和大流行病的治疗方法。
 
-> 来自医生 [@richardursomd](https://twitter.com/richardursomd?ref_src=twsrc%5Etfw) 最新采访视频：
-> 羟氯喹可以阻止病毒的进入，并且可以使得病毒的生长非常缓慢，不能真正产生毒性很强的颗粒，长期服用羟氯喹基本等于打了疫苗，而且不仅对 [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) 有效，对所有的冠状病毒、流感都有效，这会摧毁整个疫苗市场甚至流感医药市场！
-> 这就是为什么羟氯喹被打压！ [pic.twitter.com/6Ss2Cto9BU](https://t.co/6Ss2Cto9BU)
-> — 黄鹤楼大厨（新） (@GuoWarriors7) [April 14, 2021](https://twitter.com/GuoWarriors7/status/1382332503839498243?ref_src=twsrc%5Etfw)
+– 他们在国防高级研究计划局（DARPA）和五角大楼的其他实验室工作。
 
+– DARPA的团队看到因为病毒传播无法控制，COVID-19感染了西奥多-罗斯福号上的1271人。为此，他们开发了一种检测无症状COVID的微芯片，以防止COVID-19的爆发。
 
-1. **`黄鹤楼大厨推特`**（附秘密翻译组视频）：
-*羟氯喹可以阻止病毒的进入，并且可以使得病毒的生长非常缓慢，不能真正产生毒性很强的颗粒，长期服用羟氯喹基本等于打了疫苗，而且不仅对 [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click) 有效，对所有的冠状病毒、流感都有效，这会摧毁整个疫苗市场甚至流感医药市场！ 这就是为什么羟氯喹被打压！*
+– 这种芯片被插入皮肤下，如果COVID感染身体，就会触发传感器。
 
+– DARPA还创造了一种过滤器，当连接到透析时，它可以去除血液中的COVID病毒。
 
-> 《外交政策》这篇文章很能反映舆论的变化：
-> 要把Covid19这样的流行瘟疫当作“大规模杀伤武器，如核扩散、化武”一样认真对待！
-> “take pandemic containment as seriously as we take other dangers of mass destruction, such as nuclear proliferation and chemical weapons.”[https://t.co/kHIgXD5eOY](https://t.co/kHIgXD5eOY)
-> — 德意志之鹰 (@dezying) [April 14, 2021](https://twitter.com/dezying/status/1382433110114062339?ref_src=twsrc%5Etfw)
+– 他们正在研究一种疫苗，可以对抗所有的冠状病毒，甚至是那些尚未确定的病毒。
 
+– 该团队还成功研制了针对西班牙流感的抗体。
 
-2. **`德意志之鹰推特`**：
-*要把Covid-19这样的流行瘟疫当作“大规模杀伤武器，如核扩散、化武”一样认真对待。附《外交政策》的**`新闻链接`***
+五角大楼的科学家们在冷战高峰期设立的一个秘密工作单位，创造了一种插入皮肤下的微芯片，它可以检测COVID-19感染，当连接到透析机时，创新的过滤器可以从血液中清除COVID病毒。
 
+国防部高级研究计划局（DARPA）的团队多年来一直致力于预防和结束流行病。他们评估发生的问题，并提出巧妙的解决方案，这些解决方案有时更像是来自科幻小说，而不是实验室。
 
-> [#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw), 13 Apr, 2021
-> Bioweapon expert Dr. Hatfill: Gain-of-function experiment is perfect for bioweapon design. US didn’t use it for bioweapon, but China government did.[#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/IdQzsBbewj](https://t.co/IdQzsBbewj)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 14, 2021](https://twitter.com/DrLiMengYAN1/status/1382439148787748866?ref_src=twsrc%5Etfw)
+他们在周日晚上告诉《60分钟》节目，他们最近的一项发明是一种微芯片，它能在COVID感染爆发之前检测到个人的感染情况。但是这种微型芯片肯定会引发民众对政府机构在公民身上植入微型芯片的担忧。与《60分钟》团队交谈的官员则表示，五角大楼并不是会一定追踪人们的一举一动，但没有给出更详细的解释。
 
-
-3. **`闫丽梦博士推特`**：
-*（转喜站）CNN的古普塔医生终于站到闫丽梦博士这边了！如果人们早听闫博士的，听郭文贵的，听战斗室的，中共这个跨国犯罪组织早就被灭了，几百万人也不会死，世界也不会变成现在这样*
-*生物武器专家哈特菲尔德说：「功能增强」是完美的生物武器技术——班农*
-*（闫回复）「功能增强」是完美的生物武器技术，美国没有使用这项生物武器技术，但中共国使用了*
+退役上校马特-赫伯恩（Matt Hepburn），一位领导DARPA应对疫情的陆军传染病医生，向《60分钟》团队展示了一种组织状的凝胶，可以持续检测你的血液。
 
 
-> ⚡️国家情报总监海恩斯在参议院情报委员会听证时，正式确认中共实验室是病毒的两个可能来源之一
-> 这是美国高层情报官员第一次官方确认实验室来源的可能性
-> 中情局局长伯恩斯和军情领导人仲宗根将军说，正在利用一切可能的资源和方式彻查真相 [pic.twitter.com/z9e6EyL3VG](https://t.co/z9e6EyL3VG)
-> — 嘻禧僖囍 (@xi\_GLB) [April 14, 2021](https://twitter.com/xi_GLB/status/1382479373903622144?ref_src=twsrc%5Etfw)
 
+在实验室中看到的绿色凝胶，包含一个微芯片，它可以感知身体何时被感染。他解释说，“把它放在你的皮肤下面，然后它会告诉你是否有化学反应，并发出信号提醒着你明天会否有症状。”他说，他们受到了美国海军西奥多-罗斯福号上阻止病毒传播的斗争的启发，在那里有1271名船员感染冠状病毒。芯片的想法是在 “西奥多-罗斯福”号(图)看到1271例感染后产生的赫本说，“这就像一个“检查引擎”提示灯”，“水手们会收到信号，然后自行抽血，在现场进行检测。我们可以在三到五分钟内得到这些信息。”“当你抓住这个时间时，并诊断和治疗，你就阻止了病毒的传播。”但是军队对这项新发明持高度怀疑态度。今年2月，《纽约时报》报道称，三分之一的部队已经拒绝COVID疫苗，担心疫苗中含有一个设计用来监控接种者的微芯片，它将永久地使人体的免疫系统失效，或者它是某种形式的政府控制工具。
 
-4. **`喜站推特`**：
-*国家情报总监海恩斯在参议院情报委员会听证时，正式确认中共实验室是病毒的两个可能来源之一 
-这是美国高层情报官员第一次官方确认实验室来源的可能性 中情局局长伯恩斯和军情领导人仲宗根将军说，正在利用一切可能的资源和方式彻查真相*
+赫本团队的另一项发明是一个过滤器，它被放在透析机上，可以清除血液中的病毒。实验性的四天治疗是给 “16号病人”的，他是一名军人配偶，在重症监护室里，器官衰竭，败血症休克。赫本说：“把过滤器放进去，它就会把病毒过滤出来，再把血液输送回体内。”几天之内， “16号病人”就完全康复了。
 
+五角大楼的另一个机构–联合病理研究所，研究来自世界各地感染病原体的士兵和水兵的组织样本。他们的实验室里有来自100年前感染西班牙流感的病人的组织，2005年，来自西奈山医院和疾病控制与预防中心（CDC）的一个团队成功地重现了这种病毒。他们还发现了幸存者，并制造出了该致命病毒的抗体。
 
-> Conspiracy theory no more: DNI reveals coronavirus leak from Chinese lab is one of two theories adopted by US intelligence analysts on the origin of the Covid-19 pandemic [https://t.co/QhOEAPqwvp](https://t.co/QhOEAPqwvp)
-> — Bill Gertz (@BillGertz) [April 14, 2021](https://twitter.com/BillGertz/status/1382380043129737216?ref_src=twsrc%5Etfw)
+该团队的一名成员詹姆斯-克罗博士找到了一种在一小瓶血液中找到抗体的方法–创纪录地将时间从通常的6至24个月缩短到78天。他开发的技术被用来帮助制造针对COVID-19的抗体。
 
+他们目前正在研究如何加快抗体的实际生长速度，目前这一过程仅需要三周时间到达7500个剂量的水平。他说：“我们会从幸存者的血液样本开始，完成这一切，并在60天内给你注射治愈的药物。”
 
-5. **`比尔·格茨推特`**：
-*阴谋论不再存在：美国国家情报总监海恩斯，中共国实验室泄露冠状病毒是美国情报分析师关于新冠病毒疫情起源的两种理论之一。附《华盛顿时报》**`新闻链接`***
+另一位科学家Kayvon Modjarrad博士目前正试图创造一种针对所有冠状病毒的疫苗。他告诉节目，“这不是科幻小说，这是科学事实”。“我们有工具，我们有技术，现在就可以做到这一切”。他说，我们的目标是能够给人们接种致命的病毒的疫苗，甚至那些还没有被识别出来的病毒。“杀手我们没有见过，甚至没有想象过的病毒，我们将受到保护”。
 
+文章来源:https://www.dailymail.co.uk/news/article-9460389/Pentagon-scientists-invent-microchip-senses-COVID-19-body-symptoms.html
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-> 参议院情报委员会听证会：世界五大邪恶集团中，中共是最大威胁，没有之一
-> 参议员萨斯发言说，两党已经达成共识：所有的威胁都来自于习近平和中共，而不是中国人民。他号召两党一同向美国民众反反复复传播这一概念，让民众分清中共和中国人，认清中国人民是无辜的受害者
-> 评:美情报大佬齐聚一堂所为何来 [pic.twitter.com/v5noeZrjb7](https://t.co/v5noeZrjb7)
-> — 嘻禧僖囍 (@xi\_GLB) [April 14, 2021](https://twitter.com/xi_GLB/status/1382465813370662916?ref_src=twsrc%5Etfw)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-
-6. **`喜站推特`**：
-*参议院情报委员会听证会：世界五大邪恶集团中，中共是最大威胁，没有之一 
-参议员萨斯发言说，两党已经达成共识：所有的威胁都来自于习近平和中共，而不是中国人民。他号召两党一同向美国民众反反复复传播这一概念，让民众分清中共和中国人，认清中国人民是无辜的受害者 
-评:美情报大佬齐聚一堂所为何来*
-
-
-> 难道拜登学习了楚汉相争是的妙计：明修栈道，暗渡陈仓。看来拜登政府里的中国通很多。 [https://t.co/QbQdb70Xqz](https://t.co/QbQdb70Xqz)
-> — 墨博士 (@4RxMbPD3YbeN1fS) [April 14, 2021](https://twitter.com/4RxMbPD3YbeN1fS/status/1382479054780071944?ref_src=twsrc%5Etfw)
-
-
-7. **`墨博士推特`**：
-*（法广）拜登派克里去上海 派老友去挺台
-（墨博士）难道拜登学习了楚汉相争是的妙计：明修栈道，暗渡陈仓。看来拜登政府里的中国通很多*
-
-
-+1
+0

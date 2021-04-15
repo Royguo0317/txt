@@ -1,57 +1,107 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国正在开发一种检测无症状COVID-19的微芯片
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1095233/)
+## 【路德时评摘要】4.13.2021AM 上-前美军情Sellin博士发推挖出港大实验室团队
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1095349/)
 
-翻译:康州盘古农场 – Mike Li
-校对:康州盘古农场 – TrueSky
-编辑:康州盘古农场 – 蓝精灵
+视频剪辑 : Ablec(文A)
+中听校： 洛杉矶天使农场 – 烟波浩淼
+英翻译：洛杉矶天使农场 – Arthur
+英校对：洛杉矶天使农场 – 烟波浩淼
+字幕+视频制作：洛杉矶天使农场 –小腾腾说
 
-据《NEWSMAX》作者：Harriet Alexander，2021年4月11日报道：
+**路德/LUDE：**
+Sellin 博士发出了一个推，这个推绝对重磅中的重磅，无数个重磅
+Dr. Sellin posted another twitter, this is definitely a bombshell
+他这个推什么意思？
+What does the twitter say?
+就是SARS-CoV-1 在2002-2004年的时候
+Back in 2002-2004, which is the outbreak of SARS-CoV1
+港大的团队就是这几个人，Malik, 袁国勇，潘烈文，管轶
+This team from Hong Kong University, including Malik, Yuan Guoyong, Pan Liewen, Guan Yi,
+他们当时对SARS-CoV-1的研究发现一个最重磅的东西，
+They found something amazing about SARS-CoV-1
+就是它的病毒E蛋白里面氨基酸E69和G70这两个片段
+The two segments of E protein, E69 and G70
+用一个R代替，它的毒性以及病毒复制，繁殖的能力大大增强。
+If you replace these two amino acids with Arginine (R), it will greatly improve the replication and reproduction of the virus
+并且只要这个片段变成R的话，就能保证这个病毒具有感染脑部和神经系统的能力
+Additionally, if R is to be replaced, it will sustain the neuronal infection capacity of the virus
+这是港大的团队在2002-2004年（研究出来的）
+This is the major discovery of this Hong Kong University team in 2002-2004
+大家想想，后来为什么这几个人这么牛？
+Just think about why these guys are so famous?
+中共把他们捧到天上去了，就是因为发现了这一点
+CCP put them in the heaven, just because they discovered this
+他们当时对SARS-CoV-1，第一代SRAS，这个推里还有一个图
+They worked on the SARS-CoV-1, first generation of SARS, we got a figure here in the twitter
+这是SARS-CoV-1的片段，2002-2004时，E和G换成R以后，
+This is the segment of SARS-CoV-1, by 2002-2004, they swapped E and G to R
+整个毒性，最重要的就是具有了感染脑部神经系统
+Then, the toxicity, more importantly, the virus was able to infect the neuron system
+看看而且这个推上还写了
+The twitter also mentioned
+这个片段变成R的现在世界上已知的只有三种
+There are three viruses with R as this segement
+一个就是舟山蝙蝠病毒ZX45
+The first one is Zhou Shan BAT virus-ZX45
+另外一个就是在泰国刚刚发现的所谓的RacCS203
+Another one was just being discovered in Thailand-RacCS203
+最后一个就是RaTG13云南fake 病毒
+The last one is RaTG13, fake virus from Yunnan
+Sellin 博士直接说了RaTG13就是假的
+Dr. Sellin said RaTG13 is fake
+唯一找到的就是这个舟山蝙蝠（病毒ZX45）具备这个功能
+The only one that actually has the function nis Zhou Shan BAT virus-ZX45
+自然它就把这段E蛋白的这一小片段边成了R
+And it has this segment of E protein swapped to R
+等于说就具备了感染神经系统功能
+Therefore, has the function of neuro-infection
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/1-14-102.jpg)
+**艾丽/Ellie**：
+舟山蝙蝠病毒自带的这个好的一个先天骨架，就是它能够把这个两个E蛋白让它自动变成R，然后让它感染神经
+Zhou Shan Bat virus has such a good backbone, it has two E Amino acids swapped to R, allows it to infect the neuron
 
-– 五角大楼的秘密部门的科学家们正在研究和开发病毒和大流行病的治疗方法。
-
-– 他们在国防高级研究计划局（DARPA）和五角大楼的其他实验室工作。
-
-– DARPA的团队看到因为病毒传播无法控制，COVID-19感染了西奥多-罗斯福号上的1271人。为此，他们开发了一种检测无症状COVID的微芯片，以防止COVID-19的爆发。
-
-– 这种芯片被插入皮肤下，如果COVID感染身体，就会触发传感器。
-
-– DARPA还创造了一种过滤器，当连接到透析时，它可以去除血液中的COVID病毒。
-
-– 他们正在研究一种疫苗，可以对抗所有的冠状病毒，甚至是那些尚未确定的病毒。
-
-– 该团队还成功研制了针对西班牙流感的抗体。
-
-五角大楼的科学家们在冷战高峰期设立的一个秘密工作单位，创造了一种插入皮肤下的微芯片，它可以检测COVID-19感染，当连接到透析机时，创新的过滤器可以从血液中清除COVID病毒。
-
-国防部高级研究计划局（DARPA）的团队多年来一直致力于预防和结束流行病。他们评估发生的问题，并提出巧妙的解决方案，这些解决方案有时更像是来自科幻小说，而不是实验室。
-
-他们在周日晚上告诉《60分钟》节目，他们最近的一项发明是一种微芯片，它能在COVID感染爆发之前检测到个人的感染情况。但是这种微型芯片肯定会引发民众对政府机构在公民身上植入微型芯片的担忧。与《60分钟》团队交谈的官员则表示，五角大楼并不是会一定追踪人们的一举一动，但没有给出更详细的解释。
-
-退役上校马特-赫伯恩（Matt Hepburn），一位领导DARPA应对疫情的陆军传染病医生，向《60分钟》团队展示了一种组织状的凝胶，可以持续检测你的血液。
-
-
-
-在实验室中看到的绿色凝胶，包含一个微芯片，它可以感知身体何时被感染。他解释说，“把它放在你的皮肤下面，然后它会告诉你是否有化学反应，并发出信号提醒着你明天会否有症状。”他说，他们受到了美国海军西奥多-罗斯福号上阻止病毒传播的斗争的启发，在那里有1271名船员感染冠状病毒。芯片的想法是在 “西奥多-罗斯福”号(图)看到1271例感染后产生的赫本说，“这就像一个“检查引擎”提示灯”，“水手们会收到信号，然后自行抽血，在现场进行检测。我们可以在三到五分钟内得到这些信息。”“当你抓住这个时间时，并诊断和治疗，你就阻止了病毒的传播。”但是军队对这项新发明持高度怀疑态度。今年2月，《纽约时报》报道称，三分之一的部队已经拒绝COVID疫苗，担心疫苗中含有一个设计用来监控接种者的微芯片，它将永久地使人体的免疫系统失效，或者它是某种形式的政府控制工具。
-
-赫本团队的另一项发明是一个过滤器，它被放在透析机上，可以清除血液中的病毒。实验性的四天治疗是给 “16号病人”的，他是一名军人配偶，在重症监护室里，器官衰竭，败血症休克。赫本说：“把过滤器放进去，它就会把病毒过滤出来，再把血液输送回体内。”几天之内， “16号病人”就完全康复了。
-
-五角大楼的另一个机构–联合病理研究所，研究来自世界各地感染病原体的士兵和水兵的组织样本。他们的实验室里有来自100年前感染西班牙流感的病人的组织，2005年，来自西奈山医院和疾病控制与预防中心（CDC）的一个团队成功地重现了这种病毒。他们还发现了幸存者，并制造出了该致命病毒的抗体。
-
-该团队的一名成员詹姆斯-克罗博士找到了一种在一小瓶血液中找到抗体的方法–创纪录地将时间从通常的6至24个月缩短到78天。他开发的技术被用来帮助制造针对COVID-19的抗体。
-
-他们目前正在研究如何加快抗体的实际生长速度，目前这一过程仅需要三周时间到达7500个剂量的水平。他说：“我们会从幸存者的血液样本开始，完成这一切，并在60天内给你注射治愈的药物。”
-
-另一位科学家Kayvon Modjarrad博士目前正试图创造一种针对所有冠状病毒的疫苗。他告诉节目，“这不是科幻小说，这是科学事实”。“我们有工具，我们有技术，现在就可以做到这一切”。他说，我们的目标是能够给人们接种致命的病毒的疫苗，甚至那些还没有被识别出来的病毒。“杀手我们没有见过，甚至没有想象过的病毒，我们将受到保护”。
-
-文章来源:https://www.dailymail.co.uk/news/article-9460389/Pentagon-scientists-invent-microchip-senses-COVID-19-body-symptoms.html
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**路德/Lude:**
+找了多少年，2009 年到2014年五年的大项目，全国找病毒
+After many years, from 2009 to 2014, major projects for these five years were virus hunting
+主要找冠状病毒，要至少找2-3种有脑部感染能力的新动物病毒
+They were primarily looking for coronaviruses, at least 2-3 species that can infect the brain
+港大的这个团队，2004年他们找到了这个片断，这个很关键
+Hong Kong University team, by 2004 identified this critical segment
+病毒找到了，马上序列查出来
+After they found the virus, then they analyzed the sequence
+只要 E蛋白的基氨酸69 和G70 变成了R 基氨酸来替代
+If you swap the postion 69 and G70 of E protein with R
+基本上，八九不离十，一定能感染脑部神经
+Most likely, the virus will be able to infect the neuron
+这就是他们当时的研究成果
+That was the major accomplishments for them
+管轶在采访中还专门说了一段话
+Guan Yi also talked specifically
+中间宿主群找不到，缺了这一块
+No intermediate hosts were found, this is missing
+那么什么东西可以顶替中间宿主
+What can be the intermediate hosts
+如果找不到，蝙蝠里的病毒是不会飞到人类的，没这个本事
+If you cannot find it, the virus from bats don’t infect human, that is not possible
+所以（CCP）再怎么撒谎，你也不能编成蝙蝠（病毒）直接（传染）到人
+So, no matter how CCP lies, you cannot argue the virus from bat will directly infect human
+这就为什么中共傻乎乎的让石正丽做了RaTG13
+That is why CCP had Shi Zhengli faked RaTG13
+它就想RaTG13直接到人，然后变异，就玩这一遭，明白吗？
+They want have RaTG13 infection of human, then mutate. This is the planned game, right?
+但是站不住脚，这就是为什么Sellin 博士明确写的RaTG13 是云南 fake 假病毒
+But, the lie will not fly, that is why Dr. Sellin said explicitly RaTG13 is a fake virus from Yunnan
+所有关联都是舟山蝙蝠，为什么？
+All that is related is Zhou Shan bat virus, why?
+因为有人亲自告诉闫博士，让她一定要保密
+Because, someone told Dr. Yan, and ask her to keep it as a secret
+这个就是舟山蝙蝠病毒
+That is Zhou Shan bat virus
+但是很恐慌的，极其恐慌，那种恐慌就像电影里的那种失魂的恐慌
+They were in such a panic, like soulless
+闫博士亲口给我说的，天涯海角都会被追杀的那种感觉
+Just like Dr. Yan put it, they will hunt you down to the end of the earth for this
 
 0
