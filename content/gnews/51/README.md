@@ -1,29 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 人权组织敦促抵制中共“种族灭绝奥运会”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1094742/)
+## 拍摄执法现场是中共流氓“神圣不可侵犯”的霸权
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1094792/)
 
-俄罗斯莫斯科喀秋莎农场    银河
+作者：胖丁| 校对/ 审核：宁缺| Page：我是球大哥
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/O-5.jpg)fltimes.com
-布赖特巴特新闻(Breitbart News)4月14日报道，妇女权利无国界组织敦促奥委会将2022年冬季奥运会移出中共，否则将面临抵制这届“种族灭绝运动会”的风险。
+[!\[\]()!\[\](https://spark.adobe.com/page/AqImhKXs33tGQ/images/f662693e-7b7d-40cb-a2b9-73b911421809.jpg?asset_id=0da4f450-351a-46f7-a0de-74c2dd0f564d&amp;img_etag=%229be2bb216364d5138d6a010cc26b6cab%22&amp;size=1024)](https://spark.adobe.com/page/AqImhKXs33tGQ/images/f662693e-7b7d-40cb-a2b9-73b911421809.jpg?asset_id=0da4f450-351a-46f7-a0de-74c2dd0f564d&amp;img_etag=%229be2bb216364d5138d6a010cc26b6cab%22&amp;size=1024)
 
-妇女权利无国界组织准备了一封致美国奥林匹克委员会(USOC)的公开信，并向国际奥林匹克委员会(IOC)提交了一份副本，抗议目前选择的2022年冬奥会的举办地。
+[视频链接](https://discord.com/channels/720597592404131930/805593797072650250/829808128475922462)
 
-妇女权利无国界组织总统的雷吉·利特约翰(Reggie Littlejohn)控诉中共除了正在进行的对维吾尔人的种族灭绝，中共还有许多“其他人权暴行，如宗教迫害，强迫堕胎和绝育，强迫器官摘取，强迫劳动和大规模监视。”
+俗话说，双拳难敌四手，好汉架不住群狼。2021年4月7日，广东一男子因为拍摄城管执法，手机被夺走，自己也被一帮恶狼般的城管和警察撂倒。他的结果可想而知：轻则重伤，重则残废，甚至命都可能丢掉。
 
-利特约翰说，中国共产党还“拘留持不同政见者和揭发者、无与伦比的环境掠夺和中共病毒在世界上的释放”，使其成为世界上最严重的侵犯人权者之一。
+在墙内，无论是警察执法还是城管执法都会装模作样地用摄像机拍摄整个执法过程。同样是记录执法过程，为什么老百姓自己拍就不行了呢？很明显，这些爪牙记录行动的整个过程可以假惺惺地展现中共法制社会的表象。但是所有的画面将来都可以通过讲政治的方式出现，或者讲政治地消失，甚至截取扭曲，一切都为了官字两张嘴的需要。中共官员需要的是可以控制在手中的证据，老百姓拍摄执法现场严重侵害的是政府“神圣不可侵犯”的霸权。这些过于真实而且不可控的画面万一流到网络上，让习惯了以无可奉告搪塞民口的特权饭桶们情何以堪？
 
-在信中，人权组织提醒美国奥委会和国际奥委会“对1948年《防止及惩治种族灭绝公约》所作的宪章承诺和国际义务”。
+中共国以警治国，以黑治国，警察比黑社会都霸道。因为中共国的警察就是有执照的流氓，打人天经地义，抓人不算违法。就算城管是非警察编制，一样欺行霸市，把普通民众当成奴隶般非打即骂，还不能反抗。如果反抗，只会遭到更严厉的镇压。普通老百姓想做个小生意维持生计，不是被城管欺压，就是被警察抓捕。路人如果有谁“路见不平一声吼”，城管绝对是“该出手时就出手”。
 
-这封信提醒奥林匹克当局，1936年在德国柏林举行的奥运会“被证明是阿道夫·希特勒的第三帝国一笔巨大的宣传意外之财，为其提供了毫无根据的国际声望、合法性和信誉。”这些好处为“纳粹政权随后对600万犹太人实施的种族灭绝大屠杀以及希特勒在世界大战期间促成的骇人听闻的反人类罪行提供了一个烟幕”。今天，“我们正面临着另一个极权主义政权积极参与的另一场种族灭绝，这是反人类罪行之一。”然而，奥运当局正准备让中共“获得并利用一笔宣传巨款，让纳粹享受的东西相形见绌。”
+[!\[\]()!\[\](https://spark.adobe.com/page/AqImhKXs33tGQ/images/1229724d-ee4c-464a-a6f6-03d0dd39a89d.jpg?asset_id=5d407c5f-62cd-4330-87e9-5a9fa83af989&amp;img_etag=%226c1317b22756b9e370692cb300c4a1fe%22&amp;size=1024)](https://spark.adobe.com/page/AqImhKXs33tGQ/images/1229724d-ee4c-464a-a6f6-03d0dd39a89d.jpg?asset_id=5d407c5f-62cd-4330-87e9-5a9fa83af989&amp;img_etag=%226c1317b22756b9e370692cb300c4a1fe%22&amp;size=1024)
 
-公开信最后呼吁“国际社会紧急努力，将2022年冬奥会转移到另一个地点”，为“种族灭绝奥运会”提供一个“自由奥运会”的选择。声明称：“如果做不到这一点，请注意，我们将竭尽全力抵制奥运会。”
+就算是真正的黑帮组织，也遵循“盗亦有道”，有自己的江湖规矩：不恃强凌弱，不以多欺少。中共国常常上演一帮城管和警察对付一两个赤手空拳老百姓的惨剧，而且下手狠毒，绝对不计后果。中共国的老百姓生存艰难，没有法制，如果不推翻这个邪恶的政党，艰难的就不仅仅是生活，而是生命都没有保证。
 
-参考链接：
+*文章仅代表个人观点*
 
-[https://www.breitbart.com/national-security/2021/04/14/human-rights-groups-prepare-boycott-of-chinas-olympic-genocide-games/](https://www.breitbart.com/national-security/2021/04/14/human-rights-groups-prepare-boycott-of-chinas-olympic-genocide-games/)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/AqImhKXs33tGQ/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/AqImhKXs33tGQ/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

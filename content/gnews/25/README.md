@@ -1,80 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.9.2021PM-战略竞争法案包含病毒来源真相调查
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1095222/)
+## 美国正在开发一种检测无症状COVID-19的微芯片
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1095233/)
 
-视频剪辑 : Ablec(文A)
-中听校： 洛杉矶天使农场 – 雨山溪桥客
-英翻译：洛杉矶天使农场 –Arthur文徐
-英校对：洛杉矶天使农场 – 烟波浩淼
-字幕+视频制作：意大利达芬奇农场 – 紫苏花生
+翻译:康州盘古农场 – Mike Li
+校对:康州盘古农场 – TrueSky
+编辑:康州盘古农场 – 蓝精灵
 
-**路德**
-今天早上我们提到的2021年战略竞争法案
-We mentioned the 2021strategic competition bill
-里面有重要的内容，现在我们已经拿到了全文啊
-It contains very important information, now we have the full text
-而且全文里面关于这个病毒来源的报告
-It has full report about the origin of CCP-virus
-这里面信息太重要了
-This information is critical
-要求在180天一定要递交给国会一份关于新冠病毒来源的报告
-It requests a full COVID19 report to be provided to the congress
-这里面等等啊还有很多信息
-It contains very critical information
-包括对中共的实验室泄漏和造假信息等等都要彻查
-Including thorough investigation about CCP lab leakage and misinformation
-这里面包含的这些信息，我待会说这里面有故事的啊
-As for the information in the report, I will share the story with you guys later
-这情报口提交就可以了，不需要司法认定
-All is needed is information from the intelligence bureaus, not need for court confirmation
-只需要情报提交，大家有没有觉得这个玩法和当年伊拉克那个很像
-Just intelligence, don’t you guys think this is rather similar to the trick played on Iraq war?
-bo博士，是不是？
-Dr. Bo don’t you think so?
-那瓦罗前几天3月31日敢说闫博士的报告太棒了
-Peter Nevero said on March 31, Dr Yan’s report was brilliant
-说明这所有的已经做好了
-Indicating all of this is ready
+据《NEWSMAX》作者：Harriet Alexander，2021年4月11日报道：
 
-**博博士**
-我有种感觉，这个报告已经写好了，就等着出来！
-I feel this report is ready and can be published any moment
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/1-14-102.jpg)
 
-**路德**
-就等着！说白了就等着两党来共同走流程
-Just wait! Basically, just waiting for both parties go through the procedure together
-更重要的是中共如何阻挠对新冠病毒调查
-More importantly, no matter how CCP try to impede the investigation on the COVID19 包括实验室泄漏，制造各种假信息
-Including lab leakage, and all kinds of misinformation
-所有的报告其实就是超限生物武器的一个报告
-All the reports is basically a report about this unrestricted bioweapon
-这个超限生物武器包括什么？
-what does this unrestricted bioweapon include?
-是不是，包括你如何搅混水，事后搅混水，这都要调查出来
-Right? Including CCP’s attempt to stir up the water, all will be investigated
-最重要的是赵立坚，外交部的赵立坚质问为何美国满世界建造这么多实验室
-More importantly, Zhao Lijiang from CCP foreign ministry questioned US about building all that many labs in the world
-你看，他说的话说为何美国独家反对禁止生物武器公约？
-He was question, why US is against bills to ban bioweapon?
-我们昨天做节目说这个大规模杀伤性武器
-Yesterday, we talked in our show about this mass destruction weapon
-中共违反了大规模杀伤性里面主要提的就是生物武器
-The CCP violated the MDW, the most important part is bioweapon
-中共现在反过来反咬一口
-Now, CCP is backfiring
-这个是赵立坚说的，拜登小布什当时一起灭萨达姆，一样的
-What Zhao Lijiang said, Biden and Bush Jr. when they work together to take down Sadam, it was the same trick
-是不是，外交关系委员会，也是，你只要情报口确认
-Isn’t that correct, council of foreign relations, the same situation, all you need is intelligence confirmation
-得到这个结论就可以了这里面包含的信息量太大了
-And come to this conclusion, it contains too much information
-所以我一看到这个的时候
-So, when I saw this
-咋们的莱昂纳多太棒了就把这个部分找出来
-Leo did a great job
-大家看原文在这里，大家可以自己去翻，214项
-The original document is here, you guys can do your translation, it has 214 pages
+– 五角大楼的秘密部门的科学家们正在研究和开发病毒和大流行病的治疗方法。
+
+– 他们在国防高级研究计划局（DARPA）和五角大楼的其他实验室工作。
+
+– DARPA的团队看到因为病毒传播无法控制，COVID-19感染了西奥多-罗斯福号上的1271人。为此，他们开发了一种检测无症状COVID的微芯片，以防止COVID-19的爆发。
+
+– 这种芯片被插入皮肤下，如果COVID感染身体，就会触发传感器。
+
+– DARPA还创造了一种过滤器，当连接到透析时，它可以去除血液中的COVID病毒。
+
+– 他们正在研究一种疫苗，可以对抗所有的冠状病毒，甚至是那些尚未确定的病毒。
+
+– 该团队还成功研制了针对西班牙流感的抗体。
+
+五角大楼的科学家们在冷战高峰期设立的一个秘密工作单位，创造了一种插入皮肤下的微芯片，它可以检测COVID-19感染，当连接到透析机时，创新的过滤器可以从血液中清除COVID病毒。
+
+国防部高级研究计划局（DARPA）的团队多年来一直致力于预防和结束流行病。他们评估发生的问题，并提出巧妙的解决方案，这些解决方案有时更像是来自科幻小说，而不是实验室。
+
+他们在周日晚上告诉《60分钟》节目，他们最近的一项发明是一种微芯片，它能在COVID感染爆发之前检测到个人的感染情况。但是这种微型芯片肯定会引发民众对政府机构在公民身上植入微型芯片的担忧。与《60分钟》团队交谈的官员则表示，五角大楼并不是会一定追踪人们的一举一动，但没有给出更详细的解释。
+
+退役上校马特-赫伯恩（Matt Hepburn），一位领导DARPA应对疫情的陆军传染病医生，向《60分钟》团队展示了一种组织状的凝胶，可以持续检测你的血液。
+
+
+
+在实验室中看到的绿色凝胶，包含一个微芯片，它可以感知身体何时被感染。他解释说，“把它放在你的皮肤下面，然后它会告诉你是否有化学反应，并发出信号提醒着你明天会否有症状。”他说，他们受到了美国海军西奥多-罗斯福号上阻止病毒传播的斗争的启发，在那里有1271名船员感染冠状病毒。芯片的想法是在 “西奥多-罗斯福”号(图)看到1271例感染后产生的赫本说，“这就像一个“检查引擎”提示灯”，“水手们会收到信号，然后自行抽血，在现场进行检测。我们可以在三到五分钟内得到这些信息。”“当你抓住这个时间时，并诊断和治疗，你就阻止了病毒的传播。”但是军队对这项新发明持高度怀疑态度。今年2月，《纽约时报》报道称，三分之一的部队已经拒绝COVID疫苗，担心疫苗中含有一个设计用来监控接种者的微芯片，它将永久地使人体的免疫系统失效，或者它是某种形式的政府控制工具。
+
+赫本团队的另一项发明是一个过滤器，它被放在透析机上，可以清除血液中的病毒。实验性的四天治疗是给 “16号病人”的，他是一名军人配偶，在重症监护室里，器官衰竭，败血症休克。赫本说：“把过滤器放进去，它就会把病毒过滤出来，再把血液输送回体内。”几天之内， “16号病人”就完全康复了。
+
+五角大楼的另一个机构–联合病理研究所，研究来自世界各地感染病原体的士兵和水兵的组织样本。他们的实验室里有来自100年前感染西班牙流感的病人的组织，2005年，来自西奈山医院和疾病控制与预防中心（CDC）的一个团队成功地重现了这种病毒。他们还发现了幸存者，并制造出了该致命病毒的抗体。
+
+该团队的一名成员詹姆斯-克罗博士找到了一种在一小瓶血液中找到抗体的方法–创纪录地将时间从通常的6至24个月缩短到78天。他开发的技术被用来帮助制造针对COVID-19的抗体。
+
+他们目前正在研究如何加快抗体的实际生长速度，目前这一过程仅需要三周时间到达7500个剂量的水平。他说：“我们会从幸存者的血液样本开始，完成这一切，并在60天内给你注射治愈的药物。”
+
+另一位科学家Kayvon Modjarrad博士目前正试图创造一种针对所有冠状病毒的疫苗。他告诉节目，“这不是科幻小说，这是科学事实”。“我们有工具，我们有技术，现在就可以做到这一切”。他说，我们的目标是能够给人们接种致命的病毒的疫苗，甚至那些还没有被识别出来的病毒。“杀手我们没有见过，甚至没有想象过的病毒，我们将受到保护”。
+
+文章来源:https://www.dailymail.co.uk/news/article-9460389/Pentagon-scientists-invent-microchip-senses-COVID-19-body-symptoms.html
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

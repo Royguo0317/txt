@@ -1,49 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙内热搜】中共的钓鱼执法何时休
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1095084/)
+## 美国政府与台湾对台互动的新准则
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1095135/)
 
-作者：纽约香草山福音部 凤鸡
+翻译： 康州盘古农场 – Freeearth
+校对： 康州盘古农场 – Mike Li
+编辑： 康州盘古农场 – 蓝精灵
 
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/1-14-100.jpg)
 
+内德-普赖斯（NED PRICE），国务院发言人
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+2021年4月9日
 
+国务院发布美国政府与台湾对口互动新准则，以鼓励美国政府与台湾的接触，反映出我们不断深化的非官方关系。新准则强调台湾是一个活跃的民主政体、重要的安全与经济伙伴，也是国际社会中一股善的力量。这些新准则放宽与台湾接触时的指导，其与我们非官方关系一致，并明确整个行政部门里我们的 “一个中国”政策的有效落实，其遵从《台湾关系法》、三个联合公报和六项保证。经已完成的《台湾保证法》所载之审议，予以发布此新准则。
 
+原文链接: [https://www.state.gov/new-guidelines-for-u-s-government-interactions-with-taiwan-counterparts/](https://www.state.gov/new-guidelines-for-u-s-government-interactions-with-taiwan-counterparts/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-据佛山新闻报道，近日，袁先生向“南方+”反映称，自己在广台高速公路43公里200米处因为转道压到实线，所以“吃”到罚单。而他自己在缴纳罚单时发现，交款系统显示，已有超过62万人在此违章，罚款金额超过1.2亿。有声音质疑，如此高频的罚款，路政交警应该检讨道路划线设置是否有不合理的情况。8日，佛山公安交警部门对此表示， 广台高速公路43公里路段的标志、标线是经过验收合格后投入使用的，路经司机应当知晓该路段上述交通信号的含义，且有足够的时间、距离看见上述交通信号，并应当遵循交通信号指示安全行驶。媒体跟进后，相关部门马上进行了处理，而处理的方式是：勒令相关软件，屏蔽累计被处罚人数的显示。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-229.png)
-
-简评：
-
-显而易见，中共的快速反应只是为了掩盖其钓鱼执法的邪恶动机。至于其他冠冕堂皇的解释都是废话，很难掩饰其搞钱的真实目的。
-
-有行业研究机构报告指出，中共国是监控摄像头增长最快的国家之一，共装有1.76亿监控摄像头。其中，在道路交通系统中，摄像头的数量达到了2400万个。根据公安部交通管理局最新数据，2020年全国交通罚款总额在3000亿元左右，平均每辆车罚款一千多块——一个摄像头相当于一台印钞机，个别摄像头一年甚至能贡献几千万，其利润一年超过一个上市公司。可见，中共罚款不是为了纠正司机的错误驾驶习惯，而是为了赚钱，且每年还有指标，倘若到年底没有完成指标，那么移动的钓鱼执法点就应运而生，直到完成指标为止。
-
-“罚款经济”在中共国各行各业长期存在，特别是“交通罚款经济” ，它是解决地方财政危机的重要手段之一。 但是，一年几千亿的交通罚款用于何处却没人知道，也不能让大家知道，属于高级机密。中共利用“高科技”抢钱 ，在中共国的摄像头下，妇女、儿童、成人走失被拐，几十年找不到，但交通罚款却没有一条漏网之鱼。这种有意而为之正是其邪恶之处。前段时间的卡车司机自杀事件也属于这个范畴，所以，只有消灭中共才能彻底解决这个问题。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑：灵性探索
-
-校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

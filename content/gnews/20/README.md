@@ -1,107 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.13.2021AM 上-前美军情Sellin博士发推挖出港大实验室团队
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1095349/)
+## 分析：美国“是否”应该抵制北京2022年冬奥会
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1095383/)
 
-视频剪辑 : Ablec(文A)
-中听校： 洛杉矶天使农场 – 烟波浩淼
-英翻译：洛杉矶天使农场 – Arthur
-英校对：洛杉矶天使农场 – 烟波浩淼
-字幕+视频制作：洛杉矶天使农场 –小腾腾说
+翻译：康州盘古农场 – 柯镇恶
+校对：康州盘古农场 – TrueSky
+编辑：康州盘古农场 – 蓝精灵
 
-**路德/LUDE：**
-Sellin 博士发出了一个推，这个推绝对重磅中的重磅，无数个重磅
-Dr. Sellin posted another twitter, this is definitely a bombshell
-他这个推什么意思？
-What does the twitter say?
-就是SARS-CoV-1 在2002-2004年的时候
-Back in 2002-2004, which is the outbreak of SARS-CoV1
-港大的团队就是这几个人，Malik, 袁国勇，潘烈文，管轶
-This team from Hong Kong University, including Malik, Yuan Guoyong, Pan Liewen, Guan Yi,
-他们当时对SARS-CoV-1的研究发现一个最重磅的东西，
-They found something amazing about SARS-CoV-1
-就是它的病毒E蛋白里面氨基酸E69和G70这两个片段
-The two segments of E protein, E69 and G70
-用一个R代替，它的毒性以及病毒复制，繁殖的能力大大增强。
-If you replace these two amino acids with Arginine (R), it will greatly improve the replication and reproduction of the virus
-并且只要这个片段变成R的话，就能保证这个病毒具有感染脑部和神经系统的能力
-Additionally, if R is to be replaced, it will sustain the neuronal infection capacity of the virus
-这是港大的团队在2002-2004年（研究出来的）
-This is the major discovery of this Hong Kong University team in 2002-2004
-大家想想，后来为什么这几个人这么牛？
-Just think about why these guys are so famous?
-中共把他们捧到天上去了，就是因为发现了这一点
-CCP put them in the heaven, just because they discovered this
-他们当时对SARS-CoV-1，第一代SRAS，这个推里还有一个图
-They worked on the SARS-CoV-1, first generation of SARS, we got a figure here in the twitter
-这是SARS-CoV-1的片段，2002-2004时，E和G换成R以后，
-This is the segment of SARS-CoV-1, by 2002-2004, they swapped E and G to R
-整个毒性，最重要的就是具有了感染脑部神经系统
-Then, the toxicity, more importantly, the virus was able to infect the neuron system
-看看而且这个推上还写了
-The twitter also mentioned
-这个片段变成R的现在世界上已知的只有三种
-There are three viruses with R as this segement
-一个就是舟山蝙蝠病毒ZX45
-The first one is Zhou Shan BAT virus-ZX45
-另外一个就是在泰国刚刚发现的所谓的RacCS203
-Another one was just being discovered in Thailand-RacCS203
-最后一个就是RaTG13云南fake 病毒
-The last one is RaTG13, fake virus from Yunnan
-Sellin 博士直接说了RaTG13就是假的
-Dr. Sellin said RaTG13 is fake
-唯一找到的就是这个舟山蝙蝠（病毒ZX45）具备这个功能
-The only one that actually has the function nis Zhou Shan BAT virus-ZX45
-自然它就把这段E蛋白的这一小片段边成了R
-And it has this segment of E protein swapped to R
-等于说就具备了感染神经系统功能
-Therefore, has the function of neuro-infection
+据《华盛顿邮报》作者：Ishaan Tharoor，2021年4月12日报道：
 
-**艾丽/Ellie**：
-舟山蝙蝠病毒自带的这个好的一个先天骨架，就是它能够把这个两个E蛋白让它自动变成R，然后让它感染神经
-Zhou Shan Bat virus has such a good backbone, it has two E Amino acids swapped to R, allows it to infect the neuron
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/1-14-105.jpg)
 
-**路德/Lude:**
-找了多少年，2009 年到2014年五年的大项目，全国找病毒
-After many years, from 2009 to 2014, major projects for these five years were virus hunting
-主要找冠状病毒，要至少找2-3种有脑部感染能力的新动物病毒
-They were primarily looking for coronaviruses, at least 2-3 species that can infect the brain
-港大的这个团队，2004年他们找到了这个片断，这个很关键
-Hong Kong University team, by 2004 identified this critical segment
-病毒找到了，马上序列查出来
-After they found the virus, then they analyzed the sequence
-只要 E蛋白的基氨酸69 和G70 变成了R 基氨酸来替代
-If you swap the postion 69 and G70 of E protein with R
-基本上，八九不离十，一定能感染脑部神经
-Most likely, the virus will be able to infect the neuron
-这就是他们当时的研究成果
-That was the major accomplishments for them
-管轶在采访中还专门说了一段话
-Guan Yi also talked specifically
-中间宿主群找不到，缺了这一块
-No intermediate hosts were found, this is missing
-那么什么东西可以顶替中间宿主
-What can be the intermediate hosts
-如果找不到，蝙蝠里的病毒是不会飞到人类的，没这个本事
-If you cannot find it, the virus from bats don’t infect human, that is not possible
-所以（CCP）再怎么撒谎，你也不能编成蝙蝠（病毒）直接（传染）到人
-So, no matter how CCP lies, you cannot argue the virus from bat will directly infect human
-这就为什么中共傻乎乎的让石正丽做了RaTG13
-That is why CCP had Shi Zhengli faked RaTG13
-它就想RaTG13直接到人，然后变异，就玩这一遭，明白吗？
-They want have RaTG13 infection of human, then mutate. This is the planned game, right?
-但是站不住脚，这就是为什么Sellin 博士明确写的RaTG13 是云南 fake 假病毒
-But, the lie will not fly, that is why Dr. Sellin said explicitly RaTG13 is a fake virus from Yunnan
-所有关联都是舟山蝙蝠，为什么？
-All that is related is Zhou Shan bat virus, why?
-因为有人亲自告诉闫博士，让她一定要保密
-Because, someone told Dr. Yan, and ask her to keep it as a secret
-这个就是舟山蝙蝠病毒
-That is Zhou Shan bat virus
-但是很恐慌的，极其恐慌，那种恐慌就像电影里的那种失魂的恐慌
-They were in such a panic, like soulless
-闫博士亲口给我说的，天涯海角都会被追杀的那种感觉
-Just like Dr. Yan put it, they will hunt you down to the end of the earth for this
+美国国务院发言人周二表示，有可能对中共的侵犯人权行为进行奥林匹克运动会抵制，但一位高级官员稍后表示，没有讨论计划。仿佛已经没有足够的中美摩擦事件，但是一个新兴的争议事件正在逐渐发酵：**抵制北京2022年冬季奥运会的呼声越来越高。**
+
+距离比赛还有10个月的时间，考虑到当前[冠状病毒](https://www.washingtonpost.com/coronavirus/?itid=lk_inline_manual_5)大流行带来的的不确定性，这个时间可能会更长。但是，该事件成为爆发点却并不算早。对中国执政的共产党的批评者（包括由180多个人权组织组成的联盟）认为，基于该政权的人权侵犯记录和地缘政治恶行，理应剥夺它利用像奥运会这样的盛事来塑造自己形象的权利。
+
+中国人权律师滕彪（[Teng Biao](https://www.washingtonpost.com/opinions/2021/02/04/beijing-olympics-2022-genocide-games/?itid=lk_inline_manual_8)）今年早些时候写道：“2015年，北京获得了主办2022年奥运会的权利。就在同一年，它严厉打击了中国各地的律师和活动家”。“从那时起，它就已经在拘留记者；骚扰和攻击活动家和持不同政见者，即使是境外的也不放过；关闭非政府组织；拆除基督教教堂、藏族寺庙和穆斯林清真寺；迫害甚至是杀害——法轮功信徒；并大大加强了对媒体、互联网、大学和出版商的控制”。
+
+前国务卿迈克·彭培奥（Mike Pompeo）在上周的一次活动中说：“我认为不应该有美国人参加‘种族灭绝奥运会’。” 他指的是有关中共当局在新疆地区，对维吾尔族和哈萨克族妇女进行强奸和大规模绝育的报道，一些专家和美国国务院称这相当于种族灭绝。抵制北京2022冬奥会已成为共和党人中的热门活动。众议员约翰·卡特科（John Katko，R-N.Y.）说：“世界正在注视着我们的下一步行动。”
+
+保守派的美国企业研究所（American Enterprise Institute ）的[政策文件](https://www.aei.org/research-products/report/move-the-games-what-to-do-about-the-2022-beijing-olympics/)指出：“鉴于中共残暴的的人权记录，在疫情爆发初期对COVID-19的不当处理以及其对外界的敌对情绪，奥运会应该从北京移出。”该文件同时认为，美国应该利用国际社会对奥运会的关注来迫使中共统治集团“改正路线”。
+
+**拜登政府本周提供了一些混淆的信息。**首先，国务院发言人内德·普莱斯（Ned Price）[周二](https://www.bloomberg.com/news/articles/2021-04-07/u-s-comments-on-beijing-olympics-spur-talk-of-possible-boycott)表示，抵制冬季奥运会是“我们当然希望与志同道合的盟友讨论的事情”。但是国务院随后澄清说，没有就抵制进行高级别讨论的计划。第二天，白宫新闻秘书詹·普萨基（Jen Psaki）试图回避此事。她说：“我们尚未讨论，也没有讨论与盟友和伙伴的联合抵制。”
+
+在上周的一次活动中，美国奥林匹克与残奥会董事会主席苏珊·里昂（Susanne Lyons）表示，她的组织反对“运动员抵制，因为我们知道，（运动员）抵制会对运动员产生负面影响，而且不能有效解决全球问题。” 人们普遍记得，美国抵制1980年莫斯科夏季奥林匹克运动会，随后苏联抵制1984年洛杉矶奥运会作为对抗。这种不幸的冷战冲突事[件，](https://www.nationalcoldwarexhibition.org/schools-colleges/national-curriculum/social-economic-issues/olympic-boycotts.aspx#:~:text=In%201984%2C%20the%20American%20city,move%20for%20the%201980%20boycott.)在很大程度上伤害了合格的参与者。同时，活动的组织者表示，他们坚持非政治取向。国际奥委会在提供给Axios的一份声明中说：“鉴于参加奥运会的多样性，国际奥委会必须在所有全球政治问题上保持中立”，他补充说，尽管国际奥委会致力于维护人权，但“既没有权力，也没有能力，去改变主权国家法律或政治制度。”
+
+中共官员也发出了类似的口吻。外交部发言人赵立坚说： “体育政治化将损害《奥林匹克宪章》的精神和各国运动员的利益”。 中共政府否认对新疆发生的事情国际评估，还威胁说，如果抵制行动继续下去，中共将做出 “强烈回应”。
+
+**但是重大体育赛事，尤其是像奥运会这样的国际盛会，始终具有政治意义**。上个世纪最具标志性的奥林匹克时刻也许是一次政治抗议的行为（译注：指1968年墨西哥夏季奥运会上的抗议行为）。2008年北京夏季奥运会是发展中的中共国的崛起派对。在蓬勃发展的首都，整个社区都为奥运场馆腾出了空间。时任总统乔治·W·布什（George W. Bush）出席会议。他积极参与，放弃了对人权的关注。
+
+现在的情况远没有那么乐观，美国高级别政治代表团在明年二月前往北京的可能性很小。作为对上个月参议员罗姆尼（R-Utah）呼吁“经济和外交抵制”的回应，纽约时报专栏作家尼古拉斯·克里斯托夫（Nicholas Kristof）写道： “运动员应该参加比赛，电视台应该播出比赛，但政府官员和公司应该远离比赛”。克里斯托夫补充说：“我希望在北京的运动员能够抓住一切机会，提醒人们注意中共对新疆或其他地方的镇压。”
+
+抵制的问题仍然很敏感：外国政府和跨国公司对激起中共的愤怒保持谨慎——一些公司已经饱受其苦，因为他们为新疆的大规模拘留营和在新疆的发生的强迫劳动而大声疾呼。战略与国际研究中心（Center for Strategic and International Studies）的一名亚洲专家邦妮·格拉泽（Bonnie Glaser）告诉彭博新闻社： “可能有选择地禁止从中共进口某些产品，这能显示出国家拒绝奥运会和抵制中共公司的意图。”对于更依赖于中共投资和贸易的国家而言，情况更是如此。但是，在美国，聚光灯照在了赞助冬奥会的大公司身上。尽管它们中的多数都在国内政治问题上表达了自己的声音，但他们在新疆问题上却避而不谈。
+
+《华盛顿邮报》社论页面编辑弗雷德·希亚特（Fred Hiatt）写道，“在维吾尔族妇女遭到强奸、绝育和被迫卖淫的同时，这些公司真的觉得我们能严肃看待，他们在性别平等上的自我庆祝吗？”。“距离冬奥会开幕还有十多个月。这些公司可以对中共政府说：解放集中营，让维族人生活在和平中。让外部观察者来看到你确实已经这样做了。然后再开始奥运会。”
+
+原文链接：[https://www.washingtonpost.com/world/2021/04/12/olympics-china-boycott/](https://www.washingtonpost.com/world/2021/04/12/olympics-china-boycott/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
