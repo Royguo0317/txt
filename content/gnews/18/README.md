@@ -1,80 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.9.2021PM-战略竞争法案包含病毒来源真相调查
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1095222/)
+## 【老江观点】—150万美元，我哭了……
+` Laojiang` [轉載自GNews](https://gnews.org/zh-hans/1095226/)
 
-视频剪辑 : Ablec(文A)
-中听校： 洛杉矶天使农场 – 雨山溪桥客
-英翻译：洛杉矶天使农场 –Arthur文徐
-英校对：洛杉矶天使农场 – 烟波浩淼
-字幕+视频制作：意大利达芬奇农场 – 紫苏花生
+150万美元，计185万加元，在加拿大能买到什么样的房子？  如下图中所示，这是现在在出售的一套房子，7个卧室6个卫生间，电影院、健身房、会议室、几个小的独立办公室、室外泳池，单独的大车库，精装修，电器齐全，包括炉灶、电烤箱、洗碗机、3套洗衣机和烘干机，全套的洗浴设施、整间的衣帽间……（搞得好像我是卖房子的似的），实际面积643平米，如图6430平方英尺，占地1.31公顷，永久产权哦。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-3.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-4.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-5.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-6.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-9.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-11.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-12.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-19.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-16.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-17.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-23.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-24.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-25.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-27.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-28.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-29.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/nwm_full-30.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-14-at-9.15.30-PM.jpeg)
+150万人民币在牛X国能买什么房子，我不好意思往上贴图，寒碜丢不起人，一个80平米的鸽子笼，还是什么建筑面积，有至少25平米的“公摊”面积含在内，70年使用权，没有装修……也许你要说，这不公平，150万美元等于1000多万人民币呢。 1000万人民币在牛X国能买什么房子？ 如下图，200平米？ 建筑面积？70年产权？没有装修没有电器的空壳？没有室外私属设施？说强拆就强拆，管你装修往里搭了多少钱……我没有说错吧。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b1.png)![]()![](https://gnews.org/wp-content/uploads/2021/04/b2.png)![]()![](https://gnews.org/wp-content/uploads/2021/04/d1.png)
+更何况，在海外赚150万美元付出劳动，和在牛X国赚150万冥币付出的劳动和时间是差不多的，人家还有医保、退休保、各种福利保……简单说，同样的付出，中共国老百姓付出的甚至更多，得到的回报确实差距如此之大，创造的财富哪里去了？ 答案不言而喻，都被中共贪官抢夺去了，给这些畜生的家人拿到海外消费了。
 
-**路德**
-今天早上我们提到的2021年战略竞争法案
-We mentioned the 2021strategic competition bill
-里面有重要的内容，现在我们已经拿到了全文啊
-It contains very important information, now we have the full text
-而且全文里面关于这个病毒来源的报告
-It has full report about the origin of CCP-virus
-这里面信息太重要了
-This information is critical
-要求在180天一定要递交给国会一份关于新冠病毒来源的报告
-It requests a full COVID19 report to be provided to the congress
-这里面等等啊还有很多信息
-It contains very critical information
-包括对中共的实验室泄漏和造假信息等等都要彻查
-Including thorough investigation about CCP lab leakage and misinformation
-这里面包含的这些信息，我待会说这里面有故事的啊
-As for the information in the report, I will share the story with you guys later
-这情报口提交就可以了，不需要司法认定
-All is needed is information from the intelligence bureaus, not need for court confirmation
-只需要情报提交，大家有没有觉得这个玩法和当年伊拉克那个很像
-Just intelligence, don’t you guys think this is rather similar to the trick played on Iraq war?
-bo博士，是不是？
-Dr. Bo don’t you think so?
-那瓦罗前几天3月31日敢说闫博士的报告太棒了
-Peter Nevero said on March 31, Dr Yan’s report was brilliant
-说明这所有的已经做好了
-Indicating all of this is ready
+说到这里，牛X国的同胞们，你们还相信“爹亲娘亲不如党亲”的谎言吗？ 还相信中共这个骗子流氓集团“一切为了人民”“爱党就是爱国”的洗脑骗术吗？
 
-**博博士**
-我有种感觉，这个报告已经写好了，就等着出来！
-I feel this report is ready and can be published any moment
+对比一下，同样的辛苦劳动，同样的一生，我们的父辈祖辈，受共产党盘剥和奴役，却从来没有机会享受到150万的房子，我真的哭了，为我自己可怜的父母，还有同样为党为国奉献一生仍然偏安与不到50平米的小楼房里，临老患重病却付不起医疗费的岳父岳母……
 
-**路德**
-就等着！说白了就等着两党来共同走流程
-Just wait! Basically, just waiting for both parties go through the procedure together
-更重要的是中共如何阻挠对新冠病毒调查
-More importantly, no matter how CCP try to impede the investigation on the COVID19 包括实验室泄漏，制造各种假信息
-Including lab leakage, and all kinds of misinformation
-所有的报告其实就是超限生物武器的一个报告
-All the reports is basically a report about this unrestricted bioweapon
-这个超限生物武器包括什么？
-what does this unrestricted bioweapon include?
-是不是，包括你如何搅混水，事后搅混水，这都要调查出来
-Right? Including CCP’s attempt to stir up the water, all will be investigated
-最重要的是赵立坚，外交部的赵立坚质问为何美国满世界建造这么多实验室
-More importantly, Zhao Lijiang from CCP foreign ministry questioned US about building all that many labs in the world
-你看，他说的话说为何美国独家反对禁止生物武器公约？
-He was question, why US is against bills to ban bioweapon?
-我们昨天做节目说这个大规模杀伤性武器
-Yesterday, we talked in our show about this mass destruction weapon
-中共违反了大规模杀伤性里面主要提的就是生物武器
-The CCP violated the MDW, the most important part is bioweapon
-中共现在反过来反咬一口
-Now, CCP is backfiring
-这个是赵立坚说的，拜登小布什当时一起灭萨达姆，一样的
-What Zhao Lijiang said, Biden and Bush Jr. when they work together to take down Sadam, it was the same trick
-是不是，外交关系委员会，也是，你只要情报口确认
-Isn’t that correct, council of foreign relations, the same situation, all you need is intelligence confirmation
-得到这个结论就可以了这里面包含的信息量太大了
-And come to this conclusion, it contains too much information
-所以我一看到这个的时候
-So, when I saw this
-咋们的莱昂纳多太棒了就把这个部分找出来
-Leo did a great job
-大家看原文在这里，大家可以自己去翻，214项
-The original document is here, you guys can do your translation, it has 214 pages
+中共国的同胞们，真希望你能看看这实实在在的对比，好好思考一下，同样的人生，却不能享受同样的生活。那个靠骗靠抢发家并执政的中国共产党，就是剥夺我们好好活一回的罪恶强盗，早日推翻中共，我们都有一个公平的争取美好生活的机会，哪怕，也仅仅是为了下一代……
 
-0
++2

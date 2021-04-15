@@ -1,81 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 克里访问中共国与二战美国给日本的《赫尔备忘录》
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1095572/)
+## 扛着虎皮做大旗的当代国宾论坛李肃如何在自嗨中圆梦武统台湾
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1095467/)
 
-**简述：在2021年4月12日的盖特视频中，郭先生分析说美国前国务卿克里即将对中共国的访问，与珍珠港袭击之前美国发给日本《赫尔备忘录》[1]有异曲同工之妙。尽管克里跟中共有很亲密的关系以及可能跟中共勾兑，但是他这次访问，必须向中共传达以下三个信息：警告中共不准袭击台湾；要求中共尽快将军队和警察撤离香港；并且向全世界公布病毒的真相。美国经济将会经历起伏，但是最终会变得更加强大。中共和习近平是现代版的纳粹和希特勒，但是当今的世界有新中国联邦、郭先生，以及众多的爆料革命战友们一起来对抗他们的疯狂。**
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210412_getter1.srt.txt)
-**克里访问中共国与二战美国给日本的《赫尔备忘录》**
+撰稿：喜马拉雅的肉夹馍；审校：喜马拉雅的馍夹肉；校对：Maarago
 
-**John Kerry’s Trip to China and the Hull Note in WWII**
+（视频来源——[**鼓上蚤石迁**](https://weibo.com/7302015183?refer_flag=1001030103_) [03月31日 21:43](https://weibo.com/7302015183/K8MoC8QSA?refer_flag=1001030103_) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d) [L鼓上蚤石迁的微博视频](http://t.cn/A6cAxoPb) ）​
 
-美国的前国务卿John Kerry，咱们中文叫克里。(他)要马上访问北京，做为拜登特使要访问北京。(他到北京)干啥去咧？你想想去干啥去咧？在这个之前，我想大家好好看看就是我昨天说的1941年11月份，在二战前，日本偷袭美国珍珠港前，美国发的赫尔备忘录(Hull note)。（美国当时）通知日本必须限多少天要从中国–当时的中国我们的中国啊–全面撤军，无条件（撤军），必须撤。
+经查，此位砖家是当代国宾智库论坛李肃，他在视频中是这样说的——
 
-Have you heard that former U.S. Secretary of State John Kerry will soon visit Beijing as President Biden’s special envoy? What is the purpose of Kerry’s trip to Beijing? Before addressing that, I would recommend everyone to watch my live broadcast video yesterday referring to the “Hull note” (the “Outline of Proposed Basis for Agreement Between the United States and Japan”). The U.S. government issued the Memo in November 1941, just before the Japanese attack on Pearl Harbor during World War II. Then the U.S. demanded Japan to withdraw its troops unconditionally from China (note that at that time China still belonged to the people of China) within a certain time frame.
+［所以你看这次会谈我就说美国敢说什么？你敢说中国动武之后你就来动武？你敢来为解放台湾的问题你去说粗话说硬话，我根本不相信，上次我就说了，我说现在我们为武统台湾的事儿，美国任何一个人都没敢说过一句硬话，他敢吗，他为台湾问题去动武去？跟你去打局部战争，只要开打局部战争，我们就说那各种各样的问题都会出来的，那中俄就会全面联盟，这朝鲜就会统一，事儿多了，伊朗就会参加到整个行列里边来折腾整个的西边整个的阿拉伯世界。
 
-当然（日本）天皇，山本五十六这些人都不撤了，是吧？但是在这个之前，美国最起码派出过三波人就像克里一样去游说。告诉你(日本)啊：你赶快撤啊，再一个，你(日本)别想着在东南亚动我(美国)的奶酪。没想到（日本）咣叽一下打珍珠岛去了，这都是历史啊，(跟)大家好好说一说。
+你去想去吧，中美要真的在这块打起仗来，它会是什么结果？所以拜登看得清清楚楚，最后拜登那两句话说得明明白白，我理解中国人的民族感情，第二个为美国人的利益着想我不会去为台湾做什么，你看他那两句话里边的潜台词就这两句话，所以因此在这次会谈里边美国根本没有在台湾问题上做出任何强有力的反对和意见，反而是在会上说我就承认一个中国，而且你看到最后王毅那表态，那讲得真清楚，就是你别低估我们的这种决心，说什么呢？告诉你吧，今年和明年一定解放台湾，少废话，你美国怎么了，你来试一试来。
 
-Of course, the Japanese emperor and Yamamoto Isoroku didn’t do it, did they? But before that, the U.S. sent at least three groups of people to mediate, pretty much like what Kerry is going to do. The U.S. warned Japan to withdraw its troops immediately, and warned Japan not to try to touch U.S. interests in Southeast Asia. Yet, the U.S. did not expect Japan’s sneak attack on Pearl Harbor. It is part of history. Let’s have a good chat about history today.
+所以呢在这件事儿上，我认为实质性的中美关系其实就这一个关系，而在这一次会谈中，中国占据主导地位，最后的结果里边中国气粗气壮、极有底气地表达了自己所有的意见，而且告诉你美国人，你别在那低估我，你别以为我不敢干，我敢干你他妈香港我就敢干台湾，有什么啦，这就是新时代。
 
-说到这儿的时候大家知道(我)这几天这个到任何地方不谈灭共都不好意思了，（否则）基本都没人理你了，每天的变化就这(么大)。所有人一说话说不谈灭共，哎哟我滴娘嘞，不谈灭共那你不时髦啊，是吧？
+新时代所有追求的东西就是民族复兴，要找到一个重要的标尺，要找到一个重要的坐标，这坐标不是别的，就是在一百周年和二十大之前就是得解决台湾问题，不解决台湾问题还有着新时代了？！
 
-Do you know, my fellow fighters? These days wherever I go to meet with people, almost nobody wants to interact with me unless the subject of destroying the CCP is on the table. That is how much the conversation has changed. Everyone talks about taking down the CCP when they are handling business. Otherwise, you are behind the curve. Right?
+所以从这个意义上讲，2019年2月我们在美国就讲了一次，跟美国非常著名的智库讲，谈了十个问题，最后我们那句话愣被登在世界日报的头版头条上，那就在讲中国的智库到底在这讲了什么，就认为这两年里边一定会解放台湾，而且武统不惜武统也会解放台湾，没有解放台湾没有统一就没有民族振兴、就没有这个新时代，那讲得非常清楚的。
 
-七哥在三年前说（过）灭共是事业，灭共还是生意。现在大家一谈生意不谈灭共，你咋谈生意啊，是吧？你从中国的投资有没有啊？撤回来没有啊？你要没撤回来那我不给你投(资)了啊，因为你这风险太大了，是吧？不像原来似的（你）不在中共投资就没人投资你；现在反了，你在中共有投资那你不撤回来，没人投资你。谈生意还有灭共现在是最时髦的事业，任何人不谈(CCP)，对共产党没点什么理解坐在桌上你没话说了，没话说了。
+所以因此在这次会谈过程里边我们看到最终的结果里，本质性的问题就聚焦这一个点，其他都是在面儿上说的，本来就该这么说，就是大家分歧的话也该使劲说，然后大家该合作的话也该这么说，哪个都是一个平衡点上，就在那说的，哪两边话都说到了，没多大意思的，最后有意思的话你就看解放台湾的事儿去吧。
 
-Brother Miles said three years ago that taking down the CCP was not only a profound obligation, but also a business opportunity. Now there is no possibility for people to talk about business without talking about taking down the CCP. Right? [For example, people raise questions such as:] “Do you still have investments in the CCP market? Have you withdrawn your investment from the CCP? If you have not canceled your involvement with the CCP, I cannot give you my investment because of the high risk.” In the past, if you had no assets in the CCP market, no one would invest with you. Now it is completely reversed. If you still have investments in the CCP market and you have not withdrawn yet, no one will want to invest in your business. Doing business and discussing taking down the CCP are now the most fashionable causes. Anybody who does not talk about the CCP or does not have any understanding about the CCP will not integrate well in most business circles.
+我看完了以后我看得清清楚楚，所以我认为，我看胡锡进说的，写了一篇文章说这次双边会谈将载入历史史册，我认为也真的是载入历史史册的，是中国的战狼外交载入历史史册，在中国的民族复兴的大旗最后一定要在中美关系的调整过程中，改变世界秩序的，最后我要解放台湾，这也会是到最后在这次会议上体现出来的最重要的成果，而中美之间只能走冷战中的既竞争又对抗然后又得和解又得合作，这一点悬念都没有，有什么悬念呀？！
 
-所以说这次克里到中国去会(跟CCP)说什么？(第一，)台湾的问题你怎么办？你敢动一定灭你(CCP)；第二，香港的(军队警察)马上给我撤回去，恢复香港原来的(和)英国未（履行）完的合同。(如果)不撤回去，肯定制裁你(CCP)；第三件事情，（关于）冠状病毒（真相），必须说实话。（如果）不说实话，肯定收拾你 — 脱钩甚至开战。信不信？
+所以我们一贯就是说，这拜登就是个冷战，真冷战，而且算是个温和的冷战，这特朗普，特朗普就是一个假热战，你听他张牙舞爪，他打什么仗？他哪儿是战争贩子呀，所以从这个意义上讲中美之间关系是恒定的，我们从来是乐观地去看，所以去年我去跟纽约时报和英国的第二大电视台我都谈了一次，对这个问题的看法都是抱有乐观积极的态度的，所以这个问题我今天大概就讲这些，谢谢大家。］
 
-What will John Kerry say to the CCP on his visit to Beijing? [First, he will ask the CCP,] “How to deal with Taiwan? If you dare to attack Taiwan, we will destroy you.” Second, he will tell the CCP to immediately withdraw its troops and police from Hong Kong and resume the unfulfilled agreement with Britain. If not, the U.S. will impose sanctions. In the end, he will demand the CCP to tell the truth about the coronavirus. If not, the U.S. will decouple, or even go to war with them. Do you believe it?
+这个李肃是不是个二货呢？经查他还真不是个二货，他在视频中提到的所谓2019年2月在美国的活动以及所谓的上世界日报的头版头条，没查到世界日报的头版头条，但查到了当代微信公众号“国宾智库”2019年6月20日14：06：09发布的[423期 《中国统一大业与中美关系变数》李肃、赵刚与黄江南论道：中美智库第十次对话](https://wemp.app/posts/362dfe79-85b1-4c0c-8e9e-697a179b41b1)里边提到了一些2019年2月所谓当代国宾智库的活动，在这一篇文章里，我们看到了江湖骗子一贯地拉起虎皮作大旗的伎俩： 1、拉美国原国防部长佩里的虎皮（图片说明：访问斯坦福大学的亚太研究中心、胡佛研究所两大智库，美国原国防部长佩里是赵刚的老师，从2013年至今组织过多次中美关系对话。这次来访是第十次对话。）——
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-14-114.jpg)
+2、拉小布什时代的助理国务卿芬格的虎皮（照片说明：今天我和赵刚在斯坦福大学亚太研究中心与美国原情报委员会主席、小布什时代的助理国务卿芬格对话统一台湾问题。）——
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2-31.jpg)
+3、拉所谓美籍华人精英名士的虎皮（照片说明：与美籍华人精英名士交流统一大业和中美关系。）——
+![]()![](https://gnews.org/wp-content/uploads/2021/04/3-31.jpg)
+4、拉斯坦福大学胡佛研究所的虎皮（照片说明：我们与斯坦福大学胡佛研究所的特聘研究员潘文交流统一台湾问题。此人是一位中国通，1980年代的美联社住中国记者，最近参加了胡佛研究所的研究项目《中国影响力》，轰动美国。他对中美关系和特朗普有重要的分析，在统一台湾的问题上也有独特的看法。）——
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4-16.jpg)
+既然有了拉面虎皮做大旗的行头，则必然要有拿着鸡毛当令箭的绝技，然后呢？就是要把爱国生意做到极致啦，我们再回过头来看看扛着虎皮做大旗的当代国宾论坛李肃如何在自嗨中圆梦武统台湾的——
 
-但是克里这个人不值得信(任)，（因为）这个人和中共是非常非常亲近的。克里我知道他太多(事情)了，(他家)原来就住在我北面嘛。他女朋友是原来美国第一任小姐啊。(他女朋友)是我朋友，非常漂亮的一个美女，拍过电影。很早我就去过他(克里)家，她(克里女朋友)家，我都去过，都去过。（我）很了解他。但是呢，民主党这回派他去，拜登派他去，中间(和CCP)会有勾兑，会有勾兑。（比如）扣扣手啊，捏捏啊，是吧？划拉划拉脸啊（摸摸脸），拍拍肩啊……(克里)会配合(CCP)说一些软话，外交上的话。（他）会给共产党很大的面子，甚至个人之间有这样那样的想法，你懂得啊，你懂的。
+1、如果美国干涉中共武统台湾会出现什么样的乱局——中俄就会联盟、朝鲜就会统一、伊朗就会折腾整个阿拉伯世界。此言不虚也，中共早就做好了组织流氓团伙捣乱的计划，朗朗乾坤流氓也就这几个，如果几个流氓能够掀翻整个世界，那么美国就的确不配做人类文明的灯塔了，有资格在纸上谈兵的必须是赵国的赵家人赵括，由此观之李肃不能纸上谈兵，但是可以用狗尾为赵家人续貂；
 
-However, Kerry is not trustworthy because he is too close to the CCP. I know a lot about him. He used to live not far to the north of my house. His girlfriend was the first “Miss America Pageant” winner, a stunner. She acted in movies. I have been to both of their houses. I know Kerry very well. The Democrats and Biden sent him to China this time. There will be collusion between them. Kerry will go along with [the CCP], uttering soft and diplomatic words. He will give the Communist Party an opportunity to save face. It will involve some dirty dealings between individuals. You know what I mean.
+2、用组团的流氓为自己壮胆之后想当然的认为拜登吓尿了，拜登政府只能承认一个中国，拜登政府只能跪舔王毅；
 
-但是，战友们要记住，要传达的信息是一定要传达的。当年美国赫尔备忘录(Hull note)之前也一样，那三人有时候软有时候硬的，最后挡不住(美国的民意)，美国是(民主)国家是民意做决定。
+3、在自淫自嗨之下再进一步把中美关系框到意淫中的中共已经占据了中美关系的主导，2035已经提前到来，2049已经马上到来——美国人完蛋了！
 
-But you must understand, my fellow fighters – Kerry must deliver these messages, he has no alternative. It is very similar to the situation when the U.S. released the Hull note back then. All sides will play it out politically, but nothing can hold back the U.S. public opinion. The U.S. has democracy. Third, it is public opinion that makes the call.
+4、中华民族在伟大复兴即将到来，伟大复兴的前奏就是打台湾。
 
-大家现在看一看，（我）先问问战友们：你(们)知道二战前美国的经济啥样吗？二战前的美国的经济啥样知道吗？二战前美国的经济糟透了，大萧条。二战以后美国成了世界的帝国，强国，经济强大。（美国）进入了经济周期每八年一个(涨幅)，越涨越高。现在美国经济最强势，(接下来)一定经济会出问题，经济出了问题就叫大萧条，大萧条的结局就是–灭共！
+中共治下要中国人命的方式数不胜数，但是在这里我们看到了李肃们要中国人命的方式——用纸上谈兵的方式营造假擀面杖子雄纠纠气昂昂的假相，然后这吹起来的擀面杖子在意淫中称雄称霸全宇宙，假擀面杖子随时可以达到高潮，哪怕实在没有也可以假装有，但是最终付出代价的就是豢养和相信了李肃们的慈禧和义和团们。
 
-Let me ask you first: do you know what the U.S. economy was like before World War II? It was terrible. It had suffered through the Great Depression. But after World War II, the U.S. became the world’s empire, the most powerful country with a strong economy. The U.S. entered a virtuous economic cycle, rising every eight years, higher and higher. Now, although it looks strong, it will soon go wrong. Once that happens, the U.S. will suffer a Great Depression again, leading to the destruction of the CCP.
+（文章内容仅代表作者个人观点）
 
-（另外）大家知道二战以前日本经济啥样吗？日本经济非常滴好啊。当时是德国那绝对是(经济最好)，日本(经济)跟德国没法比，德国经济比(日本)好太多了。但是二战之后，德国从来没追上过日本，为啥？就是中国国内(的)傻叉小粉红们（听好了）：只有国家政体稳定，人民安居乐业，不为一个家族或者所谓的一个天皇某几个人服务所操弄的时候，大家才有真正的富裕，真正的强大的机会。这就是当年的日本(强大的原因)，而德国当年被打成那个样子，德国永远没追上过日本，到现在永远不可能追上日本。因为德国虽然稳定了，但是德国(纳粹)当年折腾的太大了。这就是现在的中共国(和当年的德国纳粹一模一样)。
-
-Do you know what the Japanese economy was like before World War II? The Japanese economy was excellent. At that time, Germany was absolutely the best, and the Japanese economy was not comparable to that of Germany. But after World War II, the German economy never caught up with Japan. Why? The brainless fanatics in mainland China, please listen to what I am going to say very carefully – Only when a country’s political system is stable, when ordinary people (Lao Bai Xing) have jobs, a regular life, and only when most people are not serving an elite few families, or an emperor, does the country have a chance to become rich and mighty. This is why Japan was strong. Germany was beaten so badly and never caught up with Japan after its defeat. It still has not, and it will have a hard time doing so. Germany is stable, but the damage and after-effects caused by the German Nazis were too extensive. How similar is today’s CCP to Nazis Germany?
-
-(CCP)这两天说了，不对美国抱有什么希望了，（实际上）你（想）报希望报不成（了）。这次（CCP)吓唬台湾吓到这个程度，全世界也把台湾的问题给推出来了。如果他(CCP)一直说对台湾怎么样怎么样，你(美国和国际社会)还没法说。结果冠状病毒+香港+台湾(一起)，这事大了。全世界想把这个事情压下去都压不下去了。
-
-In the past two days, the CCP has expressed that it no longer expects the U.S. to resume friendly relations anymore. Indeed, they wish it could happen, but there is no chance anymore. This time, the CCP’s grave threat to Taiwan has prompted the world to put this issue on the table. If the CCP had only verbally threatened Taiwan, the U.S., and the international community would not intervene. However, with the combination of the coronavirus, the Hong Kong incident, and the Taiwan issue, the CCP’s crimes cannot be overlooked. There is no way anyone can quietly cover them all up.
-
-(CCP和习近平)就（是）百分之百的现代版的希特勒，纳粹(干的)事情；百分之百的当年日本的侵略，帝国主义，军国主义。当年二战的时候没有新中国联邦啊，没有文贵诞生，所以那个时候人类遭受了那么大的罪 — 哈哈哈（俺这）不要脸啊，俺又不要脸了 — 现在有文贵啊，有新中国联邦，有战友们，所以它(CCP)玩球蛋了。信不信战友们？不管你信不信，时代都会让你知道这是个伟大的时代，属于我们(新中国联邦人)的时代。
-
-The CCP and Xi Jinping are the modern-day Nazis and “Hitler”. We are in a similar situation as with the Japanese invasion, imperialism, and militarism during WWII. World War II was a time of great human suffering because there was no New Federal State of China (NFSC), and Miles had not yet been born. Ha-ha! I am boasting again. I am complimenting myself again. It is different now because people have Miles, the NFSC, and our fellow fighters. So the CCP is over. Fellow fighters, do you believe it? Whether you believe it or not, time will show you the answer. It is destined to be a wonderful era, an era that belongs to the people of the NFSC.
-
-共产党玩球蛋了，共产党你玩球蛋了。走着看，很多好消息我不能说，得Hold住。咱（们)今年不搞重磅，大家走着看。(世界)经济、政治、军事的动荡接踵而来。突发事件：美国、中共、台湾、香港、马六甲海峡，一个接一个(会发生事儿)。世界的焦点全在这儿呢！
-
-The CCP, you are finished. We will see. There is much exciting information I cannot unveil in advance. I have to control myself and not say too much. This year we should not give you many bomb shells. Let’s wait and see. World economic, political, and military upheavals will happen one after another. The U.S., the CCP, Taiwan, Hong Kong, and the Straits of Malacca are the world’s focuses, and there will be frequent emergencies.
-
-参考链接：
-[1] [赫尔备忘录](https://zh.wikipedia.org/zh-cn/%E8%B5%AB%E7%88%BE%E5%82%99%E5%BF%98%E9%8C%84)
-
-* * *
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60745015dbc8001854a7ebe3](https://gtv.org/getter/60745015dbc8001854a7ebe3) (00:18-02:17, 05:23-09:53)
-鸣谢：
-[1] 感谢 盘古小蚂蚁、Antsee-GTV、TING GUO 提供中文文本于 [https://gnews.org/zh-hans/1082361/](https://gnews.org/zh-hans/1082361/)
-[2] 感谢 Antsee-GTV、Liberte 提供英文翻译于 [https://gnews.org/1090501/](https://gnews.org/1090501/)
-
-* * *
-
-*整理校对 & 新闻撰写：【7PawBear】字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】*
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
-+1
+0
