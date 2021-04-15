@@ -1,133 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】致SEC门前抗议的勇士们！
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1094433/)
+## 普京与拜登面对面会晤可能在夏季举行
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1094509/)
 
-**作者：纽约香草山美食部 小猪胖胖681**
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/logo-5.jpg)
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/B-31.jpg)buninessinsider.in
+04月14日，俄罗斯总统普京与美国总统拜登的面对面会晤可能在夏季举行。这是白宫新闻秘书詹·普萨基（Jen Psaki）在一次简报会上宣布的，简报在脸书上进行了报道。
 
+据普萨基称，预计会议将在未来几个月内安排，“在接下来的几个月里将是今年夏天。”美国总统发言人澄清说。
 
+此前，拜登和普京举行了电话会谈，美国总统提议俄罗斯元首在未来几个月内到“第三国”举行会晤，全面讨论两国关系中的问题。克里姆林宫则证实，普京收到了亲自会面的提议。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片78.png)
+奥地利外交部在评论俄美两国总统会晤的可能性时表示，奥地利随时准备成为最高级别的谈判平台。
 
-视野里
+参考链接：
 
-一张张青春活力的面孔
-
-衣衫整洁
-
-举手头足的
-
-优雅风度
-
-让西方世界的人
-
-为之震撼！
-
-是谁？
-
-为我新中国联邦的勇士
-
-视频前的我
-
-老泪纵横
-
-这世间
-
-最缺的
-
-就是勇气和正义
-
-这样的
-
-可爱的一群勇士们
-
-来自我
-
-新中国联邦
-
-殊不知
-
-在中共（国）的丑化下
-
-猥琐无耻的欺民贼
-
-污损了
-
-海外中国人的形象
-
-如今
-
-那些
-
-站在SEC门口抗议的勇士们
-
-不顾个人安危
-
-为SEC对GTV投资者的不公
-
-勇敢的抗议着
-
-呐喊着
-
-此举
-
-震撼了西方世界
-
-他们说
-
-历史几十年
-
-从没见过
-
-如此风貌的中国人
-
-为不公
-
-勇敢地站出来
-
-当街抗议！
-
-是的
-
-前方的勇士
-
-用自己的实际行动
-
-告诉
-
-SEC
-
-告诉
-
-和中共勾兑的暗黑实力
-
-铮铮傲骨
-
-扬我新中国联邦人之魂
-
-勇敢正义
-
-乃我新中国联邦之幸事！
-
-新中国联邦人
-
-永不为奴！
-
-校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2.jpg)
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+[https://www.rbc.ru/rbcfreenews/607617269a79472cb33367ca](https://www.rbc.ru/rbcfreenews/607617269a79472cb33367ca)
 
 0

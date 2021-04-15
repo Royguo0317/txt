@@ -1,27 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 塞尔维亚暂停紫金矿业在该国的铜矿施工
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1094908/)
+## 研究称中共病毒的变异株对接种疫苗的人影响大于未接种疫苗
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1095018/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+翻译：洛杉矶天使农场– 烟波浩淼
+校对：洛杉矶天使农场–雨山溪桥客
+审核：洛杉矶天使农场–断播
+![]()![](https://gnews.org/wp-content/uploads/2021/04/covid-19-5070658_1280-800x534-1.jpg)
+**以色列特拉维夫大学（Telaviv University****）的一项最新研究发现，接种辉瑞/****生物技术（Pfizer/BioNTech****）疫苗的人感染中共病毒南非变种的可能性高出8****倍。**
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Z-2.jpg)mining.com
-路透社报道，塞尔维亚矿业和能源部长周三表示，由于中共紫金矿业集团未能遵守环境标准，塞尔维亚已下令该集团暂停该国唯一铜矿的竖井施工，并要求其紧急完成一座废水处理厂的建设。
+参与这项研究的以色列顶级医疗机构克拉里特健康服务（Clalit Health Services）的研究主任冉·巴里切尔（Ran Balicer）教授说：“这是世界上第一个基于真实世界数据的研究表明与原始病毒和英国变异病毒相比，这种疫苗对南非变异病毒的效果较差”。
 
-塞尔维亚矿业和能源部长米哈伊洛维奇（Zorana Mihajlovic）说，有关部门3月底已下令紫金矿业位于塞尔维亚的子公司停止贾玛 (Jama) 铜矿竖井的施工。
+这项同行评议的研究调查了400名“至少注射过一次辉瑞/生物技术疫苗”并且也感染了南非中共变异病毒的人——他们与400名同样被感染但未接种疫苗的人进行了比较。
 
-紫金矿业成为塞尔维亚铜矿联合体的战略合作伙伴，该联合体包括Jama铜矿。中共在塞尔维亚投资了数十亿欧元，主要是以软贷款的形式，为高速公路和能源项目提供融资。紫金矿业在塞尔维亚的子公司上周表示，计划在2021年投资4.08亿美元，对旗下矿山和冶炼厂的环境标准进行检修、扩张和改善。
+研究结果显示，“B.1.351病毒变异在接种疫苗的个体中被发现的几率是未接种者的8倍，及5.4%比0.7%。”辉瑞/生物技术疫苗被认为具有高度的保护性，但显然它对南非病毒株没有那么强的保护性病毒。
 
-紫金矿业在塞尔维亚的子公司周三晚些时候发表声明说，居民投诉噪音大后，按照当局的命令，已经停止了位于博尔镇贾玛 (Jama)铜矿的通风井施工。
+特拉维夫大学的阿迪·斯特恩（Adi Stern）承认，这项研究的发现令人不快。
 
-米哈伊洛维奇表示，紫金矿业还接到命令，紧急完成一座废水处理厂的建设，以改善多瑙河支流佩克河的污染情况。紫金矿业被要求于4月30日前停止所有违规行为。
+斯特恩说：“我们发现，与未接种疫苗的人群相比，接种第二剂疫苗的人群中南非变异病毒株的比例更高。”
 
-全球健康和污染监督机构联盟在2019年的报告中称，塞尔维亚是欧洲污染最严重的国家。上周六，数千人聚集在首都贝尔格莱德，抗议政府缺乏行动防止主要由工业和采矿业造成的污染。
+“这意味着南非变异病毒株在某种程度上能够突破疫苗的保护。”
 
-参考链接：
+他补充说，“根据普通人群的模式，我们本以为只有一例南非变异，但我们看到了八例。显然，这个结果并没有让我们感到高兴。”
 
-[https://www.reuters.com/article/us-serbia-mining-china/serbia-halts-china-owned-mine-over-environmental-breaches-idUSKBN2C111G](https://www.reuters.com/article/us-serbia-mining-china/serbia-halts-china-owned-mine-over-environmental-breaches-idUSKBN2C111G)
+然而，目前南非变异的中共病毒在以色列的中共病毒病例中所占比例还不到1%。阿迪·斯特恩说，根据研究结果，应该“继续密切关注”遏制B.1.351变种在以色列传播的努力。
+
+以色列最近推出了一项极具争议的“疫苗护照”制度，给予接种疫苗的人特权，而不是给予未接种疫苗的人特权，这一行动受到公民自由组织的广泛批评。
+
+原文作者：凯瑟琳·萨尔加多(Catherine Salgado)
+发布时间：2021年4月13日
+原文链接：[https://thenationalpulse.com/breaking/covid-variants-affect-vaccinated-more-than-unvaccinated-study-claims/](https://thenationalpulse.com/breaking/covid-variants-affect-vaccinated-more-than-unvaccinated-study-claims/)
 
 0

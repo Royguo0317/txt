@@ -1,101 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】路德4月13日晚要点速览: 热议！CNN首席医疗记者Gupta转向支持闫博士立场
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1091298/)
+## CNN名记者古普塔反了CNN对中共病毒的立场
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1094073/)
 
-作者：香草山翻译部 GBW/文明世界
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-21.jpg)sakafete.com
+3月28日桑杰·古普塔（Sanjay Gupta）在CNN《特别报道》栏目，有倾向性地报道了中共病毒“实验室泄露”理论，此节目3月26日的“剧透”中，首爆前疾控中心主任雷德菲尔德博士的“实验室泄露”说，笔者对CNN此举感到惊讶的同时，觉得是CNN试图挽回惨淡收视率的企图，也没排除拜登政府的运作结果，更大的可能则是文贵先生、班农先生、纳瓦罗先生、蓬佩奥国务卿等战略家推进的结果。
 
+笔者对两则新闻进行了较全面和及时的跟进【1】、【2】。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+《美国新闻网》4月13日对古普塔有了最新报道，题目“CNN的古普塔改变了CNN的立场，称中共病毒可能来自实验室”。
 
+全文如下：
 
+美国有线电视新闻网（CNN）首席医学记者桑杰·古普塔（Sanjay Gupta）反驳了CNN（曾经的）对中共病毒的立场，表示病毒可能来自武汉实验室。
 
-**CNN首席医疗记者古普塔（Dr. Sanjay Gupta）博士之前做节目专门反对闫博士报告结论，现在非常坚定完全支持闫博士报告结论意味着什么？**
+“有理由怀疑这是病毒的起源，武汉的一个大型病毒学实验室，碰巧在研究蝙蝠冠状病毒，”古普塔说，“仅仅从奥卡姆剃刀的角度来看，找到最简单的解释，就有意义了。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/58-1.jpg)路德时评截图
+在最近的一次采访中，古普塔似乎为前疾控中心主任罗伯特·雷德菲尔德辩护，此前CNN批评了雷德菲尔的说法。
 
-1. CNN的古普塔（Dr. Sanjay Gupta）博士表示支持前疾控中心主任Robert Redfield博士的观点，即导致COVID-19的病毒很可能从武汉的实验室意外逃逸，该理论符合奥卡姆剃刀（Occam’s razor principle）原理。
+美国有线电视新闻网（CNN），连同中国共产党和拜登政府，继续声称病毒是自然出现，但古普塔似乎不同意。
 
-- 奥卡姆剃刀原理表明，最简单的解释——即需要最少假设的解决方案——是最可取的。
+“我不同意有人说的’这显然是来自海鲜市场’，你会说，那背后的证据呢？”普塔解释说，“有很多人从来没有去过那家海鲜市场，他们还是被感染了。所有这些悬而未决的问题，即使是现在的世界卫生组织总干事谭德塞也表示，所有的选择、所有的可能性仍然在讨论中。”
 
+古普塔还批评世界卫生组织允许中共国政府控制对中共病毒起源的调查，他承认，由于这种可疑的掩盖，我们可能永远也找不到真相。（原文完）
 
-a. 古普塔（Gupta）博士是CNN的台柱
+作为病毒专业外行人士，笔者与古普塔同样地担心中共的掩盖，“我们可能永远也找不到真相”，中共无恶不作，相应的毁灭罪证更是无底线，完全符合恶魔的逻辑，恶魔不会留下任何证明是恶魔的证据。但是，我们还应该坚信，“魔高一尺，道高一丈”，正义终究会战胜邪恶！
 
-- 他是神经外科医生，曾多次获得艾美奖，为他赢得CNN首席医疗记者的席位。
+参考链接：
 
+【1】[https://gnews.org/zh-hans/1023905/](https://gnews.org/zh-hans/1023905/)
 
-b. CNN已经打开大门放出不同的声音
+【2】[https://gnews.org/zh-hant/1038363/](https://gnews.org/zh-hant/1038363/)
 
-- 让民主党人了解病毒的真正来源。
-
-
-c. 过去，CNN称“实验室起源”是阴谋论。
-
-- 古普塔Gupta承认，他过去不接受实验室起源，是因为共和党在推广这一理论。
-
-
-d. 路德：“头牌主播Gupta反CNN”纯属CNN的巧妙炒作
-
-- CNN如果不支持古普塔Gupta就不会播他的节目了。
-
-
-e. 纳瓦罗和班农对CNN的实验室来源报道表示欢迎。
-
-纳瓦罗恭喜古普塔博士破格唱反调，提醒CNN大选已经结束，该回来讲讲真相了。并指出，病毒有99.9％的可能性来自武汉实验室——由Fauci资助！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/59-3.jpg)
-
-f. 路德透露：闫博士以后也会出现在左派媒体上。
-
-- 会让所有美国人知道闫博士。
-
-
-g. 路德：最终，美国人将了解
-
-- 119：2020年1月19日，路德节目爆料COVID-19新冠
-
-
-- 128：2020年1月28日，特朗普发布旅行禁令背后的原因。
-
-
-- 香港：是香港民运唤醒闫博士。
-
-
-- 3F计划：2017年文贵先生警告中共的3F计划要摧毁美国。
-
-
-2. 王毅：口出恶言， 羞辱布林肯国务卿
-
-- 布林肯将成为第二个蓬佩奥
-- 最差的国务卿
-- 两人之间的差距就是几磅肥肉
-
-
-信息来源：
-[4/13/2021 路德时评（路博冠谈）：CNN著名主播古普塔博士之前做节目专门反对闫博士报告结论，现在非常坚定完全支持闫博士报告结论意味着什么？](https://www.youtube.com/watch?v=IUDmDfpbuOs)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑： 文明世界
-
-校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
+【3】[https://www.oann.com/cnns-gupta-breaks-from-network-stance-says-covid-could-come-from-lab/](https://www.oann.com/cnns-gupta-breaks-from-network-stance-says-covid-could-come-from-lab/)
 
 0
