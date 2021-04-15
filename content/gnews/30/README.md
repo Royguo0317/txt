@@ -1,25 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政府与台湾对台互动的新准则
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1095135/)
+## 《路德社》精选新闻简讯：中共发动生物战威胁全世界安危必须被消灭
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1094937/)
 
-翻译： 康州盘古农场 – Freeearth
-校对： 康州盘古农场 – Mike Li
-编辑： 康州盘古农场 – 蓝精灵
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/1-14-100.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/041501.png)
 
-内德-普赖斯（NED PRICE），国务院发言人
+美国家情报总监艾薇儿·海恩斯与情报共同体领导人协作，于周二发布了一份未分类的年度报告 ，内容涉及全球范围内对美国国家安全的威胁。美国情报界警告说，在中共病毒大流行期间中共将试图利用“疫苗外交”来增强其在全球的影响力。情报界继续警告说，中共病毒大流行“将继续给政府和社会带来压力，并助长”人道主义和经济危机，政治动荡和地缘政治竞争。”
 
-2021年4月9日
+![]()![](https://gnews.org/wp-content/uploads/2021/04/041502.png)
 
-国务院发布美国政府与台湾对口互动新准则，以鼓励美国政府与台湾的接触，反映出我们不断深化的非官方关系。新准则强调台湾是一个活跃的民主政体、重要的安全与经济伙伴，也是国际社会中一股善的力量。这些新准则放宽与台湾接触时的指导，其与我们非官方关系一致，并明确整个行政部门里我们的 “一个中国”政策的有效落实，其遵从《台湾关系法》、三个联合公报和六项保证。经已完成的《台湾保证法》所载之审议，予以发布此新准则。
+中共释放的生物武器给全世界造成了深远的影响，中共称霸世界的野心已经世人皆知。用病毒和“疫苗外交“来影响全世界的目的已经浮出水面。CNN首席医学记者Sanjay Gupta博士在3月26日采访时支持CDC前局长Robert Redfield博士的断言，称**COVID-19逃离了武汉一家实验室**，该**实验室**正在对蝙蝠冠状病毒进行功能获得性研究，以使它们更进一步容易感染人类**，并且不是通过“自然起源”理论起源的**。病毒真相呼之欲出，加上闫丽梦博士的病毒报告，消灭中共指日可待。
 
-原文链接: [https://www.state.gov/new-guidelines-for-u-s-government-interactions-with-taiwan-counterparts/](https://www.state.gov/new-guidelines-for-u-s-government-interactions-with-taiwan-counterparts/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+[援引原文](https://twitter.com/dajiyuan/status/1382061140981727242?s=12)
+[援引原文2](https://www.foxnews.com/politics/china-vaccine-diplomacy-increase-influence-us-intel-community-warns)
+[援引原文3](https://www.zerohedge.com/covid-19/sanjay-gupta-breaks-cnn-backs-covid-lab-escape-theory-simplest-explanation)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+本文作者：Ray裁决
+审核校对：鲁邦五世
+上传排版：糖果儿
 
 0

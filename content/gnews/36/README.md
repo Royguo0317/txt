@@ -1,35 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 研究称中共病毒的变异株对接种疫苗的人影响大于未接种疫苗
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1095018/)
+## 美国政府与台湾对台互动的新准则
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1095135/)
 
-翻译：洛杉矶天使农场– 烟波浩淼
-校对：洛杉矶天使农场–雨山溪桥客
-审核：洛杉矶天使农场–断播
-![]()![](https://gnews.org/wp-content/uploads/2021/04/covid-19-5070658_1280-800x534-1.jpg)
-**以色列特拉维夫大学（Telaviv University****）的一项最新研究发现，接种辉瑞/****生物技术（Pfizer/BioNTech****）疫苗的人感染中共病毒南非变种的可能性高出8****倍。**
+翻译： 康州盘古农场 – Freeearth
+校对： 康州盘古农场 – Mike Li
+编辑： 康州盘古农场 – 蓝精灵
 
-参与这项研究的以色列顶级医疗机构克拉里特健康服务（Clalit Health Services）的研究主任冉·巴里切尔（Ran Balicer）教授说：“这是世界上第一个基于真实世界数据的研究表明与原始病毒和英国变异病毒相比，这种疫苗对南非变异病毒的效果较差”。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/1-14-100.jpg)
 
-这项同行评议的研究调查了400名“至少注射过一次辉瑞/生物技术疫苗”并且也感染了南非中共变异病毒的人——他们与400名同样被感染但未接种疫苗的人进行了比较。
+内德-普赖斯（NED PRICE），国务院发言人
 
-研究结果显示，“B.1.351病毒变异在接种疫苗的个体中被发现的几率是未接种者的8倍，及5.4%比0.7%。”辉瑞/生物技术疫苗被认为具有高度的保护性，但显然它对南非病毒株没有那么强的保护性病毒。
+2021年4月9日
 
-特拉维夫大学的阿迪·斯特恩（Adi Stern）承认，这项研究的发现令人不快。
+国务院发布美国政府与台湾对口互动新准则，以鼓励美国政府与台湾的接触，反映出我们不断深化的非官方关系。新准则强调台湾是一个活跃的民主政体、重要的安全与经济伙伴，也是国际社会中一股善的力量。这些新准则放宽与台湾接触时的指导，其与我们非官方关系一致，并明确整个行政部门里我们的 “一个中国”政策的有效落实，其遵从《台湾关系法》、三个联合公报和六项保证。经已完成的《台湾保证法》所载之审议，予以发布此新准则。
 
-斯特恩说：“我们发现，与未接种疫苗的人群相比，接种第二剂疫苗的人群中南非变异病毒株的比例更高。”
+原文链接: [https://www.state.gov/new-guidelines-for-u-s-government-interactions-with-taiwan-counterparts/](https://www.state.gov/new-guidelines-for-u-s-government-interactions-with-taiwan-counterparts/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-“这意味着南非变异病毒株在某种程度上能够突破疫苗的保护。”
-
-他补充说，“根据普通人群的模式，我们本以为只有一例南非变异，但我们看到了八例。显然，这个结果并没有让我们感到高兴。”
-
-然而，目前南非变异的中共病毒在以色列的中共病毒病例中所占比例还不到1%。阿迪·斯特恩说，根据研究结果，应该“继续密切关注”遏制B.1.351变种在以色列传播的努力。
-
-以色列最近推出了一项极具争议的“疫苗护照”制度，给予接种疫苗的人特权，而不是给予未接种疫苗的人特权，这一行动受到公民自由组织的广泛批评。
-
-原文作者：凯瑟琳·萨尔加多(Catherine Salgado)
-发布时间：2021年4月13日
-原文链接：[https://thenationalpulse.com/breaking/covid-variants-affect-vaccinated-more-than-unvaccinated-study-claims/](https://thenationalpulse.com/breaking/covid-variants-affect-vaccinated-more-than-unvaccinated-study-claims/)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

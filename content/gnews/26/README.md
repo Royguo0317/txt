@@ -1,80 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.9.2021PM-战略竞争法案包含病毒来源真相调查
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1095222/)
+## 分析：美国“是否”应该抵制北京2022年冬奥会
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1095383/)
 
-视频剪辑 : Ablec(文A)
-中听校： 洛杉矶天使农场 – 雨山溪桥客
-英翻译：洛杉矶天使农场 –Arthur文徐
-英校对：洛杉矶天使农场 – 烟波浩淼
-字幕+视频制作：意大利达芬奇农场 – 紫苏花生
+翻译：康州盘古农场 – 柯镇恶
+校对：康州盘古农场 – TrueSky
+编辑：康州盘古农场 – 蓝精灵
 
-**路德**
-今天早上我们提到的2021年战略竞争法案
-We mentioned the 2021strategic competition bill
-里面有重要的内容，现在我们已经拿到了全文啊
-It contains very important information, now we have the full text
-而且全文里面关于这个病毒来源的报告
-It has full report about the origin of CCP-virus
-这里面信息太重要了
-This information is critical
-要求在180天一定要递交给国会一份关于新冠病毒来源的报告
-It requests a full COVID19 report to be provided to the congress
-这里面等等啊还有很多信息
-It contains very critical information
-包括对中共的实验室泄漏和造假信息等等都要彻查
-Including thorough investigation about CCP lab leakage and misinformation
-这里面包含的这些信息，我待会说这里面有故事的啊
-As for the information in the report, I will share the story with you guys later
-这情报口提交就可以了，不需要司法认定
-All is needed is information from the intelligence bureaus, not need for court confirmation
-只需要情报提交，大家有没有觉得这个玩法和当年伊拉克那个很像
-Just intelligence, don’t you guys think this is rather similar to the trick played on Iraq war?
-bo博士，是不是？
-Dr. Bo don’t you think so?
-那瓦罗前几天3月31日敢说闫博士的报告太棒了
-Peter Nevero said on March 31, Dr Yan’s report was brilliant
-说明这所有的已经做好了
-Indicating all of this is ready
+据《华盛顿邮报》作者：Ishaan Tharoor，2021年4月12日报道：
 
-**博博士**
-我有种感觉，这个报告已经写好了，就等着出来！
-I feel this report is ready and can be published any moment
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/1-14-105.jpg)
 
-**路德**
-就等着！说白了就等着两党来共同走流程
-Just wait! Basically, just waiting for both parties go through the procedure together
-更重要的是中共如何阻挠对新冠病毒调查
-More importantly, no matter how CCP try to impede the investigation on the COVID19 包括实验室泄漏，制造各种假信息
-Including lab leakage, and all kinds of misinformation
-所有的报告其实就是超限生物武器的一个报告
-All the reports is basically a report about this unrestricted bioweapon
-这个超限生物武器包括什么？
-what does this unrestricted bioweapon include?
-是不是，包括你如何搅混水，事后搅混水，这都要调查出来
-Right? Including CCP’s attempt to stir up the water, all will be investigated
-最重要的是赵立坚，外交部的赵立坚质问为何美国满世界建造这么多实验室
-More importantly, Zhao Lijiang from CCP foreign ministry questioned US about building all that many labs in the world
-你看，他说的话说为何美国独家反对禁止生物武器公约？
-He was question, why US is against bills to ban bioweapon?
-我们昨天做节目说这个大规模杀伤性武器
-Yesterday, we talked in our show about this mass destruction weapon
-中共违反了大规模杀伤性里面主要提的就是生物武器
-The CCP violated the MDW, the most important part is bioweapon
-中共现在反过来反咬一口
-Now, CCP is backfiring
-这个是赵立坚说的，拜登小布什当时一起灭萨达姆，一样的
-What Zhao Lijiang said, Biden and Bush Jr. when they work together to take down Sadam, it was the same trick
-是不是，外交关系委员会，也是，你只要情报口确认
-Isn’t that correct, council of foreign relations, the same situation, all you need is intelligence confirmation
-得到这个结论就可以了这里面包含的信息量太大了
-And come to this conclusion, it contains too much information
-所以我一看到这个的时候
-So, when I saw this
-咋们的莱昂纳多太棒了就把这个部分找出来
-Leo did a great job
-大家看原文在这里，大家可以自己去翻，214项
-The original document is here, you guys can do your translation, it has 214 pages
+美国国务院发言人周二表示，有可能对中共的侵犯人权行为进行奥林匹克运动会抵制，但一位高级官员稍后表示，没有讨论计划。仿佛已经没有足够的中美摩擦事件，但是一个新兴的争议事件正在逐渐发酵：**抵制北京2022年冬季奥运会的呼声越来越高。**
+
+距离比赛还有10个月的时间，考虑到当前[冠状病毒](https://www.washingtonpost.com/coronavirus/?itid=lk_inline_manual_5)大流行带来的的不确定性，这个时间可能会更长。但是，该事件成为爆发点却并不算早。对中国执政的共产党的批评者（包括由180多个人权组织组成的联盟）认为，基于该政权的人权侵犯记录和地缘政治恶行，理应剥夺它利用像奥运会这样的盛事来塑造自己形象的权利。
+
+中国人权律师滕彪（[Teng Biao](https://www.washingtonpost.com/opinions/2021/02/04/beijing-olympics-2022-genocide-games/?itid=lk_inline_manual_8)）今年早些时候写道：“2015年，北京获得了主办2022年奥运会的权利。就在同一年，它严厉打击了中国各地的律师和活动家”。“从那时起，它就已经在拘留记者；骚扰和攻击活动家和持不同政见者，即使是境外的也不放过；关闭非政府组织；拆除基督教教堂、藏族寺庙和穆斯林清真寺；迫害甚至是杀害——法轮功信徒；并大大加强了对媒体、互联网、大学和出版商的控制”。
+
+前国务卿迈克·彭培奥（Mike Pompeo）在上周的一次活动中说：“我认为不应该有美国人参加‘种族灭绝奥运会’。” 他指的是有关中共当局在新疆地区，对维吾尔族和哈萨克族妇女进行强奸和大规模绝育的报道，一些专家和美国国务院称这相当于种族灭绝。抵制北京2022冬奥会已成为共和党人中的热门活动。众议员约翰·卡特科（John Katko，R-N.Y.）说：“世界正在注视着我们的下一步行动。”
+
+保守派的美国企业研究所（American Enterprise Institute ）的[政策文件](https://www.aei.org/research-products/report/move-the-games-what-to-do-about-the-2022-beijing-olympics/)指出：“鉴于中共残暴的的人权记录，在疫情爆发初期对COVID-19的不当处理以及其对外界的敌对情绪，奥运会应该从北京移出。”该文件同时认为，美国应该利用国际社会对奥运会的关注来迫使中共统治集团“改正路线”。
+
+**拜登政府本周提供了一些混淆的信息。**首先，国务院发言人内德·普莱斯（Ned Price）[周二](https://www.bloomberg.com/news/articles/2021-04-07/u-s-comments-on-beijing-olympics-spur-talk-of-possible-boycott)表示，抵制冬季奥运会是“我们当然希望与志同道合的盟友讨论的事情”。但是国务院随后澄清说，没有就抵制进行高级别讨论的计划。第二天，白宫新闻秘书詹·普萨基（Jen Psaki）试图回避此事。她说：“我们尚未讨论，也没有讨论与盟友和伙伴的联合抵制。”
+
+在上周的一次活动中，美国奥林匹克与残奥会董事会主席苏珊·里昂（Susanne Lyons）表示，她的组织反对“运动员抵制，因为我们知道，（运动员）抵制会对运动员产生负面影响，而且不能有效解决全球问题。” 人们普遍记得，美国抵制1980年莫斯科夏季奥林匹克运动会，随后苏联抵制1984年洛杉矶奥运会作为对抗。这种不幸的冷战冲突事[件，](https://www.nationalcoldwarexhibition.org/schools-colleges/national-curriculum/social-economic-issues/olympic-boycotts.aspx#:~:text=In%201984%2C%20the%20American%20city,move%20for%20the%201980%20boycott.)在很大程度上伤害了合格的参与者。同时，活动的组织者表示，他们坚持非政治取向。国际奥委会在提供给Axios的一份声明中说：“鉴于参加奥运会的多样性，国际奥委会必须在所有全球政治问题上保持中立”，他补充说，尽管国际奥委会致力于维护人权，但“既没有权力，也没有能力，去改变主权国家法律或政治制度。”
+
+中共官员也发出了类似的口吻。外交部发言人赵立坚说： “体育政治化将损害《奥林匹克宪章》的精神和各国运动员的利益”。 中共政府否认对新疆发生的事情国际评估，还威胁说，如果抵制行动继续下去，中共将做出 “强烈回应”。
+
+**但是重大体育赛事，尤其是像奥运会这样的国际盛会，始终具有政治意义**。上个世纪最具标志性的奥林匹克时刻也许是一次政治抗议的行为（译注：指1968年墨西哥夏季奥运会上的抗议行为）。2008年北京夏季奥运会是发展中的中共国的崛起派对。在蓬勃发展的首都，整个社区都为奥运场馆腾出了空间。时任总统乔治·W·布什（George W. Bush）出席会议。他积极参与，放弃了对人权的关注。
+
+现在的情况远没有那么乐观，美国高级别政治代表团在明年二月前往北京的可能性很小。作为对上个月参议员罗姆尼（R-Utah）呼吁“经济和外交抵制”的回应，纽约时报专栏作家尼古拉斯·克里斯托夫（Nicholas Kristof）写道： “运动员应该参加比赛，电视台应该播出比赛，但政府官员和公司应该远离比赛”。克里斯托夫补充说：“我希望在北京的运动员能够抓住一切机会，提醒人们注意中共对新疆或其他地方的镇压。”
+
+抵制的问题仍然很敏感：外国政府和跨国公司对激起中共的愤怒保持谨慎——一些公司已经饱受其苦，因为他们为新疆的大规模拘留营和在新疆的发生的强迫劳动而大声疾呼。战略与国际研究中心（Center for Strategic and International Studies）的一名亚洲专家邦妮·格拉泽（Bonnie Glaser）告诉彭博新闻社： “可能有选择地禁止从中共进口某些产品，这能显示出国家拒绝奥运会和抵制中共公司的意图。”对于更依赖于中共投资和贸易的国家而言，情况更是如此。但是，在美国，聚光灯照在了赞助冬奥会的大公司身上。尽管它们中的多数都在国内政治问题上表达了自己的声音，但他们在新疆问题上却避而不谈。
+
+《华盛顿邮报》社论页面编辑弗雷德·希亚特（Fred Hiatt）写道，“在维吾尔族妇女遭到强奸、绝育和被迫卖淫的同时，这些公司真的觉得我们能严肃看待，他们在性别平等上的自我庆祝吗？”。“距离冬奥会开幕还有十多个月。这些公司可以对中共政府说：解放集中营，让维族人生活在和平中。让外部观察者来看到你确实已经这样做了。然后再开始奥运会。”
+
+原文链接：[https://www.washingtonpost.com/world/2021/04/12/olympics-china-boycott/](https://www.washingtonpost.com/world/2021/04/12/olympics-china-boycott/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

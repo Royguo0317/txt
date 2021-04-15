@@ -1,79 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 百姓挨饿 粮商破财即将来临——评《粮食流通管理条例》修订的真正意图
-` 喜韩Gnews中文` [轉載自GNews](https://gnews.org/zh-hans/1095081/)
+## 【路德时评摘要】4.9.2021PM-战略竞争法案包含病毒来源真相调查
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1095222/)
 
-**作者：首尔喜韩农场  DS  配图：喜韩闪闪**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/IMG_2436.jpg)
-为了便于墙内传播，减少敏感字，把\*\*党称为马劣帮派，简称马帮。
+视频剪辑 : Ablec(文A)
+中听校： 洛杉矶天使农场 – 雨山溪桥客
+英翻译：洛杉矶天使农场 –Arthur文徐
+英校对：洛杉矶天使农场 – 烟波浩淼
+字幕+视频制作：意大利达芬奇农场 – 紫苏花生
 
-《粮食流通管理条例》已经2021年1月4日国务院第121次常务会议修订通过，2月15日发文，4月8日公布，4月15日起施行。
+**路德**
+今天早上我们提到的2021年战略竞争法案
+We mentioned the 2021strategic competition bill
+里面有重要的内容，现在我们已经拿到了全文啊
+It contains very important information, now we have the full text
+而且全文里面关于这个病毒来源的报告
+It has full report about the origin of CCP-virus
+这里面信息太重要了
+This information is critical
+要求在180天一定要递交给国会一份关于新冠病毒来源的报告
+It requests a full COVID19 report to be provided to the congress
+这里面等等啊还有很多信息
+It contains very critical information
+包括对中共的实验室泄漏和造假信息等等都要彻查
+Including thorough investigation about CCP lab leakage and misinformation
+这里面包含的这些信息，我待会说这里面有故事的啊
+As for the information in the report, I will share the story with you guys later
+这情报口提交就可以了，不需要司法认定
+All is needed is information from the intelligence bureaus, not need for court confirmation
+只需要情报提交，大家有没有觉得这个玩法和当年伊拉克那个很像
+Just intelligence, don’t you guys think this is rather similar to the trick played on Iraq war?
+bo博士，是不是？
+Dr. Bo don’t you think so?
+那瓦罗前几天3月31日敢说闫博士的报告太棒了
+Peter Nevero said on March 31, Dr Yan’s report was brilliant
+说明这所有的已经做好了
+Indicating all of this is ready
 
-4月8日国务院政策例行吹风会，国家粮食和物资储备局副局长黄炜表示，条例修订主要内容如下：
+**博博士**
+我有种感觉，这个报告已经写好了，就等着出来！
+I feel this report is ready and can be published any moment
 
-1、严格规范政策性粮食经营活动。
-
-2、取消粮食收购资格行政许可，加强事中、事后监管。
-
-3、强化粮食质量安全监管。
-
-4、防止和减少粮食损失浪费。
-
-5、加大对违法行为的惩处力度。
-
-6、明确监督管理职责。“粮食安全党政同责”首次写入我国法规。
-
-从黄炜的发言来看，讲的没问题，但，马帮的本性是基本不说实话，这次，虽然没说谎，但却是避重就轻，需要深入分析。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/IMG_2448-scaled.jpg)
-**一、公布条例的时机很敏感，说明他们意识到形势不妙了。**
-
-此条例于1月初完成，却拖了三个月才发布，距离条例生效只有一个星期，不给条例涉及到的各相关方充分的准备时间，非常反常，这说明修改的内容影响很大，不到万不得已，马帮是不会实施的。
-
-那是什么原因逼马帮紧急推出新条例呢？
-![]()![](https://gnews.org/wp-content/uploads/2021/04/IMG_2433-scaled.jpg)
-1. **白等时代的米国让马帮真的白等了。**
-
-
-马帮有白等儿子的小辫子，以为可以遥控白等，但白等只在形式上和口头上给了马帮一点面子，比如阿拉斯加会谈任由中方代表教训了10多分钟，给足了中方面子，而在立法和制裁行动上，则比川普还要狠，比如继续执行川普的对华关税政策、制裁7家中国超级计算中心（这是向病毒追究责任的信号，因为这7家参与了病毒的模型设计），这令马帮感到真的白等了，那么以后外汇来源就基本会枯竭，而大量的粮食进口需求则无法满足，因此必须马上控制国内粮食的分配权，否则马帮的家奴——公检法和军人就会因挨饿而不听指挥。
-
-- **以病毒和毒疫苗消灭人口的计划未达目标。**
-
-
-本来马帮偷偷发动病毒生化战争，又用毒疫苗二次进攻，在WHO谭书记和福奇等同志的配合下，即将控制全世界，哪想到上天安排了闫博士挺身而出，通过郭先生成立的法治基金、法治社会和暴料革命路德社及时向全世界预警，揭开马帮的毒计，导致马帮消灭人口、减少粮食需求和养老金需求的计划失败，因此在无法扭转中米关系的情况下，只有控制国内的资源来确保镇权的稳定。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/IMG_2446-scaled.jpg)
-**二、条例取消粮食收购资格行政许可，将使大量新进入的粮商被割韮菜，还有可能替马帮背锅。**
-
-以前经营粮食，需要许可证，马帮控制许可证的审批权，虽然能权力寻租，但仍然有很多资金无法进入粮食经营领域，此次放开许可，在2020年粮价上涨的驱动下，会有不少资金进来，但新增资金不会注意新条例给了党政一把手采取粮食应急机制的权力，第三十五条规定：粮食应急预案启动后，粮食经营者必须按照国家要求承担应急任务，服从国家的统一安排和调度，保证应急的需要。
-
-服从国家的统一安排和调度，就是说，马帮可以依法使用粮商的粮食，粮商无权要求自身的权益，因为条例没说有偿调度！
-
-取消许可证，万一控制不住粮价或粮食供给不足而引起民愤，马帮还可以把责任转移到经销商头上，由他们背锅。
-
-**三、粮商想赚大钱？没门！**
-
-受天气影响和病毒的大流行，国际粮价大幅上涨，因此不少粮商期望能在粮市大赚一笔。但条例第五条规定：粮食经营活动不得损害国家利益和社会公共利益。第十六条规定：销售粮食，不得囤积居奇、垄断或者操纵粮食价格、欺行霸市。
-
-根据这二条，马帮可以把粮商的超额利润随意拿走！
-![]()![](https://gnews.org/wp-content/uploads/2021/04/IMG_2447-scaled.jpg)
-**四、即使粮食紧缺，农民也要交粮，也不会有高价售粮的机会！**
-
-第二十九条规定：必要时可由国务院……对重点粮食品种在粮食主产区实行政策性收储。当粮食价格显著上涨或者有可能显著上涨时，国务院……采取价格干预措施。
-
-政策性收储，意味着即使粮食紧缺，你们农民也要交出粮食！如果粮价贵了，马帮要干预，农民的收入不会提高的。
-
-根据上述分析可知，大墙国粮食紧缺是早晚的事，即使粮价不上涨，普通老百姓也买不到足够的粮食。所以现在但凡你心里有一点点的疑惑的，就抓紧时间存粮吧！
-
-【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-【**责任编辑**】：韩国首尔喜韩农场Gnews中文小组
-
-### **欢迎战友加入韩国首尔喜韩农场**
-
-[韩国首尔农场 **GTV**](https://gtv.org/user/5ec1f79982e098349fd799ad)
-
-[韩国首尔喜韩农场 **Discord**](https://discord.gg/Z8jENsM)
-
-[韩国首尔喜韩农场 **Youtube**](https://www.youtube.com/channel/UCdxCALFQp1y1fo29gR1rEQQ)
+**路德**
+就等着！说白了就等着两党来共同走流程
+Just wait! Basically, just waiting for both parties go through the procedure together
+更重要的是中共如何阻挠对新冠病毒调查
+More importantly, no matter how CCP try to impede the investigation on the COVID19 包括实验室泄漏，制造各种假信息
+Including lab leakage, and all kinds of misinformation
+所有的报告其实就是超限生物武器的一个报告
+All the reports is basically a report about this unrestricted bioweapon
+这个超限生物武器包括什么？
+what does this unrestricted bioweapon include?
+是不是，包括你如何搅混水，事后搅混水，这都要调查出来
+Right? Including CCP’s attempt to stir up the water, all will be investigated
+最重要的是赵立坚，外交部的赵立坚质问为何美国满世界建造这么多实验室
+More importantly, Zhao Lijiang from CCP foreign ministry questioned US about building all that many labs in the world
+你看，他说的话说为何美国独家反对禁止生物武器公约？
+He was question, why US is against bills to ban bioweapon?
+我们昨天做节目说这个大规模杀伤性武器
+Yesterday, we talked in our show about this mass destruction weapon
+中共违反了大规模杀伤性里面主要提的就是生物武器
+The CCP violated the MDW, the most important part is bioweapon
+中共现在反过来反咬一口
+Now, CCP is backfiring
+这个是赵立坚说的，拜登小布什当时一起灭萨达姆，一样的
+What Zhao Lijiang said, Biden and Bush Jr. when they work together to take down Sadam, it was the same trick
+是不是，外交关系委员会，也是，你只要情报口确认
+Isn’t that correct, council of foreign relations, the same situation, all you need is intelligence confirmation
+得到这个结论就可以了这里面包含的信息量太大了
+And come to this conclusion, it contains too much information
+所以我一看到这个的时候
+So, when I saw this
+咋们的莱昂纳多太棒了就把这个部分找出来
+Leo did a great job
+大家看原文在这里，大家可以自己去翻，214项
+The original document is here, you guys can do your translation, it has 214 pages
 
 0
