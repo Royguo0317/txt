@@ -1,28 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国总理默克尔将在周五接种阿斯利康进行疫苗
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1098290/)
+## 中共在墙内又开始强取豪夺
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1098496/)
 
-信息来源：德国世界报网页版
-发布时间：2021年4月15日
-翻译/ 整理/ 简评： Shuizhuyu
+作者：只狼 | 校对：文明明 | 审核：宁缺| Page：我是球大哥
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/germany-scaled.jpg)
+从2021年3月底开始，广东省多地以摩托车和电动车对交通造成安全问题、对行人不安全为由，展开了大规模的“禁摩运动”。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/CmhSbxmVjOrPR/images/e9c58d95-38d2-4ef6-a0ed-c676b82dbad9.jpg?asset_id=0861c695-798f-42ed-8215-1b6d814cfb56&amp;img_etag=%22153dce2ed456800bc7437191f23889fe%22&amp;size=2560)](https://spark.adobe.com/page/CmhSbxmVjOrPR/images/e9c58d95-38d2-4ef6-a0ed-c676b82dbad9.jpg?asset_id=0861c695-798f-42ed-8215-1b6d814cfb56&amp;img_etag=%22153dce2ed456800bc7437191f23889fe%22&amp;size=1024)
+
+中共为了使这次“禁摩运动”能对老百姓有足够的“打击力度”，不仅出动了交警和特警，而且还让早已臭名昭著的城管“打手”们也加入其中，实行联合执法，仅看这阵势就知道接下来老百姓肯定又得遭殃。参与这次“禁摩运动”的联合执法队果然没有让他们的主子失望，对老百姓丝毫不留任何情面，把老百姓手中的一辆辆摩托车和电动车生拉硬拽地抢夺过来，强行用拖车运走，最后集中到一起销毁。在这次联合执法队抢夺摩托车和电动车的行动中，他们几乎无处不在，各个街道、医院及各个单位门口都被他们“光顾”了一遍，以至于街上基本上看不到有摩托车和电动车的存在，甚至连住宅区和小区周边也被清理的干干净净。即便是老百姓藏在家中的摩托车，也逃不过联合执法队的“登门拜访”……老百姓只能在无奈中眼睁睁地看着自己家中唯一的助行工具被这群“疯狗们”无情地拖走。其实，那些参与这次“禁摩运动”的“执法者们”大多也使用摩托车或电动车来充当他们“搜刮大行动”的交通工具。然而，与大多数无助的老百姓不同，因为他们是所谓的“执法者”，所以有特权。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/CmhSbxmVjOrPR/images/ee2381bc-ad76-42d8-8186-50e5aca3272a.jpg?asset_id=35f72769-c8a5-46ba-bc20-92a7d7c600df&amp;img_etag=%22855d34bad122c677ceb23529de496fa1%22&amp;size=2560)](https://spark.adobe.com/page/CmhSbxmVjOrPR/images/ee2381bc-ad76-42d8-8186-50e5aca3272a.jpg?asset_id=35f72769-c8a5-46ba-bc20-92a7d7c600df&amp;img_etag=%22855d34bad122c677ceb23529de496fa1%22&amp;size=1024)
+
+在这场强取豪夺的“禁摩运动”发生后，国内的各大媒体集体沉默，有的还反过来为发起这场“运动”的领导们和参与这场“运动”的执法者们歌功颂德。在老百姓的电动车和摩托车被抢夺得差不多后，中共的领导们又用神一般的速度重新制定出电动车“合法合规”的新标准，并且明文规定要老百姓购买那些达到“新标准”的电动车，这些车才可以正常上路，不被没收。在中共领导的眼中，老百姓就是一棵棵韭菜，想什么时候割就什么时候割。当然，这也是在目前内外交困的大环境下，中共不得不把目光转回国内，收割国内这些可怜的“韭菜们”。
+
+在中共治下的70年中，像这样的“禁摩运动”不知道发生了多少次，吃亏的永远是中国人民，因为生活在墙内的老百姓从小就被中共洗脑，早已没有了维权意识，再加上中共的一次次暴力维稳，更是扼杀了中国人民的反抗精神。这还不够，现在，中共又把沾满鲜血的双手伸向了全世界，枉想以奴役中国人民的方式来奴役全世界。但是，他们决不可能得逞，因为全世界的正义力量正在快速的集结中，很快，中共的防火墙将被推倒，墙内人民也会随之醒悟过来。到那个时候，自由之花将会开在中国大地上。
+
+***文章仅代表个人观点***
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
-根据世界报的信息，总理安格拉·默克尔（CDU）将在周五接受阿斯利康疫苗的接种。总理已超过60岁，因此属于德国有资格接受阿斯利康疫苗接种的人群。
+编辑：【英国伦敦喜庄园编辑部】
 
-默克尔并不是第一个接受阿斯利康疫苗接种的知名政治家。 例如，联邦总统弗兰克-瓦尔特·斯坦迈尔（Frank-Walter Steinmeier）于4月初亲自在柏林接种了疫苗。
+[!\[\]()!\[\](https://spark.adobe.com/page/CmhSbxmVjOrPR/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/CmhSbxmVjOrPR/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-当时他说：“我相信德国批准的疫苗。” “今天，我第一次接受了阿斯利康的疫苗接种。 疫苗接种是摆脱这种大流行的关键步骤。 抓住机会。 参与！ ”
-
-**简评：疫苗阿斯利康经历了接种， ****禁用，到只有60****岁以上的人群接种， ****德国的疫苗接种真的是一场运动了。德国的病毒专家说接种疫苗的危险比染病的危险相比极为微小。  ****为了力挺阿斯利康是有效的疫苗，德国总理默克尔周五要接种。 ****德国总统月初已经接种。 ****德国对病毒真相的了解，和疫苗的危害了解甚少， ****难道病毒专家真的没有读闫博士的报告吗？ ****德国总统甚至号召人们抓住机会。 ****而且疫苗是遏制冠状病毒的关键步骤。 ****让时间去证明吧。**
-
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-
-校对发表：Shuizhuyu
-
-新闻来源[https://www.welt.de/politik/deutschland/article230399919/AstraZeneca-Bundeskanzlerin-Merkel-laesst-sich-am-Freitag-impfen.html](https://www.welt.de/politik/deutschland/article230399919/AstraZeneca-Bundeskanzlerin-Merkel-laesst-sich-am-Freitag-impfen.html)
-
-+2
+0

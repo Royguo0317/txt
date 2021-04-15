@@ -1,41 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】英国议员在行动
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1097542/)
+## 慧眼看世界202104015（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1097683/)
 
-作者：纽约香草山媒体部大同世界
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
-
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
 
-由前港督彭定康（Chris Patten）牵头，英国逾100位跨党派国会议员去信首相约翰逊，要求就香港和新疆问题加强制裁中共。联署人來自不同党派，包括影子外交大臣 Lisa Nandy、影子亚太国务大臣 Stephen Kinnock 以及 Iain Duncan Smith 等早前被中共国政府制裁的保守党议员。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片93.png)图片来源：立场新闻
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-4.jpg)
 
-联署信批評中共国政府早前制裁多名英国人士和实体，对西方世界民意代表的攻击前所未见，形容中英关系的“黃金时代”已经过去，要求英国政府制定跨部门策略，应对中共国政府对自由日益增加的挑战。 联署的议员要求，利用《马格尼茨基人权问责法案》，对持续严重侵犯维吾尔族人权和打压香港民主运动的官员及实体，实施制裁，包括旅游限制和冻结资产。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-5.jpg)
 
-2021年3月26日，中共国外交部宣布制裁英国9名人员和4个实体，指责英国就新疆问题制裁中国。此次制裁的人员和实体包括：图根哈特、邓肯—史密斯、奥布莱恩、奥尔顿、劳顿、加尼、肯尼迪、尼斯、芬利以及“中国研究小组”、保守党人权委员会、“维吾尔独立法庭”、埃塞克斯园大律师事务所。即日起禁止有关人员及其直系家属入境（包括香港、澳门），冻结其在华财产，禁止中共国公民及机构同其交易。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-4.jpg)
 
-目前并没有香港官员遭英国制裁，但多名香港官员，包括特首林郑月娥，已遭美国制裁。英国早前与美、加和欧盟接连宣布，制裁涉及侵犯新疆维吾尔族人权的中共国官员及实体，包括新疆公安厅厅长陈明国、新疆政法委书记王明山、新疆生产建设兵团书记王君正、新疆前政法委书记朱海仑，制裁包括旅游禁令和冻结资产。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-5.jpg)
 
-我们要不断传播真相，就如郭文贵先生4月14号盖特所讲：”只有爆料革命．只有新中国联邦……唤醒了这个世界，拯救了这个世界！勇敢地承担的责任，所有的75亿人口当中，有几个人有几个组织！敢像我们一样，承担这样的责任……冒这样的风险!……我们希望好人和有信仰的人，能听到我们的声音！看看这个世界有多么的荒唐和荒缪吧，都是因为共产党！”新中国联邦人行动起来，唤醒更多的国家，认清中共的邪恶本质，加入到对抗中共的行列中来。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-4.jpg)
 
-校对/发稿：飞虹
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-4.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-4.jpg)
 
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-4.jpg)
 
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-4.jpg)
 
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-7.jpg)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-8.jpg)
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-8.jpg)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-7.jpg)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-4.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-4.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/18-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/19-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20-3.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0

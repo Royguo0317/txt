@@ -1,50 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 三本书《中国可以说不》、《中国不高兴》、《厉害了，我的国》暴露了中共的流氓本质
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1097406/)
+## 中共海军：航母梦，黄粱梦
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1097978/)
 
-**摘要：在2021年4月11日的直播中，郭文贵先生说美国人在五四运动、八九六四、南海等事件时多次给中共机会，相信中共会在经济发达后让中国人有民主和自由。然而共产党最终又变回了流氓的本质 —— 这充分地反映在中共出的三本书中：[《中国可以说不》](https://zh.wikipedia.org/wiki/中国可以说不)、[《中国不高兴》](https://zh.wikipedia.org/wiki/中国不高兴)、[《厉害了，我的国》](https://zh.wikipedia.org/wiki/厉害了，我的国)。他还揭露了2008年以来中共领导下的中国集体耍流氓不兑现对世贸组织承诺，在奥运会上集体耍流氓服用兴奋剂，以及渗透各种国际组织的真相。**
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210411_Live_P1.srt.txt)
-**三本书《中国可以说不》、《中国不高兴》、《厉害了，我的国》暴露了中共的流氓本质**
+- **作者：gokuabuela**
 
-**The Three Books, *China Can Say No, Unhappy China*and*Amazing China,* Reveal the True Rogue Nature of the CCP**
 
-那我再告诉大家美国人为什么要把你中共要从过去要支持的国家，逐渐地在八九六四、包括一系列的南海事件、包括飞机撞机等等等等等等，还支持你中共、支持中国。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-Let me tell you why the Americans still support you CCP and support China as they did previously, even after the June Fourth Incident in 1989 and a series of incidents in the South China Sea including the plane crash and so on, and so on.
+**西班牙2021年4月15日电/西喜社——**
 
-他支持的是中国人，他真不见得就支持你中共。相信了你中共，就你在一定的情况下、你经济发达了你就会让中国人有民主和自由。就你1913年到五四运动、到六四坦克碾压学生都可以让你过去，我前提是我再相信你一次、第三次相信你，让你经济发达、改革开放，相信邓小平了。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/给news-3.jpg)
 
-What they support is the Chinese people. They do not necessarily support you CCP. They trusted that you CCP could give the Chinese people democracy and freedom under certain circumstances when your economy is more developed. From 1913 to the May Fourth Movement, then to the June Fourth Incident when tanks ran over the students, I [America] let you go every time as I wanted to trust you one more time. I trusted you the third time and let you develop your economy, open and reform, and trusted Deng Xiaoping.
+近日，中共海军航母编队的新闻频出，那我们就来聊聊中共的航母梦。中共自窃国以来，对于尖端的科技向来以偷、骗为主。在传统的军事领域，他们深切感受到美国航母的威力，惊悚的同时一直有个航母梦。
 
-结果共产党又变成了流氓的本质——骗、假，然后就看到了这个情况。我说你看看，从八九六四以后中国出了本书叫《中国不高兴》。大家都记得有一本叫《中国不高兴》，中国不高兴啦，因为啥？因为中国改革开放了，有点钱了，中国不高兴了。大家记住啊叫持剑经商这个人写的，持剑经商。第二个叫《中国可以说不》，过了几年中国又来了个吹牛逼、牛叉。对不起啊，这是流氓嘴啊，不好。《中国可以说不》，大家还记得吧？到中国可以说不，再没几年习近平习大神、王岐山上来了。大家知道什么书吧？《厉害了，我的国》。
+最早在80年代初，中共国从澳大利亚购买了一艘报废的，二战时期的航母“墨尔本”号，用来拆卸。该船虽然落后，但保存完整，让中共从中学到了航母的初级知识。
 
-In the end, the CCP went back to its nature of rogue, that is, fraud and fakeness, which is what we see now. Look, after the June Fourth Incident in 1989, a book, called *Unhappy China*, was published in China. Everyone remembers a book called *Unhappy China*. China was not happy. Why? China became unhappy because it had its reform and opening and made some money. Everyone, remember that it was written by someone called Chijian Jingshang. The second book, called *China Can Say No*, came a few years later with more bragging (Chinese slang). Sorry, my words are too vulgar. No good. *China Can Say No*. Remember this book everyone? Another few years later, Xi Jinping the great god Xi and Wang Qishan came to power. You know what book was published then? *Amazing China*.
+80-90年代，中共连续购买了前苏联报废的航空巡洋舰（前苏联也一直拥有航母梦，但理念和技术能力都不够，也一直没有造出真正的航母）“基辅号”，“明斯克”号，这些船虽算不上真正的航母，但也让中共开了眼界，而这些船后来都成了军事主题公园。
 
-美国等来的就这三个——《中国可以说不》、《中国不高兴》到《厉害了我的国》。跨度多少年？中国成功获得2008年奥运会主办权，成功举办奥运会震撼世界。2021年（注：应该是口误，2001年）不但成功地获得奥运会，中国还拿到了WTO的入门券——签了合同。2008年以后中共领导下的中国集体耍流氓不兑现WTO，集体在奥运会上集体耍流氓——喝兴奋剂。体育强国这个词儿，我们郝海东兄弟、叶钊颖妹妹给了你最明确的答案——就是流氓强国、乱伦强国。但凡要点脸的人都知道那到底儿发生了什么。不是避孕套塞住了下水道，是避孕套塞住了你的精神、塞住了你的良心。
+苏联解体后，中共终于获得了最好的机会，购买到完工68%的“瓦良格”号，并谎称此举是用来建造军事主题公园用的。当时，苏联炸毁了船上所有的动力系统、指挥系统、武器系统，仅仅剩下一个空壳。但是中共还是历经千辛万苦，终于把“空壳子”拖到了大连。
 
-That was all America got after all the wait, the three books – *China Can Say No*,*Unhappy China*and *Amazing China*. How many years were spanned? China won the right to host the 2008 Olympic Games. They hosted the Olympic Games successfully, which shook the world. In 2021 (slip of tongue, should be 2001), China not only won the right to host the Olympics but also obtained the entry ticket to the WTO and signed the agreement. Since 2008, China, as a collective, acted indecently by not fulfilling its promise to the WTO and behaved like hooligans at the Olympic Games by taking stimulants, under the CCP’s leadership. Regarding the title of ‘sports superpower’ [self-claimed by China], our brother Hao Haidong and sister Ye Zhaoying have given you the clearest answer. It [the CCP] is a hooligan superpower and an incest superpower. Anyone that has some sense of shame knows what happened. It is not sewer that was blocked by the condoms [thrown by athletes], it is your spirit and your conscience being blocked by condoms.
+即便是“空壳子”，在当时中共也造不出来，经过10几年的研究，先是鼓捣出了造航母用的特种钢材，然后武器系统、雷达系统、指挥系统等等慢慢到位，终于改造出了中共的第一艘航母 – “辽宁号”。 接着，又在“辽宁号”的基础上，经过改进和整合，造出了中共第一艘自建的航母“山东号”。
 
-某些是正常的，它某些集体做法就不正常。这就是《中国不高兴》、《中国可以说不》到《厉害了，我的国》，从2008年奥运、WTO然后全面渗透，叫国际刑警组织、NGO、世界银行、IWF、世界货币组织、世界贸易组织就彻底被拿下了。比利时的间谍可以跟美国相比，美国大概到8万左右吧现在，大约啊！2017年大约6万左右，现在我估计到8万到10万，在比利时一定也达到这个数在欧盟。
+简短介绍完中共航母发展史后，我们来看看中共航母的短板。现代战争，打的就是短板，谁的短板多，谁的短板更短，那谁就死的更快。那么中共的航母究竟是什么东西呢？
 
-Some were normal, but other collective approaches were not. From *Unhappy China*, *China Can Say No* to *Amazing China*, from the 2008 Olympic Games, the entry to WTO to comprehensive infiltration into the Interpol, NGO, World Bank, IWF and IMF. The WTO was completely infiltrated. The number of spies in Belgium are comparable to that in America. There are about 80,000 in America now, approximately. In 2017, there were around 60,000. Now I think there are 80,000 to 100,000. In Belgium and the EU, the number is definitely in the same range.
+- 舰载机：世界上只有美国有能力建造现代化舰载机。前苏联直到解体都没建造出来。中共就更别提了。苏联解体后，中共通过“蓝金黄”从乌克兰弄到了前苏联还未定型的两架“苏-33”原型机，自己鼓捣一番后，终于造出能上舰的舰载机“歼-15”。 “苏-33”原本就不先进，我们这么说吧，假设中共“完美”的完成了“苏-33”的全部设计理念，并“完美”的融合了相控阵雷达等现代技术，该机也只能勉强达到美国“F-18” 大黄蜂的水平，而“F-18”在美国正在慢慢退役，取而代之的是“F-35”。
+- 载机数量： 中共自认“完美”版的“歼-15” 在辽宁舰上可以装载24架，外加4架预警机。如果处于战时状态，最多可以扩充到28架“歼-15”（停在甲板上）。而美国的“罗斯福”号可以装载约80架战斗机（大部分是F-35）,再加预警机，直升机等。
+- 动力系统： 中共国造不出好的发动机。从汽车，到飞机，到舰船，都造不出。“辽宁号”设计采用的是前苏联的燃油锅炉+蒸汽涡轮发动机，是的，你没看错，是蒸汽机，所以会冒出大量黑烟，所以需要一个“奶妈”跟着，据称，自持力只有一周。而美国的航母全部是核动力，理论上是无限自持力。一般大型舰艇使用的燃气轮机中共也是造不出来，美国大名鼎鼎的“LM-2500”中共国琢磨了几十年，即便偷到了技术图纸都造不出来。
+- 弹射系统： 大家如果对比中共航母和美国航母的外型，便可以发现中共的航母甲板前段是翘起来的，而美国航母是平的。这是因为美国是用弹射器来起飞飞机的。这样的起飞速度快，而且不会耗用飞机本身携带的航油，以使作战飞机能迅速升空，并保持长滞空时间，这对战斗是非常重要的。前苏联造不出弹射器，就采用了滑跃甲板，这就造成了：一、起飞速度慢，需要靠飞机自己飞上去；二、消耗飞机本身的燃油，起飞是最耗油的阶段，减少了航程和滞空时间；三、对飞机的重量有限制，太重的飞机无法上舰。
+- 预警机：因为上述提到的弹射系统，中共国无法配备固定翼舰载预警机，太重了，飞不上去。只能使用直升机预警。预警机号称“眼睛”和“大脑”，对整个航母打击群的作用几乎是决定性的。而直升机与固定翼舰载预警机的区别就好像自行车和汽车的区别。
+- 使用经验：海军被称为“百年海军”，经验至关重要，而中共国既没有海军的实战经验，更没有航母的使用经验。这点甚至不如印度。航母好比一个城市，整个运作非常复杂，美军也是付出了无数的血的代价，才获得了成功的经验。中共国是从零开始的，至今只从美国学到了外表的一点皮毛，还时刻想着弯道超车，而真正的内核是需要用时间和鲜血去换的。
+- ** **
 
-就是你让他好了他让你坏，你对他好他对你恶，你对他、你给他、帮他一次，他黏住你要你继续帮，直到你不帮把你干掉和你掐死你为止，这就叫流氓。说到这的时候，中国有贵族吗？中国有多少流氓呢？贵族和流氓的差距就在这儿呢。
 
-You let it prosper, but it sabotages you. You are kind to it, but it does evil deed to you. You helped it once and then it keeps wanting you to help until you stop offering your help and then it will kill you or strangle you. This is called hooliganism. By the way, are there any nobility in China? How many hooligans are there in China? The gap between nobility and hooliganism is clear.
+还有很多很多的短板，曾经在军事发烧友圈子里流传过一个论点：“完美状态的‘辽宁号’100%发挥的话，约能达到美军航母28%的作战效能。”因为数据保密的原因，我们缺乏详细的数据支撑，但我个人还是比较认同这一观点的。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=6072f7c36e11a756eddfaf32](https://gtv.org/video/id=6072f7c36e11a756eddfaf32) (26:04 – 30:14)
-鸣谢：感谢文顾、湘江之水、山川异域提供中文文本于 [https://gnews.org/zh-hans/1082946/](https://gnews.org/zh-hans/1082946/)
+现代战争是体系之战。我们看得到的是航母打击群，看不到的是太空里的卫星和海洋深处的潜艇。说到潜艇，又是一个大大的短板。先说说美国的潜艇，清一色核潜艇，“海狼”级已经做到噪声低于海洋背景噪声，几乎无法探测。中共国无一潜艇可以与之比拟。而说到潜艇，我们又必须说说美国的盟友— 日本。
 
-* * *
+二战以后，日本只有海上自卫队而没有海军，但作为美军太平洋体系的一员，日本主要负责美军在太平洋地区的后勤和反潜。主要针对前苏联，经过几十年的发展，日本拥有世界上最先进的常规潜艇技术和舰队，稳稳的排进世界前三，甚至可以达到第二，仅次于美国。
 
-*翻译：【雷鸣（文鸣）】字幕：【JennyL】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】*
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+日本的“日向级直升机护卫舰”虽然叫护卫舰，其实是“准航母”，设计理念就是按照航母来的。设计时可载11架直升机，现在全部换装了F-35，战力飞跃，直逼”辽宁号“，而这样的准航母，日本有整整7艘！而在美日作战体系中，这些仅仅是辅助角色！
 
-+2
+日本海上自卫队潜艇+准航母+美军航母打击群，中共的航母有活路吗?我们来做一个小小的军棋推演：
+
+战争爆发，美国双航母打击群对中共双航母，30分钟内，美军80架F-35升空，预警机前置，在离中共国航母1500公里外开始攻击。等中共国的预警直升机发现美机，仅剩300公里，5分钟预警时间，5分钟内起飞10架飞机。10VS80，还有代差的飞机，中共怎么打？
+
+日本准航母+日本潜艇部队+美军潜艇，负责肃清水下，能形成一个超强的海底防御圈，中共的潜艇难以对美军航母构成任何威胁。
+
+而中共航母打击群里的护卫舰、驱除舰，要面临美军航母打击群的飞机、驱逐舰、巡洋舰、还有日本的8\*8舰队，每一艘舰出来单挑，都不输于中共，更何况是一个完整而成熟的作战体系？
+
+中共的航母只能威胁到没有航母的舰队，而遇到美国航母，自然没有任何胜算。还有一个战术，就是偷袭。但是，现代科技的大背景下，这么大的一个冒着滚滚黑烟的目标，肯定被盯的死死的，偷袭战术恐怕也是“痴人说梦”。
+
+不管从哪个角度说，中共的航母一旦和美国航母对上，就是死。哪怕龟缩在港口内，那也不行，一旦开战，航母必然是首要被攻击目标，“辽宁号”和“山东号”的结局，依旧还是“死”。
+
+航母，可以说是目前人类武器系统的顶峰，应该用来推动人类文明的进步，保护人类文明的发展。而在中共国手中，航母仅仅是向墙内百姓和毗邻小国耀武扬威的工具。中共国的航母在我看来是用来洗脑宣传“厉害国”的笑话，中共海军的航母梦，只是一场“黄粱梦”。
+
+审核：Aries的星；校对：阿伯塔；发稿：信心的选择
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+
++1
