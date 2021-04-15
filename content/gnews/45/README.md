@@ -1,31 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## mRNA疫苗：从现在起是黄金标准
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1094582/)
+## 2021年4月14日 文贵先生盖特 7
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1094686/)
 
-信息来源：德国经济周刊网页版
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-发布时间：2021年4月14日
+4月14日：凡帝岗．世界宗教中心的真正的沼泽的主人之一．宗教界的王岐山．凡帝岗与中共交易的推动者PIETRO……出大事啦……跟着共产党走进火葬场！ [https://www.washingtontimes.com/news/2021/apr/13/is-dr-fauci-the-father-of-the-pandemic/](https://www.washingtontimes.com/news/2021/apr/13/is-dr-fauci-the-father-of-the-pandemic/)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1e3d7193fd9fb3e720c9dc12e68f3a7f.jpg)
+[【2021年4月14日】文贵先生盖特原文](https://gtv.org/getter/60772dbf51632a0de7b935be)
 
-翻译整理简评： Shuizhuyu
+**喜联盟Gnews编辑部**
 
-在未来的购买方面，欧盟打算将重点放在新一代疫苗上。 Biontech仅仅是开始。 但是，欧洲是否有能力放弃其他疫苗还有待观察。
-
-星期三，欧盟委员会主席乌尔苏拉·冯·德·莱恩宣布，Biontech-Pfizer将把5,000万剂疫苗的交付提前到第二季度，并且欧盟委员会已经签署了一份与该公司的合同在2021年至2023年期间协商了超过18亿剂药物。
-
-欧盟委员会明确表示，在未来几年中，它将依赖使用新mRNA技术的疫苗。它们具有几个优点：它们更有效，并且可以更轻松地适应冠状病毒的新变种。而且它们显示出更少的副作用。没有关于血栓形成问题的报道，因为在阿斯利康和强生公司都有状况发生。  “未来属于mRNA疫苗，”欧洲议会基督教民主党卫生政策发言人彼得·里斯（CDU）说。
-
-欧盟委员会给欧洲议会议员的印象是，它不再希望将来与阿斯利康和强生等公司签订合同。在与欧洲议会议员的视频会议上，这是欧盟委员会副主席玛格丽特·希纳斯（Margaritis Schinas）传达的信息。但是，这是一个大胆的声明。因为没有人能准确估计未来几年的需求。目前尚不清楚以前的疫苗接种保护将持续多长时间。只有知道了这一点，才能计算出疫苗接种的需求量。突变也可能需要进一步接种疫苗。
-
-如果欧盟委员会依靠mRNA技术，则目前有三个提供商：Biontech-Pfizer，Moderna和Curevac。 Curevac的疫苗尚未获得EMA的批准。布鲁塞尔内部人士认为，订购的数量对公司构成了挑战。目前尚不清楚是否有能力执行后续命令。
-
-**简评：这是欧盟的好消息， 他们真的认为是好消息， 他们今后要致力于mRNA疫苗， 比如Biontech-Pfizer等， 欧盟真的不知道这个病毒的真相吗？ 这个病毒是用疫苗可以遏制的吗？难道欧洲的病毒学家都不阅读闫博士的三份报告吗？他们不仅预定现在要使用的疫苗， 而且已经为今后三年都做好了准备， 真为欧盟捉急呀！**
-
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-
-校对上传：Shuizhuyu
-
-https://www.wiwo.de/politik/europa/nach-problemen-bei-astrazeneca-und-johnsonundjohnson-mrna-impfstoffe-ab-jetzt-der-goldstandard/27094950.html
-
-+1
+0

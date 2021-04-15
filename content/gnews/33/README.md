@@ -1,27 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美情报称朝鲜今年可能恢复核试验
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1094877/)
+## 塞尔维亚暂停紫金矿业在该国的铜矿施工
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1094908/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/NK.jpg)peopleandpowerngr.com
-来自The Defense Post的报道，美国情报专家在周二发布的一份报告中表示，朝鲜可能会在今年恢复核试验，以迫使拜登政府与之展开对话。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Z-2.jpg)mining.com
+路透社报道，塞尔维亚矿业和能源部长周三表示，由于中共紫金矿业集团未能遵守环境标准，塞尔维亚已下令该集团暂停该国唯一铜矿的竖井施工，并要求其紧急完成一座废水处理厂的建设。
 
-“朝鲜领导人金正恩可能会采取一些具有侵略性和潜在破坏稳定的行动来重塑地区安全环境，并在美国及其盟友之间制造隔阂，包括恢复核武器和洲际弹道导弹(ICBM)试验。”美国国家情报总监办公室在一份解决美国在世界各地面临的威胁的报告中表示。
+塞尔维亚矿业和能源部长米哈伊洛维奇（Zorana Mihajlovic）说，有关部门3月底已下令紫金矿业位于塞尔维亚的子公司停止贾玛 (Jama) 铜矿竖井的施工。
 
-报告称，“我们评估认为，金正恩将核武器视为对外国干预的终极威慑，并相信随着时间的推移，他将获得国际社会作为核大国的接受和尊重。”“金正恩可能正在考虑今年恢复远程导弹或核试验，试图迫使美国按照平壤的条件与他打交道。”
+紫金矿业成为塞尔维亚铜矿联合体的战略合作伙伴，该联合体包括Jama铜矿。中共在塞尔维亚投资了数十亿欧元，主要是以软贷款的形式，为高速公路和能源项目提供融资。紫金矿业在塞尔维亚的子公司上周表示，计划在2021年投资4.08亿美元，对旗下矿山和冶炼厂的环境标准进行检修、扩张和改善。
 
-这份27页的报告还谈到了伊朗的核项目，预计伊朗星期二将宣布开始进行纯度高达60%的铀浓缩活动。这将使朝鲜更接近用于制造核武器的铀含量达到90%的门槛。
+紫金矿业在塞尔维亚的子公司周三晚些时候发表声明说，居民投诉噪音大后，按照当局的命令，已经停止了位于博尔镇贾玛 (Jama)铜矿的通风井施工。
 
-报告说，“我们继续评估，伊朗目前没有进行我们认为制造核装置所必需的关键核武器开发活动。”“如果伊朗不能获得解除制裁的机会，伊朗官员可能会考虑多种选择，从进一步浓缩高达60%的铀，到设计和建造一个新的40兆瓦的重水反应堆。”
+米哈伊洛维奇表示，紫金矿业还接到命令，紧急完成一座废水处理厂的建设，以改善多瑙河支流佩克河的污染情况。紫金矿业被要求于4月30日前停止所有违规行为。
 
-伊朗和朝鲜作为中共同盟，正持续对美国施压以试图增加国际话语权。
+全球健康和污染监督机构联盟在2019年的报告中称，塞尔维亚是欧洲污染最严重的国家。上周六，数千人聚集在首都贝尔格莱德，抗议政府缺乏行动防止主要由工业和采矿业造成的污染。
 
 参考链接：
 
-[https://www.thedefensepost.com/2021/04/14/north-korea-could-resume-nuclear-tests/](https://www.thedefensepost.com/2021/04/14/north-korea-could-resume-nuclear-tests/)
+[https://www.reuters.com/article/us-serbia-mining-china/serbia-halts-china-owned-mine-over-environmental-breaches-idUSKBN2C111G](https://www.reuters.com/article/us-serbia-mining-china/serbia-halts-china-owned-mine-over-environmental-breaches-idUSKBN2C111G)
 
 0
