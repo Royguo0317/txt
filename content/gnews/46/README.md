@@ -1,13 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月14日 文贵先生盖特 6
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1094650/)
+## 新香港的干部城管模式
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1094713/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
+撰稿：云彩
+![]()![](https://gnews.org/wp-content/uploads/2021/04/64F026A5-C9F7-41D0-9495-3824D927FEF3.png)
+（图片来自网络）
 
-4月14号：我们的未来比这个还要让你兴奋，刺激！只有新中国联邦能让我们一起共同创造这样的美好！和奇迹！能让你的人生无限精彩！新的时代！新的金融世纪以经开始！我们是真正的弄潮者！
-![]()![](https://gnews.org/wp-content/uploads/2021/04/680016cded577e68b9b43e5b726c7219.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/5a8682abec9077887462ea611b4de98f.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/c90207f3e659b7d7a7cfe74504636dec.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/fa4941e1ddbbc4e1de7e3924c72e01f6.jpg)
-【2021年4月14日】文贵先生盖特原文
+2021年4月9日，香港黄店阿布泰登上报刊头条。香港海关派出超过100名人员前往其旗下25间零售分店及1个仓库搜查，市值约数十万的商品遭到查扣。但香港民众很快发现海关对有相同问题的蓝店网开一面。笔者认为该事件背后可以看到香港公务员体制的崩溃。
 
+由于阿布泰生活百货创办人林景楠是民主派初选47人案被告之一，所以整个事件给人一种对人不对事，选择性执法的印象。因为香港多家传媒连日来巡查多家连锁零售店及超级市场，发现被网民归类为蓝店的“优品360”等店铺，都有出售未有中英文警告标签的货品。
+
+笔者认为本次香港海关官员正是要证明给北京方面看，他们做事是有针对性的。香港公务员体系里的某些高官为了求荣，照抄中共体系的处理方式，成为新香港时代新干部城管化的公务员。他们出卖了真正香港人的利益。
+
+香港市民“爆买”阿布泰，大批市民排长龙。笔者深深地感受到香港巨大的民意。正如有市民说，排队就是一种表态，表达对政府的不满。政府越是打压它，我们越是要帮助它。相信很多香港人都在等待一个机会，不会放弃争取民主自由。
+
+全球灭共的大趋势已经形成。今天卖港贼的所作所为必将被历史审判。香港随着CCP的灭亡而将得到重生。
+
+（本文只代表个人观点）
+
+*审核：cindy*
+
+参考资料：
+
+港人连日排长龙“爆买”黄店阿布泰 不满海关怀疑选择性执法
+
+[https://www.voachinese.com/a/hkers-queues-outside-yellow-retailer-abouthai-after-unfair-customs-raid-20210412/5850266.html](https://www.voachinese.com/a/hkers-queues-outside-yellow-retailer-abouthai-after-unfair-customs-raid-20210412/5850266.html)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
 0

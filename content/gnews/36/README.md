@@ -1,27 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美情报称朝鲜今年可能恢复核试验
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1094877/)
+## 台湾停止向中共超级计算中心实体供应芯片
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1094898/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/NK.jpg)peopleandpowerngr.com
-来自The Defense Post的报道，美国情报专家在周二发布的一份报告中表示，朝鲜可能会在今年恢复核试验，以迫使拜登政府与之展开对话。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/TW-1.jpg)bworldonline.com
+路透社报道，台湾周三表示，其芯片企业将遵守美国规定。美国政府上周将7家中共超级计算机实体列入经济黑名单，台湾跟随美国规定，台北一家芯片制造商暂停了其中一家中共实体的订单。
 
-“朝鲜领导人金正恩可能会采取一些具有侵略性和潜在破坏稳定的行动来重塑地区安全环境，并在美国及其盟友之间制造隔阂，包括恢复核武器和洲际弹道导弹(ICBM)试验。”美国国家情报总监办公室在一份解决美国在世界各地面临的威胁的报告中表示。
+美国商务部表示他们“参与了中共军方使用的超级计算机的建造、破坏稳定的军事现代化努力和大规模杀伤性武器项目”。美国商务部长吉娜·雷蒙多 (Gina Raimondo)在一份声明中表示：“超级计算能力对于许多，或许几乎所有现代武器和国家安全系统的发展都至关重要，比如核武器和高超音速武器。”
 
-报告称，“我们评估认为，金正恩将核武器视为对外国干预的终极威慑，并相信随着时间的推移，他将获得国际社会作为核大国的接受和尊重。”“金正恩可能正在考虑今年恢复远程导弹或核试验，试图迫使美国按照平壤的条件与他打交道。”
+被列入美国实体清单的公司或其他公司必须向美国商务部申请许可证，在申请从美国供应商获得产品许可时，商务部将面临严格审查。
 
-这份27页的报告还谈到了伊朗的核项目，预计伊朗星期二将宣布开始进行纯度高达60%的铀浓缩活动。这将使朝鲜更接近用于制造核武器的铀含量达到90%的门槛。
+台湾芯片企业是全球半导体的主要供应商，台湾经济部长王美花说，将遵守台湾和美国的规定。她指出，“我们的公司，无论是生产商还是出口商，都必须符合我们国家的规定。当然，美国有新的规定，我们的公司将会关注并遵守美国规定的关键标准。”
 
-报告说，“我们继续评估，伊朗目前没有进行我们认为制造核装置所必需的关键核武器开发活动。”“如果伊朗不能获得解除制裁的机会，伊朗官员可能会考虑多种选择，从进一步浓缩高达60%的铀，到设计和建造一个新的40兆瓦的重水反应堆。”
+美国此举正值其与中共在台湾问题上的日益紧张之际。中共从未放弃武力统一台湾，与此同时，全球半导体短缺已将台湾推入科技供应链的中心位置。
 
-伊朗和朝鲜作为中共同盟，正持续对美国施压以试图增加国际话语权。
+周二，台湾晶芯科技有限公司(Alchip Technologies Ltd .，简称：晶芯科技)表示，已经停止了与天津飞腾信息技术公司(Tianjin Phytium Information Technology，简称：飞腾信息技术)相关的所有产品的生产。
+
+飞腾信息技术公司周三股价暴跌9.9%，自美国商务部上周宣布上述消息以来，其股价跌幅已超过三分之一。
 
 参考链接：
 
-[https://www.thedefensepost.com/2021/04/14/north-korea-could-resume-nuclear-tests/](https://www.thedefensepost.com/2021/04/14/north-korea-could-resume-nuclear-tests/)
+[https://www.reuters.com/article/us-taiwan-usa-semiconductors/taiwan-says-its-chip-firms-will-adhere-to-new-u-s-rules-blacklisting-china-supercomputing-entities-idUSKBN2C10CU](https://www.reuters.com/article/us-taiwan-usa-semiconductors/taiwan-says-its-chip-firms-will-adhere-to-new-u-s-rules-blacklisting-china-supercomputing-entities-idUSKBN2C10CU)
 
 0

@@ -1,81 +1,84 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 克里访问中共国与二战美国给日本的《赫尔备忘录》
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1095572/)
+## 【星光骑士团辩论赛】唤醒中共党内精英与唤醒民众，哪个对爆料革命和灭共更重要？
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1095488/)
 
-**简述：在2021年4月12日的盖特视频中，郭先生分析说美国前国务卿克里即将对中共国的访问，与珍珠港袭击之前美国发给日本《赫尔备忘录》[1]有异曲同工之妙。尽管克里跟中共有很亲密的关系以及可能跟中共勾兑，但是他这次访问，必须向中共传达以下三个信息：警告中共不准袭击台湾；要求中共尽快将军队和警察撤离香港；并且向全世界公布病毒的真相。美国经济将会经历起伏，但是最终会变得更加强大。中共和习近平是现代版的纳粹和希特勒，但是当今的世界有新中国联邦、郭先生，以及众多的爆料革命战友们一起来对抗他们的疯狂。**
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210412_getter1.srt.txt)
-**克里访问中共国与二战美国给日本的《赫尔备忘录》**
+**辩方A：政   清—-唤醒民众**
 
-**John Kerry’s Trip to China and the Hull Note in WWII**
+**辩方B:  小飞象—-唤醒中共党内精英**
 
-美国的前国务卿John Kerry，咱们中文叫克里。(他)要马上访问北京，做为拜登特使要访问北京。(他到北京)干啥去咧？你想想去干啥去咧？在这个之前，我想大家好好看看就是我昨天说的1941年11月份，在二战前，日本偷袭美国珍珠港前，美国发的赫尔备忘录(Hull note)。（美国当时）通知日本必须限多少天要从中国–当时的中国我们的中国啊–全面撤军，无条件（撤军），必须撤。
+**主持人 ：QMAY**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
+**A****政清：**我认为爆料革命唤醒民众更重要。首先，郭先生说灭共事业需要 “以共灭共”和“以美灭共”，而满足这两者的前提是民众都要觉醒。当民众知道共产党的黑历史，从洗脑的过程中突然被爆料革命警醒，发现真相，会让中共党内意识到民意如此，我们需要采取行动，从而获得民意的支持；而对于美国来说，当需要对中共采取行动的时候，首先一定要考虑的是华人真实的声音。只有让美国的精英和政治家们认识到我们爆料革命是有民意基础，灭共是有民意基础，美国才敢于按下灭共的核按钮。非常感谢!
 
-Have you heard that former U.S. Secretary of State John Kerry will soon visit Beijing as President Biden’s special envoy? What is the purpose of Kerry’s trip to Beijing? Before addressing that, I would recommend everyone to watch my live broadcast video yesterday referring to the “Hull note” (the “Outline of Proposed Basis for Agreement Between the United States and Japan”). The U.S. government issued the Memo in November 1941, just before the Japanese attack on Pearl Harbor during World War II. Then the U.S. demanded Japan to withdraw its troops unconditionally from China (note that at that time China still belonged to the people of China) within a certain time frame.
+**B****小飞象：**我方论述观点是，相较于唤醒普通民众，唤醒党内的精英对灭共事业更为重要。首先要明确，我们讨论的目标是灭共。刚刚政清也提到了郭先生的策略，在“以美灭共”之后就是“以共灭共”。
 
-当然（日本）天皇，山本五十六这些人都不撤了，是吧？但是在这个之前，美国最起码派出过三波人就像克里一样去游说。告诉你(日本)啊：你赶快撤啊，再一个，你(日本)别想着在东南亚动我(美国)的奶酪。没想到（日本）咣叽一下打珍珠岛去了，这都是历史啊，(跟)大家好好说一说。
+“以共灭共”，**首先**就是以中共党内的精英去瓦解共产党的体制。刚刚政清提到唤醒普通民众并让他们去认清中共的黑暗，在我看来是帮助全民族去开智，去团结，去洗净过去共产党在过去对华人各个方面造成的污染（经济金融，思想）。所以唤醒党内精英在整个灭共的大局上，更有实权和能力去撼动和改变中共未来发展的走向。比如唤醒一个常委、一个武警司令、国安部的官员甚至前线军官士兵，对共产党的影响都是根本性的。从目前我们爆料革命的经验来看，很多信息是靠中共党内的精英战友传递传情报给郭先生，给新中国联邦的。一次次情报被验证，才有普通民众的唤醒；
 
-Of course, the Japanese emperor and Yamamoto Isoroku didn’t do it, did they? But before that, the U.S. sent at least three groups of people to mediate, pretty much like what Kerry is going to do. The U.S. warned Japan to withdraw its troops immediately, and warned Japan not to try to touch U.S. interests in Southeast Asia. Yet, the U.S. did not expect Japan’s sneak attack on Pearl Harbor. It is part of history. Let’s have a good chat about history today.
+**其次**，如果党内精英的战友先于唤醒，可以保护很多隐形战线的战友及家人，在实质上可以让灭共事业更稳固、更坚定；
 
-说到这儿的时候大家知道(我)这几天这个到任何地方不谈灭共都不好意思了，（否则）基本都没人理你了，每天的变化就这(么大)。所有人一说话说不谈灭共，哎哟我滴娘嘞，不谈灭共那你不时髦啊，是吧？
+**第三**，可以唤醒的程度是不一样的。因为精英知道共产党的邪恶，所以他们被唤醒之后可以实现的价值、他们可做的事情远超过我们想象。
 
-Do you know, my fellow fighters? These days wherever I go to meet with people, almost nobody wants to interact with me unless the subject of destroying the CCP is on the table. That is how much the conversation has changed. Everyone talks about taking down the CCP when they are handling business. Otherwise, you are behind the curve. Right?
+所以我的结论是，无论在实际的结果，进展过程，以及过去爆料革命灭共历史这几方面，唤醒中共党内精英比普通民众更重要。
 
-七哥在三年前说（过）灭共是事业，灭共还是生意。现在大家一谈生意不谈灭共，你咋谈生意啊，是吧？你从中国的投资有没有啊？撤回来没有啊？你要没撤回来那我不给你投(资)了啊，因为你这风险太大了，是吧？不像原来似的（你）不在中共投资就没人投资你；现在反了，你在中共有投资那你不撤回来，没人投资你。谈生意还有灭共现在是最时髦的事业，任何人不谈(CCP)，对共产党没点什么理解坐在桌上你没话说了，没话说了。
+**主持人QMAY：**我感觉到火药味了。
 
-Brother Miles said three years ago that taking down the CCP was not only a profound obligation, but also a business opportunity. Now there is no possibility for people to talk about business without talking about taking down the CCP. Right? [For example, people raise questions such as:] “Do you still have investments in the CCP market? Have you withdrawn your investment from the CCP? If you have not canceled your involvement with the CCP, I cannot give you my investment because of the high risk.” In the past, if you had no assets in the CCP market, no one would invest with you. Now it is completely reversed. If you still have investments in the CCP market and you have not withdrawn yet, no one will want to invest in your business. Doing business and discussing taking down the CCP are now the most fashionable causes. Anybody who does not talk about the CCP or does not have any understanding about the CCP will not integrate well in most business circles.
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-04-14-211500.jpg)
 
-所以说这次克里到中国去会(跟CCP)说什么？(第一，)台湾的问题你怎么办？你敢动一定灭你(CCP)；第二，香港的(军队警察)马上给我撤回去，恢复香港原来的(和)英国未（履行）完的合同。(如果)不撤回去，肯定制裁你(CCP)；第三件事情，（关于）冠状病毒（真相），必须说实话。（如果）不说实话，肯定收拾你 — 脱钩甚至开战。信不信？
+**A****政清：**我想问小飞象一个问题，中共党内的精英被爆料革命唤醒了以后，她们最想做的事情是什么？
 
-What will John Kerry say to the CCP on his visit to Beijing? [First, he will ask the CCP,] “How to deal with Taiwan? If you dare to attack Taiwan, we will destroy you.” Second, he will tell the CCP to immediately withdraw its troops and police from Hong Kong and resume the unfulfilled agreement with Britain. If not, the U.S. will impose sanctions. In the end, he will demand the CCP to tell the truth about the coronavirus. If not, the U.S. will decouple, or even go to war with them. Do you believe it?
+**B****小飞象：**首先唤醒的程度是不一样的。如果他认知了共产党的邪恶，他会持续去了解真相，因为这关乎到他自己的性命。如果他被唤醒的程度足够的话，它可以为爆料革命、为新中国联邦输送更多的情报，甚至去保护一些前线的战友，这对灭共是有实质性影响。同时我也想问个问题，你说灭共需要极大民意，我同意，但是你说以唤醒民众为基础，推动中共党内精英动手来推动灭共状态，你是不是认为唤醒群众的最终目的还是唤醒中共党内的精英呢？
 
-但是克里这个人不值得信(任)，（因为）这个人和中共是非常非常亲近的。克里我知道他太多(事情)了，(他家)原来就住在我北面嘛。他女朋友是原来美国第一任小姐啊。(他女朋友)是我朋友，非常漂亮的一个美女，拍过电影。很早我就去过他(克里)家，她(克里女朋友)家，我都去过，都去过。（我）很了解他。但是呢，民主党这回派他去，拜登派他去，中间(和CCP)会有勾兑，会有勾兑。（比如）扣扣手啊，捏捏啊，是吧？划拉划拉脸啊（摸摸脸），拍拍肩啊……(克里)会配合(CCP)说一些软话，外交上的话。（他）会给共产党很大的面子，甚至个人之间有这样那样的想法，你懂得啊，你懂的。
+**A****政清：**唤醒民众的最终目的是—-达成我们新中国联邦的美好理想国家体系，因此唤醒民众是非常重要的。一方面可以推进灭共事业，另一方面才能让大家认同新中国联邦所建立的美好的民主自由体系。不然的话你可以想象一下，只是唤醒了中共党内精英，来一次宫廷政变，即使改朝换代了，（社会）民众还是没有觉醒，还是留恋大国、强国的伟大意识形态，其本质还没有改变，这是（很可怕的），这是我觉得唤醒民众是非常重要的原因。
 
-However, Kerry is not trustworthy because he is too close to the CCP. I know a lot about him. He used to live not far to the north of my house. His girlfriend was the first “Miss America Pageant” winner, a stunner. She acted in movies. I have been to both of their houses. I know Kerry very well. The Democrats and Biden sent him to China this time. There will be collusion between them. Kerry will go along with [the CCP], uttering soft and diplomatic words. He will give the Communist Party an opportunity to save face. It will involve some dirty dealings between individuals. You know what I mean.
+**B****小飞象：**我有三点反驳，**第一**你刚刚说唤醒民众的最终目的是帮助建设更美好的新中国。本题讨论的是哪一方对灭共事业有帮助；**第二**，当你说唤醒群众是为了让新中国再次走向集权，这个是不可能的，你这个建设是不在爆料革命监督之上的。今天有了我们第三方的监督，唤醒党内，也阻止了和平演变，让共产党以第二种续命方式的状态存在。在新中国联邦的宣言中就说了，会一直合法地去监督，并且帮助未来的中国政府和人民与国际社会建立有信用，良好的合作体系；**第三**，你一直所说的是唤醒民众基础，然后阻止党内精英去做一些可能会让共产党继续续命，去帮助共产党得到更大民意，你是将唤醒民众来作为中共党内精英灭共的助力的模式。我想说的是，党内精英的灭共的助力有非常多的方式，比如说有爆料革命，有G系列，可以让他的财富也有安全的出路，而不会像马云一样的结局。就像我开篇说的，如果开始没有体制内的精英为郭先生输送情报，让郭先生提前预警世界，普通民众也非常难唤醒，我不知道你怎么看我对你的反驳？
 
-但是，战友们要记住，要传达的信息是一定要传达的。当年美国赫尔备忘录(Hull note)之前也一样，那三人有时候软有时候硬的，最后挡不住(美国的民意)，美国是(民主)国家是民意做决定。
+**A****政清：**我觉得我可以说一点去反驳你的三点。这四年来郭先生一直说，共产党你的死期到了，那么到底灭共的时机在哪里？什么时候我们扣动扳机呢？如果人们还没有觉醒，只是党内精英意识到问题的严重性，我们完全可以催化中共党内斗争形势，可以让党内反对的势力去扣动政变扳机，其结果是新中国有可能没有办法达到理想的目标，甚至会变得更加的糟糕，进入一个更加困难的乱局，独裁再次重演。只有当整个中国人民觉醒，这也是为什么郭先生2017年开始出来爆料，唤醒一波又一波的群众，我们爆料革命的事业可以深入到不止中国人，甚至是美国人英国人法国人……让大家都知道爆料革命，唤醒全球的底层民众的策略，让中共国普通百姓们意识到CCP的邪恶；另一方面也让整个西方的民意意识到了CCP必须要被灭掉的。在这样的情况下，我们才可以扣动灭共的扳机。新的制度以墙内、外的强大民意作为基石，才不会让新政府开历史倒车。
 
-But you must understand, my fellow fighters – Kerry must deliver these messages, he has no alternative. It is very similar to the situation when the U.S. released the Hull note back then. All sides will play it out politically, but nothing can hold back the U.S. public opinion. The U.S. has democracy. Third, it is public opinion that makes the call.
+权力这个东西是很恐怖的。就像我刚才说的，当人们听到这个事情的时候，他们的想法都是，推翻这个制度夺取权力，自己当皇帝。中共党内的精英在体制内摸爬滚打几十年，他们已经有很高的权力，这种情况下他们是不可能主动舍弃这个权利的。即便他们认识到了CCP绞肉机的本质，他们也没办法让一切回归于人民，所以唤醒民意之所以更重要，就是让他们即使登上了新的政治舞台也必须有强大的民意去监督，让他们不敢肆意妄为。
 
-大家现在看一看，（我）先问问战友们：你(们)知道二战前美国的经济啥样吗？二战前的美国的经济啥样知道吗？二战前美国的经济糟透了，大萧条。二战以后美国成了世界的帝国，强国，经济强大。（美国）进入了经济周期每八年一个(涨幅)，越涨越高。现在美国经济最强势，(接下来)一定经济会出问题，经济出了问题就叫大萧条，大萧条的结局就是–灭共！
+**B****小飞象：**你并没有正面回答我的问题。我说了，没有开始的中共党内精英站出来去输送情报，爆料革命也不会一次又一次被验证，爆料革命是属于每个战友的。我想说的是，如果武警的总司令在开战前他是被唤醒的，如果中南海几个常委是被唤醒的人，灭共的结局会不一样。回到你说的，我并不认为每个人最终都会向恶，不是每个党员都是坏人。我们讨论的不是中国未来的美好是谁唤醒，我们讨论的是哪个群体的先唤醒对灭共更重要。毋庸置疑，灭共上肯定是更有权力的群体先唤醒更为重要。试想就算中共派出所的所长决定抓捕战友，武警司令开战的时间，都会决定千千万同胞的命运。从而得知，在有爆料革命、有新中国联邦、甚至有中共党内精英的唤醒和行动之下，灭共何尝不会更快速更直接？我还是回到那一句话，郭先生经常说，共产党员当中， 99%都是好人只有1%是坏人。我们说的党内精英，是在百分之99当中。在1%的人里面，比如马云甚至王岐山孟建柱，中共也不会给他们篡夺权力的机会了，下场已经看到了，很惨。如果还想加以投机，还想为中共续命，下场会更惨，你觉得呢？
 
-Let me ask you first: do you know what the U.S. economy was like before World War II? It was terrible. It had suffered through the Great Depression. But after World War II, the U.S. became the world’s empire, the most powerful country with a strong economy. The U.S. entered a virtuous economic cycle, rising every eight years, higher and higher. Now, although it looks strong, it will soon go wrong. Once that happens, the U.S. will suffer a Great Depression again, leading to the destruction of the CCP.
+**A****政清：**你说的都很关键，我逐一回答。第一点关于情报，情报的力量超乎我们的想象，是我们爆料革命当中非常重要的一环，我们两个理解有所不同。就像我们说香港运动一样，陈燕琳为什么被消失，就是因为她偷拍到了中共的警察来到香港去执法。其实每一个街上抗议的人，每一个坚守在岗位的普通民众都有可能成为我们的情报来源。郭先生讲的我们的战友遍布天下，这些人都有可能成为我们坚实的力量。包括在广东的，他们都拍到了相关的军队的画面，把这些关键的情报提供给我们。包括武汉经营火葬场的普通民众，这些信息都也是关键的情报，让我们了解了当地的真相。我觉得这个才是我们爆料革命最本质性的东西，我们唤醒的所有人都能够成为我们正确情报的来源，而且是非常多的角度，多的来源体系，让我们互相去验证，得到更完美的结论基础和行动指导。
 
-（另外）大家知道二战以前日本经济啥样吗？日本经济非常滴好啊。当时是德国那绝对是(经济最好)，日本(经济)跟德国没法比，德国经济比(日本)好太多了。但是二战之后，德国从来没追上过日本，为啥？就是中国国内(的)傻叉小粉红们（听好了）：只有国家政体稳定，人民安居乐业，不为一个家族或者所谓的一个天皇某几个人服务所操弄的时候，大家才有真正的富裕，真正的强大的机会。这就是当年的日本(强大的原因)，而德国当年被打成那个样子，德国永远没追上过日本，到现在永远不可能追上日本。因为德国虽然稳定了，但是德国(纳粹)当年折腾的太大了。这就是现在的中共国(和当年的德国纳粹一模一样)。
+第二点，我觉得灭共是成体系的，有组织的，有步骤的计划，我们是有非常关键的时间点所接连起来的成体系的。我们灭共绝对不是没有一个很明确计划的，是靠很广大的、很宏观的各种元素互相碰撞的结果，我觉得不是这样的。就像路德先生一直说的，灭共是有时间点的。我们开始的、最上策的一个计划，要求广大民众、整个世界以最小代价去达成灭共的目标；到了二月一日，我们发现，这条路行不通，总加速师不愿意配合，那我们就换中策，如果还不行就再更换下策。通过上中下三策能感觉到，灭共是我们愿不愿意扣动扳机。其实要想以最快的速度灭共的话，那么我们在一年前就可解决了，但是为什么不呢？如果这样的话，全世界会付出太大的代价甚至会引发战争，让中共狗急跳墙，比如攻打台湾，所以要一步一步的来，最终达成目标。
 
-Do you know what the Japanese economy was like before World War II? The Japanese economy was excellent. At that time, Germany was absolutely the best, and the Japanese economy was not comparable to that of Germany. But after World War II, the German economy never caught up with Japan. Why? The brainless fanatics in mainland China, please listen to what I am going to say very carefully – Only when a country’s political system is stable, when ordinary people (Lao Bai Xing) have jobs, a regular life, and only when most people are not serving an elite few families, or an emperor, does the country have a chance to become rich and mighty. This is why Japan was strong. Germany was beaten so badly and never caught up with Japan after its defeat. It still has not, and it will have a hard time doing so. Germany is stable, but the damage and after-effects caused by the German Nazis were too extensive. How similar is today’s CCP to Nazis Germany?
+**B****小飞象：第一个首先**我要讲的是，我和你讨论不是情报和概念差异，而是灭共行动上，是对灭共造成的影响，哪方面根本上的能量更大？**其次**回应你在细节上的问题，第一个情报的问题，我并没有说唤醒普通民众所带来的情报不重要，我想说的是如果最早一开始没有党内精英传递情报，比如郭先生这样的人预警人类，世界将会进入黑暗。如果只以茫茫人海中的情报去聚集，没有爆料革命平台去聚集精英的话，那么这样的努力是非常困难。在开篇我就讲到，由于对精英的唤醒，才有了对很多爆料革命战友、对你我，对农场保护和支持，否则爆料革命走不到今天。
 
-(CCP)这两天说了，不对美国抱有什么希望了，（实际上）你（想）报希望报不成（了）。这次（CCP)吓唬台湾吓到这个程度，全世界也把台湾的问题给推出来了。如果他(CCP)一直说对台湾怎么样怎么样，你(美国和国际社会)还没法说。结果冠状病毒+香港+台湾(一起)，这事大了。全世界想把这个事情压下去都压不下去了。
+**第二个**，灭共是有计划的，这点你说的没有错，但是在实际上，我们不能确定是具体的哪一天。当然事态发展到一定程度的时候，就像今天灭共已经成为趋势，谁都不可挡，但是绝对不可能爆料革命、新中国联邦，包括郭先生自己都不会保证共产党哪一天灭，这才是所有战友的伟大。包括为什么我们要有G系列，我们要在这个焦灼的时代推出我们自己的G币，也是让精英战友们看到，如果有一天是他/她扣动了扳机，他/她的子孙后代会受到新中国联邦的保护，会受到战友的尊重，他/她的子孙后代不会被清算。并不是说想今天灭共，中共一定会今天灭，它取决于党内精英对新中国联邦的信任，它取决于天时地利人和，更取决于今天“以共灭共”走到了哪一种程度，西方给到中共的压力到什么程度，种种都会影响未来中华民族的走向。我想告诉你的是，在“以共灭共”的策略当中，无论是普通党员也好，或者普通民众也好，如果对中共的制度不信赖，军心民心造成溃散，是对中共最为打击的。原先和他传同一条裤子的人，原先和他分一杯羹的人，开始要放弃它的时候，才是灭共到来的时候。
 
-In the past two days, the CCP has expressed that it no longer expects the U.S. to resume friendly relations anymore. Indeed, they wish it could happen, but there is no chance anymore. This time, the CCP’s grave threat to Taiwan has prompted the world to put this issue on the table. If the CCP had only verbally threatened Taiwan, the U.S., and the international community would not intervene. However, with the combination of the coronavirus, the Hong Kong incident, and the Taiwan issue, the CCP’s crimes cannot be overlooked. There is no way anyone can quietly cover them all up.
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-04-14-214042.jpg)
 
-(CCP和习近平)就（是）百分之百的现代版的希特勒，纳粹(干的)事情；百分之百的当年日本的侵略，帝国主义，军国主义。当年二战的时候没有新中国联邦啊，没有文贵诞生，所以那个时候人类遭受了那么大的罪 — 哈哈哈（俺这）不要脸啊，俺又不要脸了 — 现在有文贵啊，有新中国联邦，有战友们，所以它(CCP)玩球蛋了。信不信战友们？不管你信不信，时代都会让你知道这是个伟大的时代，属于我们(新中国联邦人)的时代。
+图片来源：德国之声中文网 宁波民众反PX游行示威活动
 
-The CCP and Xi Jinping are the modern-day Nazis and “Hitler”. We are in a similar situation as with the Japanese invasion, imperialism, and militarism during WWII. World War II was a time of great human suffering because there was no New Federal State of China (NFSC), and Miles had not yet been born. Ha-ha! I am boasting again. I am complimenting myself again. It is different now because people have Miles, the NFSC, and our fellow fighters. So the CCP is over. Fellow fighters, do you believe it? Whether you believe it or not, time will show you the answer. It is destined to be a wonderful era, an era that belongs to the people of the NFSC.
+**A政清：**聊一聊G系列，郭先生为什么让广大战友们都有投资机会，让大家都有发财的机会，让每一位草根、普通民众都能实现财富自由？郭先生说，共产党最怕的是他身边的这些精英们的觉醒吗？郭先生说的是共产党最怕草根有钱，最怕草根推动灭共事业。如果我们灭共是要依靠党内精英的话，那很简单啊，郭先生的投资只局限在这几个精英就好了啊，甚至也不需要有这样的资本的运作。让党内的人获得爆料革命的生态资金，让他们去促进更快速的灭共，我觉得郭先生非常容易办到的，不必那么大费周章创立G系列。
 
-共产党玩球蛋了，共产党你玩球蛋了。走着看，很多好消息我不能说，得Hold住。咱（们)今年不搞重磅，大家走着看。(世界)经济、政治、军事的动荡接踵而来。突发事件：美国、中共、台湾、香港、马六甲海峡，一个接一个(会发生事儿)。世界的焦点全在这儿呢！
+让普通草根有机会去实现财富自由，我觉得这能够体现出为什么唤醒民众更为重要。唤醒民众意味着让民众有思想，武装自己的思维。如果有更多资金，财富能力更强，它就更有力量去灭共。另外一点我想回应，你刚说很多党内精英，包括孟建柱、孙立军的下场，我们要唤醒精英什么？难道几十年他们对共产党的本质了解得还不够清楚吗？他不清楚中共的体制就是绞肉机吗？他一定是知道的，所以我们爆料革命要唤醒的是，让他们知道汹涌的民意，遍布天下的战友，能够汇集成一个又一个拳头砸向他们，这才是最主要的力量。
 
-The CCP, you are finished. We will see. There is much exciting information I cannot unveil in advance. I have to control myself and not say too much. This year we should not give you many bomb shells. Let’s wait and see. World economic, political, and military upheavals will happen one after another. The U.S., the CCP, Taiwan, Hong Kong, and the Straits of Malacca are the world’s focuses, and there will be frequent emergencies.
+你刚才说这些党内精英他还不太了解历史这些真相，其实我们想想，前段时间郭先生的直播中谈到曾庆红，真正的这些大佬：在干什么？他在看我们200小时的爆料革命的影片！他为什么不让秘书给他说习近平动弹不得？他为什么不让他的秘书说，时机还未到？他其实对党内斗争，用郭先生话讲，叫“门清”！他在等待“总加速师”再去加速一年，一年之后时机成熟了我们这边也会采取行动了。接下来，所以我们的民意就是告诉他，不要去做最后打扫战场的人。所以如果只是唤醒精英，那就变成了打扫战场的是他们这些精英，但是如果我们以唤醒广大民众为策略的话，新中国联邦人就变成了打扫战场的人！
 
-参考链接：
-[1] [赫尔备忘录](https://zh.wikipedia.org/zh-cn/%E8%B5%AB%E7%88%BE%E5%82%99%E5%BF%98%E9%8C%84)
+**B****小飞象：第一，**我们首先要说清一个概念，当你在说依靠党内战友去灭共的时候，我们的辩论题目不是依靠不依靠**，**所以如果唤醒党内精英战友是让党内精英去打扫战场，在我第二次反驳你的时候我就已经说了，因为有爆料革命和新中国联邦的存在，这种可能性就不会有。这也就是为什么爆料革命新中国联邦的计划非常非常大，灭共只是其中之一，我们最终是让中国人过上好日子，但是本辩题讨论的是对灭共的结果上，哪个更重要？**第二，**你说的是唤醒普通民众之后，打扫战场的就是被唤醒的群众，在这一点上我们是认可的，但是并不代表对灭共的结局，唤醒精英比不上唤醒普通民众。我想请问，你能不能用简单的一句话，再梳理一遍为什么你认为唤醒民众一定要比党内精英更重要。请你用一句话回答我的问题？
 
-* * *
+**A****政清：**其实，我刚才已经阐述过这个理念: 扣动扳机的是“以共灭共”，但是到底什么时候要扣动扳机？就是当民意觉醒的时候。民意觉醒了我们就认为时机成熟了，才去扣动这个扳机。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60745015dbc8001854a7ebe3](https://gtv.org/getter/60745015dbc8001854a7ebe3) (00:18-02:17, 05:23-09:53)
-鸣谢：
-[1] 感谢 盘古小蚂蚁、Antsee-GTV、TING GUO 提供中文文本于 [https://gnews.org/zh-hans/1082361/](https://gnews.org/zh-hans/1082361/)
-[2] 感谢 Antsee-GTV、Liberte 提供英文翻译于 [https://gnews.org/1090501/](https://gnews.org/1090501/)
+**B****小飞象：**好的，**首先**，你不得不承认，扣动扳机，扣动的人很有可能是党内精英，那个动作上面。这并不是说战友们不重要，只是单指动作上面，真正有可能去中南海、拿起枪去干掉那百分之一的坏蛋的行为者，很可能就是党内精英！所以唤醒到一定深度的时候，精英阶层是尤其重要的。**其次，**在G系列问题上我回应你的事，你说的没错，共产党害怕是所有民众不愁吃不愁穿的时候去灭共，而且如果他作为爆料革命的参与者，他在海外的财富得以保全，子女的生命会被保护，都会得到延续。你不得不延续，这是人性。具体地说，当港币、人民币倒塌的时候，因为人们的钱涌进G系列而安全，无论你的初心是真心灭共，或者你是真心灭共又想保全你的财富。但是，我们讨论的是，在民众和精英对灭共都重要的情况下，中共党内精英他是真正有扣动扳机的能力的人，所以他们的整个认识会对新中国联邦，对大局都有本质影响，这也是我开篇立论。
 
-* * *
+**主持人QMAY****：**太棒了！接下来两分钟，请各自总结一下各自的论点。
 
-*整理校对 & 新闻撰写：【7PawBear】字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】*
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+**A****政清：**政治都是残酷无情的，是讲究实力的，灭共不是请客吃饭。如果我们幻想靠和平政变就能达成喜马拉雅的目标，我想说的是不可能。依靠中共党内精英推翻现有制度，他们还会建立自己的力量，所以为什么必须要民众去推动，我们才能成为打扫战场的人，成立喜马拉雅理想的新中国联邦，成为全世界羡慕的、强大而文明先进的国家体系！
+
+**B****小飞象：**我觉得我的开篇立论非常完美了。**第一，**以群众唤醒、推动灭共不一定真的会实现，我们说的是灭共的结果和导向；**第二，**以中共党内精英的唤醒，不代表被唤醒之后在灭共事业上成立精英利益集团，让中共以另外一个面貌继续统治中国人民。我已经强调很多遍，因为有爆料革命和新中国联邦，第三方国际监督，这样的可能性已经在郭先生的大局里已经被阐述了，那么我想说的还是，去重申我开篇的三个观点：本道题讨论的不是，未来新中国建设的时候，到底是唤醒精英重要？还是普通民众重要？**我们讨论的是灭共事业上，两者都重要的情况下哪一点更为重要？**党内精英在灭共行为和扣动扳机上有更大能力和实权，而且唤醒的程度和内容上，唤醒精英更重要。我也讲过，爆料革命的过去，如果没有中共党内的精英输送情报，那么香港危机、病毒真相和台湾危机在国际上不会造成这么大反响。而且我们很多战友冥冥当中是在隐形战线的精英战友的保护之下得以求生，这也是我的结论非常想说的一句；大家都是站在台前、推动民意大潮的人，每一个人都有非常大的功劳，但是我们歌里一直唱，无名英雄在此苏醒，不得不承认，体制内的精英战友更重要！
+
+听写：Bowen的记录
+
+校对/发稿：Helen
+
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
+
 
 +1
