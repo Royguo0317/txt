@@ -1,29 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 台湾停止向中共超级计算中心实体供应芯片
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1094898/)
+## 研究称中共病毒的变异株对接种疫苗的人影响大于未接种疫苗
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1095018/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+翻译：洛杉矶天使农场– 烟波浩淼
+校对：洛杉矶天使农场–雨山溪桥客
+审核：洛杉矶天使农场–断播
+![]()![](https://gnews.org/wp-content/uploads/2021/04/covid-19-5070658_1280-800x534-1.jpg)
+**以色列特拉维夫大学（Telaviv University****）的一项最新研究发现，接种辉瑞/****生物技术（Pfizer/BioNTech****）疫苗的人感染中共病毒南非变种的可能性高出8****倍。**
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/TW-1.jpg)bworldonline.com
-路透社报道，台湾周三表示，其芯片企业将遵守美国规定。美国政府上周将7家中共超级计算机实体列入经济黑名单，台湾跟随美国规定，台北一家芯片制造商暂停了其中一家中共实体的订单。
+参与这项研究的以色列顶级医疗机构克拉里特健康服务（Clalit Health Services）的研究主任冉·巴里切尔（Ran Balicer）教授说：“这是世界上第一个基于真实世界数据的研究表明与原始病毒和英国变异病毒相比，这种疫苗对南非变异病毒的效果较差”。
 
-美国商务部表示他们“参与了中共军方使用的超级计算机的建造、破坏稳定的军事现代化努力和大规模杀伤性武器项目”。美国商务部长吉娜·雷蒙多 (Gina Raimondo)在一份声明中表示：“超级计算能力对于许多，或许几乎所有现代武器和国家安全系统的发展都至关重要，比如核武器和高超音速武器。”
+这项同行评议的研究调查了400名“至少注射过一次辉瑞/生物技术疫苗”并且也感染了南非中共变异病毒的人——他们与400名同样被感染但未接种疫苗的人进行了比较。
 
-被列入美国实体清单的公司或其他公司必须向美国商务部申请许可证，在申请从美国供应商获得产品许可时，商务部将面临严格审查。
+研究结果显示，“B.1.351病毒变异在接种疫苗的个体中被发现的几率是未接种者的8倍，及5.4%比0.7%。”辉瑞/生物技术疫苗被认为具有高度的保护性，但显然它对南非病毒株没有那么强的保护性病毒。
 
-台湾芯片企业是全球半导体的主要供应商，台湾经济部长王美花说，将遵守台湾和美国的规定。她指出，“我们的公司，无论是生产商还是出口商，都必须符合我们国家的规定。当然，美国有新的规定，我们的公司将会关注并遵守美国规定的关键标准。”
+特拉维夫大学的阿迪·斯特恩（Adi Stern）承认，这项研究的发现令人不快。
 
-美国此举正值其与中共在台湾问题上的日益紧张之际。中共从未放弃武力统一台湾，与此同时，全球半导体短缺已将台湾推入科技供应链的中心位置。
+斯特恩说：“我们发现，与未接种疫苗的人群相比，接种第二剂疫苗的人群中南非变异病毒株的比例更高。”
 
-周二，台湾晶芯科技有限公司(Alchip Technologies Ltd .，简称：晶芯科技)表示，已经停止了与天津飞腾信息技术公司(Tianjin Phytium Information Technology，简称：飞腾信息技术)相关的所有产品的生产。
+“这意味着南非变异病毒株在某种程度上能够突破疫苗的保护。”
 
-飞腾信息技术公司周三股价暴跌9.9%，自美国商务部上周宣布上述消息以来，其股价跌幅已超过三分之一。
+他补充说，“根据普通人群的模式，我们本以为只有一例南非变异，但我们看到了八例。显然，这个结果并没有让我们感到高兴。”
 
-参考链接：
+然而，目前南非变异的中共病毒在以色列的中共病毒病例中所占比例还不到1%。阿迪·斯特恩说，根据研究结果，应该“继续密切关注”遏制B.1.351变种在以色列传播的努力。
 
-[https://www.reuters.com/article/us-taiwan-usa-semiconductors/taiwan-says-its-chip-firms-will-adhere-to-new-u-s-rules-blacklisting-china-supercomputing-entities-idUSKBN2C10CU](https://www.reuters.com/article/us-taiwan-usa-semiconductors/taiwan-says-its-chip-firms-will-adhere-to-new-u-s-rules-blacklisting-china-supercomputing-entities-idUSKBN2C10CU)
+以色列最近推出了一项极具争议的“疫苗护照”制度，给予接种疫苗的人特权，而不是给予未接种疫苗的人特权，这一行动受到公民自由组织的广泛批评。
+
+原文作者：凯瑟琳·萨尔加多(Catherine Salgado)
+发布时间：2021年4月13日
+原文链接：[https://thenationalpulse.com/breaking/covid-variants-affect-vaccinated-more-than-unvaccinated-study-claims/](https://thenationalpulse.com/breaking/covid-variants-affect-vaccinated-more-than-unvaccinated-study-claims/)
 
 0

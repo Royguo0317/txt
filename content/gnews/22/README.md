@@ -1,29 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 人权组织敦促抵制中共“种族灭绝奥运会”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1094742/)
+## 台湾停止向中共超级计算中心实体供应芯片
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1094898/)
 
-俄罗斯莫斯科喀秋莎农场    银河
+俄罗斯莫斯科喀秋莎农场   银河
 
 编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/O-5.jpg)fltimes.com
-布赖特巴特新闻(Breitbart News)4月14日报道，妇女权利无国界组织敦促奥委会将2022年冬季奥运会移出中共，否则将面临抵制这届“种族灭绝运动会”的风险。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/TW-1.jpg)bworldonline.com
+路透社报道，台湾周三表示，其芯片企业将遵守美国规定。美国政府上周将7家中共超级计算机实体列入经济黑名单，台湾跟随美国规定，台北一家芯片制造商暂停了其中一家中共实体的订单。
 
-妇女权利无国界组织准备了一封致美国奥林匹克委员会(USOC)的公开信，并向国际奥林匹克委员会(IOC)提交了一份副本，抗议目前选择的2022年冬奥会的举办地。
+美国商务部表示他们“参与了中共军方使用的超级计算机的建造、破坏稳定的军事现代化努力和大规模杀伤性武器项目”。美国商务部长吉娜·雷蒙多 (Gina Raimondo)在一份声明中表示：“超级计算能力对于许多，或许几乎所有现代武器和国家安全系统的发展都至关重要，比如核武器和高超音速武器。”
 
-妇女权利无国界组织总统的雷吉·利特约翰(Reggie Littlejohn)控诉中共除了正在进行的对维吾尔人的种族灭绝，中共还有许多“其他人权暴行，如宗教迫害，强迫堕胎和绝育，强迫器官摘取，强迫劳动和大规模监视。”
+被列入美国实体清单的公司或其他公司必须向美国商务部申请许可证，在申请从美国供应商获得产品许可时，商务部将面临严格审查。
 
-利特约翰说，中国共产党还“拘留持不同政见者和揭发者、无与伦比的环境掠夺和中共病毒在世界上的释放”，使其成为世界上最严重的侵犯人权者之一。
+台湾芯片企业是全球半导体的主要供应商，台湾经济部长王美花说，将遵守台湾和美国的规定。她指出，“我们的公司，无论是生产商还是出口商，都必须符合我们国家的规定。当然，美国有新的规定，我们的公司将会关注并遵守美国规定的关键标准。”
 
-在信中，人权组织提醒美国奥委会和国际奥委会“对1948年《防止及惩治种族灭绝公约》所作的宪章承诺和国际义务”。
+美国此举正值其与中共在台湾问题上的日益紧张之际。中共从未放弃武力统一台湾，与此同时，全球半导体短缺已将台湾推入科技供应链的中心位置。
 
-这封信提醒奥林匹克当局，1936年在德国柏林举行的奥运会“被证明是阿道夫·希特勒的第三帝国一笔巨大的宣传意外之财，为其提供了毫无根据的国际声望、合法性和信誉。”这些好处为“纳粹政权随后对600万犹太人实施的种族灭绝大屠杀以及希特勒在世界大战期间促成的骇人听闻的反人类罪行提供了一个烟幕”。今天，“我们正面临着另一个极权主义政权积极参与的另一场种族灭绝，这是反人类罪行之一。”然而，奥运当局正准备让中共“获得并利用一笔宣传巨款，让纳粹享受的东西相形见绌。”
+周二，台湾晶芯科技有限公司(Alchip Technologies Ltd .，简称：晶芯科技)表示，已经停止了与天津飞腾信息技术公司(Tianjin Phytium Information Technology，简称：飞腾信息技术)相关的所有产品的生产。
 
-公开信最后呼吁“国际社会紧急努力，将2022年冬奥会转移到另一个地点”，为“种族灭绝奥运会”提供一个“自由奥运会”的选择。声明称：“如果做不到这一点，请注意，我们将竭尽全力抵制奥运会。”
+飞腾信息技术公司周三股价暴跌9.9%，自美国商务部上周宣布上述消息以来，其股价跌幅已超过三分之一。
 
 参考链接：
 
-[https://www.breitbart.com/national-security/2021/04/14/human-rights-groups-prepare-boycott-of-chinas-olympic-genocide-games/](https://www.breitbart.com/national-security/2021/04/14/human-rights-groups-prepare-boycott-of-chinas-olympic-genocide-games/)
+[https://www.reuters.com/article/us-taiwan-usa-semiconductors/taiwan-says-its-chip-firms-will-adhere-to-new-u-s-rules-blacklisting-china-supercomputing-entities-idUSKBN2C10CU](https://www.reuters.com/article/us-taiwan-usa-semiconductors/taiwan-says-its-chip-firms-will-adhere-to-new-u-s-rules-blacklisting-china-supercomputing-entities-idUSKBN2C10CU)
 
 0

@@ -1,51 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】开盘价每股381美金，Coinbase纳斯达克首秀市值超660亿美金
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1094540/)
+## mRNA疫苗：从现在起是黄金标准
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1094582/)
 
-作者：纽约香草山写作组 Delilah小胖
+信息来源：德国经济周刊网页版
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
+发布时间：2021年4月14日
 
+翻译整理简评： Shuizhuyu
 
+在未来的购买方面，欧盟打算将重点放在新一代疫苗上。 Biontech仅仅是开始。 但是，欧洲是否有能力放弃其他疫苗还有待观察。
 
-世界上目前最大的虚拟货币交易平台 Coinbase.com，股票代码：COIN，2021年4月14日，星期三下午1点30分，正式登陆美股纳斯达克市场。开盘价美股381美金，高出昨天市场收盘后纳斯达克给出的每股250美金的预估价52.4%。
+星期三，欧盟委员会主席乌尔苏拉·冯·德·莱恩宣布，Biontech-Pfizer将把5,000万剂疫苗的交付提前到第二季度，并且欧盟委员会已经签署了一份与该公司的合同在2021年至2023年期间协商了超过18亿剂药物。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片83.png)
+欧盟委员会明确表示，在未来几年中，它将依赖使用新mRNA技术的疫苗。它们具有几个优点：它们更有效，并且可以更轻松地适应冠状病毒的新变种。而且它们显示出更少的副作用。没有关于血栓形成问题的报道，因为在阿斯利康和强生公司都有状况发生。  “未来属于mRNA疫苗，”欧洲议会基督教民主党卫生政策发言人彼得·里斯（CDU）说。
 
-Coinbase开盘后，最高冲到美股429.54美金。开盘后15分钟左右的成交量就超过了3300万股。
+欧盟委员会给欧洲议会议员的印象是，它不再希望将来与阿斯利康和强生等公司签订合同。在与欧洲议会议员的视频会议上，这是欧盟委员会副主席玛格丽特·希纳斯（Margaritis Schinas）传达的信息。但是，这是一个大胆的声明。因为没有人能准确估计未来几年的需求。目前尚不清楚以前的疫苗接种保护将持续多长时间。只有知道了这一点，才能计算出疫苗接种的需求量。突变也可能需要进一步接种疫苗。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片82.png)
+如果欧盟委员会依靠mRNA技术，则目前有三个提供商：Biontech-Pfizer，Moderna和Curevac。 Curevac的疫苗尚未获得EMA的批准。布鲁塞尔内部人士认为，订购的数量对公司构成了挑战。目前尚不清楚是否有能力执行后续命令。
 
-爆料革命的郭文贵先生，在Coinbase上市钟声敲响不久，发盖特表示：
+**简评：这是欧盟的好消息， 他们真的认为是好消息， 他们今后要致力于mRNA疫苗， 比如Biontech-Pfizer等， 欧盟真的不知道这个病毒的真相吗？ 这个病毒是用疫苗可以遏制的吗？难道欧洲的病毒学家都不阅读闫博士的三份报告吗？他们不仅预定现在要使用的疫苗， 而且已经为今后三年都做好了准备， 真为欧盟捉急呀！**
 
-“4月14号：我们的未来比这个还要让你兴奋，刺激！只有新中国联邦能让我们一起共同创造这样的美好！和奇迹！能让你的人生无限精彩！新的时代！新的金融世纪已经开始！我们是真正的弄潮者！”
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片81.png)
+校对上传：Shuizhuyu
 
-在昨天，郭文贵先生也发盖特说：
-
-“4月13号：G系列未来被市场承认的价格，和每一个公司的总市值都会超过他们（Coinbase）！这个时代是属于我们的。如果我们太早太晚的到来都是灾难！我们占尽了天时、地利、人和，这就是上天给我们的机会，给我们的力量，让我们去灭共。莘县阳谷县搭县走着看！”
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片80.png)
-
-“新的金融世纪已经开始”。爆料革命战友，让我们努力成为这其中的弄潮儿，G系列自己的金融灭共大幕也已经拉开，G系列虚拟货币产品蓄势待发，即将登场！
-
-校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpg)
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+https://www.wiwo.de/politik/europa/nach-problemen-bei-astrazeneca-und-johnsonundjohnson-mrna-impfstoffe-ab-jetzt-der-goldstandard/27094950.html
 
 +1

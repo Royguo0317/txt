@@ -1,49 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】打了疫苗没有后悔药
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1094991/)
+## 【路德时评摘要】4.9.2021PM-战略竞争法案包含病毒来源真相调查
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1095222/)
 
-作者：纽约香草山媒体部 蜜蜂
+视频剪辑 : Ablec(文A)
+中听校： 洛杉矶天使农场 – 雨山溪桥客
+英翻译：洛杉矶天使农场 –Arthur文徐
+英校对：洛杉矶天使农场 – 烟波浩淼
+字幕+视频制作：意大利达芬奇农场 – 紫苏花生
 
+**路德**
+今天早上我们提到的2021年战略竞争法案
+We mentioned the 2021strategic competition bill
+里面有重要的内容，现在我们已经拿到了全文啊
+It contains very important information, now we have the full text
+而且全文里面关于这个病毒来源的报告
+It has full report about the origin of CCP-virus
+这里面信息太重要了
+This information is critical
+要求在180天一定要递交给国会一份关于新冠病毒来源的报告
+It requests a full COVID19 report to be provided to the congress
+这里面等等啊还有很多信息
+It contains very critical information
+包括对中共的实验室泄漏和造假信息等等都要彻查
+Including thorough investigation about CCP lab leakage and misinformation
+这里面包含的这些信息，我待会说这里面有故事的啊
+As for the information in the report, I will share the story with you guys later
+这情报口提交就可以了，不需要司法认定
+All is needed is information from the intelligence bureaus, not need for court confirmation
+只需要情报提交，大家有没有觉得这个玩法和当年伊拉克那个很像
+Just intelligence, don’t you guys think this is rather similar to the trick played on Iraq war?
+bo博士，是不是？
+Dr. Bo don’t you think so?
+那瓦罗前几天3月31日敢说闫博士的报告太棒了
+Peter Nevero said on March 31, Dr Yan’s report was brilliant
+说明这所有的已经做好了
+Indicating all of this is ready
 
+**博博士**
+我有种感觉，这个报告已经写好了，就等着出来！
+I feel this report is ready and can be published any moment
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-文贵先生从来都是走一步、看十步，料事如神。因为他坚信“真理只有一个”，而他对所有人和事的判断都基于手中掌握的事实真相，然后不折不扣地勇往直前。这就是“唯真不破”的力量。在昨天的盖特里，真战友们都看得出，他对那些经百般劝告却不听、仍然打了疫苗的“朋友”感慨万千、深表无奈。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-228.png)4月13日郭先生盖特
-
-这些不是懂政治的（前英国首相），就是有信仰的专业人士，却对事实和真相如此麻木不仁。郭先生的劝说、闫博士的报告和爆料革命的呼声无一不再呐喊：中共病毒是人造生物武器，尚无有效疫苗！别打疫苗！但他们听而不闻。难道是我们的实力没有共匪“蓝金黄”的势力强大？还是我们的实话没有假话好听？或是他们中了撒旦的魔力，失去了理智、勇气和对正义、信仰的追求？若非如此，怎会使得他们连这么容易、明白的道理都听不进去——有谁见过疫苗能治生物武器 ？更不要说，他们打完了一针，还要再打第二针，不见棺材不落泪。直到昨天美国停止使用“强生疫苗”后，他们才想起文贵先生的友情忠告和正义的呼声。可惜晚矣——生米已煮成熟饭，哪来的后悔药。至于那些乘着专机、花着20几万、专门到沙特打共匪疫苗的贵族们，由于你们的软弱无知，此时文贵先生已预测到下一步疫苗将会带来更大的次生灾难。疫苗一定会引起一场恶战。后悔了吧，后果自付！
-
-据本人推测，说不定那位前英国首相就是去年一再坚持，想来参加“6.4新中国联邦成立”仪式的那位。郭先生明辨，当时就没欢迎他来。由此可见，他也不像班农先生那样，是坚定的灭共者。
-
-对于那些神职人员，他们嘴里念着《圣经》，却没有半点分辨能力：引诱他们打疫苗的，就是当年引诱亚当、夏娃吃禁果的蛇——“打吧，打了不会死”。所以，他们只剩下已经失去正义、勇敢、与上帝背道而驰、没有灵魂的躯体。
-
-文贵先生也为真正有思想的朋友骄傲过：我们GTV的懂事摩根先生。老人家出行南美参加婚礼，不但自己坚持不打疫苗，还说服了医疗团队的所有医生。这才是新中国联邦人的作风：说真话、办真事、站得正。
-
-（本文仅代表作者观点）
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+**路德**
+就等着！说白了就等着两党来共同走流程
+Just wait! Basically, just waiting for both parties go through the procedure together
+更重要的是中共如何阻挠对新冠病毒调查
+More importantly, no matter how CCP try to impede the investigation on the COVID19 包括实验室泄漏，制造各种假信息
+Including lab leakage, and all kinds of misinformation
+所有的报告其实就是超限生物武器的一个报告
+All the reports is basically a report about this unrestricted bioweapon
+这个超限生物武器包括什么？
+what does this unrestricted bioweapon include?
+是不是，包括你如何搅混水，事后搅混水，这都要调查出来
+Right? Including CCP’s attempt to stir up the water, all will be investigated
+最重要的是赵立坚，外交部的赵立坚质问为何美国满世界建造这么多实验室
+More importantly, Zhao Lijiang from CCP foreign ministry questioned US about building all that many labs in the world
+你看，他说的话说为何美国独家反对禁止生物武器公约？
+He was question, why US is against bills to ban bioweapon?
+我们昨天做节目说这个大规模杀伤性武器
+Yesterday, we talked in our show about this mass destruction weapon
+中共违反了大规模杀伤性里面主要提的就是生物武器
+The CCP violated the MDW, the most important part is bioweapon
+中共现在反过来反咬一口
+Now, CCP is backfiring
+这个是赵立坚说的，拜登小布什当时一起灭萨达姆，一样的
+What Zhao Lijiang said, Biden and Bush Jr. when they work together to take down Sadam, it was the same trick
+是不是，外交关系委员会，也是，你只要情报口确认
+Isn’t that correct, council of foreign relations, the same situation, all you need is intelligence confirmation
+得到这个结论就可以了这里面包含的信息量太大了
+And come to this conclusion, it contains too much information
+所以我一看到这个的时候
+So, when I saw this
+咋们的莱昂纳多太棒了就把这个部分找出来
+Leo did a great job
+大家看原文在这里，大家可以自己去翻，214项
+The original document is here, you guys can do your translation, it has 214 pages
 
 0
