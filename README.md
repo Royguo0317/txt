@@ -12,168 +12,168 @@
 
 ---
 
-### [【有声读物】数字人民币对墙内百姓生活的影响](/content/gnews/1/README.md)
- ` MOSwukong`
+### [视频雨中的坚守，雨中的呐喊——抗议SEC的第八天](/content/gnews/1/README.md)
+ ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
 
-### [视频10/4/2021韩美签署防务费分摊协议，创20年来最大增幅](/content/gnews/2/README.md)
- ` 秘密翻译组G-Translators`
-
-### [视频【有声读物】打了疫苗没有后悔药](/content/gnews/3/README.md)
- ` MOSwukong`
-
-### [中共超限战灭港计划（三十六）六七暴动之林彬之死](/content/gnews/4/README.md)
- ` 喜馬拉雅-粵語組`
-
-### [【世事解评】从Coinbase上市火爆看G系列的无限未来](/content/gnews/5/README.md)
- ` 纽约香草山MOS01`
-
-### [【必读】我不会接种中共病毒疫苗的18个理由](/content/gnews/6/README.md)
- ` 墨尔本雅典娜农场`
-
-### [靠谎言和暴力起家的中共缘何忽然祭起反对历史虚无主义的大旗](/content/gnews/7/README.md)
- ` NewFOC`
-
-### [美国敦促日本公开支持台湾](/content/gnews/8/README.md)
- ` JPHIMALAYA`
-
-### [美国情报机关最新评估报告出炉 视中共为国家安全最大威胁](/content/gnews/9/README.md)
- ` JPHIMALAYA`
-
-### [中共国被逼出来的实弹演戏与破败的民生](/content/gnews/10/README.md)
- ` 澳喜农场`
-
-### [视频【字幕】4/13/2021文贵盖特 3：新中国联邦人，爆料革命从2019年一次次的拯救世界上有正义感．有智慧．有常识的人们](/content/gnews/11/README.md)
- ` 纽约香草山MOS01`
-
-### [2021年4月15日灭共要闻快报](/content/gnews/12/README.md)
- ` 秘密翻译组G-Translators`
-
-### [2021年4月14日灭共要闻快报](/content/gnews/13/README.md)
- ` 秘密翻译组G-Translators`
-
-### [香港改法条对煽动投“空白票”者可判入刑三年](/content/gnews/14/README.md)
- ` HimalayaRussia`
-
-### [中共的泼妇外交令人捧腹](/content/gnews/15/README.md)
- ` 丁过`
-
-### [视频【字幕】4/13/2021文贵盖特 2：为什么美国和欧洲，每小时都有灭共的巨大的力量在凝聚和行动？](/content/gnews/16/README.md)
- ` 纽约香草山MOS01`
-
-### [扛着虎皮做大旗的当代国宾论坛李肃如何在自嗨中圆梦武统台湾](/content/gnews/17/README.md)
- ` NewFOC`
-
-### [视频【每日快讯】04/14/2021:拜登派密友访台显示美国对台湾及其民主承诺的“重大信号”CNN著名主播古普塔医生认为病毒来自武汉实验室](/content/gnews/18/README.md)
- ` CANTONESE工作室`
-
-### [视频【有声读物】The White Tiger 白虎](/content/gnews/19/README.md)
- ` MOSwukong`
-
-### [【言于其食】记忆里的一道美食——红烧肉](/content/gnews/20/README.md)
- ` 纽约香草山MOS03`
-
-### [【世事解评】闫博士第三篇报告部分内容翻译及浅释（续）](/content/gnews/21/README.md)
- ` 纽约香草山MOS01`
-
-### [【星光骑士团辩论赛】唤醒中共党内精英与唤醒民众，哪个对爆料革命和灭共更重要？](/content/gnews/22/README.md)
- ` HoustonLitstar`
-
-### [视频【字幕】4/13/2021文贵盖特 1：健身视频证明了郭3秒是事实上是郭三强](/content/gnews/23/README.md)
- ` 纽约香草山MOS01`
-
-### [视频克里访问中共国与二战美国给日本的《赫尔备忘录》](/content/gnews/24/README.md)
- ` Himalaya Rose Garden Team`
-
-### [“掀锅盖”系列：20210329国内金融界得知世界经济将崩塌，恐慌抛售基金](/content/gnews/25/README.md)
- ` 《爆料贵语--掀郭盖》NZ`
-
-### [匈牙利在玩火](/content/gnews/26/README.md)
- ` 澳喜农场`
-
-### [华府敦促日本首相就台湾问题明确表态](/content/gnews/27/README.md)
- ` HimalayaRussia`
-
-### [“掀锅盖”系列：201210412大佬们后悔跟中共走太近，唯有灭共才最精彩](/content/gnews/28/README.md)
- ` 《爆料贵语--掀郭盖》NZ`
-
-### [“掀锅盖”系列：20210329CCP人人自危，WHO可能要反水](/content/gnews/29/README.md)
- ` 《爆料贵语--掀郭盖》NZ`
-
-### [【老江观点】—150万美元，我哭了……](/content/gnews/30/README.md)
- ` Laojiang`
-
-### [分析：美国“是否”应该抵制北京2022年冬奥会](/content/gnews/31/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [【路德时评摘要】4.13.2021AM 上-前美军情Sellin博士发推挖出港大实验室团队](/content/gnews/32/README.md)
- ` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels`
-
-### [视频路德时评简讯（视频版）: 中共将举行双航母演练(2021.4.11晚间路德社简讯之路博艾冠谈）](/content/gnews/33/README.md)
- ` 路德社`
-
-### [视频路德时评简讯（视频版）: 中共新党史颁布习神地位超毛贼(2021.4.12早间路德社简讯之路安墨谈)](/content/gnews/34/README.md)
- ` 路德社`
-
-### [《路德社》精选新闻简讯：中共发动生物战威胁全世界安危必须被消灭](/content/gnews/35/README.md)
- ` 路德社精选`
-
-### [美国正在开发一种检测无症状COVID-19的微芯片](/content/gnews/36/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [视频【路德时评摘要】4.9.2021PM-战略竞争法案包含病毒来源真相调查](/content/gnews/37/README.md)
- ` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels`
-
-### [《路德社》精选新闻简讯：日本可果美公司停止从新疆地区进口西红柿酱](/content/gnews/38/README.md)
- ` 路德社精选`
-
-### [视频【字幕】4/12/2021文贵盖特 2：一切的资源和一切的行为都应该以灭掉共产党目标为核心](/content/gnews/39/README.md)
- ` 纽约香草山MOS01`
-
-### [每日新闻收集【4/14】](/content/gnews/40/README.md)
- ` wenwu`
-
-### [美国政府与台湾对台互动的新准则](/content/gnews/41/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [【墙内热搜】中共的钓鱼执法何时休](/content/gnews/42/README.md)
+### [【军事快讯】美军航母上的F-35足以震慑俄罗斯和中共](/content/gnews/2/README.md)
  ` 纽约香草山MOS02`
 
-### [百姓挨饿 粮商破财即将来临——评《粮食流通管理条例》修订的真正意图](/content/gnews/43/README.md)
- ` 喜韩Gnews中文`
-
-### [中共为什么痴迷于统一台湾？](/content/gnews/44/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [【战友心声】打了疫苗没有后悔药](/content/gnews/45/README.md)
- ` 纽约香草山MOS03`
-
-### [中共开通“非法历史评论”举报热线](/content/gnews/46/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [研究称中共病毒的变异株对接种疫苗的人影响大于未接种疫苗](/content/gnews/47/README.md)
- ` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels`
-
-### [2021年04月14日澳喜要闻（每日更新）](/content/gnews/48/README.md)
+### [红黄蓝的噩梦又来了](/content/gnews/3/README.md)
  ` 澳喜农场`
 
-### [美媒发纳瓦罗专稿：国会定会彻查福奇博士](/content/gnews/49/README.md)
- ` HimalayaRussia`
+### [福奇1984年以来的常败简史](/content/gnews/4/README.md)
+ ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
 
-### [加拿大退休警督敦促使用自由裁量权执行疫情法案](/content/gnews/50/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+### [美国，请不要让中共钻你的法律空子！](/content/gnews/5/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [【世事解评】“种族灭绝罪”下的世界与中共（3月续篇二）——各国政府态度](/content/gnews/51/README.md)
+### [【热点播报】美国参议院听证会：审查世界范围内威胁（中共篇）](/content/gnews/6/README.md)
+ ` 纽约香草山MOS02`
+
+### [视频【有声读物】贵族精神与流氓主义](/content/gnews/7/README.md)
+ ` MOSwukong`
+
+### [中共“灭白计划”之迟浩田系列十九——中美是冤家路窄你死我活的关系](/content/gnews/8/README.md)
+ ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
+
+### [【有声读物】数字人民币对墙内百姓生活的影响](/content/gnews/9/README.md)
+ ` MOSwukong`
+
+### [视频10/4/2021韩美签署防务费分摊协议，创20年来最大增幅](/content/gnews/10/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频【有声读物】打了疫苗没有后悔药](/content/gnews/11/README.md)
+ ` MOSwukong`
+
+### [中共超限战灭港计划（三十六）六七暴动之林彬之死](/content/gnews/12/README.md)
+ ` 喜馬拉雅-粵語組`
+
+### [【世事解评】从Coinbase上市火爆看G系列的无限未来](/content/gnews/13/README.md)
  ` 纽约香草山MOS01`
 
-### [美国《2021战略竞争法》第四节摘译](/content/gnews/52/README.md)
+### [【必读】我不会接种中共病毒疫苗的18个理由](/content/gnews/14/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [靠谎言和暴力起家的中共缘何忽然祭起反对历史虚无主义的大旗](/content/gnews/15/README.md)
+ ` NewFOC`
+
+### [美国敦促日本公开支持台湾](/content/gnews/16/README.md)
+ ` JPHIMALAYA`
+
+### [美国情报机关最新评估报告出炉 视中共为国家安全最大威胁](/content/gnews/17/README.md)
+ ` JPHIMALAYA`
+
+### [中共国被逼出来的实弹演戏与破败的民生](/content/gnews/18/README.md)
+ ` 澳喜农场`
+
+### [视频【字幕】4/13/2021文贵盖特 3：新中国联邦人，爆料革命从2019年一次次的拯救世界上有正义感．有智慧．有常识的人们](/content/gnews/19/README.md)
+ ` 纽约香草山MOS01`
+
+### [2021年4月15日灭共要闻快报](/content/gnews/20/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [2021年4月14日灭共要闻快报](/content/gnews/21/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [香港改法条对煽动投“空白票”者可判入刑三年](/content/gnews/22/README.md)
  ` HimalayaRussia`
 
-### [【以毒灭共】知己知彼百战百胜](/content/gnews/53/README.md)
+### [中共的泼妇外交令人捧腹](/content/gnews/23/README.md)
+ ` 丁过`
+
+### [视频【字幕】4/13/2021文贵盖特 2：为什么美国和欧洲，每小时都有灭共的巨大的力量在凝聚和行动？](/content/gnews/24/README.md)
+ ` 纽约香草山MOS01`
+
+### [扛着虎皮做大旗的当代国宾论坛李肃如何在自嗨中圆梦武统台湾](/content/gnews/25/README.md)
+ ` NewFOC`
+
+### [视频【每日快讯】04/14/2021:拜登派密友访台显示美国对台湾及其民主承诺的“重大信号”CNN著名主播古普塔医生认为病毒来自武汉实验室](/content/gnews/26/README.md)
+ ` CANTONESE工作室`
+
+### [视频【有声读物】The White Tiger 白虎](/content/gnews/27/README.md)
+ ` MOSwukong`
+
+### [【言于其食】记忆里的一道美食——红烧肉](/content/gnews/28/README.md)
+ ` 纽约香草山MOS03`
+
+### [【世事解评】闫博士第三篇报告部分内容翻译及浅释（续）](/content/gnews/29/README.md)
+ ` 纽约香草山MOS01`
+
+### [【星光骑士团辩论赛】唤醒中共党内精英与唤醒民众，哪个对爆料革命和灭共更重要？](/content/gnews/30/README.md)
+ ` HoustonLitstar`
+
+### [视频【字幕】4/13/2021文贵盖特 1：健身视频证明了郭3秒是事实上是郭三强](/content/gnews/31/README.md)
+ ` 纽约香草山MOS01`
+
+### [视频克里访问中共国与二战美国给日本的《赫尔备忘录》](/content/gnews/32/README.md)
+ ` Himalaya Rose Garden Team`
+
+### [“掀锅盖”系列：20210329国内金融界得知世界经济将崩塌，恐慌抛售基金](/content/gnews/33/README.md)
+ ` 《爆料贵语--掀郭盖》NZ`
+
+### [匈牙利在玩火](/content/gnews/34/README.md)
+ ` 澳喜农场`
+
+### [华府敦促日本首相就台湾问题明确表态](/content/gnews/35/README.md)
+ ` HimalayaRussia`
+
+### [“掀锅盖”系列：201210412大佬们后悔跟中共走太近，唯有灭共才最精彩](/content/gnews/36/README.md)
+ ` 《爆料贵语--掀郭盖》NZ`
+
+### [“掀锅盖”系列：20210329CCP人人自危，WHO可能要反水](/content/gnews/37/README.md)
+ ` 《爆料贵语--掀郭盖》NZ`
+
+### [【老江观点】—150万美元，我哭了……](/content/gnews/38/README.md)
+ ` Laojiang`
+
+### [【路德时评摘要】4.13.2021AM 上-前美军情Sellin博士发推挖出港大实验室团队](/content/gnews/39/README.md)
+ ` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels`
+
+### [视频路德时评简讯（视频版）: 中共将举行双航母演练(2021.4.11晚间路德社简讯之路博艾冠谈）](/content/gnews/40/README.md)
+ ` 路德社`
+
+### [视频路德时评简讯（视频版）: 中共新党史颁布习神地位超毛贼(2021.4.12早间路德社简讯之路安墨谈)](/content/gnews/41/README.md)
+ ` 路德社`
+
+### [《路德社》精选新闻简讯：中共发动生物战威胁全世界安危必须被消灭](/content/gnews/42/README.md)
+ ` 路德社精选`
+
+### [美国正在开发一种检测无症状COVID-19的微芯片](/content/gnews/43/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [视频【路德时评摘要】4.9.2021PM-战略竞争法案包含病毒来源真相调查](/content/gnews/44/README.md)
+ ` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels`
+
+### [《路德社》精选新闻简讯：日本可果美公司停止从新疆地区进口西红柿酱](/content/gnews/45/README.md)
+ ` 路德社精选`
+
+### [视频【字幕】4/12/2021文贵盖特 2：一切的资源和一切的行为都应该以灭掉共产党目标为核心](/content/gnews/46/README.md)
+ ` 纽约香草山MOS01`
+
+### [每日新闻收集【4/14】](/content/gnews/47/README.md)
  ` wenwu`
 
-### [塞尔维亚暂停紫金矿业在该国的铜矿施工](/content/gnews/54/README.md)
- ` HimalayaRussia`
+### [美国政府与台湾对台互动的新准则](/content/gnews/48/README.md)
+ ` 康州盘古喜马拉雅农场`
 
-### [台湾停止向中共超级计算中心实体供应芯片](/content/gnews/55/README.md)
- ` HimalayaRussia`
+### [【墙内热搜】中共的钓鱼执法何时休](/content/gnews/49/README.md)
+ ` 纽约香草山MOS02`
+
+### [百姓挨饿 粮商破财即将来临——评《粮食流通管理条例》修订的真正意图](/content/gnews/50/README.md)
+ ` 喜韩Gnews中文`
+
+### [中共为什么痴迷于统一台湾？](/content/gnews/51/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [【战友心声】打了疫苗没有后悔药](/content/gnews/52/README.md)
+ ` 纽约香草山MOS03`
+
+### [中共开通“非法历史评论”举报热线](/content/gnews/53/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [研究称中共病毒的变异株对接种疫苗的人影响大于未接种疫苗](/content/gnews/54/README.md)
+ ` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels`
+
+### [2021年04月14日澳喜要闻（每日更新）](/content/gnews/55/README.md)
+ ` 澳喜农场`
 

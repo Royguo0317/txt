@@ -1,35 +1,107 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕】4/12/2021文贵盖特 2：一切的资源和一切的行为都应该以灭掉共产党目标为核心
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1095205/)
+## 【路德时评摘要】4.13.2021AM 上-前美军情Sellin博士发推挖出港大实验室团队
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1095349/)
 
-制作： 【彩虹桥】
+视频剪辑 : Ablec(文A)
+中听校： 洛杉矶天使农场 – 烟波浩淼
+英翻译：洛杉矶天使农场 – Arthur
+英校对：洛杉矶天使农场 – 烟波浩淼
+字幕+视频制作：洛杉矶天使农场 –小腾腾说
 
+**路德/LUDE：**
+Sellin 博士发出了一个推，这个推绝对重磅中的重磅，无数个重磅
+Dr. Sellin posted another twitter, this is definitely a bombshell
+他这个推什么意思？
+What does the twitter say?
+就是SARS-CoV-1 在2002-2004年的时候
+Back in 2002-2004, which is the outbreak of SARS-CoV1
+港大的团队就是这几个人，Malik, 袁国勇，潘烈文，管轶
+This team from Hong Kong University, including Malik, Yuan Guoyong, Pan Liewen, Guan Yi,
+他们当时对SARS-CoV-1的研究发现一个最重磅的东西，
+They found something amazing about SARS-CoV-1
+就是它的病毒E蛋白里面氨基酸E69和G70这两个片段
+The two segments of E protein, E69 and G70
+用一个R代替，它的毒性以及病毒复制，繁殖的能力大大增强。
+If you replace these two amino acids with Arginine (R), it will greatly improve the replication and reproduction of the virus
+并且只要这个片段变成R的话，就能保证这个病毒具有感染脑部和神经系统的能力
+Additionally, if R is to be replaced, it will sustain the neuronal infection capacity of the virus
+这是港大的团队在2002-2004年（研究出来的）
+This is the major discovery of this Hong Kong University team in 2002-2004
+大家想想，后来为什么这几个人这么牛？
+Just think about why these guys are so famous?
+中共把他们捧到天上去了，就是因为发现了这一点
+CCP put them in the heaven, just because they discovered this
+他们当时对SARS-CoV-1，第一代SRAS，这个推里还有一个图
+They worked on the SARS-CoV-1, first generation of SARS, we got a figure here in the twitter
+这是SARS-CoV-1的片段，2002-2004时，E和G换成R以后，
+This is the segment of SARS-CoV-1, by 2002-2004, they swapped E and G to R
+整个毒性，最重要的就是具有了感染脑部神经系统
+Then, the toxicity, more importantly, the virus was able to infect the neuron system
+看看而且这个推上还写了
+The twitter also mentioned
+这个片段变成R的现在世界上已知的只有三种
+There are three viruses with R as this segement
+一个就是舟山蝙蝠病毒ZX45
+The first one is Zhou Shan BAT virus-ZX45
+另外一个就是在泰国刚刚发现的所谓的RacCS203
+Another one was just being discovered in Thailand-RacCS203
+最后一个就是RaTG13云南fake 病毒
+The last one is RaTG13, fake virus from Yunnan
+Sellin 博士直接说了RaTG13就是假的
+Dr. Sellin said RaTG13 is fake
+唯一找到的就是这个舟山蝙蝠（病毒ZX45）具备这个功能
+The only one that actually has the function nis Zhou Shan BAT virus-ZX45
+自然它就把这段E蛋白的这一小片段边成了R
+And it has this segment of E protein swapped to R
+等于说就具备了感染神经系统功能
+Therefore, has the function of neuro-infection
 
+**艾丽/Ellie**：
+舟山蝙蝠病毒自带的这个好的一个先天骨架，就是它能够把这个两个E蛋白让它自动变成R，然后让它感染神经
+Zhou Shan Bat virus has such a good backbone, it has two E Amino acids swapped to R, allows it to infect the neuron
 
-对了，刚才我还没有说完，我换个帽子，也好你们辨识不是同一个盖特。兄弟姐妹们！关于从过去两天，很多战友们都给我发信息，想要多买一些G-Coin，G币。有些是符合条件的，有些是不符合条件的。拜托了兄弟姐妹们，希望大家能够理解。我们中国人就要学会懂规矩，讲诚信，重承诺。咱们大家定的规矩，什么样的战友应该能有配额，什么样的战友应该得到多少？而且包括我们已经给国内受害的战友，还有我们潜伏在共产党内部的战友，体制内的战友和为我们做贡献的战友都预留了。 大家知道，现在还是2000万，还是2000万，原来说1000万个，经过我们争取，还是2000万。
+**路德/Lude:**
+找了多少年，2009 年到2014年五年的大项目，全国找病毒
+After many years, from 2009 to 2014, major projects for these five years were virus hunting
+主要找冠状病毒，要至少找2-3种有脑部感染能力的新动物病毒
+They were primarily looking for coronaviruses, at least 2-3 species that can infect the brain
+港大的这个团队，2004年他们找到了这个片断，这个很关键
+Hong Kong University team, by 2004 identified this critical segment
+病毒找到了，马上序列查出来
+After they found the virus, then they analyzed the sequence
+只要 E蛋白的基氨酸69 和G70 变成了R 基氨酸来替代
+If you swap the postion 69 and G70 of E protein with R
+基本上，八九不离十，一定能感染脑部神经
+Most likely, the virus will be able to infect the neuron
+这就是他们当时的研究成果
+That was the major accomplishments for them
+管轶在采访中还专门说了一段话
+Guan Yi also talked specifically
+中间宿主群找不到，缺了这一块
+No intermediate hosts were found, this is missing
+那么什么东西可以顶替中间宿主
+What can be the intermediate hosts
+如果找不到，蝙蝠里的病毒是不会飞到人类的，没这个本事
+If you cannot find it, the virus from bats don’t infect human, that is not possible
+所以（CCP）再怎么撒谎，你也不能编成蝙蝠（病毒）直接（传染）到人
+So, no matter how CCP lies, you cannot argue the virus from bat will directly infect human
+这就为什么中共傻乎乎的让石正丽做了RaTG13
+That is why CCP had Shi Zhengli faked RaTG13
+它就想RaTG13直接到人，然后变异，就玩这一遭，明白吗？
+They want have RaTG13 infection of human, then mutate. This is the planned game, right?
+但是站不住脚，这就是为什么Sellin 博士明确写的RaTG13 是云南 fake 假病毒
+But, the lie will not fly, that is why Dr. Sellin said explicitly RaTG13 is a fake virus from Yunnan
+所有关联都是舟山蝙蝠，为什么？
+All that is related is Zhou Shan bat virus, why?
+因为有人亲自告诉闫博士，让她一定要保密
+Because, someone told Dr. Yan, and ask her to keep it as a secret
+这个就是舟山蝙蝠病毒
+That is Zhou Shan bat virus
+但是很恐慌的，极其恐慌，那种恐慌就像电影里的那种失魂的恐慌
+They were in such a panic, like soulless
+闫博士亲口给我说的，天涯海角都会被追杀的那种感觉
+Just like Dr. Yan put it, they will hunt you down to the end of the earth for this
 
-在这个2000万里边会有1000万是给一些特殊的战友和特殊贡献的战友，还有一些我们的义工们留着的，另外的1000万是给一些体制内的一些战友，给特殊贡献，包括特别是在最近一段时间很多战友成功的被救出来，受到被迫害以后，成功的受到了咱们国内的战友救助，救助战友的战友，这些都是未来经过联盟委员会来发给大家的。特殊情况下会有一部分很小的额度会给一些特殊的战友，但是你得符合特殊的条件。那么其它的，七哥既没这个权力，也不应该给其他人有任何私下里..我一定会发誓，这个手，是吧？这只手发誓..绝对是七哥不会给任何一个战友，莫名其妙的，不遵循规则的，不重诚信的，任何一个G-Coin，绝不可能。G-Coin公司也不会让我这么做，我也做不到。
-
-比如说湖南的某位战友确实做了很多很多贡献，也投资了G-TV，特别是被这个“九指妖”给骗了，给骗走了钱。那么像这个战友想多要点G币，但是真的不行。能帮助你把“九指妖”的钱，给你弄回来，这七哥可以说天下没有了，天下没有，只有七哥能做到这一点，没有人能做到了。而且现在律师也好，包括监管机构都认为我们是疯子，哪有这样的人呐？他们不相信有好人好事儿，也不相信有现在“雷锋，”更不相信现在有七哥这样的人，但是七哥还是会做的。
-
-那么至于说接着再被“九指妖”骗的，那七哥就不管了，那七哥管不了了。在七哥宣布之后你再被她骗的，那就是活该倒霉了。而且这样的战友我也不想跟你来往，我也不想成为你的战友，那不是你蠢，不是你啥问题，你是人有问题了。
-
-另外一个就是G-TV的投资者，兄弟姐妹们，大家都知道G-Coin，已经登记完了，G-TV很快..新的在5月16号以前，所有的借项目，所有的在新G-TV投资的所有项目5月16号全部结束，5月16号，5月16号！关于G-Club的问题，G-Club现在不仅仅收支票，也可以是银行付款，也可以通过各农场付款，也可以让指定的合资格的农场，大家懂的，你找农场联系，可以帮助你付款。而且一人可以买多卡，这都是没有问题的。
-
-有两个特别特别的消息，但是我在这儿不能说，是昨天晚上决定的。会给一些G系列投资者..昨天晚上通知了我，说是可以的，具体法律手续怎么做,就是要让我们战友得到更多的利益。我们一定要在这个时候，在这个最关键期，合法的让我们有特殊贡献的战友和先期投G-TV，G-Club，还有G-Coin，G-Dollar的所有战友，包括借款项目的所有人尽可能得到更多的实实在在的利益，而且是合法的，合法的。正在做当中啊！
-
-另外一个我要给兄弟姐妹还要再重申一下：千万在国内的战友你不要老尝试要出国。你在国内就没活好,你到了国外想活好也不一定那么容易，甚至可能更不好，是吧？很多战友现在说申请护照出来。。我就问战友，我说你在国内做什么？有的战友在国内欠了一屁股债，那你想出来是不行的，你得把你的债务处理了。再个你给爆料革命没有那么大的贡献，你像某个战友东北的，黑龙江的战友，经常发推。他说，“我发了三四年推了，看视频。”然后现在要带着全家都出来。你出来你怎么生活呀？我说：“你靠什么生活呀？”不可能养你几年，养你一辈子啊，不可能啊。法治基金是战友的捐款，你不符合资助条件，帮你一个月、俩月、最多仨月，最多三个月，超过三个月的救济是不可能的，是没有理由的。所以说小忙可以帮，救个急可以，养你一辈子特别养一家人那根本不可能。
-
-另外我们台湾的战友说，“在台湾啊，台湾要开战啦，希望帮他到美国来给他找工作……”这个真帮不了，这个真帮不了！台湾的这位战友就是发推，在台湾支持了。你连大牛、巴黎的那个农场都没加入，是不是？那你到美国来给你找工作，怎么给你找工作，是不是？你像巴黎还有大牛，天天在台湾大街上，那都这么长时间了没停过，你都没有去过，那怎么救你啊？救不了，是吧？包括我们有日本的战友也想到美国来，美国不是天堂，你来了就啥事都没有了，也不用挣钱，也不用工作了。咱也没这本事，甭说我，就是新中国联邦到没有共产党的时候咱也做不到，你想来美国就来美国，我们没这个本事。你必须依法，有必须的理由和合法的理由，合法的条件，还有基本的生存能力和条件你才可以。
-
-所以说有些七哥没办法一一回，希望能够理解。不能一一回，就是我确实办不了，我有时候给你们回复一个拜托了，就是“拜托了，我做不了”。我无法回复你，好不好？希望你们能够理解。
-
-七哥是个七情六欲全都有的一个普通人，七哥也不是神，七哥就是这么一个傻子，就是别人不敢干的事儿七哥敢干了。七哥有信仰，七哥有追求，但是七哥不等于是神人，也不是超人，也不是有超自然能力。现在更是各种约束，七哥必须要做个纯粹干净的人，活在玻璃箱子里的人，全世界透明的人。所以说更受限制，有些事我能做，有些事我不能做。像灭共这事儿我肯定能做，像爆料革命的所有干的事儿我都能干，干越多越好。但是私心杂念的事儿，就永远没机会了。现在我也得像那个所谓的皇族一样，不管你是人还是很神，先得照神的要求活着。自己必须得没有七情六欲，或者减少七情六欲，或者控制七情六欲。像佛祖要求的一样，现在一定要绝对无我，去掉“贪、嗔、痴、慢、疑”。没办法，七哥现在选择了灭共了，那就得走这条路。而且我越来越活的..要接地气，但是不能有太多，就是要干“人干不了的事儿”，挺累的。所以说灭完共，七哥归隐深山林，过着最普通的山里的生活，我就是不当流氓也不当贵族，就当平民，山里的平民，这就是七哥。所以希望别把七哥看的无所不能。
-
-像国内战友转7亿人民币，说“24小时，七哥，我把钱送到你指定的地方，你把钱给我转到国外去。”我哪有这本事啊？我哪有这本事？没这本事，我做不到，不是我不做，我真的做不到。希望大家在我这儿寄予很高期望，这种事我做不到的时候，不要令你失望。我们最关键的一切是要灭共。把共产党灭了我们以后什么都好说，共产党在，啥事都难，大家懂的。
-
-谢谢！9点…
-
-+1
+0

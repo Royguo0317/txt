@@ -1,89 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共为什么痴迷于统一台湾？
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1095069/)
+## 【路德时评摘要】4.9.2021PM-战略竞争法案包含病毒来源真相调查
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1095222/)
 
-翻译：康州盘古农场 – 柯镇恶
-校对：康州盘古农场 – TrueSky
-编辑：康州盘古农场 – 蓝精灵
+视频剪辑 : Ablec(文A)
+中听校： 洛杉矶天使农场 – 雨山溪桥客
+英翻译：洛杉矶天使农场 –Arthur文徐
+英校对：洛杉矶天使农场 – 烟波浩淼
+字幕+视频制作：意大利达芬奇农场 – 紫苏花生
 
-据《大纪元时报》作者：Wang Youqun，2021年4月13日报道：
+**路德**
+今天早上我们提到的2021年战略竞争法案
+We mentioned the 2021strategic competition bill
+里面有重要的内容，现在我们已经拿到了全文啊
+It contains very important information, now we have the full text
+而且全文里面关于这个病毒来源的报告
+It has full report about the origin of CCP-virus
+这里面信息太重要了
+This information is critical
+要求在180天一定要递交给国会一份关于新冠病毒来源的报告
+It requests a full COVID19 report to be provided to the congress
+这里面等等啊还有很多信息
+It contains very critical information
+包括对中共的实验室泄漏和造假信息等等都要彻查
+Including thorough investigation about CCP lab leakage and misinformation
+这里面包含的这些信息，我待会说这里面有故事的啊
+As for the information in the report, I will share the story with you guys later
+这情报口提交就可以了，不需要司法认定
+All is needed is information from the intelligence bureaus, not need for court confirmation
+只需要情报提交，大家有没有觉得这个玩法和当年伊拉克那个很像
+Just intelligence, don’t you guys think this is rather similar to the trick played on Iraq war?
+bo博士，是不是？
+Dr. Bo don’t you think so?
+那瓦罗前几天3月31日敢说闫博士的报告太棒了
+Peter Nevero said on March 31, Dr Yan’s report was brilliant
+说明这所有的已经做好了
+Indicating all of this is ready
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/1-14-89.jpg)
+**博博士**
+我有种感觉，这个报告已经写好了，就等着出来！
+I feel this report is ready and can be published any moment
 
-1999年9月10日，解放军（PLA）在台湾附近的中国大陆沿海地区进行的一次演习中，从登陆艇上冲下来。（STR / AFP / Getty Images）
-
-进入2021年，中共继续在台湾海峡增强军事实力。这引起了国际社会的关注。中共会否以武力统一台湾？中共为什么痴迷于统一台湾？
-
-中共在台湾海峡的行为背后有四个主要原因。
-
-**首先，台湾是中共的痛处**
-
-1921年，在前苏联共产党的控制下，一个新的政党——共产党在中国诞生了。当时，它只是苏共领导下的共产国际的一个分支。成立中国共产党的直接目的是颠覆当时中国的合法政府——中华民国。1931年11月7日，当日本入侵了中国的东北三省，而国家正处于危机之中的时候，中共在中华民国领土内建立了中华苏维埃共和国。从1921年到1949年，中共主要做的一件事，就是用一切可能的方法颠覆中华民国。最后，它成功了，中华民国被迫撤到台湾。
-
-中共将国家名称定为“中华人民共和国”。这个名称本身就是一个谎言。中共的祖先不是中华民族的祖先，而是西方的马克思。中共的理论渊源也不是五千年的中国传统文化，而是172年前马克思发表的《共产党宣言》。因此，中共不能代表中国。
-
-在70多年的统治期间，中共统治剥夺了人民的信仰自由、言论自由、免于恐惧的自由和免于匮乏的自由。因此，中共根本不是共和国，它只是给自己冠上这个名头而已。
-
-什么是共和国？百度，中共自己的网站说：“公正和自由的选举是判断一个国家是否真正实行共和政治的另一个基本标准。” 中共执政72年，从未举行过公正、自由的选举。仅在这方面，中共政权就与共和国毫无关系。它只是一个残酷的极权主义政权。
-
-尽管非法窃取政权的中共占领了中国绝大部分领土，并统治了中国内地达72年之久，但中国的合法政府中华民国仍然存在。象征着中国的合法政府中华民国的印章，在台湾一直流传了下来，直到今天。对于中共而言，中华民国是其眼中刺肉中钉。如果不拔除台湾，它每一天都会感到不舒服。
-
-**第二，中共的台湾政策失败了**
-
-1980年代，中共前领导人邓小平提出了“一国两制”的思想解决台湾问题。后来，邓小平提出，香港在1997年7月1日回归后实行“一国两制”，以此作为未来“统一”台湾的示范。
-
-2019年1月2日，中共现任领导人习近平发表讲话，谈到他打算使用“一国两制”模式“统一”台湾。然而，在2019年6月，香港爆发了历史上规模最大的反中共专制运动。自2019年6月12日以来，中共已加大对香港人的暴力镇压力度。香港已迅速沦落为一个“警察权力至上”的城市。所谓“一国两制”也只是挂羊头卖狗肉。中共在香港犯下的暴行让，台湾人看清了虚伪的“一国两制”。
-
-在2020年，台湾地区举行了四次民主投票：总统选举，立法会选举，高雄市罢免市长韩国瑜，陈其迈当选为高雄的新市长。中共竭尽全力干预这四次民主选举。但事实证明，拒绝中共在台湾已成为广泛共识。反对中共的民进党（民主进步党）人蔡英文，以多数票连任总统; 反对中共的民进党再次成为立法议会的多数党；反对中共的民进党陈其迈，赢得了高雄市长选举；中共支持的国民党人韩国瑜，在总统选举中大败后被高雄市民罢免了。
-
-中共通过渗透和军事威胁来攻击台湾的意图已经失败。“一国两制”已成为没人相信的宣传口号。
-
-**第三，反对资本主义的需要**
-
-中共的始祖卡尔·马克思讨厌资本主义。172年前，他大声呼喊必须击败资本主义。几代共产主义者在马克思主义的旗帜下，与资本主义作斗争。前苏联和东欧的共产党与资本主义进行了数十年的斗争，但以失败告终。在1980年代末和1990年代初，由前苏联领导的整个东欧共产国际崩溃了，这些国家恢复了资本主义制度。在东欧共产国际崩溃之后，中共成为世界上最大的单一共产党。它举着马克思列宁主义旗帜，继续作为资本主义的敌人。
-
-中共于1997年“收回”香港时，曾向世界承诺，“一国两制”在香港将维持50年不变，并且将保留香港的资本主义制度。但是，社会主义和资本主义是两个具有根本对立的价值观，并且在许多属性上不相容的体系。中共怎么可能容忍香港的资本主义制度维持50年不变？
-
-1997年7月1日之后，中共开始以“温水煮青蛙”的方式渗透到香港，并侵蚀“一国两制”。在2019年，香港人再也忍不住了，终于爆发了。中共趁机把香港变成“一国一制”。邓小平当时提出的“港人治港，高度自治”，已经变成“爱共者治港，高度服从中共”。
-
-中共占领香港之后，台湾将成为下一个目标。但是，台湾不是一个孤立的台湾，而是与世界各地的资本主义国家具有相同普世价值观的台湾。在美国领导的用以防御中共威胁的第一岛链中，台湾处于战略要地。如果中共占领台湾，它将在短期内直接威胁资本主义的日本、韩国和菲律宾，在不久的将来威胁美国，然后直接威胁整个资本主义世界。占领台湾能服务于中共多重目的。中共不可能不骚扰台湾。
-
-**第四，中共需要转移国内冲突**
-
-恶贯满盈的共产党，到今年已经成立一百周年。该党没有任何道德或法律底线。台湾海峡一岸的福建省是中共侵略台湾的重要基地。但是，福州军区前副司令员邓克明的长子邓卢燕在2015年发表的一篇文章中说：“军队的腐败非常严重。说到搞钱，军队只会比地方政府官员更加隐蔽、更加邪恶、更加猖獗。”
-
-2011年8月，当福州军区前政治局委员刘培山的妻子左颖（上海市人大常委会副主任）因病去世时，有20多个高级军官子女去参加告别仪式。邓卢燕亲自看到了来宾如何赠送大量现金礼物。那天晚上他和一个朋友谈了这件事，朋友说：“刘培山的长子是（中央军事委员会）总后勤部副政治委员。他的小儿子是中央军委总装备部副主任。你知道这两个部门在上海有多少个下属单位吗？几十个！哪个下属单位敢于疏忽其母亲的葬礼？这一次刘的家人拿个一千万是正常的！”谁会相信这样一支腐败的军队仍有战斗能力？
-
-自2013年1月习近平发起反腐倡廉运动以来，超过510余名副省（部）级以上高级官员受到了调查和惩处。其中包括160多名中央军事委员会的将军，比如中央军委副主席徐才厚、郭伯雄。中共不敢向公众宣布徐和郭具体贪污了多少钱，因为如果公布真相，军队恐怕要暴乱。
-
-江泽民当政时，他崇尚“闷声发大财”。他的儿子姜绵恒带头一边当官，一边经商。结果，从江泽民家族到农村基层政府，都秉持了“有权不用，过期作废”的信念。那如何使用权力呢？那就是用它来赚钱。以江氏家族为例，从上到下，所有各级当权者都拼命赚钱，向人民搜刮财富。
-
-在当今的中国，一方面，极少数有实力的中共家庭正在利用自己的权力攫取丰厚的财富，过着奢侈和腐败的生活；另一方面，有6亿中国人的月收入只有1000元。许多人在上学、住房、医疗、退休金甚至葬礼上都有困难。真是生也难，死也难。中共72年的高压、欺骗和缺乏道德原则，导致了中国社会各种尖锐的冲突。
-
-面对这些危机，中共在做什么？中共利用其“话语权”宣称台湾有人搞“台独”，中共要捍卫国家的主权、领土完整和安全。“统一台湾”是爱国主义的表现。因此，中共屡次使用“爱国主义”的口号煽动“爱国主义”情绪，不断折磨台湾。
-
-**台湾的未来不在中共手中**
-
-尽管中共在各个方面都施加了巨大压力，但在2020年，台湾仍取得了六项重大成就。
-
-（1）成功举行了四次民主民意测验，使其成为世界民主榜样；
-
-（2）实施了有效的防疫控制，使其成为世界范围内防疫的典范；
-
-（3）经济迅速发展，在亚洲四小龙（又称亚洲四小虎）中排名第一；
-
-（4）人民安居乐业，成为“东亚最幸福的地区”；
-
-（5）美台关系在各个方面都得到了改善，达到了四十多年来最好的水平；
-
-（6）维护正义的人不会孤单。世界上越来越多的国家在支持台湾。
-
-中共对台湾的全面压制，只会使2300万台湾人更加看清中共的邪恶本质，并且使他们竭尽全力，远离中共。
-
-台湾未来的赢家将是得到台湾人民支持的人。
-
-原文链接：[https://www.theepochtimes.com/why-is-the-chinese-communist-party-obsessed-with-reunifying-taiwan\_3768358.html](https://www.theepochtimes.com/why-is-the-chinese-communist-party-obsessed-with-reunifying-taiwan_3768358.html)
+**路德**
+就等着！说白了就等着两党来共同走流程
+Just wait! Basically, just waiting for both parties go through the procedure together
+更重要的是中共如何阻挠对新冠病毒调查
+More importantly, no matter how CCP try to impede the investigation on the COVID19 包括实验室泄漏，制造各种假信息
+Including lab leakage, and all kinds of misinformation
+所有的报告其实就是超限生物武器的一个报告
+All the reports is basically a report about this unrestricted bioweapon
+这个超限生物武器包括什么？
+what does this unrestricted bioweapon include?
+是不是，包括你如何搅混水，事后搅混水，这都要调查出来
+Right? Including CCP’s attempt to stir up the water, all will be investigated
+最重要的是赵立坚，外交部的赵立坚质问为何美国满世界建造这么多实验室
+More importantly, Zhao Lijiang from CCP foreign ministry questioned US about building all that many labs in the world
+你看，他说的话说为何美国独家反对禁止生物武器公约？
+He was question, why US is against bills to ban bioweapon?
+我们昨天做节目说这个大规模杀伤性武器
+Yesterday, we talked in our show about this mass destruction weapon
+中共违反了大规模杀伤性里面主要提的就是生物武器
+The CCP violated the MDW, the most important part is bioweapon
+中共现在反过来反咬一口
+Now, CCP is backfiring
+这个是赵立坚说的，拜登小布什当时一起灭萨达姆，一样的
+What Zhao Lijiang said, Biden and Bush Jr. when they work together to take down Sadam, it was the same trick
+是不是，外交关系委员会，也是，你只要情报口确认
+Isn’t that correct, council of foreign relations, the same situation, all you need is intelligence confirmation
+得到这个结论就可以了这里面包含的信息量太大了
+And come to this conclusion, it contains too much information
+所以我一看到这个的时候
+So, when I saw this
+咋们的莱昂纳多太棒了就把这个部分找出来
+Leo did a great job
+大家看原文在这里，大家可以自己去翻，214项
+The original document is here, you guys can do your translation, it has 214 pages
 
 0
