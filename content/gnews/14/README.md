@@ -1,33 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】The White Tiger 白虎
-` MOSwukong` [轉載自GNews](https://gnews.org/zh-hans/1095634/)
+## 香港改法条对煽动投“空白票”者可判入刑三年
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1095809/)
 
-配音：香草山写作组 米小乐
+俄罗斯莫斯科喀秋莎农场 DongDong
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/H-3.jpg)dailysabah.com
+在香港，越来越多的人呼吁抵制即将到来的立法委选举，以抗议北京加强对香港的控制，因此港府当局计划制定法律，规定 “煽动 ”公众投空白票将触犯刑法。
 
+行政长官林郑月娥周二（4月 12 日）透露，计划就禁止 “操纵或破坏选举 ”的行为修改一项法条，其中包含公开鼓励选民不投票或投下无效选票，以及 “故意阻挠和阻止 ”他人投票。
 
+此前，中共国全国人大已采取行动，要求香港立法会候选人只有通过多轮“筛选”才能参加选举，预计港府将会以 “爱国者治港 ”的名义压制香港自由民主派的反对声音。
 
-印度，古老的国度，历史、宗教、等级社会和民主思想的冲击并存。古代雅利安白人征服了棕色人种原住民，印度教固化了种族等级社会结构，佛陀释迦摩尼却在这里打破种族和阶层观念，勘透万法皆空、众生平等、人人是佛的真谛。
+根据林郑月娥的提议，违反条例者最高将面临 3 年监禁的处罚。林郑月娥表示，这项修改有望赶在 12 月 19 日举行的立法会投票前生效。
 
-低种姓出身的男主人公巴拉姆，在鸡笼般的社会中心存白虎的梦想，期待命运的翻转。
+“我们尊重每个选民的选择权。但如果就组织和煽动选民采取集体行动而言，可视其为破坏或操纵选举。” 林郑月娥说，当事人自愿投下空白票不会构成犯罪。
 
-文字版原文：[【世事解评】The White Tiger 白虎](https://gnews.org/zh-hans/1086695/)
+全国人大及常委会通过的政改方案还将进一步削减香港立法机构的公选议席。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+新政改方案中，90 个席位中只有 20 个由公众选举产生，占总数的 22.2%。而在 2016 年上届立法会选举中，70 个议席中有 40 个由公众选举产生，占比 57.1%。下届立法会的直选议员占比将是香港自英国殖民时代以来直选议员占比最低的一年。
 
-发稿：雪梨
+候选人还需要通过两个国家安全机构和一个北京当局指定的委员会的筛选，以确保所有候选人都百分百地“忠党爱国”。
 
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+林郑周二表示，候选人资格审查委员会将由政府高官和公众代表组成，以 “提高其公信力”，但没有详细披露人员的具体组成情况。
 
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+“新选举法”引发国际社会广泛的谴责。华府就破坏香港自由民主的抗争运动问题，制裁了 24 名应对此负有责任的中共国和香港的官员。
 
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+香港政府已在中共国指示下变得越来越独裁专制，港府甚至惧怕百姓手中高举的“空白无字”的 A4 纸，以及可能在立委会选举中出现的越来越多“空白选票”。香港人勇于抗争的形象和勇气是独裁政府所不愿意看到和竭尽全力压制的。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+参考链接：
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+[1] [Hong Kong to ban protest vote ’incitement’ in legislative polls – POLITICS – 2021/04/13](https://asia.nikkei.com/Politics/Hong-Kong-to-ban-protest-vote-incitement-in-legislative-polls)
 
 0

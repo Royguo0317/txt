@@ -1,80 +1,107 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.9.2021PM-战略竞争法案包含病毒来源真相调查
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1095222/)
+## 【路德时评摘要】4.13.2021AM 上-前美军情Sellin博士发推挖出港大实验室团队
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1095349/)
 
 视频剪辑 : Ablec(文A)
-中听校： 洛杉矶天使农场 – 雨山溪桥客
-英翻译：洛杉矶天使农场 –Arthur文徐
+中听校： 洛杉矶天使农场 – 烟波浩淼
+英翻译：洛杉矶天使农场 – Arthur
 英校对：洛杉矶天使农场 – 烟波浩淼
-字幕+视频制作：意大利达芬奇农场 – 紫苏花生
+字幕+视频制作：洛杉矶天使农场 –小腾腾说
 
-**路德**
-今天早上我们提到的2021年战略竞争法案
-We mentioned the 2021strategic competition bill
-里面有重要的内容，现在我们已经拿到了全文啊
-It contains very important information, now we have the full text
-而且全文里面关于这个病毒来源的报告
-It has full report about the origin of CCP-virus
-这里面信息太重要了
-This information is critical
-要求在180天一定要递交给国会一份关于新冠病毒来源的报告
-It requests a full COVID19 report to be provided to the congress
-这里面等等啊还有很多信息
-It contains very critical information
-包括对中共的实验室泄漏和造假信息等等都要彻查
-Including thorough investigation about CCP lab leakage and misinformation
-这里面包含的这些信息，我待会说这里面有故事的啊
-As for the information in the report, I will share the story with you guys later
-这情报口提交就可以了，不需要司法认定
-All is needed is information from the intelligence bureaus, not need for court confirmation
-只需要情报提交，大家有没有觉得这个玩法和当年伊拉克那个很像
-Just intelligence, don’t you guys think this is rather similar to the trick played on Iraq war?
-bo博士，是不是？
-Dr. Bo don’t you think so?
-那瓦罗前几天3月31日敢说闫博士的报告太棒了
-Peter Nevero said on March 31, Dr Yan’s report was brilliant
-说明这所有的已经做好了
-Indicating all of this is ready
+**路德/LUDE：**
+Sellin 博士发出了一个推，这个推绝对重磅中的重磅，无数个重磅
+Dr. Sellin posted another twitter, this is definitely a bombshell
+他这个推什么意思？
+What does the twitter say?
+就是SARS-CoV-1 在2002-2004年的时候
+Back in 2002-2004, which is the outbreak of SARS-CoV1
+港大的团队就是这几个人，Malik, 袁国勇，潘烈文，管轶
+This team from Hong Kong University, including Malik, Yuan Guoyong, Pan Liewen, Guan Yi,
+他们当时对SARS-CoV-1的研究发现一个最重磅的东西，
+They found something amazing about SARS-CoV-1
+就是它的病毒E蛋白里面氨基酸E69和G70这两个片段
+The two segments of E protein, E69 and G70
+用一个R代替，它的毒性以及病毒复制，繁殖的能力大大增强。
+If you replace these two amino acids with Arginine (R), it will greatly improve the replication and reproduction of the virus
+并且只要这个片段变成R的话，就能保证这个病毒具有感染脑部和神经系统的能力
+Additionally, if R is to be replaced, it will sustain the neuronal infection capacity of the virus
+这是港大的团队在2002-2004年（研究出来的）
+This is the major discovery of this Hong Kong University team in 2002-2004
+大家想想，后来为什么这几个人这么牛？
+Just think about why these guys are so famous?
+中共把他们捧到天上去了，就是因为发现了这一点
+CCP put them in the heaven, just because they discovered this
+他们当时对SARS-CoV-1，第一代SRAS，这个推里还有一个图
+They worked on the SARS-CoV-1, first generation of SARS, we got a figure here in the twitter
+这是SARS-CoV-1的片段，2002-2004时，E和G换成R以后，
+This is the segment of SARS-CoV-1, by 2002-2004, they swapped E and G to R
+整个毒性，最重要的就是具有了感染脑部神经系统
+Then, the toxicity, more importantly, the virus was able to infect the neuron system
+看看而且这个推上还写了
+The twitter also mentioned
+这个片段变成R的现在世界上已知的只有三种
+There are three viruses with R as this segement
+一个就是舟山蝙蝠病毒ZX45
+The first one is Zhou Shan BAT virus-ZX45
+另外一个就是在泰国刚刚发现的所谓的RacCS203
+Another one was just being discovered in Thailand-RacCS203
+最后一个就是RaTG13云南fake 病毒
+The last one is RaTG13, fake virus from Yunnan
+Sellin 博士直接说了RaTG13就是假的
+Dr. Sellin said RaTG13 is fake
+唯一找到的就是这个舟山蝙蝠（病毒ZX45）具备这个功能
+The only one that actually has the function nis Zhou Shan BAT virus-ZX45
+自然它就把这段E蛋白的这一小片段边成了R
+And it has this segment of E protein swapped to R
+等于说就具备了感染神经系统功能
+Therefore, has the function of neuro-infection
 
-**博博士**
-我有种感觉，这个报告已经写好了，就等着出来！
-I feel this report is ready and can be published any moment
+**艾丽/Ellie**：
+舟山蝙蝠病毒自带的这个好的一个先天骨架，就是它能够把这个两个E蛋白让它自动变成R，然后让它感染神经
+Zhou Shan Bat virus has such a good backbone, it has two E Amino acids swapped to R, allows it to infect the neuron
 
-**路德**
-就等着！说白了就等着两党来共同走流程
-Just wait! Basically, just waiting for both parties go through the procedure together
-更重要的是中共如何阻挠对新冠病毒调查
-More importantly, no matter how CCP try to impede the investigation on the COVID19 包括实验室泄漏，制造各种假信息
-Including lab leakage, and all kinds of misinformation
-所有的报告其实就是超限生物武器的一个报告
-All the reports is basically a report about this unrestricted bioweapon
-这个超限生物武器包括什么？
-what does this unrestricted bioweapon include?
-是不是，包括你如何搅混水，事后搅混水，这都要调查出来
-Right? Including CCP’s attempt to stir up the water, all will be investigated
-最重要的是赵立坚，外交部的赵立坚质问为何美国满世界建造这么多实验室
-More importantly, Zhao Lijiang from CCP foreign ministry questioned US about building all that many labs in the world
-你看，他说的话说为何美国独家反对禁止生物武器公约？
-He was question, why US is against bills to ban bioweapon?
-我们昨天做节目说这个大规模杀伤性武器
-Yesterday, we talked in our show about this mass destruction weapon
-中共违反了大规模杀伤性里面主要提的就是生物武器
-The CCP violated the MDW, the most important part is bioweapon
-中共现在反过来反咬一口
-Now, CCP is backfiring
-这个是赵立坚说的，拜登小布什当时一起灭萨达姆，一样的
-What Zhao Lijiang said, Biden and Bush Jr. when they work together to take down Sadam, it was the same trick
-是不是，外交关系委员会，也是，你只要情报口确认
-Isn’t that correct, council of foreign relations, the same situation, all you need is intelligence confirmation
-得到这个结论就可以了这里面包含的信息量太大了
-And come to this conclusion, it contains too much information
-所以我一看到这个的时候
-So, when I saw this
-咋们的莱昂纳多太棒了就把这个部分找出来
-Leo did a great job
-大家看原文在这里，大家可以自己去翻，214项
-The original document is here, you guys can do your translation, it has 214 pages
+**路德/Lude:**
+找了多少年，2009 年到2014年五年的大项目，全国找病毒
+After many years, from 2009 to 2014, major projects for these five years were virus hunting
+主要找冠状病毒，要至少找2-3种有脑部感染能力的新动物病毒
+They were primarily looking for coronaviruses, at least 2-3 species that can infect the brain
+港大的这个团队，2004年他们找到了这个片断，这个很关键
+Hong Kong University team, by 2004 identified this critical segment
+病毒找到了，马上序列查出来
+After they found the virus, then they analyzed the sequence
+只要 E蛋白的基氨酸69 和G70 变成了R 基氨酸来替代
+If you swap the postion 69 and G70 of E protein with R
+基本上，八九不离十，一定能感染脑部神经
+Most likely, the virus will be able to infect the neuron
+这就是他们当时的研究成果
+That was the major accomplishments for them
+管轶在采访中还专门说了一段话
+Guan Yi also talked specifically
+中间宿主群找不到，缺了这一块
+No intermediate hosts were found, this is missing
+那么什么东西可以顶替中间宿主
+What can be the intermediate hosts
+如果找不到，蝙蝠里的病毒是不会飞到人类的，没这个本事
+If you cannot find it, the virus from bats don’t infect human, that is not possible
+所以（CCP）再怎么撒谎，你也不能编成蝙蝠（病毒）直接（传染）到人
+So, no matter how CCP lies, you cannot argue the virus from bat will directly infect human
+这就为什么中共傻乎乎的让石正丽做了RaTG13
+That is why CCP had Shi Zhengli faked RaTG13
+它就想RaTG13直接到人，然后变异，就玩这一遭，明白吗？
+They want have RaTG13 infection of human, then mutate. This is the planned game, right?
+但是站不住脚，这就是为什么Sellin 博士明确写的RaTG13 是云南 fake 假病毒
+But, the lie will not fly, that is why Dr. Sellin said explicitly RaTG13 is a fake virus from Yunnan
+所有关联都是舟山蝙蝠，为什么？
+All that is related is Zhou Shan bat virus, why?
+因为有人亲自告诉闫博士，让她一定要保密
+Because, someone told Dr. Yan, and ask her to keep it as a secret
+这个就是舟山蝙蝠病毒
+That is Zhou Shan bat virus
+但是很恐慌的，极其恐慌，那种恐慌就像电影里的那种失魂的恐慌
+They were in such a panic, like soulless
+闫博士亲口给我说的，天涯海角都会被追杀的那种感觉
+Just like Dr. Yan put it, they will hunt you down to the end of the earth for this
 
 0

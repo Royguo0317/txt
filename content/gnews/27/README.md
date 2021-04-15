@@ -1,107 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.13.2021AM 上-前美军情Sellin博士发推挖出港大实验室团队
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1095349/)
+## 华府敦促日本首相就台湾问题明确表态
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1095493/)
 
-视频剪辑 : Ablec(文A)
-中听校： 洛杉矶天使农场 – 烟波浩淼
-英翻译：洛杉矶天使农场 – Arthur
-英校对：洛杉矶天使农场 – 烟波浩淼
-字幕+视频制作：洛杉矶天使农场 –小腾腾说
+俄罗斯莫斯科喀秋莎农场 DongDong
 
-**路德/LUDE：**
-Sellin 博士发出了一个推，这个推绝对重磅中的重磅，无数个重磅
-Dr. Sellin posted another twitter, this is definitely a bombshell
-他这个推什么意思？
-What does the twitter say?
-就是SARS-CoV-1 在2002-2004年的时候
-Back in 2002-2004, which is the outbreak of SARS-CoV1
-港大的团队就是这几个人，Malik, 袁国勇，潘烈文，管轶
-This team from Hong Kong University, including Malik, Yuan Guoyong, Pan Liewen, Guan Yi,
-他们当时对SARS-CoV-1的研究发现一个最重磅的东西，
-They found something amazing about SARS-CoV-1
-就是它的病毒E蛋白里面氨基酸E69和G70这两个片段
-The two segments of E protein, E69 and G70
-用一个R代替，它的毒性以及病毒复制，繁殖的能力大大增强。
-If you replace these two amino acids with Arginine (R), it will greatly improve the replication and reproduction of the virus
-并且只要这个片段变成R的话，就能保证这个病毒具有感染脑部和神经系统的能力
-Additionally, if R is to be replaced, it will sustain the neuronal infection capacity of the virus
-这是港大的团队在2002-2004年（研究出来的）
-This is the major discovery of this Hong Kong University team in 2002-2004
-大家想想，后来为什么这几个人这么牛？
-Just think about why these guys are so famous?
-中共把他们捧到天上去了，就是因为发现了这一点
-CCP put them in the heaven, just because they discovered this
-他们当时对SARS-CoV-1，第一代SRAS，这个推里还有一个图
-They worked on the SARS-CoV-1, first generation of SARS, we got a figure here in the twitter
-这是SARS-CoV-1的片段，2002-2004时，E和G换成R以后，
-This is the segment of SARS-CoV-1, by 2002-2004, they swapped E and G to R
-整个毒性，最重要的就是具有了感染脑部神经系统
-Then, the toxicity, more importantly, the virus was able to infect the neuron system
-看看而且这个推上还写了
-The twitter also mentioned
-这个片段变成R的现在世界上已知的只有三种
-There are three viruses with R as this segement
-一个就是舟山蝙蝠病毒ZX45
-The first one is Zhou Shan BAT virus-ZX45
-另外一个就是在泰国刚刚发现的所谓的RacCS203
-Another one was just being discovered in Thailand-RacCS203
-最后一个就是RaTG13云南fake 病毒
-The last one is RaTG13, fake virus from Yunnan
-Sellin 博士直接说了RaTG13就是假的
-Dr. Sellin said RaTG13 is fake
-唯一找到的就是这个舟山蝙蝠（病毒ZX45）具备这个功能
-The only one that actually has the function nis Zhou Shan BAT virus-ZX45
-自然它就把这段E蛋白的这一小片段边成了R
-And it has this segment of E protein swapped to R
-等于说就具备了感染神经系统功能
-Therefore, has the function of neuro-infection
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Ja.jpg)scmp.com
+据《金融时报》报道，美国正在敦促日本首相菅义伟（Yoshihide Suga ）就中共国在印太地区的侵略不断加剧的情况下发表支持台湾的联合声明，届时他将在周五（4月 16 日）成为首位与美国总统拜登会晤的外国领导人。
 
-**艾丽/Ellie**：
-舟山蝙蝠病毒自带的这个好的一个先天骨架，就是它能够把这个两个E蛋白让它自动变成R，然后让它感染神经
-Zhou Shan Bat virus has such a good backbone, it has two E Amino acids swapped to R, allows it to infect the neuron
+菅义伟将抵达华府参加峰会，这次峰会强调美日同盟在拜登政府与盟友合作对抗北京当局的战略中的重要地位。
 
-**路德/Lude:**
-找了多少年，2009 年到2014年五年的大项目，全国找病毒
-After many years, from 2009 to 2014, major projects for these five years were virus hunting
-主要找冠状病毒，要至少找2-3种有脑部感染能力的新动物病毒
-They were primarily looking for coronaviruses, at least 2-3 species that can infect the brain
-港大的这个团队，2004年他们找到了这个片断，这个很关键
-Hong Kong University team, by 2004 identified this critical segment
-病毒找到了，马上序列查出来
-After they found the virus, then they analyzed the sequence
-只要 E蛋白的基氨酸69 和G70 变成了R 基氨酸来替代
-If you swap the postion 69 and G70 of E protein with R
-基本上，八九不离十，一定能感染脑部神经
-Most likely, the virus will be able to infect the neuron
-这就是他们当时的研究成果
-That was the major accomplishments for them
-管轶在采访中还专门说了一段话
-Guan Yi also talked specifically
-中间宿主群找不到，缺了这一块
-No intermediate hosts were found, this is missing
-那么什么东西可以顶替中间宿主
-What can be the intermediate hosts
-如果找不到，蝙蝠里的病毒是不会飞到人类的，没这个本事
-If you cannot find it, the virus from bats don’t infect human, that is not possible
-所以（CCP）再怎么撒谎，你也不能编成蝙蝠（病毒）直接（传染）到人
-So, no matter how CCP lies, you cannot argue the virus from bat will directly infect human
-这就为什么中共傻乎乎的让石正丽做了RaTG13
-That is why CCP had Shi Zhengli faked RaTG13
-它就想RaTG13直接到人，然后变异，就玩这一遭，明白吗？
-They want have RaTG13 infection of human, then mutate. This is the planned game, right?
-但是站不住脚，这就是为什么Sellin 博士明确写的RaTG13 是云南 fake 假病毒
-But, the lie will not fly, that is why Dr. Sellin said explicitly RaTG13 is a fake virus from Yunnan
-所有关联都是舟山蝙蝠，为什么？
-All that is related is Zhou Shan bat virus, why?
-因为有人亲自告诉闫博士，让她一定要保密
-Because, someone told Dr. Yan, and ask her to keep it as a secret
-这个就是舟山蝙蝠病毒
-That is Zhou Shan bat virus
-但是很恐慌的，极其恐慌，那种恐慌就像电影里的那种失魂的恐慌
-They were in such a panic, like soulless
-闫博士亲口给我说的，天涯海角都会被追杀的那种感觉
-Just like Dr. Yan put it, they will hunt you down to the end of the earth for this
+据四位知情人士透露，美国希望两国领导人在发表的声明中提及台湾问题。上一次在联合声明中提到台湾的美日领导人是 1969 年的佐藤荣作（Eisaku Sato ）和尼克松（Richard Nixon）。
+
+随着中共国骤然升级台海周边的军事行动，台湾已经成为越来越危险的热点问题。北京周一派出 25 架战斗机和轰炸机入侵台湾防空识别区，这是台湾政府所报告的中共国史上最大规模的入侵活动。
+
+一名美国高级官员上个月告诉《金融时报》，拜登政府担心中共国正就夺取台湾的控制权进行不断挑衅，北京当局声称台湾是其主权领土。
+
+华府希望国务卿布林肯（Antony Blinken）、国防部长劳埃德·奥斯汀（Lloyd Austin）联合日本外务大臣茂木敏充（Toshimitsu Motegi）和防卫大臣岸信夫（Nobuo Kishi）再次向中共国表明坚定立场。四位官员于 3 月 17 日在东京曾发表联合声明，强调 “台海和平与稳定的重要性”。
+
+但据两位知情人士透露，日本官员对菅义伟是否应该就台湾问题发表评论存在分歧。
+
+一位人士说，日本国内有人认为，最近的双边声明已经向中共国表明了态度，在拜登和菅义伟的级别上重复表态，只会让北京当局与日本对立。另一些人则强调，日本必须坚定地与美国站在一起。
+
+对台湾安全做出承诺方面，东京持谨慎态度，日本希望避免与北京发生正面对抗。日本在经济上依赖中共国，即使两国在尖阁诸岛（钓鱼岛）主权归属方面存有争议。
+
+白宫亚洲最高官员坎贝尔(Kurt Campbell)是双方会谈的牵头人，他一直在与日本代表不分昼夜地进行商谈，包括上周旋风式的东京之行。
+
+白宫拒绝就与日本的谈判现状发表评论。日本外务省表示，峰会后发表的声明仍在商榷中。一位日本高级官员对于希望东京方面不提及台湾的提议难以接受。
+
+布鲁金斯学会智库的日本问题专家米雷亞·索利斯（Mireya Solís）表示，菅义伟很可能会就最近声明表达他自己的感受和体会。“如果他们没有用类似的语言进一步解释，问题是为什么不……我不认为他们想给外界造成模棱两可的错觉。”她说道。
+
+但她补充说，东京担心这份声明会毁掉几年前就与北京当局开展的 “精心策划的和解”。
+
+玛丽华盛顿大学的亚洲专家伊丽莎白·拉鲁斯（Elizabeth Larus）说，在台湾问题上展现 “ 统一战线 ”是至关重要的。“不仅中共国会审视这份声明，美国在亚太地区的盟友也会听到看到，他们需要得到美国对该地区（的安全局势）再次做出承诺和保证。”她说。
+
+三位熟悉情况的人士表示，白宫也在鼓励菅义伟就日韩关系发表评论。这两个亚洲邻国之间的关系因历史争端而处在紧张的状态，美国希望东京和首尔修复两国关系，以促进解决朝鲜等问题。
+
+日本协会负责人约书亚·沃克（Joshua Walker）说，美国希望日本更开诚布公地表达它私下对台湾、北京当局镇压香港民主运动和新疆维吾尔人人权侵犯问题的看法。
+
+“拜登……要求日本当局采取更明确、更公开的姿态。与我们从东京听到的私下强硬路线所不同的是，东京方面因奥运会和贸易问题不想招惹北京，因此在公开场合又时刻保持着克制。”他说。
+
+随着中共国最近几个月加强了军事活动，对台湾的担忧变得越来越严重。东京的警惕性也随之提高，因为日本与华盛顿签订了共同防御条约，所以美中之间的任何冲突都会把日本卷入其中。
+
+美国没有澄清是否会保护台湾不受攻击，这一政策被称为 “战略模糊” 策略，该策略一方面防备中共国对台湾采取军事行动，另一方面提防着台北宣布独立。
+
+最近被问及美国是否会保护台湾时，布林肯说，“任何人试图以武力改变现状（的行动）都是严重的错误”。国务院还修改了美台交流的指导方针，鼓励美国官员多与台湾同行进行会面。
+
+北京周一曾警告美国 “不要玩火（并）立即停止与台湾的官方接触”。随即，拜登派出由两位前副国务卿理查德·阿米蒂奇（Richard Armitage）和詹姆斯·斯坦伯格（James Steinberg）以及前参议员克里斯·多德（Chris Dodd）组成的非官方信使团于第二天飞抵台北进行访问。
+
+东京仍对北京当局唯唯诺诺、心有忌惮，但此次华盛顿之行，华府要求东京必须就台海问题向中共做出表态，一方面证明美国内部逐渐形成了一致对中共的意见，另一方面也表明留给日本政坛“绥靖派”的时间不多了。这就是美国喊话日本，明确对中共的态度：谁行谁执政，不行就换人。非常类似二战时，鹰派的丘吉尔替换绥靖政策张伯伦时的政治形势。
+
+参考链接：
+
+[1] [US pushes Japan to back Taiwan at Biden-Suga summit – Financial Times – 2021/04/15](https://www.ft.com/content/f4fa7430-4434-4a4c-913b-43cb6551970b)
 
 0

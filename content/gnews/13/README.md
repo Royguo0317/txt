@@ -1,23 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】04/14/2021:拜登派密友访台显示美国对台湾及其民主承诺的“重大信号”CNN著名主播古普塔医生认为病毒来自武汉实验室
-` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1095711/)
+## 2021年4月14日灭共要闻快报
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1095816/)
 
-**制作：Cantonese工作室**
+重点内容：
 
 
 
-播报：【文依】资料整理：【极寒将至】【文依】【An】海报制作：【米线】视频制作：【文德 】
+日本印尼开始联合抗共；
 
-摘要
+共和党联邦众议员：病毒大流行病令美国和世界认清中共的恶意和残暴；
 
-1
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210415-_page-0002.jpg)
-2
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210415-_page-0003.jpg)
-3
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210415-_page-0004.jpg)
-4
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210415-_page-0005.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/0.jpg)
+中共国炒作楼市，虚假购房者频频被曝光；
+
+大陆制造业缺“芯”停产层出不穷。
+
+
+
+**By**：【秘翻组**–**上天造灭疫组】
+
 0
