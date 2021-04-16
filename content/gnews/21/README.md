@@ -1,59 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104016（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1101152/)
+## 【热点播报】《台湾关系法》42周年之际美派前高官访台
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1101227/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+香草山健身部 童谣
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01-5.jpg)
+《台湾关系法》出台纪念日既不逢五也不逢十，可偏偏就在“42周年”这个惯常来看好像没有任何纪念意义的时间点上，美国在宣布与台“非官方关系”之后的不到一周之际，就派出前政府官员访台，甚至不惜激怒中共，拜登政府的态度耐人寻味。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screen-Shot-2021-04-16-at-1.51.32-PM.png)图片来源：德语新闻中文网 
+根据路透社报导,《台湾关系法》颁布42周年之际，美国政府13日派遣一个非官方代表团出访台湾，包括前美国参议员克里斯·陶德和两位前常务副国务卿理查德·阿米蒂奇、詹姆斯·斯坦伯格。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02-6.jpg)
+美国行政当局一名高级官员表示，这是显示美国对台湾及其民主的承诺的“重大信号”。不过比起川普派遣政府卫生部长到台湾还是略逊一筹。对此北京国台办激烈反应，中方将以军演遏制台美勾连。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03-5.jpg)
+前民主党参议员陶德与拜登是三十多年的老朋友，虽然其当前不再担任政府职位，只是普通美国公民身份，但是被外媒报道“非官方”代表团出访台湾依旧是乘坐了专用飞机出行。而对于拜登给“民间团队”如此施以政府官员的待遇，不管是国会还是共和党都没有发出任何异议，反而白宫上下全是一种心照不宣的态度。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-6.jpg)
+不管是出于中共25架军机频繁扰台的压力，还是蓬佩奥先生发推表示访台的侧面暗示，都使得拜登为了美国和民主党在国际社会、以及人民中的公信力，不得不出手回应一系列质疑的声音，表达对中共的强硬态度。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05-7.jpg)
+这样一来陶德或许就是拜登派遣代表自己访台的钦差特使。可能真的映证了中共方面的说法，“非官方只是一个幌子”，不管是名义上如何委婉，美国出访台湾一行着实给了中共致命的打击。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06-5.jpg)
+引用来源 [德语新闻中文网](https://www.dw.com/zh/%E5%8F%B0%E6%B9%BE%E5%85%B3%E7%B3%BB%E6%B3%9542%E5%91%A8%E5%B9%B4-%E7%BE%8E%E6%B4%BE%E5%89%8D%E9%AB%98%E5%AE%98%E8%AE%BF%E5%8F%B0/a-57191359)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07-5.jpg)
+审核/发稿：正义的小新
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpeg)
+**更多资讯，更多关注**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08-5.jpg)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09-5.jpg)
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-9.jpg)
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-10.jpg)
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-12.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-6.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/18-4.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/19-4.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/20-4.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/21-2.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

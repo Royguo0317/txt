@@ -1,66 +1,90 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共不作不死&nbsp; 它今天的自嗨和疯狂是我们最佳的机会
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1101377/)
+## 中共计划推出互联网“注册制” 并将在全球推广
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1101611/)
 
-**简述：郭文贵先生在2021年4月9日的直播中让战友们“客观地、冷静地看待共产党今天的自嗨和疯狂，这是爆料革命最佳的机会”。共产党今天在世界上四处出击，攻击美国、英国，威胁日本、印度，就和二战的时候希特勒攻打英国、法国和苏联一模一样，不作不死！**
+新闻来源：Just Security | 作者：Mark Montgomery & Theo Lebryk (马克·蒙哥马利和西奥·勒布里克) | 发布时间：2021年4月13日
 
-**中共不作不死****  ****它今天的自嗨和疯狂是我们最佳的机会**
+翻译/简评：村民彼得潘|校对：SilverSpurs7|审核：万人往|Page：小雨
 
-**The CCP’s Madness Is Our Best Opportunity**
+[!\[\]()!\[\](https://spark.adobe.com/page/ecALvLCXtgsMj/images/5782f235-6fe8-4990-a472-1a878f1eb8bf.jpg?asset_id=e5b9992a-d25a-42bf-a24a-1d6a1c3cecb3&amp;img_etag=%220dfa2f5b3a6b6af1481ff6249d7e309d%22&amp;size=2560)](https://spark.adobe.com/page/ecALvLCXtgsMj/images/5782f235-6fe8-4990-a472-1a878f1eb8bf.jpg?asset_id=e5b9992a-d25a-42bf-a24a-1d6a1c3cecb3&amp;img_etag=%220dfa2f5b3a6b6af1481ff6249d7e309d%22&amp;size=1024)
 
-它这种较量，兄弟姐妹们，现在就怕共产党现在不吱声了，服软了，完了，这灭共啊又得多个十年八年。现在只要共产党它攻击美元，想办法继续搞一带一路，控制马六甲海峡，苏伊士运河继续炸船，霍尔木兹海峡继续炸船，吉布提继续捣乱，安哥拉石油继续增加，然后它想尽一切办法威胁日本、印度马六甲海峡的石油供给，想尽一切办法攻击英国，想尽一切办法蓝金黄美国，威胁美国这些政客，咱就在这块等着就行了。
+**简评：**
 
-Brothers and sisters, talking about the competition, what we are now afraid the most is that the CCP stops making noise and goes soft, then we will be screwed because it will take another eight to ten years to destroy the CCP. Now as long as the CCP continues attacking the U.S. dollar, engaging in its Belt and Road Initiative, controlling the Strait of Malacca, bombing ships in the Suez Canal and the Strait of Hormuz, making troubles in the Djibouti, and increasing its import of Angola’s oil, and doing everything possible to threaten Japan and India’s oil supply in the Strait of Malacca, trying every means to attack Britain, BGY America and threaten American politicians, we then won’t need to do anything other than just waiting here.
+华为对国际电信标准制定的觊觎已不是头一遭，而这一回仍口气不小，张口便是“重塑互联网”。在经历了美国芯片禁运的制裁以及旗下手机品牌的割让之后，这家PLA公司仍然以高姿态在国际舞台上挥舞拳脚，实在令人感叹其后台“锲而不舍”的阿Q精神。当然，一边枪口顶着纳税人的头，一边拿着纳税人的钱随意挥霍，这等“豪气”倒也不足为奇。
 
-这就你就等着，如果你不听到共产党赢的消息和刚才放那些视频，就共产党的这些粉红叫得嗨高了的信息、高潮了的这些信息，你就千万记住，灭共就不可能。如果你听了共产党没有好消息…完了，共产党这是真完了，这是真完了。现在只要共产党脖子硬，咱就有机会，它脖子一软咱完蛋了。
+与大口气高姿态相对应的是其在技术上的狼子野心。从本文的描述，亦即IETF、ICANN等多利益方机构的评定可以看出，所谓New IP并没有真正的划时代意义的革新。它无非是在原本仅仅是一串数字的IP地址上附上一张铭牌，背后是一整套与监控审查相关的系统，而所谓的“安全”恐怕指的是掌权者的“安全”而已。这无疑就是中共广为人知的驭民之术向外延伸的一次险恶的尝试。而华为此番还尝试将推测用途融入互联网，试图把未来人类如何运用互联网也限制在自己定的范畴内，狂妄之态大有习总加速师誓言要给世界把脉的风韵。
 
-So, you just wait. Remember this carefully, if you don’t hear the news of the CCP’s victory or the  kind of videos that we just played, or the fake orgasm sounds of those CCP’s Little Pinks, it will be impossible to take down the CCP. Once you find that the CCP stops having good news, then that means the CCP is over, truly over. But now as long as the CCP’s neck is still stiff, we then still have a chance. But if its neck becomes soft, we will be over.
+中共很清楚这样的提案走正常程序是无法得到认可的，他们早早地在国际多边机构布好了局，安插自己的人掌握这些机构的领导席，正如我们熟知的WHO的被渗透，从而绕开了多利益方机构的评定。一旦通过诸如ITU之流的多边机构形成既成事实，便可以将特洛伊木马安稳送进城内。一经得手，中共还计划着将更多技术领域涵盖进来如法炮制，将“技术”二字永远打上共产主义的烙印。然而按照惯例，中共的如意算盘在美国面前往往是肤浅而脆弱的。作为世界秩序的守护者，虽然美方此前对这些机构的能量有所疏忽，但在摆在它面前的选择仍不止一条，且不算晚。如同本文提出，公私合作在这些多边机构抢占话语权，进而阻止一切的发生，便是一套符合规范、不难推进且行之有效的方案。更值得庆幸的是，近年来美国一直秉持着先行事再发声的作风，这篇文章的释出，一来发布于专业网站可证其专业性，二来想必美方已经有所动作且有所成效了。
 
-现在大家看到共产党的经济一片大好。“世界富豪我们占了一多半，比美国厉害。然后我们是各国外长六个外长到中国来磕头，美帝国主义没有资格来评我们，我们现在上打宇宙下打地球，我们有歼20，我们有激光炮，我们还有冠状病毒。是吧？我们还有小粉红，我们有中国陆军——5亿个陆军。” 五亿，我的娘咧，五亿！这五亿人咋来啊？我的天，是抬着来还是爬着来呀？这5亿陆军横扫全地球，顺便大家可能还到月球上喝点酒去，这共产党太牛了。就让它这个感觉好，没这个，灭共赢不了。
+反观中共这边，华为的高层应该不会意识不到在当下的美国眼皮底下，试图推进这么明显只服务于专制政权的提案有多不现实。因而这一提案更有可能是从属于中共规划了多年的一整套计划的一部分，试图对全球通信从法令到技术甚至到具体项目的事实都牢牢掌握在手中。一步步推进至此，虽然境外对中共的讨伐声已然此起彼伏，总加速师却仍然志得意满、自我感觉良好，他治下的走狗们便也不得不陪他继续往末路狂奔。对世界而言，这莫不是一件好事。借此机会剔除中共在世界各个犄角旮旯的残毒，才能避免中共倒台后借尸还魂，死灰复燃。
 
-Now it seems to everyone that the CCP’s economy is so good. [The CCP says,] “We account for more than half of the world’s richest people, better than the United States. And we have foreign ministers of 6 countries coming to China to kowtow to us. American imperialism is not qualified to judge us. We can now launch a war not only in the space but also on the earth. We have F-20s, we have laser cannons, and we also have the coronavirus, right? We have Little Pinks, we have a Chinese army of 500 million soldiers.” Oh, my! 500 million! Where did they find the 500 million people? Oh, my God! How do they come here? By crawling or being carried by others? With 500 million soldiers sweeping the entire earth and possibly stopping by the moon to drink some wine, the CCP is too awesome! Just let it feel good because without this, we can’t win.
+**原文翻译：**
 
-不是说你一…认真大家要看看，希特勒从1932年到1944年，你去看看希特勒所有走过的路，是搞奥运会呀、大型体育活动啊、拍电影啊、大宣传啊、国家主义啊、把企业国家化啊、国家资本化啊、然后大修机场啊，然后呢你看跟日本联合去了，跟日本联合。当年你要想想，它要跟日本不联合的话，世界怎么会到今天这个样子。
+## **中共国的反乌托邦“New IP”计划表明，美国需要更新对互联网治理的承诺**
 
-Everyone should take a close look at the path that Hitler took between 1932 and 1944 – the Olympic Games, large-scale sports events, filmmaking, large-scale propaganda, nationalism, nationalizing private companies, state capitalism, and building airports. And what’s more, he allied with Japan. Think about this. If he didn’t ally with Japan, how could we have today’s world [the victory of the WWII]?
+[!\[\]()!\[\](https://spark.adobe.com/page/ecALvLCXtgsMj/images/b11b274a-6253-42c3-b3f5-1d8929885d40.png?asset_id=c4148079-a861-496e-b5eb-ef22aa013dbe&amp;img_etag=%2223bf7a40564c0584db0b7439d53b8fe8%22&amp;size=1024)](https://spark.adobe.com/page/ecALvLCXtgsMj/images/b11b274a-6253-42c3-b3f5-1d8929885d40.png?asset_id=c4148079-a861-496e-b5eb-ef22aa013dbe&amp;img_etag=%2223bf7a40564c0584db0b7439d53b8fe8%22&amp;size=1024)图片：2021年2月23日，在上海举行的世界移动通信大会期间，人们参观华为展台。（图片来源：HECTOR RETAMAL/法新社自盖帝图像）
 
-跟日本去联合去了，就像共产党现在和俄罗斯联合一个道理、跟伊朗联合去了，哇噻！这多疯狂！ 什么都一样，然后攻击欧洲，然后对内部的老百姓一片欢腾！爱国主义到达了最顶峰。然后吃的、穿的看上去都很体面。打俄罗斯的时候前面是最先进的武器，后面全是马车牛车拉着这个供给线。打法国的时候一样，这面到巴黎了，那面还是马车牛车还在运东西呢。然后希特勒说我要研究太空武器，非常非常的像。
+上月，中共国发布了经济发展的第十四个五年计划，计划包括其在技术方面的下一步打算。该蓝图明确指出，即使许多5G宽带电信合同仍墨迹未干，中共国及其网络巨头华为就已在准备确保其互联网愿景走向全球。
 
-Germany allying with Japan is just like the CCP allying with Russia right now, also with Iran. Wow! So crazy! Everything is so alike. When Germany attacked Europe, its people exulted and patriotism reached its peak. Their food and clothes all looked very decent. When they fought Russia, they put the best weapons in the front, but used horses and oxen for their supply transportation in the back. Same thing happened when they fought France – when they arrived at Paris, horses and oxen were still hulling supply. Well, Hitler claimed that he was going to develop space weapons – so similar [to the CCP]!
+但华为的6G及以后的计划让美国对5G的担忧显得微不足道。华为正在提议对互联网进行根本性的重新设计，它称之为“New IP”，旨在将“内生安全”融入网络。内生安全意味着个人必须注册才能使用互联网，而权力机构可以随时关闭个人用户的互联网访问。简而言之，华为希望将中共国的“社会信用”、监控和审查制度整合到互联网的架构中。
 
-如果当时所有的二战的专家、科学家、军事专家，就我向他们请教的时候，他们都是一句话，说如果当时希特勒收回去，突然停下来了，说这个世界完全就变了，没有哪个国家包含美国敢去直接去打德国去。如果他不打莫斯科根本不可能，希特勒不会被灭的。
+New IP提案本身建立在一个有缺陷的技术基础上，并威胁到互联网，使之离散成一群混乱的更不互通、更不稳定、甚至更不安全的网络。为了避免对New IP的缺点的审查，华为绕开了国际标准机构，而在这些机构中，专家们可能会对该提案的技术缺陷提出质疑。相反，华为通过联合国的国际电信联盟（ITU）进行运作，因为中共国政府对该机构持有更多的政治影响力。
 
-All the WWII experts, scientists, and military experts that I have asked questions to basically gave me the same answer. If Hitler retreated and suddenly halted the invasion at that time, the world would be a completely different place because there would be no country, including the United States that would dare to fight against Germany directly. If Hitler did not fight Moscow, he would not be destroyed.
+对New IP这一概念进行审核的合适机构应该是国际互联网工程任务组（IETF）。IETF和其他标准机构正在检验构成New IP提案的大部分互联网基础设施技术更替，而这些机构表示，在没有更多信息和共识的情况下，做出如此巨大的改变还为时过早。华为基于推测用途——即有朝一日可能存在的互联网用途，而不是当前用户或企业已经在争夺的既定用途——自上而下重建互联网的计划违背了互联网治理的逻辑，即要求变革应该是渐进式的，并基于既定需求。
 
-所以说现在你得看到共产党的疯狂，既打巴黎，又打英国，还打莫斯科。这个事情要不发生不从1935年的3月5号到1936年的3月6号撕毁整个《凡尔赛协议》，跨过莱茵河，十万大军到五十万大军完全干掉巴黎，希特勒他死不了。
+**专制集团**
 
-So now you see the madness of the CCP, [which is like Hitler] attacking Paris, Britain, as well as Moscow. If Hitler didn’t tear up the entire “Versailles Agreement” between March 5, 1935 and March 6, 1936, and didn’t cross the Rhine, and completely wipe out Paris with an army of 100,000 to 500,000 soldiers, Hitler wouldn’t die like that.
+[!\[\]()!\[\](https://spark.adobe.com/page/ecALvLCXtgsMj/images/4cb16c07-8d03-4e4b-9cfd-40533b6eff5c.jpg?asset_id=715848b3-c11b-4ea6-be17-2e228223001b&amp;img_etag=%22940a34e227cfdb10da6ae8df6d452a75%22&amp;size=1024)](https://spark.adobe.com/page/ecALvLCXtgsMj/images/4cb16c07-8d03-4e4b-9cfd-40533b6eff5c.jpg?asset_id=715848b3-c11b-4ea6-be17-2e228223001b&amp;img_etag=%22940a34e227cfdb10da6ae8df6d452a75%22&amp;size=1024)
 
-这就是今天你看到了，我所有国内…因为企业的朋友太多啦，说：“你看看，文贵呀，啊，中国的富豪、北京的富豪占尽了世界多少。”大家仔细去看看，本质，要看本质，它连一块钱的价值生产都没有，全是泡沫。所有的泡沫根本…记住中国人现在所有的东西就是中国奴隶，就是中国十四亿人民被剥夺的生产力和那个财富，而且是膨胀化的。它对整个国家强大、人民富裕没半毛钱关系，零关系。
+华为和中共转向与国际电信联盟ITU联手并不令人意外，尽管ITU的管辖范围并不包括互联网架构。在互联网治理方面，中共和其他专制政权长期以来更支持像ITU这样的多边国际机构，而非IETF或“互联网名称与数字地址分配机构”（ICANN）这样的多利益方国际机构。多利益方机构由来自工业界、民间组织和政府的多种代表管理；而多边机构只向国家政府提供投票权。在多利益方论坛中，民间组织和工业界代表倾向于支持一个自由和开放的互联网，这淡化了国家政府的影响。许多政府很可能会支持一个被严格监管、可以审查的互联网。
 
-This is what you have seen today. I have many business friends in mainland China, who always say this: “Look, Miles, so many rich people in this world are Chinese and from Beijing.” But let’s take a closer look and look at the essence of this thing – They do not produce a dollar’s value, and everything is a bubble. Remember that everything that the Chinese people possess right now is made by the Chinese slaves, that is, the productivity and wealth deprived of the 1.4 billion Chinese people, and besides, it is inflated [like bubbles]. It has nothing to do with the whole nation being strong and the people being prosperous.
+专制政府可以通过ITU这样的多边机构来边缘化私营产业和公民团体，这意味着联合国和ITU自然会更容易接受像New IP这样赋予国家政府更多互联网控制权的提案。2019年，中共国和俄罗斯利用联合国内部类似的专制集团，通过了一项有利于审查制度的网络犯罪决议。一个由志同道合的国家组成的类似同盟可以帮助中共国推动New IP提案的通过，包含它的缺点。绕过传统的互联网治理机构而支持ITU，也为未来互联网治理相关提案通过ITU而非更平衡的多利益方机构开创了先例。
 
-大家看到这个本质的时候你再看香港，香港和大陆过去这几个月大家知道，加拿大、欧洲几千亿美元地往外流，而且香港的社会几乎处在崩溃的边缘，而且香港的整个崩溃最后它都复制到台湾去，它最后一定打台湾。所以它打台湾的时候就会像当年希特勒去打英国一样，然后呢美国一介入，他就希特勒去打莫斯科了，他就会攻击美国或者攻击日本，结束了！
+更重要的是，在过去的7年里，中共国一直在ITU中占据着最高位置。在其担任ITU秘书长期间，来自中共国的赵厚麟鼓励将ITU的职权范围从单纯的电信机构扩展到“技术机构”，通过致力于互联网架构、物联网（IoT）和人工智能（AI）等与电信无关的技术。
 
-After you have seen the essence of these things, please then look at Hong Kong. We know that in the past few months, Hong Kong and mainland China had hundreds of billions of dollars flowing out to Canada and Europe, and Hong Kong’s society is almost on the verge of collapse. Besides, Hong Kong’s situation will be completely duplicated to Taiwan, and in the end, the CCP will definitely attack Taiwan. So when the CCP attacks Taiwan, it will be like Hitler attacking Britain, and that as soon as the United States intervened, Hitler went to fight Moscow. Similarly, the CCP will attack the United States or Japan, then it will be finished!
+**组织美国政府以争取成功**
 
-七哥今天主要说的事情，客观地、冷静地看待共产党今天的自嗨和疯狂，这是爆料革命最佳的机会。
+由于新冠肺炎大流行的限制，将对New IP举行正式辩论的ITU世界电信标准化大会WTSA-20已被推迟到2022年2月。因此，华盛顿当局有时间准备并面对New IP的第一次重大公投，即使是在一个不甚合宜的标准论坛上。
 
-What your Brother Miles is trying to say today is that you should look at the CCP’s self-confidence and madness today objectively and calmly because it presents the best opportunity for our Whistleblower Movement.
+在其2020年3月的报告中，美国网络空间日光浴室委员会（CSC）强调了另一个问题，即美国政府在ITU等国际论坛上的参与程度与中共国愿意做出的努力之间的差距。事实上，New IP的诞生一部分原因是出于美国之前对存在感和领导力的让位，因为对这种新技术需求的最初探究来自于华为主导的ITU重点小组，而该小组缺乏美国的参与。这种参与力度的不对称远不止于那个特殊的重点小组一处。在WTSA-20会议之前，中共国几乎在每个ITU研究小组中都提名了管理职位的代表。即使中共国企业没有赢得领导职位，中共国也会派出大量精心准备、同步进行的代表团，来推动对北京当局及其国家龙头企业有利的标准。相比之下，美国代表们似乎总是一副临时准备的样子。美国在WTSA-20上正式竞争的主席或副主席名额只有中共国的四分之一。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=607053ef6e11a756eddd33df](https://gtv.org/video/id=607053ef6e11a756eddd33df) (1:04:48-1:05:48, 1:06:08-1:10:27)
-鸣谢：感谢 Bruce(文远)、YIMING（文鸣）、山川异域提供中文文本于 [https://gnews.org/zh-hans/1074690/](https://gnews.org/zh-hans/1074690/)
+在过去的会议上，美国一直努力使ITU专注于其合宜的专业领域（电信），而不涉足于那些更适合其他标准机构的其他问题（互联网、人工智能、区块链等）。美国在原则上反对ITU的职权扩张是正确的。然而，仅仅表达原则性的反对意见并不足以遏制中共国推动ITU职权扩张的努力。
 
-* * *
+CSC建议美国在互联网治理方面与中共国通力竞争，并阐明这一努力将需要：（1）让美国政府组织相应的力量以获得成功；（2）建立有效的公共和私人入股；(3)与志同道合的国际盟友和伙伴合作。
 
-字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+**组织力量在国际论坛上竞争**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/ecALvLCXtgsMj/images/914869e9-1e10-4ff0-acbb-585e6be2dfb7.jpg?asset_id=6b93a2fc-7346-4b2d-92a1-0cb2492f7749&amp;img_etag=%2206556ef316b5073b89aa5100af400154%22&amp;size=2560)](https://spark.adobe.com/page/ecALvLCXtgsMj/images/914869e9-1e10-4ff0-acbb-585e6be2dfb7.jpg?asset_id=6b93a2fc-7346-4b2d-92a1-0cb2492f7749&amp;img_etag=%2206556ef316b5073b89aa5100af400154%22&amp;size=1024)
+
+第一步是让美国政府有组织地、资源充沛地在这些论坛上与中共国竞争。这就要求商务部的国家标准与技术研究所（NIST）以及国务院和众多机构的具体部门共同合作，制定一套战略方法来处理国际论坛上诸如New IP等问题。这就需要增加对NIST的资助。《2021年网络外交法案》提出建立国务院网络空间政策局，该部门将提供大部分所需的组织改革。然而，国务院也将需要更多的资金和关注度，以协调行动并应对美国在互联网治理和国际数字标准方面影响力下降的挑战。
+
+首要目标最好应当是选出一个尊重ITU任务局限性并对政府控制互联网不太感冒的秘书长。美国代表多琳•波格丹马丁（Doreen Bogdan-Martin）正在竞选2022年的职位。即使波格丹马丁没有赢得选举，美国也应该努力确保最终的当选者将中止赵厚麟将ITU的职权扩张至类似New IP等领域的政策。
+
+最坏的情况会是俄罗斯候选人拉希德•伊斯梅洛夫（Rashid Ismailov）赢得秘书长职位。伊斯梅洛夫领导的代表团经常试图以牺牲多利益方机构的利益为代价，加强ITU在互联网治理方面的权力。伊斯梅洛夫个人公开主张“为政府和非营利组织提供机会以控制ICANN的活动”，ICANN是互联网治理中最重要的多利益方机构之一。确保伊斯梅洛夫或和他理念类同的候选人无法获胜，应该是美国的首要任务。
+
+确保美国能在互联网治理上与中共国进行有效竞争的第二步，是确立激励和鞭策的最优混合手段，让美国企业更积极地代表美国的利益。从历史上看，当美国把参与国际论坛的机会单独交给其私营企业处理时，美国企业参与的主要动力就变成了自身的直接利益。
+
+美国企业认为，对ITU的标准化部门ITU-T等行动较慢的国际论坛作出长期承诺产生的激励是有限。换句话说，没有一家公司愿意浪费自己的资源来预抵御抽象的、长期的威胁，例如华为重塑互联网的计划。相比之下，中共国企业从政府那里获得了制定国际标准的财政激励，并公开受迫在这些机构中形成统一战线。
+
+在国际标准制定方面，美国这种置公私合作于不顾的做法是不够的，这也是近年来华为能够在ITU-T和3GPP等标准制定机构中发挥影响力的部分原因。美国政府和工业界必须在绝大多数双方能够达成一致的问题上进行合作，从而对抗中共国付出的努力。
+
+第三，美国需要在互联网治理机构层面建立与志同道合的国家的同盟。加强与传统盟友的联系并协调行动至关重要，但还不够。美国还需要与非传统伙伴找到共同点，这些伙伴可能不认同美国对于互联网开放的价值观，但也对中共国主导的秩序持怀疑态度。2019年中俄网络犯罪决议案启动了一项条约的起草程序，该条约使各国政府能够严厉打击互联网上的言论自由，但该决议案得以通过部分原因是因为34个国家投了弃权票。说服墨西哥、巴西和菲律宾等国反对中共国的权力游戏，将是防止New IP等倡议落地的关键。
+
+类似在与5G发展和国际网络犯罪相关的国际论坛上发生的情况，美国不能再承受在这样的竞争中失败。中共国在标准化方面的主导地位将使美国企业丧失市场份额，并可能为全球范围内中共国埋下的后门敞开怀抱。华为在New IP和6G上的主导地位不仅会创造一个更不自由、更不互通的互联网，还会为专制政府在未来数年内互联网的变革上扩大话语权铺平道路。
+
+中共国的New IP提案可以被有效对抗，但前提是美国必须团结其私营工业伙伴和志同道合的国际民主政府。他们必须通力合作，共同遏制专制政府利用ITU等多边机构向全球输出其互联网愿景的威胁，以免为时过晚。
+
+🔗[原文链接](https://www.justsecurity.org/75741/chinas-dystopian-new-ip-plan-shows-need-for-renewed-us-commitment-to-internet-governance/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/ecALvLCXtgsMj/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/ecALvLCXtgsMj/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

@@ -1,41 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【信仰之声】Parolin, 为梵蒂冈兑换银钱之人
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1100833/)
+## 【热点播报】教皇称需采取进一步措施打击梵蒂冈的金融犯罪
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1100869/)
 
-作者：纽约香草山福音部  JingleChenge
+作者：纽约香草山信息部 6zero4
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-
-
-Steve Bannon’s War Room Pandemic Episode 876 在34～40分爆料，这场疯狂的财务丑闻是由梵蒂冈国务院的红衣主教 Pietro Parolin 和 Angelo Becciu一手主导的。他们分别是教廷国务院的一把手和二把手，其中 Becciu 与教皇最亲近，得以在2018年被提拔为红衣主教。 Parolin 和 Becciu 二人伙同教皇一起，将本用于周济穷困者、孤寡鳏独害、灾难受害者，以及用于流行病控制的 Peter’s Pence 基金，用来抵押了2亿欧元，在伦敦最昂贵的西区买下了一幢大楼的40%的控制权。此二人就像圣殿中被耶稣基督赶出的兑换银钱之人，以上帝的名义聚敛钱财，从而中饱私囊。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片103.png)
-
-Parolin 也是中梵秘密协议签订及续签的幕后推手，出卖中国地下教会和主教任命，换取了几十亿美元的钱财。只须续签几次，CCP就会将主教全部换成它自己的人，从而达到控制中国地下教会，以及梵蒂冈的目的，让中共拿到宗教话语权，成为名符其实的教皇。 此二人，卖主求钱，连穷人头上的灰尘都垂涎，为了银子卖了自己的弟兄，更是自卖给魔鬼，以期保住今世的荣华。他们必不能逃脱耶稣基督追赶的鞭子。
-
-在此不得不提另外两位红衣主教。 一位是来自澳大利亚的红衣主教 George Pell，他在 2016 年爆料了此财务丑闻，并展开了审计，由此也引发了他与 Parolin 的巨大冲突。随后在 2017, Pell 多年前的性虐待案被蹊跷地翻出来，他只好被迫返回澳大利亚处理此事，他的离开使这项审计得以及时被 Parolin 中止（非常的巧合）。 另一位就是香港的陈日君枢机红衣主教。他在中梵秘密协议续签之前冒着感染CCP病毒的危险去了梵蒂冈，要求会见教皇以期能劝阻此协议的续签。但教皇以忙碌为由拒绝了他。
-
-这就是今日为银子出卖弟兄出卖自己的梵蒂冈，自甘堕落，已经丧失了使人站起来行走的能力。
-
-校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
 
 
-**更多资讯，更多关注**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS2063-【热点播报】教皇称需采取进一步措施打击梵蒂冈的金融犯罪-1.jpg)图片来源：CNS photo/Vatican Media
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+据[NCR](https://www.ncronline.org/news/accountability/further-measures-needed-combat-financial-crime-vatican-pope-says)报道，3月27日，教皇方济各出席梵蒂冈城国法院的第92届司法年纪念仪式时对梵蒂冈法官称，越来越多的信号显示梵蒂冈城国刑法典的深化改革越来越迫切，尤其是在打击和压制经济和金融犯罪领域。教皇鼓励梵蒂冈法官参考国际量刑标准和经典案例，促进调查方面的国际合作，使梵蒂冈调查机构与其他国家相关机构之间的国际合作更简单更快捷，确保及时准确地交换犯罪调查信息。
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+早在3月底，一名伦敦法官发布了一份长达42页的判决书，解释了他为何推翻一项来自梵蒂冈法院的冻结一名金融家资产的法庭命令，因其包含了“令人震惊的不披露和虚假陈述”。该金融家就是促成交易的经纪人吉安路易吉·托尔齐(Gianluigi Torzi)，其涉嫌在梵蒂冈国务院购买伦敦切尔西社区价值数百万美元的房产时涉嫌敲诈勒索 、欺诈和洗钱。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS2063-【热点播报】教皇称需采取进一步措施打击梵蒂冈的金融犯罪-2.png)
+文贵先生14日在盖特中披露，世界宗教中心梵蒂冈的真正沼泽地主人之一，宗教界的王岐山，更是梵蒂冈与中共交易的推动者，即梵蒂冈国务卿红衣主教彼得罗·帕罗林(Pietro Parolin)出大事啦。不难推断，托尔齐的司法调查，很可能会牵扯出背后隐藏的大鱼，也就是梵蒂冈国务卿红衣主教帕罗林。梵蒂冈法院本想瞒天过海，抓小鱼放大鱼，放过帕罗林，而此诡计已无耻地败露！
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+当然，此次梵蒂冈金融犯罪的案子绝不会就此打住，司法调查的大火将很快烧到帕罗林的上司教皇方济各，届时贼喊做贼的丑陋把戏就彻底败露了。自本届教皇方济各上任开始，梵蒂冈，这个引领西方文明1000多年的宗教界的中心彻底背叛自己立国之本。本应是世界上最圣洁的地方之一，如今已经堕落腐败到与集种族灭绝、反人类罪、跨国犯罪组织和世界邪恶轴心之首的中共沆瀣一气、狼狈为奸。在这场以中共病毒战位主战场的第三次世界大战中，梵蒂冈的立场使决战前夜晚无比的黑暗。不破不立，物极必反，世界正义联盟引领的世界大觉醒必定打败中共主导的大重启！
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+编辑/审核/发稿：雪梨
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpg)
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

@@ -1,37 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】德国即将从阿富汗撤军
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1100736/)
+## 谁能代表中国？台陆委会：中华民国成立已110年
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1100811/)
 
-**据德国镜报杂志2021年4月16日报道，德国防部长安内格雷特-克朗普-卡伦鲍尔（Annegret Kramp-Karrenbauer）在一项日常命令中宣布，德国联邦国防军将于今年8月中旬从阿富汗全部撤军。**
+【日本东京方舟农场】 撰稿：青衣  校对：miumiu law
 
-翻译：Nancy
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-28.png)**德国联邦国防军士兵在马扎里沙里夫机场(档案照片)**
-**据报道，国防部长对撤军的具体时间已经有了一个初步的时间表。她表示，“如果一切能按计划进行，德国部队最早将于8月中旬全部撤离阿富汗。”  该报道指出，国防部长安内格雷特-克朗普-卡伦鲍尔此番话是她在与联邦国防军总检查长 埃伯哈德-佐恩（Eberhard Zorn）一起在每日例行会议上宣布这项命令的。**
+据《中央社》报道，台湾陆委会发言人邱垂正今天（4月15日）在回应中共国大陆国台办否定中华民国存在的客观事实时指出：中华民国成立迄今已110年，台湾从未属于中华人民共和国。
 
-**报道指出，北约组织理事会（NATO  North Atlantic Treaty Organisation）周三决定，从5月1日开始北约部队将陆续撤离阿富汗，军事撤离会在数月内完成。目前，德国在阿富汗的驻军约有1300名。如撤离行动进展顺利，德国联邦国防军会比美国士兵更早离开危机地带。**
+邱垂正是在台湾大陆委员会今天下午举行的例行记者会上，回应媒体相关提问时发表上述讲话，以驳斥前一天中共国大陆国台办称国民党退踞台湾后，就丧失了代表全中国的合法政府地位。他表示，针对中共国大陆国台办发言人错误评论中华民国存在的客观事实，陆委会要表达严正抗议。
 
-**镜报指出，美国从阿富汗撤军最迟会在纽约世贸中心和华盛顿美国国防部遇袭20周年纪念日-    即今年的9月11 号完成，众所周知，这是美国派兵入驻阿富汗的导火索。据悉，这是美国总统拜登对美撤军的设想。除美国人外，其他国际部队在阿富汗驻军的总人数大约为7000名。**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/BE70F383-C1BF-4554-9D6D-9987390BBB59.jpeg)
 
-**译者评：**
+邱垂正强调，中华民国成立迄今已110年，台湾从未属于中华人民共和国，未来更不会是。这是根据国际法原则的历史事实与现实，不是中共单方面片面主张所能改变。
 
-**2001年9月11日对美国的恐怖袭击事件引发了美国派驻军队进入阿富汗。国际军事行动导致 “基地 “组织首领乌萨马-本-拉登的塔利班政权倒台。美国前总统特朗普（Donald Trump）曾承诺今年5月前美国从阿富汗撤军，期间塔利班与喀布尔政府也进行了多次直接和谈。无疑，这对现任美国总统拜登和北约组织都是一种压力。**
+他还表示，台湾政府依据《中华民国宪法》与《两岸人民关系条例》处理两岸事务，中共如果以消灭中华民国作为两岸关系发展的终点，以军事威吓，强加政治框架，要求台湾屈从，台湾绝不会接受。
+
+中共国大陆国务院台湾事务办公室发言人马晓光，4月14日在回应香港部分历史教材近期将“中华民国政府迁台”改为“国民党迁台”时宣称，“1949年国民党政权在其发动的反人民内战中失败，退踞台湾岛，从此丧失了代表全中国合法政府的地位，这是不争的历史事实。”
+
+都说历史就是个任人打扮的小姑娘，这句话说得也未免太含蓄了。事实上在像中共这样的集权国家，历史就是被当权者任意篡改、歪曲和杜撰，用来愚弄人民，巩固其统治的工具。
+
+实际上中共才是非法窃取政权的邪恶政党。它私通日本侵略者联手对抗国民党，令国民党在抗日战争中几乎是独自应战，耗尽实力，最终导致在后来与中共发起的内战中失利，退守台湾，被中共非法夺取了政权。中共一直在其历史书上将国民党泣血抗日，挽救中华民族这一段感天动地的历史抹去，并且还将这段历史功绩美化在自己头上，无耻至极，令人唾弃！
+
+如今，中共竟然又要否定中华民国存在的历史，何其荒诞！只可惜，中共也就只能欺骗自己极权统治下的愚民，世界记载的历史无法被篡改。即便在中共国国内，越来越多的人也正在醒来，在不远的将来会顿悟，中共才是中国的非法政权，中共必将被全体中国人民抛弃。
+
+注：本文仅代表作者观点
+
+参考链接：
+
+1. [https://twitter.com/RFI\_Cn/status/1382748830030962689](https://twitter.com/RFI_Cn/status/1382748830030962689)
+2. [https://twitter.com/SoundofHopeSOH/status/1382900961505640456](https://twitter.com/SoundofHopeSOH/status/1382900961505640456)
+3. [https://twitter.com/dw\_chinese/status/1382251141472391168](https://twitter.com/dw_chinese/status/1382251141472391168)
 
 
-
-审核/校对/发稿 奇门遁甲
-
-原文链接: [Afghanistan: Bundeswehr soll schon Mitte August abziehen – DER SPIEGEL](https://www.spiegel.de/politik/deutschland/afghanistan-bundeswehr-soll-schon-mitte-august-abziehen-a-88f447f3-dcb6-4175-b859-2affe5613b70)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![](https://mail.google.com/mail/u/0?ui=2&amp;ik=6ac942a4c5&amp;attid=0.1.1&amp;permmsgid=msg-f:1697211554661162166&amp;th=178db4eab0445cb6&amp;view=fimg&amp;sz=s0-l75-ft&amp;attbid=ANGjdJ_MF9refeF-bd25VajoR4jiEMIP6XRRLnVZYSEhjS8M19zkZz9HVu-IpmwCycBFQc8tu7Q38feMsK7BGcLwbE92G638znupYW7M7IZq5jXOugvR5IVfsGowdsU&amp;disp=emb)
-0
++1
