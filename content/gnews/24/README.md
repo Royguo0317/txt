@@ -1,51 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】福奇又一次被参议员兰德-保罗怒怼
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1098331/)
+## 香港童子军与中共少先队的本质不同
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1099996/)
 
-作者：纽约香草山写作五组 四季
+撰稿：云彩
+网络视频
+童子军在西方民主国家是一个耳熟能详的名词。它的活动目的是向青少年提供他们在生理、心理和精神上的支持，培养出健全的公民，最终目的是希望将来这些青少年可以回馈社会并对社会有所贡献。本文对比一下，香港童子军与中共少先队的本质不同。
 
+从上面的视频中看出，香港童子军通过技能训练，在纪律与团结中，发挥独立精神，挑战自我，成为未来社会的良好公民。香港人在世界上留下了守法、公民意识强的良好口碑。
 
+2021年2月3日中共发了《中共中央关于全面加强新时代少先队工作的意见》。在意见里，诸如此类的句子如“少年儿童听党话、跟党走”，“引导少年儿童时刻准备着为共产主义事业而奋斗”，“强化政治引领，旗帜鲜明培养共产主义接班” 贯穿其中。由此得出，中共通过少先队对小孩子进行洗脑教育。爹亲娘亲不如党亲，一切都听党的，从小就剥夺了小孩子独立思考的权利。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20210416_Task7_Cover.jpg)图片来自网络
+我们再看一下香港童子军的训练纲要。里面列举了比如钓鱼、爱护动物、农务、独木舟、探险、野外定向、艇长等几十类活动。而童子军的誓词则是“我愿以信誉为誓，竭尽所能，对神明对国家尽责任，对别人要帮助，对纪律必遵行。”这样的训练可以让小孩培养公民意识，学习团队分工合作，自我照顾，独立思考。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+以前曾听说过“一个中国人是条龙，三个中国人是条虫。一个日本人是条虫，一群日本人是一条龙。”这话也许有些偏颇，但是我们可以看到中共治理下的中国人团队精神的不足。这些都是共产党的洗脑教育留下的恶毒。
 
+共产党灭亡后，新中国联邦任重而道远，要让中国的小孩子从小接受法治民主教育，培养团队合作精神，成为社会的良好公民。
 
+（本文中观点只代表个人观点）
 
-人类自由网站4月15日报道，美国参议员兰德-保罗周二在福克斯商业节目中慷慨激昂地请求将安东尼-福奇从电波中移除，因为他不断地“制造恐惧”。保罗称，福奇不停地提出“与他自己研究所的科学不相匹配”的说法。
+参考资料：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-236.png)图源网络
+[中共《中共中央关于全面加强新时代少先队工作的意见》](http://www.gov.cn/zhengce/2021-02/03/content_5584656.htm)
 
-福奇在本周早些时候曾发表言论，声称美国人即使已经完全接种了疫苗仍然不应该参加室内社交活动。保罗称，这些言论与CDC关于接种过疫苗的人不会传播病毒的结论相矛盾。所以，福奇需要停止对整个世界如何生活发号施令，让我们自己做决定。
+[香港童子军训练纲要](https://prog.scouting.org.hk/scouts/ScoutTrainingScheme/FullVersion-zh.pdf)
 
-本周早些时候，保罗指责这位白宫医学顾问无视“100年的疫苗科学”。保罗在之前的听证会上指控福奇说，你让打过疫苗的人戴上口罩，这是在藐视我们对免疫力的一切认知。
+* * *
 
-福奇反复提到口罩的功效，并承认封锁限制背后没什么科学依据。尽管如此，福奇仍不放弃口罩的戏码，甚至提出全世界需要在2022年之前继续戴口罩。福奇还建议孩子们应该戴上口罩才能一起玩耍，除非他们从6个月大开始全部接种疫苗。
+*审稿编辑：光耀华夏*
 
-自从中共病毒肆虐以来，世界变得如此的荒谬。只有爆料革命唯真不破，始终不遗余力地告知全世界中共病毒的真相。
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-参考阅读：
-
-[Rand Paul Demands ‘Petty Tyrant’ Fauci Be ‘Removed From TV For Fear Mongering’](https://humansarefree.com/2021/04/rand-paul-demands-petty-tyrant-fauci-be-removed-from-tv-for-fear-mongering.html)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
-0
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
++2

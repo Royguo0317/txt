@@ -1,25 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 警报:巴西幼儿感染CCP病毒死亡数增加！
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1098819/)
+## 【有声读物】美国系列制裁加码导致中共国“作弊经济模式”加速破产
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1100434/)
 
-加拿大多伦多枫叶农场 军迷Wilson
+配音：香草山录音组 蒙古鸿雁
 
-著名的美国病毒学家理查德.弗莱明博士，在本周三接受WARROOM班农先生采访时说，正在大流行的CCP病毒，已被证实在实验室进行了功能增强改造，病毒特有的刺突蛋白展示了其基因序列是经过人为改造和扦入的。可怕的是，CCP病毒除了按照它被设计的功能发挥作用，还在自行进化，一年前闫丽梦博士就揭示CCP病毒是“聪明的病毒”。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/newswars.com_.jpg)*图片来源：newswars.com*
-弗莱明博士进一步指出，传染性不断增强的病毒，攻击感染者身体内的各个系统，使患者产生炎症和血栓。在新发现的英国、南非、巴西变异病毒中均存在相似的特征，这也是近来免疫力较强的年轻人感染人数上升，感染后重症、死亡比率上升的原因。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-巴西一名仅一岁的CCP病毒感染者卢卡斯，感染两个月后在儿科重症监护病房去世，他的死因是“多系统炎症综合征（MIS）”。卢卡斯的主治医生称，卢卡斯的身体非常健康，但在救治时的CT扫描中发现卢卡斯竟然中风了(血栓)，后来在心率和氧气水平突然下降后死亡。
 
-据最近《柳叶刀》的研究报告，这种致命病征（MIS-C）系CCP病毒研究的新发现:“通常在感染CCP病毒后2-6周发生，以前非常罕见，这是感染者对CCP病毒的极端免疫反应，影响到人体的多个器官系统，包括心脏、胃肠道、血液系统、皮肤系统、神经系统、呼吸系统和肾脏系统”。也就是说，这是中共军方在实验室中早已恶意植入的功能，这种通过人为改造产生的攻击能力，超越了自然进化而来的人体免疫力，使人类在这种病毒面前脆弱不堪。
 
-巴西圣保罗大学圣流行病学家法蒂玛·马里尼奥博士警告称，当前“多系统炎症综合征”的患者正在增加，儿童也不能幸免。根据马里尼奥博士提供的研究数据，CCP病毒杀死了2060名9岁以下儿童，其中包括1302名婴儿。
+美国参议院外交关系委员会（U.S. Senate Foreign Relations Committee）将于4月14日对《2021年战略竞争法案》（Strategic Competition Act of 2021）进行讨论、修正和投票。这标志着美国两党全面灭共行动的开始。
 
-[参考新闻链接](https://www.hindustantimes.com/world-news/unusually-high-covid-deaths-among-babies-young-children-in-brazil-here-s-why-101618484497625.html?utm_source=ht_site_copyURL&amp;utm_medium=social&amp;utm_campaign=ht_site)
+除此之外，美国最近对中共国制裁不断，包括SEC要求退市中共控制公司的《外国公司问责法》，对中芯国际的制裁加大力度（不光将中芯国际列入制裁的实体名单，还要求拜登政府劝说荷兰政府阻止阿斯麦将深紫外线（DUV）光刻机卖给中芯国际）等等。本文将全面地介绍何为中共国的“作弊”经济模式？并论述为什么这种模式现在已经破产？
 
-* * *
+文字版原文：[【世事解评】美国系列制裁加码导致中共国“作弊经济模式”加速破产](https://gnews.org/zh-hans/1088354/)
 
-编辑 发稿 云起时
+发稿：雪梨
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

@@ -1,82 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.12.2021AM-美特种作战司令官披露美军正在建立印太联合特遣队打击中共网络造谣水军
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1097668/)
+## 中概股“跟谁学”陷各种造假丑闻一年16次被做空
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1099457/)
 
-视频剪辑 : Ablec(文A)
-中听校：洛杉矶天使农场 – 烟波浩淼
-英翻译：洛杉矶天使农场 – 飞利普      
-英校对：洛杉矶天使农场 – V
-字幕+视频制作：洛杉矶天使农场 – 压箱底儿の希望
+【日本东京方舟农场】撰稿：青衣  校对：文小律
 
-**路德/LUDE:**
+据《大纪元》记者4月13日综合报道，在纽约证券交易所上市的中共国线上教育机构“跟谁学”，在过去一年内因为各种造假问题，16次被做空。尽管该公司否认相关指控，但其股价持续大幅下跌。
 
-最近在美国参议院的军事委员会听证会中作证
-Recently, he testified in the hearing of the military committee of the US Senate
-明确说美军正在建立一个印太联合特遣队
-said clearly that the US military is establishing an Indian-Pacific Joint Special Task Force
-专门来对(付)中共的网络水军不断扩大的这些造谣活动
-to deal with the growing rumor-making activities from CCP’s cyber ghostwriters
-中共的超限战，信息战
-CCP’s unrestricted war and information war
-超限战里面包括很多
-There are many fields in CCP’s unrestricted warfare
-我们之前做节目说，各种战，信息战
-as we said previously, including all kinds of war, such as information war
-网络战，媒体战，宣传战，还有金融战，货币战，法律战
-cyber war, media war, propaganda war, financial war, currency war, legal wars
-政治里面影响美国内部政治的走向
-political war by influencing the domestic political trend of US
-最后包括现在的超限生物武器
-And last but not least, the current unrestricted biowarfare
-它为什么要做这个网络谣言，这就是我们之前说过
-Why does CCP spread cyber rumors? As we said before
-中共放超限生物武器是一招
-releasing the unrestricted bioweapon (Sars-COV-2) is only one of CCP’s tactics
-更厉害的招是之后的搅浑才是它最厉害的
-the craftiest one is muddling the water to mislead/confuse people
-这就是闫博士的第三篇报告为什么主说的就是超限科学误导？
-This is why Dr. Yan’s third report focuses on the unrestricted scientific misleading
-现在大多数都是英文的五毛，都是老外
-Now the cyber deceptive newsis posted by foreign Wumaos
-都是正儿八经看着好像有人的
-To make it look like some what professional
-有中共在这方面投入越来越大，美国现在总算看明白了
-as CCP has invested more and more in this area, the US has finally understood
-包括像福奇，包括皮特纳扎克等一系列的，在推特上的，各种搅浑水
-that all kinds of misleading and confusions on Twitter by Fauci, Peter Daszak and others
-说什么自然来源，美国看得太清楚了，我告诉大家
-talking about virus from nature, let me tell you, the US has known what’s going on
-所以就要反击，要组建这个部队
-So it’s time to fight back and build the cyber Task Force
-看路德节目的时候，你底下这个评论是多么管用
-This is why it is valuable for you to comment while watching Luther’s media
-我早就跟大家说了，你的一个发言，你的一个点赞，实际上美国的军方都在看着
-As I mentioned, your comments and thumps up are in fact being watched by the US military
-如果底下咱们都没人站出来，它知道中国人算了
-if none of us stands up, Chinese, forget it
-中共的网络水军就跟中共在南海的大量的海上民兵一样
-CCP’s cyber ghost writers are just like its massive maritime militia in the South China Sea
-伪装成老百姓，伪装成各种自然的，发各种推
-They are disguised as civilians, look like normal people, and send all kinds of tweets
-这个真的是不好解决
-This is not easy to deal with
-为什么，因为就跟当时的反恐战争一样，平时穿的都是长袍，都是老百姓
-Why? Because, like in the anti-terrorism war, terrorists usually wear robes as civilians
-突然间，你不小心，他就拿着枪，拿着炸弹来了
-suddenly, if you’re not careful, he shows up with a gun and bomb
-中共现在就是玩的这一套
-CCP is playing game like this now
-以后只要来自中共国的，一刀切，没办法
-In the future, as long as they come from the CCP, there is no way but to destroy them
-美国在历史上就这样
-This is how the US did in history
-两颗原子弹就是老百姓和日军之间分辨不了
-the two nuclear bombs delivered to Japan did not recognize civilians from Japanese military people
-直接扔下去了
-so they went down directly
-14亿墙内的人，千万不要再给他们做炮灰
-1.4 billion of people inside the firewall, please stand up and do not die for the evil and deceptive CCP
+据中共国内地媒体4月12日报道，从2020年5月至今，知名做空机构浑水公司、香橼资本、天蝎资本、灰熊研究等机构16次对“跟谁学”发布做空报告。
 
-0
+![]()![](https://gnews.org/wp-content/uploads/2021/04/85763CA6-6BB6-4F75-9673-BFA998DACB15.jpeg)
+
+据浑水公司2020年5月18日晚间发布的报告显示，在分析“跟谁学”的54065个用户中，至少有73.2%的用户是机器人；至少有70%至80%以上的收入造假；“跟谁学”亏损惨重。今年2月浑水创始人兼CEO卡尔森‧布洛克（Carson Block）表示，浑水仍在做空“跟谁学”，称这间公司几乎是彻头彻尾的欺诈。
+
+据公开资料显示，“跟谁学 ”是一家B2C在线教育机构，主营小学一年级至高中三年级的在线教育业务。该公司于2014年6月由陈向东带领创建，团队成员主要来自新东方等教育培训机构，以及百度、阿里、腾讯等互联网公司。2015年3月30日，该公司宣布A轮融资5000万美元，刷新了中共国创业公司A轮融资纪录。 2015年11月，“跟谁学”被福布斯评为“福布斯2015中国成长最快科技公司”。 2019年6月6日，“跟谁学”在美国纽交所挂牌上市，成为在纽交所上市的首家盈利的K12在线教育公司。
+
+从去年以来，“跟谁学”一直对做空报告予以否认，但其股价持续大幅下跌。2020年10月中旬一度暴跌30%；在随后的两个多月内，股价几乎腰斩；今年3月末至4月初，“跟谁学”一度出现11连跌，市值蒸发近三百亿美元。
+
+最近发布做空报告的是加拿大灰熊研究院（Grizzly Research），这也是该研究院第三次做空“跟谁学”。灰熊研究院在4月8日的报告中指出，“跟谁学”存在现金流造假、费用虚报、教师资格造假等问题。“跟谁学”在4月9日再次予以否认，但当天其股价重挫8.8%，收报27.16美元，市值只剩69.1亿美元。
+
+灰熊研究院的报告表示，“跟谁学”曾自称其营销费用仅为每位学生450元人民币，但根据其2020年财报，当年的销售费用高达58.2亿元人民币，占总费用的81.7%，比2019年同比增加458.7%；今年3月，“跟谁学”旗下高途课堂再次被网友爆料，称其教师资格证有疑似造假问题。此外，灰熊研究院还表示，“跟谁学”的回报率低得惊人，且有刷单、财务造假、关联方交易等问题。
+
+另据中共国内媒体消息，在大陆“黑猫投诉”平台上，“跟谁学”因“虚假宣传”、“退费难”等问题被大量投诉；2020年4月，一位中国投资人起诉“跟谁学”，因其存在未能如实向投资者披露盈利、收入、师资、学生数量情况等问题。
+
+“跟谁学”2019年赴美上市时，其公布的2019年全年营收为21.15亿元人民币，税后净利润2.27亿元人民币，年增1053.3%。而今年3月份该公司公布的2020年财报显示，全年净亏损13.93亿元人民币。
+
+类似“跟谁学”这样的中概股公司，靠明显造假的财务报表，堂而皇之地大批在美交所上市，在美国大量圈钱，严重损害投资者利益，而这种情况已经持续多年。中概股何以频频在美国骗钱得手？究竟是什么力量在背后支持？是否存在人为欺诈？美国SEC对此为何毫无作为？面对这些问题，美国相关部门是时候好好调查一下，给投资者一个交代了。
+
+注：本文仅代表作者观点
+
+参考链接：[https://twitter.com/dajiyuan/status/1381754764208304129](https://twitter.com/dajiyuan/status/1381754764208304129)
+
++2
