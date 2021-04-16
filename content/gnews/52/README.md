@@ -1,23 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 梵蒂冈帕罗林Pietro Parolin出卖中共国几千万虔诚天主教教徒
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1097615/)
+## 慧眼看世界202104014（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1097569/)
 
-台湾宝岛农场Amitofu
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-根据新《宗教事务条例》规定，凡不加入中共国天主教爱国会的聚会场所均被视为非法，这些新规的实施使得地下天主教形势愈加险峻。现行《宗教事务条例》可分为四部分：第一，条例规定宗教应「践行社会主义核心价值观」（第四条第二款）；第二，条例提到了「宗教极端主义」，其定义非常宽泛，或者说模糊，「宣扬、支持和资助宗教极端主义」会受到严厉惩罚（第四条第四款）；第三，对设立新的宗教场地规定非常严格（第三十五条）；第四，对于不属于官方注册的团体，严格禁止因宗教理由出国或在中共国经营宗教学校（第四十一条）。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/ZenFrancis-400x222.jpg)
-2020年6月29日文贵先生接受战斗室采访表示，梵蒂冈与中共达成很多秘密协议，梵蒂冈每年从中共收取高达20亿美金的贿赂和政治利益，出卖中共国地下天主教几千万虔诚教徒，**梵蒂冈教廷国务卿、枢机主教帕罗林****(Pietro Parolin)** **和中共长期勾兑，可以说是中共在梵蒂冈的代理人****，****坚持主张教廷延长梵中协议有必要性**。教宗方济各在2018年9月26日在《教宗方济各致中国天主教信友及普世教会文告》一文中劝勉中国天主教徒应当服从中共政府；前教宗本笃十六世在2007年表示虔诚的天主教徒，会上中国政府认可的教堂。面对地下天主教徒的困境，梵蒂冈教宗不但没有伸出援手，反而出卖中共国地下天主教几千万虔诚教徒，强迫他们登记加入中共官方的爱国教会。
 
-香港荣休枢机陈日君写信向全球枢机主教求救，控诉中共国的天主教会遭中共政权谋杀，除了强制关闭非中共承认的教会、天主教堂，还在部分教堂中装设AI人脸辨识的监视器，监控教友和传法内容，让不愿意加入中共爱国会的神父陷入困境。**教廷国务院长帕洛林（****Pietro Parolin****）还执意坚持支持梵中协议****，****陈日君表示他无法理解教廷为何要保密梵中协议的内容，连他这个中国枢机主教都不能看。**本文仅代表个人立场
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-祈祷万佛万神加持文贵先生与新中国联邦每位战友
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-3.jpg)
 
-資料來源:文贵先生、班农战斗室、路德社、博士军团、新中国联邦
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-4.jpg)
 
-审核:Athena雅典娜 发布:Amitofu
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-3.jpg)
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-4.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-4.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0
