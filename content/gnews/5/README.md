@@ -1,66 +1,74 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共不作不死&nbsp; 它今天的自嗨和疯狂是我们最佳的机会
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1101377/)
+## 中共暗示对台湾的军事活动是武统的预演
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1101624/)
 
-**简述：郭文贵先生在2021年4月9日的直播中让战友们“客观地、冷静地看待共产党今天的自嗨和疯狂，这是爆料革命最佳的机会”。共产党今天在世界上四处出击，攻击美国、英国，威胁日本、印度，就和二战的时候希特勒攻打英国、法国和苏联一模一样，不作不死！**
+新闻来源：BREITBART《布莱特巴特新闻网》| 作者：GABRIELLE REYES （加布里埃尔·雷耶斯）| 发布时间：2021年4月14日
 
-**中共不作不死****  ****它今天的自嗨和疯狂是我们最佳的机会**
+翻译/简评：叶知秋（文义）|校对：SilverSpurs7|审核：万人往|Page：小雨
 
-**The CCP’s Madness Is Our Best Opportunity**
+[!\[\]()!\[\](https://spark.adobe.com/page/JpPSVNnnZF5Dm/images/5e8545e3-6505-4b29-93eb-d2f8dbb4d4bd.jpg?asset_id=f8acda88-17b4-47ba-98f4-0d7eec9d4118&amp;img_etag=%22bef8cd464a8e041664ae7f81c0db62a8%22&amp;size=1024)](https://spark.adobe.com/page/JpPSVNnnZF5Dm/images/5e8545e3-6505-4b29-93eb-d2f8dbb4d4bd.jpg?asset_id=f8acda88-17b4-47ba-98f4-0d7eec9d4118&amp;img_etag=%22bef8cd464a8e041664ae7f81c0db62a8%22&amp;size=1024)
 
-它这种较量，兄弟姐妹们，现在就怕共产党现在不吱声了，服软了，完了，这灭共啊又得多个十年八年。现在只要共产党它攻击美元，想办法继续搞一带一路，控制马六甲海峡，苏伊士运河继续炸船，霍尔木兹海峡继续炸船，吉布提继续捣乱，安哥拉石油继续增加，然后它想尽一切办法威胁日本、印度马六甲海峡的石油供给，想尽一切办法攻击英国，想尽一切办法蓝金黄美国，威胁美国这些政客，咱就在这块等着就行了。
+**简评：**
 
-Brothers and sisters, talking about the competition, what we are now afraid the most is that the CCP stops making noise and goes soft, then we will be screwed because it will take another eight to ten years to destroy the CCP. Now as long as the CCP continues attacking the U.S. dollar, engaging in its Belt and Road Initiative, controlling the Strait of Malacca, bombing ships in the Suez Canal and the Strait of Hormuz, making troubles in the Djibouti, and increasing its import of Angola’s oil, and doing everything possible to threaten Japan and India’s oil supply in the Strait of Malacca, trying every means to attack Britain, BGY America and threaten American politicians, we then won’t need to do anything other than just waiting here.
+《环球时报》主编胡锡进在墙内的网络中，被网友戏称为“胡叼盘”，顾名思义，是中共忠实的走狗。中共政府因为自己很垃圾，所以也只能找胡锡进、李毅、张维为这种的垃圾来为自己宣传。但是，就种墙内网民都不齿的垃圾也能频繁出现在外媒的报道里，真是丢尽中国人的脸。
 
-这就你就等着，如果你不听到共产党赢的消息和刚才放那些视频，就共产党的这些粉红叫得嗨高了的信息、高潮了的这些信息，你就千万记住，灭共就不可能。如果你听了共产党没有好消息…完了，共产党这是真完了，这是真完了。现在只要共产党脖子硬，咱就有机会，它脖子一软咱完蛋了。
+俗话说，咬人的狗不做声，中共强烈的表现出攻击台湾的意图，也让《环球时报》等大外宣媒体大力作势，唯恐世界各国不知道它想干什么，除了试探美国及国际社会的底线，感觉还是有点儿要分散（和吸引）国际社会注意力的嫌疑。
 
-So, you just wait. Remember this carefully, if you don’t hear the news of the CCP’s victory or the  kind of videos that we just played, or the fake orgasm sounds of those CCP’s Little Pinks, it will be impossible to take down the CCP. Once you find that the CCP stops having good news, then that means the CCP is over, truly over. But now as long as the CCP’s neck is still stiff, we then still have a chance. But if its neck becomes soft, we will be over.
+中共对全世界的战争，从中共病毒被释放那一刻就已经开始了。中共政权更是清楚，当闫丽梦博士成功逃出香港，病毒真相就已经很难再被掩盖了，于是就利用被他们腐化的科学界相关组织和个人持续扰乱视听。
 
-现在大家看到共产党的经济一片大好。“世界富豪我们占了一多半，比美国厉害。然后我们是各国外长六个外长到中国来磕头，美帝国主义没有资格来评我们，我们现在上打宇宙下打地球，我们有歼20，我们有激光炮，我们还有冠状病毒。是吧？我们还有小粉红，我们有中国陆军——5亿个陆军。” 五亿，我的娘咧，五亿！这五亿人咋来啊？我的天，是抬着来还是爬着来呀？这5亿陆军横扫全地球，顺便大家可能还到月球上喝点酒去，这共产党太牛了。就让它这个感觉好，没这个，灭共赢不了。
+但就现在的局势来看，各国都在呼吁追查病毒来源，全世界媒体都在争相报道追查病毒真相的消息，越来越多的科学界专业人士都站出来加入到揭露中共病毒真相的队伍里来，病毒追责这个坎，中共肯定是过不去了。
 
-Now it seems to everyone that the CCP’s economy is so good. [The CCP says,] “We account for more than half of the world’s richest people, better than the United States. And we have foreign ministers of 6 countries coming to China to kowtow to us. American imperialism is not qualified to judge us. We can now launch a war not only in the space but also on the earth. We have F-20s, we have laser cannons, and we also have the coronavirus, right? We have Little Pinks, we have a Chinese army of 500 million soldiers.” Oh, my! 500 million! Where did they find the 500 million people? Oh, my God! How do they come here? By crawling or being carried by others? With 500 million soldiers sweeping the entire earth and possibly stopping by the moon to drink some wine, the CCP is too awesome! Just let it feel good because without this, we can’t win.
+从另一方面看，中共国农业生产方面高度依赖进口，工业、军事产业没有核心技术。除了核武器，谈起大国博弈，中共能用的武器实际上少之又少。这一点，习总加速师和他的党羽应该不会不清楚。
 
-不是说你一…认真大家要看看，希特勒从1932年到1944年，你去看看希特勒所有走过的路，是搞奥运会呀、大型体育活动啊、拍电影啊、大宣传啊、国家主义啊、把企业国家化啊、国家资本化啊、然后大修机场啊，然后呢你看跟日本联合去了，跟日本联合。当年你要想想，它要跟日本不联合的话，世界怎么会到今天这个样子。
+中共如今手上的牌就是他们过去几十年来用“蓝金黄”手段打通的西方利益集团，所谓的命运（利益）共同体。但是，看专家的分析可以知道，中共的经济如今非常糟糕，企业债、地方债，债务违约情况不断出现，爆雷频发。靠超发货币支撑起来的泡沫经济，支撑不了多久。
 
-Everyone should take a close look at the path that Hitler took between 1932 and 1944 – the Olympic Games, large-scale sports events, filmmaking, large-scale propaganda, nationalism, nationalizing private companies, state capitalism, and building airports. And what’s more, he allied with Japan. Think about this. If he didn’t ally with Japan, how could we have today’s world [the victory of the WWII]?
+与中共政权合作的利益集团看重的就是利益，从病毒追责到如今糟糕的经济状况，中共所面临的窘迫局面，这些“利益共同体”势必都看在眼里。拜登上台后，美国从军事、经济到外交，都没有停止加码遏制中共，这种趋势说明，美国的利益集团，已经开始转向了。美国开了头，其他国家也在跟进，欧盟对中共官员和企业的制裁就是典型的例子。
 
-跟日本去联合去了，就像共产党现在和俄罗斯联合一个道理、跟伊朗联合去了，哇噻！这多疯狂！ 什么都一样，然后攻击欧洲，然后对内部的老百姓一片欢腾！爱国主义到达了最顶峰。然后吃的、穿的看上去都很体面。打俄罗斯的时候前面是最先进的武器，后面全是马车牛车拉着这个供给线。打法国的时候一样，这面到巴黎了，那面还是马车牛车还在运东西呢。然后希特勒说我要研究太空武器，非常非常的像。
+“以利相交，利尽则散，以势相交，势败则倾。”这句话，生动刻画了中共政权如今面临的局面。共产党，你完了！
 
-Germany allying with Japan is just like the CCP allying with Russia right now, also with Iran. Wow! So crazy! Everything is so alike. When Germany attacked Europe, its people exulted and patriotism reached its peak. Their food and clothes all looked very decent. When they fought Russia, they put the best weapons in the front, but used horses and oxen for their supply transportation in the back. Same thing happened when they fought France – when they arrived at Paris, horses and oxen were still hulling supply. Well, Hitler claimed that he was going to develop space weapons – so similar [to the CCP]!
+[!\[\]()!\[\](https://spark.adobe.com/page/JpPSVNnnZF5Dm/images/85518f6d-b922-4e97-8db8-f2edd46adc3e.jpg?asset_id=fcc5716e-70bd-413f-94c5-b4a907573624&amp;img_etag=%2243f46eb27bbf8689fd1d1b89ad5257ed%22&amp;size=2560)](https://spark.adobe.com/page/JpPSVNnnZF5Dm/images/85518f6d-b922-4e97-8db8-f2edd46adc3e.jpg?asset_id=fcc5716e-70bd-413f-94c5-b4a907573624&amp;img_etag=%2243f46eb27bbf8689fd1d1b89ad5257ed%22&amp;size=1024)
 
-如果当时所有的二战的专家、科学家、军事专家，就我向他们请教的时候，他们都是一句话，说如果当时希特勒收回去，突然停下来了，说这个世界完全就变了，没有哪个国家包含美国敢去直接去打德国去。如果他不打莫斯科根本不可能，希特勒不会被灭的。
+**原文翻译：**
 
-All the WWII experts, scientists, and military experts that I have asked questions to basically gave me the same answer. If Hitler retreated and suddenly halted the invasion at that time, the world would be a completely different place because there would be no country, including the United States that would dare to fight against Germany directly. If Hitler did not fight Moscow, he would not be destroyed.
+## **中共国暗示其在台湾附近的军事活动是对入侵的“排练”**
 
-所以说现在你得看到共产党的疯狂，既打巴黎，又打英国，还打莫斯科。这个事情要不发生不从1935年的3月5号到1936年的3月6号撕毁整个《凡尔赛协议》，跨过莱茵河，十万大军到五十万大军完全干掉巴黎，希特勒他死不了。
+[!\[\]()!\[\](https://spark.adobe.com/page/JpPSVNnnZF5Dm/images/80573a9a-073b-44e4-b61b-80e24aa830f4.png?asset_id=3d2d6748-d3a8-4ee1-ba71-b70b685d44c2&amp;img_etag=%228b3bff79725bebc2f96ab8963e69f170%22&amp;size=2560)](https://spark.adobe.com/page/JpPSVNnnZF5Dm/images/80573a9a-073b-44e4-b61b-80e24aa830f4.png?asset_id=3d2d6748-d3a8-4ee1-ba71-b70b685d44c2&amp;img_etag=%228b3bff79725bebc2f96ab8963e69f170%22&amp;size=1024)
 
-So now you see the madness of the CCP, [which is like Hitler] attacking Paris, Britain, as well as Moscow. If Hitler didn’t tear up the entire “Versailles Agreement” between March 5, 1935 and March 6, 1936, and didn’t cross the Rhine, and completely wipe out Paris with an army of 100,000 to 500,000 soldiers, Hitler wouldn’t die like that.
+中共国官方的《环球时报》周二表示，中共国周一在台湾附近的军事演习“可能是武力统一（台湾）军事行动”的排练。
 
-这就是今天你看到了，我所有国内…因为企业的朋友太多啦，说：“你看看，文贵呀，啊，中国的富豪、北京的富豪占尽了世界多少。”大家仔细去看看，本质，要看本质，它连一块钱的价值生产都没有，全是泡沫。所有的泡沫根本…记住中国人现在所有的东西就是中国奴隶，就是中国十四亿人民被剥夺的生产力和那个财富，而且是膨胀化的。它对整个国家强大、人民富裕没半毛钱关系，零关系。
+[!\[\]()!\[\](https://spark.adobe.com/page/JpPSVNnnZF5Dm/images/1f11c99b-a322-4e27-a0a6-1d9fc86a88fd.png?asset_id=38f39832-4cae-4737-9ed6-7d4e9a775c88&amp;img_etag=%22685b98835fdb227d6e9a533fd0b9df95%22&amp;size=2560)](https://spark.adobe.com/page/JpPSVNnnZF5Dm/images/1f11c99b-a322-4e27-a0a6-1d9fc86a88fd.png?asset_id=38f39832-4cae-4737-9ed6-7d4e9a775c88&amp;img_etag=%22685b98835fdb227d6e9a533fd0b9df95%22&amp;size=1024)[环球网：大陆军机“创纪录”行动，是“针对美航母”吗？](https://mp.weixin.qq.com/s/xgmYX4_MhrPAcw3zKxA7mg)
 
-This is what you have seen today. I have many business friends in mainland China, who always say this: “Look, Miles, so many rich people in this world are Chinese and from Beijing.” But let’s take a closer look and look at the essence of this thing – They do not produce a dollar’s value, and everything is a bubble. Remember that everything that the Chinese people possess right now is made by the Chinese slaves, that is, the productivity and wealth deprived of the 1.4 billion Chinese people, and besides, it is inflated [like bubbles]. It has nothing to do with the whole nation being strong and the people being prosperous.
+这个中国共产党(CCP)的喉舌4月13日写道：“中国人民解放军(PLA)周一在台湾岛附近进行了一次演习，是有史以来出动战机最多的一次，这可能是武力统一（台湾）军事行动的排练。”
 
-大家看到这个本质的时候你再看香港，香港和大陆过去这几个月大家知道，加拿大、欧洲几千亿美元地往外流，而且香港的社会几乎处在崩溃的边缘，而且香港的整个崩溃最后它都复制到台湾去，它最后一定打台湾。所以它打台湾的时候就会像当年希特勒去打英国一样，然后呢美国一介入，他就希特勒去打莫斯科了，他就会攻击美国或者攻击日本，结束了！
+台湾国防部(MND)在一份声明中称，4月12日，中国人民解放军部署了25架飞机飞越台湾，并突破了台湾的防空识别区(ADIZ)。
 
-After you have seen the essence of these things, please then look at Hong Kong. We know that in the past few months, Hong Kong and mainland China had hundreds of billions of dollars flowing out to Canada and Europe, and Hong Kong’s society is almost on the verge of collapse. Besides, Hong Kong’s situation will be completely duplicated to Taiwan, and in the end, the CCP will definitely attack Taiwan. So when the CCP attacks Taiwan, it will be like Hitler attacking Britain, and that as soon as the United States intervened, Hitler went to fight Moscow. Similarly, the CCP will attack the United States or Japan, then it will be finished!
+军事网站Janes周一援引台湾国防部(MND)的声明报道，解放军的演习包括“14架歼-16、4架歼-10多用途战斗机、4架轰-6K战略轰炸机、2架空潜-200反潜(ASW)巡逻战机以及1架空警-500机载预警和控制(AEW&C)平台。”
 
-七哥今天主要说的事情，客观地、冷静地看待共产党今天的自嗨和疯狂，这是爆料革命最佳的机会。
+这是自2020年9月台湾开始公开报道解放军飞机在台湾上空活动以来，解放军在台湾附近最大的一次出动。
 
-What your Brother Miles is trying to say today is that you should look at the CCP’s self-confidence and madness today objectively and calmly because it presents the best opportunity for our Whistleblower Movement.
+“自从2020年9月17日台湾国防部开始公布有关解放军飞机飞行活动的信息以来，4月12日演习中展示的解放军(PLA)战机数量创下了记录，超过了此前3月26日20架的记录。重型战斗机歼-16的数量也是历次演习中规模最多的一次。”《环球时报》周二吹嘘道。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=607053ef6e11a756eddd33df](https://gtv.org/video/id=607053ef6e11a756eddd33df) (1:04:48-1:05:48, 1:06:08-1:10:27)
-鸣谢：感谢 Bruce(文远)、YIMING（文鸣）、山川异域提供中文文本于 [https://gnews.org/zh-hans/1074690/](https://gnews.org/zh-hans/1074690/)
+中共国军事专家、电视评论员宋忠平表示：“演习可以说是（解放军）对台湾岛作战计划的排练，其特征可能是夺取空中优势，并打击包括外国干涉军舰在内的陆海目标。”
 
-* * *
+解放军4月12日在台湾附近创纪录的演习是针对美国早前在4月10日发布的新准则的直接回应，该准则旨在“深化”美国与台湾的非官方关系。
 
-字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+《环球时报》周一写道：“在美台双方做出了一系列的挑衅性动作之后，解放军进行的演习向台湾的分裂主义者和美国发出了警告。”
 
-0
+“美国国务院在4月10日（星期六）宣布了一项新准则，鼓励美国政府与台湾交往，这反映了美台‘不断深化的非官方关系’。台湾官员最近也声称，台湾正在规划一条离岛30海里的线，以阻止解放军飞机接近。”该报指出。
+
+中共国认为台湾是一个叛变的省，并誓言，如有必要，将通过武力将位于其东南沿海的台湾岛与大陆统一。
+
+🔗[原文链接](https://www.breitbart.com/asia/2021/04/14/china-hints-military-activity-near-taiwan-rehearsal-invasion/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+breitbart+%28Breitbart+News%29)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/JpPSVNnnZF5Dm/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/JpPSVNnnZF5Dm/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+
++2

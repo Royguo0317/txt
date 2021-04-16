@@ -1,31 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【各抒己见】钱，财富与生命的思考
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1100730/)
+## 【热点播报】德国即将从阿富汗撤军
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1100736/)
 
-作者：喜马拉雅东京樱花团 / mia ba
+**据德国镜报杂志2021年4月16日报道，德国防部长安内格雷特-克朗普-卡伦鲍尔（Annegret Kramp-Karrenbauer）在一项日常命令中宣布，德国联邦国防军将于今年8月中旬从阿富汗全部撤军。**
 
-![](https://lh3.googleusercontent.com/vKa0B9mEA4Ns-DB5EqA_hkM6YS8bJ5NLqtGVFYYIZdfF9KtKFcTl4e6Jx9aIAPMHttxSQMPI0P9Irm-zmikHgrCVPcKBGqR5gK1zaTGSM645EbyZsiSC0FxQbRrED8vNLv0fmYAK)
+翻译：Nancy
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-28.png)**德国联邦国防军士兵在马扎里沙里夫机场(档案照片)**
+**据报道，国防部长对撤军的具体时间已经有了一个初步的时间表。她表示，“如果一切能按计划进行，德国部队最早将于8月中旬全部撤离阿富汗。”  该报道指出，国防部长安内格雷特-克朗普-卡伦鲍尔此番话是她在与联邦国防军总检查长 埃伯哈德-佐恩（Eberhard Zorn）一起在每日例行会议上宣布这项命令的。**
 
-辛特勒名单中主人公有一段精彩的话，大概意思是，如果我知道这些钱可以救出更多的人命， 我是不会还想着留点钱的，我责备自己的行为，后悔没有救出更多的人，生命才是最有价值的东西。
+**报道指出，北约组织理事会（NATO  North Atlantic Treaty Organisation）周三决定，从5月1日开始北约部队将陆续撤离阿富汗，军事撤离会在数月内完成。目前，德国在阿富汗的驻军约有1300名。如撤离行动进展顺利，德国联邦国防军会比美国士兵更早离开危机地带。**
 
-钱，商品社会中的货币，代表社会的物质财富。 财富，可以是口渴时得到一瓶矿泉水，可以是心脏病发作时一位好心路人的援救，可以是麦琪的礼物，可以是最后一片绿叶，可以是卖火柴小女孩的奶奶，可以是漫天谎言中被割的韭菜们与七哥的邂逅…… 生命，是神赐的礼物，是一切财富的地基，也应是创造财富和财富服务的对象。
+**镜报指出，美国从阿富汗撤军最迟会在纽约世贸中心和华盛顿美国国防部遇袭20周年纪念日-    即今年的9月11 号完成，众所周知，这是美国派兵入驻阿富汗的导火索。据悉，这是美国总统拜登对美撤军的设想。除美国人外，其他国际部队在阿富汗驻军的总人数大约为7000名。**
 
-正常的逻辑本该是生命衍生财富衍生金钱，然而扭曲的现实是，生命供血财富供血金钱。生命，天然最尊贵的东西，如今成为被奴役的东西。钱，已经走向了生命的对立面。有钱的人未必有财富，比如功成名就的人也会在老年后悔没有珍惜一些值得的人值得的缘分。
+**译者评：**
 
-有财富的人未必有钱，比如家庭美满子孙满堂却美中不足清贫如洗，比如清官往往两袖清风。钱只有维护生命了才代表财富，否则它代表奴役生命的恶。钱代表财富时往往有益于生命，钱不代表财富时往往是生命的灾祸。财富是什么?是生命的道，有益于生命的存在，符合生命规律的事物因缘，有形无形皆可。人类社会，人与人之间必然需要交流和互换，因此总要有东西代表财富，便于衡量互通有无，钱应运而生。
+**2001年9月11日对美国的恐怖袭击事件引发了美国派驻军队进入阿富汗。国际军事行动导致 “基地 “组织首领乌萨马-本-拉登的塔利班政权倒台。美国前总统特朗普（Donald Trump）曾承诺今年5月前美国从阿富汗撤军，期间塔利班与喀布尔政府也进行了多次直接和谈。无疑，这对现任美国总统拜登和北约组织都是一种压力。**
 
-无论何时何地，人们都应记得，钱没有财富重要，比如一时得失和人生财富的对比。财富没有生命重要，比如爱情固然珍贵，但没有性命攸关。而人们往往不分时机场合地，一律处理成钱比生命重要，比如火灾时留恋钱包财物，辛特勒名单里主人公贪恋金钱财物少救出好多人。一律处理成钱比财富重要，比如为了功利地位抛弃年轻时纯真的爱情，年老时回忆遗憾后悔，比如中年拼事业老年思念父母人已不在。盲目的生活不如不活。钱，财富，生命。这一主题融入人们的生活，无时无刻不拷问人们的价值观。我们每个人都是辛特勒，在金钱利益与爱护生命中取舍。
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
 
-*校对：喜马拉雅东京樱花团 /東洋武士*
-*责任编辑：喜马拉雅东京樱花团 /文小白*
-*发布：喜马拉雅东京樱花团 /霹雳年2020*
+审核/校对/发稿 奇门遁甲
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/二维码-1.jpg)
+原文链接: [Afghanistan: Bundeswehr soll schon Mitte August abziehen – DER SPIEGEL](https://www.spiegel.de/politik/deutschland/afghanistan-bundeswehr-soll-schon-mitte-august-abziehen-a-88f447f3-dcb6-4175-b859-2affe5613b70)
 
-0415C079c
+**更多资讯，更多关注**
 
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://mail.google.com/mail/u/0?ui=2&amp;ik=6ac942a4c5&amp;attid=0.1.1&amp;permmsgid=msg-f:1697211554661162166&amp;th=178db4eab0445cb6&amp;view=fimg&amp;sz=s0-l75-ft&amp;attbid=ANGjdJ_MF9refeF-bd25VajoR4jiEMIP6XRRLnVZYSEhjS8M19zkZz9HVu-IpmwCycBFQc8tu7Q38feMsK7BGcLwbE92G638znupYW7M7IZq5jXOugvR5IVfsGowdsU&amp;disp=emb)
 0

@@ -1,37 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】德国即将从阿富汗撤军
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1100736/)
+## 美国官方首次承认中共病毒起源于武汉实验室理论不是阴谋论
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1100763/)
 
-**据德国镜报杂志2021年4月16日报道，德国防部长安内格雷特-克朗普-卡伦鲍尔（Annegret Kramp-Karrenbauer）在一项日常命令中宣布，德国联邦国防军将于今年8月中旬从阿富汗全部撤军。**
+#### 翻译：nstar | 责编：人间四月
+![]()![](https://gnews.org/wp-content/uploads/2021/04/武汉.jpg)图片来源：Woxx
+《华盛顿时报》发表比尔 .格茨先生的最新报道，称国家情报局长办公室（ODNI）的主任艾弗里尔·海恩斯（Avril Haines）于2021年4月14日（星期三）在华盛顿的国会山参议院情报精选委员会上听取了有关中共病毒在世界范围内威胁的证据。
 
-翻译：Nancy
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-28.png)**德国联邦国防军士兵在马扎里沙里夫机场(档案照片)**
-**据报道，国防部长对撤军的具体时间已经有了一个初步的时间表。她表示，“如果一切能按计划进行，德国部队最早将于8月中旬全部撤离阿富汗。”  该报道指出，国防部长安内格雷特-克朗普-卡伦鲍尔此番话是她在与联邦国防军总检查长 埃伯哈德-佐恩（Eberhard Zorn）一起在每日例行会议上宣布这项命令的。**
+武汉病毒学研究所和中共国的其他实验室一直是美国情报机构关注的焦点，他们正在寻找致命疾病暴发根源的线索，她次以DNI身份对国会表示，目前主要研究两种中共病毒的来源可能性：要么是从中共国实验室发生的事故，要么就是通过将其传染给人类的受感染动物开始的。
 
-**报道指出，北约组织理事会（NATO  North Atlantic Treaty Organisation）周三决定，从5月1日开始北约部队将陆续撤离阿富汗，军事撤离会在数月内完成。目前，德国在阿富汗的驻军约有1300名。如撤离行动进展顺利，德国联邦国防军会比美国士兵更早离开危机地带。**
+这样的说法与世界卫生组织-中共国政府联合报告的最新结论相矛盾，该报告认为实验室来源理论“极不可能”。
 
-**镜报指出，美国从阿富汗撤军最迟会在纽约世贸中心和华盛顿美国国防部遇袭20周年纪念日-    即今年的9月11 号完成，众所周知，这是美国派兵入驻阿富汗的导火索。据悉，这是美国总统拜登对美撤军的设想。除美国人外，其他国际部队在阿富汗驻军的总人数大约为7000名。**
+几个月前，美国科学家曾将这种病毒从中共国实验室泄漏的理论称为“阴谋论”。海恩斯女士对实验室泄漏理论的说法，是高级情报官员首次就该病毒在中共国实验室中起源可能性发表的官方评论。
 
-**译者评：**
+国务院在该研究所1月发布了一份情况说明书，称有大量间接证据表明中共病毒始于中共国实验室。证据包括：（1）实验室的工人在2019年秋季患上了类似中共病毒的症状;（2）研究蝙蝠冠状病毒，这种病毒与导致中共病毒SARS-CoV-2相似，相似度为96％；（3）和中共军方在实验室进行的秘密工作，该实验室在那里进行了动物实验。
 
-**2001年9月11日对美国的恐怖袭击事件引发了美国派驻军队进入阿富汗。国际军事行动导致 “基地 “组织首领乌萨马-本-拉登的塔利班政权倒台。美国前总统特朗普（Donald Trump）曾承诺今年5月前美国从阿富汗撤军，期间塔利班与喀布尔政府也进行了多次直接和谈。无疑，这对现任美国总统拜登和北约组织都是一种压力。**
+这些证词与中共政府有关该病毒不可能来自其实验室的主张相矛盾。
+
+中共国和世卫组织联合研究的中方负责人梁万年表示，专家“一致同意”，“这种病毒极不可能从实验室泄漏出去。”梁先生说，因此，除非提出新的证据，否则未来的病毒起源追踪任务将不再专注于实验室逃逸理论。
+
+海恩斯女士没有提供这两种理论的细节，但强调情报界并不确切知道该中共病毒在何处，何时或如何出现和传播。她说，情报机构正在继续收集有关中共病毒起源的信息。委员会共和党副主席佛罗里达州参议员马可·卢比奥（Marco Rubio）说，发生实验室事故是合理的，因为“迄今为止，尚未明确这种人畜共患病的传播途径。”他还说：“武汉病毒学研究所的研究人员从他们的出版物中证明，他们熟练地对蝙蝠冠状病毒进行了改造，从而创造出了新的人造病毒，这些新病毒具有很高的能力，能够在人类中传染疾病。”他说，中共国已经记录了几起实验室病毒泄漏事件，包括最初的SARS病毒。卢比奥先生还指出，曾访问过设有高安全性生物研究实验室的武汉病毒研究所的美国外交官在2018年就警告说，那里的安全性很差。他说：“我们无法得出结论，中共病毒是自然产生的，除非存在一条确定该病毒如何在物种之间进化和传播的证据链。”
+
+中情局局长威廉·伯恩斯（William Burns）也在星期三向参议院小组作证时说，他同意海恩斯女士的看法。伯恩斯先生作证说：“我们和我们的分析师清楚一件事是，在与世卫组织合作或提供那种能帮助回答这些问题的原始完整数据方面，中共并没有完全胜任或完全透明。”
+
+评：根据约翰·霍普金斯大学的资料，迄今为止, 中共病毒已经夺走了全球约有290万人的生命。中共仍然在撒谎, 人们仍在继续因为中共病毒生病、死亡。 中共国的魔鬼们, 你们真的认为可以逃脱得了世界人民对你们的惩罚吗? 听着,那肯定是不可能的! 中共 你完了!!!
+
+参考链接：
+
+1. [China: Wahn lässt sich nicht eindämmen](Wahn%20lässt%20sich%20nicht%20eindämmen)
+2. [Coronavirus weltweit: Die Welt steuert laut WHO auf die höchste Infektionsrate seit Pandemiebeginn zu, Bhutan impft fast alle seine Erwachsenen in 13 Tagen](https://www.washingtontimes.com/news/2021/apr/14/covid-19-began-lab-accident-infected-animal-haines/)
 
 
-
-审核/校对/发稿 奇门遁甲
-
-原文链接: [Afghanistan: Bundeswehr soll schon Mitte August abziehen – DER SPIEGEL](https://www.spiegel.de/politik/deutschland/afghanistan-bundeswehr-soll-schon-mitte-august-abziehen-a-88f447f3-dcb6-4175-b859-2affe5613b70)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![](https://mail.google.com/mail/u/0?ui=2&amp;ik=6ac942a4c5&amp;attid=0.1.1&amp;permmsgid=msg-f:1697211554661162166&amp;th=178db4eab0445cb6&amp;view=fimg&amp;sz=s0-l75-ft&amp;attbid=ANGjdJ_MF9refeF-bd25VajoR4jiEMIP6XRRLnVZYSEhjS8M19zkZz9HVu-IpmwCycBFQc8tu7Q38feMsK7BGcLwbE92G638znupYW7M7IZq5jXOugvR5IVfsGowdsU&amp;disp=emb)
 0

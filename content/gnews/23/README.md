@@ -1,59 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104016（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1101152/)
+## 白宫称美从阿撤军后注意力转向太平洋地区
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1101277/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/A-18.jpg)arise.tv
+04月16日，据路透社援引一名白宫官员的话报道，从阿富汗撤军后，美国打算将注意力集中在太平洋地区。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+“现在西太平洋地区出现了严重的问题，阿富汗确实受到了领导层过多的时间、关注和重视。”白宫说。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01-5.jpg)
+为此，美国总统乔·拜登定于4月16日与日本首相菅义伟会面。双方打算讨论台湾问题、中共国维吾尔族穆斯林的处境和中共国对香港的政策。此外，还将讨论反制中共国华为影响力的问题。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02-6.jpg)
+4月14日，拜登宣布美军从阿富汗撤军。这一进程计划在今年9月11日完成，这是“基地”组织在纽约发动恐怖袭击20周年之际完成。部队撤离将于5月1日开始。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03-5.jpg)
+据拜登介绍，这一决定是在与喀布尔官方和美国其他盟友协商后作出的。另外，拜登还与前总统乔治·布什进行了磋商，当时在他的领导下，美军被部署到阿富汗。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-6.jpg)
+俄罗斯外交部批评了美国的决定。它说，撤军将使阿富汗的和平进程复杂化。俄外交部称拜登的决定“明显违反了去年2月在多哈达成的美塔协议”。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05-7.jpg)
+按照拜登本人的说法，美国向阿富汗派兵是为了终结“基地”组织领导人乌萨马·本·拉登，让该国不再成为恐怖分子的避风港。总统指出，美国并不打算推动阿富汗的统一。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06-5.jpg)
+参考链接：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-9.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-10.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-12.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-6.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/18-4.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/19-4.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/20-4.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/21-2.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
+[https://www.rbc.ru/rbcfreenews/6078ee539a794714b4816516](https://www.rbc.ru/rbcfreenews/6078ee539a794714b4816516)
 
 0

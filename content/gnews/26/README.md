@@ -1,23 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登称美俄是对全球稳定负责的大国
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1101104/)
+## 慧眼看世界202104016（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1101152/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/P.png)usapoliticstoday.org
-04月16日，乔·拜登称俄罗斯和美国是对全球稳定负责的大国。美国领导人的讲话由白宫播出。
 
-“（俄罗斯总统）弗拉基米尔·普京和我──我们有重大的责任来保持这种关系。我非常认真地对待这一责任，我相信他也是如此。”拜登补充说，并指出他和俄罗斯同行之间的对话是开放和尊重的。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-美国总统还列举了俄罗斯人和美国人之间的类似特征。他说，他们是两个“自豪而爱国的人”，他们对和平和安全的未来感兴趣。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-5.jpg)
 
-4月13日，普京和拜登进行了电话交谈。克里姆林宫表示，在谈话中，双方表示愿意继续就全球安全最重要的领域进行对话，这将符合俄罗斯、美国和整个全球社会的利益。拜登还向普京提出了亲自会面提议。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-6.jpg)
 
-参考链接：
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-5.jpg)
 
-[https://www.rbc.ru/rbcfreenews/60791baa9a794720506eb046](https://www.rbc.ru/rbcfreenews/60791baa9a794720506eb046)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-9.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-10.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-12.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-8.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/18-4.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/19-4.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20-4.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/21-2.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0
