@@ -1,181 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第五、六节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1100722/)
+## 【圣城传声筒】8.18 案判刑 和平集会竟受政治迫害
+` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1100615/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+推荐/点评：纽约香草山香港部
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/D-6.jpg)reddit.com
-**本节要点：**
+**资料来源：立场新闻以及众新闻**
 
-鼓励盟国和伙伴发挥更大的作用，制止中共国的侵略和强势行为。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
 
-每个联邦部门和机构的负责人应指定一名副部长或以上级别的高级官员，协调该部门或机构与中共国的战略竞争政策。
 
-如果我们的注意力一再转移到与美国经济和国家安全利益无关的挑战上，美国执行与中共国战略竞争战略的能力将受到损害。
 
-美国必须阻止中共国在印度洋-太平洋建立区域霸权，以及中共在全世界推进其独裁的政治、经济和外交政策为目标（的野心）。
+前年的 8.18 维园集会案今日（16 日）在西九龙裁判法院求情和判刑，法庭上午会先处理经审讯后被裁定罪成的李柱铭、吴霭仪等 7 人的求情；下午将处理早已认罪的区诺轩和梁耀忠判刑。
 
-美国必须确保联邦预算与中共国竞争的战略要务保持适当的一致。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-16-at-16.52.22.jpeg)
 
-美国必须确保所有联邦部门和机构的组织，以反映与中共国的战略竞争是美国外交政策的最高优先事项，包括通过美国对政府人员的任务委派和人员增派。
+82 岁的民主党创党主席兼现今资历最深的资深大律师李柱铭、73 岁的公民党立法会前议员及大律师吴霭仪，以及 72 岁的壹传媒创办人黎智英等均首次被定罪，两项罪名分别为“组织未经批准集结”及“明知而参与未经批准集结”，或面临每项控罪最高 5 年监禁。众多被告中，李柱铭最年迈，在法庭身经百战大半世纪，这名全港资历最深的大状，却也被送上法庭审讯、求情；73岁的大律师吴霭仪亦为民主派“老将”，由传媒人走到法律界，在九七过渡时期走进议会，去年9月与李柱铭同获国际大律师组织，颁予年度法律执业者人权领域杰出贡献奖。
 
-欲了解更多的內容，请看本两节全文（仅供参考）。
+吴霭仪亲自求情内容
 
-**第5节 国会意识**
+吴霭仪解除代表律师职务，在庭上亲自求情，指自己1981年在英国剑桥大学修读法律，当年正值中英就香港97问题，草拟联合声明的关键几年，对港人于1997后的生活方式、享有多少自由尤其重要。吴指她回港后，先加入《明报》从事编采工作，因为她认为新闻自由对香港前途，有着非常重要的角色。到1990年，她正式投身法律界，并于1995年，循法律界功能组别加入立法会，前后担任立法会议员一共18年。
 
-国会认为，执行第4（b）节所述政策需要采取以下行动：
+吴指18年来，一直尽力守护法治，当人民权利被侵犯，就要强硬回应。例如在1997吴嘉玲案，人大首次释法推翻终审法院裁决，引来极大回响，她与法律界超过 600 人发起静默游行抗议。吴强调，法律应该是保障，而非夺去人民权利，亦只有这样才可赢取市民对政府的信任。
 
-（1）与中共国的战略竞争需要美国-
-（A）提升持续的政治意愿，保护其切身利益，促进其价值观，推动其未来几十年的经济和国家安全目标
-（B）为了实现这一持久的政治意愿，说服美国人民和美国的盟友和伙伴-
-（i）（认清）中共国提出的挑战
-（ii）需要长期竞争来捍卫共同的利益和价值观
+她续指，香港市民于过去多个重大时刻，一直守纪律、亦高度保持克制，例如2003年一役，即使去到2019年，6.9及6.16游行，分别有超过100及200万人游行，都和平有秩序，没有任何暴力发生。她指8.18当日，民阵公布都有170万人参与，但即使人数众多，当日又下大雨，过百万港人仍然有耐性、保持克制，连控方也不可争辩，当日事件和平结束，就连特首两日后，都公开指会尝试展开对话，证明方向正确。她指亦因为这样，她不能拋弃人民，要与他们肩并肩继续前行。
 
-（2）美国必须与盟国和伙伴密切协调，以有效地与中共国竞争，包括鼓励盟国和伙伴在适当情况下发挥更大的作用，平衡和制止中共国的侵略和强势行为。
+她最后引用英国著名法官的名句，指自己是法律的仆人，但人民行先于法律，因为法律必须为人民服务，而非相反。(I stand the law’s good servant, but the people’s first. For the law must serve the people, not the people the law.)
 
-（3）美国总统必须领导和指导整个行政部门，将中共国视为美国外交政策面临的最大地缘政治和地缘经济挑战，在执行外交政策时，增加与中共国和美国在印太地区更广泛利益的战略竞争的优先次序，并确保分配适当的资源以应对挑战。
+吴霭仪陈词后，庭上一片掌声。
 
-（4）每个联邦部门和机构的负责人应指定一名副部长或以上级别的高级官员，协调该部门或机构与中共国的战略竞争政策。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-16-at-16.52.22-1.jpeg)
 
-（5）如果我们的注意力一再转移到与美国经济和国家安全利益无关的挑战上，美国执行与中共国战略竞争战略的能力将受到损害。
+李卓人、何秀兰求情，由资深大律师戴启思代表
 
-（6）在未来几十年，美国必须阻止中共国-
-（A）在印度洋-太平洋建立区域霸权
-（B）利用这一立场在全世界达到其独裁的政治、经济和外交政策的目的
+戴启思介绍两人的政治生涯和背景，指两人致力服务社会，均曾是立法会议员。戴启思表示，现年 64 岁的李卓人在香港土生土长，毕业于香港大学，前后加入职工盟和工党，为劳工议题发声。
 
-（7）美国必须确保联邦预算与中共国竞争的战略要务保持适当的一致，通过-
-（A）确保为美国国家力量的所有工具提供足够的资金
-（B）连贯地优先考虑如何使用这些资金
+至于何秀兰，戴启思指她於 1998 年成为立法会议员，关注 LGBT 权益和妇女议题。2014 年，何秀兰更获政府委任为太平绅士。她一直致力争取一个更好的香港。戴启思呈交多封求情信。戴启思重申，李卓人和何秀兰当日抱持和平和安全态度参与游行，旨在疏散人群。
 
-（8）持续优先处理中共国提出的挑战需要-
-（A）国会内部的两党合作
-（B）行政部门和国会之间经常、持续和有意义的合作与协商
+黎智英代表大律师余若薇陈词
 
-（9）美国必须确保经济和外国政策制定者、私营部门、民间社会、大学和学术机构，以及受中共国挑战影响的自由和开放社会中的其他相关行动者，进行紧密的结合，使这些行动者能够-
-（A）合作促进共同利益
-（B）确定适当的政策-
-（i）加强美国及其盟国
-（ii）提升令人向往的自由和开放秩序的愿景
-（iii）抵制中共的有害政策
+代表黎智英的资深大律师余若薇指，控方所依赖的周庭及黄之锋 6.21 包围警总等案，涉及煽惑、组织和参与非法集结罪，与本案所控告的未经批准集结罪、暴力程度等，均有一定差异，且以往的未经批准集结罪多以罚款处理，故法庭不应判处监禁式刑罚。
 
-（10）美国必须确保所有联邦部门和机构的组织，以反映与中共国的战略竞争是美国外交政策的最高优先事项，包括通过美国对政府人员的任务委派和人员增派；利用-
-（A）在印度洋-太平洋地区、世界各地和华盛顿特区投入更多的人员，优先考虑推进与中共国的竞争
-（B）在印度洋-太平洋地区增加外国服务人员、国际发展专业人员、外国商业服务人员、情报专业人员和其他美国政府人员
-（C）确保该员工，无论是文职人员还是军队，都具备在语言、技术技能和其他能力方面的培训，以促进与中共国的成功竞争战略
+余又指，法庭不应忘记当日众多市民是因为合法的集会而前往维园，而黎智英不但没有参与事前的记者招待会，亦没有在案发时发言，角色非积极，故他不需就如此庞大规模的集结负上责任。余强调，警方当日没有警告或拘捕任何人，可见当日的“游行”属和平。
 
-（11）美国必须再次强调加强非军事手段，包括外交、信息、技术、经济、外国援助和发展金融、商业、情报和执法，这对于应对中共国独有的经济、政治和意识形态挑战至关重要。
+余重申，黎智英当日仅仅是行使受宪法保障的和平集会权利，故法庭不应不合比例地判处监禁式刑罚。若然法庭认为需判监，希望可考虑黎的个人状况及参与程度，处以缓刑。余另提及黎早前认罪的 8.31 游行案，指该案与本案事相隔仅两星期，亦不是被捕后在保释期间重犯，冀法庭可将两案视为同一事件，将判刑同期执行。
 
-（12）美国必须继续为太平洋威慑倡议提供资源，这项倡议应符合《亚洲放心倡议法》（公共法律115-409）中阐明的总体政治和外交目标，必须优先考虑实现美国在印度洋-太平洋地区政治目标所需的军事投资，包括：
-（A）促进印度洋-太平洋地区的区域安全
-（B）在保护盟国和伙伴免受胁迫的同时，安慰他们
-（C）制止与中共国的冲突
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-16-at-16.52.31.jpeg)
 
-（13）与中共国的竞争要求美国熟练地适应21世纪的信息环境，美国公共外交和信息传递努力必须有效地-
-（A）促进与美国的伙伴关系的价值观
-（B）突出与中共国建立联系的风险和成本
-（C）反中共宣传和制造谣言
+今日有不少市民在法院外排队，等候稍后入内旁听。专程来旁听的市民林先生表示，看到那么多民主派元老被定罪，感到很悲哀，慨叹他们守着香港民主自由那么多年，一直以和平理性方式争取，最后落得如此下场，但他勉励香港人撑住，“凭良心继续撑住，担心不了那么多事情了”。
 
-**第6节 规则解释**
+最终西九龙裁判法院法官以“组织未经批准集结”罪名，黎智英、李卓人判囚 12 个月。吴霭仪判囚 12 个月，缓刑 24 个月。梁国雄判囚 18 个月。何秀兰判囚 8 个月。何俊仁判囚 12 个月，缓刑 24 个月。梁耀忠判囚 8 个月，缓刑 12 个月。李柱铭判囚 11 个月，缓刑 24 个月。区诺轩判囚 10 个月。
 
-（a）对援助外国安全部队的现有限制的适用性。-本法的任何内容均不得解释为根据1961年《外国援助法》（22 U.S.C.2378d）第620M节，或者《美国法典》标题10第362节，来减少、取代或以其他方式限制或阻止美国政府的责任。
+点评：中共近期密集宣判香港的民主运动代表人物，主要目的有：1. 配合对内宣传以及大外宣，宣扬维护中共统治、不容否定和质疑的独裁价值观；2. 对国内、港澳地区的百姓起震慑作用，以应对因为西方国家不断施压而产生的政治不稳定性；3. 为下一步与西方国家进行政治谈判准备更多的筹码，一如既往的人质外交。但实际上中共已经一再严重错判国际形势。在新中国联邦爆料革命的促进下，西方国家已经开始从中共释放病毒祸害全球的困境中清醒过来，认清中共的黑、假、骗、偷等手段伎俩。期待以美国为首的西方国家能进一步对中共以及港共政府实施更有效致命的惩罚和制裁。
 
-（b）没有使用武力的授权 -本法的任何规定不得解释为授权使用武力。
 
-（第5、6节完）
 
-中共应该胆颤了，为了落实、协调本法案的实施，法案要求每个部或机构指定专人负责，级别是副部长或相同级别的要员，且从人力、财力给予了最大的优先权。邪共，你死期已到！
+校对/发稿：飞宇
 
-原文链接：
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-16-at-17.34.21.jpeg)
 
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+**更多资讯，更多关注**
 
-文字整理：
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-SEC. 5. SENSE OF CONGRESS.
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-It is the sense of Congress that the execution of the policy described in section 4(b) requires the following actions:
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-(1) Strategic competition with the PRC will require the United States –
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-(A) to marshal sustained political will to protect its vital interests, promote its values, and advance its economic and national security objectives for decades to come; and
-
-(B) to achieve this sustained political will, persuade the American people and United States allies and partners of –
-
-(i) the challenges posed by the PRC; and
-
-(ii) the need for long-term competition to defend shared interests and values.
-
-(2) The United States must coordinate closely with allies and partners to compete effectively with the PRC, including to encourage allies and partners to assume, as appropriate, greater roles in balancing and checking the aggressive and assertive behavior of the PRC.
-
-(3) The President of the United States must 8 lead and direct the entire executive branch to make the People’s Republic of China as the greatest geopolitical and geoeconomic challenge for United States foreign policy, increasing the prioritization of strategic competition with the PRC and broader United States interests in the Indo-Pacific region in the conduct of foreign policy and assuring the allocation of appropriate resources adequate to the challenge.
-
-(4) The head of every Federal department and agency should designate a senior official at the level of Under Secretary or above to coordinate the department’s or agency’s policies with respect to strategic competition with the PRC.
-
-(5) The ability of the United States to execute a strategy of strategic competition with the PRC will be undermined if our attention is repeatedly diverted to challenges that are not vital to United States economic and national security interests.
-
-(6) In the coming decades, the United States must prevent the PRC from –
-
-(A) establishing regional hegemony in the Indo-Pacific; and
-
-(B) using that position to advance its assertive political, economic, and foreign policy goals around the world.
-
-(7) The United States must ensure that the Federal budget is properly aligned with the strategic imperative to compete with the PRC by –
-
-(A) ensuring sufficient levels of funding to resource all instruments of United States national power; and
-
-(B) coherently prioritizing how such funds are used.
-
-(8) Sustained prioritization of the challenge posed by the PRC requires –
-
-(A) bipartisan cooperation within Congress; and
-
-(B) frequent, sustained, and meaningful collaboration and consultation between the executive branch and Congress.
-
-(9) The United States must ensure close integration among economic and foreign policymakers, the private sector, civil society, universities and academic institutions, and other relevant actors in free and open societies affected by the challenges posed by the PRC to enable such actors –
-
-(A) to collaborate to advance common interests; and
-
-(B) to identify appropriate policies –
-
-(i) to strengthen the United States and its allies;
-
-(ii) to promote a compelling vision of a free and open order; and
-
-(iii) to push back against detrimental policies pursued by the CCP.
-
-(10) The United States must ensure that all Federal departments and agencies are organized to reflect the fact that strategic competition with the PRC is the United States top foreign policy priority, including through the assigned missions and location of United States Government personnel, by –
-
-(A) dedicating more personnel in the Indo Pacific region, at posts around the world, and in Washington DC, with priorities directly relevant to advancing competition with the People’s Republic of China;
-
-(B) placing greater numbers of foreign service officers, international development professionals, members of the foreign commercial service, intelligence professionals, and other United States Government personnel in the Indo-Pacific region; and
-
-(C) ensuring that this workforce, both civilian and military, has the training in language, technical skills, and other competencies required to advance a successful competitive strategy with the PRC.
-
-(11) The United States must place renewed emphasis on strengthening the nonmilitary instruments of national power, including diplomacy, information, technology, economics, foreign assistance and development finance, commerce, intelligence, and law enforcement, which are crucial for addressing the unique economic, political, and ideological challenges posed by the PRC.
-
-(12) The United States must sustain resourcing for a Pacific Deterrence Initiative, which shall be aligned with the overarching political and diplomatic objectives articulated in the Asia Reassurance Initiative Act (Public Law 115-409), and must prioritize the military investments necessary to achieve United States political objectives in the Indo-Pacific, including –
-
-(A) promoting regional security in the Indo-Pacific;
-
-(B) reassuring allies and partners while protecting them from coercion; and
-
-(C) deterring conflict with the PRC.
-
-(13) Competition with the PRC requires the United States skillful adaptation to the information environment of the 21st century. United States public diplomacy and messaging efforts must effectively –
-
-(A) promote the value of partnership with the United States;
-
-(B) highlight the risks and costs of enmeshment with the PRC; and
-
-(C) counter CCP propaganda and disinformation.
-
-SEC. 6. RULES OF CONSTRUCTION.
-
-(a) APPLICABILITY OF EXISTING RESTRICTIONS ON ASSISTANCE TO FOREIGN SECURITY FORCES. -Nothing in this Act shall be construed to diminish, supplant, supersede, or otherwise restrict or prevent responsibilities of the United States Government under section 620M of the Foreign Assistance Act of 1961 (22 U.S.C. 2378d) or section 362 of title 10, United States Code.
-
-(b) NO AUTHORIZATION FOR THE USE OF MILITARY FORCE. – Nothing in this Act may be construed as authorizing the use of military force.
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
