@@ -1,63 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 吉姆·乔丹议员在听证会上愤怒质询福奇
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1101089/)
+## 慧眼看世界202104016（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1101152/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/J-6.jpg)thehill.com
-老贼福奇怎么还没有被“双规”？竟然在昨天的听证会上继续强词夺理，还有民主党议员为老贼叫好。
 
-《门道专家》发文，“你这就是这样工作的？福奇，我要问你问题！“众议员吉姆·乔丹让傲慢的福奇就范。【1】
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-文章说，议员吉姆·乔丹（Jim Jordan）周四对福奇在中共病毒疫情缓解措施上的失误进行了严厉批评。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-5.jpg)
 
-众议院司法委员会的资深成员乔丹要求福奇给他一个结束中共病毒期限的日期。吉姆·乔丹说，“15天减缓扩散，变成了失去自由的一年。”
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-6.jpg)
 
-毫无疑问，一位未经选举、薪酬过高的官僚福奇说：“我不认为这是一件自由的事情，乔丹议员，我认为这是公共卫生问题。”
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-5.jpg)
 
-当然不是，福奇不欠人民，也没有宣誓捍卫宪法。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-6.jpg)
 
-乔丹议员让傲慢的福奇就范。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-7.jpg)
 
-“两年后我们会戴着口罩来这里吗？” 乔丹议员追问福奇。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-5.jpg)
 
-“你又在嚷了。” 浮夸的福奇反驳道。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-5.jpg)
 
-“你这就是这样工作的？福奇，我要问你问题！” 吉姆·乔丹说。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-5.jpg)
 
-原文链接了乔丹议员质问老贼的推特视频。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-5.jpg)
 
-《福克斯新闻》也进行了相关报道【2】，众议院中共病毒特别小组委员会星期四举行了一个名为“到达隧道尽头的光明：结束中共病毒”的听证会，俄亥俄州共和党众议员吉姆·乔丹向安东尼·福奇质询，在解除限制方面，这一结局何时可能成为现实？
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-9.jpg)
 
-乔丹议员直截了当地指出，福奇最近写道，现在还不是停止那些采取的预防措施的时候，例如社交距离、避免集会和戴口罩。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-10.jpg)
 
-“什么时候？” 乔丹问道，“美国人什么时候能重获自由？”
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-12.jpg)
 
-福奇回答：“当我们把这个国家的感染水平降到足够低的程度时，也就是构不成真正的高威胁的时候。”
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-8.jpg)
 
-乔丹议员继续要求提供具体细节，以确定那个够低的水平。“什么是足够低？给我一个数字……什么标准，什么措施，在美国人获得自由之前还能发生什么？” 他问。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-7.jpg)
 
-福奇回答说，他的信息是要确保尽可能多的美国人尽快接种疫苗，“使这个国家的感染水平降低，不再构成威胁，就是那个时候。”他回答。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-6.jpg)
 
-乔丹对回答不满意，问福奇什么时候达到这个水平？“在美国人重新获得自由和自由之前，我们必须达到什么样的水平？” 他问。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-5.jpg)
 
-乔丹议员随后列出了一些限制条件，比如人们不能或接受限制去礼拜堂，去年秋天俄亥俄州实行宵禁，以及限制客人到家……
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-5.jpg)
 
-此时，加州民主党老婆娘马克辛·沃特斯（Maxine Waters）出来帮腔福奇，插话说：“福奇，我爱你。”
+![]()![](https://gnews.org/wp-content/uploads/2021/04/18-4.jpg)
 
-……
+![]()![](https://gnews.org/wp-content/uploads/2021/04/19-4.jpg)
 
-“15天减缓扩散，变成了失去自由的一年。”一年？邪共不除一年算是刚刚起步！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20-4.jpg)
 
-老贼福奇资中共研毒，助中共制毒，为中共瞒毒，诋毁天使闫博士，反对使用羟氯喹，至今还在推销疫苗。美国对邪恶中共的认知太慢，老贼如此地若无其事，甚至还有民主党婆娘当场力挺，看来，认知邪共并非易事！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/21-2.jpg)
 
-参考链接：
+本文仅代表作者观点
 
-【1】[https://www.thegatewaypundit.com/2021/04/works-dr-fauci-get-ask-questions-rep-jim-jordan-puts-arrogant-fauci-place-video/](https://www.thegatewaypundit.com/2021/04/works-dr-fauci-get-ask-questions-rep-jim-jordan-puts-arrogant-fauci-place-video/)
-
-【2】[https://www.foxnews.com/politics/maxine-waters-jim-jordan-fauci-erupts-shouting-match-shut-your-mouth](https://www.foxnews.com/politics/maxine-waters-jim-jordan-fauci-erupts-shouting-match-shut-your-mouth)
+发稿：Ranting
 
 0

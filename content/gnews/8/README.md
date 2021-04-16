@@ -1,28 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 巴西P.1变种病毒传染性增2倍，重症患者多为年轻人！
-` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1101141/)
+## 【热点播报】美国心脏科医生对中共病毒疫苗发出警告
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1101325/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/74792846-8099-4338-83E6-31C341C2DF1B_4_5005_c.jpeg)图片来源：https://www.firstpost.com
-#### 加拿大多伦多枫叶农场   丁过
+纽约香草山写作组     四季
 
-被称为P.1的CCP变种病毒首次被发现，是在今年1月2日的4名巴西人身上检测到的，几天内经巴西国家传染病研究所确定后迅速报告了WHO。随即WHO对P.1进行了披露:[它最初于去年](https://science.sciencemag.org/content/371/6526/288)12月4日在巴西的亚马逊地区[检测到](https://science.sciencemag.org/content/371/6526/288)，不到一个月后，即截至1月21日，该地区91%的新冠病毒感染者感染了P.1。WHO宣布，P.1的传染性是原始CCP病毒的两倍！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-据研究，由于**P.1**产生了突变，它可以逃避人体免疫系统已产生的抗体反应，对被感染者进行多系统攻击，这是P.1能够对已产生抗体的人重新感染的原因，已有大量证据及统计学数据表明，P.1使现有疫苗的作用下降甚至无效，更令人绝望的是，P.1没有考虑人们的感受而停下继续进化的脚步，而这一切都是中共军方在实验室中早已赋予P.1的“使命”。
 
-据[美国疾病控制与预防中心](https://www.cdc.gov/coronavirus/2019-ncov/transmission/variant-cases.html)称，全球已有 [36 个国家](https://cov-lineages.org/global_report_P.1.html)发现P.1正在流行，加拿大的**CCP**病毒感染率以每周25%的速度递增，P.1起到了推波助澜的作用。据加拿大安大略省最新的疫情模型显示，到今年的五月底，安省每日**CCP**病毒感染人数将飙升至约1.8万人，也就是说，安省**18**个月以来累计感染人数为**41**万人，仅未来一个月的感染人数就将超过**41**万人，因此安省已启用军队的野战医院，并于近日宣布将选择性地放弃部分危重**CCP**病毒感染者的**ICU**治疗，因为目前医疗资源已严重透支。
 
-P.1的发源地巴西的情况更为严重，据巴西**ICU**医学协会透露，上周，巴西**ICU**病房的大多数**CCP**病毒患者都是不满40岁的青壮年，P.1就是罪魁祸首。圣保罗大学的传染病专家马科斯·布洛斯说，P.1正在迅速传播，是它把年轻人送进了**ICU**病房的。可以预见，巴西的P.1悲剧，将很快在全世界范围内发生。
 
-除了已知的英国、南非、巴西的变异病毒，近来在全世界范围内又相继发现了多宗CCP变异病毒。令人揪心的是，这和天使闫丽梦在一年多以前预告的情形一模一样**——**我们将无一幸免，除非消灭中共，否则留给人类的时间确实不多了！
 
-参考来源：
+据自然新闻4月15日报道，心脏科医生理查德-弗莱明（Richard Fleming）在接受班农最近一期的《大流行战斗室》采访中，对公众警告实验性Covid疫苗的危险性，以及疫苗注射引起的过度炎症免疫反应。弗莱明医生指出，疫苗制造商用自己的数据，对产品的功效进行虚假宣传，这是根本性的欺诈。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-31.png)
+弗莱明医生对实验性covid疫苗的临床试验进行了研究。他警告说，这种疫苗从未被证明能有效地实现任何人类健康目标。目前疫苗的功效研究是基于随机抽取的，并没有调查病毒载量，也没有使用可验证的诊断标准，来确定疫苗是否对人的免疫系统有任何影响。他还警告说，疫苗可能会引起动物疯牛病，这种神经损伤是阿尔茨海默氏症和其他通常与老年相关的神经系统疾病的前兆。
 
-[巴西大多数新冠病毒重症监护病房患者现在都不到40岁](https://www.businessinsider.com/brazil-most-covid-19-icu-patients-now-under-40-2021-4)
+辉瑞公司、摩德纳公司和强生公司都是根据随机几率，绕过了可验证的诊断标准，并忽略了病毒载量来确定疫苗的疗效。根据FDA的紧急使用授权数据，与其他任何疫苗相比，这些疫苗阻止covid的能力没有明显的差异。疫苗功效数据是个骗局。疫苗在阻止covid方面的作用为零，并不能解决任何导致严重疾病的潜在免疫缺陷。
 
-[恐怖：5月底安省新冠肺炎日感染数将升至1.8万 – 无忧资讯](https://info.51.ca/news/canada/2021-04/988417.html)
+Covid疫苗还不可避免的造成抗体依赖性增强，这是一个更大的威胁。事实上，疫苗可能导致更严重的健康问题和免疫系统问题。如果公众以如此密集的速度持续接种疫苗，这些个体健康问题将成为公共卫生灾难。
 
-[冠状病毒变体：为什么像福奇这样的专家会受到关注](https://www.businessinsider.com/coronavirus-variants-uk-south-africa-brazil-us-facts-questions-2021-1)
+弗莱明医生说，嵌入疫苗中的刺突蛋白是人造的，它会引起炎症。上世纪90年代，他发现炎症会导致心血管疾病。所有的冠状病毒疫苗都观察到了血栓问题，这说明编码的刺突蛋白合成后，呈现出令人震惊的体内炎症水平，特别是对于那些已经吃了炎症性食物，并在动脉中有斑块形成的人。
+
+弗莱明医生警告说，在未来一两年内，接种covid疫苗将导致另一种长期的不良事件。他建议政府停止大规模的疫苗接种，并立即评估疫苗“是否有任何已证实的疗效”，“因为根本就没有”。
+
+现在疫苗造成的次生灾难频发，感谢这些有良知的医生，敢于说出真相。未来将会证明他们都是拯救人类的英雄。
+
+原文链接：[https://www.naturalnews.com/2021-04-15-cardiologist-warns-covid-vaccine-fraud-hyper-inflammatory-immune-responses.html#](https://www.naturalnews.com/2021-04-15-cardiologist-warns-covid-vaccine-fraud-hyper-inflammatory-immune-responses.html#)
+
+审核/发稿：正义的小新
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

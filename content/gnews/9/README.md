@@ -1,59 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104016（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1101152/)
+## 美司法部将检查数十家俄罗斯公司的供应威胁
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1101322/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/R-15.jpg)recordedfuture.com
+04月16日，据路透社报道，美国司法部正在审查“数十家俄罗斯公司”对美国供应的威胁。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+助理司法部长约翰·德默斯（John Demers）说，这一过程可能需要几个月的时间，美国司法部可能会在稍后对来自俄罗斯的个别实体做出决定。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01-5.jpg)
+“我们已经开始了第一阶段的分析，我们需要仔细研究。”德默斯说。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02-6.jpg)
+他解释说，在评估某家公司时，专家会检查它是否与俄罗斯情报部门有联系。他说，在俄罗斯设有办事处的外国公司也将受到审查。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03-5.jpg)
+周四早些时候，美国对俄罗斯实施了新的制裁。这些限制措施包括华盛顿认为参与干预选举和传播虚假信息的32个实体和个人。同样受到制裁的还有因克里米亚问题被列入名单的8名个人和法律实体。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-6.jpg)
+此外，美国金融机构被禁止参与中央银行、国家福利基金和财政部发行的卢布和非卢布债券的一级市场，并禁止向它们提供贷款。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05-7.jpg)
+美国还决定驱逐10名俄罗斯外交官。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06-5.jpg)
+俄罗斯外交部承诺将对新的限制措施作出“果断回应”。该部发言人玛丽亚·扎哈罗娃强调：“对制裁的回应将是不可避免的”。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07-5.jpg)
+在宣布新的制裁措施后，俄罗斯召见了美国驻俄大使约翰·沙利文，进行了“强硬谈话”。他后来解释说，他已将美国正在采取的行动告知俄方。沙利文指出，谈话是在尊重态度下进行的。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08-5.jpg)
+参考链接：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-9.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-10.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-12.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-6.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/18-4.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/19-4.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/20-4.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/21-2.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
+[https://www.rbc.ru/politics/16/04/2021/6078bb469a79470c75925f9b](https://www.rbc.ru/politics/16/04/2021/6078bb469a79470c75925f9b)
 
 0

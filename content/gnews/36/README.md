@@ -1,39 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共最新数据库泄露美国人的详细数据
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1100605/)
+## 【热点播报】德国即将从阿富汗撤军
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1100736/)
 
-翻译：洛杉矶天使农场 – 菲利普
-校对：洛杉矶天使农场 – Jessi/詹茜 
-审核：洛杉矶天使农场 – 黎明的光芒
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Picture1-27.png)
-据一份最新报告显示，上海市公安局拥有一个包含110万人的详细个人信息的数据集，其中包括近700名美国公民。
+**据德国镜报杂志2021年4月16日报道，德国防部长安内格雷特-克朗普-卡伦鲍尔（Annegret Kramp-Karrenbauer）在一项日常命令中宣布，德国联邦国防军将于今年8月中旬从阿富汗全部撤军。**
 
-澳大利亚的网络安全公司互联网2.0(Internet2.0)分析了一个泄露了存有5000多名外国公民的数据库，其中包括697名美国公民的详细数据，其中一些人年仅3岁。
+翻译：Nancy
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-28.png)**德国联邦国防军士兵在马扎里沙里夫机场(档案照片)**
+**据报道，国防部长对撤军的具体时间已经有了一个初步的时间表。她表示，“如果一切能按计划进行，德国部队最早将于8月中旬全部撤离阿富汗。”  该报道指出，国防部长安内格雷特-克朗普-卡伦鲍尔此番话是她在与联邦国防军总检查长 埃伯哈德-佐恩（Eberhard Zorn）一起在每日例行会议上宣布这项命令的。**
 
-这些数据包括“姓名、出生数据和护照号码，这些信息是从2018年至2020年间在这些人进出上海时被获取的。”这些信息存储在中共 (CCP)最高情报机构–国家安全部下属的上海公安局的服务器上。
+**报道指出，北约组织理事会（NATO  North Atlantic Treaty Organisation）周三决定，从5月1日开始北约部队将陆续撤离阿富汗，军事撤离会在数月内完成。目前，德国在阿富汗的驻军约有1300名。如撤离行动进展顺利，德国联邦国防军会比美国士兵更早离开危机地带。**
 
-该数据库还包含172名加拿大人、161名澳大利亚人以及许多来自其他亚洲国家（如台湾）的旅客的信息。其中三人持有外交护照。
+**镜报指出，美国从阿富汗撤军最迟会在纽约世贸中心和华盛顿美国国防部遇袭20周年纪念日-    即今年的9月11 号完成，众所周知，这是美国派兵入驻阿富汗的导火索。据悉，这是美国总统拜登对美撤军的设想。除美国人外，其他国际部队在阿富汗驻军的总人数大约为7000名。**
 
-虽然这个数据库并非“详尽无遗”，但互联网2.0的罗伯特·波特（Robert Potter）和大卫·罗宾逊（David Robinson）表示，这是一个“了解中共国监控状况的小而详细的窗口”。澳大利亚广播公司（The Australian Broadcasting Corp）率先报道了该数据库。
+**译者评：**
 
-该数据库还包括“一份1万名被贴上‘恐怖嫌疑分子’标签的黑名单，其中93%是维吾尔族人。成千上万的人因为上网而被标记
+**2001年9月11日对美国的恐怖袭击事件引发了美国派驻军队进入阿富汗。国际军事行动导致 “基地 “组织首领乌萨马-本-拉登的塔利班政权倒台。美国前总统特朗普（Donald Trump）曾承诺今年5月前美国从阿富汗撤军，期间塔利班与喀布尔政府也进行了多次直接和谈。无疑，这对现任美国总统拜登和北约组织都是一种压力。**
 
-监视名单上的其他数百人“有机会接触到危险化学品、毒品或制造爆炸物的材料”。后者中约有一半是外国公司或合资企业的雇员，如“美国制造业巨头3M、总部位于堪萨斯的化学公司英威达(Invista)和日本汽车制造商三菱（Mitsubishi）。”
 
-来自上海港附近的金山区的其他记录显示，中共官员使用监控摄像头的目的是“实时”追踪个人，这包括（只要可能）记录个人的行动，甚至他们的汽车登记细节。
 
-据互联网2.0透露，本地数据将被合并到一个系统中，“以促进监控状态”。
+审核/校对/发稿 奇门遁甲
 
-澳大利亚战略政策研究所（the Australian Strategic Policy Institute）防长迈克尔·肖布里奇（Michael Shoebridge）告诉《大纪元》，这次数据库泄露事件表明，在寻找任何与政府作对的个人时，中共拥有多么大的“权力”。
+原文链接: [Afghanistan: Bundeswehr soll schon Mitte August abziehen – DER SPIEGEL](https://www.spiegel.de/politik/deutschland/afghanistan-bundeswehr-soll-schon-mitte-august-abziehen-a-88f447f3-dcb6-4175-b859-2affe5613b70)
 
-一名美国国务院发言人回应《大纪元》，表示已注意到数据库泄露事件，并表示他们正“密切关注（报道）”。
+**更多资讯，更多关注**
 
-这位发言人补充说，“海外美国公民的安全和幸福是美国国务院的首要任务。”
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-原文作者：凯瑟琳·萨尔加多(CATHERINE SALGADO)
-发表时间：2021年4月14日
-原文链接：https://thenationalpulse.com/breaking/new-ccp-database-leak-reveals-detailed-data-on-americans/
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://mail.google.com/mail/u/0?ui=2&amp;ik=6ac942a4c5&amp;attid=0.1.1&amp;permmsgid=msg-f:1697211554661162166&amp;th=178db4eab0445cb6&amp;view=fimg&amp;sz=s0-l75-ft&amp;attbid=ANGjdJ_MF9refeF-bd25VajoR4jiEMIP6XRRLnVZYSEhjS8M19zkZz9HVu-IpmwCycBFQc8tu7Q38feMsK7BGcLwbE92G638znupYW7M7IZq5jXOugvR5IVfsGowdsU&amp;disp=emb)
 0

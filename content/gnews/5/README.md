@@ -1,39 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】拜登派气候特使访华，意欲何为？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1101285/)
+## 【有声读物】教廷国务卿帕罗林与中梵协议
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1101375/)
 
-香草山健身部 童谣
+配音：香草山录音组 Swr拥抱太阳
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+据BBC报道，中（共）国与梵蒂冈在2018年9月22日签署有关主教任命的临时协议，协议自10月22日起生效，效期两年。
 
+2020年协议到期后，中梵再度续签了该协议。但是，在中共打压、迫害宗教人士，拆毁、烧毁天主教堂，践踏宗教信仰活动愈演愈烈的背景下，梵蒂冈续签该协议引发各界的关注与不满。
 
+文字版原文：[【呐喊】教廷国务卿帕罗林与中梵协议](https://gnews.org/zh-hans/1098617/)
 
-近日，拜登政府同时派出两波人马，分别访问中共国和台湾。很多分析人士将此看作拜登左右逢缘、两面讨好的圆滑政治手段。不过笔者认为，在中共种族灭绝定义做实，以及灭共鹰派、爆料革命等世界正义力量的监视下，拜登不会为了从中共手中可能获得的新能源利益，而放弃台湾。克里访中更像是在灭共行动前的最后通牒。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screen-Shot-2021-04-16-at-2.04.11-PM.png)图片来源：德国之声中文网 
-美国总统拜登的气候特使克里，本周三到周六，将前往中国上海与韩国首尔。白宫表示美中将在气候议题上寻求合作，但会持续关注中国的人权侵犯、科技滥用等议题。此外，拜登政府有信心应对包括中共国在南中国海、台湾等构成的威胁。[1]
+音频处理：雪梨
 
-美中双方博弈白热关头，在陶德一行非官方团体访台，显示出美国不可能就台湾问题妥协的决心之后，白宫派出克里又以气候问题的名义访中。克里如果为了发展美国新能源产业从中共手中捞取好处，而放弃台湾立场，那么就是丢了西瓜捡了芝麻，最终成为众矢之的，民主党的执政威信也必然会在不可逆转的灭共大潮中被一轰下台。
+发稿：正义的小新
 
-同时美国国家情报总监办公室发布的《2021年度威胁评估》当中指出，中共国和俄罗斯是美国国家安全的主要挑战，他们尤其在意中共国在全球扩展自己的影响力。[2]FBI最近表示有多达2000多个案件调查均显示与中共有关。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
-从拜登刚上台时只是将中共称为竞争对手，而将俄罗斯视为敌人。当前随着病毒真相不断被正义力量推动，而逐渐浮出水面；以及中共如同纳粹一样反人类、摧残人权的行径使美国逐渐清晰明确地认识到，21世纪对文明社会国家最大的威胁就是纳粹中共。美国情报部门发出的定性报告，如同两届政府对中共定义的种族灭绝罪行一样，将是中共再也无法逃脱恐怖组织罪名且必将面临严厉制裁的开始。
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
-引用来源 [美国之音中文网](https://www.voachinese.com/a/climate-summit-south-china-sea-taiwan-20210413/5851879.html) [德国之声中文网](https://www.dw.com/zh/%E7%BE%8E%E5%8F%91%E5%B8%83%E6%83%85%E6%8A%A5%E6%8A%A5%E5%91%8A-%E4%B8%AD%E5%9B%BD%E5%B1%85%E7%BE%8E%E5%9B%BD%E5%AE%89%E5%85%A8%E5%A8%81%E8%83%81%E4%B9%8B%E9%A6%96/a-57191751)
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
 
-审核/发稿：正义的小新
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpeg)
-**更多资讯，更多关注**
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
-
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0
