@@ -1,52 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国疾控中心视&#8221;孔子学院&#8221;为抗疫&#8221;法宝&#8221;
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1100087/)
+## 南海渔船那点事儿
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1100184/)
 
-新闻来源：《国家脉动（The National Pulse）》| 作者：娜塔莉·温特斯（NATALIE WINTERS）| 发布时间：2021年4月12日
-翻译/简评：Marialu | 校对：感恩 | 审核：万人往 | Page：Daoiii
-[!\[\]()!\[\](https://spark.adobe.com/page/lveP1hejMZH2o/images/23be3dd3-002f-4816-a22d-51ff2047fb7e.jpg?asset_id=ef438c1e-fbc1-4e90-9ca8-e52f3b628f38&amp;img_etag=%2213435719f8480ff5a5cbbb606fbbce26%22&amp;size=1024)](https://spark.adobe.com/page/lveP1hejMZH2o/images/23be3dd3-002f-4816-a22d-51ff2047fb7e.jpg?asset_id=ef438c1e-fbc1-4e90-9ca8-e52f3b628f38&amp;img_etag=%2213435719f8480ff5a5cbbb606fbbce26%22&amp;size=1024)美国疾控中心首席副主任安妮·舒查特（左），与福奇在一次疫情新闻发布会上
-**简评：**
+作者：Tang0426 | 校对：文明明 | 审核：万人往 | Page: Daoiii
 
-**根据《国家脉动》报道，美国疾控中心首席副主任安妮·舒查特曾在2020年2月的新闻发布会上称赞中共资助的孔子学院是美国应对新冠病毒的“资产”。在发布会上，当孔子学院美国总部的一位发言人询问，他们那样的非营利组织是否有参与的空间并且通过翻译或社区宣传来提供帮助时，舒查特肯定地说：“像孔子学院这种机构的语言和文化能力可以成为这类应对措施的资产。”然而孔子学院美国中心大肆利用并炒作舒查特的这一评论，剪切她的部分回答内容放入其YouTube频道的视频里，并收录在新闻稿中。随后孔子学院中共国总部在发布新闻稿时，大书特书中共对病毒的“全面”应对，再次以“中国速度”创造了奇迹⋯⋯还自称“及时、透明、公开、有效” 的应对措施得到多个国际机构和领导人的赞誉，诸多此类的好评。**
+[!\[\]()!\[\](https://spark.adobe.com/page/jTSmSgNo2iTWz/images/72cf1b13-122a-47f0-a30f-e2c50f10ede0.jpg?asset_id=c9bd52bb-68f6-468a-81e3-c3bfb22ee24d&amp;img_etag=%22c0f86e19c567db6fb62dc381ec9f8704%22&amp;size=1024)](https://spark.adobe.com/page/jTSmSgNo2iTWz/images/72cf1b13-122a-47f0-a30f-e2c50f10ede0.jpg?asset_id=c9bd52bb-68f6-468a-81e3-c3bfb22ee24d&amp;img_etag=%22c0f86e19c567db6fb62dc381ec9f8704%22&amp;size=1024)
 
-**经过四年多的爆料革命，新中国联邦人最清楚中共的邪恶本质，新冠病毒就是中共病毒，是中共一手研制的超限生物武器，传播到世界各地，荼毒世界人民。然而中共竟然不知羞耻、恬不知耻地往自己头上加上如此美丽之辞，孔子学院——中共的海外大外宣极力为它的主子歌功颂德，迷惑世界人民。美国国务院2020年8月已认定孔子学院美国中心为中共的驻外使团，一些美国国会议员表示孔子学院破坏学术自由、缺乏透明度，在美国校园招募代理人，并参与网络间谍和盗窃知识产权等。中共通过孔子学院等学术机构和团体在海外推行统战工作、歪曲历史、组织抗议活动，以支持中共极权的政策和立场。正如时任中共中央政治局委员李长春所说：“孔子学院是中国海外宣传工作的重要组成部分。”**
+近日，南海牛軛礁海域出现了数百艘中共国的渔船。在这片有争议的海域，中共国的渔船长时间滞留，引起了菲律宾政府的多次抗议。中共国辩称：“由于海况原因，中方的一些渔船在牛軛礁附近避风，这很正常。”渔船避风当属正常，不正常的是气象记录显示：连日来，该区域天气晴朗，风平浪静。可中共国的渔船却偏偏赖着不走。
 
-**所以我们强烈呼吁世界民主国家必须团结起来，抵制专制独裁的意识形态和思潮向西方世界的渗透和侵蚀。中共是世界一切灾难的根源，消灭中共是全世界人民的需要！**
+菲律宾指责这些渔船是中共国的民兵船。且不说是不是民兵，它们受中共组织派遣是一定的，因为这是中共惯用的手段：拨给每艘船一定的经费，这些渔船就按要求抵达指定的海域。中共以前在西沙群岛的争议地带没少干这样的事。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/lveP1hejMZH2o/images/e3d9d462-01e9-49ab-a08f-dbb87422e405.jpg?asset_id=c8abdd57-3f28-45e6-8d47-0234f83170ae&amp;img_etag=%227581cd8fef5a928362d06160b1ac0cb3%22&amp;size=2560)](https://spark.adobe.com/page/lveP1hejMZH2o/images/e3d9d462-01e9-49ab-a08f-dbb87422e405.jpg?asset_id=c8abdd57-3f28-45e6-8d47-0234f83170ae&amp;img_etag=%227581cd8fef5a928362d06160b1ac0cb3%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/jTSmSgNo2iTWz/images/736580ab-faa5-47c1-9be9-3bfb46a620c1.jpg?asset_id=dfec4491-f0c3-45cd-90a0-58fdcd701376&amp;img_etag=%22d925693db678296ece2f7384355b761b%22&amp;size=1024)](https://spark.adobe.com/page/jTSmSgNo2iTWz/images/736580ab-faa5-47c1-9be9-3bfb46a620c1.jpg?asset_id=dfec4491-f0c3-45cd-90a0-58fdcd701376&amp;img_etag=%22d925693db678296ece2f7384355b761b%22&amp;size=1024)
 
-**原文翻译：**
+[!\[\]()!\[\](https://spark.adobe.com/page/jTSmSgNo2iTWz/images/c93db96a-f19c-4940-8ac7-7a88cbd35aa6.jpg?asset_id=3cb960eb-cc46-49f3-a356-ff90c158149b&amp;img_etag=%22394b98fabe5478840794c038cdf29787%22&amp;size=1024)](https://spark.adobe.com/page/jTSmSgNo2iTWz/images/c93db96a-f19c-4940-8ac7-7a88cbd35aa6.jpg?asset_id=3cb960eb-cc46-49f3-a356-ff90c158149b&amp;img_etag=%22394b98fabe5478840794c038cdf29787%22&amp;size=1024)MAXAR发布的卫星图片，中共渔船停泊在牛轭礁周边
 
-## 观看：疾控中心主任称中共国大外宣机构为“资产”
-[!\[\]()!\[\](https://spark.adobe.com/page/lveP1hejMZH2o/images/d9cda119-b21e-4fd9-ba9a-58f1e6f86519.png?asset_id=9b5ae7f9-d396-4b5b-8da5-1c1bef0918c1&amp;img_etag=%22854325f6dc45873a15346db6a138e7bd%22&amp;size=1024)](https://spark.adobe.com/page/lveP1hejMZH2o/images/d9cda119-b21e-4fd9-ba9a-58f1e6f86519.png?asset_id=9b5ae7f9-d396-4b5b-8da5-1c1bef0918c1&amp;img_etag=%22854325f6dc45873a15346db6a138e7bd%22&amp;size=1024)
-**一段2020年2月的被挖掘出来的视频显示，美国疾病控制和预防中心首席副主任安妮·舒查特（Anne Schuchat ）称赞中共资助的孔子学院是美国应对新冠病毒的“资产”。**
+作为一个中国人，必定不希望祖国的土地、海域被他国侵犯导致流失，无论是谁把持的政府，都有责任捍卫国家的领土完整。但是，我同样也不希望所在的国家靠着强权去侵犯他国。解决有争议的海域问题，可以遵循国际法的规则，用事实和证据通过法律途径来解决。如果真的是为了保卫国家的海域，那也应该是军队事情，你不是有航母吗？守卫海防，应该是军人的职责啊！怎么要老百姓驾驶渔船去做“既成事实的占领”呢？“厉害国”的海军呢？怎么不去走两步？偏要老百姓去出头，还编出这些漏洞百出的借口。
 
-舒查特于2015年在奥巴马政府任内开始担任这一职务，她在2020年2月的新闻发布会上赞扬了这一有争议的举措。
+中共这帮马列孙子都是异类生物，就是喜欢绑架老百姓来作恶。比如1948年的围困长春，为了消耗守城国军，不准城内百姓出城，结果半年时间活活饿死了几十万长春百姓。建政后，他们又屡屡发动政治运动，核心就是通过群众斗群众，通过残害群众来稳固政权。
 
-在发布会上，该组织美国总部的一位发言人询问：“像我们这样的非营利组织是否有参与的空间，并且通过翻译或社区援助活动来提供帮助。” 舒查特回应道：“像你们这样机构，语言和文化能力可以成为这类应对措施的资产。”
+[!\[\]()!\[\](https://spark.adobe.com/page/jTSmSgNo2iTWz/images/ed758a75-3041-4a59-977a-c26310cde1a5.jpg?asset_id=b4a3b7ee-5597-495d-9c8d-0f1d95d0b377&amp;img_etag=%22fc82e2c37958927a3b4869d21ce65008%22&amp;size=1024)](https://spark.adobe.com/page/jTSmSgNo2iTWz/images/ed758a75-3041-4a59-977a-c26310cde1a5.jpg?asset_id=b4a3b7ee-5597-495d-9c8d-0f1d95d0b377&amp;img_etag=%22fc82e2c37958927a3b4869d21ce65008%22&amp;size=1024)
 
-被川普政府贴上中共驻外使团标签的孔子学院美国中心，似乎也在炒作舒查特的评论，将她回答的部分内容剪下放在其YouTube频道的视频中，并收录在新闻稿中。
+今天，他们依然如此。游弋在南海牛軛礁海域的数百艘渔船上依然是被威逼利诱的老百姓，他们被迫冲在前面，一旦发生摩擦，造成伤亡，便正中中共下怀，可以拿来大做文章。他们又会一如既往地在墙内煽动“爱国”情绪，挑起民族仇恨。像菲律宾这样为利益谄媚中共的小国，碰上中共这样利用渔民来挑衅的无赖，除了抗议、警告，还真没其它好办法。这些国家可不会像俄罗斯那样，开着炮艇驱赶，并且还能打出500发炮弹，当场干掉船长。一物降一物，的确，也只有像俄罗斯人这样的蛮横霸道才能制住中共的无赖。
 
-而就在新闻发布会一周后，孔子学院中共国总部发布新闻稿，赞扬中共对病毒的“全面”应对，并补充说，该政权“再次以中共国速度创造了奇迹”：
-
-“疫情爆发后，中方本着对人民健康负责、对全球公共卫生负责的精神，采取了最全面、最严格的防控措施，及时、透明、公开、有效地与有关方面共享疫情信息和新型冠状病毒的基因序列。”
-
-声明继续声称，该政权自称“及时、透明、公开、有效”的应对措施得到多个国际机构和领导人的赞誉：“中方采取的措施有效防止了疫情在全球范围内的蔓延，得到了世卫组织和许多国家的充分肯定和高度评价。”
-
-根据美国联邦调查局（FBI）和美国司法部（DOJ）的说法，虽然孔子学院将自己伪装成语言和文化的倡导者，但它们充斥着“与中共国机构的秘密（或未公开）关系、两面效忠（或矛盾的忠诚）”、中共国国家大外宣和盗窃知识产权等问题。孔子学院也被中共国政府官员形容为“中共国海外宣传机构的重要组成部分”。
-
-🔗[原文链接](https://thenationalpulse.com/breaking/cdc-called-ccp-propaganda-org-an-asset/)
+如今的中共四处招惹，挑战周边国家和地区的底线。台海的紧张局势、南海牛軛礁海域的渔船……中共一天不被灭，它祸害世界、祸害人类的事就不会停止。
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/lveP1hejMZH2o/images/2a9217f7-1549-446e-bf57-9fb29741160d.jpg?asset_id=c85755a7-ef39-495d-b9c1-33549723da36&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/lveP1hejMZH2o/images/2a9217f7-1549-446e-bf57-9fb29741160d.jpg?asset_id=c85755a7-ef39-495d-b9c1-33549723da36&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/jTSmSgNo2iTWz/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/jTSmSgNo2iTWz/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 
 
