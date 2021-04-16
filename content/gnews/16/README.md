@@ -1,22 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 为何美国代表团急访台湾？
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1100757/)
+## 【热点播报】世卫组织警告：Covid感染率已达到迄今为止的最高水平
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1100836/)
 
-#### 翻译：william | 校对：wenwang
-![]()![](https://gnews.org/wp-content/uploads/2021/04/taiw-2.jpg)图片来源：Yahoo
-据新唐人电视台(NTD)近日报道，美方已安排前参议员克里斯·多德（Chris Dodd）和前美国国务院副秘书长理查德·阿米蒂奇（Richard Armitage）和詹姆斯·斯坦伯格（James Steinberg）三人于周二前往台湾。台湾总统府表示，蔡英文总统将在周四早上会见代表团。
+作者：纽约香草山写作四组 兰兰
 
-报道称，拜登政府的一位高级官员告诉路透社（Reuters），此次非官方代表团访问台湾的目的，是纪念《台湾关系法》成立42周年，时任美国参议员的拜登总统曾对此法案投了赞成票。访台的三位美方代表都是长期支持台湾的资深政界人士，并且和拜登总统有着非同寻常的关系。这次访问的意义是向台湾传达美国一直坚持对台湾以及台湾民主体制的承诺。
 
-报道表示，中共一直将台湾视为其领土的一部分，并不停地威胁要发动台海战争将台湾占领。这个自治的宝岛实际上是一个独立的国家，拥有自己的民主选举的政府，军事，宪法和货币。
 
-美国国务院周五表示，他们将发布新的指导方针，以使美国官员能够更自由地与台湾官员会晤。随着中共在台湾周遭的军事干扰活动的增加，此举将会更加稳固美国与台湾之间的关系。在前总统唐纳德·川普（Donald Trump）时期，曾有数位高级官员到访台湾。前国务卿迈克·蓬佩奥（Mike Pompeo）也在1月川普总统任期结束前几天宣布，他取消了对美国官员与台湾同行之间接触的限制。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-译评:
-随着中共在海上以辽宁舰威胁以及空中的军机恫吓，综合各方面的情报，美国已经深知中共攻台的疯狂和野心。台湾领导人在中共以及美国之间的摇摆不定，也成为最不可控的危险因素。台湾领导人不应为了短暂的自保以及不做表态而想同时讨好中共和美国。这样子的摇摆态度，只会让中共更觉得可以大肆侵略台湾，也让美国认为，我想保护妳，但妳又不明确表态。在此关键时刻，台湾领导人必须明确地相信美国，相信自由世界的力量，果断地，明确地和美国自由联盟站在同一阵线对抗中共。相信此次访问，可以让台湾领导人知道，此时正是全球灭共的关键时刻，为了台湾，为了灭共，台湾领导人要做出正确的决定以及行动。
 
-原文: [Biden Sends Unofficial Delegation to Taiwan](https://mb.ntd.com/biden-sends-unofficial-delegation-to-taiwan_596842.html)
+
+据CNBC（全国广播公司商业频道）2021年4月16日报道，世卫组织负责人谭德塞警告，Covid感染率已达到迄今为止的最高水平。但谭德塞把Covid感染率增长的原因归结于世界范围内疫苗分发不平衡。
+
+![]()![](https://image.cnbcfm.com/api/v1/image/106869398-1618565673974-gettyimages-1224562950-AFP_1UK1XS.jpeg?v=1618566063&amp;w=678&amp;h=381)图片来源：AFP | Getty Images
+
+根据约翰·霍普金斯大学（Johns Hopkins University）汇编的数据显示，迄今为止，全球已有超过1.39亿的Covid感染病例，其中290万因Covid而死亡。
+
+世卫组织总干事谭德塞说，在过去两个月中，在全球范围内，每周新增感染病例的数量几乎翻了一倍。这个数据正在接近迄今为止在大流行期间看到的最高感染率。谭德塞继续表示，联合国卫生机构将持续评估冠状病毒危机演变，并将“相应地调整建议”。而在年初，世卫组织谭德塞曾警告，世界正因疫苗不平衡而处于“灾难性的道德失败”边缘。谭德塞说，疫苗的“以我为先”方法将使世界上最贫穷和最脆弱的人群处于危险之中。他认为，该方法是“自欺欺人的”，因为它将鼓励并可能延长健康危机。
+
+谭德塞曾声明，世卫组织主要优先事项之一是提高COVAX（冠状病毒疫苗实施计划）的野心，旨在使全球公平获得Covid疫苗以结束所有国家的Covid大流行。预计到3月底，COVAX计划将为人们提供近1亿种疫苗，但至今仅分发了约3,800万剂。世卫组织表示，它希望该倡议（COVAX）能在未来几个月内赶上，同时，它谴责在高收入国家和低收入国家之间疫苗分配的“令人震惊的失衡”。 卫生机构还批评了出于政治或商业原因，在COVAX计划之外寻求自己的疫苗交易的国家。
+
+世卫组织于2020年3月11日宣布，冠状病毒为全球大流行病。在2021年初，世卫组织谭德塞警告，世界因疫苗分布不平衡而处于“灾难性的道德失败”边缘。谭德塞将结束世界范围内Covid大流行寄托于疫苗，且他将目前Covid感染率达到最高水平的原因归结于全球范围内的疫苗分布不平衡。现在，在全球都质疑Covid疫苗的时候，所有人都为接种疫苗带来的副作用而担忧的时候，世卫组织总干事谭德塞还将Covid感染率居高不下的原因，归结于疫苗的不平衡。这到底居心何在？
+
+参考阅读：
+
+[Covid infection rate is approaching the highest level so far, WHO chief warns](https://www.cnbc.com/2021/04/16/covid-who-chief-warns-infection-rate-approaching-highest-level-so-far.html)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
 
 0
