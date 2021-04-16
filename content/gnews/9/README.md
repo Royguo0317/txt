@@ -1,66 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共不作不死&nbsp; 它今天的自嗨和疯狂是我们最佳的机会
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1101377/)
+## 《路德时评》解读美军情部在深挖中共科学情报网络，美媒呼吁将疫情当作大规模杀伤性武器对待，及美国举行听证会评估中共威胁
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1101778/)
 
-**简述：郭文贵先生在2021年4月9日的直播中让战友们“客观地、冷静地看待共产党今天的自嗨和疯狂，这是爆料革命最佳的机会”。共产党今天在世界上四处出击，攻击美国、英国，威胁日本、印度，就和二战的时候希特勒攻打英国、法国和苏联一模一样，不作不死！**
+直播视频：
 
-**中共不作不死****  ****它今天的自嗨和疯狂是我们最佳的机会**
 
-**The CCP’s Madness Is Our Best Opportunity**
 
-它这种较量，兄弟姐妹们，现在就怕共产党现在不吱声了，服软了，完了，这灭共啊又得多个十年八年。现在只要共产党它攻击美元，想办法继续搞一带一路，控制马六甲海峡，苏伊士运河继续炸船，霍尔木兹海峡继续炸船，吉布提继续捣乱，安哥拉石油继续增加，然后它想尽一切办法威胁日本、印度马六甲海峡的石油供给，想尽一切办法攻击英国，想尽一切办法蓝金黄美国，威胁美国这些政客，咱就在这块等着就行了。
+《路德时评》2021年4月16日早间节目主要内容：
 
-Brothers and sisters, talking about the competition, what we are now afraid the most is that the CCP stops making noise and goes soft, then we will be screwed because it will take another eight to ten years to destroy the CCP. Now as long as the CCP continues attacking the U.S. dollar, engaging in its Belt and Road Initiative, controlling the Strait of Malacca, bombing ships in the Suez Canal and the Strait of Hormuz, making troubles in the Djibouti, and increasing its import of Angola’s oil, and doing everything possible to threaten Japan and India’s oil supply in the Strait of Malacca, trying every means to attack Britain, BGY America and threaten American politicians, we then won’t need to do anything other than just waiting here.
+一、美军情部门在深挖中共科学情报网络
 
-这就你就等着，如果你不听到共产党赢的消息和刚才放那些视频，就共产党的这些粉红叫得嗨高了的信息、高潮了的这些信息，你就千万记住，灭共就不可能。如果你听了共产党没有好消息…完了，共产党这是真完了，这是真完了。现在只要共产党脖子硬，咱就有机会，它脖子一软咱完蛋了。
+Sellin博士4月16日发推：击败中共唯一、且最重要最直接的步骤就是揭露中共病毒的制造网络和科学活动。我有该网络的详细图纸，但我需要有关中共国内部的更多信息。
 
-So, you just wait. Remember this carefully, if you don’t hear the news of the CCP’s victory or the  kind of videos that we just played, or the fake orgasm sounds of those CCP’s Little Pinks, it will be impossible to take down the CCP. Once you find that the CCP stops having good news, then that means the CCP is over, truly over. But now as long as the CCP’s neck is still stiff, we then still have a chance. But if its neck becomes soft, we will be over.
 
-现在大家看到共产党的经济一片大好。“世界富豪我们占了一多半，比美国厉害。然后我们是各国外长六个外长到中国来磕头，美帝国主义没有资格来评我们，我们现在上打宇宙下打地球，我们有歼20，我们有激光炮，我们还有冠状病毒。是吧？我们还有小粉红，我们有中国陆军——5亿个陆军。” 五亿，我的娘咧，五亿！这五亿人咋来啊？我的天，是抬着来还是爬着来呀？这5亿陆军横扫全地球，顺便大家可能还到月球上喝点酒去，这共产党太牛了。就让它这个感觉好，没这个，灭共赢不了。
 
-Now it seems to everyone that the CCP’s economy is so good. [The CCP says,] “We account for more than half of the world’s richest people, better than the United States. And we have foreign ministers of 6 countries coming to China to kowtow to us. American imperialism is not qualified to judge us. We can now launch a war not only in the space but also on the earth. We have F-20s, we have laser cannons, and we also have the coronavirus, right? We have Little Pinks, we have a Chinese army of 500 million soldiers.” Oh, my! 500 million! Where did they find the 500 million people? Oh, my God! How do they come here? By crawling or being carried by others? With 500 million soldiers sweeping the entire earth and possibly stopping by the moon to drink some wine, the CCP is too awesome! Just let it feel good because without this, we can’t win.
+> The single, most important and most immediate step to defeat the Chinese Communist Party is to expose the network and scientific activities responsible for the creation of the COVID-19 virus. I have a detailed map of that network but I need more information from inside China. [pic.twitter.com/bzzQAjqqSB](https://t.co/bzzQAjqqSB)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 16, 2021](https://twitter.com/LawrenceSellin/status/1382961557613740034?ref_src=twsrc%5Etfw)
 
-不是说你一…认真大家要看看，希特勒从1932年到1944年，你去看看希特勒所有走过的路，是搞奥运会呀、大型体育活动啊、拍电影啊、大宣传啊、国家主义啊、把企业国家化啊、国家资本化啊、然后大修机场啊，然后呢你看跟日本联合去了，跟日本联合。当年你要想想，它要跟日本不联合的话，世界怎么会到今天这个样子。
 
-Everyone should take a close look at the path that Hitler took between 1932 and 1944 – the Olympic Games, large-scale sports events, filmmaking, large-scale propaganda, nationalism, nationalizing private companies, state capitalism, and building airports. And what’s more, he allied with Japan. Think about this. If he didn’t ally with Japan, how could we have today’s world [the victory of the WWII]?
+![]()![](https://gnews.org/wp-content/uploads/2021/04/翻译.jpg)[图片地址](https://pbs.twimg.com/media/EzF3XTQWQAAbZgs?format=jpg&amp;name=small)
+路德社评论：
 
-跟日本去联合去了，就像共产党现在和俄罗斯联合一个道理、跟伊朗联合去了，哇噻！这多疯狂！ 什么都一样，然后攻击欧洲，然后对内部的老百姓一片欢腾！爱国主义到达了最顶峰。然后吃的、穿的看上去都很体面。打俄罗斯的时候前面是最先进的武器，后面全是马车牛车拉着这个供给线。打法国的时候一样，这面到巴黎了，那面还是马车牛车还在运东西呢。然后希特勒说我要研究太空武器，非常非常的像。
+1、**路德社呼吁所有战友向Sellin博士提供他所需要的全部信息，这是美国军情部门公开征集有关中共病毒的所有情报信息，大家提供的任何一个线索都有可能牵出一个庞大的网络。**
 
-Germany allying with Japan is just like the CCP allying with Russia right now, also with Iran. Wow! So crazy! Everything is so alike. When Germany attacked Europe, its people exulted and patriotism reached its peak. Their food and clothes all looked very decent. When they fought Russia, they put the best weapons in the front, but used horses and oxen for their supply transportation in the back. Same thing happened when they fought France – when they arrived at Paris, horses and oxen were still hulling supply. Well, Hitler claimed that he was going to develop space weapons – so similar [to the CCP]!
+2、该网络从武毒所，武汉医疗机构，到全中国相关实验室和疾病中心，再到全球所有和中共病毒有关联的科学家，所有参与者都不可能被漏掉。闫博士强调Sellin博士提及的首都医科大学极具影响力，因为北京CDC就附属于首都医科大学。结合Sellin博士昨日发推呼吁全部中国人都站出来，美国已经下定决心要把中共制毒网络连根拔起，所有提供线索的人都是英雄。
 
-如果当时所有的二战的专家、科学家、军事专家，就我向他们请教的时候，他们都是一句话，说如果当时希特勒收回去，突然停下来了，说这个世界完全就变了，没有哪个国家包含美国敢去直接去打德国去。如果他不打莫斯科根本不可能，希特勒不会被灭的。
+3、美国很清楚中共的邪恶，中共绝不会让制造中共病毒的核心人物抛头露面，所以，战友们提供的任何一位可疑人员信息都至关重要，美国将动用最先进的科技手段进行信息挖掘。
 
-All the WWII experts, scientists, and military experts that I have asked questions to basically gave me the same answer. If Hitler retreated and suddenly halted the invasion at that time, the world would be a completely different place because there would be no country, including the United States that would dare to fight against Germany directly. If Hitler did not fight Moscow, he would not be destroyed.
+4、当所有拼图都完成之后，习神绝对就是中共超限病毒战的罪魁祸首。这次绝不只是收集有关中共病毒的证据链这么简单，Sellin博士还说美国还将以此击败中共。闫博士第一份报告揭露中共病毒来自实验室，第二份报告揭露中共病毒就是超限生物武器，第三份报告揭露中共超限科学误导，美国只有彻底拔掉中共超限科学误导的全球网络才可以打败中共。
 
-所以说现在你得看到共产党的疯狂，既打巴黎，又打英国，还打莫斯科。这个事情要不发生不从1935年的3月5号到1936年的3月6号撕毁整个《凡尔赛协议》，跨过莱茵河，十万大军到五十万大军完全干掉巴黎，希特勒他死不了。
+5、美国现在已经意识到中共经过过年深耕细作在全球布下多个巨大联系网，第一个就是前苏联解体后留下的共产国际联盟，第二个就是中共这一百年发展的海外情报网络，第三个就是被中共拿下的国民党海外网络，最典型的就是王岐山岳父姚依林利用身为台湾中央银行副行长的姨父在美国建立起的巨大经济势力网，第四就是像杨洁篪等外交官员近几十年在海外建立的网络，这几大网络在中共病毒超限科学误导上发挥着巨大作用，该网络甚至还在海外执行投毒任务，这张巨大的网络还将牵出无数海外亲民贼，以及所谓的各大华人机构和华人商会。
 
-So now you see the madness of the CCP, [which is like Hitler] attacking Paris, Britain, as well as Moscow. If Hitler didn’t tear up the entire “Versailles Agreement” between March 5, 1935 and March 6, 1936, and didn’t cross the Rhine, and completely wipe out Paris with an army of 100,000 to 500,000 soldiers, Hitler wouldn’t die like that.
+二、美媒呼吁将疫情当作大规模杀伤性武器对待
 
-这就是今天你看到了，我所有国内…因为企业的朋友太多啦，说：“你看看，文贵呀，啊，中国的富豪、北京的富豪占尽了世界多少。”大家仔细去看看，本质，要看本质，它连一块钱的价值生产都没有，全是泡沫。所有的泡沫根本…记住中国人现在所有的东西就是中国奴隶，就是中国十四亿人民被剥夺的生产力和那个财富，而且是膨胀化的。它对整个国家强大、人民富裕没半毛钱关系，零关系。
+《外交政策》发文称：要把中共病毒疫情这样的流行瘟疫当作“大规模杀伤武器，如核扩散、化武”一样认真对待！文中特别提到世卫组织和世界卫生大会的无能，以及《国际卫生条例》的过失。这说明已经有了外交和国际关系层面严肃的思考，面对中共这样一个破坏规则的集大成者，必须重新制定国际规则！而闫博士定义的“超限生物武器”，正是用开拓性的概念帮助重写国际规则。世界已经变了！！！
 
-This is what you have seen today. I have many business friends in mainland China, who always say this: “Look, Miles, so many rich people in this world are Chinese and from Beijing.” But let’s take a closer look and look at the essence of this thing – They do not produce a dollar’s value, and everything is a bubble. Remember that everything that the Chinese people possess right now is made by the Chinese slaves, that is, the productivity and wealth deprived of the 1.4 billion Chinese people, and besides, it is inflated [like bubbles]. It has nothing to do with the whole nation being strong and the people being prosperous.
 
-大家看到这个本质的时候你再看香港，香港和大陆过去这几个月大家知道，加拿大、欧洲几千亿美元地往外流，而且香港的社会几乎处在崩溃的边缘，而且香港的整个崩溃最后它都复制到台湾去，它最后一定打台湾。所以它打台湾的时候就会像当年希特勒去打英国一样，然后呢美国一介入，他就希特勒去打莫斯科了，他就会攻击美国或者攻击日本，结束了！
 
-After you have seen the essence of these things, please then look at Hong Kong. We know that in the past few months, Hong Kong and mainland China had hundreds of billions of dollars flowing out to Canada and Europe, and Hong Kong’s society is almost on the verge of collapse. Besides, Hong Kong’s situation will be completely duplicated to Taiwan, and in the end, the CCP will definitely attack Taiwan. So when the CCP attacks Taiwan, it will be like Hitler attacking Britain, and that as soon as the United States intervened, Hitler went to fight Moscow. Similarly, the CCP will attack the United States or Japan, then it will be finished!
+> 《外交政策》这篇文章很能反映舆论的变化：
+> 要把Covid19这样的流行瘟疫当作“大规模杀伤武器，如核扩散、化武”一样认真对待！
+> “take pandemic containment as seriously as we take other dangers of mass destruction, such as nuclear proliferation and chemical weapons.”[https://t.co/kHIgXD5eOY](https://t.co/kHIgXD5eOY)
+> — 德意志之鹰 (@dezying) [April 14, 2021](https://twitter.com/dezying/status/1382433110114062339?ref_src=twsrc%5Etfw)
 
-七哥今天主要说的事情，客观地、冷静地看待共产党今天的自嗨和疯狂，这是爆料革命最佳的机会。
 
-What your Brother Miles is trying to say today is that you should look at the CCP’s self-confidence and madness today objectively and calmly because it presents the best opportunity for our Whistleblower Movement.
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=607053ef6e11a756eddd33df](https://gtv.org/video/id=607053ef6e11a756eddd33df) (1:04:48-1:05:48, 1:06:08-1:10:27)
-鸣谢：感谢 Bruce(文远)、YIMING（文鸣）、山川异域提供中文文本于 [https://gnews.org/zh-hans/1074690/](https://gnews.org/zh-hans/1074690/)
+路德社评论：
 
-* * *
+1、如果将中共病毒和核战平行对待，这就上升到国家最高安全等级，结合台海局势，以及多个国家的航母编队已集结在南海，这就说明美国及其盟国正在全面行动，美国各派媒体每天都在做舆论宣传，拜登政府上台后依然延续川普政府的脱钩政策，西方国家也已经形成全面围剿中共的态势，这就是针对中共超限战的一场反制战争。
 
-字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+2、爆料革命始终是全世界第一个站出来揭露中共病毒疫情真相的，还揭露了像打杂客、福奇这样和中共国勾兑的美国专家，中共军事教材《非典非自然起源和人制人新种病毒基因武器》这本书详细介绍了当代基因武器，中共病毒正在按这本书编写的剧本发生。全世界正在发生巨变，离病毒真相彻底揭露已经不远了。
 
-0
+三、美国举行听证会评估中共威胁
+
+大纪元4月15日报道[\[1\]](https://www.epochtimes.com/gb/21/4/15/n12880897.htm)：美东时间周四（4月15日），美中经济与安全审查委员会将举行听证会：对中共的经济野心、计划和成功指标的评估。有诸多专家学者及产业主管参与听证，包括川普政府时期的主要中国问题专家余茂春、博明等。听证会分四个方面作证，包括第一方面是中国共产党的经济野心、第二是中国经济驱动因素和生态系统；第三是新兴产业的政策和计划，包括新的移动性、云计算和合成生物学；以及第四是中共对数字货币领导地位的追求。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/听证会.jpg)[图片地址](https://i.epochtimes.com/assets/uploads/2021/02/A4-4.jpg)
+路德社评论：
+
+1、这是场公开听证会，一方面能够制造舆论宣传效应，另一方面就是特邀余茂春和博明这几位反共专家前往，这也是在给拜登政府行动补流程，听证会结束后就会发布相关的评估报告，最终落实到法律层面解决。
+
+2、博明在听证会上首次提出中共正在和全世界进行进攻性脱钩，中共利用杠杆效应挟全世界，美国必须要发布法案应对中共进攻性脱钩，保护美国经济避免陷入中共经济超限战的陷阱，美国现在正在按部就班地向前推进。
+
+3、中共推行的进攻性脱钩策略，就是在最新的五年计划中减少对海外的依赖，但是中共却在加大对外出口，极力吸引海外投资，从全世界吸取美元外汇。同时，中共继续在全球推行“一带一路”计划进行海外扩张，最后就是用数字人民币挑战美元霸权体系。
+
+四、克里低调访问中共国
+
+针对美国气候特使特里近日访问中共国，中共媒体认为：自从2019年7月以后，美国政府的高级官员就再也没有踏上过中国的土地；2021年4月14日，白宫气候问题特使、前国务卿克里来到了上海，他成为近两年来第一位访华的美国高官。在美国挑起所谓“大国竞争”、中美两国关系不断走向对抗的背景下，克里访华似乎就成为了难得的“破冰之旅”。[\[2\]](https://3g.163.com/dy/article/G7MD3TOA0515DJ1P.html)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/克里-1.jpg)[气候大使特里](https://static.dw.com/image/56894274_303.jpg)
+路德社评论：
+
+1、2019年7月蓬佩奥在中共国只停留两小时，他在会见完中共外交部长王毅后就匆匆离开了，路德社当时就爆料这是美国下的最后通牒，此后美国政府一直就没有与中共举行高层会面。
+
+2、气候变暖问题一直是中共要挟美国的一张牌，中共为发展经济已经对中国这片土地造成极为严重的污染，甚至也威胁到全球气候，美国法律又强调保护私有土地，这就逼迫美国不得不跟中共国合作，这完全是约瑟夫法则的混蛋逻辑。
+
+3、截至目前，克里抵达上海后进行了为期一天的闭门会议，会后没有举行媒体发布会，也没有透露是否与中共高层对话，低调地结束了上海之行，这和拜登特使团访问台湾有着天壤之别。
+
+4、文贵先生爆料克里访问中共国也是来向中共下最后通牒的，结合美国正在加速推动与台湾关系正常化，可见中共政权合法性正在消失，中美断交也已经不远了。
+
+[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+
+参考文章：
+
+[1][https://www.epochtimes.com/gb/21/4/15/n12880897.htm](https://www.epochtimes.com/gb/21/4/15/n12880897.htm)
+
+[2][https://3g.163.com/dy/article/G7MD3TOA0515DJ1P.html](https://3g.163.com/dy/article/G7MD3TOA0515DJ1P.html)
+
+文章撰写：【小虫】  校对：【无花果】
+
++1

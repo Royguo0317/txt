@@ -1,181 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第五、六节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1100722/)
+## 中共“灭白计划”之迟浩田系列(二十二)——共产党垮台就永远完了
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1100936/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**【作者】**左媛
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/D-6.jpg)reddit.com
-**本节要点：**
+**【编辑】**Sharon
+![]()![](https://gnews.org/wp-content/uploads/2021/04/p3.png)
+前文驳斥中共军头迟浩田对军中内部高级干部的报告内容：中共要殖民美国，美国人要么自己离开，要么中共突袭“清场”美国。两个“100年”，中共一天也不想耽搁。迟浩田下面这段话，让人在痛恨它像癫狗乱咬的同时，又看到了它的末日恐慌以及恐慌之下的慌不择路，左砍右杀，不知要带走多少人。
 
-鼓励盟国和伙伴发挥更大的作用，制止中共国的侵略和强势行为。
+“我们要有两手准备。如果生物武器偷袭成功，中国人民将在对美斗争中付出最小牺牲代价。但是如果不成功或引发美国的核报复，中国恐怕就要遭受损失过半人口的灾难，所以我们要做好大中城市的空防准备。但不管怎样，为了党和国家及民族的前途，我们只能大胆往前走！不管有多少艰难险阻，不管要作出多大牺牲！人口即使死了过半，还能再生出来，而共产党一旦垮台，就一切都完了！永远完了！
+中国历来改朝换代都是残忍者胜仁慈者败，最典型的就是霸王发了善心没能对刘邦“追穷寇”，结果最后反而死在刘邦的面前。所以我们强调要不惜采取果断手段。未来中美冤家窄路相碰，如果我们心慈手软就是对中国人民的残忍。”
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture2-10.png)
+在中共高级领导人中，这是第二次听到有人说“人口即使死了过半，还能再生出来”这让人魂飞魄散的撒旦式话语。那么，下面听话的将领们会不会赞同迟浩田的这句话呢？笔者想，赞成者一定不少。同年（2005年），中共国防大学防务学院院长朱成虎在北京演讲时说：“核战争是解决人口问题最有效最快速的方法……我们要在10年内储备足够消灭全球一半人口的核武器……如果美国决心干预，我们就决心反击。我们已经做好牺牲西安以东所有城市的准备……在核大战中，我们失去的只有一百多年来的沉重负担，而我们得到的将是整个世界。中华民族必将在核大战中得到真正的复兴。”各位战友，看到了吗？中共国防大学教授和前国防部长的杀人之心是一样的，没有最疯，只有更疯。为了得到世界，中共不惜牺牲“西安以东所有城市”，这意味着东北、华北、华东和华南所有城市将全部化为废墟，所有人口化成灰烬，核大战也会将中共自以为固若金汤的空防设施摧毁殆尽，寸草不留。朱成虎和迟浩田的这两段话如出一辙，核心就是一个字：杀！两个字：杀光！古今中外有哪个杀人狂魔能比得上中国共产党？！再联系金灿荣说过的“台湾20万军队不过是20万堆肉”这样的疯人疯语，中共分明就是一个“超级疯人院”，玩的全是随机杀人整体杀人的游戏。真的使人脊背发凉！
 
-每个联邦部门和机构的负责人应指定一名副部长或以上级别的高级官员，协调该部门或机构与中共国的战略竞争政策。
+共产党最知道共产党！它在100年里造的孽它自己最清楚：杀人父母，奸人妻女，夺人财产，毁人心灵，背信弃义，背天逆神，酒池肉林，卖国图存……罄竹难书！它深知，它欺骗凌辱中国人很容易，但它欺骗凌辱全世界很难；它得逞一时不可能得逞一世。它有理由恐慌害怕，所以才直言不讳地恐吓在座的所有人：共产党一旦垮台，就一切都完了，永远完了！所以，它们要不顾一切不惜一切代价往前走。
+说得对，共产党一切都完了。它苦心经营的70年“红色江山”要变色了，变成“海洋蓝”，变成“天空蓝”，变成我们的“新中国联邦之蓝”。它遍布全球的“建筑艺术结构”要垮塌了，梁柱不存，建筑焉在？那些抱熊猫的“孙瑶们”，那些“有路就有王岐山”的“贯军”们，那些藏在美加澳瑞士的黄金美金们，都要被晒在中国人面前，都要被送回到中国人手里，中共搜刮70年穷奢极欲，最后“落一个白茫茫大地真干净！”它的谎言也完了，它的“以贪治国”“以警治国”“以黑治国”“以骗治国”都完了……共产党一切都完了。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-29.png)
+共产党永远完了！除了历史的耻辱柱上有它的影子，除了历史教科书里永远讲它不堪的100年，讲中国人苦难深重的100年……共产党将永远不再出现在中国！
+它无路可走！中共的预感是准确的。当它按照计划用“生物武器”的方式突袭美国清场美国、危害世界改变世界的时候，它也亲手点燃了中共死亡炸弹的引线。接下来的一切，大家都看到了，经历了，投入了。中共在新疆建集中营关押维族人，就得到了一顶“种族大屠杀”“反人类罪”的双色帽子；中共在香港为所欲为，欧美就惩罚它；中共制造病毒戕害各国，中国人就锲而不舍地揭露真相直到世界醒悟……当中共外交“战狼”变“疯狗”时，美国就不动声色地刀刀致命中南坑……中共在末路上狂奔，前方是万丈悬崖，千万别停步，千万别回头！中共总加速师习近平说得好：世界正处在百年未有之大变局中。在这个“大变局”中，有中共的“大疯狂”“大作死”，有美国的“大觉醒”“大转向”，更有“爆料革命”扭转乾坤正本清源的“大联合”。这一场“大变局”，上演的是残忍者中共惨败，仁慈者新中国联邦大赢！我们对共产党必须一剑封喉，“持刀剑杀人者必被刀杀！”
 
-如果我们的注意力一再转移到与美国经济和国家安全利益无关的挑战上，美国执行与中共国战略竞争战略的能力将受到损害。
+美国太平洋海军作战司令部前参谋长、欧洲阿斯利康前运营总监、病毒学博士瑟林先生今日发重磅中文推：“没有中共，中国就可以成为一个更成功更自由的国家，并彰显中国人民的伟大。”由此可见，在美国，爆料革命的影响力正在加强加大，CCP病毒真相正在深入人心。世界联合起来消灭共产党，指日可待！！！
 
-美国必须阻止中共国在印度洋-太平洋建立区域霸权，以及中共在全世界推进其独裁的政治、经济和外交政策为目标（的野心）。
+用迟浩田的原话来结束本文吧：共产党一旦垮台，就一切都完了！永远完了！
+这一天很快就要到来！
 
-美国必须确保联邦预算与中共国竞争的战略要务保持适当的一致。
+共产党你完了！
 
-美国必须确保所有联邦部门和机构的组织，以反映与中共国的战略竞争是美国外交政策的最高优先事项，包括通过美国对政府人员的任务委派和人员增派。
+2021.4.15于纽约
 
-欲了解更多的內容，请看本两节全文（仅供参考）。
+【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-**第5节 国会意识**
+**欢迎战友加入旧金山金喜农场**
 
-国会认为，执行第4（b）节所述政策需要采取以下行动：
+[旧金山金喜农场](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)[**GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
 
-（1）与中共国的战略竞争需要美国-
-（A）提升持续的政治意愿，保护其切身利益，促进其价值观，推动其未来几十年的经济和国家安全目标
-（B）为了实现这一持久的政治意愿，说服美国人民和美国的盟友和伙伴-
-（i）（认清）中共国提出的挑战
-（ii）需要长期竞争来捍卫共同的利益和价值观
+[旧金山金喜农场](https://discord.gg/QQzQ79grEA)[**Discord**](https://discord.gg/QQzQ79grEA)
 
-（2）美国必须与盟国和伙伴密切协调，以有效地与中共国竞争，包括鼓励盟国和伙伴在适当情况下发挥更大的作用，平衡和制止中共国的侵略和强势行为。
+[旧金山金喜农场](https://twitter.com/sf_himalaya)[**Twitter**](https://twitter.com/sf_himalaya)
 
-（3）美国总统必须领导和指导整个行政部门，将中共国视为美国外交政策面临的最大地缘政治和地缘经济挑战，在执行外交政策时，增加与中共国和美国在印太地区更广泛利益的战略竞争的优先次序，并确保分配适当的资源以应对挑战。
+[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
 
-（4）每个联邦部门和机构的负责人应指定一名副部长或以上级别的高级官员，协调该部门或机构与中共国的战略竞争政策。
 
-（5）如果我们的注意力一再转移到与美国经济和国家安全利益无关的挑战上，美国执行与中共国战略竞争战略的能力将受到损害。
 
-（6）在未来几十年，美国必须阻止中共国-
-（A）在印度洋-太平洋建立区域霸权
-（B）利用这一立场在全世界达到其独裁的政治、经济和外交政策的目的
+> [中共“灭白计划”之迟浩田系列(二十一)——美国，要么自己离开，要么中共来清场](https://gnews.org/zh-hans/1097407/)
 
-（7）美国必须确保联邦预算与中共国竞争的战略要务保持适当的一致，通过-
-（A）确保为美国国家力量的所有工具提供足够的资金
-（B）连贯地优先考虑如何使用这些资金
 
-（8）持续优先处理中共国提出的挑战需要-
-（A）国会内部的两党合作
-（B）行政部门和国会之间经常、持续和有意义的合作与协商
 
-（9）美国必须确保经济和外国政策制定者、私营部门、民间社会、大学和学术机构，以及受中共国挑战影响的自由和开放社会中的其他相关行动者，进行紧密的结合，使这些行动者能够-
-（A）合作促进共同利益
-（B）确定适当的政策-
-（i）加强美国及其盟国
-（ii）提升令人向往的自由和开放秩序的愿景
-（iii）抵制中共的有害政策
 
-（10）美国必须确保所有联邦部门和机构的组织，以反映与中共国的战略竞争是美国外交政策的最高优先事项，包括通过美国对政府人员的任务委派和人员增派；利用-
-（A）在印度洋-太平洋地区、世界各地和华盛顿特区投入更多的人员，优先考虑推进与中共国的竞争
-（B）在印度洋-太平洋地区增加外国服务人员、国际发展专业人员、外国商业服务人员、情报专业人员和其他美国政府人员
-（C）确保该员工，无论是文职人员还是军队，都具备在语言、技术技能和其他能力方面的培训，以促进与中共国的成功竞争战略
 
-（11）美国必须再次强调加强非军事手段，包括外交、信息、技术、经济、外国援助和发展金融、商业、情报和执法，这对于应对中共国独有的经济、政治和意识形态挑战至关重要。
+> [中共“灭白计划”之迟浩田系列二十——生物武器出场，灭绝敌人人口](https://gnews.org/zh-hans/1096233/)
 
-（12）美国必须继续为太平洋威慑倡议提供资源，这项倡议应符合《亚洲放心倡议法》（公共法律115-409）中阐明的总体政治和外交目标，必须优先考虑实现美国在印度洋-太平洋地区政治目标所需的军事投资，包括：
-（A）促进印度洋-太平洋地区的区域安全
-（B）在保护盟国和伙伴免受胁迫的同时，安慰他们
-（C）制止与中共国的冲突
 
-（13）与中共国的竞争要求美国熟练地适应21世纪的信息环境，美国公共外交和信息传递努力必须有效地-
-（A）促进与美国的伙伴关系的价值观
-（B）突出与中共国建立联系的风险和成本
-（C）反中共宣传和制造谣言
 
-**第6节 规则解释**
 
-（a）对援助外国安全部队的现有限制的适用性。-本法的任何内容均不得解释为根据1961年《外国援助法》（22 U.S.C.2378d）第620M节，或者《美国法典》标题10第362节，来减少、取代或以其他方式限制或阻止美国政府的责任。
 
-（b）没有使用武力的授权 -本法的任何规定不得解释为授权使用武力。
+> [中共“灭白计划”之迟浩田系列十九——中美是冤家路窄你死我活的关系](https://gnews.org/zh-hans/1095947/)
 
-（第5、6节完）
 
-中共应该胆颤了，为了落实、协调本法案的实施，法案要求每个部或机构指定专人负责，级别是副部长或相同级别的要员，且从人力、财力给予了最大的优先权。邪共，你死期已到！
 
-原文链接：
-
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
-
-文字整理：
-
-SEC. 5. SENSE OF CONGRESS.
-
-It is the sense of Congress that the execution of the policy described in section 4(b) requires the following actions:
-
-(1) Strategic competition with the PRC will require the United States –
-
-(A) to marshal sustained political will to protect its vital interests, promote its values, and advance its economic and national security objectives for decades to come; and
-
-(B) to achieve this sustained political will, persuade the American people and United States allies and partners of –
-
-(i) the challenges posed by the PRC; and
-
-(ii) the need for long-term competition to defend shared interests and values.
-
-(2) The United States must coordinate closely with allies and partners to compete effectively with the PRC, including to encourage allies and partners to assume, as appropriate, greater roles in balancing and checking the aggressive and assertive behavior of the PRC.
-
-(3) The President of the United States must 8 lead and direct the entire executive branch to make the People’s Republic of China as the greatest geopolitical and geoeconomic challenge for United States foreign policy, increasing the prioritization of strategic competition with the PRC and broader United States interests in the Indo-Pacific region in the conduct of foreign policy and assuring the allocation of appropriate resources adequate to the challenge.
-
-(4) The head of every Federal department and agency should designate a senior official at the level of Under Secretary or above to coordinate the department’s or agency’s policies with respect to strategic competition with the PRC.
-
-(5) The ability of the United States to execute a strategy of strategic competition with the PRC will be undermined if our attention is repeatedly diverted to challenges that are not vital to United States economic and national security interests.
-
-(6) In the coming decades, the United States must prevent the PRC from –
-
-(A) establishing regional hegemony in the Indo-Pacific; and
-
-(B) using that position to advance its assertive political, economic, and foreign policy goals around the world.
-
-(7) The United States must ensure that the Federal budget is properly aligned with the strategic imperative to compete with the PRC by –
-
-(A) ensuring sufficient levels of funding to resource all instruments of United States national power; and
-
-(B) coherently prioritizing how such funds are used.
-
-(8) Sustained prioritization of the challenge posed by the PRC requires –
-
-(A) bipartisan cooperation within Congress; and
-
-(B) frequent, sustained, and meaningful collaboration and consultation between the executive branch and Congress.
-
-(9) The United States must ensure close integration among economic and foreign policymakers, the private sector, civil society, universities and academic institutions, and other relevant actors in free and open societies affected by the challenges posed by the PRC to enable such actors –
-
-(A) to collaborate to advance common interests; and
-
-(B) to identify appropriate policies –
-
-(i) to strengthen the United States and its allies;
-
-(ii) to promote a compelling vision of a free and open order; and
-
-(iii) to push back against detrimental policies pursued by the CCP.
-
-(10) The United States must ensure that all Federal departments and agencies are organized to reflect the fact that strategic competition with the PRC is the United States top foreign policy priority, including through the assigned missions and location of United States Government personnel, by –
-
-(A) dedicating more personnel in the Indo Pacific region, at posts around the world, and in Washington DC, with priorities directly relevant to advancing competition with the People’s Republic of China;
-
-(B) placing greater numbers of foreign service officers, international development professionals, members of the foreign commercial service, intelligence professionals, and other United States Government personnel in the Indo-Pacific region; and
-
-(C) ensuring that this workforce, both civilian and military, has the training in language, technical skills, and other competencies required to advance a successful competitive strategy with the PRC.
-
-(11) The United States must place renewed emphasis on strengthening the nonmilitary instruments of national power, including diplomacy, information, technology, economics, foreign assistance and development finance, commerce, intelligence, and law enforcement, which are crucial for addressing the unique economic, political, and ideological challenges posed by the PRC.
-
-(12) The United States must sustain resourcing for a Pacific Deterrence Initiative, which shall be aligned with the overarching political and diplomatic objectives articulated in the Asia Reassurance Initiative Act (Public Law 115-409), and must prioritize the military investments necessary to achieve United States political objectives in the Indo-Pacific, including –
-
-(A) promoting regional security in the Indo-Pacific;
-
-(B) reassuring allies and partners while protecting them from coercion; and
-
-(C) deterring conflict with the PRC.
-
-(13) Competition with the PRC requires the United States skillful adaptation to the information environment of the 21st century. United States public diplomacy and messaging efforts must effectively –
-
-(A) promote the value of partnership with the United States;
-
-(B) highlight the risks and costs of enmeshment with the PRC; and
-
-(C) counter CCP propaganda and disinformation.
-
-SEC. 6. RULES OF CONSTRUCTION.
-
-(a) APPLICABILITY OF EXISTING RESTRICTIONS ON ASSISTANCE TO FOREIGN SECURITY FORCES. -Nothing in this Act shall be construed to diminish, supplant, supersede, or otherwise restrict or prevent responsibilities of the United States Government under section 620M of the Foreign Assistance Act of 1961 (22 U.S.C. 2378d) or section 362 of title 10, United States Code.
-
-(b) NO AUTHORIZATION FOR THE USE OF MILITARY FORCE. – Nothing in this Act may be construed as authorizing the use of military force.
-
-0
++1

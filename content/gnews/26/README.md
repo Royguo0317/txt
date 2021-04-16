@@ -1,28 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 巴西P.1变种病毒传染性增2倍，重症患者多为年轻人！
-` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1101141/)
+## 【有声读物】教廷国务卿帕罗林与中梵协议
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1101375/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/74792846-8099-4338-83E6-31C341C2DF1B_4_5005_c.jpeg)图片来源：https://www.firstpost.com
-#### 加拿大多伦多枫叶农场   丁过
+配音：香草山录音组 Swr拥抱太阳
 
-被称为P.1的CCP变种病毒首次被发现，是在今年1月2日的4名巴西人身上检测到的，几天内经巴西国家传染病研究所确定后迅速报告了WHO。随即WHO对P.1进行了披露:[它最初于去年](https://science.sciencemag.org/content/371/6526/288)12月4日在巴西的亚马逊地区[检测到](https://science.sciencemag.org/content/371/6526/288)，不到一个月后，即截至1月21日，该地区91%的新冠病毒感染者感染了P.1。WHO宣布，P.1的传染性是原始CCP病毒的两倍！
+据BBC报道，中（共）国与梵蒂冈在2018年9月22日签署有关主教任命的临时协议，协议自10月22日起生效，效期两年。
 
-据研究，由于**P.1**产生了突变，它可以逃避人体免疫系统已产生的抗体反应，对被感染者进行多系统攻击，这是P.1能够对已产生抗体的人重新感染的原因，已有大量证据及统计学数据表明，P.1使现有疫苗的作用下降甚至无效，更令人绝望的是，P.1没有考虑人们的感受而停下继续进化的脚步，而这一切都是中共军方在实验室中早已赋予P.1的“使命”。
+2020年协议到期后，中梵再度续签了该协议。但是，在中共打压、迫害宗教人士，拆毁、烧毁天主教堂，践踏宗教信仰活动愈演愈烈的背景下，梵蒂冈续签该协议引发各界的关注与不满。
 
-据[美国疾病控制与预防中心](https://www.cdc.gov/coronavirus/2019-ncov/transmission/variant-cases.html)称，全球已有 [36 个国家](https://cov-lineages.org/global_report_P.1.html)发现P.1正在流行，加拿大的**CCP**病毒感染率以每周25%的速度递增，P.1起到了推波助澜的作用。据加拿大安大略省最新的疫情模型显示，到今年的五月底，安省每日**CCP**病毒感染人数将飙升至约1.8万人，也就是说，安省**18**个月以来累计感染人数为**41**万人，仅未来一个月的感染人数就将超过**41**万人，因此安省已启用军队的野战医院，并于近日宣布将选择性地放弃部分危重**CCP**病毒感染者的**ICU**治疗，因为目前医疗资源已严重透支。
+文字版原文：[【呐喊】教廷国务卿帕罗林与中梵协议](https://gnews.org/zh-hans/1098617/)
 
-P.1的发源地巴西的情况更为严重，据巴西**ICU**医学协会透露，上周，巴西**ICU**病房的大多数**CCP**病毒患者都是不满40岁的青壮年，P.1就是罪魁祸首。圣保罗大学的传染病专家马科斯·布洛斯说，P.1正在迅速传播，是它把年轻人送进了**ICU**病房的。可以预见，巴西的P.1悲剧，将很快在全世界范围内发生。
+音频处理：雪梨
 
-除了已知的英国、南非、巴西的变异病毒，近来在全世界范围内又相继发现了多宗CCP变异病毒。令人揪心的是，这和天使闫丽梦在一年多以前预告的情形一模一样**——**我们将无一幸免，除非消灭中共，否则留给人类的时间确实不多了！
+发稿：正义的小新
 
-参考来源：
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
-[巴西大多数新冠病毒重症监护病房患者现在都不到40岁](https://www.businessinsider.com/brazil-most-covid-19-icu-patients-now-under-40-2021-4)
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
-[恐怖：5月底安省新冠肺炎日感染数将升至1.8万 – 无忧资讯](https://info.51.ca/news/canada/2021-04/988417.html)
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
 
-[冠状病毒变体：为什么像福奇这样的专家会受到关注](https://www.businessinsider.com/coronavirus-variants-uk-south-africa-brazil-us-facts-questions-2021-1)
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

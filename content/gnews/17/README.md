@@ -1,55 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【信仰之声】从《圣经》看君主制(中)
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1101434/)
+## 中共不作不死&nbsp; 它今天的自嗨和疯狂是我们最佳的机会
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1101377/)
 
-作者：纽约香草山福音部  山城小哥
+**简述：郭文贵先生在2021年4月9日的直播中让战友们“客观地、冷静地看待共产党今天的自嗨和疯狂，这是爆料革命最佳的机会”。共产党今天在世界上四处出击，攻击美国、英国，威胁日本、印度，就和二战的时候希特勒攻打英国、法国和苏联一模一样，不作不死！**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/logo-5.jpg)
+**中共不作不死****  ****它今天的自嗨和疯狂是我们最佳的机会**
 
+**The CCP’s Madness Is Our Best Opportunity**
 
+它这种较量，兄弟姐妹们，现在就怕共产党现在不吱声了，服软了，完了，这灭共啊又得多个十年八年。现在只要共产党它攻击美元，想办法继续搞一带一路，控制马六甲海峡，苏伊士运河继续炸船，霍尔木兹海峡继续炸船，吉布提继续捣乱，安哥拉石油继续增加，然后它想尽一切办法威胁日本、印度马六甲海峡的石油供给，想尽一切办法攻击英国，想尽一切办法蓝金黄美国，威胁美国这些政客，咱就在这块等着就行了。
 
-神把扫罗立为以色列的王以后，我们很快就看到原本在神面前谦卑自己的扫罗在做王以后慢慢开始改变。他在献祭的事情上因为信心的缺乏而不愿等候神，僭越了祭司的职分。他又违背神的旨意，留下了本应毁灭的财物以便讨好下属，收买人心，巩固王位。在征战的事情上他不再依靠神得胜，不去向神祷告寻求神的心意，而是开始依靠人的手段去收买和招募勇士。他开始喜欢别人称赞他自己，不把荣耀归给神……，最后，他忌恨比他更受民众爱戴的大卫，生怕大卫夺了他的王位，以至于定意要杀大卫。从此，扫罗的犯罪就开始没有尽头和节制了，一直到他死为止。
+Brothers and sisters, talking about the competition, what we are now afraid the most is that the CCP stops making noise and goes soft, then we will be screwed because it will take another eight to ten years to destroy the CCP. Now as long as the CCP continues attacking the U.S. dollar, engaging in its Belt and Road Initiative, controlling the Strait of Malacca, bombing ships in the Suez Canal and the Strait of Hormuz, making troubles in the Djibouti, and increasing its import of Angola’s oil, and doing everything possible to threaten Japan and India’s oil supply in the Strait of Malacca, trying every means to attack Britain, BGY America and threaten American politicians, we then won’t need to do anything other than just waiting here.
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片104.png)
+这就你就等着，如果你不听到共产党赢的消息和刚才放那些视频，就共产党的这些粉红叫得嗨高了的信息、高潮了的这些信息，你就千万记住，灭共就不可能。如果你听了共产党没有好消息…完了，共产党这是真完了，这是真完了。现在只要共产党脖子硬，咱就有机会，它脖子一软咱完蛋了。
 
-归根结底，扫罗对王位和从人而来的荣耀的爱胜过了他对神的爱。他不愿意自己的权力受先知和祭司的制衡，拒绝神的主权。扫罗身上随着王权体现出来的问题，其实是以后以色列所有王和世界上其他各族王的一个缩影，同样的情况只是在每个王身上表现出来的程度不同而已。同时，扫罗也是我们每一个人的缩影。
+So, you just wait. Remember this carefully, if you don’t hear the news of the CCP’s victory or the  kind of videos that we just played, or the fake orgasm sounds of those CCP’s Little Pinks, it will be impossible to take down the CCP. Once you find that the CCP stops having good news, then that means the CCP is over, truly over. But now as long as the CCP’s neck is still stiff, we then still have a chance. But if its neck becomes soft, we will be over.
 
-神废掉扫罗以后，膏立和操练了大卫做王。大卫除了在乌利亚事件上犯罪以外，在其他事情上都蒙神喜悦，大卫在大事上凡事都求问神，信靠神。神的旨意能够很自然地通过大卫这个合神心意的器皿施行下来。因而以色列国得以坚立，信仰也得到复兴。许多起初跟随大卫的一些匪徒一样的不良分子，也受大卫虔诚的影响，最后成了以色列家神的勇士。
+现在大家看到共产党的经济一片大好。“世界富豪我们占了一多半，比美国厉害。然后我们是各国外长六个外长到中国来磕头，美帝国主义没有资格来评我们，我们现在上打宇宙下打地球，我们有歼20，我们有激光炮，我们还有冠状病毒。是吧？我们还有小粉红，我们有中国陆军——5亿个陆军。” 五亿，我的娘咧，五亿！这五亿人咋来啊？我的天，是抬着来还是爬着来呀？这5亿陆军横扫全地球，顺便大家可能还到月球上喝点酒去，这共产党太牛了。就让它这个感觉好，没这个，灭共赢不了。
 
-然而，不是所有人都能像大卫一样爱神，顺服神，况且大卫犯的罪也极其可怕。父辈即使再爱神，也很难保证儿孙辈会如何。到了大卫的儿子所罗门时代，由于所罗门违背神立王的原则，给自己娶了一千个外族妃嫔。最后所罗门这样有智慧的人，也在晚年的时候受妃嫔的引诱去为外邦假神造了邱坛。这不仅大大得罪了神，而且让以色列人在经济和劳役上不堪重负。所罗门儿子继位以后，也不改正父辈得罪神和劳民伤财的做法。这一切最后导致了神的审判，最终十个支派从所罗门儿子手里分裂出去了，仅仅剩下犹大支派还受大卫的后裔管理。
+Now it seems to everyone that the CCP’s economy is so good. [The CCP says,] “We account for more than half of the world’s richest people, better than the United States. And we have foreign ministers of 6 countries coming to China to kowtow to us. American imperialism is not qualified to judge us. We can now launch a war not only in the space but also on the earth. We have F-20s, we have laser cannons, and we also have the coronavirus, right? We have Little Pinks, we have a Chinese army of 500 million soldiers.” Oh, my! 500 million! Where did they find the 500 million people? Oh, my God! How do they come here? By crawling or being carried by others? With 500 million soldiers sweeping the entire earth and possibly stopping by the moon to drink some wine, the CCP is too awesome! Just let it feel good because without this, we can’t win.
 
-以色列分裂成犹大、以色列两个王国以后。北国国王耶罗波安由于担心以色列人去耶路撒冷敬拜神，民心又归于大卫家，自己的王权又归于大卫的后裔。于是，为了巩固自己家族的王位，他完全忘记了给自己王位的神，自作聪明地在以色列境内造了两个牛犊像，并说这就是带以色列人出埃及的神，让以色列人去拜……
+不是说你一…认真大家要看看，希特勒从1932年到1944年，你去看看希特勒所有走过的路，是搞奥运会呀、大型体育活动啊、拍电影啊、大宣传啊、国家主义啊、把企业国家化啊、国家资本化啊、然后大修机场啊，然后呢你看跟日本联合去了，跟日本联合。当年你要想想，它要跟日本不联合的话，世界怎么会到今天这个样子。
 
-从此以色列就一直陷入拜偶像、拜假神的大罪里。结果神的审判临到，神差先知告诉他，神要把他的王位夺去给别人，并除灭耶罗波安全家。结果果然有人篡位杀了耶罗波安全家。然而，这之后所有的王为了用自己的手段保住自己的王位，都一直不废除耶罗波安的牛犊像。所以神在讲述北国历史的时候，反复说到以色列的王“只是不离开尼八的儿子耶罗波安使以色列人陷入罪里的那罪”。而结果就是北国以色列的历史从起初就充满了以篡位为目的的血腥杀戮。动不动就是因为王位争夺导致上一任王被满门杀绝，百姓受刀兵。没有一个王室传过四代，总是更坏、最坏的人夺权上位，罪越陷越深。同时各种偶像，甚至外邦人的假神也进入了以色列。以色列人如同陷入了一个怪圈，一直在那里轮回走不出来了。一直到神让亚述人来灭了以色列国，彻底掳走他们为止。
+Everyone should take a close look at the path that Hitler took between 1932 and 1944 – the Olympic Games, large-scale sports events, filmmaking, large-scale propaganda, nationalism, nationalizing private companies, state capitalism, and building airports. And what’s more, he allied with Japan. Think about this. If he didn’t ally with Japan, how could we have today’s world [the victory of the WWII]?
 
-熟悉中国历史的战友，其实可以看到中国几千年的历史和北国以色列的历史几乎完全一致，只不过中国的历史是一个加长和扩大版。
+跟日本去联合去了，就像共产党现在和俄罗斯联合一个道理、跟伊朗联合去了，哇噻！这多疯狂！ 什么都一样，然后攻击欧洲，然后对内部的老百姓一片欢腾！爱国主义到达了最顶峰。然后吃的、穿的看上去都很体面。打俄罗斯的时候前面是最先进的武器，后面全是马车牛车拉着这个供给线。打法国的时候一样，这面到巴黎了，那面还是马车牛车还在运东西呢。然后希特勒说我要研究太空武器，非常非常的像。
 
-至于南国犹大，王位却在大卫的后裔手里一代一代地传了下去，没有间断。虽然很多时候，犹大国的王也犯罪，拜假神，不行公义。甚至也有属下弑君、王后篡位等事，但犹大人即使在这样的情况下也没有抛弃大卫家，没有让王室血脉断绝。而同时我们看到，大卫家也交替地出现一些如希西家、约西亚等这样愿意效法先祖大卫行神看为正的事的王。犹大国人时常还会因为好王的出现而得到一个信仰上的复兴，政治上的清明。这就像文贵先生说的钟摆效应一样，神还能很好地在这一个家族一部分人身上做工，带下祂自己的旨意。
+Germany allying with Japan is just like the CCP allying with Russia right now, also with Iran. Wow! So crazy! Everything is so alike. When Germany attacked Europe, its people exulted and patriotism reached its peak. Their food and clothes all looked very decent. When they fought Russia, they put the best weapons in the front, but used horses and oxen for their supply transportation in the back. Same thing happened when they fought France – when they arrived at Paris, horses and oxen were still hulling supply. Well, Hitler claimed that he was going to develop space weapons – so similar [to the CCP]!
 
-从南国的历史我们看到王位在一个古老的、人们都尊重和承认的王室里世袭相传的时候，这个王室就成了一种社会稀有的共识。即使王室子孙们有时候偏离神很远，偶尔也还会有一些子孙受神光照，愿意走神的义路。而在北国以色列那种没有世袭王室、人人都想篡位做王的无休止的王位争夺战中，人类只能一直走向堕落，更堕落…… 。所以西方人十分重视有传承性的王位，和王位的合法性，这一点在许多影视里也表现了出来。根源就在于此。虽然犹大国后来也因为罪恶被灭了，但神却应许了归回和复兴。而其他的十个支派却可悲地几乎从历史里消失不见了……。而且靠着这条没有断的王室血脉，神也最终赐给了我们耶稣基督。
+如果当时所有的二战的专家、科学家、军事专家，就我向他们请教的时候，他们都是一句话，说如果当时希特勒收回去，突然停下来了，说这个世界完全就变了，没有哪个国家包含美国敢去直接去打德国去。如果他不打莫斯科根本不可能，希特勒不会被灭的。
 
-通过《圣经》里以色列人立王的历史我们可以看到，立王虽然得罪神，但这本身也是以色列人在那个阶段不得不做的事，或者说神定意要他们必须要经历的成长之路。之所以立王带来那么多王权滥用导致的负面影响，根本原因是那时候以色列人没有重视和遵行神的律法里关于立王的规定，其次他们对人的罪也没有足够深的认识，从而他们不可能有足够的政治智慧去践行神立王的原则。其实只要仔细思考神立王的原则，洞察人的原罪性，就会知道神立王的原则是没办法靠着王的自觉性去践行的，必须要有一个监督性的权力存在才行，必须要有一个制衡性的权力存在才行。
+All the WWII experts, scientists, and military experts that I have asked questions to basically gave me the same answer. If Hitler retreated and suddenly halted the invasion at that time, the world would be a completely different place because there would be no country, including the United States that would dare to fight against Germany directly. If Hitler did not fight Moscow, he would not be destroyed.
 
-所以以色列人立王以后，由于世俗大权全交于王手，让先知和祭司失去了能在世俗上制衡王权的力量。失去了这种制衡能力以后，许多时候先知除了预言和警告以外也只能眼看着王犯罪到底。立王以后，以色列人的属灵生命，政治上的公义与否，整体上就常常取决于王的属灵状态。除非神出手干预，否则在王犯错的时候，先知们虽然知道结局，却也只能看着王把整个国带向灾难。然而，这些都是神所默许和早已定下的旨意，因为神定意要用以色列人的历史来见证人类的不是。神作一切都有祂的定时。
+所以说现在你得看到共产党的疯狂，既打巴黎，又打英国，还打莫斯科。这个事情要不发生不从1935年的3月5号到1936年的3月6号撕毁整个《凡尔赛协议》，跨过莱茵河，十万大军到五十万大军完全干掉巴黎，希特勒他死不了。
 
-校对/发稿：飞虹
+So now you see the madness of the CCP, [which is like Hitler] attacking Paris, Britain, as well as Moscow. If Hitler didn’t tear up the entire “Versailles Agreement” between March 5, 1935 and March 6, 1936, and didn’t cross the Rhine, and completely wipe out Paris with an army of 100,000 to 500,000 soldiers, Hitler wouldn’t die like that.
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2.jpg)
+这就是今天你看到了，我所有国内…因为企业的朋友太多啦，说：“你看看，文贵呀，啊，中国的富豪、北京的富豪占尽了世界多少。”大家仔细去看看，本质，要看本质，它连一块钱的价值生产都没有，全是泡沫。所有的泡沫根本…记住中国人现在所有的东西就是中国奴隶，就是中国十四亿人民被剥夺的生产力和那个财富，而且是膨胀化的。它对整个国家强大、人民富裕没半毛钱关系，零关系。
 
+This is what you have seen today. I have many business friends in mainland China, who always say this: “Look, Miles, so many rich people in this world are Chinese and from Beijing.” But let’s take a closer look and look at the essence of this thing – They do not produce a dollar’s value, and everything is a bubble. Remember that everything that the Chinese people possess right now is made by the Chinese slaves, that is, the productivity and wealth deprived of the 1.4 billion Chinese people, and besides, it is inflated [like bubbles]. It has nothing to do with the whole nation being strong and the people being prosperous.
 
+大家看到这个本质的时候你再看香港，香港和大陆过去这几个月大家知道，加拿大、欧洲几千亿美元地往外流，而且香港的社会几乎处在崩溃的边缘，而且香港的整个崩溃最后它都复制到台湾去，它最后一定打台湾。所以它打台湾的时候就会像当年希特勒去打英国一样，然后呢美国一介入，他就希特勒去打莫斯科了，他就会攻击美国或者攻击日本，结束了！
 
-**更多资讯，更多关注**
+After you have seen the essence of these things, please then look at Hong Kong. We know that in the past few months, Hong Kong and mainland China had hundreds of billions of dollars flowing out to Canada and Europe, and Hong Kong’s society is almost on the verge of collapse. Besides, Hong Kong’s situation will be completely duplicated to Taiwan, and in the end, the CCP will definitely attack Taiwan. So when the CCP attacks Taiwan, it will be like Hitler attacking Britain, and that as soon as the United States intervened, Hitler went to fight Moscow. Similarly, the CCP will attack the United States or Japan, then it will be finished!
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+七哥今天主要说的事情，客观地、冷静地看待共产党今天的自嗨和疯狂，这是爆料革命最佳的机会。
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+What your Brother Miles is trying to say today is that you should look at the CCP’s self-confidence and madness today objectively and calmly because it presents the best opportunity for our Whistleblower Movement.
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=607053ef6e11a756eddd33df](https://gtv.org/video/id=607053ef6e11a756eddd33df) (1:04:48-1:05:48, 1:06:08-1:10:27)
+鸣谢：感谢 Bruce(文远)、YIMING（文鸣）、山川异域提供中文文本于 [https://gnews.org/zh-hans/1074690/](https://gnews.org/zh-hans/1074690/)
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+* * *
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0

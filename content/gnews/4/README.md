@@ -1,30 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 皮尔警长在封城期间，不抓捕反而拥抱去俱乐部健身者
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1101722/)
+## 【有声读物】塞林博士连发四推 释放灭共信号
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1101897/)
 
-**阿黎**
+配音：香草山录音组 蒙古鸿雁
 
-今天推特上有一个视频，皮尔（Peel, 加拿大多伦多外围地区）警长去健身俱乐部查看情况。他不但没有驱赶和抓捕违反封城令的人们，反而和他们拥抱并一起拍照。
-
-
-
-> EXCLUSIVE Uniformed Peel Police sergeant is all hugs with supporters of HUF gym before and after one of their group members pursued me. No masks. He offers me a hug, too. I decline. City ordered gym closed; they refuse. [@PeelPolice](https://twitter.com/PeelPolice?ref_src=twsrc%5Etfw) [@globalnews](https://twitter.com/globalnews?ref_src=twsrc%5Etfw) [#Mississauga](https://twitter.com/hashtag/Mississauga?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/B5qqvQasRg](https://t.co/B5qqvQasRg)
-> — 𝚂𝚎á𝚗 𝙾’𝚂𝚑𝚎𝚊 (@ConsumerSOS) [April 16, 2021](https://twitter.com/ConsumerSOS/status/1383116307172884480?ref_src=twsrc%5Etfw)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-按政府的封城要求，健身俱乐部被要求关闭，但俱乐部拒绝了，仍有人去那健身。按说警察应该去制止去俱乐部健身的人们，像疫情爆发以来那些驱散反封城示威的警察们一样，粗暴地对待人们，给他们上千元的罚款单，甚至戴上手铐，抓走。但这位警长没有这样做，他亲切地拥抱了人们，并分别和他们合影。
 
-昨天笔者刚刚报了[加拿大警察成立了“警察卫士”组织](https://gnews.org/zh-hans/1094962/)，为有正义感的警察提供一个归属，使他们联合起来敢于对违反他们当初誓言的任务说“不”。今天就有加拿大人发出这个警察拒绝镇压反封城民众的视频，相信今后会有越来越多的类似新闻曝出。
 
-欲把加拿大变成共产主义集权统治的人是否感到一点挫败感？在机场挟持回国的加拿大人到隔离营似乎已经狠狠地削弱了加拿大人的意志，使加拿大人在恐惧中生活。违宪又怎样？[大多数加拿大人还不是老老实实地从了？！](https://gnews.org/zh-hans/1043742/)加拿大人实在是好弄啊？这些当权者似乎看到“共产主义的曙光”就在眼前。然而这种“曙光”恐怕只是闪现了一下，反抗集权、争取自由的呼声和行动就直接打脸共产主义的梦想者。
+美东时间4月15日，塞林博士（Dr. Lawrence Sellin）连发四条振奋人心的中文推文。跟随爆料革命的战友都对塞林博士非常熟悉了，他曾是陆军上校，也是生物专家，曾任美军特种作战司令部参谋长，在德克里克堡传染病研究所做过研究生，主攻神经支配方向，他也是疫苗公司阿斯利康的全球运营总监，同时还是病毒顾问专家和美军军情专家——这资历就是妥妥的为灭共而生。他的推特目前共有131条推文，其中绝大多数都是关于中共病毒的。尤其，他最近发推直指病毒真正来源——中共实验室！塞林博士的每条推文步步逼近，揭示中共制造病毒的证据和逻辑链。路德社点评道，塞林博士发推代表其背后的美军军情部门对中共病毒是生物战武器的认定！
 
-加拿大人不好惹，他们不答应中共的意识形态在加拿大泛滥，我们拭目以待。
+今天，塞林博士出人意料地连发四个中文推。而这四条推文环环相扣，层层递进，让人振奋激动。
 
-* * *
+文字版原文：[【热点播报】塞林博士连发四推 释放灭共信号](https://gnews.org/zh-hans/1098497/)
 
-*编辑、发稿 文锦*
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文)**
+
+[**纽约香草山农场Twitter(****英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
