@@ -1,30 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 皮尔警长在封城期间，不抓捕反而拥抱去俱乐部健身者
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1101722/)
+## 主流媒体越封杀 勇敢的民心越转右
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1101715/)
 
-**阿黎**
-
-今天推特上有一个视频，皮尔（Peel, 加拿大多伦多外围地区）警长去健身俱乐部查看情况。他不但没有驱赶和抓捕违反封城令的人们，反而和他们拥抱并一起拍照。
+- 作者：wenwu
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-> EXCLUSIVE Uniformed Peel Police sergeant is all hugs with supporters of HUF gym before and after one of their group members pursued me. No masks. He offers me a hug, too. I decline. City ordered gym closed; they refuse. [@PeelPolice](https://twitter.com/PeelPolice?ref_src=twsrc%5Etfw) [@globalnews](https://twitter.com/globalnews?ref_src=twsrc%5Etfw) [#Mississauga](https://twitter.com/hashtag/Mississauga?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/B5qqvQasRg](https://t.co/B5qqvQasRg)
-> — 𝚂𝚎á𝚗 𝙾’𝚂𝚑𝚎𝚊 (@ConsumerSOS) [April 16, 2021](https://twitter.com/ConsumerSOS/status/1383116307172884480?ref_src=twsrc%5Etfw)
+**西班牙2021年4月16日电/西喜社——**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-2-4.jpg)
+图片来自4月13日澳大利亚的保守主义的专栏作家米兰达-德文在推特上转发了美国保守派政治活动家詹姆斯·奥基夫的推：据其说：CNN技术总监承认参与宣传了“把川普赶出白宫”的项目，”我们的重点是让特朗普下台”…… “我来到CNN是因为我想成为其中的一部分”。
 
+米兰达由此发表了一句感叹的评论：作为一个记者，看到曾经受人尊敬的新闻机构蜕变成赤裸裸的宣传机器，我很痛心。
 
+4月15日下午5点左右，一则新闻在各大媒体爆炸：奥基夫在爆料CNN影响2020年美国总统大选后，其推特账号被封杀。在此次之前，奥基夫名下媒体公司《真理项目》曾爆料脸书内部高层干涉2020年美国总统大选，从此《真理项目》的推特号以泄露隐私权而被封杀。不同的是，此次奥基夫推特因揭露CNN丑闻被封杀，动静非常大。这代表了左派媒体在大选上的不诚实。接下来让我们看下各大新闻媒体关于此事的报道。
 
-按政府的封城要求，健身俱乐部被要求关闭，但俱乐部拒绝了，仍有人去那健身。按说警察应该去制止去俱乐部健身的人们，像疫情爆发以来那些驱散反封城示威的警察们一样，粗暴地对待人们，给他们上千元的罚款单，甚至戴上手铐，抓走。但这位警长没有这样做，他亲切地拥抱了人们，并分别和他们合影。
+1.据2021年4月15日《国家脉动》的报道，在#ExposeCNN活动后，推特永久暂停了《真理项目》的创始人詹姆斯·奥基夫的账号。另外《每日来电者》、《纽约邮报》、《NOQ报告》、《后千禧年》等保守派新闻机构也争先报道此次关系川普总统大选的突发事件，可谓是保守派新闻机构向左派发起了攻击集结号。当然，自媒体记者都在推特发布了该突发消息。
 
-昨天笔者刚刚报了[加拿大警察成立了“警察卫士”组织](https://gnews.org/zh-hans/1094962/)，为有正义感的警察提供一个归属，使他们联合起来敢于对违反他们当初誓言的任务说“不”。今天就有加拿大人发出这个警察拒绝镇压反封城民众的视频，相信今后会有越来越多的类似新闻曝出。
+2.据2021年4月15日《纽约邮报》援引了关于《真理项目》爆料CNN在2020年大选上的报道是造假的2个视频。CNN工作人员承认从高层那里接到谎报新冠病毒死亡人数和充当拜登的宣传机器来罢免川普的任务。
 
-欲把加拿大变成共产主义集权统治的人是否感到一点挫败感？在机场挟持回国的加拿大人到隔离营似乎已经狠狠地削弱了加拿大人的意志，使加拿大人在恐惧中生活。违宪又怎样？[大多数加拿大人还不是老老实实地从了？！](https://gnews.org/zh-hans/1043742/)加拿大人实在是好弄啊？这些当权者似乎看到“共产主义的曙光”就在眼前。然而这种“曙光”恐怕只是闪现了一下，反抗集权、争取自由的呼声和行动就直接打脸共产主义的梦想者。
+3.据2021年4月15日“吴安迪”（MrAndyNgo)发表的推文的大意，大型科技公司推特、脸书与左派媒体合作，以击垮敢于挑战它们谎言的爆料者。
 
-加拿大人不好惹，他们不答应中共的意识形态在加拿大泛滥，我们拭目以待。
+在《真理项目》与其创造者奥基夫都被推特永久封杀后，奥基夫发布声明。其声明中表示自己会在周一起诉推特。
 
-* * *
+推特正在压制詹姆斯·奥基夫的声音和《真理项目》节目，这些声音和《真理项目》节目揭露了大媒体如何做出编辑决定。
 
-*编辑、发稿 文锦*
+美国有一半人是保守派，而川普卸任后第一次出现在保守政治行动会（CPAC）中。CPAC无疑会带领川普对大媒体发动袭击，如同越来越多的美国人加入爆料革命一样，这是多么令人鼓舞！
 
-0
+编辑：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
+
+**新闻来源：**[https://twitter.com](https://twitter.com/mirandadevine/status/1382048731806240774?s=21) ; [https://thenationalpulse.com](https://thenationalpulse.com/breaking/twitter-suspends-james-okeefe/) ; [https:// nypost.com](https://nypost.com/2021/04/14/cnn-staffer-tells-project-veritas-network-played-up-covid-19-death-toll-for-ratings/) ; [https://twitter.com](https://twitter.com/MrAndyNgo/status/1382786605971300366?s=20)
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+
++1

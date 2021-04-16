@@ -1,66 +1,110 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共不作不死&nbsp; 它今天的自嗨和疯狂是我们最佳的机会
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1101377/)
+## 美国国家情报局：中、俄是美国安全和利益的主要威胁
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1101587/)
 
-**简述：郭文贵先生在2021年4月9日的直播中让战友们“客观地、冷静地看待共产党今天的自嗨和疯狂，这是爆料革命最佳的机会”。共产党今天在世界上四处出击，攻击美国、英国，威胁日本、印度，就和二战的时候希特勒攻打英国、法国和苏联一模一样，不作不死！**
+新闻来源：The Washington Times《华盛顿时报》| 作者：Bill Gertz (比尔•戈茨) | 发布时间：2021年4月13日
 
-**中共不作不死****  ****它今天的自嗨和疯狂是我们最佳的机会**
+翻译/简评：wmorpho|校对：SilverSpurs7|审核：万人往|Page：小雨
 
-**The CCP’s Madness Is Our Best Opportunity**
+[!\[\]()!\[\](https://spark.adobe.com/page/LacCrgZgtKTlY/images/8c6e6af5-4810-4dc0-acf8-0d4ac6e0bb78.jpg?asset_id=15b642b0-1609-4bcd-8dc7-c3a93ad63501&amp;img_etag=%220b60f55eee1e9ca4e440b86298d01c82%22&amp;size=1024)](https://spark.adobe.com/page/LacCrgZgtKTlY/images/8c6e6af5-4810-4dc0-acf8-0d4ac6e0bb78.jpg?asset_id=15b642b0-1609-4bcd-8dc7-c3a93ad63501&amp;img_etag=%220b60f55eee1e9ca4e440b86298d01c82%22&amp;size=1024)
 
-它这种较量，兄弟姐妹们，现在就怕共产党现在不吱声了，服软了，完了，这灭共啊又得多个十年八年。现在只要共产党它攻击美元，想办法继续搞一带一路，控制马六甲海峡，苏伊士运河继续炸船，霍尔木兹海峡继续炸船，吉布提继续捣乱，安哥拉石油继续增加，然后它想尽一切办法威胁日本、印度马六甲海峡的石油供给，想尽一切办法攻击英国，想尽一切办法蓝金黄美国，威胁美国这些政客，咱就在这块等着就行了。
+**简评：**
 
-Brothers and sisters, talking about the competition, what we are now afraid the most is that the CCP stops making noise and goes soft, then we will be screwed because it will take another eight to ten years to destroy the CCP. Now as long as the CCP continues attacking the U.S. dollar, engaging in its Belt and Road Initiative, controlling the Strait of Malacca, bombing ships in the Suez Canal and the Strait of Hormuz, making troubles in the Djibouti, and increasing its import of Angola’s oil, and doing everything possible to threaten Japan and India’s oil supply in the Strait of Malacca, trying every means to attack Britain, BGY America and threaten American politicians, we then won’t need to do anything other than just waiting here.
+美国资深军事记者比尔•戈茨先生详细解读了国家情报局办公室周二发布的年度国家安全威胁情报调查报告，并着重于中共国和俄罗斯这两个独裁国家对美国安全和利益的严重威胁，尤其是中共国。他指出：“在中共国增强全球力量试图寻求取代美国的同时，俄罗斯也决意要挑战美国的主要利益。”俄罗斯虽然摒弃了共产主义，可普京竟然要恢复前苏联的势力范围，以网络攻击和恐怖威胁向美国施压来寻求美国的认可。而中共国对美国的威胁远远超过俄罗斯。在军事上，美国国家情报局将中共国大规模部署导弹和其他部队的行为描述为“可能破坏国际规范和关系的稳定”。
 
-这就你就等着，如果你不听到共产党赢的消息和刚才放那些视频，就共产党的这些粉红叫得嗨高了的信息、高潮了的这些信息，你就千万记住，灭共就不可能。如果你听了共产党没有好消息…完了，共产党这是真完了，这是真完了。现在只要共产党脖子硬，咱就有机会，它脖子一软咱完蛋了。
+未来几年，中共国预计将在世界范围内建立更多的军事基地，还会将重点放在以美国卫星和基础设施为打击目标的太空武器和网络攻击力上。报告说：“解放军火箭部队的高精度中、短程和中程常规导弹系统能够使该地区的美国和盟军基地处于危险之中。”中共国军方的核武建设是有史以来发展最快、平台最多样化的，预计未来十年核弹头将增加一倍。报告称：“中共国正在建设一支规模更大、能力更强的核导弹部队，与过去相比，其生存能力、多样性和警戒性更高，包括旨在管理区域升级并确保洲际二次打击能力的核导弹系统。”
 
-So, you just wait. Remember this carefully, if you don’t hear the news of the CCP’s victory or the  kind of videos that we just played, or the fake orgasm sounds of those CCP’s Little Pinks, it will be impossible to take down the CCP. Once you find that the CCP stops having good news, then that means the CCP is over, truly over. But now as long as the CCP’s neck is still stiff, we then still have a chance. But if its neck becomes soft, we will be over.
+中共国的情报和影响力活动正在扩大，包括干预（各国）选举的能力。美国国家情报局分析师表示，中共病毒扰乱了世界各地的生活，扰乱了经济、政治和安全领域，并加剧了地缘政治紧张局势。“大流行带来的经济下滑可能会在至少某些国家（也许是许多国家）造成或加剧动荡，人们在面对持续不断的经济下滑、失业、供应链中断等一系列相互关联的压力会变得更加绝望。”
 
-现在大家看到共产党的经济一片大好。“世界富豪我们占了一多半，比美国厉害。然后我们是各国外长六个外长到中国来磕头，美帝国主义没有资格来评我们，我们现在上打宇宙下打地球，我们有歼20，我们有激光炮，我们还有冠状病毒。是吧？我们还有小粉红，我们有中国陆军——5亿个陆军。” 五亿，我的娘咧，五亿！这五亿人咋来啊？我的天，是抬着来还是爬着来呀？这5亿陆军横扫全地球，顺便大家可能还到月球上喝点酒去，这共产党太牛了。就让它这个感觉好，没这个，灭共赢不了。
+该报告对中共国的认知既深刻又精准，美国人终于认清了中共国的邪恶程度和对美国安全和利益的巨大威胁。随着该报告的发布，美国各大媒体，不论左派还是右派，这几天都在讨论和转载。灭共已达成共识，全美灭共、全球灭共的时代已经来临！
 
-Now it seems to everyone that the CCP’s economy is so good. [The CCP says,] “We account for more than half of the world’s richest people, better than the United States. And we have foreign ministers of 6 countries coming to China to kowtow to us. American imperialism is not qualified to judge us. We can now launch a war not only in the space but also on the earth. We have F-20s, we have laser cannons, and we also have the coronavirus, right? We have Little Pinks, we have a Chinese army of 500 million soldiers.” Oh, my! 500 million! Where did they find the 500 million people? Oh, my God! How do they come here? By crawling or being carried by others? With 500 million soldiers sweeping the entire earth and possibly stopping by the moon to drink some wine, the CCP is too awesome! Just let it feel good because without this, we can’t win.
+**原文翻译：**
 
-不是说你一…认真大家要看看，希特勒从1932年到1944年，你去看看希特勒所有走过的路，是搞奥运会呀、大型体育活动啊、拍电影啊、大宣传啊、国家主义啊、把企业国家化啊、国家资本化啊、然后大修机场啊，然后呢你看跟日本联合去了，跟日本联合。当年你要想想，它要跟日本不联合的话，世界怎么会到今天这个样子。
+## **情报调查发现，中共国和俄罗斯是美国安全和利益的主要威胁**
 
-Everyone should take a close look at the path that Hitler took between 1932 and 1944 – the Olympic Games, large-scale sports events, filmmaking, large-scale propaganda, nationalism, nationalizing private companies, state capitalism, and building airports. And what’s more, he allied with Japan. Think about this. If he didn’t ally with Japan, how could we have today’s world [the victory of the WWII]?
+[!\[\]()!\[\](https://spark.adobe.com/page/LacCrgZgtKTlY/images/784cfa42-0013-46f0-8ee1-768fb9e44c18.jpg?asset_id=b5d589cf-036a-4e80-9d5e-ea5b78422ebc&amp;img_etag=%223ceac0e02a9140fdac73f11873df54ac%22&amp;size=1024)](https://spark.adobe.com/page/LacCrgZgtKTlY/images/784cfa42-0013-46f0-8ee1-768fb9e44c18.jpg?asset_id=b5d589cf-036a-4e80-9d5e-ea5b78422ebc&amp;img_etag=%223ceac0e02a9140fdac73f11873df54ac%22&amp;size=1024)在2019年6月5日的档案照片中，中右方的俄罗斯总统弗拉基米尔•普京和中左方的中共国国家主席习近平正走进俄罗斯莫斯科克里姆林宫的会谈大厅。普京和习近平建立了牢固的人际关系，因而加强了曾经的两个共产党对手之间的战略伙伴关系。（美联社照片/亚历山大•泽姆利安尼琴科，普尔提供档案）
 
-跟日本去联合去了，就像共产党现在和俄罗斯联合一个道理、跟伊朗联合去了，哇噻！这多疯狂！ 什么都一样，然后攻击欧洲，然后对内部的老百姓一片欢腾！爱国主义到达了最顶峰。然后吃的、穿的看上去都很体面。打俄罗斯的时候前面是最先进的武器，后面全是马车牛车拉着这个供给线。打法国的时候一样，这面到巴黎了，那面还是马车牛车还在运东西呢。然后希特勒说我要研究太空武器，非常非常的像。
+根据国家情报局（DNI）办公室周二发布的年度国家安全威胁情报调查，在中共国增强全球力量试图寻求取代美国的同时，俄罗斯也决意要挑战美国的主要利益。
 
-Germany allying with Japan is just like the CCP allying with Russia right now, also with Iran. Wow! So crazy! Everything is so alike. When Germany attacked Europe, its people exulted and patriotism reached its peak. Their food and clothes all looked very decent. When they fought Russia, they put the best weapons in the front, but used horses and oxen for their supply transportation in the back. Same thing happened when they fought France – when they arrived at Paris, horses and oxen were still hulling supply. Well, Hitler claimed that he was going to develop space weapons – so similar [to the CCP]!
+DNI在国会通过的新情报立法要求的第一份年度威胁报告中警告说，北朝鲜和伊朗也因新冠肺炎疫情的后果而对美国构成重大安全威胁。
 
-如果当时所有的二战的专家、科学家、军事专家，就我向他们请教的时候，他们都是一句话，说如果当时希特勒收回去，突然停下来了，说这个世界完全就变了，没有哪个国家包含美国敢去直接去打德国去。如果他不打莫斯科根本不可能，希特勒不会被灭的。
+DNI报告得出结论显示，相比之下，包括伊斯兰国、基地组织和真主党在内的全球恐怖组织曾经主导美国战略威胁分析，虽然他们可能继续会对美国构成威胁，但以美国为首的对ISIS和基地组织的打击已大大降低了他们对美国和美国盟友的威胁。
 
-All the WWII experts, scientists, and military experts that I have asked questions to basically gave me the same answer. If Hitler retreated and suddenly halted the invasion at that time, the world would be a completely different place because there would be no country, including the United States that would dare to fight against Germany directly. If Hitler did not fight Moscow, he would not be destroyed.
+该报告说：“中国共产党（CCP）将继续使用整个国家的力量来扩大中共国的影响力，削弱美国的影响力，在华盛顿及其盟友和伙伴之间建立楔子，并建立有利于中共国威权体系的新国际准则。”中共国可能会寻求减轻双边紧张局势作为促进其政策的策略，但是中共国的技术盗窃和间谍活动仍然是美国竞争力的“最大威胁”。
 
-所以说现在你得看到共产党的疯狂，既打巴黎，又打英国，还打莫斯科。这个事情要不发生不从1935年的3月5号到1936年的3月6号撕毁整个《凡尔赛协议》，跨过莱茵河，十万大军到五十万大军完全干掉巴黎，希特勒他死不了。
+DNI报告说：“中共国认为，中美关系的竞争日趋激烈，这是时代性地缘政治转变的一部分，并将华盛顿自2018年以来对中共国采取的经济措施视为美国为遏制中共国崛起所做的更广泛努力的一部分。”
 
-So now you see the madness of the CCP, [which is like Hitler] attacking Paris, Britain, as well as Moscow. If Hitler didn’t tear up the entire “Versailles Agreement” between March 5, 1935 and March 6, 1936, and didn’t cross the Rhine, and completely wipe out Paris with an army of 100,000 to 500,000 soldiers, Hitler wouldn’t die like that.
+报告说，中共国领导人正在寻求巩固其权力，确保其领土安全，并“迫使区域邻国默认中共国的偏好，包括其对有争议领土的主张和对台湾的主权主张”。
 
-这就是今天你看到了，我所有国内…因为企业的朋友太多啦，说：“你看看，文贵呀，啊，中国的富豪、北京的富豪占尽了世界多少。”大家仔细去看看，本质，要看本质，它连一块钱的价值生产都没有，全是泡沫。所有的泡沫根本…记住中国人现在所有的东西就是中国奴隶，就是中国十四亿人民被剥夺的生产力和那个财富，而且是膨胀化的。它对整个国家强大、人民富裕没半毛钱关系，零关系。
+情报评估警告说，中共国领导人敦促台湾向统一迈进，同时谴责美台互动的增加。
 
-This is what you have seen today. I have many business friends in mainland China, who always say this: “Look, Miles, so many rich people in this world are Chinese and from Beijing.” But let’s take a closer look and look at the essence of this thing – They do not produce a dollar’s value, and everything is a bubble. Remember that everything that the Chinese people possess right now is made by the Chinese slaves, that is, the productivity and wealth deprived of the 1.4 billion Chinese people, and besides, it is inflated [like bubbles]. It has nothing to do with the whole nation being strong and the people being prosperous.
+报告说：“我们预计，随着中共国加强将台北描绘成国际上孤立、经济繁荣仰仗大陆的努力，以及随着中共国继续增加台湾周围的军事活动，摩擦会加剧。”
 
-大家看到这个本质的时候你再看香港，香港和大陆过去这几个月大家知道，加拿大、欧洲几千亿美元地往外流，而且香港的社会几乎处在崩溃的边缘，而且香港的整个崩溃最后它都复制到台湾去，它最后一定打台湾。所以它打台湾的时候就会像当年希特勒去打英国一样，然后呢美国一介入，他就希特勒去打莫斯科了，他就会攻击美国或者攻击日本，结束了！
+在军事上，DNI将中共国大规模部署导弹和其他部队的行为描述为“可能破坏国际规范和关系的稳定”。未来几年，预计将在世界范围内建立更多的中共国军事基地，而中共国也会将重点放在以美国卫星和基础设施为打击目标的太空武器和网络攻击力上。
 
-After you have seen the essence of these things, please then look at Hong Kong. We know that in the past few months, Hong Kong and mainland China had hundreds of billions of dollars flowing out to Canada and Europe, and Hong Kong’s society is almost on the verge of collapse. Besides, Hong Kong’s situation will be completely duplicated to Taiwan, and in the end, the CCP will definitely attack Taiwan. So when the CCP attacks Taiwan, it will be like Hitler attacking Britain, and that as soon as the United States intervened, Hitler went to fight Moscow. Similarly, the CCP will attack the United States or Japan, then it will be finished!
+报告说：“解放军火箭部队的高精度中、短程和中程常规火箭系统能够使该地区的美国和盟军基地处于危险之中。”中共国军方的核武建设是“有史以来核武器发展最快、平台最多样化的”，预计未来十年核弹头将增加一倍。
 
-七哥今天主要说的事情，客观地、冷静地看待共产党今天的自嗨和疯狂，这是爆料革命最佳的机会。
+中共国对进行限制其战略现代化计划的军备控制谈判也“不感兴趣”。
 
-What your Brother Miles is trying to say today is that you should look at the CCP’s self-confidence and madness today objectively and calmly because it presents the best opportunity for our Whistleblower Movement.
+报告称：“中共国正在建设一支规模更大、能力更强的核导弹部队，与过去相比，其生存能力、多样性和警戒性更高，包括旨在管理区域升级并确保洲际二次打击能力的核导弹系统。”
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=607053ef6e11a756eddd33df](https://gtv.org/video/id=607053ef6e11a756eddd33df) (1:04:48-1:05:48, 1:06:08-1:10:27)
-鸣谢：感谢 Bruce(文远)、YIMING（文鸣）、山川异域提供中文文本于 [https://gnews.org/zh-hans/1074690/](https://gnews.org/zh-hans/1074690/)
+报告说，中共国的情报和影响力活动正在扩大，包括干预（各国）选举的能力。
 
-* * *
+报告说：“北京当局一直在加紧努力来塑造美国的政治环境，以促进美国政策偏好（于中共），（在美国）占据公众话语权，向中共国认定的对抗其利益所在的政治人物施加压力，并封杀在宗教自由和压制香港民主等问题上对中共国提出的批评。”
 
-字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+DNI分析师表示，新冠肺炎扰乱了世界各地的生活，扰乱了经济、政治和安全领域，并加剧了地缘政治紧张局势。
+
+报告说：“我们认为在疫苗和治疗药物普及之前，新冠肺炎仍将对全球人口构成威胁。疫情对经济和政治影响的余波将在世界范围内蔓延持续数年。”报告还指出，中俄两国都在“利用医疗用品和疫苗来提高其地缘政治地位”。
+
+“疫情带来的经济下滑可能会在至少某些国家（也许是许多国家）造成或加剧动荡，人们在面对持续不断的经济下滑、失业、供应链中断等一系列相互关联的压力会变得更加绝望。”
+
+**俄罗斯的挑战**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/LacCrgZgtKTlY/images/d6bd0e54-06e3-410a-816c-e3397c42f882.jpg?asset_id=8ab9aecf-494d-442b-8eab-0661d3be3803&amp;img_etag=%2259a77cb2009051c919007fd31b6a38ab%22&amp;size=2560)](https://spark.adobe.com/page/LacCrgZgtKTlY/images/d6bd0e54-06e3-410a-816c-e3397c42f882.jpg?asset_id=8ab9aecf-494d-442b-8eab-0661d3be3803&amp;img_etag=%2259a77cb2009051c919007fd31b6a38ab%22&amp;size=1024)
+
+情报报告预测，弗拉基米尔•普京（Vladimir Putin）总统的俄罗斯将继续使用各种手段“破坏美国的影响力，发展新的国际规范和伙伴关系，分裂西方国家并削弱西方联盟，并展示俄罗斯作为全球新的多极国际秩序主要参与者主导全球事件的能力。”
+
+警告来自于克里姆林宫和西方国家之间爆发的紧张局势，该局势是由于俄罗斯军事集结越过西方支持的乌克兰的边界所引起的。
+
+报告说：“俄罗斯将继续发展其军事、核武器、太空、网络和情报能力，同时积极参与国外（事物）并利用其能源以推进其计划并破坏美国。”
+
+莫斯科当局不是在寻求与美军直接冲突，而是希望与美国在互不干涉内政的前提下美国认可俄罗斯恢复前苏联的势力范围达成协议。但同时俄罗斯还在制造新武器，尽管国防支出平平，但对美国构成了越来越大的危险。
+
+俄罗斯的网络攻击也对美国关键基础设施构成了威胁。
+
+报告称：“我们认为，随着俄罗斯完善和利用其间谍、影响力和攻击能力，俄罗斯仍将是最大的网络威胁。随着对此类基础设施的妥协提高——在某些情况下可以证明——其在危机期间破坏基础设施的能力，俄罗斯继续将美国、盟国和伙伴国的关键基础设施作为攻击目标，包括水下电缆和工业控制系统。”
+
+关于伊朗，DNI报告支持拜登政府为重新加入2015年与德黑兰达成的核协议而做出的努力，该协议被称为“联合全面行动计划”（JCPOA），川普总统于2018年废除了该协议。
+
+报告说：“我们评估，伊朗目前没有进行我们认为对生产核装置必要的、关键的核武器开发活动。”
+
+可是在美国于2018年5月从JCPOA撤军之后，伊朗官员违背了部分交易承诺，并恢复了一些被禁止的核活动，以抗议美国对其实施的经济制裁。
+
+伊朗一名高级官员周二表示，德黑兰正准备将铀浓缩至60％的水平，这非常接近核武器所需的水平，以回应周末被广泛归因于以色列破坏其纳坦兹核基地的袭击。
+
+DNI评估说，北朝鲜领导人金正恩可能会采取激进和可能破坏稳定的行动，包括恢复核武器和进行远程导弹测试。
+
+报告说：“我们估计，金正恩认为核武器是对外国干预的最终威慑，并相信随着时间的推移，他将获得国际认可和尊重。”北朝鲜常规军事能力的扩大对美国、韩国和日本构成“越来越大的威胁”。
+
+[![](https://spark.adobe.com/page/LacCrgZgtKTlY/images/b2c479c6-6d63-42fa-abc0-0171715552bb?asset_id=1f9a92f5-0f70-49c8-a63a-3e2a8eff13d4&amp;img_etag=%22821fa4c1219931a674f509dc480ea21d%22&amp;size=1024)](https://spark.adobe.com/page/LacCrgZgtKTlY/images/b2c479c6-6d63-42fa-abc0-0171715552bb?asset_id=1f9a92f5-0f70-49c8-a63a-3e2a8eff13d4&amp;img_etag=%22821fa4c1219931a674f509dc480ea21d%22&amp;size=1024)
+
+报告说：“平壤在2021年1月和2020年10月的军事阅兵期间向世界描绘出了其不断增长、更加多样化的战略和战术弹道导弹部队。”
+
+金正恩在2019年12月宣布将终止对ICBM（洲际弹道）导弹和核武器试验的自我暂停，但该政权至今还尚未进行远程导弹的发射测试。
+
+关于拜登政府将气候变化描述为“现存的”国家安全威胁的说法，DNI并没有采用，而是说：“我们评估，不断变化的气候和环境退化的影响将造成直接和间接威胁的混合，包括经济的风险、政治动荡的加剧、民众流离失所以及地缘政治竞争新的管辖地将在未来十年乃至更长时间内发挥作用。”
+
+[🔗原文链接](https://www.washingtontimes.com/news/2021/apr/13/china-russia-remain-prime-threats-us-security-inte/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/LacCrgZgtKTlY/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/LacCrgZgtKTlY/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

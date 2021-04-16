@@ -1,31 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 巴西布坦坦末期临床试验结果：科兴疫苗有效率刚过及格线
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1100654/)
+## 【热点播报】德国即将从阿富汗撤军
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1100736/)
 
-#### 翻译：海瑟888 | 校对：萌萌的朋克
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image.jpeg-1.jpg)
-巴西是南美洲感染病毒重灾国，感染人数仅次于美国——巴西每天每一百万人中就有至少330个新病例，而美国是206个。
+**据德国镜报杂志2021年4月16日报道，德国防部长安内格雷特-克朗普-卡伦鲍尔（Annegret Kramp-Karrenbauer）在一项日常命令中宣布，德国联邦国防军将于今年8月中旬从阿富汗全部撤军。**
 
-据美国博客媒体平台 Business Insider 报道称，在巴西进行的科兴CoronaVac疫苗末期临床实验测试了超12000名健康工作者，其中，约5%的的受试者年龄在60岁以上，注射疫苗后普遍状况良好，一些人会出现注射部位疼痛或肌肉疼痛等不适反应。
+翻译：Nancy
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-28.png)**德国联邦国防军士兵在马扎里沙里夫机场(档案照片)**
+**据报道，国防部长对撤军的具体时间已经有了一个初步的时间表。她表示，“如果一切能按计划进行，德国部队最早将于8月中旬全部撤离阿富汗。”  该报道指出，国防部长安内格雷特-克朗普-卡伦鲍尔此番话是她在与联邦国防军总检查长 埃伯哈德-佐恩（Eberhard Zorn）一起在每日例行会议上宣布这项命令的。**
 
-实验结果显示，该双剂疫苗在有症状感染者身上的有效率仅为50.7%。 4月11日，科兴在巴西的合作伙伴——布坦坦疫苗研究所（Butantan  Institution）发布的一份预印本中提到了这个数据，印证了该所一月份发布的新闻稿中宣布的顶线结果。而可用疫苗的基准有效率为50%，这是美国药监局FDA对普通疫苗的一个标准，福奇博士（Dr. Fauci）曾经也用这个标准给新冠疫苗标准背书过。
+**报道指出，北约组织理事会（NATO  North Atlantic Treaty Organisation）周三决定，从5月1日开始北约部队将陆续撤离阿富汗，军事撤离会在数月内完成。目前，德国在阿富汗的驻军约有1300名。如撤离行动进展顺利，德国联邦国防军会比美国士兵更早离开危机地带。**
 
-布坦坦研究所表示，“新冠疫苗的有效率最低为50.7%，但随着病毒日益加剧，其疗效会明显提高。”研究人员认，为新科疫苗预防重症感染的有效率是100%，但病例数太少，不足以成为有说服力的数据。研究人员还指出，注射疫苗间隔时间更长，疗效更好，比如两次注射之间间隔21天而不是14天，但并没有提供确切的数据。
+**镜报指出，美国从阿富汗撤军最迟会在纽约世贸中心和华盛顿美国国防部遇袭20周年纪念日-    即今年的9月11 号完成，众所周知，这是美国派兵入驻阿富汗的导火索。据悉，这是美国总统拜登对美撤军的设想。除美国人外，其他国际部队在阿富汗驻军的总人数大约为7000名。**
 
-此外，布坦坦的研究并没有告诉公众该疫苗能否预防P.1这种已经扩散的变异病毒——他们的数据收集工作在12月16日已经截止，而P.1首次在巴西被检测到的时间是12月4日。中共国疾病防控中心主任高福虽然肯定了疫苗的作用，但承认效果还是没有预期那么好。对变异病毒，他称混合注射疫苗将会提升功效。
+**译者评：**
 
-不过，新科疫苗在土耳其也进行了临床试验，测试了10000名19到59岁的的参与者，有效率为83.5%。
+**2001年9月11日对美国的恐怖袭击事件引发了美国派驻军队进入阿富汗。国际军事行动导致 “基地 “组织首领乌萨马-本-拉登的塔利班政权倒台。美国前总统特朗普（Donald Trump）曾承诺今年5月前美国从阿富汗撤军，期间塔利班与喀布尔政府也进行了多次直接和谈。无疑，这对现任美国总统拜登和北约组织都是一种压力。**
 
-中共疫苗外交战略已启动数月，目标以南美洲、非洲、中东、亚洲及欧洲部分国家为主，在欧美发达国家都在使用辉瑞、强生和莫德纳（Moderna) 等公司疫苗的同时，中国疫苗在中低收入国家及兄弟国遍地开花。据中共官媒称，该疫苗每剂成本为30美元，并且可以在普通冰箱里储存，因此，对于一些在与疫情抗争的中低收入国家很“划算“。但也有不贪便宜的国家，比如，最近有媒体报道兰已经拒绝购买中共疫苗，因经核实后发现中共疫苗问题多多。
 
-周五，世卫组织说低收入国家收到的疫苗数量只占全球分发的7亿剂的0.2%。布坦坦研究所表示，已经向30个中低收入国家（包括巴西、智利和菲律宾）发送了超过1.8亿剂新科疫苗。
 
-这款疫苗名义上是中巴合作，实际上中共才是主导。在病毒来源没有明确交代的时候，中共不仅利用疫苗明修栈道——大发人类危机财，更有暗度陈仓之嫌——若美国与之脱钩，被踢出Swift交易系统，通过疫苗控制大量不发达国家，经济上仍可获得喘息之机。
+审核/校对/发稿 奇门遁甲
 
-郭文贵先生早已警告过世界，中共病毒会造成次生灾难，疫苗亦如此。无论怎么说，这都是人类史无前例的劫难。
+原文链接: [Afghanistan: Bundeswehr soll schon Mitte August abziehen – DER SPIEGEL](https://www.spiegel.de/politik/deutschland/afghanistan-bundeswehr-soll-schon-mitte-august-abziehen-a-88f447f3-dcb6-4175-b859-2affe5613b70)
 
-原文链接：[China’s Sinovac vaccine is 50.7% effective against COVID-19, just reaching the threshold to be a vaccine worth using, a major trial showed](https://www.businessinsider.com.au/china-sinovac-vaccine-efficacy-effective-against-covid-with-symptoms-coronavac-2021-4)
+**更多资讯，更多关注**
 
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://mail.google.com/mail/u/0?ui=2&amp;ik=6ac942a4c5&amp;attid=0.1.1&amp;permmsgid=msg-f:1697211554661162166&amp;th=178db4eab0445cb6&amp;view=fimg&amp;sz=s0-l75-ft&amp;attbid=ANGjdJ_MF9refeF-bd25VajoR4jiEMIP6XRRLnVZYSEhjS8M19zkZz9HVu-IpmwCycBFQc8tu7Q38feMsK7BGcLwbE92G638znupYW7M7IZq5jXOugvR5IVfsGowdsU&amp;disp=emb)
 0

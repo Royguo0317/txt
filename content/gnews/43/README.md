@@ -1,181 +1,94 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第五、六节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1100722/)
+## 中共真的可以“平视”世界吗？
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1100762/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+#### 翻译： WEN JIE | 校对：人间四月
+![]()![](https://gnews.org/wp-content/uploads/2021/04/peace-3.jpg)图片来源：RFI
+据《华尔街日报》（The Wall Street Journal）近日报道，上个月在阿拉斯加安克雷奇（Anchorage，Alaska）的会晤让人们迅速意识到，中共国独裁者的外交使节并没有带来“橄榄枝”。相反，他们带来了新的世界观。
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/D-6.jpg)reddit.com
-**本节要点：**
+**中共在阿拉斯加会议上传递的信息**
 
-鼓励盟国和伙伴发挥更大的作用，制止中共国的侵略和强势行为。
+正如拜登政府官员预料的那样，在与中共杨洁篪和王毅的第一次会晤中，中共要求他们撤回川普时期针对中共的政策。在美国与中共国外交官员阿拉斯加会晤的简报上说，中共政府想要恢复“对话”机制，而华盛顿认为那是在浪费时间。
+杨洁篪还带给我们一个意外，那就是关于美国种族问题和民族失败的16分钟的“演讲”。中共官员目的很明显，就是表明中共视自己与美国在国际上势均力敌。杨并且警告美国在一个问题上不要挑战中共，那就是被中共视为神圣使命任务的对台湾实现最终的统一。
 
-每个联邦部门和机构的负责人应指定一名副部长或以上级别的高级官员，协调该部门或机构与中共国的战略竞争政策。
+这对中共过去的领导人们来说是一个巨大的转变，他们几十年来奉行小心翼翼的不挑战美国作为世界领导人的政策，遵循邓小平几十年前的格言：韬光养晦，等待时机。曾经中共某些高级官员私下里——常常带有讽刺意味——称美国为“老大”或者“老板”。现在中共正在重新打造中美关系，并认为中共的时机已经到了。
 
-如果我们的注意力一再转移到与美国经济和国家安全利益无关的挑战上，美国执行与中共国战略竞争战略的能力将受到损害。
+三月初，在中共国的全国人民代表大会上习近平说：“中共国已经可以平视这个世界了。”这一言论被中共国的媒体解释为向世界宣告中共国再也不用仰视美国了。
 
-美国必须阻止中共国在印度洋-太平洋建立区域霸权，以及中共在全世界推进其独裁的政治、经济和外交政策为目标（的野心）。
+美国通常描述中共国为战略对手，但是中共政府很少使用这个词汇，更多强调诸如“双赢”或者“合作”。
 
-美国必须确保联邦预算与中共国竞争的战略要务保持适当的一致。
+两国间不断增加的争执关系也为各自的盟友国家带来了竞争，美国的外交官飞往日本、韩国和西欧，而中共国的同僚与东南亚、俄罗斯和伊朗达成交易。
 
-美国必须确保所有联邦部门和机构的组织，以反映与中共国的战略竞争是美国外交政策的最高优先事项，包括通过美国对政府人员的任务委派和人员增派。
+**竞争关系**
 
-欲了解更多的內容，请看本两节全文（仅供参考）。
+杨洁篪在阿拉斯加就台湾统一警告美国是一个不详的预兆，暗示世界大国之间的竞争关系会导致冲突。
 
-**第5节 国会意识**
+美国承诺在1979年的《台湾关系法》下帮助台湾维护它的自治权，拜登政府向世界宣扬加强与台湾之间的政治和经济联系。台湾被中共国视为分裂出去的一个省，中共的独裁者在谋划与台湾统一，那也是中共民族复兴计划“中国梦“的一个重要组成部分。
 
-国会认为，执行第4（b）节所述政策需要采取以下行动：
+中共外交部在谈到杨洁篪在安克雷奇的警告时说：“中方指出台湾问题是中共国主权和领土完整的核心利益，没有妥协的余地。”
 
-（1）与中共国的战略竞争需要美国-
-（A）提升持续的政治意愿，保护其切身利益，促进其价值观，推动其未来几十年的经济和国家安全目标
-（B）为了实现这一持久的政治意愿，说服美国人民和美国的盟友和伙伴-
-（i）（认清）中共国提出的挑战
-（ii）需要长期竞争来捍卫共同的利益和价值观
+美国印太司令部负责人菲尔·戴维森（Phil Davidson）上将在三月初警告参议院军事委员会（ the Senate Armed Services Committee），中共国可能会在十年内试图控制台湾，甚至可能在六年内。有美国高级官员说，中共国很可能草率行动，因为民众可能过分相信美国是一个衰落的大国。
 
-（2）美国必须与盟国和伙伴密切协调，以有效地与中共国竞争，包括鼓励盟国和伙伴在适当情况下发挥更大的作用，平衡和制止中共国的侵略和强势行为。
+两国关系在川普政府期间急剧降温。在双方进行了两年的贸易战即将休战之际，美国总统责备中共让CCP病毒外泄。中共政府否认指控，并且给当时的国务卿迈克·蓬佩奥（Mike Pompeo）贴上“末日小丑”的标签。
 
-（3）美国总统必须领导和指导整个行政部门，将中共国视为美国外交政策面临的最大地缘政治和地缘经济挑战，在执行外交政策时，增加与中共国和美国在印太地区更广泛利益的战略竞争的优先次序，并确保分配适当的资源以应对挑战。
+在拜登当选总统后，中共的学术界和官场与美国联系，试图发现拜登新政府能否改变对中共的政策，但是他们很快就失望了。甚至在拜登上任前，中共的外交官就寻求制定一个高层会晤时间表，有熟知该事件的人说，拜登方面从没有同意这个请求，相反的是不断谈论与盟友合作对抗中共。
 
-（4）每个联邦部门和机构的负责人应指定一名副部长或以上级别的高级官员，协调该部门或机构与中共国的战略竞争政策。
+中共的担忧在一月份被进一步肯定，拜登任命的国务卿安东尼·布林肯（Antony Blinken）利用对他的听证会，宣布中共在新疆西北部地区对维吾尔穆斯林实施了种族灭绝计划，而中共则描述这个指控是“世界谎言”。
 
-（5）如果我们的注意力一再转移到与美国经济和国家安全利益无关的挑战上，美国执行与中共国战略竞争战略的能力将受到损害。
+拜登政府延续了前任对中共的看法，认为中共才是美国军事、技术和经济的最大挑战者。从新政府的视角来看，中共的挑衅从没有停止过。中共停止从澳大利亚进口货物，就因为澳大利亚呼吁对CCP病毒的起源展开调查，在与印度接壤的喜马拉雅边界制造冲突并且在南中国海对菲律宾和越南的船只发起威胁。
 
-（6）在未来几十年，美国必须阻止中共国-
-（A）在印度洋-太平洋建立区域霸权
-（B）利用这一立场在全世界达到其独裁的政治、经济和外交政策的目的
+正如中共官员说的，中共想要“夺回话语权”，亦或让美国收回对中共的认定。中共外交官和国家媒体大肆渲染西方干涉中共国内政，预示中共国的崛起。
 
-（7）美国必须确保联邦预算与中共国竞争的战略要务保持适当的一致，通过-
-（A）确保为美国国家力量的所有工具提供足够的资金
-（B）连贯地优先考虑如何使用这些资金
+在阿拉斯加三月十八，十九号的会议前，美国就发出强硬立场的信号。拜登总统就以视频的方式会晤了印度、澳大利亚和日本的领导人。布林肯先生和国家安全顾问杰克·沙利文（Jake Sullivan）先生，飞往东京和首尔与安全事务负责人会谈，并坚持中共的杨王二位飞往阿拉斯加参加美中会议，而不是在亚洲举行会晤。就在安克雷奇会议即将举行的前一天，美国扩大了对24名中共官员就镇压香港民主示威者行为的制裁。
 
-（8）持续优先处理中共国提出的挑战需要-
-（A）国会内部的两党合作
-（B）行政部门和国会之间经常、持续和有意义的合作与协商
+完全掌控台湾一直是自1949年毛政权将蒋介石民国政府赶出大陆后的目标。邓在毛时候转向西方，他很清楚的表示台湾统一可以等，目前中共主要注重于经济发展。对习来说，继续等待已经失去耐心。作为中共领导人，习史无前例的在明年下半年谋求第三任期，他的民族复兴言论得到广泛的支持。有中共国观察家说，没有什么比将岛屿重新带回中共国更强有力的巩固他的政治遗产了。
 
-（9）美国必须确保经济和外国政策制定者、私营部门、民间社会、大学和学术机构，以及受中共国挑战影响的自由和开放社会中的其他相关行动者，进行紧密的结合，使这些行动者能够-
-（A）合作促进共同利益
-（B）确定适当的政策-
-（i）加强美国及其盟国
-（ii）提升令人向往的自由和开放秩序的愿景
-（iii）抵制中共的有害政策
+在安克雷奇，美国重申坚持“一个中国”的政策，在这个政策下，华盛顿同意不承认台湾为独立国家，但他也重申了在经济和军事上帮助台湾的承诺。
 
-（10）美国必须确保所有联邦部门和机构的组织，以反映与中共国的战略竞争是美国外交政策的最高优先事项，包括通过美国对政府人员的任务委派和人员增派；利用-
-（A）在印度洋-太平洋地区、世界各地和华盛顿特区投入更多的人员，优先考虑推进与中共国的竞争
-（B）在印度洋-太平洋地区增加外国服务人员、国际发展专业人员、外国商业服务人员、情报专业人员和其他美国政府人员
-（C）确保该员工，无论是文职人员还是军队，都具备在语言、技术技能和其他能力方面的培训，以促进与中共国的成功竞争战略
+战略与国际研究中心中国分析师邦妮•格拉瑟（Bonnie Glaser）表示：“中共国担心拜登对台湾的倾斜越来越远。他们正在使用不断扩大的手段来向台湾施压，并向美国发出信号——请谨慎行事。”
 
-（11）美国必须再次强调加强非军事手段，包括外交、信息、技术、经济、外国援助和发展金融、商业、情报和执法，这对于应对中共国独有的经济、政治和意识形态挑战至关重要。
+**尖锐分歧**
 
-（12）美国必须继续为太平洋威慑倡议提供资源，这项倡议应符合《亚洲放心倡议法》（公共法律115-409）中阐明的总体政治和外交目标，必须优先考虑实现美国在印度洋-太平洋地区政治目标所需的军事投资，包括：
-（A）促进印度洋-太平洋地区的区域安全
-（B）在保护盟国和伙伴免受胁迫的同时，安慰他们
-（C）制止与中共国的冲突
+荣耀归国后，杨的演讲使他成为了民族英雄。这也代表作与美国合作政策的急剧转向，自两国建交以来，邓短暂的与美国合作的外交政策被终止。根据官方记录，邓曾在1979年告诉助手，“我们往回看看，我们发现那些与美国站在一起的国家都变富了，而那些与美国对抗的国家仍然贫穷，所以我们要与美国合作。”
 
-（13）与中共国的竞争要求美国熟练地适应21世纪的信息环境，美国公共外交和信息传递努力必须有效地-
-（A）促进与美国的伙伴关系的价值观
-（B）突出与中共国建立联系的风险和成本
-（C）反中共宣传和制造谣言
+在邓的这个政策指导下，他的继任者江推动中共政府与华盛顿谈判，让中共国于2001年进入全球贸易体系。他恳求美国和其他公司首席执行官向国际展示中共国开放的巨大步伐。下一任领导胡跟随美国走得更远。在2008年金融危机期间，胡根据美国总统乔治·W·布什（George W. Bush）规划的蓝图，签署一项计划来刺激中共国的经济，以帮助世界经济从衰退中摆脱出来。
 
-**第6节 规则解释**
+习在开始自己的统治时也延续类似的政策。他的“中国梦”的口号也迎合了美国梦的要求。尽管川普总统威胁制裁中共国，在2017年的年底，习还是在紫禁城设私人宴会款待了川普总统。
 
-（a）对援助外国安全部队的现有限制的适用性。-本法的任何内容均不得解释为根据1961年《外国援助法》（22 U.S.C.2378d）第620M节，或者《美国法典》标题10第362节，来减少、取代或以其他方式限制或阻止美国政府的责任。
+习反复告诉自己的手下和外国访问者：“我们有一千个理由要搞好中美关系，没有一个理由来破坏它。”
 
-（b）没有使用武力的授权 -本法的任何规定不得解释为授权使用武力。
+就在川普政府对中共国进口的商品加征关税，并且将一些中共国关键公司纳入黑名单（那些公司被指责偷窃美国知识产权，并用来帮助建设中共军队）后，习恼怒了。以他的角度，他认为美国已经不是一个信赖的合作伙伴了，他致力于让中共国不再依赖美国，特别是技术上不再依赖美国。
 
-（第5、6节完）
+在中共的权力走廊里，川普被他们笑称“大统领”。美国的激进行为正在团结习和中共。
 
-中共应该胆颤了，为了落实、协调本法案的实施，法案要求每个部或机构指定专人负责，级别是副部长或相同级别的要员，且从人力、财力给予了最大的优先权。邪共，你死期已到！
+美国应对疫情爆发的混乱状态，以及后来夏季的种族动乱和一月六日的国会大厦暴力事件，使习坚信中共体制的优越性。有官员说在内部会议上，习将美国的民主比作“一盘散沙”，声称一党制让他能够做好很多事。
 
-原文链接：
+随着拜登进入白宫，中共继续强硬立场，发出信号，那些公司如果不遵从中共的规则就会失去进入中共国市场机会。瑞典品牌服装公司H&M由于拒绝使用新疆棉花的立场，遭到中共国消费者的抵制和社交媒体的强烈指责。中共官方以特斯拉汽车摄像头带来国家安全风险的借口，严格限制军职人员和国有公司的特定员工使用美国特斯拉的电动汽车。
 
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+在安克雷奇，谈到美国公司在中共国的业务，杨洁篪说“没有人强迫他们留在中共国。”
 
-文字整理：
+**寻求盟友**
 
-SEC. 5. SENSE OF CONGRESS.
+自阿拉斯加会晤以来，两国的竞争都转到了寻找盟友上面。一周内，布林肯联合加拿大、欧盟和英国谴责中共在新疆的政策，其中欧盟对中共实施了自1989天安门广场镇压示威者以来的首次制裁。
 
-It is the sense of Congress that the execution of the policy described in section 4(b) requires the following actions:
+即使是日本，在对待中共国这个最大的贸易伙伴时，一直生怕惹恼中共，现在也跟随美国似乎尽力使自己对中共国更为严厉。就在上周，在日本首相菅义伟（Yoshihide Suga）即将于四月十六日赴华盛顿与拜登会晤前，日本外长茂木敏充（Toshimitsu Motegi）呼吁中共提升对维吾尔族的人权状况，并且停止对香港的镇压。
 
-(1) Strategic competition with the PRC will require the United States –
+中共国外交部长三月会见了俄罗斯同僚，这使得中共党媒《环球时报》发表标题为“中俄打破美国对世界秩序的控制权”的报道。然后这位外交部长飞往中东，与伊朗签署了一系列的经济和安全合作协议。
 
-(A) to marshal sustained political will to protect its vital interests, promote its values, and advance its economic and national security objectives for decades to come; and
+中共将欧洲一些议员和智囊团列入黑名单来报复欧盟制裁，这可能使欧盟议会批准与中共即将签署的投资协议变得更加困难。
 
-(B) to achieve this sustained political will, persuade the American people and United States allies and partners of –
+奥巴马前负责中共方面工作的官员丹尼尔·拉塞尔（Daniel Russel）说：“对中共来说，这是一场代价极高的赌博。但这并不代表中共一定会输。”
 
-(i) the challenges posed by the PRC; and
+评：译者认为该文章作者看似将世界上的局势自中美安克雷奇会晤后做了个全面梳理，其实不然，完全是一副自我意淫的手法，典型的中共外宣手法。试问一下，当今世界的工作重点是什么？难道不是对CCP病毒溯源吗？这篇文章叙述按照CCP病毒溯源的线索开展下去，就会发现是另一番效果。
 
-(ii) the need for long-term competition to defend shared interests and values.
+众所周知，中共以“假”“骗”“偷”横行世界几十年，营造出大国崛起现象，实际上就是一个“纸老虎”。美国制裁华为，限制芯片供应，两年以来，效果立马显现。现在我们还能看到有关于华为宏伟业绩的报道吗？华为就是中共的缩影。
 
-(2) The United States must coordinate closely with allies and partners to compete effectively with the PRC, including to encourage allies and partners to assume, as appropriate, greater roles in balancing and checking the aggressive and assertive behavior of the PRC.
+在这个时间点大肆宣扬大国崛起的假象，译者认为有两个目的。第一，为习独裁打造声势，对抗国内的反对势力，营造“习神”为他继续第三任期做铺垫。第二，转移国际社会对CCP病毒溯源的注意力，甚至是威胁国际社会。
 
-(3) The President of the United States must 8 lead and direct the entire executive branch to make the People’s Republic of China as the greatest geopolitical and geoeconomic challenge for United States foreign policy, increasing the prioritization of strategic competition with the PRC and broader United States interests in the Indo-Pacific region in the conduct of foreign policy and assuring the allocation of appropriate resources adequate to the challenge.
+中共在国内国际宣传手法如出一辙，国内民众长期处于洗脑状态，对所有的宣传深信不疑。然而国际社会，人民有独立思考的方式，有逻辑思考的方式，有自由表达的方式。中共想以宣传手段营造自己伟光正的形象，在国际社会达到自己想要的效果是不可能的。特别是在当前疫情肆虐的世界，所有证据都指向病毒来源于武汉实验室的时候，中共任何的宣传都不会在国际社会起到作用。中共可以平视世界吗？我看中共将会跪求世界。
 
-(4) The head of every Federal department and agency should designate a senior official at the level of Under Secretary or above to coordinate the department’s or agency’s policies with respect to strategic competition with the PRC.
-
-(5) The ability of the United States to execute a strategy of strategic competition with the PRC will be undermined if our attention is repeatedly diverted to challenges that are not vital to United States economic and national security interests.
-
-(6) In the coming decades, the United States must prevent the PRC from –
-
-(A) establishing regional hegemony in the Indo-Pacific; and
-
-(B) using that position to advance its assertive political, economic, and foreign policy goals around the world.
-
-(7) The United States must ensure that the Federal budget is properly aligned with the strategic imperative to compete with the PRC by –
-
-(A) ensuring sufficient levels of funding to resource all instruments of United States national power; and
-
-(B) coherently prioritizing how such funds are used.
-
-(8) Sustained prioritization of the challenge posed by the PRC requires –
-
-(A) bipartisan cooperation within Congress; and
-
-(B) frequent, sustained, and meaningful collaboration and consultation between the executive branch and Congress.
-
-(9) The United States must ensure close integration among economic and foreign policymakers, the private sector, civil society, universities and academic institutions, and other relevant actors in free and open societies affected by the challenges posed by the PRC to enable such actors –
-
-(A) to collaborate to advance common interests; and
-
-(B) to identify appropriate policies –
-
-(i) to strengthen the United States and its allies;
-
-(ii) to promote a compelling vision of a free and open order; and
-
-(iii) to push back against detrimental policies pursued by the CCP.
-
-(10) The United States must ensure that all Federal departments and agencies are organized to reflect the fact that strategic competition with the PRC is the United States top foreign policy priority, including through the assigned missions and location of United States Government personnel, by –
-
-(A) dedicating more personnel in the Indo Pacific region, at posts around the world, and in Washington DC, with priorities directly relevant to advancing competition with the People’s Republic of China;
-
-(B) placing greater numbers of foreign service officers, international development professionals, members of the foreign commercial service, intelligence professionals, and other United States Government personnel in the Indo-Pacific region; and
-
-(C) ensuring that this workforce, both civilian and military, has the training in language, technical skills, and other competencies required to advance a successful competitive strategy with the PRC.
-
-(11) The United States must place renewed emphasis on strengthening the nonmilitary instruments of national power, including diplomacy, information, technology, economics, foreign assistance and development finance, commerce, intelligence, and law enforcement, which are crucial for addressing the unique economic, political, and ideological challenges posed by the PRC.
-
-(12) The United States must sustain resourcing for a Pacific Deterrence Initiative, which shall be aligned with the overarching political and diplomatic objectives articulated in the Asia Reassurance Initiative Act (Public Law 115-409), and must prioritize the military investments necessary to achieve United States political objectives in the Indo-Pacific, including –
-
-(A) promoting regional security in the Indo-Pacific;
-
-(B) reassuring allies and partners while protecting them from coercion; and
-
-(C) deterring conflict with the PRC.
-
-(13) Competition with the PRC requires the United States skillful adaptation to the information environment of the 21st century. United States public diplomacy and messaging efforts must effectively –
-
-(A) promote the value of partnership with the United States;
-
-(B) highlight the risks and costs of enmeshment with the PRC; and
-
-(C) counter CCP propaganda and disinformation.
-
-SEC. 6. RULES OF CONSTRUCTION.
-
-(a) APPLICABILITY OF EXISTING RESTRICTIONS ON ASSISTANCE TO FOREIGN SECURITY FORCES. -Nothing in this Act shall be construed to diminish, supplant, supersede, or otherwise restrict or prevent responsibilities of the United States Government under section 620M of the Foreign Assistance Act of 1961 (22 U.S.C. 2378d) or section 362 of title 10, United States Code.
-
-(b) NO AUTHORIZATION FOR THE USE OF MILITARY FORCE. – Nothing in this Act may be construed as authorizing the use of military force.
+原文链接：[China’s Message to America: We’re an Equal Now](https://www.wsj.com/articles/america-china-policy-biden-xi-11617896117)
 
 0

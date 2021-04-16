@@ -1,33 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 历史碎片（一）联俄容共
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1101094/)
+## 慧眼看世界202104016（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1101152/)
 
-作者：Tito
-![]()![](https://gnews.org/wp-content/uploads/2021/04/find-mao.jpg)封面来源：[最新随笔](https://www.casualpen.com/时代故事1：联俄容共政策/)
-共产党是如何拿取江山的？共产党是如何发展起来的？
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-今天来看，这是一个难以想象的问题。因为如此混蛋的一个流氓组织，当初为什么会受到中华儿女的支持夺取天下？莫非当年的共产党是一股清流？
 
-历史书籍中，满满的都是中国共产党的励精图治，艰苦奋斗，通过小米加步枪的方式得了天下，颂扬着民心即是天心，共产党是得民心者得天下。事实当然是残酷的，因为天下从来不是人民的。天下可抢，天下可偷，天下可骗，抢偷骗天下，几时与老百姓商量过？不都是得了天下后忽悠百姓，说是顺了民心。中国人最怪了，最好哄了，自己什么都说了不算，土地财产都被党拿走，还唱赞歌，讽刺。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-共产主义如何传入中国的，这个暂时不多赘述，如何登上政治舞台的，才是重中之重。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-5.jpg)
 
-**“****联俄容共****”****（中国共产党将其称为联俄联共），是孙文晚年推动的为了引入苏联政治训练、军事及财务的外援，以协助中国国民党的国民政府政策。****而由于当时中国国民党军事力量不足以反抗当时北洋政府，两次目的为保护《中华民国临时约法》的护法运动均以失败告终，孙文在两次挫折后，认为必须建造自己的军队，才能统一全国。在西方国家拒绝给予孙文援助的情况下，新成立的苏俄则宣布废除之前沙俄与中国签订的部分不平等条约，并试图透过中国国民党进行共产革命。**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-6.jpg)
 
-没错，早期的共产党以个人名义加入国民党就是在这种背景下进行的。在护法运动失败的情况下，孙中山为了建立自己的军队，开始与苏联合作。而苏联当时的目的，不仅仅是争夺在中国的利益，苏联表现出了共产主义独有的意识形态扩张属性。历史虽不能假设，但是基于今天中国人民的磨难，我总是在思考，难道必须要统一中国么？难道一定要推翻北洋政府么？总有人告诉中国人，我们在被外敌蹂躏着，亡国了，我的下场更悲惨。可现在的中国人跟亡国奴有什么区别，国不属己，刻刻国奴，可中国人就是喜欢被哄自己的党来统治自己。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-5.jpg)
 
-在苏联“联俄容共”的影响下，国民党虽然有了建立自己军队的机会，也不可避免的被共产党渗透。那一刻，国民党亲手敲开了恶魔之门。从那时起，共产党像毒瘤一般，和国民党展开了不断的厮杀，最终败退台湾。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-6.jpg)
 
-近代史所有的视角，都是国民党是中国正统来描述的，而后共产党推翻国民党，是由于国民党不得人心，那么共产党就很得人心？那个年代，时局动荡，生活困苦，谁能说谁得人心呢？能混口饭吃就不错了。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-7.jpg)
 
-历史书中，不会去记载孙中山的无奈，不会去记载孙中山和苏联的政治交易，也不会写明那是苏联在输出革命。有点儿感叹，如果孙中山看到了中华民族今天这个结果，还会不会开始与苏联的“联俄容共”。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-5.jpg)
 
-**参考文献：**[联俄容共](https://zh.wikipedia.org/zh-cn/聯俄容共)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-5.jpg)
 
-* * *
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-5.jpg)
 
-***审核/校对：**Ting Guo*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-9.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-10.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-12.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-8.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/18-4.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/19-4.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20-4.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/21-2.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0
