@@ -1,82 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.12.2021AM-美特种作战司令官披露美军正在建立印太联合特遣队打击中共网络造谣水军
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1097668/)
+## 「疫情下的西班牙」欧盟达成“疫苗护照’’首次协议，大大降低最初的“雄心’’
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1097912/)
 
-视频剪辑 : Ablec(文A)
-中听校：洛杉矶天使农场 – 烟波浩淼
-英翻译：洛杉矶天使农场 – 飞利普      
-英校对：洛杉矶天使农场 – V
-字幕+视频制作：洛杉矶天使农场 – 压箱底儿の希望
+- 作者：gokuabuela
 
-**路德/LUDE:**
 
-最近在美国参议院的军事委员会听证会中作证
-Recently, he testified in the hearing of the military committee of the US Senate
-明确说美军正在建立一个印太联合特遣队
-said clearly that the US military is establishing an Indian-Pacific Joint Special Task Force
-专门来对(付)中共的网络水军不断扩大的这些造谣活动
-to deal with the growing rumor-making activities from CCP’s cyber ghostwriters
-中共的超限战，信息战
-CCP’s unrestricted war and information war
-超限战里面包括很多
-There are many fields in CCP’s unrestricted warfare
-我们之前做节目说，各种战，信息战
-as we said previously, including all kinds of war, such as information war
-网络战，媒体战，宣传战，还有金融战，货币战，法律战
-cyber war, media war, propaganda war, financial war, currency war, legal wars
-政治里面影响美国内部政治的走向
-political war by influencing the domestic political trend of US
-最后包括现在的超限生物武器
-And last but not least, the current unrestricted biowarfare
-它为什么要做这个网络谣言，这就是我们之前说过
-Why does CCP spread cyber rumors? As we said before
-中共放超限生物武器是一招
-releasing the unrestricted bioweapon (Sars-COV-2) is only one of CCP’s tactics
-更厉害的招是之后的搅浑才是它最厉害的
-the craftiest one is muddling the water to mislead/confuse people
-这就是闫博士的第三篇报告为什么主说的就是超限科学误导？
-This is why Dr. Yan’s third report focuses on the unrestricted scientific misleading
-现在大多数都是英文的五毛，都是老外
-Now the cyber deceptive newsis posted by foreign Wumaos
-都是正儿八经看着好像有人的
-To make it look like some what professional
-有中共在这方面投入越来越大，美国现在总算看明白了
-as CCP has invested more and more in this area, the US has finally understood
-包括像福奇，包括皮特纳扎克等一系列的，在推特上的，各种搅浑水
-that all kinds of misleading and confusions on Twitter by Fauci, Peter Daszak and others
-说什么自然来源，美国看得太清楚了，我告诉大家
-talking about virus from nature, let me tell you, the US has known what’s going on
-所以就要反击，要组建这个部队
-So it’s time to fight back and build the cyber Task Force
-看路德节目的时候，你底下这个评论是多么管用
-This is why it is valuable for you to comment while watching Luther’s media
-我早就跟大家说了，你的一个发言，你的一个点赞，实际上美国的军方都在看着
-As I mentioned, your comments and thumps up are in fact being watched by the US military
-如果底下咱们都没人站出来，它知道中国人算了
-if none of us stands up, Chinese, forget it
-中共的网络水军就跟中共在南海的大量的海上民兵一样
-CCP’s cyber ghost writers are just like its massive maritime militia in the South China Sea
-伪装成老百姓，伪装成各种自然的，发各种推
-They are disguised as civilians, look like normal people, and send all kinds of tweets
-这个真的是不好解决
-This is not easy to deal with
-为什么，因为就跟当时的反恐战争一样，平时穿的都是长袍，都是老百姓
-Why? Because, like in the anti-terrorism war, terrorists usually wear robes as civilians
-突然间，你不小心，他就拿着枪，拿着炸弹来了
-suddenly, if you’re not careful, he shows up with a gun and bomb
-中共现在就是玩的这一套
-CCP is playing game like this now
-以后只要来自中共国的，一刀切，没办法
-In the future, as long as they come from the CCP, there is no way but to destroy them
-美国在历史上就这样
-This is how the US did in history
-两颗原子弹就是老百姓和日军之间分辨不了
-the two nuclear bombs delivered to Japan did not recognize civilians from Japanese military people
-直接扔下去了
-so they went down directly
-14亿墙内的人，千万不要再给他们做炮灰
-1.4 billion of people inside the firewall, please stand up and do not die for the evil and deceptive CCP
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-0
+**西班牙2021年4月15日电/西喜社——**
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/passport-6012616_640-e1617885676767.jpg)
+
+欧盟成员国的27位大使就他们提出的 “数字绿色证书”，即所谓的 “疫苗接种护照 “达成了一致意见，它特别提到 “它不是护照，因为它不是人员流动的必需条件”。
+
+成员国大使们达成的协议，大大降低了欧盟委员会一个月前提出的原始提案的雄心壮志，各国政府已明确决定，”为了保证不歧视原则，数字绿色证书不能作为行使自由行动权的先决条件”，即不能对未接种疫苗的人有所区别。
+
+美国已经完全排除了建立这种证件的可能性，而英国也没有丝毫兴趣。这两个国家是西班牙旅游市场在欧盟以外的主要游客来源国。
+
+欧盟议会必须在本月26日至29日在布鲁塞尔举行的全体会议上通过其谈判立场，之后将开始机构间谈判，即所谓的 “三方会谈”，将委员会、理事会和议会聚集在一起，争取在夏季之前达成协议。
+
+**简评：**
+
+欧盟在经济利益和人权面前，最终还是偏向了人权。以后，“疫苗护照”将不能称为“护照”，因为它不能作为是否可以旅行的必需证件，也不会影响上学、找工作等。它最大的作用是记录抗体情况，提供给各国政府作为参考。比如，西班牙可能会提出：“有数字证书的游客可以免除隔离，其他游客必须提交阴性的检测报告或者接受隔离。”欧盟同时也把具体如何使用“疫苗护照”交给了各个国家自行决定。但已经着重强调“不能因此产生歧视”。
+
+这对我们生活在欧洲的人是一个好消息。
+
+不管怎么样，欧洲在推出数字证书的过程中，我们看到了它不是强权式的“一刀切”，他会让民间讨论其中的缺点，最终会有一个比较平衡的方案。即使，他的决定是不能让人接受的，我们也有上街抗议的权力，不会被黑警打，不会被“请去喝茶”。
+
+这便是欧洲与中共国的不同，我们看到中共国也在积极推行“健康护照”，但是他们永远不会考虑会不会引起人权性的歧视，甚至根本就不让你讨论其中的缺点，他们只会利用宣传等各种方法，让人们去谈论“他们想要让你知道的‘优点’”。
+
+对中共来说，“健康护照”可以让他们更好的监控拥有人。可以促进人们打疫苗，在他们的宣传下，不打疫苗肯定会被歧视。可以因此推广其倡导的“疫苗经济”，同时放开旅游市场，以赚取经济利益。还可以更加方便的“传播病毒”，因为人员可以去国外流动了。而你，不能反对，不然你肯定会被“解决”。
+
+欧盟降低了数字证书的重要性，加上美国、英国都不搞这种证件，让中共的如意算盘打了一个空，原本中共想借此实行双边证件互相承认，即持有中共国的“健康护照”，可以自由出入欧洲。然而，欧盟对“疫苗护照”现在的这种“不重要性”态度，让中共所计划的一切都失去了意义。
+
+从这个角度来说，这是欧盟这次协议的另一个好消息。
+
+素材：gokuabuela；审核：Aries的星；校对：阿伯塔；发稿：信心的选择
+
+**新闻来源：**[ABC新闻](https://www.abc.es/sociedad/abci-27-fijan-acuerdan-restringir-y-duracion-pasaporte-vacunacion-202104141953_noticia.html)
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+
++2

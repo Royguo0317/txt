@@ -1,38 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】意大利参议院批准早期COVID治疗方案
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1098227/)
+## 【热点播报】福奇又一次被参议员兰德-保罗怒怼
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1098331/)
 
-纽约香草山写作5组   四季
-
-据LifeSiteNews 4月14日报道，意大利参议院以压倒性优势批准对COVID进行早期门诊治疗，并接受了马西米利亚诺·罗密欧（Massimiliano Romeo）议员提出的议案。尽管该议案需要进一步的议会审议，但该决定是一个突破。
-
-意大利著名医生安德烈·斯特拉梅齐认为应该对COVID进行早期治疗，而不是等到它已经达到了细胞因子风暴的情况出现。意大利药品管理局（AIFA），已经被斯特拉梅齐医生和其他几位医生告上法庭，要求结束只给扑热息痛，然后就“一直等着”，直到病情恶化需要去医院治疗的做法。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-25.jpg)图片来自网络
-
-斯特拉梅齐医生指出，在意大利和法国，每天晚上都有同样的“病毒明星”。病毒学家每天出现在电视上，对观众说“只有接种疫苗运动，才有可能走出大流行”，他们还说，“我们没有任何治疗方法”，意大利的媒体每天24小时都在谈论疫苗。
-
-但斯特拉梅齐医生坚持认为，要么这些媒体医生与“大药厂”有关系，要么他们不知道COVID到底是什么，因为他们不接诊感染初期的门诊病人，而只接诊已经经历细胞因子风暴、呼吸困难的住院病人。
-
-斯特拉梅齐医生和其他意大利医生一年前就写信给政府，建议采用他们的疗法，目前该疗法已使他们治疗和治愈了10,000多名患者，仅“五，六例”死亡，但政府对此并不感兴趣。
-
-意大利的皮埃蒙特地区（Piedmont）去年已经签署了一项协议，保证医护人员对治疗的自由选择。现在，除了肝素、类固醇和抗生素之外，皮埃蒙特地区还首次在意大利引入了包括维生素D、非甾体抗炎药和羟氯喹在内的治疗方案。现在使用羟氯喹治疗COVID是合法的，因为国务委员会已允许该处方药在医生的严格责任和严格控制下使用。
-
-在中共病毒肆虐全球15个月的今天，被临床医生证明在作为预防或早期治疗病毒方面有效的羟氯喹都还没有被各国政府允许使用是人类的悲哀。主流媒体，大科技公司和大药厂对武汉冠状病毒早期治疗方案的压制，导致逾295万的无谓死亡。目前，全球中共病毒染疫人数已经超过1.37亿。世界是属于人民的，是时候给出一个答案了。
+作者：纽约香草山写作五组 四季
 
 
 
-审核/发稿 奇门遁甲
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
 
-原文链接：
+人类自由网站4月15日报道，美国参议员兰德-保罗周二在福克斯商业节目中慷慨激昂地请求将安东尼-福奇从电波中移除，因为他不断地“制造恐惧”。保罗称，福奇不停地提出“与他自己研究所的科学不相匹配”的说法。
 
-[https://www.lifesitenews.com/news/italys-senate-overwhelmingly-approves-early-covid-treatment-options](https://www.lifesitenews.com/news/italys-senate-overwhelmingly-approves-early-covid-treatment-options)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-236.png)图源网络
 
+福奇在本周早些时候曾发表言论，声称美国人即使已经完全接种了疫苗仍然不应该参加室内社交活动。保罗称，这些言论与CDC关于接种过疫苗的人不会传播病毒的结论相矛盾。所以，福奇需要停止对整个世界如何生活发号施令，让我们自己做决定。
 
+本周早些时候，保罗指责这位白宫医学顾问无视“100年的疫苗科学”。保罗在之前的听证会上指控福奇说，你让打过疫苗的人戴上口罩，这是在藐视我们对免疫力的一切认知。
+
+福奇反复提到口罩的功效，并承认封锁限制背后没什么科学依据。尽管如此，福奇仍不放弃口罩的戏码，甚至提出全世界需要在2022年之前继续戴口罩。福奇还建议孩子们应该戴上口罩才能一起玩耍，除非他们从6个月大开始全部接种疫苗。
+
+自从中共病毒肆虐以来，世界变得如此的荒谬。只有爆料革命唯真不破，始终不遗余力地告知全世界中共病毒的真相。
+
+参考阅读：
+
+[Rand Paul Demands ‘Petty Tyrant’ Fauci Be ‘Removed From TV For Fear Mongering’](https://humansarefree.com/2021/04/rand-paul-demands-petty-tyrant-fauci-be-removed-from-tv-for-fear-mongering.html)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
 
 更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
@@ -43,5 +41,11 @@
 更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
 更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
 
 0

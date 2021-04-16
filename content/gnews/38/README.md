@@ -1,50 +1,117 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 三本书《中国可以说不》、《中国不高兴》、《厉害了，我的国》暴露了中共的流氓本质
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1097406/)
+## 【世事解评】中共末世《平安经》，砸了谁的平安？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1097323/)
 
-**摘要：在2021年4月11日的直播中，郭文贵先生说美国人在五四运动、八九六四、南海等事件时多次给中共机会，相信中共会在经济发达后让中国人有民主和自由。然而共产党最终又变回了流氓的本质 —— 这充分地反映在中共出的三本书中：[《中国可以说不》](https://zh.wikipedia.org/wiki/中国可以说不)、[《中国不高兴》](https://zh.wikipedia.org/wiki/中国不高兴)、[《厉害了，我的国》](https://zh.wikipedia.org/wiki/厉害了，我的国)。他还揭露了2008年以来中共领导下的中国集体耍流氓不兑现对世贸组织承诺，在奥运会上集体耍流氓服用兴奋剂，以及渗透各种国际组织的真相。**
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210411_Live_P1.srt.txt)
-**三本书《中国可以说不》、《中国不高兴》、《厉害了，我的国》暴露了中共的流氓本质**
+作者：纽约香草山写作二组  桃花水母
 
-**The Three Books, *China Can Say No, Unhappy China*and*Amazing China,* Reveal the True Rogue Nature of the CCP**
 
-那我再告诉大家美国人为什么要把你中共要从过去要支持的国家，逐渐地在八九六四、包括一系列的南海事件、包括飞机撞机等等等等等等，还支持你中共、支持中国。
 
-Let me tell you why the Americans still support you CCP and support China as they did previously, even after the June Fourth Incident in 1989 and a series of incidents in the South China Sea including the plane crash and so on, and so on.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-他支持的是中国人，他真不见得就支持你中共。相信了你中共，就你在一定的情况下、你经济发达了你就会让中国人有民主和自由。就你1913年到五四运动、到六四坦克碾压学生都可以让你过去，我前提是我再相信你一次、第三次相信你，让你经济发达、改革开放，相信邓小平了。
 
-What they support is the Chinese people. They do not necessarily support you CCP. They trusted that you CCP could give the Chinese people democracy and freedom under certain circumstances when your economy is more developed. From 1913 to the May Fourth Movement, then to the June Fourth Incident when tanks ran over the students, I [America] let you go every time as I wanted to trust you one more time. I trusted you the third time and let you develop your economy, open and reform, and trusted Deng Xiaoping.
 
-结果共产党又变成了流氓的本质——骗、假，然后就看到了这个情况。我说你看看，从八九六四以后中国出了本书叫《中国不高兴》。大家都记得有一本叫《中国不高兴》，中国不高兴啦，因为啥？因为中国改革开放了，有点钱了，中国不高兴了。大家记住啊叫持剑经商这个人写的，持剑经商。第二个叫《中国可以说不》，过了几年中国又来了个吹牛逼、牛叉。对不起啊，这是流氓嘴啊，不好。《中国可以说不》，大家还记得吧？到中国可以说不，再没几年习近平习大神、王岐山上来了。大家知道什么书吧？《厉害了，我的国》。
+**【作者贺电的光环】**
 
-In the end, the CCP went back to its nature of rogue, that is, fraud and fakeness, which is what we see now. Look, after the June Fourth Incident in 1989, a book, called *Unhappy China*, was published in China. Everyone remembers a book called *Unhappy China*. China was not happy. Why? China became unhappy because it had its reform and opening and made some money. Everyone, remember that it was written by someone called Chijian Jingshang. The second book, called *China Can Say No*, came a few years later with more bragging (Chinese slang). Sorry, my words are too vulgar. No good. *China Can Say No*. Remember this book everyone? Another few years later, Xi Jinping the great god Xi and Wang Qishan came to power. You know what book was published then? *Amazing China*.
+话说1963年4月出生在吉林四平市梨树县的贺电同志，估计是借了清朝慈禧老佛爷的照应（梨树县为慈禧太后的祖籍地），头上光环四射。中共党员，博士研究生学历，法学博士和书法文献学博士学位，二级教授，博士研究生导师，一级警监，曾任吉林省公安厅党委副书记、常务副厅长，享受国务院特殊津贴的专家。吉林省首届十大杰出中青年法学家，吉林省有突出贡献中青年专业技术人才，吉林省高校跨世纪优秀人才，吉林省第七批拔尖创新人才。社会兼职中（共）国行为法学会规范制定行为研究会副会长，全国公安书法家协会副主席，公安部智库专家，中（共）国法学会理事，教育部高等教育公安学类专业教指委副主任委员、公安部公安理论与软科学课题评审专家组组长，公安部经济犯罪侦查专家库专家，吉林省法学会副会长、学术委员会副主任、吉林省平衡法学研究会会长，吉林省警察协会副会长，吉林省法理学研究会副会长，吉林省犯罪预防学会副会长，吉林省社会科学规划评审专家委员会法学专家。主持完成过国家社科基金项目《中（共）国社会失衡问题的法治对策研究》。
 
-美国等来的就这三个——《中国可以说不》、《中国不高兴》到《厉害了我的国》。跨度多少年？中国成功获得2008年奥运会主办权，成功举办奥运会震撼世界。2021年（注：应该是口误，2001年）不但成功地获得奥运会，中国还拿到了WTO的入门券——签了合同。2008年以后中共领导下的中国集体耍流氓不兑现WTO，集体在奥运会上集体耍流氓——喝兴奋剂。体育强国这个词儿，我们郝海东兄弟、叶钊颖妹妹给了你最明确的答案——就是流氓强国、乱伦强国。但凡要点脸的人都知道那到底儿发生了什么。不是避孕套塞住了下水道，是避孕套塞住了你的精神、塞住了你的良心。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/66-1.jpg)
 
-That was all America got after all the wait, the three books – *China Can Say No*,*Unhappy China*and *Amazing China*. How many years were spanned? China won the right to host the 2008 Olympic Games. They hosted the Olympic Games successfully, which shook the world. In 2021 (slip of tongue, should be 2001), China not only won the right to host the Olympics but also obtained the entry ticket to the WTO and signed the agreement. Since 2008, China, as a collective, acted indecently by not fulfilling its promise to the WTO and behaved like hooligans at the Olympic Games by taking stimulants, under the CCP’s leadership. Regarding the title of ‘sports superpower’ [self-claimed by China], our brother Hao Haidong and sister Ye Zhaoying have given you the clearest answer. It [the CCP] is a hooligan superpower and an incest superpower. Anyone that has some sense of shame knows what happened. It is not sewer that was blocked by the condoms [thrown by athletes], it is your spirit and your conscience being blocked by condoms.
+**【《平安经》的不平安】**
 
-某些是正常的，它某些集体做法就不正常。这就是《中国不高兴》、《中国可以说不》到《厉害了，我的国》，从2008年奥运、WTO然后全面渗透，叫国际刑警组织、NGO、世界银行、IWF、世界货币组织、世界贸易组织就彻底被拿下了。比利时的间谍可以跟美国相比，美国大概到8万左右吧现在，大约啊！2017年大约6万左右，现在我估计到8万到10万，在比利时一定也达到这个数在欧盟。
+然而，贺电令人眼花缭乱的头衔随着《平安经》一书的出版滑落，刚刚57岁，就终止了上升路。2019年11月，平步青云的贺电同志出任吉林省公安厅常务副厅长，其后不到一个月的时间，于12月1日，他便出版了16开336页的《平安经》（英文名：Peace Sutra），人民出版社和群众出版社联合出版，售价299元。
 
-Some were normal, but other collective approaches were not. From *Unhappy China*, *China Can Say No* to *Amazing China*, from the 2008 Olympic Games, the entry to WTO to comprehensive infiltration into the Interpol, NGO, World Bank, IWF and IMF. The WTO was completely infiltrated. The number of spies in Belgium are comparable to that in America. There are about 80,000 in America now, approximately. In 2017, there were around 60,000. Now I think there are 80,000 to 100,000. In Belgium and the EU, the number is definitely in the same range.
+《平安经》出版后，各方诸侯争先恐后发来祝贺，群众出版社网站更是介绍其为“书稿内容丰富，包罗万象，可作为一部小百科词典”。
 
-就是你让他好了他让你坏，你对他好他对你恶，你对他、你给他、帮他一次，他黏住你要你继续帮，直到你不帮把你干掉和你掐死你为止，这就叫流氓。说到这的时候，中国有贵族吗？中国有多少流氓呢？贵族和流氓的差距就在这儿呢。
 
-You let it prosper, but it sabotages you. You are kind to it, but it does evil deed to you. You helped it once and then it keeps wanting you to help until you stop offering your help and then it will kill you or strangle you. This is called hooliganism. By the way, are there any nobility in China? How many hooligans are there in China? The gap between nobility and hooliganism is clear.
+> *内容简介：念平安、盼平安、报平安，是老百姓的朴素向往。《平安经》虽以“经”为载体，但并非宗教内容，而是以歌诀、歌文形式撰写的平安颂歌……书稿内容丰富，包罗万象，亦可作为一部小百科词典，方便读者查阅相关知识。*
+> 群众出版社：《平安经》内容简介
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=6072f7c36e11a756eddfaf32](https://gtv.org/video/id=6072f7c36e11a756eddfaf32) (26:04 – 30:14)
-鸣谢：感谢文顾、湘江之水、山川异域提供中文文本于 [https://gnews.org/zh-hans/1082946/](https://gnews.org/zh-hans/1082946/)
 
-* * *
+2020年5月8日，“中（共）国吉林网”以“拜读出自当代作者的首部经书”称，“官员阅读此书，领悟初心使命。学者阅读此书，顿悟平安哲理。商贾阅读此书，企业平安无虞。民众阅读此书，安享世间太平”。随后，张咏评价本书道，“作为跨国传世的经类大作力作，是历代和当代仅见的首部平安经书，由人民出版社和群众出版社联合出版发行。作者贺电先生博学多识，拥有警察和专家双重身份，已出版专著35部 。从他的新作《平安经》中，令人感知到一位学者深邃的灵魂和宽广的情怀”。其后，以“吉林应急管理”为代表的多家吉林省当地官方微信公众号用“庚子之春，不同寻常，儒林巨制，皆在一念”为由，极力推荐此书。更甚者，于6月7日，吉林省朗诵艺术协会邀请十余位知名专家、学者、诗人，共同参加了“助力平安中（共）国、平安吉林建设暨《平安经》公益朗诵活动”研讨会。会上，吉林省原检察院副检察长、吉林大学客座教授韩起祥深情朗诵……总之，不知道书卖了多少，这声势却造得过猛了。
 
-*翻译：【雷鸣（文鸣）】字幕：【JennyL】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】*
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/67.png)
 
-+2
+2020年7月27日晚，有微博网友晒出7张图片，内容为一本名为《平安经》的封面照片以及书里部分内容截图，从而引发讨论。还是网友的力量大，当即戳破了“皇帝的新衣”——毕竟，书中内容与作者的水平完全不相符啊。可以想见，之后的四天，贺电同志一定是喝着安眠药入睡的：
+
+- 7月28日，人民出版社看风头不对，官微马上辟谣，说从未出版该书；
+- 7月29日，中纪委官网报道“如此平安太荒谬”，随后吉林省政法委牵头，省纪委监委、省委宣传部联合调查核实；
+- 7月30日，群众出版社进行了情况通报，承认是其出版，由于政治意识不强，追究相关负责人责任；
+- 7月31日，吉林省委决定免去贺电同志的公安厅党委副书记、常务副厅长职务。
+
+
+然而，《平安经》的风波并未就此告停。2021年4月6日，中央纪委网站的一则消息又引发了民众对《平安经》的关注。该消息称，“经吉林省委批准，吉林省纪委监委对吉林省应急管理厅（吉林省煤矿安全生产监督管理局）原党委书记、厅长（局长）霍云成严重违纪违法问题进行了立案审查调查。”其中，霍云成的第一条罪状就是，违反政治纪律和政治规矩，对抗组织审查，违规安排下属购买、宣传《平安经》。
+
+**【《平安经》到底是个啥？】**
+
+鉴于以上种种，笔者无法直接买到这本中共治下才有的“旷世奇书”——《平安经》。不过，[豆瓣读书](https://book.douban.com/subject/35035265/)的介绍，可见一斑。
+
+
+> *《平安经》以新时代中（共）国特色社会主义思想为指引，立足众生个体命运，放眼人类命运、世界命运、宇宙命运，进行全新探索与尝试。*
+> 
+> *反映时代呼声……服务社会大局……回应公众期待……宣传中华文化……传播知识体系……表达职业情怀……*
+> 
+> *宣传作者，创立《平安经》，以“思想的力量”助力“武器的力量”，助力创建平安盛世。创立平衡法学派，系统构建本土平衡法学理论，发表系列原创核心观点，引起法学术界和实务界广泛关注。*
+> 豆瓣读书：《平安经》
+
+
+同时，我们也能通过其目录与部分内容，得以一窥此奇书。奈何目录似乎还过得去，但其内容，却荒谬奇葩、笑掉大牙。
+
+
+> *平安经百句诀；第一篇 宇宙时空平安；第二篇 世界大地平安；第三篇 世界各界平安；第四篇 人类文明平安；第五篇 国家地区平安；第六篇 中华大地平安；第七篇 中国各界平安；第八篇 中华文明平安；第九篇 中国各地平安；第十篇 人类众生平安； 参考文献*
+> 《平安经》目录
+
+
+
+> *中华机场平安 北京首都国际机场平安，北京大兴国际机场平安，上海浦东国际机场平安，广州白云国际机场平安，成都双流国际机场平安，深圳宝安国际机场平安，上海虹桥国际机场平安……*
+> 
+> *各性别平安 男性平安，女性平安。各年龄平安，初生平安，满月平安，百天平安，1岁平安，2岁平安，3岁平安……*
+> 《平安经》第七及第十篇部分内容
+
+
+对此，网友纷纷贡献反讽神评：
+
+
+> *这无疑是当代最伟大的后现代主义思潮实验，当所有华丽的辞藻都无法表达作者这种大爱无疆的思想，只有最本质最存粹最简单的语言才能抒发。同时这些不断重复的格式、词语，甚至无意义的词汇，无不透露着作者已经窥探到宇宙的真理，熵不断增长的世界，杂乱无序，到处都是无意义，而这种无意义又反过来证明了自己的存在。*
+> 辣酱 2020/07/28
+
+
+
+> *作为一名同样有着惊世大才华的大才子，本人读完《平安经》后深受启发，倍感鼓舞，心中儿时的文学梦想又重新生根发芽。 于是，我在没有抑制住激动的心情的情况下，挥动起了我的如椽大笔，甩手写了一个《贺电经》。 全文写罢，泪如雨下。第一章，各国家发来贺电；第六章 明星发来贺电……郭敬明发来贺电，贺电发来贺电……*
+> 郭去疾 2020/07/30
+
+
+网友的调侃虽说让我们一笑了之，但回头想想，中共治下为何会出现这样的《平安经》？大量重复的词语充斥于整本书，既然一切都是重复，为何还要创作？更何况出版与其后的追捧？这无意义的背后，一切都归于权力——这本书宣示了一种权力的存在。
+
+**【中共末世《平安经》，就是给中共念的丧经】**
+
+贺电当了公安厅副厅长，用填空造句这一简单句式，通过不断地重复，就成了经文，供人诵读。权力给了他无限的资源，而无限的资源又助长了权力——这是典型的中共官场套路，是一个用权力刷存在感的典型样板。说到底，作者知道写的是什么，出版社知道出版的是什么，订阅者也知道读的什么，但权力让他们闭上了眼睛。当下的中共国就是这么一个让人听而不闻，视而不见，知而不言的世界，何其可悲。
+
+人民出版社于1950年12月1日成立，由“毛贼东”亲笔为其题写牌匾，是一家代表中（共）国政府和共产党的政治、意识形态的官方出版社。群众出版社则是直属公安部的国家级出版社。可笑的是，两家大社联合出版社的《平安经》，被网友戳破了“新衣”后，作为中央喉舌的人民出版社技高一筹，竟然说被冒用出版；而低一级的群众出版社无法甩锅，不得不出来道歉。两社合演的这一出戏，蔑视了网友的智商。《平安经》虽已下架，但损失由谁承担，却不得而知。
+
+百年土共，恶贯满盈，奇葩不断，荒谬绝伦，贺电丧经，送走中共。
+
+（本文仅代表作者观点）
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
++1

@@ -1,57 +1,82 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美国宣布制裁俄罗斯！参议院情报委员会关于中共病毒听证会！
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1097661/)
+## 【路德时评摘要】4.12.2021AM-美特种作战司令官披露美军正在建立印太联合特遣队打击中共网络造谣水军
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1097668/)
 
-作者：纽约香草山福音部 能灯山神
+视频剪辑 : Ablec(文A)
+中听校：洛杉矶天使农场 – 烟波浩淼
+英翻译：洛杉矶天使农场 – 飞利普      
+英校对：洛杉矶天使农场 – V
+字幕+视频制作：洛杉矶天使农场 – 压箱底儿の希望
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
+**路德/LUDE:**
 
+最近在美国参议院的军事委员会听证会中作证
+Recently, he testified in the hearing of the military committee of the US Senate
+明确说美军正在建立一个印太联合特遣队
+said clearly that the US military is establishing an Indian-Pacific Joint Special Task Force
+专门来对(付)中共的网络水军不断扩大的这些造谣活动
+to deal with the growing rumor-making activities from CCP’s cyber ghostwriters
+中共的超限战，信息战
+CCP’s unrestricted war and information war
+超限战里面包括很多
+There are many fields in CCP’s unrestricted warfare
+我们之前做节目说，各种战，信息战
+as we said previously, including all kinds of war, such as information war
+网络战，媒体战，宣传战，还有金融战，货币战，法律战
+cyber war, media war, propaganda war, financial war, currency war, legal wars
+政治里面影响美国内部政治的走向
+political war by influencing the domestic political trend of US
+最后包括现在的超限生物武器
+And last but not least, the current unrestricted biowarfare
+它为什么要做这个网络谣言，这就是我们之前说过
+Why does CCP spread cyber rumors? As we said before
+中共放超限生物武器是一招
+releasing the unrestricted bioweapon (Sars-COV-2) is only one of CCP’s tactics
+更厉害的招是之后的搅浑才是它最厉害的
+the craftiest one is muddling the water to mislead/confuse people
+这就是闫博士的第三篇报告为什么主说的就是超限科学误导？
+This is why Dr. Yan’s third report focuses on the unrestricted scientific misleading
+现在大多数都是英文的五毛，都是老外
+Now the cyber deceptive newsis posted by foreign Wumaos
+都是正儿八经看着好像有人的
+To make it look like some what professional
+有中共在这方面投入越来越大，美国现在总算看明白了
+as CCP has invested more and more in this area, the US has finally understood
+包括像福奇，包括皮特纳扎克等一系列的，在推特上的，各种搅浑水
+that all kinds of misleading and confusions on Twitter by Fauci, Peter Daszak and others
+说什么自然来源，美国看得太清楚了，我告诉大家
+talking about virus from nature, let me tell you, the US has known what’s going on
+所以就要反击，要组建这个部队
+So it’s time to fight back and build the cyber Task Force
+看路德节目的时候，你底下这个评论是多么管用
+This is why it is valuable for you to comment while watching Luther’s media
+我早就跟大家说了，你的一个发言，你的一个点赞，实际上美国的军方都在看着
+As I mentioned, your comments and thumps up are in fact being watched by the US military
+如果底下咱们都没人站出来，它知道中国人算了
+if none of us stands up, Chinese, forget it
+中共的网络水军就跟中共在南海的大量的海上民兵一样
+CCP’s cyber ghost writers are just like its massive maritime militia in the South China Sea
+伪装成老百姓，伪装成各种自然的，发各种推
+They are disguised as civilians, look like normal people, and send all kinds of tweets
+这个真的是不好解决
+This is not easy to deal with
+为什么，因为就跟当时的反恐战争一样，平时穿的都是长袍，都是老百姓
+Why? Because, like in the anti-terrorism war, terrorists usually wear robes as civilians
+突然间，你不小心，他就拿着枪，拿着炸弹来了
+suddenly, if you’re not careful, he shows up with a gun and bomb
+中共现在就是玩的这一套
+CCP is playing game like this now
+以后只要来自中共国的，一刀切，没办法
+In the future, as long as they come from the CCP, there is no way but to destroy them
+美国在历史上就这样
+This is how the US did in history
+两颗原子弹就是老百姓和日军之间分辨不了
+the two nuclear bombs delivered to Japan did not recognize civilians from Japanese military people
+直接扔下去了
+so they went down directly
+14亿墙内的人，千万不要再给他们做炮灰
+1.4 billion of people inside the firewall, please stand up and do not die for the evil and deceptive CCP
 
-
-路德社4月15日早间节目发布重要消息如下。
-
-1. 美国将于星期四宣布对俄罗斯实施新制裁，原因是俄罗斯涉嫌干预美国选举和发动恶意网络活动。制裁对象包括多名个人和实体。预计制裁将会把30个实体被列入黑名单，美国政府还将下令将大约10名俄罗斯官员驱除出美国。此轮制裁措施是对去年12月的网络攻击事件的回应。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片94.png)
-
-美国政府表示，这起有关SolarWinds软件的网络入侵很可能是俄罗斯策划的。黑客通过这一破坏行动进入了美国数千家使用Solarinds产品的公司和政府部门的系统。
-
-声东击西，这只是美国对俄罗斯的一个回应，有利益冲突才有利益合作，缓和沟通大于实际的意味！拜登还建议与普京在第三国会晤，以便两国领导人找到合作领域。“俄罗斯并不是美国最大的威胁，中共才是美国的最大威胁”。
-
-2. 美国最大中立无党派媒体《国会山报》揭露病毒来源真相！
-
-武汉病毒实验室所进行“功能增强实验”。福奇和彼得·达扎克把美国的钱投到武汉病毒所，并帮忙掩盖真相，媒体为了反川普把武汉病毒实验室来源打成阴谋论，现在真相必须大白于天下。
-
-主持人：针对世卫组织关于新冠病毒起源的洗白报告引起众多的质疑，它不仅暴露了我们媒体的腐败，更糟糕的是它还暴露了有人在刻意掩盖罪行，不仅是中共还有美国国内的政府官员参与其中，众所周知，武汉是新冠病毒爆发起点，也是武汉病毒研究所所在城市，那里除了研究蝙蝠冠状病毒还有“功能增强实验”，大家都知道这种“功能增强实验”很危险。媒体因为憎恨川普一开始就决定不要攻击武汉实验室来源说。我们的媒体拒绝了他们该做的本质工作。
-
-3. 国家情报总监海恩斯在参议院情报委员会听证时，正式确认中共武汉实验室是病毒的两个可能来源之一。这是美国高层情报官员第一次官方确认实验室来源的可能性。中情局局长伯恩斯和军情领导人钟宗根将军说，正在利用一切可能的资源和方式彻查中共病毒真相。
-
-【中国联邦】
-
-爆料革命‼️唯真不破‼️
-
-正道主义‼️万佛万神‼️
-
-敬畏万物‼️感恩天地‼️
-
-同心同德‼️与善同在‼️
-
-校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpg)
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-+1
+0

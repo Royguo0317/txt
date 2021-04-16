@@ -1,36 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## GTV投资人抗议SEC第七天实录
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1097507/)
+## 【香草山影院】《汉娜·阿伦特》电影解说
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1097784/)
 
-撰稿人：Faller
+制作：纽约香草山视频部
 
-2021年4月13日星期二
-华盛顿DC 
-美国证券交易委员会大楼
-上午9点，气温较低，阴云密布。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-14-127-scaled.jpg)
-抗议人举牌、拉横幅、举旗帜、发传单、呼口号、摄像、后勤，每个人在自己的位置，各就各位。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/2-39-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/3-32-scaled.jpg)
-后勤的口罩、手套、消毒液、水、水果、润喉糖、红牛饮料一应俱全。
-
-一个中东长相的媒体人来到抗议现场，开始录像并要采访投资人。因为不知道这个媒体的立场，现场人员回复他可以录像，但是投资人不接受他的采访。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4-17-scaled.jpg)
-午饭后小憩，之后开始今天的下半场。为了节省体力，分成椅子组和站立组，轮流休息。
-
-下午3点多，除了做后勤服务和离场临时休息的，现场仍然有60多投资人在抗议。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/6-9-scaled.jpg)
-太阳现身，冷飕飕的风变成了暖暖的阳光，晒得皮肤热热的。有战友开玩笑说真的晒成了熊猫，因为带着眼镜和口罩，暴露在阳光下的皮肤和藏在眼镜口罩下的皮肤黑白分明了。有战友换上T恤继续振臂高呼投资人的四个诉求！
-
-有一个关于公交司机的有趣的事情。上周，当有公交司机路过，现场的弟兄姐妹会向公交司机招手呼喊Take Down the CCP。今天有司机路过时，会减速向抗议人招手鸣笛。他们天天几遍路过，听Take Down the CCP，或许已经学会了这首歌。
-
-下午五点，一天的抗议回到结束，有序整理好现场的物品，收拾每一片垃圾。现场干净如初，抗议人安静离场。
-
-GTV的投资人，现场的后勤的和惦念现场的，大家同心合意！相信持续的抗议活动会给SEC施加越来大的压力，尽早释放资金，实现投资人的四个诉求！
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
 
 
 
-发布：闪电训练
+
+
+电影解说原文： [極權體系下的“平庸之惡” ——電影《漢娜·阿倫特》](https://gnews.org/zh-hant/368542/)
+
+审核/发稿：雪梨
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0
