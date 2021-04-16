@@ -1,105 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】丑闻：梵蒂冈与无神论的中共合作，出卖千万教徒为哪般？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1100922/)
+## 中共不作不死&nbsp; 它今天的自嗨和疯狂是我们最佳的机会
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1101377/)
 
-作者：纽约香草山写作二组  桃花水母
+**简述：郭文贵先生在2021年4月9日的直播中让战友们“客观地、冷静地看待共产党今天的自嗨和疯狂，这是爆料革命最佳的机会”。共产党今天在世界上四处出击，攻击美国、英国，威胁日本、印度，就和二战的时候希特勒攻打英国、法国和苏联一模一样，不作不死！**
 
+**中共不作不死****  ****它今天的自嗨和疯狂是我们最佳的机会**
 
+**The CCP’s Madness Is Our Best Opportunity**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+它这种较量，兄弟姐妹们，现在就怕共产党现在不吱声了，服软了，完了，这灭共啊又得多个十年八年。现在只要共产党它攻击美元，想办法继续搞一带一路，控制马六甲海峡，苏伊士运河继续炸船，霍尔木兹海峡继续炸船，吉布提继续捣乱，安哥拉石油继续增加，然后它想尽一切办法威胁日本、印度马六甲海峡的石油供给，想尽一切办法攻击英国，想尽一切办法蓝金黄美国，威胁美国这些政客，咱就在这块等着就行了。
 
+Brothers and sisters, talking about the competition, what we are now afraid the most is that the CCP stops making noise and goes soft, then we will be screwed because it will take another eight to ten years to destroy the CCP. Now as long as the CCP continues attacking the U.S. dollar, engaging in its Belt and Road Initiative, controlling the Strait of Malacca, bombing ships in the Suez Canal and the Strait of Hormuz, making troubles in the Djibouti, and increasing its import of Angola’s oil, and doing everything possible to threaten Japan and India’s oil supply in the Strait of Malacca, trying every means to attack Britain, BGY America and threaten American politicians, we then won’t need to do anything other than just waiting here.
 
+这就你就等着，如果你不听到共产党赢的消息和刚才放那些视频，就共产党的这些粉红叫得嗨高了的信息、高潮了的这些信息，你就千万记住，灭共就不可能。如果你听了共产党没有好消息…完了，共产党这是真完了，这是真完了。现在只要共产党脖子硬，咱就有机会，它脖子一软咱完蛋了。
 
-梵蒂冈，世界宗教中心。1951年，因其承认台湾政府，从而与中共断绝了外交关系。1957年，中共成立了不接受梵蒂冈领导的中（共）国官方天主教爱国会，并自行任命神职人员，负责监管天主教会。因此，接受梵蒂冈领导的天主教会只能秘密或松散地进行活动。截止2014年，中（共）国有天主教爱国会和天主教主教团教徒共550万。2015年8月，中（共）国首位得到梵蒂冈和天主教爱国会双双认可的助理主教张银林完成了祝圣典礼。
+So, you just wait. Remember this carefully, if you don’t hear the news of the CCP’s victory or the  kind of videos that we just played, or the fake orgasm sounds of those CCP’s Little Pinks, it will be impossible to take down the CCP. Once you find that the CCP stops having good news, then that means the CCP is over, truly over. But now as long as the CCP’s neck is still stiff, we then still have a chance. But if its neck becomes soft, we will be over.
 
-梵蒂冈国务卿枢机主教帕罗林（Parolin）——宗教界的王岐山（郭先生语）——为天主教牵线搭桥，与中共签订了临时协议。协议声明，教宗方济各希望中（共）国天主教团体服从于中共的领导。中共倡导无神论，并全面拆迁天主教堂，其残暴摧毁天主教信仰，现却又与天主教梵蒂冈展开合作，究竟意欲何为。
+现在大家看到共产党的经济一片大好。“世界富豪我们占了一多半，比美国厉害。然后我们是各国外长六个外长到中国来磕头，美帝国主义没有资格来评我们，我们现在上打宇宙下打地球，我们有歼20，我们有激光炮，我们还有冠状病毒。是吧？我们还有小粉红，我们有中国陆军——5亿个陆军。” 五亿，我的娘咧，五亿！这五亿人咋来啊？我的天，是抬着来还是爬着来呀？这5亿陆军横扫全地球，顺便大家可能还到月球上喝点酒去，这共产党太牛了。就让它这个感觉好，没这个，灭共赢不了。
 
-**【诡异：中文媒体独家采访国务卿圣座帕罗林（Parolin），不发中文稿，亦不报道】**
+Now it seems to everyone that the CCP’s economy is so good. [The CCP says,] “We account for more than half of the world’s richest people, better than the United States. And we have foreign ministers of 6 countries coming to China to kowtow to us. American imperialism is not qualified to judge us. We can now launch a war not only in the space but also on the earth. We have F-20s, we have laser cannons, and we also have the coronavirus, right? We have Little Pinks, we have a Chinese army of 500 million soldiers.” Oh, my! 500 million! Where did they find the 500 million people? Oh, my God! How do they come here? By crawling or being carried by others? With 500 million soldiers sweeping the entire earth and possibly stopping by the moon to drink some wine, the CCP is too awesome! Just let it feel good because without this, we can’t win.
 
-2019年5月12日，中共《环球时报》（别称“黄球屎包”）借由梵蒂冈国务卿圣座帕罗林参加北京园艺国际展览会期间，派特约记者郝土和张宇进行了独家采访。然而采访过去后三天，《环球时报》全无中文版本报道，只有英文发布的采访稿件。而对于这次中（共）国报刊首次采访梵蒂冈的新闻，其他中文媒体也只字不提。其实早在2015年10月30日，帕罗林就曾秘密访问过北京，随后这一信息也得到梵蒂冈方面的证实。
+不是说你一…认真大家要看看，希特勒从1932年到1944年，你去看看希特勒所有走过的路，是搞奥运会呀、大型体育活动啊、拍电影啊、大宣传啊、国家主义啊、把企业国家化啊、国家资本化啊、然后大修机场啊，然后呢你看跟日本联合去了，跟日本联合。当年你要想想，它要跟日本不联合的话，世界怎么会到今天这个样子。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-257.png)图源网络
+Everyone should take a close look at the path that Hitler took between 1932 and 1944 – the Olympic Games, large-scale sports events, filmmaking, large-scale propaganda, nationalism, nationalizing private companies, state capitalism, and building airports. And what’s more, he allied with Japan. Think about this. If he didn’t ally with Japan, how could we have today’s world [the victory of the WWII]?
 
-稿件用英文发表，很明显是给懂英文的观众看的。中共想让外界知道其与梵蒂冈合作了，从而使国外信众因相信梵蒂冈进而相信中共；但中文媒体不发表，就是不想让国内民众知道。毕竟，中共一边拆教堂、打信众，一边又与梵蒂冈合作，岂不是自己打脸无神论。
+跟日本去联合去了，就像共产党现在和俄罗斯联合一个道理、跟伊朗联合去了，哇噻！这多疯狂！ 什么都一样，然后攻击欧洲，然后对内部的老百姓一片欢腾！爱国主义到达了最顶峰。然后吃的、穿的看上去都很体面。打俄罗斯的时候前面是最先进的武器，后面全是马车牛车拉着这个供给线。打法国的时候一样，这面到巴黎了，那面还是马车牛车还在运东西呢。然后希特勒说我要研究太空武器，非常非常的像。
 
-但现今互联网时代，只要稿件发布，就会有痕迹。5月14日，新浪博客发布了采访的翻译版本，但难以确定其准确性。不过，结合其他媒体透露的信息，可以看到更多的事实。
+Germany allying with Japan is just like the CCP allying with Russia right now, also with Iran. Wow! So crazy! Everything is so alike. When Germany attacked Europe, its people exulted and patriotism reached its peak. Their food and clothes all looked very decent. When they fought Russia, they put the best weapons in the front, but used horses and oxen for their supply transportation in the back. Same thing happened when they fought France – when they arrived at Paris, horses and oxen were still hulling supply. Well, Hitler claimed that he was going to develop space weapons – so similar [to the CCP]!
 
-**【梵蒂冈与中共签署的临时协议核心是什么？】**
+如果当时所有的二战的专家、科学家、军事专家，就我向他们请教的时候，他们都是一句话，说如果当时希特勒收回去，突然停下来了，说这个世界完全就变了，没有哪个国家包含美国敢去直接去打德国去。如果他不打莫斯科根本不可能，希特勒不会被灭的。
 
-2018年9月22日，罗马教廷与中（共）国签署了关于主教任命的临时协议。帕罗林圣座说，双方都很清楚，这是长途旅行后才到达的节点，但同时是一个起点，现在开启一个加强合作的新阶段，双方沟通渠道良好。
+All the WWII experts, scientists, and military experts that I have asked questions to basically gave me the same answer. If Hitler retreated and suddenly halted the invasion at that time, the world would be a completely different place because there would be no country, including the United States that would dare to fight against Germany directly. If Hitler did not fight Moscow, he would not be destroyed.
 
-然而，这位圣座说话时欲言又止，内容亦抽象无重点。他作为宗教界领导，竟然不敢光明正大的公开，双方究竟清楚什么，又达成了什么协议。不过从他回答的只言片语中可以肯定，这个协议体现了方济各的想法——教宗同意天主教本地化和中（共）国化，他认可中共领导人，认为他们尊重宗教的本质和教义。帕罗林强调，双方的对话兴趣主要在于牧灵层面，且梵蒂冈信任和尊重中国人民及中国文化，我们要更好地了解对方，相互倾听。
+所以说现在你得看到共产党的疯狂，既打巴黎，又打英国，还打莫斯科。这个事情要不发生不从1935年的3月5号到1936年的3月6号撕毁整个《凡尔赛协议》，跨过莱茵河，十万大军到五十万大军完全干掉巴黎，希特勒他死不了。
 
-协议签订后，随即引发了国际争议。香港天主教陈日君说，我们可以原谅，但不应当忘记历史。
+So now you see the madness of the CCP, [which is like Hitler] attacking Paris, Britain, as well as Moscow. If Hitler didn’t tear up the entire “Versailles Agreement” between March 5, 1935 and March 6, 1936, and didn’t cross the Rhine, and completely wipe out Paris with an army of 100,000 to 500,000 soldiers, Hitler wouldn’t die like that.
 
-2020年10月21日，协议到期。尽管这个协议引发了国际争议，梵蒂冈亦被认为与侵犯宗教自由的国家合作是与虎谋皮，但梵蒂冈仍选择与北京（中共）续约两年。
+这就是今天你看到了，我所有国内…因为企业的朋友太多啦，说：“你看看，文贵呀，啊，中国的富豪、北京的富豪占尽了世界多少。”大家仔细去看看，本质，要看本质，它连一块钱的价值生产都没有，全是泡沫。所有的泡沫根本…记住中国人现在所有的东西就是中国奴隶，就是中国十四亿人民被剥夺的生产力和那个财富，而且是膨胀化的。它对整个国家强大、人民富裕没半毛钱关系，零关系。
 
-**【双方为何不讨论各自的制度？】**
+This is what you have seen today. I have many business friends in mainland China, who always say this: “Look, Miles, so many rich people in this world are Chinese and from Beijing.” But let’s take a closer look and look at the essence of this thing – They do not produce a dollar’s value, and everything is a bubble. Remember that everything that the Chinese people possess right now is made by the Chinese slaves, that is, the productivity and wealth deprived of the 1.4 billion Chinese people, and besides, it is inflated [like bubbles]. It has nothing to do with the whole nation being strong and the people being prosperous.
 
-帕罗林圣座在回答中明确，双方没有讨论各自的制度，也不想重新讨论对现在而言属于历史的问题，相反地，双方希望和平地践行自己的信仰。圣座表示，梵蒂冈在帮助中（共）国打击器官贩卖反面发挥了积极作用，至于在和平、消除贫穷、应对环境和气候紧急情况、移民及科学发展伦理等方面，则需双方共同努力。
+大家看到这个本质的时候你再看香港，香港和大陆过去这几个月大家知道，加拿大、欧洲几千亿美元地往外流，而且香港的社会几乎处在崩溃的边缘，而且香港的整个崩溃最后它都复制到台湾去，它最后一定打台湾。所以它打台湾的时候就会像当年希特勒去打英国一样，然后呢美国一介入，他就希特勒去打莫斯科了，他就会攻击美国或者攻击日本，结束了！
 
-然而，对于一个无神论的中共，梵蒂冈竟然不讨论制度，不声讨天主教信众在中共治下的地位，却只谈什么帮助打击器官贩卖这类空话。在制度不同，价值观不同的情况下，你怎么帮助，用什么帮助，又能达到什么目标——这简直就是对着空气说话。
+After you have seen the essence of these things, please then look at Hong Kong. We know that in the past few months, Hong Kong and mainland China had hundreds of billions of dollars flowing out to Canada and Europe, and Hong Kong’s society is almost on the verge of collapse. Besides, Hong Kong’s situation will be completely duplicated to Taiwan, and in the end, the CCP will definitely attack Taiwan. So when the CCP attacks Taiwan, it will be like Hitler attacking Britain, and that as soon as the United States intervened, Hitler went to fight Moscow. Similarly, the CCP will attack the United States or Japan, then it will be finished!
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-256.png)图源网络
+七哥今天主要说的事情，客观地、冷静地看待共产党今天的自嗨和疯狂，这是爆料革命最佳的机会。
 
-**【圣座对中（共）国的美好回忆是什么？】**
+What your Brother Miles is trying to say today is that you should look at the CCP’s self-confidence and madness today objectively and calmly because it presents the best opportunity for our Whistleblower Movement.
 
-梵蒂冈国务卿枢机主教帕罗林圣座在《环球时报》的采访中特别强调了，对中（共）国有着美好的回忆。他说：“那是一个春天的星期天，同中（共）国代表团在亚细亚度过的一天。”笔者非常好奇，那究竟是怎样的一天？然而，笔者始终没有找到圣座美好回忆的细枝末节。但梵蒂冈如何与中共勾兑，通过以下过程可见一斑。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=607053ef6e11a756eddd33df](https://gtv.org/video/id=607053ef6e11a756eddd33df) (1:04:48-1:05:48, 1:06:08-1:10:27)
+鸣谢：感谢 Bruce(文远)、YIMING（文鸣）、山川异域提供中文文本于 [https://gnews.org/zh-hans/1074690/](https://gnews.org/zh-hans/1074690/)
 
-2007到2009年间，帕罗林作为梵蒂冈代表与北京（中共）方面有着定期的接触，后来因谈判停滞而中断。2013年，方济各成为教皇，任命帕罗林为教廷国务卿。随后，中共允许梵蒂冈经过中（共）国上空，而方济各也表现出与中共合作的渴望。帕罗林深知教宗的意思，便开始与中共接触。
+* * *
 
-2016年10月5日，教宗方济各首次接见了来自中共天主教爱国会的主教徐宏根。
-
-2018年1月24日，媒体报道，梵蒂冈在主教任命问题上向中共让步。
-
-2018年2月2日，中（共）国修订了《宗教事务条例》，明确要求举行宗教活动的场所及团体要向当局登记。
-
-2018年9月22日，梵蒂冈新闻宣布，梵蒂冈与中共达成主教任命问题的临时协议。
-
-2018年10月3日，郭金才和杨晓亭代表中（共）国天主教主教团参加了梵蒂冈世界主教大会，受到方济各地热烈欢迎，方济各一度哽咽落泪。会后，郭金才邀请方济各访华。
-
-2019年6月19日，北京大学举办讲座，首次介绍教宗方济各的全球视野和愿景。
-
-2019年11月29日，方济各结束亚洲之行并表示，“我真的很想去北京，我爱中国”。然而，教宗说这句话的前一天，江西省吉安市一天主教堂把习近平画像高悬在教堂正中央，两边贴着中共宣传标语，教堂圣象、十字架等物品却被丢在角落。
-
-2019年香港开始的“返送中条例”集会示威期间，教宗方济各和梵蒂冈迟迟不表态，对中共的恶行视而不见，置若罔闻。梵蒂冈表示，游行示威是很常见的，无法评估其重要性。
-
-**【方济各喜欢中共的什么？】**
-
-2020年6月29日，郭文贵先生接受班农战斗室采访时爆料，梵蒂冈与中共签署了多项秘密协议，其每年从中共收取高达20亿美金的贿赂和政治利益。而帕罗林则是中共在梵蒂冈的代理人。
-
-2021年4月11日，意大利检察官宣布，指控帕罗林在涉嫌数亿欧元的教会资金投资时，超出了法律权限。
-
-2021年4月14日，教宗方济各重申了祈祷的重要性：信德的气息乃是祈祷；当我们学会祈祷时，信德也会随之成长。教宗方济各还说，“敌人想要打击教会，它的第一步就是使得教会的泉源干涸，阻止教会祈祷，并作出其它一些提议”。但是，教宗方济各真是不了解中共啊，中共打击教会不是通过阻止祈祷，而是强迫祈祷对象不再是天主，而是中共匪首。就在与梵蒂冈签订协议之后，中共对教徒的迫害加剧。中梵临时协议不仅未能使教会共荣，反而让教徒更加悲惨——天主教中（共）国化的实质，就是承认中共领导的主教地位。中共妄想着重现中世纪黑暗的政教合一时期。与中共交易之路就是通往地狱之路。
-
-“信德的灯带来光亮，只能靠祈祷的油来延续”。方济各教宗、帕罗林圣座是否能延续天主教信仰，还是与邪恶撒旦中共交易，秘密终究有一天会被揭开。
-
-参考来源：
-
-[梵蒂冈新闻](https://www.vaticannews.va/zh.html)；[梵蒂冈-维基百科](https://zh.wikipedia.org/zh/%E6%A2%B5%E8%92%82%E5%86%88)；[郭文贵MILES盖特](https://gtv.org/user/5e596957357cc612d35a8044#getter)；[班农战斗室](https://pandemic.warroom.org/)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
+字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0
