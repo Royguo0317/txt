@@ -1,42 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】台湾的施政与民意
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1100050/)
+## 【医疗前沿世界】注射疫苗后仍有人会感染中共肺炎
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1100216/)
 
-作者：纽约香草山健身部 阿年
+作者：纽约香草山医疗部 云豹
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
 
 
 
-在台湾，为降低核电、媒、燃油发电所产生的灾害风险及高污染，政府逐步淘汰此类发电机组，除了积极开放自然能源如风、太阳、海流等发电，最终达到100%无污染能源之目标外，以改用天然气发电作为能源转换期间的过渡，于是有了马政府2015年第三接收站工程案的规划开发，开发面积达232公顷。考虑环保团体抢救藻礁的诉求，中油于2018年1月及8月先后提出修正方案，将开发面积缩减为37公顷及23公顷；仅限于使用2003年之前已开发填地区域，在最大可能范围内，满足环保的目的，展现了改善的诚意与态度。
+美国疾病管制中心主任Rochelle Walensky 周四在众议院冠状病毒危机小组委员会上提出报告，美国目前约有7700万人已经注射过疫苗。到现在为止发现有5800个病例在完成疫苗注射疗程后，仍然被感染中共病毒。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片99.png)
+这些被感染的病人出现的症状大多数都是轻症，而有29%的病人是无症状感染者。
 
-环保团体仍发起“抢救藻礁”公投连署破50万份，主要诉求为：凸堤的兴建，阻挡原来的水流走向，将造成一端侵蚀、一端淤积，对观新藻礁保护区有绝对影响。
+病人分布上，65%是女姓，40%的病人年龄超过60岁，7%的病人住院治疗，有74人死亡。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片98.png)
+哈佛大学公共卫生学院流行病学副教授比尔·汉纳格（Bill Hanage）表示：通常已经接种过疫苗，而且没有任何症状的人，应该是不会去接受病毒检查。所以向CDC报告的注射疫苗后还被感染的病人数量是有可能被低估的。
 
-民主社会面对这种问题，弱势政府是一再委屈求全，强势政府则是我素我行，毫无顾忌，会产生如此巨大的差别，主要还是在于，谁掌握了媒体的主控权。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-13-41-scaled.jpg)
 
-然而，若是以抢救藻礁为幌子，达到重启核四的真正目的，即使不能，也至少会造成对执政党的伤害，助长在野党的优势，实非人民之福。
+评论：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片100.png)
+支持疫苗注射的专家会以大部分人在注射疫苗后都会产生抗体的保护作用，只有少部分人保护效果较差的说法，来为疫苗作宣传。可是他们无法否认确实有些人打疫苗后是没有保护作用的，而且这部分打疫苗后又被感染的病人大部分都是轻症，或是无症状的感染者。这些感染者极有可能认為自己已经打过疫苗，不会被感染，就肆无忌惮，不做任何卫生防护措施，四处活动，成为危险的感染源。
 
-最终方案如上图所示，占地23公顷。
+此外，中共病毒是生化武器，目前已知有许多种变种。到底目前使用的疫苗有多少保护作用人们完全不清楚。疫苗注射后，是否会造成其他的副作用也并不完全了解 (现在已经发现有血栓及血小板缺少的副作用)。在此对疫苗不了解的情况下大量推广疫苗注射，这是完全不合疫苗制造及使用规范的，这是各国政府在便宜行事以便分散政治责任的方式。
 
-资料来源：
+事实上疾病管制中心还是不忘记强调，即使打过疫苗后，还是要继续做好个人的卫生防护，例如戴好口罩、保持安全社交距离等。可见个人重视自己的卫生防护才是避免被感染的最有效方式。
 
-1. 经济部长王美花就三接案说明[https://youtu.be/boVlR2lHXYE](https://youtu.be/boVlR2lHXYE)
-2. [https://www.cna.com.tw/amp/news/firstnews/202102255006.aspx](https://www.cna.com.tw/amp/news/firstnews/202102255006.aspx)
+面对此世纪之毒——中共病毒——的祸害，只有个人作好卫生防护，各国政府积极向中共究责追出病毒原始资料，才能真正找出较好的处理方式。在此之前，不能被疫苗的注射分化了向中共究责的力量，否则将是缘木求鱼，徒劳无功；甚至可能因为使用不成熟的疫苗，造成更大的危害，不可不慎。
 
+(本文为作者观点，不代表G NEWS的立场)
+
+参考资料
+
+[https://www.nbcnews.com/health/health-news/cdc-about-5-800-breakthrough-infections-reported-fully-vaccinated-people-n1264186](https://www.nbcnews.com/health/health-news/cdc-about-5-800-breakthrough-infections-reported-fully-vaccinated-people-n1264186)
+
+[https://www.nejm.org/doi/full/10.1056/NEJMc2101927](https://www.nejm.org/doi/full/10.1056/NEJMc2101927)
+
+[https://www.cdc.gov/coronavirus/2019-ncov/science/science-briefs/fully-vaccinated-people.html](https://www.cdc.gov/coronavirus/2019-ncov/science/science-briefs/fully-vaccinated-people.html)
 
 校对/发稿：飞虹
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpeg)
 
 **更多资讯，更多关注**
 

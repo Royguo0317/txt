@@ -1,49 +1,181 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国情报界各领军人物作证国会聚焦同一问题——中共威胁
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1100740/)
+## 美国《2021战略竞争法》第五、六节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1100722/)
 
-【日本东京方舟农场】撰稿：青衣  素材采编：武汉老温  校对：文小律
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-据《美国之音》报道，在美国国会两党聚焦讨论如何强化情报部门应对全球威胁之际，美国情报界各领军人物一致认为，中共国正不断发展成为一个近乎可匹敌美国的竞争者，所构成的威胁并不止于知识产权盗窃、间谍活动等，还牵涉到对美国社会的影响，并且中共还想要在科技领域及亚洲区域削弱美国的领导力。
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/D-6.jpg)reddit.com
+**本节要点：**
 
-联邦调查局（FBI）局长克里斯托弗·雷（Christopher Wary）周三（4月14日）在参议院情报委员会就美国所面临的全球威胁所召开的听证会上表示，他所领导的机构面临大量与中共相关的案件调查。“我们每十小时就开启一起有关中（共）国的调查案件，而且我可以保证，那不是因为我们的人上班没事干。”克里斯托弗·雷如是说。他还继续补充道：“我们现在有超过2000件与中（共）国政府有关的调查，仅仅在经济间谍调查方面，过去几年间就增加了大约1300%。”
+鼓励盟国和伙伴发挥更大的作用，制止中共国的侵略和强势行为。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/799A8F2C-1CB5-4DCF-9658-94BE7B23A16A.jpeg)
+每个联邦部门和机构的负责人应指定一名副部长或以上级别的高级官员，协调该部门或机构与中共国的战略竞争政策。
 
-与会议员们普遍担忧，北京（中共）所构成的威胁不仅止于知识产权盗窃、间谍活动等议题，还牵涉到中（共）国对美国社会的影响。
+如果我们的注意力一再转移到与美国经济和国家安全利益无关的挑战上，美国执行与中共国战略竞争战略的能力将受到损害。
 
-参议院情报委员会副主席、共和党人马可·卢比奥（Sen. Marco Rubio, R-FL）表示，北京（中共）努力企图塑造和影响美国的政治环境，以推动对其有利的政策和叙事。“我认为我们犯了一个错误，那就是没有专注在中（共）国的能力及其日益增长和强化的努力，让他们参与到了我们美国的政治环境中来” 卢比奥说。他还表示，中共国和俄罗斯都在从事影响和渗透美国社会的活动，而中共国在某些技术上甚至比俄罗斯有过之而无不及。
+美国必须阻止中共国在印度洋-太平洋建立区域霸权，以及中共在全世界推进其独裁的政治、经济和外交政策为目标（的野心）。
 
-联邦调查局局长克里斯托弗·雷对此立刻做出回应，对卢比奥的担忧表示认同。他说：“我认为没有哪个国家（比中共国）对我们的创新、经济安全和民主理念构成的威胁更严重。他们（中共国）的工具箱中所使用的工具对我们的企业、我们的学术机构、我们各级政府单位的影响是很深远、广泛和持久的。”
+美国必须确保联邦预算与中共国竞争的战略要务保持适当的一致。
 
-雷还进一步举例说，联邦调查局在去年秋天针对在美国境内从事非法执法行动的中（共）国特工提出诉讼。去年10月底，联邦调查局对八名为中国共产党在美国进行“追缉反对派”行动的人提出指控。他们被控参与了中共旨在追捕海外逃犯的“猎狐行动”，在美国境内威胁、骚扰和胁迫特定美国居民。“这显示和阐明了这一威胁是多么具有挑战性和多样性”，这位联邦调查局局长在听证会这样说道。
+美国必须确保所有联邦部门和机构的组织，以反映与中共国的战略竞争是美国外交政策的最高优先事项，包括通过美国对政府人员的任务委派和人员增派。
 
-星期三的听证会聚集了美国情报界的主要机构负责人，包括国家情报总监埃夫丽尔·海恩斯（Avril Haines）、中央情报局局长威廉·伯恩斯（William Burns）、联邦调查局局长克里斯托弗·雷、美国网络司令部司令兼国家安全局局长、陆军上将保罗·中曾根（Paul Nakasone）以及国防情报局局长、陆军中将斯科特·贝利尔（Scott Berrier）。
+欲了解更多的內容，请看本两节全文（仅供参考）。
 
-美国国会参众两院情报委员会每年固定都会以全球威胁为题召开听证会，邀请情报界最高官员出席作证，并接受议员质询。不过，去年的听证会由于有官员拒绝参与而没有召开，曾一度引起国会民主党人不满。星期三的听证会为2019年后各大情报主管首次恢复传统，再度聚首。
+**第5节 国会意识**
 
-参议院情报委员会主席、民主党人马克·沃纳参议员（Sen. Mark Warner, D-VA）对此表示：“去年，国家情报总监拒绝公开出席我们委员会的听证会，我感到很沮丧，我很高兴我们恢复了这一传统，并期待每年都能这样做。”
+国会认为，执行第4（b）节所述政策需要采取以下行动：
 
-在这场长达两个小时的听证会上，中（共）国不出意料地成为了重要焦点。沃纳参议员表示，“随着中（共）国实力和地位的增长，中共正试图削弱美国作为世界领先科技强国的地位。”沃纳还表示，中共国向威权政权出口监控技术，并且将其传统和不对称的军事能力进行现代化，包括在太空和网络领域。他认为，中国共产党的目标是削弱美国在技术领域的领导力以及在亚洲的影响力，同时扩张其在南中国海等地区的势力。
+（1）与中共国的战略竞争需要美国-
+（A）提升持续的政治意愿，保护其切身利益，促进其价值观，推动其未来几十年的经济和国家安全目标
+（B）为了实现这一持久的政治意愿，说服美国人民和美国的盟友和伙伴-
+（i）（认清）中共国提出的挑战
+（ii）需要长期竞争来捍卫共同的利益和价值观
 
-沃纳的说法得到美国国家情报总监海恩斯的呼应。她在开场陈述中称“中（共）国是美国情报界无与伦比的优先事项”。“中（共）国正不断成为一个近乎可匹敌美国的竞争者，在多个领域挑战美国，同时寻求改变世界规范，使之更有利于中（共）国的威权体制。”海恩斯说。
+（2）美国必须与盟国和伙伴密切协调，以有效地与中共国竞争，包括鼓励盟国和伙伴在适当情况下发挥更大的作用，平衡和制止中共国的侵略和强势行为。
 
-海恩斯还表示，中共国也拥有了可观的网络能力，就算是最小量的使用，都可以导致美国国内某个地区关键基础设施被被暂时性的骚扰。她同时表示：“中（共）国正在利用一套全面性的方法，来展示其不断增长的力量，并对地区近邻施压，使之顺从北京（中共）的喜好。这包括了对有争议领土的声索和对台湾的主权主张。”
+（3）美国总统必须领导和指导整个行政部门，将中共国视为美国外交政策面临的最大地缘政治和地缘经济挑战，在执行外交政策时，增加与中共国和美国在印太地区更广泛利益的战略竞争的优先次序，并确保分配适当的资源以应对挑战。
 
-就在前一天，海恩斯所领导的国家情报总监办公室发布了《2021年年度威胁评估》报告，将中共国扩大其日益增长影响力的努力视为美国面临的最大威胁之一。 报告将中共国迈向“全球大国”列为一系列威胁的首位，而在星期三的听证会上有关中共国的讨论基本上反映了报告的内容。
+（4）每个联邦部门和机构的负责人应指定一名副部长或以上级别的高级官员，协调该部门或机构与中共国的战略竞争政策。
 
-此次听证会上还讨论了有关中共病毒起源调查进度迟缓的问题，卢比奥参议员还对中共病毒起源提出了质问。对此，海恩斯表示，目前美国情报界仍无法确定中共病毒最初是在何时、何地或者如何开始传播的。但她表示，目前所有信息汇总围绕两种不同的理论，包括人类与受感染的动物接触后自然产生；又或者是一起实验室事故。
+（5）如果我们的注意力一再转移到与美国经济和国家安全利益无关的挑战上，美国执行与中共国战略竞争战略的能力将受到损害。
 
-中情局局长伯恩斯则直指中共国存在信息不透明的问题。他表示：“对我们和我们的分析人士来说，有一件事是清楚的，那就是中（共）国领导层没有完全坦诚或完全透明，无论是在与世卫组织合作方面，还是提供有助于回答这些问题的原始完整数据方面。”
+（6）在未来几十年，美国必须阻止中共国-
+（A）在印度洋-太平洋建立区域霸权
+（B）利用这一立场在全世界达到其独裁的政治、经济和外交政策的目的
 
-除了星期三的听证会外，这五位美国情报界领军还将于周四赴众议院情报委员会就同样主题作证，接受众议员们的质询。
+（7）美国必须确保联邦预算与中共国竞争的战略要务保持适当的一致，通过-
+（A）确保为美国国家力量的所有工具提供足够的资金
+（B）连贯地优先考虑如何使用这些资金
 
-自拜登政府上台以后，在公开场合的表态以及一系列的制裁动作似乎表示，美国仍是将俄罗斯视为头号强敌。外界由此猜测，这是拜登政府欲淡化中共对美国所构成的威胁，中美紧张关系或许会得以改善。此次美国情报界各领军人物作证国会，聚焦点全在中共对美国及全球所造成的威胁上，十分明确地将中共列为了头号威胁。中共以为拜登上台就可放它一马的如意算盘彻底落空，相信接下来等待它的将是一记记重拳回击。
+（8）持续优先处理中共国提出的挑战需要-
+（A）国会内部的两党合作
+（B）行政部门和国会之间经常、持续和有意义的合作与协商
 
-注：本文仅代表作者观点
+（9）美国必须确保经济和外国政策制定者、私营部门、民间社会、大学和学术机构，以及受中共国挑战影响的自由和开放社会中的其他相关行动者，进行紧密的结合，使这些行动者能够-
+（A）合作促进共同利益
+（B）确定适当的政策-
+（i）加强美国及其盟国
+（ii）提升令人向往的自由和开放秩序的愿景
+（iii）抵制中共的有害政策
 
-参考链接：[https://twitter.com/VOAChinese/status/1382531263676837892](https://twitter.com/VOAChinese/status/1382531263676837892)
+（10）美国必须确保所有联邦部门和机构的组织，以反映与中共国的战略竞争是美国外交政策的最高优先事项，包括通过美国对政府人员的任务委派和人员增派；利用-
+（A）在印度洋-太平洋地区、世界各地和华盛顿特区投入更多的人员，优先考虑推进与中共国的竞争
+（B）在印度洋-太平洋地区增加外国服务人员、国际发展专业人员、外国商业服务人员、情报专业人员和其他美国政府人员
+（C）确保该员工，无论是文职人员还是军队，都具备在语言、技术技能和其他能力方面的培训，以促进与中共国的成功竞争战略
+
+（11）美国必须再次强调加强非军事手段，包括外交、信息、技术、经济、外国援助和发展金融、商业、情报和执法，这对于应对中共国独有的经济、政治和意识形态挑战至关重要。
+
+（12）美国必须继续为太平洋威慑倡议提供资源，这项倡议应符合《亚洲放心倡议法》（公共法律115-409）中阐明的总体政治和外交目标，必须优先考虑实现美国在印度洋-太平洋地区政治目标所需的军事投资，包括：
+（A）促进印度洋-太平洋地区的区域安全
+（B）在保护盟国和伙伴免受胁迫的同时，安慰他们
+（C）制止与中共国的冲突
+
+（13）与中共国的竞争要求美国熟练地适应21世纪的信息环境，美国公共外交和信息传递努力必须有效地-
+（A）促进与美国的伙伴关系的价值观
+（B）突出与中共国建立联系的风险和成本
+（C）反中共宣传和制造谣言
+
+**第6节 规则解释**
+
+（a）对援助外国安全部队的现有限制的适用性。-本法的任何内容均不得解释为根据1961年《外国援助法》（22 U.S.C.2378d）第620M节，或者《美国法典》标题10第362节，来减少、取代或以其他方式限制或阻止美国政府的责任。
+
+（b）没有使用武力的授权 -本法的任何规定不得解释为授权使用武力。
+
+（第5、6节完）
+
+中共应该胆颤了，为了落实、协调本法案的实施，法案要求每个部或机构指定专人负责，级别是副部长或相同级别的要员，且从人力、财力给予了最大的优先权。邪共，你死期已到！
+
+原文链接：
+
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+
+文字整理：
+
+SEC. 5. SENSE OF CONGRESS.
+
+It is the sense of Congress that the execution of the policy described in section 4(b) requires the following actions:
+
+(1) Strategic competition with the PRC will require the United States –
+
+(A) to marshal sustained political will to protect its vital interests, promote its values, and advance its economic and national security objectives for decades to come; and
+
+(B) to achieve this sustained political will, persuade the American people and United States allies and partners of –
+
+(i) the challenges posed by the PRC; and
+
+(ii) the need for long-term competition to defend shared interests and values.
+
+(2) The United States must coordinate closely with allies and partners to compete effectively with the PRC, including to encourage allies and partners to assume, as appropriate, greater roles in balancing and checking the aggressive and assertive behavior of the PRC.
+
+(3) The President of the United States must 8 lead and direct the entire executive branch to make the People’s Republic of China as the greatest geopolitical and geoeconomic challenge for United States foreign policy, increasing the prioritization of strategic competition with the PRC and broader United States interests in the Indo-Pacific region in the conduct of foreign policy and assuring the allocation of appropriate resources adequate to the challenge.
+
+(4) The head of every Federal department and agency should designate a senior official at the level of Under Secretary or above to coordinate the department’s or agency’s policies with respect to strategic competition with the PRC.
+
+(5) The ability of the United States to execute a strategy of strategic competition with the PRC will be undermined if our attention is repeatedly diverted to challenges that are not vital to United States economic and national security interests.
+
+(6) In the coming decades, the United States must prevent the PRC from –
+
+(A) establishing regional hegemony in the Indo-Pacific; and
+
+(B) using that position to advance its assertive political, economic, and foreign policy goals around the world.
+
+(7) The United States must ensure that the Federal budget is properly aligned with the strategic imperative to compete with the PRC by –
+
+(A) ensuring sufficient levels of funding to resource all instruments of United States national power; and
+
+(B) coherently prioritizing how such funds are used.
+
+(8) Sustained prioritization of the challenge posed by the PRC requires –
+
+(A) bipartisan cooperation within Congress; and
+
+(B) frequent, sustained, and meaningful collaboration and consultation between the executive branch and Congress.
+
+(9) The United States must ensure close integration among economic and foreign policymakers, the private sector, civil society, universities and academic institutions, and other relevant actors in free and open societies affected by the challenges posed by the PRC to enable such actors –
+
+(A) to collaborate to advance common interests; and
+
+(B) to identify appropriate policies –
+
+(i) to strengthen the United States and its allies;
+
+(ii) to promote a compelling vision of a free and open order; and
+
+(iii) to push back against detrimental policies pursued by the CCP.
+
+(10) The United States must ensure that all Federal departments and agencies are organized to reflect the fact that strategic competition with the PRC is the United States top foreign policy priority, including through the assigned missions and location of United States Government personnel, by –
+
+(A) dedicating more personnel in the Indo Pacific region, at posts around the world, and in Washington DC, with priorities directly relevant to advancing competition with the People’s Republic of China;
+
+(B) placing greater numbers of foreign service officers, international development professionals, members of the foreign commercial service, intelligence professionals, and other United States Government personnel in the Indo-Pacific region; and
+
+(C) ensuring that this workforce, both civilian and military, has the training in language, technical skills, and other competencies required to advance a successful competitive strategy with the PRC.
+
+(11) The United States must place renewed emphasis on strengthening the nonmilitary instruments of national power, including diplomacy, information, technology, economics, foreign assistance and development finance, commerce, intelligence, and law enforcement, which are crucial for addressing the unique economic, political, and ideological challenges posed by the PRC.
+
+(12) The United States must sustain resourcing for a Pacific Deterrence Initiative, which shall be aligned with the overarching political and diplomatic objectives articulated in the Asia Reassurance Initiative Act (Public Law 115-409), and must prioritize the military investments necessary to achieve United States political objectives in the Indo-Pacific, including –
+
+(A) promoting regional security in the Indo-Pacific;
+
+(B) reassuring allies and partners while protecting them from coercion; and
+
+(C) deterring conflict with the PRC.
+
+(13) Competition with the PRC requires the United States skillful adaptation to the information environment of the 21st century. United States public diplomacy and messaging efforts must effectively –
+
+(A) promote the value of partnership with the United States;
+
+(B) highlight the risks and costs of enmeshment with the PRC; and
+
+(C) counter CCP propaganda and disinformation.
+
+SEC. 6. RULES OF CONSTRUCTION.
+
+(a) APPLICABILITY OF EXISTING RESTRICTIONS ON ASSISTANCE TO FOREIGN SECURITY FORCES. -Nothing in this Act shall be construed to diminish, supplant, supersede, or otherwise restrict or prevent responsibilities of the United States Government under section 620M of the Foreign Assistance Act of 1961 (22 U.S.C. 2378d) or section 362 of title 10, United States Code.
+
+(b) NO AUTHORIZATION FOR THE USE OF MILITARY FORCE. – Nothing in this Act may be construed as authorizing the use of military force.
 
 0
