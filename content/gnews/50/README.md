@@ -1,57 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104015（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1097683/)
+## 中共战机对美国航母进行“模拟攻击”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1097829/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/L-5.jpg)gesundesessen.net
+美国军事新闻报道，多位国防分析人士中共战机似乎在周一绕台湾飞行时模拟了对美国航空母舰的攻击。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+周一，中共派出创纪录数量的战机进入台湾防空识别区(ADIZ)，这是围绕台湾展开的持续空袭行动的一部分。据公开的船只跟踪数据显示，同一天，西奥多·罗斯福航母战斗群(CSG)向菲律宾最北端吕宋岛北部航行，吕宋岛位于台湾的正南。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01-4.jpg)
+台北战略预见协会的研究员程杰告诉《新闻周刊》，中共战机很可能利用这个机会对美国航母进行“模拟攻击”。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02-5.jpg)
+中共战机的飞行路线地图显示，它们直接向南飞向吕宋岛，然后向西急转弯，然后又转向北方。台湾军方追踪的所有中共战机群都飞越了这些像航空母舰一样的向南u型跑道。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03-4.jpg)
+台湾国防部在推特上写道:“中共人民解放军25架飞机(运-8反潜战\*2、空警-500预警机、歼-10\*4、歼-16\*14和H-6K\*4)于2021年4月12日进入台湾西南防空识别区。”共有25架中共战机环绕台湾飞行，创下了中共战机环绕台湾次数最多的记录。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-5.jpg)
+台湾国防部支持的国防与安全研究所高级研究员苏子云称，中共的J-16战斗机可以携带15吨反舰导弹，中共在台湾周围的空中行动可能是“针对美国航母战斗群”。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05-4.jpg)
+中共战机曾在今年1月模拟了对西奥多·罗斯福作战小组的攻击。美国印太司令部发言人卡夫卡(Mike Kafka)上尉在一份给《商业内幕》(Business Insider)的声明中证实，中共战机曾对美国航母进行攻击演习。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06-4.jpg)
+近几周，中共试图进行攻击演习以威胁和切断国际社会对台湾的支持。中共官方媒体《环球时报》最近报道称，“解放军正在继续加强作战准备，使其例行演习更加复杂和现实，并考虑到美国和日本可能的干预。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07-4.jpg)
+美国印太司令部发言人卡夫卡说，“这些行动反映了中共解放军继续试图利用其军事作为一种工具来恐吓或胁迫那些在国际水域和空域活动的国家，包括他们的邻国和那些有领土主张的国家。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08-4.jpg)
+参考链接：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09-4.jpg)
+[https://americanmilitarynews.com/2021/04/china-live-drilled-attacks-on-us-carrier-while-sending-record-25-warplanes-into-taiwans-airspace-analysts-say/](https://americanmilitarynews.com/2021/04/china-live-drilled-attacks-on-us-carrier-while-sending-record-25-warplanes-into-taiwans-airspace-analysts-say/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-6.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-4.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-4.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/18-3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/19-3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/20-3.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
-
-0
++1

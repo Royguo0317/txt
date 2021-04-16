@@ -1,28 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国总理默克尔将在周五接种阿斯利康进行疫苗
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1098290/)
+## 【热点播报】拜登会见企业负责人商讨全球芯片短缺问题
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1098238/)
 
-信息来源：德国世界报网页版
-发布时间：2021年4月15日
-翻译/ 整理/ 简评： Shuizhuyu
+香草山健身部：童谣
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/germany-scaled.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 
-根据世界报的信息，总理安格拉·默克尔（CDU）将在周五接受阿斯利康疫苗的接种。总理已超过60岁，因此属于德国有资格接受阿斯利康疫苗接种的人群。
 
-默克尔并不是第一个接受阿斯利康疫苗接种的知名政治家。 例如，联邦总统弗兰克-瓦尔特·斯坦迈尔（Frank-Walter Steinmeier）于4月初亲自在柏林接种了疫苗。
+中共狂热发展现代化军事，并阴招不断堵住苏伊士运河使美国芯片制造原材料短缺，对此拜登表示“不能再等”，高科技领域与中共对抗，美国真的着急了？
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screen-Shot-2021-04-15-at-4.49.13-PM-1.png)图片来源：法国国际新闻电台
+芯片短缺已冲击到汽车业和科技公司。美国总统拜登线上会见近20家大企业负责人商讨全球芯片短缺问题，台积电董事长刘德音出席视讯会议，名为半导体和供应链韧性执行长高峰会。
 
-当时他说：“我相信德国批准的疫苗。” “今天，我第一次接受了阿斯利康的疫苗接种。 疫苗接种是摆脱这种大流行的关键步骤。 抓住机会。 参与！ ”
+近期全球芯片大缺货，外界预期，如何解决芯片荒是这次会议的讨论重点之一。拜登在发言中表示，美国致力于再次领导全世界，将投资大笔资金在半导体、电池等领域，并声称“已经不能再等”。
 
-**简评：疫苗阿斯利康经历了接种， ****禁用，到只有60****岁以上的人群接种， ****德国的疫苗接种真的是一场运动了。德国的病毒专家说接种疫苗的危险比染病的危险相比极为微小。  ****为了力挺阿斯利康是有效的疫苗，德国总理默克尔周五要接种。 ****德国总统月初已经接种。 ****德国对病毒真相的了解，和疫苗的危害了解甚少， ****难道病毒专家真的没有读闫博士的报告吗？ ****德国总统甚至号召人们抓住机会。 ****而且疫苗是遏制冠状病毒的关键步骤。 ****让时间去证明吧。**
+美国一直对中共国现代化军事、以及高端科技领域的发展感到担忧。中共国一直以来的挑战正在严重挑战着美国在全球社会中的领先地位。对于半导体产业、芯片制造等问题，先有美国有线电视台节目主持人喊话台积电，将芯片卖到美国；现在拜登政府又就此开展了官方会议，以示决心。
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+军事对垒时，芯片是制造高科技武器的核心要素。在贸易战节点，美国、台湾等将半导体产业链纷纷撤出中共国之后，即使是疫情期间百业萧条，除了医药、生物技术之外，墙内的半导体领域一直在努力“顶住压力逆流而上”，成为了订单需求最高、发展最火热的少数行业之一。
 
-校对发表：Shuizhuyu
+但由于中共纸老虎实力软弱，只能堵住苏伊士运河让半导体原材料供应空缺，暂时阻碍西方国家高科技武器的发展，可美国早已下定决心，在各方面，尤其是军事领域制衡中共国。不管是美国民间力量，还是政府组织，都将致力于协同应对芯片难关。
 
-新闻来源[https://www.welt.de/politik/deutschland/article230399919/AstraZeneca-Bundeskanzlerin-Merkel-laesst-sich-am-Freitag-impfen.html](https://www.welt.de/politik/deutschland/article230399919/AstraZeneca-Bundeskanzlerin-Merkel-laesst-sich-am-Freitag-impfen.html)
+引用来源： [法国国际新闻电台](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20210412-%E6%8B%9C%E7%99%BB%E5%9C%A8%E7%BA%BF%E4%B8%8A%E4%BC%9A%E8%A7%81%E8%BF%9120%E5%AE%B6%E5%A4%A7%E4%BC%81%E4%B8%9A%E8%B4%9F%E8%B4%A3%E4%BA%BA%E5%95%86%E8%AE%A8%E5%85%A8%E7%90%83%E6%99%B6%E7%89%87%E7%9F%AD%E7%BC%BA%E9%97%AE%E9%A2%98)
 
-+2
+校对/审核/发稿：正义的小新
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpeg)
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+0

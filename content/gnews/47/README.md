@@ -1,82 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】4.12.2021AM-美特种作战司令官披露美军正在建立印太联合特遣队打击中共网络造谣水军
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1097668/)
+## 【战云长天时评52期】梵蒂冈：教皇与魔鬼的交易
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1097751/)
 
-视频剪辑 : Ablec(文A)
-中听校：洛杉矶天使农场 – 烟波浩淼
-英翻译：洛杉矶天使农场 – 飞利普      
-英校对：洛杉矶天使农场 – V
-字幕+视频制作：洛杉矶天使农场 – 压箱底儿の希望
+作者：喜马拉雅东京樱花团｜捆绑CCP一千年
+![]()![](https://gnews.org/wp-content/uploads/2021/04/gnews-.jpeg)[图片源自](https://medium.com/@eugenener/%E5%85%89%E6%98%8E%E9%80%94%E5%BE%91-%E6%A2%B5%E8%92%82%E5%B2%A1-f0443fe13cb7)
+梵蒂冈，被誉为地上的天国王朝，它虽小如景区，只有天安门广场那么大，却仍旧是全世界天主教徒的精神圣地。而这个宗教之国现任教皇方济各在法定意义上代表了神人之间的中保，作为人类灵性光辉的力量，照亮黑暗，斥责邪恶，祈祷上帝为人类带来和平。教皇的职责理应如他所教导会众的那样，“信仰的气息就是祈祷：当我们学会祈祷时，我们在信仰中成长。”然而，郭文贵先生成为全球首位撕裂梵蒂冈大教堂圣殿幔子的第一人。教皇方济各因此成为宗教界众矢之的，却是伴随着中共铁幕摧毁香港、超限生物战打散人类文明秩序的战役中继续躲在撕裂的幔子后面替中共遮盖着一切的恶。
 
-**路德/LUDE:**
+班农先生战斗室在2020年6月24日对郭文贵先生的一次采访中（以下简称郭先生），班农先生用郭先生创造的英文单词BGY诠释了中共金钱和性贿赂教皇的惊天黑幕时，班农先生说，“为什么他们对基督教怕得要死？对天主教的教堂如此惧怕？”郭先生：“中共自认创造了一个宗教，邪恶的中共，习近平王岐山就是神，他们不希望任何宗教在中国发展。因此他们要创建新的宗教、新的神，那就是中共”（见《班农》）而这样劲爆的讲话绝非危言耸听，并迅速被世界各国媒体报道，世界早已知道郭先生从不打妄语。
 
-最近在美国参议院的军事委员会听证会中作证
-Recently, he testified in the hearing of the military committee of the US Senate
-明确说美军正在建立一个印太联合特遣队
-said clearly that the US military is establishing an Indian-Pacific Joint Special Task Force
-专门来对(付)中共的网络水军不断扩大的这些造谣活动
-to deal with the growing rumor-making activities from CCP’s cyber ghostwriters
-中共的超限战，信息战
-CCP’s unrestricted war and information war
-超限战里面包括很多
-There are many fields in CCP’s unrestricted warfare
-我们之前做节目说，各种战，信息战
-as we said previously, including all kinds of war, such as information war
-网络战，媒体战，宣传战，还有金融战，货币战，法律战
-cyber war, media war, propaganda war, financial war, currency war, legal wars
-政治里面影响美国内部政治的走向
-political war by influencing the domestic political trend of US
-最后包括现在的超限生物武器
-And last but not least, the current unrestricted biowarfare
-它为什么要做这个网络谣言，这就是我们之前说过
-Why does CCP spread cyber rumors? As we said before
-中共放超限生物武器是一招
-releasing the unrestricted bioweapon (Sars-COV-2) is only one of CCP’s tactics
-更厉害的招是之后的搅浑才是它最厉害的
-the craftiest one is muddling the water to mislead/confuse people
-这就是闫博士的第三篇报告为什么主说的就是超限科学误导？
-This is why Dr. Yan’s third report focuses on the unrestricted scientific misleading
-现在大多数都是英文的五毛，都是老外
-Now the cyber deceptive newsis posted by foreign Wumaos
-都是正儿八经看着好像有人的
-To make it look like some what professional
-有中共在这方面投入越来越大，美国现在总算看明白了
-as CCP has invested more and more in this area, the US has finally understood
-包括像福奇，包括皮特纳扎克等一系列的，在推特上的，各种搅浑水
-that all kinds of misleading and confusions on Twitter by Fauci, Peter Daszak and others
-说什么自然来源，美国看得太清楚了，我告诉大家
-talking about virus from nature, let me tell you, the US has known what’s going on
-所以就要反击，要组建这个部队
-So it’s time to fight back and build the cyber Task Force
-看路德节目的时候，你底下这个评论是多么管用
-This is why it is valuable for you to comment while watching Luther’s media
-我早就跟大家说了，你的一个发言，你的一个点赞，实际上美国的军方都在看着
-As I mentioned, your comments and thumps up are in fact being watched by the US military
-如果底下咱们都没人站出来，它知道中国人算了
-if none of us stands up, Chinese, forget it
-中共的网络水军就跟中共在南海的大量的海上民兵一样
-CCP’s cyber ghost writers are just like its massive maritime militia in the South China Sea
-伪装成老百姓，伪装成各种自然的，发各种推
-They are disguised as civilians, look like normal people, and send all kinds of tweets
-这个真的是不好解决
-This is not easy to deal with
-为什么，因为就跟当时的反恐战争一样，平时穿的都是长袍，都是老百姓
-Why? Because, like in the anti-terrorism war, terrorists usually wear robes as civilians
-突然间，你不小心，他就拿着枪，拿着炸弹来了
-suddenly, if you’re not careful, he shows up with a gun and bomb
-中共现在就是玩的这一套
-CCP is playing game like this now
-以后只要来自中共国的，一刀切，没办法
-In the future, as long as they come from the CCP, there is no way but to destroy them
-美国在历史上就这样
-This is how the US did in history
-两颗原子弹就是老百姓和日军之间分辨不了
-the two nuclear bombs delivered to Japan did not recognize civilians from Japanese military people
-直接扔下去了
-so they went down directly
-14亿墙内的人，千万不要再给他们做炮灰
-1.4 billion of people inside the firewall, please stand up and do not die for the evil and deceptive CCP
+印度一家媒体DNA网站2020年6月29日以突发消息《持不同政见者声称中国共产党每年向梵蒂冈支付20亿美元以保持封闭》报道了郭文贵先生揭露梵蒂冈丑闻。2018年9月，梵蒂冈与北京签署了一项重要的秘密协议，内容涉及中国区主教的任命。（见《秘密协议》）2019年5月，班农发表最精彩的演讲说道，“教皇佛朗西斯与这个星球上最无神论政府签署了一项秘密协议，给了习近平、王岐山（对教会）完全的控制权，在中国天主教的主教人选权利，这是对中国地下教会的出卖。”（见《班农》）这不仅是出卖了对教会的控制权，出卖了地下基督教会。而更大的副作用体现在教皇对这个星球上最大的敌基督政权的授权、背书。因此，班农先生接着说，我呼吁每一个天主教徒、基督徒和每一个中国公民都应该明白这一点，这意味着代表上帝的权柄对这个世界上最大的无神论政权的认可。几乎可以说，世界外交事务上，没有比这更荒唐、更邪恶的事件。“中梵协议”交易筹码即中共每年以20亿美金的条件换取这对主教任命权的8比2配额，即梵蒂冈认可中方任命8个主教，而中方则需要接受由梵蒂冈任命祝圣的2个大主教。众所周知，梵蒂冈的2个席位根本形同虚设。为此，美国前国务卿蓬佩奥一再谴责说，“梵蒂冈应该放弃与中国共产党的条约，这损害了教会的道德权威。”（见《蓬佩奥》）
 
-0
+作为回应，“梵蒂冈官员认为，与中国达成协议可以改善中国天主教徒的生活，尤其是那些地下教会的人们。”事实证明，2019年以来，中共地下教会信徒被抓捕或被驯服的人数比以往更多。迫害程度更加严重，从这一点就可以看出，在梵蒂冈的授权下，教廷对中共迫害教会、侵犯人权事件变得更加沉默，特别在中共病毒超限生物基因战上毫无作为。
+
+一个不争的事实，天主教的腐败由来已久，自中世纪以来，教廷从出卖赎罪券以及对圣经解释权的垄断，再到今日出卖大主教任命权的问题上看，教廷还充斥着各样性交易和娈童问题，这些都是直接和天国的真理相违背的，梵蒂冈不仅仅在出售教会权，而且是在出卖基督，在基督被钉十字架时增添了梵蒂冈那一根罪恶的钉子。教皇方济各的行为可谓人神共愤。
+
+2021年4月15日晚写于东亚
+
+参考引用：
+
+[秘密协议](https://www.dnaindia.com/world/report-dissident-claims-chinese-communist-party-pays-vatican-2-billion-annually-to-keep-shut-2830054)
+[蓬佩奥](https://www.theaustralian.com.au/commentary/pact-with-chinese-communist-party-shames-the-vatican/news-story/20fcf354d1d97404038ce2206e23eacf) 
+[家](https://www.americamagazine.org/faith)
+[班农](https://www.youtube.com/watch?v=CVsL8l8Fr64) 
+[梵蒂冈](https://baike.baidu.com/tashuo/browse/content?id=e3ce132535ef76e731416f91) 
+[方济各](https://www.vaticannews.va/en/pope/news/2021-04/pope-francis-general-audience-prayer-church-school-house.html)
+
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+
+*校对：喜马拉雅东京樱花团 / 東洋武士
+责任编辑：喜马拉雅东京樱花团 / 文小白
+发布：喜马拉雅东京樱花团 / 传福音的人*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/二维码-1.jpg)
+0415C081a
+
+
+
++1
