@@ -1,35 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】挪威卫生专家建议禁用阿斯利康疫苗
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1109629/)
+## 拜登评价与伊朗核计划谈判
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1109730/)
 
-纽约香草山写作组   四季
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-《零对冲》4月16报道，挪威的公共卫生官员决定禁止阿斯利康COVID-19疫苗注射剂，因为它有罕见但有时是致命的脑血栓风险。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-34.png)
-最新的迹象表明，北欧国家正着手封杀阿斯利康疫苗注射剂，因为挪威的主要公共卫生专家已经正式建议他们的政府实施类似的禁令，将阿斯利康疫苗从挪威的冠状病毒疫苗接种计划中删除。
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Snipaste_2021-04-17_19-49-05.jpg)[flipboard.com](https://flipboard.com/topic/mahmoudahmadinejad/expat-iranian-joins-with-us-holocaust-museum-to-teach-jewish-genocide-in-persian/a-JPhaop_VRV64Vu4FUVUgTw:a:2890159446-5326f4523a%2Ftimesofisrael.com)
+04月17日，德黑兰将铀浓缩到60%的决定无助于伊朗核计划的谈判。美国总统拜登是在白宫推特上播出的与日本首相菅义伟的联合记者会上说，“我们不支持，也不认为伊朗说要将（铀）的浓度提高到60%有什么好处。这违背了协议。”
 
-挪威国家公共卫生研究所感染控制主任盖尔·布霍尔姆（Geir Bukholm）指出，这并不是一项容易的建议。在挪威，接种阿斯利康疫苗比Covid-19疾病的相关风险更大。
+他同时表示，他对伊朗同意继续与美国和其他国家进行直接谈判感到高兴。“我认为现在判断结果如何还为时过早，但我们仍在谈判。”
 
-然而，挪威卫生部长本特·霍伊（Bent Hoeie）表示，政府还不会做出决定。如果挪威政府接受这一建议，挪威将成为继丹麦之后第二个停止使用阿斯利康疫苗注射剂作为该国COVID免疫计划一部分的国家。鉴于疫苗接种后发生血栓性事件的风险明显但非常罕见，许多国家已经限制使用该疫苗。
+4月13日（周二），伊朗可能恢复伊朗核计划协议的谈判代表阿巴斯·阿拉基（Abbas Arakchi）表示，伊朗打算开始将铀浓缩到60%。在此之前，浓缩程度为20%。
 
-根据最新的世界卫生组织的警告，Covid感染率已经达到迄今为止的最高水平。世卫组织的主要优先事项之一是提高疫苗接种，希望通过 Covid疫苗帮助所有国家结束大流行。然而疫苗灾难频发，对试验性疫苗对人类未来的影响不得而知。不追究病毒来源，想通过试验性疫苗结束中共病毒大流行显然是不现实的，只有灭共，才能结束这场史无前例的病毒大流行。
+阿拉基的声明是在纳坦兹浓缩综合体事件发生后发表的， 4月11日该系统发生停电事故。伊朗原子能组织负责人阿里·阿克巴尔·萨利希（Ali Akbar Salehi）声称，这是“恐怖主义”的攻击造成的。
 
-原文链接：[https://www.zerohedge.com/covid-19/norways-health-experts-recommend-banning-astrazeneca-jab-nordics-get-cold-feet](https://www.zerohedge.com/covid-19/norways-health-experts-recommend-banning-astrazeneca-jab-nordics-get-cold-feet)
+2015年签署了《联合全面行动计划》（JCPOA），又称伊核协议。根据其条款，伊朗被禁止制造核武器，并允许国际观察员访问其核设施。而美国、欧盟和联合国安理会则解除对伊朗的制裁。
 
-审核/发稿：正义的小新
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-**更多资讯，更多关注**
+2018年，时任美国总统川普宣布该国退出该协议。他的解释是，伊朗正在违反该协议。德黑兰则表示，它正在暂停执行该协议的某些要点。
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+2月初，彭博社消息报道称，拜登政府希望为重启核协议采取措施。据悉，华盛顿正在考虑一种缓解伊朗财政状况的方案，包括通过国际货币基金组织的贷款，以及在一定程度上放松制裁。
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+参考链接：
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://www.rbc.ru/rbcfreenews/607a20fb9a79477fa496dee1](https://www.rbc.ru/rbcfreenews/607a20fb9a79477fa496dee1)
 
 0

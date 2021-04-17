@@ -1,57 +1,140 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路透社独家：知情人士称-中国开放数十亿美元的黄金进口
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1109673/)
+## 美国《2021战略竞争法》第131、132节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1109862/)
 
-【日本东京方舟农场】作者：萧寒[音译]（Xiao Han），彼得·霍布森（Peter Hobson），斯瓦蒂·维玛（Swati Verma）；翻译：葡萄干；校正：小油鍋
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-北京/伦敦/班加罗尔[印度]（路透社）。据五位知情人士表示，中国已经批准国内和国际银行向中国国内进口大量黄金。在金价历经数月的下跌后，此举预计有助于全球黄金价格回升。
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/CCP.jpg)thinkchina.sg
+按照目录顺序，略去以下章节：
+标题1——未来竞争的投入
+副标题A——科学与技术
+副标题B——全球基础设施的发展
+副标题C——数字技术和数据联通
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/BF0C8C76-F25F-40BA-96E2-706098A6E467.jpeg)
+本文为**副标题D——抵制中国共产党的影响**中的131、132节
 
-中国是世界上最大的黄金消费国，每年都在吞噬数百吨价值数百亿美金的贵重金属。但随着（中共）冠状病毒的传播和当地需求量的枯竭，其黄金进口量锐减。
+两节要点：
 
-自去年下半年以来，随着中国经济的强势反弹，对黄金珠宝，金条和金币的需求已经恢复，这让中国国内黄金价格高于全球基准价使得进口金条变得有利可图。
+本章节是一份《抵制中国共产党的恶意影响法》，在2022至2026财政年度每年拨款3亿美元，用以对抗中国共产党在全球的不良影响。中共或代表中共的实体实施的恶意影响指：破坏自由开放的国际秩序；推进另一种压迫性的国际秩序，这种秩序加强了中共的霸权野心；损害美国或其他国家的国家安全或主权；破坏美国或其他国家的经济安全，包括助长腐败。提高对与“一带一路”倡议有关的活动的负面影响的认识和透明度。揭露中共宣传的错误信息和造谣，反对中共将专制思想和治理模式合法化或推广的努力。
 
-据亚洲黄金交易商称，当地的黄金溢价目前约为每盎司7至9美元，如果不允许更多的进口来满足需求，当地的溢价可能会进一步上升。
+欲了解更多的内容，请看本节全文（仅供参考）。
 
-据四位有消息人士透露，随着北京颁布的许可，按当前价格计算约达85亿美元的150吨黄金已经准备开始装运。两人称装运时间在四月份。另两人则称这批黄金会在4月到5月之间送达。
+**第131节 简称**
 
-中国黄金进口的大部分基本上都来自澳大利亚，南非和瑞士。
+本副标题可引称为《抵制中国共产党的恶意影响法》
 
-中国中央人民银行（人行，英文简称PBOC）通过给予商业银行配额的方式控制进入中国的黄金量。（中共）央行通常都会维持贵金属的进口，但是对于其流通性有时却加以限制。
+**第132节 授权**
 
-一家将黄金运往中国的银行中的一位知情人士称：“我们在相当长的时间里没有得到配额。而今我们正在不断获得配额……自2019年来创下了新高。”
+（a）抵制中共国影响力基金 – 授权在2022至2026财政年度每年拨款3亿美元，用于抵制中共国影响力基金，以对抗中国共产党在全球的不良影响。根据本授权拨付的款项可提前预支使用，并应补充而不是取代其他授权拨付的款项，以应对此类影响。
 
-人行对此未给予回应评价。
+（b）需要的咨询 – 拨付或以其他方式提供资金以承担应对中国共产党在全球的恶意影响的义务，包括根据第（a）小节的授权，应事先与《1961年对外援助法》（22 U.S.C.2394-1）第634A节的规定进行协商，并与之保持一致通知程序 –
+（1）参议院外交关系委员会和拨款委员会；以及
+（2）众议院外交事务委员会和拨款委员会。
 
-当下装运的总量标志着中共国在全球黄金交易市场的强势回归。中国海关数据显示，自2020年2月以来，中国平均每月进口黄金价值约6亿美元，约合10吨。
+（c）政策指导、协调及批准 –
+（1）协调员 – 国务卿应指定一名助理部长或以上级别的部门现有高级官员，为根据第（a）小节授权的资金义务提供政策指导、协调和批准。
 
-其2019年的每月进口量约为35亿美元，约合75吨。
+（2）职责 – 根据第（1）款指定的高级官员应负责 –
+（A）据美国的国家利益和本法案的目的，每年确定使用（a）小节授权拨款的具体战略优先事项，如重点地理区域或资金将集中的规划职能类别
+（B）协调和批准使用第（a）小节授权拨付的资金进行的所有规划，前提是确定此类规划直接对抗中国共产党的恶意影响，包括中国共产党提出的具体活动或政策，根据《2017年国家安全战略》、《2018年国防战略》以及其他相关国家和地区战略（视情况而定）中确定的美国战略目标
+（C）确保所有经批准的节目与（d）小节所述的中共行为有足够的直接联系，并符合（e）小节所述的要求
+（D）监督、监测和评估使用第（a）小节授权拨款进行的所有规划的有效性，以确保其促进美国利益并降低中国共产党推进符合本节第（D）小节的活动的能力
 
-中国的缺席对疫情初期的黄金价格几乎没有影响，当时西方投资者担心金融危机而储存了大量的避险资产，将金价推到每盎司2072.50美元，创历史新高。
+（3）机构间协调 – 根据第（1）款指定的高级官员在根据第（2）款协调和批准节目时，应寻求 –
+（A）进行适当的机构间协商
+（B）在切实可行的最大范围内，确保所有经批准的项目功能与其他联邦活动相协调，以对抗中国共产党的恶意影响和活动
 
-但是随着疫苗和政府刺激计划恢复了经济增长，黄金价格已经跌至每盎司1750美元左右。投资者的黄金兴趣逐渐流失。
+（4）助理协调员 – 美国国际开发署署长应指定一名助理署长或以上级别的高级官员协助和咨询根据第（1）款指定的高级官员。
 
-来自印度政府的知情人士本月告知路透社称，印度对金条的需求也已从疫情引发的低迷中反弹，三月份进口了创纪录的160吨黄金。
+（d）恶意影响 – 在本节中，与中国共产党有关的“恶意影响”一词应解释为包括中国共产党或代表中国共产党行事的实体实施的下列行为 —
+（1）破坏自由开放的国际秩序
+（2）推进另一种压迫性的国际秩序，这种秩序加强了中国共产党的霸权野心，其特点是强迫和依赖
+（3）损害美国或其他国家的国家安全或主权
+（4）破坏美国或其他国家的经济安全，包括助长腐败
 
-中国和印度大约占世界黄金年度需求的五分之二。
+（e）对抗恶意影响 – 在本节中，通过使用第（a）小节授权拨付的资金对抗恶意影响应包括努力–
+（1）提高透明度和问责制，减少腐败，包括在中国共产党恶意影响的治理结构中
+（2）提高公民社会和独立媒体对与“一带一路”倡议有关的活动的负面影响的认识和透明度
+（3）打击有利于或者得益于中国共产党恶劣影响的跨国犯罪网络
+（4）鼓励建立有助于防范掠夺性贷款计划的经济发展结构，包括支持数字经济、能源和基础设施等关键经济部门的市场替代方案
+（5）对中共国安全部队有不正当影响的反活动
+（6）揭露中国共产党宣传的错误信息和造谣，包括通过全球参与中心开展的项目
+（7）反对中国共产党将专制思想和治理模式合法化或推广的努力
+（本节完）
 
-来自渣打银行（Standard Chartered）的一位分析师苏基·库珀（Suki Cooper）表示，中国和印度对黄金需求的复苏对“设定黄金底价至关重要”，能够阻止金价在未来几个月进一步下跌。
+《抵制中国共产党的恶意影响法》，每年拨款3亿，看来真是认清邪恶的中共后要有大手笔了。有法有钱，邪共不怕你作，你死到临头了！
 
-来自香港咨询公司“贵金属透析”（Precious Metals Insights）的分析师菲利普·克拉普维克（Philip Klapwijk）表示，2月农历新年假期期间，中国的珠宝销售表现强于2019年和2020年，导致生产商和零售商需要临时填充库存。
+原文链接：
 
-“以今年相当可观的黄金需求量来说，这种市场复苏必须以相较往年（2020年）更大的黄金进口量来促成。”
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
 
-（原文由路透社记者——北京的萧寒[音译]（Xiao Han），伦敦的彼得·霍布森（Peter Hobson），班加罗尔的彼得·霍布森（Peter Hobson），斯瓦蒂·维玛（Swati Verma）和阿尔潘·瓦吉斯（Arpan Varghese）报道；维罗妮卡·布朗（Veronica Brown），什里·納瓦拉特南（Shri Navaratnam）以及戴维·克拉克（David Clarke）编辑）
+文字整理：
 
-译者评注
+Subtitle D—Countering Chinese Communist Party Influence
 
-透过央行的政策有时候可以看出其背后CCP可能的一些政治目的。在全球灭共，以毒灭共，新疆人权以及香港圣战的大背景下，CCP大概率需要祭出其博弈手段。黄金储量可能是其除BGY外重要的一环。透过海外市场的白手套操纵部分币圈的涨跌，平均拉高小币的价值后，中共国内货币电子化，在比特币圈价值拉高到一定程度时与国内电子币透过其拥有的电子币交易行对接，以所积累的黄金储量为基础及其一部分国债达到扰乱并挑战美元的目的。译者认为房地产经济在这里也是最重要的一步，在国内货币电子化的同时，所拥有的房产某种程度上也变为国有，现存巨大的房地产经济变从虚高变为可扰乱全球经济的国家“控股”的铁锤，通过电子币可以交易美元以及其他货币的方式与世界经济挂钩，并利用电子币交易行这颗铁钉，在CCP病毒肆虐的同时砸向现有世界金融体系。某种程度上把中共国内的通货膨胀压力转加给世界金融体系，从而达到最终所谓的我的是我的，你的也是我的的目的。但在中共国内经济大环境的压力下，政治体系恶劣及其不确定下，如果以外汇大肆收购黄金必然会加速终结CCP统治的进程，而所谓的“报复性”消费并不是长久之计，对金银类的消费增加可能也只是局部人的财富的体现亦或者是一个宣传噱头，其背后是或由银行控制的统一，有计划的黄金的战略收购储备。
+SECTION 131. SHORT TITLE.
 
-注：本文评注仅代表译者观点
+This subtitle may be cited as the ‘‘Countering Chinese Communist Party Malign Influence Act’’.
 
-英文正文链接：[https://www.yahoo.com/now/exclusive-china-opens-borders-multi-095540747.html](https://www.yahoo.com/now/exclusive-china-opens-borders-multi-095540747.html)
+SEC. 132. AUTHORIZATION.
+
+(a) COUNTERING CHINESE INFLUENCE FUND. – There is authorized to be appropriated $300,000,000 for each of fiscal years 2022 through 2026 for the Countering Chinese Influence Fund to counter the malign influence of the Chinese Communist Party globally. Amounts appropriated pursuant to this authorization are authorized to remain available until expended and shall supplement, not supplant, amounts otherwise authorized to be appropriated to counter such influence.
+
+(b) CONSULTATION REQUIRED. – The obligation of funds appropriated or otherwise made available to counter the malign influence of the Chinese Communist Party globally, including pursuant to the authorization under subsection (a), shall be subject to prior consultation with, and consistent with section 634A of the Foreign Assistance Act of 1961 (22 U.S.C. 2394-1), the regular notification procedures of –
+
+(1) the Committee on Foreign Relations and the Committee on Appropriations of the Senate; and
+
+(2) the Committee on Foreign Affairs and the Committee on Appropriations of the House of Representatives.
+
+(c) POLICY GUIDANCE, COORDINATION, AND APPROVAL. –
+
+(1) COORDINATOR. – The Secretary of State shall designate an existing senior official of the Department at the rank of Assistant Secretary or above to provide policy guidance, coordination, and approval for the obligation of funds authorized pursuant to subsection (a).
+
+(2) DUTIES. – The senior official designated 19 pursuant to paragraph (1) shall be responsible for –
+
+(A) on an annual basis, the identification of specific strategic priorities for using the funds authorized to be appropriated by subsection (a), such as geographic areas of focus or functional categories of programming that funds are to be concentrated within, consistent with the national interests of the United States and the purposes of this Act;
+
+(B) the coordination and approval of all programming conducted using the funds authorized to be appropriated by subsection (a), based on a determination that such programming directly counters the malign influence of the Chinese Communist Party, including specific activities or policies advanced by the Chinese Communist Party, pursuant to the strategic objectives of the United States, as established in the 2017 National Security Strategy, the 2018 National Defense Strategy, and other relevant national and regional strategies as appropriate;
+
+(C) ensuring that all programming approved bears a sufficiently direct nexus to such acts by the Chinese Communist Party described in subsection (d) and adheres to the requirements outlined in subsection (e); and
+
+(D) conducting oversight, monitoring, and evaluation of the effectiveness of all programming conducted using the funds authorized to be appropriated by subsection (a) to ensure that it advances United States interests and degrades the ability of the Chinese Communist Party, to advance activities that align with subsection (d) of this section.
+
+(3) INTERAGENCY COORDINATION. – The senior official designated pursuant to paragraph (1) shall, in coordinating and approving programming pursuant to paragraph (2), seek to –
+
+(A) conduct appropriate interagency consultation; and
+
+(B) ensure, to the maximum extent practicable, that all approved programming functions in concert with other Federal activities to counter the malign influence and activities of the Chinese Communist Party.
+
+(4) ASSISTANT COORDINATOR. – The Administrator of the United States Agency for International Development shall designate a senior official at the rank of Assistant Administrator or above to assist and consult the senior official designated pursuant to paragraph (1).
+
+(d) MALIGN INFLUENCE. – In this section, the term ‘‘malign influence’’ with respect to the Chinese Communist Party should be construed to include acts conducted by the Chinese Communist Party or entities acting on its behalf that –
+
+(1) undermine a free and open international order;
+
+(2) advance an alternative, repressive international order that bolsters the Chinese Communist Party’s hegemonic ambitions and is characterized by coercion and dependency;
+
+(3) undermine the national security or sovereignty of the United States or other countries; or
+
+(4) undermine the economic security of the United States or other countries, including by promoting corruption.
+
+(e) COUNTERING MALIGN INFLUENCE. – In this section countering malign influence through the use of funds authorized to be appropriated by subsection (a) shall include efforts to –
+
+(1) promote transparency and accountability, and reduce corruption, including in governance structures targeted by the malign influence of the Chinese Communist Party;
+
+(2) support civil society and independent media to raise awareness of and increase transparency regarding the negative impact of activities related to the Belt and Road Initiative;
+
+(3) counter transnational criminal networks that benefit, or benefit from, the malign influence of the Chinese Communist Party;
+
+(4) encourage economic development structures that help protect against predatory lending schemes, including support for market-based alternatives in key economic sectors, such as digital economy, energy, and infrastructure;
+
+(5) counter activities that provide undue influence to the security forces of the People’s Republic of China;
+
+(6) expose misinformation and disinformation of the Chinese Communist Party’s propaganda, including through programs carried out by the Global Engagement Center; and
+
+(7) counter efforts by the Chinese Communist Party to legitimize or promote authoritarian ideology and governance models.
 
 0

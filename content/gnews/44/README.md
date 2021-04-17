@@ -1,40 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】记忆里的一道美食&#8211;红烧肉
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1109392/)
+## 【热点播报】日本首相访美，两国领袖誓言坚定联手抗中，历史意义重大
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1109580/)
 
-作者：香草山美食部 小猪胖胖681
-配音：香草山录音组 Gtv abeilles（蜜蜂）
+纽约香草山健身部 Jack Li文阳
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+据法国国际广播电台4月17日报道，美国总统拜登昨日在华府，与到访的日本首相菅义伟举行峰会。两国领袖誓言坚定联手抗中、加速因应气候变迁及5G网络方面合作。此外会后的声明中，还写入了对香港等的人权状况共同严重关切，美日首脑还确认将在中共新冠疫情上加强合作。
 
+拜登在这场领袖峰会上告诉菅义伟，日本享有美国在安全和其他议题上「钢铁般的支持」，体现了美国视日本为最重要的坚定盟友，承诺将给予最坚强的支持。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screen-Shot-2021-04-16-at-23.10.43.png)图片来源：https://www.washingtonpost.com/politics/2021/04/16/joe-biden-live-updates/
+双方在联合声明里，对中共国日益升温的霸权主义、新疆与香港人权问题、台海紧张形势等提出严正关切。声明重申美日安保条约，美国承诺协防钓鱼岛。声明指出，美日认同两国联手合作震慑中共的重要性，以维护区域内的和平与稳定，两国共同反对任何企图用武力改变东海现状的举动。
 
+在声明中的台湾议题上，美日双方表达对中共国侵略台湾的忧虑日益加深，中共国在台湾海峡越来越多的军事活动令人担忧。日本将被美国在军事上松绑，成为一个正常国家，在西太平洋和印太地区发挥重要的国际责任。美日两国将会协防台湾，以应对中共的一切武力行为。
 
+双方会谈还提到，美日两国分别承诺拨款25亿美元和20亿美元，加速发展5G网络和日后的6G技术。美国前总统川普执政期间向各国施压，要求他们放弃使用中共国华为5G设备。拜登政府继续在5G领域保持攻势，压制中共与华为。
 
+日本首相被选为拜登就任后首位访问白宫的外国领导人，凸显拜登政府应对中共国威胁，优先选择日本为最坚强的盟友以组成统一战线，以应对中共在地缘政治上的挑战。美国不惜取消二战后对日本在军事上的枷锁，表明美国的沼泽地已经清楚意识到中共穷兵黩武，企图称霸世界的野心。与西方有共同价值观的日本，一旦恢复成正常国家，必然给日本带来新一次的腾飞，日本就足以担负起美国在东亚的代表身份，震慑中共霸权。
 
+参考阅读：[https://www.rfi.fr/cn/%E6%8B%9C%E7%99%BB%E8%8F%85%E4%B9%89%E4%BC%9F%E5%B3%B0%E4%BC%9A-%E7%BE%8E%E6%97%A5%E6%91%86%E5%87%BA%E6%8A%97%E4%B8%AD%E9%98%B5%E7%BA%BF](https://www.rfi.fr/cn/%E6%8B%9C%E7%99%BB%E8%8F%85%E4%B9%89%E4%BC%9F%E5%B3%B0%E4%BC%9A-%E7%BE%8E%E6%97%A5%E6%91%86%E5%87%BA%E6%8A%97%E4%B8%AD%E9%98%B5%E7%BA%BF)
 
-
-记忆里最让我难以忘怀的一道美食，是我小舅舅做的红烧肉：真正是肥而不腻，入口即化，口感非常美味，令笔者到如今都记忆犹新！
-
-当时的年代，家家都不富裕，更别提普通的职工家庭。我虽是独生子女，但父亲、母亲每月微薄薪水的一大半都给了我的爷爷、奶奶，外公、外婆。所以，一家人平常都是吃素，直至春节期间去我小舅舅家过年，兄弟姊妹几个团聚在一起时，才能吃一碗红烧肉！
-
-文字版原文：[【言于其食】记忆里的一道美食——红烧肉](https://gnews.org/zh-hans/1095673/)
-
-音频处理/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
+编辑/审核/发稿：正义的小新
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 **[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
