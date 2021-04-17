@@ -1,136 +1,118 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 为掩盖新疆种族灭绝的罪行，中共外交部肆意抹黑证人
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1110345/)
+## 每日新闻收集【4/16】
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1110409/)
 
-新闻来源：《RFA自由亚洲电台》| 作者：Joshua Lipes书亚·利普斯 | 发布时间：2021年4月13日
+**西班牙巴塞罗那喜悦农场 ** wenwu
 
-翻译/简评：Lin Yheh | 校对：Beicy-数学老师 | 审核：万人往 | Page：青山
+「以钱灭共」 推文两则
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AcSoKa8qJDyif/images/dad15d31-f18f-4ff3-a4c6-e43335fd72a2.jpg?asset_id=37fc51b6-41ef-46c5-a02d-1f4afb4cc3b0&amp;img_etag=%227816f29513e1d666f185f3f1089d0887%22&amp;size=2560)](https://spark.adobe.com/page/AcSoKa8qJDyif/images/dad15d31-f18f-4ff3-a4c6-e43335fd72a2.jpg?asset_id=37fc51b6-41ef-46c5-a02d-1f4afb4cc3b0&amp;img_etag=%227816f29513e1d666f185f3f1089d0887%22&amp;size=1024)
 
-**简评：**
 
-中共国外交部为了掩盖其新疆种族灭绝的罪行疯狂的造假，以国家平台向全世界撒谎并肆意抹黑攻击作证新疆存在侵犯人权的证人，将集中营描绘成再教育营，并强迫证人的亲属录制虚假的视频来证明新疆的美好生活。但在一个个事实证据面前，再大的谎言也会被戳破，西方世界已经看清了中共的面目，已经不再相信这些拙劣的表演与欺骗。
+> 【学习新单词：SOP】
+> Standard Operating Procedure 标准操作程序，是帮助职工进行业务操作时为了实现高效率，质量和绩效的统一化，减少沟通不畅，和遵守行业法规而制定的一套程序。
+> 
+> 没有任何人生来就是全才。强大的学习能力和锲而不舍的钻研精神，才是郭先生创造了一个接一个奇迹的法宝！ [https://t.co/D5UwQF5rAR](https://t.co/D5UwQF5rAR) [pic.twitter.com/IgbNx7orbM](https://t.co/IgbNx7orbM)
+> — 瞿水台 Qu Shuitai (@QuShuitai) [April 16, 2021](https://twitter.com/QuShuitai/status/1382879386072973315?ref_src=twsrc%5Etfw)
 
-爆料革命最早爆出中共国在新疆地区建设有大量的集中营，并且关押了上百万维吾尔族人。新疆集中营事件清楚地揭示了中共国以假治国、以黑治国、以警治国以及完全不把老百姓当人看的魔鬼面目。这种模式还被中共国当作治理手段的典范加以推广。因此，不灭掉中共，新疆的集中营就会继续出现在大陆、香港、台湾以至全世界。
 
-**原文翻译：**
+1. **[瞿水台推特](https://twitter.com/QuShuitai/status/1372914895247794181)**：
+*【学习新单词：UBO】 UBO: Ultimate Beneficial Owner 最终实益拥有人，是指一个机构发起交易时作为最终受益人的个人或实体。 法人的UBO是指以下人员：
+持有法人实体至少25％的资本权益；
+在股东大会上拥有至少25％的投票权；
+至少获得该法人股本的25％作为受益人 在BVI新建的GTV的UBO们责任重大；
+【学习新单词：SOP】 Standard Operating Procedure 标准操作程序，是帮助职工进行业务操作时为了实现高效率，质量和绩效的统一化，减少沟通不畅，和遵守行业法规而制定的一套程序。 没有任何人生来就是全才。强大的学习能力和锲而不舍的钻研精神，才是郭先生创造了一个接一个奇迹的法宝*
 
-## **中共国抹黑为新疆虐待行为作证的前新疆居民**
 
-在这13人中，有一名自由亚洲电台（RFA）维吾尔服务社的记者，北京当局称其在“恐怖分子观察名单”上。
+> G系列为草根战友提供了一个拥有跟刚刚上市的Coinbase同样的初创和共同致富的机会和平台！
+> 只有长期投资才有最大回报！
+> 长期跟随爆料革命、投资G系列的战友才能实现灭共和致富两不误！💪 [pic.twitter.com/soIJ4TxT9I](https://t.co/soIJ4TxT9I)
+> — 瞿水台 Qu Shuitai (@QuShuitai) [April 16, 2021](https://twitter.com/QuShuitai/status/1383049210635902976?ref_src=twsrc%5Etfw)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AcSoKa8qJDyif/images/1dbb285b-b5da-4534-8162-cba8c2fa2f12.jpg?asset_id=fb0b85fa-29de-4aff-b3bb-1fd9ea4d4cc3&amp;img_etag=%227e0a978b04fc70f9ee5263ef16933435%22&amp;size=2560)](https://spark.adobe.com/page/AcSoKa8qJDyif/images/1dbb285b-b5da-4534-8162-cba8c2fa2f12.jpg?asset_id=fb0b85fa-29de-4aff-b3bb-1fd9ea4d4cc3&amp;img_etag=%227e0a978b04fc70f9ee5263ef16933435%22&amp;size=1024)2021年2月23日，在北京举行的新闻发布会上，中共国外交部发言人汪文斌拿着前拘留营在押人员的照片在发言，这幅静态图片取自视频。
 
-中共国外交部谴责十几名曾在新疆维吾尔自治区（XUAR）居住的前居民，指证他们曾是该地区的骗子、罪犯、恐怖分子和“道德败坏”的人，他们在国外生活时作证了新疆地区的虐待行为，其中包括一名自由亚洲电台维吾尔通讯社记者。
+2. **[瞿水台推特](https://twitter.com/QuShuitai/status/1383049210635902976?s=20)**：
+*G系列为草根战友提供了一个拥有跟刚刚上市的Coinbase同样的初创和共同致富的机会和平台！ 只有长期投资才有最大回报！ 长期跟随爆料革命、投资G系列的战友才能实现灭共和致富两不误*
+「以毒灭共」 8则推文
 
-这些指控是在4月9日北京举行的“第七次新疆相关问题新闻发布会”上提出的，这是外交部近几个月来举行的几次新闻发布会中的一次，目的是为了否认有关侵犯人权行为的报道，这些报道导致美国和其他西方国家的议会将新疆维吾尔自治区的政府政策定为种族灭绝运动的一部分。
 
-在媒体吹风会上，外交部和新疆维吾尔自治区的官员概述了在新疆大数据项目、新疆受害者数据库和维吾尔过渡司法数据库中登记的四种“案件类型”，这些数据库是为了记录据信在该地区的法外监禁运动中被关押的被拘留者和失踪亲属而建立的。
 
-据信，自2017年初以来，新疆维吾尔自治区当局在一个庞大的集中营网络中关押了多达180万名维吾尔族和其他穆斯林少数民族。虽然北京当局最初否认这些集中营的存在，但中共国在2019年改变了策略，开始将这些设施描述为“寄宿学校”，为维吾尔人提供职业培训，阻止激进化，并帮助保护中国受恐怖主义侵害。
+> “Cerebral venous thrombosis: a retrospective cohort study of 513,284 confirmed COVID-19 cases and a comparison with 489,871 people receiving a COVID-19 mRNA vaccine”
+> – University of Oxford
+> Oxford Study:[https://t.co/WKM1aZuNbS](https://t.co/WKM1aZuNbS)
+> News: [https://t.co/MlPOUdLBEF](https://t.co/MlPOUdLBEF) [pic.twitter.com/XepKdY6ts1](https://t.co/XepKdY6ts1)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 17, 2021](https://twitter.com/DrLiMengYAN1/status/1383233158275997697?ref_src=twsrc%5Etfw)
 
-但是，自由亚洲电台和其他媒体的报道表明，集中营里的人是在违背自己意愿的情况下被拘留、接受政治灌输、经常受到监督者的粗暴对待，并在往往人满为患的设施中忍受着恶劣的饮食和不卫生的条件。
 
-在上周的新闻发布会上，新疆维吾尔自治区政府发言人徐贵相驳斥说，这些数据库是“一些国际反华势力……为了诋毁新疆，以讹传讹，欺骗世界”而炮制的。
+1. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1383233158275997697?s=20)**：
+*“脑静脉血栓形成：一个医学纵向队列研究——**[513,284例确诊的新冠病毒病例](https://osf.io/a9jdq/)**与**[489,871人接受新冠病毒mRNA疫苗](https://www.marketwatch.com/story/blood-clots-as-prevalent-with-pfizer-and-moderna-vaccine-as-with-astrazenecas-report-2021-04-15)**的比较”*
 
-徐贵相说经过“严格核查”，当局确定在数据库登记的1.2万多人中，有近1350人是“捏造的”。他说，在剩下的人中，有近7000人“过着正常的生活”，而约3250人“曾因暴力恐怖犯罪和刑事犯罪被定罪判刑”。据徐贵相说，还有500人要么病死，要么在外国生活。
 
-徐贵相描述了一类案件，他说，这类案件涉及到在新疆维吾尔自治区集中营里编造经历的人，他们是“靠在国外抹黑新疆为生的演员”，以换取难民身份和物质利益。
+> 疫苗接种的可能反应，副作用和机理很多现在才逐渐研究和报道出来，可是几亿剂已经打完了。这是疫苗发明以来的第一次，但是很可能后续灾难最大的一次！ [https://t.co/Uw1TVeFfLb](https://t.co/Uw1TVeFfLb)
+> — 墨博士 (@4RxMbPD3YbeN1fS) [April 17, 2021](https://twitter.com/4RxMbPD3YbeN1fS/status/1383233066005516291?ref_src=twsrc%5Etfw)
 
-这方面的例子包括著名的前被拘留者SayragulSautbay、MihrigulTursun、ZumratDawut、GulziraAuelhan、TursunayZiyawudun和Rahman Shanbay——所有这些人都被自由亚洲电台和其它国际媒体广泛报道了他们在集中营中遭受的虐待，包括被殴打和被强制绝育。徐贵相驳斥了关于他们被关押在集中营或受到虐待的说法。
 
-徐贵相详述的第二类“案件”涉及“那些通过谎称是关押在集中营中的人的亲属而作伪证的人”，希望获得“国际社会的同情和实现其不可告人的目的”。例子包括Furqat Jawdat、Kuzat Altay、YiminjanSadul、Arpat Arkin、ReyhanAsat、MamutAbdureyim和自由亚洲电台记者GuljahraQeyum(又名Gulchehra Hoja)。
+2. **[墨博士推特](https://twitter.com/4RxMbPD3YbeN1fS/status/1383233066005516291?s=20)**：
+*疫苗接种的可能反应，副作用和机理很多现在才逐渐研究和报道出来，可是几亿剂已经打完了。这是疫苗发明以来的第一次，但是很可能后续灾难最大的一次。附闫博士推特*
 
-然而，徐贵相提出他们在中共国的亲属“已经澄清了真相，揭穿了那些不实的说法”。(那些亲属)通过一系列看似被胁迫的采访，在官方媒体中说自己从未被拘留，承诺效忠执政的共产党，并诋毁他们在国外的家人说的是“谎言”。
 
-徐贵相说第三种类型包括“编造经历作证者”，第四种类型则涉及被“依法追究刑事责任者”。
+> 蓬佩奥接受福克斯采访说，中共的病毒实验室非常危险，如果拜登不行动，大流行将再次发生
+> 玛丽亚肯定地说：新冠病毒来源于武汉实验室
+> 
+> 就拜登与菅义伟会面，他认为美国要与四国联盟在军事上、经贸上共同对抗中共，在供应链上减少对中共依赖，否则中共会进攻台湾。他强调，台湾从来不是中国大陆的一部分 [pic.twitter.com/ltLIVSQ9KK](https://t.co/ltLIVSQ9KK)
+> — 嘻禧僖囍 (@xi\_GLB) [April 16, 2021](https://twitter.com/xi_GLB/status/1383199373064998913?ref_src=twsrc%5Etfw)
 
-对于提到的每一个人，新疆维吾尔自治区当局都提供了一份针对他们的指控清单，包括他们感染梅毒、拖欠贷款或被刑事拘留，但没有提供任何证据或文件来支持自治区当局的说法。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AcSoKa8qJDyif/images/32607dfb-32bb-4be0-bbbb-ab6c8d045d1f.jpg?asset_id=6738f6da-e878-4573-80e3-a8c020adb18f&amp;img_etag=%22e313b185e3bb15e65e54227438a617a3%22&amp;size=3420)](https://spark.adobe.com/page/AcSoKa8qJDyif/images/32607dfb-32bb-4be0-bbbb-ab6c8d045d1f.jpg?asset_id=6738f6da-e878-4573-80e3-a8c020adb18f&amp;img_etag=%22e313b185e3bb15e65e54227438a617a3%22&amp;size=1024)吐尔逊乃·孜亚乌敦（TursunayZiyawudun）在一张未注明日期的照片中。自由亚洲电台
+3. **[喜站推特](https://twitter.com/xi_GLB/status/1383199373064998913?s=20)**：
+*蓬佩奥接受福克斯采访说，中共的病毒实验室非常危险，如果拜登不行动，大流行将再次发生 玛丽亚肯定地说：新冠病毒来源于武汉实验室 就拜登与菅义伟会面，他认为美国要与四国联盟在军事上、经贸上共同对抗中共，在供应链上减少对中共依赖，否则中共会进攻台湾。他强调，台湾从来不是中国大陆的一部分*
 
-**自由亚洲电台记者成为目标**
 
-新疆公安厅副厅长亚力坤·亚库甫（YalqunYaqup）在描述自由亚洲电台记者古丽恰克热·霍迦（Gulchehra Hoja）时对媒体说，2017年5月8日，“她因涉嫌加入[某]恐怖组织，被警方列为网上追逃对象”，但没有说出是哪个组织，也没有详细说明针对她的证据。
+> 议员的信中很多细节，显示他们对于ecohealth多年来干的事非常清楚，包括ecohealth官方多次否认病毒来自实验室，一直坚持称病毒来自自然，现在需要打杂客出来好好解释解释了，你完球蛋了😎 [https://t.co/Y7f3HnwrKO](https://t.co/Y7f3HnwrKO) [pic.twitter.com/eZb0eu4kRT](https://t.co/eZb0eu4kRT)
+> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [April 16, 2021](https://twitter.com/jsdfposjpqyuee1/status/1383186103662829570?ref_src=twsrc%5Etfw)
 
-霍迦告诉自由亚洲电台，她从来没有被告知她被列入恐怖主义名单，直到上周的新闻发布会才知道。周二，试图联系中共国驻华盛顿大使馆发表评论的努力没有得到回应。
 
-2003年，中共国公安部将东突厥斯坦伊斯兰运动（ETIM）、东突厥斯坦解放组织（ETLO）、东突厥斯坦信息中心（East Turkestan Information Center）和总部设在慕尼黑的世界维吾尔大会流亡团体（WUC）定为“恐怖组织”，但美国并未将其列为恐怖组织。
+4. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1383186103662829570?s=20)**：
+*（上）国会Cathy McMorris Rodgers等三名议员联名致信打杂客，向打杂客提出三十多项质询，要求做出详细解答。质询内容包括打杂客的ecohealth和武汉病毒研究所及石正丽的经济往来，更重磅的是直接指向RaTG13病毒的相关信息。打杂客摊上大事了
+（下）议员的信中很多细节，显示他们对于ecohealth多年来干的事非常清楚，包括ecohealth官方多次否认病毒来自实验室，一直坚持称病毒来自自然，现在需要打杂客出来好好解释解释了，你完球蛋了*
 
-美国国务院去年10月将“东突厥斯坦伊斯兰运动（ETIM）”从恐怖组织名单中删除，因为它说：“十多年来，没有可信的证据表明东突厥斯坦伊斯兰运动（ETIM）继续存在。”
 
-亚库甫指出，霍迦在中共国境外的活动包括参加2018年7月国会两党中国问题执行委员会(CECC)的会议，她在会议上说，她的父母曾被关押在集中营。她还强调了2019年3月在华盛顿与时任国务卿迈克·彭佩奥的会晤，期间，包括霍迦在内的前集中营被拘留者和被关押者的亲属讨论了新疆维吾尔自治区的情况。
+> "Beijing Institute of Biotechnology", "Beijing Institute of Microbiology and Epidemiology"?
+> Most published papers refrain to mention their military affiliations: Academy of Military Medical Sciences (AMMS) of PLA
+> Directors of them, Wei Chen and Wuchun Cao are PLA generals. [pic.twitter.com/xquqThb2EQ](https://t.co/xquqThb2EQ)
+> — 德意志之鹰 (@dezying) [April 16, 2021](https://twitter.com/dezying/status/1383058725628444672?ref_src=twsrc%5Etfw)
 
-霍迦通过她的报告证实，她的父亲Abduqeyum Ghoja、母亲Chimangul Zikir和兄弟Kesir Keyum是她被拘留的25名大家庭成员之一。她说，母亲去年7月告诉她，后来有8人获释，包括她的哥哥，他在集中营里呆了3年。霍迦是8名自由亚洲电台维吾尔服务社记者之一，他们的亲属已被证实被关押在新疆维吾尔自治区的集中营。
 
-不过，亚库甫称，霍迦的父母在家乡“过着正常的生活”，并补充说，戈雅（Ghoja）中风导致瘫痪，齐克尔（Zikir）也患有各种疾病，这让他们不愿意出国旅行，“因为他们的身体状况不好”。
+5. **[德意志之鹰推特](https://twitter.com/dezying/status/1383058725628444672?s=20)**：
+*“北京生物技术研究所”、“北京微生物与流行病学研究所“？
+大多数已发表的论文没有提及其军事隶属关系：解放军军事医学科学院（AMMS）他们的导演，陈薇和曹武春是解放军将领*
 
-在上周的新闻通气会报道中，《浙江时报》收录了齐克尔的视频证词，她称“生活非常好”，她和丈夫在医院看病可以得到政府的报销，还有每月约1.4万元人民币（2140美元）的退休工资，“足够我们两个人生活”。
 
-霍迦的哥哥Keyum也出现在视频中，他说他的家庭生活“很正常”。他说，他1月份开始在一家旅游公司做文员，在新疆维吾尔族自治区“现在过得很好”，宗教和行动自由都没有受到限制，尽管有报道说不是这样。
+> Be back! 
+> Truth won’t be buried! [https://t.co/RxkVpGkC9E](https://t.co/RxkVpGkC9E)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 16, 2021](https://twitter.com/DrLiMengYAN1/status/1383055183106674688?ref_src=twsrc%5Etfw)
 
-Keyum还抱怨妹妹出国留学后再也不回国，还说“她的一些行为是不正确的”。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AcSoKa8qJDyif/images/6cf2d471-e196-412a-87c0-dd56725153ff.jpg?asset_id=bd9a8c90-5eaf-4f9a-a2bd-09ac5bc71a84&amp;img_etag=%2281b1229949a7d2ee39e8b185e89baf1f%22&amp;size=3420)](https://spark.adobe.com/page/AcSoKa8qJDyif/images/6cf2d471-e196-412a-87c0-dd56725153ff.jpg?asset_id=bd9a8c90-5eaf-4f9a-a2bd-09ac5bc71a84&amp;img_etag=%2281b1229949a7d2ee39e8b185e89baf1f%22&amp;size=1024)古丽恰克热·霍迦和她的家人。自由亚洲电台
+6.**[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1383055183106674688?s=20)**：
+*（胡）闫博士的推特账户被🈲️了12个小时，因为她讲了一个故事，为帮助人们了解HCQ的工作原理，更引用了博士克雷格·韦克斯博士的推特。推特迫使闫博士要删除这些推文内容，否则她将无法收回她的帐户
+（闫）已经回来！真相不会被埋葬*
 
-**“完全是毫无根据的指控”**
 
-霍迦对自由亚洲电台说，看到自己的家人“被这样利用”，她称“无法忍受”。
+> 帮我打倒中国共产党。 请向我发送有关中国病毒研究的信息[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/tIll8UdRpg](https://t.co/tIll8UdRpg)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 16, 2021](https://twitter.com/LawrenceSellin/status/1383018664966885380?ref_src=twsrc%5Etfw)
 
-她说：“我决定离开中共国，成为美国公民，是为了让我成为一名可以报道真相的记者，没有恐惧，没有偏袒。”
 
-“这种将我的工作描绘成某种罪状的可疑企图，说明了当局在不惜一切代价的攻击独立记者和报道中共国新疆维吾尔人状况的新闻工作者。”
+7. **[塞林博士推特](https://twitter.com/LawrenceSellin/status/1383018664966885380?s=20)**：
+*帮我打倒中国共产党。 请向我发送有关中国病毒研究的信息
+附所需关键细节的图片*
 
-霍迦驳回了亚库甫的说法，即她的父母因为身体不好无法出行。
 
-她说：“多年来，我的父母一直被中共国政府拒发护照，原因很特别，因为我在美国从事新闻工作而对我进行报复”。
+> 4/14/2021美参议院情报委员听证会：两党已达成共识，来自中共的威胁位列世界五大流氓集团之首
+> 参议院本·萨斯演讲：中共国对美国的所有威胁都来自于习近平和他领导的中共，但前提是要分清中共和中国人民和海外华人的区别，并要不断向美国人民宣讲这一概念…（1/2） [pic.twitter.com/iZ3H29Wy9P](https://t.co/iZ3H29Wy9P)
+> — 秘密翻译组 (@G\_Translators6) [April 15, 2021](https://twitter.com/G_Translators6/status/1382840020554428422?ref_src=twsrc%5Etfw)
 
-“中共国安全机构把我这个美国公民和在美国工作了20年的自由亚洲电台记者列入他们的‘通缉名单’，因为我参加了一个‘恐怖组织’。这完全是毫无根据的指控，令人愤怒。我唯一的‘罪行’就是作为一名记者，报道维吾尔人的遭遇。”
 
-自由亚洲电台还采访了祖姆拉特·达武特（Zumrat Dawut），她于2019年随家人经巴基斯坦来到美国，也是徐贵相列出的“第一类案件”中的会议对象之一。达武特曾作证说她在集中营中被强制绝育的经历，为新闻机构和人权组织提供了中共国政府种族灭绝政策的有力证据。
+8. **[秘密翻译组推特](https://twitter.com/G_Translators6/status/1382840020554428422?s=20)**：
+*4/14/2021美参议院情报委员听证会：两党已达成共识，来自中共的威胁位列世界五大流氓集团之首 参议院本·萨斯演讲：中共国对美国的所有威胁都来自于习近平和他领导的中共，但前提是要分清中共和中国人民和海外华人的区别，并要不断向美国人民宣讲这一概念*
 
-“中共国指责我说谎，但我没有必要说假话，”她说，“我是为了我的人民说这些话。我不是为了奖励或因为我受到压力而作证。”
 
-她还表示，官方媒体制作的她的亲属出言反对她的视频证词是被胁迫的。
-
-她说：“我的家人被中共国挟持了，他们会做任何他们被迫做的事情。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/AcSoKa8qJDyif/images/f4cc8b5e-be4e-4e83-ae4a-2e297429a5c2.jpg?asset_id=75f5a70b-975f-482a-aafe-d43e2fc99357&amp;img_etag=%22fd40a356dfe36c932b420d6ed2f4a169%22&amp;size=1024)](https://spark.adobe.com/page/AcSoKa8qJDyif/images/f4cc8b5e-be4e-4e83-ae4a-2e297429a5c2.jpg?asset_id=75f5a70b-975f-482a-aafe-d43e2fc99357&amp;img_etag=%22fd40a356dfe36c932b420d6ed2f4a169%22&amp;size=1024)2019年6月2日，位于新疆维吾尔自治区喀什以北的一处据信是集中营的设施。法新社（AFP
-
-**“将不同意见定罪”**
-
-北京当局对霍迦和其他为自己的经历作证的维吾尔族移民的攻击，引起了自由亚洲电台主席拜方（Bay Fang）和中国问题专家的谴责。他们说，这种策略对阻止人们对新疆维吾尔族自治区的情况发表意见，或者左右国际社会对中共国有利的舆论没有什么作用。
-
-拜方说：“自2017年首次向世界通报中共国对新疆维吾尔自治区维吾尔族和其他穆斯林少数民族的打压以来，为自由亚洲电台爆料的记者们承受了非同寻常的压力。”
-
-“中共国当局将他们的家人关进监狱，试图诋毁他们的报道，并对他们提出虚假指控，所有这些都是为了让他们保持沉默。对霍迦的这些毫无根据的指控可耻地牵连到她的家人，是这些努力的一部分。这场毫无道理的恐吓运动并没有奏效。”
-
-总部设在纽约的人权观察组织的中国主任索菲·理查森（Sophie Richardson）说，上周的新闻发布会是北京当局对批评其政策的典型回应。
-
-她说：“中共国政府处理这件事的方式就是抨击，就是给人贴上罪犯或恐怖分子的标签，或者说他们不可信，或者分享关于他们的贬义信息，同时还制作歌舞视频，说新疆的每个人应该是多么幸福。”
-
-“现实是，世界上很多人已经厌倦了这种不诚实和欺凌，只是不买账……在[习近平主席]的中共国，如今正当程序是一个很不可靠的概念。如果当局有可信的证据，大概他们会分享，或者真的在法庭上使用。但没有什么可分享的，或者说分享的东西往往是高度、高度、高度可疑的。”
-
-曾被中共国诽谤和起诉的德国研究员、新疆维吾尔族自治区收容制度专家阿德里安·曾兹（Adrian Zenz）称，给霍迦贴上恐怖分子的标签是“一个空洞的进一步(指责)”。
-
-华盛顿共产主义受害者纪念基金会的高级研究员赞兹说：“他们基本上是以她是自由亚洲电台的记者和这个协会的成员来陷害她，可能是因为他们说这是一个恐怖主义协会，任何成员都是恐怖分子。”
-
-“这个策略是把任何异议都定为犯罪，从某种意义上说……把维吾尔族人定为犯罪，他们已经犯罪了。鉴于此，维吾尔族人民需要国际社会更强有力的支持和强有力的保护，使他们在海外的生活免于中共国的干预。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/AcSoKa8qJDyif/images/a689500b-9f29-4926-b169-484e703d04d3.jpg?asset_id=0c40b24a-4057-4d9e-b5fe-3376cd3c6672&amp;img_etag=%2225b4135a73514f99f1f21c8d61e2df05%22&amp;size=1024)](https://spark.adobe.com/page/AcSoKa8qJDyif/images/a689500b-9f29-4926-b169-484e703d04d3.jpg?asset_id=0c40b24a-4057-4d9e-b5fe-3376cd3c6672&amp;img_etag=%2225b4135a73514f99f1f21c8d61e2df05%22&amp;size=1024)
-
-🔗[原文链接](https://www.rfa.org/english/news/uyghur/smear-04132021191322.html)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/AcSoKa8qJDyif/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/AcSoKa8qJDyif/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-0
++1

@@ -1,31 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共再造大量病毒实验室，毒害全球不停步！
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1109528/)
+## 【热点播报】维也纳伊朗核协议会谈陷入困境
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1109595/)
 
-美东香草山写作组：大兄dei
+作者：纽约香草山写作组 孤独的战友
 
-印度标准时间4月16日晚，印度媒体“经济时报”（The Economic Times）在其网站刊发新闻，标题为“在武汉实验室对新冠病毒起源所扮演的角色尚存疑之际，中国欲造更多的生物实验室”（“China to build more bio labs amidst questions over Wuhan lab’s role in coronavirus origin”）。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
-文中援引中国科学技术部副部长相里斌的谈话，指出中国科学技术部已检验并批准建立3个P-4实验室和88个P-3实验室。文中也引用中国科学院院长白春礼在2020年4月份的讲话，提到中国已有两个P-4和81个P-3实验室在运行中或已被批准建设。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-33.png)
-CCP病毒贻害全球，截至美东时间4月16日下午三点全球新增确诊人数为844,796，至此全球总确诊数为140,313,922，死亡病例总数为3,007,650（资料来源：大纪元时报）。邪共之恶，罄竹难书！
 
-新闻网址：[https://economictimes.indiatimes.com/news/international/world-news/china-to-build-more-bio-labs-amidst-questions-over-wuhan-labs-role-in-coronavirus-origin/articleshow/82104699.cms](https://economictimes.indiatimes.com/news/international/world-news/china-to-build-more-bio-labs-amidst-questions-over-wuhan-labs-role-in-coronavirus-origin/articleshow/82104699.cms)
 
-审核/发稿：正义的小新
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片106.png)
+
+维也纳/德黑兰：据奥地利《新闻报》2021年4月17日报道，伊朗核协议原缔约各方（美国、俄罗斯、中国、英国、法国、德国、欧盟和伊朗）的外交谈判代表正在维也纳环行路上的酒店里举行核协议会谈。根据2015年的核协议，伊朗人只允许将其铀浓缩到3.67%的易裂变水平，这也是核武器级的同位素铀235。一颗核弹的纯度需要达到90%。
+
+自2018年美国在前总统特朗普的带领下退出伊朗核协会谈以来，伊朗人一直在违反核协议的规定。本次会议的目地是让美国重新加入核协会谈。美国新任总统乔·拜登对此也表示同意，前提是伊朗人必须首先回到全面遵守核协议的轨道上来。德黑兰方面却以解除美国对伊朗的制裁为条件。
+
+据《新闻报》报道，在上周五，伊朗议会发言人穆罕默德·卡利巴夫（Mohammad Kalibaf）宣布，伊朗科学家在纳坦兹（Natanz）核设施已成功生产出了浓度为60%的铀。稍后，伊朗核主管阿里·阿克巴尔·萨利希（Ali Akbar Salehi）证实，该厂目前的产量为每小时9克。 伊朗这一公然违反核协议的行为，显然是在给与会各方施加更大压力。令众参会方对未来局势的发展感到担忧。
+
+欧盟外交政策负责人约瑟普·博雷尔（Josep Borrell）的发言人周五在布鲁塞尔表示，这一事态发展 “非常令人担忧”。他认为，这种高浓缩程度提炼铀的做法是无法用非军事目的来解释的。
+
+据报道，伊朗这次的核提炼升级是因最近对纳坦兹（Natanz）设施的袭击引发的，伊朗方面怀疑该事件背后是以色列人。
+
+目前，维也纳环形路上的伊核会谈仍在继续，尽管伊朗方面明目张胆地违反核协议规定，擅自提高提炼铀的浓缩度，谈判代表们仍在试图挽救这次核协会谈。问题是美国和欧洲签署国（英国、法国和德国等国）对伊朗的挑衅能再忍耐多久。
+
+点评：奥地利维也纳的伊核会谈已举行多年。奥地利维也纳联合国国际原子能机构（IAEA  International Atomic Energy Agency）为限制伊朗发展核武召开会议也不计其数，并通过各种手段包括制裁加以限制。但情况总是时好时坏。为什么?  这其中是否有中共插手，值得深思。
+
+信息链接：[Atomgespräche in Wien an seidenem Faden | DiePresse.com](https://www.diepresse.com/5966995/atomgesprache-in-wien-an-seidenem-faden)
+
+校对/发稿：飞虹
+
 ![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
