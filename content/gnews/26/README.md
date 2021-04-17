@@ -1,30 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧洲小国黑山再陷债务外交泥潭 解析中共阴险设局关键
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1108299/)
+## 2021/04/07 班农专访（8）：美国供应链遭到威胁
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1108456/)
 
-作者：宁缺 | 校对：西川 Stanly | 审核：Beicy-数学老师 | Page: Daoiii
+视频字幕：JonsonR | 听写/翻译：Wade | 校对：势不可挡 | 简评/文字整理/编辑：胖丁 | Page：青山
 
-[!\[\]()!\[\](https://spark.adobe.com/page/FO5QswXSAnlgW/images/969e5ec6-e26c-488f-8d22-71138d0615f0.jpg?asset_id=efc1914f-2c7c-4851-aa7e-a25b4dc39d1b&amp;img_etag=%22fca1f3f6d1c706c8ae8e2a2aa0edd601%22&amp;size=1024)](https://spark.adobe.com/page/FO5QswXSAnlgW/images/969e5ec6-e26c-488f-8d22-71138d0615f0.jpg?asset_id=efc1914f-2c7c-4851-aa7e-a25b4dc39d1b&amp;img_etag=%22fca1f3f6d1c706c8ae8e2a2aa0edd601%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/EwS3Fhx3YhpaV/images/4718a3c5-0ee8-4276-9267-73e45c5e3ae6.jpg?asset_id=003bc6e5-a7e2-49d5-bfa6-a2ce2108af03&amp;img_etag=%2233b643107a7e4d4e5f016612c1939f4d%22&amp;size=1024)](https://spark.adobe.com/page/EwS3Fhx3YhpaV/images/4718a3c5-0ee8-4276-9267-73e45c5e3ae6.jpg?asset_id=003bc6e5-a7e2-49d5-bfa6-a2ce2108af03&amp;img_etag=%2233b643107a7e4d4e5f016612c1939f4d%22&amp;size=1024)图片来源：美国国务院 D. Thompson
 
-#### 欧洲联盟委员会周一（4月12日）表示，欧盟无法帮助希望成为欧盟成员国的黑山偿还其积欠中共国的债务，但可以帮助它完成一项开始时用北京的巨额贷款建造的高速公路的计划。
+**简评：**
 
-这个巴尔干小国今年开始,将艰难地偿还中共国提供的10亿欧元贷款。2014年，黑山从中共国获得这笔贷款，来建造巴尔-博尔加里高速公路的一期工程。此高速公路工程完成后将把亚得里亚海沿岸的巴尔港和内陆邻国塞尔维亚连接起来。
+CCP病毒爆发后，中共对湖北和武汉实施了长达一个月至六周的封锁，切断了所有的地面交通，导致全球供应链遭到严重打击，尤其是医疗设备的供应链。拜登政府只是签了一份总统令，而不采取任何行动。拜登政府把一部分供应链转移到了东南亚其他国家，但这远远不够，中共会因此更加欺榨中国老百姓来获得经济利益。
 
-*新闻链接：[欧盟：无法帮助黑山偿还其中国债务 但可提供融资完成修路](https://www.voachinese.com/a/EU-Montenegro-china-belt-and-road-initiative-debt-diplomacy-20210412/5850239.html)*
+**视频字幕：**
 
-***评论：***
 
-中共国的陷阱式债务外交再次暴露出狰狞的本来面目，就如同股神巴菲特的名言，当潮水退去的时候，你才会发现谁在裸泳。当中共病毒肆虐全球，重创经济的时候，背上中共债务的国家才会体会被魔鬼敲骨吸髓的痛苦。黑山如此火急火燎地请求欧盟的经济援助，想必是已经发现了中共当年暗藏的套路。
 
-天下没有免费的午餐，在功于算计、没有信仰的中共面前，免费二字且不必妄想，贪小利而丧权辱国的可能性倒是很大。中共推行一带一路的套路就是用表面光鲜的糖衣炮弹，伪装暗藏的债务陷阱。先是通过蓝金黄所在国腐败官员，帮助其游说贷款合同，暗地里将潜藏的政治经济图谋加入违约条款。装上满满饵料的致命诱惑，让所在国政府稀里糊涂就咬钩上当。
+[GTV视频链接](https://gtv.org/video/id=6071b078dbc8001854a7470c)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/FO5QswXSAnlgW/images/e184fadb-ba98-4ebc-ac98-8b91d97fbb0a.png?asset_id=2aab522a-38a5-4f1c-840d-8ebc85a2aa49&amp;img_etag=%22d77a00a10a0037e3410f9614ba732bf4%22&amp;size=2560)](https://spark.adobe.com/page/FO5QswXSAnlgW/images/e184fadb-ba98-4ebc-ac98-8b91d97fbb0a.png?asset_id=2aab522a-38a5-4f1c-840d-8ebc85a2aa49&amp;img_etag=%22d77a00a10a0037e3410f9614ba732bf4%22&amp;size=1024)
+Daniel: 福克斯最近报道了国家反情报和安全中心警告美国企业, 海外敌对力量威胁美国供应链。
 
-中共深知世界经济是存在周期性波动的，经济繁荣期拟定的贷款合同会让签约国觉得偿还压力并不是很大，实际上暗藏了致命的风险；一旦经济步入下降衰退周期，偿还贷款就变得遥不可及。作为整个骗术最重要的一环，中共释放了病毒，随后世界经济崩溃，中共完成了陷阱式债务外交的最后收尾，巴尔干小国黑山马上发现国家主要收入来源遭遇重创。
+Bannon: 供应链是个非常重大的问题，我们在去年2-4月的战斗室上就反复强调过。
 
-对外借款是一个主权国家的自由，欧盟确实没有义务帮助黑山还款。但是为了避免中共卡住黑山脖子，以借款违约之名，行政治经济敲诈之实，欧盟应该力所能及的帮助黑山摆脱中共的讹诈，这样才能展现一个地区性组织的能力与威信。
+中共对湖北和武汉实施了长达一个月至六周的封锁，切断了所有的地面交通。
+
+全球供应链遭受了严重打击，尤其是医疗设备供应链。
+
+但是拜登政府仍然在打口炮，他签了一份总统令要对这个问题进行研究。
+
+他们根本不用再研究，只需要行动。
+
+所以西方尤其是美国的态度非常软弱，光说不练，没有实际行动。
+
+如果我是中共，我肯定笑话美国。
+
+拜登政府会说他们已经把一部分供应链转移到了东南亚其他国家。
+
+但我觉得这样远远不够。
+
+中共会因此继续更惨无人道地压榨中国工人。
+
+中共所有的一切最终都由辛勤劳动的中国百姓买单，一直都是这样。
+
+美国老百姓的境遇已经够糟了，但无法与中国百姓遭受中共的欺辱相比。
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -33,8 +51,8 @@
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/FO5QswXSAnlgW/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/FO5QswXSAnlgW/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/EwS3Fhx3YhpaV/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/EwS3Fhx3YhpaV/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
 
 
-0
++1
