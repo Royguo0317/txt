@@ -1,35 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】挪威卫生专家建议禁用阿斯利康疫苗
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1109629/)
+## 川普总统前竞选经理指责华尔街及大公司保护中共
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1109718/)
 
-纽约香草山写作组   四季
+俄罗斯莫斯科喀秋莎农场 DongDong
 
-《零对冲》4月16报道，挪威的公共卫生官员决定禁止阿斯利康COVID-19疫苗注射剂，因为它有罕见但有时是致命的脑血栓风险。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-34.png)
-最新的迹象表明，北欧国家正着手封杀阿斯利康疫苗注射剂，因为挪威的主要公共卫生专家已经正式建议他们的政府实施类似的禁令，将阿斯利康疫苗从挪威的冠状病毒疫苗接种计划中删除。
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-26.jpg)axios.com
+唐纳德·川普 2016 年的总统竞选经理科里·莱万多夫斯基（Corey Lewandowski）指责民主党人和结盟的自由主义者保护中共国，因为他们正从与这共产主义国家的联系中变得富有。
 
-挪威国家公共卫生研究所感染控制主任盖尔·布霍尔姆（Geir Bukholm）指出，这并不是一项容易的建议。在挪威，接种阿斯利康疫苗比Covid-19疾病的相关风险更大。
+莱万多夫斯基周五在接受 Newsmax 电视台的 “克里斯·萨尔塞多秀 ”（The Chris Salcedo Show）时，回应了许多人的观点，即中共国对美国构成的威胁比俄罗斯更严重，而企业和国会中的许多人却在鼓励中共国，（令其变得更加自信和肆无忌惮）。
 
-然而，挪威卫生部长本特·霍伊（Bent Hoeie）表示，政府还不会做出决定。如果挪威政府接受这一建议，挪威将成为继丹麦之后第二个停止使用阿斯利康疫苗注射剂作为该国COVID免疫计划一部分的国家。鉴于疫苗接种后发生血栓性事件的风险明显但非常罕见，许多国家已经限制使用该疫苗。
+“因为中(共)国向华尔街输送了巨额利益，华尔街将中(共)国视为自己人。许多现任国会支持社会主义议题的政客也投入中(共)国政府的怀抱。”莱万多夫斯基说。
 
-根据最新的世界卫生组织的警告，Covid感染率已经达到迄今为止的最高水平。世卫组织的主要优先事项之一是提高疫苗接种，希望通过 Covid疫苗帮助所有国家结束大流行。然而疫苗灾难频发，对试验性疫苗对人类未来的影响不得而知。不追究病毒来源，想通过试验性疫苗结束中共病毒大流行显然是不现实的，只有灭共，才能结束这场史无前例的病毒大流行。
+“中(共)国是一个经济超级大国。不仅如此，美国人生活的绝大多数必需品都由其生产和掌控，美国将数以万计的产品交给了中(共)国负责生产。而事实是……大企业，尤其是华尔街，已向中(共)国投怀送抱。因为中(共)国就业成本低，提供的产品便宜，很多像沃尔玛这样的公司靠着中(共)国生产的大量低利润产品，赚得盆满钵满。结果是华尔街大佬，尤其是那些亿万富翁，都靠着中(共)国过上了好日子。”
 
-原文链接：[https://www.zerohedge.com/covid-19/norways-health-experts-recommend-banning-astrazeneca-jab-nordics-get-cold-feet](https://www.zerohedge.com/covid-19/norways-health-experts-recommend-banning-astrazeneca-jab-nordics-get-cold-feet)
+莱万多夫斯基提出，使用廉价的中共国劳动力来生产在美国销售的商品，事实证明这对美国来说是有风险的。例如，在中共病毒爆发初期，美国不得不从中共国购买个人防护设备（PPE），因为美国本土 PPE 量产不足。
 
-审核/发稿：正义的小新
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-**更多资讯，更多关注**
+“美国过度依赖中共国生产的个人防护装备，导致在病毒爆发的早期阶段不得不请求中共国协助提供必不可少的个人防护装备、口罩和手套，以及美国必须使用的产品。” 他说。
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+“正是在唐纳德·川普的领导下，四年后才开始扭转对中共国的过度依赖状况，并将生产这些产品的工作岗位重新带回美国。因为雇佣美国工人生产商品，美国人愿意为所购买的产品支付更多的费用。”
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+莱万多夫斯基认为川普政府时“美国优先”的国策将美国制造业从海外拉回了美国本土，从而减少了美国对中共国生产商品的依赖度，大大降低了现在美中发生冲突时可能面临的受制于中共的风险，提升了国内就业率，稳定了国内政治环境。正是川普时期四年来做的铺垫，才换来如今拜登政府破局美中关系的底气。但华尔街金融大佬的贪婪，以及国会中某些与中共暗通曲款的政客，正在破坏川普时期所夯实的地基，这是他所不愿意看到的情况。
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+参考链接：
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[1] [Corey Lewandowski to Newsmax TV: China Poses Bigger Threat Than Russia – NewsMax – 2021/04/17](https://www.newsmax.com/newsfront/china-russia-lewandowski-trump/2021/04/16/id/1017948/)
 
 0
