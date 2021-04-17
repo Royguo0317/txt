@@ -1,33 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】04/16/2021:拜登和菅义伟将讨论中共国的威胁中共与华尔街两个洗钱集团正猛力推高虚拟货币市场
-` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1108987/)
+## 路德时评简讯（视频版）: 中共抹黑布林肯将适得其反(2021.4.13晚间路德社简讯之路博艾冠谈）
+` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1109254/)
 
-**制作：Cantonese工作室**
+《路德社》出品
 
+以下视频是详细内容：
 
+內容摘要：
 
-**播报：【海媚】资料整理：【Elaine 】【郁金香】【极寒将至】海报制作：【侬民】视频制作：【KEN】上传：【陆柒陆捌 】**
+一、CNN著名主持人支持闫博士病毒报告结论
 
-摘要：
-
-1
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210417-__2.jpg)
-2
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210417-__3.jpg)
-3
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210417-__4.jpg)
-4
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210417-__5.jpg)
-5
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210417-__6.jpg)
+二、中共抹黑布林肯将适得其反
 
 
-6
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210417-__7.jpg)
-7
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210417-__8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/0-3.jpg)
 
+制作：路德社简讯视频组
+
+审核校对：玫瑰新闻组
+
+上传排版：玫瑰新闻组
 
 0

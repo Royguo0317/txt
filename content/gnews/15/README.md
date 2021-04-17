@@ -1,140 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第131、132节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1109862/)
+## Coinbase登录纳斯达克，数字货币角逐世界地缘政治舞台
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1109802/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：女人与马｜校对：Dr. Lee｜审核：Julia Win
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/CCP.jpg)thinkchina.sg
-按照目录顺序，略去以下章节：
-标题1——未来竞争的投入
-副标题A——科学与技术
-副标题B——全球基础设施的发展
-副标题C——数字技术和数据联通
+![]()![](https://gnews.org/wp-content/uploads/2021/04/viktor-forgacs-ILl-JCX67OE-unsplash.jpg)
 
-本文为**副标题D——抵制中国共产党的影响**中的131、132节
+美国当前用户数量高达4000万，交易活跃程度最高的数字货币交易平台Coinbase于2021年4月14日，终于在前期市场的热切盼望下，登录纳斯达克交易所。第一天开盘，股价一度飞冲高达420美金一股，造成其它当前热门股票资金外流，市场有消息称，持有特斯拉（Tesla）的某些机构减仓而转为持有Coinbase的股票。此后，股价盘旋在330美元附近，比初始定价250美元一股高出30%，反而更能聚焦市场目光。此景空前，在如今全球疫情还在蔓延的不确定时期，Coinbase的崭露头角给数字货币时代的开启激出无穷的激情与浪花。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-21-2.png)图片来自Yahoo Finance
+与之Coinbase成功登录纳斯达克，各大网络媒体，投资平台的舆论导向应运而生。多只高科技金融ETF声称将持有Coinbase股票，创下金融市场历史上ETF从上市第一天开始持有IPO股票的多项记录。市场热度可见一斑。
 
-两节要点：
+科技时代高速发展的今天，数字货币的高效性及快捷跨境支付等多种优质特性已被大多数人所接受。但是通过现象看本质，这背后世界经济体市场份额的重新再分配才是各国政体，央行官员所考虑的重中之重。从脸书（Facebook）提出自主研发数字货币Libra开启之日，全世界各大央行已不得不加入这场关系到未来百年经济秩序、市场权力和控制力的角逐战场上来。
 
-本章节是一份《抵制中国共产党的恶意影响法》，在2022至2026财政年度每年拨款3亿美元，用以对抗中国共产党在全球的不良影响。中共或代表中共的实体实施的恶意影响指：破坏自由开放的国际秩序；推进另一种压迫性的国际秩序，这种秩序加强了中共的霸权野心；损害美国或其他国家的国家安全或主权；破坏美国或其他国家的经济安全，包括助长腐败。提高对与“一带一路”倡议有关的活动的负面影响的认识和透明度。揭露中共宣传的错误信息和造谣，反对中共将专制思想和治理模式合法化或推广的努力。
+中美两大经济体在这场角逐中自然成为竞争的两级。中共央行似乎走的很快很急，中共国人民央行推行的数字货币，已经在中共国多个城市进行了试点和测试。美国政府之前似乎没有明确的计划和公开讨论，但一切都在悄悄的变化中。近日前美联储主席鲍威尔发表声明说，二季度末将会分享美联储与麻省理工大学合作研发的数字货币的设计协议。拜登政府的内部成员，近日也对中共国人民央行推行的数字货币对美元在贸易体系的主导地位会有所冲击表示担忧。 虽然一个月前人民银行及多方牵头和环球银行金融电信协会SWIFT成立了一家合资金融机构，似乎在表明与现有体系继续合作的意愿，但中共政府准备脱钩美元，成立以人民币为主的经济战略生态圈的意图却日趋明显，已经引起美国和欧盟的高度重视。
 
-欲了解更多的内容，请看本节全文（仅供参考）。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-22-.png)
 
-**第131节 简称**
+爆料革命的引领者郭先生在几个月前曾提到，新上任的美国证监会主席对GCOIN的上市发行是重大利好，事实证明确实如此。新上任的美国证监会主席盖瑞·詹斯勒（Gary Gensler）使认为美国监管机构会严厉监管，甚至禁止数字货币广泛流通一派的声音逐渐减弱。詹斯勒本人曾在麻省理工大学教过一门比特币和区块链技术的课程。
 
-本副标题可引称为《抵制中国共产党的恶意影响法》
+西方商业文明的繁荣是基于贸易互利，信用互换，及对庞大消费者群体的保护等多种因素。美国二战后金融市场茁壮成长的一个根本前提，是监管部门对中小投资者投资信心的首要保护。即将上市的新中国联邦的数字货币GCOIN与黄金挂钩，用稳定币结算，公开透明，定量发行，在设计理念上超前，加密技术更是首屈一指，各方各面具备成为一种高质量的金融资产的潜质，即将打造一种全新的商业贸易文明。
 
-**第132节 授权**
+基于二战后以美元主导的国际金融市场的架构，正在被不断涌现出来的数字货币及相应交易市场所改变。过去以央行调控主导实行的货币政策，外汇政策都将会受到巨大的冲击与挑战。国家主权推行的数字货币和私人机构发行的数字货币都将在即将到来的新时代面前角逐一席之地，百花齐放，最终让市场和消费者来决定优胜劣汰。
 
-（a）抵制中共国影响力基金 – 授权在2022至2026财政年度每年拨款3亿美元，用于抵制中共国影响力基金，以对抗中国共产党在全球的不良影响。根据本授权拨付的款项可提前预支使用，并应补充而不是取代其他授权拨付的款项，以应对此类影响。
+*文章仅代表作者观点*
 
-（b）需要的咨询 – 拨付或以其他方式提供资金以承担应对中国共产党在全球的恶意影响的义务，包括根据第（a）小节的授权，应事先与《1961年对外援助法》（22 U.S.C.2394-1）第634A节的规定进行协商，并与之保持一致通知程序 –
-（1）参议院外交关系委员会和拨款委员会；以及
-（2）众议院外交事务委员会和拨款委员会。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-（c）政策指导、协调及批准 –
-（1）协调员 – 国务卿应指定一名助理部长或以上级别的部门现有高级官员，为根据第（a）小节授权的资金义务提供政策指导、协调和批准。
 
-（2）职责 – 根据第（1）款指定的高级官员应负责 –
-（A）据美国的国家利益和本法案的目的，每年确定使用（a）小节授权拨款的具体战略优先事项，如重点地理区域或资金将集中的规划职能类别
-（B）协调和批准使用第（a）小节授权拨付的资金进行的所有规划，前提是确定此类规划直接对抗中国共产党的恶意影响，包括中国共产党提出的具体活动或政策，根据《2017年国家安全战略》、《2018年国防战略》以及其他相关国家和地区战略（视情况而定）中确定的美国战略目标
-（C）确保所有经批准的节目与（d）小节所述的中共行为有足够的直接联系，并符合（e）小节所述的要求
-（D）监督、监测和评估使用第（a）小节授权拨款进行的所有规划的有效性，以确保其促进美国利益并降低中国共产党推进符合本节第（D）小节的活动的能力
+编辑：【英国伦敦喜庄园编辑部】
 
-（3）机构间协调 – 根据第（1）款指定的高级官员在根据第（2）款协调和批准节目时，应寻求 –
-（A）进行适当的机构间协商
-（B）在切实可行的最大范围内，确保所有经批准的项目功能与其他联邦活动相协调，以对抗中国共产党的恶意影响和活动
-
-（4）助理协调员 – 美国国际开发署署长应指定一名助理署长或以上级别的高级官员协助和咨询根据第（1）款指定的高级官员。
-
-（d）恶意影响 – 在本节中，与中国共产党有关的“恶意影响”一词应解释为包括中国共产党或代表中国共产党行事的实体实施的下列行为 —
-（1）破坏自由开放的国际秩序
-（2）推进另一种压迫性的国际秩序，这种秩序加强了中国共产党的霸权野心，其特点是强迫和依赖
-（3）损害美国或其他国家的国家安全或主权
-（4）破坏美国或其他国家的经济安全，包括助长腐败
-
-（e）对抗恶意影响 – 在本节中，通过使用第（a）小节授权拨付的资金对抗恶意影响应包括努力–
-（1）提高透明度和问责制，减少腐败，包括在中国共产党恶意影响的治理结构中
-（2）提高公民社会和独立媒体对与“一带一路”倡议有关的活动的负面影响的认识和透明度
-（3）打击有利于或者得益于中国共产党恶劣影响的跨国犯罪网络
-（4）鼓励建立有助于防范掠夺性贷款计划的经济发展结构，包括支持数字经济、能源和基础设施等关键经济部门的市场替代方案
-（5）对中共国安全部队有不正当影响的反活动
-（6）揭露中国共产党宣传的错误信息和造谣，包括通过全球参与中心开展的项目
-（7）反对中国共产党将专制思想和治理模式合法化或推广的努力
-（本节完）
-
-《抵制中国共产党的恶意影响法》，每年拨款3亿，看来真是认清邪恶的中共后要有大手笔了。有法有钱，邪共不怕你作，你死到临头了！
-
-原文链接：
-
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
-
-文字整理：
-
-Subtitle D—Countering Chinese Communist Party Influence
-
-SECTION 131. SHORT TITLE.
-
-This subtitle may be cited as the ‘‘Countering Chinese Communist Party Malign Influence Act’’.
-
-SEC. 132. AUTHORIZATION.
-
-(a) COUNTERING CHINESE INFLUENCE FUND. – There is authorized to be appropriated $300,000,000 for each of fiscal years 2022 through 2026 for the Countering Chinese Influence Fund to counter the malign influence of the Chinese Communist Party globally. Amounts appropriated pursuant to this authorization are authorized to remain available until expended and shall supplement, not supplant, amounts otherwise authorized to be appropriated to counter such influence.
-
-(b) CONSULTATION REQUIRED. – The obligation of funds appropriated or otherwise made available to counter the malign influence of the Chinese Communist Party globally, including pursuant to the authorization under subsection (a), shall be subject to prior consultation with, and consistent with section 634A of the Foreign Assistance Act of 1961 (22 U.S.C. 2394-1), the regular notification procedures of –
-
-(1) the Committee on Foreign Relations and the Committee on Appropriations of the Senate; and
-
-(2) the Committee on Foreign Affairs and the Committee on Appropriations of the House of Representatives.
-
-(c) POLICY GUIDANCE, COORDINATION, AND APPROVAL. –
-
-(1) COORDINATOR. – The Secretary of State shall designate an existing senior official of the Department at the rank of Assistant Secretary or above to provide policy guidance, coordination, and approval for the obligation of funds authorized pursuant to subsection (a).
-
-(2) DUTIES. – The senior official designated 19 pursuant to paragraph (1) shall be responsible for –
-
-(A) on an annual basis, the identification of specific strategic priorities for using the funds authorized to be appropriated by subsection (a), such as geographic areas of focus or functional categories of programming that funds are to be concentrated within, consistent with the national interests of the United States and the purposes of this Act;
-
-(B) the coordination and approval of all programming conducted using the funds authorized to be appropriated by subsection (a), based on a determination that such programming directly counters the malign influence of the Chinese Communist Party, including specific activities or policies advanced by the Chinese Communist Party, pursuant to the strategic objectives of the United States, as established in the 2017 National Security Strategy, the 2018 National Defense Strategy, and other relevant national and regional strategies as appropriate;
-
-(C) ensuring that all programming approved bears a sufficiently direct nexus to such acts by the Chinese Communist Party described in subsection (d) and adheres to the requirements outlined in subsection (e); and
-
-(D) conducting oversight, monitoring, and evaluation of the effectiveness of all programming conducted using the funds authorized to be appropriated by subsection (a) to ensure that it advances United States interests and degrades the ability of the Chinese Communist Party, to advance activities that align with subsection (d) of this section.
-
-(3) INTERAGENCY COORDINATION. – The senior official designated pursuant to paragraph (1) shall, in coordinating and approving programming pursuant to paragraph (2), seek to –
-
-(A) conduct appropriate interagency consultation; and
-
-(B) ensure, to the maximum extent practicable, that all approved programming functions in concert with other Federal activities to counter the malign influence and activities of the Chinese Communist Party.
-
-(4) ASSISTANT COORDINATOR. – The Administrator of the United States Agency for International Development shall designate a senior official at the rank of Assistant Administrator or above to assist and consult the senior official designated pursuant to paragraph (1).
-
-(d) MALIGN INFLUENCE. – In this section, the term ‘‘malign influence’’ with respect to the Chinese Communist Party should be construed to include acts conducted by the Chinese Communist Party or entities acting on its behalf that –
-
-(1) undermine a free and open international order;
-
-(2) advance an alternative, repressive international order that bolsters the Chinese Communist Party’s hegemonic ambitions and is characterized by coercion and dependency;
-
-(3) undermine the national security or sovereignty of the United States or other countries; or
-
-(4) undermine the economic security of the United States or other countries, including by promoting corruption.
-
-(e) COUNTERING MALIGN INFLUENCE. – In this section countering malign influence through the use of funds authorized to be appropriated by subsection (a) shall include efforts to –
-
-(1) promote transparency and accountability, and reduce corruption, including in governance structures targeted by the malign influence of the Chinese Communist Party;
-
-(2) support civil society and independent media to raise awareness of and increase transparency regarding the negative impact of activities related to the Belt and Road Initiative;
-
-(3) counter transnational criminal networks that benefit, or benefit from, the malign influence of the Chinese Communist Party;
-
-(4) encourage economic development structures that help protect against predatory lending schemes, including support for market-based alternatives in key economic sectors, such as digital economy, energy, and infrastructure;
-
-(5) counter activities that provide undue influence to the security forces of the People’s Republic of China;
-
-(6) expose misinformation and disinformation of the Chinese Communist Party’s propaganda, including through programs carried out by the Global Engagement Center; and
-
-(7) counter efforts by the Chinese Communist Party to legitimize or promote authoritarian ideology and governance models.
+[!\[\]()!\[\](https://spark.adobe.com/page/hrOH7qVdhbRQ3/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/hrOH7qVdhbRQ3/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
 0
