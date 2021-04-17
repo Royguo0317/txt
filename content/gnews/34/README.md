@@ -1,18 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共再造大量病毒实验室，毒害全球不停步！
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1109528/)
+## 【热点播报】挪威卫生专家建议禁用阿斯利康疫苗
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1109629/)
 
-美东香草山写作组：大兄dei
+纽约香草山写作组   四季
 
-印度标准时间4月16日晚，印度媒体“经济时报”（The Economic Times）在其网站刊发新闻，标题为“在武汉实验室对新冠病毒起源所扮演的角色尚存疑之际，中国欲造更多的生物实验室”（“China to build more bio labs amidst questions over Wuhan lab’s role in coronavirus origin”）。
+《零对冲》4月16报道，挪威的公共卫生官员决定禁止阿斯利康COVID-19疫苗注射剂，因为它有罕见但有时是致命的脑血栓风险。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-34.png)
+最新的迹象表明，北欧国家正着手封杀阿斯利康疫苗注射剂，因为挪威的主要公共卫生专家已经正式建议他们的政府实施类似的禁令，将阿斯利康疫苗从挪威的冠状病毒疫苗接种计划中删除。
 
-文中援引中国科学技术部副部长相里斌的谈话，指出中国科学技术部已检验并批准建立3个P-4实验室和88个P-3实验室。文中也引用中国科学院院长白春礼在2020年4月份的讲话，提到中国已有两个P-4和81个P-3实验室在运行中或已被批准建设。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-33.png)
-CCP病毒贻害全球，截至美东时间4月16日下午三点全球新增确诊人数为844,796，至此全球总确诊数为140,313,922，死亡病例总数为3,007,650（资料来源：大纪元时报）。邪共之恶，罄竹难书！
+挪威国家公共卫生研究所感染控制主任盖尔·布霍尔姆（Geir Bukholm）指出，这并不是一项容易的建议。在挪威，接种阿斯利康疫苗比Covid-19疾病的相关风险更大。
 
-新闻网址：[https://economictimes.indiatimes.com/news/international/world-news/china-to-build-more-bio-labs-amidst-questions-over-wuhan-labs-role-in-coronavirus-origin/articleshow/82104699.cms](https://economictimes.indiatimes.com/news/international/world-news/china-to-build-more-bio-labs-amidst-questions-over-wuhan-labs-role-in-coronavirus-origin/articleshow/82104699.cms)
+然而，挪威卫生部长本特·霍伊（Bent Hoeie）表示，政府还不会做出决定。如果挪威政府接受这一建议，挪威将成为继丹麦之后第二个停止使用阿斯利康疫苗注射剂作为该国COVID免疫计划一部分的国家。鉴于疫苗接种后发生血栓性事件的风险明显但非常罕见，许多国家已经限制使用该疫苗。
+
+根据最新的世界卫生组织的警告，Covid感染率已经达到迄今为止的最高水平。世卫组织的主要优先事项之一是提高疫苗接种，希望通过 Covid疫苗帮助所有国家结束大流行。然而疫苗灾难频发，对试验性疫苗对人类未来的影响不得而知。不追究病毒来源，想通过试验性疫苗结束中共病毒大流行显然是不现实的，只有灭共，才能结束这场史无前例的病毒大流行。
+
+原文链接：[https://www.zerohedge.com/covid-19/norways-health-experts-recommend-banning-astrazeneca-jab-nordics-get-cold-feet](https://www.zerohedge.com/covid-19/norways-health-experts-recommend-banning-astrazeneca-jab-nordics-get-cold-feet)
 
 审核/发稿：正义的小新
 ![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
