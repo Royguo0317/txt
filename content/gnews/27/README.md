@@ -1,31 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共再造大量病毒实验室，毒害全球不停步！
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1109528/)
+## 约翰·霍普金斯大学：全球染疫死亡人数超300万人
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1109623/)
 
-美东香草山写作组：大兄dei
+俄罗斯莫斯科喀秋莎农场  爱真理
 
-印度标准时间4月16日晚，印度媒体“经济时报”（The Economic Times）在其网站刊发新闻，标题为“在武汉实验室对新冠病毒起源所扮演的角色尚存疑之际，中国欲造更多的生物实验室”（“China to build more bio labs amidst questions over Wuhan lab’s role in coronavirus origin”）。
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/D-7.jpg)abc7.com
+根据约翰·霍普金斯大学的数据，由于确诊病例激增至超过1.4亿，星期六中共病毒造成的全球死亡人数超过300万人。
 
-文中援引中国科学技术部副部长相里斌的谈话，指出中国科学技术部已检验并批准建立3个P-4实验室和88个P-3实验室。文中也引用中国科学院院长白春礼在2020年4月份的讲话，提到中国已有两个P-4和81个P-3实验室在运行中或已被批准建设。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-33.png)
-CCP病毒贻害全球，截至美东时间4月16日下午三点全球新增确诊人数为844,796，至此全球总确诊数为140,313,922，死亡病例总数为3,007,650（资料来源：大纪元时报）。邪共之恶，罄竹难书！
+在人们对强生疫苗产生担忧之后，疫苗分发工作陷入瘫痪之际，出现了一个阴沉的里程碑。
 
-新闻网址：[https://economictimes.indiatimes.com/news/international/world-news/china-to-build-more-bio-labs-amidst-questions-over-wuhan-labs-role-in-coronavirus-origin/articleshow/82104699.cms](https://economictimes.indiatimes.com/news/international/world-news/china-to-build-more-bio-labs-amidst-questions-over-wuhan-labs-role-in-coronavirus-origin/articleshow/82104699.cms)
+世界卫生组织（WHO）中共病毒负责人之一玛丽亚·范·科霍夫（Maria Van Kerkhove）表示：“这不是我们希望在疫情16个月内发生的情况，我们已经证明了有效的控制措施。”
 
-审核/发稿：正义的小新
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-**更多资讯，更多关注**
+疾病控制与预防中心（CDC）周四决定放弃对疫苗工作的指导意见，该委员会建议在有近700万接受者报告6例罕见的严重血凝块后暂停使用强生疫苗。
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+疫苗接种工作已开始大步向前，超过了拜登总统就职后头100天的最初目标1亿剂。截至4月8日，大约有6600万美国人接受了全程疫苗接种-占总人口的20％。
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+福奇（Anthony Fauci）说，他希望CDC会很快宣布有关强生疫苗的新指南，以便继续分发。
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+疫苗接种运动1月份才开始在美国和欧洲开展，当时全世界的死亡人数已超过200万人，但今天有190多个国家正在推进这一过程。
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+该过程同样受到疫苗开发问题的困扰：中共国卫生官员上周宣布，由Sinovac和Sinopharm开发的疫苗“没有很高的保护率”。他们的疫苗已经出口到22个国家，包括墨西哥，土耳其，印度尼西亚和巴西–目前是该流行病的一些热点地区。
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+巴西是世界上受灾最严重的国家，确诊病例约为1380万例，但它已经记录了368,749例死亡，成为全球第二大染疫死亡人数最多国。
+
+原文链接：
+
+[https://www.foxnews.com/health/worldwide-covid-deaths-3-million](https://www.foxnews.com/health/worldwide-covid-deaths-3-million)
 
 0
