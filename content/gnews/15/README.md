@@ -1,8 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 病毒追凶
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/1108922/)
+## 以黄金为储备的加密货币会成为赢家
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1108850/)
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/病毒追凶-1.jpg)
+4/16/2021 约翰.霍普金斯大学的经济学家史蒂夫·汉克教授预测新的由黄金为盾的加密货币将会出现并被作为私营货币。这些加密货币会取代现有的加密货币，现有的币只能被当作投机性的资产，因为其价格波动剧烈和交易成本高昂而不适合作为私营货币。
+
+By： 【秘密翻译组 G-Translators】
+
+
+
 0
