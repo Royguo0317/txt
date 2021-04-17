@@ -1,30 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧洲小国黑山再陷债务外交泥潭 解析中共阴险设局关键
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1108299/)
+## 2021/04/15 章家墩认为新冠病毒来自武汉实验室，是故意释放和传播
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1108465/)
 
-作者：宁缺 | 校对：西川 Stanly | 审核：Beicy-数学老师 | Page: Daoiii
+视频字幕：JohnsonR | 听写/翻译：Roberts | 校对：Cow | 简评/文字整理/编辑：胖丁 | Page：青山
+[!\[\]()!\[\](https://spark.adobe.com/page/hrOH7qVdhbRQ3/images/9bba88da-373a-4858-8747-08b5f02da33c.jpg?asset_id=96187120-ed3b-44d6-8bb2-57979c270c02&amp;img_etag=%22784663bd9762988904c61c81934cedfb%22&amp;size=1024)](https://spark.adobe.com/page/hrOH7qVdhbRQ3/images/9bba88da-373a-4858-8747-08b5f02da33c.jpg?asset_id=96187120-ed3b-44d6-8bb2-57979c270c02&amp;img_etag=%22784663bd9762988904c61c81934cedfb%22&amp;size=1024)
+**简评：**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/FO5QswXSAnlgW/images/969e5ec6-e26c-488f-8d22-71138d0615f0.jpg?asset_id=efc1914f-2c7c-4851-aa7e-a25b4dc39d1b&amp;img_etag=%22fca1f3f6d1c706c8ae8e2a2aa0edd601%22&amp;size=1024)](https://spark.adobe.com/page/FO5QswXSAnlgW/images/969e5ec6-e26c-488f-8d22-71138d0615f0.jpg?asset_id=efc1914f-2c7c-4851-aa7e-a25b4dc39d1b&amp;img_etag=%22fca1f3f6d1c706c8ae8e2a2aa0edd601%22&amp;size=1024)
+武汉病毒实验室有1500种冠状病毒毒株，第一例新冠病毒就发生在距离实验室几英里之外。病毒爆发后至少5个星期，习近平对全世界撒谎，否认病毒人传人。他施压给其他国家不要实行旅行禁令，不要隔离来自中共国的游客。同时，他封锁了中共国，任由病毒在中共国境外传播。
 
-#### 欧洲联盟委员会周一（4月12日）表示，欧盟无法帮助希望成为欧盟成员国的黑山偿还其积欠中共国的债务，但可以帮助它完成一项开始时用北京的巨额贷款建造的高速公路的计划。
+**视频字幕：**
 
-这个巴尔干小国今年开始,将艰难地偿还中共国提供的10亿欧元贷款。2014年，黑山从中共国获得这笔贷款，来建造巴尔-博尔加里高速公路的一期工程。此高速公路工程完成后将把亚得里亚海沿岸的巴尔港和内陆邻国塞尔维亚连接起来。
 
-*新闻链接：[欧盟：无法帮助黑山偿还其中国债务 但可提供融资完成修路](https://www.voachinese.com/a/EU-Montenegro-china-belt-and-road-initiative-debt-diplomacy-20210412/5850239.html)*
 
-***评论：***
+[GTV视频链接](https://gtv.org/video/id=6079af028616c84f0ff0070c)
 
-中共国的陷阱式债务外交再次暴露出狰狞的本来面目，就如同股神巴菲特的名言，当潮水退去的时候，你才会发现谁在裸泳。当中共病毒肆虐全球，重创经济的时候，背上中共债务的国家才会体会被魔鬼敲骨吸髓的痛苦。黑山如此火急火燎地请求欧盟的经济援助，想必是已经发现了中共当年暗藏的套路。
+麦克：你认为新冠病毒起源于武汉实验室，而不是海鲜市场吗？
 
-天下没有免费的午餐，在功于算计、没有信仰的中共面前，免费二字且不必妄想，贪小利而丧权辱国的可能性倒是很大。中共推行一带一路的套路就是用表面光鲜的糖衣炮弹，伪装暗藏的债务陷阱。先是通过蓝金黄所在国腐败官员，帮助其游说贷款合同，暗地里将潜藏的政治经济图谋加入违约条款。装上满满饵料的致命诱惑，让所在国政府稀里糊涂就咬钩上当。
+章家墩：是的，我是这么认为的。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/FO5QswXSAnlgW/images/e184fadb-ba98-4ebc-ac98-8b91d97fbb0a.png?asset_id=2aab522a-38a5-4f1c-840d-8ebc85a2aa49&amp;img_etag=%22d77a00a10a0037e3410f9614ba732bf4%22&amp;size=2560)](https://spark.adobe.com/page/FO5QswXSAnlgW/images/e184fadb-ba98-4ebc-ac98-8b91d97fbb0a.png?asset_id=2aab522a-38a5-4f1c-840d-8ebc85a2aa49&amp;img_etag=%22d77a00a10a0037e3410f9614ba732bf4%22&amp;size=1024)
+你知道，我现在还不清楚，但是许多迹象表明病毒来自那个实验室。
 
-中共深知世界经济是存在周期性波动的，经济繁荣期拟定的贷款合同会让签约国觉得偿还压力并不是很大，实际上暗藏了致命的风险；一旦经济步入下降衰退周期，偿还贷款就变得遥不可及。作为整个骗术最重要的一环，中共释放了病毒，随后世界经济崩溃，中共完成了陷阱式债务外交的最后收尾，巴尔干小国黑山马上发现国家主要收入来源遭遇重创。
+要知道，他们拥有1500种冠状病毒毒株。他们进行了危险的功能性增强实验。
 
-对外借款是一个主权国家的自由，欧盟确实没有义务帮助黑山还款。但是为了避免中共卡住黑山脖子，以借款违约之名，行政治经济敲诈之实，欧盟应该力所能及的帮助黑山摆脱中共的讹诈，这样才能展现一个地区性组织的能力与威信。
+他们没有遵守安全操作规范，而且第一例新冠病例就发生在实验室几英里之外。
+
+麦克：病毒来自实验室已经够可怕了，如果他们是故意释放到全世界来测试病毒对世界经济的杀伤力，那就更可怕了。
+
+章家墩：是的。我认为病毒逃出实验室是一个意外，但是是故意从中共国边境释放到全世界（造成大瘟疫的）。
+
+当习近平看到病毒瘫痪了整个中共国后，至少在5个星期内他对疾病的传染性撒谎。
+
+在中共国每个人都知道病毒人传人的情况下，习还说病毒没有传染性。 然后他给其他国家施压不要实行旅行禁令，不要对中共国来的游客隔离。 然而与此同时他封锁了自己的国家。
+
+这就是说，他认为封锁是有效的，这也证明了他强迫那些国家接受中共国旅行者（的行为）就是传播疾病。
+
+所以，这是在中共国境外恶意传播疾病。
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -32,9 +44,7 @@
 
 
 编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/FO5QswXSAnlgW/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/FO5QswXSAnlgW/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
+[!\[\]()!\[\](https://spark.adobe.com/page/hrOH7qVdhbRQ3/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/hrOH7qVdhbRQ3/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
 
-0
++1
