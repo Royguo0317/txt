@@ -1,60 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/04/07 班农专访（6）：美、日、韩三国安全顾问会谈，期待采取行动
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1108408/)
+## 2021/04/07 班农专访（8）：美国供应链遭到威胁
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1108456/)
 
-视频字幕：雨中漫步 | 听写/翻译：Wade | 校对：Roberts | 简评/文字整理/编辑：胖丁 | Page：青山
+视频字幕：JonsonR | 听写/翻译：Wade | 校对：势不可挡 | 简评/文字整理/编辑：胖丁 | Page：青山
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NDCFHHlaX8Rpt/images/fe07dd73-099e-4c44-9347-508c4eb3f5ee.jpg?asset_id=f1b98fe3-4708-409f-8289-8a25fc995f6b&amp;img_etag=%22c1a2ca77e85c66ad8abd68c7dbdeae95%22&amp;size=1024)](https://spark.adobe.com/page/NDCFHHlaX8Rpt/images/fe07dd73-099e-4c44-9347-508c4eb3f5ee.jpg?asset_id=f1b98fe3-4708-409f-8289-8a25fc995f6b&amp;img_etag=%22c1a2ca77e85c66ad8abd68c7dbdeae95%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/EwS3Fhx3YhpaV/images/4718a3c5-0ee8-4276-9267-73e45c5e3ae6.jpg?asset_id=003bc6e5-a7e2-49d5-bfa6-a2ce2108af03&amp;img_etag=%2233b643107a7e4d4e5f016612c1939f4d%22&amp;size=1024)](https://spark.adobe.com/page/EwS3Fhx3YhpaV/images/4718a3c5-0ee8-4276-9267-73e45c5e3ae6.jpg?asset_id=003bc6e5-a7e2-49d5-bfa6-a2ce2108af03&amp;img_etag=%2233b643107a7e4d4e5f016612c1939f4d%22&amp;size=1024)图片来源：美国国务院 D. Thompson
 
 **简评：**
 
-美、日、韩三国安全顾问在海军学院会谈。拜登政府对待中共非常软弱，没有采取行动追查武汉P4病毒实验室，也声称从来没有考虑过拒绝2022北京冬奥会，完全无视中共在新疆对人权的践踏，对中共国人民、各宗教信徒，和对香港的残害。美国需要采取行动！
+CCP病毒爆发后，中共对湖北和武汉实施了长达一个月至六周的封锁，切断了所有的地面交通，导致全球供应链遭到严重打击，尤其是医疗设备的供应链。拜登政府只是签了一份总统令，而不采取任何行动。拜登政府把一部分供应链转移到了东南亚其他国家，但这远远不够，中共会因此更加欺榨中国老百姓来获得经济利益。
 
 **视频字幕：**
 
 
 
-[GTV视频链接](https://gtv.org/video/id=6078568708b2ab70c821f2b3)
+[GTV视频链接](https://gtv.org/video/id=6071b078dbc8001854a7470c)
 
-Mike: 美国国家安全顾问沙利文与日韩国家安全顾问在美国安纳波利斯的海军学院进行了会谈，你对此有何看法？
+Daniel: 福克斯最近报道了国家反情报和安全中心警告美国企业, 海外敌对力量威胁美国供应链。
 
-Bannon：看起来不错。
+Bannon: 供应链是个非常重大的问题，我们在去年2-4月的战斗室上就反复强调过。
 
-我觉得他们能在海军学院进行会谈是不错的，如果有实质行动就更好了。
+中共对湖北和武汉实施了长达一个月至六周的封锁，切断了所有的地面交通。
 
-中共非常在乎有象征意义的信号。
+全球供应链遭受了严重打击，尤其是医疗设备供应链。
 
-他们在阿拉斯加羞辱了美国，布林肯照本宣科的两分钟开场白遭到了杨洁篪长达20分钟的凌辱。
+但是拜登政府仍然在打口炮，他签了一份总统令要对这个问题进行研究。
 
-所以华盛顿非常清楚，美国必须找回面子。
+他们根本不用再研究，只需要行动。
 
-沙利文这些人所谓的要追究中共的责任，要对武汉进行追查。
+所以西方尤其是美国的态度非常软弱，光说不练，没有实际行动。
 
-要调查P4实验室。所有这些都是口炮，没有任何行动。我没看到任何重大行动。
+如果我是中共，我肯定笑话美国。
 
-具体来説，前几天国务院发言人说美国正与盟国探讨是否拒绝参加北京2022冬奥会。
+拜登政府会说他们已经把一部分供应链转移到了东南亚其他国家。
 
-北京立刻发飙，对这些国家的大使发飙。
+但我觉得这样远远不够。
 
-昨晚拜登政府出来圆场，说之前国务院的声明完全是误会，美国从来没有考虑拒绝参加北京冬奥会。
+中共会因此继续更惨无人道地压榨中国工人。
 
-彻底反转了话锋。
+中共所有的一切最终都由辛勤劳动的中国百姓买单，一直都是这样。
 
-沙利文在海军学院依旧是空谈，我们需要行动。
-
-尤其是当前中共对人权的破坏，不止是对新疆，还包括对中国人民，基督徒，藏传佛教，法轮功，天主教，还有对其他宗教的压迫，对香港和中国人民的压迫。
-
-美国棒球联盟正在退出乔治亚，因为乔治亚州要求选民在投票时出示带有照片的证件。
-
-买啤酒要证件，买票要证件，坐飞机要证件。
-
-中国老百姓什么时候才能拿着证件参与自由选举呢？
-
-我很高兴他们在海军学院进行了会谈。
-
-这有一定的象征意义，但拜登政府在2022冬奥会的问题上，像婴儿一样对中共叩头，这令人作呕。
+美国老百姓的境遇已经够糟了，但无法与中国百姓遭受中共的欺辱相比。
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -63,7 +51,7 @@ Bannon：看起来不错。
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NDCFHHlaX8Rpt/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/NDCFHHlaX8Rpt/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/EwS3Fhx3YhpaV/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/EwS3Fhx3YhpaV/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
 
 
