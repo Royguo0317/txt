@@ -1,44 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国图谋数字货币重创美元 美联储表面依然佯装淡定
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1108291/)
+## 2021/04/07 班农专访(5)：拜登政府重启与伊朗的核谈判
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1108397/)
 
-作者：宁缺|校对：西川 Stanly|审核：Beicy-数学老师|Page：小雨
+视频字幕：JohnsonR | 听写/翻译：Roberts | 校对： | 简评/文字整理/编辑：胖丁 | Page：青山
 
-[!\[\]()!\[\](https://spark.adobe.com/page/S4qBNpYKTHzbL/images/84c7fd68-a23d-4336-9cbd-796ffd90f0cc.jpg?asset_id=9fa6c333-90ad-46bd-bf23-48c0aa3617c8&amp;img_etag=%2200c404b0c00b654fe75c195baa3740ce%22&amp;size=2560)](https://spark.adobe.com/page/S4qBNpYKTHzbL/images/84c7fd68-a23d-4336-9cbd-796ffd90f0cc.jpg?asset_id=9fa6c333-90ad-46bd-bf23-48c0aa3617c8&amp;img_etag=%2200c404b0c00b654fe75c195baa3740ce%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/l0pwc4qD3THua/images/99bfa62d-3730-4c2f-876e-3dcdae95605e.jpg?asset_id=ba883c3c-7e44-40a2-957d-f483f722a203&amp;img_etag=%22b0505b45e720bd5e1ac30daee27639f4%22&amp;size=1024)](https://spark.adobe.com/page/l0pwc4qD3THua/images/99bfa62d-3730-4c2f-876e-3dcdae95605e.jpg?asset_id=ba883c3c-7e44-40a2-957d-f483f722a203&amp;img_etag=%22b0505b45e720bd5e1ac30daee27639f4%22&amp;size=1024)
 
-**新闻要点：**
+**简评：**
 
-在中共国启动数字人民币试点一周年之际，北京当局决定再次扩展试点范围。尽管中共国借助数字货币推动人民币国际化的野心愈加明显，但经济专家认为，任何形式的人民币都无法撼动美元的国际地位。
+拜登政府重启与伊朗的核谈判，这是美国的软弱。因为香港问题，美国对中共有一些制裁，对伊朗是彻底制裁。美国应该打破中共和伊朗之间的交易，给予双重制裁。伊朗是中共的马仔，是中共在中东、所有海湾酋长国和波斯湾沿海石油国家的代理，是对以色列和任何真正民主国家的生存威胁。
 
-中共国是最早进行数字货币研究的国家之一。中共国央行从2014年正式启动对数字人民币的研究，2020年4月启动了数字人民币在四个城市的试点，最近将试点范围扩大到北京和上海等更多城市，推动在零售、批发和跨境支付等领域的使用。
+**视频字幕：**
 
-[新闻链接：中国力推数字人民币以撼动美元 但美联储仍然淡定](https://www.voachinese.com/a/china-digital-currency-economy-20210409/5847565.html)
 
-[![](https://spark.adobe.com/page/S4qBNpYKTHzbL/images/ae06b51c-3366-4ec0-a129-1972859134a8?asset_id=5f966371-7cfb-416e-9208-f905de484f8e&amp;img_etag=%223c92e44e469d980f2376cb7acfbf1b15%22&amp;size=1024)](https://spark.adobe.com/page/S4qBNpYKTHzbL/images/ae06b51c-3366-4ec0-a129-1972859134a8?asset_id=5f966371-7cfb-416e-9208-f905de484f8e&amp;img_etag=%223c92e44e469d980f2376cb7acfbf1b15%22&amp;size=1024)
 
-**评论:**
+[GTV视频链接](https://gtv.org/video/id=607143e9dbc8001854a729ce)
 
-中共国与美国在政治、军事、经济、科技等各方面的实力差距是毋庸置疑的，但是美联储和学者就据此认为，包括美联储在内的美国权力机构可以高枕无忧，就很傻很天真了。中共国自古以来就是政军谋略强国，特别面对中共这一毫无底线和信仰的邪恶组织，美国需要十分谨慎地正视中共的威胁和挑战。超限战就是面对中美悬殊实力差距，正规作战硬碰硬没有胜算的情况下，产生的不对称应对策略。很显然，这次的中共病毒已经让全世界认识到这种策略的威力。
+美国和伊朗本周将间接进行核谈判。你对此次谈判的目的和预期的结果有何看法？
 
-以美元霸权为核心的美国经济实力强大不假，但是美国背负的世界各种责任和负担同样重如泰山。单独对付中共国不难，但是在兼顾世界范围实力的情况下就没那么简单了。中共近年来就是凭借美国鞭长莫及的势力局限，在世界范围内不遗余力地推动一带一路、并购油田矿产、研究电子货币，所有动作的核心目标正是挑战美元的统治地位。
+非常糟糕，我们应该做的不是谈判，而是恰恰相反。
 
-为什么华尔街对中美经济全面脱钩迟迟下不了决心，就是因为美元目前的强势国际地位，很大程度上依赖于中共国经济的加盟。抛开其他因素不谈，占世界经济总量已尽20%，控制14亿人口的中共国与美国脱钩，弃用美元交易，将会重创美元的国际地位。
+由于香港问题，我们对中共国有一些制裁，对伊朗我们是彻底制裁。
 
-中共国如果被踢出SWIF结算系统，最大的隐患在于无法使用美元购买经济发展所必须的石油等大宗能源商品。但是最近中共与伊朗签订了25年的长期能源合作协议，补齐了最大的短板。这也充分说明中共已经提前做好了与美国全面脱钩的准备。美联储将来是否真的淡定还不清楚，但是美元即将衰退，作为国际货币的权利地位一落千丈已经是板上钉钉的事情。
+我认为针对中共国和伊朗之间的交易，我们应该给予双重制裁。应该打破他们的交易。
 
-**文章仅代表个人观点**
+我们应该制裁他们，尤其是我们不应该谈判。拜登政府重启与伊朗的谈判是一个严重的错误。
 
-编辑：【英国伦敦喜庄园编辑部】
+他们之所以这么做是因为这是奥巴马政府的一个标志，约翰·克里、希拉里·克林顿、奥巴马还有拜登（早就想这么做）
+
+这是他们巨大的胜利。所以他们这样做。
+
+我认为这是一个巨大的战略错误，尤其是在该地区。无论是在也门还是在以色列周围，一直到黎巴嫩，这些真主党代理的恐怖组织和为他们提供武器的代理军队造成了所有的破坏，我们从来没有从伊朗那里得到任何让步。
+
+现在那些武器很多都是中共国武器。他们与中共军方和共产党建立了合作关系。
+
+准确说，他们是一伙的。伊朗是中共的马仔，是中共在中东、所有海湾酋长国和波斯湾沿海石油国家的代理。
+
+他们是对以色列生存的威胁。这不是班农和《战斗室》这么说，他们自己吹嘘是对以色列和任何真正民主国家的生存威胁。
+
+所以不应该重启对话。如果重启的话，好像是说两个相互制裁的国家可以合作，不执行任何真正的制裁，没有让欧洲的银行强制执行制裁。
+
+这个太过分了，而且表现出软弱。
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
 - [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
-[!\[\]()!\[\](https://spark.adobe.com/page/S4qBNpYKTHzbL/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/S4qBNpYKTHzbL/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/l0pwc4qD3THua/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/l0pwc4qD3THua/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
 
 
-+1
+0
