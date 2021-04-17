@@ -1,20 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共再造大量病毒实验室，毒害全球不停步！
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1109528/)
+## 【热点播报】日本首相访美，两国领袖誓言坚定联手抗中，历史意义重大
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1109580/)
 
-美东香草山写作组：大兄dei
+纽约香草山健身部 Jack Li文阳
 
-印度标准时间4月16日晚，印度媒体“经济时报”（The Economic Times）在其网站刊发新闻，标题为“在武汉实验室对新冠病毒起源所扮演的角色尚存疑之际，中国欲造更多的生物实验室”（“China to build more bio labs amidst questions over Wuhan lab’s role in coronavirus origin”）。
+据法国国际广播电台4月17日报道，美国总统拜登昨日在华府，与到访的日本首相菅义伟举行峰会。两国领袖誓言坚定联手抗中、加速因应气候变迁及5G网络方面合作。此外会后的声明中，还写入了对香港等的人权状况共同严重关切，美日首脑还确认将在中共新冠疫情上加强合作。
 
-文中援引中国科学技术部副部长相里斌的谈话，指出中国科学技术部已检验并批准建立3个P-4实验室和88个P-3实验室。文中也引用中国科学院院长白春礼在2020年4月份的讲话，提到中国已有两个P-4和81个P-3实验室在运行中或已被批准建设。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-33.png)
-CCP病毒贻害全球，截至美东时间4月16日下午三点全球新增确诊人数为844,796，至此全球总确诊数为140,313,922，死亡病例总数为3,007,650（资料来源：大纪元时报）。邪共之恶，罄竹难书！
+拜登在这场领袖峰会上告诉菅义伟，日本享有美国在安全和其他议题上「钢铁般的支持」，体现了美国视日本为最重要的坚定盟友，承诺将给予最坚强的支持。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screen-Shot-2021-04-16-at-23.10.43.png)图片来源：https://www.washingtonpost.com/politics/2021/04/16/joe-biden-live-updates/
+双方在联合声明里，对中共国日益升温的霸权主义、新疆与香港人权问题、台海紧张形势等提出严正关切。声明重申美日安保条约，美国承诺协防钓鱼岛。声明指出，美日认同两国联手合作震慑中共的重要性，以维护区域内的和平与稳定，两国共同反对任何企图用武力改变东海现状的举动。
 
-新闻网址：[https://economictimes.indiatimes.com/news/international/world-news/china-to-build-more-bio-labs-amidst-questions-over-wuhan-labs-role-in-coronavirus-origin/articleshow/82104699.cms](https://economictimes.indiatimes.com/news/international/world-news/china-to-build-more-bio-labs-amidst-questions-over-wuhan-labs-role-in-coronavirus-origin/articleshow/82104699.cms)
+在声明中的台湾议题上，美日双方表达对中共国侵略台湾的忧虑日益加深，中共国在台湾海峡越来越多的军事活动令人担忧。日本将被美国在军事上松绑，成为一个正常国家，在西太平洋和印太地区发挥重要的国际责任。美日两国将会协防台湾，以应对中共的一切武力行为。
 
-审核/发稿：正义的小新
+双方会谈还提到，美日两国分别承诺拨款25亿美元和20亿美元，加速发展5G网络和日后的6G技术。美国前总统川普执政期间向各国施压，要求他们放弃使用中共国华为5G设备。拜登政府继续在5G领域保持攻势，压制中共与华为。
+
+日本首相被选为拜登就任后首位访问白宫的外国领导人，凸显拜登政府应对中共国威胁，优先选择日本为最坚强的盟友以组成统一战线，以应对中共在地缘政治上的挑战。美国不惜取消二战后对日本在军事上的枷锁，表明美国的沼泽地已经清楚意识到中共穷兵黩武，企图称霸世界的野心。与西方有共同价值观的日本，一旦恢复成正常国家，必然给日本带来新一次的腾飞，日本就足以担负起美国在东亚的代表身份，震慑中共霸权。
+
+参考阅读：[https://www.rfi.fr/cn/%E6%8B%9C%E7%99%BB%E8%8F%85%E4%B9%89%E4%BC%9F%E5%B3%B0%E4%BC%9A-%E7%BE%8E%E6%97%A5%E6%91%86%E5%87%BA%E6%8A%97%E4%B8%AD%E9%98%B5%E7%BA%BF](https://www.rfi.fr/cn/%E6%8B%9C%E7%99%BB%E8%8F%85%E4%B9%89%E4%BC%9F%E5%B3%B0%E4%BC%9A-%E7%BE%8E%E6%97%A5%E6%91%86%E5%87%BA%E6%8A%97%E4%B8%AD%E9%98%B5%E7%BA%BF)
+
+编辑/审核/发稿：正义的小新
 ![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 **更多资讯，更多关注**
 

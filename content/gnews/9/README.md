@@ -1,63 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疫苗外交：只谈政治，无关生死
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1110341/)
+## 多地警察拒安省省长以防疫为名行当街截查之违宪政令
+` 五餅二魚 加拿大多倫多楓葉農場` [轉載自GNews](https://gnews.org/zh-hans/1110344/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+随着加拿大人口最多省份——安省的中共病毒疫情进入第三波，安省省长道格·福特（Doug Ford）以控制疫情为由宣布自4月8日起进行封城，本周五（4月17日）更进一步，宣布警方将有权拦截街上或车里的任何人以询问其出行目的及住址，违规将被罚款$750。目前为止，安省至少有18个警察局、许多警察部门和代表其官员协会已拒绝执行这一新政令，直言这像是警察国家的恶政。
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/r-17.jpg)newshables.com
-据渥太华专家说，中共国和俄罗斯通过向身处绝境的国家提供疫苗的方法来提高自身的国际软实力，目的是深度影响上述国家的政治生态环境。
+多伦多机场所在的皮尔区警察协会主席阿德里安·伍利（Adrian Woolley）表示，无论如何，他的下属都不会参与任何超出宪法规定有权做的事。他发推文表示，”省长福特呼吁的这些新措施与《加拿大权利与自由宪章》直接冲突”，”当政客指示执行这些措施时，是将所有活跃的前线警员置于岌岌可危的境地。”，他在接受《多伦多太阳报》采访时表示，这将“使警察成为坏人”。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1065.png)詹姆斯·拉默（James Ramer） 图片来源：CBC
+多伦多警察局长詹姆斯·拉默（James Ramer）表示该局将继续参与教育和执法，但不会随意拦截人员或车辆。拒绝执行该随意截查令的还有安省渥太华、滑铁卢、圭尔夫以及伦敦等市的警察局。
 
-简单地说，疫苗外交就是，支持专制国家的政治立场，就像该国提供疫苗；否则，不论该国因疫情失去多少生命，也不会对其提供“人道主义”援助。
+今天，在多伦多皇后公园，抗议者举行反封锁集会时，警察都袖手旁观，并没有像省长宣布的那样进行盘问和逮捕。
 
-华盛顿威尔逊中心拉丁美洲项目副主任本杰明·盖丹（Benjamin Gedan）称这种做法为 “疫苗外交”。他指出，当某国向需要疫苗的国家提供事关生死的药品以达到提高国际声望的目的时，就会出现这种情况。
 
-过去的几个月，中共国和俄罗斯等极权专制政府率先开展了“疫苗外交”。
 
-“眼看世界上最大的独裁国家利用疫情拓展外交，却束手无策，确实令人沮丧，” 盖丹说。
+> LIVE in Toronto: A day after Doug Ford announced increased police authority to enforce the provincial stay-at-home order, Toronto police are not ticketing or arresting anti-lockdown protestors. [pic.twitter.com/CmkaRljr4N](https://t.co/CmkaRljr4N)
+> — The Post Millennial (@TPostMillennial) [April 17, 2021](https://twitter.com/TPostMillennial/status/1383468298520588291?ref_src=twsrc%5Etfw)
 
-中共国国药集团股份有限公司（Sinopharm）正量产两种 中共病毒疫苗，而总部位于北京的科兴生物（Sinovac）正量产第三种疫苗。
 
-盖丹说，尽管中共国向拉美地区提供了 10 亿美元贷款，但拒绝向承认台湾的巴拉圭提供疫苗。
 
-“有关巴拉圭外长的报道称，中共政府代理人明确表示，除非巴拉圭改变其台湾的立场，否则不会获得中共国生产的疫苗。”他说。
+虽然加拿大被中共渗透严重，但这里的警察还不太像中共国内的黑警，领导拍脑袋、拍大腿的政策不仅不变本加厉地执行，竟敢说“不”。加拿大公民自由协会执行董事迈克尔·布莱恩特（Michael Bryant）一语中的：” 警察在中共病毒疫情期间假定那些在户外或开车的人有罪、随意拦截是违宪的。“
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/EzIJBg9VEAU9MCz.jpg)《加拿大权利与自由宪章》
+也是，在加拿大生活久了，会渐渐感受到当地人按章办事的习惯。这次，许多警察拒绝执行省长颁布的违宪政令很好地诠释了加拿大人的行事风格——遵守宪法、尊重人性。虽然，与中共勾兑的政客们还在按大重置计划一步步推进，加拿大以后也可能会变成极左极左的“斯坦”国或“瑞拉”国，但还是有些人在维护宪法、遵守着心中的底线。中共国的执法者们，虽然无法像加拿大警察那样直言不讳，但希望你们在关键时刻，能将枪口抬高一寸，站到正义这一边，不要随盗国贼一起堕入地狱。
 
-有报道称，遭受全球最严重的疫情之一的巴西，如果不允许华为进入其 5G 无线网络，就无法获得中共国疫苗。
+*新闻来源：*
 
-多伦多大学(University Of Toronto)政治学副教授丽妮特·昂格（Lynette Ong）表示，中共国几乎向所有东南亚国家捐赠或出售了疫苗。“通常带有某种附加条件，”她说，“中共国肯定在进行相当积极的疫苗外交。”
+[COVID-19: Ontario’s temporary increased police powers raise concerns about random stops, carding](Ontario’s%20temporary%20increased%20police%20powers%20raise%20concerns%20about%20random%20stops,%20carding)
 
-昂格说，中共国的疫苗外交并不像去年的个人防护装备外交那样有效。
+[Ontario gives police authority to stop people, vehicles, ask purpose of travel](https://toronto.ctvnews.ca/ontario-gives-police-authority-to-stop-people-vehicles-ask-purpose-of-travel-1.5390805)
 
-她说，去年中共国是唯一有能力进行个人防护装备量产国家，而现在疫苗生产方面中共国正在与许多其他国家竞争。
+[Ontario extends stay-at-home order, restricts interprovincial travel as province loses battle against COVID-19](https://toronto.ctvnews.ca/ontario-extends-stay-at-home-order-restricts-interprovincial-travel-as-province-loses-battle-against-covid-19-1.5390016)
 
-“中共国并不是第一个生产和制造该疫苗的（国家）。”她说。
+[WARMINGTON: Ontario police chiefs say ‘no thanks’ to Ford’s new COVID random stop law](Ontario%20police%20chiefs%20say%20'no%20thanks'%20to%20Ford's%20new%20COVID%20random%20stop%20law)
 
-昂格说，为提升在拉美、非洲和东南亚的影响力，中共国投入了很多精力和财力，但也遭到很多冷遇和拒绝。
+*参考链接：*
 
-多伦多大学俄罗斯外交政策教授奥雷尔·布劳恩（Aurel Braun）说，俄罗斯一直在推行议程中将“疫苗外交”作为其外交政策的重要内容，甚至比中共国更重视。
+[各国大重置计划表完全一致 加拿大正按此第二轮封城中](https://gnews.org/zh-hans/672917/)-GNews
 
-“中共国比俄罗斯更富裕、经济规模更大。中共能够许诺各种经济利益，而疫苗则是其众多选择之一。”他说。
-
-“对俄罗斯来说，卫星五号疫苗（Sputnik V）是非常重要的。欧洲某些地区或领导人对普京的政策更认同。例如，斯洛伐克和匈牙利的奥班·维克多（ Viktor Orban ）。”
-
-多伦多大学药学和公共卫生教授克莱尔·寇恩（Jillian Kohler）表示，中共国和俄罗斯在疫苗供不应求中看到了机会，他们试图利用疫苗推进政治影响力。
-
-“各国因为陷入疫情的泥潭，求助俄罗斯和中共国。所以当处于弱势地位时，可能意味着在某些时候，你将不得不做出某些妥协。”
-
-华盛顿威尔逊中心专家盖丹表示，美国可能很快就会向全球提供疫苗，此举就会导致中共国和俄罗斯向其他国家提供的疫苗供应量减少。
-
-“我认为我们正在迅速接近美国能够在全球疫苗接种活动中发挥重要作用的时刻。”他说。
-
-美国国务卿布林肯（Antony Blinken）近日任命曾在前总统奥巴马时期领导美国国际开发署的盖尔·史密斯（Gayle Smith）担任美国全球中共病毒反应协调员，以达成全球范围内接种疫苗的目标。
-
-盖丹说，美国已经有所行动，例如承诺向世界卫生组织的 COVAX 项目提供 40 亿美元资助，向墨西哥和加拿大提供牛津-阿斯利康（Oxford-AstraZeneca）公司生产的疫苗。随着美国开始放宽强生、辉瑞和摩德纳公司疫苗的出口限制，华府的实际行动变得尤为重要。
-
-他说，美国计划通过 COVAX 项目分派大部分疫苗，这意味着盟友和敌对国都能获得疫苗。华府计划从公共卫生需求的角度，而不是从外交政策角度来分发疫苗。大多数国家不仅缺乏生产疫苗的能力，而且缺乏从生产疫苗的公司。当所在地区没有生产疫苗能力的时候，只能暂停或延期疫苗接种，例如加拿大已经放缓接种疫苗的步伐。现在，加拿大通过协调已经能采购到足量疫苗。“如果采购的疫苗超量，加拿大后期很可能会把超量的那部分疫苗拿来出口。”
-
-参考链接：
-
-[1] [China, Russia using their COVID-19 vaccines to gain political influence – tricitynews – 2021/04/17](https://www.tricitynews.com/national-news/china-russia-using-their-covid-19-vaccines-to-gain-political-influence-3641468)
+[加拿大权利与自由宪章](https://zh.wikipedia.org/wiki/%E5%8A%A0%E6%8B%BF%E5%A4%A7%E6%AC%8A%E5%88%A9%E8%88%87%E8%87%AA%E7%94%B1%E6%86%B2%E7%AB%A0)-Wikipedia
 
 0
