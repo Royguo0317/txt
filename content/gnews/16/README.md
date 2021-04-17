@@ -1,31 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共再造大量病毒实验室，毒害全球不停步！
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1109528/)
+## 郭先生0415XIV我们完全可以杀敌于万里之外而不流血不牺牲
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1109635/)
 
-美东香草山写作组：大兄dei
+编辑整理：
 
-印度标准时间4月16日晚，印度媒体“经济时报”（The Economic Times）在其网站刊发新闻，标题为“在武汉实验室对新冠病毒起源所扮演的角色尚存疑之际，中国欲造更多的生物实验室”（“China to build more bio labs amidst questions over Wuhan lab’s role in coronavirus origin”）。
+巴塞罗那喜悦农场：笑笑；华盛顿DC农场：YIMING（文鸣）；日本东京方舟农场：山川异域
+![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-71.jpg)
+郭文贵先生在2021年4月15日的直播中谈到了班农先生是甘冒天下之大忌干了三件事的第一个白人；谈到了骂不还口打不还手是对恶的纵容就要除恶务尽；谈到了马云进进出出几万亿且死人，杨雄后边还有人要死等内容，本系列将根据郭先生直播中涉及的不同侧重点逐一上传，以下为本系列第十四部分——我们完全可以杀敌于万里之外而不流血不牺牲
 
-文中援引中国科学技术部副部长相里斌的谈话，指出中国科学技术部已检验并批准建立3个P-4实验室和88个P-3实验室。文中也引用中国科学院院长白春礼在2020年4月份的讲话，提到中国已有两个P-4和81个P-3实验室在运行中或已被批准建设。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-33.png)
-CCP病毒贻害全球，截至美东时间4月16日下午三点全球新增确诊人数为844,796，至此全球总确诊数为140,313,922，死亡病例总数为3,007,650（资料来源：大纪元时报）。邪共之恶，罄竹难书！
+据[2021年4月15日 文贵直播：以毒灭共正在全面进行；马云的进进出出；江家势力杨雄之死绝非正常；中共如同二战时的日本；七哥已经准备好方案，保证所有G-TV美国投资人的核心利益](https://gtv.org/video/id=60783bf8400d9941d0110a93)时间点2：22：17——
 
-新闻网址：[https://economictimes.indiatimes.com/news/international/world-news/china-to-build-more-bio-labs-amidst-questions-over-wuhan-labs-role-in-coronavirus-origin/articleshow/82104699.cms](https://economictimes.indiatimes.com/news/international/world-news/china-to-build-more-bio-labs-amidst-questions-over-wuhan-labs-role-in-coronavirus-origin/articleshow/82104699.cms)
+好，大家都没啥问题了，今天就，咱就，咱们这个荷兰郁金香，我看他们做那个节目啊，会西方的叫什么金牛座、水平座，星座搞得很好，大家可以多去看一看，多去看看，真的不错，最近我们的小福利、小Sarah啊，还有我们的飞飞DC的飞飞，还有大牛，还有我们的台湾巴黎，这些节目都做得非常好，还有我们的德云社，讲的中国的道德，真的是非常，不是中国的德云社，咱们的德云社啊，咱们的德社哈，这真的讲得太好了太好了。
 
-审核/发稿：正义的小新
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-**更多资讯，更多关注**
+另外一个咱们各农场的真的是，G-News要尽快地要做出更多更全面更真实更有利灭共的文章，G-TV上希望有更多战友的参加有意义的、有质量的这样的直播，你看看老江，江财神最近几个访谈在国内影响特别大，这就是江财神，就他这个人跟你，江财神跟你一较真儿，就讲那个事儿讲出来，你看他那个法治节目还有经济节目讲得几个，国内影响特别大，哪个节目好不好我这儿最有敏感，因为国内的战友给我反映出来就最清楚。还有头两天路德先生做的那个节目，那天晚上做得那个节目，在国内反应特别大、非常非常好，就是关于美国的几个行动，包括这几个以毒灭共的这几个行动，就是马上就不一样。
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+那么另外一个就是我们现在波士顿、休斯顿还有我们的Q May，还有我是音雄，我是音雄这节目在国内现在已经耳熟能详太有影响了。**战友一定要记住，这种行为、这种行动是灭共最高的智慧，我们用最小的成本、最快乐的方式、最安全的方式杀敌于万里之外，这才是真正的高！社交媒体给我们提供了这种可能性。**
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+过去没有这种社交媒体的时候你做不到的，一定是流血、冲突、牺牲，才能达到革命的目的，**由于有了科技、由于有了社交媒体、由于有了现代交通工具，我们完全可以杀敌于万里之外而不流血、不牺牲，而且是事半功倍。**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+G-TV、G-News、整个G系列，**G-Club会员会有好消息，我在这儿不能说，到各农场会给大家说哈，会有绝对有你震撼的好消息，**啊，震撼的好消息，现在每天，每天多少？我们每天大概有几百个人加入G-Club，每天几百个人，每天有几百个人，G-Club到一定的时候一定要会停止下来的啊，这个不是无限的，不是无限的，会调整一下。哎呀，摩根先生又来信息了，哎呀，摩根先生，摩根先生，哎呀。
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+Yes Sir Jo. Thank you very much. I huandred percent agree your idea, that’s very important. So that’s why we use the coronavirus, the truth anti the CCP. We are quickly take down the CCP as well, thank you very much.七哥的郭氏英文横扫天下，啊，听不懂者一律免听，听不懂七哥英文者一律免听，呵呵。好了，不跟大家聊了，我也要吃点饭去了，吃点饭赶快走开会去，开会还得出去开会，里面会出去会。好勒，咱一起祈祷吧，亲爱的兄弟姐妹们，一起为七十五亿世界人民、为十四亿新中国联邦的同胞们、所有的爆料革命的战友和家人们、台湾同胞、香港同胞、西藏同胞一起祈福。放这儿吧（挪话筒）。
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+阿弥陀佛！
+
+阿弥陀佛！
+
+阿弥陀佛！
+
+啪啪啪（击掌三下）！
+
+接上文——
+
+[郭先生0415I班农是甘冒天下大忌干了三件事的第一个白人](https://gnews.org/zh-hans/1102397/)
+
+[郭先生0415II骂不还口打不还手是对恶的纵容就要除恶务尽](https://gnews.org/zh-hans/1102556/)
+
+[郭先生0415III九指妖团伙竟要和法庭对诈骗的钱谈分成和解](https://gnews.org/zh-hans/1102590/)
+
+[郭先生0415IV事实胜于证据,我们不要在乎任何人信不信](https://gnews.org/zh-hans/1102629/)
+
+[郭先生0415V马云是未来死亡机器，杨雄后边还有人要死](https://gnews.org/zh-hans/1105645/)
+
+[郭先生0415VI今日中共是二战时全民造神下的日本帝国翻版](https://gnews.org/zh-hans/1108651/)
+
+[郭先生0415VII新中国联邦不要能被挑拨的、骗子一说就信的](https://gnews.org/zh-hans/1108723/)
+
+[郭先生0415VIII G系列生逢其时G-Coin创下17个天下唯一](https://gnews.org/zh-hans/1108804/)
+
+[郭先生0415IX G系列是七哥的人生积淀与中西文化政治经济的结体](https://gnews.org/zh-hans/1109013/)
+
+[郭先生0415X最希望的就是通过爆料革命和G系列找到好人](https://gnews.org/zh-hans/1109277/)
+
+[郭先生0415XI找到你们想象不到的解决美国投资者难题的好办法](https://gnews.org/zh-hans/1109340/)
+
+[郭先生0415XII私募一年来，全世界都停摆只有我们是上升的](https://gnews.org/zh-hans/1109452/)
+
+[郭先生0415XIII灭共不是责任不能成为我们不惜一切代价的目标](https://gnews.org/zh-hans/1109547/)** **
 
 0
