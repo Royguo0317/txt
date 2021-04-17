@@ -1,31 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亲川普议员成立“美国优先核心小组”推保守政策
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1110142/)
+## 新疆人权问题引发中共国报复性制裁冰岛公民
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1110164/)
 
-俄罗斯莫斯科喀秋莎农场  爱真理
+俄罗斯莫斯科喀秋莎农场 DongDong
 
 编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/AFC.jpg)msnbc.com
-据《Just the News》4月17日报道，一群亲川普的国会议员已经形成了他们所谓的“美国优先”政策法案，他们成立了“美国优先核心小组”（The America First Caucus），将解决从大科技公司到移民到选举制度改革等国内问题。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/s-20.jpg)俄罗斯莫斯科喀秋莎农场原创
+中共国驻雷克雅未克（Reykjavik）大使馆周五表示，北京已经制裁了一名来自冰岛的个人，此前这个岛国因中共新疆侵犯人权而制裁了中共国官员。
 
-“美国优先核心小组“(AFC)的就职政策平台表示，AFC的“存在为促进对美国国家长期有利的国会政策”，“任何政策建议的目标都是为美国人服务的。”
+中共国否认所有关于虐待的指控。
 
-该组织表示，它将挑战大科技公司在现代美国社会中的统治地位，其中包括对230法案的改革，该改革的目标是使互联网平台免除对其服务器上发布的内容的审查责任。
+这则发布在中共国驻冰岛使馆网站上的声明说，冰岛 “除了谎言和虚假信息，什么都没有”。北京决定对一名未透露姓名的冰岛人实施对等制裁，“该人恶意散布谎言和虚假信息，严重损害中共国的主权和利益”。
 
-该组织还表示支持“全国性的系统性选举改革”，“长期以来被认为容易遭受欺诈的邮寄投票已实现正常化”，他们将“努力结束邮寄投票，实施国民投票制”。选民身份证和对2020年大选进行的大规模选民欺诈的实质性调查。”
+在声明中大使馆说，“我们要求冰岛真正尊重中共国的主权、安全和发展利益，停止以人权问题为借口干涉中共国内政。”
 
-核心小组还强调了中国共产党的独特威胁，指出美国“必须在军事上和经济上做好与竞争对手竞争的准备”。
+西方国家政府正寻求追究北京对中共国西北部大规模拘留穆斯林维吾尔人的责任，美国称中共国在那里进行种族灭绝。冰岛是继上个月欧盟、美国、英国和加拿大对中共国官员实施制裁之后的又一个国家。
 
-这个核心小组坚信，美国的决策需要回到“美国优先”原则，恢复我们国家领导人的长期眼光，并在更大程度上为美国人民选出的领导人灌输内在的服务意识。
+据冰岛媒体《晨报》电子版（icelandmonitor）披露，此次被中方制裁的是一位名叫乔纳斯·哈拉尔松（Jónas Haraldsson）的冰岛律师，他去年10月曾向媒体投稿，发表过批评指责中共国的文章，文章中将中共病毒责任归咎于中共国，并使用“中国（中共）病毒”这样的表述。
 
-新核心小组的成员中有马乔里·泰勒·格林（Marjorie Taylor Greene），她一直是川普的坚定支持者，直率的保守派，来自佐治亚州的议员。
+冰岛驻华使馆表示，外交部已召见冰岛驻华大使，提出严正交涉，并表示强烈谴责。
 
-从这里看出，美国的保守派坚持推“美国优先”政策方案。
+参考链接：
 
-原文链接：
-
-[https://justthenews.com/government/congress/america-first-caucus-targets-big-tech-mail-voting-chinese-communist-party](https://justthenews.com/government/congress/america-first-caucus-targets-big-tech-mail-voting-chinese-communist-party)
+[1] [China sanctions Icelandic individual in retaliation over Xinjiang measures – National Post – 2021/04/17](https://nationalpost.com/pmn/news-pmn/china-sanctions-icelandic-individual-in-retaliation-over-xinjiang-measures)
 
 0

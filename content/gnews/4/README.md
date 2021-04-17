@@ -1,42 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 多地警察拒安省省长以防疫为名行当街截查之违宪政令
-` 五餅二魚 加拿大多倫多楓葉農場` [轉載自GNews](https://gnews.org/zh-hans/1110344/)
+## 【热点播报】中共警察注射国产疫苗后死亡
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1110240/)
 
-随着加拿大人口最多省份——安省的中共病毒疫情进入第三波，安省省长道格·福特（Doug Ford）以控制疫情为由宣布自4月8日起进行封城，本周五（4月17日）更进一步，宣布警方将有权拦截街上或车里的任何人以询问其出行目的及住址，违规将被罚款$750。目前为止，安省至少有18个警察局、许多警察部门和代表其官员协会已拒绝执行这一新政令，直言这像是警察国家的恶政。
-
-多伦多机场所在的皮尔区警察协会主席阿德里安·伍利（Adrian Woolley）表示，无论如何，他的下属都不会参与任何超出宪法规定有权做的事。他发推文表示，”省长福特呼吁的这些新措施与《加拿大权利与自由宪章》直接冲突”，”当政客指示执行这些措施时，是将所有活跃的前线警员置于岌岌可危的境地。”，他在接受《多伦多太阳报》采访时表示，这将“使警察成为坏人”。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1065.png)詹姆斯·拉默（James Ramer） 图片来源：CBC
-多伦多警察局长詹姆斯·拉默（James Ramer）表示该局将继续参与教育和执法，但不会随意拦截人员或车辆。拒绝执行该随意截查令的还有安省渥太华、滑铁卢、圭尔夫以及伦敦等市的警察局。
-
-今天，在多伦多皇后公园，抗议者举行反封锁集会时，警察都袖手旁观，并没有像省长宣布的那样进行盘问和逮捕。
+作者：纽约香草山媒体部 文扬四海
 
 
 
-> LIVE in Toronto: A day after Doug Ford announced increased police authority to enforce the provincial stay-at-home order, Toronto police are not ticketing or arresting anti-lockdown protestors. [pic.twitter.com/CmkaRljr4N](https://t.co/CmkaRljr4N)
-> — The Post Millennial (@TPostMillennial) [April 17, 2021](https://twitter.com/TPostMillennial/status/1383468298520588291?ref_src=twsrc%5Etfw)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
 
-虽然加拿大被中共渗透严重，但这里的警察还不太像中共国内的黑警，领导拍脑袋、拍大腿的政策不仅不变本加厉地执行，竟敢说“不”。加拿大公民自由协会执行董事迈克尔·布莱恩特（Michael Bryant）一语中的：” 警察在中共病毒疫情期间假定那些在户外或开车的人有罪、随意拦截是违宪的。“
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/EzIJBg9VEAU9MCz.jpg)《加拿大权利与自由宪章》
-也是，在加拿大生活久了，会渐渐感受到当地人按章办事的习惯。这次，许多警察拒绝执行省长颁布的违宪政令很好地诠释了加拿大人的行事风格——遵守宪法、尊重人性。虽然，与中共勾兑的政客们还在按大重置计划一步步推进，加拿大以后也可能会变成极左极左的“斯坦”国或“瑞拉”国，但还是有些人在维护宪法、遵守着心中的底线。中共国的执法者们，虽然无法像加拿大警察那样直言不讳，但希望你们在关键时刻，能将枪口抬高一寸，站到正义这一边，不要随盗国贼一起堕入地狱。
+4月17日，大纪元报道了发生在微博网友“山下花野子”身上的不幸事件。七天前（4月10日）该网友在微博发文说，弟弟30岁不到，是边检民警，发病前身体健康，在接种灭活疫苗后，突发血小板为零、脑出血、皮下出血等症状，已在ICU昏迷了17天，希望得到专家救助。
 
-*新闻来源：*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/84-1.jpg)
 
-[COVID-19: Ontario’s temporary increased police powers raise concerns about random stops, carding](Ontario’s%20temporary%20increased%20police%20powers%20raise%20concerns%20about%20random%20stops,%20carding)
+4月15日，该网友在微博发布讣告并补充，弟弟没有病史，于1月11日接种了国药集团的北生灭活疫苗第一针，2月8日接种第二针。在此期间，弟弟出现疲劳、皮下出血、牙龈出血的情况，直至3月24日突发脑出血入院，于4月15日去世。据称，该男子的死亡原因为重度再生障碍性贫血引起的脑出血。博主质问当局，希望能给家属一个交代。目前，以上两条微博均已被删除。
 
-[Ontario gives police authority to stop people, vehicles, ask purpose of travel](https://toronto.ctvnews.ca/ontario-gives-police-authority-to-stop-people-vehicles-ask-purpose-of-travel-1.5390805)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-292.png)
 
-[Ontario extends stay-at-home order, restricts interprovincial travel as province loses battle against COVID-19](https://toronto.ctvnews.ca/ontario-extends-stay-at-home-order-restricts-interprovincial-travel-as-province-loses-battle-against-covid-19-1.5390016)
+4月17日，该网友再次发微博写到，“生活还要继续”，并请有类似遭遇的网友和她私信联系。随后，有不少网友回复博主打完国药疫苗后各自出现的不良反应，其中也有提到血小板减少的情况。
 
-[WARMINGTON: Ontario police chiefs say ‘no thanks’ to Ford’s new COVID random stop law](Ontario%20police%20chiefs%20say%20'no%20thanks'%20to%20Ford's%20new%20COVID%20random%20stop%20law)
+截止4月16日，据Our World In Data公布的数据显示，中共国大陆地区疫苗接种人数是1.87亿。但由于中共政府地刻意隐瞒，目前并没有官方公布的疫苗事故数据。
 
-*参考链接：*
+即使在中共地高压震慑下，民间微博、微信等平台依然陆续曝出接种国产疫苗后导致的死亡案例。这次的事件并不奇怪，实属意料之中。由于当事人家属在微博连续发声，引起了较高关注。且从网友回复看，接种国药疫苗后出现血小板减少的情况应该不是特例，很有可能是该疫苗特有的接种后的不良反应。类似国外已发现的接种强生疫苗后出现的多例血栓现象，这也导致美国和其他一些国家已暂停接种强生疫苗。中共国的新冠疫苗是灭活疫苗，目前欧美发达国家的新冠疫苗都没有用这种技术，根据中共疫苗过往的斑斑劣迹，无法让人相信中共疫苗的质量。
 
-[各国大重置计划表完全一致 加拿大正按此第二轮封城中](https://gnews.org/zh-hans/672917/)-GNews
+更重要的是，我们都知道新冠病毒就是中共制造的生物武器，从中共一直以来的无底线流氓操作看，中共生产的新冠疫苗很有可能是另一种生物武器。
 
-[加拿大权利与自由宪章](https://zh.wikipedia.org/wiki/%E5%8A%A0%E6%8B%BF%E5%A4%A7%E6%AC%8A%E5%88%A9%E8%88%87%E8%87%AA%E7%94%B1%E6%86%B2%E7%AB%A0)-Wikipedia
+现在，中共依旧在国内强推接种疫苗，据说大多数体制内的人员已经完成了接种。随着时间的推移，相信将会有越来越多的疫苗不良反应事故被曝光。如今已经有警察中招了，后面一定会有更多的警察、军人、公务员等中共的中坚力量因接种疫苗而出现各种不良反应，甚至死亡。中共国的疫苗灾难已经无法避免，这场灾难将彻底唤醒沉睡的人民，觉醒后的人民一定会爆发出怒吼，吞噬中共这个恶魔。
+
+参考阅读：
+
+[陆28岁军人接种国产疫苗后死亡 当局急销声](https://www.epochtimes.com/gb/21/4/17/n12886701.htm)
+
+[Our World In Data](https://ourworldindata.org/)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
 
 0

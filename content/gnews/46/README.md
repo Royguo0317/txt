@@ -1,31 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共再造大量病毒实验室，毒害全球不停步！
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1109528/)
+## 共产党偷假骗利用假民主破坏美国精神
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1109568/)
 
-美东香草山写作组：大兄dei
+台湾宝岛农场 Amitofu
 
-印度标准时间4月16日晚，印度媒体“经济时报”（The Economic Times）在其网站刊发新闻，标题为“在武汉实验室对新冠病毒起源所扮演的角色尚存疑之际，中国欲造更多的生物实验室”（“China to build more bio labs amidst questions over Wuhan lab’s role in coronavirus origin”）。
+对中共的契约而言，中共与西方世界签订65条条约，接下来违反其中64条，共产党人认为这不是伪善，而是一种策略，为了先在表面上做出令对方满意的手段而暂时同意对方，先说服对方心智再制造混淆事实的谋略，共产党人认为这不算是欺骗，而是必要的谋略工具，就像一带一路让对方陷入的债务危机。共产党人长期说服自己，认为只要骗得过、假得过、偷得过，合乎自己的利益，甚至出卖妻女朋友一切都不算邪恶，不存在伦理道德、和谐的人际关系，为了达到目的可以出卖自己。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/usaccp-393x225.png)
+就像殷勤好客的美国人，邀请一个以偷、假、骗为业的共产党人到他家共进晚餐、享受自由民主与资本主义的果实，那位充满忌妒的共产党人可能会打量各种昂贵的骨董摆饰、银器酒杯、和富丽堂皇的装饰，完全没能领会到主人藉由各种色香味美的上选佳肴，想传达的诚意和温暖的情谊。共产党人心中可能会认为这主人不仅心肠软弱、还自以为是，甚至还想要侵犯女主人和他的家人，认为主人不配享有这么多好东西，所以会利用主人宴客当晚的时间，思考如何用甚么手段策略，偷光、骗光请他吃饭主人的一切财富资产。只要熟悉过去一百年来共产党高层，从苏俄到中共苏维埃共产历史的人们，都能够马上看得出同样的事情也发生在自己的国家身上。二战时苏联的租借法案，在美国政府高层的苏联间谍霍普金斯力推下，明目张胆地利用美国的自由民主，向苏联提供110亿美元的支持后，还要继续渗透美国政府高层，企图搞乱美国宪政体制，因为共产党人没有道德底线，需索无度不按牌理出牌，永远满足不了共产党的胃口。
 
-文中援引中国科学技术部副部长相里斌的谈话，指出中国科学技术部已检验并批准建立3个P-4实验室和88个P-3实验室。文中也引用中国科学院院长白春礼在2020年4月份的讲话，提到中国已有两个P-4和81个P-3实验室在运行中或已被批准建设。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-33.png)
-CCP病毒贻害全球，截至美东时间4月16日下午三点全球新增确诊人数为844,796，至此全球总确诊数为140,313,922，死亡病例总数为3,007,650（资料来源：大纪元时报）。邪共之恶，罄竹难书！
+雅尔塔密约被苏联间谍霍普金斯和阿尔杰丶希斯主导，两个苏联间谍罗斯福总统的首席顾问霍普金斯和美国副国务卿杰希斯，让苏联斯大林成为雅尔塔会议最大的受益者，不仅得到了中国的蒙古、库页岛、东北铁路、旅顺港和日本的千岛群岛，甚至东欧被美国拿下的捷克都让给了苏联，而且逼死了试图在中国建立民主体制的蒋介石政权，苏联顺利让毛泽东的共产党赶来占领满州，并在苏俄控制的联合国下，谴责蒋介石抗拒中共推动联合政府，美国国务院三次禁止蒋介石无条件停火，蒋介石节节败退让共产党完全占领中共国。
 
-新闻网址：[https://economictimes.indiatimes.com/news/international/world-news/china-to-build-more-bio-labs-amidst-questions-over-wuhan-labs-role-in-coronavirus-origin/articleshow/82104699.cms](https://economictimes.indiatimes.com/news/international/world-news/china-to-build-more-bio-labs-amidst-questions-over-wuhan-labs-role-in-coronavirus-origin/articleshow/82104699.cms)
+西方世界认为只要让中共国共产党的人民有钱了，就会放弃共产主义而投向资本民主，追求自由与法治的生活方式，让中共政权逐渐脱离共产极权统治的思想，然而70年过去14亿人至今还是受到中共集权的威胁，除了压迫西藏人民生存、对新疆维族人种族灭绝、撕毁中英联合声明破坏香港民主，发动军事攻打台湾，中共更是利用美国纳税人资金，研究SARS-CoV-2功能增强技术，制造新冠状生化病毒的武器，对世界发动生化超限战。美国这个伟大的国家无论是川普政府还是拜登政府，共和党与民主党两党合作面对中共的各种威胁，相信这次共产党离死期不远了。共产党你完了! X3  本文仅代表个人立场
 
-审核/发稿：正义的小新
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-**更多资讯，更多关注**
+資料來源:文贵先生、班农战斗室、路德社、闫丽梦博士、博士军团、新中国联邦
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+审核:Athena雅典娜 发布:Amitofu
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1

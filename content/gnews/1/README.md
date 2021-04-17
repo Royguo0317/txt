@@ -1,29 +1,118 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国情报系统在努力确定病毒来源
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1110384/)
+## 每日新闻收集【4/16】
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1110409/)
 
-#### 译评：Kal |责编：WenWang
-![]()![](https://gnews.org/wp-content/uploads/2021/04/capture-17-4.jpg)图片来源： The Washington Post 
-据《华盛顿时报》（The Washington Times）国家安全记者比尔·格茨（Bill Gertz）4月15日的撰文报道，美国情报系统在努力确定中共病毒的来源。
+**西班牙巴塞罗那喜悦农场 ** wenwu
 
-报道称，美国官员周四对国会表示，美国情报机构不同意世界卫生组织(World Health organization)和中共最近联合调查的结果。该调查否认了中共病毒爆发可能是“从中国一个实验室意外逃逸造成”的理论。美国国家情报总监艾薇尔·海恩斯（Avril Haines）和中央情报局局长威廉·伯恩斯（William Burns ）对众议院情报委员会说，上个月公布的世卫组织报告不是美国情报机构研究疫情起源的观点。海恩斯说，“世卫组织的报告认为，这种情况……非常不可能发生，但我们却不这么认为。”
-
-报道指出，两个月前，在中共政府的严格监督下，世卫组织的一个国际专家小组访问了武汉病毒研究所。武汉病毒研究所是一个高度安全的生物实验室，科学家们在这里研究与中共病毒类似的蝙蝠冠状病毒。中共国研究人员自夸，在过去10年中发现了2000种新病毒，包括许多来自蝙蝠的病毒，但世卫组织的研究小组认为，病毒“极不可能”从实验室泄露，并引用了实验室的安全规程。武汉是首个中共冠状病毒主要聚集性病例的发生地。
-
-中共政府和世卫组织团队表示，最可能的病毒来源是与人接触的受感染动物，并引发了2019年12月的致命疾病爆发。中共还散布假消息说，这种病毒是美国陆军带到中共国的，是美国军事实验室秘密研制出来的。参加星期四国会山听证会的官员表示，毫无疑问，这种病毒起源于中共国。情报总监海恩斯女士在周三的参议院听证会上首次表达了这样一种观点，即病毒的实验室起源，不管是意外事故还是安全措施不佳，已经不再被视为如一些科学家，媒体和中共国政府一年多来宣称的那样是阴谋论。她说，美国分析人士目前关注两种情况，“一种是实验室事故，另一种是人类接触受感染动物后自然产生的。”她补充说，评估是基于情报，而不是基于中共政府的声明。
-
-报道称，美国中央情报局局长伯恩斯说，美国情报机构仍在努力确定病毒的来源。他说:“整个情报部门都在非常非常努力地利用我们自己的独立资源，试图弄清这件事的真相。”伯恩斯表示，他的分析人员同意科学界的共识，即病毒似乎不是实验室里人造的。海恩斯也说，有迹象表明，中共国正试图影响世卫组织的调查。
-
-美国联邦调查局(FBI)局长克里斯托弗·雷(Christopher Wray)在听证会上透露，该局官员参与了确定疫情源头的搜索工作，但对中共国的问题应该在“外交层面”上来处理。海恩斯女士说，美国情报机构已经雇佣了更多的人来研究如何应对全球疾病爆发，并设立了一个专注于“生物威胁”的项目。
-
-* * *
-
-**评：**美国现政府部门，包括情报系统，在几个事实上似乎达成了共识，一是病毒爆发始于武汉，二是中共国的顶级生物实验室就在武汉，该实验室采用P4等级设计，具备高安全性，在研究与中共病毒类似冠状病毒方面处于世界的前沿，三是中共一直试图在外交层面，科学界和地缘政治方面影响人们对病毒的关注，并极力影响任何可能导向“Covin-19病毒是来自中共实验室泄漏”的结论。显然这三个事实让人们不得不想起一句老话“此地无银三百两”。但是从美国情报系统的角度看，似乎这是一个极为矛盾的推理逻辑，这只能说明，病毒真相背后的博弈正酣。证据的收集只为推出最终的结论，但最终的真实结论若不尽快公布于世，恶魔们将继续在跳舞，无辜的生命还在不断地在痛苦中失去。
+「以钱灭共」 推文两则
 
 
 
-&gt;&gt;原报道链接 &gt;&gt; [DNI Avril Haines knocks WHO report that dismissed theory COVID-19 escaped from lab](https://www.washingtontimes.com/news/2021/apr/15/avril-haines-william-burns-rip-who-report-covid-19/)
+> 【学习新单词：SOP】
+> Standard Operating Procedure 标准操作程序，是帮助职工进行业务操作时为了实现高效率，质量和绩效的统一化，减少沟通不畅，和遵守行业法规而制定的一套程序。
+> 
+> 没有任何人生来就是全才。强大的学习能力和锲而不舍的钻研精神，才是郭先生创造了一个接一个奇迹的法宝！ [https://t.co/D5UwQF5rAR](https://t.co/D5UwQF5rAR) [pic.twitter.com/IgbNx7orbM](https://t.co/IgbNx7orbM)
+> — 瞿水台 Qu Shuitai (@QuShuitai) [April 16, 2021](https://twitter.com/QuShuitai/status/1382879386072973315?ref_src=twsrc%5Etfw)
 
-0
+
+1. **[瞿水台推特](https://twitter.com/QuShuitai/status/1372914895247794181)**：
+*【学习新单词：UBO】 UBO: Ultimate Beneficial Owner 最终实益拥有人，是指一个机构发起交易时作为最终受益人的个人或实体。 法人的UBO是指以下人员：
+持有法人实体至少25％的资本权益；
+在股东大会上拥有至少25％的投票权；
+至少获得该法人股本的25％作为受益人 在BVI新建的GTV的UBO们责任重大；
+【学习新单词：SOP】 Standard Operating Procedure 标准操作程序，是帮助职工进行业务操作时为了实现高效率，质量和绩效的统一化，减少沟通不畅，和遵守行业法规而制定的一套程序。 没有任何人生来就是全才。强大的学习能力和锲而不舍的钻研精神，才是郭先生创造了一个接一个奇迹的法宝*
+
+
+> G系列为草根战友提供了一个拥有跟刚刚上市的Coinbase同样的初创和共同致富的机会和平台！
+> 只有长期投资才有最大回报！
+> 长期跟随爆料革命、投资G系列的战友才能实现灭共和致富两不误！💪 [pic.twitter.com/soIJ4TxT9I](https://t.co/soIJ4TxT9I)
+> — 瞿水台 Qu Shuitai (@QuShuitai) [April 16, 2021](https://twitter.com/QuShuitai/status/1383049210635902976?ref_src=twsrc%5Etfw)
+
+
+2. **[瞿水台推特](https://twitter.com/QuShuitai/status/1383049210635902976?s=20)**：
+*G系列为草根战友提供了一个拥有跟刚刚上市的Coinbase同样的初创和共同致富的机会和平台！ 只有长期投资才有最大回报！ 长期跟随爆料革命、投资G系列的战友才能实现灭共和致富两不误*
+「以毒灭共」 8则推文
+
+
+
+> “Cerebral venous thrombosis: a retrospective cohort study of 513,284 confirmed COVID-19 cases and a comparison with 489,871 people receiving a COVID-19 mRNA vaccine”
+> – University of Oxford
+> Oxford Study:[https://t.co/WKM1aZuNbS](https://t.co/WKM1aZuNbS)
+> News: [https://t.co/MlPOUdLBEF](https://t.co/MlPOUdLBEF) [pic.twitter.com/XepKdY6ts1](https://t.co/XepKdY6ts1)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 17, 2021](https://twitter.com/DrLiMengYAN1/status/1383233158275997697?ref_src=twsrc%5Etfw)
+
+
+1. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1383233158275997697?s=20)**：
+*“脑静脉血栓形成：一个医学纵向队列研究——**[513,284例确诊的新冠病毒病例](https://osf.io/a9jdq/)**与**[489,871人接受新冠病毒mRNA疫苗](https://www.marketwatch.com/story/blood-clots-as-prevalent-with-pfizer-and-moderna-vaccine-as-with-astrazenecas-report-2021-04-15)**的比较”*
+
+
+> 疫苗接种的可能反应，副作用和机理很多现在才逐渐研究和报道出来，可是几亿剂已经打完了。这是疫苗发明以来的第一次，但是很可能后续灾难最大的一次！ [https://t.co/Uw1TVeFfLb](https://t.co/Uw1TVeFfLb)
+> — 墨博士 (@4RxMbPD3YbeN1fS) [April 17, 2021](https://twitter.com/4RxMbPD3YbeN1fS/status/1383233066005516291?ref_src=twsrc%5Etfw)
+
+
+2. **[墨博士推特](https://twitter.com/4RxMbPD3YbeN1fS/status/1383233066005516291?s=20)**：
+*疫苗接种的可能反应，副作用和机理很多现在才逐渐研究和报道出来，可是几亿剂已经打完了。这是疫苗发明以来的第一次，但是很可能后续灾难最大的一次。附闫博士推特*
+
+
+> 蓬佩奥接受福克斯采访说，中共的病毒实验室非常危险，如果拜登不行动，大流行将再次发生
+> 玛丽亚肯定地说：新冠病毒来源于武汉实验室
+> 
+> 就拜登与菅义伟会面，他认为美国要与四国联盟在军事上、经贸上共同对抗中共，在供应链上减少对中共依赖，否则中共会进攻台湾。他强调，台湾从来不是中国大陆的一部分 [pic.twitter.com/ltLIVSQ9KK](https://t.co/ltLIVSQ9KK)
+> — 嘻禧僖囍 (@xi\_GLB) [April 16, 2021](https://twitter.com/xi_GLB/status/1383199373064998913?ref_src=twsrc%5Etfw)
+
+
+3. **[喜站推特](https://twitter.com/xi_GLB/status/1383199373064998913?s=20)**：
+*蓬佩奥接受福克斯采访说，中共的病毒实验室非常危险，如果拜登不行动，大流行将再次发生 玛丽亚肯定地说：新冠病毒来源于武汉实验室 就拜登与菅义伟会面，他认为美国要与四国联盟在军事上、经贸上共同对抗中共，在供应链上减少对中共依赖，否则中共会进攻台湾。他强调，台湾从来不是中国大陆的一部分*
+
+
+> 议员的信中很多细节，显示他们对于ecohealth多年来干的事非常清楚，包括ecohealth官方多次否认病毒来自实验室，一直坚持称病毒来自自然，现在需要打杂客出来好好解释解释了，你完球蛋了😎 [https://t.co/Y7f3HnwrKO](https://t.co/Y7f3HnwrKO) [pic.twitter.com/eZb0eu4kRT](https://t.co/eZb0eu4kRT)
+> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [April 16, 2021](https://twitter.com/jsdfposjpqyuee1/status/1383186103662829570?ref_src=twsrc%5Etfw)
+
+
+4. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1383186103662829570?s=20)**：
+*（上）国会Cathy McMorris Rodgers等三名议员联名致信打杂客，向打杂客提出三十多项质询，要求做出详细解答。质询内容包括打杂客的ecohealth和武汉病毒研究所及石正丽的经济往来，更重磅的是直接指向RaTG13病毒的相关信息。打杂客摊上大事了
+（下）议员的信中很多细节，显示他们对于ecohealth多年来干的事非常清楚，包括ecohealth官方多次否认病毒来自实验室，一直坚持称病毒来自自然，现在需要打杂客出来好好解释解释了，你完球蛋了*
+
+
+> "Beijing Institute of Biotechnology", "Beijing Institute of Microbiology and Epidemiology"?
+> Most published papers refrain to mention their military affiliations: Academy of Military Medical Sciences (AMMS) of PLA
+> Directors of them, Wei Chen and Wuchun Cao are PLA generals. [pic.twitter.com/xquqThb2EQ](https://t.co/xquqThb2EQ)
+> — 德意志之鹰 (@dezying) [April 16, 2021](https://twitter.com/dezying/status/1383058725628444672?ref_src=twsrc%5Etfw)
+
+
+5. **[德意志之鹰推特](https://twitter.com/dezying/status/1383058725628444672?s=20)**：
+*“北京生物技术研究所”、“北京微生物与流行病学研究所“？
+大多数已发表的论文没有提及其军事隶属关系：解放军军事医学科学院（AMMS）他们的导演，陈薇和曹武春是解放军将领*
+
+
+> Be back! 
+> Truth won’t be buried! [https://t.co/RxkVpGkC9E](https://t.co/RxkVpGkC9E)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 16, 2021](https://twitter.com/DrLiMengYAN1/status/1383055183106674688?ref_src=twsrc%5Etfw)
+
+
+6.**[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1383055183106674688?s=20)**：
+*（胡）闫博士的推特账户被🈲️了12个小时，因为她讲了一个故事，为帮助人们了解HCQ的工作原理，更引用了博士克雷格·韦克斯博士的推特。推特迫使闫博士要删除这些推文内容，否则她将无法收回她的帐户
+（闫）已经回来！真相不会被埋葬*
+
+
+> 帮我打倒中国共产党。 请向我发送有关中国病毒研究的信息[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/tIll8UdRpg](https://t.co/tIll8UdRpg)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 16, 2021](https://twitter.com/LawrenceSellin/status/1383018664966885380?ref_src=twsrc%5Etfw)
+
+
+7. **[塞林博士推特](https://twitter.com/LawrenceSellin/status/1383018664966885380?s=20)**：
+*帮我打倒中国共产党。 请向我发送有关中国病毒研究的信息
+附所需关键细节的图片*
+
+
+> 4/14/2021美参议院情报委员听证会：两党已达成共识，来自中共的威胁位列世界五大流氓集团之首
+> 参议院本·萨斯演讲：中共国对美国的所有威胁都来自于习近平和他领导的中共，但前提是要分清中共和中国人民和海外华人的区别，并要不断向美国人民宣讲这一概念…（1/2） [pic.twitter.com/iZ3H29Wy9P](https://t.co/iZ3H29Wy9P)
+> — 秘密翻译组 (@G\_Translators6) [April 15, 2021](https://twitter.com/G_Translators6/status/1382840020554428422?ref_src=twsrc%5Etfw)
+
+
+8. **[秘密翻译组推特](https://twitter.com/G_Translators6/status/1382840020554428422?s=20)**：
+*4/14/2021美参议院情报委员听证会：两党已达成共识，来自中共的威胁位列世界五大流氓集团之首 参议院本·萨斯演讲：中共国对美国的所有威胁都来自于习近平和他领导的中共，但前提是要分清中共和中国人民和海外华人的区别，并要不断向美国人民宣讲这一概念*
+
+
++1

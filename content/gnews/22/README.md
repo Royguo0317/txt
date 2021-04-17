@@ -1,92 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第133节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1110041/)
+## 【小一视角】试着解释为什么义乌外贸商户账户大量被冻结
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1110029/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**温哥华战友团 我是1，小一**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/fds11111111111111.jpg)
+2018年8月1日起，海关新的出口报关单增加了境外收货人一栏，必须要做到舱单、提单、报关单，三单一致。当时业内一片骚动，认为买单报关路被堵死了，而各地方的核销单产业链也要被整顿了。与此同时中共国又一直在严打地下钱庄、控制外汇外流，而香港离岸账户开始大量被查被关停，再然后外贸商户账户大量就开始被冻结了。从整条线上看明显是针对以义乌温州为代表的民间经济小规模纳税人。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2222222222222222222222222222.jpg)
+而另一条线，银行承兑汇票频频暴雷，大量金融掮客出事。银行内部坏账爆发，国际市场输血不畅，银行开始倒闭。一些大企业由于联保、三角债大量被牵连进去。再联系到党内的大清洗，各地方势力开始洗牌，内斗加剧。大量知名企业都被控制，创始人纷纷离开，而这明显是针对一般纳税人中的优质资产。
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/P-18.jpg)ceias.eu
-本节为**副标题D——抵制中国共产党的影响**中的第133节
+最近江家全球布局，去新加坡，去日本，上海市长杨雄之死，上海居民人口申报，蚂蚁金服停止上市，阿里被罚。另外阿里的淘宝聚集大量的私营业主，而且阿里还有自己的外贸管道-—阿里国际站，上面也是大量的中小业主，很多都是没有出口资质需要买单的商户。这些事情都串在一起，也许就可以猜测一下：江家开始失势，习帝势力开始全面掌控南方经济，大小通吃。
 
-本节要点：总统列举了中共国数宗、数十条恶意活动，包括宣传和造谣，恶意政治影响行动，恶意经济影响行动。中共国利用法律、政治和经济杠杆（如中共国市场的诱惑）来塑造信息环境，利用对美国系统的网络攻击来审查或压制它认为具有政治敏感性的观点。中共的目标是”努力改变我们的政策和舆论，在各种问题上更加亲中“。中共国正在利用美国高等教育机构开放的研发环境，利用“教授，科学家和学生”作为“非传统的”信息收集器。
+讲完大背景，现在我们落地来讲什么是买单出口。长三角珠三角有很多家庭作坊，他们是民间外贸的主力军，尤其以义乌、温州等地为代表。而他们很多是没有进出口权的，很多工厂连进项发票都没有，基本都是走个人账户，没有对公户的概念，所以只能去买别的公司抬头的核销单办理出口业务。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/33333333333333333333333333.jpg)
+**买单出口有两种：**
 
-欲了解更多的內容，请看本节全文（仅供参考）。
+第一种正规的，因为商户M自己没有进出口权，于是去找一个有进出口权的正规公司A做为中间代理。那么报关单上发货方就是正规外贸公司A，核销单当然也用A的抬头，最后国外客户收到货后，货款也打到A的账户上，A去办理退税，最后把真实的货款给商户M。这是完全合法合规的教科书操作，中共的外汇管制要求谁出口，谁就收回美金，谁来核销，退税奖励也给谁。
 
-第133节 关于中共国信息战和恶意影响行动的调查结果
+第二种擦边球。同样商户M自己没有进出口权，但老外客户给他下单，于是M找到一家海运物流公司，让他们全权搞定。于是物流公司就去市场上买了一份报关资料，随便举例叫：顺德市宇宙进出口公司，有报关委托书、报检委托书、合同、箱单、发票、核销单，都是盖章过的，还有几张空白盖章A4纸。那么报关单上发货方就是顺德宇宙了，核销单当然也是顺德宇宙，最后国外客户收到货后，货款没有打给顺德宇宙，而且报关员操作是不准备退税的。因为目的是货能出去，老外客户在档口直接付人民币给商户M。这就是市场上最普遍的买单报关。
 
-（a）调查结果 – 国会得出以下结论：
+**我们提出核心的五个问题：**
 
-（1）根据《2019财年约翰·麦凯恩国防授权法案》（the John S. McCain National Defense Authorization Act for Fiscal Year 2019）（第115–232号公共法）第1261（b）节的规定，在向国会提交的报告中，总统列举了中共国政府及其代理人和实体进行的一系列恶意活动，包括 –
-（A）宣传和造谣，其中“北京通过国营电视台、印刷品、广播和网络组织传播其说法，这些组织在美国和世界各地的正在扩散”
-（B）恶意政治影响行动，其中“针对那些一线机构和代理人，包括美国和世界各地的企业、大学、智库、学者、记者、地方州和联邦官员等，试图进行言论影响”
-（C）恶意经济影响行动，其特征是“盗用技术和知识产权，没有真实披露与外国政府赞助实体的关系，违反合同和保密规定，操纵公平和择优分配联邦研发资金的程序”
+第一、老外怎么弄到人民币的？他们很多通过地下钱庄的“对敲模式”。理论上老外带美金进来，要去中国银行换成人民币，再去市场上进货。但是这样非常麻烦，所以大家都想避开，因此中共没有监管到外汇进来。而商户跟老外直接私人账户人民币交易，没有走对公账户，这里又避开税务监管。这两头都脱离了党国视线。
 
-（2） 中共国的信息战和恶意影响行动正在进行，2019年1月，国家情报局局长丹·科茨（Dan Coats）表示，“中共国将继续利用法律、政治和经济杠杆（如中共国市场的诱惑）来塑造信息环境，它还能够利用对美国系统的网络攻击来审查或压制它认为具有政治敏感性的观点。
+第二、地下钱庄是一个主要方向。对敲，中间人过桥这些很多都会涉及到境内外的洗钱。而这次大面积封卡就是涉及到一些账户被黑钱渗透。很多普通商户是不知道进来的款项涉及到洗黑钱，那是因为去进货的钱已经是洗到第5手，第6手了，如果源头被控制，往下顺藤摸瓜，就找到商户这里了。而且4级6级银行关联卡追溯下来，不知道哪一级被掺进黑钱，这其中还有虚假贸易、虚开发票、骗退税等等一系列的烂事情参杂在里面，很多人被牵连进去就是这个原因。洗钱不一定全是贩卖毒品枪支黑社会的钱，领导们的钱进进出出几回才是大头。
 
-（3）2020年2月，联邦调查局局长克里斯托弗·雷伊（Christopher Wray）在众议院司法委员会作证说，中共国“在这个国家有非常积极的（恶意的）外国影响努力”，目标是”努力改变我们的政策和舆论，在各种问题上更加亲中“。
+第三、如果商户M有离岸账户也可以让老外的美金可以直接进离岸账户，减少被监管麻烦。所以中共在大量查香港账户，很多关闭，这是一个系统。
 
-（4）中共国的信息战和恶意影响行动，继续采用新的战术，不断发展成熟。2020年5月，全球参与中心（GEC）的特使兼协调员莉亚·加布里埃（Lea Gabrielle）声明说，围绕中共病毒，俄罗斯和中共国的叙述趋于一致，全球参与中心“发现了一个新的不真实的推特（Twitter）账户网络”，并评估该网络“旨在扩大中共国的宣传和造谣”。2020年6月，谷歌（Google）报道称，中共国黑客试图进入一位总统候选人竞选团队的电子邮件账户。
+第四、宇宙这个外贸公司不退税不核销吗？为什么市场上这么多中山、顺德、广西、青海等等各种核销单？这跟当地政府要外贸业绩有关系，中间还有理不清的政商关系，主要是外经贸、外管局、银行等部门都有考核指标。卖核销单是一个产业链，还涉及到银行外汇结汇返点等等。一个公司只要一年的收汇数据持平，基本没问题。那他们就要找其他的外汇进来才能补上给散户报关用掉的金额，至于是什么钱进来，很多就是不清楚的地带了，也是这次重点打击的对象。
 
-（5）中共国的信息战和恶意影响行动对美国及其盟国和伙伴的国家安全、民主和经济体系构成威胁。2018年10月，美国副总统彭斯（Mike Pence）警告称，“北京正在采取一整套政府手段，利用政治、经济和军事工具，以及宣传，提升其影响力，造福于他们在美国的利益。”
+第五、另外一种卖核销单的人，从一开始就不是用自己的名字做法人的，不知道哪里拉来的人头，身份证、刻章、签字全套。拼命的卖，出事就跑路。所以在五花八门的核销单市场上，找到安全、查验率低、靠谱的单子也是要水平的。
 
-（6）2018年2月，联邦调查局局长斯托弗·雷伊（Christopher Wray），向参议院情报特别委员会作证说，中共国正在利用和利用美国高等教育机构开放的研发环境，利用“教授，科学家和学生”作为“非传统的”信息收集器。
+如果资金进出按习神理想化被全监管，那么一定会办事官僚、效率极端低下、徇私舞弊、坐地起价，经济活力一定受限、一潭死水。中共永远留后门给明白人钻的，更是体制内的通道。现在要对这窟窿打补丁了，很多人都是从这些路子倒钱的，未来越来越难了。
 
-（b）总统职责-总统应该-
+很多墙内战友也是在通过各种小细缝不断地流向G系列，而G系列更是被中共列为重点目标，全力封锁资金外流的细缝就不足为奇了。但中共一定挡不住，因为全系统内都有我们的战友，越高压越反弹，而且他们都是中产以上、见过世面、亲戚孩子在国外还有海外资产。新中国联邦是人心所向，G系列更是诺亚方舟，越是体制内的人越知道中共死路一条，钱往哪里去一目了然。钱未来一定是跟VPN一样，找到细缝，被堵上，再找到，再堵上，直到中共断气。
 
-（1）保护我们的民主制度和民主进程不受中共国和其他外国对手的恶意影响。
-（2）根据第（1）款规定的政策，指示相关联邦部门和机构的负责人立即实施国会法案，以打击和阻止中共国和其他外国信息战和恶意影响行动，包括-
-（A）《2019财年约翰·麦凯恩国防授权法案》（第115–232号公共法）第1043节，授权在国家安全委员会内设立一个协调员职位，负责打击恶意外国影响行动和战役
-（B）《2020财年国防授权法》（第116–92号18号公共法）第228节，授权对社交媒体平台上的外国恶意影响行动进行额外研究
-（C）该法案第847节要求国防部长修改有关审查外国所有权、控制权和影响力的合同规定，以减轻外国恶意影响的风险
-（D）该法第1239节要求更新应对恶意影响威胁的综合战略，将中共国包括在内
-（E）该法案第5323节授权国家情报局局长协助建立社交媒体数据和威胁分析中心，以检测和研究跨社交媒体平台的信息战和恶意影响行动
-（F）1947年《国家安全法》第119C节（《美国法典》第50卷第3059节），授权在国家情报局局长办公室内设立外国恶意影响应对中心
-（本节完）
+中共就一个目的，控制全部经济、数字化、透明化、全监管，捏着老百姓钱袋子，迫使韭菜们乖乖当奴才。以前是东莞，现在是义乌，不知道下一个会是哪里？预计可能会严管外资企业了，因为那也是一个玩对敲的窟窿。
 
-在文贵先生、新中国联邦引领下，美国高层、立法机构对邪共终于有了这样的认知。当然，中共爪牙、亲共分子不会善罢甘休，肯定会负隅顽抗，百般阻拦，近期接二连三的国会听证会上，不乏有对恶共有利的声音。让他们尽情地表演吧，只要此法通过，看看还有多少亲共小丑会浮出？
+（本文纯属个人观点）
 
-文字整理：
+* * *
 
-SEC. 133. FINDINGS ON CHINESE INFORMATION WARFARE AND MALIGN INFLUENCE OPERATIONS.
-
-(a) FINDINGS. – Congress makes the following findings:
-
-(1) In the report to Congress required under section 1261 (b) of the John S. McCain National Defense Authorization Act for Fiscal Year 2019 (Public Law 115–232), the President laid out a broad range of malign activities conducted by the Government of China and its agents and entities, including –
-
-(A) propaganda and disinformation, in which ‘‘Beijing communicates its narrative through state-run television, print, radio, and online organizations whose presence is proliferating in the United States and around the world’’;
-
-(B) malign political influence operations, in which ‘‘front organizations and agents which target businesses, universities, think tanks, scholars, journalists, and local state and Federal officials in the United States and around the world, attempting to influence discourse’’; and
-
-(C) malign financial influence operations, characterized as ‘‘misappropriation of technology and intellectual property, failure to appropriately disclose relationships with foreign government sponsored entities, breaches of contract and confidentiality, and manipulation of processes for fair and merit-based allocation of Federal research and development funding’’.
-
-(2) Chinese information warfare and malign influence operations are ongoing. In January 2019, the Director of National Intelligence, Dan Coats, stated, ‘‘China will continue to use legal, political, and economic levers—such as the lure of Chinese markets – to shape the information environment. It is also capable of using cyber attacks against systems in the United States to censor or suppress viewpoints it deems politically sensitive.’’.
-
-(3) In February 2020, the Director of the Federal Bureau of Investigation, Christopher Wray, testified to the Committee on the Judiciary of the House of Representatives that the People’s Republic of China has ‘‘very active [malign] foreign influence efforts in this country,’’ with the goal of ‘‘trying to shift our policy and our public opinion to be more pro-China on a variety of issues’’.
-
-(4) The People’s Republic of China’s information warfare and malign influence operations continue to adopt new tactics and evolve in sophistication. In May 2020, the Special Envoy and Coordinator of the Global Engagement Center (GEC), Lea Gabrielle, stated that there was a convergence of Russian and Chinese narratives surrounding COVID–19 and that the GEC had ‘‘uncovered a new network of inauthentic Twitter accounts’’ that it assessed was ‘‘created with the intent to amplify Chinese propaganda and disinformation’’. In June 2020, Google reported that Chinese hackers at tempted to access email accounts of the campaign staff of a presidential candidate.
-
-(5) Chinese information warfare and malign influence operations are a threat to the national security, democracy and the economic systems of the United States, its allies and partners. In October 2018, Vice President Mike Pence warned that ‘‘Beijing is employing a whole-of-government approach, using political, economic, and military tools, as well as propaganda, to advance its influence and benefit its interests in the United States.’’.
-
-(6) In February 2018, the Director of the Federal Bureau of Investigation, Christopher Wray, testified to the Select Committee on Intelligence of the Senate that the People’s Republic of China is taking advantage of and exploiting the open research and development environments of United States institutions of higher education to utilize ‘‘professors, scientists and students’’ as ‘‘nontraditional collectors’’ of information.
-
-(b) PRESIDENTIAL DUTIES. – The President shall –
-
-(1) protect our democratic institutions and processes from malign influence from the People’s Republic of China and other foreign adversaries; and
-
-(2) consistent with the policy specified in paragraph (1), direct the heads of the appropriate Federal departments and agencies to implement Acts of Congress to counter and deter Chinese and other foreign information warfare and malign influence operations without delay, including –
-
-(A) section 1043 of the John S. McCain National Defense Authorization Act for Fiscal Year 2019 (Public Law 115–232), which authorizes a coordinator position within the National Security Council for countering malign foreign influence operations and campaigns;
-
-(B) section 228 of the National Defense Authorization Act for Fiscal Year 2020 (Public 18 Law 116–92), which authorizes additional research of foreign malign influence operations on social media platforms;
-
-(C) section 847 of such Act, which requires the Secretary of Defense to modify contracting regulations regarding vetting for foreign ownership, control and influence in order to mitigate risks from malign foreign influence;
-
-(D) section 1239 of such Act, which requires an update of the comprehensive strategy to counter the threat of malign influence to include the People’s Republic of China;
-
-(E) section 5323 of such Act, which authorizes the Director of National Intelligence to facilitate the establishment of Social Media Data and Threat Analysis Center to detect and study information warfare and malign influence operations across social media platforms; and
-
-(F) section 119C of the National Security Act of 1947 (50 U.S.C. 3059), which authorizes the establishment of a Foreign Malign Influence Response Center inside the Office of the Director of National Intelligence.
+*编辑、发稿 文锦*
 
 0

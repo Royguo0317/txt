@@ -1,33 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 约翰·霍普金斯大学：全球染疫死亡人数超300万人
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1109623/)
+## 【热点播报】挪威卫生专家建议禁用阿斯利康疫苗
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1109629/)
 
-俄罗斯莫斯科喀秋莎农场  爱真理
+纽约香草山写作组   四季
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/D-7.jpg)abc7.com
-根据约翰·霍普金斯大学的数据，由于确诊病例激增至超过1.4亿，星期六中共病毒造成的全球死亡人数超过300万人。
+《零对冲》4月16报道，挪威的公共卫生官员决定禁止阿斯利康COVID-19疫苗注射剂，因为它有罕见但有时是致命的脑血栓风险。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-34.png)
+最新的迹象表明，北欧国家正着手封杀阿斯利康疫苗注射剂，因为挪威的主要公共卫生专家已经正式建议他们的政府实施类似的禁令，将阿斯利康疫苗从挪威的冠状病毒疫苗接种计划中删除。
 
-在人们对强生疫苗产生担忧之后，疫苗分发工作陷入瘫痪之际，出现了一个阴沉的里程碑。
+挪威国家公共卫生研究所感染控制主任盖尔·布霍尔姆（Geir Bukholm）指出，这并不是一项容易的建议。在挪威，接种阿斯利康疫苗比Covid-19疾病的相关风险更大。
 
-世界卫生组织（WHO）中共病毒负责人之一玛丽亚·范·科霍夫（Maria Van Kerkhove）表示：“这不是我们希望在疫情16个月内发生的情况，我们已经证明了有效的控制措施。”
+然而，挪威卫生部长本特·霍伊（Bent Hoeie）表示，政府还不会做出决定。如果挪威政府接受这一建议，挪威将成为继丹麦之后第二个停止使用阿斯利康疫苗注射剂作为该国COVID免疫计划一部分的国家。鉴于疫苗接种后发生血栓性事件的风险明显但非常罕见，许多国家已经限制使用该疫苗。
 
-疾病控制与预防中心（CDC）周四决定放弃对疫苗工作的指导意见，该委员会建议在有近700万接受者报告6例罕见的严重血凝块后暂停使用强生疫苗。
+根据最新的世界卫生组织的警告，Covid感染率已经达到迄今为止的最高水平。世卫组织的主要优先事项之一是提高疫苗接种，希望通过 Covid疫苗帮助所有国家结束大流行。然而疫苗灾难频发，对试验性疫苗对人类未来的影响不得而知。不追究病毒来源，想通过试验性疫苗结束中共病毒大流行显然是不现实的，只有灭共，才能结束这场史无前例的病毒大流行。
 
-疫苗接种工作已开始大步向前，超过了拜登总统就职后头100天的最初目标1亿剂。截至4月8日，大约有6600万美国人接受了全程疫苗接种-占总人口的20％。
+原文链接：[https://www.zerohedge.com/covid-19/norways-health-experts-recommend-banning-astrazeneca-jab-nordics-get-cold-feet](https://www.zerohedge.com/covid-19/norways-health-experts-recommend-banning-astrazeneca-jab-nordics-get-cold-feet)
 
-福奇（Anthony Fauci）说，他希望CDC会很快宣布有关强生疫苗的新指南，以便继续分发。
+审核/发稿：正义的小新
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+**更多资讯，更多关注**
 
-疫苗接种运动1月份才开始在美国和欧洲开展，当时全世界的死亡人数已超过200万人，但今天有190多个国家正在推进这一过程。
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-该过程同样受到疫苗开发问题的困扰：中共国卫生官员上周宣布，由Sinovac和Sinopharm开发的疫苗“没有很高的保护率”。他们的疫苗已经出口到22个国家，包括墨西哥，土耳其，印度尼西亚和巴西–目前是该流行病的一些热点地区。
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-巴西是世界上受灾最严重的国家，确诊病例约为1380万例，但它已经记录了368,749例死亡，成为全球第二大染疫死亡人数最多国。
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-原文链接：
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[https://www.foxnews.com/health/worldwide-covid-deaths-3-million](https://www.foxnews.com/health/worldwide-covid-deaths-3-million)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -1,35 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 自传体小说连载之一：《我的忏悔录》
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1109544/)
+## 【热点播报】中共再造大量病毒实验室，毒害全球不停步！
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1109528/)
 
-#### 
-谨以此文献给“在中共国长大的人”
+美东香草山写作组：大兄dei
 
-#### 作者：峥嵘
+印度标准时间4月16日晚，印度媒体“经济时报”（The Economic Times）在其网站刊发新闻，标题为“在武汉实验室对新冠病毒起源所扮演的角色尚存疑之际，中国欲造更多的生物实验室”（“China to build more bio labs amidst questions over Wuhan lab’s role in coronavirus origin”）。
 
-#### 责编：白夜
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-37.png)
-#### 
-第一章 童年-1
+文中援引中国科学技术部副部长相里斌的谈话，指出中国科学技术部已检验并批准建立3个P-4实验室和88个P-3实验室。文中也引用中国科学院院长白春礼在2020年4月份的讲话，提到中国已有两个P-4和81个P-3实验室在运行中或已被批准建设。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-33.png)
+CCP病毒贻害全球，截至美东时间4月16日下午三点全球新增确诊人数为844,796，至此全球总确诊数为140,313,922，死亡病例总数为3,007,650（资料来源：大纪元时报）。邪共之恶，罄竹难书！
 
-我出生在中共国北方的一个大城市，父亲在部队，母亲是机关干部。我很小的时候，赶上唐山大地震，我所在的城市，也有很强烈的震感。那时候，我家住的是楼房，地震發生时，已是深夜。记得当时家裡悬在电线下的灯泡，突然开始晃动！在母亲「地震啦」的大喊声中，我从睡梦中惊醒，被母亲连拉带拽地跑到楼外。好在当时我们住在一楼，冲出楼栋门，只需几米的距离。
+新闻网址：[https://economictimes.indiatimes.com/news/international/world-news/china-to-build-more-bio-labs-amidst-questions-over-wuhan-labs-role-in-coronavirus-origin/articleshow/82104699.cms](https://economictimes.indiatimes.com/news/international/world-news/china-to-build-more-bio-labs-amidst-questions-over-wuhan-labs-role-in-coronavirus-origin/articleshow/82104699.cms)
 
-那时好像是夏天，大街上站满了附近楼栋的居民，人声鼎沸，惊魂未定。我被母亲紧紧地拉着手，跟邻居们站在一起。周围有一些小朋友，在人群裡打闹穿梭。我也想跟他们一起玩，但抬头看到母亲焦虑的神情，我立即打消了那个念头。过了很长时间，听到有人喊「没事了」！人们才挪动着疲惫的身躯，陆陆续续回到各自的家裡。
+审核/发稿：正义的小新
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+**更多资讯，更多关注**
 
-后来听老人说，我们那个城，地下有一个巨大无比的乌龟壳，再大的地震也没事。虽然这样讲，但是母亲还是放心不下，她思来想去，还是决定把我送到我二姨家，那裏没有地震，安全些。
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-那时候，我年龄小，还没到上学的年龄。记忆裡，我们那个城市到处都是灰灰的颜色。楼房是灰色的，天空也是灰色的，街上的行人也是灰色的。母亲也总是穿着一件灰色的外套，拎着一个黑色的上海牌皮包，骑单车去上班。每天下班回来，我感觉她整个人也是灰色的。
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-我二姨家，在我们那个城的北方，要坐很长很长时间的火车。那也是我第一次坐火车，我新奇极了，也快活极了。
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-记得上火车那天，下着很大的雨，在火车站等了很久。后来好不容易，才在一个铁路局叔叔的帮助下，把我送上了火车。我现在居然想不起，是谁带我坐火车的了。肯定不是母亲，母亲工作非常忙，她想入党，不能请假送我。
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-火车是那种最普通的绿皮火车，车身是绿色的，座位也是绿色的。那时候，车厢裡好像也没有多少人，是有座位的。一路无话，几经周折，我终于到了二姨家。（其实，路上的事我都不记得了，只好这样一笔带过）
-
-二姨家在一个很小很小的地方，比我们那个城小多了。那裏还没有柏油路，到处都是砂石路。后来我才知道，那个地方叫聚贤屯，算是一个小镇。镇裡只有一条贯穿南北的大马路，就是那里的主街了。只有在这条街上，才有百货公司、副食商店什么的。
-
-（未完待续）
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

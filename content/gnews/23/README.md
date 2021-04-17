@@ -1,149 +1,92 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 自由诗——日子不好过
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1109956/)
+## 美国《2021战略竞争法》第133节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1110041/)
 
-俄罗斯莫斯科喀秋莎农场 小蚂蚁的自由
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-编辑上传 银河
-![]()![](https://cdn.discordapp.com/attachments/820270844600909864/827247934185799700/-1.jpg)俄罗斯莫斯科喀秋莎农场 文宣
-**日子不好过**
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/P-18.jpg)ceias.eu
+本节为**副标题D——抵制中国共产党的影响**中的第133节
 
+本节要点：总统列举了中共国数宗、数十条恶意活动，包括宣传和造谣，恶意政治影响行动，恶意经济影响行动。中共国利用法律、政治和经济杠杆（如中共国市场的诱惑）来塑造信息环境，利用对美国系统的网络攻击来审查或压制它认为具有政治敏感性的观点。中共的目标是”努力改变我们的政策和舆论，在各种问题上更加亲中“。中共国正在利用美国高等教育机构开放的研发环境，利用“教授，科学家和学生”作为“非传统的”信息收集器。
 
+欲了解更多的內容，请看本节全文（仅供参考）。
 
-日子不好过
-东北的黑土地
-结成了块
-庄稼不再好长出来
-日子不好过
-九十八岁的他
-还要在路边
-摆一个菜摊
-最怕城管过来
-把这小小的菜摊揣翻
-日子不好过
-幼小的孩子啊
-在幼儿园被逼着
-闻老师的臭脚
-他幼小的自尊
-永远会蒙上阴霾
-日子不好过
-十三岁的女孩
-被强了奸
-不愿私了
-要为自己诉求共公平对待
-结果被自己的父母
-报以铁拳
-日子不好过
-当土地不再生产
-当老人不能安享晚年
-当幼儿不再被老师保护
-当孩子不再被父母庇佑
-那么
-这样的国度已经成为地狱般的存在
-你如果不努力把它去改变
-终于有一天
-所有的悲剧
-就会在你的身上
-重演
-![]()![](https://cdn.discordapp.com/attachments/820270844600909864/823138060597985320/0001-18618500736_20210321_181611_0000.png)
-**哭诉无门**
+第133节 关于中共国信息战和恶意影响行动的调查结果
 
-听说
-信访办的门口
-队伍排了几公里外
-有风有雨有雪有冰雹
-人群从来没有退去
-听说
-北京又开始驱赶低端人口
-一夜之间
-你就是无家可归的流浪人
-哦
-不
-你有一个家
-你曾经有过一个家
-被强拆了
-于是
-你就成了那个长长的队伍里的一个
-你排呀排
-盼呀盼
-希望有一个地方
-可以诉冤
-可是你从来没有想过
-你为什么变的无家可归
-你为什么变成了流浪的一员
-风依然在吹
-雨仍然在下
-心里的泪已经流成了河
-身体也许正在冰冷
-可是
-你有没有想过
-你为什么变的无家可归
-流浪的人
-信访的人
-你究竟有没有想过
-为什么你哭诉无门
-……….
-信访办门口的队伍依然排着长长的人龙
-![]()![](https://cdn.discordapp.com/attachments/820270844600909864/827014724142759966/ccp_evil-9.jpg)
-**听说**
+（a）调查结果 – 国会得出以下结论：
 
-听说
-这个国家的GDP 世界第二
-军队强大的可以在海上
-像螃蟹在陆地一般
-横行
-听说
-这个国家成了厉害国
-外交官们呀
-可以像战狼一样
-到处嗷嗷咆哮
-听说
-这个国家钱多的
-到处撒币
-解决了许多非洲国家的国民生计
-它被那些国家的孩子天天感谢
-听说
-这个国家已经没有了贫困户
-脱贫成功成为世界典范
-还要给别的国家传受经验之谈
-那么
-一个小女孩
-孤独的住在猪圈一样的黑房子里
-有时候一天没有一顿饭
-她没有衣穿
-饿着肚子
-用一只破旧的凳子当书桌
-请告诉我
-她是谁家的孩子
-为什么孤零零的住着，饿着
-没有关怀
-她的国家在哪里
-又是谁
-脱了她的贫
-让她更加贫穷
-那么
-这厉害了的国
-有着恐怖数字的GDP
-和强大的军队
-和她有什么关系
-如果一个国家
-不能保护自己人民
-最起码的衣食住行
-那么
-这样的国家
-不过就是一个零
-那威风凛凛的军队
-都是助纣为虐的暴卒
-那高高在上的你们
-就是真正的蛆虫
-没有人性
-失去道义
-坠入魔道
-万劫不复
-的蛆虫
+（1）根据《2019财年约翰·麦凯恩国防授权法案》（the John S. McCain National Defense Authorization Act for Fiscal Year 2019）（第115–232号公共法）第1261（b）节的规定，在向国会提交的报告中，总统列举了中共国政府及其代理人和实体进行的一系列恶意活动，包括 –
+（A）宣传和造谣，其中“北京通过国营电视台、印刷品、广播和网络组织传播其说法，这些组织在美国和世界各地的正在扩散”
+（B）恶意政治影响行动，其中“针对那些一线机构和代理人，包括美国和世界各地的企业、大学、智库、学者、记者、地方州和联邦官员等，试图进行言论影响”
+（C）恶意经济影响行动，其特征是“盗用技术和知识产权，没有真实披露与外国政府赞助实体的关系，违反合同和保密规定，操纵公平和择优分配联邦研发资金的程序”
 
+（2） 中共国的信息战和恶意影响行动正在进行，2019年1月，国家情报局局长丹·科茨（Dan Coats）表示，“中共国将继续利用法律、政治和经济杠杆（如中共国市场的诱惑）来塑造信息环境，它还能够利用对美国系统的网络攻击来审查或压制它认为具有政治敏感性的观点。
 
+（3）2020年2月，联邦调查局局长克里斯托弗·雷伊（Christopher Wray）在众议院司法委员会作证说，中共国“在这个国家有非常积极的（恶意的）外国影响努力”，目标是”努力改变我们的政策和舆论，在各种问题上更加亲中“。
+
+（4）中共国的信息战和恶意影响行动，继续采用新的战术，不断发展成熟。2020年5月，全球参与中心（GEC）的特使兼协调员莉亚·加布里埃（Lea Gabrielle）声明说，围绕中共病毒，俄罗斯和中共国的叙述趋于一致，全球参与中心“发现了一个新的不真实的推特（Twitter）账户网络”，并评估该网络“旨在扩大中共国的宣传和造谣”。2020年6月，谷歌（Google）报道称，中共国黑客试图进入一位总统候选人竞选团队的电子邮件账户。
+
+（5）中共国的信息战和恶意影响行动对美国及其盟国和伙伴的国家安全、民主和经济体系构成威胁。2018年10月，美国副总统彭斯（Mike Pence）警告称，“北京正在采取一整套政府手段，利用政治、经济和军事工具，以及宣传，提升其影响力，造福于他们在美国的利益。”
+
+（6）2018年2月，联邦调查局局长斯托弗·雷伊（Christopher Wray），向参议院情报特别委员会作证说，中共国正在利用和利用美国高等教育机构开放的研发环境，利用“教授，科学家和学生”作为“非传统的”信息收集器。
+
+（b）总统职责-总统应该-
+
+（1）保护我们的民主制度和民主进程不受中共国和其他外国对手的恶意影响。
+（2）根据第（1）款规定的政策，指示相关联邦部门和机构的负责人立即实施国会法案，以打击和阻止中共国和其他外国信息战和恶意影响行动，包括-
+（A）《2019财年约翰·麦凯恩国防授权法案》（第115–232号公共法）第1043节，授权在国家安全委员会内设立一个协调员职位，负责打击恶意外国影响行动和战役
+（B）《2020财年国防授权法》（第116–92号18号公共法）第228节，授权对社交媒体平台上的外国恶意影响行动进行额外研究
+（C）该法案第847节要求国防部长修改有关审查外国所有权、控制权和影响力的合同规定，以减轻外国恶意影响的风险
+（D）该法第1239节要求更新应对恶意影响威胁的综合战略，将中共国包括在内
+（E）该法案第5323节授权国家情报局局长协助建立社交媒体数据和威胁分析中心，以检测和研究跨社交媒体平台的信息战和恶意影响行动
+（F）1947年《国家安全法》第119C节（《美国法典》第50卷第3059节），授权在国家情报局局长办公室内设立外国恶意影响应对中心
+（本节完）
+
+在文贵先生、新中国联邦引领下，美国高层、立法机构对邪共终于有了这样的认知。当然，中共爪牙、亲共分子不会善罢甘休，肯定会负隅顽抗，百般阻拦，近期接二连三的国会听证会上，不乏有对恶共有利的声音。让他们尽情地表演吧，只要此法通过，看看还有多少亲共小丑会浮出？
+
+文字整理：
+
+SEC. 133. FINDINGS ON CHINESE INFORMATION WARFARE AND MALIGN INFLUENCE OPERATIONS.
+
+(a) FINDINGS. – Congress makes the following findings:
+
+(1) In the report to Congress required under section 1261 (b) of the John S. McCain National Defense Authorization Act for Fiscal Year 2019 (Public Law 115–232), the President laid out a broad range of malign activities conducted by the Government of China and its agents and entities, including –
+
+(A) propaganda and disinformation, in which ‘‘Beijing communicates its narrative through state-run television, print, radio, and online organizations whose presence is proliferating in the United States and around the world’’;
+
+(B) malign political influence operations, in which ‘‘front organizations and agents which target businesses, universities, think tanks, scholars, journalists, and local state and Federal officials in the United States and around the world, attempting to influence discourse’’; and
+
+(C) malign financial influence operations, characterized as ‘‘misappropriation of technology and intellectual property, failure to appropriately disclose relationships with foreign government sponsored entities, breaches of contract and confidentiality, and manipulation of processes for fair and merit-based allocation of Federal research and development funding’’.
+
+(2) Chinese information warfare and malign influence operations are ongoing. In January 2019, the Director of National Intelligence, Dan Coats, stated, ‘‘China will continue to use legal, political, and economic levers—such as the lure of Chinese markets – to shape the information environment. It is also capable of using cyber attacks against systems in the United States to censor or suppress viewpoints it deems politically sensitive.’’.
+
+(3) In February 2020, the Director of the Federal Bureau of Investigation, Christopher Wray, testified to the Committee on the Judiciary of the House of Representatives that the People’s Republic of China has ‘‘very active [malign] foreign influence efforts in this country,’’ with the goal of ‘‘trying to shift our policy and our public opinion to be more pro-China on a variety of issues’’.
+
+(4) The People’s Republic of China’s information warfare and malign influence operations continue to adopt new tactics and evolve in sophistication. In May 2020, the Special Envoy and Coordinator of the Global Engagement Center (GEC), Lea Gabrielle, stated that there was a convergence of Russian and Chinese narratives surrounding COVID–19 and that the GEC had ‘‘uncovered a new network of inauthentic Twitter accounts’’ that it assessed was ‘‘created with the intent to amplify Chinese propaganda and disinformation’’. In June 2020, Google reported that Chinese hackers at tempted to access email accounts of the campaign staff of a presidential candidate.
+
+(5) Chinese information warfare and malign influence operations are a threat to the national security, democracy and the economic systems of the United States, its allies and partners. In October 2018, Vice President Mike Pence warned that ‘‘Beijing is employing a whole-of-government approach, using political, economic, and military tools, as well as propaganda, to advance its influence and benefit its interests in the United States.’’.
+
+(6) In February 2018, the Director of the Federal Bureau of Investigation, Christopher Wray, testified to the Select Committee on Intelligence of the Senate that the People’s Republic of China is taking advantage of and exploiting the open research and development environments of United States institutions of higher education to utilize ‘‘professors, scientists and students’’ as ‘‘nontraditional collectors’’ of information.
+
+(b) PRESIDENTIAL DUTIES. – The President shall –
+
+(1) protect our democratic institutions and processes from malign influence from the People’s Republic of China and other foreign adversaries; and
+
+(2) consistent with the policy specified in paragraph (1), direct the heads of the appropriate Federal departments and agencies to implement Acts of Congress to counter and deter Chinese and other foreign information warfare and malign influence operations without delay, including –
+
+(A) section 1043 of the John S. McCain National Defense Authorization Act for Fiscal Year 2019 (Public Law 115–232), which authorizes a coordinator position within the National Security Council for countering malign foreign influence operations and campaigns;
+
+(B) section 228 of the National Defense Authorization Act for Fiscal Year 2020 (Public 18 Law 116–92), which authorizes additional research of foreign malign influence operations on social media platforms;
+
+(C) section 847 of such Act, which requires the Secretary of Defense to modify contracting regulations regarding vetting for foreign ownership, control and influence in order to mitigate risks from malign foreign influence;
+
+(D) section 1239 of such Act, which requires an update of the comprehensive strategy to counter the threat of malign influence to include the People’s Republic of China;
+
+(E) section 5323 of such Act, which authorizes the Director of National Intelligence to facilitate the establishment of Social Media Data and Threat Analysis Center to detect and study information warfare and malign influence operations across social media platforms; and
+
+(F) section 119C of the National Security Act of 1947 (50 U.S.C. 3059), which authorizes the establishment of a Foreign Malign Influence Response Center inside the Office of the Director of National Intelligence.
 
 0
