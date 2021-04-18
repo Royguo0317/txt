@@ -1,49 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战云长天时评53期】如何看路德社说新的美日联合声明让中共彻底歇菜！
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1112734/)
+## Lawrence Sellin博士推出舒红兵&amp;江绵恒是否意味着江绵恒是一号毒王
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1112984/)
 
-作者：喜马拉雅东京樱花团｜捆绑CCP一千年
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-![](https://lh6.googleusercontent.com/celGVTzaoLqwm3GaOT8_zeH_YrhuiLTa2EU5lsNT5Xq5iBEcOaxCWfKBCZdmCWOipvaTMaYnJRsxiB_1NbDd24cs5qrywIg0unzMTSLbIyrzwKgFAs9yzfskwyE2lN0WVogTg1xi)
+据[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午8:56 · 2021年4月18日](https://twitter.com/LawrenceSellin/status/1383766495449075712)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文
 
-[图片源自](https://www.dw.com/zh/%E7%BE%8E%E6%97%A5%E5%B3%B0%E4%BC%9A%E8%81%9A%E7%84%A6%E4%B8%AD%E5%9B%BD-%E6%B6%89%E5%8F%B0%E8%81%94%E5%90%88%E5%A3%B0%E6%98%8E%E5%BC%95%E5%85%B3%E6%B3%A8/a-57220941)
 
-美国时间4月17日，路德社路德时评（路博艾谈）：美日联合声明“让中共彻底歇菜！日本封印彻底被解开意味着什么？……”报道可谓超级震撼，笔者首先和所有中国人有一个共同的想法是，美国解除对日本军事武装正常化限制到底意味着什么？会不会是美国放虎归山？会不会引起中国人新的忧虑？其实，这就是中共国防火墙对信息的封锁带来的完美犯罪心理效应，因为中共虽然在1969年已经寻求中日关系正常化，其实中共一直在对日本以钓鱼岛问题为借口对日本进行各样胁迫，对内做足了反日宣传，这种长期的反日宣传使中国人完全丧失对基本价值观的判断，对日仇恨彻底固化，就连路德也有一丝顾虑，这一举措会不会是轻而易举地使日本实现东亚共荣圈的梦想？
 
-人们可以从中共外交部战狼的嚎叫中听到一种有价值的信息，即环球时报《美日首脑发表涉台联合声明！系1969年来首次，毫不掩饰联手遏中》这一报道给读者提供了可靠的历史资料，而不是中共方狡辩的鬼话。
+> There is increasing evidence that activities involving Wuhan University with the participation of certain individuals may be intimately linked to the release of [#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#corona](https://twitter.com/hashtag/corona?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/JgfOVtXrTl](https://t.co/JgfOVtXrTl)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 18, 2021](https://twitter.com/LawrenceSellin/status/1383766495449075712?ref_src=twsrc%5Etfw)
 
-笔者看到的事实是，时任美国尼克松总统助理基辛格的访日备忘录中可见一斑，《122.从国家安全事务总统助理（基辛格）到 尼克松总统1的备忘录》中，基辛格说道，“总的来说，美国确实非常重视与日本的关系，并认为维持美日同盟对太平洋和平至关重要。我们自己对《美日相互安全条约》感到满意，并认为在可预见的将来应将其保持目前的形式。如果提出任何更改，则必须来自日本。当然，我们认识到日本是一个重要的，成熟的国家，我们愿意考虑日本可能希望对《安全条约》进行的任何调整。”（见《美日历史》）应该注意的是，中方此番反制可以说做了一些功课，问题是，美国明确指出，“《美日相互安全条约》如果提出任何更改，则必须来自日本。”如今就是再次得到更改的历史契机，这也是中共方恐慌地提到的“系1969年来首次”做出美日安保同盟的改变，并继续以谎言刺激墙内中国人说，“日本是一个野心勃勃的国家，一直企图对外进行扩张，与周边国家均存在岛礁争端，菅义伟上台后，在岛礁争端问题上十分激进，迫切渴求取得进展。”（见《环球》）中共通过超限生物战导致全球疫情大流行现状看，众所周知，“野心勃勃的国家”是中共国，而非今日之日本，准确地说是1969年后的日本。而1969年的中共国在做什么呢？继续在文革大屠杀中“清查‘五·一六反革命集团’运动”，这一运动主要针对极左红卫兵对周恩来实施迫害的肃清工作，也可以说，中共圈养的疯狗红卫兵在文革中完全失控，不知道主人到底是毛还是周，或是毛周？
 
-![](https://lh5.googleusercontent.com/J1RB7Qnzq4RuIktExyjSY3v6WHJsy1uzy9y-QfYcQkYHJbbGtk1OiGA9-jWaqhk2fxn39KdNVLqeBrhzJH_0Jtn7z75otFNvvjPnESvMMogGMB6XtOmn6MrasYC0SZiSbHGb3bW3)
 
-[图片源自](https://www.bbc.com/zhongwen/simp/world-56783433)
+There is increasing evidence that activities involving Wuhan University with the participation of certain individuals may be intimately linked to the release of [#COVIDー19](https://twitter.com/hashtag/COVIDー19?src=hashtag_click) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hashtag_click) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click) [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) [#corona](https://twitter.com/hashtag/corona?src=hashtag_click)
 
-世界人民应该清醒地认识到，真正的威胁是中国共产党政权，这一点，中共国内人们尤为认识其重要性。因为1969年的日本政府谈到“日本在世界上的作用”时很明确地向基辛格提出疑问说，“一些日本人对您的‘五大世界’的含义有很奇怪的看法。他们认为这意味着我们正在推动日本成为军事大国，或者将日本与俄罗斯和中国归为同一类。”（见《美日历史》）这里，时任日本政府明确表示了担心，认为美国主动与之建立美日同盟是促使日本国再次重蹈军国主义覆辙，这就是基辛格肯定地承认日本已经是一个可以值得信任的“成熟的国家”。当时日本政府显然和基辛格有过坦诚的交换意见，日本毫不客气地提出，“日本人不断地对中国问题进行两个方面的思考：您访问中国期间是否与周恩来在台湾达成了任何秘密交易？如果日本接受周恩来实现与中国关系正常化的三个条件，美国政府会做出什么反应 ？”基辛格明确地说，“我向日本人保证，北京方面在台湾方面没有达成任何秘密协议。在联合公报中，我们只承认台湾海峡两岸的华人对台湾地位的看法，并没有挑战，也没有注意到这一立场。”（见《美日历史》）这里基辛格的两个保证提到，美国绝对没有和北京在台湾方面有任何秘密，《中美三个联合公报》只提到台海两岸华人对中国大陆和台湾有着各自不同看法而已，并非中共国谎言欺骗中共国内人民说，美国只承认一个中国——中共国。这里基辛格明确指出，不是这样的。
+中文大意：越来越多的证据表明，武汉大学在某些人的参与下的活动可能与[#COVIDー19](https://twitter.com/hashtag/COVIDー19?src=hashtag_click)[中共病毒](https://twitter.com/hashtag/CCPVirus?src=hashtag_click)[#超限生物武战](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click) [#超限生物武器](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)[＃COVID19溯源](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click)[#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) [#Coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) [#corona](https://twitter.com/hashtag/corona?src=hashtag_click)的释放密切相关。
 
-为此，人们有理由相信，中共这次是彻底慌了，正如路德所言，“让中共彻底歇菜！”让日本领衔灭掉共产党政权，这或许是拜登总统两全考虑，一来，拜登自己认为他是和中共仍有利益冲突，让最能了解中共、离中共最近的日本走在消灭中共战役前线是最好不过的事，二来，还可以因此组成更大的同盟圈，即日、美、印、韩、奥的等北约国家集体参与作战，其好处是消灭中共已经是人人有责的历史和时刻。任何一个国家都不可能在疫情面前独善其身，最好的办法是对罪魁祸首中共群起而殴之。毕竟，中共中间夹杂着朝鲜问题，和主要的病毒起源溯源问题，中共本身又是核大国，要软着陆的解体中共这个核大国，绝非斩首习近平等人那么简单。
+在此前Lawrence Sellin博士已经发推诠释了13579计划——
 
-人们应该有理由相信，新的《美日联合申明》绝对又是人类文明重新恢复新秩序的开始，就像二战后的日本回归理性一样，成为国际社会文明邦交国的榜样之一。在可预见不久的将来，新兴的新中国联邦也一定可以再次发挥和维护世界和平秩序的主要力量之一，他的诞生将象征着一望无际的晴朗的蓝色天空。世界不再有新的纳粹威胁人类生活。相信这一次是中国人最后一次重生并重新赢得国际社会尊重的重要契机。
 
-2021年4月18日写于东亚
 
-参考引用：
+> My analysis of the Chinese Communist Party's dual-use military-civilian R&D program for novel genetically-engineered coronaviruses & heterologous vaccines against multiple strains, roughly follows this development plan, but involves more than one virus & a premature release. [pic.twitter.com/QYkJCJG17S](https://t.co/QYkJCJG17S)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 17, 2021](https://twitter.com/LawrenceSellin/status/1383494654633472007?ref_src=twsrc%5Etfw)
 
-[美日历史](https://history.state.gov/historicaldocuments/frus1969-76v19p2/d122)
 
-[环球时报](https://new.qq.com/omn/20210418/20210418A01WWH00.html)
 
-[路德社](https://youtu.be/gAwDGHDMO5s)
+那么Lawrence Sellin博士发推把舒红后和江绵恒推出来意味着啥呢？这就要涉及到南普陀计划和习近平在江家眼里是什么角色的问题了，郭文贵先生在[2021年2月17号 文贵直播： 马云被抓，今年是南普陀计划的收割年；江家是沼泽地的一部分；新中国联邦将是主角](https://gtv.org/video/id=602d3cebbe64150df85ac9bf)直播中提到：
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
+［我们讲南普陀计划的时候，有人给江家辟谣嘛？没人给江家辟谣。南普陀计划就是找了个傀儡是谁啊，习近平。潘多拉盒子，潘多拉盒子，武汉实验室，包括冠状病毒、包括对香港、台湾的“双龙计划”。咱们说的时候有人出来辟谣嘛？没人出来辟谣，］
 
-*校对：喜马拉雅东京樱花团 / 東洋武士*
+［上海帮是沼泽地里面的主人，习近平不是。还轮不着他呢，他不配。今天习在前面玩的什么冠状病毒哇、疫苗病毒呀、疫苗经济呀，把他咔嚓给他干掉以后，这些饭都是给人家江家做的，中国的沼泽地就是上海人呐、就是上海帮。］
 
-*责任编辑：喜马拉雅东京樱花团 / 文小白*
+以及郭文贵先生在[2021年2月18日 文贵直播： 南普陀计划得到验证，江习大战进入最后时刻，江扶植韩正当傀儡接班人；川普是我们永远的朋友；九…](https://gtv.org/video/id=602e8fe0be64150df85c3194) 中提到的：
 
-*发布：喜马拉雅东京樱花团 / 传福音的人*
-![]()![](https://gnews.org/wp-content/uploads/2021/04/二维码.jpg)
-0418C094a
+［咱们这位姐妹说这个南普陀这个计划，因为她认识这些人和他们所走的这些路，他们知道南普陀的存在。她说在这些人眼里面，习他就是个二货，他是个二货啊，她说一定毋容置疑的，所有习搞这个所谓的以毒灭白、灭白计划、还有潘多拉计划，包括这个所谓的网络加强控制、包括在香港的这个双龙计划、包括对香港人的打压、包括对国内的所谓企业迅速国有化、包括在世界上加入沼泽地统治全世界把国际共产主义做强做大。
 
-0
+她说这很多人都不愿意去看，她说邓小平南下的时候，南下的时候说过什么、为什么南下呀？是因为江泽民，选了江泽民以后上来一年两年，这哥们他不想所谓的开放市场，他不想搞真正的所谓的中国的政治改革和经济改革，很明显。而且这个江最要做的事情就是所谓的中国企业，马上私人企业都要取消以国有企业为主，也就是今天习搞的这一套，而且要组织所有的私人企业去井冈山、延安学习，这都是当年江要搞的。当年邓小平一怒之下到了南方，到了南方以后就说，你这是谁不搞改革谁就要下台滴。
+
+所谓的一个老人去到了南方转了一圈，说划了一个圈、讲了一阵话，叫南方讲话。后来江泽民开始搞市场、搞改革、允许私营企业继续发展。她说今天所有习这一套路子都是当年江想干没干得了的，包括修宪、一辈子干到底，江最想让他儿子江绵恒是来当、接他的班的。修宪以后江要继续干，然后江绵恒继续干，结果江绵恒的肾不争气、肾换了一回又一回，这对江家是个大的伤害，江到了以后、拿到权力以后，最大的植耕于权力的核心就是军队，他为啥把张万年这些人都干掉，然后杯酒释兵权把张震这些老家族弄到西山去待着去吧，给你们家里边一些企业，然后把邓家的你想想搞这个保利，你们都滚一边去弄钱去吧，军权全拿下。
+
+这是为什么王岐山一定要干掉王瑞林，因为王瑞林还是代表着邓家的势力，就是江家没干成的事王岐山帮他干，就是当年江想干的事，他没干成的他让习王帮他干。后来习修了宪以后，他下一个他这个儿子身体不行啊孙子又不行啊都是肾都不太好，老换肾也不行啊，换肾是受次数限制的，怎么办呢？大家就知道了，韩正，韩正还有另外两个人今天我不说，绝对是你想象不到的，韩正不行，韩正即使上去，中国历代的皇家之下，一定要什么，叫监国，左监国、右监国，或者外监国、内监国，给韩正也都安排好了监国，都准备好啦。
+
+就是他所有的，你看到的所有的中国企业国有化、中国的一带一路、中国利用世界上所有的共产主义国家把种族主义打到底，团结亚非拉，团结中东、亚非拉中，然后把穆斯林、伊斯兰教的极端主义和共产党连在一起成为兄弟姐妹，这都是当年江要干的事情。江唯一的说在香港跟现在稍有不同，江认为要把中国的精英主义彻底地控制香港，用掺沙子每天给几万个单程把香港变成一个加大版的深圳，这叫大湾区。而且江说要对台湾要实行精神、文化、经济，所有的可能的叫软性统独，叫软性统独。那么习是硬统独，就这点不同，其他一切都是江的计划，就是南普陀计划。
+
+什么时候要把习干掉？现在这些事基本干完了，潘多拉盒子也打开啦，以毒灭白，是不是？以疫苗灭白也已经完成啦，美国的所有的沼泽地的计划也基本执行差不多啦，江的身体也不行啦，中国军队再撑下去，江的影响力就会逐渐衰减。王岐山在控制着经济牢牢在手。这些事情都到时候要卸磨杀驴啦，特别这个驴又太不听话，比较二，是吧！那就是习，干掉他。所以说这是一个核心。再往下弄，习就真做大啦，真做大啦，习就真做大啦！不是假做大啦！所以说现在要开始干，他俩之间一定有一个倒下的，要么是上海派干掉，要么习派干掉。］
+
+综合以上信息我们可以得出什么结论呢？长话短说就是习近平只是江家的一个使唤丫鬟，最终的幕后老大就是江家，而Lawrence Sellin博士的推特则进一步验证江绵恒才是13579计划的真正的指挥和控制者，那么舒红兵是谁呢？据[百度百科——舒红兵](https://baike.baidu.com/item/%E8%88%92%E7%BA%A2%E5%85%B5/7397820?fr=aladdin)：［舒红兵，男，汉族，1967年1月出生重庆市[荣昌县](https://baike.baidu.com/item/%E8%8D%A3%E6%98%8C%E5%8E%BF/8291425) [1] ，[无党派人士](https://baike.baidu.com/item/%E6%97%A0%E5%85%9A%E6%B4%BE%E4%BA%BA%E5%A3%AB/2088083)，细胞生物学家、免疫学家 [2]  ，[中国科学院院士](https://baike.baidu.com/item/%E4%B8%AD%E5%9B%BD%E7%A7%91%E5%AD%A6%E9%99%A2%E9%99%A2%E5%A3%AB/327194)，[发展中国家科学院院士](https://baike.baidu.com/item/%E5%8F%91%E5%B1%95%E4%B8%AD%E5%9B%BD%E5%AE%B6%E7%A7%91%E5%AD%A6%E9%99%A2%E9%99%A2%E5%A3%AB/2173686)，[武汉大学](https://baike.baidu.com/item/%E6%AD%A6%E6%B1%89%E5%A4%A7%E5%AD%A6/106709)副校长、医学研究院院长、教授 [2-3] 。舒红兵于1987年毕业于兰州大学；1990年，获中国医学科学院基础医学研究所硕士学位；1995年，获[美国埃默里大学](https://baike.baidu.com/item/%E7%BE%8E%E5%9B%BD%E5%9F%83%E9%BB%98%E9%87%8C%E5%A4%A7%E5%AD%A6/10492576)博士学位；2011年当选为中国科学院院士 [2]  ；2012年，当选为发展中国家科学院院士 [3] 。舒红兵主要从事免疫相关的细胞信号转导研究 [2] 。］
+
+舒红冰的妻子是王延轶，王延轶又名王延铁，在此前DT挖掘机在G-News发布的[【挖掘机团队出品】 P4实验室前传之 王岐山，高燕燕，王延轶关系解读！](https://gnews.org/zh-hans/117284/) 详述了王延轶与舒红兵的关系及王延轶的疑似王岐山和高燕燕的私生女身份。再结合Lawrence Sellin博士的推文，我们可以得出的结论是，在13579计划的布局和实施过程中，不仅是上阵父子兵的蛤和江绵恒，还要有最毒夫妻档的舒红兵和王延轶。那么在江绵恒后边还有没有更大的大佬？如果把江绵恒的蛤爹排除在外，我相信江绵恒就是这副中共13579计划扑克牌中的大猫，这个判断是否站得住脚？让我们静观Lawrence Sellin博士下文分解。
+
+（文章内容仅代表作者个人观点）
+
++1

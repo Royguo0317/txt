@@ -1,57 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Lawrence Sellin博士推出舒红兵&amp;江绵恒是否意味着江绵恒是一号毒王
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1112984/)
+## 去中心化货币体系的探索（二）
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1113087/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+**普彤人**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/虚拟.jpg)
+**四、比特币**
 
-据[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午8:56 · 2021年4月18日](https://twitter.com/LawrenceSellin/status/1383766495449075712)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文
+谈起去中心化货币体系，永远绕不开比特币。可以说，比特币在技术实现层面并不算复杂，但它体现了对传统货币体系的深刻反省与思考，同时其自身也是探索新货币时代的一场宏大试验。笔者认为，鉴于比特币去中心化和匿名化的特性，未来比特币不太可能完全消亡，但随着更加成熟的电子货币逐步上市，比特币将不可避免的走入小众化。
 
+比特币的2100万总发行量是由算法限制的，避免了货币超发的忧虑。另一方面，一成不变、无法调控的货币流通总量难以反应市场流动性的充盈程度以及供需关系。与黄金不同的是，比特币一旦丢失难以找回，将变成“死币”，长期来看将不可避免的陷入紧缩。它无法获得为一般商品定价的能力。
 
+很自然的，接受比特币的商品，其比特币的价格是通过其他货币汇率价格换算而来，没有商品愿意使用比特币进行原始计价。这一切都为其币值的大幅波动创造了条件，而币值的大幅波动又反过来使其更加脱离实体商业。
 
-> There is increasing evidence that activities involving Wuhan University with the participation of certain individuals may be intimately linked to the release of [#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#corona](https://twitter.com/hashtag/corona?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/JgfOVtXrTl](https://t.co/JgfOVtXrTl)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 18, 2021](https://twitter.com/LawrenceSellin/status/1383766495449075712?ref_src=twsrc%5Etfw)
+离开商业的金融是空中楼阁，离开金融的商业则是一滩死水。由于比特币无法为任何商品定价，进而无法与信用、商品或黄金挂钩。这决定了它的浮夸性，其投机属性大于流通属性。
 
+同时，比特币遵循的区块链协议天生具有相当不错的匿名属性，导致金融机构难以对其进行监管。当前比特币交易所的实名制也仅基于汇兑类交易。一旦交易双方完全使用比特币进行链上支付，那么买卖双方即进入匿名无监管的黑暗世界。这就造成了它成为通用的支付工具之前，首先会被黑市和洗钱的需求所吸引，进而毁掉它的前途。
 
+**五、区块链优势**
 
-There is increasing evidence that activities involving Wuhan University with the participation of certain individuals may be intimately linked to the release of [#COVIDー19](https://twitter.com/hashtag/COVIDー19?src=hashtag_click) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hashtag_click) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click) [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) [#corona](https://twitter.com/hashtag/corona?src=hashtag_click)
+实际上，如果以静态的眼光去评判区块链货币，那么它相较于传统电子账户体系没有任何优势，反而由于其复杂的内在逻辑显得笨拙且低效。真正感受区块链技术的魅力，需要以动态的眼光，从支付和结算的角度去考察。
 
-中文大意：越来越多的证据表明，武汉大学在某些人的参与下的活动可能与[#COVIDー19](https://twitter.com/hashtag/COVIDー19?src=hashtag_click)[中共病毒](https://twitter.com/hashtag/CCPVirus?src=hashtag_click)[#超限生物武战](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click) [#超限生物武器](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)[＃COVID19溯源](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click)[#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) [#Coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) [#corona](https://twitter.com/hashtag/corona?src=hashtag_click)的释放密切相关。
+随着计算机技术的发展，如今几乎所有的传统货币的支付清算过程都已经实现了自动化（可参考往期文章 《墙国支付体系科普系列》），然而这些自动化程序仍然仅是手工账务处理过程的复制，本质上仍然以传统的方式开展：个人/公司内部记账——清分——清算/对账，银行内部的客户帐、总账的余额更新——清分——清算/对账，然后到各级清算机构进行清算与结算，最终完成资金转移。
 
-在此前Lawrence Sellin博士已经发推诠释了13579计划——
+区块链支付体系的魅力在于，对非现金资金的所属权，不需要传统银行背书。而且对于一笔A到B的资金划转，支付成功即代表结算完成。省略中间繁杂的清算环节后，区块链自身的特性即可保证支付结果不受争议。更进一步的，如果是形如A到B再到C的连续资金流动，区块链仍然可以保证整个交易链条不受争议。区块链技术对支付和结算，特别是全额实时结算场景中，减少资金占用成本，降低欺诈风险，提升效率的好处是显而易见的。
 
+稍稍扩展，如果区块链中记录的不仅仅是账务信息，再加入商业合同信息呢？A卖原材料给制造商B，制造商B出货给贸易公司C，贸易公司C委托航运公司D，航运公司D租借货轮G，同时贸易公司C下单给分销公司E，分销公司E向零售商F销售等等。 如果整个商业合同都以区块链智能合约的形式出现，那么借助区块链的特性，可以保证整个供应链合约的不可抵赖、不可篡改。这将会大大降低商业公司与银行间在信用证、商业汇票所涉及的借贷成本和违约风险。
 
+总之，区块链技术不仅对传统银行提出了挑战，甚至具有颠覆现有金融支付生态，即SWIFT+CHIPS模式的可能性。
 
-> My analysis of the Chinese Communist Party's dual-use military-civilian R&D program for novel genetically-engineered coronaviruses & heterologous vaccines against multiple strains, roughly follows this development plan, but involves more than one virus & a premature release. [pic.twitter.com/QYkJCJG17S](https://t.co/QYkJCJG17S)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 17, 2021](https://twitter.com/LawrenceSellin/status/1383494654633472007?ref_src=twsrc%5Etfw)
+**六、多中心化**
 
+以比特币为代表的去中心化加密数字货币使人们看到了未来，但未来不一定属于比特币。从技术角度看，钱包A向钱包B转账1元钱这个操作不可抵赖，十分完美。但问题是，钱包A本身归属于张三还是李四呢？如果钱包A归属于张三，又如何确认张三就是隔壁家那个真实的、活蹦乱跳的小伙子呢？
 
+所谓资产终究还是属于某个人的, 并不是所有的问题都能通过技术解决。开源的、去中心化的区块链体系不能保证上链的数据一定可以对应真实的个体或商业实体。即便在协议层面将身份关联的信息设置为必填项，单纯依靠计算机程序也没有办法判断信息是否真实。换句通俗点的话，技术层面的事情可以交给机器解决，但人间的事情终究还要人类出面处理。
 
-那么Lawrence Sellin博士发推把舒红后和江绵恒推出来意味着啥呢？这就要涉及到南普陀计划和习近平在江家眼里是什么角色的问题了，郭文贵先生在[2021年2月17号 文贵直播： 马云被抓，今年是南普陀计划的收割年；江家是沼泽地的一部分；新中国联邦将是主角](https://gtv.org/video/id=602d3cebbe64150df85ac9bf)直播中提到：
+对于未来加密货币而言，所谓的去中心化，是指其基于去中心化的技术基础，实现数据不可篡改、不可抵赖、极高的系统稳定性、以及不易被黑客侵入的安全性。
 
-［我们讲南普陀计划的时候，有人给江家辟谣嘛？没人给江家辟谣。南普陀计划就是找了个傀儡是谁啊，习近平。潘多拉盒子，潘多拉盒子，武汉实验室，包括冠状病毒、包括对香港、台湾的“双龙计划”。咱们说的时候有人出来辟谣嘛？没人出来辟谣，］
+另一方面，货币余额与真实身份的对接，支付行为与所属地监管的对接，资金流动与反洗钱法律的对接等等属于“人间”的事务，无一不需要专业机构，甚至需要在多地开设多个机构进行细致的，差异化的配置、管理和维护。
 
-［上海帮是沼泽地里面的主人，习近平不是。还轮不着他呢，他不配。今天习在前面玩的什么冠状病毒哇、疫苗病毒呀、疫苗经济呀，把他咔嚓给他干掉以后，这些饭都是给人家江家做的，中国的沼泽地就是上海人呐、就是上海帮。］
+以去中心化的技术做基础，配合多中心、差异化的运营和管理体系。至此，未来电子货币体系的雏形开始清晰起来。
 
-以及郭文贵先生在[2021年2月18日 文贵直播： 南普陀计划得到验证，江习大战进入最后时刻，江扶植韩正当傀儡接班人；川普是我们永远的朋友；九…](https://gtv.org/video/id=602e8fe0be64150df85c3194) 中提到的：
+* * *
 
-［咱们这位姐妹说这个南普陀这个计划，因为她认识这些人和他们所走的这些路，他们知道南普陀的存在。她说在这些人眼里面，习他就是个二货，他是个二货啊，她说一定毋容置疑的，所有习搞这个所谓的以毒灭白、灭白计划、还有潘多拉计划，包括这个所谓的网络加强控制、包括在香港的这个双龙计划、包括对香港人的打压、包括对国内的所谓企业迅速国有化、包括在世界上加入沼泽地统治全世界把国际共产主义做强做大。
+*发稿 文锦*
 
-她说这很多人都不愿意去看，她说邓小平南下的时候，南下的时候说过什么、为什么南下呀？是因为江泽民，选了江泽民以后上来一年两年，这哥们他不想所谓的开放市场，他不想搞真正的所谓的中国的政治改革和经济改革，很明显。而且这个江最要做的事情就是所谓的中国企业，马上私人企业都要取消以国有企业为主，也就是今天习搞的这一套，而且要组织所有的私人企业去井冈山、延安学习，这都是当年江要搞的。当年邓小平一怒之下到了南方，到了南方以后就说，你这是谁不搞改革谁就要下台滴。
-
-所谓的一个老人去到了南方转了一圈，说划了一个圈、讲了一阵话，叫南方讲话。后来江泽民开始搞市场、搞改革、允许私营企业继续发展。她说今天所有习这一套路子都是当年江想干没干得了的，包括修宪、一辈子干到底，江最想让他儿子江绵恒是来当、接他的班的。修宪以后江要继续干，然后江绵恒继续干，结果江绵恒的肾不争气、肾换了一回又一回，这对江家是个大的伤害，江到了以后、拿到权力以后，最大的植耕于权力的核心就是军队，他为啥把张万年这些人都干掉，然后杯酒释兵权把张震这些老家族弄到西山去待着去吧，给你们家里边一些企业，然后把邓家的你想想搞这个保利，你们都滚一边去弄钱去吧，军权全拿下。
-
-这是为什么王岐山一定要干掉王瑞林，因为王瑞林还是代表着邓家的势力，就是江家没干成的事王岐山帮他干，就是当年江想干的事，他没干成的他让习王帮他干。后来习修了宪以后，他下一个他这个儿子身体不行啊孙子又不行啊都是肾都不太好，老换肾也不行啊，换肾是受次数限制的，怎么办呢？大家就知道了，韩正，韩正还有另外两个人今天我不说，绝对是你想象不到的，韩正不行，韩正即使上去，中国历代的皇家之下，一定要什么，叫监国，左监国、右监国，或者外监国、内监国，给韩正也都安排好了监国，都准备好啦。
-
-就是他所有的，你看到的所有的中国企业国有化、中国的一带一路、中国利用世界上所有的共产主义国家把种族主义打到底，团结亚非拉，团结中东、亚非拉中，然后把穆斯林、伊斯兰教的极端主义和共产党连在一起成为兄弟姐妹，这都是当年江要干的事情。江唯一的说在香港跟现在稍有不同，江认为要把中国的精英主义彻底地控制香港，用掺沙子每天给几万个单程把香港变成一个加大版的深圳，这叫大湾区。而且江说要对台湾要实行精神、文化、经济，所有的可能的叫软性统独，叫软性统独。那么习是硬统独，就这点不同，其他一切都是江的计划，就是南普陀计划。
-
-什么时候要把习干掉？现在这些事基本干完了，潘多拉盒子也打开啦，以毒灭白，是不是？以疫苗灭白也已经完成啦，美国的所有的沼泽地的计划也基本执行差不多啦，江的身体也不行啦，中国军队再撑下去，江的影响力就会逐渐衰减。王岐山在控制着经济牢牢在手。这些事情都到时候要卸磨杀驴啦，特别这个驴又太不听话，比较二，是吧！那就是习，干掉他。所以说这是一个核心。再往下弄，习就真做大啦，真做大啦，习就真做大啦！不是假做大啦！所以说现在要开始干，他俩之间一定有一个倒下的，要么是上海派干掉，要么习派干掉。］
-
-综合以上信息我们可以得出什么结论呢？长话短说就是习近平只是江家的一个使唤丫鬟，最终的幕后老大就是江家，而Lawrence Sellin博士的推特则进一步验证江绵恒才是13579计划的真正的指挥和控制者，那么舒红兵是谁呢？据[百度百科——舒红兵](https://baike.baidu.com/item/%E8%88%92%E7%BA%A2%E5%85%B5/7397820?fr=aladdin)：［舒红兵，男，汉族，1967年1月出生重庆市[荣昌县](https://baike.baidu.com/item/%E8%8D%A3%E6%98%8C%E5%8E%BF/8291425) [1] ，[无党派人士](https://baike.baidu.com/item/%E6%97%A0%E5%85%9A%E6%B4%BE%E4%BA%BA%E5%A3%AB/2088083)，细胞生物学家、免疫学家 [2]  ，[中国科学院院士](https://baike.baidu.com/item/%E4%B8%AD%E5%9B%BD%E7%A7%91%E5%AD%A6%E9%99%A2%E9%99%A2%E5%A3%AB/327194)，[发展中国家科学院院士](https://baike.baidu.com/item/%E5%8F%91%E5%B1%95%E4%B8%AD%E5%9B%BD%E5%AE%B6%E7%A7%91%E5%AD%A6%E9%99%A2%E9%99%A2%E5%A3%AB/2173686)，[武汉大学](https://baike.baidu.com/item/%E6%AD%A6%E6%B1%89%E5%A4%A7%E5%AD%A6/106709)副校长、医学研究院院长、教授 [2-3] 。舒红兵于1987年毕业于兰州大学；1990年，获中国医学科学院基础医学研究所硕士学位；1995年，获[美国埃默里大学](https://baike.baidu.com/item/%E7%BE%8E%E5%9B%BD%E5%9F%83%E9%BB%98%E9%87%8C%E5%A4%A7%E5%AD%A6/10492576)博士学位；2011年当选为中国科学院院士 [2]  ；2012年，当选为发展中国家科学院院士 [3] 。舒红兵主要从事免疫相关的细胞信号转导研究 [2] 。］
-
-舒红冰的妻子是王延轶，王延轶又名王延铁，在此前DT挖掘机在G-News发布的[【挖掘机团队出品】 P4实验室前传之 王岐山，高燕燕，王延轶关系解读！](https://gnews.org/zh-hans/117284/) 详述了王延轶与舒红兵的关系及王延轶的疑似王岐山和高燕燕的私生女身份。再结合Lawrence Sellin博士的推文，我们可以得出的结论是，在13579计划的布局和实施过程中，不仅是上阵父子兵的蛤和江绵恒，还要有最毒夫妻档的舒红兵和王延轶。那么在江绵恒后边还有没有更大的大佬？如果把江绵恒的蛤爹排除在外，我相信江绵恒就是这副中共13579计划扑克牌中的大猫，这个判断是否站得住脚？让我们静观Lawrence Sellin博士下文分解。
-
-（文章内容仅代表作者个人观点）
-
-+1
++2

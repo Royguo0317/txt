@@ -1,44 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报 —— 疫苗篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1112937/)
+## 川普总统离开白宫后，CNN的观众流失过半
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1112978/)
 
-- 作者：wenwu
+- 翻译： JIHO
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
 **西班牙2021年4月18日电/西喜社——**
 
-若您想了解全文报导内容，请点击标题后链接
+![]()![](https://gnews.org/wp-content/uploads/2021/04/c144e603601cc739d9bc596f22871473.jpg)图片来源：6do.news
 
-**1. 《伊万卡·特朗普的疫苗接种引发粉丝反感》**
+根据福克斯新闻的报道，美国有线电视新闻网CNN，自从“就职日”以来，多个类别的收视率均下降了50％以上。自1月份以来，MSNBC评级也大幅下降。
 
-美国国会山4月15日电，伊万卡-特朗普在拜登总统就职后首次在社交媒体上宣布自己在弗罗里达州接种了冠状病毒疫苗。其粉丝对她的决定感到失望，也对疫苗不信任。
-（[https://thehill.com/changing-america/well-being/prevention-cures/548397-ivanka-trumps-vaccination-sparks-backlash-among](https://thehill.com/changing-america/well-being/prevention-cures/548397-ivanka-trumps-vaccination-sparks-backlash-among)）
+美国有线电视新闻网（CNN）在2021年的前三周平均拥有220万观众，但自拜登上任以来，平均只有100万观众，跌幅达到了惊人的54％。在25-54岁之间的主要广告人群中，收视率下降了60％。从12月28日到“就职日”，观看人数从统计的617,000名下降到只有244,000名。
 
-2. 《印度卫生大使兼泰米尔语演员维维克在注射新冠病毒疫苗一天后去世》
+CNN的“王牌们”，自由黄金时段主持人安德森·库珀（Anderson Cooper），克里斯·库莫（Chris Cuomo）和唐·柠檬（Don Lemon）也未能改变这一局势。
 
-据印度大博弈网站4月17日电，分析印度大多数接种新冠病毒疫苗的死因，发现大多数死于心脏病发作和脑中风。著名的印度演员和泰米尔纳德邦创造公共卫生形象大使维维克（Vivekh），在接受疫苗后一天去世。（[https://greatgameindia.com/india-health-ambassador-vivek-dies-vaccine/](https://greatgameindia.com/india-health-ambassador-vivek-dies-vaccine/)[）](https://greatgameindia.com/india-health-ambassador-vivek-dies-vaccine/%EF%BC%89)
+CNN在以往晚上8点到11点，平均收看人数为310万，从12月28日到“就职日”，只有140万人收看，跌幅高达55％。在同一时期，CNN的黄金时段节目也失去了63％的观众。
 
-**3. 《斯坦福大学开始在婴儿和幼儿中测试辉瑞疫苗》**
+尽管一月份是一个新闻频发的“新闻月”（“国会骚乱”及“特朗普挑战2020年的选举结果”等），可CNN的表现比自由派MSNBC还差。拜登当政后，MSNBC的全天观众流失了34％，黄金时段则流失了30％，而Fox新闻则以个位数的下降保留住了大部分观众。
 
-美国双子城4月15日电，辉瑞疫苗将对美国的6月大婴儿到11岁的儿童进行人体疫苗实验。总共144名志愿者在父母协同下，参与此次斯坦福医疗保健公司的疫苗在幼童中的关键性研究。
-（[https://www.twincities.com/2021/04/15/stanford-testing-pfizer-vaccine-babies-young-children/amp/#click=https://t.co/Pn1ndQdIFM](https://www.twincities.com/2021/04/15/stanford-testing-pfizer-vaccine-babies-young-children/amp/#click=https://t.co/Pn1ndQdIFM)）
+**评：媒体靠什么生存?不是观众的收视率吗？面对川普离任后才3个月，CNN就大幅度下降的收视率，体现美国民众对真相的渴望，随着选举舞弊事件被揭露，民众也不再接受CNN的谎言。以前的洗脑宣传时代已经回不去了，维真不破才是现在媒体生存的根本。这篇报告让人联想到中共国的官媒们，虽然现在是在防火墙和维稳的双管齐下下，如果防火墙被推倒，中国人能看到真相的时候，这些官媒会怎么样？祝愿CNN一路走好。**
 
-**4. 《罗恩·德桑蒂斯说，拜登政府对强生疫苗的处理是“大错特错”》**
+素材: JIHO；编辑：蚂蚁兄弟；校对：weiwei；发稿：信心的选择
 
-据玩具矩阵4月18日消息，佛罗里达州州长罗恩·德桑蒂斯在4月16日表示，“已经接种了几个月的人仍然戴着两个口罩，这无疑是个问题，我们无法正视疫苗是有效的”他说。这个信息让人们对疫苗失去信心，并且没有研究机构把血栓症状与疫苗联系起来，不得不引起担心。
-（[https://toysmatrix.com/ron-desantis-says-biden-administrations-handling-of-jj-vaccine-huge-mistake/](https://toysmatrix.com/ron-desantis-says-biden-administrations-handling-of-jj-vaccine-huge-mistake/)）
-
-**5. 《研究报告：辉瑞，莫德纳疫苗与阿斯利康疫苗一样普遍存在血栓症状》**
-
-据美国市场观察4月15日电，牛津大学的一项研究发现，在接种辉瑞或摩德纳疫苗后，每100万人中就有4人发生脑静脉血栓，而接种阿斯利康疫苗的人，每100万人中就有5人发生脑静脉血栓。得到COVID-19的人患CVT的风险要比接种疫苗的人高得多，每100万患者中就有39人。出于对血栓症状的担忧，阿斯利康的疫苗在许多国家已经停止或限制使用。
-（[https://www.marketwatch.com/story/blood-clots-as-prevalent-with-pfizer-and-moderna-vaccine-as-with-astrazenecas-report-2021-04-15](https://www.marketwatch.com/story/blood-clots-as-prevalent-with-pfizer-and-moderna-vaccine-as-with-astrazenecas-report-2021-04-15)）
-
-编辑：蚂蚁兄弟；校对：weiwei；发稿：信心的选择
+**新闻来源：**[福克斯新闻](https://www.foxnews.com/media/cnn-viewers-biden-took-office-staggering-60-percent-in-key-demo)
 
 [欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
-0
++1

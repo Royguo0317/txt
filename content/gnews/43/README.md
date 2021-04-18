@@ -1,57 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中日即将全面彻底脱钩！
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1112989/)
+## 【呐喊】触目惊心——最新中共病毒全球疫情数据
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1112899/)
 
-作者：纽约香草山福音部 能灯山神
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
+作者：纽约香草山佛教部 369文驹
 
 
 
-路德社4月18日早间节目发布重要消息如下。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片117.png)
-中日能建交就能脱钩，中共已经意识到日本将决定彻底脱钩！日本将成为美国在亚太地区的“总代理”！
-
-从美日谈判到发布联合声明，非常神速，非常全面，双方做了长期的工作。美日合作对付中共要有三个先决条件：第一，日本愿意不愿意做这个总代理，愿意做就一定要和中共国切割，继续和中共国勾兑肯定不行；第二，日本有没有这个能力做总代理，有能力不仅是有权利和军队，还要有对中共国的情报来源和对中共邪恶组织的认知，还要决定是否和美国一起站在中共国的对立面；第三，日本有没有开始准备好做总代理。前安倍把与中共国的勾兑以辞职方式全部带走，留下一个干净上台的菅义伟政府。菅义伟将放手与中共国脱钩。
-
-每一个条件不合适这个联合声明都出不来，日本的准备不是一天两天了。日本早已在中共病毒投放后就准备好帮助美国对付中共。
-
-日本早已做好准备，从2019年中共病毒爆发到现在，政府帮助大部分在中共国的企业回流到了日本。它们看到了中共国不守信誉的做法才是对世界、对亚太地区的威胁！
-
-中共的玩法日本早在二战时期就玩过，以坑蒙拐骗不守规则在不宣战的情况下先动手，打美国珍珠港和中国，还打败俄罗斯前苏联。后来意识到这种下三滥玩法在国际上靠不住，在实力面前这邪恶的玩意苍白无力，实力来自一个国家的经济体系的完善和建设。日本在二战中付出了惨痛的代价，在美国面前不堪一击，两颗原子弹百姓成了炮灰，还要高呼“天皇万岁”，百姓遭殃，苦不堪言，和中共国当下的习政权一模一样。
-
-战后日本坚持遵守战败国的国际协议，认识到偷蒙拐骗干下三滥的事情发展国家是没用的，只有安下心来发展自己，强大自己，承认普世价值保护人权，保护私有财产，国富民强积累到今天，才能变成了强盛的大和国家。
-
-日本被美国解除“封印”，日本陆上自卫队可在“三个月”内计划好针对中共国。日本在台湾代表处升起国旗，台湾已经在官方获得美国和日本的全面保护，中共战狗只是叫嚣不敢行动。
-
-【新中国联邦】
-
-爆料革命‼️唯真不破‼️
-
-正道主义‼️万佛万神‼️
-
-敬畏万物‼️感恩天地‼️
-
-同心同德‼️与善同在‼️
-
-校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
+
+根据约翰斯·霍普金斯大学发布的数据，截止4月18日12:20分，中共病毒全球疫情数据如下：
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-304.png)图片来源：JHU，中共病毒全球感染概览
+
+1、全球感染病例数：**140,457,797** 例，死亡人数：**3,009,215** 人。
+
+2、各国感染人数和死亡人数排名：
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/92.jpg)
+
+3、全球每日感染数据图：
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-305.png)
+
+4、全球每日死亡数据图：
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-306.png)
+
+通过以上数据不难发现，全球感染人数和死亡人数已经处于中共病毒爆发以来的最高水平，与今年年初水平相当。图表上今年4月感染和死亡人数的曲线十分陡峭，意味着本轮疫情爆发来势汹汹，而且这是在世界各国广泛接种疫苗的背景下发生的。那些鼓吹目前疫苗有效、能群体免疫的谎言，在数据面前不攻自破。
+
+据资料显示，约翰斯·霍普金斯大学（The Johns Hopkins University），是美国马里兰州巴尔的摩研究型私立大学，美洲大学协会的12个创始会员之一。美国国家科学基金会连续31年将该校列为全美科研经费开支最高的大学，也是哈勃空间望远镜和詹姆斯·韦伯空间望远镜的地面控制中心所在地。截至2020年4月，共有39名校友、教职工及研究人员获诺贝尔奖。在2019年末，约翰斯·霍普金斯大学的冠状病毒资源中心（Coronavirus Resource Center）收集来自全球数百个来源的数据来追踪中共病毒疫情全球病例，成为有关各国疫情引用最多的来源之一。[1]
+
+参考阅读：
+
+1. [约翰斯·霍普金斯大学](https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%BF%B0%E6%96%AF%C2%B7%E9%9C%8D%E6%99%AE%E9%87%91%E6%96%AF%E5%A4%A7%E5%AD%A6)
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-+1
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
+
+0

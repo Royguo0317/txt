@@ -1,64 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【呐喊】触目惊心——最新中共病毒全球疫情数据
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1112899/)
+## 【澳洲热点】澳洲军方秣马厉兵应对未来五年台海爆发全面战争的最坏情况
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1113132/)
 
-作者：纽约香草山佛教部 369文驹
+翻译：文泓
+校对/编辑：七彩光
+![澳洲军方秣马厉兵应对未来五年台海爆发全面战争的最坏情况]()![澳洲军方秣马厉兵应对未来五年台海爆发全面战争的最坏情况](https://gnews.org/wp-content/uploads/2021/04/0242.png)
+图片来源：墨尔本雅典娜农场设计师–姐夫说说
 
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-根据约翰斯·霍普金斯大学发布的数据，截止4月18日12:20分，中共病毒全球疫情数据如下：
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-304.png)图片来源：JHU，中共病毒全球感染概览
-
-1、全球感染病例数：**140,457,797** 例，死亡人数：**3,009,215** 人。
-
-2、各国感染人数和死亡人数排名：
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/92.jpg)
-
-3、全球每日感染数据图：
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-305.png)
-
-4、全球每日死亡数据图：
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-306.png)
-
-通过以上数据不难发现，全球感染人数和死亡人数已经处于中共病毒爆发以来的最高水平，与今年年初水平相当。图表上今年4月感染和死亡人数的曲线十分陡峭，意味着本轮疫情爆发来势汹汹，而且这是在世界各国广泛接种疫苗的背景下发生的。那些鼓吹目前疫苗有效、能群体免疫的谎言，在数据面前不攻自破。
-
-据资料显示，约翰斯·霍普金斯大学（The Johns Hopkins University），是美国马里兰州巴尔的摩研究型私立大学，美洲大学协会的12个创始会员之一。美国国家科学基金会连续31年将该校列为全美科研经费开支最高的大学，也是哈勃空间望远镜和詹姆斯·韦伯空间望远镜的地面控制中心所在地。截至2020年4月，共有39名校友、教职工及研究人员获诺贝尔奖。在2019年末，约翰斯·霍普金斯大学的冠状病毒资源中心（Coronavirus Resource Center）收集来自全球数百个来源的数据来追踪中共病毒疫情全球病例，成为有关各国疫情引用最多的来源之一。[1]
-
-参考阅读：
-
-1. [约翰斯·霍普金斯大学](https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%BF%B0%E6%96%AF%C2%B7%E9%9C%8D%E6%99%AE%E9%87%91%E6%96%AF%E5%A4%A7%E5%AD%A6)
+- **澳大利亚国防军开始为潜在的台湾战争做准备**
+- **此项策略的意图是迫使中共国停止对台湾海峡的军事入侵**
+- **在共同应对中共入侵台海问题上，澳大利亚仍然面临与日本，印度和美国保持一致的压力**
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+消息人士透露，澳大利亚国防军正在进行战争模拟，它在未来[中共国](https://www.dailymail.co.uk/news/china/index.html)潜在的台海军事冲突中将扮演怎样的战斗角色。
 
-编辑/校对/发稿：Irene木木
+堪培拉的军事官员一直在规划出现“最坏的情况”，即柯林斯级潜艇和“超级大黄蜂”战斗机将被部署到台湾海峡，以协助美国和其他地区战略盟友。
 
-**更多资讯，更多关注**
+随着中共国周边争议领土的紧张局势持续升温，澳大利亚和其他“四国”成员——日本、印度和美国—都面临着中共国越来越大的压力，（态势发展）要求各国一起遏制中共的军队。
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+中共国在该地区越来越咄咄逼人，迫害香港的民主团体，镇压新疆的穆斯林少数民族。
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+现在恐怕这个专制国家会把军事力量转向台湾，因为要在终身大总统习近平统治下“收复台湾岛”。
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+中共国多次进犯台湾的海疆和领空，本周中共国派出创纪录的25架军机进入台湾防空“识别区”。
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+‘一位外交消息人士告诉《澳大利亚金融评论》，有很多（模拟作战）发展和方案规划正在进行中。’
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+‘我们正视危险和挑战，履行我们的协防承诺。’。
 
+自1949年中国内战以来，在美国和日本的支持下，台湾一直忍受着与中共国的长期冲突。现在台湾人民眼看着香港的自由民主的丧失和司法独立被侵蚀后，现在比以往任何时候都要紧张。
 
+但这个岛国仍然是西方民主国家的重要盟友，因为它离中共国很近，而且在全球半导体微芯片严重短缺的时候，它生产的半导体微芯片供应量很大。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+如果中共国贯彻其“战狼”外交的言辞，试图吞并台湾岛，四国集团很有可能会出手相助。
 
+一名前国防官员表示，澳大利亚的海上力量，如防空驱逐舰和柯林斯级潜艇，可以在这种情况下部署，以“应对”中共国海军。
 
+但他承认，现在还存在着很大决策阻碍，因为这会使（澳洲重要的军舰及其船员面临很大的风险。
+
+他说，堪培拉更有可能派出’海上侦察机、空对空加油机、“楔尾”机载雷达飞机和 “超级大黄蜂”战斗机，从美军在关岛或菲律宾的基地开展行动’。
+
+美国国防军司令安格斯.坎贝尔表示，因台湾岛而发生的冲突对该地区的人民来说将是“灾难性的”，（盟国）应该不惜一切代价避免（此类事情发生）。
+
+但随着中共国在世界舞台上变得越来越好斗–去年与印度发生致命的边境冲突，并在南海侵占印尼、马来西亚、菲律宾、台湾、越南和文莱（领海和岛屿），一些人士认为台海冲突是不可避免的
+
+曾在马尔科姆.特恩布尔（Malcolm Turnbull）手下任职的前国防部长克里斯托弗.派恩（Christopher Pyne）上周表示，随着中共国企图对亚太邻国进行敲打，事情很可能会变得更糟。
+
+原文链接：
+
+[Australian military ramps up preparation for ‘worst case scenario’ of all-out war with China over Taiwan in the next five years](https://www.dailymail.co.uk/news/article-9481325/Australian-military-prepares-worst-case-scenario-war-China-Taiwan-five-years.html)
+
+[https://www.dailymail.co.uk/news/article-9481325/Australian-military-prepares-worst-case-scenario-war-China-Taiwan-five-years.html](https://www.dailymail.co.uk/news/article-9481325/Australian-military-prepares-worst-case-scenario-war-China-Taiwan-five-years.html)
 
 0

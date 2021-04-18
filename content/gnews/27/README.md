@@ -1,25 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美日同盟的新愿景
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1113223/)
+## 【热点播报】美国国会要求彼得-达扎克提供文件
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1113212/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：纽约香草山写作5组   四季
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/J-9.jpg)strafasia.com
-共同通讯社 (Kyodo News)报道，日本首相应邀成为首位访问拜登新政府的国家领导人，这表明美日同盟对两国领导人都具有非凡的重要性。美国依赖于一个稳定和坚定的日本，而日本需要一个积极参与和强大的美国。两国利益的融合塑造了东京和华盛顿对两国关系以及印度洋-太平洋地区的愿景。
 
-菅义伟首相和拜登总统有共同的目标，那就是建立一个志同道合的国家联盟，以应对中共威胁。中共在日本和其他印度洋-太平洋邻国附近展示了日益增长的军事力量。中共海军挑战巡逻海上航道的日本、澳大利亚、印度和美国海军，特别是在南中国海的霸权主张，又宣称对尖阁列岛(senkaku islands，中共称钓鱼岛)拥有主权。而战斗机公然入侵台湾领空并声称不放弃武统台湾，更是赤裸裸地展示了中共咄咄逼人的军事恐吓。
 
-同时，中共利用其巨大的经济影响力，将与发达工业经济体之间一度被视为“双赢”的经济相互依赖，转变为一种更具强制性的杠杆工具。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/logo-6.jpg)
 
-确保印度洋-太平洋地区的稳定和恢复力对日本和美国都至关重要。中共病毒疫情大流行表明，两国都有必要在加强本国抗疫能力的同时，继续向世界其他地区伸出援手。这包括确保更多的疫苗可以与该地区其他国家分享，以及支撑供应链，使其经济能够保持活力。
 
-在美日峰会上，两国领导人概述了他们的未来议程和在各个方面合作抵抗中共的意愿，日本试图确保他们的利益能在不与中共发生冲突的情况下得到保全，这种想法过于天真。相信在不久的将来，在应对中共威胁的问题上，日本会省悟除了强硬对抗，并不会有更好的选择。
 
-参考链接：
+据国家脉动4月17日的报道，来自能源和商业委员会的众议院共和党人于4月16日致函给生态健康联盟（EHA）主席彼得-达扎克，要求提供生态健康联盟的文件和财务记录。该联盟是一个与武汉病毒学研究所合作的美国团体，并从安东尼-福齐博士的国家过敏和传染病研究所获得税款。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/88-scaled.jpg)
+信中要求彼得-达扎克在2021年5月17日之前回答34项质询，包括：所有生态健康联盟从美国国家卫生研究院（NIH）获得的联邦研究拨款、财务信息，以及与武汉病毒学研究所研究设施的安全性有关的“文件和信息”。
 
-[https://english.kyodonews.net/news/2021/04/590711831e0f-opinion-the-biden-suga-summit-a-full-agenda-for-an-uneasy-era.html](https://english.kyodonews.net/news/2021/04/590711831e0f-opinion-the-biden-suga-summit-a-full-agenda-for-an-uneasy-era.html)
+信中写到，“由于生态健康联盟确信不是实验室泄漏的原因，我们希望并欢迎你有机会分享你所掌握的在武汉病毒学研究所和与蝙蝠冠状病毒研究有关的任何和所有的信息、文件和专业知识”。
+
+信中表示，生态健康联盟在中国的蝙蝠冠状病毒研究方面有着悠久的历史。其中一些病毒被推定是SARS CoV-2. 2的祖先。此外，生态健康联盟已经同武汉病毒学研究所在这一研究领域建立了合作关系，武汉病毒学研究所将生态健康联盟列为其八个国际合作伙伴之一，也是其美国唯一的合作伙伴。
+
+信函最后说，在提供所要求的信息后，我们要求生态健康联盟向少数派委员会提供简报，介绍你们提供的与冠状病毒起源和武汉病毒学研究所有关的信息。
+
+在中共病毒肆虐全球一年多的时刻，全世界都要追究病毒起源，希望病毒真相早日大白于天下，向中共追责。
+
+原文链接：
+
+
+
+> [Congress Demands Documents from Fauci-Acolyte and CCP-Stooge Peter Daszak.](https://thenationalpulse.com/breaking/congress-demands-ecohealth-docs-and-briefing/)
+
+
+
+校对/发稿：火内
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpeg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
