@@ -1,57 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104017（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1112390/)
+## 美国海军称“罗斯福”号航母打击群4月4日进入南中国海（玫瑰看新闻2021/04/08 第79期）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1112497/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+本期焦点新闻摘要：
 
+\*美国海军称“罗斯福”号航母打击群4月4日进入南中国海
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+\*普京签署一项法律允许其在当前总统任期届满后再执政两届
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01-6.jpg)
+\*日本敦促中国就维吾尔族问题采取具体行动
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02-7.jpg)
+\*学者指:杨洁篪们的表现一如大清帝国末期朝廷官员
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03-6.jpg)
+\*Archegos爆仓事件瑞士信贷亏损47亿美元
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-8.jpg)
+\*格陵兰岛大选聚焦中国国企控股公司
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05-8.jpg)
+\*气候变迁赤道海洋生物朝两极迁移
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06-6.jpg)
+\*泰国计划重振旅游业普吉岛将大规模疫苗接种
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07-6.jpg)
+\*EMA高官: AZ疫苗与血栓形成有关
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08-6.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09-6.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-10.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-11.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-13.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-9.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-6.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-6.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/18-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/19-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/20-5.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
+\*乔治亚共和国病例激增总理加里巴什维利确诊
 
 0
