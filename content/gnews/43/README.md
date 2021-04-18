@@ -1,33 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【各抒己见】如何看待第七次全国人口普查数据推迟公布
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1112353/)
+## 慧眼看世界202104017（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1112390/)
 
-作者：喜马拉雅东京樱花团 / 大盐
-
-![](https://lh6.googleusercontent.com/9ph7h2BE4UDVLvao_GyhQm-z2upIUFZQcIDBJ9IHsWqWwPQxGjGVAdcD68YZVJ8VeL0J-U7A1UX9grTir2f3Blf5DMKG6ukKc4bSFtf8MGmBeCHzJjC-_zRz_ZIOKoVwTO2BlQYP)
-
-4月16日，国务院新闻办公室举行新闻发布会，介绍2021年一季度国民经济运行情况并答记者问，国家统计局新闻发言人、国民经济综合统计司司长刘爱华表示力争早日向社会公布最终结果。为何迟迟不公布？是还要等领导批示？开会商量后才允许公布？从推迟公布来看，是不敢公布，为何不敢公布？
-
-除非人口数字超出想象，高消费 ，高房价，零福利，教育医疗高支出……
-
-中国已经错失了最后挽救人口危机的窗口期，80后可能是最后一批大量愿意生育的，但是大部分家庭也仅仅只愿意生育一胎，不管是男是女只要一胎。
-
-不过在80后生育的黄金时期，人口政策并没有放松，而姗姗来迟的二胎政策并不能鼓励那些饱尝房价和生活成本之苦的大众再生孩子了。彼时60后70后身体条件已经不允许，80后在高房价和高生活成本中苦苦挣扎，自顾不暇，而现在适婚年龄的90，00后中的一部分人则开始对婚姻的意义进行思考，思考的结果是：成本太高，价值较低，普通人不婚有利。
-
-所以，整个民族因人口问题导致的衰败几乎已经无可避免，出现的1982年那个政策，只不过我们一直视若无睹，曾经在教科书上被称颂的“计划生育”，已经打断了一个民族的脊梁，中国何去何从？唯有爆料革命新中国联邦来挽救！
-
-*免责申明：本文只代表作者观点，与GNews网站无关。*
-
-*校对：喜马拉雅东京樱花团 / 東洋武士*
-
-*责任编辑：喜马拉雅东京樱花团 / 文小白*
-
-*发布：喜马拉雅东京樱花团 / 传福音的人*
-![]()![](https://gnews.org/wp-content/uploads/2021/04/二维码-1.jpg)
-0417C091c
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-8.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-8.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-10.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-11.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-13.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-9.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-8.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/18-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/19-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20-5.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0
