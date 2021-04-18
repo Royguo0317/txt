@@ -1,23 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】04/17/2021：中共威胁日本离台湾问题远一点日本选择了跟美国站在一起
-` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1112557/)
+## 14/4/2021 娜塔莉·温特斯：《柳叶刀中共病毒委员会的主席杰弗里·萨克斯与中共有着千丝万缕的关系
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1112732/)
 
-**制作：Cantonese工作室**
+摘要：娜塔莉·温特斯——正如很多给中共政府打掩护的人,还有主流媒体及世卫组织等机构帮中共掩盖真相, 杰弗里·萨克斯和中共有着千丝万缕的关系。像彼特打杂克，福奇以及杰弗里·萨克斯这类人他们宁愿选择不出卖中共，也不愿承认他们未能成功阻止这场瘟疫的蔓延。
 
+**By：【秘密翻译组 G-Translators】**
 
-
-**播报：【安妮】资料整：【黄玫瑰】【An】【Ruby】海报制作：【侬民】剪辑：【Ken】【向阳6768】**
-
-摘要：
-
-1
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210418-__2.jpg)
-2
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210418-__3.jpg)
-3
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210418-__4.jpg)
-4
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210418-__5.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/8.jpg)
-0
++1

@@ -1,57 +1,127 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104017（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1112390/)
+## “掀锅盖”系列：20210416华尔街在玩火，G系列踩在了世界经济的舞点上，战友们要富体面地灭共
+` 《爆料贵语--掀郭盖》NZ` [轉載自GNews](https://gnews.org/zh-hans/1112561/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+**郭先生口述内容：**
+
+另外一个看到美国
+
+就美国现在整个华尔街
+
+正在玩一场极为危险的游戏
+
+华尔街这次股票的崩溃只是时间长短一摸一样
+
+他只是炒多高下和多少人倾家荡产
+
+这次华尔街玩的游戏
+
+他准备好了两样东西
+
+第一个他把它炒涨起来
+
+涨到今年年底甚至到明年五月份以前
+
+炒最高的时候绝大多数的钱全部要出去
+
+钱出去上哪去啊兄弟姐妹们
+
+虚拟加密货币、黄金
+
+就这两样东西没有任何第三样可以放
+
+你看看cionbase上
+
+从0.2两毛钱到340块钱是多少倍
+
+这就是为什么现在
+
+今天的SEC主席
+
+这个瓦格就是来自于支持虚拟货币的
+
+而且现在华尔街神秘的手都在玩虚拟货币
+
+比特币就两个人的
+
+共产党和华尔街
+
+其他几个虚拟货币涨起来的所有的背后
+
+几乎都是共产党和华尔街
+
+就这两个洗钱集团
+
+正在往市场上猛推高然后摔下来
+
+把大家都摔死他就能活吗
+
+战友们越是这个时候
+
+千万记住投机还有赌博式的心理
+
+一定会让你倾家荡产
+
+全世界没有任何一个人
+
+同时GTV、Gnews、Gcion、Gdollar、Gfashion、Gclub
+
+同时搭建的这么个平台
+
+都是踩在了世界的舞点上
+
+而且都是这么干干净净的
+
+一步一步稳稳的往前走
+
+谁能挡的住啊
+
+加密货币虚拟经济和实体经济的结合
+
+Gcion、Gdollar、Gfashion
+
+Gfashion连着Gmall
+
+Gclub接下来是唯一一个在最关键时期
+
+百分之百每年巨额盈利的企业
+
+GTV稀缺资源G news稀缺资源
+
+你说这几个加在一起是什么感觉
+
+大家想一想兄弟姐妹们
+
+要不然你看着人家虚拟货币
+
+人家赚钱你只能看你连闻都不能闻
+
+而这次爆料革命新中国联邦让所有的战友们
+
+参与这伟大的时刻
+
+咱必须体面的富有的安全的生活
+
+才能灭共
+
+\*所有经过节选，编辑和剪辑的简报和视频形式仅供留存及传播，分享信息！
+
+\*所有信息以郭文贵先生源盖特视频和直播视频为准！
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01-6.jpg)
+听写整理：作而无作
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02-7.jpg)
+翻译：kazusa（文紗）
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03-6.jpg)
+校对：SugarPup
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-8.jpg)
+视频制作：农夫
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05-8.jpg)
+审核：掀锅盖组
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06-6.jpg)
+上传：糊糊文婴
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07-6.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08-6.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09-6.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-10.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-11.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-13.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-9.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-6.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-6.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/18-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/19-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/20-5.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
-
-0
++1
