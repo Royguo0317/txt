@@ -1,62 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报(0418)-台湾篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1112062/)
+## 【各抒己见】从被中共的愚智中走出来
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1111953/)
 
-- 作者：蚂蚁兄弟
+作者：喜马拉雅东京樱花团/神的带领
 
+![](https://lh5.googleusercontent.com/kq4kPSYj9AmlvKzrJFR7r6Dq9C4pVJfAoWO6arxqFMs-pwnlzIo608DKkEoCHYqZUiq6IbqcZb9162ZU_b8UQ2ywNfBE9uXFDC2q75ycTCdFHuyx_b5oMuDmcAMV04zwv-PIKxo1)
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+有句话叫“没有对比就没有伤害”，这话一点不假。我们在国内的同胞们每天说着言不由衷的话，做着违心的事，每天吹吹牛是他们最大的乐趣。每到天气转暖就拿着板凳，抽着损烟坐在楼下开谈国际，谈军事。什么“小日本”、“美国鬼子”，韩国被称作“二八鬼子”等等蔑视各国仇恨各国。动不动就是“厉害了我的国”，什么中国有“辽宁号”可以傲视一切，可是这些无知的百姓却没看过美国的航母，自认为自己无敌，殊不知，“辽宁号”和美国航母对比就像一艘渔船；什么有歼-20，可以制霸空中，他们却没仔细看是带布丁的，别说美国就算是俄罗斯的隐形战斗机也比老共抄袭的歼-20厉害得多，至少人家不带布丁；又什么在国外的赶紧回来吧，打起来可就回不来了。我只能呵呵一笑，说道，“没事，打就打吧，把中国都占领了才好呢，省得出国费劲。”
 
-**西班牙2021年4月18日电/西喜社——**
+大陆的百姓让共产党给愚昧到了啼笑皆非的程度。他们认为香港是大陆的一个区，请问哪个大陆人去香港不得不办通行证，就相当于出国要得到你去的国家的签证一样；说香港人没良心，请问中国的改革开放以及后来的发展什么时候少了香港人的帮助了？忘恩负义的是共产党，过河拆桥。一个朝气蓬勃的香港毁在了中共的手中，变成了死港。 这还不算，竟然把中共病毒甩锅给美国，老百姓口口相传，说的死人都可能相信了，后来又甩锅给蝙蝠、蛇等等。现在又开始全国测试PCR然后给打免费的疫苗。我问亲朋好友你们敢打吗？经过实验了吗？安全吗？他们说的更气人，说在非洲、美洲的几百万外国人实验过了，有效性百分之九十几，即便感染了症状也轻。而且外国人花钱抢破脑袋都一针难求。天呐？我问他们中共国家领导人哪个打疫苗了呢？哪个大人物当着百姓面打了呢？这种谎言居然也信真是无语了。
 
-您若想了解新闻全文报导内容，请点击内容摘要后链接
+我建议他们看看我们GTV的播报，去油管看看我们的路德节目，看看我们英雄科学家闫博士的三份报告，那才是真实的。只有真相才是中国人开智的开始，才有未来的希望。我庆幸跟了新中国联邦，庆幸跟了七哥才让我们从共匪的愚智中走了出来。
 
-**1. 菅义伟与拜登承诺应对中国挑战并直视对台立场**
+*免责申明：本文只代表作者观点，与GNews网站无关。*
 
-日本时报华盛顿4月17日电，美国总统拜登和首相菅义伟周五同意进一步开展跨地区安全、技术等领域的合作，承诺建立一个能直面中国挑战的联盟。菅义伟在与拜登的首次面谈中，两人还肯定了台湾海峡和平与稳定的重要性，峰会结束后发表的联合声明也提到了他们的观点，这可以看作是领导人层面罕见地公开表达对台湾局势的关切。
+*校对：喜马拉雅东京樱花团 / 文小白*
+*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
+*发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/二维码-1.jpg)
+0417C089c
 
-（[https://www.japantimes.co.jp/news/2021/04/17/national/politics-diplomacy/suga-biden-us-japan-summit-2/](https://www.japantimes.co.jp/news/2021/04/17/national/politics-diplomacy/suga-biden-us-japan-summit-2/)）
-
-**2. 中国回击日美点名台湾的声明**
-
-日经亚洲东京4月17日消息，在日本和美国领导人五十多年来首次领导人峰会后发表的联合声明中提到台湾，还强调了两个盟友对香港和新疆人权问题的关注。声明发表后的几个小时，中共对此进行了反击，中共发言人称对“领导人联合声明”的相关评论表示坚决反对。
-
-（[https://asia.nikkei.com/Politics/International-relations/Biden-s-Asia-policy/China-hits-back-at-Japan-US-statement-that-names-Taiwan](https://asia.nikkei.com/Politics/International-relations/Biden-s-Asia-policy/China-hits-back-at-Japan-US-statement-that-names-Taiwan)）
-
-**3. 谈到台湾问题时，手套都被摘掉**
-
-澳大利亚金融评论4月16日消息，自华盛顿和北京陷入危险的军事对峙以来，已经快20年了，随着台湾问题的紧张局势升级，有人担心这将预示着新冷战的开始。澳大利亚人应该对台湾问题感到担忧，新的大国冲突威胁正在迅速上升，堪培拉的规划者应该考虑到未来不可想象的事情。
-
-([https://www.afr.com/world/asia/the-gloves-are-off-when-it-comes-to-taiwan-20210415-p57jjw](https://www.afr.com/world/asia/the-gloves-are-off-when-it-comes-to-taiwan-20210415-p57jjw))
-
-**4.  中国在台湾附近的演习对准美国**
-
-台北时报4月18日消息，中共国过去几周加强侵入台湾防空识别区和航母演习的意图，是为了“恐吓和胁迫”华盛顿，要求其退让和退缩。中共国正在利用美国为其行动辩护。
-
-（[https://www.taipeitimes.com/News/taiwan/archives/2021/04/18/2003755905](https://www.taipeitimes.com/News/taiwan/archives/2021/04/18/2003755905)）
-
-**5. 拜登代表团承诺美方支持台湾自卫权**
-
-外交报4月17日消息，由前参议员克里斯-多德率领的非官方代表团完成了对台湾为期三天的访问，以示对拜登政府的支持。
-
-（[https://thediplomat.com/2021/04/biden-delegation-pledges-us-support-for-taiwan-self-defense/](https://thediplomat.com/2021/04/biden-delegation-pledges-us-support-for-taiwan-self-defense/)）
-
-**6. 北京提高空中对抗台湾力量的热度上升**
-
-飞行全球航天航空新闻网4月16日消息， 中国对台湾防空识别区的定期入侵体现了共产党领导人的失望，所以启用新的空中军事力量抗衡模式以示其威。
-
-（[https://www.flightglobal.com/defence/beijing-air-power-turns-up-the-heat-on-taiwan/143327.article](https://www.flightglobal.com/defence/beijing-air-power-turns-up-the-heat-on-taiwan/143327.article)）
-
-**7. 美国可采取更多涉台防务行动**
-
-聚焦台湾，CNA中评社台北4月17日电 继周五在华盛顿举行美日领导人峰会后，台湾学者预测，在美国总统拜登执政期间，可以预期美国在防卫台湾方面将会有更多行动。
-
-（[https://focustaiwan.tw/politics/202104170012](https://focustaiwan.tw/politics/202104170012)）
-
-编辑：meiping；校对：阿伯塔；发稿：神奇四侠
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
-
-+1
+0
