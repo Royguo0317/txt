@@ -1,57 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Lawrence Sellin博士推出舒红兵&amp;江绵恒是否意味着江绵恒是一号毒王
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1112984/)
+## 当宗教被玷污
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1112965/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+**作者：纽约香草山农场 梵高的稻田**
 
-据[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午8:56 · 2021年4月18日](https://twitter.com/LawrenceSellin/status/1383766495449075712)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文
+上帝创世纪时，赋予了人类这个宠儿无限的潜能。可是，任何潜能皆是一把双刃剑，用得好能裨益众生，用不好就会祸害四方。这就像核能一样，用于发电能够造福人类，用作武器却可以摧毁地球。充分考虑到人类潜能被魔鬼撒旦利用的极大可能性，上帝在赋予人类无穷潜能的同时，也给人类配备了宗教。
 
+宗教是连接人类与上帝的一个工具。它锚定着人类的人性不致向撒旦倾斜，是芸芸众生在生命旅途中迷路时的指引。宗教是人类的需要，也是上帝的旨意。尽管宗教在伴随人类发展过程中，常被人类当做政治工具利用，但其连接人类与上帝的根本性质从未改变。正因如此，人类社会跌跌撞撞一路走来才不致于如史前文明一样走入毁灭之境。
 
+可是，当中共染指宗教时，人们信奉的不能再是上帝，而是中共的最高领袖人物。
+![pastedGraphic.png]()![pastedGraphic.png](https://gnews.org/wp-content/uploads/2021/04/image2-1.jpeg)
 
-> There is increasing evidence that activities involving Wuhan University with the participation of certain individuals may be intimately linked to the release of [#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#corona](https://twitter.com/hashtag/corona?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/JgfOVtXrTl](https://t.co/JgfOVtXrTl)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 18, 2021](https://twitter.com/LawrenceSellin/status/1383766495449075712?ref_src=twsrc%5Etfw)
+![pastedGraphic_1.png]()![pastedGraphic_1.png](https://gnews.org/wp-content/uploads/2021/04/image3.jpeg)
+综合媒体报道来看，自2018年以来，中共国内的宗教发生了巨大变化，最明显变化就是“政治挂帅，统领宗教”。
+![pastedGraphic_2.png]()![pastedGraphic_2.png](https://gnews.org/wp-content/uploads/2021/04/image4.jpeg)
+2018年9月22日，中梵签订了未曾公开的临时协议，双方皆称协议仅事关中共国的主教任命，梵蒂冈承认中共国在本区域主教任命的发言权，协议期限两年。但天主教香港教区荣休主教陈日君枢机表示，在协议期的两年内，并未任命过一名主教。
 
+2020年，协议期满后，中梵双方续签了主教任命临时协议。对此，陈日君指出，梵蒂冈意在与中共国建交。罗马教廷各国关系部长加拉格尔（Paul Gallagher）对媒体声称，“（如果没有让北京在选择主教问题上扮演重要作用）虽然不是马上，而是在十年以后，我们就会发现将没有几位（中国的）主教与教宗保持联系。”梵蒂冈教廷国务卿、枢机主教帕罗林（Pietro Parolin）称，“梵蒂冈认为与北京继续合作是重要的”，中梵协议“完全没有触及中国教会生活的其他层面，没有涉及政治议题”。中共国外交部发言人赵立坚则表示，“临时协议续签延续了中梵关系改善的势头”。
 
+中梵临时协议签订后，双方并未执行其声称的协议内容，却在协议期满后续签协议，并对未来的双方关系充满了期望。这到底是一份什么样的协议？
 
-There is increasing evidence that activities involving Wuhan University with the participation of certain individuals may be intimately linked to the release of [#COVIDー19](https://twitter.com/hashtag/COVIDー19?src=hashtag_click) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hashtag_click) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click) [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) [#corona](https://twitter.com/hashtag/corona?src=hashtag_click)
+郭文贵先生在2020年6月29日接受战斗室采访时透露，“梵蒂冈与中共达成很多秘密协议。梵蒂冈每年从中共收取高达20亿美金的贿赂和政治利益，出卖中共国地下天主教几千万虔诚教徒。”在中梵间起沟通促进的关键人物就是帕罗林。
+![pastedGraphic_3.png]()![pastedGraphic_3.png](https://gnews.org/wp-content/uploads/2021/04/image5.jpeg)
+帕罗林在梵蒂冈记者卢秋·布鲁内里的眼里，是一个“拥有现实主义外交路线，总是愿意进行调节，并开展新对话”的人。他曾在自己被任命为主教的典礼上说，“圣职不是一种权利，而是一种服务”。从宗教本来的性质来说，圣职确是为上帝和教徒服务。可是，一旦教徒行为偏离上帝旨意时，圣职服务于谁呢？这个时候，圣职有权力在上帝和背离上帝旨意的教徒间做调和吗？帕罗林在世俗世界里对“变通”的理解和操弄相当熟稔，但上帝旨意可以由人操弄吗？
 
-中文大意：越来越多的证据表明，武汉大学在某些人的参与下的活动可能与[#COVIDー19](https://twitter.com/hashtag/COVIDー19?src=hashtag_click)[中共病毒](https://twitter.com/hashtag/CCPVirus?src=hashtag_click)[#超限生物武战](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click) [#超限生物武器](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)[＃COVID19溯源](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click)[#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) [#Coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) [#corona](https://twitter.com/hashtag/corona?src=hashtag_click)的释放密切相关。
+中共国的教堂里悬挂习近平画像，寺庙里供奉共产党的前任高级领导，这就是梵蒂冈和无神论的中共操弄神的旨意的结果。教徒到底是信奉神的旨意，还是服从共产党最高领袖的意志？当宗教被俗世玷污，尤其被政治所操弄时，信众是否有权利选择跟随真正为上帝服务的圣职人员？
 
-在此前Lawrence Sellin博士已经发推诠释了13579计划——
+梵蒂冈如此担心中共国的主教与教宗失去联系，以至作出巨大让步，让中共染指主教任命，但为什么对“政治挂帅，统领宗教”的中共国的宗教现实选择性失明呢？
 
+**（文章仅代表作者本人观点，与GNews无关）**
 
+**参考链接：**
 
-> My analysis of the Chinese Communist Party's dual-use military-civilian R&D program for novel genetically-engineered coronaviruses & heterologous vaccines against multiple strains, roughly follows this development plan, but involves more than one virus & a premature release. [pic.twitter.com/QYkJCJG17S](https://t.co/QYkJCJG17S)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 17, 2021](https://twitter.com/LawrenceSellin/status/1383494654633472007?ref_src=twsrc%5Etfw)
+[1] [寺庙遭威胁 不供奉毛泽东像就强拆](https://zh.bitterwinter.org/temples-punished-for-not-worshiping-political-leaders/)
 
+[2] [梵蒂冈国务卿帕罗林证实：中梵主教任命协议将续签两年](https://www.rfi.fr/cn/%E6%94%BF%E6%B2%BB/20201021-%E6%A2%B5%E8%92%82%E5%86%88%E5%9B%BD%E5%8A%A1%E5%8D%BF%E5%B8%95%E7%BD%97%E6%9E%97%E8%AF%81%E5%AE%9E-%E4%B8%AD%E6%A2%B5%E4%B8%BB%E6%95%99%E4%BB%BB%E5%91%BD%E5%8D%8F%E8%AE%AE%E5%B0%86%E7%BB%AD%E7%AD%BE%E4%B8%A4%E5%B9%B4)
 
+[3] [外交部：经中梵友好协商，主教任命临时性协议将延期两年](https://baijiahao.baidu.com/s?id=1681297267633149683&amp;wfr=spider&amp;for=pc)
 
-那么Lawrence Sellin博士发推把舒红后和江绵恒推出来意味着啥呢？这就要涉及到南普陀计划和习近平在江家眼里是什么角色的问题了，郭文贵先生在[2021年2月17号 文贵直播： 马云被抓，今年是南普陀计划的收割年；江家是沼泽地的一部分；新中国联邦将是主角](https://gtv.org/video/id=602d3cebbe64150df85ac9bf)直播中提到：
+[4] [梵蒂冈帕罗林Pietro Parolin出卖中共国几千万虔诚天主教徒](https://gnews.org/zh-hans/1097615/)
 
-［我们讲南普陀计划的时候，有人给江家辟谣嘛？没人给江家辟谣。南普陀计划就是找了个傀儡是谁啊，习近平。潘多拉盒子，潘多拉盒子，武汉实验室，包括冠状病毒、包括对香港、台湾的“双龙计划”。咱们说的时候有人出来辟谣嘛？没人出来辟谣，］
+[5] [方济各教皇任命新教廷国务卿 修复罗马教廷形象](http://roll.sohu.com/20130902/n385648066.shtml)
 
-［上海帮是沼泽地里面的主人，习近平不是。还轮不着他呢，他不配。今天习在前面玩的什么冠状病毒哇、疫苗病毒呀、疫苗经济呀，把他咔嚓给他干掉以后，这些饭都是给人家江家做的，中国的沼泽地就是上海人呐、就是上海帮。］
+***责任编辑：英国喜庄园 AN***
 
-以及郭文贵先生在[2021年2月18日 文贵直播： 南普陀计划得到验证，江习大战进入最后时刻，江扶植韩正当傀儡接班人；川普是我们永远的朋友；九…](https://gtv.org/video/id=602e8fe0be64150df85c3194) 中提到的：
+***编辑/校对：华盛顿DC农场 光之子(沙加)***
 
-［咱们这位姐妹说这个南普陀这个计划，因为她认识这些人和他们所走的这些路，他们知道南普陀的存在。她说在这些人眼里面，习他就是个二货，他是个二货啊，她说一定毋容置疑的，所有习搞这个所谓的以毒灭白、灭白计划、还有潘多拉计划，包括这个所谓的网络加强控制、包括在香港的这个双龙计划、包括对香港人的打压、包括对国内的所谓企业迅速国有化、包括在世界上加入沼泽地统治全世界把国际共产主义做强做大。
-
-她说这很多人都不愿意去看，她说邓小平南下的时候，南下的时候说过什么、为什么南下呀？是因为江泽民，选了江泽民以后上来一年两年，这哥们他不想所谓的开放市场，他不想搞真正的所谓的中国的政治改革和经济改革，很明显。而且这个江最要做的事情就是所谓的中国企业，马上私人企业都要取消以国有企业为主，也就是今天习搞的这一套，而且要组织所有的私人企业去井冈山、延安学习，这都是当年江要搞的。当年邓小平一怒之下到了南方，到了南方以后就说，你这是谁不搞改革谁就要下台滴。
-
-所谓的一个老人去到了南方转了一圈，说划了一个圈、讲了一阵话，叫南方讲话。后来江泽民开始搞市场、搞改革、允许私营企业继续发展。她说今天所有习这一套路子都是当年江想干没干得了的，包括修宪、一辈子干到底，江最想让他儿子江绵恒是来当、接他的班的。修宪以后江要继续干，然后江绵恒继续干，结果江绵恒的肾不争气、肾换了一回又一回，这对江家是个大的伤害，江到了以后、拿到权力以后，最大的植耕于权力的核心就是军队，他为啥把张万年这些人都干掉，然后杯酒释兵权把张震这些老家族弄到西山去待着去吧，给你们家里边一些企业，然后把邓家的你想想搞这个保利，你们都滚一边去弄钱去吧，军权全拿下。
-
-这是为什么王岐山一定要干掉王瑞林，因为王瑞林还是代表着邓家的势力，就是江家没干成的事王岐山帮他干，就是当年江想干的事，他没干成的他让习王帮他干。后来习修了宪以后，他下一个他这个儿子身体不行啊孙子又不行啊都是肾都不太好，老换肾也不行啊，换肾是受次数限制的，怎么办呢？大家就知道了，韩正，韩正还有另外两个人今天我不说，绝对是你想象不到的，韩正不行，韩正即使上去，中国历代的皇家之下，一定要什么，叫监国，左监国、右监国，或者外监国、内监国，给韩正也都安排好了监国，都准备好啦。
-
-就是他所有的，你看到的所有的中国企业国有化、中国的一带一路、中国利用世界上所有的共产主义国家把种族主义打到底，团结亚非拉，团结中东、亚非拉中，然后把穆斯林、伊斯兰教的极端主义和共产党连在一起成为兄弟姐妹，这都是当年江要干的事情。江唯一的说在香港跟现在稍有不同，江认为要把中国的精英主义彻底地控制香港，用掺沙子每天给几万个单程把香港变成一个加大版的深圳，这叫大湾区。而且江说要对台湾要实行精神、文化、经济，所有的可能的叫软性统独，叫软性统独。那么习是硬统独，就这点不同，其他一切都是江的计划，就是南普陀计划。
-
-什么时候要把习干掉？现在这些事基本干完了，潘多拉盒子也打开啦，以毒灭白，是不是？以疫苗灭白也已经完成啦，美国的所有的沼泽地的计划也基本执行差不多啦，江的身体也不行啦，中国军队再撑下去，江的影响力就会逐渐衰减。王岐山在控制着经济牢牢在手。这些事情都到时候要卸磨杀驴啦，特别这个驴又太不听话，比较二，是吧！那就是习，干掉他。所以说这是一个核心。再往下弄，习就真做大啦，真做大啦，习就真做大啦！不是假做大啦！所以说现在要开始干，他俩之间一定有一个倒下的，要么是上海派干掉，要么习派干掉。］
-
-综合以上信息我们可以得出什么结论呢？长话短说就是习近平只是江家的一个使唤丫鬟，最终的幕后老大就是江家，而Lawrence Sellin博士的推特则进一步验证江绵恒才是13579计划的真正的指挥和控制者，那么舒红兵是谁呢？据[百度百科——舒红兵](https://baike.baidu.com/item/%E8%88%92%E7%BA%A2%E5%85%B5/7397820?fr=aladdin)：［舒红兵，男，汉族，1967年1月出生重庆市[荣昌县](https://baike.baidu.com/item/%E8%8D%A3%E6%98%8C%E5%8E%BF/8291425) [1] ，[无党派人士](https://baike.baidu.com/item/%E6%97%A0%E5%85%9A%E6%B4%BE%E4%BA%BA%E5%A3%AB/2088083)，细胞生物学家、免疫学家 [2]  ，[中国科学院院士](https://baike.baidu.com/item/%E4%B8%AD%E5%9B%BD%E7%A7%91%E5%AD%A6%E9%99%A2%E9%99%A2%E5%A3%AB/327194)，[发展中国家科学院院士](https://baike.baidu.com/item/%E5%8F%91%E5%B1%95%E4%B8%AD%E5%9B%BD%E5%AE%B6%E7%A7%91%E5%AD%A6%E9%99%A2%E9%99%A2%E5%A3%AB/2173686)，[武汉大学](https://baike.baidu.com/item/%E6%AD%A6%E6%B1%89%E5%A4%A7%E5%AD%A6/106709)副校长、医学研究院院长、教授 [2-3] 。舒红兵于1987年毕业于兰州大学；1990年，获中国医学科学院基础医学研究所硕士学位；1995年，获[美国埃默里大学](https://baike.baidu.com/item/%E7%BE%8E%E5%9B%BD%E5%9F%83%E9%BB%98%E9%87%8C%E5%A4%A7%E5%AD%A6/10492576)博士学位；2011年当选为中国科学院院士 [2]  ；2012年，当选为发展中国家科学院院士 [3] 。舒红兵主要从事免疫相关的细胞信号转导研究 [2] 。］
-
-舒红冰的妻子是王延轶，王延轶又名王延铁，在此前DT挖掘机在G-News发布的[【挖掘机团队出品】 P4实验室前传之 王岐山，高燕燕，王延轶关系解读！](https://gnews.org/zh-hans/117284/) 详述了王延轶与舒红兵的关系及王延轶的疑似王岐山和高燕燕的私生女身份。再结合Lawrence Sellin博士的推文，我们可以得出的结论是，在13579计划的布局和实施过程中，不仅是上阵父子兵的蛤和江绵恒，还要有最毒夫妻档的舒红兵和王延轶。那么在江绵恒后边还有没有更大的大佬？如果把江绵恒的蛤爹排除在外，我相信江绵恒就是这副中共13579计划扑克牌中的大猫，这个判断是否站得住脚？让我们静观Lawrence Sellin博士下文分解。
-
-（文章内容仅代表作者个人观点）
+***发布：盘古人生***
 
 +1

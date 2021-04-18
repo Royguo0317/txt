@@ -1,51 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104018（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1112743/)
+## 中共奈何美日抗中同盟成型?
+` Víctor Torres` [轉載自GNews](https://gnews.org/zh-hans/1112940/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+作者：Víctor Torres
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/biden.jpg)
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+参考消息网4月18日发表题为《境外媒体：日本被美推向对抗中国前沿》的文章称，正在美国访问的菅义伟首相当地时间周五与美国总统拜登在白宫举行首次面对面会谈。白宫向此次会谈发出了重视美日关系的信号。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01-7.jpg)
+文章称，美国总统拜登将中国定义为“唯一有能力挑战美国的竞争对手”，希望通过深化日美互补关系增强自身的对华竞争力。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02-8.jpg)
+拜登近日宣布美国将从阿富汗撤军，此举意味着美国将把战略重心从反恐战争转向对抗中国。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03-7.jpg)
+拜登和菅义伟都明白，通过多边方式来对抗中国是所谓最好的办法。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-9.jpg)
+文章聚焦于美日共同对抗中国(中共)，反映中共当局已经抛弃幻想，认清美日联合对抗中共的现实，不得不吞下自己酿下的苦果。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05-9.jpg)
+对于中共而言，比较现实的做法或许是抓紧扶手，迎接中日全面脱钩的冲击。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06-7.jpg)
+另一方面，也只有加紧战争准备。因为或主动、或被动，他们自知终将陷入一场结局已定的苦战。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07-7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08-7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09-7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-11.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-12.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-14.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-10.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-9.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-7.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
+[参考消息网](http://m.cankaoxiaoxi.com/china/20210418/2440764.shtml)
 
 0

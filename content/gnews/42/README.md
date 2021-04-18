@@ -1,75 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】长期潜伏在美国的中共特务龚小夏
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1112931/)
+## Lawrence Sellin博士推出舒红兵&amp;江绵恒是否意味着江绵恒是一号毒王
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1112984/)
 
-作者：纽约香草山写作组  人间世
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片112.png)2008年7月29日，在白宫南门前，美国总统布什和中国海外的人权活动者
-从左至右分别是黄慈萍、魏京生、龚小夏、翻译、热比娅、布什、吴弘达、傅希秋
-图片来源：Eric Draper/白宫网站
-
-龚小夏，英文名Sasha Gong，1956年生于北京，在广州长大。北京大学历史系学士、硕士毕业。1987年留学美国，1995年获哈佛大学社会学博士学位。 2009年曾担任美国弗吉尼亚州议会共和党籍候选人，美国弗吉尼亚州共和党亚裔委员会主任。2013年起担任美国之音中文普通话组主任，2017年因“4·19”断播事件被停职，2018年遭解雇。前夫是北大同学阎云翔，1954年生，曾师从著名学者张光直，获哈佛大学博士学位，现为美国加州大学洛杉矶分校中国研究中心主任、文化人类学教授，著有《礼物的流动》《私人生活的变革》（中译本由龚小夏翻译）等。龚小夏兄妹四人，至少有一位兄弟任职于中共核心部门。龚小夏和中共的沟通与交易，多数通过其弟弟完成。
-
-看起来比较讽刺的是，龚小夏的“发迹”开始于她18岁时一次“鲁莽”（本人语）的“反革命”行动。1974年，广州街头出现一张标题为“关于社会主义的民主与法制”的大字报，作者化名“李一哲”（ 广州美术学院学生李正天、高中中学生陈一阳、工厂工人王希哲），呼吁推行社会主义民主和法制。龚小夏被大字报的内容所吸引，和撰稿人取得了联系，后被打成“反革命集团”，遭到隔离审查。1978年，习仲勋出任广东省省委书记，接见了包括龚小夏在内的“李一哲”集团成员，并为之平反。习仲勋还特意告诉身边的人，不能以政治理由阻碍龚小夏上大学。为此，龚小夏一直对习仲勋感恩戴德，认为他“很伟大”。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片115.png)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片116.png)
-
-获得平反之后的龚小夏，迅速开启了直升北大、出国留学并顺利在美国扎根的成功之路。曾经的“李一哲”反革命集团的经历也让她顺利进入中共国民运圈，成为资深成员之一。虽然1989年天安门事件爆发之前，龚小夏已经来到美国，但出国前，龚便已和北京的民运人士十分熟悉，出国之后又在海外参与了众多与民运有关的活动。但近年来，一直有民运内部人士怀疑龚“反革命”之后的平步青云不合常理，背后应有中共支持，龚可能在进入大学前就已被中共招募为特务。
-
-支持这一怀疑的首要证据，当属1990年代龚小夏在中共获得贸易最惠国待遇过程中起到的重要作用。根据美国《1974贸易法》，中共国等非市场经济国家不能自动享有贸易最惠国待遇，需要一年一审。1989年之前，中共国的最惠国待遇审查基本都顺利通过。但六四事件之后，一些人权组织和国会议员提议取消中共国的最惠国待遇，以示惩罚。美国国会就此事多次召开听证会，听取各方意见。龚小夏当时作为中共国哈佛大学留学生和民运人士代表，坚决支持美国无条件延长中共国最惠国待遇地位，即不和人权挂钩。1994年5月，克林顿宣布继续给予中国最惠国待遇，并将贸易与人权脱钩。2000年5月，美国众议院以83票赞成、15票反对的结果通过法案，给予中共国永久对华贸易正常关系（PNTR）地位。据郭文贵先生获得的内部情报，龚小夏在中共赢得贸易最惠国待遇一事上立下了汗马功劳，并通过她在国内的弟弟，收受了中共的巨额回扣。
-
-此后，龚小夏和中共的关系似乎进入了蜜月期。作为资深民运人士的她，2000年以后，居然在中共国的出版社合法出版了至少三本书：（1）《私人生活的变革：一个中国村庄里的爱情、家庭与亲密关系：1949-1999》（翻译），上海书店出版社，2006年； （2）《驴象庄园：美国总统是如何产生的》（Donkey elephant farm），法律出版社，2008年；（3）《亲历民主：我在美国竞选议员》（Living democracy : I want to represent you），复旦大学出版社，2011年。更令人震惊的是，中共严格控制的官方媒体还不时刊发龚小夏女士的大作，比如人民网，2008年11月19日刊“基地组织竟是昔日与美国对抗苏联的盟友？”；人民网，2011年1月20日刊“美亚利桑那枪击案引发反思 媒体抨击脱口秀节目”； 新华网，2011年9月10日刊“‘9-11’未从根本上改变美国 社会持续多元化”；《中青报：警察枪击案背后的黑人种族困境》，人民网，2013年08月06日 ；《中青报：美国官员嫖妓如何处理》，人民网，2013年08月13日；《中青报：撒谎记者受罚案件并未就此结束》，人民网，2013年10月30日；等等。其文章都是直接或间接地为中共说话。更神奇的是，中共“中国网”旗下的“观点中国”还为反共的民运人士龚小夏开辟了专栏（http://opinion.china.com.cn/person\_9213\_1.html）。根据网站介绍，该网是“由国务院新闻办公室和国家互联网信息办公室领导、中国外文出版发行事业局管理的国家重点新闻网站”。王岐山的情人胡舒立控制下的《财新》杂志网站上，还有龚小夏的博客（https://gongxiaoxia.blog.caixin.com/）。据郭文贵先生得到的情报，龚小夏在国内出书卖文以及其家人在国内的生意，都是她体制内的弟弟一手操办的。
-
-2013年出任美国之音普通话组主任，是龚小夏人生中的另一重大事件，很可能也是中美关系史上的标志性事件之一。美国之音作为对华宣传的官方媒体，其中文部主管是一个颇有分量的职位，过去一直是美国外交官出任，后来由美国媒体人出任，龚小夏是第一位担任此职位的华人。任职之前， 龚小夏曾经任职自由亚洲电台粤语部主任，因与管理层不和，被迫离开，也有一种说法是因多次违规被开除。无论如何，自由亚洲电台和美国之音同为美国广播理事会（2018年更名为美国国际媒体署）的下属机构，被其中一家辞退之后竟然能够直接转入另一家担任重要职位，很难不让人怀疑有共产党的强大势力在背后支持。2017年之前，“作为中美两边利益集团勾兑的马前卒，龚小夏一边在美国政界到处混脸熟，一边利用自己在VOA中文部负责人的身份，长期和共匪一唱一和，小骂大帮忙，用一些不疼不痒的节目，让VOA在中国人心中的地位从20世纪80年代的自由灯塔堕落到无人问津”。
-
-2017年4月19日，龚小夏代表美国之音采访郭文贵先生，预告直播三小时，结果直播中途（一个多小时）迫于中共压力被强行断播，震惊中外。之后，龚小夏等人被停职调查，最后被解雇。龚小夏因此一直把自己包装成该事件的受害者，一位不畏中共强权、捍卫民主自由的杰出媒体人。但爆料革命战友提供的情报，彻底揭穿了龚小夏骗人的把戏，把她的中共特务身份公诸于世。
-
-在断播事件中，龚小夏为了权力和金钱导演了多重骗局。首先，一方面答应郭文贵先生的要求，承诺直播三小时，另一方面却对美国之音高层说直播一小时，剩下两小时网络直播。她从未打算真正直播三小时，所谓断播至少一部分是她导演的骗局。她的真正目的之一是嫁祸于美国之音台长阿曼达·贝内特（Amanda Bennett），让外界以为贝内特受中共影响而断播，进而除掉贝内特，自己上位。其次，龚小夏通过她的弟弟和中共王岐山等人做交易，以防止郭先生爆某些大料为由，获得巨额回报。更可恶的是，为了获取更大的利益，龚小夏谎称郭先生掌握了习近平、王岐山等人的情色录像带，使共匪高层极为恐惧，动用一切手段对郭先生施压，导致郭先生家人和同事再次遭受牢狱之苦。
-
-事实上，龚小夏惯于撒谎。2019年11月28日，龚小夏在推特发文，说她看到法治社会的账目之后选择辞去董事职务，暗示法治社会账目有问题。事实是，当时法治基金和法治社会的所有董事和管理人员，没有任何人看过法治社会的账目，因为法律不允许，只有美国国家税务局有权利看。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片113.png)
-
-龚小夏还造谣污蔑班农先生经济状况困窘，在推特发文编造事实，挑拨郭先生和班农先生的关系，并在庭审中做伪证，声称郭文贵先生是中共间谍等。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片114.png)美国国会有关六四事件之后如何延长中国最惠国待遇的听证会，龚小夏发言
+据[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午8:56 · 2021年4月18日](https://twitter.com/LawrenceSellin/status/1383766495449075712)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文
 
 
 
-参考文献：
-
-[http://jasmine-action.blogspot.com/2018/01/blog-post\_4.html](https://jasmine-action.blogspot.com/2018/01/blog-post_4.html)
-
-1991年6月国会听证会上龚晓夏近6分钟的发言，[https://www.youtube.com/watch?v=mc-43CG2iWQ](https://www.youtube.com/watch?v=mc-43CG2iWQ)
-
-[https://pekinger-fruehling.univie.ac.at/index.php?id=189384&L=27](https://pekinger-fruehling.univie.ac.at/index.php?id=189384&amp;L=27)
-
-郭文贵先生直播，[https://gsearch.media/](https://gsearch.media/)
-
-校对/发稿：飞虹
+> There is increasing evidence that activities involving Wuhan University with the participation of certain individuals may be intimately linked to the release of [#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#corona](https://twitter.com/hashtag/corona?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/JgfOVtXrTl](https://t.co/JgfOVtXrTl)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 18, 2021](https://twitter.com/LawrenceSellin/status/1383766495449075712?ref_src=twsrc%5Etfw)
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpeg)
+There is increasing evidence that activities involving Wuhan University with the participation of certain individuals may be intimately linked to the release of [#COVIDー19](https://twitter.com/hashtag/COVIDー19?src=hashtag_click) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hashtag_click) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click) [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) [#corona](https://twitter.com/hashtag/corona?src=hashtag_click)
 
-**更多资讯，更多关注**
+中文大意：越来越多的证据表明，武汉大学在某些人的参与下的活动可能与[#COVIDー19](https://twitter.com/hashtag/COVIDー19?src=hashtag_click)[中共病毒](https://twitter.com/hashtag/CCPVirus?src=hashtag_click)[#超限生物武战](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click) [#超限生物武器](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)[＃COVID19溯源](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click)[#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) [#Coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) [#corona](https://twitter.com/hashtag/corona?src=hashtag_click)的释放密切相关。
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+在此前Lawrence Sellin博士已经发推诠释了13579计划——
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+> My analysis of the Chinese Communist Party's dual-use military-civilian R&D program for novel genetically-engineered coronaviruses & heterologous vaccines against multiple strains, roughly follows this development plan, but involves more than one virus & a premature release. [pic.twitter.com/QYkJCJG17S](https://t.co/QYkJCJG17S)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 17, 2021](https://twitter.com/LawrenceSellin/status/1383494654633472007?ref_src=twsrc%5Etfw)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-0
+
+那么Lawrence Sellin博士发推把舒红后和江绵恒推出来意味着啥呢？这就要涉及到南普陀计划和习近平在江家眼里是什么角色的问题了，郭文贵先生在[2021年2月17号 文贵直播： 马云被抓，今年是南普陀计划的收割年；江家是沼泽地的一部分；新中国联邦将是主角](https://gtv.org/video/id=602d3cebbe64150df85ac9bf)直播中提到：
+
+［我们讲南普陀计划的时候，有人给江家辟谣嘛？没人给江家辟谣。南普陀计划就是找了个傀儡是谁啊，习近平。潘多拉盒子，潘多拉盒子，武汉实验室，包括冠状病毒、包括对香港、台湾的“双龙计划”。咱们说的时候有人出来辟谣嘛？没人出来辟谣，］
+
+［上海帮是沼泽地里面的主人，习近平不是。还轮不着他呢，他不配。今天习在前面玩的什么冠状病毒哇、疫苗病毒呀、疫苗经济呀，把他咔嚓给他干掉以后，这些饭都是给人家江家做的，中国的沼泽地就是上海人呐、就是上海帮。］
+
+以及郭文贵先生在[2021年2月18日 文贵直播： 南普陀计划得到验证，江习大战进入最后时刻，江扶植韩正当傀儡接班人；川普是我们永远的朋友；九…](https://gtv.org/video/id=602e8fe0be64150df85c3194) 中提到的：
+
+［咱们这位姐妹说这个南普陀这个计划，因为她认识这些人和他们所走的这些路，他们知道南普陀的存在。她说在这些人眼里面，习他就是个二货，他是个二货啊，她说一定毋容置疑的，所有习搞这个所谓的以毒灭白、灭白计划、还有潘多拉计划，包括这个所谓的网络加强控制、包括在香港的这个双龙计划、包括对香港人的打压、包括对国内的所谓企业迅速国有化、包括在世界上加入沼泽地统治全世界把国际共产主义做强做大。
+
+她说这很多人都不愿意去看，她说邓小平南下的时候，南下的时候说过什么、为什么南下呀？是因为江泽民，选了江泽民以后上来一年两年，这哥们他不想所谓的开放市场，他不想搞真正的所谓的中国的政治改革和经济改革，很明显。而且这个江最要做的事情就是所谓的中国企业，马上私人企业都要取消以国有企业为主，也就是今天习搞的这一套，而且要组织所有的私人企业去井冈山、延安学习，这都是当年江要搞的。当年邓小平一怒之下到了南方，到了南方以后就说，你这是谁不搞改革谁就要下台滴。
+
+所谓的一个老人去到了南方转了一圈，说划了一个圈、讲了一阵话，叫南方讲话。后来江泽民开始搞市场、搞改革、允许私营企业继续发展。她说今天所有习这一套路子都是当年江想干没干得了的，包括修宪、一辈子干到底，江最想让他儿子江绵恒是来当、接他的班的。修宪以后江要继续干，然后江绵恒继续干，结果江绵恒的肾不争气、肾换了一回又一回，这对江家是个大的伤害，江到了以后、拿到权力以后，最大的植耕于权力的核心就是军队，他为啥把张万年这些人都干掉，然后杯酒释兵权把张震这些老家族弄到西山去待着去吧，给你们家里边一些企业，然后把邓家的你想想搞这个保利，你们都滚一边去弄钱去吧，军权全拿下。
+
+这是为什么王岐山一定要干掉王瑞林，因为王瑞林还是代表着邓家的势力，就是江家没干成的事王岐山帮他干，就是当年江想干的事，他没干成的他让习王帮他干。后来习修了宪以后，他下一个他这个儿子身体不行啊孙子又不行啊都是肾都不太好，老换肾也不行啊，换肾是受次数限制的，怎么办呢？大家就知道了，韩正，韩正还有另外两个人今天我不说，绝对是你想象不到的，韩正不行，韩正即使上去，中国历代的皇家之下，一定要什么，叫监国，左监国、右监国，或者外监国、内监国，给韩正也都安排好了监国，都准备好啦。
+
+就是他所有的，你看到的所有的中国企业国有化、中国的一带一路、中国利用世界上所有的共产主义国家把种族主义打到底，团结亚非拉，团结中东、亚非拉中，然后把穆斯林、伊斯兰教的极端主义和共产党连在一起成为兄弟姐妹，这都是当年江要干的事情。江唯一的说在香港跟现在稍有不同，江认为要把中国的精英主义彻底地控制香港，用掺沙子每天给几万个单程把香港变成一个加大版的深圳，这叫大湾区。而且江说要对台湾要实行精神、文化、经济，所有的可能的叫软性统独，叫软性统独。那么习是硬统独，就这点不同，其他一切都是江的计划，就是南普陀计划。
+
+什么时候要把习干掉？现在这些事基本干完了，潘多拉盒子也打开啦，以毒灭白，是不是？以疫苗灭白也已经完成啦，美国的所有的沼泽地的计划也基本执行差不多啦，江的身体也不行啦，中国军队再撑下去，江的影响力就会逐渐衰减。王岐山在控制着经济牢牢在手。这些事情都到时候要卸磨杀驴啦，特别这个驴又太不听话，比较二，是吧！那就是习，干掉他。所以说这是一个核心。再往下弄，习就真做大啦，真做大啦，习就真做大啦！不是假做大啦！所以说现在要开始干，他俩之间一定有一个倒下的，要么是上海派干掉，要么习派干掉。］
+
+综合以上信息我们可以得出什么结论呢？长话短说就是习近平只是江家的一个使唤丫鬟，最终的幕后老大就是江家，而Lawrence Sellin博士的推特则进一步验证江绵恒才是13579计划的真正的指挥和控制者，那么舒红兵是谁呢？据[百度百科——舒红兵](https://baike.baidu.com/item/%E8%88%92%E7%BA%A2%E5%85%B5/7397820?fr=aladdin)：［舒红兵，男，汉族，1967年1月出生重庆市[荣昌县](https://baike.baidu.com/item/%E8%8D%A3%E6%98%8C%E5%8E%BF/8291425) [1] ，[无党派人士](https://baike.baidu.com/item/%E6%97%A0%E5%85%9A%E6%B4%BE%E4%BA%BA%E5%A3%AB/2088083)，细胞生物学家、免疫学家 [2]  ，[中国科学院院士](https://baike.baidu.com/item/%E4%B8%AD%E5%9B%BD%E7%A7%91%E5%AD%A6%E9%99%A2%E9%99%A2%E5%A3%AB/327194)，[发展中国家科学院院士](https://baike.baidu.com/item/%E5%8F%91%E5%B1%95%E4%B8%AD%E5%9B%BD%E5%AE%B6%E7%A7%91%E5%AD%A6%E9%99%A2%E9%99%A2%E5%A3%AB/2173686)，[武汉大学](https://baike.baidu.com/item/%E6%AD%A6%E6%B1%89%E5%A4%A7%E5%AD%A6/106709)副校长、医学研究院院长、教授 [2-3] 。舒红兵于1987年毕业于兰州大学；1990年，获中国医学科学院基础医学研究所硕士学位；1995年，获[美国埃默里大学](https://baike.baidu.com/item/%E7%BE%8E%E5%9B%BD%E5%9F%83%E9%BB%98%E9%87%8C%E5%A4%A7%E5%AD%A6/10492576)博士学位；2011年当选为中国科学院院士 [2]  ；2012年，当选为发展中国家科学院院士 [3] 。舒红兵主要从事免疫相关的细胞信号转导研究 [2] 。］
+
+舒红冰的妻子是王延轶，王延轶又名王延铁，在此前DT挖掘机在G-News发布的[【挖掘机团队出品】 P4实验室前传之 王岐山，高燕燕，王延轶关系解读！](https://gnews.org/zh-hans/117284/) 详述了王延轶与舒红兵的关系及王延轶的疑似王岐山和高燕燕的私生女身份。再结合Lawrence Sellin博士的推文，我们可以得出的结论是，在13579计划的布局和实施过程中，不仅是上阵父子兵的蛤和江绵恒，还要有最毒夫妻档的舒红兵和王延轶。那么在江绵恒后边还有没有更大的大佬？如果把江绵恒的蛤爹排除在外，我相信江绵恒就是这副中共13579计划扑克牌中的大猫，这个判断是否站得住脚？让我们静观Lawrence Sellin博士下文分解。
+
+（文章内容仅代表作者个人观点）
+
++1
