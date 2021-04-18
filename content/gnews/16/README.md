@@ -1,77 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 从经纪人托齐逮捕直指红衣主教帕洛林.贝丘
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1112750/)
+## Lawrence Sellin博士推出舒红兵&amp;江绵恒是否意味着江绵恒是一号毒王
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1112984/)
 
-#### -——罗马教廷被中共蓝金黄的黑幕即将拉开
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-##### 翻译报道:大甄
+据[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午8:56 · 2021年4月18日](https://twitter.com/LawrenceSellin/status/1383766495449075712)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文
 
-##### 责编：人间四月
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-14-157.jpg)[图片来源](https://gnews.org/wp-content/uploads/2021/04/1-14-157.jpg)
-#### 先介绍几个关键人物：
 
-1.吉安路易吉.托齐（Gianluigi Torzi ）:2018年作为经纪人受雇于罗马教廷国务院。与合伙人贾科莫 卡皮兹（Giacomo Capizzi）出售Sierra One 债券。实际控股卢森堡的古特公司（Gutt SA）卡皮兹被另案起诉。
 
-2.拉斐尔.明西奥内（Raffaele 明西奥内）:拥有雅典娜全球投资基金（Athena Global Opportunities Fund）
+> There is increasing evidence that activities involving Wuhan University with the participation of certain individuals may be intimately linked to the release of [#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#corona](https://twitter.com/hashtag/corona?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/JgfOVtXrTl](https://t.co/JgfOVtXrTl)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 18, 2021](https://twitter.com/LawrenceSellin/status/1383766495449075712?ref_src=twsrc%5Etfw)
 
-3.红衣主教帕罗林（Pietro Parolin）：梵蒂冈国务卿，曾就梵蒂冈与中共当局的有争议的协议，为中共站台，称就中共任命中国大陆主教的问题上，协议是所有教皇都希望达成的。
 
-4.红衣主教安杰洛.贝丘（Angelo Becciu）:前梵蒂冈副国务卿，因财务丑闻而辞职。
 
-#### **现****在****开****始****讲****故事：**
+There is increasing evidence that activities involving Wuhan University with the participation of certain individuals may be intimately linked to the release of [#COVIDー19](https://twitter.com/hashtag/COVIDー19?src=hashtag_click) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hashtag_click) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click) [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) [#corona](https://twitter.com/hashtag/corona?src=hashtag_click)
 
-2014年，托齐与几位文化界官员和投资顾问一起，将当时梵蒂冈国务卿首次介绍给投资经理明西内奥。**接下****来开****始官商勾****结**。国务卿将【彼得的便士】和其他慈善基金存入两家瑞士银行作为2亿欧元贷款的抵押品。这2亿欧元贷款通过商人明西奥内的雅典娜全球投资基金，进行具体操纵。
+中文大意：越来越多的证据表明，武汉大学在某些人的参与下的活动可能与[#COVIDー19](https://twitter.com/hashtag/COVIDー19?src=hashtag_click)[中共病毒](https://twitter.com/hashtag/CCPVirus?src=hashtag_click)[#超限生物武战](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click) [#超限生物武器](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)[＃COVID19溯源](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click)[#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) [#Coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) [#corona](https://twitter.com/hashtag/corona?src=hashtag_click)的释放密切相关。
 
-在托齐做梵蒂冈经纪人之前的几个月，明西奥内将梵蒂冈的资金投于托齐出售的债务产品， 其中有一些与意大利黑手党的公司有联系。作为回报，几乎同时托齐则利用他的公司向明西奥内借出了数千万欧元。**（****这****花里胡哨的操作，似曾相****识****，太像冠****军****，****刘****呈杰，****孙瑶****了）**
+在此前Lawrence Sellin博士已经发推诠释了13579计划——
 
-托齐于2018年11月通过其卢森堡控股公司古特从明西奥内收购了伦敦斯隆街60号的全部所有权。
 
-托齐本应将公司的控制权移交给梵蒂冈国务院，但是，他改组了公司，以使梵蒂冈拥有大部分股份，但自己保留对公司的控制权。具体做法是，除公司的30,000股普通股外，还创建了1,000股有表决权的股份，从而有效地将公司的控制权与多数股权分开。托齐将30,000股普通股转给了国务院，同时自己保留了1,000股有表决权的股份，据称，他随后试图向国务院勒索数百万美元，以换取对控股公司和建筑物的控制权。
 
-托齐对梵蒂冈提出了更多要求：天主教媒体【支柱】（The Pillar*）*称，托齐与两名梵蒂冈投资管理人（其中一位是国务院官员）于2018年12月进行的对话，托齐要求额外提供1000万欧元，以促成他与一家意大利保险公司达成法律和解。
+> My analysis of the Chinese Communist Party's dual-use military-civilian R&D program for novel genetically-engineered coronaviruses & heterologous vaccines against multiple strains, roughly follows this development plan, but involves more than one virus & a premature release. [pic.twitter.com/QYkJCJG17S](https://t.co/QYkJCJG17S)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 17, 2021](https://twitter.com/LawrenceSellin/status/1383494654633472007?ref_src=twsrc%5Etfw)
 
-#### **调查与****反****击**
 
-据称，法律上要求的贷款和投资授权，国务院并未从梵蒂冈财政部获得。根据以前的新闻报道，当时担任国务卿的第二任主教安贝乔试图隐瞒贷款和投资，以避免受到财政部的审计。当时财政部由枢机主教乔治·佩尔（George Pell）领导。
 
-佩尔旧部门的一位资深消息人士称，佩尔的部门与梵蒂冈第一任审计长利贝洛·米隆（Libero Milone）一起发现了这笔贷款，并将其报告给财政部，但并未采取纠正或惩罚行动。
+那么Lawrence Sellin博士发推把舒红后和江绵恒推出来意味着啥呢？这就要涉及到南普陀计划和习近平在江家眼里是什么角色的问题了，郭文贵先生在[2021年2月17号 文贵直播： 马云被抓，今年是南普陀计划的收割年；江家是沼泽地的一部分；新中国联邦将是主角](https://gtv.org/video/id=602d3cebbe64150df85ac9bf)直播中提到：
 
-2017年，佩尔不得不休假回到澳大利亚，随后他被地方法院定罪，但最后高等法院免除其罪名。同年，米隆因受到起诉的威胁，被红衣主教贝丘辞退。贝丘指称米隆正在“非法监视”国务卿在内的官员的私人财务，包括贝丘。米隆说他因工作原因而被迫离职。（**疑似被陷害**）
+［我们讲南普陀计划的时候，有人给江家辟谣嘛？没人给江家辟谣。南普陀计划就是找了个傀儡是谁啊，习近平。潘多拉盒子，潘多拉盒子，武汉实验室，包括冠状病毒、包括对香港、台湾的“双龙计划”。咱们说的时候有人出来辟谣嘛？没人出来辟谣，］
 
-2020年9月，在梵蒂冈检察官向教皇介绍了有关贝丘处理梵蒂冈财务情况的资料后，教皇方济各下令，贝丘辞去其教会职务和枢机主教。
+［上海帮是沼泽地里面的主人，习近平不是。还轮不着他呢，他不配。今天习在前面玩的什么冠状病毒哇、疫苗病毒呀、疫苗经济呀，把他咔嚓给他干掉以后，这些饭都是给人家江家做的，中国的沼泽地就是上海人呐、就是上海帮。］
 
-梵蒂冈调查人员通过意大利法院两次向明西奥内提供搜查和扣押令。英国一名法官发布了冻结托齐财产的禁令，该禁令是梵蒂冈检察官提起的。托齐被指控犯有“欺诈行为”，及挪用超过2500万欧元的政府债券。托齐于2020年6月在梵蒂冈城被捕，并被指控勒索，挪用公款，洗钱和严重欺诈行为。明西奥内在2014年至2018年之间对梵蒂冈投资的管理也在调查中。梵蒂冈媒体将明西奥内进行的投资描述为“投机性”和“利益冲突”。
+以及郭文贵先生在[2021年2月18日 文贵直播： 南普陀计划得到验证，江习大战进入最后时刻，江扶植韩正当傀儡接班人；川普是我们永远的朋友；九…](https://gtv.org/video/id=602e8fe0be64150df85c3194) 中提到的：
 
-红衣主教帕罗林和贝丘都试图与伦敦丑闻保持距离。贝丘一再为伦敦房地产的投资辩护，即使他从国务卿调任后，他仍继续游说该交易。贝丘在2019年告诉记者，这笔交易是“可接受的做法”，而财政部的高级官员则表示“虽然事实上已经接受，但这并不意味着可以接受。”
+［咱们这位姐妹说这个南普陀这个计划，因为她认识这些人和他们所走的这些路，他们知道南普陀的存在。她说在这些人眼里面，习他就是个二货，他是个二货啊，她说一定毋容置疑的，所有习搞这个所谓的以毒灭白、灭白计划、还有潘多拉计划，包括这个所谓的网络加强控制、包括在香港的这个双龙计划、包括对香港人的打压、包括对国内的所谓企业迅速国有化、包括在世界上加入沼泽地统治全世界把国际共产主义做强做大。
 
-尽管显然以书面形式批准了托齐的购买伦敦房地产的计划，并且亲自干预以迫使梵蒂冈银行总裁批准1.5亿欧元的贷款以促成该交易，但枢机主教帕罗林公开表示他不知道投资细节。
+她说这很多人都不愿意去看，她说邓小平南下的时候，南下的时候说过什么、为什么南下呀？是因为江泽民，选了江泽民以后上来一年两年，这哥们他不想所谓的开放市场，他不想搞真正的所谓的中国的政治改革和经济改革，很明显。而且这个江最要做的事情就是所谓的中国企业，马上私人企业都要取消以国有企业为主，也就是今天习搞的这一套，而且要组织所有的私人企业去井冈山、延安学习，这都是当年江要搞的。当年邓小平一怒之下到了南方，到了南方以后就说，你这是谁不搞改革谁就要下台滴。
 
-帕罗林在2019年10月说：这笔交易相当不透明，现在我们正在努力想把它搞清楚。
+所谓的一个老人去到了南方转了一圈，说划了一个圈、讲了一阵话，叫南方讲话。后来江泽民开始搞市场、搞改革、允许私营企业继续发展。她说今天所有习这一套路子都是当年江想干没干得了的，包括修宪、一辈子干到底，江最想让他儿子江绵恒是来当、接他的班的。修宪以后江要继续干，然后江绵恒继续干，结果江绵恒的肾不争气、肾换了一回又一回，这对江家是个大的伤害，江到了以后、拿到权力以后，最大的植耕于权力的核心就是军队，他为啥把张万年这些人都干掉，然后杯酒释兵权把张震这些老家族弄到西山去待着去吧，给你们家里边一些企业，然后把邓家的你想想搞这个保利，你们都滚一边去弄钱去吧，军权全拿下。
 
-#### **法庭****阶****段**
+这是为什么王岐山一定要干掉王瑞林，因为王瑞林还是代表着邓家的势力，就是江家没干成的事王岐山帮他干，就是当年江想干的事，他没干成的他让习王帮他干。后来习修了宪以后，他下一个他这个儿子身体不行啊孙子又不行啊都是肾都不太好，老换肾也不行啊，换肾是受次数限制的，怎么办呢？大家就知道了，韩正，韩正还有另外两个人今天我不说，绝对是你想象不到的，韩正不行，韩正即使上去，中国历代的皇家之下，一定要什么，叫监国，左监国、右监国，或者外监国、内监国，给韩正也都安排好了监国，都准备好啦。
 
-英国的裁决发现，托齐在伦敦房地产交易中的行为已得到国务院高级官员的特别授权，因此无法证明托齐在梵蒂冈方面有欺诈行为。梵蒂冈检察官向英国法院提交的文件似乎也表明，整个交易都是由国务卿红衣主教帕罗林亲自批准的**。（****托****齐****只是奉命行事，梵蒂****冈盗国贼****的白手套？）**
+就是他所有的，你看到的所有的中国企业国有化、中国的一带一路、中国利用世界上所有的共产主义国家把种族主义打到底，团结亚非拉，团结中东、亚非拉中，然后把穆斯林、伊斯兰教的极端主义和共产党连在一起成为兄弟姐妹，这都是当年江要干的事情。江唯一的说在香港跟现在稍有不同，江认为要把中国的精英主义彻底地控制香港，用掺沙子每天给几万个单程把香港变成一个加大版的深圳，这叫大湾区。而且江说要对台湾要实行精神、文化、经济，所有的可能的叫软性统独，叫软性统独。那么习是硬统独，就这点不同，其他一切都是江的计划，就是南普陀计划。
 
-意大利的法院做出了令梵蒂冈当局震惊的判决：国务院在投资数亿欧元的教会资金时，以及在将【彼得的便士】资金用作高风险投资的抵押品时，其行动超越了法律的权限，违法了梵蒂冈金融法。这项指控可能会使交易无效，并使红衣主教帕罗林和贝丘对该丑闻负有最终法律责任。
+什么时候要把习干掉？现在这些事基本干完了，潘多拉盒子也打开啦，以毒灭白，是不是？以疫苗灭白也已经完成啦，美国的所有的沼泽地的计划也基本执行差不多啦，江的身体也不行啦，中国军队再撑下去，江的影响力就会逐渐衰减。王岐山在控制着经济牢牢在手。这些事情都到时候要卸磨杀驴啦，特别这个驴又太不听话，比较二，是吧！那就是习，干掉他。所以说这是一个核心。再往下弄，习就真做大啦，真做大啦，习就真做大啦！不是假做大啦！所以说现在要开始干，他俩之间一定有一个倒下的，要么是上海派干掉，要么习派干掉。］
 
-#### **另外的几****个****故事，有****关****帕****罗****林和****贝****丘的**
+综合以上信息我们可以得出什么结论呢？长话短说就是习近平只是江家的一个使唤丫鬟，最终的幕后老大就是江家，而Lawrence Sellin博士的推特则进一步验证江绵恒才是13579计划的真正的指挥和控制者，那么舒红兵是谁呢？据[百度百科——舒红兵](https://baike.baidu.com/item/%E8%88%92%E7%BA%A2%E5%85%B5/7397820?fr=aladdin)：［舒红兵，男，汉族，1967年1月出生重庆市[荣昌县](https://baike.baidu.com/item/%E8%8D%A3%E6%98%8C%E5%8E%BF/8291425) [1] ，[无党派人士](https://baike.baidu.com/item/%E6%97%A0%E5%85%9A%E6%B4%BE%E4%BA%BA%E5%A3%AB/2088083)，细胞生物学家、免疫学家 [2]  ，[中国科学院院士](https://baike.baidu.com/item/%E4%B8%AD%E5%9B%BD%E7%A7%91%E5%AD%A6%E9%99%A2%E9%99%A2%E5%A3%AB/327194)，[发展中国家科学院院士](https://baike.baidu.com/item/%E5%8F%91%E5%B1%95%E4%B8%AD%E5%9B%BD%E5%AE%B6%E7%A7%91%E5%AD%A6%E9%99%A2%E9%99%A2%E5%A3%AB/2173686)，[武汉大学](https://baike.baidu.com/item/%E6%AD%A6%E6%B1%89%E5%A4%A7%E5%AD%A6/106709)副校长、医学研究院院长、教授 [2-3] 。舒红兵于1987年毕业于兰州大学；1990年，获中国医学科学院基础医学研究所硕士学位；1995年，获[美国埃默里大学](https://baike.baidu.com/item/%E7%BE%8E%E5%9B%BD%E5%9F%83%E9%BB%98%E9%87%8C%E5%A4%A7%E5%AD%A6/10492576)博士学位；2011年当选为中国科学院院士 [2]  ；2012年，当选为发展中国家科学院院士 [3] 。舒红兵主要从事免疫相关的细胞信号转导研究 [2] 。］
 
-罗马一家濒临破产的皮肤病医院Istituto Dermopatico dell’Immacolata（IDI），其院长神父佛朗哥·德卡米纳达（Franco Decaminada）于2011年7月向红衣主教贝丘求助，当时贝丘在国务院办公室上任后不久，并向该医院募集了2亿欧元的投资。两个月后弗朗哥雇用了贝丘的侄女玛丽亚（Maria Piera Becciu）作为他的私人秘书。医院在几个月后倒闭了，贝丘说他不记得弗朗哥的提议，尽管该提议的文件已在意大利媒体上发表。**（瞪眼****说****瞎****话****，****盗国贼****一****贯****作****风****）**
+舒红冰的妻子是王延轶，王延轶又名王延铁，在此前DT挖掘机在G-News发布的[【挖掘机团队出品】 P4实验室前传之 王岐山，高燕燕，王延轶关系解读！](https://gnews.org/zh-hans/117284/) 详述了王延轶与舒红兵的关系及王延轶的疑似王岐山和高燕燕的私生女身份。再结合Lawrence Sellin博士的推文，我们可以得出的结论是，在13579计划的布局和实施过程中，不仅是上阵父子兵的蛤和江绵恒，还要有最毒夫妻档的舒红兵和王延轶。那么在江绵恒后边还有没有更大的大佬？如果把江绵恒的蛤爹排除在外，我相信江绵恒就是这副中共13579计划扑克牌中的大猫，这个判断是否站得住脚？让我们静观Lawrence Sellin博士下文分解。
 
-该医院负债超过8亿欧元，在2012年倒闭。医院管理部门的几位成员，包括佛朗哥被意大利当局以欺诈和挪用公款的罪名起诉，并入狱。
+（文章内容仅代表作者个人观点）
 
-医院倒闭并对其管理者提出诉讼后，梵蒂冈国务院发布了一道宗教命令，该宗教命令包括创建营利性实体路易吉·玛丽亚·蒙蒂（Luigi Maria Monti）基金会，以从政府控制的破产清算中收购该医院，支付了约1.5亿欧元。
-
-在贝丘和帕罗林领导下的国务院最初向梵蒂冈银行寻求一笔5000万欧元的贷款，做为其在医院的股份提供资金，但在红衣主教佩尔的干预下，该笔贷款被拒绝了。（**又是佩尔，他****们****恨死了） **
-
-尽管2012年与欧洲反洗钱监督机构达成协议，尽管罗马教廷中央银行（APSA）将不再为商业企业提供贷款，帕罗林还是从APSA获得了贷款。 （**特****权****，****啊****，特****权**）
-
-帕罗琳还负责尝试从美国慈善机构教皇基金会（Papal Foundation）获得一笔捐款，以帮助支付APSA的贷款。在该赠款陷入争议之后，APSA被迫取销了向国务院提供的约3000万欧元贷款，抹去了2018财年的利润。
-
-尽管APSA的贷款已经违反了梵蒂冈的金融法，但没有人因这件事被起诉。**(法治，****啊****，法治) **
-
-资料来源：[1](https://www.pillarcatholic.com/p/investigation-points-to-parolin-and?=&amp;utm_source=substack&amp;utm_medium=email&amp;utm_content=share) [2](https://www.catholicnewsagency.com/news/46081/cardinal-parolin-defends-china-deal-as-vatican-prepares-to-renew-agreement)
-
-0
++1

@@ -1,64 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【呐喊】触目惊心——最新中共病毒全球疫情数据
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1112899/)
+## 摩根大通认为中共股市有大崩盘的可能
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1113142/)
 
-作者：纽约香草山佛教部 369文驹
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/S-21.jpg)worthnews.com
+巴伦周刊 (Barron’s)报道，投资银行摩根大通(JPMorgan)表示，资本流动趋势、人民币兑美元贬值以及中共股市表现不佳，为中共金融市场描绘了一幅谨慎的前景。
 
+周三，以尼古劳斯·帕尼吉左格卢(Nikolaos Panigirtzoglou)为首的分析师表示，在长期资金流入中共债券和股票之后，最近出现了放缓的迹象。这引发了一个问题：中共股市是否会像2015年和2018年那样崩盘?
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+分析师们表示，3月份流入在岸债券的资金净额温和转为负值，逆转了1月和2月强劲流入的趋势。与此同时，人民币贬值仍相对温和，过去三个月人民币兑美元下跌了约0.75%。然而，这种货币的相对稳定实际上可能“在降低风险方面造成一定的脆弱性”，尤其是在流入放缓和持续流出的情况下。
 
+这一切都发生在中共股市严重表现不佳的背景之下。自2月中旬以来，MSCI中国指数(MSCI China index)的表现比MSCI新兴市场指数(MSCI Emerging Markets index)低了9%。该指数涵盖了700多家中共国大中型企业。自2021年初以来，上证综合指数已累计下跌逾2%。
 
+与更广泛的全球形势相比，中共股市低迷的情况更加明显:摩根士丹利资本国际中国指数(MSCI China index)自2月中旬以来已下跌17%，该指数衡量的是23个发达市场和27个新兴市场的3000多家大中型股。
 
-根据约翰斯·霍普金斯大学发布的数据，截止4月18日12:20分，中共病毒全球疫情数据如下：
+分析师们表示，目前中共股市的疲软似乎更多是由投机性投资者推动的，这与2018年的情况类似。当年，上证综合指数在12个月的时间里下跌了近25%。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-304.png)图片来源：JHU，中共病毒全球感染概览
+中共金融市场在2015年、2018年和2020年的大幅下跌，都伴随着全球风险市场的更广泛调整。这几个年头与经济低迷时期的模式相呼应，证明期权投资者在每年年初的担忧是合理的，风险市场正变得容易受到未来冲击或波动的影响。
 
-1、全球感染病例数：**140,457,797** 例，死亡人数：**3,009,215** 人。
+摩根大通分析师对中共股市未来的分析十分不乐观，他们称，种种迹象表明“这是一个坏兆头。”
 
-2、各国感染人数和死亡人数排名：
+参考链接：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/92.jpg)
+[https://www.barrons.com/articles/jpmorgan-sees-a-bad-omen-for-chinese-stocks-heres-why-51618507181](https://www.barrons.com/articles/jpmorgan-sees-a-bad-omen-for-chinese-stocks-heres-why-51618507181)
 
-3、全球每日感染数据图：
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-305.png)
-
-4、全球每日死亡数据图：
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-306.png)
-
-通过以上数据不难发现，全球感染人数和死亡人数已经处于中共病毒爆发以来的最高水平，与今年年初水平相当。图表上今年4月感染和死亡人数的曲线十分陡峭，意味着本轮疫情爆发来势汹汹，而且这是在世界各国广泛接种疫苗的背景下发生的。那些鼓吹目前疫苗有效、能群体免疫的谎言，在数据面前不攻自破。
-
-据资料显示，约翰斯·霍普金斯大学（The Johns Hopkins University），是美国马里兰州巴尔的摩研究型私立大学，美洲大学协会的12个创始会员之一。美国国家科学基金会连续31年将该校列为全美科研经费开支最高的大学，也是哈勃空间望远镜和詹姆斯·韦伯空间望远镜的地面控制中心所在地。截至2020年4月，共有39名校友、教职工及研究人员获诺贝尔奖。在2019年末，约翰斯·霍普金斯大学的冠状病毒资源中心（Coronavirus Resource Center）收集来自全球数百个来源的数据来追踪中共病毒疫情全球病例，成为有关各国疫情引用最多的来源之一。[1]
-
-参考阅读：
-
-1. [约翰斯·霍普金斯大学](https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%BF%B0%E6%96%AF%C2%B7%E9%9C%8D%E6%99%AE%E9%87%91%E6%96%AF%E5%A4%A7%E5%AD%A6)
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-0
++1

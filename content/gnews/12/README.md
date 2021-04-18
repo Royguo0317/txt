@@ -1,44 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报 —— 疫苗篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1112937/)
+## 当宗教被玷污
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1112965/)
 
-- 作者：wenwu
+**作者：纽约香草山农场 梵高的稻田**
 
+上帝创世纪时，赋予了人类这个宠儿无限的潜能。可是，任何潜能皆是一把双刃剑，用得好能裨益众生，用不好就会祸害四方。这就像核能一样，用于发电能够造福人类，用作武器却可以摧毁地球。充分考虑到人类潜能被魔鬼撒旦利用的极大可能性，上帝在赋予人类无穷潜能的同时，也给人类配备了宗教。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+宗教是连接人类与上帝的一个工具。它锚定着人类的人性不致向撒旦倾斜，是芸芸众生在生命旅途中迷路时的指引。宗教是人类的需要，也是上帝的旨意。尽管宗教在伴随人类发展过程中，常被人类当做政治工具利用，但其连接人类与上帝的根本性质从未改变。正因如此，人类社会跌跌撞撞一路走来才不致于如史前文明一样走入毁灭之境。
 
-**西班牙2021年4月18日电/西喜社——**
+可是，当中共染指宗教时，人们信奉的不能再是上帝，而是中共的最高领袖人物。
+![pastedGraphic.png]()![pastedGraphic.png](https://gnews.org/wp-content/uploads/2021/04/image2-1.jpeg)
 
-若您想了解全文报导内容，请点击标题后链接
+![pastedGraphic_1.png]()![pastedGraphic_1.png](https://gnews.org/wp-content/uploads/2021/04/image3.jpeg)
+综合媒体报道来看，自2018年以来，中共国内的宗教发生了巨大变化，最明显变化就是“政治挂帅，统领宗教”。
+![pastedGraphic_2.png]()![pastedGraphic_2.png](https://gnews.org/wp-content/uploads/2021/04/image4.jpeg)
+2018年9月22日，中梵签订了未曾公开的临时协议，双方皆称协议仅事关中共国的主教任命，梵蒂冈承认中共国在本区域主教任命的发言权，协议期限两年。但天主教香港教区荣休主教陈日君枢机表示，在协议期的两年内，并未任命过一名主教。
 
-**1. 《伊万卡·特朗普的疫苗接种引发粉丝反感》**
+2020年，协议期满后，中梵双方续签了主教任命临时协议。对此，陈日君指出，梵蒂冈意在与中共国建交。罗马教廷各国关系部长加拉格尔（Paul Gallagher）对媒体声称，“（如果没有让北京在选择主教问题上扮演重要作用）虽然不是马上，而是在十年以后，我们就会发现将没有几位（中国的）主教与教宗保持联系。”梵蒂冈教廷国务卿、枢机主教帕罗林（Pietro Parolin）称，“梵蒂冈认为与北京继续合作是重要的”，中梵协议“完全没有触及中国教会生活的其他层面，没有涉及政治议题”。中共国外交部发言人赵立坚则表示，“临时协议续签延续了中梵关系改善的势头”。
 
-美国国会山4月15日电，伊万卡-特朗普在拜登总统就职后首次在社交媒体上宣布自己在弗罗里达州接种了冠状病毒疫苗。其粉丝对她的决定感到失望，也对疫苗不信任。
-（[https://thehill.com/changing-america/well-being/prevention-cures/548397-ivanka-trumps-vaccination-sparks-backlash-among](https://thehill.com/changing-america/well-being/prevention-cures/548397-ivanka-trumps-vaccination-sparks-backlash-among)）
+中梵临时协议签订后，双方并未执行其声称的协议内容，却在协议期满后续签协议，并对未来的双方关系充满了期望。这到底是一份什么样的协议？
 
-2. 《印度卫生大使兼泰米尔语演员维维克在注射新冠病毒疫苗一天后去世》
+郭文贵先生在2020年6月29日接受战斗室采访时透露，“梵蒂冈与中共达成很多秘密协议。梵蒂冈每年从中共收取高达20亿美金的贿赂和政治利益，出卖中共国地下天主教几千万虔诚教徒。”在中梵间起沟通促进的关键人物就是帕罗林。
+![pastedGraphic_3.png]()![pastedGraphic_3.png](https://gnews.org/wp-content/uploads/2021/04/image5.jpeg)
+帕罗林在梵蒂冈记者卢秋·布鲁内里的眼里，是一个“拥有现实主义外交路线，总是愿意进行调节，并开展新对话”的人。他曾在自己被任命为主教的典礼上说，“圣职不是一种权利，而是一种服务”。从宗教本来的性质来说，圣职确是为上帝和教徒服务。可是，一旦教徒行为偏离上帝旨意时，圣职服务于谁呢？这个时候，圣职有权力在上帝和背离上帝旨意的教徒间做调和吗？帕罗林在世俗世界里对“变通”的理解和操弄相当熟稔，但上帝旨意可以由人操弄吗？
 
-据印度大博弈网站4月17日电，分析印度大多数接种新冠病毒疫苗的死因，发现大多数死于心脏病发作和脑中风。著名的印度演员和泰米尔纳德邦创造公共卫生形象大使维维克（Vivekh），在接受疫苗后一天去世。（[https://greatgameindia.com/india-health-ambassador-vivek-dies-vaccine/](https://greatgameindia.com/india-health-ambassador-vivek-dies-vaccine/)[）](https://greatgameindia.com/india-health-ambassador-vivek-dies-vaccine/%EF%BC%89)
+中共国的教堂里悬挂习近平画像，寺庙里供奉共产党的前任高级领导，这就是梵蒂冈和无神论的中共操弄神的旨意的结果。教徒到底是信奉神的旨意，还是服从共产党最高领袖的意志？当宗教被俗世玷污，尤其被政治所操弄时，信众是否有权利选择跟随真正为上帝服务的圣职人员？
 
-**3. 《斯坦福大学开始在婴儿和幼儿中测试辉瑞疫苗》**
+梵蒂冈如此担心中共国的主教与教宗失去联系，以至作出巨大让步，让中共染指主教任命，但为什么对“政治挂帅，统领宗教”的中共国的宗教现实选择性失明呢？
 
-美国双子城4月15日电，辉瑞疫苗将对美国的6月大婴儿到11岁的儿童进行人体疫苗实验。总共144名志愿者在父母协同下，参与此次斯坦福医疗保健公司的疫苗在幼童中的关键性研究。
-（[https://www.twincities.com/2021/04/15/stanford-testing-pfizer-vaccine-babies-young-children/amp/#click=https://t.co/Pn1ndQdIFM](https://www.twincities.com/2021/04/15/stanford-testing-pfizer-vaccine-babies-young-children/amp/#click=https://t.co/Pn1ndQdIFM)）
+**（文章仅代表作者本人观点，与GNews无关）**
 
-**4. 《罗恩·德桑蒂斯说，拜登政府对强生疫苗的处理是“大错特错”》**
+**参考链接：**
 
-据玩具矩阵4月18日消息，佛罗里达州州长罗恩·德桑蒂斯在4月16日表示，“已经接种了几个月的人仍然戴着两个口罩，这无疑是个问题，我们无法正视疫苗是有效的”他说。这个信息让人们对疫苗失去信心，并且没有研究机构把血栓症状与疫苗联系起来，不得不引起担心。
-（[https://toysmatrix.com/ron-desantis-says-biden-administrations-handling-of-jj-vaccine-huge-mistake/](https://toysmatrix.com/ron-desantis-says-biden-administrations-handling-of-jj-vaccine-huge-mistake/)）
+[1] [寺庙遭威胁 不供奉毛泽东像就强拆](https://zh.bitterwinter.org/temples-punished-for-not-worshiping-political-leaders/)
 
-**5. 《研究报告：辉瑞，莫德纳疫苗与阿斯利康疫苗一样普遍存在血栓症状》**
+[2] [梵蒂冈国务卿帕罗林证实：中梵主教任命协议将续签两年](https://www.rfi.fr/cn/%E6%94%BF%E6%B2%BB/20201021-%E6%A2%B5%E8%92%82%E5%86%88%E5%9B%BD%E5%8A%A1%E5%8D%BF%E5%B8%95%E7%BD%97%E6%9E%97%E8%AF%81%E5%AE%9E-%E4%B8%AD%E6%A2%B5%E4%B8%BB%E6%95%99%E4%BB%BB%E5%91%BD%E5%8D%8F%E8%AE%AE%E5%B0%86%E7%BB%AD%E7%AD%BE%E4%B8%A4%E5%B9%B4)
 
-据美国市场观察4月15日电，牛津大学的一项研究发现，在接种辉瑞或摩德纳疫苗后，每100万人中就有4人发生脑静脉血栓，而接种阿斯利康疫苗的人，每100万人中就有5人发生脑静脉血栓。得到COVID-19的人患CVT的风险要比接种疫苗的人高得多，每100万患者中就有39人。出于对血栓症状的担忧，阿斯利康的疫苗在许多国家已经停止或限制使用。
-（[https://www.marketwatch.com/story/blood-clots-as-prevalent-with-pfizer-and-moderna-vaccine-as-with-astrazenecas-report-2021-04-15](https://www.marketwatch.com/story/blood-clots-as-prevalent-with-pfizer-and-moderna-vaccine-as-with-astrazenecas-report-2021-04-15)）
+[3] [外交部：经中梵友好协商，主教任命临时性协议将延期两年](https://baijiahao.baidu.com/s?id=1681297267633149683&amp;wfr=spider&amp;for=pc)
 
-编辑：蚂蚁兄弟；校对：weiwei；发稿：信心的选择
+[4] [梵蒂冈帕罗林Pietro Parolin出卖中共国几千万虔诚天主教徒](https://gnews.org/zh-hans/1097615/)
 
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+[5] [方济各教皇任命新教廷国务卿 修复罗马教廷形象](http://roll.sohu.com/20130902/n385648066.shtml)
 
-0
+***责任编辑：英国喜庄园 AN***
+
+***编辑/校对：华盛顿DC农场 光之子(沙加)***
+
+***发布：盘古人生***
+
++1

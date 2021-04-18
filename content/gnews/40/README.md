@@ -1,11 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 乔希·罗金：我们要找出病毒真相，阻止一下场瘟疫灾难
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1112159/)
+## 慧眼看世界202104017（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1112390/)
 
-4/17/2021 华盛顿邮报、CNN记者乔什·罗金：我们要找出病毒真相，阻止一下场瘟疫灾难；川普不再是总统了，我们可以抛开政治立场；疾控中心头目说实验室起源论很可能是真实的；就像我们不可能让俄罗斯人去调查切尔诺贝利核泄露事件，我们不能让该实验室的朋友们和中共来做这件事，需要另外的人进行调查。
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-By： 【秘密翻译组 G-Translators】
+
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-8.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-8.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-10.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-11.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-13.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-9.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-8.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/18-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/19-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20-5.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0
