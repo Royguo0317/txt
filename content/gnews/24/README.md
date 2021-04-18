@@ -1,51 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【时事解析】习近平的“三个亲自”
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1110120/)
+## 亲川普议员成立“美国优先核心小组”推保守政策
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1110142/)
 
-**作者：**纽约香草山佛教部    369文驹
+俄罗斯莫斯科喀秋莎农场  爱真理
 
-**摘要：**习近平在中共病毒疫情“防控”的两个亲自“亲自指挥、亲自部署”还不过瘾，现在又大肆宣传习近平的“三个亲自”：粤港澳大湾区建设，是习近平亲自谋划、亲自部署、亲自推动。此举进一步助推习近平站到审判席。
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/AFC.jpg)msnbc.com
+据《Just the News》4月17日报道，一群亲川普的国会议员已经形成了他们所谓的“美国优先”政策法案，他们成立了“美国优先核心小组”（The America First Caucus），将解决从大科技公司到移民到选举制度改革等国内问题。
 
-**关键词：**亲自谋划、亲自部署、亲自推动、大湾区、香港、习近平
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-289.png)图片来源：rfi.fr
-**正文：**
+“美国优先核心小组“(AFC)的就职政策平台表示，AFC的“存在为促进对美国国家长期有利的国会政策”，“任何政策建议的目标都是为美国人服务的。”
 
-中共党媒求实网4月17日刊登重磅文章称习近平“三个亲自”：“粤港澳大湾区建设，是习近平总书记亲自谋划、亲自部署、亲自推动的重大国家战略”。
+该组织表示，它将挑战大科技公司在现代美国社会中的统治地位，其中包括对230法案的改革，该改革的目标是使互联网平台免除对其服务器上发布的内容的审查责任。
 
-文章按照时间线，梳理了习近平近四年来多达十次部署粤港澳的讲话、出席的活动、考察和指示。笔者摘录部分内容如下：
+该组织还表示支持“全国性的系统性选举改革”，“长期以来被认为容易遭受欺诈的邮寄投票已实现正常化”，他们将“努力结束邮寄投票，实施国民投票制”。选民身份证和对2020年大选进行的大规模选民欺诈的实质性调查。”
 
-1、2017年10月18日：习近平在中国共产党第十九次全国代表大会上作报告，明确提出“要支持香港、澳门融入国家发展大局，以粤港澳大湾区建设、粤港澳合作、泛珠三角区域合作等为重点，全面推进内地同香港、澳门互利合作，制定完善便利香港、澳门居民在内地发展的政策措施。”
+核心小组还强调了中国共产党的独特威胁，指出美国“必须在军事上和经济上做好与竞争对手竞争的准备”。
 
-2、2018年5月10日和5月31日，习近平先后主持召开中央政治局常委会会议和中央政治局会议，对《粤港澳大湾区发展规划纲要》进行审议。
+这个核心小组坚信，美国的决策需要回到“美国优先”原则，恢复我们国家领导人的长期眼光，并在更大程度上为美国人民选出的领导人灌输内在的服务意识。
 
-3、2019年12月20日，习近平总指出，要积极对接国家战略，把握共建“一带一路”和粤港澳大湾区建设的机遇，更好发挥自身所长，增强竞争优势。
+新核心小组的成员中有马乔里·泰勒·格林（Marjorie Taylor Greene），她一直是川普的坚定支持者，直率的保守派，来自佐治亚州的议员。
 
-和“三个亲自”的表述相关的表述是去年的“两个亲自”。去年三月，习近平发表讲话，始终把“疫情防控”作为头等大事来抓，“亲自指挥、亲自部署”。在这一个月里，他主持召开3次中央政治局常委会会议，1次中央政治局会议，在北京考察科研攻关工作，亲临武汉一线指挥战“疫”，多次发表重要讲话。[2]
+从这里看出，美国的保守派坚持推“美国优先”政策方案。
 
-看来习近平喜欢“亲自”，两个不行还要三个，本次“三个亲自”纯粹是将镇压香港、血洗香港的罪责往自己头上扣，而且还开足宣传机器，在各大媒体平台纷纷转载，让大家学习。笔者不由得怀疑天线宝宝的脑子是否有短路的嫌疑，这在封神过后是愈加膨胀，油门踩到底是坚决不松腿。另外，求是网刊发该文是捧习近平呢，还是捧杀习近平呢？此举进分明是为了助推习近平站到审判席，也为中共内部派系斗争已经白热化提供了又一佐证。
+原文链接：
 
+[https://justthenews.com/government/congress/america-first-caucus-targets-big-tech-mail-voting-chinese-communist-party](https://justthenews.com/government/congress/america-first-caucus-targets-big-tech-mail-voting-chinese-communist-party)
 
-
-审核/校对/发布 奇门遁甲
-
-参考阅读：
-
-1. http://www.qstheory.cn/zhuanqu/2021-04/17/c\_1127341133.htm
-
-2. http://www.xinhuanet.com/politics/xxjxs/2020-04/10/c\_1125834437.htm
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![](https://mail.google.com/mail/u/0?ui=2&amp;ik=6ac942a4c5&amp;attid=0.1.1&amp;permmsgid=msg-f:1697211554661162166&amp;th=178db4eab0445cb6&amp;view=fimg&amp;sz=s0-l75-ft&amp;attbid=ANGjdJ_n1qnFzCsDyT7MVNM-9CKkbUey9iiIj3OxU7dgAprqbW4fpXE9OSeJ_q4GHstU2jDcNVq0l5TVmq4Uk7V72PTvm1JxaTGIT5Ax1WWGqveq5r_L1xuBcD0kuWs&amp;disp=emb)
 0

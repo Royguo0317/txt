@@ -1,42 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 多地警察拒安省省长以防疫为名行当街截查之违宪政令
-` 五餅二魚 加拿大多倫多楓葉農場` [轉載自GNews](https://gnews.org/zh-hans/1110344/)
+## 美国情报系统在努力确定病毒来源
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1110384/)
 
-随着加拿大人口最多省份——安省的中共病毒疫情进入第三波，安省省长道格·福特（Doug Ford）以控制疫情为由宣布自4月8日起进行封城，本周五（4月17日）更进一步，宣布警方将有权拦截街上或车里的任何人以询问其出行目的及住址，违规将被罚款$750。目前为止，安省至少有18个警察局、许多警察部门和代表其官员协会已拒绝执行这一新政令，直言这像是警察国家的恶政。
+#### 译评：Kal |责编：WenWang
+![]()![](https://gnews.org/wp-content/uploads/2021/04/capture-17-4.jpg)图片来源： The Washington Post 
+据《华盛顿时报》（The Washington Times）国家安全记者比尔·格茨（Bill Gertz）4月15日的撰文报道，美国情报系统在努力确定中共病毒的来源。
 
-多伦多机场所在的皮尔区警察协会主席阿德里安·伍利（Adrian Woolley）表示，无论如何，他的下属都不会参与任何超出宪法规定有权做的事。他发推文表示，”省长福特呼吁的这些新措施与《加拿大权利与自由宪章》直接冲突”，”当政客指示执行这些措施时，是将所有活跃的前线警员置于岌岌可危的境地。”，他在接受《多伦多太阳报》采访时表示，这将“使警察成为坏人”。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1065.png)詹姆斯·拉默（James Ramer） 图片来源：CBC
-多伦多警察局长詹姆斯·拉默（James Ramer）表示该局将继续参与教育和执法，但不会随意拦截人员或车辆。拒绝执行该随意截查令的还有安省渥太华、滑铁卢、圭尔夫以及伦敦等市的警察局。
+报道称，美国官员周四对国会表示，美国情报机构不同意世界卫生组织(World Health organization)和中共最近联合调查的结果。该调查否认了中共病毒爆发可能是“从中国一个实验室意外逃逸造成”的理论。美国国家情报总监艾薇尔·海恩斯（Avril Haines）和中央情报局局长威廉·伯恩斯（William Burns ）对众议院情报委员会说，上个月公布的世卫组织报告不是美国情报机构研究疫情起源的观点。海恩斯说，“世卫组织的报告认为，这种情况……非常不可能发生，但我们却不这么认为。”
 
-今天，在多伦多皇后公园，抗议者举行反封锁集会时，警察都袖手旁观，并没有像省长宣布的那样进行盘问和逮捕。
+报道指出，两个月前，在中共政府的严格监督下，世卫组织的一个国际专家小组访问了武汉病毒研究所。武汉病毒研究所是一个高度安全的生物实验室，科学家们在这里研究与中共病毒类似的蝙蝠冠状病毒。中共国研究人员自夸，在过去10年中发现了2000种新病毒，包括许多来自蝙蝠的病毒，但世卫组织的研究小组认为，病毒“极不可能”从实验室泄露，并引用了实验室的安全规程。武汉是首个中共冠状病毒主要聚集性病例的发生地。
+
+中共政府和世卫组织团队表示，最可能的病毒来源是与人接触的受感染动物，并引发了2019年12月的致命疾病爆发。中共还散布假消息说，这种病毒是美国陆军带到中共国的，是美国军事实验室秘密研制出来的。参加星期四国会山听证会的官员表示，毫无疑问，这种病毒起源于中共国。情报总监海恩斯女士在周三的参议院听证会上首次表达了这样一种观点，即病毒的实验室起源，不管是意外事故还是安全措施不佳，已经不再被视为如一些科学家，媒体和中共国政府一年多来宣称的那样是阴谋论。她说，美国分析人士目前关注两种情况，“一种是实验室事故，另一种是人类接触受感染动物后自然产生的。”她补充说，评估是基于情报，而不是基于中共政府的声明。
+
+报道称，美国中央情报局局长伯恩斯说，美国情报机构仍在努力确定病毒的来源。他说:“整个情报部门都在非常非常努力地利用我们自己的独立资源，试图弄清这件事的真相。”伯恩斯表示，他的分析人员同意科学界的共识，即病毒似乎不是实验室里人造的。海恩斯也说，有迹象表明，中共国正试图影响世卫组织的调查。
+
+美国联邦调查局(FBI)局长克里斯托弗·雷(Christopher Wray)在听证会上透露，该局官员参与了确定疫情源头的搜索工作，但对中共国的问题应该在“外交层面”上来处理。海恩斯女士说，美国情报机构已经雇佣了更多的人来研究如何应对全球疾病爆发，并设立了一个专注于“生物威胁”的项目。
+
+* * *
+
+**评：**美国现政府部门，包括情报系统，在几个事实上似乎达成了共识，一是病毒爆发始于武汉，二是中共国的顶级生物实验室就在武汉，该实验室采用P4等级设计，具备高安全性，在研究与中共病毒类似冠状病毒方面处于世界的前沿，三是中共一直试图在外交层面，科学界和地缘政治方面影响人们对病毒的关注，并极力影响任何可能导向“Covin-19病毒是来自中共实验室泄漏”的结论。显然这三个事实让人们不得不想起一句老话“此地无银三百两”。但是从美国情报系统的角度看，似乎这是一个极为矛盾的推理逻辑，这只能说明，病毒真相背后的博弈正酣。证据的收集只为推出最终的结论，但最终的真实结论若不尽快公布于世，恶魔们将继续在跳舞，无辜的生命还在不断地在痛苦中失去。
 
 
 
-> LIVE in Toronto: A day after Doug Ford announced increased police authority to enforce the provincial stay-at-home order, Toronto police are not ticketing or arresting anti-lockdown protestors. [pic.twitter.com/CmkaRljr4N](https://t.co/CmkaRljr4N)
-> — The Post Millennial (@TPostMillennial) [April 17, 2021](https://twitter.com/TPostMillennial/status/1383468298520588291?ref_src=twsrc%5Etfw)
-
-
-
-虽然加拿大被中共渗透严重，但这里的警察还不太像中共国内的黑警，领导拍脑袋、拍大腿的政策不仅不变本加厉地执行，竟敢说“不”。加拿大公民自由协会执行董事迈克尔·布莱恩特（Michael Bryant）一语中的：” 警察在中共病毒疫情期间假定那些在户外或开车的人有罪、随意拦截是违宪的。“
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/EzIJBg9VEAU9MCz.jpg)《加拿大权利与自由宪章》
-也是，在加拿大生活久了，会渐渐感受到当地人按章办事的习惯。这次，许多警察拒绝执行省长颁布的违宪政令很好地诠释了加拿大人的行事风格——遵守宪法、尊重人性。虽然，与中共勾兑的政客们还在按大重置计划一步步推进，加拿大以后也可能会变成极左极左的“斯坦”国或“瑞拉”国，但还是有些人在维护宪法、遵守着心中的底线。中共国的执法者们，虽然无法像加拿大警察那样直言不讳，但希望你们在关键时刻，能将枪口抬高一寸，站到正义这一边，不要随盗国贼一起堕入地狱。
-
-*新闻来源：*
-
-[COVID-19: Ontario’s temporary increased police powers raise concerns about random stops, carding](Ontario’s%20temporary%20increased%20police%20powers%20raise%20concerns%20about%20random%20stops,%20carding)
-
-[Ontario gives police authority to stop people, vehicles, ask purpose of travel](https://toronto.ctvnews.ca/ontario-gives-police-authority-to-stop-people-vehicles-ask-purpose-of-travel-1.5390805)
-
-[Ontario extends stay-at-home order, restricts interprovincial travel as province loses battle against COVID-19](https://toronto.ctvnews.ca/ontario-extends-stay-at-home-order-restricts-interprovincial-travel-as-province-loses-battle-against-covid-19-1.5390016)
-
-[WARMINGTON: Ontario police chiefs say ‘no thanks’ to Ford’s new COVID random stop law](Ontario%20police%20chiefs%20say%20'no%20thanks'%20to%20Ford's%20new%20COVID%20random%20stop%20law)
-
-*参考链接：*
-
-[各国大重置计划表完全一致 加拿大正按此第二轮封城中](https://gnews.org/zh-hans/672917/)-GNews
-
-[加拿大权利与自由宪章](https://zh.wikipedia.org/wiki/%E5%8A%A0%E6%8B%BF%E5%A4%A7%E6%AC%8A%E5%88%A9%E8%88%87%E8%87%AA%E7%94%B1%E6%86%B2%E7%AB%A0)-Wikipedia
+&gt;&gt;原报道链接 &gt;&gt; [DNI Avril Haines knocks WHO report that dismissed theory COVID-19 escaped from lab](https://www.washingtontimes.com/news/2021/apr/15/avril-haines-william-burns-rip-who-report-covid-19/)
 
 0
