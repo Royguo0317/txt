@@ -1,12 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [粤语配音]主流媒体开始揭露病毒意味着以毒灭共的全面开始
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1111668/)
+## 14/4/2021纳瓦罗：中共计划用区块链征服世界
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1111755/)
 
-By: 【秘密翻译组G-Translators】
+摘要：中共的2025计划就是要占领世界。他们要找出10个他们希望能够控制的经济领域，其中之一就是区块链技术。这是他们的终极恐怖武器。他们为此设立了千人计划、数学家计划以及其他计划。他们也许有一天会破解比特币。
 
-郭文贵
-2021年4月15日
+**By：【秘密翻译组 G-Translators】**
 
 0

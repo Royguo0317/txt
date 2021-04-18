@@ -1,43 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 由学生跳楼谈中共“吃人的”教育体制
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1110615/)
+## 美国《2021战略竞争法》第136节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1110759/)
 
-作者：2号电梯
-![]()![](https://gnews.org/wp-content/uploads/2021/04/256-1.jpg)
-昨天去理发，听别人聊天， 说起他所在的那个小区，一个学生从20几楼跳下。大家都在为这个孩子感到惋惜。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-其实，我是很清楚这个事情的。我很好的朋友，就在这个学生就读的班级做任课老师。这个孩子，父亲是公务员，母亲是事业单位，家境非常优越。但是父母关系不是很好，平时对这个孩子的陪伴非常少。这个孩子是初中生，马上面临中考，学习压力非常大。所以，真正导致这孩子从20几楼跳下的根本原因是：长期的学习压力已经把他逼到奔溃的边缘，而父母对他的忽视，使得小小年纪的他的内心比同龄孩子更加脆弱，行为更偏激。
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/PRP.jpg)macdonaldlaurier.ca
+本节为**副标题D——抵制中国共产党的影响**中的第136节
+第134、135节略。
 
-事实上，我们当地，从2021年1月到3月，就这么三个月时间，政府公开的信息是已经有3个学生跳楼。但是我知道的是5个。我有个朋友是教育局的，他亲口告诉我的。而我们隔壁的县，今年3月间，已经有10多个学生自杀了。这个消息，是我一个教师朋友亲口告诉我的。
+本节要点：
 
-随便百度下，学生跳楼，你就会发现，在中共国内，这个现象真是触目惊心！
+中共国正在增加公共外交支出，包括影响力宣传和广告，中共国通过《中国之声》、《统一战线工作部》扩大其误导性叙述和宣传的范围，中共及其他恶意行为者，正在这些国家进行谣言制造、宣传和操纵媒体市场。，美国政府将在2022至2026财政年度拨款1.7亿美元，用于支持新闻自由、培训和保护记者的现行和新项目。
 
-这么多学生跳楼，究其根本原因，都逃不开“学习压力”这四个字吧？
+欲了解更多的內容，请看本节全文（仅供参考）。
 
-中共的教育体制，引用鲁迅先生的一个表述，那真是“吃人的”。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/257.jpg)（图片来自网络）
-在中共国内，有句流传了很久的话：“考考考，老师的法宝； 分分分，学生的命根。”在中考和高考这个制度下，衡量一个学校水平高低的一切标准，就是他的学生能考多少分；而决定一个学生能否进所谓的名校的唯一标准，也是他在考试中能得多少分。所以，对于学校而言，最简单有效的办法就是让学生不断地刷题做试卷，做各种题型的试卷，反反复复，周而复始。老师花20% 的时间说一下新知识点，其余80% 的时间让学生反反复复做各种练习题，是为了让学生能在考试的时候，对于试卷上的每一个类型的题目，都在平时的练习卷中无数次地解答过，根本不需要思考，就能快速正确地写出答案，从而取得“好成绩”。
+第136 节 支持独立媒体和打击制造谣言
 
-有人说，中共的教育体制，本质上就是一个无脑答题高手的组装流水线！真是太形象了。
+（a）调查结果 – 国会得出以下结论：
+（1）中共国正在增加公共外交支出，包括影响力宣传、广告以及对中共国境外国家主办的媒体出版物的投资，这些措施包括，例如，在通信基础设施、平台和财产方面的外国直接投资超过1亿美元，以及将记者带到中共国接受培训。
+（2）中共国通过《中国之声》、《统一战线工作部》（UFWD）和《统一战线工作部》的许多分支机构和代理人，以多种语言为目标，在中共国有兴趣促进公众支持中共情绪的其他地区，不受限制地使用广播、电视和数字传播平台扩大其误导性叙述和宣传的范围。
+（3）即使在西方国家，中共国也在影响力运作上投入了大量资金，例如在澳大利亚为吸引有线电视观众而进行的5亿美元的广告宣传活动，以及通过《中国日报》副刊影响美国舆论的2千多万美元的宣传活动。
 
-拿我们当地的情况举个例子。一个初中的学生，每天基本上在6:30 起床，作业基本要做到晚上10点，再洗刷上床，已经11点了，就算他11:30睡着，他每天的睡眠时间只有7个小时。事实上，据我了解，绝大部分的孩子的睡眠时间都是不到7小时的。对于一个初中年级的孩子，身体处于发育期，正需要足够的睡眠时间，如果连这个最基本的都保证不了，孩子的身体素质和健康程度，可想而知。怪不得中共自己的媒体也在说，2020年招收的新兵，身体素质远不如前，绝大部分的新兵，引体向上都做不到3个。我想，我那个年纪，我们都起码能做10多个吧。
+（b） 《美国全球媒体署》 – 《美国全球媒体署》（USAGM）及附属联邦和非联邦实体应采取以下行动来支持独立新闻业，这些行动针对中国共产党及其他恶意行为者，正在这些国家进行的谣言制造、宣传和操纵媒体市场：
+（1）《自由亚洲电台》（RFA）应为《自由亚洲电台》所有的中共国服务和其他附属语言广播服务扩大其国内覆盖范围和数字节目。
+（2）《美国全球媒体署》应增加对《自由亚洲电台》普通话、藏语、维吾尔语和粤语服务的资助。
+（3）《美国之音》应建立类似测谎仪的实时辟谣跟踪工具，用于俄语宣传和误导。
+（4）《美国全球媒体署》应扩大现有的培训和合作项目，促进新闻标准、调查性报道、网络安全和数字分析，以帮助揭露和打击中共的虚假宣传。
+（5）《开放技术基金》将继续并扩大工作，以支持工具和技术绕过中国共产党的审查和监督，无论是在中共国国内还是在中共国出口审查技术的国外，增加安全的点对点连接和隐私工具。
 
-再说，如果一个孩子每天的作息就是：起床-上学-作业-睡觉-起床…日复一日，周而复始，哪里还有时间培养兴趣爱好？哪还有时间运动锻炼？哪还有时间和家人交流？ 过着这样的日子的孩子，和一个流水线上的无生命、无思想的机械臂，有什么区别？
+（c）批准拨款 – 授权《美国全球媒体署》在2022至2026财政年度每年拨款1亿美元，用于支持当地媒体、建立独立媒体、打击中共国内外造谣、投资颠覆审查制度的技术，监督和评估这些项目。
 
-或许，这个才是中共真正想要的结果吧！把所有的中共国的人，变成无思想的机械，只要中共输入指令，他就会毫不犹豫地服从执行。
+（d） 支持当地媒体 – 国务卿应通过负责民主、人权和劳工事务的助理国务卿，与美国国际开发署署长协调，支持和培训记者掌握必要的调查技术，以确保与“一带一路”倡议有关的公众问责、中共国的监视和数字技术输出，以及其他直接或间接由共产党或中共国政府支持的影响行动。
 
-“少年强则中国强”，如果不消灭中共，这个百年前就喊起来的口号，那就真的只会停留在口号上了。唯有消灭中共，才能结束这个“吃人的”教育体制，我们的孩子才有明天，我们的民族才有希望！
+（e）互联网自由计划 – 民主、人权和劳工局将继续支持互联网自由计划。
 
-战友们，同胞们，让我们快快行动起来，take down the CCP !
+（f） 批准拨款 – 授权在2022至2026财政年度拨款1.7亿美元，用于支持新闻自由、培训和保护记者的现行和新项目。
+（本节完）
 
-（文章仅代表作者观点，与GNews无关）
+感觉这些措施都是采纳了文贵先生以及新中国联邦的建议，美国政府应该将新中国联邦纳入相关体系和机构中，肯定会又准、又狠、又省钱。
 
-***责任编辑**：英国喜庄园 AN*
+原文链接：
 
-***编辑/校对**：华盛顿DC农场 荧然*
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
 
-***发布**：华盛顿DC农场   文顾*
+文字整理：
 
-+5
+SEC. 136. SUPPORTING INDEPENDENT MEDIA AND COUNTERING DISINFORMATION.
+
+(a) FINDINGS. – Congress makes the following findings:
+
+(1) China is increasing its spending on public diplomacy including influence campaigns, advertising, and investments into state-sponsored media publications outside of China. These include, for example, more than $10,000,000,000 in foreign direct investment in communications infrastructure, platforms, and properties, as well as bringing journalists to China for training programs.
+
+(2) The PRC, through the Voice of China, the United Front Work Department, and UFWD’s many affiliates and proxies, has obtained unfettered access to radio, television, and digital dissemination platforms in numerous languages targeted at citizens in other regions where China has an interest in promoting public sentiment in support of the Chinese Communist Party and expanding the reach of its misleading narratives and propaganda.
+
+(3) Even in Western countries, China spends extensively on influence operations, such as a $500,000,000 advertising campaign to attract cable viewers in Australia and a more than $20,000,000 campaign to influence United States public opinion via the China Daily newspaper supplement.
+
+(b) THE UNITED STATES AGENCY FOR GLOBAL MEDIA. – The United States Agency for Global Media (USAGM) and affiliate Federal and non-Federal entities shall undertake the following actions to support independent journalism, countering disinformation, and breaking the firewall and combatting surveillance in countries where the Chinese Communist Party and other malign actors are promoting disinformation, propaganda, and manipulated media markets:
+
+(1) Radio Free Asia shall expand domestic coverage and digital programming for all RFA China services and other affiliate language broadcasting services.
+
+(2) USAGM shall increase funding for Radio Free Asia’s Mandarin, Tibetan, Uyghur, and Cantonese language services.
+
+(3) Voice of America shall establish a real-time disinformation tracking tool similar to Polygraph for Russian language propaganda and misinformation.
+
+(4) USAGM shall expand existing training and partnership programs that promote journalistic standards, investigative reporting, cybersecurity, and digital analytics to help expose and counter false CCP narratives.
+
+(5) The Open Technology Fund shall continue and expand work to support tools and technology to circumvent censorship and surveillance by the CCP, both inside China as well as abroad where China has exported censorship technology, and increase secure peer to peer connectivity and privacy tools. (c) AUTHORIZATION OF APPROPRIATIONS. – There is authorized to be appropriated, for each of fiscal years 2022 through 2026 for the United States Agency for Global Media, $100,000,000 for ongoing and new programs to support local media, build independent media, combat Chinese disinformation inside and outside of China, invest in technology to subvert censorship, and monitor and evaluate these programs.
+
+(d) SUPPORT FOR LOCAL MEDIA. – The Secretary of State, acting through the Assistant Secretary of State for Democracy, Human Rights, and Labor and in coordination with the Administrator of the United States Agency for International Development, shall support and train journalists on investigative techniques necessary to ensure public accountability related to the Belt and Road Initiative, the PRC’s surveillance and digital export of technology, and other influence operations abroad direct or directly supported by the Communist Party or the Chinese government.
+
+(e) INTERNET FREEDOM PROGRAMS. – The Bureau of Democracy, Human Rights, and Labor shall continue to support internet freedom programs.
+
+(f) AUTHORIZATION OF APPROPRIATIONS. – There is authorized to be appropriated, for each of fiscal years 2022 through 2026, $170,000,000 for ongoing and new programs in support of press freedom, training, and protection of journalists.
+
++2

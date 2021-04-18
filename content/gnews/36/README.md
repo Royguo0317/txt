@@ -1,11 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】美国解除日本封印联手灭共
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1111013/)
+## 【有声读物】你是我们今生的霞光，我们是你身后的云彩
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1111195/)
 
-作者：香草山媒体部 文扬四海
-配音：香草山录音组 Gtv abeilles（蜜蜂）
+作者：香草山写作组   木白
+配音：香草山录音组 Swr拥抱太阳
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -13,14 +13,19 @@
 
 
 
-**【美日首脑会谈后发布震撼声明】**
 
-4月16日，备受瞩目的美日首脑会谈后，美国总统拜登在新闻发布会上说，美日有共同价值观，承诺将在东海、南海和北朝鲜问题上共同对抗中共国。同时，日本首相菅义伟重申，美日已达成共识，将共同对抗中共国，并将于印太联盟展开更广泛地合作，日本将对抗任何武力改变东海和南海现状的企图，以及任何恐吓他人的行为。
 
-文字版原文：[【热点播报】美国解除日本封印联手灭共](https://gnews.org/zh-hans/1109638/)
+如同我爱过的和憎恨的声音
+如同这场猝不及防的雪
+如同沸腾血液外的寒冷
+当它们流动，时刻提醒着我活着的意义
+会飞的鸟和不会飞的，脚踏同一片大地
+仰望天空，一次次练习这双自由的翅膀
+转身回头，一次次奔跑，我们去找回这双不再有裹脚布的脚
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+文字版原文：[【香草诗词】你是我们今生的霞光，我们是你身后的云彩](https://gnews.org/zh-hans/612179/)
+
+音频处理/发稿：雪梨
 
 ![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
@@ -36,4 +41,4 @@
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-+1
+0
