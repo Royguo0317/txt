@@ -1,27 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【涂话一座城】 无字书
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1112327/)
+## 慧眼看世界202104017（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1112390/)
 
-**华盛顿DC农场 搜集\编撰：文武全差**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/7-10.jpg)图片来源：网络
-寥寥涂画，漫述我城。
-这座城，现在被称作“圣城”，每天牵动著正义之士的心，暴政和热血，野蛮和文明，瞒骗和率真。。。
-这之前，人们称其“购物天堂”，美食、购物、时尚、娱乐，是中共国人趋之若鹜的奢华之地。
-“太神奇了，真是看不懂香港！”这样的疑问，如郭先生言，三言两语是无法解答的，了解一人尚需时日，这七百万人的城且要慢慢细述。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-14-156.jpg)图片来源：网络
-开始，总是无言。一本书，无字，香港先是你看到的样子。匆匆打开，满是喜悦：雪糕车、古帆船、抢包山、山顶缆车。。。细细留心，愈看愈惆怅：市井深处捡纸皮的婆婆、繁华街道下纪念六四的游行者、如屏风比肩的高楼。。。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/2-47.jpg)图片来源：网络
-不管是否曾到过香港，图画里都传递出熟悉感，因为2019年的“反送中”运动让多少人魂牵这座城。中共处心积虑塑造香港肤浅、纸醉金迷的形象，被一击击碎，面对邪恶中共毫不畏惧的香港人让人肃然起敬，是什么土壤孕育出如此惊人的力量？这个城市的灵魂–香港精神！
-![]()![](https://gnews.org/wp-content/uploads/2021/04/8-7.jpg)图片来源：网络
-中共惯常阉割人的意志，先把你整的半残废，然后再来怀念你还没残废的日子，然后还要骂你自己的不作为，自甘堕落。香港人的意志让中共害怕，更怕国人开智，于是挑拨离间，在中共国抹黑香港人对民主、自由的追求，说成“港毒思想”；一面承诺普选欺骗香港人，最后谎言被戳穿掩盖真相，把捍卫香港精神的青年打成“暴动”，而中共垄断媒体、网络真正的暴政却包装成“真理”。
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-1997年香港回归，架起世界与封闭中国的桥梁，中共国人借香港这扇窗得以呼吸外面自由空气，世界则把香港当作隔绝中共怪兽的关卡，但所有人都低估了中共的邪恶，才二十几年这个香港人170多年铸就的光彩明珠，在中共屠戮下已黯淡无光、奄奄一息。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4-20.jpg)图片来源：网络
-感动GNEWS让真相传递，为这个城市发声，不是单纯的带你感受香港特色文化，无论是过去还是现在，慢慢勾画香港各种面貌，品嚼孕育香港精神的土壤。纵使在不同的时空，一起用多元的角度揣看，这连接中国与世界的桥梁，期待新中国联邦带来的无限种可能！
-![]()![](https://gnews.org/wp-content/uploads/2021/04/5-1-10.jpg)图片来源：网络
-（以上观点仅代表笔者个人）
-审核：雪山 / 上传：文顾
+
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-8.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-8.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-10.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-11.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-13.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-9.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-8.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/18-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/19-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20-5.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0
