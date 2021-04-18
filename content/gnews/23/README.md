@@ -1,62 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报(0418)-台湾篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1112062/)
+## 【香港要闻】港铁暴力查票伤残疾青年 义工不齿出面指证
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1112153/)
 
-- 作者：蚂蚁兄弟
+搜集/整理：【喜马拉雅-粤语组】阿恩
+港铁暴力查票伤残疾青年 义工不齿出面指证
+自反修例运动起，港铁严打持特惠票乘车人士，昨晨（16日）一名持有残疾证明的青年，于港铁杏花村站出闸时，疑因使用特惠车票，被5名港铁职员截停查票，他情绪激动，及后被数名职员制服地上，纠缠期间职员一度疑用手肘压颈的动作。当时，正在上班途中的注册社工，兼咏春散打教练柯清泉经过现场，为保障青年安全，即参与调停。
 
+柯今日现身评论事件，表示虽明白职员截查本意，但认为事件涉及港铁决策失当。他首先评论港铁职员制服行为，使用了不必要武力。柯自18岁起担任咏春散打教练多年，他认为职员手肘压颈的动作危险，可能导致昏厥，甚至令脑部缺氧或成植物人，认为职员应制服青年手脚，不应随便使出「掐脖子」或「按压头部」等动作。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+港铁为大型公营机构，柯认为查票组亦应以「客户服务」原则先行，建议先了解青年是否涉及误用车票。质疑港铁对应付乘客的决策有问题，为何不先沟通清楚，衍生无故制服的行为，直言今次属港铁行政失当，对青年不公平。
 
-**西班牙2021年4月18日电/西喜社——**
+柯坦言，部分情绪病患者可能容易焦躁，需要大众体谅，职员截查时或惹起青年不满。柯为一名注册社工，由1995年服务至今，其间在儿童院及其他青少年中心任职，接触不少年轻人，认为当时青年明显情绪激动，他认为港铁职员需要多加学习引以为鉴。
 
-您若想了解新闻全文报导内容，请点击内容摘要后链接
+事后数名持盾军装警员到场拘捕青年，现时他被控致造成实际身体伤害，暂时仍于东区医院留医，未知警方下一步安排。据悉，青年有精神病纪录，身上除了有残疾人士八达通，亦有公立医院精神科医疗纪录档证明，而精神病属残障病例，因此可享用「残疾人士身分」个人八达通，以及2元特惠乘车优惠。
 
-**1. 菅义伟与拜登承诺应对中国挑战并直视对台立场**
+资料来源：[苹果日报](https://hk.appledaily.com/local/20210418/XFOMBATMDNAJRKQEVTP5MFXUNQ/)
 
-日本时报华盛顿4月17日电，美国总统拜登和首相菅义伟周五同意进一步开展跨地区安全、技术等领域的合作，承诺建立一个能直面中国挑战的联盟。菅义伟在与拜登的首次面谈中，两人还肯定了台湾海峡和平与稳定的重要性，峰会结束后发表的联合声明也提到了他们的观点，这可以看作是领导人层面罕见地公开表达对台湾局势的关切。
+审核/上传：文粤
 
-（[https://www.japantimes.co.jp/news/2021/04/17/national/politics-diplomacy/suga-biden-us-japan-summit-2/](https://www.japantimes.co.jp/news/2021/04/17/national/politics-diplomacy/suga-biden-us-japan-summit-2/)）
-
-**2. 中国回击日美点名台湾的声明**
-
-日经亚洲东京4月17日消息，在日本和美国领导人五十多年来首次领导人峰会后发表的联合声明中提到台湾，还强调了两个盟友对香港和新疆人权问题的关注。声明发表后的几个小时，中共对此进行了反击，中共发言人称对“领导人联合声明”的相关评论表示坚决反对。
-
-（[https://asia.nikkei.com/Politics/International-relations/Biden-s-Asia-policy/China-hits-back-at-Japan-US-statement-that-names-Taiwan](https://asia.nikkei.com/Politics/International-relations/Biden-s-Asia-policy/China-hits-back-at-Japan-US-statement-that-names-Taiwan)）
-
-**3. 谈到台湾问题时，手套都被摘掉**
-
-澳大利亚金融评论4月16日消息，自华盛顿和北京陷入危险的军事对峙以来，已经快20年了，随着台湾问题的紧张局势升级，有人担心这将预示着新冷战的开始。澳大利亚人应该对台湾问题感到担忧，新的大国冲突威胁正在迅速上升，堪培拉的规划者应该考虑到未来不可想象的事情。
-
-([https://www.afr.com/world/asia/the-gloves-are-off-when-it-comes-to-taiwan-20210415-p57jjw](https://www.afr.com/world/asia/the-gloves-are-off-when-it-comes-to-taiwan-20210415-p57jjw))
-
-**4.  中国在台湾附近的演习对准美国**
-
-台北时报4月18日消息，中共国过去几周加强侵入台湾防空识别区和航母演习的意图，是为了“恐吓和胁迫”华盛顿，要求其退让和退缩。中共国正在利用美国为其行动辩护。
-
-（[https://www.taipeitimes.com/News/taiwan/archives/2021/04/18/2003755905](https://www.taipeitimes.com/News/taiwan/archives/2021/04/18/2003755905)）
-
-**5. 拜登代表团承诺美方支持台湾自卫权**
-
-外交报4月17日消息，由前参议员克里斯-多德率领的非官方代表团完成了对台湾为期三天的访问，以示对拜登政府的支持。
-
-（[https://thediplomat.com/2021/04/biden-delegation-pledges-us-support-for-taiwan-self-defense/](https://thediplomat.com/2021/04/biden-delegation-pledges-us-support-for-taiwan-self-defense/)）
-
-**6. 北京提高空中对抗台湾力量的热度上升**
-
-飞行全球航天航空新闻网4月16日消息， 中国对台湾防空识别区的定期入侵体现了共产党领导人的失望，所以启用新的空中军事力量抗衡模式以示其威。
-
-（[https://www.flightglobal.com/defence/beijing-air-power-turns-up-the-heat-on-taiwan/143327.article](https://www.flightglobal.com/defence/beijing-air-power-turns-up-the-heat-on-taiwan/143327.article)）
-
-**7. 美国可采取更多涉台防务行动**
-
-聚焦台湾，CNA中评社台北4月17日电 继周五在华盛顿举行美日领导人峰会后，台湾学者预测，在美国总统拜登执政期间，可以预期美国在防卫台湾方面将会有更多行动。
-
-（[https://focustaiwan.tw/politics/202104170012](https://focustaiwan.tw/politics/202104170012)）
-
-编辑：meiping；校对：阿伯塔；发稿：神奇四侠
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
-
-+1
+0

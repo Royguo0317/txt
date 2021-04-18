@@ -1,77 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Lawrence Sellin博士终于将13579计划的具体含义公之于众
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1112471/)
+## 【路德时评粤语快报】04.16：赛林博士推文响应以毒灭共战略 美日首脑会议重申对抗中共的扩张行为
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1112723/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
-![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-18.png)
-据[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[上午2:56 · 2021年4月18日](https://twitter.com/LawrenceSellin/status/1383494654633472007)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
+制作团队：【喜马拉雅-粤语组】小飞侠、一帘幽梦、西林
 
 
 
-> My analysis of the Chinese Communist Party's dual-use military-civilian R&D program for novel genetically-engineered coronaviruses & heterologous vaccines against multiple strains, roughly follows this development plan, but involves more than one virus & a premature release. [pic.twitter.com/QYkJCJG17S](https://t.co/QYkJCJG17S)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 17, 2021](https://twitter.com/LawrenceSellin/status/1383494654633472007?ref_src=twsrc%5Etfw)
+主要内容
+
+1. 赛林博士推文响应以毒灭共战略、呼吁更多知情人揭露中共病毒真相。爆料革命、文贵先生首提以毒灭共，揭露中共制造、投放中共病毒，对全世界发动病毒生化战的事实真相，现在得到了有美国军情背景的赛林博士背书支持，赛林博士在推文中呼吁对1、参与武汉病毒研究所研究的有关的机构，如武汉大学病毒研究所、当地医院和疫苗研究机构；2、解放军军事科学院、病原与生物安全国家重点实验室、生物与流行病学研究所、中国疾病预防控制中心、首都医科大学；3、所有的军事医院和附属医院，以及过去和现在与这些医院有联系的医院；这些单位有了解的人士、身在海外的科学家提供更多信息，未来将会揭露中共在全世界的邪恶网络和与中共勾结的科学界人士，美国人终于认识到中共用类似蓝金计划、辛普森夫人计划编织的巨大的政治、经济、情报、科学等网络对于世界的威胁和伤害，路德社评论认为，爆料革命首先向世界发出了预警，现在病毒真相让美国才醒悟过来清查中共在全球的渗透网络，这些渗透的力量在这次病毒超限战中误导了世界，如果没有爆料革命、闫博士站出来告诉世界真相，把中国人和中共分开，后果真的无法相信，中共会把中国人带入万劫不复的深渊，现在赛林博士调查这些信息和网络，并不代表美国对于病毒真相还只停留在收集信息的阶段，而是美国在清查名单，最后一定会对这场病毒背后的所有责任人追究到底，习大神就是最后的罪魁祸首，知情的战友们要积极配合提供信息。
+2. 《外交政策》发文称世界要把中共病毒当作生物武器来严肃对待。文章批评世卫组织和世界卫生大会等现有国际组织和国际法规则无法约束中共的破坏性行为，呼吁国际社会从外交和国际关系层面严肃思考如何对待中共不守国际规则的作法，重新制定有执行力国际规则。通过以毒灭共、揭露中共病毒的真相，整个世界对待中共的态度发生了翻天覆地的变化，正如文贵先生所言中共最后一定会成为人人喊打的过街老鼠。
+3. 余茂春、博明出现国会听证会谈中共的经济的野心。在美中经济与安全审核委员会举行的题为“关于中共的经济野心、计划和成功指标的评估”的听证会上，余茂春再次提醒美国中共是一个马列主义统治的共产独裁国家，中共压榨中国人、利用国际先进的技术、资本市场发展壮大，这种矛盾性对资本主义开放社会造成致命威胁，博明指出中共现在采取“进攻性脱钩”策略，让自己对世界减少依赖，却让世界更加依赖中共的产业链，中共利用经济杠杆推动在全球的独裁目标。路德社评论认为美国各方面都在苏醒，这样的听证会将推动下一步美国国内的政策制定和立法，强硬对抗中共是美国社会的共识。
+4. 克里低调访华。从2019年7月后首次美国高官访华行程异常低调，中共媒体表示对改善中美关系不报期待，路德社的评论认为如文贵先生所言克里访华就是传递对中共的最后通牒，任何人都不可能改变中美的对抗的大趋势。
+5. 美日首脑会议重申两国将在东海和南海对抗中共的扩张行为。双方同时表示在美日主导下联合东盟、澳大利亚、印度等国，对抗一切用武力或高压手段改变中国东海、南海现状、威胁其他国家的企图，双方同意与中共进行坦率对话，共同实现国际关系稳定和维护普世价值。路德社评论认为1、未来印太地区由美日主导释放重大信号，美国将会在军事等方面为日本全面松绑，让日本来对抗中共的威胁，美国承认的印太地区国际秩序的领导者将不会是中共而是日本；2、中共病毒给美国和世界带来的威胁，让美国下定决心，扶持日本，但是美日联盟维护的是普世价值，未来推翻中共的新中国也将是认同普世价值的，日本的崛起不会的对未来的中国产生威胁；7、日本战后70年经过和平宪法重塑国家体制走向了现代文明，未来的中国将会在正道主义的指引下走向和平和的社会，而不是现在中共洗脑下的“战狼”外交、四面树敌。
+6. 蓬佩奥接受福克斯玛丽亚采访称如果拜登政府不行动、大流行将会再次发生。采访中蓬佩奥称中共的病毒实验室非常危险，呼吁拜登政府采取行动，防止大流行再次发生，主持人玛丽亚肯定地说：新冠病毒来自于武汉实验室。蓬佩奥认为美国要继续加强与盟友的全方面合作共同对抗中共，减少供应链上对中共的依赖，否则中共会进攻台湾。路德社评论认为1、爆料革命从开始就强调中共病毒是生物武器，全世界只要不联合起来灭共，中共病毒一定会再次爆发，美国已经意识到这一点；2、美国已经意识到中共对台湾迫在眉睫的军事侵略危险，西方的软弱和妥协绥靖政策将进一步刺激中共的野心，文贵先生说这是一场人类生死的大决战，除了强硬对抗中共之外，美国和世界别无选择。
 
 
+【路德时评】[原视频链接1](https://youtu.be/rHf9HAx0KnA)   [原视频链接2](https://youtu.be/DSYr8FWvWhE)
 
-My analysis of the Chinese Communist Party’s dual-use military-civilian R&D program for novel genetically-engineered coronaviruses & heterologous vaccines against multiple strains, roughly follows this development plan, but involves more than one virus & a premature release.
-
-中文大意：我对中共针对多种菌株的新型基因工程冠状病毒和异源疫苗的军民两用研发计划的分析大致遵循了这一发展计划，但涉及多个病毒和过早释放。
-
-最主要的是Lawrence Sellin博士对13579计划的诠释——
-
-“1“=制造一个生化武器；
-
-”3“=自2017起的三年内使得生物武器可用；
-
-“5”=病毒释放后保持5年内有效；
-
-”7“=瘫痪7国（五眼联盟五国加日本印度）；
-
-”9“=9个月内释出疫苗勒索全世界。中共正制造两种疫苗。
-
-Lawrence Sellin博士解释了13579计划也配上了郭文贵先生的照片，再加上此前的系列中文灭共推——
-
-
-
-> 帮我打倒中国共产党。 请向我发送有关中国病毒研究的信息[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/tIll8UdRpg](https://t.co/tIll8UdRpg)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 16, 2021](https://twitter.com/LawrenceSellin/status/1383018664966885380?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> 没有中国共产党，中国就可以成为一个更成功，更自由的国家，并彰显中国人民的伟大 [pic.twitter.com/sxKocT0n3K](https://t.co/sxKocT0n3K)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 15, 2021](https://twitter.com/LawrenceSellin/status/1382729756974649345?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> 刘东升是拯救美国士兵的中国英雄 [https://t.co/cKh1td0Gyo](https://t.co/cKh1td0Gyo) [pic.twitter.com/P6XKMZFfYP](https://t.co/P6XKMZFfYP)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 15, 2021](https://twitter.com/LawrenceSellin/status/1382719669497389063?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> 我们在一起可以再次获胜。 1942年，勇敢的中国人拯救了杜利特尔突袭者（Doolittle Raiders）。 我们在一起可以打败中国共产党 [pic.twitter.com/5gf5u91uO0](https://t.co/5gf5u91uO0)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 15, 2021](https://twitter.com/LawrenceSellin/status/1382704492492304391?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> 我支持中国人民。 我拒绝中国共产党 [pic.twitter.com/6Du10owBsE](https://t.co/6Du10owBsE)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 15, 2021](https://twitter.com/LawrenceSellin/status/1382684439118020613?ref_src=twsrc%5Etfw)
-
-
-
-Lawrence Sellin博士支持中国人民，拒绝中国共产党，当年勇敢的中国人拯救了杜利特尔突袭者，刘东升是拯救美国士兵的中国英雄，没有中国共产党的中国可以更成功，和帮助他打倒中国共产党的一系列中文推。
-
-爆料革命唤醒了美国、唤醒了世界这是不争的事实，爆料革命把中共与中国人民彻底分开也是不争的事实，爆料革命正在拯救美国、拯救世界这也是不争的事实。在此前13579计划到底意味着什么一直是个谜，这一次Lawrence Sellin博士对13579计划的诠释和此前的系列灭共中文推的最强音，在13579计划通过这种形式大白于天下之际，中共的灭亡就在路上！
-
-（文章内容仅代表作者个人观点）
+上传：流光飞舞
 
 0
