@@ -1,226 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第206节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1113561/)
-
-俄罗斯莫斯科喀秋莎农场   仰望七星
-
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/L-6.jpg)thefederalist.com
-第206节. 中共国在国际组织中的影响力报告
-
-本节为“标题2——联盟和伙伴关系的投入”中，“副标题A——战略和外交事务”的第206节，副标题A的“第201节. 确定适当的国会委员会、第202节. 美国对印太盟国和伙伴的承诺和支持、第203节. 与四国合作的国会意识、第204节. 与东盟合作政策的声明、第205节. 加强美国与东盟技术合作的国会意识，这些技术合作与中共国有关”，没作翻译。
-
-本节要点：
-
-在本法颁布之日起180天内，提交中共国在国际组织中扩大影响的报告，报告内容有4大项，12分项，包括，中共在国际组织中过去10年的影响，这种影响是如何扩大的，跟踪与中共国投票模式一致的国家投票模式，担任D-1级或以上领导职务的中共国公民人数，在国际组织的术语和程序中，
-中共国在国际组织中扩大影响力的目的和最终目标，以及所采取的策略和手段包括-鼓励中共国公民加入和竞选国际组织的领导职位，向国际组织提供的经济或其他奖励，包括技术或货物的捐赠。
-
-欲了解更多的內容，请看本节全文（仅供参考）：
-
-（a）需要的报告 – 在本法颁布之日起180天内，国务卿应与国家情报总监协调，向参议院外交关系委员会和情报特别委员会、众议院外交事务委员会和常设情报特别委员会，提交中共国政府和中国共产党在国际组织中扩大影响的报告。
+## 在印度，双重突变病毒B1617正在超越其他所有变种
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1113598/)
 
-（b）内容 – 第（a）小节要求的报告应包括以下分析：
+- 作者：里奇
 
-（1）中共国和中国共产党在国际组织中过去10年的影响，这种影响是如何扩大的，包括-
-（A）跟踪与中共国政府投票模式一致的国家投票模式；
-（B）担任D-1级或以上领导职务的中共国公民人数；
-（C）在中共国通过有组织的自愿和强制性的资金供给变化；
-（D）在国际组织的术语和程序中，采用中国共产党的表达方式和倡议的；
-（E）中共国确保其外交政策倡议合法化的企图，包括“一带一路”倡议；
-（F）由中共国政府资助的初级专业人员的数量；
-（G）中共国政府或中国共产党操纵秘密或其他非公开的投票措施、投票机构或投票策略；
-（H）在中共国注册成立的技术公司的范围，或者中共或中共国利益拥有者，向国际组织提供设备和服务的范围；以及
-（I）中共国驻联合国代表团在联合国发起的对美国批评的努力，包括任何突出美国延迟付款的努力，或歪曲美国对联合国及其专门机构和项目义务捐款和分摊总额的努力。
 
-（2）中共国和中国共产党在国际组织中扩大影响力的目的和最终目标，包括分析中共国政府和中国共产党的战略文件和言论。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-（3）中共国和中国共产党为实现扩大在国际组织中影响的这一目标，所采取的策略和手段包括-
-（A）鼓励中共国公民加入和竞选国际组织的领导职位；
-（B）对本组织其他成员的胁迫性经济行为和其他行为；以及
-（C）向国际组织提供的经济或其他奖励，包括技术或货物的捐赠。
-（4）中共国和中国共产党的成功与失败对国际组织影响的努力。
+**西班牙2021年4月18日电/西喜社——**
 
-（c）表格-根据第（a）小节提交的报告应以非保密形式提交，但可包括保密附件。
+数周来，冠状病毒的一种特殊变体已经在印度引发关注，目前印度正在遭受猛烈的感染浪潮。现在，该变体还出现在其他国家，包括英国，德国和美国。
 
-（d）定义- 在本节中，“国际组织”一词是指：
-（1）非洲开发银行
-（2）亚洲开发银行
-（3）亚太经济合作组织
-（4）国际结算银行
-（5）加勒比开发银行
-（6）联合国粮食及农业组织
-（7）国际原子能机构
-（8）国际振兴开发银行
-（9）国际度量衡局
-（10）国际商会
-（11）国际民用航空组织
-（12）国际刑事警察组织
-（13）国际金融公司
-（14）国际农业发展基金
-（15）国际水文组织
-（16）国际劳工组织
-（17）国际海事组织
-（18）国际货币基金组织
-（19）国际奥委会
-（20）国际移民组织
-（21）国际标准化组织
-（22）国际可再生能源机构
-（23）国际电信联盟
-（24）经济合作与发展组织
-（25）禁止化学武器组织
-（26）联合国
-（27）联合国贸易和发展会议
-（28）联合国教育、科学及文化组织
-（29）联合国工业发展组织
-（30）联合国训练研究所
-（31）联合国停战监督组织
-（32）万国邮政联盟
-（33）世界海关组织
-（34）世界卫生组织
-（35）世界知识产权组织
-（36）世界气象组织
-（37）世界动物卫生组织
-（38）世界旅游组织
-（39）世界贸易组织
-（40）世界银行集团
-（本节完）
+根据印度当局周五发表的声明，已对超过13,000个阳性PCR样本进行了测序，并已在国际数据库中报告出来。样本数据表明，在印度已排序的所有新冠病毒样品中，一种名为B1617的特殊变体最近几个月来占比大增，占据了主导份额。但尚不清楚该变体是否更易传染或更致命。
 
-这是要根除邪共影响的节奏，在文贵先生引领下的爆料革命终于让美国高层有了较清醒的认知，让世界看到了灭共的希望，以毒灭共，以钱灭共，现在又加上以法灭共，共产党你完了！
+根据印度多家媒体的报道，4月1日，该变异体占阳性样本的大部分，因此它比英国变异体B117更具流行性。
 
-原文链接：
+“从12月几乎不存在，到现在为止，我们所看到的几乎所有地方都发现了它（B1617版），” 印度样品测序实验室之一的负责人阿努拉格·阿加瓦尔（Anurag Agarwal）告诉英文媒体印度时报。他还补充说，令人担忧的病毒变种的数量正在增加。
 
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+但是，报告这些变体的研究人员在outbreak.info网站上写道，这些数字可能并不完全准确，因为仅对少量样本进行了测序，但这是“最佳的可能估计”。
 
-文字整理：
+该变种首先在马哈拉施特拉邦大量发现，这是新一轮感染浪潮中的冰冻震中之一。
 
-SEC. 206. REPORT ON CHINESE INFLUENCE IN INTERNATIONAL ORGANIZATIONS.
+B1617之所以特别是因为它包含一个双突变。其中之一-L452R-以前见过，而另一个-E484Q-则是全新的。根据英国公共卫生部（PHE）的说法，该变体现在也已在英国发现，并被归类为需密切关注的一种变体。
 
-(a) REPORT REQUIRED. – Not later than 180 days after the date of the enactment of this Act, the Secretary of State, in coordination with the Director of National Intelligence, shall submit to the Committee on Foreign Relations and the Select Committee on Intelligence of the Senate and the Committee on Foreign Affairs and the Permanent Select Committee on Intelligence of the House of
+《标准》报（The Standard）写道，英格兰已记载有73例，苏格兰4例。事实是该变体中存在双重突变，因而人们担心它会引起免疫和抗体方面的问题。
 
-Representatives a report on the expanded influence of the Government of the People’s Republic of China and the Chinese Communist Party in international organizations.
+“这两个突变都被认为是逃逸突变。与我们了解的其他人类冠状病毒相比，可以估计这可能给疫苗带来问题。但是我们现在还不确定，” 东英吉利大学教授保罗·亨特（Paul Hunter）对报纸说。
 
-(b) CONTENTS. – The report required by subsection (a) shall include analysis of the following:
+所谓的“逃逸突变”指的是病毒可以躲避通过自然免疫或疫苗免疫系统形成的抗体。全世界正在尽力通过大规模疫苗接种以期达成群体免疫，而逃逸突变无疑会起到破坏作用。
 
-(1) The influence of the PRC and Chinese Communist Party in international organizations and
+目前尚不知道B1617是否在印度的这波猛烈浪潮中发挥了关键作用，但可见的是，它导致了高感染率和政府颁布各种影响深远的限制令。
 
-how that influence has expanded over the last 10 years, including –
+“要评估是否这种双突变病毒变体导致了感染，我们需要更多参考点来说明。例如，如果它在3月30日进行的测试中占30％的比例，而在4月14日占40%，那么这表明该变种是造成感染增加的原因。” 首席医师兼教授Gautam Menon告诉印度快报。
 
-(A) tracking countries’ voting patterns that align with Chinese government voting patterns;
+印度卫生部本周早些时候的数据显示，总记载新冠病毒感染案例将近1300万，死亡人数已逼近170,000。
 
-(B) the number of PRC nationals in leadership positions at the D–1 level or higher;
+据路透社报道，尽管印度是世界上最大的新冠病毒疫苗生产国，但该国迄今已接种疫苗的居民人数约9400万。这相当于不到全国7％人口。
 
-(C) changes in PRC voluntary and mandatory funding by organization;
+**点评: 新冠病毒大流行已肆虐全球一年多，各种病毒变体层出不穷，各国人们遭受着巨大的生命和经济损失。可是各国政府都在舍本逐末，不去彻查病毒来源、追究放毒凶手，找出根本解决办法; 而是忙于给自己的国民注射各种未经充分验证有效性和安全性的疫苗，以期早日开放和恢复正常社会生活。我们的世界真的需要一场大觉醒运动，民众要提升逻辑思维、学会辨识真假、摒弃天真无知。希望这场病毒危机可以成为一个好的契机，让全球彻底认清和铲除共产主义这个毒瘤，也督使各国政府改变官僚腐化、资本为上的执政思想，不再绥靖邪恶势力。如此才能避免下一次全球大灾难。**
 
-(D) adoption of Chinese Communist Party phrases and initiatives in international organization language and programming;
+素材：里奇；初审：Ranting；终审：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
 
-(E) efforts by the PRC to secure legitimacy for its own foreign policy initiatives, including the Belt and Road Initiative;
+**新闻来源: **[日德兰邮报](https://jyllands-posten.dk/international/asien/ECE12909017/b1617-i-indien-er-en-dobbelt-mutation-ved-at-vinde-over-alle-andre-varianter/)
 
-(F) the number of Junior Professional Officers that the Government of China has funded by organization;
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
-(G) tactics used by the Government of China or the CCP to manipulate secret or otherwise non-public voting measures, voting bodies, or votes;
 
-(H) the extent to which technology companies incorporated in the PRC, or which have PRC or CCP ownership interests, provide equipment and services to international organizations; and
-
-(I) efforts by China’s United Nations Mission to generate criticism of the United States in the United Nations, including any efforts to highlight delayed United States payments or to misrepresent total United States voluntary and assessed financial contributions to the United Nations and its specialized agencies and programs.
-
-(2) The purpose and ultimate goals of the expanded influence of the PRC and the Chinese Communist Party in international organizations, including an analysis of PRC Government and Chinese Communist Party strategic documents and rhetoric.
-
-(3) The tactics and means employed by the PRC and the Chinese Communist Party to achieve
-
-expanded influence in international organizations, including –
-
-(A) incentive programs for PRC nationals to join and run for leadership positions in international organizations;
-
-(B) coercive economic and other practices against other members in the organization; and
-
-(C) economic or other incentives provided to international organizations, including donations of technologies or goods.
-
-(4) The successes and failures of PRC and CCP influence efforts in international organizations.
-
-(c) FORM – The report submitted under subsection (a) shall be submitted in unclassified form, but may include a classified annex.
-
-(d) DEFINITION – In this section, the term ‘‘international organizations’’ means the following:
-
-(1) The African Development Bank.
-
-(2) The Asian Development Bank.
-
-(3) The Asia Pacific Economic Cooperation.
-
-(4) The Bank of International Settlements.
-
-(5) The Caribbean Development Bank.
-
-(6) The Food and Agriculture Organization.
-
-(7) The International Atomic Energy Agency.
-
-(8) The International Bank for Reconstruction and Development.
-
-(9) The International Bureau of Weights and Measures.
-
-(10) The International Chamber of Commerce.
-
-(11) The International Civil Aviation Organization.
-
-(12) The International Criminal Police Organization.
-
-(13) The International Finance Corporation.
-
-(14) The International Fund for Agricultural Development.
-
-(15) The International Hydrographic Organization.
-
-(16) The International Labor Organization.
-
-(17) The International Maritime Organization.
-
-(18) The International Monetary Fund.
-
-(19) The International Olympic Committee.
-
-(20) The International Organization for Migration.
-
-(21) The International Organization for Standardization.
-
-(22) The International Renewable Energy Agency.
-
-(23) The International Telecommunications Union.
-
-(24) The Organization for Economic Cooperation and Development.
-
-(25) The Organization for the Prohibition of Chemical Weapons.
-
-(26) The United Nations.
-
-(27) The United Nations Conference on Trade and Development.
-
-(28) The United Nations Educational, Scientific, and Cultural Organization.
-
-(29) The United Nations Industrial Development Organization.
-
-(30) The United Nations Institute for Training and Research.
-
-(31) The United Nations Truce Supervision Organization.
-
-(32) The Universal Postal Union.
-
-(33) The World Customs Organization.
-
-(34) The World Health Organization.
-
-(35) The World Intellectual Property Organization.
-
-(36) The World Meteorological Organization.
-
-(37) The World Organization for Animal Health.
-
-(38) The World Tourism Organization.
-
-(39) The World Trade Organization.
-
-(40) The World Bank Group.
 
 0

@@ -1,53 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 当宗教被玷污
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1112965/)
+## 【呐喊】触目惊心——最新中共病毒全球疫情数据
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1112899/)
 
-**作者：纽约香草山农场 梵高的稻田**
+作者：纽约香草山佛教部 369文驹
 
-上帝创世纪时，赋予了人类这个宠儿无限的潜能。可是，任何潜能皆是一把双刃剑，用得好能裨益众生，用不好就会祸害四方。这就像核能一样，用于发电能够造福人类，用作武器却可以摧毁地球。充分考虑到人类潜能被魔鬼撒旦利用的极大可能性，上帝在赋予人类无穷潜能的同时，也给人类配备了宗教。
 
-宗教是连接人类与上帝的一个工具。它锚定着人类的人性不致向撒旦倾斜，是芸芸众生在生命旅途中迷路时的指引。宗教是人类的需要，也是上帝的旨意。尽管宗教在伴随人类发展过程中，常被人类当做政治工具利用，但其连接人类与上帝的根本性质从未改变。正因如此，人类社会跌跌撞撞一路走来才不致于如史前文明一样走入毁灭之境。
 
-可是，当中共染指宗教时，人们信奉的不能再是上帝，而是中共的最高领袖人物。
-![pastedGraphic.png]()![pastedGraphic.png](https://gnews.org/wp-content/uploads/2021/04/image2-1.jpeg)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-![pastedGraphic_1.png]()![pastedGraphic_1.png](https://gnews.org/wp-content/uploads/2021/04/image3.jpeg)
-综合媒体报道来看，自2018年以来，中共国内的宗教发生了巨大变化，最明显变化就是“政治挂帅，统领宗教”。
-![pastedGraphic_2.png]()![pastedGraphic_2.png](https://gnews.org/wp-content/uploads/2021/04/image4.jpeg)
-2018年9月22日，中梵签订了未曾公开的临时协议，双方皆称协议仅事关中共国的主教任命，梵蒂冈承认中共国在本区域主教任命的发言权，协议期限两年。但天主教香港教区荣休主教陈日君枢机表示，在协议期的两年内，并未任命过一名主教。
 
-2020年，协议期满后，中梵双方续签了主教任命临时协议。对此，陈日君指出，梵蒂冈意在与中共国建交。罗马教廷各国关系部长加拉格尔（Paul Gallagher）对媒体声称，“（如果没有让北京在选择主教问题上扮演重要作用）虽然不是马上，而是在十年以后，我们就会发现将没有几位（中国的）主教与教宗保持联系。”梵蒂冈教廷国务卿、枢机主教帕罗林（Pietro Parolin）称，“梵蒂冈认为与北京继续合作是重要的”，中梵协议“完全没有触及中国教会生活的其他层面，没有涉及政治议题”。中共国外交部发言人赵立坚则表示，“临时协议续签延续了中梵关系改善的势头”。
 
-中梵临时协议签订后，双方并未执行其声称的协议内容，却在协议期满后续签协议，并对未来的双方关系充满了期望。这到底是一份什么样的协议？
+根据约翰斯·霍普金斯大学发布的数据，截止4月18日12:20分，中共病毒全球疫情数据如下：
 
-郭文贵先生在2020年6月29日接受战斗室采访时透露，“梵蒂冈与中共达成很多秘密协议。梵蒂冈每年从中共收取高达20亿美金的贿赂和政治利益，出卖中共国地下天主教几千万虔诚教徒。”在中梵间起沟通促进的关键人物就是帕罗林。
-![pastedGraphic_3.png]()![pastedGraphic_3.png](https://gnews.org/wp-content/uploads/2021/04/image5.jpeg)
-帕罗林在梵蒂冈记者卢秋·布鲁内里的眼里，是一个“拥有现实主义外交路线，总是愿意进行调节，并开展新对话”的人。他曾在自己被任命为主教的典礼上说，“圣职不是一种权利，而是一种服务”。从宗教本来的性质来说，圣职确是为上帝和教徒服务。可是，一旦教徒行为偏离上帝旨意时，圣职服务于谁呢？这个时候，圣职有权力在上帝和背离上帝旨意的教徒间做调和吗？帕罗林在世俗世界里对“变通”的理解和操弄相当熟稔，但上帝旨意可以由人操弄吗？
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-304.png)图片来源：JHU，中共病毒全球感染概览
 
-中共国的教堂里悬挂习近平画像，寺庙里供奉共产党的前任高级领导，这就是梵蒂冈和无神论的中共操弄神的旨意的结果。教徒到底是信奉神的旨意，还是服从共产党最高领袖的意志？当宗教被俗世玷污，尤其被政治所操弄时，信众是否有权利选择跟随真正为上帝服务的圣职人员？
+1、全球感染病例数：**140,457,797** 例，死亡人数：**3,009,215** 人。
 
-梵蒂冈如此担心中共国的主教与教宗失去联系，以至作出巨大让步，让中共染指主教任命，但为什么对“政治挂帅，统领宗教”的中共国的宗教现实选择性失明呢？
+2、各国感染人数和死亡人数排名：
 
-**（文章仅代表作者本人观点，与GNews无关）**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/92.jpg)
 
-**参考链接：**
+3、全球每日感染数据图：
 
-[1] [寺庙遭威胁 不供奉毛泽东像就强拆](https://zh.bitterwinter.org/temples-punished-for-not-worshiping-political-leaders/)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-305.png)
 
-[2] [梵蒂冈国务卿帕罗林证实：中梵主教任命协议将续签两年](https://www.rfi.fr/cn/%E6%94%BF%E6%B2%BB/20201021-%E6%A2%B5%E8%92%82%E5%86%88%E5%9B%BD%E5%8A%A1%E5%8D%BF%E5%B8%95%E7%BD%97%E6%9E%97%E8%AF%81%E5%AE%9E-%E4%B8%AD%E6%A2%B5%E4%B8%BB%E6%95%99%E4%BB%BB%E5%91%BD%E5%8D%8F%E8%AE%AE%E5%B0%86%E7%BB%AD%E7%AD%BE%E4%B8%A4%E5%B9%B4)
+4、全球每日死亡数据图：
 
-[3] [外交部：经中梵友好协商，主教任命临时性协议将延期两年](https://baijiahao.baidu.com/s?id=1681297267633149683&amp;wfr=spider&amp;for=pc)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-306.png)
 
-[4] [梵蒂冈帕罗林Pietro Parolin出卖中共国几千万虔诚天主教徒](https://gnews.org/zh-hans/1097615/)
+通过以上数据不难发现，全球感染人数和死亡人数已经处于中共病毒爆发以来的最高水平，与今年年初水平相当。图表上今年4月感染和死亡人数的曲线十分陡峭，意味着本轮疫情爆发来势汹汹，而且这是在世界各国广泛接种疫苗的背景下发生的。那些鼓吹目前疫苗有效、能群体免疫的谎言，在数据面前不攻自破。
 
-[5] [方济各教皇任命新教廷国务卿 修复罗马教廷形象](http://roll.sohu.com/20130902/n385648066.shtml)
+据资料显示，约翰斯·霍普金斯大学（The Johns Hopkins University），是美国马里兰州巴尔的摩研究型私立大学，美洲大学协会的12个创始会员之一。美国国家科学基金会连续31年将该校列为全美科研经费开支最高的大学，也是哈勃空间望远镜和詹姆斯·韦伯空间望远镜的地面控制中心所在地。截至2020年4月，共有39名校友、教职工及研究人员获诺贝尔奖。在2019年末，约翰斯·霍普金斯大学的冠状病毒资源中心（Coronavirus Resource Center）收集来自全球数百个来源的数据来追踪中共病毒疫情全球病例，成为有关各国疫情引用最多的来源之一。[1]
 
-***责任编辑：英国喜庄园 AN***
+参考阅读：
 
-***编辑/校对：华盛顿DC农场 光之子(沙加)***
+1. [约翰斯·霍普金斯大学](https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%BF%B0%E6%96%AF%C2%B7%E9%9C%8D%E6%99%AE%E9%87%91%E6%96%AF%E5%A4%A7%E5%AD%A6)
 
-***发布：盘古人生***
 
-+1
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
+
+0
