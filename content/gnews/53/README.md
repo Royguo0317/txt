@@ -1,77 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Lawrence Sellin博士终于将13579计划的具体含义公之于众
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1112471/)
+## 中共将日本推到对立面，日本走向半世纪的转变
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1112640/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
-![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-18.png)
-据[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[上午2:56 · 2021年4月18日](https://twitter.com/LawrenceSellin/status/1383494654633472007)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
+【日本东京方舟农场】编撰：丸子  校对：文小律
 
+日本「日华议员恳谈会」会长古屋圭司今天在推特（twitter）表示「台北的日本台湾交流协会（相当于大使馆）出入处开始升起日本国旗了。这是理所当然的事，但以前一直顾虑中共国，所以没悬挂。」据了解，官邸今年1月开始升旗，4月2日太鲁阁号意外发生时，曾降半旗3天表示哀悼。
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/ACCE7D37-50BB-4B9B-B25B-ACF45B4941D9.jpeg)
 
-> My analysis of the Chinese Communist Party's dual-use military-civilian R&D program for novel genetically-engineered coronaviruses & heterologous vaccines against multiple strains, roughly follows this development plan, but involves more than one virus & a premature release. [pic.twitter.com/QYkJCJG17S](https://t.co/QYkJCJG17S)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 17, 2021](https://twitter.com/LawrenceSellin/status/1383494654633472007?ref_src=twsrc%5Etfw)
+「日华议员恳谈会」由近300名对台湾友好的日本跨党派国会议员组成。古屋推文所附的照片是日本台湾交流协会代表官邸，位于台北市仰德大道。现在，在台北的“日台交流协会”（相当于使馆）的入口处悬挂着日本国旗。
 
+会长古屋在推特写道：这是很自然的，但是这是谨慎地戒除中共国的历史。台湾内外的许多游客会注意到这一变化。
 
+这是承认台湾中华民国国家主权的象征，捅破了这一挺立了中共半个多世纪口炮的窗户纸——“台湾是中共国领土不可分割的一部分”，日本已经不再顾虑中共国。
 
-My analysis of the Chinese Communist Party’s dual-use military-civilian R&D program for novel genetically-engineered coronaviruses & heterologous vaccines against multiple strains, roughly follows this development plan, but involves more than one virus & a premature release.
+日本突破这一变化是半个世纪的转变。
 
-中文大意：我对中共针对多种菌株的新型基因工程冠状病毒和异源疫苗的军民两用研发计划的分析大致遵循了这一发展计划，但涉及多个病毒和过早释放。
+新闻看点指，日本已不再在乎中共国。中共国是日本最大的贸易伙伴，由于日本对中共国经济依赖，所以日本半个世纪以来对待中共国态度一向保守，曾是没有批评新疆人权的国家之一。2021年4月15日本首相菅义伟访问美国总统拜登，举行双边峰会，双方随后发表了美日联合声明，其中涉及五个大的方面。分别是「联手抗共」、「美日安保」、「人权问题」、「气候」与「5G」。而且菅义伟在双方会晤后的记者会上直言不讳地告诉媒体，他与拜登讨论了台湾，重申了台湾海峡「和平与稳定」的重要性。但是他表示，「不会进一步披露有关台湾议题的讨论细节」。「不披露」关于台湾议题的细节，也就意味着里面可能有激怒中共的敏感内容。据新闻看点分析，美日双方很可能已经商定好了如何针对中共的具体做法。日本选择了和台湾站队，加大了美国合作力度，美日联合声明52年来首提台湾问题，可以说是外交史上的大事记。这也是由于中共加大对台湾威胁，和加大对日本施压有关。
 
-最主要的是Lawrence Sellin博士对13579计划的诠释——
+原因及点评：
 
-“1“=制造一个生化武器；
+中共国对日本以往的外交固然重要，但人权问题越发显得突出和重要了。台湾对日本也有非常重要的战略地位，日本的地理弱点决定了其经济大量依赖进口，日本的经济资源都是通过海运从世界各地到达日本，而台湾海峡附近的航道刚好是日本经济资源的必经之路，台湾在日本的航线之上。日本人和台湾人由于历来友好交往，日本又是对中华唐朝文化最好的继承和发扬者，和台湾又具有文化的相似性，在贸易合作也有重要的关系，越来越多的日本政治精英和日本民众，人们都有日益增加的体会，「防卫台湾就等于是在防卫日本」，「如果中共控制了台湾，那将是对日本领土的直接威胁」。日本意识到必须和台湾站一起。更何况中共对日本又有直接威胁，而且威胁也在日益加剧，中共对钓鱼岛的威胁频繁，追赶日本渔船等事件发生，中共方面无任何收敛。日本意识到了有关人权的问题绝对不能让步，必须寻求大国支持，而且美日共同演绎非常重要。所以选择站队台湾，与美合作，是中共的智商余额严重不足，将日本推到了对立面。
 
-”3“=自2017起的三年内使得生物武器可用；
+注：本文仅代表作者观点
 
-“5”=病毒释放后保持5年内有效；
+参考链接：
 
-”7“=瘫痪7国（五眼联盟五国加日本印度）；
+1. [https://twitter.com/Furuya\_keiji/status/1383190967419752449](https://twitter.com/Furuya_keiji/status/1383190967419752449)
+2. [https://www.cna.com.tw/news/firstnews/202104170064.aspx](https://www.cna.com.tw/news/firstnews/202104170064.aspx)
+3. [https://www.epochtimes.com/b5/21/4/17/n12887155.htm](https://www.epochtimes.com/b5/21/4/17/n12887155.htm)
 
-”9“=9个月内释出疫苗勒索全世界。中共正制造两种疫苗。
-
-Lawrence Sellin博士解释了13579计划也配上了郭文贵先生的照片，再加上此前的系列中文灭共推——
-
-
-
-> 帮我打倒中国共产党。 请向我发送有关中国病毒研究的信息[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/tIll8UdRpg](https://t.co/tIll8UdRpg)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 16, 2021](https://twitter.com/LawrenceSellin/status/1383018664966885380?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> 没有中国共产党，中国就可以成为一个更成功，更自由的国家，并彰显中国人民的伟大 [pic.twitter.com/sxKocT0n3K](https://t.co/sxKocT0n3K)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 15, 2021](https://twitter.com/LawrenceSellin/status/1382729756974649345?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> 刘东升是拯救美国士兵的中国英雄 [https://t.co/cKh1td0Gyo](https://t.co/cKh1td0Gyo) [pic.twitter.com/P6XKMZFfYP](https://t.co/P6XKMZFfYP)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 15, 2021](https://twitter.com/LawrenceSellin/status/1382719669497389063?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> 我们在一起可以再次获胜。 1942年，勇敢的中国人拯救了杜利特尔突袭者（Doolittle Raiders）。 我们在一起可以打败中国共产党 [pic.twitter.com/5gf5u91uO0](https://t.co/5gf5u91uO0)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 15, 2021](https://twitter.com/LawrenceSellin/status/1382704492492304391?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> 我支持中国人民。 我拒绝中国共产党 [pic.twitter.com/6Du10owBsE](https://t.co/6Du10owBsE)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 15, 2021](https://twitter.com/LawrenceSellin/status/1382684439118020613?ref_src=twsrc%5Etfw)
-
-
-
-Lawrence Sellin博士支持中国人民，拒绝中国共产党，当年勇敢的中国人拯救了杜利特尔突袭者，刘东升是拯救美国士兵的中国英雄，没有中国共产党的中国可以更成功，和帮助他打倒中国共产党的一系列中文推。
-
-爆料革命唤醒了美国、唤醒了世界这是不争的事实，爆料革命把中共与中国人民彻底分开也是不争的事实，爆料革命正在拯救美国、拯救世界这也是不争的事实。在此前13579计划到底意味着什么一直是个谜，这一次Lawrence Sellin博士对13579计划的诠释和此前的系列灭共中文推的最强音，在13579计划通过这种形式大白于天下之际，中共的灭亡就在路上！
-
-（文章内容仅代表作者个人观点）
 
 0
