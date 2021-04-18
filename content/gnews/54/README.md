@@ -1,62 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 梵蒂冈国务秘书处对被警方调查的投资项目知情
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1111060/)
+## 【有声读物】你是我们今生的霞光，我们是你身后的云彩
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1111195/)
 
-翻译：枳实
-校对/编辑：七彩光
-![梵蒂冈国务秘书处对被警方调查的投资项目知情]()![梵蒂冈国务秘书处对被警方调查的投资项目知情](https://gnews.org/wp-content/uploads/2021/04/6387638587.png)
-图片设计：墨尔本雅典娜农场设计师 – 姐夫说说
+作者：香草山写作组   木白
+配音：香草山录音组 Swr拥抱太阳
 
-红衣主教帕罗林（Pietro Parolin）的信被泄露给意大利一家新闻机构，这封信显示国务秘书处知道并在其最高层批准了在伦敦购买豪华房地产。这个不光彩的事件，现在正处于梵蒂冈调查的中心。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-意大利《多玛尼报》1月10日刊登了梵蒂冈国务秘书红衣主教帕罗林致宗教事务银行（IOR，也被称为”梵蒂冈银行“）主席让-巴蒂斯特-德-弗朗苏的一封”机密和紧急”信件。
 
-在信中红衣主教帕罗林要求宗教事务银行向梵蒂冈国务秘书处贷款1.5亿欧元（约合1.823亿美元）。国务秘书处需要这笔钱来偿还四个月前与Cheney Capital签订的贷款合同。国务秘书处利用这笔贷款买断了那处伦敦地产的股份。
 
-红衣主教帕罗林称这项投资是”有效的投资”，他说，这项投资必须得到保障，并向宗教事务银行申请贷款。他还写道，之所以需要这笔贷款，是因为当时的财政状况建议国务秘书处不要用其储备金”开展对冲投资业务”，而是要”获得额外的流动资金”。
 
-国务秘书处还详细说明，这笔贷款将有”两年的期限”，而宗教事务银行将获得”符合国际市场”的贷款报酬。
 
-据《多玛尼报》，宗教事务银行立即采取行动履行这一要求，并通知了梵蒂冈金融信息监管局(ASIF)。监管和金融信息局对宗教事务银行有监督权，但对国务秘书处没有监督权。
 
-4月，金融信息监管局考虑到宗教事务银行有足够的资金来执行这一行动，将其称为“可行”, 同时要求进行充分的尽职调查，以遵守现行的反洗钱法。
 
-5月，宗教事务银行主席马米（Gianfranco Mammì）先生请国务秘书处副国务秘书大主教佩尼亚-帕拉（Peña Parra）亲自签署书面信件中写下这一请求。据马米说，副国务秘书拥有”行政权力”，因此，帕罗林红衣主教的信不足以让宗教事务银行按要求开展行动。
+如同我爱过的和憎恨的声音
+如同这场猝不及防的雪
+如同沸腾血液外的寒冷
+当它们流动，时刻提醒着我活着的意义
+会飞的鸟和不会飞的，脚踏同一片大地
+仰望天空，一次次练习这双自由的翅膀
+转身回头，一次次奔跑，我们去找回这双不再有裹脚布的脚
 
-佩尼亚-帕拉大主教满足了马米的要求，于6月4日和6月19日分别签署了一封信，解释了贷款的要求。
+文字版原文：[【香草诗词】你是我们今生的霞光，我们是你身后的云彩](https://gnews.org/zh-hans/612179/)
 
-6月27日，宗教事务银行的专家对金融业务开了绿灯。6月29日，宗教事务银行向国务秘书处官员提交了此贷款的经济计划。
+音频处理/发稿：雪梨
 
-但7月2日，马米改变了主意，向梵蒂冈检察官报告说，佩尼亚-帕拉大主教不清楚此事，也不愿意透露谁是所申请贷款的真正受益人。
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
-一位梵蒂冈消息人士向中新社（CNA）证实，红衣主教帕罗林的信是真实的，《多玛尼报》撰写的报道是准确的。
+**更多资讯，更多关注**
 
-在马米向公诉人报告后，梵蒂冈警方于2019年10月1日搜查并查封了金融信息监管局和国务秘书处的办公室。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-两天后，有消息称梵蒂冈暂停了五名官员的职务。分别是：国务秘书处的Maurizio Carlino女士、Fabrizio Tirabassi先生、Vincenzo Mauriello先生和Caterina Sansone女士；以及金融信息监管局主任Tommaso Di Ruzza先生。
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-后来，梵蒂冈还暂停了2009年至2019年领导国务秘书处行政办公室的Alberto Perlasca女士的职务。
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-尽管没有对他们中的任何一个人提出刑事指控，但除了Caterina Sansone之外，所有这些官员都不再在梵蒂冈工作。Di Ruzza没有续任金融信息监管局的主任，Fabrizio Tirabassi和Vincenzo Mauriello同意提前退休，Maurizio Carlino和Alberto Perlasca都被派往原籍教区。
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-虽然红衣主教帕罗林泄露的信件与此调查无关，但它确实提供了重要的背景。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-其中之一是，国务秘书处知道，2011-2012年对伦敦斯隆大道60号豪华房地产的投资存在财务和道德问题，该房地产由60 SA公司管理。
-
-梵蒂冈国务秘书处以1.6亿美元的价格与总部设在卢森堡的雅典娜基金签署了购买协议，该基金由意大利金融家Raffaele Mincione拥有和管理，后者担任中介。
-
-当雅典娜基金清算时，投资没有退还给罗马教廷。罗马教廷如果不买下大楼，就有可能损失所有资金。
-
-梵蒂冈金融信息监管局审查了这笔交易，然后提议调整投资结构，排除中间商，从而使罗马教廷节省一些资金。
-
-当时，国务秘书处要求宗教事务银行提供足够的资源，以结束旧的抵押贷款，并允许新的抵押贷款来完成购买。
-
-由于宗教事务银行最初认为这项投资是”好的”，因此，是什么原因使马米改变了主意，并向公诉人报告了财务运作情况，至今仍是一个谜；尤其是在2020年9月，据说教廷遗产管理局（APSA）支付了与Cheney Capital的贷款，并签订了新的贷款合同以保障投资。这也是帕罗林红衣主教信中所建议的行动。
-
-那么，宗教事务银行为什么没有按照最初的计划开展行动？ 随着更多行动细节的曝光，原因似乎是教皇核心圈的权力斗争，并没有明显的赢家。目前，在国务秘书处的搜查和扣押事件发生一年零三个月后，梵蒂冈的调查没有导致任何起诉，但也没有决定不起诉。只要调查没有得出明确的结论，梵蒂冈财务状况的前景就会继续扑朔迷离。
-
-**原文链接：**[https://www.catholicnewsagency.com/news/246055/vatican-secretary-of-state-knew-of-investment-now-under-investigation](https://www.catholicnewsagency.com/news/246055/vatican-secretary-of-state-knew-of-investment-now-under-investigation)
-
-+3
+0
