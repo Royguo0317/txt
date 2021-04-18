@@ -1,34 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统离开白宫后，CNN的观众流失过半
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1112978/)
+## 【呐喊】触目惊心——最新中共病毒全球疫情数据
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1112899/)
 
-- 翻译： JIHO
+作者：纽约香草山佛教部 369文驹
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年4月18日电/西喜社——**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/c144e603601cc739d9bc596f22871473.jpg)图片来源：6do.news
 
-根据福克斯新闻的报道，美国有线电视新闻网CNN，自从“就职日”以来，多个类别的收视率均下降了50％以上。自1月份以来，MSNBC评级也大幅下降。
 
-美国有线电视新闻网（CNN）在2021年的前三周平均拥有220万观众，但自拜登上任以来，平均只有100万观众，跌幅达到了惊人的54％。在25-54岁之间的主要广告人群中，收视率下降了60％。从12月28日到“就职日”，观看人数从统计的617,000名下降到只有244,000名。
+根据约翰斯·霍普金斯大学发布的数据，截止4月18日12:20分，中共病毒全球疫情数据如下：
 
-CNN的“王牌们”，自由黄金时段主持人安德森·库珀（Anderson Cooper），克里斯·库莫（Chris Cuomo）和唐·柠檬（Don Lemon）也未能改变这一局势。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-304.png)图片来源：JHU，中共病毒全球感染概览
 
-CNN在以往晚上8点到11点，平均收看人数为310万，从12月28日到“就职日”，只有140万人收看，跌幅高达55％。在同一时期，CNN的黄金时段节目也失去了63％的观众。
+1、全球感染病例数：**140,457,797** 例，死亡人数：**3,009,215** 人。
 
-尽管一月份是一个新闻频发的“新闻月”（“国会骚乱”及“特朗普挑战2020年的选举结果”等），可CNN的表现比自由派MSNBC还差。拜登当政后，MSNBC的全天观众流失了34％，黄金时段则流失了30％，而Fox新闻则以个位数的下降保留住了大部分观众。
+2、各国感染人数和死亡人数排名：
 
-**评：媒体靠什么生存?不是观众的收视率吗？面对川普离任后才3个月，CNN就大幅度下降的收视率，体现美国民众对真相的渴望，随着选举舞弊事件被揭露，民众也不再接受CNN的谎言。以前的洗脑宣传时代已经回不去了，维真不破才是现在媒体生存的根本。这篇报告让人联想到中共国的官媒们，虽然现在是在防火墙和维稳的双管齐下下，如果防火墙被推倒，中国人能看到真相的时候，这些官媒会怎么样？祝愿CNN一路走好。**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/92.jpg)
 
-素材: JIHO；编辑：蚂蚁兄弟；校对：weiwei；发稿：信心的选择
+3、全球每日感染数据图：
 
-**新闻来源：**[福克斯新闻](https://www.foxnews.com/media/cnn-viewers-biden-took-office-staggering-60-percent-in-key-demo)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-305.png)
 
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+4、全球每日死亡数据图：
 
-+1
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-306.png)
+
+通过以上数据不难发现，全球感染人数和死亡人数已经处于中共病毒爆发以来的最高水平，与今年年初水平相当。图表上今年4月感染和死亡人数的曲线十分陡峭，意味着本轮疫情爆发来势汹汹，而且这是在世界各国广泛接种疫苗的背景下发生的。那些鼓吹目前疫苗有效、能群体免疫的谎言，在数据面前不攻自破。
+
+据资料显示，约翰斯·霍普金斯大学（The Johns Hopkins University），是美国马里兰州巴尔的摩研究型私立大学，美洲大学协会的12个创始会员之一。美国国家科学基金会连续31年将该校列为全美科研经费开支最高的大学，也是哈勃空间望远镜和詹姆斯·韦伯空间望远镜的地面控制中心所在地。截至2020年4月，共有39名校友、教职工及研究人员获诺贝尔奖。在2019年末，约翰斯·霍普金斯大学的冠状病毒资源中心（Coronavirus Resource Center）收集来自全球数百个来源的数据来追踪中共病毒疫情全球病例，成为有关各国疫情引用最多的来源之一。[1]
+
+参考阅读：
+
+1. [约翰斯·霍普金斯大学](https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%BF%B0%E6%96%AF%C2%B7%E9%9C%8D%E6%99%AE%E9%87%91%E6%96%AF%E5%A4%A7%E5%AD%A6)
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
+
+0
