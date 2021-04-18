@@ -1,44 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】你是我们今生的霞光，我们是你身后的云彩
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1111195/)
+## 澳洲中海岸地区一女子注射CCP病毒疫苗后死亡
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1111256/)
 
-作者：香草山写作组   木白
-配音：香草山录音组 Swr拥抱太阳
+翻译与评论：Gradient Boost
+![]()![](https://gnews.org/wp-content/uploads/2021/04/002-7.jpg)图片来自Pexels免费照片资料库；摄影：Gustavo Fring
+据悉尼先驱晨报4月16日报道，联邦卫生权威正在调查一名48岁女性在接种阿斯利康疫苗后死亡的案例。这名来自澳洲中海岸（Central Coast）的女子是于上周五接种的疫苗，而隔天便出现了血栓并进行了透析治疗。这名女子此前出患有糖尿病外并没有任何其它病症，总体来说身体情况基本良好。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+不过澳洲联邦健康部门表示，目前尚不清楚这一起死亡案例是否与CCP病毒疫苗存在实际的直接联系——目前更进一步的调查还在进行当中。而澳洲总理莫里森也表示在健康部门进行详尽调查之前不应立刻得出结论。总而言之，官方的健康权威并没有确认疫苗注射与血栓形成之间的关系，因为糖尿病似乎也能够造成某些类型的血栓。
 
+早在此前，已经有两个注射阿斯利康疫苗后形成严重血凝固障碍的案例，其中一例为44岁维多利亚州的女性，而另一例为则来自西澳大利亚，同样是40岁左右的女性。而以上两个血凝固案例已经被确认直接与阿斯利康疫苗有关。值得注意的是，这种由疫苗造成的血凝固障碍与普通的血栓并不一样。
 
+虽然澳大利亚官方目前仍然认为疫苗造成的副作用的案例较为罕见，依然坚持认为疫苗是安全的，但是联邦政府已经更新了疫苗的接种建议，包括尽可能对50岁以下的疫苗接种者使用辉瑞生产的疫苗等。
 
+不过笔者认为，修改疫苗接种建议，更换疫苗品牌其实都不能避免疫苗副作用案例的继续出现。根据大纪元时报4月16日的报道，辉瑞以及Moderna生产的疫苗同样也会造成类似的血栓问题，并且血栓的发病率也与阿斯利康的被接种者类似。同样在本月，强生公司生产的疫苗已被美国联邦机构停用，其原因同样也和接种后产生的血栓症状有关，而且这些案例均为50岁以下的成年女性。
 
+疫苗接种后产生血栓，如果说只有一家公司出现这种情况，或许还尚不至于完全否定疫苗的安全性。然而当前的情况却十分离奇：各场生产的疫苗均出现了可能致命的血凝固障碍，而且是与普通血栓不同的特殊类型。这正是说明CCP病毒疫苗存在着系统性的安全风险，而不仅是个别品牌存在问题。既难保证是否对持续变异的病毒有效，接种后或许还有其它未知的副作用，这样的疫苗不知诸位敢打么？
 
+（本文纯属个人观点）
 
+*审稿：Bruce（文远）*
 
-如同我爱过的和憎恨的声音
-如同这场猝不及防的雪
-如同沸腾血液外的寒冷
-当它们流动，时刻提醒着我活着的意义
-会飞的鸟和不会飞的，脚踏同一片大地
-仰望天空，一次次练习这双自由的翅膀
-转身回头，一次次奔跑，我们去找回这双不再有裹脚布的脚
+新闻参考链接：
 
-文字版原文：[【香草诗词】你是我们今生的霞光，我们是你身后的云彩](https://gnews.org/zh-hans/612179/)
+[新闻先驱晨报](https://www.smh.com.au/national/nsw/central-coast-woman-s-death-after-covid-19-vaccine-being-investigated-20210415-p57jn5.html)（英文）
 
-音频处理/发稿：雪梨
+[BBC新闻](https://www.bbc.com/zhongwen/simp/science-56744097)（中文）
 
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+[大纪元](https://www.epochtimes.com/gb/21/4/16/n12885023.htm)（中文）
 
-**更多资讯，更多关注**
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
++1
