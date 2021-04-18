@@ -1,46 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2017年4月29日文贵推友过十四万感谢视频
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1110593/)
+## 美国《2021战略竞争法》第136节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1110759/)
 
-我的爆料将救下很多人，也会推动中国依法治国，我是有使命的人。你们无法回避十四万推友的关注，这十四万人很快会达到一百四十万，甚至一千四百万。我找到了真的生命的价值，就是正义，寻找属于我们草根、穷人、企业家的正义和尊严。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-*——*郭文贵
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/PRP.jpg)macdonaldlaurier.ca
+本节为**副标题D——抵制中国共产党的影响**中的第136节
+第134、135节略。
 
-**要点一：文贵先生的推特关注人数达到十四万**
+本节要点：
 
-这是文贵推特达到十四万推特网友关注的感谢视频，录完这个视频也才几个小时，关注量就达到十四万，这是个奇迹，衷心地感谢大家。
+中共国正在增加公共外交支出，包括影响力宣传和广告，中共国通过《中国之声》、《统一战线工作部》扩大其误导性叙述和宣传的范围，中共及其他恶意行为者，正在这些国家进行谣言制造、宣传和操纵媒体市场。，美国政府将在2022至2026财政年度拨款1.7亿美元，用于支持新闻自由、培训和保护记者的现行和新项目。
 
-**要点二：文贵先生谈员工被逼迫录制视频并传递出很多信息**
+欲了解更多的內容，请看本节全文（仅供参考）。
 
-我刚刚看了一些才录制的有关我的视频，特别是看了我公司高管吕涛、杨英等的所谓的强奸视频。我很清楚地知道她俩在说什么，尤其李涛的快说有智慧、有魄力、有情商，我哭笑不得。我三年都没有见过他们了，事实上他们在录像的时候我是知道的，因为有人给我透露如果他们按照要求说会酌情减轻罪行，如果不按照要求说会加重罪行还会殃及家人，他们没有办法只能配合。即便如此，李涛和杨英还是用了盘古的智慧，在视频中传递了很多信息给我。
+第136 节 支持独立媒体和打击制造谣言
 
-**要点三：文贵先生揭露视频背后的真相和中共整人的六招**
+（a）调查结果 – 国会得出以下结论：
+（1）中共国正在增加公共外交支出，包括影响力宣传、广告以及对中共国境外国家主办的媒体出版物的投资，这些措施包括，例如，在通信基础设施、平台和财产方面的外国直接投资超过1亿美元，以及将记者带到中共国接受培训。
+（2）中共国通过《中国之声》、《统一战线工作部》（UFWD）和《统一战线工作部》的许多分支机构和代理人，以多种语言为目标，在中共国有兴趣促进公众支持中共情绪的其他地区，不受限制地使用广播、电视和数字传播平台扩大其误导性叙述和宣传的范围。
+（3）即使在西方国家，中共国也在影响力运作上投入了大量资金，例如在澳大利亚为吸引有线电视观众而进行的5亿美元的广告宣传活动，以及通过《中国日报》副刊影响美国舆论的2千多万美元的宣传活动。
 
-关于我强奸女员工的视频太好笑了。最近很多我的员工跟我说有专案组找她们录这些东西，其中一条就是要说出你的真实姓名、任职时间、阐述和我的事情，然后威胁她们配合。这些事情对我的爆料没有任何影响，我既然决定走出这一步就不会在乎你们怎么诬陷。你们的所做所为反而提高了我的关注度。你们背后的老板们使劲出招儿，我在你们系统里那么多年很清楚你们的整人六部曲：一，绑架你的家人；二，断你的钱路，封资产、银行账号；三，断你的社会关系；四，毁你的名声；五，发红色通辑；六，暗杀。
+（b） 《美国全球媒体署》 – 《美国全球媒体署》（USAGM）及附属联邦和非联邦实体应采取以下行动来支持独立新闻业，这些行动针对中国共产党及其他恶意行为者，正在这些国家进行的谣言制造、宣传和操纵媒体市场：
+（1）《自由亚洲电台》（RFA）应为《自由亚洲电台》所有的中共国服务和其他附属语言广播服务扩大其国内覆盖范围和数字节目。
+（2）《美国全球媒体署》应增加对《自由亚洲电台》普通话、藏语、维吾尔语和粤语服务的资助。
+（3）《美国之音》应建立类似测谎仪的实时辟谣跟踪工具，用于俄语宣传和误导。
+（4）《美国全球媒体署》应扩大现有的培训和合作项目，促进新闻标准、调查性报道、网络安全和数字分析，以帮助揭露和打击中共的虚假宣传。
+（5）《开放技术基金》将继续并扩大工作，以支持工具和技术绕过中国共产党的审查和监督，无论是在中共国国内还是在中共国出口审查技术的国外，增加安全的点对点连接和隐私工具。
 
-**要点四：文贵先生揭露盗国贼是如何操控国家机器奴役人民的**
+（c）批准拨款 – 授权《美国全球媒体署》在2022至2026财政年度每年拨款1亿美元，用于支持当地媒体、建立独立媒体、打击中共国内外造谣、投资颠覆审查制度的技术，监督和评估这些项目。
 
-你们的所作所为代表着一个国家，代表着十四亿人民，这水平实在让人难以接受。对比美国的斯诺登，国家素质和正义邪恶立见高低。所以你们就是盗国贼在控制着国家机器，把中国的商人变成通奸商，把九千万党员变成了通奸党。至于政法委和纪委的领导谁敢说你们没有经常去妓院？！我太清楚你们做了什么，你们全身除了手指头硬哪儿都不硬。九千万党员绝大多数都是好人，否则这个国家也不可能到今天，悲剧在于你们欺骗了十四亿人民、欺骗了九千万党员。你们为了掩盖丑行和罪恶，搞了网络控制、意识形态控制、媒体控制，还进入到国际刑警组织就是为了所有人跑了我也把你抓回来，我也能把你弄死。
+（d） 支持当地媒体 – 国务卿应通过负责民主、人权和劳工事务的助理国务卿，与美国国际开发署署长协调，支持和培训记者掌握必要的调查技术，以确保与“一带一路”倡议有关的公众问责、中共国的监视和数字技术输出，以及其他直接或间接由共产党或中共国政府支持的影响行动。
 
-**要点五：文贵先生强调爆料的意义和速度**
+（e）互联网自由计划 – 民主、人权和劳工局将继续支持互联网自由计划。
 
-我非常不喜欢有些网友怂恿我快爆料，爆料本身的意义不是我哗众取宠，爆料的速度是根据我的计划和能达到惩罚贪官的目的来实施的。哗众取宠不仅害我自己，也害掉了真正的理想和推动依法治国的目的。我现在一切都还没有真正开始！
+（f） 批准拨款 – 授权在2022至2026财政年度拨款1.7亿美元，用于支持新闻自由、培训和保护记者的现行和新项目。
+（本节完）
 
-**要点六：文贵先生公布自己手上一部分相关视频的内容**
+感觉这些措施都是采纳了文贵先生以及新中国联邦的建议，美国政府应该将新中国联邦纳入相关体系和机构中，肯定会又准、又狠、又省钱。
 
-傅政华先生为了升职跟妻子离婚了，离婚以后他的前妻李晶在国际俱乐部旁边的写字楼做了很多影视制品，结交了许多影视界的朋友。北京有很多男妓院，某些领导没有生育能力，但不等于没有虐待别人的能力，你们玩弄的明星，没一个人是自愿的。我手上有很多你们丑陋的视频，大家都清楚，这是你们体制内多个官员留下的后手，是政治斗争的结果。这就是我为什么要推动依法治国，因为你们今天的所作所为大家都会去模仿，你们现在在全国人民面前说的假话大家都知道，千万别小看了十四亿人民的智商和智慧。我不希望这件事情牵扯很多无辜的人，但是你们要继续这么做，我也没有办法。
+原文链接：
 
-**要点七：文贵先生谈现代媒体战争**
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
 
-我特别希望你们多一点行动，因为你们的行动、你们的恐惧会留下痕迹，这些都是我未来在法庭上的证据。我听说北京刚刚开会决定要在美国想尽一切办法起诉我，太好了，我们在美国的法庭上见，用证据说话。这是一个让大家都能看到真相、了解事实、少一点危害第三方的方，我等待着你们对我的攻击。我发现直播上瘾，我爆料以后很多人，包括对手都在关注我，这是一种现代化的战争——媒体战。我的游艇叫LadyMay，我坐在游艇上闲逛、坐着私人飞机在空中飞来飞去我已经没有以前那种兴奋了，但是最近我突然把以前的感觉找回来了，特别是看到你们录的邪性视频、马建的视频带给我很多启发。如果按照你们那个逻辑，毛泽东、刘少奇、邓小平、习仲勋，哪个家人不是被这个组织、这个党、这些坏人给害得妻离子散、家破人亡，那他们都变成邪神了，相比而言，我这个邪性太简单了。你们让一些穿着囚服失去自由的人在公安、检察院、法院、中纪委的威胁下录视频，你们才是邪神！这些未来不仅会被运用在党内同胞和官员身上，也会发生在你们自己的子女身上。
+文字整理：
 
-**要点八：文贵先生找到了生命的价值****——****寻求真正的正义和尊严**
+SEC. 136. SUPPORTING INDEPENDENT MEDIA AND COUNTERING DISINFORMATION.
 
-我的爆料将救下很多人，也会推动中国依法治国，我是有使命的人。你们无法回避十四万推友的关注，这十四万人很快会达到一百四十万，甚至一千四百万。我找到了真的生命的价值，就是正义，寻找属于我们草根、穷人、企业家的正义和尊严。
+(a) FINDINGS. – Congress makes the following findings:
 
-视频链接：[https://www.youtube.com/watchv=i9Z97iaC7V8&feature=youtu.be](https://www.youtube.com/watch?v=i9Z97iaC7V8&amp;feature=youtu.be)
-（时长：17分钟）
+(1) China is increasing its spending on public diplomacy including influence campaigns, advertising, and investments into state-sponsored media publications outside of China. These include, for example, more than $10,000,000,000 in foreign direct investment in communications infrastructure, platforms, and properties, as well as bringing journalists to China for training programs.
 
-0
+(2) The PRC, through the Voice of China, the United Front Work Department, and UFWD’s many affiliates and proxies, has obtained unfettered access to radio, television, and digital dissemination platforms in numerous languages targeted at citizens in other regions where China has an interest in promoting public sentiment in support of the Chinese Communist Party and expanding the reach of its misleading narratives and propaganda.
+
+(3) Even in Western countries, China spends extensively on influence operations, such as a $500,000,000 advertising campaign to attract cable viewers in Australia and a more than $20,000,000 campaign to influence United States public opinion via the China Daily newspaper supplement.
+
+(b) THE UNITED STATES AGENCY FOR GLOBAL MEDIA. – The United States Agency for Global Media (USAGM) and affiliate Federal and non-Federal entities shall undertake the following actions to support independent journalism, countering disinformation, and breaking the firewall and combatting surveillance in countries where the Chinese Communist Party and other malign actors are promoting disinformation, propaganda, and manipulated media markets:
+
+(1) Radio Free Asia shall expand domestic coverage and digital programming for all RFA China services and other affiliate language broadcasting services.
+
+(2) USAGM shall increase funding for Radio Free Asia’s Mandarin, Tibetan, Uyghur, and Cantonese language services.
+
+(3) Voice of America shall establish a real-time disinformation tracking tool similar to Polygraph for Russian language propaganda and misinformation.
+
+(4) USAGM shall expand existing training and partnership programs that promote journalistic standards, investigative reporting, cybersecurity, and digital analytics to help expose and counter false CCP narratives.
+
+(5) The Open Technology Fund shall continue and expand work to support tools and technology to circumvent censorship and surveillance by the CCP, both inside China as well as abroad where China has exported censorship technology, and increase secure peer to peer connectivity and privacy tools. (c) AUTHORIZATION OF APPROPRIATIONS. – There is authorized to be appropriated, for each of fiscal years 2022 through 2026 for the United States Agency for Global Media, $100,000,000 for ongoing and new programs to support local media, build independent media, combat Chinese disinformation inside and outside of China, invest in technology to subvert censorship, and monitor and evaluate these programs.
+
+(d) SUPPORT FOR LOCAL MEDIA. – The Secretary of State, acting through the Assistant Secretary of State for Democracy, Human Rights, and Labor and in coordination with the Administrator of the United States Agency for International Development, shall support and train journalists on investigative techniques necessary to ensure public accountability related to the Belt and Road Initiative, the PRC’s surveillance and digital export of technology, and other influence operations abroad direct or directly supported by the Communist Party or the Chinese government.
+
+(e) INTERNET FREEDOM PROGRAMS. – The Bureau of Democracy, Human Rights, and Labor shall continue to support internet freedom programs.
+
+(f) AUTHORIZATION OF APPROPRIATIONS. – There is authorized to be appropriated, for each of fiscal years 2022 through 2026, $170,000,000 for ongoing and new programs in support of press freedom, training, and protection of journalists.
+
++2
