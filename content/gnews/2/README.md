@@ -1,44 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报 —— 疫苗篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1112937/)
+## 【战友心声】健身可以让皮肤变得更年轻
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1113111/)
 
-- 作者：wenwu
+**作者：纽约香草山健身部 周一**
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年4月18日电/西喜社——**
+很多健身的朋友在坚持健身一段时间后发现自己的皮肤会变得比以前更加紧致和光滑了。下面我们从几个方面来解释一下。
 
-若您想了解全文报导内容，请点击标题后链接
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片119.png)图片来源：网络
 
-**1. 《伊万卡·特朗普的疫苗接种引发粉丝反感》**
+1.  从人体新陈代谢的角度讲，健身会促进身体细胞的新陈代谢。正常的肌肤细胞更新过程为28天，在这个周期中，老废细胞会脱落，更新的细胞会让肌肤变得细滑。保持运动的人，肌肤细胞代谢也会处在良好状况，不但能帮助护肤品的吸收，肌肤干燥、暗沉等问题也会得到缓解。
 
-美国国会山4月15日电，伊万卡-特朗普在拜登总统就职后首次在社交媒体上宣布自己在弗罗里达州接种了冠状病毒疫苗。其粉丝对她的决定感到失望，也对疫苗不信任。
-（[https://thehill.com/changing-america/well-being/prevention-cures/548397-ivanka-trumps-vaccination-sparks-backlash-among](https://thehill.com/changing-america/well-being/prevention-cures/548397-ivanka-trumps-vaccination-sparks-backlash-among)）
+2. 从减压的角度讲，运动可以给身体减压。压力会让肌肤出现各种问题，敏感、色斑、痘痘等都和压力有关，运动时大脑会释放多巴胺，这种物质会让人感到愉悦从而达到释放压力的作用。而适量的运动则是为身体和肌肤减压的最佳途径。运动后更有助于睡眠，睡眠好了，皮肤自然也好了。
 
-2. 《印度卫生大使兼泰米尔语演员维维克在注射新冠病毒疫苗一天后去世》
+3. 运动会加速血液循环，令血液中的氧气及养分更有效地传送至皮肤细胞。饱满的细胞会使皮肤充满弹性和光泽。
 
-据印度大博弈网站4月17日电，分析印度大多数接种新冠病毒疫苗的死因，发现大多数死于心脏病发作和脑中风。著名的印度演员和泰米尔纳德邦创造公共卫生形象大使维维克（Vivekh），在接受疫苗后一天去世。（[https://greatgameindia.com/india-health-ambassador-vivek-dies-vaccine/](https://greatgameindia.com/india-health-ambassador-vivek-dies-vaccine/)[）](https://greatgameindia.com/india-health-ambassador-vivek-dies-vaccine/%EF%BC%89)
+总之运动运动有助于健康，身体健康人的气色就会变好，皮肤自然就会漂亮，所以把健身变成你的生活习惯吧。
 
-**3. 《斯坦福大学开始在婴儿和幼儿中测试辉瑞疫苗》**
+校对/发稿：飞虹
 
-美国双子城4月15日电，辉瑞疫苗将对美国的6月大婴儿到11岁的儿童进行人体疫苗实验。总共144名志愿者在父母协同下，参与此次斯坦福医疗保健公司的疫苗在幼童中的关键性研究。
-（[https://www.twincities.com/2021/04/15/stanford-testing-pfizer-vaccine-babies-young-children/amp/#click=https://t.co/Pn1ndQdIFM](https://www.twincities.com/2021/04/15/stanford-testing-pfizer-vaccine-babies-young-children/amp/#click=https://t.co/Pn1ndQdIFM)）
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2.jpg)
 
-**4. 《罗恩·德桑蒂斯说，拜登政府对强生疫苗的处理是“大错特错”》**
 
-据玩具矩阵4月18日消息，佛罗里达州州长罗恩·德桑蒂斯在4月16日表示，“已经接种了几个月的人仍然戴着两个口罩，这无疑是个问题，我们无法正视疫苗是有效的”他说。这个信息让人们对疫苗失去信心，并且没有研究机构把血栓症状与疫苗联系起来，不得不引起担心。
-（[https://toysmatrix.com/ron-desantis-says-biden-administrations-handling-of-jj-vaccine-huge-mistake/](https://toysmatrix.com/ron-desantis-says-biden-administrations-handling-of-jj-vaccine-huge-mistake/)）
 
-**5. 《研究报告：辉瑞，莫德纳疫苗与阿斯利康疫苗一样普遍存在血栓症状》**
+**更多资讯，更多关注**
 
-据美国市场观察4月15日电，牛津大学的一项研究发现，在接种辉瑞或摩德纳疫苗后，每100万人中就有4人发生脑静脉血栓，而接种阿斯利康疫苗的人，每100万人中就有5人发生脑静脉血栓。得到COVID-19的人患CVT的风险要比接种疫苗的人高得多，每100万患者中就有39人。出于对血栓症状的担忧，阿斯利康的疫苗在许多国家已经停止或限制使用。
-（[https://www.marketwatch.com/story/blood-clots-as-prevalent-with-pfizer-and-moderna-vaccine-as-with-astrazenecas-report-2021-04-15](https://www.marketwatch.com/story/blood-clots-as-prevalent-with-pfizer-and-moderna-vaccine-as-with-astrazenecas-report-2021-04-15)）
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-编辑：蚂蚁兄弟；校对：weiwei；发稿：信心的选择
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

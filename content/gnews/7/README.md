@@ -1,51 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104018（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1112743/)
+## 川普总统离开白宫后，CNN的观众流失过半
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1112978/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+- 翻译： JIHO
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01-7.jpg)
+**西班牙2021年4月18日电/西喜社——**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02-8.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/c144e603601cc739d9bc596f22871473.jpg)图片来源：6do.news
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03-7.jpg)
+根据福克斯新闻的报道，美国有线电视新闻网CNN，自从“就职日”以来，多个类别的收视率均下降了50％以上。自1月份以来，MSNBC评级也大幅下降。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-9.jpg)
+美国有线电视新闻网（CNN）在2021年的前三周平均拥有220万观众，但自拜登上任以来，平均只有100万观众，跌幅达到了惊人的54％。在25-54岁之间的主要广告人群中，收视率下降了60％。从12月28日到“就职日”，观看人数从统计的617,000名下降到只有244,000名。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05-9.jpg)
+CNN的“王牌们”，自由黄金时段主持人安德森·库珀（Anderson Cooper），克里斯·库莫（Chris Cuomo）和唐·柠檬（Don Lemon）也未能改变这一局势。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06-7.jpg)
+CNN在以往晚上8点到11点，平均收看人数为310万，从12月28日到“就职日”，只有140万人收看，跌幅高达55％。在同一时期，CNN的黄金时段节目也失去了63％的观众。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07-7.jpg)
+尽管一月份是一个新闻频发的“新闻月”（“国会骚乱”及“特朗普挑战2020年的选举结果”等），可CNN的表现比自由派MSNBC还差。拜登当政后，MSNBC的全天观众流失了34％，黄金时段则流失了30％，而Fox新闻则以个位数的下降保留住了大部分观众。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08-7.jpg)
+**评：媒体靠什么生存?不是观众的收视率吗？面对川普离任后才3个月，CNN就大幅度下降的收视率，体现美国民众对真相的渴望，随着选举舞弊事件被揭露，民众也不再接受CNN的谎言。以前的洗脑宣传时代已经回不去了，维真不破才是现在媒体生存的根本。这篇报告让人联想到中共国的官媒们，虽然现在是在防火墙和维稳的双管齐下下，如果防火墙被推倒，中国人能看到真相的时候，这些官媒会怎么样？祝愿CNN一路走好。**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09-7.jpg)
+素材: JIHO；编辑：蚂蚁兄弟；校对：weiwei；发稿：信心的选择
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-11.jpg)
+**新闻来源：**[福克斯新闻](https://www.foxnews.com/media/cnn-viewers-biden-took-office-staggering-60-percent-in-key-demo)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-12.jpg)
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-14.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-10.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-9.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-7.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
-
-0
++1

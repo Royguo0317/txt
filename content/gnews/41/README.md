@@ -1,62 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报(0418)-台湾篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1112062/)
+## 【灭共前线】墨尔本雅典娜农场在中共总领馆前抗议
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1112253/)
 
-- 作者：蚂蚁兄弟
+作者：翼族/文泓
+
+编辑：翼族
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-303.png)图片来源：GTV
+墨尔本（Melbourne）是位于澳大利亚维多利亚州的首府和最大城市，亦是澳大利亚人口第2大城市，被誉为“澳洲的文化首都”，这座世界级的宜居城市有着为数众多的华人移民，然而颇为遗憾的是新中国联邦的旗帜却从来没有在这块美丽的土地上高高飘扬过，一直到2021年4月18日的这一天，历史性的一刻，中共驻墨尔本使领馆的门前突然出现了新中国联邦人高举的标语，和一声声的怒吼声：
+
+CCP Lie , Australian Die；（中共撒谎，害死澳洲人）
+
+Take down the CCP！（消灭中共）
+
+Who made virus？CCP！（谁制造了病毒？中共！）
+
+Who released virus？CCP！（谁释放了病毒？中共！）
+
+Who is killing Australians？CCP！（谁杀死了澳洲人？中共！）
+
+四年前的这一天正巧是“419断播门”的前夜，郭文贵先生接受《美国之音》直播采访时爆出王岐山等盗国贼的惊天大料，被中共多次干扰，最后《美国之音》竟然中途掐断了直播。曾经传递人类文明之光的《美国之音》，居然沦落到和中共同穿一条裤子，这引起了全世界传媒界的一场轩然大波，同时也吸引了更多寻找真相人们的目光，正是从这一天起，全世界越来越多的人们开始关注郭先生和他引领的爆料革命，四年以来已经有越来越多的战友受到正义的感召，积极投身于这场人类最伟大的事业——灭共！
+
+2020年7月澳大利亚曾经计划在多地举行声势浩大的游行示威，但是由于中共释放生化病毒，遭受中共病毒肆虐的墨尔本数度封城，墨尔本727示威游行没有获批，战友们的愤怒已经憋了近一年时间。郭先生在近几日的直播中笑谈到“清明之后阳气上升”，墨尔本虽然地处南半球马上就要进入冬季，但是战友们却斗志昂扬，在4月18日集结并打响了正式线下活动的第一枪，十六位来自不同农场的战友，整齐划一地站在中共驻墨尔本使领馆的门前举行抗议示威，他们分别是：
+
+- 来自雅典娜农场的猫本小哥、小黑黑、文泓、精灵蓝、我行我素等战友；
+- 来自新西兰农场的GP文报、文庚、毛毛虫、女版007、天池、James等战友；
+- 来自澳喜农场的亿海扬帆等战友（待核实）。
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+中共驻墨尔本总领馆地处富人区图拉克（Toorak），图拉克路是一条交通干道，示威过程中有大量的行驶车辆，战友们明显感受到了澳洲人民对我们的支持：路过的小车司机们不停地鸣笛两声表示对我们的声援；有些司机对我们竖起了大拇指；有些司机减慢了车速，战友们将宣传片举得更高，让途经此地的人们看得更清晰；甚至路过的警察也给我们竖起了大拇指；而中共使领馆的大门却全程紧闭无人露头。
 
-**西班牙2021年4月18日电/西喜社——**
+今天墨尔本前线勇士们打响的示威活动第一枪，只是一次小小的预演，也是对中共一次小小的警示，在接下来的日子里墨尔本将会迎来新中国联邦人一波又一波的抗议示威活动。正如雅典娜农场Giselle在[《寄语喜马拉雅澳洲雅典娜农场各位战友》](https://gnews.org/zh-hans/406385/)一文中所写：各位亲爱的战友，其实，我们每一位爆料革命战友的心里，都住着一位雅典娜，在激励我们、引导我们，去抗争，去战斗，去行动！雅典娜是正义、英勇的化身，雅典娜代表着智慧与战斗……就像郭先生曾经说过的那样，我们每一位战友，都有可能成为传递雅典娜希望的那个人。
 
-您若想了解新闻全文报导内容，请点击内容摘要后链接
+亲爱的战友们，让我们行动起来，加入我们的队伍，因为消灭中共是正义的需要！
 
-**1. 菅义伟与拜登承诺应对中国挑战并直视对台立场**
+（文章内容仅代表作者观点）
 
-日本时报华盛顿4月17日电，美国总统拜登和首相菅义伟周五同意进一步开展跨地区安全、技术等领域的合作，承诺建立一个能直面中国挑战的联盟。菅义伟在与拜登的首次面谈中，两人还肯定了台湾海峡和平与稳定的重要性，峰会结束后发表的联合声明也提到了他们的观点，这可以看作是领导人层面罕见地公开表达对台湾局势的关切。
-
-（[https://www.japantimes.co.jp/news/2021/04/17/national/politics-diplomacy/suga-biden-us-japan-summit-2/](https://www.japantimes.co.jp/news/2021/04/17/national/politics-diplomacy/suga-biden-us-japan-summit-2/)）
-
-**2. 中国回击日美点名台湾的声明**
-
-日经亚洲东京4月17日消息，在日本和美国领导人五十多年来首次领导人峰会后发表的联合声明中提到台湾，还强调了两个盟友对香港和新疆人权问题的关注。声明发表后的几个小时，中共对此进行了反击，中共发言人称对“领导人联合声明”的相关评论表示坚决反对。
-
-（[https://asia.nikkei.com/Politics/International-relations/Biden-s-Asia-policy/China-hits-back-at-Japan-US-statement-that-names-Taiwan](https://asia.nikkei.com/Politics/International-relations/Biden-s-Asia-policy/China-hits-back-at-Japan-US-statement-that-names-Taiwan)）
-
-**3. 谈到台湾问题时，手套都被摘掉**
-
-澳大利亚金融评论4月16日消息，自华盛顿和北京陷入危险的军事对峙以来，已经快20年了，随着台湾问题的紧张局势升级，有人担心这将预示着新冷战的开始。澳大利亚人应该对台湾问题感到担忧，新的大国冲突威胁正在迅速上升，堪培拉的规划者应该考虑到未来不可想象的事情。
-
-([https://www.afr.com/world/asia/the-gloves-are-off-when-it-comes-to-taiwan-20210415-p57jjw](https://www.afr.com/world/asia/the-gloves-are-off-when-it-comes-to-taiwan-20210415-p57jjw))
-
-**4.  中国在台湾附近的演习对准美国**
-
-台北时报4月18日消息，中共国过去几周加强侵入台湾防空识别区和航母演习的意图，是为了“恐吓和胁迫”华盛顿，要求其退让和退缩。中共国正在利用美国为其行动辩护。
-
-（[https://www.taipeitimes.com/News/taiwan/archives/2021/04/18/2003755905](https://www.taipeitimes.com/News/taiwan/archives/2021/04/18/2003755905)）
-
-**5. 拜登代表团承诺美方支持台湾自卫权**
-
-外交报4月17日消息，由前参议员克里斯-多德率领的非官方代表团完成了对台湾为期三天的访问，以示对拜登政府的支持。
-
-（[https://thediplomat.com/2021/04/biden-delegation-pledges-us-support-for-taiwan-self-defense/](https://thediplomat.com/2021/04/biden-delegation-pledges-us-support-for-taiwan-self-defense/)）
-
-**6. 北京提高空中对抗台湾力量的热度上升**
-
-飞行全球航天航空新闻网4月16日消息， 中国对台湾防空识别区的定期入侵体现了共产党领导人的失望，所以启用新的空中军事力量抗衡模式以示其威。
-
-（[https://www.flightglobal.com/defence/beijing-air-power-turns-up-the-heat-on-taiwan/143327.article](https://www.flightglobal.com/defence/beijing-air-power-turns-up-the-heat-on-taiwan/143327.article)）
-
-**7. 美国可采取更多涉台防务行动**
-
-聚焦台湾，CNA中评社台北4月17日电 继周五在华盛顿举行美日领导人峰会后，台湾学者预测，在美国总统拜登执政期间，可以预期美国在防卫台湾方面将会有更多行动。
-
-（[https://focustaiwan.tw/politics/202104170012](https://focustaiwan.tw/politics/202104170012)）
-
-编辑：meiping；校对：阿伯塔；发稿：神奇四侠
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
-
-+1
++2

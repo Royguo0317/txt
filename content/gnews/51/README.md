@@ -1,45 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Gnews文章如何撰写 我的一些想法和建议
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1111947/)
+## 西喜时事新闻简报(0418)-台湾篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1112062/)
 
-撰稿: 张文谦
-![]()![](https://gnews.org/wp-content/uploads/2021/04/20200418_Gnews-W.jpg)图片来自网络
-G系列是文贵先生给真心支持爆料革命战友们的，Gnews也一样，所以七哥鼓励战友们多写Gnews文章，传播真相，为消灭共产党日拱一卒，添加最后一根稻草。
+- 作者：蚂蚁兄弟
 
-写Gnews文章好处多多：
 
-一、揭露中共的假丑恶，可以灭共；
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-二、可以充实Gnews平台揭露真相的信息量，可以让墙内14亿老百姓在防火墙倒后有可以找到真相地方；
+**西班牙2021年4月18日电/西喜社——**
 
-三、可以沉淀Gnews平台的数据，平台的数据沉淀可以给Gnews平台增值，如同GTV。
+您若想了解新闻全文报导内容，请点击内容摘要后链接
 
-四、Gnews也是七哥和爆料革命为战友们提供就业机会，未来打赏功能开通后，好文章将得到打赏，那时战友们写Gnews文章就有收入。
+**1. 菅义伟与拜登承诺应对中国挑战并直视对台立场**
 
-笔者曾经也在思考为什么自己可以写出Gnews文章，最后得到的结论就是触景生情。每每笔者看见中共在电视或网络媒体上所宣传假丑恶的新闻，洗脑的新闻，以及种种现实生活中发生中共毒害、迫害、残害老百姓等等不公事情，笔者心中马上会有自己的感想，突然就很想把心里最深处，最真实的话讲出来。可是在墙国并没有言论自由，也找不到人交流，只能把它写下来，就这样成了Gnews文章。
+日本时报华盛顿4月17日电，美国总统拜登和首相菅义伟周五同意进一步开展跨地区安全、技术等领域的合作，承诺建立一个能直面中国挑战的联盟。菅义伟在与拜登的首次面谈中，两人还肯定了台湾海峡和平与稳定的重要性，峰会结束后发表的联合声明也提到了他们的观点，这可以看作是领导人层面罕见地公开表达对台湾局势的关切。
 
-那Gnews文章到底要怎么写呢？需要注意的是，Gnews文章并没有要求长篇大论，也不需要华丽的词语，但一定要真实、精简，方便编辑们快速审稿，也方便读者快速阅读你的文章。以下是笔者个人的一些建议：
+（[https://www.japantimes.co.jp/news/2021/04/17/national/politics-diplomacy/suga-biden-us-japan-summit-2/](https://www.japantimes.co.jp/news/2021/04/17/national/politics-diplomacy/suga-biden-us-japan-summit-2/)）
 
-一、可以记录你日常生活中所见所闻，要和灭共有关，哪怕就像写日记一样也可以。但记得保护好个人隐私，如地点位置，具体事件不要描述得太精准，不要暴露自己的身份。
+**2. 中国回击日美点名台湾的声明**
 
-二、如果你看到一些中共的假丑恶的新闻，你又知道真相，可以把真相写出来揭露这些假丑恶新闻。
+日经亚洲东京4月17日消息，在日本和美国领导人五十多年来首次领导人峰会后发表的联合声明中提到台湾，还强调了两个盟友对香港和新疆人权问题的关注。声明发表后的几个小时，中共对此进行了反击，中共发言人称对“领导人联合声明”的相关评论表示坚决反对。
 
-三、如果你看到一则新闻，对这则新闻有想法，有见解，灵感一来，您可以马上把新闻重要部分截取下来，然后写一段自己的看法、见解或评论。
+（[https://asia.nikkei.com/Politics/International-relations/Biden-s-Asia-policy/China-hits-back-at-Japan-US-statement-that-names-Taiwan](https://asia.nikkei.com/Politics/International-relations/Biden-s-Asia-policy/China-hits-back-at-Japan-US-statement-that-names-Taiwan)）
 
-四、很多战友不会配图，第一可以在农场找文宣图片；第二可以到Google找一些相关主题的免费图片；第三每个农场都有会处理图片的义工，可以找他们帮忙做图。最后还可以到GTV，推特等媒体上找是否有相关主题的图片。
+**3. 谈到台湾问题时，手套都被摘掉**
 
-五、写好了Gnews文章，自己先再过两三遍，看看是否有累赘的词句，是否有错别字，然后再去投稿，战友自身多做点工作，就可以减少审稿义工的工作。如果不是大问题，审稿的义工都会帮忙做小修正后发稿。
+澳大利亚金融评论4月16日消息，自华盛顿和北京陷入危险的军事对峙以来，已经快20年了，随着台湾问题的紧张局势升级，有人担心这将预示着新冷战的开始。澳大利亚人应该对台湾问题感到担忧，新的大国冲突威胁正在迅速上升，堪培拉的规划者应该考虑到未来不可想象的事情。
 
-看完这篇Gnews文章，您是否有要开始写Gnews文章的冲动？别再犹豫，马上行动起来吧，或许未来重重的打赏正在等待着你哦！
+([https://www.afr.com/world/asia/the-gloves-are-off-when-it-comes-to-taiwan-20210415-p57jjw](https://www.afr.com/world/asia/the-gloves-are-off-when-it-comes-to-taiwan-20210415-p57jjw))
 
-（本文纯属个人观点）
+**4.  中国在台湾附近的演习对准美国**
 
-*审稿：Gradient Boost*   *编辑：**8 Mile*
+台北时报4月18日消息，中共国过去几周加强侵入台湾防空识别区和航母演习的意图，是为了“恐吓和胁迫”华盛顿，要求其退让和退缩。中共国正在利用美国为其行动辩护。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+（[https://www.taipeitimes.com/News/taiwan/archives/2021/04/18/2003755905](https://www.taipeitimes.com/News/taiwan/archives/2021/04/18/2003755905)）
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
-+4
+**5. 拜登代表团承诺美方支持台湾自卫权**
+
+外交报4月17日消息，由前参议员克里斯-多德率领的非官方代表团完成了对台湾为期三天的访问，以示对拜登政府的支持。
+
+（[https://thediplomat.com/2021/04/biden-delegation-pledges-us-support-for-taiwan-self-defense/](https://thediplomat.com/2021/04/biden-delegation-pledges-us-support-for-taiwan-self-defense/)）
+
+**6. 北京提高空中对抗台湾力量的热度上升**
+
+飞行全球航天航空新闻网4月16日消息， 中国对台湾防空识别区的定期入侵体现了共产党领导人的失望，所以启用新的空中军事力量抗衡模式以示其威。
+
+（[https://www.flightglobal.com/defence/beijing-air-power-turns-up-the-heat-on-taiwan/143327.article](https://www.flightglobal.com/defence/beijing-air-power-turns-up-the-heat-on-taiwan/143327.article)）
+
+**7. 美国可采取更多涉台防务行动**
+
+聚焦台湾，CNA中评社台北4月17日电 继周五在华盛顿举行美日领导人峰会后，台湾学者预测，在美国总统拜登执政期间，可以预期美国在防卫台湾方面将会有更多行动。
+
+（[https://focustaiwan.tw/politics/202104170012](https://focustaiwan.tw/politics/202104170012)）
+
+编辑：meiping；校对：阿伯塔；发稿：神奇四侠
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+
++1

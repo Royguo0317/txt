@@ -1,11 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国必须应对中共在美国的腐败和影响来保护自己
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1112366/)
+## 【每日快讯】04/17/2021：中共威胁日本离台湾问题远一点日本选择了跟美国站在一起
+` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1112557/)
 
-4/17/2021 乔什·罗金：中共对美国的安全、公共健康、经济繁荣和自由构成了威胁。我们首先需要保护自己。美国必须应对中共在美国境内实施的腐败和影响。这将达成全美共识，并为我们的国家找到团结一致和前进的道路。
+**制作：Cantonese工作室**
 
-By： 【秘密翻译组 G-Translators】
 
+
+**播报：【安妮】资料整：【黄玫瑰】【An】【Ruby】海报制作：【侬民】剪辑：【Ken】【向阳6768】**
+
+摘要：
+
+1
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210418-__2.jpg)
+2
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210418-__3.jpg)
+3
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210418-__4.jpg)
+4
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210418-__5.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/8.jpg)
 0
