@@ -1,31 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亲川普议员成立“美国优先核心小组”推保守政策
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1110142/)
+## 【有声读物】你是我们今生的霞光，我们是你身后的云彩
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1111195/)
 
-俄罗斯莫斯科喀秋莎农场  爱真理
+作者：香草山写作组   木白
+配音：香草山录音组 Swr拥抱太阳
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/AFC.jpg)msnbc.com
-据《Just the News》4月17日报道，一群亲川普的国会议员已经形成了他们所谓的“美国优先”政策法案，他们成立了“美国优先核心小组”（The America First Caucus），将解决从大科技公司到移民到选举制度改革等国内问题。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-“美国优先核心小组“(AFC)的就职政策平台表示，AFC的“存在为促进对美国国家长期有利的国会政策”，“任何政策建议的目标都是为美国人服务的。”
 
-该组织表示，它将挑战大科技公司在现代美国社会中的统治地位，其中包括对230法案的改革，该改革的目标是使互联网平台免除对其服务器上发布的内容的审查责任。
 
-该组织还表示支持“全国性的系统性选举改革”，“长期以来被认为容易遭受欺诈的邮寄投票已实现正常化”，他们将“努力结束邮寄投票，实施国民投票制”。选民身份证和对2020年大选进行的大规模选民欺诈的实质性调查。”
 
-核心小组还强调了中国共产党的独特威胁，指出美国“必须在军事上和经济上做好与竞争对手竞争的准备”。
 
-这个核心小组坚信，美国的决策需要回到“美国优先”原则，恢复我们国家领导人的长期眼光，并在更大程度上为美国人民选出的领导人灌输内在的服务意识。
 
-新核心小组的成员中有马乔里·泰勒·格林（Marjorie Taylor Greene），她一直是川普的坚定支持者，直率的保守派，来自佐治亚州的议员。
 
-从这里看出，美国的保守派坚持推“美国优先”政策方案。
+如同我爱过的和憎恨的声音
+如同这场猝不及防的雪
+如同沸腾血液外的寒冷
+当它们流动，时刻提醒着我活着的意义
+会飞的鸟和不会飞的，脚踏同一片大地
+仰望天空，一次次练习这双自由的翅膀
+转身回头，一次次奔跑，我们去找回这双不再有裹脚布的脚
 
-原文链接：
+文字版原文：[【香草诗词】你是我们今生的霞光，我们是你身后的云彩](https://gnews.org/zh-hans/612179/)
 
-[https://justthenews.com/government/congress/america-first-caucus-targets-big-tech-mail-voting-chinese-communist-party](https://justthenews.com/government/congress/america-first-caucus-targets-big-tech-mail-voting-chinese-communist-party)
+音频处理/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

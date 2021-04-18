@@ -1,118 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日新闻收集【4/16】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1110409/)
+## 【世事解评】中国人是普世价值的捍卫者
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1111462/)
 
-**西班牙巴塞罗那喜悦农场 ** wenwu
+作者：纽约香草山写作组 Jenny
 
-「以钱灭共」 推文两则
-
-
-
-> 【学习新单词：SOP】
-> Standard Operating Procedure 标准操作程序，是帮助职工进行业务操作时为了实现高效率，质量和绩效的统一化，减少沟通不畅，和遵守行业法规而制定的一套程序。
-> 
-> 没有任何人生来就是全才。强大的学习能力和锲而不舍的钻研精神，才是郭先生创造了一个接一个奇迹的法宝！ [https://t.co/D5UwQF5rAR](https://t.co/D5UwQF5rAR) [pic.twitter.com/IgbNx7orbM](https://t.co/IgbNx7orbM)
-> — 瞿水台 Qu Shuitai (@QuShuitai) [April 16, 2021](https://twitter.com/QuShuitai/status/1382879386072973315?ref_src=twsrc%5Etfw)
-
-
-1. **[瞿水台推特](https://twitter.com/QuShuitai/status/1372914895247794181)**：
-*【学习新单词：UBO】 UBO: Ultimate Beneficial Owner 最终实益拥有人，是指一个机构发起交易时作为最终受益人的个人或实体。 法人的UBO是指以下人员：
-持有法人实体至少25％的资本权益；
-在股东大会上拥有至少25％的投票权；
-至少获得该法人股本的25％作为受益人 在BVI新建的GTV的UBO们责任重大；
-【学习新单词：SOP】 Standard Operating Procedure 标准操作程序，是帮助职工进行业务操作时为了实现高效率，质量和绩效的统一化，减少沟通不畅，和遵守行业法规而制定的一套程序。 没有任何人生来就是全才。强大的学习能力和锲而不舍的钻研精神，才是郭先生创造了一个接一个奇迹的法宝*
-
-
-> G系列为草根战友提供了一个拥有跟刚刚上市的Coinbase同样的初创和共同致富的机会和平台！
-> 只有长期投资才有最大回报！
-> 长期跟随爆料革命、投资G系列的战友才能实现灭共和致富两不误！💪 [pic.twitter.com/soIJ4TxT9I](https://t.co/soIJ4TxT9I)
-> — 瞿水台 Qu Shuitai (@QuShuitai) [April 16, 2021](https://twitter.com/QuShuitai/status/1383049210635902976?ref_src=twsrc%5Etfw)
-
-
-2. **[瞿水台推特](https://twitter.com/QuShuitai/status/1383049210635902976?s=20)**：
-*G系列为草根战友提供了一个拥有跟刚刚上市的Coinbase同样的初创和共同致富的机会和平台！ 只有长期投资才有最大回报！ 长期跟随爆料革命、投资G系列的战友才能实现灭共和致富两不误*
-「以毒灭共」 8则推文
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
 
 
-> “Cerebral venous thrombosis: a retrospective cohort study of 513,284 confirmed COVID-19 cases and a comparison with 489,871 people receiving a COVID-19 mRNA vaccine”
-> – University of Oxford
-> Oxford Study:[https://t.co/WKM1aZuNbS](https://t.co/WKM1aZuNbS)
-> News: [https://t.co/MlPOUdLBEF](https://t.co/MlPOUdLBEF) [pic.twitter.com/XepKdY6ts1](https://t.co/XepKdY6ts1)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 17, 2021](https://twitter.com/DrLiMengYAN1/status/1383233158275997697?ref_src=twsrc%5Etfw)
+2021年4月16日，美日两国首脑会谈后，正式达成了维护印太地区和平与稳定的共识，承诺将携手应对来自中国的挑战，实现国际关系的稳定，维护普世价值。就此，全世界联合反共，亚太地区在美日主导下，联合东盟、澳大利亚、印度等各国抵制中国的亚太新秩序正式形成。
+
+菅仪伟首相说的极是，中共与世界之战是价值观之战。中共反对普世价值由来已久，2017年6月9日，中国共产党新闻网登载一篇题为《决不允许用西方“普世价值”消解社会主义核心价值观》的文章。那么”普世价值“到底是什么呢，让中共这样痛恨和惧怕？
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/普世价值.jpg)
+
+普世（适）价值观，顾名思义，就是普遍适用的价值观。它超越民族、种族、国界和信仰，是全人类共同拥有的价值观，是衡量是非善恶的最低尺度，是人类道德的共同底线。比如：生存的权利、免于恐惧的权利、生育的权利、知情的权利、免于匮乏的权利、思想的自由、表达的自由这些基本人权。这些普世价值是放之四海而皆准的真理。
+
+中共提出的社会主义核心价值观又是什么呢？“倡导富强、民主、文明、和谐；倡导自由、平等、公正、法治；倡导爱国、敬业、诚信、友善；积极培育和践行社会主义核心价值观”。
+
+听上去，与普世价值并无冲突，实质是口蜜腹剑的骗人把戏，是皇帝的新衣，他们一个字也做不到，一个标点符号都不值得相信。
+
+试问，中国有自由、平等、公正吗？如果中共还有一点点人人平等的意识，就不可能把农民工叫“低端人口”。如果中国是一个富强、民主、文明、和谐的国家，中共就不需要拿天文数字的民脂民膏作维稳经费。如果人民都爱国、敬业，就不会用脚投票，仓皇逃离这片祖辈耕耘的土地。因为在这片土地上，自由、民主、平等是奢侈品，连最基本的生存权都是被共产党所赐予的。
+
+中共的价值观就是顺我者昌，逆我者亡。人民都是屁民、贱民、草民，都是被割的韭菜，待宰的羔羊。中共让你三更死，你绝活不过五更。
+
+自从中共的口袋里多了几个钱，仿佛一个发了横财的地痞无赖，满世界横行霸道，撒泼打滚，制造谎言。现在又制造病毒，祸害全世界，剥夺了全世界人民的生命权、自由呼吸权、自由行动权…..
+
+文贵先生早在2017年就警告世界中共邪恶的“灭白计划”“三F计划”“蓝金黄计划”。2019年文贵先生再一次警告全世界中共灭绝人类的生物武器战略。2020年1月19日路德在路德社向全世界大声疾呼：病毒大爆发！
+
+人类不该绝啊，中国人民有幸啊！文贵先生、路德先生、闫丽梦博士和新中国联邦的横空出世，挽狂澜于既倒，扶大厦之将倾。如果没有这些英勇无畏的中国人揭露真相，大声疾呼，世界现在是什么样？中共犯下了五千年来最恐怖的滔天大罪，中国十四亿苦难的人民会不会作为中共的殉葬品？中国人会不会被全世界追杀？真是细思极恐，惊出一身冷汗！
+
+人类岂能与魔鬼为伍！一个家庭和谐的基础是拥有共同的价值观，国家和世界亦然。当中共的画皮被文贵先生所领导的新中国联邦揭开后，世人认出了这个魔鬼。现在是中国人和世界共同抉择的时刻，与魔鬼共舞？还是维护普世价值，铲除中共恶魔，还世界以和平安宁？
+
+校对/发稿：飞虹
 
 
-1. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1383233158275997697?s=20)**：
-*“脑静脉血栓形成：一个医学纵向队列研究——**[513,284例确诊的新冠病毒病例](https://osf.io/a9jdq/)**与**[489,871人接受新冠病毒mRNA疫苗](https://www.marketwatch.com/story/blood-clots-as-prevalent-with-pfizer-and-moderna-vaccine-as-with-astrazenecas-report-2021-04-15)**的比较”*
 
+**更多资讯，更多关注**
 
-> 疫苗接种的可能反应，副作用和机理很多现在才逐渐研究和报道出来，可是几亿剂已经打完了。这是疫苗发明以来的第一次，但是很可能后续灾难最大的一次！ [https://t.co/Uw1TVeFfLb](https://t.co/Uw1TVeFfLb)
-> — 墨博士 (@4RxMbPD3YbeN1fS) [April 17, 2021](https://twitter.com/4RxMbPD3YbeN1fS/status/1383233066005516291?ref_src=twsrc%5Etfw)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-2. **[墨博士推特](https://twitter.com/4RxMbPD3YbeN1fS/status/1383233066005516291?s=20)**：
-*疫苗接种的可能反应，副作用和机理很多现在才逐渐研究和报道出来，可是几亿剂已经打完了。这是疫苗发明以来的第一次，但是很可能后续灾难最大的一次。附闫博士推特*
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-> 蓬佩奥接受福克斯采访说，中共的病毒实验室非常危险，如果拜登不行动，大流行将再次发生
-> 玛丽亚肯定地说：新冠病毒来源于武汉实验室
-> 
-> 就拜登与菅义伟会面，他认为美国要与四国联盟在军事上、经贸上共同对抗中共，在供应链上减少对中共依赖，否则中共会进攻台湾。他强调，台湾从来不是中国大陆的一部分 [pic.twitter.com/ltLIVSQ9KK](https://t.co/ltLIVSQ9KK)
-> — 嘻禧僖囍 (@xi\_GLB) [April 16, 2021](https://twitter.com/xi_GLB/status/1383199373064998913?ref_src=twsrc%5Etfw)
-
-
-3. **[喜站推特](https://twitter.com/xi_GLB/status/1383199373064998913?s=20)**：
-*蓬佩奥接受福克斯采访说，中共的病毒实验室非常危险，如果拜登不行动，大流行将再次发生 玛丽亚肯定地说：新冠病毒来源于武汉实验室 就拜登与菅义伟会面，他认为美国要与四国联盟在军事上、经贸上共同对抗中共，在供应链上减少对中共依赖，否则中共会进攻台湾。他强调，台湾从来不是中国大陆的一部分*
-
-
-> 议员的信中很多细节，显示他们对于ecohealth多年来干的事非常清楚，包括ecohealth官方多次否认病毒来自实验室，一直坚持称病毒来自自然，现在需要打杂客出来好好解释解释了，你完球蛋了😎 [https://t.co/Y7f3HnwrKO](https://t.co/Y7f3HnwrKO) [pic.twitter.com/eZb0eu4kRT](https://t.co/eZb0eu4kRT)
-> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [April 16, 2021](https://twitter.com/jsdfposjpqyuee1/status/1383186103662829570?ref_src=twsrc%5Etfw)
-
-
-4. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1383186103662829570?s=20)**：
-*（上）国会Cathy McMorris Rodgers等三名议员联名致信打杂客，向打杂客提出三十多项质询，要求做出详细解答。质询内容包括打杂客的ecohealth和武汉病毒研究所及石正丽的经济往来，更重磅的是直接指向RaTG13病毒的相关信息。打杂客摊上大事了
-（下）议员的信中很多细节，显示他们对于ecohealth多年来干的事非常清楚，包括ecohealth官方多次否认病毒来自实验室，一直坚持称病毒来自自然，现在需要打杂客出来好好解释解释了，你完球蛋了*
-
-
-> "Beijing Institute of Biotechnology", "Beijing Institute of Microbiology and Epidemiology"?
-> Most published papers refrain to mention their military affiliations: Academy of Military Medical Sciences (AMMS) of PLA
-> Directors of them, Wei Chen and Wuchun Cao are PLA generals. [pic.twitter.com/xquqThb2EQ](https://t.co/xquqThb2EQ)
-> — 德意志之鹰 (@dezying) [April 16, 2021](https://twitter.com/dezying/status/1383058725628444672?ref_src=twsrc%5Etfw)
-
-
-5. **[德意志之鹰推特](https://twitter.com/dezying/status/1383058725628444672?s=20)**：
-*“北京生物技术研究所”、“北京微生物与流行病学研究所“？
-大多数已发表的论文没有提及其军事隶属关系：解放军军事医学科学院（AMMS）他们的导演，陈薇和曹武春是解放军将领*
-
-
-> Be back! 
-> Truth won’t be buried! [https://t.co/RxkVpGkC9E](https://t.co/RxkVpGkC9E)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 16, 2021](https://twitter.com/DrLiMengYAN1/status/1383055183106674688?ref_src=twsrc%5Etfw)
-
-
-6.**[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1383055183106674688?s=20)**：
-*（胡）闫博士的推特账户被🈲️了12个小时，因为她讲了一个故事，为帮助人们了解HCQ的工作原理，更引用了博士克雷格·韦克斯博士的推特。推特迫使闫博士要删除这些推文内容，否则她将无法收回她的帐户
-（闫）已经回来！真相不会被埋葬*
-
-
-> 帮我打倒中国共产党。 请向我发送有关中国病毒研究的信息[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/tIll8UdRpg](https://t.co/tIll8UdRpg)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 16, 2021](https://twitter.com/LawrenceSellin/status/1383018664966885380?ref_src=twsrc%5Etfw)
-
-
-7. **[塞林博士推特](https://twitter.com/LawrenceSellin/status/1383018664966885380?s=20)**：
-*帮我打倒中国共产党。 请向我发送有关中国病毒研究的信息
-附所需关键细节的图片*
-
-
-> 4/14/2021美参议院情报委员听证会：两党已达成共识，来自中共的威胁位列世界五大流氓集团之首
-> 参议院本·萨斯演讲：中共国对美国的所有威胁都来自于习近平和他领导的中共，但前提是要分清中共和中国人民和海外华人的区别，并要不断向美国人民宣讲这一概念…（1/2） [pic.twitter.com/iZ3H29Wy9P](https://t.co/iZ3H29Wy9P)
-> — 秘密翻译组 (@G\_Translators6) [April 15, 2021](https://twitter.com/G_Translators6/status/1382840020554428422?ref_src=twsrc%5Etfw)
-
-
-8. **[秘密翻译组推特](https://twitter.com/G_Translators6/status/1382840020554428422?s=20)**：
-*4/14/2021美参议院情报委员听证会：两党已达成共识，来自中共的威胁位列世界五大流氓集团之首 参议院本·萨斯演讲：中共国对美国的所有威胁都来自于习近平和他领导的中共，但前提是要分清中共和中国人民和海外华人的区别，并要不断向美国人民宣讲这一概念*
-
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 +1
