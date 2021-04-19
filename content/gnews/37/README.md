@@ -1,15 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月15日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1115120/)
+## 新中国联邦人去除中共心魔的必要性
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1115136/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+作者：道行天下
 
-For Spring Summer 2021, GIFashion continues to explore forms and destructed fabrics with its growing design team from all around the world. The new collection combines the dynamic Los Angeles street wear and refined GIFashion soul with a modern and casual twist. While black and white define the strength of the collection, grey brings this year’s message in calmness. Statement logos and messages give voice to the designs. The collection takes the casual street wear to a brave, elevated, identified, strong synthesis. The dynamic logo and bold messages on each design describe the idea that normal is not coming back anymore. This is a “goodbye forever” to everything we know and a moment to welcome the new chapter of our lives, a celebration for the feeling of hope, transformation and freedom. The progression of life. G|Fashion2021年春夏季时尚单品将继续与来自世界各地顶级的设计团队合作，共同探索，力争颠覆现有的时尚形式和面料。G|Fashion新系列单品将放荡不羁的洛杉矶街头服饰与炙热的GIFashion灵魂相结合，并融入了现代休闲的元素。采用黑色和白色作为该系列的力量定义，并采用灰色来传递今年的旋律-平静（祥和）。鲜明的标识和传递出的信息为设计谱写了新的乐章。G|Fashion2021年新系列将街头休闲服饰演变成了一个展现果敢，提升，认同及力量的结合体。每一个设计上的动态标志和大胆的信息都在传递着“常态已不复存在”的理念。这是一个 “Goodbye Forever “我们所知道的一切的时刻，也是迎接我们生活新篇章的时刻，是对希望、改变和自由的庆祝。这是生命的延展
+![]()![](https://gnews.org/wp-content/uploads/2021/04/041910-2.jpg)
 
-[【2021年4月15日】文贵先生盖特原文](https://gtv.org/getter/6078fa6808b2ab70c8226217)
+中共最大的邪恶就是通过洗脑对人心的控制，用他的魔性思想与理论把人性的恶尽量的释放岀来，影响其行为，控制其一生。
 
-**喜联盟Gnews编辑部**
+中共之恶，不仅仅是个人之恶，更是整个思想体系的邪恶，他的核心就是为了自己权力的控制，扬恶惩善，让假、丑、恶发挥到极致。在他们的治囯理念中，只有让人民愚蠢才能愚忠才能爱他专制独裁的国，只有打击不同意见，独立思考的人才能让他们更安全，无人反对，有利于他的长久统治。让人民贫穷，只为生计而奔波，实现他们“长治久安”之术。红色江山代代传，如何让十四亿奴隶永久为他们创造财富才是他们真正关心的问题。
 
-0
+相信只要跟随爆料革命的真战友，对中共的邪恶是有一个充份的了解和认识，但是我们必须要明白一个事实就是中共灭亡并不等于中共邪恶思想的灭亡。“毛病不改，积恶成习”，毛太神死了，习大神又来了，最根本的原因毛的邪恶思想并不会随着毛身体死亡而消亡。我们必须明白一个事实，灭共不仅仅是要推翻中共的政权，更重要的是要彻底消失中共的思想，必须将中共的意识形态打入十八层地狱，永世不得翻身。人之邪不在其身，而在其心，诛心为上。
+
+做为爆料革命新中国联邦人，我们是最先一批觉醒起来的人，我们每个人都肩负着历史使命。 我们必须彻底的觉醒，不仅清楚了解中共的邪恶，还需要自我革新。在中共这个大粪坑里，我们的血液中多多少少残留中共的余毒，如果没有自己反省的勇气和能力，中共余毒是很难去除的。如我们不能接受不同意见，言语行为粗暴、利益面前无视规则，以自我为中心等等负面情绪都是中共余毒的体现。如果内心余毒不尽，当权力在手，谁能保证我们不会成为第二个共产党甚至更坏。
+
+只有自我干净了，才会心明，才会有辨别真伪的能力，才会在中共派岀的蛇和燕子面前稳如泰山，如如不动。而一些战友老被人带偏带跑，原因不外乎受中共余毒的影响，不愿独立思考，老想找一个依靠，找一个领导，获得更大的利益。新中国联邦人一定要从这中共余毒解放岀来，辩别真假好坏，坚持做自己，坚持做内心正确的事情，不为名，不为利，无私无我无畏，然后去影响千千万万的中国人，让他们也能在中共病毒中解脱出来，实现真正的民主与法治。
+
+审核校对：鲁邦五世
+上传排版：糖果儿
+
++1

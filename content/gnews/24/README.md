@@ -1,33 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 江泽民、江绵恒、江志成终在Lawrence Sellin博士的病毒全家福团聚
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1115236/)
+## 全球CCP 病毒死亡总人数超过三百万
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1115361/)
 
-【日本东京方舟农场】撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
-![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-77.jpg)
-据[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午2:36 · 2021年4月19日](https://twitter.com/LawrenceSellin/status/1384033118198272000)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文
+- 翻译：JIHO
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-> How does China's political-business component and rivalries play into the laboratory origin of the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) pandemic?
-> (hat tip to Yaacov Apelbaum)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#corona](https://twitter.com/hashtag/corona?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/KxFNJzB0ZF](https://t.co/KxFNJzB0ZF)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 19, 2021](https://twitter.com/LawrenceSellin/status/1384033118198272000?ref_src=twsrc%5Etfw)
+**西班牙2021年4月19日电/西喜社——**
+
+根据约翰**·**霍普金斯大学（**Johns Hopkins University**）的数据，全世界在**Covid-19**大流行中死亡的人数已超过**300**万人。
+
+这个里程碑事件发生的前一天，世界卫生组织（WHO）负责人警告世界迄今为止“正在接近感染率最高”。
+
+印度正在经历第二次浪潮，仅在星期六，就记录了超过23万例新病例。
+
+仅在星期六，就记录了超过23万例新病例。
+
+自大流行开始以来，已经记录了近1.4亿病例。
+
+- **Covid地图：最高的案例在哪里？**
 
 
+世卫组织总干事谭德塞**·**阿达诺姆博士上周五警告说，“病例和死亡人数继续以令人担忧的速度增加”。
 
-How does China’s political-business component and rivalries play into the laboratory origin of the [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) pandemic? (hat tip to Yaacov Apelbaum) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hashtag_click) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click) [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) [#corona](https://twitter.com/hashtag/corona?src=hashtag_click)
+他补充说：“在全球范围内，过去两个月每周的新病例数量几乎翻了一番”。
 
-中文大意：在[＃COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click)大流行的实验室起源中，中国的政治业务组成部分和竞争因素如何发挥作用？（小费福利送给Yaacov Apelbaum）[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click)[＃不受限制的生物战](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hashtag_click)[＃不受限制的生物武器](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)[中共病毒起源](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click)[＃COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click)[＃冠状病毒](https://twitter.com/hashtag/coronavirus?src=hashtag_click)[#corona](https://twitter.com/hashtag/corona?src=hashtag_click)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/EzUSqffUYAEQB2v.jpg)
-Lawrence Sellin博士推文中的图片的中文翻译据[奔向自由 2021年以毒灭共，以钱灭共跟随我们的《灭共统帅》郭文贵先生，继续灭共，永不回头@jianzhi30855277](https://mobile.twitter.com/jianzhi30855277)于[下午5:34 · 2021年4月19日](https://mobile.twitter.com/jianzhi30855277/status/1384077975235166208)·[Twitter for Android](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-1-11.jpg)
 
-回复 [@LawrenceSellin](https://mobile.twitter.com/LawrenceSellin)的推文[https://mobile.twitter.com/jianzhi30855277/status/1384077975235166208](https://mobile.twitter.com/jianzhi30855277/status/1384077975235166208)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/EzU7lByVkAIfj9I.jpg)
-也就是说这是一张中共病毒全家福，在这张全家福中的家长是江泽民，蛤子江绵恒中国科学院前副所长及P4实验室和许多其他生物机构、上海高校、上海医院及军医院和军事研究机构的控制人；蛤孙江志成掌控复星医药等医疗产业的股权和专利；蛤孙的合作伙伴是在武汉P4实验室任主任的袁志明和石正丽以及他们的法国勋章；蛤子江绵恒的合作伙伴是现任中国红十字会会长陈竺；蛤本人江泽民通过共产党控制着中国科学院以及武汉病毒研究所和武汉P4实验室。
+约翰·霍普金斯大学（Johns Hopkins University）称，美国，印度和巴西是感染人数最多的国家，其死亡人数超过百万。
 
-现在全家福凑齐了，江泽民及蛤子蛤孙江绵恒、江志成以和蛤子蛤孙的爪牙袁志明、石正丽、陈竺以及蛤子蛤孙及爪牙控制的中国科学院、武汉病毒研究所、武汉P4实验室及蛤子蛤孙控制的相关与病毒有关的企业都在这张全家福里大团圆了，但是这还不是剧终，这仅仅是续幕，让我们共同见证终极审判那一刻。
+据新闻社法新社报道，上周全世界平均每天有12,000人死亡。
 
-（文章内容仅代表作者个人观点）
+但是，全世界的官方数字可能无法完全反映出许多国家的真实数字。
+
+**印度发生了什么事？**
+
+直到几周前，印度似乎已相对控制了这一流行病。在1月和2月的大部分时间里，每天的病例数低于20,000，而在这个拥有13亿人口的国家中，这一数字还是很低的。
+
+但是随后感染开始迅速上升：星期六连续第三天创下记录，报告了234,000多例病例。
+
+医院的床位和氧气不足。患病的人被拒之门外，一些家庭正在转向黑市，以获取他们需要的药品。[英国广播公司（**BBC**）的一项调查发现，所提供的药物](https://www.bbc.co.uk/news/world-asia-india-56757405)价格是官方价格的五倍。
+
+随着官员们试图遏制大流行，首都德里在上周末已被封锁，其他几个州也实施了限制措施。
+
+现在，所有人的目光都集中在[Kumbh Mela节上，尽管人们担心每年参加的数百万印度教信徒可能将病毒带回家，但节日仍在继续](https://www.bbc.co.uk/news/world-asia-india-56770460)。本周在北部Uttrakhand州的一次聚会上，约有1600人测试呈阳性，图片显示成千上万的人沿着恒河两岸紧密地聚集在一起。
+
+它导致总理纳伦德拉·莫迪（Narendra Modi）恳求人们不要聚集。
+
+**病例还在哪里上升？**
+
+巴西的病例数排名第三，死亡人数为368749，位居第二，巴西仍在努力控制疫情。
+
+上周五，卫生部宣布在过去的24小时内新增了85,000例新病例，并导致3,305例死亡。
+
+加拿大也报告了最近的上升趋势，[上周每百万例病例数超过了美国，](https://www.bbc.co.uk/news/world-us-canada-56779428)这是自大流行开始以来的第一次。
+
+巴布亚新几内亚也引起人们的关注。世界卫生组织负责人谭德塞指出，[随着病例的急剧增加，](https://www.bbc.co.uk/news/world-australia-56424306)太平洋国家的“潜在流行病可能性更大” 。
+
+**评:随着疫苗的各种负面信息，民众对疫苗的越来越多的不信任。然而很多政府却在强行推广疫苗，不知道半年后一年后的未来会发生什么? 欧美国家本来是有着被人民信任的体系，这一次却让很多人看清楚了。当全世界只有62 例官方确诊病例的时候，闫丽梦博士，新中国联邦和爆料革命一直在警告世界，这是共产党制造的，在实验室通过中国人民解放军唯一拥有的舟山蝙蝠病毒骨架通过功能增强实验改造成的CCP病毒，所以一定会全球大流行。依然记得当时的谭德塞一次次和中共合作掩盖疫情(人传人不明显，不用和中国断航，没有证据显示会有流行病的可能，没有证据显示大流行的可能等等)到今天到官方统计的感染人数已经1.4亿，死亡人数已超过三百万，才短短15个月，全世界才75亿人啊。这种高传染性的大流行病，影响到了各行各业，几乎全部到人，从财产到生命的威胁！为什么早期不知道它的传染性? 为什么没有人被追责? 大流行病都搞不清的世界卫生组织或是武汉组织，现在在强推疫苗和疫苗护照，您怎么想? 一个有恋童癖的你敢让他带你小孩吗?一个有杀人史的你不担心他会继续杀人? 想知道未来是什么样必须要参考过去是什么样。谁是这场大流行的赢家？ 生产口罩的中共国？卖疫苗的各种疫苗公司？**
+
+编辑：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
+
+新闻来源：[英国广播公司(BBC)](https://www.bbc.com/news/world-56783878)
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 0

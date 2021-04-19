@@ -1,15 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月18日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1115597/)
+## 中（共）国监管机构严厉打击互联网公司并要求它们纠正
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1115812/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+翻译：康州盘古农场 -郭班之樱
+校对：康州盘古农场- Mike Li
+编辑：康州盘古农场- 蓝精灵
 
-4月18号，尊敬的战友们好……又到了一年一度的4月19号VOA段部门的时间了……明天上午9:30左右文贵直播乱聊一下VOA断播门四年后的．我们爆料革命应该如何去看．去认识那场美国有史以来的第一个新闻灾难！
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/3aa8e8b5f0cd67be5f73fdb1a1979a91.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/3eadb862f6b65ccfc585ae0b1f90b426.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/021e9f739e1c572ea77333ba88b62bd7.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/385a1e8498d424de53ee22d4ad727f9a.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/3194e5698be37e6ccee41e97392b2c84.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/16167c577b01728bc2140765bb4f94ab.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/077023a7586db84940361d2e6a43d6b7-2.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/478308599759b195c519a8808657147c.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/e7fb8fcea076f023a5172bf8988f3302.jpg)
-[【2021年4月18日】文贵先生盖特原文](https://gtv.org/getter/607cd9608616c84f0ff0e8d2)
+据《零对冲》作者：泰勒·杜登，2021年4月13日发布：
 
-**喜联盟Gnews编辑部**
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/2D1BA8A2-746F-4E64-B5BB-21D25422ED58.jpeg)
+
+据[《环球时报》](https://www.globaltimes.cn/page/202104/1220928.shtml)援引国家市场监督管理总局的声明，称在监管机构警告包括腾讯、阿里巴巴、百度、京东、滴滴和美团在内的34家科技巨头“纠正”其反竞争措施之后，中国股市周二大跌。
+
+34家科技公司参加了周二举行的行政和监督会议。在政府内部调查之后，他们只有大约一个月的时间去“纠正其垄断行为和与税收相关的违规或违法行为”。这些公司被告知，他们有大约一个月的时间来纠正任何“损害竞争的行为”。
+
+这个会议还概述了这些高科技公司如何在经济中造成不公平竞争，从而阻碍创新和发展，并损害商业运营商和消费者利益。会议还指出，科技公司必须改变其运营方式以符合国家利益。
+
+在会议期间，国家市场监督管理总局官员告诉科技​​公司，阿里巴巴的反垄断案件应该是一个很大的警钟。在长达一个月的调查之后，[国家市场监督管理总局周六对阿里巴巴施加了28亿美元的巨额罚款](https://www.zerohedge.com/markets/alibaba-slapped-28-billion-anti-trust-fine-analysts-ponder-whether-worst-over)。国家市场监督管理总局发现这家电子商务公司违反了该国的《反垄断法》。监管机构还命令阿里巴巴的附属公司蚂蚁集团对其业务运营进行彻底改革。
+
+杰富里斯（Jefferies）在周一发布的一份报告中说：“在国家市场监督管理总局对巴巴进行反垄断调查作出的决定和处罚之后，我们认为有关蚂蚁金服的最新更新在（华尔）街上会显示更多的动态及资讯。”
+
+拥有蚂蚁金服约33％股份的阿里巴巴运营着一个流行的移动支付应用程序，名为支付宝。去年11月，由于金融技术监管环境的变化，监管机构暂停了蚂蚁的首次公开募股。监管机构强制阿里巴巴和蚂蚁的[重组计划](https://www.zerohedge.com/markets/ant-group-become-holding-company-amid-beijings-ongoing-jack-ma-crackdown)，是北京更广泛地统治中共国最大的科技公司力量的一部分。
+
+中共国基于数字平台的经济经历了创纪录的增长，但监管机构并不喜欢不健康的商业行为。监管机构不满意的一种做法是科技公司强迫商家“从两个平台中选择一个”， 他们称这是对市场支配地位的滥用，以及其它不遵守和与税收相关的违规行为。 监管机构希望这些科技公司在短期内纠正这些违规行为。 此外，《环球时报》表示，商业运营商只能从两个平台中选择一种，那就是资本无序扩张，公然违反市场竞争秩序，阻碍创新发展”。会议概述了高科技公司应严格遵守政府的要求，以重组其业务实践和将国家利益放在首位。
+
+特别的是，监管机构要求平台公司停止“资本无序扩张”以确保经济和社会安全；停止损害公平竞争的垄断举动；停止以损害创新的技术扼杀竞争对手；并停止滥用规则和算法从而确保每个市场参与者的合法权益。监管机构命令平台公司在一个月内审查所有内部流程，并彻底纠正危害公平竞争的垄断行为。同时，监管机构将进行检查从而去找出任何违规或违反市场规则的行为。
+
+加强平台业务的管理并不意味着该国支持和鼓励平台经济的态度会有所改变，但此举将为平台敲响警钟，平台始终要有促进公平竞争并进行创新和为社会服务。 -《环球时报》。显然，北京方面的国内抑制措施仍然有效，由于监管机构的关注日益加剧，科技公司的股价涨幅几乎蒸发了，中共国股市早盘涨幅缩减。 沪深300指数在200日移动平均线的关键支撑上方收盘。
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/65C3A7B6-A73E-4CD1-8C37-AB4C0C9F073E.jpeg)
+
+在过去的几个月中，作为习近平解散马云和马化腾等亿万富翁寡头的一部分，北京对大型科技的要求越来越严格。交易员预计其国家主席将会在未来几周和几个月内扩大打击力度。
+
+原文链接：[https://www.zerohedge.com/markets/chinese-regulators-crackdown-internet-companies-ordering-them-rectify-irregularities](https://www.zerohedge.com/markets/chinese-regulators-crackdown-internet-companies-ordering-them-rectify-irregularities)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

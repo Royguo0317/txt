@@ -1,14 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月14日 文贵先生盖特 10
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1115040/)
+## 2021年4月16日 文贵先生盖特 1
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1115138/)
 
 编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-彼得·纳瓦罗：中共国是瘟疫的根源 Peter Navarro: China is the root of this pandemic
+4月16号：尊敬的战友们好……共产党在灭亡前夜……正在创造最大的经济泡沫，美国华尔街正在能制造一个世界经济的陷阱，我们如何把握住自己．踩着历史的节奏而不掉入陷阱，不被泡沫化．还要抓住的千载难逢的历史的机会，让我们强大和富有！
 
-[【2021年4月14日】文贵先生盖特原文](https://gtv.org/getter/6077b5ba51632a0de7b95e4a)
+[【2021年4月16日】文贵先生盖特原文](https://gtv.org/getter/6079a9118616c84f0ff00019)
 
 **喜联盟Gnews编辑部**
 
