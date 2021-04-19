@@ -1,237 +1,84 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 讨论白宫新闻秘书詹·普萨基（Jen Psaki）无法回答有关疫苗和恢复正常生活的问题
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1114397/)
+## 江绵恒已经上了Lawrence Sellin博士的榜单,他被抓捕还会远吗
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1114603/)
 
-视频内容：
+【日本东京方舟农场】撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-76.jpg)
+据[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午8:56 · 2021年4月18日](https://twitter.com/LawrenceSellin/status/1383766495449075712)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文
 
-来自真正的美国声音(Real America’s Voice) 2021年4月14日的推文
 
-Female Journalist question
 
-女记者提问
+> There is increasing evidence that activities involving Wuhan University with the participation of certain individuals may be intimately linked to the release of [#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#corona](https://twitter.com/hashtag/corona?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/JgfOVtXrTl](https://t.co/JgfOVtXrTl)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 18, 2021](https://twitter.com/LawrenceSellin/status/1383766495449075712?ref_src=twsrc%5Etfw)
 
-How do you strike that balance
 
-你如何做到这种平衡
 
-between being a model of the public health guidelines
+There is increasing evidence that activities involving Wuhan University with the participation of certain individuals may be intimately linked to the release of [#COVIDー19](https://twitter.com/hashtag/COVIDー19?src=hashtag_click) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hashtag_click) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click) [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) [#corona](https://twitter.com/hashtag/corona?src=hashtag_click)
 
-在成为公共卫生准则的范例
+中文大意：越来越多的证据表明，武汉大学在某些人的参与下的活动可能与[#COVIDー19](https://twitter.com/hashtag/COVIDー19?src=hashtag_click)[中共病毒](https://twitter.com/hashtag/CCPVirus?src=hashtag_click)[#超限生物武战](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click) [#超限生物武器](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)[＃COVID19溯源](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click)[#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) [#Coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) [#corona](https://twitter.com/hashtag/corona?src=hashtag_click)的释放密切相关。
 
-and also not contributing to this sense of hopelessness
+Lawrence Sellin博士的这则推文牵扯到了谁将为中共制造和释放反人类的超限生物武器负责的问题，而郭文贵先生在[郭文贵先生2021年4月7日盖特](https://gtv.org/getter/606de8dedbc8001854a6483c)提到的关于中共病毒的部分是这样说的——
 
-和没有助长这种绝望感之间
+［从那天到今天除了这个之外，还有什么变化，香港沦陷变成灾难之港，全人类被共产党的病毒杀死几百万人、几亿人染上了共产党的冠状病毒，共产党从那个时候的到全世界买买买，到了今天全世界它还买买买吗？它是到全世界去骗骗骗、假假假、病毒病毒，所以说党内现在很多人都在议论到底是牺牲习近平一个人把病毒事情承担起来，还是牺牲几个人在整个党内在已经是九千万党员都知道，无论如何共产党病毒这个事儿是拖不过去的，是一定会整出来的，但是让习担起来还是习和几个人担起来呢，几个人都在担起来的话，还有大家推责找替死鬼的时候，想想当时，想想当时，文贵和爆料革命所处的形势和今天共产党所处的形势，没有一个人能解开共产党的潘多拉盒子对世界的大屠杀，没有一个能解决共产党在新疆的种族大屠杀和反人类罪，没有一个可以把共产党在香港的屠杀、被强奸、犯下的罪行给解决，没有一个人！］
 
-Perhaps among people who are skeptical with your vaccine
+对照Lawrence Sellin博士的推文，我们可以得出结论，中共在此前讨论的让习近平一个人或几个人承担病毒的责任化为泡影，那么这就带来下一个问题，如果逮捕江绵恒或者江志成会出现什么结果？据**2018年12月16日 郭文贵先生和战友之声全体战友互动交流**
 
-也许在对你的疫苗持怀疑态度的人中
+［我在这个华盛顿一个神秘的地方演讲的时候，其中有几个将军说：如果我们要抓了以下几个人，第一个就说江志成，我要抓了江志成，中国什么反应？如果抓了马云，中国什么反应？如果抓了马化腾什么反应？如果我抓了王健林什么反应？如果抓了中国银行行长什么反应，然后就说了抓了任正非和梦晚舟有什么反应？他们都问了这话题，很有意思啊！我回答他我都是非常简单的：我说你抓了孟晚舟，你要是在美国把她抓了，他就抓你美国人，一定抓！而且一个、两个、三个、四个，你们肯定还手，然后他就给你加零，一定是这样子的！我这边边抓你人边来和你和解，边跟你做交易，让你挡不住，然后蓝金黄。
 
-and maybe feel like getting it would not make a difference in their lives anyway
+他说那如果我在其他国家把她梦晚舟抓了呢？比如说在欧洲？比如说德国、英国、加拿大？我当时真没想到加拿大，我想孟晚舟被抓，应该是在德国或英国呢。我说，非常简单，在哪国抓了，哪国的本国人在中国路过或在中国经商的人就会被抓，然后这个国家会想办法在法律上拖延引渡，最后我说你们引渡不成，然后没办法就得放了，最后还得找个理由共同跟你们一起撒谎，或者你们国家被公关了，然后就说不要求引渡遣返，达成协议。结果孟晚舟事情发生了以后，在加拿大，现在跟我说的这个版本，完全一样，完全一样。对这件事情他们对我说：Miles，太佩服你了，你怎么预测得这么准！
 
-也许感觉注射疫苗反正不会改变他们的生活
+现在我先跟大家说抓江志成啊，这不是马后炮。如果抓了江志成，抓了江志成中共会怎么办？我说抓江志成绝对跟所有人都不一样的，抓了江志成的第一反应是谁？我说我告诉你一定是中国现在的高层官员出来说话，而且外交部的杨洁篪会出来说话。杨洁篪出来说完话的同时，我说我告诉你，中国的军方就会有行动！它给大家展现一个局面就是你抓江志成，我跟你开战！为什么？他们不想让任何一个国家开始敢动中国领导人的后裔，这过去70年从来没发生过。
 
-Jen Psaki
+我说如果你们要敢动了江家的江志成，那你就是整个是打破了中美之间，虽然不是法律，但它是一个潜规则，我说那就中美关系就变了。他说你说这个有意思，没注意。但是一旦你要动了他，你即使明天放、明年放、后天放，我说我告诉要做好准备，这就打破了共产党和你美国政治上的默契，你的代价小不了，但是你的赢头也大，能赢什么？
 
-詹·普萨基
+我说我告诉你中共会给你做出实质让步。严格讲中国绝大多数欺骗美国的事、害美国的事都会让步。然后这些人我看看都是互相看微笑，我想这家伙不会先抓江志成吧？然后呢另外一个人就说先抓孟晚舟，还有要么抓万达，再个呢就是抓马云。我可以告诉大家的是马云只是早晚的问题，在哪国抓一定会被抓，一定会被抓。那么我就说抓马云什么代价，抓了马云我告诉你，会吆喝两嗓子然后就是赶快把他抓了吧，然后还有人给你喂料，叫这哥们儿最好死在你们国家别回去了，我说他一定是这个结局的。
 
-sure yeah I think a big part of what we’re trying to do
+因为你抓了马云，他家的老婆孩子他们控制着呢，你马云不敢在里边胡说八道。然后你死了这事就算完了，马云所有过去都算埋没了。他们说有道理啊。我说马云他们希望你嘎嘣儿消失，王健林嘎嘣儿消失，马化腾嘎嘣儿消失。但是江志成他有象征意义，我说孟晚舟这个他们是怕啥，怕她如果你嘎嘣儿就完了他不在乎。那么孟晚舟他怕的是告出给美国和加拿大合作，最关键的是资金的来往和偷盗的技术。］
 
-当然，是的，我认为我们正在尝试做的很大一部分
+也就是说抓了江志成会造成中共做出实质性的让步，那么我们再进入第二个问题，如果不抓江绵恒和王恩哥这些人对美国意味着什么？据**2018年12月9日量震床上功夫和 G20中美峰会的真相，孟晚舟女士在加拿大被抓与华 为公司的背后真相，张首晟先生是自杀还是被杀。**
 
-is provide accurate information about
+［咱们就说今天我说的，整个事情 G20 的背后控制者江家。整个马云大数据，包括海航，包括这 11 家企业海外扩张走出去，对西方以及 3F 美国的：干死美国、干弱美国、干乱美国的执行者；然后百人计划，千人计划的王恩哥、谷冬梅。 王恩哥，我再说一遍，我已经说过了多遍，你的两个孩子上学是我给安排的。就这两件事我只要起诉你，你必须要来美国。你儿子、你儿媳妇必须在美国伏法。只要他俩伏法，你能有啥结果。 据我很清楚知道的消息，张首晟王恩哥要求他回国，说江绵恒要见他，张首晟不回去。几次不回去。张首晟已经被美国 FBI 盯住调查了。张首晟知道回国以后很可能变成王健第二。王健的死对张首晟有重大的冲击。他的好朋友劝他千万别回。另外他的红颜知己刚从大陆回来，见了某些领导，说了很多好听话劝他回去，结果张首晟同志死啦！在阿根廷G20峰会之前。而孟晚舟被抓。
 
-是提供准确的信息关于
+所以我会建议美国的 FBI 和调查部门，重新根据我提供的线索，调查张首晟先生所有过去的通信和来往，和他所见过的人。再有95年的百人计划和2006年的千人新计划和量子技术还有这几家基金的投资来源重新调查。 特别是我也会强烈地建议美国政府只要不抓江绵恒、不抓江志成、不抓孟建柱、不抓孙力军、不抓马云、不抓马化腾，美国这个国家将会面临巨大的国家安全问题，5G 将把美国置于死地， 美国将会输掉世界上最关键的一战。 搞弱美国，江家、朱家、孟家、王岐山家已经成功了；搞乱美国，基本两党已经骂得不可开交啦！已经达到黄河边的水平啦，博讯的水平啦，天天说假话骂人啦；搞死美国，5G是关键，要想搞清楚 5G和大数据，那必须把江绵恒、江志成、马云、马化腾这些人全整过来。
 
-what getting a vaccine will enable the American people to do
+美国如果不这么整这个国家就危（险）啦。 关于孟晚舟美国引渡的可能性不大，因为蓝金黄的力量太大了，我成天讲太大太大了。但是孟晚舟绝对是华为要开始被打开揭露出来真相的开始。孟晚舟这次的被抓，就是海航在 2017年4月19号文贵爆料的开始，会很纠结、会起起伏伏，海航，没啦！像王恩哥同志有床上的量振的能力，不可能啦！ 王恩哥在美国不被抓那王恩哥就是大问题。头几天我告诉美国的有关官员，我说，如果你们不抓王恩哥，美国内部就出了大问题了。我给他们讲了，王恩哥当时跟美国大使馆我那几个共同的朋友见面，我告诉美国大使馆的朋友，王恩哥是你们这个国家最大的危害。当时美国大使馆的这位朋 友是从中东调去的，是一个搞情报的。他非常惊讶，他说，你说的这个话完全吻合了我内心的感觉，他说，但是我没证据。 王恩哥是经常去美国大使馆，私自跟美国大使馆的人喝酒吃饭的。王恩哥在那个飞机上，我给大家讲过我原来对这个人很尊敬。但是自从那天晚上“量震”以后，在飞机上他说了一句话，这句话 很粗啊，“不干她奶奶，她不知道叫爷！”从那天起，我知道他绝对不是校长，这是黑帮。“不干她奶奶，不知道叫爷！”这句话就是王恩哥说的，后来王恩哥在美国给我说，我说，你怎么看待中国的未来？（王恩哥）也说过：“不干美国的奶奶，美国不知道叫爷！”
 
-注射疫苗将使美国人民能够去做的
+现在我就要问美国人：是不是你们一定要被干了奶奶才会叫爷呢？” 所以说王恩哥不抓, 绝对不行！ 王恩哥被抓 ….王恩哥那 1.6亿美元来自李友的，是一律的给钱，钱到哪儿去了？钱大多数转美国了，是不是洗钱？美国政府该查！李友投的方正科技，李友投的文件加密技术，包括方正科技，大家看看过去的方正科技的股票永远在两块五左右不会往下的，为什么？国家安全危机! 政治局的背后控制。所以说李友的女儿也在美国，李倩都在履行着使命，只有履行着使命才能得到中国的尊重和安全的保证。张首晟先生他因为意识到了他的活着会给他家人带来巨大的威胁，这事不可能让家人知道！谁说谁知道就是放狗屁！只有内部人有权知道。张首晟先生就因为拒绝了配合，然后会泄露出江绵恒、江志成、王恩哥、 马云、任正非、孟晚舟, 还有现在不说的还有大概六七家核心企业, 核心秘密, 所以必须把他给灭了。像王健一样灭了！王健的死让张首晟看透了中共, 看透了孟建柱, 但是这也要了他的命。］
 
-hence the president gave a prime time address what he said
+也就是说不抓江绵恒不抓王恩哥美国就会出大问题！下面进入第三个问题，Lawrence Sellin博士已经把江绵恒列到了中共病毒榜，这意味着美国军方已经掌握了中共病毒的真相和整个的反人类罪犯网络，那么这意味着什么呢？据**2020年2月8日第一次直播谈为什么说武汉疫情是中国共产党制造并释放出来的**
 
-因此，总统在黄金时间发表讲话说
+［未来美国的调查结果出来和真相出来的一天，大家会知道，为什么平爆小组的这些核心人物，和背后的大佬们，能提前把该出的上海股票市场，香港的股票市场，还有深圳的一些股票都能出尽、估空；为什么你们能把你们背后控股的股权，能卖到中东去，能卖到欧洲去，能卖给美国人。
 
-if when you get the vac
+你以为这些买了你股票的美国人，买了你股权的美国人、欧洲人和中东人，就真的以为给完你钱他就拉倒了？啊？江志成，江志成你记得吗那个手握的，啊？你以为那手握了然后钱拿了，股票拿走了，你觉得，钱也拿走了？你出售那些股票，不仅我知道，我相信美国政府也知道。美国在这个调查武汉疫情过程当中，他一定会想，他也一定会调查，为什么你江志成，为什么你孟海晶、孟建柱家，为什么王岐山的高燕燕，田国立，这些人的很多股权能迅速地估空，你们又是神呢，能预测？
 
-如果当你得到疫苗
+大家现在只要有一点脑子的、有电脑的、有手机的，把武汉疫情之前，2019年开始，11月10号之后，一定记住11月10号之后，就是光棍节的前一天，往后查中国多少大佬开始闭嘴、不再说话。你还见过中国有这些商业大佬说话吗？多少大佬沽空了自己的股票，多少大佬将自己的最好的控股权和股权，卖给了美国、欧洲和中东，也不卖香港了。
 
-if you when the vaccine’s accessible to you
+大家要看一看李嘉诚的股票是啥时候卖走的，香港事件发生那么长时间，2019年6月份开始，6月9号、12号、16号都不估空，到了2019年11月10号，开始大面积地抛售。大家记住啊，不仅是市面上的股票抛售，更多的是大额交易、控股权。
 
-当你可以得到注射疫苗的机会时
+所以说那就是有一种可能，你们是神，或者你们是魔鬼，只有一种可能。魔鬼就是你们运作和操作了整个武汉事件；神那就是，你提前预知到武汉疫情将知道，将会发生。
 
-and you get it
+韩正真厉害，韩正管中国全部，中国公共卫生，抓卫生的常委，下边就是孙春兰了，啊，孙春兰，哈，孙春兰喝过几回酒啊。一般人不喝，觉得有用了才喝呢。提前飞往上海，以检查身体为名、开会为名提前泄露信息，韩正和孙春兰的关系不一般哪！1月初，1月初就已经警告所有人，远离湖北、远离香港；到了1月中下旬已经明确地说，大家一致意见弃鄂保京海，弃鄂保京海。］
 
-而且你得到它
+也就是说关于中共制造和释放反人类的超限生物武器的所有反人类罪犯包括江志成、李嘉诚、韩正、孙春兰、孟海晶、孟建柱、高燕燕、田国立以及所有知情者他们一个也跑不掉！接下来我们再进入第四个问题，江志成在海外的合作伙伴已经发生了什么变故？据**2019年6月14日郭文贵先生直播：林郑月娥必须提出辞职，取消「逃犯条例」**
 
-We can work towards having backyard barbecues uh
+江志成在欧洲、江家在欧洲的几个所有投资伙伴，都有跟我联系，全部要跟他们停止合作，全部要跟江志成停止合作，美国跟他的几个包括朱云来的，全部要停止合作，我也告诉他们，我说江志成和朱云来这样的人，还有包括现在王岐山的、高燕燕，还有孙立军，还有孟建柱这些家族，如果你不停止你都是犯罪。你看我发的信息跟每个人都是这么说，我说你们都将成犯罪。不是美国立法惩罚你们，中国人民未来要惩罚你们的。因为你在帮助他们在欺负扼杀西藏人、新疆人、台湾人、香港人和中国的老百姓，这是不能接受的！］
 
-我们可以朝着可以在后院烧烤的方向努力
+也就是说江志成在欧洲的所有投资伙伴将全部停止与江志成的合作，在美国的包括与朱云来、王岐山、高燕燕、孙力军、孟建柱等反人类罪犯合作的都要停止合作。接下来我们进入第五个问题，接下来包括江志成、朱云来、王岐山、高燕燕、孙力军、孟建柱等人在欧洲和美国的资产会怎么样呢？据**2019****年****7****月****23****日李鹏为什么一见人就问****89****年当时你在哪？为了啥？**
 
-We’re also had a number of officials out there to convey
+[所以我香港的今天早上这位大佬说：“这李鹏走了，这轮到香港了！”香港会有什么走向？战友们？想想吧！从6月9号当场直播我就说：“千万不要相信共产党”。秋樱小百合:“李小琳的财产会封吗？”,李小琳的资产和盗国贼的资产都会被封！第一个封的就是江志成，然后就是贯君、刘呈杰。]
 
-我们也有很多官员要传达
+也就是说江志成也好、江绵恒也好，他们的资产被封和被抓捕已经是必然发生的事情，接下来我们进入本文最后一个问题，国际上是这样，在中共内部的斗争中，江家和他们的马仔会迎来什么局面呢？据**2020年8月7日郭先生GTV直播**
 
-and we’ve had obviously the CDC has put out guidance that says
+[马云你记住我说的话，我会让你寸步难行，这回曾习大战第一个就干你，然后干江志成，然后干江绵恒，戴永革就是小烂仔，必须灭掉啊，顺便会把曲龙全家都抓咯，都得灭了，或者出车祸死，一定的。李友肯定进去，再进去李友快死了好像是啊。然后所有的河北的当时放曲龙的，所有的玩这些…都会被抓起来。什么政法委书记啊，都会被抓起来，都是曾家的人嘛。百度、阿里都得完蛋。记住，战友们记住我说的话。去年8月7号我说啥啦？蓝金黄，这些企业哪个还活着？我说过的人有几个现在还活的好的你告诉我。]
 
-而且显然疾病预防与控制中心已经发布了指南，其中说
+另据**2020年5月16日郭先生GTV直播**
 
-if you’re vaccinated if your neighbors are vaccinated
+［而且现在党内，共产党，中国人最歧视的种族就是中国人，最是对自己人狠的就是中国人。现在所有的对美软弱无力，外交软弱无力。杨娘娘也快被抓了，一定会被抓的，杨洁篪一定会被抓的，记住我说的话。我今天告诉大家，他曾经三周是被双规的，完全消失，我说这个话外交部知道。他一个字没有签过，三周的时间全是王沪宁签字，到今天外交也是王沪宁说了算，我可以负责任告诉大家，然后让王沪宁先回来工作是为了现在国际上的这个影响，但他最终一定进去。王岐山被软禁，孟建柱被双规，傅政华被双规，孙力军被双规，那杨娘娘一定会进去的，吴征一定会进去的，这是一个上海帮，盗国之帮，江志成一定会进去的，江绵恒一定不会死在医院里，一定会死在监狱里，咱走着看。］
 
-如果你注射了疫苗，如果你的邻居都注射了疫苗
+也就是说如果江志成、江绵恒和他们的马仔在国内呆着，他们避免不了被抓和死在监狱里，如果江志成、江绵恒和他们的马仔出国，那么他们将面临被美国及其盟国抓捕的危险，而在他们被美国及其盟国抓捕之前，会先从冻结他们在欧洲和美国的资产开始。
 
-you can have dinner inside together
-
-你们可以一起在室内进餐
-
-It’s a pandemic we don’t think it’s easy
-
-这是大流行病，我们认为这并不容易
-
-We know it’s difficult
-
-我们知道它是困难的
-
-it’s required a lot of sacrifice but at the same time
-
-需要很多牺牲，但是与此同时
-
-We’re trying to provide accurate public health based guidance on
-
-我们正在努力提供有关准确的基于公共卫生的指南
-
-what people can do once they have taken the vaccine
-
-人们接种疫苗后可以做什么
-
-Damon Roberts
-
-达蒙·罗伯茨
-
-Okay, got it? All straight after that answer?
-
-好，知道了吧？在那个回答后都理清了吧？
-
-Let me ask her question in a more simple way
-
-让我以更简单的方式问她问题
-
-Her question is Why would anybody want to rush to get a vaccine
-
-她的问题是为什么任何人要着急去打疫苗
-
-When if you get it nothing changes！ Nothing changes！
-
-人们打了疫苗后，什么也没有改变！什么也没有改变！
-
-You can’t go anywhere without a mask
-
-不戴口罩你就不能去任何地方
-
-You can’t, now she says you can have dinner
-
-现在她说能（在外面）进餐
-
-Well that, she might want to call the great one Dr. Fauci
-
-好，她有可能给“伟大的”福奇博士打电话
-
-because it’s not what he said this weekend
-
-因为这不是他本周所说的
-
-The Stormy Daniels of medicine was and out about in front of the cameras
-
-医药界的斯多米 丹尼尔斯(Stormy Daniels:成人电影明星) 在镜头前走来走去
-
-He has different view of that
-
-他对此有不同的看法
-
-So they’re not they’re not even on the same page with that
-
-所以他们甚至不在同一观点上
-
-But I thought that’s a great question
-
-但我认为那是个很棒的问题
-
-If they’re so good,
-
-如果他们是那么的好
-
-if the vaccine is so important
-
-如果疫苗是那么的重要
-
-If the vaccines are that effective
-
-如果疫苗是那么的有效
-
-which it seems like from all the study
-
-从所有研究来看
-
-Especially to Israel
-
-特别是对以色列来说
-
-they have been effective
-
-他们一直有效的
-
-700 million people now worldwide
-
-现在全球7亿人
-
-Have either gotten their first or complete, completed whatever doses they’ve gotten
-
-不管他们是得到第一剂还是已经完成他们应该得到的剂量
-
-Israel probably has the best information coming out of it
-
-以色列可能会从中得到最好的信息
-
-and some of the studies out of there
-
-而以色列的一些研究
-
-totally go against what she just said
-
-完全与她刚才所说的相反
-
-as far as all of the data so far shows
-
-到目前为止的所有数据显示
-
-That once you’re vaccinated
-
-那些你已经接种过疫苗的人
-
-there’s almost 0% chance that you are spreading the virus
-
-你传播病毒的几率几乎是0％
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接:
-
-
-
-> .[@lfs6b](https://twitter.com/lfs6b?ref_src=twsrc%5Etfw) discuss WH Press Secretary Jen Psaki being unable to answer a question about vaccines and returning to normal life. [pic.twitter.com/uc7j2XFhrc](https://t.co/uc7j2XFhrc)
-> — Real America's Voice (RAV) (@RealAmVoice) [April 14, 2021](https://twitter.com/RealAmVoice/status/1382325267599925248?ref_src=twsrc%5Etfw)
-
-
-
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+（文章内容仅代表作者个人观点）
 
 0

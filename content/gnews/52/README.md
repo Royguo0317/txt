@@ -1,213 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 如果你想讨论美国科学的政治化，你应向中共求助，那是真正政治化的地方
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1114436/)
+## 【热点播报】比特币暴跌，加密货币集体闪崩，近50万人爆仓，验证了文贵先生的预警
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1114633/)
 
-视频内容：
+作者：纽约香草山健身部Jack Li文阳
 
-来自安妮·卢蒂（Anne Luty） 2021年4月14日的推文
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
-Bannon
 
-班农：
 
-Natalie Winters, you’ve done more about wuhan lab.
+4月18日数字货币惨遭血洗，多种加密货币集体闪崩。其中比特币出现崩盘式暴跌，跌破52,000美元/枚，目前已有近50万人爆仓。
 
-娜塔莉 温特斯，你做过许多关于武汉实验室方面的报道
+加密货币暴跌之际，全网加密货币过去一小时爆仓达到42.87亿美元，过去24小时有超过62万人爆仓，爆仓量55.79亿美元。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片1-49.png)
+4月18日上午，比特币闪崩，一小时内暴跌近8000美元。24小时涨跌幅计算，比特币暴跌17%，以太坊暴跌20%，币安币暴跌17%，瑞波币暴跌26%，狗狗币暴跌19%，莱特币暴跌28%，波场币暴跌25%，柚子币暴跌29%。
 
-You’ve done more individual investigate report than
+比特币在4月13日曾一度突破64,000美元关口，最高达到64,778美元，当比特币“玩家”以为比特币会继续走高时，此后，比特币开始了连续几天的下跌。
 
-你做过许多的独立调查报道
+比特币快速下跌，做多的投资者损失惨重。近24小时，爆仓人数急剧上升，超47万人爆仓，379亿元人民币灰飞烟灭。
 
-New York Time, Wall Street journal, Financial Time of London, Washington Post combined.
+文贵先生4/16日曾发出警示：华尔街神秘的手都在玩虚拟货币，比特币和其他几个虚拟货币就由共产党和华尔街控制，两个洗钱集团正猛力推高市场，再摔下来，大家都在等着傻货往里冲，投机和赌博式的心理一定让你倾家荡产，永远不要参与。
 
-比纽约时报、华尔街日报、伦敦金融时报、华盛顿邮报的总和还多
+4/18/2021 文贵先生在直播里说：“很多战友经历了比特币又一次的割韭菜，很多人明白了我一直说的只能投资不能投机的意义所在。我一次次用生命、代价、自由、安全、上千亿的财富告诉你跟着共产党走进火葬场，不要相信共产党的企业，结果这位战友大量投资了火币，赔得一塌糊涂”。
 
-Ok, you see this handling
+文贵先生说：“我告诉大家一个基本的逻辑，比特币根本没有赚钱的机会，因为它的加密属性和去中心化，是洗钱和贩毒最重要的工具，而且是共产党和华尔街大佬玩的工具。只要暗网有任何犯罪组织被查，比特币就暴跌；它的使用功能方向被改变的时候就暴跌。所以它是一个永远被定为灰色的、非法的，用是因为它是逃税的最佳工具、犯罪的最佳工具，被全世界政府打压。不管什么币，只要跟共产党的都叫冥币。”
 
-好的，你看到了这个处理
+文贵先生总结道：“世界从恶性通货膨胀进入经济危机，比特币、火币还会起起伏伏，最后只有我们G币会火下去，因为我们是中心化，有黄金储备和稳定币，不洗钱，受世界各国政府支持。G系列将是最健康的。”
 
-Your observations on the handling of J & J fiasco
+有点脑子的人都知道G系列意味着什么，GTV, Gnews, GClubs, Gcoin, Gfashion 就是踩在世界的屋顶，而且是干净的、稳健地往前走，谁也挡不住加密货币和实体经济的结合。 Gclubs是唯一一个关键时刻每年巨额盈利的企业。GTV、Gnews是唯一的，是稀缺资源，是人类关键时刻讲病毒讲真相，拯救人类的现代化社交媒体和门户网站结合的平台。
 
-您对强生和强生疫苗失败的处理意见的观察
+参考阅读：[https://wallstreetcn.com/articles/3628161](https://wallstreetcn.com/articles/3628161)
 
-Natalie Winters
+[https://news.stcn.com/news/202104/t20210418\_3058951.html](https://news.stcn.com/news/202104/t20210418_3058951.html)
 
-娜塔莉 温特斯：
+校对/发稿：飞虹
 
-Yeah, I think a lot of their frame from the main stream media right now
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-是呀，我认为目前来自主流媒体的很多构架
 
-talking about the politicization of science right now
 
-正在谈论科学的政治化
+**更多资讯，更多关注**
 
-And Frankly, I think it’s kind missing the mark on that
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-而且坦率地说，我认为这有点失误
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-I know I always talk about Chinese Communist Party
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-我知道我总是讨论中国共产党
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-but if you wanna talk about the politicization of American science
-
-但是如果你要讨论关于美国科学的政治化
-
-and our establishment,  our talking heads , our media head figures
-
-和我们的建制派、我们的政府负责人、我们的媒体负责人
-
-Look to the Chinese Communist Party
-
-看看中国共产党
-
-because that’s the real politicization is happening
-
-因为那是真正正在发生的科学政治化
-
-I remember about a week ago
-
-我记得大约一周前
-
-The New York time put up an article
-
-纽约时报刊登了一篇文章
-
-talking about Biden regime
-
-讨论关于拜登政权
-
-was going to start investigating politicization science under Trump Administration.
-
-将开始对在川普政府领导下的科学政治化进行调查
-
-That’s like do that
-
-就像做那个
-
-how about next time focus on the Chinese Communist Party
-
-下次关注中国共产党怎么样
-
-subversion infiltration of the American medical establishment
-
-颠覆性地渗透美国医疗系统的
-
-so I think it’s really hard to kind of look at the American medical establishment
-
-所以我觉得很难看清美国医疗系统
-
-who’s responsible for legitimizing and authorized these vaccines
-
-负责合法化和授权这些疫苗的人的行为
-
-from a clear set of eyes
-
-从清晰的眼睛
-
-When really they are so compromised by Chinese Communist Party
-
-当他们真的受到中国共产党的渗透时
-
-Bannon
-
-班农：
-
-Are you too we have about 30 seconds left
-
-你也是，我们还有30秒的时间
-
-Do you believe Boris said about this
-
-你相信鲍里斯对此说过吗
-
-Do you sense the main stream media a little bit of belly full of Fauci right now?
-
-你现在是否感觉主流媒体对福奇有些反弹了吗？
-
-Raheem
-
-拉希姆：
-
-Oh for sure, we get definitely
-
-哦，确定，我们肯定会
-
-You should hear the whispers
-
-你应该听到窃窃私语
-
-The whispers, the reporters will say to people privately
-
-窃窃私语，记者们会私下对人们说
-
-You know on the Morton’s terrorist over the alibi
-
-你知道对莫顿关于不在现场的恐怖分子
-
-they are totally different than the, you know
-
-他们和你所知道的完全不同
-
-the united front, no pun intended
-
-全都聚集在一起，玩文字游戏
-
-they present you know on the television
-
-他们在电视上出现的样子，你知道的
-
-It’s they really don’t like Fauci
-
-其实是他们真的不喜欢福奇
-
-Bannon
-
-班农：
-
-The Chris Hayes
-
-那个克里斯·海斯
-
-who’s not fun of the show, not fun of me, not fun of Trump.
-
-他不喜欢战斗室节目、不喜欢我、不喜欢川普
-
-Smart guy, You can tell last night
-
-聪明的家伙，昨晚你能看出
-
-He was having a tough time with Fauci last night, right?
-
-昨晚他和福奇谈的很煎熬， 对吧？
-
-He said this guy spin my head
-
-他说这个家伙把我的头都弄晕了
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接:
-
-
-
-> "If you wanna talk about the politicization of American science and our establishment, our talking heads, our media head figures, look to the Chinese Communist Party because that's where the real politicization is happening." —[@nataliegwinters](https://twitter.com/nataliegwinters?ref_src=twsrc%5Etfw) [#WarRoom](https://twitter.com/hashtag/WarRoom?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/sEUzx7ObYS](https://t.co/sEUzx7ObYS)
-> — Anne Luty (@anneluty) [April 15, 2021](https://twitter.com/anneluty/status/1382504131319975937?ref_src=twsrc%5Etfw)
-
-
-
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

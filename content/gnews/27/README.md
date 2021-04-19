@@ -1,11 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共打造自己的数字货币，为监控公民和经济提供新的途径，并削弱美国的制裁
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1114905/)
+## 2021年4月14日 文贵先生盖特 10
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1115040/)
 
-4/6/2021 乔纳森：中共在打造自己的数字货币，为它监控公民和经济提供新的途径；与其他主流的加密货币不同，这种数字“元”是可追踪的，所以他们可以实时地看到你的钱花在了什么地方；但是另一个目的是让他们有能力绕过美国的制裁。
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-By： 【秘密翻译组 G-Translators】
+彼得·纳瓦罗：中共国是瘟疫的根源 Peter Navarro: China is the root of this pandemic
+
+[【2021年4月14日】文贵先生盖特原文](https://gtv.org/getter/6077b5ba51632a0de7b95e4a)
+
+**喜联盟Gnews编辑部**
 
 0

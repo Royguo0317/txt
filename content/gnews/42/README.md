@@ -1,43 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】夺命疫苗何时了
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1114648/)
+## 文贵先生盖特要点简评 4.17.2021
+` 左媛专栏` [轉載自GNews](https://gnews.org/zh-hans/1114811/)
 
-配音：香草山录音组 Swr拥抱太阳
+#### 4.17七哥盖特要点如下：
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+1)世界将迎来最大的恶性通货膨胀
+**媛评：**中共长期巨量印钞，不仅稀释百姓财富收归国有，制造所谓“盛世”之下的又一轮贫困，而且为人民币扩张奠定基石，不过这个“基石”本质上是风干的泥土。中共的印钞带动美日跟着印钞，美丽的泡沫越吹越大，破裂在即。
 
+2) 印日共池塘之争开始了，中共说了不算了
+**媛评：**中共在经济文化和意识形态方面的侵略，动了众多国家的奶酪，近邻之国印度日本不再坐视，在印太地区和中共展开“逐鹿之势”，中共“小池塘”幻想“一言堂”的美梦一去不复返。
 
+3) 中共大量布局黄金，战友千万不要买黄金，兑现很难，G系列布局20%黄金很管用
+**媛评**：爆料革命“以钱灭共”，垂死中共布局黄金挣扎，活一天算一天，拖一月算一月，想吃点啥就吃点啥，想喝点啥就喝点啥吧。文贵先生设计G系列，战略性挂钩黄金，其远见虽常人所不能及，但惠及每一位真战友，惠及新中国联邦。战友们谨记文贵先生爱护，不要以一己之力去对决一党之帮，保护好自己就是胜利。
 
+4) 上海帮江家和习派不是一个段位，江家是真正的国际派
+江是民国毕业的大学生，精通英语通习音律，常做高雅表演以获赞誉，当然非“梁家河党校”毕业的习神所能比。但无论是国际派还是窑洞帮，无论段位怎么悬殊，邪恶之本性是相通的，都是灭共的目标。
 
-
-
-
-据4月7日美联社迈阿密的报道：今年一月，在迈阿密海滩的西奈山医疗中心执业的56岁产科医生迈克尔·格雷戈里 (Dr. Gregory Michael) 在接种辉瑞mRNA疫苗两个多星期后死亡。法医死因调查是由佛罗里达州卫生部和联邦疾控中心CDC主持的, 验尸样本被送往CDC 。调查小组成员包括疫苗安全、免疫学、传染病学、血液学、病理学和实验室方面的学科和临床专业人员。调查小组的结论是，迈克尔·格雷戈里医生死于自身过度免疫反应所致的弥漫性血小板减少性紫癜（Immune thrombocytopenic purpura， ITP），一种可以防止血液凝固并导致内出血的疾病。迈阿密戴德县法医部业务主任达伦·卡普拉(Darren Caprara)通过电子邮件发布：格雷戈里医生死于一种可能导致内出血的疾病，医学上没法确定是注射疫苗导致的，其死因被归类为自然因素所致.。
-
-
-
-**文字版原文：[【医疗前沿世界】夺命疫苗何时了](https://gnews.org/zh-hans/1099582/)**
-
-作者：纽约香草山医疗部   圣母院钟声
-
-
-
-音频处理/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+5) 一年内迎来加密货币网络金融的大时代，全球灭共不可挡
+历史车轮总是向前的，任何猛兽恶魔也不能阻挡。从贝壳到“交子”，从金银交易到纸币流通，从硬通货到加密货币，这是历史的滚滚洪流。文贵先生避中共和大众耳目，率高人创G系列新生王国，在金融混战中救世界和中国于水火；率亿万海内外同胞于天地之间高呼“消灭共产党”。“灭共”与“多G”齐飞，蓝天共金星一旗。“世界联合灭共，人类千年和平”的伟大时代即将来临！
 
 0
