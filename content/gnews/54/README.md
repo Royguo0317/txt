@@ -1,14 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月14日 文贵先生盖特 10
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1115040/)
+## 2021年4月16日 文贵先生盖特 2
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1115169/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-彼得·纳瓦罗：中共国是瘟疫的根源 Peter Navarro: China is the root of this pandemic
+4月16号：根据我海东兄弟和叶钊颖妹妹的提醒．我现在做两组啊，让他们审核看是否符合标准，战友们一定要按照标准做这个姿势，否则会伤到身体．这非常的重要！ 智慧人生……科学健身！
 
-[【2021年4月14日】文贵先生盖特原文](https://gtv.org/getter/6077b5ba51632a0de7b95e4a)
+[【2021年4月16日】文贵先生盖特原文](https://gtv.org/getter/6079ad408616c84f0ff004eb)
 
 **喜联盟Gnews编辑部**
 
