@@ -1,33 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 晚婚、不婚都有罪
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1116840/)
+## 【热点播报】二十年载载博鳌亚洲论坛风光不再
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1116956/)
 
-```
-信息来源：网易
-发布日期：2021年04月17日
-整理/评论：斩草要除根
-```
+纽约香草山写作二组  桃花水母
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg](https://gnews.org/wp-content/uploads/2021/04/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-3-11.jpg)封面来源：istock © Printstock Collection
 
-在标题为[《任泽平：晚婚、不婚问题加重中国养老负担严重拖累国家财政》](https://www.163.com/money/article/G7PS9HOO00259DLP.html)的文中写道：近年来，多种选择和无奈之下，中国人结婚少了，结婚晚了、离婚多了。随着社会发展，一方面新一代年轻人追求独立自由，认为婚姻是束缚。 另一方面，高婚育成本使年轻人实现家庭变得更加困难。 从人口角度看，人口少子老龄化问题正在削减适婚年龄人数，结婚“主力军”减少。“婚都不想结，还生什么孩子”，正成为一批年轻人的选择，结婚率下降、生育率下降和老龄化加重是互为因果的。
+间隔一年的博鳌亚洲论坛线下会议将于4月18日至21日在海南博鳌如期举行。年会主题为“世界大变局：共襄全球治理盛举、合奏“一带一路强音”。
 
-#### **简评：**
+主题下将设置六大板块议题，包括“解读中国”、“把握世界变局”、“一带一路合作”、“拥抱产业变革”、“与新技术共舞”和“共享发展”。后疫情时代的全球化成为对话主题。伊利集团和阿斯利康分别与博鳌亚洲论坛签约，成为论坛2021年年会钻石合作伙伴。五粮液集团成为论坛2021年年会荣誉战略合作伙伴。
+![This image has an empty alt attribute; its file name is Picture1-41.png]()![This image has an empty alt attribute; its file name is Picture1-41.png](https://gnews.org/wp-content/uploads/2021/04/Picture1-41.png)
+博鳌亚洲论坛（BoaoForumforAsia–BFA，简称BFA）是一个非政府、非营利的国际组织，也是第一个总部设在中国的国际会议组织。该论坛由菲律宾前总统拉莫斯、澳大利亚前总理霍克及日本前首相细川护熙于1998年发起，2001年2月27日正式宣告成立并通过《博鳌亚洲论坛宣言》、《章程指导原则》等纲领性文件。
 
-前几天才在央视网上面看到一则宣称中共国有2亿人单身，聚合了一股庞大的消费实力，催生了一股新的一人住一人吃一人游的“单身经济”，既然单身都可以撑起一片经济领域的话，现在又来说晚婚、不婚问题加重养老负担和严重拖累国家财政。前脚人社部和财政部发布的通知称从2021年1月1日起，提高基本养老金4.5%，这会却称国家财政养老负担过重，把原因归结在晚婚、不婚群体。一边是“打肿脸冲胖子，然后再哭穷”的虚伪行为，另一边是“自己有问题别人扛责任”的流氓逻辑。
+海南博鳌为论坛总部永久所在地，号称29个发起国。2021年适逢博鳌亚洲论坛成立20周年，感觉中共国整个社会都兴奋起来了。博鳌亚洲论坛2020年因疫情停办。2021年如期举行所谓线下会议，议程发布参加者很多，但从当天会议报道来看，雷声大雨点小：会议简报两篇，会场消息六篇。
 
-根据国家统计局最新发布的中国人口数量有关数据，其中全国农村人口数量有57661万人，占比41.48%，农民没有退休这一说法，没有退休工资可领，即使有中共国宣称的新农保，到底有多少农民有交社保的能力? 有多少农民能领取到养老金? 我想这些上不得台面的数据才是我们想了解却没办法得到的真相，拖累国家财政的绝不是农民群体。经济发展主力军的青壮年劳动力，他们给社会创造财富并缴纳税收，给国家储存财富，他们也不是国家财政负担的累赘。
+会议第一天，就发布了所谓的“重磅”和“旗舰”。所谓“重磅”，是《发布全球经济发展与安全 论坛大会释放积极信息》的报道，即博鳌亚洲论坛秘书长李保东，同湖南省委副书记乌兰、长沙市市长郑建新、联合国驻华协调员常启德、联合国难民署代理驻华代表陈蔚云、经济合作与发展组织驻华高级顾问海博一道，隆重发布博鳌亚洲论坛框架下，又一重要专题会议——全球经济发展与安全论坛大会。
 
-为什么会有现如今的晚婚、不婚问题？你用彩礼、房贷、车贷、教育把已婚的这个群体压榨得狼狈不堪、体无完肤。然后再要求新一代的青年人结婚，以为提供国家劳动力为理由，去生养孩子来分担养老负担。中共国没有免费教育、免费医疗，而那么多养老金去了哪？谁是养老金的最大受益者？了解了这些才能知道为何养老负担严重，别把拖累国家财政的罪名无辜的扣在了晚婚、不婚的问题上！
-（本文仅代表译者个人观点，跟GNEWS平台无关。）
+所谓“旗舰”，是指2021年度《可持续发展的亚洲与世界》、《亚洲经济前景与一体化进程》两份中英文版旗舰报告，牛皮吹得山响，什么“外资在中国聚焦”等。
+![This image has an empty alt attribute; its file name is Picture2-13.png]()![This image has an empty alt attribute; its file name is Picture2-13.png](https://gnews.org/wp-content/uploads/2021/04/Picture2-13.png)
+往年的论坛年会，国家主席、总理、政治局人员参加，今年湖南省委副书记都成了主角。中共国还能活多久，还能举办博鳌亚洲论坛多少次，我们拭目以待。
 
-**新闻链接：**🔗[任泽平：晚婚、不婚问题加重中国养老负担 严重拖累国家财政](https://www.163.com/money/article/G7PS9HOO00259DLP.html)
+参考：[博鳌亚洲论坛官网](https://www.boaoforum.org/)
 
-* * *
+编辑/审核/发稿：正义的小新
+![This image has an empty alt attribute; its file name is 4_April-1.jpeg]()![This image has an empty alt attribute; its file name is 4_April-1.jpeg](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpeg)
+**更多资讯，更多关注**
 
-***审核/校对：**Ting Guo*
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -1,41 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共新医改换汤不换药
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1116639/)
+## 慧眼看世界202104019（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1116746/)
 
-#### 作者：越来越好
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/mediciner.jpg)封面来源：网络图片
 
-4月18日，一名自称北京大学第三医院肿瘤的“张煜医生”，在知乎连发两条动态。在其中一条动态中，他指出，在绝大多数情况下，肿瘤的治疗是不应该会人财两空的，而应该治疗效果比目前更好并且花费更少。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-他认为，目前医疗最大的问题并不是以药养医，而是监督力度缺乏，导致某些医生肆意妄，这也是导致普通民众认为看病难看病贵的重要原因。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-8.jpg)
 
-但笔者并不认同他的观点。目前，救死扶伤的医院变成谋财害命的地方，主要在于中共对医疗卫生的投入严重不足。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-9.jpg)
 
-中共新医改的核心就是取消药品加成，即落实医药分开、药品阳光采购、调整服务价格。让“以药养医”“以药补医”都成为历史。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-8.jpg)
 
-但现实是，2019年，中共中央政府和地方政府在医疗卫生领域的财政支出占总支出的比例为刚刚超过7%，2020年这一数据为7.2%。而国际上该数据的平均水平是14%至20%，相当多的国家占20%以上。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-10.jpg)
 
-自医改以来，政府拨款不断下降，“以药养医”变成“以费养医”，归根到底都是由病人支付，患者承担着大部分医护人员的费用和医院发展建设所需资金。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-10.jpg)
 
-因为我国公立医院一直实施差额拨款，财政拨款占到医院收入的比例大约为7%左右。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-8.jpg)
 
-在取消药品加成后，大多数医院是借债发展，政府财政负责的离退休人员费用、基本建设、重大设备、重点学科发展、承担的公共卫生服务、政策性亏损等又未完善到位，医院还要承担日常运营管理、人员工资、债权等责任，压力大，可持续发展乏力，甚至有些公立医院已经出现入不敷出的亏损局面，
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-8.jpg)
 
-在这种情况下，医院为了能保证职工工资和正常运转，必须对各科室下达指标要求。迫使医生开大处方甚至滥用药物，引导病人做一些不必要的检查等一系列不规范医疗行为。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-8.jpg)
 
-过度医疗之所以成为中共医院普遍现象，正是财政对医疗卫生的投入，压缩人员工资投入，逼良为娼的必然结果！
-（免责声明：本文仅代表作者个人观点，跟GNEWS平台无关。）
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-8.jpg)
 
-**参考媒体链接：**
-【1】[北医三院医生揭露肿瘤治疗黑幕：患者人财两空，多因医生肆意妄为](https://www.sohu.com/a/461484073_120780844)
-【2】[王辰：2020年中国医疗卫生支出占财政总支出7.2%](https://finance.sina.com.cn/meeting/2020-08-08/doc-iivhvpwx9901021.shtml)
-【3】[张毓辉：应确保卫生投入在中央和地方财政中的优先地位](https://cj.sina.cn/article/normal_detail?url=https://finance.sina.com.cn/china/gncj/2020-03-06/doc-iimxxstf6984248.shtml)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-12.jpg)
 
-* * *
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-13.jpg)
 
-***审核/校对：**Ting Guo*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-11.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-10.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-9.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-8.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-8.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/18-6.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0

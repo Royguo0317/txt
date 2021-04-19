@@ -1,39 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港手足集气系列（十五）香港人写给葵青石荫区议员尹兆坚的信
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1116854/)
+## 达扎克的生态健康联盟再次获得纾困金
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1116875/)
 
-搜集整理：阿恩 / 封面合成：文粤
-![pastedGraphic.png]()![pastedGraphic.png](https://gnews.org/wp-content/uploads/2021/04/15-10.jpg)
-**写给****47****人的家书︱香港人写给葵青石荫区议员尹兆坚的信**
+新闻来源：《Daily Caller》| 作者：Dylan Housman | 发布时间：2021年4月16日
 
-亲爱的尹**兆坚先**生：
+翻译/简评：Claire | 校对：Beicy-数学老师 | 审核：万人往 | Page：我是球大哥
 
-尹先生，你好吗？想着也觉奇怪，以前一个电话，一个讯息，就可以即时找到你，现在却要执笔写信，还不知要经过多少天，才能把自己想讲的话带给你。
+[!\[\]()!\[\](https://spark.adobe.com/page/8guFNqk4zcL8b/images/21aea40b-1af9-4cd8-8b39-028798b514dd.jpg?asset_id=657e455b-bbad-484e-baaa-a64fe765e8d4&amp;img_etag=%2221c5079191ca1b2c906e9595b2d5d778%22&amp;size=1024)](https://spark.adobe.com/page/8guFNqk4zcL8b/images/21aea40b-1af9-4cd8-8b39-028798b514dd.jpg?asset_id=657e455b-bbad-484e-baaa-a64fe765e8d4&amp;img_etag=%2221c5079191ca1b2c906e9595b2d5d778%22&amp;size=1024)
 
-相比起其他同事，我跟你共事的时间不长，但在社会气氛最差的时候加入尹兆坚团队，这段时间经历的事，艰苦而不易，但有你在身边扶持和教导，这些苦却成了我人生重要的学习经历。
+**简评：**
 
-虽然我有多年报馆工作经验，报馆节奏急促，本以为自己已练成了一身好武功，对议办的设计工作可以应付自如，但做过才发现……根本是两码子的事！剪片、做文宣、拍摄、管理网络平台、回覆街坊查询，工作永无止境地重复，工作量相比起之前，实在有过之而无不及。身边不少朋友问我为何不放弃这份工作，薪金低，工作量又多，但我总会笑言：“因为尹兆坚值得帮。”我深信其他同事也跟我有一样的想法，所以至今仍努力不懈， 锲而不舍完成你交代的工作。
+非营利组织生态健康联盟被挖出资助武汉病毒研究所进行冠状病毒的功能增强研究，其负责人彼得·达扎克与中共常年合作，共同研究了数百种来自蝙蝠身上的病毒。而生态健康联盟在2021年却再次获得政府的纾困金。
 
-老板，感谢你不是一位镁光灯下的议员呀！不论是镜头前后，你一样务实贴地工作，所以你常笑说自己很惨，很多时做了都没人知道，但你知道吗？自你被捕后，尹办同事不停享受着你一直累积种下来的果：因为你，马拉松审讯当日，因为外面情况混乱，我们不敢离开法院吃饭，几天下来，我们的晚餐都是东北葵黄店餐厅自发为我们送来三文治、炒饭；因为你，我们外出街站都有人送来饮品，为我们打气；因为你，每当尹办有事情需要帮忙时，各位街坊或团体都踊跃举手；因为你，尹办在艰难时刻，仍能享受着美果。
+作为一名身兼要职的美国科学家，达扎克表现出的亲共行为不得不让人怀疑他是否已被中共“蓝金黄”。由于去中共国开展新冠病毒溯源研究直接粉碎了“病毒是来自武汉实验室”的假说，世界卫生组织赴华专家组的专家们被西方媒体群起而攻之。澳大利亚新闻主播在其节目中声称，世界卫生组织专家组关于新冠病毒起源报告的公正性正受到质疑，因为专家组与中共有着不清不楚的关系。
 
-还记得有次街站活动，在午饭时，我问你：“你有没有后悔过做议员？”当时你答我：“不能问后不后悔，我会说选了一条自己觉得正确的路，所以要努力走下去。”坚守公义这条路不易行，在马拉松审讯第二天结束，我拖着疲惫的身躯躺在床上问身旁的丈夫：“为何要他们承受这些？”脑海闪过你们在犯人栏内外的一幕，说着，哭了。丈夫摸着我头答道：“因为他们爱香港，这回合他们帮我们顶住了。”
+作为爆料革命的一员，我们都知道这是中共的把戏，为了掩盖真相，誓把“蓝金黄”进行到底。然而，闫博士冒着生命危险一次又一次地证明了新冠病毒是来自武汉实验室。闫博士表示，病毒的真相与政治无关，而关乎人类存亡。很多与中共勾结的专家及各国政要掩盖病毒真相的证据也被正义力量挖出。中共承认发起生物战只是时间问题。
 
-“我好钟意香港”，但因为你爱香港，所以才会一直坚持，也因为你的坚持，很多街坊因而得到了帮助。漫画是送给你，小编会记住你每句说话，包括你说：“手瓜起腱，硬骨头，撑得住！”感谢老板的付出，也感谢你教导我为何“坚守公义”，为我上了人生的重要一课！
+**原文翻译：**
 
-尹生！撑住！
+## **资助武汉实验室的非营利组织2021年再次获得纳税人的救助**
 
-尹兆坚的小编
+[!\[\]()!\[\](https://spark.adobe.com/page/8guFNqk4zcL8b/images/3b8f20f9-0b25-484b-bbf0-f7455f2c4b6a.jpg?asset_id=a887aa90-550a-4afd-aad4-1e17445fedde&amp;img_etag=%22e625adfba3a9cc7f74dbf7aff213cd04%22&amp;size=1024)](https://spark.adobe.com/page/8guFNqk4zcL8b/images/3b8f20f9-0b25-484b-bbf0-f7455f2c4b6a.jpg?asset_id=a887aa90-550a-4afd-aad4-1e17445fedde&amp;img_etag=%22e625adfba3a9cc7f74dbf7aff213cd04%22&amp;size=1024)(照片由HECTOR RETAMAL拍摄/法新社，盖蒂图片).
 
-**人物介绍：**
+非营利性的生态健康联盟（EcoHealth Alliance）把美国国立卫生研究院（National Institutes of Health）数百万美元的拨款给了武汉病毒研究所（Wuhan of Virology），并于2021年2月获得了纳税人的救助。
 
-尹兆坚（英语：Andrew Wan Siu-kin，1969年6月7日生），[英国](https://zh.wikipedia.org/wiki/%25E8%258B%25B1%25E5%259C%258B)[雅息士大学](https://zh.wikipedia.org/wiki/%25E9%259B%2585%25E6%2581%25AF%25E5%25A3%25AB%25E5%25A4%25A7%25E5%25AD%25B8)[社会学](https://zh.wikipedia.org/wiki/%25E7%25A4%25BE%25E6%259C%2583%25E5%25AD%25B8)学士及社会学文学硕士，[香港理工大学](https://zh.wikipedia.org/wiki/%25E9%25A6%2599%25E6%25B8%25AF%25E7%2590%2586%25E5%25B7%25A5%25E5%25A4%25A7%25E5%25AD%25B8)应用社会科学系的兼职导师。曾任[民主党](https://zh.wikipedia.org/wiki/%25E6%25B0%2591%25E4%25B8%25BB%25E9%25BB%25A8_%28%25E9%25A6%2599%25E6%25B8%25AF%29)副主席和[香港](https://zh.wikipedia.org/wiki/%25E9%25A6%2599%25E6%25B8%25AF)[新界西选区](https://zh.wikipedia.org/wiki/%25E6%2596%25B0%25E7%2595%258C%25E8%25A5%25BF%25E9%2581%25B8%25E5%258D%2580)[立法会议员](https://zh.wikipedia.org/wiki/%25E9%25A6%2599%25E6%25B8%25AF%25E7%25AB%258B%25E6%25B3%2595%25E6%259C%2583)，现为[香港](https://zh.wikipedia.org/wiki/%25E9%25A6%2599%25E6%25B8%25AF)[葵青区议会](https://zh.wikipedia.org/wiki/%25E8%2591%25B5%25E9%259D%2592%25E5%258D%2580%25E8%25AD%25B0%25E6%259C%2583)[石荫](https://zh.wikipedia.org/wiki/%25E7%259F%25B3%25E8%2594%25AD_%28%25E9%2581%25B8%25E5%258D%2580%29)选区区议员。2021年1月6日因参与民主派初选涉嫌干犯颠覆国家政权罪被捕，现被羁押中。
+这是自新冠肺炎大流行以来，生态健康联盟收到的第二笔纾困金。根据监管机构Whitecoat Waste的最新报道，在2020年5月获得$738861美元的纾困金后，生态健康联盟今年2月又获得了$719570美元的纾困金。
 
-**资料来源：**
+纾困金是川普政府和拜登政府共同通过的新冠肺炎救济计划的一部分。
 
-[苹果日报-写给47人的家书︱尹兆坚…](https://hk.appledaily.com/local/20210415/AXX42PRNWFDZ5AUMWVDLRKZ54I/)
+生态健康联盟的负责人彼得·达扎克（Peter Daszak）是由中共国领导的世界卫生组织（World Health Organization）团队中唯一派遣到中共国寻找新冠肺炎起源的美国成员。达扎克过去曾从事基于蝙蝠的冠状病毒功能增强的研究，有人推测这可能在病毒从实验室泄漏而引发大流行中发挥了作用。
 
-审核：卡西欧 /上传：流光飞舞
+3月提起的诉讼称生态健康联盟因没有公布纳税人的资金而违反了联邦法律。至于达扎克，在2021年早些时候被揭发，他隐瞒了自己参与组织“亲中共、反对实验室泄漏理论”的声明。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/8guFNqk4zcL8b/images/96701a88-a035-459c-8d70-561d25894f03.png?asset_id=7aa4bedf-392a-4cbe-b9e3-4fb94c44401e&amp;img_etag=%22b14dd69a711ab02cb17877740e5487f0%22&amp;size=2846)](https://spark.adobe.com/page/8guFNqk4zcL8b/images/96701a88-a035-459c-8d70-561d25894f03.png?asset_id=7aa4bedf-392a-4cbe-b9e3-4fb94c44401e&amp;img_etag=%22b14dd69a711ab02cb17877740e5487f0%22&amp;size=1024)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/8guFNqk4zcL8b/images/f1e79557-1c05-4596-aad0-03daf4e0f411.png?asset_id=3fdd4142-067c-46fe-bc63-50f89de6b0a8&amp;img_etag=%22f9fc5499cb4bf362a23aa32af37a648b%22&amp;size=2609)](https://spark.adobe.com/page/8guFNqk4zcL8b/images/f1e79557-1c05-4596-aad0-03daf4e0f411.png?asset_id=3fdd4142-067c-46fe-bc63-50f89de6b0a8&amp;img_etag=%22f9fc5499cb4bf362a23aa32af37a648b%22&amp;size=1024)
+
+就在新冠肺炎大流行爆发的前几周，达扎克公开讨论了在实验室环境中操纵基于蝙蝠的病毒有多么容易，并详细介绍了他之前在该项目上的工作。作为世界卫生组织调查小组的成员，达扎克说服了其他调查成员，称武汉病毒研究所大量缺失的数据与他们寻找新冠肺炎的来源无关。
+
+由于其曾帮助将美国的纾困金转移到武汉病毒研究所的行为，生态健康联盟一直是实验室泄漏假说的关键部分。该假说认为新冠肺炎在被操纵以进行病毒功能增强的研究后，由实验室事故而泄漏的。
+
+世界卫生组织在月初声称，实验室泄漏理论应该可以排除，然而越来越多的政府官员和媒体人士都表示对实验泄漏理论很在意，因为这可能解释了大流行是如何发生的。
+
+[原文链接](https://dailycaller.com/2021/04/16/ecohealth-alliance-covid-19-coronavirus-peter-daszak-wuhan-institute-virology-lab-leak/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/8guFNqk4zcL8b/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/8guFNqk4zcL8b/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

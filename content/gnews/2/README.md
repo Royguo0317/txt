@@ -1,48 +1,112 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 除了古巴，世界上还有四家自称是共产主义政权的国家
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1117057/)
+## 每日新闻收集【4/18】
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1117340/)
 
-- 作者：gokuabuela
+**西班牙巴塞罗那喜悦农场** wenwu
+
+【以毒灭共】5则推文，如下：
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年4月19日电/西喜社——**
+> 我知道COVID-19病毒的真正来历。 拜登政府掩盖了真相。 美国的钱被用来制造COVID-19病毒。 中国共产党必须被摧毁。 [pic.twitter.com/726EUgb1Sk](https://t.co/726EUgb1Sk)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 18, 2021](https://twitter.com/LawrenceSellin/status/1383676532711858184?ref_src=twsrc%5Etfw)
 
-在21世纪的此时此刻，正式的共产主义政权国家集中在远东四国和古巴。其他的政权–不是正式的共产主义，只是受其传统的滋养，比如委内瑞拉的政权，但只有古巴、中国、越南、朝鲜和老挝在宪法中宣布了他们对马克思的信仰和他们的共产主义基因。
 
-中华人民共和国是1949年10月1日由毛泽东宣布成立的，中国的马克思主义专政在习近平那里重新找到了它的老商标，那就是对当世领袖的人格崇拜，压制一切政治反对派和言论自由是常年的商标，虽然开放了一定的贸易自由，让他经历了经济繁荣，但矛盾的是，中国境内诞生的冠状病毒也在全球范围内大流行。
+1. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1383676532711858184?s=20)**：
+*我知道COVID-19病毒的真正来历。 拜登政府掩盖了真相。 美国的钱被用来制造COVID-19病毒。 中国共产党必须被摧毁*
+*(附爆料革命文宣：Covid-19病毒/中共制造/中共你完了）*
 
-信徒，或者说是中共国的寄生虫，是邻国的政权，比如越南，越南政权也在1986年放开了经济，但没有放弃对权力机关、军队和媒体的绝对控制。1994年美国下令解除封锁后，越南共产党政权迎来了外国投资的 “热潮”。亚洲最贫穷的国家之一老挝也走上了类似的道路，1975年越南战争结束后，老挝落入共产党手中。朝鲜则是共产主义加上蒙昧主义，以及金氏家族的王朝特征。昨天在苏联的支持下，今天在中国的支持下，在核武器的讹诈下，金正恩(金三世)政权已经有10多万名政治犯，并处于另一场饥荒的边缘。
 
-**简评 ：**
+> There is increasing evidence that activities involving Wuhan University with the participation of certain individuals may be intimately linked to the release of [#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#corona](https://twitter.com/hashtag/corona?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/JgfOVtXrTl](https://t.co/JgfOVtXrTl)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 18, 2021](https://twitter.com/LawrenceSellin/status/1383766495449075712?ref_src=twsrc%5Etfw)
 
-突然抬头一看，全世界真正标榜为共产主义的国家只有5家了。
 
-如果我们回头后，30多年前，上个世纪80年代，全世界有多少共产主义国家？
+2. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1383766495449075712?s=20)**:
+*越来越多的证据表明，涉及武汉大学的某些个人参与的活动可能与 #COVID-19 病毒的故意投放有密切相关（舒红兵/江绵恒）*
 
-首先有巨无霸苏联，和它的华约，包括： [苏维埃社会主义共和国联盟](https://baike.baidu.com/item/%25E8%258B%258F%25E7%25BB%25B4%25E5%259F%2583%25E7%25A4%25BE%25E4%25BC%259A%25E4%25B8%25BB%25E4%25B9%2589%25E5%2585%25B1%25E5%2592%258C%25E5%259B%25BD%25E8%2581%2594%25E7%259B%259F/546461)、[德意志民主共和国](https://baike.baidu.com/item/%25E5%25BE%25B7%25E6%2584%258F%25E5%25BF%2597%25E6%25B0%2591%25E4%25B8%25BB%25E5%2585%25B1%25E5%2592%258C%25E5%259B%25BD/1759575)、[波兰人民共和国](https://baike.baidu.com/item/%25E6%25B3%25A2%25E5%2585%25B0%25E4%25BA%25BA%25E6%25B0%2591%25E5%2585%25B1%25E5%2592%258C%25E5%259B%25BD/4461959)、[捷克斯洛伐克社会主义共和国](https://baike.baidu.com/item/%25E6%258D%25B7%25E5%2585%258B%25E6%2596%25AF%25E6%25B4%259B%25E4%25BC%2590%25E5%2585%258B%25E7%25A4%25BE%25E4%25BC%259A%25E4%25B8%25BB%25E4%25B9%2589%25E5%2585%25B1%25E5%2592%258C%25E5%259B%25BD/1760593)、[匈牙利人民共和国](https://baike.baidu.com/item/%25E5%258C%2588%25E7%2589%2599%25E5%2588%25A9%25E4%25BA%25BA%25E6%25B0%2591%25E5%2585%25B1%25E5%2592%258C%25E5%259B%25BD/3573830)、[罗马尼亚社会主义共和国](https://baike.baidu.com/item/%25E7%25BD%2597%25E9%25A9%25AC%25E5%25B0%25BC%25E4%25BA%259A%25E7%25A4%25BE%25E4%25BC%259A%25E4%25B8%25BB%25E4%25B9%2589%25E5%2585%25B1%25E5%2592%258C%25E5%259B%25BD)、[保加利亚人民共和国](https://baike.baidu.com/item/%25E4%25BF%259D%25E5%258A%25A0%25E5%2588%25A9%25E4%25BA%259A%25E4%25BA%25BA%25E6%25B0%2591%25E5%2585%25B1%25E5%2592%258C%25E5%259B%25BD/3496512)、[阿尔巴尼亚人民共和国](https://baike.baidu.com/item/%25E9%2598%25BF%25E5%25B0%2594%25E5%25B7%25B4%25E5%25B0%25BC%25E4%25BA%259A%25E4%25BA%25BA%25E6%25B0%2591%25E5%2585%25B1%25E5%2592%258C%25E5%259B%25BD)。
 
-欧洲还有：南斯拉夫
+> They knew [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) is NOT from nature. 
+> They knew gain-of-function evidence clearly left in SARS-CoV-2 sequence.
+> They knew cheating/misleading of COVID19 origin would hurt the world, including their friends/families
+> WHY STILL INSIST ON IT?🤔[#UnrestrictedScientificMisinformation](https://twitter.com/hashtag/UnrestrictedScientificMisinformation?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/S53MMd7s4v](https://t.co/S53MMd7s4v)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 18, 2021](https://twitter.com/DrLiMengYAN1/status/1383741789035634701?ref_src=twsrc%5Etfw)
 
-亚洲有：中共国，朝鲜，越南，老挝，柬埔寨民主共和国，也门民主人民共和国，阿富汗民主共和国
 
-中南美洲有：古巴
+3. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1383741789035634701?s=20)**：
+*他们知道#COVID19不是来自自然界。
+他们知道SARS-CoV-2序列中明确留下的功能增强证据。
+他们知道欺骗/误导新冠病毒起源会对社会造成伤害，包括他们的朋友/家人****为什么还在坚持 #科学信息误导***
 
-非洲有：埃塞俄比亚人民民主共和国，贝宁人民共和国，安哥拉人民共和国，刚果人民共和国，莫桑比克人民共和国，索马里民主共和国
 
-后面还跟着一堆不是共产主义，但是独裁的国家，比如霍梅尼、萨达姆、卡扎菲等等。
+> [#SARSCoV2](https://twitter.com/hashtag/SARSCoV2?src=hash&amp;ref_src=twsrc%5Etfw), the pathogen causing [#Covid](https://twitter.com/hashtag/Covid?src=hash&amp;ref_src=twsrc%5Etfw), is hardy, mutating faster and becoming more transmissible even as the Northern Hemisphere heads into summer. What the devil is going on? [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Gordon G. Chang (@GordonGChang) [April 18, 2021](https://twitter.com/GordonGChang/status/1383803845478809605?ref_src=twsrc%5Etfw)
 
-而今天呢，就剩5个了。人类走向以普世价值为基础的文明，是大势所趋。共产主义这种反人类的政权，是一定会倒的，这是历史的必然。虽然中共靠着假骗偷，靠着蓝金黄，把魔手伸向了世界，但一旦被认清后，就一定会被灭亡。 最近，古巴的局势也很微妙，劳尔-卡斯特罗宣布辞职，古巴是不是在变化的前夜？其实，灭掉中共，其他几个所谓的共产主义国家都将不成气候，包括伊朗、俄罗斯都会巨变。
 
-灭掉中共，是人类的终极之战，从此，人类文明走向新纪元。
+4. **[章家敦推特](https://twitter.com/GordonGChang/status/1383803845478809605?s=20)**：
+*#SARSCoV2，导致#Covid的病原体，耐寒，变异更快，即使北半球进入夏天，也变得更加传染。到底发生了什么*
 
-审核：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
 
-新闻来源：[ABC新闻](https://www.abc.es/internacional/abci-junto-cuba-solo-4-regimenes-mas-proclaman-comunistas-todos-extremo-oriente-202104180114_noticia.html#vca=mod-lo-mas-p3&amp;vmc=leido&amp;vso=internacional&amp;vli=portadilla.internacional&amp;vtm_loMas=si)
+> Time will tell whether it was the dumbest policy. Scientific bigotry combined with political short-sightedness. [https://t.co/RXgaDxl6iM](https://t.co/RXgaDxl6iM)
+> — 德意志之鹰 (@dezying) [April 18, 2021](https://twitter.com/dezying/status/1383850747830300678?ref_src=twsrc%5Etfw)
 
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
-0
+5. **[德意志之鹰推特](https://twitter.com/dezying/status/1383850747830300678?s=20)**：
+*（美联社）[突发新闻](https://apnews.com/article/politics-anthony-fauci-coronavirus-pandemic-infectious-diseases-coronavirus-vaccine-6e3b18b44a05d1e49ed35337ec7ce969?utm_medium=AP&amp;utm_campaign=SocialFlow&amp;utm_source=Twitter)：疾病控制和预防中心表示，美国一半的成年人现在至少接种了一剂新冠病毒疫苗。近1.3亿人18岁或以上，即50.4%的人至少接种了一剂疫苗
+（德）时间会证明这是否是最愚蠢的政策。科学偏见与政治短视相结合*
+【国际新闻】
+
+
+
+> Trump on opposing Biden's choice of 9/11 for Afghanistan withdrawal date: "First, we can & should get out earlier…Secondly, September 11th represents a very sad event & period for our Country & should remain a day of reflection & remembrance honoring those great souls we lost." [pic.twitter.com/XcqfKFjV8r](https://t.co/XcqfKFjV8r)
+> — Jerry Dunleavy (@JerryDunleavy) [April 18, 2021](https://twitter.com/JerryDunleavy/status/1383852167707062278?ref_src=twsrc%5Etfw)
+
+
+1. **[司法部记者推特](https://twitter.com/JerryDunleavy/status/1383852167707062278?s=20)**：
+*川普反对拜登选择9/11作为阿富汗撤军日期：“首先，我们可以，也应该早点撤军……其次，9月11日对我们的国家来说是一个非常悲伤的事件和时期，应该仍然是反思和纪念我们失去的伟大灵魂的日子。”*
+
+
+> Waters insists that Trump telling protesters to make their voice heard and "fight" for their votes was criminal incitement. Yet, after nights of rioting and looting, Waters told protesters to stay on the streets and get more confrontational… [https://t.co/5c4dJnFxXl](https://t.co/5c4dJnFxXl)
+> — Jonathan Turley (@JonathanTurley) [April 18, 2021](https://twitter.com/JonathanTurley/status/1383795491075334148?ref_src=twsrc%5Etfw)
+
+
+2. **[乔纳森·特里律师推特](https://twitter.com/JonathanTurley/status/1383795491075334148?s=20)**：
+*沃特斯坚持认为，川普告诉国会抗议者让他们的声音被听到，为自己的选票而“战斗”是煽动犯罪。然而，在经历了一夜暴乱和抢劫后，沃特斯告诉国会抗议者呆在街上，要更加（暴力）对抗……
+卡尔·荣格说：“任何让我们对他人感到恼火的事情都能让我们了解自己。”沃特斯和川普的情况似乎确实如此。这也是为什么沃特斯可以证明川普需要呼吁的唯一证人，以击败她自己对他的诉讼
+附[《福克斯新闻》链接](https://www.foxnews.com/opinion/waters-trump-incitement-capitol-riots-minnesota-jonathan-turley)*
+
+
+> 這是美軍水兵發佈的近距離圍觀遼寧艦的照片，其中暗藏玄機啊！箭頭所指処，日本海自“村雨”級護衛艦。原來是一次“美日聯合圍觀”🤣 [pic.twitter.com/XKrW5PUPWC](https://t.co/XKrW5PUPWC)
+> — Dr. Bo 🇺🇸🇹🇼🇭🇰 (@BoDiplo) [April 18, 2021](https://twitter.com/BoDiplo/status/1383780266745819137?ref_src=twsrc%5Etfw)
+
+
+3. **[博博士推特](https://twitter.com/BoDiplo/status/1383780266745819137?s=20)**：
+*这是美军水兵发佈的近距离围观辽宁舰的照片，其中暗藏玄机啊！箭头所指处，日本海自“村雨”级护卫舰。原来是一次“美日联合围观”*
+
+
+> 这几条关于维吾尔人的新闻… 😡😱
+> 1) 网络贩卖维吾尔劳动力（奴工）[https://t.co/uGkmYys863](https://t.co/uGkmYys863)
+> 2) 流亡妇科大夫透露：共产党每日绝育80人次维吾尔人，以达数年之久…[https://t.co/LX2jQwCyUa](https://t.co/LX2jQwCyUa)
+> 
+> 中国共产党的存在是世界之耻，文明之敌…
+> — 德意志之鹰 (@dezying) [April 18, 2021](https://twitter.com/dezying/status/1383787068757659655?ref_src=twsrc%5Etfw)
+
+
+4. **[德意志之鹰推特](https://twitter.com/dezying/status/1383787068757659655?s=20)**：
+*这几条关于维吾尔人的新闻…
+1) [网络贩卖维吾尔劳动力（奴工）](https://news.sky.com/story/amp/new-evidence-of-the-strict-controls-uighurs-face-in-factories-thousands-of-miles-from-home-12276248)
+2) [流亡妇科大夫透露：共产党每日绝育80人次维吾尔人，以达数年之久…](https://www.breitbart.com/asia/2021/04/15/uyghur-gynecologist-says-china-sterilized-80-people-day-years/)
+中国共产党的存在是世界之耻，文明之敌…*
+
+
+> China has agreed to cooperate on climate change for decades yet remains the most polluted nation on the planet. Beijing is deceiving fools like Kerry into thinking “progress” will be made. Reality: CCP is weakening the United States through the issue [https://t.co/MsV6SGewC6](https://t.co/MsV6SGewC6)
+> — Bill Gertz (@BillGertz) [April 18, 2021](https://twitter.com/BillGertz/status/1383833891698475015?ref_src=twsrc%5Etfw)
+
+
+5 **[比尔·格茨推特](https://twitter.com/BillGertz/status/1383833891698475015?s=20)**：
+*（政治）[美国和中共国在一份联合声明中表示，美国和中共国同意“以它所要求的严肃性和紧迫性”共同努力应对气候变化，并承诺加大应对气温上升的努力](https://www.politico.com/news/2021/04/18/us-china-climate-change-urgency-482861)
+（比尔·格茨）中共国几十年来一直同意在气候变化问题上进行合作，但仍然是地球上污染最严重的国家。北京正在欺骗像克里这样的傻瓜，让他们以为会取得 “进展”。现实情况是：中共正在通过这个问题削弱美国的力量*
+
+
++1

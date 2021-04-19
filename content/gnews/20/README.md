@@ -1,53 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104019（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1116746/)
+## 心脏病专家警告疫苗欺诈和疫苗注射引起的超炎症免疫反应
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1116822/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+**作者：**Lance D Johnson 2021-04-15
 
+**翻译：**加拿大温哥华圆成农场 卢卡斯
+![]()![](https://gnews.org/wp-content/uploads/2021/04/456-1.png)图片来源：Lance D Johnson原文
+《自然新闻》一位核物理心脏病专家出现在最近一期的《瘟疫大流行战争室》，警告公众实验性中共病毒疫苗的危险性，并讨论了虚假宣传疫苗疗效在本质上属于欺诈行为。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+理查德·弗莱明博士全面地研究了实验性中共病毒疫苗的临床试验，并非常了解临床试验和疫苗营销活动背后的欺诈行为。弗莱明博士警告说，这些疫苗从未被证明对实现任何人类健康目标有效。疫苗疗效的研究基于随机机会，没有调查病毒荷载量，也没有使用可验证的诊断标准来确定疫苗是否对一个人的免疫系统有任何影响。他还警告说，这些疫苗可导致动物的疯牛病——这种神经损伤的发生是阿尔茨海默氏症和其他通常与老年有关的神经系统疾病发病的前兆。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01-8.jpg)
+**疫苗疗效的确定被基于随机机会而不是可验证的诊断标准确定的**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02-9.jpg)
+“我不是反中共病毒疫苗的人，”弗莱明告班农诉战斗室，”我只是反对坏的疫苗”。弗莱明博士指出，疫苗制造商自己的数据存在根本性的欺诈行为，这些数据被用来虚假宣传该疫苗产品的所谓功效。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03-8.jpg)
+辉瑞、莫德纳和强生疫苗公司都是根据随机机会确定疫苗疗效，绕过可验证的诊断标准，忽略病毒荷载量。根据FDA的紧急使用授权数据，与任何其他疫苗相比，这些疫苗在阻止中共病毒的能力方面没有什么明显的差别。疫苗疗效数据是一种欺诈行为，因为它依赖于非传染性病毒的随机机会和错误夸大的高周期性，来错误地诊断对照组的中共病毒，并夸大疫苗的疗效。这种疫苗在阻止中共病毒方面跟其他疫苗没有什么区别，而且不能评估能导致严重疾病的任何潜在的免疫缺陷。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-10.jpg)
+**中共病毒疫苗将不可避免地导致抗体依赖增强效应，这是一个更大的威胁**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05-10.jpg)
+事实上，疫苗可能会导致更严重的健康问题和免疫系统问题。如果公众继续以如此快的速度接种疫苗，这些个人健康问题将成为公共卫生灾难。抗体依赖增强效应是一个严重问题，这已经在接触中共病毒疫苗的动物实验中被观察到。以前所有针对SARS和MERS设计的中共病毒疫苗的尝试中，以及在制造RSV和登革热疫苗的类似尝试中都导致了抗体依赖性增强现象。虽然抗体在接种疫苗后显著上升，但一旦动物或人再次接触到自然界的病毒，这些抗体会导致过度炎症性免疫反应。这些疫苗接种最终导致动物的致命免疫反应，一旦它们再次接触病毒，就会死亡。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06-8.jpg)
+**疫苗的棘突蛋白合成体会引发严重的炎症，这是许多严重疾病的前兆**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07-8.jpg)
+弗莱明博士说，由疫苗编码的人造棘突蛋白会导致炎症。在上个世纪90年代，他发现炎症会导致心血管疾病。所有中共病毒疫苗都被观察到存在血栓问题，这表明编码的棘突蛋白合成体在人体内表现出警示级别的炎症，尤其是那些已经吃过引发炎症的食物并在动脉中积聚血斑块的人们。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08-8.jpg)
+弗莱明博士警告说，接种中共病毒疫苗将会导致在未来一两年内发生其他的长期性不良反应：”在动物模型中，它们会发展海绵状和疯牛病。我们也知道在它们发展两周后，…什么原因导致阿尔茨海默氏症和神经系统疾病。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09-8.jpg)
+弗莱明的结论是，从统计学上来说，这些疫苗”没有什么显著的好处”，他建议拜登政权呼吁立即评估疫苗”是否有任何可以证明的功效”，”因为它没有”。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-12.jpg)
+**评：**作为全球主义者的马前卒，中共制造和释放中共病毒蔓延并让它蔓延到全世界的目的其实是全球主义者阴谋干倒美国进而通过推行中共病毒疫苗，实现全球大重启和世界新秩序，其最终目的是控制和奴役全人类的；全球主义者在实现他们这个惊人的邪恶计划中的另外一个目的就是全球人口灭绝计划。中共和世界各国全球主义者都是信仰魔鬼撒旦的团伙，他们的信念和最终目的是一致的因而一拍即合。当然这些魔鬼们也各自心怀鬼胎，互相利用，他们所追求的都是自身的权力和利益。在中共释放中共病毒造成全球中共病毒大流行之后，全球主义者控制的政府医疗部门，主流媒体和大科技公司压制有关中共病毒真相的言论以及对预防和治疗中共病毒有最佳效果的硫酸羟氯喹的言论和知识，同时可以夸大中共病毒的死亡率，在不明真相的民众中制造恐慌，其目的是为下一步推行中共病毒疫苗达到进一步控制人类做准备。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-13.jpg)
+在短短不到一年的时间内，纷纷出现了各种中共病毒疫苗，然后上述这些政府、医疗机构、主流媒体和大科技公司，可以夸大疫苗的效果和避谈其副作用，继续欺骗民众接受疫苗接种。而传染速度和致死性更强的中共病毒新变体让人类更加恐慌，更多的不知中共病毒真相的民众趋向于接种中共病毒疫苗。其实这些所谓的新变体就是接受疫苗接种的直接后果，例如有研究表明：南非中共病毒新变体主要出现在那些接受辉瑞疫苗的人群之中；感染该新变体的人群中，接种了辉瑞疫苗的是没有接种任何疫苗的8倍，这说明疫苗根本起不到保护作用[1]。更可怕的是，由中共病毒疫苗引发致命性的凝血块，可以达到大脑、心脏、肺部和其他人体器官，引起梗塞、攻击心脏、肺部炎症以及其他致死性人体袭击，而这方面的死亡人数没有一个被归因于注射中共病毒疫苗所带来的致命性副作用[2]。这些mRNA疫苗能够绑架人体细胞产生棘突蛋白引发血栓，因此mRNA疫苗就是死亡疫苗。热衷于疫苗接种人们被充分愚弄以至于他们自愿签署“疫苗自杀”协议，这是全球人口灭绝计划的一部分议题。全世界的人们都需要知道中共病毒及其疫苗真相、全球主义者的大重启和世界新秩序的阴谋，拒绝接种任何一种中共病毒疫苗；同时要求追究中共病毒的来源和真相，追责中共消灭中共才是最终控制和解决中共病毒的唯一方法。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-15.jpg)
+# ** **
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-11.jpg)
+#### **原文****：** [Lance D Johnson](https://www.naturalnews.com/author/ljdevon), “Cardiologist warns about covid vaccine fraud and hyper-inflammatory immune responses caused by the shots”.  April 15, 2021. [https://www.naturalnews.com/2021-04-15-cardiologist-warns-covid-vaccine-fraud-hyper-inflammatory-immune-responses.html#](https://www.naturalnews.com/2021-04-15-cardiologist-warns-covid-vaccine-fraud-hyper-inflammatory-immune-responses.html)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-10.jpg)
+#### [1]** **[Ethan Huff](https://www.naturalnews.com/author/ethanh)**, “**Covid-19 injections are spreading new “variants” of coronavirus**”.** April 16, 2021.** **[https://www.naturalnews.com/2021-04-16-covid-19-injections-spreading-new-variants-coronavirus.html](https://www.naturalnews.com/2021-04-16-covid-19-injections-spreading-new-variants-coronavirus.html)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-9.jpg)
+#### [2]Mike Adams**, “**April 13th: Vaccine antibodies CAUSE blood clots in the brain, lungs and heart… FDA calls halt to J&J vaccine as deaths accelerate**”.** April 13, 2021.** **[https://www.naturalnews.com/2021-04-13-april-13th-vaccine-antibodies-cause-blood-clots-in-the-brain-lungs-and-heart.html](https://www.naturalnews.com/2021-04-13-april-13th-vaccine-antibodies-cause-blood-clots-in-the-brain-lungs-and-heart.html)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-8.jpg)
+免责声明：文章观点仅代表作者本人，与GNEWS无关！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-8.jpg)
+编辑/发布：比卡丘
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/18-6.jpg)
+20210419
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+#  
 
-本文仅代表作者观点
-
-发稿：Ranting
+#  
 
 0
