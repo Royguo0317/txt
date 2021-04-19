@@ -1,225 +1,201 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 讨论白宫新闻秘书詹·普萨基（Jen Psaki）无法回答有关疫苗和恢复正常生活的问题
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1114397/)
+## 如果你想讨论美国科学的政治化，你应向中共求助，那是真正政治化的地方
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1114436/)
 
 视频内容：
 
-来自真正的美国声音(Real America’s Voice) 2021年4月14日的推文
+来自安妮·卢蒂（Anne Luty） 2021年4月14日的推文
 
-Female Journalist question
+Bannon
 
-女记者提问
+班农：
 
-How do you strike that balance
+Natalie Winters, you’ve done more about wuhan lab.
 
-你如何做到这种平衡
+娜塔莉 温特斯，你做过许多关于武汉实验室方面的报道
 
-between being a model of the public health guidelines
+You’ve done more individual investigate report than
 
-在成为公共卫生准则的范例
+你做过许多的独立调查报道
 
-and also not contributing to this sense of hopelessness
+New York Time, Wall Street journal, Financial Time of London, Washington Post combined.
 
-和没有助长这种绝望感之间
+比纽约时报、华尔街日报、伦敦金融时报、华盛顿邮报的总和还多
 
-Perhaps among people who are skeptical with your vaccine
+Ok, you see this handling
 
-也许在对你的疫苗持怀疑态度的人中
+好的，你看到了这个处理
 
-and maybe feel like getting it would not make a difference in their lives anyway
+Your observations on the handling of J & J fiasco
 
-也许感觉注射疫苗反正不会改变他们的生活
+您对强生和强生疫苗失败的处理意见的观察
 
-Jen Psaki
+Natalie Winters
 
-詹·普萨基
+娜塔莉 温特斯：
 
-sure yeah I think a big part of what we’re trying to do
+Yeah, I think a lot of their frame from the main stream media right now
 
-当然，是的，我认为我们正在尝试做的很大一部分
+是呀，我认为目前来自主流媒体的很多构架
 
-is provide accurate information about
+talking about the politicization of science right now
 
-是提供准确的信息关于
+正在谈论科学的政治化
 
-what getting a vaccine will enable the American people to do
+And Frankly, I think it’s kind missing the mark on that
 
-注射疫苗将使美国人民能够去做的
+而且坦率地说，我认为这有点失误
 
-hence the president gave a prime time address what he said
+I know I always talk about Chinese Communist Party
 
-因此，总统在黄金时间发表讲话说
+我知道我总是讨论中国共产党
 
-if when you get the vac
+but if you wanna talk about the politicization of American science
 
-如果当你得到疫苗
+但是如果你要讨论关于美国科学的政治化
 
-if you when the vaccine’s accessible to you
+and our establishment,  our talking heads , our media head figures
 
-当你可以得到注射疫苗的机会时
+和我们的建制派、我们的政府负责人、我们的媒体负责人
 
-and you get it
+Look to the Chinese Communist Party
 
-而且你得到它
+看看中国共产党
 
-We can work towards having backyard barbecues uh
+because that’s the real politicization is happening
 
-我们可以朝着可以在后院烧烤的方向努力
+因为那是真正正在发生的科学政治化
 
-We’re also had a number of officials out there to convey
+I remember about a week ago
 
-我们也有很多官员要传达
+我记得大约一周前
 
-and we’ve had obviously the CDC has put out guidance that says
+The New York time put up an article
 
-而且显然疾病预防与控制中心已经发布了指南，其中说
+纽约时报刊登了一篇文章
 
-if you’re vaccinated if your neighbors are vaccinated
+talking about Biden regime
 
-如果你注射了疫苗，如果你的邻居都注射了疫苗
+讨论关于拜登政权
 
-you can have dinner inside together
+was going to start investigating politicization science under Trump Administration.
 
-你们可以一起在室内进餐
+将开始对在川普政府领导下的科学政治化进行调查
 
-It’s a pandemic we don’t think it’s easy
+That’s like do that
 
-这是大流行病，我们认为这并不容易
+就像做那个
 
-We know it’s difficult
+how about next time focus on the Chinese Communist Party
 
-我们知道它是困难的
+下次关注中国共产党怎么样
 
-it’s required a lot of sacrifice but at the same time
+subversion infiltration of the American medical establishment
 
-需要很多牺牲，但是与此同时
+颠覆性地渗透美国医疗系统的
 
-We’re trying to provide accurate public health based guidance on
+so I think it’s really hard to kind of look at the American medical establishment
 
-我们正在努力提供有关准确的基于公共卫生的指南
+所以我觉得很难看清美国医疗系统
 
-what people can do once they have taken the vaccine
+who’s responsible for legitimizing and authorized these vaccines
 
-人们接种疫苗后可以做什么
+负责合法化和授权这些疫苗的人的行为
 
-Damon Roberts
+from a clear set of eyes
 
-达蒙·罗伯茨
+从清晰的眼睛
 
-Okay, got it? All straight after that answer?
+When really they are so compromised by Chinese Communist Party
 
-好，知道了吧？在那个回答后都理清了吧？
+当他们真的受到中国共产党的渗透时
 
-Let me ask her question in a more simple way
+Bannon
 
-让我以更简单的方式问她问题
+班农：
 
-Her question is Why would anybody want to rush to get a vaccine
+Are you too we have about 30 seconds left
 
-她的问题是为什么任何人要着急去打疫苗
+你也是，我们还有30秒的时间
 
-When if you get it nothing changes！ Nothing changes！
+Do you believe Boris said about this
 
-人们打了疫苗后，什么也没有改变！什么也没有改变！
+你相信鲍里斯对此说过吗
 
-You can’t go anywhere without a mask
+Do you sense the main stream media a little bit of belly full of Fauci right now?
 
-不戴口罩你就不能去任何地方
+你现在是否感觉主流媒体对福奇有些反弹了吗？
 
-You can’t, now she says you can have dinner
+Raheem
 
-现在她说能（在外面）进餐
+拉希姆：
 
-Well that, she might want to call the great one Dr. Fauci
+Oh for sure, we get definitely
 
-好，她有可能给“伟大的”福奇博士打电话
+哦，确定，我们肯定会
 
-because it’s not what he said this weekend
+You should hear the whispers
 
-因为这不是他本周所说的
+你应该听到窃窃私语
 
-The Stormy Daniels of medicine was and out about in front of the cameras
+The whispers, the reporters will say to people privately
 
-医药界的斯多米 丹尼尔斯(Stormy Daniels:成人电影明星) 在镜头前走来走去
+窃窃私语，记者们会私下对人们说
 
-He has different view of that
+You know on the Morton’s terrorist over the alibi
 
-他对此有不同的看法
+你知道对莫顿关于不在现场的恐怖分子
 
-So they’re not they’re not even on the same page with that
+they are totally different than the, you know
 
-所以他们甚至不在同一观点上
+他们和你所知道的完全不同
 
-But I thought that’s a great question
+the united front, no pun intended
 
-但我认为那是个很棒的问题
+全都聚集在一起，玩文字游戏
 
-If they’re so good,
+they present you know on the television
 
-如果他们是那么的好
+他们在电视上出现的样子，你知道的
 
-if the vaccine is so important
+It’s they really don’t like Fauci
 
-如果疫苗是那么的重要
+其实是他们真的不喜欢福奇
 
-If the vaccines are that effective
+Bannon
 
-如果疫苗是那么的有效
+班农：
 
-which it seems like from all the study
+The Chris Hayes
 
-从所有研究来看
+那个克里斯·海斯
 
-Especially to Israel
+who’s not fun of the show, not fun of me, not fun of Trump.
 
-特别是对以色列来说
+他不喜欢战斗室节目、不喜欢我、不喜欢川普
 
-they have been effective
+Smart guy, You can tell last night
 
-他们一直有效的
+聪明的家伙，昨晚你能看出
 
-700 million people now worldwide
+He was having a tough time with Fauci last night, right?
 
-现在全球7亿人
+昨晚他和福奇谈的很煎熬， 对吧？
 
-Have either gotten their first or complete, completed whatever doses they’ve gotten
+He said this guy spin my head
 
-不管他们是得到第一剂还是已经完成他们应该得到的剂量
+他说这个家伙把我的头都弄晕了
 
-Israel probably has the best information coming out of it
-
-以色列可能会从中得到最好的信息
-
-and some of the studies out of there
-
-而以色列的一些研究
-
-totally go against what she just said
-
-完全与她刚才所说的相反
-
-as far as all of the data so far shows
-
-到目前为止的所有数据显示
-
-That once you’re vaccinated
-
-那些你已经接种过疫苗的人
-
-there’s almost 0% chance that you are spreading the virus
-
-你传播病毒的几率几乎是0％
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
 原视频链接:
 
 
 
-> .[@lfs6b](https://twitter.com/lfs6b?ref_src=twsrc%5Etfw) discuss WH Press Secretary Jen Psaki being unable to answer a question about vaccines and returning to normal life. [pic.twitter.com/uc7j2XFhrc](https://t.co/uc7j2XFhrc)
-> — Real America's Voice (RAV) (@RealAmVoice) [April 14, 2021](https://twitter.com/RealAmVoice/status/1382325267599925248?ref_src=twsrc%5Etfw)
+> "If you wanna talk about the politicization of American science and our establishment, our talking heads, our media head figures, look to the Chinese Communist Party because that's where the real politicization is happening." —[@nataliegwinters](https://twitter.com/nataliegwinters?ref_src=twsrc%5Etfw) [#WarRoom](https://twitter.com/hashtag/WarRoom?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/sEUzx7ObYS](https://t.co/sEUzx7ObYS)
+> — Anne Luty (@anneluty) [April 15, 2021](https://twitter.com/anneluty/status/1382504131319975937?ref_src=twsrc%5Etfw)
 
 
 

@@ -1,26 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 张文宏叫嚣“不打疫苗就死穷人”！
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1114421/)
+## 【香草诗词汇】自由森林
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1114468/)
 
-作者：Stephen文文
+配音：香草山录音组 Swr拥抱太阳
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/041902.jpg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/041903.jpg)
 
-4月10日，中共病毒“四大不要脸”之一的张文宏在重庆医科大学讲座中疯狂叫人打疫苗。张文宏在演讲中称：“如果不抓紧打疫苗，不开放国门，迟早会有经济危机。若真的发生经济危机，先死的是穷人而不是富人。”企图恐吓老百姓打疫苗。
 
-张文宏在公开场合如此嚣张的恐吓民众去打疫苗，可见中共的疯狂程度，中共利益家族妄图通过疫苗经济收割经济利益。因为有利益家族撑腰，张文宏才有恃无恐的威胁他所谓的“穷人”；也有可能张文宏也是被利益家族所威胁，不得不如此赤裸裸的威胁“穷人”去打疫苗。
 
-从张文宏的狰狞表现可以看出中共的疫苗经济进展的并不是很顺利，多数“穷人”并不买账，对中共疫苗的安全性和有效性不认可。从张文宏的演讲中也可以看到中共对“经济危机”以及“脱钩”的预判和恐惧，张文宏只是简单的从疫苗、国门开放的角度来说必将发生的经济危机的。而事实上，中共国的经济危机来源于全世界与中共国的脱钩。中共明确知道全世界一定会因病毒真相而与中共脱钩，经济危机必然发生。中共利益集团在最后的阶段要用疫苗经济收割百姓，却没有达到预期，必然指挥其前台“四大不要脸”疯狂表演与叫嚣。
 
-我们目前还并不完全了解中共疫苗的长期副作用，如长期副作用严重，危害过亿人民的身体健康，“四大不要脸”一定会和中共家族利益集团一起被钉上历史的耻辱柱。
 
-[援引原文](https://m.weibo.cn/status/KaTfDp2Gl?jumpfrom=weibocom)
 
-审核校对：鲁邦五世
-上传排版：糖果儿
+一
+
+我们的性情近植物:安静、平和
+
+春天我们用繁花装扮自己
+
+秋天我们用沉甸甸的果实款待路人
+
+我们的执着像树，屹立万年
+
+我们的耐心像藤蔓，千万次缠绕，追逐阳光
+
+我们的不幸是遇到伐木的暴徒：山河破碎
+
+但柔弱的玫瑰也藏有刺，我们已醒来
+
+草木皆兵，落花成箭，大地必繁花盛开
+
+
+
+文字版原文：[【香草诗词汇】自由森林](https://gnews.org/zh-hans/968463/)
+
+作者：纽约香草山农场 木白
+
+
+
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

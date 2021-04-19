@@ -1,23 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加州众议员称中共最终目标是击垮美元
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1114277/)
+## 布林肯警告中共不要侵犯台湾
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1114313/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Y-3.jpg)money.cnn.com
-福克斯新闻报道，在“周日早间期货”的采访中，加州众议员德文·努内斯（Devin Nunes）认为中共并没有认真对待拜登政府，他们的最终目标是让美元贬值。
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/T-15.jpg)indianexpress.com
+美国军事新闻网报道，美国国务卿布林肯(Antony Blinken)警告中共不要侵犯台湾，并指责中共政府隐瞒疫情真相加速了中共病毒的传播。
 
-努内斯嘲笑拜登政府，他说拜登政府对中共政策并不是罗纳德·里根(Ronald Reagan)过去常说的“通过力量实现和平”，而是“雷声大雨点小”，虚张声势。中共的最终目标是击垮世界储备货币的美元。
+在接受美国全国广播公司新闻采访时，布林肯对中共在台湾海峡的“侵略行动”引发的紧张局势表示担忧，并表示美国坚持其确保台湾自卫的承诺。
 
-中共想做的是让人们不再信任美元，中共则从中获益。所以中共不把拜登当回事，因为中共了解白宫和民主党是虚伪的。
+布林肯周日在《与媒体见面》(Meet the Press)节目中表示:“任何人试图以武力改变现状，都将是一个严重的错误。”他说，他不会猜测美国可能做出的回应。
 
-努内斯同时指责左翼控制社交媒体，审核过滤信息传播，正如中共在这个领域的所作所为一样。中共每天都在努力击垮美元地位，而民主党不仅无所作为维护美国利益，还给中共提供帮助。
+布林肯还表示，他正在与欧洲盟国就俄罗斯在乌克兰边境部署军队的问题进行接触，他说，这是自2014年俄罗斯入侵乌克兰东部以来的最高水平。拜登总统已经明确表示，“如果俄罗斯鲁莽行事或咄咄逼人，就会有代价，也会有后果。”
+
+知情人士说，布林肯本周将返回布鲁塞尔，与北约和欧洲官员举行更多会谈，因为美国对军队的调动越来越担心。美国国防部长奥斯汀(Lloyd Austin)将在布鲁塞尔与北约秘书长斯托尔滕贝格(Jens Stoltenberg)举行会谈。
+
+乌克兰只是拜登和他的政府面临的一系列全球性挑战之一。中共最近对台湾的威胁引起了广泛关注。
+
+布林肯支持白宫关于中共对待维吾尔族是种族灭绝的说法，他说，美国需要考虑将该地区制造的中共国产品拒之门外。同时强调，相比之下，现在讨论抵制明年的北京冬奥会还为时过早。
+
+布林肯重申了美国政府对中共的批评，即中共在去年中共病毒疫情爆发初期未能“提供真正的透明度”。这一失败的一个结果是病毒“失去控制的速度更快”， “产生的结果更加恶劣”。 他强调，“这就是为什么我们需要弄清这件事的真相。”
+
+美国对中共的态度日益明朗，灭白计划和攻击美元体系已经让美国彻底认清中共的脸孔，为维护美国利益，灭共是最好的选择。
 
 参考链接：
 
-[https://www.foxnews.com/politics/nunes-chinas-laughing-at-biden-admin-over-foreign-policy](https://www.foxnews.com/politics/nunes-chinas-laughing-at-biden-admin-over-foreign-policy)
+
+
+> [Blinken warns China on Taiwan encroachment, Russia on Ukraine](https://americanmilitarynews.com/2021/04/blinken-warns-china-on-taiwan-encroachment-russia-on-ukraine/)
+
+
 
 0

@@ -1,21 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 未来推演-股债双杀！
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1114023/)
+## 【有声读物】日本首相访美，两国领袖誓言坚定联手抗中，历史意义重大
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1114135/)
 
-撰稿：两万五，爆大料
-![]()![](https://gnews.org/wp-content/uploads/2021/04/191-2.png)图片来自网络截图
-2021年4月18日七哥在盖特中说到，CCP目前一反常态在大量买入美国国债。美国财政部周四公布的数据，中国持有美国国债的数量在2月份增加了90亿美元，达到1.1万亿美元，是2019年7月以来最高的总量。七哥也提到美股的未来走势，尤其是金融股，七哥说目前金融股有人带头跑，后面的跟跑。查看美国证券各大板块，其中保险板块已经创出了历史新高，点位达到1419点（同花顺软件），商业银行板块点位在1200点的高位附近徘徊。那如何解读七哥盖特发的内容呢，本文接下来分析。
+配音：香草山录音组 蒙古鸿雁
 
-记得七哥讲过，不出一年，美国股市会出现大问题。本文推测原因有三点，第一为目前大量货币超发，造成以货币计价的商品大幅上涨，以虚拟货币上涨最为明显，如4月15日，狗狗币大涨，总市值一度突破600亿美元。值得注意的是，从2020年3月13日低点0.001158美元算起，13个月的时间，狗狗币价格最高上涨405倍。第二为中共病毒对美国经济的打击，造成大量失业及企业的停工，多数上市公司业绩大幅下滑。第三点，也是最重要的一点，中美金融开战！随着病毒真相的推进，中共必定会与美国彻底脱钩。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-在中共与美国进行终极金融战的时候，中共会如何打击美国？其手段就是通过抛售推高的美股，向市场投放手中拥有天量的美债，达到股债双杀的目的。同时配合其它国家从美国联邦储备银行撤走黄金储备和中共数字货币的推出，必定会给美国金融市场带来山呼海啸般的地震。
 
-本来中共在去年一直在向市场抛售美债，2020年底，中国共抛售了383亿美元的美债，总额降至10540亿美元。目前反常的购买，可能台湾战争时间点要提前了，中共在为终极金融战做准备。2021年中共大幅增加玉米的进口达到同期的437.8%，这明显是为打仗做屯粮的准备。
 
-（文章内容仅代表作者观点）
 
-*审核：Runaway 编辑：MG1*
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
+
+
+
+据法国国际广播电台4月17日报道，美国总统拜登昨日在华府，与到访的日本首相菅义伟举行峰会。两国领袖誓言坚定联手抗中、加速因应气候变迁及5G网络方面合作。此外会后的声明中，还写入了对香港等的人权状况共同严重关切，美日首脑还确认将在中共新冠疫情上加强合作。
+
+拜登在这场领袖峰会上告诉菅义伟，日本享有美国在安全和其他议题上「钢铁般的支持」，体现了美国视日本为最重要的坚定盟友，承诺将给予最坚强的支持。
+
+文字版原文：[【热点播报】日本首相访美，两国领袖誓言坚定联手抗中，历史意义重大](https://gnews.org/zh-hans/1109580/)
+
+作者：香草山健身部 Jack Li文阳
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 0
