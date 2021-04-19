@@ -1,61 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】日美首脑新时代全球伙伴关系联合声明
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1113548/)
+## 【世事解评】乌克兰东部局势紧张
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1113797/)
 
-作者：纽约香草山信息部 6zero4
+作者：教育部 孤独的战友
+
+翻译：Nancy
+
+**导读：**默克尔（Merkel）、马克龙（Macron）和塞伦斯基（Selenskyj）要求俄罗斯从乌克兰边境撤军 沃洛迪米尔-塞伦斯基（Wolodymyr Selenskyj）希望与普京进行会谈。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-37.png)
+据奥地利标准报2021年4月16日报道，在因乌克兰东部冲突所召开的危机视频会议上,  德国总理默克尔(Merkel)和法国总统埃尔-马克龙(El Macron) 呼吁俄罗斯沿乌克兰边境撤军。据报道，俄罗斯没有被邀请参加这次视频会谈。周五晚间，默克尔在柏林表示，实现乌克兰边境局势缓和的唯一途径就是撤军，法国总统马克龙对此表示认同。乌克兰总统沃洛迪米尔-塞伦斯基  (Volodymyr Selenskyj ) 在视频通话后表示，希望与俄罗斯同仁弗拉基米尔-普京 (Vladimir Putin) 在克里米亚进行和平谈判。
+
+标准报指出，亲俄的分离主义分子控制乌克兰东部沿俄罗斯边境地区已近7年。在此期间，该地区冲突时有发生，据联合国估计伤亡人数已达13000人。最近的紧张局势是由于俄罗斯在乌克兰边境东部部署新的兵力造成的。两周前，默克尔和马克龙还曾与克里姆林宫领导人通过电话。随后，普京就对 “乌克兰挑起了武装对抗升级 “，这引起了国际社会对该地区出现冲突升级的担忧。
+
+乌克兰总统塞伦斯基  （Selenskyj）在视频通话后表示，他希望与俄罗斯普京总统在克什米尔举行峰会。据报道，法国、德国、俄罗斯和乌克兰未来准备在诺曼底举行四方会议。
+
+马克龙此前曾在巴黎接见过塞伦斯基。法国总统府表示，乌克兰国家元首的访问为会谈注入了新的动力，他们会尽所能，让俄罗斯回到谈判桌上来。据塞伦斯基（Selenskyj）说，德国和法国计划在下周一举行新的咨询会谈，以便对冲突进行调节。
+
+据报道，默克尔和马克龙在视频会议后强调 “支持乌克兰的独立、主权和领土完整”。
+
+译者评：为缓解乌克兰东部边境冲突，2019年底，在默克尔和马克龙的斡旋下，普京和塞伦斯基曾在巴黎首次会面。然而，自那时以来，达成重大和解和举行后续首脑会议的希望并未实现。目前边境地区约有10.2万名俄罗斯士兵。据了解，到4月20日，这一部队集结还会增加到11万人。俄罗斯此时挑起边境冲突，目的何在，有待观察。
+
+审核/发稿 奇门遁甲
+
+Link: [Merkel, Macron und Selenskyj fordern russischen Truppenabzug von der ukrainischen Grenze – Ukraine – derStandard.at › International](https://www.derstandard.at/story/2000125912898/ukrainischer-praesidentselenskyj-bereit-zu-friedensgespraechen-mit-putin)
 
 
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-4月16日，美国总统拜登在白宫与日本首相菅义伟会晤后发布联合声明，承诺建立坚不可摧的、坚如磐石的联盟，维护以普世价值和共同原则为基础的地区与全球秩序，促进印太地区的和平、安全与繁荣。这是他担任美国总统以来首次接受外国领导人的访问。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-308.png)
-
-联合声明第一部分的主旨是，打造自由开放的印太联盟。两国首脑就中共国对印太地区乃至世界秩序的威胁和破坏活动表达了严重关切，包括中共国在东海和南海地区对国际航海与航空自由的威胁，对香港、新疆、台湾和缅甸区域的巨大威胁与破坏。两国首脑承诺进一步加强美日联盟关系，加强军事威慑和应对能力，加强并深化包括网络信息和空间技术在内的所有领域的防务合作，并致力于美军在印太地区重新部署的安排，同时两国将继续加强与澳大利亚和印度的四方协作，并加强与东盟和韩国在印太地区的合作，以适应日益严峻的印太安全环境。美国重申，根据《美日相互合作与安全条约》，美国坚定不移地支持日本增强包括核武在内的全方位防卫能力，并事实上承认日本对钓鱼岛的主权。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-309.png)图源网络
-
-联合声明的第一部分意味着，自二战战败后，日本被美国用和平宪法套在头上的“紧箍咒”被美国亲自正式拿掉，犹如如来佛祖亲自拿掉孙悟空头上的紧箍咒一样，标志着神通广大的日本在国防军事上地彻底解放。对于拥有强大军事科技潜能和彪炳战史的日本，重建日本国力、重振日本军事雄风、取代中共国充当美国在印太地区的代理人的时机完全成熟。美国以日本牵制、对抗、压制乃至消灭中共的战略，一石多鸟、一气呵成，让人拍案叫绝！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-310.png)图源网络
-
-联合声明的第二部分主旨是，与日本建立一个新时代下的坚实联盟。两国首脑启动了一项新的竞争力和适应力伙伴关系，侧重于：1）竞争力和创新、2）COVID-19应对和全球公共卫生安全、3）绿色增长和经济复苏。两国首脑将深化在数字经济和贸易、生命科学和生物技术、人工智能、5G无线网络、量子信息科学、民用空间等领域的新兴技术研究与合作，同时加强两国在芯片等敏感供应链上的合作，继续着力解决非市场行为和不公平贸易做法的问题，包括侵犯知识产权、强制技术转让、产能过剩问题以及扭曲贸易的产业补贴，促进和保护对两国的安全和繁荣至关重要的关键技术，提高各自和共同的竞争力，重建印太地区新秩序。联合声明支持对新冠疫情的源头进行透明、独立的评估和分析，不受外界干扰和影响，并对未来不明原因的疫情进行调查。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-311.png)图源网络
-
-联合声明的第二部分意味着日本自二战战败后在政治、经济、科技、文化等各方面都不同程度被以美国为首的国际社会监督和压制的状况彻底得到解放。日本拥有堪比西方贵族精神的武士道精神和人文底蕴，加上其在文化教育和科技创新等方面的坚实基础，以及日本人独特的团队合作精神、永恒的忧患意识和罕见的工匠精神，完全松绑的日本成为印太地区制衡甚至压制中共国的中流砥柱的角色呼之欲出！
-
-至于有人担心全面松绑的日本是否会重蹈给世界造成巨大灾难的军国主义覆辙，我认为受和平宪法约束和改造70多年的日本已经脱胎换骨。文化上脱亚入欧的日本已经完全融入西方文明，日本人被公认成为世界上最受欢迎的国民，以及日本护照俨然成为世界上免签国家数目最多的事实足以证明，因和平发展而社会富足并受世人尊敬和喜爱的日本，将是紧跟美国维系普世价值和拥抱西方主流文明的印太中心力量。更因为日本源于东方文明，其比西方国家更加了解东亚儒家文化，尤其是几千年的中国封建文化，亦能深刻认识中共没有底线的Low，将成为对抗中共的第二股国家级力量——文贵先生引领的爆料革命、新中国联邦是目前唯一对中共有深入了解后与其对抗的力量。这次联合声明是世界灭共事业里程碑般的事件！
-
-参考阅读：
-
-[U.S.- Japan Joint Leaders’ Statement: “U.S. – JAPAN GLOBAL PARTNERSHIP FOR A NEW ERA”](https://www.whitehouse.gov/briefing-room/statements-releases/2021/04/16/u-s-japan-joint-leaders-statement-u-s-japan-global-partnership-for-a-new-era/)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
 
 **更多资讯，更多关注**
 
 [**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
+![](https://mail.google.com/mail/u/0?ui=2&amp;ik=6ac942a4c5&amp;attid=0.1.1&amp;permmsgid=msg-f:1697211554661162166&amp;th=178db4eab0445cb6&amp;view=fimg&amp;sz=s0-l75-ft&amp;attbid=ANGjdJ_BYMOa49wWkjZNJHHx0uOXcV6mo0Djq5x1efflmXObW40H0H_aAH8QPGnry018k4VgosgARDXdpBGlCPwAsaUIPQNAJ4FSiPt6zapimj8xSx6q0ZATYtuXKUg&amp;disp=emb)
 0

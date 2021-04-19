@@ -1,25 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共加大爱国教育清除“西方崇拜”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1113604/)
+## 路简2012.4.17晚：美日新时代全球伙伴关系联合声明
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1113761/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+**作者：华盛顿DC农场 路德简报项目组**
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/X-2.jpg)qz.com
-《日经新闻》报道， 随着中国共产党100周年纪念日的临近，中共当局加大了爱国主义教育力度。政府已下令中小学图书馆清除那些可能导致崇拜西方的书籍，全力推广习近平思想。
+1.美日新时代全球伙伴关系联合声明 共同武力抵制中共
 
-教育部公布的这一举措于4月1日左右生效。小学、初中和高中将重点关注所谓的习近平思想，官方名称为“习近平新时代中国特色社会主义思想”。学校的书架中填满了类似“中国梦”等习近平演讲和文档书籍。这项政令将影响全国2.4亿中小学生，包括幼儿园学生。明确的目标是培养忠诚和奉献，忠于习近平的新一代接班人。
+2.美日联盟： 建立自由开放的地区 对日本军事全面解封
 
-为了进行洗脑教育，所有被认为与党的议程和政策相悖的书籍被列为清除目标。
+3.美日科技全面合作
+![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/20120417-2_01-1024x420.jpg)
+- ![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/20120417-2_02-347x1024.jpg)
+- ![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/20120417-2_03-347x1024.jpg)
 
-宣扬某些西方思想或倾向于“谄媚地拥抱一切外国事物”的书籍都被禁止。政策含义可以有广泛的解释，所以儿童使用的外国读物可能也在被禁止的行列。宗教书籍面临着更严厉的打击。与政党宗教政策相抵触的书籍以及那些有助于改变宗教信仰的书籍都是被禁止的。人们担心对学校图书馆的严格控制会蔓延到其他图书馆和书店。有小学老师指出“为孩子选择阅读的书籍变得越来越困难。”
+![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/20120417-2_04-1024x120.jpg)
 
-1966年中共中央在开展文化大革命的《十六条》中强调毛泽东的指示，说“在这场文化大革命中，必须彻底改变资产阶级知识分子统治我们学校的现象。”习近平再次重复文革老路。
 
-参考链接：
+> 2021年4月17日 路德时评 晚 
+> 
+> 1.美日新时代全球伙伴关系联合声明 共同武力抵制中共
+> 
+> 2.美日联盟： 建立自由开放的地区 对日本军事全面解封
+> 
+> 3.美日科技全面合作 [pic.twitter.com/mf2KsNh54y](https://t.co/mf2KsNh54y)
+> — 平民爆料 (@WM18320321) [April 18, 2021](https://twitter.com/WM18320321/status/1383762211059896333?ref_src=twsrc%5Etfw)
 
-[https://asia.nikkei.com/Politics/China-purges-school-libraries-of-Western-veneration2](https://asia.nikkei.com/Politics/China-purges-school-libraries-of-Western-veneration2)
+
+
+***发布**：文顾*
+
+
 
 0

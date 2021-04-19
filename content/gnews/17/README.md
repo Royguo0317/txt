@@ -1,44 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 多数美国人希望终止最高法院法官的终身任命
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1113542/)
+## 【有声读物】离开本地、本族、父家，往我所要指示你的地方去
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1113665/)
 
-- 作者：里奇
+作者：香草山福音部  英子
+配音：香草山录音组 Kikii
 
-
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-**西班牙2021年4月18日电/西喜社——**
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/us-supreme-court-building-2225765_640.jpg)网络图片
-
-益普索（Ipsos）对路透社（Reuters）进行的一项民意测验显示，大多数美国人希望终止美国最高法院大法官的终身任命，不过不到一半的人支持其它司法改革。
-
-周四和周五进行的全国民意测验发现，有63％的成年人支持最高法院大法官的任期限制或年龄限制。另有22％的人表示他们反对任何限制，其余人未发表意见。
-
-调查还发现，只有38％的人数支持增加四名法官来扩大法院规模。另有42％的人表示反对这样做，其余的人则不确定。
-
-自由主义者和一些法律学者一直在推动司法改革，因为国会的共和党领导人在过去几年中建立了6比3的保守派最高法院多数席位，部分原因是阻隔了民主党候选人，并允许共和党前总统唐纳德·川普在他的任期中挑选任命了三位大法官。
-
-周四，一些民主党立法者提出立法，将最高法院扩大至13名法官，他们认为此举将恢复公众对司法部门的信心。而民主党的领导对推行这一路线的想法似乎很冷静。
-
-总统拜登（Joe Biden）成立了一个由两党组成的委员会，旨在研究增加大法官人数的优点，以及其他的法院潜在改革措施。
-
-尽管国会有权改变法院大法官的人数，但法律学者认为，这可能需要对宪法进行修正，以终止大法官的终身任命。
-
-调查发现，只有49％的美国人对最高法院大法官的判决有“很大”或“相当大”的信心。相比之下，有43％的受访者对白宫的决定表示了类似的信任，而32％的受访者对国会的决定表示了相同的信任。
-
-路透社/益普索（Ipsos）民意调查是在整个美国以英语在线进行的。该调查收集了1,003位成年人的反馈。调查结果的可信区间为精确度4个百分点。
-
-**简评: 从2020年美国总统大选整个过程所发生的种种荒唐事件中，人们不难看出中共对美国整个体系的“蓝金黄”起到了难以想象的巨大作用，神圣如最高法院这样的部门都失去了其最基本的职守。正如郭文贵先生说的，美国的大乱需要大治。美国需要借此次病毒危机清理其内部机制、恢复其民主灯塔的标杆角色，才能引领世界重新走向和平正义。**
-
-素材：里奇；初审：Ranting；终审：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
-
-**新闻来源:** [路透社](https://www.reuters.com/business/legal/most-americans-want-end-lifetime-supreme-court-appointments-2021-04-18/)
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
+
+
+
+
+
+自从2017年参与爆料革命以来，我实在敬佩文贵先生和我们的女英雄科学家闫丽梦博士。文贵先生预备了三十年反共，有一天终于离开了养育他的父母，也离开了他的家人、亲朋好友、同学同事，来到美国，开始了反共灭共爆料革命；而我们的女英雄科学家也因香港事件，CCP病毒事件看到了CCP的邪恶，毅然离开了她曾经爱过的，并与她一同过着 “居里和居里夫人”般志同道合的丈夫，离开了身在中国的父母，还有那座美丽的城市——香港，以及世界最顶级的实验室，只身一人来到美国，加入爆料革命，揭露CCP病毒的真相。
+
+文字版原文：[【信仰之声】离开本地、本族、父家，往我所要指示你的地方去](https://gnews.org/zh-hans/1068242/)
+
+音频处理/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

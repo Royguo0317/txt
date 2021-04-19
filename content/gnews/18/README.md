@@ -1,226 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第206节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1113561/)
+## 美媒继续揭露中共爪牙达扎克
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1113690/)
 
 俄罗斯莫斯科喀秋莎农场   仰望七星
 
 编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/L-6.jpg)thefederalist.com
-第206节. 中共国在国际组织中的影响力报告
-
-本节为“标题2——联盟和伙伴关系的投入”中，“副标题A——战略和外交事务”的第206节，副标题A的“第201节. 确定适当的国会委员会、第202节. 美国对印太盟国和伙伴的承诺和支持、第203节. 与四国合作的国会意识、第204节. 与东盟合作政策的声明、第205节. 加强美国与东盟技术合作的国会意识，这些技术合作与中共国有关”，没作翻译。
-
-本节要点：
-
-在本法颁布之日起180天内，提交中共国在国际组织中扩大影响的报告，报告内容有4大项，12分项，包括，中共在国际组织中过去10年的影响，这种影响是如何扩大的，跟踪与中共国投票模式一致的国家投票模式，担任D-1级或以上领导职务的中共国公民人数，在国际组织的术语和程序中，
-中共国在国际组织中扩大影响力的目的和最终目标，以及所采取的策略和手段包括-鼓励中共国公民加入和竞选国际组织的领导职位，向国际组织提供的经济或其他奖励，包括技术或货物的捐赠。
-
-欲了解更多的內容，请看本节全文（仅供参考）：
-
-（a）需要的报告 – 在本法颁布之日起180天内，国务卿应与国家情报总监协调，向参议院外交关系委员会和情报特别委员会、众议院外交事务委员会和常设情报特别委员会，提交中共国政府和中国共产党在国际组织中扩大影响的报告。
-
-（b）内容 – 第（a）小节要求的报告应包括以下分析：
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/B-33.jpg)organicconsumers.org
+随着爆料革命的深入，美国人民越来越了解了中共病毒的真相，清楚了美国“卖国贼”达扎克之流的本来面目，《门道专家》发文，题目“非营利性组织’生态健康联盟’（Eco Health Alliance）获得了超过100万美元的美国资助，而该联盟的负责人却在推动虚构的武汉海鲜市场阴谋”。【1】
 
-（1）中共国和中国共产党在国际组织中过去10年的影响，这种影响是如何扩大的，包括-
-（A）跟踪与中共国政府投票模式一致的国家投票模式；
-（B）担任D-1级或以上领导职务的中共国公民人数；
-（C）在中共国通过有组织的自愿和强制性的资金供给变化；
-（D）在国际组织的术语和程序中，采用中国共产党的表达方式和倡议的；
-（E）中共国确保其外交政策倡议合法化的企图，包括“一带一路”倡议；
-（F）由中共国政府资助的初级专业人员的数量；
-（G）中共国政府或中国共产党操纵秘密或其他非公开的投票措施、投票机构或投票策略；
-（H）在中共国注册成立的技术公司的范围，或者中共或中共国利益拥有者，向国际组织提供设备和服务的范围；以及
-（I）中共国驻联合国代表团在联合国发起的对美国批评的努力，包括任何突出美国延迟付款的努力，或歪曲美国对联合国及其专门机构和项目义务捐款和分摊总额的努力。
+全文如下：
 
-（2）中共国和中国共产党在国际组织中扩大影响力的目的和最终目标，包括分析中共国政府和中国共产党的战略文件和言论。
+皮特·达扎克（Peter Daszak）管理的“生态健康联盟”获得了超过一百万美元的赠款，达扎克却致力于掩盖中共病毒来源。
 
-（3）中共国和中国共产党为实现扩大在国际组织中影响的这一目标，所采取的策略和手段包括-
-（A）鼓励中共国公民加入和竞选国际组织的领导职位；
-（B）对本组织其他成员的胁迫性经济行为和其他行为；以及
-（C）向国际组织提供的经济或其他奖励，包括技术或货物的捐赠。
-（4）中共国和中国共产党的成功与失败对国际组织影响的努力。
+《每日电讯报》（The Daily Caller）报道说：
 
-（c）表格-根据第（a）小节提交的报告应以非保密形式提交，但可包括保密附件。
+非营利性组织“生态健康联盟”，这个向武汉病毒学研究所（Wuhan Institute of Virology）提供了数百万美元的国家卫生研究院（National Institutes of Health）拨款的组织，2021年2月又获得了纳税人支付的救助。
 
-（d）定义- 在本节中，“国际组织”一词是指：
-（1）非洲开发银行
-（2）亚洲开发银行
-（3）亚太经济合作组织
-（4）国际结算银行
-（5）加勒比开发银行
-（6）联合国粮食及农业组织
-（7）国际原子能机构
-（8）国际振兴开发银行
-（9）国际度量衡局
-（10）国际商会
-（11）国际民用航空组织
-（12）国际刑事警察组织
-（13）国际金融公司
-（14）国际农业发展基金
-（15）国际水文组织
-（16）国际劳工组织
-（17）国际海事组织
-（18）国际货币基金组织
-（19）国际奥委会
-（20）国际移民组织
-（21）国际标准化组织
-（22）国际可再生能源机构
-（23）国际电信联盟
-（24）经济合作与发展组织
-（25）禁止化学武器组织
-（26）联合国
-（27）联合国贸易和发展会议
-（28）联合国教育、科学及文化组织
-（29）联合国工业发展组织
-（30）联合国训练研究所
-（31）联合国停战监督组织
-（32）万国邮政联盟
-（33）世界海关组织
-（34）世界卫生组织
-（35）世界知识产权组织
-（36）世界气象组织
-（37）世界动物卫生组织
-（38）世界旅游组织
-（39）世界贸易组织
-（40）世界银行集团
-（本节完）
+这是自中共病毒疫情以来，“生态健康联盟”第二次接受救助，根据监管机构Whitecoat Waste的最新报告，在2020年5月获得738,861美元的救助后，“生态健康联盟”在今年2月又获得了719,570美元。
 
-这是要根除邪共影响的节奏，在文贵先生引领下的爆料革命终于让美国高层有了较清醒的认知，让世界看到了灭共的希望，以毒灭共，以钱灭共，现在又加上以法灭共，共产党你完了！
+这个“生态健康联盟”由皮特·达扎克管理，之前我们在《门道专家》报道过他。
 
-原文链接：
+2020年初，达扎克与其他人合作，掩盖中共病毒的真实来源。中共病毒是在美国科学家的协助下，在美国政府的资助下，在中共的一个实验室里制造的人工病毒。
 
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+他们这样做是为了保护中共国（与之相关的）人，同时也是为了保护华盛顿利益攸关，以及其他具有国际金融利益的人，如果人们普遍认为中共制造了中共病毒，他们在中共国的投资将处于危险之中。
 
-文字整理：
+达扎克正在推动一个理论，即中共病毒在2020年2月起始于武汉海鲜市场，这保护了中共国和像他这样的美国人，让他们不会因为先前的工作而与病毒联系在一起。
 
-SEC. 206. REPORT ON CHINESE INFLUENCE IN INTERNATIONAL ORGANIZATIONS.
+从那时起，出现了许多人赞同中共病毒自然说的理论，这些人中大多数出于无知，还有的或因为既得利益或因为政治压力，或只是不愿意接受丑陋的事实的人。
 
-(a) REPORT REQUIRED. – Not later than 180 days after the date of the enactment of this Act, the Secretary of State, in coordination with the Director of National Intelligence, shall submit to the Committee on Foreign Relations and the Select Committee on Intelligence of the Senate and the Committee on Foreign Affairs and the Permanent Select Committee on Intelligence of the House of
+现在我们知道，达扎克的“生态健康联盟”在推动中共病毒来自武汉海鲜市场的自然说的伪理论时，还收到了数十万美元的赠款。
 
-Representatives a report on the expanded influence of the Government of the People’s Republic of China and the Chinese Communist Party in international organizations.
+（全文完）
 
-(b) CONTENTS. – The report required by subsection (a) shall include analysis of the following:
+达扎克快成美国的过街老鼠了，达扎克背后的人老贼福奇也快了，虽然CNN今天仍然让他出镜【2】。背后与中共勾兑的力量，疑是拜登政府，塞林（Sellin）博士今天发推称，拜登政府掩盖了中共病毒真相【3】。让你们表演吧，真相终究会大白于天下，看你们怎样收场！
 
-(1) The influence of the PRC and Chinese Communist Party in international organizations and
+参考链接：
 
-how that influence has expanded over the last 10 years, including –
+【1】[https://www.thegatewaypundit.com/2021/04/huge-non-profit-ecohealth-alliance-received-1-million-us-grants-head-promoted-made-wet-market-conspiracy/](https://www.thegatewaypundit.com/2021/04/huge-non-profit-ecohealth-alliance-received-1-million-us-grants-head-promoted-made-wet-market-conspiracy/)
 
-(A) tracking countries’ voting patterns that align with Chinese government voting patterns;
+【2】[https://twitter.com/therecount/status/1383771395876818944](https://twitter.com/therecount/status/1383771395876818944)
 
-(B) the number of PRC nationals in leadership positions at the D–1 level or higher;
-
-(C) changes in PRC voluntary and mandatory funding by organization;
-
-(D) adoption of Chinese Communist Party phrases and initiatives in international organization language and programming;
-
-(E) efforts by the PRC to secure legitimacy for its own foreign policy initiatives, including the Belt and Road Initiative;
-
-(F) the number of Junior Professional Officers that the Government of China has funded by organization;
-
-(G) tactics used by the Government of China or the CCP to manipulate secret or otherwise non-public voting measures, voting bodies, or votes;
-
-(H) the extent to which technology companies incorporated in the PRC, or which have PRC or CCP ownership interests, provide equipment and services to international organizations; and
-
-(I) efforts by China’s United Nations Mission to generate criticism of the United States in the United Nations, including any efforts to highlight delayed United States payments or to misrepresent total United States voluntary and assessed financial contributions to the United Nations and its specialized agencies and programs.
-
-(2) The purpose and ultimate goals of the expanded influence of the PRC and the Chinese Communist Party in international organizations, including an analysis of PRC Government and Chinese Communist Party strategic documents and rhetoric.
-
-(3) The tactics and means employed by the PRC and the Chinese Communist Party to achieve
-
-expanded influence in international organizations, including –
-
-(A) incentive programs for PRC nationals to join and run for leadership positions in international organizations;
-
-(B) coercive economic and other practices against other members in the organization; and
-
-(C) economic or other incentives provided to international organizations, including donations of technologies or goods.
-
-(4) The successes and failures of PRC and CCP influence efforts in international organizations.
-
-(c) FORM – The report submitted under subsection (a) shall be submitted in unclassified form, but may include a classified annex.
-
-(d) DEFINITION – In this section, the term ‘‘international organizations’’ means the following:
-
-(1) The African Development Bank.
-
-(2) The Asian Development Bank.
-
-(3) The Asia Pacific Economic Cooperation.
-
-(4) The Bank of International Settlements.
-
-(5) The Caribbean Development Bank.
-
-(6) The Food and Agriculture Organization.
-
-(7) The International Atomic Energy Agency.
-
-(8) The International Bank for Reconstruction and Development.
-
-(9) The International Bureau of Weights and Measures.
-
-(10) The International Chamber of Commerce.
-
-(11) The International Civil Aviation Organization.
-
-(12) The International Criminal Police Organization.
-
-(13) The International Finance Corporation.
-
-(14) The International Fund for Agricultural Development.
-
-(15) The International Hydrographic Organization.
-
-(16) The International Labor Organization.
-
-(17) The International Maritime Organization.
-
-(18) The International Monetary Fund.
-
-(19) The International Olympic Committee.
-
-(20) The International Organization for Migration.
-
-(21) The International Organization for Standardization.
-
-(22) The International Renewable Energy Agency.
-
-(23) The International Telecommunications Union.
-
-(24) The Organization for Economic Cooperation and Development.
-
-(25) The Organization for the Prohibition of Chemical Weapons.
-
-(26) The United Nations.
-
-(27) The United Nations Conference on Trade and Development.
-
-(28) The United Nations Educational, Scientific, and Cultural Organization.
-
-(29) The United Nations Industrial Development Organization.
-
-(30) The United Nations Institute for Training and Research.
-
-(31) The United Nations Truce Supervision Organization.
-
-(32) The Universal Postal Union.
-
-(33) The World Customs Organization.
-
-(34) The World Health Organization.
-
-(35) The World Intellectual Property Organization.
-
-(36) The World Meteorological Organization.
-
-(37) The World Organization for Animal Health.
-
-(38) The World Tourism Organization.
-
-(39) The World Trade Organization.
-
-(40) The World Bank Group.
+【3】[https://twitter.com/LawrenceSellin/status/1383676532711858184](https://twitter.com/LawrenceSellin/status/1383676532711858184)
 
 0

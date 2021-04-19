@@ -1,64 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【呐喊】触目惊心——最新中共病毒全球疫情数据
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1112899/)
+## 中共网络兜售维族劳动力
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1113189/)
 
-作者：纽约香草山佛教部 369文驹
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/U-16.jpg)quillette.com
+布赖特巴特新闻 (Breitbart News)报道，中共越来越多的未具名卖家在百度网络平台为“50至100名工人”的维族人做广告，出售维族劳动力。
 
+发布这些招聘信息的百度公司没有回复记者的置评请求。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+百度是一家提供互联网相关服务的中共跨国科技公司，包括中共国最大的搜索引擎。据天空新闻(Sky News)报道，百度的广告暗示维吾尔族劳工受到“严格的政治和社会控制”，其中一条广告称“工人的安全将得到政府的保障”。广告中未提及维族工人将获得任何形式的劳动补偿。
 
+据澳大利亚战略政策研究所(ASPI) 2020年3月的一份报告称，中国共产党据称在2017年至2019年期间将大约8万名新疆“再教育”营的维吾尔族“毕业生”转移出新疆，进入中共各地的工厂和工厂做奴隶。
 
+中共在一份2019年政府工作报告中表示：“每一批工人完成培训，就会安排一批就业，也会有一批转移。那些被雇佣的人需要接受深入的思想教育，并留在他们的工作岗位上。”该报告被ASPI引用，作为维吾尔族劳动力转移的证据。
 
-根据约翰斯·霍普金斯大学发布的数据，截止4月18日12:20分，中共病毒全球疫情数据如下：
+ASPI的报告中还引用的其他证据，包括“网络广告使用带有种族主义色彩的卡通形象，穿着传统的维吾尔服装，承诺‘合格、安全、可靠的’政府‘工人’为愿意工作的工厂服务。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-304.png)图片来源：JHU，中共病毒全球感染概览
+一位名叫阿德里安·岑兹(Adrien Zenz)的美国研究员在2020年12月发表了一份报告，他在报告中估计，通过国营的“劳动力转移”项目，有50万维族人在新疆的奴隶劳动条件下被迫摘棉花。同时指出中共利用在线应用程序和其他先进技术将维族人如奴隶般卖出。
 
-1、全球感染病例数：**140,457,797** 例，死亡人数：**3,009,215** 人。
+天空新闻在4月16日的报道中说，“来自新疆的工人需要经过‘政治审查’才能被转移”，“接收省份的当地政府也将进行‘政治审查’”，“所有工人都将有‘监督员’陪同……并‘在半军事化管理下’”， “‘监工’的工资是由新疆政府人事局支付的”。
 
-2、各国感染人数和死亡人数排名：
+参考链接：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/92.jpg)
-
-3、全球每日感染数据图：
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-305.png)
-
-4、全球每日死亡数据图：
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-306.png)
-
-通过以上数据不难发现，全球感染人数和死亡人数已经处于中共病毒爆发以来的最高水平，与今年年初水平相当。图表上今年4月感染和死亡人数的曲线十分陡峭，意味着本轮疫情爆发来势汹汹，而且这是在世界各国广泛接种疫苗的背景下发生的。那些鼓吹目前疫苗有效、能群体免疫的谎言，在数据面前不攻自破。
-
-据资料显示，约翰斯·霍普金斯大学（The Johns Hopkins University），是美国马里兰州巴尔的摩研究型私立大学，美洲大学协会的12个创始会员之一。美国国家科学基金会连续31年将该校列为全美科研经费开支最高的大学，也是哈勃空间望远镜和詹姆斯·韦伯空间望远镜的地面控制中心所在地。截至2020年4月，共有39名校友、教职工及研究人员获诺贝尔奖。在2019年末，约翰斯·霍普金斯大学的冠状病毒资源中心（Coronavirus Resource Center）收集来自全球数百个来源的数据来追踪中共病毒疫情全球病例，成为有关各国疫情引用最多的来源之一。[1]
-
-参考阅读：
-
-1. [约翰斯·霍普金斯大学](https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%BF%B0%E6%96%AF%C2%B7%E9%9C%8D%E6%99%AE%E9%87%91%E6%96%AF%E5%A4%A7%E5%AD%A6)
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+[https://www.breitbart.com/asia/2021/04/17/report-online-uyghur-slave-trade-booming-in-china/](https://www.breitbart.com/asia/2021/04/17/report-online-uyghur-slave-trade-booming-in-china/)
 
 0
