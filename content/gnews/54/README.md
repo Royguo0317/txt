@@ -1,51 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】为什么默克尔“悄悄”接种了AZ疫苗 ？
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1113762/)
+## 【世事解评】中共国表示：第一季度经济增长了18.3%，略低于预期
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1113858/)
 
-作者：纽约香草山媒体部 蜜蜂
+作者 教育部 兰兰
+
+近日（4月16日）多方媒体报道：中共国国家统计局周五表示，今年前三个月的国内生产总值（GDP）猛增了18.3％，这略低于预期的19％的增长。增长的原因是工业生产令人失望，但是零售业也表现出色。3月份零售额增长了34.2%，超过了预期的28%的增长。3月份工业生产增长14.1%，未达到路透社预测的17.2%的增长。
+
+这一季度的经济增长是自1992年以来中共国开始保持季度记录以来的最大GDP增长。但BBC表示与去年巨大经济收缩相比，本次经济增长是严重扭曲的，并没有显示太强劲的增长。
+
+更讽刺的是，中共国宣布经济繁荣的时机正是其领导人与气候变化问题做斗争的时候。气候变化问题是几十年来的经济增长引起的。从历史上来看，气候引起的经济增长几乎完全是由燃烧煤炭，天然气和石油产生的排放推动的。
+
+欧盟和美国领导人督促中共国停止所谓的“一带一路”倡议中为贫穷国家新燃煤电厂提供资金。如果非洲国家通过遵循燃烧煤炭，制造污染的道路来达到繁荣，那世界将遭受苦难。
+
+有分析师预测：随着政府财政和货币支持的减少，许多行业将放缓。也有经济学家认为：虽然最新数据显示中共国的经济复苏基础广泛，但一些生产和出口活动可能已“排在第一季度”，这表明未来的增长将放缓。由于缺乏刺激国内经济的措施，今年其他时间的贸易表现和国内工业活动可能无法保持如此强劲的势头。
+
+自Covid大流行以来，在严格的病毒遏制措施和企业紧急救济的帮助下，（中共国）经济稳定复苏。尽管去年开局惨淡，但中共国是2020唯一经济增长的主要经济体，尽管增长率为2.3%，是数十年来最弱的经济体。在取消了去年的目标之后，中共国已将2021年的经济增长目标定为6%。
+
+自中共去年放毒以来，世界经济停摆，全球经济一片惨淡，中共国还能创造两个第一，2020年唯一经济增长的主要经济体和2021年第一季度经济猛增18.3%。中共放毒让世界万劫不复，中共在杀敌一千，自损几万的作风下还在标榜在自我的经济增长，这真的是荒唐至极。
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-德国之声中文网4月17日报道：“德国总理默克尔周五接种了第一剂阿斯利康疫苗，但联邦总理府只以两三句话轻描淡写带过此事…….默克尔并不想引起太多关注。”
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-312.png)图源网络
-
-德国在不到一个月的时间里，将适合注射AZ疫苗的群体从开始的18-60岁，转成了目前的60岁以上（默克尔67岁）才能接受注射，态度180度大转弯。德国政府给出的理由是，疫苗不良反应引起血栓或致死的人群年龄均小于60岁，所以这个群体不适合接受此疫苗了。看到这里，笔者不由得想说，政府早干什么去了，拿百姓当实验品打着玩吗？另一方面，又是什么原因让有关部门对于这个问题一直支支吾吾？无论是欧盟还是德国，疫苗的研发力都不算差，但却一谈到疫苗问题就含糊其辞。他们给出的笼统说法是，注射疫苗利大于弊，血栓的死亡率低于病毒感染的死亡率。因此，只需要换个人群继续打疫苗。但有人敢说，打了疫苗就不会被感染了吗？恐怕默克尔自己也心怀疑虑——病毒真正的来源她不应该没听说过吧？否则，面对每日2万左右这一庞大的感染数字，她应该高调宣传、积极推广打疫苗才是自己的本份，干嘛要悄悄打这疫苗呢？因此，原因之二可能是，当天默克尔与习近平视频会见，为了好交差，只能无耐鼓起勇气发推表明立场，说自己打了AZ欧洲疫苗。至于兜售党国疫苗，就另当别论了。然而，虽是低调说出打了疫苗，但默克尔此举还是起到了一箭双雕的效果。事后，默克尔还默默地“感谢所有参与疫苗注射工作的人，还有所有已经接种了疫苗的人。”而德国政府也与欧盟药管局（EMA）串通一气，并不高明地给AstraZeneca（AZ）换了个马甲，现名为Vaxzevria，给希望得到“感谢”的人来用。
-
-综上所述，默克尔“低调打疫苗”显示出她对疫苗的信心不足，亦或另有隐情。我就不信以毒灭共的烈火烧不到她身上。
-
-参考阅读：
-
-[德国政界为何打疫苗都“悄无声息”？](https://twitter.com/dw_chinese/status/1383412900094627854?s=12)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑：灵性探索
-
-编辑/校对/发稿：Irene木木
+审核、发稿 奇门遁甲
 
 **更多资讯，更多关注**
 
 [**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://mail.google.com/mail/u/0?ui=2&amp;ik=6ac942a4c5&amp;attid=0.1.1&amp;permmsgid=msg-f:1697211554661162166&amp;th=178db4eab0445cb6&amp;view=fimg&amp;sz=s0-l75-ft&amp;attbid=ANGjdJ_BYMOa49wWkjZNJHHx0uOXcV6mo0Djq5x1efflmXObW40H0H_aAH8QPGnry018k4VgosgARDXdpBGlCPwAsaUIPQNAJ4FSiPt6zapimj8xSx6q0ZATYtuXKUg&amp;disp=emb)
 0

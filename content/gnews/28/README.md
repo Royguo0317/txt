@@ -1,25 +1,213 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 大量香港人选择台湾作为移民目的地
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1114228/)
+## 如果你想讨论美国科学的政治化，你应向中共求助，那是真正政治化的地方
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1114436/)
 
-加拿大多伦多枫叶农场 向真
+视频内容：
 
-中共在1984年与英国签订《中英联合声明》，自此启动了香港悲惨的“回归”之旅，37年过去了，其间香港爆发了5次移民潮，每一次都是因为中共的暴行和邪恶不断升级，引起港人的极度反感及恐慌导致的。其中以89年的天安门6.4大屠杀、97年回归、2019年反送中运动对香港社会的影响最深刻，引发的移民潮规模最大，发酵时间最长。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/bbcnews.jpg)*图片来源：BBCNEWS.COM*
-出走的香港人大多数是精英分子，而移居香港的大多是大陆人，香港的人口结构由此发生了较大的变化，但香港作为东方明珠及国际金融中心的地位仍然牢固，直至2019年中共背信弃义，彻底撕下伪装，在香港大肆镇压反送中运动，残害民主人士，并通过《港版国安法》后，香港才沦为“臭港”。
+来自安妮·卢蒂（Anne Luty） 2021年4月14日的推文
 
-相较于此前的几次移民潮，这一次港人移民的意愿最强烈，有超过3成的商界领袖、4成的港人表示要离开香港。更依赖本土文化市场的演艺界人士也纷纷出走，同是华人圈的台湾成了众多香港艺人的避风港，其中，被誉为“词神”的反共人士林夕先生已获得中华民国护照，同为反共人士的影帝黄秋生公开表示有意移居台湾，此前他已获得中华民国劳动部发的就业金卡。目前住台的反共知名艺人杜汶泽近日向慈善机构慷慷捐赠了100万元新台币……。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/rfi.fr_-3.jpg)*图片来源：rfi.fr*
-因经营反共书刊曾经被中共特工抓捕迫害的香港铜锣湾书店老板林荣基，已移居台湾并开了书店。不过他抱怨，台湾对香港移民设置的门槛过高，要求从香港汇入台湾600万新台币(约162万港币)，使不少港人望而却步。即便如此，过去的2020年在所有香港移民中，有三分之一仍然选择台湾作为移居目的地，这主要是台湾的民主制度加上同源文化吸引了善良的香港人。
+Bannon
 
-中共70多年来的统治已被证明是反人类、彻底失败的，其共产专制和极端腐败相互作用摧生了前所未有的暴政，从而严重破坏和威胁了大中华区的文明。当前的中共急于对民主台湾动武的原因，主要是需要转移国内社会矛盾，释放多年来在大陆倒行逆施积聚的巨大负能量。一旦台湾继香港之后沦陷，大中华地区再无净土，因此，全球华人只有奋起灭共，才能拥有故乡和自由。
+班农：
 
-参考链接：[港人逃亡潮3分之1來台！林夕已拿到身分證　黃秋生取得就業金卡](https://www.storm.mg/new7/article/3615262)
+Natalie Winters, you’ve done more about wuhan lab.
 
-* * *
+娜塔莉 温特斯，你做过许多关于武汉实验室方面的报道
 
-编辑 发稿 云起时
+You’ve done more individual investigate report than
 
-+1
+你做过许多的独立调查报道
+
+New York Time, Wall Street journal, Financial Time of London, Washington Post combined.
+
+比纽约时报、华尔街日报、伦敦金融时报、华盛顿邮报的总和还多
+
+Ok, you see this handling
+
+好的，你看到了这个处理
+
+Your observations on the handling of J & J fiasco
+
+您对强生和强生疫苗失败的处理意见的观察
+
+Natalie Winters
+
+娜塔莉 温特斯：
+
+Yeah, I think a lot of their frame from the main stream media right now
+
+是呀，我认为目前来自主流媒体的很多构架
+
+talking about the politicization of science right now
+
+正在谈论科学的政治化
+
+And Frankly, I think it’s kind missing the mark on that
+
+而且坦率地说，我认为这有点失误
+
+I know I always talk about Chinese Communist Party
+
+我知道我总是讨论中国共产党
+
+but if you wanna talk about the politicization of American science
+
+但是如果你要讨论关于美国科学的政治化
+
+and our establishment,  our talking heads , our media head figures
+
+和我们的建制派、我们的政府负责人、我们的媒体负责人
+
+Look to the Chinese Communist Party
+
+看看中国共产党
+
+because that’s the real politicization is happening
+
+因为那是真正正在发生的科学政治化
+
+I remember about a week ago
+
+我记得大约一周前
+
+The New York time put up an article
+
+纽约时报刊登了一篇文章
+
+talking about Biden regime
+
+讨论关于拜登政权
+
+was going to start investigating politicization science under Trump Administration.
+
+将开始对在川普政府领导下的科学政治化进行调查
+
+That’s like do that
+
+就像做那个
+
+how about next time focus on the Chinese Communist Party
+
+下次关注中国共产党怎么样
+
+subversion infiltration of the American medical establishment
+
+颠覆性地渗透美国医疗系统的
+
+so I think it’s really hard to kind of look at the American medical establishment
+
+所以我觉得很难看清美国医疗系统
+
+who’s responsible for legitimizing and authorized these vaccines
+
+负责合法化和授权这些疫苗的人的行为
+
+from a clear set of eyes
+
+从清晰的眼睛
+
+When really they are so compromised by Chinese Communist Party
+
+当他们真的受到中国共产党的渗透时
+
+Bannon
+
+班农：
+
+Are you too we have about 30 seconds left
+
+你也是，我们还有30秒的时间
+
+Do you believe Boris said about this
+
+你相信鲍里斯对此说过吗
+
+Do you sense the main stream media a little bit of belly full of Fauci right now?
+
+你现在是否感觉主流媒体对福奇有些反弹了吗？
+
+Raheem
+
+拉希姆：
+
+Oh for sure, we get definitely
+
+哦，确定，我们肯定会
+
+You should hear the whispers
+
+你应该听到窃窃私语
+
+The whispers, the reporters will say to people privately
+
+窃窃私语，记者们会私下对人们说
+
+You know on the Morton’s terrorist over the alibi
+
+你知道对莫顿关于不在现场的恐怖分子
+
+they are totally different than the, you know
+
+他们和你所知道的完全不同
+
+the united front, no pun intended
+
+全都聚集在一起，玩文字游戏
+
+they present you know on the television
+
+他们在电视上出现的样子，你知道的
+
+It’s they really don’t like Fauci
+
+其实是他们真的不喜欢福奇
+
+Bannon
+
+班农：
+
+The Chris Hayes
+
+那个克里斯·海斯
+
+who’s not fun of the show, not fun of me, not fun of Trump.
+
+他不喜欢战斗室节目、不喜欢我、不喜欢川普
+
+Smart guy, You can tell last night
+
+聪明的家伙，昨晚你能看出
+
+He was having a tough time with Fauci last night, right?
+
+昨晚他和福奇谈的很煎熬， 对吧？
+
+He said this guy spin my head
+
+他说这个家伙把我的头都弄晕了
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接:
+
+
+
+> "If you wanna talk about the politicization of American science and our establishment, our talking heads, our media head figures, look to the Chinese Communist Party because that's where the real politicization is happening." —[@nataliegwinters](https://twitter.com/nataliegwinters?ref_src=twsrc%5Etfw) [#WarRoom](https://twitter.com/hashtag/WarRoom?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/sEUzx7ObYS](https://t.co/sEUzx7ObYS)
+> — Anne Luty (@anneluty) [April 15, 2021](https://twitter.com/anneluty/status/1382504131319975937?ref_src=twsrc%5Etfw)
+
+
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

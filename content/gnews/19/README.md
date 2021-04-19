@@ -1,59 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】自由森林
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1114468/)
+## 【视频】拍案惊奇系列之——中共公安破案“神速”，被捆绑的尸体当天判定自杀
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1114642/)
 
-配音：香草山录音组 Swr拥抱太阳
+新闻搜集: 小妍 视频字幕：文治
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+作者：左媛 翻译: Summer
 
 
+被绑尸体被中共警方判定为自杀
+2021年4月9日，广西合浦，警察接报赶往现场，从河水中捞起四肢被绑的一具男尸。警方说死者白某因重疾而轻生，排除他杀。警方通报说“不要传播现场视频，不造谣不信谣不传谣”。
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/发现死尸.jpg)警方当天就发出通报：排除他杀
 
+中共国之大，无奇不有，悲剧成为常事，以至于整个社会都不知不觉产生了“审悲疲劳”，灭门之祸也不过三天的谈资，然后岁月依旧静好。然而，对于警方来说，绝不能凭自己主观或他人授意来戏说每一桩命案，毕竟警方担负的是全民的安全，毕竟警察的亲朋好友也多是平民百姓，谁敢说明天你的亲朋不会变成今天的白某？白某自绑四肢而投河自尽，其难度不亚于崇祯皇帝骑着脚踏车飞天上月球。警方的弥天大谎已经不顾大众常识和自己职业的起点要求。警方要求“不要传播现场视频”，已经露出胆怯心理，因为很大程度上，视频就是真相，大众知道了真相，警方的胡编乱造就不起作用，警方的公信力也就下降。“出来混迟早要还的”，警方拿什么来还？所以，第一时间封锁视频封锁真相，当然就是警方的第一选择了。
 
-一
+事实：男尸四肢被绑；警方：自杀排除他杀。谁在造谣传谣，公众不言自明。正所谓：撒旦掌权惊奇多，中共不灭谣言来。
 
-我们的性情近植物:安静、平和
+【参考来源】
 
-春天我们用繁花装扮自己
+[https://new.qq.com/omn/20210409/20210409A0B2QU00.html](https://new.qq.com/omn/20210409/20210409A0B2QU00.html)
 
-秋天我们用沉甸甸的果实款待路人
+【免责声明】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-我们的执着像树，屹立万年
+**欢迎战友加入旧金山金喜准农场**
 
-我们的耐心像藤蔓，千万次缠绕，追逐阳光
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
 
-我们的不幸是遇到伐木的暴徒：山河破碎
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
 
-但柔弱的玫瑰也藏有刺，我们已醒来
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
 
-草木皆兵，落花成箭，大地必繁花盛开
-
-
-
-文字版原文：[【香草诗词汇】自由森林](https://gnews.org/zh-hans/968463/)
-
-作者：纽约香草山农场 木白
-
-
-
-发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
 
 0

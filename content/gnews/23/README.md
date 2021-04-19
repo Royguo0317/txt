@@ -1,27 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳经济面对中共霸凌不需要退让
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1114371/)
+## 【有声读物】华大基因为何瞄准美国人
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1114548/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+配音：香草山录音组 米小乐
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/AU-2.jpg)thethrivingcityofperth.wordpress.com
-澳洲媒体报道，中共的贸易攻击打击了澳大利亚的葡萄酒、煤炭、大麦和其他行业，澳大利亚的冷处理政策似乎取得了成功。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-去年，中共用贸易禁令和其他惩罚措施打击澳洲的煤炭、大麦、牛肉、葡萄酒、龙虾和其他出口商，引发了人们对澳大利亚经济的担忧，但情况发生了逆转。
 
-新的数据显示，澳洲经济正在增长，失业率正在迅速下降，消费者和企业的信心很高，股票市场正在飙升，澳大利亚的出口在今年的前三个月创历史新高。大部分出口增长来自铁矿石(中共国仍需要铁矿石来炼钢)和液化天然气，这足以抵消其他行业出口下降的影响。
 
-由于对澳大利亚政府围绕中共病毒追责和国家安全的一些政治举措不满，中共开始了与澳大利亚的单向贸易战，但其经济攻击并没有达到预期效果。但是不可否认，一个巨大的潜在威胁是，中共是否能找到摆脱对澳洲铁矿石和能源依赖的方法。如果切断这些出口，澳大利亚将会陷入真正的麻烦。
 
-然而前景并不悲观。由于澳洲拥有丰富的可再生能源，澳大利亚在推动零碳世界的进程中处于有利地位。澳大利亚通过一条巨大的海底电缆将太阳能输送到新加坡的计划就是一个很好的例子。同时，即使澳洲不再把铁矿石作为原材料运往海外的中共和其他地方，也可以通过自己生产钢铁然后出口，此举将使其价值倍增。
 
-澳洲和中共的关系不会很快缓和。虽然中共是澳洲最大的贸易伙伴，面对中共对澳洲经济的霸凌行为，澳洲另辟国际市场，并不需要对中共退让。
 
-参考链接：
 
-[https://www.heraldsun.com.au/business/how-australias-economy-can-keep-shrugging-off-chinese-bully-tactics/news-story/205e07bd9529a7cc057cf4647dbd837d](https://www.heraldsun.com.au/business/how-australias-economy-can-keep-shrugging-off-chinese-bully-tactics/news-story/205e07bd9529a7cc057cf4647dbd837d)
+《⼤纪元》4⽉16⽇报道了华⼤基因是如何收集美国⼈的基因。
+
+1999年，汪建等三名曾经留美的⼈员成功申请加⼊到美国政府提出的“⼈类基因组计划”， 并获得1%的⼈类基因组测序任务。为了执⾏该任务，他们成⽴了华⼤基因。
+
+2003年⾮典期间，凭借美国的技术，华⼤破译了四株SARS病毒基因组序列，并研发出检测剂，由此得到⼀次发展机会。
+
+2010年依靠国家开发银⾏贷款，华⼤从美国制造商lllumina处购买了128台第⼆代基因测序仪，⼀跃成为全球最⼤的基因组测序机构。
+
+
+
+文字版原文：[【世事解评】华大基因为何瞄准美国人](https://gnews.org/zh-hans/1113399/)
+
+作者：香草山美食部  蓝天大海
+
+
+
+音频处理/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
