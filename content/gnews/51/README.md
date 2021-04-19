@@ -1,44 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报 —— 疫苗篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1112937/)
+## 德意志时讯2021.04.18：中国寻求盟友对抗美国 / Biontech/辉瑞疫苗获批？中共国首次测试外国疫苗
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1112963/)
 
-- 作者：wenwu
+*《德意志时讯》发表的译文和报道不代表我们认同原文作者的观点，仅供读者了解德国媒体的走向及德国社会状况*
+
+- 翻译、评论：gogogo4
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+**中国寻求盟友对抗美国**
 
-**西班牙2021年4月18日电/西喜社——**
+- 信息来源：faz
+- 原文标题：[China sucht Verbündete gegen Amerika](https://www.faz.net/aktuell/politik/ausland/auch-bei-klima-china-will-den-westen-spalten-17297433.html)
 
-若您想了解全文报导内容，请点击标题后链接
 
-**1. 《伊万卡·特朗普的疫苗接种引发粉丝反感》**
+气候变化不应该是是西方与中共国体制竞争的问题之一。如果我们想有所成就，就要与排污最多的国家进行全球合作。从这一点来说，法国总统和总理与中共国领导人讨论这个问题似乎很有意义。
 
-美国国会山4月15日电，伊万卡-特朗普在拜登总统就职后首次在社交媒体上宣布自己在弗罗里达州接种了冠状病毒疫苗。其粉丝对她的决定感到失望，也对疫苗不信任。
-（[https://thehill.com/changing-america/well-being/prevention-cures/548397-ivanka-trumps-vaccination-sparks-backlash-among](https://thehill.com/changing-america/well-being/prevention-cures/548397-ivanka-trumps-vaccination-sparks-backlash-among)）
+但很明显，中共想从拜登政府手中抢走气候峰会。拜登政府将在下周举行线上气候峰会，更重要的是，在欧洲和美国人之间留出一席之地。会议本身已经变得不那么纯粹了，则更像是政治秀场。
 
-2. 《印度卫生大使兼泰米尔语演员维维克在注射新冠病毒疫苗一天后去世》
+如果中共领导层对其声称的，其与欧洲应成为全球气候政策的领导者是认真的，那么就必须迅速采取行动。但现实是，中国是最大的温室气体排放国。其在煤炭使用方面是遥遥领先其他国家——而且有上升的趋势。
 
-据印度大博弈网站4月17日电，分析印度大多数接种新冠病毒疫苗的死因，发现大多数死于心脏病发作和脑中风。著名的印度演员和泰米尔纳德邦创造公共卫生形象大使维维克（Vivekh），在接受疫苗后一天去世。（[https://greatgameindia.com/india-health-ambassador-vivek-dies-vaccine/](https://greatgameindia.com/india-health-ambassador-vivek-dies-vaccine/)[）](https://greatgameindia.com/india-health-ambassador-vivek-dies-vaccine/%EF%BC%89)
+如果要在2060年实现环境中和，经济就要面临重大转型。那些当权者准备好了吗？还是宁愿继续沉浸在毫无疑问的增长数字的光辉中？马克龙和默克尔不应该与习近平接触过密。他的计划很透明：在寻找盟友来反对美国。
 
-**3. 《斯坦福大学开始在婴儿和幼儿中测试辉瑞疫苗》**
+**评论：**气候变化和环境问题表面上看都是正义且无可辩驳的，但真正的背后博弈，目前看来就是互相甩锅，说一套做一套，还可以像本文中所说的，借此拉拢盟友。中共口号喊得山响，实际到底做了什么，大家心知肚明。这几十年来盗取的国外技术，哪些不是用来做短线收益高的买卖？嘴里喊着“可持续发展”，“金山银山不如绿水青山”，也没错，他把百姓的金山银山拉到海外，让自己的私生子女享受那里的绿水青山可持续发展去了。
+如今西方媒体都已经看出并报道了，中共这低劣的拉拢手段，而且还特意在文末提醒马克龙和默克尔这两位“政治正确大佬”，接下来就看来习大神如何发挥自己的“神”技了。
 
-美国双子城4月15日电，辉瑞疫苗将对美国的6月大婴儿到11岁的儿童进行人体疫苗实验。总共144名志愿者在父母协同下，参与此次斯坦福医疗保健公司的疫苗在幼童中的关键性研究。
-（[https://www.twincities.com/2021/04/15/stanford-testing-pfizer-vaccine-babies-young-children/amp/#click=https://t.co/Pn1ndQdIFM](https://www.twincities.com/2021/04/15/stanford-testing-pfizer-vaccine-babies-young-children/amp/#click=https://t.co/Pn1ndQdIFM)）
+**Biontech/辉瑞疫苗获批？中共国首次测试外国疫苗**
 
-**4. 《罗恩·德桑蒂斯说，拜登政府对强生疫苗的处理是“大错特错”》**
+- 信息来源：n-tv
+- 原文标题：[Zulassung für Biontech/Pfizer? China prüft ersten ausländischen Impfstoff](https://www.n-tv.de/politik/China-prueft-ersten-auslaendischen-Impfstoff-article22495382.html)
 
-据玩具矩阵4月18日消息，佛罗里达州州长罗恩·德桑蒂斯在4月16日表示，“已经接种了几个月的人仍然戴着两个口罩，这无疑是个问题，我们无法正视疫苗是有效的”他说。这个信息让人们对疫苗失去信心，并且没有研究机构把血栓症状与疫苗联系起来，不得不引起担心。
-（[https://toysmatrix.com/ron-desantis-says-biden-administrations-handling-of-jj-vaccine-huge-mistake/](https://toysmatrix.com/ron-desantis-says-biden-administrations-handling-of-jj-vaccine-huge-mistake/)）
 
-**5. 《研究报告：辉瑞，莫德纳疫苗与阿斯利康疫苗一样普遍存在血栓症状》**
+到目前为止，中共国只能接种国产疫苗。现在，中共要屈服于压力，也要允许外国疫苗。Biontech可以提供1亿剂，但时间仍不确定。能否获批可能还要看中共国疫苗在国外的处理情况。
 
-据美国市场观察4月15日电，牛津大学的一项研究发现，在接种辉瑞或摩德纳疫苗后，每100万人中就有4人发生脑静脉血栓，而接种阿斯利康疫苗的人，每100万人中就有5人发生脑静脉血栓。得到COVID-19的人患CVT的风险要比接种疫苗的人高得多，每100万患者中就有39人。出于对血栓症状的担忧，阿斯利康的疫苗在许多国家已经停止或限制使用。
-（[https://www.marketwatch.com/story/blood-clots-as-prevalent-with-pfizer-and-moderna-vaccine-as-with-astrazenecas-report-2021-04-15](https://www.marketwatch.com/story/blood-clots-as-prevalent-with-pfizer-and-moderna-vaccine-as-with-astrazenecas-report-2021-04-15)）
+中共国显然希望在7月之前批准接种国外的CCP病毒疫苗。知情人士表示，国内科学家和国外商人对扩大国内疫苗接种名单的压力越来越大。
 
-编辑：蚂蚁兄弟；校对：weiwei；发稿：信心的选择
+共官员已经审查了德国公司Biontech及其美国合作伙伴辉瑞公司的冠状病毒疫苗的临床试验数据，在未来十周内，可能会在国内进行销售。
 
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+在中共国经营的外国公司都赞成使用西方疫苗，以方便旅行。上海美国商会会长科尔·吉布斯表示，西方制药公司的疫苗在国外的接受度比较高。
+
+吉布斯补充说，自12月以来，商会一直在敦促北京批准Biontech/辉瑞的疫苗。Biontech在12月同意与上海复星医药集团股份有限公司合作，在2021年向中共国供应1亿剂量的产品，但需获得批准。
+
+但一些知情人士表示，审批的时间表还没有确定，决定权部分取决于中共国疫苗在国外的审批情况。根据最新的疫苗状况报告，世界卫生组织目前正在审查中共国国营药厂国药集团和中共国民营企业国药生物技术有限公司提供的疫苗，以便在5月初前批准其应急使用。
+
+目前美国还没有批准中共国的CCP病毒疫苗。Biontech公司表示，一旦获批，将努力使该疫苗在中国上市。复星医药集团拒绝对此事发表评论。
+
+**评论：**中共这是咋了，自己的疫苗卖多了，库存不够？为什么还要审核自己之前一直批评的国外疫苗呢？外国商会又是咋了，中共国疫苗不是都已经在中东、南美、欧盟获得许可，可以使用了吗？
+中共一定要小心啊，国外反动势力坏得很，这万一哪位德高望重的领导接种国外疫苗后不省人事，还得麻烦习大神发功救他。
+境外媒体也坏的很，说复兴医药集团拒绝对此事发表评论。这不是往人家伤口上撒盐吗？再说，这种事你不是应该问我们战狗外交窝吗？赵战狗的回答一定让你哑口无言，充分理解“疯狗乱咬”这个词。
 
 0

@@ -1,64 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【呐喊】触目惊心——最新中共病毒全球疫情数据
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1112899/)
+## 中共疫苗外交已失早期供应优势
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1113063/)
 
-作者：纽约香草山佛教部 369文驹
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-30.jpg)qz.com
+《日经新闻报道》，北京在早期疫苗外交上取得了胜利。在全球疫苗政治中，中共的成功取决于三个条件：供应、速度和需求。不幸的是，中共在这三个方面的早期优势都在下滑。
 
+中共已经向海外输送了1.14亿支疫苗，并承诺在双边捐赠方面超过印度、俄罗斯和富裕的民主国家。尽管有这些看似有利的条件，但中共是否有能力履行其承诺，并从疫苗外交中获得长期利益，还远未得到保证。中共国疫苗已经失去在供应、速度和需求这三个方面的早期。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+北京最近承诺，到6月，将为中共国40%的人口(5.6亿人)接种疫苗。为了实现这一目标，它必须生产大约11.2亿剂疫苗，并以每天1150万剂的速度使用这些疫苗。然而，以目前的产能水平，中共根本无法实现这一目标。据报道，中共至少有五个省份出现了疫苗短缺。
 
+与此同时，从土耳其到巴西，中共疫苗的交付延误和短缺阻碍了疫苗接种运动。虽然这些延迟可能会让那些等待机会的人感到沮丧，但它们引发了更大的担忧,即中共是否对推进其外交政策目标做出了过度承诺。
 
+中共政府敏锐地意识到这种产能缺口，并正在努力提高产量。科兴将其年生产能力提高到20亿剂，而国药控股的目标是每年生产11亿剂。虽然这些努力对于确保中共疫苗的长期稳定供应至关重要，但不能缓解目前的短缺。
 
-根据约翰斯·霍普金斯大学发布的数据，截止4月18日12:20分，中共病毒全球疫情数据如下：
+未来两三个月，中共的生产能力几乎肯定达不到要求，将迫使政府有选择地分配稀缺的疫苗，或改变疫苗管理战略。中共政府将不得不在未来几个月缩减其疫苗外交，要么推迟交付，要么推迟额外的合同和捐赠，或者两者兼用。虽然这种疫苗延迟可能是暂时的，但随着西方国家(尤其是美国)从疫苗消费者转向疫苗供应者，它们也可能对中共的长期疫苗外交造成破坏性影响。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-304.png)图片来源：JHU，中共病毒全球感染概览
+随着人们越来越怀疑中共疫苗的有效性，全球对西方疫苗的偏好可能会变得更加强烈。尽管中共在疫苗外交方面早期领先，但越来越多的迹象表明，未来的竞争将更加狭窄。
 
-1、全球感染病例数：**140,457,797** 例，死亡人数：**3,009,215** 人。
+另一不可忽视的原因是，会有越来越多的人觉醒认识到中共病毒是来自中共实验室的生物武器，并无有效疫苗的存在。疫苗外交不过是一场疫苗政治的骗局，而灭共才是拯救疫情的唯一出路。
 
-2、各国感染人数和死亡人数排名：
+参考链接：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/92.jpg)
-
-3、全球每日感染数据图：
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-305.png)
-
-4、全球每日死亡数据图：
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-306.png)
-
-通过以上数据不难发现，全球感染人数和死亡人数已经处于中共病毒爆发以来的最高水平，与今年年初水平相当。图表上今年4月感染和死亡人数的曲线十分陡峭，意味着本轮疫情爆发来势汹汹，而且这是在世界各国广泛接种疫苗的背景下发生的。那些鼓吹目前疫苗有效、能群体免疫的谎言，在数据面前不攻自破。
-
-据资料显示，约翰斯·霍普金斯大学（The Johns Hopkins University），是美国马里兰州巴尔的摩研究型私立大学，美洲大学协会的12个创始会员之一。美国国家科学基金会连续31年将该校列为全美科研经费开支最高的大学，也是哈勃空间望远镜和詹姆斯·韦伯空间望远镜的地面控制中心所在地。截至2020年4月，共有39名校友、教职工及研究人员获诺贝尔奖。在2019年末，约翰斯·霍普金斯大学的冠状病毒资源中心（Coronavirus Resource Center）收集来自全球数百个来源的数据来追踪中共病毒疫情全球病例，成为有关各国疫情引用最多的来源之一。[1]
-
-参考阅读：
-
-1. [约翰斯·霍普金斯大学](https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%BF%B0%E6%96%AF%C2%B7%E9%9C%8D%E6%99%AE%E9%87%91%E6%96%AF%E5%A4%A7%E5%AD%A6)
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+[https://asia.nikkei.com/Opinion/China-cannot-win-the-great-vaccine-diplomacy-game-without-vaccines](https://asia.nikkei.com/Opinion/China-cannot-win-the-great-vaccine-diplomacy-game-without-vaccines)
 
 0

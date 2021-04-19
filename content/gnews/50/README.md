@@ -1,53 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德意志时讯2021.04.18：中国寻求盟友对抗美国 / Biontech/辉瑞疫苗获批？中共国首次测试外国疫苗
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1112963/)
+## Lawrence Sellin博士推出舒红兵&amp;江绵恒是否意味着江绵恒是一号毒王
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1112984/)
 
-*《德意志时讯》发表的译文和报道不代表我们认同原文作者的观点，仅供读者了解德国媒体的走向及德国社会状况*
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-- 翻译、评论：gogogo4
-
-
-**中国寻求盟友对抗美国**
-
-- 信息来源：faz
-- 原文标题：[China sucht Verbündete gegen Amerika](https://www.faz.net/aktuell/politik/ausland/auch-bei-klima-china-will-den-westen-spalten-17297433.html)
+据[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午8:56 · 2021年4月18日](https://twitter.com/LawrenceSellin/status/1383766495449075712)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文
 
 
-气候变化不应该是是西方与中共国体制竞争的问题之一。如果我们想有所成就，就要与排污最多的国家进行全球合作。从这一点来说，法国总统和总理与中共国领导人讨论这个问题似乎很有意义。
 
-但很明显，中共想从拜登政府手中抢走气候峰会。拜登政府将在下周举行线上气候峰会，更重要的是，在欧洲和美国人之间留出一席之地。会议本身已经变得不那么纯粹了，则更像是政治秀场。
-
-如果中共领导层对其声称的，其与欧洲应成为全球气候政策的领导者是认真的，那么就必须迅速采取行动。但现实是，中国是最大的温室气体排放国。其在煤炭使用方面是遥遥领先其他国家——而且有上升的趋势。
-
-如果要在2060年实现环境中和，经济就要面临重大转型。那些当权者准备好了吗？还是宁愿继续沉浸在毫无疑问的增长数字的光辉中？马克龙和默克尔不应该与习近平接触过密。他的计划很透明：在寻找盟友来反对美国。
-
-**评论：**气候变化和环境问题表面上看都是正义且无可辩驳的，但真正的背后博弈，目前看来就是互相甩锅，说一套做一套，还可以像本文中所说的，借此拉拢盟友。中共口号喊得山响，实际到底做了什么，大家心知肚明。这几十年来盗取的国外技术，哪些不是用来做短线收益高的买卖？嘴里喊着“可持续发展”，“金山银山不如绿水青山”，也没错，他把百姓的金山银山拉到海外，让自己的私生子女享受那里的绿水青山可持续发展去了。
-如今西方媒体都已经看出并报道了，中共这低劣的拉拢手段，而且还特意在文末提醒马克龙和默克尔这两位“政治正确大佬”，接下来就看来习大神如何发挥自己的“神”技了。
-
-**Biontech/辉瑞疫苗获批？中共国首次测试外国疫苗**
-
-- 信息来源：n-tv
-- 原文标题：[Zulassung für Biontech/Pfizer? China prüft ersten ausländischen Impfstoff](https://www.n-tv.de/politik/China-prueft-ersten-auslaendischen-Impfstoff-article22495382.html)
+> There is increasing evidence that activities involving Wuhan University with the participation of certain individuals may be intimately linked to the release of [#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#corona](https://twitter.com/hashtag/corona?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/JgfOVtXrTl](https://t.co/JgfOVtXrTl)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 18, 2021](https://twitter.com/LawrenceSellin/status/1383766495449075712?ref_src=twsrc%5Etfw)
 
 
-到目前为止，中共国只能接种国产疫苗。现在，中共要屈服于压力，也要允许外国疫苗。Biontech可以提供1亿剂，但时间仍不确定。能否获批可能还要看中共国疫苗在国外的处理情况。
 
-中共国显然希望在7月之前批准接种国外的CCP病毒疫苗。知情人士表示，国内科学家和国外商人对扩大国内疫苗接种名单的压力越来越大。
+There is increasing evidence that activities involving Wuhan University with the participation of certain individuals may be intimately linked to the release of [#COVIDー19](https://twitter.com/hashtag/COVIDー19?src=hashtag_click) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hashtag_click) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click) [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) [#corona](https://twitter.com/hashtag/corona?src=hashtag_click)
 
-共官员已经审查了德国公司Biontech及其美国合作伙伴辉瑞公司的冠状病毒疫苗的临床试验数据，在未来十周内，可能会在国内进行销售。
+中文大意：越来越多的证据表明，武汉大学在某些人的参与下的活动可能与[#COVIDー19](https://twitter.com/hashtag/COVIDー19?src=hashtag_click)[中共病毒](https://twitter.com/hashtag/CCPVirus?src=hashtag_click)[#超限生物武战](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click) [#超限生物武器](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)[＃COVID19溯源](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click)[#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) [#Coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) [#corona](https://twitter.com/hashtag/corona?src=hashtag_click)的释放密切相关。
 
-在中共国经营的外国公司都赞成使用西方疫苗，以方便旅行。上海美国商会会长科尔·吉布斯表示，西方制药公司的疫苗在国外的接受度比较高。
+在此前Lawrence Sellin博士已经发推诠释了13579计划——
 
-吉布斯补充说，自12月以来，商会一直在敦促北京批准Biontech/辉瑞的疫苗。Biontech在12月同意与上海复星医药集团股份有限公司合作，在2021年向中共国供应1亿剂量的产品，但需获得批准。
 
-但一些知情人士表示，审批的时间表还没有确定，决定权部分取决于中共国疫苗在国外的审批情况。根据最新的疫苗状况报告，世界卫生组织目前正在审查中共国国营药厂国药集团和中共国民营企业国药生物技术有限公司提供的疫苗，以便在5月初前批准其应急使用。
 
-目前美国还没有批准中共国的CCP病毒疫苗。Biontech公司表示，一旦获批，将努力使该疫苗在中国上市。复星医药集团拒绝对此事发表评论。
+> My analysis of the Chinese Communist Party's dual-use military-civilian R&D program for novel genetically-engineered coronaviruses & heterologous vaccines against multiple strains, roughly follows this development plan, but involves more than one virus & a premature release. [pic.twitter.com/QYkJCJG17S](https://t.co/QYkJCJG17S)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 17, 2021](https://twitter.com/LawrenceSellin/status/1383494654633472007?ref_src=twsrc%5Etfw)
 
-**评论：**中共这是咋了，自己的疫苗卖多了，库存不够？为什么还要审核自己之前一直批评的国外疫苗呢？外国商会又是咋了，中共国疫苗不是都已经在中东、南美、欧盟获得许可，可以使用了吗？
-中共一定要小心啊，国外反动势力坏得很，这万一哪位德高望重的领导接种国外疫苗后不省人事，还得麻烦习大神发功救他。
-境外媒体也坏的很，说复兴医药集团拒绝对此事发表评论。这不是往人家伤口上撒盐吗？再说，这种事你不是应该问我们战狗外交窝吗？赵战狗的回答一定让你哑口无言，充分理解“疯狗乱咬”这个词。
 
-0
+
+那么Lawrence Sellin博士发推把舒红后和江绵恒推出来意味着啥呢？这就要涉及到南普陀计划和习近平在江家眼里是什么角色的问题了，郭文贵先生在[2021年2月17号 文贵直播： 马云被抓，今年是南普陀计划的收割年；江家是沼泽地的一部分；新中国联邦将是主角](https://gtv.org/video/id=602d3cebbe64150df85ac9bf)直播中提到：
+
+［我们讲南普陀计划的时候，有人给江家辟谣嘛？没人给江家辟谣。南普陀计划就是找了个傀儡是谁啊，习近平。潘多拉盒子，潘多拉盒子，武汉实验室，包括冠状病毒、包括对香港、台湾的“双龙计划”。咱们说的时候有人出来辟谣嘛？没人出来辟谣，］
+
+［上海帮是沼泽地里面的主人，习近平不是。还轮不着他呢，他不配。今天习在前面玩的什么冠状病毒哇、疫苗病毒呀、疫苗经济呀，把他咔嚓给他干掉以后，这些饭都是给人家江家做的，中国的沼泽地就是上海人呐、就是上海帮。］
+
+以及郭文贵先生在[2021年2月18日 文贵直播： 南普陀计划得到验证，江习大战进入最后时刻，江扶植韩正当傀儡接班人；川普是我们永远的朋友；九…](https://gtv.org/video/id=602e8fe0be64150df85c3194) 中提到的：
+
+［咱们这位姐妹说这个南普陀这个计划，因为她认识这些人和他们所走的这些路，他们知道南普陀的存在。她说在这些人眼里面，习他就是个二货，他是个二货啊，她说一定毋容置疑的，所有习搞这个所谓的以毒灭白、灭白计划、还有潘多拉计划，包括这个所谓的网络加强控制、包括在香港的这个双龙计划、包括对香港人的打压、包括对国内的所谓企业迅速国有化、包括在世界上加入沼泽地统治全世界把国际共产主义做强做大。
+
+她说这很多人都不愿意去看，她说邓小平南下的时候，南下的时候说过什么、为什么南下呀？是因为江泽民，选了江泽民以后上来一年两年，这哥们他不想所谓的开放市场，他不想搞真正的所谓的中国的政治改革和经济改革，很明显。而且这个江最要做的事情就是所谓的中国企业，马上私人企业都要取消以国有企业为主，也就是今天习搞的这一套，而且要组织所有的私人企业去井冈山、延安学习，这都是当年江要搞的。当年邓小平一怒之下到了南方，到了南方以后就说，你这是谁不搞改革谁就要下台滴。
+
+所谓的一个老人去到了南方转了一圈，说划了一个圈、讲了一阵话，叫南方讲话。后来江泽民开始搞市场、搞改革、允许私营企业继续发展。她说今天所有习这一套路子都是当年江想干没干得了的，包括修宪、一辈子干到底，江最想让他儿子江绵恒是来当、接他的班的。修宪以后江要继续干，然后江绵恒继续干，结果江绵恒的肾不争气、肾换了一回又一回，这对江家是个大的伤害，江到了以后、拿到权力以后，最大的植耕于权力的核心就是军队，他为啥把张万年这些人都干掉，然后杯酒释兵权把张震这些老家族弄到西山去待着去吧，给你们家里边一些企业，然后把邓家的你想想搞这个保利，你们都滚一边去弄钱去吧，军权全拿下。
+
+这是为什么王岐山一定要干掉王瑞林，因为王瑞林还是代表着邓家的势力，就是江家没干成的事王岐山帮他干，就是当年江想干的事，他没干成的他让习王帮他干。后来习修了宪以后，他下一个他这个儿子身体不行啊孙子又不行啊都是肾都不太好，老换肾也不行啊，换肾是受次数限制的，怎么办呢？大家就知道了，韩正，韩正还有另外两个人今天我不说，绝对是你想象不到的，韩正不行，韩正即使上去，中国历代的皇家之下，一定要什么，叫监国，左监国、右监国，或者外监国、内监国，给韩正也都安排好了监国，都准备好啦。
+
+就是他所有的，你看到的所有的中国企业国有化、中国的一带一路、中国利用世界上所有的共产主义国家把种族主义打到底，团结亚非拉，团结中东、亚非拉中，然后把穆斯林、伊斯兰教的极端主义和共产党连在一起成为兄弟姐妹，这都是当年江要干的事情。江唯一的说在香港跟现在稍有不同，江认为要把中国的精英主义彻底地控制香港，用掺沙子每天给几万个单程把香港变成一个加大版的深圳，这叫大湾区。而且江说要对台湾要实行精神、文化、经济，所有的可能的叫软性统独，叫软性统独。那么习是硬统独，就这点不同，其他一切都是江的计划，就是南普陀计划。
+
+什么时候要把习干掉？现在这些事基本干完了，潘多拉盒子也打开啦，以毒灭白，是不是？以疫苗灭白也已经完成啦，美国的所有的沼泽地的计划也基本执行差不多啦，江的身体也不行啦，中国军队再撑下去，江的影响力就会逐渐衰减。王岐山在控制着经济牢牢在手。这些事情都到时候要卸磨杀驴啦，特别这个驴又太不听话，比较二，是吧！那就是习，干掉他。所以说这是一个核心。再往下弄，习就真做大啦，真做大啦，习就真做大啦！不是假做大啦！所以说现在要开始干，他俩之间一定有一个倒下的，要么是上海派干掉，要么习派干掉。］
+
+综合以上信息我们可以得出什么结论呢？长话短说就是习近平只是江家的一个使唤丫鬟，最终的幕后老大就是江家，而Lawrence Sellin博士的推特则进一步验证江绵恒才是13579计划的真正的指挥和控制者，那么舒红兵是谁呢？据[百度百科——舒红兵](https://baike.baidu.com/item/%E8%88%92%E7%BA%A2%E5%85%B5/7397820?fr=aladdin)：［舒红兵，男，汉族，1967年1月出生重庆市[荣昌县](https://baike.baidu.com/item/%E8%8D%A3%E6%98%8C%E5%8E%BF/8291425) [1] ，[无党派人士](https://baike.baidu.com/item/%E6%97%A0%E5%85%9A%E6%B4%BE%E4%BA%BA%E5%A3%AB/2088083)，细胞生物学家、免疫学家 [2]  ，[中国科学院院士](https://baike.baidu.com/item/%E4%B8%AD%E5%9B%BD%E7%A7%91%E5%AD%A6%E9%99%A2%E9%99%A2%E5%A3%AB/327194)，[发展中国家科学院院士](https://baike.baidu.com/item/%E5%8F%91%E5%B1%95%E4%B8%AD%E5%9B%BD%E5%AE%B6%E7%A7%91%E5%AD%A6%E9%99%A2%E9%99%A2%E5%A3%AB/2173686)，[武汉大学](https://baike.baidu.com/item/%E6%AD%A6%E6%B1%89%E5%A4%A7%E5%AD%A6/106709)副校长、医学研究院院长、教授 [2-3] 。舒红兵于1987年毕业于兰州大学；1990年，获中国医学科学院基础医学研究所硕士学位；1995年，获[美国埃默里大学](https://baike.baidu.com/item/%E7%BE%8E%E5%9B%BD%E5%9F%83%E9%BB%98%E9%87%8C%E5%A4%A7%E5%AD%A6/10492576)博士学位；2011年当选为中国科学院院士 [2]  ；2012年，当选为发展中国家科学院院士 [3] 。舒红兵主要从事免疫相关的细胞信号转导研究 [2] 。］
+
+舒红冰的妻子是王延轶，王延轶又名王延铁，在此前DT挖掘机在G-News发布的[【挖掘机团队出品】 P4实验室前传之 王岐山，高燕燕，王延轶关系解读！](https://gnews.org/zh-hans/117284/) 详述了王延轶与舒红兵的关系及王延轶的疑似王岐山和高燕燕的私生女身份。再结合Lawrence Sellin博士的推文，我们可以得出的结论是，在13579计划的布局和实施过程中，不仅是上阵父子兵的蛤和江绵恒，还要有最毒夫妻档的舒红兵和王延轶。那么在江绵恒后边还有没有更大的大佬？如果把江绵恒的蛤爹排除在外，我相信江绵恒就是这副中共13579计划扑克牌中的大猫，这个判断是否站得住脚？让我们静观Lawrence Sellin博士下文分解。
+
+（文章内容仅代表作者个人观点）
+
++1

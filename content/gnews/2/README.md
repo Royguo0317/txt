@@ -1,47 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美媒继续揭露中共爪牙达扎克
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1113690/)
+## 【有声读物】离开本地、本族、父家，往我所要指示你的地方去
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1113665/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：香草山福音部  英子
+配音：香草山录音组 Kikii
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/B-33.jpg)organicconsumers.org
-随着爆料革命的深入，美国人民越来越了解了中共病毒的真相，清楚了美国“卖国贼”达扎克之流的本来面目，《门道专家》发文，题目“非营利性组织’生态健康联盟’（Eco Health Alliance）获得了超过100万美元的美国资助，而该联盟的负责人却在推动虚构的武汉海鲜市场阴谋”。【1】
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-全文如下：
 
-皮特·达扎克（Peter Daszak）管理的“生态健康联盟”获得了超过一百万美元的赠款，达扎克却致力于掩盖中共病毒来源。
 
-《每日电讯报》（The Daily Caller）报道说：
 
-非营利性组织“生态健康联盟”，这个向武汉病毒学研究所（Wuhan Institute of Virology）提供了数百万美元的国家卫生研究院（National Institutes of Health）拨款的组织，2021年2月又获得了纳税人支付的救助。
 
-这是自中共病毒疫情以来，“生态健康联盟”第二次接受救助，根据监管机构Whitecoat Waste的最新报告，在2020年5月获得738,861美元的救助后，“生态健康联盟”在今年2月又获得了719,570美元。
 
-这个“生态健康联盟”由皮特·达扎克管理，之前我们在《门道专家》报道过他。
 
-2020年初，达扎克与其他人合作，掩盖中共病毒的真实来源。中共病毒是在美国科学家的协助下，在美国政府的资助下，在中共的一个实验室里制造的人工病毒。
+自从2017年参与爆料革命以来，我实在敬佩文贵先生和我们的女英雄科学家闫丽梦博士。文贵先生预备了三十年反共，有一天终于离开了养育他的父母，也离开了他的家人、亲朋好友、同学同事，来到美国，开始了反共灭共爆料革命；而我们的女英雄科学家也因香港事件，CCP病毒事件看到了CCP的邪恶，毅然离开了她曾经爱过的，并与她一同过着 “居里和居里夫人”般志同道合的丈夫，离开了身在中国的父母，还有那座美丽的城市——香港，以及世界最顶级的实验室，只身一人来到美国，加入爆料革命，揭露CCP病毒的真相。
 
-他们这样做是为了保护中共国（与之相关的）人，同时也是为了保护华盛顿利益攸关，以及其他具有国际金融利益的人，如果人们普遍认为中共制造了中共病毒，他们在中共国的投资将处于危险之中。
+文字版原文：[【信仰之声】离开本地、本族、父家，往我所要指示你的地方去](https://gnews.org/zh-hans/1068242/)
 
-达扎克正在推动一个理论，即中共病毒在2020年2月起始于武汉海鲜市场，这保护了中共国和像他这样的美国人，让他们不会因为先前的工作而与病毒联系在一起。
+音频处理/发稿：雪梨
 
-从那时起，出现了许多人赞同中共病毒自然说的理论，这些人中大多数出于无知，还有的或因为既得利益或因为政治压力，或只是不愿意接受丑陋的事实的人。
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
-现在我们知道，达扎克的“生态健康联盟”在推动中共病毒来自武汉海鲜市场的自然说的伪理论时，还收到了数十万美元的赠款。
+**更多资讯，更多关注**
 
-（全文完）
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-达扎克快成美国的过街老鼠了，达扎克背后的人老贼福奇也快了，虽然CNN今天仍然让他出镜【2】。背后与中共勾兑的力量，疑是拜登政府，塞林（Sellin）博士今天发推称，拜登政府掩盖了中共病毒真相【3】。让你们表演吧，真相终究会大白于天下，看你们怎样收场！
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-参考链接：
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-【1】[https://www.thegatewaypundit.com/2021/04/huge-non-profit-ecohealth-alliance-received-1-million-us-grants-head-promoted-made-wet-market-conspiracy/](https://www.thegatewaypundit.com/2021/04/huge-non-profit-ecohealth-alliance-received-1-million-us-grants-head-promoted-made-wet-market-conspiracy/)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-【2】[https://twitter.com/therecount/status/1383771395876818944](https://twitter.com/therecount/status/1383771395876818944)
-
-【3】[https://twitter.com/LawrenceSellin/status/1383676532711858184](https://twitter.com/LawrenceSellin/status/1383676532711858184)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -1,23 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国的注意力从阿富汗转移到中共
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1113619/)
+## 英教会领袖们呼吁英首相放弃疫苗护照计划
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1113637/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/A-23.jpg)scmp.com
-印度媒体报道，美国国务卿安东尼·布林肯(Antony Blinken)表示，20年前实施袭击的基地组织“已经大大削弱”， 对于情报机构可能对阿富汗出现的恐怖主义威胁毫无防备的担忧，安东尼·布林肯表示不以为然，他指出，美国的注意力已经从阿富汗转移到中共。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/PA.jpg)lockdownsceptics.org
+布赖特巴特新闻(Breitbart News)报道，英国1200多名基督教领袖呼吁首相鲍里斯·约翰逊(Boris Johnson)放弃推出疫苗护照的任何想法，他们认为这是对自由民主最危险的威胁。
 
-布林肯称从阿富汗撤军符合拜登政府将资源集中应对中共和抗击中共病毒疫情的目标。“恐怖主义威胁已经转移到了其他地方，”布林肯周日在美国广播公司(ABC)的节目上说，“我们的议程上还有其他非常重要的项目，包括与中共国的关系，包括应对从气候变化到中共病毒的一切问题。这是我们必须集中精力和资源的地方。”
+在一封公开信中，教会领导人警告说，疫苗护照是英国历史上“最危险的政策提案之一”。
 
-美国总统拜登星期三表示，美军将在9月11日恐怖袭击20周年前从阿富汗全面撤军。他说，现在是结束美国“永远的战争”的时候了。美国将重新部署部队和资产，以“防范可能再次出现的恐怖主义。”
+基督教领袖们写道，“这一计划有可能导致我们所知的自由民主的终结，并造成政府使用技术控制公民生活的某些方面的国家监控。因此，这构成了英国政治史上最危险的政策建议之一。”
 
-沙利文在接受《福克斯周日新闻》采访时说，“美国能做的就是向阿富汗安全部队、阿富汗政府和阿富汗人民提供资源和能力，训练和装备他们的部队，并向他们的政府提供援助。”“我们已经做到了，现在是美国军队回家，阿富汗人民站出来保卫自己国家的时候了。”
+教会领袖说，疫苗护照“创造一个两级社会的风险，在医疗上实行种族隔离，不接种疫苗的底层人群被排除在公共生活的重要领域之外。”
+
+该基督教组织总结道：“我们呼吁政府坚决而明确地声明，它不会考虑这个狭隘而危险的计划，现在不会，将来也不会。”
+
+英国国内越来越多的人反对引入疫苗护照，约40名保守党议员誓言投票反对该措施。左翼工党也暗示他们将反对该计划。
 
 参考链接：
 
-[https://www.hindustantimes.com/world-news/us-focus-shifting-to-china-from-afghanistan-says-blinken-101618765668631.html](https://www.hindustantimes.com/world-news/us-focus-shifting-to-china-from-afghanistan-says-blinken-101618765668631.html)
+[https://www.breitbart.com/europe/2021/04/18/1200-church-leaders-denounce-boris-johnsons-vaccine-passport-scheme/](https://www.breitbart.com/europe/2021/04/18/1200-church-leaders-denounce-boris-johnsons-vaccine-passport-scheme/)
 
 0
