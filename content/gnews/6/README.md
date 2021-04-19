@@ -1,53 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104019（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1116746/)
+## 2021年4月19日 文贵先生盖特 1
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1116891/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
+4月19号：灭共的行动，新的战场即将开始！这是由完全由战友们主导控制的新的战斗灭共新方式！新领域！
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+[【2021年4月19日】文贵先生盖特原文](https://gtv.org/getter/607dc6f98616c84f0ff142ef)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01-8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02-9.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03-8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-10.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05-10.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06-8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07-8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08-8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09-8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-12.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-13.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-15.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-11.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-10.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-9.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/18-6.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
+**喜联盟Gnews编辑部**
 
 0
