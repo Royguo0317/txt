@@ -1,145 +1,226 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日新闻收集【4/17】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1113546/)
+## 美国《2021战略竞争法》第206节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1113561/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-【灭共政要】6则推文，如下：
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/L-6.jpg)thefederalist.com
+第206节. 中共国在国际组织中的影响力报告
 
+本节为“标题2——联盟和伙伴关系的投入”中，“副标题A——战略和外交事务”的第206节，副标题A的“第201节. 确定适当的国会委员会、第202节. 美国对印太盟国和伙伴的承诺和支持、第203节. 与四国合作的国会意识、第204节. 与东盟合作政策的声明、第205节. 加强美国与东盟技术合作的国会意识，这些技术合作与中共国有关”，没作翻译。
 
+本节要点：
 
-> ⚡️拜登和菅义伟会谈后召开新闻发布会
-> 拜登说，美日有共同价值观，承诺将在东海和南海共同对抗中国
-> 菅义伟重申美日已达成共识共同对抗中国，他还更直接明确地说，将对抗任何武力改变东海和南海现状的企图，对抗任何恐吓他人的行为 [pic.twitter.com/S5Hq6Dtixn](https://t.co/S5Hq6Dtixn)
-> — 嘻禧僖囍 (@xi\_GLB) [April 16, 2021](https://twitter.com/xi_GLB/status/1383206715907186693?ref_src=twsrc%5Etfw)
+在本法颁布之日起180天内，提交中共国在国际组织中扩大影响的报告，报告内容有4大项，12分项，包括，中共在国际组织中过去10年的影响，这种影响是如何扩大的，跟踪与中共国投票模式一致的国家投票模式，担任D-1级或以上领导职务的中共国公民人数，在国际组织的术语和程序中，
+中共国在国际组织中扩大影响力的目的和最终目标，以及所采取的策略和手段包括-鼓励中共国公民加入和竞选国际组织的领导职位，向国际组织提供的经济或其他奖励，包括技术或货物的捐赠。
 
+欲了解更多的內容，请看本节全文（仅供参考）：
 
-1. **[喜站推特](https://twitter.com/xi_GLB/status/1383206715907186693?s=20)**：
-*拜登和菅义伟会谈后召开新闻发布会 拜登说，美日有共同价值观，承诺将在东海和南海共同对抗中国 菅义伟重申美日已达成共识共同对抗中国，他还更直接明确地说，将对抗任何武力改变东海和南海现状的企图，对抗任何恐吓他人的行为*
+（a）需要的报告 – 在本法颁布之日起180天内，国务卿应与国家情报总监协调，向参议院外交关系委员会和情报特别委员会、众议院外交事务委员会和常设情报特别委员会，提交中共国政府和中国共产党在国际组织中扩大影响的报告。
 
+（b）内容 – 第（a）小节要求的报告应包括以下分析：
 
-> 这哪里是中美之间 而是一场如下两者的竞争
-> 一方是世界和平秩序 繁荣发展 民主自由 科技进步探索星辰大海
-> 另一方是中共的独裁专制 毒害全球 出尔反尔不讲规则 利用国际组织谋求CCP个体利益 利用气候问题绑架全球 牺牲中国人的低人权优势进行不正当竞争 种族屠杀与反人类 
-> 日本🇯🇵要何去何从
-> 应该挺清楚 [https://t.co/upY3lZAKLp](https://t.co/upY3lZAKLp)
-> — Honey Badger (@baobaoxiaoliao) [April 16, 2021](https://twitter.com/baobaoxiaoliao/status/1383075886539374593?ref_src=twsrc%5Etfw)
+（1）中共国和中国共产党在国际组织中过去10年的影响，这种影响是如何扩大的，包括-
+（A）跟踪与中共国政府投票模式一致的国家投票模式；
+（B）担任D-1级或以上领导职务的中共国公民人数；
+（C）在中共国通过有组织的自愿和强制性的资金供给变化；
+（D）在国际组织的术语和程序中，采用中国共产党的表达方式和倡议的；
+（E）中共国确保其外交政策倡议合法化的企图，包括“一带一路”倡议；
+（F）由中共国政府资助的初级专业人员的数量；
+（G）中共国政府或中国共产党操纵秘密或其他非公开的投票措施、投票机构或投票策略；
+（H）在中共国注册成立的技术公司的范围，或者中共或中共国利益拥有者，向国际组织提供设备和服务的范围；以及
+（I）中共国驻联合国代表团在联合国发起的对美国批评的努力，包括任何突出美国延迟付款的努力，或歪曲美国对联合国及其专门机构和项目义务捐款和分摊总额的努力。
 
+（2）中共国和中国共产党在国际组织中扩大影响力的目的和最终目标，包括分析中共国政府和中国共产党的战略文件和言论。
 
-2. **[胡博士转评法广推特](https://twitter.com/baobaoxiaoliao/status/1383075886539374593?s=20)**：
-*这哪里是中美之间 而是一场如下两者的竞争 一方是世界和平秩序 繁荣发展 民主自由 科技进步探索星辰大海 
-另一方是中共的独裁专制 毒害全球 出尔反尔不讲规则 利用国际组织谋求CCP个体利益 利用气候问题绑架全球 牺牲中国人的低人权优势进行不正当竞争 种族屠杀与反人类 
-日本要何去何从 应该挺清楚*
+（3）中共国和中国共产党为实现扩大在国际组织中影响的这一目标，所采取的策略和手段包括-
+（A）鼓励中共国公民加入和竞选国际组织的领导职位；
+（B）对本组织其他成员的胁迫性经济行为和其他行为；以及
+（C）向国际组织提供的经济或其他奖励，包括技术或货物的捐赠。
+（4）中共国和中国共产党的成功与失败对国际组织影响的努力。
 
+（c）表格-根据第（a）小节提交的报告应以非保密形式提交，但可包括保密附件。
 
-> US-Japan: "We underscore the importance of peace & stability across the Taiwan Strait & encourage the peaceful resolution of cross-Strait issues. We share serious concerns about the human rights situations in Hong Kong & Xinjiang Uyghur Autonomous Region."[https://t.co/FM91Mu4h1g](https://t.co/FM91Mu4h1g)
-> — Jerry Dunleavy (@JerryDunleavy) [April 17, 2021](https://twitter.com/JerryDunleavy/status/1383395330205503494?ref_src=twsrc%5Etfw)
+（d）定义- 在本节中，“国际组织”一词是指：
+（1）非洲开发银行
+（2）亚洲开发银行
+（3）亚太经济合作组织
+（4）国际结算银行
+（5）加勒比开发银行
+（6）联合国粮食及农业组织
+（7）国际原子能机构
+（8）国际振兴开发银行
+（9）国际度量衡局
+（10）国际商会
+（11）国际民用航空组织
+（12）国际刑事警察组织
+（13）国际金融公司
+（14）国际农业发展基金
+（15）国际水文组织
+（16）国际劳工组织
+（17）国际海事组织
+（18）国际货币基金组织
+（19）国际奥委会
+（20）国际移民组织
+（21）国际标准化组织
+（22）国际可再生能源机构
+（23）国际电信联盟
+（24）经济合作与发展组织
+（25）禁止化学武器组织
+（26）联合国
+（27）联合国贸易和发展会议
+（28）联合国教育、科学及文化组织
+（29）联合国工业发展组织
+（30）联合国训练研究所
+（31）联合国停战监督组织
+（32）万国邮政联盟
+（33）世界海关组织
+（34）世界卫生组织
+（35）世界知识产权组织
+（36）世界气象组织
+（37）世界动物卫生组织
+（38）世界旅游组织
+（39）世界贸易组织
+（40）世界银行集团
+（本节完）
 
+这是要根除邪共影响的节奏，在文贵先生引领下的爆料革命终于让美国高层有了较清醒的认知，让世界看到了灭共的希望，以毒灭共，以钱灭共，现在又加上以法灭共，共产党你完了！
 
-3. **[司法部记者推特](https://twitter.com/JerryDunleavy/status/1383395330205503494?s=20)**：
-*美日共识：“我们强调台湾海峡两岸和平与稳定的重要性，并鼓励和平解决海峡两岸问题。我们同样严重关切香港和新疆维吾尔自治区的人权状况。”附**[白宫官网原文](https://www.whitehouse.gov/briefing-room/statements-releases/2021/04/16/u-s-japan-joint-leaders-statement-u-s-japan-global-partnership-for-a-new-era/)***
+原文链接：
 
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
 
-> 蓬佩奥说大家都知道台湾从来都不是中共国大陆的一部分
-> Pompeo Said that We All Know that Taiwan has Never Been Part of Mainland China [pic.twitter.com/llb6cFt1d8](https://t.co/llb6cFt1d8)
-> — 秘密翻译组 (@G\_Translators6) [April 17, 2021](https://twitter.com/G_Translators6/status/1383389924661944336?ref_src=twsrc%5Etfw)
+文字整理：
 
+SEC. 206. REPORT ON CHINESE INFLUENCE IN INTERNATIONAL ORGANIZATIONS.
 
-4. **[秘密翻译组推特](https://twitter.com/G_Translators6/status/1383389924661944336?s=20)**：
-*蓬佩奥说大家都知道台湾从来都不是中共国大陆的一部分*
+(a) REPORT REQUIRED. – Not later than 180 days after the date of the enactment of this Act, the Secretary of State, in coordination with the Director of National Intelligence, shall submit to the Committee on Foreign Relations and the Select Committee on Intelligence of the Senate and the Committee on Foreign Affairs and the Permanent Select Committee on Intelligence of the House of
 
+Representatives a report on the expanded influence of the Government of the People’s Republic of China and the Chinese Communist Party in international organizations.
 
-> 国家情报局局长办公室发布年度全球威胁评估报告,将中共列为对美国国家安全的头号威胁
-> The ODNI released the annual global threat assessment report and identified CCP as the number one national security threat to the United States [pic.twitter.com/hpbgcKgjqJ](https://t.co/hpbgcKgjqJ)
-> — 秘密翻译组 (@G\_Translators6) [April 17, 2021](https://twitter.com/G_Translators6/status/1383390365181308933?ref_src=twsrc%5Etfw)
+(b) CONTENTS. – The report required by subsection (a) shall include analysis of the following:
 
+(1) The influence of the PRC and Chinese Communist Party in international organizations and
 
-5. **[秘密翻译组推特](https://twitter.com/G_Translators6/status/1383390365181308933?s=20)**：
-*国家情报局局长办公室发布年度全球威胁评估报告,将中共列为对美国国家安全的头号威胁*
+how that influence has expanded over the last 10 years, including –
 
+(A) tracking countries’ voting patterns that align with Chinese government voting patterns;
 
-> Donald Trump will join Fox News’ [@seanhannity](https://twitter.com/seanhannity?ref_src=twsrc%5Etfw) on Monday at 9pm/ET for his first on-camera sit down TV interview since leaving office [pic.twitter.com/16l48qmWnM](https://t.co/16l48qmWnM)
-> — TV News HQ (@TVNewsHQ) [April 17, 2021](https://twitter.com/TVNewsHQ/status/1383366129029050368?ref_src=twsrc%5Etfw)
+(B) the number of PRC nationals in leadership positions at the D–1 level or higher;
 
+(C) changes in PRC voluntary and mandatory funding by organization;
 
-6. **[TVNewsHQ推特](https://twitter.com/TVNewsHQ/status/1383366129029050368?s=20)**：
-*唐纳德·川普将加入福克斯新闻[@seanhannity](https://twitter.com/seanhannity)
-美国东部时间周一晚上9点，他离开办公室后首次在电视上接受电视采访*
-【以毒灭共】6则推文，如下：
+(D) adoption of Chinese Communist Party phrases and initiatives in international organization language and programming;
 
+(E) efforts by the PRC to secure legitimacy for its own foreign policy initiatives, including the Belt and Road Initiative;
 
+(F) the number of Junior Professional Officers that the Government of China has funded by organization;
 
-> 生物战的兵工厂正式挂牌公示了。全面病毒战要开始了！ [https://t.co/4aDSNpsqJY](https://t.co/4aDSNpsqJY)
-> — 墨博士 (@4RxMbPD3YbeN1fS) [April 17, 2021](https://twitter.com/4RxMbPD3YbeN1fS/status/1383307759957856257?ref_src=twsrc%5Etfw)
+(G) tactics used by the Government of China or the CCP to manipulate secret or otherwise non-public voting measures, voting bodies, or votes;
 
+(H) the extent to which technology companies incorporated in the PRC, or which have PRC or CCP ownership interests, provide equipment and services to international organizations; and
 
-1. **[墨博士推文](https://twitter.com/4RxMbPD3YbeN1fS/status/1383307759957856257?s=20)**：
-（*李昂纳多）中共的中华人民共和国科学技术部副部长相里斌近日宣布科学技术部依据生物安全法已经批准建立：3个新的P4实验室 88个新的P3实验室 来应对未来出现的突发传染性疾病 
-评论：中共疯狂建立生物实验室，再次验证文贵先生之前的情报，中共正在计划进行大规模超限生物武器研究，并且将其作为超限战策略
-（墨博士）生物战的兵工厂正式挂牌公示了。全面病毒战要开始了*
+(I) efforts by China’s United Nations Mission to generate criticism of the United States in the United Nations, including any efforts to highlight delayed United States payments or to misrepresent total United States voluntary and assessed financial contributions to the United Nations and its specialized agencies and programs.
 
+(2) The purpose and ultimate goals of the expanded influence of the PRC and the Chinese Communist Party in international organizations, including an analysis of PRC Government and Chinese Communist Party strategic documents and rhetoric.
 
-> Twitter has suspended [@CortesSteve](https://twitter.com/CortesSteve?ref_src=twsrc%5Etfw) for citing a Stanford NIH study about masks. [pic.twitter.com/2y460zkN0Z](https://t.co/2y460zkN0Z)
-> — Raheem Kassam (@RaheemKassam) [April 17, 2021](https://twitter.com/RaheemKassam/status/1383223891028451332?ref_src=twsrc%5Etfw)
+(3) The tactics and means employed by the PRC and the Chinese Communist Party to achieve
 
+expanded influence in international organizations, including –
 
-2. 班农战斗室**[Raheem推特](https://twitter.com/RaheemKassam/status/1383223891028451332?s=20)**：
-*由于引用斯坦福大学美国国立卫生研究院关于口罩的研究，推特已暂停[@CortesSteve](https://twitter.com/CortesSteve)的推特账号。
-网址：[https://t.co/lXyB27cfpD](https://t.co/lXyB27cfpD)*
+(A) incentive programs for PRC nationals to join and run for leadership positions in international organizations;
 
+(B) coercive economic and other practices against other members in the organization; and
 
-> My analysis of the Chinese Communist Party's dual-use military-civilian R&D program for novel genetically-engineered coronaviruses & heterologous vaccines against multiple strains, roughly follows this development plan, but involves more than one virus & a premature release. [pic.twitter.com/QYkJCJG17S](https://t.co/QYkJCJG17S)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 17, 2021](https://twitter.com/LawrenceSellin/status/1383494654633472007?ref_src=twsrc%5Etfw)
+(C) economic or other incentives provided to international organizations, including donations of technologies or goods.
 
+(4) The successes and failures of PRC and CCP influence efforts in international organizations.
 
-3. **[塞林博士推特](https://twitter.com/LawrenceSellin/status/1383494654633472007?s=20)**：
-*我对中共军民融合的新型基因工程冠状病毒和多株异源疫苗研发计划的分析，大致是按照中共研发计划进行的，但涉及的病毒不止一种，并过早释放。。附英国农场郭文贵先生爆料“13579”计划文宣图。*
+(c) FORM – The report submitted under subsection (a) shall be submitted in unclassified form, but may include a classified annex.
 
+(d) DEFINITION – In this section, the term ‘‘international organizations’’ means the following:
 
-> A heterologous vaccine is one the protects against more than one strain of a virus. Live attenuated are "live" but altered viruses that are not pathogenic. Combination attenuation is alteration of the virus in more the one site to prevent reversion back to its pathogenic state. [https://t.co/uSpATRmuoE](https://t.co/uSpATRmuoE)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 17, 2021](https://twitter.com/LawrenceSellin/status/1383490000780623873?ref_src=twsrc%5Etfw)
+(1) The African Development Bank.
 
+(2) The Asian Development Bank.
 
-4. **[塞林博士推特](https://twitter.com/LawrenceSellin/status/1383490000780623873?s=20)**：
-*（KITE LEE）塞林博士，你能稍微解释一下病毒疫苗吗？疫苗是不是病毒的包装？
-（塞林博士）异源疫苗是指一种能防止一种以上的病毒株的疫苗。活体减毒是指 “活的 “但经过改变的病毒，不具有致病性。联合减毒是指改变病毒的一个以上部位，以防止其恢复到致病状态*
+(3) The Asia Pacific Economic Cooperation.
 
+(4) The Bank of International Settlements.
 
-> Detailed analysis of the Chinese Communist Party's research network reveals that [#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw) likely arose from a dual-use military-civilian R&D program to create multiple genetically-engineered novel coronaviruses and combination attenuation live attenuated heterologous vaccines. [pic.twitter.com/CZNiSWFkfO](https://t.co/CZNiSWFkfO)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 17, 2021](https://twitter.com/LawrenceSellin/status/1383467378915217416?ref_src=twsrc%5Etfw)
+(5) The Caribbean Development Bank.
 
+(6) The Food and Agriculture Organization.
 
-5. **[塞林博士推特](https://twitter.com/LawrenceSellin/status/1383467378915217416?s=20)**：
-*中共科研网的详细分析显示，#COVIDー19很可能产生于一个军民融合的中共研发计划，即制造多种基因工程新型冠状病毒和联合活体减毒异源疫苗。*
-*附新中国联邦文宣——新冠肺炎=中共病毒*
+(7) The International Atomic Energy Agency.
 
+(8) The International Bank for Reconstruction and Development.
 
-> 20201029日本筑波大學名譽教授板野肯三1/4
-> 這一段是講石正麗論文描述了些什麼，我就不勾重點了，重點第二段才開始
-> 其實CCP找不出人來反駁閆博士的論文很正常，因為就連閆博士引用的這些論文，石正麗都反駁不了更別說CCP這豬邏輯的腦子看不看得懂了
-> 請大家去原視頻↓點讚🙏[https://t.co/PLhR1rYmMt](https://t.co/PLhR1rYmMt) [https://t.co/MAS6tYDel9](https://t.co/MAS6tYDel9) [pic.twitter.com/TrWK1YDcmn](https://t.co/TrWK1YDcmn)
-> — Andy5 (@andy5\_123) [April 17, 2021](https://twitter.com/andy5_123/status/1383343480139780098?ref_src=twsrc%5Etfw)
+(9) The International Bureau of Weights and Measures.
 
+(10) The International Chamber of Commerce.
 
-6. **[Andy5推特](https://twitter.com/andy5_123/status/1383343480139780098?s=20)**：
-***[（援引日媒解释闫报告）](https://www.youtube.com/watch?v=r_0M5e_ZANY&amp;feature=youtu.be)**
-（一）2020/10/29日本筑波大学名誉教授板野肯三
-这一段是讲石正丽论文描述了些什麼，我就不勾重点了，重点第二段才开始
-其实CCP找不出人来反驳闫博士的论文很正常，因为就连闫博士引用的这些论文，石正丽都反驳不了更别说CCP这猪逻辑的脑子看不看得懂了
-（二）1.RaTG-13是在石正丽论文中突然登场的名称 
-2.闫博士论文的引用里就有好几篇是质疑RaTG-13的 
-3.文献一：相似度96.3%听上去很高，但差了1100多个核苷酸，自然进化一年也就只能改变36个⋯所以至少需要30年才能变异成现在的病毒
-4.石正丽最近有再测序4991吗？
-（三）5.文献二：既然4991跟RaTG-13一致，那么RaTG-13的存在本身就够怪的
-6.为什么不公开血液样本让却世界的科学家进行全基因组测序？
-7.文献三：也有说改名不存在恶意的
-8.文献四：石正丽回答RaTG-13是怎么回事是她作为科学家的底线
-9.团队研究中通讯作者才是老大
-（四）10.石正丽这篇论文为什么不提4991？
-11.病毒如果来自於2010-20年的云南矿洞，根据“3.”来说，当时一定也有感染性，这么重要的点为什么不提？（我更想问当时怎么没有爆发）
-12.文献四的作者希望武汉研究所公布当时研究4991的资料*
+(11) The International Civil Aviation Organization.
 
+(12) The International Criminal Police Organization.
 
-+1
+(13) The International Finance Corporation.
+
+(14) The International Fund for Agricultural Development.
+
+(15) The International Hydrographic Organization.
+
+(16) The International Labor Organization.
+
+(17) The International Maritime Organization.
+
+(18) The International Monetary Fund.
+
+(19) The International Olympic Committee.
+
+(20) The International Organization for Migration.
+
+(21) The International Organization for Standardization.
+
+(22) The International Renewable Energy Agency.
+
+(23) The International Telecommunications Union.
+
+(24) The Organization for Economic Cooperation and Development.
+
+(25) The Organization for the Prohibition of Chemical Weapons.
+
+(26) The United Nations.
+
+(27) The United Nations Conference on Trade and Development.
+
+(28) The United Nations Educational, Scientific, and Cultural Organization.
+
+(29) The United Nations Industrial Development Organization.
+
+(30) The United Nations Institute for Training and Research.
+
+(31) The United Nations Truce Supervision Organization.
+
+(32) The Universal Postal Union.
+
+(33) The World Customs Organization.
+
+(34) The World Health Organization.
+
+(35) The World Intellectual Property Organization.
+
+(36) The World Meteorological Organization.
+
+(37) The World Organization for Animal Health.
+
+(38) The World Tourism Organization.
+
+(39) The World Trade Organization.
+
+(40) The World Bank Group.
+
+0
