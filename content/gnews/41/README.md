@@ -1,25 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 大量香港人选择台湾作为移民目的地
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1114228/)
+## 【香草诗词汇】自由森林
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1114468/)
 
-加拿大多伦多枫叶农场 向真
+配音：香草山录音组 Swr拥抱太阳
 
-中共在1984年与英国签订《中英联合声明》，自此启动了香港悲惨的“回归”之旅，37年过去了，其间香港爆发了5次移民潮，每一次都是因为中共的暴行和邪恶不断升级，引起港人的极度反感及恐慌导致的。其中以89年的天安门6.4大屠杀、97年回归、2019年反送中运动对香港社会的影响最深刻，引发的移民潮规模最大，发酵时间最长。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/bbcnews.jpg)*图片来源：BBCNEWS.COM*
-出走的香港人大多数是精英分子，而移居香港的大多是大陆人，香港的人口结构由此发生了较大的变化，但香港作为东方明珠及国际金融中心的地位仍然牢固，直至2019年中共背信弃义，彻底撕下伪装，在香港大肆镇压反送中运动，残害民主人士，并通过《港版国安法》后，香港才沦为“臭港”。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-相较于此前的几次移民潮，这一次港人移民的意愿最强烈，有超过3成的商界领袖、4成的港人表示要离开香港。更依赖本土文化市场的演艺界人士也纷纷出走，同是华人圈的台湾成了众多香港艺人的避风港，其中，被誉为“词神”的反共人士林夕先生已获得中华民国护照，同为反共人士的影帝黄秋生公开表示有意移居台湾，此前他已获得中华民国劳动部发的就业金卡。目前住台的反共知名艺人杜汶泽近日向慈善机构慷慷捐赠了100万元新台币……。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/rfi.fr_-3.jpg)*图片来源：rfi.fr*
-因经营反共书刊曾经被中共特工抓捕迫害的香港铜锣湾书店老板林荣基，已移居台湾并开了书店。不过他抱怨，台湾对香港移民设置的门槛过高，要求从香港汇入台湾600万新台币(约162万港币)，使不少港人望而却步。即便如此，过去的2020年在所有香港移民中，有三分之一仍然选择台湾作为移居目的地，这主要是台湾的民主制度加上同源文化吸引了善良的香港人。
 
-中共70多年来的统治已被证明是反人类、彻底失败的，其共产专制和极端腐败相互作用摧生了前所未有的暴政，从而严重破坏和威胁了大中华区的文明。当前的中共急于对民主台湾动武的原因，主要是需要转移国内社会矛盾，释放多年来在大陆倒行逆施积聚的巨大负能量。一旦台湾继香港之后沦陷，大中华地区再无净土，因此，全球华人只有奋起灭共，才能拥有故乡和自由。
 
-参考链接：[港人逃亡潮3分之1來台！林夕已拿到身分證　黃秋生取得就業金卡](https://www.storm.mg/new7/article/3615262)
 
-* * *
 
-编辑 发稿 云起时
 
-+1
+
+一
+
+我们的性情近植物:安静、平和
+
+春天我们用繁花装扮自己
+
+秋天我们用沉甸甸的果实款待路人
+
+我们的执着像树，屹立万年
+
+我们的耐心像藤蔓，千万次缠绕，追逐阳光
+
+我们的不幸是遇到伐木的暴徒：山河破碎
+
+但柔弱的玫瑰也藏有刺，我们已醒来
+
+草木皆兵，落花成箭，大地必繁花盛开
+
+
+
+文字版原文：[【香草诗词汇】自由森林](https://gnews.org/zh-hans/968463/)
+
+作者：纽约香草山农场 木白
+
+
+
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

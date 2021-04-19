@@ -1,43 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】夺命疫苗何时了
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1114648/)
+## 中共疫苗有效？看看塞舌尔这个反面教材
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1114804/)
 
-配音：香草山录音组 Swr拥抱太阳
+作者：Stephen文文
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+中共疫苗到底有没有效果，看看印度洋岛国塞舌尔就知道了！塞舌尔目前是全球接种进度最快的国家，从1月中旬开始接种中国医药集团产疫苗，其总人口中约65.60%已经接种疫苗。但是塞舌尔目前却仍处疫情高发期。
 
+1. 塞舌尔是仅有人口约10万的印度洋小国，远离大陆，输入性传染率低，有很强的“孤岛效应”，是研究疫苗是否有效的良好样板。
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/041906.jpg)
 
+2. 塞舌尔疫情在2021年1月前处于非常平稳的阶段，每日新增病例数为0-5人。整个2020年塞舌尔的新冠死亡率为0，总病例数也只有200例。但是就在疫苗接种前的1月初，每日新增感染人数暴增至50人左右。
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/041907.jpg)
 
+3. 1月10日，包括总统拉姆卡拉旺在内的塞舌尔主要政治领导人和多名卫生工作者，相继接种了中共国药集团生产的疫苗。
 
+可见极高的中共国药疫苗接种率并没有有效减缓塞舌尔的病毒传播，反而为该国带来了有史以来最高发的疫情阶段。可见中共国的疫苗有效率极低，绝对是中共一贯的造假产物！
 
-据4月7日美联社迈阿密的报道：今年一月，在迈阿密海滩的西奈山医疗中心执业的56岁产科医生迈克尔·格雷戈里 (Dr. Gregory Michael) 在接种辉瑞mRNA疫苗两个多星期后死亡。法医死因调查是由佛罗里达州卫生部和联邦疾控中心CDC主持的, 验尸样本被送往CDC 。调查小组成员包括疫苗安全、免疫学、传染病学、血液学、病理学和实验室方面的学科和临床专业人员。调查小组的结论是，迈克尔·格雷戈里医生死于自身过度免疫反应所致的弥漫性血小板减少性紫癜（Immune thrombocytopenic purpura， ITP），一种可以防止血液凝固并导致内出血的疾病。迈阿密戴德县法医部业务主任达伦·卡普拉(Darren Caprara)通过电子邮件发布：格雷戈里医生死于一种可能导致内出血的疾病，医学上没法确定是注射疫苗导致的，其死因被归类为自然因素所致.。
+另外，一个可疑之处就是偏偏在塞舌尔接种疫苗的半个月前，其疫情急剧恶化，不排除中共故意放毒，要挟塞舌尔使用其疫苗。待疫苗接种率达到一定程度后再将其感染人数降下来。
 
+[援引原文](http://m.cankaoxiaoxi.com/videos/20210112/2431915.shtml?fr=mb)
+[援引原文2](https://m.jiemian.com/article/5945745.html)
 
-
-**文字版原文：[【医疗前沿世界】夺命疫苗何时了](https://gnews.org/zh-hans/1099582/)**
-
-作者：纽约香草山医疗部   圣母院钟声
-
-
-
-音频处理/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+审核校对：鲁邦五世
+上传排版：糖果儿
 
 0

@@ -1,42 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】中共警察注射国产疫苗后死亡
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1114160/)
+## 马斯克推荐的狗狗币价格飙涨400%
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1114198/)
 
-配音：香草山录音组 蒙古鸿雁
+撰稿：五月光
+![]()![](https://gnews.org/wp-content/uploads/2021/04/191-3.png)图片来自网络截图
+多吉币（英文：Dogecoin, 又称狗狗币、狗币，币市代码为：DOGE，货币符号：Ð ）是一种继承自[莱特币的虚拟货币（电子货币）](/wiki/%E8%99%9A%E6%8B%9F%E8%B4%A7%E5%B8%81)，诞生于2013年12月6日，由IBM工程师Billy Markus推出，币面符号是一只Doge。起初只是Billy Markus用于证明，同时作为[比特币](/wiki/%E6%AF%94%E7%89%B9%E5%B8%81)的改进示范而创立的电子货币，但发布之后很快的在电子货币社区中流行。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+狗狗币原先被当作笑话看，不过随着散户疯狂涌入，上周五出现历史性涨幅，一周以来价格飙涨超过400%。有网友在社交平台Reddit的狗狗币板贴出Robinhood帐户截图显示，他买的狗狗币涨了近700%，市值达到108万美元。
 
+部分人士认为，狗狗币的上涨与马斯克（Elon Musk)的推特有关，近来马斯克在多个推特中推荐狗狗币，称它是“民众的货币”，上周他再度在推特上贴出一张1926年由画家胡安.米罗(Joan Miri)所画的《对月亮咆哮的狗》（Dog Barjing at the Moon)，并将它改成“对月亮咆哮的狗狗币（Doge Barking at the moon)”，带有狗狗币涨翻天的意思。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/192-3.png)图片来自马斯克推特
+作者本人是第一次知道有狗狗币这样一种虚拟货币，对一周内涨幅达到400%感到有点不可思议，却也印证了郭先生直播中说过，最近钱都跑去了虚拟币，所以连没怎么听说过的狗狗币都有如此惊人的涨幅。再想想我们即将上市的Gcoin，拥有世界上最先进的加密技术，同时发行量20%与黄金锚定，是最干净的虚拟货币。这么独一无二的Gcoin上市会有多大涨幅？几百倍？几千倍？几万倍？这真的不是想象，让我们拭目以待。
 
+文章内容仅代表作者观点
 
-
-
-
-
-文字版原文：[【热点播报】中共警察注射国产疫苗后死亡](https://gnews.org/zh-hans/1110240/)
-
-作者：香草山媒体部 文扬四海
-
-4月17日，大纪元报道了发生在微博网友“山下花野子”身上的不幸事件。七天前（4月10日）该网友在微博发文说，弟弟30岁不到，是边检民警，发病前身体健康，在接种灭活疫苗后，突发血小板为零、脑出血、皮下出血等症状，已在ICU昏迷了17天，希望得到专家救助。
-
-4月15日，该网友在微博发布讣告并补充，弟弟没有病史，于1月11日接种了国药集团的北生灭活疫苗第一针，2月8日接种第二针。在此期间，弟弟出现疲劳、皮下出血、牙龈出血的情况，直至3月24日突发脑出血入院，于4月15日去世。据称，该男子的死亡原因为重度再生障碍性贫血引起的脑出血。博主质问当局，希望能给家属一个交代。目前，以上两条微博均已被删除。
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*审核：Runaway 编辑：MG1*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
 0

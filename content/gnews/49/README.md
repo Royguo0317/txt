@@ -1,42 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】日本首相访美，两国领袖誓言坚定联手抗中，历史意义重大
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1114135/)
+## 布林肯警告中共不要侵犯台湾
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1114313/)
 
-配音：香草山录音组 蒙古鸿雁
+俄罗斯莫斯科喀秋莎农场   银河
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/T-15.jpg)indianexpress.com
+美国军事新闻网报道，美国国务卿布林肯(Antony Blinken)警告中共不要侵犯台湾，并指责中共政府隐瞒疫情真相加速了中共病毒的传播。
+
+在接受美国全国广播公司新闻采访时，布林肯对中共在台湾海峡的“侵略行动”引发的紧张局势表示担忧，并表示美国坚持其确保台湾自卫的承诺。
+
+布林肯周日在《与媒体见面》(Meet the Press)节目中表示:“任何人试图以武力改变现状，都将是一个严重的错误。”他说，他不会猜测美国可能做出的回应。
+
+布林肯还表示，他正在与欧洲盟国就俄罗斯在乌克兰边境部署军队的问题进行接触，他说，这是自2014年俄罗斯入侵乌克兰东部以来的最高水平。拜登总统已经明确表示，“如果俄罗斯鲁莽行事或咄咄逼人，就会有代价，也会有后果。”
+
+知情人士说，布林肯本周将返回布鲁塞尔，与北约和欧洲官员举行更多会谈，因为美国对军队的调动越来越担心。美国国防部长奥斯汀(Lloyd Austin)将在布鲁塞尔与北约秘书长斯托尔滕贝格(Jens Stoltenberg)举行会谈。
+
+乌克兰只是拜登和他的政府面临的一系列全球性挑战之一。中共最近对台湾的威胁引起了广泛关注。
+
+布林肯支持白宫关于中共对待维吾尔族是种族灭绝的说法，他说，美国需要考虑将该地区制造的中共国产品拒之门外。同时强调，相比之下，现在讨论抵制明年的北京冬奥会还为时过早。
+
+布林肯重申了美国政府对中共的批评，即中共在去年中共病毒疫情爆发初期未能“提供真正的透明度”。这一失败的一个结果是病毒“失去控制的速度更快”， “产生的结果更加恶劣”。 他强调，“这就是为什么我们需要弄清这件事的真相。”
+
+美国对中共的态度日益明朗，灭白计划和攻击美元体系已经让美国彻底认清中共的脸孔，为维护美国利益，灭共是最好的选择。
+
+参考链接：
 
 
 
+> [Blinken warns China on Taiwan encroachment, Russia on Ukraine](https://americanmilitarynews.com/2021/04/blinken-warns-china-on-taiwan-encroachment-russia-on-ukraine/)
 
 
-
-
-据法国国际广播电台4月17日报道，美国总统拜登昨日在华府，与到访的日本首相菅义伟举行峰会。两国领袖誓言坚定联手抗中、加速因应气候变迁及5G网络方面合作。此外会后的声明中，还写入了对香港等的人权状况共同严重关切，美日首脑还确认将在中共新冠疫情上加强合作。
-
-拜登在这场领袖峰会上告诉菅义伟，日本享有美国在安全和其他议题上「钢铁般的支持」，体现了美国视日本为最重要的坚定盟友，承诺将给予最坚强的支持。
-
-文字版原文：[【热点播报】日本首相访美，两国领袖誓言坚定联手抗中，历史意义重大](https://gnews.org/zh-hans/1109580/)
-
-作者：香草山健身部 Jack Li文阳
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -1,91 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “掀锅盖”系列：20210417日印中三国争霸亚洲，世界即将恶性通胀，中共囤积黄金
-` 《爆料贵语--掀郭盖》NZ` [轉載自GNews](https://gnews.org/zh-hans/1114327/)
+## 【有声读物】无题
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1114526/)
 
-**郭先生口述内容：**
+配音：香草山录音组 Swr拥抱太阳
 
-世界即将迎来人类有史上最大的通货膨胀
-
-严格讲叫恶性通货膨胀
-
-就过去这几天美国拜登总统
-
-和日本的首相菅义伟的见面
-
-这两国家印钞现在都印的非常厉害
-
-日本美国都将迎来巨大的通货膨胀及恶性通货膨胀期
-
-这两人的见面两事发生了
-
-第一个亚洲的小池塘出了三鳄鱼
-
-印度日本还有中共自己
-
-所以这三这亚洲的池塘之争已经开始
-
-第二大家要注意到
-
-美国和日本达成了经济上的各种合作桌子底下协议
-
-那就是你也印我也印印钞票
-
-你看这就共产党已经早前得到情报
-
-最近大量的买进黄金
-
-大量的在国内禁止黄金交易
-
-大量的国企在外面悄悄的买
-
-黄金和黄金的一些金矿的股份
-
-所以说这个时候你家里存点黄金没有用
-
-你兑现很难千万不要乱买黄金
-
-另外一个现在看到美国整个金融板块都是暴涨
-
-兄弟姐妹们记住我今天说的话
-
-不会超过一年你就会验证我今天说的话
-
-世界的经济因为通胀
-
-美国的经济和日本的经济和因为印钞票
-
-和共产党的擀面杖子经济
-
-遇到最大的一个全球性的经济危机
-
-这次正好迎来了世界过去金本位到布雷森系统垮掉
-
-到纸币现在要垮掉
-
-到加密货币网路金融的整个一个大时代
-
-所以兄弟姐妹们越是这时候一定要冷静
-
-不要让人家给大浪把咱们给冲到沙滩上
-
-\*所有经过节选，编辑和剪辑的简报和视频形式仅供留存及传播，分享信息！
-
-\*所有信息以郭文贵先生源盖特视频和直播视频为准！
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-听写整理：作而无作
 
-翻译：正义的伙伴
 
-校正：SugarPup
 
-视频制作：农夫
 
-审核：掀锅盖组
+因为你，世界倾斜了片刻
+在没有雨的瓦房里，暮色与墓色
+你悄悄打开姹紫嫣红的春
+这是我心中唯一的光
+因为你，世界倾斜了片刻
+世界所有的光都在倾斜
+在黑白颠倒，虚伪洗脑的另一世
+你是我唯一的爱
 
-上传：糊糊文婴
+
+
+文字版原文：[【香草诗词汇】无题](https://gnews.org/zh-hans/1043185/)
+
+作者：纽约香草山农场 木白
+
+
+
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
