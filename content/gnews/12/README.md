@@ -1,31 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【各抒己见】油画解读
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1114788/)
+## 2021年4月15日 文贵先生盖特 2
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1115120/)
 
-作者：喜马拉雅东京樱花团 / 大盐
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-![](https://lh3.googleusercontent.com/ZjdygG31lcKraHYqWyJsY8dx1afTHzemGZEB9U-ledv6V_4Q5t_TuDup-ex10os_f7HrH_a3VCc3hCC9CCQ6KQcFe-HKs2xENpr8Fa1d79SvpSDJrU2OP8qgS7_rxZCq0Fu1hohM)
+For Spring Summer 2021, GIFashion continues to explore forms and destructed fabrics with its growing design team from all around the world. The new collection combines the dynamic Los Angeles street wear and refined GIFashion soul with a modern and casual twist. While black and white define the strength of the collection, grey brings this year’s message in calmness. Statement logos and messages give voice to the designs. The collection takes the casual street wear to a brave, elevated, identified, strong synthesis. The dynamic logo and bold messages on each design describe the idea that normal is not coming back anymore. This is a “goodbye forever” to everything we know and a moment to welcome the new chapter of our lives, a celebration for the feeling of hope, transformation and freedom. The progression of life. G|Fashion2021年春夏季时尚单品将继续与来自世界各地顶级的设计团队合作，共同探索，力争颠覆现有的时尚形式和面料。G|Fashion新系列单品将放荡不羁的洛杉矶街头服饰与炙热的GIFashion灵魂相结合，并融入了现代休闲的元素。采用黑色和白色作为该系列的力量定义，并采用灰色来传递今年的旋律-平静（祥和）。鲜明的标识和传递出的信息为设计谱写了新的乐章。G|Fashion2021年新系列将街头休闲服饰演变成了一个展现果敢，提升，认同及力量的结合体。每一个设计上的动态标志和大胆的信息都在传递着“常态已不复存在”的理念。这是一个 “Goodbye Forever “我们所知道的一切的时刻，也是迎接我们生活新篇章的时刻，是对希望、改变和自由的庆祝。这是生命的延展
 
-最近，中共国一幅反映新时代风貌的油画在社交媒体广泛转载，油画《支部建在楼上——上海陆家嘴金融贸易区党建工作纪实》 。作者李前，1964年生于山东，1988年毕业于山东艺术学院美术系油画专业，上海戏剧学院舞台美术系副教授，通俗地说，李教授的专业是教学生画“舞台布景”的。
+[【2021年4月15日】文贵先生盖特原文](https://gtv.org/getter/6078fa6808b2ab70c8226217)
 
-熟悉的画面迎面扑来，除了高饱和的色彩，众所周知，油画是西方舶来品，而中共国油画发展史又与中共国艺术界在建国前三十年完整地模仿苏联社会主义画风有关。在苏联的社会主义宣传油画中，画面主视角必然留给高大的主要人物——是此类画作的铁律。
-
-这幅描绘构图突出了革命导师庄严、激情、不容辩驳的正确性，使女青年的形象具有布道者的神圣感。
-
-这幅油画，刻画了一个充满自信、乐观向上的女青年形象。人物造型和环境设置力求突出个性与特点，力求真实表现新世纪青年人的精神，画面色调明快，象征着土匪党的事业有着美好的明天与未来。刻画了一个亢奋的、昂扬的、革命的、斗争的、阶级立场鲜明的新时代文艺路线一一党支部青年女书记形象。
-
-土匪党建不仅仅引领金融，各行各业无孔不入，即使在2021年的今天，文革也从未结束，只是以另外的形式隐存在于世。
-
-
-
-*免责申明：本文只代表作者观点，与GNews网站无关。*
-
-*校对：喜马拉雅东京樱花团 / 东洋武士*
-*责任编辑：喜马拉雅东京樱花团 / 文小白*
-*发布：喜马拉雅东京樱花团 / 传福音的人*
-![]()![](https://gnews.org/wp-content/uploads/2021/04/二维码-1.jpg)
-0418C095c
+**喜联盟Gnews编辑部**
 
 0

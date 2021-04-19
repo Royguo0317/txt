@@ -1,237 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 讨论白宫新闻秘书詹·普萨基（Jen Psaki）无法回答有关疫苗和恢复正常生活的问题
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1114397/)
+## 【热点播报】比特币暴跌，加密货币集体闪崩，近50万人爆仓，验证了文贵先生的预警
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1114633/)
 
-视频内容：
+作者：纽约香草山健身部Jack Li文阳
 
-来自真正的美国声音(Real America’s Voice) 2021年4月14日的推文
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
-Female Journalist question
 
-女记者提问
 
-How do you strike that balance
+4月18日数字货币惨遭血洗，多种加密货币集体闪崩。其中比特币出现崩盘式暴跌，跌破52,000美元/枚，目前已有近50万人爆仓。
 
-你如何做到这种平衡
+加密货币暴跌之际，全网加密货币过去一小时爆仓达到42.87亿美元，过去24小时有超过62万人爆仓，爆仓量55.79亿美元。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片1-49.png)
+4月18日上午，比特币闪崩，一小时内暴跌近8000美元。24小时涨跌幅计算，比特币暴跌17%，以太坊暴跌20%，币安币暴跌17%，瑞波币暴跌26%，狗狗币暴跌19%，莱特币暴跌28%，波场币暴跌25%，柚子币暴跌29%。
 
-between being a model of the public health guidelines
+比特币在4月13日曾一度突破64,000美元关口，最高达到64,778美元，当比特币“玩家”以为比特币会继续走高时，此后，比特币开始了连续几天的下跌。
 
-在成为公共卫生准则的范例
+比特币快速下跌，做多的投资者损失惨重。近24小时，爆仓人数急剧上升，超47万人爆仓，379亿元人民币灰飞烟灭。
 
-and also not contributing to this sense of hopelessness
+文贵先生4/16日曾发出警示：华尔街神秘的手都在玩虚拟货币，比特币和其他几个虚拟货币就由共产党和华尔街控制，两个洗钱集团正猛力推高市场，再摔下来，大家都在等着傻货往里冲，投机和赌博式的心理一定让你倾家荡产，永远不要参与。
 
-和没有助长这种绝望感之间
+4/18/2021 文贵先生在直播里说：“很多战友经历了比特币又一次的割韭菜，很多人明白了我一直说的只能投资不能投机的意义所在。我一次次用生命、代价、自由、安全、上千亿的财富告诉你跟着共产党走进火葬场，不要相信共产党的企业，结果这位战友大量投资了火币，赔得一塌糊涂”。
 
-Perhaps among people who are skeptical with your vaccine
+文贵先生说：“我告诉大家一个基本的逻辑，比特币根本没有赚钱的机会，因为它的加密属性和去中心化，是洗钱和贩毒最重要的工具，而且是共产党和华尔街大佬玩的工具。只要暗网有任何犯罪组织被查，比特币就暴跌；它的使用功能方向被改变的时候就暴跌。所以它是一个永远被定为灰色的、非法的，用是因为它是逃税的最佳工具、犯罪的最佳工具，被全世界政府打压。不管什么币，只要跟共产党的都叫冥币。”
 
-也许在对你的疫苗持怀疑态度的人中
+文贵先生总结道：“世界从恶性通货膨胀进入经济危机，比特币、火币还会起起伏伏，最后只有我们G币会火下去，因为我们是中心化，有黄金储备和稳定币，不洗钱，受世界各国政府支持。G系列将是最健康的。”
 
-and maybe feel like getting it would not make a difference in their lives anyway
+有点脑子的人都知道G系列意味着什么，GTV, Gnews, GClubs, Gcoin, Gfashion 就是踩在世界的屋顶，而且是干净的、稳健地往前走，谁也挡不住加密货币和实体经济的结合。 Gclubs是唯一一个关键时刻每年巨额盈利的企业。GTV、Gnews是唯一的，是稀缺资源，是人类关键时刻讲病毒讲真相，拯救人类的现代化社交媒体和门户网站结合的平台。
 
-也许感觉注射疫苗反正不会改变他们的生活
+参考阅读：[https://wallstreetcn.com/articles/3628161](https://wallstreetcn.com/articles/3628161)
 
-Jen Psaki
+[https://news.stcn.com/news/202104/t20210418\_3058951.html](https://news.stcn.com/news/202104/t20210418_3058951.html)
 
-詹·普萨基
+校对/发稿：飞虹
 
-sure yeah I think a big part of what we’re trying to do
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-当然，是的，我认为我们正在尝试做的很大一部分
 
-is provide accurate information about
 
-是提供准确的信息关于
+**更多资讯，更多关注**
 
-what getting a vaccine will enable the American people to do
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-注射疫苗将使美国人民能够去做的
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-hence the president gave a prime time address what he said
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-因此，总统在黄金时间发表讲话说
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-if when you get the vac
-
-如果当你得到疫苗
-
-if you when the vaccine’s accessible to you
-
-当你可以得到注射疫苗的机会时
-
-and you get it
-
-而且你得到它
-
-We can work towards having backyard barbecues uh
-
-我们可以朝着可以在后院烧烤的方向努力
-
-We’re also had a number of officials out there to convey
-
-我们也有很多官员要传达
-
-and we’ve had obviously the CDC has put out guidance that says
-
-而且显然疾病预防与控制中心已经发布了指南，其中说
-
-if you’re vaccinated if your neighbors are vaccinated
-
-如果你注射了疫苗，如果你的邻居都注射了疫苗
-
-you can have dinner inside together
-
-你们可以一起在室内进餐
-
-It’s a pandemic we don’t think it’s easy
-
-这是大流行病，我们认为这并不容易
-
-We know it’s difficult
-
-我们知道它是困难的
-
-it’s required a lot of sacrifice but at the same time
-
-需要很多牺牲，但是与此同时
-
-We’re trying to provide accurate public health based guidance on
-
-我们正在努力提供有关准确的基于公共卫生的指南
-
-what people can do once they have taken the vaccine
-
-人们接种疫苗后可以做什么
-
-Damon Roberts
-
-达蒙·罗伯茨
-
-Okay, got it? All straight after that answer?
-
-好，知道了吧？在那个回答后都理清了吧？
-
-Let me ask her question in a more simple way
-
-让我以更简单的方式问她问题
-
-Her question is Why would anybody want to rush to get a vaccine
-
-她的问题是为什么任何人要着急去打疫苗
-
-When if you get it nothing changes！ Nothing changes！
-
-人们打了疫苗后，什么也没有改变！什么也没有改变！
-
-You can’t go anywhere without a mask
-
-不戴口罩你就不能去任何地方
-
-You can’t, now she says you can have dinner
-
-现在她说能（在外面）进餐
-
-Well that, she might want to call the great one Dr. Fauci
-
-好，她有可能给“伟大的”福奇博士打电话
-
-because it’s not what he said this weekend
-
-因为这不是他本周所说的
-
-The Stormy Daniels of medicine was and out about in front of the cameras
-
-医药界的斯多米 丹尼尔斯(Stormy Daniels:成人电影明星) 在镜头前走来走去
-
-He has different view of that
-
-他对此有不同的看法
-
-So they’re not they’re not even on the same page with that
-
-所以他们甚至不在同一观点上
-
-But I thought that’s a great question
-
-但我认为那是个很棒的问题
-
-If they’re so good,
-
-如果他们是那么的好
-
-if the vaccine is so important
-
-如果疫苗是那么的重要
-
-If the vaccines are that effective
-
-如果疫苗是那么的有效
-
-which it seems like from all the study
-
-从所有研究来看
-
-Especially to Israel
-
-特别是对以色列来说
-
-they have been effective
-
-他们一直有效的
-
-700 million people now worldwide
-
-现在全球7亿人
-
-Have either gotten their first or complete, completed whatever doses they’ve gotten
-
-不管他们是得到第一剂还是已经完成他们应该得到的剂量
-
-Israel probably has the best information coming out of it
-
-以色列可能会从中得到最好的信息
-
-and some of the studies out of there
-
-而以色列的一些研究
-
-totally go against what she just said
-
-完全与她刚才所说的相反
-
-as far as all of the data so far shows
-
-到目前为止的所有数据显示
-
-That once you’re vaccinated
-
-那些你已经接种过疫苗的人
-
-there’s almost 0% chance that you are spreading the virus
-
-你传播病毒的几率几乎是0％
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接:
-
-
-
-> .[@lfs6b](https://twitter.com/lfs6b?ref_src=twsrc%5Etfw) discuss WH Press Secretary Jen Psaki being unable to answer a question about vaccines and returning to normal life. [pic.twitter.com/uc7j2XFhrc](https://t.co/uc7j2XFhrc)
-> — Real America's Voice (RAV) (@RealAmVoice) [April 14, 2021](https://twitter.com/RealAmVoice/status/1382325267599925248?ref_src=twsrc%5Etfw)
-
-
-
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

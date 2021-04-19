@@ -1,83 +1,237 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 南京长江大桥天使帮助中共国绝望边缘的人回心转意
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1113833/)
+## 讨论白宫新闻秘书詹·普萨基（Jen Psaki）无法回答有关疫苗和恢复正常生活的问题
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1114397/)
 
-翻译：洛杉矶天使农场 – 烟波浩淼
-校对：洛杉矶天使农场 – 雨山溪桥客
-审核：洛杉矶天使农场 – 黎明的光芒
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Picture1-39.png)在中共国江苏省南京市，陈思在长江边眺望，背景是南京长江大桥。 照片：王钊/法新社
-在一个阴沉多雨的早晨，陈思在中共国长江上的南京大桥上巡逻，决心阻止绝望的人们跳入下面江水的急流中。
+视频内容：
 
-18年来，每到周末，陈思都会自愿到这座长达3公里（2英里）的金属大桥上巡查，与数百名想要自杀的人交谈，为自己赢得了 “南京天使” 的称号。
+来自真正的美国声音(Real America’s Voice) 2021年4月14日的推文
 
-但是，一只手夹着一支香烟，另一只手拿着一瓶绿茶，朴实无华的陈思说，除了对那些因争执导致他们走上中共国“自杀桥”的人表示同情之外，他“没有什么独特的技能”。
+Female Journalist question
 
-22岁那年，陈先生在那里第一次遇到了一个改变他生活的经历，当时他发现一个女人——一个像他一样的年轻农民工——站在离水面70米（230英尺）的大桥边缘，一边哭一边想跳下去。
+女记者提问
 
-他停下来和她交谈后，那个女人爬了下来，陈先生意识到他可能无意中救了一条生命。
+How do you strike that balance
 
-他说，从那以后，他已经帮助412人从桥上的边缘退了下来——大约每两周一次。
+你如何做到这种平衡
 
-其中有一个年轻人特别强壮，当几个人把他从桥边拖回来时，他咬破了舌头，而另一个是一个欠了几百万元的人。
+between being a model of the public health guidelines
 
-陈先生告诉法新社记者：“我告诉他们，我也是一个非常普通的人。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Picture2-12.png)盖蒂图片 法新社|王钊
-在江苏省贫困农村长大的陈思理解人们的绝望，他把自己描述为“一个立足于城市的农村农民”。
+在成为公共卫生准则的范例
 
-几年前从一个街头小贩那里买来的一堆破旧的弗洛伊德书籍，激起了他对心理学的兴趣。 他说：“虽然书缺了几页，但我还是一直在读，它为我理解别人打下了基础。”
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Picture3-13.png)盖蒂图片 法新社|王钊
-桥上的职责让陈思负担很重， 他也会去寺庙解压。
+and also not contributing to this sense of hopelessness
 
-“过去，我没有能力保护自己，那些我救不了的人又回到了我的梦中。”
+和没有助长这种绝望感之间
 
-现在，当有人跳的时候，他会转身离开。
+Perhaps among people who are skeptical with your vaccine
 
-**“我们不再数数了”**
+也许在对你的疫苗持怀疑态度的人中
 
-南京长江大桥于1968年竣工，被誉为中共国工程的一大壮举。
+and maybe feel like getting it would not make a difference in their lives anyway
 
-它作为最长的公路和铁路两用桥在吉尼斯世界纪录中获得了一席之地。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Picture4-3.png)盖蒂图片 法新社|王钊
-但现在由于一个更为黑暗的原因它创下了纪录，——它被认为是世界上自杀人数最多的地方，几年前已经超过了旧金山的金门大桥。
+也许感觉注射疫苗反正不会改变他们的生活
 
-该市一个民间团体的负责人张春告诉法新社记者：“有时候早上我们在检查大桥时，会发现一只高跟鞋，或者是一部手机，鞋底有一张纸条。
+Jen Psaki
 
-“所以我们不再统计了，但我们知道已经有三千多人丧生。”
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Picture5-1.png)盖蒂图片 法新社|王钊
-这些数字可能是不完整的，因为一些人的踪迹从未被找到。
+詹·普萨基
 
-根据两年前发表在《柳叶刀》医学杂志上的一项研究，近几十年来，心理健康问题在中共国变得越来越普遍。
+sure yeah I think a big part of what we’re trying to do
 
-研究表明，快速的社会变革可能是罪魁祸首，它引发心理压力和焦虑。
+当然，是的，我认为我们正在尝试做的很大一部分
 
-心理健康倡导者说，目前极度缺乏合格的专业人员，无法应对激增的心理问题人群，而围绕心理健康的社会耻辱感也会加重负担。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Picture6-4.png)盖蒂图片 法新社|王钊
-官方统计显示，中共国的自杀率从2000年的13.56/10万下降到5.29/10万，约为美国的一半。
+is provide accurate information about
 
-但在陈先生看来，这种下降还没有反应在南京长江大桥上的自杀人数减少。
+是提供准确的信息关于
 
-他现在有其他志愿者来帮忙，包括当地大学的心理学学生，并对他们进行与桥上的人交谈的紧急任务培训。
+what getting a vaccine will enable the American people to do
 
-**“我救不了所有人”**
+注射疫苗将使美国人民能够去做的
 
-陈思有一间小办公室，墙上写着“需要哭的时候就哭”的座右铭，他把两个房间改成了宿舍，供那些没有地方睡觉的绝望的人居住。
+hence the president gave a prime time address what he said
 
-作为一个孩子的父亲，陈思说，志愿者的工作是以牺牲个人生活为代价的。
+因此，总统在黄金时间发表讲话说
 
-他说：“我不是一个人在做。有时候我向我的妻子和孩子借钱。” 并补充说，他的妻子承担了照顾孩子的重任。
+if when you get the vac
 
-陈思说，只有当他不再有力气把人们从大桥边缘拉下来的时候，他才会停下来。
+如果当你得到疫苗
 
-他说：“我不认为我是天使。我只想给那些处于黑暗中的人带来光明”。
+if you when the vaccine’s accessible to you
 
-“但我救不了所有人。我力不从心的事，我只能向上帝祈祷。”
+当你可以得到注射疫苗的机会时
 
-如果您有情绪低落，请致电：撒玛利亚人2896 0000（24小时，多种语言），自杀预防中心2382 0000或社会协会。另请参见。《香港自由报》的香港精神健康服务综合指南
+and you get it
 
-原文作者：海伦·洛克斯堡（Helen Roxburgh）
-发布时间：2021年4月17日
-原文链接：[https://hongkongfp.com/2021/04/17/the-nanjing-bridge-angel-helping-chinas-desperate-back-from-the-brink/](https://hongkongfp.com/2021/04/17/the-nanjing-bridge-angel-helping-chinas-desperate-back-from-the-brink/)
+而且你得到它
+
+We can work towards having backyard barbecues uh
+
+我们可以朝着可以在后院烧烤的方向努力
+
+We’re also had a number of officials out there to convey
+
+我们也有很多官员要传达
+
+and we’ve had obviously the CDC has put out guidance that says
+
+而且显然疾病预防与控制中心已经发布了指南，其中说
+
+if you’re vaccinated if your neighbors are vaccinated
+
+如果你注射了疫苗，如果你的邻居都注射了疫苗
+
+you can have dinner inside together
+
+你们可以一起在室内进餐
+
+It’s a pandemic we don’t think it’s easy
+
+这是大流行病，我们认为这并不容易
+
+We know it’s difficult
+
+我们知道它是困难的
+
+it’s required a lot of sacrifice but at the same time
+
+需要很多牺牲，但是与此同时
+
+We’re trying to provide accurate public health based guidance on
+
+我们正在努力提供有关准确的基于公共卫生的指南
+
+what people can do once they have taken the vaccine
+
+人们接种疫苗后可以做什么
+
+Damon Roberts
+
+达蒙·罗伯茨
+
+Okay, got it? All straight after that answer?
+
+好，知道了吧？在那个回答后都理清了吧？
+
+Let me ask her question in a more simple way
+
+让我以更简单的方式问她问题
+
+Her question is Why would anybody want to rush to get a vaccine
+
+她的问题是为什么任何人要着急去打疫苗
+
+When if you get it nothing changes！ Nothing changes！
+
+人们打了疫苗后，什么也没有改变！什么也没有改变！
+
+You can’t go anywhere without a mask
+
+不戴口罩你就不能去任何地方
+
+You can’t, now she says you can have dinner
+
+现在她说能（在外面）进餐
+
+Well that, she might want to call the great one Dr. Fauci
+
+好，她有可能给“伟大的”福奇博士打电话
+
+because it’s not what he said this weekend
+
+因为这不是他本周所说的
+
+The Stormy Daniels of medicine was and out about in front of the cameras
+
+医药界的斯多米 丹尼尔斯(Stormy Daniels:成人电影明星) 在镜头前走来走去
+
+He has different view of that
+
+他对此有不同的看法
+
+So they’re not they’re not even on the same page with that
+
+所以他们甚至不在同一观点上
+
+But I thought that’s a great question
+
+但我认为那是个很棒的问题
+
+If they’re so good,
+
+如果他们是那么的好
+
+if the vaccine is so important
+
+如果疫苗是那么的重要
+
+If the vaccines are that effective
+
+如果疫苗是那么的有效
+
+which it seems like from all the study
+
+从所有研究来看
+
+Especially to Israel
+
+特别是对以色列来说
+
+they have been effective
+
+他们一直有效的
+
+700 million people now worldwide
+
+现在全球7亿人
+
+Have either gotten their first or complete, completed whatever doses they’ve gotten
+
+不管他们是得到第一剂还是已经完成他们应该得到的剂量
+
+Israel probably has the best information coming out of it
+
+以色列可能会从中得到最好的信息
+
+and some of the studies out of there
+
+而以色列的一些研究
+
+totally go against what she just said
+
+完全与她刚才所说的相反
+
+as far as all of the data so far shows
+
+到目前为止的所有数据显示
+
+That once you’re vaccinated
+
+那些你已经接种过疫苗的人
+
+there’s almost 0% chance that you are spreading the virus
+
+你传播病毒的几率几乎是0％
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接:
+
+
+
+> .[@lfs6b](https://twitter.com/lfs6b?ref_src=twsrc%5Etfw) discuss WH Press Secretary Jen Psaki being unable to answer a question about vaccines and returning to normal life. [pic.twitter.com/uc7j2XFhrc](https://t.co/uc7j2XFhrc)
+> — Real America's Voice (RAV) (@RealAmVoice) [April 14, 2021](https://twitter.com/RealAmVoice/status/1382325267599925248?ref_src=twsrc%5Etfw)
+
+
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

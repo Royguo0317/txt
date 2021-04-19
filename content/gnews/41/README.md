@@ -1,59 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】自由森林
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1114468/)
+## 坚决不能让“反对美国领导的针对中国的战争”得逞！
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1114034/)
 
-配音：香草山录音组 Swr拥抱太阳
+作者：文虓Bobby
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/041904.jpg)
 
+日前，新西兰的一个支持社会主义平等党（Socialist Equality Party，SEP）的组织，即新西兰社会主义平等团体宣将于本月24日召开在线会议，要求新西兰、澳大利亚和全世界的青年、学生和工人参加该会议，议题是讨论和反对美国领导的针对中国的战争。
 
+首先了解一下新西兰社会主义平等团体的政治背景。这个团体是社会主义平等党的支持者。而社会主义平等党是一个托洛茨基主义政党，该政党在美国、英国、德国、法国、加拿大和斯里兰卡等有各自国家的社会主义平等党，这些党派都是第四国际国际委员会的成员。另外，社会主义平等党在一些国家还有一些支持者，例如：印度的第四国际国际委员会/世界社会主义网站支持者、 爱尔兰的社会主义平等团体、 新西兰的社会主义平等团体、巴基斯坦的马克思主义之声、土耳其的社会主义平等团体。
 
+第四国际国际委员会（英語：International Committee of the Fourth International，缩写为ICFI）目前是两个托洛茨基主义国际组织的名称。这两个组织有共同的起源，但目前都是独立的组织。其中一个以美国的社会主义平等党为首，办有世界社会主义网站。另一个与英国的工人革命党有关。由于后者已经名存实亡，所以现在所称“第四国际国际委员会”一般指前者。第四国际委员会是托洛茨基自1923年以来为捍卫1917年十月革命的原则、纲领和遗产而进行的斗争的历史连续性的唯一代表。
 
+记得在路德时评节目中，曾介绍前苏联垮台之后，CCP秘密接管了共产国际（即第三国际），笔者猜测CCP极大可能与第四国际国际委员会有着千丝万缕的联系。在这个关键节点，新西兰社会主义平等团体提出反对美国领导的针对中国的战争，笔者分析其目的有两点：第一点，通过煽动和利用缺乏判断力的青年和学生，反对战争，让澳洲“后院起火”，瓦解美日澳印联盟，因为美日澳印四国联盟已经让共产主义中国成为“瓮中之鳖”，瓦解澳洲可以寻求一个突破点。第二点，笔者认为这是CCP发动的超限宣传战的一部分，旨在混淆视听，缓解CCP目前面临的来自全世界的军事、政治、经济和舆论等巨大压力，为CCP的苟延残喘争取一点时间。像新西兰社会主义平等团体这样毫无遮拦地敢当CCP的马前卒，说明CCP真的被打疼了，真的害怕了，似乎看到了即将被历史淘汰的那一天！
 
+现在全世界的灭共大势已经势不可挡，CCP在做垂死挣扎。新西兰社会主义平等团体这次召集在线会议就是给世界一个警示，社会主义平等党这些极左势力很可能和安提法组织、黑命贵（BLM）运动互相配合，蠢蠢欲动在酝酿一些破坏灭共的活动，让我们密切关注。
 
+[援引原文](https://www.wsws.org/en/articles/2021/04/08/iybl-a08.html)
 
-一
-
-我们的性情近植物:安静、平和
-
-春天我们用繁花装扮自己
-
-秋天我们用沉甸甸的果实款待路人
-
-我们的执着像树，屹立万年
-
-我们的耐心像藤蔓，千万次缠绕，追逐阳光
-
-我们的不幸是遇到伐木的暴徒：山河破碎
-
-但柔弱的玫瑰也藏有刺，我们已醒来
-
-草木皆兵，落花成箭，大地必繁花盛开
-
-
-
-文字版原文：[【香草诗词汇】自由森林](https://gnews.org/zh-hans/968463/)
-
-作者：纽约香草山农场 木白
-
-
-
-发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+审核校对：Tex Hill
+上传排版：糖果儿
 
 0

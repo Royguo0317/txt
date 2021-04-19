@@ -1,50 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】无题
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1114526/)
+## 拜登首次与日本的须贺在白宫峰会上寻求团结去对抗狂妄的中共国
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1114361/)
 
-配音：香草山录音组 Swr拥抱太阳
+翻译：康州盘古农场 – 郭班之樱
+校对：康州盘古农场 – Mike Li
+审核：康州盘古农场 – 蓝精灵
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+据《newsnationnow.com》作者：鲍比·奥勒（Bobby Oler），泰勒·德兰德罗（Taylor Delandro），2021年4月16日发布:
 
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/1-14-163.jpg)
 
+据《newsnationnow.com》作者：鲍比·奥勒（Bobby Oler），泰勒·德兰德罗（Taylor Delandro），2021年4月16日发布
 
+华盛顿（[日本新闻社](https://www.newsnationnow.com/)）- 周五，日本首相菅义伟（Yoshihide Suga）在白宫与乔·拜登总统会面，呼吁民主是全球繁荣的基础，强调两国联手对抗独裁和日益狂妄的中共国 。
 
+菅义伟和拜登在白宫国宴厅，采取了冠状病毒的预防措施，戴着口罩开会。他们正在讨论中共国国家主席习近平发出的消息，即在经历了前总统唐纳德·川普（Donald Trump）任期内的政治动荡国际大撤退之后，美国和民主国家总体上正在衰落。
 
+白宫表示，在强烈的抗议之后，拜登总统将取消难民上限。
 
+菅义伟说，民主、人权和其他共同价值观是“地区和全球繁荣的根本”。 中共国在国际上日益增强经济和军事实力，这是对中共国的许多评论之一。 菅义伟正试图展示日本对美国（日本唯一的盟友）的安全承诺。他在与拜登会谈之前对记者说，美国和日本正在应对该地区的挑战，此行旨在“重申我们之间新的和紧密的联系”。中共国在议程中名列前茅，菅义伟首相强调了日本在美国应对北京挑战方面的核心作用。
 
-因为你，世界倾斜了片刻
-在没有雨的瓦房里，暮色与墓色
-你悄悄打开姹紫嫣红的春
-这是我心中唯一的光
-因为你，世界倾斜了片刻
-世界所有的光都在倾斜
-在黑白颠倒，虚伪洗脑的另一世
-你是我唯一的爱
+拜登在玫瑰园新闻发布会上说：“我们致力于共同应对来自于中共国以及东海、南海、和朝鲜等问题的挑战，确保自由开放的印度太平洋的未来”，声称此讨论“富有成效”。
 
+[北京警告美国与日本不要勾结串通来反对中国](https://www.newsnationnow.com/us-news/beijing-warns-us-japan-against-collusion-vs-china/)
 
+会谈中的其他主要问题包括中共对台湾不断增加的军事施压，中共对香港的收紧控制以及对新疆维吾尔族穆斯林的镇压。
 
-文字版原文：[【香草诗词汇】无题](https://gnews.org/zh-hans/1043185/)
+一位美国高级官员早些时候表示，预计此次会议还将提出解决过分依赖北京的供应链的多样化步骤，日本承诺提供20亿美元与美国合作开发替代中共国公司华为的5G网络的方案。
 
-作者：纽约香草山农场 木白
+一位匿名官员说，此次峰会是拜登担任总统的首次与外国领导人亲自面对面会谈。 在北京对台湾日益增加的军事压力下，预计将就北京日益军事施压台湾台湾，以及中共自称对具有主权的岛屿归属问题，发表正式声明。
 
+这将会是美国和日本领导人自1969年以来对台湾问题发表首次联合声明。但是，它可能无法达到华盛顿一直以来对菅义伟的期望，因为菅义伟在去年9月接任日本首相时，采取了力求在安全问题和经济之间与中共国取得平衡的政策。
 
+台湾是独立自治的，但中共国声称对其拥有主权。因此（台湾）政府与北京之间的紧张关系一直在加剧。
 
-发稿：雪梨
+星期五上午，中共国外交部发言人赵立坚告诉包括美联社记者等，说对此中国将密切关注。
 
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+赵立坚说： “中共国不反对发展美日之间正常的双边关系，但这种关系应是有助于增进区域国家之间的相互了解和信任，为亚太地区的和平与稳定作出贡献，而不应该是针对或损害第三方的利益。”
 
-**更多资讯，更多关注**
+[美国制裁中国计算机制造商，进一步扩大了高科技领域对抗](https://www.newsnationnow.com/world/us-sanctions-chinese-computer-makers-in-widening-tech-fight/)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+星期五，一位中共高级外交官也称美国对华政策“太消极”，称其突出对抗而非合作。
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+随着美国总统拜登（Joe Biden）的政府将重点放在冠状病毒和经济的复苏上，外交部副部长乐玉成表示，（中美）合作是至关重要的。乐玉成在接受美联社采访时说，两国可以通力合作解决许多困难，强调竞争与对抗是缺乏前瞻性的。但是副部长补充说，合作需要在平等的基础上进行，而不应该是“单方为另一方草拟一份需求清单”。
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+美联社和路透社对此报告做出了贡献。
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+原文链接： [https://www.newsnationnow.com/world/biden-welcomes-japans-prime-minister-as-china-watches/](https://www.newsnationnow.com/world/biden-welcomes-japans-prime-minister-as-china-watches/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

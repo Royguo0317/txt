@@ -1,23 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加州众议员称中共最终目标是击垮美元
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1114277/)
+## 【香草诗词汇】自由森林
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1114468/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+配音：香草山录音组 Swr拥抱太阳
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Y-3.jpg)money.cnn.com
-福克斯新闻报道，在“周日早间期货”的采访中，加州众议员德文·努内斯（Devin Nunes）认为中共并没有认真对待拜登政府，他们的最终目标是让美元贬值。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-努内斯嘲笑拜登政府，他说拜登政府对中共政策并不是罗纳德·里根(Ronald Reagan)过去常说的“通过力量实现和平”，而是“雷声大雨点小”，虚张声势。中共的最终目标是击垮世界储备货币的美元。
 
-中共想做的是让人们不再信任美元，中共则从中获益。所以中共不把拜登当回事，因为中共了解白宫和民主党是虚伪的。
 
-努内斯同时指责左翼控制社交媒体，审核过滤信息传播，正如中共在这个领域的所作所为一样。中共每天都在努力击垮美元地位，而民主党不仅无所作为维护美国利益，还给中共提供帮助。
 
-参考链接：
 
-[https://www.foxnews.com/politics/nunes-chinas-laughing-at-biden-admin-over-foreign-policy](https://www.foxnews.com/politics/nunes-chinas-laughing-at-biden-admin-over-foreign-policy)
+
+
+一
+
+我们的性情近植物:安静、平和
+
+春天我们用繁花装扮自己
+
+秋天我们用沉甸甸的果实款待路人
+
+我们的执着像树，屹立万年
+
+我们的耐心像藤蔓，千万次缠绕，追逐阳光
+
+我们的不幸是遇到伐木的暴徒：山河破碎
+
+但柔弱的玫瑰也藏有刺，我们已醒来
+
+草木皆兵，落花成箭，大地必繁花盛开
+
+
+
+文字版原文：[【香草诗词汇】自由森林](https://gnews.org/zh-hans/968463/)
+
+作者：纽约香草山农场 木白
+
+
+
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
