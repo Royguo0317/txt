@@ -1,231 +1,230 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 讨论白宫新闻秘书詹·普萨基（Jen Psaki）无法回答有关疫苗和恢复正常生活的问题
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1114397/)
+## 梵蒂冈财政丑闻：&#8221;方济各被曝出是腐败的教皇教廷&#8221;
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1114527/)
 
 视频内容：
 
-来自真正的美国声音(Real America’s Voice) 2021年4月14日的推文
+Steve:
 
-Female Journalist question
+史蒂夫：
 
-女记者提问
+talk to us about this conference and then what it just teases on tomorrow？
 
-How do you strike that balance
+和我们谈谈这次会议，明天会演哪一出？
 
-你如何做到这种平衡
+what are you going to bring？
 
-between being a model of the public health guidelines
+你有什么需要分享？
 
-在成为公共卫生准则的范例
+Liz:
 
-and also not contributing to this sense of hopelessness
+丽兹：
 
-和没有助长这种绝望感之间
+sure, tomorrow I’m going to talk about the tightening financial news around the
 
-Perhaps among people who are skeptical with your vaccine
+当然了，明天我将谈谈有关梵蒂冈的金融腐败新闻
 
-也许在对你的疫苗持怀疑态度的人中
+vatican and the after effects of what’s happening is shocking
 
-and maybe feel like getting it would not make a difference in their lives anyway
+以及所发生的事情的后遗症是令人震惊的
 
-也许感觉注射疫苗反正不会改变他们的生活
+Francis is being exposed as a corrupt papacy now he is also playing as we know for
 
-Jen Psaki
+方济各被曝出是腐败的教皇，现在我们知道，他在过去8年里
 
-詹·普萨基
+the last eight years with the international celebrities
 
-sure yeah I think a big part of what we’re trying to do
+也玩弄国际名流
 
-当然，是的，我认为我们正在尝试做的很大一部分
+on may 6th through the 8th, the vatican is going to have a conference called the
 
-is provide accurate information about
+5月6日到8日，梵蒂冈将举行一个名为
 
-是提供准确的信息关于
+‘exploring the mind body and soul’, I mean when I told Steve about this
 
-what getting a vaccine will enable the American people to do
+“探索思想、身体和灵魂 “的会议，我是说当我告诉史蒂夫这件事的时候
 
-注射疫苗将使美国人民能够去做的
+he said this has got to be a hoax because it was so crazy invited speakers of this
 
-hence the president gave a prime time address what he said
+他说这一定是个骗局，因为它是如此疯狂地邀请了一些演讲者
 
-因此，总统在黄金时间发表讲话说
+some of the invited speakers are Fauci, Cindy Crawford, the actress
 
-if when you get the vac
+其中一些被邀请的演讲者是福奇，辛迪.克劳福德，女演员
 
-如果当你得到疫苗
+Chelsea Clinton, Renee Fleming, the heads of a Pfizer and Moderna
 
-if you when the vaccine’s accessible to you
+切尔西.克林顿，蕾妮•弗莱明，辉瑞和摩德纳的负责人
 
-当你可以得到注射疫苗的机会时
+we’ve got Jane Gondoll, I mean it is Joe Perry of arrows-man
 
-and you get it
+我们还有简•贡多（Jane Gondoll），我是说箭头人（Arrows-man）乐队的主唱乔•佩里（Joe Perry）
 
-而且你得到它
+I mean these are the international celebrities who are going to lecture us from the
 
-We can work towards having backyard barbecues uh
+我的意思是，这些都是国际知名人士要在梵蒂冈
 
-我们可以朝着可以在后院烧烤的方向努力
+Vatican about how to keep our mindset
 
-We’re also had a number of officials out there to convey
+给我们讲课，讲述如何保持心态
 
-我们也有很多官员要传达
+Steve:
 
-and we’ve had obviously the CDC has put out guidance that says
+史蒂夫：
 
-而且显然疾病预防与控制中心已经发布了指南，其中说
+Cindy Crawford and Chelsea Clinton who are anti life, right? super pro-choice and
 
-if you’re vaccinated if your neighbors are vaccinated
+辛迪.克劳福德（Cindy Crawford）和切尔西.克林顿（Chelsea Clinton）是反生命的，对吧？主张堕胎合法化
 
-如果你注射了疫苗，如果你的邻居都注射了疫苗
+let’s have the whole Moderna, let’s invite them all the guys that made all the gene
 
-you can have dinner inside together
+让我们邀请整个摩德纳，邀请他们用基因疗法导致流产胎儿的家伙们
 
-你们可以一起在室内进餐
+therapies off the aborted fetuses, let’s bring them all, let’s get the gadget, why not?
 
-It’s a pandemic we don’t think it’s easy
+让我们把他们所有人都邀请过来，为什么不呢？
 
-这是大流行病，我们认为这并不容易
+Let have them all there.
 
-We know it’s difficult
+让他们都到那里去表演
 
-我们知道它是困难的
+It was so over the top I said. Liz, we’re going to fall for a hoax here.
 
-it’s required a lot of sacrifice but at the same time
+This is got to be
 
-需要很多牺牲，但是与此同时
+太夸张了，我对丽兹说：我们要上当受骗了，这一定是个愚人节
 
-We’re trying to provide accurate public health based guidance on
+an April fools and it’s not, but this shows you what the core rot of the problem is
 
-我们正在努力提供有关准确的基于公共卫生的指南
+但不是，但这让你看到了问题的核心是什么
 
-what people can do once they have taken the vaccine
+they got the mind body soul both hands outside of it, here’s the big news today
 
-人们接种疫苗后可以做什么
+他们把思想、身体、灵魂都抛出九霄云外.这是今天的重大新闻，
 
-Damon Roberts
+ladies and gentlemen, none of Francis’s, none of the bad guys that even give covering
 
-达蒙·罗伯茨
+女士们，先生们，没有方济各的人，甚至没有一个坏人在擦屁股
 
-Okay, got it? All straight after that answer?
+fire they’re all running for the hills
 
-好，知道了吧？在那个回答后都理清了吧？
+他们都急于逃之夭夭
 
-Let me ask her question in a more simple way
+they took cash money from Chinese…the the reason they sold out the Chinese
 
-让我以更简单的方式问她问题
+他们从共产党那里拿了现金… 他们出卖中国天主教徒的原因
 
-Her question is Why would anybody want to rush to get a vaccine
+catholics is because the Chinese catholics don’t matter to him, okay?
 
-她的问题是为什么任何人要着急去打疫苗
+是中国天主教徒对他来说不重要，好吗？
 
-When if you get it nothing changes！ Nothing changes！
+cardinals then told you that he’s a voice in there he’s a speaking truth to power
 
-人们打了疫苗后，什么也没有改变！什么也没有改变！
+红衣主教们告诉你，他是一个感向威权说真话的人
 
-You can’t go anywhere without a mask
+what ninety-year old one of the holiest men in the world, a good man, a humble
 
-不戴口罩你就不能去任何地方
+一个九十岁的老人，一个世界上最神圣的人，一个好人，一个谦逊的人
 
-You can’t, now she says you can have dinner
+man, a brave man, he said they sold a man,
 
-现在她说能（在外面）进餐
+一个勇敢的人说他们出卖了信徒
 
-Well that, she might want to call the great one Dr. Fauci
+Miles Guo said: hey, everybody knows in Beijing, sold a man for cash, they need cash
 
-好，她有可能给“伟大的”福奇博士打电话
+郭文贵说：哎，大家都知道在北京，卖了一个人就能换钱，他们需要现金
 
-because it’s not what he said this weekend
+they took cash money, that’s why it’s secret
 
-因为这不是他本周所说的
+他们拿的是现金，所以要签秘密的协议
 
-The Stormy Daniels of medicine was and out about in front of the cameras
+because the secret protocol say they’re going to recognize China, they’re going to
 
-医药界的斯多米 丹尼尔斯(Stormy Daniels:成人电影明星) 在镜头前走来走去
+因为秘密协议说他们要承认中国，他们要承认
 
-He has different view of that
+recognize the Chinese communist party is the legitimate government of China
 
-他对此有不同的看法
+中国共产党是中国的合法政府
 
-So they’re not they’re not even on the same page with that
+that’s what the deal is
 
-所以他们甚至不在同一观点上
+这就是协议的秘密所在
 
-But I thought that’s a great question
+Mccarrick, the pedophile of pedophiles started it in parallel in his hand puppet closed the deal
 
-但我认为那是个很棒的问题
+麦卡里克－恋童癖者中的大咖，主导了该秘密协议的初期洽谈和末期收尾，最后完成了交易
 
-If they’re so good,
+and I was on the roof of the convent across from the vatican when they supposed to
 
-如果他们是那么的好
+我在梵蒂冈对面的修道院屋顶上，当他们应该
 
-if the vaccine is so important
+have the big pedophile conference to stop that in the church where they didn’t do
 
-如果疫苗是那么的重要
+在一个大的会议上阻止教会恋童癖的事件再次发生，但他们没有做任何事情
 
-If the vaccines are that effective
+anything and I’m sitting there saying the secret deal with China is ten times worse
 
-如果疫苗是那么的有效
+我坐在那里说，他们与中共的秘密交易比任何他们曾经做过的事情
 
-which it seems like from all the study
+than anything they’ve ever done and now you’re seeing the fruits of it
 
-从所有研究来看
+都要糟糕十倍，现在你看到的是它的恶果
 
-Especially to Israel
+and none of Francis’s people, they’re not going to be a dude covering fire here
 
-特别是对以色列来说
+没有方济各的人，甚至没有一个坏人在擦屁股
 
-they have been effective
+because now we’re going to start to rip the mask of the corruption of what’s going on there
 
-他们一直有效的
+因为现在我们要撕下发生在那里的腐败面具
 
-700 million people now worldwide
+a fundamental institution of the west, in Chelsea Clinton and Chelsea Clinton and
 
-现在全球7亿人
+教廷是西方的一座基石，切尔西.克林顿(Chelsea Clinton)？
 
-Have either gotten their first or complete, completed whatever doses they’ve gotten
+of course it’s gotta be Dr. Fauci, you gotta have a Fauci there,
 
-不管他们是得到第一剂还是已经完成他们应该得到的剂量
+当然要有福齐医生，必须有一个福齐
 
-Israel probably has the best information coming out of it
+you’ve got to because he’s the head of scientism what if we’re going to bring in Gaya
 
-以色列可能会从中得到最好的信息
+你必须这么做，因为他是科学主义的头头，如果我们要把伽耶
 
-and some of the studies out of there
+and Voodoo and all this stuff, let’s bring in scientism, let’s bring in the new age
 
-而以色列的一些研究
+和巫毒教和所有这些东西也邀请来呢？让大家迎接方济各的“科学主义”
 
-totally go against what she just said
+belief of the build back better crowd, the great reset crowd for Francis,
 
-完全与她刚才所说的相反
+“新时代信仰”，“重建更美好”还有“大重启”
 
-as far as all of the data so far shows
+Francis, you’re going to own it all, all of it, all the corruption, all the payments, all
 
-到目前为止的所有数据显示
+方济各，你将拥有这一切，所有的一切，所有的腐败，所有的贿赂
 
-That once you’re vaccinated
+the depravity. You own it. It’s on your watch and you own it
 
-那些你已经接种过疫苗的人
+所有的堕落，你拥有它.一切在你的眼皮底下发生，你拥有这些罪恶
 
-there’s almost 0% chance that you are spreading the virus
+and now we get Liz, you’re in the case
 
-你传播病毒的几率几乎是0％
+丽兹，现在我们明白了，你的情况
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-原视频链接:
+原视频链接：
 
 
 
-> .[@lfs6b](https://twitter.com/lfs6b?ref_src=twsrc%5Etfw) discuss WH Press Secretary Jen Psaki being unable to answer a question about vaccines and returning to normal life. [pic.twitter.com/uc7j2XFhrc](https://t.co/uc7j2XFhrc)
-> — Real America's Voice (RAV) (@RealAmVoice) [April 14, 2021](https://twitter.com/RealAmVoice/status/1382325267599925248?ref_src=twsrc%5Etfw)
+> [Vatican Financial Scandal: ‘Francis is Being Exposed as a Corrupt Papacy’](https://pandemic.warroom.org/2021/04/15/vatican-financial-scandal-francis-is-being-exposed-as-a-corrupt-papacy/)
 
 
 
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
+英听校： 康州盘古农场 – Mike Li
+翻译： 康州盘古农场 – Mike Li
+翻译终校：康州盘古农场 – Freeearth
 字幕+视频制作：康州盘古农场-天涯行
 审片：康州盘古农场-银龙
 发布：康州盘古农场-文韵

@@ -1,25 +1,237 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 大量香港人选择台湾作为移民目的地
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1114228/)
+## 讨论白宫新闻秘书詹·普萨基（Jen Psaki）无法回答有关疫苗和恢复正常生活的问题
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1114397/)
 
-加拿大多伦多枫叶农场 向真
+视频内容：
 
-中共在1984年与英国签订《中英联合声明》，自此启动了香港悲惨的“回归”之旅，37年过去了，其间香港爆发了5次移民潮，每一次都是因为中共的暴行和邪恶不断升级，引起港人的极度反感及恐慌导致的。其中以89年的天安门6.4大屠杀、97年回归、2019年反送中运动对香港社会的影响最深刻，引发的移民潮规模最大，发酵时间最长。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/bbcnews.jpg)*图片来源：BBCNEWS.COM*
-出走的香港人大多数是精英分子，而移居香港的大多是大陆人，香港的人口结构由此发生了较大的变化，但香港作为东方明珠及国际金融中心的地位仍然牢固，直至2019年中共背信弃义，彻底撕下伪装，在香港大肆镇压反送中运动，残害民主人士，并通过《港版国安法》后，香港才沦为“臭港”。
+来自真正的美国声音(Real America’s Voice) 2021年4月14日的推文
 
-相较于此前的几次移民潮，这一次港人移民的意愿最强烈，有超过3成的商界领袖、4成的港人表示要离开香港。更依赖本土文化市场的演艺界人士也纷纷出走，同是华人圈的台湾成了众多香港艺人的避风港，其中，被誉为“词神”的反共人士林夕先生已获得中华民国护照，同为反共人士的影帝黄秋生公开表示有意移居台湾，此前他已获得中华民国劳动部发的就业金卡。目前住台的反共知名艺人杜汶泽近日向慈善机构慷慷捐赠了100万元新台币……。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/rfi.fr_-3.jpg)*图片来源：rfi.fr*
-因经营反共书刊曾经被中共特工抓捕迫害的香港铜锣湾书店老板林荣基，已移居台湾并开了书店。不过他抱怨，台湾对香港移民设置的门槛过高，要求从香港汇入台湾600万新台币(约162万港币)，使不少港人望而却步。即便如此，过去的2020年在所有香港移民中，有三分之一仍然选择台湾作为移居目的地，这主要是台湾的民主制度加上同源文化吸引了善良的香港人。
+Female Journalist question
 
-中共70多年来的统治已被证明是反人类、彻底失败的，其共产专制和极端腐败相互作用摧生了前所未有的暴政，从而严重破坏和威胁了大中华区的文明。当前的中共急于对民主台湾动武的原因，主要是需要转移国内社会矛盾，释放多年来在大陆倒行逆施积聚的巨大负能量。一旦台湾继香港之后沦陷，大中华地区再无净土，因此，全球华人只有奋起灭共，才能拥有故乡和自由。
+女记者提问
 
-参考链接：[港人逃亡潮3分之1來台！林夕已拿到身分證　黃秋生取得就業金卡](https://www.storm.mg/new7/article/3615262)
+How do you strike that balance
 
-* * *
+你如何做到这种平衡
 
-编辑 发稿 云起时
+between being a model of the public health guidelines
 
-+1
+在成为公共卫生准则的范例
+
+and also not contributing to this sense of hopelessness
+
+和没有助长这种绝望感之间
+
+Perhaps among people who are skeptical with your vaccine
+
+也许在对你的疫苗持怀疑态度的人中
+
+and maybe feel like getting it would not make a difference in their lives anyway
+
+也许感觉注射疫苗反正不会改变他们的生活
+
+Jen Psaki
+
+詹·普萨基
+
+sure yeah I think a big part of what we’re trying to do
+
+当然，是的，我认为我们正在尝试做的很大一部分
+
+is provide accurate information about
+
+是提供准确的信息关于
+
+what getting a vaccine will enable the American people to do
+
+注射疫苗将使美国人民能够去做的
+
+hence the president gave a prime time address what he said
+
+因此，总统在黄金时间发表讲话说
+
+if when you get the vac
+
+如果当你得到疫苗
+
+if you when the vaccine’s accessible to you
+
+当你可以得到注射疫苗的机会时
+
+and you get it
+
+而且你得到它
+
+We can work towards having backyard barbecues uh
+
+我们可以朝着可以在后院烧烤的方向努力
+
+We’re also had a number of officials out there to convey
+
+我们也有很多官员要传达
+
+and we’ve had obviously the CDC has put out guidance that says
+
+而且显然疾病预防与控制中心已经发布了指南，其中说
+
+if you’re vaccinated if your neighbors are vaccinated
+
+如果你注射了疫苗，如果你的邻居都注射了疫苗
+
+you can have dinner inside together
+
+你们可以一起在室内进餐
+
+It’s a pandemic we don’t think it’s easy
+
+这是大流行病，我们认为这并不容易
+
+We know it’s difficult
+
+我们知道它是困难的
+
+it’s required a lot of sacrifice but at the same time
+
+需要很多牺牲，但是与此同时
+
+We’re trying to provide accurate public health based guidance on
+
+我们正在努力提供有关准确的基于公共卫生的指南
+
+what people can do once they have taken the vaccine
+
+人们接种疫苗后可以做什么
+
+Damon Roberts
+
+达蒙·罗伯茨
+
+Okay, got it? All straight after that answer?
+
+好，知道了吧？在那个回答后都理清了吧？
+
+Let me ask her question in a more simple way
+
+让我以更简单的方式问她问题
+
+Her question is Why would anybody want to rush to get a vaccine
+
+她的问题是为什么任何人要着急去打疫苗
+
+When if you get it nothing changes！ Nothing changes！
+
+人们打了疫苗后，什么也没有改变！什么也没有改变！
+
+You can’t go anywhere without a mask
+
+不戴口罩你就不能去任何地方
+
+You can’t, now she says you can have dinner
+
+现在她说能（在外面）进餐
+
+Well that, she might want to call the great one Dr. Fauci
+
+好，她有可能给“伟大的”福奇博士打电话
+
+because it’s not what he said this weekend
+
+因为这不是他本周所说的
+
+The Stormy Daniels of medicine was and out about in front of the cameras
+
+医药界的斯多米 丹尼尔斯(Stormy Daniels:成人电影明星) 在镜头前走来走去
+
+He has different view of that
+
+他对此有不同的看法
+
+So they’re not they’re not even on the same page with that
+
+所以他们甚至不在同一观点上
+
+But I thought that’s a great question
+
+但我认为那是个很棒的问题
+
+If they’re so good,
+
+如果他们是那么的好
+
+if the vaccine is so important
+
+如果疫苗是那么的重要
+
+If the vaccines are that effective
+
+如果疫苗是那么的有效
+
+which it seems like from all the study
+
+从所有研究来看
+
+Especially to Israel
+
+特别是对以色列来说
+
+they have been effective
+
+他们一直有效的
+
+700 million people now worldwide
+
+现在全球7亿人
+
+Have either gotten their first or complete, completed whatever doses they’ve gotten
+
+不管他们是得到第一剂还是已经完成他们应该得到的剂量
+
+Israel probably has the best information coming out of it
+
+以色列可能会从中得到最好的信息
+
+and some of the studies out of there
+
+而以色列的一些研究
+
+totally go against what she just said
+
+完全与她刚才所说的相反
+
+as far as all of the data so far shows
+
+到目前为止的所有数据显示
+
+That once you’re vaccinated
+
+那些你已经接种过疫苗的人
+
+there’s almost 0% chance that you are spreading the virus
+
+你传播病毒的几率几乎是0％
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接:
+
+
+
+> .[@lfs6b](https://twitter.com/lfs6b?ref_src=twsrc%5Etfw) discuss WH Press Secretary Jen Psaki being unable to answer a question about vaccines and returning to normal life. [pic.twitter.com/uc7j2XFhrc](https://t.co/uc7j2XFhrc)
+> — Real America's Voice (RAV) (@RealAmVoice) [April 14, 2021](https://twitter.com/RealAmVoice/status/1382325267599925248?ref_src=twsrc%5Etfw)
+
+
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0
