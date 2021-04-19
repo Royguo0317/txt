@@ -1,47 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美媒继续揭露中共爪牙达扎克
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1113690/)
+## 【战友心声】为什么默克尔“悄悄”接种了AZ疫苗 ？
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1113762/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：纽约香草山媒体部 蜜蜂
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/B-33.jpg)organicconsumers.org
-随着爆料革命的深入，美国人民越来越了解了中共病毒的真相，清楚了美国“卖国贼”达扎克之流的本来面目，《门道专家》发文，题目“非营利性组织’生态健康联盟’（Eco Health Alliance）获得了超过100万美元的美国资助，而该联盟的负责人却在推动虚构的武汉海鲜市场阴谋”。【1】
 
-全文如下：
 
-皮特·达扎克（Peter Daszak）管理的“生态健康联盟”获得了超过一百万美元的赠款，达扎克却致力于掩盖中共病毒来源。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-《每日电讯报》（The Daily Caller）报道说：
 
-非营利性组织“生态健康联盟”，这个向武汉病毒学研究所（Wuhan Institute of Virology）提供了数百万美元的国家卫生研究院（National Institutes of Health）拨款的组织，2021年2月又获得了纳税人支付的救助。
 
-这是自中共病毒疫情以来，“生态健康联盟”第二次接受救助，根据监管机构Whitecoat Waste的最新报告，在2020年5月获得738,861美元的救助后，“生态健康联盟”在今年2月又获得了719,570美元。
+德国之声中文网4月17日报道：“德国总理默克尔周五接种了第一剂阿斯利康疫苗，但联邦总理府只以两三句话轻描淡写带过此事…….默克尔并不想引起太多关注。”
 
-这个“生态健康联盟”由皮特·达扎克管理，之前我们在《门道专家》报道过他。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-312.png)图源网络
 
-2020年初，达扎克与其他人合作，掩盖中共病毒的真实来源。中共病毒是在美国科学家的协助下，在美国政府的资助下，在中共的一个实验室里制造的人工病毒。
+德国在不到一个月的时间里，将适合注射AZ疫苗的群体从开始的18-60岁，转成了目前的60岁以上（默克尔67岁）才能接受注射，态度180度大转弯。德国政府给出的理由是，疫苗不良反应引起血栓或致死的人群年龄均小于60岁，所以这个群体不适合接受此疫苗了。看到这里，笔者不由得想说，政府早干什么去了，拿百姓当实验品打着玩吗？另一方面，又是什么原因让有关部门对于这个问题一直支支吾吾？无论是欧盟还是德国，疫苗的研发力都不算差，但却一谈到疫苗问题就含糊其辞。他们给出的笼统说法是，注射疫苗利大于弊，血栓的死亡率低于病毒感染的死亡率。因此，只需要换个人群继续打疫苗。但有人敢说，打了疫苗就不会被感染了吗？恐怕默克尔自己也心怀疑虑——病毒真正的来源她不应该没听说过吧？否则，面对每日2万左右这一庞大的感染数字，她应该高调宣传、积极推广打疫苗才是自己的本份，干嘛要悄悄打这疫苗呢？因此，原因之二可能是，当天默克尔与习近平视频会见，为了好交差，只能无耐鼓起勇气发推表明立场，说自己打了AZ欧洲疫苗。至于兜售党国疫苗，就另当别论了。然而，虽是低调说出打了疫苗，但默克尔此举还是起到了一箭双雕的效果。事后，默克尔还默默地“感谢所有参与疫苗注射工作的人，还有所有已经接种了疫苗的人。”而德国政府也与欧盟药管局（EMA）串通一气，并不高明地给AstraZeneca（AZ）换了个马甲，现名为Vaxzevria，给希望得到“感谢”的人来用。
 
-他们这样做是为了保护中共国（与之相关的）人，同时也是为了保护华盛顿利益攸关，以及其他具有国际金融利益的人，如果人们普遍认为中共制造了中共病毒，他们在中共国的投资将处于危险之中。
+综上所述，默克尔“低调打疫苗”显示出她对疫苗的信心不足，亦或另有隐情。我就不信以毒灭共的烈火烧不到她身上。
 
-达扎克正在推动一个理论，即中共病毒在2020年2月起始于武汉海鲜市场，这保护了中共国和像他这样的美国人，让他们不会因为先前的工作而与病毒联系在一起。
+参考阅读：
 
-从那时起，出现了许多人赞同中共病毒自然说的理论，这些人中大多数出于无知，还有的或因为既得利益或因为政治压力，或只是不愿意接受丑陋的事实的人。
+[德国政界为何打疫苗都“悄无声息”？](https://twitter.com/dw_chinese/status/1383412900094627854?s=12)
 
-现在我们知道，达扎克的“生态健康联盟”在推动中共病毒来自武汉海鲜市场的自然说的伪理论时，还收到了数十万美元的赠款。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
-（全文完）
+编辑：灵性探索
 
-达扎克快成美国的过街老鼠了，达扎克背后的人老贼福奇也快了，虽然CNN今天仍然让他出镜【2】。背后与中共勾兑的力量，疑是拜登政府，塞林（Sellin）博士今天发推称，拜登政府掩盖了中共病毒真相【3】。让你们表演吧，真相终究会大白于天下，看你们怎样收场！
+编辑/校对/发稿：Irene木木
 
-参考链接：
+**更多资讯，更多关注**
 
-【1】[https://www.thegatewaypundit.com/2021/04/huge-non-profit-ecohealth-alliance-received-1-million-us-grants-head-promoted-made-wet-market-conspiracy/](https://www.thegatewaypundit.com/2021/04/huge-non-profit-ecohealth-alliance-received-1-million-us-grants-head-promoted-made-wet-market-conspiracy/)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-【2】[https://twitter.com/therecount/status/1383771395876818944](https://twitter.com/therecount/status/1383771395876818944)
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-【3】[https://twitter.com/LawrenceSellin/status/1383676532711858184](https://twitter.com/LawrenceSellin/status/1383676532711858184)
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
 
 0

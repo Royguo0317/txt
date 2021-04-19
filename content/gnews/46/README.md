@@ -1,64 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【呐喊】触目惊心——最新中共病毒全球疫情数据
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1112899/)
+## 【灭共头条】亿万富翁比尔-盖茨和中共沆瀣一气在全世界推动医疗警察暴政国度
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1113092/)
 
-作者：纽约香草山佛教部 369文驹
+编译报道：Ermat【㊙️翻Gnews原创组】
+责任编辑：Shifter
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-33.jpg)图片来源：www.ftchinese.com
+据自然新闻（Natural News）4月16日报道，自由派作家纳奥米-沃尔夫（Naomi Wolf）日前在一次电视节目中说，亿万富翁中的恶霸比尔-盖茨(Bill Gates)，正在将整个世界推向医疗警察国度的暴政中，并将停摆西方国家免于迫害的消极自由和提供社会保障的积极自由。
 
+盖茨、世界经济论坛（WEF）和共产主义的中共国这三个 “地狱般的联合体 “正在向全世界的政府发出 “指令”，让人们尽可能长时间地处于封锁状态。尤其是盖茨，正在用他上亿的不义之财，积极推行其所谓的 “生物安全国家”和“优生学”议程。
 
+不仅如此，还通过他控制的主要媒体，严重夸大中共病毒相关的死亡人数，但却掩盖武汉流感疫苗造成的死亡事件。据悉他在中共病毒注射液、病毒”护照 “和其他大流行病用具上投入了大量资金。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+沃尔夫对盖茨基金会的财务记录进行了调查，发现盖茨的资金主要流向媒体。《纽约时报》、《卫报》、《电讯报》都从他的基金会获得了数百万美元资助。而疾控中心每年可获得1200万-1700万美元的资助。
 
+照片上的盖茨已变得苍老。岁月改变了他的的容颜，却无法改变他心中那过度的贪欲和恶念。已是世上屈指可数的超级富豪，为了利益与中共种族大屠杀政权、主流媒体、医疗科技界等密切合作，借着主流媒体打着科学的名义散布和推动反科学与邪恶的虚假病毒信息和所谓生物安全控制议程，丧去了做人最基本的良知。这不仅让我想起了一首歌词：世人都晓神仙好，只有金银忘不了！终朝只恨聚无多，及到多时眼闭了——人生到头来还是一场空!
 
+参考链接：
 
-根据约翰斯·霍普金斯大学发布的数据，截止4月18日12:20分，中共病毒全球疫情数据如下：
+[Naomi Wolf says Bill Gates is destroying Western freedom and ushering in a “bio-security state](https://www.naturalnews.com/2021-04-16-naomi-wolf-bill-gates-destroying-western-freedom.html)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-304.png)图片来源：JHU，中共病毒全球感染概览
+（本文仅代表编译者个人观点）
 
-1、全球感染病例数：**140,457,797** 例，死亡人数：**3,009,215** 人。
-
-2、各国感染人数和死亡人数排名：
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/92.jpg)
-
-3、全球每日感染数据图：
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-305.png)
-
-4、全球每日死亡数据图：
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-306.png)
-
-通过以上数据不难发现，全球感染人数和死亡人数已经处于中共病毒爆发以来的最高水平，与今年年初水平相当。图表上今年4月感染和死亡人数的曲线十分陡峭，意味着本轮疫情爆发来势汹汹，而且这是在世界各国广泛接种疫苗的背景下发生的。那些鼓吹目前疫苗有效、能群体免疫的谎言，在数据面前不攻自破。
-
-据资料显示，约翰斯·霍普金斯大学（The Johns Hopkins University），是美国马里兰州巴尔的摩研究型私立大学，美洲大学协会的12个创始会员之一。美国国家科学基金会连续31年将该校列为全美科研经费开支最高的大学，也是哈勃空间望远镜和詹姆斯·韦伯空间望远镜的地面控制中心所在地。截至2020年4月，共有39名校友、教职工及研究人员获诺贝尔奖。在2019年末，约翰斯·霍普金斯大学的冠状病毒资源中心（Coronavirus Resource Center）收集来自全球数百个来源的数据来追踪中共病毒疫情全球病例，成为有关各国疫情引用最多的来源之一。[1]
-
-参考阅读：
-
-1. [约翰斯·霍普金斯大学](https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%BF%B0%E6%96%AF%C2%B7%E9%9C%8D%E6%99%AE%E9%87%91%E6%96%AF%E5%A4%A7%E5%AD%A6)
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-0
++1
