@@ -1,55 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】港媒：驻港国安再征第二家酒店，所为何事？
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1113920/)
+## 【有声读物】日本首相访美，两国领袖誓言坚定联手抗中，历史意义重大
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1114135/)
 
-作者：纽约香草山健身部 Jack Li文阳
+配音：香草山录音组 蒙古鸿雁
 
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-香港《南华早报》4月17日报道，据消息人士称，中共驻港国安公署将征用位于港岛西营盘区的港岛太平洋酒店（Island Pacific Hotel）。报道引述酒店预订网站称，这家由信和酒店集团拥有的酒店，楼高29层，拥有343个客房。如今，该酒店已经没有出现在集团网站上。联合早报网今天浏览集团网站，也无法找到关于港岛太平洋酒店的信息。
 
-此前，驻港国安公署还征用了另一个由香港中旅维景国际酒店拥有的香港铜锣湾维景酒店。这家酒店楼高33层，拥有266个酒店房。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-315.png)图片来源：美联社
 
-香港《国安法》于2020年6月30日晚11时起正式实施，其中明确了“分裂国家、颠覆国家政权、恐怖活动、勾结外国势力”是违法行为，最高可被判终身监禁。香港《国安法》的实施，是制造“白色恐怖”，产生“寒蝉效应”，令民众不敢批评政府。这部《国安法》为中共干预香港自治权提供了法理依据，扼杀香港的民主自由。
 
-中共以《国安法》为借口，把任何呼吁民主自由的人士打为危害国家安全，随意抓捕、定罪、判刑。这种做法看似符合法律，实际是要用恶法，在香港用特务化、文革化打压民主声音，限制港人的言论自由。
+据法国国际广播电台4月17日报道，美国总统拜登昨日在华府，与到访的日本首相菅义伟举行峰会。两国领袖誓言坚定联手抗中、加速因应气候变迁及5G网络方面合作。此外会后的声明中，还写入了对香港等的人权状况共同严重关切，美日首脑还确认将在中共新冠疫情上加强合作。
 
-港版《国安法》实施后，香港所有现任和新就职的公务员必须签署相关文件宣誓效忠，拒绝签署者将不获聘任。参选香港区议会及立法会的参选人，也被要求签署类似的确认书。
+拜登在这场领袖峰会上告诉菅义伟，日本享有美国在安全和其他议题上「钢铁般的支持」，体现了美国视日本为最重要的坚定盟友，承诺将给予最坚强的支持。
 
-2020年7月1日，中共国国务院港澳事务办公室副主任张晓明指出，驻港国安公署行使的权力已经超出了香港特别行政区自治权的范畴，香港特区当地的机构不能管辖驻港国安公署，这是完全合情合理的。国安公署的办公室代表着香港《国安法》最强有力的执行机构，同时也以迄今最明确和实在的形式彰显了中共对香港的控制权。由此看来，国安驻港公署就是中共监控香港高层的监督机构、督战队，任何高级官员只要受到中央质疑，就有可能被国安公署打成分裂国家、颠覆国家政权、恐怖活动、勾结外国势力，予以制裁。
+文字版原文：[【热点播报】日本首相访美，两国领袖誓言坚定联手抗中，历史意义重大](https://gnews.org/zh-hans/1109580/)
 
-参考阅读：
+作者：香草山健身部 Jack Li文阳
 
-[南早：国安公署租酒店作临时办公大楼](https://www.rfi.fr/cn/%E6%B8%AF%E6%BE%B3%E5%8F%B0/20210418-%E5%8D%97%E6%97%A9-%E5%9B%BD%E5%AE%89%E5%85%AC%E7%BD%B2%E7%A7%9F%E9%85%92%E5%BA%97%E4%BD%9C%E4%B8%B4%E6%97%B6%E5%8A%9E%E5%85%AC%E5%A4%A7%E6%A5%BC)
+音频处理：喜山必胜Maverick
+发稿：雪梨
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 **[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
 
 0

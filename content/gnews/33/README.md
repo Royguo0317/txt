@@ -1,27 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英教会领袖们呼吁英首相放弃疫苗护照计划
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1113637/)
+## 【有声读物】离开本地、本族、父家，往我所要指示你的地方去
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1113665/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：香草山福音部  英子
+配音：香草山录音组 Kikii
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/PA.jpg)lockdownsceptics.org
-布赖特巴特新闻(Breitbart News)报道，英国1200多名基督教领袖呼吁首相鲍里斯·约翰逊(Boris Johnson)放弃推出疫苗护照的任何想法，他们认为这是对自由民主最危险的威胁。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-在一封公开信中，教会领导人警告说，疫苗护照是英国历史上“最危险的政策提案之一”。
 
-基督教领袖们写道，“这一计划有可能导致我们所知的自由民主的终结，并造成政府使用技术控制公民生活的某些方面的国家监控。因此，这构成了英国政治史上最危险的政策建议之一。”
 
-教会领袖说，疫苗护照“创造一个两级社会的风险，在医疗上实行种族隔离，不接种疫苗的底层人群被排除在公共生活的重要领域之外。”
 
-该基督教组织总结道：“我们呼吁政府坚决而明确地声明，它不会考虑这个狭隘而危险的计划，现在不会，将来也不会。”
 
-英国国内越来越多的人反对引入疫苗护照，约40名保守党议员誓言投票反对该措施。左翼工党也暗示他们将反对该计划。
 
-参考链接：
 
-[https://www.breitbart.com/europe/2021/04/18/1200-church-leaders-denounce-boris-johnsons-vaccine-passport-scheme/](https://www.breitbart.com/europe/2021/04/18/1200-church-leaders-denounce-boris-johnsons-vaccine-passport-scheme/)
+自从2017年参与爆料革命以来，我实在敬佩文贵先生和我们的女英雄科学家闫丽梦博士。文贵先生预备了三十年反共，有一天终于离开了养育他的父母，也离开了他的家人、亲朋好友、同学同事，来到美国，开始了反共灭共爆料革命；而我们的女英雄科学家也因香港事件，CCP病毒事件看到了CCP的邪恶，毅然离开了她曾经爱过的，并与她一同过着 “居里和居里夫人”般志同道合的丈夫，离开了身在中国的父母，还有那座美丽的城市——香港，以及世界最顶级的实验室，只身一人来到美国，加入爆料革命，揭露CCP病毒的真相。
+
+文字版原文：[【信仰之声】离开本地、本族、父家，往我所要指示你的地方去](https://gnews.org/zh-hans/1068242/)
+
+音频处理/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

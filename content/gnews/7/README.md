@@ -1,42 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】日本首相访美，两国领袖誓言坚定联手抗中，历史意义重大
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1114135/)
+## 中美“致力于”在气候变化问题上的合作
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1114241/)
 
-配音：香草山录音组 蒙古鸿雁
+俄罗斯莫斯科喀秋莎农场   银河
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-31.jpg)fbcnews.om.fj
+国会山报 (The Hill) 报道，美国和中共国上周六晚间发表了一份联合声明，确认两国承诺在气候变化领域开展合作，并“加强”巴黎气候协议的实施。
 
+根据美国国务院发布的声明，美国气候特使约翰·克里和中共气候变化特使解振华于周四和周五在上海举行了会晤。声明中说:“美国和中（共）国致力于相互合作，并与其他国家合作，共同应对气候危机，这一问题必须以它所要求的严肃和紧迫的态度予以解决。”
 
+据美联社报道，这两个国家是世界上最大的两个碳排放国。根据协议，两国同意“继续努力”，“将全球平均气温上升幅度控制在2摄氏度以下，并努力将其限制在1.5摄氏度以内”。
 
+声明称:“两国回顾了通过各自的领导和合作，他们对《巴黎协定》的发展、采纳、签署和生效作出的历史性贡献。”
 
+声明还指出，美国和中共国将采取措施在短期内帮助对抗气候变化包括“适当的行动来最大化国际投资和金融支持，从高碳的化石燃料过渡到绿色、低碳和可再生能源。”双方还承诺逐步减少氢氟碳化合物的生产。
 
+克里本月早些时候表示，他对中共是否愿意与其他国家合作实现碳排放目标“并没有信心，但有希望”。
 
+克里表示，拜登总统承认中共国和美国将存在分歧，但这“并不意味着我们应该忽视摆在我们所有人面前的危机，这需要我们所有人做出反应，那就是气候危机。”
 
-据法国国际广播电台4月17日报道，美国总统拜登昨日在华府，与到访的日本首相菅义伟举行峰会。两国领袖誓言坚定联手抗中、加速因应气候变迁及5G网络方面合作。此外会后的声明中，还写入了对香港等的人权状况共同严重关切，美日首脑还确认将在中共新冠疫情上加强合作。
+未来，两国同意继续就中美两国在本世纪20年代可以采取的具体减排行动进行讨论。这些行动包括：工业和电力脱碳的政策、措施和技术；增加可再生能源的使用；绿色和气候适应性农业和节能建筑等。
 
-拜登在这场领袖峰会上告诉菅义伟，日本享有美国在安全和其他议题上「钢铁般的支持」，体现了美国视日本为最重要的坚定盟友，承诺将给予最坚强的支持。
+参考链接：
 
-文字版原文：[【热点播报】日本首相访美，两国领袖誓言坚定联手抗中，历史意义重大](https://gnews.org/zh-hans/1109580/)
-
-作者：香草山健身部 Jack Li文阳
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://thehill.com/policy/energy-environment/548861-a](https://thehill.com/policy/energy-environment/548861-a)
 
 0
