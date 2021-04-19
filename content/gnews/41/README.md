@@ -1,35 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 冠状病毒南非变种影响已接种疫苗者8倍高于未接种者
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1115901/)
+## 西喜时事新闻简报-新疆篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1115895/)
 
-翻译:康州盘古农场 – Mike Li
-校对:康州盘古农场 – 柯镇恶
-编辑:康州盘古农场 – 蓝精灵
+- 作者：徽州小镇
 
-据《humansarefree.com》，2021年4月13日报道：
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/CCD99B66-E4AC-414E-85BF-E9043967FEA4.jpeg)
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-特拉维夫大学在一项研究中发现，冠状病毒的南非变种(B.1.351)对已接种疫苗者的影响，比未接种疫苗者大8倍。以色列一家顶级医疗机构Clalit Health Services也在这项研究中提供了帮助。
+**西班牙2021年4月19日电/西喜社——**
 
-“我们发现，与未接种疫苗的群体相比，在接种第二剂疫苗的人中，南非变异体的感染比例过高，”特拉维夫大学的Adi Stern说。“这意味着南非变种病毒在一定程度上能够突破疫苗的保护。”
+您若想了解新闻全文报导内容，请点击各篇新闻标题
 
-这项研究观察了大约400名接种过BioNTech/辉瑞疫苗的人。先观察这些人中感染了冠状病毒变种的人数，然后将观察结果与同样数量的未接种疫苗而感染病毒的人数进行比较。“这是世界上第一个基于真实世界数据的研究。研究表明，与原始病毒和英国变种相比，疫苗对南非变种的防护效果较差。”Clalit研究主任Ran Balicer教授说。
+**1. [中共国对新疆的 “消除文化” 与西方左翼组织并列](https://thetaiwantimes.com/chinese-cancel-culture-over-xinjiang-ranks-alongside-western-left-wing-orgs/)**
 
-Stern说，这项研究的结果让人感到意外。Stern告诉《以色列时报》：“根据一般人群中的模式，我们本来预计南非变种只有1例，但我们看到了8例。”“显然，这个结果让我很担心。”他还说：“虽然南非变种确实突破了疫苗的保护，但它还没有在人群中广泛传播。”“这些只是初步发现，我们仍然需要继续密切关注该毒株在以色列的传播情况，尤其需要进行流行病学监测和系统测序，从而遏制南非变种在以色列的进一步传播。”
+台湾时报4月18日消息，美国和其他西方国家政府一道指责中共剥夺了维吾尔族的基本权利，侵犯了基本的人权，一周前，包括英国、美国、加拿大和欧盟成员国在内的一些西方国家对中国官员在新疆问题上实施制裁。中共一再否认在新疆滥用权力的指控，并反击了对欧洲当局的报复性制裁。目前世界各地的主要品牌已联手应对中共国新疆维吾尔族的人道主义危机，中国对外国品牌的强制”取消文化”趋势正在迅速失去世界各地的客户。
 
-法新社援引该研究报告称，南非变种在以色列所有COVID-19病例中占比不到1%。
+**2. [中共国针对新疆问题报复性制裁冰岛个人](https://www.brecorder.com/news/40085448)**
 
-“这意味着Pfizer-BioNtech疫苗虽然具有很高的保护性，但对于冠状病毒的南非（B.1.351）变种，可能无法提供相同水平的保护。”该研究说。
+路透社4月18日消息，中共国驻雷克雅未克大使馆周五表示，中共已经制裁了一名来自冰岛的个人。中共国大使馆在一份声明中说，冰岛此举是基于”谎言和造谣”。西方政府正寻求让中共为中国西北部大规模拘留维吾尔族穆斯林负责。
 
-近日，一项令人震惊的研究显示，mRNA COVID-19疫苗会诱发基于朊病毒的会导致你的大脑逐渐退化的可怕疾病。mRNA疫苗诱导的朊病毒可能会导致神经退化性疾病，因为长期记忆是由类朊蛋白维持的。研究认为，基于mRNA的疫苗还可能导致受种者患上肌萎缩性侧索硬化症、前颞叶变性、阿尔茨海默氏症等神经系统退化性疾病。
+**3. [新疆为何成为了针对中共国冷战的震中](https://www.newsclick.in/why-xinjiang-emerging-epicenter-us-cold-war-china)**
 
-文章来源:[https://humansarefree.com/2021/04/coronavirus-affects-vaccinated-people-8-times-more-than-unvaccinated.html](https://humansarefree.com/2021/04/coronavirus-affects-vaccinated-people-8-times-more-than-unvaccinated.html)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+Newsclick 4月18日消息，从10年前的美国政府[宣布](https://foreignpolicy.com/2011/10/11/americas-pacific-century/)“[转向亚洲](https://www.foreignaffairs.com/articles/china/2016-03-03/making-good-rebalance-asia)“战略以来，到近段时间以来的特朗普及拜登政府都奉行”转向亚洲”[的政策](https://www.dw.com/en/can-president-joe-biden-return-the-us-pivot-to-asia/a-56337037)， 美国已经完成了国家战略大调整。目前，一场聚焦新疆的信息化战争已经展开。美国政府针对中共国的情报战，一旦将中共制造了新疆发生种族灭绝的”事实”确认，它将有助于发展随后的外交和经济战争。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**4. [大众集团在中国车展上力推电动汽车，面临维吾尔人的问题](https://www.dpa-international.com/topic/vw-touts-electric-cars-china-show-faces-questions-uighurs-urn:newsml:dpa.com:20090101:210418-99-250422)**
+
+DPA国际 4月18日消息，大众汽车（Volkswagen）正上海车展上推出其新型全电动汽车ID.6 X和Crozz，将只在中国生产。该公司在中共国的运营主管表示，“大众汽车在新疆首府乌鲁木齐的工厂适用集体行为准则，像强迫劳动这样的话题，被批判性地讨论过，在我们的工厂里是不存在的，因为我们直接雇佣了员工”。
+
+**5. [新疆棉花：BCI受网络攻击，强迫劳动声明遭删除](https://www.thestar.com.my/aseanplus/aseanplus-news/2021/04/18/xinjiang-cotton-bci-attacked-for-removing-statement-on-forced-labour)**
+
+The Star星报4月18日消息，总部设在日内瓦的棉花组织BCI表示，由于其网站上遭到网络攻击，该声明被删除，但其政策保持不变。共青团和中国官方媒体本周公布了删除声明，并指责BCI虚伪和忘恩负义。
+
+审核：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 0

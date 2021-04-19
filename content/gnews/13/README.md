@@ -1,86 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读Sellin贴出江家三代照片用意，及英将实行“敌对国”新法案
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1116379/)
+## 【香港要闻】邓炳强连续三天批港媒报导假新闻 疑为封杀铺路
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1116431/)
 
-直播视频：
+搜集\编撰：文燕 \封面合成：文粤
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image001-30.png)《苹果日报》头版，刊登小学生在「国安教育日」参观警察学院的相片。
+4月15日是香港首个「国家安全教育日」，有学生在警队模拟港铁车厢的训练设施中，把玩训练用的仿制枪械，相片在网上疯传，香港媒体第二天刊登片报道指，「网民惊讶场面恍如重演香港警方在8.31 太子站举枪指向乘客的一幕」。警务处长邓炳强对此表示强烈不满，不点名批评该媒体的做法是恶意「抹黑」警方。据【立场新闻】报导，该段报导触动了警务处处长邓炳强神经，邓连续多日向该媒体发炮，指有人「抹黑」，「为了达到他们的目的，很可能为服务外界势力」，所以打击政府威信和警队。又称该媒体报导假新闻 ，是 「外国势力的香港代理人」。邓指自己无惧「口诛笔伐」，「我是警务处长，我不怕这些势力，会继续讲真说话。」
 
+战友观点：
 
+港媒头版刊登小学生在「国安教育日」参观警察学院的相片，画面的确令人联想到831的情况。这照片直接触动了警队最痛的神经。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image003-19.png)721白衣人士一度持棍冲入港铁车厢袭击乘客。![]()![](https://gnews.org/wp-content/uploads/2021/04/未标题-2-1.jpg)
+721事件警队不作为，令很多人受到伤害。事件中，大批穿着白衫部分有乡事及黑社会背景的人士在有预谋下，手持铁通籘条在港铁元朗站无差别袭击途人和列车乘客，导致多人血流披面。袭击发生之前，据消息称有中联办官员要求元朗乡绅驱赶示威者；建制派立法会议员何君尧更被发现称赞施袭者。民主派更加斥责警方早已知情、包庇白衣人、勾结和协调黑社会，借此打击反送中运动。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/未标题-3.jpg)831事件，多名防暴员警及速龙小队成员冲上列车，以警棍殴打乘客，并向市民喷胡椒喷剂。
+831事件发生于香港九龙旺角太子站，警方无差别袭击乘客的严重事件。多名防暴警员及速龙小队冲入太子站往中环的月台及列车，以警棍及胡椒喷雾等武器无差别袭击车厢内的乘客。事后警方否认是「进站打人」，重申只是使用「适当武力」制服示威者。警方在这次事件中的行动被批评是无差别攻击市民，亦有人形容香港警方是「恐怖分子」。
 
-《路德时评》2021年4月19日早间节目主要内容：
+邓炳强自觉被媒体借图片映射​​警队，「抹黑」警队形象。事实上831事件，坊间指当晚有3名伤者失踪或被打死，警方事后数度澄清当晚在港铁太子站的行动中并没有示威者遭殴打致死，但831太子站事件仍和721元朗白衣人袭击示威民众一样，成为许多港人对警方不信任的重要事件。
 
-一、Sellin博士贴出江家三代照片
+邓炳强的一句错口名言：「香港警察，知法犯法」并非浪得虚名。根据2019年8月份出版的《香港警察——民间独立调查报告书》举出许多警员随意使用胡椒喷雾、过度使用武力、随意使用催泪弹、随意逮捕民众等等行为。这些都可以在网路直播、新闻报导中看得到，都有眼见为凭的证据。 「香港警察，知法犯法」到底真的如邓炳强所说的恶意「抹黑」警队形象，还是有理有节?闭路电视就是最好的证据。
 
-Sellin博士4月19日再发重磅推特：在新冠疫情大流行的病毒实验室起源中，中共国的政治商业关系和竞争如何发挥作用？
+【以上观点仅代表笔者本人 】
 
+资料来源：[立场新闻](https://www.thestandnews.com/politics/%E6%B8%85%E7%AE%97%E5%82%B3%E5%AA%92-%E9%84%A7%E7%82%B3%25%20E5%BC%B7-%E7%84%A1%E6%87%BC%E8%A8%98%E5%8D%94-%E5%AD%B8%E8%80%85-%E5%8F%A3%20%E8%AA%85%E7%AD%86%E4%BC%90-%E7%BA%8C%E8%AC%9B-%E7%9C%9F%E8%AA%AA%E8%A9%B1%20-%E5%86%8D%E4%B8%8D%E9%BB%9E%E5%90%8D%E6%96%A5%E8%98%8B%E6%9E%9C%E5%A0%B1%25%20E9%81%93-%E4%B8%8D%E9%81%93%E5%BE%B7/) 、[《香港警察——民间独立调查报告书》](https://drive.google.com/file/d/1gCbE1fKKOu9QgRn-aWvApIRSfZfErVdy/view)
 
+审稿： 卡西欧 \ 上传：文粤
 
-> How does China's political-business component and rivalries play into the laboratory origin of the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) pandemic?
-> (hat tip to Yaacov Apelbaum)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#corona](https://twitter.com/hashtag/corona?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/KxFNJzB0ZF](https://t.co/KxFNJzB0ZF)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 19, 2021](https://twitter.com/LawrenceSellin/status/1384033118198272000?ref_src=twsrc%5Etfw)
-
-
-
-路德社评论：
-
-1、Sellin在推特中贴出了一个关系图，其中涉及江泽民、江泽民之子江绵恒、江泽民之孙江志成和前任卫生部长兼红十字会主席陈竺，还有复星医药和药明康德，以及武毒所的袁志明和石正丽。陈竺与前中科院副院长江绵恒共同发起建设P4实验室，武毒所在2020年1月21日申请了瑞德西韦在中共国的专利，最后被江志成控股的复星医药成功获得药品专利。
-
-2、这份图非常简练且详细地将参与中共病毒研发的最高层领导和部门紧密地联系起来，由此可以看出，中共病毒实验室计划是一项长期且有预谋的计划。从这张图可以非常清楚地看到，P4实验室以及国内多个病毒研究所背后的大佬是江家，瑞德西韦也是由江家控制。
-
-3、江泽民安排其儿子江绵恒主管中科院，就是为掌控科学界的话语权，江泽民非常熟悉美国的游戏规则，并将这套规则搬到了中共国内，即使江泽民下台，江家依然能够拥有科学界的话语权，掌握中共国的命脉，为可能发生的党内斗争做准备。
-
-4、Sellin博士又发重磅推特：以下几张照片有助于了解政治、资金和流行病的情况。
-
-
-
-> Or does this help to potentially complete the picture of politics, profits and pandemics?[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#corona](https://twitter.com/hashtag/corona?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/pt4n7lPgXV](https://t.co/pt4n7lPgXV)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 19, 2021](https://twitter.com/LawrenceSellin/status/1384092210983968775?ref_src=twsrc%5Etfw)
-
-
-
-5、虽然Sellin博士发表的这两条推特表面上和习神没有关系，但事实并非如此，习神统治下的中共政府指挥着病毒的防御、信息发布，以及投放等各种运作，习神就是中共政府的法人代表。
-
-6、武汉病毒实验室的立项和建设由江家全面主导，与习关系不大，但是将病毒投放到全世界则是习神下的命令。爆料革命路德社此前透露，中共病毒疫情大爆发分两步走，第一步是小范围内的爆发，第二步就是采取主动进攻的方式将病毒投放到全世界。武汉病毒实验室面上打着病毒研究和疫苗开发的名义，实质上是中共军方一直在主导进行着超限生物武器开发，习最终决定向美国发起超限生物战，这就是文贵先生爆料的“13579”计划。
-
-7、Sellin绘制的这张图涉及江派势力，中共的资深病毒专家中有江派势力，江习斗争已经到达关键点，江派的病毒专家未来很有可能会站出来揭发习。如果江家不推出习神为病毒疫情背锅，那美国完全可以此为由冻结江家在海外的资产，可见美国军情部门获得情报的能力远超出常人想象。
-
-8、《FISA法案》赋予执法部门权力可对外国代理人进行全方位监控，监控的所有信息可在FISA法庭上作证，美国政府当年制裁华为就是通过FISA法庭判决执行的，所以中共家族利用幕后黑手的方式在美国完全行不通。
-
-9、纳瓦罗在三月底公开赞扬闫博士的报告非常出色，并且认定中共病毒就来自武毒所，他一方面经过长期的调查认可闫博士报告的内容准确无误，另一方面也是代表川普总统认定闫博士，因为闫博士的三份报告绝对经得起历史的考验。
-
-二、英首相将宣布针对“敌对国”新法案
-
-据英国《泰晤士报》19日报道，英国首相约翰逊将在5月11日宣布一项旨在针对“敌对国家”的新法案。报道称，“敌对国家”包括中共国和俄罗斯。根据该新法案，在英国活动的外国间谍将面临起诉和被驱逐出境，以保护英国不受中共国和俄罗斯等“敌对国家”的攻击。新法案将要求所有代表外国政府工作的在英人员进行登记注册，否则将被视为犯罪[\[1\]](https://www.163.com/dy/article/G7V7QK480514R9OJ.html)。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/代理人.jpg)[图片地址](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0419%2Fadef9b47p00qrsxth003qc001nm00q0g.png&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
-路德社评论：
-
-1、英国政府这么做就是针对中共国和俄罗斯，只要外国代理人在英国进行登记后，英国就可依法对其进行全面监控，如果不进行登记，那英国可依法对这些外国代理人进行抓捕。
-
-2、该法案实行后，在英国的中共国党员、官员和间谍都必须进行登记，否则就有被抓捕判刑的风险，因为英国已经把中共国认定为敌对国家，接下来，其他英联邦国家都将跟进推行这项法律。
-
-三、荷兰秘密报告揭露华为窃听
-
-荷兰『国民日报』17日报道称，根据一份2010年完成但一直秘而不宣的调查报告，华为集团获取了荷兰皇家电信移动网络的所有信息，包括2002-2010年间担任荷兰总理的巴尔克嫩德的电话通话内容，以及其他内阁成员与人通话的内容。这份报告的结论是，由于信息遭窃，荷兰皇家电信移动的生存那时可能“遭到严重威胁”，荷兰皇家电信移动当时拥有650万客户[\[2\]](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210418-%E8%8D%B7%E5%85%B0%E7%A7%98%E5%AF%86%E6%8A%A5%E5%91%8A%E6%8C%87%E5%8D%8E%E4%B8%BA%E6%88%96%E7%AA%83%E5%90%AC%E6%80%BB%E7%90%86%E9%80%9A%E8%AF%9D%E7%9B%97%E5%8F%96%E5%AE%A2%E6%88%B7%E6%95%B0%E6%8D%AE)。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/华为-1.jpg)[图片地址](https://s.rfi.fr/media/display/c2121b62-a09d-11eb-b7fc-005056bf87d6/w:980/p:16x9/AP21090221240589.webp)
-路德社评论：
-
-1、这是发生在2010年的事，时隔十年才被披露出来，中共这几十年在海外的假骗偷行为早已被西方国家掌握，未来将有越来越多国家站出来揭露中共利用军民融合项目进行海外扩张。
-
-2、西方国家的经济体制始终对外开放，允许他国企业参与竞争，但是要先签署协议，华为进入后的种种犯罪行为早已经被调查部门掌握，反观日本企业，它们就是因为恪守契约精神，脚踏实地地进行科研才有今天的成就，而中共体系下的企业所使用的手段非常Low，只要作恶，早晚会为此付出代价。我们宁要阳光下的瑕疵，也不要阴暗下的完美。
-
-3、美国定海神针力量之所以要对中共动手有几个重要原因：第一，中共几十年从中国老百姓手中搜刮了无数资产，现在集中在少数几个家族手中；第二，中共几大家族聚拢的财富足够赔偿西方国家的损失；第三，西方民意也开始意识到灭共的重要性。
-
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
-
-参考文章：
-
-[1][https://www.163.com/dy/article/G7V7QK480514R9OJ.html](https://www.163.com/dy/article/G7V7QK480514R9OJ.html)
-
-[2][https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210418-%E8%8D%B7%E5%85%B0%E7%A7%98%E5%AF%86%E6%8A%A5%E5%91%8A%E6%8C%87%E5%8D%8E%E4%B8%BA%E6%88%96%E7%AA%83%E5%90%AC%E6%80%BB%E7%90%86%E9%80%9A%E8%AF%9D%E7%9B%97%E5%8F%96%E5%AE%A2%E6%88%B7%E6%95%B0%E6%8D%AE](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210418-%E8%8D%B7%E5%85%B0%E7%A7%98%E5%AF%86%E6%8A%A5%E5%91%8A%E6%8C%87%E5%8D%8E%E4%B8%BA%E6%88%96%E7%AA%83%E5%90%AC%E6%80%BB%E7%90%86%E9%80%9A%E8%AF%9D%E7%9B%97%E5%8F%96%E5%AE%A2%E6%88%B7%E6%95%B0%E6%8D%AE)
-
-文章撰写：【小虫】  校对：【无花果】
-
-本文仅代表作者个人观点
-
-+1
+0
