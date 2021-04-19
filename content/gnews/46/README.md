@@ -1,33 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 江泽民、江绵恒、江志成终在Lawrence Sellin博士的病毒全家福团聚
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1115236/)
+## 前五角大楼专家分析：中共能击沉美国航母吗？
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1114363/)
 
-【日本东京方舟农场】撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
-![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-77.jpg)
-据[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午2:36 · 2021年4月19日](https://twitter.com/LawrenceSellin/status/1384033118198272000)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文
+【日本东京方舟农场】撰稿：青衣 校对：文小律
 
+据《阿波罗网》记者编译报道，美国外交及安全期刊《国家利益》杂志（The National Interest）周五发表了一篇题为《中共能击沉美国航母吗？》的文章，作者是曾在五角大楼担任陆军助理部长办公室高级专家的克里斯·奥斯本(Kris Osborn )。
 
+该文章称，中共宣称美国的航母极其脆弱，这个问题有待商榷，也有不同的解释。文章描述说，中共官媒报道称，美国在南海的航母“完全在中国人民解放军的掌握之中”，并称中共军队拥有东风-21D和东风-26“航母导弹”等多种反航母武器。
 
-> How does China's political-business component and rivalries play into the laboratory origin of the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) pandemic?
-> (hat tip to Yaacov Apelbaum)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#corona](https://twitter.com/hashtag/corona?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/KxFNJzB0ZF](https://t.co/KxFNJzB0ZF)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 19, 2021](https://twitter.com/LawrenceSellin/status/1384033118198272000?ref_src=twsrc%5Etfw)
+中共官媒的这份报道是针对美国“罗纳德·里根”号和“尼米兹”号双航母在该地区的演习训练行动所发出的。美国的演习涉及到为多艘航母协同攻击做准备的决定性努力。这些类型的行动，凭借复杂的网络、指挥和控制，以及应对空中冲突的努力而获得成功。它们还通过将火力、监视潜力和武器能力增加一倍，为海上攻击选择提供了巨大优势。
 
+双航母攻击方案，不仅能在更大程度上扩展海军打击内陆目标的能力，延长目标搜索停留时间，实现多平台协同打击，而且还能大大提高驱逐舰和巡洋舰的导弹攻击能力。每个航母打击群由一艘航母、一艘巡洋舰和两艘驱逐舰组成，带来了大型的、综合的海上发射资产组合。
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4E7830CF-D876-4AAF-BD9E-41C691E11706.jpeg)
 
-How does China’s political-business component and rivalries play into the laboratory origin of the [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) pandemic? (hat tip to Yaacov Apelbaum) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hashtag_click) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click) [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) [#corona](https://twitter.com/hashtag/corona?src=hashtag_click)
+此外，文章认为，也许更重要的是，中共宣称美国航母极其脆弱，这个问题有待商榷，也有不同的解释。中共这些导弹的射程远达900海里，被认为是对美国航母的重大威胁。但同时，美国海军领导人也明确表示，美国航母随时可以在需要的地方行动。因此，这其中有一系列因素需要考虑。
 
-中文大意：在[＃COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click)大流行的实验室起源中，中国的政治业务组成部分和竞争因素如何发挥作用？（小费福利送给Yaacov Apelbaum）[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click)[＃不受限制的生物战](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hashtag_click)[＃不受限制的生物武器](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)[中共病毒起源](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click)[＃COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click)[＃冠状病毒](https://twitter.com/hashtag/coronavirus?src=hashtag_click)[#corona](https://twitter.com/hashtag/corona?src=hashtag_click)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/EzUSqffUYAEQB2v.jpg)
-Lawrence Sellin博士推文中的图片的中文翻译据[奔向自由 2021年以毒灭共，以钱灭共跟随我们的《灭共统帅》郭文贵先生，继续灭共，永不回头@jianzhi30855277](https://mobile.twitter.com/jianzhi30855277)于[下午5:34 · 2021年4月19日](https://mobile.twitter.com/jianzhi30855277/status/1384077975235166208)·[Twitter for Android](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)
+首先，据报道，中共这类航母杀手导弹的射程并不会对较近的航母构成太严重的威胁，除非它有精确制导系统和打击移动目标的能力。此外，虽然出于可以理解的安全原因，很多事情不会公开讨论，但美国海军一直在快速推进新技术，改善其多层船舰自我防卫系统。
 
-回复 [@LawrenceSellin](https://mobile.twitter.com/LawrenceSellin)的推文[https://mobile.twitter.com/jianzhi30855277/status/1384077975235166208](https://mobile.twitter.com/jianzhi30855277/status/1384077975235166208)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/EzU7lByVkAIfj9I.jpg)
-也就是说这是一张中共病毒全家福，在这张全家福中的家长是江泽民，蛤子江绵恒中国科学院前副所长及P4实验室和许多其他生物机构、上海高校、上海医院及军医院和军事研究机构的控制人；蛤孙江志成掌控复星医药等医疗产业的股权和专利；蛤孙的合作伙伴是在武汉P4实验室任主任的袁志明和石正丽以及他们的法国勋章；蛤子江绵恒的合作伙伴是现任中国红十字会会长陈竺；蛤本人江泽民通过共产党控制着中国科学院以及武汉病毒研究所和武汉P4实验室。
+航母经常以打击群的形式航行，这意味着它们由驱逐舰、巡洋舰及各种空中监视和攻击力量进行防御。其次，海军继续在装备水面舰艇方面取得快速进展，配备了新的激光武器和先进的电子作战系统，可以“干扰”来袭的导弹，阻止它们，破坏它们的轨迹，或者干脆让它们偏离航线。
 
-现在全家福凑齐了，江泽民及蛤子蛤孙江绵恒、江志成以和蛤子蛤孙的爪牙袁志明、石正丽、陈竺以及蛤子蛤孙及爪牙控制的中国科学院、武汉病毒研究所、武汉P4实验室及蛤子蛤孙控制的相关与病毒有关的企业都在这张全家福里大团圆了，但是这还不是剧终，这仅仅是续幕，让我们共同见证终极审判那一刻。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2E3ADFF9-0E46-45A9-8549-565D5D620FAA.jpeg)
 
-（文章内容仅代表作者个人观点）
+此外，海军的多层防御系统不仅包括新的长程航空、空间和舰载传感器，而且甲板发射的拦截导弹也不断升级软件以提高精度。例如，海军的SM-6导弹和改进型海麻雀导弹Block II现在已经进行了软件和传感器升级，使其能够更好地识别和摧毁接近的移动目标。例如，SM-6导弹升级后，在武器本身中设计了一个“双模式”搜索器，使其能够更好地辨别移动目标，并在飞行中进行调整以摧毁它们。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/88FED98A-49B6-455D-A364-B474054CF6F3.jpeg)
+
+而这种改进型海麻雀导弹，还具有掠海模式，使拦截导弹能够在较低的高度，摧毁平行于海面飞行的逼近导弹。一些较新的、先进的拦截导弹，则不再单纯依靠舰载照明器，而是半自主地接收电子“脉冲”，并在飞行中进行调整，以摧毁接近的反舰导弹。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/6F023C6E-34A6-4E74-B15D-58F6A0664E1C.jpeg)
+
+新型的空中传感器，如先进的无人机和具有ISR能力（ISR=情报、监视、侦察）的F-35C隐身战机，可能被成功地证明是一种“空中节点”监视资产，在导弹逼近时，能提醒水面部队指挥官。它们还可以帮助舰艇发动攻击，并在某些情况下，从空中拦截或摧毁逼近的反舰导弹。事实上，美国海军驱逐舰已经部署了这种能力，它被称为海军综合火控-防空。这种系统能够利用空中节点，如鹰眼预警机甚至F-35来探测来自视野以外逼近的威胁，联网舰载指挥控制系统，控制SM-6拦截导弹在远距离上干掉逼近的导弹。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/867D5AC2-1C3F-4324-B9AD-D40E43758A81.jpeg)
+
+这一切意味着，尽管中共声称其航母杀手导弹使航母已经“过时”，但航母战斗群完全可以成功的抵御它们。如果航母两侧是装备精良的DDG51驱逐舰，则更是如此。也许以上因素就是海军领导人继续说美军航母可以在任何需要的地方成功行动的部分原因。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/29B2A3CA-DEC0-4EF0-9030-0E2FDD8C80F1.jpeg)
+
+最后，随着航母发射的MQ-25“黄貂鱼”加油机的到来，成功拦截900海里反舰导弹可能会被证明不那么紧迫，至少，该加油机有望将F-35C和F/A-18“超级大黄蜂”等甲板发射战机的攻击距离提高近一倍。
+
+作为军事专家的作者在文章中以极其专业的角度，用详尽的资料进行了全面分析，驳斥了中共称“美国的航母极其脆弱”，并在其“掌握之中”的说法。在笔者看来，作者还是高估了中共的军事打击能力。中共的军事实力跟美国相比，起码相差半个世纪，落后几个代差。中共也就是打打口炮意淫一番，愚弄一下国内百姓罢了。
+
+注：本文仅代表作者观点
+
+参考链接：
+
+1. [https://twitter.com/aboluowang/status/1383694809739657224?s=09](https://twitter.com/aboluowang/status/1383694809739657224?s=09)
+2. [https://twitter.com/bannedebook/status/1383693500693114886](https://twitter.com/bannedebook/status/1383693500693114886)
+
 
 0
