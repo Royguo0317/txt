@@ -1,31 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】04/18/2021：日本相当清楚中共目前的道路完全走不通只会做末端应用日本之前是遵守协议而非真正害怕中共
-` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1116079/)
+## 路简2021.4.18晚：布林肯称 从阿富汗撤军就是集中火力应对中共威胁
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1116118/)
 
-**制作：Cantonese工作室**
+**编辑：华盛顿DC农场 路德简报项目组**
+
+1、布林肯： 从阿富汗撤军就是集中火力应对中共威胁
+
+2、日本首相菅义伟访美 向曾经与日作战的美国勇士敬献花圈
+
+3、中共心虚：发动宣传机器唱衰美日联盟
+![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/20120418-2_01-1024x422.jpg)
+- ![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/20120418-2_02-348x1024.jpg)
+- ![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/20120418-2_03-348x1024.jpg)
+
+![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/20120417-2_04-1024x120.jpg)
+
+
+> 2021 年 4月18日 路德时评 晚
+> 
+> 1. 布林肯： 从阿富汗撤军就是集中火力应对中共威胁
+> 
+> 2.日本首相菅义伟访美 向曾经与日作战的美国勇士敬献花圈 
+> 
+> 3. 中共心虚：发动宣传机器唱衰美日联盟 [pic.twitter.com/D7QwgCr0a3](https://t.co/D7QwgCr0a3)
+> — 平民爆料 (@WM18320321) [April 19, 2021](https://twitter.com/WM18320321/status/1384103629406183427?ref_src=twsrc%5Etfw)
 
 
 
-**播报：【二丫】资料整：【郁金香】【文林】【深寒极至】海报制作：【侬民】剪辑：【Ken】发布：【向阳6768】**
+***发布**：文顾*
 
-摘要：
-
-1
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__02.jpg)
-2
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__03.jpg)
-3
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__04.jpg)
-4
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__05.jpg)
-5
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__06.jpg)
-6
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__07.jpg)
-7
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__08.jpg)
-8
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__09.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/0-3.jpg)
 0
