@@ -1,37 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 布林肯警告中共不要侵犯台湾
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1114313/)
+## 英国将更新法律严惩外国间谍
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1114342/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/T-15.jpg)indianexpress.com
-美国军事新闻网报道，美国国务卿布林肯(Antony Blinken)警告中共不要侵犯台湾，并指责中共政府隐瞒疫情真相加速了中共病毒的传播。
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/S-22.jpg)foreignpolicy.com
+《每日邮报》报道，英国首相将宣布新法案以保护英国不受敌对国家的侵犯。根据新法律，在英国活动的外国间谍将被起诉并驱逐出境。
 
-在接受美国全国广播公司新闻采访时，布林肯对中共在台湾海峡的“侵略行动”引发的紧张局势表示担忧，并表示美国坚持其确保台湾自卫的承诺。
+据《泰晤士报》报道，该法案将要求所有在该国代表外国政府工作的个人必须进行登记，否则将构成刑事犯罪。
 
-布林肯周日在《与媒体见面》(Meet the Press)节目中表示:“任何人试图以武力改变现状，都将是一个严重的错误。”他说，他不会猜测美国可能做出的回应。
+情报机构警告称，根据现行法律，外国间谍不受法律约束，除非他们被抓到获取官方机密。旨在保护英国免受间谍活动侵扰的《官方保密法》(Official Secrets Act)将进行更新，以防止任何企图破坏英国海外利益的人。由于其中一些条款是在1911年制定的，部长们希望对立法进行调整，以便可以用来对付那些实施外国网络攻击的人。
 
-布林肯还表示，他正在与欧洲盟国就俄罗斯在乌克兰边境部署军队的问题进行接触，他说，这是自2014年俄罗斯入侵乌克兰东部以来的最高水平。拜登总统已经明确表示，“如果俄罗斯鲁莽行事或咄咄逼人，就会有代价，也会有后果。”
-
-知情人士说，布林肯本周将返回布鲁塞尔，与北约和欧洲官员举行更多会谈，因为美国对军队的调动越来越担心。美国国防部长奥斯汀(Lloyd Austin)将在布鲁塞尔与北约秘书长斯托尔滕贝格(Jens Stoltenberg)举行会谈。
-
-乌克兰只是拜登和他的政府面临的一系列全球性挑战之一。中共最近对台湾的威胁引起了广泛关注。
-
-布林肯支持白宫关于中共对待维吾尔族是种族灭绝的说法，他说，美国需要考虑将该地区制造的中共国产品拒之门外。同时强调，相比之下，现在讨论抵制明年的北京冬奥会还为时过早。
-
-布林肯重申了美国政府对中共的批评，即中共在去年中共病毒疫情爆发初期未能“提供真正的透明度”。这一失败的一个结果是病毒“失去控制的速度更快”， “产生的结果更加恶劣”。 他强调，“这就是为什么我们需要弄清这件事的真相。”
-
-美国对中共的态度日益明朗，灭白计划和攻击美元体系已经让美国彻底认清中共的脸孔，为维护美国利益，灭共是最好的选择。
+据信，英国的目标是建立与美国《外国代理人登记法》(Foreign Agents Registration Act)类似的登记册，该法案将适用于任何代表外国利益的人。目前大多数罪行是两年刑期，英政府还在考虑是否提高对任何违反该法案的行为的最高刑罚。
 
 参考链接：
 
-
-
-> [Blinken warns China on Taiwan encroachment, Russia on Ukraine](https://americanmilitarynews.com/2021/04/blinken-warns-china-on-taiwan-encroachment-russia-on-ukraine/)
-
-
+[https://www.dailymail.co.uk/news/article-9485427/Foreign-spies-face-prosecution-deportation-new-laws-forcing-people-register-presence.html](https://www.dailymail.co.uk/news/article-9485427/Foreign-spies-face-prosecution-deportation-new-laws-forcing-people-register-presence.html)
 
 0

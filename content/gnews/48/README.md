@@ -1,63 +1,145 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 喀秋莎新闻参考- 2021年4月17日(星期六)
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1113489/)
+## 每日新闻收集【4/17】
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1113546/)
 
-俄罗斯莫斯科喀秋莎农场 土星
+**西班牙巴塞罗那喜悦农场** wenwu
 
-编辑 НастяApfel(娜斯佳)    上传 星河
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片12-5.png)Яндекс
-一、新中国联邦新闻
+【灭共政要】6则推文，如下：
 
-1.“路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=INhM7HcRcRU)、[晚间](https://www.youtube.com/watch?v=gAwDGHDMO5s)）:
 
-Ⅰ. 据英国《每日电讯报》报道，英国皇家海军“伊丽莎白女王”号航母战斗群，首次作战部署期间将进入南中国海航行，但不会穿越台湾海峡，这么做的理由是为了“避免挑衅中共国”。该报称，这艘耗资约30亿英镑的航空母舰，此行不穿越台湾海峡航行的决定引起了英国政界一些人的不满。前保守党党魁伊恩·邓肯·史密斯认为，英国政府和海军“需要重新考虑这一航程”。
 
-Ⅱ. 据台媒报道称，日本亲台团体“日华议员恳谈会”会长古屋圭司，今天在推特上声称，台北的“日本台湾交流协会”入口处升起了日本国旗，以前日本顾忌中共，一直没有悬挂国旗。
+> ⚡️拜登和菅义伟会谈后召开新闻发布会
+> 拜登说，美日有共同价值观，承诺将在东海和南海共同对抗中国
+> 菅义伟重申美日已达成共识共同对抗中国，他还更直接明确地说，将对抗任何武力改变东海和南海现状的企图，对抗任何恐吓他人的行为 [pic.twitter.com/S5Hq6Dtixn](https://t.co/S5Hq6Dtixn)
+> — 嘻禧僖囍 (@xi\_GLB) [April 16, 2021](https://twitter.com/xi_GLB/status/1383206715907186693?ref_src=twsrc%5Etfw)
 
-2. 周六晚间，美国和中共国发表联合声明，确认两国承诺在气候变化问题上进行合作，并”加强”《巴黎气候协定》的实施。
 
-3. 投资银行摩根大通的数据显示，资本流动的趋势、人民币对美元的贬值以及中共国股市的表现不佳，为中共国金融市场带来了不确定的前景。以Nikolaos Panigirtzoglou为首的分析师周三表示，在经过长期的中共国债券和股票的注入之后，最近出现了增长放缓的迹象。这引发了一个关注，即中共国股市是否会出现类似于2015年和2018年的暴跌。
+1. **[喜站推特](https://twitter.com/xi_GLB/status/1383206715907186693?s=20)**：
+*拜登和菅义伟会谈后召开新闻发布会 拜登说，美日有共同价值观，承诺将在东海和南海共同对抗中国 菅义伟重申美日已达成共识共同对抗中国，他还更直接明确地说，将对抗任何武力改变东海和南海现状的企图，对抗任何恐吓他人的行为*
 
-4. 德国媒体近日指出，中共国经济，据称正以创纪录的速度复苏，这是一种错觉。中共正面临严峻的挑战，未来几年将勉强低速增长。今年第一季度，中共价格调整后的国内生产总值（GDP）同比增长18.3％，原因是去年GDP的巨大下滑。 如果我们考虑到这一因素的影响，GDP的变化率与上一季度相比较弱，季节性调整后的增长率为0.6％。 这是自2020年第二季度以来最慢的增长。
 
-5. 知情人士称，在与印度实际控制线（Lac）的边境对峙中，中共军方加紧招募更多藏人，自今年年初以来，在西藏自治区举行了特别招募活动。
+> 这哪里是中美之间 而是一场如下两者的竞争
+> 一方是世界和平秩序 繁荣发展 民主自由 科技进步探索星辰大海
+> 另一方是中共的独裁专制 毒害全球 出尔反尔不讲规则 利用国际组织谋求CCP个体利益 利用气候问题绑架全球 牺牲中国人的低人权优势进行不正当竞争 种族屠杀与反人类 
+> 日本🇯🇵要何去何从
+> 应该挺清楚 [https://t.co/upY3lZAKLp](https://t.co/upY3lZAKLp)
+> — Honey Badger (@baobaoxiaoliao) [April 16, 2021](https://twitter.com/baobaoxiaoliao/status/1383075886539374593?ref_src=twsrc%5Etfw)
 
-6. 天空新闻周五报道，中共国的不明卖家越来越多地使用在线平台，以每批次”50至100人”的规模宣传维吾尔人。
 
-7. 据一位熟悉监管机构想法的消息人士和两位与蚂蚁集团关系密切的人士透露，蚂蚁集团正在探讨让创始人马云剥离其在这家金融科技巨头中的股份并放弃控制权的方案。
+2. **[胡博士转评法广推特](https://twitter.com/baobaoxiaoliao/status/1383075886539374593?s=20)**：
+*这哪里是中美之间 而是一场如下两者的竞争 一方是世界和平秩序 繁荣发展 民主自由 科技进步探索星辰大海 
+另一方是中共的独裁专制 毒害全球 出尔反尔不讲规则 利用国际组织谋求CCP个体利益 利用气候问题绑架全球 牺牲中国人的低人权优势进行不正当竞争 种族屠杀与反人类 
+日本要何去何从 应该挺清楚*
 
-8. 周三，参议院情报委员会的主要立法者告诉美国顶级情报和执法官员，他们的机构应该关注中共威胁美国经济和全球领导地位的各种技术进步上。
 
-9. 去年6月初，卡巴斯基发现了一个先进的网络间谍活动，目标是越南政府和军事部门的实体。有分析认为，这起袭击是由一群与Cyckdek（APT27）有关的威胁行为者实施的。Cyckdek是一个以中文为交流语言的威胁组织，自2013年以来一直很活跃，他们以其复杂和先进的网络攻击方法而闻名。
+> US-Japan: "We underscore the importance of peace & stability across the Taiwan Strait & encourage the peaceful resolution of cross-Strait issues. We share serious concerns about the human rights situations in Hong Kong & Xinjiang Uyghur Autonomous Region."[https://t.co/FM91Mu4h1g](https://t.co/FM91Mu4h1g)
+> — Jerry Dunleavy (@JerryDunleavy) [April 17, 2021](https://twitter.com/JerryDunleavy/status/1383395330205503494?ref_src=twsrc%5Etfw)
 
-10. 由于近年来英国和北京的关系恶化，英中基金发现很难找到投资者。根据下议院标准委员会主席的说法，对大卫·卡梅伦游说的调查，还应该审查该前首相与菲利普·哈蒙德勋爵的一次会晤，因为怀疑他可能利用这一会晤向政府施压，要求政府支持一个利润丰厚的7亿英镑的英中投资基金项目。
 
-11. 中共当局已下令中小学图书馆，清除可能导致崇洋媚外的书籍，以便弘扬爱国主义，教育部的这一举措已于4月1日前后生效。预计小学、中学和高中将集中学习所谓的习思想，国家主席思想，正式称为”习近平新时代中国特色社会主义思想”。
+3. **[司法部记者推特](https://twitter.com/JerryDunleavy/status/1383395330205503494?s=20)**：
+*美日共识：“我们强调台湾海峡两岸和平与稳定的重要性，并鼓励和平解决海峡两岸问题。我们同样严重关切香港和新疆维吾尔自治区的人权状况。”附**[白宫官网原文](https://www.whitehouse.gov/briefing-room/statements-releases/2021/04/16/u-s-japan-joint-leaders-statement-u-s-japan-global-partnership-for-a-new-era/)***
 
-12. 日前，中共国A股公司2020年业绩报告披露进入密集期，海航控股以约600亿元的巨额亏损刷新A股纪录。
 
-13. 苹果供应商、大陆触控模组龙头企业欧菲光，4月16日发布了修正版的2020年业绩预告，预计亏损将高达18.5亿元人民币。此前，欧菲光曾预期净利润8.8亿元，目前，欧菲光已被踢出苹果供应链。
+> 蓬佩奥说大家都知道台湾从来都不是中共国大陆的一部分
+> Pompeo Said that We All Know that Taiwan has Never Been Part of Mainland China [pic.twitter.com/llb6cFt1d8](https://t.co/llb6cFt1d8)
+> — 秘密翻译组 (@G\_Translators6) [April 17, 2021](https://twitter.com/G_Translators6/status/1383389924661944336?ref_src=twsrc%5Etfw)
 
-14. 美国财政部4月16日公布了半年度外汇报告，除了外界关注的汇率操纵国名单、观察名单，同时也向最大的经济竞争对手－中共发出了忠告，政策重点不只要放在出口，也要扩大内需，否则，经济复苏将极其不平衡，增长将无法持续。
 
-15. 上海市政府发展研究中心报告指出，中共军民融合战略扼杀了创意，而国家的主导角色阻碍了效率，使中共国商用航空产业落后于国际竞争者。
+4. **[秘密翻译组推特](https://twitter.com/G_Translators6/status/1383389924661944336?s=20)**：
+*蓬佩奥说大家都知道台湾从来都不是中共国大陆的一部分*
 
-二、世界新闻
 
-1. 美国总统拜登和日本首相菅义伟已同意两国共同投资45亿美元，用于开发被称为6G的下一代通信，即”超5G”。
+> 国家情报局局长办公室发布年度全球威胁评估报告,将中共列为对美国国家安全的头号威胁
+> The ODNI released the annual global threat assessment report and identified CCP as the number one national security threat to the United States [pic.twitter.com/hpbgcKgjqJ](https://t.co/hpbgcKgjqJ)
+> — 秘密翻译组 (@G\_Translators6) [April 17, 2021](https://twitter.com/G_Translators6/status/1383390365181308933?ref_src=twsrc%5Etfw)
 
-2. 中共病毒已经使欧洲的时尚界遭受了数十亿美元的损失，停止了时装秀，并迫使品牌以数字方式展示自己的设计。一些人认为，从1940年代开始的时装周模式将被彻底地改变。其他人则认为，亚洲将趁机提升自己服装品牌的影响力。
 
-3. 在布拉格驱逐了18名俄罗斯大使馆工作人员后，英国外交部长多米尼克·拉布周日表示，英国站在”完全支持”捷克共和国的立场上。
+5. **[秘密翻译组推特](https://twitter.com/G_Translators6/status/1383390365181308933?s=20)**：
+*国家情报局局长办公室发布年度全球威胁评估报告,将中共列为对美国国家安全的头号威胁*
 
-4. 被监禁的俄罗斯反对派领导人阿列克谢·纳瓦尔尼的一名医生说，他已经绝食第三周，健康状况正在迅速恶化，这位克里姆林宫的批评者可能濒临死亡。
 
-5.根据约翰·霍普金斯大学的数据显示，截至周六，全球因中共病毒导致的死亡人数超过了300万人，而确诊病例激增已超过1.4亿人。
+> Donald Trump will join Fox News’ [@seanhannity](https://twitter.com/seanhannity?ref_src=twsrc%5Etfw) on Monday at 9pm/ET for his first on-camera sit down TV interview since leaving office [pic.twitter.com/16l48qmWnM](https://t.co/16l48qmWnM)
+> — TV News HQ (@TVNewsHQ) [April 17, 2021](https://twitter.com/TVNewsHQ/status/1383366129029050368?ref_src=twsrc%5Etfw)
 
-6. 周六，台湾欢迎日本和美国发表的联合声明，肯定了维护台海和平稳定的重要性。外交部发言人欧琼珊说，台湾政府很高兴看到美日两国对印太地区安全的关注。
 
-7. 乌克兰总统周五到访巴黎，法、德首脑一致向乌克兰总统泽连斯基表示了支持，呼吁俄军撤离乌克兰边境，希望在严重动荡的局势下迅速为”缓和局势”做出努力。
+6. **[TVNewsHQ推特](https://twitter.com/TVNewsHQ/status/1383366129029050368?s=20)**：
+*唐纳德·川普将加入福克斯新闻[@seanhannity](https://twitter.com/seanhannity)
+美国东部时间周一晚上9点，他离开办公室后首次在电视上接受电视采访*
+【以毒灭共】6则推文，如下：
 
-0
+
+
+> 生物战的兵工厂正式挂牌公示了。全面病毒战要开始了！ [https://t.co/4aDSNpsqJY](https://t.co/4aDSNpsqJY)
+> — 墨博士 (@4RxMbPD3YbeN1fS) [April 17, 2021](https://twitter.com/4RxMbPD3YbeN1fS/status/1383307759957856257?ref_src=twsrc%5Etfw)
+
+
+1. **[墨博士推文](https://twitter.com/4RxMbPD3YbeN1fS/status/1383307759957856257?s=20)**：
+（*李昂纳多）中共的中华人民共和国科学技术部副部长相里斌近日宣布科学技术部依据生物安全法已经批准建立：3个新的P4实验室 88个新的P3实验室 来应对未来出现的突发传染性疾病 
+评论：中共疯狂建立生物实验室，再次验证文贵先生之前的情报，中共正在计划进行大规模超限生物武器研究，并且将其作为超限战策略
+（墨博士）生物战的兵工厂正式挂牌公示了。全面病毒战要开始了*
+
+
+> Twitter has suspended [@CortesSteve](https://twitter.com/CortesSteve?ref_src=twsrc%5Etfw) for citing a Stanford NIH study about masks. [pic.twitter.com/2y460zkN0Z](https://t.co/2y460zkN0Z)
+> — Raheem Kassam (@RaheemKassam) [April 17, 2021](https://twitter.com/RaheemKassam/status/1383223891028451332?ref_src=twsrc%5Etfw)
+
+
+2. 班农战斗室**[Raheem推特](https://twitter.com/RaheemKassam/status/1383223891028451332?s=20)**：
+*由于引用斯坦福大学美国国立卫生研究院关于口罩的研究，推特已暂停[@CortesSteve](https://twitter.com/CortesSteve)的推特账号。
+网址：[https://t.co/lXyB27cfpD](https://t.co/lXyB27cfpD)*
+
+
+> My analysis of the Chinese Communist Party's dual-use military-civilian R&D program for novel genetically-engineered coronaviruses & heterologous vaccines against multiple strains, roughly follows this development plan, but involves more than one virus & a premature release. [pic.twitter.com/QYkJCJG17S](https://t.co/QYkJCJG17S)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 17, 2021](https://twitter.com/LawrenceSellin/status/1383494654633472007?ref_src=twsrc%5Etfw)
+
+
+3. **[塞林博士推特](https://twitter.com/LawrenceSellin/status/1383494654633472007?s=20)**：
+*我对中共军民融合的新型基因工程冠状病毒和多株异源疫苗研发计划的分析，大致是按照中共研发计划进行的，但涉及的病毒不止一种，并过早释放。。附英国农场郭文贵先生爆料“13579”计划文宣图。*
+
+
+> A heterologous vaccine is one the protects against more than one strain of a virus. Live attenuated are "live" but altered viruses that are not pathogenic. Combination attenuation is alteration of the virus in more the one site to prevent reversion back to its pathogenic state. [https://t.co/uSpATRmuoE](https://t.co/uSpATRmuoE)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 17, 2021](https://twitter.com/LawrenceSellin/status/1383490000780623873?ref_src=twsrc%5Etfw)
+
+
+4. **[塞林博士推特](https://twitter.com/LawrenceSellin/status/1383490000780623873?s=20)**：
+*（KITE LEE）塞林博士，你能稍微解释一下病毒疫苗吗？疫苗是不是病毒的包装？
+（塞林博士）异源疫苗是指一种能防止一种以上的病毒株的疫苗。活体减毒是指 “活的 “但经过改变的病毒，不具有致病性。联合减毒是指改变病毒的一个以上部位，以防止其恢复到致病状态*
+
+
+> Detailed analysis of the Chinese Communist Party's research network reveals that [#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw) likely arose from a dual-use military-civilian R&D program to create multiple genetically-engineered novel coronaviruses and combination attenuation live attenuated heterologous vaccines. [pic.twitter.com/CZNiSWFkfO](https://t.co/CZNiSWFkfO)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 17, 2021](https://twitter.com/LawrenceSellin/status/1383467378915217416?ref_src=twsrc%5Etfw)
+
+
+5. **[塞林博士推特](https://twitter.com/LawrenceSellin/status/1383467378915217416?s=20)**：
+*中共科研网的详细分析显示，#COVIDー19很可能产生于一个军民融合的中共研发计划，即制造多种基因工程新型冠状病毒和联合活体减毒异源疫苗。*
+*附新中国联邦文宣——新冠肺炎=中共病毒*
+
+
+> 20201029日本筑波大學名譽教授板野肯三1/4
+> 這一段是講石正麗論文描述了些什麼，我就不勾重點了，重點第二段才開始
+> 其實CCP找不出人來反駁閆博士的論文很正常，因為就連閆博士引用的這些論文，石正麗都反駁不了更別說CCP這豬邏輯的腦子看不看得懂了
+> 請大家去原視頻↓點讚🙏[https://t.co/PLhR1rYmMt](https://t.co/PLhR1rYmMt) [https://t.co/MAS6tYDel9](https://t.co/MAS6tYDel9) [pic.twitter.com/TrWK1YDcmn](https://t.co/TrWK1YDcmn)
+> — Andy5 (@andy5\_123) [April 17, 2021](https://twitter.com/andy5_123/status/1383343480139780098?ref_src=twsrc%5Etfw)
+
+
+6. **[Andy5推特](https://twitter.com/andy5_123/status/1383343480139780098?s=20)**：
+***[（援引日媒解释闫报告）](https://www.youtube.com/watch?v=r_0M5e_ZANY&amp;feature=youtu.be)**
+（一）2020/10/29日本筑波大学名誉教授板野肯三
+这一段是讲石正丽论文描述了些什麼，我就不勾重点了，重点第二段才开始
+其实CCP找不出人来反驳闫博士的论文很正常，因为就连闫博士引用的这些论文，石正丽都反驳不了更别说CCP这猪逻辑的脑子看不看得懂了
+（二）1.RaTG-13是在石正丽论文中突然登场的名称 
+2.闫博士论文的引用里就有好几篇是质疑RaTG-13的 
+3.文献一：相似度96.3%听上去很高，但差了1100多个核苷酸，自然进化一年也就只能改变36个⋯所以至少需要30年才能变异成现在的病毒
+4.石正丽最近有再测序4991吗？
+（三）5.文献二：既然4991跟RaTG-13一致，那么RaTG-13的存在本身就够怪的
+6.为什么不公开血液样本让却世界的科学家进行全基因组测序？
+7.文献三：也有说改名不存在恶意的
+8.文献四：石正丽回答RaTG-13是怎么回事是她作为科学家的底线
+9.团队研究中通讯作者才是老大
+（四）10.石正丽这篇论文为什么不提4991？
+11.病毒如果来自於2010-20年的云南矿洞，根据“3.”来说，当时一定也有感染性，这么重要的点为什么不提？（我更想问当时怎么没有爆发）
+12.文献四的作者希望武汉研究所公布当时研究4991的资料*
+
+
++1
