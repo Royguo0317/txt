@@ -1,37 +1,86 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在美孔子学院或被取缔 议员们呼吁扩大美台教育方案
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1116352/)
+## 《路德时评》重磅解读Sellin贴出江家三代照片用意，及英将实行“敌对国”新法案
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1116379/)
 
-【日本东京方舟农场】作者：知心姐姐；校正：小油鍋
+直播视频：
 
-近日，拜登政府派遣气候保护特使约翰·克里访华，又组织访问团出访台湾，与此同时日本首相菅义伟访美。三个访问几乎同时发生，具体的意图也让各界人士给予了不同的解读。综其所现，一切行动目的就是遏制中共的霸权，稳定区域局势。然而回看美国本土，则是另一场灭共的运动正在如火如荼进行——取缔各地孔子学院。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/51FFEB60-8F86-42DB-A9F0-162DF7804FBB.jpeg)
 
-结合4月6日福克斯新闻报道的“共和党议员敦促遏制美国高校的孔子学院”，文中提出的替代方案是由台湾教授中文。可以感到美国在灭共的问题上，两党已经基本达成一致，并已经各自为营有所行动。
+《路德时评》2021年4月19日早间节目主要内容：
 
-关于孔子学院成立的时间，自2004年至今，约有十七年的时间。而谈及孔子学院的筹划方案，则要归咎于2002年由中共教育部成立的国家对外汉语教学领导办公室（简称国家汉办），其前身可以追溯到1987年中共成立的国家对外汉语教学领导小组。由此可见，这是中国改革开放的衍生品，同时也是近十七年来中共企图称霸世界的重要途径之一。
+一、Sellin博士贴出江家三代照片
 
-就统计数据来看，截止到2019年底，中共已经在162个国家（地区）建立了550所孔子学院，1172个中小学孔子课堂。全球注册学员210万，中外兼职教师达4.6万人。在2017年孔子学院的年度报告中列出年度预算高达22亿人民币（约合3亿多美元），请注意！这些钱都是中国百姓的血汗钱！
+Sellin博士4月19日再发重磅推特：在新冠疫情大流行的病毒实验室起源中，中共国的政治商业关系和竞争如何发挥作用？
 
-事实上，伴随着快速扩张的孔子学院背后的质疑声从未间断，例如：1、2009年芝加哥大学设立孔子学院时，遭遇过174名教授联名反对，理由是担心大学的学术自由会受到有中共背景的孔子学院影响；2、美国华盛顿智库“2049计划研究所”，在2013年10月公布的一份报告中指出，孔子学院在传授汉语的同时，还在灌输有利于中国的意识形态，借此影响对中国的评价；3、2020年9月美国国务卿麦克·蓬佩奥表示，他认为美国大学校园内的孔子学院有望在2020年年底前全部关闭。“大家都逐渐理解孔子学院所带来的风险”在一次接受福克斯电视采访时，蓬佩奥如是说。
 
-截止到2021年2月17日，美国已关闭64家孔子学院，但还有55所孔子学院在运营，其中八所会在未来几个月内关闭（美国全国学者联合会数据）。
 
-面对孔子学院入侵后带来的创伤，加州众议员米歇尔·斯蒂尔和田纳西州参议员玛莎·布莱克本目前正在努力扩展新的美国—台湾教育计划，以期希望可以替代孔子学院。另外，两位议员已经就此计划致信美国教育部。
+> How does China's political-business component and rivalries play into the laboratory origin of the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) pandemic?
+> (hat tip to Yaacov Apelbaum)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#corona](https://twitter.com/hashtag/corona?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/KxFNJzB0ZF](https://t.co/KxFNJzB0ZF)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 19, 2021](https://twitter.com/LawrenceSellin/status/1384033118198272000?ref_src=twsrc%5Etfw)
 
-布莱克本参议员正在推动一个名为《孔子学院透明度法案》，此法案已获得十九位议员的支持。布莱克本说：“孔子学院使共产主义中国可以利用美国高校的学生，我们不能让学生被修正主义者的历史洗脑。”另一位明星参议员泰德·克鲁兹说：“中共从事宣传和审查制度，以控制美国人对中国的了解。中共是美国面临的最大地缘政治威胁，我支持布莱克本，以确保中共对高校的不利影响和针对美国高等教育的广泛间谍活动负责。”
 
-在合作的大学里，孔子学院控制着有关中共的敏感话题，主导着许多不可逾越的“红线”，比如六四天安门事件、西藏新疆问题、台湾香港问题等。而对于这类学术议题的干涉，孔子学院的行为显然已经破坏了自由世界的言论自由。
 
-在严格的审查下，中共试图通过改变控制权，即从中共教育部转移到中国国际教育基金会（非盈利机构）的方式，重塑孔子学院品牌。但此举已是于事无补。事实上，美国的政界已经开始觉醒。无论以何种学院的名义加以掩饰，都无法躲过民意的火眼晶晶。
+路德社评论：
 
-中共前领导人赵紫阳的秘书鲍彤曾一语中的：孔子学院与孔夫子无关，现在遍及全球的孔子学院，都是糟蹋这位先哲及其学说的屠宰场，因为他们全姓“共”，不姓“孔”！
+1、Sellin在推特中贴出了一个关系图，其中涉及江泽民、江泽民之子江绵恒、江泽民之孙江志成和前任卫生部长兼红十字会主席陈竺，还有复星医药和药明康德，以及武毒所的袁志明和石正丽。陈竺与前中科院副院长江绵恒共同发起建设P4实验室，武毒所在2020年1月21日申请了瑞德西韦在中共国的专利，最后被江志成控股的复星医药成功获得药品专利。
 
-显而易见，孔子学院在美国的发展已是穷途末路；其他国家也必然会延循美国的后尘，截断这个学术界的毒瘤。加之未来世界各国对中共病毒的追责，整个国际局势对孔子学院愈加不利，而它的失败正预示着中共的彻底覆灭。
+2、这份图非常简练且详细地将参与中共病毒研发的最高层领导和部门紧密地联系起来，由此可以看出，中共病毒实验室计划是一项长期且有预谋的计划。从这张图可以非常清楚地看到，P4实验室以及国内多个病毒研究所背后的大佬是江家，瑞德西韦也是由江家控制。
 
-注：本文仅代表作者观点
+3、江泽民安排其儿子江绵恒主管中科院，就是为掌控科学界的话语权，江泽民非常熟悉美国的游戏规则，并将这套规则搬到了中共国内，即使江泽民下台，江家依然能够拥有科学界的话语权，掌握中共国的命脉，为可能发生的党内斗争做准备。
 
-0
+4、Sellin博士又发重磅推特：以下几张照片有助于了解政治、资金和流行病的情况。
+
+
+
+> Or does this help to potentially complete the picture of politics, profits and pandemics?[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#corona](https://twitter.com/hashtag/corona?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/pt4n7lPgXV](https://t.co/pt4n7lPgXV)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 19, 2021](https://twitter.com/LawrenceSellin/status/1384092210983968775?ref_src=twsrc%5Etfw)
+
+
+
+5、虽然Sellin博士发表的这两条推特表面上和习神没有关系，但事实并非如此，习神统治下的中共政府指挥着病毒的防御、信息发布，以及投放等各种运作，习神就是中共政府的法人代表。
+
+6、武汉病毒实验室的立项和建设由江家全面主导，与习关系不大，但是将病毒投放到全世界则是习神下的命令。爆料革命路德社此前透露，中共病毒疫情大爆发分两步走，第一步是小范围内的爆发，第二步就是采取主动进攻的方式将病毒投放到全世界。武汉病毒实验室面上打着病毒研究和疫苗开发的名义，实质上是中共军方一直在主导进行着超限生物武器开发，习最终决定向美国发起超限生物战，这就是文贵先生爆料的“13579”计划。
+
+7、Sellin绘制的这张图涉及江派势力，中共的资深病毒专家中有江派势力，江习斗争已经到达关键点，江派的病毒专家未来很有可能会站出来揭发习。如果江家不推出习神为病毒疫情背锅，那美国完全可以此为由冻结江家在海外的资产，可见美国军情部门获得情报的能力远超出常人想象。
+
+8、《FISA法案》赋予执法部门权力可对外国代理人进行全方位监控，监控的所有信息可在FISA法庭上作证，美国政府当年制裁华为就是通过FISA法庭判决执行的，所以中共家族利用幕后黑手的方式在美国完全行不通。
+
+9、纳瓦罗在三月底公开赞扬闫博士的报告非常出色，并且认定中共病毒就来自武毒所，他一方面经过长期的调查认可闫博士报告的内容准确无误，另一方面也是代表川普总统认定闫博士，因为闫博士的三份报告绝对经得起历史的考验。
+
+二、英首相将宣布针对“敌对国”新法案
+
+据英国《泰晤士报》19日报道，英国首相约翰逊将在5月11日宣布一项旨在针对“敌对国家”的新法案。报道称，“敌对国家”包括中共国和俄罗斯。根据该新法案，在英国活动的外国间谍将面临起诉和被驱逐出境，以保护英国不受中共国和俄罗斯等“敌对国家”的攻击。新法案将要求所有代表外国政府工作的在英人员进行登记注册，否则将被视为犯罪[\[1\]](https://www.163.com/dy/article/G7V7QK480514R9OJ.html)。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/代理人.jpg)[图片地址](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0419%2Fadef9b47p00qrsxth003qc001nm00q0g.png&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
+路德社评论：
+
+1、英国政府这么做就是针对中共国和俄罗斯，只要外国代理人在英国进行登记后，英国就可依法对其进行全面监控，如果不进行登记，那英国可依法对这些外国代理人进行抓捕。
+
+2、该法案实行后，在英国的中共国党员、官员和间谍都必须进行登记，否则就有被抓捕判刑的风险，因为英国已经把中共国认定为敌对国家，接下来，其他英联邦国家都将跟进推行这项法律。
+
+三、荷兰秘密报告揭露华为窃听
+
+荷兰『国民日报』17日报道称，根据一份2010年完成但一直秘而不宣的调查报告，华为集团获取了荷兰皇家电信移动网络的所有信息，包括2002-2010年间担任荷兰总理的巴尔克嫩德的电话通话内容，以及其他内阁成员与人通话的内容。这份报告的结论是，由于信息遭窃，荷兰皇家电信移动的生存那时可能“遭到严重威胁”，荷兰皇家电信移动当时拥有650万客户[\[2\]](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210418-%E8%8D%B7%E5%85%B0%E7%A7%98%E5%AF%86%E6%8A%A5%E5%91%8A%E6%8C%87%E5%8D%8E%E4%B8%BA%E6%88%96%E7%AA%83%E5%90%AC%E6%80%BB%E7%90%86%E9%80%9A%E8%AF%9D%E7%9B%97%E5%8F%96%E5%AE%A2%E6%88%B7%E6%95%B0%E6%8D%AE)。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/华为-1.jpg)[图片地址](https://s.rfi.fr/media/display/c2121b62-a09d-11eb-b7fc-005056bf87d6/w:980/p:16x9/AP21090221240589.webp)
+路德社评论：
+
+1、这是发生在2010年的事，时隔十年才被披露出来，中共这几十年在海外的假骗偷行为早已被西方国家掌握，未来将有越来越多国家站出来揭露中共利用军民融合项目进行海外扩张。
+
+2、西方国家的经济体制始终对外开放，允许他国企业参与竞争，但是要先签署协议，华为进入后的种种犯罪行为早已经被调查部门掌握，反观日本企业，它们就是因为恪守契约精神，脚踏实地地进行科研才有今天的成就，而中共体系下的企业所使用的手段非常Low，只要作恶，早晚会为此付出代价。我们宁要阳光下的瑕疵，也不要阴暗下的完美。
+
+3、美国定海神针力量之所以要对中共动手有几个重要原因：第一，中共几十年从中国老百姓手中搜刮了无数资产，现在集中在少数几个家族手中；第二，中共几大家族聚拢的财富足够赔偿西方国家的损失；第三，西方民意也开始意识到灭共的重要性。
+
+[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+
+参考文章：
+
+[1][https://www.163.com/dy/article/G7V7QK480514R9OJ.html](https://www.163.com/dy/article/G7V7QK480514R9OJ.html)
+
+[2][https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210418-%E8%8D%B7%E5%85%B0%E7%A7%98%E5%AF%86%E6%8A%A5%E5%91%8A%E6%8C%87%E5%8D%8E%E4%B8%BA%E6%88%96%E7%AA%83%E5%90%AC%E6%80%BB%E7%90%86%E9%80%9A%E8%AF%9D%E7%9B%97%E5%8F%96%E5%AE%A2%E6%88%B7%E6%95%B0%E6%8D%AE](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210418-%E8%8D%B7%E5%85%B0%E7%A7%98%E5%AF%86%E6%8A%A5%E5%91%8A%E6%8C%87%E5%8D%8E%E4%B8%BA%E6%88%96%E7%AA%83%E5%90%AC%E6%80%BB%E7%90%86%E9%80%9A%E8%AF%9D%E7%9B%97%E5%8F%96%E5%AE%A2%E6%88%B7%E6%95%B0%E6%8D%AE)
+
+文章撰写：【小虫】  校对：【无花果】
+
+本文仅代表作者个人观点
+
++1

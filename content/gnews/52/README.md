@@ -1,11 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭文贵发现傅政华用完自己想再灭口，于是走上了爆料的道路
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1116111/)
+## 路简2021.4.18晚：布林肯称 从阿富汗撤军就是集中火力应对中共威胁
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1116118/)
 
-4/19/2017 郭文贵：傅政华绑架了郭文贵的家人及员工逼迫郭文贵查王歧山、孟建柱的资料；郭文贵完成调查任务后，傅政华却违背承诺继续更加疯狂地虐待郭文贵的家人及员工；郭文贵发现他们确实是想灭了自己一家人，于是走上了爆料的道路。
+**编辑：华盛顿DC农场 路德简报项目组**
 
-By： 【秘密翻译组 G-Translators】
+1、布林肯： 从阿富汗撤军就是集中火力应对中共威胁
+
+2、日本首相菅义伟访美 向曾经与日作战的美国勇士敬献花圈
+
+3、中共心虚：发动宣传机器唱衰美日联盟
+![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/20120418-2_01-1024x422.jpg)
+- ![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/20120418-2_02-348x1024.jpg)
+- ![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/20120418-2_03-348x1024.jpg)
+
+![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/20120417-2_04-1024x120.jpg)
+
+
+> 2021 年 4月18日 路德时评 晚
+> 
+> 1. 布林肯： 从阿富汗撤军就是集中火力应对中共威胁
+> 
+> 2.日本首相菅义伟访美 向曾经与日作战的美国勇士敬献花圈 
+> 
+> 3. 中共心虚：发动宣传机器唱衰美日联盟 [pic.twitter.com/D7QwgCr0a3](https://t.co/D7QwgCr0a3)
+> — 平民爆料 (@WM18320321) [April 19, 2021](https://twitter.com/WM18320321/status/1384103629406183427?ref_src=twsrc%5Etfw)
+
+
+
+***发布**：文顾*
 
 0

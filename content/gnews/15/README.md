@@ -1,108 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CNN主持人“反水” 支持中共病毒来自武汉实验室
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1116852/)
+## 达扎克的生态健康联盟再次获得纾困金
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1116875/)
 
-新闻来源：每日邮报| 作者：Keith Griffith| 发布时间：2021年4月13日
+新闻来源：《Daily Caller》| 作者：Dylan Housman | 发布时间：2021年4月16日
 
-翻译/简评：新街口| 校对：感恩| 审核：万人往 | Page：小六月
+翻译/简评：Claire | 校对：Beicy-数学老师 | 审核：万人往 | Page：我是球大哥
 
-[!\[\]()!\[\](https://spark.adobe.com/page/a4Owj2uCXFY1k/images/3b270370-09bb-4574-9184-2c4c7522a013.jpg?asset_id=58d90545-4116-48a4-8387-8d0aac87ed52&amp;img_etag=%22f922d0c00bdde1ffa64755e76b728f83%22&amp;size=1024)](https://spark.adobe.com/page/a4Owj2uCXFY1k/images/3b270370-09bb-4574-9184-2c4c7522a013.jpg?asset_id=58d90545-4116-48a4-8387-8d0aac87ed52&amp;img_etag=%22f922d0c00bdde1ffa64755e76b728f83%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/8guFNqk4zcL8b/images/21aea40b-1af9-4cd8-8b39-028798b514dd.jpg?asset_id=657e455b-bbad-484e-baaa-a64fe765e8d4&amp;img_etag=%2221c5079191ca1b2c906e9595b2d5d778%22&amp;size=1024)](https://spark.adobe.com/page/8guFNqk4zcL8b/images/21aea40b-1af9-4cd8-8b39-028798b514dd.jpg?asset_id=657e455b-bbad-484e-baaa-a64fe765e8d4&amp;img_etag=%2221c5079191ca1b2c906e9595b2d5d778%22&amp;size=1024)
 
 **简评：**
 
-古普塔博士不仅是一位知名的神经外科医生，而且2001年就加入CNN主持节目，成为了CNN首席医学记者。古普塔的医生背景和他在CNN超过20年的媒体经验，无疑使他成为CNN在中共病毒问题上最有发言权、也是最有影响力的人士。
+非营利组织生态健康联盟被挖出资助武汉病毒研究所进行冠状病毒的功能增强研究，其负责人彼得·达扎克与中共常年合作，共同研究了数百种来自蝙蝠身上的病毒。而生态健康联盟在2021年却再次获得政府的纾困金。
 
-前美国国家疾病控制中心（CDC）主任雷德菲尔德上个月在古普塔博士的访谈节目中提出了病毒是从武汉病毒研究所泄露的观点，那次采访让病毒起源问题引起了整个社会的巨大的关注。但他的观点随即受到CNN评论员们和福奇的攻击，并且热度逐渐减弱。
+作为一名身兼要职的美国科学家，达扎克表现出的亲共行为不得不让人怀疑他是否已被中共“蓝金黄”。由于去中共国开展新冠病毒溯源研究直接粉碎了“病毒是来自武汉实验室”的假说，世界卫生组织赴华专家组的专家们被西方媒体群起而攻之。澳大利亚新闻主播在其节目中声称，世界卫生组织专家组关于新冠病毒起源报告的公正性正受到质疑，因为专家组与中共有着不清不楚的关系。
 
-这次古普塔接受了另外一家媒体Mediaite的采访，并且就病毒起源问题对东家CNN反戈一击，公开支持中共病毒武汉实验室泄露的主张，无疑把武汉病毒实验室和中共病毒起源问题又推到了一个更高的新闻舆论浪尖上。
-
-《每日邮报》的这篇文章不仅详细地介绍了古普塔如何以一个医生和媒体人的知识和背景来理解、接受并支持雷德菲尔德的实验室泄露观点，还补充介绍了中共拒绝向世卫调查组提供重要的原始数据，并且限制调查组的行动；以及前国务卿彭佩奧披露的武汉病毒研究所为中共军方秘密进行蝙蝠冠状病毒“功能增强”的动物实验，并且2019年秋季有工作人员得了与新冠症状一致的疾病等等一系列事件。为读者对武汉病毒研究所和病毒起源的关联展示了一个较为完整的逻辑推理证据链。
-
-古普塔博士这次公开挑战自己的东家，支持中共病毒起源于武汉病毒研究所的反水事件，在本质上也揭示了病毒起源问题是美国两党、各大媒体和全社会都无法回避的，也是必须要查清的问题。随着美国政府和各界对病毒起源调查的深入，中共制造、散播病毒的罪行一定会被揭露，对中共的追剿也必将如期而至。
+作为爆料革命的一员，我们都知道这是中共的把戏，为了掩盖真相，誓把“蓝金黄”进行到底。然而，闫博士冒着生命危险一次又一次地证明了新冠病毒是来自武汉实验室。闫博士表示，病毒的真相与政治无关，而关乎人类存亡。很多与中共勾结的专家及各国政要掩盖病毒真相的证据也被正义力量挖出。中共承认发起生物战只是时间问题。
 
 **原文翻译：**
 
-## **CNN（主持人）桑杰·古普塔“反水”，支持中共病毒武汉实验室起源理论**
+## **资助武汉实验室的非营利组织2021年再次获得纳税人的救助**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/a4Owj2uCXFY1k/images/89bd1dca-1e57-4d58-8214-394049e092c4.png?asset_id=0e49c3b3-7316-4fbb-a08f-3a364a6858b2&amp;img_etag=%22ff33834179837df4bbc4ceb9bd1ae1d5%22&amp;size=1024)](https://spark.adobe.com/page/a4Owj2uCXFY1k/images/89bd1dca-1e57-4d58-8214-394049e092c4.png?asset_id=0e49c3b3-7316-4fbb-a08f-3a364a6858b2&amp;img_etag=%22ff33834179837df4bbc4ceb9bd1ae1d5%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/8guFNqk4zcL8b/images/3b8f20f9-0b25-484b-bbf0-f7455f2c4b6a.jpg?asset_id=a887aa90-550a-4afd-aad4-1e17445fedde&amp;img_etag=%22e625adfba3a9cc7f74dbf7aff213cd04%22&amp;size=1024)](https://spark.adobe.com/page/8guFNqk4zcL8b/images/3b8f20f9-0b25-484b-bbf0-f7455f2c4b6a.jpg?asset_id=a887aa90-550a-4afd-aad4-1e17445fedde&amp;img_etag=%22e625adfba3a9cc7f74dbf7aff213cd04%22&amp;size=1024)(照片由HECTOR RETAMAL拍摄/法新社，盖蒂图片).
 
-CNN（美国有线电视新闻网）首席医学记者桑杰·古普塔(SanjayGupta)博士对东家倒戈，公开发表言论支持前CDC（美国疾病控制与预防中心）主任罗伯特·雷德菲尔德（Robert Redfield）博士的观点，后者认为导致新冠肺炎的病毒很可能是从武汉的一个实验室意外泄露出来的。
+非营利性的生态健康联盟（EcoHealth Alliance）把美国国立卫生研究院（National Institutes of Health）数百万美元的拨款给了武汉病毒研究所（Wuhan of Virology），并于2021年2月获得了纳税人的救助。
 
-上个月，雷德菲尔德在CNN专题节目中接受了古普塔的采访，他说他相信武汉病毒研究所的一次事故是新型冠状病毒大流行“最可能”的原因。
+这是自新冠肺炎大流行以来，生态健康联盟收到的第二笔纾困金。根据监管机构Whitecoat Waste的最新报道，在2020年5月获得$738861美元的纾困金后，生态健康联盟今年2月又获得了$719570美元的纾困金。
 
-雷德菲尔德的观点受到了CNN评论员们的嘲笑，CNN在一条推文中坚持认为实验室泄露理论“缺乏明确的证据”，但古普塔在周四发表的一次采访中支持了雷德菲尔德的观点。
+纾困金是川普政府和拜登政府共同通过的新冠肺炎救济计划的一部分。
 
-古普塔在Mediaite的The Interview节目中告诉听众，雷德菲尔德是一位经验丰富的病毒学家，他当时还担任CDC的负责人，这意味着除了我们知道的一切之外，他还可以查阅来自中共国的原始数据和原始情报。
+生态健康联盟的负责人彼得·达扎克（Peter Daszak）是由中共国领导的世界卫生组织（World Health Organization）团队中唯一派遣到中共国寻找新冠肺炎起源的美国成员。达扎克过去曾从事基于蝙蝠的冠状病毒功能增强的研究，有人推测这可能在病毒从实验室泄漏而引发大流行中发挥了作用。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/a4Owj2uCXFY1k/images/bfac62c6-b066-495b-b5df-d55eeb4f21a6.png?asset_id=785a7867-6df5-49f9-84df-47aa09358209&amp;img_etag=%222c267c6ee36adb94c8e594e5194ab0f5%22&amp;size=1024)](https://spark.adobe.com/page/a4Owj2uCXFY1k/images/bfac62c6-b066-495b-b5df-d55eeb4f21a6.png?asset_id=785a7867-6df5-49f9-84df-47aa09358209&amp;img_etag=%222c267c6ee36adb94c8e594e5194ab0f5%22&amp;size=1024)CNN首席医学记者桑杰·古普塔博士现在说，他发现雷德菲尔德博士关于新冠肺炎实验室泄露起源的理论是“合理的”和“最可能的”一种情况。
+3月提起的诉讼称生态健康联盟因没有公布纳税人的资金而违反了联邦法律。至于达扎克，在2021年早些时候被揭发，他隐瞒了自己参与组织“亲中共、反对实验室泄漏理论”的声明。
 
-古普塔说：“我的意思是，他的建议比其它任何有病毒学专业知识的人的建议都有价值的多，因为他知道的许多知识和信息也许他不能分享，但是他正在传达他的观点。”
+[!\[\]()!\[\](https://spark.adobe.com/page/8guFNqk4zcL8b/images/96701a88-a035-459c-8d70-561d25894f03.png?asset_id=7aa4bedf-392a-4cbe-b9e3-4fb94c44401e&amp;img_etag=%22b14dd69a711ab02cb17877740e5487f0%22&amp;size=2846)](https://spark.adobe.com/page/8guFNqk4zcL8b/images/96701a88-a035-459c-8d70-561d25894f03.png?asset_id=7aa4bedf-392a-4cbe-b9e3-4fb94c44401e&amp;img_etag=%22b14dd69a711ab02cb17877740e5487f0%22&amp;size=1024)
 
-古普塔表示：“他说出来这件事比他所讲的更让我感到震惊。有理由怀疑这就是病毒的起源。”
+[!\[\]()!\[\](https://spark.adobe.com/page/8guFNqk4zcL8b/images/f1e79557-1c05-4596-aad0-03daf4e0f411.png?asset_id=3fdd4142-067c-46fe-bc63-50f89de6b0a8&amp;img_etag=%22f9fc5499cb4bf362a23aa32af37a648b%22&amp;size=2609)](https://spark.adobe.com/page/8guFNqk4zcL8b/images/f1e79557-1c05-4596-aad0-03daf4e0f411.png?asset_id=3fdd4142-067c-46fe-bc63-50f89de6b0a8&amp;img_etag=%22f9fc5499cb4bf362a23aa32af37a648b%22&amp;size=1024)
 
-“这是位于武汉的一个大型病毒实验室，当时那里恰好正在研究蝙蝠冠状病毒。仅从简约法则的角度来看，寻找最简单的解释总是具有意义，”他说，并补充到，“我们目前仍然不能确定来源是什么。”
+就在新冠肺炎大流行爆发的前几周，达扎克公开讨论了在实验室环境中操纵基于蝙蝠的病毒有多么容易，并详细介绍了他之前在该项目上的工作。作为世界卫生组织调查小组的成员，达扎克说服了其他调查成员，称武汉病毒研究所大量缺失的数据与他们寻找新冠肺炎的来源无关。
 
-中共国疯狂地否认新型冠状病毒是从实验室泄露的，而是将责任归咎于武汉的“海鲜市场”，那里的活体动物可能会将这种病毒传播给人类。
+由于其曾帮助将美国的纾困金转移到武汉病毒研究所的行为，生态健康联盟一直是实验室泄漏假说的关键部分。该假说认为新冠肺炎在被操纵以进行病毒功能增强的研究后，由实验室事故而泄漏的。
 
-古普塔在接受Mediaite采访时指出，目前没有确凿的证据可以证明海鲜市场是起源，并且质疑这种理论的可能性。
+世界卫生组织在月初声称，实验室泄漏理论应该可以排除，然而越来越多的政府官员和媒体人士都表示对实验泄漏理论很在意，因为这可能解释了大流行是如何发生的。
 
-雷德菲尔德上个月因古普塔对他进行的爆炸性采访登上了头条新闻，他说：“我认为，我仍然认为武汉这种病原体最可能的起源是从实验室……泄露的。其他人不相信，无所谓。科学最终将找到答案。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/a4Owj2uCXFY1k/images/b7d974f3-c22e-40d8-a896-0c2ee7708f24.png?asset_id=8197fef8-e574-45f7-859f-9b1c26e5b152&amp;img_etag=%226902d60c0da6b6ce678d26882fa529f5%22&amp;size=1024)](https://spark.adobe.com/page/a4Owj2uCXFY1k/images/b7d974f3-c22e-40d8-a896-0c2ee7708f24.png?asset_id=8197fef8-e574-45f7-859f-9b1c26e5b152&amp;img_etag=%226902d60c0da6b6ce678d26882fa529f5%22&amp;size=1024)据《每日邮报》报道，中共国坚称该病毒是在海鲜市场中从动物传染给人类的，但雷德菲尔德认为，最有可能的起源是武汉病毒研究所的意外泄露。
-
-“实验室中的工作人员被他们研究的呼吸道病原体感染的情况并不罕见。”他说。
-
-“这不是故意带风向。这是我的观点，对不对？但我是个病毒学家，我一生都致力于病毒学。”
-
-安东尼·福奇（Anthony Fauci）博士立即向雷德菲尔德的理论泼冷水，坚持认为如果该病毒已经在实验室中接触了人类细胞，它的传播速度将会更快。
-
-但是病毒的传播速度恰恰是雷德菲尔德引用的证据来支持他的观点。
-
-世界卫生组织（WHO）领导的调查小组于上月末发布了报告，称实验室泄漏是“极不可能”导致大流行的原因，但世卫组织总干事谭德塞承认，中共国拒绝给该小组提供重要的数据。
-
-美国、欧盟和其他西方国家都呼吁中共国给予独立专家“完全访问权”，以获取有关2019年底最初疫情爆发的所有数据。
-
-该小组的一名调查人员已经表示，中共国拒绝向世卫组织调查小组提供有关早期新冠肺炎病例的原始数据，这可能会使了解全球大流行是如何开始的工作复杂化。
-
-中共国外交部发言人华春莹坚持认为，世卫组织团队被允许完全访问武汉实验室（的数据），并称该国的批评者“不道德”。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/a4Owj2uCXFY1k/images/7f8ee8ef-47d2-43f8-9b5c-e2a8ecfc042f.png?asset_id=60036a29-9e5d-4b67-b6cd-71a4ab963296&amp;img_etag=%2295e8b26aee27c74a6a49cbd39b52bc75%22&amp;size=1024)](https://spark.adobe.com/page/a4Owj2uCXFY1k/images/7f8ee8ef-47d2-43f8-9b5c-e2a8ecfc042f.png?asset_id=60036a29-9e5d-4b67-b6cd-71a4ab963296&amp;img_etag=%2295e8b26aee27c74a6a49cbd39b52bc75%22&amp;size=1024)川普总统和罗伯特·雷德菲尔德的合影留念：雷德菲尔德被川普总统任命为疾病预防控制中心主任 © 由《每日邮报》提供
-
-[!\[\]()!\[\](https://spark.adobe.com/page/a4Owj2uCXFY1k/images/119fdc91-eb44-4864-9558-edbb9c578d82.png?asset_id=b1d15093-ea3a-47c5-8911-3c0766de611b&amp;img_etag=%220ae507db53751cb5dcfd78a0bc7a11e2%22&amp;size=1024)](https://spark.adobe.com/page/a4Owj2uCXFY1k/images/119fdc91-eb44-4864-9558-edbb9c578d82.png?asset_id=b1d15093-ea3a-47c5-8911-3c0766de611b&amp;img_etag=%220ae507db53751cb5dcfd78a0bc7a11e2%22&amp;size=1024)世卫组织抨击中共国没有让调查人员完全访问武汉实验室的数据，这一指控被中共国否认，并称为“不道德”。
-
-自大流行爆发以来，已有56.2万多名美国人死于新冠肺炎，全国范围内已确诊的病例超过3100万。
-
-今年1月，时任国务卿迈克·彭佩奥呼吁世卫组织全面调查新冠病毒从武汉实验室意外泄露的可能性，因为他透露了新情报，并称该情报引发了令人困扰的问题。
-
-彭佩奥说：“中共国今天继续封锁科学家们需要的重要信息，（这些信息）保护人类免受这种致命病毒和新一轮病毒伤害。”
-
-他引用的美国新情报中的一项说法，称该实验室有研究人员于2019年秋季患病，症状与新冠肺炎一致，那里的科学家正在研究一种蝙蝠冠状病毒，这种病毒与新冠病毒的遗传相似性为96.2％，并且实验室与中共国军方有秘密联系。
-
-彭佩奥还透露，武汉实验室的研究人员自“至少2016年”以来一直在研究一种名为RaTG13的蝙蝠冠状病毒。
-
-武汉实验室将RaTG13毒株鉴定为与引起新冠肺炎的病毒SARS-CoV-2在遗传上最接近的病毒样本，相似性为96.2％。
-
-美国国务院表示，武汉实验室于2013年从云南省一个山洞的样本中获得了RaTG13，此前那里有数名矿工死于类SARS疾病。
-
-尽管武汉实验室有对病毒进行“功能增强”研究以增强病毒的杀伤力或传播力的发表记录，但美国国务院表示，该实验室“在研究与新冠病毒最相似的病毒包括RaTG13方面的记录并不透明或一致。”
-
-彭佩奥还断言，尽管表面上是民间机构，但武汉实验室一直在进行“与中共国军方的秘密项目”。
-
-彭佩奥还透露：“至少自2017年以来，武汉病毒研究所（WIV）就代表中共国军方进行了包括实验室动物实验在内的机密研究。”
-
-他呼吁中共国允许世卫组织调查小组自由地进行调查，包括进入武汉实验室。
-
-[原文链接](https://www.msn.com/en-us/health/medical/cnns-sanjay-gupta-breaks-with-his-network-and-backs-wuhan-lab-theory/ar-BB1fzKfo?ocid=uxbndlbing)
+[原文链接](https://dailycaller.com/2021/04/16/ecohealth-alliance-covid-19-coronavirus-peter-daszak-wuhan-institute-virology-lab-leak/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/a4Owj2uCXFY1k/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/a4Owj2uCXFY1k/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/8guFNqk4zcL8b/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/8guFNqk4zcL8b/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

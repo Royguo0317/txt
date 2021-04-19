@@ -1,34 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路简2021.4.18晚：布林肯称 从阿富汗撤军就是集中火力应对中共威胁
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1116118/)
+## 欧洲 &#8220;第三波疫情 &#8220;现状
+` Víctor Torres` [轉載自GNews](https://gnews.org/zh-hans/1116138/)
 
-**编辑：华盛顿DC农场 路德简报项目组**
+编译:Víctor Torres
 
-1、布林肯： 从阿富汗撤军就是集中火力应对中共威胁
+![]()![](https://gnews.org/wp-content/uploads/2021/04/brian-mcgowan-gkpszAElZf8-unsplash-scaled.jpg)
 
-2、日本首相菅义伟访美 向曾经与日作战的美国勇士敬献花圈
+据零对冲4月18日报道，虽然在一些欧洲国家，中共病毒感染的增长正在放缓，但其他国家在进入第三波疫情时，病例数却在增加。正如统计数据门户网站Statista的凯瑟琳娜·布赫霍尔兹（Katharina Buchholz）所指出的那样，在秋季的第二波和2021年的第三波之间，感染人数的轨迹变得不那么清晰了，因为各国都在与病毒变异作斗争，同时公民和政治家们都出现了封锁疲劳。
 
-3、中共心虚：发动宣传机器唱衰美日联盟
-![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/20120418-2_01-1024x422.jpg)
-- ![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/20120418-2_02-348x1024.jpg)
-- ![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/20120418-2_03-348x1024.jpg)
+根据约翰-霍普金斯大学在《我们的世界在数据中》上公布的数字，英国和西班牙在年初就经历了第三波疫情，并且与秋季的第二波短兵相接。
 
-![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/20120417-2_04-1024x120.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/21112-5.jpeg)信息图:欧洲第三波疫情的状况｜Statista
 
+虽然英国的情况得到了明显的改善，但最近西班牙的病例数再次上升，这将构成该国的第四波疫情。
 
-> 2021 年 4月18日 路德时评 晚
-> 
-> 1. 布林肯： 从阿富汗撤军就是集中火力应对中共威胁
-> 
-> 2.日本首相菅义伟访美 向曾经与日作战的美国勇士敬献花圈 
-> 
-> 3. 中共心虚：发动宣传机器唱衰美日联盟 [pic.twitter.com/D7QwgCr0a3](https://t.co/D7QwgCr0a3)
-> — 平民爆料 (@WM18320321) [April 19, 2021](https://twitter.com/WM18320321/status/1384103629406183427?ref_src=twsrc%5Etfw)
+法国是欧洲最早的在10月下旬即实施第二次封锁的国家之一，但在第三波疫情的时候比较犹豫。该国在3月中旬第三次封锁，但即使在一个月后，新的案例数字也没有显示出真正的改善。
 
+德国也陷入了类似的困境。该国经历了两次疫情浪潮，却从未走出第二次封锁，它从11月1日开始，但在12月16日大幅收紧。该联邦国家不同规则和限制的杂乱无章，使得掌握局势更加困难。联邦批准的开放从3月初开始，但几乎瞬间就被逆转。
 
+意大利和西班牙一样依靠地区封锁制度，实行了严格的复活节临时封锁，但最近第三波感染人数再次下降。
 
-***发布**：文顾*
+近期感染人数激增，按绝对病例数计算，法国已成为全球第四大感染国，而英国则降至第六位。
+
+[零对冲](https://www.zerohedge.com/covid-19/state-third-wave-europe)
 
 0

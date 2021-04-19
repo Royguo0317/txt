@@ -1,26 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 男子拍摄城管执法，手机被夺，人被撂倒
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1116951/)
+## 【热点播报】二十年载载博鳌亚洲论坛风光不再
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1116956/)
 
-字幕听译：乐禧禧 | 字幕PR：yyshere | 字幕：雨中漫步 | 评论： 胖丁 |评论翻译: Marialu | 评论PR: 小小妹 | Page：青山
+纽约香草山写作二组  桃花水母
 
-[!\[\]()!\[\](https://spark.adobe.com/page/y16SzW0q6FAaS/images/61263219-0b44-4fce-b0f8-1d44b165255e.jpg?asset_id=085767c8-a6e2-4756-8909-10ed7b72042d&amp;img_etag=%2225b4135a73514f99f1f21c8d61e2df05%22&amp;size=1024)](https://spark.adobe.com/page/y16SzW0q6FAaS/images/61263219-0b44-4fce-b0f8-1d44b165255e.jpg?asset_id=085767c8-a6e2-4756-8909-10ed7b72042d&amp;img_etag=%2225b4135a73514f99f1f21c8d61e2df05%22&amp;size=1024)
-
-俗话说，双拳难敌四手，好汉架不住一群狼。2021年4月7日，广东一男子因为拍摄城管执法，手机被夺走，自己也被一帮恶狼般的城管和警察撂倒。他的结果可想而知：轻则重伤，重则残废，甚至命都可能丢掉。
-
-中共国以警治国，以黑治国，警察比黑社会都霸道。因为中共国的警察就是有执照的流氓，打人天经地义，抓人不算违法。就算城管是非警察编制，一样欺行霸市，把普通民众当成奴隶般非打即骂，还不能反抗。如果反抗，只能遭到更严厉的镇压。普通老百姓想做个小生意维持生计，不是被城管欺压，就是被警察抓捕。路人如果有谁“路见不平一声吼”，城管绝对是“该出手时就出手”。
-
-就算是真正的黑帮组织，也遵循“盗亦有道”，有自己的江湖规矩：不恃强凌弱，不以多欺少。中共国是一帮城管和警察对付一两个赤手空拳的老百姓，而且下手狠毒，绝对不计后果。中共国的老百姓生存艰难，没有法制。如果不推翻这个邪恶的政党，艰难的就不仅仅是生活，而是生命都没有保证。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg](https://gnews.org/wp-content/uploads/2021/04/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/y16SzW0q6FAaS/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/y16SzW0q6FAaS/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+间隔一年的博鳌亚洲论坛线下会议将于4月18日至21日在海南博鳌如期举行。年会主题为“世界大变局：共襄全球治理盛举、合奏“一带一路强音”。
+
+主题下将设置六大板块议题，包括“解读中国”、“把握世界变局”、“一带一路合作”、“拥抱产业变革”、“与新技术共舞”和“共享发展”。后疫情时代的全球化成为对话主题。伊利集团和阿斯利康分别与博鳌亚洲论坛签约，成为论坛2021年年会钻石合作伙伴。五粮液集团成为论坛2021年年会荣誉战略合作伙伴。
+![This image has an empty alt attribute; its file name is Picture1-41.png]()![This image has an empty alt attribute; its file name is Picture1-41.png](https://gnews.org/wp-content/uploads/2021/04/Picture1-41.png)
+博鳌亚洲论坛（BoaoForumforAsia–BFA，简称BFA）是一个非政府、非营利的国际组织，也是第一个总部设在中国的国际会议组织。该论坛由菲律宾前总统拉莫斯、澳大利亚前总理霍克及日本前首相细川护熙于1998年发起，2001年2月27日正式宣告成立并通过《博鳌亚洲论坛宣言》、《章程指导原则》等纲领性文件。
+
+海南博鳌为论坛总部永久所在地，号称29个发起国。2021年适逢博鳌亚洲论坛成立20周年，感觉中共国整个社会都兴奋起来了。博鳌亚洲论坛2020年因疫情停办。2021年如期举行所谓线下会议，议程发布参加者很多，但从当天会议报道来看，雷声大雨点小：会议简报两篇，会场消息六篇。
+
+会议第一天，就发布了所谓的“重磅”和“旗舰”。所谓“重磅”，是《发布全球经济发展与安全 论坛大会释放积极信息》的报道，即博鳌亚洲论坛秘书长李保东，同湖南省委副书记乌兰、长沙市市长郑建新、联合国驻华协调员常启德、联合国难民署代理驻华代表陈蔚云、经济合作与发展组织驻华高级顾问海博一道，隆重发布博鳌亚洲论坛框架下，又一重要专题会议——全球经济发展与安全论坛大会。
+
+所谓“旗舰”，是指2021年度《可持续发展的亚洲与世界》、《亚洲经济前景与一体化进程》两份中英文版旗舰报告，牛皮吹得山响，什么“外资在中国聚焦”等。
+![This image has an empty alt attribute; its file name is Picture2-13.png]()![This image has an empty alt attribute; its file name is Picture2-13.png](https://gnews.org/wp-content/uploads/2021/04/Picture2-13.png)
+往年的论坛年会，国家主席、总理、政治局人员参加，今年湖南省委副书记都成了主角。中共国还能活多久，还能举办博鳌亚洲论坛多少次，我们拭目以待。
+
+参考：[博鳌亚洲论坛官网](https://www.boaoforum.org/)
+
+编辑/审核/发稿：正义的小新
+![This image has an empty alt attribute; its file name is 4_April-1.jpeg]()![This image has an empty alt attribute; its file name is 4_April-1.jpeg](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

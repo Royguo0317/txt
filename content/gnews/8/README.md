@@ -1,43 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】二十年载载博鳌亚洲论坛风光不再
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1116956/)
+## 以色列和希腊签署国防记录协议
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1116964/)
 
-纽约香草山写作二组  桃花水母
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg](https://gnews.org/wp-content/uploads/2021/04/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
+- 翻译：里奇
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-间隔一年的博鳌亚洲论坛线下会议将于4月18日至21日在海南博鳌如期举行。年会主题为“世界大变局：共襄全球治理盛举、合奏“一带一路强音”。
+**西班牙2021年4月19日电/西喜社——**
 
-主题下将设置六大板块议题，包括“解读中国”、“把握世界变局”、“一带一路合作”、“拥抱产业变革”、“与新技术共舞”和“共享发展”。后疫情时代的全球化成为对话主题。伊利集团和阿斯利康分别与博鳌亚洲论坛签约，成为论坛2021年年会钻石合作伙伴。五粮液集团成为论坛2021年年会荣誉战略合作伙伴。
-![This image has an empty alt attribute; its file name is Picture1-41.png]()![This image has an empty alt attribute; its file name is Picture1-41.png](https://gnews.org/wp-content/uploads/2021/04/Picture1-41.png)
-博鳌亚洲论坛（BoaoForumforAsia–BFA，简称BFA）是一个非政府、非营利的国际组织，也是第一个总部设在中国的国际会议组织。该论坛由菲律宾前总统拉莫斯、澳大利亚前总理霍克及日本前首相细川护熙于1998年发起，2001年2月27日正式宣告成立并通过《博鳌亚洲论坛宣言》、《章程指导原则》等纲领性文件。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/下载-7.jpg)图片来源：163.com
 
-海南博鳌为论坛总部永久所在地，号称29个发起国。2021年适逢博鳌亚洲论坛成立20周年，感觉中共国整个社会都兴奋起来了。博鳌亚洲论坛2020年因疫情停办。2021年如期举行所谓线下会议，议程发布参加者很多，但从当天会议报道来看，雷声大雨点小：会议简报两篇，会场消息六篇。
+以色列和希腊签署了有史以来最大的国防采购协议 ，以色列周日表示，这将加强两国之间的政治和经济联系，两国空军开展了联合演习。
 
-会议第一天，就发布了所谓的“重磅”和“旗舰”。所谓“重磅”，是《发布全球经济发展与安全 论坛大会释放积极信息》的报道，即博鳌亚洲论坛秘书长李保东，同湖南省委副书记乌兰、长沙市市长郑建新、联合国驻华协调员常启德、联合国难民署代理驻华代表陈蔚云、经济合作与发展组织驻华高级顾问海博一道，隆重发布博鳌亚洲论坛框架下，又一重要专题会议——全球经济发展与安全论坛大会。
+以色列国防部说，该协议包括一项价值16.5亿美元的合同，由以色列国防承包商Elbit Systems（ESLT.TA）在22年内为希腊空军建立和运营一个训练中心。
 
-所谓“旗舰”，是指2021年度《可持续发展的亚洲与世界》、《亚洲经济前景与一体化进程》两份中英文版旗舰报告，牛皮吹得山响，什么“外资在中国聚焦”等。
-![This image has an empty alt attribute; its file name is Picture2-13.png]()![This image has an empty alt attribute; its file name is Picture2-13.png](https://gnews.org/wp-content/uploads/2021/04/Picture2-13.png)
-往年的论坛年会，国家主席、总理、政治局人员参加，今年湖南省委副书记都成了主角。中共国还能活多久，还能举办博鳌亚洲论坛多少次，我们拭目以待。
+国防部表示，该训练中心将以以色列自己的飞行学院为模型，并将配备由意大利莱昂纳多（LDOF.MI）生产的10架M-346训练飞机。
 
-参考：[博鳌亚洲论坛官网](https://www.boaoforum.org/)
+Elbit公司将提供升级和操作希腊T-6飞机的工具包，还将提供培训，模拟器和后勤支持。
 
-编辑/审核/发稿：正义的小新
-![This image has an empty alt attribute; its file name is 4_April-1.jpeg]()![This image has an empty alt attribute; its file name is 4_April-1.jpeg](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpeg)
-**更多资讯，更多关注**
+以色列国防部长本尼·甘茨说：“我相信（该计划）将提升以色列和希腊的能力并加强两国经济，从而加深我们两国在国防、经济和政治层面的伙伴关系。”
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+宣布这一消息之前，阿联酋、希腊、塞浦路斯和以色列外交部长于周五在塞浦路斯举行了会议，他们同意加深合作。
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+以色列军方表示，以色列和希腊空军周日在希腊发起了联合演习。
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+在过去至少一次对希腊的演习中，以色列战斗机对部署在克里特岛上的一架“S-300”进行了演习。以色列的敌国—叙利亚和伊朗境内部署有俄罗斯制造的防空系统。
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+希腊国防司令部的消息人士称，在周日开始的联合演习中，“S-300”尚未被激活。
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**简评: 这是一个好消息，越多的民主国家之间越多的经济军事合作，越有利于民主阵营的壮大，不再资本至上、与邪恶独裁政权绥靖勾兑。只有热爱和平、公平竞争的民主国家团结在一起，才能战胜乃至铲除共产主义。**
+
+素材：里奇；初审：Ranting；终审：Aries的星；校对：阿伯塔；发稿：信心的选择
+
+**新闻来源：**[路透社](https://www.reuters.com/world/middle-east/israel-greece-sign-record-defence-deal-2021-04-18/)
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 0
