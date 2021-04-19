@@ -1,61 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】日美首脑新时代全球伙伴关系联合声明
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1113548/)
+## 【有声读物】离开本地、本族、父家，往我所要指示你的地方去
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1113665/)
 
-作者：纽约香草山信息部 6zero4
+作者：香草山福音部  英子
+配音：香草山录音组 Kikii
 
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-4月16日，美国总统拜登在白宫与日本首相菅义伟会晤后发布联合声明，承诺建立坚不可摧的、坚如磐石的联盟，维护以普世价值和共同原则为基础的地区与全球秩序，促进印太地区的和平、安全与繁荣。这是他担任美国总统以来首次接受外国领导人的访问。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-308.png)
 
-联合声明第一部分的主旨是，打造自由开放的印太联盟。两国首脑就中共国对印太地区乃至世界秩序的威胁和破坏活动表达了严重关切，包括中共国在东海和南海地区对国际航海与航空自由的威胁，对香港、新疆、台湾和缅甸区域的巨大威胁与破坏。两国首脑承诺进一步加强美日联盟关系，加强军事威慑和应对能力，加强并深化包括网络信息和空间技术在内的所有领域的防务合作，并致力于美军在印太地区重新部署的安排，同时两国将继续加强与澳大利亚和印度的四方协作，并加强与东盟和韩国在印太地区的合作，以适应日益严峻的印太安全环境。美国重申，根据《美日相互合作与安全条约》，美国坚定不移地支持日本增强包括核武在内的全方位防卫能力，并事实上承认日本对钓鱼岛的主权。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-309.png)图源网络
 
-联合声明的第一部分意味着，自二战战败后，日本被美国用和平宪法套在头上的“紧箍咒”被美国亲自正式拿掉，犹如如来佛祖亲自拿掉孙悟空头上的紧箍咒一样，标志着神通广大的日本在国防军事上地彻底解放。对于拥有强大军事科技潜能和彪炳战史的日本，重建日本国力、重振日本军事雄风、取代中共国充当美国在印太地区的代理人的时机完全成熟。美国以日本牵制、对抗、压制乃至消灭中共的战略，一石多鸟、一气呵成，让人拍案叫绝！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-310.png)图源网络
+自从2017年参与爆料革命以来，我实在敬佩文贵先生和我们的女英雄科学家闫丽梦博士。文贵先生预备了三十年反共，有一天终于离开了养育他的父母，也离开了他的家人、亲朋好友、同学同事，来到美国，开始了反共灭共爆料革命；而我们的女英雄科学家也因香港事件，CCP病毒事件看到了CCP的邪恶，毅然离开了她曾经爱过的，并与她一同过着 “居里和居里夫人”般志同道合的丈夫，离开了身在中国的父母，还有那座美丽的城市——香港，以及世界最顶级的实验室，只身一人来到美国，加入爆料革命，揭露CCP病毒的真相。
 
-联合声明的第二部分主旨是，与日本建立一个新时代下的坚实联盟。两国首脑启动了一项新的竞争力和适应力伙伴关系，侧重于：1）竞争力和创新、2）COVID-19应对和全球公共卫生安全、3）绿色增长和经济复苏。两国首脑将深化在数字经济和贸易、生命科学和生物技术、人工智能、5G无线网络、量子信息科学、民用空间等领域的新兴技术研究与合作，同时加强两国在芯片等敏感供应链上的合作，继续着力解决非市场行为和不公平贸易做法的问题，包括侵犯知识产权、强制技术转让、产能过剩问题以及扭曲贸易的产业补贴，促进和保护对两国的安全和繁荣至关重要的关键技术，提高各自和共同的竞争力，重建印太地区新秩序。联合声明支持对新冠疫情的源头进行透明、独立的评估和分析，不受外界干扰和影响，并对未来不明原因的疫情进行调查。
+文字版原文：[【信仰之声】离开本地、本族、父家，往我所要指示你的地方去](https://gnews.org/zh-hans/1068242/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-311.png)图源网络
+音频处理/发稿：雪梨
 
-联合声明的第二部分意味着日本自二战战败后在政治、经济、科技、文化等各方面都不同程度被以美国为首的国际社会监督和压制的状况彻底得到解放。日本拥有堪比西方贵族精神的武士道精神和人文底蕴，加上其在文化教育和科技创新等方面的坚实基础，以及日本人独特的团队合作精神、永恒的忧患意识和罕见的工匠精神，完全松绑的日本成为印太地区制衡甚至压制中共国的中流砥柱的角色呼之欲出！
-
-至于有人担心全面松绑的日本是否会重蹈给世界造成巨大灾难的军国主义覆辙，我认为受和平宪法约束和改造70多年的日本已经脱胎换骨。文化上脱亚入欧的日本已经完全融入西方文明，日本人被公认成为世界上最受欢迎的国民，以及日本护照俨然成为世界上免签国家数目最多的事实足以证明，因和平发展而社会富足并受世人尊敬和喜爱的日本，将是紧跟美国维系普世价值和拥抱西方主流文明的印太中心力量。更因为日本源于东方文明，其比西方国家更加了解东亚儒家文化，尤其是几千年的中国封建文化，亦能深刻认识中共没有底线的Low，将成为对抗中共的第二股国家级力量——文贵先生引领的爆料革命、新中国联邦是目前唯一对中共有深入了解后与其对抗的力量。这次联合声明是世界灭共事业里程碑般的事件！
-
-参考阅读：
-
-[U.S.- Japan Joint Leaders’ Statement: “U.S. – JAPAN GLOBAL PARTNERSHIP FOR A NEW ERA”](https://www.whitehouse.gov/briefing-room/statements-releases/2021/04/16/u-s-japan-joint-leaders-statement-u-s-japan-global-partnership-for-a-new-era/)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 **[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
 
 0
