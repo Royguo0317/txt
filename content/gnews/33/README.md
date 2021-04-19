@@ -1,15 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月14日 文贵先生盖特 9
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1114967/)
+## 中共老来网APP是服务于民还是持续割韭菜
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1115079/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+撰稿：自由战士
+![]()![](https://gnews.org/wp-content/uploads/2021/04/屏幕截图-2021-04-19-192858.png)图片来自网络
+随着中共老龄化时代的到来，老年人的养老，医疗等问题迫在眉睫的需要解决。
 
-4/14/2021美参议院情报委员听证会：两党已达成共识，来自中共的威胁位列世界五大流氓集团之首 参议院本·萨斯演讲：中共国对美国的所有威胁都来自于习近平和他领导的中共，但前提是要分清中共和中国人民和海外华人的区别，并要不断向美国人民宣讲这一概念 4/14/2021 Senate Intelligence Committee Hearing: A Bipartisan Consensus on CCP Being the Biggest Threat Among the Five Bad Guys Senator Ben Sasse: All the threats from Commnust China to America are derived from Xi and the CCP under his leadership. But the bottom line is to distinguish the CCP from the Chinese people and Chinese expats, and we must keep communicating to the Americans on this idea.
+但是中共应运而生发布了一个APP，老来网是一款为老年人打造的社保认证软件，让大家在手机上就可以完成各项手续，还可以看到各种关于社保的信息。高科技网络时代只需要人脸识别就可以，不用再去各个省份跑了，为大家的生活带来了便捷。
 
-[【2021年4月14日】文贵先生盖特原文](https://gtv.org/getter/607798ca51632a0de7b956e4)
+首先对这个APP的介绍让人感觉中共对老年人的关爱是特别的贴近民心。但是最近有些墙内的朋友给自己父母在做网上认证的时候发现这个软件的使用让人难受，一打开用户界面，各种广告的弹出速度和更新频率确实很流畅，但是在牵涉到后台真正的认证操作的时候，就各种识别不成功。多次升级版本后，UI的界面也是各种大改动，别说年迈的老人了，就是年轻人，现在的手机达人用起这个软件都是很吃力。不知道政府是便民，还是跟百姓设置障碍。
 
-**喜联盟Gnews编辑部**
+另外让我们了解一下空巢老人这个概念，一般是指子女离家后的中老年人。随着社会老龄化程度的加剧，空巢老人越来越多，已经成为一个不容忽视的社会问题。但是我们再细查一下空巢老人的相关数据。预测2020年、2030年、2040年、2050年我国60岁及以上老年人口数量将分别达到2.55亿人、3.71亿人、4.37亿人和4.83亿人，80岁及以上老年人口数量将分别达到0.29亿人、0.43亿人、0.67亿人和1.08亿人。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/192-3-1.png)（图片数据来自网络）
+无法使用智能手机的老年人，可以说是被遗弃的一个社会群体。他们对日常的智能手机的基本功能都很难熟悉。怎么可能对老来网的这种app熟练掌握。同步也咨询了一些农村的朋友，说现在只是通知大家有一个最终截止日期，逾期不予办理。这样就顺理成章的把社保和养老金进行了截流。中共国一贯的做法就是不解决问题，而是解决这些有问题的人，然后顺便把最后的韭菜进行收割。只要有压榨空间的，不管是老人还是年轻人，在中共眼里都是他的奴隶。这个吸血的魔鬼从来都没有考虑百姓的死活。不灭中共，各种屠杀将永远无法消失。
 
+（本文中观点只代表个人观点）
+
+*审核：Runaway  编辑：MG1*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
 0
