@@ -1,59 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】自由森林
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1114468/)
+## 【热点播报】比特币暴跌，加密货币集体闪崩，近50万人爆仓，验证了文贵先生的预警
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1114633/)
 
-配音：香草山录音组 Swr拥抱太阳
+作者：纽约香草山健身部Jack Li文阳
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
 
 
+4月18日数字货币惨遭血洗，多种加密货币集体闪崩。其中比特币出现崩盘式暴跌，跌破52,000美元/枚，目前已有近50万人爆仓。
+
+加密货币暴跌之际，全网加密货币过去一小时爆仓达到42.87亿美元，过去24小时有超过62万人爆仓，爆仓量55.79亿美元。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片1-49.png)
+4月18日上午，比特币闪崩，一小时内暴跌近8000美元。24小时涨跌幅计算，比特币暴跌17%，以太坊暴跌20%，币安币暴跌17%，瑞波币暴跌26%，狗狗币暴跌19%，莱特币暴跌28%，波场币暴跌25%，柚子币暴跌29%。
+
+比特币在4月13日曾一度突破64,000美元关口，最高达到64,778美元，当比特币“玩家”以为比特币会继续走高时，此后，比特币开始了连续几天的下跌。
+
+比特币快速下跌，做多的投资者损失惨重。近24小时，爆仓人数急剧上升，超47万人爆仓，379亿元人民币灰飞烟灭。
+
+文贵先生4/16日曾发出警示：华尔街神秘的手都在玩虚拟货币，比特币和其他几个虚拟货币就由共产党和华尔街控制，两个洗钱集团正猛力推高市场，再摔下来，大家都在等着傻货往里冲，投机和赌博式的心理一定让你倾家荡产，永远不要参与。
+
+4/18/2021 文贵先生在直播里说：“很多战友经历了比特币又一次的割韭菜，很多人明白了我一直说的只能投资不能投机的意义所在。我一次次用生命、代价、自由、安全、上千亿的财富告诉你跟着共产党走进火葬场，不要相信共产党的企业，结果这位战友大量投资了火币，赔得一塌糊涂”。
+
+文贵先生说：“我告诉大家一个基本的逻辑，比特币根本没有赚钱的机会，因为它的加密属性和去中心化，是洗钱和贩毒最重要的工具，而且是共产党和华尔街大佬玩的工具。只要暗网有任何犯罪组织被查，比特币就暴跌；它的使用功能方向被改变的时候就暴跌。所以它是一个永远被定为灰色的、非法的，用是因为它是逃税的最佳工具、犯罪的最佳工具，被全世界政府打压。不管什么币，只要跟共产党的都叫冥币。”
+
+文贵先生总结道：“世界从恶性通货膨胀进入经济危机，比特币、火币还会起起伏伏，最后只有我们G币会火下去，因为我们是中心化，有黄金储备和稳定币，不洗钱，受世界各国政府支持。G系列将是最健康的。”
+
+有点脑子的人都知道G系列意味着什么，GTV, Gnews, GClubs, Gcoin, Gfashion 就是踩在世界的屋顶，而且是干净的、稳健地往前走，谁也挡不住加密货币和实体经济的结合。 Gclubs是唯一一个关键时刻每年巨额盈利的企业。GTV、Gnews是唯一的，是稀缺资源，是人类关键时刻讲病毒讲真相，拯救人类的现代化社交媒体和门户网站结合的平台。
+
+参考阅读：[https://wallstreetcn.com/articles/3628161](https://wallstreetcn.com/articles/3628161)
+
+[https://news.stcn.com/news/202104/t20210418\_3058951.html](https://news.stcn.com/news/202104/t20210418_3058951.html)
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
 
-一
-
-我们的性情近植物:安静、平和
-
-春天我们用繁花装扮自己
-
-秋天我们用沉甸甸的果实款待路人
-
-我们的执着像树，屹立万年
-
-我们的耐心像藤蔓，千万次缠绕，追逐阳光
-
-我们的不幸是遇到伐木的暴徒：山河破碎
-
-但柔弱的玫瑰也藏有刺，我们已醒来
-
-草木皆兵，落花成箭，大地必繁花盛开
-
-
-
-文字版原文：[【香草诗词汇】自由森林](https://gnews.org/zh-hans/968463/)
-
-作者：纽约香草山农场 木白
-
-
-
-发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
 [**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

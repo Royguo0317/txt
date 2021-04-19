@@ -1,226 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第206节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1113561/)
-
-俄罗斯莫斯科喀秋莎农场   仰望七星
-
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/L-6.jpg)thefederalist.com
-第206节. 中共国在国际组织中的影响力报告
-
-本节为“标题2——联盟和伙伴关系的投入”中，“副标题A——战略和外交事务”的第206节，副标题A的“第201节. 确定适当的国会委员会、第202节. 美国对印太盟国和伙伴的承诺和支持、第203节. 与四国合作的国会意识、第204节. 与东盟合作政策的声明、第205节. 加强美国与东盟技术合作的国会意识，这些技术合作与中共国有关”，没作翻译。
-
-本节要点：
-
-在本法颁布之日起180天内，提交中共国在国际组织中扩大影响的报告，报告内容有4大项，12分项，包括，中共在国际组织中过去10年的影响，这种影响是如何扩大的，跟踪与中共国投票模式一致的国家投票模式，担任D-1级或以上领导职务的中共国公民人数，在国际组织的术语和程序中，
-中共国在国际组织中扩大影响力的目的和最终目标，以及所采取的策略和手段包括-鼓励中共国公民加入和竞选国际组织的领导职位，向国际组织提供的经济或其他奖励，包括技术或货物的捐赠。
-
-欲了解更多的內容，请看本节全文（仅供参考）：
-
-（a）需要的报告 – 在本法颁布之日起180天内，国务卿应与国家情报总监协调，向参议院外交关系委员会和情报特别委员会、众议院外交事务委员会和常设情报特别委员会，提交中共国政府和中国共产党在国际组织中扩大影响的报告。
+## 【正道观察】182亿 VS 600亿！中共以黑治国窥豹一斑
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1113650/)
 
-（b）内容 – 第（a）小节要求的报告应包括以下分析：
+作者：freedoom 【㊙️翻GNews原创组】
+责编：Shifter
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-37.jpg)图片来源：GTV 制作：Skagen
+2021中国农历辛丑年，如120年前一般，再次风起云涌。这一年，中共国当代胡雪岩、著名红顶商人Jack 马又双叒叕摊上事了。近日，中共官媒新浪网报导《阿里被罚182亿终于松口气，整个行业却睡不着觉了》：
 
-（1）中共国和中国共产党在国际组织中过去10年的影响，这种影响是如何扩大的，包括-
-（A）跟踪与中共国政府投票模式一致的国家投票模式；
-（B）担任D-1级或以上领导职务的中共国公民人数；
-（C）在中共国通过有组织的自愿和强制性的资金供给变化；
-（D）在国际组织的术语和程序中，采用中国共产党的表达方式和倡议的；
-（E）中共国确保其外交政策倡议合法化的企图，包括“一带一路”倡议；
-（F）由中共国政府资助的初级专业人员的数量；
-（G）中共国政府或中国共产党操纵秘密或其他非公开的投票措施、投票机构或投票策略；
-（H）在中共国注册成立的技术公司的范围，或者中共或中共国利益拥有者，向国际组织提供设备和服务的范围；以及
-（I）中共国驻联合国代表团在联合国发起的对美国批评的努力，包括任何突出美国延迟付款的努力，或歪曲美国对联合国及其专门机构和项目义务捐款和分摊总额的努力。
+*阿里巴巴被市场监管总局开罚单了——182.28亿元，这是中国反垄断史上最大的罚单。2015年，美国高通公司因垄断行为，被国家发改委处罚60.88亿元，是其2013年在华收入的8%。*
 
-（2）中共国和中国共产党在国际组织中扩大影响力的目的和最终目标，包括分析中共国政府和中国共产党的战略文件和言论。
+*这次阿里被处以2019年中国境内营收4557.12亿元的4%，为182.28亿元。高通8%，阿里4%，轻了一半。*
 
-（3）中共国和中国共产党为实现扩大在国际组织中影响的这一目标，所采取的策略和手段包括-
-（A）鼓励中共国公民加入和竞选国际组织的领导职位；
-（B）对本组织其他成员的胁迫性经济行为和其他行为；以及
-（C）向国际组织提供的经济或其他奖励，包括技术或货物的捐赠。
-（4）中共国和中国共产党的成功与失败对国际组织影响的努力。
+*有分析认为，4%的比例，说明监管部门实际上比较审慎和克制。\*根据《反垄断法》，垄断行为的惩罚为上一年度销售额1%以上10%以下的罚款*
 
-（c）表格-根据第（a）小节提交的报告应以非保密形式提交，但可包括保密附件。
+请注意这些表述，以2019年中国境内营收的4%进行处罚，相对于高通的8%，说明监管部门比较审慎且克制，以反垄断法为依据，处罚也在规定范围内。为何监管部门如此审慎？因为，红顶商人绝非浪得虚名！想当年，晚清第一富豪胡雪岩的成功，除自身天资聪慧加勤奋努力外，还得益于身后名臣骁将左宗棠加持。然而，与李鸿章的政治斗争中，左宗棠败落，胡雪岩自然灰飞烟灭。当今红顶商人JACK 马，虽号称平民出身建立阿里帝国，侃侃而谈言必称不在乎钱，实则背后皆因江湖靠山。有江湖的地方必有纷争，只是在政治斗争中，江湖棋差一招败落于庆丰帝，JACK马自然免不了要挨刀。但，庆丰帝并未获得碾轧式的胜利，江湖依旧，瘦死骆驼比马大，且监管部门大员悉数来源于江湖，又不得不听命于庆丰帝，处理JACK马自然得“比较审慎和克制”，还必须处理得有理有据，避免秋后算账。
 
-（d）定义- 在本节中，“国际组织”一词是指：
-（1）非洲开发银行
-（2）亚洲开发银行
-（3）亚太经济合作组织
-（4）国际结算银行
-（5）加勒比开发银行
-（6）联合国粮食及农业组织
-（7）国际原子能机构
-（8）国际振兴开发银行
-（9）国际度量衡局
-（10）国际商会
-（11）国际民用航空组织
-（12）国际刑事警察组织
-（13）国际金融公司
-（14）国际农业发展基金
-（15）国际水文组织
-（16）国际劳工组织
-（17）国际海事组织
-（18）国际货币基金组织
-（19）国际奥委会
-（20）国际移民组织
-（21）国际标准化组织
-（22）国际可再生能源机构
-（23）国际电信联盟
-（24）经济合作与发展组织
-（25）禁止化学武器组织
-（26）联合国
-（27）联合国贸易和发展会议
-（28）联合国教育、科学及文化组织
-（29）联合国工业发展组织
-（30）联合国训练研究所
-（31）联合国停战监督组织
-（32）万国邮政联盟
-（33）世界海关组织
-（34）世界卫生组织
-（35）世界知识产权组织
-（36）世界气象组织
-（37）世界动物卫生组织
-（38）世界旅游组织
-（39）世界贸易组织
-（40）世界银行集团
-（本节完）
+182亿人民币处罚，引来西方左媒一阵接一阵地骚动！但，此处罚金额，并非中共国历史上最高处罚金额。最高金额当属2018年10月大连中级法院以强迫交易罪判处北京政泉控股一案，处罚金600亿元，加上前前后后各种操作，合计处罚金额700多亿，折合大约相当于130亿美元（文贵先生语）。由于笔者不了解整个事件的过程，不便对案件发表意见，而且笔者不是小学毕业，没什么文化，还是个法盲，也绝对干不了扛二百斤麦子十里山路不换肩这等丰功伟业。但是，凭笔者与司法黑暗交过手斗过争的经历，就有资格说道说道程序合法性的问题。中共官媒网易源引大连市中级法院的判决书这样写到：
 
-这是要根除邪共影响的节奏，在文贵先生引领下的爆料革命终于让美国高层有了较清醒的认知，让世界看到了灭共的希望，以毒灭共，以钱灭共，现在又加上以法灭共，共产党你完了！
+*依照《中华人民共和国刑法》的相关规定，对被告单位北京政泉控股有限公司以强迫交易罪判处罚金人民币六百亿元；*
 
-原文链接：
+注意，大连中院的判决书上使用的是依照刑法的相关规定，这可是2018年！笔者2018年之前很多年经历过的案件，判决书上是这样写的：依照某某法第某条、第某某条、第某某某条的规定作出判决，等等。那么，大连中院依照刑法的哪个相关规定？处罚标准是什么？都没有！好歹处罚阿里巴巴时，还*\***根据《反垄断法》，垄断行为的惩罚为上一年度销售额**1%**以上**10%**以下的罚款。* 怎么处理北京政泉，金额高达600亿的案子，仅*相关规定* 四个字就行了？笔者是法盲，用手指大概算了一算，整个案件金额不到200亿，处罚金额600亿的依据是什么？大连中院的水平刷新了法盲的认知下限！当然，如果需要相关的法律规定，中共的橡皮图章人大可以立马通过一项满足主子需求的立法，并且能够立即生效，比如香港国安法。然后，外交部的战狗可以说，拜登可以事后补手续，中共国也可以！
 
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+还有，2020年6月12日大连市中级法院公告这样写到：
 
-文字整理：
+*郭文贵、岳庆芝：*
 
-SEC. 206. REPORT ON CHINESE INFLUENCE IN INTERNATIONAL ORGANIZATIONS.
+*被执行人北京政泉控股有限公司犯强迫交易罪一案，本院于**2018**年**10**月**8**日作出的（**2018**）辽**02**刑初**92**号刑事判决书已发生法律效力，本院于**2018**年**11**月**26**日依法对上述刑事判决涉财产部分立案执行。执行过程中，本院依法委托大连市价格认证中心对位于河南省郑州市中原西路**220**号裕达国际贸易中心的合计**101**处房产（其中**1**、**4**、**6**层登记在郭文贵名下）*
 
-(a) REPORT REQUIRED. – Not later than 180 days after the date of the enactment of this Act, the Secretary of State, in coordination with the Director of National Intelligence, shall submit to the Committee on Foreign Relations and the Select Committee on Intelligence of the Senate and the Committee on Foreign Affairs and the Permanent Select Committee on Intelligence of the House of
+笔者是法盲都再次懵逼了！中共国的公司法不是规定，有限公司的股东在其出资范围内承担有限责任吗？怎么会执行到自然人的资产？再说，在中共国侵泡多年的文贵先生，也不会傻到让自己出现在股东名单中吧？就算在股东名单上，以出资额为限承担有限负责，政泉案是公司行为，又不是个人犯事，怎么就能执行个人名下房产？
 
-Representatives a report on the expanded influence of the Government of the People’s Republic of China and the Chinese Communist Party in international organizations.
+通过查询天眼可知，北京政泉的注册资本为34亿人民币（天眼查 www.tianyancha.com/company/23101971）那么，处罚600亿，远超企业注册资金，加上判决书上列举的不到200亿资金，不足部分就可以向个人资产伸手？一个字形容：黑！两个字形容：真黑！三个字形容：真他爹地黑！法院是社会公平的最后一道防线，大连法院如此，早已突破最后防线，彻底撕下中共依法治国的伪装，把庆丰帝的脸打得啪啪啪响！
 
-(b) CONTENTS. – The report required by subsection (a) shall include analysis of the following:
+大连法院是中共国司法黑暗的缩影，法院是谁的？是人民的，因此叫人民法院，人民是谁的？一切都是党的！中共国法院一哥*在北京对一些法官发表讲话时说，**“**要坚决抵制西方**‘**宪政民主**’**、**‘**三权分立**’**、**‘**司法独立**’**等错误思潮影响，旗帜鲜明，敢于亮剑。**”* （纽约时报cn.nytimes.com/china/20170119/china-chief-justice-courts-zhou-qiang/） 就是中共以黑治国的最好表述。
 
-(1) The influence of the PRC and Chinese Communist Party in international organizations and
+中共国对JACK马的处罚，与文贵先生的遭遇为何如此天壤之别？因为，一个是红顶商人，另一个，则是中共完美掘墓人！一个，选择与中共沆瀣一气，一个，为消灭红魔恶党远走他乡。试问，中共国内，有几个人比JACK马更精明？又有几个人能比文贵先生更有智慧更具勇气？这两人在中共以黑治国之下尚且如此，其他人又怎能苟活？
 
-how that influence has expanded over the last 10 years, including –
+历史的车轮滚滚向前，拯救中华民族、拯救全人类、创造千年和平的重任，落在新中国联邦的肩上！
 
-(A) tracking countries’ voting patterns that align with Chinese government voting patterns;
+**参考链接：**
 
-(B) the number of PRC nationals in leadership positions at the D–1 level or higher;
+[新浪网-阿里被罚182亿](http://finance.sina.com.cn/chanjing/cyxw/2021-04-11/doc-ikmyaawa8982333.shtml)
 
-(C) changes in PRC voluntary and mandatory funding by organization;
+[阿里巴巴被指违反中国《反垄断法》被罚182亿元人民币](https://www.bbc.com/zhongwen/simp/business-56700366)
 
-(D) adoption of Chinese Communist Party phrases and initiatives in international organization language and programming;
+[辽宁省大连市中级人民法院公告](http://court.dl.gov.cn/info/110_148533.vm)
 
-(E) efforts by the PRC to secure legitimacy for its own foreign policy initiatives, including the Belt and Road Initiative;
-
-(F) the number of Junior Professional Officers that the Government of China has funded by organization;
-
-(G) tactics used by the Government of China or the CCP to manipulate secret or otherwise non-public voting measures, voting bodies, or votes;
-
-(H) the extent to which technology companies incorporated in the PRC, or which have PRC or CCP ownership interests, provide equipment and services to international organizations; and
-
-(I) efforts by China’s United Nations Mission to generate criticism of the United States in the United Nations, including any efforts to highlight delayed United States payments or to misrepresent total United States voluntary and assessed financial contributions to the United Nations and its specialized agencies and programs.
-
-(2) The purpose and ultimate goals of the expanded influence of the PRC and the Chinese Communist Party in international organizations, including an analysis of PRC Government and Chinese Communist Party strategic documents and rhetoric.
-
-(3) The tactics and means employed by the PRC and the Chinese Communist Party to achieve
-
-expanded influence in international organizations, including –
-
-(A) incentive programs for PRC nationals to join and run for leadership positions in international organizations;
-
-(B) coercive economic and other practices against other members in the organization; and
-
-(C) economic or other incentives provided to international organizations, including donations of technologies or goods.
-
-(4) The successes and failures of PRC and CCP influence efforts in international organizations.
-
-(c) FORM – The report submitted under subsection (a) shall be submitted in unclassified form, but may include a classified annex.
-
-(d) DEFINITION – In this section, the term ‘‘international organizations’’ means the following:
-
-(1) The African Development Bank.
-
-(2) The Asian Development Bank.
-
-(3) The Asia Pacific Economic Cooperation.
-
-(4) The Bank of International Settlements.
-
-(5) The Caribbean Development Bank.
-
-(6) The Food and Agriculture Organization.
-
-(7) The International Atomic Energy Agency.
-
-(8) The International Bank for Reconstruction and Development.
-
-(9) The International Bureau of Weights and Measures.
-
-(10) The International Chamber of Commerce.
-
-(11) The International Civil Aviation Organization.
-
-(12) The International Criminal Police Organization.
-
-(13) The International Finance Corporation.
-
-(14) The International Fund for Agricultural Development.
-
-(15) The International Hydrographic Organization.
-
-(16) The International Labor Organization.
-
-(17) The International Maritime Organization.
-
-(18) The International Monetary Fund.
-
-(19) The International Olympic Committee.
-
-(20) The International Organization for Migration.
-
-(21) The International Organization for Standardization.
-
-(22) The International Renewable Energy Agency.
-
-(23) The International Telecommunications Union.
-
-(24) The Organization for Economic Cooperation and Development.
-
-(25) The Organization for the Prohibition of Chemical Weapons.
-
-(26) The United Nations.
-
-(27) The United Nations Conference on Trade and Development.
-
-(28) The United Nations Educational, Scientific, and Cultural Organization.
-
-(29) The United Nations Industrial Development Organization.
-
-(30) The United Nations Institute for Training and Research.
-
-(31) The United Nations Truce Supervision Organization.
-
-(32) The Universal Postal Union.
-
-(33) The World Customs Organization.
-
-(34) The World Health Organization.
-
-(35) The World Intellectual Property Organization.
-
-(36) The World Meteorological Organization.
-
-(37) The World Organization for Animal Health.
-
-(38) The World Tourism Organization.
-
-(39) The World Trade Organization.
-
-(40) The World Bank Group.
+（本文仅代表作者个人观点）
 
 0

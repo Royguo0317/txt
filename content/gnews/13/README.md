@@ -1,20 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 韩国恩典农场线下宣传中共病毒真相活动三
-` 恩典农场` [轉載自GNews](https://gnews.org/zh-hans/1114019/)
+## 英国将更新法律严惩外国间谍
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1114342/)
 
-![]()![](https://media.discordapp.net/attachments/761870961087086634/831856278065381386/gnews_.png)![]()![](https://gnews.org/wp-content/uploads/2021/04/4月17日封面1.jpg)
-作者：追着曙光跑 校对：瑞沃路森
+俄罗斯莫斯科喀秋莎农场   银河
 
-韩国时间4月17日下午恩典农场线下战友们在首尔光华门宣传中共病毒真相活动。
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/S-22.jpg)foreignpolicy.com
+《每日邮报》报道，英国首相将宣布新法案以保护英国不受敌对国家的侵犯。根据新法律，在英国活动的外国间谍将被起诉并驱逐出境。
 
-到目前为止全世界感染人数超过1.4亿人次，死亡人数超过300万例。虽然各国已经开展了接种疫苗，但是疫情并没有得到控制。闫丽梦博士指出“在没有查清楚SARS-CoV-2的真相之前研发的疫苗对病毒都是无效果”，再加上病毒还在不停地变异过程中。疫苗成为了相关医疗机构的利益来源，打疫苗不能很好地防止病毒入侵，还可能会引起ADE效应。为了让更多的普通民众知道中共病毒的真相，韩国恩典农场线下的战友们每个星期六宣传中共病毒真相活动如期举行。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4月17日红衣服战友.png)
-下图是韩国恩典农场线下战友小红豆向民众揭露中共的潘多拉盒子计划、中共一系列对世界的邪恶控制计划以及中共病毒真相的演讲。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/小红豆演讲.png)
-下面的图片是战友们4月17日下午1点至3点在首尔光华门广场7号地铁出口宣传中共病毒真相活动。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4月17日路森.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/4月17日个人.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/4月17日封面.jpg)
-如有韩国境内的战友想参加宣传活动，韩国恩典农场义工报名电话：010-7591-5041，欢迎韩国境内的战友们踊跃参加。
+据《泰晤士报》报道，该法案将要求所有在该国代表外国政府工作的个人必须进行登记，否则将构成刑事犯罪。
 
-+1
+情报机构警告称，根据现行法律，外国间谍不受法律约束，除非他们被抓到获取官方机密。旨在保护英国免受间谍活动侵扰的《官方保密法》(Official Secrets Act)将进行更新，以防止任何企图破坏英国海外利益的人。由于其中一些条款是在1911年制定的，部长们希望对立法进行调整，以便可以用来对付那些实施外国网络攻击的人。
+
+据信，英国的目标是建立与美国《外国代理人登记法》(Foreign Agents Registration Act)类似的登记册，该法案将适用于任何代表外国利益的人。目前大多数罪行是两年刑期，英政府还在考虑是否提高对任何违反该法案的行为的最高刑罚。
+
+参考链接：
+
+[https://www.dailymail.co.uk/news/article-9485427/Foreign-spies-face-prosecution-deportation-new-laws-forcing-people-register-presence.html](https://www.dailymail.co.uk/news/article-9485427/Foreign-spies-face-prosecution-deportation-new-laws-forcing-people-register-presence.html)
+
+0
