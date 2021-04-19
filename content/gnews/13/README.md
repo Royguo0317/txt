@@ -1,42 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】中共警察注射国产疫苗后死亡
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1114160/)
+## 韩国恩典农场线下宣传中共病毒真相活动三
+` 恩典农场` [轉載自GNews](https://gnews.org/zh-hans/1114019/)
 
-配音：香草山录音组 蒙古鸿雁
+![]()![](https://media.discordapp.net/attachments/761870961087086634/831856278065381386/gnews_.png)![]()![](https://gnews.org/wp-content/uploads/2021/04/4月17日封面1.jpg)
+作者：追着曙光跑 校对：瑞沃路森
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+韩国时间4月17日下午恩典农场线下战友们在首尔光华门宣传中共病毒真相活动。
 
+到目前为止全世界感染人数超过1.4亿人次，死亡人数超过300万例。虽然各国已经开展了接种疫苗，但是疫情并没有得到控制。闫丽梦博士指出“在没有查清楚SARS-CoV-2的真相之前研发的疫苗对病毒都是无效果”，再加上病毒还在不停地变异过程中。疫苗成为了相关医疗机构的利益来源，打疫苗不能很好地防止病毒入侵，还可能会引起ADE效应。为了让更多的普通民众知道中共病毒的真相，韩国恩典农场线下的战友们每个星期六宣传中共病毒真相活动如期举行。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4月17日红衣服战友.png)
+下图是韩国恩典农场线下战友小红豆向民众揭露中共的潘多拉盒子计划、中共一系列对世界的邪恶控制计划以及中共病毒真相的演讲。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/小红豆演讲.png)
+下面的图片是战友们4月17日下午1点至3点在首尔光华门广场7号地铁出口宣传中共病毒真相活动。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4月17日路森.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/4月17日个人.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/4月17日封面.jpg)
+如有韩国境内的战友想参加宣传活动，韩国恩典农场义工报名电话：010-7591-5041，欢迎韩国境内的战友们踊跃参加。
 
-
-
-
-
-
-文字版原文：[【热点播报】中共警察注射国产疫苗后死亡](https://gnews.org/zh-hans/1110240/)
-
-作者：香草山媒体部 文扬四海
-
-4月17日，大纪元报道了发生在微博网友“山下花野子”身上的不幸事件。七天前（4月10日）该网友在微博发文说，弟弟30岁不到，是边检民警，发病前身体健康，在接种灭活疫苗后，突发血小板为零、脑出血、皮下出血等症状，已在ICU昏迷了17天，希望得到专家救助。
-
-4月15日，该网友在微博发布讣告并补充，弟弟没有病史，于1月11日接种了国药集团的北生灭活疫苗第一针，2月8日接种第二针。在此期间，弟弟出现疲劳、皮下出血、牙龈出血的情况，直至3月24日突发脑出血入院，于4月15日去世。据称，该男子的死亡原因为重度再生障碍性贫血引起的脑出血。博主质问当局，希望能给家属一个交代。目前，以上两条微博均已被删除。
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1

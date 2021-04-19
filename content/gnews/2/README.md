@@ -1,59 +1,213 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## GTV 投资者的风彩——DC之行
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1113783/)
+## 如果你想讨论美国科学的政治化，你应向中共求助，那是真正政治化的地方
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1114436/)
 
-作者：Candy 编辑：Amos文也
+视频内容：
 
-GTV作为一个灭共的视频直播平台，由全球所有支持灭共的投资人在美国投资注册而成。由于中共的蓄意破坏，恶意向美国证券交易委员会（SEC）提供错误、虚假信息，造成SEC冻结部分投资者的投资资金，至今已逾半年之久，且没有任何要给出调查结果的迹象。它不但阻碍了GTV的正常发展，更给投资者带来了经济方面的损失，以及精神方面的压力，甚至有些在中共国内的投资人遭受到中共公安机关的审问、扣押、限制人身自由、消失或死亡。
+来自安妮·卢蒂（Anne Luty） 2021年4月14日的推文
 
-为了保护投资人的合法权益，无数投资人自发地奔向华盛顿DC和纽约的SEC，发出自己的诉求：
+Bannon
 
-1、要求公开SEC与中共黑警、国安、国宝勾兑的通讯记录；
+班农：
 
-2、要求SEC全额赔偿GTV投资者的损失；
+Natalie Winters, you’ve done more about wuhan lab.
 
-3、要求SEC即刻停止和中共的勾兑，即刻停止对GTV投资者进行的种族歧视和政治打压；
+娜塔莉 温特斯，你做过许多关于武汉实验室方面的报道
 
-4、要求SEC立刻停止官僚主义做法，停用官僚手段对GTV投资人的打压。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/%E5%9B%BE%E7%89%871-32-400x225.png)
-在DC示威活动进行的第二周，作为GTV投资人之一的我，成为了DC请愿队伍中的一份子。
+You’ve done more individual investigate report than
 
-到达现场的第一天，我看到了此次活动现场的最突出的特点：地理位置特别好！SEC外观镶满蓝色玻璃的大楼在马路的一面，一栋多层停车场在马路的对面，而中间的马路是单向行车道，且有一个九十度的拐角并延申到国会山方向，就是一个反L型。停车场与SEC的办公楼分别在反L的里、外侧。与停车场相对的是一个巨大的地铁站，行人出入不断，只是人数不多，可以想象在中共病毒肆虐之前这里会有多少乘客出入，有多繁忙。所以，车辆从此经过的时候都要减速，也正是司机们可以瞥一眼现场情况的好机会。
+你做过许多的独立调查报道
 
-历经三天的现场参与，我最明显的感受有以下几点：
+New York Time, Wall Street journal, Financial Time of London, Washington Post combined.
 
-1、**秩序良好**。投资者、口号牌、横幅标语安排得井然有序，一目了然。从很远的地方就能看出这是一个在进行示威的有素质的群体在示威。近看，现场干净，没有任何垃圾或纸屑。连SEC的保安人员都表示：该活动没有给他带来任何不便，投资者们可以尽享自己的权利。
+比纽约时报、华尔街日报、伦敦金融时报、华盛顿邮报的总和还多
 
-2、**诉求明确**。一条10几米长的大横幅是由几条小横幅连结在一起的，横跨在SEC的正门前。从一头到另一头，非常简洁流畅，而且有气势；投资者们或者站在横幅的后面及左右，或者坐在椅子上手扶标语牌，但仍不失整齐的阵容。有时会用高音喇叭一齐对着办公楼呐喊着诉求，当然也一齐停止。
+Ok, you see this handling
 
-3、**生动活泼**。维护现场秩序的基本都是年轻人，他们一个个生龙活虎，活力四射；讲起话来，思维敏捷，思路清晰，而且是中、英文双语表达。实实在在的给人以美的享受。
+好的，你看到了这个处理
 
-4、**效果明显**。表现在几个方面：
+Your observations on the handling of J & J fiasco
 
-（1）现场直播开启的中、英文频道，可以在线上传播活动的实况，传播范围广、受众多；即使很多观众不能看直播，还可以在方便的时候看录播；
+您对强生和强生疫苗失败的处理意见的观察
 
-（2）街道上的传单发放，可以让过路行人及时得到主要信息，有的路人还能稍停片刻交流几句，为他们能更多更容易地了解该活动有帮助作用；
+Natalie Winters
 
-（3）横幅、口号牌的展示，可以帮路人或骑行者、甚至驾车人看到该活动的目的。几天的时间里，我亲眼看到有的骑自行车的人举手表示敬意；或脚蹬电动滑板的人停下来向投资人询问，并采访了一位会中英文双语的年轻投资人；有些驾车人经过此处，向示威的人群竖起大拇指表示支持。
+娜塔莉 温特斯：
 
-5、**团结友爱**。大家虽然来自四面八方，彼此不曾相识，但共同的目标使我们走到了一起，很快就成了志同道合的朋友，我们互相关爱：在炎热的天气里，有人给我们送来瓶装水；在寒冷的天气里，有人买来了热巧克力奶、热咖啡；下雨的时候，雨衣随时被递到身边；该去机场的时候，朋友风趣地提醒到：该离开现场了，不然就要赶你走了……感人之处，数不胜数！
+Yeah, I think a lot of their frame from the main stream media right now
 
-当然，为了尊重附近老年邻居的反映，后来，投资者们减少甚至停止了喇叭的使用，改为静站或静坐示威。这也充分说明了这些投资人能够理解他人的需要，就如同我们有我们的需要一样，并及时做出的调整。
+是呀，我认为目前来自主流媒体的很多构架
 
-作为一个投资人，在短短的几天里，经历了一个这么成功的活动，看到了这么多致力于灭共大业的朋友，这么多才华横溢的年轻人，更坚定了我对GTV投资的信心，为我当初能那么果断地投资到这样一个平台感到由衷的自豪！待到CCP灭亡的那一天，我们在相聚 ！
+talking about the politicization of science right now
 
-感谢SEC门前示威的投资者们！因为你们，才有了这个机会向美国人们展示新中国联邦人的良好形象，新中国联邦人的优秀素质，新中国联邦人为了自己的合法权益而发声的振奋人心的场面，这是华人作为GTV投资者所产生的靓丽的丰彩!
+正在谈论科学的政治化
 
-参考资源
+And Frankly, I think it’s kind missing the mark on that
+
+而且坦率地说，我认为这有点失误
+
+I know I always talk about Chinese Communist Party
+
+我知道我总是讨论中国共产党
+
+but if you wanna talk about the politicization of American science
+
+但是如果你要讨论关于美国科学的政治化
+
+and our establishment,  our talking heads , our media head figures
+
+和我们的建制派、我们的政府负责人、我们的媒体负责人
+
+Look to the Chinese Communist Party
+
+看看中国共产党
+
+because that’s the real politicization is happening
+
+因为那是真正正在发生的科学政治化
+
+I remember about a week ago
+
+我记得大约一周前
+
+The New York time put up an article
+
+纽约时报刊登了一篇文章
+
+talking about Biden regime
+
+讨论关于拜登政权
+
+was going to start investigating politicization science under Trump Administration.
+
+将开始对在川普政府领导下的科学政治化进行调查
+
+That’s like do that
+
+就像做那个
+
+how about next time focus on the Chinese Communist Party
+
+下次关注中国共产党怎么样
+
+subversion infiltration of the American medical establishment
+
+颠覆性地渗透美国医疗系统的
+
+so I think it’s really hard to kind of look at the American medical establishment
+
+所以我觉得很难看清美国医疗系统
+
+who’s responsible for legitimizing and authorized these vaccines
+
+负责合法化和授权这些疫苗的人的行为
+
+from a clear set of eyes
+
+从清晰的眼睛
+
+When really they are so compromised by Chinese Communist Party
+
+当他们真的受到中国共产党的渗透时
+
+Bannon
+
+班农：
+
+Are you too we have about 30 seconds left
+
+你也是，我们还有30秒的时间
+
+Do you believe Boris said about this
+
+你相信鲍里斯对此说过吗
+
+Do you sense the main stream media a little bit of belly full of Fauci right now?
+
+你现在是否感觉主流媒体对福奇有些反弹了吗？
+
+Raheem
+
+拉希姆：
+
+Oh for sure, we get definitely
+
+哦，确定，我们肯定会
+
+You should hear the whispers
+
+你应该听到窃窃私语
+
+The whispers, the reporters will say to people privately
+
+窃窃私语，记者们会私下对人们说
+
+You know on the Morton’s terrorist over the alibi
+
+你知道对莫顿关于不在现场的恐怖分子
+
+they are totally different than the, you know
+
+他们和你所知道的完全不同
+
+the united front, no pun intended
+
+全都聚集在一起，玩文字游戏
+
+they present you know on the television
+
+他们在电视上出现的样子，你知道的
+
+It’s they really don’t like Fauci
+
+其实是他们真的不喜欢福奇
+
+Bannon
+
+班农：
+
+The Chris Hayes
+
+那个克里斯·海斯
+
+who’s not fun of the show, not fun of me, not fun of Trump.
+
+他不喜欢战斗室节目、不喜欢我、不喜欢川普
+
+Smart guy, You can tell last night
+
+聪明的家伙，昨晚你能看出
+
+He was having a tough time with Fauci last night, right?
+
+昨晚他和福奇谈的很煎熬， 对吧？
+
+He said this guy spin my head
+
+他说这个家伙把我的头都弄晕了
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接:
 
 
 
-> [【SEC抗议】专访「小王子」：为四点诉求战斗到底，中华男儿请站出来支持我们！](https://gnews.org/zh-hans/1091497/)
+> "If you wanna talk about the politicization of American science and our establishment, our talking heads, our media head figures, look to the Chinese Communist Party because that's where the real politicization is happening." —[@nataliegwinters](https://twitter.com/nataliegwinters?ref_src=twsrc%5Etfw) [#WarRoom](https://twitter.com/hashtag/WarRoom?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/sEUzx7ObYS](https://t.co/sEUzx7ObYS)
+> — Anne Luty (@anneluty) [April 15, 2021](https://twitter.com/anneluty/status/1382504131319975937?ref_src=twsrc%5Etfw)
 
 
 
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-+7
+0

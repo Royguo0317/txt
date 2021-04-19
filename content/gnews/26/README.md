@@ -1,99 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】背后-最后——斥Pietro Parolin
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1113884/)
+## 中共正在建设近百个像武汉生物病毒学研究所一样的实验室
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1113913/)
 
-作者：纽约香草山健身部 回响
+翻译与评论: Hong
+![]()![](https://gnews.org/wp-content/uploads/2021/04/191.png)图片来自The National Pulse
+中共科技部宣布，国家正在增建3个生物安全四级实验室(P4实验室)和88个生物安全三级实验室(P3实验室)。周四, 中共举行了《生物安全法》实施的揭幕仪式。
 
+中共政权把生物安全纳入中共国家安全体系的一部分，越来越重视生物实验室, 该法律的实施有望进一步为更多生物实验室的建立和安全运行撑起了结实的法律保护伞。中共媒体《环球时报》紧跟中共政权传舌宣传。
 
+《环球时报》还援引武汉大学病原生物学系副主任的话说，这部法律启动的”很及时”，该法”为包括传染病在内的生物安全科研项目提供了法律保障。” 在2020年4月，中共国就已经有两个P4实验室已投入使用，81个P3实验室正在营运或已经获批并开始建设。这次新生物实验室项目表明了中共国现有的P3和P4生物实验室建设的增长率达100％以上。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+中共国卫生部声称：“通过实施新的法律，中共国意在提高国家的生物科学研究水平，预防和控制潜在的动植物传染病疫情的爆发。
 
+但是，包括美国前疾病控制和预防中心主任罗伯特-雷德菲尔德（Robert Redfield）在内的几位科学家都支持中共病毒(COVID-19)起源于中共国生物实验室的理论。
 
+中共政权正在走向疯狂，中共政权一直在没有底线地研制生物武器危害世界，肆虐全球。当邪恶势力作恶达到一定程度时，必将遭到正义的惩罚。眼下全球以毒灭共已形成不可逆转的趋势，中共政权必将亡于自己发动的超限生物战。
 
-2020年10月21日据法广报道，对于中梵秘密协议，帕罗林声称 ，“这项协议值得续签，因为两年的协议期太短了，很难评估其价值。”
+（文章仅代表作者本人观点,与GNews无关）
 
-随后，2021年4月12日《支柱》（The Pillar）报道，曾主导梵蒂冈和中共签下协议的红衣主教皮特罗-帕罗林，因涉一起数亿欧元的非法投资洗钱案，可能被追究法律责任。
+*审稿：**Runaway*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-314.png)图源网络
+*发稿：**MG1*
 
-披着羊皮的羊以为自己是狼
-
-披着羊皮的狼把自己装成羊
-
-… …
-
-你是什么东西——
-
-披着神的外衣
-
-干的是什么勾当？！
-
-什么“大主教”
-
-什么“教廷国务卿”
-
-什么这“主人”那“主人”
-
-能把你的狰狞
-
-永远遮挡？！
-
-操弄一纸魔鬼协议——
-
-何止是什么金钱贪腐，
-
-何止是什么触犯法律
-
-你出卖的
-
-是信众无价信任、 自己神赐的灵魂
-
-玷污的
-
-是不可侵犯的神明 宗教巍峨的殿堂
-
-你出卖、牺牲的是生命——圣徒的生命
-
-神圣背后
-
-充满卑鄙、无耻
-
-庄严背后
-
-充满罪恶、肮脏
-
-… …
-
-你怎么可能有其他结局？
-
-除了——
-
-被钉上宗教耻辱柱
-
-万劫不复
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*新闻参考来源：*
 
 
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+> [Chinese Communist Party Constructing Nearly 100 More Bio Labs Like Wuhan Institute of Virology.](https://thenationalpulse.com/breaking/ccp-constructing-100-more-wuhan-biolabs/)
 
 
-
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
 0
