@@ -1,59 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美情报机构领导人国会听证 警告前所未有的中共威胁
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1115551/)
+## 【热点播报】继马云后，刘长乐被净身出凤凰
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1115688/)
 
-据《路透社》作者：Mark Hosenball, Daphne Psaledakis, Patricia Zengerle, 2021年4月15日报道：
+作者：纽约香草山健身部 Ivy001
 
-翻译：康州盘古农场 – TrueSky
-校对：康州盘古农场 – Mike Li
-编辑：康州盘古农场 –蓝精灵
 
-据《路透社》作者：Mark Hosenball, Daphne Psaledakis, Patricia Zengerle, 2021年4月15日报道：
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/0E15311C-FFCB-4B56-BF90-37C0784BA925.jpeg)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-*2021**年4月14**日，在美国华盛顿特区国会山，国家情报总监办公室（**ODNI**）主任艾薇儿**–**海因斯（**Avril Haines**）在参议院情报特别委员会关于全球威胁的听证会上作证。**Saul Loeb/Pool via REUTERS*
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/468298ED-CC3A-4F16-8D82-73C010A80EC2.jpeg)
 
-*2021**年4月14**日，在美国华盛顿特区的国会山，国家情报总监办公室（**ODNI**）主任艾薇儿**–**海因斯（**Avril Haines**）在参议院情报特别委员会关于全球威胁的听证会上调整口罩作证。**Saul Loeb/Pool via REUTERS**。*
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/E1E20802-E45A-4DFD-B6A2-0F8518D8B8CD.jpeg)
 
-*2021**年**4**月**14**日，在美国华盛顿特区国会山，国家情报总监办公室（**ODNI**）主任艾薇儿**–**海因斯（**Avril Haines**）与中情局局长威廉**–**伯恩斯（**William Burns**）和联邦调查局局长克里斯托弗**–**雷（**Christopher Wray**）在参议院情报特别委员会关于全球威胁的听证会上作证之前，与他们交谈*
+继之前对阿里巴巴的百亿罚款之后，中共继续对刘长乐出手。凤凰卫视大股东刘长乐已售空手中凤凰卫视股份，中共正式接管凤凰。
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/2F9A1E31-586E-44E6-92B2-DA8BD5053CCA.jpeg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS2138【熱點播報】繼馬雲後，劉長樂被淨身出鳳凰.jpg)刘长乐 / 图片来源：网路
 
-*2021**年4月14**日，在美国华盛顿特区国会山，国家安全局（**NSA**）局长保罗**–**纳卡松在参议院情报特别委员会关于全球威胁的听证会上作证。**Saul Loeb/Pool via REUTERS*
+继之前对阿里巴巴的百亿罚款之后，中共当局给马云两个选择。一，马云出售手上所有持股给现有的蚂蚁集团或阿里巴巴集团的投资人，但是，不能卖给任何和他关系密切的实体或人士，并要求马云必须彻底地退出蚂蚁集团。二，将手上所有持股转让给政府有关的投资人。无论马云最终选择哪个方案，都必须获得中央的同意，才能进行转让。
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/F44D3736-870D-4DFC-8B1E-893AD708B582.jpeg)
+从阿里巴巴，到今天蚂蚁集团，马云一直高居被退出名单榜首，而且中共的手段越来越不加掩饰。马云真的能退钱保命吗？让我们拭目以待。
 
-*2021**年4月14**日，在美国华盛顿的国会山，中情局局长威廉**–**伯恩斯在参议院情报特别委员会关于全球威胁的听证会上作证。**Saul Loeb/Pool via REUTERS*
+4月18日[突发消息](https://www.voachinese.com/a/Phoenix-TV-founder-Liu-Changle-to-step-down-amid-management-shakeup-20210210/5772970.html)，凤凰卫视大股东刘长乐已售空手中持有的38%凤凰卫视股份，凤凰卫视管理层发生重大人事变动，刘长乐及其家族退出管理层，紫荆文化（香港）集团有限公司将入主凤凰卫视，中共正式接手。
 
-美国间谍机构领导人周三在国会”全球威胁”公开听证会上两年多来首次作证时表示，中共国是”无可比拟”的优先事项，并提到北京的地区侵略和网络能力。
+由此可见，中共当局正在加快对中国企业家的收割，下一个会是谁呢?在中共邪恶政权的领导下，没有任何人、任何企业家能够逃脱被共产，被夺产，甚至被夺命的魔咒。要想保命保财，灭共，是唯一的出路。
 
-国家情报局局长艾薇儿-海因斯告诉参议院情报委员会，”鉴于中共国是情报界无可比拟的优先事项，我将首先强调来自北京的威胁的某些方面”。她形容中共国日益成为”一个能在多个领域挑战美国的近乎同等的竞争对手”。联邦调查局局长克里斯托弗-雷说，他的机构每10小时就会开启一项与中共国有关的新调查。海因斯还指出，俄罗斯破坏美国影响力的努力、伊朗对中东不稳定的贡献、全球恐怖主义，以及朝鲜在华盛顿及其盟友之间”制造楔子”的潜在努力是重大威胁。
+编辑/校对/发稿：雪梨
 
-海因斯和其他情报局长出场该听证会，这是2019年1月以来首次举行此类公开的”全球威胁”听证会，经常与安全机构发生冲突的前总统唐纳德-川普，去年没有派官员在通常是一年一度的活动中作证。该委员会主席、民主党参议员马克-华纳说，他对去年没有举行听证会感到”失望”。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
-**强调技术**
+**更多资讯，更多关注**
 
-听证会的大部分内容都集中在技术上–来自黑客的威胁、前沿发展的重要性以及社交媒体的恶性影响。
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-小组共和党副主席马尔科-鲁比奥说，”今天的技术环境让对手可以肆意破坏。”华纳注意到北京为使中国公司华为(HWT.UL)成为先进5G系统的领导者所付出的努力，并表示他担心北京可能会在其他新兴技术方面做出类似的努力。注意到像最近的SolarWinds攻击这样的国际计算机黑客攻击的危险，华纳说，”我们可能还想制定新的国际规范，禁止某些类型的攻击，就像禁止使用化学或生物武器一样。”
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-中央情报局局长威廉-伯恩斯、国家安全局局长保罗-纳卡松将军，国防情报局局长斯科特-贝里尔中将也参加了作证。伯恩斯说，中央情报局近三分之一的工作人员都集中在网络问题上。纳卡松和雷表示，情报机构可以从公司提供的更多网络威胁信息中获益，但没有直接认可一些国会议员的呼吁，即立法要求Facebook（FB.O）和Twitter（TWTR.N）等公司提供更多信息。雷表示，社交媒体已经成为国内暴力极端主义和国外恶意影响的”关键放大器”。雷说，”同样的事情，吸引人们出于好的原因，也能够造成各种危害。”
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-美国情报机构周二发布了一份关于全球威胁的全面报告。国家情报委员会的报告称，疾病、贫富差距、气候变化以及国家内部和国家之间的冲突将带来更大的挑战，COVID-19已经使其中一些问题恶化。
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-情报负责人将于周四在众议院情报委员会举行的第二次全球威胁听证会上作证。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-原文链接：[https://www.reuters.com/world/us/us-spy-chiefs-warn-unparalleled-china-threat-return-congress-2021-04-14/](https://www.reuters.com/world/us/us-spy-chiefs-warn-unparalleled-china-threat-return-congress-2021-04-14/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-+1
+0

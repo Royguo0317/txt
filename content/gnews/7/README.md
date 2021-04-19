@@ -1,31 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】04/18/2021：日本相当清楚中共目前的道路完全走不通只会做末端应用日本之前是遵守协议而非真正害怕中共
-` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1116079/)
+## 捷克与俄罗斯互逐外交官
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1116230/)
 
-**制作：Cantonese工作室**
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/z-3.jpg)radio.cz
+04月19日，捷克使馆20名雇员被驱逐出俄罗斯后，使馆内将只剩下5名外交官。据《捷克新闻社》报道，这是捷克总统行政部门国际司司长鲁道夫·金德拉克（Rudolf Jindrak）宣布的。
 
+“五名外交官将留在那里。要走的人不是特工。他们得到了24小时，而（被驱逐出捷克共和国的）俄罗斯外交官得到了48小时。”金德拉克说。
 
-**播报：【二丫】资料整：【郁金香】【文林】【深寒极至】海报制作：【侬民】剪辑：【Ken】发布：【向阳6768】**
+他还对俄方为何比捷克多驱逐两人表示不解。
 
-摘要：
+4月17日，捷克共和国要求18名俄罗斯外交官离开该国，它认为这些外交官是俄罗斯特工部门的雇员。他们有48小时的时间离开。据捷克总理安德烈·巴比什称，捷克当局怀疑总参谋部总局局长（前身为GRU）的雇员参与了2014年发生在弗尔贝蒂察的一个弹药库的爆炸事件，该事件造成两人死亡。
 
-1
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__02.jpg)
-2
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__03.jpg)
-3
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__04.jpg)
-4
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__05.jpg)
-5
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__06.jpg)
-6
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__07.jpg)
-7
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__08.jpg)
-8
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__09.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/0-3.jpg)
+俄罗斯外交部称对俄外交官的指控是“牵强的借口”。它说，布拉格采取这样的步骤是“为了取悦美国”，而美国早前也宣布驱逐俄罗斯外交官。
+
+此外，俄罗斯外交部还宣布20名捷克外交官为不受欢迎的人。他们将于4月19日晚离开该国。外交部门指出，这将实现“与俄罗斯驻捷克大使馆同类雇员人数持平”。
+
+参考链接：
+
+[https://www.rbc.ru/rbcfreenews/607cb83b9a794785c55550bb](https://www.rbc.ru/rbcfreenews/607cb83b9a794785c55550bb)
+
 0
