@@ -1,33 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 江泽民、江绵恒、江志成终在Lawrence Sellin博士的病毒全家福团聚
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1115236/)
+## 恶意破坏压制不了正义的声音
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1115206/)
 
-【日本东京方舟农场】撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
-![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-77.jpg)
-据[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午2:36 · 2021年4月19日](https://twitter.com/LawrenceSellin/status/1384033118198272000)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文
+撰稿：童媚
+![]()![](https://gnews.org/wp-content/uploads/2021/04/djy.png)图片来自于大纪元网站
+据大纪元2021年04月17日讯，《大纪元时报》在香港的印刷厂遭到暴力袭击。当地时间4月12日凌晨4时多，承印香港《大纪元时报》的印刷厂，被持刀歹徒攻击，挥舞大锤捣毁机器，抢走电脑，泼洒混凝土块增加维修难度，现场一片狼藉。
 
+4月15日，定居澳洲的台湾作家、资深媒体人苏拾莹在接受大纪元采访时表示，中共惧怕大纪元报导事实真相，是袭击香港大纪元事件的始作俑者，目的是箝制言论自由。为何中共那么大的国家机器要惧怕一家媒体？先来看看大纪元的背景。
 
+《大纪元》2000年在美国创立，目前在美国有十三个报社，在加拿大有六大报社，在欧洲有四大报社，在澳洲有六大报社，发行范围远远超过其它当地中文报纸，分别成为美国、加拿大、欧洲及澳洲当地最大的中文媒体。二十世纪末，由于中共对内实行新闻过滤与封锁、对外操纵海外媒体，海内外民众有了解真相的迫切需求。有感于当时的媒体现状，一些志同道合的年青人怀着对社会的责任感和使命感，决定一起创办一家独立的中文媒体，忠实报导时事，开创新闻事业新视角。
 
-> How does China's political-business component and rivalries play into the laboratory origin of the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) pandemic?
-> (hat tip to Yaacov Apelbaum)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#corona](https://twitter.com/hashtag/corona?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/KxFNJzB0ZF](https://t.co/KxFNJzB0ZF)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 19, 2021](https://twitter.com/LawrenceSellin/status/1384033118198272000?ref_src=twsrc%5Etfw)
+多年本着尊重事实，为真相发声的态度，《大纪元》很快受到世界各地读者们的喜爱与支持。2003年9月，《大纪元》推出英文网；2004年8月英文报纸首先在纽约发行，并推广到全美。2005年大纪元在法国、德国分别发行法文和德文的大纪元时报。大纪元媒体集团目前在全球35个国家设有分支机构，拥有包括中文、英文、法文、西班牙文、韩文、日文，印尼文、和希伯来文8种语言的报纸，以及包括德文、俄文、意大利文、葡萄牙文、罗马尼亚文、保加利亚文、捷克文等23种语言的网站。同时，大纪元拥有全球华人精英杂志《新纪元周刊》、印刷厂及出版社。在海外的华人群体迅速积攒了声誉，做到了“有华人的地方就有大纪元”。
 
+特别在2020年的美国总统大选中，《大纪元》是屈指可数的敢于报道选票造假、大选黑幕的媒体，因此也受到了美国右派的认可，前国务卿彭佩奥和许多知名的共和党议员都接受过《大纪元》的专访。
 
+此次大纪元遭受人为恶意破坏的事件背后，再次显出了中共的黑手。中共对香港所做的一切，已彻底将香港的民主自由法治碾碎，以黑治国的理念照搬复制，现在想要在香港迫害一个个人或者企业，简直易如反掌。
 
-How does China’s political-business component and rivalries play into the laboratory origin of the [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) pandemic? (hat tip to Yaacov Apelbaum) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hashtag_click) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click) [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) [#corona](https://twitter.com/hashtag/corona?src=hashtag_click)
+中共攻击大纪元几个可能的原因，笔者分析如下：
 
-中文大意：在[＃COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click)大流行的实验室起源中，中国的政治业务组成部分和竞争因素如何发挥作用？（小费福利送给Yaacov Apelbaum）[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click)[＃不受限制的生物战](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hashtag_click)[＃不受限制的生物武器](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)[中共病毒起源](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click)[＃COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click)[＃冠状病毒](https://twitter.com/hashtag/coronavirus?src=hashtag_click)[#corona](https://twitter.com/hashtag/corona?src=hashtag_click)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/EzUSqffUYAEQB2v.jpg)
-Lawrence Sellin博士推文中的图片的中文翻译据[奔向自由 2021年以毒灭共，以钱灭共跟随我们的《灭共统帅》郭文贵先生，继续灭共，永不回头@jianzhi30855277](https://mobile.twitter.com/jianzhi30855277)于[下午5:34 · 2021年4月19日](https://mobile.twitter.com/jianzhi30855277/status/1384077975235166208)·[Twitter for Android](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)
+首先，大纪元具有强大的读者基础，而大纪元坚守的维护民众的知情权，捍卫新闻自由的良心媒体形象，已让中共无法忍受自己的罪行被越来越多的人知道，这种以几何倍数增加的传播效应，让中共惧怕，因此用最简单粗暴的流氓本质进行打击报复。
 
-回复 [@LawrenceSellin](https://mobile.twitter.com/LawrenceSellin)的推文[https://mobile.twitter.com/jianzhi30855277/status/1384077975235166208](https://mobile.twitter.com/jianzhi30855277/status/1384077975235166208)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/EzU7lByVkAIfj9I.jpg)
-也就是说这是一张中共病毒全家福，在这张全家福中的家长是江泽民，蛤子江绵恒中国科学院前副所长及P4实验室和许多其他生物机构、上海高校、上海医院及军医院和军事研究机构的控制人；蛤孙江志成掌控复星医药等医疗产业的股权和专利；蛤孙的合作伙伴是在武汉P4实验室任主任的袁志明和石正丽以及他们的法国勋章；蛤子江绵恒的合作伙伴是现任中国红十字会会长陈竺；蛤本人江泽民通过共产党控制着中国科学院以及武汉病毒研究所和武汉P4实验室。
+其次，从2019年香港反送中运动之后，香港的步步沦陷都是中共刻意为之，种种劣行背后处处都可以看到中共的黑手。最典型的浑水摸鱼就是中国的黑社会混入香港自由抗议的民众中，用打砸抢的恶劣行为制造民众破坏的假象，另外中国的武警混入香港的警队，对抗议民众打压、虐杀、损坏香港警队的形象，也让这种黑社会做法登堂入室。
 
-现在全家福凑齐了，江泽民及蛤子蛤孙江绵恒、江志成以和蛤子蛤孙的爪牙袁志明、石正丽、陈竺以及蛤子蛤孙及爪牙控制的中国科学院、武汉病毒研究所、武汉P4实验室及蛤子蛤孙控制的相关与病毒有关的企业都在这张全家福里大团圆了，但是这还不是剧终，这仅仅是续幕，让我们共同见证终极审判那一刻。
+第三，中共敢于在香港这片土地为所欲为，一方面是中南坑勾结港政府，让港府以及有影响力的四大家族等精英阶层全部屈服于中共的淫威，另一方面，通过强推国安法，破坏民主选举制度等方式，将香港的自由彻底粉碎。现在的香港被笼罩在红色恐怖中，几万人被莫名死亡，上街无理由被抓捕，无根据被判刑。在这样一个法无度的政权下，用暴力手段攻击一家媒体，更是不用惧怕任何舆论压力，因为香港早已没有了舆论环境和言论自由。
 
-（文章内容仅代表作者个人观点）
+综上，我们再联系到美国的FACEBOOK和TWITTER等大型社交媒体对言论管控的事实。背后的蛛丝马迹也与中共脱不清关系，中共执政七十年，用这种高压的言论打压，尝到了可以为所欲为以假乱真的甜头，因此，对海外媒体的渗透是中共在外统战的重中之重。但类似大纪元这样无惧打压和渗透的媒体，中共能做的只有一招，就是恶意报复和破坏。
 
+这个事情折射的两个问题值得我们新中国联邦人深思。
+
+首先，要重视中共强大的影响力和无恶不敢作的流氓行为。新中国联邦的G系列媒体平台，秉持“唯真不破”的原则，揭露中共假恶丑，用真相和事实唤醒民众，让其不要沦为中共的打手和同谋。我们态度明确的立场一直以来也遭遇着中共的打压与报复。但我们要坚持的，就是新中国联邦的初衷，不畏强权，积极发声，一时的打压无法让真相封存，也无法让良知泯灭，只要我们万众一心，日拱一卒，邪恶政权总有瓦解的那一天。
+
+第二，媒体的本质就是为真相发声。大纪元的发展过程让我们看到了坚持真相的重要性和顽强的生命力。我们任何一个正常的人类，内心都存在对真相的渴求，因为只有坚持真相，才能让我们在正道之路上越走越远，而人类文明的发展也是因为不断对真相和真理的探索，创造了无数奇迹。痛心的是，有多少媒体因为放弃了真相，选择与魔鬼为伍，而失去了人民的支持和拥护，而一家没有群众基础的媒体，只为利益集团所用，就失去了灵魂，久而久之，也沦为邪恶的一部分，终将会覆灭。
+
+新中国联邦人因坚持真相而生，因追求真善而行，这是我们建国的初衷，也必然成为我们立国之本，邪恶无法将我们打倒，因为正义从不会缺席，只要我们坚持，胜利就在不远的前方。
+
+（本文仅为个人观点）
+
+新闻来源：[香港大纪元被袭 中共是始作俑者](https://www.epochtimes.com/gb/21/4/17/n12886035.htm)
+
+*审核 & 编辑：Runaway*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 0

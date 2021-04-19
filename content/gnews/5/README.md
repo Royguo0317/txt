@@ -1,31 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】04/18/2021：日本相当清楚中共目前的道路完全走不通只会做末端应用日本之前是遵守协议而非真正害怕中共
-` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1116079/)
+## 郭文贵发现傅政华用完自己想再灭口，于是走上了爆料的道路
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1116111/)
 
-**制作：Cantonese工作室**
+4/19/2017 郭文贵：傅政华绑架了郭文贵的家人及员工逼迫郭文贵查王歧山、孟建柱的资料；郭文贵完成调查任务后，傅政华却违背承诺继续更加疯狂地虐待郭文贵的家人及员工；郭文贵发现他们确实是想灭了自己一家人，于是走上了爆料的道路。
 
+By： 【秘密翻译组 G-Translators】
 
-
-**播报：【二丫】资料整：【郁金香】【文林】【深寒极至】海报制作：【侬民】剪辑：【Ken】发布：【向阳6768】**
-
-摘要：
-
-1
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__02.jpg)
-2
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__03.jpg)
-3
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__04.jpg)
-4
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__05.jpg)
-5
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__06.jpg)
-6
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__07.jpg)
-7
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__08.jpg)
-8
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__09.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/0-3.jpg)
 0

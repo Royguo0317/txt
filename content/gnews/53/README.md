@@ -1,55 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】中共网军 圈养的年华
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1115135/)
+## 江泽民、江绵恒、江志成终在Lawrence Sellin博士的病毒全家福团聚
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1115236/)
 
-作者：纽约香草山写作组  猪逻辑
-
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
-
-
-
-美国乔治城大学安全与新兴技术中心（CSET）的研究员费瑞安（Ryan Fedasiuk）日前称，中共不但雇用两百万评论员，也开始依赖超过两千万的“网络文明志愿者”，展开多方位舆论战。费瑞安（Ryan Fedasiuk）在采访中说道，很多网络文明志愿者都是大学生，因为团中央和教育部2015年联合发布的这份指导文件要求包括香港在内的全国各地的大学党支部组建评论员团队，以便开展网络文明志愿者工作。他们大多都很年轻，如果你查看一些大学党支部发布的志愿者名单，他们平均只有十九岁。这些人被要求兼职在网上发布富有攻击性的帖子，以“净化”网络空间，而中共国网民受中共宣传的很大影响。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/20210416015331656.jpg)图片来源：阿波罗新闻网
-
-中共靠人海战术，竟然组织雇用到2000万大军，“泼”可敌国，持续不断为赵家包装，传播“正能量”，传播“政治正确”的溢美之词，实际上给一大坨屎喷再多香水也改变不了其恶臭的糜烂本质。
-
-中共多年统治下阶级固化，贫寒难出贵子，国民晋升的通道和机会也被权贵阶级牢牢掐死和卡住，加之经济下滑，底层年轻人前途渺茫，一方面为了疏导底层失业和生活压力引起的对社会和政治的不满，一方面为了“和谐社会”、坚决维护猪圈幸福的假象，他们被顺利“吸纳”和“招安”，才出现上千万大军呆坐着家里靠网上泼大粪就能“带动就业”“拉动中共国GDP”这一奇特现象。某种程度上，这也掐死了这些普通年轻人通过改变政治而改变命运的意愿。
-
-观察几年前蔓延突尼斯、利比亚、埃及、叙利亚等地的中东茉莉花革命，笔者认为与这些国家的人口结构中年轻男性占比较高有很大关系。该年龄层往往对腐败和不平等不公平的现状不满，求变思变，最后成为颠覆多年来独裁政权的中坚力量，这就像生物界年轻雄性对于霸占更多资源的头领的挑战。而在中共国似乎一切都不一样了，本应最富创造力和正义感，最热血求进步的年轻人，在大好年华被统治阶级运动式地组织起来，被阉割，被圈养（一些水军则只是为了以后“顺利提干”），自愿或被自愿地卷入庞大的宣传系统，“主动删除不良资讯”，“有效引导网路舆论风向”，“监视网络言论”，维护主子的“核心利益”，泼大粪，谩骂，意淫，无理，以偏概全，逻辑颠倒，强化洗脑，误导民众。
-
-这让笔者想起中共在文革浩劫期间进行的青年下乡“再教育”运动，将一大批好端端的知识青年送到农村去种地，荒废了整整一代人，甚至影响到下一代人的命运。
-
-自由亚洲电台：“五毛”已经out 中国现靠两千多万的“网络志愿者”
-
-[https://www.rfa.org/mandarin/yataibaodao/meiti/hc-04142021111449.html](https://www.rfa.org/mandarin/yataibaodao/meiti/hc-04142021111449.html)
-
-大纪元：中共招募两千多万“青年网军”平均19岁
-
-[https://www.epochtimes.com/gb/21/4/15/n12882342.htm](https://www.epochtimes.com/gb/21/4/15/n12882342.htm)
-
-中央通讯社：2000万中国网军打舆论战平均年龄19岁
-
-[https://www.cna.com.tw/news/acn/202104150255.aspx](https://www.cna.com.tw/news/acn/202104150255.aspx)
-
-校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpeg)
+【日本东京方舟农场】撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-77.jpg)
+据[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午2:36 · 2021年4月19日](https://twitter.com/LawrenceSellin/status/1384033118198272000)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文
 
 
 
-**更多资讯，更多关注**
+> How does China's political-business component and rivalries play into the laboratory origin of the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) pandemic?
+> (hat tip to Yaacov Apelbaum)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#corona](https://twitter.com/hashtag/corona?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/KxFNJzB0ZF](https://t.co/KxFNJzB0ZF)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 19, 2021](https://twitter.com/LawrenceSellin/status/1384033118198272000?ref_src=twsrc%5Etfw)
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+How does China’s political-business component and rivalries play into the laboratory origin of the [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) pandemic? (hat tip to Yaacov Apelbaum) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hashtag_click) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click) [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) [#corona](https://twitter.com/hashtag/corona?src=hashtag_click)
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+中文大意：在[＃COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click)大流行的实验室起源中，中国的政治业务组成部分和竞争因素如何发挥作用？（小费福利送给Yaacov Apelbaum）[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click)[＃不受限制的生物战](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hashtag_click)[＃不受限制的生物武器](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)[中共病毒起源](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click)[＃COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click)[＃冠状病毒](https://twitter.com/hashtag/coronavirus?src=hashtag_click)[#corona](https://twitter.com/hashtag/corona?src=hashtag_click)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/EzUSqffUYAEQB2v.jpg)
+Lawrence Sellin博士推文中的图片的中文翻译据[奔向自由 2021年以毒灭共，以钱灭共跟随我们的《灭共统帅》郭文贵先生，继续灭共，永不回头@jianzhi30855277](https://mobile.twitter.com/jianzhi30855277)于[下午5:34 · 2021年4月19日](https://mobile.twitter.com/jianzhi30855277/status/1384077975235166208)·[Twitter for Android](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+回复 [@LawrenceSellin](https://mobile.twitter.com/LawrenceSellin)的推文[https://mobile.twitter.com/jianzhi30855277/status/1384077975235166208](https://mobile.twitter.com/jianzhi30855277/status/1384077975235166208)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/EzU7lByVkAIfj9I.jpg)
+也就是说这是一张中共病毒全家福，在这张全家福中的家长是江泽民，蛤子江绵恒中国科学院前副所长及P4实验室和许多其他生物机构、上海高校、上海医院及军医院和军事研究机构的控制人；蛤孙江志成掌控复星医药等医疗产业的股权和专利；蛤孙的合作伙伴是在武汉P4实验室任主任的袁志明和石正丽以及他们的法国勋章；蛤子江绵恒的合作伙伴是现任中国红十字会会长陈竺；蛤本人江泽民通过共产党控制着中国科学院以及武汉病毒研究所和武汉P4实验室。
+
+现在全家福凑齐了，江泽民及蛤子蛤孙江绵恒、江志成以和蛤子蛤孙的爪牙袁志明、石正丽、陈竺以及蛤子蛤孙及爪牙控制的中国科学院、武汉病毒研究所、武汉P4实验室及蛤子蛤孙控制的相关与病毒有关的企业都在这张全家福里大团圆了，但是这还不是剧终，这仅仅是续幕，让我们共同见证终极审判那一刻。
+
+（文章内容仅代表作者个人观点）
 
 0
