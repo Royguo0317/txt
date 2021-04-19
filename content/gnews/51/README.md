@@ -1,51 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】为什么默克尔“悄悄”接种了AZ疫苗 ？
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1113762/)
+## 【世事解评】乌克兰东部局势紧张
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1113797/)
 
-作者：纽约香草山媒体部 蜜蜂
+作者：教育部 孤独的战友
+
+翻译：Nancy
+
+**导读：**默克尔（Merkel）、马克龙（Macron）和塞伦斯基（Selenskyj）要求俄罗斯从乌克兰边境撤军 沃洛迪米尔-塞伦斯基（Wolodymyr Selenskyj）希望与普京进行会谈。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-37.png)
+据奥地利标准报2021年4月16日报道，在因乌克兰东部冲突所召开的危机视频会议上,  德国总理默克尔(Merkel)和法国总统埃尔-马克龙(El Macron) 呼吁俄罗斯沿乌克兰边境撤军。据报道，俄罗斯没有被邀请参加这次视频会谈。周五晚间，默克尔在柏林表示，实现乌克兰边境局势缓和的唯一途径就是撤军，法国总统马克龙对此表示认同。乌克兰总统沃洛迪米尔-塞伦斯基  (Volodymyr Selenskyj ) 在视频通话后表示，希望与俄罗斯同仁弗拉基米尔-普京 (Vladimir Putin) 在克里米亚进行和平谈判。
+
+标准报指出，亲俄的分离主义分子控制乌克兰东部沿俄罗斯边境地区已近7年。在此期间，该地区冲突时有发生，据联合国估计伤亡人数已达13000人。最近的紧张局势是由于俄罗斯在乌克兰边境东部部署新的兵力造成的。两周前，默克尔和马克龙还曾与克里姆林宫领导人通过电话。随后，普京就对 “乌克兰挑起了武装对抗升级 “，这引起了国际社会对该地区出现冲突升级的担忧。
+
+乌克兰总统塞伦斯基  （Selenskyj）在视频通话后表示，他希望与俄罗斯普京总统在克什米尔举行峰会。据报道，法国、德国、俄罗斯和乌克兰未来准备在诺曼底举行四方会议。
+
+马克龙此前曾在巴黎接见过塞伦斯基。法国总统府表示，乌克兰国家元首的访问为会谈注入了新的动力，他们会尽所能，让俄罗斯回到谈判桌上来。据塞伦斯基（Selenskyj）说，德国和法国计划在下周一举行新的咨询会谈，以便对冲突进行调节。
+
+据报道，默克尔和马克龙在视频会议后强调 “支持乌克兰的独立、主权和领土完整”。
+
+译者评：为缓解乌克兰东部边境冲突，2019年底，在默克尔和马克龙的斡旋下，普京和塞伦斯基曾在巴黎首次会面。然而，自那时以来，达成重大和解和举行后续首脑会议的希望并未实现。目前边境地区约有10.2万名俄罗斯士兵。据了解，到4月20日，这一部队集结还会增加到11万人。俄罗斯此时挑起边境冲突，目的何在，有待观察。
+
+审核/发稿 奇门遁甲
+
+Link: [Merkel, Macron und Selenskyj fordern russischen Truppenabzug von der ukrainischen Grenze – Ukraine – derStandard.at › International](https://www.derstandard.at/story/2000125912898/ukrainischer-praesidentselenskyj-bereit-zu-friedensgespraechen-mit-putin)
 
 
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-德国之声中文网4月17日报道：“德国总理默克尔周五接种了第一剂阿斯利康疫苗，但联邦总理府只以两三句话轻描淡写带过此事…….默克尔并不想引起太多关注。”
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-312.png)图源网络
-
-德国在不到一个月的时间里，将适合注射AZ疫苗的群体从开始的18-60岁，转成了目前的60岁以上（默克尔67岁）才能接受注射，态度180度大转弯。德国政府给出的理由是，疫苗不良反应引起血栓或致死的人群年龄均小于60岁，所以这个群体不适合接受此疫苗了。看到这里，笔者不由得想说，政府早干什么去了，拿百姓当实验品打着玩吗？另一方面，又是什么原因让有关部门对于这个问题一直支支吾吾？无论是欧盟还是德国，疫苗的研发力都不算差，但却一谈到疫苗问题就含糊其辞。他们给出的笼统说法是，注射疫苗利大于弊，血栓的死亡率低于病毒感染的死亡率。因此，只需要换个人群继续打疫苗。但有人敢说，打了疫苗就不会被感染了吗？恐怕默克尔自己也心怀疑虑——病毒真正的来源她不应该没听说过吧？否则，面对每日2万左右这一庞大的感染数字，她应该高调宣传、积极推广打疫苗才是自己的本份，干嘛要悄悄打这疫苗呢？因此，原因之二可能是，当天默克尔与习近平视频会见，为了好交差，只能无耐鼓起勇气发推表明立场，说自己打了AZ欧洲疫苗。至于兜售党国疫苗，就另当别论了。然而，虽是低调说出打了疫苗，但默克尔此举还是起到了一箭双雕的效果。事后，默克尔还默默地“感谢所有参与疫苗注射工作的人，还有所有已经接种了疫苗的人。”而德国政府也与欧盟药管局（EMA）串通一气，并不高明地给AstraZeneca（AZ）换了个马甲，现名为Vaxzevria，给希望得到“感谢”的人来用。
-
-综上所述，默克尔“低调打疫苗”显示出她对疫苗的信心不足，亦或另有隐情。我就不信以毒灭共的烈火烧不到她身上。
-
-参考阅读：
-
-[德国政界为何打疫苗都“悄无声息”？](https://twitter.com/dw_chinese/status/1383412900094627854?s=12)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑：灵性探索
-
-编辑/校对/发稿：Irene木木
 
 **更多资讯，更多关注**
 
 [**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://mail.google.com/mail/u/0?ui=2&amp;ik=6ac942a4c5&amp;attid=0.1.1&amp;permmsgid=msg-f:1697211554661162166&amp;th=178db4eab0445cb6&amp;view=fimg&amp;sz=s0-l75-ft&amp;attbid=ANGjdJ_BYMOa49wWkjZNJHHx0uOXcV6mo0Djq5x1efflmXObW40H0H_aAH8QPGnry018k4VgosgARDXdpBGlCPwAsaUIPQNAJ4FSiPt6zapimj8xSx6q0ZATYtuXKUg&amp;disp=emb)
 0
