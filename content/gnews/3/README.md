@@ -1,42 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧盟已同意对缅甸的军事政权实施制裁
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1116724/)
+## 慧眼看世界202104019（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1116746/)
 
-- 翻译：里奇
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年4月19日电/西喜社——**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-8.jpg)
 
-欧盟会议结束后，欧盟外交部长们周一达成共识，同意对缅甸实施几项制裁。军政府中有十人被列入制裁名单。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-9.jpg)
 
-此外，与该国政权和政变有关联的两个集团企业已被列入欧盟的制裁名单。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-8.jpg)
 
-我们通过了这些制裁措施真是太好了。我们为此付出了艰辛的努力。会后外交部长杰普·科弗德（Sep）说。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-10.jpg)
 
-通过制裁，欧盟国家希望将缅甸的治理推向谈判桌。这是德国外交大臣海克斯·马斯（Heiko Maas）在周一的欧盟视频会议后所说的。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-10.jpg)
 
-军事政权继续其暴力路线，并导致该国陷入僵局。这就是为什么我们要施压将军方推到谈判桌前。马斯补充说。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-8.jpg)
 
-这十个人在欧洲的资金将被冻结，他们将无法前往欧盟。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-8.jpg)
 
-受到制裁的两家公司是缅甸经济公司和缅甸经济控股公司，它们通过各种消费品，酒和烟草的贸易赚钱。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-8.jpg)
 
-政变和对该国抗议者的持续暴力证明制裁是合理的。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-8.jpg)
 
-这些是欧盟最近通过的武器禁运和对缅甸军事政权中个人的其他制裁措施的补充。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-12.jpg)
 
-制裁可能从下周开始生效。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-13.jpg)
 
-**简评: 欧洲在醒来！如果民主社会继续无视共产病毒的危害、任其蔓延，最终受害的一定是全人类，正如此次新冠病毒一样。铲除共产毒瘤，反省资本主义的致命缺陷，未来的世界才能安全和谐。**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-15.jpg)
 
-素材：里奇；审核：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-11.jpg)
 
-**新闻来源：**[路透社 (日德兰邮报转载)](https://jyllands-posten.dk/international/ECE12912262/eu-har-aftalt-sanktioner-mod-militaerstyret-i-myanmar/)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-10.jpg)
 
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-9.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-8.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-8.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/18-6.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0

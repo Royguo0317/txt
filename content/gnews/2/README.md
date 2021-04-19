@@ -1,53 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104019（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1116746/)
+## 【煲底再见】写信给墙内的手足
+` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1116737/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+配音:家庭主妇 发布:星星
+**写信系我挣扎咗好耐嘅事**
 
+因为写给墙内手足的信件都要给审查过,如果信件涉及到敏感的话题和字眼,分分钟会对墙内的手足的案件造成很坏的影响.甚至影响审判得结果。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+所以开始得时候,我都很挣扎.到底要不要写好。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01-8.jpg)
+不过呢, 一直以来,我都好挂住高墙内的手足,担心他们睡不睡得好,吃的好不好,在里面过得习不习惯? 幸不幸苦? 而且每天在想, 下半辈子,还能不能有机会再次见到他们。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02-9.jpg)
+**在高墙里面这么多手足,我未必个个都认识,或者对于其他人来说.他们就好像一个无名氏的人一样,但是对于我来讲,感觉他们就好像我的朋友一样熟悉.好像是我的家人一样那么亲切.因为我们在同一个天空之下,为同一件事抗争···**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03-8.jpg)
+曾经有一个手足同我讲:**「只要光复了香港,先可以真正还到自由给高墙内的手足,我会努力得继续抗争直到队友出返黎为止」**但是····,现在,说这句话的手足,他自己都失去了自由,成为了墙内人。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-10.jpg)
+我一定会带着他不死的精神,继续抗争下去。希望有一日,如果他能收到我的信. 就知道我没有忘记,我和他之间得约定—-**香港人得约定**。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05-10.jpg)
+大家都要多写信,鼓励同路人, 大家一起撑落去得最大动力。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06-8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07-8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08-8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09-8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-12.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-13.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-15.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-11.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-10.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-9.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/18-6.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
-
+**香港人加油!! **
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Glory-to-Hong-Kong.jpg)
 0

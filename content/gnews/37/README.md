@@ -1,31 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】04/18/2021：日本相当清楚中共目前的道路完全走不通只会做末端应用日本之前是遵守协议而非真正害怕中共
-` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1116079/)
+## 路简2021.04.18早：日本将取代中共 成为亚太区事物新的区域独家代理人
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1116108/)
 
-**制作：Cantonese工作室**
+**编辑：华盛顿DC农场 路德简报项目组**
+![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/EzVR41GVIAs2eWF-512x1024.jpg)
+
+
+> 2021 年4月18日 路德时评 早 
+> 
+> 1. 中共明白中日即将彻底脱钩 日本将取代中共 成为亚太区事物新的区域独家代理人
+> 
+> 2.《朝日新闻》关注美日同盟和台海局势
+> 
+> 3.克里和中共高调气候声明 只是中共用来给墙内洗脑的假新闻 实际克里是去给中共下最后通牒的 [pic.twitter.com/mc13M1e4eJ](https://t.co/mc13M1e4eJ)
+> — 平民爆料 (@WM18320321) [April 19, 2021](https://twitter.com/WM18320321/status/1384102514832797706?ref_src=twsrc%5Etfw)
 
 
 
-**播报：【二丫】资料整：【郁金香】【文林】【深寒极至】海报制作：【侬民】剪辑：【Ken】发布：【向阳6768】**
+***发布**：文顾*
 
-摘要：
-
-1
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__02.jpg)
-2
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__03.jpg)
-3
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__04.jpg)
-4
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__05.jpg)
-5
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__06.jpg)
-6
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__07.jpg)
-7
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__08.jpg)
-8
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210419-__09.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/0-3.jpg)
 0
