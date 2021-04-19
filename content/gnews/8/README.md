@@ -1,68 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国央行“注水” 股市应声下跌
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1116897/)
+## 【热点播报】二十年载载博鳌亚洲论坛风光不再
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1116956/)
 
-新闻来源：《ZeroHedge》| 作者：TYLER DURDEN | 发布时间：2021年4月15日
+纽约香草山写作二组  桃花水母
 
-翻译：乡间小路 | 简评/校对：Beicy-数学老师 | 审核：万人往 | Page：我是球大哥
-
-[!\[\]()!\[\](https://spark.adobe.com/page/kXUBGq7PFNqiq/images/69f97029-311a-4f73-96fb-ca6b95a7ab5a.jpg?asset_id=cc6c0545-4552-4a93-b274-53d83039e788&amp;img_etag=%222c1f9622b91562ffa6edac83a0e1a551%22&amp;size=1024)](https://spark.adobe.com/page/kXUBGq7PFNqiq/images/69f97029-311a-4f73-96fb-ca6b95a7ab5a.jpg?asset_id=cc6c0545-4552-4a93-b274-53d83039e788&amp;img_etag=%222c1f9622b91562ffa6edac83a0e1a551%22&amp;size=1024)
-
-**简评：**
-
-本新闻报道了上周四中共国股市下跌，表面缘由是中共央行通过中期借贷便利向金融体系注入了1500亿元人民币（230亿美元），这一数字略低于四月到期的中期借贷便利，引起沪深300指数迅速作出反应下跌。实际上，中共“擀面杖子”经济脆弱，2020年年底中共国的债务与GDP比率飙升至创纪录的279％。加上地方政府大量债务，股市早已经惊慌惊恐，崩盘是早晚的事。
-
-华融资产管理公司是中共国最大的不良债务管理公司之一，中共国有企业。原掌门人赖小民作为中共内斗的弃子，在2021年1月29日上午于天津被执行死刑，其股票停牌，美元债遭市场抛售。但本文以为华融崩溃是央行流动性收紧所致，却是七哥所说的对待CCP“too high, too naive”。CCP在美上市企业都是中共绞肉机上的吸血管，CCP不死，股市吸血不会停。
-
-**原文翻译：**
-
-## **中共国股市下滑，中国人民银行近期的现金注入再次令交易者失望**
-
-中共国信贷脉冲（指数）持续走低——我们在最近几周在这里已经广泛地讨论过，这让最近的信贷脉冲数据和市场表现看起来都不让人满意。
-
-中共国股市周四下跌，此前央行强调要通过增加足够的现金来维持中期流动性进而控制杠杆率和实现政策正常化。
-
-周四，中国人民银行通过中期借贷便利向金融体系注入了1500亿元人民币（230亿美元）。尽管本月流动性将收紧，这一数字略低于四月到期的中期借贷便利。4月25号到期的中期借贷便利有1000亿元人民币，即将到期的定向借贷为561亿元人民币。
-
-中国人民银行在第一季度撤回了一个净值405亿元的一年期专项基金，因为政策制定者要应对杠杆率的累积上升和在疫情期间支撑经济复苏这样的双重挑战。市场不断收紧资金，主要股市指标从十多年来的最高点回落，而基准货币市场利率在二月份跃升至三年高位。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/kXUBGq7PFNqiq/images/0a41eabc-e726-41c1-bbae-e15f3023b480.jpg?asset_id=7761919e-8dcc-47bb-8ba1-e6c6b9aef5b6&amp;img_etag=%22949aa9f8039d67668961651998736bbe%22&amp;size=2560)](https://spark.adobe.com/page/kXUBGq7PFNqiq/images/0a41eabc-e726-41c1-bbae-e15f3023b480.jpg?asset_id=7761919e-8dcc-47bb-8ba1-e6c6b9aef5b6&amp;img_etag=%22949aa9f8039d67668961651998736bbe%22&amp;size=1024)通过中期借贷便利和定向中期借贷便利注入和流出的现金 来源：中国人民银行、彭博社
-
-沪深300指数迅速作出反应，下跌了1.6％，收盘下跌0.6％，略高于其200天振荡均线。银行股下跌，沪深300金融指数跌幅为三周以来最高。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/kXUBGq7PFNqiq/images/77476787-922d-499b-a7c4-3d3e1454169c.jpg?asset_id=93658c53-e485-4381-a897-64b79988efdf&amp;img_etag=%22184bd3a00e7ffca9172a9572299338a1%22&amp;size=1024)](https://spark.adobe.com/page/kXUBGq7PFNqiq/images/77476787-922d-499b-a7c4-3d3e1454169c.jpg?asset_id=93658c53-e485-4381-a897-64b79988efdf&amp;img_etag=%22184bd3a00e7ffca9172a9572299338a1%22&amp;size=1024)
-
-在投资者对货币政策将会随着经济的恢复而收紧的担忧中，沪深300指数从2月份爬升到一个13年来的高点后，到现在已经下跌15%。（上海）旭方投资管理有限公司的合伙人王晨说：“中国人民银行的操作证实了相关的消极预期。”他指出，其对市场有负面影响。
-
-尽管货币市场几乎没有反应，但与上一次中共国金融状况收紧不同，彭博社指出，中共国的政策制定者计划逐步收回因疫情而出台的刺激措施，股市下跌显示了股票交易员正在奋力适应中共国决策者的计划：随着银行需要帮助企业客户缴税，并且预计政府债券的销售将加速，对经济的考验将在未来几周内到来。
-
-中原证券的策略师张刚说：“市场给出的预期是，为实现疫情之后政策的正常化，央行将逐渐收紧流动性。”
-
-新加坡华侨银行大中华区研究部负责人汤米∙谢（Tommy Xie）说：“中国人民银行充分意识到四月份的纳税和地方政府债券发行对国内流动性的影响。”
-
-他补充说，中共当局可能会通过公开市场操作增加更多现金，并指出：“ 看来中国人民银行正在逐步淘汰定向中期借贷便利（TMLF），因为他们更多地依赖再贷款和再贴现来支持较小公司的需求，中期借贷便利（MLF）的结转实际上更高。”
-
-很明显，中国人民银行在周四的立场表明它并未考虑近期的信贷压力可能会蔓延开来。这种信贷压力吞噬了中国华融资产管理公司，它是中共国最大的不良债务管理公司之一。
-
-这很怪异因为中共国的政策制定者一直以来对杠杆率的快速增加都很谨慎。在较低的借贷成本刺激了房地产价格飙升之后，2017年，中国人民银行指导货币利率上扬，将10年期基准收益率推高至三年来的高位。中共政府表示，其目标是使宏观杠杆率在2021年“ 基本稳定”，在采取了一系列刺激措施以遏制新冠病毒影响后，去年年底中共国的债务与GDP比率飙升至创纪录的279％。
-
-澳新银行集团（ANZ）驻上海的高级中国策略师邢兆鹏说，央行周四的运作“令债券市场有些失望，融资成本将上升。” 他说，随着纳税季节从本月晚些时候开始，中国人民银行可能会通过为期7天的反向回购协议增加更多现金，以填补流动性缺口。
-
-也就是说，正如彭博社所指出的，银行并没有遭受严重的现金短缺困扰。7天回购利率接近去年的平均水平，而10年期主权债券收益率接近两个多月来的最低水平。在彭博社调查的分析师中，有两位曾预计中国人民银行会持中立立场，而第三位则预计人民币注入总额在1500亿元至2000亿元。
-
-新加坡华侨银行大中华区研究部主管汤米∙谢说，中国人民银行似乎正在淘汰定向贷款，转而将重点放在其它的政策性工具上来扶持小企业。
-
-[原文链接](https://www.zerohedge.com/markets/chinese-stocks-slide-latest-pboc-cash-injection-again-disappoints-traders)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg](https://gnews.org/wp-content/uploads/2021/04/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/kXUBGq7PFNqiq/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/kXUBGq7PFNqiq/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+间隔一年的博鳌亚洲论坛线下会议将于4月18日至21日在海南博鳌如期举行。年会主题为“世界大变局：共襄全球治理盛举、合奏“一带一路强音”。
+
+主题下将设置六大板块议题，包括“解读中国”、“把握世界变局”、“一带一路合作”、“拥抱产业变革”、“与新技术共舞”和“共享发展”。后疫情时代的全球化成为对话主题。伊利集团和阿斯利康分别与博鳌亚洲论坛签约，成为论坛2021年年会钻石合作伙伴。五粮液集团成为论坛2021年年会荣誉战略合作伙伴。
+![This image has an empty alt attribute; its file name is Picture1-41.png]()![This image has an empty alt attribute; its file name is Picture1-41.png](https://gnews.org/wp-content/uploads/2021/04/Picture1-41.png)
+博鳌亚洲论坛（BoaoForumforAsia–BFA，简称BFA）是一个非政府、非营利的国际组织，也是第一个总部设在中国的国际会议组织。该论坛由菲律宾前总统拉莫斯、澳大利亚前总理霍克及日本前首相细川护熙于1998年发起，2001年2月27日正式宣告成立并通过《博鳌亚洲论坛宣言》、《章程指导原则》等纲领性文件。
+
+海南博鳌为论坛总部永久所在地，号称29个发起国。2021年适逢博鳌亚洲论坛成立20周年，感觉中共国整个社会都兴奋起来了。博鳌亚洲论坛2020年因疫情停办。2021年如期举行所谓线下会议，议程发布参加者很多，但从当天会议报道来看，雷声大雨点小：会议简报两篇，会场消息六篇。
+
+会议第一天，就发布了所谓的“重磅”和“旗舰”。所谓“重磅”，是《发布全球经济发展与安全 论坛大会释放积极信息》的报道，即博鳌亚洲论坛秘书长李保东，同湖南省委副书记乌兰、长沙市市长郑建新、联合国驻华协调员常启德、联合国难民署代理驻华代表陈蔚云、经济合作与发展组织驻华高级顾问海博一道，隆重发布博鳌亚洲论坛框架下，又一重要专题会议——全球经济发展与安全论坛大会。
+
+所谓“旗舰”，是指2021年度《可持续发展的亚洲与世界》、《亚洲经济前景与一体化进程》两份中英文版旗舰报告，牛皮吹得山响，什么“外资在中国聚焦”等。
+![This image has an empty alt attribute; its file name is Picture2-13.png]()![This image has an empty alt attribute; its file name is Picture2-13.png](https://gnews.org/wp-content/uploads/2021/04/Picture2-13.png)
+往年的论坛年会，国家主席、总理、政治局人员参加，今年湖南省委副书记都成了主角。中共国还能活多久，还能举办博鳌亚洲论坛多少次，我们拭目以待。
+
+参考：[博鳌亚洲论坛官网](https://www.boaoforum.org/)
+
+编辑/审核/发稿：正义的小新
+![This image has an empty alt attribute; its file name is 4_April-1.jpeg]()![This image has an empty alt attribute; its file name is 4_April-1.jpeg](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

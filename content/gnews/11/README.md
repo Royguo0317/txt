@@ -1,50 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 达扎克的生态健康联盟再次获得纾困金
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1116875/)
+## 中共国央行“注水” 股市应声下跌
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1116897/)
 
-新闻来源：《Daily Caller》| 作者：Dylan Housman | 发布时间：2021年4月16日
+新闻来源：《ZeroHedge》| 作者：TYLER DURDEN | 发布时间：2021年4月15日
 
-翻译/简评：Claire | 校对：Beicy-数学老师 | 审核：万人往 | Page：我是球大哥
+翻译：乡间小路 | 简评/校对：Beicy-数学老师 | 审核：万人往 | Page：我是球大哥
 
-[!\[\]()!\[\](https://spark.adobe.com/page/8guFNqk4zcL8b/images/21aea40b-1af9-4cd8-8b39-028798b514dd.jpg?asset_id=657e455b-bbad-484e-baaa-a64fe765e8d4&amp;img_etag=%2221c5079191ca1b2c906e9595b2d5d778%22&amp;size=1024)](https://spark.adobe.com/page/8guFNqk4zcL8b/images/21aea40b-1af9-4cd8-8b39-028798b514dd.jpg?asset_id=657e455b-bbad-484e-baaa-a64fe765e8d4&amp;img_etag=%2221c5079191ca1b2c906e9595b2d5d778%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/kXUBGq7PFNqiq/images/69f97029-311a-4f73-96fb-ca6b95a7ab5a.jpg?asset_id=cc6c0545-4552-4a93-b274-53d83039e788&amp;img_etag=%222c1f9622b91562ffa6edac83a0e1a551%22&amp;size=1024)](https://spark.adobe.com/page/kXUBGq7PFNqiq/images/69f97029-311a-4f73-96fb-ca6b95a7ab5a.jpg?asset_id=cc6c0545-4552-4a93-b274-53d83039e788&amp;img_etag=%222c1f9622b91562ffa6edac83a0e1a551%22&amp;size=1024)
 
 **简评：**
 
-非营利组织生态健康联盟被挖出资助武汉病毒研究所进行冠状病毒的功能增强研究，其负责人彼得·达扎克与中共常年合作，共同研究了数百种来自蝙蝠身上的病毒。而生态健康联盟在2021年却再次获得政府的纾困金。
+本新闻报道了上周四中共国股市下跌，表面缘由是中共央行通过中期借贷便利向金融体系注入了1500亿元人民币（230亿美元），这一数字略低于四月到期的中期借贷便利，引起沪深300指数迅速作出反应下跌。实际上，中共“擀面杖子”经济脆弱，2020年年底中共国的债务与GDP比率飙升至创纪录的279％。加上地方政府大量债务，股市早已经惊慌惊恐，崩盘是早晚的事。
 
-作为一名身兼要职的美国科学家，达扎克表现出的亲共行为不得不让人怀疑他是否已被中共“蓝金黄”。由于去中共国开展新冠病毒溯源研究直接粉碎了“病毒是来自武汉实验室”的假说，世界卫生组织赴华专家组的专家们被西方媒体群起而攻之。澳大利亚新闻主播在其节目中声称，世界卫生组织专家组关于新冠病毒起源报告的公正性正受到质疑，因为专家组与中共有着不清不楚的关系。
-
-作为爆料革命的一员，我们都知道这是中共的把戏，为了掩盖真相，誓把“蓝金黄”进行到底。然而，闫博士冒着生命危险一次又一次地证明了新冠病毒是来自武汉实验室。闫博士表示，病毒的真相与政治无关，而关乎人类存亡。很多与中共勾结的专家及各国政要掩盖病毒真相的证据也被正义力量挖出。中共承认发起生物战只是时间问题。
+华融资产管理公司是中共国最大的不良债务管理公司之一，中共国有企业。原掌门人赖小民作为中共内斗的弃子，在2021年1月29日上午于天津被执行死刑，其股票停牌，美元债遭市场抛售。但本文以为华融崩溃是央行流动性收紧所致，却是七哥所说的对待CCP“too high, too naive”。CCP在美上市企业都是中共绞肉机上的吸血管，CCP不死，股市吸血不会停。
 
 **原文翻译：**
 
-## **资助武汉实验室的非营利组织2021年再次获得纳税人的救助**
+## **中共国股市下滑，中国人民银行近期的现金注入再次令交易者失望**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/8guFNqk4zcL8b/images/3b8f20f9-0b25-484b-bbf0-f7455f2c4b6a.jpg?asset_id=a887aa90-550a-4afd-aad4-1e17445fedde&amp;img_etag=%22e625adfba3a9cc7f74dbf7aff213cd04%22&amp;size=1024)](https://spark.adobe.com/page/8guFNqk4zcL8b/images/3b8f20f9-0b25-484b-bbf0-f7455f2c4b6a.jpg?asset_id=a887aa90-550a-4afd-aad4-1e17445fedde&amp;img_etag=%22e625adfba3a9cc7f74dbf7aff213cd04%22&amp;size=1024)(照片由HECTOR RETAMAL拍摄/法新社，盖蒂图片).
+中共国信贷脉冲（指数）持续走低——我们在最近几周在这里已经广泛地讨论过，这让最近的信贷脉冲数据和市场表现看起来都不让人满意。
 
-非营利性的生态健康联盟（EcoHealth Alliance）把美国国立卫生研究院（National Institutes of Health）数百万美元的拨款给了武汉病毒研究所（Wuhan of Virology），并于2021年2月获得了纳税人的救助。
+中共国股市周四下跌，此前央行强调要通过增加足够的现金来维持中期流动性进而控制杠杆率和实现政策正常化。
 
-这是自新冠肺炎大流行以来，生态健康联盟收到的第二笔纾困金。根据监管机构Whitecoat Waste的最新报道，在2020年5月获得$738861美元的纾困金后，生态健康联盟今年2月又获得了$719570美元的纾困金。
+周四，中国人民银行通过中期借贷便利向金融体系注入了1500亿元人民币（230亿美元）。尽管本月流动性将收紧，这一数字略低于四月到期的中期借贷便利。4月25号到期的中期借贷便利有1000亿元人民币，即将到期的定向借贷为561亿元人民币。
 
-纾困金是川普政府和拜登政府共同通过的新冠肺炎救济计划的一部分。
+中国人民银行在第一季度撤回了一个净值405亿元的一年期专项基金，因为政策制定者要应对杠杆率的累积上升和在疫情期间支撑经济复苏这样的双重挑战。市场不断收紧资金，主要股市指标从十多年来的最高点回落，而基准货币市场利率在二月份跃升至三年高位。
 
-生态健康联盟的负责人彼得·达扎克（Peter Daszak）是由中共国领导的世界卫生组织（World Health Organization）团队中唯一派遣到中共国寻找新冠肺炎起源的美国成员。达扎克过去曾从事基于蝙蝠的冠状病毒功能增强的研究，有人推测这可能在病毒从实验室泄漏而引发大流行中发挥了作用。
+[!\[\]()!\[\](https://spark.adobe.com/page/kXUBGq7PFNqiq/images/0a41eabc-e726-41c1-bbae-e15f3023b480.jpg?asset_id=7761919e-8dcc-47bb-8ba1-e6c6b9aef5b6&amp;img_etag=%22949aa9f8039d67668961651998736bbe%22&amp;size=2560)](https://spark.adobe.com/page/kXUBGq7PFNqiq/images/0a41eabc-e726-41c1-bbae-e15f3023b480.jpg?asset_id=7761919e-8dcc-47bb-8ba1-e6c6b9aef5b6&amp;img_etag=%22949aa9f8039d67668961651998736bbe%22&amp;size=1024)通过中期借贷便利和定向中期借贷便利注入和流出的现金 来源：中国人民银行、彭博社
 
-3月提起的诉讼称生态健康联盟因没有公布纳税人的资金而违反了联邦法律。至于达扎克，在2021年早些时候被揭发，他隐瞒了自己参与组织“亲中共、反对实验室泄漏理论”的声明。
+沪深300指数迅速作出反应，下跌了1.6％，收盘下跌0.6％，略高于其200天振荡均线。银行股下跌，沪深300金融指数跌幅为三周以来最高。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/8guFNqk4zcL8b/images/96701a88-a035-459c-8d70-561d25894f03.png?asset_id=7aa4bedf-392a-4cbe-b9e3-4fb94c44401e&amp;img_etag=%22b14dd69a711ab02cb17877740e5487f0%22&amp;size=2846)](https://spark.adobe.com/page/8guFNqk4zcL8b/images/96701a88-a035-459c-8d70-561d25894f03.png?asset_id=7aa4bedf-392a-4cbe-b9e3-4fb94c44401e&amp;img_etag=%22b14dd69a711ab02cb17877740e5487f0%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/kXUBGq7PFNqiq/images/77476787-922d-499b-a7c4-3d3e1454169c.jpg?asset_id=93658c53-e485-4381-a897-64b79988efdf&amp;img_etag=%22184bd3a00e7ffca9172a9572299338a1%22&amp;size=1024)](https://spark.adobe.com/page/kXUBGq7PFNqiq/images/77476787-922d-499b-a7c4-3d3e1454169c.jpg?asset_id=93658c53-e485-4381-a897-64b79988efdf&amp;img_etag=%22184bd3a00e7ffca9172a9572299338a1%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/8guFNqk4zcL8b/images/f1e79557-1c05-4596-aad0-03daf4e0f411.png?asset_id=3fdd4142-067c-46fe-bc63-50f89de6b0a8&amp;img_etag=%22f9fc5499cb4bf362a23aa32af37a648b%22&amp;size=2609)](https://spark.adobe.com/page/8guFNqk4zcL8b/images/f1e79557-1c05-4596-aad0-03daf4e0f411.png?asset_id=3fdd4142-067c-46fe-bc63-50f89de6b0a8&amp;img_etag=%22f9fc5499cb4bf362a23aa32af37a648b%22&amp;size=1024)
+在投资者对货币政策将会随着经济的恢复而收紧的担忧中，沪深300指数从2月份爬升到一个13年来的高点后，到现在已经下跌15%。（上海）旭方投资管理有限公司的合伙人王晨说：“中国人民银行的操作证实了相关的消极预期。”他指出，其对市场有负面影响。
 
-就在新冠肺炎大流行爆发的前几周，达扎克公开讨论了在实验室环境中操纵基于蝙蝠的病毒有多么容易，并详细介绍了他之前在该项目上的工作。作为世界卫生组织调查小组的成员，达扎克说服了其他调查成员，称武汉病毒研究所大量缺失的数据与他们寻找新冠肺炎的来源无关。
+尽管货币市场几乎没有反应，但与上一次中共国金融状况收紧不同，彭博社指出，中共国的政策制定者计划逐步收回因疫情而出台的刺激措施，股市下跌显示了股票交易员正在奋力适应中共国决策者的计划：随着银行需要帮助企业客户缴税，并且预计政府债券的销售将加速，对经济的考验将在未来几周内到来。
 
-由于其曾帮助将美国的纾困金转移到武汉病毒研究所的行为，生态健康联盟一直是实验室泄漏假说的关键部分。该假说认为新冠肺炎在被操纵以进行病毒功能增强的研究后，由实验室事故而泄漏的。
+中原证券的策略师张刚说：“市场给出的预期是，为实现疫情之后政策的正常化，央行将逐渐收紧流动性。”
 
-世界卫生组织在月初声称，实验室泄漏理论应该可以排除，然而越来越多的政府官员和媒体人士都表示对实验泄漏理论很在意，因为这可能解释了大流行是如何发生的。
+新加坡华侨银行大中华区研究部负责人汤米∙谢（Tommy Xie）说：“中国人民银行充分意识到四月份的纳税和地方政府债券发行对国内流动性的影响。”
 
-[原文链接](https://dailycaller.com/2021/04/16/ecohealth-alliance-covid-19-coronavirus-peter-daszak-wuhan-institute-virology-lab-leak/)
+他补充说，中共当局可能会通过公开市场操作增加更多现金，并指出：“ 看来中国人民银行正在逐步淘汰定向中期借贷便利（TMLF），因为他们更多地依赖再贷款和再贴现来支持较小公司的需求，中期借贷便利（MLF）的结转实际上更高。”
+
+很明显，中国人民银行在周四的立场表明它并未考虑近期的信贷压力可能会蔓延开来。这种信贷压力吞噬了中国华融资产管理公司，它是中共国最大的不良债务管理公司之一。
+
+这很怪异因为中共国的政策制定者一直以来对杠杆率的快速增加都很谨慎。在较低的借贷成本刺激了房地产价格飙升之后，2017年，中国人民银行指导货币利率上扬，将10年期基准收益率推高至三年来的高位。中共政府表示，其目标是使宏观杠杆率在2021年“ 基本稳定”，在采取了一系列刺激措施以遏制新冠病毒影响后，去年年底中共国的债务与GDP比率飙升至创纪录的279％。
+
+澳新银行集团（ANZ）驻上海的高级中国策略师邢兆鹏说，央行周四的运作“令债券市场有些失望，融资成本将上升。” 他说，随着纳税季节从本月晚些时候开始，中国人民银行可能会通过为期7天的反向回购协议增加更多现金，以填补流动性缺口。
+
+也就是说，正如彭博社所指出的，银行并没有遭受严重的现金短缺困扰。7天回购利率接近去年的平均水平，而10年期主权债券收益率接近两个多月来的最低水平。在彭博社调查的分析师中，有两位曾预计中国人民银行会持中立立场，而第三位则预计人民币注入总额在1500亿元至2000亿元。
+
+新加坡华侨银行大中华区研究部主管汤米∙谢说，中国人民银行似乎正在淘汰定向贷款，转而将重点放在其它的政策性工具上来扶持小企业。
+
+[原文链接](https://www.zerohedge.com/markets/chinese-stocks-slide-latest-pboc-cash-injection-again-disappoints-traders)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -53,6 +63,6 @@
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/8guFNqk4zcL8b/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/8guFNqk4zcL8b/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/kXUBGq7PFNqiq/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/kXUBGq7PFNqiq/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
