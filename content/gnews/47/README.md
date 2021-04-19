@@ -1,65 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】美日澳联手对抗穷途末路的中共
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1114024/)
+## 【有声读物】中共警察注射国产疫苗后死亡
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1114160/)
 
-作者：纽约香草山医疗部 圣母院钟声
+配音：香草山录音组 蒙古鸿雁
 
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-此前，世界媒体争相报道，中共“辽宁舰”及其三艘驱逐舰、一艘护卫舰、一艘补给舰于4月3日通过冲绳本岛与宫古岛，进入太平洋。中共4月5日晚亦发出公告称，辽宁舰航母编队4日在台湾周边海域进行了训练。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-316.png)图片来源：美国海军官方网站
 
-而就在4月4日上午8时，美国海军航母“罗斯福号”也经由马六甲海峡进入南海。当天，美国海军还拍摄了一张美军驱逐舰马斯廷号舰长在翘脚监测中共“辽宁号”的照片，并公布在美国海军官方网站上，引发各界热议。
 
-无独有偶，今日推特上又热传，除了美军舰队外，一艘日本护卫舰也在中共航母“辽宁号”旁边“护航”——推特账号“@shiwenye3”发布了相关照片，但数小时后其推特账号被锁。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-317.png)图片来源：Twitter
+文字版原文：[【热点播报】中共警察注射国产疫苗后死亡](https://gnews.org/zh-hans/1110240/)
 
-雅虎日本4月18日也报导了这则消息，可以看到新闻照片中的中共国航母后面是日本海上自卫队的护卫舰。通过放大照片比对发现，这艘护卫舰可能是日本“村雨”型护卫舰或“ 高波”级护卫舰。
+作者：香草山媒体部 文扬四海
 
-现在情况明了，除美军驱逐舰马斯廷号之外，日本护卫舰也在与中共航母平行行驶。而中共国极尽宣传的这次航母在台海地区的实弹演习，原来是“CCP裸体被美日联合围观”，中共的脸丢大了。
+4月17日，大纪元报道了发生在微博网友“山下花野子”身上的不幸事件。七天前（4月10日）该网友在微博发文说，弟弟30岁不到，是边检民警，发病前身体健康，在接种灭活疫苗后，突发血小板为零、脑出血、皮下出血等症状，已在ICU昏迷了17天，希望得到专家救助。
 
-与此同时，国际社会，特别是太平洋周边的经济大国正积极展开多方合作，以有效抵御中共狐假虎威地对相关地区的各种威胁。大纪元2021年04月19日报导，美国总统拜登和日本首相菅义伟已经达成共识，联合投资45亿美元，用于开发下一代6G或“超越5G”通信技术，并在制定全球标准方面与中共竞争。两国在联合声明中还特别提到，双方“在台海和平与稳定的重要性上达成一致认识”。这是自1969年以来，美日两国领导人在联合声明中首次提及台湾。
+4月15日，该网友在微博发布讣告并补充，弟弟没有病史，于1月11日接种了国药集团的北生灭活疫苗第一针，2月8日接种第二针。在此期间，弟弟出现疲劳、皮下出血、牙龈出血的情况，直至3月24日突发脑出血入院，于4月15日去世。据称，该男子的死亡原因为重度再生障碍性贫血引起的脑出血。博主质问当局，希望能给家属一个交代。目前，以上两条微博均已被删除。
 
-台海局势牵动了国际形势，澳媒披露，澳大利亚政府为应对台海战争可能出现的“最坏情况”，迅速大幅升级了准备工作，届时，将配合美日对抗中共的军事行动。《澳洲金融评论报》（AFR）在4月16日独家报导，澳洲军方官员披露，如果美国和中共在台湾发生冲突，澳大利亚国防军正在筹备如何应对“最坏情况”。澳洲空战驱逐舰可能会作为美国航空母舰集团的一部分，并部署柯林斯级潜艇来应对中共海军。澳洲战略政策研究所（ASPI）防卫、战略及国家安全研究主任休布瑞吉（Michael Shoebridge）说，面对台海冲突，澳洲必须站在美国和日本一方，“我们唯一能够反击北京（中共）的方法，就是不能分裂，不能把美国和日本所面临的问题视为他们自己的问题。”他说，“如果我们不支持美国和日本这样的合作伙伴，他们也不会支持我们。”
+音频处理：喜山必胜Maverick
+发稿：雪梨
 
-独裁者从不认为历史能轮回到自己头上，今天中共海军在台海地区的“秀肌肉”与120多年前的大清何其相似。1894年8月1日的黄海海战，又称“大东沟海战”，是中国历史上迄今为止规模最大的一次舰队海战。当时，因各支水师的负责官员贪污经费，导致开战前，清军水师装备远逊日本。这场海战的结果是，北洋水师因装备落后而损失惨重。但无论大清水师如何不堪，还不致于像辽宁号舰队那样把自己的弱点先暴露给敌方——八字没一撇，先把丑出尽。自然，中共的“甲午海战”结局不难预料。
-
-参考阅读：
-
-[除美军舰队 传日本护卫舰也“护航”辽宁号](https://www.epochtimes.com/gb/21/4/18/n12888296.htm)
-
-[与中共竞争6G 美日将联合投资45亿美元](https://www.epochtimes.com/gb/21/4/18/n12888507.htm)
-
-[澳军方：为台海战争做最坏准备 将助美抗共](https://www.epochtimes.com/gb/21/4/18/n12888237.htm)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 **[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
 
 0

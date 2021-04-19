@@ -1,23 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加州众议员称中共最终目标是击垮美元
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1114277/)
+## 英国将更新法律严惩外国间谍
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1114342/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Y-3.jpg)money.cnn.com
-福克斯新闻报道，在“周日早间期货”的采访中，加州众议员德文·努内斯（Devin Nunes）认为中共并没有认真对待拜登政府，他们的最终目标是让美元贬值。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/S-22.jpg)foreignpolicy.com
+《每日邮报》报道，英国首相将宣布新法案以保护英国不受敌对国家的侵犯。根据新法律，在英国活动的外国间谍将被起诉并驱逐出境。
 
-努内斯嘲笑拜登政府，他说拜登政府对中共政策并不是罗纳德·里根(Ronald Reagan)过去常说的“通过力量实现和平”，而是“雷声大雨点小”，虚张声势。中共的最终目标是击垮世界储备货币的美元。
+据《泰晤士报》报道，该法案将要求所有在该国代表外国政府工作的个人必须进行登记，否则将构成刑事犯罪。
 
-中共想做的是让人们不再信任美元，中共则从中获益。所以中共不把拜登当回事，因为中共了解白宫和民主党是虚伪的。
+情报机构警告称，根据现行法律，外国间谍不受法律约束，除非他们被抓到获取官方机密。旨在保护英国免受间谍活动侵扰的《官方保密法》(Official Secrets Act)将进行更新，以防止任何企图破坏英国海外利益的人。由于其中一些条款是在1911年制定的，部长们希望对立法进行调整，以便可以用来对付那些实施外国网络攻击的人。
 
-努内斯同时指责左翼控制社交媒体，审核过滤信息传播，正如中共在这个领域的所作所为一样。中共每天都在努力击垮美元地位，而民主党不仅无所作为维护美国利益，还给中共提供帮助。
+据信，英国的目标是建立与美国《外国代理人登记法》(Foreign Agents Registration Act)类似的登记册，该法案将适用于任何代表外国利益的人。目前大多数罪行是两年刑期，英政府还在考虑是否提高对任何违反该法案的行为的最高刑罚。
 
 参考链接：
 
-[https://www.foxnews.com/politics/nunes-chinas-laughing-at-biden-admin-over-foreign-policy](https://www.foxnews.com/politics/nunes-chinas-laughing-at-biden-admin-over-foreign-policy)
+[https://www.dailymail.co.uk/news/article-9485427/Foreign-spies-face-prosecution-deportation-new-laws-forcing-people-register-presence.html](https://www.dailymail.co.uk/news/article-9485427/Foreign-spies-face-prosecution-deportation-new-laws-forcing-people-register-presence.html)
 
 0

@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】华大基因为何瞄准美国人
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1114548/)
+## 【有声读物】夺命疫苗何时了
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1114648/)
 
-配音：香草山录音组 米小乐
+配音：香草山录音组 Swr拥抱太阳
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -14,19 +14,13 @@
 
 
 
-《⼤纪元》4⽉16⽇报道了华⼤基因是如何收集美国⼈的基因。
-
-1999年，汪建等三名曾经留美的⼈员成功申请加⼊到美国政府提出的“⼈类基因组计划”， 并获得1%的⼈类基因组测序任务。为了执⾏该任务，他们成⽴了华⼤基因。
-
-2003年⾮典期间，凭借美国的技术，华⼤破译了四株SARS病毒基因组序列，并研发出检测剂，由此得到⼀次发展机会。
-
-2010年依靠国家开发银⾏贷款，华⼤从美国制造商lllumina处购买了128台第⼆代基因测序仪，⼀跃成为全球最⼤的基因组测序机构。
+据4月7日美联社迈阿密的报道：今年一月，在迈阿密海滩的西奈山医疗中心执业的56岁产科医生迈克尔·格雷戈里 (Dr. Gregory Michael) 在接种辉瑞mRNA疫苗两个多星期后死亡。法医死因调查是由佛罗里达州卫生部和联邦疾控中心CDC主持的, 验尸样本被送往CDC 。调查小组成员包括疫苗安全、免疫学、传染病学、血液学、病理学和实验室方面的学科和临床专业人员。调查小组的结论是，迈克尔·格雷戈里医生死于自身过度免疫反应所致的弥漫性血小板减少性紫癜（Immune thrombocytopenic purpura， ITP），一种可以防止血液凝固并导致内出血的疾病。迈阿密戴德县法医部业务主任达伦·卡普拉(Darren Caprara)通过电子邮件发布：格雷戈里医生死于一种可能导致内出血的疾病，医学上没法确定是注射疫苗导致的，其死因被归类为自然因素所致.。
 
 
 
-文字版原文：[【世事解评】华大基因为何瞄准美国人](https://gnews.org/zh-hans/1113399/)
+**文字版原文：[【医疗前沿世界】夺命疫苗何时了](https://gnews.org/zh-hans/1099582/)**
 
-作者：香草山美食部  蓝天大海
+作者：纽约香草山医疗部   圣母院钟声
 
 
 
