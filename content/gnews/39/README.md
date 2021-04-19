@@ -1,15 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月18日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1115597/)
+## 《李光耀：美国不会介入台海战争》
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1115740/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+**字幕制作：芥末 翻译：红色马克杯**
 
-4月18号，尊敬的战友们好……又到了一年一度的4月19号VOA段部门的时间了……明天上午9:30左右文贵直播乱聊一下VOA断播门四年后的．我们爆料革命应该如何去看．去认识那场美国有史以来的第一个新闻灾难！
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/3aa8e8b5f0cd67be5f73fdb1a1979a91.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/3eadb862f6b65ccfc585ae0b1f90b426.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/021e9f739e1c572ea77333ba88b62bd7.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/385a1e8498d424de53ee22d4ad727f9a.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/3194e5698be37e6ccee41e97392b2c84.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/16167c577b01728bc2140765bb4f94ab.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/077023a7586db84940361d2e6a43d6b7-2.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/478308599759b195c519a8808657147c.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/e7fb8fcea076f023a5172bf8988f3302.jpg)
-[【2021年4月18日】文贵先生盖特原文](https://gtv.org/getter/607cd9608616c84f0ff0e8d2)
 
-**喜联盟Gnews编辑部**
+
+李光耀主张的关键点在于美国介入台海战争的深度。如果不能一劳永逸的解决中共，那么中共对于台湾的威胁会卷土重来。暂时性的阻止中共武力收台是浪费生命。要么不介入，介入就必须彻底消灭中共。
+
+不知道一代巨匠李光耀如果仍健在会不会做出同样的判断。但回顾这段讲话，也许智者如李光耀也错判了中共的邪恶程度，和由其发动的超限生物战在世界范围内引发的全面危机。
+
+今天的美国，对中共的超限战有了更明确的认识和切身的体会。不似过往，台湾只是美国与中国谈条件的一个筹码，美国没有足够的利益牵扯去为台湾一战。但今日，中共已成为美国的头号竞争对手，或更确切地说是最大的威胁。中共的数字货币在挑战美元的地位，和一带一路计划对世界能源及运输关口的控制，都直接威胁到美国的领导地位。美国与中共已经到了你死我活的地步。今天，美日共同声明已经开启了日本国家正常化的第一步。
+
+***发布**：华盛顿DC农场 文顾*
 
 0
