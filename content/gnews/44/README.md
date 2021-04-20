@@ -1,76 +1,131 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读王岐山替习神担任博鳌论坛开幕式临时报幕主持人
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1119918/)
+## 美国《2021战略竞争法》第211、212、213节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1119760/)
 
-直播视频：
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/T-18.jpg)youtube.com
+要点：G7国家中共的认知应包括，民主和人权的侵蚀，5G电信的安全性，反竞争行为，如知识产权盗窃、企业大规模补贴等政策和做法，掠夺性国际主权贷款。承认台湾是美国印太平洋战略的重要组成部分，增强台湾的自卫能力，特别是发展和整合反舰、海防、反装甲、防空、海战、先进指挥、控制、通信、计算机、情报等不对称能力，军事力量的监视、侦察和弹性指挥控制能力，积极推动台湾有意义地参与联合国、世界卫生大会、国际民用航空组织、国际刑事警察组织和其他国际机构。
 
+欲了解更多的內容，请看本节全文（仅供参考）。
 
+第211节 关于与七国集团（G7）国家就中共国问题谈判的国会意识
 
+（a） 通常情况 – 国会认为，总统通过国务卿应与七国集团国家就有关经济和民主自由的事项启动一项议程，包括以下：
 
-《路德时评》2021年4月20日早间节目主要内容：
+（1）贸易和投资问题及执行。
 
-一、王岐山替习神担任临时报幕主持人
+（2）为国际基础设施标准提供支持，包括2018年大阪G20峰会商定的标准。
 
-在博鳌亚洲论坛会议上，中共国家副主席王岐山被安排在习近平视频致辞前发言，王岐山一开始就脱稿讲话，声明他只是临时主持人，真正致辞的应是习近平。他还强调：“这体现了我们中国对我们的主席高度尊重。”
+（3）民主和人权的侵蚀。
 
+（4）5G电信的安全性。
 
+（5）反竞争行为，如知识产权盗窃、企业大规模补贴等政策和做法。
 
-> 【脱稿 “致辞”】
-> 【 “我只是临时主持人，我为习近平报幕”】
-> 
-> 在博鳌亚洲论坛会议上，中国国家副主席王岐山被安排在习近平视像致辞之前发言，王岐山一开始就脱稿讲话，声明他只是临时主持人，真正致辞的应是习近平。
-> 他强调 : “这体现了我们中国对我们的主席高度尊重。”[#定于一尊](https://twitter.com/hashtag/%E5%AE%9A%E4%BA%8E%E4%B8%80%E5%B0%8A?src=hash&amp;ref_src=twsrc%5Etfw)[#忌才](https://twitter.com/hashtag/%E5%BF%8C%E6%89%8D?src=hash&amp;ref_src=twsrc%5Etfw)[#王岐山](https://twitter.com/hashtag/%E7%8E%8B%E5%B2%90%E5%B1%B1?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/Zj2V76oZlC](https://t.co/Zj2V76oZlC)
-> — 自由亚洲电台 (@RFA\_Chinese) [April 20, 2021](https://twitter.com/RFA_Chinese/status/1384391252372717573?ref_src=twsrc%5Etfw)
+（6）不符《经济合作与发展组织》（OECD）和《巴黎俱乐部原则》（Paris Club）的掠夺性国际主权贷款。
 
+（7）国际影响力运动。
 
+（8）环境标准。
 
-路德社评论：
+（9）与不在G7中的志同道合的区域伙伴的合作。
 
-1、虽然王岐山的言语对习神无限尊重，但眼神却显得极不情愿，王岐山强调他作为临时主持人也很重要。博鳌论坛从1998年成立，由28个国家共同参与，相当于亚洲的“达沃斯论坛”，起初就是王岐山在海南任职时成立的国际论坛，大部分参会人员都是王派和江派在海外金融圈的势力，所以王岐山绝对是博鳌论坛的老大，但是他言语中透露着不情愿。
+（原文只到此，似乎缺内容……）
 
-2、王岐山称呼自己是临时主持人，意思就是说自己在党内已经被边缘化，但是他也强调不要小看他的重要性，同时也在向习神表忠心，王岐山敢前往海南参加会议，习神却不敢前往，可见中共内部斗争非常激烈。
+第212节 加强美台伙伴关系
 
-3、王岐山在发言中力捧习神，强调自己只是习神露面前的报幕员，这就是开始甩锅的表现，王有意将中共国这几年犯下的所有罪行都推给习神，习神才是幕后最大的黑手。
+这是美国的政策-
 
-4、习神有意安排王岐山出席博鳌论坛就是要试试王岐山，趁机考察王是否有谋反之心，而王也顺水推舟出席此次会议，但是王在发言中强调自己非常重要，也是在显露自己在党内依然具备影响力，可见习王之间的斗争彻底明面化。
+（1）承认台湾是美国印太平洋战略的重要组成部分；
 
-5、未来的新中国一定不能再存在这种你死我活的党内斗争，拜登总统和川普总统在大选前互相批评，互相指责，拜登总统上台后，川普总统依然能够正常生活，这就是正常的政治生态，未来的新中国也应该如此，所有人都必须遵守规则，有契约精神。现在的中共国领导居然还享受这种你死我活的斗争过程，总觉得把对方整死才能证明自己强大，但是在美国这样的绝对实力面前，中共的各种伎俩都显得毫无价值。
+（2）推进台湾的安全和民主，作为大印度洋-太平洋地区持续和平与稳定，以及美国的重大国家安全利益的关键因素；
 
-二、习神在博鳌论坛发表开幕演讲
+（3）加强其根据《台湾关系法》（the Taiwan Relations Act）（公共法96–8）对台湾的承诺并按照“六个保证”和美国的“一个中国”政策；
 
-4月20日上午，博鳌亚洲论坛2021年年会开幕式在海南博鳌举行，习神以视频方式发表题为《同舟共济克时艰，命运与共创未来》的主旨演讲。习近平强调[\[1\]](http://www.xinhuanet.com/politics/leaders/2021-04/20/c_1127350733.htm)：中国无论发展到什么程度，永远不称霸、不扩张、不谋求势力范围，不搞军备竞赛。中国将继续做世界和平的建设者、全球发展的贡献者、国际秩序的维护者。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/博鳌发言全文.jpg)[图片地址](http://www.xinhuanet.com/politics/2021-04/20/1127350811_16188856272951n.jpg)
-路德社评论：
+（4）支持台湾实施非对称防御战略，包括台湾整体防御概念中确定的优先事项；
 
-1、习神在提前录制的视频中强调此次论坛是在世界大变局的特殊背景下召开的，习神很清楚世界将进入动荡。他深知参加博鳌论坛的海内外金融界大佬仍然听命于王岐山，习为了应对接下来的动荡局势不得不请王岐山出面，王岐山为了保住共产党政权就出席此次论坛，并非为了习神。
+（5）敦促台湾增加国防开支，以充分利用其国防战略；
 
-2、在基辛格主义推动下的中美邦交，华尔街、好莱坞、硅谷和体育界与中共合作就是为谋求经济利益，如果中共试图称霸、扩张或者结盟，美国绝不会和中共继续合作。爆料革命文贵先生早在2017年就站出来揭露中共即将3F美国，重建国际秩序，当中共向全世界投放中共病毒后，美国才下定灭共决心。
+（6）定期向台湾移交国防物资，以增强台湾的自卫能力，特别是发展和整合反舰、海防、反装甲、防空、海战、先进指挥、控制、通信、计算机、情报等不对称能力，军事力量的监视、侦察和弹性指挥控制能力；
 
-3、习神在开幕式发言中说：在经济全球化时代，开放融通是不可阻挡的历史趋势，人为筑墙、脱钩违背市场经济规则，损人不利己[\[2\]](https://www.reuters.com/article/idCNKBS2C707U?edition-redirect=ca)。这是习神首次在公开场合提脱钩，川普政府时期推动中美脱钩，更多是共和党控制的企业与中共脱钩，但共和党控制的企业多为军工、能源等传统行业，这些企业大部分并没有进入中共国。拜登政府上台后继续推动中美脱钩，像华尔街、好莱坞、苹果、NBA等这些左派企业开始撤离中共国，习就想借此次博鳌论坛请求这些企业不要离开中共国。
+（7）酌情倡导和积极推动台湾有意义地参与联合国、世界卫生大会、国际民用航空组织、国际刑事警察组织和其他国际机构；以及
 
-4、习为了保住美国在中共国的企业不得不请王岐山重新出山，接下来就看王岐山回到海南老巢后会采取何种行动，党内随时都会发生高平陵之变[\[3\]](https://zh.wikipedia.org/wiki/%E9%AB%98%E5%B9%B3%E9%99%B5%E4%B9%8B%E5%8F%98)。王岐山抵达海南后肯定会和参会的各派势力举行秘密会谈，大家现在对国际形势都心知肚明，习肯定也不甘示弱，绝对会派人监督。
+（8）促进美国、台湾等志同道合伙伴之间的有意义的合作。
 
-5、中共党媒从原先批评美国某些反共政客上升到国家层面，可见他们对拜登政府彻底不寄予希望了。中共各大家族牢牢掌控着各自在海外的势力，习上台前未在海外建立起自己的势力，他又不懂英文，这和江、王相去甚远，习在勾兑时就需要翻译，这就存在泄密风险，所以习需要安排专人在海外运作，建立自己的海外势力来帮助自己在国内一统江山。此前，习王共同打下江山，习神利用王岐山的海外势力彻底灭掉党内敌对势力，美国现在开始全面围剿中共，王岐山此时绝不可能和习神一起背锅。
+第213节 台湾政府的待遇
 
-6、王岐山此次露面彻底恢复了往日的精气神，他此时前往海南肯定有特殊用意，不仅博鳌论坛在海南召开，海南还有潜艇基地，王岐山随时可以乘坐潜艇逃离中共国，所以习安排航母编队在南海也是为了预防潜艇从海南叛逃，可见海南对于南海局势和台海局势起着至关重要的作用，接下来中共党内斗争将异常惨烈。
+（a）通常情况 – 国务院和其他美国政府机构应与台湾民选政府在相同的基础上，使用相同的术语和协议，如同美国政府与其他外国政府进行的接触一样，尽管在台湾的美国协会在执行美国外交政策和保护美国在台湾的利益方面继续发挥支持作用，美国政府不得对国务院和其他美国政府机构的官员与台湾政府对口部门直接和例行互动的能力施加任何限制。
 
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+（b） 实施规则 – 本款不应解释为恢复与中华民国（台湾）的外交关系或改变美国政府对台湾国际地位的立场。
 
-参考文章：
+（3节完）
 
-[1][http://www.xinhuanet.com/politics/leaders/2021-04/20/c\_1127350733.htm](http://www.xinhuanet.com/politics/leaders/2021-04/20/c_1127350733.htm)
+对邪恶中共的认知，只有美国是不够的，G7包括其他文明国家，如果没有对这个恶魔有清醒的认识，魔就有空间，恶就有场所，它就会继续生存，所以除魔是全球性的任务。台湾则是一个与魔渊源最深，深受其害，牵连又多的地区，若不是文贵先生的及时爆料，国民党必会赢得大选，这对文明世界将是灾难性的后果。中共不会放弃对台湾当局蓝金黄的策略，台湾的危机并没有消除，所以，在台湾问题上，美国继续接受了文贵先生的建议，力挺台湾。
 
-[2][https://www.reuters.com/article/idCNKBS2C707U?edition-redirect=ca](https://www.reuters.com/article/idCNKBS2C707U?edition-redirect=ca)
+原文链接：
 
-[3][https://zh.wikipedia.org/wiki/%E9%AB%98%E5%B9%B3%E9%99%B5%E4%B9%8B%E5%8F%98](https://zh.wikipedia.org/wiki/%E9%AB%98%E5%B9%B3%E9%99%B5%E4%B9%8B%E5%8F%98)
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
 
-文章撰写：【重生】  编辑：【香柏树】
+文字整理：
 
-本文仅代表作者个人观点
+SEC. 211. SENSE OF CONGRESS ON NEGOTIATIONS WITH G7 COUNTRIES ON THE PEOPLE’S REPUBLIC OF CHINA.
 
+(a) IN GENERAL. — It is the sense of Congress that the President, acting through the Secretary of State, should initiate an agenda with G7 countries on matters relevant to economic and democratic freedoms, including the following:
 
+(1) Trade and investment issues and enforcement.
 
-+1
+(2) Building support for international infrastructure standards, including those agreed to at the G20 summit in Osaka in 2018.
+
+(3) The erosion of democracy and human rights.
+
+(4) The security of 5G telecommunications.
+
+(5) Anti-competitive behavior, such as intellectual property theft, massive subsidization of companies, and other policies and practices.
+
+(6) Predatory international sovereign lending that is inconsistent with OECD and Paris Club principles.
+
+(7) International influence campaigns.
+
+(8) Environmental standards.
+
+(9) Coordination with like-minded regional partners that are not in the G7.
+
+SEC. 212. ENHANCING THE UNITED STATES-TAIWAN PARTNERSHIP.
+
+It is the policy of the United States—
+
+(1) to recognize Taiwan as a vital part of the United States Indo-Pacific strategy;
+
+(2) to advance the security of Taiwan and its democracy as key elements for the continued peace
+
+and stability of the greater Indo-Pacific region, and a vital national security interest of the United
+
+States;
+
+(3) to reinforce its commitments to Taiwan under the Taiwan Relations Act (Public Law 96–8)
+
+and the ‘‘Six Assurances’’ and in accordance with the United States ‘‘One China’’ policy;
+
+(4) to support Taiwan’s implementation of its asymmetric defense strategy, including the priorities
+
+identified in Taiwan’s Overall Defense Concept;
+
+(5) to urge Taiwan to increase its defense spending in order to fully resource its defense strategy;
+
+(6) to conduct regular transfers of defense articles to Taiwan in order to enhance Taiwan’s self-defense capabilities, particularly its efforts to develop and integrate asymmetric capabilities, including anti-ship, coastal defense, anti-armor, air defense, undersea warfare, advanced command, control, communications, computers, intelligence, surveillance, and reconnaissance, and resilient command and control capabilities, into its military forces;
+
+(7) to advocate and actively advance Taiwan’s meaningful participation in the United Nations, the World Health Assembly, the International Civil Aviation Organization, the International Criminal Police Organization, and other international bodies as appropriate; and
+
+(8) to promote meaningful cooperation among the United States, Taiwan, and other like-minded partners.
+
+SEC. 213. TREATMENT OF TAIWAN GOVERNMENT.
+
+(a) IN GENERAL. — The Department of State and other United States Government agencies shall engage with the democratically elected government of Taiwan on the same basis, and using the same nomenclature and protocol, as the United States Government engages with other foreign governments. Notwithstanding the continued supporting role of the American Institute in Taiwan in carrying out United States foreign policy and protecting United States interests in Taiwan, the United States Government shall not place any restrictions on the ability of officials of the Department of State and other United States Government agencies to interact directly and routinely with counterparts in the Taiwan government.
+
+(b) RULE OF CONSTRUCTION. — Nothing in this paragraph shall be construed as entailing restoration of diplomatic relations with the Republic of China (Taiwan) or altering the United States Government’s position on Taiwan’s international status.
+
+0

@@ -1,144 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 卡什·帕特尔（Kash Patel）讨论了拜登政府对中共国、俄罗斯和伊朗的外交政策
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1119695/)
+## 普京向新任古巴共产党主席发出贺电
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1119836/)
 
-內容：
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-来自真正的美国声音（Real America’s Voice） 2021年4月19日的推文
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Snipaste_2021-04-20_18-59-43.jpg)sputniknews.cn
+04月20日，克里姆林宫新闻处报道，俄罗斯总统普京向最近当选古巴共产党中央委员会第一书记的古巴总统米格尔·迪亚斯·卡内尔表示祝贺。
 
-Kash Patel
+普京指出了与古巴的战略伙伴关系的价值，并提出在所有领域发展双边对话和互利合作。
 
-卡什·帕特尔
+普京在贺电中表示，“我期望通过共同努力，我们将确保进一步发展建设性的双边对话，在所有领域开展互利合作，以造福我们人民的友好。”
 
-Former chief of staff, Acting Secretory of Defense
+据古巴共产党网站报道，4月18日举行了古巴共产党中央委员会第一书记选举，米格尔·马里奥·迪亚斯·卡内尔获胜。
 
-前代理国防部长幕僚长
+在迪亚斯·卡内尔之前，劳尔·卡斯特罗曾担任古巴第一书记一职。4月16日，他宣布了离职的决定。这是卡斯特罗家族的代表首次不再担任党内领导职务。彭博社写道，卡斯特罗曾发言支持2019年当选共和国总统的米格尔·迪亚斯·卡内尔。
 
-Well, those are three perfect examples of where to start
+普京还向卡斯特罗本人发出贺电。祝贺他成功召开了古巴共产党第八次代表大会，称赞他在党和国家最高职位上的工作成果及他个人对俄古关系发展的贡献。
 
-好的，这是从这里开始的三个完美的例子
+参考链接：
 
-Russia, China, and Iran
-
-俄罗斯、中共国、和伊朗
-
-Look,  Joe Biden when he ran he said
-
-看, 当乔·拜登竞选时说
-
-his team is gonna be so experience,
-
-他的团队将会是很有经验
-
-so stack on national security matters
-
-在国家安全上还有很丰富的经验
-
-that they would hit ground running
-
-他们将一路快马加鞭
-
-that’s what he said
-
-那是他所说的
-
-So, yeah, we gave him  three months for his presidency
-
-所以，是呀，我们给了他三个月的总统任期时间
-
-to install a diplomatic effort
-
-在外交上进行努力
-
-and foreign policy that works in China, in Russia, in Iran
-
-和在中共国，在俄罗斯，和在伊朗可行的外交政策
-
-I don’t think he’s still call out genocide that’s going on in Xinjiang
-
-我不认为他仍对在新疆发生的种族灭绝事情谴责
-
-I don’t think the sanctions effort that he’s making
-
-我认为他没有采取制裁措施
-
-or anything more than public headline political hay-made
-
-或除了政治头条新闻之外的任何努力
-
-and as for Iran he’s made it very clear
-
-至于伊朗，他说得很清楚
-
-that he wants them back the negotiating table for the JCPOA
-
-他希望他们返回联合全面行动计划的谈判桌
-
-even though the American public and the world
-
-即使美国公众和世界
-
-now knows Iran already blew through the nuclear requirements to restrictions
-
-现在知道伊朗已经破坏了核武器要求的限制
-
-that they were put under by the world
-
-他们被世界所唾弃
-
-so they’re not gonna listen to us anyway
-
-所以他们无论如何也不会听我们的
-
-and they are all as you said
-
-他们都是就如你所说的
-
-successfully testing Joe Biden from Putin, (coughing –  excuse me)
-
-成功地考验了乔-拜登，从普京，（咳嗽—对不起）
-
-to the ayatollah, to Xi Jinping in China
-
-到阿亚图拉，再到中共国的习近平。
-
-and there is no concrete policy that Joe Biden has laid out
-
-而且乔·拜登并没有制定具体夯实的政策
-
-I wish there was that we could have a more substantive discussion
-
-我希望我们可以进行更实质性的讨论
-
-but he’s probably just waiting for the New York Times
-
-但他可能只是在等待《纽约时报》
-
-and the Washington Post to tell him what to do next
-
-和《华盛顿邮报》告诉他下一步该怎么做
-
-I can’t recall the presidency that ever was establishing foreign policy based on the media
-
-我不记得曾经有总统要依据媒体的指导制定了外交政策
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接: [https://twitter.com/realamvoice/status/1384182504450572289?s=24](https://twitter.com/realamvoice/status/1384182504450572289?s=24)
-
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Ali
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-
+[https://www.rbc.ru/rbcfreenews/607e741d9a79470a5aaccc93](https://www.rbc.ru/rbcfreenews/607e741d9a79470a5aaccc93)
 
 0
