@@ -1,144 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 卡什·帕特尔（Kash Patel）讨论了拜登政府对中共国、俄罗斯和伊朗的外交政策
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1119695/)
+## 【世事解评】中共国的假骗偷何时休
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1119892/)
 
-內容：
+作者：纽约香草山福音部  凤鸡
 
-来自真正的美国声音（Real America’s Voice） 2021年4月19日的推文
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
-Kash Patel
 
-卡什·帕特尔
 
-Former chief of staff, Acting Secretory of Defense
+4月18日，湖南人事考试院公布2021年省公务员考试违规行为，其中有73名考生被指存在一般违规行为，如将试卷带离考场、考试结束后继续作答、带未经批准的物品进入考场等。另有10名考生被怀疑作弊，因有5对两两试卷答案雷同。这83名考生的考试成绩被视为无效。
 
-前代理国防部长幕僚长
+此事引发网民热议，相关词条还曾登上微博热搜榜。
 
-Well, those are three perfect examples of where to start
+有网民说：“这还没‘为人民服务’呢，就开始弄虚作假了。”
 
-好的，这是从这里开始的三个完美的例子
+另有网民质疑：“试卷还可以带出考场？费解，这监考老师不挨个儿全收了吗？”“监考老师咋监考的啊。雷同啊。”“严重怀疑把答案带出考场的是各大培训机构人员。”
 
-Russia, China, and Iran
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片17-3.png)
 
-俄罗斯、中共国、和伊朗
+评论：整个中共国都处在一种假骗偷的大环境当中，不搞假骗偷的人连当一个科长都困难，所以都是劣币驱除良币，越往上面人越坏，目前整个系统已经病入膏肓，只有灭共才能改善这种状况了。
 
-Look,  Joe Biden when he ran he said
+校对/发稿：飞虹
 
-看, 当乔·拜登竞选时说
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpeg)
 
-his team is gonna be so experience,
 
-他的团队将会是很有经验
 
-so stack on national security matters
+**更多资讯，更多关注**
 
-在国家安全上还有很丰富的经验
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-that they would hit ground running
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-他们将一路快马加鞭
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-that’s what he said
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-那是他所说的
-
-So, yeah, we gave him  three months for his presidency
-
-所以，是呀，我们给了他三个月的总统任期时间
-
-to install a diplomatic effort
-
-在外交上进行努力
-
-and foreign policy that works in China, in Russia, in Iran
-
-和在中共国，在俄罗斯，和在伊朗可行的外交政策
-
-I don’t think he’s still call out genocide that’s going on in Xinjiang
-
-我不认为他仍对在新疆发生的种族灭绝事情谴责
-
-I don’t think the sanctions effort that he’s making
-
-我认为他没有采取制裁措施
-
-or anything more than public headline political hay-made
-
-或除了政治头条新闻之外的任何努力
-
-and as for Iran he’s made it very clear
-
-至于伊朗，他说得很清楚
-
-that he wants them back the negotiating table for the JCPOA
-
-他希望他们返回联合全面行动计划的谈判桌
-
-even though the American public and the world
-
-即使美国公众和世界
-
-now knows Iran already blew through the nuclear requirements to restrictions
-
-现在知道伊朗已经破坏了核武器要求的限制
-
-that they were put under by the world
-
-他们被世界所唾弃
-
-so they’re not gonna listen to us anyway
-
-所以他们无论如何也不会听我们的
-
-and they are all as you said
-
-他们都是就如你所说的
-
-successfully testing Joe Biden from Putin, (coughing –  excuse me)
-
-成功地考验了乔-拜登，从普京，（咳嗽—对不起）
-
-to the ayatollah, to Xi Jinping in China
-
-到阿亚图拉，再到中共国的习近平。
-
-and there is no concrete policy that Joe Biden has laid out
-
-而且乔·拜登并没有制定具体夯实的政策
-
-I wish there was that we could have a more substantive discussion
-
-我希望我们可以进行更实质性的讨论
-
-but he’s probably just waiting for the New York Times
-
-但他可能只是在等待《纽约时报》
-
-and the Washington Post to tell him what to do next
-
-和《华盛顿邮报》告诉他下一步该怎么做
-
-I can’t recall the presidency that ever was establishing foreign policy based on the media
-
-我不记得曾经有总统要依据媒体的指导制定了外交政策
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接: [https://twitter.com/realamvoice/status/1384182504450572289?s=24](https://twitter.com/realamvoice/status/1384182504450572289?s=24)
-
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Ali
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

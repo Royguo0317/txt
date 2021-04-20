@@ -1,55 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 驳斥人民日报的“接种中共疫苗是道必答题”
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1119246/)
+## 【有声读物】香港民主派人士获刑，各界谴责中共
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1119429/)
 
-**撰稿: 天鹅**
+配音：香草山录音组 蒙古鸿雁
 
-**审核: pv0, 莫黎**
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/psd.jpg)**图片: 昆仑竹**
-
-2021年4月19日中共官媒《人民日报》发文[1]“新冠疫苗接种是道必答题”再次动员老百姓接种疫苗，号召老百姓要把握窗口期，按照中共计划加快接种疫苗。请随笔者一起看看人民日报的拙劣宣传。
-
-**用伪科学欺骗老百姓**
-
-中共对目前中（共）国老百姓的接种率很不满意，《人民日报》文中也写到，[1]“当前，部分群众疫苗接种意愿不高”，可见除了被中共强制要求接种的军、警、边检等特殊工种以外，一般老百姓是没有强烈接种意愿的，特别是北上广深这些较为开放的城市，老百姓普遍对中共疫苗持观望态度。中共虚假宣传所谓的“目前，我国新冠病毒疫苗研发取得可喜进展，已有多款疫苗获批使用”。请问哪家国际同行机构评审了你的疫苗？世卫组织有批准你的疫苗了吗？此时还和老百姓谈什么科学性、必要性、重要性，这就是自欺欺人。中共疫苗在科学上就是“三无产品”，请大家一定要看清。
-
-**把接种疫苗和国家/社会责任捆绑**
-
-文中写道，“事实上，接种疫苗是战胜疫情的利器，利己利人，利国利民，不是选择题而是必答题。”、“接种疫苗是一份社会责任”。换句话说就是，老百姓接种了疫苗就是尽到了责任，利国利民，不接种的话就是对社会不负责、对国家和人民有害。请问这是什么责任，老百姓有什么错？中共病毒爆发后，不对中共卫生系统问责，不对中共体制追责，不找自身的原因，反而对本是受害者的老百姓兴师问罪，动不动就拿出国家、社会来绑架老百姓，逼迫老百姓打疫苗, 这逻辑简直荒唐至极！墙内多少老百姓死于中共病毒，多少人家破人亡，饥饿、贫困、失业、流亡的人更是数不胜数，请问这些事情应该由谁负责，是中共还是老百姓自己？
-
-**阻断外部信息，加强内部宣传**
-
-中共对全世界接种疫苗后的不良反应低调报道。光是最近一周就有许多媒体报道，[2]美国研究报告显示，辉瑞，莫德纳疫苗与阿斯利康疫苗一样普遍存在血栓症状；[3]印度媒体报道，著名的印度演员、公共卫生形象大使维维克在接种疫苗一天后去世；[4]香草山农场转译了美媒的报道，迈阿密56岁产科医生迈克尔·格雷戈里 (Dr. Gregory Michael) 在接种辉瑞mRNA疫苗两个多星期后死亡。但是这些信息在墙内显然被报道得不多，老百姓对疫苗的不良反应信息完全缺失，只能一味地听从中共的宣传，沉浸在对疫苗高疗效的美好幻想中。
-
-同时中共对内继续宣传“防控疫情最有效、最经济的办法，就是接种疫苗”，再次强调所谓的疫苗高疗效的观点，淡化疫苗不良反应。笔者之前已发文 [致墙内百姓 — 揭露中共推行疫苗接种的虚假宣传](https://gnews.org/zh-hans/1036778/)揭露了中共低劣的宣传手段。中共的目的就是要老百姓打疫苗，从而由内向外地推进“疫苗外交”。
-
-综上所述，中共不顾如此多的疫苗不良反应，仍然忽悠老百姓接种疫苗。不仅用伪科学、假标准误导大众，还用爱国、责任等理由绑架老百姓。这就是赤裸裸的草菅人命，请墙内百姓千万不要相信中共的谎言，一定不要接种疫苗！
-
-闫博士第三份报告发布后，受到了美国各界的关注以及认可。郭文贵先生在昨天的直播爆料节目中提到了西郊宾馆会谈中，美国已经准备好了中共病毒白皮书。但中共仍然决意拒不配合美国调查，继续战狼外交，在美国背后搞小集团，与美国对抗。战友们，美中下一阶段的对抗即将到来，我们应该继续坚持唯真不破，正道主义，认真领悟郭先生所说的“诚实待人、忠于事物”，增强个人的辨别能力，为灭共事业贡献自己的一份力!
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-**本文仅代表作者个人观点。**
 
 
 
-**参考新闻：**
 
-[1] [新冠疫苗接种是道必答题（人民时评）](https://china.huanqiu.com/article/42mSNoeEEsu)
+4月16日，十名民主派人士在香港两宗案件中分别被判刑。欧盟外交与安全政策发言人马斯拉里当天发表声明表示，“香港的事态发展使人质疑中（共）国是否有意愿履行其国际承诺，（这一做法）破坏其可信度，并会影响欧中关系。
 
-[2] [Blood clots as prevalent with Pfizer and Moderna vaccine as with AstraZeneca’s: study](https://www.marketwatch.com/story/blood-clots-as-prevalent-with-pfizer-and-moderna-vaccine-as-with-astrazenecas-report-2021-04-15)
-
-[3] [India’s Health Ambassador & Tamil Actor Vivek Dies One Day After Taking COVID Vaccine](https://greatgameindia.com/india-health-ambassador-vivek-dies-vaccine/)
-
-[4] [【医疗前沿世界】夺命疫苗何时了](https://gnews.org/zh-hans/1099582/)
+被判刑者包括李柱铭、何俊仁、黎智英、吴霭仪、何秀兰、李卓人、梁国雄、区诺轩、梁耀忠及杨森。他们的刑期由8个月至18个月不等，其中5人的缓刑期为8至12个月。这是继4月13日黄之锋和古思尧被判刑后，港（共）政府所作出的最新判决。
 
 
 
-* * *
+**文字版原文：[【热点播报】香港民主派人士获刑，各界谴责中共](https://gnews.org/zh-hans/1110419/)**
 
-**发布: 法国巴黎七星编辑组**
+作者：纽约香草山健身部 Jack Li文阳
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 +1

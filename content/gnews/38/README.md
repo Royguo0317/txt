@@ -1,265 +1,90 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快报】华为赞助的播客抨击抓捕性侵儿童者的美国AI公司 2021.04.20
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1119314/)
+## 美国的民意已经开启&nbsp; 美国人必须灭共的11个理由
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1119465/)
 
-** 作者：**罗马共和
-![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image-29-1024x561.png)
-# ***今日摘要***
+**摘要：郭先生在2021年4月11日的直播中复述了他在开会的时候给美国人例举的11个他们必须灭共的理由，并透露美国军方已经有数据表明80%美国人要找中共国算账，70%美国人认为美中必有一战。**
 
-1. 华为赞助的播客抨击抓捕性侵儿童者的美国AI公司
-2. 中国五矿发展称与阿里巴巴合营公司遭市监总局立案调查
-3. 全国冠状病毒激增后，智利捍卫中国产疫苗
-4. 中国向约翰-克里展示如何减少碳排放：让克里等公交车–还把他塞进后座
+**美国的民意已经开启****  ****美国人必须灭共的****11****个理由**
 
+**The Eleven Reasons For the Americans to Take Down the CCP **
 
-# 重要事件
+美国一旦是民意开启，大家记住我说的话啊，一旦美国民意认为你这个国家你跟我是为敌的、你是我的敌人的时候、竞争对手的时候、你影响我经济利益的时候，就破坏了我的资本主义的精致的利己主义的底线的时候，你和我的意识形态也就是信仰和对人的态度完全相反的时候，再加上能源。
 
-- ** 04.19 The National Pulse: [华为赞助的播客抨击抓捕性侵儿童者的美国AI公司Huawei-Sponsored Podcast Blasts American AI Firms Catching Child Sex Predators](https://thenationalpulse.com/breaking/huawei-nyt-pod-slams-ai-firms-catching-child-sex-predators/)**
+Everyone please remember what I say here. [See what will happen] once the public opinion in the United States is whipped up, and once people believe that your country is my enemy and competitor, and that you touch my economic interests, hurt my bottom line, which is capitalism’s exquisite egoism, and that your and my ideologies are completely opposite to each other in terms of beliefs and attitudes towards the mankind. And what’s more, you’ve touched my energy.
 
+现在又多了什么战友们知道吗？多了一个，你看，能源是国家经济基础，过去的战争都是地理，为了土地，美国人不至于；然后信仰，现在和美国人对着干——它要杀神、杀基督、杀天主、杀穆斯林、杀佛教，跟美国这个信仰是完全是相反的。
 
-与中共有关联的科技公司华为赞助的《纽约时报》播客，批评因抓捕儿童性侵者而受到赞扬的美国人工智能公司。
+My fellow fighters, you know, now there is the energy problem on the top of everything. Energy is the foundation of a country’s economy. In the past, wars were all about geography and land, but that’s not a big problem for Americans. Now, the CCP fights head to head with the Americans on beliefs by killing God, the Christ, the Lord, Muslims, and Buddhists. It’s totally against the belief of Americans.
 
-更重要的是，卡拉-斯威舍最近的 “斯威 “播客依赖于来自麻省理工学院（MIT）媒体实验室（MIT）研究员乔伊-布拉姆维尼（Joy Buolamwini）的分析，该实验室拿了数百万美元与杰弗里-爱泼斯坦有关。据WIRED报道，MIT媒体实验室 “积极寻求被定罪的性犯罪者爱泼斯坦的资金支持”，并在2013年至2017年期间 “至少9次接待他作为嘉宾”。
+经济——我偷你的科技、我偷你的技术、我不付你知识产权。什么？大家一看就拉出来了。科技是人类的未来、是国家的安全基石。中共完全偷你的，还不付钱，还威胁你必须给我到中国投资企业。是美国国家未来的威胁吧？
 
-“爱泼斯坦似乎充当了实验室和其他富有的捐助者之间的中间人，”《纽约客》还指出。
+In terms of economy, I [the CCP] steal your technology, and I don’t pay you for intellectual property. What does this mean? You will see that technology is the future of mankind and the cornerstone of national security, but the CCP steals your technology without paying any money and threatens you that you must give me [the CCP] technology if you want to invest in China. Should this be counted as a threat to the future of the US?
 
-布拉姆维尼和MIT媒体实验室攻击了几家人工智能（AI）公司–最积极的是Clearview AI。不过，这家公司被认为帮助执法部门抓到了类似于爱泼斯坦的儿童性侵者。
+第二块，能源——它要抢夺马六甲海峡，包括了吉布提、非洲、中东非。对美国是经济上安全又受影响了吧？——经济。
 
-“美国和加拿大的执法机构正在使用Clearview AI–一家拥有30亿张图像数据库的秘密面部识别初创公司–来识别遭受性虐待的儿童。[……]调查人员说，Clearview的工具使他们能够了解剥削性视频和照片中未成年人的姓名或位置，否则他们可能无法识别，”甚至《纽约时报》也指出。
+The second [threat] is energy. It [the CCP] wants to seize the Strait of Malacca, including Djibouti, Africa, and Middle East Africa. Does this impact America’s economic security? So this is economy.
 
-布拉姆维尼和MIT媒体实验室因担心 “系统性偏见 “和 “种族主义 “算法和应用而否定了这些进展。
+第三条，太空——二战之前没有太空。太空影响了地球安全，美国绝对的安全。现在中共已经在太空上可以随时和美国决一死战，绝对不是美国占多大便宜的问题，肯定最终美国赢，但美国要损失巨大。在损失和死亡、赢的问题上，只要美国有损失，美国就算输了——太空完了吧？
 
-而除了麻省理工学院媒体实验室和爱泼斯坦之间的可疑关系之外，该播客还得到了一家与中共有关联的参与人工智能的科技公司的赞助：华为。
+The third [threat] is space. There was no such thing as “space” before World War II. Space affects the security of the earth, and the security of the US, absolutely. Now the CCP can fight the United States to death at any time in space. It is definitely not a question of how much advantage the United States will have over the CCP. America will definitely win in the end, but it will suffer huge losses. As long as the United States has any losses or death, it would mean a loss to the US and space will be over.
 
-“本播客得到了美国华为技术公司的支持，”节目中段广告透露，然后称赞该公司将 “技术用于公益”。
+第四条，大家看到了，你对整个人类的宗教和信仰已经彻底的干掉，你要当神，你要代替神。
 
-然而，华为与中共和解放军都有广泛的联系，致使美国国务院将其认定为 “国家的武器–或者更准确地说，是中共的武器”。华为被川普政府贴上了 “国家安全威胁 “的标签，被美国国防部贴上了中国数十年军事合作者的标签，它经常向中共提供其产品、网络和设备的后门访问权。
+Fourth, everyone has seen that you, CCP, have completely wiped out all religions and beliefs of the entire mankind and you want to be a god, and you want to replace God.
 
-美国国务院还强调，中共把华为作为 “不仅是赚钱的工具，也是推行党国议程和实现战略目标的工具[……]深深地卷入了北京在国内的镇压系统和在全球日益强硬的战略野心”。
+最后，你要看到你破坏我在世界的领导地位。别说什么海陆文明、什么海洋文明，扯淡的事儿。现在你几个，中、俄、朝、伊，现在土耳其也尝了巴基斯坦尝尝欲试了，你这五个邪恶联盟、五个流氓国家，你要对付我。行了，这又出来了吧。
 
-当被追问到中共使用人工智能的问题时，布拉姆维尼未能对中共政权将该技术应用于维吾尔族迫害和社会信用积分系统提出实质性的谴责。
+Finally, you want to damage my leadership in the world, then regardless of maritime or land-based, continental civilization, [I will destroy you]. Now a few of you, China, Russia, North Korea, Iran, and Turkey (Pakistan also wants to give a try) – the alliance of five evil countries, five rogue countries – want to go against me. Well, here’s it again.
 
-“我们必须要看的一点是，我们是一个民主国家，所以国家控制和国家干预的水平，还有协调的水平和数据收集的水平与美国是不一样的，因为我们首先看的是不同的政治制度。”她为中共政权辩护时提出。
+现在又发生了一个最大的俩事，叫什么？——冠状病毒。冠状病毒是什么？最后这个事——种族大屠杀、反人类罪。
 
-- ** 04.19 Reuters: [中国五矿发展称与阿里巴巴合营公司遭市监总局立案调查](https://cn.reuters.com/article/instant-article/idCNKBS2C702U)**
+Now the two biggest things have happened. What are they called? Coronavirus (tell me what is coronavirus) and genocide – the crime against humanity.
 
+咱把这几天这六条大家去横向地放在这儿的时候，你告诉我美国的民意现在是多少？美国民意现在不是60%，现在的美国军方情报人员：美国超过80%的人要找共产党算账 ，69%到70%的人都认为跟老共要有一战。美国的民意和美国的一切都是要跟着美国的两个核心：意识形态、经济利益。现在又多了这四条：冠状病毒、种族大屠杀、反人类罪。
 
-中国五矿发展股份有限公司周一公告称，公司于近日收到国家市场监督管理总局出具的《涉嫌违法实施经营者集中立案调查通知书》，因公司与阿里巴巴设立合营企业五矿电子商务有限公司（现已更名为“龙腾数科技术有限公司”）的交易涉嫌构成违法实施经营者集中，市场监管总局决定予以立案调查。
+When the six things are put together, you tell me what the public opinion of the United States is now? It is not 60%, rather, based on the current US military intelligence personnel, over 80% of Americans want to hold the CCP accountable, and 69% to 70% believe that there will be a war with the CCP. The public opinion and everything else in the United States follows the two core things: ideology and economic interests. Now there are four more things: coronavirus, genocide, and crimes against humanity.
 
-刊登在上交所网站上的公告并称，公司将按照《立案调查通知》的要求，主动积极配合市场监管总局的调查工作。
+我说到这的时候，我给这会上的人说，我说：“你告诉我共产党应不应该灭？共产党会不会被灭？” 我说现在你去看中国的现在这个胡锡进：“我们要把美国打回到农村去，我们要把它打回到石器时代 。”那叫什么张局张召忠，这所有人的讲话跟美国人说“我要把你美国打到农村去，我要用导弹雨把你整个东南亚军事基地全部消灭”。
 
-据公告披露，五矿发展于2012年5月成立全资子公司五矿电子商务有限公司；2015年11月，杭州阿里创业投资有限公司增资入股五矿电商，增资后五矿电商系五矿发展与阿里创投、北京海立云垂投资管理中心（有限合伙）共同出资设立的合营企业，各方持股比例分别为46%、44%、10%。2019年12月，阿里创投将其持有的五矿电商44%股权转让给易大宗（北京）供应链管理有限公司。
+After I said all these things, I asked the people at this meeting, “Can you tell me whether the CCP should be destroyed? Will the CCP be destroyed?” I said, “Now you should go to watch what Hu Xijin said in China – ‘We ought to defeat Americans and send them back to their farmland. We ought to send them back to the Stone Age.’ Also watch what the guy called Zhang Zhaozhong (a Chinese military theorist at the PLA National Defense University) said. All these people have shouted to the Americans, ‘I want to defeat Americans and send them back to their farmland, and I want to wipe out your entire military base in Southeast Asia with our missile rain.’ ”
 
-五矿发展是一家综合性钢铁流通服务商，主营业务是冶金原材料和钢材的国内外贸易，业务涵盖黑色金属产业链的各个关键环节。该公司于在1997年上市，母公司为大型央企——中国五矿集团有限公司。
+然后现在党内人现在把习大神捧成神，说必将收复台湾，必须打台湾。那么，冠状病毒坚决不是我们干的，是美国干的。马六甲、苏伊士运河，一个船接一个船地坏，你将出大问题。
 
-近日阿里巴巴接到逾180亿元人民币的天价罚单后，蚂蚁集团也被中国金融监管部门再次约谈，主要是要求蚂蚁对标整改方案深入有效整改。 中国市场监管总局认证监管司司长刘卫军上周四表示，将根据反垄断法的规定，加大重大案件的查办力度；进一步提升反垄断监管的能力和水平，健全反垄断的治理体系，增强反垄断的治理能力，增强监管的权威性。
+I continued, “And now the party members praised Xi as the great God Xi and said that Taiwan must be regained and Taiwan must be defeated. And, the coronavirus was definitely not made by us, rather it was made by the United States. In Malacca and Suez Canal, you will see ships broken down one after another. Then you will encounter big problems.”
 
-- **04.19 Breitbart: [全国冠状病毒激增后，智利捍卫中共国产疫苗 Chile Defends Trust in Chinese-Made Vaccines After National Coronavirus Surge](https://www.breitbart.com/latin-america/2021/04/19/chile-defends-trust-chinese-made-vaccines-national-coronavirus-surge/)**
+然后美国的社交媒体现代武器和传统媒体，我绝对没人敢说我半个不字，然后美国的三权——国会、白宫、司法领域已经被我控制。这些不是我说的吧，我也编不出来吧。郭文贵是骗子，我能骗，我要是能把这骗出来，我也是成功的骗子了，我也不就是流氓的骗子了，这是不是事实啊？
 
+“On the social media, which is a modern weapon, and traditional media in the United States, no one dare to say any negative thing about me, not even a half negative word. And the three branches of the United States – Congress, the White House, and the judicial system are totally under my control.” I said, “These are not my words. I can’t make them up. I, Miles Guo is a liar, so I can lie, okay, but if I can make up those stuff, I would be a successful liar, and I would not be called a rogue liar anymore. Is this true?”
 
-大约40%的智利人至少接种过一剂针对中共国冠状病毒的疫苗产品。其中绝大多数人–93%的人–都接种了中国生产的 “科兴 “疫苗。
+所以我跟当时开会讨论的人，我说我们用最简单的历史和逻辑回到了希特勒时代。希特勒的当时有几个标志性的事件，最重要的事件，他从跨过莱茵河撕毁当时的一战协议——《凡尔赛协议》，到1935年的3月5号、1936年的3月6号，跨过莱茵河的几十万大军，干掉法国，攻击英国，然后攻打莫斯科。
 
-智利，一个约1900万人口的国家，已经记录了112万例冠状病毒的流行开始以来和略高于25000人的死亡，截至周一。周六是该国连续第三天在24小时内记录了超过7000例新的冠状病毒病例，这是截至记者发稿时的最新统计数字，显示出比上周跌入6000多例的情况略有增加–此前，随着疫苗运动的加速，4月初每天的病例数激增至9000例。
+So I told the people who participated the meeting, “Let’s look at this using the simplest logic and comparing with the history in the Hitler era. Hitler had several iconic events at the time. The most important event was that he crossed the Rhine and tore up the World War I agreement, the “Versailles Agreement”, and from March 5 in 1935 to March 6 in 1936, hundreds of thousands of troops crossed the Rhine, defeated France, attacked Britain, and then attacked Moscow.”
 
-考虑到 “噪音 “将使Coronavac的疗效下降到 “54%或55%”，关于最初的三期试验结果。一种疫苗通常必须通过50%的疗效门槛才能获得国际药品监督机构的批准。
+我说：“这些事情跟今天的中共和从中国的开始《中国不高兴》、《中国可以说不》、《到厉害了，我的国》、战狼外交、冠状病毒、影响操控美国大选、干掉香港、撕毁中英协议，现在威胁英国、日本、印度的未来，用整个马六甲海峡要让他们跪下，向中国人说求中国，求中共。”
 
-值得注意的是，在使用冠状病毒成功开展大规模疫苗接种活动的国家名单中，没有中国，中共国是冠状病毒的原产国和母国。中国国内对中国疫苗研发者的普遍不信任，导致疫苗接种率如此之低，以至于中共官员警告说，中国可能很快就会在发展对病毒的群体免疫力方面落后于世界其他国家。中国疾病控制中心（CDC）主任高福上周进一步强调了对中国疫苗的担忧，他宣布，像科兴公司的产品 “保护率并不高”，中国政府应该考虑使用美国产品中的mRNA技术的替代品。
+I said, “On the top of these things, you look at today’s CCP. It started from publishing the books, *Unhappy China*, *China Can Say No*, and *Amazing China*, to the “war wolf” style diplomacy, the coronavirus, manipulating the US election, taking over Hong Kong, tearing up the Sino-British Joint Declaration, and now threatening the future of the United Kingdom, Japan, and India, using the entire Strait of Malacca to make them kneel down and beg the Chinese by saying “Please, I beg you, China, and I beg you, the CCP.”
 
-- **04.19 Gateway Pundit：**[**中国向约翰-克里展示如何减少碳排放：让克里等公交车–还把他塞进后座 China Shows John Kerry How to Reduce Carbon Footprint: Makes Kerry Wait for a Bus – Then Sticks Him in Bac**k](https://www.thegatewaypundit.com/2021/04/china-shows-john-kerry-reduce-carbon-footprint-makes-kerry-wait-bus-sticks-back/)
+然后夸张到现在是中国有五亿陆军横扫地球，千架歼-20横扫世界寸草不生，太空中中国可以在几十秒内将太空的所有的全世界布置的卫星武器通通给你拿下；美军基地在三小时内在东南亚全部给你摧毁，核潜艇随时在纽约曼哈顿钻出来把曼哈顿炸平、把美国美东全部给扫空；中共做好了牺牲十亿中国人，中国人死十亿，中国还是第二大人口国。
 
+“And what’s more absurd is that China claimed that it had an army of 500 million soldiers to sweep the entire earth and thousands of J-20 jets so as not to leave a single inch of grass alive in the world; China can shoot down all the satellite weapons deployed by countries all over the world in space within tens of seconds and destroy all the US military bases in Southeast Asia in three hours; its nuclear submarines can emerge in Manhattan at any time to blow up Manhattan and wipe out all East America; and the CCP is ready to sacrifice one billion Chinese people, because even with a billion’s casualty, China would still be the No. 2 most populated country.”
 
-上周末，约翰-克里与中共政权签署了一份垃圾的 “气候变化 “协议。
+我说这些不是我说的，不是“郭骗子”说的，也不是“郭三秒”说的。还有，还有，我在这儿在今天会上说的话，我说了一共十一条。没有人一个人吱声，我说话没有人吱声，我说完十一条，一个人吱声都没有。
 
-中方甚至没有等到克里离开就背弃了协议。
+I told them, “None of these things were said by me, nor by Guo Liar or Guo the Three Seconds.” At today’s meeting, after I told them all the eleven reasons, no one uttered a word. No one uttered a word after I spoke, none of them.
 
-当克里还在上海的时候，中国外交部副部长乐玉成周五表示，中国不太可能在下周的峰会上做出任何新的承诺。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=6072f7c36e11a756eddfaf32](https://gtv.org/video/id=6072f7c36e11a756eddfaf32) (54:13-1:01:52)
+鸣谢：感谢万物归一、&lt;文V&gt;、贝贝、西林1、YIMING（文鸣）、山川异域 提供中文文本于 [https://www.gnews.org/zh-hans/1084679/](https://www.gnews.org/zh-hans/1084679/)
 
-此行完成了的一件事是，中国能够减少约翰-克里的碳足迹。
+* * *
 
-他们不仅把约翰-克里送上公共汽车，强迫他等待，还把他塞在后面的座位。他们嘲笑羞辱了他。
+字幕：【Rock小哥】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-# 每日文贵说
-![]()![](https://gnews.org/wp-content/uploads/2021/04/s55.jpg)
-
-
-# 更多要闻链接
-
-- [据军方消息人士和分析人士透露，中国人民解放军已将先进的远程火箭炮部署到喜马拉雅山，此举旨在加强中国的边境防御，并对印度起到威慑作用。](https://www.scmp.com/news/china/military/article/3130179/china-deploys-long-range-rocket-launcher-deterrent-india?utm_content=article&amp;utm_medium=Social&amp;utm_source=Twitter#Echobox=1618839622)
-
-
-- [牛津大学的一项研究发现，接种冠状病毒疫苗后出现血栓的人数，接种辉瑞和摩德纳疫苗的人数与该大学帮助生产的阿斯利康疫苗的人数差不多。 根据研究，在接种辉瑞或摩德纳疫苗后，每100万人中就有4人发生脑静脉血栓，而接种阿斯利康疫苗的人，每100万人中就有5人。 感染新冠的人患血栓的风险要比接种疫苗的人高得多–每100万患者中就有39人。 由于对血栓的担忧，阿斯利康的疫苗在许多国家已经停止或限制使用。](https://www.marketwatch.com/story/blood-clots-as-prevalent-with-pfizer-and-moderna-vaccine-as-with-astrazenecas-report-2021-04-15)
-
-
-- [纽约时报：中共国公布的一季度GDP同比增长18.3%可能并不反映真实的经济情况。 一个原因基数低：去年一季度GDP同比下降了6.8%；消费者都捂紧钱包不愿消费；而且和往年不同的是， 今年一季度没有春运。](https://cn.nytimes.com/business/20210416/china-economy/?utm_source=tw-nytimeschinese&amp;utm_medium=social&amp;utm_campaign=cur)
-
-
-- [当地时间4月18日， 央行副行长周波称比特币是一个投资选项。](https://www.reuters.com/article/digital-renminbi-0418-sun-idCNKBS2C601R?edition-redirect=in)
-
-
-- [蚂蚁集团正在探索剥离创始人马云在这家金融科技巨头中的股份并放弃控制权的方案。](https://www.reuters.com/technology/exclusive-chinas-ant-explores-ways-jack-ma-exit-beijing-piles-pressure-sources-2021-04-17/)
-
-
-# 每日推特文摘
-
-
-
-塞林博士已经甄别出四个释放出冠状病毒的主要同谋犯！ 江绵恒，舒宏兵，王延轶，郭德银
-
-
-
-
-
-> 塞林博士已经甄别出四个释放出冠状病毒的主要同谋犯！
-> 江绵恒，舒宏兵，王延轶，郭德银 [https://t.co/YUxIDjShv1](https://t.co/YUxIDjShv1)
-> — 花岗岩 (@graniteofstone) [April 19, 2021](https://twitter.com/graniteofstone/status/1384132073477185541?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-这个概念我知道七哥早期说过（所以我没提“首次”） 但是今天再说到这个概念的时候，是比早期提到这个概念要有全新的认知。我相信包括七哥自己也都完善了里面很多很多的构想和设计
-
-
-
-
-
-> 这个概念我知道七哥早期说过（所以我没提“首次”）
-> 
-> 但是今天再说到这个概念的时候，是比早期提到这个概念要有全新的认知。我相信包括七哥自己也都完善了里面很多很多的构想和设计 [https://t.co/6QRE3knSYT](https://t.co/6QRE3knSYT)
-> — 500 𝕸𝖎𝖑𝖊𝖘 (@Safeguard008) [April 19, 2021](https://twitter.com/Safeguard008/status/1384180343058571269?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-美军方生物学塞林博士整理出一张中共冠状病毒政商组成家庭图： 江泽民 江绵恒 江志诚 中科院 武汉病毒研究所 P4实验室 医药公司 发明专利….. 看了这幅图，是政商勾结一手研发病毒一手卖药挣钱，对吗？
-
-
-
-
-
-> 💥💥💥
-> 美军方生物学塞林博士整理出一张中共冠状病毒政商组成家庭图：
-> 
-> 江泽民 江绵恒 江志诚
-> 中科院 武汉病毒研究所 P4实验室
-> 医药公司 发明专利…..
-> 
-> 看了这幅图，是政商勾结一手研发病毒一手卖药挣钱，对吗？
-> 👇👇👇 [https://t.co/jj0D6CpoqQ](https://t.co/jj0D6CpoqQ)
-> — 喜马拉雅华盛顿DC2 (@Dc235284371Dc2) [April 19, 2021](https://twitter.com/Dc235284371Dc2/status/1384215064513638403?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-新加坡最新研究成果，被NIH接受：口服羟氯喹和聚维酮碘喉咙喷雾剂对预防COVID-19的积极影响：一项开放标签的随机试验。”
-
-
-
-
-
-> 新加坡最新研究成果，被NIH接受：口服羟氯喹和聚维酮碘喉咙喷雾剂对预防COVID-19的积极影响：一项开放标签的随机试验。 [https://t.co/tIucjOQOjd](https://t.co/tIucjOQOjd)
-> — 墨博士 (@4RxMbPD3YbeN1fS) [April 19, 2021](https://twitter.com/4RxMbPD3YbeN1fS/status/1384018419054354442?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-中共这么快就为郭先生背书了！给赞！
-
-
-
-
-
-> 中共这么快就为郭先生背书了！给赞！👍 [https://t.co/HDS6tgUt0T](https://t.co/HDS6tgUt0T) [pic.twitter.com/6HctNaP31h](https://t.co/6HctNaP31h)
-> — 瞿水台 Qu Shuitai (@QuShuitai) [April 19, 2021](https://twitter.com/QuShuitai/status/1384175526546272258?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-“共产主义是虚幻的乌托邦,但有人说那中国也是共产国家,经济不是发展的很好吗?要知道中国的发展恰恰是因为采用了资本主义的运作方式加上共产独裁的所谓效率而达成的,而且发展的成果几乎都被腐败的特权阶级偷走了!” 粤语专题片: 甚麼是共產主義 (繁體中文字幕) [https://youtu.be/Q0OuxCaR0c0](https://t.co/RZvxWkC4qt?amp=1)
-
-
-
-
-
-> "共产主义是虚幻的乌托邦,但有人说那中国也是共产国家,经济不是发展的很好吗?要知道中国的发展恰恰是因为采用了资本主义的运作方式加上共产独裁的所谓效率而达成的,而且发展的成果几乎都被腐败的特权阶级偷走了!"
-> 粤语专题片: 甚麼是共產主義 (繁體中文字幕) [https://t.co/RZvxWkC4qt](https://t.co/RZvxWkC4qt) via [@YouTube](https://twitter.com/YouTube?ref_src=twsrc%5Etfw)
-> — Bo Lu II (文龍） (@BoLu213) [April 19, 2021](https://twitter.com/BoLu213/status/1384093355194290184?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-这些家伙平日里分析国际形势头头是道，口若悬河，个个具有敏锐的观察力，但你让他们分析分析黄河边怎么能回国两次时，这帮家伙立刻就装糊涂拒绝发表评论了。
-
-
-
-
-
-> 这些家伙平日里分析国际形势头头是道，口若悬河，个个具有敏锐的观察力，但你让他们分析分析黄河边怎么能回国两次时，这帮家伙立刻就装糊涂拒绝发表评论了。 [pic.twitter.com/HViQi0V1i3](https://t.co/HViQi0V1i3)
-> — Jay Yates (@lazydjay) [April 19, 2021](https://twitter.com/lazydjay/status/1384211972116213760?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-入常，擁核，軍隊正常化，日本和美國開的價碼挺高。 這是踩著中共的尸體上位。徹底贏得未來。將會成爲以後國際秩序的主宰者。 這種利益的面前，沒有一個國家不會滅共。 國際政治很現實，最後全是利益。
-
-
-
-
-
-> 入常，擁核，軍隊正常化，日本和美國開的價碼挺高。
-> 這是踩著中共的尸體上位。徹底贏得未來。將會成爲以後國際秩序的主宰者。
-> 這種利益的面前，沒有一個國家不會滅共。
-> 國際政治很現實，最後全是利益。
-> — 冠军的亲爹(冠博士) (@Guan\_PhD) [April 18, 2021](https://twitter.com/Guan_PhD/status/1383925847267057672?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-*鸣谢：更多要闻链接部分 由chloe蔻依，骑着毛驴来挺郭，自由之鹰提供*
-
-*编辑：罗马共和*
-
-*审核：星空無垠*
-
-*发布：文顾*
-
-
-
-
- 
-0
++1
