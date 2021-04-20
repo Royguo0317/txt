@@ -1,11 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】美国医疗建制派已经被中共严重腐化
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1119165/)
+## 文贵先生直播：20210415G系列相关内容
+` 《爆料贵语--掀郭盖》NZ` [轉載自GNews](https://gnews.org/zh-hans/1119336/)
 
-4/14/2021 美国医疗建制派是负责疫苗合法化和授权的；由于他们已经被中共严重腐化，人们很难不带有色眼镜去看待他们。
+采集：滴水莲花 设计排版：空之灵
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/直播4.15封面.jpeg)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/直播4.15-1.jpeg)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/直播4.15-2.jpeg)
+审核：玫瑰天空
 
-By： 【秘密翻译组 G-Translators】
+上传：糊糊文婴
 
 0

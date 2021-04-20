@@ -1,90 +1,101 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国的民意已经开启&nbsp; 美国人必须灭共的11个理由
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1119465/)
+## 【香港快讯】 4月20日 聘美说客反《人权民主法》港府白耗8,400万
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1119669/)
 
-**摘要：郭先生在2021年4月11日的直播中复述了他在开会的时候给美国人例举的11个他们必须灭共的理由，并透露美国军方已经有数据表明80%美国人要找中共国算账，70%美国人认为美中必有一战。**
+搜集/整理：【喜马拉雅-粤语组】阿恩、PO /封面合成：文粤
+![]()![](https://gnews.org/wp-content/uploads/2021/04/未标题-1-6.jpg)
+**聘美说客反《人权民主法》港府白耗8,400万**
 
-**美国的民意已经开启****  ****美国人必须灭共的****11****个理由**
+特区政府过去六年透过香港贸易发展局，向美国多间游说公司支付至少8,400万港元，就反对美国国会通过《香港人权与民主法案》作政治游说，包括获安排与美国多名政客及经手有关法案的众议员会面。由于根据当地法例，海外机构从事政治活动须向当局注册为「外国代理人」（Foreign Agents），并向司法部披露活动及支出，令参与游说工作的香港贸发局及所聘用的说客公司曝光。近期一次「游说行动」，由驻美总经济贸易专员麦德伟于前年9月12日，即黄之锋与何韵诗出席美国国会听证会前数天，与民主党众议员Alan Lowenthal会面，并「申报」讨论美国与香港关系及《法案》。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/未标题-2-2.jpg)
+**政府突改指引　立会候选人被指违国安法　将不获发还选举开支**
 
-**The Eleven Reasons For the Americans to Take Down the CCP **
+原定去年9 月举行的立法会换届选举最终押后一年，政府曾宣布已报名的参选人可获发还全数选举开支；但政府更新了立法会选举开支指引，列明提出申索的候选人如因涉违反国安法而正接受调查或被刑事起诉，当局不得向有关候选人支付任何款项，直至调查或法律程式被最终裁定；若候选人最终被法庭裁定因牵涉非法的选举活动而触犯国安法，将一律失去收取政府付款的资格。有人认为此举是为了封杀民主派。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/未标题-3-1.jpg)
+**聂德权：或强制延至非公务员合约 宣誓效忠属「基本责任」**
 
-美国一旦是民意开启，大家记住我说的话啊，一旦美国民意认为你这个国家你跟我是为敌的、你是我的敌人的时候、竞争对手的时候、你影响我经济利益的时候，就破坏了我的资本主义的精致的利己主义的底线的时候，你和我的意识形态也就是信仰和对人的态度完全相反的时候，再加上能源。
+政府早前要求所有现职公务员宣誓或签署声明，拥护《基本法》及效忠特区，在129名拒宣誓的公务员中，25名人员已辞职或将离任拒签者或要被革职。称当局已对他们履行公务员的机能及责任等于失去信心；至于已收回部份拒绝宣誓或签署声明的原因，当中包括「损害言论自由」、「签署声明与持有外国户籍有冲突」、「不认同声明内容」，聂不评论理由是否合理，仅指在考虑相关情况后，再会按程序安排离职。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/未标题-4.jpg)
+**【公务员宣誓】带动公务员内部举报成风 人际关系崩塌**
 
-Everyone please remember what I say here. [See what will happen] once the public opinion in the United States is whipped up, and once people believe that your country is my enemy and competitor, and that you touch my economic interests, hurt my bottom line, which is capitalism’s exquisite egoism, and that your and my ideologies are completely opposite to each other in terms of beliefs and attitudes towards the mankind. And what’s more, you’ve touched my energy.
+截至 4 月 1 日，共有 129 名公务员不理会或拒绝签署声明拥护《基本法》及效忠香港特区。公务员工会联合会总干事梁筹庭指，不签声明的相信属年资较短公务员，认为他们很勇敢。他续指，自推出宣誓要求，公务员内部举报文化「成风」，甚至有新入职公务员，遭同事截取入职前网上言论「举报」，虽然最后指控不成立，但调查期间已令该名公务员寝室难安。公务员在入职的「新人班」，部分讲者都会在班上教导，入职后应该一次过删除社交平台上内容为佳，并提醒日后勿在社交平台发表政治表述，为免日后有麻烦。
 
-现在又多了什么战友们知道吗？多了一个，你看，能源是国家经济基础，过去的战争都是地理，为了土地，美国人不至于；然后信仰，现在和美国人对着干——它要杀神、杀基督、杀天主、杀穆斯林、杀佛教，跟美国这个信仰是完全是相反的。
+梁筹庭续指，曾收到局方数字，指现时已经有过万宗涉及公务员政治表述的「举报」个案，惟局方未推出任何指引以缓和现象，质疑他们无心解决，甚至希望延续歪风。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/未标题-5.jpg)
+**两年内5项公开资料收紧 侦查记者：调查报道不会绝迹 寄语同行寻找突破点**
 
-My fellow fighters, you know, now there is the energy problem on the top of everything. Energy is the foundation of a country’s economy. In the past, wars were all about geography and land, but that’s not a big problem for Americans. Now, the CCP fights head to head with the Americans on beliefs by killing God, the Christ, the Lord, Muslims, and Buddhists. It’s totally against the belief of Americans.
+港台《铿锵集》编导蔡玉玲被指涉嫌在制作香港电台铿锵集节目《7.21谁主真相》中，登入车辆登记册查询车牌信息时作出虚假陈述，最终被控以两项「为取得《道路交通条例》下的证明书而作出虚假陈述」罪。政府打算收紧公司查册，两年内第五度收紧查册事宜，更有传媒引述政府消息指，土地注册处亦正检讨查册安排。 《两位现任和曾任侦查报道的记者，他们不约而同仍相信可以继续做下去，在仅存的空间中寻找出突破的缺口。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/未标题-6.jpg)
+**梁振英要求教育局公开操守失当教师资料 教协申请介入聆讯被法官驳回**
 
-经济——我偷你的科技、我偷你的技术、我不付你知识产权。什么？大家一看就拉出来了。科技是人类的未来、是国家的安全基石。中共完全偷你的，还不付钱，还威胁你必须给我到中国投资企业。是美国国家未来的威胁吧？
+前特首梁振英牵头成立的「803 基金」，早前入禀高院提司法覆核，要求教育局公开已被裁定专业操守失当的教师姓名、任教学校。教协本月初申请介入聆讯，今（20 日）开庭处理被法官周家明驳回，教协一方须支付５万元讼费。
 
-In terms of economy, I [the CCP] steal your technology, and I don’t pay you for intellectual property. What does this mean? You will see that technology is the future of mankind and the cornerstone of national security, but the CCP steals your technology without paying any money and threatens you that you must give me [the CCP] technology if you want to invest in China. Should this be counted as a threat to the future of the US?
+代表教协的大律师陈词指，教协于属具利害关系一方，因是次司法覆核结果，将直接影响教协大部分成员，并举证公开教师个人资料所造成的标签效应对教师造成的精神伤害，教协的介入有助增加公众对裁决的信心。
 
-第二块，能源——它要抢夺马六甲海峡，包括了吉布提、非洲、中东非。对美国是经济上安全又受影响了吧？——经济。
+惟法官周家明指出，于现时社会环境下，「起底」之风普遍，被起底者所受影响显而易见，质疑教协一方可如何进一步协助法庭。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/未标题-7.jpg)
+**港大校方配合左媒 狙击学生**
 
-The second [threat] is energy. It [the CCP] wants to seize the Strait of Malacca, including Djibouti, Africa, and Middle East Africa. Does this impact America’s economic security? So this is economy.
+中共官媒及本地左派舆论一直对港大及港大学生会穷追猛打，指学生会连侬墙长期贴满「港独」口号，最终校方亦「配合」，去年决定大学街上层的连侬墙位置使用期届满后，不再让学生会续租，并拆除所有文宣。
 
-第三条，太空——二战之前没有太空。太空影响了地球安全，美国绝对的安全。现在中共已经在太空上可以随时和美国决一死战，绝对不是美国占多大便宜的问题，肯定最终美国赢，但美国要损失巨大。在损失和死亡、赢的问题上，只要美国有损失，美国就算输了——太空完了吧？
+如果学生表达对港大校政不满，就会遭受到校长张翔，甚至国家机器打压，已卸任的港大学生会会长叶芷琳亦连番遭到左报狙击，指她任内宣传「港独」立场，为继续在下学年掌控学生会，叶芷琳运用「独人」惯常伎俩，透过人为断庄，继续以临时组织名义掌权。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/未标题-8.jpg)
+**被囚禁的钟翰林已有最坏打算**
 
-The third [threat] is space. There was no such thing as “space” before World War II. Space affects the security of the earth, and the security of the US, absolutely. Now the CCP can fight the United States to death at any time in space. It is definitely not a question of how much advantage the United States will have over the CCP. America will definitely win in the end, but it will suffer huge losses. As long as the United States has any losses or death, it would mean a loss to the US and space will be over.
+学生动源前召集人钟翰林，去年 10 月底被指违反国安法被捕，还押至今超过半年。前立法会议员邵家臻今早到壁屋惩教所探望他，指钟翰林状况正常，知道「墙外的大家」十分爱惜他，他会好好适应做在囚人士；钟翰林在狱中勤做运动和读书，现正搜集世界各地有关民主运动的书来阅读。又指已有最坏打算，「他甚至认为今时今日参与社运，必须要有最坏打算」。
 
-第四条，大家看到了，你对整个人类的宗教和信仰已经彻底的干掉，你要当神，你要代替神。
+邵提醒，（４ 月 22 日）是钟翰林生日，「请大家写信给他，留下祝福语句，让在监房的他有一点暖」。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/未标题-9.jpg)
+**丽港城区议员李炜林退出公民党 李嘉达辞任观塘区议员**
 
-Fourth, everyone has seen that you, CCP, have completely wiped out all religions and beliefs of the entire mankind and you want to be a god, and you want to replace God.
+区议员宣誓前夕, 再有公民党区议员退党。观塘丽港湾成区区议会区议员李炜林宣布退退出公民党, 感谢公民党过去几年的支援和提携，强调作为议员，将一如既往着力专注经济民生地区议题，为社区及香港作出贡献。另外，因民主派初选案而遭还押的观塘区议员李嘉达今亦辞任议员一职，并表示能成为港人曾经的代议士，是其毕生光荣。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/未标题-10.jpg)
+**快必指政府官员应接受公众批评 煽动罪限制言论自由 申终止聆讯**
 
-最后，你要看到你破坏我在世界的领导地位。别说什么海陆文明、什么海洋文明，扯淡的事儿。现在你几个，中、俄、朝、伊，现在土耳其也尝了巴基斯坦尝尝欲试了，你这五个邪恶联盟、五个流氓国家，你要对付我。行了，这又出来了吧。
+人民力量副主席「快必」谭得志被控去年多次摆街站及游行期间引发他人憎恨和藐视政府，他早前质疑区域法院无权审理他面对的发表和串谋发表煽动文字等八项控罪，惟法官陈广池裁定国安法凌驾本地法律，区院有权处理本案。快必今申请终止本案聆讯，并要求控方厘清控罪详情，指煽动罪的条文内容笼统含糊，不合理地限制言论自由，违反《基本法》及《人权法》，并指政府官员应接受公众批评，市民批评政府的言论应受法律保障。控方则重申，煽动罪有危害国家安全的元素，无可避免会对言论自由造成限制。法官听取双方陈辞后，押后至下周一（26日）裁决。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/未标题-11.jpg)
+**民建联成员获任政府公职仍违规持私企股权**
 
-Finally, you want to damage my leadership in the world, then regardless of maritime or land-based, continental civilization, [I will destroy you]. Now a few of you, China, Russia, North Korea, Iran, and Turkey (Pakistan also wants to give a try) – the alliance of five evil countries, five rogue countries – want to go against me. Well, here’s it again.
+年仅 29 岁的全国港澳研究会成员张进乐，上月获委任为民政事务局政治助理。张名下私人公司在其获委任一日前注册新档，显示他将全数股权转让予河北省政协罗霄，而转让日期为去年 12 月底。张去年 11 月获聘为民政局研究主任后，仍担任私企董事，该公司业务或与其公职或有冲突，而他至 12 月底才辞任。新档证实张加入政府后仍然持股，按规定或需获政府批准。不过，民政局与张至今无正面回应。张进乐称已完成所有申报程式，但拒交代何时申报。另外，民政局资料显示，本年度为政助薪金预留 146 万元拨款，按此计算张的月薪或逾 12 万元。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/未标题-12.jpg)
+**变种袭海港城 病人行踪欠奉 专家轰政府反应慢**
 
-现在又发生了一个最大的俩事，叫什么？——冠状病毒。冠状病毒是什么？最后这个事——种族大屠杀、反人类罪。
+变种病毒杀入社区，政府却「反应慢」，至前日深夜始公布，一名29岁带变种病毒的印裔确诊男患者, 本月11日到过海港城及惠康超市等。但当局没有建议商户停业14天，有专家指变种病毒传染力强，批评当局追踪太迟，忧病毒已传播难追截。所有于当日到访该处的员工及访客，最迟今日要检测。当局昨早在海港三号码头停车场设流动采样站，数百人排队轮候，人龙围绕海港城海旁行人路。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/未标题-13.jpg)
+**【封区强检】荃湾丽城花园、芙蓉大厦　强检 1195 人零确诊**
 
-Now the two biggest things have happened. What are they called? Coronavirus (tell me what is coronavirus) and genocide – the crime against humanity.
+政府昨（19 日）晚围封荃湾两厦强检，分别为丽城花园第二期第4 座、芙蓉街1-5 号芙蓉大厦，两楝大厦分日前分别录1 宗感染源头不明初步确诊个案。今早上午 7 时完成，在两处分别为 915 名及 280 名居民采样检测，暂无发现确诊个案。
 
-咱把这几天这六条大家去横向地放在这儿的时候，你告诉我美国的民意现在是多少？美国民意现在不是60%，现在的美国军方情报人员：美国超过80%的人要找共产党算账 ，69%到70%的人都认为跟老共要有一战。美国的民意和美国的一切都是要跟着美国的两个核心：意识形态、经济利益。现在又多了这四条：冠状病毒、种族大屠杀、反人类罪。
+港府重申会严肃执法。如任何人士未能出示检测结果电话短讯，或佩戴手环以证明接受强制检测，即属违反强制检测公告，可处定额罚款5,000 元，并会收到强制检测令，须在指明期间内接受检测。如再不遵从即属犯罪，可处罚款 25,000 元及监禁 6 个月。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/未标题-14.jpg)
+**公务员事务局去信工会吁执委带头接种疫苗**
 
-When the six things are put together, you tell me what the public opinion of the United States is now? It is not 60%, rather, based on the current US military intelligence personnel, over 80% of Americans want to hold the CCP accountable, and 69% to 70% believe that there will be a war with the CCP. The public opinion and everything else in the United States follows the two core things: ideology and economic interests. Now there are four more things: coronavirus, genocide, and crimes against humanity.
+政府今年2月底开展接种疫苗计划，至今仅约74万人接种首剂疫苗。公务员事务局局长聂德权昨日去信主要公务员团体，包括高级公务员评议会及公务员工会联合会等，鼓励工会执委带头响应，并安排于本周在政府总部接种疫苗。公务员工会联合会主席称自己需长期服药，正待咨询医生意见；该会总干事强调，工会支持接种疫苗，也有呼吁会员参与，但反应冷淡，暂未有人报名。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/未标题-15.jpg)
+**公屋配件藏晶片　势将屋村变监狱**
 
-我说到这的时候，我给这会上的人说，我说：“你告诉我共产党应不应该灭？共产党会不会被灭？” 我说现在你去看中国的现在这个胡锡进：“我们要把美国打回到农村去，我们要把它打回到石器时代 。”那叫什么张局张召忠，这所有人的讲话跟美国人说“我要把你美国打到农村去，我要用导弹雨把你整个东南亚军事基地全部消灭”。
+公屋联会早前发现，长沙湾海达村 2 期公屋大门、铁闸等装有晶片，联会估计做法是防止租户更换设施。深水埗区区议员甄启荣今日联同白田村重建区居民到房委会请愿，批评政府无交代晶片资料，难以预计日后会否有其他用途，担心会侵犯住户私隐，形容是将公屋变成「大监狱」，要求署方移除晶片，称稍后会到私隐专员公署投诉。房屋署回覆查询时，强调没有监察能力，不涉及私隐问题。
 
-After I said all these things, I asked the people at this meeting, “Can you tell me whether the CCP should be destroyed? Will the CCP be destroyed?” I said, “Now you should go to watch what Hu Xijin said in China – ‘We ought to defeat Americans and send them back to their farmland. We ought to send them back to the Stone Age.’ Also watch what the guy called Zhang Zhaozhong (a Chinese military theorist at the PLA National Defense University) said. All these people have shouted to the Americans, ‘I want to defeat Americans and send them back to their farmland, and I want to wipe out your entire military base in Southeast Asia with our missile rain.’ ”
+公屋联会上周到长沙湾海达村 2 期公屋参观时，得知单位大门、大门铁闸及厨房木门等门装有晶片，指如租户拆除大门，房署能够追踪及要求还原。房屋署承认，房委会由 2012 年中开始，所有公营房屋新招标工程项目中，预制混凝土外墙、铝窗、木门和铁闸等均安装具有无线射频识别技术(RFID)的晶片。房屋署又否认涉及私隐问题。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/未标题-16.jpg)
+**港疑瞒报多1人打科兴后亡 中年汉针后猝死在家 17逝世15涉科兴**
 
-然后现在党内人现在把习大神捧成神，说必将收复台湾，必须打台湾。那么，冠状病毒坚决不是我们干的，是美国干的。马六甲、苏伊士运河，一个船接一个船地坏，你将出大问题。
+本港再多一人接种中共病毒疫苗后死亡，累计增至17人针后逝世，其中15人打中共科兴灭活疫苗。一名没长期病纪录的50多岁男子，月初打过首针科兴，日前胸口不适，昨被发现昏迷，送院不治。由于该男子的死亡时间距离疫苗接种超过14天，医院管理局向卫生署呈报事件后，政府未有立即主动公布。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/未标题-17.jpg)
+**港青创业 视员工为亲人 英国黄店卖港货 柴米油盐附文宣**
 
-I continued, “And now the party members praised Xi as the great God Xi and said that Taiwan must be regained and Taiwan must be defeated. And, the coronavirus was definitely not made by us, rather it was made by the United States. In Malacca and Suez Canal, you will see ships broken down one after another. Then you will encounter big problems.”
+在英国，要购买中式食品及产品，就会首先想起四大连锁华人超市。三年前，有港人Magic先生在英创立网上亚洲食品超市「华南行」，除售卖亚洲食品，也尽力引入更多香港品牌。华南行曾随货附送抗争文宣、引入黄圈产品、捐钱给612人道支援基金，有人形容是英国黄店，创办人说来淡然︰「你觉得要做、应该做，就会去做」。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/未标题-18.jpg)
+**台湾新闻摄影赛 明报夺两奖**
 
-然后美国的社交媒体现代武器和传统媒体，我绝对没人敢说我半个不字，然后美国的三权——国会、白宫、司法领域已经被我控制。这些不是我说的吧，我也编不出来吧。郭文贵是骗子，我能骗，我要是能把这骗出来，我也是成功的骗子了，我也不就是流氓的骗子了，这是不是事实啊？
+台湾新闻摄影协会举办的「2021台湾新闻摄影大赛」公布得奖名单，本港传媒摄影记者得奖，相片大多与《港区国安法》、本港不同示威等事件有关，《明报》摄记冯凯键就夺得两个奖。其中一张得奖相片，在上年9月6日网民发起佐敦游行要求政府恢复选举，当时警方在旺角西洋菜南街大规模搜捕市民，冯拍下一对兄妹被警员截停一刻，该相赢得「突发新闻类」项目第二名。
 
-“On the social media, which is a modern weapon, and traditional media in the United States, no one dare to say any negative thing about me, not even a half negative word. And the three branches of the United States – Congress, the White House, and the judicial system are totally under my control.” I said, “These are not my words. I can’t make them up. I, Miles Guo is a liar, so I can lie, okay, but if I can make up those stuff, I would be a successful liar, and I would not be called a rogue liar anymore. Is this true?”
+资料来源：[苹果日报（1）](https://hk.appledaily.com/local/20210420/B63PQ7VDSJBWROZSD4NBQLL67A/)、[立场新闻（2）](https://www.thestandnews.com/politics/%E6%94%BF%E5%BA%9C%E7%AA%81%E6%94%B9%E6%8C%87%E5%BC%95-%E7%AB%8B%E6%9C%83%E5%80%99%E9%81%B8%E4%BA%BA%E8%A2%AB%E6%8C%87%E9%81%95%E5%9C%8B%E5%AE%89%E6%B3%95-%E5%B0%87%E4%B8%8D%E7%8D%B2%E7%99%BC%E9%82%84%E9%81%B8%E8%88%89%E9%96%8B%E6%94%AF/)、[苹果日报（3）](https://hk.appledaily.com/local/20210419/6CE3E5I6VRHVLMBZ2ZCOQYAK3I/)、[立场新闻（4）](https://www.thestandnews.com/politics/%E5%85%AC%E5%8B%99%E5%93%A1%E5%AE%A3%E8%AA%93-%E6%A2%81%E7%B1%8C%E5%BA%AD-%E7%AF%A4%E8%83%8C%E8%84%8A-%E5%9A%B4%E9%87%8D-%E6%B6%89%E6%94%BF%E6%B2%BB%E8%A1%A8%E8%BF%B0-%E7%AF%A4%E7%81%B0-%E5%80%8B%E6%A1%88%E9%81%8E%E8%90%AC-%E6%96%B0%E4%BA%BA%E8%A2%AB%E7%BF%BB%E8%88%8A%E8%A8%80%E8%AB%96%E6%8A%95%E8%A8%B4/)、[众新闻（5）](https://www.hkcnews.com/article/40358/%E6%9F%A5%E5%86%8A-%E5%81%B5%E6%9F%A5%E8%A8%98%E8%80%85-%E6%94%B6%E7%B7%8A%E6%9F%A5%E5%86%8A-40358/%E3%80%90%E6%96%B0%E8%81%9E%E6%9F%A5%E5%86%8A%E7%B3%BB%E5%88%97%E4%BA%8C%E3%80%91%E5%85%A9%E5%B9%B4%E5%85%A75%E9%A0%85%E5%85%AC%E9%96%8B%E8%B3%87%E6%96%99%E6%94%B6%E7%B7%8A-%E5%81%B5%E6%9F%A5%E8%A8%98%E8%80%85%EF%BC%9A%E8%AA%BF%E6%9F%A5%E5%A0%B1%E9%81%93%E4%B8%8D%E6%9C%83%E7%B5%95%E8%B7%A1-%E5%AF%84%E8%AA%9E%E5%90%8C%E8%A1%8C%E5%B0%8B%E6%89%BE%E7%AA%81%E7%A0%B4%E9%BB%9E)、[立场新闻（6）](https://www.thestandnews.com/court/ab-%E6%A2%81%E6%8C%AF%E8%8B%B1-803-%E5%9F%BA%E9%87%91-%E5%8F%B8%E6%B3%95%E8%A6%86%E6%A0%B8-%E8%A6%81%E6%B1%82%E6%95%99%E8%82%B2%E5%B1%80%E5%85%AC%E9%96%8B%E6%93%8D%E5%AE%88%E5%A4%B1%E7%95%B6%E6%95%99%E5%B8%AB%E8%B3%87%E6%96%99-%E6%95%99%E5%8D%94%E7%94%B3%E4%BB%8B%E5%85%A5%E8%81%86%E8%A8%8A%E8%A2%AB%E6%8B%92/)、[苹果日报（7）](https://hk.appledaily.com/local/20210420/RP3NYEWFARFYREEBXHBOAN23CA/)、[立场新闻（8）](https://www.thestandnews.com/politics/%E9%82%B5%E5%AE%B6%E8%87%BB%E5%A3%81%E5%B1%8B%E6%8E%A2%E6%9C%9B%E9%8D%BE%E7%BF%B0%E6%9E%97-%E9%82%84%E6%8A%BC%E8%87%B3%E4%BB%8A%E9%80%BE%E5%8D%8A%E5%B9%B4-%E9%8D%BE%E7%A8%B1%E5%B7%B2%E6%9C%89%E6%9C%80%E5%A3%9E%E6%89%93%E7%AE%97/)、[苹果日报（9）](https://hk.appledaily.com/local/20210419/6MBDKOPPQVDCVN3UVLDIG7UU54/)、[苹果日报（10）](https://hk.appledaily.com/local/20210419/6MBDKOPPQVDCVN3UVLDIG7UU54/)、[立场新闻（11）](https://www.thestandnews.com/politics/%E5%8A%A0%E5%85%A5%E6%94%BF%E5%BA%9C%E4%BB%8D%E6%8C%81%E7%A7%81%E4%BC%81%E8%82%A1%E6%AC%8A-%E5%BC%B5%E9%80%B2%E6%A8%82%E7%8D%B2%E5%A7%94%E6%B0%91%E6%94%BF%E5%B1%80%E6%94%BF%E5%8A%A9%E5%89%8D-%E8%82%A1%E6%AC%8A%E8%BD%89%E8%AE%93%E4%BA%88%E6%B2%B3%E5%8C%97%E6%94%BF%E5%8D%94/)、[苹果日报（12）](https://hk.appledaily.com/local/20210420/L7L2AIHUGVHLFJQP2DTJNJPFEU/)、[立场新闻（13）](https://www.thestandnews.com/society/%E6%AD%A6%E6%BC%A2%E8%82%BA%E7%82%8E-%E8%8D%83%E7%81%A3%E9%BA%97%E5%9F%8E%E8%8A%B1%E5%9C%92-%E8%8A%99%E8%93%89%E5%A4%A7%E5%BB%88%E5%B0%81%E5%8D%80%E5%BC%B7%E6%AA%A2-1195-%E4%BA%BA%E6%AA%A2%E6%B8%AC%E9%9B%B6%E7%A2%BA%E8%A8%BA/)、[苹果日报（14）](https://hk.appledaily.com/local/20210420/4ICTXELZQVD6TD2DQMX6TEBYQM/)、[立场新闻（15）](https://www.thestandnews.com/society/%E5%85%AC%E5%B1%8B%E5%A4%A7%E9%96%80%E7%AD%89%E8%97%8F%E6%99%B6%E7%89%87-%E5%8D%80%E8%AD%B0%E5%93%A1%E6%86%82%E4%BE%B5%E7%8A%AF%E7%A7%81%E9%9A%B1-%E5%B0%87%E5%85%AC%E5%B1%8B%E8%AE%8A%E6%88%90%E5%A4%A7%E7%9B%A3%E7%8D%84/)、[苹果日报（16）](https://hk.appledaily.com/local/20210419/SAAQXJDP7BDONGOW3IUUTEIV5I/)、[苹果日报（17）](https://hk.appledaily.com/local/20210420/O7XIMNMIBBDRDBBROL2HVOYHFA/)、[明报（18）](https://m.mingpao.com/pns/%e6%b8%af%e8%81%9e/article/20210420/s00002/1618855481378/%e3%80%90emily%e3%80%91%e5%8f%b0%e7%81%a3%e6%96%b0%e8%81%9e%e6%94%9d%e5%bd%b1%e8%b3%bd-%e6%98%8e%e5%a0%b1%e5%a5%aa%e5%85%a9%e7%8d%8e)
 
-所以我跟当时开会讨论的人，我说我们用最简单的历史和逻辑回到了希特勒时代。希特勒的当时有几个标志性的事件，最重要的事件，他从跨过莱茵河撕毁当时的一战协议——《凡尔赛协议》，到1935年的3月5号、1936年的3月6号，跨过莱茵河的几十万大军，干掉法国，攻击英国，然后攻打莫斯科。
+封面素材：TG-反送中文宣谷
 
-So I told the people who participated the meeting, “Let’s look at this using the simplest logic and comparing with the history in the Hitler era. Hitler had several iconic events at the time. The most important event was that he crossed the Rhine and tore up the World War I agreement, the “Versailles Agreement”, and from March 5 in 1935 to March 6 in 1936, hundreds of thousands of troops crossed the Rhine, defeated France, attacked Britain, and then attacked Moscow.”
+审核：文燕、卡西欧 /上传：文粤
 
-我说：“这些事情跟今天的中共和从中国的开始《中国不高兴》、《中国可以说不》、《到厉害了，我的国》、战狼外交、冠状病毒、影响操控美国大选、干掉香港、撕毁中英协议，现在威胁英国、日本、印度的未来，用整个马六甲海峡要让他们跪下，向中国人说求中国，求中共。”
-
-I said, “On the top of these things, you look at today’s CCP. It started from publishing the books, *Unhappy China*, *China Can Say No*, and *Amazing China*, to the “war wolf” style diplomacy, the coronavirus, manipulating the US election, taking over Hong Kong, tearing up the Sino-British Joint Declaration, and now threatening the future of the United Kingdom, Japan, and India, using the entire Strait of Malacca to make them kneel down and beg the Chinese by saying “Please, I beg you, China, and I beg you, the CCP.”
-
-然后夸张到现在是中国有五亿陆军横扫地球，千架歼-20横扫世界寸草不生，太空中中国可以在几十秒内将太空的所有的全世界布置的卫星武器通通给你拿下；美军基地在三小时内在东南亚全部给你摧毁，核潜艇随时在纽约曼哈顿钻出来把曼哈顿炸平、把美国美东全部给扫空；中共做好了牺牲十亿中国人，中国人死十亿，中国还是第二大人口国。
-
-“And what’s more absurd is that China claimed that it had an army of 500 million soldiers to sweep the entire earth and thousands of J-20 jets so as not to leave a single inch of grass alive in the world; China can shoot down all the satellite weapons deployed by countries all over the world in space within tens of seconds and destroy all the US military bases in Southeast Asia in three hours; its nuclear submarines can emerge in Manhattan at any time to blow up Manhattan and wipe out all East America; and the CCP is ready to sacrifice one billion Chinese people, because even with a billion’s casualty, China would still be the No. 2 most populated country.”
-
-我说这些不是我说的，不是“郭骗子”说的，也不是“郭三秒”说的。还有，还有，我在这儿在今天会上说的话，我说了一共十一条。没有人一个人吱声，我说话没有人吱声，我说完十一条，一个人吱声都没有。
-
-I told them, “None of these things were said by me, nor by Guo Liar or Guo the Three Seconds.” At today’s meeting, after I told them all the eleven reasons, no one uttered a word. No one uttered a word after I spoke, none of them.
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=6072f7c36e11a756eddfaf32](https://gtv.org/video/id=6072f7c36e11a756eddfaf32) (54:13-1:01:52)
-鸣谢：感谢万物归一、&lt;文V&gt;、贝贝、西林1、YIMING（文鸣）、山川异域 提供中文文本于 [https://www.gnews.org/zh-hans/1084679/](https://www.gnews.org/zh-hans/1084679/)
-
-* * *
-
-字幕：【Rock小哥】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
-+1
+0

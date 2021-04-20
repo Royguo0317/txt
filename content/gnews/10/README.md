@@ -1,12 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵先生直播：20210418G系列相关内容
-` 《爆料贵语--掀郭盖》NZ` [轉載自GNews](https://gnews.org/zh-hans/1119450/)
+## 【有声读物】风已成眠
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1119664/)
 
-采集：滴水莲花 设计排版：空之灵
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/直播4.18封面.jpeg)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/直播4-18.jpeg)
-审核：玫瑰天空
-上传：糊糊文婴
+**——2020年秋看林风眠画展而感**
 
-+1
+香草山配音组：Swr拥抱太阳
+
+放下扇子，仕女的眼里藏不住秋色
+你如一方水墨，沉淀着通透的秋水
+轻纱披肩，白鹭起舞，风似有似无
+你用一张白纸吐纳云雾，如梦如幻
+
+文字版全文：[【香草诗词汇】风已成眠](https://gnews.org/zh-hans/866164/)
+
+发稿：正义的小新
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

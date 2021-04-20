@@ -1,91 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “掀锅盖”系列：20210417上海帮势弱，秘密布局黄金，为经济危机做准备
-` 《爆料贵语--掀郭盖》NZ` [轉載自GNews](https://gnews.org/zh-hans/1119047/)
+## 【有声读物】我们并非生而为奴
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1119220/)
 
-**郭先生口述内容：**
+配音：香草山录音组 Gtv abeilles（蜜蜂）
 
-共产党这几天杨雄
-
-杨雄送葬孟建柱出来了
-
-这次孟建柱出来
-
-是老江明确的是给习大神说的
-
-孟建柱是经过了上海损失突损杨雄之后
-
-你中纪委弄死我杨雄
-
-你这个习大神你得给我点补偿
-
-咋补偿啊让建柱出来参加葬礼
-
-然后给江家绵恒还有给韩正这人点面子
-
-所以说克里访问上海
-
-这都是给上海帮脸上增金呢
-
-别看这个兄弟姐妹们你要看什么
-
-你要看他们多少人被抓多少钱包被拿走
-
-这才是事实
-
-据我所知上海的房地产
-
-上海的信托上海银行正在大量的布局
-
-下次整个世界的金融危机的到来
-
-这一点上上海帮江家
-
-跟习的这帮人就不是一个段落的
-
-上海帮是真正的国际派
-
-江家大量的在海外在布局
-
-新加坡日本马来西亚欧洲
-
-他们现在很少碰美国
-
-所以最近海外买黄金的
-
-很多人都是江家势力派
-
-现在人民币现在把你给已经虚拟化了
-
-叫加密化了数字化了
-
-而且时间化什么时间你必须得花完
-
-这都是共产党掠夺你财富的招
-
-但是上海帮他聪明这时候弄黄金
-
-弄这个重金属股
-
-\*所有经过节选，编辑和剪辑的简报和视频形式仅供留存及传播，分享信息！
-
-\*所有信息以郭文贵先生源盖特视频和直播视频为准！
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-听写整理：作而无作
-
-翻译:风之伤
-
-校对：SugarPup
-
-视频制作：农夫
-
-审核：掀锅盖组
-
-上传：糊糊文婴
 
 
+
+
+一
+
+“被喝茶”回来，心，比前几回要平静
+
+被“教育”、被威胁、被残害，也不愿为奴
+
+灰色的墙角，黑白颠倒的臭水沟
+
+无用的诗句在苍白的大地上生长
+
+不用象征讽刺城堡
+
+我们一直活在没有自由的笼牢
+
+不用暗喻表达黑暗
+
+我们一直活在无边的黑暗
+
+不用想象虚构荒诞
+
+我们一直活在魔幻的现实
+
+这让神佛流泪的人间，却无法白描
+
+因为，今天，我们是击碎悲剧的传奇
+
+因为，我们并非生而为奴
+
+
+
+**文字版原文：[【香草诗词汇】我们并非生而为奴](https://gnews.org/zh-hans/678656/)**
+
+作者：纽约香草山写作组  木白
+
+
+
+音频处理/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
