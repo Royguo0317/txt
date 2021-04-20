@@ -1,60 +1,131 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 无国界记者组织: 2021年新闻自由指数报告将港版安全法列为 “严重威胁”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1119821/)
+## 美国《2021战略竞争法》第211、212、213节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1119760/)
 
-- 翻译：蚂蚁兄弟
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/T-18.jpg)youtube.com
+要点：G7国家中共的认知应包括，民主和人权的侵蚀，5G电信的安全性，反竞争行为，如知识产权盗窃、企业大规模补贴等政策和做法，掠夺性国际主权贷款。承认台湾是美国印太平洋战略的重要组成部分，增强台湾的自卫能力，特别是发展和整合反舰、海防、反装甲、防空、海战、先进指挥、控制、通信、计算机、情报等不对称能力，军事力量的监视、侦察和弹性指挥控制能力，积极推动台湾有意义地参与联合国、世界卫生大会、国际民用航空组织、国际刑事警察组织和其他国际机构。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+欲了解更多的內容，请看本节全文（仅供参考）。
 
-**西班牙2021年4月20日电/西喜社——**
+第211节 关于与七国集团（G7）国家就中共国问题谈判的国会意识
 
-据香港自由新闻（HKFP）4月21日消息，国际新闻自由监督机构 “无国界记者”（RSF）周二发布2021年世界新闻自由度指数时，警告说，中共实施的港版国家安全法对香港的记者构成了 “严重威胁”。 在最新的指数中，全球180个国家和地区中，香港名列仍为第80位。相比去年同期在该指数的排名下降了7位，跌至第80位，但与2002年在该指数中的第18位相比，有大幅下降。目前，香港的自由指数排名低于多哥和吉尔吉斯斯坦。
+（a） 通常情况 – 国会认为，总统通过国务卿应与七国集团国家就有关经济和民主自由的事项启动一项议程，包括以下：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-2-7.jpg)
+（1）贸易和投资问题及执行。
 
-该监督机构警告说，一种 “审核病毒” 正在亚洲各地蔓延”。无国界记者组织星期二的声明说：”在亚太地区，审核病毒蔓延到中国以外的地区，特别是香港，中共在那里实施的港版国家安全法严重威胁到记者。
+（2）为国际基础设施标准提供支持，包括2018年大阪G20峰会商定的标准。
 
-自去年夏天中共对香港实施港版国家安全法后，香港的新闻自由空间越来越小。最近几周，该市警察局长誓要调查任何被认为危及国家安全的 “假新闻”，且中共政府也正在酝酿一项法律措施，阻止“误导”信息。
+（3）民主和人权的侵蚀。
 
-一名香港记者因以调查关于2019年元朗暴徒袭击事件中警方不作为的报道，而查阅了公共交通登记记录，目前正在面临审判。
+（4）5G电信的安全性。
 
-该年度指数是根据专家们关于各地区的记者遭受虐待和暴力行为的信息，并衡量各地新闻自由的各种因素—包括多元化、媒体独立、自我审查、透明度和该地区的立法框架综合要素汇编的。
+（5）反竞争行为，如知识产权盗窃、企业大规模补贴等政策和做法。
 
-**暴风雨前的宁静**
+（6）不符《经济合作与发展组织》（OECD）和《巴黎俱乐部原则》（Paris Club）的掠夺性国际主权贷款。
 
-RSF东亚局局长Cédric Alviani告诉香港通讯社，香港的排名没有变化并不意味着该市的新闻自由威胁没有变化。他说：“我想说这是暴风雨前的平静”，他补充说，他“非常担心”港版安全法会带给记者潜在的自我审查制度。
+（7）国际影响力运动。
 
-他说，香港排名保持不变的原因之一是香港人在大流行期间无法上街示威：“在过去一年中，没有发生针对记者的暴力事件，因为示威者已经不能自由地进行示威了”。
+（8）环境标准。
 
-与此同时，中国在该指数中也保持在第177位，仅高于朝鲜、土库曼斯坦和厄立特里亚。该监督机构还警告说，在习近平的领导下，中国的互联网审查、监视和洗脑宣传已经达到 “前所未有的水平”。
+（9）与不在G7中的志同道合的区域伙伴的合作。
 
-监督机构在声明中还说：“由于大量使用新科技和军管式的审查制度，中共政府设法监测和控制信息流，在网上监视和审查公民，并在社交媒体上替其宣传。
+（原文只到此，似乎缺内容……）
 
-无国界记者组织还警告说，由中共策划的全球错误信息运动正在扩大。”中共政权还在扩大在国外的影响，目的是将其编制的故事强加给国际受众，并推动其新闻业与国家宣传混为一谈的不正当做法。”
+第212节 加强美台伙伴关系
 
-被中共当局称为国家“防火墙”的控制下，对网上的所有信息进行了严格审查。包括谷歌、YouTube、Facebook和Twitter在内的各类互联网平台。
+这是美国的政策-
 
-该监督机构还说，中共病毒大流行被用来进一步限制亚太地区的信息自由流动。“中共的专制政权正在利用病毒大流行来完善他们对信息的极权控制方法。”
+（1）承认台湾是美国印太平洋战略的重要组成部分；
 
-**点评：**
+（2）推进台湾的安全和民主，作为大印度洋-太平洋地区持续和平与稳定，以及美国的重大国家安全利益的关键因素；
 
-**自港版国安法以来，我们都清楚的看到亲共的港府正在一步步收紧新闻的自由度，只有港府才可以认可谁是记者谁不是记者。**
+（3）加强其根据《台湾关系法》（the Taiwan Relations Act）（公共法96–8）对台湾的承诺并按照“六个保证”和美国的“一个中国”政策；
 
-**港版国安法的这些“恐怖主义、分裂国家、颠覆国家政权、勾结境外势力” 等罪名，可以随时对记者进行恐吓和“合法”惩罚或拘留。大部分被逮捕的媒体从业人员，都因以所谓的违反国家安全罪名入狱，受到不同程度的判刑，就连攥写与香港文化身份认同的文章也会有可能收到分裂国家的罪名指控。**
+（4）支持台湾实施非对称防御战略，包括台湾整体防御概念中确定的优先事项；
 
-**媒体不断因为报道敏感话题而受到政治打压，这对香港新闻届的震慑力可想而知，同时记者人身安全和心理上承受的压力，行业里到处布满了红线和报警，新闻自由空间严重萎缩，在这样的社会出来的新闻还能是真实的吗？**
+（5）敦促台湾增加国防开支，以充分利用其国防战略；
 
-**今日的香港就是明日的世界，表面上看上去我们还有言论自由，还能用facebook，推特等社交媒体，但最近不绝于耳的内容审查，账号被关闭等等，这个世界到底还有言论自由吗？**
+（6）定期向台湾移交国防物资，以增强台湾的自卫能力，特别是发展和整合反舰、海防、反装甲、防空、海战、先进指挥、控制、通信、计算机、情报等不对称能力，军事力量的监视、侦察和弹性指挥控制能力；
 
-审核：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
+（7）酌情倡导和积极推动台湾有意义地参与联合国、世界卫生大会、国际民用航空组织、国际刑事警察组织和其他国际机构；以及
 
-**新闻来源：**[香港自由新闻（HKFP）](https://hongkongfp.com/2021/04/20/hong-kong-security-law-cited-as-grave-threat-in-new-reporters-without-borders-2021-press-freedom-index-report/)
+（8）促进美国、台湾等志同道合伙伴之间的有意义的合作。
 
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+第213节 台湾政府的待遇
 
+（a）通常情况 – 国务院和其他美国政府机构应与台湾民选政府在相同的基础上，使用相同的术语和协议，如同美国政府与其他外国政府进行的接触一样，尽管在台湾的美国协会在执行美国外交政策和保护美国在台湾的利益方面继续发挥支持作用，美国政府不得对国务院和其他美国政府机构的官员与台湾政府对口部门直接和例行互动的能力施加任何限制。
 
+（b） 实施规则 – 本款不应解释为恢复与中华民国（台湾）的外交关系或改变美国政府对台湾国际地位的立场。
+
+（3节完）
+
+对邪恶中共的认知，只有美国是不够的，G7包括其他文明国家，如果没有对这个恶魔有清醒的认识，魔就有空间，恶就有场所，它就会继续生存，所以除魔是全球性的任务。台湾则是一个与魔渊源最深，深受其害，牵连又多的地区，若不是文贵先生的及时爆料，国民党必会赢得大选，这对文明世界将是灾难性的后果。中共不会放弃对台湾当局蓝金黄的策略，台湾的危机并没有消除，所以，在台湾问题上，美国继续接受了文贵先生的建议，力挺台湾。
+
+原文链接：
+
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+
+文字整理：
+
+SEC. 211. SENSE OF CONGRESS ON NEGOTIATIONS WITH G7 COUNTRIES ON THE PEOPLE’S REPUBLIC OF CHINA.
+
+(a) IN GENERAL. — It is the sense of Congress that the President, acting through the Secretary of State, should initiate an agenda with G7 countries on matters relevant to economic and democratic freedoms, including the following:
+
+(1) Trade and investment issues and enforcement.
+
+(2) Building support for international infrastructure standards, including those agreed to at the G20 summit in Osaka in 2018.
+
+(3) The erosion of democracy and human rights.
+
+(4) The security of 5G telecommunications.
+
+(5) Anti-competitive behavior, such as intellectual property theft, massive subsidization of companies, and other policies and practices.
+
+(6) Predatory international sovereign lending that is inconsistent with OECD and Paris Club principles.
+
+(7) International influence campaigns.
+
+(8) Environmental standards.
+
+(9) Coordination with like-minded regional partners that are not in the G7.
+
+SEC. 212. ENHANCING THE UNITED STATES-TAIWAN PARTNERSHIP.
+
+It is the policy of the United States—
+
+(1) to recognize Taiwan as a vital part of the United States Indo-Pacific strategy;
+
+(2) to advance the security of Taiwan and its democracy as key elements for the continued peace
+
+and stability of the greater Indo-Pacific region, and a vital national security interest of the United
+
+States;
+
+(3) to reinforce its commitments to Taiwan under the Taiwan Relations Act (Public Law 96–8)
+
+and the ‘‘Six Assurances’’ and in accordance with the United States ‘‘One China’’ policy;
+
+(4) to support Taiwan’s implementation of its asymmetric defense strategy, including the priorities
+
+identified in Taiwan’s Overall Defense Concept;
+
+(5) to urge Taiwan to increase its defense spending in order to fully resource its defense strategy;
+
+(6) to conduct regular transfers of defense articles to Taiwan in order to enhance Taiwan’s self-defense capabilities, particularly its efforts to develop and integrate asymmetric capabilities, including anti-ship, coastal defense, anti-armor, air defense, undersea warfare, advanced command, control, communications, computers, intelligence, surveillance, and reconnaissance, and resilient command and control capabilities, into its military forces;
+
+(7) to advocate and actively advance Taiwan’s meaningful participation in the United Nations, the World Health Assembly, the International Civil Aviation Organization, the International Criminal Police Organization, and other international bodies as appropriate; and
+
+(8) to promote meaningful cooperation among the United States, Taiwan, and other like-minded partners.
+
+SEC. 213. TREATMENT OF TAIWAN GOVERNMENT.
+
+(a) IN GENERAL. — The Department of State and other United States Government agencies shall engage with the democratically elected government of Taiwan on the same basis, and using the same nomenclature and protocol, as the United States Government engages with other foreign governments. Notwithstanding the continued supporting role of the American Institute in Taiwan in carrying out United States foreign policy and protecting United States interests in Taiwan, the United States Government shall not place any restrictions on the ability of officials of the Department of State and other United States Government agencies to interact directly and routinely with counterparts in the Taiwan government.
+
+(b) RULE OF CONSTRUCTION. — Nothing in this paragraph shall be construed as entailing restoration of diplomatic relations with the Republic of China (Taiwan) or altering the United States Government’s position on Taiwan’s international status.
 
 0

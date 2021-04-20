@@ -1,49 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】数字人民币的目的就是要干掉美元
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1119916/)
+## 中共黑客利用Pulse Secure漏洞攻击美国国防工业
+` Revelation119熙攘` [轉載自GNews](https://gnews.org/zh-hans/1120388/)
 
-作者：纽约香草山农场 城君
+[加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf](https://gnews.org/zh-hans/author/gnewscanada/)
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/hackers.jpeg)
+据《路透社》4月20日报道，研究人员和设备制造商周二表示，至少有两个与中共有关的黑客组织利用美国网络设备中一个先前未被披露的漏洞对美国国防工业进行了几个月的间谍活动。
 
+总部位于犹他州的IT公司阿凡提在一份声明中说，中共黑客利用其虚拟专用网络设备的Pulse Connect Secure软件组件的缺陷攻陷了”有限数量的客户 “的系统。该漏洞的修复措施要到5月初才会发布。
 
+阿凡提没有提供发起该间谍活动的黑客组织的细节信息，但网络安全公司火眼（FEYE.O）在一份与阿凡提的公告相呼应的报告中说，它怀疑至少有一个黑客组织是由中共政府控制的。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+火眼公司的查尔斯·卡马卡尔（Charles Carmakal）在报告发布前说，“另一个嫌疑黑客组织的活动也与中共所追求的黑客活动与情报收集的目的相一致。”
 
+虽然将黑客组织与特定国家联系起来充满了不确定性，但卡马卡尔说，火眼公司分析师的判断是基于对该黑客组织所使用的战术、工具、设备和目标的分析——其中许多分析结果与过去与中共国有关的黑客入侵事件相呼应。
 
+中共国驻华盛顿大使馆没有立即回应寻求置评的请求。众所周知，中共通常会否认任何黑客行动与其相关联的说法。
 
-刚刚过去的博鳌亚洲论坛上，在谈及人民币国际化的议题时，中（共）国人民银行副行长李波指出，“人民币国际化是一个自然而然的进程，我们的目的不是取代美元，或者取代其他国际货币，而是让市场作出选择，实现进一步的国际贸易和投资的便利化。”
+火眼公司拒绝透露本次黑客活动的目标，只是指出它们是”世界各地的国防、政府和金融组织”。该网络安全公司说，这群被怀疑为中共工作的黑客组织的重点目标是美国的国防工业。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-370.png)
+美国国土安全部的网络部门在一份声明中说，该部门正在与阿凡提公司合作，”以更好地了解Pulse Secure VPN设备的漏洞，以减少对联邦民用和私营部门网络的潜在风险。”
 
-众所周知，自2015年起，中共假借“一带一路”共同发展的名义，同路线上的很多国家建立起经济联系。如今回首，我们看到中共输出更多的是贪腐、暴政、债务和破产。再看看近两年中共大肆推行的数字货币，很难相信开篇副行长李波所说的，“人名币国际化是一个自然而然的过程”。最终我们发现，投资、“一带一路”和虚拟货币三个领域都是相互配合的，以达到中共的险恶目的。
+美国国家安全局拒绝发表评论。美国官员多年来一再指责中共黑客通过各种手段窃取美国军事机密。
 
-![](https://lh3.googleusercontent.com/proxy/_UBM2Kp-dWEJirYPxi2LxV20HDb3bwEJKhBJjTL3aLm42ufxVUnirzXdgH_ZTQvF8PFVhT2go-x8mrYNTz4Peo9sGa7TzH_C3NHZFKjih9HBTA)图片来源：路透社
+最近，往往难以监控的网络设备已经成为数字间谍青睐的攻击途径。
 
-郭文贵先生在4月15日的直播中说到：中共近期在欧洲、亚洲大量推广DCEP，挑战SWIFT银行结算系统。同时，我们也看到，大部分国家都存在债务问题，其中高额债务的国家更易遭受中共国货币战的攻击，比如美国的30万亿美元债务，就时刻面临着数字人民币的威胁。如果连美国这样经济体量的国家都有这种风险，那么数字人民币对中、小国家边缘性的货币和货币政策的影响，岂不是轻而易举？
+2020年火眼公司曾警告说，与中共有关联的黑客组织正瞄准思杰（CTXS.O）和思科（CSCO.O）制造的网络设备进而入侵许多公司。火眼公司将此描述为，它多年来所观察到的的由中共黑客发起的最广泛黑客活动之一。
 
-数字人民币的最终目的是干掉美元，我们不能让魔鬼得逞，它只会成为魔鬼统治人民的武器。
+尽管火眼公司的报告没有指明这一系列最新的黑客攻击所发生的时间，但是说”在今年年初”它们就已经调查了这些黑客活动。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+卡马卡尔补充说，这些黑客是从美国的数字设备进行操作并借用被入侵者的惯用命名来隐藏他们的活动。这样的话，这些网络入侵活动看起来就像是公司员工从家里使用Pulse Connect Secure软件组件远程登录工作一样而不被怀疑。他说，”这些黑客使用了相当先进的网络技术。”
 
-编辑/校对/发稿：Irene木木
+评：
 
-**更多资讯，更多关注**
+最近，我们看到中共对美国等西方国家的网络黑客活动越来越多的曝光出来。一个原因是，随着和西方国家的冲突升级，中共发起更加激烈的超限战。另一方面，美国等国家在爆料革命新中国联邦的帮助下对中共的邪恶本质有了更深刻的认识，进而对中共提高了防备，加强了对中共黑客活动的预防和探测。同时，美国三月份出台了一项将影响超过450万家企业的[限制使用中共国信息技术的法规](https://www.gnews.org/zh-hans/1118892/)，在更广泛的层面与中共国科技脱钩，以更加主动而彻底地消除中共在电子及网路科技领域对美国的威胁。可见，美国对中共的警惕已经提升到了历史最高级别。中美已无回头路可走。
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[原文链接](https://www.reuters.com/technology/china-linked-hackers-used-pulse-secure-flaw-target-us-defense-industry-2021-04-20/?taid=607ef24ec18bb900010d347d&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[搜索GNews网站有关“黑客”文章](https://www.gnews.org/zh-hans/?s=%E9%BB%91%E5%AE%A2)
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+**免责声明****: 文章仅代表作者观点。**
 
 0

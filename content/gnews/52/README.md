@@ -1,32 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】风已成眠
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1119664/)
+## 霍利提出针对亚马逊和谷歌的反垄断立法
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1119736/)
 
-**——2020年秋看林风眠画展而感**
+加拿大多伦多枫叶农场蒙特利尔战友团 **Spirit**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Josh.jpg)图片来源：NTD news
+据《国会山报》4月19日报道，参议员乔什·霍利（Josh Hawley）周一提出立法，针对包括亚马逊和谷歌在内的大科技集团，使其更难推销和使用某些在线服务。
 
-香草山配音组：Swr拥抱太阳
+《打击大科技法案》将禁止推销搜索引擎、市场和交易所的科技公司在其网站上以与第三方集团竞争的方式宣传或销售自己的商品和服务。它还将禁止这些公司为其他公司提供互联网基础设施和在线托管，包括禁止亚马逊通过亚马逊网络服务提供云计算服务。
 
-放下扇子，仕女的眼里藏不住秋色
-你如一方水墨，沉淀着通透的秋水
-轻纱披肩，白鹭起舞，风似有似无
-你用一张白纸吐纳云雾，如梦如幻
+立法将授权联邦贸易委员会监督遵守情况，如果这些公司不遵守规定，法案赋予各州检察长和公民个人对其提起民事诉讼的权利。
 
-文字版全文：[【香草诗词汇】风已成眠](https://gnews.org/zh-hans/866164/)
+霍利在周一声明：”像谷歌和亚马逊这样的大科技公司多年来一直受到华盛顿政客的呵护，这种待遇使他们积累了巨大的权力，用来审查他们不同意的政治观点，并将那些为消费者提供替解决方案的竞争对手拒之门外。”他补充说：”现在已经到了打垮大科技公司，恢复竞争，并将权力还给美国消费者的时候了”。
 
-发稿：正义的小新
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2.jpeg)
-**更多资讯，更多关注**
+霍利是参议院唯一的提案人，在众议院没有相应的立法。这项立法是在霍利上周推出一项针对大型科技公司反垄断问题的单独立法之后推出的。
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+《二十一世纪信托破坏法》将禁止市值超过1000亿美元的公司进行所有并购，这将使谷歌或Facebook等大科技公司更难以收购和合并其他科技集团。
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+近年来，两党的立法者都越来越多地考虑拆散大科技公司。众议院司法委员会上周批准了一份按党派划分的报告，其中详细说明了谷歌母公司Alphabet、亚马逊、苹果和Facebook涉嫌滥用其市场力量的方式。
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+参议院司法委员会的反垄断小组委员会将在本周晚些时候举行听证会，审查应用商店的竞争情况，苹果和谷歌上周都承诺将派证人作证。
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+我们已经“领教”了这些大科技公司的“力量”，例如Twitter 和Facebook禁声与他们不同的政治观点, 包括前总统川普，亚马逊直接关闭PARLER的服务器，不许发表异议言论。这些大科技公司无边的权利亟待规范，否则言论自由在现实中只是一个美好的愿望而已。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[原文链接](https://thehill.com/policy/technology/548930-hawley-introduces-legislation-targeting-amazon-google-antitrust-concerns)
+
+* * *
+
+*编辑、发稿 文锦*
 
 0

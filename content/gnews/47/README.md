@@ -1,33 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 霍利提出针对亚马逊和谷歌的反垄断立法
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1119736/)
+## 慧眼看世界202104020（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1119750/)
 
-加拿大多伦多枫叶农场蒙特利尔战友团 **Spirit**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Josh.jpg)图片来源：NTD news
-据《国会山报》4月19日报道，参议员乔什·霍利（Josh Hawley）周一提出立法，针对包括亚马逊和谷歌在内的大科技集团，使其更难推销和使用某些在线服务。
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-《打击大科技法案》将禁止推销搜索引擎、市场和交易所的科技公司在其网站上以与第三方集团竞争的方式宣传或销售自己的商品和服务。它还将禁止这些公司为其他公司提供互联网基础设施和在线托管，包括禁止亚马逊通过亚马逊网络服务提供云计算服务。
 
-立法将授权联邦贸易委员会监督遵守情况，如果这些公司不遵守规定，法案赋予各州检察长和公民个人对其提起民事诉讼的权利。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-霍利在周一声明：”像谷歌和亚马逊这样的大科技公司多年来一直受到华盛顿政客的呵护，这种待遇使他们积累了巨大的权力，用来审查他们不同意的政治观点，并将那些为消费者提供替解决方案的竞争对手拒之门外。”他补充说：”现在已经到了打垮大科技公司，恢复竞争，并将权力还给美国消费者的时候了”。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-9.jpg)
 
-霍利是参议院唯一的提案人，在众议院没有相应的立法。这项立法是在霍利上周推出一项针对大型科技公司反垄断问题的单独立法之后推出的。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-10.jpg)
 
-《二十一世纪信托破坏法》将禁止市值超过1000亿美元的公司进行所有并购，这将使谷歌或Facebook等大科技公司更难以收购和合并其他科技集团。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-10.jpg)
 
-近年来，两党的立法者都越来越多地考虑拆散大科技公司。众议院司法委员会上周批准了一份按党派划分的报告，其中详细说明了谷歌母公司Alphabet、亚马逊、苹果和Facebook涉嫌滥用其市场力量的方式。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-11.jpg)
 
-参议院司法委员会的反垄断小组委员会将在本周晚些时候举行听证会，审查应用商店的竞争情况，苹果和谷歌上周都承诺将派证人作证。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-11.jpg)
 
-我们已经“领教”了这些大科技公司的“力量”，例如Twitter 和Facebook禁声与他们不同的政治观点, 包括前总统川普，亚马逊直接关闭PARLER的服务器，不许发表异议言论。这些大科技公司无边的权利亟待规范，否则言论自由在现实中只是一个美好的愿望而已。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-9.jpg)
 
-[原文链接](https://thehill.com/policy/technology/548930-hawley-introduces-legislation-targeting-amazon-google-antitrust-concerns)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-9.jpg)
 
-* * *
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-9.jpg)
 
-*编辑、发稿 文锦*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-9.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-14.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-17.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-13.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-12.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-12.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-9.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-9.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/18-7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/19-6.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0

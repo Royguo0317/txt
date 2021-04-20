@@ -1,59 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友之声】4·19 VOA断播四周年感怀
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1120322/)
+## 美国国务院发出最高级别警告：请勿旅行
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1120421/)
 
-作者：纽约香草山媒体部 CloudSky
+作者：Chloe
+![]()![](https://gnews.org/wp-content/uploads/2021/04/ggg-1.jpg)
+4月19日美国国务院宣布，接下来的几周将对世界上约80%的国家发出 “第4级：请勿旅行” 的警告。 这是国务院最高级别警告 （1）。
 
+国务院在官方声明中表示，旅行时感染COVID-19的风险仍然过高，并敦促美国人“重新考虑所有海外旅行”。
 
+第4级警告一般保留给战乱国家或被认为对美国公民有敌意的国家，如阿富汗和朝鲜。 即使在几内亚新冠与埃博拉大流行，美国国务院于2021年的2月25日对其发出的警告停留在第3级 （2）。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+国务院今天的这则声明和疾控中心两周前发布的指导方针不一致。 疾控中心认为完全接种疫苗的人可以进行国际旅行，无需再旅行前接受COVID-19检测；而且返美后不需要自我隔离（3）。
 
+国务院今天发布声明一个可能的原因是近几天当局可能发现疫苗对变异的新冠病毒无效。 今天福奇说到秋季公众将知道是否需要打第三针疫苗 （4）。 莫德纳首席执行官本周表示，该公司将在秋季之前向美国人提供疫苗第三剂（5）。
 
+辉瑞也表达了类似的计划。 两天前辉瑞CEO说6至12个月内公众可能需要接种第三剂冠状病毒疫苗，并且“之后每年要重新接种”（6）。
 
-今天的直播中，见到文贵先生穿起我们熟悉的长袍，激动地回顾四年来与CCP斗智斗勇取得的巨大成绩，笔者自己的心情也十分不平静。是呀，四年前的CCP是那样张牙舞爪、不可一世，似乎可以任意翻手为云覆手为雨；如今，其在世界各处如过街老鼠人人喊打，变化太大了。这都是文贵先生引导的爆料革命带领战友共同奋斗的结果。
+参考文献：
 
-四年前的这一天，我偶然发现郭先生正在接受VOA的采访。采访者“龚火鸡”每隔一两分钟便絮絮叨叨地说，“这不代表本台观点！”特别是后来，VOA竟然终止播放这一采访，引起我极大的反感。这样的事情发生在代表自由世界的美国，更让我大跌眼镜，亦让我产生了跟踪此事的动力，结果一发不可收拾。自那以后，我便一直追随文贵先生及爆料革命至今。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-371.png)
-
-我是一个与文贵先生经历完全不同的老者，没有任何经商经验，出国前一直生活在学校的环境里。为什么我能与文贵先生的爆料革命产生如此强烈的共鸣，坚信先生所说的是事实呢？这是因为在不同领域见到的事实，让我对CCP的所作所为和先生有相同的看法——希望中国人民能摆脱CCP的控制，早日开始享受自由、平等的生活。
-
-我所见到的事实有：
-
-1. 中学时，我上的是有名的重点学校。因此，学校里很大一部分学生是省、市、军区及各大国营单位领导的子女。亲眼见到这些人由于家长的权势趾高气扬，自认高人一等的傲慢，还暗地里享受特殊的升学照顾，让我感觉到“共产党员是为人民服务的公仆”的虚伪性。
-2. 虽然是因私出国，临行前某公安部门的人让我在上飞机前去他们那里一趟，说要我“帮些忙”。我没有去，但心里明白他们想让我帮的是什么。所以一听到“千人计划”及“技术间谍”的事情，我便坚信有之。
-3. 在大学里教书时，我亲历提职晋级过程的背后操作，眼见申请科研项目的弄虚作假，以及用科研经费贿赂官员的肮脏交易。
-4. 八九“六四”前，五月二十几号学校派我到北京出差。一出火车站，刺耳的救护车喇叭声此起彼伏，都是送天安门广场绝食昏倒的学生去医院的。当时，各高校领导还派送医护人员去照顾广场上请愿的学生，每早、晚各换一次班。我亲眼见到回校的医生、护士受到师生的夹道欢迎，这些人因心痛学生的惨状一直流泪，哭得两眼红肿；也见到北京市民自发设置路障，劝阻进城的军车；还见到市民送水、送粥、送冷饮给第一批派去天安门广场的士兵，并向他们讲解事情的真相，以致CCP的这次行动被迫流产，不得不派遣另外一批来自大山里、不明真相的士兵完成“任务”。我是五月末离开北京的，那时已感觉到首都不同寻常的紧张气氛。当在家里见到报道“六四”的电视新闻联播突然变黑，并反复播放让北京市民留在家里、不要上街后，我立即意识到事情的严重性，以致于没有身历其境的家人还觉得我有些神经过敏。经历过这些，我不难想象CCP在香港“反送中”运动后会做些什么。香港人民的鲜血一定不会白流，不是不报，时候未到。
-5. 出国前，一胎化政策的“独生子女”已经到了入大学的年龄。因为我在大学教书，亲眼见到了这个政策的恶果：它不仅改变了国家人口结构的自然发展趋势，给很多“失独”家庭造成了终生痛苦，也让大量这些家中的“小王子”、“小公主”娇生惯养成性，十分自我。他们难以适应集体生活，走入社会后也挑肥拣瘦，对本人、对家庭、对社会都产生了巨大的负面影响。现在，中共又把生第二胎提高到为国做贡献的高度，真是把人不当人了。
-6. 我亲身经历过“三反五反”运动，“反右”斗争，尤其在青年时期亲历了“文化革命”的全过程，见到过“伟大舵手”的一言堂——为了稳固个人的权力，其用莫须有的罪名打倒对手，甚至肉体消灭。中共当时摧残了多少对国家、人民做出杰出贡献的知识分子，摧毁了多少几千年遗留下来的文明古迹，破坏了道德伦理，让全中国陷入十几年的灾难之中。我们绝不能让历史重演，再走回头路，允许另一个“神领袖”祸害苍生。
+1. [https://www.dailymail.co.uk/health/article-9488745/US-State-Department-issue-Level-4-Not-Travel-advisory-80-countries.html](https://www.dailymail.co.uk/health/article-9488745/US-State-Department-issue-Level-4-Not-Travel-advisory-80-countries.html)
+2. [https://travel.state.gov/content/travel/en/traveladvisories/traveladvisories/guinea-travel-advisory.html#:~:text=N’Zerekore%20Region%3A%20Level%204,with%20updates%20to%20Ebola%20Information](https://travel.state.gov/content/travel/en/traveladvisories/traveladvisories/guinea-travel-advisory.html#:~:text=N'Zerekore%20Region%3A%20Level%204,with%20updates%20to%20Ebola%20Information).
+3. [https://www.cdc.gov/media/releases/2021/p0402-travel-guidance-vaccinated-people.html#:~:text=Fully%20vaccinated%20people%20can%20travel%20internationally%20without%20getting%20a%20COVID,a%20state%20or%20local%20jurisdiction](https://www.cdc.gov/media/releases/2021/p0402-travel-guidance-vaccinated-people.html#:~:text=Fully%20vaccinated%20people%20can%20travel%20internationally%20without%20getting%20a%20COVID,a%20state%20or%20local%20jurisdiction).
+4. [https://thehill.com/homenews/sunday-talk-shows/548879-fauci-public-will-know-if-third-vaccine-dose-is-needed-by-fall](https://thehill.com/homenews/sunday-talk-shows/548879-fauci-public-will-know-if-third-vaccine-dose-is-needed-by-fall)
+5. [https://www.cbsnews.com/news/moderna-covid-vaccine-booster-shots/](https://www.cbsnews.com/news/moderna-covid-vaccine-booster-shots/)
+6. [https://abc7ny.com/health/third-vaccine-dose-likely-needed-in-6-to-12-months-pfizer-ceo-says/10520223/](https://abc7ny.com/health/third-vaccine-dose-likely-needed-in-6-to-12-months-pfizer-ceo-says/10520223/)
 
 
-… …
-
-总之，文贵先生倡导的“为真不破”的爆料革命走的是一条正道：只有扳倒CCP，中国才有希望，世界才有希望。我和所有战友一样认准了这条路，要为这个伟大的事业贡献自己的一份力量。四年了，我们经历了太多，我们也成熟了很多。我们不为取得的成绩过度喜悦，也不为遇到的挫折过度悲伤和失落，更不为敌人的挑拨离间迷失方向。我们将日拱一卒，直至最后的胜利！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+发布：GLC
 
 0
