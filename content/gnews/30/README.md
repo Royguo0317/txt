@@ -1,131 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第211、212、213节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1119760/)
+## 【热点播报】王岐山亮相2021亚洲博鳌论坛年会开幕式——习王斗狠，谁更胜一筹
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1119924/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：纽约香草山写作二组 桃花水母
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/T-18.jpg)youtube.com
-要点：G7国家中共的认知应包括，民主和人权的侵蚀，5G电信的安全性，反竞争行为，如知识产权盗窃、企业大规模补贴等政策和做法，掠夺性国际主权贷款。承认台湾是美国印太平洋战略的重要组成部分，增强台湾的自卫能力，特别是发展和整合反舰、海防、反装甲、防空、海战、先进指挥、控制、通信、计算机、情报等不对称能力，军事力量的监视、侦察和弹性指挥控制能力，积极推动台湾有意义地参与联合国、世界卫生大会、国际民用航空组织、国际刑事警察组织和其他国际机构。
 
-欲了解更多的內容，请看本节全文（仅供参考）。
 
-第211节 关于与七国集团（G7）国家就中共国问题谈判的国会意识
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-（a） 通常情况 – 国会认为，总统通过国务卿应与七国集团国家就有关经济和民主自由的事项启动一项议程，包括以下：
 
-（1）贸易和投资问题及执行。
 
-（2）为国际基础设施标准提供支持，包括2018年大阪G20峰会商定的标准。
+2021亚洲博鳌论坛年会开幕式上，在理事长潘基文致辞后，大会司仪介绍说，隆重地邀请中华人民共和国副主席王岐山阁下致辞。没想到王岐山走上台后说：“首先说明啊，我不是致辞，博鳌亚洲论坛的全体会议上，致辞的是我们国家元首习近平主席。但是呢，主办方（邀请）我到场了，大家总（得）给我安排一个角色。我领会呢，这个角色呢，是做一个临时主持人，临时主持人也很重要。临时主持人呢，我只是为我们的习近平主席的致辞呢，做一个、报幕，这体现了我们中（共）国对我们的主席的高度的尊重……”台下掌声，然后王岐山低头念稿：
 
-（3）民主和人权的侵蚀。
+“尊敬的潘基文理事长，各位嘉宾，很高兴出席博鳌亚洲论坛2021年年会，今年是博鳌论坛成立20年，我谨表示热烈祝贺，作为论坛的东道国，中（共）国政府始终大力支持博鳌亚洲论坛发展壮大。习近平主席专门为今年年会录制了视频，就促进亚洲和世界的发展繁荣阐述中（共）国立场，分享中（共）国方案，下面请大家以热烈的掌声欢迎习近平主席发表视频主旨演讲。”期间，王岐山持续低头念稿，直到主旨演讲开始时才抬起头。他话音一落，便扭头走下台，回原位就坐，台下掌声。
 
-（4）5G电信的安全性。
+![](https://s.rfi.fr/media/display/be2fec16-a1cb-11eb-8763-005056a9b1a7/w:1280/p:16x9/wqsdf.webp)图源网络
 
-（5）反竞争行为，如知识产权盗窃、企业大规模补贴等政策和做法。
+毫无疑问，王岐山地到场搅动了冷清的2021博鳌年会的一池春水，给各路媒体增加了遐想空间。
 
-（6）不符《经济合作与发展组织》（OECD）和《巴黎俱乐部原则》（Paris Club）的掠夺性国际主权贷款。
+我们注意到，王岐山的讲话去除标点符号也就只有300个字；其在YouTube上的讲话视频亦只是短短3分钟；而在百度以“王岐山 2021亚洲博爱论坛开幕式”为关键字搜索，就没有王的新闻；谷歌搜索，也都是法广和早报等的解读，其中“临时主持人”、“报幕”等字眼突出。
 
-（7）国际影响力运动。
+我们到博鳌亚洲论坛官网做进一步搜索，发现大会定于18日开始，却始终没有公布出席领导的名单。直到19号晚上7点半，论坛官网上才发布了外交部发言人华春莹宣布的参会政要名单，且都是以视频方式出席。
 
-（8）环境标准。
 
-（9）与不在G7中的志同道合的区域伙伴的合作。
+> *“国家主席习近平将于4月20日应邀以视频方式出席博鳌亚洲论坛2021年年会开幕式并发表主旨演讲。*
+> 
+> *文莱苏丹哈桑纳尔、智利总统皮涅拉、印尼总统佐科、哈萨克斯坦首任总统纳扎尔巴耶夫、老挝国家主席通伦、韩国总统文在寅、新加坡总统哈莉玛、斯里兰卡总统戈塔巴雅、越南国家主席阮春福、孟加拉国总理哈西娜、柬埔寨首相洪森、马耳他总理阿贝拉、蒙古国总理奥云额尔登、新西兰总理阿德恩、第七十五届联合国大会主席博兹科尔、国际货币基金组织总裁格奥尔基耶娃等外国领导人和国际组织负责人将应邀以视频方式出席年会。”*
 
-（原文只到此，似乎缺内容……）
 
-第212节 加强美台伙伴关系
+博鳌论坛的本质就是“BGY蓝金黄”论坛，所有参会的政要背后都有相关的利益链条。此时，王岐山的突然出现就是习近平派来与国外勾兑的，毕竟习近平智商太低，搞不定啊。
 
-这是美国的政策-
+王岐山的突然到场，其发言、用词、语气、停顿、表情、脱稿及念稿这一些列的操作，都让我们看到——“习王斗”已经公开。这如同当年的林彪，手拿毛主席语录，却打着内心的小算盘。
 
-（1）承认台湾是美国印太平洋战略的重要组成部分；
+有“亚洲的达沃斯”之称的海南博鳌论坛有着很强的影响力。我们知道，海南是王岐山的地盘，每年也都有政治局领导出席该论坛。习近平曾于2018年出席过该论坛。反观今年，副主席参加的身份不明确，主席录制视频致辞，有点滑稽。
 
-（2）推进台湾的安全和民主，作为大印度洋-太平洋地区持续和平与稳定，以及美国的重大国家安全利益的关键因素；
+在今年疫情肆虐、美国及世界追责的关键时候，习派王岐山为他公关。没想到王岐山在短短3分钟里用300字就告诉了世界：元凶是“习特勒”，我已经被边缘了，不重要了；但同时也向他的支持者透露，我还是相当重要的。
 
-（3）加强其根据《台湾关系法》（the Taiwan Relations Act）（公共法96–8）对台湾的承诺并按照“六个保证”和美国的“一个中国”政策；
+王岐山“鬼子六”，是习近平永远都无法赶上的——习近平三天不学习，赶不上王岐山副主席：大会司仪让我致辞，我有自知之明，定位“临时主持”；习是国家元首，让我给你站台，我明确为你的致辞“报幕”。王岐山通过这些列的举动表明，临时主持代替了大会司仪，临时主持很重要；为元首致辞报幕表示了对习的忠诚，特别强调对主席的尊重——是对主席位置的尊重，不是对习近平的尊重。最后，他突出了习近平“录制”视频致辞，告诉世人：习录好了，也可能是替身。
 
-（4）支持台湾实施非对称防御战略，包括台湾整体防御概念中确定的优先事项；
+参考阅读：
 
-（5）敦促台湾增加国防开支，以充分利用其国防战略；
+[【博鳌论坛】王岐山:我是临时主持人，只是为习近平主席报幕，这体现了我们中国对主席的高度尊重！](https://www.youtube.com/watch?v=9jV4P707JnM)
 
-（6）定期向台湾移交国防物资，以增强台湾的自卫能力，特别是发展和整合反舰、海防、反装甲、防空、海战、先进指挥、控制、通信、计算机、情报等不对称能力，军事力量的监视、侦察和弹性指挥控制能力；
+[博鳌亚洲论坛 2021 年年会](https://www.boaoforum.org/)
 
-（7）酌情倡导和积极推动台湾有意义地参与联合国、世界卫生大会、国际民用航空组织、国际刑事警察组织和其他国际机构；以及
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
-（8）促进美国、台湾等志同道合伙伴之间的有意义的合作。
+编辑/校对/发稿：Irene木木
 
-第213节 台湾政府的待遇
+**更多资讯，更多关注**
 
-（a）通常情况 – 国务院和其他美国政府机构应与台湾民选政府在相同的基础上，使用相同的术语和协议，如同美国政府与其他外国政府进行的接触一样，尽管在台湾的美国协会在执行美国外交政策和保护美国在台湾的利益方面继续发挥支持作用，美国政府不得对国务院和其他美国政府机构的官员与台湾政府对口部门直接和例行互动的能力施加任何限制。
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-（b） 实施规则 – 本款不应解释为恢复与中华民国（台湾）的外交关系或改变美国政府对台湾国际地位的立场。
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-（3节完）
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-对邪恶中共的认知，只有美国是不够的，G7包括其他文明国家，如果没有对这个恶魔有清醒的认识，魔就有空间，恶就有场所，它就会继续生存，所以除魔是全球性的任务。台湾则是一个与魔渊源最深，深受其害，牵连又多的地区，若不是文贵先生的及时爆料，国民党必会赢得大选，这对文明世界将是灾难性的后果。中共不会放弃对台湾当局蓝金黄的策略，台湾的危机并没有消除，所以，在台湾问题上，美国继续接受了文贵先生的建议，力挺台湾。
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-原文链接：
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-文字整理：
 
-SEC. 211. SENSE OF CONGRESS ON NEGOTIATIONS WITH G7 COUNTRIES ON THE PEOPLE’S REPUBLIC OF CHINA.
 
-(a) IN GENERAL. — It is the sense of Congress that the President, acting through the Secretary of State, should initiate an agenda with G7 countries on matters relevant to economic and democratic freedoms, including the following:
 
-(1) Trade and investment issues and enforcement.
-
-(2) Building support for international infrastructure standards, including those agreed to at the G20 summit in Osaka in 2018.
-
-(3) The erosion of democracy and human rights.
-
-(4) The security of 5G telecommunications.
-
-(5) Anti-competitive behavior, such as intellectual property theft, massive subsidization of companies, and other policies and practices.
-
-(6) Predatory international sovereign lending that is inconsistent with OECD and Paris Club principles.
-
-(7) International influence campaigns.
-
-(8) Environmental standards.
-
-(9) Coordination with like-minded regional partners that are not in the G7.
-
-SEC. 212. ENHANCING THE UNITED STATES-TAIWAN PARTNERSHIP.
-
-It is the policy of the United States—
-
-(1) to recognize Taiwan as a vital part of the United States Indo-Pacific strategy;
-
-(2) to advance the security of Taiwan and its democracy as key elements for the continued peace
-
-and stability of the greater Indo-Pacific region, and a vital national security interest of the United
-
-States;
-
-(3) to reinforce its commitments to Taiwan under the Taiwan Relations Act (Public Law 96–8)
-
-and the ‘‘Six Assurances’’ and in accordance with the United States ‘‘One China’’ policy;
-
-(4) to support Taiwan’s implementation of its asymmetric defense strategy, including the priorities
-
-identified in Taiwan’s Overall Defense Concept;
-
-(5) to urge Taiwan to increase its defense spending in order to fully resource its defense strategy;
-
-(6) to conduct regular transfers of defense articles to Taiwan in order to enhance Taiwan’s self-defense capabilities, particularly its efforts to develop and integrate asymmetric capabilities, including anti-ship, coastal defense, anti-armor, air defense, undersea warfare, advanced command, control, communications, computers, intelligence, surveillance, and reconnaissance, and resilient command and control capabilities, into its military forces;
-
-(7) to advocate and actively advance Taiwan’s meaningful participation in the United Nations, the World Health Assembly, the International Civil Aviation Organization, the International Criminal Police Organization, and other international bodies as appropriate; and
-
-(8) to promote meaningful cooperation among the United States, Taiwan, and other like-minded partners.
-
-SEC. 213. TREATMENT OF TAIWAN GOVERNMENT.
-
-(a) IN GENERAL. — The Department of State and other United States Government agencies shall engage with the democratically elected government of Taiwan on the same basis, and using the same nomenclature and protocol, as the United States Government engages with other foreign governments. Notwithstanding the continued supporting role of the American Institute in Taiwan in carrying out United States foreign policy and protecting United States interests in Taiwan, the United States Government shall not place any restrictions on the ability of officials of the Department of State and other United States Government agencies to interact directly and routinely with counterparts in the Taiwan government.
-
-(b) RULE OF CONSTRUCTION. — Nothing in this paragraph shall be construed as entailing restoration of diplomatic relations with the Republic of China (Taiwan) or altering the United States Government’s position on Taiwan’s international status.
 
 0

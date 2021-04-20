@@ -1,144 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 卡什·帕特尔（Kash Patel）讨论了拜登政府对中共国、俄罗斯和伊朗的外交政策
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1119695/)
+## 中共证监会副主席：外资如果造成股市大幅波动可暂停其交易
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1119738/)
 
-內容：
+【日本东京方舟农场】作者：青衣 校对：小油鍋
 
-来自真正的美国声音（Real America’s Voice） 2021年4月19日的推文
+据《阿波罗网》报道，4月19日，在博鳌亚洲论坛2021年年会上，中共国证监会副主席方星海就开放后“外资大量进入”是否会影响股市稳定的话题做出了回答。他表示，如果某外资账户的买卖行为引发股市较大波动，证监会会立即封停该帐户。
 
-Kash Patel
+![]()![](https://gnews.org/wp-content/uploads/2021/04/404C1183-3EE7-43C9-B789-8590AE0014A3.jpeg)
 
-卡什·帕特尔
+方星海声称，从一开始设计“沪港通”和“深港通”时就有规定，如果有外资账户进来后，造成了股市大幅波动，可以暂时停止它交易。他表示，中共有手段防止外资大进大出造成中共国股票市场的不稳定。
 
-Former chief of staff, Acting Secretory of Defense
+方星海强调，在这个问题上，中共国是高度重视安全的，不断跟境外的机构投资者及境外监管部门沟通。 他称证监会跟香港证券交易委员会有非常好的沟通，每年两次圆桌会议，平时的电话联系也不少，可以随时跟香港证监会进行沟通，确保两地金融市场的稳定。 他称自己对开放的过程中维护好资本市场的稳定非常有信心。
 
-前代理国防部长幕僚长
+方星海说，中共国现在对进来的外资看得很清楚，通过“两通”进来的外资无非有三种：第一种是境外散户，比例很小，不会影响金融稳定；第二种是境外的对冲基金、保险公司、全球资产配置的资金等，这类是最受欢迎的，也是持仓比例最大的；还有一类就是通过国外券商自营形式进来的，其实背后也是一些对冲基金，而此类资金是证监会比较关注的。
 
-Well, those are three perfect examples of where to start
+方星海还表示，证监会按照中央的要求，对这方面是高度重视，会做好防范工作。 比如以“沪港通”和“深港通”为例，首先现在是保持了每日进和出的额度：进来500亿，出去总额不能超过420亿，因此也能起到一定的防范作用。
 
-好的，这是从这里开始的三个完美的例子
+姑且不论中共国所谓的“市场开放”如今国际社会到底还有多少人会相信，就中共国近年来倒行逆施的政治环境而言，外资现在已经处于疯狂逃离阶段。号称“外资大量涌入”本身就是一个伪命题。仅单就方星海的上述言论，就引发了中共国国内网民的热议，对中共的本质和对中共操纵股市的事实有深刻认识的人显然不在少数：
 
-Russia, China, and Iran
 
-俄罗斯、中共国、和伊朗
+```
+有大陆网民评论说：“这样也太随意了吧！ 人家敢进来？？？”
+另有网民犀利地指出：“大进大出的是国内的资金吧？ 外资能有多少钱？” 
+很多网友表示赞同，称：“哪有什么外资，都是国内的马甲。” 
+又有人补充说：“国家队和公募基金才是大头。”
+还有一位网民反问：“大进是多少？ 大出又是多少？”
+更有网民还讽刺到：“太稳定了，稳定得十几年还在半山腰。”
+```
 
-Look,  Joe Biden when he ran he said
 
-看, 当乔·拜登竞选时说
+遍数世界上任何一个股市，似乎都没有因为交易者的买卖行为而封禁帐户的，除非该行为涉及操纵股价——而说到能堂而皇之操纵股价的，中共本身首屈一指。方星海官居中共国证监会副主席，理应是深通行规的老手，能说出这番无耻的外行话，令人瞠目结舌。在此试问，听了方星海的这番言论，还有哪家外资机构敢放心地将资金投入中共国股市？“大量涌入”更是望尘莫及的理想了吧。
 
-his team is gonna be so experience,
+不过方星海的这番话倒是让人联想起了2015年股市崩盘的历史。这令人不禁猜想，莫非A股真到了如同2015年的那个时刻？难道2015年的股市崩盘真的和中共号称的“外资操纵”有关联么？清醒的投资者心中自有答案。
 
-他的团队将会是很有经验
+注：本文仅代表作者观点
 
-so stack on national security matters
+参考链接：
 
-在国家安全上还有很丰富的经验
-
-that they would hit ground running
-
-他们将一路快马加鞭
-
-that’s what he said
-
-那是他所说的
-
-So, yeah, we gave him  three months for his presidency
-
-所以，是呀，我们给了他三个月的总统任期时间
-
-to install a diplomatic effort
-
-在外交上进行努力
-
-and foreign policy that works in China, in Russia, in Iran
-
-和在中共国，在俄罗斯，和在伊朗可行的外交政策
-
-I don’t think he’s still call out genocide that’s going on in Xinjiang
-
-我不认为他仍对在新疆发生的种族灭绝事情谴责
-
-I don’t think the sanctions effort that he’s making
-
-我认为他没有采取制裁措施
-
-or anything more than public headline political hay-made
-
-或除了政治头条新闻之外的任何努力
-
-and as for Iran he’s made it very clear
-
-至于伊朗，他说得很清楚
-
-that he wants them back the negotiating table for the JCPOA
-
-他希望他们返回联合全面行动计划的谈判桌
-
-even though the American public and the world
-
-即使美国公众和世界
-
-now knows Iran already blew through the nuclear requirements to restrictions
-
-现在知道伊朗已经破坏了核武器要求的限制
-
-that they were put under by the world
-
-他们被世界所唾弃
-
-so they’re not gonna listen to us anyway
-
-所以他们无论如何也不会听我们的
-
-and they are all as you said
-
-他们都是就如你所说的
-
-successfully testing Joe Biden from Putin, (coughing –  excuse me)
-
-成功地考验了乔-拜登，从普京，（咳嗽—对不起）
-
-to the ayatollah, to Xi Jinping in China
-
-到阿亚图拉，再到中共国的习近平。
-
-and there is no concrete policy that Joe Biden has laid out
-
-而且乔·拜登并没有制定具体夯实的政策
-
-I wish there was that we could have a more substantive discussion
-
-我希望我们可以进行更实质性的讨论
-
-but he’s probably just waiting for the New York Times
-
-但他可能只是在等待《纽约时报》
-
-and the Washington Post to tell him what to do next
-
-和《华盛顿邮报》告诉他下一步该怎么做
-
-I can’t recall the presidency that ever was establishing foreign policy based on the media
-
-我不记得曾经有总统要依据媒体的指导制定了外交政策
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接: [https://twitter.com/realamvoice/status/1384182504450572289?s=24](https://twitter.com/realamvoice/status/1384182504450572289?s=24)
-
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Ali
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+1. [https://twitter.com/aboluowang/status/1384378932921651200](https://twitter.com/aboluowang/status/1384378932921651200)
+2. [https://twitter.com/bannedebook/status/1384380315079118849](https://twitter.com/bannedebook/status/1384380315079118849)
 
 
 0

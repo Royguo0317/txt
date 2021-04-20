@@ -1,49 +1,144 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 华尔街无限期待央行数字货币
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1119675/)
+## 卡什·帕特尔（Kash Patel）讨论了拜登政府对中共国、俄罗斯和伊朗的外交政策
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1119695/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+內容：
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/D-8.jpg)ledgerinsights.com
-华尔街所追捧的即将到来的具有颠覆性的金融产品就是“央行数字货币”，尽管美联储距离开发出自己的数字货币系统尚需时日。大到中共国小到巴哈马，数字货币作为“无现金”社会的未来，引起很多国家浓厚的兴趣。
+来自真正的美国声音（Real America’s Voice） 2021年4月19日的推文
 
-数字美元与比特币和以太币有诸多相似点，但也有所不同。央行数字货币类似能稳定的美元，受央行全面监管，不是那种价格随市场大幅波动的投资性产品。像美联储这样大型机构涉足数字货币领域之前，尚有诸多问题仍待解决，但数字货币在全世界崛起之势已无法阻挡。
+Kash Patel
 
-“引入央行数字货币系统会对现有金融体系造成极大的冲击。尽管如此，全球多达 86%的央行都在竭尽全力开发和推动自己的数字货币系统早日上线。” 摩根士丹利首席经济学谢坦·艾哈亚家（Chetan Ahya）在给客户的一份研究报告中如此写道。
+卡什·帕特尔
 
-国际清算银行 2020 年调查显示，全球几乎每个央行都围绕数字货币开展了一系列工作。其中，60%的央行在做“可行性分析”，14%的央行已推出试用版或正紧锣密鼓地编写代码。
+Former chief of staff, Acting Secretory of Defense
 
-遥远地平线上数字货币的新大陆已举目可见，船上的人们既满怀憧憬又心怀忐忑。央行数字货币倡导者点出这种新金融系统的诸多优势，尤其是能让没有银行账户的人也使用金融系统，这点非常重要。
+前代理国防部长幕僚长
 
-另外，数字货币的转账速度也是优势。随着中共病毒在全球肆虐，政府主导的支付转账服务也需要提高效率，而资金存储数字钱包则能实现更为方便快捷的资金转移。“对贫民的汇兑需求和发展中的经济实体来说，新型数字货币是维系经济命脉的新鲜血液。”克里斯塔琳娜（Kristalina Georgieva）说道，作为国际货币基金组织董事总经理，她近日在与世界银行的联席会议上表示，“最大的受益者将是小额汇款的弱势人群，这些人最有可能被大流行病遗弃。”
+Well, those are three perfect examples of where to start
 
-数字货币给某些传统银行和金融科技机构带来利空消息，因为人们纷纷把金钱存到央行的数字钱包后会导致上述企业盈利下滑。
+好的，这是从这里开始的三个完美的例子
 
-随着美联储和各大央行在数字货币工作上的稳步推进和细致规划逐一展开，华尔街对未来的发展充满了无限期待。“数字货币 2.0 的竞争已经开始。”花旗集团在报告中，“有人将其定义为新太空竞争或是数字货币冷战。可是我们认为，整个数字货币的蛋糕还有很大的增长空间，所以这不必成为一场零和游戏的博弈。” 但是，至少当前赛场上中共国已抢得先机。
+Russia, China, and Iran
 
-随着去年数字人民币的推出，一些人担心中共国拥有的优势最终可能会削弱美元作为世界储备货币的地位。虽然中共国表示，这不是它的目标，但美国银行的报告指出，发行数字美元将让美国货币 “相对于其他货币保持高度的竞争力”。
+俄罗斯、中共国、和伊朗
 
-“央行数字货币有益于改善货币交易，却没有加密货币的不良副作用。”美国银行经济学家安娜·周(Anna Zhou)写道。
+Look,  Joe Biden when he ran he said
 
-继巴哈马率先推出沙币（Sand Dollar）之后，其他多个国家也已经开始推进项目。美联储目前正在与麻省理工学院联合开展一个项目，评估数字美元的价值和影响力，不过目前还没有美国央行推进数据货币的具体时间表。
+看, 当乔·拜登竞选时说
 
-“我们必须要在许多细微而困难的政策中做出选择。”美联储主席杰罗姆·鲍威尔（Jerome Powell）最近在接受哥伦比亚广播公司“60 分钟”节目采访时说。“我们正在就此事开展工作。”他说，“但目前尚无具体方案，主要的问题是不清楚数字货币是否能让参与者受益？我们需要全盘考虑才能交出满意答卷。”
+his team is gonna be so experience,
 
-业界游说组织、银行政策研究所的首席执行官格雷格·贝尔（Greg Baer）在一份关于这个问题的工作文件中提醒说，传统的银行体系可能会 “日渐式微”。他补充说，“这可能会给经济增长带来显著的影响，除非央行也承担起贷款责任或成为银行的常规资金来源。”
+他的团队将会是很有经验
 
-“前途未卜，不同的设计可能带来千差万别的结果。”贝尔写道。他注意到美联储的谨慎态度，以及欧洲央行 “更加沉稳” 的行动。
+so stack on national security matters
 
-欧洲央行正在推进 “britcoin” （英国币）项目，但声称将银行作为数字的中介机构仅是银行的一种新的探索性尝试。国际经济学家杰里米·汤姆森-库克（Jeremy Thomson-Cook）说 “ britcoin 将与英镑的价值挂钩，这样就能杜绝将其视为投资品而通过炒作获利的可能性。从广泛的投资角度来说，britcoin 可能会对经济产生的影响，例如投资英国科技行业的资本会增长，而国际企业的交易成本会降低。”
+在国家安全上还有很丰富的经验
 
-即便央行支持的数字货币面临很多棘手问题尚待解决，但美国当局似乎还有点不慌不忙。鲍威尔也曾表示，美联储不会在没有国会明确授权的情况下采取行动，并表示有很多问题尚待商榷。
+that they would hit ground running
 
-“虽然央行的数字货币初衷是好的，无意扰乱银行系统，可一旦推出却很可能会给现在金融系统带来难以预测的灾难。”摩根士丹利的 Ahya ，“数字货币的接受度越高，创新的机会就越多，对金融体系的影响的范围就越大。”
+他们将一路快马加鞭
 
-参考链接：
+that’s what he said
 
-[1] [Wall Street banks brace for digital dollars as the next big disruptive force – CNBC – 2021/04/19](https://www.cnbc.com/2021/04/19/central-bank-digital-currency-is-the-next-major-financial-disruptor.html)
+那是他所说的
+
+So, yeah, we gave him  three months for his presidency
+
+所以，是呀，我们给了他三个月的总统任期时间
+
+to install a diplomatic effort
+
+在外交上进行努力
+
+and foreign policy that works in China, in Russia, in Iran
+
+和在中共国，在俄罗斯，和在伊朗可行的外交政策
+
+I don’t think he’s still call out genocide that’s going on in Xinjiang
+
+我不认为他仍对在新疆发生的种族灭绝事情谴责
+
+I don’t think the sanctions effort that he’s making
+
+我认为他没有采取制裁措施
+
+or anything more than public headline political hay-made
+
+或除了政治头条新闻之外的任何努力
+
+and as for Iran he’s made it very clear
+
+至于伊朗，他说得很清楚
+
+that he wants them back the negotiating table for the JCPOA
+
+他希望他们返回联合全面行动计划的谈判桌
+
+even though the American public and the world
+
+即使美国公众和世界
+
+now knows Iran already blew through the nuclear requirements to restrictions
+
+现在知道伊朗已经破坏了核武器要求的限制
+
+that they were put under by the world
+
+他们被世界所唾弃
+
+so they’re not gonna listen to us anyway
+
+所以他们无论如何也不会听我们的
+
+and they are all as you said
+
+他们都是就如你所说的
+
+successfully testing Joe Biden from Putin, (coughing –  excuse me)
+
+成功地考验了乔-拜登，从普京，（咳嗽—对不起）
+
+to the ayatollah, to Xi Jinping in China
+
+到阿亚图拉，再到中共国的习近平。
+
+and there is no concrete policy that Joe Biden has laid out
+
+而且乔·拜登并没有制定具体夯实的政策
+
+I wish there was that we could have a more substantive discussion
+
+我希望我们可以进行更实质性的讨论
+
+but he’s probably just waiting for the New York Times
+
+但他可能只是在等待《纽约时报》
+
+and the Washington Post to tell him what to do next
+
+和《华盛顿邮报》告诉他下一步该怎么做
+
+I can’t recall the presidency that ever was establishing foreign policy based on the media
+
+我不记得曾经有总统要依据媒体的指导制定了外交政策
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接: [https://twitter.com/realamvoice/status/1384182504450572289?s=24](https://twitter.com/realamvoice/status/1384182504450572289?s=24)
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Ali
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
 
 0
