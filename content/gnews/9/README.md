@@ -1,112 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日新闻收集【4/18】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1117340/)
+## 长赐号被埃及预防性扣押，轮上80%大陆货主恐损失惨重
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1119050/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
+![]()![](https://gnews.org/wp-content/uploads/2021/04/擷取420.jpg)
+作者：台湾宝岛农场 快慢机
 
-【以毒灭共】5则推文，如下：
+## 苏伊士运河事件后续赔偿问题僵持不下，埃及政府强制扣押肇事巨轮“长赐号”。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/擷取420-0.jpg)
+2021年3月23日，航向北方正在通过苏伊士运河的集装箱巨轮“长赐号”，突然毫无征兆的以近乎失控的航迹姿态，径直一头撞入运河东岸河道护堤导致搁浅。由于其庞大的船身严重偏离航道，斜橫在河道之内，致使苏伊士运河整体堵塞断航。直至一周后的3月29日，经过多方协作救援，才将搁浅堵塞苏伊士运河的肇事巨轮“长赐号”，拖推至运河中段的大苦胡区域下锚，等待进一步的检修及调查。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/擷取420-1.jpg)
+在经过了多日的密集调查及复杂的交涉之后，埃及方面根据法院相关裁决，向“长赐号”开出了共计9亿美元的赔偿金罚单。但由于“长赐号”所投保的保险公司对该赔偿金额持有异议，并不认可，导致双方就此问题僵持不下。因此，埃及官方随即对“长赐号”，启动了强制预防性扣押程序。在赔偿金罚单未足额缴付到位前，“长赐号”将无法自由驶离苏伊士运河。
 
+## 财新网报道显示：长赐号上本轮共计搭载1.83万个海运集装箱，货值大概在35亿美元左右，其中超过80%为来自中共大陆地区所出口的商品。
 
+自从中共北京当局被国际社会所联合制裁之后，大陆地区的民营外向型实体经济，便随即滑入断崖式下跌的梦魇之中。哀鸿遍野过后，所剩无几且奄奄一息的行业幸存者，在无比艰难的不利外部大环境下，好不容易东拼西凑到了这笔得以续命的订单。却不料在最后的海运物流环节横生变数。
 
-> 我知道COVID-19病毒的真正来历。 拜登政府掩盖了真相。 美国的钱被用来制造COVID-19病毒。 中国共产党必须被摧毁。 [pic.twitter.com/726EUgb1Sk](https://t.co/726EUgb1Sk)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 18, 2021](https://twitter.com/LawrenceSellin/status/1383676532711858184?ref_src=twsrc%5Etfw)
+“屋漏偏逢连夜雨，船迟又遇打头风”！由于“长赐号”所造成的苏伊士运河搁浅事件，原本就已经耽搁了其所搭载货物的既定到港交付时间。如今再加上因后续巨额赔偿金罚单问题，而导致的无限期扣船程序的展开。“长赐号”估计在短时间内未必能够顺利“脱困”，自由驶离苏伊士运河。
 
+时间就是金钱，效率就是生命。作为时效性很强的物流运输行业，更加尤为如此。然而，眼下的“长赐号”被埃及政府强制预防性扣留，对于船上所搭载货物的货主而言，尤其是那些超过80%的大陆托运者来说，无异于“雪上加霜”！
 
-1. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1383676532711858184?s=20)**：
-*我知道COVID-19病毒的真正来历。 拜登政府掩盖了真相。 美国的钱被用来制造COVID-19病毒。 中国共产党必须被摧毁*
-*(附爆料革命文宣：Covid-19病毒/中共制造/中共你完了）*
+## “长赐号”的承租方“长荣海运”已经明确表示：“其不会为因本次的苏伊士运河搁浅事件，而导致的货期延误承担任何责任。这些责任应由承保的保险公司负责承担”！
 
+长荣海运的此番态度，再加之“长赐号”的保险承保公司对于埃及方面，所开出的巨额补偿金罚单的不认可之势。两害相叠而导致的双方无限期拉锯战。基本宣告了那些“长赐号”上超过80%搭载量的，大陆货主及托运者的损失已成定局。
 
-> There is increasing evidence that activities involving Wuhan University with the participation of certain individuals may be intimately linked to the release of [#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#corona](https://twitter.com/hashtag/corona?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/JgfOVtXrTl](https://t.co/JgfOVtXrTl)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 18, 2021](https://twitter.com/LawrenceSellin/status/1383766495449075712?ref_src=twsrc%5Etfw)
+心急如焚的“长赐号”托运客户，一时间如热锅上的蚂蚁，纷纷紧急向“长荣海运”寻求补救措施。目前，“长荣海运”方面正在考虑，将以卸载分运的方式，将被扣的“长赐号”上所搭载的集装箱货物，尽快运抵欧洲客户收货目的地。
 
+不过鉴于目前“长荣海运”及“长赐号”承保公司，与埃及方面就关于本次“苏伊士运河搁浅事件”，而导致的巨额赔偿金问题，所产生的争执与僵持情况而言。在实际赔付金额未曾有效得到解决之前，“长荣海运”若想单方面将“长赐号”上所搭载的，那1.83万个海运集装箱。顺利卸载分运出苏伊士运河水域，则未必能够轻松如愿以偿。
 
-2. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1383766495449075712?s=20)**:
-*越来越多的证据表明，涉及武汉大学的某些个人参与的活动可能与 #COVID-19 病毒的故意投放有密切相关（舒红兵/江绵恒）*
+“苏伊士运河事件”的持续性调查还在进行中，究竟是“天灾”还是“人祸”，相信未来定会揭晓。但有一点却可以肯定的是，船上那些超过80%装载量的货主及托运者们，这次一定损失惨重。
 
+然而就中共以往的所作所为来看，其一向只敢拿自己的同胞开刀。而这次“长赐号”巨型集装箱货轮上所搭载的超过八成的货物，竟恰巧也是来自于中共大陆地区。因搁浅事件而导致的货期交付延误所产生的巨额附加损失，最终恐怕也只有这些来自大陆地区的货主及托运者们自行承担。
 
-> They knew [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) is NOT from nature. 
-> They knew gain-of-function evidence clearly left in SARS-CoV-2 sequence.
-> They knew cheating/misleading of COVID19 origin would hurt the world, including their friends/families
-> WHY STILL INSIST ON IT?🤔[#UnrestrictedScientificMisinformation](https://twitter.com/hashtag/UnrestrictedScientificMisinformation?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/S53MMd7s4v](https://t.co/S53MMd7s4v)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 18, 2021](https://twitter.com/DrLiMengYAN1/status/1383741789035634701?ref_src=twsrc%5Etfw)
+那么，“长赐号搁浅事件”的“人祸”因素则更加“显而易见”的指向了“中共”。我们虽不在现场，但我们坚持客观真实的还原真相。
 
+本文仅代表笔者个人观点！
 
-3. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1383741789035634701?s=20)**：
-*他们知道#COVID19不是来自自然界。
-他们知道SARS-CoV-2序列中明确留下的功能增强证据。
-他们知道欺骗/误导新冠病毒起源会对社会造成伤害，包括他们的朋友/家人****为什么还在坚持 #科学信息误导***
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
-> [#SARSCoV2](https://twitter.com/hashtag/SARSCoV2?src=hash&amp;ref_src=twsrc%5Etfw), the pathogen causing [#Covid](https://twitter.com/hashtag/Covid?src=hash&amp;ref_src=twsrc%5Etfw), is hardy, mutating faster and becoming more transmissible even as the Northern Hemisphere heads into summer. What the devil is going on? [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Gordon G. Chang (@GordonGChang) [April 18, 2021](https://twitter.com/GordonGChang/status/1383803845478809605?ref_src=twsrc%5Etfw)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
+文章审核：zhong
 
-4. **[章家敦推特](https://twitter.com/GordonGChang/status/1383803845478809605?s=20)**：
-*#SARSCoV2，导致#Covid的病原体，耐寒，变异更快，即使北半球进入夏天，也变得更加传染。到底发生了什么*
+文章发布：Little Liu
 
-
-> Time will tell whether it was the dumbest policy. Scientific bigotry combined with political short-sightedness. [https://t.co/RXgaDxl6iM](https://t.co/RXgaDxl6iM)
-> — 德意志之鹰 (@dezying) [April 18, 2021](https://twitter.com/dezying/status/1383850747830300678?ref_src=twsrc%5Etfw)
-
-
-5. **[德意志之鹰推特](https://twitter.com/dezying/status/1383850747830300678?s=20)**：
-*（美联社）[突发新闻](https://apnews.com/article/politics-anthony-fauci-coronavirus-pandemic-infectious-diseases-coronavirus-vaccine-6e3b18b44a05d1e49ed35337ec7ce969?utm_medium=AP&amp;utm_campaign=SocialFlow&amp;utm_source=Twitter)：疾病控制和预防中心表示，美国一半的成年人现在至少接种了一剂新冠病毒疫苗。近1.3亿人18岁或以上，即50.4%的人至少接种了一剂疫苗
-（德）时间会证明这是否是最愚蠢的政策。科学偏见与政治短视相结合*
-【国际新闻】
-
-
-
-> Trump on opposing Biden's choice of 9/11 for Afghanistan withdrawal date: "First, we can & should get out earlier…Secondly, September 11th represents a very sad event & period for our Country & should remain a day of reflection & remembrance honoring those great souls we lost." [pic.twitter.com/XcqfKFjV8r](https://t.co/XcqfKFjV8r)
-> — Jerry Dunleavy (@JerryDunleavy) [April 18, 2021](https://twitter.com/JerryDunleavy/status/1383852167707062278?ref_src=twsrc%5Etfw)
-
-
-1. **[司法部记者推特](https://twitter.com/JerryDunleavy/status/1383852167707062278?s=20)**：
-*川普反对拜登选择9/11作为阿富汗撤军日期：“首先，我们可以，也应该早点撤军……其次，9月11日对我们的国家来说是一个非常悲伤的事件和时期，应该仍然是反思和纪念我们失去的伟大灵魂的日子。”*
-
-
-> Waters insists that Trump telling protesters to make their voice heard and "fight" for their votes was criminal incitement. Yet, after nights of rioting and looting, Waters told protesters to stay on the streets and get more confrontational… [https://t.co/5c4dJnFxXl](https://t.co/5c4dJnFxXl)
-> — Jonathan Turley (@JonathanTurley) [April 18, 2021](https://twitter.com/JonathanTurley/status/1383795491075334148?ref_src=twsrc%5Etfw)
-
-
-2. **[乔纳森·特里律师推特](https://twitter.com/JonathanTurley/status/1383795491075334148?s=20)**：
-*沃特斯坚持认为，川普告诉国会抗议者让他们的声音被听到，为自己的选票而“战斗”是煽动犯罪。然而，在经历了一夜暴乱和抢劫后，沃特斯告诉国会抗议者呆在街上，要更加（暴力）对抗……
-卡尔·荣格说：“任何让我们对他人感到恼火的事情都能让我们了解自己。”沃特斯和川普的情况似乎确实如此。这也是为什么沃特斯可以证明川普需要呼吁的唯一证人，以击败她自己对他的诉讼
-附[《福克斯新闻》链接](https://www.foxnews.com/opinion/waters-trump-incitement-capitol-riots-minnesota-jonathan-turley)*
-
-
-> 這是美軍水兵發佈的近距離圍觀遼寧艦的照片，其中暗藏玄機啊！箭頭所指処，日本海自“村雨”級護衛艦。原來是一次“美日聯合圍觀”🤣 [pic.twitter.com/XKrW5PUPWC](https://t.co/XKrW5PUPWC)
-> — Dr. Bo 🇺🇸🇹🇼🇭🇰 (@BoDiplo) [April 18, 2021](https://twitter.com/BoDiplo/status/1383780266745819137?ref_src=twsrc%5Etfw)
-
-
-3. **[博博士推特](https://twitter.com/BoDiplo/status/1383780266745819137?s=20)**：
-*这是美军水兵发佈的近距离围观辽宁舰的照片，其中暗藏玄机啊！箭头所指处，日本海自“村雨”级护卫舰。原来是一次“美日联合围观”*
-
-
-> 这几条关于维吾尔人的新闻… 😡😱
-> 1) 网络贩卖维吾尔劳动力（奴工）[https://t.co/uGkmYys863](https://t.co/uGkmYys863)
-> 2) 流亡妇科大夫透露：共产党每日绝育80人次维吾尔人，以达数年之久…[https://t.co/LX2jQwCyUa](https://t.co/LX2jQwCyUa)
-> 
-> 中国共产党的存在是世界之耻，文明之敌…
-> — 德意志之鹰 (@dezying) [April 18, 2021](https://twitter.com/dezying/status/1383787068757659655?ref_src=twsrc%5Etfw)
-
-
-4. **[德意志之鹰推特](https://twitter.com/dezying/status/1383787068757659655?s=20)**：
-*这几条关于维吾尔人的新闻…
-1) [网络贩卖维吾尔劳动力（奴工）](https://news.sky.com/story/amp/new-evidence-of-the-strict-controls-uighurs-face-in-factories-thousands-of-miles-from-home-12276248)
-2) [流亡妇科大夫透露：共产党每日绝育80人次维吾尔人，以达数年之久…](https://www.breitbart.com/asia/2021/04/15/uyghur-gynecologist-says-china-sterilized-80-people-day-years/)
-中国共产党的存在是世界之耻，文明之敌…*
-
-
-> China has agreed to cooperate on climate change for decades yet remains the most polluted nation on the planet. Beijing is deceiving fools like Kerry into thinking “progress” will be made. Reality: CCP is weakening the United States through the issue [https://t.co/MsV6SGewC6](https://t.co/MsV6SGewC6)
-> — Bill Gertz (@BillGertz) [April 18, 2021](https://twitter.com/BillGertz/status/1383833891698475015?ref_src=twsrc%5Etfw)
-
-
-5 **[比尔·格茨推特](https://twitter.com/BillGertz/status/1383833891698475015?s=20)**：
-*（政治）[美国和中共国在一份联合声明中表示，美国和中共国同意“以它所要求的严肃性和紧迫性”共同努力应对气候变化，并承诺加大应对气温上升的努力](https://www.politico.com/news/2021/04/18/us-china-climate-change-urgency-482861)
-（比尔·格茨）中共国几十年来一直同意在气候变化问题上进行合作，但仍然是地球上污染最严重的国家。北京正在欺骗像克里这样的傻瓜，让他们以为会取得 “进展”。现实情况是：中共正在通过这个问题削弱美国的力量*
-
-
-+1
+0

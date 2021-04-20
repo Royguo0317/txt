@@ -1,86 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】路德4月18日晚 要点速览：重磅！布林肯说美从阿富汗撤军目的就应对中共国
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1114151/)
+## 美议员呼吁欧盟与美制定共同网络安全标准
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1118290/)
 
-作者：香草山翻译部 GBW/文明世界
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/UE.jpg)globalbusinesscoalotion.org
+《政客》报道，美国参议员马克·华纳(Mark Warner)周一说，在针对软件公司 太阳风（SolarWinds）的大规模网络攻击之后，如果欧盟和美国不努力制定共同的网络安全标准，可能会产生灾难性的后果。
 
+这位民主党参议员称，“我越来越相信，我们未能制定任何形式的联合网络安全政策，甚至联合网络安全规范，可能真的会是一件具有潜在破坏性的事情。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+至少有100家美国公司、9家联邦机构和6家欧盟机构和机构受到了太阳风（SolarWinds）黑客袭击的影响，这是发生在2020年的重大网络间谍活动。
 
+华纳表示，尽管德国、英国和其他欧洲国家的国内服务器受到了攻击，但这次攻击“在欧洲受到的关注似乎不如在美国那么多”。
 
+他要求欧盟委员会副主席玛格丽特·维斯特格(Margrethe Vestager)加强合作，并补充说，欧洲和美国需要分享更多关于俄罗斯和中共等“一线对手”的信息。
 
-重磅！美国国务卿布林肯（Blinken）说美国从阿富汗撤军目的就是应对中（共）国威胁意味着什么？中共发动舆论宣传机器唱衰美日联盟意味着什么？
+华纳还强调了对网络规范采取共同方法的重要性，以便界定什么是可接受的间谍活动或国家攻击。维斯特格表示，网络安全问题必须纳入所有跨大西洋的技术谈判。
 
-1. 艾丽：日本首相菅义伟（Suga）参观美国阿灵顿国家公墓
+最近，当华盛顿指责俄罗斯情报机构实施了太阳风行动时，欧盟对美国表示了支持。在一份声明中，欧盟外交事务负责人博雷尔表示，欧盟将继续调查恶意网络活动，以阻止它们。
 
-- 表明了日本对二战期间捍卫自由的士兵的尊重
-- 也表明了日本放弃军国主义的决心。
+华纳同时也批评了欧洲对中共的立场，谴责欧盟“未能揭露中共大型科技公司的不良行为”。
 
+参考链接：
 
-2. 艾丽：马来西亚通知中（共）国大使馆
+[https://www.politico.eu/article/us-senator-mark-warner-calls-for-urgent-transatlantic-cooperation-on-cybersecurity/](https://www.politico.eu/article/us-senator-mark-warner-calls-for-urgent-transatlantic-cooperation-on-cybersecurity/)
 
-- 持有短期
-- 或过期签证的
-- 中（共）国公民应在4月底前离开马来西亚
-
-
-3. 布林肯在接受美国广播公司采访时表示美国离开阿富汗是因为：
-
-- 恐怖主义威胁已经转移到了其他地方
-- 美国还有其他非常重要的议程
-- 包括与中（共）国的关系
-- 还有新冠病毒
-- 以及气候变化的一系列问题
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/QQ截图20210418213218.jpg)
-
-a. 路德：中共不能通过阿富汗分散美国的注意力。新冠是恐怖主义。
-
-b. 博博士：超限生物武器是穷国的核弹。
-
-c. 路德：美国的制度就像一条有强大龙骨的船，可以左右摇摆，但不会倾覆。1月20日后，美国灭共方向没变。
-
-4. 网易评论员吴蔚：中（共）国不惧怕美日联盟。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/QQ截图20210418212647.jpg)
-
-a. 博博士：中共不可能永远骗韭菜。
-
-b. 艾丽：中共认为美国不敢打中共，中共用独裁者的思维会误判美国。
-
-c. 路德：中共从来不遵守承诺。日本用70年证明它可以遵守国际规则。
-
-信息来源：
-[重磅！布林肯说美从阿富汗撤军目的就应对中共国威胁意味着什么？中共发动舆论宣传机器唱衰美日联盟意味着什么？](https://www.youtube.com/watch?v=mzPcl7aVZUw)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑： 文明世界
-
-校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
-
-
-0
++1

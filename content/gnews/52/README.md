@@ -1,50 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【闫丽梦博士铿锵有力回应“审阅者”】关于闫博士第三份报告－点对点回应约翰·霍普金斯大学健康安全中心“审阅者”第二部分 （续）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1116349/)
+## 中共像希特勒和裕仁天皇一样抱有侥幸心理&nbsp; 最后受害的是老百姓
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1118183/)
 
-- 作者：peacelv
-- 制图：透明的遮羞布
+**摘要：在2021年4月13日的盖特视频中，郭先生说中共在硬撑着，而且抱有像二战时东条英机和山本五十六那样的侥幸心理。中共内部面临着巨大的政治斗争和压力，老百姓的无知滋生了高涨的民族主义情绪，但是普通老百姓永远是最后的受害者。百分之九十以上的中共党员以及企业家正在期待中共的解体。美国已经觉醒，欧洲也如此，各自在挖内奸。**
 
+**中共像希特勒和裕仁天皇一样抱有侥幸心理****  ****最后受害的是老百姓**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/virus7.jpg)
+**The CCP Has a Gambler’s Mentality as Hitler and Emperor Hirohito**
 
-**续上继续发表有关闫博士第三份论文的第一部分内容。**
+共产党内部现在就两条政策：硬撑着，就像当年的慈禧是一样的，硬撑着，忽悠老百姓当炮灰，有侥幸心理。当年东条英机，山本五十六都有着侥幸心理。以为打完珍珠港以后美国（会）：我不打你，你不打我吧。他有侥幸心理。包括希特勒撕毁《凡尔赛协议》，跨过莱茵河。1935到1936，从10万大军变成50万大军，（因此）他有侥幸心理。
 
-在闫博士的报告中，已经划定在使用ZC45/ZXC21作为模板去创造SARS-CoV-2的过程中怎样的序列区别会被引进（章节2.2和Figure 7)。对于S蛋白，另外还有被编辑过的RBM，序列的其它部分在开始步骤，改变应当已经被引进了，那就是DNA合成。Orf1b序列应当是被从另一个类SARS冠状病毒RaBtCoV/4991拿过来，是与ZC45/ZXC21天然不同的。两个可能的理由使用这种特别的Orf1b已经被在闫博士报告的2.1章节中描述。其它的基因部分已经被通过DNA合成吸收，这样可以轻松地产生改变。
+The CCP has two policies now: hang in there and ride out the hardship. Just like Empress Dowager Cixi back then, hold out and fool the Laobaixing (ordinary people) and treated them as cannon fodder, and had a gambler’s mentality. Both Hideki Tojo (Prime Minister of Japan) and Isoroku Yamamoto (Marshal Admiral of the Imperial Japanese Navy) during World War II had a gambler’s mentality. They thought that after the attack on Pearl Harbor, the United States would try to compromise with them: I will not attack you if you do not strike me. The Japanese wanted to take the chance. When Hitler tore up the Treaty of Versailles and crossed the Rhine River, he increased his army of 100,000 men to 500,000 men from 1935 to 1936. Hitler also had a gambler’s mentality.
 
-这里被引进的改变是两种类型的。第一，他们可以引进同义突变。虽然ZC45/ZXC21和SARS-CoV-2在核苷酸互相间是89%的区别，他们在氨基酸水平上为95%。超过一半的核苷酸区别是同义突变，这种并没有改变蛋白质结构或功能。
+可悲的是历史在重演，当年希特勒如果遇到法军喊一嗓子他就完了，就没有第二次世界大战。希特勒也不会杀了2000万人。当年的（日本）天皇从英国回去，第一次在日本喊出来说要在世界上掠夺能源，然后把日本军事化。如果有任何人站出来说句话，就没有日本的裕仁天皇疯狂地把日本送到了接近地狱。
 
-事实上，如论文中所展示的，密码子优化已经成功对S蛋白，这样需要同义突变安全地被引入到S蛋白基因。同样这可易于被应用到基因的其它部分。第二，蛋白质改变可以在没有影响结构和功能的情况下被引进到蛋白质的不同区域或者位置。这可以被很多SARS和类SARS病毒的混合序列队列安全引导，这些在武汉病毒研究所拥有丰富的数量。引进如同义突变和氨基酸替代的改变到一个模板病毒的过程已经在2008的发表中（Figure S1）10很好地被演示。
+The sad thing is that history is repeating itself. If the French army stood up to Hitler when they met at the Rhine River, Hitler would have been finished and there would have been no World War II, and then Hitler would not have killed 20 million people. When the Japanese Emperor returned from Britain, he announced for the first time to the Japanese that he would plunder energy resources in the world and then militarize Japan. If anyone stood up and said something at that time, Emperor Hirohito would not have madly sent Japan to hell.
 
-最后，我们不排除引进SARS-CoV-2基因组的改变被用于激发新功能的可能性。
+共产党现在是一模一样的，他越来越嚣张，越来越疯狂。关键是内部的政治斗争和压力，还有上边的这些比东条英机，山本五十六还疯狂、还野蛮、还低级、还无知、还被这些所有的这些“太监们”怂恿得（变得）自不量力和大头症。就跟那“九指妖”似的，她以为她能代表上帝了。这是一个内部的隐患和腐败、官僚和政治斗争，加上外部（因为）它制造的麻烦和压力。
 
-某些伴随着中共病毒的并发症，在其它的冠状病毒感染中是极少的或者不存在的，是否是故意设计的结果，尚待提示。
+The CCP is the same now. It is becoming more and more arrogant and crazy. Within the CCP, there are political battles and pressures. The CCP leaders are even crazier, more brutal, vulgar, and ignorant than Hideki Tojo and Isoroku Yamamoto. They are tempted by these “eunuchs” to bite off more than they can chew, and they are getting way “too big for their boots”. Just like Sara (VOG), the nine-fingered demoness, she thought she could represent God. There is hidden trouble, a corrupt bureaucracy and the “rough and tumble” of internal politics, coupled with external problems and pressures that the CCP has created.
 
-这是关于还原SARS-CoV-2的必要性。没有认识它作为化学武器的真相，以及吸收它产生的各种细节，世界将继续被误导去忽略病原的关键部分，因此将长期严重地受其所害。
+更重要的事情，希特勒和裕仁天皇二战留给人们最深刻的教训：最后受害的是人民，但（因为）人民的无知给了独裁、军阀、帝国主义者充分的环境，创造了所谓的最高涨的民族主义。然后制造了一系列的虚假理由，把一个民族和国家当成了炮灰，为某几个人实现自己的认为自己是神，像裕仁一样他说是神，希特勒也认为自己是神，“习大神”现在也说自己是神了。
 
-**第五、中共国军事实验室的位置**
+More importantly, the most profound lesson from World War II that Hitler and Emperor Hirohito left us with, was that the ordinary people were the victims in the end. The people’s ignorance gave the dictators, warlords, and imperialists an excellent environment to create the most inflated nationalist sentiment. Then they made up a series of false reasons to turn a nation into their cannon fodder. All because a few people thought that they were God or wanted to become God. Emperor Hirohito said he was a god. Hitler also thought he was a god. And “The Great God Xi” also says that he is a god now.
 
-他们提出并不是只有中共的实验室与军方有联系，像其它的国家如美国、法国的实验室与军方也有联系。
+是这些原因，老百姓的无知和愚昧，个人以为自己是神的这种无知的膨胀，最后把一个国家民族送入了地狱。现在中国是一样的。现在中国的老百姓，中国所有的普通的人们百分之80到90的这个民族主义膨胀和无知，对世界的完全是一种白纸般的白痴般的认知。当年日本和美国打珍珠港的时候美国是日本的30倍的国力，现在美国是中国的300倍国力也不止。别看那十几万亿美元的（GDP），胡扯球蛋的事儿。但是这就是悲剧呀。
 
-回应：闫博士的原文是SARS-CoV-2的基因序列是离奇地与一个在第三军事医学大学（重庆，中国）的军方实验室发现的蝙蝠冠状病毒相似，和一个南京军事医疗研究院（南京，中国）的相似。
+The ignorance and blindness of the ordinary people as well as the ignorance of leaders with puffed-up egos who think they are gods will eventually send a nation to hell. China is the same now. Today 80 to 90 percent of ordinary people in China are ignorant and full of inflated nationalistic sentiments. Their perception of the world is like a piece of white paper and idiotic. When Japan and the US fought at Pearl Harbor, the national power of the US was 30 times that of Japan. Now the national power of the US is more than 300 times that of China. Forget about the tens of trillion dollars of GDP. That’s nonsense. Yet, this is our tragedy.
 
-因此，相信中共的军方一定在SARS-CoV-2的产生以及掩盖它向人类泄漏的事情扮演了角色。
+国内是更悲剧的是党内9000万党员，90%，99%都希望什么？战友们？都希望共产党去打台湾，美国最好去攻击中南坑，都想把他们给弄死。弄死完自己贪污的钱合法了，也没人查了，自己家的私生子女也没人查了，都是这种心理。这就是为什么最近国内的、体制内跟我联系的人特别多。言语中间（表达着）爱着国呀，以民族为大呀，但是都希望如果能把共产党灭了那当然是最好的啦，是吧？都这样。那些企业家都说：哎呀～我们也不容易，混口饭吃就得活着呗。但是老郭你要能弄成？那当然是善莫大焉啦，太好啦，是吧？这能感受的到。
 
-**第六、在冠状病毒间的弗林酶切入点。**
+What is even more tragic are the 90 million CCP members in China. What do 90% and 99% of them hope for? Do you know, fellow fighters? They all hope the CCP will start a war with Taiwan. Then the United States will attack the Zhongnan Pit and kill the CCP leaders there. If the CCP leaders are killed, those CCP members’ embezzled money will become legal. Nobody will investigate their money nor their illegitimate children anymore. That’s what they think. This is why so many people in China from within the CCP system have contacted me recently. They talk about their love of the country and regard the nation as the most important thing, but what they want the most is to take down the CCP. All think like this. Entrepreneurs tell me: “Well, it’s not easy for us. We have to earn enough just to survive. But Miles, if you can get this done (taking down the CCP), of course, nothing would be better.” Great, isn’t it? I can feel this sentiment.
 
-他们提出，10到16行:闫博士等人断定在S刺突蛋白中的弗林酶切入点在自然界中发现的冠状病毒是不存在的。SARS-CoV-1和MERS在S刺突蛋白中有弗林酶切入点。这在其它冠状病毒是相当普遍的。MERS在刺突中也有弗林酶切入点。
+现在美国在觉醒，美国这个国家觉醒以后能变成事实，能变成行动。大家看到这几天什么情况？每时每刻冠状病毒共产党的威胁，还有美国都在“挖美奸”，欧洲也在“挖美奸”。大家注意英国了吗？前首相又被调查了，谁呀？搞脱欧的的，是吧？我早就说过，三四年前就说过他一定会被调查的，开启了先河。
 
-回应：他们又一次曲解闫博士等人的报告，然后就发表他们想当然的不公正的批评。闫博士等人已经很清楚地描述出，除了SARS-CoV-2，没有β冠状病毒在S1/S2接入点处有弗林酶切入点。但是他们曲解描述，然后省略β冠状病毒和S1/S2接入点。另外SARS-CoV-1在S1/S2接入点没有弗林酶切入点。它在S2有弗林酶切入点。对MERS，它的S1/S2接入点处有弗林酶切入点，便是它不属于β冠状病毒。因此闫博士等的起源描述，除了SARS-CoV-2外，没有任何一个β冠状病毒在S1/S2接入点处有弗林酶切入点的说法是准确而真实的。
+Now the United States is waking up. When the US wakes up, this country can see the reality and take action. What do you see these days? The coronavirus and the CCP threaten the world constantly. The US is unmasking American traitors, and Europe is also unmasking European traitors. Did everybody pay attention to the UK? A former prime minister has been investigated again. Who is it? The one who implemented Brexit, right? I said three or four years ago that he would be investigated. This has set a precedent.
 
-编辑：Victor Torre；校对：阿伯塔；发稿：信心的选择
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/6075b586dbc8001854a83ca3](https://gtv.org/getter/6075b586dbc8001854a83ca3) (04:28-09:18)
+鸣谢：
+[1] 感谢 Antsee-GTV、TING GUO 提供中文文本于 [https://gnews.org/zh-hans/1092318/](https://gnews.org/zh-hans/1092318/)
+[2] 感谢 YY、Liberte 提供英文翻译于 [https://gnews.org/1101962/](https://gnews.org/1101962/)
 
-[【闫丽梦博士铿锵有力回应“审阅者“】上一篇](https://gnews.org/zh-hans/1116291/)
-[【闫丽梦博士铿锵有力回应“审阅者“】下一篇](https://gnews.org/zh-hans/1116349/)
+* * *
 
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+整理校对 & 新闻撰写：【7PawBear】字幕：【JennyL】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-
-
-0
++7

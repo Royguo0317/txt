@@ -1,27 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共正在增建近百个像武汉病毒研究所那样的生物实验室
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1116715/)
+## 2021年4月20日 文贵先生盖特 2
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1118657/)
 
-翻译：洛杉矶天使农场 – 烟波浩淼
-校对：洛杉矶天使农场 – Jessi/詹茜
-审核：洛杉矶天使农场 – 黎明的光芒
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Picture1-40.png)
-**中共国科技部宣布，中共国正在建设另外****3****个生物安全四级实验室和****88****个生物安全三级实验室。**
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-“中共国周四宣布了《生物安全法》，随着中共国越来越重视作为国家安全一部分的生物安全，预计该法将进一步加强更多生物实验室的建立和安全运行的法律保护。”官方媒体《环球时报》报道了该新法律。
+Sean Duffy：高额债务使得美国更易遭受中共国货币战的攻击 Sean Duffy：Very high debt makes the US vulnerable to currency war from Communist China
 
-《环球时报》还援引了武汉大学病原生物学副主任的话，他称这部法律 “很及时”，“为包括传染病在内的生物安全科学项目提供了法律保护”。
+[【2021年4月20日】文贵先生盖特原文](https://gtv.org/getter/607e86ab8616c84f0ff190eb)
 
-科技部副部长相里斌透露，已批准建设3个生物安全四级实验室（即P4实验室）和88个生物安全三级实验室（即P3实验室）。而在2020年4月，中共国仅有2个P4实验室在运行，81个P3实验室在运行或获批建设。这些新项目表明，中共国现有的P3和P4实验室增长超过了100%。
+**喜联盟Gnews编辑部**
 
-该部声称：“通过该新法律，中共国的目标是提高国家的生物科学研究水平，应对动物和植物潜在的传染病爆发的预防和控制。” 尽管包括前疾病控制和预防中心主任罗伯特·雷德菲尔德（Robert Redfield）在内的几位科学家支持中共病毒从中共国实验室 “逃逸”的理论。
-
-原文作者：娜塔莉·温特尔（NATALIE WINTERS）
-发布时间：2021年4月17日
-原文链接：[https://thenationalpulse.com/breaking/ccp-constructing-100-more-wuhan-biolabs/](https://thenationalpulse.com/breaking/ccp-constructing-100-more-wuhan-biolabs/)
-
-
-
-0
++1
