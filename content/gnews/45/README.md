@@ -1,90 +1,93 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国的民意已经开启&nbsp; 美国人必须灭共的11个理由
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1119465/)
+## 2021年4月16-17日郭先生盖特内容整理
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1119486/)
 
-**摘要：郭先生在2021年4月11日的直播中复述了他在开会的时候给美国人例举的11个他们必须灭共的理由，并透露美国军方已经有数据表明80%美国人要找中共国算账，70%美国人认为美中必有一战。**
+**中共的疯狂和党员对爆料革命的支持**
 
-**美国的民意已经开启****  ****美国人必须灭共的****11****个理由**
+现在共产党在国内是一种经济造假、经济掠夺。所有人都在想尽办法，把股市抬起来割韭菜。部分股票已经被抬高，人家来剪，最后韭菜地就会剪没了。企业家非常清楚，股票市场、银行、金管局、银监会、证监会都在人家手里。往外汇钱难，卖股票也很难，贷款还得还。一点招没有。
 
-**The Eleven Reasons For the Americans to Take Down the CCP **
+国内人心萎靡，政治大奔逃，经济大崩溃。中共跟全世界为敌，释放对人类威胁的病毒。国内的人都清楚，共产党等待的就是被消灭，只是早死和晚死。任何有脑子的人，都不会让家人待在国内。包括习大神、李克强的家人。
 
-美国一旦是民意开启，大家记住我说的话啊，一旦美国民意认为你这个国家你跟我是为敌的、你是我的敌人的时候、竞争对手的时候、你影响我经济利益的时候，就破坏了我的资本主义的精致的利己主义的底线的时候，你和我的意识形态也就是信仰和对人的态度完全相反的时候，再加上能源。
+他们的核心利益在海外、欧洲，不在北京、上海，香港都被毁了。在国外的孩子们、家人，从过去对爆料革命坚决不相信，到观察、交朋友，现在坚决支持。很多人表示，要跟新中国联邦拉关系，很多人已经是战友了。
 
-Everyone please remember what I say here. [See what will happen] once the public opinion in the United States is whipped up, and once people believe that your country is my enemy and competitor, and that you touch my economic interests, hurt my bottom line, which is capitalism’s exquisite egoism, and that your and my ideologies are completely opposite to each other in terms of beliefs and attitudes towards the mankind. And what’s more, you’ve touched my energy.
+体制内的很多人，被共产党高层玩的招数吓傻了。他们知道共产党是真是假。现在中美关系，党的高层都很清楚：好是不可能了，就想把这一届总统再玩过去，或者让美国和俄罗斯、欧洲掐起来。在美国内部制造更多矛盾，或再放更多病毒。大家都认为越是不行了，中共真敢打台湾，去找死，就更害怕了。
 
-现在又多了什么战友们知道吗？多了一个，你看，能源是国家经济基础，过去的战争都是地理，为了土地，美国人不至于；然后信仰，现在和美国人对着干——它要杀神、杀基督、杀天主、杀穆斯林、杀佛教，跟美国这个信仰是完全是相反的。
+像“九指妖”疯了一样，一样的道理。她再折腾，想挑战爆料革命，想回到1年以前不可能了。大家都知道，她已经完蛋了，等待她的就是进监狱。共产党因为冠状病毒，在香港和准备打台湾的事情，已经在往死亡的路上狂奔。世界无论出于政治、经济、地缘、军事、战略的利益，几乎都聚集起来，就一个目标：干掉共产党。希望中国国内的同胞不要受到更多的伤害。
 
-My fellow fighters, you know, now there is the energy problem on the top of everything. Energy is the foundation of a country’s economy. In the past, wars were all about geography and land, but that’s not a big problem for Americans. Now, the CCP fights head to head with the Americans on beliefs by killing God, the Christ, the Lord, Muslims, and Buddhists. It’s totally against the belief of Americans.
+**中共习江斗**
 
-经济——我偷你的科技、我偷你的技术、我不付你知识产权。什么？大家一看就拉出来了。科技是人类的未来、是国家的安全基石。中共完全偷你的，还不付钱，还威胁你必须给我到中国投资企业。是美国国家未来的威胁吧？
+这几天，孟建柱出来给杨雄送葬。这是老江明确给“习大神”说的，建柱得出来。孟建柱是上海突损杨雄之后，习大神给的补偿。他让孟建柱在双规情况下，出来参加葬礼。给江家绵恒、韩正这些人的面子。像七哥当年被双规后，经历过被允许回公司开会。但旁边全是带着枪的中纪委武警，情况一模一样。
 
-In terms of economy, I [the CCP] steal your technology, and I don’t pay you for intellectual property. What does this mean? You will see that technology is the future of mankind and the cornerstone of national security, but the CCP steals your technology without paying any money and threatens you that you must give me [the CCP] technology if you want to invest in China. Should this be counted as a threat to the future of the US?
+江家已经认为上海帮有问题了，最近上海帮被抓、被弄死那么多人，钱包被拿走。克里访问上海，是上海帮的示威，给上海帮脸上增金。现在上海的房地产、信托、银行，正在大量的布局,下次世界金融危机的到来。江家在海外新加坡、日本、马来西亚、欧洲大量布局, 海外买黄金的很多人,都是江家的实力派。
 
-第二块，能源——它要抢夺马六甲海峡，包括了吉布提、非洲、中东非。对美国是经济上安全又受影响了吧？——经济。
+这一点上海帮跟习的这帮人，就不是一个层次。上海帮是国际牌，有世界观点，不是中南坑的坑点。现在国内经济的通货膨胀，大量失业，人民币已经虚拟化，加密化，数字化，时间化，什么时间必须得花完。这是共产党掠夺财富的招。但上海帮聪明，这时候弄黄金，弄重金属股。
 
-The second [threat] is energy. It [the CCP] wants to seize the Strait of Malacca, including Djibouti, Africa, and Middle East Africa. Does this impact America’s economic security? So this is economy.
+**世界性大危机即将到来**
 
-第三条，太空——二战之前没有太空。太空影响了地球安全，美国绝对的安全。现在中共已经在太空上可以随时和美国决一死战，绝对不是美国占多大便宜的问题，肯定最终美国赢，但美国要损失巨大。在损失和死亡、赢的问题上，只要美国有损失，美国就算输了——太空完了吧？
+世界经济因为美国、日本的印钞票经济，共产党的擀面杖子经济。即将迎来人类史上，最大的一个全球性的经济危机—恶性通货膨胀。从过去金本位到布雷森系统垮掉，到现在纸币时代要垮掉，进入到加密货币、网络金融的人类的大变革时代。不会超过一年，就会验证郭先生今天说的话。
 
-The third [threat] is space. There was no such thing as “space” before World War II. Space affects the security of the earth, and the security of the US, absolutely. Now the CCP can fight the United States to death at any time in space. It is definitely not a question of how much advantage the United States will have over the CCP. America will definitely win in the end, but it will suffer huge losses. As long as the United States has any losses or death, it would mean a loss to the US and space will be over.
+现在大家都很清楚，华尔街正在玩一场极为危险的游戏。美国金融板块都是暴涨！大家都往上冲，有人跑上去，后面有人跟上来。像冲浪一样，有人冲回去，有人晾在沙滩上，当成虾干、鱼干。华尔街股票的崩溃，只是炒多高才下来。还有多少人，可能倾家荡产的问题。
 
-第四条，大家看到了，你对整个人类的宗教和信仰已经彻底的干掉，你要当神，你要代替神。
+在这个过程当中，不是“小池塘”掀翻了大海，是大海把小池塘弄没了。共产党的假经济，还有香港完全依仗外向型经济，都会遭到重大危机。美国现在内部消费，就是弄走共产党的钱。同样现在共产党大量买美国国债，目的也不是跟美国交易。
 
-Fourth, everyone has seen that you, CCP, have completely wiped out all religions and beliefs of the entire mankind and you want to be a god, and you want to replace God.
+面对即将发生的危机，这次华尔街准备好了两样东西：
 
-最后，你要看到你破坏我在世界的领导地位。别说什么海陆文明、什么海洋文明，扯淡的事儿。现在你几个，中、俄、朝、伊，现在土耳其也尝了巴基斯坦尝尝欲试了，你这五个邪恶联盟、五个流氓国家，你要对付我。行了，这又出来了吧。
+1：炒起来，涨到今年年底甚至到明年5月份前。炒最高的时候，绝大多数的钱要出去。
 
-Finally, you want to damage my leadership in the world, then regardless of maritime or land-based, continental civilization, [I will destroy you]. Now a few of you, China, Russia, North Korea, Iran, and Turkey (Pakistan also wants to give a try) – the alliance of five evil countries, five rogue countries – want to go against me. Well, here’s it again.
+2：钱出去，就是放在虚拟加密货币、黄金。
 
-现在又发生了一个最大的俩事，叫什么？——冠状病毒。冠状病毒是什么？最后这个事——种族大屠杀、反人类罪。
+现在各大基金在最大收益的同时，迅速抛掉手中的东西，都在进一样东西（疑似虚拟货币）。现在的SEC主席支持虚拟货币，华尔街都在玩虚拟货币。企业也非常容易上市，可以直接上。Coinbase从初创投资2毛钱，到上市投资340块。
 
-Now the two biggest things have happened. What are they called? Coronavirus (tell me what is coronavirus) and genocide – the crime against humanity.
+比特币就是共产党和华尔街的。其它几个虚拟货币涨起来，背后几乎都是共产党和华尔街。这两个洗钱集团描绘一个金山银山的前景，都在等着傻货往里冲。正在推高市场，然后把大家都摔下来。
 
-咱把这几天这六条大家去横向地放在这儿的时候，你告诉我美国的民意现在是多少？美国民意现在不是60%，现在的美国军方情报人员：美国超过80%的人要找共产党算账 ，69%到70%的人都认为跟老共要有一战。美国的民意和美国的一切都是要跟着美国的两个核心：意识形态、经济利益。现在又多了这四条：冠状病毒、种族大屠杀、反人类罪。
+越是这个时候，我们一定要冷静，不要掺乎，不要被大浪冲在了沙滩。投机还有赌博心理，一定会让你倾家荡产，身败名裂。
 
-When the six things are put together, you tell me what the public opinion of the United States is now? It is not 60%, rather, based on the current US military intelligence personnel, over 80% of Americans want to hold the CCP accountable, and 69% to 70% believe that there will be a war with the CCP. The public opinion and everything else in the United States follows the two core things: ideology and economic interests. Now there are four more things: coronavirus, genocide, and crimes against humanity.
+**G系列的未来价值**
 
-我说到这的时候，我给这会上的人说，我说：“你告诉我共产党应不应该灭？共产党会不会被灭？” 我说现在你去看中国的现在这个胡锡进：“我们要把美国打回到农村去，我们要把它打回到石器时代 。”那叫什么张局张召忠，这所有人的讲话跟美国人说“我要把你美国打到农村去，我要用导弹雨把你整个东南亚军事基地全部消灭”。
+在世界虚拟经济和加密货币，加密金融和实体经济结合的时候，人家虚拟货币赚钱。我们只能看，连摸的机会都没有。但是新中国联邦搭建的G系列平台，让所有的战友们参与这个伟大的时刻。
 
-After I said all these things, I asked the people at this meeting, “Can you tell me whether the CCP should be destroyed? Will the CCP be destroyed?” I said, “Now you should go to watch what Hu Xijin said in China – ‘We ought to defeat Americans and send them back to their farmland. We ought to send them back to the Stone Age.’ Also watch what the guy called Zhang Zhaozhong (a Chinese military theorist at the PLA National Defense University) said. All these people have shouted to the Americans, ‘I want to defeat Americans and send them back to their farmland, and I want to wipe out your entire military base in Southeast Asia with our missile rain.’ ”
+1：G-Fashion延伸到G-Mall,。
 
-然后现在党内人现在把习大神捧成神，说必将收复台湾，必须打台湾。那么，冠状病毒坚决不是我们干的，是美国干的。马六甲、苏伊士运河，一个船接一个船地坏，你将出大问题。
+2：G-Club接下来将是每年巨额盈利的企业。
 
-I continued, “And now the party members praised Xi as the great God Xi and said that Taiwan must be regained and Taiwan must be defeated. And, the coronavirus was definitely not made by us, rather it was made by the United States. In Malacca and Suez Canal, you will see ships broken down one after another. Then you will encounter big problems.”
+3：G-TV、G-News唯一在人类关键时候，讲病毒、讲真相, 拯救人类的现代化社交媒体和门户网站结合的社交平台。
 
-然后美国的社交媒体现代武器和传统媒体，我绝对没人敢说我半个不字，然后美国的三权——国会、白宫、司法领域已经被我控制。这些不是我说的吧，我也编不出来吧。郭文贵是骗子，我能骗，我要是能把这骗出来，我也是成功的骗子了，我也不就是流氓的骗子了，这是不是事实啊？
+加密货币，虚拟经济和实体经济的结合，这几个加在一起，都踩着世界舞点，干干净净的往前走。我们必须体面、富有的、安全的生活，才能灭共。同时，我们的目的是灭共，拯救不了人类的经济。但世界经济的动荡，直接影响我们灭共的步伐。
 
-“On the social media, which is a modern weapon, and traditional media in the United States, no one dare to say any negative thing about me, not even a half negative word. And the three branches of the United States – Congress, the White House, and the judicial system are totally under my control.” I said, “These are not my words. I can’t make them up. I, Miles Guo is a liar, so I can lie, okay, but if I can make up those stuff, I would be a successful liar, and I would not be called a rogue liar anymore. Is this true?”
+**美日首脑会晤**
 
-所以我跟当时开会讨论的人，我说我们用最简单的历史和逻辑回到了希特勒时代。希特勒的当时有几个标志性的事件，最重要的事件，他从跨过莱茵河撕毁当时的一战协议——《凡尔赛协议》，到1935年的3月5号、1936年的3月6号，跨过莱茵河的几十万大军，干掉法国，攻击英国，然后攻打莫斯科。
+美日这俩国家都是印钞大国，印钞都非常厉害。他们都将迎来巨大的恶性通货膨胀期。过去这几天，美国拜登总统和日本首相菅义伟的见面，诞生两事：
 
-So I told the people who participated the meeting, “Let’s look at this using the simplest logic and comparing with the history in the Hitler era. Hitler had several iconic events at the time. The most important event was that he crossed the Rhine and tore up the World War I agreement, the “Versailles Agreement”, and from March 5 in 1935 to March 6 in 1936, hundreds of thousands of troops crossed the Rhine, defeated France, attacked Britain, and then attacked Moscow.”
+1：在亚洲，中共以为自己是老大，欧美别碰。大西洋，中共想有一席之地。这一次证明亚洲，中共说了不算。三条鳄鱼，印度、日本、中共在亚洲的池塘之争已经开始。
 
-我说：“这些事情跟今天的中共和从中国的开始《中国不高兴》、《中国可以说不》、《到厉害了，我的国》、战狼外交、冠状病毒、影响操控美国大选、干掉香港、撕毁中英协议，现在威胁英国、日本、印度的未来，用整个马六甲海峡要让他们跪下，向中国人说求中国，求中共。”
+2：美国和日本达成的经济合作，就是一起继续印钞票。
 
-I said, “On the top of these things, you look at today’s CCP. It started from publishing the books, *Unhappy China*, *China Can Say No*, and *Amazing China*, to the “war wolf” style diplomacy, the coronavirus, manipulating the US election, taking over Hong Kong, tearing up the Sino-British Joint Declaration, and now threatening the future of the United Kingdom, Japan, and India, using the entire Strait of Malacca to make them kneel down and beg the Chinese by saying “Please, I beg you, China, and I beg you, the CCP.”
+共产党已经早先得到了情报，最近大量的买进黄金。国企在外面买黄金和黄金的一些金矿股份，在国内禁止黄金交易。这个时候，老百姓家里存点黄金没有用的，兑现很难。这是国与国之间战略的东西，对老百姓没用，千万不要乱买黄金。但对G系列，我们20%的钱去买黄金，就管用。
 
-然后夸张到现在是中国有五亿陆军横扫地球，千架歼-20横扫世界寸草不生，太空中中国可以在几十秒内将太空的所有的全世界布置的卫星武器通通给你拿下；美军基地在三小时内在东南亚全部给你摧毁，核潜艇随时在纽约曼哈顿钻出来把曼哈顿炸平、把美国美东全部给扫空；中共做好了牺牲十亿中国人，中国人死十亿，中国还是第二大人口国。
+其他方面：
 
-“And what’s more absurd is that China claimed that it had an army of 500 million soldiers to sweep the entire earth and thousands of J-20 jets so as not to leave a single inch of grass alive in the world; China can shoot down all the satellite weapons deployed by countries all over the world in space within tens of seconds and destroy all the US military bases in Southeast Asia in three hours; its nuclear submarines can emerge in Manhattan at any time to blow up Manhattan and wipe out all East America; and the CCP is ready to sacrifice one billion Chinese people, because even with a billion’s casualty, China would still be the No. 2 most populated country.”
+1：在1998年，江泽民在北京拿下了，当时的二部部长姬胜德。姬鹏飞干掉了当年的中国副总理，情报界的大头子戴笠，儿子姬胜德掌管着二部。老江上去必须把他拿下，因为他是刘华清的人。姬胜德在监狱里边呆到老爹过世，才出来。
 
-我说这些不是我说的，不是“郭骗子”说的，也不是“郭三秒”说的。还有，还有，我在这儿在今天会上说的话，我说了一共十一条。没有人一个人吱声，我说话没有人吱声，我说完十一条，一个人吱声都没有。
+内容来源：
 
-I told them, “None of these things were said by me, nor by Guo Liar or Guo the Three Seconds.” At today’s meeting, after I told them all the eleven reasons, no one uttered a word. No one uttered a word after I spoke, none of them.
+【字幕】4/16/2021文贵盖特：共产党在灭亡前夜正在创造最大的经济泡沫，美国华尔街正在能制造一个世界经济的陷阱，我们如何自救
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=6072f7c36e11a756eddfaf32](https://gtv.org/video/id=6072f7c36e11a756eddfaf32) (54:13-1:01:52)
-鸣谢：感谢万物归一、&lt;文V&gt;、贝贝、西林1、YIMING（文鸣）、山川异域 提供中文文本于 [https://www.gnews.org/zh-hans/1084679/](https://www.gnews.org/zh-hans/1084679/)
 
-* * *
 
-字幕：【Rock小哥】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+> [【字幕】4/16/2021文贵盖特：共产党在灭亡前夜正在创造最大的经济泡沫，美国华尔街正在能制造一个世界经济的陷阱，我们如何自救](https://gnews.org/zh-hans/1108875/)
 
-+1
+
+
+【字幕】4/17/2021文贵盖特：全世界正在迎來一個惡性通貨膨脹．經濟危機．金融災難的前夜！
+
+
+
+> [【字幕】4/17/2021文贵盖特：全世界正在迎來一個惡性通貨膨脹．經濟危機．金融災難的前夜！](https://gnews.org/zh-hans/1111248/)
+
+
+
+整理：pride
+
+0
