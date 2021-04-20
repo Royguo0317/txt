@@ -1,56 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021博鳌亚洲论坛开幕：习近平王岐山齐助阵 来宾寥寥
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1119155/)
+## 【有声读物】我们并非生而为奴
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1119220/)
 
-作者：荧然
-![]()![](https://gnews.org/wp-content/uploads/2021/04/2325.jpg)
-新华社4月20日报道，博鳌亚洲论坛2021年年会开幕式在海南博鳌举行，习近平以视频方式发表主旨演讲。
+配音：香草山录音组 Gtv abeilles（蜜蜂）
 
-今年是博鳌论坛成立第20周年，主题为“世界大变局：共襄全球治理盛举 合奏一带一路强音”。王岐山亲身到了会场，他在开幕式上自称是为国家主席习近平“报幕”。而所谓“报幕”只是为了习近平录制的一段视频演讲报幕，亲身到了现场却没有演讲的机会，还要小心翼翼向习近平表忠心。
-
-今早的开幕式上，王岐山在走上台后说：“我只是为我们的习近平主席的致辞做一个报幕。这体现了我们中国，对我们的主席的高度的尊重。”
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-> 【脱稿 “致辞”】
-> 【 “我只是临时主持人，我为习近平报幕”】
-> 
-> 在博鳌亚洲论坛会议上，中国国家副主席王岐山被安排在习近平视像致辞之前发言，王岐山一开始就脱稿讲话，声明他只是临时主持人，真正致辞的应是习近平。
-> 他强调 : “这体现了我们中国对我们的主席高度尊重。”[#定于一尊](https://twitter.com/hashtag/%E5%AE%9A%E4%BA%8E%E4%B8%80%E5%B0%8A?src=hash&amp;ref_src=twsrc%5Etfw)[#忌才](https://twitter.com/hashtag/%E5%BF%8C%E6%89%8D?src=hash&amp;ref_src=twsrc%5Etfw)[#王岐山](https://twitter.com/hashtag/%E7%8E%8B%E5%B2%90%E5%B1%B1?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/Zj2V76oZlC](https://t.co/Zj2V76oZlC)
-> — 自由亚洲电台 (@RFA\_Chinese) [April 20, 2021](https://twitter.com/RFA_Chinese/status/1384391252372717573?ref_src=twsrc%5Etfw)
 
 
 
-论坛在“世界大变局“的主题下，习近平的喊话，丝毫没有踩刹车的意思，他一面继续推进“一带一路”，一面又强调和世界和谐相处。众所周知“一带一路”是中共的对外扩张战略，最重要的就是军事部署。习近平在演讲中说了一段“梦话”：“中国无论发展到什么程度，永远不称霸、不扩张、不谋求势力范围，不搞军备竞赛。”如此大言不惭，确实体现出“四个自信”，同时也是对世界的羞辱。
 
-博鳌论坛来宾寥寥
+一
 
-人民网报道称，从论坛成立时只有26个国家500余人出席，到今年来自60多个国家和地区超过4000人线下参会，论坛规模从小到大，声音由弱到强，影响力也越来越大。这背后，展现出中国改革开放的不断深化取得的成就。
+“被喝茶”回来，心，比前几回要平静
 
-而实际上，相较习近平参会的2018年，李克强参会的2019年，今年的来宾的级别大幅下降，人民网所谓的“影响力越来越大”只是自欺欺人。
+被“教育”、被威胁、被残害，也不愿为奴
 
-今年的来宾都是前政要，爱尔兰前总统 玛丽·罗宾逊、斯洛文尼亚前总统 图克、哥斯达黎加前总统 奥尔森、 意大利前总理 莱塔、芬兰前总理 埃斯科·阿霍。
+灰色的墙角，黑白颠倒的臭水沟
 
-这是部分来自2018年参会的政要，奥地利共和国总统范德贝伦、菲律宾共和国总统杜特尔特、蒙古国总理呼日勒苏赫、 荷兰首相吕特、巴基斯坦伊斯兰共和国总理阿巴西、新加坡共和国总理李显龙、日本前首相福田康夫、巴基斯坦前总理阿齐兹、法国前总理拉法兰、 意大利前总理、欧盟委员会前主席普罗迪、新西兰前总理 Jenny SHIPLEY、吉尔吉斯前总统 Almazbek ATAMBAEV、 泰国前副总理素拉杰、新加坡前副总理黄根成。
+无用的诗句在苍白的大地上生长
 
-从这份名单中我们看到世界已经剧变，往日中共的铁杆兄弟似乎也不那么活跃了。从党内来说，权力在高度集中，王岐山报幕的桥段释放出，习近平“定于一尊”的强烈信号，透露出党内斗争的白热化。
+不用象征讽刺城堡
 
-今年来宾名单上比较特别的一点是，两位前美国驻华大使以及四位前美国财长（前克林顿、布什、奥巴马政府）参会。是否预示着，在中美交战前夕，华尔街代理人的最后交涉？
+我们一直活在没有自由的笼牢
 
-（文章仅代表作者观点）
+不用暗喻表达黑暗
 
-新闻链接：
+我们一直活在无边的黑暗
 
-[共襄盛举合奏强音 世界期待博鳌“新惊喜”](http://hi.people.com.cn/n2/2021/0420/c231190-34684383.html)
+不用想象虚构荒诞
 
-[习近平在博鳌亚洲论坛2021年年会开幕式上发表主旨演讲](http://www.xinhuanet.com/politics/leaders/2021-04/20/c/_1127350817.htm)
+我们一直活在魔幻的现实
 
-[博鳌亚洲论坛2021年年会嘉宾名单](https://finance.sina.cn/hy/2021-04-14/detail-ikmxzfmk6809240.d.html?from=wap)
+这让神佛流泪的人间，却无法白描
 
-[博鳌亚洲论坛2018年年会嘉宾名单](https://news.sina.cn/gn/2018-04-05/detail-ifysuuya7671595.d.html?vt=4)
+因为，今天，我们是击碎悲剧的传奇
 
-***发布**：文顾*
+因为，我们并非生而为奴
+
+
+
+**文字版原文：[【香草诗词汇】我们并非生而为奴](https://gnews.org/zh-hans/678656/)**
+
+作者：纽约香草山写作组  木白
+
+
+
+音频处理/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
