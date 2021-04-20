@@ -1,52 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/04/17 福奇研究所资助武汉实验室进行病毒功能性增强实验
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1118572/)
+## 2021年4月20日 文贵先生盖特 1
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1118641/)
 
-视频字幕：JohnsonR | 听写/翻译：Roberts | 校对：Clau | 简评/文字整理/编辑：胖丁
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-![]( "美国国家过敏和传染病研究所主任安东尼·福奇在一次关于“通过创新和研究抗击2019冠状病毒病”的在线对话中发表讲话。")![](https://global.unitednations.entermediadb.net/assets/mediadb/services/module/asset/downloads/preset/Libraries/Production+Library/08-07-2020-NICA-844393-Fauci.jpg/image1024x768.jpg "美国国家过敏和传染病研究所主任安东尼·福奇在一次关于“通过创新和研究抗击2019冠状病毒病”的在线对话中发表讲话。")
+玛丽亚呼吁抵制北京奥运会，因为中共收集运动员的基因信息 Maria calls for a boycott of the Beijing Olympics because the CCP may collect the athletes’ genetic information.
 
-**简评：**
+[【2021年4月20日】文贵先生盖特原文](https://gtv.org/getter/607e86728616c84f0ff190dc)
 
-2014年，福奇研究所委托一个组织，由彼得·达萨克负责，把功能性增强实验的项目分包给了武汉病毒研究所，因为达萨克和武汉病毒研究所在蝙蝠冠状病毒研究方面处于世界领先地位。这个想法原本是好的，但瘟疫大面积爆发，科学家们为了科研经费能够持续发放不敢开口。2019年，福奇又续签了该项目，研发如何使病毒更具有传染性。这很令人担忧，应该溯求瘟疫的来源，从来保证不再资助有任何恶意目的的研发。
+**喜联盟Gnews编辑部**
 
-**视频字幕：**
-
-**YouTube视频链接：**
-
-
-
-**GTV视频链接：**[https://gtv.org/video/id=607cd2558616c84f0ff0e5e5](https://gtv.org/video/id=607cd2558616c84f0ff0e5e5)
-
-功能性增强实验的目的是了解潜在的瘟疫来源，它的意愿是好的。
-
-2014年，福奇博士的研究所委托一个叫做“生态健康联盟”的组织，由彼得·达萨克负责，把这一研究分包给了武汉病毒研究所。
-
-由于达萨克和武汉病毒研究所在蝙蝠冠状病毒研究的世界领先地位，他们被要求研究从自然到人类的下一个病毒“溢出”发生的可能性。
-
-其中一种技术是在政府网站上公开的，你也注意到了，就是使这些病毒在实验室中更具传染性，从而了解它可能会如何感染人类。
-
-我刚才说到的最后一点是对的。正如Josh Rogan所说，科学家们不敢说出真相，因为他们是由国立卫生研究院和国家过敏与传染研究院资助的。
-
-他们不想引起麻烦从而使得自己的研究经费被削减。
-
-但是其中一名接受我们采访的科学家被记录在案，Richard Ebright博士，他来自罗格斯大学。
-
-他特别提到2019年福奇的研究院在（武毒所）功能性增强项目续签的时候，引起的担忧。
-
-此事应该在审查中被标记出来，但是并没有，这个程序被绕开了，这是媒体应该问的问题。
-
-再次强调，我们不是说任何人有任何恶意，看起来这是个事故。
-
-但是鉴于因此而死亡这么多人，给世界带来如此的灾难，我们应该渴望了解大瘟疫的根源，从而保证我们不再资助这种可能导致下一次灾难的类似研究。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 +1
