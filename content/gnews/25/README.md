@@ -1,144 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 卡什·帕特尔（Kash Patel）讨论了拜登政府对中共国、俄罗斯和伊朗的外交政策
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1119695/)
+## 西喜时事新闻简报—香港篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1119737/)
 
-內容：
+- 作者：蚂蚁兄弟
 
-来自真正的美国声音（Real America’s Voice） 2021年4月19日的推文
 
-Kash Patel
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-卡什·帕特尔
+**西班牙2021年4月20日电/西喜社——**
 
-Former chief of staff, Acting Secretory of Defense
+1. **[佩洛西：美国 “激光聚焦”香港法治](https://asia.nikkei.com/Spotlight/Hong-Kong-protests/US-laser-focused-on-Hong-Kong-rule-of-law-Pelosi）)**
 
-前代理国防部长幕僚长
 
-Well, those are three perfect examples of where to start
+日经亚洲4月20日电，纽约—美国众议院议长南希-佩洛西周一向香港民主人士保证，美国两党都会给予其支持，她说，无论与中共国的商业利益如何，华盛顿的权威和道德都会为香港站台。
 
-好的，这是从这里开始的三个完美的例子
+**2.** **[香港禁飞2周印度、巴基斯坦和菲律宾的航班](https://www.reuters.com/world/china/hong-kong-bans-flights-india-pakistan-philippines-2-weeks-2021-04-19/)**
 
-Russia, China, and Iran
+据路透社4月20日电，香港当局周日发表声明称，在亚洲金融中心首次发现N501Y变种COVID-19菌株后，香港将从4月20日起暂停飞往印度、巴基斯坦和菲律宾的航班，为期两周。政府表示，在过去14天内有多起携带病毒的输入性病例传入香港后，这三个国家将被列为 “极高风险”。
 
-俄罗斯、中共国、和伊朗
+**3. [香港将解雇 “不忠”员工](https://www.aa.com.tr/en/asia-pacific/hong-kong-set-to-fire-disloyal-employees/2213428)**
 
-Look,  Joe Biden when he ran he said
+土耳其安纳托利亚通讯社4月19日电，香港公务员事务部长聂秀成表示，约有129名公务员拒绝宣誓效忠香港政府。港府表示将加快终止 “不忠诚员工”工作的程序。
 
-看, 当乔·拜登竞选时说
+**4. [黎智英因民主抗争被判刑14个月](https://www.bbc.com/news/world-asia-56770567)**
 
-his team is gonna be so experience,
+BBC新闻4月17日电，香港民主派传媒大亨黎智英被裁定犯有非法集会罪，被判入狱14个月。
 
-他的团队将会是很有经验
+**5. [港版国安法让艺术界感到寒心](https://asia.nikkei.com/Spotlight/Asia-Insight/Hong-Kong-s-security-law-sends-chill-through-arts-community)**
 
-so stack on national security matters
+日经亚洲4月20日电，自去年6月港版国家安全法刚刚生效后，一部关于报道2019年抗议活动期间围攻香港理工大学的纪录片《红砖墙内》上映不久，就遭到各放映组织和电影院者下架影片，官方宣称是因为美化了激进的抗议者和违反国家安全法。
 
-在国家安全上还有很丰富的经验
+**6. [无国界记者组织: 2021年新闻自由指数报告将港版安全法列为 “严重威胁”](https://hongkongfp.com/2021/04/20/hong-kong-security-law-cited-as-grave-threat-in-new-reporters-without-borders-2021-press-freedom-index-report/)**
 
-that they would hit ground running
+国际新闻自由监督机构 “记者无国界”（RSF）周二发布2021年世界新闻自由指数时警告说，中共实施的港版国家安全法对该市的记者构成了 “严重威胁”。在最新的指数中，香港在180个国家和地区的排名中相比去年在该指数的排名下降了7位，至第80位，与2002年在该指数中的第18位相比大幅下降。目前，香港的排名低于多哥和吉尔吉斯斯坦。
 
-他们将一路快马加鞭
+审核：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
 
-that’s what he said
-
-那是他所说的
-
-So, yeah, we gave him  three months for his presidency
-
-所以，是呀，我们给了他三个月的总统任期时间
-
-to install a diplomatic effort
-
-在外交上进行努力
-
-and foreign policy that works in China, in Russia, in Iran
-
-和在中共国，在俄罗斯，和在伊朗可行的外交政策
-
-I don’t think he’s still call out genocide that’s going on in Xinjiang
-
-我不认为他仍对在新疆发生的种族灭绝事情谴责
-
-I don’t think the sanctions effort that he’s making
-
-我认为他没有采取制裁措施
-
-or anything more than public headline political hay-made
-
-或除了政治头条新闻之外的任何努力
-
-and as for Iran he’s made it very clear
-
-至于伊朗，他说得很清楚
-
-that he wants them back the negotiating table for the JCPOA
-
-他希望他们返回联合全面行动计划的谈判桌
-
-even though the American public and the world
-
-即使美国公众和世界
-
-now knows Iran already blew through the nuclear requirements to restrictions
-
-现在知道伊朗已经破坏了核武器要求的限制
-
-that they were put under by the world
-
-他们被世界所唾弃
-
-so they’re not gonna listen to us anyway
-
-所以他们无论如何也不会听我们的
-
-and they are all as you said
-
-他们都是就如你所说的
-
-successfully testing Joe Biden from Putin, (coughing –  excuse me)
-
-成功地考验了乔-拜登，从普京，（咳嗽—对不起）
-
-to the ayatollah, to Xi Jinping in China
-
-到阿亚图拉，再到中共国的习近平。
-
-and there is no concrete policy that Joe Biden has laid out
-
-而且乔·拜登并没有制定具体夯实的政策
-
-I wish there was that we could have a more substantive discussion
-
-我希望我们可以进行更实质性的讨论
-
-but he’s probably just waiting for the New York Times
-
-但他可能只是在等待《纽约时报》
-
-and the Washington Post to tell him what to do next
-
-和《华盛顿邮报》告诉他下一步该怎么做
-
-I can’t recall the presidency that ever was establishing foreign policy based on the media
-
-我不记得曾经有总统要依据媒体的指导制定了外交政策
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接: [https://twitter.com/realamvoice/status/1384182504450572289?s=24](https://twitter.com/realamvoice/status/1384182504450572289?s=24)
-
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Ali
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 0

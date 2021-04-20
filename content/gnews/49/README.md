@@ -1,11 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 接种疫苗后仍有50％的机会感染病毒
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1119319/)
+## 文贵先生直播：20210415G系列相关内容
+` 《爆料贵语--掀郭盖》NZ` [轉載自GNews](https://gnews.org/zh-hans/1119336/)
 
-4/19/2021 彼得·纳瓦罗：福奇一直在误导所有人来相信该疫苗的有效性超过90%；然而，事实证明，疫苗在让人免受感染或症状轻微方面的有效性是90%；但是接种的人仍有50%的可能会感染病毒。
+采集：滴水莲花 设计排版：空之灵
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/直播4.15封面.jpeg)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/直播4.15-1.jpeg)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/直播4.15-2.jpeg)
+审核：玫瑰天空
 
-By： 【秘密翻译组 G-Translators】
+上传：糊糊文婴
 
 0

@@ -1,29 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “裸奔”时代
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1119955/)
+## 【战友心声】数字人民币的目的就是要干掉美元
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1119916/)
 
-#### 作者：斩草要除根
-![]()![](https://gnews.org/wp-content/uploads/2021/04/IMG_0026-scaled.jpg)封面来源：Scott/摄影
+作者：纽约香草山农场 城君
 
-2021年04月19日央视新闻文章[《数十亿个人信息明码标价，“潜规则”盛行售卖泛滥成灾》](https://news.cctv.com/2021/04/19/ARTIXGu9B6CXPpxvUm30PmIF210419.shtml?spm=C96370.PPDB2vhvSivD.EJHwg9t6FrM7.3)中写到：通过业内人士登录Telegram、暗网，发现上亿条各类别的个人信息被公开售卖，包括个人的行踪轨迹信息、征信信息、财产信息、住宿信息、通信记录，甚至是面部活体信息，只要点击支付就可轻易获取，贩卖猖獗，信息量和交易量之大触目惊心。每年在暗网平台出售的各类泄露数据多达上万起，每年泄露的数据总量高达数十亿条，交易金额超10亿元人民币。
 
-#### 简评：
 
-从2010年09月01日中共国以解决手机诈骗、垃圾短信为名，正式开始实施手机实名制。到今年2021年的11年间，斩断了电信网络诈骗的黑手了吗？实际上，非但没有解决问题反而连年持续高发。更有曝光出的电信运营商内部人员向商家违规出售用户资料的事件。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-看一下现在整个社会的全名实名制，上网要实名、买菜刀要实名、买散装汽油要实名、连购买紧急避孕药都要实名。再看看整个中共国内无处不在的摄像头，覆盖全国的监控网和一整套监控机制，打着为了人民安全的名，在光天化日下干着监视、收集数据的活。
 
-在酒店房间发现摄像头已经是最平常的了，餐馆、商铺、都可以随意安装摄像头，针孔摄像头也已经遍布到商场试衣间、洗浴中心、民宿等你想不到的每个角落。甚至已经被偷装到了个人家庭居室，已经形成了一条完整的偷拍产业链，可笑的是在电商平台购买偷拍设备却不需要被实名制。还有到处的指纹、人脸识别系统、被过分授权的App 软件，试问谁能够拥有自己的个人隐私？又谈何保护个人信息和隐私？
 
-人们都相信监视不是为了自己，而是为了陌生人而设计；人们也愿意用自己的隐私去换取生活中的便利。某种意义上来说，你的无知和沉默都是在助纣为虐、为虎作伥，所以你也必须要承担相应的后果。另一层面，在中共国这个国家权力面前谈个人隐私，这本来就是一个笑话。在为所欲为的施与者面前，人们只能被动承受、主动权力被任意剥夺。即使有隐私保护意识的人，也没有办法去保护隐私不被侵害。全民“裸奔”的时代，你又何来尴尬。
-（本文仅代表作者个人观点，跟GNEWS平台无关。）
+刚刚过去的博鳌亚洲论坛上，在谈及人民币国际化的议题时，中（共）国人民银行副行长李波指出，“人民币国际化是一个自然而然的进程，我们的目的不是取代美元，或者取代其他国际货币，而是让市场作出选择，实现进一步的国际贸易和投资的便利化。”
 
-**新闻来源链接：**🔗[数十亿条个人信息明码标价 “潜规则”盛行售卖泛滥成灾](https://news.cctv.com/2021/04/19/ARTIXGu9B6CXPpxvUm30PmIF210419.shtml?spm=C96370.PPDB2vhvSivD.EJHwg9t6FrM7.3)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-370.png)
 
-* * *
+众所周知，自2015年起，中共假借“一带一路”共同发展的名义，同路线上的很多国家建立起经济联系。如今回首，我们看到中共输出更多的是贪腐、暴政、债务和破产。再看看近两年中共大肆推行的数字货币，很难相信开篇副行长李波所说的，“人名币国际化是一个自然而然的过程”。最终我们发现，投资、“一带一路”和虚拟货币三个领域都是相互配合的，以达到中共的险恶目的。
 
-***审核/校对：**Ting Guo*
+![](https://lh3.googleusercontent.com/proxy/_UBM2Kp-dWEJirYPxi2LxV20HDb3bwEJKhBJjTL3aLm42ufxVUnirzXdgH_ZTQvF8PFVhT2go-x8mrYNTz4Peo9sGa7TzH_C3NHZFKjih9HBTA)图片来源：路透社
+
+郭文贵先生在4月15日的直播中说到：中共近期在欧洲、亚洲大量推广DCEP，挑战SWIFT银行结算系统。同时，我们也看到，大部分国家都存在债务问题，其中高额债务的国家更易遭受中共国货币战的攻击，比如美国的30万亿美元债务，就时刻面临着数字人民币的威胁。如果连美国这样经济体量的国家都有这种风险，那么数字人民币对中、小国家边缘性的货币和货币政策的影响，岂不是轻而易举？
+
+数字人民币的最终目的是干掉美元，我们不能让魔鬼得逞，它只会成为魔鬼统治人民的武器。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
 
 0

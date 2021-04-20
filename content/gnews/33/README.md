@@ -1,15 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月20日 文贵先生盖特 3
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1119539/)
+## 【有声读物】风已成眠
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1119664/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+**——2020年秋看林风眠画展而感**
 
-4月20号啊：尊敬的战友们好．美中刚刚 想了环境天气的双休高潮后！共产党为什么又在这个病毒肆虐的时候．高调的开启BGY海南论坛，再再推出老妈咪．大老仟．王岐山出来公关？( (习大神，三天不学习，赶不上王副主席）让习大神，睡不着的人！都必须要这样的冒险使用说明了什么？
+香草山配音组：Swr拥抱太阳
 
-[【2021年4月20日】文贵先生盖特原文](https://gtv.org/getter/607ee2cc8616c84f0ff1aed5)
+放下扇子，仕女的眼里藏不住秋色
+你如一方水墨，沉淀着通透的秋水
+轻纱披肩，白鹭起舞，风似有似无
+你用一张白纸吐纳云雾，如梦如幻
 
-**喜联盟Gnews编辑部**
+文字版全文：[【香草诗词汇】风已成眠](https://gnews.org/zh-hans/866164/)
+
+发稿：正义的小新
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

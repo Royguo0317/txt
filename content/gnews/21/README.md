@@ -1,43 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报—香港篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1119737/)
+## 【世事解评】中共国的假骗偷何时休
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1119892/)
 
-- 作者：蚂蚁兄弟
+作者：纽约香草山福音部  凤鸡
 
-
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-**西班牙2021年4月20日电/西喜社——**
-
-1. **[佩洛西：美国 “激光聚焦”香港法治](https://asia.nikkei.com/Spotlight/Hong-Kong-protests/US-laser-focused-on-Hong-Kong-rule-of-law-Pelosi）)**
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
 
-日经亚洲4月20日电，纽约—美国众议院议长南希-佩洛西周一向香港民主人士保证，美国两党都会给予其支持，她说，无论与中共国的商业利益如何，华盛顿的权威和道德都会为香港站台。
 
-**2.** **[香港禁飞2周印度、巴基斯坦和菲律宾的航班](https://www.reuters.com/world/china/hong-kong-bans-flights-india-pakistan-philippines-2-weeks-2021-04-19/)**
+4月18日，湖南人事考试院公布2021年省公务员考试违规行为，其中有73名考生被指存在一般违规行为，如将试卷带离考场、考试结束后继续作答、带未经批准的物品进入考场等。另有10名考生被怀疑作弊，因有5对两两试卷答案雷同。这83名考生的考试成绩被视为无效。
 
-据路透社4月20日电，香港当局周日发表声明称，在亚洲金融中心首次发现N501Y变种COVID-19菌株后，香港将从4月20日起暂停飞往印度、巴基斯坦和菲律宾的航班，为期两周。政府表示，在过去14天内有多起携带病毒的输入性病例传入香港后，这三个国家将被列为 “极高风险”。
+此事引发网民热议，相关词条还曾登上微博热搜榜。
 
-**3. [香港将解雇 “不忠”员工](https://www.aa.com.tr/en/asia-pacific/hong-kong-set-to-fire-disloyal-employees/2213428)**
+有网民说：“这还没‘为人民服务’呢，就开始弄虚作假了。”
 
-土耳其安纳托利亚通讯社4月19日电，香港公务员事务部长聂秀成表示，约有129名公务员拒绝宣誓效忠香港政府。港府表示将加快终止 “不忠诚员工”工作的程序。
+另有网民质疑：“试卷还可以带出考场？费解，这监考老师不挨个儿全收了吗？”“监考老师咋监考的啊。雷同啊。”“严重怀疑把答案带出考场的是各大培训机构人员。”
 
-**4. [黎智英因民主抗争被判刑14个月](https://www.bbc.com/news/world-asia-56770567)**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片17-3.png)
 
-BBC新闻4月17日电，香港民主派传媒大亨黎智英被裁定犯有非法集会罪，被判入狱14个月。
+评论：整个中共国都处在一种假骗偷的大环境当中，不搞假骗偷的人连当一个科长都困难，所以都是劣币驱除良币，越往上面人越坏，目前整个系统已经病入膏肓，只有灭共才能改善这种状况了。
 
-**5. [港版国安法让艺术界感到寒心](https://asia.nikkei.com/Spotlight/Asia-Insight/Hong-Kong-s-security-law-sends-chill-through-arts-community)**
+校对/发稿：飞虹
 
-日经亚洲4月20日电，自去年6月港版国家安全法刚刚生效后，一部关于报道2019年抗议活动期间围攻香港理工大学的纪录片《红砖墙内》上映不久，就遭到各放映组织和电影院者下架影片，官方宣称是因为美化了激进的抗议者和违反国家安全法。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpeg)
 
-**6. [无国界记者组织: 2021年新闻自由指数报告将港版安全法列为 “严重威胁”](https://hongkongfp.com/2021/04/20/hong-kong-security-law-cited-as-grave-threat-in-new-reporters-without-borders-2021-press-freedom-index-report/)**
 
-国际新闻自由监督机构 “记者无国界”（RSF）周二发布2021年世界新闻自由指数时警告说，中共实施的港版国家安全法对该市的记者构成了 “严重威胁”。在最新的指数中，香港在180个国家和地区的排名中相比去年在该指数的排名下降了7位，至第80位，与2002年在该指数中的第18位相比大幅下降。目前，香港的排名低于多哥和吉尔吉斯斯坦。
 
-审核：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
+**更多资讯，更多关注**
 
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
