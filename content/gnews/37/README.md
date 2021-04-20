@@ -1,21 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月20日灭共要闻快报
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1119166/)
+## 文贵先生直播：20210415G系列相关内容
+` 《爆料贵语--掀郭盖》NZ` [轉載自GNews](https://gnews.org/zh-hans/1119336/)
 
-重点内容：
+采集：滴水莲花 设计排版：空之灵
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/直播4.15封面.jpeg)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/直播4.15-1.jpeg)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/直播4.15-2.jpeg)
+审核：玫瑰天空
 
-日本印度中共新冠疫情反弹；
-
-班农：数字货币中共超限战，影响远超病毒；
-
-中共鼓吹近1.9亿剂疫苗无一例死亡；
-
-温家宝追忆母亲文章涉及政治敏感被删；
-
-港府进行国安日宣传，市民：香港已经不安全
-
-**By**：【秘翻组**–**上天造灭疫组】
+上传：糊糊文婴
 
 0

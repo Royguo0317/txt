@@ -1,143 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 卡什·帕特尔（Kash Patel）讨论了拜登政府对中共国、俄罗斯和伊朗的外交政策
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1119695/)
+## 无国界记者组织: 2021年新闻自由指数报告将港版安全法列为 “严重威胁”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1119821/)
 
-內容：
+- 翻译：蚂蚁兄弟
 
-来自真正的美国声音（Real America’s Voice） 2021年4月19日的推文
 
-Kash Patel
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-卡什·帕特尔
+**西班牙2021年4月20日电/西喜社——**
 
-Former chief of staff, Acting Secretory of Defense
+据香港自由新闻（HKFP）4月21日消息，国际新闻自由监督机构 “无国界记者”（RSF）周二发布2021年世界新闻自由度指数时，警告说，中共实施的港版国家安全法对香港的记者构成了 “严重威胁”。 在最新的指数中，全球180个国家和地区中，香港名列仍为第80位。相比去年同期在该指数的排名下降了7位，跌至第80位，但与2002年在该指数中的第18位相比，有大幅下降。目前，香港的自由指数排名低于多哥和吉尔吉斯斯坦。
 
-前代理国防部长幕僚长
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-2-7.jpg)
 
-Well, those are three perfect examples of where to start
+该监督机构警告说，一种 “审核病毒” 正在亚洲各地蔓延”。无国界记者组织星期二的声明说：”在亚太地区，审核病毒蔓延到中国以外的地区，特别是香港，中共在那里实施的港版国家安全法严重威胁到记者。
 
-好的，这是从这里开始的三个完美的例子
+自去年夏天中共对香港实施港版国家安全法后，香港的新闻自由空间越来越小。最近几周，该市警察局长誓要调查任何被认为危及国家安全的 “假新闻”，且中共政府也正在酝酿一项法律措施，阻止“误导”信息。
 
-Russia, China, and Iran
+一名香港记者因以调查关于2019年元朗暴徒袭击事件中警方不作为的报道，而查阅了公共交通登记记录，目前正在面临审判。
 
-俄罗斯、中共国、和伊朗
+该年度指数是根据专家们关于各地区的记者遭受虐待和暴力行为的信息，并衡量各地新闻自由的各种因素—包括多元化、媒体独立、自我审查、透明度和该地区的立法框架综合要素汇编的。
 
-Look,  Joe Biden when he ran he said
+**暴风雨前的宁静**
 
-看, 当乔·拜登竞选时说
+RSF东亚局局长Cédric Alviani告诉香港通讯社，香港的排名没有变化并不意味着该市的新闻自由威胁没有变化。他说：“我想说这是暴风雨前的平静”，他补充说，他“非常担心”港版安全法会带给记者潜在的自我审查制度。
 
-his team is gonna be so experience,
+他说，香港排名保持不变的原因之一是香港人在大流行期间无法上街示威：“在过去一年中，没有发生针对记者的暴力事件，因为示威者已经不能自由地进行示威了”。
 
-他的团队将会是很有经验
+与此同时，中国在该指数中也保持在第177位，仅高于朝鲜、土库曼斯坦和厄立特里亚。该监督机构还警告说，在习近平的领导下，中国的互联网审查、监视和洗脑宣传已经达到 “前所未有的水平”。
 
-so stack on national security matters
+监督机构在声明中还说：“由于大量使用新科技和军管式的审查制度，中共政府设法监测和控制信息流，在网上监视和审查公民，并在社交媒体上替其宣传。
 
-在国家安全上还有很丰富的经验
+无国界记者组织还警告说，由中共策划的全球错误信息运动正在扩大。”中共政权还在扩大在国外的影响，目的是将其编制的故事强加给国际受众，并推动其新闻业与国家宣传混为一谈的不正当做法。”
 
-that they would hit ground running
+被中共当局称为国家“防火墙”的控制下，对网上的所有信息进行了严格审查。包括谷歌、YouTube、Facebook和Twitter在内的各类互联网平台。
 
-他们将一路快马加鞭
+该监督机构还说，中共病毒大流行被用来进一步限制亚太地区的信息自由流动。“中共的专制政权正在利用病毒大流行来完善他们对信息的极权控制方法。”
 
-that’s what he said
+**点评：**
 
-那是他所说的
+**自港版国安法以来，我们都清楚的看到亲共的港府正在一步步收紧新闻的自由度，只有港府才可以认可谁是记者谁不是记者。**
 
-So, yeah, we gave him  three months for his presidency
+**港版国安法的这些“恐怖主义、分裂国家、颠覆国家政权、勾结境外势力” 等罪名，可以随时对记者进行恐吓和“合法”惩罚或拘留。大部分被逮捕的媒体从业人员，都因以所谓的违反国家安全罪名入狱，受到不同程度的判刑，就连攥写与香港文化身份认同的文章也会有可能收到分裂国家的罪名指控。**
 
-所以，是呀，我们给了他三个月的总统任期时间
+**媒体不断因为报道敏感话题而受到政治打压，这对香港新闻届的震慑力可想而知，同时记者人身安全和心理上承受的压力，行业里到处布满了红线和报警，新闻自由空间严重萎缩，在这样的社会出来的新闻还能是真实的吗？**
 
-to install a diplomatic effort
+**今日的香港就是明日的世界，表面上看上去我们还有言论自由，还能用facebook，推特等社交媒体，但最近不绝于耳的内容审查，账号被关闭等等，这个世界到底还有言论自由吗？**
 
-在外交上进行努力
+审核：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
 
-and foreign policy that works in China, in Russia, in Iran
+**新闻来源：**[香港自由新闻（HKFP）](https://hongkongfp.com/2021/04/20/hong-kong-security-law-cited-as-grave-threat-in-new-reporters-without-borders-2021-press-freedom-index-report/)
 
-和在中共国，在俄罗斯，和在伊朗可行的外交政策
-
-I don’t think he’s still call out genocide that’s going on in Xinjiang
-
-我不认为他仍对在新疆发生的种族灭绝事情谴责
-
-I don’t think the sanctions effort that he’s making
-
-我认为他没有采取制裁措施
-
-or anything more than public headline political hay-made
-
-或除了政治头条新闻之外的任何努力
-
-and as for Iran he’s made it very clear
-
-至于伊朗，他说得很清楚
-
-that he wants them back the negotiating table for the JCPOA
-
-他希望他们返回联合全面行动计划的谈判桌
-
-even though the American public and the world
-
-即使美国公众和世界
-
-now knows Iran already blew through the nuclear requirements to restrictions
-
-现在知道伊朗已经破坏了核武器要求的限制
-
-that they were put under by the world
-
-他们被世界所唾弃
-
-so they’re not gonna listen to us anyway
-
-所以他们无论如何也不会听我们的
-
-and they are all as you said
-
-他们都是就如你所说的
-
-successfully testing Joe Biden from Putin, (coughing –  excuse me)
-
-成功地考验了乔-拜登，从普京，（咳嗽—对不起）
-
-to the ayatollah, to Xi Jinping in China
-
-到阿亚图拉，再到中共国的习近平。
-
-and there is no concrete policy that Joe Biden has laid out
-
-而且乔·拜登并没有制定具体夯实的政策
-
-I wish there was that we could have a more substantive discussion
-
-我希望我们可以进行更实质性的讨论
-
-but he’s probably just waiting for the New York Times
-
-但他可能只是在等待《纽约时报》
-
-and the Washington Post to tell him what to do next
-
-和《华盛顿邮报》告诉他下一步该怎么做
-
-I can’t recall the presidency that ever was establishing foreign policy based on the media
-
-我不记得曾经有总统要依据媒体的指导制定了外交政策
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接: [https://twitter.com/realamvoice/status/1384182504450572289?s=24](https://twitter.com/realamvoice/status/1384182504450572289?s=24)
-
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Ali
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 
 

@@ -1,32 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】风已成眠
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1119664/)
+## 普京向新任古巴共产党主席发出贺电
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1119836/)
 
-**——2020年秋看林风眠画展而感**
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-香草山配音组：Swr拥抱太阳
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Snipaste_2021-04-20_18-59-43.jpg)sputniknews.cn
+04月20日，克里姆林宫新闻处报道，俄罗斯总统普京向最近当选古巴共产党中央委员会第一书记的古巴总统米格尔·迪亚斯·卡内尔表示祝贺。
 
-放下扇子，仕女的眼里藏不住秋色
-你如一方水墨，沉淀着通透的秋水
-轻纱披肩，白鹭起舞，风似有似无
-你用一张白纸吐纳云雾，如梦如幻
+普京指出了与古巴的战略伙伴关系的价值，并提出在所有领域发展双边对话和互利合作。
 
-文字版全文：[【香草诗词汇】风已成眠](https://gnews.org/zh-hans/866164/)
+普京在贺电中表示，“我期望通过共同努力，我们将确保进一步发展建设性的双边对话，在所有领域开展互利合作，以造福我们人民的友好。”
 
-发稿：正义的小新
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2.jpeg)
-**更多资讯，更多关注**
+据古巴共产党网站报道，4月18日举行了古巴共产党中央委员会第一书记选举，米格尔·马里奥·迪亚斯·卡内尔获胜。
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+在迪亚斯·卡内尔之前，劳尔·卡斯特罗曾担任古巴第一书记一职。4月16日，他宣布了离职的决定。这是卡斯特罗家族的代表首次不再担任党内领导职务。彭博社写道，卡斯特罗曾发言支持2019年当选共和国总统的米格尔·迪亚斯·卡内尔。
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+普京还向卡斯特罗本人发出贺电。祝贺他成功召开了古巴共产党第八次代表大会，称赞他在党和国家最高职位上的工作成果及他个人对俄古关系发展的贡献。
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+参考链接：
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://www.rbc.ru/rbcfreenews/607e741d9a79470a5aaccc93](https://www.rbc.ru/rbcfreenews/607e741d9a79470a5aaccc93)
 
 0
