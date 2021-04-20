@@ -1,144 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 卡什·帕特尔（Kash Patel）讨论了拜登政府对中共国、俄罗斯和伊朗的外交政策
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1119695/)
+## 川普称对竞选总统的想法是认真的
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1119763/)
 
-內容：
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-来自真正的美国声音（Real America’s Voice） 2021年4月19日的推文
+编辑上传  银河
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Snipaste_2021-04-20_18-45-53.jpg)[nypost.com](https://nypost.com/2020/06/20/trump-campaign-blames-protests-media-for-modest-rally-crowd-in-tulsa/)
+04月20日，美国前总统唐纳德·川普称不排除在2024年竞选新一届总统的可能性。
 
-Kash Patel
+“我会告诉你，我正在认真对待它（参加下届总统选举的想法），不止是认真。但从法律的角度来看，我还不想传播这个消息，现在还太早。”川普说。
 
-卡什·帕特尔
+同时，这位前白宫负责人指出，新选举的时刻仍然“非常遥远”，但他仍然有很高的支持率。据川普说，自从他不再担任总统以来，他的支持率甚至有所上升，因为大家都看到了国内的税收是如何上升的，人们是如何失去工作的。他还说，虽然他不再是美国的领导人，但他最怀念的是帮助那些他为之去当总统的人。
 
-Former chief of staff, Acting Secretory of Defense
+川普还透露，共和党赢得参议院的机会“非常大”。这位前总统愿意支持共和党候选人，因为他认为，“几乎所有他支持的人都会赢”。
 
-前代理国防部长幕僚长
+3月，这位前总统已经表示，他准备在2024年竞选美国总统。在今年12月的总统大选失利后，川普立即承认了他在2024年有机会竞选。他说，“这四年很精彩。我们正在努力争取多四年。如果没有，我们四年后再见。”
 
-Well, those are three perfect examples of where to start
+美国参议院2月13日投票未通过对川普的弹劾。他被指控于1月6日在国会大厦外煽动抗议。当天，不同意总统选举结果的人冲进了大楼。
 
-好的，这是从这里开始的三个完美的例子
+抗议活动后，美国当局至少立案25起国内恐怖主义案件。随后，拘留者被发现持有枪支和爆炸物，川普被指控为“煽动骚乱”。
 
-Russia, China, and Iran
+几天后，推特以“有进一步煽动暴力的风险”为由，永久封杀了川普的账号，。
 
-俄罗斯、中共国、和伊朗
+参考链接：
 
-Look,  Joe Biden when he ran he said
-
-看, 当乔·拜登竞选时说
-
-his team is gonna be so experience,
-
-他的团队将会是很有经验
-
-so stack on national security matters
-
-在国家安全上还有很丰富的经验
-
-that they would hit ground running
-
-他们将一路快马加鞭
-
-that’s what he said
-
-那是他所说的
-
-So, yeah, we gave him  three months for his presidency
-
-所以，是呀，我们给了他三个月的总统任期时间
-
-to install a diplomatic effort
-
-在外交上进行努力
-
-and foreign policy that works in China, in Russia, in Iran
-
-和在中共国，在俄罗斯，和在伊朗可行的外交政策
-
-I don’t think he’s still call out genocide that’s going on in Xinjiang
-
-我不认为他仍对在新疆发生的种族灭绝事情谴责
-
-I don’t think the sanctions effort that he’s making
-
-我认为他没有采取制裁措施
-
-or anything more than public headline political hay-made
-
-或除了政治头条新闻之外的任何努力
-
-and as for Iran he’s made it very clear
-
-至于伊朗，他说得很清楚
-
-that he wants them back the negotiating table for the JCPOA
-
-他希望他们返回联合全面行动计划的谈判桌
-
-even though the American public and the world
-
-即使美国公众和世界
-
-now knows Iran already blew through the nuclear requirements to restrictions
-
-现在知道伊朗已经破坏了核武器要求的限制
-
-that they were put under by the world
-
-他们被世界所唾弃
-
-so they’re not gonna listen to us anyway
-
-所以他们无论如何也不会听我们的
-
-and they are all as you said
-
-他们都是就如你所说的
-
-successfully testing Joe Biden from Putin, (coughing –  excuse me)
-
-成功地考验了乔-拜登，从普京，（咳嗽—对不起）
-
-to the ayatollah, to Xi Jinping in China
-
-到阿亚图拉，再到中共国的习近平。
-
-and there is no concrete policy that Joe Biden has laid out
-
-而且乔·拜登并没有制定具体夯实的政策
-
-I wish there was that we could have a more substantive discussion
-
-我希望我们可以进行更实质性的讨论
-
-but he’s probably just waiting for the New York Times
-
-但他可能只是在等待《纽约时报》
-
-and the Washington Post to tell him what to do next
-
-和《华盛顿邮报》告诉他下一步该怎么做
-
-I can’t recall the presidency that ever was establishing foreign policy based on the media
-
-我不记得曾经有总统要依据媒体的指导制定了外交政策
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接: [https://twitter.com/realamvoice/status/1384182504450572289?s=24](https://twitter.com/realamvoice/status/1384182504450572289?s=24)
-
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Ali
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-
+[https://www.rbc.ru/rbcfreenews/607e6e289a794707ef29d525](https://www.rbc.ru/rbcfreenews/607e6e289a794707ef29d525)
 
 0

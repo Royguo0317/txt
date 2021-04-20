@@ -1,32 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】风已成眠
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1119664/)
+## 川普评估他与普京的关系
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1119692/)
 
-**——2020年秋看林风眠画展而感**
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-香草山配音组：Swr拥抱太阳
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Snipaste_2021-04-20_18-25-53.jpg)[newrepublic.com](https://newrepublic.com/article/136635/donald-trump-cant-stop-praising-vladimir-putin)
+04月20日，美国前川普总统在接受福克斯新闻电视频道采访时说，俄罗斯领导人普京喜欢他，他认为这是相互的。
 
-放下扇子，仕女的眼里藏不住秋色
-你如一方水墨，沉淀着通透的秋水
-轻纱披肩，白鹭起舞，风似有似无
-你用一张白纸吐纳云雾，如梦如幻
+“我和普京总统相处得很好，我喜欢他，他也喜欢我。”川普说。按照他的说法，“这是好事，不是坏事”。
 
-文字版全文：[【香草诗词汇】风已成眠](https://gnews.org/zh-hans/866164/)
+去年9月川普表示，他认为与普京建立正常关系没有问题。当时，他指出，他一直被迫讨论俄罗斯而不是其他外交政策问题。
 
-发稿：正义的小新
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2.jpeg)
-**更多资讯，更多关注**
+同时，在2020年秋季美国总统大选前不久，川普提出，普京更希望看到民主党候选人乔·拜登成为该国下一任总统。
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+川普在2016年总统大选中获胜后，美国民主党怀疑他与莫斯科勾结。特别检察官罗伯特·穆勒（Robert Mueller）的委员会调查此事后发现，川普和俄罗斯之间没有任何联系。
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+参考链接：
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+[https://www.rbc.ru/rbcfreenews/607e73eb9a79470a3453bc09](https://www.rbc.ru/rbcfreenews/607e73eb9a79470a3453bc09)
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1
