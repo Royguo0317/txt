@@ -1,161 +1,90 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【DC每日大中华时事】港府专家对接种疫苗后感染新冠病毒事件不感惊讶 2021.04.20
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1119376/)
+## 美国的民意已经开启&nbsp; 美国人必须灭共的11个理由
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1119465/)
 
-编辑：星空無垠 / 作图：中华之光，hans文玄
-![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/大中华时事-20-1024x576.jpg)
-#   墙国妄语每日驳
+**摘要：郭先生在2021年4月11日的直播中复述了他在开会的时候给美国人例举的11个他们必须灭共的理由，并透露美国军方已经有数据表明80%美国人要找中共国算账，70%美国人认为美中必有一战。**
 
+**美国的民意已经开启****  ****美国人必须灭共的****11****个理由**
 
+**The Eleven Reasons For the Americans to Take Down the CCP **
 
+美国一旦是民意开启，大家记住我说的话啊，一旦美国民意认为你这个国家你跟我是为敌的、你是我的敌人的时候、竞争对手的时候、你影响我经济利益的时候，就破坏了我的资本主义的精致的利己主义的底线的时候，你和我的意识形态也就是信仰和对人的态度完全相反的时候，再加上能源。
 
+Everyone please remember what I say here. [See what will happen] once the public opinion in the United States is whipped up, and once people believe that your country is my enemy and competitor, and that you touch my economic interests, hurt my bottom line, which is capitalism’s exquisite egoism, and that your and my ideologies are completely opposite to each other in terms of beliefs and attitudes towards the mankind. And what’s more, you’ve touched my energy.
 
-### 04.20 环球网 约翰逊推迟访印后，印媒担心：菅义伟会取消吗
+现在又多了什么战友们知道吗？多了一个，你看，能源是国家经济基础，过去的战争都是地理，为了土地，美国人不至于；然后信仰，现在和美国人对着干——它要杀神、杀基督、杀天主、杀穆斯林、杀佛教，跟美国这个信仰是完全是相反的。
 
+My fellow fighters, you know, now there is the energy problem on the top of everything. Energy is the foundation of a country’s economy. In the past, wars were all about geography and land, but that’s not a big problem for Americans. Now, the CCP fights head to head with the Americans on beliefs by killing God, the Christ, the Lord, Muslims, and Buddhists. It’s totally against the belief of Americans.
 
+经济——我偷你的科技、我偷你的技术、我不付你知识产权。什么？大家一看就拉出来了。科技是人类的未来、是国家的安全基石。中共完全偷你的，还不付钱，还威胁你必须给我到中国投资企业。是美国国家未来的威胁吧？
 
+In terms of economy, I [the CCP] steal your technology, and I don’t pay you for intellectual property. What does this mean? You will see that technology is the future of mankind and the cornerstone of national security, but the CCP steals your technology without paying any money and threatens you that you must give me [the CCP] technology if you want to invest in China. Should this be counted as a threat to the future of the US?
 
+第二块，能源——它要抢夺马六甲海峡，包括了吉布提、非洲、中东非。对美国是经济上安全又受影响了吧？——经济。
 
-环球网报道】英国首相约翰逊19日取消下周访问印度计划，几小时后英国又将印度列入旅行红色清单。《印度教徒报》在19日的一篇报道中列举了这些事实后，似乎又对日本首相菅义伟是否会取消访印“担心”起来。
+The second [threat] is energy. It [the CCP] wants to seize the Strait of Malacca, including Djibouti, Africa, and Middle East Africa. Does this impact America’s economic security? So this is economy.
 
-约翰逊办公室当地时间19日说，由于印度新冠肺炎确诊病例激增，约翰逊已取消下周访问印度的计划。约翰逊的办公室还说：“他们（即两国领导人）将保持定期联络，并期待在今年晚些时候会面。”值得注意的是，同一天，英国决定将印度加入限制国际旅行的红色清单。
+第三条，太空——二战之前没有太空。太空影响了地球安全，美国绝对的安全。现在中共已经在太空上可以随时和美国决一死战，绝对不是美国占多大便宜的问题，肯定最终美国赢，但美国要损失巨大。在损失和死亡、赢的问题上，只要美国有损失，美国就算输了——太空完了吧？
 
-“考虑到印度发生的事情，那里的疫情情况，我认为推迟（访问）是明智的，”据《印度教徒报》报道，约翰逊对记者使用了“推迟”一词。他称，虽然通过视频会议举行峰会“令人沮丧”，但他希望在“情况允许时”会见印度总理莫迪，他还对疫情危机中的印度“深表同情”。
+The third [threat] is space. There was no such thing as “space” before World War II. Space affects the security of the earth, and the security of the US, absolutely. Now the CCP can fight the United States to death at any time in space. It is definitely not a question of how much advantage the United States will have over the CCP. America will definitely win in the end, but it will suffer huge losses. As long as the United States has any losses or death, it would mean a loss to the US and space will be over.
 
-《印度教徒报》称，菅义伟原定于在约翰逊之后访问印度，但现在是否能成行已经不明确。
+第四条，大家看到了，你对整个人类的宗教和信仰已经彻底的干掉，你要当神，你要代替神。
 
-此外，报道还列举道，包括卢旺达总统卡加梅、丹麦总理弗雷泽里克森和澳大利亚外交部长佩恩在内的外国政要的访印计划也都在前几周取消了。
+Fourth, everyone has seen that you, CCP, have completely wiped out all religions and beliefs of the entire mankind and you want to be a god, and you want to replace God.
 
-近期印度新冠病例暴增。《印度时报》19日消息称，印度单日新增确诊病例连续四天超过20万例，18日当天新增确诊病例将近27万例。根据约翰·霍普金斯大学统计数据，截至北京时间20日上午11时，印度新冠确诊病例已超过1506万例，死亡病例超过17.8万例。
+最后，你要看到你破坏我在世界的领导地位。别说什么海陆文明、什么海洋文明，扯淡的事儿。现在你几个，中、俄、朝、伊，现在土耳其也尝了巴基斯坦尝尝欲试了，你这五个邪恶联盟、五个流氓国家，你要对付我。行了，这又出来了吧。
 
+Finally, you want to damage my leadership in the world, then regardless of maritime or land-based, continental civilization, [I will destroy you]. Now a few of you, China, Russia, North Korea, Iran, and Turkey (Pakistan also wants to give a try) – the alliance of five evil countries, five rogue countries – want to go against me. Well, here’s it again.
 
+现在又发生了一个最大的俩事，叫什么？——冠状病毒。冠状病毒是什么？最后这个事——种族大屠杀、反人类罪。
 
+Now the two biggest things have happened. What are they called? Coronavirus (tell me what is coronavirus) and genocide – the crime against humanity.
 
+咱把这几天这六条大家去横向地放在这儿的时候，你告诉我美国的民意现在是多少？美国民意现在不是60%，现在的美国军方情报人员：美国超过80%的人要找共产党算账 ，69%到70%的人都认为跟老共要有一战。美国的民意和美国的一切都是要跟着美国的两个核心：意识形态、经济利益。现在又多了这四条：冠状病毒、种族大屠杀、反人类罪。
 
-***简评：看着别人的行动，只能再边上酸溜溜的说风凉话！这是世界联合围剿的布局，是对付中共的表现！依托病毒超限战，还在宣扬别人死亡多少例，殊不知对这每条死亡生命的追责，中共无论如何都是逃脱不了的！！别说八国联军，八十国联军都会赶来的！！！***
+When the six things are put together, you tell me what the public opinion of the United States is now? It is not 60%, rather, based on the current US military intelligence personnel, over 80% of Americans want to hold the CCP accountable, and 69% to 70% believe that there will be a war with the CCP. The public opinion and everything else in the United States follows the two core things: ideology and economic interests. Now there are four more things: coronavirus, genocide, and crimes against humanity.
 
+我说到这的时候，我给这会上的人说，我说：“你告诉我共产党应不应该灭？共产党会不会被灭？” 我说现在你去看中国的现在这个胡锡进：“我们要把美国打回到农村去，我们要把它打回到石器时代 。”那叫什么张局张召忠，这所有人的讲话跟美国人说“我要把你美国打到农村去，我要用导弹雨把你整个东南亚军事基地全部消灭”。
 
+After I said all these things, I asked the people at this meeting, “Can you tell me whether the CCP should be destroyed? Will the CCP be destroyed?” I said, “Now you should go to watch what Hu Xijin said in China – ‘We ought to defeat Americans and send them back to their farmland. We ought to send them back to the Stone Age.’ Also watch what the guy called Zhang Zhaozhong (a Chinese military theorist at the PLA National Defense University) said. All these people have shouted to the Americans, ‘I want to defeat Americans and send them back to their farmland, and I want to wipe out your entire military base in Southeast Asia with our missile rain.’ ”
 
+然后现在党内人现在把习大神捧成神，说必将收复台湾，必须打台湾。那么，冠状病毒坚决不是我们干的，是美国干的。马六甲、苏伊士运河，一个船接一个船地坏，你将出大问题。
 
+I continued, “And now the party members praised Xi as the great God Xi and said that Taiwan must be regained and Taiwan must be defeated. And, the coronavirus was definitely not made by us, rather it was made by the United States. In Malacca and Suez Canal, you will see ships broken down one after another. Then you will encounter big problems.”
 
-###  
+然后美国的社交媒体现代武器和传统媒体，我绝对没人敢说我半个不字，然后美国的三权——国会、白宫、司法领域已经被我控制。这些不是我说的吧，我也编不出来吧。郭文贵是骗子，我能骗，我要是能把这骗出来，我也是成功的骗子了，我也不就是流氓的骗子了，这是不是事实啊？
 
-### 04.20. 环球时报 意欲何为？美媒炒作中美军机同日现身南海，美军4架F-16满挂空空导弹
+“On the social media, which is a modern weapon, and traditional media in the United States, no one dare to say any negative thing about me, not even a half negative word. And the three branches of the United States – Congress, the White House, and the judicial system are totally under my control.” I said, “These are not my words. I can’t make them up. I, Miles Guo is a liar, so I can lie, okay, but if I can make up those stuff, I would be a successful liar, and I would not be called a rogue liar anymore. Is this true?”
 
+所以我跟当时开会讨论的人，我说我们用最简单的历史和逻辑回到了希特勒时代。希特勒的当时有几个标志性的事件，最重要的事件，他从跨过莱茵河撕毁当时的一战协议——《凡尔赛协议》，到1935年的3月5号、1936年的3月6号，跨过莱茵河的几十万大军，干掉法国，攻击英国，然后攻打莫斯科。
 
+So I told the people who participated the meeting, “Let’s look at this using the simplest logic and comparing with the history in the Hitler era. Hitler had several iconic events at the time. The most important event was that he crossed the Rhine and tore up the World War I agreement, the “Versailles Agreement”, and from March 5 in 1935 to March 6 in 1936, hundreds of thousands of troops crossed the Rhine, defeated France, attacked Britain, and then attacked Moscow.”
 
+我说：“这些事情跟今天的中共和从中国的开始《中国不高兴》、《中国可以说不》、《到厉害了，我的国》、战狼外交、冠状病毒、影响操控美国大选、干掉香港、撕毁中英协议，现在威胁英国、日本、印度的未来，用整个马六甲海峡要让他们跪下，向中国人说求中国，求中共。”
 
+I said, “On the top of these things, you look at today’s CCP. It started from publishing the books, *Unhappy China*, *China Can Say No*, and *Amazing China*, to the “war wolf” style diplomacy, the coronavirus, manipulating the US election, taking over Hong Kong, tearing up the Sino-British Joint Declaration, and now threatening the future of the United Kingdom, Japan, and India, using the entire Strait of Malacca to make them kneel down and beg the Chinese by saying “Please, I beg you, China, and I beg you, the CCP.”
 
-美国媒体最新披露，于4月12日前往南海的4架美国空军F-16战斗机都是以满挂空空导弹的状态执行任务，还添油加醋称当天解放军也“创新高”地派出25架次军机前往南海，鼓吹美国空军的此次行动凸显了在重大危机期间的战力投射能力。
+然后夸张到现在是中国有五亿陆军横扫地球，千架歼-20横扫世界寸草不生，太空中中国可以在几十秒内将太空的所有的全世界布置的卫星武器通通给你拿下；美军基地在三小时内在东南亚全部给你摧毁，核潜艇随时在纽约曼哈顿钻出来把曼哈顿炸平、把美国美东全部给扫空；中共做好了牺牲十亿中国人，中国人死十亿，中国还是第二大人口国。
 
-美国“动力”网站“战区”专栏4月19日报道称，最新曝光的照片证实，于4月12日前往南海的4架美国空军F-16战斗机每架机都满载了6枚空对空导弹实弹。
+“And what’s more absurd is that China claimed that it had an army of 500 million soldiers to sweep the entire earth and thousands of J-20 jets so as not to leave a single inch of grass alive in the world; China can shoot down all the satellite weapons deployed by countries all over the world in space within tens of seconds and destroy all the US military bases in Southeast Asia in three hours; its nuclear submarines can emerge in Manhattan at any time to blow up Manhattan and wipe out all East America; and the CCP is ready to sacrifice one billion Chinese people, because even with a billion’s casualty, China would still be the No. 2 most populated country.”
 
-*![]()![](https://rs1.huanqiucdn.cn/dp/api/files/imageDir/c932a08e53074c66a74e30c67344b12cu1.png)美媒曝光的美国空军F-16战斗机新照，可以看到该机的一侧机翼挂载了3枚空空导弹。*
+我说这些不是我说的，不是“郭骗子”说的，也不是“郭三秒”说的。还有，还有，我在这儿在今天会上说的话，我说了一共十一条。没有人一个人吱声，我说话没有人吱声，我说完十一条，一个人吱声都没有。
 
-报道称，这些照片是由一名日本的摄影师拍摄并发布在社交媒体上，可以看到每架F-16战斗机上都装备有5枚具备超视距打击能力的AIM-120C-7型先进中程空对空导弹和1枚AIM-9“响尾蛇”空空格斗导弹。而在每架战斗机的机腹下方，还携带有一具AN/ALQ-184“自卫式电子对抗吊舱。
+I told them, “None of these things were said by me, nor by Guo Liar or Guo the Three Seconds.” At today’s meeting, after I told them all the eleven reasons, no one uttered a word. No one uttered a word after I spoke, none of them.
 
-报道认为，所有这些武器都是实弹，这是一个比较罕见的景象，尤其是出现在日本上空。这表明这次飞行不仅仅是一次简单的远程训练任务，相反，这是向中国军方发出“信号”，甚至可能是一次应急行动。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=6072f7c36e11a756eddfaf32](https://gtv.org/video/id=6072f7c36e11a756eddfaf32) (54:13-1:01:52)
+鸣谢：感谢万物归一、&lt;文V&gt;、贝贝、西林1、YIMING（文鸣）、山川异域 提供中文文本于 [https://www.gnews.org/zh-hans/1084679/](https://www.gnews.org/zh-hans/1084679/)
 
-报道称，这些照片拍摄于4月17日，照片中的4架F-16战斗机曾于4月12日前往南海开展飞行活动，在当地时间17日下午3点左右降落在了横田空军基地，可能是进行加油，随后又在当天下午5点起飞。然后这些战斗机返回了三泽空军基地，这是它们的部署地。
+* * *
 
-目前还不清楚这些战斗机在4月12日执行飞行任务时是从哪里起飞的，可能是从位于冲绳的嘉手纳空军基地。冲绳岛上部署有大量美国空军部队，这里的位置更靠近南海。但尽管如此，美国军机想从这里前往南海仍需要加油机的支持。根据飞行跟踪数据显示，当天在台湾以南的空域至少有4架美军KC-135加油机在活动。这4架F-16战斗机在进入南海之后，就从“罗斯福”号航母上空飞过。
+字幕：【Rock小哥】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-*![]()![](https://rs1.huanqiucdn.cn/dp/api/files/imageDir/c4d6d5be473062724a712dbd70cda018u1.png)美国太平洋舰队发布的F-16战斗机飞越“罗斯福”号航母照片，可以看到每架战斗机挂载了6枚空空导弹。*
-
-在分析完美军F-16战斗机在南海的活动后，“战区”的报道又扯到了解放军军机4月12日在南海的飞行活动上。报道称，当天共有25架次解放军军机进入台湾西南“防空识别区（ADIZ）”，解放军军机以近乎直线的方式前往南海东北部，然后掉头返回，这是一种更为典型的战术行动。尽管台军经常出动战机和使用防空导弹系统应对这些事件，但美国空军战机也出现在这一空域并不寻常，尤其是这些战斗机还是来自日本北部的三泽空军基地。
-
-“战区”认为，美国空军战斗机的现身明显是为了配合“罗斯福”号航母的行动，而不是对解放军军机在该空域飞行活动的直接回应。尽管如此，此次行动凸显了在重大危机期间，美国如何将陆基空战力量投射到包括台湾周边在内的地区。
-
-报道称，尽管三泽空军基地F-16战斗机的部署地点距离南海很远，但它们仍在该地区的战略平衡中扮演中重要角色。为了应对印度洋-太平洋地区可能出现的情况，美国空军第35战斗机连求租的两个F-16中队——第13战斗机中队“黑豹”和第14战斗机中队“武士”必须为任何可能发生的情况做好准备。
-
-报道还提到，中国并不是“唯一的威胁”，三泽空军基地的F-16战斗机的责任区域覆盖面积超过1亿平方英里，包括针对朝鲜和俄罗斯，这些部队还定期参与美国中央司令部的任务，与“伊斯兰国”作战。
-
-针对美军在中国周边的活动，中国外交部发言人多次表示，个别域外国家从一己私利出发，频繁炒作东海、南海有关问题，甚至派遣大规模先进军舰、飞机进入相关海域，推动军事化，威胁地区和平稳定。中方对此坚决反对，敦促有关国家认清地区发展的主流和大势，尊重地区国家维护有关海域和平稳定的努力。
-
-
-
-
-
-***简评：看清楚了吗？美军的实弹配备，是冲着实战准备的！一切都在等待着一个开火的时机。对台湾不断的骚扰，促使美军履行公开承诺，捍卫亚太地区和平，坚定站在正义一方，对付中共的武力威胁。面对这样的阵势，崴脚部只能喊喊口炮“坚决反对”了吧！！真希望墙国能够和美军硬怼啊！！！***
-
-
-
-
-
-
-
-### 04.20. 第一观察 | 总书记考察清华，透露哪些教育“风向标”？
-
-
-
-
-
-美育、创新、体育……这几个关键词，从一个侧面，展现出习近平总书记对教书育人的重托，对莘莘学子的期许。
-
-在清华大学即将迎来建校110周年校庆之际，习近平总书记19日来到清华大学考察，先后视察美术学院、成像与智能技术实验室、重点教学科研成果展示、西体育馆，并同师生代表座谈。
-
-清华大学的发展历程，是我国高等教育发展的一个生动缩影。在这个关键时期，跟随总书记的考察脚步，可以更好地理解全面育人的教育理念和教育现代化的根本任务
-
-美育是审美教育、情操教育、心灵教育，能提升学生的审美素养、激发创造活力。从细处讲，美育可以引导青少年发现美、理解美、追求美，让美的精神融入日常生活；从大处说，美育关乎青少年人格的养成、灵魂的塑造，关乎人民群众坚定文化自信。
-
-“美术、艺术、科学、技术相辅相成、相互促进、相得益彰”“要增强文化自信，以美为媒，加强国际文化交流”。把美的教育和传续作为民族发展的重要基石，正是总书记的初衷。
-
-“成像与智能技术实验室”和“重点教学科研成果展示”，从这两个名称，就透露出浓浓的“科技味儿”。
-
-勇于创新创造是习近平总书记对广大青年的殷殷期望。总书记强调，青年是社会上最富活力、最具创造性的群体，理应走在创新创造前列。
-
-面对中国科技大学、南昌大学国家硅基LED工程技术研究中心实验室的青年学子，总书记留下过“祝大家创新愉快”等真挚寄语。
-
-创新，是解决卡脖子问题的根本出路，是实现高质量发展的关键一招，也是满足人民对美好生活向往的必然要求。
-
-在开启全面建设社会主义现代化国家、实现第二个百年奋斗目标的新征程中，进一步加强创新人才教育培养，高校肩负着神圣的使命。
-
-正如总书记在此次考察中强调，重大原始创新成果往往萌发于深厚的基础研究，产生于学科交叉领域，大学在这两方面具有天然优势。要保持对基础研究的持续投入，鼓励自由探索，敢于质疑现有理论，勇于开拓新的方向
-
-每年五四青年节前后，不管有多忙，习近平总书记要将时间留给广大青年。今年也不例外。
-
-清华大学建校110周年即将来临，再过十几天就是五四青年节，总书记在考察中向清华大学全体师生员工和海内外校友致以节日的祝贺，向全国广大青年学生致以诚挚的问候。
-
-百年大计，教育为本。今年是中国共产党成立100周年，我国开启了全面建设社会主义现代化国家新征程。习近平总书记强调，党和国家事业发展对高等教育的需要，对科学知识和优秀人才的需要，比以往任何时候都更为迫切。
-
-对于教师，习近平总书记强调“三要”：要成为大先生；要研究真问题；要坚定信念。
-
-对于青年，习近平总书记语重心长，当代中国青年是与新时代同向同行、共同前进的一代，生逢盛世，肩负重任。他寄语青年十六个字——爱国爱民、锤炼品德、勇于创新、实学实干。
-
-
-
-
-
-***简评：混来博士头衔的一尊，在这时候又去清华，是想传达什么讯息？马屁精的文章让人看到，是要继续培养完全被洗脑过，完全言听计从的新韭菜啊！什么科技创新，都是偷盗。世界看清了中共面目，就被“卡脖子”。还在忽悠人们“两个一百年”？怕是已经不会有了！！觉醒的人民不再会为了一个党国不分，拿人民不当人的独裁政权再去卖命的！！！***
-
-
-
-
-
-#   港台资讯
-
-
-
-
-![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image0-4-1024x576.jpg)
-
-
-
-![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image1-3-1024x576.jpg)
-
-
-
-![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image2-1-1024x576.jpg)
-
-
-
-
-*编辑：星空無垠*
-
-*审核：星空無垠*
-
-*发布：文顾*
- 
-0
++1

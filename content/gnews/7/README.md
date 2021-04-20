@@ -1,46 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】香港民主派人士获刑，各界谴责中共
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1119429/)
+## 【香港要闻】港府豪掷近亿公帑游说推翻《人权法案》，仅一人「支持」
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1119468/)
 
-配音：香草山录音组 蒙古鸿雁
+编撰：天灭中共
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+据英文网媒HKFP今日（19日）的独家调查报导，自2014年，美国国会首次提出《香港人权与民主法案》（简称《人权法案》）起，香港特区政府在2014年至2020年期间，透过香港贸易发展局，向9间美国的游说公司支付至少8400万港币，聘用说客进行「政治活动」。其中一项「活动」，就是委托该公司安排与美国国会议员会面，游说他们对《人权法案》投反对票。
+
+**7年时间，6次会面，近亿花费，1票支持**
+
+2014 年香港占中运动期间，美国国会及行政当局中国委员会已就香港问题首度提出《人权法案》第一版，并要求国务卿恢复每年就香港情势向国会提交《美国－香港政策法》报告，以及要求总统向国会保证，香港享有足够自治来支持所给予的特殊待遇。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4208.jpg)图片来源：美国司法部FARA备案
+根据HKFP调查的资料显示，占中运动结束时，贸发局已经委托游说公司，希望就法案内容，安排与美国政客会面。当时受托的游说公司FTI Consulting，在2014年12月2日安排了3场会面，与会的政客分别是时任民主党参议员 Joe Donnelly、Tom Udall 和时任共和党参议员 Bob Corker 会。 2015年2月11日，该公司再次安排与伊利诺伊州众议员 Daniel Lipinski 会面，讨论《人权法案》内容。
+
+2019 年反送中运动期间，游说公司亦曾多次安排与美国议员会面。 9 月12 日，即是在美国参众两院的外交关系委员会投票表决《人权法案》的一个星期前，游说公司Venable LLP 的合伙人，前密歇根州议员Bart Stupak，安排香港驻美国总经济贸易专员麦德伟（Eddie Mak） 跟加州民主党众议员Alan Lowenthal 进行会议。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4207.jpg)（麦德伟曾于2019年9月12日，与Alan Lowenthal（右）会面，图片来源：苹果日报）
+根据所披露的会面内容显示，当时两人讨论的主题就是美港关系，以及《人权法案》。
+
+2019 年9 月17 日，正当国会及行政当局中国委员会就香港问题举行听证会之际，Stupak 再次代表贸发局发出3 封电邮，为麦德伟安排跟当时的民主党纽约州众议员、众议院外交关系委员会主席Eliot Engel 会面。
+
+9 月26 日，即是法案获两院外交关系委员会通过的一日后，游说公司再次安排了跟加州民主党众议员Alan Lowenthal 及众议院外交关系委员会主席Eliot Engel 会面，但两人最后都在表决时投下赞成票。
+
+众所周知，《人权法案》最终获美国参议院一致通过，众议院以417票对1票的压倒性赞成通过。换言之，港府近亿元的公帑花费犹如「倒钱入海」，7年的政治游说只换得一个人的「支持」。
+
+笔者评论：
+
+其实，透过代理人做政治游说是合理而且合法的，至于游说失败或者成功，本来就是政治博弈，并不能单纯以金钱多少来衡量。
+
+所以这件事最关键的地方，不是特区政府行事有多失败，而是反映出林郑政府极度虚伪的双面人作风。
+
+美国通过《人权法案》的目的，就是为了警示那些，试图破坏香港自治的人会受到制裁。笔者记得，《人权法案》通过后不久，林郑月娥、李家超等一众政府高官就被制裁，但当时他们红光满面，言之凿凿的对着镜头说，「对被制裁感到光荣，绝不会被吓倒，香港问题是中共内政，谴责美国粗暴干涉」等等。
+
+原来暗地里，这班「爱党爱港」的官员如此害怕被制裁，从法案酝酿之初，一直到尘埃落定，7年间，一直默默耕耘，坚持不懈，想尽办法。嘴里说爱党，身体很诚实，所幸「天有眼」，自作孽不可活。
+
+另一方面，民主派阵营公民党的杨岳桥、郭荣铿等以立法会议员的身份公务出访，在同一时间，以同一个目的，见同样的美国政客，就是「颠覆国家政权」、「勾结外国势力」 ，港府滥用一切公权力，取消他们的参选资格，砌词污蔑他们的罪行，最终将杨岳桥非法监禁，将郭荣铿逼走他乡。
+
+林郑政府对着中共两副面孔、对着港人双重标准，简直精神分裂。
 
 
+【以上观点仅代表笔者本人】
 
+资料来源：
+1、[HKFP：Hong Kong gov’t spent millions on failed lobbying bid to defeat Washington’s Human Rights and Democracy Act](https://hongkongfp.com/2021/04/19/exclusive-hong-kong-govt-spent-millions-on-failed-lobbying-bid-to-defeat-us-human-rights-and-democracy-act/)
 
+2、[HKFP：Inside the Hong Kong govt’s multi-million dollar US lobbying operation](https://hongkongfp.com/2021/04/19/inside-hong-kong-govts-multi-million-dollar-lobbying-operation-on-capitol-hill/)
 
-
-
-4月16日，十名民主派人士在香港两宗案件中分别被判刑。欧盟外交与安全政策发言人马斯拉里当天发表声明表示，“香港的事态发展使人质疑中（共）国是否有意愿履行其国际承诺，（这一做法）破坏其可信度，并会影响欧中关系。
-
-被判刑者包括李柱铭、何俊仁、黎智英、吴霭仪、何秀兰、李卓人、梁国雄、区诺轩、梁耀忠及杨森。他们的刑期由8个月至18个月不等，其中5人的缓刑期为8至12个月。这是继4月13日黄之锋和古思尧被判刑后，港（共）政府所作出的最新判决。
-
-
-
-**文字版原文：[【热点播报】香港民主派人士获刑，各界谴责中共](https://gnews.org/zh-hans/1110419/)**
-
-作者：纽约香草山健身部 Jack Li文阳
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+覆核：卡西欧 / 上传：天网灰灰
 
 +1
