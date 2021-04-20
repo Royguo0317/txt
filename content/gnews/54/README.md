@@ -1,12 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵先生直播：20210416G系列相关内容
-` 《爆料贵语--掀郭盖》NZ` [轉載自GNews](https://gnews.org/zh-hans/1119437/)
+## 2021年4月20日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1119539/)
 
-采集：滴水莲花 设计排版：空之灵
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/直播4-16封面.jpeg)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/直播4-16.jpeg)
-审核：玫瑰天空
-上传：糊糊文婴
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+
+4月20号啊：尊敬的战友们好．美中刚刚 想了环境天气的双休高潮后！共产党为什么又在这个病毒肆虐的时候．高调的开启BGY海南论坛，再再推出老妈咪．大老仟．王岐山出来公关？( (习大神，三天不学习，赶不上王副主席）让习大神，睡不着的人！都必须要这样的冒险使用说明了什么？
+
+[【2021年4月20日】文贵先生盖特原文](https://gtv.org/getter/607ee2cc8616c84f0ff1aed5)
+
+**喜联盟Gnews编辑部**
 
 0

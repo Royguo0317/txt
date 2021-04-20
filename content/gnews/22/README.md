@@ -1,131 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第211、212、213节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1119760/)
+## 不同疫苗交替接种是新一轮毒杀和甩锅行动！
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/1120130/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：DS
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2021.4.21-scaled.jpeg)
+中国疾病控制中心主任高福4月10日在四川成都一次研讨会上公开称中国疫苗的“保护率不是很高”，有缺点。高福11日对官方的《环球时报》表示，他的讲话被媒体“误解”。他解释说，他提倡的是通过优化接种程序和采用不同技术路线“序贯接种”来提升疫苗的有效率，例如调整剂次、剂量和接种间隔，采用几种疫苗交替的接种（序贯免疫）。高福说，疫苗保护率是保护你不得重症、死亡（不保护你不感染）。
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/T-18.jpg)youtube.com
-要点：G7国家中共的认知应包括，民主和人权的侵蚀，5G电信的安全性，反竞争行为，如知识产权盗窃、企业大规模补贴等政策和做法，掠夺性国际主权贷款。承认台湾是美国印太平洋战略的重要组成部分，增强台湾的自卫能力，特别是发展和整合反舰、海防、反装甲、防空、海战、先进指挥、控制、通信、计算机、情报等不对称能力，军事力量的监视、侦察和弹性指挥控制能力，积极推动台湾有意义地参与联合国、世界卫生大会、国际民用航空组织、国际刑事警察组织和其他国际机构。
+4月15日，卫健委发布第8版新冠肺炎诊疗方案说，由于接种疫苗后大多会产生抗体，因此新冠肺炎确诊诊断的抗体检测只适用于未接种疫苗者，这就直接说打了疫苗有了抗体，也会感染，疫苗白打！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/그림3.png)
+更深一层分析，既然明知有抗体也会感染，为什么国家还花钱派人给百姓接种呢？难道就是要给百姓注射病毒，等年老出现高血压高血糖等老年病时，激活病毒，使人发病，从而达到只让你交养老金但是领不到养老金的最高剥削境界？
 
-欲了解更多的內容，请看本节全文（仅供参考）。
+从高福的话和卫健委的文件，可以明确得结论：
 
-第211节 关于与七国集团（G7）国家就中共国问题谈判的国会意识
+1、只打国产疫苗，保护率不高，因此需要换疫苗！
 
-（a） 通常情况 – 国会认为，总统通过国务卿应与七国集团国家就有关经济和民主自由的事项启动一项议程，包括以下：
+2、打了疫苗，也不排除会感染，打不打没有区别！
 
-（1）贸易和投资问题及执行。
+以马帮的历史来看，即使有错误和不足，它也是百般狡辩，这一次为什么主动说自己的疫苗保护率不高呢？
 
-（2）为国际基础设施标准提供支持，包括2018年大阪G20峰会商定的标准。
+其实，国产疫苗已经出现大量副作用和接种以后反而感染的，只是因为媒体姓党，把与党有关的所有负面消息几乎全面屏蔽，因此从公开数据上看不到国产疫苗的问题。而在笔者周围和自媒体上，已经接触到不少接种疫苗后产生问题的，打疫苗后，很多人当天出现头晕、乏困，山东某酒店管理学院的学生已经接种第一针，有个女学生说不少人接种后犯困，山东某港务局职工打了疫苗后感染，北京一位老师打疫苗后第2天死亡。医生认为打疫苗后头晕就是中毒反应。
 
-（3）民主和人权的侵蚀。
+网上传播一张诊断书，是某男子打新冠疫苗后，出现不可逆转的阳痿。
 
-（4）5G电信的安全性。
+前期接种疫苗的人，已经大量出现副作用或感染新冠，想再欺骗民众接种疫苗已经不可能，尤其是体制内的人，已经抵制疫苗，中国疾病预防控制中心今年早些时候在浙江的一项调查发现，只有不到一半的医务人员愿意接种中国新冠疫苗，许多人担心疫苗的副作用。在新冠疫苗紧急使用中，愿意接种的人占比为42.46%，在新冠疫苗上市后的使用中，愿意接种的人占比为27.65%。就是说，打疫苗的效果不好，导致接种意愿大幅下降。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/그림2.png)
+因此才有砖家不得不公开承认国产疫苗保护效果不强，接种过程不能强制接种。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/그림1.jpg)
+但是马帮用毒疫苗灭掉大量人口的计划仍要继续执行，因此只能换个理由继续骗民众接种，国产的不行，可以换进口的嘛，还彰显党的恩情，收获民意。另外，可以安抚前期接种疫苗的人把希望寄托于进口疫苗，从而不会产生追责和维权的想法。等接种了外国疫苗（估计是美国疫苗），由于已经有上千万人接种，不论打哪国疫苗，必须会出现大量副作用和因接种而感染的人，这时则让外国疫苗背锅，平息民愤，国产疫苗的责任就可金蝉脱壳，同时，舆论引导美国阴谋论，通过树立外部敌人来聚拢国内民心，以此来应对即将到来的经济、科技脱钩造成的粮食危机、经济危机和政治危机甚至还有军事危机，估计那时会顺势采取管制手段，征收私人财产和粮食，计划经济、文革时代来临，经济崩裂，人民生活将断崖性陷入困境。
 
-（5）反竞争行为，如知识产权盗窃、企业大规模补贴等政策和做法。
-
-（6）不符《经济合作与发展组织》（OECD）和《巴黎俱乐部原则》（Paris Club）的掠夺性国际主权贷款。
-
-（7）国际影响力运动。
-
-（8）环境标准。
-
-（9）与不在G7中的志同道合的区域伙伴的合作。
-
-（原文只到此，似乎缺内容……）
-
-第212节 加强美台伙伴关系
-
-这是美国的政策-
-
-（1）承认台湾是美国印太平洋战略的重要组成部分；
-
-（2）推进台湾的安全和民主，作为大印度洋-太平洋地区持续和平与稳定，以及美国的重大国家安全利益的关键因素；
-
-（3）加强其根据《台湾关系法》（the Taiwan Relations Act）（公共法96–8）对台湾的承诺并按照“六个保证”和美国的“一个中国”政策；
-
-（4）支持台湾实施非对称防御战略，包括台湾整体防御概念中确定的优先事项；
-
-（5）敦促台湾增加国防开支，以充分利用其国防战略；
-
-（6）定期向台湾移交国防物资，以增强台湾的自卫能力，特别是发展和整合反舰、海防、反装甲、防空、海战、先进指挥、控制、通信、计算机、情报等不对称能力，军事力量的监视、侦察和弹性指挥控制能力；
-
-（7）酌情倡导和积极推动台湾有意义地参与联合国、世界卫生大会、国际民用航空组织、国际刑事警察组织和其他国际机构；以及
-
-（8）促进美国、台湾等志同道合伙伴之间的有意义的合作。
-
-第213节 台湾政府的待遇
-
-（a）通常情况 – 国务院和其他美国政府机构应与台湾民选政府在相同的基础上，使用相同的术语和协议，如同美国政府与其他外国政府进行的接触一样，尽管在台湾的美国协会在执行美国外交政策和保护美国在台湾的利益方面继续发挥支持作用，美国政府不得对国务院和其他美国政府机构的官员与台湾政府对口部门直接和例行互动的能力施加任何限制。
-
-（b） 实施规则 – 本款不应解释为恢复与中华民国（台湾）的外交关系或改变美国政府对台湾国际地位的立场。
-
-（3节完）
-
-对邪恶中共的认知，只有美国是不够的，G7包括其他文明国家，如果没有对这个恶魔有清醒的认识，魔就有空间，恶就有场所，它就会继续生存，所以除魔是全球性的任务。台湾则是一个与魔渊源最深，深受其害，牵连又多的地区，若不是文贵先生的及时爆料，国民党必会赢得大选，这对文明世界将是灾难性的后果。中共不会放弃对台湾当局蓝金黄的策略，台湾的危机并没有消除，所以，在台湾问题上，美国继续接受了文贵先生的建议，力挺台湾。
-
-原文链接：
-
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
-
-文字整理：
-
-SEC. 211. SENSE OF CONGRESS ON NEGOTIATIONS WITH G7 COUNTRIES ON THE PEOPLE’S REPUBLIC OF CHINA.
-
-(a) IN GENERAL. — It is the sense of Congress that the President, acting through the Secretary of State, should initiate an agenda with G7 countries on matters relevant to economic and democratic freedoms, including the following:
-
-(1) Trade and investment issues and enforcement.
-
-(2) Building support for international infrastructure standards, including those agreed to at the G20 summit in Osaka in 2018.
-
-(3) The erosion of democracy and human rights.
-
-(4) The security of 5G telecommunications.
-
-(5) Anti-competitive behavior, such as intellectual property theft, massive subsidization of companies, and other policies and practices.
-
-(6) Predatory international sovereign lending that is inconsistent with OECD and Paris Club principles.
-
-(7) International influence campaigns.
-
-(8) Environmental standards.
-
-(9) Coordination with like-minded regional partners that are not in the G7.
-
-SEC. 212. ENHANCING THE UNITED STATES-TAIWAN PARTNERSHIP.
-
-It is the policy of the United States—
-
-(1) to recognize Taiwan as a vital part of the United States Indo-Pacific strategy;
-
-(2) to advance the security of Taiwan and its democracy as key elements for the continued peace
-
-and stability of the greater Indo-Pacific region, and a vital national security interest of the United
-
-States;
-
-(3) to reinforce its commitments to Taiwan under the Taiwan Relations Act (Public Law 96–8)
-
-and the ‘‘Six Assurances’’ and in accordance with the United States ‘‘One China’’ policy;
-
-(4) to support Taiwan’s implementation of its asymmetric defense strategy, including the priorities
-
-identified in Taiwan’s Overall Defense Concept;
-
-(5) to urge Taiwan to increase its defense spending in order to fully resource its defense strategy;
-
-(6) to conduct regular transfers of defense articles to Taiwan in order to enhance Taiwan’s self-defense capabilities, particularly its efforts to develop and integrate asymmetric capabilities, including anti-ship, coastal defense, anti-armor, air defense, undersea warfare, advanced command, control, communications, computers, intelligence, surveillance, and reconnaissance, and resilient command and control capabilities, into its military forces;
-
-(7) to advocate and actively advance Taiwan’s meaningful participation in the United Nations, the World Health Assembly, the International Civil Aviation Organization, the International Criminal Police Organization, and other international bodies as appropriate; and
-
-(8) to promote meaningful cooperation among the United States, Taiwan, and other like-minded partners.
-
-SEC. 213. TREATMENT OF TAIWAN GOVERNMENT.
-
-(a) IN GENERAL. — The Department of State and other United States Government agencies shall engage with the democratically elected government of Taiwan on the same basis, and using the same nomenclature and protocol, as the United States Government engages with other foreign governments. Notwithstanding the continued supporting role of the American Institute in Taiwan in carrying out United States foreign policy and protecting United States interests in Taiwan, the United States Government shall not place any restrictions on the ability of officials of the Department of State and other United States Government agencies to interact directly and routinely with counterparts in the Taiwan government.
-
-(b) RULE OF CONSTRUCTION. — Nothing in this paragraph shall be construed as entailing restoration of diplomatic relations with the Republic of China (Taiwan) or altering the United States Government’s position on Taiwan’s international status.
-
-0
++1
