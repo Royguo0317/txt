@@ -1,43 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】二十年载载博鳌亚洲论坛风光不再
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1116956/)
+## 中共国汽车业复苏因芯片短缺蒙上阴影
+` Revelation119熙攘` [轉載自GNews](https://gnews.org/zh-hans/1116999/)
 
-纽约香草山写作二组  桃花水母
+[加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf](https://gnews.org/zh-hans/author/gnewscanada/)
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/chip-1.png)
+据《路透社》4月19日报道，汽车行业高管警告说，全球芯片短缺正在冲击中共国的汽车生产，危及这个世界上最大的汽车市场可能率先实现行业复苏的希望。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg](https://gnews.org/wp-content/uploads/2021/04/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
+世界各地的汽车制造商由于芯片缺货而不得不减少汽车装配线。一些芯片制造商则将导致这种情况的芯片制造延迟问题归咎于中共病毒大流行的恢复速度快过预期。
 
+希望在中共国销售超过400万辆汽车的中共国最大外国汽车制造商大众汽车集团(VOWG\_p.DE)表示，第二季度芯片缺货的情况并没有得到改善。
 
+大众汽车集团中共国区负责人史蒂芬·沃伦斯坦(Stephan Woellenstein)周日对记者表示，很难估量大众汽车每周甚至每月可能因为芯片短缺而损失的产量。他说，”这真的就像是在救火…在一些情况下，我们已经更换使用了另一种芯片，因而改变了供应商。”
 
-间隔一年的博鳌亚洲论坛线下会议将于4月18日至21日在海南博鳌如期举行。年会主题为“世界大变局：共襄全球治理盛举、合奏“一带一路强音”。
+宝马中共国区负责人高乐（Jochen Goller）在周一开幕的上海汽车展会上表示，芯片短缺给宝马的采购带来了压力，但是因为提前储备了足够的芯片，宝马并没有损失任何产量。他说，”这就像一场完美的风暴。”
 
-主题下将设置六大板块议题，包括“解读中国”、“把握世界变局”、“一带一路合作”、“拥抱产业变革”、“与新技术共舞”和“共享发展”。后疫情时代的全球化成为对话主题。伊利集团和阿斯利康分别与博鳌亚洲论坛签约，成为论坛2021年年会钻石合作伙伴。五粮液集团成为论坛2021年年会荣誉战略合作伙伴。
-![This image has an empty alt attribute; its file name is Picture1-41.png]()![This image has an empty alt attribute; its file name is Picture1-41.png](https://gnews.org/wp-content/uploads/2021/04/Picture1-41.png)
-博鳌亚洲论坛（BoaoForumforAsia–BFA，简称BFA）是一个非政府、非营利的国际组织，也是第一个总部设在中国的国际会议组织。该论坛由菲律宾前总统拉莫斯、澳大利亚前总理霍克及日本前首相细川护熙于1998年发起，2001年2月27日正式宣告成立并通过《博鳌亚洲论坛宣言》、《章程指导原则》等纲领性文件。
+尼奥公司(NIO.N)首席执行官威廉·李(William Li)周一对路透社表示，他预计芯片短缺对其第二季度的电动汽车生产将带来”比较大的影响”。
 
-海南博鳌为论坛总部永久所在地，号称29个发起国。2021年适逢博鳌亚洲论坛成立20周年，感觉中共国整个社会都兴奋起来了。博鳌亚洲论坛2020年因疫情停办。2021年如期举行所谓线下会议，议程发布参加者很多，但从当天会议报道来看，雷声大雨点小：会议简报两篇，会场消息六篇。
+去年中共国汽车销量超过2500万辆，在全球汽车行业受到疫情重创后，中共国为包括大众汽车和通用汽车(GM.N)在内的汽车制造商带来了一线希望。但中共国也是去年首次出现芯片短缺消息的地方。3月份，瑞萨电子(6723.T)在日本的芯片工厂发生火灾，使得这个问题变得更加严重。
 
-会议第一天，就发布了所谓的“重磅”和“旗舰”。所谓“重磅”，是《发布全球经济发展与安全 论坛大会释放积极信息》的报道，即博鳌亚洲论坛秘书长李保东，同湖南省委副书记乌兰、长沙市市长郑建新、联合国驻华协调员常启德、联合国难民署代理驻华代表陈蔚云、经济合作与发展组织驻华高级顾问海博一道，隆重发布博鳌亚洲论坛框架下，又一重要专题会议——全球经济发展与安全论坛大会。
+根据麦肯锡数据，2019年，汽车行业约占4290亿美元芯片市场的十分之一。恩智浦芯片(NXPI.O)、德国英飞凌(IFXGn.DE)和瑞萨是该行业的主要供应商。
 
-所谓“旗舰”，是指2021年度《可持续发展的亚洲与世界》、《亚洲经济前景与一体化进程》两份中英文版旗舰报告，牛皮吹得山响，什么“外资在中国聚焦”等。
-![This image has an empty alt attribute; its file name is Picture2-13.png]()![This image has an empty alt attribute; its file name is Picture2-13.png](https://gnews.org/wp-content/uploads/2021/04/Picture2-13.png)
-往年的论坛年会，国家主席、总理、政治局人员参加，今年湖南省委副书记都成了主角。中共国还能活多久，还能举办博鳌亚洲论坛多少次，我们拭目以待。
+包括日产汽车(7201.T)、福特汽车(F.N)和尼奥在内的汽车制造商都表示，由于芯片短缺，他们消减产量。
 
-参考：[博鳌亚洲论坛官网](https://www.boaoforum.org/)
+中共国汽车工业协会高级官员李少华表示，今年前两个月，芯片供应短缺使得中共国汽车产量减少了5%至8%。该协会预计，从第三季度开始，这一情况将有所缓解。
 
-编辑/审核/发稿：正义的小新
-![This image has an empty alt attribute; its file name is 4_April-1.jpeg]()![This image has an empty alt attribute; its file name is 4_April-1.jpeg](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpeg)
-**更多资讯，更多关注**
+因此，中共国汽车流通协会表示，预计中共国汽车库存将继续下降，部分车型的供应将无法满足市场需求。
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**评：**
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+美国与中共国科技与经济领域的脱钩已经是明确趋势，而由于中共国基本没有自己的高端芯片产业，以芯片为基本需求的中共国相关行业恐慌性地囤积芯片。这在一定程度上打破了全球芯片的供需平衡。加上由于中共病毒疫情影响导致的全球各地芯片制造减产，芯片短缺成为全球性问题。这给本已被中共疫情沉重打击的汽车业带来了二次伤害，使得复苏的希望蒙上阴影。
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+[原文链接](https://www.reuters.com/world/china/autoshow-chip-shortage-casts-shadow-chinas-auto-industry-recovery-2021-04-18/)
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**免责声明****: 文章仅代表作者观点。**
 
 0
