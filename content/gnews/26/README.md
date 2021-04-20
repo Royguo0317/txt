@@ -1,31 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普称对竞选总统的想法是认真的
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1119763/)
+## 慧眼看世界202104020（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1119750/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-编辑上传  银河
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Snipaste_2021-04-20_18-45-53.jpg)[nypost.com](https://nypost.com/2020/06/20/trump-campaign-blames-protests-media-for-modest-rally-crowd-in-tulsa/)
-04月20日，美国前总统唐纳德·川普称不排除在2024年竞选新一届总统的可能性。
 
-“我会告诉你，我正在认真对待它（参加下届总统选举的想法），不止是认真。但从法律的角度来看，我还不想传播这个消息，现在还太早。”川普说。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-同时，这位前白宫负责人指出，新选举的时刻仍然“非常遥远”，但他仍然有很高的支持率。据川普说，自从他不再担任总统以来，他的支持率甚至有所上升，因为大家都看到了国内的税收是如何上升的，人们是如何失去工作的。他还说，虽然他不再是美国的领导人，但他最怀念的是帮助那些他为之去当总统的人。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-9.jpg)
 
-川普还透露，共和党赢得参议院的机会“非常大”。这位前总统愿意支持共和党候选人，因为他认为，“几乎所有他支持的人都会赢”。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-10.jpg)
 
-3月，这位前总统已经表示，他准备在2024年竞选美国总统。在今年12月的总统大选失利后，川普立即承认了他在2024年有机会竞选。他说，“这四年很精彩。我们正在努力争取多四年。如果没有，我们四年后再见。”
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-10.jpg)
 
-美国参议院2月13日投票未通过对川普的弹劾。他被指控于1月6日在国会大厦外煽动抗议。当天，不同意总统选举结果的人冲进了大楼。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-11.jpg)
 
-抗议活动后，美国当局至少立案25起国内恐怖主义案件。随后，拘留者被发现持有枪支和爆炸物，川普被指控为“煽动骚乱”。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-11.jpg)
 
-几天后，推特以“有进一步煽动暴力的风险”为由，永久封杀了川普的账号，。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-9.jpg)
 
-参考链接：
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-9.jpg)
 
-[https://www.rbc.ru/rbcfreenews/607e6e289a794707ef29d525](https://www.rbc.ru/rbcfreenews/607e6e289a794707ef29d525)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-9.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-9.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-14.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-17.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-13.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-12.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-12.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-9.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-9.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/18-7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/19-6.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0
