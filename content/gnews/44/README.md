@@ -1,22 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共图谋以伊朗为跳板&nbsp; 控制中东&nbsp; 挑战美国和西方
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/1121262/)
+## 【墙内热搜】上海车展，特斯拉深陷维权门为哪般？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1121408/)
 
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/CBN_20210415_Archimedes.srt.txt)
-CBN新闻2021年4月9日：章家敦等中共国问题专家分析中共国和伊朗签署的合作协议对美国和世界的影响。该协议将在25年里向伊朗的银行业、电信通讯、交通，以及基础建设部门投入数十亿美元。章家敦先生指出中共一直明目张胆地从伊朗购买石油，公然违反对伊朗的制裁，使德黑兰政权绝处逢生，降低了美国和其他国家在这个地区的外交影响力，给这一地区的以色列和逊尼派阿拉伯国家造成不稳定。
+作者：纽约香草山健身部 Ivy001
 
-视频来源：[https://www.youtube.com/watch?v=mE6VtUM1xw8](https://www.youtube.com/watch?v=mE6VtUM1xw8) (3:51-7:35)
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-* * *
 
-听写 & 翻译: 【阿基米德】字幕：【V%】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-+1
+
+
+4月19日，上海车展特斯拉展台上，一位身穿带有“刹车失灵”字样白色T恤的女子爬上车顶“维权”，场面一时陷入混乱。针对这一事件，特斯拉回应，当事人是此前2月发生的河南安阳超速违章事故的车主。事故后车主不接受第三方检测，坚持要求退车。因其要求不合理，特斯拉表示不会妥协。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-378.png)图源网络
+
+同日下午，中共媒体新华社发表文章《谁给了特斯拉“不妥协”的底气》。4月20日，中共政法委长安剑在微信公众号也发表文章《特斯拉必须面对中（共）国客户的拷问：责任何在？担当何在！？》文章宣称，中共国是全球最大的汽车产销市场之一，也是全球知名车企争夺的重要市场。无论哪家车企，都必须对中共国市场有敬畏之心，诚恳接受消费者的监督。如果车企涉嫌“店大欺客”，有关部门也要加强监管。
+
+众所周知，因为刹车问题导致超速而要求全款退车，在全世界都是不合理的要求，没有任何一家车企会妥协。为什么中共国会歪曲事实，反说特斯拉是“店大欺客”呢？看看同场展出的所谓“华为第一车”，就不难找出原因了。这妥妥就是“偷到技术，打死师傅”的现实案例。像某个专家说的，“先把外国企业骗进来，再把技术学（偷）到手，然后一脚把外国企业踹开，自己上。”特斯拉现在到了可以被一脚踹开的时候了。如果特斯拉坚持不服软，后面的麻烦、罚款将会接连而来——所谓监管就是这个样子。这般的例子，在中共国也不是独此一家，类似的事件以前也发生在日本车企身上。
+
+由此可见，在中共的控制之下，没有任何一家外国企业能够在中国获得长远的发展和利益。如果想在中国正常地做企业，就必须灭掉CCP。否则，日本车企的昨天，特斯拉的今天，统统会发生于任何一家在中共国做生意的外国企业身上。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
+0
