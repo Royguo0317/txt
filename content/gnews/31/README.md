@@ -1,55 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】岸
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1121615/)
+## 马斯克:我不鸟SEC
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1121830/)
 
-配音：香草山录音组 Swr拥抱太阳
+字幕制作：DC农场字幕组 |翻译：DC农场字幕组
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+2020年8月份，马斯克因为发布了一条以特定价格私有化特斯拉股票的推特，导致他被SEC起诉证券欺诈。现在的SEC该干的不干，大量虚假中共股票在美国欺骗投资者，他们视而不见，却在CCP的诱导下欺负G系列的投资战友。DC农场字幕组翻译制作此视频，坚决支持前线战友的抗议活动！
 
 
 
-**岸**
-
-在水边打坐
-
-人声流走，流水入岸
-
-放空的身体注入冥想的夜空
-
-浪花朵朵，鹅卵石若隐若现
-
-吐纳夜的星子和银河的暗光
-
-于是，灵魂便飞了起来
-
-吞没沉下来的雾霾和黑暗
-
-
-
-**文字版原文：[【香草诗词汇】岸](https://gnews.org/zh-hans/866032/)**
-
-作者：香草山写作组 木白
-
-
-
-音频处理/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+发布：GLC
 
 0

@@ -1,51 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共邪恶的“13579”生化武器计划
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1120999/)
+## 【有声读物】中国人是普世价值的捍卫者
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1121487/)
 
-作者：纽约香草山翻译部 雪莲
+配音：香草山录音组 蒙古鸿雁
 
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-2021年4月17日，生化武器专家赛林博士发推，分析新冠病毒全球大流行，他说，“根据我对中共军民融合研究和发展项目地分析，其新基因工程冠状病毒和针对多种毒株异种疫苗的发展符合以下提到的中共生化武器发展计划，只是现实的毒株更多，且发放生化武器的时间比计划提前。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-376.png)塞林博士推特截图
 
-赛林博士的推文引用了郭文贵先生披露的中共“13579”生物武器计划。其中，1代表一种生化武器；3是指从2017年开始到2020年，用三年的时间释放这种武器；5即是保证这种武器可以延续五年；7意味着瘫痪七个国家（五眼联盟加上日本和印度）；9表示在病毒流行后的九个月推广疫苗，要挟全球。
 
-2020年9月5日，在班农作战室第371期直播节目中，郭先生第一次披露了中共对美国的生化武器袭击计划。郭先生说，他2017年在哈德逊研究所本应召开一场记者招待会，同时打算给美国FBI递交一份不但有计划内容大纲，而且有习近平签字的名为“13579生化武器计划”的文件。但由于中共的干涉，这次记者会被迫取消。由此，郭先生意识到中共对美国的渗透之深。为了保护给他提供文件的战友和他在大陆家人的安全，郭先生烧掉了这份绝密文件。2017年9月4日，郭先生在美国国家记者俱乐部召开记者招待会并提醒美国：“我在这里提醒美国、日本、欧洲和全世界爱好和平的人们，相信我，黑暗即将到来，大家要警惕，中共盗国贼家族会向整个西方文明世界扑来，企图吞噬整个世界，没人可以幸免，大家必须要做好准备。”其后的三年时间里，郭先生开启了爆料革命，向全世界宣传中共对全人类的危害。
 
-回顾世界形势，2019年底，中共开始在世界上狂购口罩等防护物资，同时在WHO 的协助下，对世界隐瞒了武汉新冠肺炎“人传人”的事实。2020年初到现在，全世界感染中共病毒的人数已达1.4亿，死亡人数超过3百万。然而，中共和西方黑暗势力勾结，试图继续掩盖病毒实验室来源这一真相。更甚者，中共开始向全世界开展疫苗推销，开启疫苗经济。我们在感叹世界遭遇如此劫难的同时不禁要问，如果当初2017年世界听了郭先生的警告，如果在病毒开始大流行之前，世界听了在2020年1月19日路德访谈节目对疫情大流行到来的警告，早做应对，世界会否不再遭受如此的浩劫？如今，全世界爱好和平的人们只有联合起来，向中共追责，要中共交出病毒真相，消灭中共，才是完全结束这场灾难的唯一出路。
+2021年4月16日，美日两国首脑会谈后，正式达成了维护印太地区和平与稳定的共识，承诺将携手应对来自中国的挑战，实现国际关系的稳定，维护普世价值。就此，全世界联合反共，亚太地区在美日主导下，联合东盟、澳大利亚、印度等各国抵制中国的亚太新秩序正式形成。
 
-参考阅读：
+菅仪伟首相说的极是，中共与世界之战是价值观之战。中共反对普世价值由来已久，2017年6月9日，中国共产党新闻网登载一篇题为《决不允许用西方“普世价值”消解社会主义核心价值观》的文章。那么”普世价值“到底是什么呢，让中共这样痛恨和惧怕？
 
-[塞林博士推特](https://twitter.com/LawrenceSellin/status/1383494654633472007?s=20)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
-编辑/校对/发稿：Irene木木
+**文字版原文：[【世事解评】中国人是普世价值的捍卫者](https://gnews.org/zh-hans/1111462/)**
+
+作者：纽约香草山写作组 Jenny
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 **[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
 
 0

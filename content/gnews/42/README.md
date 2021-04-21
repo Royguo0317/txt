@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】中国人是普世价值的捍卫者
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1121487/)
+## 【有声读物】岸
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1121615/)
 
-配音：香草山录音组 蒙古鸿雁
+配音：香草山录音组 Swr拥抱太阳
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -12,22 +12,31 @@
 
 
 
+**岸**
+
+在水边打坐
+
+人声流走，流水入岸
+
+放空的身体注入冥想的夜空
+
+浪花朵朵，鹅卵石若隐若现
+
+吐纳夜的星子和银河的暗光
+
+于是，灵魂便飞了起来
+
+吞没沉下来的雾霾和黑暗
 
 
-2021年4月16日，美日两国首脑会谈后，正式达成了维护印太地区和平与稳定的共识，承诺将携手应对来自中国的挑战，实现国际关系的稳定，维护普世价值。就此，全世界联合反共，亚太地区在美日主导下，联合东盟、澳大利亚、印度等各国抵制中国的亚太新秩序正式形成。
 
-菅仪伟首相说的极是，中共与世界之战是价值观之战。中共反对普世价值由来已久，2017年6月9日，中国共产党新闻网登载一篇题为《决不允许用西方“普世价值”消解社会主义核心价值观》的文章。那么”普世价值“到底是什么呢，让中共这样痛恨和惧怕？
+**文字版原文：[【香草诗词汇】岸](https://gnews.org/zh-hans/866032/)**
 
-
-
-**文字版原文：[【世事解评】中国人是普世价值的捍卫者](https://gnews.org/zh-hans/1111462/)**
-
-作者：纽约香草山写作组 Jenny
+作者：香草山写作组 木白
 
 
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+音频处理/发稿：雪梨
 
 ![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 

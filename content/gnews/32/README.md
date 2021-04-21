@@ -1,37 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】日常系列（二）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1121569/)
+## 【字幕】4/20/2021文贵盖特 2：向战友们嘚瑟一下，G翻身新的帽子，一切都已经开始
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1121841/)
 
-香草山配音组：Swr拥抱太阳
+制作： 【彩虹桥】
 
-**一个年轻吉他手的日常**
 
-岁月是镜子，照着孤单的音符；
 
-昼夜颠倒，是一个青年的前奏。
+这是咱们新到的G-Fashion的帽子,你看这个，哇..漂亮，质量真的是特别特别的好。你看这个..信仰之星。我特别喜欢这块儿的感觉，特别舒服。你看这里边儿 G|Forever，质量绝对是超级的牛！我喜欢这个大小，特别的舒服。不孬！还有这个，再看看这个。哇..这个 G|Forever 漂亮；信仰之星,THE NEW FEDERRAL STATE OF CHINA。
 
-梦醒时分和休止符一样短暂，
+你看看，真不错，相当的不孬。你看这个，哇..你说说…这帽子！原来我不怎么戴帽子，但是最近我发现戴帽子是一种新的形象。你看，都是TAKE DOWN THE CCP！这个后面没有，这个TAKE DOWN THE CCP。哇..真是漂亮。这两个的工艺、料子完全不一样。工艺，你看看..质量,但是这个帽壳的结构是中国产的，设计、细节,洛杉矶G-Fashion 你没办法，也可以说成缅甸产，东南亚产，你咋弄？你咋弄？这个没办法，对吧？哇..真漂亮！酷..酷..相当的不孬。
 
-这青春的白日梦弹唱着暴雨。
+一直在通信/电话中。关于“王公公”出来，有动静啊,但是国内找不着信息，都乱问,咋回事儿？现在我们成了解说王岐山的人了，你不是开玩笑吗？人家王岐山神出鬼没的,啥人物？2号人物！
 
-文字版全文：[【香草诗词汇】日常系列（二）](https://gnews.org/zh-hans/878154/)
+当年的林彪3天不学习赶不上刘少奇。现在是“习大神”3天不学习赶不上王副主席,党内都知道,还有党内的人说,习主席即使学习100年也赶不上王副主席！哎..咋说了？这都不重要，我就不相信，在对全世界杀掉几百万人，上亿人得到了病毒，而且这个病毒是共产党做的。还跟你搞环境？搞气候？管球你什么副主席不副主席的，什么主持人不主持人的。都是小事儿。我在乎的事情是美、日、欧如何的行动，如何把它法律化。
 
-作者：香草山写作组 木白
+这风太大了！看这外面绿地多漂亮。你看看，多漂亮？多漂亮！我就爱开着门儿。看见没有？开着门，一开门风就咣当咣当的。
 
-发稿：正义的小新
-![This image has an empty alt attribute; its file name is 4_April-2.jpeg]()![This image has an empty alt attribute; its file name is 4_April-2.jpeg](https://gnews.org/wp-content/uploads/2021/04/4_April-2.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+啥都不说了，俺要开会去了，谢谢！
 
 0
