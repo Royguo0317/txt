@@ -1,25 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 简讯!德国多地养老院在接种疫苗后再次爆发感染
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1120737/)
+## 中共博鳌亚洲论坛惨淡开幕
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1120784/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/k-mitch-hodge-r3IE4JJLrFk-unsplash.jpg)
-*编撰：西联777*
-据多家德国媒体报道，当地时间4月16日，位于莱希林根（Leichlingen）的一家养老院在接种新冠疫苗后再次爆发聚集性感染，同时在雷姆沙伊德（Remscheid）和波鸿（Bochum）市的养老院也有类似案例发生。
+**撰稿: 天鹅**
 
-位于莱希林根（Leichlingen）的这家养老院总共生活着有大约60人，其中95%的居民已经在一月份接种过第二剂的新冠疫苗或已接受过新冠治疗。但在本周早些时间，经PCR测试确认，该养老院里的17名居民和员工检测结果呈阳性。目前尚未得到确认是否是居民和员工接种了疫苗然后传播了这种病毒，但进入养老院的每个人都要接受定期测试，访客每48小时检查一次，员工每72小时检查一次,病毒极不可能是从外面带进养老院的。
+**审核: pv0, 莫黎**
 
-感染流行病学家蒂莫·乌尔里希斯（Timo Ulrichs）认为这种情况非常令人困扰，毕竟像大多数其他专家一样，他认为“疫苗本应可以预防所有这些疾病，使接种者免受感染，传播和疾病的侵扰。”
+![]()![](https://gnews.org/wp-content/uploads/2021/04/769ce748934c0e0d.jpg)**图片: 昆仑竹**
 
-*免责声明：以上内容仅代表作者本人观点，与农场和GNEWS无关。*
+2021年4月20日中共博鳌亚洲论坛惨淡开幕，参加的各国领导人屈指可数，习总加速师也未到场，只是通过视频发表讲话。中共官媒《央视网》发表文章[1]“人类社会应该向何处去？习近平提出四点倡议”，与墙内媒体争相宣传、吹捧相对应的是国际媒体几乎没有这方面的报道。本届论坛是博鳌论坛成立20周年，给人的感觉也是有史以来最惨淡的一届。
 
-*参考信息来源：*[https://www1.wdr.de/nachrichten/themen/coronavirus/altenheim-leichlingen-corona-ausbruch-100.html](https://www1.wdr.de/nachrichten/themen/coronavirus/altenheim-leichlingen-corona-ausbruch-100.html) 
-[https://www.ksta.de/region/leverkusen/leichlingen/ausbruch-im-seniorenheim-14-vollstaendig-geimpfte-sind-corona-positiv-38292474](https://www.ksta.de/region/leverkusen/leichlingen/ausbruch-im-seniorenheim-14-vollstaendig-geimpfte-sind-corona-positiv-38292474) 
-[https://www.rnd.de/panorama/nrw-zwei-dutzend-geimpfte-altenheim-bewohner-aus-remscheid-und-leichlingen-mit-corona-infiziert-UUVZJEDTVBJKW4WTPLAMO3CR54.html](https://www.rnd.de/panorama/nrw-zwei-dutzend-geimpfte-altenheim-bewohner-aus-remscheid-und-leichlingen-mit-corona-infiziert-UUVZJEDTVBJKW4WTPLAMO3CR54.html) 
-[https://www.bild.de/regional/koeln/koeln-aktuell/im-leichlinger-altenheim-corona-infektionen-bei-geimpften-bestaetigt-76079524.bild.html](https://www.bild.de/regional/koeln/koeln-aktuell/im-leichlinger-altenheim-corona-infektionen-bei-geimpften-bestaetigt-76079524.bild.html)
+主办方没有对外发布各国领导人参加的名单，参与国家看来应该是屈指可数。面对全世界正义力量对中共病毒、种族灭绝、反人类罪的制裁与追责，中共顶着巨大压力仍然召开博鳌论坛。习总加速师面对即将到来的中共邪党100年以及20大到来，一副烂牌没人打，只有自己打，硬着头皮出来演讲[2]（同舟共济克时艰，命运与共创未来），那么让我们一起看看中共到底要干什么。
 
-*审核收稿：西联777
-编辑发布：西联777*
+**推崇多边主义，维护中共老地位**
+
+演讲中谈到“我们应该秉持共商共建共享原则，坚持真正的多边主义”。中共此时一再强调多边主义，是怕美国在亚洲形成美日印澳“小北约”，与中共对抗。随着中共病毒真相的逐渐揭开，新疆种族灭绝、反人类罪的认定，中共在亚洲的影响力骤降。郭文贵先生在近期的爆料中也提到，美方已经开始扶植亚洲的新代理人— 日本，中共想要控制亚洲的美梦已经破灭。
+
+演讲中还谈到了“要维护以联合国为核心的国际体系，维护以世界贸易组织为核心的多边贸易体制”。这句意思其实就是要保住中共在联合国、世界贸易组织的地位，要保住中共在国际舞台上的话语权。中共已经预见到了全球局势的变动即将到来，渗透、操纵他国政治、经济等手段将会越来越难，而自己（中共）的死期也不远了。这也就是习近平要特别强调维护中共的老体系，老地位不变的原因。
+
+**中共求技术、求投资**
+
+该演讲还谈到了“开放是发展进步的必由之路”、“我们要推动贸易和投资自由化便利化，构建开放型世界经济”。自爆料革命以来，全世界对中共的科技、经济的制裁越来越多，越来越紧，中共越是造假、掩盖，国际社会对中共的制裁范围就会越广，制裁手段就会越严。故此中共不得不在博鳌论坛上，借着自由、开发、发展的口号要求全世界来投资，推崇所谓的共同发展，一起分享技术。其实就是要西方国家来投钱，来投技术。但是面对仇视普世价值，输出中共病毒，犯下种族灭绝，奉行战狼外交的中共政府，哪个国家又敢和其合作，谁敢再相信他们？全世界已经给了中国共产党几十年的时间，但是换来的却是把一个小流氓养成了一个大魔鬼，这一次世界再也不会给他们机会了！
+
+**厚颜无耻、满嘴谎言**
+
+习在演讲中说到“我们要坚守正义，开创互尊互鉴的未来”、“我宣布，中方将在疫情得到控制后即举办第二届亚洲文明对话大会，为促进亚洲和世界文明对话发挥积极作用”。那么香港同胞的正义谁来维护？新疆同胞的生命谁来维护？南海诸国的利益又有谁来维护？
+
+爆料革命、新中国联邦崇尚的就是唯真不破、正道主义，而这些话由中共讲出简直让人反胃。视频会记录这一切，每个人都要为自己的一言一行负责，最终全世界都会对中共的恶行进行审判。共产党你完了！
+
+
+
+**本文仅代表作者个人观点。**
+
+**参考新闻: **
+
+[1] [联播+｜人类社会应该向何处去？习近平提出四点倡议](https://world.huanqiu.com/article/42nW2IBCyvd)
+
+[2] [同舟共济克时艰，命运与共创未来 — 在博鳌亚洲论坛2021年年会开幕式上的视频主旨演讲](https://m.21jingji.com/article/20210420/herald/368888fe93fa527b46f75d72f90018b0.html)
+
+
+
+* * *
+
+**发布: 法国巴黎七星编辑组**
 
 0

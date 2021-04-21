@@ -1,35 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】参议员兰德·保罗：扔掉口罩，烧掉疫苗护照
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1120981/)
+## 中共图谋以伊朗为跳板&nbsp; 控制中东&nbsp; 挑战美国和西方
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/1121262/)
 
-纽约香草山写作组  四季
+[下载字幕](https://gnews.org/wp-content/uploads/2021/04/CBN_20210415_Archimedes.srt.txt)
+CBN新闻2021年4月9日：章家敦等中共国问题专家分析中共国和伊朗签署的合作协议对美国和世界的影响。该协议将在25年里向伊朗的银行业、电信通讯、交通，以及基础建设部门投入数十亿美元。章家敦先生指出中共一直明目张胆地从伊朗购买石油，公然违反对伊朗的制裁，使德黑兰政权绝处逢生，降低了美国和其他国家在这个地区的外交影响力，给这一地区的以色列和逊尼派阿拉伯国家造成不稳定。
 
-自然新闻网站4月19日报道，美国参议员兰德·保罗正在敦促美国人扔掉他们的口罩，烧掉疫苗护照。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-47.png)图片来源：自然新闻网
-这位眼科执业医师，肯塔基州的共和党人在新的筹款活动中说：“左派已经完全变成了COVID疯子。他们想要政府强制关闭社会，强制戴口罩，关闭学校，强制接种疫苗，现在他们正在谈论COVID疫苗护照。这绝对是违宪的，更不用说，它是荒谬的”。
+视频来源：[https://www.youtube.com/watch?v=mE6VtUM1xw8](https://www.youtube.com/watch?v=mE6VtUM1xw8) (3:51-7:35)
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-保罗认为，“疫苗护照”是最新的权力掠夺，它将决定你是否被“允许”参与你的日常生活，这是完全不能接受的。他敦促在美国的每一个人扔掉他们的口罩，要求他们的学校开放，如果他们试图给你疫苗护照，就烧掉它。
+* * *
 
-上个月，保罗抨击了总统COVID顾问安东尼-福奇博士，问他能否举出哪些科学研究表明感染过或接种过疫苗的人将传播冠状病毒。
+听写 & 翻译: 【阿基米德】字幕：【V%】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-现在，口罩，封锁，疫苗，疫苗护照，这些太熟悉不过的，充斥了我们生活中的东西能够解决中共病毒的灾难吗？希望中共病毒的来源被早日揭露，早日让中共对释放制造病毒负责，这个世界需要更多的有良知的人出来揭露真相，留给人类的时间不多了。
-
-原文链接：[https://www.naturalnews.com/2021-04-19-throw-away-your-masks-and-vaccine-passport.html](https://www.naturalnews.com/2021-04-19-throw-away-your-masks-and-vaccine-passport.html)
-
-审核/发稿：正义的小新
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1

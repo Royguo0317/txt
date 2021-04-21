@@ -1,47 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 佐治亚州务卿接受了扎克伯格的560万美元
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1120708/)
+## 简讯!德国多地养老院在接种疫苗后再次爆发感染
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1120737/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+![]()![](https://gnews.org/wp-content/uploads/2021/04/k-mitch-hodge-r3IE4JJLrFk-unsplash.jpg)
+*编撰：西联777*
+据多家德国媒体报道，当地时间4月16日，位于莱希林根（Leichlingen）的一家养老院在接种新冠疫苗后再次爆发聚集性感染，同时在雷姆沙伊德（Remscheid）和波鸿（Bochum）市的养老院也有类似案例发生。
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/G-12.jpg)news4jax.com
-人们一直怀疑，发生在佐治亚州的大选欺诈舞弊行为如此猖獗，大选事务主管部门竭力掩盖，投票法案改革难以推进（虽然通过了一个较为折衷的“投票改革法”，却遭到了拜登为首的民主党的指责），重新计票工作困难重重，法院有关判决荒唐至极……都离不开那个疑似中共爪牙、州务卿拉芬斯佩格（Raffensperger）的影子，是什么力量导致他那样奋不顾身地与邪恶共舞，今天《戴维哈里斯》发表文章，似乎找到了问题的答案。
+位于莱希林根（Leichlingen）的这家养老院总共生活着有大约60人，其中95%的居民已经在一月份接种过第二剂的新冠疫苗或已接受过新冠治疗。但在本周早些时间，经PCR测试确认，该养老院里的17名居民和员工检测结果呈阳性。目前尚未得到确认是否是居民和员工接种了疫苗然后传播了这种病毒，但进入养老院的每个人都要接受定期测试，访客每48小时检查一次，员工每72小时检查一次,病毒极不可能是从外面带进养老院的。
 
-全文如下：
+感染流行病学家蒂莫·乌尔里希斯（Timo Ulrichs）认为这种情况非常令人困扰，毕竟像大多数其他专家一样，他认为“疫苗本应可以预防所有这些疾病，使接种者免受感染，传播和疾病的侵扰。”
 
-题目：佐治亚州的拉芬斯佩格也这么做了——接受了“扎克伯格”（‘Zuckerbucks’）500万美元、据称是用于“发布公共服务公告”的费用。
+*免责声明：以上内容仅代表作者本人观点，与农场和GNEWS无关。*
 
-在2020年选举期间中，马克·扎克伯格（Mark Zuckerberg）在摇摆州发放资金，显然是为了影响选举，其中500万美元捐给了布拉德·拉芬斯伯格（Brad Raffensperger）。
+*参考信息来源：*[https://www1.wdr.de/nachrichten/themen/coronavirus/altenheim-leichlingen-corona-ausbruch-100.html](https://www1.wdr.de/nachrichten/themen/coronavirus/altenheim-leichlingen-corona-ausbruch-100.html) 
+[https://www.ksta.de/region/leverkusen/leichlingen/ausbruch-im-seniorenheim-14-vollstaendig-geimpfte-sind-corona-positiv-38292474](https://www.ksta.de/region/leverkusen/leichlingen/ausbruch-im-seniorenheim-14-vollstaendig-geimpfte-sind-corona-positiv-38292474) 
+[https://www.rnd.de/panorama/nrw-zwei-dutzend-geimpfte-altenheim-bewohner-aus-remscheid-und-leichlingen-mit-corona-infiziert-UUVZJEDTVBJKW4WTPLAMO3CR54.html](https://www.rnd.de/panorama/nrw-zwei-dutzend-geimpfte-altenheim-bewohner-aus-remscheid-und-leichlingen-mit-corona-infiziert-UUVZJEDTVBJKW4WTPLAMO3CR54.html) 
+[https://www.bild.de/regional/koeln/koeln-aktuell/im-leichlinger-altenheim-corona-infektionen-bei-geimpften-bestaetigt-76079524.bild.html](https://www.bild.de/regional/koeln/koeln-aktuell/im-leichlinger-altenheim-corona-infektionen-bei-geimpften-bestaetigt-76079524.bild.html)
 
-有什么奇怪的，为什么拉芬斯佩格表现得好像他在为民主党工作？也许正是这个理由，这似乎是一个不争的事实，当你看到非营利组织是如何资助他们的。
-
-扎克伯格和他的妻子说他们只是想帮忙，由于美国受到中共病毒的重创，国会谈判陷入僵局，这位脸书（Facebook）巨头主动提出自己出资，帮助维持选举的正常进行，利用一个非营利组织“科技与公民生活中心”（the Center for Technology and Civic Life）作为屏障，这对权力夫妻开始向地方选举办公室投入数亿美元，以帮助“解决适应新的投票行为的困难”。
-
-2月，《布雷特巴特》Breitbart报道了这个事件。
-
-托马斯·莫尔协会（Thomas More Society）的阿米斯塔德项目（Amistad Project）周三在新闻发布会上发布的一份报告指称，脸书创始人马克·扎克伯格和他的妻子在2020年选举周期内为非营利组织捐款4.195亿美元——为“科技与公民生活中心”（CTCL）的“安全选举”项目捐款3.5亿美元和另外6950万美元给“选举创新与研究中心”（the Center for Election Innovation and Research），即“代表一个特定的候选人和政党，不正当地影响了2020年的总统选举。”
-
-560万美元被交给了拉芬斯佩格的办公室，据称这笔钱主要花在两件事情上——更容易通过邮寄投票和避免错误信息。
-
-在自由主义的话语中，错误信息是与自由主义意识形态不一致的事实。当然，没有签名验证的邮寄投票是最容易作弊的方式，佐治亚州法律规定，签名必须经过核实，但这项法律被拉芬斯佩格非法推翻。
-
-据《佐治亚星报》（the Georgia Star）报道，拉芬斯佩格就此发布了一份新闻稿，但我们不知道是什么时候发的，因为它没有日期。
-
-拉芬斯佩格在一份新闻稿中宣布了与“选举创新与研究中心”（CEIR）的合作关系，新闻稿未注明日期，据推测，拉芬斯佩格的工作人员在去年刊登了这条消息，在那份新闻稿中，拉芬斯佩格称赞了“选举创新与研究中心”的员工，作为“国家必须提供的最伟大理念”的人才，正因为如此，他说，佐治亚州可以有一个安全可靠的无纸投票系统。
-
-（全文完）
-
-佐治亚州是中共渗透很深的州，众多的中共企业在该州注册，加上民主党金主扎克伯格的介入，这个扎克伯格也是一个疑似的中共女婿，州选举事务主管拉芬斯佩格，虽然是共和党，但是在重金面前完全失去了节操，与邪恶站在了一边。真相总有暴露那一天，与魔共舞者，必将受到历史的审判。
-
-原文链接：
-
-
-
-> [Georgia’s Raffensperger Did It Too – Accepted $5 Million of ‘Zuckerbucks’ Says It Was Used for “Issuing Public Service Announcements”](https://davidharrisjr.com/steven/georgias-raffensperger-did-it-too-accepted-5-million-of-zuckerbucks-says-it-was-used-for-issuing-public-service-announcements/)
-
-
+*审核收稿：西联777
+编辑发布：西联777*
 
 0

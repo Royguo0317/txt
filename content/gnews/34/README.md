@@ -1,33 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国国务院发出最高级别警告：请勿旅行
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1120421/)
+## 加拿大时政生活杂谈 （第九期）2021.04.19
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1120599/)
 
-作者：Chloe
-![]()![](https://gnews.org/wp-content/uploads/2021/04/ggg-1.jpg)
-4月19日美国国务院宣布，接下来的几周将对世界上约80%的国家发出 “第4级：请勿旅行” 的警告。 这是国务院最高级别警告 （1）。
+文字整理：蒙特利尔皇家山战友团 **平民正道**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2e6ea3c88581d805acb1054ad983028a.png)
+**一、一周新闻简报**
 
-国务院在官方声明中表示，旅行时感染COVID-19的风险仍然过高，并敦促美国人“重新考虑所有海外旅行”。
+截至到今天为止，全世界有1.425亿人被感染，死亡人数超过300万。美国感染人数3240多万，死亡人数58万多。加拿大感染人数到今天为止是121万，死亡人数2万4千多。全世界虽然打了很多疫苗，病毒增加的速度比原来更快。安大略省病例占全加拿大的46%。
 
-第4级警告一般保留给战乱国家或被认为对美国公民有敌意的国家，如阿富汗和朝鲜。 即使在几内亚新冠与埃博拉大流行，美国国务院于2021年的2月25日对其发出的警告停留在第3级 （2）。
+魁省今天新增病例1092人，累计患病人数338044人，死亡人数10816人。年轻人患病越来越多，医院压力加大。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/三人行.jpg)
+**二、老年人患病与羟氯喹**
 
-国务院今天的这则声明和疾控中心两周前发布的指导方针不一致。 疾控中心认为完全接种疫苗的人可以进行国际旅行，无需再旅行前接受COVID-19检测；而且返美后不需要自我隔离（3）。
+老年人肌体代谢比较低，但是血氧饱和度是不能低的。血氧饱和度是人体健康状况非常重要的一个指标。它反映了心血管系统，呼吸系统，循环系统最重要的功能。
 
-国务院今天发布声明一个可能的原因是近几天当局可能发现疫苗对变异的新冠病毒无效。 今天福奇说到秋季公众将知道是否需要打第三针疫苗 （4）。 莫德纳首席执行官本周表示，该公司将在秋季之前向美国人提供疫苗第三剂（5）。
+鸡尾酒疗法：羟氯喹加阿基霉素加锌。临床上建议每天400毫克羟氯喹，每天500毫克阿基霉素，另外再加锌片。服用羟氯喹每公斤体重不超过6.5毫克，副作用是比较小的。
 
-辉瑞也表达了类似的计划。 两天前辉瑞CEO说6至12个月内公众可能需要接种第三剂冠状病毒疫苗，并且“之后每年要重新接种”（6）。
+**三、花粉严重过敏的人是否需要药物控制，能否打疫苗**
 
-参考文献：
+过敏体质者严谨接种疫苗。打疫苗前应该认真阅读有关该疫苗的使用说明书，自己多掂量。
 
-1. [https://www.dailymail.co.uk/health/article-9488745/US-State-Department-issue-Level-4-Not-Travel-advisory-80-countries.html](https://www.dailymail.co.uk/health/article-9488745/US-State-Department-issue-Level-4-Not-Travel-advisory-80-countries.html)
-2. [https://travel.state.gov/content/travel/en/traveladvisories/traveladvisories/guinea-travel-advisory.html#:~:text=N’Zerekore%20Region%3A%20Level%204,with%20updates%20to%20Ebola%20Information](https://travel.state.gov/content/travel/en/traveladvisories/traveladvisories/guinea-travel-advisory.html#:~:text=N'Zerekore%20Region%3A%20Level%204,with%20updates%20to%20Ebola%20Information).
-3. [https://www.cdc.gov/media/releases/2021/p0402-travel-guidance-vaccinated-people.html#:~:text=Fully%20vaccinated%20people%20can%20travel%20internationally%20without%20getting%20a%20COVID,a%20state%20or%20local%20jurisdiction](https://www.cdc.gov/media/releases/2021/p0402-travel-guidance-vaccinated-people.html#:~:text=Fully%20vaccinated%20people%20can%20travel%20internationally%20without%20getting%20a%20COVID,a%20state%20or%20local%20jurisdiction).
-4. [https://thehill.com/homenews/sunday-talk-shows/548879-fauci-public-will-know-if-third-vaccine-dose-is-needed-by-fall](https://thehill.com/homenews/sunday-talk-shows/548879-fauci-public-will-know-if-third-vaccine-dose-is-needed-by-fall)
-5. [https://www.cbsnews.com/news/moderna-covid-vaccine-booster-shots/](https://www.cbsnews.com/news/moderna-covid-vaccine-booster-shots/)
-6. [https://abc7ny.com/health/third-vaccine-dose-likely-needed-in-6-to-12-months-pfizer-ceo-says/10520223/](https://abc7ny.com/health/third-vaccine-dose-likely-needed-in-6-to-12-months-pfizer-ceo-says/10520223/)
+**四、所有的疫苗都有可能导致血栓的风险**
 
+**五、戴口罩比不戴口罩预防效果好**。
 
-发布：GLC
+如果自制口罩，选用密度较高的布料。
+
+**六、安省疫苗短缺，建方舱医院**
+
+医院ICU医生和护士人手不够，ICU护士缺口将近4000人。大家尽可能照顾好自己，不给医院增添压力。
+
+**七、移民**
+
+利好消息：加拿大联邦移民局宣布了一项临时性经验类移民项目，总配额高达9万。其中留学生4万配额，基础性工作例如送餐员、收银员等3万配额，医疗工作者2万配额。
+
+[节目链接](https://gtv.org/video/id=607e0b857e083973a72c248e)
+
+* * *
+
+*编辑、发稿 文锦*
 
 0
