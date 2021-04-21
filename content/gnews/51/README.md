@@ -1,25 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 简讯!德国多地养老院在接种疫苗后再次爆发感染
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1120737/)
+## 温家宝忆母文章遭中共封禁
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1120396/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/k-mitch-hodge-r3IE4JJLrFk-unsplash.jpg)
-*编撰：西联777*
-据多家德国媒体报道，当地时间4月16日，位于莱希林根（Leichlingen）的一家养老院在接种新冠疫苗后再次爆发聚集性感染，同时在雷姆沙伊德（Remscheid）和波鸿（Bochum）市的养老院也有类似案例发生。
+加拿大多伦多枫叶农场 军迷Wilson
+![]()![](https://gnews.org/wp-content/uploads/2021/04/ntdtv.com_.jpg)*图片来源：ntdtv.com*
+中共国前总理温家宝的母亲于2020年12月逝世，按理说温家宝在母亲去世后的第一个清明节撰文纪念，是合乎常情的。但他在《澳门导报》这个小报上，发表回忆母亲的4篇文章全部遭中共的封禁，所有的中共国社交平台被限制转发分享，除了说明习近平的高压无处不在之外，还似乎暗示中共的内斗及社会矛盾已到达爆发的临界点。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/twitter-6.jpg)*图片来源：Twitter*
+温家宝回忆母亲在他担任第一届总理时对他说，你平民出身，没有任何靠山，今天能位居人臣，来之不易。温家宝想要表达的是，自己是平民总理，凭才德拜相后一直珍惜来自不易的机会，为天下苍生鞠躬尽瘁。只懂得玩弄权术和贪腐的中南坑当权者们，认为温家宝是在贬讽他们。温家宝在文章中称:“中国应该是一个充满公平正义的国家，那里永远有对人心、人道和人的本质的尊重”。被认为“暗含强烈的政治信号”，是对习近平步毛泽东后尘搞个人崇拜及强化高压统治不满。
 
-位于莱希林根（Leichlingen）的这家养老院总共生活着有大约60人，其中95%的居民已经在一月份接种过第二剂的新冠疫苗或已接受过新冠治疗。但在本周早些时间，经PCR测试确认，该养老院里的17名居民和员工检测结果呈阳性。目前尚未得到确认是否是居民和员工接种了疫苗然后传播了这种病毒，但进入养老院的每个人都要接受定期测试，访客每48小时检查一次，员工每72小时检查一次,病毒极不可能是从外面带进养老院的。
+坊间传言温家宝是改革派，在对中共的改革上“走得最远”。他是2012年主张拿下左棍簿熙来态度最坚决的常委，他在选择习近平作为总书记上扮演什么角色不得而知。但他在当年两会上说“没有政治体制改革的成功，社会上新产生的问题也不能从根本上得到解决，文化大革命这样的历史悲剧还有可能重新发生”，令人印象深刻。
 
-感染流行病学家蒂莫·乌尔里希斯（Timo Ulrichs）认为这种情况非常令人困扰，毕竟像大多数其他专家一样，他认为“疫苗本应可以预防所有这些疾病，使接种者免受感染，传播和疾病的侵扰。”
+中共倒行逆施，发动超限生化战，中华民族再次被推到悬崖边上。国内反习势力非常清楚，中共唯一的结局是灭亡，为了避免陪葬，必将奋起抵抗。温家宝的忆母文章，起码可以视为中共元老和习近平划清界限的一种姿态，是否系中共元老或反习派发出即将拿下或反击习近平的信号，有待观察。
 
-*免责声明：以上内容仅代表作者本人观点，与农场和GNEWS无关。*
+参考链接：[China censors ex-premier’s article ahead of Communist Party anniversary](https://www.hindustantimes.com/world-news/china-censors-ex-premier-s-article-ahead-of-communist-party-anniversary-101618919646424.html)
 
-*参考信息来源：*[https://www1.wdr.de/nachrichten/themen/coronavirus/altenheim-leichlingen-corona-ausbruch-100.html](https://www1.wdr.de/nachrichten/themen/coronavirus/altenheim-leichlingen-corona-ausbruch-100.html) 
-[https://www.ksta.de/region/leverkusen/leichlingen/ausbruch-im-seniorenheim-14-vollstaendig-geimpfte-sind-corona-positiv-38292474](https://www.ksta.de/region/leverkusen/leichlingen/ausbruch-im-seniorenheim-14-vollstaendig-geimpfte-sind-corona-positiv-38292474) 
-[https://www.rnd.de/panorama/nrw-zwei-dutzend-geimpfte-altenheim-bewohner-aus-remscheid-und-leichlingen-mit-corona-infiziert-UUVZJEDTVBJKW4WTPLAMO3CR54.html](https://www.rnd.de/panorama/nrw-zwei-dutzend-geimpfte-altenheim-bewohner-aus-remscheid-und-leichlingen-mit-corona-infiziert-UUVZJEDTVBJKW4WTPLAMO3CR54.html) 
-[https://www.bild.de/regional/koeln/koeln-aktuell/im-leichlinger-altenheim-corona-infektionen-bei-geimpften-bestaetigt-76079524.bild.html](https://www.bild.de/regional/koeln/koeln-aktuell/im-leichlinger-altenheim-corona-infektionen-bei-geimpften-bestaetigt-76079524.bild.html)
+* * *
 
-*审核收稿：西联777
-编辑发布：西联777*
+编辑 发稿 云起时
 
 0
