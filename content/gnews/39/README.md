@@ -1,35 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 维州投资建疫苗工厂，疫苗经济烧至澳洲
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1122104/)
+## 中共病毒依旧肆虐，战争离我们还有多远？
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1122280/)
 
-撰稿：五饼二鱼
+**路仁**
 
-根据澳洲9NEWS的报道**辉瑞和Moderna疫苗可能在墨尔本生产，政府宣布投资5000万澳元的资金**。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screen-Shot-2021-01-06-at-9.59.48-am.png)网络截图
-维多利亚州政府将与联邦政府和世界领先的专家紧密合作，在南半球开发第一个疫苗生产工厂，该工厂将设在墨尔本。
+4月19日，美国战略司令部官方网站发出强烈的战争预警推文：
 
-政府在一份声明中说，**辉瑞和****Moderna**等核糖核酸疫苗具有高效，快速开发，低成本制造和安全管理等优点，是传统疫苗的“有希望的替代品”。
+***美国战略司令部军事事态声明预览：当今的冲突范围既不是线性的也不是可预测的。 我们必须承认可能导致冲突引发的情况，会迅速促使对手将使用核武器作为他们最不差的选择。***
+![]()![](https://gnews.org/wp-content/uploads/2021/04/luren.jpg)
+4月13日，在美国参议院武装委员会（SASC）举行的听证会上，美国战略司令部理查德上将做了了[报告](https://www.stratcom.mil/Portals/8/Documents/2020_USSTRATCOM_Posture_Statement_SASC_Final.pdf?platform=hootsuite)。报告列出了中共国，俄罗斯，北朝鲜和伊朗为对世界安全环境造成威胁的国家。其中，中共国，俄罗斯由“竞争者”演变成“具有先进能力的全方位挑战者”。而中共国名列榜首。
 
-**CCP****病毒肆虐，全球伤亡惨重的今天，任然看到这些政客、既得利益阶层还在声嘶力竭的吹捧疫苗经济。**直到今天疫苗接种后出现大面积不良反应任然被视而不见，各级媒体也不敢正面报道，如强生疫苗再酿成大祸后被紧急叫停。
+理查德上将同时指出：***“******历史上第一次，我们国家要面对两个拥有核武器的战略对手，而我们都必须用不同的方法制止全部两个对手。******”***
+![]()![](https://gnews.org/wp-content/uploads/2021/04/fdsadsjakgnk.jpg)
+而根据[《太平洋空军》（PACIFIC AIR FORCE)网站报道](https://www.pacaf.af.mil/News/Article-Display/Article/2576530/b-52-bombers-deploy-to-guam-for-bomber-task-force-deployment/)，4月16日，4驾B-52战略轰炸机被部署到关岛安德鲁空军基地。第二BW指挥官Dmytryszym上校：***“******作为一款能够搭载各种核武器和常规武器，而且能洲际投送，******B52******依旧是美国对我们盟友以及全世界做出保证的普遍认可的象征！******”***
+![]()![](https://gnews.org/wp-content/uploads/2021/04/whywhy.jpg)
+如今中共病毒依旧在全世界肆虐，而中共却在在台海各种武力威胁，在南海碰瓷耍赖，狼子野心，昭然若揭。中共在大陆奴役14亿国人，在香港残酷镇压民主运动，在新疆大搞种族灭绝，试问习总加速师口中的“要公道，不要霸道”在哪里？
 
-各国政府高调投资疫苗产业，不禁让人联想其背后的不可告人之阴谋，4月17日华尔街日报报道【**辉瑞****CEO****：可能每年都需注射新冠疫苗加强针】，**文章中提到：辉瑞公司首席执行官Albert Bourla表示，**人们在接种新冠疫苗后的一年内可能将需要注射加强针，然后每年都要接种新冠疫苗，以维持人体对新冠病毒的预防能力，因为该病毒也不断的在变异**。这也应证了去年119路德社爆料的该病毒是强变异的论点。各国政府鼓吹百姓集体上车免费打疫苗，但未来每年都要挨一针的费用百姓都要自掏腰包，羊毛出在羊身上，没有免费的午餐。我们**试问这又要注射的“加强针”将如何定价？未来每年挨一针的疫苗如何定价？**如果定价200澳元，假如每年澳洲2000万人注射，这将轻轻松松进账40亿澳元。
+美国战略司令部的的声明值得全世界人民警觉。有关核武器威胁的报告也一定有情报支撑。作为从梁家河山沟里出来的“初二博士”，会不会有铤而走险的勇气和决心？如今国内民生凋敝，党内斗争你死我活，病毒真相即将揭开，全球追责即将到来。中共如何应对？从打开“潘多拉盒子”释放中共病毒的手法来看，不排除中共穷途末路之时而狗急跳墙。
 
-当权者如果继续对病毒真相、闫博士的三份报告避而不谈，视而不见那就是等同于与共产党的罪恶上一同有份，同流合污必然被送入火葬场。**一切的虚假丑恶都会被揭露，我们坚信为真不破，爆料革命、新中国联邦将会一直战斗揭露共产党病毒真相，向世界宣告中国人不等于共产党**。
+战争，离我们还有多远？
 
-（文章仅代表个人观点）
+* * *
 
-审稿&编辑：五饼二鱼
+*编辑、发稿 文锦*
 
-新闻来源：
-
-[https://www.9news.com.au/national/coronavirus-vaccine-australia-pfizer-moderna-could-be-produced-in-melbourne/181532cf-aae0-46d1-a587-059c93fcc479?ocid=Social-9News](https://www.9news.com.au/national/coronavirus-vaccine-australia-pfizer-moderna-could-be-produced-in-melbourne/181532cf-aae0-46d1-a587-059c93fcc479?ocid=Social-9News)
-
-[https://cn.wsj.com/articles/%E8%BE%89%E7%91%9Eceo%EF%BC%9A%E5%8F%AF%E8%83%BD%E6%AF%8F%E5%B9%B4%E9%83%BD%E9%9C%80%E6%B3%A8%E5%B0%84%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E5%8A%A0%E5%BC%BA%E9%92%88-11618539612](https://cn.wsj.com/articles/%E8%BE%89%E7%91%9Eceo%EF%BC%9A%E5%8F%AF%E8%83%BD%E6%AF%8F%E5%B9%B4%E9%83%BD%E9%9C%80%E6%B3%A8%E5%B0%84%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E5%8A%A0%E5%BC%BA%E9%92%88-11618539612)
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
 +1
