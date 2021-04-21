@@ -1,53 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【圣城传声筒】李卓人狱前书：一起点灯，灯在人在
-` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1120447/)
+## 美国国务院发出最高级别警告：请勿旅行
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1120421/)
 
-推荐：纽约香草山香港部写作组
+作者：Chloe
+![]()![](https://gnews.org/wp-content/uploads/2021/04/ggg-1.jpg)
+4月19日美国国务院宣布，接下来的几周将对世界上约80%的国家发出 “第4级：请勿旅行” 的警告。 这是国务院最高级别警告 （1）。
 
-原文来源：香港职工盟网站
+国务院在官方声明中表示，旅行时感染COVID-19的风险仍然过高，并敦促美国人“重新考虑所有海外旅行”。
+
+第4级警告一般保留给战乱国家或被认为对美国公民有敌意的国家，如阿富汗和朝鲜。 即使在几内亚新冠与埃博拉大流行，美国国务院于2021年的2月25日对其发出的警告停留在第3级 （2）。
+
+国务院今天的这则声明和疾控中心两周前发布的指导方针不一致。 疾控中心认为完全接种疫苗的人可以进行国际旅行，无需再旅行前接受COVID-19检测；而且返美后不需要自我隔离（3）。
+
+国务院今天发布声明一个可能的原因是近几天当局可能发现疫苗对变异的新冠病毒无效。 今天福奇说到秋季公众将知道是否需要打第三针疫苗 （4）。 莫德纳首席执行官本周表示，该公司将在秋季之前向美国人提供疫苗第三剂（5）。
+
+辉瑞也表达了类似的计划。 两天前辉瑞CEO说6至12个月内公众可能需要接种第三剂冠状病毒疫苗，并且“之后每年要重新接种”（6）。
+
+参考文献：
+
+1. [https://www.dailymail.co.uk/health/article-9488745/US-State-Department-issue-Level-4-Not-Travel-advisory-80-countries.html](https://www.dailymail.co.uk/health/article-9488745/US-State-Department-issue-Level-4-Not-Travel-advisory-80-countries.html)
+2. [https://travel.state.gov/content/travel/en/traveladvisories/traveladvisories/guinea-travel-advisory.html#:~:text=N’Zerekore%20Region%3A%20Level%204,with%20updates%20to%20Ebola%20Information](https://travel.state.gov/content/travel/en/traveladvisories/traveladvisories/guinea-travel-advisory.html#:~:text=N'Zerekore%20Region%3A%20Level%204,with%20updates%20to%20Ebola%20Information).
+3. [https://www.cdc.gov/media/releases/2021/p0402-travel-guidance-vaccinated-people.html#:~:text=Fully%20vaccinated%20people%20can%20travel%20internationally%20without%20getting%20a%20COVID,a%20state%20or%20local%20jurisdiction](https://www.cdc.gov/media/releases/2021/p0402-travel-guidance-vaccinated-people.html#:~:text=Fully%20vaccinated%20people%20can%20travel%20internationally%20without%20getting%20a%20COVID,a%20state%20or%20local%20jurisdiction).
+4. [https://thehill.com/homenews/sunday-talk-shows/548879-fauci-public-will-know-if-third-vaccine-dose-is-needed-by-fall](https://thehill.com/homenews/sunday-talk-shows/548879-fauci-public-will-know-if-third-vaccine-dose-is-needed-by-fall)
+5. [https://www.cbsnews.com/news/moderna-covid-vaccine-booster-shots/](https://www.cbsnews.com/news/moderna-covid-vaccine-booster-shots/)
+6. [https://abc7ny.com/health/third-vaccine-dose-likely-needed-in-6-to-12-months-pfizer-ceo-says/10520223/](https://abc7ny.com/health/third-vaccine-dose-likely-needed-in-6-to-12-months-pfizer-ceo-says/10520223/)
 
 
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-372.png)图源网路
-
-不知为什么活在政治肃杀下的香港，不断出现在脑海中是《一代宗师》戏中的一句：“念念不忘，必有回响，有一口气，点一盏灯，有灯就有人。”《国安法》红线乱舞，连参与初选也被标签为串谋颠复国家政权罪，不得保释，马上还押。每次想起吴敏儿因而失去自由，在狱中牵挂自己家人，感到非常焦虑，无助无奈，忍受着诸般煎熬，我心中便感到无比不安和愤怒！Carol念念不忘，只是希望香港劳工能得到更好的生活，更公平的社会，更民主的制度，这又何罪之有？大家要记得Carol说过：放弃只须一秒，坚持就要一生。她选择了坚持，大家呢？
-
-在此我亦交代我自己面对四场审讯的心情。我第一场审讯在2月16日开始，审足二十天到3月18日完结，法官已在4月1号判我有罪。我当然认为无情可求，与香港人同行而被判刑是我的光荣，亦突显了制度的暴力。在审讯期间，我们的律师都强调所有被告是响应民阵（民主人权阵线），协助市民离开维园（维多利亚公园），以流水式集会方式，使维园可以不间断地有进有出，容纳百多万人聚集的规模。
-
-回想当天整个港岛区由中环到铜锣湾都挤满香港人，大家都很坚决地要进入维园去表达对五大诉求的强烈支持，实在令人非常感动。我穷一生都在烧着一团火，就是组织受压逼的群众站出来，争取自己应有的尊严和民主权利。这与生俱来的权利，我们绝不能靠当权者恩赐，而是要靠每一个人的坚持去捍卫和扩阔这空间。
-
-为这团火付出自由代价，绝对值得，我更相信念念不忘，必有回响。
-
-不论8·18和8·31事件的审判结果如何，5月17号（涉及10月1号煽动、组织、参与未经批准游行），又要面对另一场审讯，然后还要等因六四31周年被控煽动、主办及参与未经批准集会的审讯，心知踏入监牢只是迟早之事。以上四宗审讯，都是源于当权者禁制人民行使集会游行权利，因公民抗命而被检控。当权者目的在假借维护法纪之名打压和理非（和平、理性、非暴力），制造寒蝉效应，务求令大型游行不再出现。“我坚持故我在”，而坐牢亦是坚持的体现。我会以平静的心情面对牢狱的生涯，亦相信牢狱绝对不能磨灭我的抗争意志。
-
-但我最放不下的是职工盟。放不下，并非因为我不信大家能够继续撑住，而是我非常重视职工盟，重视她作为独立自主工运（劳工运动）的使命和历史任务。面对中共政权对香港的政治打压，职工盟和众多民间团体必须思考如何在高压下，与市民同行，表现不退缩的抗争意志。如何做到既不盲动牺牲，但又能守住职工盟“团结、尊严、公义、民主”的四大纲领，燃点起希望的灯光。我知道自己不是什么一锤定音的人物，亦不是什么策略家，但希望能做一个组织者，带动讨论，使大家能够一起共同思进，一起点灯，灯在人在。
-
-* * *
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-373.png)
-
-李卓人简介：香港前立法会议员（1995年－2016年）、香港第二大工会职工盟秘书长、工党副主席，现任支联会主席。香港大学土木工程系毕业。法院已于2021年4月1日裁定李卓人及其他7名被告罪成，截稿时正待4月16日的判刑。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-16-at-17.34.21.jpeg)
-
-校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+发布：GLC
 
 0
