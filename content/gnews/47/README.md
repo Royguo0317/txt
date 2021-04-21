@@ -1,31 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共黑客利用网络漏洞监视美国防工业
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1121725/)
+## 【墙内热搜】数字人民币的目的就是要干掉美元
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1121626/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+**作者：香草山教育部写作组 城君**
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/H-6.jpg)tech-and-hacking-news.com
-路透社报道，研究人员和设备制造商周二表示，至少有两组与中共有关的黑客利用美国虚拟私人网络设备上一个此前未披露的漏洞来监视美国国防工业。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
 
-总部位于犹他州的IT公司Ivanti在一份声明中表示，黑客利用其Pulse Connect安全套件的漏洞，入侵了“数量非常有限的客户”的系统。该公司称，虽然缓解措施已经到位，但要到5月初才能解决这个问题，Ivanti没有提供关于谁可能为间谍活动负责的细节。
 
-而另一家网络安全公司FireEye Inc(FEYE.O)在声明中表示，它怀疑至少有一个黑客组织是代表中共政府进行运作的。
 
-将黑客与特定国家联系在一起充满了不确定性，副总裁查尔斯·卡马卡(Charles Carmakal)表示，他的分析师的判断是基于对黑客的战术、工具、基础设施和目标的评估——其中许多都和过去与中共有关的入侵有关。
 
-中共大使馆发言人刘鹏宇表示，中共“坚决反对和打击一切形式的网络攻击”，并将FireEye的指控描述为“不负责任和恶意的”。
 
-FireEye拒绝透露黑客的目标，只说它们是“世界各地的国防、政府和金融机构”。报告说，这群被怀疑为北京方面工作的黑客特别关注美国国防工业。
 
-美国国土安全部(Department of Homeland Security)网络部门在一份声明中表示，他们正在与Ivanti合作，“以更好地了解Pulse安全VPN设备的漏洞，减轻联邦民用和私营部门网络的潜在风险。”
 
-美国国家安全局拒绝置评。美国官员多次指责中共黑客多年来通过各种手段窃取美国军事机密。
+刚刚过去的博鳌亚洲论坛上，在谈及人民币国际化的议题时候，中国人民银行副行长李波指出，“人民币国际化是一个自然而然的进程，我们的目的不是取代美元，或者取代其他国际货币，而是让市场做出选择，实现进一步的国际贸易和投资的便利化。”
 
-参考链接：
+![]()![](https://gnews.org/wp-content/uploads/2021/04/DCEP.png) 图源网络 `` 
 
-[https://www.reuters.com/technology/china-linked-hackers-used-pulse-secure-flaw-target-us-defense-industry-2021-04-20/](https://www.reuters.com/technology/china-linked-hackers-used-pulse-secure-flaw-target-us-defense-industry-2021-04-20/)
+众所周知，自2015年起，中共假借“一带一路”共同发展的名义，同路线上的很多国家建立经济联系，如今回看，我们看到更多的是输出贪腐、暴政、债务和破产。再看看近两年中共大肆推行数字货币，很难相信开篇副行长李波所说的：“人民币国际化是一个自然而然的过程”。最终我们发现，投资、“一带一路”和虚拟货币三个领域其本质是相互配合着达到中共险恶的目的。
+
+郭文贵先生在4月15日的直播中说到：中共近期在欧洲亚洲大量推广DCEP，挑战SWIFT银行结算系统。同时，我们也看到，大部分国家都存在债务问题，高额债务的国家更易遭受中共国货币战的攻击。比如美国的30万亿美元债务，就时刻面临着数字人民币的威胁。如果连美国这样经济体量的国家都有这种风险，那么数字人民币对中小国家边缘性的货币和货币政策施加影响岂不是轻而易举？ 数字人民币的最终目的是干掉美元。我们不能让魔鬼得逞，因为它只会成为魔鬼统治人民的武器。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpeg)
+
+编辑/校对：Irene木木 小鹿妞妞
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

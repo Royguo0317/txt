@@ -1,37 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】日常系列（二）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1121569/)
+## 【G时评】原创时政小段子：养、套、杀，全套服务
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1121819/)
 
-香草山配音组：Swr拥抱太阳
+作者：Giselle
+![]()![](https://gnews.org/wp-content/uploads/2021/04/unnamed-2.png)
+图片：雅典娜设计组 Ameir艾梅儿
 
-**一个年轻吉他手的日常**
+1，习近平说，中国永远不会参加军备竞赛……
 
-岁月是镜子，照着孤单的音符；
+——啥叫军备竞赛？病毒算不算？
 
-昼夜颠倒，是一个青年的前奏。
+必须得算啊，低成本，高回报，杀人于无形，顺便还能摧毁对方的经济、颠覆其政治体制……还有比这更完美的武器吗？
 
-梦醒时分和休止符一样短暂，
+其他导弹、飞机方面，那就算了，中共就算参加也赢不了。
 
-这青春的白日梦弹唱着暴雨。
+2，4月19日上海国际车展中，有一名女子爬上特斯拉车顶大闹，对此，你怎么看？
 
-文字版全文：[【香草诗词汇】日常系列（二）](https://gnews.org/zh-hans/878154/)
+——中共对外企的养、套、杀，三板斧，总得找个由头。
 
-作者：香草山写作组 木白
+这个爬上特斯拉车顶的年轻女子，她知道特斯拉是怎么回事么？她开过特斯拉么？她了解电动车不？她甚至不知道特斯拉的刹车在哪里，就说特斯拉的刹车有问题。
 
-发稿：正义的小新
-![This image has an empty alt attribute; its file name is 4_April-2.jpeg]()![This image has an empty alt attribute; its file name is 4_April-2.jpeg](https://gnews.org/wp-content/uploads/2021/04/4_April-2.jpeg)
-**更多资讯，更多关注**
+这就是问题。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+3，俄罗斯要驱逐100万非法移民，其中大部分是中国人，对此，你怎么看？
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+——普京太狠、太了解中共了！
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+他是克格勃出身，十分清楚中共所谓的“全民皆兵”策略。为了避免潜伏在俄国的中共间谍搞破坏，干脆全部驱逐省事。
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+海外华人其实十分危险，分分钟面临被所在国驱逐命运。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+再不站出来与中共切割，真的没机会了！
+
+4，为什么俄罗斯说驱逐100万非法移民，墙内媒体都不报道里面大部分是中国人？
+
+——太没面子了！中共还指望俄罗斯一起联俄抗美呢。
+
+5，最新的全球新闻自由指数，香港列80，中共国倒数第四。对此，你怎么看？
+
+——全球有新闻自由吗？
+
+（文章内容仅代表作者个人观点）
 
 0
