@@ -1,25 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 简讯!德国多地养老院在接种疫苗后再次爆发感染
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1120737/)
+## 《路德社》精选主题专栏： 中共王朝落幕前的表演
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1120832/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/k-mitch-hodge-r3IE4JJLrFk-unsplash.jpg)
-*编撰：西联777*
-据多家德国媒体报道，当地时间4月16日，位于莱希林根（Leichlingen）的一家养老院在接种新冠疫苗后再次爆发聚集性感染，同时在雷姆沙伊德（Remscheid）和波鸿（Bochum）市的养老院也有类似案例发生。
+《路德社》精选主题专栏组出品
 
-位于莱希林根（Leichlingen）的这家养老院总共生活着有大约60人，其中95%的居民已经在一月份接种过第二剂的新冠疫苗或已接受过新冠治疗。但在本周早些时间，经PCR测试确认，该养老院里的17名居民和员工检测结果呈阳性。目前尚未得到确认是否是居民和员工接种了疫苗然后传播了这种病毒，但进入养老院的每个人都要接受定期测试，访客每48小时检查一次，员工每72小时检查一次,病毒极不可能是从外面带进养老院的。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/GUIUFZ57KVMHNA3X6XANDHZCHY.jpg)
 
-感染流行病学家蒂莫·乌尔里希斯（Timo Ulrichs）认为这种情况非常令人困扰，毕竟像大多数其他专家一样，他认为“疫苗本应可以预防所有这些疾病，使接种者免受感染，传播和疾病的侵扰。”
+在中共国南海剑拔弩张，一触即发的紧张气氛中，中共国用来炫耀亚洲龙头地位的博鳌论坛又开幕了， 不同于以往的是，中共国首脑习近平在开幕式上的讲话，句句不离反对霸权，呼吁平等协商，硬生生把一个经济论坛活动政治化，更像是落水狗被痛打之前虚张声势的最后表演。
 
-*免责声明：以上内容仅代表作者本人观点，与农场和GNEWS无关。*
+路透社4月20日，报道了习近平在博鳌开幕式的讲话，“国际上的事应该由大家共同商量着办，世界前途命运应该由各国共同掌握”，呼吁在全球治理中拒绝霸权。这听上去怎么有点贼喊捉贼的意思，到底是谁不愿意商量着办啊？如果习不那么健忘的话，今年3月18日的中美阿拉斯加会议上，对美国国务卿布林肯说“你们没有资格在中国的面前说，你们从实力的地位出发，跟中国谈话……中国人是不吃这一套的。”说这话的难道不是中共代表吗，世界第一强国美国都没有资格与中共对话，那习近平所指的平等协商的对象其实根本就不存在，话外音就是，全世界都没有资格与中共协商！
 
-*参考信息来源：*[https://www1.wdr.de/nachrichten/themen/coronavirus/altenheim-leichlingen-corona-ausbruch-100.html](https://www1.wdr.de/nachrichten/themen/coronavirus/altenheim-leichlingen-corona-ausbruch-100.html) 
-[https://www.ksta.de/region/leverkusen/leichlingen/ausbruch-im-seniorenheim-14-vollstaendig-geimpfte-sind-corona-positiv-38292474](https://www.ksta.de/region/leverkusen/leichlingen/ausbruch-im-seniorenheim-14-vollstaendig-geimpfte-sind-corona-positiv-38292474) 
-[https://www.rnd.de/panorama/nrw-zwei-dutzend-geimpfte-altenheim-bewohner-aus-remscheid-und-leichlingen-mit-corona-infiziert-UUVZJEDTVBJKW4WTPLAMO3CR54.html](https://www.rnd.de/panorama/nrw-zwei-dutzend-geimpfte-altenheim-bewohner-aus-remscheid-und-leichlingen-mit-corona-infiziert-UUVZJEDTVBJKW4WTPLAMO3CR54.html) 
-[https://www.bild.de/regional/koeln/koeln-aktuell/im-leichlinger-altenheim-corona-infektionen-bei-geimpften-bestaetigt-76079524.bild.html](https://www.bild.de/regional/koeln/koeln-aktuell/im-leichlinger-altenheim-corona-infektionen-bei-geimpften-bestaetigt-76079524.bild.html)
+报道称，习近平在讲话中呼吁世界要正义，而不是霸权。习大神眼中的正义，究竟指的是什么？难道是撕毁中英联合声明？是将国安法强加给香港人民，将香港参加游行抗议的民众赶尽杀绝？还是修改香港选举法，把香港的民主派全送去判刑坐牢？这就是中共所谓的正义世界吗？
 
-*审核收稿：西联777
-编辑发布：西联777*
+正值郭文贵先生2017年4月19日断播门4周年纪念日，流氓中共的黑手都掐在美国”新闻喉舌”美国之音的脖子上了，就这样还觉得世界没给中共“正义”，还要世界对中共骂不还口，打不还手，任由中共胡作非为才叫正义吗？中共在全世界耍霸权，还要美其名曰正义，多么无耻霸道。
+
+习近平估计也看到了目前汹涌而来的全球灭共潮，他在讲话里说，“不能把一个或几个国家制定的规则强加于人，也不能由个别国家的单边主义给整个世界“带节奏”。习的境界终究无法超过中共的五毛思维，世界人民的节奏岂是中共这个大五毛能带动的？
+
+2001年，世界怀着对中共发展经济，从而推动民主进步的美好愿望，接纳中共进入世界贸易组织WTO，博鳌论坛也乘着这一东风于2002年应运而生，但是中共不仅没有主动融入世界文明大家庭，反而是利用手中掌握的14亿奴隶血汗的集中优势，强势侵蚀西方经济，政治，文化各个层面，妄图将自己的威权体制扩大到整个地球，成为他一党称霸的命运共同体。澳大利亚作为博鳌论坛的发起国，就因为坚持追查中共病毒源头，所有的海鲜，葡萄酒被禁止出口中共；同样是博鳌论坛发起国的菲律宾，牛轭礁周边海域3月7日，被中共200多艘武装民兵船只侵犯。如此恶行，早就让世界人民忍无可忍，随着中共病毒真相披露，仍然与中共站在一起的只剩邪恶轴心国成员。
+
+新中国联邦，法治社会主席斯蒂夫.班农先生曾说，给14亿中国老百姓民主和自由是21世纪人类社会首要大事。中共病毒让全世界人民对中国老百姓遭受的痛苦感同身受，世界不会再对中共种族灭绝，反人类罪行听之任之，中共唯有自行解散，承担罪责，才能向天下谢罪。如今，中共还在用博鳌论坛等为自己涂脂抹粉，妄想用假, 骗，偷，抢重回世界中心，只会加速中共灭亡，还要连累中共国内蒙在鼓里的老百姓。爆料革命尽管唤醒了西方社会，要突破中共魔障，唤醒国内民众，仍需继续努力。
+
+
+
+[参考链结](https://www.reuters.com/world/china/chinas-president-xi-says-global-governance-system-should-be-more-equitable-fair-2021-04-20/)
+
+【文章仅代表作者个人观点】
+
+本文作者：sherryok水云间
+
+审核校对：玫瑰新闻组
+
+上传排版：糊糊文婴
 
 0

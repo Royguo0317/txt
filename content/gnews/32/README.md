@@ -1,33 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国国务院发出最高级别警告：请勿旅行
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1120421/)
+## 喀秋莎新闻参考- 2021年4月19日(星期一)
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1120592/)
 
-作者：Chloe
-![]()![](https://gnews.org/wp-content/uploads/2021/04/ggg-1.jpg)
-4月19日美国国务院宣布，接下来的几周将对世界上约80%的国家发出 “第4级：请勿旅行” 的警告。 这是国务院最高级别警告 （1）。
+俄罗斯莫斯科喀秋莎农场 土星
 
-国务院在官方声明中表示，旅行时感染COVID-19的风险仍然过高，并敦促美国人“重新考虑所有海外旅行”。
+编辑 НастяApfel(娜斯佳)    上传 星河
+![]()![](https://gnews.org/wp-content/uploads/2021/04/789-7.png)playground.ru
+一、新中国联邦新闻
 
-第4级警告一般保留给战乱国家或被认为对美国公民有敌意的国家，如阿富汗和朝鲜。 即使在几内亚新冠与埃博拉大流行，美国国务院于2021年的2月25日对其发出的警告停留在第3级 （2）。
+1.“路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=t2uydnugXhw)、[晚间](https://www.youtube.com/watch?v=D2PlQsdhgrE)）:
 
-国务院今天的这则声明和疾控中心两周前发布的指导方针不一致。 疾控中心认为完全接种疫苗的人可以进行国际旅行，无需再旅行前接受COVID-19检测；而且返美后不需要自我隔离（3）。
+Ⅰ. 今天是郭文贵先生接受美国之音采访被断播四周年。美国之音“4·19断播”事件在新闻媒体上引起轩然大波，隶属美国政府管辖的美国之音被中共严重渗透，这远不只是一件腐败案件，而是中共对美国发起的超限战。
 
-国务院今天发布声明一个可能的原因是近几天当局可能发现疫苗对变异的新冠病毒无效。 今天福奇说到秋季公众将知道是否需要打第三针疫苗 （4）。 莫德纳首席执行官本周表示，该公司将在秋季之前向美国人提供疫苗第三剂（5）。
+Ⅱ. 塞林博士（Dr. Sellin）4月19日再发重磅推文：在新冠疫情大流行的病毒实验室起源中，中共的政治商业关系和竞争是如何发挥作用的？
 
-辉瑞也表达了类似的计划。 两天前辉瑞CEO说6至12个月内公众可能需要接种第三剂冠状病毒疫苗，并且“之后每年要重新接种”（6）。
+2. 在福克斯新闻频道周一播出的”特别报道”中，参议员汤姆·科顿（Tom Cotton）表示，中共”正试图为有朝一日能入侵和吞并台湾做准备，这对美国利益来说将是一场灾难。”而美国”必须让中共清楚地明白，如果中共尝试入侵并强行吞并台湾，我们将一定会保卫台湾。”
 
-参考文献：
+3. 美国众议院周一通过一项决议，正式谴责中共政府和香港地区政府 “侵犯该地区公民权利和自由”的行为。立法者以418：1的投票结果通过了这项决议，呼吁中共政府和香港特别行政区，释放因去年颁布的《国安法》而被捕的亲民主活动人士和政治家，该法减少了城市的自治权，并对抗议者实施了更严厉的惩罚。
 
-1. [https://www.dailymail.co.uk/health/article-9488745/US-State-Department-issue-Level-4-Not-Travel-advisory-80-countries.html](https://www.dailymail.co.uk/health/article-9488745/US-State-Department-issue-Level-4-Not-Travel-advisory-80-countries.html)
-2. [https://travel.state.gov/content/travel/en/traveladvisories/traveladvisories/guinea-travel-advisory.html#:~:text=N’Zerekore%20Region%3A%20Level%204,with%20updates%20to%20Ebola%20Information](https://travel.state.gov/content/travel/en/traveladvisories/traveladvisories/guinea-travel-advisory.html#:~:text=N'Zerekore%20Region%3A%20Level%204,with%20updates%20to%20Ebola%20Information).
-3. [https://www.cdc.gov/media/releases/2021/p0402-travel-guidance-vaccinated-people.html#:~:text=Fully%20vaccinated%20people%20can%20travel%20internationally%20without%20getting%20a%20COVID,a%20state%20or%20local%20jurisdiction](https://www.cdc.gov/media/releases/2021/p0402-travel-guidance-vaccinated-people.html#:~:text=Fully%20vaccinated%20people%20can%20travel%20internationally%20without%20getting%20a%20COVID,a%20state%20or%20local%20jurisdiction).
-4. [https://thehill.com/homenews/sunday-talk-shows/548879-fauci-public-will-know-if-third-vaccine-dose-is-needed-by-fall](https://thehill.com/homenews/sunday-talk-shows/548879-fauci-public-will-know-if-third-vaccine-dose-is-needed-by-fall)
-5. [https://www.cbsnews.com/news/moderna-covid-vaccine-booster-shots/](https://www.cbsnews.com/news/moderna-covid-vaccine-booster-shots/)
-6. [https://abc7ny.com/health/third-vaccine-dose-likely-needed-in-6-to-12-months-pfizer-ceo-says/10520223/](https://abc7ny.com/health/third-vaccine-dose-likely-needed-in-6-to-12-months-pfizer-ceo-says/10520223/)
+4. 周一，人权观察（HRW）和斯坦福大学法学院“人权与冲突解决诊所”发布的一份新报告称，中共政府对新疆的维吾尔族穆斯林和其他突厥少数民族犯有反人类罪。
 
+5. 布林肯周一在马里兰州发表演讲时表示，气候变化将越来越成为美国外交政策的中心，但他发誓拜登政府不会因为其他国家在遏制气候变化方面取得进展，而让他们逃脱侵犯人权等方面的追责。
 
-发布：GLC
+6. 菲律宾总统杜特尔特周一表示，他准备派遣军舰前往南中国海，对这一战略航道有争议部分的石油和矿产资源”讨说法”。
+
+7. 欧盟正在寻求在5g上与印度合作，以”远离”中共公司的电信基础设施。欧盟（EU）将在下个月与印度领导人会晤时讨论实施5G技术并制定全球安全标准，因为人们对中共电信巨头的主导地位的担忧日益增加。
+
+8. 周二，东京警视厅决定对一名工程师提起诉讼，他是中共党员，涉嫌参与针对日本太空总署JAXA及其他约200家日本公司和研究机构的网络攻击。
+
+9. 中共官方媒体对台湾问题保持沉默，这种相对低调的回应表明，在气候谈判和中共即将到来的100周年纪念日之前，试图避免与美国和日本的关系紧张。
+
+10. 五矿发展周一表示，互联网公司面临着广泛的反垄断压力，中共市场监管机构正在调查电子商务巨头阿里巴巴集团（9988.HK）和五矿发展（600058.SS）。
+
+11. 根据新闻自由组织”记者无国界”的说法，中共对记者的迫害，可能通过在大流行初期阻止举报人来促成全球冠状病毒大爆发。
+
+12. 在与美国关系紧张的情况下，习近平警告不要搞“单边主义”，周二呼吁更公平地管理全球事务，同时暗示拒绝美国的主导地位，说政府不应该对其他人施加规则。
+
+13. 根据周一发布的一份报告显示，来自亚马逊支持的”联合创新中心”的获奖公司仁威电子，正在帮助中共当局追踪新疆的囚犯。
+
+14. 中共央行副行长李波18日表示，将会继续扩大数字人民币项目试点范围，人民币国际化应该是自然而然的过程，目标不是要取代美元或其他货币，希望“让市场来做出选择”。
+
+二、世界新闻
+
+1. 美国参议员马克·华纳周一表示，在针对软件公司太阳风（SolarWinds）的大规模网络攻击发生后，如果欧盟和美国不积极地制定共同的网络安全标准，可能会产生灾难性的后果。
+
+2. 东盟集团秘书处周二表示，在欧盟对2月1日夺取政权的缅甸军政府实施了迄今为止最严厉的制裁之后，东南亚国家将于周六在雅加达举行的峰会上讨论缅甸危机。
+
+3. 在周一的虚拟简报会后发布的一份声明中，世卫组织国际卫生标准紧急委员会，正式建议各国政府避免强制推行使用疫苗护照，这种趋势已经在英国开始显现。
 
 0
