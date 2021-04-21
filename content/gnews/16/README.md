@@ -1,35 +1,166 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕】4/20/2021文贵盖特 1：共产党为什么又在这个病毒肆虐的时候再推出老妈咪，大老仟，王岐山出来公关？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1121659/)
+## 美国《2021战略竞争法》第223、224节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1121636/)
 
-制作： 【彩虹桥】
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/U-17.jpg)news.yahoo.com
+“副标题B——国际安全事务”第223、224节。
 
+要点：国会意识到应该，支持日本发展远程精确打击、军需、空中和导弹防御能力，跨所有领域的交互操作性、海上安全和情报以及监视和侦察能力，启动美日国家安全创新基金，争取和支持私营部门合作开发有利于美日共同安全目标的新技术，促进日本和澳大利亚之间更深入的防务关系，鼓励和促进台湾加快获得不对称防御能力，增加与台湾国防军进行相关的实际训练和演习。在印度洋-太平洋地区维持前沿部署军力，包括轮流轰炸部队的部署、综合导弹防御能力、远程精确打击、海底作战能力，以及多样化和弹性的基地和轮流部署，包括支持预先定位战略。
 
-尊敬的战友们好，4月20号了，王岐山又出来了，中美之间要谈环境治理了。共同治理世界，现在共同治理环境、环保。这跟被判了死刑的人，在临执行前要谈哲学、人生，要谈所谓的天堂是一模一样的，叫生死前的安慰。还有人在进火葬场烧之前，临死前得化化妆，一模一样的道理。
+制止中共国对美国及其盟国利益的侵略或胁迫行为，特别是第一岛链沿线和西太平洋地区的利益，向中共国领导人表明，美国能够而且愿意拒绝他们实现其目标的企图，加强广泛的威慑，以确保针对（损害）美国主要利益的扩张行为将是代价高昂、风险巨大和自取灭亡的。
 
-王岐山在海航出来了，干嘛呢？就是让全世界来跟我继续勾兑，我这儿有利益，开放市场，共同蓝金黄，共同割韭菜。王岐山出来另外一个证明了什么？扬雄死后，上海帮必须再推出更牛的人，同时得让王岐山出来，孟建柱得出来，因为江家没代表人了。就韩正、王岐山，是不是？然后上海的几个人，对不对？孟建柱。同时也说明了“习大神”离了他和西方的勾兑完全不行。
+欲了解更多的內容，请看本节全文（仅供参考）。
 
-你看习的那个稿子了吗？所有的稿子谁写的？外交部写的。外交部写的稿子，几乎反过来全是打他自己脸的。不但如此，大家能看到习的状况非常糟，很恐惧。所有写的这东西，都是他对这个事情的恐惧，你好好看看这文章。
+第223节 国会支持印太安全伙伴关系的意识
 
-王岐山所谓的“临时报幕人”，为啥说“临时报幕人”？就是忽悠习。更重要的事情，一个国家副主席就是国家副总统，没有任何一个国家的副总统，不等着总统死掉了，不等着总统被干掉的，因为只有他干掉了死掉了，他才有机会。这个职务永远不可能亲密无间。绝对是亲密、绝对是巨大的空间，就等着对方死掉。这是一个永远的不变的规则，你亲兄弟都不行。
+正是国会意识到了这一点，才采取措施加强美国在印太地区的安全伙伴关系必须包括 –
+（1）支持日本发展远程精确打击、军需、空中和导弹防御能力，跨所有领域的交互操作性、海上安全和情报以及监视和侦察能力；
 
-你像查尔斯王子，在很早的时候就给温莎公爵写信，希望他妈妈赶快下台，希望女王赶快嗝屁，因为他好当皇上，对吧？就这么简单。亲儿子，对吧？何况你说他们两个是狼狈为奸，异床同梦的所谓的权力的“嗜血者”。大家这个时候就能看到，中国的夜总会，开夜总会的，只要那个最老的妈咪再出现的时候，就说明这个夜总会的生意不好了。还有这生意，客人出事儿了，需要老妈咪出来给你拉客人 ，就找那些所谓的大老板、老客人，来啊，我们最近来了一些小姑娘，是吧？还有新来的小伙子，鸭子，年轻的，还有新疆的..就来了，这一定是缺客了，不是“接客马”Jack Ma，是“缺客王”（王岐山）， 一缺客，王岐山就出现了，要“蓝金黄”了，说明了国内的经济极度危险，说明中共面临最大的问题，就是外贸上和国际关系上遇到了灾难。所以现在要联王对外，解决内部的问题。这暴露了一个最大的我们爆料革命所说的共产党完球蛋了！
+（2）启动美日国家安全创新基金，争取和支持私营部门合作开发有利于美日共同安全目标的新技术；
 
-美国对他谈环境，谈的是什么？战友们？美国跟他谈环境就像和一个杀人犯，把一个村里最有钱的村长、最有钱的人和当地最有学问的人，什么美、英、日，所有人的家人都已经放了毒了，甚至是杀掉了，而是还偷人家的钱，偷人家的东西，这个时候村长和这些有钱的，有学问的，要跟这个杀人犯这个流氓，很大一块谈什么？要谈哲学，要谈未来，谈天空，谈环境，这是干嘛呢？麻痹你，弄死你。这说明了这个村长和这个流氓之间有不可告人的秘密，互相之间都想勾兑一下。还有流氓带有一个不切实际的幻想，想让村长和这些绅士有钱人放过他，包括旁边一个带刀侍卫，日本，Japan在旁边站着呢。
+（3）促进日本和澳大利亚之间更深入的防务关系，包括支持互惠准入协定和美日澳三边情报共享；
 
-希望你们别打我，咱们可以勾兑。现在这村长和带刀的侍卫，还有英国的绅士，还有中东的“油豪”，是吧？好好好，咱可以先谈环境，谈谈治理环境，谈谈哲学，谈谈人生，谈谈未来，谈谈上天…这就叫麻醉！这在人在进入死亡手术台前，像萨达姆勒上脖子前屁股上扎一针，这个你们没看到吧？他扎一针麻醉..减少疼痛，基本上所有上绞刑架前都这样。所以共产党已经感受到了，美国来给我打一麻醉针，这是要勒我的脖子，像萨达姆那样送上呢。
+（4）鼓励和促进台湾加快获得不对称防御能力，这些能力对保卫台湾岛屿免受入侵至关重要，包括远程精确打击、军需、反舰导弹、海防、反装甲、防空、海战、先进指挥、控制、通信、计算机等，情报、监视和侦察（C4ISR）以及弹性指挥和控制能力，并增加与台湾国防军进行相关的实际训练和演习；
 
-赶快喊救兵，现在哥儿们咱不打了。王岐山，江家咱不打了，保住中南坑大家都有利益，都有钱都有肉吃。这是John Kerry在上海遇到了杨洁篪的重挫之后，中共这个不要脸的东西，跟海外欺民贼一样，永远话反着说。
+（5）优先建设美国盟友和伙伴保护国防技术的能力。
 
-你看刚刚公布经济18%增长，然后就在海南博鳌论坛，博鳌论坛叫什么？就是BGY论坛。就开始要死不咧咧的要BGY出来了。把“老妈咪”王岐山给拉出来了，因为妈咪会讲妈咪的话，嫖客听得懂。海外的什么武汉Organization，WHO了，是吧？还有美国华尔街这都要来了。这都是长期密切的关系，嫖客，妈咪懂得嫖客要啥。所以说老妈咪出来了，王岐山！孟建柱还得出来呢，你看着啊，孟建柱第一站去哪？孟建柱要出来一定去中东，从土耳其、中东。孟建柱就是玩这个的，湄公河东南亚是孟建柱开辟的所谓的共产党在南亚的一条情报线，一条所谓给东南亚供给的一个利益线，也是生死线，也是毒品线，也叫黑线。在中东就是土耳其、巴基斯坦、阿富汗，所谓的反恐一条线。马六甲海峡，然后到苏伊士运河，到埃及、中东，这一溜干嘛啊？情报线！石油线！暗黑线！要搞“一带一路”什么安保组织，这就是孟建柱搞的，这都要启动。老妈咪、打手、情报、蓝金黄威胁你，全来了，共产党真是没辙了。
+第224节 政策声明
 
-我是在昨天就知道这个东西，因为我不能说。就大概我昨天搂了一眼，我就知道，习这个东西是谁写的呢？杨洁篪。王沪宁我都不敢说他有多大的参与，但关键是他身边的另外一个人，姓梁的一个高手帮他写的。但这个高手还是懂国际形势的，但就这种情况下，写出这个东西来绝对是砸习的。可见党内现在已经完全正话反说，反话正说。和当年的胡亥，秦始皇的这个小王八蛋，毁掉大秦朝的胡亥旁边的赵高一模一样：指鹿为马，反话正说，正话反说，你才能活下去。
+美国的政策是—
 
-如此看出共产党是完球蛋了。现在还搞DCEP加密货币挑战美元，还要在南海、台湾、整个东南亚我说了算，赶走美国，然后国内的极端的民族主义、极端的所谓的爱国主义，正在操弄。大家再看看当年的1932到1945年，德国和日本一球样。可悲的事情中国人民，所有的一切，谈环境，“老妈咪”出场，最后都是拿中国人的血汗钱，拿你的未来，拿你的生命来做交换，养活中南坑几个老杂毛的用血灌的所谓的“人血之花”。悲剧啊！人们信，人们特别信！
+（1）在美国外交政策中优先考虑印太地区，优先考虑资源，以实现美国在该地区的政治和军事目标；
 
-这就是为什么从过去的新闻媒体，现在有了社交媒体。新闻不属于个人的，但是社交媒体属于个人的。所以社交媒体咱们的盖特，G-TV，G-News太重要了。走着看。咱会把这帮流氓给他彻底戳穿的，灭掉的，中不中？
+（2）在印太领域的国际水域和空域行使行动自由，这对印太地区的繁荣、稳定和安全至关重要；
+
+（3）在印度洋-太平洋地区维持前沿部署军力，包括轮流轰炸部队的部署、综合导弹防御能力、远程精确打击、海底作战能力，以及多样化和弹性的基地和轮流部署，包括支持预先定位战略；
+
+（4）加强和深化美国的联盟和伙伴关系，以提高能力和建设军事力量，增加多边伙伴关系，使通信结构现代化，应对反入侵和区域拒绝挑战，加大联合演习和安全合作力度；
+
+（5）重申美国对印太地区盟国和伙伴的承诺和支持，包括美国长期以来对该地区的政策 –
+（A）1960年1月19日在华盛顿签署的《美日相互合作与安全条约》（the Treaty of Mutual Cooperation and Security between the United States and Japan）第五条；
+（B）1953年10月1日在华盛顿签署的《美国和大韩民国共同防御条约》（the Mutual Defense Treaty between the United States and the Republic of Korea）第三条；
+（C）1951年8月30日在华盛顿签署的《美国和菲律宾共和国共同防御条约》（the Mutual Defense Treaty between the United States and the Republic of the Philippines）第四条规定，由于南中共国海是太平洋的一部分，在南中共国海对菲律宾军队、飞机或公共船只的任何武装攻击都将触发第四条规定的共同防御义务我们的共同防御条约；
+（D）1951年9月1日在旧金山签订的《澳大利亚、新西兰、美国安全条约》（the Australia, New Zealand, United States Security Treaty）第四条；以及
+（E）1954年9月8日在马尼拉签订的《东南亚集体防御条约》（the Southeast Asia Collective Defense Treaty），以及1962年的《塔那特-鲁斯克公报》（the Thanat-Rusk Communique）；以及
+
+（6）与美国在印度洋-太平洋地区的条约盟国合作，促进与其他地区合作伙伴的多边安全和防务合作；
+
+（7）确保美国武装部队在印太地区行动的连续性，包括酌情与伙伴和盟国合作，以便根据国际法的既定原则和惯例重申在国际水域和领空行动自由的原则；
+
+（8）维持《台湾关系法》（he Taiwan Relations Act）（公共法96–8；《美国法典》第22卷第3301节等）；
+
+（9）维持1982年7月美国向台湾提供的“六个保证”，作为美台关系的基础，并尽可能地深化美台广泛、密切和友好的关系，包括合作支持发展有能力、有准备的，以及保卫台湾所必需的现代力量；
+
+（10）加强与印度、东南亚以及印度洋-太平洋其他国家的安全伙伴关系；
+
+（11）制止中共国对美国及其盟国利益的侵略或胁迫行为，特别是第一岛链沿线和西太平洋地区的利益，向中共国领导人表明，美国能够而且愿意拒绝他们实现其目标的企图，包括—
+（A）不断显示出美国深化现有条约联盟和发展新伙伴关系的政治意愿，这种政治意愿作为对中共国不断增长的军事能力和提升的持久的、不对称的和无与伦比的战略优势；
+（B）在印太地区维持一个前方基地部署系统，作为美国决心和对该地区承诺的最明显标志，并作为确保美国战备状态和推进与盟国和伙伴相互操作性的平台；
+（C）在整个区域，特别是西太平洋，采取更广泛的兵力布局，并在整个印度-太平洋区域最大限度地为美国的远程巡航、弹道和高超音速武器的机动和可移动发射器提供通道；
+（D）在第一岛链和第二岛链向美国和盟军部署远程精确打击网络，包括地面发射巡航导弹、水下和海上能力，以及综合防空和导弹防御，以遏制和防止中共国的胁迫和侵略，并最大限度地提高美国的操控能力；
+（E）加强广泛的威慑，以确保针对（损害）美国主要利益的扩张行为将是代价高昂、风险巨大和自取灭亡的；以及
+（F）与盟国和伙伴合作，加速其在更公平地分担共同防御责任方面的作用，包括通过获取和部署先进的军事力量和训练，使其能够更好地击退中共国的侵略或胁迫；以及
+
+（12）保持美国对提高中共国成本支出的能力，中共的这些成本支出是因胁迫或侵略行为而产生，（体现在）外交、经济、金融、声誉以及军事（等方面），保持美国的能力还包括保卫自己及其盟友，而不论针对他们的攻击来自何处。
+（本节完）
+
+原文链接：
+
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+
+文字整理：
+
+SEC. 223. SENSE OF CONGRESS REGARDING BOLSTERING SECURITY PARTNERSHIPS IN THE INDO-PACIFIC.
+
+It is the Sense of Congress that steps to bolster United States security partnership in the Indo-Pacific
+
+must include—
+
+(1) supporting Japan in its development of long-range precision fires, munitions, air and missile
+
+defense capacity, interoperability across all domains, maritime security, and intelligence, and surveillance and reconnaissance capabilities;
+
+(2) launching a United States-Japan national security innovation fund to solicit and support private sector cooperation for new technologies that could benefit the United States and Japan’s mutual
+
+security objectives;
+
+(3) promoting a deeper defense relationship between Japan and Australia, including supporting reciprocal access agreements and trilateral United States-Japan-Australia intelligence sharing;
+
+(4) encouraging and facilitating Taiwan’s accelerated acquisition of asymmetric defense capabilities,
+
+which are crucial to defending the islands of Taiwan from invasion, including long-range precision fires, munitions, anti-ship missiles, coastal defense, antiarmor, air defense, undersea warfare, advanced command, control, communications, computers, intelligence, surveillance and reconnaissance (C4ISR), and resilient command and control capabilities, and increasing the conduct of relevant and practical training and exercises with Taiwan’s defense forces; and
+
+(5) prioritizing building the capacity of United States allies and partners to protect defense technology.
+
+SEC. 224. STATEMENT OF POLICY.
+
+It shall be the policy of the United States to—
+
+(1) prioritize the Indo-Pacific region in United States foreign policy, and prioritize resources for
+
+achieving United States political and military objectives in the region;
+
+(2) exercise freedom of operations in the international waters and airspace in the Indo-Pacific
+
+maritime domains, which are critical to the prosperity, stability, and security of the Indo-Pacific region;
+
+(3) maintain forward-deployed forces in the Indo-Pacific region, including a rotational bomber presence, integrated missile defense capabilities, long-range precision fires, undersea warfare capabilities, and diversified and resilient basing and rotational presence, including support for pre-positioning strategies;
+
+(4) strengthen and deepen the alliances and partnerships of the United States to build capacity and capabilities, increase multilateral partnerships, modernize communications architecture, address anti-access and area denial challenges, and increase joint exercises and security cooperation efforts;
+
+(5) reaffirm the commitment and support of the United States for allies and partners in the Indo-Pacific region, including longstanding United States policy regarding—
+
+(A) Article V of the Treaty of Mutual Cooperation and Security between the United States and Japan, signed at Washington January 19, 1960;
+
+(B) Article III of the Mutual Defense Treaty between the United States and the Republic of Korea, signed at Washington October 1, 1953;
+
+(C) Article IV of the Mutual Defense Treaty between the United States and the Republic of the Philippines, signed at Washington August 30, 1951, including that, as the South China Sea is part of the Pacific, any armed attack on Philippine forces, aircraft or public vessels in the South China Sea will trigger mutual defense obligations under Article IV of our mutual defense treaty;
+
+(D) Article IV of the Australia, New Zealand, United States Security Treaty, done at San Francisco September 1, 1951; and
+
+(E) the Southeast Asia Collective Defense Treaty, done at Manila September 8, 1954, together with the Thanat-Rusk Communique of 1962; and
+
+(6) collaborate with United States treaty allies
+
+in the Indo-Pacific to foster greater multilateral security and defense cooperation with other regional
+
+partners;
+
+(7) ensure the continuity of operations by the United States Armed Forces in the Indo-Pacific region, including, as appropriate, in cooperation with partners and allies, in order to reaffirm the principle of freedom of operations in international waters and airspace in accordance with established principles and practices of international law;
+
+(8) sustain the Taiwan Relations Act (Public Law 96–8; 22 U.S.C. 3301 et seq.);
+
+(9) sustain the ‘‘Six Assurances’’ provided by the United States to Taiwan in July 1982 as the
+
+foundations for United States-Taiwan relations, and to deepen, to the fullest extent possible, the extensive, close, and friendly relations of the United States and Taiwan, including cooperation to support the development of capable, ready, and modern forces necessary for the defense of Taiwan;
+
+(10) enhance security partnerships with India, across Southeast Asia, and with other nations of the Indo-Pacific;
+
+(11) deter acts of aggression or coercion by the PRC against United States and allies’ interests, especially along the First Island Chain and in the Western Pacific, by showing PRC leaders that the United States can and is willing to deny them the ability to achieve their objectives, including by—
+
+(A) consistently demonstrating the political will of the United States to deepening existing treaty alliances and growing new partnerships as a durable, asymmetric, and unmatched strategic advantage to the PRC’s growing military capabilities and reach;
+
+(B) maintaining a system of forward-deployed bases in the Indo-Pacific region as the
+
+most visible sign of United States resolve and commitment to the region, and as platforms to
+
+ensure United States operational readiness and advance interoperability with allies and partners;
+
+(C) adopting a more dispersed force posture throughout the region, particularly the Western Pacific, and pursuing maximum access for United States mobile and relocatable launchers for long-range cruise, ballistic, and hypersonic weapons throughout the Indo-Pacific region;
+
+(D) fielding long-range, precision-strike networks to United States and allied forces, including ground-launched cruise missiles, under sea and naval capabilities, and integrated air and missile defense in the First Island Chain and the Second Island Chain, in order to deter and prevent PRC coercion and aggression, and to maximize the United States ability to operate;
+
+(E) strengthening extended deterrence to ensure that escalation against key United States interests would be costly, risky, and self-defeating; and
+
+(F) collaborating with allies and partners to accelerate their roles in more equitably sharing the burdens of mutual defense, including through the acquisition and fielding of advanced capabilities and training that will better enable them to repel PRC aggression or coercion; and
+
+(12) maintain the capacity of the United States to impose prohibitive diplomatic, economic, financial,
+
+reputational, and military costs on the PRC for acts of coercion or aggression, including to defend itself and its allies regardless of the point of origin of at tacks against them.
 
 0
