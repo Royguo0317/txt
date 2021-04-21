@@ -1,43 +1,166 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国与缅甸录得宗教自由纪录最差
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1121554/)
+## 美国《2021战略竞争法》第223、224节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1121636/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/M-13.jpg)en.adhrrf.org
-据路透社4月20日报道，梵蒂冈资助的某个慈善机构发布的报告称，25个国家侵犯宗教自由的行为处于上升态势，而中共国和缅甸的宗教自由纪录最差。
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/U-17.jpg)news.yahoo.com
+“副标题B——国际安全事务”第223、224节。
 
-周二（4月20日）发布的涵盖2019-2020年的《世界宗教自由报告》说，在一些国家，如尼日尔、土耳其和巴基斯坦，对宗教少数群体的偏见导致当地居民将中共病毒疫情和拒绝获得医疗援助归咎于他们。
+要点：国会意识到应该，支持日本发展远程精确打击、军需、空中和导弹防御能力，跨所有领域的交互操作性、海上安全和情报以及监视和侦察能力，启动美日国家安全创新基金，争取和支持私营部门合作开发有利于美日共同安全目标的新技术，促进日本和澳大利亚之间更深入的防务关系，鼓励和促进台湾加快获得不对称防御能力，增加与台湾国防军进行相关的实际训练和演习。在印度洋-太平洋地区维持前沿部署军力，包括轮流轰炸部队的部署、综合导弹防御能力、远程精确打击、海底作战能力，以及多样化和弹性的基地和轮流部署，包括支持预先定位战略。
 
-这份800页的报告是由国际援助贫困教会组织（ACN）编写的，该组织是一个研究侵犯所有宗教自由的世界性天主教慈善机构。
+制止中共国对美国及其盟国利益的侵略或胁迫行为，特别是第一岛链沿线和西太平洋地区的利益，向中共国领导人表明，美国能够而且愿意拒绝他们实现其目标的企图，加强广泛的威慑，以确保针对（损害）美国主要利益的扩张行为将是代价高昂、风险巨大和自取灭亡的。
 
-最新的报告将26个国家列入 “红色” 类别，表示存在迫害，而两年前的最后一份报告中，有 21个国家。表示存在歧视的有36个国家，以 “橙色” 表示，而两年前只有17个国家是此类别。
+欲了解更多的內容，请看本节全文（仅供参考）。
 
-报告将 “歧视” 描述为法律或规则适用于某一特定群体而非所有人，将 “迫害” 描述为通过基于宗教的积极计划来征服人们。
+第223节 国会支持印太安全伙伴关系的意识
 
-报告说：“对宗教的迫害和压迫的严重程度显著增加。” 其中对中共国和缅甸的批评尤为严厉。“中国共产党（CCP）近年来打造的宗教镇压机器是经过精心调整、广泛适用和技术上先进的。” 其中，最恶劣的侵权行为是针对新疆的维吾尔族穆斯林的迫害，“那里的暴行已呈现规模化和系统化，以至于越来越多的专家将其定性为种族灭绝行为。”
+正是国会意识到了这一点，才采取措施加强美国在印太地区的安全伙伴关系必须包括 –
+（1）支持日本发展远程精确打击、军需、空中和导弹防御能力，跨所有领域的交互操作性、海上安全和情报以及监视和侦察能力；
 
-今年2月，拜登政府赞同川普政府在最后一刻认定中共在新疆犯下了种族灭绝罪，并表示美国必须准备好让中共为此付出代价。
+（2）启动美日国家安全创新基金，争取和支持私营部门合作开发有利于美日共同安全目标的新技术；
 
-中共国说，它在新疆建立的是提供职业培训的训练营，目的是防止伊斯兰极端主义和分裂主义的侵蚀。中共国外交部称关于强迫劳动和侵犯人权的指控是 “毫无根据的谣言和诽谤”。
+（3）促进日本和澳大利亚之间更深入的防务关系，包括支持互惠准入协定和美日澳三边情报共享；
 
-ACN的报告称，尽管北京和梵蒂冈在2018年签署了关于在大陆任命主教的里程碑式的协议，但中共国的天主教教职人员仍旧 “继续遭受骚扰和逮捕”。路透社去年曾报道，两名梵蒂冈驻香港使团工作的修女在回大陆探亲时被逮捕。同时，中共国加强了通过面部识别技术监控各种宗教信徒的行踪。
+（4）鼓励和促进台湾加快获得不对称防御能力，这些能力对保卫台湾岛屿免受入侵至关重要，包括远程精确打击、军需、反舰导弹、海防、反装甲、防空、海战、先进指挥、控制、通信、计算机等，情报、监视和侦察（C4ISR）以及弹性指挥和控制能力，并增加与台湾国防军进行相关的实际训练和演习；
 
-2017年缅甸发生的“罗兴亚穆斯林人道危机事件是近期有记录以来最恶劣的侵犯人权的暴行”。去年，国际法庭命令缅甸必须采取紧急措施，以保护罗兴亚人免遭种族灭绝。但是，缅甸政府否认了关于种族灭绝的指控。2月1日发生的缅甸军事政变 “可能会使缅甸所有宗教少数群体的境况变得更糟”，缅甸国内约有8%的人口是基督徒。
+（5）优先建设美国盟友和伙伴保护国防技术的能力。
 
-非洲将成为 “打击伊斯兰激进分子的下一个战场”。激进组织正在毛里塔尼亚、马里、布基纳法索、尼日尔、尼日利亚、喀麦隆北部、乍得、中非共和国、刚果民主共和国、索马里和莫桑比克等国造成严重破坏。
+第224节 政策声明
 
-另据2020年11月12日皮尤研究中心发布的研究成果称，宗教迫害正在世界范围内日益增加，其中最严重的当属各国政府实施的各种限制。在接受调查的198个政府中，中共国排名第一，其次是伊朗、马来西亚、塔吉克斯坦和其他21个亚洲国家。
+美国的政策是—
 
-研究表明，“一些亚太国家达到了极高的指数，这在政府限制实施之前从未达到过。在接受调查的198个国家和地区中，中共国的政府限制指数持续保持最高分数。自相关研究开始以来，中共国每年在最受限制国家名单中排在最前，并于2018年达到新高（9.3分，满分10分）。”
+（1）在美国外交政策中优先考虑印太地区，优先考虑资源，以实现美国在该地区的政治和军事目标；
 
-参考链接：
+（2）在印太领域的国际水域和空域行使行动自由，这对印太地区的繁荣、稳定和安全至关重要；
 
-[1] [China, Myanmar and others criticised in report on rising religious persecution – REUTERS – 2021/04/20](https://www.reuters.com/world/china/china-myanmar-others-criticised-report-rising-religious-persecution-2021-04-20/)
+（3）在印度洋-太平洋地区维持前沿部署军力，包括轮流轰炸部队的部署、综合导弹防御能力、远程精确打击、海底作战能力，以及多样化和弹性的基地和轮流部署，包括支持预先定位战略；
 
-[2] [政府实施的宗教迫害在世界范围内日益增长，中国排第一位 – ASIAN NEWS – 2020/11/13](http://www.asianews.it/news-zh/%E6%94%BF%E5%BA%9C%E5%AE%9E%E6%96%BD%E7%9A%84%E5%AE%97%E6%95%99%E8%BF%AB%E5%AE%B3%E5%9C%A8%E4%B8%96%E7%95%8C%E8%8C%83%E5%9B%B4%E5%86%85%E6%97%A5%E7%9B%8A%E5%A2%9E%E9%95%BF%E3%80%82%E4%B8%AD%E5%9B%BD%E6%8E%92%E7%AC%AC%E4%B8%80%E4%BD%8D-51576.html)
+（4）加强和深化美国的联盟和伙伴关系，以提高能力和建设军事力量，增加多边伙伴关系，使通信结构现代化，应对反入侵和区域拒绝挑战，加大联合演习和安全合作力度；
+
+（5）重申美国对印太地区盟国和伙伴的承诺和支持，包括美国长期以来对该地区的政策 –
+（A）1960年1月19日在华盛顿签署的《美日相互合作与安全条约》（the Treaty of Mutual Cooperation and Security between the United States and Japan）第五条；
+（B）1953年10月1日在华盛顿签署的《美国和大韩民国共同防御条约》（the Mutual Defense Treaty between the United States and the Republic of Korea）第三条；
+（C）1951年8月30日在华盛顿签署的《美国和菲律宾共和国共同防御条约》（the Mutual Defense Treaty between the United States and the Republic of the Philippines）第四条规定，由于南中共国海是太平洋的一部分，在南中共国海对菲律宾军队、飞机或公共船只的任何武装攻击都将触发第四条规定的共同防御义务我们的共同防御条约；
+（D）1951年9月1日在旧金山签订的《澳大利亚、新西兰、美国安全条约》（the Australia, New Zealand, United States Security Treaty）第四条；以及
+（E）1954年9月8日在马尼拉签订的《东南亚集体防御条约》（the Southeast Asia Collective Defense Treaty），以及1962年的《塔那特-鲁斯克公报》（the Thanat-Rusk Communique）；以及
+
+（6）与美国在印度洋-太平洋地区的条约盟国合作，促进与其他地区合作伙伴的多边安全和防务合作；
+
+（7）确保美国武装部队在印太地区行动的连续性，包括酌情与伙伴和盟国合作，以便根据国际法的既定原则和惯例重申在国际水域和领空行动自由的原则；
+
+（8）维持《台湾关系法》（he Taiwan Relations Act）（公共法96–8；《美国法典》第22卷第3301节等）；
+
+（9）维持1982年7月美国向台湾提供的“六个保证”，作为美台关系的基础，并尽可能地深化美台广泛、密切和友好的关系，包括合作支持发展有能力、有准备的，以及保卫台湾所必需的现代力量；
+
+（10）加强与印度、东南亚以及印度洋-太平洋其他国家的安全伙伴关系；
+
+（11）制止中共国对美国及其盟国利益的侵略或胁迫行为，特别是第一岛链沿线和西太平洋地区的利益，向中共国领导人表明，美国能够而且愿意拒绝他们实现其目标的企图，包括—
+（A）不断显示出美国深化现有条约联盟和发展新伙伴关系的政治意愿，这种政治意愿作为对中共国不断增长的军事能力和提升的持久的、不对称的和无与伦比的战略优势；
+（B）在印太地区维持一个前方基地部署系统，作为美国决心和对该地区承诺的最明显标志，并作为确保美国战备状态和推进与盟国和伙伴相互操作性的平台；
+（C）在整个区域，特别是西太平洋，采取更广泛的兵力布局，并在整个印度-太平洋区域最大限度地为美国的远程巡航、弹道和高超音速武器的机动和可移动发射器提供通道；
+（D）在第一岛链和第二岛链向美国和盟军部署远程精确打击网络，包括地面发射巡航导弹、水下和海上能力，以及综合防空和导弹防御，以遏制和防止中共国的胁迫和侵略，并最大限度地提高美国的操控能力；
+（E）加强广泛的威慑，以确保针对（损害）美国主要利益的扩张行为将是代价高昂、风险巨大和自取灭亡的；以及
+（F）与盟国和伙伴合作，加速其在更公平地分担共同防御责任方面的作用，包括通过获取和部署先进的军事力量和训练，使其能够更好地击退中共国的侵略或胁迫；以及
+
+（12）保持美国对提高中共国成本支出的能力，中共的这些成本支出是因胁迫或侵略行为而产生，（体现在）外交、经济、金融、声誉以及军事（等方面），保持美国的能力还包括保卫自己及其盟友，而不论针对他们的攻击来自何处。
+（本节完）
+
+原文链接：
+
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+
+文字整理：
+
+SEC. 223. SENSE OF CONGRESS REGARDING BOLSTERING SECURITY PARTNERSHIPS IN THE INDO-PACIFIC.
+
+It is the Sense of Congress that steps to bolster United States security partnership in the Indo-Pacific
+
+must include—
+
+(1) supporting Japan in its development of long-range precision fires, munitions, air and missile
+
+defense capacity, interoperability across all domains, maritime security, and intelligence, and surveillance and reconnaissance capabilities;
+
+(2) launching a United States-Japan national security innovation fund to solicit and support private sector cooperation for new technologies that could benefit the United States and Japan’s mutual
+
+security objectives;
+
+(3) promoting a deeper defense relationship between Japan and Australia, including supporting reciprocal access agreements and trilateral United States-Japan-Australia intelligence sharing;
+
+(4) encouraging and facilitating Taiwan’s accelerated acquisition of asymmetric defense capabilities,
+
+which are crucial to defending the islands of Taiwan from invasion, including long-range precision fires, munitions, anti-ship missiles, coastal defense, antiarmor, air defense, undersea warfare, advanced command, control, communications, computers, intelligence, surveillance and reconnaissance (C4ISR), and resilient command and control capabilities, and increasing the conduct of relevant and practical training and exercises with Taiwan’s defense forces; and
+
+(5) prioritizing building the capacity of United States allies and partners to protect defense technology.
+
+SEC. 224. STATEMENT OF POLICY.
+
+It shall be the policy of the United States to—
+
+(1) prioritize the Indo-Pacific region in United States foreign policy, and prioritize resources for
+
+achieving United States political and military objectives in the region;
+
+(2) exercise freedom of operations in the international waters and airspace in the Indo-Pacific
+
+maritime domains, which are critical to the prosperity, stability, and security of the Indo-Pacific region;
+
+(3) maintain forward-deployed forces in the Indo-Pacific region, including a rotational bomber presence, integrated missile defense capabilities, long-range precision fires, undersea warfare capabilities, and diversified and resilient basing and rotational presence, including support for pre-positioning strategies;
+
+(4) strengthen and deepen the alliances and partnerships of the United States to build capacity and capabilities, increase multilateral partnerships, modernize communications architecture, address anti-access and area denial challenges, and increase joint exercises and security cooperation efforts;
+
+(5) reaffirm the commitment and support of the United States for allies and partners in the Indo-Pacific region, including longstanding United States policy regarding—
+
+(A) Article V of the Treaty of Mutual Cooperation and Security between the United States and Japan, signed at Washington January 19, 1960;
+
+(B) Article III of the Mutual Defense Treaty between the United States and the Republic of Korea, signed at Washington October 1, 1953;
+
+(C) Article IV of the Mutual Defense Treaty between the United States and the Republic of the Philippines, signed at Washington August 30, 1951, including that, as the South China Sea is part of the Pacific, any armed attack on Philippine forces, aircraft or public vessels in the South China Sea will trigger mutual defense obligations under Article IV of our mutual defense treaty;
+
+(D) Article IV of the Australia, New Zealand, United States Security Treaty, done at San Francisco September 1, 1951; and
+
+(E) the Southeast Asia Collective Defense Treaty, done at Manila September 8, 1954, together with the Thanat-Rusk Communique of 1962; and
+
+(6) collaborate with United States treaty allies
+
+in the Indo-Pacific to foster greater multilateral security and defense cooperation with other regional
+
+partners;
+
+(7) ensure the continuity of operations by the United States Armed Forces in the Indo-Pacific region, including, as appropriate, in cooperation with partners and allies, in order to reaffirm the principle of freedom of operations in international waters and airspace in accordance with established principles and practices of international law;
+
+(8) sustain the Taiwan Relations Act (Public Law 96–8; 22 U.S.C. 3301 et seq.);
+
+(9) sustain the ‘‘Six Assurances’’ provided by the United States to Taiwan in July 1982 as the
+
+foundations for United States-Taiwan relations, and to deepen, to the fullest extent possible, the extensive, close, and friendly relations of the United States and Taiwan, including cooperation to support the development of capable, ready, and modern forces necessary for the defense of Taiwan;
+
+(10) enhance security partnerships with India, across Southeast Asia, and with other nations of the Indo-Pacific;
+
+(11) deter acts of aggression or coercion by the PRC against United States and allies’ interests, especially along the First Island Chain and in the Western Pacific, by showing PRC leaders that the United States can and is willing to deny them the ability to achieve their objectives, including by—
+
+(A) consistently demonstrating the political will of the United States to deepening existing treaty alliances and growing new partnerships as a durable, asymmetric, and unmatched strategic advantage to the PRC’s growing military capabilities and reach;
+
+(B) maintaining a system of forward-deployed bases in the Indo-Pacific region as the
+
+most visible sign of United States resolve and commitment to the region, and as platforms to
+
+ensure United States operational readiness and advance interoperability with allies and partners;
+
+(C) adopting a more dispersed force posture throughout the region, particularly the Western Pacific, and pursuing maximum access for United States mobile and relocatable launchers for long-range cruise, ballistic, and hypersonic weapons throughout the Indo-Pacific region;
+
+(D) fielding long-range, precision-strike networks to United States and allied forces, including ground-launched cruise missiles, under sea and naval capabilities, and integrated air and missile defense in the First Island Chain and the Second Island Chain, in order to deter and prevent PRC coercion and aggression, and to maximize the United States ability to operate;
+
+(E) strengthening extended deterrence to ensure that escalation against key United States interests would be costly, risky, and self-defeating; and
+
+(F) collaborating with allies and partners to accelerate their roles in more equitably sharing the burdens of mutual defense, including through the acquisition and fielding of advanced capabilities and training that will better enable them to repel PRC aggression or coercion; and
+
+(12) maintain the capacity of the United States to impose prohibitive diplomatic, economic, financial,
+
+reputational, and military costs on the PRC for acts of coercion or aggression, including to defend itself and its allies regardless of the point of origin of at tacks against them.
 
 0

@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】比特币暴跌，加密货币集体闪崩，近50万人爆仓，验证了文贵先生的预警
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1121509/)
+## 【有声读物】岸
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1121615/)
 
-配音：香草山录音组 蒙古鸿雁
+配音：香草山录音组 Swr拥抱太阳
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -12,22 +12,31 @@
 
 
 
+**岸**
+
+在水边打坐
+
+人声流走，流水入岸
+
+放空的身体注入冥想的夜空
+
+浪花朵朵，鹅卵石若隐若现
+
+吐纳夜的星子和银河的暗光
+
+于是，灵魂便飞了起来
+
+吞没沉下来的雾霾和黑暗
 
 
-4月18日数字货币惨遭血洗，多种加密货币集体闪崩。其中比特币出现崩盘式暴跌，跌破52,000美元/枚，目前已有近50万人爆仓。
 
-加密货币暴跌之际，全网加密货币过去一小时爆仓达到42.87亿美元，过去24小时有超过62万人爆仓，爆仓量55.79亿美元。
+**文字版原文：[【香草诗词汇】岸](https://gnews.org/zh-hans/866032/)**
 
-
-
-**文字版原文：[【热点播报】比特币暴跌，加密货币集体闪崩，近50万人爆仓，验证了文贵先生的预警](https://gnews.org/zh-hans/1114633/)**
-
-作者：纽约香草山健身部 Jack Li文阳
+作者：香草山写作组 木白
 
 
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+音频处理/发稿：雪梨
 
 ![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
