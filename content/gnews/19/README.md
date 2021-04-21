@@ -1,55 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】岸
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1121615/)
+## 【G时评】原创时政小段子：养、套、杀，全套服务
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1121819/)
 
-配音：香草山录音组 Swr拥抱太阳
+作者：Giselle
+![]()![](https://gnews.org/wp-content/uploads/2021/04/unnamed-2.png)
+图片：雅典娜设计组 Ameir艾梅儿
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+1，习近平说，中国永远不会参加军备竞赛……
 
+——啥叫军备竞赛？病毒算不算？
 
+必须得算啊，低成本，高回报，杀人于无形，顺便还能摧毁对方的经济、颠覆其政治体制……还有比这更完美的武器吗？
 
+其他导弹、飞机方面，那就算了，中共就算参加也赢不了。
 
+2，4月19日上海国际车展中，有一名女子爬上特斯拉车顶大闹，对此，你怎么看？
 
-**岸**
+——中共对外企的养、套、杀，三板斧，总得找个由头。
 
-在水边打坐
+这个爬上特斯拉车顶的年轻女子，她知道特斯拉是怎么回事么？她开过特斯拉么？她了解电动车不？她甚至不知道特斯拉的刹车在哪里，就说特斯拉的刹车有问题。
 
-人声流走，流水入岸
+这就是问题。
 
-放空的身体注入冥想的夜空
+3，俄罗斯要驱逐100万非法移民，其中大部分是中国人，对此，你怎么看？
 
-浪花朵朵，鹅卵石若隐若现
+——普京太狠、太了解中共了！
 
-吐纳夜的星子和银河的暗光
+他是克格勃出身，十分清楚中共所谓的“全民皆兵”策略。为了避免潜伏在俄国的中共间谍搞破坏，干脆全部驱逐省事。
 
-于是，灵魂便飞了起来
+海外华人其实十分危险，分分钟面临被所在国驱逐命运。
 
-吞没沉下来的雾霾和黑暗
+再不站出来与中共切割，真的没机会了！
 
+4，为什么俄罗斯说驱逐100万非法移民，墙内媒体都不报道里面大部分是中国人？
 
+——太没面子了！中共还指望俄罗斯一起联俄抗美呢。
 
-**文字版原文：[【香草诗词汇】岸](https://gnews.org/zh-hans/866032/)**
+5，最新的全球新闻自由指数，香港列80，中共国倒数第四。对此，你怎么看？
 
-作者：香草山写作组 木白
+——全球有新闻自由吗？
 
-
-
-音频处理/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+（文章内容仅代表作者个人观点）
 
 0
