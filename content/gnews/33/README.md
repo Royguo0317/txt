@@ -1,53 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 喀秋莎新闻参考- 2021年4月19日(星期一)
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1120592/)
+## 简讯!德国多地养老院在接种疫苗后再次爆发感染
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1120737/)
 
-俄罗斯莫斯科喀秋莎农场 土星
+![]()![](https://gnews.org/wp-content/uploads/2021/04/k-mitch-hodge-r3IE4JJLrFk-unsplash.jpg)
+*编撰：西联777*
+据多家德国媒体报道，当地时间4月16日，位于莱希林根（Leichlingen）的一家养老院在接种新冠疫苗后再次爆发聚集性感染，同时在雷姆沙伊德（Remscheid）和波鸿（Bochum）市的养老院也有类似案例发生。
 
-编辑 НастяApfel(娜斯佳)    上传 星河
-![]()![](https://gnews.org/wp-content/uploads/2021/04/789-7.png)playground.ru
-一、新中国联邦新闻
+位于莱希林根（Leichlingen）的这家养老院总共生活着有大约60人，其中95%的居民已经在一月份接种过第二剂的新冠疫苗或已接受过新冠治疗。但在本周早些时间，经PCR测试确认，该养老院里的17名居民和员工检测结果呈阳性。目前尚未得到确认是否是居民和员工接种了疫苗然后传播了这种病毒，但进入养老院的每个人都要接受定期测试，访客每48小时检查一次，员工每72小时检查一次,病毒极不可能是从外面带进养老院的。
 
-1.“路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=t2uydnugXhw)、[晚间](https://www.youtube.com/watch?v=D2PlQsdhgrE)）:
+感染流行病学家蒂莫·乌尔里希斯（Timo Ulrichs）认为这种情况非常令人困扰，毕竟像大多数其他专家一样，他认为“疫苗本应可以预防所有这些疾病，使接种者免受感染，传播和疾病的侵扰。”
 
-Ⅰ. 今天是郭文贵先生接受美国之音采访被断播四周年。美国之音“4·19断播”事件在新闻媒体上引起轩然大波，隶属美国政府管辖的美国之音被中共严重渗透，这远不只是一件腐败案件，而是中共对美国发起的超限战。
+*免责声明：以上内容仅代表作者本人观点，与农场和GNEWS无关。*
 
-Ⅱ. 塞林博士（Dr. Sellin）4月19日再发重磅推文：在新冠疫情大流行的病毒实验室起源中，中共的政治商业关系和竞争是如何发挥作用的？
+*参考信息来源：*[https://www1.wdr.de/nachrichten/themen/coronavirus/altenheim-leichlingen-corona-ausbruch-100.html](https://www1.wdr.de/nachrichten/themen/coronavirus/altenheim-leichlingen-corona-ausbruch-100.html) 
+[https://www.ksta.de/region/leverkusen/leichlingen/ausbruch-im-seniorenheim-14-vollstaendig-geimpfte-sind-corona-positiv-38292474](https://www.ksta.de/region/leverkusen/leichlingen/ausbruch-im-seniorenheim-14-vollstaendig-geimpfte-sind-corona-positiv-38292474) 
+[https://www.rnd.de/panorama/nrw-zwei-dutzend-geimpfte-altenheim-bewohner-aus-remscheid-und-leichlingen-mit-corona-infiziert-UUVZJEDTVBJKW4WTPLAMO3CR54.html](https://www.rnd.de/panorama/nrw-zwei-dutzend-geimpfte-altenheim-bewohner-aus-remscheid-und-leichlingen-mit-corona-infiziert-UUVZJEDTVBJKW4WTPLAMO3CR54.html) 
+[https://www.bild.de/regional/koeln/koeln-aktuell/im-leichlinger-altenheim-corona-infektionen-bei-geimpften-bestaetigt-76079524.bild.html](https://www.bild.de/regional/koeln/koeln-aktuell/im-leichlinger-altenheim-corona-infektionen-bei-geimpften-bestaetigt-76079524.bild.html)
 
-2. 在福克斯新闻频道周一播出的”特别报道”中，参议员汤姆·科顿（Tom Cotton）表示，中共”正试图为有朝一日能入侵和吞并台湾做准备，这对美国利益来说将是一场灾难。”而美国”必须让中共清楚地明白，如果中共尝试入侵并强行吞并台湾，我们将一定会保卫台湾。”
-
-3. 美国众议院周一通过一项决议，正式谴责中共政府和香港地区政府 “侵犯该地区公民权利和自由”的行为。立法者以418：1的投票结果通过了这项决议，呼吁中共政府和香港特别行政区，释放因去年颁布的《国安法》而被捕的亲民主活动人士和政治家，该法减少了城市的自治权，并对抗议者实施了更严厉的惩罚。
-
-4. 周一，人权观察（HRW）和斯坦福大学法学院“人权与冲突解决诊所”发布的一份新报告称，中共政府对新疆的维吾尔族穆斯林和其他突厥少数民族犯有反人类罪。
-
-5. 布林肯周一在马里兰州发表演讲时表示，气候变化将越来越成为美国外交政策的中心，但他发誓拜登政府不会因为其他国家在遏制气候变化方面取得进展，而让他们逃脱侵犯人权等方面的追责。
-
-6. 菲律宾总统杜特尔特周一表示，他准备派遣军舰前往南中国海，对这一战略航道有争议部分的石油和矿产资源”讨说法”。
-
-7. 欧盟正在寻求在5g上与印度合作，以”远离”中共公司的电信基础设施。欧盟（EU）将在下个月与印度领导人会晤时讨论实施5G技术并制定全球安全标准，因为人们对中共电信巨头的主导地位的担忧日益增加。
-
-8. 周二，东京警视厅决定对一名工程师提起诉讼，他是中共党员，涉嫌参与针对日本太空总署JAXA及其他约200家日本公司和研究机构的网络攻击。
-
-9. 中共官方媒体对台湾问题保持沉默，这种相对低调的回应表明，在气候谈判和中共即将到来的100周年纪念日之前，试图避免与美国和日本的关系紧张。
-
-10. 五矿发展周一表示，互联网公司面临着广泛的反垄断压力，中共市场监管机构正在调查电子商务巨头阿里巴巴集团（9988.HK）和五矿发展（600058.SS）。
-
-11. 根据新闻自由组织”记者无国界”的说法，中共对记者的迫害，可能通过在大流行初期阻止举报人来促成全球冠状病毒大爆发。
-
-12. 在与美国关系紧张的情况下，习近平警告不要搞“单边主义”，周二呼吁更公平地管理全球事务，同时暗示拒绝美国的主导地位，说政府不应该对其他人施加规则。
-
-13. 根据周一发布的一份报告显示，来自亚马逊支持的”联合创新中心”的获奖公司仁威电子，正在帮助中共当局追踪新疆的囚犯。
-
-14. 中共央行副行长李波18日表示，将会继续扩大数字人民币项目试点范围，人民币国际化应该是自然而然的过程，目标不是要取代美元或其他货币，希望“让市场来做出选择”。
-
-二、世界新闻
-
-1. 美国参议员马克·华纳周一表示，在针对软件公司太阳风（SolarWinds）的大规模网络攻击发生后，如果欧盟和美国不积极地制定共同的网络安全标准，可能会产生灾难性的后果。
-
-2. 东盟集团秘书处周二表示，在欧盟对2月1日夺取政权的缅甸军政府实施了迄今为止最严厉的制裁之后，东南亚国家将于周六在雅加达举行的峰会上讨论缅甸危机。
-
-3. 在周一的虚拟简报会后发布的一份声明中，世卫组织国际卫生标准紧急委员会，正式建议各国政府避免强制推行使用疫苗护照，这种趋势已经在英国开始显现。
+*审核收稿：西联777
+编辑发布：西联777*
 
 0

@@ -1,25 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 简讯!德国多地养老院在接种疫苗后再次爆发感染
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1120737/)
+## 【世事解评】美国两党和军情部门已把中国共产傥和中国人民分开
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1120955/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/k-mitch-hodge-r3IE4JJLrFk-unsplash.jpg)
-*编撰：西联777*
-据多家德国媒体报道，当地时间4月16日，位于莱希林根（Leichlingen）的一家养老院在接种新冠疫苗后再次爆发聚集性感染，同时在雷姆沙伊德（Remscheid）和波鸿（Bochum）市的养老院也有类似案例发生。
+作者：纽约香草山写作组 Yousei
 
-位于莱希林根（Leichlingen）的这家养老院总共生活着有大约60人，其中95%的居民已经在一月份接种过第二剂的新冠疫苗或已接受过新冠治疗。但在本周早些时间，经PCR测试确认，该养老院里的17名居民和员工检测结果呈阳性。目前尚未得到确认是否是居民和员工接种了疫苗然后传播了这种病毒，但进入养老院的每个人都要接受定期测试，访客每48小时检查一次，员工每72小时检查一次,病毒极不可能是从外面带进养老院的。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
 
-感染流行病学家蒂莫·乌尔里希斯（Timo Ulrichs）认为这种情况非常令人困扰，毕竟像大多数其他专家一样，他认为“疫苗本应可以预防所有这些疾病，使接种者免受感染，传播和疾病的侵扰。”
 
-*免责声明：以上内容仅代表作者本人观点，与农场和GNEWS无关。*
 
-*参考信息来源：*[https://www1.wdr.de/nachrichten/themen/coronavirus/altenheim-leichlingen-corona-ausbruch-100.html](https://www1.wdr.de/nachrichten/themen/coronavirus/altenheim-leichlingen-corona-ausbruch-100.html) 
-[https://www.ksta.de/region/leverkusen/leichlingen/ausbruch-im-seniorenheim-14-vollstaendig-geimpfte-sind-corona-positiv-38292474](https://www.ksta.de/region/leverkusen/leichlingen/ausbruch-im-seniorenheim-14-vollstaendig-geimpfte-sind-corona-positiv-38292474) 
-[https://www.rnd.de/panorama/nrw-zwei-dutzend-geimpfte-altenheim-bewohner-aus-remscheid-und-leichlingen-mit-corona-infiziert-UUVZJEDTVBJKW4WTPLAMO3CR54.html](https://www.rnd.de/panorama/nrw-zwei-dutzend-geimpfte-altenheim-bewohner-aus-remscheid-und-leichlingen-mit-corona-infiziert-UUVZJEDTVBJKW4WTPLAMO3CR54.html) 
-[https://www.bild.de/regional/koeln/koeln-aktuell/im-leichlinger-altenheim-corona-infektionen-bei-geimpften-bestaetigt-76079524.bild.html](https://www.bild.de/regional/koeln/koeln-aktuell/im-leichlinger-altenheim-corona-infektionen-bei-geimpften-bestaetigt-76079524.bild.html)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS2185-%E3%80%90%E4%B8%96%E4%BA%8B%E8%A7%A3%E8%AF%84%E3%80%91%E7%BE%8E%E5%9C%8B%E7%9A%84%E5%85%A9%E9%BB%A8%E5%92%8C%E8%BB%8D%E6%83%85%E9%83%A8%E9%96%80%E5%B7%B2%E6%8A%8A%E4%B8%AD%E5%9C%8B%E5%85%B1%E7%94%A2%E5%84%BB%E5%92%8C%E4%B8%AD%E5%9C%8B%E4%BA%BA%E6%B0%91%E5%88%86%E9%96%8B-1.jpg)图片来自GTV 美国参议院情报委员会听证会
 
-*审核收稿：西联777
-编辑发布：西联777*
+4月13日，美国国家情报总监办公室(Office of the Director of National Intelligence)公开2021《美国情报系统年度威胁评估》，报告将中共国列为美国安全威胁之首。与此同时，美国参议院情报委员会听证会称，“会将中共国与伊朗，俄罗斯，朝鲜和IS视为世界五大邪恶集团”。参议员发言说，“两党已经达成共识，所有的威胁都来自于习近平和中国共产傥，而不是中国人民，他号召两党一道向美国民众传播这一概念，中国共产傥和中国人民，海外各国华人是两个概念，要认清中国人也是无辜的受害者。”
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS2185-%E3%80%90%E4%B8%96%E4%BA%8B%E8%A7%A3%E8%AF%84%E3%80%91%E7%BE%8E%E5%9C%8B%E7%9A%84%E5%85%A9%E9%BB%A8%E5%92%8C%E8%BB%8D%E6%83%85%E9%83%A8%E9%96%80%E5%B7%B2%E6%8A%8A%E4%B8%AD%E5%9C%8B%E5%85%B1%E7%94%A2%E5%84%BB%E5%92%8C%E4%B8%AD%E5%9C%8B%E4%BA%BA%E6%B0%91%E5%88%86%E9%96%8B-2.jpg)图片来自推特
+
+4月15日，代表美国军情部门的Dr. Lawrence Sellin博士在Twitter用中文发表言论，原文称，“我们在一起可以再次获胜。1942年，勇敢的中国人拯救了杜立特尔突袭者，我们在一起可以打败中国共产傥。”还同时发表说，我支持中国人民，我拒绝中国共产傥。并选用了爆料革命的GTV，GNews的图片和新中国联邦的国旗。他也非常明确表达了中国人不等于中共，中国人和中国产党是两个概念。Sellin博士是原亚太，印太反恐作战特种部队司令部的参谋长，是美国军情部门的重要代言人，他代表着除两党之外更深层次的力量和意志，这是继班农先生以来，又一位代表美国绝对力量，正式发声支持新中国联邦的美国人。Sellin博士这一举动引起了很多华人网友的关注，并在推下纷纷留言，表达感谢和致敬。表示希望和美国人站在一起，一起再次携手并肩，take down the CCP。
+
+是的，看到这样的重量级推文，每一个有良知的中国人都会为之振奋和感触。二战时，为了报复中国人誓死掩护美国军人，日本杀了25万的中国民众。这恰恰印证了中国人，中国的普通老百姓的善良，勇敢且爱好和平！中国人和美国人，世界人民是站在一起的！中国共产党是发动生物武器战争、反人类的邪恶集团，它才是阻挡中华民族，华夏子孙永久复兴的罪魁祸首。跟随爆料革命的新中国联邦人是一批有同情心，有正义感且勇敢的人们，没了中共，牢笼被打开，相信所有被奴役70年的得知真相的14亿善良的人们一定会携手世界人民一同创建未来，通往人类的真正自由巅峰！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS2185-%E3%80%90%E4%B8%96%E4%BA%8B%E8%A7%A3%E8%AF%84%E3%80%91%E7%BE%8E%E5%9C%8B%E7%9A%84%E5%85%A9%E9%BB%A8%E5%92%8C%E8%BB%8D%E6%83%85%E9%83%A8%E9%96%80%E5%B7%B2%E6%8A%8A%E4%B8%AD%E5%9C%8B%E5%85%B1%E7%94%A2%E5%84%BB%E5%92%8C%E4%B8%AD%E5%9C%8B%E4%BA%BA%E6%B0%91%E5%88%86%E9%96%8B-3.jpg) 图片来自GTV
+
+中国人不等于中国共产党，第一个提出这一概念的正是郭文贵先生。自2017年初郭文贵先生爆料开始，在揭露中国共产傥奴役欺骗毒害中国人民和世界人命的罪行的同时，为了保证14亿不知真相的中国人不被共产党当作陪葬品，为了保证中国人在海外不被排斥，提出“中国人要与中国共产党分开是爆料革命的首要重大任务”。经过这4年的坚持不懈，终于在今天成功的达成了这一重要任务。这是郭文贵先生引领的爆料革命最伟大的智慧，它无疑会成为历史上最光辉的一笔。它的历史意义，如同二战期间德国商人奥斯卡·辛德勒拯救犹太人事件一样，对中国人民以及子孙后代的未来都是生死攸关，至关重要的，不论墙内或海外的华人，都要清楚地意识到，为了中国人和中国人的子孙不被踢出地球球籍，一定要再次将勇敢、有信仰、爱好和平中国人的形象，重新哺育在中国的土地上，重塑中国人本来的面貌。
+
+于此同时，令人可悲的是，中国控制下的媒体，无视真相，瞑滅道德，不惜余力的混淆视听，让中国人无法解读到现今世界的巨变，影响人们最基本的判断能力，他们的目的是要离间14亿中国人民和世界人的关系，因为世界的敌人已经明确指出是中共中共为了自己的权利，用14亿人做他们的挡箭盾牌。灭共的大时代已然开启，已经走到了我们的家门口，但墙内普通的民众都无法意识到这次是一场可能毁掉中国子孙未来的、跨世纪般的灾难。这次中共发动的生物病毒问题非同小可，这个问题才是刚刚开始，甚至远远还没有结束，中国人要为中共的恶性要付出多少代价还无法预判，所以有良知的人们一定要认清现状，以最快的速度与共产党划清界线，才是保护自己的最好途径。越多中国人站出来灭共，中国人和中国的子孙就越安全，甚至能成为拯救世界、拯救人类的的英雄民族。综观而言，也许这就是中华儿女的历史使命所在。反之，与中共为伍，助纣为虐，你会和中共一起被带进历史的垃圾堆，写进人类文明的罪恶篇章。
+
+（文章仅代表作者个人观点）
+
+编辑/校对/发稿：雪梨
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV ****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)** (****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场You ****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
