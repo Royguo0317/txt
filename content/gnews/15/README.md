@@ -1,25 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 简讯!德国多地养老院在接种疫苗后再次爆发感染
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1120737/)
+## DC数字货币动态 2021.04.20
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1120925/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/k-mitch-hodge-r3IE4JJLrFk-unsplash.jpg)
-*编撰：西联777*
-据多家德国媒体报道，当地时间4月16日，位于莱希林根（Leichlingen）的一家养老院在接种新冠疫苗后再次爆发聚集性感染，同时在雷姆沙伊德（Remscheid）和波鸿（Bochum）市的养老院也有类似案例发生。
+#  
 
-位于莱希林根（Leichlingen）的这家养老院总共生活着有大约60人，其中95%的居民已经在一月份接种过第二剂的新冠疫苗或已接受过新冠治疗。但在本周早些时间，经PCR测试确认，该养老院里的17名居民和员工检测结果呈阳性。目前尚未得到确认是否是居民和员工接种了疫苗然后传播了这种病毒，但进入养老院的每个人都要接受定期测试，访客每48小时检查一次，员工每72小时检查一次,病毒极不可能是从外面带进养老院的。
+*喜马拉雅华盛顿DC* 编辑：aQ
 
-感染流行病学家蒂莫·乌尔里希斯（Timo Ulrichs）认为这种情况非常令人困扰，毕竟像大多数其他专家一样，他认为“疫苗本应可以预防所有这些疾病，使接种者免受感染，传播和疾病的侵扰。”
 
-*免责声明：以上内容仅代表作者本人观点，与农场和GNEWS无关。*
 
-*参考信息来源：*[https://www1.wdr.de/nachrichten/themen/coronavirus/altenheim-leichlingen-corona-ausbruch-100.html](https://www1.wdr.de/nachrichten/themen/coronavirus/altenheim-leichlingen-corona-ausbruch-100.html) 
-[https://www.ksta.de/region/leverkusen/leichlingen/ausbruch-im-seniorenheim-14-vollstaendig-geimpfte-sind-corona-positiv-38292474](https://www.ksta.de/region/leverkusen/leichlingen/ausbruch-im-seniorenheim-14-vollstaendig-geimpfte-sind-corona-positiv-38292474) 
-[https://www.rnd.de/panorama/nrw-zwei-dutzend-geimpfte-altenheim-bewohner-aus-remscheid-und-leichlingen-mit-corona-infiziert-UUVZJEDTVBJKW4WTPLAMO3CR54.html](https://www.rnd.de/panorama/nrw-zwei-dutzend-geimpfte-altenheim-bewohner-aus-remscheid-und-leichlingen-mit-corona-infiziert-UUVZJEDTVBJKW4WTPLAMO3CR54.html) 
-[https://www.bild.de/regional/koeln/koeln-aktuell/im-leichlinger-altenheim-corona-infektionen-bei-geimpften-bestaetigt-76079524.bild.html](https://www.bild.de/regional/koeln/koeln-aktuell/im-leichlinger-altenheim-corona-infektionen-bei-geimpften-bestaetigt-76079524.bild.html)
 
-*审核收稿：西联777
-编辑发布：西联777*
+
+![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image0-6.jpg)
+
+币圈的一天，从学习“常识”和“逻辑”开始。
+
+## **今日一问**
+
+*币圈爆仓频发，是“投资”逻辑出错，还是“投机”贪念作祟？*
+
+## 喜马拉雅Coin要闻
+
+- 展望喜马拉雅生态系统
+       17项世界第一
+       5家虚拟币交易所
+       3座独立数据中心
+       1套（聚合）支付系统
+- KYC答疑工作有条不紊地推进
+
+
+## 新闻动态
+
+1. 花旗银行（Citi）近日发布报告《金钱的未来》，聚焦研究加密货币、央行数字货币（CBDC）在当代的发展状况，该报告指出，脸书苦心经营的全球稳定币项目Diem（原名 Libra）或可成为各国CBDC的白标供货商（White label provider）。花旗建议，各国的CBDC可考虑以Diem作为底层基础网络来发行。
+2. 普华永道最新的研究报告《CBDC全球指数》显示，巴哈马和泰国等国家处于中央银行数字货币（CBDC）发展的前沿。CBDC零售排名中，巴哈马在100个国家中获得92分，遥遥领先于所有其他国家。柬埔寨以83位居第二，其次是中国大陆（75）和乌克兰（71）。
+3. TeraBlock Exchange在周一的公告宣布，TeraBlock表示已从包括AU21 Capital，Blockchain.com，Blocksync Ventures，BTX Capital，CryptoDormFund等在内的主要投资者那里获得了240万美元的融资。该平台是为新手提供的自动化工具，允许用户在不熟悉该领域的情况下买卖加密货币。
+4. NFTb是建立在Binance智能链上的非同质代币平台，正在推出其市场的新版本，该版本专注于支持社会事业并为艺术家提供更实惠的上市选项。新版本将艺术家和领先的慈善机构联系起来，允许任何人以负担得起的价格拍卖其艺术品，并将部分收益捐赠给自己选择的慈善机构。 NFTb声称已有120多位艺术家加入了候补名单。
+5. 3iQ在4月19日发布公告称，即日开始在多伦多证券交易所买卖3iQ Coinshares比特币交易所交易基金（ETF）。该基金的单位在股票代码“BTCQ.U”下以美元交易，在股票代码“BTCQ”下以加元交易。该ETF旨在根据加密货币的美元价值变动以及长期资本增值的机会，为投资者提供比特币的窗口。
+6. 狗狗币欢庆420纪念日，今年涨幅超7500%。推特及Reddit上到处都充满着#DogeDay420的标签，社群正试图助推狗狗币在4/20涨至0.69美元，另一个则是在6/9达到4.2美元。
+7. Coinbas的首席律师Paul Grewal为“公司一上市高层就开始出售大量持股”辟谣说，在DPO中没有新股被发行，只能买卖现有股份。这意味着如果持股人不卖出手上的股票，就无法让更多投资人进场，而最大宗的持股人正是公司内部高层人士。
+8. 路透社报道，Coinbase代表透露，将于本周20日推出“COIN期货选择权”，即将于那斯达克开放交易。
+9. 全球最大的挖矿矿机制造商比特大陆（Bitmain）正式预告将推出全新的以太坊ASIC矿机“E9 蚂蚁矿机（ANTMINER E9）”，并豪言此款产品的推出将改变世界，因其性能将等同于32张 NVIDA RTX 3080，算力约有3040 MH/s。
+
+
+
+
+
+> 编辑：aQ
+> 
+> 审核：[星空無垠](https://www.himalayawashingtondc.org/author/tom/)
+> 
+> 发布：文顾
+
 
 0
