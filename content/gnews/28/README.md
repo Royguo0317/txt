@@ -1,47 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙内热搜】上海车展，特斯拉深陷维权门为哪般？
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1121408/)
+## 【有声读物】中国人是普世价值的捍卫者
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1121487/)
 
-作者：纽约香草山健身部 Ivy001
+配音：香草山录音组 蒙古鸿雁
 
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-4月19日，上海车展特斯拉展台上，一位身穿带有“刹车失灵”字样白色T恤的女子爬上车顶“维权”，场面一时陷入混乱。针对这一事件，特斯拉回应，当事人是此前2月发生的河南安阳超速违章事故的车主。事故后车主不接受第三方检测，坚持要求退车。因其要求不合理，特斯拉表示不会妥协。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-378.png)图源网络
 
-同日下午，中共媒体新华社发表文章《谁给了特斯拉“不妥协”的底气》。4月20日，中共政法委长安剑在微信公众号也发表文章《特斯拉必须面对中（共）国客户的拷问：责任何在？担当何在！？》文章宣称，中共国是全球最大的汽车产销市场之一，也是全球知名车企争夺的重要市场。无论哪家车企，都必须对中共国市场有敬畏之心，诚恳接受消费者的监督。如果车企涉嫌“店大欺客”，有关部门也要加强监管。
 
-众所周知，因为刹车问题导致超速而要求全款退车，在全世界都是不合理的要求，没有任何一家车企会妥协。为什么中共国会歪曲事实，反说特斯拉是“店大欺客”呢？看看同场展出的所谓“华为第一车”，就不难找出原因了。这妥妥就是“偷到技术，打死师傅”的现实案例。像某个专家说的，“先把外国企业骗进来，再把技术学（偷）到手，然后一脚把外国企业踹开，自己上。”特斯拉现在到了可以被一脚踹开的时候了。如果特斯拉坚持不服软，后面的麻烦、罚款将会接连而来——所谓监管就是这个样子。这般的例子，在中共国也不是独此一家，类似的事件以前也发生在日本车企身上。
 
-由此可见，在中共的控制之下，没有任何一家外国企业能够在中国获得长远的发展和利益。如果想在中国正常地做企业，就必须灭掉CCP。否则，日本车企的昨天，特斯拉的今天，统统会发生于任何一家在中共国做生意的外国企业身上。
+2021年4月16日，美日两国首脑会谈后，正式达成了维护印太地区和平与稳定的共识，承诺将携手应对来自中国的挑战，实现国际关系的稳定，维护普世价值。就此，全世界联合反共，亚太地区在美日主导下，联合东盟、澳大利亚、印度等各国抵制中国的亚太新秩序正式形成。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+菅仪伟首相说的极是，中共与世界之战是价值观之战。中共反对普世价值由来已久，2017年6月9日，中国共产党新闻网登载一篇题为《决不允许用西方“普世价值”消解社会主义核心价值观》的文章。那么”普世价值“到底是什么呢，让中共这样痛恨和惧怕？
 
-编辑/校对/发稿：Irene木木
+
+
+**文字版原文：[【世事解评】中国人是普世价值的捍卫者](https://gnews.org/zh-hans/1111462/)**
+
+作者：纽约香草山写作组 Jenny
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 **[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
 
 0
