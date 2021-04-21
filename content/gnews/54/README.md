@@ -1,51 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【文贵视角】“临时报幕人”“老妈咪”王岐山出山，挽救不了中共被麻痹后团灭的命运
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1120224/)
+## 美国国务院发出最高级别警告：请勿旅行
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1120421/)
 
-撰稿：Skagen【㊙️翻Gnews原创组】
-责编：心声【㊙️翻Gnews原创组】
-![]()![](https://gnews.org/wp-content/uploads/2021/04/文贵视角通图1.jpg)
-**4****月20号：美中刚刚谈了环境天气，在双休高潮后，共产党为什么在这个病毒肆虐的时候高调的开启BGY海南论坛？再推出“老妈咪”、“大老仟”王岐山出来公关？习大神（习近平）三天不学习，赶不上王副主席。让习大神睡不着的人都必须要这样的冒险使用说明了什么？**
+作者：Chloe
+![]()![](https://gnews.org/wp-content/uploads/2021/04/ggg-1.jpg)
+4月19日美国国务院宣布，接下来的几周将对世界上约80%的国家发出 “第4级：请勿旅行” 的警告。 这是国务院最高级别警告 （1）。
 
-在博鳌论坛上王歧山又出来了，说中美之间要共同治理环境。判死刑前谈哲学、环境这些虚无的东西，郭先生将之称为“临死前的安慰”。
+国务院在官方声明中表示，旅行时感染COVID-19的风险仍然过高，并敦促美国人“重新考虑所有海外旅行”。
 
-郭先生指出，王岐山出来是有几层意思：一是向世界示意继续来与中共勾兑，有利益开放市场共同蓝金黄；二是说明上海帮在杨雄死后，要推出如王岐山和韩正孟建柱这样更牛的人来代表江家；三是说明习近平离了王岐山与西方的勾兑完全不行。从外交部给习近平写的稿子就可以看出完全是自已打脸，而且习的状态非常糟糕，所写的内容反映了习的恐惧，这个稿子是姓杨（或是梁）的懂国际形势的高手帮着写的，但这份稿子分时是砸习，可见党内官员必须得“正话反说”“反话正说”，才能活下去，和中国历史上的胡亥、赵高一样“指鹿为马”。
+第4级警告一般保留给战乱国家或被认为对美国公民有敌意的国家，如阿富汗和朝鲜。 即使在几内亚新冠与埃博拉大流行，美国国务院于2021年的2月25日对其发出的警告停留在第3级 （2）。
 
-郭先生解读，王歧山用的词“临时报幕人”是在忽悠习。作为一个国家副主席或副总统通常都期望总统快被干掉，这样副总统才有机会。总统与副总统之间通常表面是“亲密无间”，其实是“亲密有间”。就如夜总会，当需要“老妈咪”（指王歧山）出来拉客的时候，表示生意不好，或是缺客人。说明了国内的经济极度危险，外贸和国际关系上出现了巨大问题，所以习近平要联合王歧山解决对外问题，印证了我们爆料革命所说的：共产党快完球蛋了。
+国务院今天的这则声明和疾控中心两周前发布的指导方针不一致。 疾控中心认为完全接种疫苗的人可以进行国际旅行，无需再旅行前接受COVID-19检测；而且返美后不需要自我隔离（3）。
 
-郭先生将美国和中共谈环境这个复杂的政治外交事件，用老百姓通俗易懂的语言形象地做了描述：美国是村长，中共是村里的流氓杀人犯，中共这个杀人犯对所有的有钱有学问的人（即对美英日的家人）放了毒、杀了人、偷了东西了，这些有钱有学问的人在村长（美国）带领下联合起来和中共谈哲学、未来、天空、环境，是为了在弄死这个杀人犯（中共）前麻痹它。也说明村长和流氓之间有不可告人的秘密，互相间要勾兑一下。流氓带有不切实际的幻想，想让村长和这些绅士有钱人（指美、欧、中东油豪）、还有带刀侍卫（日本）勾兑，放过它。如同在绳索套上脖子前，扎针麻醉减少疼痛。中共知道美国来谈环境是在勒脖子杀死它之前来麻醉它，所以习王要联合喊救命。中共如海外民运一样永远话反着说，才宣布经济增长18%之后，就召开博鳌论坛，即BGY论坛。因为王岐山说着华尔街听得懂的话，吸引华尔街来勾兑。
+国务院今天发布声明一个可能的原因是近几天当局可能发现疫苗对变异的新冠病毒无效。 今天福奇说到秋季公众将知道是否需要打第三针疫苗 （4）。 莫德纳首席执行官本周表示，该公司将在秋季之前向美国人提供疫苗第三剂（5）。
 
-郭先生预计，接下来孟建柱会出来，他会去中东和土耳其，湄公河是孟建柱开辟的在南亚的情报线、生死线、利益线、毒品线、黑线；中东、巴基斯坦、土耳其、阿富汗是所谓的反恐一条线；马六甲海峡、苏伊士运河、埃及、中东，是情报和石油线。郭先生说，“老妈咪、打手、情报、蓝金黄威胁全用上了，可以看出，共产党没辙了。”
+辉瑞也表达了类似的计划。 两天前辉瑞CEO说6至12个月内公众可能需要接种第三剂冠状病毒疫苗，并且“之后每年要重新接种”（6）。
 
-国际上，中共搞DECP加密货币挑战美元，要在整个东南亚、台湾说了算，赶出美国；在国内，搞极端民族主义、爱国主义，这与当年1932-1945年的德国日本一个样。让郭先生感到可悲的是，14亿中国人的血汗钱浇灌中南坑的几个老杂毛，开出“人血之花”，悲剧啊，人民信，人民特别信。
+参考文献：
 
-但是郭先生相信，虽然新闻不属于人民的，但社交媒体是，所以咱们的盖特、GTV、Gnews太重要了。走着看，咱们要把这帮中共流氓戳穿并灭掉。
+1. [https://www.dailymail.co.uk/health/article-9488745/US-State-Department-issue-Level-4-Not-Travel-advisory-80-countries.html](https://www.dailymail.co.uk/health/article-9488745/US-State-Department-issue-Level-4-Not-Travel-advisory-80-countries.html)
+2. [https://travel.state.gov/content/travel/en/traveladvisories/traveladvisories/guinea-travel-advisory.html#:~:text=N’Zerekore%20Region%3A%20Level%204,with%20updates%20to%20Ebola%20Information](https://travel.state.gov/content/travel/en/traveladvisories/traveladvisories/guinea-travel-advisory.html#:~:text=N'Zerekore%20Region%3A%20Level%204,with%20updates%20to%20Ebola%20Information).
+3. [https://www.cdc.gov/media/releases/2021/p0402-travel-guidance-vaccinated-people.html#:~:text=Fully%20vaccinated%20people%20can%20travel%20internationally%20without%20getting%20a%20COVID,a%20state%20or%20local%20jurisdiction](https://www.cdc.gov/media/releases/2021/p0402-travel-guidance-vaccinated-people.html#:~:text=Fully%20vaccinated%20people%20can%20travel%20internationally%20without%20getting%20a%20COVID,a%20state%20or%20local%20jurisdiction).
+4. [https://thehill.com/homenews/sunday-talk-shows/548879-fauci-public-will-know-if-third-vaccine-dose-is-needed-by-fall](https://thehill.com/homenews/sunday-talk-shows/548879-fauci-public-will-know-if-third-vaccine-dose-is-needed-by-fall)
+5. [https://www.cbsnews.com/news/moderna-covid-vaccine-booster-shots/](https://www.cbsnews.com/news/moderna-covid-vaccine-booster-shots/)
+6. [https://abc7ny.com/health/third-vaccine-dose-likely-needed-in-6-to-12-months-pfizer-ceo-says/10520223/](https://abc7ny.com/health/third-vaccine-dose-likely-needed-in-6-to-12-months-pfizer-ceo-says/10520223/)
 
-参考链结：[郭文贵先生4月20号直播视频](https://gtv.org/getter/607ee2cc8616c84f0ff1aed5)
 
-相关阅读：
+发布：GLC
 
-[【文贵视角】炸裂爆料：中共“以钱灭美”计划](https://gnews.org/zh-hans/1058073/)
-[【文贵视角】数字货币将改变国家排名，新GTV或直接上市](https://gnews.org/zh-hans/1049399/)
-[【文贵视角】投资G系列投的是未来财富安全和体现财富的真正价值](https://gnews.org/zh-hans/1047467/)
-[【文贵视角】我们新中国联邦的民主不是中共那套民主](https://gnews.org/zh-hans/1039744/)
-[【文贵视角】中共将在霍尔姆斯海峡有动作，以重创西方经济](https://gnews.org/zh-hans/1035768/)
-[【文贵视角】中国人历来容易被操纵，共产党显露出纸老虎本质](https://gnews.org/zh-hant/1032698/)
-[【文贵视角】习近平到福建备战](https://gnews.org/zh-hans/1025799/)
-[【文贵视角】行动起来，消灭假丑黑骗的共产党犯罪集团](https://gnews.org/zh-hans/1022971/)
-[【文贵视角】中共在欧洲的现代辛普森计划暴露](https://gnews.org/zh-hans/1016414/)
-[【文贵视角】文贵先生阻止了一场什么样的战争](https://gnews.org/zh-hans/1008043/)
-[【文贵视角】美中假面戏：“披着羊皮的狼”和“披着羊皮装狼的羊”](https://gnews.org/zh-hans/999151/)
-[【文贵视角】拜登摔跤意味着什么？ 媒体不会告诉你的真相](https://gnews.org/zh-hans/995314/)
-[【文贵视角】如何看待共产党玩弄种族矛盾](https://gnews.org/zh-hans/994717/)
-[【文贵视角】镜子的另一面才能照出外交官的真相](https://gnews.org/zh-hans/990403/)
-[【文贵视角】香港危在旦夕 手足务必小心 新中国联邦人全体动员帮同胞](https://gnews.org/zh-hans/985859/)
-[【文贵视角】1月13号几乎中美开战 川普最后一分钟停止了计划](https://gnews.org/zh-hans/979866/)
-[【文贵视角】人民是中共待吃的肉 百姓以绝育的方式停止继续供养肉奴](https://gnews.org/zh-hans/973601/)
-[【文贵视角】中共与希特勒同一天毁约 绥靖将带来比万个希特勒更大的人类灾难](https://gnews.org/zh-hans/957265/)
-
-（本文仅代表撰稿者个人观点）
-
-+1
+0

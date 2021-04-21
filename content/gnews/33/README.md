@@ -1,25 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 简讯!德国多地养老院在接种疫苗后再次爆发感染
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1120737/)
+## 墙内就业惨状——“30而立”“35岁以上请离开”
+` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1119545/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/k-mitch-hodge-r3IE4JJLrFk-unsplash.jpg)
-*编撰：西联777*
-据多家德国媒体报道，当地时间4月16日，位于莱希林根（Leichlingen）的一家养老院在接种新冠疫苗后再次爆发聚集性感染，同时在雷姆沙伊德（Remscheid）和波鸿（Bochum）市的养老院也有类似案例发生。
+**制作：Cantonese工作室**
 
-位于莱希林根（Leichlingen）的这家养老院总共生活着有大约60人，其中95%的居民已经在一月份接种过第二剂的新冠疫苗或已接受过新冠治疗。但在本周早些时间，经PCR测试确认，该养老院里的17名居民和员工检测结果呈阳性。目前尚未得到确认是否是居民和员工接种了疫苗然后传播了这种病毒，但进入养老院的每个人都要接受定期测试，访客每48小时检查一次，员工每72小时检查一次,病毒极不可能是从外面带进养老院的。
 
-感染流行病学家蒂莫·乌尔里希斯（Timo Ulrichs）认为这种情况非常令人困扰，毕竟像大多数其他专家一样，他认为“疫苗本应可以预防所有这些疾病，使接种者免受感染，传播和疾病的侵扰。”
+![]()![](https://gnews.org/wp-content/uploads/2021/04/30-1.jpg)
+p的办公楼里面，很少能看到分布各年龄层职员，大多数都是毕业10年以内的年轻人。另一方面，35岁或以上的求职者简历，往往在第一轮筛选的时候，因为年龄问题，惨遭淘汰。鉴于现实状况，很多人只能选择开网约车、送外卖、开店、在微信上卖各类产品以维持生计。 中共国内宣对此等不合理、不公平的用人现状解释为“国内经济高速发展”导致。但很多网友对此并不买账。“高速发展的经济带来高速的失业”，显然并不能自圆其说。私以为，中共国内的就业惨状，由以下几个原因导致：第一，“996”加班文化盛行。加班不给加班工资、无限延长工作时间……已经成为国内企业和求职者心照不宣的一条铁律。1个人以透支时间、体力的方式，完成本来2-3人才能完成的工作量，因为中共国法律并没有落实对打工族的保护；第二，举国抄袭体制，使得企业并不需要有多少技术、经验积累，不需要研发新产品。只要盗窃国外对标企业的成果，换上中共国生产的标签即可，类似当年研发所谓全国产浏览器红芯之流的闹剧；第三，中共国企业主要聚集在供应链上相对底层的行业，多数是劳动密集型企业，单纯拼体力的工作内容远远多于拼脑力的，启用年轻人降低薪资成本，工作效率高，更重要的是也不需要太多经验积累即能完成。 而中共国内的大量私营企业主，对此也有说出自己的“难处”——如果严格按照中共国内的各种法律、法规行事，企业经营利润甚至不够覆盖其成本，各种苛捐杂税名目众多，但从来没有享受过什么政府服务、企业只有缴税义务，没有任何权利。与“政府”没有讨价还价的余地，只好从员工——这条利益链上最弱的一环下手。而开除35岁以上的员工，就是其中一个不是办法的办法。试想大批墙内人民，自身是独生子女，人到中年，上有高堂，下有幼子，还有高额的房价和高昂的必要开销等多重夹击，面临的却是更加动荡的职场、恶劣的就业环境和毫无保障的生活。时代的“灰尘”，落在个体身上，都是一座不可逾越的大山。而这一切，追根溯源，则无一不是中共由上至下各种荒唐政策抽打到每个个体身上的沉重伤痕。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/301-3.jpg)
+**作者：【文林】　**
 
-*免责声明：以上内容仅代表作者本人观点，与农场和GNEWS无关。*
-
-*参考信息来源：*[https://www1.wdr.de/nachrichten/themen/coronavirus/altenheim-leichlingen-corona-ausbruch-100.html](https://www1.wdr.de/nachrichten/themen/coronavirus/altenheim-leichlingen-corona-ausbruch-100.html) 
-[https://www.ksta.de/region/leverkusen/leichlingen/ausbruch-im-seniorenheim-14-vollstaendig-geimpfte-sind-corona-positiv-38292474](https://www.ksta.de/region/leverkusen/leichlingen/ausbruch-im-seniorenheim-14-vollstaendig-geimpfte-sind-corona-positiv-38292474) 
-[https://www.rnd.de/panorama/nrw-zwei-dutzend-geimpfte-altenheim-bewohner-aus-remscheid-und-leichlingen-mit-corona-infiziert-UUVZJEDTVBJKW4WTPLAMO3CR54.html](https://www.rnd.de/panorama/nrw-zwei-dutzend-geimpfte-altenheim-bewohner-aus-remscheid-und-leichlingen-mit-corona-infiziert-UUVZJEDTVBJKW4WTPLAMO3CR54.html) 
-[https://www.bild.de/regional/koeln/koeln-aktuell/im-leichlinger-altenheim-corona-infektionen-bei-geimpften-bestaetigt-76079524.bild.html](https://www.bild.de/regional/koeln/koeln-aktuell/im-leichlinger-altenheim-corona-infektionen-bei-geimpften-bestaetigt-76079524.bild.html)
-
-*审核收稿：西联777
-编辑发布：西联777*
+**发布：【向阳6768】审核：【向阳6768】**
 
 0

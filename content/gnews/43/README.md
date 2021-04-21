@@ -1,33 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国国务院发出最高级别警告：请勿旅行
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1120421/)
+## 中共博鳌亚洲论坛惨淡开幕
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1120784/)
 
-作者：Chloe
-![]()![](https://gnews.org/wp-content/uploads/2021/04/ggg-1.jpg)
-4月19日美国国务院宣布，接下来的几周将对世界上约80%的国家发出 “第4级：请勿旅行” 的警告。 这是国务院最高级别警告 （1）。
+**撰稿: 天鹅**
 
-国务院在官方声明中表示，旅行时感染COVID-19的风险仍然过高，并敦促美国人“重新考虑所有海外旅行”。
+**审核: pv0, 莫黎**
 
-第4级警告一般保留给战乱国家或被认为对美国公民有敌意的国家，如阿富汗和朝鲜。 即使在几内亚新冠与埃博拉大流行，美国国务院于2021年的2月25日对其发出的警告停留在第3级 （2）。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/769ce748934c0e0d.jpg)**图片: 昆仑竹**
 
-国务院今天的这则声明和疾控中心两周前发布的指导方针不一致。 疾控中心认为完全接种疫苗的人可以进行国际旅行，无需再旅行前接受COVID-19检测；而且返美后不需要自我隔离（3）。
+2021年4月20日中共博鳌亚洲论坛惨淡开幕，参加的各国领导人屈指可数，习总加速师也未到场，只是通过视频发表讲话。中共官媒《央视网》发表文章[1]“人类社会应该向何处去？习近平提出四点倡议”，与墙内媒体争相宣传、吹捧相对应的是国际媒体几乎没有这方面的报道。本届论坛是博鳌论坛成立20周年，给人的感觉也是有史以来最惨淡的一届。
 
-国务院今天发布声明一个可能的原因是近几天当局可能发现疫苗对变异的新冠病毒无效。 今天福奇说到秋季公众将知道是否需要打第三针疫苗 （4）。 莫德纳首席执行官本周表示，该公司将在秋季之前向美国人提供疫苗第三剂（5）。
+主办方没有对外发布各国领导人参加的名单，参与国家看来应该是屈指可数。面对全世界正义力量对中共病毒、种族灭绝、反人类罪的制裁与追责，中共顶着巨大压力仍然召开博鳌论坛。习总加速师面对即将到来的中共邪党100年以及20大到来，一副烂牌没人打，只有自己打，硬着头皮出来演讲[2]（同舟共济克时艰，命运与共创未来），那么让我们一起看看中共到底要干什么。
 
-辉瑞也表达了类似的计划。 两天前辉瑞CEO说6至12个月内公众可能需要接种第三剂冠状病毒疫苗，并且“之后每年要重新接种”（6）。
+**推崇多边主义，维护中共老地位**
 
-参考文献：
+演讲中谈到“我们应该秉持共商共建共享原则，坚持真正的多边主义”。中共此时一再强调多边主义，是怕美国在亚洲形成美日印澳“小北约”，与中共对抗。随着中共病毒真相的逐渐揭开，新疆种族灭绝、反人类罪的认定，中共在亚洲的影响力骤降。郭文贵先生在近期的爆料中也提到，美方已经开始扶植亚洲的新代理人— 日本，中共想要控制亚洲的美梦已经破灭。
 
-1. [https://www.dailymail.co.uk/health/article-9488745/US-State-Department-issue-Level-4-Not-Travel-advisory-80-countries.html](https://www.dailymail.co.uk/health/article-9488745/US-State-Department-issue-Level-4-Not-Travel-advisory-80-countries.html)
-2. [https://travel.state.gov/content/travel/en/traveladvisories/traveladvisories/guinea-travel-advisory.html#:~:text=N’Zerekore%20Region%3A%20Level%204,with%20updates%20to%20Ebola%20Information](https://travel.state.gov/content/travel/en/traveladvisories/traveladvisories/guinea-travel-advisory.html#:~:text=N'Zerekore%20Region%3A%20Level%204,with%20updates%20to%20Ebola%20Information).
-3. [https://www.cdc.gov/media/releases/2021/p0402-travel-guidance-vaccinated-people.html#:~:text=Fully%20vaccinated%20people%20can%20travel%20internationally%20without%20getting%20a%20COVID,a%20state%20or%20local%20jurisdiction](https://www.cdc.gov/media/releases/2021/p0402-travel-guidance-vaccinated-people.html#:~:text=Fully%20vaccinated%20people%20can%20travel%20internationally%20without%20getting%20a%20COVID,a%20state%20or%20local%20jurisdiction).
-4. [https://thehill.com/homenews/sunday-talk-shows/548879-fauci-public-will-know-if-third-vaccine-dose-is-needed-by-fall](https://thehill.com/homenews/sunday-talk-shows/548879-fauci-public-will-know-if-third-vaccine-dose-is-needed-by-fall)
-5. [https://www.cbsnews.com/news/moderna-covid-vaccine-booster-shots/](https://www.cbsnews.com/news/moderna-covid-vaccine-booster-shots/)
-6. [https://abc7ny.com/health/third-vaccine-dose-likely-needed-in-6-to-12-months-pfizer-ceo-says/10520223/](https://abc7ny.com/health/third-vaccine-dose-likely-needed-in-6-to-12-months-pfizer-ceo-says/10520223/)
+演讲中还谈到了“要维护以联合国为核心的国际体系，维护以世界贸易组织为核心的多边贸易体制”。这句意思其实就是要保住中共在联合国、世界贸易组织的地位，要保住中共在国际舞台上的话语权。中共已经预见到了全球局势的变动即将到来，渗透、操纵他国政治、经济等手段将会越来越难，而自己（中共）的死期也不远了。这也就是习近平要特别强调维护中共的老体系，老地位不变的原因。
+
+**中共求技术、求投资**
+
+该演讲还谈到了“开放是发展进步的必由之路”、“我们要推动贸易和投资自由化便利化，构建开放型世界经济”。自爆料革命以来，全世界对中共的科技、经济的制裁越来越多，越来越紧，中共越是造假、掩盖，国际社会对中共的制裁范围就会越广，制裁手段就会越严。故此中共不得不在博鳌论坛上，借着自由、开发、发展的口号要求全世界来投资，推崇所谓的共同发展，一起分享技术。其实就是要西方国家来投钱，来投技术。但是面对仇视普世价值，输出中共病毒，犯下种族灭绝，奉行战狼外交的中共政府，哪个国家又敢和其合作，谁敢再相信他们？全世界已经给了中国共产党几十年的时间，但是换来的却是把一个小流氓养成了一个大魔鬼，这一次世界再也不会给他们机会了！
+
+**厚颜无耻、满嘴谎言**
+
+习在演讲中说到“我们要坚守正义，开创互尊互鉴的未来”、“我宣布，中方将在疫情得到控制后即举办第二届亚洲文明对话大会，为促进亚洲和世界文明对话发挥积极作用”。那么香港同胞的正义谁来维护？新疆同胞的生命谁来维护？南海诸国的利益又有谁来维护？
+
+爆料革命、新中国联邦崇尚的就是唯真不破、正道主义，而这些话由中共讲出简直让人反胃。视频会记录这一切，每个人都要为自己的一言一行负责，最终全世界都会对中共的恶行进行审判。共产党你完了！
 
 
-发布：GLC
+
+**本文仅代表作者个人观点。**
+
+**参考新闻: **
+
+[1] [联播+｜人类社会应该向何处去？习近平提出四点倡议](https://world.huanqiu.com/article/42nW2IBCyvd)
+
+[2] [同舟共济克时艰，命运与共创未来 — 在博鳌亚洲论坛2021年年会开幕式上的视频主旨演讲](https://m.21jingji.com/article/20210420/herald/368888fe93fa527b46f75d72f90018b0.html)
+
+
+
+* * *
+
+**发布: 法国巴黎七星编辑组**
 
 0
