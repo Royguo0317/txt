@@ -1,63 +1,111 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 被“弯道超车”后 特斯拉在中共国遭围殴
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1122295/)
+## 郭文贵先生第二次提到中共有病毒的解药【4/20收集新闻篇】
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1123082/)
 
-【日本东京方舟农场】 撰稿：青衣  校对：miumiu law
+**西班牙巴塞罗那喜悦农场** wenwu
 
-今年以来电动车龙头企业特斯拉（Tesla）在中共国遭遇寒流，不但突然面临中共官方和党媒以及行业内外的如潮恶评，同时还遭军方和国企禁用，与3年前受到的热烈欢迎形成了鲜明对比。特斯拉似乎已成为被中共“弯道超车”后对抗美国的祭品。
+【以毒灭共】中共有解药加病毒推文内容，如下
 
-特斯拉创始人马斯克（Elon Musk）或许不会想到，自己进军中共国市场短短一年多时间，就迎来中共的变脸。显然马斯克太不了解“中国特色”了。
+郭文贵先生4月21日盖特重磅内容：
+**第二次提到中共有病毒的解药**
+*中共病毒是生物武器，永远不可能有疫苗，但中国共产党有病毒的解药。今天第二次百分比强调信息的准确性。中国共产党掌握人类的未来，要去找共产党要解药。只要不戴口罩的中共领导一定吃了解药，戴口罩的就是不给你解药。
+[https://gtv.org/getter/60803b0e8616c84f0ff20cf7](https://gtv.org/getter/60803b0e8616c84f0ff20cf7) （6:20-8:20）*
 
-近日先是有媒体爆出某部队发出了这样一则通告：“经过考察和实际测试，‘特斯拉’品牌汽车装有全方位摄像头、超声波、传感器等一系列能够暴露目标位置的技术装置，为确保军事秘密绝对安全，杜绝隐患问题，家属院所属区域禁止驶入和停放该品牌车辆。”随即各媒体开始大肆转发该报道，据称现在中共国的部队和国企都已开始禁止“特斯拉”车辆进入和停放。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/B63AA959-571E-4802-A9E5-25E8240F1E02.jpeg)
 
-在这之后，媒体又多次报道“特斯拉”车辆存在刹车系统问题造成车辆毁坏，其中广西南宁的一位特斯拉车主，在车身上挂着 “自动加速，刹不住车” 的横幅维权，而该图片被媒体广为转发；不久广东增城也爆出造成交通事故的涉事车辆又是“特斯拉”；同时，媒体还热炒“特斯拉”的自动驾驶在美国造成撞树车毁人亡事件，美国警方正准备向“特斯拉”发搜捕令等一系列新闻。
+> ”In People’s Republic of China, no difference between military-civilian research centers.
+> Chapter 78 of CCP’s 35-Year Plan (2016-2020) describes fusion of military-civilian research including area of “synthetic biology”…(which)include biological warfare”[https://t.co/VG8Rtza9QS](https://t.co/VG8Rtza9QS)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 20, 2021](https://twitter.com/DrLiMengYAN1/status/1384522648240144386?ref_src=twsrc%5Etfw)
 
-最令人瞩目的事件则是在4月19日，上海车展上一女子身穿印有“特斯拉刹车失灵”字样的T恤，站在“特斯拉”车顶上大闹。据称她其实是因为超速违章发生碰撞事故，但她事后以产品质量为由坚持要求退车，而特斯拉表示对不合理诉求不妥协。随后该女子被保安制服，之后被警方宣布行政拘留5日。在此之后，网上又爆出了“特斯拉”的刹车问题维权车主聚集在车展内冲击“特斯拉”办公室的视频。
 
-在这之后不久，新华社就发表了中共政法委“就上海特斯拉维权事件”发表的文章——《谁给了特斯拉“不妥协”的底气》，怒批“特斯拉”。文章称，中（共）国是全球最大的汽车产销市场之一，也是全球知名车企争夺的重要市场。无论哪家车企，都须对中（共）国市场有敬畏之心，诚恳接受消费者监督，如果车企涉嫌“店大欺客”，有关部门也要加强监管。
+1. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1384522648240144386)**：
+*“在中华人民共和国，军民融合研究中心没有区别。第78章中国共产党的35年计划（2016-2020）中，描述了军民研究的融合，包括“合成生物学”领域……其中就说明了生物战*
+*附**[《门扉网》新闻链接](https://www.thegatewaypundit.com/2021/04/chinese-communist-party-extensive-research-network-supporting-biowarfare/)***
 
-一个所谓的维权事件，竟然都惊动了中共政法委！随后，特斯拉在各方压力之下于深夜向车主发表了道歉声明。声明称：已成立处理小组，尊重并坚定服从政府部门决定，积极配合所有调查，尽全力满足车主诉求……
 
-短短不到两天时间，特斯拉登上了4次“知乎”热搜榜，依次是女车主维权被拉走-&gt;特斯拉回应不可能妥协-&gt;女车主被拘留5天-&gt;特斯拉道歉愿配合调查。对此有网友评论称：“买车还得买外国车，因为维权有新华社撑腰。”
+> “2019.12.10 Obtained COVID19 Virus Sequence”- Ningyi Jin, 28 Nov, 2020.
+> Ningyi Jin: Director of the Lab of Molecular Virology & Immunology of Military Veterinary Research Institute of Academy of Military Medical Sciences, director of Military Genetic Engineering Key Lab in China [https://t.co/4AdRc1AotT](https://t.co/4AdRc1AotT)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 20, 2021](https://twitter.com/DrLiMengYAN1/status/1384606756060340231?ref_src=twsrc%5Etfw)
 
-值得注意的是，“恶评如潮”的“特斯拉”3月份销量暴涨207%。有网友表示：骂特斯拉是工作，买特斯拉是生活。显然，如今的网友不太容易被忽悠了。稍微脑子清醒点的人都能看出，这一波针对“特斯拉”的攻击，背后操纵的痕迹太过于明显了。而“特斯拉”在中共国这么的短时间内所发生的变迁，浓缩和折射出外企在中共治下的兴衰起伏。
 
-2018年5月，“特斯拉”在上海开设了超级工厂，不但成为中共国第一家外商独资设立的汽车公司，还获得上海当局的免费地皮与低息贷款等诸多优惠。2019年12月，“特斯拉”上海超级工厂出产了首批“特斯拉”Model3。当年由于中共开始下调补贴，2019年下半年中共国新能源汽车的销量连续下跌，而“特斯拉”的出现填补了市场空白。2020年前11个月，“特斯拉”中国产Model3共售出11.4万辆，远超国内竞争对手。
+2. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1384606756060340231?s=20)**：
+***（德意志之鹰）**这张幻灯片讲座（金宁一）很重要：*
+*2019.12.1-10 阳性病例*
+*2019.12.10 病毒序列*
+*2020.01.27 基因合成和疫苗筛查*
+*中共军队早知道这些细节，但紧急警报几个月后才发出！
+[https://www.koushare.com/video/videodetail/9430](https://www.koushare.com/video/videodetail/9430) （24:26）*
+***（闫）**“2019.12.10获得新冠病毒病毒序列”-金宁一，2020年11月28日
+金宁一：军事医学科学院军事兽医研究所分子病毒学与免疫学实验室主任，中国军事遗传工程重点实验室主任*
 
-“特斯拉”在中共国的成功，直接带飞了中共国的纯电动车行业。追随“特斯拉”在美国上市的“蔚来”、“小鹏”和“理想汽车”去年销量都创下历史新高，股价也都随之大涨。
 
-然而，在当今的中共国，电动车的竞争其实异常激烈。自媒体“政事堂”将中共国电动车行业分为走“右翼路线”的3家央企（一汽、东风、长安）、3家国企（上汽、广汽、北汽）、3家德企（宝马、奔驰、大众）以及恒大；走“左翼路线”的4家新势力（比亚迪、蔚来、理想、小鹏）、2家转型民企（吉利、长城）和2家国际巨头（特斯拉、苹果）。这其中，代表高端智能纯电动车的“特斯拉”，正面临越来越多对手的狙击。
+> [粤语配音]若有了可降低76%死亡率的硫酸羟氯喹这样的有效药，则无需疫苗。羟氯喹60美分一粒，需11粒；疫苗开发成本超10亿美元（1/2）
+> 
+> 完整视频请访问秘翻组盖特：[https://t.co/K2AuTqEAyA](https://t.co/K2AuTqEAyA) [pic.twitter.com/Ho04W1G90e](https://t.co/Ho04W1G90e)
+> — 秘密翻译组 (@G\_Translators6) [April 20, 2021](https://twitter.com/G_Translators6/status/1384470415561666561?ref_src=twsrc%5Etfw)
 
-去年11月，上汽集团宣布与上海浦东新区政府和阿里巴巴集团合作，打造高端智能纯电动汽车品牌“智己汽车”。12月，东风汽车旗下高端电动车品牌“岚图”SUV开始接受预定。而长城汽车也计划打造一个全新品牌——“沙龙”汽车。不仅如此，小米手机也于今年3月30日宣布正式进军智能电动汽车行业。4月，广汽集团宣布和华为共同研发L4级自动驾驶汽车。就连房地产商恒大也从去年起开始融资造车。
 
-不过，据《财新网》的特约评论文章《围攻特斯拉》所述 ，目前国产纯电动车唯一能在销量上与特斯拉抗衡的，只有五菱宏光MINI EV，但它是低端车型，售价仅为特斯拉Model3的十分之一。不过该文又引述瑞银证券报告称，在传统燃油车时代，中共国品牌汽车仅占全球约十分之一的份额，在中共国以外几乎没有影响力。电动车时代则不同。瑞银报告对中共国、美国、欧洲等国的电动汽车领域进行评分，认为中共国得分已超过美国，位居第一。
+3. **[秘密翻译组推特](https://twitter.com/G_Translators6/status/1384470415561666561?s=20)**：
+*[粤语配音]若有了可降低76%死亡率的硫酸羟氯喹这样的有效药，则无需疫苗。羟氯喹60美分一粒，需11粒；疫苗开发成本超10亿美元——Dr. Steven Hatfill
+视频：[https://gtv.org/getter/607ebc048616c84f0ff1a13b](https://gtv.org/getter/607ebc048616c84f0ff1a13b)*
 
-《财新网》的另一篇报导文章《谁主汽车前路》 也指出，特斯拉为新能源汽车业注入活力，开创了良性的商业循环；同时中共当局也大力支持新能源汽车，寄望“弯道超车”。该文还提到，华为遭到美国芯片禁令制裁后，正在竭力打造汽车业务能力。目前华为在与北汽和长安汽车合作，提供智能汽车解决方案。报道称，苹果、华为、小米等手机厂商觊觎电动汽车的“风口”，推动汽车向智能化发展。该文引述瑞银的估测称，2030年中共国或会出现数家全球领先的汽车和产业链公司，占据全球近半的电动车市场。事实上，目前中共国企业已经在电动车电池上跻身第一梯队，瑞银数据显示中企占据全球汽车电池市场约60%份额。
 
-2020年10月20日，中共国务院出炉《新能源汽车产业发展规划（2021—2035年）》，公开宣告要在新能源汽车领域“积极参与国际规则和标准制定”。今年3月中共正式出台《十四五规划纲要》，将新能源、新能源汽车等列为战略性新兴产业，并加强新能源等领域的军民融合发展。上海党媒《界面》官方财经号今年3月的一篇评论透露了习近平在新能源，尤其是“2060碳中和”目标背后隐藏的图谋。
+> What is not said in this documentary:
+> Ian Lipkin
+> Peter Daszak
+> Edward Holmes
+> Yongzhen Zhang
+> …
+> 
+> These guys were all playing the innocent game, pretending that they unveiled the truth, to confront Chinese Communist Party. But to the contrary, they were highly praised by CCP. [pic.twitter.com/XDvjJJHqDT](https://t.co/XDvjJJHqDT)
+> — 德意志之鹰 (@dezying) [April 20, 2021](https://twitter.com/dezying/status/1384338898604724224?ref_src=twsrc%5Etfw)
 
-该文认为，习近平去年提出的2060年实现碳中和，给清洁能源等新能源产业提供了发展机遇。中共可以在“生产-传输-利用”能源三角中的“利用”环节上实现“弯道超车“。简单说，就是通过发展新能源汽车，来带动储能（新能源电池）行业的高速发展。该文称，中共国新能源汽车业的崛起离不开政府的大规模补贴，对中共而言，“这是一场比半导体更重要的军备竞赛”。
 
-事实上，中共这些政策和规划都是在贯彻习近平多年来的主张——“弯道超车”。早在2014年，习近平在上海汽车集团考察时就强调，“发展新能源汽车是我国从汽车大国迈向汽车强国的必由之路”。2016年4月，习近平又指示说，“必须突破核心技术这个难题，争取在某些领域、某些方面实现‘弯道超车’”。去年7月，习近平在吉林考察时又重申，“要抢抓机遇，大力发展战略性新兴产业，实现弯道超车”。
+4. **[德意志之鹰推特](https://twitter.com/dezying/status/1384338898604724224?s=20)**：
+*这部纪录片中没有说的东西。
+伊恩-利普金
+Peter Daszak
+爱德华-霍姆斯
+张永振…
+这些人都在玩无辜的游戏，假装他们揭开了病毒真相，与中共对抗。但恰恰相反，他们受到了中共的高度赞扬*
 
-对于习近平反复提到的“弯道超车”的解读，《美国之音》在去年12月28日的报道中引述多位专家话语称，中共试图在电动汽车上赶超“欧美日”传统汽车强国，为此对中共国电动汽车行业投入巨额补贴，并涉嫌窃取技术。去年2月美国反间谍与安全中心（NCSC）总监伊万尼纳（William Evanina）公开表示，窃取美国飞机技术和电动汽车技术是中共谍报工作的两项重点。
 
-时事评论员李林一也分析称，“习近平宣扬弯道超车，本身就带有投机的色彩，暗含不择手段的寓意，不然为何不说直道超车。” 他表示，“特斯拉虽然也享受中共的优惠和补贴，打开了中共国市场。但中共的支持显然更倾向于中企，而特斯拉在中共国成为电动车标杆，引入了先进的技术和管理经验，结果却是陷入孤军奋战，被众多中共支持的竞争对手模仿、围攻，然后一步步追赶。”
+> The Chinese Communist Party Has an Extensive Research Network Supporting Biowarfare
+> 中国共产党拥有广泛的支持生物战的研究网络[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/4AVWJb8tV6](https://t.co/4AVWJb8tV6)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 20, 2021](https://twitter.com/LawrenceSellin/status/1384496759959965696?ref_src=twsrc%5Etfw)
 
-3月下旬马斯克为了回应中共国军方禁停特斯拉以及官方的翻脸，不但在中（共）国发展高层论坛会上极力澄清特斯拉不会从事间谍活动，而且在接受央视采访时还大力称赞中共“十四五”规划设定的碳排放目标。然而，知名中国问题专家章家敦博士对此却表示，马斯克对中共示好，可能不会换来“放他一马“”的结果。章家敦认为，习近平要的是外国公司的资金和技术，他要取代他们，取代马斯克。他说：“从现在开始的5年或10年后，马斯克将为中国（中共）毁掉了特斯拉追悔莫及。 ”
 
-在中美关系持续紧张的形势下，特斯拉显然也成为了中共对抗美国的“祭品”。在被骗入中共国投入大量资金，在技术和管理经验能力等方面遭窃取后，开始被打压，最终的结果定是被设套赶出中共国。对此，有中共国网友一针见血地指出：“找人碰瓷特斯拉，然后煽动民族情绪抵制特斯拉，赶出中（共）国！把工厂和技术扣下，让华为汽车取而代之！华为车如果出事故，全部404！家属被维稳。我把剧本留在这了，等着看吧。”
+5. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1384496759959965696?s=20)**：
+*[中国共产党拥有广泛的支持生物战的研究网络](https://www.thegatewaypundit.com/2021/04/chinese-communist-party-extensive-research-network-supporting-biowarfare/)
+（#中共病毒 #超限生物战 #超限生物武器 #病毒起源）*
 
-注：本文仅代表作者观点
 
-参考链接：
+> FOX重磅採訪：2014年福奇的研究所委託由彼得．達札克負責的「生態健康聯盟」組織，把病毒功能性增強實驗研究分包給了武毒所。科學家不敢說出真相，因為他們是由國立衛生研究院和國家過敏與傳染研究院資助的，科學家怕研究經費被刪減。但現在死了這麼多人我們可望瞭解這場大瘟疫的根源。
+> 調查福奇老兒 [pic.twitter.com/QLXQNhAE8e](https://t.co/QLXQNhAE8e)
+> — 全民挺郭联盟✊️ ✊️ ✊️ (@redwallpusher) [April 21, 2021](https://twitter.com/redwallpusher/status/1384688816007512064?ref_src=twsrc%5Etfw)
 
-1. [https://twitter.com/aboluowang/status/1384706094916784133](https://twitter.com/aboluowang/status/1384706094916784133)
-2. [https://twitter.com/bannedebook/status/1384707719026774018](https://twitter.com/bannedebook/status/1384707719026774018)
+
+6. **[全民挺郭联盟推特](https://twitter.com/redwallpusher/status/1384688816007512064?s=20)**：
+*FOX重磅採访：2014年福奇的研究所委托由彼得．达札克负责的「生态健康联盟」组织，把病毒功能性增强实验研究分包给了“武毒所”。科学家不敢说出真相，因为他们是由国立卫生研究院和国家过敏与传染研究院资助的，科学家怕研究经费被删减。但现在死了这么多人我们可望了解这场大瘟疫的根源。调查福奇老儿*
+
+
+> 《新编人兽共患病学》序言节选：
+> "许多人兽共患病病原体及其致病因子可以通过现代生物技术对其进行基因重组，极大地提高其杀伤力、攻击力和毒性作用，可能给恐怖组织造成可乘之机，以其制造生物战剂进行威胁和恐怖活动，危害人类的安全…研究和防治对国防建设都具有重要的现实意义。” [https://t.co/lyNXlySK8t](https://t.co/lyNXlySK8t) [pic.twitter.com/XfF4XhvhUF](https://t.co/XfF4XhvhUF)
+> — 德意志之鹰 (@dezying) [April 20, 2021](https://twitter.com/dezying/status/1384499427948253185?ref_src=twsrc%5Etfw)
+
+
+7. **[德意志之鹰推特](https://twitter.com/dezying/status/1384499427948253185?s=20)**：
+*《新编人兽共患病学》序言节选： “许多人兽共患病病原体及其致病因子可以通过现代生物技术对其进行基因重组，极大地提高其杀伤力、攻击力和毒性作用，可能给恐怖组织造成可乘之机，以其制造生物战剂进行威胁和恐怖活动，危害人类的安全…研究和防治对国防建设都具有重要的现实意义。”*
+
+
+> 愈發…… [pic.twitter.com/C7j2W4WVF5](https://t.co/C7j2W4WVF5)
+> — 安红橘绛轩 (@maryann\_3040) [April 20, 2021](https://twitter.com/maryann_3040/status/1384557785933750272?ref_src=twsrc%5Etfw)
+
+
+8. **[安红推特](https://twitter.com/maryann_3040/status/1384557785933750272?s=20)**：
+*(中共病毒）愈发…*
 
 
 +1

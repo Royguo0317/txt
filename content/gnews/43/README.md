@@ -1,25 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共高铁产业链被制裁后的窘境
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1122184/)
+## 慧眼看世界202104021（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1122803/)
 
-撰稿：自由战士
-![]()![](https://gnews.org/wp-content/uploads/2021/04/213.png)图片来自网络
-经历了超10年的投资建设热潮后，一路高歌猛进的中国高铁建设开始“减油门”。
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-中共过在过去十几年中的高铁投入可以说是惊人的投入。资本市场当时合并可以说是把中共高铁的发展速度演绎的淋漓尽致。中国南车与[中国北车](https://baike.baidu.com/item/%E4%B8%AD%E5%9B%BD%E5%8C%97%E8%BD%A6/3323528)2014年12月30日晚双双发布重组公告，正式宣布双方以南车换股吸收北车的方式进行[合并](https://baike.baidu.com/item/%E5%90%88%E5%B9%B6/5615281)，合并后的新公司更名为“[中国中车股份有限公司](https://baike.baidu.com/item/%E4%B8%AD%E5%9B%BD%E4%B8%AD%E8%BD%A6%E8%82%A1%E4%BB%BD%E6%9C%89%E9%99%90%E5%85%AC%E5%8F%B8/16509347)”（以下简称“中车”）。当时的股价可以说是如日中天，但是合并后就是腰斩式下跌，当时被邪恶中共虚假的信息忽悠的股民全力接盘，进行了一次完美收割。
 
-中共高铁同时还在墙内吹嘘的是世界领先，无人能敌的技术优势，全部自主研发。继续洗脑墙内百姓。但是随着中共释超限生物武器中共病毒来围堵世界，想通过这次防毒来控制全世界。但是在去年2020年12月3号被美国增加了制裁名单中国中车股份有限公司（CRRC），这个被中共吹嘘的巨无霸企业的谎言在今天发布的信息中看到，已经被彻底揭穿。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-我们可以再看一下高铁技术包括铁路建设技术、火车制造技术、[信息采集技术](https://baike.baidu.com/item/%E4%BF%A1%E6%81%AF%E9%87%87%E9%9B%86%E6%8A%80%E6%9C%AF/6202468)、调度控制技术以及运营管理技术和维修养护技术等。高铁技术如同航空技术一样，是个十分庞大复杂的工程体系。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-11.jpg)
 
-中共国建国到现在自主研发的应该只有一个牙签吧，其余的大多数都是抄袭和仿造。但是类似这种高铁的技术，不是抄袭就能生产的，其中大多数通讯芯片，计算相关芯片等等这些实际的供应链物料都需要依靠进口才能解决。也就是说，有些技术即使把图纸给到中共，在这个劣币驱逐良币的制度下也是做不出来的。在邪恶中共的眼里就是偷窃。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-12.jpg)
 
-因此综合看目前邪恶中共在宣传要减速高铁的投入，其实就是被技术和供应链的限制已经无法完整生产了。只能换个概念来忽悠百姓。在这个邪恶中共统治的环境下，当制裁的棒槌砸下来的时候，只有一个结果，就是灭亡。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-11.jpg)
 
-（本文中观点只代表个人观点）
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-12.jpg)
 
-*审稿：五饼二鱼（文荣） 编辑：MG1*
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-12.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-10.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-10.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-10.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-10.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-16.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-18.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-14.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-13.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-13.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-10.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-10.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/18-8.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/19-7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/21-4.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
+
 0
