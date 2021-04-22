@@ -1,33 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 273度大转弯的决策
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1127982/)
+## 余兴龙简历显示 中共早在1992年就开始分离蝙蝠病毒
+` 文怡 加拿大多倫多楓葉農場` [轉載自GNews](https://gnews.org/zh-hans/1128176/)
 
-```
-新闻来源：德国经济周刊 网络版
-记者：  托马斯·库恩（Thomas Kuhn）
-发表时间：2021年4月21日
-```
+4月22日，劳伦斯-塞林博士（Dr. Lawrence Sellin）发推揭露长春军事兽医研究所可能是个生物战中心，配图中有中国人民解放军军事医学科学院军事兽医所研究员涂长春（Changchun Tu)。
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-13-98-scaled.jpg)封面来源：GRAHAM CARLOW/摄影
 
-美国公司似乎在制造量子计算机方面已经将竞争抛在了后面。 但是新型计算机和处理器设计改变了一切：下一代量子超级计算机来自德国。
+> The Institute of Military Veterinary Medicine in Changchun may have been a biowarfare center where secret experiments were conducted on Zhoushan viruses ZC45 & ZXC21 after they disappeared from the scientific literature between 2018-2020.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Covid](https://twitter.com/hashtag/Covid?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/HKlvmn1B7x](https://t.co/HKlvmn1B7x)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 22, 2021](https://twitter.com/LawrenceSellin/status/1385282778133143559?ref_src=twsrc%5Etfw)
 
-从项目的重要性来衡量，这座朴素的功能性建筑地下室的景象显得不那么壮观。在那里，在朱利奇研究中心 （ForschungszentrumJülich）的办公室和演讲厅大楼的地下室中，有两个粉刷成白色的垃圾桶，大小与油桶相同，被拧入与旧电话亭一样大的棚架中。线束通向配备了测量和控制设备的技术机柜，其LED持续闪烁。纸箱，塑料布和电缆卷筒充满了整个房间，正在等待工匠做出最后的油漆处理工作。
 
-“我们仍处于装配过程中，” Frank Wilhelm-Mauch指导我们完成整个施工现场时说。萨尔布吕肯大学理论物理学教授是欧洲最著名的量子研究人员之一，并与一个在尤利希工作的团队合作，研究欧洲最雄心勃勃的IT项目之一：量子计算机OpenSuperQ的开发。
 
-#### **简评：**
+经战友指点，笔者发现了一位多次与涂长春合作研究的、目前为湖南农业大学教授的余兴龙。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1094.png)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1086.png)
+[简历](https://baike.baidu.com/item/%E4%BD%99%E5%85%B4%E9%BE%99)显示，早在1992年至1995年，余兴龙在广州军区军事医学研究所工作期间，就进行了蝙蝠病毒分离研究。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1087.png)
+1997年起，余兴龙与涂长春合作的中英文论文达几十篇之多。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1088.png)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1089.png)
+可见无论余兴龙在哪个城市、哪个单位工作，都有着军方背景，可以跨地域与其他中共军方人员共同研究并合作论文。
 
-**这个题目吸引了我，这是一个有关量子计算机的生产制造的文章。最后，美国决定量子计算机的生产设在德国的朱利奇研究中心。看完这篇文章以后，不禁要和大家分享，量子计算机的生产制造是核心技术，是未来。没有落到中共国的手里，是多大的欣慰，也是多么的重要。如果这样核心的技术被中共盗取，或者在中共国生产，后果不堪设想，那真就是要全人类都要走进火葬场了。中共，华为，你们要你们的5G还有用的吗？你们想通过5G控制世界，那是做梦了!  人类的未来必须掌握在有普世价值观的人手里。这才是正道。这是一个值得高兴的事情。 **
-（本文只代表作者观点，与Gnews平台无关。）
+而涂长春如劳伦斯-塞林博士所说，确实是中共军方背景。有[报道](http://scitech.people.com.cn/n/2014/0627/c1007-25206760.html)显示，2014年他就在云南蝙蝠体内检测出了新型SARS（非典型性肺炎）样冠状病毒。真是细思极恐！！！
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1091.png)
+这些事实验证了中共进行超限生物战是军方直接参与的、长期计划并实施的。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/潘多拉盒子2.jpg)
+余兴龙这样的中共帮凶还在象牙塔里荼毒懵懂、年少的学生，而学生父母们在不知不觉中把充满希冀的下一代送入了为中共卖命的科学狂人魔爪之下。可见中共一日不除，中国人就一日活在邪魔恶党的阴影中，未来也会被无情地摧残。
 
-**新闻来源链接：**🔗[Entscheidung bei minus 273 Grad](https://www.wiwo.de/my/technologie/forschung/quantencomputer-entscheidung-bei-minus-273-grad/27096486.html)
-
-* * *
-
-***翻译/ 整理/ 评论：** Shuizhuyu **编辑整理/校对：**Ting Guo*
-
-+1
+0

@@ -1,93 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第247节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1127886/)
+## 喀秋莎新闻参考- 2021年4月21日(星期三)
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1127998/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+俄罗斯莫斯科喀秋莎农场 土星
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/CA-1.jpg)mytruenorthnow.com
-**第247节 加强与加拿大合作的战略**
+编辑 НастяApfel(娜斯佳)    上传 星河
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片6-24.png)rutube.ru
+一、新中国联邦新闻
 
-（a）通常情况 — 不迟于本法颁布之日后90天，总统应向参议院外交关系委员会和军事委员会以及众议院外交事务委员会和军事委员会提交一份战略报告，说明美国将如何加强与加拿大政府在管控与中共国政府关系方面的合作。
+1.“路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=FgLCAO5poro)、[晚间](https://www.youtube.com/watch?v=P3JiS6D7gRk)）:
 
-（b）要素 —（a）款所规定的策略—
+Ⅰ.日本驻澳洲大使山上信吾近日表示，日本有望在短期内加入五眼联盟（Five Eyes）这个情报共享组织。澳洲国防安全专家表示，日本将是五眼联盟吸纳新成员的最佳选择。五眼联盟是由五个英语国家组成的情报共享联盟，成员国包括澳大利亚、加拿大、新西兰、英国和美国。
 
-（1）确定美国和加拿大在处理与中共国的关系方面的主要政策的趋同点和分歧点，在技术、贸易、经济实践、网络安全、安全供应链和关键矿产以及非法麻醉品等领域的合作；
+Ⅱ. 白宫证实，中共国家主席习近平将参加本周四、周五由美国主办的气候峰会，不过不会安排与拜登总统进行双边会谈。
 
-（2）包括与加拿大同行的发展协调努力，以加强美国和加拿大在以下方面的合作—
+2. 最新证据表明，中共军方可能早在2019年11月就已经知道了COVID-19病毒。
 
-（A）管控与中共国的经济关系；
+3. 周三，美国参议院外交关系委员会提出了全面立法，以在人权和经济竞争等多个问题上反击中共。以21：1的小组投票结果，将《战略竞争法》提交众议院审议。
 
-（B）中共国的民主和人权；
+4. 参议院委员会，批准了一项旨在限制美国参加北京冬奥会的提案，作为针对中共国的更广泛立法的一部分，该提案可能很快就会送达参议院。
 
-（C）涉及中共国的技术问题；
+5. 美国国际宗教自由委员会，周三敦促拜登政府不要派官员参加2022年北京冬奥会，理由是宗教迫害，包括中共对维吾尔族穆斯林的镇压，华盛顿已将其称之为种族灭绝。
 
-（D）涉及中共国的国防问题；以及
+6. 菲律宾政府的一个特别工作组周三表示，菲律宾正在加强在南中国海的存在，并部署更多的船只和飞机，以保护其海洋领土和资源。
 
-（E）国际执法和跨国有组织犯罪问题。
+7. 阿联酋外交部长谢赫·阿卜杜拉·本·扎耶德·阿勒纳哈扬，周二告诉巴基斯坦外交部长沙阿·马哈茂德·库雷希，阿联酋将提供20亿美元的贷款，并”提供一切可能的支持”，以努力改善两国关系。
 
-（3）详述外交努力和未来与加拿大合作的计划，以对抗中共国在世界各地推行的独裁统治模式；
+8. 参议员玛莎·布莱克本，周三在接受布莱巴特新闻网的独家采访时表示，苹果公司与中共的关系”非常亲密”。她还指出，苹果公司在香港下架了支持民主的应用程序，但是这家科技公司不会与联邦调查局合作抓捕恐怖分子。
 
-（4）详细说明迄今为止的外交、国防和情报合作以及未来的计划，以支持加拿大努力寻找效益成本比高的、替代华为的5G技术；
+9. 参议员卢比奥坚持强调所谓的大公司如耐克、NBA、美国职业棒球大联盟和一些航空公司的虚伪，这些公司都与中共政府做生意，同时批评美国所谓的不公正现象。
 
-（5）外交和国防合作细节—
+10. 援助有需要的教会组织（ACN）周二在一份综合报告中透露，在过去两年中，中共当局大大加强了对所有宗教少数群体的镇压。报告指出”中共国的宗教自由目前正遭受着自文化大革命以来最严重的镇压。
 
-（A）推进美国和加拿大在北极地区负责任管理的联合优先事项；以及
+11. 欧盟和印度正在进行谈判，以在世界各地共同建设基础设施项目，这是与中共的“一带一路”倡议相竞争的最新尝试。该计划被称为在能源、数字和交通等领域的“互联互通”伙伴关系，旨在提供比北京方面更完善的法律保障和更宽松的债务条件。
 
-（B）对抗中共国向北极地区施加政治、经济和军事影响的努力；以及
+12. 在维吾尔族和香港问题的激烈争吵中，英国对中共国的援助削减了95%，不到100万英镑，多米尼克·拉布表示，剩余的资金只会用于促进”开放社会和人权”的项目上。
 
-（6）详细说明与加拿大合作的外交努力，以跟踪和反击中共国试图在包括世界卫生组织在内的整个多边体系施加影响的企图。
+13．美国两党议员组成的小组周三提出了一项立法，呼吁在五年内为基础和先进技术研究与科学提供1000亿美元的政府预算，以面对中共国日益增长的竞争压力。
 
-（c）形式 — 本节要求的战略报告应以非保密形式提交，可向公众提供，但必要时可包括保密附件。
+14. 美国参议院外交关系委员会周三支持全面立法，在人权，经济竞争和国际影响力等问题上反击中共，并将该措施提交参议院全体审议。经过几个小时的辩论和修正，委员会以压倒性的21：1票的优势支持了该法案。
 
-（d）咨询 — 国务卿应在本法颁布之日起90天内，且此后每隔180天，就本节所要求的战略的制定和实施与相应的国会委员会进行磋商。
+15. 美国参议员汤姆·科顿周三抨击美国有线电视新闻网（CNN）、美国广播公司（ABC）、哥伦比亚广播公司（CBS）和美国全国广播公司（NBC）四大主流媒体对中共的财务依赖。
 
-（本节完）
+16. 美国司法部以电汇诈骗和虚假陈述两项罪名起诉了一名华裔伊利诺伊大学教授，指控他在申请和接受美国政府国家科学基金会151099美元的资助时，为中共国政府附属大学秘密工作，并隐瞒了这些关系。
 
-原文链接：
+17. 参议员卢比奥说，他无法理解，为什么习近平将在周四的白宫虚拟气候峰会上作为特邀发言人，因为中共国是世界上碳排放的”主要污染者”，并且不会采取任何措施阻止其增长。
 
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+18．周四，共和党阿肯色州参议员汤姆·科顿将重提《安全校园法案》，打击中共在美国大学的间谍活动。
 
-文字整理：
+19. 美国负责非洲事务的最高指挥官，周二告诉立法者，中共海军基地靠近红海入口的一个最近完工的码头足以支撑一艘航空母舰。
 
-SEC. 247. STRATEGY TO ENHANCE COOPERATION WITH CANADA.
+二、世界新闻
 
-(a) IN GENERAL.—Not later than 90 days after the date of the enactment of this Act, the President shall submit a strategy to the Committee on Foreign Relations and the Committee on Armed Services of the Senate and the Committee on Foreign Affairs and the Committee on Armed Services of the House of Representatives that describes how the United States will enhance cooperation with the Government of Canada in managing relations with the Government of China.
+1.  美国核武库负责人拒绝放弃陆基导弹的呼吁。美国战略司令部司令查尔斯·理查德海军上将周二表示，美国有史以来第一次同时面对两个核大国-俄罗斯和中共国，他不能用今天老化的核储备做到这一点。
 
-(b) ELEMENTS.—The strategy required under subsection (a) shall—
+2. 美国前国务卿蓬佩奥周三参加了”今晚的福克斯商业”节目，讨论了周四由美国主导的气候变化峰会，他说：”中共”不打算履行”它在气候峰会上做出的任何承诺。”
 
-(1) identify key policy points of convergence and divergence between the United States and Canada in managing relations with the People’s Republic of China in the areas of technology, trade, economic practices, cyber security, secure supply chains and critical minerals, and illicit narcotics;
+3. 美国周三在缅甸军事政变以来的最新一系列惩罚性行动中，对另外两家国有企业实施了制裁，并表示将采取进一步行动。美国财政部在一份声明中表示，已对缅甸木材企业（MTE）和缅甸珍珠企业（MPE）实施制裁，并补充说，珍珠和木材行业是缅甸武装部队的经济来源。
 
-(2) include the development coordination efforts with Canadian counterparts to enhance the cooperation between the United States and Canada with respect to—
+4. 前国务卿蓬佩奥，正在支持众议院保守派阻止拜登政府取消对伊朗制裁的努力。周三，他与共和党人会面，公布了《最大压力法案》。
 
-(A) managing economic relations with the People’s Republic of China;
+5. 巴拉圭总统马里奥·阿布多·贝尼特斯周二表示，该国不会接受任何形式的勒索或外交条件，以换取购买COVID-19疫苗。
 
-(B) democracy and human rights in the People’s Republic of China;
+6. 美国国防制造商在一份声明中表示，日本从诺斯罗普·格鲁曼公司订购的三架RQ-4B全球鹰无人机中的第一架，上周从加利福尼亚州的帕姆代尔首次飞行。
 
-(C) technology issues involving the People’s Republic of China;
-
-(D) defense issues involving the People’s Republic of China; and
-
-(E) international law enforcement and transnational organized crime issues.
-
-(3) detail diplomatic efforts and future plans to work with Canada to counter Chinese projection of
-
-an authoritarian governing model around the world;
-
-(4) detail diplomatic, defense, and intelligence cooperation to date and future plans to support Canadian efforts to identify cost-effective alternatives to Huawei’s 5G technology;
-
-(5) detail diplomatic and defense collaboration—
-
-(A) to advance joint United States-Canadian priorities for responsible stewardship in the Arctic Region; and
-
-(B) to counter Chinese efforts to project political, economic, and military influence into the Arctic Region; and
-
-(6) detail diplomatic efforts to work with Canada to track and counter Chinese attempts to exert influence across the multilateral system, including at the World Health Organization.
-
-(c) FORM.—The strategy required under this section shall be submitted in an unclassified form that can be made available to the public, but may include a classified annex, if necessary.
-
-(d) CONSULTATION.—Not later than 90 days after the date of the enactment of this Act, and not less frequently than every 180 days thereafter, the Secretary of State shall consult with the appropriate congressional committees regarding the development and implementation of the strategy required under this section.
+7．美国参议员卢比奥和克鲁兹提出了2021年《保护军事设施和靶场保护法案》，该法案禁止对手在军事基地附近获取土地，他们可以用它来监控美国武装部队的活动，并使军事设施处于危险之中。
 
 0

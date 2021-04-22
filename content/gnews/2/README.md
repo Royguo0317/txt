@@ -1,55 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】郭先生出席“东利诉战略愿景诈欺案”庭审第二日现场报道（一）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1128133/)
+## 【世事解评】中共极权法治侮辱人民，点餐浪费者将被收取厨余垃圾处理费
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1128276/)
 
-记者：纽约香草山农场 Kathy（文艺）
-作者：联盟gnews记者站合作撰稿
- – 西班牙巴塞罗那喜悦农场 Víctor Torres
+香草山农场写作组4组 唯心力行
+
+据中国人大网4月22日消息，反食品浪费法草案二次审议稿将提请4月26日召开的十三届全国人大常委会第二十八次会议审议。草案二次审议稿主要修改内容为：明确国务院发展改革部门的组织协调职能，增强对造成明显浪费的消费者收取处理厨余垃圾处理的可操作性，县级以上地方政府市场监督管理部门或者县级以上地方人民政府指定的部门实施处罚。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-57.png)
+
+中共使用诈术窃取政权，其统治手腕无非是秦帝国“愚民、弱民、疲民、辱民、贫民“商鞅驭民五策的现代版。中共的“依法治国”沦为驭民之术，极权法网越织越密。共党自诩为“政治机关”，领导立法而不受法律制约。反食品浪费法规定，民众大吃大喝要罚款，餐饮业者诱导消费要罚款；点餐浪费收取厨余垃圾费。
+
+中共的极权统治精于制造事端，把绳索套到老百姓脖子上，然后逐步拉紧，立法阴谋屡试不爽。制定反食品浪费法，既可以把将要到来的粮食危机归咎于老百姓，又可以通过新增收费搜刮百姓。官家一口酒，百姓一月粮，百姓哪舍得浪费半点粮食。极权法网的“法治”以践踏人民权利为目标，愚民、弱民、疲民、辱民、贫民，以永续共匪“江山”，世代奴役人民。
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+校对、发稿 奇门遁甲
+
+信息来源：
+
+[http://www.npc.gov.cn/npc/c30834/202104/8afb240bdb1c48b792ea5e438612716c.shtml](http://www.npc.gov.cn/npc/c30834/202104/8afb240bdb1c48b792ea5e438612716c.shtml)
 
 
-
-美东时间4月22日，也是郭文贵先生连续出席联邦纽约南区法院“东利（Eastern profit）诉战略愿景（Strategic Vision）诈欺案”审理的第二天。在昨天的庭审中，被告方律师承认，其律师费用来自于与中共勾兑的埃利奥特·布罗依迪（Elliott Broidy）。
-
-![]()![](https://media.discordapp.net/attachments/819442760150810666/834881094834192414/image0.jpg?width=812&amp;height=609)
-
-法庭外，新中国联邦公民和郭文贵先生的支持者们高举新中国联邦旗帜、美国国旗及各类标语牌，热烈而又秩序井然地表达自己对文贵先生的支持，以及对中共及其走狗的抗议。
-
-开庭前，郭先生突然带着口罩、帽子等礼物来慰问现场的战友们，给大家带来了惊喜。令人动容的是，他还抱起了一位幸运的小战友，并亲切的和战友们合影。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/72-2.jpg)
-
-现场一位名叫伊利的战友，她之前也参加了华盛顿特区SEC现场的抗议活动，今天又不辞辛劳地辗转来到纽约。谈到参加活动的目的时，她带着因疲劳而略显沙哑的嗓音说：“我们来到这里，是为了正义。对方与共产党勾兑，陷害文贵先生，我们要揭露这些真相。”她还提到：“郭先生在进入法庭前和我们见了面，还给我们分发口罩，有些人还拿到了帽子，真的非常感谢！我们无法用语言形容郭先生为灭共付出的一切。共产党不灭，我们都不会有好日子过。所以，我们无论如何要站在这里声援他！”
-
-小飞侠战友说：“战友们感觉都很辛苦，今天天气非常冷。前面三天我都在法庭里，刚才也在法庭里听了一些内容，我相信不会有什么问题的，这场官司一定是我们赢、文贵先生赢！”
-
-截至发稿时，庭审还在进行。我们将在接下来的报道中为大家跟进后续进展。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
 
 **更多资讯，更多关注**
 
 [**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
+![](https://mail.google.com/mail/u/0?ui=2&amp;ik=6ac942a4c5&amp;attid=0.1.1&amp;permmsgid=msg-f:1697211554661162166&amp;th=178db4eab0445cb6&amp;view=fimg&amp;sz=s0-l75-ft&amp;attbid=ANGjdJ9lR4kCdi5-o7AzTx8H-CjyV87W5Tfjp67_tF2rq3mm2-VRvLZTOk-pU1IIXVWrJjYwHwfKq3R1z4CjGqMqGGHSQMnmkKEWpAf8jBpWnHDAomCy48AAAK4FdYI&amp;disp=emb)
 0
