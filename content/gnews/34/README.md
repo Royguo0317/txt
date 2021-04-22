@@ -1,44 +1,84 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 众议院通过决议案谴责中共持续在香港施压
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1123111/)
+## 王岐山脱稿致辞：我只是临时主持人，我为国家元首习近平报幕
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1126718/)
 
-- 翻译： Jenny Ball
+字幕：
 
+首先说明，我不是致辞
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+First of all, I am not giving a speech
 
-**西班牙2021年4月21日电/西喜社——**
+在这次博鳌亚洲论坛的全体会议上致辞的是
 
+It is our Führer, President Xi Jinping
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/capitol-22546_1920.jpg)
-美国众议院在4月19日以压倒性多数通过了一项决议，谴责中国共产党政权继续践踏香港的自由。
+我们国家元首习近平主席
 
-众议院外交委员会主席格雷戈里-米克斯（Gregory Meeks）议员4月19日在众议院发言时说，这项决议以418比1的投票结果通过，旨在 “发出一个强烈的两党信息，要求中国和香港政府尊重香港人的意愿”。
+who is addressing this plenary session of the Boao Forum for Asia
 
-麦考尔在众议院说：“中国共产党对香港人民的无情压迫不是共和党或民主党的问题。” “我们作为美国人团结在一起，与香港人站在一起。”
+但是主办方，我到场了，大家总要给我安排个角色
 
-两党决议谴责北京去年7月对这座城市实施的“国家安全法”，剥夺了香港人先前公认的权利和自由。
+But, the Forum Organizers always have to offer me a role since I was here.
 
-这项措辞含糊的法律惩罚被认为是分裂国家，颠覆性，恐怖分子或被视为与敌对的外国政治团体或个人勾结反对中国执政的一党制国家的言论或行为。自从生效以来，数十名香港民主人士受到该法或类似法律的指控或定罪，破坏了曾经活跃的民主运动。
+我领会这个角色就是做一个临时主持人
 
-香港曾经是一个充满活力的民主国家，1997年从英国统治转为中国共产党统治后，其自治和自由稳步下降，尽管北京方面承诺允许香港保留其公民自由50年。去年，该政​​权采取了一系列措施，包括国家安全立法和选举改革，许多人担心这会使香港与大陆城市无异。
+I understand this role is to be a temporary host
 
-众议院的决议呼吁美国政府与盟国和伙伴合作，要求中国共产党承担责任，例如采取协调一致的制裁措施。
+临时主持人也很重要
 
-香港民主委员会（HKDC）董事朱牧民（Samuel Chu）告诉《大纪元》，尽管北京和香港当局加大了镇压力度，但“香港人并没有退缩。”
+But a temporary host is equally important
 
-“香港不会放弃。我认为情况将继续如此。”朱说。
+作为临时主持人，我只是为我们的习近平主席的致辞做一个报幕
 
-**评论： 曾经为参众两院快速一致通过香港法案而激动不已，然而好像光打雷不下雨，或仅仅下点毛毛雨，不仅让中共更加藐视正义的声音，也让正义的人们怀疑声音的作用。也才知道为什么文贵先生在他的第一首灭共歌曲，并一炮荣登世界榜首的歌曲中，高声喊出：action, action, action. 行动，行动，行动！**
+As the temporary host, I’m just doing a curtain call for our President Xi Jinping’s speech
 
-**中共的谎言，让他的信誉彻底掉入了塔西坨陷阱，同样，再严厉的措辞和重磅的议案，缺乏执行的行动，难道不会也掉入塔西坨吗？中共的疯狂，已经不是针对香港了，它的目标是统治世界。欣喜美国参众两院彻底看清了中共的罪恶，让我们像香港捍卫自由人权的人们那样，不退缩，不放弃，直至中共付出应有的代价！**
+这体现了我们中国对我们的主席高度的尊重
 
-初审：Ranting ; 终审：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
+This reflects the high respect that we have for our president in China
 
-**新闻来源：**[法广](https://www.rfi.fr/cn/%E7%BE%8E%E6%B4%B2/20210420-%E7%BE%8E%E4%BC%97%E9%99%A2%E9%80%9A%E8%BF%87%E5%86%B3%E8%AE%AE%E8%B0%B4%E8%B4%A3%E5%8C%97%E4%BA%AC%E4%BE%B5%E8%9A%80%E9%A6%99%E6%B8%AF%E6%B3%95%E6%B2%BB)
+习近平视频片段38秒(视频编辑战友请选择是否添加在一起）链接：https://twitter.com/LiouRoger/status/1384511479538274306?s=20
 
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+国际上的事应该由大家共同商量着办
+
+Global governance should be made more equitable
+
+世界前途命运应该由各国共同掌握
+
+The future and destiny of the world should be jointly controlled by all countries
+
+不能把一个或几个国家制定的规则强加于人
+
+Rules made by one or a few countries should not be imposed on others
+
+也不能由个别国家的单边主义给整个世界带节奏
+
+And building barriers and pushing for decoupling will harm the entire world
+
+世界要公道，不要霸道
+
+The world wants justice, not hegemony
+
+大国要有大国的样子
+
+A big country should look like a big one
+
+要展现更多责任和担当
+
+by showing that it is shouldering more responsibility
+
+* * *
+
+英听校： 康州盘古农场 – Mike Li
+翻译： 康州盘古农场 – Mike Li
+翻译终校：康州盘古农场 – 郭班之樱
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场-轰炸机
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 +1

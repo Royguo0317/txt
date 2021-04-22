@@ -1,89 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共对新闻自由的打压对世界疫情的恶性影响
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1124703/)
+## 【有声读物】大寒
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1127090/)
 
-#### 翻译报道：  清晨风景
+配音：香草山录音组 Swr拥抱太阳
 
-#### 责编：白夜
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-49.png)来源：[https://rsf.org/en/ranking](https://rsf.org/en/ranking)
-
-
-据英国卫报4月20日报道，新闻自由组织“无国界记者”（Reporters Without Borders）指出中[共]国对新闻自由的迫害可能加剧了冠状病毒在全球的爆发，因其阻止了举报人在病毒大流行的初期站出来(揭发真相)的可能。
-
-《无国界记者》组织每年都评估和发表世界自由新闻指数，该指数是基于对无国界记者组织的在各个地区的记者的调查，并考量对记者的攻击程度、媒体独立性和政府机构的透明度等问题。在该组织的2021年度新闻自由指数中，中[共]国在180个国家中排名第177位，“荣当”倒数第四，仅仅在两个不太常见的国家和北朝鲜之后。该组织警告说，极权主义政权对记者的迫害影响到了西方民主国家的公民。
-
-该组织的国际活动主任丽贝卡·文森特女士 (Rebecca Vincent) 的坦言说，大家还以为自己只要在英国**，****就**不会有问题。但其实世界另一端发生的事情会波及全球。而且该组织已经论证，“并会继续证明，只要中共的新闻环境稍微自由一些，我们就可能避免一场全球大流行病”。
-
-稍稍对此冠状病毒 COVID-19的溯源有些了解的读者都知道，中共在此病毒刚刚爆发的初期，就开始对很多有正义感的医护人员、普通网民和媒体人施加警告和迫害，比如李文亮医生。他曾于2019年12月底试图分享有关他所在的武汉医院中患有一种新的高度传染性疾病的病人的信息，但被中共无情噤声。他不幸身染Covid-19，而后逝去。许多有正义感的勇敢之士因发声而被迫害或关押，有些至今还下落不明。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/2-11.png)“无自由的新闻，就无自由的社会”（来源: [aej.org](https://www.aej.org/page.asp?p_id=612)）
-
-中共不但打压一线医务人员，禁止疫情真实信息的发表和传播，还大力用国家机器控制的在线审查工具来限制对新传染病爆发的报道，甚至就在这瘟疫开始在全世界迅速蔓延之际，还故意把其它国家被蒙在鼓里。这疫情初期本是可以有效控制疫情蔓延的最佳良机，但中共在国内禁航，禁止通行，却严厉打压海内外媒体和个人的社交网站的对此话题的有关谈论，仅允许其官方的大外宣，统一口径对世界混淆视听，想归罪于其它国家。
-
-中共曾一度企图归罪美国为此病毒的源头，但前白宫资深助理和官员彼得·纳瓦罗博士(Dr. Peter Navarro) 一语道破其不堪的逻辑和不耻的意图。如果美国要真的是中共所诬陷的“始作俑者”，为何在疫情初起的2020年初，还允许美国和中国通航，而不是在2020年1月起，就知此病毒的杀伤力和传染性而紧闭国际航线，以确保自身安全。
-
-全世界因中共对新闻的严厉打压而得不到真实可靠的有关病毒和疫情的信息，从而惨痛地遭受疫情大流行的肆虐。文森特女士说，“中（共）国日益增长的全球影响力意味着其政府正在通过国家支持的新闻服务机构（如 CGTN）向全世界的媒体传播其态度。这不仅仅是对中国人民的危险–他们在监狱里的记者比其他任何国家都多–而且它正在渗透到我们的国际信息系统中”。
-
-新闻自由组织“无国界记者”的警示值得西方和世界各地的人们深思。历年的新闻自由记录已经毫无悬念地展示给世人，新闻自由最差的国家往往就是独裁或一党专制的国家，如北朝鲜，中共国。全世界的“人人自扫门前雪”的侥幸偷生和慵懒心态不能再持续下去。在新闻自由被打压、真相难求的今天，无人可以幸免于专政和独裁制度的迫害， 就算其地理位置远在千里之外。
-
-**新闻自由度最高的10个国家**
-
-1. 挪威
-
-2. 芬兰
-
-3. 瑞典
-
-4. 丹麦
-
-5. 哥斯达黎加
-
-6. 荷兰
-
-7. 牙买加
-
-8. 新西兰
-
-9. 葡萄牙
-
-10. 瑞士
-
-**新闻自由最差的10个国家**
-
-1. 厄立特里亚
-
-2. 北朝鲜
-
-3. 土库曼斯坦
-
-4. 中国
-
-5. 吉布提
-
-6. 越南
-
-7. 伊朗
-
-8. 叙利亚
-
-9. 老挝
-
-10. 古巴
-
-
-
-**参考资料：**
-
-#1. [世界自由新闻指数](https://rsf.org/en/ranking)
-
-#2. [英国卫报](https://www.theguardian.com/media/2021/apr/20/oppression-of-journalists-in-china-may-have-been-factor-in-covid-pandemic)：[Oppression of journalists in China ‘may have been factor in Covid pandemic’ | Press freedom | The Guardian](https://www.theguardian.com/media/2021/apr/20/oppression-of-journalists-in-china-may-have-been-factor-in-covid-pandemic)
-
-#3.[Oppression of journalists in China ‘may have been factor in Covid pandemic’](https://www.theguardian.com/media/2021/apr/20/oppression-of-journalists-in-china-may-have-been-factor-in-covid-pandemic)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
 
+
+大寒不寒，这个虚假的冬天
+
+正披着全球变暖的外衣飞奔
+
+
+
+雪，难得
+
+雪白的事物，更难得
+
+
+
+大盗与大圣是雪的极端
+
+而这个世界终究是灰色的
+
+
+
+**文字版原文：[【香草诗词汇】大寒](https://gnews.org/zh-hans/778093/)**
+
+作者：香草山写作组 木白
+
+
+
+音频处理/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

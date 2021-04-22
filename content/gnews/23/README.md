@@ -1,53 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国前驻中共国大使马克斯·博卡斯现担任币安交易所顾问
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1124161/)
+## 中共鼓励检举只为掌控定义历史的标准
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1126870/)
 
-**【翻译、评论】冰糖葫芦喵**
+作者：文明明| 校对：仙女儿-文善| 审核：宁缺| Page：小六月
 
-**【编辑校对】冰糖葫芦喵、灭共文明**
+[!\[\]()!\[\](https://spark.adobe.com/page/aQm1yQnUoLKxJ/images/59d332cd-0943-44c7-bb81-5f3579d3d5cb.jpg?asset_id=c873e8f0-3f04-421c-89f2-1e34fb09f83c&amp;img_etag=%2266dd6fa7368fedcd45e837af9e6ce582%22&amp;size=2560)](https://spark.adobe.com/page/aQm1yQnUoLKxJ/images/59d332cd-0943-44c7-bb81-5f3579d3d5cb.jpg?asset_id=c873e8f0-3f04-421c-89f2-1e34fb09f83c&amp;img_etag=%2266dd6fa7368fedcd45e837af9e6ce582%22&amp;size=1024)
 
-**据《国家脉动》独家报道，美国前驻中共国大使马克斯·博卡斯(Max Baucus)现在担任一家与中共有关联的加密货币交易平台币安(Binance)的顾问。**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/博卡斯与人民大会堂.png)图片来源：国家脉动
-**马克斯·博卡斯，美国民主党籍政治人物，是一名美国政治家和外交官，1978年至2014年担任美国蒙大拿州参议员**。**2014年至2017年，奥巴马任命博卡斯接替骆家辉，担任美国第11任驻华大使。** 1993年至2010年他曾八次访华，并支持共国加入世界贸易组织和给予中共国贸易最惠国待遇。
+据《零对冲》报道，中共推出了一个鼓励老百姓在互联网上举报“异见”人士的App。这个新App主要是针对任何批评中共独裁统治、质疑官方版本历史，以及任何所谓的“歪曲事实和混淆视听”的“恶意”人士。
 
-**博卡斯是美国总统拜登的“好朋友”、经常捐款的人，也是他的总统竞选支持者。**博卡斯现在利用他在2014年至2017年担任美国驻华大使期间获得的人脉，为各种与中共有关联的公司“咨询”。
+中共网络管理局（CAC）在它们的官网上推出该App时还恬不知耻地公告说：一段时间以来，一些别有用心的人在网上散布历史虚无主义的错误言论，恶意歪曲、诽谤和否认党史、国史和军史，企图混淆人们的思想。呼吁网民在社会监督中发挥积极作用，并热情地举报有害信息。
 
-**博卡斯于2021年3月加入加密货币交易所币安，担任政策和政府关系顾问。**
+首先，对这些“党史、国史和军史”的研究和探讨是属于学术范畴，有不同的见解和新的发现本来就是这些“史”学家的工作。如果不允许这些“史”学家或其他研究人员对这些历史进行查证、发表不同于官方的见解，那么是不是说明这些所谓的历史本来就经不起深究和考证呢？如果那些官方认定的历史是事实的话，又何惧“别有用心”的人来歪曲呢？厉害国有那么强大的宣传机器和网络水军，对付“一些别有用心的人”完全绰绰有余，何必小题大做，要发动全网举报呢？难道中共已经害怕到连一点点的不同声音都容不下吗？
 
-**博卡斯的工作重点是为世界上一些最重要的金融辖区和机构提供指导和政策建议。**他还将扮演重要角色，就影响全球行业的决定性政策和最佳实践与美国监管机构和当局进行咨询和联络，以进一步指导币安和更广泛的加密货币生态系统的可持续发展。
+其次，这种发动群众的做法多么似曾相识。在文革中，群众们不仅要“深挖灵魂”、“斗私批修”，还被发动起来检举周围的“阶级敌人”，弄得人人自危。朋友反目、夫妻检举、家人之间划清界限、大打出手，生怕自己显得不够“革命”。在害怕被人检举的恐惧中做着不齿的勾当，所以会有大名鼎鼎的薄熙来当众踢断老爸肋骨的“经典”之举。如今重新效仿文革，鼓励群众互斗恐怕也是他们之所以要多次篡改文革历史真相的原因之一吧。
 
-**币安是一家有超过100多种加密货币全球性的加密货币交易所。由加拿大华裔企业高管赵长鹏创办，与“国家级示范企业”中尚北斗供应链管理集团合作:**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/赵长鹏币安.png)图片来源：赵长鹏出席币安两周年纪念活动。币安网站截图。
-币安中共国区块链研究院是全球领先的区块链和加密货币基础设施提供商币安的研究机构，今天宣布与中商北斗供应链管理集团(中商北斗)建立战略合作伙伴关系，由国务院国有资产监督管理委员会(国资委)(中共国)商网建设发展中心设立的国家级供应链创新应用示范企业。
+今年是中共建党100周年，中共已经在墙国内建起了一个繁琐的社会信用评分系统和强大的监控系统，如果人们有轻微的违规行为，如乱穿马路或购买过多的垃圾食品，就会被禁止使用交通工具，或被限制参与社会的其他活动。那么，在中共建党100周年前夕，为了保全他们执政的合法性，他们这些竭尽所能粉饰美化自己，想方设法掩盖丑行和血腥历史的举动也就不足为奇了。他们此举的目的就是想通过群众斗群众来控制社交媒体，来控制社会舆论，编造歪曲事实，掌控定义历史的标准，继续洗脑14亿人民来维持他们的苟延残喘。
 
-币安交易所亚太副总裁陆迈指出:“通过与供应链创新的典范企业——中尚北斗合作，币安中共国区块链研究院将继续推动产学研融合，加速数字转型，帮助培育中共国的数字经济。”
+[新闻来源链接](https://www.zerohedge.com/technology/china-launches-new-app-allowing-citizens-report-others-expressing-mistaken-opinions?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
 
-**币安交易所还与几家国有企业一起参与了中共国2020年的“一带一路”倡议:**
+[!\[\]()!\[\](https://spark.adobe.com/page/aQm1yQnUoLKxJ/images/20731c82-c86c-4bdc-baf1-6619c2b2f6d6.jpg?asset_id=60ea963b-9f8b-4518-a739-dd8004ce8558&amp;img_etag=%2236c4c7617401ded5021406bc5418d78d%22&amp;size=1024)](https://spark.adobe.com/page/aQm1yQnUoLKxJ/images/20731c82-c86c-4bdc-baf1-6619c2b2f6d6.jpg?asset_id=60ea963b-9f8b-4518-a739-dd8004ce8558&amp;img_etag=%2236c4c7617401ded5021406bc5418d78d%22&amp;size=1024)
 
-***2020年6月16日，币安中共国区块链研究所作为美国(联合国)的高级合作伙伴加入了联合国全球契约组织(UNGC)，旨在促进中共国的“一带一路”倡议和促进可持续发展。UNGC成员还包括15家中共国领先的企业和机构合作伙伴，包括国家开发银行、中石化和中共国国家电网公司。***
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
-自称为币安公司董事和经理的个人也曾在中共国的国有媒体、国有大学、中国共产党国务院和腾讯公司工作过。
 
-**笔者简评**： 中共国最近推出了一种支持区块链的数字货币—人民币，这引起了美国以及其他西方国家的高度重视。**中共国抢先推出自己的数字货币**并计划力图在数字货币的交易领域占据更有利的位置，其实反映出中共国长期以来就在筹划与美国展开一场货币大战。**以此终结美元传统的全球外汇储备货币的统治地位。**
+编辑：【英国伦敦喜庄园编辑部】
 
-**如郭文贵先生所说，病毒战只是中共实施其超限战的一部分，更加具有杀伤力的是在金融和货币领域把美国击溃，从而获得主宰世界的能力，这将是整个文明世界所要面对的最大的挑战。**
+[!\[\]()!\[\](https://spark.adobe.com/page/aQm1yQnUoLKxJ/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/aQm1yQnUoLKxJ/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-**【参考来源】：**
 
-[Biden’s China Ambassador Pick Now Advises the Chinese Communist Party on Crypto. (thenationalpulse.com)](https://thenationalpulse.com/exclusive/biden-china-ambassador-ccp-crypto/)
 
-**【免责声明】**  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-**欢迎战友加入旧金山金喜准农场**
-
-[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
-
-[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
-
-[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
-
-[旧金山金喜农场 **Youtu**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[**b**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[**e**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
-
-+8
++1

@@ -1,133 +1,87 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第230节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1123905/)
+## 我对CCP的国仇家恨
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1126543/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+撰稿：2号电梯
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20210420_task4-edited.jpg)
+家恨：我爷爷年轻的时候，在本地一大家族做帐房先生，由于他的勤奋和机灵，受到主家的青睐，娶了他家的大小姐。之后加上自己的努力，买了数百亩的田地和一些店铺。家境过得非常殷实。我爷爷生有8个孩子，真正的是一个大家庭。
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/S-24.jpg)dnyuz.com
-“副标题B——国际安全事务”的“第225节. 印度洋-太平洋地区的外国军事资助，东南亚海上安全项目和外交外联活动的拨款授权”、“第226节. 印度洋-太平洋外国军事资助契约试点项目”、”227节. 印度洋-太平洋国际军事教育和训练的额外资金”、“第228节. 优先考虑印度洋-太平洋地区过剩的国防物资转移”、“第229节. 优先考虑印度洋-太平洋地区过剩的海军舰艇转移”略译。
+但是，后来共产党来了，迫使我爷爷“捐出”了所有的田地和店铺，并“上交”了所有的金银珠宝。用我奶奶的一句话：“上缴了几个脸盆的金戒子金首饰，连天井里的石板都被扒起了好几遍”。爷爷被没收家产之后，只能靠政府分发的粮食过日子。由于孩子众多，分的粮食根本不够吃，只能把最小的孩子–我的父亲，送到农村去给别人家做儿子，再一次经历一场骨肉相离的悲剧。我父亲的兄弟姐妹也都没有机会接受很好的教育。
 
-本节要点：国会谴责胁迫性和威胁性行动或使用武力，改变现状，或破坏印度洋-太平洋区域的稳定，敦促中共国不要在南中国海设防空识别区，不要在印度洋-太平洋地区其他地方采取类似的挑衅行动，重申中共国对南中国海大部分海域的近海资源主张是非法的，谴责中共国不遵守2016年仲裁庭的裁决，拒绝中共国对其在南沙群岛宣称的12海里衍生领海以外水域的任何主张。
+试想，如果不是中共土匪，强行没收我爷爷的家产，我的父亲也至于会被送给别人，他和他的兄弟姐妹，肯定都能接受良好的教育，说不定大家都有机会发挥自己的才能，把爷爷的家业更加做大。
 
-欲了解更多的內容，请看本节全文（仅供参考）。
+然而现在呢，拜中共“所赐”，我的父亲一辈子在农村，几乎没有接受过教育，他的几个兄弟姐妹，也只是接受了有限的教育，到头来都过着最最底层的生活。
 
-第230印度洋-太平洋国际水道和空域，以及南中国海人工特征土地海上作业自由的政策声明
+看看欧美等文明国家，那些受人尊敬的大家族，不都是他们的祖先当初积累了财富，使得他们的孩子都接受了良好的教育，具备了杰出的才能，然后把家族产业更上一层楼。这样代代相传，到如今，就成了受人尊敬的家族？
 
-（a）国会意识——国会 –
+如果没有中共，我们本也可以走上这条道路。可是，中共这个土匪，毫无理由的，非法抢夺去了我爷爷的家财，剥夺了我们变成“受人尊敬的家族” 的机会。
 
-（1）谴责胁迫性和威胁性行动或使用武力，以军事或民用飞机阻碍国际空域的行动自由，改变现状，或破坏印度洋-太平洋区域的稳定；
+这个就是我的家恨。我相信，在中国，对中国有刻骨家恨的人多如牛毛。
 
-（2）敦促中共国政府不要在南中国海设已宣布的东海防空识别区（ADIZ），或违反国际领空飞越自由的防空识别区，不要在印度洋-太平洋地区其他地方采取类似的挑衅行动；
+国仇：中共70年来一直说他是代表着中国穷苦百姓闹革命。他到底代表着谁？
 
-（3）重申2016年仲裁庭的裁决是终局的，对双方都具有法律约束力，中共国对南中国海大部分海域的近海资源主张是非法的；以及
+一、中共就是苏联共产国际资金“喂养”，成立的分支机构。
 
-（4）谴责中共国不顾中共国作为《联合国海洋法公约》（the United Nations Convention on the Law of the Sea）缔约国的义务，不遵守2016年仲裁庭的裁决。
+1919年3月2日至6日，列宁在莫斯科召开了共产国际第一次代表大会，成立了“共产国际”，共产国际的使命就是在世界各地建立分支机构，传播、鼓动全世界搞共产革命，从一国数国的共产主义胜利直到全球胜利。
 
-（b）政策声明——美国的政策是 –
+1920年，俄国人维经斯基经共产国际同意，受俄共西伯利亚局东方民族部指派前往中国帮助创立中国共产党，活动经费由东方民族部提供，包括价值10万美元的钻石和数万美元现金。当年夏，维经斯基在上海成立革命局，之后，相继成立了上海、北京、长沙等地的共产主义组织。
 
-（1）重申对印太地区盟国和伙伴的承诺和支持，包括美国对《美菲共同防御条约》（the United States-Philippines Mutual Defense Treaty）第五条的长期政策，重申《美日共同防御条约》（the United States-Japan Mutual Defense Treaty）第五条适用于日本管理的尖阁诸岛的立场；
+中共一大参加者之一包惠僧在其回忆材料中也有佐证：“1921年初夏，[第三国际](https://www.epochtimes.com/gb/tag/%2525E7%2525AC%2525AC%2525E4%2525B8%252589%2525E5%25259B%2525BD%2525E9%252599%252585.html)又派了马林，与赤色职工国际尼克斯基来中国，到上海与……李汉俊等计划召开中国共产党第一次代表大会。定计划，提供经费，完全是出于马林一手筹划的。”
 
-（2）反对侵犯各国对海洋及其上空的权利、自由和合法使用的主张，反对将南海新的、填海特征的土地军事化；
+而根据[陈独秀](https://www.epochtimes.com/gb/tag/%2525E9%252599%252588%2525E7%25258B%2525AC%2525E7%2525A7%252580.html)的记录，1921年7月23日，中共在共产国际的帮助下成立，并成为其支部，每月接受来自苏联的活动经费，从1921年每月1200元，至1926年每月14000元。
 
-（3）继续执行对中共国在南中国海声明的有关政策，即-
-（A）中共国在南中国海（包括对南中国海大部分海域的近海资源）的主权主张是非法的；
-（B）中共国不能在仲裁庭认定位于菲律宾专属经济区或其大陆架的地区，对菲律宾依法提出海事的请求；
-（C）拒绝中共国对其在南沙群岛宣称的12海里衍生领海以外水域的任何主张；以及
-（D）中共国对詹姆斯浅滩（James Shoal）没有合法的领土或海洋要求权；
+二、中共是听命于苏联共产国际的 ，维护的是苏联的利益。
 
-（4）敦促所有各方不要从事破坏稳定的活动，包括非法占领或对有争议的领土进行非法管理的努力；
+1929年7月10日，东北军政长官张学良根据1919、1920年苏联政府曾公开发表的“放弃一切与中国的不平等条约”和“放弃沙皇俄国在中国所有特权”的声明，宣布接管中国境内的“中东铁路管理权”。苏联不承认自己以前的声明，于8月11日，苏军借此对中华民国发动大规模的侵略战争，国民政府命张学良的东北军进行抵抗。此即“中东路事件”。
 
-（5）确保在没有恐吓、胁迫或武力的情况下处理争端；
+“中东铁路”事件伊始，中共即奉斯大林之命发起了“武装保卫苏联”的运动：
 
-（6）呼吁所有当事国根据国际法净化或调整索取；
+1929年7月24日，中共发出《动员广大群众反对进攻苏联》的42号通告，计划在中心城市发动武装暴动，苏区的红军与工农结合夺取最重要的城市，建立苏维埃政权；
 
-（7）坚持领土和海洋要求，包括领水或领海，必须根据陆地特征提出，否则必须符合国际法的原则；
+1929年12月8日，中共又发表了《执行武装保卫苏联的实际策略就是全国的武装暴动》的第60号通告。
 
-（8）反对在南中国海有争议地区实施新的捕鱼规定，这些规定加剧了该地区的紧张局势；
+三、中共窃取政权至今，对外到底割掉了多少土地？
 
-（9）支持有效的行为守则，前提是该行为守则反映了东南亚当事国的利益，并且不是中共国提出非法海事索取的工具；
+1、缅甸：划走十八万平方公里。
 
-（10）重申现有的一整套国际规则和准则，包括1972年10月12日在伦敦制定的《国际海上避碰条例》（the International Regulations for Preventing Collisions at Sea,），足以确保美国武装部队与包括中共国在内的其他国家部队之间的航行安全；
+2、越南：部分西沙群岛，28个岛礁，老山。
 
-（11）支持区域机构和机构的发展，包括东盟区域论坛、东盟国防部长会议附加会议、东亚首脑会议和扩大的东盟海事论坛，以在该地区建立务实合作，加强国际法的作用；
+3、蒙古及周围：“中蒙友好协议” 蒙古独立，部分周边土地被俄国吞并。
 
-（12）鼓励深化与本区域其他国家在海洋领域认识和能力建设方面的伙伴关系，以及美国政府努力探索建立适当的多边机制，以便东南亚国家在南中国海形成“共同行动图景”，帮助各国避免破坏稳定的行为，阻止危险活动；
+4、朝鲜：部分长白山和天池的一半。
 
-（13）反对任何国家采取行动，阻止任何其他国家行使对专属经济区和大陆架资源的主权权利，对南海没有国际法支持的地区提出主权要求；以及
+5、尼泊尔：部分喜马拉雅山。
 
-（14）确保美国在印太地区行动的连续性，包括酌情与伙伴和盟国合作，根据国际法的既定原则和惯例，重申在国际水域和领空行动自由的原则。
+6、印度：10 多万平方公里的领土。
 
-（本节完）
+7、巴基斯坦：1955年，周恩来访问克什米尔，主动提出把新疆的坎巨提地区让给巴基斯坦。
 
-原文链接：
+8、割给俄罗斯、哈萨克斯坦、塔吉克斯坦斯坦、吉尔吉斯斯坦：外兴安岭以南、黑龙江以北60多万平方公里的“外兴地区”，乌苏里江以东的“乌东地区”，有40万平方公里，还有一块就是库页岛。
 
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+9、图瓦共和国： 唐努乌梁海原来是外蒙古的一部份。
 
-文字整理：
+11、菲律宾：占据9个岛礁。
 
-SEC. 230. STATEMENT OF POLICY ON MARITIME FREEDOM OF OPERATIONS IN INTERNATIONAL WATERWAYS AND AIRSPACE OF THE INDO-PACIFIC AND ON ARTIFICIAL LAND FEATURES IN THE SOUTH CHINA SEA.
+12、印度尼西亚：占据2个岛屿。
 
-(a) SENSE OF CONGRESS.—Congress—
+13、马来西亚：占据9个岛礁。
 
-(1) condemns coercive and threatening actions or the use of force to impede freedom of operations
+14、文莱：占据1个岛礁。
 
-in international airspace by military or civilian aircraft, to alter the status quo, or to destabilize the
+中共窃取政权不过短短70年，割掉的土地加起来，有400多万平方公里！！！差不多相当于现在领土的一半！如果再让它存活70年，我们这个国家岂不被它割完啦？我们这个民族还有生存之地吗？作为中华民族的一份子， 难道这不算国仇吗？
 
-Indo-Pacific region;
+灭掉中共于己是为家族讨回公道的需要，于国家而言是为我们这个民族挽回荣誉的需要。中共不灭，我们的子子孙孙永无出头之日，我们的民族永无辉煌之时，世界也不会有安宁之日。TAKE DOWN THE CCP！这就是正义的需要。
 
-(2) urges the Government of China to refrain from implementing the declared East China Sea Air Defense Identification Zone (ADIZ), or an ADIZ in the South China Sea, which is contrary to freedom
+（本文观点纯属个人）
 
-of overflight in international airspace, and to refrain from taking similar provocative actions elsewhere in the Indo-Pacific region;
+*审核、编辑：cindy*
 
-(3) reaffirms that the 2016 Arbitral Tribunal’s decision is final and legally binding on both parties
+参考文章：
 
-and that the People’s Republic of China’s claims to offshore resources across most of the South China Sea are unlawful; and
+中共是苏联共产的支部：https://www.epochtimes.com/gb/17/6/16/n9272480.htm
 
-(4) condemns the People’s Republic of China for failing to abide by the 2016 Arbitral Tribunal’s ruling, despite Chinese obligations as a state party to the United Nations Convention on the Law of the Sea.
-
-(b) STATEMENT OF POLICY.—It shall be the policy of the United States to—
-
-(1) reaffirm its commitment and support for allies and partners in the Indo-Pacific region, including longstanding United States policy regarding Article V of the United States-Philippines Mutual Defense Treaty and reaffirm its position that Article V of the United States-Japan Mutual Defense Treaty applies to the Japanese-administered Senkaku Islands;
-
-(2) oppose claims that impinge on the rights, freedoms, and lawful use of the sea, or the airspace
-
-above it, that belong to all nations, and oppose the militarization of new and reclaimed land features in the South China Sea;
-
-(3) continue certain policies with respect to the PRC claims in the South China Sea, namely—
-
-(A) that PRC claims in the South China Sea, including to offshore resources across most of the South China Sea, are unlawful;
-
-(B) that the PRC cannot lawfully assert a maritime claim vis-`a-vis the Philippines in areas that the Tribunal found to be in the Philippines’ Exclusive Economic Zone (EEZ) or on its continental shelf;
-
-(C) to reject any PRC claim to waters beyond a 12 nautical mile territorial sea derived from islands its claims in the Spratly Islands; and
-
-(D) that the PRC has no lawful territorial or maritime claim to James Shoal;
-
-(4) urge all parties to refrain from engaging in destabilizing activities, including illegal occupation or efforts to unlawfully assert administration over disputed claims;
-
-(5) ensure that disputes are managed without intimidation, coercion, or force;
-
-(6) call on all claimants to clarify or adjust claims in accordance with international law;
-
-(7) uphold the principle that territorial and maritime claims, including territorial waters or territorial seas, must be derived from land features and otherwise comport with international law;
-
-(8) oppose the imposition of new fishing regulations covering disputed areas in the South China Sea, regulations which have raised tensions in the region;
-
-(9) support an effective Code of Conduct, if that Code of Conduct reflects the interests of South east Asian claimant states and does not serve as a vehicle for the People’s Republic of China to advance its unlawful maritime claims;
-
-(10) reaffirm that an existing body of international rules and guidelines, including the International Regulations for Preventing Collisions at Sea, done at London October 12, 1972 (COLREGs), is sufficient to ensure the safety of navigation between the United States Armed Forces and the forces of other countries, including the People’s Republic of China;
-
-(11) support the development of regional institutions and bodies, including the ASEAN Regional Forum, the ASEAN Defense Minister’s Meeting Plus, the East Asia Summit, and the expanded ASEAN Maritime Forum, to build practical cooperation in the region and reinforce the role of international law;
-
-(12) encourage the deepening of partnerships with other countries in the region for maritime domain awareness and capacity building, as well as efforts by the United States Government to explore the development of appropriate multilateral mechanisms for a ‘‘common operating picture’’ in the South China Sea among Southeast Asian countries that would serve to help countries avoid destabilizing
-
-behavior and deter risky and dangerous activities;
-
-(13) oppose actions by any country to prevent any other country from exercising its sovereign rights to the resources of the exclusive economic zone (EEZ) and continental shelf by making claims to those areas in the South China Sea that have no support in international law; and
-
-(14) assure the continuity of operations by the United States in the Indo-Pacific region, including, when appropriate, in cooperation with partners and allies, to reaffirm the principle of freedom of operations in international waters and airspace in accordance with established principles and practices of international law.
-
-+1
+卖地：https://www.secretchina.com/news/gb/2011/02/16/391520.html
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
++7
