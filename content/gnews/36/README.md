@@ -1,84 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 王岐山脱稿致辞：我只是临时主持人，我为国家元首习近平报幕
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1126718/)
+## 【杂谈】王岐山——中共最完美的报“墓”人
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1126808/)
 
-字幕：
+#### 作者/编辑：翼族
+![]()![](https://gnews.org/wp-content/uploads/2021/04/王岐山.jpg)
+图片来源：推特（日本樱花农场）
 
-首先说明，我不是致辞
+中共党内下场悲凉的二号人物不乏其人，比如刘少奇和林彪。江湖上流传，毛泽东曾经对林彪说“三天不学习，赶不上刘少奇”。如果懂点历史和政治的话，一般皇上夸皇储这种话，就说明皇储屁股下的位子基本上不保了，皇储甚至还有生命之虞。果不其然，二号人物刘少奇后来命丧毛泽东之手。据说刘少奇听此话后一身冷汗，诚惶诚恐答曰：“一天不用功，赶不上毛泽东”，虽然刘少奇把马屁拍了回去，但最后的结果都一样，堂堂国家主席悄无声息的死去，当时身边无一亲人。
 
-First of all, I am not giving a speech
+当然这种段子类的传说，草民一般也不知真假，只是当茶余饭后的趣事而已。事实上中共一向严控舆论，中南坑说了什么话草民也无从而知，宣传口把领导人的言论对外释放也都是有意而为之，再说这两句话如此押韵，加上一些无聊文人的杜撰和润色，就更加广泛地传播开来了。笔者相信如果毛泽东真说过这么一句话的话，只能说明他对二号人物刘少奇早就有所不满，特意放出这两句话来敲打敲打刘少奇。
 
-在这次博鳌亚洲论坛的全体会议上致辞的是
+文贵先生近日盖特中谈到海南博鳌论坛时说：“关于王公公出来，有动静啊，但是国内找不到信息……人家王岐山神出鬼没啥人物，二号人物，当年的林彪，三天不学习赶不上刘少奇，现在是习大神三天不学习赶不上王副主席，党内都知道，还有党内的人说，习主席即使是学习100年也赶不上王副主席……”
 
-It is our Führer, President Xi Jinping
+既然习主席姓习，说明他善于学习，而且王副主席作为中共优秀的“救火队长”，是党内最懂捞钱也最懂国际勾兑的妈咪，被称为世界上“最有影响力的政治人物”（布隆伯格说的），所以习主席要向王副主席学习一事看来在中共党内已成共识，是非常有必要的，否则中南坑迟早要被全世界愤怒的人们给填埋了。
 
-我们国家元首习近平主席
+但是以笔者的拙见，习主席完全可以不用学习，毕竟一尊已是强国的“国家元首”。而且习主席不继续学习对国家不但不会有任何坏处，反而有好处，至少倒车和翻车的速度也会慢一点。反而中共党内要继续好好学习“习近平新时代中国特色社会主义思想”，因为过去十年以来中共从习主席的思想精髓里学到的东西越多，其灭亡的速度也越快。
 
-who is addressing this plenary session of the Boao Forum for Asia
+2021年1月19日以来，中共胸口上已经被插上了一把种族灭绝和反人类罪的剑，血流不止，而且脖子上还挂着生化武器病毒凶手的套索，走向坟墓是迟早的事情。传说中膝下无（断）儿（子）无（绝）女（孙）的王公公，是文贵先生最早爆料的盗国贼之一，海南也是王公公发家之地，冥冥中注定，王公公在海南博鳌论坛上作为临时报幕人，其实就是中共临死报“墓”人。如果套用路德先生评价文贵先生的话——“中共最完美的掘墓人”，那么王公公就是“中共最完美的报墓人”，他不但要给当年和他同盖一床被子的习主席报墓，也将把中国共产党彻底送进坟墓！
 
-但是主办方，我到场了，大家总要给我安排个角色
+（文章内容仅代表作者观点）
 
-But, the Forum Organizers always have to offer me a role since I was here.
-
-我领会这个角色就是做一个临时主持人
-
-I understand this role is to be a temporary host
-
-临时主持人也很重要
-
-But a temporary host is equally important
-
-作为临时主持人，我只是为我们的习近平主席的致辞做一个报幕
-
-As the temporary host, I’m just doing a curtain call for our President Xi Jinping’s speech
-
-这体现了我们中国对我们的主席高度的尊重
-
-This reflects the high respect that we have for our president in China
-
-习近平视频片段38秒(视频编辑战友请选择是否添加在一起）链接：https://twitter.com/LiouRoger/status/1384511479538274306?s=20
-
-国际上的事应该由大家共同商量着办
-
-Global governance should be made more equitable
-
-世界前途命运应该由各国共同掌握
-
-The future and destiny of the world should be jointly controlled by all countries
-
-不能把一个或几个国家制定的规则强加于人
-
-Rules made by one or a few countries should not be imposed on others
-
-也不能由个别国家的单边主义给整个世界带节奏
-
-And building barriers and pushing for decoupling will harm the entire world
-
-世界要公道，不要霸道
-
-The world wants justice, not hegemony
-
-大国要有大国的样子
-
-A big country should look like a big one
-
-要展现更多责任和担当
-
-by showing that it is shouldering more responsibility
-
-* * *
-
-英听校： 康州盘古农场 – Mike Li
-翻译： 康州盘古农场 – Mike Li
-翻译终校：康州盘古农场 – 郭班之樱
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场-轰炸机
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-+1
++2
