@@ -1,12 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】爆料革命不欠任何人的，你觉得吃亏就是你该离开的时候了
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1127104/)
+## 2021年4月22日 文贵先生盖特 1
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1127073/)
 
-By: 【秘密翻译组G-Translators】
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-郭文贵
-2021年4月18日
+4月22号：尊敬的战友们好……文贵又来爆尿爆尿了！
+
+[【2021年4月22日】文贵先生盖特原文](https://gtv.org/getter/608164998616c84f0ff26438)
+
+**喜联盟Gnews编辑部**
 
 0

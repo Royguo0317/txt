@@ -1,37 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港手足集气系列（十八）香港人写给葵青石荫区议员尹兆坚的信
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1127038/)
+## 【有声读物】小寒
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1127067/)
 
-搜集整理：阿恩/ 封面合成：文粤
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image002-39.jpg)
-**写给47人的家书︱香港人写给葵青石荫区议员尹兆坚的信**
+配音：香草山录音组 Swr拥抱太阳
 
-肥尹：
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-或许我们只有几面之缘，一次是屯门茶敍，另一两次是助选义工。可是近日的形势，又把我们联系在一起。近日正沉思47人中该写信给谁，最后决定写给你。
 
-近日是耶稣受难和复活节期，令我想到曾经有一位义工，因为跟议员参与示威活动，上了电视新闻。第二天前往深圳被海关认出，终以“危害国家安全”之名拒绝入境，被迫回港。义工只好回到教会，而当日的讲题正是“苦难中的平安”。他告诉我，比起维吾尔人、罗兴亚人、国内受苦中的基督徒，他的“苦难”已经很微小的了。
 
-尹议员，我不知道你的宗教信仰。可是看到你们47人的表现，你们正是为香港、为未来背起十字架，是为自由、民主和公义背十架。回想耶稣与两位强盗同钉十架，受到无数人的耻笑和侮辱。而今嘲笑、侮辱47人的声音，就连我也听不少。可是你，却无畏无惧，甘愿为香港、为未来去背负十架。这47人，实在是世界不配拥有的。
 
-不知尹议员对文学可有兴趣，47人中不少人带书入狱。或为消闲，或为进修。记得陈健民教授入狱前，阅读了大量监狱文学。想不到，今天我也成了一名监狱文学的作者。不知你想读什么书，新旧约也好，张小娴也好。请你告诉我们，让报社代为收集交给你。
 
-明天，我又会跟议员和街坊茶敍。盼望你早日能与我们同聚，愿主赐给你力量，熬过监牢岁月。我们一众街坊和所有选民都会支持你，恭候你的回音。祝
+你所说的雨水，其实是眼泪
 
-安好
+那场猝不及防的洪水从你的仓库退去
 
-小P
+天就冷了下来，心也更冰冷
 
-**人物介绍：**
+于是，这个冬夜，只剩下独坐
 
-尹兆坚（英语：Andrew Wan Siu-kin，1969年6月7日生），英国雅息士大学社会学学士及社会学文学硕士，香港理工大学应用社会科学系的兼职导师。曾任民主党副主席和香港新界西选区立法会议员，现为香港葵青区议会石荫选区区议员。2021年1月6日因参与民主派初选涉嫌干犯颠覆国家政权罪被捕，现被羁押中。
 
-**资料来源：**
 
-[苹果日报 – 写给47人的家书︱尹兆坚，世界不配有这47人！](https://hk.appledaily.com/local/20210406/TSM5OXH6LZDIDFAAEWBVRMNYMY/)
+你并没有提到眼泪
 
-审核：卡西欧/上传：流光飞舞
+不是因为它早就流干了
+
+不是因为一个单薄女人裹着坚韧的身躯
+
+而是因为还有更冷的夜等着你
+
+
+
+**文字版原文：[【香草诗词汇】小寒](https://gnews.org/zh-hans/714784/)**
+
+作者：香草山写作组 木白
+
+
+
+音频处理/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
