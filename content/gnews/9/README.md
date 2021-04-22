@@ -1,33 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 无声抗议中总会找到热点——GTV投资者抗议SEC的第十三天
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1127706/)
+## 慧眼看世界202104022（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1127419/)
 
-**作者：英国喜庄园 AN**
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/SEC1-1.jpg)
 
-美东时间4月21日，GTV的投资者们在华盛顿DC的SEC总部举行抗议活动的第十三天。华盛顿DC的天气真的阴晴不定的，昨天中午穿短袖还觉得热，今天大家又穿上了厚衣服。抗议的十三天里，华盛顿DC的各种天气轮番上阵，今天的风是格外的大，软帽根本戴不住，要想照张照片，需要一手按着帽子，一手拿着手机。今天华盛顿DC的旗杆上的旗子都在降半旗，SEC门前的三根旗杆上的旗子也同样只升到一半，大风一吹，旗下的拉绳碰撞着旗杆在咔咔咔大响，像要随时掉下来一般。摆在横幅前面的简易座椅，如果人一离开，马上就被风吹走。有人为了保暖穿在身上的雨衣，也被风吹裂了。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/SEC2.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-12.jpg)
 
-任你风吹雨打，我自闲庭信步。GTV的投资者们依旧顶着狂风在SEC总部大楼前坚守抗议，这其中有一位第二次乘飞机来的年龄最大的女投资者，已是74岁，争取自己权益的意识丝毫不比年轻人差。狂风中，那早已熟悉的身影，那一个个执着、坚定的眼神、脚步，这是何等的力量！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-13.jpg)
 
-无声抗议，何以解忧？唯有郭先生的直播与盖特。或坐或站的抗议者中间，时不时地不知从哪里就传出了郭先生的声音。接近中午的时候，忽然听到人群中大喊：郭先生，郭先生来了。我以为郭先生真来现场了，赶紧跑过去看，原来是一位大哥举着手机，在播放有人拍的郭先生出来的视频，吸引了好多人观看。视频里有众多的华人在大喊：七哥，七哥，七哥我们爱你！观看视频的人也跟现场的人一样激动着，也在大喊七哥来啦……这是今天抗议活动中最大的兴奋点了。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-12.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/SEC3.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-13.jpg)
 
-无声抗议中，也给了投资者互相交流的机会。是啊，如果没有这种活动，来自全美各地的华人怎么会有机会聚在一起相互认识相互熟悉，进而成为无话不谈的好朋友？接触的时间越久越亲切，大家三观一致，有共同的信仰、共同的追求和目标，逐渐形成了一份份超越了血液的兄弟姐妹般的情谊！我们甚至想好了等将来一起结伴去世界各地游山玩水，甚至，我们还拉起了勾，就等将来某一天……
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-13.jpg)
 
-明天，友谊继续，抗议继续……
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-11.jpg)
 
-*（文章仅代表作者观点，与GNews无关）*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-11.jpg)
 
-* * *
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-11.jpg)
 
-*责任编辑：华盛顿DC农场 荧然
-编辑/校对：华盛顿DC农场 光之子(沙加)
-发布：华盛顿DC农场 YIMING（文鸣）*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-11.jpg)
 
-+1
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-16.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-17.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-19.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-14.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-14.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-11.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
+
+0

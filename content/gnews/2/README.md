@@ -1,38 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [疫情下的西班牙]西班牙疫情简报
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1127831/)
+## 中共在吉布提建首个也是唯一海外海军基地
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1127965/)
 
-- 作者：gokuabuela
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/D-9.jpg)middleeastmonitor.com
+USNI News报道，美国驻非洲最高指挥官星期二对国会议员说，中共海军基地靠近红海入口的一个码头最近完工，其面积足以支持一艘航空母舰。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+美国驻非洲指挥官陆军上将斯蒂芬·汤森(Stephen Townsend)对众议院军事委员会说，中共解放军正在扩大其在中共国拥有的商业深水港附近的现有海军设施，并在非洲大陆其他地方寻求其他军事基地选择。
 
-**西班牙2021年4月22日电/西喜社——**
+谈到中共在吉布提的海军基地，汤森表示“他们的第一个海外军事基地，也是他们唯一的一个，在非洲，他们刚刚增加了一个重要的码头，甚至可以支持他们未来的航空母舰。他们正在整个大陆寻找其他立足机会。”
 
-4月20日，西班牙卫生部公布疫情数据：
+该基地于2017年正式启用，开发支持中共在亚丁湾索马里海岸的打击海盗任务，但现已经扩大到拥有后勤补给功能的可栖息蓝水主力舰或航空母舰的码头。
 
-新增病例： 7486
+就在去年10月，商业卫星图像显示，吉布提军事基地正在建造一个码头系统。
 
-新增死亡： 114 例
+“该基地于2017年开放，但码头仍在建设中。中共计划在该基地建9个码头，其中4个用于解放军海军。”
 
-14天内10万人感染率： 230.95 （250 以上为极高风险），比4月19日的230.54 略有上升。
+“2018年开始建设的码头现在已经完工，两边都有用于重型起重机的铁轨。”
 
-（[https://www.abc.es/sociedad/abci-sanidad-notifica-7486-casos-y-114-muertes-incidencia-acumulada-estable-230-202104201851\_noticia.html](https://www.abc.es/sociedad/abci-sanidad-notifica-7486-casos-y-114-muertes-incidencia-acumulada-estable-230-202104201851_noticia.html)）
+援引《美国海军新闻》5月的一篇报道称，1120英尺的新码头“刚好足够容纳中共国的新航母、突击航母或其他大型军舰。”如果需要，它可以轻松容纳四艘中共核动力攻击潜艇。”
 
-欧洲药物管理局称找到了强森疫苗和血栓之间的关系，但仍然认为，此疫苗的作用大于风险。并开放接种强森疫苗。西班牙从本周三开始，将给70-79岁的人群接种疫苗。
+该基地位于Bab el Mandeb附近，这是从亚丁湾进入红海的入口，也是通往苏伊士运河和地中海的海上交通的主要阻塞点。
 
-([https://www.abc.es/sociedad/abci-encuentra-vinculo-entre-trombos-y-vacuna-janssen-pero-beneficio-supera-posibles-riesgos-202104201619\_noticia.html](https://www.abc.es/sociedad/abci-encuentra-vinculo-entre-trombos-y-vacuna-janssen-pero-beneficio-supera-posibles-riesgos-202104201619_noticia.html))
+美国和法国也在中共基地附近安装了设施。汤森对委员会说，中共正在考虑非洲的其他地方，“意图建立海军和空军基地”。尽管吉布提的基地是中共在非洲大陆扩张的最明显迹象之一，但中共正通过民间渠道扩大其在非洲的存在。
 
-西班牙卫生部拒绝了给60岁以下人群接种阿斯利康疫苗的计划，称尚缺乏足够的信息来做出正确的判定，因此目前接种该疫苗的最低年龄为70岁。
-
-([https://www.abc.es/sociedad/abci-vacunacion-voluntaria-menores-60-anos-astrazeneca-rechazada-sanidad-202104211456\_video.html](https://www.abc.es/sociedad/abci-vacunacion-voluntaria-menores-60-anos-astrazeneca-rechazada-sanidad-202104211456_video.html))
-
-审核：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
-
-[西班牙巴塞罗那喜悦农场：疫情下的西班牙专栏](https://gnews.org/zh-hans/993776/)
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+参考链接：
+[https://news.usni.org/2021/04/20/africom-chinese-naval-base-in-africa-set-to-support-aircraft-carriers](https://news.usni.org/2021/04/20/africom-chinese-naval-base-in-africa-set-to-support-aircraft-carriers)
 
 0

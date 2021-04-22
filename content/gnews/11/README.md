@@ -1,71 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第241节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1127680/)
+## 尽管受到批评，丹麦女首相认为丹麦是领先的气候国家之一
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1127718/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+- 翻译：里奇
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-39.jpg)sputniknews.com
-**“副标题C——应对中共国的区域战略”**
 
-本节开始进入“标题1——未来竞争的投入”的“副标题C”部分。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-要点：美国国会的政策要应对中共国的重大外交、经济和军事挑战，制止中共国的军事侵略，打击中共国政府采用的掠夺性的经济做法，结束中国共产党对持不同政见者、维吾尔族和其他穆斯林少数民族、藏传佛教、基督教徒和其他少数民族的镇压，反对中共散布的有关中共病毒的虚假信息。
+**西班牙2021年4月22日电/西喜社——**
 
-第241节 就中共国问题，与全世界各盟国和伙伴进行合作的政策声明
+在气候峰会召开之前，丹麦女首相梅特·弗雷德里克森（Mette Frederiksen）认为，丹麦在这一领域做得非常出色。
 
-这是美国的政策-
+长期以来，各个支持党一直在敦促政府，不能在气候领域落后太多。
 
-（1）加强与欧洲和全球志同道合国家的联盟和伙伴关系，以便有效地与中共国竞争；以及
+即使议会通过了一项气候法，其中的目标是，2030年温室气体排放量将在1990年的水平上减少70％。
 
-（2）与这些盟友和伙伴合作-
+但是，当气候部长丹·约根森（S）反复谈论所谓的曲棍球棒时 (曲棍球棒意指一个创业公司起步非常成功，此后仍保持稳定，但并没有持续增长)，支持党对此提出了批评，认为具体举措过于模糊。
 
-（A）应对中共国的重大外交、经济和军事挑战；
+政府的愿景是丹麦必须等到接近2030年才能大幅减少二氧化碳排放量，因为届时新技术有望使减排成本降低。在那之后，二氧化碳的减少将如曲棍球棒上的刀片般，大幅暴增至2030年。
 
-（B）制止中共国的军事侵略；
+受美国总统乔·拜登邀请参加周四和周五的气候峰会，赴会前首相梅特·弗雷德里克森（S）做好了准备，将代表丹麦高举气候旗帜。
 
-（C）促进根据国际法和平解决领土争端；
+-丹麦是全球气候领域的领先国家之一。这体现在两方面: 雄心勃勃的目标(亦是议会党的目标)和解决方案。她说。
 
-（D）促进私营部门主导的长期经济发展，同时打击中共国政府采用的掠夺性的经济做法，作为印度洋-太平洋地区及以外地区政治和经济胁迫手段的努力；
+-这是一种特殊情况，全世界都在向我们寻求解决方案，而政府却在国内受到批评。
 
-（E）促进民主和人权的价值观，包括通过努力结束中国共产党对持不同政见者、维吾尔族和其他穆斯林少数民族、藏传佛教、基督教徒和其他少数民族的镇压；
+-我们在气候区域非常擅长。这并不意味着我们不需要做更多的事情。梅特·弗雷德里克森（Mette Frederiksen）说，我们将在即将开始的农业谈判中达成这一目标。
 
-（F）应对中国共产党的镇压，他们违反了1984年的《中英联合声明》（the Sino-British Joint Declaration）和《香港基本法》（the Basic Law of Hong Kong）所作出的承诺，违背了香港人民的合法愿望；
+丹麦是乔·拜登（Joe Biden）邀请参加气候峰会的六大欧盟国家之一，该峰会以网络形式召开。
 
-（G）反对中国共产党在中共国境内外散布虚假信息的企图，这些虚假信息都是中国共产党有关中共病毒的谣言。
+俄罗斯的弗拉基米尔·普京总统和中国的习近平主席等总共40位世界各地的领导人受邀参加此会。
 
-（本节完）
+除其他事项外，梅特·弗雷德里克森（Mette Frederiksen）在会议期间将谈论能源主题：
 
-原文链接：
+-毫无疑问，美国是最大的排放国之一。拜登已选择邀请世界上其他排放大国和我们一些小国家。
 
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+-丹麦特别受邀参加会议有关创新的部分。她说，丹麦一些公司拥有丹麦和世界其他地区都需要的答案。
 
-文字整理：
+**点评: 全球气候问题一直是个神神秘秘、欲盖弥彰的坑。不可否定，所有地球上的人都应该关心我们生存的自然环境，维护和改善它是我们的职责。如果单就保护环境来说，多数民主国家已经做得相当不错。最重要的难道不是施压排”毒”最多的中共国和印度等国家？它们一天的排毒量可能多于别的国家一年的量。这种主次问题不分、推诿勾兑、看不到成效的会议是否有必要年年装模作样走过场？恐怕政客们迷恋的这个坑可不单单是止于环境保护，其中是否藏着暗箱猫腻？**
 
-Subtitle C—Regional Strategies to Counter the People’s Republic of China
+审核：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
 
-SEC. 241. STATEMENT OF POLICY ON COOPERATION WITH ALLIES AND PARTNERS AROUND THE WORLD WITH RESPECT TO THE PEOPLE’S REPUBLIC OF CHINA.
+**新闻来源:** [路透社 (日德兰邮报转载)](https://jyllands-posten.dk/indland/ECE12922141/mette-frederiksen-trods-kritik-danmark-er-et-af-de-)
 
-It is the policy of the United States—
-
-(1) to strengthen alliances and partnerships Europe and with like-minded countries around the globe to effectively compete with the People’s Republic of China; and
-
-(2) to work in collaboration with such allies and partners—
-
-(A) to address significant diplomatic, economic, and military challenges posed by the People’s Republic of China;
-
-(B) to deter the People’s Republic of China from pursuing military aggression;
-
-(C) to promote the peaceful resolution of territorial disputes in accordance with international law;
-
-(D) to promote private sector-led long-term economic development while countering efforts by the Government of the People’s Republic of China to leverage predatory economic practices as a means of political and economic coercion in the Indo-Pacific region and beyond;
-
-(E) to promote the values of democracy and human rights, including through efforts to end the repression by the Chinese Communist Party of political dissidents and Uyghurs and other ethnic Muslim minorities, Tibetan Buddhists, Christians, and other minorities;
-
-(F) to respond to the crackdown by the Chinese Communist Party, in contravention of the commitments made under the Sino-British Joint Declaration of 1984 and the Basic Law of Hong Kong, on the legitimate aspirations of the people of Hong Kong; and
-
-(G) to counter the Chinese Communist Party efforts to spread disinformation in the People’s Republic of China and beyond with respect to the response of the Chinese Communist Party to COVID–19.
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 0

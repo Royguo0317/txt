@@ -1,19 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月21日秘翻快报【头条新闻】
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1127053/)
+## 【有声读物】大寒
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1127090/)
 
-新闻总结：
+配音：香草山录音组 Swr拥抱太阳
 
-1. 维基文库刊出中共病毒爆发前夕中共卫健委内部文件
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-2. 厦门最大家庭教会酒店聚会遭中共当局冲击
 
-3. 郭文贵先生：日本首相访美  日本明确三大要求
 
-4. 乔希·罗金：中共病毒由美国纳税人资助，美国医疗机构牵涉其中
 
-5. “疫苗护照” 在以色列实行
+
+大寒不寒，这个虚假的冬天
+
+正披着全球变暖的外衣飞奔
+
+
+
+雪，难得
+
+雪白的事物，更难得
+
+
+
+大盗与大圣是雪的极端
+
+而这个世界终究是灰色的
+
+
+
+**文字版原文：[【香草诗词汇】大寒](https://gnews.org/zh-hans/778093/)**
+
+作者：香草山写作组 木白
+
+
+
+音频处理/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
