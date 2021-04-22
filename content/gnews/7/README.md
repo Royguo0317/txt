@@ -1,71 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第241节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1127680/)
+## 华府决心彻底掌控芯片制造的完整供应链
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1127735/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+俄罗斯莫斯科喀秋莎农场 DongDong
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-39.jpg)sputniknews.com
-**“副标题C——应对中共国的区域战略”**
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/A-30.jpg)theepochitimes.com
+白宫周三声明支持一项解决与中共国竞争问题的立提案，称美国总统乔·拜登对旨在加强美国供应链的两党法案表示欢迎。
 
-本节开始进入“标题1——未来竞争的投入”的“副标题C”部分。
+白宫新闻发言人普萨基(Jen Psaki)在一份声明中表示：“我们期待着与国会合作，进一步推动这项提案，以恢复美国在科学和技术方面的全球领导地位，并确保（美国）处在研发和制造未来科技设备（的世界领先水平）。”
 
-要点：美国国会的政策要应对中共国的重大外交、经济和军事挑战，制止中共国的军事侵略，打击中共国政府采用的掠夺性的经济做法，结束中国共产党对持不同政见者、维吾尔族和其他穆斯林少数民族、藏传佛教、基督教徒和其他少数民族的镇压，反对中共散布的有关中共病毒的虚假信息。
+上周三（4月 17 日）参议院特别委员会主席参议员马克·华纳（Mark Warner）在听证会上说，美情报系统和各级执法部门必须聚焦于中共国威胁美国经济和全球领导地位的各种先进技术。他举例 2018 年华为推出物美价廉的 5G 技术就曾打得美国和盟友措手不及，费尽力气阻止华为 5G 成为未来全球通信标准，这才保住了美国和盟国的通信安全。
 
-第241节 就中共国问题，与全世界各盟国和伙伴进行合作的政策声明
+国家情报局局长艾薇儿·海因斯（Avril Haines）和中央情报局局长威廉·伯恩斯（William Burns）均表达类似观点，即尽管各情报机构取得一些成绩，但整个美国政府远未认识到中共国所掌握技术带来的挑战。美情报系统应该聚焦与提高美国竞争力相关的数个技术领域，包括半导体制造、人工智能、量子计算和 5G。
 
-这是美国的政策-
+情报部门各位大佬齐聚一堂，一致同意应该牢牢抢占住“高科技领域”的制高点，才能具备与中共抗衡的力量，“高科技”关系到美国国家安全，而发展高科技就必须掌握设计芯片、制造芯片的技术。
 
-（1）加强与欧洲和全球志同道合国家的联盟和伙伴关系，以便有效地与中共国竞争；以及
+不论是智能汽车、宽带网络、超级计算机、人工智能还是卫星通讯，芯片就是整个科技战略布局的核心。
 
-（2）与这些盟友和伙伴合作-
+美国掌握了设计芯片的核心技术，但芯片生产是一个全球化的供应体系，仅有设计芯片的能力是远远不够的。例如，台积电和三星是生产制造芯片全球最大的两个代工厂，生产芯片必备材料性元素稀土由中共国向全世界提供，占据整个世界稀土市场供应量的 90%。从以上两点来看，至少美国现在的芯片生产严重依赖台湾和中共国。
 
-（A）应对中共国的重大外交、经济和军事挑战；
+对美国来说，即便不考虑政治因素，仅从国家安全角度来说，单凭台积电在芯片制造方面暂时无可替代的地位，就必须保护台湾，这就是保护美国高科技的生命线。而从美中这一年多来越来越紧张的外交关系来看，在继续恶化的情况下，中共国随时可能不会向美国供应稀土。当务之急，就是优先解决制造芯片的“产品供应链”问题。
 
-（B）制止中共国的军事侵略；
+意识到这一点的拜登政府于 4 月 12 日在华府召开全美晶片视讯峰会，向与会的高科技行业总裁们发出强烈呼吁，要求他们为解决芯片短缺的问题贡献力量。由于全球疫情的影响，芯片供应严重不足。苹果手机已经延后了新产品的发布，同时居家办公人数的增加，又提升了对家用电脑的需求。为此，华府承诺为芯片工业提供 500 亿美元资金支持。
 
-（C）促进根据国际法和平解决领土争端；
+即便如此，短期建立起美国自给自足的供应链也颇有困难。4月 20 日美国商务部长吉娜·雷蒙多（Gina Marie Raimondo）在国会听证会上表示，“现在可以毫不夸张地说，我们的供应链出现了危机。” 根据半导体行业协会和波士顿咨询集团(Boston Consulting Group) 2020 年 9 月发布的一份报告，美国在半导体制造业中的份额已从 1990 年的 37%下降至 12%。对美国半导体生产来说，形势岌岌可危。
 
-（D）促进私营部门主导的长期经济发展，同时打击中共国政府采用的掠夺性的经济做法，作为印度洋-太平洋地区及以外地区政治和经济胁迫手段的努力；
+时不我待，美国商务部和司法部及时出手，对试图渗透到美国关键供应链领域的中共企业一查到底。上周二美国商务部向一家未透露姓名的中共公司发出传票，以评估其是否对美国国家安全构成任何风险。而司法部也在严格审核，司法部表示今年3月份以来已经向多家在美国提供信息和通信技术服务的中共公司发出了类似的传票，以确定它们是否对国家安全构成威胁。
 
-（E）促进民主和人权的价值观，包括通过努力结束中国共产党对持不同政见者、维吾尔族和其他穆斯林少数民族、藏传佛教、基督教徒和其他少数民族的镇压；
+但就稀土工业化生产来说，却难住了华盛顿。与中共国不管百姓生活环境而肆意掠夺自然来换取美金的做法不同，美国民众对环境保护的意识深入骨髓，政府制定的相应保护环境的法律简直是严苛。不幸的是，开采稀土正是一种会给自然环境造成巨大影响的工业行为。正是迫于国内不断加大的环境保护的压力，西方很多国家才将生产稀土的工业转移到了中共国。现在，尽管美国有能力有技术开采稀土，但环境保护是无法逾越的障碍。因此拜登政府考虑通过研发新技术来生产稀土替代品，或是通过新工艺大大降低开采稀土对环境的影响，在筑起芯片供应链长城之时，也能保护自然环境。
 
-（F）应对中国共产党的镇压，他们违反了1984年的《中英联合声明》（the Sino-British Joint Declaration）和《香港基本法》（the Basic Law of Hong Kong）所作出的承诺，违背了香港人民的合法愿望；
+总之，对美国国家安全来说，现在必须确保芯片生产的完整供应链都必须由美国及其盟友完全控制，不能由中共国控制任何一个材料供应和生产技艺的环节，否则就会让美国受制于人。当关键科技领域的供应链完全拉回美国本土及其盟友手中时，美国才能确保自己与中共国之间的竞争取得了压倒性优势。
 
-（G）反对中国共产党在中共国境内外散布虚假信息的企图，这些虚假信息都是中国共产党有关中共病毒的谣言。
+参考链接：
 
-（本节完）
+[1] [White House backs tech bill boosting U.S. supply chains – REUTERS – 2021/04/21](https://www.reuters.com/technology/white-house-backs-tech-bill-boosting-us-supply-chains-spokeswoman-2021-04-21/)
 
-原文链接：
+[2] [美商务部长称美面临芯片安全危机 – GNEWS – 2021/04/20](https://gnews.org/zh-hans/1123566/)
 
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+[3] [美国试图重新成为稀土供应链的主导者 – GNEWS – 2021/04/17](https://www.gnews.org/zh-hans/1110720/)
 
-文字整理：
-
-Subtitle C—Regional Strategies to Counter the People’s Republic of China
-
-SEC. 241. STATEMENT OF POLICY ON COOPERATION WITH ALLIES AND PARTNERS AROUND THE WORLD WITH RESPECT TO THE PEOPLE’S REPUBLIC OF CHINA.
-
-It is the policy of the United States—
-
-(1) to strengthen alliances and partnerships Europe and with like-minded countries around the globe to effectively compete with the People’s Republic of China; and
-
-(2) to work in collaboration with such allies and partners—
-
-(A) to address significant diplomatic, economic, and military challenges posed by the People’s Republic of China;
-
-(B) to deter the People’s Republic of China from pursuing military aggression;
-
-(C) to promote the peaceful resolution of territorial disputes in accordance with international law;
-
-(D) to promote private sector-led long-term economic development while countering efforts by the Government of the People’s Republic of China to leverage predatory economic practices as a means of political and economic coercion in the Indo-Pacific region and beyond;
-
-(E) to promote the values of democracy and human rights, including through efforts to end the repression by the Chinese Communist Party of political dissidents and Uyghurs and other ethnic Muslim minorities, Tibetan Buddhists, Christians, and other minorities;
-
-(F) to respond to the crackdown by the Chinese Communist Party, in contravention of the commitments made under the Sino-British Joint Declaration of 1984 and the Basic Law of Hong Kong, on the legitimate aspirations of the people of Hong Kong; and
-
-(G) to counter the Chinese Communist Party efforts to spread disinformation in the People’s Republic of China and beyond with respect to the response of the Chinese Communist Party to COVID–19.
+[4] [参议院特别委员会：美应聚焦中共的先进技术威胁 – GNEWS – 2021/04/18](https://www.gnews.org/zh-hans/1113336/)
 
 0

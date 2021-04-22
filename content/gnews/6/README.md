@@ -1,37 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美宗教自由委员会：美官员不能参加北京冬奥会
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1127721/)
+## 慧眼看世界202104022（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1127419/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/B-34.jpg)english.sina.com
-据路透社(4 月 21 日)报道，美国国际宗教自由委员会（US Commission on International Religious Freedom）周三当日发布的 2021 年度报告指出，建议华府继续将中共国列为“系统性、持续和严重侵犯宗教自由的特别关注国”。报告同时呼吁，鉴于中共国政府对宗教自由的持续迫害，华盛顿不应派公职人员出席 2022 年北京冬奥会。
 
-拜登政府今年早些时候曾表示，尚未计划禁止美国运动员参加北京冬奥会。但是，随着民众和关注人权行政官员要求对北京冬奥会进行外交抵制的呼声越来越高，拜登政府也必须听从民意的呼唤。在这种抵制民意高涨的情况下，华府考虑可以允许运动员参加比赛，但作为政府代表的公职人员不能出席北京冬奥会。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-除了中共严重侵犯新疆人权之外，鉴于全球受到新冠疫情（CCP 病毒）的影响，2020 年夏季东京奥运会已经推迟，有人也以此为依据建议推迟或重新安排 2021 年 2 月份北京冬奥会。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-12.jpg)
 
-美国国际宗教自由委员会同时鼓励华府继续对实施“系统的、持续的和恶劣的侵权行为 ”的中共国政府机构和官员实施有针对性的金融和签证制裁。该组织还建议美国政府 “ 公开表达对北京主办 2022 年冬奥会的关切。”
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-13.jpg)
 
-相关积极人士和联合国人权专家说，至少有 100 万穆斯林被关押在中共国新疆地区的集中营里。许多西方政治家站出来公开指责中共国对维族人动用酷刑，并犯下了强迫劳动、绝育、虐待、强奸等罪行。美国国务卿安布林肯也继续维持了川普政府早些时候的认定，相当于拜登政府也认定中共对维族人犯下了种族灭绝的罪行。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-12.jpg)
 
-尽管证据确凿，但中共国再三否认所有关于虐待的指控，并声称集中营是提供职业培训的场所，是打击极端恐怖主义的需要。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-13.jpg)
 
-本月早些时候，白宫新闻发言人珍·帕萨基（Jen Psaki）表示，美国没有与盟友和合作伙伴讨论过联合抵制的问题。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-13.jpg)
 
-美国维吾尔族活动家、美国委员会成员努里·特克尔（Nury Turkel）告诉路透社，国际奥委会为北京奥运会平台背书，就是放任北京当局将其侵犯人权的行为正常合法化。特克尔认为，任何思维正常、高贵体面的政治家如果无视新疆发生的种族灭绝事件，亲自出席了北京冬奥会，都是自毁政治前途的行为。”
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-11.jpg)
 
-今年 3 月，中共国政府制裁了美国国际宗教自由委员会(USCIRF)委员会的主席盖尔·曼钦（Gayle Manchin）和副主席托尼·帕金斯（Tony Perkins），因为他们建议美国政府及其合作伙伴对中共国官员在新疆的侵权行为进行制裁。两位宗教自由领袖表示，他们对能被列入中共制裁名单感到 “受宠若惊”，令他们非常自豪。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-11.jpg)
 
-参考链接：
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-11.jpg)
 
-[1] [Panel recommends that U.S. officials not go to China’s Olympics – REUTERS – 2021/04/20](https://www.reuters.com/article/olympics-2022-usa/panel-recommends-that-us-officials-not-go-to-chinas-olympics-idUSL1N2ME1FS)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-11.jpg)
 
-[2] [北京冬奥会一年倒计时：疫情与抵制之声 – 法广 – 2021/04/02](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E8%A6%81%E9%97%BB%E8%A7%A3%E8%AF%B4/20210204-%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A%E4%B8%80%E5%B9%B4%E5%80%92%E8%AE%A1%E6%97%B6-%E7%96%AB%E6%83%85%E4%B8%8E%E6%8A%B5%E5%88%B6%E4%B9%8B%E5%A3%B0)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-16.jpg)
 
-[3] [美宗教自由委员对中共国的制裁“受宠若惊” – GNEWS – 2021/04/13](https://www.gnews.org/zh-hans/1086473/)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-17.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-19.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-14.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-14.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-11.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0

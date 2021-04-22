@@ -1,49 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104022（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1127419/)
+## [疫情下的西班牙]西班牙疫情简报
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1127831/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+- 作者：gokuabuela
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01-12.jpg)
+**西班牙2021年4月22日电/西喜社——**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02-13.jpg)
+4月20日，西班牙卫生部公布疫情数据：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03-12.jpg)
+新增病例： 7486
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-13.jpg)
+新增死亡： 114 例
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05-13.jpg)
+14天内10万人感染率： 230.95 （250 以上为极高风险），比4月19日的230.54 略有上升。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06-11.jpg)
+（[https://www.abc.es/sociedad/abci-sanidad-notifica-7486-casos-y-114-muertes-incidencia-acumulada-estable-230-202104201851\_noticia.html](https://www.abc.es/sociedad/abci-sanidad-notifica-7486-casos-y-114-muertes-incidencia-acumulada-estable-230-202104201851_noticia.html)）
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07-11.jpg)
+欧洲药物管理局称找到了强森疫苗和血栓之间的关系，但仍然认为，此疫苗的作用大于风险。并开放接种强森疫苗。西班牙从本周三开始，将给70-79岁的人群接种疫苗。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08-11.jpg)
+([https://www.abc.es/sociedad/abci-encuentra-vinculo-entre-trombos-y-vacuna-janssen-pero-beneficio-supera-posibles-riesgos-202104201619\_noticia.html](https://www.abc.es/sociedad/abci-encuentra-vinculo-entre-trombos-y-vacuna-janssen-pero-beneficio-supera-posibles-riesgos-202104201619_noticia.html))
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09-11.jpg)
+西班牙卫生部拒绝了给60岁以下人群接种阿斯利康疫苗的计划，称尚缺乏足够的信息来做出正确的判定，因此目前接种该疫苗的最低年龄为70岁。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-16.jpg)
+([https://www.abc.es/sociedad/abci-vacunacion-voluntaria-menores-60-anos-astrazeneca-rechazada-sanidad-202104211456\_video.html](https://www.abc.es/sociedad/abci-vacunacion-voluntaria-menores-60-anos-astrazeneca-rechazada-sanidad-202104211456_video.html))
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-17.jpg)
+审核：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-19.jpg)
+[西班牙巴塞罗那喜悦农场：疫情下的西班牙专栏](https://gnews.org/zh-hans/993776/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-15.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-14.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-14.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-11.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 0

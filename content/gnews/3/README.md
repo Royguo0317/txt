@@ -1,47 +1,109 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 华府决心彻底掌控芯片制造的完整供应链
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1127735/)
+## 美国《2021战略竞争法》第245、246节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1127818/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/A-30.jpg)theepochitimes.com
-白宫周三声明支持一项解决与中共国竞争问题的立提案，称美国总统乔·拜登对旨在加强美国供应链的两党法案表示欢迎。
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/UC.jpg)panaynews.net
+本2节为“副标题C——应对中共国的区域战略”中，“第一部分-西半球”的245、246节。
 
-白宫新闻发言人普萨基(Jen Psaki)在一份声明中表示：“我们期待着与国会合作，进一步推动这项提案，以恢复美国在科学和技术方面的全球领导地位，并确保（美国）处在研发和制造未来科技设备（的世界领先水平）。”
+要点：美国加拿大应加强合作，打击中共国的造谣、影响活动，以及经济间谍和宣传工作，中共国的基础设施投资，特别是在5G电信技术、自然资源开采和港口基础设施方面，对美国和加拿大构成了国家安全风险，美国应酌情分享收集到的有关华为5G能力，以及中共政府关于5G扩展意向的情报。国会认为，中共国政府任意拘留和虐待对待加拿大公民显然是对加拿大政府逮捕孟晚舟的报复。
 
-上周三（4月 17 日）参议院特别委员会主席参议员马克·华纳（Mark Warner）在听证会上说，美情报系统和各级执法部门必须聚焦于中共国威胁美国经济和全球领导地位的各种先进技术。他举例 2018 年华为推出物美价廉的 5G 技术就曾打得美国和盟友措手不及，费尽力气阻止华为 5G 成为未来全球通信标准，这才保住了美国和盟国的通信安全。
+**第一部分-西半球**
 
-国家情报局局长艾薇儿·海因斯（Avril Haines）和中央情报局局长威廉·伯恩斯（William Burns）均表达类似观点，即尽管各情报机构取得一些成绩，但整个美国政府远未认识到中共国所掌握技术带来的挑战。美情报系统应该聚焦与提高美国竞争力相关的数个技术领域，包括半导体制造、人工智能、量子计算和 5G。
+**第245节 国会对美加关系的认识**
 
-情报部门各位大佬齐聚一堂，一致同意应该牢牢抢占住“高科技领域”的制高点，才能具备与中共抗衡的力量，“高科技”关系到美国国家安全，而发展高科技就必须掌握设计芯片、制造芯片的技术。
+国会认为-
 
-不论是智能汽车、宽带网络、超级计算机、人工智能还是卫星通讯，芯片就是整个科技战略布局的核心。
+（1）美国和加拿大有着独特的关系，其基础是共同的地理位置、广泛的个人关系、深厚的经济联系、共同的防务承诺和维护民主、人权，以及二战后建立的以规则为基础的国际秩序的共同愿景；
 
-美国掌握了设计芯片的核心技术，但芯片生产是一个全球化的供应体系，仅有设计芯片的能力是远远不够的。例如，台积电和三星是生产制造芯片全球最大的两个代工厂，生产芯片必备材料性元素稀土由中共国向全世界提供，占据整个世界稀土市场供应量的 90%。从以上两点来看，至少美国现在的芯片生产严重依赖台湾和中共国。
+（2）美国和加拿大可以通过在禁毒、环境管理、公共采购和基础设施规划、北极、能源和互联互通问题、贸易和商业关系等方面加强合作，更好地应对中共国的经济、政治和安全影响，合作也包括双边法律事务，以及对民主、善政和人权的支持；
 
-对美国来说，即便不考虑政治因素，仅从国家安全角度来说，单凭台积电在芯片制造方面暂时无可替代的地位，就必须保护台湾，这就是保护美国高科技的生命线。而从美中这一年多来越来越紧张的外交关系来看，在继续恶化的情况下，中共国随时可能不会向美国供应稀土。当务之急，就是优先解决制造芯片的“产品供应链”问题。
+（3）在中共病毒疫情期间，美国和加拿大应保持共同倡议，以解决边境管理、商业和贸易关系、对中共国的共同做法，以及包括流行病和气候变化在内的跨国挑战；
 
-意识到这一点的拜登政府于 4 月 12 日在华府召开全美晶片视讯峰会，向与会的高科技行业总裁们发出强烈呼吁，要求他们为解决芯片短缺的问题贡献力量。由于全球疫情的影响，芯片供应严重不足。苹果手机已经延后了新产品的发布，同时居家办公人数的增加，又提升了对家用电脑的需求。为此，华府承诺为芯片工业提供 500 亿美元资金支持。
+（4）美加应加强合作，打击中共国的造谣、影响活动，以及经济间谍和宣传工作；
 
-即便如此，短期建立起美国自给自足的供应链也颇有困难。4月 20 日美国商务部长吉娜·雷蒙多（Gina Marie Raimondo）在国会听证会上表示，“现在可以毫不夸张地说，我们的供应链出现了危机。” 根据半导体行业协会和波士顿咨询集团(Boston Consulting Group) 2020 年 9 月发布的一份报告，美国在半导体制造业中的份额已从 1990 年的 37%下降至 12%。对美国半导体生产来说，形势岌岌可危。
+（5）中共国的基础设施投资，特别是在5G电信技术、自然资源开采和港口基础设施方面，对美国和加拿大构成了国家安全风险；
 
-时不我待，美国商务部和司法部及时出手，对试图渗透到美国关键供应链领域的中共企业一查到底。上周二美国商务部向一家未透露姓名的中共公司发出传票，以评估其是否对美国国家安全构成任何风险。而司法部也在严格审核，司法部表示今年3月份以来已经向多家在美国提供信息和通信技术服务的中共公司发出了类似的传票，以确定它们是否对国家安全构成威胁。
+（6）美国应酌情分享收集到的有关情报–
 
-但就稀土工业化生产来说，却难住了华盛顿。与中共国不管百姓生活环境而肆意掠夺自然来换取美金的做法不同，美国民众对环境保护的意识深入骨髓，政府制定的相应保护环境的法律简直是严苛。不幸的是，开采稀土正是一种会给自然环境造成巨大影响的工业行为。正是迫于国内不断加大的环境保护的压力，西方很多国家才将生产稀土的工业转移到了中共国。现在，尽管美国有能力有技术开采稀土，但环境保护是无法逾越的障碍。因此拜登政府考虑通过研发新技术来生产稀土替代品，或是通过新工艺大大降低开采稀土对环境的影响，在筑起芯片供应链长城之时，也能保护自然环境。
+（A）华为的5G能力；以及
 
-总之，对美国国家安全来说，现在必须确保芯片生产的完整供应链都必须由美国及其盟友完全控制，不能由中共国控制任何一个材料供应和生产技艺的环节，否则就会让美国受制于人。当关键科技领域的供应链完全拉回美国本土及其盟友手中时，美国才能确保自己与中共国之间的竞争取得了压倒性优势。
+（B）中国共政府关于5G扩展的意向；
 
-参考链接：
+（7）美国和加拿大应继续推进合作倡议，以实施2020年1月9日《美国-加拿大关键矿产开发合作联合行动计划》（United States-Canada Joint Action Plan on Critical Minerals Development Collaboration）；以及
 
-[1] [White House backs tech bill boosting U.S. supply chains – REUTERS – 2021/04/21](https://www.reuters.com/technology/white-house-backs-tech-bill-boosting-us-supply-chains-spokeswoman-2021-04-21/)
+（8）美国和加拿大必须优先考虑在陆地防御和北极地区的合作，包括使北美航空航天防务司令部（NORAD）现代化，以有效地保护北半球免受同行竞争者的威胁，包括远程导弹和高精度武器。
 
-[2] [美商务部长称美面临芯片安全危机 – GNEWS – 2021/04/20](https://gnews.org/zh-hans/1123566/)
+**第246节 关于中共政府任意监禁加拿大公民的国会意识**
 
-[3] [美国试图重新成为稀土供应链的主导者 – GNEWS – 2021/04/17](https://www.gnews.org/zh-hans/1110720/)
+国会认为—
 
-[4] [参议院特别委员会：美应聚焦中共的先进技术威胁 – GNEWS – 2021/04/18](https://www.gnews.org/zh-hans/1113336/)
+（1）中共国政府明显地任意拘留和虐待对待加拿大公民迈克尔·斯帕沃（Michael Spavor）和康明凯（Michael Kovrig），显然是对加拿大政府逮捕孟晚舟的报复，要引起深切的关注；
+
+（2）加拿大政府在以下方面发挥了国际领导作用—
+
+（A）维护法治，遵守国际法律义务，包括1971年12月3日在华盛顿签署的《美利坚合众国和加拿大引渡条约》（the Extradition Treaty Between the United States of America and Canada）规定的义务；以及
+
+（B）发起《反对在国与国关系中任意拘留宣言》（the Declaration Against Arbitrary Detention），该宣言已得到各国和欧洲联盟的赞同，并重申国际人权公约对在国与国关系中利用任意拘留外国人作为筹码的既定禁令；以及
+
+（3）美国继续与加拿大政府一道呼吁立即释放迈克尔·斯帕沃和迈克尔·科夫里格，并要求对加拿大公民罗伯特·谢伦伯格（Robert Schellenberg）采取适当程序。
+
+（本节完）
+
+原文链接：
+
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+
+文字整理：
+
+PART I—WESTERN HEMISPHERE
+
+SEC. 245. SENSE OF CONGRESS REGARDING UNITED STATES-CANADA RELATIONS.
+
+It is the sense of Congress that—
+
+(1) the United States and Canada have a unique relationship based on shared geography, extensive personal connections, deep economic ties, mutual defense commitments, and a shared vision to uphold democracy, human rights, and the rules based international order established after World
+
+War II;
+
+(2) the United States and Canada can better address China’s economic, political, and security influence through closer cooperation on counter- narcotics, environmental stewardship, transparent practices in public procurement and infrastructure planning, the Arctic, energy and connectivity issues, trade and commercial relations, bilateral legal matters, and support for democracy, good governance, and human rights;
+
+(3) amidst the COVID–19 pandemic, the United States and Canada should maintain joint initiatives to address border management, commercial and trade relations, a shared approach with respect to the People’s Republic of China, and transnational challenges, including pandemics and climate change;
+
+(4) the United States and Canada should enhance cooperation to counter Chinese disinformation,
+
+influence operations, economic espionage, and propaganda efforts;
+
+(5) the People’s Republic of China’s infrastructure investments, particularly in 5G telecommunications technology, extraction of natural resources, and port infrastructure, pose national security risks for the United States and Canada;
+
+(6) the United States should share, as appropriate, intelligence gathered regarding—
+
+(A) Huawei’s 5G capabilities; and
+
+(B) the Chinese Government’s intentions with respect to 5G expansion;
+
+(7) the United States and Canada should continue to advance collaborative initiatives to implement the January 9, 2020, United States-Canada Joint Action Plan on Critical Minerals Development Collaboration; and
+
+(8) the United States and Canada must prioritize cooperation on continental defense and in the Arctic, including by modernizing the North American Aerospace Defense Command (NORAD) to effectively defend the Northern Hemisphere against the range of threats by peer competitors, including long range missiles and high-precision weapons.
+
+SEC. 246. SENSE OF CONGRESS REGARDING THE GOVERNMENT OF CHINA’S ARBITRARY IMPRISONMENT OF CANADIAN CITIZENS.
+
+It is the sense of Congress that—
+
+(1) the Government of the People’s Republic of China’s apparent arbitrary detention and abusive
+
+treatment of Canadian nationals Michael Spavor and Michael Kovrig in apparent retaliation for the Government of Canada’s arrest of Meng Wanzhou is deeply concerning;
+
+(2) the Government of Canada has shown international leadership by—
+
+(A) upholding the rule of law and complying with its international legal obligations, including those pursuant to the Extradition Treaty Between the United States of America and Canada, signed at Washington December 3, 1971; and
+
+(B) launching the Declaration Against Arbitrary Detention in State-to-State Relations, which has been endorsed by countries and the European Union and reaffirms well-established prohibitions under international human rights conventions against the arbitrary detention of foreign nationals to be used as leverage in state-to-state relations; and
+
+(3) the United States continues to join the Government of Canada in calling for the immediate release of Michael Spavor and Michael Kovrig and for due process for Canadian nationalRobert Schellenberg.
 
 0

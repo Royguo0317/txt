@@ -1,53 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共利用马克思理论物化人性的反人类统治
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1127617/)
+## 美国《2021战略竞争法》第241节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1127680/)
 
-**作者：华盛顿DC农场 喜马拉雅的风**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/中共利用马克思理论物化人性的反人类统治.jpg)（图片来源于网络）
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-39.jpg)sputniknews.com
+**“副标题C——应对中共国的区域战略”**
 
-今年是中国共产党成立第100年，中共为此得意非凡，计划将谎言连篇的党史教育灌注进老百姓的生活、学习和工作等方方面面。中共完全不把老百姓看做会思考的人，而是将他们当做可以加工改造的工具进行利用。中共将人物化的这一统治理念，不论在其执政的理论基础里，还是在其具体的施政中，都有充分的表现。
+本节开始进入“标题1——未来竞争的投入”的“副标题C”部分。
 
-中共以马克思主义为自己执政的理论基础。中共中央党校原副校长何毅亭曾发文指出，推进当代马克思主义大众化是一项重要而紧迫的任务。
+要点：美国国会的政策要应对中共国的重大外交、经济和军事挑战，制止中共国的军事侵略，打击中共国政府采用的掠夺性的经济做法，结束中国共产党对持不同政见者、维吾尔族和其他穆斯林少数民族、藏传佛教、基督教徒和其他少数民族的镇压，反对中共散布的有关中共病毒的虚假信息。
 
-何毅亭认为，“马克思主义的核心是「为人类求解放」，人类社会的发展史就是一场不间断改变现存事物的革命。”同时他提出，“理论本身并不能直接改变世界，批判的武器当然不能代替武器的批判，物质力量只能用物质力量来摧毁；但是理论一经群众掌握，也会变成物质力量。”何毅亭进一步解释道：“只有人民掌握马克思主义这一思想武器，只有人民明确意识到自身的阶级地位与历史使命，人民才能自觉地创造自身解放的条件，使自己成为马克思主义的物质武器。”
+第241节 就中共国问题，与全世界各盟国和伙伴进行合作的政策声明
 
-这就是中共推进马克思主义大众化的理论来源。该理论反映出中共不是在治理一个国家，而是在统治一群被高度物化的原始生物人。
+这是美国的政策-
 
-“人民自觉地使自己成为马克思主义的物质武器”这是中共将人得彻底物化。中共眼里的理想社会是，老百姓自然不能有自己的思考和思想，甚至不能有自己的感受和情感，即便需要有思想情感，也只能是来自中共的思想和爱党拥党的感情。自1949年以来，中共历次运动迫害的对象，皆是那些为了保持自己独特的思想感情，而没有与党中央保持一致的人。
+（1）加强与欧洲和全球志同道合国家的联盟和伙伴关系，以便有效地与中共国竞争；以及
 
-在中共的淫威之下，久而久之，原本一个个鲜活的生命成了一具具听党话、跟党走、吃党饭的行尸走肉。这就是中共国内被洗脑者的“脑残”根源所在。在外人看来，中共和国民的关系，就如周瑜打黄盖——一个愿打，一个愿挨。让习近平引以为傲的全面“脱贫”是周瑜打黄盖的最真实写照。
+（2）与这些盟友和伙伴合作-
 
-众多贫困农民在中共的扶贫模式中失去赖以生存的土地，被迫成为寻找就业机会的农民工。然而，一边是习近平满世界推广中（共）国脱贫模式和经验，一边是“脱贫”后的失地农民在媒体上乐呵呵地称赞党和政府。谁如果对脱贫说“No”，一定会遭到老少粉红的群攻，没准这群粉红里还有月收入1000元的城市贫困人口。
+（A）应对中共国的重大外交、经济和军事挑战；
 
-同样，在面对疫情时，中共不顾老百姓的生命安危，将老百姓作为工具利用，给他们接种低效和低安全性的疫苗，以此作为自己在国际上推广疫苗的示范。尽管如此，在国内外对中共疫苗的一片质疑声里，仍然有人排起长队接种疫苗。他们的逻辑是：因为党和政府，及其所豢养的所谓专家都在竭力号召国民接种疫苗，听党话，党让干啥就干啥，准没错！这就是被中共统治下高度物化后人群的“逻辑思维”。
+（B）制止中共国的军事侵略；
 
-如果说以上物化现象在人的意识里发生，不易被人察觉，那么，中共原卫生部副部长黄洁夫在去年的器官移植科学论坛上宣称：“希望中国在2023年能成为世界第一人体器官移植大国，以满足经济社会的发展需求。”黄洁夫还大言不惭地称，“目前中国仍有大量心、肺器官被浪费掉。”这样的言论赤裸裸体现出中共为追求经济效益而将人体器官当做可拆卸的零配件。更为骇人听闻的是中共活摘人体器官的传闻，比如活摘死囚犯、法轮功学员、新疆维族异见人士等的器官。这些事实充分体现了中共对人进行高度物化后为我所用的邪恶统治。
+（C）促进根据国际法和平解决领土争端；
 
-在中共治下，还有谁能幸免于被其物化的厄运，而成为真正的人呢？何毅亭在自己文章中指出，马克思主义认为“理论只要说服人，就能掌握群众；而理论只要彻底，就能说服人。所谓彻底，就是抓住事物的根本。而人的根本就是人本身。”这段话在赤裸裸的诠释何为洗脑。马克思主义具有反人类性，其本质就是要抓住人本身进行改造，将原本有独特灵性的人改造为可以任由统治阶级为所欲为的工具。
+（D）促进私营部门主导的长期经济发展，同时打击中共国政府采用的掠夺性的经济做法，作为印度洋-太平洋地区及以外地区政治和经济胁迫手段的努力；
 
-由此来看，以马克思主义理论为其执政基础的中共是全人类的敌人。只要中共尚存，人类就不能幸免于被其共产主义的马克思主义理论物化的厄运，未来的地球文明将毁于一群只有生命再无灵性的僵尸。
+（E）促进民主和人权的价值观，包括通过努力结束中国共产党对持不同政见者、维吾尔族和其他穆斯林少数民族、藏传佛教、基督教徒和其他少数民族的镇压；
 
-*（文章仅代表作者观点，与GNews无关）*
+（F）应对中国共产党的镇压，他们违反了1984年的《中英联合声明》（the Sino-British Joint Declaration）和《香港基本法》（the Basic Law of Hong Kong）所作出的承诺，违背了香港人民的合法愿望；
 
-参考链接：
-[1] [谈谈推进马克思主义大众化](http://theory.people.com.cn/n1/2021/0311/c40531-32048735.html)
-[2] [数字解读强国（2） 倒计时脱贫](https://gnews.org/zh-hans/971933/)
-[3] [土地流转成为脱贫致富新“引擎”](https://baijiahao.baidu.com/s?id=1602402803434491122&amp;wfr=spider&amp;for=pc)
-[4] [在中共的疫苗战略里，中国人只是其利用工具而非被保护对象](https://gnews.org/zh-hans/1091389/)
-[5][从排队到完成只要10分钟！普陀这个新冠疫苗接种点怎么做到的？](https://m.thepaper.cn/baijiahao_12099090)
-[6] [黄洁夫：我国将成为世界第一器官移植大国，但有大量器官浪费](https://baijiahao.baidu.com/s?id=1683847684065650974&amp;wfr=spider&amp;for=pc)
-[7] [王国齐：摘取死囚器官 我做过上百次](https://www-epochtimes-com.cdn.ampproject.org/v/s/www.epochtimes.com/gb/1/6/29/n104581.htm/amp?amp_js_v=a6&amp;amp_gsa=1&amp;usqp=mq331AQHKAFQArABIA%3D%3D#aoh=16189897687211&amp;amp_ct=1618989784432&amp;referrer=https%3A%2F%2Fwww.google.com&amp;amp_tf=%E6%9D%A5%E6%BA%90%EF%BC%9A%251%24s&amp;ampshare=https%3A%2F%2Fwww.epochtimes.com%2Fgb%2F1%2F6%2F29%2Fn104581.htm)
-[8] [曹长青：法轮功学员被摘器官是真的吗？](https://www-epochtimes-com.cdn.ampproject.org/v/s/www.epochtimes.com/gb/18/9/5/n10691605.htm/amp?amp_js_v=a6&amp;amp_gsa=1&amp;usqp=mq331AQHKAFQArABIA%3D%3D#aoh=16189898833656&amp;referrer=https%3A%2F%2Fwww.google.com&amp;amp_tf=%E6%9D%A5%E6%BA%90%EF%BC%9A%251%24s&amp;ampshare=https%3A%2F%2Fwww.epochtimes.com%2Fgb%2F18%2F9%2F5%2Fn10691605.htm)
-[9] [福克斯重磅报导：一场近20年的噩梦——骇人听闻的“器官活摘”](https://m.soundofhope.org/post/309848)
-[10][【深度挖掘】鬼魅魍魉的中共国器官移植——人体器官捐献体系是否是买卖器官的“黑箱”？](https://gnews.org/zh-hans/648035/)
+（G）反对中国共产党在中共国境内外散布虚假信息的企图，这些虚假信息都是中国共产党有关中共病毒的谣言。
 
-* * *
+（本节完）
 
-*责任编辑：华盛顿DC农场 荧然
-编辑/校对：华盛顿DC农场 光之子(沙加)
-发布：华盛顿DC农场 YIMING（文鸣）*
+原文链接：
+
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+
+文字整理：
+
+Subtitle C—Regional Strategies to Counter the People’s Republic of China
+
+SEC. 241. STATEMENT OF POLICY ON COOPERATION WITH ALLIES AND PARTNERS AROUND THE WORLD WITH RESPECT TO THE PEOPLE’S REPUBLIC OF CHINA.
+
+It is the policy of the United States—
+
+(1) to strengthen alliances and partnerships Europe and with like-minded countries around the globe to effectively compete with the People’s Republic of China; and
+
+(2) to work in collaboration with such allies and partners—
+
+(A) to address significant diplomatic, economic, and military challenges posed by the People’s Republic of China;
+
+(B) to deter the People’s Republic of China from pursuing military aggression;
+
+(C) to promote the peaceful resolution of territorial disputes in accordance with international law;
+
+(D) to promote private sector-led long-term economic development while countering efforts by the Government of the People’s Republic of China to leverage predatory economic practices as a means of political and economic coercion in the Indo-Pacific region and beyond;
+
+(E) to promote the values of democracy and human rights, including through efforts to end the repression by the Chinese Communist Party of political dissidents and Uyghurs and other ethnic Muslim minorities, Tibetan Buddhists, Christians, and other minorities;
+
+(F) to respond to the crackdown by the Chinese Communist Party, in contravention of the commitments made under the Sino-British Joint Declaration of 1984 and the Basic Law of Hong Kong, on the legitimate aspirations of the people of Hong Kong; and
+
+(G) to counter the Chinese Communist Party efforts to spread disinformation in the People’s Republic of China and beyond with respect to the response of the Chinese Communist Party to COVID–19.
 
 0

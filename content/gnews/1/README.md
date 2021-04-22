@@ -1,52 +1,93 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [疫情下的西班牙]中共金融超限战“引火烧身” 从西班牙2月公共债务失控谈起
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1127758/)
+## 美国《2021战略竞争法》第247节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1127886/)
 
-- 作者： Gokuabuela
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/CA-1.jpg)mytruenorthnow.com
+**第247节 加强与加拿大合作的战略**
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+（a）通常情况 — 不迟于本法颁布之日后90天，总统应向参议院外交关系委员会和军事委员会以及众议院外交事务委员会和军事委员会提交一份战略报告，说明美国将如何加强与加拿大政府在管控与中共国政府关系方面的合作。
 
-**西班牙2021年4月22日电/西喜社——**
+（b）要素 —（a）款所规定的策略—
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/stock-exchange-4880802_640.jpg)
+（1）确定美国和加拿大在处理与中共国的关系方面的主要政策的趋同点和分歧点，在技术、贸易、经济实践、网络安全、安全供应链和关键矿产以及非法麻醉品等领域的合作；
 
-根据西班牙银行今天提供的数据，在过去的2月份，公共债务达到1.367万亿欧元之后，它飙升至国内生产总值的121.9%。因此，它首次超过了国内生产总值120%的心理障碍，使国家陷入了困境。
+（2）包括与加拿大同行的发展协调努力，以加强美国和加拿大在以下方面的合作—
 
-在这种情况下，根据《过度赤字协议》（EDP），公共债务比1月增长47亿，同比增长13.8%，超过了这一标准。
+（A）管控与中共国的经济关系；
 
-目前，国债余额上升到1.188万亿欧元，同比增长11.6%，而其他中央政府单位的余额为580亿欧元，与前一年的数字相比增长了128%。社会保障债务余额为850亿，比一年前多出55.1%。这一增长是由于国家向社会保障总库提供的贷款，以资助其预算失衡。
+（B）中共国的民主和人权；
 
-2021年2月，各自治区的债务增长到3030亿欧元，同比增长1.6%，而地方公司的债务在这个月为220亿欧元，比2020年2月的余额减少4.6%。另一方面，整个公共管理部门的整合，即不同部门之间存在的债务，比前一年增加了9.5%，达到2890亿欧元。
+（C）涉及中共国的技术问题；
 
-**简评：**
+（D）涉及中共国的国防问题；以及
 
-公共债务是指政府为筹措资金，用政府信誉做担保，发行的债务，是中央政府和地方政府发行的债务的总和。公共债务分长期和短期。理论上说，如果是以长期债务为主，那么压力还比较小，反之，则很麻烦。政府在发行债务的时候，如果经过严密的计算，对自己的发展又很有信心，那么，公共债务的比例高一点是没有关系的，是可控的。比如2021年2月，法国的公共债务占GDP的比例是115%，低于预期的117%，属于正面消息。又比如日本的公共债务占到GDP的200%，因为大部分国债是日本人购买的，所以国际市场丝毫不担心日本的债务问题。
+（E）国际执法和跨国有组织犯罪问题。
 
-西班牙的公共债务的增长，大部分是因为中共病毒疫情，政府需要紧急拨款所导致的，比如2020年疫情爆发之初，中央政府借款200亿欧元，以及后来的失业人员补偿，购买防疫用品，包括现在的疫苗。这个债务大部分并不是预料中的，加上因为疫情影响，社会生产停滞，债务带来的压力非常大。
+（3）详述外交努力和未来与加拿大合作的计划，以对抗中共国在世界各地推行的独裁统治模式；
 
-那么公共债务会引起什么问题呢？最主要就是流动性短缺，简单说就是“缺钱”。引起增长停滞，因为没钱再投入。还有就是债台高筑，借新债还旧债。甚至引发财政赤字。最佳的解决办法就是有资金注入。
+（4）详细说明迄今为止的外交、国防和情报合作以及未来的计划，以支持加拿大努力寻找效益成本比高的、替代华为的5G技术；
 
-中共病毒疫情爆发以来，有多少国家公共债务上升呢？可以说是所有的国家，最佳办法是注入新资金，新资金哪里来？从中共国来，以人民币的方式，以数字货币，这就是中共设想的超限金融战，通过疫情破坏该国的金融结构，再以贷款、注资等方式，推广人民币，进而控制该国的金融命脉。
+（5）外交和国防合作细节—
 
-西班牙政府如此大规模举债，一方面是不得已而为之，另一方面，也是有底气的，那就是欧洲即将发行的“复苏资金”（FONDO EUROPEO）. 据初步谈判，西班牙可以获得这个总额为6700亿欧元当中的1400亿（分5年获得，主要投资于新科技和环保领域）。西班牙的公债，大部分是原本预期的，新增部分靠复苏资金可以得到大大的缓解，如果大部分是长期债务，那么还款压力就更小了。
+（A）推进美国和加拿大在北极地区负责任管理的联合优先事项；以及
 
-这里，引发了另一个问题，欧洲的复苏资金，加上美国已经通过的2万亿美元的刺激计划，给世界带来了什么？这就好像在头顶聚集了无数的水，一旦崩塌，会引发灭顶之灾- 通货膨胀，全球性经济危机。自去年3月至今，全世界印的钱超过人类前5000年发行的货币的总值。这个雷就是7哥所说的，必然会发生的经济大崩溃。
+（B）对抗中共国向北极地区施加政治、经济和军事影响的努力；以及
 
-怎么解决？第一个方法，找替罪羊，世界上有谁有这个体量，可以消化全球的金融危机？只有中共国，更何况，病毒真相一旦真相大白，他就是罪魁祸首，而不是替罪羊。这也让我们理解，全球灭共是必然，没有其他选择的。
+（6）详细说明与加拿大合作的外交努力，以跟踪和反击中共国试图在包括世界卫生组织在内的整个多边体系施加影响的企图。
 
-第二个办法，数字货币，通过购买数字货币，转移资产，开拓新蓝海，当传统货币贬值的时候，还能保住资产。疫情催发金融危机，催发数字货币的诞生。7哥早就设计好了G系列，这也是必然。 那么中共国呢？中共国的债务违约太多了。他主要也是靠印钱来解决问题，而且中共国的汇率是管控的，它可以通过汇率，将它的货币贬值输出到国外，一个简单的例子，比如它购买了价值1亿美金的矿石，花了6.7亿人民币，这个汇率6.7是它定的，而这些人民币的实际购买力远远没有1亿美金强。用它实际已经贬值的钱，来买你值钱的东西，消化它的贬值。如果要最大化这种抢劫方式，一是汇率管控，二是不以美金结算，直接人民币结算。
+（c）形式 — 本节要求的战略报告应以非保密形式提交，可向公众提供，但必要时可包括保密附件。
 
-那么一旦金融脱钩，这个渠道就断了，所有的贬值必须靠内循环来消化，这个不可能完成的任务就会引起国内货币迅速贬值，通货膨胀，经济崩盘。
+（d）咨询 — 国务卿应在本法颁布之日起90天内，且此后每隔180天，就本节所要求的战略的制定和实施与相应的国会委员会进行磋商。
 
-爆料革命揭穿了病毒真相，以毒灭共必然会引起金融脱钩，打破中共数字人民币输出的美梦，这样又实现了以钱灭共，最终中共施放病毒就是搬起石头砸了自己的脚，不，确切的说，是拿起刀，抹了自己的脖子。
+（本节完）
 
-审核：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
+原文链接：
 
-**新闻来源：**[理由报](https://www.larazon.es/economia/20210422/bcn7sarolzdo3hxmtsquxgmwia.html)
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
 
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+文字整理：
+
+SEC. 247. STRATEGY TO ENHANCE COOPERATION WITH CANADA.
+
+(a) IN GENERAL.—Not later than 90 days after the date of the enactment of this Act, the President shall submit a strategy to the Committee on Foreign Relations and the Committee on Armed Services of the Senate and the Committee on Foreign Affairs and the Committee on Armed Services of the House of Representatives that describes how the United States will enhance cooperation with the Government of Canada in managing relations with the Government of China.
+
+(b) ELEMENTS.—The strategy required under subsection (a) shall—
+
+(1) identify key policy points of convergence and divergence between the United States and Canada in managing relations with the People’s Republic of China in the areas of technology, trade, economic practices, cyber security, secure supply chains and critical minerals, and illicit narcotics;
+
+(2) include the development coordination efforts with Canadian counterparts to enhance the cooperation between the United States and Canada with respect to—
+
+(A) managing economic relations with the People’s Republic of China;
+
+(B) democracy and human rights in the People’s Republic of China;
+
+(C) technology issues involving the People’s Republic of China;
+
+(D) defense issues involving the People’s Republic of China; and
+
+(E) international law enforcement and transnational organized crime issues.
+
+(3) detail diplomatic efforts and future plans to work with Canada to counter Chinese projection of
+
+an authoritarian governing model around the world;
+
+(4) detail diplomatic, defense, and intelligence cooperation to date and future plans to support Canadian efforts to identify cost-effective alternatives to Huawei’s 5G technology;
+
+(5) detail diplomatic and defense collaboration—
+
+(A) to advance joint United States-Canadian priorities for responsible stewardship in the Arctic Region; and
+
+(B) to counter Chinese efforts to project political, economic, and military influence into the Arctic Region; and
+
+(6) detail diplomatic efforts to work with Canada to track and counter Chinese attempts to exert influence across the multilateral system, including at the World Health Organization.
+
+(c) FORM.—The strategy required under this section shall be submitted in an unclassified form that can be made available to the public, but may include a classified annex, if necessary.
+
+(d) CONSULTATION.—Not later than 90 days after the date of the enactment of this Act, and not less frequently than every 180 days thereafter, the Secretary of State shall consult with the appropriate congressional committees regarding the development and implementation of the strategy required under this section.
 
 0
