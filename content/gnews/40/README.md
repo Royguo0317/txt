@@ -1,48 +1,133 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共妄图抱团取暖 幻想打破美欧联盟
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1123001/)
+## 美国《2021战略竞争法》第230节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1123905/)
 
-#### 翻译：花岗岩 | 校对：萌萌的朋克
-![]()![](https://gnews.org/wp-content/uploads/2021/04/ok-2.jpg)图片来源：澳洲雅典娜农场
-中共国正在加强与俄罗斯和伊朗等专制伙伴，以及在经济上依赖它的区域内国家的联系，同时，试图利用制裁和威胁来破坏美国正在建立的反共联盟。外交官和分析人士说，令中共感到担忧的是，拜登政府已使其他民主国家在诸如有争议的南中共国海等人权和区域安全问题上，对日益强大、蛮横无理的中共国趋于强硬。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-中共国外交部在给路透社的一份声明中说：“中共国一直坚决反对美方按照意识形态进行集团政治，并结成反华集团……我们希望有关国家清楚地看到自己的利益……而不会沦为美国的反中共工具。”
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/S-24.jpg)dnyuz.com
+“副标题B——国际安全事务”的“第225节. 印度洋-太平洋地区的外国军事资助，东南亚海上安全项目和外交外联活动的拨款授权”、“第226节. 印度洋-太平洋外国军事资助契约试点项目”、”227节. 印度洋-太平洋国际军事教育和训练的额外资金”、“第228节. 优先考虑印度洋-太平洋地区过剩的国防物资转移”、“第229节. 优先考虑印度洋-太平洋地区过剩的海军舰艇转移”略译。
 
-在上个月美国和中共国高级外交官在安克雷奇（Anchorage）进行了激烈的会谈之后，北京作为五个邪恶国家的轴心似乎也更紧急地与俄罗斯，伊朗和朝鲜等国家接触，这些国家也是美国主导制裁的对象。
+本节要点：国会谴责胁迫性和威胁性行动或使用武力，改变现状，或破坏印度洋-太平洋区域的稳定，敦促中共国不要在南中国海设防空识别区，不要在印度洋-太平洋地区其他地方采取类似的挑衅行动，重申中共国对南中国海大部分海域的近海资源主张是非法的，谴责中共国不遵守2016年仲裁庭的裁决，拒绝中共国对其在南沙群岛宣称的12海里衍生领海以外水域的任何主张。
 
-**中共抱团取暖欲苟延残喘**
+欲了解更多的內容，请看本节全文（仅供参考）。
 
-新加坡拉贾拉特南国际问题学院副教授李明江说：“中共国非常担心美国的联盟外交。”他指称中共国试图与其他被西方回避的国家进行所谓的“抱团取暖”。
+第230印度洋-太平洋国际水道和空域，以及南中国海人工特征土地海上作业自由的政策声明
 
-在阿拉斯加会议结束几天后，中共国政府最高外交官国务委员王毅接待了俄罗斯外交大臣拉夫罗夫，他呼吁莫斯科和北京抵制他所说的西方意识形态议程。一周后，中共外长王毅飞往伊朗并签署了一项为期25年的经济协定，中共国人民大学教授史印宏表示，“有效地使参与其中的每家中共国公司都受到美国直接或间接制裁。”
+（a）国会意识——国会 –
 
-与此同时，习近平主席与朝鲜领导人金正恩交换了信息，呼吁与另一个对核武器抱有雄心壮志的独裁国家建立更深的伙伴关系。
+（1）谴责胁迫性和威胁性行动或使用武力，以军事或民用飞机阻碍国际空域的行动自由，改变现状，或破坏印度洋-太平洋区域的稳定；
 
-中共还在诱惑在经济上依赖它的邻国。最近几周，王毅在中共国东南部的福建省接待了印尼，马来西亚，菲律宾，新加坡和韩国的外交部长。李说，北京将给予承诺，帮助这些国家在COVID-19大流行之后恢复其经济，使他们再次考虑是否与美国站在一起。在菲律宾外交官和将军指责中共国将民兵船只送入其水域后，总统罗德里戈·杜特尔特（Rodrigo Duterte）表示，他不会让南中共国海的领土争端成为与中共国在疫苗和经济复苏方面进行合作的障碍。
+（2）敦促中共国政府不要在南中国海设已宣布的东海防空识别区（ADIZ），或违反国际领空飞越自由的防空识别区，不要在印度洋-太平洋地区其他地方采取类似的挑衅行动；
 
-**美国建立联盟将痛打落水狗**
+（3）重申2016年仲裁庭的裁决是终局的，对双方都具有法律约束力，中共国对南中国海大部分海域的近海资源主张是非法的；以及
 
-拜登继续在特朗普政府所做的许多相同问题上向北京施加压力，但采取了更加注重联盟的战略。
+（4）谴责中共国不顾中共国作为《联合国海洋法公约》（the United Nations Convention on the Law of the Sea）缔约国的义务，不遵守2016年仲裁庭的裁决。
 
-在拜登与日本首相菅义伟在周五举行的会议上，两国就反对中共国的主张提出了统一战线，涉及从争议中的东中共国海岛礁，即日本的尖阁诸岛和中共国的钓鱼岛，到中共国的香港和新疆地区的人权问题。上个月，美国，欧盟，英国和加拿大根据中共国西部新疆地区的使用强迫劳动力的报告对其实施了协调制裁。十几个国家联合指责中共国隐瞒调查COVID-19大流行病的来源的信息。德国、英国、荷兰、加拿大和法国最近都加入了美国，派遣军舰通过有争议的南海，或宣布了这样做的计划。
+（b）政策声明——美国的政策是 –
 
-华盛顿还表示，由于担心侵犯人权，特别是关于新疆维吾尔族和其他穆斯林少数民族在新疆的非人待遇，华盛顿希望与盟国就是否参加2022年北京冬季奥运会采取“协调一致的态度” 。
+（1）重申对印太地区盟国和伙伴的承诺和支持，包括美国对《美菲共同防御条约》（the United States-Philippines Mutual Defense Treaty）第五条的长期政策，重申《美日共同防御条约》（the United States-Japan Mutual Defense Treaty）第五条适用于日本管理的尖阁诸岛的立场；
 
-**中共国妄图打破美结盟**
+（2）反对侵犯各国对海洋及其上空的权利、自由和合法使用的主张，反对将南海新的、填海特征的土地军事化；
 
-中共国对华盛顿盟友的团结表示愤怒，其外交官称日本为美国的“附庸”，称加拿大总理贾斯汀·特鲁多为美国的“走狗”。中共国削弱美国同盟国的团结的战略，主要是围绕鼓励美国同盟独立与北京交往，并将经济利益放在首。如果它们参与反对中共的联合行动则要受到惩罚。
+（3）继续执行对中共国在南中国海声明的有关政策，即-
+（A）中共国在南中国海（包括对南中国海大部分海域的近海资源）的主权主张是非法的；
+（B）中共国不能在仲裁庭认定位于菲律宾专属经济区或其大陆架的地区，对菲律宾依法提出海事的请求；
+（C）拒绝中共国对其在南沙群岛宣称的12海里衍生领海以外水域的任何主张；以及
+（D）中共国对詹姆斯浅滩（James Shoal）没有合法的领土或海洋要求权；
 
-分析师表示，北京对欧盟对新疆中共官员制裁采取了不相称的严厉反制裁措施，潜在的破坏了期待已久的投资协议。欧洲外交关系委员会亚洲计划主任扬卡·厄特尔（Janka Oertel）认为，如果美国和欧盟同盟威胁到中共的核心利益，北京准备牺牲经济利益。
+（4）敦促所有各方不要从事破坏稳定的活动，包括非法占领或对有争议的领土进行非法管理的努力；
 
-习近平在最近与德国总理安吉拉·默克尔（Angela Merkel）的电话中将这一消息告诉她，他希望“欧盟能够独立的做出正确的判断”。但是，在中共国的欧洲商会会长乔尔格•伍克（Joerg Wuttke）表示，中共国仍然需要欧洲的技术和投资。“尽管受到制裁，他们仍在与我们交谈，生意仍在继续，这令人十分安慰。”
+（5）确保在没有恐吓、胁迫或武力的情况下处理争端；
 
-北京并没有放弃说服华盛顿说合作要比竞争好，正如上周向美国气候特使约翰·克里保证支持拜登这周将要举行的网络气候峰会那样。中共国人民大学重阳学院教授王文说：“中共国希望华盛顿能够意识到，把中共国作为朋友而不是敌人，符合美国的利益。”
+（6）呼吁所有当事国根据国际法净化或调整索取；
 
-**评：**
-美国特使克里去上海，名义上是谈气候，实际上是传达美国的《赫尔备忘录》。中共拒绝了美国的所有要求，包括联合美国对抗俄罗斯。美国只好重立在亚洲的代言人，答应日本的三大诉求——入常、拥核和军队正常化，并在日本部署中长程导弹，全面覆盖中共国和俄罗斯境内，使其处于无反应的导弹袭击范围内。邪恶中共放出超限生物武器冠状病毒已经向全世界发动了生物战争。 美国已经基本调查清楚，现在正在为病毒追责做全面准备！《美国关于冠状病毒的白皮书》一旦出炉，就是灭共开始之日。到那时没有国家在愿意与中共抱团取暖，因为谁与邪恶站在一起，必然一起被消灭！
+（7）坚持领土和海洋要求，包括领水或领海，必须根据陆地特征提出，否则必须符合国际法的原则；
 
-原文链接：[Analysis: Beijing huddles with friends, seeks to fracture U.S.-led ‘clique’](Beijing%20huddles%20with%20friends,%20seeks%20to%20fracture%20U.S.-led%20‘clique’)
+（8）反对在南中国海有争议地区实施新的捕鱼规定，这些规定加剧了该地区的紧张局势；
 
-0
+（9）支持有效的行为守则，前提是该行为守则反映了东南亚当事国的利益，并且不是中共国提出非法海事索取的工具；
+
+（10）重申现有的一整套国际规则和准则，包括1972年10月12日在伦敦制定的《国际海上避碰条例》（the International Regulations for Preventing Collisions at Sea,），足以确保美国武装部队与包括中共国在内的其他国家部队之间的航行安全；
+
+（11）支持区域机构和机构的发展，包括东盟区域论坛、东盟国防部长会议附加会议、东亚首脑会议和扩大的东盟海事论坛，以在该地区建立务实合作，加强国际法的作用；
+
+（12）鼓励深化与本区域其他国家在海洋领域认识和能力建设方面的伙伴关系，以及美国政府努力探索建立适当的多边机制，以便东南亚国家在南中国海形成“共同行动图景”，帮助各国避免破坏稳定的行为，阻止危险活动；
+
+（13）反对任何国家采取行动，阻止任何其他国家行使对专属经济区和大陆架资源的主权权利，对南海没有国际法支持的地区提出主权要求；以及
+
+（14）确保美国在印太地区行动的连续性，包括酌情与伙伴和盟国合作，根据国际法的既定原则和惯例，重申在国际水域和领空行动自由的原则。
+
+（本节完）
+
+原文链接：
+
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+
+文字整理：
+
+SEC. 230. STATEMENT OF POLICY ON MARITIME FREEDOM OF OPERATIONS IN INTERNATIONAL WATERWAYS AND AIRSPACE OF THE INDO-PACIFIC AND ON ARTIFICIAL LAND FEATURES IN THE SOUTH CHINA SEA.
+
+(a) SENSE OF CONGRESS.—Congress—
+
+(1) condemns coercive and threatening actions or the use of force to impede freedom of operations
+
+in international airspace by military or civilian aircraft, to alter the status quo, or to destabilize the
+
+Indo-Pacific region;
+
+(2) urges the Government of China to refrain from implementing the declared East China Sea Air Defense Identification Zone (ADIZ), or an ADIZ in the South China Sea, which is contrary to freedom
+
+of overflight in international airspace, and to refrain from taking similar provocative actions elsewhere in the Indo-Pacific region;
+
+(3) reaffirms that the 2016 Arbitral Tribunal’s decision is final and legally binding on both parties
+
+and that the People’s Republic of China’s claims to offshore resources across most of the South China Sea are unlawful; and
+
+(4) condemns the People’s Republic of China for failing to abide by the 2016 Arbitral Tribunal’s ruling, despite Chinese obligations as a state party to the United Nations Convention on the Law of the Sea.
+
+(b) STATEMENT OF POLICY.—It shall be the policy of the United States to—
+
+(1) reaffirm its commitment and support for allies and partners in the Indo-Pacific region, including longstanding United States policy regarding Article V of the United States-Philippines Mutual Defense Treaty and reaffirm its position that Article V of the United States-Japan Mutual Defense Treaty applies to the Japanese-administered Senkaku Islands;
+
+(2) oppose claims that impinge on the rights, freedoms, and lawful use of the sea, or the airspace
+
+above it, that belong to all nations, and oppose the militarization of new and reclaimed land features in the South China Sea;
+
+(3) continue certain policies with respect to the PRC claims in the South China Sea, namely—
+
+(A) that PRC claims in the South China Sea, including to offshore resources across most of the South China Sea, are unlawful;
+
+(B) that the PRC cannot lawfully assert a maritime claim vis-`a-vis the Philippines in areas that the Tribunal found to be in the Philippines’ Exclusive Economic Zone (EEZ) or on its continental shelf;
+
+(C) to reject any PRC claim to waters beyond a 12 nautical mile territorial sea derived from islands its claims in the Spratly Islands; and
+
+(D) that the PRC has no lawful territorial or maritime claim to James Shoal;
+
+(4) urge all parties to refrain from engaging in destabilizing activities, including illegal occupation or efforts to unlawfully assert administration over disputed claims;
+
+(5) ensure that disputes are managed without intimidation, coercion, or force;
+
+(6) call on all claimants to clarify or adjust claims in accordance with international law;
+
+(7) uphold the principle that territorial and maritime claims, including territorial waters or territorial seas, must be derived from land features and otherwise comport with international law;
+
+(8) oppose the imposition of new fishing regulations covering disputed areas in the South China Sea, regulations which have raised tensions in the region;
+
+(9) support an effective Code of Conduct, if that Code of Conduct reflects the interests of South east Asian claimant states and does not serve as a vehicle for the People’s Republic of China to advance its unlawful maritime claims;
+
+(10) reaffirm that an existing body of international rules and guidelines, including the International Regulations for Preventing Collisions at Sea, done at London October 12, 1972 (COLREGs), is sufficient to ensure the safety of navigation between the United States Armed Forces and the forces of other countries, including the People’s Republic of China;
+
+(11) support the development of regional institutions and bodies, including the ASEAN Regional Forum, the ASEAN Defense Minister’s Meeting Plus, the East Asia Summit, and the expanded ASEAN Maritime Forum, to build practical cooperation in the region and reinforce the role of international law;
+
+(12) encourage the deepening of partnerships with other countries in the region for maritime domain awareness and capacity building, as well as efforts by the United States Government to explore the development of appropriate multilateral mechanisms for a ‘‘common operating picture’’ in the South China Sea among Southeast Asian countries that would serve to help countries avoid destabilizing
+
+behavior and deter risky and dangerous activities;
+
+(13) oppose actions by any country to prevent any other country from exercising its sovereign rights to the resources of the exclusive economic zone (EEZ) and continental shelf by making claims to those areas in the South China Sea that have no support in international law; and
+
+(14) assure the continuity of operations by the United States in the Indo-Pacific region, including, when appropriate, in cooperation with partners and allies, to reaffirm the principle of freedom of operations in international waters and airspace in accordance with established principles and practices of international law.
+
++1

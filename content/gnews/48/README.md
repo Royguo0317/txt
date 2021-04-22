@@ -1,22 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 乍得总统去世 军方关闭边境
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1122837/)
+## 世卫正式建议各国政府避免强制使用疫苗护照
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1123751/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+俄罗斯莫斯科喀秋莎农场   银河
 
-编辑上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Snipaste_2021-04-21_18-28-32.jpg)[citizentv.co.ke](https://citizentv.co.ke/news/chad-president-idriss-deby-killed-on-frontline-son-to-take-over-10317036/)
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/W-3.jpg)gulfnews.com
+《零对冲》报道，世界卫生组织国际卫生标准紧急委员会在周一发布的一份声明中正式建议各国政府避免强制使用疫苗护照。
 
-04月20日，据《法兰西24》频道报道，中非乍得共和国在总统去世后，上台的军方已经关闭了该国边境。军队还宣布实行宵禁。
+声明称，委员会建议各国政府”鉴于疫苗在减少传播方面的表现有限，以及全球疫苗分配方面的持续不平等，不要求将接种疫苗证明作为进入的条件。鼓励缔约国承认对疫苗接种证明的要求可能会加深不平等和促进差别行动自由。”
 
-早些时候有报道称，乍得总统伊德里斯·代比因在与叛军的战斗中受伤而亡。他自1990年以来一直负责国家事务，在他去世之前，他已当选为第六届总统任期。代比先生去世后，政府和乍得议会被解散。在未来18个月内，该国将由一个军事委员会管理。
+为了证明这一立场，世卫组织引用了两方面的数据，一是关于疫苗在减少传播方面的效力有限，二是世卫组织长期以来一直面对的疫苗可得性方面的严重不平等。就疫苗分发的问题上，贫穷国家可能要等待数年才能获得充足的疫苗供应。
 
-《法兰西24》报道，军事委员会将由已故总统的儿子之一，37岁的总统卫队司令马哈马特·伊德里斯·代比·伊特诺将军领导。
+世界卫生组织告诉各国政府要努力将对旅行者的隔离限制保持在常识范围内，并补充说，各国政府在实施隔离措施时，也应该尽可能“减轻国际旅行者的经济负担”。
+
+此前，英国1200多名基督教领袖呼吁首相鲍里斯·约翰逊(Boris Johnson)放弃推出疫苗护照的任何想法，他们认为这是对自由民主最危险的威胁。
+
+教会领袖说，疫苗护照“创造一个两级社会的风险，在医疗上实行种族隔离，拒绝接种疫苗的底层人群被排除在公共生活的重要领域之外。” “我们呼吁政府坚决而明确地声明，它不会考虑这个狭隘而危险的计划，现在不会，将来也不会。”
 
 参考链接：
 
-[https://www.rbc.ru/rbcfreenews/607ec6fb9a79473130a914e6](https://www.rbc.ru/rbcfreenews/607ec6fb9a79473130a914e6)
+[https://www.zerohedge.com/covid-19/who-urges-members-not-require-proof-vaccination-entry](https://www.zerohedge.com/covid-19/who-urges-members-not-require-proof-vaccination-entry)
 
-0
++2

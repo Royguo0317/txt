@@ -1,69 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生419XXI G-TV、G-News和盖特将成为信息、情报交易市场
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1123497/)
+## 【热点播报】中共一带一路计划澳洲首遇滑铁卢
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1122655/)
 
-编辑整理：
+纽约香草山健身部 Ivy001
 
-旧金山金喜准农场：黑郁金香（文郁）；日本东京方舟农场：山川异域
-![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-99.jpg)
-郭文贵先生在2021年4月19日的直播中非常震撼地给我们解释了［媒体就是权力，根本不是什么第三、第四权力，媒体就是定价、定义正义和财富的核武器！］，本系列将根据郭先生在直播中提到的不同侧重点逐一上传，以下为本系列第二十一部分——G-TV、G-News和盖特将成为信息、情报交易市场
+澳洲外交部宣布维州与中共国的一带一路协议作废。世界各国对中共国一带一路的阻击，由澳洲打响第一枪。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screen-Shot-2021-04-21-at-10.48.46-AM.png)图片来源：Sky News Australia
+大多数欧美国家，均是以案例法为基础的法律体系，澳洲对中共国一带一 路协议作废的意义，具有指向性的标杆作用，由此引发的后续行动，必将会对中共国一带一路计划带来毁灭性打击。所有深受中共国一带一路危害的国家，必将以此为蓝本，争取夺回自己国家的主权和利益。
 
-据[419 断播门四周年文贵直播：美国媒体从自由灯塔，堕落到今天的黑暗灯塔，由五大家族控制；媒体的力量，拥有定义权，定价权；社交媒体是第一武器；中共用武器新闻企图控制世界；GTV的价值在稀缺性，是情报交易平台](https://gtv.org/video/id=607d815f7e083973a72b95be)时间点2：08：36——
+中共国明面是和世界各国一带一路经济合作，实际是籍此对世界各国实行土地、港口和资源的掠夺。中共国的狼子野心被文贵先生和爆料革命的广泛宣传，已经无所遁形。中共国的一带一路计划，必将把中共国带进坟墓，越来越多的国家必将加入到灭共的行列中。灭共，已经成为世界的需要！
 
-行，我简单先说一下，当我们的G-TV、G-News打赏功能上线、抽奖功能上线，G-Coin、G-Dollar虚拟货币在G-TV、G-News 和盖特上可以流通使用的时候，可以连接我们的G-Fashion 、G-Club 、未来G-Mall的时候我告诉你，人间到目前为止只有一个媒体平台把媒体和金融不是用广告新闻、政治新闻、性交新闻来发展的一个媒体只有就是我们G-TV、G-News和盖特，大家懂得，**让所有的世界上有一个新的叫做“信息、情报交易市场”就是我们的未来，不佛了不佛了啊。**
+[消息来源](https://www.skynews.com.au/details/_6249635148001)
 
-今天我就说到这，大家一定要学会辨别是非、辨别真假、辨别善恶！而且充分的意识到媒体是世间最大的武器，同时是每个人保护自己的安全、利益和财富的最有用的武器！不懂这个你就傻了！
+审核/发稿：正义的小新
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpeg)
+**更多资讯，更多关注**
 
-现在一起为75亿人民、14亿新中国联邦同胞、台湾同胞、西藏同胞、香港同胞和我们爆料革命的所有的战友和家人们祈福。
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-阿弥陀佛！
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-啪啪啪（击掌三声）！
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-接上文——
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[郭文贵先生419四周年直播前关于419四周年的回顾视频文字汇总](https://gnews.org/zh-hans/1118791/)
-
-[郭先生419I垃圾龚能控制对共电视台中文部是美国的悲哀](https://gnews.org/zh-hans/1122052/)
-
-[郭先生419II回国领任务的周周侃一如既往演出被消失骗局](https://gnews.org/zh-hans/1122074/)
-
-[郭先生419III川普都无法发声时只有爆料革命有发声平台](https://gnews.org/zh-hans/1122099/)
-
-[郭先生419IV战友们因419跟随爆料革命不离不弃到现在](https://gnews.org/zh-hans/1122158/)
-
-[郭先生419V爆料革命开创的事业和对邪恶的打击前所未有](https://gnews.org/zh-hans/1122587/)
-
-[郭先生419VI美国限制媒体交叉持股和控制的法律完全失控](https://gnews.org/zh-hans/1122621/)
-
-[郭先生419VII美国从自由的灯塔经济的灯塔沦为黑暗的灯塔](https://gnews.org/zh-hans/1122659/)
-
-[郭先生419VIII七哥的生死被美国的媒体和社交媒体牢牢抓住](https://gnews.org/zh-hans/1122697/)
-
-[郭先生419IX共产党利用媒体把你犯罪化从而置你于死地](https://gnews.org/zh-hans/1122737/)
-
-[郭先生419X共产党已深陷塔西坨陷阱，没人再信它的话](https://gnews.org/zh-hans/1122784/)
-
-[郭先生419XI G-TV、G-News、盖特是决定我们正义、安全和利益的唯一保障平台](https://gnews.org/zh-hans/1122821/)
-
-[郭先生419XII媒体是操控正义的最重要工具是社会的核武器](https://gnews.org/zh-hans/1122949/)
-
-[郭先生419XIII江时代后期已视社交媒体为重于核武器的武器](https://gnews.org/zh-hans/1122999/)
-
-[郭先生419XIV中共在利用媒体犯罪，美国已不是一家说了算](https://gnews.org/zh-hans/1123052/)
-
-[郭先生419XV世界不存在中立媒体而我们是世界正义的媒体](https://gnews.org/zh-hans/1123134/)
-
-[郭先生419XVI G-TV、G-News要生存下去必须做坚持正义媒体](https://gnews.org/zh-hans/1123154/)
-
-[郭先生419XVII媒体是你必须面对的了解生活安全最重要平台](https://www.gnews.org/zh-hans/1123240/)
-
-[郭先生419XVIII中东某国正为G-TV秘密研发新时代通信科技武器](https://www.gnews.org/zh-hans/1123296/)
-
-[郭先生419XIX盖特将成为继推特脸书之后最成功的社交媒体](https://www.gnews.org/zh-hans/1123351/)
-
-[郭先生419XX最早投资者受伤害时G-TV将不惜一切代价保护你](https://www.gnews.org/zh-hans/1123424/)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -1,111 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭文贵先生第二次提到中共有病毒的解药【4/20收集新闻篇】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1123082/)
+## 中共驻美新大使秦刚会继续做“战狼”吗?
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1123991/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
+#### 译评：人参娃娃小哥| 责编：人间四月
+![]()![](https://gnews.org/wp-content/uploads/2021/04/qingang.jpg)图片来源： 中共外交部网站
+据《华尔街日报》报道，中共计划任命外交部副部长秦刚作为新的中共国驻美大使，预计华盛顿将任命资深外交官尼古拉斯·伯恩斯为新任驻中共国大使。
 
-【以毒灭共】中共有解药加病毒推文内容，如下
+中美两国的冲突显而易见，而且有突破红线的危机，在此紧要关头，两国都将任命了新的大使。据知情人士透露，秦刚曾任中共国外交部礼宾司司长，曾经是习近平的首席礼宾官，现任外交部副部长。
 
-郭文贵先生4月21日盖特重磅内容：
-**第二次提到中共有病毒的解药**
-*中共病毒是生物武器，永远不可能有疫苗，但中国共产党有病毒的解药。今天第二次百分比强调信息的准确性。中国共产党掌握人类的未来，要去找共产党要解药。只要不戴口罩的中共领导一定吃了解药，戴口罩的就是不给你解药。
-[https://gtv.org/getter/60803b0e8616c84f0ff20cf7](https://gtv.org/getter/60803b0e8616c84f0ff20cf7) （6:20-8:20）*
+其实消息早在川普政府期间就传出了，而现任总统拜登一直在做与中共国对抗的准备，联合欧盟、日本等国家，以遏制一个攻击性越来越强的中共国；而中共希望新的驻美大使能帮助将中美关系重塑为两个和平且平等竞争国之间的关系。
 
+在本周二的博鳌亚洲论坛的讲话中，习近平说：“我们绝不能让一个或几个国家制定的规则强加于其他国家，或者让某些国家奉行的单边主义为整个世界制定规则。”习近平并没有直接提及美国的名字，但是大家都清楚他指的某些国家是指美国。
 
+中共希望秦刚能帮助恢复中美双方之间定期举行的高级别战略对话。所谓的战略对话最早是在乔治布什政府期间约定下来与中共进行沟通的高级别管道，但被在川普政府期间被废除了，川普政府当时认为这种高级别战略对话劳民伤财。但是随着中美关系非正常化趋势越来越明显， 中共希望恢复这个对话机制来帮助中美关系不再继续恶化下去。 到目前为止，拜登团队对恢复对话似乎毫无兴趣。
 
-> ”In People’s Republic of China, no difference between military-civilian research centers.
-> Chapter 78 of CCP’s 35-Year Plan (2016-2020) describes fusion of military-civilian research including area of “synthetic biology”…(which)include biological warfare”[https://t.co/VG8Rtza9QS](https://t.co/VG8Rtza9QS)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 20, 2021](https://twitter.com/DrLiMengYAN1/status/1384522648240144386?ref_src=twsrc%5Etfw)
+55岁的秦刚被视为一位有才华的职业外交官，他似乎代表中共国外交在国际上的新形象，和那些外交部战狼并不一样。
 
+秦刚自1988年加入外交部以来，已升任至外交部副部长，他主要负责欧洲事务和新闻以及为习近平策划外交活动。 近年来，他深得习近平的信任，曾多次陪同习近平出访。2016年，在杭州举行的G20峰会中，习近平曾经半开玩笑的向秦刚请示，他是否能够在G20峰会中抽时间休息一下。参加峰会的人都认为这是让人会心一笑的小插曲。
 
-1. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1384522648240144386)**：
-*“在中华人民共和国，军民融合研究中心没有区别。第78章中国共产党的35年计划（2016-2020）中，描述了军民研究的融合，包括“合成生物学”领域……其中就说明了生物战*
-*附**[《门扉网》新闻链接](https://www.thegatewaypundit.com/2021/04/chinese-communist-party-extensive-research-network-supporting-biowarfare/)***
-
-
-> “2019.12.10 Obtained COVID19 Virus Sequence”- Ningyi Jin, 28 Nov, 2020.
-> Ningyi Jin: Director of the Lab of Molecular Virology & Immunology of Military Veterinary Research Institute of Academy of Military Medical Sciences, director of Military Genetic Engineering Key Lab in China [https://t.co/4AdRc1AotT](https://t.co/4AdRc1AotT)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 20, 2021](https://twitter.com/DrLiMengYAN1/status/1384606756060340231?ref_src=twsrc%5Etfw)
+秦刚面临的最大挑战是既要代表中共的立场，还需要重建与华盛顿的沟通管道，但是目前美国的两大政党在对中共的强硬立场上都表现出罕见的团结。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/capture-17-7.jpg)图片来自于俄罗斯卫星通讯社
 
 
-2. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1384606756060340231?s=20)**：
-***（德意志之鹰）**这张幻灯片讲座（金宁一）很重要：*
-*2019.12.1-10 阳性病例*
-*2019.12.10 病毒序列*
-*2020.01.27 基因合成和疫苗筛查*
-*中共军队早知道这些细节，但紧急警报几个月后才发出！
-[https://www.koushare.com/video/videodetail/9430](https://www.koushare.com/video/videodetail/9430) （24:26）*
-***（闫）**“2019.12.10获得新冠病毒病毒序列”-金宁一，2020年11月28日
-金宁一：军事医学科学院军事兽医研究所分子病毒学与免疫学实验室主任，中国军事遗传工程重点实验室主任*
+现年65岁的伯恩斯先生曾在克林顿政府任国务院发言人兼希腊大使。 在乔治布什政府任职期间，他曾是美国驻北约联络人，并在美国911后，在北约内斡旋，从而北约积极对恐怖主义做出回应。在此之后，他在美国国务院担任要职多年。
 
+前奥巴马政府财政部驻北京特使戴维多尔德表示，伯恩斯的到来很可能是拜登政府向中共国发出的积极信号，表明华盛顿希望与北京有更多互动。 “伯恩斯不仅是一个政治人物，他是个有制定政策经验的人。”
 
-> [粤语配音]若有了可降低76%死亡率的硫酸羟氯喹这样的有效药，则无需疫苗。羟氯喹60美分一粒，需11粒；疫苗开发成本超10亿美元（1/2）
-> 
-> 完整视频请访问秘翻组盖特：[https://t.co/K2AuTqEAyA](https://t.co/K2AuTqEAyA) [pic.twitter.com/Ho04W1G90e](https://t.co/Ho04W1G90e)
-> — 秘密翻译组 (@G\_Translators6) [April 20, 2021](https://twitter.com/G_Translators6/status/1384470415561666561?ref_src=twsrc%5Etfw)
+美国驻中共国前大使温斯顿·洛德说，随着中美关系恶化，大使的工作变得空间越来越小。 他认为中共高压政策使中共国老百姓越来越不能发声，对百姓的出行也越来越管控。洛德补充说，大使在制定美国政策中的作用可能很有限，由于中美关系涉及到美国的众多重大利益，华盛顿才是[中国]政策的主导，而不是单单一个白宫。”
 
+迄今为止，在拜登政府中，国务院和国家安全委员会在制定对华政策方面发挥了最大作用。 在美国财政部和商务部以及美国贸易代表在内的经济机构的一些重要职位尚未任命，也未获得参议院的确认。
 
-3. **[秘密翻译组推特](https://twitter.com/G_Translators6/status/1384470415561666561?s=20)**：
-*[粤语配音]若有了可降低76%死亡率的硫酸羟氯喹这样的有效药，则无需疫苗。羟氯喹60美分一粒，需11粒；疫苗开发成本超10亿美元——Dr. Steven Hatfill
-视频：[https://gtv.org/getter/607ebc048616c84f0ff1a13b](https://gtv.org/getter/607ebc048616c84f0ff1a13b)*
+* * *
 
+评: 这篇文章出自《华尔街日报》，真是一个表面上傻白甜的左派媒体，中共国驻美大使是谁其实根本不重要，外交部只是独裁的工具而已，岁月静好时，作为天朝上国接受朝拜的工具，峥嵘岁月间，它就是战狼外交的狼窝。秦刚，他作为未来新的驻美大使，也必须遵从习近平主导的外交政策，做一只合格的战狼，该咬的时候一定要咬出去。中美关系再也回不到过去了，让我们拭目以待。
 
-> What is not said in this documentary:
-> Ian Lipkin
-> Peter Daszak
-> Edward Holmes
-> Yongzhen Zhang
-> …
-> 
-> These guys were all playing the innocent game, pretending that they unveiled the truth, to confront Chinese Communist Party. But to the contrary, they were highly praised by CCP. [pic.twitter.com/XDvjJJHqDT](https://t.co/XDvjJJHqDT)
-> — 德意志之鹰 (@dezying) [April 20, 2021](https://twitter.com/dezying/status/1384338898604724224?ref_src=twsrc%5Etfw)
+&gt;&gt;原文链接&gt;&gt; [China, U.S. Close to Naming New Ambassadors as Rivalry Grows](https://www.wsj.com/articles/china-u-s-close-to-naming-new-ambassadors-as-rivalry-grows-11618938671)
 
-
-4. **[德意志之鹰推特](https://twitter.com/dezying/status/1384338898604724224?s=20)**：
-*这部纪录片中没有说的东西。
-伊恩-利普金
-Peter Daszak
-爱德华-霍姆斯
-张永振…
-这些人都在玩无辜的游戏，假装他们揭开了病毒真相，与中共对抗。但恰恰相反，他们受到了中共的高度赞扬*
-
-
-> The Chinese Communist Party Has an Extensive Research Network Supporting Biowarfare
-> 中国共产党拥有广泛的支持生物战的研究网络[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/4AVWJb8tV6](https://t.co/4AVWJb8tV6)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 20, 2021](https://twitter.com/LawrenceSellin/status/1384496759959965696?ref_src=twsrc%5Etfw)
-
-
-5. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1384496759959965696?s=20)**：
-*[中国共产党拥有广泛的支持生物战的研究网络](https://www.thegatewaypundit.com/2021/04/chinese-communist-party-extensive-research-network-supporting-biowarfare/)
-（#中共病毒 #超限生物战 #超限生物武器 #病毒起源）*
-
-
-> FOX重磅採訪：2014年福奇的研究所委託由彼得．達札克負責的「生態健康聯盟」組織，把病毒功能性增強實驗研究分包給了武毒所。科學家不敢說出真相，因為他們是由國立衛生研究院和國家過敏與傳染研究院資助的，科學家怕研究經費被刪減。但現在死了這麼多人我們可望瞭解這場大瘟疫的根源。
-> 調查福奇老兒 [pic.twitter.com/QLXQNhAE8e](https://t.co/QLXQNhAE8e)
-> — 全民挺郭联盟✊️ ✊️ ✊️ (@redwallpusher) [April 21, 2021](https://twitter.com/redwallpusher/status/1384688816007512064?ref_src=twsrc%5Etfw)
-
-
-6. **[全民挺郭联盟推特](https://twitter.com/redwallpusher/status/1384688816007512064?s=20)**：
-*FOX重磅採访：2014年福奇的研究所委托由彼得．达札克负责的「生态健康联盟」组织，把病毒功能性增强实验研究分包给了“武毒所”。科学家不敢说出真相，因为他们是由国立卫生研究院和国家过敏与传染研究院资助的，科学家怕研究经费被删减。但现在死了这么多人我们可望了解这场大瘟疫的根源。调查福奇老儿*
-
-
-> 《新编人兽共患病学》序言节选：
-> "许多人兽共患病病原体及其致病因子可以通过现代生物技术对其进行基因重组，极大地提高其杀伤力、攻击力和毒性作用，可能给恐怖组织造成可乘之机，以其制造生物战剂进行威胁和恐怖活动，危害人类的安全…研究和防治对国防建设都具有重要的现实意义。” [https://t.co/lyNXlySK8t](https://t.co/lyNXlySK8t) [pic.twitter.com/XfF4XhvhUF](https://t.co/XfF4XhvhUF)
-> — 德意志之鹰 (@dezying) [April 20, 2021](https://twitter.com/dezying/status/1384499427948253185?ref_src=twsrc%5Etfw)
-
-
-7. **[德意志之鹰推特](https://twitter.com/dezying/status/1384499427948253185?s=20)**：
-*《新编人兽共患病学》序言节选： “许多人兽共患病病原体及其致病因子可以通过现代生物技术对其进行基因重组，极大地提高其杀伤力、攻击力和毒性作用，可能给恐怖组织造成可乘之机，以其制造生物战剂进行威胁和恐怖活动，危害人类的安全…研究和防治对国防建设都具有重要的现实意义。”*
-
-
-> 愈發…… [pic.twitter.com/C7j2W4WVF5](https://t.co/C7j2W4WVF5)
-> — 安红橘绛轩 (@maryann\_3040) [April 20, 2021](https://twitter.com/maryann_3040/status/1384557785933750272?ref_src=twsrc%5Etfw)
-
-
-8. **[安红推特](https://twitter.com/maryann_3040/status/1384557785933750272?s=20)**：
-*(中共病毒）愈发…*
-
-
-+1
+0

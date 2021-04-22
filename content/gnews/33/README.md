@@ -1,53 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生419XIV中共在利用媒体犯罪，美国已不是一家说了算
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1123052/)
+## 2021年4月21日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1124016/)
 
-编辑整理：
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-纽约香草山农场：文官；康州盘古农场：Ara；日本东京方舟农场：山川异域
-![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-94.jpg)
-郭文贵先生在2021年4月19日的直播中非常震撼地给我们解释了［媒体就是权力，根本不是什么第三、第四权力，媒体就是定价、定义正义和财富的核武器！］，本系列将根据郭先生在直播中提到的不同侧重点逐一上传，以下为本系列第十四部分——中共在利用媒体犯罪，美国已不是一家说了算
+4/21/2021郭先生盖特爆大料：没有疫苗、有解药！中共制造病毒生物武器时一并制造了解药，这意味着中共掌握着全人类的命运 – 要想活命，去找中共要解药！习近平戴口罩是演戏，中南坑还戴口罩的人不被信任 4/21/2021 Bombshell Info on Miles Guo’s Getter: Antidotes are possessed and controlled by the CCP, but there is no vaccine! The CCP has made antidotes while it created the virus – bioweapon, which means the CCP has all human’s fate in its control – if you want to survive, go to the CCP for antidotes! By wearing face mask, Xi Jinping is just acting a drama, and for those in Zhongnanhai Pit who are still wearing the face masks are not trusted by the CCP
 
-据[419 断播门四周年文贵直播：美国媒体从自由灯塔，堕落到今天的黑暗灯塔，由五大家族控制；媒体的力量，拥有定义权，定价权；社交媒体是第一武器；中共用武器新闻企图控制世界；GTV的价值在稀缺性，是情报交易平台](https://gtv.org/video/id=607d815f7e083973a72b95be)时间点1：46：14——
+[【2021年4月21日】文贵先生盖特原文](https://gtv.org/getter/60806fbc8616c84f0ff22004)
 
-我们强大了，我们有了今天的G-TV、G-News，我们有了今天的G-Fashion、G-Club、G-Coin、G-Dollar，我们有了今天的班农战斗室War Room，我们有今天的路德访谈，路德访谈太脆弱了，分分钟就可以把你关、YouTube把你关掉你就完了，非常非常脆弱。班农战斗室已经被打了个半死的了，只有G-TV、G-News。你要看到共产党在这四年里边儿的成长，远远超过我们百倍万倍。但是它伟大的事情就是世界上黑暗中有一盏灯是亮着的，就是我们G-TV、G-News、爆料革命！
+**喜联盟Gnews编辑部**
 
-从17号到4月19号，共产党和伊朗搞的军演，你见媒体几个报道的？没有报道的，谁说了？只有我说了，没人说。你记住我今天说的话，接下来美中之间、美中日之间是世界的焦点，然后是美中日所面对的最大挑战是在中东！中东会闹大事儿的，共产党正在中东安排大事儿。俄罗斯一定是从旁边儿旁观的，永远是投机主义的，这是不容置疑的。土耳其、伊朗、巴基斯坦、阿联酋、沙特一定在中东出事儿的，当然以色列这不容置疑的。这些所有的动作的背后都和媒体有关系。
-
-**下一步争夺媒体战，**大家要想一想当年美国伊拉克战争、利比亚战争、南斯拉夫战争，几乎六十到八十的媒体、美国的媒体和世界所谓的西方的严肃的媒体，完全的百分之百八九十是跟着政府走的，所有被采访的人和发出去的信息全是美国退役的将军和军人和现场的军人，这是什么意思？在关键的时刻， 西方也没有媒体自由。
-
-今天可怕的事情，** 这些媒体的力量已经不是美国一家说了算，共产党在利用这些媒体，正在干着新疆大屠杀、西藏大陷害、香港大屠杀、台湾大恐惧，都在被媒体有选择地屏蔽掉，这才是可怕的。**
-
-接上文——
-
-[郭文贵先生419四周年直播前关于419四周年的回顾视频文字汇总](https://gnews.org/zh-hans/1118791/)
-
-[郭先生419I垃圾龚能控制对共电视台中文部是美国的悲哀](https://gnews.org/zh-hans/1122052/)
-
-[郭先生419II回国领任务的周周侃一如既往演出被消失骗局](https://gnews.org/zh-hans/1122074/)
-
-[郭先生419III川普都无法发声时只有爆料革命有发声平台](https://gnews.org/zh-hans/1122099/)
-
-[郭先生419IV战友们因419跟随爆料革命不离不弃到现在](https://gnews.org/zh-hans/1122158/)
-
-[郭先生419V爆料革命开创的事业和对邪恶的打击前所未有](https://gnews.org/zh-hans/1122587/)
-
-[郭先生419VI美国限制媒体交叉持股和控制的法律完全失控](https://gnews.org/zh-hans/1122621/)
-
-[郭先生419VII美国从自由的灯塔经济的灯塔沦为黑暗的灯塔](https://gnews.org/zh-hans/1122659/)
-
-[郭先生419VIII七哥的生死被美国的媒体和社交媒体牢牢抓住](https://gnews.org/zh-hans/1122697/)
-
-[郭先生419IX共产党利用媒体把你犯罪化从而置你于死地](https://gnews.org/zh-hans/1122737/)
-
-[郭先生419X共产党已深陷塔西坨陷阱，没人再信它的话](https://gnews.org/zh-hans/1122784/)
-
-[郭先生419XI G-TV、G-News、盖特是决定我们正义、安全和利益的唯一保障平台](https://gnews.org/zh-hans/1122821/)
-
-[郭先生419XII媒体是操控正义的最重要工具是社会的核武器](https://gnews.org/zh-hans/1122949/)
-
-[郭先生419XIII江时代后期已视社交媒体为重于核武器的武器](https://gnews.org/zh-hans/1122999/)
-
-0
++2
