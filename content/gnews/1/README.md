@@ -1,61 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国推出应用程序鼓励公民举报他人表达“错误观点”或否认官方历史
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1127575/)
+## 美国《2021战略竞争法》第241节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1127680/)
 
-**作者：**Arsenio Toledo 2021-04-21
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**翻译：**加拿大温哥华圆成农场 卢卡斯
-![]()![](https://gnews.org/wp-content/uploads/2021/04/098.png)图片来源：Arsenio Toledo原文
-《自然新闻》中共国政府推出了一个新的网站和手机应用程序，将鼓励中共国公民举报那些在互联网上表达”错误意见”的人。
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-39.jpg)sputniknews.com
+**“副标题C——应对中共国的区域战略”**
 
-新平台由中共国网络空间管理局（CAC）揭幕，中共国主要的互联网监管机构和审查机构。CAC官员自豪地谈到，当局将如何鼓励普通公民在帮助识别“恶意”者以及“混乱”他人思想和“歪曲事实”的人方面发挥“积极作用”。
+本节开始进入“标题1——未来竞争的投入”的“副标题C”部分。
 
-该应用程序还配备了热线电话，将允许和鼓励中共国的互联网用户举报他人，以营造“良好的公共舆论氛围”。
+要点：美国国会的政策要应对中共国的重大外交、经济和军事挑战，制止中共国的军事侵略，打击中共国政府采用的掠夺性的经济做法，结束中国共产党对持不同政见者、维吾尔族和其他穆斯林少数民族、藏传佛教、基督教徒和其他少数民族的镇压，反对中共散布的有关中共病毒的虚假信息。
 
-中共国作协强调的罪行包括修改经中共批准的历史，批评国家政治和军事领导人及其政策，诽谤民族英雄和历史人物，否认“社会主义先进文化的卓越性”。
+第241节 就中共国问题，与全世界各盟国和伙伴进行合作的政策声明
 
-CAC在公告中说：“有一段时间，有些人别有用心。。。在网上传播历史虚无主义的错误言论，恶意歪曲、诽谤和否认党史、中共国史和中共军事史，企图混淆人们的思想”。
+这是美国的政策-
 
-“历史虚无主义”是中共国常用的一个短语，用来描述对中共历史版本的任何怀疑论调。
+（1）加强与欧洲和全球志同道合国家的联盟和伙伴关系，以便有效地与中共国竞争；以及
 
-CAC补充说：“我们希望大多数互联网用户在监督社会方面发挥积极作用。。。。。。并热情地举报有害信息”。
+（2）与这些盟友和伙伴合作-
 
-**新平台是中共控制民众的另一条途径**
+（A）应对中共国的重大外交、经济和军事挑战；
 
-位于华盛顿特区的智囊团—战略与国际研究中心中共国商业与经济高级顾问兼信托主席斯科特٠肯尼迪（Scott Kennedy）表示，中共和CAC并不真正关注历史。肯尼迪认为，这个新平台更多的是用于控制民众思想和言论。
+（B）制止中共国的军事侵略；
 
-肯尼迪说：“这只是现任领导人试图控制有关中共国历史的对话，并限制任何有关不同事件解释的辩论，所有这些都是为了将现任领导人和习总加速师置于最积极正面的镁光灯中”。
+（C）促进根据国际法和平解决领土争端；
 
-有很多证据表明，中共当局不需要这个程序来控制那些认为修改了中共国历史的人。中共国的互联网已经因为是世界上最严格的审查网络之一而臭名昭著。
+（D）促进私营部门主导的长期经济发展，同时打击中共国政府采用的掠夺性的经济做法，作为印度洋-太平洋地区及以外地区政治和经济胁迫手段的努力；
 
-例如，东部的江苏省当局最近逮捕了一名19岁少年，此前该男子在网上发表了有关日本帝国1937年占领南京的”侮辱性”言论，当时日本士兵屠杀了数千人。
+（E）促进民主和人权的价值观，包括通过努力结束中国共产党对持不同政见者、维吾尔族和其他穆斯林少数民族、藏传佛教、基督教徒和其他少数民族的镇压；
 
-肯尼迪说，CAC的新热线是中国互联网新环境的一部分，“允许辩论”的范围正在逐渐缩小。
+（F）应对中国共产党的镇压，他们违反了1984年的《中英联合声明》（the Sino-British Joint Declaration）和《香港基本法》（the Basic Law of Hong Kong）所作出的承诺，违背了香港人民的合法愿望；
 
-目前还不确定中共国人民会如何应对推出的举报电话。肯尼迪并不期望与民众大规模接触这条热线，人们只是用它来表明他们是“党和习的热心拥护者”。该平台也可能被用来举报其他人被认为对共党缺乏敬畏，甚至解决个人对他人的不满。
+（G）反对中国共产党在中共国境内外散布虚假信息的企图，这些虚假信息都是中国共产党有关中共病毒的谣言。
 
-肯尼迪说：“在中共国内部，大多数人可能会忽视这个平台，因为他们不想卷入其中。”这种对政治表达的需求不是老百姓们想要的（因为）这是高风险的。
+（本节完）
 
-CAC没有解释通过应用程序和热线发现违法的人将受到何种处罚。但今年早些时候公布的法律修正案规定，人们发现“侮辱、诽谤或侵犯”中共国民族英雄和烈士的记忆和公众形象可能面临最高三年的监禁。
+原文链接：
 
-人们也可能因为在网上发布质疑或批评中共政策和领导力的内容而入狱。
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
 
-想更多地了解中共国政府是如何限制公民言论的，可以通过访问[Censorship.news](http://Censorship.news)阅读最新文章。
+文字整理：
 
-**评：**中共在盗取中国政权至今72年时间里，为保持其执政的“合法性”，一直通过篡改历史为其政治服务，比如美化中共建政后进行的所有政治运动，把人为的大饥荒归为“三年自然灾害”（历史气象记录证明那三年是风调雨顺，根本没有所谓的“自然灾害”），掩盖8964天安门广场大屠杀真相，甚至还改写了二战中国抗日战史，谎称是中共领导了中国的抗战，冒领蒋介石领导的国民党得之不易的胜利果实。
+Subtitle C—Regional Strategies to Counter the People’s Republic of China
 
-今年7月，中共要搞百年党庆。它给自己准备的“生日礼物”是：一部新篡改的中共党史和一个告密热线，鼓励人民针对那些敢于对新党史质疑的老百姓。新党史删除了对毛的任何批评，反之赞扬了毛发动文革是为了打击腐败并把十年文革动荡归咎于毛的正确思想没有得到贯彻落实，最终导致内乱；事实是毛发动文革是为了打击他的党内对手夺回政权。习篡改党史源于他是自毛以来最野心勃勃的独裁者，他以毛为师，直接模仿毛的做法，获得“核心”和“舵手”的称呼来美化自己。他篡改文革历史重新定义毛造文革中的作用，根本目的是为了巩固他自己的合法性和权威并神化自己；同时模仿毛的手法，鼓励新时代的全民“举报”风潮，目的是巩固他自己的合法性和权威，压制民众的质疑，避免来自党内和民间的反对。极权专制独裁的习认为自己非常强大，可以任意改变历史和真理。但在事实上，中共加速灭亡的历史趋势已经无法改变，中共的倒行逆施只能引起中国人民的愤怒、沮丧和反抗；中共在过完一百周年之后，迎接它的将是全球对中共病毒的溯源和追责，中共必然在内忧外患中加速灭亡。
+SEC. 241. STATEMENT OF POLICY ON COOPERATION WITH ALLIES AND PARTNERS AROUND THE WORLD WITH RESPECT TO THE PEOPLE’S REPUBLIC OF CHINA.
 
-#### **原文：**Arsenio Toledo, “China launches app encouraging citizens to report others for expressing “mistaken opinions” or denying CCP-approved official history”.  April 21, 2021. [https://www.naturalnews.com/2021-04-21-china-app-encourage-citizens-report-mistaken-opinions.html](https://www.naturalnews.com/2021-04-21-china-app-encourage-citizens-report-mistaken-opinions.html)
+It is the policy of the United States—
 
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+(1) to strengthen alliances and partnerships Europe and with like-minded countries around the globe to effectively compete with the People’s Republic of China; and
 
-编辑/发布：比卡丘
+(2) to work in collaboration with such allies and partners—
 
-20210422
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+(A) to address significant diplomatic, economic, and military challenges posed by the People’s Republic of China;
 
+(B) to deter the People’s Republic of China from pursuing military aggression;
+
+(C) to promote the peaceful resolution of territorial disputes in accordance with international law;
+
+(D) to promote private sector-led long-term economic development while countering efforts by the Government of the People’s Republic of China to leverage predatory economic practices as a means of political and economic coercion in the Indo-Pacific region and beyond;
+
+(E) to promote the values of democracy and human rights, including through efforts to end the repression by the Chinese Communist Party of political dissidents and Uyghurs and other ethnic Muslim minorities, Tibetan Buddhists, Christians, and other minorities;
+
+(F) to respond to the crackdown by the Chinese Communist Party, in contravention of the commitments made under the Sino-British Joint Declaration of 1984 and the Basic Law of Hong Kong, on the legitimate aspirations of the people of Hong Kong; and
+
+(G) to counter the Chinese Communist Party efforts to spread disinformation in the People’s Republic of China and beyond with respect to the response of the Chinese Communist Party to COVID–19.
 
 0

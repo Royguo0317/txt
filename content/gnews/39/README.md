@@ -1,11 +1,12 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】中共病毒来源自然界是谎言；羟氯喹可以起到预防及早期治疗的功效
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1126972/)
+## 【粤语配音】爆料革命不欠任何人的，你觉得吃亏就是你该离开的时候了
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1127104/)
 
-4/13/2021 闫博士评论了桑杰·古普塔博士的近期言论，指出CCP病毒的自然起源理论是谎言；闫博士评论了目前市场上出现的CCP病毒疫苗，提醒大家注意羟氯喹的预防和早期治疗功效。
+By: 【秘密翻译组G-Translators】
 
-By： 【秘密翻译组 G-Translators】
+郭文贵
+2021年4月18日
 
-+1
+0

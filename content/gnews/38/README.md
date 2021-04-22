@@ -1,40 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 请悬崖勒马——致梵蒂冈国务卿及同类们
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1126966/)
+## 【热点播报】超限生物武器的解药钥匙：中共解放军金宁一博士
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1127127/)
 
-作者：康州盘古农场-树人
-编辑：康州盘古农场-心照
+作者：纽约香草山健身部 文鹰
 
-枢机主教伯多祿·帕罗林（Pietro Parolin）最近被照妖镜包裹，原形毕露的节奏势不可挡。能否自此揭开全球宗教沼泽地梵蒂冈的暗黑盖子还不得而知；但是，作为梵蒂冈版本的鬼子六王岐山，在与中共长期的深度勾兑中对天主教的亵渎与玷污，是不该被虔诚的信众和文明世界忽视的。
-
-翻开历史，中共与梵蒂冈教廷曾经历过半个多世纪的紧张关系，直到2013年3月13日，意大利裔阿根廷人方济各（Franciscus PP.）获选为教宗，才开始与中共党魁习近平鸿雁传书，双方自此开启了近乎狼狈为奸之旅。
-
-这位教皇介绍着意大利面的调味法、而那位来自中南坑的则描绘着他挑200斤麦子走十里山路不换肩的荣耀。
-
-习近平一边在中共国内实施着捣毁教会、抓捕牧师和教众、强拆教堂等灭神恶行，更为不齿的是对香港民主抗争运动血腥镇压，一边则年年给梵蒂冈献上丰厚的封口费大红包或许还附送干净漂亮的小男孩。
-
-作为教皇方济各的国务卿伯多祿·帕罗林（2013年10月15日起至今），想必所有的明里暗里的资金往来都要经过他那白嫩的脏手，他也势必对梵蒂冈里面深藏着的与中共多年来的龌龊交易如数家珍。可以说，他就是无神论的共产党与天主教教廷之间勾搭成奸的皮条客。
-
-中共是这个世上罪大恶极的魔王。凡是对文化大革命稍有了解的都会明白，他们遇神杀神，遇佛杀佛，即便是被奉为共产魔教“圣经”的马列主义，他们也不过是拿来的遮羞布，用来愚弄百姓，掩饰窃国前后几十年对苍生的屠戮、对文化的灭绝、对民族的洗劫。
-
-而作为全世界天主教教廷的梵蒂冈，是几十亿信众心中的朝圣之地，又怎么可以同中共沆瀣一气，完全泯灭天主教教义，背弃信仰的呢？天网恢恢疏而不漏，
-
-这不，最近已有报道称，伯多祿·帕罗林枢机身染共产党病毒（又名Covid-19）。作为宗教世界沼泽地的其中一位主人，他终于为他对中共的纵容和与共产党的无耻勾兑付出了代价。此时，谁能说，神不是一直在看着呢？
-
-神赐予的外衣，不应该成为粉饰他及他那片沼泽地肮脏渎神罪恶的盖头。梵蒂冈近年来向中共学到的，正是摇起所谓正统的大旗，呐喊着顺我者昌逆我者亡的狂躁口号，以主之名，行不义之事。但是，他们应该知道中共是人间万恶之源。与这样的万恶之“合作”，那么，他们的神是会收回庇护，任其自生自灭的。即便你是养鳄鱼的沼泽地主人，终究也是血肉之躯，是敌不过针对人类种群研发的超限生化武器攻击的。枢机大人此刻应该深刻忏悔，或许能得到主的宽恕。
-
-这世上的沼泽地，难有与中共毫无瓜葛的。但悬崖勒马或许为时不晚。尤其是看尽了那么多血淋淋的事实之后。
-
-教皇和枢机大人的好友习近平曾经这样向世界喊话：“狂风骤雨可以掀翻小池塘,但不能掀翻大海。”他比喻自己治下的中共国为大海，恰恰透露着他内心的虚弱。他的本意是要吸附在如教皇和枢机大人你们这帮人的身上，像绑架十四亿中国老百姓那样，用利益把你们紧紧捆绑，让你们难以自拔。当他这个中南坑的小池塘被掀翻的时候，抱紧你们同归于尽。
-
-我们信仰万神万佛，但可归于一法，即正道主义。这是我们行事的准则，也是我们的信仰。借着伯多祿·帕罗林枢机被中共病毒即将毙命的新闻，希望能让这个麻木的世界更加清醒，希望梵蒂冈国务卿及其同类们悬崖勒马，须知，灭共是全人类正义的需要！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/LOGO3_1-2.jpg)
 
 
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+美军退役陆军上校劳伦斯.赛林博士（病毒专家）近日在TheGatewayPundit网站发布中共在制造超限生物武器领域的新证据，曝出中共解放军金宁一博士。结合郭文贵先生4/21/2021盖特爆大料：“没有疫苗，有解药！中共制造病毒生物武器时一并制造了解药，这意味着中共掌握着全人类的命运——要想活命，去找中共要解药！”
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-13-95.jpg)
+
+金宁一博士何许人呢？为什么一个领中共政府特殊津贴的人，让美国军方前病毒专家现在曝出身份。说明美国军事情报机构早已经关注他的一切踪迹，文贵先生的情报来源也佐证中共在超限生物武器来源的关键人物和事实，所以先生在盖特中向全世界郑重声明CCP有解药！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image1-53.jpg)
+
+金宁一（1956.3.11-）吉林省延边朝鲜族自治州龙井市，1982年在延边农学院获学士学位，1995年获解放军农牧大学（原解放军兽医大学）博士学位，973首席科学家，兽医界第一个“国家杰出青年基金”1998年获得着。2000年享受政府特殊津贴，2005年被评为全国优秀科技工作者，解放军杰出专业技术人才奖，全军优秀教员、2012年获国家科技进步奖一等奖。因在2003年非典、2004年禽流感、2009年H1N1流感、2013年H7N9流感重大疫情应急处置完成和解放军军队重大任务中发挥了重要作用，2014年被中共中央军委授予个人二等功，2015年当选中国工程院士。
+
+金宁一既是中共科技部863计划专家，身兼多所大学名誉博士导师，又在中共任解放军军事科学院军事医学研究院分子病毒学与免疫实验室主任、解放军基因工程重点实验室主任。从他在得到的荣誉和研究的成果领域中，及著作《免疫学新进展》《新编人兽共患病学》《动物病毒学》中的蛛丝马迹可以看到，他是中共在病毒学和人兽共患病学的顶级科学家。
+
+那么金宁一博士研究的方向是什么呢？温州大学生命与环境科学学院网站文章介绍金宁一硕导风采：“长期从事病原发现、流行病学、生态背景、病毒基因组功能、病毒载体系统构建、常规疫苗与新型疫苗、快速侦测、人兽共患病综合防治和生物高科技相关产品等领域形成了明显的优势和特色，并取得了突出成就。’’人民网（www.people.com.cn/GB/shizheng/1026/3023474.html）已经删除金宁一的一篇文章“艾滋病疫苗研究一定会成功”，网页留存显示“金宁一的研究团队的特点就是从艾滋病病原研究入手，以病毒基因组结构与功能研究为切入点，充分运用现代分子病毒学、分子生物学、免疫学、传染病学、生物信息学等方面研究成果和综合知识、从事新型基因工程等研究。”细思恐极，人民网你为什么要删除呢，你不是有四个自信吗?!
+
+07/09/2020金宁一博士到西北农林科技大学指导了“家畜生物学国家重点实验室(培育）方案、P3实验室建设方案及国家十四五重大科研项目申报等工作”，04/12/2020到桂林医学院讲话“期待加强病毒学及生命领域相关基础研究、在生物安全防护实验室建设方面有所合作”。这也验证了文贵先生去年爆料，中共不仅在海外援建P3实验室，而且在国内也大量建设P3实验室。
+
+闫丽梦科学家曾警告过世界:留给人类的时间已经不多了！人类生死存亡的关键节点不要白白再错过，金宁一博士的钥匙是解药吗？解铃还须系铃人！
+
+[http://ybunews.ybu.edu.cn/info/1002/1130.htm](http://ybunews.ybu.edu.cn/info/1002/1130.htm)
+
+[http://www.ybu.edu.cn/info/1054/2492.htm](http://www.ybu.edu.cn/info/1054/2492.htm)
+
+[https://mgmt.glmc.edu.cn/kjc/info/1098/2783.htm](https://mgmt.glmc.edu.cn/kjc/info/1098/2783.htm)
+
+[http://iz.jlu.edu.cn/info/1113/1177.htm](http://iz.jlu.edu.cn/info/1113/1177.htm)
+
+
+
+> Each day we get closer to the truth as we uncover more and more information about the [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) and its laboratory origin. [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/RO1Z2iUidA](https://t.co/RO1Z2iUidA)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 21, 2021](https://twitter.com/LawrenceSellin/status/1384944974832279560?ref_src=twsrc%5Etfw)
+
+
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpeg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
