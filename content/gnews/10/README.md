@@ -1,33 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 273度大转弯的决策
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1127982/)
+## 【世事解评】中共极权法治侮辱人民，点餐浪费者将被收取厨余垃圾处理费
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1128276/)
 
-```
-新闻来源：德国经济周刊 网络版
-记者：  托马斯·库恩（Thomas Kuhn）
-发表时间：2021年4月21日
-```
+香草山农场写作组4组 唯心力行
+
+据中国人大网4月22日消息，反食品浪费法草案二次审议稿将提请4月26日召开的十三届全国人大常委会第二十八次会议审议。草案二次审议稿主要修改内容为：明确国务院发展改革部门的组织协调职能，增强对造成明显浪费的消费者收取处理厨余垃圾处理的可操作性，县级以上地方政府市场监督管理部门或者县级以上地方人民政府指定的部门实施处罚。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-57.png)
+
+中共使用诈术窃取政权，其统治手腕无非是秦帝国“愚民、弱民、疲民、辱民、贫民“商鞅驭民五策的现代版。中共的“依法治国”沦为驭民之术，极权法网越织越密。共党自诩为“政治机关”，领导立法而不受法律制约。反食品浪费法规定，民众大吃大喝要罚款，餐饮业者诱导消费要罚款；点餐浪费收取厨余垃圾费。
+
+中共的极权统治精于制造事端，把绳索套到老百姓脖子上，然后逐步拉紧，立法阴谋屡试不爽。制定反食品浪费法，既可以把将要到来的粮食危机归咎于老百姓，又可以通过新增收费搜刮百姓。官家一口酒，百姓一月粮，百姓哪舍得浪费半点粮食。极权法网的“法治”以践踏人民权利为目标，愚民、弱民、疲民、辱民、贫民，以永续共匪“江山”，世代奴役人民。
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-13-98-scaled.jpg)封面来源：GRAHAM CARLOW/摄影
 
-美国公司似乎在制造量子计算机方面已经将竞争抛在了后面。 但是新型计算机和处理器设计改变了一切：下一代量子超级计算机来自德国。
+校对、发稿 奇门遁甲
 
-从项目的重要性来衡量，这座朴素的功能性建筑地下室的景象显得不那么壮观。在那里，在朱利奇研究中心 （ForschungszentrumJülich）的办公室和演讲厅大楼的地下室中，有两个粉刷成白色的垃圾桶，大小与油桶相同，被拧入与旧电话亭一样大的棚架中。线束通向配备了测量和控制设备的技术机柜，其LED持续闪烁。纸箱，塑料布和电缆卷筒充满了整个房间，正在等待工匠做出最后的油漆处理工作。
+信息来源：
 
-“我们仍处于装配过程中，” Frank Wilhelm-Mauch指导我们完成整个施工现场时说。萨尔布吕肯大学理论物理学教授是欧洲最著名的量子研究人员之一，并与一个在尤利希工作的团队合作，研究欧洲最雄心勃勃的IT项目之一：量子计算机OpenSuperQ的开发。
+[http://www.npc.gov.cn/npc/c30834/202104/8afb240bdb1c48b792ea5e438612716c.shtml](http://www.npc.gov.cn/npc/c30834/202104/8afb240bdb1c48b792ea5e438612716c.shtml)
 
-#### **简评：**
 
-**这个题目吸引了我，这是一个有关量子计算机的生产制造的文章。最后，美国决定量子计算机的生产设在德国的朱利奇研究中心。看完这篇文章以后，不禁要和大家分享，量子计算机的生产制造是核心技术，是未来。没有落到中共国的手里，是多大的欣慰，也是多么的重要。如果这样核心的技术被中共盗取，或者在中共国生产，后果不堪设想，那真就是要全人类都要走进火葬场了。中共，华为，你们要你们的5G还有用的吗？你们想通过5G控制世界，那是做梦了!  人类的未来必须掌握在有普世价值观的人手里。这才是正道。这是一个值得高兴的事情。 **
-（本文只代表作者观点，与Gnews平台无关。）
 
-**新闻来源链接：**🔗[Entscheidung bei minus 273 Grad](https://www.wiwo.de/my/technologie/forschung/quantencomputer-entscheidung-bei-minus-273-grad/27096486.html)
+**更多资讯，更多关注**
 
-* * *
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-***翻译/ 整理/ 评论：** Shuizhuyu **编辑整理/校对：**Ting Guo*
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-+1
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://mail.google.com/mail/u/0?ui=2&amp;ik=6ac942a4c5&amp;attid=0.1.1&amp;permmsgid=msg-f:1697211554661162166&amp;th=178db4eab0445cb6&amp;view=fimg&amp;sz=s0-l75-ft&amp;attbid=ANGjdJ9lR4kCdi5-o7AzTx8H-CjyV87W5Tfjp67_tF2rq3mm2-VRvLZTOk-pU1IIXVWrJjYwHwfKq3R1z4CjGqMqGGHSQMnmkKEWpAf8jBpWnHDAomCy48AAAK4FdYI&amp;disp=emb)
+0

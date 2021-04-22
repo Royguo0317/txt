@@ -1,29 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 巴拉圭领导人反对中共的疫苗胁迫外交
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1128010/)
+## 余兴龙简历显示 中共早在1992年就开始分离蝙蝠病毒
+` 文怡 加拿大多倫多楓葉農場` [轉載自GNews](https://gnews.org/zh-hans/1128176/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+4月22日，劳伦斯-塞林博士（Dr. Lawrence Sellin）发推揭露长春军事兽医研究所可能是个生物战中心，配图中有中国人民解放军军事医学科学院军事兽医所研究员涂长春（Changchun Tu)。
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Pv.jpg)thenarrativeworld.in
-《台北时报》报道，巴拉圭总统贝尼特斯表示，巴拉圭不会接受任何形式的讹诈和外交条件，以换取购买中共病毒疫苗。
 
-在贝尼特斯发表上述言论之前，过去一个月有媒体报道称，由于中共病例感染率激增，这个南美国家迫切需要获得疫苗，可能会将外交承认从台湾转向中共大陆。
 
-巴拉圭是台湾15个邦交国之一，也是台湾唯一一个在南美洲的邦交国。外界普遍猜测圭亚那可能会改变立场，尤其是在今年2月圭亚那放弃了与台湾就设立台湾代表处达成协议之后。
+> The Institute of Military Veterinary Medicine in Changchun may have been a biowarfare center where secret experiments were conducted on Zhoushan viruses ZC45 & ZXC21 after they disappeared from the scientific literature between 2018-2020.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Covid](https://twitter.com/hashtag/Covid?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/HKlvmn1B7x](https://t.co/HKlvmn1B7x)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 22, 2021](https://twitter.com/LawrenceSellin/status/1385282778133143559?ref_src=twsrc%5Etfw)
 
-在台北外交部重申了与巴拉圭的关系，并承诺继续帮助亚松森获得疫苗后，贝尼特斯在一份声明中说，他的政府对购买更多疫苗的所有可能性都持开放态度。然而，“这些谈判必须在尊重独立和外交自由的框架内进行。”
 
-巴拉圭总统称，“我们从任何地方购买都没有问题。我们不会接受任何购买疫苗的勒索。我们要求并愿意与中共工厂进行不附加任何外交关系方面条件的直接交易。”
 
-巴拉圭已经与印度巴拉特生物技术公司签署了购买200万剂疫苗的合同，预计下周将收到印度捐赠的另外10万剂疫苗。贝尼特斯说，“我对我们将获得的疫苗数量感到乐观。我相信，到今年年底或年中，巴拉圭将拥有大量疫苗，我们将推进疫苗接种进程。”
+经战友指点，笔者发现了一位多次与涂长春合作研究的、目前为湖南农业大学教授的余兴龙。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1094.png)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1086.png)
+[简历](https://baike.baidu.com/item/%E4%BD%99%E5%85%B4%E9%BE%99)显示，早在1992年至1995年，余兴龙在广州军区军事医学研究所工作期间，就进行了蝙蝠病毒分离研究。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1087.png)
+1997年起，余兴龙与涂长春合作的中英文论文达几十篇之多。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1088.png)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1089.png)
+可见无论余兴龙在哪个城市、哪个单位工作，都有着军方背景，可以跨地域与其他中共军方人员共同研究并合作论文。
 
-台湾外交部表示，很高兴看到巴拉圭政府在各方共同努力下继续接受中共病毒疫苗接种。台外交部发言人指出，获得疫苗是一个公共卫生，以及人道主义问题，这是与人们的生活相关，不应该成为一个政治操纵的工具。不仅巴拉圭政府反对任何形式的疫苗勒索交易，台湾政府也坚决反对任何有特定条件的、旨在损害台巴拉圭关系的疫苗供应。台湾政府将继续与志同道合的伙伴合作，捍卫民主和自由，帮助巴拉圭抗击中共病毒疫情。
-
-参考链接：
-
-[https://www.taipeitimes.com/News/taiwan/archives/2021/04/22/2003756151](https://www.taipeitimes.com/News/taiwan/archives/2021/04/22/2003756151)
+而涂长春如劳伦斯-塞林博士所说，确实是中共军方背景。有[报道](http://scitech.people.com.cn/n/2014/0627/c1007-25206760.html)显示，2014年他就在云南蝙蝠体内检测出了新型SARS（非典型性肺炎）样冠状病毒。真是细思极恐！！！
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1091.png)
+这些事实验证了中共进行超限生物战是军方直接参与的、长期计划并实施的。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/潘多拉盒子2.jpg)
+余兴龙这样的中共帮凶还在象牙塔里荼毒懵懂、年少的学生，而学生父母们在不知不觉中把充满希冀的下一代送入了为中共卖命的科学狂人魔爪之下。可见中共一日不除，中国人就一日活在邪魔恶党的阴影中，未来也会被无情地摧残。
 
 0

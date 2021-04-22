@@ -1,38 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [疫情下的西班牙]西班牙疫情简报
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1127831/)
+## 巴拉圭领导人反对中共的疫苗胁迫外交
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1128010/)
 
-- 作者：gokuabuela
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Pv.jpg)thenarrativeworld.in
+《台北时报》报道，巴拉圭总统贝尼特斯表示，巴拉圭不会接受任何形式的讹诈和外交条件，以换取购买中共病毒疫苗。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+在贝尼特斯发表上述言论之前，过去一个月有媒体报道称，由于中共病例感染率激增，这个南美国家迫切需要获得疫苗，可能会将外交承认从台湾转向中共大陆。
 
-**西班牙2021年4月22日电/西喜社——**
+巴拉圭是台湾15个邦交国之一，也是台湾唯一一个在南美洲的邦交国。外界普遍猜测圭亚那可能会改变立场，尤其是在今年2月圭亚那放弃了与台湾就设立台湾代表处达成协议之后。
 
-4月20日，西班牙卫生部公布疫情数据：
+在台北外交部重申了与巴拉圭的关系，并承诺继续帮助亚松森获得疫苗后，贝尼特斯在一份声明中说，他的政府对购买更多疫苗的所有可能性都持开放态度。然而，“这些谈判必须在尊重独立和外交自由的框架内进行。”
 
-新增病例： 7486
+巴拉圭总统称，“我们从任何地方购买都没有问题。我们不会接受任何购买疫苗的勒索。我们要求并愿意与中共工厂进行不附加任何外交关系方面条件的直接交易。”
 
-新增死亡： 114 例
+巴拉圭已经与印度巴拉特生物技术公司签署了购买200万剂疫苗的合同，预计下周将收到印度捐赠的另外10万剂疫苗。贝尼特斯说，“我对我们将获得的疫苗数量感到乐观。我相信，到今年年底或年中，巴拉圭将拥有大量疫苗，我们将推进疫苗接种进程。”
 
-14天内10万人感染率： 230.95 （250 以上为极高风险），比4月19日的230.54 略有上升。
+台湾外交部表示，很高兴看到巴拉圭政府在各方共同努力下继续接受中共病毒疫苗接种。台外交部发言人指出，获得疫苗是一个公共卫生，以及人道主义问题，这是与人们的生活相关，不应该成为一个政治操纵的工具。不仅巴拉圭政府反对任何形式的疫苗勒索交易，台湾政府也坚决反对任何有特定条件的、旨在损害台巴拉圭关系的疫苗供应。台湾政府将继续与志同道合的伙伴合作，捍卫民主和自由，帮助巴拉圭抗击中共病毒疫情。
 
-（[https://www.abc.es/sociedad/abci-sanidad-notifica-7486-casos-y-114-muertes-incidencia-acumulada-estable-230-202104201851\_noticia.html](https://www.abc.es/sociedad/abci-sanidad-notifica-7486-casos-y-114-muertes-incidencia-acumulada-estable-230-202104201851_noticia.html)）
+参考链接：
 
-欧洲药物管理局称找到了强森疫苗和血栓之间的关系，但仍然认为，此疫苗的作用大于风险。并开放接种强森疫苗。西班牙从本周三开始，将给70-79岁的人群接种疫苗。
-
-([https://www.abc.es/sociedad/abci-encuentra-vinculo-entre-trombos-y-vacuna-janssen-pero-beneficio-supera-posibles-riesgos-202104201619\_noticia.html](https://www.abc.es/sociedad/abci-encuentra-vinculo-entre-trombos-y-vacuna-janssen-pero-beneficio-supera-posibles-riesgos-202104201619_noticia.html))
-
-西班牙卫生部拒绝了给60岁以下人群接种阿斯利康疫苗的计划，称尚缺乏足够的信息来做出正确的判定，因此目前接种该疫苗的最低年龄为70岁。
-
-([https://www.abc.es/sociedad/abci-vacunacion-voluntaria-menores-60-anos-astrazeneca-rechazada-sanidad-202104211456\_video.html](https://www.abc.es/sociedad/abci-vacunacion-voluntaria-menores-60-anos-astrazeneca-rechazada-sanidad-202104211456_video.html))
-
-审核：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
-
-[西班牙巴塞罗那喜悦农场：疫情下的西班牙专栏](https://gnews.org/zh-hans/993776/)
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+[https://www.taipeitimes.com/News/taiwan/archives/2021/04/22/2003756151](https://www.taipeitimes.com/News/taiwan/archives/2021/04/22/2003756151)
 
 0

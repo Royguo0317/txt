@@ -1,30 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 余兴龙简历显示 中共早在1992年就开始分离蝙蝠病毒
-` 文怡 加拿大多倫多楓葉農場` [轉載自GNews](https://gnews.org/zh-hans/1128176/)
+## 网管新设举报APP确保无人能批评中共
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1128356/)
 
-4月22日，劳伦斯-塞林博士（Dr. Lawrence Sellin）发推揭露长春军事兽医研究所可能是个生物战中心，配图中有中国人民解放军军事医学科学院军事兽医所研究员涂长春（Changchun Tu)。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-40.jpg)studentnewsdaily.com
+文明世界越来越清楚地意识到了中共的邪恶，对恶共的一举一动就能窥测到它的邪恶用心，《戴维哈里斯》（DJHJ）发表文章，“中共国有一个新的应用程序，以确保没有人批评中共，这可能导致美国的商机”，题目直截了当，直戳中共的用意。也猜测，在中共政治高压下有人会“出逃”，由此给美国带来商机。
 
+全文如下：
 
-> The Institute of Military Veterinary Medicine in Changchun may have been a biowarfare center where secret experiments were conducted on Zhoushan viruses ZC45 & ZXC21 after they disappeared from the scientific literature between 2018-2020.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Covid](https://twitter.com/hashtag/Covid?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/HKlvmn1B7x](https://t.co/HKlvmn1B7x)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 22, 2021](https://twitter.com/LawrenceSellin/status/1385282778133143559?ref_src=twsrc%5Etfw)
+中共国推出了一款新的应用程序APP，允许公民在网上举报那些批评中共，或质疑中共历史叙述的人。据英国《每日邮报》（Dialy Mail）报道，中共国网络监管机构上周五发表声明称：“该应用程序由中共国网络监管机构发布，同时还开通了一条类似热线，目的是在今年7月中国共产党成立100周年之际打击‘历史虚无主义者’。”
 
+中共国网络空间管理局（CAC）的一个部门表示，该应用程序和热线将允许并鼓励公民举报在网上传播“错误观点”的网民，以营造“良好的舆论氛围”。
 
+通知说，这些罪行将包括在网上“歪曲”党的历史、攻击党的领导和政策、诽谤民族英雄和“否认社会主义先进文化的卓越性”。
 
-经战友指点，笔者发现了一位多次与涂长春合作研究的、目前为湖南农业大学教授的余兴龙。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1094.png)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1086.png)
-[简历](https://baike.baidu.com/item/%E4%BD%99%E5%85%B4%E9%BE%99)显示，早在1992年至1995年，余兴龙在广州军区军事医学研究所工作期间，就进行了蝙蝠病毒分离研究。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1087.png)
-1997年起，余兴龙与涂长春合作的中英文论文达几十篇之多。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1088.png)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1089.png)
-可见无论余兴龙在哪个城市、哪个单位工作，都有着军方背景，可以跨地域与其他中共军方人员共同研究并合作论文。
+“一段时间以来，一些别有用心的人……在网上散布历史虚无主义的虚假言论，恶意歪曲、诽谤、否认党史、国史、军史，企图混淆人们的思想。”
 
-而涂长春如劳伦斯-塞林博士所说，确实是中共军方背景。有[报道](http://scitech.people.com.cn/n/2014/0627/c1007-25206760.html)显示，2014年他就在云南蝙蝠体内检测出了新型SARS（非典型性肺炎）样冠状病毒。真是细思极恐！！！
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1091.png)
-这些事实验证了中共进行超限生物战是军方直接参与的、长期计划并实施的。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/潘多拉盒子2.jpg)
-余兴龙这样的中共帮凶还在象牙塔里荼毒懵懂、年少的学生，而学生父母们在不知不觉中把充满希冀的下一代送入了为中共卖命的科学狂人魔爪之下。可见中共一日不除，中国人就一日活在邪魔恶党的阴影中，未来也会被无情地摧残。
+报道说，我们希望广大网民积极发挥监督社会的作用……积极举报有害信息。
+
+“历史虚无主义”在中共国被用来形容公众怀疑和质疑中国共产党对过去事件的描述。
+
+中共国互联网受到严格审查，大多数外国社交媒体网络、搜索引擎和新闻机构在中共国被禁止。
+
+历史虚无主义
+
+如果你不熟悉“历史虚无主义”，这里有一点背景，这是中共国对公众怀疑中国共产党过去事件的一类言论的说法。近年来，中国共产党发起了一场反对历史虚无主义的运动，从根本上说，反对任何批评党的遗产、过去的领导人或领导层的行为，这种表达方式在中共国得到了广泛的运用。
+
+然而，对于英国布里斯托尔（Britain’s University）大学历史系的罗伯特·比克斯（Robert Bickers,）教授来说，“我很高兴被贴上历史虚无主义者的标签——这在中共国现在是被禁止的，这是大学校园里七个‘别说（的话题）’，基本上它的意思是正确地、批判性地评估历史，评估事实。”比克斯对香港的一个听众说。
+
+中共成立100周年
+
+根据《亚洲日经》（asia.nikkei.com）报道：中国共产党将在7月纪念其成立100周年，中共国基本上成功地遏制了中共病毒，并经历了强劲的经济复苏。
+
+但几乎听不到外界的贺词——习近平领导下的中国共产党正在加强一党执政，甚至冒着与外国政府发生摩擦的风险。
+
+12月24日和25日，兼任国家主席的习近平召集了中共25名政治局委员在中南海举行“民主生活会”，中南海怀仁堂的气氛充满了紧张气氛，中南海曾是北京的一个皇家花园，中共最高领导人在这里办公。
+
+这样的会议不是党员干部民主讨论日常生活问题的场合，这是一个相当大的集会，与会者批评自己以及他们的上级和同事，据说毛泽东从这里开始揭露他的政敌。
+
+自2012年接掌中共国大权以来，习近平一直强调这种会议，最新一次会议的主题是“认真学习习近平新时代中国特色社会主义思想”。
+
+国家控制的中央电视台播出了25名政治局委员向习近平汇报的每一个情况，他们一定会向他保证过忠诚。
+
+在会议的第一天，中共国反垄断监管机构国家市场监管总局（State Administration for Market Regulation）就开始对中共国电子商务巨头阿里巴巴集团（Alibaba Group）展开调查，这可能并非巧合。
+
+来美国？
+
+阿里巴巴集团控股有限公司（Alibaba Group Holdings Ltd.），又称阿里巴巴集团和阿里巴巴公司，是一家专业从事电子商务、零售、互联网和科技的中共国跨国科技公司。
+
+美国有阿里巴巴吗？纽约（路透社）— 中共国电子商务巨头阿里巴巴集团控股有限公司……美国商户，以前只能在阿里巴巴网站购买商品，现在可以在美国的实体店进行销售，大约三分之一的阿里巴巴买家在美国，超过95%的卖家来自中共国。
+
+路透纽约 — 中共国电子商务巨头阿里巴巴集团控股有限公司将允许美国小型企业在网上销售产品，阿里巴巴该公司周二表示，该公司正寻求打入企业对企业的电子商务市场，抗衡类似亚马逊网站公司（Amazon.com）的竞争对手。
+
+（原文完）
+
+中共能放马云出来？看来外媒对中共的魔性还没有看透，让你挣了那么多线，捞了那么多好处，能让你溜走？想得美！
+
+希望今年就是恶魔的死期！
+
+原文链接：
+
+[https://djhjmedia.com/kari/china-has-a-new-ap-to-make-sure-no-one-criticizes-the-ccp-that-could-lead-to-american-commerce/](https://djhjmedia.com/kari/china-has-a-new-ap-to-make-sure-no-one-criticizes-the-ccp-that-could-lead-to-american-commerce/)
 
 0
