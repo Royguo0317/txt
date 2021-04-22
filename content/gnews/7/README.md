@@ -1,39 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 抖音涉嫌非法收集欧洲儿童数据面临数十亿英镑的赔偿
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1127622/)
+## 美国《2021战略竞争法》第241节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1127680/)
 
-【日本东京方舟农场】作者：青衣 采编：老温 校订：小油鍋
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/D43F8FE5-7CAB-41E4-9312-1047F9269272.jpeg)
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-39.jpg)sputniknews.com
+**“副标题C——应对中共国的区域战略”**
 
-据《路透社》消息，视频应用程序“抖音”（TikTok）和其中共国母公司“北京字节跳动科技有限公司”（ByteDance）可能面临伦敦高等法院数十亿英镑的赔偿判决，它们被指控非法获取数百万欧洲儿童的私人数据。
+本节开始进入“标题1——未来竞争的投入”的“副标题C”部分。
 
-据《路透社》报道，领导这起集体诉讼的是英国前儿童事务专员安妮·朗菲尔德（Anne Longfield）。一名12岁女孩以匿名方式提出集体诉讼，而朗菲尔德将代表该女孩出庭。如果索赔成功，受害儿童每人可以得到数千英镑的赔偿。
+要点：美国国会的政策要应对中共国的重大外交、经济和军事挑战，制止中共国的军事侵略，打击中共国政府采用的掠夺性的经济做法，结束中国共产党对持不同政见者、维吾尔族和其他穆斯林少数民族、藏传佛教、基督教徒和其他少数民族的镇压，反对中共散布的有关中共病毒的虚假信息。
 
-据朗菲尔德介绍，自2018年5月25日以来，使用“抖音”的每个孩子可能都被“字节跳动”通过“抖音”非法收集其私人个人信息，以使未知的第三方受益。她表示：“父母和孩子有权知道被非法收集的私人信息，包括电话号码、实际位置和孩子的视频。”她还称：“该网站上有详细的案例。”
+第241节 就中共国问题，与全世界各盟国和伙伴进行合作的政策声明
 
-“抖音”是世界上最受欢迎的视频应用程序之一，尤其是在年轻人中，仅在欧洲就有大约1亿用户。中共病毒大流行使许多孩子被关在家里，这使得“抖音”被更加广泛的使用。原告在“斯科特律师事务所”（Scott＆Scott）的建议下，指控“抖音”在没有充分安全措施、透明度、监护人同意或保护合法权益的情况下，非法搜集青少年用户个人资料，违反英国和欧盟的《数据保护法》。索赔案要求该公司删除所有儿童的个人信息，同时进行索赔。如果索赔成功，赔偿金可能高达“数十亿英镑”。
+这是美国的政策-
 
-“字节跳动”的一位代表对此辩称：“隐私和安全是公司的首要任务，公司拥有健全的政策、流程和技术来保护所有用户，尤其是青少年用户”。这位代表说：“我们认为这些指控没有根据，并打算为此进行辩护。”
+（1）加强与欧洲和全球志同道合国家的联盟和伙伴关系，以便有效地与中共国竞争；以及
 
-不过，在2019年，美国智库“皮特森国际经济研究所”发表的一篇文章指出，“抖音”之类的中共国社群应用程式（APP）可能正逐渐成为中共收集情报的工具，它在西方的流行可能带来潜在的国安问题。文章指出，中共国社群网站大量收集用户数据，这些资讯若是传回中共国，可以轻易地被中共官方使用，用来作为监控软体依据。并且“抖音”在美国和欧盟地区的用户隐私政策里载明，数据将传送到中共国，只要用户同意，这项数据转移就属合法。尽管“抖音”母公司“北京字节跳动科技有限公司”（ByteDance）强调对隐私与安全的承诺，但当这些数据进入中共国后，没人知道会被如何使用。
+（2）与这些盟友和伙伴合作-
 
-依照统计数据显示，“抖音”在全球拥有大约5亿用户。尽管“抖音”主要的消费对象是青少年，但文章指出，更具广泛吸引力的中共国应用程式正在美国和欧盟吸引消费者使用。该智库表示担心这类应用程式可能会成为下一个华为科技，为中共安全机构提供西方数据。 文章还指出，“抖音”虽然表面上看似是无害的应用程式，但却可能是人工智能（AI）竞赛的“木马程序”。
+（A）应对中共国的重大外交、经济和军事挑战；
 
-鉴于“抖音”存在的各种威胁，根据之前的报道，印度已于2020年6月宣布永久禁止“抖音”和微信等59款中共国APP。在这之后，巴基斯坦法院也下令禁止访问“抖音”社交平台。此外，美国和欧洲也陆续对“字节跳动”发起多起诉讼，指控“抖音”未经同意窃取了他们的个人资讯，并将这些数据传送给了位于中共国北京的服务器。
+（B）制止中共国的军事侵略；
 
-美国川普政府时期就曾因为国安问题，要对 “抖音”海外版发出禁令，然而此事后来又不了了之了。美国联邦贸易委员会2019年8月27日称，“字节跳动”已就部分投诉同意向美国当局支付570万美元的罚款，以此对非法收集儿童个人资料的指控做出和解。仅仅交付了几百万美元的罚款，“抖音”又可继续在美国被使用，继续堂而皇之地收集数据，可以看出中共在美国的渗透力量十分强大。
+（C）促进根据国际法和平解决领土争端；
 
-此次英国的这起赔偿额高达数十亿英镑的诉讼如果成功，或许可以重创“字节跳动音”，并且可以成为全球其他地区对“抖音”发起诉讼的范本。但仅仅在经济上重创“字节跳动”却也只是一时之快，而对于这个遍布欧美的“木马程序”，难道仅凭单一的一张超额罚单就能让其就此罢休吗？
+（D）促进私营部门主导的长期经济发展，同时打击中共国政府采用的掠夺性的经济做法，作为印度洋-太平洋地区及以外地区政治和经济胁迫手段的努力；
 
-注：本文仅代表作者观点
+（E）促进民主和人权的价值观，包括通过努力结束中国共产党对持不同政见者、维吾尔族和其他穆斯林少数民族、藏传佛教、基督教徒和其他少数民族的镇压；
 
-参考链接：
+（F）应对中国共产党的镇压，他们违反了1984年的《中英联合声明》（the Sino-British Joint Declaration）和《香港基本法》（the Basic Law of Hong Kong）所作出的承诺，违背了香港人民的合法愿望；
 
-1. [https://twitter.com/Reuters/status/1384816682456190976](https://twitter.com/Reuters/status/1384816682456190976)
-2. [https://twitter.com/dajiyuan/status/1384922697902219268](https://twitter.com/dajiyuan/status/1384922697902219268)
+（G）反对中国共产党在中共国境内外散布虚假信息的企图，这些虚假信息都是中国共产党有关中共病毒的谣言。
 
+（本节完）
+
+原文链接：
+
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+
+文字整理：
+
+Subtitle C—Regional Strategies to Counter the People’s Republic of China
+
+SEC. 241. STATEMENT OF POLICY ON COOPERATION WITH ALLIES AND PARTNERS AROUND THE WORLD WITH RESPECT TO THE PEOPLE’S REPUBLIC OF CHINA.
+
+It is the policy of the United States—
+
+(1) to strengthen alliances and partnerships Europe and with like-minded countries around the globe to effectively compete with the People’s Republic of China; and
+
+(2) to work in collaboration with such allies and partners—
+
+(A) to address significant diplomatic, economic, and military challenges posed by the People’s Republic of China;
+
+(B) to deter the People’s Republic of China from pursuing military aggression;
+
+(C) to promote the peaceful resolution of territorial disputes in accordance with international law;
+
+(D) to promote private sector-led long-term economic development while countering efforts by the Government of the People’s Republic of China to leverage predatory economic practices as a means of political and economic coercion in the Indo-Pacific region and beyond;
+
+(E) to promote the values of democracy and human rights, including through efforts to end the repression by the Chinese Communist Party of political dissidents and Uyghurs and other ethnic Muslim minorities, Tibetan Buddhists, Christians, and other minorities;
+
+(F) to respond to the crackdown by the Chinese Communist Party, in contravention of the commitments made under the Sino-British Joint Declaration of 1984 and the Basic Law of Hong Kong, on the legitimate aspirations of the people of Hong Kong; and
+
+(G) to counter the Chinese Communist Party efforts to spread disinformation in the People’s Republic of China and beyond with respect to the response of the Chinese Communist Party to COVID–19.
 
 0

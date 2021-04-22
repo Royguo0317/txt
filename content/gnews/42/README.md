@@ -1,57 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】小寒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1127067/)
+## 谈谈疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1127130/)
 
-配音：香草山录音组 Swr拥抱太阳
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+- 作者：随风61
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
+**西班牙2021年4月22日电/西喜社——**
 
+4月14日省疾控中心再发《新冠病毒疫苗接种27问》。在这则声明中几乎包括了所有人群都适宜接种新冠疫苗，包括过量饮酒人群，对抗生素 花粉过敏者，备孕期的男女双方，在家不出门的老年人等等。
 
-你所说的雨水，其实是眼泪
+看完这27问，我给之前嘱咐过不要打疫苗的家人和朋友打电话询问情况。
 
-那场猝不及防的洪水从你的仓库退去
+回复1:打了呀，不打不让上岗。
 
-天就冷了下来，心也更冰冷
+回复2:文件写了，备孕期可以打，没事。
 
-于是，这个冬夜，只剩下独坐
+我不能再打电话一一询问了。
 
+我想谈谈在打与不打的问题上
 
+有争议，正常！
 
-你并没有提到眼泪
+有异议，正常！
 
-不是因为它早就流干了
+有分歧，正常！
 
-不是因为一个单薄女人裹着坚韧的身躯
+有质疑，正常！
 
-而是因为还有更冷的夜等着你
+大家都打所以我也打，不正常！
 
+领导让我打我就得打，不正常！
 
+政府号召打没办法，不正常！
 
-**文字版原文：[【香草诗词汇】小寒](https://gnews.org/zh-hans/714784/)**
+设置限制不打就让你寸步难行，不正常·！
 
-作者：香草山写作组 木白
+打了的歧视或仇视不打的，不正常！
 
+打了的甚至举报检举没打的，不正常！
 
+以工作要挟，以上学要挟，以就业要挟，都不正常！
 
-音频处理/发稿：雪梨
+你弄清楚了吗病毒是哪来的？就告诉你疫苗开发出来了，你就真的信了。把这个病毒灭活一下，打进你的身体，你就认为自己是百毒不侵，金刚不坏之身？我忍不住发问，这个病毒变异几代了？变异的病毒还是之前的病毒吗？你打一个不知道是第几代的所谓灭活病毒到你的身体里，去防止也不知道是第几代的所谓冠状病毒？你是小白鼠吗？
 
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+我们中国人非常认可被专家欺骗，也认可最终被医生夺取生命，也非常认可被老师肆意羞辱，更是认可被牙医拔掉所有牙齿，却反过来歌颂救死扶伤的白衣天使，老师是什么人类灵魂的工程师，所以才会有反人类，变态的事情发生。
 
-**更多资讯，更多关注**
+我忍不住又要发问了，去医院不找关系你敢看病吗？不给孩子老师送礼你就不担心吗？……
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+审核：蚂蚁兄弟；校对：信心满满；发稿：信心的选择
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1

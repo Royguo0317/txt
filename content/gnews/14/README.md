@@ -1,51 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】立陶宛不顾中共威胁，拟认定中共在新疆对维吾尔族实施种族灭绝
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1127291/)
+## 西喜时事新闻简报—美国篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1127609/)
 
-作者：纽约香草山写作四组 兰兰
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/logo-6.jpg)
+- 作者：wenwu
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
+**西班牙2021年4月22日电/西喜社——**
 
+您若想了解全文报导内容，请点击标题后链接
 
-4月21日，VOA Chinese（美国之音中文）刊文报道，立陶宛不顾中共威胁，拟认定中共在新疆对维吾尔族实施种族灭绝。该文指出，欧洲国家立陶宛议会定于星期四（4月22日）召开听证会，推动通过谴责中共在新疆实施种族灭绝的议案。立陶宛议会是继加拿大、荷兰议会之后，又一个加入谴责中共在新疆实施种族灭绝行列的议会。推动这一议案的是议员萨卡利埃内（Dovilė Šakalienė），因此她被中共列入制裁名单，成为立陶宛在新疆问题上被中共制裁的第一位政治人物。
+**1. [边境巡逻队继续拦截美国边境的杀人犯、儿童性犯罪者](https://thenationalpulse.com/breaking/border-patrol-catches-criminals/)**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Lithuania-flag-night_1920x1200.jpg)图源网络
+据《国家脉动》4月21日电，4月20日，海关和边境保护局（CBP）的新闻稿详细介绍了德克萨斯州官员如何逮捕两名以前因严重性侵犯儿童和谋杀未遂而被定罪的非法外国人。拜登时代，这样罪犯会越来越多。
 
-文章提及萨卡利埃内的态度：她不会因中共的制裁而被吓倒。制裁、威胁是中共的老把戏，她被中共威胁代表她做对了。同时萨卡利埃内下周还要和台湾驻波罗的海国家代表见面，表达坚定支持台湾的立场。萨卡利埃内告诉立陶宛国家广播电视台，在定于4月22日举行的议会特别听证会上，国际专家和被监禁人员的亲属将介绍新疆的镇压情况。
+**2.  [黑命贵暴动者骚扰警察和户外用餐者，并捣毁了美国国会大厦附近的哥伦布雕像，但几乎没有人报告此事](https://thenationalpulse.com/breaking/blm-rioters-harass-cops-outdoor-diners-trash-columbus-statue-near-u-s-capitol/)**
 
-这是继美国、英国、欧盟、加大拿、澳大利亚、新西兰等国宣布针对中共大规模关押新疆维吾尔族人的行为和政策制裁数名新疆官员之后，又一个推动谴责中共在新疆实施种族灭绝的西方国家。
+据《国家脉动》4月21日电，周五125名黑命贵在华盛顿特区聚集，抗议“最近全国各地的警察杀害黑人”。黑命贵破坏了国会山旁的建筑，与警察和路人起了冲突。
 
-西方国家抱团谴责、制裁中共，全方位围堵中共，让中共无法摆脱“种族灭绝罪”。等待中共的必然是世界的审判，必然是惨烈的灭亡。
+**3.  [美墨边境的非法移民儿童人数大幅上升](https://www.bbc.com/news/world-latin-america-56810672)**
 
-参考来源：
+据《英广（BBC）》4月20日电，联合国儿童组织联合国儿童基金会表示，自2021年初以来，试图从墨西哥进入美国的移民儿童人数增加了九倍。其中一半的孩子没有父母陪伴，父母期盼子女可以和美国的亲戚会合。目前可以知晓，美国边境的临时接待设施的生活环境只会越来越糟糕。
 
-[立陶宛不顾中（共）国威胁 拟认定中（共）国在新疆对维吾尔人实施种族灭绝](https://www.voachinese.com/a/Lithuania-moves-to-recognize-Uighur-genocide-despite-China-s-threats-20210420/5860269.html)
+**4.  [美国建第51州案拜登说强烈支持](https://www.rfi.fr/cn/政治/20210421-美国建第51州案-拜登说强烈支持）)**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+据《法广》4月21日电，拜登政府发表声明，表态“强烈支持”（strongly supports）华盛顿特区成为美国第51州，预料众议院将通过此提案，但由于许多共和党议员已表态反对，该升格案在参议院恐会面临苦战。通过的话，该州能获得2席参议院和1席众议员。
 
-编辑/校对/发稿：小鹿
+**5.  [美国参议院今推议案聚焦对抗中共国](https://www.rfi.fr/cn/中国/20210421-美国参议院今推议案-聚焦对抗中国)**
 
-**更多资讯，更多关注**
+据《法广》4月21日电，预计参议院周三通过280页的议案内容涉及与中共国展开全面性经济竞争，也包含人道主义与民主价值观，诸如就新疆问题和香港问题实施制裁等。
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**6.  [独家：证据确凿？是否中共国军方在2019年11月就充分意识到COVID-19（中共病毒）？](https://www.thegatewaypundit.com/2021/04/exclusive-smoking-gun-chinas-military-fully-aware-covid-19-november-2019/) **
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+据《门扉网》4月21日电，新证据表明，中国军方可能早在2019年11月就知道新冠病毒。德意志之鹰的推特4月20日的推特表明：金宁一是军民融合项目中的生物病毒专家。中共知道COVID-19的一切，因为这是中共制造的。
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+审核：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 0

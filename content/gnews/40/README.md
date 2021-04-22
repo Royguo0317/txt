@@ -1,55 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】大寒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1127090/)
+## 【灭共头条】全球追责中共大势难挡 借气候合作续命或成竹篮打水
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1123054/)
 
-配音：香草山录音组 Swr拥抱太阳
+#### 撰稿：MIYA【㊙️翻Gnews原创组】
+责编：萌萌的朋克
+![]()![](https://gnews.org/wp-content/uploads/2021/04/GT210405.jpg)图片来源：GTV截图
+中共外交部21日宣布，习近平接受了乔·拜登（Joe Biden）总统的邀请，将出席22日举行的气候问题视频峰会。随后经白宫证实，所有受邀领导人都将出席气候峰会，但不会安排拜登与习近平单独进行双边会谈。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+据美国之音4月21日报道，对抗气候变化是拜登政府施政的重点之一，白宫向全球40位国家领导人发出邀请，参加22号开始为期两天的气候峰会。在白宫最新的背景简报会上，资深官员已证实所有受邀领导人，包括中共国家主席习近平，都将出席峰会。不过峰会没有安排任何双边会谈，或任何另开视讯会议室的见面。
 
+自上周美国气候特使约翰·克里（John Kerry）结束低调的上海之旅后，中共在国际关系中的地位似乎越来越走向边缘化。新中国联邦创始人郭文贵先生曝光了克里访华的真实目的是秘会习近平委派的资深外交官杨洁篪，传达美国对华的一系列最新政策，并对中共发出郑重的警告，克里带来的重要讯息，几乎全部遭到中共的拒绝。
 
+中共的反应直接导致同期进行的美日首脑会议讨论议题的实质性进展，郭先生还披露了美日会谈并未公开的核心部分：美国同意松绑日本自卫队和允许日本拥有核武，并计划在日本设置战区导弹防御系统TMD（Theater Missile Defence）和国家导弹防御系统 NMD（National Missile Defence）。这意味着日本获得美国代理人战争的合法性，不仅能出兵执行国际范围的维和行动，还能督阵亚太地区，对中共在南海、台海等区域改变现状的行动随时做出快速反应。
 
+中共战狼的虚张声势在美国动真格的决心与实力面前不堪一击。习近平为挽回因误判形势造成的被动局面，临时安排“久未露面”的王岐山现身20日的博鳌亚洲论坛向国际多方示好，一边为即将出席的气候峰会打破僵局，一边拯救日渐孤立的国际关系形势下恶劣的国内经济状况。习近平在外交政策上频繁采用事后弥补的伎俩，已将中共国际关系带入绝境，他与拜登之间“友谊的小船”也面临“说翻就翻”。
 
+“中美两国在气候问题上有不可告人的秘密，双方各自都有所期待。” 郭先生在4月20日的盖特（Getter）中说到。美国对中共在气候问题上的“合作”关系将越来越失去平衡，嗜血的西方利益集团在中共垂死之前，不会放弃将自身利益最大化的机会。而一旦中共制造超限生物武器的罪名得到法律认定，美、日及欧洲各国的行动将铺天盖地地砸向中共，死期将至的中共以为向国际示好、寄希望在气候问题的合作能保住性命，已经是不切实际的幻想。
 
-大寒不寒，这个虚假的冬天
+参考链接：
 
-正披着全球变暖的外衣飞奔
+1、[拜登与习近平不会在气候峰会上进行双边会谈](https://www.voachinese.com/a/Biden-Xi-will-not-have-bilateral-talks-in-climate-summit-20210421/5861548.html)
 
+2、[战前风云（1）：以气候变化为名访华的克里究竟与杨洁篪谈了些啥？](https://gnews.org/zh-hans/1118295/)
 
+3、[战前风云（2）：美日首脑会谈未公开的秘密——日本或成美亚太地区总代](https://gnews.org/zh-hans/1119275/)
 
-雪，难得
+（本文仅代表作者个人观点）
 
-雪白的事物，更难得
-
-
-
-大盗与大圣是雪的极端
-
-而这个世界终究是灰色的
-
-
-
-**文字版原文：[【香草诗词汇】大寒](https://gnews.org/zh-hans/778093/)**
-
-作者：香草山写作组 木白
-
-
-
-音频处理/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++2
