@@ -1,134 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【班农战斗室】889-890-891期简讯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1126923/)
+## 【有声读物】一剪梅
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1127024/)
 
-#### 翻译：七彩光
+配音：香草山录音组 Swr拥抱太阳
 
-#### 校对/编辑：文泓
-![]()![](https://gnews.org/wp-content/uploads/2021/04/889-891.png)
-图片来源：墨尔本雅典娜农场设计组（精灵蓝）
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-主持人：史蒂夫.班农
 
-嘉宾：Rudy Giuliani, Doug Wardlow, Boris Epshteyn, Mark Finchem, Raynard Jackson, David Horowitz, Liz Yore, Natalie Winters, Todd Bensman, Dr. Peter Navarro
 
-#### **1、马里科帕县选票审计独家内幕**
 
-亚利桑那州州众议员马克‧芬赫姆（Mark Finchem）向《战斗室》独家介绍了马里科帕县（Maricopa County）210万张选票的审计内幕。
 
-芬赫姆透露了（现场配备）安全系统，该系统配有高架摄像机，可以看到每张选票，还有穿制服和便衣的官员在场内巡逻。
+你的头发里藏着自由，不要洗
 
-“我们制度的乐趣在于人民有权利监督他们的选举”，芬赫姆说：”你在共产主义中国是看不到这样的场景的。”
+你的耳朵太漂亮，不要花来装扮
 
-即便有了所有的安全保障，芬赫姆也不会让民主党人和共和党建制派的人的图谋得逞。博钦律师事务所 (Perkins Coie)和多米尼（Dominion）投票机公司已经费尽心思来阻止选票审计。
+你的睫毛被你拔掉，那是仅有的任性
 
-“我不相信这些人”，芬奇姆说：“他们知道这是一个腐败的系统。”
+你那双眼比你的相机深情，尽管它们记录着不一样的真实（你的摄影很好）
 
-“他们为什么要花费这么多资源（用于选举舞弊）？”他说：“你会觉得不仅是民主党正在为大选结果欢欣鼓舞。你还会觉得即使他们在被我们拿到关于此地选举舞弊证据的时候，他们也在高兴的对我们说‘看吧，这就是我们如何击败你们的方法’。”
+是的，你扎起小辫，不肯穿上33岁的旗袍
 
-“但他们没有这样做，”芬奇姆说。
+而你的细腰，像晾干的麻布，挂在人来人往的大街
 
-鲍里斯·艾普斯汀（Boris Epshteyn）说，他听说以0.3%的差别比例票数决定了亚利桑那州的选举结果，但其误差率高达30%。
+你刚画完口红，也许刚告别最新的爱恋，清晨为你抹上这一天的烟火气
 
-“那绝对是惊天动地的”，埃普斯泰恩说：“那是60万张选票，难以想象。”
 
-“如果这次选举有5%的误差率”，他说：“那么两个百分点就会改变大选结果。”
 
-#### 2、班农揭露习近平和达沃斯党们号召“建立世界新秩序”
+**文字版原文：[【香草诗词汇】一剪梅](https://gnews.org/zh-hans/735107/)**
 
-班农揭露中国共产党领导人习近平呼吁建立“世界新秩序”是对美国和普罗大众的攻击。
+作者：香草山写作组 木白
 
-“标题：‘习近平呼吁建立世界新秩序’”，班农说：“那可不是《战斗室》的标题。”
 
-“他推行建立一个新的世界秩序，而中国共产党和达沃斯党处于领导地位，”他说。
 
-班农披露了苹果公司、高盛集团、黑石集团和特斯拉公司都参加了这次会议，习近平在会上呼吁建立一个国家资本主义和独裁控制的全球模式。
+音频处理/发稿：雪梨
 
-“这是全球主义者们聚在一起合谋分赃，”他说。
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
-#### 3、梵蒂冈推动共产主义新世界秩序，邀请“撒旦教追随者”切尔西‧克林顿参加会议
+**更多资讯，更多关注**
 
-约尔儿童基金的创始人丽兹·约尔（Liz Yore）说，梵蒂冈正在通过其全球主义者举办的“探索思想、身体和灵魂”会议“使自己成为新的世界秩序的仆人”。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-周三，约尔解释了举报人天主教前任驻美国教廷大使卡洛‧玛丽亚‧维加诺（Carlo Maria Viganò）大主教在《战斗室》会议上发出的控诉。
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-这个定于下个月举行的“谁是魔鬼”会议的主角是福奇（Fauci）博士，以及支持堕胎的活动家切尔西‧克林顿（Chelsea Clinton）、辛迪‧克劳福德（Cindy Crawford）和其他全球主义者名人。
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-【备注：辛迪·克劳馥（Cindy Crawford），1966年2月20日 出生于美国伊利诺伊州，美国超级名模。】
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-【备注**：**切尔西·维多利亚·克林顿（Chelsea Victoria Clinton，1980年2月27日－），前任美国总统比尔·克林顿和前任美国国务卿希拉里·克林顿的独生女，NBC电视台记者。】
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-维加诺称切尔西‧克林顿是“撒旦教会的追随者和坚定的堕胎支持者”；他还指责会议以福奇为主角，因为他与大流行病存在着“可耻的利益冲突”；还有“一批众所周知的支持堕胎者、马尔萨斯主义者（Malthusians）和全球主义者”。
-
-【备注：马尔萨斯主义以英国经济学家马尔萨斯为代表的学派。产生于18世纪，其代表作《人口原则》和《政治经济学原理》。马尔萨斯主义的思想是，人口增长可能呈指数级增长，而粮食供应或其他资源的增长呈线性增长，这最终将生活水平降低到触发人口死亡的地步。】
-
-“新的世界秩序实际上是共产主义的世界新秩序”，约尔说：“而我们需要呼吁伟大的重置并不是他们所说的伟大重置，他们所推崇的是基于共产主义的大重置。”
-
-约尔说，天主教徒应该跟随维加诺大主教的领导，反击全球主义者对梵蒂冈的接管。
-
-“我们必须开始把修女们教我们的所有繁文缛节放一边，”约尔说。
-
-“当梵蒂冈为中共政府提供道德掩护时，他们是在继续助纣为虐”，她说：“在这一点上，[教皇方济各]已经成为了一个笑话。”
-
-“维加诺告诉我们的是，我们不能再做这种叛教行为的沉默帮凶，”约尔说。
-
-班农说，是时候对天主教会 “不再捐款资助”了。
-
-他说：“（梵蒂冈）他们唯一能够感受到的就是我们的强力反击。”
-
-#### 4、大卫‧霍洛维茨：总统大选是被种族主义者的共产主义民主党人所偷窃的
-
-作家大卫‧霍洛维茨对于称呼民主党人为“自由主义者”已经感到厌倦。
-
-【备注：大卫‧霍洛维茨（David Horowitz），著名保守派思想家和作家。】
-
-“他们是种族主义者，他们是美国的敌人”，霍洛维茨周三告诉《战斗室》：“他们是犯罪分子的朋友。民主党就是一个犯罪党。”
-
-“现在我们开始使用恰当的语言来称呼他们，不要再称呼他们自由主义者”，他说：“实际上我们才是自由主义者，我们相信对话的双方，因为我们知道我们可以赢得一场政治争论。”
-
-“他们民主党的目标是一个一党制国家”，霍洛维茨说：“他们是法西斯主义者。”
-
-作为新书《内部的敌人：一个极权主义运动是如何摧毁美国》的作者，他说，保守派必须清醒地认识到美国正处于一场共产主义革命运动中。
-
-“我是由一名持有党员证件的共产党员抚养长大的”，他说：“我年轻时认识的每个人都希望斯大林能赢得冷战。你看到这些孩子出来边烧东西边说，‘你是无法阻止革命的（胜利）’。”
-
-“这是一场共产主义革命”，霍洛维茨说：“而我们在右派中不使用这些术语，是有原因的。”
-
-霍洛维茨说，民主党是一个种族主义政党，它把 “系统性种族主义”的谎言作为打击他人的工具。
-
-【备注：系统性种族主义是指国家机构的政策和做法导致某些群体与其他群体相比受到不公平待遇。该观点1967年由美国学者提出，主要是围绕着黑人群体的不公正待遇。】
-
-他说：“当乔‧拜登（Joe Biden）和卡马拉‧哈里斯（Kamala Harris）说美国存在系统性的种族主义时，这是一个可怕的谎言，值得中共、伊朗毛拉和普京将其用来作为宣传和心理战武器。
-
-- **奥巴马和哈里斯是由共产党人抚养长大的**
-
-
-霍洛维茨说，共和党人是 “懦夫”，过于温顺，不愿意揭露这些敌人真面目：本质上是一群试图推翻美利坚合众国的种族主义者、共产主义者。
-
-“巴拉克‧奥巴马（Barack Obama），他是由共产党人抚养长大的”，他说：“我和他的区别是他从未脱离过共产主义运动。” 霍洛维茨说，卡马拉‧哈里斯（Kamala Harris）的父母也是马克思主义者。
-
-霍洛维茨说，如果共和党人想要生存，他们需要利用川普总统留给他们的礼物。
-
-“川普给了我们一份礼物”，他说：“在历史上第一次开启了一场大规模的保守主义运动。”
-
-霍洛维茨说，这场大规模运动必须夺回“从（基层）幼儿园开始”的教育系统。
-
-“我们占大多数”，霍洛维茨说：“川普得到了8000万张选票。拜登得到的票数是假的。那次选举是拜登偷来的。”
-
-“我们即将失去这个国家”，他说：“这是一场战争，你们越快明白这一点越好。”
-
-**参考资料：**[维基百科](https://www.wikipedia.org/)
-
-**原文链接：**
-
-1.  [Exclusive Inside Look at Maricopa County Election Audit](https://pandemic.warroom.org/2021/04/21/exclusive-inside-look-at-maricopa-county-election-audit/)
-
-2.  [Bannon Exposes Xi and Party of Davos’s Call for ‘New World Order’](https://pandemic.warroom.org/2021/04/21/bannon-exposes-xi-and-party-of-davoss-call-for-new-world-order/)
-
-3.  [Vatican Pushes Communist New World Order, Invites ‘Follower of Church of Satan’ Chelsea Clinton to Conference](https://pandemic.warroom.org/2021/04/21/vatican-pushes-communist-new-world-order-invites-follower-of-church-of-satan-chelsea-clinton-to-conference/)
-
-4.  [David Horowitz: ‘The Election Was Stolen’ By Racist Communist Democrats](https://pandemic.warroom.org/2021/04/21/david-horowitz-the-election-was-stolen-by-racist-communist-democrats/)
-
-+1
+0
