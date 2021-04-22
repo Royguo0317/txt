@@ -1,64 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 当“影帝”触碰底线照样被封杀
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1126551/)
+## 【热点播报】超限生物武器的解药钥匙：中共解放军金宁一博士
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1127127/)
 
-作者：Aa
-![]()![](https://gnews.org/wp-content/uploads/2021/04/当影帝触碰底线照样被封杀.png)（图片来自网络）
-2020年12月，温家宝的母亲杨志云去世。2021年清明节前夕，温家宝撰文追忆
-自己的母亲。文章于2021年3月25日—4月15日分四期连载在《澳门导报》。
-4月16日，公众号“温暖世界”全文转载温家宝此文。4月17日，国内其他多个微
-信公众号转载此文时被禁止分享，或被删除。此文在公众号“温暖世界”未被删
-除，但同样遭到限流。
+作者：纽约香草山健身部 文鹰
 
-温先回忆了在抗日战争和解放战争时期一家人的艰苦生活和母亲为了一家人的
-辛苦劳动，后面用大篇幅写了一家人在解放后的悲惨生活特别在文革中的悲惨
-遭遇。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/LOGO3_1-2.jpg)
 
-温写到：解放后，1950年，爸爸、妈妈和我搬到天津，租住只有几平方米的一
-间小屋，可谓家徒四壁，身无分文。爸爸的工资每月仅37元，可光房租就要8
-元(一袋面粉钱)。这间小屋伴我们全家几十年，其间家里又添了妹妹和弟弟。
-妈妈省吃俭用，我们的衣服都是补了又补。就是这样，工资上月接不到下月，
-每月还要借点钱。那时，爸爸有个小本子，专门记账用的。记得天津刚刚解放
-，城里无安身之地，家乡房子已毁，爸爸、妈妈带着我回到宜兴埠，暂借一远
-房亲戚的一间房子住，我在爷爷租用村中杨家下场仓库作校舍的士范小学继续
-上学。1959年“审干”期间，因“历史问题”，他离开了多年的教师岗位，被“限制
-使用”。开始在农场劳动,后来到校图书馆工作。那些年,家里仿佛出了大事情，
-妈妈忧心忡忡，又要劝解爸爸，又要照料全家。文化大革命”的灾难落在我们家
-中。爸爸被揪斗，关在学校监视居住，停发工资。大字报从家门贴到胡同。妈
-妈从自己不多的工资中，先给爸爸留足伙食费，自己亲自送到学校。她不放心
-这点钱能否送到爸爸手中，非让造反派给收条为据。1970年，全家又被强制疏
-散到农村。先是要全家到内蒙古五原(妹妹当时在通辽下乡)，当时父母已年过
-半百，实难带幼子适应那里的环境。经反复交涉、多方联系，后改迁到天津市
-北郊区小淀公社劳动，一待就是六年。粉碎“四人帮”后，爸爸调到天津北郊区
-宜兴埠九十六中学做教员。 “文革”期间，父亲被关在学校,经常遭受野蛮的“审讯
-”和打骂。一天，造反派一拳将父亲的脸打肿，眼睛被“封”得看不见东西。父亲
-忍无可忍，指着心口说:“小子，朝这儿打!”
 
-有网友评论：“影帝”怀念母亲的文章写得蛮好，特别是对我党的历史的回顾非
-常真切，但是生不逢时。
 
-今年是中共成立100周年，为了凝聚人心，维护党的伟大形象，党国决定隆重
-庆祝，2月20日，党史学习教育动员大会在北京召开。习号召在全党开展党史
-学习教育。
+美军退役陆军上校劳伦斯.赛林博士（病毒专家）近日在TheGatewayPundit网站发布中共在制造超限生物武器领域的新证据，曝出中共解放军金宁一博士。结合郭文贵先生4/21/2021盖特爆大料：“没有疫苗，有解药！中共制造病毒生物武器时一并制造了解药，这意味着中共掌握着全人类的命运——要想活命，去找中共要解药！”
 
-也有网友说：“影帝”这是在伟大的党国脸上狠狠抽了一把，给我党脸上抹黑了
-。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-13-95.jpg)
 
-最后温写道：“我退休了，在中南海工作了28年，其中担任总理十年。对我这
-样出身的人来说，“做官”本是偶然之事。我奉命唯谨，如履薄冰、如临深渊，
-受事之始，即常作归计。我同情穷人、同情弱者，反对欺侮和压迫。我心目中
-的中国应该是一个充满公平正义的国家，那里永远有对人心、人道和人的本质
-的尊重，永远有青春、自由、奋斗的气质。我为此呐喊过、奋斗过。”
+金宁一博士何许人呢？为什么一个领中共政府特殊津贴的人，让美国军方前病毒专家现在曝出身份。说明美国军事情报机构早已经关注他的一切踪迹，文贵先生的情报来源也佐证中共在超限生物武器来源的关键人物和事实，所以先生在盖特中向全世界郑重声明CCP有解药！
 
-有网友评论：这段高级黑是有所指的，现在的中国有公平正义可言吗？现在的
-中国有丝毫对人心、人道和人的本质的尊重吗？
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image1-53.jpg)
 
-（文章内容仅代表个人观点）
+金宁一（1956.3.11-）吉林省延边朝鲜族自治州龙井市，1982年在延边农学院获学士学位，1995年获解放军农牧大学（原解放军兽医大学）博士学位，973首席科学家，兽医界第一个“国家杰出青年基金”1998年获得着。2000年享受政府特殊津贴，2005年被评为全国优秀科技工作者，解放军杰出专业技术人才奖，全军优秀教员、2012年获国家科技进步奖一等奖。因在2003年非典、2004年禽流感、2009年H1N1流感、2013年H7N9流感重大疫情应急处置完成和解放军军队重大任务中发挥了重要作用，2014年被中共中央军委授予个人二等功，2015年当选中国工程院士。
 
-*审核：cindy 编辑：MG4*
+金宁一既是中共科技部863计划专家，身兼多所大学名誉博士导师，又在中共任解放军军事科学院军事医学研究院分子病毒学与免疫实验室主任、解放军基因工程重点实验室主任。从他在得到的荣誉和研究的成果领域中，及著作《免疫学新进展》《新编人兽共患病学》《动物病毒学》中的蛛丝马迹可以看到，他是中共在病毒学和人兽共患病学的顶级科学家。
 
-参考消息：[https://chinadigitaltimes.net/chinese/664996.html](https://chinadigitaltimes.net/chinese/664996.html)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
-+5
+那么金宁一博士研究的方向是什么呢？温州大学生命与环境科学学院网站文章介绍金宁一硕导风采：“长期从事病原发现、流行病学、生态背景、病毒基因组功能、病毒载体系统构建、常规疫苗与新型疫苗、快速侦测、人兽共患病综合防治和生物高科技相关产品等领域形成了明显的优势和特色，并取得了突出成就。’’人民网（www.people.com.cn/GB/shizheng/1026/3023474.html）已经删除金宁一的一篇文章“艾滋病疫苗研究一定会成功”，网页留存显示“金宁一的研究团队的特点就是从艾滋病病原研究入手，以病毒基因组结构与功能研究为切入点，充分运用现代分子病毒学、分子生物学、免疫学、传染病学、生物信息学等方面研究成果和综合知识、从事新型基因工程等研究。”细思恐极，人民网你为什么要删除呢，你不是有四个自信吗?!
+
+07/09/2020金宁一博士到西北农林科技大学指导了“家畜生物学国家重点实验室(培育）方案、P3实验室建设方案及国家十四五重大科研项目申报等工作”，04/12/2020到桂林医学院讲话“期待加强病毒学及生命领域相关基础研究、在生物安全防护实验室建设方面有所合作”。这也验证了文贵先生去年爆料，中共不仅在海外援建P3实验室，而且在国内也大量建设P3实验室。
+
+闫丽梦科学家曾警告过世界:留给人类的时间已经不多了！人类生死存亡的关键节点不要白白再错过，金宁一博士的钥匙是解药吗？解铃还须系铃人！
+
+[http://ybunews.ybu.edu.cn/info/1002/1130.htm](http://ybunews.ybu.edu.cn/info/1002/1130.htm)
+
+[http://www.ybu.edu.cn/info/1054/2492.htm](http://www.ybu.edu.cn/info/1054/2492.htm)
+
+[https://mgmt.glmc.edu.cn/kjc/info/1098/2783.htm](https://mgmt.glmc.edu.cn/kjc/info/1098/2783.htm)
+
+[http://iz.jlu.edu.cn/info/1113/1177.htm](http://iz.jlu.edu.cn/info/1113/1177.htm)
+
+
+
+> Each day we get closer to the truth as we uncover more and more information about the [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) and its laboratory origin. [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/RO1Z2iUidA](https://t.co/RO1Z2iUidA)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 21, 2021](https://twitter.com/LawrenceSellin/status/1384944974832279560?ref_src=twsrc%5Etfw)
+
+
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpeg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
