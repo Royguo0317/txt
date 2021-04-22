@@ -1,39 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】中共极权法治侮辱人民，点餐浪费者将被收取厨余垃圾处理费
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1128276/)
+## 英国将对中共的援助开支削减95%
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1128423/)
 
-香草山农场写作组4组 唯心力行
+俄罗斯莫斯科喀秋莎农场   银河
 
-据中国人大网4月22日消息，反食品浪费法草案二次审议稿将提请4月26日召开的十三届全国人大常委会第二十八次会议审议。草案二次审议稿主要修改内容为：明确国务院发展改革部门的组织协调职能，增强对造成明显浪费的消费者收取处理厨余垃圾处理的可操作性，县级以上地方政府市场监督管理部门或者县级以上地方人民政府指定的部门实施处罚。
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/B-35.jpg)techbyn.com
+《每日邮报》报道，英国外交大臣多米尼克·拉布(Dominic Raab)今天透露，英国将把对中共的援助开支削减95%，并将剩下的钱用于支持民主活动。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-57.png)
+外交大臣拉布说官方发展援助(ODA)基金从1800万英镑减少到90万英镑。他在给议会的一份书面声明中说，剩余的资金将用于“资助开放社会和人权的项目”。中英关系就中共对待维族穆斯林种族灭绝罪行和对前英国领土香港人权的暴力镇压和公然撕毁“一国两制”的承诺后而日益冷淡。
 
-中共使用诈术窃取政权，其统治手腕无非是秦帝国“愚民、弱民、疲民、辱民、贫民“商鞅驭民五策的现代版。中共的“依法治国”沦为驭民之术，极权法网越织越密。共党自诩为“政治机关”，领导立法而不受法律制约。反食品浪费法规定，民众大吃大喝要罚款，餐饮业者诱导消费要罚款；点餐浪费收取厨余垃圾费。
+拉布透露官方发展援助声明的细节，该声明阐述了英国如何将预算从占国民总收入的0.7%削减至0.5%。英国在2021/22年度的对外援助预算将低于100亿英镑，预计将达到99.85亿英镑，大大低于近年来的150亿英镑。
 
-中共的极权统治精于制造事端，把绳索套到老百姓脖子上，然后逐步拉紧，立法阴谋屡试不爽。制定反食品浪费法，既可以把将要到来的粮食危机归咎于老百姓，又可以通过新增收费搜刮百姓。官家一口酒，百姓一月粮，百姓哪舍得浪费半点粮食。极权法网的“法治”以践踏人民权利为目标，愚民、弱民、疲民、辱民、贫民，以永续共匪“江山”，世代奴役人民。
+拉布在声明中表示，“由此产生的投资组合标志着一个战略转变，使我们的援助预算与我们的外交网络、我们的科学技术专长和我们的经济伙伴关系一起应对全球挑战。”
 
+上月，9位鹰派人士，外加4家英国机构因公开指责中共侵犯人权而遭到中国共产党政权的攻击。几周前，中共驻英国大使被召见，要求其解释中共对批评中共政权的英国议员和学者实施的报复制裁。
 
+英国首相鲍里斯·约翰逊(Boris Johnson)表示，他“坚定地”支持这一针锋相对的举动。英国、美国、加拿大和欧盟联合对侵犯新疆维吾尔穆斯林人权的中共官员实施了制裁。
 
-校对、发稿 奇门遁甲
+参考链接：
 
-信息来源：
+[https://www.dailymail.co.uk/news/article-9496389/Britain-slashes-aid-China-95-1million-amid-Uighur-Hong-Kong-rows.html](https://www.dailymail.co.uk/news/article-9496389/Britain-slashes-aid-China-95-1million-amid-Uighur-Hong-Kong-rows.html)
 
-[http://www.npc.gov.cn/npc/c30834/202104/8afb240bdb1c48b792ea5e438612716c.shtml](http://www.npc.gov.cn/npc/c30834/202104/8afb240bdb1c48b792ea5e438612716c.shtml)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
-
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![](https://mail.google.com/mail/u/0?ui=2&amp;ik=6ac942a4c5&amp;attid=0.1.1&amp;permmsgid=msg-f:1697211554661162166&amp;th=178db4eab0445cb6&amp;view=fimg&amp;sz=s0-l75-ft&amp;attbid=ANGjdJ9lR4kCdi5-o7AzTx8H-CjyV87W5Tfjp67_tF2rq3mm2-VRvLZTOk-pU1IIXVWrJjYwHwfKq3R1z4CjGqMqGGHSQMnmkKEWpAf8jBpWnHDAomCy48AAAK4FdYI&amp;disp=emb)
 0

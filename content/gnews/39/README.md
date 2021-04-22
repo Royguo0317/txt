@@ -1,51 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】极权法网密织：特斯拉维权事件只是中共数据安全法出台前的热身
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1127558/)
+## 美国《2021战略竞争法》第241节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1127680/)
 
-作者：纽约香草山写作四组 唯心力行
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-39.jpg)sputniknews.com
+**“副标题C——应对中共国的区域战略”**
 
+本节开始进入“标题1——未来竞争的投入”的“副标题C”部分。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+要点：美国国会的政策要应对中共国的重大外交、经济和军事挑战，制止中共国的军事侵略，打击中共国政府采用的掠夺性的经济做法，结束中国共产党对持不同政见者、维吾尔族和其他穆斯林少数民族、藏传佛教、基督教徒和其他少数民族的镇压，反对中共散布的有关中共病毒的虚假信息。
 
+第241节 就中共国问题，与全世界各盟国和伙伴进行合作的政策声明
 
+这是美国的政策-
 
-据中（共）国人大网4月22日消息，全国人大常委会法工委发言人臧铁伟表示，常委会于2020年6月第二十次会议对《数据安全法》草案进行了初次审议。提请2021年4月常委会会议审议的草案二次审议稿主要修改内容包括：完善草案文本数据安全等用语，完善数据分级、分类和重要数据保护制度，充实数据出境安全管理规定。
+（1）加强与欧洲和全球志同道合国家的联盟和伙伴关系，以便有效地与中共国竞争；以及
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-399.png)人大网新闻截图
+（2）与这些盟友和伙伴合作-
 
-中共极权的行为特征是谋略，其早在几年前就开始精心策划《数据安全法》地出台和推行。对照立法建议稿、草案一审稿和二审稿，中共极权野心不断膨胀。携《港版国安法》之威，《数据安全法》要确立中共法律域外的管辖权，要让所有在华有业务的外国人、企业和一切组织匍匐于中共“法治”淫威之下，《数据安全法》成为中共谋求政治、经济和文化全球霸权的利器。
+（A）应对中共国的重大外交、经济和军事挑战；
 
-这次特斯拉消费者维权事件就是中共精心策划地针对特斯拉地数据豪夺和知识产权盗窃的《数据安全法》演练。特斯拉女车主坐车顶维权，刚好就有专业“记者”记录并第一时间诉诸媒体，联想到中共强大的控制力，再对比其他维权事件，幕后推手昭然若揭。该女士拒不提供事发时的行车记录，反而要求特斯拉公开事发半个小时前的所有数据。该女士的主张对自己的利益最大化没有帮助，而使特斯拉的核心利益处于极度危险的境地。数据是特斯拉的生命线，夺走数据就是夺走特斯拉的创新成果，夺走特斯拉的中（共）国市场，压缩特斯拉的国际市场。
+（B）制止中共国的军事侵略；
 
-中共只要有《数据安全法》就可以为所欲为。该法规定：被中共认定所谓“危害中（共）国国家安全和公共利益、损害中（共）国公民或组织合法权益的数据活动”，中共“有权追责”境外组织或个人；中共警察或国安机构需要调取数据时，有关组织、个人应当予以配合。如此看来，即使是配合臣服中共的外国企业也不能幸免，只要是在中（共）国境内营业的公司，都要通过中共指定的“认证机构”对网络安全的认证。中共的数据安全就是让所有人不安全。
+（C）促进根据国际法和平解决领土争端；
 
-参考阅读：
+（D）促进私营部门主导的长期经济发展，同时打击中共国政府采用的掠夺性的经济做法，作为印度洋-太平洋地区及以外地区政治和经济胁迫手段的努力；
 
-[【墙内热搜】中共政法委一声大喝，马斯克的特斯拉颤抖道歉](https://gnews.org/zh-hans/1125151/)
+（E）促进民主和人权的价值观，包括通过努力结束中国共产党对持不同政见者、维吾尔族和其他穆斯林少数民族、藏传佛教、基督教徒和其他少数民族的镇压；
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+（F）应对中国共产党的镇压，他们违反了1984年的《中英联合声明》（the Sino-British Joint Declaration）和《香港基本法》（the Basic Law of Hong Kong）所作出的承诺，违背了香港人民的合法愿望；
 
-编辑/校对/发稿：Irene木木
+（G）反对中国共产党在中共国境内外散布虚假信息的企图，这些虚假信息都是中国共产党有关中共病毒的谣言。
 
-**更多资讯，更多关注**
+（本节完）
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+原文链接：
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+文字整理：
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+Subtitle C—Regional Strategies to Counter the People’s Republic of China
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+SEC. 241. STATEMENT OF POLICY ON COOPERATION WITH ALLIES AND PARTNERS AROUND THE WORLD WITH RESPECT TO THE PEOPLE’S REPUBLIC OF CHINA.
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+It is the policy of the United States—
 
+(1) to strengthen alliances and partnerships Europe and with like-minded countries around the globe to effectively compete with the People’s Republic of China; and
 
+(2) to work in collaboration with such allies and partners—
 
+(A) to address significant diplomatic, economic, and military challenges posed by the People’s Republic of China;
 
+(B) to deter the People’s Republic of China from pursuing military aggression;
+
+(C) to promote the peaceful resolution of territorial disputes in accordance with international law;
+
+(D) to promote private sector-led long-term economic development while countering efforts by the Government of the People’s Republic of China to leverage predatory economic practices as a means of political and economic coercion in the Indo-Pacific region and beyond;
+
+(E) to promote the values of democracy and human rights, including through efforts to end the repression by the Chinese Communist Party of political dissidents and Uyghurs and other ethnic Muslim minorities, Tibetan Buddhists, Christians, and other minorities;
+
+(F) to respond to the crackdown by the Chinese Communist Party, in contravention of the commitments made under the Sino-British Joint Declaration of 1984 and the Basic Law of Hong Kong, on the legitimate aspirations of the people of Hong Kong; and
+
+(G) to counter the Chinese Communist Party efforts to spread disinformation in the People’s Republic of China and beyond with respect to the response of the Chinese Communist Party to COVID–19.
 
 0

@@ -1,14 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 毒山压顶，特鲁多无耐顺民意紧急关闭对印巴之国门！
-` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1128383/)
+## ［音頻文章］今天惊爆全球的情报大料：中共有CCP病毒的解药！
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1127846/)
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/特鲁多莫迪.jpg)图片来源：163.com
+**作者： 雨后彩虹** **編辑：滴水穿石**
+
+**录音：Tommy ** **剪辑：知道**
+文贵先生爆料：中共有解药！
+今天（2021年4月21日），郭文贵先生在盖特视频中爆料说，中共有其研制的冠状病毒的解药，并且说冠状病毒是生化武器，所有的冠状病毒疫苗都是假的！这次爆料不但揭露了中共的秘密也彻底掀翻和中共勾兑的利益集团的老底，相信一定会激起世界范围更大的灭共高潮。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/CCPhasCure.jpg)
+（注：文章仅代表作者本人观点）
 
 
-据加拿大当地主要报刊《魁北克日报》（LE JOURNAL DE QUÉBEC）于4月22日发布的最新疫情局势消息称，由于印度和巴基斯坦的（中共病毒）疫情急剧恶化以及变种病毒的严重威胁，加拿大自由党政府紧急宣布将从当日晚间23：30起，拒绝和取消所有从上述两国飞抵加拿大的国际航班。而在该时刻之前抵达加拿大境内的乘客，将接受严格的（中共病毒）检测程序。该期限暂定为30天的禁飞法令之具体执行措施将在稍后时间对外公布。
 
-[原文链接](https://www.journaldequebec.com/2021/04/22/les-vols-provenant-de-linde-et-du-pakistan-seront-suspendus-pendant-30-jours)
+> [今天惊爆全球的情报大料：中共有CCP病毒的解药！](https://gnews.org/zh-hans/1124731/)
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/QRcode_GGB_v2.jpg)
+**欢迎战友加入旧金山金喜准农场**
+
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
+
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
+
+[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
 
 0

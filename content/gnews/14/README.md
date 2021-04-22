@@ -1,31 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 超级大国的实际能源政策
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1128103/)
+## 科顿议员提《农业情报措施法》防中共间谍
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1128373/)
 
-```
-新闻来源：德国世界报网络版  多名记者连名发表
-发布时间：2021年4月22日
-翻译 /整理/ 简评： Shuizhuyu
-```
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/A-31.jpg)desmoinesregister.com
+美国阿肯色州共和党参议员汤姆‧科顿（Tom Cotton）4月21日在个人网站更新了《农业情报措施法》法案，该法案旨在防止美国农业领域的技术创新落入外国，尤其是中共的手中。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-1-14-scaled.jpg)封面来源：renewables
+参议员汤姆·科顿和乔尼·厄恩斯特(爱荷华共和党)提出了《农业情报措施法案》，该法案力图在美国农业部内设立一个情报办公室，利用情报部门的资源，情报办公室可更好地保护美国农业免受中共等国家威胁。该法案指出，为了了解和应对来自外国的威胁，情报办公室还需要与情报界和美国国家实验室合作。
 
-美国和欧洲在雄心勃勃的环境目标上相互超越。 但是，您想在气候峰会上与俄罗斯和中（共）国这样的国家达成共识的现实程度如何？ 仔细观察表明，在困境中的不仅仅是总统乔·拜登。
+法案中提到，“中国共产党想通过破坏和窃取知识产权来破坏美国的重要产业，农业也不例外。我们的法案将帮助保护我们国家的繁荣和自由所依赖的食品和技术。”“长期以来，像中共这样的国家一直利用爱荷华州的农民——窃取知识产权并从事其他不法活动。这项法案将帮助保护我们爱荷华州乃至全国的农业社区，这样他们就可以继续他们的辛勤工作，为世界提供食物和燃料。”
 
-煤炭是前总统唐纳德·特朗普的核心。 他任命了一位煤炭游说者来领导EPA环保局，曾允许发电厂排放更多的污染物，甚至特朗普对绿色电力一无所知。 最重要的是，共和党拒绝了风力涡轮机。 他说，转子的旋转引发了癌症。
+这项措施名为《农业情报措施法》（Agricultural Intelligence Measures，简称AIM），将修订1994年《农业部重组法案》（Department of Agriculture Reorganization Act），如果该法案获得通过，或可在2021财政年度中获得97万美元的拨款。
 
-#### **简评：**
+科顿早在2020年9月30日便提出法案提议，今天他的办公室再次更新了这一声明。
 
-**今明两天就是拜登召集的全球气候峰会的时间，晚间欧洲就发出了这样的文章，配图是中美两国的国旗。气候问题，这个**是**中共国最想利用的机会。从前有乒乓外交，今天在中共四面楚歌之际，谈论气候是转移各界病毒追究，转移新疆人权问题的最后机会。中共能得逞吗？中共几十年来跟世界签署的各种协议呀合约呀，有兑现的吗？香港的承诺在执行不到一半时间就说是过时了。换句话说，中共妄想一手遮天，不仅在国内要说了算，还要在全球说了算。它说什么协议有效就有效。这都是全世界纵容的。在这样的峰会上，中共骗人伎俩还能继续吗？相信全世界纵容中共的日子要结束了。 **
-（本文只代表作者观点， 与 Gnews平台无关。 ）
+参考链接：
 
-**新闻来源链接：**🔗[Die wahre Energiepolitik der Supermächte](https://www.welt.de/politik/ausland/plus230580913/Klimagipfel-Die-wahre-Energiepolitik-der-Supermaechte.html)
+[https://www.cotton.senate.gov/news/press-releases/cotton-ernst-introduce-bill-to-protect-american-agriculture-from-chinese-espionage](https://www.cotton.senate.gov/news/press-releases/cotton-ernst-introduce-bill-to-protect-american-agriculture-from-chinese-espionage)
 
-* * *
-
-***编辑整理/校对：**Ting Guo*
-
-+1
+0

@@ -1,25 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美对缅甸两家国有企业实施新制裁
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1128385/)
+## 【各抒己见】店主：最近瓜子好卖
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1127152/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：喜马拉雅东京樱花团 / 待命（文晓）
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/M-15.jpg)medcom.id
-路透社消息，美国周三又对缅甸的两家国有企业实施了制裁，并表示将采取进一步行动。这是缅甸军事政变后一系列惩罚性行动的最新一例。
+![](https://lh6.googleusercontent.com/ihDtj6h314dEhT9ohlDe4FTvq9Hwpp0Ed9va2pLIGw4sctD5LuCJ9OXyQ6_JGHK4ehppeO3xgqUMd-lomoKeCTXDgxXmOClQlw-twaMC0EZW1RHlVJKq__aUXxf10BBWZ7xHkrkh)
+[图片来源](https://www.google.com/search?q=%E5%97%91%E7%93%9C%E5%AD%90%E7%9A%84%E6%97%A5%E6%9C%AC%E4%BA%BA&amp;tbm=isch&amp;ved=2ahUKEwiGnL7MxYzwAhVC95QKHc-hAE4Q2-cCegQIABAA&amp;oq=%E5%97%91%E7%93%9C%E5%AD%90%E7%9A%84%E6%97%A5%E6%9C%AC%E4%BA%BA&amp;gs_lcp=CgNpbWcQA1Cr6QRY4PYEYPn7BGgAcAB4AIABzQGIAZQFkgEFNC4xLjGYAQCgAQGqAQtnd3Mtd2l6LWltZ8ABAQ&amp;sclient=img&amp;ei=c6N-YMaWGMLu0wTPw4LwBA&amp;bih=599&amp;biw=1280&amp;rlz=1C1SQJL_jaJP828JP828#imgrc=yEk57SQC9aEhBM)
 
-美国财政部在一份声明中说，它对缅甸木材企业(MTE)和缅甸珍珠企业(MPE)实施了制裁，并补充说，珍珠和木材行业是缅甸军方的经济资源。
+一位经营中华食材店的人说：最近瓜子好卖了。在日华人都知道，嗑瓜子是中国人特别是中国北方人的喜好。日本人原本没有嗑瓜子的习惯，但随着中日联姻越来越多，笔者认识的人中就有受了从中国娶过来的媳妇的影响，日本丈夫也开始嗑瓜子儿了。
 
-自今年2月缅甸军政府从昂山素季(Aung San Suu Kyi)当选的政府手中夺取政权以来，这个东南亚国家一直处于危机之中。缅甸军政府几乎每天对民主人士的抗议活动进行镇压，迄今为止，已有738人在缅甸安全部队血腥镇压中身亡杀，3300人被拘留，另有20人被判处死刑。
+在中国，提到嗑瓜子儿，那说道可多了。有葵花子（毛嗑儿）、冬瓜子、西瓜子、南瓜子、甜瓜子、黄瓜子、松子等等多种，这位店主说的是葵花子。
 
-美国国务卿布林肯(Antony Blinken)在一份声明中说：“我们将继续支持缅甸人民拒绝这场政变的努力，我们呼吁缅甸军政府停止暴力，释放所有被不公正拘留的人，并恢复缅甸的民主道路。”同时指出，华盛顿将继续针对军政府的资金渠道采取行动。
+嗑瓜子有几大好处：
 
-国际非营利组织环境调查署(Environmental Investigation Agency)表示：“对缅甸木材企业实施的制裁是对军政府的重大打击，军政府直接受益于该国宝贵的、正在减少的森林。”此举意味着缅甸的木材或木材产品不能出口到美国，也会削弱腐败官员的力量。
+1、瓜子富含脂肪，能够润肠通便。
 
-参考链接：
+2、嗑瓜子能为机体补充锌、硒、锰等微量元素，从而促进体内的代谢调节。
 
-[https://www.reuters.com/world/asia-pacific/us-blacklists-two-myanmar-military-controlled-companies-us-treasury-2021-03-25/](https://www.reuters.com/world/asia-pacific/us-blacklists-two-myanmar-military-controlled-companies-us-treasury-2021-03-25/)
+3、瓜子所含不饱和脂肪酸，能促进大脑细胞膜的正常的代谢，益智作用明显。
+
+嗑瓜子也有坏处：
+
+1、就是容易引起过多能量的摄入，进而会引起高脂血症，加重肥胖的发生。
+
+2、长期嗑瓜子儿会损坏牙齿。
+
+问店主突然瓜子好卖了，是什么原因呢？店主的回答跟我的猜测不谋而合，中共病毒把人们都关在了家里，憋得嗑瓜子儿打发时间就是原因。当然，店主说归说，心里应该是窃喜生意兴隆的。中共病毒已经在日本时而潮起时而潮落的蔓延了一年多了，失业的、业务量骤减的、居家办公的人随之越来越多。平时奔波于家和公司之间两点一线的上班族，中共病毒刚开始流行时，包括我本人在内，恐惧中掩着一丝欢喜——终于不用每天赶时间上班了，可以睡到自然醒了，而且托福于日本政府的补贴，工资照发不误。但是去年的3月，除了坚持听郭文贵先生直播的爆料革命战友之外，几乎没人能料到这是场人为的灾难，更没人知道这场灾难要持续多久。不除掉中共这个邪恶政权，这场人类大灾难就会一直持续下去！
+
+嗑瓜子儿本是中国人的传统习惯，是嗑着瓜子儿，喝着茶，聊着天儿的悠闲。中共病毒使嗑瓜子儿成了一种无奈，成了无聊的打发时间。在中共病毒笼罩下的没有嗑瓜子儿习惯的日本，瓜子儿开始畅销，是否意味着嗑瓜子儿已不再仅仅是在日中国人的独享，嗑瓜子儿的日本人，或者其它国家的人也会越来越多了呢？这场灾难，改变了人类的出行习惯、工作习惯、生活习惯、饮食习惯等等，难以预测最终将会是多大规模的灾难。新中国联邦，爆料革命，正在竭尽全力，结束这场灾难。
+
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+
+*校对：喜马拉雅东京樱花团 / 東洋武士*
+*责任编辑：喜马拉雅东京樱花团 / 文小白*
+*发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/二维码-1.jpg)
+0420C104c
 
 0

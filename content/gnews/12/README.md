@@ -1,30 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 余兴龙简历显示 中共早在1992年就开始分离蝙蝠病毒
-` 文怡 加拿大多倫多楓葉農場` [轉載自GNews](https://gnews.org/zh-hans/1128176/)
+## 共和党领导人要求美国集团提供与COVID-19起源调查中心的中国实验室相关的信息
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1128380/)
 
-4月22日，劳伦斯-塞林博士（Dr. Lawrence Sellin）发推揭露长春军事兽医研究所可能是个生物战中心，配图中有中国人民解放军军事医学科学院军事兽医所研究员涂长春（Changchun Tu)。
-
-
-
-> The Institute of Military Veterinary Medicine in Changchun may have been a biowarfare center where secret experiments were conducted on Zhoushan viruses ZC45 & ZXC21 after they disappeared from the scientific literature between 2018-2020.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Covid](https://twitter.com/hashtag/Covid?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/HKlvmn1B7x](https://t.co/HKlvmn1B7x)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 22, 2021](https://twitter.com/LawrenceSellin/status/1385282778133143559?ref_src=twsrc%5Etfw)
+- 翻译：蚂蚁兄弟
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-经战友指点，笔者发现了一位多次与涂长春合作研究的、目前为湖南农业大学教授的余兴龙。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1094.png)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1086.png)
-[简历](https://baike.baidu.com/item/%E4%BD%99%E5%85%B4%E9%BE%99)显示，早在1992年至1995年，余兴龙在广州军区军事医学研究所工作期间，就进行了蝙蝠病毒分离研究。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1087.png)
-1997年起，余兴龙与涂长春合作的中英文论文达几十篇之多。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1088.png)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1089.png)
-可见无论余兴龙在哪个城市、哪个单位工作，都有着军方背景，可以跨地域与其他中共军方人员共同研究并合作论文。
+**西班牙2021年4月22日电/西喜社——**
 
-而涂长春如劳伦斯-塞林博士所说，确实是中共军方背景。有[报道](http://scitech.people.com.cn/n/2014/0627/c1007-25206760.html)显示，2014年他就在云南蝙蝠体内检测出了新型SARS（非典型性肺炎）样冠状病毒。真是细思极恐！！！
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1091.png)
-这些事实验证了中共进行超限生物战是军方直接参与的、长期计划并实施的。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/潘多拉盒子2.jpg)
-余兴龙这样的中共帮凶还在象牙塔里荼毒懵懂、年少的学生，而学生父母们在不知不觉中把充满希冀的下一代送入了为中共卖命的科学狂人魔爪之下。可见中共一日不除，中国人就一日活在邪魔恶党的阴影中，未来也会被无情地摧残。
+华盛顿 – 众议院“能源和商业委员会”共和党领袖 凯西-麦克莫里斯-罗杰斯、“卫生小组委员会”共和党领袖 布雷特-格思里（R-KY）和“监督和调查小组委员会”共和党领袖 摩根-格里菲斯（R-VA）周五下午致函 “生态健康联盟”（EHA）的彼得-达扎克博士，要求提供可能有助于全面调查COVID-19起源的信息和文件。
+
+委员会共和党人要求进行彻底和独立的调查，以了解更多关于该大流行病是如何开始的。
+
+生态健康联盟与武汉病毒研究所（WIV）长期合作研究蝙蝠冠状病毒，EHA是WIV的八个国际合作者中唯一的美国合作伙伴。此外，几年来，EHA还与WIV分享其从美国国家卫生研究院获得的部分资金。
+
+“我们相信，通过其研究活动、合作以及EHA与WIV作为联邦奖次接受者的关系，EHA拥有的信息和文件将为WIV的蝙蝠冠状病毒信息和该领域的进一步研究提供启示”，信中说。
+
+美国国立卫生研究院于2020年7月暂停了对EHA的拨款，直到其与WIV的工作达到某些条件。然而，似乎EHA并没有与NIH合作，因为该拨款仍显示被暂停。
+
+EHA一直坚持认为，“实验室泄漏不是冠状病毒大流行的原因”。信中说：“由于EHA确信实验室泄漏不是原因，我们希望你们有机会分享你们拥有的与WIV的蝙蝠冠状病毒研究有关的任何或所有信息、文件和专业知识。”且领导人要求在2021年5月17日之前将这些信息移交给委员会。
+
+注：这一要求是在罗杰斯、格里菲斯和格思里领导人致信美国国家卫生研究院后提出的，要求提供更多信息，并要求开始进行独立的科学调查。
+
+**点评：**
+
+**大规模的瘟疫已经促成了国际格局的新次序。中共无法给人可以信服的答案。无可厚非的是，世界各国都需要向中共索要关于本次“中共病毒”的所有文件和相关信息，遭到中共拒绝后，这些曾与中共的武汉病毒研究所有关联单位或组织，都需要出来作证或提供原始资料，更何况“武毒所”相关项目的捐助人，是在用美国纳税人的钱去残害美国人，这笔帐美国人民是不会善罢甘休的。**
+
+**最荒谬的是，中共当局还想改写今天的历史，让全世界赞扬中共的防疫成就，想用“完美犯罪”掩盖所有的证据，想用疫苗和救援物资为自己再次扩展世界政治蓝图，同时也要达到削弱美国的目的。但是这个算盘打错了，正义终究会战胜邪恶，追责势在必行！别忘了，七哥还说过，“疫苗是骗人的，中共有解药”！**
+
+审核：Aries的星；校对：阿伯塔；发稿：信心的选择
+
+新闻来源：[https://republicans-energycommerce.house.gov/news/ec-republican-leaders-request-information-from-u-s-group-affiliated-with-chinese-lab-at-center-of-covid-19-origin-investigation/](https://republicans-energycommerce.house.gov/news/ec-republican-leaders-request-information-from-u-s-group-affiliated-with-chinese-lab-at-center-of-covid-19-origin-investigation/)
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+
+
 
 0

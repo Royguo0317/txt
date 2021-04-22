@@ -1,41 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 谁在非洲吃饭
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1127728/)
+## 余兴龙简历显示 中共早在1992年就开始分离蝙蝠病毒
+` 文怡 加拿大多倫多楓葉農場` [轉載自GNews](https://gnews.org/zh-hans/1128176/)
 
-```
-新闻来源：意大利共和国报（La repubblica）
-发布时间：2021.04.21
-翻译整理/简评：斩草要除根
-```
+4月22日，劳伦斯-塞林博士（Dr. Lawrence Sellin）发推揭露长春军事兽医研究所可能是个生物战中心，配图中有中国人民解放军军事医学科学院军事兽医所研究员涂长春（Changchun Tu)。
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image1-55-scaled.jpg)封面来源：新浪看点
 
-一家名为Land Matrix的非政府组织在最新报告写到，在过去二十年中，非洲大陆的3500万公顷（意大利略多于3000万公顷）已出售给外国公司，亚洲、欧洲、阿联酋、黎巴嫩和美国等群体主要开采森林，为环境带来巨大风险，我们想要知道的是投资者是谁，他们在哪里投资以及他们生产了什么？
+> The Institute of Military Veterinary Medicine in Changchun may have been a biowarfare center where secret experiments were conducted on Zhoushan viruses ZC45 & ZXC21 after they disappeared from the scientific literature between 2018-2020.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Covid](https://twitter.com/hashtag/Covid?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/HKlvmn1B7x](https://t.co/HKlvmn1B7x)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 22, 2021](https://twitter.com/LawrenceSellin/status/1385282778133143559?ref_src=twsrc%5Etfw)
 
-#### 简评：
 
-非洲大片的可耕土地成为一些国家的垂涎目标，近些年来，纷纷在非洲租赁或购买土地，被舆论称为“抢地”（Land grabbing）运动，中共国也加入到这个运动当中。
 
-截至2021年01月同中共国签署“一带一路”合作文件的非洲国家已增至45个，目前中资企业遍布非洲，正在不断壮大，中共国的伐木工、矿工、农民和商人，以及几百万美元投资的基础设施项目都迅速成为非洲大陆的普遍特征，中共政府赞助中共国企业去非洲购买大量土地，埃塞俄比亚、苏丹、马达加斯加、利比里亚。在非洲，有钱的投资者排成长队，他们的目标是购买土地，农用地。
+经战友指点，笔者发现了一位多次与涂长春合作研究的、目前为湖南农业大学教授的余兴龙。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1094.png)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1086.png)
+[简历](https://baike.baidu.com/item/%E4%BD%99%E5%85%B4%E9%BE%99)显示，早在1992年至1995年，余兴龙在广州军区军事医学研究所工作期间，就进行了蝙蝠病毒分离研究。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1087.png)
+1997年起，余兴龙与涂长春合作的中英文论文达几十篇之多。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1088.png)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1089.png)
+可见无论余兴龙在哪个城市、哪个单位工作，都有着军方背景，可以跨地域与其他中共军方人员共同研究并合作论文。
 
-中共国企业在非洲非法砍伐木材的消息经常被外国媒体报道，法国多家媒体有报道过中共国企业在莫桑比克非法砍伐木材，大规模的非法砍伐活动严重威胁莫桑比克的热带雨林，多个稀少品种都濒临绝种。另外还包括非洲的几内比绍，喀麦隆，冈比亚，刚果民主共和国，非法砍伐的木材其中有超过一半流入中共国，在中共国的港口，大量的原木被卸载，据估算，2017年仅通过张家港进口的木材就增加了60%以上。
+而涂长春如劳伦斯-塞林博士所说，确实是中共军方背景。有[报道](http://scitech.people.com.cn/n/2014/0627/c1007-25206760.html)显示，2014年他就在云南蝙蝠体内检测出了新型SARS（非典型性肺炎）样冠状病毒。真是细思极恐！！！
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1091.png)
+这些事实验证了中共进行超限生物战是军方直接参与的、长期计划并实施的。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/潘多拉盒子2.jpg)
+余兴龙这样的中共帮凶还在象牙塔里荼毒懵懂、年少的学生，而学生父母们在不知不觉中把充满希冀的下一代送入了为中共卖命的科学狂人魔爪之下。可见中共一日不除，中国人就一日活在邪魔恶党的阴影中，未来也会被无情地摧残。
 
-中共国在非洲大量的购买农业用地，仅2019年中共国在喀麦隆购买土地的总面积已达到约12.5万公顷，数百上千万公顷的农田已经易主。中共与非洲多个国家签署了农业合作协议，其在非洲的农业投资描述为企图或努力获取非洲大量土地、安置大量中共国农民就业、将农产品出口供给中共国市场，以应对中共国国内日渐低迷的农业生产。比如说中共国在赞比亚，津巴布韦，乌干达，坦桑尼亚，建立的实验农场，并在刚果获得几百万公顷耕地，兴建世界最大的棕榈油生产基地。专家估计，大约100万中国人在非洲从业，而非洲面临着或许是自殖民时期以来规模最大的土地所有权变更。
-
-中共国声称与非洲共建“一带一路”所致力实现的愿望是消除贫困、改善民生、推动经济发展，现在越来越多的非洲国家开始意识到这本质上是一场“新殖民主义”的掠夺。明白的中国人都知道，在中共眼里根本不存在“互惠互利”之说，不择手段、唯利是图是它的本质，再美丽的画皮也藏补助其着丑陋的真面目。
-（本文仅代表译者个人观点，跟GNEWS平台无关。）
-
-**新闻来源链接：**
-🔗[Chi si è mangiato l’Africa: in 20 anni ceduti a società straniere 30 milioni di ettari di terra](https://www.repubblica.it/esteri/2021/04/21/news/africa_negli_ultimi_vent_anni_cedute_a_societa_straniere_30_milioni_di_ettari_di_terra-297088369/?ref=RHTP-VS-I287621970-P16-S6-T1)
-**参考文献链接：**
-【1】🔗[从马达加斯加到莫桑比克中国在非洲走私木材何时了？](https://www.rfi.fr/cn/生态/20170818-从马达加斯加到莫桑比克中国在非洲走私木材何时了)
-【2】🔗[中国向外寻找耕地](http://www1.rfi.fr/actucn/articles/121/article_19066.asp)
-
-* * *
-
-***编辑整理/校对：**Ting Guo*
-
-+3
+0
