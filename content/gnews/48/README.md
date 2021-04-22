@@ -1,37 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧洲的主要气候目标使中美蒙羞
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1126717/)
+## 中共鼓励检举只为掌控定义历史的标准
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1126870/)
 
-```
-新闻来源：世界报 网络版
-发表时间：2021年4月22日
-翻译/ 整理/ 评论： Shuizhuyu
-```
+作者：文明明| 校对：仙女儿-文善| 审核：宁缺| Page：小六月
+
+[!\[\]()!\[\](https://spark.adobe.com/page/aQm1yQnUoLKxJ/images/59d332cd-0943-44c7-bb81-5f3579d3d5cb.jpg?asset_id=c873e8f0-3f04-421c-89f2-1e34fb09f83c&amp;img_etag=%2266dd6fa7368fedcd45e837af9e6ce582%22&amp;size=2560)](https://spark.adobe.com/page/aQm1yQnUoLKxJ/images/59d332cd-0943-44c7-bb81-5f3579d3d5cb.jpg?asset_id=c873e8f0-3f04-421c-89f2-1e34fb09f83c&amp;img_etag=%2266dd6fa7368fedcd45e837af9e6ce582%22&amp;size=1024)
+
+据《零对冲》报道，中共推出了一个鼓励老百姓在互联网上举报“异见”人士的App。这个新App主要是针对任何批评中共独裁统治、质疑官方版本历史，以及任何所谓的“歪曲事实和混淆视听”的“恶意”人士。
+
+中共网络管理局（CAC）在它们的官网上推出该App时还恬不知耻地公告说：一段时间以来，一些别有用心的人在网上散布历史虚无主义的错误言论，恶意歪曲、诽谤和否认党史、国史和军史，企图混淆人们的思想。呼吁网民在社会监督中发挥积极作用，并热情地举报有害信息。
+
+首先，对这些“党史、国史和军史”的研究和探讨是属于学术范畴，有不同的见解和新的发现本来就是这些“史”学家的工作。如果不允许这些“史”学家或其他研究人员对这些历史进行查证、发表不同于官方的见解，那么是不是说明这些所谓的历史本来就经不起深究和考证呢？如果那些官方认定的历史是事实的话，又何惧“别有用心”的人来歪曲呢？厉害国有那么强大的宣传机器和网络水军，对付“一些别有用心的人”完全绰绰有余，何必小题大做，要发动全网举报呢？难道中共已经害怕到连一点点的不同声音都容不下吗？
+
+其次，这种发动群众的做法多么似曾相识。在文革中，群众们不仅要“深挖灵魂”、“斗私批修”，还被发动起来检举周围的“阶级敌人”，弄得人人自危。朋友反目、夫妻检举、家人之间划清界限、大打出手，生怕自己显得不够“革命”。在害怕被人检举的恐惧中做着不齿的勾当，所以会有大名鼎鼎的薄熙来当众踢断老爸肋骨的“经典”之举。如今重新效仿文革，鼓励群众互斗恐怕也是他们之所以要多次篡改文革历史真相的原因之一吧。
+
+今年是中共建党100周年，中共已经在墙国内建起了一个繁琐的社会信用评分系统和强大的监控系统，如果人们有轻微的违规行为，如乱穿马路或购买过多的垃圾食品，就会被禁止使用交通工具，或被限制参与社会的其他活动。那么，在中共建党100周年前夕，为了保全他们执政的合法性，他们这些竭尽所能粉饰美化自己，想方设法掩盖丑行和血腥历史的举动也就不足为奇了。他们此举的目的就是想通过群众斗群众来控制社交媒体，来控制社会舆论，编造歪曲事实，掌控定义历史的标准，继续洗脑14亿人民来维持他们的苟延残喘。
+
+[新闻来源链接](https://www.zerohedge.com/technology/china-launches-new-app-allowing-citizens-report-others-expressing-mistaken-opinions?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/aQm1yQnUoLKxJ/images/20731c82-c86c-4bdc-baf1-6619c2b2f6d6.jpg?asset_id=60ea963b-9f8b-4518-a739-dd8004ce8558&amp;img_etag=%2236c4c7617401ded5021406bc5418d78d%22&amp;size=1024)](https://spark.adobe.com/page/aQm1yQnUoLKxJ/images/20731c82-c86c-4bdc-baf1-6619c2b2f6d6.jpg?asset_id=60ea963b-9f8b-4518-a739-dd8004ce8558&amp;img_etag=%2236c4c7617401ded5021406bc5418d78d%22&amp;size=1024)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/photo-output-1-scaled.jpg)封面来源： [ShareAmerica](https://share.america.gov/zh-hans/author/shareamerica/)
+编辑：【英国伦敦喜庄园编辑部】
 
-欧盟通过了一项新的气候计划。 正好赶上本周美国总统拜登（Joe Biden）邀请参加的大型峰会。 布鲁塞尔的“路线图要求如此之高，以至于其他国家的计划正在逐渐消失。 但是，批评家警告不要使用计算技巧。
+[!\[\]()!\[\](https://spark.adobe.com/page/aQm1yQnUoLKxJ/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/aQm1yQnUoLKxJ/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-直到周三上午五点，谈判人员终于达成协议。然后是未来几十年的欧盟气候保护路线图。欧洲议会和国家的代表在前一天晚上进行了谈判。这是过去几个月中许多会议的最后一次。在马拉松会议开始时，有关人员已经低声说要保证达成协议。因为欧盟别无选择。
 
-美国总统乔·拜登（Joe Biden）希望使气候保护成为他的总统职位的重点，这使欧洲面临来自外界的压力。他计划在周四和周五举行为期两天的虚拟气候峰会，来自世界各地的近40位国家元首和政府首脑将出席。除拜登外，中国国家主席习近平，德国总理默克尔（CDU）和欧盟委员会主席乌尔苏拉·冯·德·莱恩（Ursula von der Leyen）也将参加。
 
-#### **欧洲的气候政策为典范**
-
-拜登政府将此次峰会称为“地球日峰会”，旨在确保国际气候保护最重要的参与者在11月在格拉斯哥举行的联合国气候峰会COP26之前达成一致的雄心勃勃的目标。从白宫的角度来看，拜登也将在初次峰会上为COP26协议加盖印章这一事实无疑是一个积极的副作用。
-
-#### **简评：**
-
-**拜登邀请了世界上40多个国家的首脑召开所谓的地球日峰会。到了最终时刻，中共宣布，习总加速师应拜登的邀请参加这次大会。欧洲这篇新闻稿还把他捧成了座上宾。只有我们爆料革命的战友，跟随郭先生的战友知道，习总加速师是别无选择的，不能给世界把脉了，那最起码要谈谈气候嘛。今天是周四，今天和明天就是峰会的日程。让我们看看老习是怎么谈气候的，中共国的污染和排放废弃废水，是世界最严重和最恶略的。他有资格给别人把脉吗？要点脸面吧。 **
-本文只代表作者观点，与Gnews平台无关。
-
-**新闻来源链接：**🔗[Europas große Klimaziele beschämen China und die USA](https://www.welt.de/politik/ausland/article230565449/Klimagipfel-Europa-beschaemt-China-und-die-USA.html)
-
-* * *
-
-***审核/校对：**Ting Guo*
-
-+2
++1
