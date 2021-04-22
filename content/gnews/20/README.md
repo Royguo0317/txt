@@ -1,23 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 今年和去年人大闭幕未戴口罩者均是同样的40人说明什么？
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1127588/)
+## 美国《2021战略竞争法》第241节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1127680/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
-![]()![](https://gnews.org/wp-content/uploads/2021/04/22222_副本.jpg)
-在前文[通过去年人大闭幕口罩佩戴情况猜猜看谁有解药谁没有解药](https://gnews.org/zh-hans/1126812/)中我们通过视频比对找到了在2021年5月28日第十三届全国人民代表大会第三次会议闭幕会上没戴口罩的人共有40位，他们是：习近平、李克强、汪洋、王沪宁、赵乐际、韩正、栗战书、王岐山、王晨、曹建明、张春贤、沈跃跃、吉炳轩、艾力更·依明巴海、万鄂湘、陈竺、王东明、白玛赤林、丁仲礼、郝明金、蔡达峰、武维华、杨振武、丁薛祥、刘鹤、许其亮、孙春兰、李希、李强、李鸿忠、杨洁篪、杨晓渡、张又侠、陈希、陈全国、陈敏尔、胡春华、郭声琨、黄坤明、蔡奇。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-那么在2021年3月11日十三届全国人大四次会议闭幕会上又有哪些人没戴口罩呢？据央视新闻网2021年3月11日23：21发布的[十三届全国人大四次会议在京闭幕](https://baijiahao.baidu.com/s?id=1693949464965226679&amp;wfr=spider&amp;for=pc)发布的现场视频——
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-39.jpg)sputniknews.com
+**“副标题C——应对中共国的区域战略”**
 
-1’11”出场的大会主席团常务主席、执行主席王晨、曹建明、张春贤、沈跃跃、吉炳轩、艾力更·依明巴海、万鄂湘、陈竺、王东明、白玛赤林、丁仲礼、郝明金、蔡达峰、武维华、杨振武共15人未戴口罩；以及主席台成员习近平、李克强、汪洋、王沪宁、赵乐际、韩正、栗战书、王岐山共8人未戴口罩
+本节开始进入“标题1——未来竞争的投入”的“副标题C”部分。
 
-6’59”出场的丁薛祥、刘鹤、许其亮、孙春兰、李希、李强、李鸿忠、杨洁篪、杨晓渡、张又侠、陈希、陈全国、陈敏尔、胡春华、郭声琨、黄坤明、蔡奇共17人未戴口罩，这一次又是40人未戴口罩。
+要点：美国国会的政策要应对中共国的重大外交、经济和军事挑战，制止中共国的军事侵略，打击中共国政府采用的掠夺性的经济做法，结束中国共产党对持不同政见者、维吾尔族和其他穆斯林少数民族、藏传佛教、基督教徒和其他少数民族的镇压，反对中共散布的有关中共病毒的虚假信息。
 
-经核对，2021年与2020年人大闭幕会上没戴口罩人员名单完全一样，这说明了什么问题？这绝对不是巧合，这说明习近平、李克强、汪洋、王沪宁、赵乐际、韩正、栗战书、王岐山、王晨、曹建明、张春贤、沈跃跃、吉炳轩、艾力更·依明巴海、万鄂湘、陈竺、王东明、白玛赤林、丁仲礼、郝明金、蔡达峰、武维华、杨振武、丁薛祥、刘鹤、许其亮、孙春兰、李希、李强、李鸿忠、杨洁篪、杨晓渡、张又侠、陈希、陈全国、陈敏尔、胡春华、郭声琨、黄坤明、蔡奇这40个人极有可能就是有权力获得中共病毒解药的人，这40人之外的除了知道内幕的其他少数科学家之外全是二等贱民！
+第241节 就中共国问题，与全世界各盟国和伙伴进行合作的政策声明
 
-在不经意间发现的这个四十人名单意味着啥呢？它意味着在郭文贵先生爆出了中共病毒有解药的惊天秘密之后，这40个人等于是公开暴露出来的有解药的，在接下来的全世界都盯着共产党要解药的过程中，在郭先生关于共产党有解药的爆料在墙内被越来越多人知道以后，这40个人是最有可能被身边那些没有解药的贴身人员干掉的目标！
+这是美国的政策-
 
-（文章内容仅代表作者个人观点）
+（1）加强与欧洲和全球志同道合国家的联盟和伙伴关系，以便有效地与中共国竞争；以及
 
-+1
+（2）与这些盟友和伙伴合作-
+
+（A）应对中共国的重大外交、经济和军事挑战；
+
+（B）制止中共国的军事侵略；
+
+（C）促进根据国际法和平解决领土争端；
+
+（D）促进私营部门主导的长期经济发展，同时打击中共国政府采用的掠夺性的经济做法，作为印度洋-太平洋地区及以外地区政治和经济胁迫手段的努力；
+
+（E）促进民主和人权的价值观，包括通过努力结束中国共产党对持不同政见者、维吾尔族和其他穆斯林少数民族、藏传佛教、基督教徒和其他少数民族的镇压；
+
+（F）应对中国共产党的镇压，他们违反了1984年的《中英联合声明》（the Sino-British Joint Declaration）和《香港基本法》（the Basic Law of Hong Kong）所作出的承诺，违背了香港人民的合法愿望；
+
+（G）反对中国共产党在中共国境内外散布虚假信息的企图，这些虚假信息都是中国共产党有关中共病毒的谣言。
+
+（本节完）
+
+原文链接：
+
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+
+文字整理：
+
+Subtitle C—Regional Strategies to Counter the People’s Republic of China
+
+SEC. 241. STATEMENT OF POLICY ON COOPERATION WITH ALLIES AND PARTNERS AROUND THE WORLD WITH RESPECT TO THE PEOPLE’S REPUBLIC OF CHINA.
+
+It is the policy of the United States—
+
+(1) to strengthen alliances and partnerships Europe and with like-minded countries around the globe to effectively compete with the People’s Republic of China; and
+
+(2) to work in collaboration with such allies and partners—
+
+(A) to address significant diplomatic, economic, and military challenges posed by the People’s Republic of China;
+
+(B) to deter the People’s Republic of China from pursuing military aggression;
+
+(C) to promote the peaceful resolution of territorial disputes in accordance with international law;
+
+(D) to promote private sector-led long-term economic development while countering efforts by the Government of the People’s Republic of China to leverage predatory economic practices as a means of political and economic coercion in the Indo-Pacific region and beyond;
+
+(E) to promote the values of democracy and human rights, including through efforts to end the repression by the Chinese Communist Party of political dissidents and Uyghurs and other ethnic Muslim minorities, Tibetan Buddhists, Christians, and other minorities;
+
+(F) to respond to the crackdown by the Chinese Communist Party, in contravention of the commitments made under the Sino-British Joint Declaration of 1984 and the Basic Law of Hong Kong, on the legitimate aspirations of the people of Hong Kong; and
+
+(G) to counter the Chinese Communist Party efforts to spread disinformation in the People’s Republic of China and beyond with respect to the response of the Chinese Communist Party to COVID–19.
+
+0
