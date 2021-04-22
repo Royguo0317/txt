@@ -1,30 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 余兴龙简历显示 中共早在1992年就开始分离蝙蝠病毒
-` 文怡 加拿大多倫多楓葉農場` [轉載自GNews](https://gnews.org/zh-hans/1128176/)
+## 郭文贵先生近期盖特精要汇总-（4月20日、21日）
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1128290/)
 
-4月22日，劳伦斯-塞林博士（Dr. Lawrence Sellin）发推揭露长春军事兽医研究所可能是个生物战中心，配图中有中国人民解放军军事医学科学院军事兽医所研究员涂长春（Changchun Tu)。
+听写：乐禧禧，Jennifer珍妮弗|校对：CharlesS|Page：小六月
+
+[!\[\]()!\[\](https://spark.adobe.com/page/T0lNGMH8z4GnE/images/29f91f76-1bb2-4206-a356-5dd857ab9c60.jpg?asset_id=852ab818-b0c2-4dba-9627-0dfe5b715261&amp;img_etag=%229591ca766e5871796b9acb1d1d9c3786%22&amp;size=1024)](https://spark.adobe.com/page/T0lNGMH8z4GnE/images/29f91f76-1bb2-4206-a356-5dd857ab9c60.jpg?asset_id=852ab818-b0c2-4dba-9627-0dfe5b715261&amp;img_etag=%229591ca766e5871796b9acb1d1d9c3786%22&amp;size=1024)
+
+#### 郭文贵先生盖特精要-2021/04/20-001
+
+4月20号啊：尊敬的战友们好．美中刚刚想了环境天气的双休高潮后！共产党为什么又在这个病毒肆虐的时候．高调的开启BGY海南论坛，再再推出老妈咪．大老仟．王岐山出来公关？
+
+(习大神，三天不学习，赶不上王副主席）让习大神，睡不着的人！都必须要这样的冒险使用说明了什么？
+
+1.中(共)美谈共同治理环境，就像是对中共生死前的安慰。
+
+2.王岐山出来，是想要跟全世界继续勾兑、共同蓝金黄、共同割韭菜。
+
+3.王出现的另一理由：上海帮没有代表人了，也代表全世界都不相信习。
+
+4.习现在的文章都表现了他对世界的恐惧。
+
+5.王的出现说明了国内经济极度危险，外贸和国际关上中共遇到了最大的灾难 。
+
+6.美国跟中共谈环境是互相勾兑、互相有不可告人的秘密，在中共灭亡前麻痹它，给它一个幻想
+
+7.博鳌论坛就是BGY论坛，王岐山最懂BGY
+
+8.孟建柱出来第一站一定去中东，因土耳其、巴基斯坦、阿富汗所谓的反恐一条线，马六甲、苏尔世运河到埃及到中东一带一路是情报线、石油线、黑暗线。
+
+9.湄公河东南亚是孟建柱开辟的东南亚情报线、利益线、生死线、毒品线也叫黑线。
+
+10.习的文章是杨洁篪和身边姓梁懂国际形势的高手所写，但他写的东西绝对是砸习的，可见党内正话反说、反话正说、指鹿为马。共产党完球蛋了。
+
+11.王岐山的出场都是拿中国人的血汗钱、未来、生命作交换，并养中南坑的几个老杂毛。
+
+12.过去的新闻媒体到社交媒体，新闻媒体不属于个人但社交媒体属于个人的，所以我们的盖特， GTV ，GNews太重要了
+
+[链接](https://gtv.org/getter/607ee2cc8616c84f0ff1aed5)
+
+#### 郭文贵先生盖特精要-2021/04/21-001
+
+4月21日：今天文贵在这里向战友们爆大料！希望战友能广泛传播！这关系到人类的生命和安危⋯⋯和冠状病毒的真相！谁不看这个视频．将是巨大的损失谁不相信这个视频！谁就会像一年前一样．不相信氰氯喹能防病毒．和共产党制造了病毒⋯⋯一样受到伤害！
+
+1.今年是私人企业家噩梦的一年，和私人企业家通话， 哀嚎一片。听说王歧山在海南出席博鳌论坛，要把任志强、董宏病保，据说习已经同意。
+
+2.一盘大棋，你不知道而已。想骗爆料革命的，攻击咱战友的，像SEC、艾地波蒂、海根巴森，都会现形。我们要的是真正干掉CCP
+
+3.日本是爆料革命在亚洲最重要的基地，近百万的华人，对爆料革命、G系列、对爆料革命的传播信息，对国内战友的救助，那是一个战略基地。
+
+4.美日关系，没有新中国联邦不会到今天，日本不善于主动和美国打交到，我们新联邦可以帮他，我们有广大的资源。不可替代的情报能力，让他作出决定。同日本同样重要的国家，都会相继和CCP翻脸。他们只能作出两个选择：跟着CCP走进火葬场，跟着新中国联邦走向阳光。
+
+5.今年爆一个大料：文贵第一次说出来：不可能有疫苗！病毒就是生物武器，怎么可能有疫苗？科学家、国内情报，以及在欧洲的朋友明确告诉我们，共产党有解药！共产党想要掌握人类命运，他们在制作这个生物武器时就制作了解药。要想活下去，找共产党要解药。。只有主席台上的几个人有解药，不带口罩的都有解药，带口罩的都没有解药，因为你不被信任，告诉你有解药，传出去等于直接承认他造的病毒武器！
+
+[链接](https://gtv.org/getter/60803b0e8616c84f0ff20cf7)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-> The Institute of Military Veterinary Medicine in Changchun may have been a biowarfare center where secret experiments were conducted on Zhoushan viruses ZC45 & ZXC21 after they disappeared from the scientific literature between 2018-2020.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Covid](https://twitter.com/hashtag/Covid?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/HKlvmn1B7x](https://t.co/HKlvmn1B7x)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 22, 2021](https://twitter.com/LawrenceSellin/status/1385282778133143559?ref_src=twsrc%5Etfw)
-
-
-
-经战友指点，笔者发现了一位多次与涂长春合作研究的、目前为湖南农业大学教授的余兴龙。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1094.png)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1086.png)
-[简历](https://baike.baidu.com/item/%E4%BD%99%E5%85%B4%E9%BE%99)显示，早在1992年至1995年，余兴龙在广州军区军事医学研究所工作期间，就进行了蝙蝠病毒分离研究。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1087.png)
-1997年起，余兴龙与涂长春合作的中英文论文达几十篇之多。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1088.png)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1089.png)
-可见无论余兴龙在哪个城市、哪个单位工作，都有着军方背景，可以跨地域与其他中共军方人员共同研究并合作论文。
-
-而涂长春如劳伦斯-塞林博士所说，确实是中共军方背景。有[报道](http://scitech.people.com.cn/n/2014/0627/c1007-25206760.html)显示，2014年他就在云南蝙蝠体内检测出了新型SARS（非典型性肺炎）样冠状病毒。真是细思极恐！！！
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1091.png)
-这些事实验证了中共进行超限生物战是军方直接参与的、长期计划并实施的。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/潘多拉盒子2.jpg)
-余兴龙这样的中共帮凶还在象牙塔里荼毒懵懂、年少的学生，而学生父母们在不知不觉中把充满希冀的下一代送入了为中共卖命的科学狂人魔爪之下。可见中共一日不除，中国人就一日活在邪魔恶党的阴影中，未来也会被无情地摧残。
+[!\[\]()!\[\](https://spark.adobe.com/page/T0lNGMH8z4GnE/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/T0lNGMH8z4GnE/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

@@ -1,43 +1,93 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 花样防晒—GTV投资者抗议SEC的第十二天
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1127776/)
+## 美国《2021战略竞争法》第247节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1127886/)
 
-**作者：英国喜庄园 AN**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/SEC01.png)
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/CA-1.jpg)mytruenorthnow.com
+**第247节 加强与加拿大合作的战略**
 
-美东时间4月20日，GTV的投资者们在华盛顿DC的SEC总部举行抗议活动的第十二天。华盛顿DC的天气真是邪门，阴晴不定的，昨天室外寒风刺骨，今天却是艳阳高照最高气温直接窜到了24℃，太阳辐射更是厉害。
+（a）通常情况 — 不迟于本法颁布之日后90天，总统应向参议院外交关系委员会和军事委员会以及众议院外交事务委员会和军事委员会提交一份战略报告，说明美国将如何加强与加拿大政府在管控与中共国政府关系方面的合作。
 
-今天到SEC总部抗议的GTV投资者有近40人，来自全美各地，大多是熟悉的面孔，洛杉矶的，康州的，弗罗里达的，波士顿的等等。有离开的，又有新加入的。有一家人自开始抗议的第一天起就从外地赶来的一直在现场，这次连妈妈也来了；还有几位乘飞机来的投资者一直坚守阵地从未离开。一直在现场走来走去发传单的那位投资者，背着装传单的双肩包，一如既往地向路人派送传递真相的传单。帮投资者订餐、运输物资补给的几位男士投资者，依旧穿梭忙碌在现场和路上，还时不时地拿水送到投资者手中，贴心服务着……今天我为了保护投资者的隐私，省去了他们的名字，即使是网名，但我都记在心里了……
+（b）要素 —（a）款所规定的策略—
 
-今天我们依旧无声抗议，SEC依旧如缩头乌龟般悄无声息。除了抗议无耻的SEC，我们还要对抗华盛顿DC的阳光的高辐射。在抗议的现场，我已经发现有女士虽然也做了防晒措施，但裸漏的脖子已经晒伤了，开始有蜕皮的迹象了。现场更有几位男士不禁晒的，都快晒成黑人弟兄了，脖子和衣领之间明显的黑白分明，不容易……
+（1）确定美国和加拿大在处理与中共国的关系方面的主要政策的趋同点和分歧点，在技术、贸易、经济实践、网络安全、安全供应链和关键矿产以及非法麻醉品等领域的合作；
 
-今天在场的各位爱美的女士的各种防晒花式都出来了，看现场图片：
+（2）包括与加拿大同行的发展协调努力，以加强美国和加拿大在以下方面的合作—
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/SEC02.jpg)
+（A）管控与中共国的经济关系；
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/SEC03.jpg)
+（B）中共国的民主和人权；
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/SEC04.jpg)
+（C）涉及中共国的技术问题；
 
-每到SEC 上班时间，投资者也准时到达抗议；每到SEC吃饭或者下班的时间，我们也回去吃饭再回来。每次要走时，投资者们都会把现场的所有东西，条幅、座椅、宣传板都规整好带走，胶带都撕下来，哪怕一丁点的垃圾也不会留下。
+（D）涉及中共国的国防问题；以及
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/SEC05.jpg)
+（E）国际执法和跨国有组织犯罪问题。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/SEC06.jpg)
+（3）详述外交努力和未来与加拿大合作的计划，以对抗中共国在世界各地推行的独裁统治模式；
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/SEC07.jpg)
+（4）详细说明迄今为止的外交、国防和情报合作以及未来的计划，以支持加拿大努力寻找效益成本比高的、替代华为的5G技术；
 
-小蚂蚁大哥，也是自抗议以来一直坚守在阵地的投资者，就用他的话来来结束今天的无声抗议：只要SEC不把冻结的投资款返还，就会一直坚持到最后，绝不后后退！
+（5）外交和国防合作细节—
 
-*（文章仅代表作者观点，与GNews无关）*
+（A）推进美国和加拿大在北极地区负责任管理的联合优先事项；以及
 
-* * *
+（B）对抗中共国向北极地区施加政治、经济和军事影响的努力；以及
 
-*责任编辑：华盛顿DC农场 荧然
-编辑/校对：华盛顿DC农场 光之子(沙加)
-发布：华盛顿DC农场 YIMING（文鸣）*
+（6）详细说明与加拿大合作的外交努力，以跟踪和反击中共国试图在包括世界卫生组织在内的整个多边体系施加影响的企图。
+
+（c）形式 — 本节要求的战略报告应以非保密形式提交，可向公众提供，但必要时可包括保密附件。
+
+（d）咨询 — 国务卿应在本法颁布之日起90天内，且此后每隔180天，就本节所要求的战略的制定和实施与相应的国会委员会进行磋商。
+
+（本节完）
+
+原文链接：
+
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+
+文字整理：
+
+SEC. 247. STRATEGY TO ENHANCE COOPERATION WITH CANADA.
+
+(a) IN GENERAL.—Not later than 90 days after the date of the enactment of this Act, the President shall submit a strategy to the Committee on Foreign Relations and the Committee on Armed Services of the Senate and the Committee on Foreign Affairs and the Committee on Armed Services of the House of Representatives that describes how the United States will enhance cooperation with the Government of Canada in managing relations with the Government of China.
+
+(b) ELEMENTS.—The strategy required under subsection (a) shall—
+
+(1) identify key policy points of convergence and divergence between the United States and Canada in managing relations with the People’s Republic of China in the areas of technology, trade, economic practices, cyber security, secure supply chains and critical minerals, and illicit narcotics;
+
+(2) include the development coordination efforts with Canadian counterparts to enhance the cooperation between the United States and Canada with respect to—
+
+(A) managing economic relations with the People’s Republic of China;
+
+(B) democracy and human rights in the People’s Republic of China;
+
+(C) technology issues involving the People’s Republic of China;
+
+(D) defense issues involving the People’s Republic of China; and
+
+(E) international law enforcement and transnational organized crime issues.
+
+(3) detail diplomatic efforts and future plans to work with Canada to counter Chinese projection of
+
+an authoritarian governing model around the world;
+
+(4) detail diplomatic, defense, and intelligence cooperation to date and future plans to support Canadian efforts to identify cost-effective alternatives to Huawei’s 5G technology;
+
+(5) detail diplomatic and defense collaboration—
+
+(A) to advance joint United States-Canadian priorities for responsible stewardship in the Arctic Region; and
+
+(B) to counter Chinese efforts to project political, economic, and military influence into the Arctic Region; and
+
+(6) detail diplomatic efforts to work with Canada to track and counter Chinese attempts to exert influence across the multilateral system, including at the World Health Organization.
+
+(c) FORM.—The strategy required under this section shall be submitted in an unclassified form that can be made available to the public, but may include a classified annex, if necessary.
+
+(d) CONSULTATION.—Not later than 90 days after the date of the enactment of this Act, and not less frequently than every 180 days thereafter, the Secretary of State shall consult with the appropriate congressional committees regarding the development and implementation of the strategy required under this section.
 
 0
