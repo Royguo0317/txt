@@ -1,53 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【信仰之声】缺乏契约精神的中共
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1131578/)
+## 【有声读物】纽约南区法院SV案追踪（1）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1131582/)
 
-作者：纽约香草山福音部  JingleChenge
+配音：香草山录音组 蒙古鸿雁
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/logo-5.jpg)
-
-
-
-《圣经·撒母耳记》（下）第二十一章记载了大卫王年间发生的饥荒，人们想尽各种办法，但饥荒一连持续三年就是不退。于是大卫王求问耶和华， 这才得知饥荒的原因不是天灾，而是人祸，就像我们曾经所谓的自然灾害一样。 这饥荒起因于扫罗以为国为民的名义企图杀灭基遍人。这基遍人不是以色列人，乃是亚摩利人中所剩的，以色列人曾向他们立约起誓，不杀灭他们。于是大卫王召了这群人来寻求解决之道，基遍人说，我们和扫罗与他家的仇并不关乎金银，也不要因我们的缘故杀一个无辜以色列人。大卫王说，你们说怎么办，我就为你们怎么办。他们对王说，那从前谋害我们，要灭我们，使我们不得再住以色列境内的人，现在要将他的子孙七人交给我们，我们好在耶和华面前，将他们悬挂在耶和华拣选扫罗的基比亚。大卫王说，我必交给你们并如此行了。此后天降雨，神垂听国民所求的，饥荒解除。
-
-这看起来很残忍，但根据古代东方立约的惯例，双方立约时，会将动物切成两半，分开对立，然后当事人双方都从中间走过，边走边说：这个头不是羔羊的头，乃是我的头；若我犯罪违反此条约，我的头就必要象这只羊羔的头一样被撕下来，就让我和我后代的头都被撕掉！以此，双方许诺必履行此约，若不守约，将会如此被分尸。几千年来，在他们的习俗中都是如此对待违约者的。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image1-3.png)
-
-这段圣经告诉我们，第一，神也看重人与人之间所立的约。既然立了约，人就有守约的责任。一旦违反，就要承担违约的后果，连神的选民都不例外，尽管这基遍人不是什么好人，他们在以色列人进迦南的路上用欺骗的手段让以色列人与他们立约，不但不能除灭他们，还要保护他们。第二，即便事件已经过去几百年了，神还记得，神必定清算！神不是说，都几百年的事了，算了算了，你们基遍人现在不是好活得好好的嘛，不是没被灭族嘛。 犹太民族就是在这一次次管教中学习人与人之间立约、守约的相处之道的。 反观中共，无论是对内、对外，都从不守约。
-
-对内，中共自从1949年10月1日窃国以来，为了搞死政治对手掀起过大大小小七十来次政治、经济、思想和文化运动，天天与天斗与地斗与人斗，把美丽富饶的中华大地搞得腥风血雨、生灵涂炭，百姓苦不堪言。伴随这些运动的，常常是强制剥夺私人财产，无视生命和私有财产的天赋人权的契约精神。 他们对自己人尚且如此，对宗教信徒的迫害，对少数族裔的迫害更是毫无底线。近年又无视民族自治条例，在新疆设立集中营，对维吾尔族犯下了种族灭绝罪。
-
-对外，对 UN、WHO、WTO、WORLD 的承诺从未兑现过，也从未打算兑现。公然撕毁《中英联合声明》，不遵守国际法庭对南海问题的裁定，现在又用CCP病毒、毒疫苗祸害世界，明明自己有解药！
-
-这就是中共的本来面目，靠假、骗、偷上位，又靠假、骗、偷执政，骗了百姓骗老外，早已沦为一个杀人越货的跨国犯罪组织，其政权也丧失了合法性。 创造天地的神是一位守约神。祂对自己的百姓违约之过都不留情面，难道反而对从不守约的中共网开一面、放ㄧ马吗？不会的！历史上所有的朝代都因自己的恶而灭亡了，还没有哪一个朝代从起初站到如今！
-
-“以铜为鉴，可以正衣冠，以人为鉴，可以知得失，以史为鉴，可以知兴替。”所以，单单以史为鉴，我们就知道，亡中共的刑法正在路上了，是板上钉钉之事！ 对于中共灭亡后中华民族何去何从的问题，历史已经告诉了我们答案，就是回归基督，回归契约精神，回归世界文明。这条路已经被西方文明走通了，我们只要沿着走，所有的问题都会迎刃而解。因为基督就是道路、真理、生命，若不借着祂，没有一个文明（苏美尔文明、埃及文明、印度文明）能够兴盛。 愿天地之主再给我们一次机会。
-
-（本文内容仅代表作者个人观点）
-
-参考：
-
-1.[https://gnews.org/zh-hans/957569/](https://gnews.org/zh-hans/957569/)2.[https://www.politico.com/news/2021/01/19/china-uighur-muslims-state-department-pompeo-460376](https://www.politico.com/news/2021/01/19/china-uighur-muslims-state-department-pompeo-460376)
-
-校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2.jpg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
+
+
+
+
+
+历时多年的东利（Eastern profit)公司诉愿景（Strategic Vision)公司诈欺案，2021年4月19日终于在位于曼哈顿的联邦纽约南区法院公开审理。预计历时四天，传唤双方证人出庭作证，月底将会由法官判决。笔者遗憾没在庭审现场，仅根据听过庭审的人员做的视频做一个追踪简报。
+
+此案案情并不复杂。郭文贵先生代表的东利公司于2018年1月6日，与愿景公司的J.Michael Waller（实际老板是French Wallop)签约了一份调查合同。月底，愿景向东利提供了一份报告，但显然不符合它自己对其职能的陈述，以及违约欺诈。东利随即起诉愿景，指控愿景以其职务方便为中共在海外代理人工作，在海外大量搜集对CCP有异议的人士的数据，并要求愿景退回约金。
+
+
+
+**文字版原文：[【世事解评】纽约南区法院SV案追踪（1）](https://gnews.org/zh-hans/1123436/)**
+
+作者：纽约香草山写作组  Kathy（文艺）
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
 [**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

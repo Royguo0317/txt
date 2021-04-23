@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】北国飘雪，南国落雨
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1131630/)
+## 【有声读物】4·19 VOA断播四周年感怀
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1131650/)
 
-配音：香草山录音组 Swr拥抱太阳
+配音：香草山录音组 Gtv abeilles（蜜蜂）
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -12,19 +12,17 @@
 
 
 
-北国飘雪
-落满记忆深处的童年:
-你做的饺子还在我的嘴里散步
 
-北国飘雪
-请冰封古老国度
-只愿你在最后的风暴中惊蛰而渡
+
+今天的直播中，见到文贵先生穿起我们熟悉的长袍，激动地回顾四年来与CCP斗智斗勇取得的巨大成绩，笔者自己的心情也十分不平静。是呀，四年前的CCP是那样张牙舞爪、不可一世，似乎可以任意翻手为云覆手为雨；如今，其在世界各处如过街老鼠人人喊打，变化太大了。这都是文贵先生引导的爆料革命带领战友共同奋斗的结果。
+
+四年前的这一天，我偶然发现郭先生正在接受VOA的采访。采访者“龚火鸡”每隔一两分钟便絮絮叨叨地说，“这不代表本台观点！”特别是后来，VOA竟然终止播放这一采访，引起我极大的反感。这样的事情发生在代表自由世界的美国，更让我大跌眼镜，亦让我产生了跟踪此事的动力，结果一发不可收拾。自那以后，我便一直追随文贵先生及爆料革命至今。
 
 
 
-**文字版原文：[【香草诗词汇】北国飘雪，南国落雨](https://gnews.org/zh-hans/624420/)**
+**文字版原文：[【战友之声】4·19 VOA断播四周年感怀](https://gnews.org/zh-hans/1120322/)**
 
-作者：香草山写作组 木白
+作者：纽约香草山媒体部 CloudSky
 
 
 
