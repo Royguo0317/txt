@@ -1,28 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本批准风湿药巴瑞替尼 (Baricitinib) 用于治疗COVID-19患者
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1130641/)
+## 中共吹嘘“八项”超越美国的军力
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1130666/)
 
-- 翻译： 里奇
+近期一篇名为《美媒目前公开承认的中国“八项”超越美国的军力》的文章网络热传。无非是管控信息，洗脑墙内穷苦大众。或许一些墙内的无脑小粉红看到这样的文章，会瞬间爱国情怀爆表。但相信他们看到美军航母与中国航母对比图片时，才会明白梦想与现实的差距。
 
+By： 【秘密翻译组 G-Translators】
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-**西班牙2021年4月23日电/西喜社——**
-
-日本卫生部上周五批准了将风湿性关节炎药物巴瑞替尼(Baricitinib)用于治疗COVID-19患者，这是继瑞得西韦和地塞米松之后的第三种获批药物。
-
-礼来公司(Eli Lilly & Co’s)的日本子公司已于12月向监管机构申请了该药物的新用途。
-
-\*巴瑞替尼(baricitinib)由美国英賽德公司（Incyte）研制,是Janus(JAK1/JAK2)激酶抑制药,用于治疗自身免疫性疾病及中度至重度类风湿关节炎(RA)。
-
-**点评:希望这是个好消息，能减轻遭受中共病毒侵袭的患者之痛苦，帮助他们恢复健康！但最重要的莫过于世界各国必须尽快团结起来，追究制毒放毒的凶手并将之绳之以法！尽快向制毒者索要病毒解药，而不是病急乱求医，匆匆给自己的国民注射各种安全性和有效性未经验证的疫苗(疫苗很有可能带来一场新的灾难)，如此才能还人间太平！**
-
-审核：蚂蚁兄弟；校对：信心满满；发稿：信心的选择
-
-**新闻来源:** [路透社](https://www.reuters.com/business/healthcare-pharmaceuticals/japan-approves-rheumatoid-drug-baricitinib-covid-19-patients-2021-04-23/)
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
-
-0
++1
