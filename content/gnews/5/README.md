@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】纽约南区法院SV案追踪（1）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1131582/)
+## 【有声读物】写一首没有压迫的诗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1131638/)
 
-配音：香草山录音组 蒙古鸿雁
+配音：香草山录音组 Gtv abeilles（蜜蜂）
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -14,20 +14,25 @@
 
 
 
-历时多年的东利（Eastern profit)公司诉愿景（Strategic Vision)公司诈欺案，2021年4月19日终于在位于曼哈顿的联邦纽约南区法院公开审理。预计历时四天，传唤双方证人出庭作证，月底将会由法官判决。笔者遗憾没在庭审现场，仅根据听过庭审的人员做的视频做一个追踪简报。
+悲秋不可悲
 
-此案案情并不复杂。郭文贵先生代表的东利公司于2018年1月6日，与愿景公司的J.Michael Waller（实际老板是French Wallop)签约了一份调查合同。月底，愿景向东利提供了一份报告，但显然不符合它自己对其职能的陈述，以及违约欺诈。东利随即起诉愿景，指控愿景以其职务方便为中共在海外代理人工作，在海外大量搜集对CCP有异议的人士的数据，并要求愿景退回约金。
+可悲的是这片土地上那么多悲剧无人知晓
+
+可悲的是腐烂的依旧在腐烂
+
+可悲的是不让我们说出可悲这个词
+
+可悲的是悲剧制造者们可悲的时候到了
 
 
 
-**文字版原文：[【世事解评】纽约南区法院SV案追踪（1）](https://gnews.org/zh-hans/1123436/)**
+**文字版原文：[写一首没有压迫的诗](https://gnews.org/zh-hans/413252/)**
 
-作者：纽约香草山写作组  Kathy（文艺）
+作者：纽约香草山写作组  木白
 
 
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+音频处理/发稿：雪梨
 
 ![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 

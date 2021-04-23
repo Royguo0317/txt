@@ -1,45 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】英国议会一致认定中共犯下种族灭绝和反人类罪
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1131287/)
+## 慧眼看世界202104023（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1131441/)
 
-作者：纽约香草山写作组 ** **乱谈秦
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
-
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
 
-2021年4月22日，英国议会一致认定中共对新疆维吾尔族和其他穆斯林少数民族实施了种族灭绝，并以最强烈的措辞谴责中共的行为。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS2280-【热点播报】英国议会一致认定中共犯下种族灭绝和反人类罪-2.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-14.jpg)
 
-英国保守党议员努斯拉特·加尼（Nusrat Ghani）之前发起一项动议，称中国政府对新疆维吾尔族犯下种族灭绝和反人类罪，并呼吁英国政府利用国际法来结束这一行为。英国议会下院当地时间22日通过一场辩论后，全票通过该动议。这是英国议会首次正式认定新疆维吾尔族和其他少数群体是中共种族灭绝和危害人类罪的受害者。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-15.jpg)
 
-英国下议院有650名议员，9个政党。上一次做出种族灭绝认定是在2016年，当时议员们投票将“伊斯兰国”恐怖组织针对雅兹迪人和叙利亚北部其他少数民族的行动定为种族灭绝。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-14.jpg)
 
-美国川普政府在任期结束前，国务卿蓬佩奥于2021年1月19日宣布中共在新疆犯下种族灭绝和反人类罪，现拜登政府支持其前任的决定。4月21日，美国国会众议院外交事务委员会无异议通过两项议案，一项旨在确保新疆维吾尔自治区的强迫劳动产品不能进入美国市场，另一项谴责中共针对维吾尔人和其他少数群体的种族灭绝和反人类罪行。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-15.jpg)
 
-加拿大和荷兰议会分别于2月22日和2月25日，相继通过了中共在新疆犯下种族灭绝罪的动议。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-14.jpg)
 
-对于中共在新疆犯下的罪行和新疆集中营事件，爆料革命发起人郭文贵先生最早曝光具体细节和数据，并持续将真相告知全世界，呼吁并推动西方民主政府对中共予以制裁。更多国家加入正义行动。加上中共对全世界发动的超限生物武器战，全球联合灭共的时代正在到来，谁也无法阻挡灭共大潮，中共时日无多。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-12.jpg)
 
-(文章仅代表作者本人观点)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-12.jpg)
 
-校对/发稿：雪梨
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-12.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpeg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-12.jpg)
 
-**更多资讯，更多关注**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-18.jpg)
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-18.jpg)
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-20.jpg)
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-16.jpg)
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-15.jpg)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-12.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-11.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/18-9.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/19-8.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0
