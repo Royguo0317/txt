@@ -1,11 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共治下的暴力执法
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1130654/)
+## 中共吹嘘“八项”超越美国的军力
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1130666/)
 
-中共治下的暴力执法。
+近期一篇名为《美媒目前公开承认的中国“八项”超越美国的军力》的文章网络热传。无非是管控信息，洗脑墙内穷苦大众。或许一些墙内的无脑小粉红看到这样的文章，会瞬间爱国情怀爆表。但相信他们看到美军航母与中国航母对比图片时，才会明白梦想与现实的差距。
 
 By： 【秘密翻译组 G-Translators】
 
-0
++1
