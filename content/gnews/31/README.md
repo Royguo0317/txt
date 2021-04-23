@@ -1,49 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】病
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1131621/)
+## 美战略司令部司令警告 中共国正在进行惊人的核扩张
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1131642/)
 
-配音：香草山录音组  Swr拥抱太阳
+翻译：洛杉矶天使农场 – 烟波浩淼
+校对：洛杉矶天使农场 – 雨山溪桥客
+审核：洛杉矶天使农场 – 黎明的光芒
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Picture1-64.png)照片拍摄者： 娜蒂·哈尼克（Nati Harnik）美国战略司令部司令查尔斯·A·理查德上将说，他 “没有看到任何迹象表明”美国的核储备安全因太阳风黑客事件而受到影响，情报界认为该事件与俄罗斯政府有关。 美联社/文件
+战略司令部司令周三告诉国会，中共国军队正在进行 “非常迅速” 的核力量扩张，这威胁到美国的安全，并使遏制俄罗斯和中共国的努力复杂化。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+不断扩大的核武库包括在全国范围内穿行，且难以追踪的大量移动式洲际弹道导弹。
+
+中共也在部署新的固体燃料导弹，这种导弹能够比旧的液体燃料导弹更快地安装和发射。
+
+中共国和俄罗斯均部署有车载式导弹，而美国没有类似的可生存导弹。
+
+负责核导弹、轰炸机和潜艇的指挥官查尔斯·理查德（Charles Richard）上将告诉众议院军事委员会，这是一个令人叹为观止的扩张。
+
+他说：“我们看到中共国的[核]能力在非常迅速地扩张。”
+
+这位四星上将说，移动导弹是一种“新的能力，正在迅速扩展”。
+
+此外，中共国军方还部署了许多以发射井为基地的新型固体燃料导弹，并与现代化的核指挥和控制系统相结合。
+
+理查德上将说：“这使他们具备了目前只有美国和俄罗斯人拥有的预警下发射或攻击后发射的能力。”
+
+中共国正在接近完成部署一个完整的战略核三位一体（陆基导弹，潜艇和轰炸机）。
+
+中共国还部署了6艘第二代弹道导弹潜艇，这些潜艇将为中共提供持续的海上威慑力量，提供可生存的第二次打击能力，导弹可以从南中国海的保护区域打击美国。
+
+他说：“把所有这些加在一起，（中共国）就可以在地区范围内采取任何可行的核战略。”
+
+理查德上将说：“这将支持他们的常规能力，并可能限制我们的选择。如果我没有类似能力威慑他们的话，我们就将是被威慑的一方。”
+
+中共国不断增加的具有威胁性的新型核力量，是对俄罗斯在使用新型导弹和可发射水下攻击无人机的核潜艇使核力量急剧现代化方面所做事情的“补充”。
+
+理查德上将说，他最近命令战略司令部所有从事中共国威胁简报的单位，如果简报超过一个月的时间，就要用最新情报来更新。
+
+他说：“这就是他们行动的速度。”
+
+有关迅速建立的信息来自美国情报机构，而不是司令部。
+
+理查德上将说：“我们只是像其他司令部一样在操作上进行解释。”
+
+理查德还与民主党委员会成员发生冲突，后者质疑是否有必要使用新的陆基导弹来取代1970年代的民兵III型洲际导弹。
+
+民主党人赞成取消名为 “地面基地战略威慑”的新陆基替代导弹的计划。
+
+理查德上将说，废止民兵导弹将需要重新启动1991年被取消24小时警戒状态的战略轰炸机进行警戒。
+
+他说：“民兵III号是一种1970年代的武器，旨在对抗苏联的模拟防御系统。我需要一种能够起作用的武器，并使其到达目标。”
+
+原文作者：比尔·格茨（Bill Gertz） 《华盛顿时报》
+发布时间：2021年4月21日，星期三
+原文链接：[https://www.washingtontimes.com/news/2021/apr/21/adm-charles-richard-warns-over-china-nuclear-expan/](https://www.washingtontimes.com/news/2021/apr/21/adm-charles-richard-warns-over-china-nuclear-expan/)
 
 
 
 
-
-流水二两是家乡，白云一钱为真爱，青山一石忘乾坤——
-
-我的病并不比你的轻。
-
-
-
-家猫两只晒冬阳，野狗一条不流浪；若雪厚风大，有双手来温暖会更好——
-
-你的病并不属于这人间。
-
-
-
-**文字版原文：[【香草诗词汇】病](https://gnews.org/zh-hans/694537/)**
-
-作者：香草山写作组 木白
-
-
-
-音频处理/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

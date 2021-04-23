@@ -1,99 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第252节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1131894/)
+## 【圣城传声筒】英国国会定性中共对维吾尔族“种族灭绝”
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1131952/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+香草山写作组
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/L-8.jpg)a4ai.org
-“第251节 与拉丁美洲和加勒比地区的防务合作”略译，本文是第252节的翻译。
+爆料革命创始人郭文贵先生在2019年曾预言，中共政权的以黑治国、以警治国，以及对全世界“蓝金黄”、制造中共病毒的一切疯狂行为，最终将会导致世界各国形成自动灭共和争相灭共的大潮。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-23-at-11.44.55-AM.jpeg)
+在最近香港司法对反送中示威者、47人案、蔡玉玲案等等作出一系列荒唐的判决之后，英国国会23日一致通过一项决议，将中国在新疆对维吾尔族的侵犯人权行为定性为「种族灭绝 (genocide)」。发起动议的 Nusrat Ghani 是早前被中国制裁的议员之一，她形容中国尝试透过制裁令英国国会噤声，结果却遭反弹 (backfired)。
 
-本节要点：中共国政府正在输出他们的国内安全模式，以及国家对社会的控制模式，这些模式通过先进的技术和人工智能技术来实现的，在没有对政府权力进行可靠的法律监督的情况下，将与政府或安全部门有密切联系，或易受其压力的公司提供的设备和服务，纳入通信网络和通信供应链，这将导致侵犯公民的私人信息，加强（对公民的）审查，侵犯人权和骚扰政治对手。就腐败事件和与中共国有关的不公平贸易、商业和经商行为的调查性报道提供培训，包括中共国政府在此类行为中的作用。
+国会通过的决议指，「本议院相信，在新疆维吾尔自治区，维吾尔及其他少数族裔及宗教人士正承受针对人权的罪行与种族灭绝。」
 
-第252节 与拉丁美洲和加勒比国家的公民社会，就问责制、人权和普遍监视技术的风险进行交流
+今次动议由保守党议员 Nusrat Ghani 发起。生于克什米尔 (Kashmir)、后于英国接受教育的 Ghani，过去一直关注维吾尔议题，亦因而早前被中国制裁。她说﹕「中国尝试威吓国会沉默，却遭反弹 (backfired)。」她形容中国政府侵犯人权的行为是「工业规模的」，对少数族裔的囚禁也是「二战以来最大」。
 
-（a）国会意识 – 国会认为
-（1）中共国政府正在输出他们的国内安全模式，以及国家对社会的控制模式，这些模式通过先进的技术和人工智能技术来实现的；以及
-（2）在没有对政府权力进行可靠的法律监督的情况下，将与政府或安全部门有密切联系，或易受其压力的公司提供的设备和服务，纳入通信网络和通信供应链，这将导致侵犯公民的私人信息，加强（对公民的）审查，侵犯人权和骚扰政治对手。
+虽然表面上该决议和以上香港的一系列判决无直接关系，但英国在该议题上的进程已经落后于美国和欧盟。作为《中英联合声明》的直接缔造者之一，在被中共一再违约打脸，受利益羁绊的英国，在该议题上的跟进上一直举棋不定。但近日中共政权和港共政权的倒行逆施，以及传闻香港将在4月底将对特定人士采取“封关”，如获实施，实际上等于变相对英国的BNO护照进行封杀，严重侵害了英国的利益。英国这一次决议通过，将直接影响全球50多个英联邦国家。
 
-（b）外交接触 – 国务卿应与拉丁美洲和加勒比各国政府和民间社会组织进行外交接触，以-
-（1）帮助识别和减轻（a）小节所述技术和服务对公民自由构成的风险；以及
-（2）提供减轻此类风险的建议。
+而在前一天，澳大利亚外长宣布废除维多利亚州与中共在2018年、2019年签订的“一带一路”协议，理由是指该协议备忘录与澳洲的外交政策并不一致。澳大利亚这次更是抢先英国一步对中共政权说“不”，两国的关键表态既重要而又耐人寻味。
 
-（c）互联网自由计划 – 《美国全球媒体署》（the United States Agency for Global Media）首席执行官依据《开放技术基金》（the Open Technology Fund）进行工作，国务卿依据《民主、人权和劳工局》（the Bureau of Democracy, Human Rights, and Labor）的“互联网自由，商业和人权部分”进行工作，努力扩大、努力优先向拉丁美洲和加勒比地区的记者提供反审查技术和服务，以提高他们安全获取或分享数字新闻和信息的能力。
+（部分内容引自[立场新闻](https://www.thestandnews.com/international/%E8%8B%B1%E5%9C%8B%E6%9C%83%E4%B8%80%E8%87%B4%E9%80%9A%E9%81%8E-%E5%AE%9A%E6%80%A7%E4%B8%AD%E5%9C%8B%E5%9C%A8%E6%96%B0%E7%96%86%E5%B0%8D%E7%B6%AD%E5%90%BE%E7%88%BE%E6%97%8F%E5%AF%A6%E8%A1%8C-%E7%A8%AE%E6%97%8F%E6%BB%85%E7%B5%95/)网页）
 
-（d）支持民间社会 – 国务卿应与负责《民主、人权和劳工局》事务的助理国务卿和《美国国际开发署》署长协调，通过非政府组织开展工作，以-
-（1）支持和促进拉丁美洲和加勒比地区互联网自由和网上信息自由流动的方案；
-（2）保护拉丁美洲和加勒比地区互联网的开放、互操作、安全和可靠接入；
-（3）向民间社会提供技术、数字安全、政策和宣传方面的综合支持，拉丁美洲和加勒比的应用研究项目；
-（4）对拉丁美洲和加勒比地区的记者和民间社会领导人进行必要的调查技术培训，以确保公共问责制和防止政府在数字领域的过激行为；
-（5）协助拉丁美洲和加勒比地区的独立媒体和记者建设自身能力，编写涵盖施政和人权议题的具有高度影响力的深入新闻报道；
-（6）为记者和民间社会领导人提供必要的调查技术培训，以提高政府和私营部门的透明度和问责制；
-（7）就腐败事件和与中共国有关的不公平贸易、商业和经商行为的调查性报道提供培训，包括中共国政府在此类行为中的作用；
-（8）协助非政府组织加强其监测第（7）款所述活动的能力；和
-（9）确定当地资源，以支持根据本小节开展的主要活动。
+审核/发稿：正义的小新
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpeg)
+**更多资讯，更多关注**
 
-（e）简报要求 – 本法颁布之日起180天内，此后每隔180天，国务卿、美国国际开发署署长，美国全球媒体署的首席执行官应就第（c）、（d）和（e）小节所述的努力提供简报 –
-（1）参议院外交关系委员会；
-（2）参议院拨款委员会；
-（3）众议院外交事务委员会；以及
-（4）众议院拨款委员会。
-（本节完）
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-原文链接：
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-文字整理：
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-SEC. 252. ENGAGEMENT WITH CIVIL SOCIETY IN LATIN AMERICA AND THE CARIBBEAN REGARDING ACCOUNTABILITY, HUMAN RIGHTS, AND THE RISKS OF PERVASIVE SURVEILLANCE TECHNOLOGIES.
-
-(a) SENSE OF CONGRESS. — It is the sense of Congress that
-
-(1) the Government of China is exporting its model for internal security and state control of society through advanced technology and artificial intelligence; and
-
-(2) the inclusion of communication networks and communications supply chains with equipment and services from companies with close ties to or susceptible to pressure from governments or security services without reliable legal checks on governmental powers can lead to breaches of citizens’ private information, increased censorship, violations of human rights, and harassment of political opponents.
-
-(b) DIPLOMATIC ENGAGEMENT. — The Secretary of State shall conduct diplomatic engagement with governments and civil society organizations in Latin America and the Caribbean to—
-
-(1) help identify and mitigate the risks to civil liberties posed by technologies and services described in subsection (a); and
-
-(2) offer recommendations on ways to mitigate such risks.
-
-(c) INTERNET FREEDOM PROGRAMS. — The Chief Executive Officer of the United States Agency for Global Media, working through the Open Technology Fund, and the Secretary of State, working through the Bureau of Democracy, Human Rights, and Labor’s Internet Freedom and Business and Human Rights Section, shall expand and prioritize efforts to provide anti-censorship technology and services to journalists in Latin America and the Caribbean, in order to enhance their ability to safely access or share digital news and information.
-
-(d) SUPPORT FOR CIVIL SOCIETY. — The Secretary of State, in coordination with the Assistant Secretary of State for Democracy, Human Rights, and Labor and the Administrator of the United States Agency for International Development, shall work through nongovernmental organizations to—
-
-(1) support and promote programs that support internet freedom and the free flow of information online in Latin America and the Caribbean;
-
-(2) protect open, interoperable, secure, and reliable access to internet in Latin America and the Caribbean;
-
-(3) provide integrated support to civil society for technology, digital safety, policy and advocacy,
-
-and applied research programs in Latin America and the Caribbean;
-
-(4) train journalists and civil society leaders in Latin America and the Caribbean on investigative techniques necessary to ensure public accountability and prevent government overreach in the digital sphere;
-
-(5) assist independent media outlets and journalists in Latin America and the Caribbean to build their own capacity and develop high-impact, in-depth news reports covering governance and human rights topics;
-
-(6) provide training for journalists and civil society leaders on investigative techniques necessary to improve transparency and accountability in government and the private sector;
-
-(7) provide training on investigative reporting of incidents of corruption and unfair trade, business and commercial practices related to China, including the role of the Government of China in such practices;
-
-(8) assist nongovernmental organizations to strengthen their capacity to monitor the activities described in paragraph (7); and
-
-(9) identify local resources to support the preponderance of activities that would be carried out under this subsection.
-
-(e) BRIEFING REQUIREMENT. — Not more than 180 days after the date of the enactment of this Act, and every 180 days thereafter, the Secretary of State, the Administrator of the United States Agency for International Development, and the Chief Executive Officer of the United States Agency for Global Media shall provide a briefing regarding the efforts described in subsections (c), (d), and (e) to—
-
-(1) the Committee on Foreign Relations of the Senate;
-
-(2) the Committee on Appropriations of the Senate;
-
-(3) the Committee on Foreign Affairs of the House of Representatives; and
-
-(4) the Committee on Appropriations of the House of Representatives.
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

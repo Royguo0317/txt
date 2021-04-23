@@ -1,70 +1,99 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 去中心化货币体系的探索（三）
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1131702/)
+## 美国《2021战略竞争法》第252节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1131894/)
 
-加拿大多伦多枫叶农场 普彤人
-![]()![](https://gnews.org/wp-content/uploads/2021/04/bitwelfare.org-2.jpg)*图片来源：bitwelfare.org*
-笔者曾在前一系列文中对中共邪恶的数字集权货币体系进行了讨论。在此系列文中，着重讨论世界对新时代货币体系的需求及展望。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-[去中心化货币体系的探索（一）](https://gnews.org/zh-hans/909601/)
-[去中心化货币体系的探索（二）](https://gnews.org/zh-hans/1113087/)
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/L-8.jpg)a4ai.org
+“第251节 与拉丁美洲和加勒比地区的防务合作”略译，本文是第252节的翻译。
 
-七、开源模式
+本节要点：中共国政府正在输出他们的国内安全模式，以及国家对社会的控制模式，这些模式通过先进的技术和人工智能技术来实现的，在没有对政府权力进行可靠的法律监督的情况下，将与政府或安全部门有密切联系，或易受其压力的公司提供的设备和服务，纳入通信网络和通信供应链，这将导致侵犯公民的私人信息，加强（对公民的）审查，侵犯人权和骚扰政治对手。就腐败事件和与中共国有关的不公平贸易、商业和经商行为的调查性报道提供培训，包括中共国政府在此类行为中的作用。
 
-在软件领域，广泛存在一种乍看起来令人难以理解的盈利模式：开源软件。粗略的说，就是软件的所有代码都可以免费获取并在约定场合使用。
+第252节 与拉丁美洲和加勒比国家的公民社会，就问责制、人权和普遍监视技术的风险进行交流
 
-在贪婪的金融界，一切钱说了算。所谓的“屌丝”是没有机会“起义”的。笔者有理由猜测，之所以存在以比特币为代表的，开源的去中心化货币模型，说明其背后的沼泽大鳄作为发明人，非常理解开源软件的运营，甚至他们自己可能就是开源模式的推动者。但考虑到货币模型的敏感性，为了逃脱可能的法律或监管责任，才炮制出“中本聪”这么一个根本不存在的“笔名”用来发布原型。
+（a）国会意识 – 国会认为
+（1）中共国政府正在输出他们的国内安全模式，以及国家对社会的控制模式，这些模式通过先进的技术和人工智能技术来实现的；以及
+（2）在没有对政府权力进行可靠的法律监督的情况下，将与政府或安全部门有密切联系，或易受其压力的公司提供的设备和服务，纳入通信网络和通信供应链，这将导致侵犯公民的私人信息，加强（对公民的）审查，侵犯人权和骚扰政治对手。
 
-因此，为了理解未来的加密货币体系，也需要了解开源生态模式。表面上开源软件降低了软件公司的收入，实际上它究竟为软件产业带来了哪些好处，使得厂商宁可牺牲一部分销售收入，也要拥抱开源呢？笔者认为，开源模式有以下三个明显优势：
+（b）外交接触 – 国务卿应与拉丁美洲和加勒比各国政府和民间社会组织进行外交接触，以-
+（1）帮助识别和减轻（a）小节所述技术和服务对公民自由构成的风险；以及
+（2）提供减轻此类风险的建议。
 
-1，降低厂商开发成本。当代软件由很多功能子模块组成用以实现不同的子功能。尽管软件种类数不胜数，但很多子功能或其组合是通用的，例如通讯模块、文件处理模块，基础操作系统等等。非常显而易见的一点是，重复开发这些模块十分耗费精力但不产生额外的利润。将其开源，让大家一起免费使用，共同吸取的经验是一个明智的选择。
+（c）互联网自由计划 – 《美国全球媒体署》（the United States Agency for Global Media）首席执行官依据《开放技术基金》（the Open Technology Fund）进行工作，国务卿依据《民主、人权和劳工局》（the Bureau of Democracy, Human Rights, and Labor）的“互联网自由，商业和人权部分”进行工作，努力扩大、努力优先向拉丁美洲和加勒比地区的记者提供反审查技术和服务，以提高他们安全获取或分享数字新闻和信息的能力。
 
-对于数字货币而言，区块链技术是基础中的基础，是不折不扣的“通用模块”。长远来看，将其开源无疑是排除潜在缺陷，降低开发成本的最佳选择。
+（d）支持民间社会 – 国务卿应与负责《民主、人权和劳工局》事务的助理国务卿和《美国国际开发署》署长协调，通过非政府组织开展工作，以-
+（1）支持和促进拉丁美洲和加勒比地区互联网自由和网上信息自由流动的方案；
+（2）保护拉丁美洲和加勒比地区互联网的开放、互操作、安全和可靠接入；
+（3）向民间社会提供技术、数字安全、政策和宣传方面的综合支持，拉丁美洲和加勒比的应用研究项目；
+（4）对拉丁美洲和加勒比地区的记者和民间社会领导人进行必要的调查技术培训，以确保公共问责制和防止政府在数字领域的过激行为；
+（5）协助拉丁美洲和加勒比地区的独立媒体和记者建设自身能力，编写涵盖施政和人权议题的具有高度影响力的深入新闻报道；
+（6）为记者和民间社会领导人提供必要的调查技术培训，以提高政府和私营部门的透明度和问责制；
+（7）就腐败事件和与中共国有关的不公平贸易、商业和经商行为的调查性报道提供培训，包括中共国政府在此类行为中的作用；
+（8）协助非政府组织加强其监测第（7）款所述活动的能力；和
+（9）确定当地资源，以支持根据本小节开展的主要活动。
 
-2，降低用户学习成本。软件使用方法是需要用户去学习的。用户购买软件之前，首先需要判断一款软件是否适合自己。做出判断的前提是使用它。但矛盾的是：不购买如何学习使用？在付费软件年代，厂商一般采取试用期的策略。但对于某个工作流的中间环节，或复杂的功能或场景可能需要更长的时间磨合，试用期策略并不奏效。那么，将这些软件适当的“阉割”并免费或开源就成了降低用户学习成本的最佳选择。
+（e）简报要求 – 本法颁布之日起180天内，此后每隔180天，国务卿、美国国际开发署署长，美国全球媒体署的首席执行官应就第（c）、（d）和（e）小节所述的努力提供简报 –
+（1）参议院外交关系委员会；
+（2）参议院拨款委员会；
+（3）众议院外交事务委员会；以及
+（4）众议院拨款委员会。
+（本节完）
 
-如果推动数字货币成为未来的主流，那么所有的地球人都将成为用户，必须学习。在这个大的构想下，释放出一些原型“产品”，并将其开源就成了唯一的办法。
+原文链接：
 
-3，易于形成生态圈。以开源的linux操作系统为例，linux的开源，使得众多开发者可以窥探其内部的运行机制和接口。以此为基础，围绕linux的外围产品如雨后春笋般蓬勃发展。以至于现在的市场上，linux凭借其完善的生态体系在商用操作系统中独占鳌头。
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
 
-数字货币的特性很像linux操作系统。如果没有人构建对应的借贷、证券、支付、信用系统进而构成生态，单纯的货币是无法存活的。尽管背后的沼泽地大佬拥有雄厚的实力，单凭一己之力构建整个生态系统也是不现实且没有必要的。借助开源的力量，让数字货币的生态体系自我发展与完善是明智之举。
+文字整理：
 
-综上，现在市场上开源+分布式的区块链技术，对于构建未来数字货币体系非常有帮助。尽管未来的数字货币体系可能会有所不同，但是研读这些材料也是十分有意义的。
+SEC. 252. ENGAGEMENT WITH CIVIL SOCIETY IN LATIN AMERICA AND THE CARIBBEAN REGARDING ACCOUNTABILITY, HUMAN RIGHTS, AND THE RISKS OF PERVASIVE SURVEILLANCE TECHNOLOGIES.
 
-八、解读DeFi
+(a) SENSE OF CONGRESS. — It is the sense of Congress that
 
-从软件角度来看，未来的区块链加密货币是一种依附于实体经济的、复杂的云端软件体系。理解这个新生事物，需要同时对软件和云服务产业、金融支付体系进行研究。
+(1) the Government of China is exporting its model for internal security and state control of society through advanced technology and artificial intelligence; and
 
-“去中心化金融”(DeFi)一词，指基于以太坊区块链的替代性金融基础设施。Defi利用智能合约创造了新协议，该协议以更开放、更具互相操作性、更透明的方式复制了现有金融服务。Fabian Schär发表在美联储圣路易斯联储官网的研究报告（原文链接，下文简称“报告”）深刻的剖析了DeFi的架构、优劣和愿景。在本节中，笔者尝试基于这个报告做一些科普，顺便聊一下自己的理解。
+(2) the inclusion of communication networks and communications supply chains with equipment and services from companies with close ties to or susceptible to pressure from governments or security services without reliable legal checks on governmental powers can lead to breaches of citizens’ private information, increased censorship, violations of human rights, and harassment of political opponents.
 
-当代的软件产业早已经跨过十几年前的单机时代，转化为一种复杂的联网软件生态体系，即云服务。以区块链、智能合约为基础的未来货币支付体系本质上也是一种“云服务”：每个人的真实货币余额不取决于自己兜里钱包有多鼓，而取决于云端的区块链中的数据。
+(b) DIPLOMATIC ENGAGEMENT. — The Secretary of State shall conduct diplomatic engagement with governments and civil society organizations in Latin America and the Caribbean to—
 
-这有点像我们常用的“网盘”。不同的是，如果网盘里面存储的是公民的全部资产家当，那么我们应如何信任该网盘服务商？笔者认为去中心化模式尝试解决的核心问题，就是在传统的网络攻防技术范畴之上，以零信任思想为基础提出一整套建立“不可否定的信任”的解决方案。
+(1) help identify and mitigate the risks to civil liberties posed by technologies and services described in subsection (a); and
 
-如下图，报告将DeFi的功能抽象为五层，翻译过来从底向上分别是结算层、资产层、协议层、应用层和聚合层 。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/The-DeFi-Stack.jpg)图片引自报告Figure 2: The DeFi Stack
-经过抽象后，每层仅解决一类问题。如最下方的结算层，只解决区块链数据的读取、写入和存储等涉及数据“结算”的事务。通俗的讲，以一部电影为例，在这一层只负责处理形如“01000111”的裸数据，此时我们无法看到电影画面。
+(2) offer recommendations on ways to mitigate such risks.
 
-抽象的好处是我们可以针对每一层的特点制定最合适的处理方法。仍以最下方的结算层举例，这一层规定了区块链数据结构。如果这一层的数据不涉及公民的个人隐私，那么可以考虑将数据以及相关的处理过程完全公开，供所有人下载研究。那么，任何想在这些数据上造假的企图都会被暴露于阳光下从而难以成行。
+(c) INTERNET FREEDOM PROGRAMS. — The Chief Executive Officer of the United States Agency for Global Media, working through the Open Technology Fund, and the Secretary of State, working through the Bureau of Democracy, Human Rights, and Labor’s Internet Freedom and Business and Human Rights Section, shall expand and prioritize efforts to provide anti-censorship technology and services to journalists in Latin America and the Caribbean, in order to enhance their ability to safely access or share digital news and information.
 
-所谓的资产层，笔者理解其实就是基于智能合约的代币处理协议。这听起来很晦涩。打个不精确的比方，所谓的代币，就是一个合同编号。顺着合同编号可以找到合同内容。资产层里面不同代币协议所规定的，其实就是不同种类合同应该以什么格式，明确哪些条款。而合同中的内容就存储于下层区块链数据结构中，甚至合同花名册也存放于底层的区块链数据结构里面。
+(d) SUPPORT FOR CIVIL SOCIETY. — The Secretary of State, in coordination with the Assistant Secretary of State for Democracy, Human Rights, and Labor and the Administrator of the United States Agency for International Development, shall work through nongovernmental organizations to—
 
-代币合同中究竟记载什么内容自然是合同签订方约定的。比如，张三的获得一份合同A，此合同等价于5个以太币并记载了这五个以太币的提取方式；李四与王五签了一份合同B，约定王五借给李四2个以太币，用李四的奔驰车做抵押，等等。这样一来，合同就有了实际价值，我们称之为资产代币化。
+(1) support and promote programs that support internet freedom and the free flow of information online in Latin America and the Caribbean;
 
-实际的业务中，合同以及合同的组合可以非常复杂。进一步的，如果经营数字货币的存贷业务，或者成立交易所等等，都需要对大量合同（代币）数据进行管控和处理。报告中描述的顶部三层其实就是在教人如何拆解并实现这些复杂的业务，最终形成一个强健的货币体系。
+(2) protect open, interoperable, secure, and reliable access to internet in Latin America and the Caribbean;
 
-报告的立足点是如何建立去中心化的金融体系，但并不能推断美联储未来推行的数字货币体系是完全去中心化的。虽然代币机制可以保证区块链上的数字资产严格按照合同执行，但话说回来，万一某天李四不顾合同约定，拿着王五的两个以太币买了块金砖，用抵押给王五的大奔载着跑路了，最后还是要依靠警察叔叔亲自处理的，不是么？
+(3) provide integrated support to civil society for technology, digital safety, policy and advocacy,
 
-未来的加密数字货币体系，一定是吸取中心化和去中心化体系的优点精心构造，相比之下，我们在全网找不到任何中共国的数字人民币清晰的理念、架构相关的文章，甚至连它是否使用区块链技术也无从确认。
+and applied research programs in Latin America and the Caribbean;
 
-至此，读者对于DeFi及其分层结构应该有一些了解。笔者没有能力精确翻译原版报告中的文字，所以还是建议感兴趣的小伙伴研读原文。同时也期待我们的G系列货币在未来大放异彩。
+(4) train journalists and civil society leaders in Latin America and the Caribbean on investigative techniques necessary to ensure public accountability and prevent government overreach in the digital sphere;
 
-（本文仅代表作者本人观点）
+(5) assist independent media outlets and journalists in Latin America and the Caribbean to build their own capacity and develop high-impact, in-depth news reports covering governance and human rights topics;
 
-* * *
+(6) provide training for journalists and civil society leaders on investigative techniques necessary to improve transparency and accountability in government and the private sector;
 
-编辑 发稿 云起时
+(7) provide training on investigative reporting of incidents of corruption and unfair trade, business and commercial practices related to China, including the role of the Government of China in such practices;
 
-+1
+(8) assist nongovernmental organizations to strengthen their capacity to monitor the activities described in paragraph (7); and
+
+(9) identify local resources to support the preponderance of activities that would be carried out under this subsection.
+
+(e) BRIEFING REQUIREMENT. — Not more than 180 days after the date of the enactment of this Act, and every 180 days thereafter, the Secretary of State, the Administrator of the United States Agency for International Development, and the Chief Executive Officer of the United States Agency for Global Media shall provide a briefing regarding the efforts described in subsections (c), (d), and (e) to—
+
+(1) the Committee on Foreign Relations of the Senate;
+
+(2) the Committee on Appropriations of the Senate;
+
+(3) the Committee on Foreign Affairs of the House of Representatives; and
+
+(4) the Committee on Appropriations of the House of Representatives.
+
+0

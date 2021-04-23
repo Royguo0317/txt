@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】冬至
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1131611/)
+## 【有声读物】写一首没有压迫的诗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1131638/)
 
-配音：香草山录音组 Swr拥抱太阳
+配音：香草山录音组 Gtv abeilles（蜜蜂）
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -12,25 +12,23 @@
 
 
 
-冬至
 
-在最长的黑夜闭眼冥想
 
-想想上帝的样子
+悲秋不可悲
 
-想想那棵不存在的菩提
+可悲的是这片土地上那么多悲剧无人知晓
 
-在最短的白昼大声歌唱:
+可悲的是腐烂的依旧在腐烂
 
-影子的恐惧是阳光的胜利
+可悲的是不让我们说出可悲这个词
 
-奔腾的江河是无尽的春水
+可悲的是悲剧制造者们可悲的时候到了
 
 
 
-**文字版原文：[【香草诗词汇】冬至](https://gnews.org/zh-hans/673903/)**
+**文字版原文：[写一首没有压迫的诗](https://gnews.org/zh-hans/413252/)**
 
-作者：香草山写作组 木白
+作者：纽约香草山写作组  木白
 
 
 
