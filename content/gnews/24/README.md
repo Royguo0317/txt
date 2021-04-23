@@ -1,11 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4/22/2021 大重启企图用中共病毒和气候变化议题夺取控制权
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1131318/)
+## 慧眼看世界202104023（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1131441/)
 
-摘要：丽兹·哈林顿说：这与气候无关，与冠状病毒无关，而是关于管控。习说过：这是关于全球治理。教皇亦表达过同样观点。这是关于后疫情时代的世界过渡，是新世界秩序。不管是哪个国家都处在封锁状态，都在朝着马克思主义体系进行过渡和大重启。他们用冠状病毒和气候变化贩卖恐惧企图夺取控制权。
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-**By：【秘密翻译组 G-Translators】**
 
-+1
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-14.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-14.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-14.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-12.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-12.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-12.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-12.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-18.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-18.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-20.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-16.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-12.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-11.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/18-9.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/19-8.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
+
+0

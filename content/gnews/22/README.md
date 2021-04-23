@@ -1,45 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳大利亚取消一带一路协议
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1131364/)
+## 【有声读物】有解药！没疫苗！
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1131550/)
 
-翻译：洛杉矶天使农场 – 烟波浩淼
-校对：洛杉矶天使农场 – 雨山溪桥客
-审核：洛杉矶天使农场 – 黎明的光芒
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Picture1-61.png)工作人员在准备于2009年7月23日在北京举行的澳大利亚与中共国在西澳大利亚州的资源和基础设施双边合作研讨会时聊天。路透社 /贾森·李 （Jason Lee）
-星期三，澳大利亚取消了维多利亚州与中共国在北京旗舰项目“一带一路”倡议下的两项交易，这促使中共国驻堪培拉大使馆警告说，已经紧张的双边关系必将恶化。
+配音：香草山录音组 蒙古鸿雁
 
-根据澳大利亚的一项新程序，外交部长玛莉丝·佩恩（Marise Payne）有权审查该国各州和大学与其他国家达成的协议。
-
-佩恩说，她决定取消四项交易，包括维多利亚州在2018年和2019年与中共国国家主席习近平的标志性贸易和基础设施计划“一带一路” 倡议合作的两笔交易。
-
-她在一份声明中说：“我认为这四项安排不符合澳大利亚的外交政策，也不利于我们的外交关系。”
-
-中共国驻澳大利亚大使馆周三晚些时候对取消签证表示“强烈不满和坚决反对”。
-
-大使馆在一份声明中说：“这是澳方对中共国采取的又一个不合理和挑衅的举动。”这进一步表明澳大利亚政府对改善中澳关系没有诚意。”
-
-2018年，澳大利亚成为第一个公开禁止中共国科技巨头华为进入其5G网络的国家，使两国关系紧张。去年堪培拉呼吁对冠状病毒爆发的起源进行独立调查，两国关系恶化。
-
-中共国大使馆说，澳大利亚的最新举动“势必给双边关系带来进一步损害，最终只会伤害到自己”。
-
-澳大利亚联邦议会去年12月在与中共国的外交纷争不断加深之际，授予各州对外交易否决权，中共国对澳大利亚从葡萄酒到煤炭等出口产品实施了一系列贸易制裁。
-
-自由党总理斯科特·摩里逊（Scott Morrison）及其前任马尔科姆·特恩布尔（Malcolm Turnbull）拒绝就 “一带一路” 倡议与中共国签订国家级谅解备忘录。
-
-但维多利亚州工党州长丹·安德鲁斯（Dan Andrews）与中共国国家发改委签署了协议，以在2018年和2019年推广该倡议。
-
-一些国家担心，“一带一路” 计划带来的贷款可能导致包括太平洋岛屿地区在内的发展中国家出现不可持续的债务水平。
-
-莫里森政府否认其新的否决权是针对中共国的，在疫情导致澳大利亚关闭边境之前，中共国是澳大利亚最大的贸易伙伴和最大的海外大学学生来源地。
-
-佩恩说，各州、地方政府和公立大学已经向她通报了总共超过1000多宗外国交易。
-
-原文作者：路透社，柯斯蒂·尼德姆（Kirsty Needham）
-发布时间：2021年4月21日
-原文链接：[https://www.reuters.com/world/china/australia-cancels-victoria-states-belt-road-deals-with-china-2021-04-21/](https://www.reuters.com/world/china/australia-cancels-victoria-states-belt-road-deals-with-china-2021-04-21/)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
+
+
+
+
+
+美东时间4月21日，郭文贵先生在GTV盖特平台上，正式发布了重磅消息：
+
+1、共产党病毒是无容置疑的超限生化武器。
+
+2、永远不可能有疫苗。大家甚至没有弄清楚这个病毒是生化武器还是来源于自然，怎么可能有疫苗？人类从没有在短短6个月内生产出疫苗。
+
+3、根据科学家、欧洲的朋友还有国内的情报百分之百证实：中共有解药！中共用解药掌握人类的命运。我（郭先生）向大家保证：共产党有解药。
+
+
+
+**文字版原文：[【呐喊】有解药！没疫苗！](https://gnews.org/zh-hans/1123371/)**
+
+作者：纽约香草山佛教部 369文驹
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

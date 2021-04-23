@@ -1,55 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104023（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1131441/)
+## 德国总理默克尔为Wirecard游说将接受公开调查质询
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1131521/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+- 翻译： 里奇
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01-14.jpg)
+**西班牙2021年4月23日电/西喜社——**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02-15.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/merkel-3464284_640.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03-14.jpg)
+周五，德国立法者将询问总理安格拉·默克尔（Angela Merkel），为什么她为支付公司Wirecard游说，而此事恰好发生在该公司因涉嫌德国战后最大的欺诈案而倒闭前的几个月。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-15.jpg)
+默克尔的出庭将标志着公开调查此事的高潮，这一事件玷污了德国的正直声誉，暴露了政治与商业间的勾兑关系，也会加快她辞职及刑事调查。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05-14.jpg)
+政府已经表示，默克尔当时不知道Wirecard的违规行为，该公司自从披露19亿欧元（23亿美元）的财务漏洞触发破产后就被解散了。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06-12.jpg)
+Wirecard最初是通过为赌博和色情内容提供付款服务而起家的，一度被誉为德国罕见的技术成功案例，尽管很少有人真正了解它。公司曾经价值280亿美元，但在去年突然解散了。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07-12.jpg)
+立法者表示，德国政府对此公司持偏爱立场，对公司倒闭前的经营违规行为的指控一事视而不见。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08-12.jpg)
+议员们将询问默克尔，为什么她在2019年9月的国事访问期间提出了Wirecard计划收购一家中国公司的计划。她办公室的一名高级官员还承诺进一步支持Wirecard。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09-12.jpg)
+主持公开调查的立法者之一法比奥·德·马西（Fabio De Masi）说：“总理在中国向最有权势的人为Wirecard游说。” 马西进一步质问，总理为什么给予这家公司如此优先地位。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-18.jpg)
+自2005年掌权以来的默克尔仍然很受欢迎，尽管人们对她的政治生涯意见不一（例如她2015年决定对逃离中东战争的难民开放德国的边界）。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-18.jpg)
+Wirecard的惨败严重破坏了默克尔政府的声誉，因为这些德国政客竭尽全力支持这家公司一事被暴露在众目睽睽之下。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-20.jpg)
+透明国际的斯蒂芬·克劳斯·欧姆（Stephan Klaus Ohme）表示，此事暴露了德国对行业的管理采取的自由放任模式的漏洞，从而让各公司几乎完全自行其是。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-16.jpg)
+他补充说：“在德国，您应该遵守规则; 但如果不这样做，也不会有什么事发生。靠罚款简直可笑。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-15.jpg)
+（1美元= 0.8329欧元）Wirecard是一家德国银行软件公司。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-15.jpg)
+**点评:**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-12.jpg)
+**特殊时刻这样的发酵事件是否是德国政坛暴风雨来临的前兆？一些西方政客们贪婪自私的本性暴露无遗，他们置国家利益和人民福祉不顾，不顾一切与共产恶魔共舞勾兑，这场新冠病毒就是最无情的报应！再不幡然醒悟就只有被”人类命运共同体”了。**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-11.jpg)
+素材：里奇；审核：Jenny Ball；校对：阿伯塔；发稿：信心的选择
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/18-9.jpg)
+**新闻来源：**[路透社](https://www.reuters.com/business/germanys-merkel-be-quizzed-over-wirecard-lobbying-public-inquiry-2021-04-23/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/19-8.jpg)
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
-本文仅代表作者观点
 
-发稿：Ranting
 
 0

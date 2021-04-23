@@ -1,52 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国总理默克尔为Wirecard游说将接受公开调查质询
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1131521/)
+## 【有声读物】北国飘雪，南国落雨
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1131630/)
 
-- 翻译： 里奇
+配音：香草山录音组 Swr拥抱太阳
 
-
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-**西班牙2021年4月23日电/西喜社——**
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/merkel-3464284_640.jpg)
-
-周五，德国立法者将询问总理安格拉·默克尔（Angela Merkel），为什么她为支付公司Wirecard游说，而此事恰好发生在该公司因涉嫌德国战后最大的欺诈案而倒闭前的几个月。
-
-默克尔的出庭将标志着公开调查此事的高潮，这一事件玷污了德国的正直声誉，暴露了政治与商业间的勾兑关系，也会加快她辞职及刑事调查。
-
-政府已经表示，默克尔当时不知道Wirecard的违规行为，该公司自从披露19亿欧元（23亿美元）的财务漏洞触发破产后就被解散了。
-
-Wirecard最初是通过为赌博和色情内容提供付款服务而起家的，一度被誉为德国罕见的技术成功案例，尽管很少有人真正了解它。公司曾经价值280亿美元，但在去年突然解散了。
-
-立法者表示，德国政府对此公司持偏爱立场，对公司倒闭前的经营违规行为的指控一事视而不见。
-
-议员们将询问默克尔，为什么她在2019年9月的国事访问期间提出了Wirecard计划收购一家中国公司的计划。她办公室的一名高级官员还承诺进一步支持Wirecard。
-
-主持公开调查的立法者之一法比奥·德·马西（Fabio De Masi）说：“总理在中国向最有权势的人为Wirecard游说。” 马西进一步质问，总理为什么给予这家公司如此优先地位。
-
-自2005年掌权以来的默克尔仍然很受欢迎，尽管人们对她的政治生涯意见不一（例如她2015年决定对逃离中东战争的难民开放德国的边界）。
-
-Wirecard的惨败严重破坏了默克尔政府的声誉，因为这些德国政客竭尽全力支持这家公司一事被暴露在众目睽睽之下。
-
-透明国际的斯蒂芬·克劳斯·欧姆（Stephan Klaus Ohme）表示，此事暴露了德国对行业的管理采取的自由放任模式的漏洞，从而让各公司几乎完全自行其是。
-
-他补充说：“在德国，您应该遵守规则; 但如果不这样做，也不会有什么事发生。靠罚款简直可笑。”
-
-（1美元= 0.8329欧元）Wirecard是一家德国银行软件公司。
-
-**点评:**
-
-**特殊时刻这样的发酵事件是否是德国政坛暴风雨来临的前兆？一些西方政客们贪婪自私的本性暴露无遗，他们置国家利益和人民福祉不顾，不顾一切与共产恶魔共舞勾兑，这场新冠病毒就是最无情的报应！再不幡然醒悟就只有被”人类命运共同体”了。**
-
-素材：里奇；审核：Jenny Ball；校对：阿伯塔；发稿：信心的选择
-
-**新闻来源：**[路透社](https://www.reuters.com/business/germanys-merkel-be-quizzed-over-wirecard-lobbying-public-inquiry-2021-04-23/)
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
+
+
+
+北国飘雪
+落满记忆深处的童年:
+你做的饺子还在我的嘴里散步
+
+北国飘雪
+请冰封古老国度
+只愿你在最后的风暴中惊蛰而渡
+
+
+
+**文字版原文：[【香草诗词汇】北国飘雪，南国落雨](https://gnews.org/zh-hans/624420/)**
+
+作者：香草山写作组 木白
+
+
+
+音频处理/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

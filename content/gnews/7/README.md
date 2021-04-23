@@ -1,49 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】病
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1131621/)
+## 西喜时事新闻简报—国际篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1131705/)
 
-配音：香草山录音组  Swr拥抱太阳
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+- 作者：wenwu
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2021年4月23日电/西喜社——**
+
+您若想了解全文报导内容，请点击标题后链接
+
+**1. [叙利亚防空导弹落在以色列核设施附近](https://www.bbc.com/news/world-middle-east-56842502)**
+
+据《英广（BBC）》4月22日电，叙利亚高射导弹向以色列南部的飞机发射，导弹在距离一个秘密核场只有30公里的地方被拦截爆炸。以色列之后袭击了叙利亚的几个防空炮台。另外，对伊朗其纳坦兹铀浓缩厂发动了网络破坏袭击的幕后黑手不明朗。
+
+**2. [微软与中国军方挂钩的华为衍生产品合作](https://thenationalpulse.com/breaking/microsoft-partners-with-huawei-spinoff/)**
+
+据《国家脉动》4月22日电，微软一直面临一系列来自中国共产党的大规模黑客攻击，该公司与最近从中国军事关联公司华为分拆出来的科技公司 Honor 合作。Honor仍属于中共科技公司。
+
+**3. [参议院共和党议员霍利和布劳恩提出法案，要求拜登解密武汉实验室泄露情报](https://www.hawley.senate.gov/hawley-braun-introduce-bill-requiring-biden-declassify-wuhan-lab-leak-intelligence)**
+
+据《霍利参议院官网》4月22日电，一年多来，任何询问武汉病毒研究所的人都被贴上了阴谋论者的烙印。世界需要知道这种流行病是否是武汉实验室疏忽的产物，但中共已竭尽全力阻止可信的调查。这就是为什么拜登政府必须解密它对武汉实验室和北京掩盖疫情起源的调查情况。
+
+**4.[新研究发现，中共国系统性的低估了环境污染水平](https://dailycaller.com/2021/04/22/china-under-reports-pollution-new-study/)**
+
+据《每日来电者》4月22日电，中共国是环境污染最严重的国家之一。另外，虽然中共国尽力在各个机构改革后，污染数据报告的污染量存在统计学显著差异，这表明当当地空气质量不佳时，在政府机构地控制下系统性的少报了污染水平。
+
+**5. [独家：海军陆战队司令员透露了为与中共国冲突做准备的新任务](https://www.washingtontimes.com/news/2021/apr/21/marine-commandant-reveals-new-mission-preparing-ch/)**
+
+据《华盛顿时报》4月21日电，美国海军陆战队司令部司令，大卫·H.伯杰正在为美中从竞争升级成战争做准备。其中对中共国的侦察筛查行动成为当前核心项目。内容为：及时向指挥官反馈战斗信息和直接攻击敌人的阵地。
+
+审核：蚂蚁兄弟；校对：信心满满；发稿：信心的选择
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 
-
-流水二两是家乡，白云一钱为真爱，青山一石忘乾坤——
-
-我的病并不比你的轻。
-
-
-
-家猫两只晒冬阳，野狗一条不流浪；若雪厚风大，有双手来温暖会更好——
-
-你的病并不属于这人间。
-
-
-
-**文字版原文：[【香草诗词汇】病](https://gnews.org/zh-hans/694537/)**
-
-作者：香草山写作组 木白
-
-
-
-音频处理/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
