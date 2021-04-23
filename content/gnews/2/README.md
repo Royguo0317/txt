@@ -1,11 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印度WION报导美深化对台关系新方针
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1130555/)
+## BBC记者沙磊被一大群流氓赶走了
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1130812/)
 
-4/10/2021 印度媒体WION报导美国国务院出台关于与台湾官员会晤的新方针，称当下中共在台湾海峡军事攻击变本加厉，美此举旨在深化美台关系。
+王公公说，你去过中国吗？你了解中国吗？结果人家真的去了中国，真的要了解中国人民底层生活状况，共产党立刻翻脸，派几十个人阻挠记者。
 
 By： 【秘密翻译组 G-Translators】
 
-0
++1
