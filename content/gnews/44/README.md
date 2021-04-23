@@ -1,21 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月23日灭共要闻快报
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1130998/)
+## 【每日快讯】04/22/2021：美参议院外交委员会高票通过彻底结束中共国而量身定做的《战略竞争法案》
+` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1131180/)
 
-重点内容：
+**制作：Cantonese工作室**
 
-印度单日感染31万，破全球纪录；
 
-郭先生：没有疫苗、中共有解药！
 
-澳洲以危害国家利益为由退出“一带一路”；
+**播报：【海媚】资料整理：【Ruby三鑫】【闪电】海报制作：【Penny】视频制作:【文德 】 上传：【星星 】【向阳6768】**
 
-中共加强出国监管，要求老师上缴护照等证件；
+摘要：
 
-历史倒车！学校竟然教学生跳忠字舞
-
-**By**：【秘翻组**–**上天造灭疫组】
-
-+5
+1
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210423-_page-0002.jpg)
+2
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210423-_page-0003.jpg)
+3
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210423-_page-0004.jpg)
+4
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210423-_page-0005.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/0-3.jpg)
++1

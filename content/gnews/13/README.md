@@ -1,49 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】病
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1131621/)
+## 【闫丽梦博士铿锵有力回应“审阅者”】关于闫博士的第三份论文－点对点回应约翰·霍普金斯大学健康安全中心的“审阅者”第四部分 （续）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1131764/)
 
-配音：香草山录音组  Swr拥抱太阳
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
+- 翻译：peacelv
+- 制图：透明的遮羞布
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2021年4月23日电/西喜社——**
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/virus2.jpg)
+
+续上继续发表有关闫博士第三份论文的第三部分内容。
+
+**第十、他们提出，闫博士序列同源性数据的错误描述**
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-1-15.jpg)
+
+审阅者提出对第9行到10行的质疑：作者呈现各种不同的数据源，数据有些特别，文章内部不一致，或者在文章里被曲解的。打个比方，他们说作者描述的E蛋白在发病机理中扮演了最小的角色，但是上图呈现了一个相对稳定的氨基酸序列。在第4行到第5行, 作者描述的SARS-CoV-2的E蛋白是高度允许突变的。因为在两个月的期间内，已经有4个非同义突变。他们用这个建议早期的SARS-CoV-2样本和据称是病毒骨架的显著特征是奇怪的。当SARS-CoV-2有能力去接纳E蛋白的非同义突变时，因此，SARS-CoV-2是不可能的牵涉到拥有100%自然序列特征。但是，这个分析没有考虑到在样本中的序列，以及系统发育树中存在的选择偏见。
+
+在这个空白的区域内，有很多在冠状病毒家庭的发源树上，让它变得难以准确地确定第二种病毒变体之间相似的可能性。
+
+另外，上图显示只有一种来自大流行早期的序列和4月采集的四种样本。
+
+如果还有2月的其它样本，那可能就不会有SARS-CoV-2 样本中和ZC45 和ZXC21的100%相同氨基酸序列特征了。最后，两个变种的冠状病毒显示的序列在一个特别的基因，可能是趋同进化的样本。
+
+回应：Warmbrod等人又一次曲解了我的描述，批评插入片段。我从来也没有描述E蛋白为高度不同或者高度允许突变的。相反地，我们描述的是E蛋白是宽容且允许突变的，尽管它是一个功能保守的结构蛋白。
+
+更有甚者Warmbrod等人在系统发育分析和进化生物学的无知是令人震惊的。序列特征是100%的相似性高时，无论系统发育树中是否有空白（缺失物种），这都是正确的。这是基本常识的序列同一性/同源性决定系统发育关系，反之则不是。
+
+Warmbrod在这里缺少对进化生物学基本常识的认知是惊人的。
+
+因此，重要的是，在系统发育树上有可能的空白不可能改变一个事实，就是SARS-CoV-2和ZC45/ZXC21的E蛋白的100%相似性的高度是令人可疑的。
+
+Warmbrod等人又争辩说，如果来自2月有更多的样本的话，那可能就不会有SARS-CoV-2样本和ZC45/ZXC21的100%氨基酸序列同一性了。这样一个设想，但是会更多地证明我们的观点就是E蛋白是宽容且允许突变的。这里就是SARS-CoV-2早期的分离样本中发现到与ZC45/ZXC21有E蛋白100%氨基酸类似性的重要事实。序列数据清晰地展示了在E蛋白是不够强大压变或去清除任何的氨基酸突变的。这就是这个E蛋白与ZC45/ZXC21的100%的同一性和早期的SARS-CoV-2分离样本是高度相似是令人吃惊的。
+
+最后，Warmbrod等人评论趋同进化可以导致SARS-CoV-2和ZC45/ZXC21的E蛋白100%同一性。虽然它是理论上可行的，但是事实并不是。SARS-CoV-2 和 ZC45/ZXC21感染不同的宿主。
+
+因此，在病毒各自进化的路径上细胞环境对病毒的影响是显著不同的，这个会决定选择压力不会驱使Ｅ蛋白进化到一个同一序列的。一个中间宿主的存在可能会让它更不可能。反之，应该反过来思考。在这里应当没有100%的氨基酸同一性被观察到。再一次，在Ｅ蛋白上SARS-CoV-2和ZC45/ZXC21 100%的同一性是令人吃惊的，也是一个ZC45/ZXC21被用于作为一个模板来创造SARS-CoV-2的标志。
+
+审核：蚂蚁兄弟；校对：信心满满；发稿：信心的选择
+
+- [【闫丽梦博士铿锵有力回应“审阅者“】第一篇](https://gnews.org/zh-hans/1116291/)
+[【闫丽梦博士铿锵有力回应“审阅者“】第二篇](https://gnews.org/zh-hans/1116349/)
+[【闫丽梦博士铿锵有力回应“审阅者”】第三篇](https://gnews.org/zh-hans/1116385/)
+[【闫丽梦博士铿锵有力回应“审阅”】续下一篇](https://gnews.org/zh-hans/1131822/)
 
 
-流水二两是家乡，白云一钱为真爱，青山一石忘乾坤——
-
-我的病并不比你的轻。
-
-
-
-家猫两只晒冬阳，野狗一条不流浪；若雪厚风大，有双手来温暖会更好——
-
-你的病并不属于这人间。
-
-
-
-**文字版原文：[【香草诗词汇】病](https://gnews.org/zh-hans/694537/)**
-
-作者：香草山写作组 木白
-
-
-
-音频处理/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 0

@@ -1,51 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】写一首没有压迫的诗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1131638/)
+## 【闫丽梦博士铿锵有力回应“审阅者”】关于闫博士的第三份论文－点对点回应约翰·霍普金斯大学健康安全中心的“审阅者”第五部分 （续）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1131822/)
 
-配音：香草山录音组 Gtv abeilles（蜜蜂）
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
+- 翻译：peacelv
+- 制图：透明的遮羞布
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2021年4月23日电/西喜社——**
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/virus3.jpg)
+
+续上继续发表有关闫博士第三份论文的第四部分内容。
+
+第十一、和**ACE2**的结合
+
+他们提出行31到34：在RaTG13能否结合不同的ACE2同系物从不同类型的马蹄靴蝙蝠，说闫博士等人忽略指出被分离出RaTG13的特殊品种马蹄靴蝙蝠的同系物ACE2没有被包括在引用的结合研究中。这样做出结论有关RaTG13能否感染ACE2同源物是不完整的。
+
+回应：Warmbrod等人又一次曲解了事实在这里。闫博士的实际描述是“RaTG13的Ｓ蛋白的RBD不能结合两种不同类型马蹄靴蝙蝠的ACE2（他们接近和马蹄靴蝙蝠R. affinis, RaTG13的被指称的自然宿主）”。很清晰地，我们充分地认识到R. affinis的ACE2没有被测试到。Warmbrod等人完全忽略一个事实和批评了一个在我们的报告中的“错误”，我们没有实际犯的。
+
+**第十二 ****Rhinolophus affinis ACE 2****的结合**
+
+他们提出34-36行：研究者已经显示SARS-CoV-2的RBD结合人类，果子狸和Rhinolophus macrotis蝙蝠ACE2结合者最佳地，和Rhinolophus affinis的受体结合域(RBD)　没有结合不同马蹄靴蝙蝠种类的ACE2。R affinis ACE2没有很好被标识出来，所以它没有被测试过。这是一个进程中的有趣的工作，但是它没有提供SARS-CoV-2的出处的实质性结论。
+
+回应：这是一个不可信的评论，显示了Warmbrod等人对冠状病毒生物学的知识缺乏了解到了完全令人吃惊的地步。Warmbrod等人描述了以下内容“Rhinolophus affinis的RBD没有不同的马蹄靴蝙蝠种类的ACE2结合”，但是，RBD并不是来自Rhinolophus affinis，一种蝙蝠各类。相反地，RBD是来自RaTG13病毒，从Rhinolophus affinis分离出来的。Warmbrod等人缺少的知识是令人吃惊的，标识了一个事实就是Warmbrod等人完全是没有质量的，在审查我们的报告。事实上，他们这里的行为提供了完全的有偏见的和错误的审查对于一个全球的健康相关的科学报告，当作为审查者是完全没有质量的，这是不能接受和应受谴责的。
+
+自然进化保证*Rhinolophus affinis**的*ACE2会更比人类ACE2更同源于相关的马蹄靴蝙蝠ACE2。当ACE2接收者来自两个接近相亲的马蹄靴蝙蝠没有和RaTG13的RBD完全结合时，这不仅仅是不安全的，也是不合理的去推断*R. affinis**的*ACE2接收者可能不能去结合RaTG13的RBD。没有能力去认识到或者知道否认这个简单逻辑下划线Warmbrod等人作为无偏见审核者的质量的缺失。
+
+**第十三缺少方法部分**
+
+他们提出报告缺少方法部分，这是典型地会被包括在审阅文章23里的，允许过程的批评审阅，通过这个被审阅的文章被选择。信息应当包括序列怎么产生的，序列质量和采样偏差的调整，所有的措施影响了结果和结论。
+
+回应：这个评论是不正确和误导的。虽然闫博士没有一个单独的方法章节，但是已经提供了有效的细节在章节篇幅去保证每个单独的分析可以被其它人验证。不像Warmbrod等人已经的批评，闫博士等真正地描述出序列是怎么做出来的。在Figure 2的章节，已经指出“序列是通过使用*MultAlin**网站服务器（*[http://multalin.toulouse.inra.fr/multalin/)做出来的”，没有在Figure 4](http://multalin.toulouse.inra.fr/multalin/%29)再次列出这个信息。但是，这是一个科学论文里的路径，当同样的方法被用于序列测序时，
+
+还有方法的细节已经在论文里提供过了，同样的细节就不必再次被完整展现了。所有在闫博士的论文被使用的序列都是在GenBank发布，然后这些序列的质量是被数据库所保证的。我们的实践没有和任何发布的工作不同。这里也没有采样偏差的问题。我们清晰地指定哪种序列被使用。这些序列对我们的比对提供了支持，在任何的序列采样及对比的综合下保持有效。为了在这里证明我们错误，Warmbrod等人想要展示那个确切的序列有偏差的，为什么他们要这样争论，无偏差的对比会是怎么样的，是否有一个不同的结论在这里被引出来，在这里他们显然没有做。
+
+重要的是：Warmbrod等人没有权利定义闫博士的报告是什么。闫博士的报告是一个基于证据，严谨的科学发布物，但不一定是一个评论文章。
+
+在世界上的任何地方他们都找不到一篇科学的评论文章是拥有以下事项综合起来的：它关心世界范围内的批评，它对全球的健康是严格的，然后是严重紧迫的，它需要处理一系列大规划的有组织的科学造假；它面对一个跟中国共产党一样强大的政权的压迫。
+
+最后，这篇文章最重要的一方面是它的科学质量和完整性，而不是形式或者内里的方法信息是如何组织的。与这个理念一致，在闫博士的报告里，已经呈现了重大的科学数据和分析以逻辑和相干的方式。闫博士已经指定了SARS-CoV-2基因组的独特功能（限制位点，稀有密码子，进化异常等），如此强烈支持了SARS-CoV-2来自实验室的观点。闫博士已经引用超过100参照物以严谨科学的方式，展示了闫博士有必须的物质和信息关于SARS-CoV-2的实验室产生已经牵涉进相关的功能增强性（gain-of-function）研究。
+
+审核：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
+
+- [【闫丽梦博士铿锵有力回应“审阅者“】第一篇](https://gnews.org/zh-hans/1116291/)
+[【闫丽梦博士铿锵有力回应“审阅者“】第二篇](https://gnews.org/zh-hans/1116349/)
+[【闫丽梦博士铿锵有力回应“审阅者”】第三篇](https://gnews.org/zh-hans/1116385/)
+[【闫丽梦博士铿锵有力回应“审阅者”】第四篇](https://gnews.org/zh-hans/1131764/)
+【闫丽梦博士铿锵有力回应“审阅者”】续下一篇
 
 
-
-
-悲秋不可悲
-
-可悲的是这片土地上那么多悲剧无人知晓
-
-可悲的是腐烂的依旧在腐烂
-
-可悲的是不让我们说出可悲这个词
-
-可悲的是悲剧制造者们可悲的时候到了
-
-
-
-**文字版原文：[写一首没有压迫的诗](https://gnews.org/zh-hans/413252/)**
-
-作者：纽约香草山写作组  木白
-
-
-
-音频处理/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 0
