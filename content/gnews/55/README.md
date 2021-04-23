@@ -1,29 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美商务部长称美面临芯片安全危机
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1123682/)
+## 【有声读物】纽约南区法院SV案追踪（1）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1131582/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+配音：香草山录音组 蒙古鸿雁
 
-编辑上传    水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-38.jpg)gestion.pe
-Transport Topics报道，美国商务部长吉娜·雷蒙多在就拜登总统的基础设施计划举行的听证会上说，由于缺乏半导体生产，美国面临国家安全“危机”。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-雷蒙多4月20日说：“现在可以毫不夸张地说，我们的供应链出现了危机。”他把生产缺陷称为“国家安全和经济安全风险”。
 
-雷蒙多对参议院拨款委员会成员说，美国在半导体方面完全依赖中共国和台湾。美国在芯片设计方面仍处于世界领先地位，但制造业务已在很大程度上让位给外国公司。根据半导体行业协会和波士顿咨询集团(Boston Consulting Group) 2020年9月发布的一份报告，美国在半导体制造业中的份额已从1990年的37%下降至12%。
 
-解决影响芯片制造的供应链问题在国会得到了两党支持。参议院多数党领袖、民主党人查克·舒默(Chuck Schumer)和印第安纳州共和党人托德·杨(Todd Young)计划在4月20日提出一项名为《无尽前沿法案》(Endless Frontier Act)的立法，计划在五年内提供1,000亿美元用于促进美国的研发。
 
-拜登提出的2.25万亿美元的基础设施建设计划，要求美国国家科学基金会(National Science Foundation)出资500亿美元，成立一个专注于半导体制造等领域的技术理事会。
 
-全球半导体短缺已经冲击了从汽车制造商到消费电子的各个行业，台湾最大的公司台湾积体电路制造有限公司上周警告称，短缺可能会延续到明年。
 
-雷蒙多说，基础设施法案中的措施将不仅仅是对盈利公司的补贴，而是要求它们“参与其中”。参议院拨款委员会副主席、共和党人谢尔比(Richard Shelby)表示，他对以牺牲纳税人利益为代价，在半导体生产方面与中共竞争的”大规模补贴”持怀疑态度。
 
-参考链接：
+历时多年的东利（Eastern profit)公司诉愿景（Strategic Vision)公司诈欺案，2021年4月19日终于在位于曼哈顿的联邦纽约南区法院公开审理。预计历时四天，传唤双方证人出庭作证，月底将会由法官判决。笔者遗憾没在庭审现场，仅根据听过庭审的人员做的视频做一个追踪简报。
 
-[https://www.ttnews.com/articles/us-faces-security-crisis-chips-raimondo-says](https://www.ttnews.com/articles/us-faces-security-crisis-chips-raimondo-says)
+此案案情并不复杂。郭文贵先生代表的东利公司于2018年1月6日，与愿景公司的J.Michael Waller（实际老板是French Wallop)签约了一份调查合同。月底，愿景向东利提供了一份报告，但显然不符合它自己对其职能的陈述，以及违约欺诈。东利随即起诉愿景，指控愿景以其职务方便为中共在海外代理人工作，在海外大量搜集对CCP有异议的人士的数据，并要求愿景退回约金。
 
-+1
+
+
+**文字版原文：[【世事解评】纽约南区法院SV案追踪（1）](https://gnews.org/zh-hans/1123436/)**
+
+作者：纽约香草山写作组  Kathy（文艺）
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

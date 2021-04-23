@@ -1,15 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月23日 文贵先生盖特 1
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1132189/)
+## 日本：加入对抗中共的联盟中
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1132330/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+#### 视频德文字幕翻译: 大脚印
 
-4月23号尊敬的家人们好无数战友发来的各种信息，和要求我要尽快的直播一下．战友太想念惦记文贵了。实在是没办法一一回复！文贵，马上在9:30至10:00左右开始乱聊直播！
-![]()![](https://gnews.org/wp-content/uploads/2021/04/ccfc3f00c1354628aadcaf3e6e9b05a7.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/af189cf8e7af058c19b61cdf29b33724.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/2bdae238a9a9a1d0e8c2ab19ace7feab.jpg)
-[【2021年4月22日】文贵先生盖特原文](https://gtv.org/getter/6082c9f68616c84f0ff2c54a)
+在福克斯新闻的访谈中，前国务卿蓬培奥要求拜登政府与日本形成同盟来对抗中共的威胁。中共国的公司可能是投资风险，因为它们与中共军队有联系，而且还吸收了美国的资本，但没有合适的财务披露。另外，在中共国投资的美国公司应该关注那里正在进行的种族灭绝。
 
-**喜联盟Gnews编辑部**
+[视频来源](https://video.foxbusiness.com/v/6249177102001)
 
-+1
+[盖特](https://gtv.org/getter/607acd668616c84f0ff0546c)
+
+**工作人员团队**
+*视频选材: birdie
+任务发布: 美丽心情
+视频剪辑: laowu
+听写记录: 秘密翻译组
+德文校对: 可爱国
+字幕挂放: 马丁路德King
+字幕审核: 美丽心情
+字幕压缩: 美丽心情
+责任编辑: 可爱国, 美丽心情
+封面图片: 铜豌豆
+排版发布: 铜豌豆*
+
+0
