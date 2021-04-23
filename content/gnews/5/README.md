@@ -1,43 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共开展对台湾的心理战行动
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1131330/)
+## 【有声读物】纽约南区法院SV案追踪（1）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1131582/)
 
-作者：纽约香草山写作组    四季
+配音：香草山录音组 蒙古鸿雁
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-据[自然新闻](https://www.naturalnews.com/2021-04-22-taiwan-china-psychological-warfare-divide-society-government.html#)4月22日的报道，4月15日星期四，台湾总统蔡英文警告她的人民，中共政权已经对她的国家发起了一场心理战运动。这一针对台湾的最新攻击旨在造成台湾社会的分裂，使人民反对这位思想独立的总统和她的政府。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS2281-【热点播报】中共开展对台湾的心理战行动.jpg)
 
-蔡英文的警告是在一份假文件在台湾流出并随之疯传的时候发出的。这份文件声称，她的政府正计划从日本福岛第一核电站进口水进行处理和处置。
 
-这份假文件使用了蔡英文办公室公开声明的官方格式，它甚至试图复制她的办公室撰写公告的方式。这意味着，任何看过的人都很容易将这份文件误认为是官方政策。但是这个假文件里面有三个缺陷，首先，该假文件于4月15日开始在Twitter上流传，但上面的发布日期是4月16日；第二，该假文件说进口核水的决定是在内阁会议上做出的，但蔡英文指出，台湾政府不举行内阁会议；第三，该文件使用了一个简体字的词，台湾不使用简体字，而是使用繁体字。
 
-蔡英文得出结论，这份假文件是一种心理战的行为。她认为这份假文件的发布和传播是中共有组织策划的，目的是为了颠覆她的政府。
+历时多年的东利（Eastern profit)公司诉愿景（Strategic Vision)公司诈欺案，2021年4月19日终于在位于曼哈顿的联邦纽约南区法院公开审理。预计历时四天，传唤双方证人出庭作证，月底将会由法官判决。笔者遗憾没在庭审现场，仅根据听过庭审的人员做的视频做一个追踪简报。
 
-蔡英文在之前会见来自美国的由康涅狄格州的前民主党参议员克里斯托弗-多德，以及前副国务卿理查德·阿米蒂奇和詹姆斯·斯坦伯格率领的代表团时强调，中共国的军事活动严重威胁着该地区的和平与稳定。她说，“我们非常愿意与包括美国在内的志同道合的国家合作，共同维护印太地区的和平与稳定，阻止冒险的演习和挑衅”。她在会议期间发誓，将继续与美国等国家合作，应对来自大陆的认知和心理战威胁，以及有针对性的虚假信息攻击。
+此案案情并不复杂。郭文贵先生代表的东利公司于2018年1月6日，与愿景公司的J.Michael Waller（实际老板是French Wallop)签约了一份调查合同。月底，愿景向东利提供了一份报告，但显然不符合它自己对其职能的陈述，以及违约欺诈。东利随即起诉愿景，指控愿景以其职务方便为中共在海外代理人工作，在海外大量搜集对CCP有异议的人士的数据，并要求愿景退回约金。
 
-最近几周，台湾几乎每天都受到中共国空军对其领空的入侵。台湾保留了中华传统文化，是中华民族最后一片净土。中共的恐吓吓不倒台湾人民，蔡英文政府对中共的威胁做出的回应是，称如果中共入侵该岛，台湾将“战斗到最后一天”。相信一旦中共入侵台湾，必将遭到全世界联军的沉重打击。
 
-校对/发稿：雪梨
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpeg)
+**文字版原文：[【世事解评】纽约南区法院SV案追踪（1）](https://gnews.org/zh-hans/1123436/)**
+
+作者：纽约香草山写作组  Kathy（文艺）
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
 [**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-+1
+0
