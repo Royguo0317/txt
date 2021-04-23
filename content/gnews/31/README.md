@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】冬至
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1131611/)
+## 【有声读物】病
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1131621/)
 
-配音：香草山录音组 Swr拥抱太阳
+配音：香草山录音组  Swr拥抱太阳
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -12,23 +12,19 @@
 
 
 
-冬至
+流水二两是家乡，白云一钱为真爱，青山一石忘乾坤——
 
-在最长的黑夜闭眼冥想
-
-想想上帝的样子
-
-想想那棵不存在的菩提
-
-在最短的白昼大声歌唱:
-
-影子的恐惧是阳光的胜利
-
-奔腾的江河是无尽的春水
+我的病并不比你的轻。
 
 
 
-**文字版原文：[【香草诗词汇】冬至](https://gnews.org/zh-hans/673903/)**
+家猫两只晒冬阳，野狗一条不流浪；若雪厚风大，有双手来温暖会更好——
+
+你的病并不属于这人间。
+
+
+
+**文字版原文：[【香草诗词汇】病](https://gnews.org/zh-hans/694537/)**
 
 作者：香草山写作组 木白
 

@@ -1,22 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】日本即将加入五眼联盟
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1131411/)
+## 慧眼看世界202104023（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1131441/)
 
-视频剪辑 :  台湾宝岛农场 – 文德
-中听校： 洛杉矶天使农场 – 雨山溪桥客
-英翻译：洛杉矶天使农场 – Arthur
-英校对：洛杉矶天使农场 – 烟波浩淼
-字幕+视频制作：洛杉矶天使农场 – 压箱底儿の希望
-审核**：**洛杉矶天使农场 – 黎明的光芒
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-路德：
 
-加入北约的级别都不如加入五眼联盟的级别高, 因为北约几十个国家，只有几个国家才是五眼联盟的。情报，只有那几个国家才能看得到最顶级的最原始的东西。全世界所有的东西，只有这几个国家看到。北约几十个国家，法国都没加入，德国都没资格，是不是，这么多国家都没加入。日本让它加入，第一刚才我们说了，日本的几十年的证明这是一个可信的，他只要签约，因为你加入五眼联盟一定要签约嘛，是不是，签约了等于我就把所有的东西都给你看，你就进来，并且你还要里面派人，给钱，资金肯定是要给的。然后你还要安排你的队伍在里面，你的来承担责任。但是这里面一样的，相当于打开了另外一个世界，一看，哇天哪，世界是这样的，你想想，等于说如果是一个邪恶分子加入，这个世界，这五个国家刚才说，英系的，英美是吧，澳新加。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-这几十年验证了他们有强大的能力，但是并没有用这个东西来作恶，就是因为遵守协议。每一个人进入五眼联盟都要遵守，你有一个天大的力量，五眼联盟每一个人，随时可以调动任何的东西对任何的恐怖分子或者他们的目标进行打击，这是毫无疑问的。但是没有一个人用这个力量去对普通老百姓，为自己的私仇私利或者牟利为自己的孩子是吧。搞个几个亿美金做事，没有！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-14.jpg)
 
-这就是验证了体系，所以我们中国人一定要记住什么？你要加入国际体系，你必须得最基本的，是吧，你中共的假骗偷是不可能，没人跟你玩的。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-14.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-14.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-12.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-12.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-12.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-12.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-18.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-18.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-20.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-16.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-12.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-11.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/18-9.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/19-8.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0

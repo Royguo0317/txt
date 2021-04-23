@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】病
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1131621/)
+## 【有声读物】写一首没有压迫的诗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1131638/)
 
-配音：香草山录音组  Swr拥抱太阳
+配音：香草山录音组 Gtv abeilles（蜜蜂）
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -12,21 +12,23 @@
 
 
 
-流水二两是家乡，白云一钱为真爱，青山一石忘乾坤——
-
-我的病并不比你的轻。
 
 
+悲秋不可悲
 
-家猫两只晒冬阳，野狗一条不流浪；若雪厚风大，有双手来温暖会更好——
+可悲的是这片土地上那么多悲剧无人知晓
 
-你的病并不属于这人间。
+可悲的是腐烂的依旧在腐烂
+
+可悲的是不让我们说出可悲这个词
+
+可悲的是悲剧制造者们可悲的时候到了
 
 
 
-**文字版原文：[【香草诗词汇】病](https://gnews.org/zh-hans/694537/)**
+**文字版原文：[写一首没有压迫的诗](https://gnews.org/zh-hans/413252/)**
 
-作者：香草山写作组 木白
+作者：纽约香草山写作组  木白
 
 
 
