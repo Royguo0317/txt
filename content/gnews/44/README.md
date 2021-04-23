@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】有解药！没疫苗！
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1131550/)
+## 【有声读物】冬至
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1131611/)
 
-配音：香草山录音组 蒙古鸿雁
+配音：香草山录音组 Swr拥抱太阳
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -12,26 +12,29 @@
 
 
 
+冬至
 
+在最长的黑夜闭眼冥想
 
-美东时间4月21日，郭文贵先生在GTV盖特平台上，正式发布了重磅消息：
+想想上帝的样子
 
-1、共产党病毒是无容置疑的超限生化武器。
+想想那棵不存在的菩提
 
-2、永远不可能有疫苗。大家甚至没有弄清楚这个病毒是生化武器还是来源于自然，怎么可能有疫苗？人类从没有在短短6个月内生产出疫苗。
+在最短的白昼大声歌唱:
 
-3、根据科学家、欧洲的朋友还有国内的情报百分之百证实：中共有解药！中共用解药掌握人类的命运。我（郭先生）向大家保证：共产党有解药。
+影子的恐惧是阳光的胜利
 
-
-
-**文字版原文：[【呐喊】有解药！没疫苗！](https://gnews.org/zh-hans/1123371/)**
-
-作者：纽约香草山佛教部 369文驹
+奔腾的江河是无尽的春水
 
 
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+**文字版原文：[【香草诗词汇】冬至](https://gnews.org/zh-hans/673903/)**
+
+作者：香草山写作组 木白
+
+
+
+音频处理/发稿：雪梨
 
 ![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 

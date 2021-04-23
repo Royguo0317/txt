@@ -1,50 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 恶意调查GTV的背后：SEC内鬼及中共对美全面渗透
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1132243/)
+## 防堵中共大外宣，美勒令广播机构公开资助清单
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1132355/)
 
-作者：蓝色| 校对：西川stanly| 审核：万人往| Page：小六月
+**撰稿: 天灭中共       **
 
-[!\[\]()!\[\](https://spark.adobe.com/page/raJBTUPomiGeg/images/f07a643c-518f-4d5e-bd2a-9c0de4ed6cb5.jpg?asset_id=2329d75f-3cb1-42d9-83e9-135af49ce661&amp;img_etag=%222965777b23c51c8cc3131d3bb1c99f0c%22&amp;size=1024)](https://spark.adobe.com/page/raJBTUPomiGeg/images/f07a643c-518f-4d5e-bd2a-9c0de4ed6cb5.jpg?asset_id=2329d75f-3cb1-42d9-83e9-135af49ce661&amp;img_etag=%222965777b23c51c8cc3131d3bb1c99f0c%22&amp;size=1024)
-
-所谓豆豆（被战友挖出是中共），借九指妖SARA诈骗GTV事件，伙同SEC内鬼恶意调查GTV。九指妖诈骗GTV，GTV是受害者，SEC不去调查加害者，反而过度调查被害者，是明显的滥用职权，张冠李戴。
-
-所以笔者高度怀疑SEC有中共的内鬼，故意借题发挥。笔者以此怀疑为基础，挖掘了一下SEC高层管理人员的背景，果然不出所料，发现了重要线索，背后隐藏的不仅是吴征和刘特佐，而是中共国对美国的全面渗透。
-
-此次调查GTV的SEC核心人员是吹哨人办公室主任简·诺伯格 Jane Norberg，此人于2021年4月辞职（可能受迫于战友的抗议事件）。在加入SEC之前，她就职于“谢尔曼·思特灵 (Shearman & Sterling)律师事务所”，就在其任职期间，该律师事务所在“1MDB一马公司案”中帮助刘特佐洗钱。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/raJBTUPomiGeg/images/1c200f9b-e6da-40a8-9970-a644e97cd980.png?asset_id=f83afbf7-6657-457c-a4e8-0ab44069ebe0&amp;img_etag=%222c43fe5be2b260ae9115eccb93a0d161%22&amp;size=2560)](https://spark.adobe.com/page/raJBTUPomiGeg/images/1c200f9b-e6da-40a8-9970-a644e97cd980.png?asset_id=f83afbf7-6657-457c-a4e8-0ab44069ebe0&amp;img_etag=%222c43fe5be2b260ae9115eccb93a0d161%22&amp;size=1024)
-
-简·诺伯格能够在日后进入SEC担任要职，那其在律师事务所必然也是重要人物，她不可能不认识刘特佐，甚至可能是洗钱的直接参与人之一。此人应是SEC内鬼中的核心人物。
-
-提拔简·诺伯格由副职转正的是前SEC主席玛丽·乔·怀特（Mary Jo White），此时的美国总统正是奥巴马和拜登。而玛丽·乔·怀特在入职SEC前后都加入了德普 (Debevoise & Plimpton)律师事务所。这又说明了什么呢？
-
-笔者发现一条旧闻：白斯达 (Sidharth Bhasin)在2008年9月从Debevoise＆Plimpton香港办事处加入Shearman＆Sterling香港办事处。这说明，这些著名的律师事务所的人员是相互流动的。表面看是竞争关系，但是由于挖角跳槽和同学、同事等人际关系网络导致其背后实际上是合作关系。
-
-中共通过巨额律师费来腐败这些欧美的大型律师事务所。法官和直接参与执法的行政官员均出自职业律师，来自于各大型律师事务所。渗透了律师事务所，就等于可以部分操控美国法庭和行政官员。
-
-笔者通过调查SEC，又发现了SEC和《华尔街日报》的关系。
-
-《华尔街日报》长期稳定的攻击郭先生、攻击爆料革命。而此次SEC事件的报道，依然是《华尔街日报》最为积极，为什么那么多媒体，唯独《华尔街日报》如此关注SEC调查GTV？直到笔者在推特上发现了这个人“孙梦琪MengqiSun”。原来，SEC和《华尔街日报》一直是有长期、稳定的直接联络人的。而这个华人和杨澜及其子毕业于同一所学校：位于纽约的哥伦比亚大学（著名的中共间谍聚集地）。
-
-《华尔街日报》是道琼斯公司的出版物，而道琼斯公司早就被默多克收购了。再加上纽约南区法院，不难看出，中共通过和华尔街金融大佬的高度合作关系，对美国的行政、法律、媒体进行了全面的渗透。
-
-此次SEC恶意调查GTV，背后黑手就是中共操控的SEC内鬼。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/raJBTUPomiGeg/images/2c89c73e-83f6-4981-bb1b-40ed69e81649.png?asset_id=29780cf8-a857-4152-bb37-29fd54e044ad&amp;img_etag=%229189a129290b744bf040d776cd85e362%22&amp;size=1024)](https://spark.adobe.com/page/raJBTUPomiGeg/images/2c89c73e-83f6-4981-bb1b-40ed69e81649.png?asset_id=29780cf8-a857-4152-bb37-29fd54e044ad&amp;img_etag=%229189a129290b744bf040d776cd85e362%22&amp;size=1024)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/raJBTUPomiGeg/images/5f7ad7d8-889a-4fb0-ab8a-fd939533489a.jpg?asset_id=4d627c30-a918-4479-8358-65035888c14d&amp;img_etag=%2221967c035d68b9a1314ebb7381d3eba1%22&amp;size=1024)](https://spark.adobe.com/page/raJBTUPomiGeg/images/5f7ad7d8-889a-4fb0-ab8a-fd939533489a.jpg?asset_id=4d627c30-a918-4479-8358-65035888c14d&amp;img_etag=%2221967c035d68b9a1314ebb7381d3eba1%22&amp;size=1024)
-
-*文章仅代表作者观点*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+**审核: 青青草原, 慧心**
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/raJBTUPomiGeg/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/raJBTUPomiGeg/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/9507a84397eb8f39.jpg)**图片: 昆仑竹**
 
-+1
+美国联邦通讯委员会在当地时间周四（22日）召开会议，会上一致通过要求广播机构，必须公布接受外国政府资助或者由外国政府提供的节目内容。换句话说，日后当电台、电视台接受外国政府以任何方式提供的资金，从而播放其指定的内容时，就必须即时公布详情。
+
+FCC在声明中强调：“该命令的目的是为了增加了透明度，确保听众知悉外国政府或其代理人正利用各种平台游说美国人。”
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/0012.jpg)**图源: 路透社**
+
+
+
+**强制令的矛头直指中共**
+
+FCC署理主席罗森沃塞尔（Jessica Rosenworcel）表示，近年外国赞助的广播节目以倍数上升，“尤其中共和俄罗斯政府，大量购买各大广播机构的播放时段，播放其指定的内容，情况遍布全美。”
+
+她指出，广播机构日后若再租出广播时段，必须询问出资方有关节目是否与外国政府有关，一经证实有关，广播机构就必须在播出节目时列明赞助方，并公开记录在案。另外，广播机构自身亦要透过司法部和FCC，查证赞助方是否涉及外国代理人。
+
+去年一项来自墨西哥电台XEWW AM在南加州播放中文电台节目的申请，就曾遭到FCC的拒绝，FCC指该电台被凤凰衞视旗下子公司“鸿慧资本”利用，向南加州华人作出中共政治宣传，但电台申请播放权时，却试图隐瞒与凤凰卫视的关系。
+
+根据美国联邦政府的现行规则，未有列明需要广播机构公布外国政府的赞助，因此，美国国会议员近年一直要求FCC采取行动防堵这一漏洞。
+
+**美国主流新闻台严重亲共被点名**
+
+美国共和党参议员柯顿（Tom Cotton）在Podcast节目“The Truth with Lisa Boothe”中，点名批评美国几大主流新闻台“严重依赖”中国共产党的资金。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/00234.jpg)**图源: 美联社**
+
+
+
+柯顿指出：ABC新闻属于迪士尼公司，CNN属于时代华纳（Time Warner），NBC新闻隶属于康卡斯特集团（Comcast-Universal）、CBS新闻则隶属于维亚康姆公司（Viacom），这些主流新闻频道背后，皆是大财团，而这些财团无一不严重依赖中国共产党。“在某些情况下，它们像保镖一样，帮助中共当局误导美国民众的常识、判断和直觉。”
+
+**「笔者评论」**
+
+渗透传媒、扭曲事实、控制思想，是中共的洗脑“三部曲”。
+
+民主制度下，政府施政受民意趋向，要想手执权柄必先赢得民心。所以，中共染指媒体，夺走话语权，将媒体变成自己的“啦啦队”，输出大量误导式的报导，作出各种封闭式的结论，剥夺民众的知情权、弱化民众的自由意志，从而逐渐变成一群容易操控、随意摆布的“牵线木偶”，实现中共“统治世界”的野心。
+
+简言之，媒体是中共对抗民主国家的法宝，无需一兵一卒，胜过千军万马。
+
+笔者乐见美国开始着手收拾战场，叫停中共的媒体战继续推进，继续荼毒民众。另一方面，笔者联想起日前，郭文贵先生在**419**断播一周年的直播中发表的一段关于媒体的现状分析，建议同笔者一样，热爱新闻的人士可以留意一下，他分析的现状令人感到痛心。
+
+笔者相信，所有对这个行业抱有热忱的人都坚信媒体是社会的第四权，它是揭露真相、维护公义、监督政府、为民发声的平台，它不应该成为武器，更不应该变成战场。
+
+事实上，如果新闻工作者都能坚守这份初心，不被金钱利益所惑、不为平庸之恶所趋，那中共的媒体战根本连开始的机会都没有。
+
+
+
+**本文仅代表作者本人观点。**
+
+**参考新闻:**
+
+[FCC orders U.S. broadcasters to identify foreign-government sponsors of programs](https://www.reuters.com/article/usa-broadcasting-foreign/update-1-fcc-orders-us-broadcasters-to-identify-foreign-government-sponsors-of-programs-idUSL1N2MG01L)
+
+[Sen. Cotton accuses CNN, ABC, CBS, and NBC of being ‘heavily beholden’ to China](https://www.foxnews.com/media/tom-cotton-rips-cnn-abc-cbs-nbc-for-being-heavily-beholden-to-china)
+
+
+
+* * *
+
+**发布: 法国巴黎七星编辑组**
+
+
+
+0

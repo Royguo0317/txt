@@ -1,55 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104023（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1131441/)
+## 【有声读物】中共江泽民家族与中共病毒实验室起源究竟有何关联？
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1131598/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+配音：香草山录音组 蒙古鸿雁
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01-14.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02-15.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03-14.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-15.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05-14.jpg)
+2021年4月19日，美国塞林博士在其推特中用一张详尽的图表披露了江泽民家族与中共病毒起源的关联，可谓“重磅中的重磅”。 这张图表名为“中共病毒关联尽在这一家族”， 用不同颜色的箭头勾勒出一张关系网络。下面就让我们看一下这张图的具体内容。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06-12.jpg)
+**一、红色箭头：**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07-12.jpg)
+江泽民，前中国共产党主席，派人监管中国科学院、武汉病毒学研究所和武汉P4实验室。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08-12.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09-12.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-18.jpg)
+**文字版原文：[【热点播报】中共江泽民家族与中共病毒实验室起源究竟有何关联？](https://gnews.org/zh-hans/1125621/)**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-18.jpg)
+作者：纽约香草山翻译部 文雅621
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-20.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-16.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-15.jpg)
+音频处理：喜山必胜Maverick
+发稿：雪梨
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-15.jpg)
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-12.jpg)
+**更多资讯，更多关注**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-11.jpg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/18-9.jpg)
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/19-8.jpg)
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-本文仅代表作者观点
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-发稿：Ranting
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
