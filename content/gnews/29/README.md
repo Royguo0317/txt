@@ -1,93 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第247节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1127886/)
+## 墙内出现网络攻击 中共黑警不罚黑客罚受害者
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1130169/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：Filon | 校对：宁缺 | 审核：万人往 | Page: Daoiii
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/CA-1.jpg)mytruenorthnow.com
-**第247节 加强与加拿大合作的战略**
+[!\[\]()!\[\](https://spark.adobe.com/page/jjmcIS7diSwgy/images/73a57276-ec04-48f4-ac77-b8409cf67ec2.jpg?asset_id=b0ef8ae3-389b-4c9d-b926-022cd7a228b6&amp;img_etag=%22bc804896274aa8d4f7afd0ded8067485%22&amp;size=1024)](https://spark.adobe.com/page/jjmcIS7diSwgy/images/73a57276-ec04-48f4-ac77-b8409cf67ec2.jpg?asset_id=b0ef8ae3-389b-4c9d-b926-022cd7a228b6&amp;img_etag=%22bc804896274aa8d4f7afd0ded8067485%22&amp;size=1024)图片来源：am730
 
-（a）通常情况 — 不迟于本法颁布之日后90天，总统应向参议院外交关系委员会和军事委员会以及众议院外交事务委员会和军事委员会提交一份战略报告，说明美国将如何加强与加拿大政府在管控与中共国政府关系方面的合作。
+## **解决问题力所不及，解决人民得心应手**
 
-（b）要素 —（a）款所规定的策略—
+2021年4月8日19时许，银川市金凤区发生了一起黑客攻击事件。银川某科技有限公司报警称，公司的服务器被人恶意攻击导致无法正常使用。据银川某科技有限公司工作人员介绍，他们发现在当天下午自己企业的网站登录不上了，随后整个办公系统瘫痪，工作无法正常进行。
 
-（1）确定美国和加拿大在处理与中共国的关系方面的主要政策的趋同点和分歧点，在技术、贸易、经济实践、网络安全、安全供应链和关键矿产以及非法麻醉品等领域的合作；
+[!\[\]()!\[\](https://spark.adobe.com/page/jjmcIS7diSwgy/images/71e7fb0b-66cf-495d-a2fa-08c0e0e7106a.jpg?asset_id=591f0054-d077-4d98-b551-db2c25bca392&amp;img_etag=%22e7ffe949b301150014138b54454c3da0%22&amp;size=3337)](https://spark.adobe.com/page/jjmcIS7diSwgy/images/71e7fb0b-66cf-495d-a2fa-08c0e0e7106a.jpg?asset_id=591f0054-d077-4d98-b551-db2c25bca392&amp;img_etag=%22e7ffe949b301150014138b54454c3da0%22&amp;size=1024)
 
-（2）包括与加拿大同行的发展协调努力，以加强美国和加拿大在以下方面的合作—
+中共警察通过检测分析发现，该公司将服务器暴露在互联网，未使用安全设备进行基本安全防护，操作系统未安装杀毒软件，导致其公司服务器被黑客入侵、攻击。随后金凤区公安分局网安大队根据《网络安全法》的相关规定，对银川某科技有限公司未落实网络安全等级保护制度、未履行网络安全保护义务的行为给予了相应的处罚。
 
-（A）管控与中共国的经济关系；
+网络科技公司遭遇黑客攻击报警，警方没有能力找出黑客，反而认为科技公司安全措施不到位才让黑客有机可乘。逻辑上看似很荒唐，在中共治下却稀松平常。因为归根结底，政府官员内心认为民营网络科技公司的损失跟中共政府职能部门的利益没有半毛钱的关系。中共政府职能部门无法解决人民提出的问题，却十分擅长解决提出问题的人民。
 
-（B）中共国的民主和人权；
+中共擅长解决提出问题的人，在中共国这是极其普遍的现象。中共政府对权力的意识本质延续的是封建制度几千年下来的官本位思想。中共政府并不是真正由人民一人一票选出，职能部门权力的来源是领导，而非人民。官员不需要对人民负责，只需要对上级效忠，觉得官大于民。这种官民不对等的思想充斥着中共政府每一个职能体系，自然也就不会去在乎人民真正所遇到的问题。
 
-（C）涉及中共国的技术问题；
+[!\[\]()!\[\](https://spark.adobe.com/page/jjmcIS7diSwgy/images/b4c86a35-f6dd-458c-80de-c86c0c19df33.jpg?asset_id=ec26f6bb-b246-41d3-a0ab-0563c792031d&amp;img_etag=%228e79b746f3be2b5b338abac4ef4e5f7a%22&amp;size=1024)](https://spark.adobe.com/page/jjmcIS7diSwgy/images/b4c86a35-f6dd-458c-80de-c86c0c19df33.jpg?asset_id=ec26f6bb-b246-41d3-a0ab-0563c792031d&amp;img_etag=%228e79b746f3be2b5b338abac4ef4e5f7a%22&amp;size=1024)
 
-（D）涉及中共国的国防问题；以及
+人类已进入21世纪，世界都开始研究火星了，号称人类先进文明体系的中国共产主义掰开虚伪外表，内核却还是封建旧制留下来的统治人民专制思想。中共政府七十年来除了将人民的GDP剥削得更狠，其它方面并未给世界提供多少前进动力，反而让人民与世界文明普世价值渐行渐远。共产主义的一党专政独裁体制是阻碍中国人民自由发展的枷锁，是时候让人民自己来发挥了。只有自由的中国人民在看清事情本质和真相之后，所迸发出无限的力量和潜能才能给人类文明提供发展助力。
 
-（E）国际执法和跨国有组织犯罪问题。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-（3）详述外交努力和未来与加拿大合作的计划，以对抗中共国在世界各地推行的独裁统治模式；
 
-（4）详细说明迄今为止的外交、国防和情报合作以及未来的计划，以支持加拿大努力寻找效益成本比高的、替代华为的5G技术；
+编辑：【英国伦敦喜庄园编辑部】
 
-（5）外交和国防合作细节—
+[!\[\]()!\[\](https://spark.adobe.com/page/jjmcIS7diSwgy/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/jjmcIS7diSwgy/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-（A）推进美国和加拿大在北极地区负责任管理的联合优先事项；以及
 
-（B）对抗中共国向北极地区施加政治、经济和军事影响的努力；以及
-
-（6）详细说明与加拿大合作的外交努力，以跟踪和反击中共国试图在包括世界卫生组织在内的整个多边体系施加影响的企图。
-
-（c）形式 — 本节要求的战略报告应以非保密形式提交，可向公众提供，但必要时可包括保密附件。
-
-（d）咨询 — 国务卿应在本法颁布之日起90天内，且此后每隔180天，就本节所要求的战略的制定和实施与相应的国会委员会进行磋商。
-
-（本节完）
-
-原文链接：
-
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
-
-文字整理：
-
-SEC. 247. STRATEGY TO ENHANCE COOPERATION WITH CANADA.
-
-(a) IN GENERAL.—Not later than 90 days after the date of the enactment of this Act, the President shall submit a strategy to the Committee on Foreign Relations and the Committee on Armed Services of the Senate and the Committee on Foreign Affairs and the Committee on Armed Services of the House of Representatives that describes how the United States will enhance cooperation with the Government of Canada in managing relations with the Government of China.
-
-(b) ELEMENTS.—The strategy required under subsection (a) shall—
-
-(1) identify key policy points of convergence and divergence between the United States and Canada in managing relations with the People’s Republic of China in the areas of technology, trade, economic practices, cyber security, secure supply chains and critical minerals, and illicit narcotics;
-
-(2) include the development coordination efforts with Canadian counterparts to enhance the cooperation between the United States and Canada with respect to—
-
-(A) managing economic relations with the People’s Republic of China;
-
-(B) democracy and human rights in the People’s Republic of China;
-
-(C) technology issues involving the People’s Republic of China;
-
-(D) defense issues involving the People’s Republic of China; and
-
-(E) international law enforcement and transnational organized crime issues.
-
-(3) detail diplomatic efforts and future plans to work with Canada to counter Chinese projection of
-
-an authoritarian governing model around the world;
-
-(4) detail diplomatic, defense, and intelligence cooperation to date and future plans to support Canadian efforts to identify cost-effective alternatives to Huawei’s 5G technology;
-
-(5) detail diplomatic and defense collaboration—
-
-(A) to advance joint United States-Canadian priorities for responsible stewardship in the Arctic Region; and
-
-(B) to counter Chinese efforts to project political, economic, and military influence into the Arctic Region; and
-
-(6) detail diplomatic efforts to work with Canada to track and counter Chinese attempts to exert influence across the multilateral system, including at the World Health Organization.
-
-(c) FORM.—The strategy required under this section shall be submitted in an unclassified form that can be made available to the public, but may include a classified annex, if necessary.
-
-(d) CONSULTATION.—Not later than 90 days after the date of the enactment of this Act, and not less frequently than every 180 days thereafter, the Secretary of State shall consult with the appropriate congressional committees regarding the development and implementation of the strategy required under this section.
 
 0

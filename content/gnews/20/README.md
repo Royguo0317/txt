@@ -1,30 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 余兴龙简历显示 中共早在1992年就开始分离蝙蝠病毒
-` 文怡 加拿大多倫多楓葉農場` [轉載自GNews](https://gnews.org/zh-hans/1128176/)
+## 台空军争取采购AGM-158远距攻陆飞弹
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1130280/)
 
-4月22日，劳伦斯-塞林博士（Dr. Lawrence Sellin）发推揭露长春军事兽医研究所可能是个生物战中心，配图中有中国人民解放军军事医学科学院军事兽医所研究员涂长春（Changchun Tu)。
+台湾宝岛农场 zhong
+![]()![](https://gnews.org/wp-content/uploads/2021/04/擷取423-0.jpg)图撷取自美国空军
+**AGM-158**
+
+美商洛克希德马丁公司（Lockheed Martin）研发制造，属半匿踪远距空对地飞弹，射程达370公里，弹重1021公斤，配有454公斤（1000磅）的WDU-42/B穿甲弹头，可大幅强化F-16V战机的远距对地攻击能力。 （[自由时报报导](https://news.ltn.com.tw/news/politics/breakingnews/3508850)）
+
+**台湾自制万剑弹**
+
+万剑机场联合遥攻武器（简称万剑弹）是中华民国中科院代号「万剑计画」所发展的视距外反跑道集束巡弋飞弹。专门用于破坏机场的跑道，以瘫痪机场的起降功能。也可用于破坏雷达和人员聚集地。
+
+台湾万剑弹跟AGM-158，是同样类型的遥攻武器，但美军所使用的AGM-158可能精准度更高，且实战运用更为可靠。
+
+而万剑弹早已经在2015年量产并服役，由台湾自主研发的经国号战机（IDF）挂载。 （对外强调自主研发，但其实是聘请美国退休的相关专业人士参与研发团队）
+
+**为何台空军还要采购AGM-158？**
+
+答：财政考量。
+
+台湾自主研发万剑弹，虽然性能、功能与AGM-158相近，但终究与美系战机的武器系统不相容。
+
+台湾目前主力战机共三：美f16、法幻象2000-5、台IDF。又f16为「工作马」，承担大部分台湾空防主力。
+
+因此，即便台湾自制万剑弹性能、功能良好，仍无法配备于美系战机。又应该这么说，可以请f16制造商将台湾所生产的飞弹纳入f16射控系统当中，这对于武器商来说绝非难事。
+
+但，请付钱。
+
+2020年，台湾国防预算编列占GPD的2.3%，创历史新高，高于美国2020年到占比2.2%！ （只不过美国的经济规模比台湾大很多就是了）
+
+结论：没钱。又或者说倒不如跟美军每功能相同的美系武器，直接拿来用比较实际。
+
+未来台湾主力战机f16v，以C/D型为基础，主对地攻击。台湾旧款f16战机为A/B型，机体较C/D型小，主灵巧、空战。目前台湾新购入的f16v战机，主擅长对地攻击，购入相应的遥攻武器并不让人意外。
+
+
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
 
 
-> The Institute of Military Veterinary Medicine in Changchun may have been a biowarfare center where secret experiments were conducted on Zhoushan viruses ZC45 & ZXC21 after they disappeared from the scientific literature between 2018-2020.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Covid](https://twitter.com/hashtag/Covid?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/HKlvmn1B7x](https://t.co/HKlvmn1B7x)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 22, 2021](https://twitter.com/LawrenceSellin/status/1385282778133143559?ref_src=twsrc%5Etfw)
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
 
+文章审核：zhong
 
-经战友指点，笔者发现了一位多次与涂长春合作研究的、目前为湖南农业大学教授的余兴龙。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1094.png)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1086.png)
-[简历](https://baike.baidu.com/item/%E4%BD%99%E5%85%B4%E9%BE%99)显示，早在1992年至1995年，余兴龙在广州军区军事医学研究所工作期间，就进行了蝙蝠病毒分离研究。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1087.png)
-1997年起，余兴龙与涂长春合作的中英文论文达几十篇之多。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1088.png)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1089.png)
-可见无论余兴龙在哪个城市、哪个单位工作，都有着军方背景，可以跨地域与其他中共军方人员共同研究并合作论文。
-
-而涂长春如劳伦斯-塞林博士所说，确实是中共军方背景。有[报道](http://scitech.people.com.cn/n/2014/0627/c1007-25206760.html)显示，2014年他就在云南蝙蝠体内检测出了新型SARS（非典型性肺炎）样冠状病毒。真是细思极恐！！！
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/屏幕截图1091.png)
-这些事实验证了中共进行超限生物战是军方直接参与的、长期计划并实施的。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/潘多拉盒子2.jpg)
-余兴龙这样的中共帮凶还在象牙塔里荼毒懵懂、年少的学生，而学生父母们在不知不觉中把充满希冀的下一代送入了为中共卖命的科学狂人魔爪之下。可见中共一日不除，中国人就一日活在邪魔恶党的阴影中，未来也会被无情地摧残。
+文章发布：Little Liu
 
 0

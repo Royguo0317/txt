@@ -1,109 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第245、246节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1127818/)
+## 日美峰会的五大亮点决定了亚太地区新格局
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1130129/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+新闻来源：《哈德逊研究所》Hudson Institute | 作者：Riley Walters | 发布时间：2021年4月20日
+翻译/简评：新街口| 校对：X-Wing飞得更高| 审核：万人往| Page：小雨
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/UC.jpg)panaynews.net
-本2节为“副标题C——应对中共国的区域战略”中，“第一部分-西半球”的245、246节。
+[!\[\]()!\[\](https://spark.adobe.com/page/hAikhdCjs1ePe/images/ad5b00c7-1c6b-4220-91aa-cb45b6d40778.jpg?asset_id=61bc8691-d969-4ceb-8c54-ebc452be4166&amp;img_etag=%224c35152b7f1d14579643c85f7098a07f%22&amp;size=1024)](https://spark.adobe.com/page/hAikhdCjs1ePe/images/ad5b00c7-1c6b-4220-91aa-cb45b6d40778.jpg?asset_id=61bc8691-d969-4ceb-8c54-ebc452be4166&amp;img_etag=%224c35152b7f1d14579643c85f7098a07f%22&amp;size=1024)
 
-要点：美国加拿大应加强合作，打击中共国的造谣、影响活动，以及经济间谍和宣传工作，中共国的基础设施投资，特别是在5G电信技术、自然资源开采和港口基础设施方面，对美国和加拿大构成了国家安全风险，美国应酌情分享收集到的有关华为5G能力，以及中共政府关于5G扩展意向的情报。国会认为，中共国政府任意拘留和虐待对待加拿大公民显然是对加拿大政府逮捕孟晚舟的报复。
+**简评：**
 
-**第一部分-西半球**
+此篇哈德逊研究所对拜登-菅义伟峰会的5点总结，为今后亚太地区的政治格局进行了一个概括。其更深一层的意义就如《路德时评》所评价的，这次峰会代表了日本将代替中共国成为亚洲的“总代理”。
 
-**第245节 国会对美加关系的认识**
+自上世纪80年，中共利用谎言和虚假的承诺，还有出卖自己曾经的盟友前苏联，骗取了以美国为首的西方民主国家的信任。在这些西方国家的技术、资金、市场的帮助下，依靠中国人民的辛苦劳动，逐步成为了世界上第二大的经济实体。中共代表的中国政府一度成为美国认可的亚洲势力代表。
 
-国会认为-
+但是，中共在经济迅速提升后，在国内，并没有给中国人民一个民主自由的社会环境和体制。相反中共变成了一个更加集权、极端的独裁专制体制。在国际上，中共则完全违背了自己承诺的不搞霸权、不搞联盟、不对外侵略的誓言，利用剥削中国百姓的血汗钱来大力发展军事力量威胁周边国家，搞一带一路靠大撒币来绑架、诱使其他国家加入中共的势力范围，扶持独裁流氓国家。更没有底线的是，中共制造并使用超限生物武器，向全世界散播中共病毒，给全球造成了不可弥补的巨大损失。
 
-（1）美国和加拿大有着独特的关系，其基础是共同的地理位置、广泛的个人关系、深厚的经济联系、共同的防务承诺和维护民主、人权，以及二战后建立的以规则为基础的国际秩序的共同愿景；
+反观日本，尽管美日双方在二战中是敌对国，曾在太平洋上进行最血腥的战争，但在战争结束后，日本在政治上已经从一个军国主义体质转变成为了一个民主宪政的现代自由社会体制，在经济上依靠自己的匠人精神从模仿到创新，坚持不懈地发展自己的科技和产品，把日本的科技和制造业提升到了世界顶级水平,并且从70年代就一直位列世界经济实体排名的前三甲。在外交和军事上，尽管具有卓越的科技和雄厚的财政实力，历届日本政府都遵守了自己签定的所有国际条约，没有发展军事，没有威胁周边国家，完全保持了一个民主国家政府应有的诚信。
 
-（2）美国和加拿大可以通过在禁毒、环境管理、公共采购和基础设施规划、北极、能源和互联互通问题、贸易和商业关系等方面加强合作，更好地应对中共国的经济、政治和安全影响，合作也包括双边法律事务，以及对民主、善政和人权的支持；
+一个和平、民主、有实力的日本来代替一个邪恶、独裁、无底线的中共政权来领导亚洲的发展，是全球和平和安全的需要。美日联盟和友谊伙伴关系的加强，以及对保护台湾安全的承诺，对于地区和世界局势稳定也至关重要。
 
-（3）在中共病毒疫情期间，美国和加拿大应保持共同倡议，以解决边境管理、商业和贸易关系、对中共国的共同做法，以及包括流行病和气候变化在内的跨国挑战；
+**原文翻译：**
 
-（4）美加应加强合作，打击中共国的造谣、影响活动，以及经济间谍和宣传工作；
+[!\[\]()!\[\](https://spark.adobe.com/page/hAikhdCjs1ePe/images/f2eb66b9-e02d-4411-aa73-1d28e8f0a133.jpg?asset_id=b8b0b895-9adc-4983-ba59-b5f7e476a2b4&amp;img_etag=%22ead35c7cde9ac44166f90ea7cb577ada%22&amp;size=1024)](https://spark.adobe.com/page/hAikhdCjs1ePe/images/f2eb66b9-e02d-4411-aa73-1d28e8f0a133.jpg?asset_id=b8b0b895-9adc-4983-ba59-b5f7e476a2b4&amp;img_etag=%22ead35c7cde9ac44166f90ea7cb577ada%22&amp;size=1024)2021年4月16日, 美国总统乔•拜登和日本首相菅义伟参加华盛顿特区白宫玫瑰花园举行的联合新闻发布会现场时穿过柱廊的图片（摄影MANDEL NGAN / 美联社，通过盖蒂图片社）
 
-（5）中共国的基础设施投资，特别是在5G电信技术、自然资源开采和港口基础设施方面，对美国和加拿大构成了国家安全风险；
+## 拜登-菅义伟峰会的5点总结
 
-（6）美国应酌情分享收集到的有关情报–
+2021年4月16日，自拜登总统1月上任以来，日本首相菅义伟成为首位与其见面的外国领导人。
 
-（A）华为的5G能力；以及
+此次首脑峰会对两位领导人来说都具有重要的历史意义。这不仅是美日之间紧密关系的象征，它还为两国提供了一个机会，使他们更加关注两国共同面对的挑战，例如中共国和气候变化。以下是最重要的五点峰会总结。
 
-（B）中国共政府关于5G扩展的意向；
+### **1.美日关系不仅是联盟，更是友谊。**
 
-（7）美国和加拿大应继续推进合作倡议，以实施2020年1月9日《美国-加拿大关键矿产开发合作联合行动计划》（United States-Canada Joint Action Plan on Critical Minerals Development Collaboration）；以及
+美日两国有着共同的价值观、共同的军事防御，更重要的则是密切的友谊。根据最近的一项民意测验，有84%的美国人对日本持赞成态度，这与30年前的显着变化相比，当时只有30%的美国人喜欢日本。发生这种变化的原因是，越来越少的美国人将日本视为经济竞争对手。
 
-（8）美国和加拿大必须优先考虑在陆地防御和北极地区的合作，包括使北美航空航天防务司令部（NORAD）现代化，以有效地保护北半球免受同行竞争者的威胁，包括远程导弹和高精度武器。
+拜登和菅义伟在联合新闻发布会上为了展示彼此之间的亲密关系，他们直接称呼对方“Yoshi”和“Joe”，首相菅义伟甚至认为美国是日本最好的朋友。当然，十年前的3月11日，日本东部大地震后，美国全力提供了支持和救援，从而使两国之间建立了牢固的关系。
 
-**第246节 关于中共政府任意监禁加拿大公民的国会意识**
+### **2.拜登和菅义伟希望进行合作，并展望未来。**
 
-国会认为—
+尽管两人都已是70多岁，但他们仍旧展望未来，宣布了两项针对技术和气候变化的新倡议。
 
-（1）中共国政府明显地任意拘留和虐待对待加拿大公民迈克尔·斯帕沃（Michael Spavor）和康明凯（Michael Kovrig），显然是对加拿大政府逮捕孟晚舟的报复，要引起深切的关注；
+第一项与技术相关的倡议称为“竞争和弹性伙伴关系”，它将投资于通讯和信息共享的替代方案。该伙伴关系包括对下一代通信技术总计45亿美元的投资。
 
-（2）加拿大政府在以下方面发挥了国际领导作用—
+第二个倡议的重点是美日脱碳承诺。两国承诺维护关于气候变化的《巴黎协定》。此外，他们还同意合作，协助印度太平洋地区的发展中国家增加可再生能源的利用。随着二十年的缓慢经济增长，日本希望在数字化和绿色技术的投资将推动未来的经济增长。
 
-（A）维护法治，遵守国际法律义务，包括1971年12月3日在华盛顿签署的《美利坚合众国和加拿大引渡条约》（the Extradition Treaty Between the United States of America and Canada）规定的义务；以及
+### **3.此次拜登-菅义伟首脑会议更多的是原有工作的一个惯性，而不是一个新的努力。**
 
-（B）发起《反对在国与国关系中任意拘留宣言》（the Declaration Against Arbitrary Detention），该宣言已得到各国和欧洲联盟的赞同，并重申国际人权公约对在国与国关系中利用任意拘留外国人作为筹码的既定禁令；以及
+尽管拜登总统就任仅几个月，但两国政府一直忙于美国和日本的高级别正式会议。首脑会议只是这些努力的延续。
 
-（3）美国继续与加拿大政府一道呼吁立即释放迈克尔·斯帕沃和迈克尔·科夫里格，并要求对加拿大公民罗伯特·谢伦伯格（Robert Schellenberg）采取适当程序。
+不幸的是，缺少与一些较新的合作领域有关的细节。例如，由于新冠病毒动摇了全球供应链，因此拜登和菅义伟同意在敏感的供应链上进行合作。尤其是在过去的一年中，半导体（包括电子设备中的小型微电子芯片）的全球供应受到了干扰。迄今为止，国会和拜登政府提出的唯一解决方案是为芯片制造提供500亿美元的补贴。
 
-（本节完）
+### **4.美国和日本在贸易方面仍然存在利益冲突。**
 
-原文链接：
+如今，美国和日本在贸易问题上相距甚远。菅义伟把日本描述为自由贸易的“旗手”。最近在亚洲签署了两项超大贸易协定并与欧盟达成了贸易协议，因此很难对这种评估进行争论。作为臭名昭著的跨太平洋伙伴关系组织（现称为CPTPP）的主席，日本希望吸收新成员。但是，美国不会是其中之一。
 
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+尽管有理由相信美国可以与台湾、越南和其他国家达成新的贸易协议，但考虑到如今华盛顿围绕贸易问题的气氛，美国显然不会很快签署任何新的协议。
 
-文字整理：
+#### **5.台湾的安全对美国和日本都很重要。**
 
-PART I—WESTERN HEMISPHERE
+此次两国领导人发表的联合声明是近51年来的第一次，重申了美日对台湾和平与稳定的承诺。随着中共国加大对台湾的威胁和蚕食力度，台湾的安全问题已成为美国和日本日益关注的重要问题。台湾则是美国和日本的重要伙伴，尤其是在半导体制造领域。随着美日与台湾官员的交往的增加，两国对台湾的关切将继续保持增长势头。
 
-SEC. 245. SENSE OF CONGRESS REGARDING UNITED STATES-CANADA RELATIONS.
+总之，本次峰会将不会是一个一次性会议。当前美日两国关系发展势头强劲，拜登和菅义伟都已经准备参加气候问题领导人峰会。美国不能单独解决这些问题，因此拥有日本这个合作伙伴将是至关重要。
 
-It is the sense of Congress that—
+🔗[原文链接](https://www.hudson.org/research/16847-5-takeaways-from-the-biden-suga-summit)
 
-(1) the United States and Canada have a unique relationship based on shared geography, extensive personal connections, deep economic ties, mutual defense commitments, and a shared vision to uphold democracy, human rights, and the rules based international order established after World
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-War II;
 
-(2) the United States and Canada can better address China’s economic, political, and security influence through closer cooperation on counter- narcotics, environmental stewardship, transparent practices in public procurement and infrastructure planning, the Arctic, energy and connectivity issues, trade and commercial relations, bilateral legal matters, and support for democracy, good governance, and human rights;
+编辑：【英国伦敦喜庄园编辑部】
 
-(3) amidst the COVID–19 pandemic, the United States and Canada should maintain joint initiatives to address border management, commercial and trade relations, a shared approach with respect to the People’s Republic of China, and transnational challenges, including pandemics and climate change;
+[!\[\]()!\[\](https://spark.adobe.com/page/hAikhdCjs1ePe/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/hAikhdCjs1ePe/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
-(4) the United States and Canada should enhance cooperation to counter Chinese disinformation,
 
-influence operations, economic espionage, and propaganda efforts;
-
-(5) the People’s Republic of China’s infrastructure investments, particularly in 5G telecommunications technology, extraction of natural resources, and port infrastructure, pose national security risks for the United States and Canada;
-
-(6) the United States should share, as appropriate, intelligence gathered regarding—
-
-(A) Huawei’s 5G capabilities; and
-
-(B) the Chinese Government’s intentions with respect to 5G expansion;
-
-(7) the United States and Canada should continue to advance collaborative initiatives to implement the January 9, 2020, United States-Canada Joint Action Plan on Critical Minerals Development Collaboration; and
-
-(8) the United States and Canada must prioritize cooperation on continental defense and in the Arctic, including by modernizing the North American Aerospace Defense Command (NORAD) to effectively defend the Northern Hemisphere against the range of threats by peer competitors, including long range missiles and high-precision weapons.
-
-SEC. 246. SENSE OF CONGRESS REGARDING THE GOVERNMENT OF CHINA’S ARBITRARY IMPRISONMENT OF CANADIAN CITIZENS.
-
-It is the sense of Congress that—
-
-(1) the Government of the People’s Republic of China’s apparent arbitrary detention and abusive
-
-treatment of Canadian nationals Michael Spavor and Michael Kovrig in apparent retaliation for the Government of Canada’s arrest of Meng Wanzhou is deeply concerning;
-
-(2) the Government of Canada has shown international leadership by—
-
-(A) upholding the rule of law and complying with its international legal obligations, including those pursuant to the Extradition Treaty Between the United States of America and Canada, signed at Washington December 3, 1971; and
-
-(B) launching the Declaration Against Arbitrary Detention in State-to-State Relations, which has been endorsed by countries and the European Union and reaffirms well-established prohibitions under international human rights conventions against the arbitrary detention of foreign nationals to be used as leverage in state-to-state relations; and
-
-(3) the United States continues to join the Government of Canada in calling for the immediate release of Michael Spavor and Michael Kovrig and for due process for Canadian nationalRobert Schellenberg.
 
 0
