@@ -1,99 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第252节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1131894/)
+## 【闫丽梦博士铿锵有力回应“审阅者”】关于闫博士的第三份论文－点对点回应约翰·霍普金斯大学健康安全中心的“审阅者”第八部分 （续）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1131917/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+- 翻译：peacelv
+- 制图：透明的遮羞布
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/L-8.jpg)a4ai.org
-“第251节 与拉丁美洲和加勒比地区的防务合作”略译，本文是第252节的翻译。
 
-本节要点：中共国政府正在输出他们的国内安全模式，以及国家对社会的控制模式，这些模式通过先进的技术和人工智能技术来实现的，在没有对政府权力进行可靠的法律监督的情况下，将与政府或安全部门有密切联系，或易受其压力的公司提供的设备和服务，纳入通信网络和通信供应链，这将导致侵犯公民的私人信息，加强（对公民的）审查，侵犯人权和骚扰政治对手。就腐败事件和与中共国有关的不公平贸易、商业和经商行为的调查性报道提供培训，包括中共国政府在此类行为中的作用。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-第252节 与拉丁美洲和加勒比国家的公民社会，就问责制、人权和普遍监视技术的风险进行交流
+**西班牙2021年4月23日电/西喜社——**
 
-（a）国会意识 – 国会认为
-（1）中共国政府正在输出他们的国内安全模式，以及国家对社会的控制模式，这些模式通过先进的技术和人工智能技术来实现的；以及
-（2）在没有对政府权力进行可靠的法律监督的情况下，将与政府或安全部门有密切联系，或易受其压力的公司提供的设备和服务，纳入通信网络和通信供应链，这将导致侵犯公民的私人信息，加强（对公民的）审查，侵犯人权和骚扰政治对手。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/virus10.jpg)
 
-（b）外交接触 – 国务卿应与拉丁美洲和加勒比各国政府和民间社会组织进行外交接触，以-
-（1）帮助识别和减轻（a）小节所述技术和服务对公民自由构成的风险；以及
-（2）提供减轻此类风险的建议。
+续上继续发表有关闫博士第三份论文的第七部分内容。
 
-（c）互联网自由计划 – 《美国全球媒体署》（the United States Agency for Global Media）首席执行官依据《开放技术基金》（the Open Technology Fund）进行工作，国务卿依据《民主、人权和劳工局》（the Bureau of Democracy, Human Rights, and Labor）的“互联网自由，商业和人权部分”进行工作，努力扩大、努力优先向拉丁美洲和加勒比地区的记者提供反审查技术和服务，以提高他们安全获取或分享数字新闻和信息的能力。
+**第十九，病毒进化的中间宿主**
 
-（d）支持民间社会 – 国务卿应与负责《民主、人权和劳工局》事务的助理国务卿和《美国国际开发署》署长协调，通过非政府组织开展工作，以-
-（1）支持和促进拉丁美洲和加勒比地区互联网自由和网上信息自由流动的方案；
-（2）保护拉丁美洲和加勒比地区互联网的开放、互操作、安全和可靠接入；
-（3）向民间社会提供技术、数字安全、政策和宣传方面的综合支持，拉丁美洲和加勒比的应用研究项目；
-（4）对拉丁美洲和加勒比地区的记者和民间社会领导人进行必要的调查技术培训，以确保公共问责制和防止政府在数字领域的过激行为；
-（5）协助拉丁美洲和加勒比地区的独立媒体和记者建设自身能力，编写涵盖施政和人权议题的具有高度影响力的深入新闻报道；
-（6）为记者和民间社会领导人提供必要的调查技术培训，以提高政府和私营部门的透明度和问责制；
-（7）就腐败事件和与中共国有关的不公平贸易、商业和经商行为的调查性报道提供培训，包括中共国政府在此类行为中的作用；
-（8）协助非政府组织加强其监测第（7）款所述活动的能力；和
-（9）确定当地资源，以支持根据本小节开展的主要活动。
+他们提出行21-23:病毒可能有复杂的进化源，有时和中间宿主32,如我们所知，流感33;流感病毒34也以能交叉人类著名。人类ACE2 (hACE2)接受者对SARS-CoV-2是最佳的，但是最近的工作被发现就是SARS-CoV-2能实际上使用混合ACE2接受者4,但是不是老鼠ACE2。更多的样本需要被做，但是断定hACE2是否最佳的接受者去结合SARS-CoV-2不能在这个时间点被支持。
 
-（e）简报要求 – 本法颁布之日起180天内，此后每隔180天，国务卿、美国国际开发署署长，美国全球媒体署的首席执行官应就第（c）、（d）和（e）小节所述的努力提供简报 –
-（1）参议院外交关系委员会；
-（2）参议院拨款委员会；
-（3）众议院外交事务委员会；以及
-（4）众议院拨款委员会。
-（本节完）
+回应：与Warmbrod等人的评论相反，最近的数据显示，虽然SARS-CoV-2能结合来自不同的动物的ACE2，但hACE2展示最高的和SARS-CoV-2刺突蛋白的亲和力。这是被多种出版物所支持，和不被任何所反对的27-30。Warmbrod等人又一次错误了。
 
-原文链接：
+**第二十，历史上冠状病毒的人畜共患病出现。**
 
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+他们提出行36-38:冠状病毒之前已经造成人类疾病，包括SARS 和 MERS,还有很多指向警告指示就是冠状病毒能变成一个严重的问题，没有比SARS-CoV-2之前被注意到。这些事实与作者描述SARS-CoV-2是“智能”是矛盾的，这是目的论和反事实的。
 
-文字整理：
+回应：Warmbrod等人又一次曲解了闫博士的报告然后制造了这个评论和批评。在报告中，词语“智能”不是被用于描述SARS-CoV-2病毒，相反地用于描述不寻常的方式SARS-CoV-2 RBM类似于SARS RBM –拥有所有关键的密码子被保留，还有大多数的不是基本的密码子被改变。闫博士的准确言语是：“随机的基因突变应当已经发生，然后才产生了RBM现在这种形式－类似于*SARS-CoV RBM**，以一种高度智能的方式**“**。*
 
-SEC. 252. ENGAGEMENT WITH CIVIL SOCIETY IN LATIN AMERICA AND THE CARIBBEAN REGARDING ACCOUNTABILITY, HUMAN RIGHTS, AND THE RISKS OF PERVASIVE SURVEILLANCE TECHNOLOGIES.
+闫博士描述是设计智能，而非病毒。在这里的描述是准确和基于事实的，而不是违背事实的。更多地，其它的冠状病毒在过去造成了人类疾病，不能自动地取消SARS-CoV-2是一个功能增强（gain-of-function）工作的产品的可能性。这个Warmbrod等人的评论在这里缺少基本的逻辑。
 
-(a) SENSE OF CONGRESS. — It is the sense of Congress that
+**第二十一，缺少关于冠状病毒功能性增加研究的证据**
 
-(1) the Government of China is exporting its model for internal security and state control of society through advanced technology and artificial intelligence; and
+他们提出行2：一些冠状病毒功能增强研究已经被发表，但是作者关于大量文献的描述在这个领域，过度描述已知的数量。涉及到的论文支持不了作者关于这样的研究导致人类胜任病毒的宣称。一个论文，Ren等人,35插入类SARS-CoV的所有刺突蛋白基因进入一个病毒骨架，然后没有使用整个SARS病毒或者感染的动物。
 
-(2) the inclusion of communication networks and communications supply chains with equipment and services from companies with close ties to or susceptible to pressure from governments or security services without reliable legal checks on governmental powers can lead to breaches of citizens’ private information, increased censorship, violations of human rights, and harassment of political opponents.
+回应：闫博士这里引用去证明观点的代表性的参考物，没有反对闫博士功能增强研究的证据是丰富的描述。
 
-(b) DIPLOMATIC ENGAGEMENT. — The Secretary of State shall conduct diplomatic engagement with governments and civil society organizations in Latin America and the Caribbean to—
+更多这样的参照物已经在章节2.2 步骤1的报告1.被提供。证据不可否认地证明有关冠状病毒的病毒增强性研究已经被重复地进行和涉及到的技术是成熟和很好被确立的。Ralph Baric也评论，基本他对文献的知识，“你可以不留痕迹地编辑一个冠状病毒“17.当支持文献是完整且坚定地，它可以被认为丰富。虽然不是所有发表物都使用SARS作为骨架和或者感染整个动物，所有这些研究已经产生，可以用于感染人类细胞或者携带人类ACE2接收者的细胞的新型冠状病毒。这些重组的病毒有感染人类的潜力，没有什么但是是证据。
 
-(1) help identify and mitigate the risks to civil liberties posed by technologies and services described in subsection (a); and
+审核：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
 
-(2) offer recommendations on ways to mitigate such risks.
+- [【闫丽梦博士铿锵有力回应“审阅者“】第一篇](https://gnews.org/zh-hans/1116291/)
+[【闫丽梦博士铿锵有力回应“审阅者“】第二篇](https://gnews.org/zh-hans/1116349/)
+[【闫丽梦博士铿锵有力回应“审阅者”】第三篇](https://gnews.org/zh-hans/1116385/)
+[【闫丽梦博士铿锵有力回应“审阅者”】第四篇](https://gnews.org/zh-hans/1131764/)
+[【闫丽梦博士铿锵有力回应“审阅者”】第五篇](https://gnews.org/zh-hans/1131822/)
+[【闫丽梦博士铿锵有力回应“审阅者”】第六篇](https://gnews.org/zh-hans/1131860/)
+[【闫丽梦博士铿锵有力回应“审阅者”】上一篇](https://gnews.org/zh-hans/1131886/)
+【闫丽梦博士铿锵有力回应“审阅者”】续下一篇
 
-(c) INTERNET FREEDOM PROGRAMS. — The Chief Executive Officer of the United States Agency for Global Media, working through the Open Technology Fund, and the Secretary of State, working through the Bureau of Democracy, Human Rights, and Labor’s Internet Freedom and Business and Human Rights Section, shall expand and prioritize efforts to provide anti-censorship technology and services to journalists in Latin America and the Caribbean, in order to enhance their ability to safely access or share digital news and information.
 
-(d) SUPPORT FOR CIVIL SOCIETY. — The Secretary of State, in coordination with the Assistant Secretary of State for Democracy, Human Rights, and Labor and the Administrator of the United States Agency for International Development, shall work through nongovernmental organizations to—
-
-(1) support and promote programs that support internet freedom and the free flow of information online in Latin America and the Caribbean;
-
-(2) protect open, interoperable, secure, and reliable access to internet in Latin America and the Caribbean;
-
-(3) provide integrated support to civil society for technology, digital safety, policy and advocacy,
-
-and applied research programs in Latin America and the Caribbean;
-
-(4) train journalists and civil society leaders in Latin America and the Caribbean on investigative techniques necessary to ensure public accountability and prevent government overreach in the digital sphere;
-
-(5) assist independent media outlets and journalists in Latin America and the Caribbean to build their own capacity and develop high-impact, in-depth news reports covering governance and human rights topics;
-
-(6) provide training for journalists and civil society leaders on investigative techniques necessary to improve transparency and accountability in government and the private sector;
-
-(7) provide training on investigative reporting of incidents of corruption and unfair trade, business and commercial practices related to China, including the role of the Government of China in such practices;
-
-(8) assist nongovernmental organizations to strengthen their capacity to monitor the activities described in paragraph (7); and
-
-(9) identify local resources to support the preponderance of activities that would be carried out under this subsection.
-
-(e) BRIEFING REQUIREMENT. — Not more than 180 days after the date of the enactment of this Act, and every 180 days thereafter, the Secretary of State, the Administrator of the United States Agency for International Development, and the Chief Executive Officer of the United States Agency for Global Media shall provide a briefing regarding the efforts described in subsections (c), (d), and (e) to—
-
-(1) the Committee on Foreign Relations of the Senate;
-
-(2) the Committee on Appropriations of the Senate;
-
-(3) the Committee on Foreign Affairs of the House of Representatives; and
-
-(4) the Committee on Appropriations of the House of Representatives.
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 0
