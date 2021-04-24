@@ -1,55 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【聖城傳聲筒】香港司法已徹底沉淪
-` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1133182/)
+## 知道中共有解药以后西方该怎么办&nbsp; 习近平已经众叛亲离
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1133237/)
 
-香港近日多起司法判決，再次表明從2019到2021短短兩年時間，香港無論從立法會到司法機構，都急速向公權私用轉變。徇私最終只不過是為了維護中共體制內少數幾個位高權重的家族利益，還美其名曰：“國家安全法”。香港司法獨立名存實亡，一旦涉及執政者利益，則完全可以黑箱操作，黑白顛倒。
+**摘要：郭先生在2021年4月22日的盖特视频中说，在他21日爆出中共有解药后，世界和国内都引起巨大震动，他告诉西方国家要跟中共要解药，并透露在分配解药一事上，习近平已经众叛亲离。**
+[下载字幕](https://www.gnews.org/wp-content/uploads/2021/04/Miles_20210422-getter1.srt.txt)
+**知道中共有解药以后西方该怎么办****  ****习近平已经众叛亲离**
 
-港台《鏗鏘集》前編導蔡玉玲透過查車牌，追查元朗 7.21 襲擊事件，22日被裁定「虛假陳述」罪成。裁判官於判詞指，申請車牌資料時，如運輸署提供的用途選項不適用，申請人應考慮以其他途徑，例如另以書面申請。其實，有關做法，《立場新聞》早在去年 12 月經已試過，結果如何？
+**Knowing There Is an Antidote, How Should We Go Forward Next?**
 
-《立場》當時曾寄信向運輸署申請查車牌，署方拒受理並要求重新填寫申請表。記者亦曾到運輸署辦事處查詢，但職員拒向記者解釋，若以「新聞報道」為由申請，應在表格上剔選哪個用途選項，亦拒受理記者自行寫上「新聞」用途的申請表。
+那么另外一个我想和大家说的事情，就是昨天在我盖特发出以后，[我爆出了]共产党有解药。[共产党]有解药这件事情可以说在世界上[是]重大重大的一张[灭共牌]，[是]重磅的一则爆料，影响[深远]。
 
-蔡玉玲罪成　判詞指應另行書面申請
+So another thing that I want to share with everybody is that yesterday I posted my Getter video that exposed the fact that the CCP has an antidote. We can say that the fact that the CCP has an antidote can be used as a major card [in taking down the CCP]. It’s like a bombshell dropped and it will have a profound impact.
 
-蔡玉玲去年透過運輸署的網上系統，申請翻查元朗 7.21 襲擊當晚，曾接載白衣人到場車輛的登記車主資料，並憑資料登門向車主查詢。她申請時於用途選項剔選「其他有關交通及運輸的事宜」，被裁定「虛假陳述」罪成。
+所有真正有正事、有良知的[人]，知道冠状病毒[的情况]了解共产党的西方官员，他说为什么全世界人就没想过这个问题呢？他说你爆出这个问题太重要了。昨天我和亚洲的某个国家连线，人家对方就说：“郭先生，我们没有任何怀疑你的意思。我们应该怎么往前走？”
 
-[主任裁判官徐綺薇於判詞指](https://www.thestandnews.com/politics/%E5%88%A4%E8%A9%9E%E5%85%A8%E6%96%87-%E8%94%A1%E7%8E%89%E7%8E%B2%E7%BD%AA%E6%88%90-%E5%AE%98-%E6%9F%A5%E5%86%8A%E7%9B%AE%E7%9A%84%E7%84%A1%E9%97%9C-%E4%BA%A4%E9%80%9A%E9%81%8B%E8%BC%B8-%E5%B1%AC-%E8%99%9B%E5%81%87%E9%99%B3%E8%BF%B0/)，不同意辯方所指，相關車輛曾接載襲擊者及懷疑武器，查車牌用途與「交通及運輸事宜」有關，又指「被告人是否本着良好的動機索取資料並非重要。歸根究底，法庭要考慮的事項為被告人所作的陳述是否虛假。」
+Like all people in the West who are righteous, who have a conscience, who know about the coronavirus, and who understand the CCP, this guy asked, “Why hasn’t anybody in the world even thought about this?” He said that the stuff that I exposed is really important. Yesterday I connected with people from a certain country in Asia, and they said: “Mr. Guo, we don’t have any doubts about what you said, but how should we go forward?”
 
-判詞續指，如申請人認為運輸署網上系統提供的用途選項有限，或沒有符合其真正需要的選項，「申請人應考慮以其他途徑獲得相關資料，例如另向運輸署提出書面申請。」
+我说：“非常简单，你先定义这个[病毒]是不是自然的，不是自然的那就是人造的。[如果是]人造[的，那是]谁造的？大家现在怀疑唯一的[罪魁祸首]就是中国共产党。为啥共产党里面有人戴口罩有人不戴口罩？为什么共产党的老百姓死了上百万人武汉老百姓？为什么这些高官的家人一个不死？[事情]就这么简单。”
 
-結果，2019年轟動一時的7.21白衣人無差別攻擊香港市民案件，首位被定罪的竟然是一名記者。而諷刺的是蔡玉玲的案件宣判前夕，[涉案報道《鏗鏘集－7.21誰主真相》剛奪得「金堯如新聞大奬」](https://hk.appledaily.com/local/20210422/OVEIVVSK5JETNPZ2R77YFTW5UI/)。
+I said, “Very simple. First you define whether this virus is natural or not. If not, then it is man-made. If it is man-made, who made it? The only one suspected by everybody is the CCP. Why do some members of the CCP wear masks and some don’t? Why have millions of common people in Wuhan in communist China died but none of these high-ranking officials’ family have? That’s how simple it is.”
 
-**新聞行政人員協會：當局應採取措施維護新聞採訪自由**
+“那么现在共产党如果说没有解药，那请让他[共产党]告诉你所有参与研究武汉实验室的任何工程师，让他[们]到美国和欧洲来接受质询。别说审判，质询他[们]。让他[们]告诉你怎么找到[冠状病毒的]解药，行不行？或者你们美国欧洲不敢跟共产党要真相，[那就跟共产党]要[冠状病毒的]解药呗。说你给解药我[们就]不追究你责任了，这不也挺好吗，对吧？也挺好啊。”
 
-香港新聞行政人員協會關注法庭今次對蔡玉玲的裁決，指新聞工作者透過查冊等方式，就涉及公眾利益的社會事件，進行正當調查報道，追求真相及監察公營機構和政府部門工作，以維護香港整體及市民大眾利益。協會認為當局應採取措施維護新聞採訪自由，完善所有政府部門的登記查冊安排，而不是就新聞採訪設置限制和障礙，以保障公眾利益及尊重市民應有的知情權。
+I continued, “So if the CCP replies that they have no antidote, you then ask them to tell you who the engineers involved in the research in the Wuhan lab are, then let them come to the US and Europe to receive questions at hearing. Don’t call it trials, call it hearings. Let them tell you how to find the antidote, okay? Or if you, the US and Europe, dare not ask the CCP for the truth about the virus, you can just ask for the antidote. Tell them that if they agree to give the antidote, you won’t hold them accountable. Isn’t it nice, right? It will be pretty nice.”
 
-香港新聞行政人員協會強調，法治、守法和新聞言論採訪自由是香港的重要基石，政府及社會各界亦應尊重及竭力維護。
+所以说现在这个[冠状病毒]解药的问题引起了世界上的巨大震撼。
 
-香港外國記者會強烈譴責當局檢控蔡玉玲，形容是開創了危險的先例，並為當局對記者恆常採訪採取法律行動大開中門，同時亦阻止記者可合法地查詢公共紀錄。香港外國記者會又指，雖然蔡玉玲沒被判入獄，但只因其工作被留下刑事紀錄和罰款，而有關查冊本是香港新聞界慣常做法，但蔡玉玲卻被抽出來懲罰，其報道正是調查前年7.21元朗事件。
+So now this antidote thing has greatly shocked the world.
 
-**[香港](https://zh-yue.wikipedia.org/wiki/%E9%A6%99%E6%B8%AF)[名譽資深大律師](https://zh-yue.wikipedia.org/w/index.php?title=%E5%90%8D%E8%AD%BD%E8%B3%87%E6%B7%B1%E5%A4%A7%E5%BE%8B%E5%B8%AB&amp;action=edit&amp;redlink=1)****，前[香港大學](https://zh-yue.wikipedia.org/wiki/%E9%A6%99%E6%B8%AF%E5%A4%A7%E5%AD%B8)****法律學院院長陳文敏指出**「道路交通條例作為香港一條法例，其實要符合人權法案和基本法的要求，如何符合這一點，在整個判詞完全沒處理到。」他認為，在憲法上無爭議的是，蔡玉玲查冊是為了做對公眾利益十分重要的調查，這理應成為合理抗辯。但法官只從一般刑事條例角度考慮案件是否符合，涉及「虛假陳述」的定罪元素。他認為法官解釋法律時，應盡量令香港法例和人權法案以及《基本法》互相吻合。
+兄弟姐妹们，连我本人在48小时以前，我[都]从来没想过这个世界上会有[冠状病毒的]解药。我[之前]通过各种内部参与爆料[革命]的人[了解]，都给我一句话：“不可能有疫苗，因为这是人造的生化病毒，怎么可能有疫苗呢？这是个基本常识，而且每个[病毒]都在变异中。”直到他告诉我说：“文贵，我可以告诉你，没那么悲观。只要西方世界有正义的力量和正义的良知的人，这个世界是有解药的。”
 
-陳文敏質疑，今次法官完全傾向保障車主私隱，沒平衡到公眾利益。對於判辭提到申請查冊原因，必然要與申請人自身有關的說法，他指「若保障私隱到一個階段，即使有很重大的公眾利益理由都不能成為一個答辯理由……如何再去平衡私隱及言論自由，沒有這答辯理由的機制作平衡，這可以出現目前道路交通條例的規範會違反人權法案中，對言論自由的保障。」
+Brothers and sisters, even I myself had never thought that there could be an antidote existing in this world like 48 hours ago. Previously I heard the same answer from different fellow fighters of the Whistleblower Movement: “There can’t be any vaccines, because this is a man-made bioweapon virus. How can there be a vaccine? This is basic common sense. Besides, this virus keeps mutating.” Until this guy told me: “Miles, I can tell you, it’s not so hopeless. As long as there are righteous people with a conscience in the western world, there will be antidotes in this world.”
 
-他認為今次的案件涉及重大公眾利益，應由更高級的法院處理，蔡玉玲可就案件上訴，或由記協提出司法覆核。
+我当时就傻了，我说：“你在开什么玩笑啊？怎么可能？生化病毒怎么[可能]有解药？”他说：“生化病毒只要是研究者当初把它当成病毒了，它就有解药。”然后给我讲了这个过程。[听完]我傻了。但是我也觉的这是个巨大的希望，[随后]我[把这个消息]第一个先告诉了我身边的最重要的一个替我把关这方面情报的科学的一个助理。我说：“你马上到你们某[机构]找这些人研究研究，[看看]这话是否可靠？”[得到的]答案是：他是对的！
 
-**美國國務院發言人 Ned Price ****本港時間今早（23 ****日）在 Twitter ****表示**，美國對於蔡玉玲因工作被定罪深表失望（deeply disappointed）。Ned Price 並且說，蔡玉玲剛被獲頒金堯如新聞自由獎，是新聞自由的冠軍人馬（champion of press freedom）；他並且指出，新聞自由在《中英聯合聲明》獲明文保證。
+I was frozen on the spot, I said, “Are you kidding me? How could it be possible? How can a bioweapon virus has an antidote?” He said, “As long as the researchers of a bioweapon virus treated it as a virus when they developed it, there should be an antidote.” Then he explained the process to me. I was stunned. But I also felt that this could be a great hope. Then I forwarded this information to the most important assistant who has been helping me with verifying intelligence in the science field right away. I said: “Could you find people in your [institution] to research on this and find out whether the information is reliable or not?” The answer I got is: He is right!
 
-**歐盟駐香港及澳門辦事處[昨日（22 日）亦發聲明](https://www.thestandnews.com/court/%E6%9F%A5%E8%BB%8A%E7%89%8C%E8%A2%AB%E6%8E%A7%E8%99%9B%E5%81%87%E9%99%B3%E8%BF%B0-%E9%8F%97%E9%8F%98%E9%9B%86-%E7%B7%A8%E5%B0%8E%E8%94%A1%E7%8E%89%E7%8E%B2%E7%BD%AA%E5%90%8D%E6%88%90%E7%AB%8B-%E9%A6%96%E6%AC%A1%E6%9C%89%E8%A8%98%E8%80%85%E5%9B%A0%E6%9F%A5%E5%86%8A%E7%BD%AA%E6%88%90/)**，指蔡玉玲被判罪成，提醒人們新聞自由不是理所當然，「裁定記者蔡玉玲有罪，提醒我們新聞自由不能被認為是理所當然，法律也不應用以扼殺新聞業的合法性」。
+然后我又经过核实，特别是他说的国内所谓的中央政治局、中央常委2020年所谓的《工作方式的重要提要》，重要提要。就因为这个问题现在，大家记住啊习[近平]身边没人啦。韩正不行了，本来也不怎么行；栗战书也靠边站了；丁薛祥也靠边站了，大家看到了吗？王沪宁也靠边站了，大家看到了吗？现在就剩下仨人，严格讲四个人[是习信任的]：他弟弟习远平，然后军方的许其亮，[习近平对]许其亮最近也半信半疑，[对许也很]恼火。完全剩下[信任]杨娘娘[杨洁篪]，王太监[王毅]，王太监[王毅]。
 
-（本文主要內容引自立場新聞和蘋果日報網頁）
+Then I verified again, especially on what he said about the so-called “Important Synopsis of Working Methods” by the so-called Political Bureau of the Central Committee and the Central Standing Committee in 2020, or “Important Synopsis” for short. Please remember this: Exactly because of this [Important Synopsis], Xi Jinping has lost everyone around him. Han Zheng is over (he hasn’t been trusted anyway); Li Zhanshu also stepped aside; Ding Xuexiang also stepped aside, have you seen it? Wang Huning also stepped aside, have you seen it? Now there are only three people left. Strictly speaking, there are four people [that Xi trusts]: his younger brother Xi Yuanping, then Xu Qiliang from the military, but Xu Qiliang has become suspicious and annoying in Xi’s eyes recently. So this only leaves Concubine Yang (Yang JieChi) and Eunuch Wang (Wang Yi) that he still trusts.
 
-发稿 奇门遁甲
+所以说你看兄弟姐妹们，这杨娘娘[杨洁篪]、王公公[王毅]两人和习大神还得隔着个门指挥许其亮，还有个弟弟习远平。这共产党还有未来吗？听说就这个开会的形式把大家全[吓]傻了，也就是给不给谁解药的问题，不是说你家人要解药[就给你]。听说韩正要给家人要一些解药犯大忌了。你[韩正]想干什么？你[韩正]想干什么？嗯？
 
-**更多資訊，更多關注**
+So brothers and sisters, you can see that the Great God Xi can only command Xu Qiliang indirectly through Concubine Yang, Eunuch Wang Xi, and Xi Yuanping. So is there still hope for the CCP? I heard that the situation in the meeting really scared everyone, particularly, surrounding the question of whom to give the antidote. It’s not like you can request the antidote for anyone in your family. I heard that Han Zheng asked for some antidote for his family and this really touched the red line, making Xi think: “What do you want to do, Han Zheng?”
 
-[**紐約香草山農場****GTV-香草山之聲**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+这个解药啊，最后拿解药的人你一定记住：想要解药的人一定把拿解药的人弄死。这就是七哥在爆料[病毒]一出[现]，[刚]开始的时候就说过，[解药]叫“人尸丸”。看看那江湖上，那个什么任老妖[任我行]弄得泡的“人尸丸”。是不是啊？东邪西毒，吃下去用人尸体做的这个“人尸丸”，吃了以后你想再活？那就继续吃我“人尸丸”，必须听我的。这就[是]世界的“人尸丸”，你咋弄啊？苍天在上，啊苍天呐，苍天呐。
 
-[**紐約香草山農場****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山訪談**
+Regarding this antidote, those who eventually got the antidote must remember this: those who want the antidote must kill those who have got the antidote. This is like what I, your Brother Miles said at the very beginning of the pandemic, the antidote is called the “zombie pill”. The zombie pill is like what the old demon Ren Woxing (a figure in a martial arts novel) cooked, isn’t it? If those who have taken this zombie pill want to live, they have to continue to take the pills, so they must listen to the master. So this virus antidote is like the modern world version of the zombie pill. What do we do? Heavens, please have mercy on us!
 
-[**紐約香草山農場****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+所以现在共产党现在乱了，从我发出那个盖特[之后]。我让大家简单看一下啊，大家就简单[看一下]，[可]别暴露信息啊，我别爆露信息啊。你看我简单[说一下]，每一个小时三千多个[信息]，每一个小时啊，每一个小时。国内很多战友，体制内的战友纷纷爆料：“七哥，这个[病毒解药]太重要，你说对了！看看中央警卫局，中央警卫局还有八一大楼什么人戴口罩什么人不戴口罩？”
 
-[**紐約香草山農場Twitter(英文)**](https://twitter.com/MosHimalaya)[**紐約香草山農場 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![](https://mail.google.com/mail/u/0?ui=2&amp;ik=6ac942a4c5&amp;attid=0.1.1&amp;permmsgid=msg-f:1697211554661162166&amp;th=178db4eab0445cb6&amp;view=fimg&amp;sz=s0-l75-ft&amp;attbid=ANGjdJ_PH9wTHOZCOEEIkNFZhjb-ZFFtwdUe0yjE7Iu64-FComc0sXlAAYLNrXFxbafB_ued5yqZwrcwViS3H_OcwnNHmvN9HXC_Rgs0MmLAka6fjgA8o6u81RvtbHg&amp;disp=emb)
+Since I posted that Getter video, the CCP has been in chaos. I’ll let you guys take a look at it quickly, hoping not to reveal any private information. Simply put, I received more than 3,000 messages per hour. That’s per hour, per hour! Many fellow fighters in mainland China within the party system told me: “Brother Miles, this information is so important! You’re right! Look at the Central Guard Bureau, the Central Guard Bureau and the Eight-One Building and see who wears masks and who doesn’t.”
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/608164998616c84f0ff26438](https://gtv.org/getter/608164998616c84f0ff26438) (1:08-1:26, 1:49-5:36, 6:30-7:39,8:05-8:50)
+鸣谢：感谢盘古小蚂蚁、Antsee-GTV、TING GUO提供中文文本于 [https://www.gnews.org/zh-hans/1127073/](https://www.gnews.org/zh-hans/1127073/)
+
+* * *
+
+字幕：【JennyL】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
 0
