@@ -1,41 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】港府批1.1万平方米地予国安公署 建永久办公室
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1133622/)
+## 【世事解评】George Floyd，CCP病毒战、鸦片战、伪钞战的受害者
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1133711/)
 
-搜集\编撰：文燕
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4245.jpg)「港版国安法」生效后，中共驻港国安公署以铜锣湾维景酒店作临时办公室，于去年7月8日举行揭牌仪式。 （图片来源：大纪元香港）
-中共去年在港强推【港版国安法】后，驻港国安公署在2020年7月8日以铜锣湾维景酒店作临时总部。据【大纪元香港】4月23日讯指，港府将批出大角咀海帆道一幅总面积11,500平方米的用地，予国安公署设立永久办公室及附属设施。
+作者：纽约香草山福音部 JingleChenge
 
-港府批予国安公署的大角咀用地，邻近港铁南昌站，用地分成两部分，中间隔着官立嘉道理爵士中学, 面积为1万1500平方公尺。港府表示，驻港国安公署将会自行承担所需工程费用。
-
-警方晚上回覆香港媒体体查询时确认，国安公署部分范围现为警务处的水警行动基地，但指「会适时迁出以配合驻港国家安全公署建筑计划」，警方指，拟议发展不会对水警的工作造成影响。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4246.jpg)港共政府把大角咀海帆道一幅总面积 11500 平方米的用地，批予国安公署作立永久办公室。
-点评：
-
-去年《港区国安法》去年中实施，随即成立驻港国安公署，并委任郑雁雄为首任署长。中联办今年2月5日曾举行网上新春酒会，郑雁雄扬言驻港国安公署将竭尽全力当好香港安全的使者，国家安全的守门人。
-
-郑雁雄在影片中指今日的香港已告别国家安全不设防的过去，回归法治正轨。中央为香港制定国安法，为「一国两制」「兜住了平安的底线，筑牢了法治的屏障」。弦外之音，中共的国安公署将在香港有大动作，未来在港将扮演更重要的角色。
-
-事实上，据媒体报导，港府于2月25日曾公布新一份财政预算案，当中拨出80亿元用于维护国家安全未来数年开支，但拨款交予哪个部门、款项用途等资料并未写明。政府同日发稿指，拨款与中央驻港国安公署的经费无关，并称国家安全委员会不受香港任何其它机构、组织和个人的干涉，工作资讯不予公开，对拨款「没有进一步资料可以提供」。
-
-油尖区区议员涂谨申回覆媒体查询指，今次批予国安公署的用地，过去多年都是供政府部门摆放工程用具，地点十分偏僻，附近居民很少会经过附近，如有人接近相信容易警剔。邻近设施为一间中学、一间小学，食环停放垃圾车设施及一个中电设施。他估计，国安公署选择该地点，因水陆两路出行「方便到晕」（粤语：非常方便）。他指，政府批出该土地时并没有在地区或立法会咨询，「我猜，政府可能觉得这是不可以咨询的事。」
-
-大家还记得今年２月，《南华早报》就曾放出消息指，国安公署将搬离铜锣湾维景酒店，传租用邻近中联辨的港岛太平洋酒店作临时办公大楼，但并不是永久办公室选址。可见一切都早有部署，今天的立法会只是橡皮图章。
-
-是次港府批地花大钱为国安公署在港办公提供便利，具体体现了香港政府部门进一步内地化，同时香港向新疆集中营更迈进一步。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
 
 
-【以上观点仅代表笔者本人 】
 
-资料来源：
-[大纪元香港](https://hk.epochtimes.com/news/2021-04-23/11166763)
+相信读者一定知道George Floyd的大名，他因2020年5月25日死于Minneapolis警察执法过程中而闻名于世。
 
-[立场新闻](https://www.thestandnews.com/politics/%E4%B8%AD%E5%A4%AE%E9%A7%90%E6%B8%AF%E5%9C%8B%E5%AE%89%E5%85%AC%E7%BD%B2-%E6%B8%AF%E5%BA%9C%E6%89%B9%E9%84%B0%E8%BF%91%E5%8D%97%E6%98%8C%E7%AB%99-1-1-%E5%B9%B3%E6%96%B9%E7%B1%B3%E5%9C%B0-%E5%BB%BA%E6%B0%B8%E4%B9%85%E8%BE%A6%E5%85%AC%E5%AE%A4/)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片54-1.png)
 
-[香港01](https://www.hk01.com/%E6%94%BF%E6%83%85/584315/%E9%84%AD%E9%9B%81%E9%9B%84-%E9%A7%90%E6%B8%AF%E5%9C%8B%E5%AE%89%E5%85%AC%E7%BD%B2%E6%98%AF%E9%A6%99%E6%B8%AF%E7%9A%84%E5%AE%89%E5%85%A8%E4%BD%BF%E8%80%85-%E5%9C%8B%E5%AE%B6%E5%AE%89%E5%85%A8-%E5%AE%88%E9%96%80%E4%BA%BA)
+BLM为他的死在全美甚至全世界超过2000座城市发动了大规模、持续的游行，但这些游行很快就变成了暴力的打、砸、抢。光是Minneapolis市，在George Floyd死后的两周内，就有超过570家商家被毁，大部分是被火烧的，更不用说过去近一年全美的损失。
 
-审稿：卡西欧 \ 上传：天网灰灰
+华春莹华大妈也在2020年5月30号在推特凑热闹，”I can’t breathe”。真是不要脸，也不想想CCP国执法人的暴力，每天不知道有多少个George Floyd死在他们手下。
+
+George Floyd的死，更是左派眼中的香馍馍。为了达到解散警察和执法者的目的，对有色人种生命从不感兴趣的左派真是拼了。不但在2020年6月8日为其下跪，在2021年4月20日, 佩婆还发表讲话，感谢George Floyd死了。George Floyd真是死得其所，恰恰好成了左派献祭的羔羊。
+
+2021年4月17号的周六，加州左派女疯参议员Waters更是特地跑到Hennepin County District Court所在地Brooklyn Center煽风点火，号召抗议者用激进手段向法庭施压，不达目的誓不罢休。
+
+而BLM的创办人呢，刚刚才买了好几套豪华别墅。
+
+George Floyd的家属也获得了两千七百万美金的巨额赔偿，是Minneapolis地区有史以来最高的赔偿。满心希望他们能善用此款。
+
+似乎各人都能够利用George Floyd的死而有所得到。
+
+唯有执法人Chauvin被定罪的，他得在监狱里呆好几十年。
+
+谁都知道George Floyd的死起因于使用来自CCP的伪钞；他当天被捕前还吸食了大量来自CCP的芬太尼，以至于被捕时口吐泡沫，一直喊”I can’t breathe.”；他在2020年4月3日CCP病毒检测阳性；他的不健康生活导致他有动脉硬化和高血压，一条动脉被堵90％，另一条动脉被堵75％。警察的执法只不过是那最后一根稻草。George Floyd真正的死因是中了CCP的毒，Chauvin只不过是为了平息所谓的民意的替罪羔羊。
+
+参考：
+
+1. War Room Pandemic Ep 220，Ep 886
+
+2. [https://en.wikipedia.org/wiki/Murder\_of\_George\_Floyd](https://en.wikipedia.org/wiki/Murder_of_George_Floyd)
+
+3.[https://thehill.com/homenews/house/501633-pelosi-schumer-kneel-in-silence-for-almost-9-minutes-to-honor-george-floyd](https://thehill.com/homenews/house/501633-pelosi-schumer-kneel-in-silence-for-almost-9-minutes-to-honor-george-floyd)
+
+4. [https://wgntv.com/news/nancy-pelosi-thanks-george-floyd-for-sacrificing-your-life-for-justice-later-criticized/](https://wgntv.com/news/nancy-pelosi-thanks-george-floyd-for-sacrificing-your-life-for-justice-later-criticized/)
+
+5. [https://www.npr.org/sections/live-updates-protests-for-racial-justice/2020/06/04/869278494/medical-examiners-autopsy-reveals-george-floyd-had-positive-test-for-coronavirus](https://www.npr.org/sections/live-updates-protests-for-racial-justice/2020/06/04/869278494/medical-examiners-autopsy-reveals-george-floyd-had-positive-test-for-coronavirus)
+
+校对/发稿：飞虹
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
