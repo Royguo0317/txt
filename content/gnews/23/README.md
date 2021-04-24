@@ -1,101 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第301、302、303节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1135106/)
+## 【五月花评】中共国巨头企业又爆雷了
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1133036/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+五月花写作组 ｜ 作者：妙福德 ｜ 编辑、美工、发布：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screen-Shot-2021-04-25-at-4.41.18-AM.png)画中国华融资产管理股份有限公司（图片来自网络）
+近日，有媒体报道称业界巨头中国华融错过了3月底发布2020年财务业绩的最后期限，引发该公司债券价格暴跌至面值的60%，给中国公司美元债券市场带来冲击。
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/H-8.jpg)newsfirst.lk
-“副标题C——应对中共国的区域战略”的“第三部分——南亚和中亚”2节（261、262），“第四部分——非洲”6节（271至276节），“第五部分——中东和北非”2节（281、281），“第六部分北极地区”1节，“第七部分——大洋洲”2节（291、292）暂时略译。
+中国华融资产管理股份有限公司，简称中国华融，由中华人民共和国财政部和中国人寿保险（集团）公司于1999年11月8日在北京组建成立。
 
-本文为“标题3——我们价值观的投入”的3节。
+成立初期，华融及其同行从我国最大几家国有银行购买不良贷款，并通过拍卖和向外国银行等其他投资者出售来处置这些贷款。经过二十多年的扩张，中国华融已从成立之初的负责收购和处置大型国有银行不良贷款的资产管理公司，发展成为集各类金融牌照于一身的金控平台，又大举扩张，增加了证券交易、借贷和其他金融服务。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screen-Shot-2021-04-24-at-11.08.44-PM.png)赖小民（图片来自网络）
+2021年1月，该公司前董事长赖小民因受贿和腐败罪被判处死刑，这意味着华融的问题已经非常严重了。现在华融推迟出年报，以及重组的前景不明，导致华融债券在海外被做空，下一步可能就是违约了。
 
-标题3——我们价值观的投入
+财政部在这个风口浪尖的关键时刻打算将华融的股权划转到中投旗下的中央汇金——一家主要管理中国外汇投资的公司。不管华融最后的结局怎样，想想这种庞然大物，你投资他的债券除了所谓“信仰”真的没有其他理由了。就像买了一个盲盒，没法知道里面到底装了什么。你根本没有办法去评估他资产的价值，审计报告也不可能披露每一笔资产的明细、买入成本等信息，子子孙孙的下级分支公司众多，业务也十分庞杂，借钱给他就真的是纯粹相信他能够还钱，而不是业务有多厉害、资产价值有多好，、债务有多稳健，因为这些东西外人根本搞不清楚，平时可能高攀不起的主体也可能产生这么大的风险。
 
-第301节 批准拨款支持香港民主运动
+华融体系公司比较多，主要的主体如下，基本都是清一色AAA级，不过要是华融出事了，又是一波下调：最近几天，穆迪、标普和惠誉都警告说，可能会下调华融及其子公司所发行债券的评级。按照目前趋势，这一结果不可阻挡。
 
-（a）为促进香港的民主，为国务院的《民主、人权和劳工局》（the Bureau of Democracy, Human Rights, and Labor）在2022财政年度授权拨款一千万美元。
+另外，大型投资者将面临债务折价，华融欠境外债权人的债务可能被折价10%左右。这对于海外投资者而言，也是不小的损失。
 
-（b）管理 – 国务卿应在国务院指定一个办公室，负责管理和协调国务院内部和整个美国政府提供第（a）小节所述的资金。
+有人可能会说，推迟公布年报也不是什么大事，但是他们不知道，年报反应的是一个公司资产负债表最真实的情况。一旦年报都推迟，说明这个公司的债务可能出了大问题。
 
-第302节 对在新疆维吾尔自治区实施有关强迫劳动的制裁
+上一家没披露年报而破产的主体是包商银行，而另一家年报难产户恒丰银行则由财政兜底平安落地。有这两家的先例在，大家就能想到市场对华融推迟公布年报的反应。
 
-（a）通常情况 – 对《2020年维吾尔族人权政策法》（the Uyghur Human Rights Policy Act of 2020）（公共法116-145）第6（a）（1）节；《美国法典》第22编第6901节注解）的修订-
+不曾想到一个主营不良资产处置业务的公司硬生生要把自己做成了不良，不知道华融最终将面临什么样的结局，是包商的路还是恒丰的路。但是，结果基本是可以确定的，违约或者重组都是为了逃避债务，被害苦的只有那些投资华融，借钱给华融的人！
 
-（1）将（E）项改为（F）项；以及
+跟着共产党走进火葬场，开始没人信，没有遭到伤害和损失的时候感觉无所谓，但是那些受害者，甚至家破人亡的经历者，他们的苦痛将是无法用言语表达的。
 
-（2）在（D）项后插入以下内容：“（E）与强迫劳动有关的严重侵犯人权（行为）。”
+（本文仅代表作者个人观点，与GNews平台无关）
 
-（b）生效日期；适用性 -（a）款所作的修订 –
+* * *
 
-（1）自本法颁布之日起生效；以及
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
 
-（2）适用于《2020年维吾尔族人权政策法》第6（a）（1）节要求的在该颁布日期之后提交的第一份报告。
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
 
-第303节 对在新疆维吾尔自治区蓄意强奸、强迫堕胎、强制绝育或非自愿避孕实施的制裁
-
-（a）通常情况 -《2020年维吾尔族人权政策法》（公共法116-145）第6（a）（1）节；《美国法典》第6901节注释）经第302节修订后，进一步修订 –
-
-（1）将（F）项改为（G）项；以及
-
-（2）在（E）项后插入以下内容：“（F）蓄意强奸、强迫堕胎、强迫绝育或非自愿避孕政策和行为。”
-
-（b）生效日期；适用性 -（a）款所作的修订 –
-
-（1）自本法颁布之日起生效；以及
-
-（2）适用于《2020年维吾尔族人权政策法》第6（a）（1）节要求的在该颁布日期之后提交的第一份报告。
-
-（3节完）
-
-原文链接：
-
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
-
-文字整理：
-
-TITLE III—INVESTING IN OUR VALUES
-
-SEC. 301. AUTHORIZATION OF APPROPRIATIONS FOR PRO 4 MOTION OF DEMOCRACY IN HONG KONG.
-
-(a) AUTHORIZATION OF APPROPRIATIONS. — There is authorized to be appropriated $10,000,000 for fiscal year 2022 for the Bureau of Democracy, Human Rights, and Labor of the Department of State to promote democracy in Hong Kong.
-
-(b) ADMINISTRATION. — The Secretary of State shall designate an office with the Department of State to administer and coordinate the provision of such funds described in subsection (a) within the Department of State and across the United States Government.
-
-SEC. 302. IMPOSITION OF SANCTIONS RELATING TO FORCED LABOR IN THE XINJIANG UYGHUR AUTONOMOUS REGION.
-
-(a) IN GENERAL. — Section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 (Public Law 116–145; 22 U.S.C. 6901 note) is amended—
-
-(1) by redesignating subparagraphs (E) as subparagraph (F); and
-
-(2) by inserting after subparagraph (D) the following:
-
-‘‘(E) Serious human rights abuses in connection with forced labor.’’
-
-(b) EFFECTIVE DATE; APPLICABILITY. — The amendment made by subsection (a)—
-
-(1) takes effect on the date of the enactment of this Act; and
-
-(2) applies with respect to the first report required by section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 submitted after such date of enactment.
-
-SEC. 303. IMPOSITION OF SANCTIONS WITH RESPECT TO SYSTEMATIC RAPE, COERCIVE ABORTION,
-
-FORCED STERILIZATION, OR INVOLUNTARY CONTRACEPTIVE IMPLANTATION IN THE XINJIANG UYGHUR AUTONOMOUS REGION.
-
-(a) IN GENERAL. — Section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 (Public Law 116–145; U.S.C. 6901 note), as amended by section 302, is further amended—
-
-(1) by redesignating subparagraphs (F) as subparagraph (G); and
-
-(2) by inserting after subparagraph (E) the following:
-
-‘‘(F) Systematic rape, coercive abortion, forced sterilization, or involuntary contraceptive implantation policies and practices.’’.
-
-(b) EFFECTIVE DATE; APPLICABILITY. — The amendment made by subsection (a)—
-
-(1) takes effect on the date of the enactment of this Act; and
-
-(2) applies with respect to the first report required by section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 submitted after such date of enactment.
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
 0

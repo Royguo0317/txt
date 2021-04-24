@@ -1,33 +1,101 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新冠长期症状者死亡率增加59%
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1135035/)
+## 美国《2021战略竞争法》第301、302、303节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1135106/)
 
-作者：Chloe
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a1-3.jpg)
-最新发表在《自然》杂志上的研究表明，新冠长期症状者因其旷日持久的症状而死亡的风险要高很多。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-高多少？研究人员4月22日在《自然》杂志上报告说，数据显示长期症状者在感染SARS-CoV-2病毒后六个月内死亡的风险增加59%。
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/H-8.jpg)newsfirst.lk
+“副标题C——应对中共国的区域战略”的“第三部分——南亚和中亚”2节（261、262），“第四部分——非洲”6节（271至276节），“第五部分——中东和北非”2节（281、281），“第六部分北极地区”1节，“第七部分——大洋洲”2节（291、292）暂时略译。
 
-领导这项研究的密苏里州圣路易斯退伍军人医疗中心研究和发展处处长Ziyad Al-Aly在接受彭博社采访时说：“当我们关注新冠病人急性期时，我们只是看到了冰山一角”。 发现长期症状者之后，“我们开始看到那座冰山下面的一点东西，这真的很令人震惊”。
+本文为“标题3——我们价值观的投入”的3节。
 
-Al-Aly和他的同事们记录了困扰长途旅行者的一连串衰弱症状，甚至是在他们被诊断后的几个月：从血凝块、中风、糖尿病和呼吸困难到心脏、肝脏和肾脏损伤、抑郁、焦虑和记忆丧失。
+标题3——我们价值观的投入
 
-什么是长期症状者？
+第301节 批准拨款支持香港民主运动
 
-一般来说，绝大多数新冠感染者属于两类人之一：大约80%的COVID-19患者最终有轻微的反应，大多数在大约两周内消失。对于对该病毒有严重反应的人来说，可能需要三到六周的时间来恢复。
+（a）为促进香港的民主，为国务院的《民主、人权和劳工局》（the Bureau of Democracy, Human Rights, and Labor）在2022财政年度授权拨款一千万美元。
 
-但现在有研究发现，有10%的新冠感染者不属于这两类人中的任何一类。他们在感染新冠后的几个月之后还会出现症状。
+（b）管理 – 国务卿应在国务院指定一个办公室，负责管理和协调国务院内部和整个美国政府提供第（a）小节所述的资金。
 
-这个群体被称为“长期症状者”，包括年轻的、年老的，曾经健康的、有慢性病的，住过院的和没住过院的。 令人沮丧的是医学界还没有找到造成这个情况的原因。
+第302节 对在新疆维吾尔自治区实施有关强迫劳动的制裁
 
-参考文献：
+（a）通常情况 – 对《2020年维吾尔族人权政策法》（the Uyghur Human Rights Policy Act of 2020）（公共法116-145）第6（a）（1）节；《美国法典》第22编第6901节注解）的修订-
 
-[New Study Shows “Long Haul” COVID-19 Can Kill Patients Months After Infection](https://www.zerohedge.com/covid-19/new-study-shows-long-haul-covid-19-kills-patients-months-after-infection)
+（1）将（E）项改为（F）项；以及
 
-[Management of post-acute covid-19 in primary care](https://www.bmj.com/content/370/bmj.m3026)
+（2）在（D）项后插入以下内容：“（E）与强迫劳动有关的严重侵犯人权（行为）。”
 
-发布：GLC
+（b）生效日期；适用性 -（a）款所作的修订 –
+
+（1）自本法颁布之日起生效；以及
+
+（2）适用于《2020年维吾尔族人权政策法》第6（a）（1）节要求的在该颁布日期之后提交的第一份报告。
+
+第303节 对在新疆维吾尔自治区蓄意强奸、强迫堕胎、强制绝育或非自愿避孕实施的制裁
+
+（a）通常情况 -《2020年维吾尔族人权政策法》（公共法116-145）第6（a）（1）节；《美国法典》第6901节注释）经第302节修订后，进一步修订 –
+
+（1）将（F）项改为（G）项；以及
+
+（2）在（E）项后插入以下内容：“（F）蓄意强奸、强迫堕胎、强迫绝育或非自愿避孕政策和行为。”
+
+（b）生效日期；适用性 -（a）款所作的修订 –
+
+（1）自本法颁布之日起生效；以及
+
+（2）适用于《2020年维吾尔族人权政策法》第6（a）（1）节要求的在该颁布日期之后提交的第一份报告。
+
+（3节完）
+
+原文链接：
+
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+
+文字整理：
+
+TITLE III—INVESTING IN OUR VALUES
+
+SEC. 301. AUTHORIZATION OF APPROPRIATIONS FOR PRO 4 MOTION OF DEMOCRACY IN HONG KONG.
+
+(a) AUTHORIZATION OF APPROPRIATIONS. — There is authorized to be appropriated $10,000,000 for fiscal year 2022 for the Bureau of Democracy, Human Rights, and Labor of the Department of State to promote democracy in Hong Kong.
+
+(b) ADMINISTRATION. — The Secretary of State shall designate an office with the Department of State to administer and coordinate the provision of such funds described in subsection (a) within the Department of State and across the United States Government.
+
+SEC. 302. IMPOSITION OF SANCTIONS RELATING TO FORCED LABOR IN THE XINJIANG UYGHUR AUTONOMOUS REGION.
+
+(a) IN GENERAL. — Section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 (Public Law 116–145; 22 U.S.C. 6901 note) is amended—
+
+(1) by redesignating subparagraphs (E) as subparagraph (F); and
+
+(2) by inserting after subparagraph (D) the following:
+
+‘‘(E) Serious human rights abuses in connection with forced labor.’’
+
+(b) EFFECTIVE DATE; APPLICABILITY. — The amendment made by subsection (a)—
+
+(1) takes effect on the date of the enactment of this Act; and
+
+(2) applies with respect to the first report required by section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 submitted after such date of enactment.
+
+SEC. 303. IMPOSITION OF SANCTIONS WITH RESPECT TO SYSTEMATIC RAPE, COERCIVE ABORTION,
+
+FORCED STERILIZATION, OR INVOLUNTARY CONTRACEPTIVE IMPLANTATION IN THE XINJIANG UYGHUR AUTONOMOUS REGION.
+
+(a) IN GENERAL. — Section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 (Public Law 116–145; U.S.C. 6901 note), as amended by section 302, is further amended—
+
+(1) by redesignating subparagraphs (F) as subparagraph (G); and
+
+(2) by inserting after subparagraph (E) the following:
+
+‘‘(F) Systematic rape, coercive abortion, forced sterilization, or involuntary contraceptive implantation policies and practices.’’.
+
+(b) EFFECTIVE DATE; APPLICABILITY. — The amendment made by subsection (a)—
+
+(1) takes effect on the date of the enactment of this Act; and
+
+(2) applies with respect to the first report required by section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 submitted after such date of enactment.
 
 0

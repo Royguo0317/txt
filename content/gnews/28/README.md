@@ -1,29 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 摩尔多瓦总统指责议会篡夺权力
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1134977/)
+## 【热点播报】TikTok助长了耶路撒冷的暴力
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1135078/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+作者：纽约香草山农场 四季
 
-编辑上传    银河
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Snipaste_2021-04-24_21-43-15.jpg)en.wikipedia.org
-04月24日，摩尔多瓦总统马亚·桑杜（Maia Sandu）指责议会试图篡夺权力，并敦促执法机构采取适当措施。桑杜说：“我已经要求总检察长办公室通过企图篡夺国家政权的方式来调查议会的行动。”
 
-当地媒体报道，总统要求信息和安全局采取措施，“打击破坏宪法秩序的企图，防止国家可能出现的不稳定”。桑杜说，她敦促军队和执法人员“不要参与非法行动，不要执行非法命令”，还呼吁议会，特别是社会主义者“停止”这种行为。
 
-此前，摩尔多瓦宪法法院15日裁定可以解散议会，是因为议会已有两次未能批准政府的任命。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-第一次尝试发生在2月11日，总统桑杜提名前财政部长纳塔利娅·加夫里利策为总理，并授权其尽快完成组阁。最后，该候选人获得了零票，打碎了桑杜计划的美梦。
 
-3月25日，摩尔多瓦议会本应就伊戈尔·格罗苏（Igor Grosu）的总理候选人资格进行投票，但没有达到必要的法定人数。自称亲俄的社会主义者和亲欧的桑杜其他反对者组成的议会多数派抵制了这次会议。
 
-根据摩尔多瓦宪法，议会须在15天内对提名总理的内阁及施政纲领进行投票。如果两次组阁失败，总统有权解散议会，提前举行议会选举。
+华盛顿自由灯塔4月23日报道，与中共有关系的社交网络TikTok，在耶路撒冷持续的暴力抗议中被用来鼓励阿拉伯人攻击犹太人——这些针对反犹太主义的暴力视频在以色列的TikTok上流行。
 
-桑杜赢得了2020年11月15日在该国举行的第二轮摩尔多瓦总统选举。根据共和国中央选举委员会的数据，伊戈尔·多顿（Igor Dodon）以42.26%对57.74%的成绩输给了桑杜。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-447.png)图源网络
 
-参考链接：
+这些视频显示阿拉伯青少年袭击毫无戒心的犹太人，激起了耶路撒冷旧城的暴力冲突，造成100多人受伤。视频同时显示，手无寸铁的犹太人遭到殴打，以及警察用防暴手榴弹驱散来自极右翼犹太团体Lehava的成员。
 
-[https://www.rbc.ru/rbcfreenews/60833dbd9a79473f75a3f9cf](https://www.rbc.ru/rbcfreenews/60833dbd9a79473f75a3f9cf)
+反犹太主义内容在TikTok应用程序上泛滥，上面有大量的反犹太主义的评论。并且，有一首嘲笑大屠杀受害者的歌曲在该应用程序上疯传，带有该歌曲的视频被观看了数百万次。
+
+TikTok经常审查对中共国政府的批评言论。2019年被泄露给《卫报》的文件显示，TikTok坚持实行禁止提及西藏自由或天安门广场等词汇，支持法轮功的视频也同样不被允许上传。TikTok对支持抗议香港政权的视频进行审查，该平台也同样审查了提及新疆维吾尔人受压迫的视频。许多使用TikTok分享他们困境的维吾尔人发现他们的账户很快就被关闭了。其应用程序的算法旨在促进亲中共的内容——TikTok与中共国政府的关系是众所周知的。司法部称，字节跳动的创始人表明，他“致力于促进”中国共产党的议程。
+
+参考阅读：
+
+[Anti-Semitic TikTok Trend Fuels Violence in Jerusalem](https://freebeacon.com/latest-news/anti-semitic-tiktok-trend-fuels-violence-in-jerusalem/)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
 
 0

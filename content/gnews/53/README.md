@@ -1,51 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104024（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1134650/)
+## 家庭反洗脑序列：第一篇 、 谈谈“百善孝为先 ”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1134737/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+- 作者：随风61
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01-15.jpg)
+**西班牙2021年4月24日电/西喜社——**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02-16.jpg)
+央视又一个大型演讲晚会，几乎所有的名嘴都隆重登场坐在评委席上。一位演讲者一炮“走红”，她演讲的内容是关于母爱（一个关于爱的永恒话题），从谈爱母亲展开到爱祖国，“百善孝为先”贯穿了整个主题.特写镜头，台下的粉红观众热泪盈眶。我相信，以上我描述的场景再熟悉不过了吧。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03-15.jpg)
+就这样一个演讲在网上10万次的点击和转发，我家老奶奶（我的婆婆）也帮忙转发了。以下是我的先生在家庭展开反洗脑的即时文字记录如下：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-16.jpg)
+他们总爱用“百善孝为先”占领道德制高点。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05-15.jpg)
+其实这句话是被阉割过的,事实是：“百善孝为先，论心不论迹，论迹贫家无孝子。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06-13.jpg)
+**孝论心**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07-13.jpg)
+后半句也被阉割了，事实是：“万恶淫为首，论迹不论心，论心世上少完人。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08-13.jpg)
+**淫论迹**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09-13.jpg)
+谁把这些文字阉割了？为啥要阉割？相信那些狗屎专家都知道，为什么视而不见？所以，你看到的，听到的，都是被阉割过的。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-19.jpg)
+近百年来除了牙签我们还发明了阉割，太监文化流行了近千年，北京话实际就是太监腔，没有了精子的男人跟主子传话，一扬一顿的。在北京话的基础上衍生了普通话，现在成为标准用语，维吾尔人，蒙古人都被标准了，实在是悲哀！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-19.jpg)
+没有了民族语言，没有了地域文化，更没有外来语言，恭喜你！你被标准了。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-21.jpg)
+跑裘你妈的贱货，一听就是大同的。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-17.jpg)
+海外小粉红脱口而出的国骂，一张嘴就是：草尼玛！永远都是把他母亲挂在嘴上！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-16.jpg)
+一个最习惯把母亲挂在嘴上的国人，在海外却开设了那么多孔子学院，这不光是变态，也不光是人格分裂，这是在向全世界展示我们的辫子还在，我们的小脚还裹着呢。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-16.jpg)
+审核：蚂蚁兄弟；校对：信心的选择；发稿：信心的选择
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-13.jpg)
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-12.jpg)
 
-本文仅代表作者观点
 
-发稿：Ranting
+
 
 0

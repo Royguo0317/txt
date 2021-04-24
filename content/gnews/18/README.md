@@ -1,34 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】纽约南区法院SV案追踪（3）
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1135250/)
+## 西喜时事新闻简报 — 中共篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1135352/)
 
-**作者：香草山写作组**** Kathy（文艺）**
+- 作者：蚂蚁兄弟
 
-**SV案正在审理中，这背后的实情是一张大网。**
 
-**郭文贵先生早在2018年4月20日的直播里就谈到，以王岐山，孟建柱，孙立军等为首的中共高层，因为郭文贵先生爆料海航真相，以国家的名义，不惜以90亿美元的价钱，倾一国之力，游说白宫遣返郭文贵先生。**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS2299-【世事解评】纽约南区法院SV案追踪（3）-封面.png)
-**2017年10月8日和25日，郭先生在直播里指出CCP间谍Bruno Wu(吴征)，打着习使者名义，游说美国各界写信给白宫遣返郭先生。**
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**这张网里值得重点提出的是****Elliott Broidy先生，纽约时报曾刊出，作为共和党的募款召集人与财政委员会副主席，如何与王孟孙吴等联合，以孟建柱在马来西亚的私生子Jho Low与马来西亚政府的关系，以及试着与阿布扎比（没有成功），腐败美国司法部，游说川普总统和白宫，以几百亿美元的身价，几十亿美元的公关费，牵扯到几百现任官员，不惜出卖美国利益，遣返郭文贵先生。**
+**西班牙2021年4月24日电/西喜社——**
 
-**SV案被告愿景公司律师已承认其律师费由CCP出资，CCP间谍Bruno Wu以买通Nichkie Lum Davis 和Elliott Broidy等，资助愿景公司老板French Wallop女士-前参议院委员会委员夫人,已是不争的事实。而愿景员工Michael Waller先生是前里根政府情报顾问。**
+您若想了解全文报导内容，请点击标题后链接
 
-**扑朔迷离的表象，随着SV案的审理将一步步逼近真相。水落石出，正本清源的日子终将到来。**
+**1. [针对反对中共的异议人士 中共国推出的新应用程序](http://www.christianitydaily.com/articles/11573/20210421/chinas-newly-launched-app-targets-dissenters-against-ccp.htm)**
 
-发稿：奇门遁甲
+基督日报4月21日电，中国网络管理局（CAC）宣布，中共推出了一个新的应用程序，同时还配有一个专门的网站，针对管理和监控那些说中共坏话、试图质疑中共制定的中国历史的 “官方版本”，以及从事中共认为的 “虚假信息 “的人。
 
-**更多资讯，更多关注**
+**2. [习近平已无可信任之人](https://www.fairobserver.com/region/asia_pacific/eyck-freymann-ralph-su-chinese-communist-party-xi-jinping-succession-news-12910/)**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+中立观察者4月21日评论：在上个月至关重要的两会上，中国共产党（CCP）官员通过了一个令人惊讶的、没有雄心的五年计划，重新调整了国家的技术战略，并加倍镇压香港的民主。所有这些都在英语媒体中得到了记录。但是，中共的另一项重要公告却没有被媒体注意到。一个听起来无伤大雅的立法程序变化，使习近平有权解除国务院副总理的职务，这是精英阶层反对其统治的最后堡垒之一。李克强总理名义上是中国第二大掌权者，现在实际上已经被排挤出局。此外，习近平潜在继任者胡春华现在可以被随意解雇。
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**3. [中共国将利用中共100周年纪念日对台湾施压](https://www.taiwannews.com.tw/en/news/4185966)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+台湾英文新闻4月24日电，随着中共100周年诞辰的逼近，国家安全局称中共将在主权、人权和外国的问题上采取更加极端的立场。
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**4. [中国共产党成立100周年计划的里面](https://www.theweek.co.uk/news/world-news/china/952582/inside-the-plans-for-the-chinese-communist-partys-100th-anniversary)**
+
+英国周报4月22日电， 为纪念中国共产党成立100周年，中共正准备利用此次机会在全国范围内再次掀起洗脑爱国主义教育：全国各地的官员已进入 “超负荷工作，以确保纪念活动顺利进行”，计划的活动包括 “爱国主义电影、历史课和集体婚礼”。同时，除了庆祝中国共产党成立一百周年，习政府还打算 “强调一个信息”，即只有共产党才能使中国恢复到一个全球大国的合法地位。
+
+**[5. 中共正在与历史玩危险的游戏](https://ipolitics.ca/2021/04/22/the-chinese-communist-party-is-playing-dangerous-games-with-history/)**
+
+加拿大I政治电子日报4月22日电，为了纪念今年中国共产党（CCP）成立一百周年，中国历史学家发布了更新版本的《中国共产党简史》，这本书比之前的版本更加鹰派和修正主义，并对该党的未来方向提出了严重质疑。
+
+审核：蚂蚁兄弟；校对：信心的选择；发稿：信心的选择
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 
 
