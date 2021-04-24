@@ -1,23 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以色列军队称受到加沙火箭弹攻击
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1135300/)
+## 美中情局局长对阿富汗进行了突击访问
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1135351/)
 
 俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
 编辑上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Snipaste_2021-04-24_23-46-12.jpg)[theiranproject.com](https://theiranproject.com/blog/2014/07/14/hamas-warns-of-surprise-attack-on-israel-in-hours/)
-04月24日，以色列军队新闻办公室在推特上称：“又有五枚火箭弹从加沙射入以色列南部，以色列家庭正在防空洞中避难。”
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Snipaste_2021-04-25_00-01-46.jpg)[indiandefencereview.com](http://www.indiandefencereview.com/news/us-afghan-policy-a-shot-in-the-arm-for-india/)
+04月24日，美联社报道美中情局局长威廉·伯恩斯（William Burns）最近在美国军队即将从阿富汗撤军之前对喀布尔进行了一次暗访。文中未揭露中情局局长究竟与谁会面，但明确指出他讨论了美军撤离后阿富汗的战备状态，并向阿富汗方面保证，美国将继续参与打击该国的恐怖主义。
 
-以色列的回应是向哈马斯的设施开火。据该办公室称，位于该区的地下基础设施和火箭发射器被摧毁。
+一位前阿富汗安全官员称，由中央情报局训练的六支追踪武装分子的特种部队，其中有两支已经移交给了阿富汗共和国。
 
-早些时候，以色列报告说，从加沙地带发射了三枚火箭弹。其中一枚火箭弹被“铁穹”防空系统拦截，而另外两枚火箭弹在与加沙地带边界的安全围栏附近爆炸。
+早些时候，五角大楼报告了在美军从阿富汗撤军的背景下加强对美军的保护。特别是，德怀特·艾森豪威尔号航空母舰将继续留在中央情报局在该地区的作战责任区域，此外，指挥部批准增加部署几架远程轰炸机。
 
-哈马斯是巴勒斯坦伊斯兰抵抗运动，有自己的武装组织。欧盟、美国、加拿大和以色列的国家已经认定该组织为恐怖主义。
+4月14日，美国总统乔·拜登承诺在纽约911袭击事件20周年之前全撤出所有美军，而不是原定的5月1日。当时，他警告塔利班，他们准备好对可能的挑衅和攻击做出果断反应。
+
+自2001年以来，美国军队一直驻扎在阿富汗。在此期间，有超过2000名美国军人在那里被杀害。自2011年以来，美国开始逐步减少其特遣队，并于2014年撤出其主要作战部队。
+
+2020年2月底，美国和塔利班签署了一项和平协议。该协议规定，美国和北约部队将在14个月内完全撤出阿富汗。
 
 参考链接：
 
-[https://www.rbc.ru/rbcfreenews/608385ae9a79474d8c9124af](https://www.rbc.ru/rbcfreenews/608385ae9a79474d8c9124af)
+[https://www.rbc.ru/rbcfreenews/6083c1539a7947590965650f](https://www.rbc.ru/rbcfreenews/6083c1539a7947590965650f)
 
 0

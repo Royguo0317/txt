@@ -1,101 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第301、302、303节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1135106/)
+## 《我们的七芒星》第十三期选手介绍 &#8211; 美东周六4月24日晚8点
+` GMusic` [轉載自GNews](https://gnews.org/zh-hans/1135060/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+我们的七芒星文宣组 May，山上的城，Q大哥整理
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/H-8.jpg)newsfirst.lk
-“副标题C——应对中共国的区域战略”的“第三部分——南亚和中亚”2节（261、262），“第四部分——非洲”6节（271至276节），“第五部分——中东和北非”2节（281、281），“第六部分北极地区”1节，“第七部分——大洋洲”2节（291、292）暂时略译。
+由GTV空中唱响团队和纽约香草山农场文艺部倾心打造的新中国联邦首档全民灭共大型知识竞猜节目《我们的七芒星》第十三期节目将于美东时间4月24日周六晚8点，暨北京时间4月25日周日早8点，在GTV正式火热开播。 届时将有一位”主持人”选手，和来自全球的八位”挑战者”参赛。
 
-本文为“标题3——我们价值观的投入”的3节。
+本期主持人选手是来自美国纽约香草山农场的Mindy！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Mindy1.jpeg)
+“挑战者”选手分别是：福太郎， 文小町， 叁贰壹倒计时， rizhong1154， 就爱七哥， 苍天饶过谁64，Ryan，鬼五。
 
-标题3——我们价值观的投入
+**福太郎   银河系**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/福太郎-2.jpeg)
+2017年开始关注文贵先生，被文贵先生的正义和勇气折服，有幸跟随爆料革成为新中国联邦人，尽己所能为灭共为唤醒更多被洗脑的中国人而战。
 
-第301节 批准拨款支持香港民主运动
+**文小町   日本东京樱花团**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/小文.jpeg)
+2018年开始关注爆料革命。在参与爆料革命的同时，又通过GTV看到了不同国度的风土人情，都是朴实真实、原汁原味。新中国联邦传播事实真相，灭共就差你一个。
 
-（a）为促进香港的民主，为国务院的《民主、人权和劳工局》（the Bureau of Democracy, Human Rights, and Labor）在2022财政年度授权拨款一千万美元。
+**叁贰壹倒计时   日本东京樱花团**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/倒计时.jpeg)
+2017年开始跟随爆料革命，有幸成为爆料革命的一员，自己的后半生有了明确的目标。坚持唯真不破，灭共到底。爆料革命赢定了！中共，你完了！
 
-（b）管理 – 国务卿应在国务院指定一个办公室，负责管理和协调国务院内部和整个美国政府提供第（a）小节所述的资金。
+**rizhong1154   美国波士顿五月花农场**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/rizhong-2.jpeg)
+自己曾在国内做过警察，父亲曾在批斗中受残酷迫害。国恨家仇让她此生愿在灭共大业上做一根稻草，为实现新中国联邦，走向喜马拉雅之巅而努力。
 
-第302节 对在新疆维吾尔自治区实施有关强迫劳动的制裁
+**就爱七哥   德国慕尼黑感恩农场**
 
-（a）通常情况 – 对《2020年维吾尔族人权政策法》（the Uyghur Human Rights Policy Act of 2020）（公共法116-145）第6（a）（1）节；《美国法典》第22编第6901节注解）的修订-
+曾穿着“民主 民权 六四”体恤衫去上课，老师在课堂上公然无耻谎称8964开枪照片是PS的。爆料革命给善良的中国人带来了希望，生死看淡，不服就干，就爱七哥，爱咋咋地。
 
-（1）将（E）项改为（F）项；以及
+**苍天饶过谁64   美国纽约香草山农场**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/苍天.jpeg)
+2017年听到文贵先生的直播后，心中燃起了灭共的希望，现在作为新中国联邦的一员，感到万分的荣幸和骄傲。加入新中国联邦是最最重要的选择，灭共是唯一目标。
 
-（2）在（D）项后插入以下内容：“（E）与强迫劳动有关的严重侵犯人权（行为）。”
+**Ryan    美国休斯敦星光农场**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/ryan-2.jpeg)
+因为是音乐人的缘故，所以加入了休斯敦星光农场，希望通过自己的专业尽自己的一份力，与其他战友并肩一起“以乐灭共”！
 
-（b）生效日期；适用性 -（a）款所作的修订 –
+**鬼五    美国休斯敦星光农场**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/guiwu.jpeg)
+还有一个月就是他参加爆料革命一周年纪念了！很庆幸有缘加入了这场拯救十四亿中国人，拯救七十五亿地球人的爆料革命，意义非凡。 战友们加油！
 
-（1）自本法颁布之日起生效；以及
+破解红毒，洞见真知。 灭共路上，没你不行！ 欢迎全球战友踊跃报名参加《我们的七芒星》。
 
-（2）适用于《2020年维吾尔族人权政策法》第6（a）（1）节要求的在该颁布日期之后提交的第一份报告。
+**报名方式 ：**
 
-第303节 对在新疆维吾尔自治区蓄意强奸、强迫堕胎、强制绝育或非自愿避孕实施的制裁
+报名”挑战者”或”主持人”：
 
-（a）通常情况 -《2020年维吾尔族人权政策法》（公共法116-145）第6（a）（1）节；《美国法典》第6901节注释）经第302节修订后，进一步修订 –
+[https://forms.gle/7VT3Qrz4yq861Bk69](https://forms.gle/7VT3Qrz4yq861Bk69)
 
-（1）将（F）项改为（G）项；以及
+报名”智囊团”：
 
-（2）在（E）项后插入以下内容：“（F）蓄意强奸、强迫堕胎、强迫绝育或非自愿避孕政策和行为。”
-
-（b）生效日期；适用性 -（a）款所作的修订 –
-
-（1）自本法颁布之日起生效；以及
-
-（2）适用于《2020年维吾尔族人权政策法》第6（a）（1）节要求的在该颁布日期之后提交的第一份报告。
-
-（3节完）
-
-原文链接：
-
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
-
-文字整理：
-
-TITLE III—INVESTING IN OUR VALUES
-
-SEC. 301. AUTHORIZATION OF APPROPRIATIONS FOR PRO 4 MOTION OF DEMOCRACY IN HONG KONG.
-
-(a) AUTHORIZATION OF APPROPRIATIONS. — There is authorized to be appropriated $10,000,000 for fiscal year 2022 for the Bureau of Democracy, Human Rights, and Labor of the Department of State to promote democracy in Hong Kong.
-
-(b) ADMINISTRATION. — The Secretary of State shall designate an office with the Department of State to administer and coordinate the provision of such funds described in subsection (a) within the Department of State and across the United States Government.
-
-SEC. 302. IMPOSITION OF SANCTIONS RELATING TO FORCED LABOR IN THE XINJIANG UYGHUR AUTONOMOUS REGION.
-
-(a) IN GENERAL. — Section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 (Public Law 116–145; 22 U.S.C. 6901 note) is amended—
-
-(1) by redesignating subparagraphs (E) as subparagraph (F); and
-
-(2) by inserting after subparagraph (D) the following:
-
-‘‘(E) Serious human rights abuses in connection with forced labor.’’
-
-(b) EFFECTIVE DATE; APPLICABILITY. — The amendment made by subsection (a)—
-
-(1) takes effect on the date of the enactment of this Act; and
-
-(2) applies with respect to the first report required by section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 submitted after such date of enactment.
-
-SEC. 303. IMPOSITION OF SANCTIONS WITH RESPECT TO SYSTEMATIC RAPE, COERCIVE ABORTION,
-
-FORCED STERILIZATION, OR INVOLUNTARY CONTRACEPTIVE IMPLANTATION IN THE XINJIANG UYGHUR AUTONOMOUS REGION.
-
-(a) IN GENERAL. — Section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 (Public Law 116–145; U.S.C. 6901 note), as amended by section 302, is further amended—
-
-(1) by redesignating subparagraphs (F) as subparagraph (G); and
-
-(2) by inserting after subparagraph (E) the following:
-
-‘‘(F) Systematic rape, coercive abortion, forced sterilization, or involuntary contraceptive implantation policies and practices.’’.
-
-(b) EFFECTIVE DATE; APPLICABILITY. — The amendment made by subsection (a)—
-
-(1) takes effect on the date of the enactment of this Act; and
-
-(2) applies with respect to the first report required by section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 submitted after such date of enactment.
+[https://forms.gle/DHE6E78fwXT5nc5M9](https://forms.gle/DHE6E78fwXT5nc5M9)
 
 0

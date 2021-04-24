@@ -1,43 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大生活美谈第五期2021.04.22
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1135053/)
+## 日本等重要国家会相继跟中国翻脸
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1135097/)
 
-文字整理: 蒙特利尔皇家山战友团 **平民正道**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4444444444444444.jpg)
-**一、一周新闻简报**
+**摘要：在2021年4月21日的盖特视频中，郭先生肯定了日本在爆料革命中的重要地位，爆料革命一直帮助日本获取相关情报做决策，协调日美关系。他还透露接下来会有像日本一样的重要国家相继与中共翻脸，某国未来的元首也相信爆料革命，将与美国联盟。他也以川普总统、埃利·布罗伊迪和他的错综关系为例，告诫战友们要认清敌友，爱恨要有原则，免得被伤害。**
+[下载字幕](https://www.gnews.org/wp-content/uploads/2021/04/Miles_04212021_Getter_P1.srt.txt)
+**日本等重要国家会相继跟中国翻脸**
 
-魁省累计病例341645人，死亡人数是10845人。截至到昨天为止，已经接种了疫苗的占全省人数的30.1%。
+**Countries Like Japan Will Turn Against Communist China One After Another**
 
-魁省慢性病人士例如糖尿病、高血压等从从明天开始可以到指定的注射中心或者药房接种疫苗。言语障碍、智力残障、自闭症患者可以通过网站预约的方式接种疫苗。2周之前已经批准的住院患者、癌症患者、洗肾患者可以开始接种疫苗。
+说到这儿[关于]日本，兄弟姐妹们记得几年前我说过日本吗？日本是爆料革命[在]亚洲最重要的基地，[因为有]近百万的华人在那儿。[这]对爆料革命的G系列，对爆料革命的整个传播信息以及救助和帮助在国内受残害的战友，那是个战略之地。[当时]我一再说我说日本一定会[和我们]站在一起的。
 
-魁省发现首例双突变病毒患者，该患者是在打了疫苗的情况下发现的。安省已有多例此类患者。
+Speaking of Japan, brothers and sisters, do you remember what I said about Japan a few years ago? Japan is the most important base for the Whistleblower Movement in Asia, as there are nearly a million Chinese-Japanese living there. It’s a strategic place for the G-series of the Whistleblower Movement, for the entire dissemination of the information of the Whistleblower Movement and for rescuing and helping our fellow fighters who have been persecuted in China.  At that time, I said repeatedly that Japan will definitely be on our side.
 
-印度中共病毒暴增，今天单日新增病例31万。全世界感染病毒人数1.45亿人，过去4天新增247万，全世界死亡人数超过了300万。
+我毫不夸张的说美日关系没有我们爆料革命到不了今天；没有新中国联邦到不了今天，未来你[们]会知道的。日本所有做什么事情他得要情报，没有情报[日本]不会做出决定。那么日本和美国之间的来往官方是很少的力量，主要是民间，而日本人又不善于主动的所谓的搞关系，也就是日本不太会和美国打交道。你看安倍[执政期间]搞的多拙劣呀？[搞得]多糟糕啊？[但]新中国联邦可以帮[日本]，[因为]我们有广大的资源，不可替代的情报能力让他做出决定。
 
-美国超过一半人打了中共病毒疫苗。过去4天新增患病人数241789，死亡人数增加了2995。打了疫苗人数继续增加，死亡人数也没有减少。值得思考疫苗到底有没有用。
+It is no exaggeration to say that without our Whistleblower Movement and the New Federal China (NFSC), the US-Japan relationship would not have reached where it is today. You will know this in the future. Before Japan decides to do anything, it has to gather intelligence. Without intelligence Japan will not make a decision. However, between Japan and the United States, the official interactions only accounted for a small percentage. The interactions are mainly in the private sector, and the Japanese are not good at proactively engaging in relationships. That is to say Japan is not good at dealing with the United States. Do you see how poorly former Prime Minister Abe has handled this during his administration? So poorly handled. But the NFSC can assist Japan because we have great resources and irreplaceable intelligence capabilities to help Japan make any decisions.
 
-文贵先生爆料，CCP 是有解药的。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/45454454.jpg)
-**二、加拿大小学教育**
+还有，接下来你[们]会看到，**跟日本同样对中共重要的国家都会相继公开给****[****共产党****]****翻脸**。看看7哥的[手段]！我们让[这些国家]做两个选择：跟着共产党走进火葬场，[或者]跟着新中国联邦走向无限的阳光和未来。这就是我们。要阳光？找新中国联邦啊；要想进火葬场？去跟共产党。这就是我们跟他们说的。
 
-小学3年级老师会教孩子们使用PPT，小组合作共同完成一个项目，然后做自我展示。这种团队合作一直持续到大学，帮助孩子更好的走向社会。
+Also, next you will see other countries as important as Japan openly turning against the CCP one after another. Wait to see how your Brother Miles does! We leave these countries with two choices: follow the CCP into the tomb, or follow the NFSC towards the infinite sunshine and bright future. That’s what we are. Want sunshine? Look for the NFSC. Want to go to the tomb? Go follow the CCP. That’s what we told them.
 
-1到3年级孩子没什么课外作业。在学校里，老师没有大声呵斥学生的行为，而是因势利导根据孩子的特点来帮助他们。周末孩子会在家准备星期一的show and talk, 在班里跟其他孩子们分享周末做过的项目。孩子们经过锻炼，口头表达能力有了显著提高，在公开场合发言一点也不胆怯。
+所以昨天晚上另外一个某个国家，下一个肯定是他是元首，[他也]是现在的元首的好哥们。[他]非常明确地说：“Miles，几年前我们就信你，但是我们得[从]共产党那儿弄点儿钱回来，我们利用它。美国欺负我们没办法啊，但最终我们一定是跟美国走在一起的。”
 
-老师发现孩子有些不对劲会打电话给社会工作者，情况比较严重的话社会工作者会把孩子带到另一个机构去暂住。加拿大的教育不仅关注孩子成绩，还关注孩子身心的全面发展。
+So last night, I was contacted by a friend from another country, who for sure will become the next Chief of Command of his country, who is also a good buddy of the current Chief. He said clearly, “Miles, since several years ago, we have already believed in you, but we have to get some money back from the CCP and we need to take advantage from it. Although the US bullies us, we can’t do anything, in the end, we must side with the US.”
 
-Jackie大姐分享了自己孩子成长过程重的一些小遗憾。她由于工作关系在孩子们小时候没有花很多时间陪伴他们成长，以至于成为心中的一大遗憾。孩子们渴望在成长时有父母的参与，感受到父母的陪伴和爱心。
+就像现在法庭开判那两个骗子，是吧？我们一定让[世界]知道谁在华尔街日报操纵报告说我是间谍了？你看这儿（电视），埃利·布罗伊迪尽然给他钱，那你这钱咋来的？[如果是从]共产党来的，那大家都知道法律[后果]了。
 
-Farmsister大姐认为在孩子小学阶段，最重要的是品德的培养——诚实、善良和契约精神。这些品格的培养胜过孩子技能上的成功。它是一个人的基石，为孩子的一生打下良好的基础。
+Just like the two swindlers the courts are sentencing now, we must let the world know who manipulated this report in the Wall Street Journal to say that I’m a spy. You watch this. Elliott Broidy actually gave the swindlers money. But where did Elliott Broidy get this money? If it came from the CCP, then we all know what the legal consequences will be.
 
-榜样的力量是无穷的。父母的一言一行都对孩子产生影响。父母要以身作则，给孩子们起一个示范作用。
+所以说大家别迷恋川普总统，川普总统当初要选的司法部长是代表两个骗子攻击我们的[人]，是拿埃利·布罗伊迪钱的，埃利·布罗伊迪又是川普总统的哥们……所以说战友们不要糊涂。这一辈子爱错了你就毁大发了，恨错了你也毁大发了。[所以]咱不能爱错也不能恨错。爱恨是情仇，爱恨不是真理，爱恨不是公义。明白吗兄弟姐们？
 
-[节目链接](https://gtv.org/video/id=608201527e083973a72f563b)
+So don’t be obsessed with President Trump. The Attorney General that President Trump previously wanted to pick was the one who represented the two swindlers to attack us, who took Eli Broidy’s money, and Eli Broidy is President Trump’s buddy. So don’t be silly, fellow fighters. If you love a wrong person in your life, you will be screwed badly; likewise, if you hate a wrong person, your life will also be ruined greatly. So we cannot love or hate wrong people. Love or hate is an emotional thing not a rational thing or righteous thing. Brothers and sisters, is that clear?
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60806fbc8616c84f0ff22004](https://gtv.org/getter/60806fbc8616c84f0ff22004) (2:50-5:47)
+鸣谢：感谢 Antsee-GTV、TING GUO 提供中文文本于 [https://www.gnews.org/zh-hans/1122932/](https://www.gnews.org/zh-hans/1122932/)
 
 * * *
 
-*编辑、发稿 文锦*
+翻译：【rainbow】字幕：【Rock小哥】二校：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0
