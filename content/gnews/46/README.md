@@ -1,41 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报—国际篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1131705/)
+## 【热点播报】COVID-19疫苗的另一个副作用：带状疱疹
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1131748/)
 
-- 作者：wenwu
+作者：纽约香草山农场 四季
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年4月23日电/西喜社——**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-您若想了解全文报导内容，请点击标题后链接
 
-**1. [叙利亚防空导弹落在以色列核设施附近](https://www.bbc.com/news/world-middle-east-56842502)**
 
-据《英广（BBC）》4月22日电，叙利亚高射导弹向以色列南部的飞机发射，导弹在距离一个秘密核场只有30公里的地方被拦截爆炸。以色列之后袭击了叙利亚的几个防空炮台。另外，对伊朗其纳坦兹铀浓缩厂发动了网络破坏袭击的幕后黑手不明朗。
+自然新闻网站4月20日的报道称，血凝块理所当然是COVID-19疫苗更引人注意的副作用之一，但以色列科学家又宣布了另一个潜在的副作用：疱疹感染。
 
-**2. [微软与中国军方挂钩的华为衍生产品合作](https://thenationalpulse.com/breaking/microsoft-partners-with-huawei-spinoff/)**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-419.png)图源网络
 
-据《国家脉动》4月22日电，微软一直面临一系列来自中国共产党的大规模黑客攻击，该公司与最近从中国军事关联公司华为分拆出来的科技公司 Honor 合作。Honor仍属于中共科技公司。
+带状疱疹开始时是一种带有小红疙瘩的瘙痒性皮疹，如果不加以治疗，它可能导致疼痛和神经损伤。它还会在皮肤上引起长时间的烧灼感，这种感觉会在皮疹消失后持续很长时间。
 
-**3. [参议院共和党议员霍利和布劳恩提出法案，要求拜登解密武汉实验室泄露情报](https://www.hawley.senate.gov/hawley-braun-introduce-bill-requiring-biden-declassify-wuhan-lab-leak-intelligence)**
+据来自海法卡梅尔医疗中心和特拉维夫苏拉斯基医疗中心的研究人员称，患有自身免疫性炎症风湿病的患者在接种疫苗后发生疱疹感染的风险更高。
 
-据《霍利参议院官网》4月22日电，一年多来，任何询问武汉病毒研究所的人都被贴上了阴谋论者的烙印。世界需要知道这种流行病是否是武汉实验室疏忽的产物，但中共已竭尽全力阻止可信的调查。这就是为什么拜登政府必须解密它对武汉实验室和北京掩盖疫情起源的调查情况。
+他们发现，1.2%接受疫苗的病人出现了感染，而所有涉及的患者都患有轻微的自身免疫性炎症风湿病。尽管这种感染在老年人中更常见，但所有出现这种特殊副作用的病人都很年轻——有几个是30多岁的人。出现在《风湿病学》杂志上的一项研究指出，那里的科学家已经发现了六例接受辉瑞公司疫苗后出现带状疱疹皮疹的病人，而且后来还发现了其他病例。
 
-**4.[新研究发现，中共国系统性的低估了环境污染水平](https://dailycaller.com/2021/04/22/china-under-reports-pollution-new-study/)**
+由于免疫抑制者不被允许参加最初的临床试验，随着许多国家疫苗接种地继续进行，以及患有各种疾病的人出现反应，可能会开始出现更多的带状疱疹和其他副作用的病例。疫苗最常见的反应之一是皮肤反应，即隆起和发痒的红色皮疹。
 
-据《每日来电者》4月22日电，中共国是环境污染最严重的国家之一。另外，虽然中共国尽力在各个机构改革后，污染数据报告的污染量存在统计学显著差异，这表明当当地空气质量不佳时，在政府机构地控制下系统性的少报了污染水平。
+目前，阿斯利康公司的疫苗在欧洲的一些地方已经停止流通，因为它与血凝块有关。在美国，至少有七名接种了强生公司疫苗的病人也出现了脑血栓，该疫苗的使用现在已经暂停。与血凝块有关的两种疫苗都是腺病毒载体疫苗。虽然媒体一直在淡化疫苗的副作用，但任何人都不应该忽视这样一个事实，即血栓是一个非常真实的、威胁生命的副作用。
 
-**5. [独家：海军陆战队司令员透露了为与中共国冲突做准备的新任务](https://www.washingtontimes.com/news/2021/apr/21/marine-commandant-reveals-new-mission-preparing-ch/)**
+不幸的是，随着越来越多的人接种这些实验性疫苗，与之有关的副作用会不断的发生，有些甚至是我们未知的风险。只有灭共，让中共给全世界一个交代，才能结束这个肆虐全球的灾难。
 
-据《华盛顿时报》4月21日电，美国海军陆战队司令部司令，大卫·H.伯杰正在为美中从竞争升级成战争做准备。其中对中共国的侦察筛查行动成为当前核心项目。内容为：及时向指挥官反馈战斗信息和直接攻击敌人的阵地。
+参考阅读：
 
-审核：蚂蚁兄弟；校对：信心满满；发稿：信心的选择
+[Israeli scientists announce yet another COVID-19 vaccine side effect: herpes zoster](https://www.naturalnews.com/2021-04-20-israeli-scientists-covid-19-side-effect-herpes-zoster.html#)
 
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 
 
