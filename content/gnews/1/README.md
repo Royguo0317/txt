@@ -1,50 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】TikTok助长了耶路撒冷的暴力
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1135078/)
+## 【世事解评】纽约南区法院SV案追踪（3）
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1135250/)
 
-作者：纽约香草山农场 四季
+**作者：香草山写作组**** Kathy（文艺）**
 
+**SV案正在审理中，这背后的实情是一张大网。**
 
+**郭文贵先生早在2018年4月20日的直播里就谈到，以王岐山，孟建柱，孙立军等为首的中共高层，因为郭文贵先生爆料海航真相，以国家的名义，不惜以90亿美元的价钱，倾一国之力，游说白宫遣返郭文贵先生。**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS2299-【世事解评】纽约南区法院SV案追踪（3）-封面.png)
+**2017年10月8日和25日，郭先生在直播里指出CCP间谍Bruno Wu(吴征)，打着习使者名义，游说美国各界写信给白宫遣返郭先生。**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+**这张网里值得重点提出的是****Elliott Broidy先生，纽约时报曾刊出，作为共和党的募款召集人与财政委员会副主席，如何与王孟孙吴等联合，以孟建柱在马来西亚的私生子Jho Low与马来西亚政府的关系，以及试着与阿布扎比（没有成功），腐败美国司法部，游说川普总统和白宫，以几百亿美元的身价，几十亿美元的公关费，牵扯到几百现任官员，不惜出卖美国利益，遣返郭文贵先生。**
 
+**SV案被告愿景公司律师已承认其律师费由CCP出资，CCP间谍Bruno Wu以买通Nichkie Lum Davis 和Elliott Broidy等，资助愿景公司老板French Wallop女士-前参议院委员会委员夫人,已是不争的事实。而愿景员工Michael Waller先生是前里根政府情报顾问。**
 
+**扑朔迷离的表象，随着SV案的审理将一步步逼近真相。水落石出，正本清源的日子终将到来。**
 
-华盛顿自由灯塔4月23日报道，与中共有关系的社交网络TikTok，在耶路撒冷持续的暴力抗议中被用来鼓励阿拉伯人攻击犹太人——这些针对反犹太主义的暴力视频在以色列的TikTok上流行。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-447.png)图源网络
-
-这些视频显示阿拉伯青少年袭击毫无戒心的犹太人，激起了耶路撒冷旧城的暴力冲突，造成100多人受伤。视频同时显示，手无寸铁的犹太人遭到殴打，以及警察用防暴手榴弹驱散来自极右翼犹太团体Lehava的成员。
-
-反犹太主义内容在TikTok应用程序上泛滥，上面有大量的反犹太主义的评论。并且，有一首嘲笑大屠杀受害者的歌曲在该应用程序上疯传，带有该歌曲的视频被观看了数百万次。
-
-TikTok经常审查对中共国政府的批评言论。2019年被泄露给《卫报》的文件显示，TikTok坚持实行禁止提及西藏自由或天安门广场等词汇，支持法轮功的视频也同样不被允许上传。TikTok对支持抗议香港政权的视频进行审查，该平台也同样审查了提及新疆维吾尔人受压迫的视频。许多使用TikTok分享他们困境的维吾尔人发现他们的账户很快就被关闭了。其应用程序的算法旨在促进亲中共的内容——TikTok与中共国政府的关系是众所周知的。司法部称，字节跳动的创始人表明，他“致力于促进”中国共产党的议程。
-
-参考阅读：
-
-[Anti-Semitic TikTok Trend Fuels Violence in Jerusalem](https://freebeacon.com/latest-news/anti-semitic-tiktok-trend-fuels-violence-in-jerusalem/)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
+发稿：奇门遁甲
 
 **更多资讯，更多关注**
 
 [**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 
 

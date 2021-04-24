@@ -1,51 +1,101 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 东盟峰会已就结束缅甸危机与军政府达成共识
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1135064/)
+## 美国《2021战略竞争法》第301、302、303节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1135106/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/S-26.jpg)swissinfo,ch
-据路透社报道，东南亚国家领导人表示，他们周六与缅甸军政府首脑就结束这个受暴力影响的国家危机达成了一项计划，但他没有明确回应关于停止杀害平民抗议者的要求。
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/H-8.jpg)newsfirst.lk
+“副标题C——应对中共国的区域战略”的“第三部分——南亚和中亚”2节（261、262），“第四部分——非洲”6节（271至276节），“第五部分——中东和北非”2节（281、281），“第六部分北极地区”1节，“第七部分——大洋洲”2节（291、292）暂时略译。
 
-“这超出了我们的预期。”马来西亚总理穆希丁·亚辛（Muhyiddin Yassin）在东南亚国家联盟（东盟）领导人会议后告诉记者，缅甸军政府领导人敏昂莱（Min Aung Hlaing）也参加了这次会议。
+本文为“标题3——我们价值观的投入”的3节。
 
-“我们尽量不要过多地指责他方，因为我们不在乎是谁造成的（这次流血冲突）。” 亚辛补充说，“我们只是强调，必须停止（进一步）暴力冲突。对他（敏昂莱）来说，（敏昂莱认为）是另一方在制造问题。但他（敏昂莱）同意，必须停止暴力冲突。”
+标题3——我们价值观的投入
 
-东盟领导人希望敏昂莱对约束他的安全部队做出承诺。人权观察组织表示自 2 月 1 日反对军政府政变的抗议活动以来，缅甸安全部队已经杀害了 745 人。东盟领导人还希望军政府释放关押的政治犯。
+第301节 批准拨款支持香港民主运动
 
-亚辛说：“对于我和同僚们所提出的建议，敏昂莱并没有表示拒绝。”
+（a）为促进香港的民主，为国务院的《民主、人权和劳工局》（the Bureau of Democracy, Human Rights, and Labor）在2022财政年度授权拨款一千万美元。
 
-东盟轮值主席国文莱随后发表声明称，与会双方就五点达成了共识。分别是结束暴力冲突，冲突各方开展具有建设性的对话，任命东盟特使以促进对话，接受国际援助，以及派遣特使访问缅甸。但最终声明中并未提到释放政治犯的问题。
+（b）管理 – 国务卿应在国务院指定一个办公室，负责管理和协调国务院内部和整个美国政府提供第（a）小节所述的资金。
 
-据亚洲新闻台电视台报道，新加坡总理李显龙说，“敏昂莱说他听了我们（阐述的）观点，对于有助于解决问题的观点他会（考虑）采纳的。他不反对东盟发挥建设性作用，也不排斥东盟代表团访问（缅甸），或（国际社会提供的）人道主义援助。” 但李显龙接着补充说，后面还有很长的路要走，“承诺停止暴力和释放政治犯是一回事，切实履行兑现承诺又是另一回事”。
+第302节 对在新疆维吾尔自治区实施有关强迫劳动的制裁
 
-敏昂莱会后没有立即发表评论。
+（a）通常情况 – 对《2020年维吾尔族人权政策法》（the Uyghur Human Rights Policy Act of 2020）（公共法116-145）第6（a）（1）节；《美国法典》第22编第6901节注解）的修订-
 
-东盟议员人权组织负责人查尔斯·圣地亚哥（ Charles Santiago）说，“释放政治犯是停止暴力冲突的必要条件。东盟现在必须迅速采取行动，为敏昂莱制定一个明确的时间表，以兑现结束暴力冲突的承诺，或是随时准备追究其责任。”
+（1）将（E）项改为（F）项；以及
 
-东盟会议是自推翻昂山素季民选政府的政变以来，国际社会为缓解缅甸的危机所做的第一次协调努力。缅甸是一个与中共国、印度和泰国相邻的贫困国家。
+（2）在（D）项后插入以下内容：“（E）与强迫劳动有关的严重侵犯人权（行为）。”
 
-缅甸的民族团结政府（NUG）由支持民主的人士、被颠覆原昂山素季政府的公职人员和武装民族团体的代表组成，该组织表示对此次会议达成的共识表示欢迎，但军政府必须切实履行其承诺。
+（b）生效日期；适用性 -（a）款所作的修订 –
 
-国民大会发言人萨萨博士说，“我们期待着东盟采取坚定行动，落实（此次雅加达会议的）决定并恢复缅甸的民主。”
+（1）自本法颁布之日起生效；以及
 
-缅甸一般是派低级别的公职人员或平民代表参与东盟峰会，军政府最高领导人直接出席东盟峰会十分罕见。
+（2）适用于《2020年维吾尔族人权政策法》第6（a）（1）节要求的在该颁布日期之后提交的第一份报告。
 
-印度尼西亚、越南、新加坡、马来西亚、柬埔寨和文莱的领导人，以及老挝、泰国和菲律宾的外交部长都出席了会议。
+第303节 对在新疆维吾尔自治区蓄意强奸、强迫堕胎、强制绝育或非自愿避孕实施的制裁
 
-东盟当前采取的政策是通过盟国间的商讨找到成员国一致同意解决危机的方法，但任何统一的决议都不会涉及成员国内政事务。虽然这使得东盟内部成员国对有巨大分歧的政治经济问题难以达成一致性决议，但联合国、中共国和美国当前都认为东盟是直接处理政变军政府的最佳选择。
+（a）通常情况 -《2020年维吾尔族人权政策法》（公共法116-145）第6（a）（1）节；《美国法典》第6901节注释）经第302节修订后，进一步修订 –
 
-美国驻联合国大使琳达·托马斯·格林菲尔德（Linda Thomas Greenfield）在推特上说：“我们在联合国安理会急切地等待东盟关于缅甸的会议结果，这个问题值得认真和立即关注。”
+（1）将（F）项改为（G）项；以及
 
-不过，一些分析家警告说，邀请政变军政府领导人参加峰会，会让军政府有机会在国际社会借机树立执政合法性的形象，这是十分危险的。
+（2）在（E）项后插入以下内容：“（F）蓄意强奸、强迫堕胎、强迫绝育或非自愿避孕政策和行为。”
 
-澳大利亚战略政策倡议组织在对东盟会议“达成五点共识”进行深入分析时写道：“虽然缅甸军方正式派代表参加了东盟峰会，但会后却未作出任何让步，包括首先承诺停止流血冲突事件，（使得）这是没有建设性的。” 这就是说，该组织认为此次东盟峰会达成的共识缺少了缅甸军方承诺不使用武力，对于推动全面解决缅甸内部暴力流血事件几乎毫无帮助，很可能未来就是一纸空文。
+（b）生效日期；适用性 -（a）款所作的修订 –
 
-参考链接：
+（1）自本法颁布之日起生效；以及
 
-[1] [SE Asian nations say consensus reached on ending Myanmar crisis – REUTERS – 2021/04/23](https://www.reuters.com/article/us-myanmar-politics-asean/se-asian-nations-say-reach-consensus-on-ending-myanmar-crisis-idUSKBN2CA2NV)
+（2）适用于《2020年维吾尔族人权政策法》第6（a）（1）节要求的在该颁布日期之后提交的第一份报告。
+
+（3节完）
+
+原文链接：
+
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+
+文字整理：
+
+TITLE III—INVESTING IN OUR VALUES
+
+SEC. 301. AUTHORIZATION OF APPROPRIATIONS FOR PRO 4 MOTION OF DEMOCRACY IN HONG KONG.
+
+(a) AUTHORIZATION OF APPROPRIATIONS. — There is authorized to be appropriated $10,000,000 for fiscal year 2022 for the Bureau of Democracy, Human Rights, and Labor of the Department of State to promote democracy in Hong Kong.
+
+(b) ADMINISTRATION. — The Secretary of State shall designate an office with the Department of State to administer and coordinate the provision of such funds described in subsection (a) within the Department of State and across the United States Government.
+
+SEC. 302. IMPOSITION OF SANCTIONS RELATING TO FORCED LABOR IN THE XINJIANG UYGHUR AUTONOMOUS REGION.
+
+(a) IN GENERAL. — Section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 (Public Law 116–145; 22 U.S.C. 6901 note) is amended—
+
+(1) by redesignating subparagraphs (E) as subparagraph (F); and
+
+(2) by inserting after subparagraph (D) the following:
+
+‘‘(E) Serious human rights abuses in connection with forced labor.’’
+
+(b) EFFECTIVE DATE; APPLICABILITY. — The amendment made by subsection (a)—
+
+(1) takes effect on the date of the enactment of this Act; and
+
+(2) applies with respect to the first report required by section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 submitted after such date of enactment.
+
+SEC. 303. IMPOSITION OF SANCTIONS WITH RESPECT TO SYSTEMATIC RAPE, COERCIVE ABORTION,
+
+FORCED STERILIZATION, OR INVOLUNTARY CONTRACEPTIVE IMPLANTATION IN THE XINJIANG UYGHUR AUTONOMOUS REGION.
+
+(a) IN GENERAL. — Section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 (Public Law 116–145; U.S.C. 6901 note), as amended by section 302, is further amended—
+
+(1) by redesignating subparagraphs (F) as subparagraph (G); and
+
+(2) by inserting after subparagraph (E) the following:
+
+‘‘(F) Systematic rape, coercive abortion, forced sterilization, or involuntary contraceptive implantation policies and practices.’’.
+
+(b) EFFECTIVE DATE; APPLICABILITY. — The amendment made by subsection (a)—
+
+(1) takes effect on the date of the enactment of this Act; and
+
+(2) applies with respect to the first report required by section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 submitted after such date of enactment.
 
 0
