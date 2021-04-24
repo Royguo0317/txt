@@ -1,33 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草山影院】纪录片《战争交响曲：肖斯塔科维奇对抗斯大林》电影解说
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1134572/)
+## 【世事解评】忠字舞还魂，文革回潮
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1134636/)
 
-制作：纽约香草山视频部
+作者：香草山美食部 蓝天大海
 
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/logo-6.jpg)
 
 
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS2306-【世事解评】忠字舞还魂，文革回潮.jpg)图片来源：epochtimes.com
 
+近日，在社交媒体上看到一些中共国的中小学生跳「[忠字舞](https://www.ntdtv.com/b5/%E5%BF%A0%E5%AD%97%E8%88%9E.htm)」的视频，感到寒意阵阵。这是又一个信号：给中国人民带来深重灾难的文革正在一步步回潮。
 
-**电影解说原文： [【文艺灭共行动】对抗强权: 一个伟大艺术家的命运](https://gnews.org/zh-hans/357619/)**
+忠字舞流行于1966年到1968年，是文革初期崇拜毛泽东的一种形式。那时，老百姓一边唱着《大海航行靠舵手》、《北京的金山上》等所谓的革命歌曲和毛泽东语录歌曲，一边跳着集体舞蹈。开始是庆祝游行时，边走边唱边跳。后来发展到无论老幼，全民皆跳。最后，全民对领袖无知狂热的崇拜愈演愈烈，衍生出“早请示，晚汇报”，“三忠于——忠于毛主席、忠于毛泽东思想、忠于毛主席的革命路线”，把个人崇拜推向了高潮。
 
-审核/发稿：雪梨
+笔者经历过文革，那时是个小学生。虽然停课闹革命，忠字舞还是要跳的。院子里的中学生们组织起来，每天早晨，对着东方早请示，唱《东方红》；晚上，还是对着东方晚汇报，唱《大海航行靠舵手》。每个人手里都拿着一本红宝书——《毛主席语录》，仪式后跳忠字舞。我们这些小学生跟着中学生后面一起跳，只觉好玩，不明就里。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+文革时期的中国，宣传机器就是报纸和广播。每个单位，无论是工厂、农村、学校，还是居民区都安装了大喇叭。每天早晨，人们都被大喇叭吵醒，一直吵到晚上睡觉的时候结束。每天的内容除了新闻，就是革命歌曲、样板戏。老百姓就是这样日复一日，年复一年的被洗脑。忠字舞之后，是全国性的武斗，上山下乡和大批判，一步步将中共国推向崩溃的边缘。
 
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+文革结束后，中共曾有过短期的所谓“拨乱反正”，正式定义文革是“十年动乱”。善良的人们以为文革就此过去了。岂料五十年后，文革阴魂不散，再次回潮。其实，这不是偶然的，这是共产党的本性使然，是必然的结果。毛泽东死前曾经说过，“文化大革命每隔七八年要来一次”。文革实际上是闭关锁国，愚民百姓，挑动群众斗群众的运动，也是他们摆脱内外交困，维持统治的救命稻草。今天中共倒行逆施、重推文革，说明他们已经陷入困境，正在垂死挣扎。但是这一次，他们注定不会起死回生。因为新中国联邦和爆料革命通过大量揭露中共犯下的种种罪行，唤醒了世界，一个前所未有的全球反共联盟正在形成。这一次共产党必将灭亡。
 
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+（文章仅代表作者个人观点。）
 
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+校对/发稿： 雪梨
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpeg)
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

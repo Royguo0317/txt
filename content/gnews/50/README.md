@@ -1,11 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共一直通过窃取和渗透，意图颠覆美国的生物医学研究行业
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1134584/)
+## 慧眼看世界202104024（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1134650/)
 
-4/22/2021 美国国立卫生研究院（NIH）院外研究部副主任迈克尔·劳尔（Michael Lauer）博士在4月22日举行的参议院卫生、教育、劳工和退休金（HELP）委员会听证会上，作证外国势力（主要是中共）对美国生物医学研究中的影响；参议员罗杰⋅马歇尔：为消除美国的竞争优势，中共一直在以关键技术和研究机构为目标，系统性地努力渗透到美国学术研究界，因此中共将继续是美国技术竞争力的首要威胁。
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-By： 【秘密翻译组 G-Translators】
 
-+3
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-16.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-16.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-13.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-13.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-13.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-13.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-19.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-19.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-21.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-17.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-16.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-16.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-13.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-12.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
+
+0

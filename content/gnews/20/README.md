@@ -1,43 +1,101 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大生活美谈第五期2021.04.22
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1135053/)
+## 美国《2021战略竞争法》第301、302、303节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1135106/)
 
-文字整理: 蒙特利尔皇家山战友团 **平民正道**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4444444444444444.jpg)
-**一、一周新闻简报**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-魁省累计病例341645人，死亡人数是10845人。截至到昨天为止，已经接种了疫苗的占全省人数的30.1%。
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/H-8.jpg)newsfirst.lk
+“副标题C——应对中共国的区域战略”的“第三部分——南亚和中亚”2节（261、262），“第四部分——非洲”6节（271至276节），“第五部分——中东和北非”2节（281、281），“第六部分北极地区”1节，“第七部分——大洋洲”2节（291、292）暂时略译。
 
-魁省慢性病人士例如糖尿病、高血压等从从明天开始可以到指定的注射中心或者药房接种疫苗。言语障碍、智力残障、自闭症患者可以通过网站预约的方式接种疫苗。2周之前已经批准的住院患者、癌症患者、洗肾患者可以开始接种疫苗。
+本文为“标题3——我们价值观的投入”的3节。
 
-魁省发现首例双突变病毒患者，该患者是在打了疫苗的情况下发现的。安省已有多例此类患者。
+标题3——我们价值观的投入
 
-印度中共病毒暴增，今天单日新增病例31万。全世界感染病毒人数1.45亿人，过去4天新增247万，全世界死亡人数超过了300万。
+第301节 批准拨款支持香港民主运动
 
-美国超过一半人打了中共病毒疫苗。过去4天新增患病人数241789，死亡人数增加了2995。打了疫苗人数继续增加，死亡人数也没有减少。值得思考疫苗到底有没有用。
+（a）为促进香港的民主，为国务院的《民主、人权和劳工局》（the Bureau of Democracy, Human Rights, and Labor）在2022财政年度授权拨款一千万美元。
 
-文贵先生爆料，CCP 是有解药的。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/45454454.jpg)
-**二、加拿大小学教育**
+（b）管理 – 国务卿应在国务院指定一个办公室，负责管理和协调国务院内部和整个美国政府提供第（a）小节所述的资金。
 
-小学3年级老师会教孩子们使用PPT，小组合作共同完成一个项目，然后做自我展示。这种团队合作一直持续到大学，帮助孩子更好的走向社会。
+第302节 对在新疆维吾尔自治区实施有关强迫劳动的制裁
 
-1到3年级孩子没什么课外作业。在学校里，老师没有大声呵斥学生的行为，而是因势利导根据孩子的特点来帮助他们。周末孩子会在家准备星期一的show and talk, 在班里跟其他孩子们分享周末做过的项目。孩子们经过锻炼，口头表达能力有了显著提高，在公开场合发言一点也不胆怯。
+（a）通常情况 – 对《2020年维吾尔族人权政策法》（the Uyghur Human Rights Policy Act of 2020）（公共法116-145）第6（a）（1）节；《美国法典》第22编第6901节注解）的修订-
 
-老师发现孩子有些不对劲会打电话给社会工作者，情况比较严重的话社会工作者会把孩子带到另一个机构去暂住。加拿大的教育不仅关注孩子成绩，还关注孩子身心的全面发展。
+（1）将（E）项改为（F）项；以及
 
-Jackie大姐分享了自己孩子成长过程重的一些小遗憾。她由于工作关系在孩子们小时候没有花很多时间陪伴他们成长，以至于成为心中的一大遗憾。孩子们渴望在成长时有父母的参与，感受到父母的陪伴和爱心。
+（2）在（D）项后插入以下内容：“（E）与强迫劳动有关的严重侵犯人权（行为）。”
 
-Farmsister大姐认为在孩子小学阶段，最重要的是品德的培养——诚实、善良和契约精神。这些品格的培养胜过孩子技能上的成功。它是一个人的基石，为孩子的一生打下良好的基础。
+（b）生效日期；适用性 -（a）款所作的修订 –
 
-榜样的力量是无穷的。父母的一言一行都对孩子产生影响。父母要以身作则，给孩子们起一个示范作用。
+（1）自本法颁布之日起生效；以及
 
-[节目链接](https://gtv.org/video/id=608201527e083973a72f563b)
+（2）适用于《2020年维吾尔族人权政策法》第6（a）（1）节要求的在该颁布日期之后提交的第一份报告。
 
-* * *
+第303节 对在新疆维吾尔自治区蓄意强奸、强迫堕胎、强制绝育或非自愿避孕实施的制裁
 
-*编辑、发稿 文锦*
+（a）通常情况 -《2020年维吾尔族人权政策法》（公共法116-145）第6（a）（1）节；《美国法典》第6901节注释）经第302节修订后，进一步修订 –
+
+（1）将（F）项改为（G）项；以及
+
+（2）在（E）项后插入以下内容：“（F）蓄意强奸、强迫堕胎、强迫绝育或非自愿避孕政策和行为。”
+
+（b）生效日期；适用性 -（a）款所作的修订 –
+
+（1）自本法颁布之日起生效；以及
+
+（2）适用于《2020年维吾尔族人权政策法》第6（a）（1）节要求的在该颁布日期之后提交的第一份报告。
+
+（3节完）
+
+原文链接：
+
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+
+文字整理：
+
+TITLE III—INVESTING IN OUR VALUES
+
+SEC. 301. AUTHORIZATION OF APPROPRIATIONS FOR PRO 4 MOTION OF DEMOCRACY IN HONG KONG.
+
+(a) AUTHORIZATION OF APPROPRIATIONS. — There is authorized to be appropriated $10,000,000 for fiscal year 2022 for the Bureau of Democracy, Human Rights, and Labor of the Department of State to promote democracy in Hong Kong.
+
+(b) ADMINISTRATION. — The Secretary of State shall designate an office with the Department of State to administer and coordinate the provision of such funds described in subsection (a) within the Department of State and across the United States Government.
+
+SEC. 302. IMPOSITION OF SANCTIONS RELATING TO FORCED LABOR IN THE XINJIANG UYGHUR AUTONOMOUS REGION.
+
+(a) IN GENERAL. — Section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 (Public Law 116–145; 22 U.S.C. 6901 note) is amended—
+
+(1) by redesignating subparagraphs (E) as subparagraph (F); and
+
+(2) by inserting after subparagraph (D) the following:
+
+‘‘(E) Serious human rights abuses in connection with forced labor.’’
+
+(b) EFFECTIVE DATE; APPLICABILITY. — The amendment made by subsection (a)—
+
+(1) takes effect on the date of the enactment of this Act; and
+
+(2) applies with respect to the first report required by section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 submitted after such date of enactment.
+
+SEC. 303. IMPOSITION OF SANCTIONS WITH RESPECT TO SYSTEMATIC RAPE, COERCIVE ABORTION,
+
+FORCED STERILIZATION, OR INVOLUNTARY CONTRACEPTIVE IMPLANTATION IN THE XINJIANG UYGHUR AUTONOMOUS REGION.
+
+(a) IN GENERAL. — Section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 (Public Law 116–145; U.S.C. 6901 note), as amended by section 302, is further amended—
+
+(1) by redesignating subparagraphs (F) as subparagraph (G); and
+
+(2) by inserting after subparagraph (E) the following:
+
+‘‘(F) Systematic rape, coercive abortion, forced sterilization, or involuntary contraceptive implantation policies and practices.’’.
+
+(b) EFFECTIVE DATE; APPLICABILITY. — The amendment made by subsection (a)—
+
+(1) takes effect on the date of the enactment of this Act; and
+
+(2) applies with respect to the first report required by section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 submitted after such date of enactment.
 
 0
