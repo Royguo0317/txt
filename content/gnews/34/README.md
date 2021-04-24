@@ -1,63 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【信仰之声】真人真事与恩慈相待——谈关系的修复
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1132262/)
+## 整个华尔街正在玩一场极为危险的游戏
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1132527/)
 
-作者：纽约香草山福音部 佳音古歌
+摘要：郭先生在2021年3月16日的盖特视频中说现在的华尔街正在玩一场极为危险的游戏，华尔街的股票可能涨到今年年底甚至到明年5月份前。他奉劝大家不要有投机和赌博心理，因为那一定会让你倾家荡产和身败名裂。而G系列会让爆料革命和新中国联邦的所有的战友们体面、富有、安全地生活，得以来灭共。
+[下载字幕](https://www.gnews.org/wp-content/uploads/2021/04/Miles_20210416-getter1.srt.txt)
+**整个华尔街正在玩一场极为危险的游戏**
 
+**Wall Street Is Playing an Extremely Dangerous Game Now**
 
+另外，美国现在整个华尔街正在玩一场极为危险的游戏。这次华尔街，大家都很清楚华尔街这次股票的崩溃只是时间长短，一模一样，不会有什么意外。说不会崩盘绝不可能，只是炒多高下来，还有多少人可能倾家荡产（的问题）。但这一次华尔街玩的游戏，（他们）准备好了两样东西：第一个，把（股市）炒涨起来，涨到今年年底甚至到明年5月份前，炒最高的时候绝大多数的钱全部要出去钱。钱出去上哪去，兄弟姐妹们？放哪儿去啊？他们得找地方放，虚拟加密货币（和）黄金，就这两样东西，没有任何第三个地方能放。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+Besides, the United States is now playing an extremely dangerous game in Wall Street. This time, everyone in Wall Street is well aware that the collapse of Wall Street’s stocks is just a matter of time, and there won’t be any surprises about this. It is absolutely impossible for anyone to say that the market will not collapse. It is just a matter of how high the stock price will be speculated to before it collapses and how many people will go bankrupt. For the game played by the Wall Street this time, they’ve prepared two things: the first one is to lift the stock market up until the end of this year or even before May next year. When it gets to the peak time, most of the money will flow out. To where, brothers and sisters? Where will the money go? They will have to find a place to put it – Virtual cryptocurrency and gold. There is no third place to put it.
 
+大家看到昨天咱们一个金融界的非常棒的战友发的信息：Coinbase从0.2，2毛钱到340块钱是多少倍？这叫初创投资和上市投资。（咱们）想上市是很容易的，非常容易就可以直接上。但是这就是为什么今天的SEC主席瓦格就是来自于支持虚拟货币的（阵营）。而且现在华尔街神秘的手都在玩虚拟货币。
 
+You guys saw the message sent by one of our great fellow fighters in the financial sector yesterday: How many times has the price of Coinbase multiplied by going from 20 cents to 340 dollars? This is called initial investment and public investment. It’s easy to go public, very easy to go public directly. But this is why today’s SEC Chairman Gensler (?) is from the group who is in support of virtual currencies. And now those mysterious hands of Wall Street are all playing with virtual currencies.
 
-最近，《GTV真人真事》采访路德先生的节目中，因为嘉宾与主持人间几个尖锐的问题交流，引起不小的反响与议论。例如，是否需要规范访谈的问题的，免得彼此的尴尬；节目最后，对三人还是能够成熟又流畅地交流而感到欣慰。在引发出一系列的讨论问题中，我觉得有三个重要题目是值得新中国联邦人深思的：1）如何面对关系上的问题；2）如何解决关系的紧张问题；3）如何恢复爱的交流。其实这三个重要的题目，正是福音的中心信息所要面对和解决的。
+比特币就两个“人”的：共产党和华尔街。其它几个虚拟货币涨起来所有背后几乎都是共产党和华尔街，这两个洗钱集团正在往市场上猛推高，然后（会）摔下来把大家都摔死，（那时候）他（自己）就能活吗？所以现在大家都在等着这帮傻货往里冲，现在给描绘了一个金山银山的前景，冲啊！然后“啪”下来，全都完球蛋了。战友们，越是这个时候千万记住：投机还有赌博式心理一定会让你倾家荡产，身败名裂。（因此）永远不要掺和，国内的战友永远不要掺和！
 
-![]()![](https://media.discordapp.net/attachments/798315419826913331/835289149228843078/image0.png?width=1076&amp;height=609)图源网络
+Bitcoin has only two owners: the CCP and Wall Street. Several other rising virtual currencies also have the CCP and Wall Street behind their back. These two money laundering groups (the CCP and Wall Street) are pushing up the market, and then will throw it down to the ground to kill everyone so that they can survive. So now everyone is waiting for idiots to rush in the market by portraying a prospect of gold and silver mountains. “Let’s rush in!” And then “pop”, and everyone will be over. My fellow fighters, please remember this, a gambler’s mentality will surely ruin you and make you loose both your money and your reputation. Therefore, please never get involved (in the virtual currency market). My fellow fighters in mainland China, don’t get involved!
 
-《圣经·新约·以弗所书》 （4:31-32）：“一切苦毒、恼恨、忿怒、嚷闹、毁谤，并一切的恶毒 ，都当从你们中间除掉； 并要以恩慈相待，存怜悯的心，彼此饶恕，正如神在基督里饶恕了你们一样。”
+这是为什么G-TV，G-Coin，G- Dollar大家有一点脑子人都知道它意味着什么？这是为什么咱们能搭建一个全世界没有任何一个G-TV，G-News，G-Coin，G- Dollar，G- Fashion，G-Clubs同时搭建的平台，同时都踩着世界舞点上，而且都这么干干净净的一步一步稳稳的往前走，谁能挡得住啊？加密货币，虚拟经济和实体经济的结合：G-Coin，G-Dollar，G- Fashion。
 
-人与人的关系，是需要在关怀、爱与信任中培养、浇灌的。即使是近乎完美的个人，仍会因人的不完全， 偶尔产生嫌隙。这时，我们正需要面对问题，冷静下来，看见自己的亏欠，在彼此认罪、互相代求的时候，可以借此机会修复关系。当各人能从心里真正饶恕时，经过如此试炼的经历，可以使关系因为更新而更加稳固，使彼此的生命一起成长与成熟。
+This is why anyone who has a brain would know what G-TV, G-Coin, and G-Dollar actually mean. This is why we can build a platform with G-TV, G-News, G-Coin, G-Dollar, G-Fashion, and G-Clubs but nobody else in this world can and why we can dance to the rhythm and beat of the world and move forward steadily step by step so cleanly. Who can stop our steps? G-Coin, G-Dollar, and G-Fashion are a combination of cryptocurrency, virtual economy and real economy.
 
-不过，关系也可以是往另一个方向发展的——那就会是灰暗的。当一个人从心里的苦毒开始，没有面对解决时，心里的恼恨就会进一步出现；恼恨不解决，心里的愤怒就会出现；接下来会从心里的愤怒发展成为外面的嚷闹——此时的关系就会更难修复了。所以，我们必定要反方向的操作，及时踩刹车，双方能诚实地面对，在基督的恩典中以“恩慈相待”，存怜悯的心，彼此饶恕，及时解决问题，修护关系，如此必定带来全体极大的祝福。
+G-Clubs 接下来是唯一一个在最关键时期百分之百每年巨额盈利的企业。去想想，去想想去吧，我就不说了。G-TV百分之百唯一性稀缺资源，G-News稀缺资源，唯一在关键人类的时候讲病毒、讲真相拯救人类的现代化社交媒体和门户网站相结合的社交平台。你说这几个加在一起是什么感觉？
 
-每个人面对抉择时，心中常有三种的声音：1）从魔鬼来的声音；2）从自己心里来的声音；3）神的灵在你心里微小的声音。因此，让我们一起学习谦卑自己，求神的灵监察自己的心，洁净自己的心，在重要的转折点上作出合宜的选择。在一旁的战友，我们应当为当事人祷告，给他们足够的空间和时间。不要当键盘侠，别老是给别人乱出主意，要别人按自己所说的去行。
+Next, G-Clubs will be the only company that is 100% profitable every year during the most critical period. Think about it, just think about it, I won’t talk about it. G-TV is a 100% unique, scarce resource. So is G-News – the only social platform that combines modern social media and portals to talk about [the truth about] the virus and tell the truth to save mankind at such a critical time for mankind. What do you think when you take into account all these factors together?
 
-新中国联邦人的“唯真不破”，在这个被虚假所蒙骗的时代尤其重要。不过我们除了在“真”之外，仍然需要学习如何用恩慈相待，需要学习饶恕与关系修复的功课——因为每个人总有犯错的时候，我们都期望我们的得罪方能够赦免（FORGIVENESS）并给我们机会。所以，我们需要学习在真理与恩典中并行与平衡。
+大家想想，兄弟姐妹们。要不然你看到人家虚拟货币人家赚钱你只能看，你连闻都不能闻。你看了人家加密货币人家赚钱你连摸的机会（都没有），闻都闻不着。否则你看着世界上唯一的共产党倒下后你连个灰儿都捡不着，因为你没有参与，你没有金融。你看到全世界虚拟经济和加密货币、加密金融和实体经济结合的时候你连灰儿都摸不着，那不就完了吗？
 
-《圣经·新约·約翰福音》（1:14, 16-17）：“道成了肉身，住在我们中间，充充满满地有恩典有真理。我们也见过他的荣光，正是父独生子的荣光。从他丰满的恩典里，我们都领受了，而且恩上加恩。 律法本是借着摩西传的；恩典和真理都是由耶稣基督来的。”
+Brothers and sisters, think about it. Otherwise, you can only watch other people making money from virtual currencies, but you won’t even have the chance to smell it or touch it.
+And when you watch the world’s only Communist Party falling down, you won’t be able to take any advantage from it, because you are not involved and you aren’t involved financially. So you will be screwed if you only watch the virtual economy, cryptocurrency, crypto finance and real economy get united in the world, and you don’t have the chance to get involved, right?
 
-在人的四个幸福关系的维度里，包括了1）与神的关系；2）与人的关系；3）与万物的关系；4）与自己的关系。而其中，一切关系的总关系乃是“与神的关系”。这四个维度在中华文化里，是用“天人物我”来表达的。
+而这次爆料革命、新中国联邦让所有的战友们参与这个伟大的时刻，咱必须体面、富有的、安全的生活才能灭共！
 
-耶稣基督的福音把真理与恩典完全地表达出来。这位创造宇宙万有、按照自己形象造人的神，竟然愿意降卑来到自己所造的这个世界中。公义、圣洁的神不容许罪，有罪的人必定带来公义的审判，因为祂断不以有罪的为无罪；另外一方面，祂又是慈爱怜悯、满有恩典的神，祂甘愿背负我们的罪孽和痛苦，上十字架为我们而死，祂是神的羔羊，叫一切愿意相信接受祂的人，不至灭亡，反得永生（神的生命），让我们可以恢复与神的关系。
+And our Whistleblower Movement and NFSC are getting all our fellow fighters involved in this great moment because we must have a decent and wealthy life so that we have the ability to take down the CCP.
 
-求主在这个时候，让我们认真地省察，我们是否有哪一个幸福关系的维度，是需要认真面对的；我们与哪个人的关系，是需要被重建与恢复的。让我们一起抓住这个难得的成长与成熟的契机，一起成长。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/6079a9118616c84f0ff00019](https://gtv.org/getter/6079a9118616c84f0ff00019) (5:16-9:46)
+鸣谢：感谢 Antsee-GTV、TING GUO 提供中文文本于[https://www.gnews.org/zh-hans/1115138/](https://www.gnews.org/zh-hans/1115138/)
 
-（本文仅代表作者观点）
+* * *
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+字幕：【JennyL】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-编辑：灵性探索
-
-校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-+1
+0
