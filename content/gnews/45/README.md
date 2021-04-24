@@ -1,97 +1,97 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第257、258节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1133136/)
+## 疫苗护照应该让我们停下来思考的7个理由
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1133124/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+【日本东京方舟农场】作者：泰勒·杜登（TYLER DURDEN）、尼克·科比什利（Nick Corbishley)   翻译：天与地的对话   校对：文小律
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/IC.jpg)activistpost.com
-要点：美国和欧洲应协调努力，解决中共国政府利用联合国推动“一带一路倡议”， 并使之合法化为全球利益的问题。定期报告中共国和伊朗、中共国和俄罗斯之间的合作情况，包括交能源、基础设施、银行、金融、经济、军事和空间合作的主要领域，以及中共病毒疫情对此类合作影响的评估。
+随着疫苗护照像滚雪球般地在世界各地被使用，人们越来越担心它们的潜在作用范围和影响。
 
-第257节 加强跨大西洋合作，促进私营部门融资
+![]()![](https://gnews.org/wp-content/uploads/2021/04/3C193D26-F2F3-43F7-89C7-BA78494C69C6.jpeg)
 
-（a）通常情况 – 总统应与跨大西洋伙伴合作，以《发展金融公司》（the Development Finance Corporation）、（加拿大芬德夫金融发展机构）（FinDev Canada）、《欧洲发展金融机构》（the European Development Finance Institutions）（DFI联盟））之间的协议为基础，加强共同目标的协调，以促进私营部门主导的发展，并提供市场导向的替代品，促进新兴市场国家的融资，特别是针对中共国的“一带一路”倡议，包括整合的努力，例如 –
-（1）欧盟连接欧亚战略（the European Union Strategy on Connecting Europe and Asia）；
-（2）三海倡议和三海倡议基金（the Three Seas Initiative and Three Seas Initiative Fund）；
-（3）美国、日本和澳大利亚之间的蓝点网络（the Blue Dot Network）；以及
-（4）一项欧盟 – 日本倡议，已为基础设施项目筹集650亿美元，并强调透明度的标准。
+疫苗护照（或通行证或证书）正在世界范围内匆忙推出，这也包括了在那些大多数人甚至还没有能够接种疫苗的地方。 通过提供证明已接种疫苗，人们才被允许旅行，购物，去健身房，参加体育和文化活动以及进行其他室内活动。它被吹捧为启动全球经济的方法。 以色列、沙特阿拉伯和新加坡等国家已在最近几个月内采用了疫苗护照。
 
-（b）在联合国的合作 – 美国和欧洲应协调努力，解决中共国政府利用联合国推动“一带一路倡议”，并使之合法化为全球利益的问题，包括中共国与联合国各基金和项目之间关于“一带一路倡议”实施谅解备忘录的扩散。
+当然，使用“护照”一词具有欺骗性。  “护照”是指由建立国籍并保证外交保护的国家认可的文件。 尽管已有针对黄热病等疾病的免疫证明，但传统护照不需要持护照的人参加疫苗计划。另一个区别是疫苗护照很可能以数字文件的形式出现。 它的潜在使用范围也比普通护照广泛。 它可能不仅在国界而且还需要在自己的居住国内旅行，进入公共场所和基本服务时被要求出示以证明身份和疫苗接种的情况。
 
-（c）标准 – 美国和欧盟应协调和发展一个战略，以加强与经合组织（the OECD）和巴黎俱乐部（the Paris Club）的跨大西洋合作，确保与发展中国家签订“一带一路”的合同及条款的最高可能的标准。
-（本节完）
+在已经建立了国家卫生服务的国家，例如英国和以色列，疫苗护照已在州一级得到授权。 在美国，技术和医疗保健公司牢牢占据着主导地位。 目前至少正在开发17个替代项目。 至于欧盟，它提议颁发“数字绿色证书”，允许那些在夏季前做了疫苗接种，COVID-19（中共病毒）呈阴性或从疾病中康复的欧盟居民，自由地穿越27个联盟国。值得注意的是，自2019年初以来欧盟一直在研究创建通用欧盟疫苗接种卡的可行性。
 
-第258节 中共国和伊朗、中共国和俄罗斯之间合作情况的简报和报告
+国际倡议（International Initiatives）：
 
-（a）合适的国会委员会的定义 – 在本节中，“国会合适委员会”一词是指-
-（1）参议院的情报特别委员会，外交关系委员会，军事委员会，商业、科学和运输委员会，能源和自然资源委员会，银行、住房和城市事务委员会，财政委员会和拨款委员会；以及
-（2）众议院的常设情报特别委员会、外交事务委员会、军事委员会、能源和商业委员会、金融服务委员会、筹款委员会和拨款委员会。
+国际上也有一些倡导，例如智能疫苗接种证书工作组（the Smart Vaccination Certificate Working Group），其合作伙伴包括世界卫生组织（WHO），联合国儿童基金会（UNICEF），国际电联（ITU）和欧洲委员会（European Commission）。 该小组“致力于为数字疫苗接种证书建立关键的规范，标准和信任框架，以促进实施有效且可互操作的数字解决方案，以支持COVID-19（中共病毒）疫苗的交付和监测，并打算应用于其他疫苗。”
 
-（b）需要的报告和简报 –
-（1）通常情况 – 国家情报总监应在本法颁布之日起180天内，与国务卿、国防部长、商务部长、能源部长、财政部长，以及总监认为合适的其他联邦机构负责人协调，向国会有关委员会提交报告，向国会有关委员会简要介绍中共国与伊朗、中共国与俄罗斯的合作情况。
-（2）内容 – 根据第（1）款提交的报告应包括下列内容：
-（A）确定外交能源、基础设施、银行、金融、经济、军事和空间合作的主要领域 –
-（i）中共国和伊朗之间；以及
-（ii）中俄关系。
-（B）2019年中共病毒疫情对此类合作影响的评估。
-（3）表格 – 根据第（1）款提交的报告应以非保密形式提交，但可包括保密附件。
+另一个举措是由公共项目基金会 （Commons Project Foundation）开发的数字健康应用程序的普通通行证 （CommonPass），该基金会是由洛克菲勒基金会（the Rockefeller Foundation ）创立，并得到了世界经济论坛（the World Economic Forum）的支持。  普通通行证（CommonPass）是一个框架和一个应用程序，“将允许个人访问他们的实验室结果和疫苗接种记录，并同意在不透露任何其他基本个人健康信息的情况下，将该信息用于验证其COVID（中共病毒）感染状态。”
 
-（c）与盟友和伙伴分享的国会意识 – 国会认为，国家情报总监和其他有关联邦部门和机构的负责人应酌情与美国的重要盟友和伙伴分享根据（b）小节提交的报告的调查结果。
+然后是ID2020，这是一个非政府组织，倡导为全世界数十亿无证件人和服务不足的群体（例如难民）提供数字ID。 在2019年，ID2020与孟加拉国政府和全球疫苗和免疫联盟（GAVI）合作推出了一个新的数字身份计划。 现在，它参与了名为“良好健康通行证的合作计划”（Good Health Pass Collaborative)，该计划是“一项开放，包容，跨部门的倡议，它把技术，卫生和旅行领域的领先公司和组织召集在一起”。
 
-（本节完）
+停下来思考一下：
 
-原文链接：
+其中一些举措已经正在由公司（包括航空公司）以及地方或区域的当局进行试点。 所有Nippons航空公司都已开始对从东京羽田（Tokyo Haneda ）到纽约（New York）的航班进行普通通行证（CommonPass）的测试。 上周，纽约发布了基于IBM技术名为精益求精通行证(Excelsior pass)。 其他州也可能会效仿。 法国也刚刚为前往马提尼尼克（Martninique）和瓜德罗普岛（Guadeloupe）的法航乘客完成了为期一个月的健康护照应用软件的试用。
 
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+（人们对于）采取这些举措的速度之急促应引起思考。 就像使用追踪联系人的应用程序一样，它的推出是随意的，并且充满了利益冲突。 该技术还未经验证，隐私问题也很明显。 以下是我认为疫苗护照会让我们担心的七个原因。 也许您可以想到更多。
 
-文字整理：
+**1.****我****们****仍然不知道疫苗的有效性或安全性**
 
-SEC. 257. ENHANCING TRANSATLANTIC COOPERATION ON PROMOTING PRIVATE SECTOR FINANCE.
+疫苗护照背后的表面目的是提供证据，证明一个人已经接种了官方批准的疫苗，因此具有较小的传染风险。 但是我们仍然不知道每种疫苗的有效性或安全性。 自然，每种疫苗的功效水平会有所不同。 正如世卫组织（WHO）自己所承认的那样，目前仍无法确定接种（疫苗）是否真正能阻止病毒传播。
 
-(a) IN GENERAL. — The President should work with transatlantic partners to build on the agreement among the Development Finance Corporation, FinDev Canada, and the European Development Finance Institutions (called the DFI Alliance) to enhance coordination on shared objectives to foster private sector-led development and provide market-based alternatives to state-directed financing in emerging markets, particularly as related to the People’s Republic of China’s Belt and Road Initiative
+我们也不知道每种疫苗提供的免疫力（部分的免疫或其他程度的免疫）能持续多长时间。 而且，一些疫苗在对抗某些变种，包括（最初在南非鉴定的） B.1.351 毒株，似乎功效有所降低。
 
-(BRI), including by integrating efforts such as—
+让我们担心的不仅仅是潜在的功效不足，（疫苗 ）还有很大的安全隐患。 全世界已经报道了许多（接种疫苗后的）不良反应。 就阿斯利康（AstraZeneca)和强生公司(Johnson&Johnson)开发的疫苗而言，对血液凝结副作用的担忧已导致一些国家限制、甚至中止其使用。
 
-(1) the European Union Strategy on Connecting Europe and Asia;
+在美国，4月12日发布的最新《疫苗不良事件报告 》（VAER）的数据显示，接种中共病毒疫苗后的不良事件报告超过了46,000例。妇女受到的影响尤其严重，占病例的77％。 许多妇女正经历的月经失调，增加了人们对疫苗可能会影响生育能力的担忧。
 
-(2) the Three Seas Initiative and Three Seas Initiative Fund;
+**2.****疫苗地****缘****政治**
 
-(3) the Blue Dot Network among the United States, Japan, and Australia; and
+出于各种意图和目的，西方已经与中国和俄罗斯陷入了新的冷战。 紧张局势几乎每天都在升级。 在这种背景下，西方国家或公司有时会拒绝承认基于俄罗斯或中国疫苗的疫苗证书，反之亦然。 随着有关疫苗功效和安全性的坏消息不断出现，这样做的正当理由将会越来越多。
 
-(4) a European Union-Japan initiative that has leveraged $65,000,000,000 for infrastructure projects and emphasizes transparency standards.
+在过去的一个周末，西方新闻媒体报道，中国疾病预防控制中心（the Chinese Center for Disease Prevention and Control）主任高福（George Fu Gao）已经公开承认，中国制造的疫苗目前对这种病毒的功效很低。 他说：“我们将解决现有的疫苗保护率不高的问题。”他补充说，调整剂量或顺序的免疫和混合疫苗也许可以提高疗效。
 
-(b) COOPERATION AT THE UNITED NATIONS. — The United States and Europe should coordinate efforts to address the Government of China’s use of the United Nations to advance and legitimize BRI as a global good, including the proliferation of memoranda of understanding between the People’s Republic of China and United Nations funds and programs on BRI implementation.
+从那以后，中国回溯了这些评论。 但是尽管如此，这一插曲还是给那些严重依赖中国生产的国家（包括许多拉丁美洲国家）带来了严重的问题。 如果中（共）国的疫苗不如最初想像的那样有效，那么西方一些国家将拒绝承认带有中（共）国疫苗名称的疫苗通行证的做法是完全可行的。 因此，疫苗护照不是让全球旅行自由顺畅，而是可能建立新的障碍。
 
-(c) STANDARDS. — The United States and the European Union should coordinate and develop a strategy to enhance transatlantic cooperation with the OECD and the Paris Club on ensuring the highest possible standards for Belt and Road Initiative contracts and terms with developing countries.
+**3.****这项****任****务****的潜在影响正悄悄地蔓延**
 
-SEC. 258. REPORT AND BRIEFING ON COOPERATION BETWEEN CHINA AND IRAN AND BETWEEN
+起初，SMART健康卡（SMART Health Cards）似乎除了接种信息之外，还包括一个人的全名，性别，出生日期，手机号码和电子邮件地址。 但是，尽管SMART健康卡（SMART Health Cards）广告为数字疫苗接种记录，但显然他们打算把健康卡用于更多用途。 该协议的公开信息指出，SMART健康卡（SMART Health Cards）是“可在整个医疗保健中使用的构件”，它包括管理不仅仅限于COVID-19（中共病毒）疫苗的完整免疫记录，还与公共卫生机构共享数据并且与医疗保健机构沟通 。
 
-CHINA AND RUSSIA.
+该框架不太可能仅限于医疗保健信息。  疫苗集体倡议 （Vaccine Collective Initiative）和IBM公司都使用“数字钱包”一词来指代它们不同的数字健康通道，这表明经济活动可能成为框架功能不可缺少的的组成部分。  乔什·曼德尔（Josh C.Mandel）是微软健康（Microsoft Health）疫苗集体倡议（the Vaccine Collective Initiative）的SMART 健康卡（SMART Health Cards ）框架的开发者，他在最近的YouTube演讲中暗示，SMART 健康卡（SMART Health Cards ）可能很快被用做（类似租车之类的）商业活动的证件（ID）。
 
-(a) APPROPRIATE COMMITTEES OF CONGRESS DEFINED. — In this section, the term ‘‘appropriate committees of Congress’’ means—
+随着世界各地的中心银行忙于为中心银行数字货币或CBDC奠定基础，这一切都在发生。它引发了人们对数字疫苗护照被用作创建纯数字货币系统代替实物硬币和纸币的工具的担忧。这不是说将要发生，而是有可能发生。如果疫苗护照确实变成了数字货币钱包并且现金被淘汰了，那么选择退出（数字疫苗护照的计划）将更加困难。 选择加入将使我们受到前所未有的监视和控制。
 
-(1) the Select Committee on Intelligence, the Committee on Foreign Relations, the Committee on Armed Services, the Committee on Commerce, Science, and Transportation, the Committee on Energy and Natural Resources, the Committee on Banking, Housing, and Urban Affairs, the Committee on Finance, and the Committee on Appropriations of the Senate; and
+**4.****创****建一个两****级****的社会****/****世界**
 
-(2) the Permanent Select Committee on Intelligence, the Committee on Foreign Affairs, the Committee on Armed Services, the Committee on Energy and Commerce, the Committee on Financial Services, the Committee on Ways and Means, and the Committee on Appropriations of the House of Representatives.
+从一开始Covid-19（中共病毒）就一直是不平等的大流行。 在以色列尤其如此，以色列早在病毒出现之前就已经是一个两级社会。 它最近成为第一个发起全国疫苗护照计划的国家，即所谓的“绿色通行证”（Green Pass）。 但其针对目标是以色列人，而不是巴勒斯坦人。 据《卫报》（The Guardian）报道，迄今为止，居住在被占领的西岸和加沙地带的500万巴勒斯坦人中，仅有超过4％的人已接种疫苗。 新增的Covid（中共病毒）病例重返​​历史新高，而以色列其他地区则处于去年6月以来的最低数。
 
-(b) REPORT AND BRIEFING REQUIRED. —
+无论在哪儿使用，疫苗护照最终都会加剧社会分化。 那些能够接种疫苗的人可以重回貌似正常的生活，而那些没有疫苗护照的人则倍受冷落。这不仅会在国家内部发生，而且会在国与国之间发生。 随着以色列经济的重新开放，巴勒斯坦人在行动和活动上面临的限制可以说比疫情以前还要多。 但是，不仅仅是巴勒斯坦人发现自己被视为二等公民；出于宗教，道德或健康原因而拒绝接种疫苗的以色列人也受如此对待。 没有绿色通行证，他们将无法进入某些地方或参加某些活动。
 
-(1) IN GENERAL. — Not later than 180 days after the date of the enactment of this Act, the Director of National Intelligence shall, in coordination with the Secretary of State, the Secretary of Defense, the Secretary of Commerce, the Secretary of Energy, the Secretary of the Treasury, and such other heads of Federal agencies as the Director considers appropriate, submit to the appropriate committees of Congress a report and brief the appropriate committees of Congress on cooperation between China and Iran and between China and Russia.
+随着时间的流逝，这些人的生活变得越来越困难，找到工作的压力也会越来越大。 至少这就是伦敦经济学院的琼·科斯塔·丰特（Joan Costa-Font）等疫苗护照支持者所希望的。
 
-(2) CONTENTS. — The report submitted under paragraph (1) shall include the following elements:
+“疫苗护照可以被用作改变行为的诱因。 它们不仅提供一些直接的好处，而且标志着社会对个人的期望。 它们例证了人们被期望去遵守的社会规范。”
 
-(A) An identification of major areas of diplomatic energy, infrastructure, banking, financial, economic, military, and space cooperation—
+但是医学期刊《BMJ》的一个观点警告说，强迫人们接种疫苗可能会产生相反的效果：
 
-(i) between China and Iran; and
+“总而言之，有理由得出这样的结论：用于基本活动的疫苗护照可能会使最需要激励的人群失去兴趣，从而实际上破坏了疫苗的推出。 进一步地观察以色列的“绿色通行证”的计划，更证明了这一点。用通行证可以增加疫苗接种人数的证据是没有说服力的。对强迫的怀疑和关于不接种疫苗就不允许工作的报道已经引起了（人们对疫苗护照的）抵制，并且在已经担心侵犯公民权利的人们中间增加了不信任感。”
 
-(ii) between China and Russia.
+**5.****丧****失****对****身体的自主权和完整性**
 
-(B) An assessment of the effect of the Coronavirus Disease 2019 (COVID–19) pandemic on such cooperation.
+强迫不情愿者接种实验性疫苗，显然违反了他们对身体的自主权和完整性。 根据《欧盟基本权利宪章》（the EU Charter of Fundamental Rights），“人人有权尊重自己的身心健康的权利。 在医学和生物学领域，必须特别注意以下几点：根据法律规定的程序，人们对担心的事情有选择和知情的同意权。”
 
-(3) FORM. — The report submitted under paragraph (1) shall be submitted in unclassified form, but may include a classified annex.
+如果人的自主权和完整性确实是基本人权，那么疫苗护照的发放应取决于个人的知情同意，而不是像法国所建议的那样强制接受或强迫（是的，拒绝人们获得基本的服务是一种强迫手段）去做。 对于仅在紧急情况下获得批准的疫苗而言，尤其如此。
 
-(c) SENSE OF CONGRESS ON SHARING WITH ALLIES AND PARTNERS. — It is the sense of Congress that the Director of National Intelligence and the heads of other appropriate Federal departments and agencies should share the findings of the report submitted under subsection (b) with important allies and partners of the United States, as appropriate.
+**6.****在****对****待我****们****最宝****贵****的数据方面，大多数政府和科技巨****头****一直无法****赢****得我****们****的信任**
+
+疫苗护照引起了极大的隐私问题。 微软（Microsoft）是疫苗认证计划（the Vaccine Credential Initiative）的成员之一。像它这样对数据如饥似渴的公司将获得新的机会来跟踪我们的日常行为和活动，并与第三方共享该数据。 数据的安全性也存在着重大问题。 如果最近的历史曾经教过我们什么，那就是没有数据（无论多么私密或珍贵）是绝对安全的。
+
+疫苗证书可能包括我们所有最宝贵的数据：我们的生物识别数据。 而且这不太可能是安全的。 正如英国GCHQ国家网络安全中心（NCSC）前副主任彼得·亚普 （Peter Yapp）最近警告说的那样，建立另一个集中式数据库来存储我们更多的个人数据将为黑客和网络犯罪组织提供更多掠夺我们数据的机会：
+
+“集中式数据库意味着您将大量数据放在一个地方，因此它成为吸引类似黑客等的目标，就像一个蜜罐–它吸引了人们，他们将一路走来，因为那里有太多数据…作为一名软件工程师，我知道所有软件都有错误，错误会产生安全漏洞，这就是为什么在一个地方收集如此重要的大量数据是一个糟糕的主意。 这是疫苗证书的主意不该有的另一个原因。”
+
+**7.****不管政客****们****怎么****说****，疫苗****证书****都是永久性的**
+
+上周在英国，有关疫苗证书的辩论达到高潮之际，保守党试图缓解投票者的恐惧，所以坚持说该证书会是临时的。
+
+一位不愿透露姓名的内部人士说：“我认为这个临时证书将是在有限的时间内，并且该计划的持续时间将以月为单位。”  “（到时候）保守党将会不再说该证书是临时的了。”
+
+这个（临时疫苗证书的说法）是来自同一政府的，该政府曾经公开坚持了数月说根本不会考虑疫苗证书，但私下里却研究如何使用它。在创建了一个数字身份识别系统并解决了所有麻烦和开支之后， 而且该系统可以轻松地扩展其应用领域和用途，所以英国政府在几个月后无论如何也不会取消临时疫苗证书。正如历史一次又一次地告诉我们的那样，每当政府奖励自己新的临时权力时，他们通常都很难放弃这些临时权力。 毫无疑问，对于疫苗护照，通行证，证明书，任何政府的想法也会如此。
+
+参考链接：[https://twitter.com/zerohedge/status/1382139214809161729](https://twitter.com/zerohedge/status/1382139214809161729)
 
 0

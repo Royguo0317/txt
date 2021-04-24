@@ -1,37 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 东盟齐聚雅加达与缅甸军头敏昂莱谈判
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1132951/)
+## 美国《2021战略竞争法》第256节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1133021/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/S-25.jpg)ph.news.yahoo.com
-据路透社报道，东南亚各国领导人会在周六（4月 24 日）举行的峰会上努力开辟一条结束缅甸内部动荡和暴力流血的道路。预计 2 月份接管缅甸军头敏昂莱（Min Aung Hlaing）会参加此次在雅加达的东南亚领导人峰会。
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/CUE.jpg)timesofindia.indiatimes.com
+本节要点：参议院确认的国务院高级官员，领导美国与欧盟等应对中共国的共同行动。共同面临的挑战和问题：中共国的经济挑战；中共国的民主和人权挑战；中共国有关的技术问题；中共国有关的国防问题；中共国的“一带一路倡议”。对抗中共国在世界各地推行独裁统治模式，支持欧洲努力寻找效益成本比高的华为5G技术替代品，与欧盟内的对应实体协调努力，对抗中共国的宣传。跟踪和反击中共国试图在多边论坛（包括在世界卫生组织）施加影响的企图。
 
-国际社会为缓解此次缅甸危机，由 10 国组成的东盟领导人齐聚雅加达。缅甸属于贫困国家，与中共国、印度和泰国接壤，在 1962-2011 年期间由军队统治。
+256 加强跨大西洋合作的战略，合作涉及中共国问题
 
-与会东盟领导人不顾疫情均亲自出席，印度尼西亚外交部长雷特诺·马苏迪（Retno Marsudi）周五表示，这次峰会反映了 “东盟对缅甸局势的深切关注，以及帮助缅甸摆脱当前困局的决心。希望明天的（峰会）能够达成对缅甸人民带来好消息的协议。”
+（a）通常情况 – 不迟于本法颁布之日后90天，总统应向参议院外交关系委员会和军事委员会以及众议院外交事务委员会和军事委员会，简要介绍美国将如何加强与欧盟、北约，以及欧洲伙伴国合作的战略，这些合作涉及应对与中共国的关系。
 
-新加坡外交部长维安（Vivian Balakrishnan）也到达了雅加达，他说东盟领导人 “将就缅甸(内部当前）严重局势进行讨论并寻找解决方案”。
+（b）要素 – （a）小节要求的简报应做到以下几点：
 
-不愿透露姓名的外交官和政府官员说，许多东盟领导人希望敏昂莱承诺约束他的安全部队。人权观察组织表示自 2 月 1 日反对军政府政变的抗议活动以来，缅甸安全部队已经杀害了 745 人。
+（1）确定参议院确认的国务院高级官员，该官员领导美国与欧盟、北约和欧洲伙伴国合作的努力，以推进对中共国的共同行动。
 
-了解此次峰会内部流程的三位消息人士说，敏昂莱在雅加达峰会正式公开亮相前，会首先私下与每位参会的东盟领导人交换意见。另据消息人士说，只有少数官员会出席这次 “私密 ”的会议。
+（2）确定美国和欧洲伙伴在技术、贸易和经济实践方面，对中共国的政策趋同和分歧的关键点。
 
-东盟诸外交官和官员还发出向缅甸派遣人道主义援助团倡议。通过任命特使的方式，建立起政变军政府与反对派民族团结政府（NUG）等组织进行沟通对话的渠道。
+（3）描述为促进与欧洲同行在这方面的共同利益所做的努力-
+（A）中共国的经济挑战；
+（B）共国面临的民主和人权挑战；
+（C）中共国有关的技术问题；
+（D）中共国有关的国防问题；以及
+（E）制定一项全面战略，以回应中共国政府建立的“一带一路倡议”。
 
-印度尼西亚、越南、新加坡、马来西亚、柬埔寨和主席国文莱的领导人，以及泰国和菲律宾的外交部长都已确认出席雅加达峰会。但是，缅甸国家电视台在周五的夜间新闻公告没有提及东盟会议。
+（4）描述国务院和国防部内负责与欧洲伙伴，就中共国问题进行接触的主要地区和职能机构之间的协调机制。
 
-东盟当前采取的政策是通过盟国间的商讨找到成员国一致同意解决危机的方法，但任何统一的决议都不会涉及成员国内政事务。虽然这使得东盟内部成员国对有巨大分歧的政治经济问题难以达成一致性决议，但联合国、中共国和美国当前都认为东盟是直接处理政变军政府的最佳选择。
+（5）详细介绍截至简报会召开之日所做的外交努力，以及未来与欧洲伙伴合作的计划，以对抗中共国在世界各地推行独裁统治模式。
 
-设在雅加达的安全分析家埃文·拉克马纳（Evan Laksmana）说，是印度尼西亚总统佐科·维多多（Joko Widodo）为解决缅甸内部流血冲突呼吁召开这次高级别的峰会。维多多认为缅甸发生的暴力行为必须停止，缅甸也应重新恢复民主进程。
+（6）详细说明截至该战略提交之日所做的外交努力，以及支持欧洲努力寻找效益成本比高的华为5G技术替代品的未来计划。
 
-NUG 的国际特使萨萨博士说，东盟此次应该坚持要求军方停止杀害平民，停止轰炸少数民族地区的村庄，释放政治犯并将权力交给 NUG。
+（7）详细说明美国的公共外交工具，包括美国国务院的《全球参与中心》（the Global Engagement Center），将如何与欧盟内的对应实体协调努力，以对抗中共国的宣传。
 
-参考链接：
+（8）描述国务院致力于美国和欧盟，就中共国问题进行接触的人员配置和预算资源，并提供执行该战略的年度资源需求评估。
 
-[Southeast Asian leaders to discuss Myanmar with coup leader – REUTERS – 2021/04/23](https://www.reuters.com/world/asia-pacific/southeast-asian-leaders-discuss-myanmar-with-coup-leader-2021-04-23/)
+（9）详细说明与欧洲伙伴合作的外交努力，以跟踪和反击中共国试图在多边论坛（包括在世界卫生组织）施加影响的企图。
 
-+1
+（c）表格 -（a）节要求的简报应保密。
+
+（d） 咨询 – 不迟于本法颁布之日后90天，此后每隔180天，国务卿应就战略的制定和实施，与适当的国会委员会进行磋商。
+（本节完）
+
+原文链接：
+
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+
+文字整理：
+
+SEC. 256. STRATEGY TO ENHANCE TRANSATLANTIC COOPERATION WITH RESPECT TO THE PEOPLE’S REPUBLIC OF CHINA.
+
+(a) IN GENERAL. — Not later than 90 days after the date of the enactment of this Act, the President shall brief the Committee on Foreign Relations and the Committee on Armed Services of the Senate and the Committee on Foreign Affairs and the Committee on Armed Services of the House of Representatives on a strategy for how the United States will enhance cooperation with the European Union, NATO, and European partner countries on managing relations with the People’s Republic of China.
+
+(b) ELEMENTS. — The briefing required by subsection (a) shall do the following:
+
+(1) Identify the senior Senate-confirmed Department of State official that leads United States efforts to cooperate with the European Union, NATO, and European partner countries to advance a shared approach with respect to the People’s Republic of China.
+
+(2) Identify key policy points of convergence and divergence between the United States and European partners with respect to the People’s Republic of China in the areas of technology, trade, and economic practices.
+
+(3) Describe efforts to advance shared interests with European counterparts on—
+
+(A) economic challenges with the People’s Republic of China;
+
+(B) democracy and human rights challenges with respect to the People’s Republic of China;
+
+(C) technology issues with respect to the People’s Republic of China;
+
+(D) defense issues with respect to the People’s Republic of China; and
+
+(E) developing a comprehensive strategy to respond to the Belt and Road Initiative (BRI) established by the Government of the People’s Republic of China.
+
+(4) Describe the coordination mechanisms among key regional and functional bureaus within the Department of State and Department of Defense tasked with engaging with European partners on the People’s Republic of China.
+
+(5) Detail diplomatic efforts made up to the date on which the date of the briefing and future plans to work with European partners to counter Chinese advancement of an authoritarian governing model around the world.
+
+(6) Detail the diplomatic efforts made up to the date on which the strategy is submitted and future plans to support European efforts to identify cost effective alternatives to Huawei’s 5G technology.
+
+(7) Detail how United States public diplomacy tools, including the Global Engagement Center of the Department of State, will coordinate efforts with counterpart entities within the European Union to counter Chinese propaganda.
+
+(8) Describe the staffing and budget resources the Department of State dedicates to engagement between the United States and the European Union on the People’s Republic of China and provide an assessment of out-year resource needs to execute the strategy.
+
+(9) Detail diplomatic efforts to work with European partners to track and counter Chinese attempts to exert influence across multilateral fora, including at the World Health Organization.
+
+(c) FORM. — The briefing required by section (a) shall be classified.
+
+(d) CONSULTATION. — Not later than 90 days after the date of the enactment of this Act, and every 180 days thereafter, the Secretary of State shall consult with the appropriate congressional committees regarding the development and implementation of the strategy.
+
+0
