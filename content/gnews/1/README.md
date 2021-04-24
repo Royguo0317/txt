@@ -1,29 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CBN：中共国是世界上最糟糕的人权迫害国
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1133302/)
+## 重磅！！！德国冠状病毒调查委员会成员和一群律师准备起诉世卫组织
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1133307/)
 
-**摘要：在美国国际宗教自由委员会于2021年4月22日发布年度报告之后，CBN新闻采访该委员会副主席托尼·帕金斯先生，谈中共国迫害人权的问题。他谴责中共国，这个世界上有着最糟糕的人权迫害状况的国家向世界输出镇压人民的科技。**
+撰稿：白雪
 
-CBN:  We’re joined now by Family Research Councils Tony Perkins, Tony Perkins is also Vice  Chair of the Commission (USCIRF) behind today’s report. Tony, welcome, good to have you with us. What is the overall takeaway from this year’s report? Commissioners, they do seem to be united on condemning China.
+视频：一灯一智
+源视频来自Youtube
+据《以色列国家新闻》报道，一群律师正准备起诉世界卫生组织（World Health Organization，WHO）及其一些合作伙伴，认为他们在COVID-19疫情的严重程度及其控制措施方面误导了世界，COVID-19疫情不但严重影响了全球每一个人的生计，而且对各国经济造成了破坏性的打击。
 
-CBN：现在我们邀请到了家庭研究委员会的托尼•帕金斯。托尼•帕金斯也是今天这份报告的委员会副主席。托尼，欢迎您能来这里。今年报告的要点是什么？委员们似乎都一致谴责中[共]国。
+阮尼·富米奇（Reiner Fuellmich）博士宣布了此举，该博士是德国冠状病毒调查委员会的四名成员之一，自2020年7月10日以来一直在听取国际科学家和专家的证词。
 
-Tony: Yeah, certainly China is at the top of the list. It’s been a bad actor for some time, but believe it or not, they seem to be getting worse. The big concern that we have about China is the exportation of their repressive techniques and even their technology that they used to do that. Of course, it’s been a little bit more in the forefront as of late where we see many US major corporations being coopted or working in concert with China, free to do business with them when in fact, you know, China is incarcerating using forced labor. Some of these American companies are benefiting from that forced labor while at the same time preaching social justice here in the United States, the hypocrisy, pretty pretty strong.
+富米奇博士在他的YouTube频道上发布的视频中，指责世卫组织主任谭德赛（Tedros Adhanom），柏林Charité医院病毒学负责人Christan Drosten博士和RKI负责人Lothar Wieler博士（美国疾病控制中心的德国对口方）。 Lothar本人已公开承认自己在冠状病毒来源和危害性方面可能误导了世界各地的政府。
 
-是的，中[共]国当然在榜单上名列前茅。一段时间以来，中[共]国的行为一直遭人诟病，但信不信由你，尤其在我们所担忧的，关于中[共]国输出他们的镇压人民的科技，甚至是他们使用过的技术，在这些问题上他们似乎变得越来越糟糕。当然，到最近为止，我们看到很多美国大公司被中国拉拢或与中[共]国合作，和他们随便做生意，而在中[共]国实际上强迫被监禁的人劳动。一些公司一方面从这些强制劳动的生产中获益，另一方面却又同时在美国宣扬社会公义 — 这种显而易见的虚伪是令人震惊的。
+富米奇博士认为“这场新冠疫情危机应该重命名为新冠疫情丑闻，相关负责人必须受到刑事起诉，并提起民事赔偿诉讼。” “在政治层面上，我们必须竭尽全力防止类似的事情再发生，切断任何人可以利用那些腐朽的议程来欺骗和操控人类的可能性。”
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://www.youtube.com/watch?v=IgcbcDs29WA](https://www.youtube.com/watch?v=IgcbcDs29WA) (0:00-1:07)
+**【评论】富米奇博士把矛头指向了WHO，这无可厚非，WHO在这场由中共发起用生化武器袭击全球的“第三次世界大战”中扮演了推波助澜的角色，属伙同犯罪。但真正应该被起诉到海牙国际法庭或纽伦堡大审判的是“中国共产党”法西斯邪恶政权！**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20210424_WHO.jpg)澳喜文宣森森设计
+富米奇计划在美国提起集体诉讼。
 
-* * *
+第一，究竟是存在新冠疫情大流行，还是仅存在PCR检测大流行？特别是，PCR检测结果呈阳性意味着受检测者感染了COVID-19，或者与COVID无关？他表示并不害怕在诉讼中提及那些贪婪公司的名称。
 
-听写 & 翻译 & 字幕：【奔腾的长江】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+第二，执行所谓的反新冠疫情措施，例如封锁，戴口罩，社会隔离和检疫法规，目的是保护世界人口免受病毒危害？还是为了令人们感到恐慌，因此对他们提出的任何要求都会无条件的服从？ 我们都知道当人们的生命处于危险之中，会选择聆听专家的建议。因此最终，制药和技术公司可以从PCR测试，抗原和抗体测试，疫苗的销售以及我们的基因指纹的收获中获得丰厚的利润。
 
+第三，德国政府得到了比其它国家更广泛的游说，他质疑为什么？ 因为众所周知“德国是一个纪律严明的国家，因严格，成功地遵守防范疫情措施而成为世界其他地区的榜样。”
+
+富米奇博士指出全世界都知道并接受了他们（WHO）的建议，各国政府实行了封锁，保持社交距离和强制戴口罩等措施，但随着越来越多的独立研究和专家的出现，口罩对健康构成了严重危害。
+
+他补充说：“根据侵权法，所有受PCR测试导致的封锁所伤害的人均有权获得全部赔偿。” “特别是，由于封锁和其他措施，公司有义务对公司和自营职业者进行赔偿，即有偿赔偿。”
+
+“与此同时，抗疫情措施已对世界人口的健康和经济造成了并仍持续造成毁灭性破坏，以至于德罗斯滕，维勒和世卫组织所犯的罪行必须在法律上被定为犯罪。 他们违反国际刑法典第7节所定义的危害人类的行为。”
+
+一如文贵先生所说，世界行动很慢，但至少从这则新闻我们看到了行动，讨伐WHO，讨伐CCP的行动拉开了序幕。
+
+（本文仅代表作者观点）
+
+参考链接：
+
+[源YouTube视频](https://www.youtube.com/watch?v=ZpOzHHJmy7g)
+
+[《以色列国家新闻》报道](https://www.israelnationalnews.com/News/News.aspx/297626)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2-1.jpg)
 0

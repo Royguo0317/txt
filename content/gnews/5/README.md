@@ -1,27 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英退欧领导人呼吁抵制中共国货阻止中共崛起
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1133207/)
+## CBN：中共国是世界上最糟糕的人权迫害国
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1133302/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+**摘要：在美国国际宗教自由委员会于2021年4月22日发布年度报告之后，CBN新闻采访该委员会副主席托尼·帕金斯先生，谈中共国迫害人权的问题。他谴责中共国，这个世界上有着最糟糕的人权迫害状况的国家向世界输出镇压人民的科技。**
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/UK-1.jpg)upcomingworldnews.com
-布赖特巴特新闻网 (Breitbart News)报道，英国退欧领导人奈杰尔·法拉奇(Nigel Farage)敦促英国人抵制中共制造的产品，以“阻止这个可怕的共产主义政权的崛起”。他认为，在新西兰拒绝挑战其主要贸易伙伴中共后，“五眼”情报共享网络出现了破裂。
+CBN:  We’re joined now by Family Research Councils Tony Perkins, Tony Perkins is also Vice  Chair of the Commission (USCIRF) behind today’s report. Tony, welcome, good to have you with us. What is the overall takeaway from this year’s report? Commissioners, they do seem to be united on condemning China.
 
-新西兰外交部长拒绝了“五眼”盟友的呼吁，这些盟友要求扩大其权力范围，包括挑战中共的政治范围。法拉奇说，新西兰拒绝与“五眼”联盟的澳大利亚、英国、美国和加拿大统一战线，本质上是“与中共发起了一个新的密切联盟，他们实际上正在脱离‘五眼’情报网络”。
+CBN：现在我们邀请到了家庭研究委员会的托尼•帕金斯。托尼•帕金斯也是今天这份报告的委员会副主席。托尼，欢迎您能来这里。今年报告的要点是什么？委员们似乎都一致谴责中[共]国。
 
-他指出，“我们刚刚失去了我们在世界上最亲密、最古老的盟友之一，因为他们完全掌握在中国共产党的手中。新西兰把他们的灵魂卖给了中共国，为什么?嗯，因为他们的很多出口产品都去了那里。这是中共对我们的世界、对我们的盟友所做的最糟糕的例子。”
+Tony: Yeah, certainly China is at the top of the list. It’s been a bad actor for some time, but believe it or not, they seem to be getting worse. The big concern that we have about China is the exportation of their repressive techniques and even their technology that they used to do that. Of course, it’s been a little bit more in the forefront as of late where we see many US major corporations being coopted or working in concert with China, free to do business with them when in fact, you know, China is incarcerating using forced labor. Some of these American companies are benefiting from that forced labor while at the same time preaching social justice here in the United States, the hypocrisy, pretty pretty strong.
 
-法拉奇表示：“请记住，鲍里斯·约翰逊曾想与华为签约，鲍里斯称自己是亲华者。”他追溯至保守党戴维·卡梅伦(David Cameron)担任英国首相和乔治·奥斯本(George Osborne)担任财政大臣时是英国与中共的黄金时期。
+是的，中[共]国当然在榜单上名列前茅。一段时间以来，中[共]国的行为一直遭人诟病，但信不信由你，尤其在我们所担忧的，关于中[共]国输出他们的镇压人民的科技，甚至是他们使用过的技术，在这些问题上他们似乎变得越来越糟糕。当然，到最近为止，我们看到很多美国大公司被中国拉拢或与中[共]国合作，和他们随便做生意，而在中[共]国实际上强迫被监禁的人劳动。一些公司一方面从这些强制劳动的生产中获益，另一方面却又同时在美国宣扬社会公义 — 这种显而易见的虚伪是令人震惊的。
 
-然而，约翰逊政府似乎正试图对中共施加压力。周四，国会议员支持一项将对中共在新疆维吾尔族的镇压列为种族灭绝的动议。虽然没有约束力，但这次投票是对中共政权里程碑式的谴责。另外，英国外交大臣多米尼克·拉布(Dominic Raab)本周宣布，将对中共的援助预算削减95%，剩下约90万英镑专门用于“为开放社会和人权项目提供资金”。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://www.youtube.com/watch?v=IgcbcDs29WA](https://www.youtube.com/watch?v=IgcbcDs29WA) (0:00-1:07)
 
-法拉奇评论，要阻止中共成为世界上最大的超级大国，光靠政府是不够的，他敦促英国人尽可能抵制中共制造的产品。这不是英国脱欧领导人第一次呼吁公民抵制中共国货，他在中共病毒疫情最严重时也提出了同样的要求，并警告称，如果西方政客失败，可能需要采取个人行动来阻止中共霸权的崛起。
+* * *
 
-参考链接：
-
-[https://www.breitbart.com/europe/2021/04/23/farage-calls-britons-boycott-china-made-products-stop-rise-communist-regime/](https://www.breitbart.com/europe/2021/04/23/farage-calls-britons-boycott-china-made-products-stop-rise-communist-regime/)
+听写 & 翻译 & 字幕：【奔腾的长江】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0
