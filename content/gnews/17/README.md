@@ -1,55 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 整个华尔街正在玩一场极为危险的游戏
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1132527/)
+## 【五月花评】从大闹特斯拉展台说开去
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1132235/)
 
-摘要：郭先生在2021年3月16日的盖特视频中说现在的华尔街正在玩一场极为危险的游戏，华尔街的股票可能涨到今年年底甚至到明年5月份前。他奉劝大家不要有投机和赌博心理，因为那一定会让你倾家荡产和身败名裂。而G系列会让爆料革命和新中国联邦的所有的战友们体面、富有、安全地生活，得以来灭共。
-[下载字幕](https://www.gnews.org/wp-content/uploads/2021/04/Miles_20210416-getter1.srt.txt)
-**整个华尔街正在玩一场极为危险的游戏**
+五月花写作组 ｜ 作者：跟随战神 ｜ 编辑、美工、发布：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/04/五月花评1特斯拉.jpg)
+近日，特斯拉被推上了风口浪尖。事情的起因源于4月19日的上海车展，一名女子站在车顶大喊“特斯拉刹车失灵”。该女子身穿白色T恤，上面印着四个醒目的字“刹车失灵”，下面是特斯拉特有的标志，一个大大的“T”。现场群众纷纷围观，数分钟后女子被安保人员带走。
 
-**Wall Street Is Playing an Extremely Dangerous Game Now**
+据悉，该女子姓张，2月21日下午6时，张女士的父亲驾驶特斯拉Model 3，在看到红灯想停车时发现制动失效，连续追尾两辆车，最终撞到路边的水泥防护栏才停下，车内人员受伤。此后张女士与特斯拉方面陷入争执，特斯拉表示，车辆在踩下制动踏板前的车速为118.5KM/H，未见车辆制动异常。3月9日，张女士于特斯拉店门前**，**手持大喇叭坐到特斯拉Model 3车顶进行维权。
 
-另外，美国现在整个华尔街正在玩一场极为危险的游戏。这次华尔街，大家都很清楚华尔街这次股票的崩溃只是时间长短，一模一样，不会有什么意外。说不会崩盘绝不可能，只是炒多高下来，还有多少人可能倾家荡产（的问题）。但这一次华尔街玩的游戏，（他们）准备好了两样东西：第一个，把（股市）炒涨起来，涨到今年年底甚至到明年5月份前，炒最高的时候绝大多数的钱全部要出去钱。钱出去上哪去，兄弟姐妹们？放哪儿去啊？他们得找地方放，虚拟加密货币（和）黄金，就这两样东西，没有任何第三个地方能放。
+本来这是一起普通的消费者和商家之间的纠纷，就像坐在车顶的奔驰女、拉着宝马游行的维权，最终商家和消费者都会达成一致，妥善解决问题。但是，这次张女士大闹特斯拉的事情显然不那么简单，或者说，某些人想利用这个事情达到不可告人的目的。这件事甚至可能和美国与中共国之间的大环境息息相关。
 
-Besides, the United States is now playing an extremely dangerous game in Wall Street. This time, everyone in Wall Street is well aware that the collapse of Wall Street’s stocks is just a matter of time, and there won’t be any surprises about this. It is absolutely impossible for anyone to say that the market will not collapse. It is just a matter of how high the stock price will be speculated to before it collapses and how many people will go bankrupt. For the game played by the Wall Street this time, they’ve prepared two things: the first one is to lift the stock market up until the end of this year or even before May next year. When it gets to the peak time, most of the money will flow out. To where, brothers and sisters? Where will the money go? They will have to find a place to put it – Virtual cryptocurrency and gold. There is no third place to put it.
+早在今年2月，中共市场监管总局等五部门约谈特斯拉公司，要求其严格遵守中国法律法规，加强内部管理，落实企业质量安全主体责任，有效维护社会公共安全，切实保护消费者合法权益。作为一个知名企业，合法合规经营是最基本的责任，如果有违法违规行为，依法依规进行处罚也是天经地义。但是，中共市场监管总局等五部门约谈特斯拉的要求有点莫名其妙，这样的约谈怎么看都像是一种警告甚至威胁，其背后或许隐藏着不可告人的目的。
 
-大家看到昨天咱们一个金融界的非常棒的战友发的信息：Coinbase从0.2，2毛钱到340块钱是多少倍？这叫初创投资和上市投资。（咱们）想上市是很容易的，非常容易就可以直接上。但是这就是为什么今天的SEC主席瓦格就是来自于支持虚拟货币的（阵营）。而且现在华尔街神秘的手都在玩虚拟货币。
+3月17日，据传蔚来“传销群”罗列了特斯拉的四大原罪：1、不断降价，揭露了蔚来等传销车虚高价格底裤；2、不做广告，得罪了赚广告费的媒体；3、取消了公关部门，得罪了靠刷水贴、删黑贴的网络公关；4、全部直销经营，断了靠4S店、二道贩子卖车人的财路。
 
-You guys saw the message sent by one of our great fellow fighters in the financial sector yesterday: How many times has the price of Coinbase multiplied by going from 20 cents to 340 dollars? This is called initial investment and public investment. It’s easy to go public, very easy to go public directly. But this is why today’s SEC Chairman Gensler (?) is from the group who is in support of virtual currencies. And now those mysterious hands of Wall Street are all playing with virtual currencies.
+让我们一起了解一下蔚来。蔚来是智能电动汽车品牌，2014年11月成立。2020年2月25日，蔚来总部项目落户合肥，合肥市政府对其100亿元战略性投资。 2021年4月15日，中国石化与蔚来汽车签署战略合作协议，推动资源共享，促进互利共赢（以上来自网络公开信息）。先有合肥市政府的100亿元投资，后有中国石化的战略合作，蔚来的背景实力可见一斑。
 
-比特币就两个“人”的：共产党和华尔街。其它几个虚拟货币涨起来所有背后几乎都是共产党和华尔街，这两个洗钱集团正在往市场上猛推高，然后（会）摔下来把大家都摔死，（那时候）他（自己）就能活吗？所以现在大家都在等着这帮傻货往里冲，现在给描绘了一个金山银山的前景，冲啊！然后“啪”下来，全都完球蛋了。战友们，越是这个时候千万记住：投机还有赌博式心理一定会让你倾家荡产，身败名裂。（因此）永远不要掺和，国内的战友永远不要掺和！
+无独有偶，4月19日，华为终端官方微博宣布：华为要卖车了，一款电驱动力强，增程跑得远的首款高性能电驱轿跑SUV，真的来了。同时，另一条消息传遍朋友圈：华为第一辆车来了，目标干翻特斯拉。并宣称，在上海发布首款Huawei inside智能豪华纯电轿车北汽阿尔法S，全系列采用华为快充技术，充电10分钟，可以增加续航197公里。
 
-Bitcoin has only two owners: the CCP and Wall Street. Several other rising virtual currencies also have the CCP and Wall Street behind their back. These two money laundering groups (the CCP and Wall Street) are pushing up the market, and then will throw it down to the ground to kill everyone so that they can survive. So now everyone is waiting for idiots to rush in the market by portraying a prospect of gold and silver mountains. “Let’s rush in!” And then “pop”, and everyone will be over. My fellow fighters, please remember this, a gambler’s mentality will surely ruin you and make you loose both your money and your reputation. Therefore, please never get involved (in the virtual currency market). My fellow fighters in mainland China, don’t get involved!
+相信华为大家都不陌生，是披着民营企业外衣的军方背景。正是因为被美国在芯片上“卡脖子”，导致手机业务大幅下滑，举步维艰，才开始了被迫转型。华为高调进军畜牧业，开创智能化养猪场，有网友调侃：这才是华为的本行。这不，又开始进军汽车行业了。号称充电10分钟，续航197公里。一个靠偷窃、抄袭的公司能够达到这样的顶级水平？真的很让人怀疑。
 
-这是为什么G-TV，G-Coin，G- Dollar大家有一点脑子人都知道它意味着什么？这是为什么咱们能搭建一个全世界没有任何一个G-TV，G-News，G-Coin，G- Dollar，G- Fashion，G-Clubs同时搭建的平台，同时都踩着世界舞点上，而且都这么干干净净的一步一步稳稳的往前走，谁能挡得住啊？加密货币，虚拟经济和实体经济的结合：G-Coin，G-Dollar，G- Fashion。
+蔚来和华为面临的竞争对手不可谓不强大。毫无疑问特斯拉是世界上最好的电动车品牌。特斯拉要说排第二，没人敢说排第一。在“刹车失灵”事件中，特斯拉主动提出进行第三方检测就可以证明两点，第一，特斯拉对自己的产品有相当的信心；第二，特斯拉勇于面对，不逃避责任。
 
-This is why anyone who has a brain would know what G-TV, G-Coin, and G-Dollar actually mean. This is why we can build a platform with G-TV, G-News, G-Coin, G-Dollar, G-Fashion, and G-Clubs but nobody else in this world can and why we can dance to the rhythm and beat of the world and move forward steadily step by step so cleanly. Who can stop our steps? G-Coin, G-Dollar, and G-Fashion are a combination of cryptocurrency, virtual economy and real economy.
+笔者不是阴谋论者，但是大闹展馆的几个细节耐人寻味。第一，张女士通过非常规方式获取证件进入展馆（有人暗地支持）；第二，身穿定制的维权T恤（早已准备好）；第三，在展台周围进行直播（加大宣传）；第四，现场工作人员与展会主办方协商后，才协调安保和公安执法人员劝离车主（主办方的消极）。如果说没有预谋、没有策划、没有背后力量的支持恐怕没有人相信。
 
-G-Clubs 接下来是唯一一个在最关键时期百分之百每年巨额盈利的企业。去想想，去想想去吧，我就不说了。G-TV百分之百唯一性稀缺资源，G-News稀缺资源，唯一在关键人类的时候讲病毒、讲真相拯救人类的现代化社交媒体和门户网站相结合的社交平台。你说这几个加在一起是什么感觉？
+客观地说，不管是蔚来还是华为，想要和特斯拉一较高下简直是痴人说梦。那么正面干不过就采用歪门邪道，就采用下三滥手段，中共在这方面是绝对的“天才”。所以才有了五部门约谈特斯拉，才有了后面发生的种种。
 
-Next, G-Clubs will be the only company that is 100% profitable every year during the most critical period. Think about it, just think about it, I won’t talk about it. G-TV is a 100% unique, scarce resource. So is G-News – the only social platform that combines modern social media and portals to talk about [the truth about] the virus and tell the truth to save mankind at such a critical time for mankind. What do you think when you take into account all these factors together?
+当前，中共面临美国政治、经济、军事、金融等方面的巨大压力，正伺机进行反击，企图通过打击美在华企业的利益给美方施压，以换取喘息之机。但中共的如意算盘必定会落空，因为马斯克毕竟是美国著名的企业家、高科技的大佬，同时也是爆料革命的战友，特斯拉在此事的态度非常明确——“决不妥协”！让我们拭目以待。
 
-大家想想，兄弟姐妹们。要不然你看到人家虚拟货币人家赚钱你只能看，你连闻都不能闻。你看了人家加密货币人家赚钱你连摸的机会（都没有），闻都闻不着。否则你看着世界上唯一的共产党倒下后你连个灰儿都捡不着，因为你没有参与，你没有金融。你看到全世界虚拟经济和加密货币、加密金融和实体经济结合的时候你连灰儿都摸不着，那不就完了吗？
-
-Brothers and sisters, think about it. Otherwise, you can only watch other people making money from virtual currencies, but you won’t even have the chance to smell it or touch it.
-And when you watch the world’s only Communist Party falling down, you won’t be able to take any advantage from it, because you are not involved and you aren’t involved financially. So you will be screwed if you only watch the virtual economy, cryptocurrency, crypto finance and real economy get united in the world, and you don’t have the chance to get involved, right?
-
-而这次爆料革命、新中国联邦让所有的战友们参与这个伟大的时刻，咱必须体面、富有的、安全的生活才能灭共！
-
-And our Whistleblower Movement and NFSC are getting all our fellow fighters involved in this great moment because we must have a decent and wealthy life so that we have the ability to take down the CCP.
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/6079a9118616c84f0ff00019](https://gtv.org/getter/6079a9118616c84f0ff00019) (5:16-9:46)
-鸣谢：感谢 Antsee-GTV、TING GUO 提供中文文本于[https://www.gnews.org/zh-hans/1115138/](https://www.gnews.org/zh-hans/1115138/)
+（本文仅代表作者个人观点，与GNews平台无关）
 
 * * *
 
-字幕：【JennyL】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
 0

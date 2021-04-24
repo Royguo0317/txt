@@ -1,99 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第252节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1131894/)
+## 中共把社交媒体当成跟西方战争的第一武器
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1131971/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**摘要：郭先生在2021年4月19日的直播视频中披露，中共从江泽民时代后期就把社交媒体定义为是跟西方作战的第一武器，远重于核武器；孔子学院是国家情报机构；世界媒体在短短的四年里，被共产党已经用金钱合法控制，中共已经加入到犹太人控制的沼泽地，成为一股新的力量控制了世界的媒体。**
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/L-8.jpg)a4ai.org
-“第251节 与拉丁美洲和加勒比地区的防务合作”略译，本文是第252节的翻译。
+**中共把社交媒体当成跟西方战争的第一武器**
 
-本节要点：中共国政府正在输出他们的国内安全模式，以及国家对社会的控制模式，这些模式通过先进的技术和人工智能技术来实现的，在没有对政府权力进行可靠的法律监督的情况下，将与政府或安全部门有密切联系，或易受其压力的公司提供的设备和服务，纳入通信网络和通信供应链，这将导致侵犯公民的私人信息，加强（对公民的）审查，侵犯人权和骚扰政治对手。就腐败事件和与中共国有关的不公平贸易、商业和经商行为的调查性报道提供培训，包括中共国政府在此类行为中的作用。
+**The CCP Deems Social Media as Its No. 1 Weapon in Fighting Against the West**
 
-第252节 与拉丁美洲和加勒比国家的公民社会，就问责制、人权和普遍监视技术的风险进行交流
+七哥在一年前，我在船上接受战斗室直播的采访，还有那个那个很多媒体问我，共产党,（我是第一个告诉西方的在几年前，）共产党最早国家安全委员会成立安全部，从江时代后期就定义为社交媒体是跟西方作战斗争的第一武器，远远重要于核武器。
 
-（a）国会意识 – 国会认为
-（1）中共国政府正在输出他们的国内安全模式，以及国家对社会的控制模式，这些模式通过先进的技术和人工智能技术来实现的；以及
-（2）在没有对政府权力进行可靠的法律监督的情况下，将与政府或安全部门有密切联系，或易受其压力的公司提供的设备和服务，纳入通信网络和通信供应链，这将导致侵犯公民的私人信息，加强（对公民的）审查，侵犯人权和骚扰政治对手。
+A year ago, I, your Brother Miles, was interviewed live by the War Room on the yacht, and many media also asked me [this same question]. I was the first one to tell the West, a few years back, that the CCP’s National Security Council established the Ministry of Security and it deemed the social media as their number one weapon in its fight against the West, even more important than nuclear weapons, early as the late Jiang Zemin era.
 
-（b）外交接触 – 国务卿应与拉丁美洲和加勒比各国政府和民间社会组织进行外交接触，以-
-（1）帮助识别和减轻（a）小节所述技术和服务对公民自由构成的风险；以及
-（2）提供减轻此类风险的建议。
+这就是为什么搞孔子学院，孔子学院的第一个人、发起人是谁知道吗？是当时北京市政府的教委主任、姓耿的一位耿主任。这位耿主任后来跟我很好很熟，我还让他帮我送了北京电影学院几个小孩啊，小女孩很漂亮，朋友的孩子送进去，现在都成名了，电影学院啊送进去。教委主任权力很大啊。他给我介绍了一堆的中纪委、中央委员跟我认识，那教委的主任很有权力呀，是他发起的。发起当时北京市教委主任发起，发起这个时候是国家安全部、统战部、总参二部一起作为发起人，你说它[孔子学院]是干啥的？
 
-（c）互联网自由计划 – 《美国全球媒体署》（the United States Agency for Global Media）首席执行官依据《开放技术基金》（the Open Technology Fund）进行工作，国务卿依据《民主、人权和劳工局》（the Bureau of Democracy, Human Rights, and Labor）的“互联网自由，商业和人权部分”进行工作，努力扩大、努力优先向拉丁美洲和加勒比地区的记者提供反审查技术和服务，以提高他们安全获取或分享数字新闻和信息的能力。
+So who knows the name of the first person who initiated the Confucius Institute? It was a director of the Education Commission of the Beijing City Government, named Geng. Director Geng later became very familiar with me, and I asked him/her to help send a few kids to the Beijing Film Academy. They were my friends’ girls, very pretty. Now they are all famous. [We] sent them to the film academy. The director of Education Commission had a lot of power. He hooked me up with a bunch of members of the Central Commission for Discipline Inspection and the Central Committee of the CCP. So the Director of the Education Commission is a very powerful person, and it was him who initiated it [the Confucius Institute]. It was co-founded by the Beijing Municipal Education Commission, together with the Ministry of National Security, the United Front Work Department, and the [PLA’s] General Staff Department, the 2nd Bureau. So you tell me what kind of place Confucius Institute really is?
 
-（d）支持民间社会 – 国务卿应与负责《民主、人权和劳工局》事务的助理国务卿和《美国国际开发署》署长协调，通过非政府组织开展工作，以-
-（1）支持和促进拉丁美洲和加勒比地区互联网自由和网上信息自由流动的方案；
-（2）保护拉丁美洲和加勒比地区互联网的开放、互操作、安全和可靠接入；
-（3）向民间社会提供技术、数字安全、政策和宣传方面的综合支持，拉丁美洲和加勒比的应用研究项目；
-（4）对拉丁美洲和加勒比地区的记者和民间社会领导人进行必要的调查技术培训，以确保公共问责制和防止政府在数字领域的过激行为；
-（5）协助拉丁美洲和加勒比地区的独立媒体和记者建设自身能力，编写涵盖施政和人权议题的具有高度影响力的深入新闻报道；
-（6）为记者和民间社会领导人提供必要的调查技术培训，以提高政府和私营部门的透明度和问责制；
-（7）就腐败事件和与中共国有关的不公平贸易、商业和经商行为的调查性报道提供培训，包括中共国政府在此类行为中的作用；
-（8）协助非政府组织加强其监测第（7）款所述活动的能力；和
-（9）确定当地资源，以支持根据本小节开展的主要活动。
+然后当时百度、包括阿里巴巴、微信，所有的技术指导是总参三部，所有的是国家安全部。到后来抖音、Zoom全是国家安全委员会全面控制。这是为什么像多维呀，这种基地都在北京的，是共产党的宣传媒体、情报媒体，获取情报的。所以说这个基本的常识，这是共产党作为核武器来用的，你还相信他来给你带来正义？
 
-（e）简报要求 – 本法颁布之日起180天内，此后每隔180天，国务卿、美国国际开发署署长，美国全球媒体署的首席执行官应就第（c）、（d）和（e）小节所述的努力提供简报 –
-（1）参议院外交关系委员会；
-（2）参议院拨款委员会；
-（3）众议院外交事务委员会；以及
-（4）众议院拨款委员会。
-（本节完）
+Also, all the technical guidance for Baidu, Alibaba, and WeChat was from the 3rd Bureau of the PLA’s General Staff Department, and all were under the supervision of the Ministry of National Security. Later, TikTok and Zoom got fully controlled by the National Security Council. This is why things like Duowei News are based in Beijing because they are the CCP’s propaganda media and intelligence media aiming for collecting information. So it is a common sense that it [the media] is used by the CCP as a nuclear weapon. Do you still believe that it [the media] will bring you any justice?
 
-原文链接：
+在美国是更可怕了，那美国扎克伯格、推特，中国…现在看到后面这几十个股东里面现在已经很可怕的。我今天告诉大家，四年前的419的时候，共产党是用政治新闻、广告新闻、或者蓝金黄新闻，来影响和打击他的敌人。但是到今年[有了]本质上的不同，共产党已用国家的已经是叫做什么？真正的共产党的国家力量已经成为了“武器新闻”。武器新闻——推特、Facebook、Google、Zoom、抖音、香港所有的媒体、微信、百度，全面控制。 你看共产党有多危险，你就看媒体你就知道了。
 
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+It’s even more terrifying in the United States. Look at Zuckerberg and Twitter in the United State. China… it’s already very terrifying when you see the dozens of shareholders behind the scene. Today, let me tell you that four years ago (April 19, 2017), the CCP used political news, advertisement news, or BGY’ed news to influence and attack its enemies. But this year, things have changed fundamentally. What they are really doing is to use its national power to weaponize news. The weaponized news media, including Twitter, Facebook, Google, Zoom, TikTok, all the media in Hong Kong, WeChat, Baidu, are all under its control. So if you want to know how dangerous the CCP is, you just look at the media.
 
-文字整理：
+世界的媒体在这短短的四年里，被共产党已经用金钱合法控制。也就是说沼泽地，世界的沼泽地，以犹太人为主的金融力量和媒体力量控制着世界，控制着美国，现在有另外一股力量，那就是中国共产党。
 
-SEC. 252. ENGAGEMENT WITH CIVIL SOCIETY IN LATIN AMERICA AND THE CARIBBEAN REGARDING ACCOUNTABILITY, HUMAN RIGHTS, AND THE RISKS OF PERVASIVE SURVEILLANCE TECHNOLOGIES.
+In these short four years, the world’s media has been legally controlled by the CCP with money. In other words, the swampland, the swampland of the world, where Jewish the people dominated  financial and media forces used to control the world and control the United States, have now been joined by another force – the Chinese Communist Party.
 
-(a) SENSE OF CONGRESS. — It is the sense of Congress that
+今天可怕的事情， 这些媒体的力量已经不是美国一家说了算，共产党在利用这些媒体，正在干着新疆大屠杀、西藏大陷害、香港大屠杀、台湾大恐惧，都在被媒体有选择地屏蔽掉，这才是可怕的。
 
-(1) the Government of China is exporting its model for internal security and state control of society through advanced technology and artificial intelligence; and
+What’s really terrifying today is that the US is no longer the only power behind the media. The CCP is using the media to mask its Xinjiang Massacre, the Tibet Massacre, the Hong Kong Massacre, and the Taiwan Terror. These things are all being selectively blocked by the media. And this is terrifying!
 
-(2) the inclusion of communication networks and communications supply chains with equipment and services from companies with close ties to or susceptible to pressure from governments or security services without reliable legal checks on governmental powers can lead to breaches of citizens’ private information, increased censorship, violations of human rights, and harassment of political opponents.
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=607d815f7e083973a72b95be](https://gtv.org/video/id=607d815f7e083973a72b95be) (1:42:58-1:46:14, 1:48:31-1:48:58)
+鸣谢：感谢喜联盟七哥直播组提供中文文本于[https://www.gnews.org/zh-hans/1125087/](https://www.gnews.org/zh-hans/1125087/)
 
-(b) DIPLOMATIC ENGAGEMENT. — The Secretary of State shall conduct diplomatic engagement with governments and civil society organizations in Latin America and the Caribbean to—
+* * *
 
-(1) help identify and mitigate the risks to civil liberties posed by technologies and services described in subsection (a); and
+字幕：【Rock小哥】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-(2) offer recommendations on ways to mitigate such risks.
-
-(c) INTERNET FREEDOM PROGRAMS. — The Chief Executive Officer of the United States Agency for Global Media, working through the Open Technology Fund, and the Secretary of State, working through the Bureau of Democracy, Human Rights, and Labor’s Internet Freedom and Business and Human Rights Section, shall expand and prioritize efforts to provide anti-censorship technology and services to journalists in Latin America and the Caribbean, in order to enhance their ability to safely access or share digital news and information.
-
-(d) SUPPORT FOR CIVIL SOCIETY. — The Secretary of State, in coordination with the Assistant Secretary of State for Democracy, Human Rights, and Labor and the Administrator of the United States Agency for International Development, shall work through nongovernmental organizations to—
-
-(1) support and promote programs that support internet freedom and the free flow of information online in Latin America and the Caribbean;
-
-(2) protect open, interoperable, secure, and reliable access to internet in Latin America and the Caribbean;
-
-(3) provide integrated support to civil society for technology, digital safety, policy and advocacy,
-
-and applied research programs in Latin America and the Caribbean;
-
-(4) train journalists and civil society leaders in Latin America and the Caribbean on investigative techniques necessary to ensure public accountability and prevent government overreach in the digital sphere;
-
-(5) assist independent media outlets and journalists in Latin America and the Caribbean to build their own capacity and develop high-impact, in-depth news reports covering governance and human rights topics;
-
-(6) provide training for journalists and civil society leaders on investigative techniques necessary to improve transparency and accountability in government and the private sector;
-
-(7) provide training on investigative reporting of incidents of corruption and unfair trade, business and commercial practices related to China, including the role of the Government of China in such practices;
-
-(8) assist nongovernmental organizations to strengthen their capacity to monitor the activities described in paragraph (7); and
-
-(9) identify local resources to support the preponderance of activities that would be carried out under this subsection.
-
-(e) BRIEFING REQUIREMENT. — Not more than 180 days after the date of the enactment of this Act, and every 180 days thereafter, the Secretary of State, the Administrator of the United States Agency for International Development, and the Chief Executive Officer of the United States Agency for Global Media shall provide a briefing regarding the efforts described in subsections (c), (d), and (e) to—
-
-(1) the Committee on Foreign Relations of the Senate;
-
-(2) the Committee on Appropriations of the Senate;
-
-(3) the Committee on Foreign Affairs of the House of Representatives; and
-
-(4) the Committee on Appropriations of the House of Representatives.
-
-0
++2
