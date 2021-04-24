@@ -1,51 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】写一首没有压迫的诗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1131638/)
+## 【热点播报】塞林博士继续深挖中共“13579”生化武器计划
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1131373/)
 
-配音：香草山录音组 Gtv abeilles（蜜蜂）
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+作者：纽约香草山翻译部 雪莲
 
 
 
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
 
+4月22日早上，塞林博士发推，“长春军事兽医研究所也许一直是一个生物战中心。2018年到2020年期间，舟山蝙蝠病毒ZC45和ZXC21在科学文献中消失，然而长春军事兽医研究所在秘密的对这些病毒进行实验。”
 
-悲秋不可悲
+![]()![](https://media.discordapp.net/attachments/798081578805755925/835188341997568032/1.jpg?width=1081&amp;height=608)
 
-可悲的是这片土地上那么多悲剧无人知晓
+赛琳博士在推文下，贴出四位中（共）国军方病毒专家的照片，他们是参加舟山蝙蝠病毒研究的几个关键人物，分别是金宁一、何彪、范泉水、涂长春。
 
-可悲的是腐烂的依旧在腐烂
+通过网上查询，得到他们一些个人资料。
 
-可悲的是不让我们说出可悲这个词
+人物一：金宁一
 
-可悲的是悲剧制造者们可悲的时候到了
+1956年3月1日出生于吉林龙井，病毒学专家，中共国军事医学科学院研究员，因在2003年非典，2004年禽流感，2009年H1N1流感，2013年N7N9流感疫情中完成解放军重大任务上发挥了重要作用，被中共中央军委授予个人二等功。金宁一身兼多职，除担任解放军军事医学院分子病毒学和免疫学实验室主任外，同时也是解放军基因工程重点实验室主任。
 
+人物二：何彪
 
+百度查不到此人的出生年月。其是中共国解放军军事医学院、军事科学院、军事兽医研究所的研究员。同时，他在吉林长春野生动物疫病研究中心担任副主任。
 
-**文字版原文：[写一首没有压迫的诗](https://gnews.org/zh-hans/413252/)**
+人物三：范泉水
 
-作者：纽约香草山写作组  木白
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-418.png)
 
+1964年8月出生，1989年于解放军兽医大学兽医专业硕士毕业，2004年曾任成都军区疾病预防控制中心副主任，军内知名病毒学专家。其从事军事预防科学科研管理20多年，主持参加军队和地方科研20多项，其中包括非典病毒、禽流感等研究。
 
+就在4月22日下午，人民网上范泉水的所有信息全部突然消失。其个人页面显示，“您要查看的页面不存在，5秒后将自动跳转至人民网首页。”
 
-音频处理/发稿：雪梨
+人物四：涂长春
 
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+1962年8月出生，解放军军事医学科学院军事兽医研究所研究员，研究方向为病毒学。涂长春于1992年开始研究猪瘟病毒的基因克隆与序列分析，利用基因工程技术研制猪瘟病毒和狂犬病毒的新型DNA疫苗，该项目获得中共国家专利。
+
+香港大学P4实验室工作的病毒专家闫丽梦博士于2020年4月份从香港逃到美国。她在美国发表的的三篇报告，用严谨科学的证据，不但驳斥了病毒自然来源的谎言，更进一步地证明，这个病毒是中共的超限生化武器，是中共用军方控制的舟山蝙蝠骨架，在实验室通过对ZC45/ZXC21新冠病毒进行基因改造，使得这个病毒具有高度的传染力，攻击人类——目前已经杀死了300多万人口。根据2021年4月16日美国布来特巴特网站报道，中共国本周通过法律，将再建造3个最高安全级别的P4 实验室，和88个P3实验室。难道他们建造这些实验室是为了造福人类吗？答案是否定的。正如闫丽梦博士大声疾呼的那样，“留给我们人类的时间不多了。”  现在讨论病毒是否来源于自然或实验室已经是在浪费时间了，对于中共的超限生化武器，全世界唯有联合起来，摧毁所有中共的生化武器基地，人类才有未来。
+
+参考阅读：
+
+[塞林博士推特](https://twitter.com/LawrenceSellin/status/1385282778133143559?s=20)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 **[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
 
 0

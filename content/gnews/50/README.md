@@ -1,55 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳大利亚因废除“一带一路”协议激怒中共国
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1131572/)
+## 【有声读物】写一首没有压迫的诗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1131638/)
 
-翻译：洛杉矶天使农场 -飞利普
-校对：洛杉矶天使农场 – Jessi/詹茜
-审核：洛杉矶天使农场 – 黎明的光芒
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Picture1-63.png)图片说明：澳大利亚外长玛莉丝·佩恩（Marise Payne）
-**澳大利亚取消了与中共国“一带一路”倡议有关的协议，引发了中共国方面的愤怒，并进一步加剧了两国的紧张关系。**
+配音：香草山录音组 Gtv abeilles（蜜蜂）
 
-联邦政府利用新的权力撕毁了维多利亚州和中共之间达成的两项协议。
-
-堪培拉表示，它退出这两项协议是为了保护澳大利亚的国家利益。
-
-中共驻澳大利亚大使馆称此举“具有挑衅性”。又称，堪培拉的行动“势必给双边关系带来进一步损害，最终只会伤害到自己。”
-
-中共国的一位发言人在一份声明中表示：“这进一步表明，澳大利亚政府没有诚意改善中澳关系。”
-
-这是堪培拉首次利用权力否决各州、地方政府或公立大学与外国达成的协议。该法律允许政府取消被认为威胁到澳大利亚国家利益的协议。
-
-除了中共国的协议，外长玛莉丝•佩恩还取消了与伊朗和叙利亚的协议。它们分别是维多利亚州教育部与伊朗于2004年签署的谅解备忘录，以及1999年与叙利亚签署的科学合作协议。
-
-佩恩参议员说，这四项协议“不符合澳大利亚的外交政策，也不利于我们的外交关系”。
-
-她在接受澳大利亚广播公司（Australian Broadcasting Corporation）采访时为政府的决定进行了辩护，并表示她不认为中共国会进行报复。
-
-**她在接受AM电台节目采访时表示**：“我认为澳大利亚的行动符合我们的国家利益，我们在这方面是非常谨慎和深思熟虑的。”
-
-紧张局势进一步加剧
-
-维多利亚州决定签署中共中的“一带一路”倡议，并在2018年和2019年达成两项协议，这招致了联邦政府以及时任美国国务卿迈克·蓬佩奥（Mike Pompeo）的批评。
-
-这项旨在扩大全球贸易联系的大规模基础设施项目为许多国家的火车、公路和港口提供了资金，但也让一些国家背上了债务。
-
-美国对中共国的所谓“债务外交”尤其持批评态度，这被视为中共国主席习近平为谋求其地缘政治影响力的大胆企图。
-
-**习誓言“一带一路”项目保持透明**
-
-切断与“一带一中”倡议有联系的举动，是在堪培拉和北京之间紧张局势恶化的背景做出的。
-
-中共国是澳大利亚最大的贸易伙伴，在中共病毒大流行之前，也是澳大利亚最大的海外大学生来源国。近年来两国关系恶化，导致外交和贸易摩擦。
-
-自从澳大利亚4月份首次呼吁对中共病毒大流行的起源进行严格调查以来，两国之间的贸易关系一直特别紧张。
-
-堪培拉还采取了其他措施来削弱中共国在该国的影响力，包括禁止电信巨头华为建设澳大利亚5G网络，以及收紧外资投资法。
-
-尽管如此，澳大利亚政府否认其新否决权是针对中共国的。佩恩参议员说，地方政府和公立大学已向她通报了1000多个和外国的协议。
-
-原文链接：https://www.bbc.com/news/world-australia-56840299
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
+
+
+
+
+
+悲秋不可悲
+
+可悲的是这片土地上那么多悲剧无人知晓
+
+可悲的是腐烂的依旧在腐烂
+
+可悲的是不让我们说出可悲这个词
+
+可悲的是悲剧制造者们可悲的时候到了
+
+
+
+**文字版原文：[写一首没有压迫的诗](https://gnews.org/zh-hans/413252/)**
+
+作者：纽约香草山写作组  木白
+
+
+
+音频处理/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

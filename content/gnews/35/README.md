@@ -1,55 +1,99 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【闫丽梦博士铿锵有力回应“审阅者”】关于闫博士的第三份论文－点对点回应约翰·霍普金斯大学健康安全中心的“审阅者”第六部分 （续）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1131860/)
+## 美国《2021战略竞争法》第252节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1131894/)
 
-- 翻译：peacelv
-- 制图：透明的遮羞布
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/L-8.jpg)a4ai.org
+“第251节 与拉丁美洲和加勒比地区的防务合作”略译，本文是第252节的翻译。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+本节要点：中共国政府正在输出他们的国内安全模式，以及国家对社会的控制模式，这些模式通过先进的技术和人工智能技术来实现的，在没有对政府权力进行可靠的法律监督的情况下，将与政府或安全部门有密切联系，或易受其压力的公司提供的设备和服务，纳入通信网络和通信供应链，这将导致侵犯公民的私人信息，加强（对公民的）审查，侵犯人权和骚扰政治对手。就腐败事件和与中共国有关的不公平贸易、商业和经商行为的调查性报道提供培训，包括中共国政府在此类行为中的作用。
 
-**西班牙2021年4月23日电/西喜社——**
+第252节 与拉丁美洲和加勒比国家的公民社会，就问责制、人权和普遍监视技术的风险进行交流
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/virus9.jpg)
+（a）国会意识 – 国会认为
+（1）中共国政府正在输出他们的国内安全模式，以及国家对社会的控制模式，这些模式通过先进的技术和人工智能技术来实现的；以及
+（2）在没有对政府权力进行可靠的法律监督的情况下，将与政府或安全部门有密切联系，或易受其压力的公司提供的设备和服务，纳入通信网络和通信供应链，这将导致侵犯公民的私人信息，加强（对公民的）审查，侵犯人权和骚扰政治对手。
 
-续上继续发表有关闫博士第三份论文的第五部分内容。
+（b）外交接触 – 国务卿应与拉丁美洲和加勒比各国政府和民间社会组织进行外交接触，以-
+（1）帮助识别和减轻（a）小节所述技术和服务对公民自由构成的风险；以及
+（2）提供减轻此类风险的建议。
 
-**第十四、**S**蛋白的多样性**
+（c）互联网自由计划 – 《美国全球媒体署》（the United States Agency for Global Media）首席执行官依据《开放技术基金》（the Open Technology Fund）进行工作，国务卿依据《民主、人权和劳工局》（the Bureau of Democracy, Human Rights, and Labor）的“互联网自由，商业和人权部分”进行工作，努力扩大、努力优先向拉丁美洲和加勒比地区的记者提供反审查技术和服务，以提高他们安全获取或分享数字新闻和信息的能力。
 
-他们提出行1-13：关于SARS-CoV-2序列与其他相关病毒（ZC45和ZXC21）的相似性有各种判断，但没有包含对比的证据。打个比方，S2不是高度可变的在冠状病毒间24，但是S1仅仅69%吻合，宣称ZC45被用于作为一个模板是不可信的。趋同进化，在不同其它的病毒,25,26 包括SARS-CoV-1,27 经常被作为一个毒力因子，应当被作者所考虑。
+（d）支持民间社会 – 国务卿应与负责《民主、人权和劳工局》事务的助理国务卿和《美国国际开发署》署长协调，通过非政府组织开展工作，以-
+（1）支持和促进拉丁美洲和加勒比地区互联网自由和网上信息自由流动的方案；
+（2）保护拉丁美洲和加勒比地区互联网的开放、互操作、安全和可靠接入；
+（3）向民间社会提供技术、数字安全、政策和宣传方面的综合支持，拉丁美洲和加勒比的应用研究项目；
+（4）对拉丁美洲和加勒比地区的记者和民间社会领导人进行必要的调查技术培训，以确保公共问责制和防止政府在数字领域的过激行为；
+（5）协助拉丁美洲和加勒比地区的独立媒体和记者建设自身能力，编写涵盖施政和人权议题的具有高度影响力的深入新闻报道；
+（6）为记者和民间社会领导人提供必要的调查技术培训，以提高政府和私营部门的透明度和问责制；
+（7）就腐败事件和与中共国有关的不公平贸易、商业和经商行为的调查性报道提供培训，包括中共国政府在此类行为中的作用；
+（8）协助非政府组织加强其监测第（7）款所述活动的能力；和
+（9）确定当地资源，以支持根据本小节开展的主要活动。
 
-回答：Warmbrod等人又一次展示它们缺少作为审阅者的水平。如果他们已经阅读了整篇报告和在一个基本的水平上理解了内容，他们应当认识到，虽然ZC45/ZXC21作为一个模板，很多改变必须已经被引进到S1。特别，闫博士已经用大量的细节详尽怎么S1的RBM区域被调换的。这个操纵将显著地贡献出一个ZC45/ZXC21和SARS-CoV-2在S1的低序列同一性。因此在S1的低同一性不是一个反对ZC45/ZXC21被用于一个模板的学说的证据。相反地它强烈地支持我们的全面的结论就是SARS-CoV-2 的实验室产生已经牵涉到基因工程与操纵，不仅是基于天然产生的冠状病毒如ZC45/ZXC21的连续传代。闫博士已经在报告的1.2章节里详述怎样的趋同进化不能产生SARS-CoV-2的自然发生。显然，不是闫博士没有考虑这方面，而是Warmbrod等人想要忽略闫博士在这部分的工作为了在这里制造他们的评论。如果闫博士的任何分析关系到趋同进化是不正确或者有问题的，Warmbrod等人应当指出它并提供他们自己的分析来反对它。
+（e）简报要求 – 本法颁布之日起180天内，此后每隔180天，国务卿、美国国际开发署署长，美国全球媒体署的首席执行官应就第（c）、（d）和（e）小节所述的努力提供简报 –
+（1）参议院外交关系委员会；
+（2）参议院拨款委员会；
+（3）众议院外交事务委员会；以及
+（4）众议院拨款委员会。
+（本节完）
 
-一个钝的忽略和或者对闫博士的分析的反对是一种对审阅者不当的行为。
+原文链接：
 
-**第十五在刺突蛋白（****Spike protein****）的替代突变**
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
 
-他们提出行16-18：疏水突变的替代突变在报告中被归类为次要突变，在结构上重要，而不是次要的；很多的突变是从赖氨酸（lysines）到苯丙氨酸（phenylalanines），改变了结构，或者从苯丙氨酸（phenylalanines）到酪氨酸（tyrosine）改变了侧组的负责。
+文字整理：
 
-回应：这里的评论显示Warmbrod等人在结构生物学和生物化学多么令人震惊的无知。
+SEC. 252. ENGAGEMENT WITH CIVIL SOCIETY IN LATIN AMERICA AND THE CARIBBEAN REGARDING ACCOUNTABILITY, HUMAN RIGHTS, AND THE RISKS OF PERVASIVE SURVEILLANCE TECHNOLOGIES.
 
-第一，在闫博士的报告里，已经指出被指出的疏水取代不会改变Ｓ蛋白和ACE2的关系。最近的数据证明这是一个事实：SARS-CoV-2 RBD与hACE2的结合和SARS RBD是一样的方式。显然审阅者在这里的评论被证明是错误的。
+(a) SENSE OF CONGRESS. — It is the sense of Congress that
 
-第二，Warmbrod等人评论很多的突变是从赖氨酸（lysines）到苯丙氨酸（phenylalanines），这是一个荒谬的错误。在我们的报告，我们已经描述这些突变是如下的：
+(1) the Government of China is exporting its model for internal security and state control of society through advanced technology and artificial intelligence; and
 
-“在基本密码子的组合的少量改变是接近大部分疏水替代*(I428*à*L, L443*à*F, F460*à*Y, L472*à*F, Y484*à*Q),*这个应当不会影响蛋白质折叠或hACE2相互作用。”L443àF和L472àF突变是Warmbrod等人在这里提及的。
+(2) the inclusion of communication networks and communications supply chains with equipment and services from companies with close ties to or susceptible to pressure from governments or security services without reliable legal checks on governmental powers can lead to breaches of citizens’ private information, increased censorship, violations of human rights, and harassment of political opponents.
 
-但是，他们显然没有具有基本的知识就是“L”是一个亮氨酸（leucine）字母密码，而不是赖氨酸（lysines）（一个字母密码：Ｋ）。
+(b) DIPLOMATIC ENGAGEMENT. — The Secretary of State shall conduct diplomatic engagement with governments and civil society organizations in Latin America and the Caribbean to—
 
-显然，这里的突变是从亮氨酸（leucine）到苯丙氨酸（phenylalanines）。这是简单地令人难以置信的就是Warmbrod等人缺少这个非常基本的知识；最后，Warmbrod等人描述从苯丙氨酸（phenylalanines）到酪氨酸（tyrosine）将改变密码子的负责。这个也是明显地错误。这两个密码子没有被负责。Warmbrod等人的知识水平在结构生物学和生物化学是尴尬地低。他们又一次证明他们作为这份报告（还有其它涉及结构生物学和生物化学的报告）的审阅者是完全不胜任的。
+(1) help identify and mitigate the risks to civil liberties posed by technologies and services described in subsection (a); and
 
-审核：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
+(2) offer recommendations on ways to mitigate such risks.
 
-- [【闫丽梦博士铿锵有力回应“审阅者“】第一篇](https://gnews.org/zh-hans/1116291/)
-[【闫丽梦博士铿锵有力回应“审阅者“】第二篇](https://gnews.org/zh-hans/1116349/)
-[【闫丽梦博士铿锵有力回应“审阅者”】第三篇](https://gnews.org/zh-hans/1116385/)
-[【闫丽梦博士铿锵有力回应“审阅者”】第四篇](https://gnews.org/zh-hans/1131764/)
-[【闫丽梦博士铿锵有力回应“审阅者”】上一篇](https://gnews.org/zh-hans/1131822/)
-[【闫丽梦博士铿锵有力回应“审阅者”】续下一篇](https://gnews.org/zh-hans/1131886/)
+(c) INTERNET FREEDOM PROGRAMS. — The Chief Executive Officer of the United States Agency for Global Media, working through the Open Technology Fund, and the Secretary of State, working through the Bureau of Democracy, Human Rights, and Labor’s Internet Freedom and Business and Human Rights Section, shall expand and prioritize efforts to provide anti-censorship technology and services to journalists in Latin America and the Caribbean, in order to enhance their ability to safely access or share digital news and information.
 
+(d) SUPPORT FOR CIVIL SOCIETY. — The Secretary of State, in coordination with the Assistant Secretary of State for Democracy, Human Rights, and Labor and the Administrator of the United States Agency for International Development, shall work through nongovernmental organizations to—
 
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+(1) support and promote programs that support internet freedom and the free flow of information online in Latin America and the Caribbean;
+
+(2) protect open, interoperable, secure, and reliable access to internet in Latin America and the Caribbean;
+
+(3) provide integrated support to civil society for technology, digital safety, policy and advocacy,
+
+and applied research programs in Latin America and the Caribbean;
+
+(4) train journalists and civil society leaders in Latin America and the Caribbean on investigative techniques necessary to ensure public accountability and prevent government overreach in the digital sphere;
+
+(5) assist independent media outlets and journalists in Latin America and the Caribbean to build their own capacity and develop high-impact, in-depth news reports covering governance and human rights topics;
+
+(6) provide training for journalists and civil society leaders on investigative techniques necessary to improve transparency and accountability in government and the private sector;
+
+(7) provide training on investigative reporting of incidents of corruption and unfair trade, business and commercial practices related to China, including the role of the Government of China in such practices;
+
+(8) assist nongovernmental organizations to strengthen their capacity to monitor the activities described in paragraph (7); and
+
+(9) identify local resources to support the preponderance of activities that would be carried out under this subsection.
+
+(e) BRIEFING REQUIREMENT. — Not more than 180 days after the date of the enactment of this Act, and every 180 days thereafter, the Secretary of State, the Administrator of the United States Agency for International Development, and the Chief Executive Officer of the United States Agency for Global Media shall provide a briefing regarding the efforts described in subsections (c), (d), and (e) to—
+
+(1) the Committee on Foreign Relations of the Senate;
+
+(2) the Committee on Appropriations of the Senate;
+
+(3) the Committee on Foreign Affairs of the House of Representatives; and
+
+(4) the Committee on Appropriations of the House of Representatives.
 
 0
