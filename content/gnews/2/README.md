@@ -1,87 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亚利桑那州选举审计一波三折川普连发三声明
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1134885/)
+## 有中共背景的黑客利用VPN漏洞攻击美国国防工业
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1134928/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+新闻来源：《Reuters》| 作者：Christopher Bing and Raphael Satter | 发布时间：2021年4月21日
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/A-33-1.jpg)thefreedomtimes.com
-前天（周四）笔者发文，介绍了亚利桑那州马里科帕郡（Maricopa）的投票设备、选票被运到退伍军人纪念体育馆（the Veterans Memorial Coliseum），由州参议院进行选举审计【1】。最新的情况似乎表明，又遇到了障碍，障碍之后又有翻转。
+翻译/简评：村民彼得潘 | 校对：感恩 | 审核：万人往 | Page：我是球大哥
 
-《门道专家》发文，“民主党派了73名律师到亚利桑那州，川普总统发表声明”【2】。
+[!\[\]()!\[\](https://spark.adobe.com/page/y2hVue2ZjdoiB/images/58b9f190-ea96-4fae-9468-e620b0f64fb4.jpg?asset_id=713ff22f-1372-4f85-bf87-5fe2496debe9&amp;img_etag=%22332ece279f639f53ee456354c6165b0f%22&amp;size=1024)](https://spark.adobe.com/page/y2hVue2ZjdoiB/images/58b9f190-ea96-4fae-9468-e620b0f64fb4.jpg?asset_id=713ff22f-1372-4f85-bf87-5fe2496debe9&amp;img_etag=%22332ece279f639f53ee456354c6165b0f%22&amp;size=1024)
 
-文章说，亚利桑那州选举投票审核计划今天（周五）开始，星期四，投票机和选票被转移到州集市的退伍军人纪念体育馆进行审核。
+正如文中所引述，多年来美国曾多次指控中共国黑客窃取美国军事机密，而文中提及的火眼子公司Mandiant，也是因其早在2013年发布的一份针对中共国网络间谍活动的报告而一举成名。不难察觉，虽然中共国自互联网诞生以来，一直孜孜不倦地通过这种虚拟方式偷取情报、信息和技术，但互联网的发源地美国也从未停止对这些行径的追踪和反击。即使这些网络安全公司在公众场合仍无法采取直接表述，似乎一个私营企业对一个国家政府的直接指控存在着巨大风险与立场上的不对等，但具体情况究竟如何，这些黑客行动背后是否有一双中共的手在推动，我想美方从民间到官方都心知肚明。
 
-审计人员已经准备好开始对马里科帕郡2020年选举结果进行审计，今天，机器和选票被转移到州集市退伍军人纪念体育馆，在那里它们将被审计。
+令人感到有些意外的是，跟踪中共多年的Mandiant副总裁也会惊叹中共目前黑客手段的先进。诚然，作为网络安全公司本身，他们的利益考量存在着情况越危急则越有生意可做的成份。但经过了多年来的偷抢骗、“蓝金黄”，中共可以在生物武器的开发研究上巧立名目，借助外国的技术支援，在网络技术方面又何尝不能“师夷长技以制夷”呢？卡马卡尔此言“先进”想必也是可控范围内的“先进”，如非他有把握应对这些黑客攻击，恐怕也轮不到这一家公司来做呼吁了。由此即可看出，中共自以为手段高明弄来了什么“葵花宝典”，然而其不思进取的本性让它在不断革新的美国面前，从来不会有赢的机会。
 
-他们还设置了9个摄像头，在整个审计过程中都可以使用。在接下来的三周左右的时间里，如果您想了解情况，您可以登录AZAudit.org 并在审计过程中观察。
+值得注意的是，据个人了解，本文提到存在漏洞的Pulse Connect Secure套件的应用范围极为广泛，尤其对于需要全球数据联动的大型跨国企业以及本文提到的国防等本身非常敏感、对数据十分依赖的企业。它的基本功能可以概括为，用户在需要远程办公时，该程序在个人或公共网络与公司服务器之间建立加密通道，以保障信息只在公司内部流通。这意味着只要骇客了这套登入系统，那么使用该系统的所有公司都会受到极大的数据泄露威胁。而新冠病毒大爆发期间，在家办公十分普遍，这无疑让黑客更容易混淆其中。事实上，文中提到的思杰、思科也是为公司提供类似全套解决方案的巨头。在所有的行业，尤其尖端技术领域，都或多或少与信息技术相绑定的今天，想避开这两个名字是非常难的。简而言之，中共这回是在试图找到一把万能钥匙。我们不知道美方是如何放任中共到今天，使其有了足够的眼界与野心以及一定的技术和能力，瞄准了这样一个危险目标。但卡马卡尔并没有言过其实，美方是时候采取行动了。
 
-这个网站将在接下来的几周不间断地展示体育馆的计票活动。
+**原文翻译：**
 
-民主党今天提起诉讼，要求关闭这一（重新计票）程序。
+## **研究人员：与中共国有关联的黑客利用VPN漏洞锚定攻击美国国防工业**
 
-你会认为他们会想要一个审计来证明他们在亚利桑那州赢了，但不会是（那样的简单），他们正在与到场的、至少73名律师全力抗争。
+[!\[\]()!\[\](https://spark.adobe.com/page/y2hVue2ZjdoiB/images/ab6a25ed-65b1-4a7e-9e80-d0439424e7a2.jpg?asset_id=e2997b6d-fe54-4c5e-b11a-5ff521c73c8f&amp;img_etag=%22381191eb26a7ce5fd488cf788a40b79a%22&amp;size=1024)](https://spark.adobe.com/page/y2hVue2ZjdoiB/images/ab6a25ed-65b1-4a7e-9e80-d0439424e7a2.jpg?asset_id=e2997b6d-fe54-4c5e-b11a-5ff521c73c8f&amp;img_etag=%22381191eb26a7ce5fd488cf788a40b79a%22&amp;size=1024)2010年9月24日，美国国土安全部的徽章被拍摄于弗吉尼亚州阿灵顿郡华盛顿特区郊外的国家网络安全与通信集成中心（NCCIC）。路透社/Hyungwon Kang
 
-周五，川普总统发表声明，抨击民主党一再试图关闭重新计票程序。
+[!\[\]()!\[\](https://spark.adobe.com/page/y2hVue2ZjdoiB/images/6a11be7d-5104-447a-a9e8-1a14fbc58286.jpg?asset_id=488143cd-635c-45db-a8cb-99ea39efb6b7&amp;img_etag=%226a806482d70115e55f3f9d329e8f8e70%22&amp;size=1024)](https://spark.adobe.com/page/y2hVue2ZjdoiB/images/6a11be7d-5104-447a-a9e8-1a14fbc58286.jpg?asset_id=488143cd-635c-45db-a8cb-99ea39efb6b7&amp;img_etag=%226a806482d70115e55f3f9d329e8f8e70%22&amp;size=1024)在这幅2021年4月20日制作的插图中可以看到Ivanti的标志及网络二进制代码。路透社/Dado Ruvic/插图设计
 
-2021年4月23日
+研究人员和设备制造商周二表示，至少有两组与中共国有关联的黑客花了几个月时间，利用美国虚拟私人网络设备中一个先前未被披露的漏洞，对美国国防工业进行监视。
 
-唐纳德J·川普 美国第45任总统
+总部位于犹他州的IT公司Ivanti在一份声明中[称](https://blog.pulsesecure.net/pulse-connect-secure-security-update/)，这些黑客利用其Pulse Connect Secure套件中的漏洞，侵入“数量非常有限的客户”的系统。
 
-民主党人“蜂拥”抵达伟大的亚利桑那州，试图阻止法庭选举审计，因为只有他们知道自己到底做了什么，他们比任何人都更了解选举舞弊。这可能是最高级别的选举欺诈，别以为亚利桑那州是唯一的州，还有更多。【3】
+Ivanti[表示](https://kb.pulsesecure.net/pkb_mobile#article/l:en_US/SA44784/s)，虽然他们已经采取了缓解措施，但对该问题的修复要到5月初才能实现。
 
-随后，川普总统继续发布声明：
+关于谁可能对间谍活动负责，Ivanti没有提供任何细节，但在与Ivanti的公告同时发布的一份报告中，网络安全公司火眼（FireEye Inc,[FEYE.O](https://www.reuters.com/companies/FEYE.O)）称，他们怀疑至少有一个黑客团队代表中共国政府运作。
 
-因此，许多人要感谢勇敢爱国的亚利桑那州共和党参议员，感谢他们在揭露2020年总统选举中发生的大规模选举舞弊事件中所做的令人难以置信的工作，他们的不懈努力导致了大规模的重新计票、选票检查和全面的法庭审计，由州参议院聘请的专家进行，结果将在六周内公布。民主党人在听到法院命令的消息后，已经派了73名律师到亚利桑那州，试图阻止重新计票和完全透明，因为他们知道自己做了什么！民主党人迫切希望这一骗局被继续掩盖，因为一旦揭发，威斯康辛州、密歇根州、佐治亚州、新罕布什尔州和伟大的宾夕法尼亚州将加快进行已经开始的工作。亚利桑那州的重新计票和审计将通过电视直播，供所有人观看。
+“我们怀疑涉案的另一个黑客组织与中共国发动的举措和案件丛集相吻和。”火眼旗下的Mandiant公司高级副总裁查尔斯·卡马卡尔（Charles Carmakal）在报告发布前表示。
 
-为什么民主党人如此不顾一切地阻止这场舞弊的选举被曝光？答案是显而易见的！亚利桑那州州长道格杜西（Doug Ducey）对州参议院毫无帮助，他想“假装”选举是自由和公平的，他和马里科帕郡的官员想隐瞒什么？我们国家需要揭露2020年大选骗局的真相，如果不是，就像我们没有边界一样，我们就不能成为一个伟大的国家，诚实的选举是美国的灵魂，我们决不能让这种情况再次发生在我们伟大的国家，感谢亚利桑那州的参议员和其他人开始这项全面的法庭审计，我预测结果将是惊人的！【4】
+将黑客与特定国家联系起来充满了不确定性，但卡马卡尔称，他的分析师们的判断是基于对黑客的战术、工具、基础设施和目标的审查——其中许多与过去跟中共国有关的入侵行为相呼应。
 
-民主党人搅局获得成功，法官下令暂停审计。
+中共国大使馆发言人刘鹏宇表示，中共国“坚决反对并打击一切形式的网络攻击”，并将火眼的指控形容为“不负责任且居心不良”。
 
-《门道专家》随即发文，“在民主党人提出诉讼要求关闭投票程序后，法官下令亚利桑那州的法庭选票审核工作暂时停止，直至周一”。【5】
+火眼拒绝透露黑客的目标，只将这些目标标识为“世界各地的国防、政府和金融机构”。它表示，这群被怀疑代表北京当局工作的黑客特别关注于美国国防工业。
 
-文章说，民主党人担心，一个受雇审查该州最大的郡、近210万张选票的私人承包商，是否能遵守该州有关选举安全的法律。
+国土安全部的网络部门在一份声明中称，他们正在与Ivanti合作，“以更好地了解Pulse Secure VPN设备的漏洞，并减少对联邦民用和私营领域网络的潜在风险。”
 
-马里科帕郡高级法院法官克里斯托弗·库里（Christopher Coury）作出了暂停审计的判决，暂停时间从周五下午5点开始到周一中午。
+美国国家安全局拒绝发表评论。多年来，美方官员曾多次指控中共国黑客通过各种手段窃取美国军事机密。
 
-争取了至少3天的时间，谁知道这些没有底线的人能再出啥幺蛾子，或者在装箱前做了什么手脚！
+最近，公司难以监控的网络设备已成为受数字间谍青睐的进攻路径。
 
-民主党又退缩了？没有支付100万元的保证金，所以选举审计继续。
+2020年，火眼就曾[警告](https://www.fireeye.com/blog/threat-research/2020/03/apt41-initiates-global-intrusion-campaign-using-multiple-exploits.html)，与北京当局结盟的黑客们正瞄准进攻思杰系统公司（Citrix Systems Inc, [CTXS.O](https://www.reuters.com/companies/CTXS.O)）和思科系统公司（Cisco Systems Inc, [CSCO.O](https://www.reuters.com/companies/CSCO.O)）制造的设备，以入侵许多的公司，火眼称这是他们多年来看到的中共国黑客最广泛的活动之一。
 
-《门道专家》继续报道，因为民主党没有提交100万美元的保证金，因此亚利桑那州的审计将继续进行。【6】
+虽然火眼的报告表示对最近这一系列的黑客行为的调查发生在“今年年初”，但没有明确说明黑客攻击的具体时间。
 
-按照马里科帕县高级法院法官克里斯托弗·库里的裁定，审计必须从周五下午5点到周一中午停止，但这一命令取决于亚利桑那州民主党提交一份100万美元的保证金，以支付参议院因推迟审计而招致不当的任何费用。
+卡马卡尔补充道，黑客在美国的数字基础设施上操作，并借用受害公司的命名惯例来伪装他们的活动，这样他们看起来就像任何其他从家里登录的员工。
 
-民主党律师罗巴利德赛（Roopali Desai）说，民主党不会提供保证金，这意味着审计工作将不间断地进行。
+“我们正目睹相当先进的技术手段。”他表示。
 
-川普总统后来又发表声明：
+[原文链接](https://www.reuters.com/technology/china-linked-hackers-used-pulse-secure-flaw-target-us-defense-industry-2021-04-20/?taid=607f1edf5a08ec0001320f83&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-2021年4月24日
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-唐纳德J·川普 美国第45任总统
 
-共和党要求亚利桑那州州长杜西立即为勇敢的美国爱国者提供大规模的安全保障，让他们对2020年总统选举进行司法审查。杜西州长将对相关人员的安全负全部责任，州警察或国民警卫队必须立即派出保护，民主党人不想让这些信息被披露，他们会尽一切努力阻止它，杜西州长必须最终采取行动！
+编辑：【英国伦敦喜庄园编辑部】
 
-从川普总统的这则声明里似乎能读出民主党人可能的孤注一掷，必须警惕！
-
-正如川普总统指出的那样，“民主党人迫切希望这一骗局被继续掩盖，因为一旦揭发，威斯康辛州、密歇根州、佐治亚州、新罕布什尔州和伟大的宾夕法尼亚州将加快进行已经开始的工作。”
-
-民主党不会善罢甘休，正义的力量更会势不可挡，背后的妖魔最终会暴露！
-
-参考链接：
-
-【1】[https://www.gnews.org/zh-hans/1129170/](https://www.gnews.org/zh-hans/1129170/)
-
-【2】[https://www.thegatewaypundit.com/2021/04/democrats-sent-73-lawyers-az-know-breaking-president-trump-releases-statement-forensic-audit-maricopa-county-arizona/](https://www.thegatewaypundit.com/2021/04/democrats-sent-73-lawyers-az-know-breaking-president-trump-releases-statement-forensic-audit-maricopa-county-arizona/)
-
-【3】[https://twitter.com/JennaEllisEsq/status/1385748365800058882/photo/1](https://twitter.com/JennaEllisEsq/status/1385748365800058882/photo/1)
-
-【4】[https://prescottenews.com/index.php/2021/04/24/statement-by-donald-j-trump-45th-president-of-the-united-states-of-america-2/](https://prescottenews.com/index.php/2021/04/24/statement-by-donald-j-trump-45th-president-of-the-united-states-of-america-2/)
-
-【5】[https://www.thegatewaypundit.com/2021/04/breaking-judge-orders-temporary-halt-arizona-forensic-ballot-audit-monday-democrats-file-suit-shut-process/](https://www.thegatewaypundit.com/2021/04/breaking-judge-orders-temporary-halt-arizona-forensic-ballot-audit-monday-democrats-file-suit-shut-process/)
-
-【6】[https://www.thegatewaypundit.com/2021/04/breaking-huge-update-az-democrats-arizona-wont-post-1-million-bond-election-audit-continues/](https://www.thegatewaypundit.com/2021/04/breaking-huge-update-az-democrats-arizona-wont-post-1-million-bond-election-audit-continues/)
+[!\[\]()!\[\](https://spark.adobe.com/page/y2hVue2ZjdoiB/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/y2hVue2ZjdoiB/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

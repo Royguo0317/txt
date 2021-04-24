@@ -1,11 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共一直通过窃取和渗透，意图颠覆美国的生物医学研究行业
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1134584/)
+## 【每日快讯】04/23/2021:中共航母辽宁舰平衡器被美军电子战摧毁博鳌论坛门厅冷落惨淡收场
+` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1134608/)
 
-4/22/2021 美国国立卫生研究院（NIH）院外研究部副主任迈克尔·劳尔（Michael Lauer）博士在4月22日举行的参议院卫生、教育、劳工和退休金（HELP）委员会听证会上，作证外国势力（主要是中共）对美国生物医学研究中的影响；参议员罗杰⋅马歇尔：为消除美国的竞争优势，中共一直在以关键技术和研究机构为目标，系统性地努力渗透到美国学术研究界，因此中共将继续是美国技术竞争力的首要威胁。
+**制作：Cantonese工作室**
 
-By： 【秘密翻译组 G-Translators】
 
-+3
+
+摘要：
+
+1
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210424-__2.jpg)
+2
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210424-__3.jpg)
+3
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210424-__4.jpg)
+4
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210424-__5.jpg)
+5
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210424-__6.jpg)
+6
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210424-__7.jpg)
+7
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210424-__8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/0-3.jpg)
+
+
++1
