@@ -1,125 +1,190 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第255节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1132749/)
+## 战友展览板【4/23】
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1132786/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**西班牙巴塞罗那喜悦农场** wenwu
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/EUC.jpg)vestnikkavkaza.net
-本节进入“副标题C——应对中共国的区域战略”的“第二部分——跨大西洋联盟”，从第255节开始。
+【以毒灭共】22则推文。如下
 
-本节要点：美国、欧盟和欧洲国家是亲密的伙伴，它们有着基于民主、人权、透明度和二战后建立的、以规则为基础的国际秩序的共同价值观。如果没有美国、欧洲各国的共同努力，中共国将继续增加其在欧洲的经济、政治和安全的影响力。美国、欧盟和日本应继续三方的努力，应对中共国提出的经济挑战。美国、欧洲各国应加强合作，打击中共国的造谣、影响行动和宣传工作。美国和欧洲国家对中共国政府支持和执行的镇压表示严重关切，并应继续采取措施解决中共国政府在西藏、香港和新疆的特别侵害，并应建立联合机制和方案，防止中共国威权治理模式向世界各国输出。中共国在世界各地的基础设施投资，特别是在5G电信技术和港口基础设施方面的投资，可能威胁整个欧洲的民主和关键国家的国家安全。
 
-第二部分——跨大西洋联盟
 
-第255节 跨大西洋的国会意识
+> It's a BIOWEAPON. [https://t.co/9Y3wbvFyqq](https://t.co/9Y3wbvFyqq)
+> — Dr Richard M Fleming (@Doctor\_I\_am\_The) [April 22, 2021](https://twitter.com/Doctor_I_am_The/status/1385337913664147458?ref_src=twsrc%5Etfw)
 
-国会认为 –
 
-（1）美国、欧盟和欧洲国家是亲密的伙伴，它们有着基于民主、人权、透明度和二战后建立的以规则为基础的国际秩序的共同价值观；
+1. **[Dr.Fleming推特](https://twitter.com/Doctor_I_am_The/status/1385337913664147458?s=20)**：
+*[它（中共病毒）是生物武器](https://rumble.com/vfy3xf-lethal-deception.html)（视频）*![]()![](https://gnews.org/wp-content/uploads/2021/04/EzrSQOKWYAcnR7l.jpeg)2. **[图片来自Sellin推特转三文鱼战友信息](https://twitter.com/LawrenceSellin/status/1385651736124264454?s=20)**
 
-（2）如果没有美国、欧盟和欧洲各国在互联互通、贸易、跨国问题以及支持民主和人权方面的共同做法，中共国将继续增加其在欧洲的经济、政治和安全的影响力；
 
-（3）在中共病毒疫情爆发后，中共国向欧洲国家提供援助，显示了一种强制性的援助方式，但也突显了欧洲与中共国深厚的经济联系；
+> NIH终于忍不住了，外部给了多大压力。挺过来川普总统，现在挺不住了：国立卫生研究院周四透露，有500多名联邦资助的科学家因受到中国和其他外国大国的危害而受到调查。 [https://t.co/lQXQHtQMrr](https://t.co/lQXQHtQMrr)
+> — 墨博士 (@4RxMbPD3YbeN1fS) [April 23, 2021](https://twitter.com/4RxMbPD3YbeN1fS/status/1385570232438202370?ref_src=twsrc%5Etfw)
 
-（4）在欧洲各国寻求从中共病毒疫情造成的经济损失恢复之际，美国必须与欧洲结成伙伴关系，支持我们的集体经济复苏，加强我们的集体国家安全，捍卫这些共同价值观；
 
-（5）美国、欧盟和其他欧洲国家应就联合战略进行协调，使对中共国以外供应链的依赖多样化，特别是在医疗和制药部门；
+3. **[墨博士推特](https://twitter.com/4RxMbPD3YbeN1fS/status/1385570232438202370?s=20)**：
+***（Nick Short）****ICYMI：美国国立卫生研究院周四透露，500多名联邦资助的科学家因受到中共国和其他外国势力的妥协而正在接受调查。附[《华盛顿时报》链接](https://www.washingtontimes.com/news/2021/apr/22/us-scientists-feared-compromised-china/)*
+***（墨）****NIH终于忍不住了，外部给了多大压力。挺过来川普总统，现在挺不住了：国立卫生研究院周四透露，有500多名联邦资助的科学家因受到中国和其他外国大国的危害而受到调查*
 
-（6）美国、欧盟、英国和欧洲各国应利用各自的经济创新能力，支持全球经济从中共病毒的衰退中复苏，与中共国的中央集权经济截然不同；
 
-（7）美国和欧盟应加快努力缓和贸易争端，包括谈判达成一项有利于美国和欧盟工人，以及更广泛经济的、美国-欧盟贸易协定；
+> This important Tweet by [@ZionaEmanuel](https://twitter.com/ZionaEmanuel?ref_src=twsrc%5Etfw) also shows the deep infiltration of US virus research programs by China's military. Both Shibo Jiang & Yusen Zhou are (were) connected to the military. Lanying Du is still in the US & was just given a 4-year grant by Anthony Fauci's NIAID [https://t.co/vN8DqRKu0W](https://t.co/vN8DqRKu0W)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 23, 2021](https://twitter.com/LawrenceSellin/status/1385456091027460097?ref_src=twsrc%5Etfw)
 
-（8）美国、欧盟和日本应继续三方的努力，应对中共国提出的经济挑战；
 
-（9）美国、欧盟和欧洲各国应加强合作，打击中共国的造谣、影响行动和宣传工作；
+4. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1385456091027460097?s=20)**：
+**(老百姓）***本文表明，他们愿意研究泛冠状病毒融合给人类的模式，可能在疫情爆发前找到治愈方法。杜兰英博士隶属于林斯利·F.金博尔研究所，其丈夫——周育森*博士*-去年去世得不可思议。*
+***(Sellin)**这条重要的（老百姓的）推文
+也显示了中共国军方对美国病毒研究项目的深入渗透。姜世勃和周育森都与军队有联系。杜兰英仍然在美国，她刚刚被安东尼·福奇的NIAID授予了4年的赠款*
 
-（10）美国和欧洲国家对中共国政府支持和执行的镇压表示严重关切，并应继续采取措施解决中共国政府在西藏、香港和新疆的特别侵害，并应建立联合机制和方案，防止中共国威权治理模式向世界各国输出；
 
-（11）美国和欧洲国家应该在共同的价值观上保持一致，反对恐怖主义中共国政府试图在联合国和其他多边组织，推动破坏《世界人权宣言》（the Universal Declaration of Human Rights）的努力，如“人类共同未来共同体”和“国际关系民主化”；
+> Since I identified Quanshui Fan and his connection to the Institute of Military Veterinary Medicine in Changchun, the Zhoushan viruses ZC45 & ZXC21 & likely biowarfare experiments, Quanshui Fan's links have disappeared. (hat tip to [@No3Mos](https://twitter.com/No3Mos?ref_src=twsrc%5Etfw) )
+> 
+> 我支持中国人民。 我拒绝中国共产党 [pic.twitter.com/EV59tlfXvO](https://t.co/EV59tlfXvO)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 23, 2021](https://twitter.com/LawrenceSellin/status/1385459654587731970?ref_src=twsrc%5Etfw)
 
-（12）中共国在世界各地的基础设施投资，特别是在5G电信技术和港口基础设施方面的投资，可能威胁整个欧洲的民主和关键国家的国家安全；
 
-（13）美国应酌情与欧洲盟国和伙伴分享有关华为5G能力的情报，以及中共国政府在欧洲5G扩张的意图；
+5. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1385459654587731970?s=20)**：
+*自从我确定了范泉水和他与长春军事兽医研究所、舟山病毒ZC45和ZXC21以及可能的生物战实验的关系后，范泉水的链接已经消失了。(帽子提示给@No3Mos)
+我支持中国人民。 我拒绝中国共产党*
 
-（14）欧盟投资筛选条例于2020年10月生效，这是一个可喜的发展，成员国应通过自己的国家投资筛选措施，严格审查中共国在本国的投资；
 
-（15）总统应积极与欧盟接触，执行《出口管制改革法》（the Export Control Reform Act）条例，并努力使该法条例与欧盟的优先事项保持一致；
+> Check the early [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) pandemic before the CCP had its talking points straight. Both these articles by Zhengli Shi were received by the journals on 20 Jan 2020, but say different things – Zhoushan viruses ZC45/ZXC21 are the closest relatives, the other RaTG13 is the closest. [pic.twitter.com/RxzbWlWAJX](https://t.co/RxzbWlWAJX)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 23, 2021](https://twitter.com/LawrenceSellin/status/1385529338859229185?ref_src=twsrc%5Etfw)
 
-（16）总统应大力提倡根据瓦森纳安排（the Wassenaar Arrangement），将更多的物品和技术列入清单，以限制向中共国出口国家安全及以上级别管制的军民两用物品和技术；
 
-（17）美国应对建立一个类似于多边出口管制协调委员会（CoCom）机构的价值进行探讨和评估，这个机构将专门协调美国和欧盟对中共国敏感技术的出口；以及
+6. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1385529338859229185?s=20)**：
+*在中共掌握其谈话要点之前，查看早期的#COVID19大流行。石正丽的这两篇文章都是在2020年1月20日被期刊收到的，但说的是不同的事情–舟山病毒ZC45/ZXC21是最接近的亲属，另一个RaTG13是最接近的*
 
-（18）美国应该与欧洲的同行合作，以-
 
-（A）评估美国和欧洲对中共国商品的过度依赖，包括在医疗和制药领域，并制定联合战略，使供应链多样化；
+> These guys have been running a massive military virus collection program linking operations in Yunnan and Jiangsu/Zhejiang with Beijing and a research center in Jilin Province near the North Korean border.[#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/8Ld9xuPeAD](https://t.co/8Ld9xuPeAD)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 23, 2021](https://twitter.com/LawrenceSellin/status/1385587762150191104?ref_src=twsrc%5Etfw)
 
-（B）反击中共国利用中共病毒相关援助，作为胁迫性工具向发展中国家施压的努力，提供美国和欧洲的相关专门的知识和援助；以及
 
-（C）利用美国和欧洲的私营部门推动后中共病毒时期的经济复苏。
+7. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1385587762150191104?s=20)**：
+*这些家伙一直在实施一个大规模的军事病毒收集计划，将云南和江苏/浙江的行动与北京联系起来，并在靠近朝鲜边境的吉林省开展一个研究中心
+#新冠病毒起源 #超限生物武器 #超限生物战争*
 
-（本节完）
 
-原文链接：
+> Correct me if I am wrong, maybe WIV knows the cure? [pic.twitter.com/Q63ERzvGQo](https://t.co/Q63ERzvGQo)
+> — 德意志之鹰 (@dezying) [April 22, 2021](https://twitter.com/dezying/status/1385381923854356482?ref_src=twsrc%5Etfw)
 
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
 
-文字整理：
+8. **[德意志之鹰推特](https://twitter.com/dezying/status/1385381923854356482?s=20)**：
+*如果我的观点是错的请修正我：“武毒所”也许知道中共病毒解药（附4图）*
 
-PART II—TRANSATLANTIC ALLIANCE
 
-SEC. 255. SENSE OF CONGRESS ON THE TRANSATLANTICALLIANCE.
+> 马克·卢比奥：中共掩盖病毒真相导致经济灾难
+> Mark Rubio: CCP covered up the truth of the CCP virus, which led to the economic calamity [pic.twitter.com/jdq5erLXX4](https://t.co/jdq5erLXX4)
+> — 秘密翻译组 (@G\_Translators6) [April 22, 2021](https://twitter.com/G_Translators6/status/1385196528113913864?ref_src=twsrc%5Etfw)
 
-It is the sense of Congress that—
 
-(1) the United States, the European Union, and countries of Europe are close partners, sharing values grounded in democracy, human rights, transparency, and the rules-based international order established after World War II;
+9. **[秘密翻译组推特](https://twitter.com/G_Translators6/status/1385196528113913864?s=20)**：
+*马克·卢比奥：中共掩盖病毒真相导致经济灾难（附视频）*
 
-(2) without a common approach by the United States, European Union, and countries of Europe on connectivity, trade, transnational problems, and support for democracy and human rights, the People’s Republic of China will continue to increase its economic, political and security leverage in Europe;
 
-(3) the People’s Republic of China’s deployment of assistance to European countries following the COVID–19 outbreak showcased a coercive approach to aid, but it also highlighted Europe’s deep economic ties to China;
+> 同样是在去年，在澳大利亚的议会。由191位公民共同发起的讨论。他们知道闫博士在接受主流媒体采访后报出CCP病毒真相后受到CCP报复，要求国会给CCP施压释放闫博士的母亲。感恩这191位勇敢的人，感恩在澳大利亚传播病毒真相的战友。你们的付出，让越来越多的人觉醒并行动，直面CCP的挑战。澳大利亚👍 [pic.twitter.com/yZ1xShihS1](https://t.co/yZ1xShihS1)
+> — Honey Badger (@baobaoxiaoliao) [April 22, 2021](https://twitter.com/baobaoxiaoliao/status/1385351836257955849?ref_src=twsrc%5Etfw)
 
-(4) as European states seek to recover from the economic toll of the COVID–19 outbreak, the United States must stand in partnership with Europe to support our collective economic recovery and reinforce our collective national security and defend these shared values;
 
-(5) the United States, European Union, and other European countries should coordinate on joint strategies to diversify reliance on supply chains away from the People’s Republic of China, especially in the medical and pharmaceutical sectors;
+10. **[胡博士推特](https://twitter.com/baobaoxiaoliao/status/1385351836257955849?s=20)**：
+*同样是在去年，在澳大利亚的议会。由191位公民共同发起的讨论。他们知道闫博士在接受主流媒体采访后报出CCP病毒真相后受到CCP报复，要求国会给CCP施压释放闫博士的母亲。感恩这191位勇敢的人，感恩在澳大利亚传播病毒真相的战友。你们的付出，让越来越多的人觉醒并行动，直面CCP的挑战。澳大利亚*
 
-(6) the United States, European Union, United Kingdom, and the countries of Europe should lever age their respective economic innovation capabilities to support the global economic recovery from the COVID–19 recession and draw a contrast with the centralized economy of the People’s Republic of
 
-China;
+> Zhiwei Chen 陈志伟
+> Academy of Military Medical Sciences (AMMS) of the PLA 
+> HKU
+> Very interesting research background. 🧐
+> 
+> Caution: 陳志偉 (Chan, Michael Chi Wai), not the same guy [pic.twitter.com/ZB41YSz7Zp](https://t.co/ZB41YSz7Zp)
+> — 德意志之鹰 (@dezying) [April 22, 2021](https://twitter.com/dezying/status/1385288849044217858?ref_src=twsrc%5Etfw)
 
-(7) the United States and European Union should accelerate efforts to de-escalate their trade disputes, including negotiating a United States-European Union trade agreement that benefits workers and the broader economy in both the United States and European Union;
 
-(8) the United States, European Union, and Japan should continue trilateral efforts to address economic challenges posed by the People’s Republic of China;
+11. **[德意志之鹰推特](https://twitter.com/dezying/status/1385288849044217858?s=20)**：
+*陈志伟，中国人民解放军军事医学科学院（AMMS）港大非常有趣的研究背景（附图）*
 
-(9) the United States, European Union, and countries of Europe should enhance cooperation to counter Chinese disinformation, influence operations, and propaganda efforts;
 
-(10) the United States and European nations share serious concerns with the repressions being supported and executed by the Government of China, and should continue implementing measures to address the Government of China’s specific abuses in Tibet, Hong Kong, and Xinjiang, and should build joint mechanisms and programs to prevent the export of China’s authoritarian governance model to countries around the world;
+> 原来闫博士第一份报告刚刚发出去不久，在09/17/2020的国会讨论中就由亚利桑那州的国会议员Mr. Andy Biggs在国会发言介绍给所有议员。
+> 通过闫博士正本清源，知道病毒不仅仅起源于武汉（当时CCP正搅混水把病毒起源归结于美国）更是由CCP制造病毒并故意释放。
+> 只有知道病毒真实源头(CCP)，才能避免误伤 [pic.twitter.com/CyNvBMjeNZ](https://t.co/CyNvBMjeNZ)
+> — Honey Badger (@baobaoxiaoliao) [April 22, 2021](https://twitter.com/baobaoxiaoliao/status/1385345341525041154?ref_src=twsrc%5Etfw)
 
-(11) the United States and European nations should remain united in their shared values against
 
-attempts by the Government of China at the United Nations and other multilateral organizations to promote efforts that erode the Universal Declaration of Human Rights, like the ‘‘community of a shared future for mankind’’ and ‘‘democratization of international relations’’;
+12. **[胡博士推特](https://twitter.com/baobaoxiaoliao/status/1385345341525041154?s=20)**：
+*原来闫博士第一份报告刚刚发出去不久，在09/17/2020的国会讨论中就由亚利桑那州的国会议员Mr. Andy Biggs在国会发言介绍给所有议员。 通过闫博士正本清源，知道病毒不仅仅起源于武汉（当时CCP正搅混水把病毒起源归结于美国）更是由CCP制造病毒并故意释放。*
+*只有知道病毒真实源头(CCP)，才能避免误伤*
 
-(12) the People’s Republic of China’s infrastructure investments around the world, particularly in 5G telecommunications technology and port infrastructure, could threaten democracy across Europe and the national security of key countries;
 
-(13) as appropriate, the United States should share intelligence with European allies and partners on Huawei’s 5G capabilities and the intentions of the Government of China with respect to 5G expansion in Europe;
+> 更改了字幕中的几处错误，加入了金宁一的一段自我介绍。金宁一的名字取自列宁，张口就是马克思教导我们，教出来的学生都要把党性刻进骨头里😱 [https://t.co/sQhdnBijXH](https://t.co/sQhdnBijXH) [pic.twitter.com/EXZQISqjz0](https://t.co/EXZQISqjz0)
+> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [April 22, 2021](https://twitter.com/jsdfposjpqyuee1/status/1385088470100578305?ref_src=twsrc%5Etfw)
 
-(14) the European Union’s Investment Screening Regulation, which came into force in October 2020, is a welcome development, and member states should closely scrutinize Chinese investments in their countries through their own national investment screening measures;
 
-(15) the President should actively engage the European Union on the implementation of the Export Control Reform Act regulations and work to align the law’s regulations with European Union priorities;
+13. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1385088470100578305?s=20)**：
+*2018年，解放军军事科学院的金宁一就说，他们制造的疫苗是国外没有的。他自己说，因为他的生日是列宁生日的前一天，所以取名“宁一”（附视频）
+更改了字幕中的几处错误，加入了金宁一的一段自我介绍。金宁一的名字取自列宁，张口就是马克思教导我们，教出来的学生都要把党性刻进骨头里（附视频）*
 
-(16) the President should strongly advocate for the listing of more items and technologies to restrict dual use exports controlled at the National Security and above level to the People’s Republic of China
 
-under the Wassenaar Arrangement;
+> 美国参议院霍利议员与布朗议员今天推出《2021年新冠病毒来源法案》，该法案将会要求拜登政府将有关新冠病毒来源调查以及和武汉病毒研究所相关的所有情报解密并公开 [https://t.co/fell8Hg98B](https://t.co/fell8Hg98B)
+> — 李昂纳多 (@RealLiAngNaDuo) [April 22, 2021](https://twitter.com/RealLiAngNaDuo/status/1385218598835302427?ref_src=twsrc%5Etfw)
 
-(17) the United States should explore the value of establishing a body akin to the Coordinating Committee for Multilateral Export Controls (CoCom) that would specifically coordinate the export of United States and European Union sensitive technologies to the People’s Republic of China; and
 
-(18) the United States should work with counterparts in Europe to—
+14. **[李昂纳多推特](https://twitter.com/RealLiAngNaDuo/status/1385218598835302427?s=20)**：
+*（**霍利）**新—参议员。乔什·霍利和@SenatorBraun
+出台了2021年[《新冠病毒起源法》](https://www.hawley.senate.gov/hawley-braun-introduce-bill-requiring-biden-declassify-wuhan-lab-leak-intelligence)。它要求拜登政府解密与武汉病毒研究所与新冠病毒疫情起源之间任何潜在联系相关的情报
+**（李）**美国参议院霍利议员与布朗议员今天推出《2021年新冠病毒来源法案》，该法案将会要求拜登政府将有关新冠病毒来源调查以及和武汉病毒研究所相关的所有情报解密并公开*
 
-(A) evaluate United States and European overreliance on Chinese goods, including in the medical and pharmaceutical sectors, and develop joint strategies to diversify supply chains;
 
-(B) counter Chinese efforts to use COVID–19-related assistance as a coercive tool to pressure developing countries by offering relevant United States and European expertise and assistance; and
+> 用S蛋白上的多肽片段去抑制冠状病毒，可用于多种冠状病毒，这里姜世勃他们研究的是mers和流感病毒。全世界的目光被带偏了，只关注疫苗，多肽类解药可能才是正确方向，而CCP研究多肽药物多年，已经掌握了解药😱 [https://t.co/HjuRlkyV1W](https://t.co/HjuRlkyV1W) [pic.twitter.com/rhqTFKKtFR](https://t.co/rhqTFKKtFR)
+> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [April 22, 2021](https://twitter.com/jsdfposjpqyuee1/status/1385286918527545344?ref_src=twsrc%5Etfw)
 
-(C) leverage the United States and European private sectors to advance the post COVID–19 economic recovery.
 
-0
+15. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1385286918527545344?s=20)**：
+***（德意志之鹰）**去挖一挖姜世勃的相关研究，有惊喜
+**（火来）**用S蛋白上的多肽片段去抑制冠状病毒，可用于多种冠状病毒，这里姜世勃他们研究的是mers和流感病毒。全世界的目光被带偏了，只关注疫苗，多肽类解药可能才是正确方向，而CCP研究多肽药物多年，已经掌握了解药（附图）*
+
+
+> 感谢[@randall2020ran](https://twitter.com/randall2020ran?ref_src=twsrc%5Etfw)提供的线索。
+> 高福等人在2003年申请专利，他们制备的一种多肽药物可以有效的抑制SARS病毒。这个药物是根据冠状病毒S蛋白上的两段七肽重复序列HR1和HR2制备。他们说，HR1/2在冠状病毒中普遍存在。多肽中替换，插入或缺失氨基酸的衍生物，依然有效。这难道就是郭先生说的解药？！ [https://t.co/FVqJeObJvr](https://t.co/FVqJeObJvr) [pic.twitter.com/yaJAWSNMHv](https://t.co/yaJAWSNMHv)
+> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [April 22, 2021](https://twitter.com/jsdfposjpqyuee1/status/1385277670238277632?ref_src=twsrc%5Etfw)
+
+
+16. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1385277670238277632?s=20)**：
+***（兰德尔娘）**火来战友，这是战友在盖特里发送的关于高福等人对冠状病毒治疗药物研发的一个[论文链接](https://patentimages.storage.googleapis.com/c0/a4/18/8d5b1d53eec020/CN1223605C)，您是专业人士
+**（火来）**感谢@randall2020ran提供的线索。 高福等人在2003年申请专利，他们制备的一种多肽药物可以有效的抑制SARS病毒。这个药物是根据冠状病毒S蛋白上的两段七肽重复序列HR1和HR2制备。他们说，HR1/2在冠状病毒中普遍存在。多肽中替换，插入或缺失氨基酸的衍生物，依然有效。这难道就是郭先生说的解药？！*
+
+
+> Sellin博士爆料了，锁定军事医学科学院军事兽医研究所的何彪。何彪是将舟山蝙蝠病毒和军事医学科学院军事兽医研究所联系起来的关键人物！ [https://t.co/atj2OmS7pu](https://t.co/atj2OmS7pu) [pic.twitter.com/OFe8FUn8jK](https://t.co/OFe8FUn8jK)
+> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [April 22, 2021](https://twitter.com/jsdfposjpqyuee1/status/1385131666042064897?ref_src=twsrc%5Etfw)
+
+
+17. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1385131666042064897?s=20)**：
+***（Sellin)**对于#COVID19侦探：2017年后，金宁一实验室的何彪从分离舟山蝙蝠冠状病毒ZC45和ZXC21的小组中消失了，直到2020年这些病毒数据也从科学文献中消失了。ZC45和ZXC21是否消失在金宁一的研究中心
+**（火来）**Sellin博士爆料了，锁定军事医学科学院军事兽医研究所的何彪。何彪是将舟山蝙蝠病毒和军事医学科学院军事兽医研究所联系起来的关键人物*![]()![](https://gnews.org/wp-content/uploads/2021/04/EzmTB97XsAY77Q2.jpeg)18. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1385307021889609729?s=20)**：
+***（李昂纳多推特）**如图，他们一直都有计划在准备着
+**（火来）**冠状病毒都得靠“冠=S蛋白”进入细胞，其中关键一步是fusion，即病毒膜和细胞膜的融合，如果能阻断或抑制这个融合的过程，就能有效的抗病毒。阻断这个过程的药物就叫fusion inhibitor。姜世勃研究的抗艾滋病的药FUZEON (enfuvirtide)也是多肽，也是这个原理*
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@2020Gladiator](https://twitter.com/2020Gladiator?ref_src=twsrc%5Etfw) identifies an important link between Ningyi Jin's military veterinary research center in Jilin Province, Zheng-Li Shi of the Wuhan Institute of Virology and key coronavirus scientist Linfa Wang. Is it part of the link to Zhoushan ZC45 and ZXC21? [https://t.co/DYnzqEz8K4](https://t.co/DYnzqEz8K4)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 22, 2021](https://twitter.com/LawrenceSellin/status/1385173457902739456?ref_src=twsrc%5Etfw)
+
+
+19. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1385173457902739456?s=20)**：
+***（安娜）**涂长春与王林发和石正丽一起研究冠状病毒。他们共享同一个网络（附图）
+**（Sellin)**#中共病毒 侦探@2020Gladiator
+确定了吉林省金宁一军事兽医研究中心、武汉病毒研究所石正丽和关键冠状病毒科学家王林发之间的重要联系。是舟山蝙蝠ZC45和ZXC21链接的一部分吗？*![]()![](https://gnews.org/wp-content/uploads/2021/04/EzmDSO7X0AM098h.jpeg)20. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1385282778133143559)**：
+*长春军事兽医研究所可能是一个生物战中心，在2018-2020年间从科学文献中消失后，对舟山病毒ZC45和ZXC21进行了秘密实验
+#中共病毒 #超限生物武器*![]()![](https://gnews.org/wp-content/uploads/2021/04/EzksYXAVkAUuEWD.jpeg)21. **[三文鱼推特](https://twitter.com/SalmonNFSC/status/1385187162652508162?s=20)**：
+*关注闫博士*
+
+
+> 【学习为别人着想】
+> 郭先生跟“很重要很重要”的人见面时，为了为对方负责，人家吃，他自己戴着口罩，一直戴到晚上11点半！这才是为别人着想，负责任的男人！
+> 学习！学习！👍👍👍 [pic.twitter.com/sw8VaFbPbg](https://t.co/sw8VaFbPbg)
+> — 瞿水台 Qu Shuitai (@QuShuitai) [April 23, 2021](https://twitter.com/QuShuitai/status/1385415733841170435?ref_src=twsrc%5Etfw)
+
+
+22. **[瞿水台推特](https://twitter.com/qushuitai/status/1385415733841170435?s=21)**（附视频）：
+*去年3月，郭先生要来DC，本来打算跟郭先生见面的，后来看到疫情扩散，我就主动取消了见面。因为郭先生不是属于任何一个人的，他是属于全世界的，是所有人的财富。他的健康和安全是头等大事，没有之一！作为战友，避免为他带来任何风险和隐患才是我们应尽的责任；
+【学习为别人着想】 郭先生跟“很重要很重要”的人见面时，为了为对方负责，人家吃，他自己戴着口罩，一直戴到晚上11点半！这才是为别人着想，负责任的男人！ 学习！学习！*
+
+
++2

@@ -1,55 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【闫丽梦博士铿锵有力回应“审阅者”】关于闫博士的第三份论文－点对点回应约翰·霍普金斯大学健康安全中心的“审阅者”第八部分 （续）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1131917/)
+## 中共把社交媒体当成跟西方战争的第一武器
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1131971/)
 
-- 翻译：peacelv
-- 制图：透明的遮羞布
+**摘要：郭先生在2021年4月19日的直播视频中披露，中共从江泽民时代后期就把社交媒体定义为是跟西方作战的第一武器，远重于核武器；孔子学院是国家情报机构；世界媒体在短短的四年里，被共产党已经用金钱合法控制，中共已经加入到犹太人控制的沼泽地，成为一股新的力量控制了世界的媒体。**
 
+**中共把社交媒体当成跟西方战争的第一武器**
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+**The CCP Deems Social Media as Its No. 1 Weapon in Fighting Against the West**
 
-**西班牙2021年4月23日电/西喜社——**
+七哥在一年前，我在船上接受战斗室直播的采访，还有那个那个很多媒体问我，共产党,（我是第一个告诉西方的在几年前，）共产党最早国家安全委员会成立安全部，从江时代后期就定义为社交媒体是跟西方作战斗争的第一武器，远远重要于核武器。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/virus10.jpg)
+A year ago, I, your Brother Miles, was interviewed live by the War Room on the yacht, and many media also asked me [this same question]. I was the first one to tell the West, a few years back, that the CCP’s National Security Council established the Ministry of Security and it deemed the social media as their number one weapon in its fight against the West, even more important than nuclear weapons, early as the late Jiang Zemin era.
 
-续上继续发表有关闫博士第三份论文的第七部分内容。
+这就是为什么搞孔子学院，孔子学院的第一个人、发起人是谁知道吗？是当时北京市政府的教委主任、姓耿的一位耿主任。这位耿主任后来跟我很好很熟，我还让他帮我送了北京电影学院几个小孩啊，小女孩很漂亮，朋友的孩子送进去，现在都成名了，电影学院啊送进去。教委主任权力很大啊。他给我介绍了一堆的中纪委、中央委员跟我认识，那教委的主任很有权力呀，是他发起的。发起当时北京市教委主任发起，发起这个时候是国家安全部、统战部、总参二部一起作为发起人，你说它[孔子学院]是干啥的？
 
-**第十九，病毒进化的中间宿主**
+So who knows the name of the first person who initiated the Confucius Institute? It was a director of the Education Commission of the Beijing City Government, named Geng. Director Geng later became very familiar with me, and I asked him/her to help send a few kids to the Beijing Film Academy. They were my friends’ girls, very pretty. Now they are all famous. [We] sent them to the film academy. The director of Education Commission had a lot of power. He hooked me up with a bunch of members of the Central Commission for Discipline Inspection and the Central Committee of the CCP. So the Director of the Education Commission is a very powerful person, and it was him who initiated it [the Confucius Institute]. It was co-founded by the Beijing Municipal Education Commission, together with the Ministry of National Security, the United Front Work Department, and the [PLA’s] General Staff Department, the 2nd Bureau. So you tell me what kind of place Confucius Institute really is?
 
-他们提出行21-23:病毒可能有复杂的进化源，有时和中间宿主32,如我们所知，流感33;流感病毒34也以能交叉人类著名。人类ACE2 (hACE2)接受者对SARS-CoV-2是最佳的，但是最近的工作被发现就是SARS-CoV-2能实际上使用混合ACE2接受者4,但是不是老鼠ACE2。更多的样本需要被做，但是断定hACE2是否最佳的接受者去结合SARS-CoV-2不能在这个时间点被支持。
+然后当时百度、包括阿里巴巴、微信，所有的技术指导是总参三部，所有的是国家安全部。到后来抖音、Zoom全是国家安全委员会全面控制。这是为什么像多维呀，这种基地都在北京的，是共产党的宣传媒体、情报媒体，获取情报的。所以说这个基本的常识，这是共产党作为核武器来用的，你还相信他来给你带来正义？
 
-回应：与Warmbrod等人的评论相反，最近的数据显示，虽然SARS-CoV-2能结合来自不同的动物的ACE2，但hACE2展示最高的和SARS-CoV-2刺突蛋白的亲和力。这是被多种出版物所支持，和不被任何所反对的27-30。Warmbrod等人又一次错误了。
+Also, all the technical guidance for Baidu, Alibaba, and WeChat was from the 3rd Bureau of the PLA’s General Staff Department, and all were under the supervision of the Ministry of National Security. Later, TikTok and Zoom got fully controlled by the National Security Council. This is why things like Duowei News are based in Beijing because they are the CCP’s propaganda media and intelligence media aiming for collecting information. So it is a common sense that it [the media] is used by the CCP as a nuclear weapon. Do you still believe that it [the media] will bring you any justice?
 
-**第二十，历史上冠状病毒的人畜共患病出现。**
+在美国是更可怕了，那美国扎克伯格、推特，中国…现在看到后面这几十个股东里面现在已经很可怕的。我今天告诉大家，四年前的419的时候，共产党是用政治新闻、广告新闻、或者蓝金黄新闻，来影响和打击他的敌人。但是到今年[有了]本质上的不同，共产党已用国家的已经是叫做什么？真正的共产党的国家力量已经成为了“武器新闻”。武器新闻——推特、Facebook、Google、Zoom、抖音、香港所有的媒体、微信、百度，全面控制。 你看共产党有多危险，你就看媒体你就知道了。
 
-他们提出行36-38:冠状病毒之前已经造成人类疾病，包括SARS 和 MERS,还有很多指向警告指示就是冠状病毒能变成一个严重的问题，没有比SARS-CoV-2之前被注意到。这些事实与作者描述SARS-CoV-2是“智能”是矛盾的，这是目的论和反事实的。
+It’s even more terrifying in the United States. Look at Zuckerberg and Twitter in the United State. China… it’s already very terrifying when you see the dozens of shareholders behind the scene. Today, let me tell you that four years ago (April 19, 2017), the CCP used political news, advertisement news, or BGY’ed news to influence and attack its enemies. But this year, things have changed fundamentally. What they are really doing is to use its national power to weaponize news. The weaponized news media, including Twitter, Facebook, Google, Zoom, TikTok, all the media in Hong Kong, WeChat, Baidu, are all under its control. So if you want to know how dangerous the CCP is, you just look at the media.
 
-回应：Warmbrod等人又一次曲解了闫博士的报告然后制造了这个评论和批评。在报告中，词语“智能”不是被用于描述SARS-CoV-2病毒，相反地用于描述不寻常的方式SARS-CoV-2 RBM类似于SARS RBM –拥有所有关键的密码子被保留，还有大多数的不是基本的密码子被改变。闫博士的准确言语是：“随机的基因突变应当已经发生，然后才产生了RBM现在这种形式－类似于*SARS-CoV RBM**，以一种高度智能的方式**“**。*
+世界的媒体在这短短的四年里，被共产党已经用金钱合法控制。也就是说沼泽地，世界的沼泽地，以犹太人为主的金融力量和媒体力量控制着世界，控制着美国，现在有另外一股力量，那就是中国共产党。
 
-闫博士描述是设计智能，而非病毒。在这里的描述是准确和基于事实的，而不是违背事实的。更多地，其它的冠状病毒在过去造成了人类疾病，不能自动地取消SARS-CoV-2是一个功能增强（gain-of-function）工作的产品的可能性。这个Warmbrod等人的评论在这里缺少基本的逻辑。
+In these short four years, the world’s media has been legally controlled by the CCP with money. In other words, the swampland, the swampland of the world, where Jewish the people dominated  financial and media forces used to control the world and control the United States, have now been joined by another force – the Chinese Communist Party.
 
-**第二十一，缺少关于冠状病毒功能性增加研究的证据**
+今天可怕的事情， 这些媒体的力量已经不是美国一家说了算，共产党在利用这些媒体，正在干着新疆大屠杀、西藏大陷害、香港大屠杀、台湾大恐惧，都在被媒体有选择地屏蔽掉，这才是可怕的。
 
-他们提出行2：一些冠状病毒功能增强研究已经被发表，但是作者关于大量文献的描述在这个领域，过度描述已知的数量。涉及到的论文支持不了作者关于这样的研究导致人类胜任病毒的宣称。一个论文，Ren等人,35插入类SARS-CoV的所有刺突蛋白基因进入一个病毒骨架，然后没有使用整个SARS病毒或者感染的动物。
+What’s really terrifying today is that the US is no longer the only power behind the media. The CCP is using the media to mask its Xinjiang Massacre, the Tibet Massacre, the Hong Kong Massacre, and the Taiwan Terror. These things are all being selectively blocked by the media. And this is terrifying!
 
-回应：闫博士这里引用去证明观点的代表性的参考物，没有反对闫博士功能增强研究的证据是丰富的描述。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=607d815f7e083973a72b95be](https://gtv.org/video/id=607d815f7e083973a72b95be) (1:42:58-1:46:14, 1:48:31-1:48:58)
+鸣谢：感谢喜联盟七哥直播组提供中文文本于[https://www.gnews.org/zh-hans/1125087/](https://www.gnews.org/zh-hans/1125087/)
 
-更多这样的参照物已经在章节2.2 步骤1的报告1.被提供。证据不可否认地证明有关冠状病毒的病毒增强性研究已经被重复地进行和涉及到的技术是成熟和很好被确立的。Ralph Baric也评论，基本他对文献的知识，“你可以不留痕迹地编辑一个冠状病毒“17.当支持文献是完整且坚定地，它可以被认为丰富。虽然不是所有发表物都使用SARS作为骨架和或者感染整个动物，所有这些研究已经产生，可以用于感染人类细胞或者携带人类ACE2接收者的细胞的新型冠状病毒。这些重组的病毒有感染人类的潜力，没有什么但是是证据。
+* * *
 
-审核：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
+字幕：【Rock小哥】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-- [【闫丽梦博士铿锵有力回应“审阅者“】第一篇](https://gnews.org/zh-hans/1116291/)
-[【闫丽梦博士铿锵有力回应“审阅者“】第二篇](https://gnews.org/zh-hans/1116349/)
-[【闫丽梦博士铿锵有力回应“审阅者”】第三篇](https://gnews.org/zh-hans/1116385/)
-[【闫丽梦博士铿锵有力回应“审阅者”】第四篇](https://gnews.org/zh-hans/1131764/)
-[【闫丽梦博士铿锵有力回应“审阅者”】第五篇](https://gnews.org/zh-hans/1131822/)
-[【闫丽梦博士铿锵有力回应“审阅者”】第六篇](https://gnews.org/zh-hans/1131860/)
-[【闫丽梦博士铿锵有力回应“审阅者”】上一篇](https://gnews.org/zh-hans/1131886/)
-【闫丽梦博士铿锵有力回应“审阅者”】续下一篇
-
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
-
-0
++2
