@@ -1,53 +1,234 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共剑指特斯拉，意欲何为？
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1132644/)
+## 参议员兰德·保罗(Rand Paul)谈福奇博士和他的精英主义
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1132958/)
 
-作者：纽约香草山健身部 Ivy001
+内容：
 
+参议员兰德·保罗(Rand Paul)：
 
+The liberal elites. He thinks that common man is not smart enough to make decisions,
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+自由派精英。他认为普通人不够聪明，不会做决定
 
+so he will make decision for you.
 
+所以他会帮你做决定
 
-4月19日，在上海车展闹得沸沸扬扬的所谓特斯拉维权事件中，中共国《人民日报》和中共政法委“长安剑”先后发表文章，指责特斯拉“店大欺客”，必须受到中共国的监管。4月22日，特斯拉发布事故车辆发生事故前30分钟的数据，并得出结论，就是特斯拉不仅没有刹车失灵，反而是超速车主一家的救命恩人。随后，网上马上传开对特斯拉修改数据的质疑。4月23日，特斯拉澄清，相关行车数据采用加密技术记录，无法直接读取、修改或是删除。
+But in the process he may have to tell you a few lies,
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-432.png)CCTV新闻截图
+但在这个过程中他可能不得不对你撒几个谎
 
-当天晚上，维权女车主丈夫深夜发声，称特斯拉已侵犯个人隐私权，要求撤销数据并道歉。与此同时，中共国CCTV播出新闻表示，用户产生的数据是企业核心的战略资源，但用户是数据生产者，却无权使用，似乎很不合理。
+because it’s for you, it’s for the better men of mankind.
 
-中共国一手操纵的特斯拉维权事件，至此，终于图穷匕见了。借由CCTV的财经评论，引出了中共国的最终目的：明面上是因华为推出新能源全电车，抢占市场，打压特斯拉；其实是项庄舞剑，意在沛公——中共国是意图逼迫特斯拉交出核心技术，以换取在中共国的平安。
+因为这是“为了你好，为了更好的人类”
 
-众所周知，特斯拉汽车之所以强大，是因为特斯拉拥有星链卫星网络，同时在汽车上运用了大量的航天科技，还有强大的计算能力，现在还要加上一个加密技术。如果特斯拉的核心技术被中共国抢到手，对于中共国的国防技术，可以说是至少快进了十年。说不定，中共国能借此再续命50年。
+These are the sort of noble lives as play-doh set
 
-希望特斯拉以及美国政府能清醒地认识到，这不仅仅是一个简单的维权事件，也不仅仅是一个恶性抢夺市场的商业行为，这是一个剑指美国国防安全的阴谋。中共国的狼子野心，昭然若揭！赶紧行动起来，灭掉 CCP！
+这是一种像是用橡皮泥堆砌的高贵生活
 
-新闻来源：
+and these would be like telling you in the beginning
 
-[新浪财经](http://finance.sina.com.cn/chanjing/gsnews/2021-04-23/doc-ikmxzfmk8556368.shtml)
+这些就像是一开始就告诉你
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+That no masks work.
 
-编辑/校对/发稿：Irene木木
+不用戴口罩
 
-**更多资讯，更多关注**
+Because he didn’t want you to buy the N-95 masks,
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+因为他不想让你买N-95口罩
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+and then later on he told another lie saying
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+后来他又撒了一个谎说
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+all mask works non of  those was truth.
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+所有的口罩都管用
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+N-95 masks do work but all mask don’t work
 
+后来说N-95口罩管用，但其他口罩都不管用
 
+The cloth mask are completely pretend and theatre
 
+这些布口罩完全没用，都是演戏
 
+and so he comes into the senate hearing wearing two cloth mask.
+
+所以他戴着两个布口罩参加参议院听证会
+
+What is he doing is pretending in showing you something
+
+他在做什么是假装给你看什么东西
+
+that the science doesn’t support
+
+科学并不支持
+
+because he still doesn’t want you to buy the N-95 mask,
+
+因为他还是不想让你买N-95口罩
+
+which is the only mask that work
+
+这是唯一有效的口罩
+
+and really they only work in the hospital setting,
+
+实际上，在医院环境下，只有它们（N-95口罩）才管用
+
+when you’re very careful throwing them away,
+
+当你非常小心地把它们扔掉的时候
+
+wear gloves wash your hands before and after are incredibly cautious.
+
+戴上手套，洗手前后都要格外小心
+
+But, if you’re in the hospital
+
+但是，如果你在医院里
+
+and you want to go visit a COVID patient
+
+你想去探望一个新冠病人
+
+or you’re taking care of a COVID patient,
+
+或者你在照顾一个新冠病人
+
+the hospital will not let you enter the room with a cloth mask.
+
+医院不会让你戴布口罩进入房间的
+
+Because they don’t work.
+
+因为它们不起作用
+
+And so it is theatre, he is lying to us,
+
+所以这就是演戏，他在欺骗我们
+
+not because he hates mankind,
+
+不是因为他讨厌人类
+
+but because he thinks he’s smarter than the rest of us
+
+而是因为他认为自己比我们其他人更聪明
+
+and is this elitism？
+
+这是不是精英主义？
+
+the things that the common man can’t make his decision.
+
+那些普通人不能自己做决定
+
+I am the opposite.
+
+我正好相反
+
+I think, every individual American should be given the fact,
+
+我认为，每个美国人都应该得知道真相
+
+that is a disease that thousand times more deadly
+
+这种疾病的致命性对70岁以上的人比25岁以下的人
+
+over age 70 than it is below age 25.
+
+要厉害出一千倍
+
+and you should make your own decisions according to that.
+
+然后人们应该根据这一点自己做决定
+
+according to risk factors
+
+根据危险因素等
+
+and so the elderly without question
+
+对老年人毫无疑问
+
+the Vaccine is a good, is a good thing.
+
+疫苗是件好事，是件好事
+
+Under 25, I think really you have to assess your risk and make your own decision,
+
+在25岁以下，我认为你们真的要评估自己的风险并做出自己的决定
+
+主持人：
+
+as were you at this point of a mass，
+
+就像你说的，在混乱的节骨眼上
+
+is it time to just say Enough for this,
+
+是不是说得太多了，
+
+just take it off and just go live your life?
+
+把它摘下来，然后继续过你的生活？
+
+参议员兰德·保罗(Rand Paul)：
+
+Particularly for those who are vaccinated,
+
+尤其是那些接种了疫苗的人，
+
+or for those who got the disease naturally like I have
+
+或者是那些像我这样自然地感染了这个病毒
+
+a mask of no use their complete theatre
+
+一个毫无用处的口罩，他们整个就是在演戏
+
+even the CDC has admitted these much
+
+就连疾控中心也承认了这一点
+
+the CDC admitted a few weeks ago before they tried to roll back.
+
+疾控中心在几周前承认了这一点，之后他们还试图反悔
+
+they admitted that people vaccinated do not carry the virus are not spreading the virus.
+
+他们承认，接种疫苗的人没有携带病毒，并没有传播病毒
+
+The same is true of those who have been infected,
+
+那些被感染的人也是如此
+
+even Fauci’s institute admitted
+
+就连福奇的研究所也承认
+
+that those who have been infected have robust immunity.
+
+那些被感染的人有强大的免疫力
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频连接: [https://twitter.com/realamvoice/status/1384593964070752258?s=24](https://twitter.com/realamvoice/status/1384593964070752258?s=24)
+
+英听校:康州盘古农场-WZ
+翻译: 康州盘古农场-WZ
+翻译终校: 康州盘古农场-Mike Li
+字幕+视频制作:康州盘古农场-天涯行
+审片: 康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

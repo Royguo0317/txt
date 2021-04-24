@@ -1,43 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【五月花评】从大闹特斯拉展台说开去
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1132235/)
+## 美国《2021战略竞争法》第256节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1133021/)
 
-五月花写作组 ｜ 作者：跟随战神 ｜ 编辑、美工、发布：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/04/五月花评1特斯拉.jpg)
-近日，特斯拉被推上了风口浪尖。事情的起因源于4月19日的上海车展，一名女子站在车顶大喊“特斯拉刹车失灵”。该女子身穿白色T恤，上面印着四个醒目的字“刹车失灵”，下面是特斯拉特有的标志，一个大大的“T”。现场群众纷纷围观，数分钟后女子被安保人员带走。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-据悉，该女子姓张，2月21日下午6时，张女士的父亲驾驶特斯拉Model 3，在看到红灯想停车时发现制动失效，连续追尾两辆车，最终撞到路边的水泥防护栏才停下，车内人员受伤。此后张女士与特斯拉方面陷入争执，特斯拉表示，车辆在踩下制动踏板前的车速为118.5KM/H，未见车辆制动异常。3月9日，张女士于特斯拉店门前**，**手持大喇叭坐到特斯拉Model 3车顶进行维权。
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/CUE.jpg)timesofindia.indiatimes.com
+本节要点：参议院确认的国务院高级官员，领导美国与欧盟等应对中共国的共同行动。共同面临的挑战和问题：中共国的经济挑战；中共国的民主和人权挑战；中共国有关的技术问题；中共国有关的国防问题；中共国的“一带一路倡议”。对抗中共国在世界各地推行独裁统治模式，支持欧洲努力寻找效益成本比高的华为5G技术替代品，与欧盟内的对应实体协调努力，对抗中共国的宣传。跟踪和反击中共国试图在多边论坛（包括在世界卫生组织）施加影响的企图。
 
-本来这是一起普通的消费者和商家之间的纠纷，就像坐在车顶的奔驰女、拉着宝马游行的维权，最终商家和消费者都会达成一致，妥善解决问题。但是，这次张女士大闹特斯拉的事情显然不那么简单，或者说，某些人想利用这个事情达到不可告人的目的。这件事甚至可能和美国与中共国之间的大环境息息相关。
+256 加强跨大西洋合作的战略，合作涉及中共国问题
 
-早在今年2月，中共市场监管总局等五部门约谈特斯拉公司，要求其严格遵守中国法律法规，加强内部管理，落实企业质量安全主体责任，有效维护社会公共安全，切实保护消费者合法权益。作为一个知名企业，合法合规经营是最基本的责任，如果有违法违规行为，依法依规进行处罚也是天经地义。但是，中共市场监管总局等五部门约谈特斯拉的要求有点莫名其妙，这样的约谈怎么看都像是一种警告甚至威胁，其背后或许隐藏着不可告人的目的。
+（a）通常情况 – 不迟于本法颁布之日后90天，总统应向参议院外交关系委员会和军事委员会以及众议院外交事务委员会和军事委员会，简要介绍美国将如何加强与欧盟、北约，以及欧洲伙伴国合作的战略，这些合作涉及应对与中共国的关系。
 
-3月17日，据传蔚来“传销群”罗列了特斯拉的四大原罪：1、不断降价，揭露了蔚来等传销车虚高价格底裤；2、不做广告，得罪了赚广告费的媒体；3、取消了公关部门，得罪了靠刷水贴、删黑贴的网络公关；4、全部直销经营，断了靠4S店、二道贩子卖车人的财路。
+（b）要素 – （a）小节要求的简报应做到以下几点：
 
-让我们一起了解一下蔚来。蔚来是智能电动汽车品牌，2014年11月成立。2020年2月25日，蔚来总部项目落户合肥，合肥市政府对其100亿元战略性投资。 2021年4月15日，中国石化与蔚来汽车签署战略合作协议，推动资源共享，促进互利共赢（以上来自网络公开信息）。先有合肥市政府的100亿元投资，后有中国石化的战略合作，蔚来的背景实力可见一斑。
+（1）确定参议院确认的国务院高级官员，该官员领导美国与欧盟、北约和欧洲伙伴国合作的努力，以推进对中共国的共同行动。
 
-无独有偶，4月19日，华为终端官方微博宣布：华为要卖车了，一款电驱动力强，增程跑得远的首款高性能电驱轿跑SUV，真的来了。同时，另一条消息传遍朋友圈：华为第一辆车来了，目标干翻特斯拉。并宣称，在上海发布首款Huawei inside智能豪华纯电轿车北汽阿尔法S，全系列采用华为快充技术，充电10分钟，可以增加续航197公里。
+（2）确定美国和欧洲伙伴在技术、贸易和经济实践方面，对中共国的政策趋同和分歧的关键点。
 
-相信华为大家都不陌生，是披着民营企业外衣的军方背景。正是因为被美国在芯片上“卡脖子”，导致手机业务大幅下滑，举步维艰，才开始了被迫转型。华为高调进军畜牧业，开创智能化养猪场，有网友调侃：这才是华为的本行。这不，又开始进军汽车行业了。号称充电10分钟，续航197公里。一个靠偷窃、抄袭的公司能够达到这样的顶级水平？真的很让人怀疑。
+（3）描述为促进与欧洲同行在这方面的共同利益所做的努力-
+（A）中共国的经济挑战；
+（B）共国面临的民主和人权挑战；
+（C）中共国有关的技术问题；
+（D）中共国有关的国防问题；以及
+（E）制定一项全面战略，以回应中共国政府建立的“一带一路倡议”。
 
-蔚来和华为面临的竞争对手不可谓不强大。毫无疑问特斯拉是世界上最好的电动车品牌。特斯拉要说排第二，没人敢说排第一。在“刹车失灵”事件中，特斯拉主动提出进行第三方检测就可以证明两点，第一，特斯拉对自己的产品有相当的信心；第二，特斯拉勇于面对，不逃避责任。
+（4）描述国务院和国防部内负责与欧洲伙伴，就中共国问题进行接触的主要地区和职能机构之间的协调机制。
 
-笔者不是阴谋论者，但是大闹展馆的几个细节耐人寻味。第一，张女士通过非常规方式获取证件进入展馆（有人暗地支持）；第二，身穿定制的维权T恤（早已准备好）；第三，在展台周围进行直播（加大宣传）；第四，现场工作人员与展会主办方协商后，才协调安保和公安执法人员劝离车主（主办方的消极）。如果说没有预谋、没有策划、没有背后力量的支持恐怕没有人相信。
+（5）详细介绍截至简报会召开之日所做的外交努力，以及未来与欧洲伙伴合作的计划，以对抗中共国在世界各地推行独裁统治模式。
 
-客观地说，不管是蔚来还是华为，想要和特斯拉一较高下简直是痴人说梦。那么正面干不过就采用歪门邪道，就采用下三滥手段，中共在这方面是绝对的“天才”。所以才有了五部门约谈特斯拉，才有了后面发生的种种。
+（6）详细说明截至该战略提交之日所做的外交努力，以及支持欧洲努力寻找效益成本比高的华为5G技术替代品的未来计划。
 
-当前，中共面临美国政治、经济、军事、金融等方面的巨大压力，正伺机进行反击，企图通过打击美在华企业的利益给美方施压，以换取喘息之机。但中共的如意算盘必定会落空，因为马斯克毕竟是美国著名的企业家、高科技的大佬，同时也是爆料革命的战友，特斯拉在此事的态度非常明确——“决不妥协”！让我们拭目以待。
+（7）详细说明美国的公共外交工具，包括美国国务院的《全球参与中心》（the Global Engagement Center），将如何与欧盟内的对应实体协调努力，以对抗中共国的宣传。
 
-（本文仅代表作者个人观点，与GNews平台无关）
+（8）描述国务院致力于美国和欧盟，就中共国问题进行接触的人员配置和预算资源，并提供执行该战略的年度资源需求评估。
 
-* * *
+（9）详细说明与欧洲伙伴合作的外交努力，以跟踪和反击中共国试图在多边论坛（包括在世界卫生组织）施加影响的企图。
 
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+（c）表格 -（a）节要求的简报应保密。
 
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+（d） 咨询 – 不迟于本法颁布之日后90天，此后每隔180天，国务卿应就战略的制定和实施，与适当的国会委员会进行磋商。
+（本节完）
 
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+原文链接：
+
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+
+文字整理：
+
+SEC. 256. STRATEGY TO ENHANCE TRANSATLANTIC COOPERATION WITH RESPECT TO THE PEOPLE’S REPUBLIC OF CHINA.
+
+(a) IN GENERAL. — Not later than 90 days after the date of the enactment of this Act, the President shall brief the Committee on Foreign Relations and the Committee on Armed Services of the Senate and the Committee on Foreign Affairs and the Committee on Armed Services of the House of Representatives on a strategy for how the United States will enhance cooperation with the European Union, NATO, and European partner countries on managing relations with the People’s Republic of China.
+
+(b) ELEMENTS. — The briefing required by subsection (a) shall do the following:
+
+(1) Identify the senior Senate-confirmed Department of State official that leads United States efforts to cooperate with the European Union, NATO, and European partner countries to advance a shared approach with respect to the People’s Republic of China.
+
+(2) Identify key policy points of convergence and divergence between the United States and European partners with respect to the People’s Republic of China in the areas of technology, trade, and economic practices.
+
+(3) Describe efforts to advance shared interests with European counterparts on—
+
+(A) economic challenges with the People’s Republic of China;
+
+(B) democracy and human rights challenges with respect to the People’s Republic of China;
+
+(C) technology issues with respect to the People’s Republic of China;
+
+(D) defense issues with respect to the People’s Republic of China; and
+
+(E) developing a comprehensive strategy to respond to the Belt and Road Initiative (BRI) established by the Government of the People’s Republic of China.
+
+(4) Describe the coordination mechanisms among key regional and functional bureaus within the Department of State and Department of Defense tasked with engaging with European partners on the People’s Republic of China.
+
+(5) Detail diplomatic efforts made up to the date on which the date of the briefing and future plans to work with European partners to counter Chinese advancement of an authoritarian governing model around the world.
+
+(6) Detail the diplomatic efforts made up to the date on which the strategy is submitted and future plans to support European efforts to identify cost effective alternatives to Huawei’s 5G technology.
+
+(7) Detail how United States public diplomacy tools, including the Global Engagement Center of the Department of State, will coordinate efforts with counterpart entities within the European Union to counter Chinese propaganda.
+
+(8) Describe the staffing and budget resources the Department of State dedicates to engagement between the United States and the European Union on the People’s Republic of China and provide an assessment of out-year resource needs to execute the strategy.
+
+(9) Detail diplomatic efforts to work with European partners to track and counter Chinese attempts to exert influence across multilateral fora, including at the World Health Organization.
+
+(c) FORM. — The briefing required by section (a) shall be classified.
+
+(d) CONSULTATION. — Not later than 90 days after the date of the enactment of this Act, and every 180 days thereafter, the Secretary of State shall consult with the appropriate congressional committees regarding the development and implementation of the strategy.
 
 0

@@ -1,11 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】纳瓦罗：中共计划用区块链征服世界
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1132779/)
+## 【路德简报】4/23/2021早：FCC修改规则开启剿灭中共大外宣的行动
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1133057/)
 
-4/14/2021 中共的2025计划就是要占领世界，他们要找出10个他们希望能够控制的经济领域，其中之一就是区块链技术，这是他们的终极恐怖武器；他们为此设立了千人计划、数学家计划以及其他计划；他们也许有一天会破解比特币。
+**编辑：华盛顿DC农场 路德简报项目组**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2021-4-23-2-scaled.jpg)
 
-By： 【秘密翻译组 G-Translators】
+
+> 2021 年 4月23日 路德时评 
+> 
+> 1. FCC修改规则开启剿灭中共大外宣的行动 
+> 
+> 2.中共发动宣传战 攻击特斯拉公司 [pic.twitter.com/Z5J8BWKD74](https://t.co/Z5J8BWKD74)
+> — 平民爆料 (@WM18320321) [April 24, 2021](https://twitter.com/WM18320321/status/1385786756335869955?ref_src=twsrc%5Etfw)
+
+
 
 0

@@ -1,125 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第255节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1132749/)
+## 中共太空计划 13000个卫星构建巨星星座
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1133049/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+翻译:康州盘古农场 – Layka
+校对:康州盘古农场 – 蓝精灵
+编辑:康州盘古农场 –蓝精灵
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/EUC.jpg)vestnikkavkaza.net
-本节进入“副标题C——应对中共国的区域战略”的“第二部分——跨大西洋联盟”，从第255节开始。
+据《www.spacenews.com》作者：安德鲁·琼斯（Andrew Jones）2021年4月21日报道
+![]()![](https://gnews.org/wp-content/uploads/2021/04/AFB48CA8-65BA-4AF4-8FCE-BE3475F46A93.jpeg)*电信服务的卫星覆盖范围图示。 出处：欧洲航天局(ESA)-科学处*
+赫尔辛基和中共国将协调主要太空参与者国家，来监督和参与中共国国家卫星互联网巨型星座的建设和运营。
 
-本节要点：美国、欧盟和欧洲国家是亲密的伙伴，它们有着基于民主、人权、透明度和二战后建立的、以规则为基础的国际秩序的共同价值观。如果没有美国、欧洲各国的共同努力，中共国将继续增加其在欧洲的经济、政治和安全的影响力。美国、欧盟和日本应继续三方的努力，应对中共国提出的经济挑战。美国、欧洲各国应加强合作，打击中共国的造谣、影响行动和宣传工作。美国和欧洲国家对中共国政府支持和执行的镇压表示严重关切，并应继续采取措施解决中共国政府在西藏、香港和新疆的特别侵害，并应建立联合机制和方案，防止中共国威权治理模式向世界各国输出。中共国在世界各地的基础设施投资，特别是在5G电信技术和港口基础设施方面的投资，可能威胁整个欧洲的民主和关键国家的国家安全。
+高级官员最近的评论表明，改变太空部门的国有企业的早期星座计划，目前正在推进中。这些计划可能被纳入更大的“国网”或“国家网络”卫星互联网项目。
 
-第二部分——跨大西洋联盟
+去年9月，中共国提交给国际电信联盟（ITU）的频谱分配文件显示，计划建造两个类似的“ GW”低地球轨道星座，总计12992颗卫星。
 
-第255节 跨大西洋的国会意识
+档案显示，GW的计划包括子星座，高度在500-1145公里之间，倾斜度在30-85度之间，卫星将在一定频带范围内运行。
 
-国会认为 –
+中国主要的太空承包商，中国航空航天科学技术公司（CASC）的高级官员鲍为民，3月7日在接受《上海证券报》采访时，首次公开承认了超级星座计划：“我们正在计划和开发天基互联网卫星，并已经发射了测试卫星。”鲍补充说，“还将建立一个“国家网络”（国网）公司，负责卫星互联网建设的总体规划和运营。”
 
-（1）美国、欧盟和欧洲国家是亲密的伙伴，它们有着基于民主、人权、透明度和二战后建立的以规则为基础的国际秩序的共同价值观；
+周一，中国航空航天科学技术公司的子公司之一，中国航天卫星有限公司的董事长葛玉军，告诉《澎湃新闻》，国有巨头姐妹集团（1）中国航天飞机集团和（2）中国航天科技和工业公司（CASIC），之前开发的红岩和宏运宽带星座将被修改并纳入新计划中。葛说，“国家有关部门”正在对星座建设进行总体规划，而且他了解到红岩和中国航天科技和工业公司的宏运原始计划将“经历重大变化”。
 
-（2）如果没有美国、欧盟和欧洲各国在互联互通、贸易、跨国问题以及支持民主和人权方面的共同做法，中共国将继续增加其在欧洲的经济、政治和安全的影响力；
+这两个星座都是在2018年左右宣布的，由数百颗低地球轨道的通信卫星组成。此后，发射了一些技术验证卫星。中国航天科技和工业公司计划在2022年之前将60颗红岩卫星送入轨道。
 
-（3）在中共病毒疫情爆发后，中共国向欧洲国家提供援助，显示了一种强制性的援助方式，但也突显了欧洲与中共国深厚的经济联系；
+评论表明，旧的星座可能被纳入新的，更大的“国家网络”项目的一部分。目前尚不清楚该项目将如何进行，但卫星互联网的发展已成为国家优先事项。中国国家发展和改革委员会（NDRC）于2020年4月将“卫星互联网”添加到“新基础设施”列表中。最近批准的2021-2026年的第十四个五年计划和“到2035年的长期目标也注明了”呼吁建立一个综合的通信网络， 地球观测和导航卫星。
 
-（4）在欧洲各国寻求从中共病毒疫情造成的经济损失恢复之际，美国必须与欧洲结成伙伴关系，支持我们的集体经济复苏，加强我们的集体国家安全，捍卫这些共同价值观；
+中共国已经建设了北斗导航定位系统，并正在为中国高分辨率地球观测系统（CHEOS）部署高分卫星。此外，私有企业星系空间(Galaxy Space)于2020年推出了银河1号，以测试Q / V和Ka频段通信。今年早些时候，北京通信卫星技术发展有限公司获得中国互联网投资基金（CIIF）的政府的资助，用于卫星的研究和产业化。如果有的话, 尚不清楚这类公司将在国家网络项目中扮演什么角色。
 
-（5）美国、欧盟和其他欧洲国家应就联合战略进行协调，使对中共国以外供应链的依赖多样化，特别是在医疗和制药部门；
+安全世界基金会（Secure World Foundation）私人部门计划主管伊恩·克里斯坦森（Ian Christensen），认为“GW”或国家网络项目有可能为中共国实现许多目标。这些措施包括支持国内技术和经济发展目标，并为中共国的软实力外交和区域领导工作做出贡献。克里斯坦森说，“星座的发展也将提供国内就业，锚定空间相关的产业集群，并通过满足和促进家庭连通性需求为经济发展做出贡献，” 他补充说，该项目还可以用作软实力的工具，是一带一路倡议或附近地区外交努力的一部分。
 
-（6）美国、欧盟、英国和欧洲各国应利用各自的经济创新能力，支持全球经济从中共病毒的衰退中复苏，与中共国的中央集权经济截然不同；
+诸如SpaceX的Starlink和OneWeb之类的星座已经在进行中，亚马逊本周为其Atlas 5的Kuiper宽带卫星订购了任务。GW星座计划的开展，将更迫切要求解决与巨型星座部署相关的问题（包括空间碎片和空间交通管理等）带来了更大的紧迫性。
 
-（7）美国和欧盟应加快努力缓和贸易争端，包括谈判达成一项有利于美国和欧盟工人，以及更广泛经济的、美国-欧盟贸易协定；
+克里斯坦森说, “我个人将认真考虑成功部署GW星座的可能性。计划是紧迫的，并应进一步被强调，完善在部署和运行大型星座方面的全球协调方案，”“太空安全是美中两国分享共同利益的领域, 包括政府和私营部门行为者，但总体地缘政治趋势却使有意义的对话充满挑战。”
 
-（8）美国、欧盟和日本应继续三方的努力，应对中共国提出的经济挑战；
+计划中的和正在发展的巨型星座，引起人们对轨道碎片风险增加的担忧。低地球轨道上越来越多的卫星也对目前太空生态状况构成威胁。
 
-（9）美国、欧盟和欧洲各国应加强合作，打击中共国的造谣、影响行动和宣传工作；
+原文链接：https://spacenews.com/china-is-developing-plans-for-a-13000-satellite-communications-megaconstellation/
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-（10）美国和欧洲国家对中共国政府支持和执行的镇压表示严重关切，并应继续采取措施解决中共国政府在西藏、香港和新疆的特别侵害，并应建立联合机制和方案，防止中共国威权治理模式向世界各国输出；
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-（11）美国和欧洲国家应该在共同的价值观上保持一致，反对恐怖主义中共国政府试图在联合国和其他多边组织，推动破坏《世界人权宣言》（the Universal Declaration of Human Rights）的努力，如“人类共同未来共同体”和“国际关系民主化”；
 
-（12）中共国在世界各地的基础设施投资，特别是在5G电信技术和港口基础设施方面的投资，可能威胁整个欧洲的民主和关键国家的国家安全；
-
-（13）美国应酌情与欧洲盟国和伙伴分享有关华为5G能力的情报，以及中共国政府在欧洲5G扩张的意图；
-
-（14）欧盟投资筛选条例于2020年10月生效，这是一个可喜的发展，成员国应通过自己的国家投资筛选措施，严格审查中共国在本国的投资；
-
-（15）总统应积极与欧盟接触，执行《出口管制改革法》（the Export Control Reform Act）条例，并努力使该法条例与欧盟的优先事项保持一致；
-
-（16）总统应大力提倡根据瓦森纳安排（the Wassenaar Arrangement），将更多的物品和技术列入清单，以限制向中共国出口国家安全及以上级别管制的军民两用物品和技术；
-
-（17）美国应对建立一个类似于多边出口管制协调委员会（CoCom）机构的价值进行探讨和评估，这个机构将专门协调美国和欧盟对中共国敏感技术的出口；以及
-
-（18）美国应该与欧洲的同行合作，以-
-
-（A）评估美国和欧洲对中共国商品的过度依赖，包括在医疗和制药领域，并制定联合战略，使供应链多样化；
-
-（B）反击中共国利用中共病毒相关援助，作为胁迫性工具向发展中国家施压的努力，提供美国和欧洲的相关专门的知识和援助；以及
-
-（C）利用美国和欧洲的私营部门推动后中共病毒时期的经济复苏。
-
-（本节完）
-
-原文链接：
-
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
-
-文字整理：
-
-PART II—TRANSATLANTIC ALLIANCE
-
-SEC. 255. SENSE OF CONGRESS ON THE TRANSATLANTICALLIANCE.
-
-It is the sense of Congress that—
-
-(1) the United States, the European Union, and countries of Europe are close partners, sharing values grounded in democracy, human rights, transparency, and the rules-based international order established after World War II;
-
-(2) without a common approach by the United States, European Union, and countries of Europe on connectivity, trade, transnational problems, and support for democracy and human rights, the People’s Republic of China will continue to increase its economic, political and security leverage in Europe;
-
-(3) the People’s Republic of China’s deployment of assistance to European countries following the COVID–19 outbreak showcased a coercive approach to aid, but it also highlighted Europe’s deep economic ties to China;
-
-(4) as European states seek to recover from the economic toll of the COVID–19 outbreak, the United States must stand in partnership with Europe to support our collective economic recovery and reinforce our collective national security and defend these shared values;
-
-(5) the United States, European Union, and other European countries should coordinate on joint strategies to diversify reliance on supply chains away from the People’s Republic of China, especially in the medical and pharmaceutical sectors;
-
-(6) the United States, European Union, United Kingdom, and the countries of Europe should lever age their respective economic innovation capabilities to support the global economic recovery from the COVID–19 recession and draw a contrast with the centralized economy of the People’s Republic of
-
-China;
-
-(7) the United States and European Union should accelerate efforts to de-escalate their trade disputes, including negotiating a United States-European Union trade agreement that benefits workers and the broader economy in both the United States and European Union;
-
-(8) the United States, European Union, and Japan should continue trilateral efforts to address economic challenges posed by the People’s Republic of China;
-
-(9) the United States, European Union, and countries of Europe should enhance cooperation to counter Chinese disinformation, influence operations, and propaganda efforts;
-
-(10) the United States and European nations share serious concerns with the repressions being supported and executed by the Government of China, and should continue implementing measures to address the Government of China’s specific abuses in Tibet, Hong Kong, and Xinjiang, and should build joint mechanisms and programs to prevent the export of China’s authoritarian governance model to countries around the world;
-
-(11) the United States and European nations should remain united in their shared values against
-
-attempts by the Government of China at the United Nations and other multilateral organizations to promote efforts that erode the Universal Declaration of Human Rights, like the ‘‘community of a shared future for mankind’’ and ‘‘democratization of international relations’’;
-
-(12) the People’s Republic of China’s infrastructure investments around the world, particularly in 5G telecommunications technology and port infrastructure, could threaten democracy across Europe and the national security of key countries;
-
-(13) as appropriate, the United States should share intelligence with European allies and partners on Huawei’s 5G capabilities and the intentions of the Government of China with respect to 5G expansion in Europe;
-
-(14) the European Union’s Investment Screening Regulation, which came into force in October 2020, is a welcome development, and member states should closely scrutinize Chinese investments in their countries through their own national investment screening measures;
-
-(15) the President should actively engage the European Union on the implementation of the Export Control Reform Act regulations and work to align the law’s regulations with European Union priorities;
-
-(16) the President should strongly advocate for the listing of more items and technologies to restrict dual use exports controlled at the National Security and above level to the People’s Republic of China
-
-under the Wassenaar Arrangement;
-
-(17) the United States should explore the value of establishing a body akin to the Coordinating Committee for Multilateral Export Controls (CoCom) that would specifically coordinate the export of United States and European Union sensitive technologies to the People’s Republic of China; and
-
-(18) the United States should work with counterparts in Europe to—
-
-(A) evaluate United States and European overreliance on Chinese goods, including in the medical and pharmaceutical sectors, and develop joint strategies to diversify supply chains;
-
-(B) counter Chinese efforts to use COVID–19-related assistance as a coercive tool to pressure developing countries by offering relevant United States and European expertise and assistance; and
-
-(C) leverage the United States and European private sectors to advance the post COVID–19 economic recovery.
 
 0
