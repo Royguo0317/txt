@@ -1,29 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CBN：中共国是世界上最糟糕的人权迫害国
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1133302/)
+## 【信仰之声】古代中国的上帝
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1133543/)
 
-**摘要：在美国国际宗教自由委员会于2021年4月22日发布年度报告之后，CBN新闻采访该委员会副主席托尼·帕金斯先生，谈中共国迫害人权的问题。他谴责中共国，这个世界上有着最糟糕的人权迫害状况的国家向世界输出镇压人民的科技。**
+作者：纽约香草山福音组    繁星
 
-CBN:  We’re joined now by Family Research Councils Tony Perkins, Tony Perkins is also Vice  Chair of the Commission (USCIRF) behind today’s report. Tony, welcome, good to have you with us. What is the overall takeaway from this year’s report? Commissioners, they do seem to be united on condemning China.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
 
-CBN：现在我们邀请到了家庭研究委员会的托尼•帕金斯。托尼•帕金斯也是今天这份报告的委员会副主席。托尼，欢迎您能来这里。今年报告的要点是什么？委员们似乎都一致谴责中[共]国。
 
-Tony: Yeah, certainly China is at the top of the list. It’s been a bad actor for some time, but believe it or not, they seem to be getting worse. The big concern that we have about China is the exportation of their repressive techniques and even their technology that they used to do that. Of course, it’s been a little bit more in the forefront as of late where we see many US major corporations being coopted or working in concert with China, free to do business with them when in fact, you know, China is incarcerating using forced labor. Some of these American companies are benefiting from that forced labor while at the same time preaching social justice here in the United States, the hypocrisy, pretty pretty strong.
 
-是的，中[共]国当然在榜单上名列前茅。一段时间以来，中[共]国的行为一直遭人诟病，但信不信由你，尤其在我们所担忧的，关于中[共]国输出他们的镇压人民的科技，甚至是他们使用过的技术，在这些问题上他们似乎变得越来越糟糕。当然，到最近为止，我们看到很多美国大公司被中国拉拢或与中[共]国合作，和他们随便做生意，而在中[共]国实际上强迫被监禁的人劳动。一些公司一方面从这些强制劳动的生产中获益，另一方面却又同时在美国宣扬社会公义 — 这种显而易见的虚伪是令人震惊的。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片51-1.png)图片来源：维基百科
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://www.youtube.com/watch?v=IgcbcDs29WA](https://www.youtube.com/watch?v=IgcbcDs29WA) (0:00-1:07)
+自从成为一名基督徒，曾问过自己，我们的先祖信奉谁。平常我们所说的上天、天是否是《圣经》所描述的那位神。
 
-* * *
+我们知道主耶稣诞生之前为主前（公元前），之后为主后（公元后）。公元前5、6世纪有了佛教、道教、儒家思想。而中国有历史记载的大约一共有4500年历史，那么公元前6世纪到公元前2500年之间，我们华夏子孙又是敬拜谁的呢？
 
-听写 & 翻译 & 字幕：【奔腾的长江】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+从司马迁，一位中国著名的史学家所著的《史记》可了解到有一位叫黄帝的王，他大概诞生在2500BC-2400BC之间，他可是我们华夏子孙的始祖。黄帝在山东泰山筑了一座坛来祭拜上天。同时《史记》（卷28，封禅书，第六章）也记载了“上帝者，天之别名也，神无二主 ”。《圣经》的旧约里对神的描述也印证了这点，上帝是我们的唯一真神。
+
+在《大明会典》里记载的有一段歌谣：“于昔洪荒之初，混蒙；五行未运兮，两曜未明；其中挺立兮，有无容声；神皇出御兮，始判浊清；立天立地兮，群物生生。”而旧约创世纪第一章神创造宇宙万物的描述就很好地解释了这段歌谣。
+
+那我们再来看看北京天坛公园的祈年殿，里面供着一个牌位，写着“皇天上帝”。与别的庙宇不同的是，这里没有供奉偶像，只有上帝的一个牌位。这同时也印证了《圣经》上神所指示的不要为他立任何塑像或图像。古代的皇帝在帝都的郊外都要筑坛祭天，由皇帝行使祭司的职位。这与旧约里记载的祭拜上帝时祭司所执行的职责是相似的。
+
+如果我们仔细寻找，观察的话可以找出很多的证据来佐证我们中国古代一直所敬拜的上天上帝就是我们圣经上所记载的神，那位唯一至高无上的真神。
+
+联想到今天我们所面临的大流行病，这个隐形的敌人使人们不知不觉中与神远离。就像不久前才过去的一年一度的复活节，很多人因避免感染病毒而不能参加，时间长了人们对此也就习以为常。魔鬼总是在鬼鬼祟祟地施展他的伎俩，让人猝不及防。
+
+最近班农先生他们在warroom 节目里谈到的关于西方世界的信仰与国家兴旺之间的关系，当一个国家教会健康，充满活力，基督教广泛传播时，国家就会兴旺，但当教会衰弱或腐败时，国家也会腐败，如果你留意每个世纪，都会有这种现象。联想到中国历朝历代也是同样的现象，当人们敬拜上天，远离撒旦的诱惑，就会得到上天的赐福而兴盛，反之则衰败。
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

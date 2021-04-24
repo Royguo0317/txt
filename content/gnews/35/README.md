@@ -1,63 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】民营企业家兼人大代表实名举报中共海关敲诈勒索，隔日即被带走并刑拘
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1133134/)
+## CBN：中共国是世界上最糟糕的人权迫害国
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1133302/)
 
-**作者：纽约香草山农场 乱谈秦**
+**摘要：在美国国际宗教自由委员会于2021年4月22日发布年度报告之后，CBN新闻采访该委员会副主席托尼·帕金斯先生，谈中共国迫害人权的问题。他谴责中共国，这个世界上有着最糟糕的人权迫害状况的国家向世界输出镇压人民的科技。**
 
-2021年4月18日，中共国河南民营企业家、南阳市镇平县人大代表罗天佑以视频和文字等方式，通过论坛、抖音等平台实名公开举报内蒙古海拉尔海关缉私分局王久军等8人敲诈勒索，19日起陆续有中共地方媒体记者跟进报道。罗天佑本人在举报视频中称：“现实名举报海拉尔海关缉私分局王久军等8人，在镇平县野蛮执法、敲诈勒索、索取贿赂的违法行为，请求各位领导、新闻媒体予以关注，彻查王久军等人的犯罪行为。”
+CBN:  We’re joined now by Family Research Councils Tony Perkins, Tony Perkins is also Vice  Chair of the Commission (USCIRF) behind today’s report. Tony, welcome, good to have you with us. What is the overall takeaway from this year’s report? Commissioners, they do seem to be united on condemning China.
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture2-6.jpg)
+CBN：现在我们邀请到了家庭研究委员会的托尼•帕金斯。托尼•帕金斯也是今天这份报告的委员会副主席。托尼，欢迎您能来这里。今年报告的要点是什么？委员们似乎都一致谴责中[共]国。
 
-罗天佑，57岁，南阳天莹工艺品有限公司总经理和实际控制人，从事玉石行业30多年，公司交其32岁的儿子具体经营并任法定代表人。经查询中共官方平台，该公司成立于2006年9月19日，法定代表人罗督，经营范围包括玉石等加工、销售和进出口业务。玉石加工是镇平县的支柱产业，玉石原料多从俄罗斯经海拉尔海关进口到国内。
+Tony: Yeah, certainly China is at the top of the list. It’s been a bad actor for some time, but believe it or not, they seem to be getting worse. The big concern that we have about China is the exportation of their repressive techniques and even their technology that they used to do that. Of course, it’s been a little bit more in the forefront as of late where we see many US major corporations being coopted or working in concert with China, free to do business with them when in fact, you know, China is incarcerating using forced labor. Some of these American companies are benefiting from that forced labor while at the same time preaching social justice here in the United States, the hypocrisy, pretty pretty strong.
 
-据中共华商报19日消息称，3月31日上午，内蒙古海拉尔缉私分局王久军等8人身着便装，在无执法证件的情况下，以涉嫌走私普通货物案为由，到该公司搜查办公室、没收手机、限制人身自由、卸走电脑硬盘、扣压账册、冻结账户。罗天佑说，当天，王久军让其承认走私，并暗示将公司转到合作账户上的1000万元保证金转给他，承诺事后减轻相应的刑事处罚。
+是的，中[共]国当然在榜单上名列前茅。一段时间以来，中[共]国的行为一直遭人诟病，但信不信由你，尤其在我们所担忧的，关于中[共]国输出他们的镇压人民的科技，甚至是他们使用过的技术，在这些问题上他们似乎变得越来越糟糕。当然，到最近为止，我们看到很多美国大公司被中国拉拢或与中[共]国合作，和他们随便做生意，而在中[共]国实际上强迫被监禁的人劳动。一些公司一方面从这些强制劳动的生产中获益，另一方面却又同时在美国宣扬社会公义 — 这种显而易见的虚伪是令人震惊的。
 
-4月1日，罗天佑父子被带到镇平县公安局接受讯问，扣留一天一夜，连续审问长达8个小时，同时被恐吓“不是你说你无罪就无罪，我说你有罪就有罪”、“能判你5年，绝对不让蹲你4年11个月出来”，第二天罗督被刑拘，罗天佑因是人大代表暂时躲过；4月2日，公司报关员在满洲里被刑拘；4月9日上午10点，公司翻译在上海浦东机场被扣留，公司被要求缴纳100万元取保候审保证金，经讨价还价，最后被迫以30万元成交；4月14日早上，王久军等在湖北将与公司有业务往来的客户殷某扣留，公司也被要求缴纳100万元保证金，多次讨价还价后，最终缴纳了10万元。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://www.youtube.com/watch?v=IgcbcDs29WA](https://www.youtube.com/watch?v=IgcbcDs29WA) (0:00-1:07)
 
-罗天佑透露，缉私警在没有调查出有效证据的情况下，通过镇平县当地中间人多次来疏通。“让我们承认走私，就说可以少罚一点，大事化小，这个事就了了，可以不再追究。”
+* * *
 
-罗天佑称，公司拿出手续税票、报关单等合法有效的全套手续，推翻了王久军称其公司走私的说法。罗天佑发誓说：“我如果走私可以枪毙，但在他们眼里，我做这个生意这么多年了，玉料进口不可能不走私，但我们合法经营从来没有走私。”
+听写 & 翻译 & 字幕：【奔腾的长江】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-罗天佑表示，王久军等人近年来一直在镇平县活动，胁迫威逼、敲诈勒索从事玉料购销人员。“抓一个即缴纳100万，受害人众多，累计敲诈勒索金额多达5000万元以上，造成当地众多企业和个体经营户人心惶惶，背井离乡，严重破坏了当地的营商环境。”罗天佑的公司已被迫停工停产多日。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture3-4.jpg)
-
-据中共海报新闻20日与罗天佑外甥杨先生确认，这20多天的时间，对方一直通过中间人和他们进行协商，证实了罗天佑的举报材料：“罗总你认识个小错就行了，王久军这边也说了，认个小错，然后处罚一点就行了，最多给他们来的8个人打点安排一下就可以了。”
-
-“他们这两年在我们这边尝到甜头了！”杨先生称，“他每次来都是以这种方式，以查走私为名，私底下索要。这种类似的案件，到最后都不了了之了，至少有四五年了。”杨先生表示，他们实名举报之后，当地已经有十几人找到他们表示有过相似的遭遇，愿意出来作证。
-
-另中共天目新闻21日报道，罗天佑多名亲属表示，在此期间他们曾接到很多劝说电话，“随便承认点小问题，受点处罚，打点好来查的这8个人，这个事情就解决了” 。也有亲属表示，由于县里玉石加工原料多经海拉尔海关进口，王久军一行人是镇平县的“熟客”，“经常出现在当地，以查案为由给企业‘扣帽子’，企业出点钱就解决了，好多人敢怒不敢言。”
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture4-2.jpg)
-
-媒体从杨先生处证实，罗天佑公开举报后，19日即被王久军等人带走，20日被刑拘。对此事件海拉尔海关工作人员回应称，此为正常的执法程序。
-
-校对、发稿 奇门遁甲
-
-图片来源：
-
-封面澳洲新闻，插图天目新闻，由受访者提供
-
-新闻来源：
-
-[县人大代表实名举报海关缉私警：转保证金承诺事后可减轻刑事处罚，被举报缉私警回应称是正常办案](https://www.toutiao.com/i6952814085528420894/)
-
-[实名举报海关缉私警敲诈勒索的河南人大代表已被刑拘，涉事海关称督察部门已介入调查](https://www.toutiao.com/a6953243463743701540/)
-
-[县人大代表实名举报缉私警“敲诈勒索” 被拘 官方回应：已成立专案组](https://tm.zjol.com.cn/news.html?id=326610)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![](https://mail.google.com/mail/u/0?ui=2&amp;ik=6ac942a4c5&amp;attid=0.1.1&amp;permmsgid=msg-f:1697211554661162166&amp;th=178db4eab0445cb6&amp;view=fimg&amp;sz=s0-l75-ft&amp;attbid=ANGjdJ_PH9wTHOZCOEEIkNFZhjb-ZFFtwdUe0yjE7Iu64-FComc0sXlAAYLNrXFxbafB_ued5yqZwrcwViS3H_OcwnNHmvN9HXC_Rgs0MmLAka6fjgA8o6u81RvtbHg&amp;disp=emb)
 0

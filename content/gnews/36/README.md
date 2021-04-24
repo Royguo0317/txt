@@ -1,97 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第257、258节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1133136/)
+## 流亡妇科医生揭露中共对维吾尔族妇女强制绝育的细节
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1133263/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+翻译:康州盘古农场 – Layka
+校对:康州盘古农场 – 柯镇恶
+编辑:康州盘古农场 – 心照
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/IC.jpg)activistpost.com
-要点：美国和欧洲应协调努力，解决中共国政府利用联合国推动“一带一路倡议”， 并使之合法化为全球利益的问题。定期报告中共国和伊朗、中共国和俄罗斯之间的合作情况，包括交能源、基础设施、银行、金融、经济、军事和空间合作的主要领域，以及中共病毒疫情对此类合作影响的评估。
+据《www.japan-forward.com》作者：佐藤贵雄( Takao Sato)2021年4月14日报道：
+![]()![](https://gnews.org/wp-content/uploads/2021/04/84D91C07-74F4-4533-AAF2-B5810B0ED6AD.png)*逃往土耳其的卡尔维努·卡马尔（Calvinul Kamal）在一个板上展示她的侄子，并要求释放他的侄子。自2017年以来，他的侄子在新疆维吾尔自治区的首府乌鲁木齐失踪了。（照片：佐藤贵雄）*
+古尔金医生
 
-第257节 加强跨大西洋合作，促进私营部门融资
+土耳其伊斯坦布尔。一名来自新疆维吾尔族，流亡在土耳其的女医生，在接受《产经新闻》采访时，真切地描述了中共国在新疆侵犯人权的行为。
 
-（a）通常情况 – 总统应与跨大西洋伙伴合作，以《发展金融公司》（the Development Finance Corporation）、（加拿大芬德夫金融发展机构）（FinDev Canada）、《欧洲发展金融机构》（the European Development Finance Institutions）（DFI联盟））之间的协议为基础，加强共同目标的协调，以促进私营部门主导的发展，并提供市场导向的替代品，促进新兴市场国家的融资，特别是针对中共国的“一带一路”倡议，包括整合的努力，例如 –
-（1）欧盟连接欧亚战略（the European Union Strategy on Connecting Europe and Asia）；
-（2）三海倡议和三海倡议基金（the Three Seas Initiative and Three Seas Initiative Fund）；
-（3）美国、日本和澳大利亚之间的蓝点网络（the Blue Dot Network）；以及
-（4）一项欧盟 – 日本倡议，已为基础设施项目筹集650亿美元，并强调透明度的标准。
+这位妇女透露，“有段时间，我们进行了大约80例强制绝育外科手术，”这证实了她在自治区进行的这项大规模计划中所扮演的角色。
 
-（b）在联合国的合作 – 美国和欧洲应协调努力，解决中共国政府利用联合国推动“一带一路倡议”，并使之合法化为全球利益的问题，包括中共国与联合国各基金和项目之间关于“一带一路倡议”实施谅解备忘录的扩散。
+中共否认强制绝育，但是国际社会——包括欧盟和美国——都将其视为“种族灭绝”。
 
-（c）标准 – 美国和欧盟应协调和发展一个战略，以加强与经合组织（the OECD）和巴黎俱乐部（the Paris Club）的跨大西洋合作，确保与发展中国家签订“一带一路”的合同及条款的最高可能的标准。
-（本节完）
+47岁的古尔金医生曾在新疆自治区担任过妇科医生。她在2011年移民到了土耳其最大的城市伊斯坦布尔。采访是在那里进行的。
 
-第258节 中共国和伊朗、中共国和俄罗斯之间合作情况的简报和报告
+她说：“很多妇女被装在卡车的后箱，送往医院。”“ [绝育]程序每次大约进行五分钟，但是这些女人都在哭泣，因为她们不知道在自己身上发生了什么。”
 
-（a）合适的国会委员会的定义 – 在本节中，“国会合适委员会”一词是指-
-（1）参议院的情报特别委员会，外交关系委员会，军事委员会，商业、科学和运输委员会，能源和自然资源委员会，银行、住房和城市事务委员会，财政委员会和拨款委员会；以及
-（2）众议院的常设情报特别委员会、外交事务委员会、军事委员会、能源和商业委员会、金融服务委员会、筹款委员会和拨款委员会。
+居尔金本人在自治区首府乌鲁木齐的一家医院被执行了绝育手术。图片显示了（她体内的）T形和U形宫内节育器（IUD）。她解释说：“这些装置是被插入妇女的子宫中的。”
 
-（b）需要的报告和简报 –
-（1）通常情况 – 国家情报总监应在本法颁布之日起180天内，与国务卿、国防部长、商务部长、能源部长、财政部长，以及总监认为合适的其他联邦机构负责人协调，向国会有关委员会提交报告，向国会有关委员会简要介绍中共国与伊朗、中共国与俄罗斯的合作情况。
-（2）内容 – 根据第（1）款提交的报告应包括下列内容：
-（A）确定外交能源、基础设施、银行、金融、经济、军事和空间合作的主要领域 –
-（i）中共国和伊朗之间；以及
-（ii）中俄关系。
-（B）2019年中共病毒疫情对此类合作影响的评估。
-（3）表格 – 根据第（1）款提交的报告应以非保密形式提交，但可包括保密附件。
+根据中共政府的统计，从2014年起，自治区被绝育的居民人数迅速的增长。截至2018年，大约有60,000名男女通过结扎输精管或输卵管而被绝育，其数量大约是2013年的14倍。植入宫内节育器的程序以每年200,000至300,000人的速度进行。截至2017年，约有312万妇女被安装了这种避孕装置，占育龄已婚妇女的60％。
 
-（c）与盟友和伙伴分享的国会意识 – 国会认为，国家情报总监和其他有关联邦部门和机构的负责人应酌情与美国的重要盟友和伙伴分享根据（b）小节提交的报告的调查结果。
+根據中共政府的統計，從2014年起，自治區被絕育的居民人數迅速的增長。截至2018年，大約有60,000名男女通過結扎輸精管或輸卵管而被絕育，其數量大約是2013年的14倍。植入宮內節育器的程序以每年200,000至300,000人的速度進行。截至2017年，約有312萬婦女被安裝了這種避孕裝置，佔育齡已婚婦女的60％。
 
-（本节完）
+根据古尔金的说法，系统性强制不育可能从1980年左右在自治区开始。那是在中共国实行限制生育的“一胎政策”的一年之后。
+
+她说：“我了解这种手术的含义。但是后来我才知道，这是针对维吾尔人的政策。后来我自己也被绝育了。”
+
+因无法忍受在自治区生活而逃往伊斯坦布尔的其他维吾尔族妇女，有时会去找居尔金谈话，抱怨她们自己无法生育。到目前为止，她已经检查了150多人，但许多人不知道他们已经被绝育了。当她向一些妇女解释发生了什么事时，她们开始愤怒地哭泣。
+
+宫内节育器如果在子宫内放置了很长时间，它可能会粘附在周围的组织上，因此很难在不骨折的情况下将其取出。它还可能导致感染和癌症，并且一些妇女会因此产生了心理健康问题。
+
+古尔金认为，中共采取强迫不育政策，是为了将维吾尔人保持在少数地位。由于害怕居住在新疆的亲戚受到迫害，她拒绝透露姓氏或给她照相。
+
+第三个孩子
+
+通过居尔金的介绍，我见到了现年50岁的卡尔文努·卡马尔（Calvinul Kamal），她是一个住在伊斯坦布尔的家庭主妇。
+
+卡玛尔是在2006年7月她生下第三个孩子的当天被绝育的，当时她居住在维吾尔自治区的古尔哈。
+
+由于中共国的人口控制政策，新疆自治区市区不允许生第三胎。由于这个原因，在生下孩子之后，她假装自己是一个哥哥（他只有一个孩子）的妻子。紧接着，她在医院被要求签署一项保证她不会再生一个孩子的保证书，并进行了绝育手术。
+
+卡玛尔说，她感觉好像“这个身体不再是我的了”。她变得抑郁并且病了大约两个月。当她向母亲透露自己被绝育时，令她惊讶的是，她的母亲也被绝育了。然后她发现她的许多朋友也遭遇到了同样的命运。
+
+有一段时间，她的第三个孩子由她的兄弟及其妻子抚养。但是在2009年乌鲁木齐暴动之后，作为特别让步，中共政府暂时放宽了对第三胎的限制。于是卡玛尔贿赂官员，将第三个孩子重新注册为自己的孩子，并夺回了对他的监护权。
+
+“我们在这个国家不受欢迎，这里没有未来”。怀着这样的信念，卡玛尔和她的丈夫于2013年带着三个孩子逃离了中共国。
+
+卡马尔说：“尽管来到了土耳其，但这并不意味着你的烦恼已经结束。” “没有一天，我不想念我的那些被送进集中营的亲戚，而且我在晚上无法入眠。”
+
+卡马尔现在正在努力敦促中共当局释放她的侄子。她的侄子于2017年突然从他在乌鲁木齐的工作地点被带走，此后一直不见踪影。
 
 原文链接：
 
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
 
-文字整理：
 
-SEC. 257. ENHANCING TRANSATLANTIC COOPERATION ON PROMOTING PRIVATE SECTOR FINANCE.
+> [Exiled Gynecologist Reveals Details of China’s Forced Sterilization of Uyghur Women](https://japan-forward.com/exiled-gynecologist-reveals-details-of-chinas-forced-sterilization-of-uyghur-women/)
 
-(a) IN GENERAL. — The President should work with transatlantic partners to build on the agreement among the Development Finance Corporation, FinDev Canada, and the European Development Finance Institutions (called the DFI Alliance) to enhance coordination on shared objectives to foster private sector-led development and provide market-based alternatives to state-directed financing in emerging markets, particularly as related to the People’s Republic of China’s Belt and Road Initiative
 
-(BRI), including by integrating efforts such as—
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-(1) the European Union Strategy on Connecting Europe and Asia;
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-(2) the Three Seas Initiative and Three Seas Initiative Fund;
 
-(3) the Blue Dot Network among the United States, Japan, and Australia; and
 
-(4) a European Union-Japan initiative that has leveraged $65,000,000,000 for infrastructure projects and emphasizes transparency standards.
 
-(b) COOPERATION AT THE UNITED NATIONS. — The United States and Europe should coordinate efforts to address the Government of China’s use of the United Nations to advance and legitimize BRI as a global good, including the proliferation of memoranda of understanding between the People’s Republic of China and United Nations funds and programs on BRI implementation.
-
-(c) STANDARDS. — The United States and the European Union should coordinate and develop a strategy to enhance transatlantic cooperation with the OECD and the Paris Club on ensuring the highest possible standards for Belt and Road Initiative contracts and terms with developing countries.
-
-SEC. 258. REPORT AND BRIEFING ON COOPERATION BETWEEN CHINA AND IRAN AND BETWEEN
-
-CHINA AND RUSSIA.
-
-(a) APPROPRIATE COMMITTEES OF CONGRESS DEFINED. — In this section, the term ‘‘appropriate committees of Congress’’ means—
-
-(1) the Select Committee on Intelligence, the Committee on Foreign Relations, the Committee on Armed Services, the Committee on Commerce, Science, and Transportation, the Committee on Energy and Natural Resources, the Committee on Banking, Housing, and Urban Affairs, the Committee on Finance, and the Committee on Appropriations of the Senate; and
-
-(2) the Permanent Select Committee on Intelligence, the Committee on Foreign Affairs, the Committee on Armed Services, the Committee on Energy and Commerce, the Committee on Financial Services, the Committee on Ways and Means, and the Committee on Appropriations of the House of Representatives.
-
-(b) REPORT AND BRIEFING REQUIRED. —
-
-(1) IN GENERAL. — Not later than 180 days after the date of the enactment of this Act, the Director of National Intelligence shall, in coordination with the Secretary of State, the Secretary of Defense, the Secretary of Commerce, the Secretary of Energy, the Secretary of the Treasury, and such other heads of Federal agencies as the Director considers appropriate, submit to the appropriate committees of Congress a report and brief the appropriate committees of Congress on cooperation between China and Iran and between China and Russia.
-
-(2) CONTENTS. — The report submitted under paragraph (1) shall include the following elements:
-
-(A) An identification of major areas of diplomatic energy, infrastructure, banking, financial, economic, military, and space cooperation—
-
-(i) between China and Iran; and
-
-(ii) between China and Russia.
-
-(B) An assessment of the effect of the Coronavirus Disease 2019 (COVID–19) pandemic on such cooperation.
-
-(3) FORM. — The report submitted under paragraph (1) shall be submitted in unclassified form, but may include a classified annex.
-
-(c) SENSE OF CONGRESS ON SHARING WITH ALLIES AND PARTNERS. — It is the sense of Congress that the Director of National Intelligence and the heads of other appropriate Federal departments and agencies should share the findings of the report submitted under subsection (b) with important allies and partners of the United States, as appropriate.
 
 0

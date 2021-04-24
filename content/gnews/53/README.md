@@ -1,59 +1,234 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】病毒中共造，中共有解药！
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1132693/)
+## 参议员兰德·保罗(Rand Paul)谈福奇博士和他的精英主义
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1132958/)
 
-作者：纽约香草山美食部 遍地开花
+内容：
 
+参议员兰德·保罗(Rand Paul)：
 
+The liberal elites. He thinks that common man is not smart enough to make decisions,
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+自由派精英。他认为普通人不够聪明，不会做决定
 
+so he will make decision for you.
 
+所以他会帮你做决定
 
-“如果你相信我，我拿我的生命向你们保证，你们想活下去，找共产党要解药。在制造这个武器的时候，它就制造出了解药。”
+But in the process he may have to tell you a few lies,
 
-“我不是胡说八道，也不是挑拨离间，我愿承担一切法律责任。”
+但在这个过程中他可能不得不对你撒几个谎
 
-“要想活下去，找共产党要解药、要解药、要解药！”
+because it’s for you, it’s for the better men of mankind.
 
-“没疫苗，永远不会有疫苗，因为它是生化武器，这就是真相！疫苗，是假的，是害人的。谁让别人打，谁强迫（别人）打，谁就是犯罪，就是谋杀。但共产党有解药。Cure！Cure！Cure！解药是什么？共产党掌握着人类的命运！”
+因为这是“为了你好，为了更好的人类”
 
-![]()![](https://media.discordapp.net/attachments/721544615953432698/834987729448075264/image0.png?width=1083&amp;height=609)
+These are the sort of noble lives as play-doh set
 
-这些是从郭文贵先生4月21日盖特视频爆料中摘取的重要部分。文贵先生根据情报正式确定，共产党有病毒解药！因为病毒是中共制造的生物武器。早在2017年，文贵先生就预警世界，黑暗已经来临，中共的潘多拉盒子即将打开。遗憾的是，世界因为忽视文贵先生的警告而付出了惨痛代价。历经四年多的爆料革命，文贵先生对中共的情报能力和掌握之精准得到了世界公认，更因爆料革命不断传播病毒真相和中共威胁世界的邪恶本质，唤醒了美国和世界，赢得了不一样的尊重和信誉。而这些都是无数冒着生命危险的爆料革命战士，用鲜血甚至牺牲换来的，文贵先生不会，也不可能对他所爆料的信息不慎重。对于中共有病毒解药如此重磅的消息，文贵先生敢信誓旦旦用性命作保证，毫无疑问，中共100%有解药。
+这是一种像是用橡皮泥堆砌的高贵生活
 
-中共为什么会有解药？病毒到底是不是中共的生物武器？世人会迫切地追求病毒真相，闫丽梦博士必然会更快走上前台，病毒真相亦会更快地浮出水面，以毒灭共开始进入快车道。那些为了利益不顾自己国人死活，强行推出疫苗的利益集团，这次的爆料对他们来说，某种意义上也是一种宣战。是继续推广疫苗呢？还是向中共索取解药？花了大价钱研发制造的疫苗，刚刚尝到甜头就这么泡汤了？4月22日，文贵先生盖特中说：“我在48小时以前都没想过这世界上会有解药。”这说明文贵先生也是刚刚得知中共有解药的情报不久，经过严肃、认真地验证，确信后马上告诉世界。可见文贵先生的仁义之心和无惧强权的勇气，同时也窥见爆料革命背后实力的冰山一角。那么，这些疫苗利益集团将何去何从呢？他们最终会把自己的过错都算在中共的欺骗上以逃避责任。当下世界悲哀的是，正义的呼声被屏蔽。笔者推特在发推文贵先生的爆料视频后，不到十分钟就被封了。同时，笔者也看到很多新中国联邦的战士因为这次的传播，导致大量推特账号被封或冻结。但是又如何，我们会持续不断的传播下去，战斗下去，死磕到底。
+and these would be like telling you in the beginning
 
-中共当然死不承认他们有解药，那等于承认了病毒是它造的，会被世人扒皮的。但自从文贵先生2017年开启爆料革命以来，中共的底裤就被彻底剥下了，中共哪里还有信誉？而今，没有人再相信他们——人们相信的是新中国联邦。中共为了活命只能不断地去勾兑、求饶。勾兑就消弱了实力——因为得花大钱。当下，世界围剿中共的态势越来越明显，把中共榨干后，他们的死期也就到了。
+这些就像是一开始就告诉你
 
-文贵先生说，新中国联邦是个照妖镜，照出世间的假、丑、恶。笔者觉得，新中国联邦像是阳光下的饵，谁想上来咬一口，基本可以断定其就是中共的势力，将来势必被他们的国家“清理门户”。这会不会是文贵先生说的“一盘大棋”呢？
+That no masks work.
 
-4月6日，文贵先生盖特透露，中南坑知道病毒这关过不去了，讨论是把习一个人推出来顶罪呢，还是拉出几个人来顶雷？由此可见，中南坑还想侥幸、还想苟活。好事，好事，咱们拭目以待，且看这场中共在垂死挣扎中求得“一线生机”的好戏吧。
+不用戴口罩
 
-（本文仅代表作者观点）
+Because he didn’t want you to buy the N-95 masks,
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+因为他不想让你买N-95口罩
 
-编辑/校对/发稿：Irene木木
+and then later on he told another lie saying
 
-**更多资讯，更多关注**
+后来他又撒了一个谎说
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+all mask works non of  those was truth.
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+所有的口罩都管用
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+N-95 masks do work but all mask don’t work
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+后来说N-95口罩管用，但其他口罩都不管用
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+The cloth mask are completely pretend and theatre
 
+这些布口罩完全没用，都是演戏
 
+and so he comes into the senate hearing wearing two cloth mask.
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+所以他戴着两个布口罩参加参议院听证会
 
+What is he doing is pretending in showing you something
 
+他在做什么是假装给你看什么东西
 
-+1
+that the science doesn’t support
+
+科学并不支持
+
+because he still doesn’t want you to buy the N-95 mask,
+
+因为他还是不想让你买N-95口罩
+
+which is the only mask that work
+
+这是唯一有效的口罩
+
+and really they only work in the hospital setting,
+
+实际上，在医院环境下，只有它们（N-95口罩）才管用
+
+when you’re very careful throwing them away,
+
+当你非常小心地把它们扔掉的时候
+
+wear gloves wash your hands before and after are incredibly cautious.
+
+戴上手套，洗手前后都要格外小心
+
+But, if you’re in the hospital
+
+但是，如果你在医院里
+
+and you want to go visit a COVID patient
+
+你想去探望一个新冠病人
+
+or you’re taking care of a COVID patient,
+
+或者你在照顾一个新冠病人
+
+the hospital will not let you enter the room with a cloth mask.
+
+医院不会让你戴布口罩进入房间的
+
+Because they don’t work.
+
+因为它们不起作用
+
+And so it is theatre, he is lying to us,
+
+所以这就是演戏，他在欺骗我们
+
+not because he hates mankind,
+
+不是因为他讨厌人类
+
+but because he thinks he’s smarter than the rest of us
+
+而是因为他认为自己比我们其他人更聪明
+
+and is this elitism？
+
+这是不是精英主义？
+
+the things that the common man can’t make his decision.
+
+那些普通人不能自己做决定
+
+I am the opposite.
+
+我正好相反
+
+I think, every individual American should be given the fact,
+
+我认为，每个美国人都应该得知道真相
+
+that is a disease that thousand times more deadly
+
+这种疾病的致命性对70岁以上的人比25岁以下的人
+
+over age 70 than it is below age 25.
+
+要厉害出一千倍
+
+and you should make your own decisions according to that.
+
+然后人们应该根据这一点自己做决定
+
+according to risk factors
+
+根据危险因素等
+
+and so the elderly without question
+
+对老年人毫无疑问
+
+the Vaccine is a good, is a good thing.
+
+疫苗是件好事，是件好事
+
+Under 25, I think really you have to assess your risk and make your own decision,
+
+在25岁以下，我认为你们真的要评估自己的风险并做出自己的决定
+
+主持人：
+
+as were you at this point of a mass，
+
+就像你说的，在混乱的节骨眼上
+
+is it time to just say Enough for this,
+
+是不是说得太多了，
+
+just take it off and just go live your life?
+
+把它摘下来，然后继续过你的生活？
+
+参议员兰德·保罗(Rand Paul)：
+
+Particularly for those who are vaccinated,
+
+尤其是那些接种了疫苗的人，
+
+or for those who got the disease naturally like I have
+
+或者是那些像我这样自然地感染了这个病毒
+
+a mask of no use their complete theatre
+
+一个毫无用处的口罩，他们整个就是在演戏
+
+even the CDC has admitted these much
+
+就连疾控中心也承认了这一点
+
+the CDC admitted a few weeks ago before they tried to roll back.
+
+疾控中心在几周前承认了这一点，之后他们还试图反悔
+
+they admitted that people vaccinated do not carry the virus are not spreading the virus.
+
+他们承认，接种疫苗的人没有携带病毒，并没有传播病毒
+
+The same is true of those who have been infected,
+
+那些被感染的人也是如此
+
+even Fauci’s institute admitted
+
+就连福奇的研究所也承认
+
+that those who have been infected have robust immunity.
+
+那些被感染的人有强大的免疫力
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频连接: [https://twitter.com/realamvoice/status/1384593964070752258?s=24](https://twitter.com/realamvoice/status/1384593964070752258?s=24)
+
+英听校:康州盘古农场-WZ
+翻译: 康州盘古农场-WZ
+翻译终校: 康州盘古农场-Mike Li
+字幕+视频制作:康州盘古农场-天涯行
+审片: 康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0
