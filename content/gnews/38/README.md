@@ -1,99 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第252节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1131894/)
+## 中共以不动产投资信托基金行骗填地方债窟窿
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1131964/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+俄罗斯莫斯科喀秋莎农场 DongDong
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/L-8.jpg)a4ai.org
-“第251节 与拉丁美洲和加勒比地区的防务合作”略译，本文是第252节的翻译。
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/E-6.jpg)chinabankingnews.com
+中共国正准备推出价值 7700 亿美元房地产投资信托基金（Real Estate Investment Trusts，简称 REITs），以开发国家庞大的投资市场，为地方政府的公路和其他基础设施项目融资。
 
-本节要点：中共国政府正在输出他们的国内安全模式，以及国家对社会的控制模式，这些模式通过先进的技术和人工智能技术来实现的，在没有对政府权力进行可靠的法律监督的情况下，将与政府或安全部门有密切联系，或易受其压力的公司提供的设备和服务，纳入通信网络和通信供应链，这将导致侵犯公民的私人信息，加强（对公民的）审查，侵犯人权和骚扰政治对手。就腐败事件和与中共国有关的不公平贸易、商业和经商行为的调查性报道提供培训，包括中共国政府在此类行为中的作用。
+REITs 最早是 60 年代起源于美国，根植于美国严格法律体系下的一种不动产投资项目。最早翻译过来的名称是“房地产投资信托基金”，但由于在美国所涵盖的范围不仅仅是房地产，还包括公路建设等，所以业内人士更喜欢称之为“不动产投资信托基金”。
 
-第252节 与拉丁美洲和加勒比国家的公民社会，就问责制、人权和普遍监视技术的风险进行交流
+假如一栋房产想要从租金中获得收益，基本上需要自己现金或贷款购买商业地产，在一段时间后获得租金回报。对于特别好的房产项目，例如海南度假村酒店项目，个人财力无法企及，就需要有一个可信的被法律监管的代理人向多人募集足够资金，大家一起购买好的房产项目，然后对增额的收益进行分红。因此，即便个人只有 500 美金也能投资 REITs，成为事实上的“房东”。
 
-（a）国会意识 – 国会认为
-（1）中共国政府正在输出他们的国内安全模式，以及国家对社会的控制模式，这些模式通过先进的技术和人工智能技术来实现的；以及
-（2）在没有对政府权力进行可靠的法律监督的情况下，将与政府或安全部门有密切联系，或易受其压力的公司提供的设备和服务，纳入通信网络和通信供应链，这将导致侵犯公民的私人信息，加强（对公民的）审查，侵犯人权和骚扰政治对手。
+美国版的 REITs 有两大主要特点：强制分红和税收优惠。美国要求房产租金收益的 90%必须分配给投资者，同时对投资者减免税收。这里强调“租金收益”，就是因为中共版的 REITs 不是投资商业地产，而是限定在只能投资基础建设项目。也就是，中共版 REITs 是要把地方政府的基础建设项目，如高速公路、城市地铁、污水处理等需要资金的项目交与基金公司打包为投资项目，向全社会公开募集资金。
 
-（b）外交接触 – 国务卿应与拉丁美洲和加勒比各国政府和民间社会组织进行外交接触，以-
-（1）帮助识别和减轻（a）小节所述技术和服务对公民自由构成的风险；以及
-（2）提供减轻此类风险的建议。
+2020 年 4 月，证监会与发展改革委联合发布了《关于推进基础设施领域不动产投资信托基金（REITs）试点相关工作的通知》，国内 REITs 在经过十年的呼唤终于开始启动。经过长时间准备，2021 年 1 月 29 日中共版 REITs 配套规则公布，开放首批试点项目的申报。
 
-（c）互联网自由计划 – 《美国全球媒体署》（the United States Agency for Global Media）首席执行官依据《开放技术基金》（the Open Technology Fund）进行工作，国务卿依据《民主、人权和劳工局》（the Bureau of Democracy, Human Rights, and Labor）的“互联网自由，商业和人权部分”进行工作，努力扩大、努力优先向拉丁美洲和加勒比地区的记者提供反审查技术和服务，以提高他们安全获取或分享数字新闻和信息的能力。
+之所以在 2020 年 4 月这个时间点启动 REITs 项目是因为地方政府和国企的债务问题非常严重，地方财政赤字难以抹平。这个窟窿像滚雪球一样越来越大，导致地方政府明面上从银行正规贷款债务，加上更为恐怖的地方政府通过融资平台向百姓借贷的隐性债务，累积到到了天文数字。这么大的地方债让中央财政也不敢为地方政府兜底了，必须“创新性”地想出一种为地方政府维持生计、继续融资的办法。
 
-（d）支持民间社会 – 国务卿应与负责《民主、人权和劳工局》事务的助理国务卿和《美国国际开发署》署长协调，通过非政府组织开展工作，以-
-（1）支持和促进拉丁美洲和加勒比地区互联网自由和网上信息自由流动的方案；
-（2）保护拉丁美洲和加勒比地区互联网的开放、互操作、安全和可靠接入；
-（3）向民间社会提供技术、数字安全、政策和宣传方面的综合支持，拉丁美洲和加勒比的应用研究项目；
-（4）对拉丁美洲和加勒比地区的记者和民间社会领导人进行必要的调查技术培训，以确保公共问责制和防止政府在数字领域的过激行为；
-（5）协助拉丁美洲和加勒比地区的独立媒体和记者建设自身能力，编写涵盖施政和人权议题的具有高度影响力的深入新闻报道；
-（6）为记者和民间社会领导人提供必要的调查技术培训，以提高政府和私营部门的透明度和问责制；
-（7）就腐败事件和与中共国有关的不公平贸易、商业和经商行为的调查性报道提供培训，包括中共国政府在此类行为中的作用；
-（8）协助非政府组织加强其监测第（7）款所述活动的能力；和
-（9）确定当地资源，以支持根据本小节开展的主要活动。
+地方政府债务是地方经济一个非常严重的问题，是中共经济最大的雷爆点，许多地方政府在 2021 年都会进入事实上的破产。因此 2020 年 12 月 09 日，中共财政部制定了《地方政府债券发行管理办法》, 其实就是财政部放权地方政府发债。此前，地方债都是由财政部帮地方政府发债，借到钱后将钱再给地方政府。至少以前的地方债规模在中央财政和全国人大两级监督下，不至于达到地方政府资不抵债的规模。现在相当于中央放权给地方，自己能借到钱是地方政府自己的本事，你们的烂摊子中央不想再兜底了。
 
-（e）简报要求 – 本法颁布之日起180天内，此后每隔180天，国务卿、美国国际开发署署长，美国全球媒体署的首席执行官应就第（c）、（d）和（e）小节所述的努力提供简报 –
-（1）参议院外交关系委员会；
-（2）参议院拨款委员会；
-（3）众议院外交事务委员会；以及
-（4）众议院拨款委员会。
-（本节完）
+即便如此，地方政府的财政赤字还是屡创新高，最近河南省永城煤电控股集团和辽宁省华晨汽车集团等大型地方公司的债务违约事件也惊动了中央高层，在投资者群体中造成了震动。
 
-原文链接：
+地方政府一方面债务缠身，一方面为了政绩又必须提振地方经济。传统上有这样集中振兴地方经济的方法：
 
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+1. 外贸。出口产品，赚取外汇。但当前中美贸易战逐渐升温，加之外贸出口受到疫情和人民币升值影响，处于萎靡不振的状态。
+2. 实体制造业。受到用工成本提高、从银行贷款越来越难、全球疫情的影响，加上实体制造业这几年又被房地产抽血，很多做实体制造业的老板宁愿拿着现金购买北上广的房产，也不愿意做辛苦且利润微博的实体制造业，导致疫情以来很多工厂倒闭。
+3. 房地产。中共国房地产泡沫已非常严重，当权者将超发的天量货币放入了房地产。既不能让它崩盘，也不能让其降价，提出“房住不炒”的口号。房地产公司尚且纷纷破产，很多家庭的资产负债率已经很高，而个人再背上高额债务购置投资性房产，几乎等同于自杀，因此房地产几乎没有任何投资价值。
+4. 基础设施建设。这是地方政府口中原来的一块“肥肉”，是财政资金和政绩的一块基石。既然以上三条路都难以短期出效果，而地方政府又面临天量负债，那么现在就把地方债务打包为光鲜靓丽的金融产品，借美国版的 REITs 之威名，行中共国拉民众做“替死鬼”之实。
 
-文字整理：
 
-SEC. 252. ENGAGEMENT WITH CIVIL SOCIETY IN LATIN AMERICA AND THE CARIBBEAN REGARDING ACCOUNTABILITY, HUMAN RIGHTS, AND THE RISKS OF PERVASIVE SURVEILLANCE TECHNOLOGIES.
+因此，中共版REITs 本质上是，中共为帮助地方政府和国企从负债累累的困境中恢复，同时又不愿意、也无法为地方政府赤字兜底，假借 REITs 的名头割手头尚有存款的私人机构和个人韭菜的又一个“局中局”。其目的是谋划向机构和个人投资者筹集用于建设基础设施的资金，听起来非常高端，实际最终将资金借给地方政府的结果很可能是遭遇又一次像“易租宝”事件的国家级骗局。
 
-(a) SENSE OF CONGRESS. — It is the sense of Congress that
+在中共国即使是像两桶油这样的大型国有垄断企业，在国际原油降价、国内成品油提价的情况下，每年都能亏得让民众目瞪口呆、惊叹不已。又例如，运营北京和上海之间高速铁路的公司，2020 年的利润因疫情暴跌了 70%。这两个例子基本预测了，吹嘘为百姓利益着想的中共版 REITs 的结局。
 
-(1) the Government of China is exporting its model for internal security and state control of society through advanced technology and artificial intelligence; and
+例如，中共国证监会刚指定的五个测试 REITs 计划的项目其中有，北京的一个的超大型垃圾焚烧场，广东省的一条高速公路和深圳的一个污水处理厂。且不说上述三个项目是否能够盈利，从投资规模上看每个项目都需要大量资金，从投资回报周期看至少都需要 3 到 5 年才能完成基础性建设，从投资回报率看三个项目都属于“基础设施”项目，不可能像商品房投资那样，既有稳定的收益、又有较高的回报率。
 
-(2) the inclusion of communication networks and communications supply chains with equipment and services from companies with close ties to or susceptible to pressure from governments or security services without reliable legal checks on governmental powers can lead to breaches of citizens’ private information, increased censorship, violations of human rights, and harassment of political opponents.
+从中共国政治因素考虑，中共版 REITs 也满地是坑。例如，中共国政府是一言堂，若地方政府与基金公司相互勾结，悄悄把打包的基建项目的估值向上虚标，普通民众也无法察觉。如此一来，地方政府就能在一个虚假估值的项目中骗取更多民众资金。或许，真正参与投资的民众最终会发现，每年最终财报显示就像国家两桶油一样，年年亏损，投资者几乎没有资格分得每年的红利。
 
-(b) DIPLOMATIC ENGAGEMENT. — The Secretary of State shall conduct diplomatic engagement with governments and civil society organizations in Latin America and the Caribbean to—
+其实，也可以反过来思考这个问题。若政府真为百姓的钱包着想，为什么不在10年前就推出公募性的 REITs？据悉，中共国早就已经有了 REITs，但只对特别机构和人士开放，属于私募型投资，那么是哪些机构和人士如此之幸运呢？
 
-(1) help identify and mitigate the risks to civil liberties posed by technologies and services described in subsection (a); and
+总之，凡是中共国大力宣传和吹嘘的金融产品，个人投资者都要保持一定警惕性，因为政府始终在与民争利。最终被骗得倾家荡产之时，政府就是始作俑者，不明真相的民众若请求政府做主，结局只能被“维稳”，因为他们才是背后那只操控一切的黑手。
 
-(2) offer recommendations on ways to mitigate such risks.
+参考链接：
 
-(c) INTERNET FREEDOM PROGRAMS. — The Chief Executive Officer of the United States Agency for Global Media, working through the Open Technology Fund, and the Secretary of State, working through the Bureau of Democracy, Human Rights, and Labor’s Internet Freedom and Business and Human Rights Section, shall expand and prioritize efforts to provide anti-censorship technology and services to journalists in Latin America and the Caribbean, in order to enhance their ability to safely access or share digital news and information.
+[1] [China seeks to lure investors into REITs to finance infrastructure – NIKKEI – 2021/04/23](https://asia.nikkei.com/Business/Markets/China-seeks-to-lure-investors-into-REITs-to-finance-infrastructure)
 
-(d) SUPPORT FOR CIVIL SOCIETY. — The Secretary of State, in coordination with the Assistant Secretary of State for Democracy, Human Rights, and Labor and the Administrator of the United States Agency for International Development, shall work through nongovernmental organizations to—
-
-(1) support and promote programs that support internet freedom and the free flow of information online in Latin America and the Caribbean;
-
-(2) protect open, interoperable, secure, and reliable access to internet in Latin America and the Caribbean;
-
-(3) provide integrated support to civil society for technology, digital safety, policy and advocacy,
-
-and applied research programs in Latin America and the Caribbean;
-
-(4) train journalists and civil society leaders in Latin America and the Caribbean on investigative techniques necessary to ensure public accountability and prevent government overreach in the digital sphere;
-
-(5) assist independent media outlets and journalists in Latin America and the Caribbean to build their own capacity and develop high-impact, in-depth news reports covering governance and human rights topics;
-
-(6) provide training for journalists and civil society leaders on investigative techniques necessary to improve transparency and accountability in government and the private sector;
-
-(7) provide training on investigative reporting of incidents of corruption and unfair trade, business and commercial practices related to China, including the role of the Government of China in such practices;
-
-(8) assist nongovernmental organizations to strengthen their capacity to monitor the activities described in paragraph (7); and
-
-(9) identify local resources to support the preponderance of activities that would be carried out under this subsection.
-
-(e) BRIEFING REQUIREMENT. — Not more than 180 days after the date of the enactment of this Act, and every 180 days thereafter, the Secretary of State, the Administrator of the United States Agency for International Development, and the Chief Executive Officer of the United States Agency for Global Media shall provide a briefing regarding the efforts described in subsections (c), (d), and (e) to—
-
-(1) the Committee on Foreign Relations of the Senate;
-
-(2) the Committee on Appropriations of the Senate;
-
-(3) the Committee on Foreign Affairs of the House of Representatives; and
-
-(4) the Committee on Appropriations of the House of Representatives.
+[2] [地方政府放权发债，中共债务危机拟暴雷 – GNews – 2020/12/24](https://gnews.org/zh-hant/683230/)
 
 0

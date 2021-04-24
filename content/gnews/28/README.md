@@ -1,65 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【呐喊】中共国疫苗年产能近50亿剂
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1132015/)
+## 恶意调查GTV的背后：SEC内鬼及中共对美全面渗透
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1132243/)
 
-作者：纽约香草山佛教部 369文驹
+作者：蓝色| 校对：西川stanly| 审核：万人往| Page：小六月
 
+[!\[\]()!\[\](https://spark.adobe.com/page/raJBTUPomiGeg/images/f07a643c-518f-4d5e-bd2a-9c0de4ed6cb5.jpg?asset_id=2329d75f-3cb1-42d9-83e9-135af49ce661&amp;img_etag=%222965777b23c51c8cc3131d3bb1c99f0c%22&amp;size=1024)](https://spark.adobe.com/page/raJBTUPomiGeg/images/f07a643c-518f-4d5e-bd2a-9c0de4ed6cb5.jpg?asset_id=2329d75f-3cb1-42d9-83e9-135af49ce661&amp;img_etag=%222965777b23c51c8cc3131d3bb1c99f0c%22&amp;size=1024)
 
+所谓豆豆（被战友挖出是中共），借九指妖SARA诈骗GTV事件，伙同SEC内鬼恶意调查GTV。九指妖诈骗GTV，GTV是受害者，SEC不去调查加害者，反而过度调查被害者，是明显的滥用职权，张冠李戴。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+所以笔者高度怀疑SEC有中共的内鬼，故意借题发挥。笔者以此怀疑为基础，挖掘了一下SEC高层管理人员的背景，果然不出所料，发现了重要线索，背后隐藏的不仅是吴征和刘特佐，而是中共国对美国的全面渗透。
 
+此次调查GTV的SEC核心人员是吹哨人办公室主任简·诺伯格 Jane Norberg，此人于2021年4月辞职（可能受迫于战友的抗议事件）。在加入SEC之前，她就职于“谢尔曼·思特灵 (Shearman & Sterling)律师事务所”，就在其任职期间，该律师事务所在“1MDB一马公司案”中帮助刘特佐洗钱。
 
+[!\[\]()!\[\](https://spark.adobe.com/page/raJBTUPomiGeg/images/1c200f9b-e6da-40a8-9970-a644e97cd980.png?asset_id=f83afbf7-6657-457c-a4e8-0ab44069ebe0&amp;img_etag=%222c43fe5be2b260ae9115eccb93a0d161%22&amp;size=2560)](https://spark.adobe.com/page/raJBTUPomiGeg/images/1c200f9b-e6da-40a8-9970-a644e97cd980.png?asset_id=f83afbf7-6657-457c-a4e8-0ab44069ebe0&amp;img_etag=%222c43fe5be2b260ae9115eccb93a0d161%22&amp;size=1024)
 
-中共国今年能产多少剂毒疫苗，是中国人民和世界人民关注的问题，这直接关系到中共打算今年祸害和控制多少人口。
+简·诺伯格能够在日后进入SEC担任要职，那其在律师事务所必然也是重要人物，她不可能不认识刘特佐，甚至可能是洗钱的直接参与人之一。此人应是SEC内鬼中的核心人物。
 
-据新浪网报道，4月20日，中共国国务院联防联控机制科研攻关组疫苗研发工作组组长郑忠伟在2021年博鳌亚洲论坛年会上表示，中共国新冠疫苗目前年产能接近50亿剂。
+提拔简·诺伯格由副职转正的是前SEC主席玛丽·乔·怀特（Mary Jo White），此时的美国总统正是奥巴马和拜登。而玛丽·乔·怀特在入职SEC前后都加入了德普 (Debevoise & Plimpton)律师事务所。这又说明了什么呢？
 
-另外，4月23日，北京市发改委召开一季度经济社会发展形势解读会，重点提及疫苗，透露出相关信息：
+笔者发现一条旧闻：白斯达 (Sidharth Bhasin)在2008年9月从Debevoise＆Plimpton香港办事处加入Shearman＆Sterling香港办事处。这说明，这些著名的律师事务所的人员是相互流动的。表面看是竞争关系，但是由于挖角跳槽和同学、同事等人际关系网络导致其背后实际上是合作关系。
 
-1、疫苗已经成为产业，成为北京的品牌，对北京的经济回暖起到关键作用。截至4月21日，北京市累计接种中共病毒疫苗2166.94万剂次、1327.84万人。
+中共通过巨额律师费来腐败这些欧美的大型律师事务所。法官和直接参与执法的行政官员均出自职业律师，来自于各大型律师事务所。渗透了律师事务所，就等于可以部分操控美国法庭和行政官员。
 
-2、今年一季度，科兴中维和国药北生研两家疫苗公司累计贡献全国疫苗产量约八成，拉动全市规上工业增加值增长13.8个百分点。该数据简直难以想象。
+笔者通过调查SEC，又发现了SEC和《华尔街日报》的关系。
 
-3、科兴中维和国药北生研两家北京的疫苗公司三期车间4月、8月建成投产后，年产能将接近40亿剂。
+《华尔街日报》长期稳定的攻击郭先生、攻击爆料革命。而此次SEC事件的报道，依然是《华尔街日报》最为积极，为什么那么多媒体，唯独《华尔街日报》如此关注SEC调查GTV？直到笔者在推特上发现了这个人“孙梦琪MengqiSun”。原来，SEC和《华尔街日报》一直是有长期、稳定的直接联络人的。而这个华人和杨澜及其子毕业于同一所学校：位于纽约的哥伦比亚大学（著名的中共间谍聚集地）。
 
-我们再看看中共国疫苗接种情况。截止3月27日，中共国接种毒疫苗共10241.7万剂次，如下图：
+《华尔街日报》是道琼斯公司的出版物，而道琼斯公司早就被默多克收购了。再加上纽约南区法院，不难看出，中共通过和华尔街金融大佬的高度合作关系，对美国的行政、法律、媒体进行了全面的渗透。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-423.png)图片来源：搜狐网
+此次SEC恶意调查GTV，背后黑手就是中共操控的SEC内鬼。
 
-据中共国卫健委数据，截止4月22日，全国累计报告接种中共病毒疫苗21122.3万剂次。相比3月27日，短短不到一个月的时间里，接种剂量数增加1亿多，直接在原来基础上翻了一倍多！在北京两大毒疫苗企业没有扩产的情况下，每月保守估计接种1亿计，在今年剩余的8个多月里将注射8亿剂，加上已经注射的2亿剂，今年累计注射至少10亿剂。加上今后的扩产和注射单月翻倍的增速，今年完成全国注射10亿人的目标是很轻松的。
+[!\[\]()!\[\](https://spark.adobe.com/page/raJBTUPomiGeg/images/2c89c73e-83f6-4981-bb1b-40ed69e81649.png?asset_id=29780cf8-a857-4152-bb37-29fd54e044ad&amp;img_etag=%229189a129290b744bf040d776cd85e362%22&amp;size=1024)](https://spark.adobe.com/page/raJBTUPomiGeg/images/2c89c73e-83f6-4981-bb1b-40ed69e81649.png?asset_id=29780cf8-a857-4152-bb37-29fd54e044ad&amp;img_etag=%229189a129290b744bf040d776cd85e362%22&amp;size=1024)
 
-按照中共的规划，50亿剂的年产能，除了“满足”今年国内10亿人的接种——按照每人两针来算，需要20亿剂量——剩余的30亿剂必然是往海外输出，继续祸害海外至少15亿人民！全球人口78亿，如果中外25亿人都接种中共病毒疫苗，全球三分之一的人口就成为中共疫苗的牺牲品。不仅如此，在疫苗产能扩充的背后，还有中共企图的巨大的经济账、政治账。
+[!\[\]()!\[\](https://spark.adobe.com/page/raJBTUPomiGeg/images/5f7ad7d8-889a-4fb0-ab8a-fd939533489a.jpg?asset_id=4d627c30-a918-4479-8358-65035888c14d&amp;img_etag=%2221967c035d68b9a1314ebb7381d3eba1%22&amp;size=1024)](https://spark.adobe.com/page/raJBTUPomiGeg/images/5f7ad7d8-889a-4fb0-ab8a-fd939533489a.jpg?asset_id=4d627c30-a918-4479-8358-65035888c14d&amp;img_etag=%2221967c035d68b9a1314ebb7381d3eba1%22&amp;size=1024)
 
-不过文贵先生、爆料革命将中共制造病毒、拥有解药、利用毒疫苗祸害、控制人类的阴谋揭露出来后，中共一切的算盘都将落空。等待中共的必将是受到中共病毒及毒疫苗伤害的全球人民、全世界正义力量的怒火与追责。
+*文章仅代表作者观点*
 
-新闻来源：
-
-新浪财经
-
-（本文仅代表作者观点）
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/raJBTUPomiGeg/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/raJBTUPomiGeg/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-
-
-0
++1

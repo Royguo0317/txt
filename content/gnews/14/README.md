@@ -1,75 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 防堵中共大外宣，美勒令广播机构公开资助清单
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1132355/)
+## 整个华尔街正在玩一场极为危险的游戏
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1132527/)
 
-**撰稿: 天灭中共       **
+摘要：郭先生在2021年3月16日的盖特视频中说现在的华尔街正在玩一场极为危险的游戏，华尔街的股票可能涨到今年年底甚至到明年5月份前。他奉劝大家不要有投机和赌博心理，因为那一定会让你倾家荡产和身败名裂。而G系列会让爆料革命和新中国联邦的所有的战友们体面、富有、安全地生活，得以来灭共。
+[下载字幕](https://www.gnews.org/wp-content/uploads/2021/04/Miles_20210416-getter1.srt.txt)
+**整个华尔街正在玩一场极为危险的游戏**
 
-**审核: 青青草原, 慧心**
+**Wall Street Is Playing an Extremely Dangerous Game Now**
 
+另外，美国现在整个华尔街正在玩一场极为危险的游戏。这次华尔街，大家都很清楚华尔街这次股票的崩溃只是时间长短，一模一样，不会有什么意外。说不会崩盘绝不可能，只是炒多高下来，还有多少人可能倾家荡产（的问题）。但这一次华尔街玩的游戏，（他们）准备好了两样东西：第一个，把（股市）炒涨起来，涨到今年年底甚至到明年5月份前，炒最高的时候绝大多数的钱全部要出去钱。钱出去上哪去，兄弟姐妹们？放哪儿去啊？他们得找地方放，虚拟加密货币（和）黄金，就这两样东西，没有任何第三个地方能放。
 
+Besides, the United States is now playing an extremely dangerous game in Wall Street. This time, everyone in Wall Street is well aware that the collapse of Wall Street’s stocks is just a matter of time, and there won’t be any surprises about this. It is absolutely impossible for anyone to say that the market will not collapse. It is just a matter of how high the stock price will be speculated to before it collapses and how many people will go bankrupt. For the game played by the Wall Street this time, they’ve prepared two things: the first one is to lift the stock market up until the end of this year or even before May next year. When it gets to the peak time, most of the money will flow out. To where, brothers and sisters? Where will the money go? They will have to find a place to put it – Virtual cryptocurrency and gold. There is no third place to put it.
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/9507a84397eb8f39.jpg)**图片: 昆仑竹**
+大家看到昨天咱们一个金融界的非常棒的战友发的信息：Coinbase从0.2，2毛钱到340块钱是多少倍？这叫初创投资和上市投资。（咱们）想上市是很容易的，非常容易就可以直接上。但是这就是为什么今天的SEC主席瓦格就是来自于支持虚拟货币的（阵营）。而且现在华尔街神秘的手都在玩虚拟货币。
 
-美国联邦通讯委员会在当地时间周四（22日）召开会议，会上一致通过要求广播机构，必须公布接受外国政府资助或者由外国政府提供的节目内容。换句话说，日后当电台、电视台接受外国政府以任何方式提供的资金，从而播放其指定的内容时，就必须即时公布详情。
+You guys saw the message sent by one of our great fellow fighters in the financial sector yesterday: How many times has the price of Coinbase multiplied by going from 20 cents to 340 dollars? This is called initial investment and public investment. It’s easy to go public, very easy to go public directly. But this is why today’s SEC Chairman Gensler (?) is from the group who is in support of virtual currencies. And now those mysterious hands of Wall Street are all playing with virtual currencies.
 
-FCC在声明中强调：“该命令的目的是为了增加了透明度，确保听众知悉外国政府或其代理人正利用各种平台游说美国人。”
+比特币就两个“人”的：共产党和华尔街。其它几个虚拟货币涨起来所有背后几乎都是共产党和华尔街，这两个洗钱集团正在往市场上猛推高，然后（会）摔下来把大家都摔死，（那时候）他（自己）就能活吗？所以现在大家都在等着这帮傻货往里冲，现在给描绘了一个金山银山的前景，冲啊！然后“啪”下来，全都完球蛋了。战友们，越是这个时候千万记住：投机还有赌博式心理一定会让你倾家荡产，身败名裂。（因此）永远不要掺和，国内的战友永远不要掺和！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/0012.jpg)**图源: 路透社**
+Bitcoin has only two owners: the CCP and Wall Street. Several other rising virtual currencies also have the CCP and Wall Street behind their back. These two money laundering groups (the CCP and Wall Street) are pushing up the market, and then will throw it down to the ground to kill everyone so that they can survive. So now everyone is waiting for idiots to rush in the market by portraying a prospect of gold and silver mountains. “Let’s rush in!” And then “pop”, and everyone will be over. My fellow fighters, please remember this, a gambler’s mentality will surely ruin you and make you loose both your money and your reputation. Therefore, please never get involved (in the virtual currency market). My fellow fighters in mainland China, don’t get involved!
 
+这是为什么G-TV，G-Coin，G- Dollar大家有一点脑子人都知道它意味着什么？这是为什么咱们能搭建一个全世界没有任何一个G-TV，G-News，G-Coin，G- Dollar，G- Fashion，G-Clubs同时搭建的平台，同时都踩着世界舞点上，而且都这么干干净净的一步一步稳稳的往前走，谁能挡得住啊？加密货币，虚拟经济和实体经济的结合：G-Coin，G-Dollar，G- Fashion。
 
+This is why anyone who has a brain would know what G-TV, G-Coin, and G-Dollar actually mean. This is why we can build a platform with G-TV, G-News, G-Coin, G-Dollar, G-Fashion, and G-Clubs but nobody else in this world can and why we can dance to the rhythm and beat of the world and move forward steadily step by step so cleanly. Who can stop our steps? G-Coin, G-Dollar, and G-Fashion are a combination of cryptocurrency, virtual economy and real economy.
 
-**强制令的矛头直指中共**
+G-Clubs 接下来是唯一一个在最关键时期百分之百每年巨额盈利的企业。去想想，去想想去吧，我就不说了。G-TV百分之百唯一性稀缺资源，G-News稀缺资源，唯一在关键人类的时候讲病毒、讲真相拯救人类的现代化社交媒体和门户网站相结合的社交平台。你说这几个加在一起是什么感觉？
 
-FCC署理主席罗森沃塞尔（Jessica Rosenworcel）表示，近年外国赞助的广播节目以倍数上升，“尤其中共和俄罗斯政府，大量购买各大广播机构的播放时段，播放其指定的内容，情况遍布全美。”
+Next, G-Clubs will be the only company that is 100% profitable every year during the most critical period. Think about it, just think about it, I won’t talk about it. G-TV is a 100% unique, scarce resource. So is G-News – the only social platform that combines modern social media and portals to talk about [the truth about] the virus and tell the truth to save mankind at such a critical time for mankind. What do you think when you take into account all these factors together?
 
-她指出，广播机构日后若再租出广播时段，必须询问出资方有关节目是否与外国政府有关，一经证实有关，广播机构就必须在播出节目时列明赞助方，并公开记录在案。另外，广播机构自身亦要透过司法部和FCC，查证赞助方是否涉及外国代理人。
+大家想想，兄弟姐妹们。要不然你看到人家虚拟货币人家赚钱你只能看，你连闻都不能闻。你看了人家加密货币人家赚钱你连摸的机会（都没有），闻都闻不着。否则你看着世界上唯一的共产党倒下后你连个灰儿都捡不着，因为你没有参与，你没有金融。你看到全世界虚拟经济和加密货币、加密金融和实体经济结合的时候你连灰儿都摸不着，那不就完了吗？
 
-去年一项来自墨西哥电台XEWW AM在南加州播放中文电台节目的申请，就曾遭到FCC的拒绝，FCC指该电台被凤凰衞视旗下子公司“鸿慧资本”利用，向南加州华人作出中共政治宣传，但电台申请播放权时，却试图隐瞒与凤凰卫视的关系。
+Brothers and sisters, think about it. Otherwise, you can only watch other people making money from virtual currencies, but you won’t even have the chance to smell it or touch it.
+And when you watch the world’s only Communist Party falling down, you won’t be able to take any advantage from it, because you are not involved and you aren’t involved financially. So you will be screwed if you only watch the virtual economy, cryptocurrency, crypto finance and real economy get united in the world, and you don’t have the chance to get involved, right?
 
-根据美国联邦政府的现行规则，未有列明需要广播机构公布外国政府的赞助，因此，美国国会议员近年一直要求FCC采取行动防堵这一漏洞。
+而这次爆料革命、新中国联邦让所有的战友们参与这个伟大的时刻，咱必须体面、富有的、安全的生活才能灭共！
 
-**美国主流新闻台严重亲共被点名**
+And our Whistleblower Movement and NFSC are getting all our fellow fighters involved in this great moment because we must have a decent and wealthy life so that we have the ability to take down the CCP.
 
-美国共和党参议员柯顿（Tom Cotton）在Podcast节目“The Truth with Lisa Boothe”中，点名批评美国几大主流新闻台“严重依赖”中国共产党的资金。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/00234.jpg)**图源: 美联社**
-
-
-
-柯顿指出：ABC新闻属于迪士尼公司，CNN属于时代华纳（Time Warner），NBC新闻隶属于康卡斯特集团（Comcast-Universal）、CBS新闻则隶属于维亚康姆公司（Viacom），这些主流新闻频道背后，皆是大财团，而这些财团无一不严重依赖中国共产党。“在某些情况下，它们像保镖一样，帮助中共当局误导美国民众的常识、判断和直觉。”
-
-**「笔者评论」**
-
-渗透传媒、扭曲事实、控制思想，是中共的洗脑“三部曲”。
-
-民主制度下，政府施政受民意趋向，要想手执权柄必先赢得民心。所以，中共染指媒体，夺走话语权，将媒体变成自己的“啦啦队”，输出大量误导式的报导，作出各种封闭式的结论，剥夺民众的知情权、弱化民众的自由意志，从而逐渐变成一群容易操控、随意摆布的“牵线木偶”，实现中共“统治世界”的野心。
-
-简言之，媒体是中共对抗民主国家的法宝，无需一兵一卒，胜过千军万马。
-
-笔者乐见美国开始着手收拾战场，叫停中共的媒体战继续推进，继续荼毒民众。另一方面，笔者联想起日前，郭文贵先生在**419**断播一周年的直播中发表的一段关于媒体的现状分析，建议同笔者一样，热爱新闻的人士可以留意一下，他分析的现状令人感到痛心。
-
-笔者相信，所有对这个行业抱有热忱的人都坚信媒体是社会的第四权，它是揭露真相、维护公义、监督政府、为民发声的平台，它不应该成为武器，更不应该变成战场。
-
-事实上，如果新闻工作者都能坚守这份初心，不被金钱利益所惑、不为平庸之恶所趋，那中共的媒体战根本连开始的机会都没有。
-
-
-
-**本文仅代表作者本人观点。**
-
-**参考新闻:**
-
-[FCC orders U.S. broadcasters to identify foreign-government sponsors of programs](https://www.reuters.com/article/usa-broadcasting-foreign/update-1-fcc-orders-us-broadcasters-to-identify-foreign-government-sponsors-of-programs-idUSL1N2MG01L)
-
-[Sen. Cotton accuses CNN, ABC, CBS, and NBC of being ‘heavily beholden’ to China](https://www.foxnews.com/media/tom-cotton-rips-cnn-abc-cbs-nbc-for-being-heavily-beholden-to-china)
-
-
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/6079a9118616c84f0ff00019](https://gtv.org/getter/6079a9118616c84f0ff00019) (5:16-9:46)
+鸣谢：感谢 Antsee-GTV、TING GUO 提供中文文本于[https://www.gnews.org/zh-hans/1115138/](https://www.gnews.org/zh-hans/1115138/)
 
 * * *
 
-**发布: 法国巴黎七星编辑组**
-
-
+字幕：【JennyL】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0
