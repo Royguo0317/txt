@@ -1,27 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德时评简讯（视频版）: 文贵先生出庭后与战友拥抱问好(2021.4.21晚间路德社简讯之路博艾冠谈）
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1134462/)
+## 慧眼看世界202104024（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1134650/)
 
-《路德社》出品
-
-以下视频是详细内容：
-
-內容摘要：
-
-一、文贵先生出庭后与战友拥抱问好
-
-二、美参议院外交委通过灭共战略竞争法案
-
-三、白宫证实中美领导人将不会进行双边会谈
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-制作：路德社简讯视频组
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-15.jpg)
 
-审核校对：玫瑰新闻组
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-16.jpg)
 
-上传排版：玫瑰新闻组
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-16.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-13.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-13.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-13.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-13.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-19.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-19.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-21.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-17.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-16.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-16.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-13.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-12.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0

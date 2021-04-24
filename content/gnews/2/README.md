@@ -1,45 +1,101 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蒙大拿州长签法案保护公民拥枪自由权
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1134962/)
+## 美国《2021战略竞争法》第301、302、303节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1135106/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/G-14.jpg)thecentersquare.com
-据 NewsMax 报道，州长格雷格‧詹福特(Greg Gianforte) 周五（4月 23 日）签署了一项法律，禁止蒙大拿州和地方执法机构执行联邦机构针对枪支、弹药和弹夹实施的禁止令，此法律旨在保护该州的枪支持有者免受任何新的联邦法规或枪支禁止令的影响。
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/H-8.jpg)newsfirst.lk
+“副标题C——应对中共国的区域战略”的“第三部分——南亚和中亚”2节（261、262），“第四部分——非洲”6节（271至276节），“第五部分——中东和北非”2节（281、281），“第六部分北极地区”1节，“第七部分——大洋洲”2节（291、292）暂时略译。
 
-今年美国境内发生了几起大规模枪击事件，就在上周印第安纳波利斯地区还发生了造成 8 人死亡的枪击事件。有鉴于频发的枪击事件，拥枪权支持者们担心，联邦立法机构或是总统·乔拜登在可能发布限制枪支使用的行政命令，而拜登总统也确实正在推动联邦枪支的改革。蒙大拿州长此时签署的法律受到捍卫拥枪权者们的支持，该法律将保护宪法第二修正案（公民有持枪自由）不会受到总统行政命令和联邦枪支管制禁止令的影响。
+本文为“标题3——我们价值观的投入”的3节。
 
-共和党人詹福特在推特上写道：“今天，我骄傲地签署了众议员杰迪戴亚·辛克尔（Jedediah Hinkle）的提案，禁止联邦越权侵犯我们的第二修正案保护的权利，包括任何联邦枪支禁令。我会永远保护我们持有和携带武器的第二修正案权利。”
+标题3——我们价值观的投入
 
-蒙大拿州这项法律的反对者表示，在保护公共安全（包括家庭暴力和毒品犯罪）方面，除了枪支获取之外，地方执法部门与联邦当局的合作将变得更加困难。
+第301节 批准拨款支持香港民主运动
 
-今年至少十几个州考虑放宽枪支携带和使用的限制，蒙大拿州是其中之一。该州共和党控制的立法机构近十年来一直试图通过类似措施使之成为法律。此类法律在 2013 年、2015 年和 2017 年被前民主党州长史蒂夫·布洛克(Steve Bullock)否决。
+（a）为促进香港的民主，为国务院的《民主、人权和劳工局》（the Bureau of Democracy, Human Rights, and Labor）在2022财政年度授权拨款一千万美元。
 
-蒙大拿的最高法院在 2016 年的一起涉及枪支管制的案件中指出，尽管蒙大拿州法律允许地方政府管制“所拥有的”枪支，但它不允许地方政府限制居民购买、销售、拥有或转让所有权，或运输及使用枪支的权利。
+（b）管理 – 国务卿应在国务院指定一个办公室，负责管理和协调国务院内部和整个美国政府提供第（a）小节所述的资金。
 
-亚利桑那州州长道格·杜西（Doug Ducey）本月早些时候签署了一项类似的法律，俄克拉何马州一项将该州列为第二修正案“庇护州”的法案即将提交到州长凯文·斯蒂特（Kevin Stitt）的办公桌上。
+第302节 对在新疆维吾尔自治区实施有关强迫劳动的制裁
 
-但是在阿肯色州，共和党州长阿萨·哈钦森（Asa Hutchinson）周五否决了一项类似的措施，称这将危及执法和公众。
+（a）通常情况 – 对《2020年维吾尔族人权政策法》（the Uyghur Human Rights Policy Act of 2020）（公共法116-145）第6（a）（1）节；《美国法典》第22编第6901节注解）的修订-
 
-共和党人詹福特在宣布他决定签署该法律时说，这将保护该州的第二修正案权利。今年早些时候，他还签署了一项放宽蒙大拿州的枪支携带限制的法律，允许在大多数地方不经许可携带隐蔽枪支，并把可携带枪支的场所扩大到了大学校园和州议会大厦。
+（1）将（E）项改为（F）项；以及
 
-拜登政府本月公布了新的控枪措施，管控目标包括可用网购零件组装的无法追踪的武器（也称为“幽灵枪”）。这些自制枪支由于没有用于可追踪的序列号，而且往往在购买时没有经过背景调查。美国司法部尚未宣布其关于幽灵枪的新规则，但预计将在未来几周内推出新的控枪规则。
+（2）在（D）项后插入以下内容：“（E）与强迫劳动有关的严重侵犯人权（行为）。”
 
-拜登总统同时还呼吁禁止拥有攻击性武器，民主党也一直希望对美国枪支进行严格管制，但这种控枪的法案可能会面临非常大的阻力。
+（b）生效日期；适用性 -（a）款所作的修订 –
 
-例如，拥有 500 万会员的美国步枪协会（RNA）是美国历任总统选举的重要票仓，对美国政坛有相当大的影响力，也是保守势力的坚定支持者。因此，美国步枪协会一直以来都是民主党重点打击对象，在 2019 年的旧金山议会上民主党曾试图将其认定为“国内恐怖组织”。
+（1）自本法颁布之日起生效；以及
 
-就在得知 1 月 20 日拜登即将就任新一届美国总统时，支持川普政府的美国步枪协会（RNA）随即向纽约州申请破产，决定搬家到保守势力占据绝对优势、挺川大本营的德州进行重建。
+（2）适用于《2020年维吾尔族人权政策法》第6（a）（1）节要求的在该颁布日期之后提交的第一份报告。
 
-参考链接：
+第303节 对在新疆维吾尔自治区蓄意强奸、强迫堕胎、强制绝育或非自愿避孕实施的制裁
 
-[1] [Montana Governor Signs Bill Nullifying Gun Restrictions – NewsMax – 2021/04/24](https://www.newsmax.com/newsfront/Gun-Nullification-Montana/2021/04/23/id/1018821/)
+（a）通常情况 -《2020年维吾尔族人权政策法》（公共法116-145）第6（a）（1）节；《美国法典》第6901节注释）经第302节修订后，进一步修订 –
 
-[2] [拜登将推出“幽灵枪”管控措施 – 华尔街日报中文版 – 2021/04/08](https://cn.wsj.com/articles/%E6%8B%9C%E7%99%BB%E5%B0%86%E6%8E%A8%E5%87%BA%E2%80%9C%E5%B9%BD%E7%81%B5%E6%9E%AA%E2%80%9D%E7%AE%A1%E6%8E%A7%E6%8E%AA%E6%96%BD-11617864615)
+（1）将（F）项改为（G）项；以及
 
-[3] [美国步枪协会抛弃纽约州转战德州 – GNews – 2021/01/15](https://gnews.org/zh-hans/756466/)
+（2）在（E）项后插入以下内容：“（F）蓄意强奸、强迫堕胎、强迫绝育或非自愿避孕政策和行为。”
+
+（b）生效日期；适用性 -（a）款所作的修订 –
+
+（1）自本法颁布之日起生效；以及
+
+（2）适用于《2020年维吾尔族人权政策法》第6（a）（1）节要求的在该颁布日期之后提交的第一份报告。
+
+（3节完）
+
+原文链接：
+
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+
+文字整理：
+
+TITLE III—INVESTING IN OUR VALUES
+
+SEC. 301. AUTHORIZATION OF APPROPRIATIONS FOR PRO 4 MOTION OF DEMOCRACY IN HONG KONG.
+
+(a) AUTHORIZATION OF APPROPRIATIONS. — There is authorized to be appropriated $10,000,000 for fiscal year 2022 for the Bureau of Democracy, Human Rights, and Labor of the Department of State to promote democracy in Hong Kong.
+
+(b) ADMINISTRATION. — The Secretary of State shall designate an office with the Department of State to administer and coordinate the provision of such funds described in subsection (a) within the Department of State and across the United States Government.
+
+SEC. 302. IMPOSITION OF SANCTIONS RELATING TO FORCED LABOR IN THE XINJIANG UYGHUR AUTONOMOUS REGION.
+
+(a) IN GENERAL. — Section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 (Public Law 116–145; 22 U.S.C. 6901 note) is amended—
+
+(1) by redesignating subparagraphs (E) as subparagraph (F); and
+
+(2) by inserting after subparagraph (D) the following:
+
+‘‘(E) Serious human rights abuses in connection with forced labor.’’
+
+(b) EFFECTIVE DATE; APPLICABILITY. — The amendment made by subsection (a)—
+
+(1) takes effect on the date of the enactment of this Act; and
+
+(2) applies with respect to the first report required by section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 submitted after such date of enactment.
+
+SEC. 303. IMPOSITION OF SANCTIONS WITH RESPECT TO SYSTEMATIC RAPE, COERCIVE ABORTION,
+
+FORCED STERILIZATION, OR INVOLUNTARY CONTRACEPTIVE IMPLANTATION IN THE XINJIANG UYGHUR AUTONOMOUS REGION.
+
+(a) IN GENERAL. — Section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 (Public Law 116–145; U.S.C. 6901 note), as amended by section 302, is further amended—
+
+(1) by redesignating subparagraphs (F) as subparagraph (G); and
+
+(2) by inserting after subparagraph (E) the following:
+
+‘‘(F) Systematic rape, coercive abortion, forced sterilization, or involuntary contraceptive implantation policies and practices.’’.
+
+(b) EFFECTIVE DATE; APPLICABILITY. — The amendment made by subsection (a)—
+
+(1) takes effect on the date of the enactment of this Act; and
+
+(2) applies with respect to the first report required by section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 submitted after such date of enactment.
 
 0

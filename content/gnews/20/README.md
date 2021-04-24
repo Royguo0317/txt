@@ -1,61 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】CCP以人民的名义操着人民
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1134760/)
+## 透过COINBASE的直接上市，洞见G系列的未来之二：无计算，不直观！
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1134808/)
 
-作者：纽约香草山写作组  木白
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
+- 作者：文鹏
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/【香草诗词汇】CCP以人民的名义操着人民.jpg)
+**西班牙2021年4月24日电/西喜社——**
 
-不断训练怎样把谎话说得动听
+“无财作力，少有斗智，既饶争时”——出自史学大家司马迁《史记·货殖列传》，而G系列就是承载亿万新中国联邦人信仰、财富和梦想开始的地方，时局、时运、时势缺一不可。
 
-要字正腔圆，还要摸着心子窝说
+COINBASE于2012年5月成立， 历时近9年于美国东部时间2021年4月14日在纳斯达克上市，历年融资股价如下：
 
-不断训练怎样把一坨屎赞美得有水平
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-2-9.jpg)
 
-要不露声色地拍马屁，要陶醉于屎的香味
+图一（不含种子轮）：各轮股价比A轮股价溢价倍数
 
-不断训练怎样把文章写得高大上
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-3-12.jpg)
 
-要站在全人类的高度，要用尽最美的汉字
+图二（不含种子轮）：IPO股价比各轮股价溢价倍数
 
-于是，你就可以坐上上面那个位置了
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-4-17.jpg)
 
-接着，开始有人拍你的马屁，也拍得润物细无声
+假设我们在A轮投资2,000美元购买1万股，所持股票市值以IPO当天开盘价计算约为381万美元，比初始投资翻了1905倍（溢价率190500%），如果以开盘价全部变现，退出年限为9年，则内部收益率（IRR）为：157%。
 
-这一切的假，是你享用的真
+对比GTV的投资，本人认为我们是以比COINBASE-A轮股价还便宜的价格投资了处于（D轮或E轮）融资的COINBASE的股票，而GTV的上市时间有多大概率会耗时9年呢？
 
-这一切的真，是要让你把虚伪用尽
+故“信仰”和“真”使G系列的雪球厚度和粘度都在不断增强，而陡峭的坡（CCP的无知与疯狂）也越来越长，这真的是一切已经开始，我们不仅是时代的见证者，还是参与者，更是创造者。
 
-不择手段，钱、权、下半身的勾当
+审核：蚂蚁兄弟；校对：信心的选择；发稿：信心的选择
 
-这些装模作样的青天大老爷——
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
-CCP以人民的名义操着人民
-
-2021年1月
-
-
-
-审核/发稿： 雪梨
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1

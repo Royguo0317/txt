@@ -1,11 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共一直通过窃取和渗透，意图颠覆美国的生物医学研究行业
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1134584/)
+## 【香草诗词汇】CCP以人民的名义操着人民
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1134760/)
 
-4/22/2021 美国国立卫生研究院（NIH）院外研究部副主任迈克尔·劳尔（Michael Lauer）博士在4月22日举行的参议院卫生、教育、劳工和退休金（HELP）委员会听证会上，作证外国势力（主要是中共）对美国生物医学研究中的影响；参议员罗杰⋅马歇尔：为消除美国的竞争优势，中共一直在以关键技术和研究机构为目标，系统性地努力渗透到美国学术研究界，因此中共将继续是美国技术竞争力的首要威胁。
+作者：纽约香草山写作组  木白
 
-By： 【秘密翻译组 G-Translators】
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
 
-+3
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/【香草诗词汇】CCP以人民的名义操着人民.jpg)
+
+不断训练怎样把谎话说得动听
+
+要字正腔圆，还要摸着心子窝说
+
+不断训练怎样把一坨屎赞美得有水平
+
+要不露声色地拍马屁，要陶醉于屎的香味
+
+不断训练怎样把文章写得高大上
+
+要站在全人类的高度，要用尽最美的汉字
+
+于是，你就可以坐上上面那个位置了
+
+接着，开始有人拍你的马屁，也拍得润物细无声
+
+这一切的假，是你享用的真
+
+这一切的真，是要让你把虚伪用尽
+
+不择手段，钱、权、下半身的勾当
+
+这些装模作样的青天大老爷——
+
+CCP以人民的名义操着人民
+
+2021年1月
+
+
+
+审核/发稿： 雪梨
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
