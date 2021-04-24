@@ -1,64 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## FBI局长：每10小时就有对中共国的新调查
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1134908/)
+## 有中共背景的黑客利用VPN漏洞攻击美国国防工业
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1134928/)
 
-新闻来源：《CNN》| 作者：Mike Conte, Christian Sierra and Ben Westcott | 发布时间：2021年4月15日
+新闻来源：《Reuters》| 作者：Christopher Bing and Raphael Satter | 发布时间：2021年4月21日
 
-翻译/简评：clau | 校对：Beicy-数学老师 | 审核：万人往 | Page：青山
+翻译/简评：村民彼得潘 | 校对：感恩 | 审核：万人往 | Page：我是球大哥
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Zck5p9bG2LE8f/images/806c2da0-cdc0-438a-8215-70a2c42e2706.jpg?asset_id=372896f6-0bb0-4618-b5e7-0ed036007644&amp;img_etag=%2282172bdd78aab629b324b545a4cfd1a2%22&amp;size=1024)](https://spark.adobe.com/page/Zck5p9bG2LE8f/images/806c2da0-cdc0-438a-8215-70a2c42e2706.jpg?asset_id=372896f6-0bb0-4618-b5e7-0ed036007644&amp;img_etag=%2282172bdd78aab629b324b545a4cfd1a2%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/y2hVue2ZjdoiB/images/58b9f190-ea96-4fae-9468-e620b0f64fb4.jpg?asset_id=713ff22f-1372-4f85-bf87-5fe2496debe9&amp;img_etag=%22332ece279f639f53ee456354c6165b0f%22&amp;size=1024)](https://spark.adobe.com/page/y2hVue2ZjdoiB/images/58b9f190-ea96-4fae-9468-e620b0f64fb4.jpg?asset_id=713ff22f-1372-4f85-bf87-5fe2496debe9&amp;img_etag=%22332ece279f639f53ee456354c6165b0f%22&amp;size=1024)
 
-**简评：**
+正如文中所引述，多年来美国曾多次指控中共国黑客窃取美国军事机密，而文中提及的火眼子公司Mandiant，也是因其早在2013年发布的一份针对中共国网络间谍活动的报告而一举成名。不难察觉，虽然中共国自互联网诞生以来，一直孜孜不倦地通过这种虚拟方式偷取情报、信息和技术，但互联网的发源地美国也从未停止对这些行径的追踪和反击。即使这些网络安全公司在公众场合仍无法采取直接表述，似乎一个私营企业对一个国家政府的直接指控存在着巨大风险与立场上的不对等，但具体情况究竟如何，这些黑客行动背后是否有一双中共的手在推动，我想美方从民间到官方都心知肚明。
 
-上周三，联邦调查局局长、美国国家情报局局长、中央情报局局长针对来自中共国的全面威胁，同时出席了在美国国会的公开听证。他们的证词表明了来自中共的威胁是全方位的、深入的、持续的且动摇美国根基的。
+令人感到有些意外的是，跟踪中共多年的Mandiant副总裁也会惊叹中共目前黑客手段的先进。诚然，作为网络安全公司本身，他们的利益考量存在着情况越危急则越有生意可做的成份。但经过了多年来的偷抢骗、“蓝金黄”，中共可以在生物武器的开发研究上巧立名目，借助外国的技术支援，在网络技术方面又何尝不能“师夷长技以制夷”呢？卡马卡尔此言“先进”想必也是可控范围内的“先进”，如非他有把握应对这些黑客攻击，恐怕也轮不到这一家公司来做呼吁了。由此即可看出，中共自以为手段高明弄来了什么“葵花宝典”，然而其不思进取的本性让它在不断革新的美国面前，从来不会有赢的机会。
 
-联邦调查局局长克里斯托弗·雷称该局有2000多项调查与中共国政府有关，而且每10小时就有一项新调查，尤其提到了中共针对海外华人华侨开展的“猎狐行动”，此行动是中共违反美国法律，威胁、恐吓骚扰（和）敲诈“华裔”侨民的最典型例子。让人不禁想到自2017年郭文贵先生开始爆料以来，中共对郭先生的各种抹黑、造谣甚至是暗杀，最让人印象深刻的就是中共特务利用无人机黑客郭先生的私人游艇“Lady May”，导致游艇失控险些撞船的事件。中共利用网络黑客配合所在国当地间谍执行任务的能力可见一斑。
-
-此次美国情报系统三位局长少有的集体作证，向美国人表明了，中共对美国乃至全世界的威胁是真实存在的，绝不是什么耸人听闻阴谋论，也不是带着种族歧视眼光的抹黑论。希望西方国家拿出实质性的行动，直面因为自己几十年以来的天真和贪婪导致的不利局面，对抗来自中共的威胁！
+值得注意的是，据个人了解，本文提到存在漏洞的Pulse Connect Secure套件的应用范围极为广泛，尤其对于需要全球数据联动的大型跨国企业以及本文提到的国防等本身非常敏感、对数据十分依赖的企业。它的基本功能可以概括为，用户在需要远程办公时，该程序在个人或公共网络与公司服务器之间建立加密通道，以保障信息只在公司内部流通。这意味着只要骇客了这套登入系统，那么使用该系统的所有公司都会受到极大的数据泄露威胁。而新冠病毒大爆发期间，在家办公十分普遍，这无疑让黑客更容易混淆其中。事实上，文中提到的思杰、思科也是为公司提供类似全套解决方案的巨头。在所有的行业，尤其尖端技术领域，都或多或少与信息技术相绑定的今天，想避开这两个名字是非常难的。简而言之，中共这回是在试图找到一把万能钥匙。我们不知道美方是如何放任中共到今天，使其有了足够的眼界与野心以及一定的技术和能力，瞄准了这样一个危险目标。但卡马卡尔并没有言过其实，美方是时候采取行动了。
 
 **原文翻译：**
 
-## **美国联邦调查局局长称“每10小时”就对中共国展开一次新的调查**
+## **研究人员：与中共国有关联的黑客利用VPN漏洞锚定攻击美国国防工业**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Zck5p9bG2LE8f/images/abab76e4-97ec-4af8-a8b8-ae170c829291.jpg?asset_id=98fa22e6-d419-45dd-a5dc-a13884ea9ee7&amp;img_etag=%22373c2554852145c408b237c10b5c3836%22&amp;size=1024)](https://spark.adobe.com/page/Zck5p9bG2LE8f/images/abab76e4-97ec-4af8-a8b8-ae170c829291.jpg?asset_id=98fa22e6-d419-45dd-a5dc-a13884ea9ee7&amp;img_etag=%22373c2554852145c408b237c10b5c3836%22&amp;size=1024)04:04 戏剧性的视频显示，中共国海军的演习加剧了台湾的紧张局势
+[!\[\]()!\[\](https://spark.adobe.com/page/y2hVue2ZjdoiB/images/ab6a25ed-65b1-4a7e-9e80-d0439424e7a2.jpg?asset_id=e2997b6d-fe54-4c5e-b11a-5ff521c73c8f&amp;img_etag=%22381191eb26a7ce5fd488cf788a40b79a%22&amp;size=1024)](https://spark.adobe.com/page/y2hVue2ZjdoiB/images/ab6a25ed-65b1-4a7e-9e80-d0439424e7a2.jpg?asset_id=e2997b6d-fe54-4c5e-b11a-5ff521c73c8f&amp;img_etag=%22381191eb26a7ce5fd488cf788a40b79a%22&amp;size=1024)2010年9月24日，美国国土安全部的徽章被拍摄于弗吉尼亚州阿灵顿郡华盛顿特区郊外的国家网络安全与通信集成中心（NCCIC）。路透社/Hyungwon Kang
 
-美国有线电视新闻网(CNN)报道，美国联邦调查局局长周三告诉美国参议院情报委员会，该局有2000多项调查与中共国政府有关，而且“每10小时就有一项新调查”。
+[!\[\]()!\[\](https://spark.adobe.com/page/y2hVue2ZjdoiB/images/6a11be7d-5104-447a-a9e8-1a14fbc58286.jpg?asset_id=488143cd-635c-45db-a8cb-99ea39efb6b7&amp;img_etag=%226a806482d70115e55f3f9d329e8f8e70%22&amp;size=1024)](https://spark.adobe.com/page/y2hVue2ZjdoiB/images/6a11be7d-5104-447a-a9e8-1a14fbc58286.jpg?asset_id=488143cd-635c-45db-a8cb-99ea39efb6b7&amp;img_etag=%226a806482d70115e55f3f9d329e8f8e70%22&amp;size=1024)在这幅2021年4月20日制作的插图中可以看到Ivanti的标志及网络二进制代码。路透社/Dado Ruvic/插图设计
 
-联邦调查局局长克里斯托弗·雷（Christopher Wray）在他的证词中说，没有其他国家比中共国对美国的经济安全和民主理念构成更大的威胁，并补充说，中共国影响美国机构的能力是“深入、广泛和持续的”。
+研究人员和设备制造商周二表示，至少有两组与中共国有关联的黑客花了几个月时间，利用美国虚拟私人网络设备中一个先前未被披露的漏洞，对美国国防工业进行监视。
 
-雷的评论是在华盛顿和北京当局在一系列战线上的紧张关系上升之际发表的，包括据称中共国在西部地区新疆的侵犯人权行为以及与台湾和香港有关的问题。
+总部位于犹他州的IT公司Ivanti在一份声明中[称](https://blog.pulsesecure.net/pulse-connect-secure-security-update/)，这些黑客利用其Pulse Connect Secure套件中的漏洞，侵入“数量非常有限的客户”的系统。
 
-美国国家情报局局长艾薇儿·海因斯（ Avril Haines）和中央情报局局长威廉·伯恩斯（William Burns）在周三的听证会上与雷一起发言，这是自2019年以来国家情报部门领导人在美国国会的首次集体公开作证。
+Ivanti[表示](https://kb.pulsesecure.net/pkb_mobile#article/l:en_US/SA44784/s)，虽然他们已经采取了缓解措施，但对该问题的修复要到5月初才能实现。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Zck5p9bG2LE8f/images/746803f3-bb8e-47d7-9057-3a340970c478.jpg?asset_id=439190d4-e517-4a50-9b2d-64b86527e9d7&amp;img_etag=%22e3c93902ad0834bf7c8043aa3840bd45%22&amp;size=1024)](https://spark.adobe.com/page/Zck5p9bG2LE8f/images/746803f3-bb8e-47d7-9057-3a340970c478.jpg?asset_id=439190d4-e517-4a50-9b2d-64b86527e9d7&amp;img_etag=%22e3c93902ad0834bf7c8043aa3840bd45%22&amp;size=1024)4月14日星期三，在华盛顿国会山，联邦调查局局长克里斯托弗·雷（ Christopher Wray）在参议院情报特别委员会关于全球威胁的听证会上作证。
+关于谁可能对间谍活动负责，Ivanti没有提供任何细节，但在与Ivanti的公告同时发布的一份报告中，网络安全公司火眼（FireEye Inc,[FEYE.O](https://www.reuters.com/companies/FEYE.O)）称，他们怀疑至少有一个黑客团队代表中共国政府运作。
 
-特别是，雷针对一项与中共国政府相关、名为“猎狐”的行动做出了指控，他指称该行动涉及北京政权在美国本土进行“未经协调的非法执法活动”，作为“威胁、恐吓骚扰（和）敲诈“华裔侨民”成员的手段。
+“我们怀疑涉案的另一个黑客组织与中共国发动的举措和案件丛集相吻和。”火眼旗下的Mandiant公司高级副总裁查尔斯·卡马卡尔（Charles Carmakal）在报告发布前表示。
 
-“这表明并说明了这种特殊的威胁是多么具有挑战性和多样性。”雷说。
+将黑客与特定国家联系起来充满了不确定性，但卡马卡尔称，他的分析师们的判断是基于对黑客的战术、工具、基础设施和目标的审查——其中许多与过去跟中共国有关的入侵行为相呼应。
 
-中共国政府将“猎狐行动”视为一项国际反腐败运动，目标是来自中共国的逃犯，通常是涉嫌经济犯罪的前官员或富人。
+中共国大使馆发言人刘鹏宇表示，中共国“坚决反对并打击一切形式的网络攻击”，并将火眼的指控形容为“不负责任且居心不良”。
 
-听证会是在美国情报界发布年度威胁评估报告后不到一周后举行的，报告中警告说，中共国和俄罗斯政府旨在利用新冠肺炎大流行病来扩大其全球影响力。
+火眼拒绝透露黑客的目标，只将这些目标标识为“世界各地的国防、政府和金融机构”。它表示，这群被怀疑代表北京当局工作的黑客特别关注于美国国防工业。
 
-该报告说，北京政权一直在“努力加紧改变美国的政治环境”，试图扩大其政治影响力，压制对其自身政策的批评，包括对新疆和香港公民自由的镇压。
+国土安全部的网络部门在一份声明中称，他们正在与Ivanti合作，“以更好地了解Pulse Secure VPN设备的漏洞，并减少对联邦民用和私营领域网络的潜在风险。”
 
-周三，海因斯告诉参议院情报委员会，中共国政府拥有“大量”的网络能力，“如果部署，至少可以对美国境内的关键基础设施造成局部的、暂时的破坏。”
+美国国家安全局拒绝发表评论。多年来，美方官员曾多次指控中共国黑客通过各种手段窃取美国军事机密。
 
-2020年7月，美国政府指控了两名据称来自中共国的黑客，当局称他们参与了“全面的全球性计算机入侵活动”，包括试图黑客美国冠状病毒研究及瞄准人权活动家。
+最近，公司难以监控的网络设备已成为受数字间谍青睐的进攻路径。
 
-“在任何时候，在我们的规范和机构、我们的员工和整合我们工作上下功夫都是最重要的。”海因斯周三说。
+2020年，火眼就曾[警告](https://www.fireeye.com/blog/threat-research/2020/03/apt41-initiates-global-intrusion-campaign-using-multiple-exploits.html)，与北京当局结盟的黑客们正瞄准进攻思杰系统公司（Citrix Systems Inc, [CTXS.O](https://www.reuters.com/companies/CTXS.O)）和思科系统公司（Cisco Systems Inc, [CSCO.O](https://www.reuters.com/companies/CSCO.O)）制造的设备，以入侵许多的公司，火眼称这是他们多年来看到的中共国黑客最广泛的活动之一。
 
-🔗[原文链接](https://edition.cnn.com/2021/04/14/politics/fbi-director-china-investigations-intl-hnk/index.html)
+虽然火眼的报告表示对最近这一系列的黑客行为的调查发生在“今年年初”，但没有明确说明黑客攻击的具体时间。
+
+卡马卡尔补充道，黑客在美国的数字基础设施上操作，并借用受害公司的命名惯例来伪装他们的活动，这样他们看起来就像任何其他从家里登录的员工。
+
+“我们正目睹相当先进的技术手段。”他表示。
+
+[原文链接](https://www.reuters.com/technology/china-linked-hackers-used-pulse-secure-flaw-target-us-defense-industry-2021-04-20/?taid=607f1edf5a08ec0001320f83&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Zck5p9bG2LE8f/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/Zck5p9bG2LE8f/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/y2hVue2ZjdoiB/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/y2hVue2ZjdoiB/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
