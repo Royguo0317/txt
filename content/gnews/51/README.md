@@ -1,70 +1,128 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 知道中共有解药以后西方该怎么办&nbsp; 习近平已经众叛亲离
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1133237/)
+## 中共超限战灭港计划（四十五）中英联合声明谈判部署
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1133486/)
 
-**摘要：郭先生在2021年4月22日的盖特视频中说，在他21日爆出中共有解药后，世界和国内都引起巨大震动，他告诉西方国家要跟中共要解药，并透露在分配解药一事上，习近平已经众叛亲离。**
-[下载字幕](https://www.gnews.org/wp-content/uploads/2021/04/Miles_20210422-getter1.srt.txt)
-**知道中共有解药以后西方该怎么办****  ****习近平已经众叛亲离**
+搜集/撰文：岁月如歌 / 封面合成：文粤
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4241.jpg)
+**很多人在问香港回归究竟是哪一方首先提出来的呢？**
 
-**Knowing There Is an Antidote, How Should We Go Forward Next?**
+在香港“回归”之前，香港一直由英国统治这是无可置疑的。但是在国民党政府期间对香港的态度又是如何的呢？人们知道得不多，1943年1月11日重庆政府外教部长宋子文和英国的驻华大使薛穆在重庆签署了《中英关于取消英国在华治外法权及其有关特权条约》，史称《中英新约》。这个条约表明国民政府在当时的政治局势动荡不安的情况下，国民政府依然对香港的问题提出他的看法。蒋介石认为英国以暴力入侵中国，并与清政府签订的不平等条约，国民政府一概不予承认。并声明战后随时可以收回香港。罗斯福也曾认为英国政府应该放弃统治香港归还给中国，可以把香港发展为一个国际自由港。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4242.jpg)图片来自世代忏悔录
+1945年8月日本宣布无条件投降头，香港的归属究竟是继续归给英方殖民还是直接归还给中国呢？二战时期英属殖民地香港（中共拒绝承认称香港是殖民地）被日本占领统治了三年，日本投降归还香港是避免不了的话题。英国当然希望继续殖民香港毕竟当时的香港是英国远东海军基地和商业中心，而国民党政府正与中共激烈的内战中，无暇顾及，香港成为战胜国利益交换的筹码。
 
-那么另外一个我想和大家说的事情，就是昨天在我盖特发出以后，[我爆出了]共产党有解药。[共产党]有解药这件事情可以说在世界上[是]重大重大的一张[灭共牌]，[是]重磅的一则爆料，影响[深远]。
+1949年中共国宣布成立，英国是西方第一个承认中共国合法的国家，这个是前面文章提到过的当初中共和港英政府所谓的外交谈判中许下的承诺。英国在中共国取得联合国地位后发表中兴联合声明承认中共是唯一的合法国家。根据英国国家档案馆一些公开的资料显示，港英政府在1952年大力推行民众选举，但是遭到中共的反对施压。周恩来在1960年表示，「中共会毫不犹豫地采取积极行动解放香港九龙和新界」。 「任何时候在香港引入哪怕一点点自治的尝试，都会被视为非常不友善的举动和阴谋，表示这种做法被认为是让香港走上独立道路的手段」。看完这段文字终于明白戴卓尔夫人为何说的要不是中共香港早已走上民主或者独立自治了。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4243.jpg)
+1979年港督麦理浩访华，英方这次访华是为针对香港将要租借期满的事宜到北京摸底的。是英方主动找中共商量。麦理浩向中共政府要求延长新界租期，理由就是为香港投资者，因为英国在新界的租借期限将到这个消息大家知道之后香港的投资走向低迷，都担心不知港英政府还能呆多久，也不知中共接手后会如何。麦理浩访华打开香港回归的前途议程。
 
-So another thing that I want to share with everybody is that yesterday I posted my Getter video that exposed the fact that the CCP has an antidote. We can say that the fact that the CCP has an antidote can be used as a major card [in taking down the CCP]. It’s like a bombshell dropped and it will have a profound impact.
+《戴卓尔夫人回忆录（下）》1994，361～362页:「一九八三年一月廿八日⋯⋯中国在六月时单方面宣布他们对香港未来的计画；我们一致认为必须阻止⋯⋯我们必须发展香港的民主架构，使她能在短时间内达成独立或自治，这其中包括了在香港建立一个更「中国」的政府和行政机关[按：即公务员本地化]，让中国人民[按：即本地华人]日益自主，使英国逐渐处于次要的地位。我们也考虑在香港设置一个行使公民覆决权的机构，因为在立法局的选举中可看出香港的中国人对民主有极大的兴趣，政府必须予以回应⋯⋯但我不能坐视不理；一九八三年三月我写了一封私人的信任给赵紫阳…如果能对香港的稳定与繁荣提出适当的安排，我将考虑向国会提出有关香港主权的问题⋯⋯同时也必须能为英国国会、香港人民以及中国政府所接受。我准备向国会提议，香港的主权必须重归中国」。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4244.jpg)图片来自世代忏悔录
+前英驻华大使柯利达回忆录「《中国的经历》（1994）」形容，中方在原则问题上强硬，拒绝处理实质性事务。珀西·柯利达（Percy Cradock）（1994）中国的经历，183–186页披露，在第一阶段的谈判方式上首先就是要跟“中方的要求”做斗争，也就是说英方必须满足中方的要求谈判才顺利否则会很困难。 「中国人没有兴趣讨论谈判的实际细节或任何补充事项。我们面临着一个原则大问题，在任何情况下我们都无法接受，而且长期以来证明它是无法绕开的」。这个原则大问题就是双方牛头不对马嘴，不在一个点上。英方注重的是交接的细节如何安排香港的民生经济等方面的具体事宜，而中方就一个原则「把主权给我」我只要主权。其他的什么事宜给了我再说。从“英方就部分香港居民的旅行证件问题向中方所致的备忘录”，详见「[中英联合声明英方备忘录](https://zh.m.wikipedia.org/wiki/%E4%B8%AD%E8%8B%B1%E8%81%94%E5%90%88%E5%A3%B0%E6%98%8E%E8%8B%B1%E6%96%B9%E5%A4%87%E5%BF%98%E5%BD%95)」
 
-所有真正有正事、有良知的[人]，知道冠状病毒[的情况]了解共产党的西方官员，他说为什么全世界人就没想过这个问题呢？他说你爆出这个问题太重要了。昨天我和亚洲的某个国家连线，人家对方就说：“郭先生，我们没有任何怀疑你的意思。我们应该怎么往前走？”
+英方为香港人身分，国籍，旅行，以及后代的国籍等提出多个设想和讨论，很详细，这些都是回归后面对的问题，但是经过多轮角逐也得不到双方满意的解决，历史遗留的问题导致今日香港人在这方面遇到难题。反送中运动引起的移民潮问题，双国籍问题，户口问题，签证问题⋯⋯成为英方与中共新的角力。
 
-Like all people in the West who are righteous, who have a conscience, who know about the coronavirus, and who understand the CCP, this guy asked, “Why hasn’t anybody in the world even thought about this?” He said that the stuff that I exposed is really important. Yesterday I connected with people from a certain country in Asia, and they said: “Mr. Guo, we don’t have any doubts about what you said, but how should we go forward?”
+（未完待续）
 
-我说：“非常简单，你先定义这个[病毒]是不是自然的，不是自然的那就是人造的。[如果是]人造[的，那是]谁造的？大家现在怀疑唯一的[罪魁祸首]就是中国共产党。为啥共产党里面有人戴口罩有人不戴口罩？为什么共产党的老百姓死了上百万人武汉老百姓？为什么这些高官的家人一个不死？[事情]就这么简单。”
 
-I said, “Very simple. First you define whether this virus is natural or not. If not, then it is man-made. If it is man-made, who made it? The only one suspected by everybody is the CCP. Why do some members of the CCP wear masks and some don’t? Why have millions of common people in Wuhan in communist China died but none of these high-ranking officials’ family have? That’s how simple it is.”
+【本文仅代表作者个人观点】
 
-“那么现在共产党如果说没有解药，那请让他[共产党]告诉你所有参与研究武汉实验室的任何工程师，让他[们]到美国和欧洲来接受质询。别说审判，质询他[们]。让他[们]告诉你怎么找到[冠状病毒的]解药，行不行？或者你们美国欧洲不敢跟共产党要真相，[那就跟共产党]要[冠状病毒的]解药呗。说你给解药我[们就]不追究你责任了，这不也挺好吗，对吧？也挺好啊。”
+参考连接：
+[世代忏悔录](https://medium.com/recall-hk/f-ad24a6992ee3)
 
-I continued, “So if the CCP replies that they have no antidote, you then ask them to tell you who the engineers involved in the research in the Wuhan lab are, then let them come to the US and Europe to receive questions at hearing. Don’t call it trials, call it hearings. Let them tell you how to find the antidote, okay? Or if you, the US and Europe, dare not ask the CCP for the truth about the virus, you can just ask for the antidote. Tell them that if they agree to give the antidote, you won’t hold them accountable. Isn’t it nice, right? It will be pretty nice.”
+[维基百科-中英联合声明](https://zh.m.wikipedia.org/wiki/%E4%B8%AD%E8%8B%B1%E8%81%AF%E5%90%88%E8%81%B2%E6%98%8E)
 
-所以说现在这个[冠状病毒]解药的问题引起了世界上的巨大震撼。
+导读：
+中共超限战灭港计划
 
-So now this antidote thing has greatly shocked the world.
+[中共超限战灭港计划（一）权贵家族在香港的扩张](https://gnews.org/zh-hans/958921/)
 
-兄弟姐妹们，连我本人在48小时以前，我[都]从来没想过这个世界上会有[冠状病毒的]解药。我[之前]通过各种内部参与爆料[革命]的人[了解]，都给我一句话：“不可能有疫苗，因为这是人造的生化病毒，怎么可能有疫苗呢？这是个基本常识，而且每个[病毒]都在变异中。”直到他告诉我说：“文贵，我可以告诉你，没那么悲观。只要西方世界有正义的力量和正义的良知的人，这个世界是有解药的。”
+[中共超限战灭港计划（二）香港地下党员](https://gnews.org/zh-hans/961318/)
 
-Brothers and sisters, even I myself had never thought that there could be an antidote existing in this world like 48 hours ago. Previously I heard the same answer from different fellow fighters of the Whistleblower Movement: “There can’t be any vaccines, because this is a man-made bioweapon virus. How can there be a vaccine? This is basic common sense. Besides, this virus keeps mutating.” Until this guy told me: “Miles, I can tell you, it’s not so hopeless. As long as there are righteous people with a conscience in the western world, there will be antidotes in this world.”
+[中共超限战灭港计划（三）中共早期地下党员梁慕娴](https://gnews.org/zh-hans/964147/)
 
-我当时就傻了，我说：“你在开什么玩笑啊？怎么可能？生化病毒怎么[可能]有解药？”他说：“生化病毒只要是研究者当初把它当成病毒了，它就有解药。”然后给我讲了这个过程。[听完]我傻了。但是我也觉的这是个巨大的希望，[随后]我[把这个消息]第一个先告诉了我身边的最重要的一个替我把关这方面情报的科学的一个助理。我说：“你马上到你们某[机构]找这些人研究研究，[看看]这话是否可靠？”[得到的]答案是：他是对的！
+[中共超限战灭港计划（四）香港早期活跃人物司徒华的前半生](https://gnews.org/zh-hans/966481/)
 
-I was frozen on the spot, I said, “Are you kidding me? How could it be possible? How can a bioweapon virus has an antidote?” He said, “As long as the researchers of a bioweapon virus treated it as a virus when they developed it, there should be an antidote.” Then he explained the process to me. I was stunned. But I also felt that this could be a great hope. Then I forwarded this information to the most important assistant who has been helping me with verifying intelligence in the science field right away. I said: “Could you find people in your [institution] to research on this and find out whether the information is reliable or not?” The answer I got is: He is right!
+[中共超限战灭港计划（五）司徒华的下半生](https://gnews.org/zh-hans/969837/)
 
-然后我又经过核实，特别是他说的国内所谓的中央政治局、中央常委2020年所谓的《工作方式的重要提要》，重要提要。就因为这个问题现在，大家记住啊习[近平]身边没人啦。韩正不行了，本来也不怎么行；栗战书也靠边站了；丁薛祥也靠边站了，大家看到了吗？王沪宁也靠边站了，大家看到了吗？现在就剩下仨人，严格讲四个人[是习信任的]：他弟弟习远平，然后军方的许其亮，[习近平对]许其亮最近也半信半疑，[对许也很]恼火。完全剩下[信任]杨娘娘[杨洁篪]，王太监[王毅]，王太监[王毅]。
+[中共超限战灭港计划（六）五区公投](https://gnews.org/zh-hans/972231/https:/gnews.org/zh-hans/972231/)
 
-Then I verified again, especially on what he said about the so-called “Important Synopsis of Working Methods” by the so-called Political Bureau of the Central Committee and the Central Standing Committee in 2020, or “Important Synopsis” for short. Please remember this: Exactly because of this [Important Synopsis], Xi Jinping has lost everyone around him. Han Zheng is over (he hasn’t been trusted anyway); Li Zhanshu also stepped aside; Ding Xuexiang also stepped aside, have you seen it? Wang Huning also stepped aside, have you seen it? Now there are only three people left. Strictly speaking, there are four people [that Xi trusts]: his younger brother Xi Yuanping, then Xu Qiliang from the military, but Xu Qiliang has become suspicious and annoying in Xi’s eyes recently. So this only leaves Concubine Yang (Yang JieChi) and Eunuch Wang (Wang Yi) that he still trusts.
+[中共超限战灭港计划（七）五区公投的前因与后果](https://gnews.org/zh-hans/975744/)
 
-所以说你看兄弟姐妹们，这杨娘娘[杨洁篪]、王公公[王毅]两人和习大神还得隔着个门指挥许其亮，还有个弟弟习远平。这共产党还有未来吗？听说就这个开会的形式把大家全[吓]傻了，也就是给不给谁解药的问题，不是说你家人要解药[就给你]。听说韩正要给家人要一些解药犯大忌了。你[韩正]想干什么？你[韩正]想干什么？嗯？
+[中共超限战灭港计划（八）](https://gnews.org/zh-hans/977519/)[23](https://gnews.org/zh-hans/977519/)[条之战与五区公投后果](https://gnews.org/zh-hans/977519/)
 
-So brothers and sisters, you can see that the Great God Xi can only command Xu Qiliang indirectly through Concubine Yang, Eunuch Wang Xi, and Xi Yuanping. So is there still hope for the CCP? I heard that the situation in the meeting really scared everyone, particularly, surrounding the question of whom to give the antidote. It’s not like you can request the antidote for anyone in your family. I heard that Han Zheng asked for some antidote for his family and this really touched the red line, making Xi think: “What do you want to do, Han Zheng?”
+[中共超限战灭港计划（九）中共十三届四次会议](https://gnews.org/zh-hans/981210/)
 
-这个解药啊，最后拿解药的人你一定记住：想要解药的人一定把拿解药的人弄死。这就是七哥在爆料[病毒]一出[现]，[刚]开始的时候就说过，[解药]叫“人尸丸”。看看那江湖上，那个什么任老妖[任我行]弄得泡的“人尸丸”。是不是啊？东邪西毒，吃下去用人尸体做的这个“人尸丸”，吃了以后你想再活？那就继续吃我“人尸丸”，必须听我的。这就[是]世界的“人尸丸”，你咋弄啊？苍天在上，啊苍天呐，苍天呐。
+[中共超限战灭港计划（十）梁慕娴揭露香港中共地下党](https://gnews.org/zh-hans/983319/)
 
-Regarding this antidote, those who eventually got the antidote must remember this: those who want the antidote must kill those who have got the antidote. This is like what I, your Brother Miles said at the very beginning of the pandemic, the antidote is called the “zombie pill”. The zombie pill is like what the old demon Ren Woxing (a figure in a martial arts novel) cooked, isn’t it? If those who have taken this zombie pill want to live, they have to continue to take the pills, so they must listen to the master. So this virus antidote is like the modern world version of the zombie pill. What do we do? Heavens, please have mercy on us!
+[中共超限战灭港计划（十一）梁振英的地下党员身分之争](https://gnews.org/zh-hans/986516/)
 
-所以现在共产党现在乱了，从我发出那个盖特[之后]。我让大家简单看一下啊，大家就简单[看一下]，[可]别暴露信息啊，我别爆露信息啊。你看我简单[说一下]，每一个小时三千多个[信息]，每一个小时啊，每一个小时。国内很多战友，体制内的战友纷纷爆料：“七哥，这个[病毒解药]太重要，你说对了！看看中央警卫局，中央警卫局还有八一大楼什么人戴口罩什么人不戴口罩？”
+[中共超限战灭港计划（十二）林郑月娥共产党员身分](https://gnews.org/zh-hans/990380/)
 
-Since I posted that Getter video, the CCP has been in chaos. I’ll let you guys take a look at it quickly, hoping not to reveal any private information. Simply put, I received more than 3,000 messages per hour. That’s per hour, per hour! Many fellow fighters in mainland China within the party system told me: “Brother Miles, this information is so important! You’re right! Look at the Central Guard Bureau, the Central Guard Bureau and the Eight-One Building and see who wears masks and who doesn’t.”
+[中共超限战灭港计划（十三）老鼠窝中联办](https://gnews.org/zh-hans/992518/)
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/608164998616c84f0ff26438](https://gtv.org/getter/608164998616c84f0ff26438) (1:08-1:26, 1:49-5:36, 6:30-7:39,8:05-8:50)
-鸣谢：感谢盘古小蚂蚁、Antsee-GTV、TING GUO提供中文文本于 [https://www.gnews.org/zh-hans/1127073/](https://www.gnews.org/zh-hans/1127073/)
+[中共超限战灭港计划（十四）占领舆论阵地之两封密电](https://gnews.org/zh-hans/997143/)
 
-* * *
+[中共超限战灭港计划（十五）占领舆论阵地之私营报纸的存亡](https://gnews.org/zh-hans/1001701/)
 
-字幕：【JennyL】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+[中共超限战灭港计划（十六）抢占香港舆论阵地之共英之约](https://gnews.org/zh-hans/1006899/)
+
+[中共超限战灭港计划（十七）抢占舆论阵地之雨后春笋](https://gnews.org/zh-hans/1012264/)
+
+[中共超限战灭港计划（十八）抢占香港舆论阵地之张五场](https://gnews.org/zh-hans/1016253/)
+
+[中共超限战灭港计划（十九）传媒舆论分](https://gnews.org/zh-hans/1020122/)[析](https://gnews.org/zh-hans/1020122/)
+
+[中共超限战灭港计划（二十）新时代舆论战之反送中运动](https://gnews.org/zh-hans/1024389/)
+
+[中共超限战灭港计划（二十一）新时代舆论战之中共新战略](https://gnews.org/zh-hans/1028829/)
+
+[中共超限战灭港计划（二十二）双十暴动](https://gnews.org/zh-hans/1036475/)[(](https://gnews.org/zh-hans/1036475/)[上](https://gnews.org/zh-hans/1036475/)[)](https://gnews.org/zh-hans/1036475/)
+
+[中共超限战灭港计划（二十三）双十暴动](https://gnews.org/zh-hans/1039951/)[(](https://gnews.org/zh-hans/1039951/)[下](https://gnews.org/zh-hans/1039951/)[)](https://gnews.org/zh-hans/1039951/)
+
+[中共超限战灭港计划（二十四）暗杀周恩来](https://gnews.org/zh-hans/1046701/)
+
+[中共超限战灭港计划（二十五）六七暴动前的澳门](https://gnews.org/zh-hans/1049039/)
+
+[中共超限战灭港计划（二十六）六七暴动前的香港](https://gnews.org/zh-hans/1050567/)
+
+[中共超限战灭港计划（二十七）六七暴动之中共左派策动政治潮](https://gnews.org/zh-hans/1054412/)
+
+[中共超限战灭港计划（二十八）六七暴动之是谁煽动年轻人](https://gnews.org/zh-hans/1061090/)
+
+[中共超限战灭港计划（二十九）六七暴动之福建帮](https://gnews.org/zh-hans/1064591/)
+
+[中共超限战灭港计划（三十）六七暴动与周恩来](https://gnews.org/zh-hans/1068197/)
+
+[中共超限战灭港计划（三十一）六七暴动之吴荻舟笔记（上）](https://gnews.org/zh-hans/1071326/)
+
+[中共超限战灭港计划（三十二）六七暴动之吴荻舟笔记（下）](https://gnews.org/zh-hans/1076730/)
+
+[中共超限战灭港计划（三十三）六七暴动之斗委会](https://gnews.org/zh-hans/1081124/)
+
+[中共超限战灭港计划（三十四）六七暴动 之 青年乐园和“针”](https://gnews.org/zh-hans/1085211/)
+
+[中共超限战灭港计划（三十五）六七暴动之九龙、港岛暴动](https://gnews.org/zh-hans/1091957/)
+
+[中共超限战灭港计划（三十六）六七暴动之林彬之死](https://gnews.org/zh-hans/1095993/)
+
+[中共超限战灭港计划（三十七）六七暴动之“菠萝”与杨光](https://gnews.org/zh-hans/1099742/)
+
+[中共超限战灭港计划（三十八）六七暴动之沙头角枪击事件](https://gnews.org/zh-hans/1108096/)
+
+[中共超限战灭港计划（三十九）六七暴动之激战沙头角](https://gnews.org/zh-hans/1111176/)
+
+[中共超限战灭港计划（四十）六七暴动之宣传战](https://gnews.org/zh-hans/1114792/)
+
+[中共超限战灭港计划（四十一）六七暴动之火烧英国代表处（上）](https://gnews.org/zh-hans/1118410/)
+
+[中共超限战灭港计划（四十二）六七暴动之火烧英国代表处（下）](https://gnews.org/zh-hans/1122015/)
+
+[中共超限战灭港计划（四十三）六七暴动之中共欲武力收复香港](https://gnews.org/zh-hans/1126335/)
+
+[中共超限战灭港计划（四十四）中英联合声明之谈判](https://gnews.org/zh-hans/1129729/)
+
+审稿：卡西欧 / 校对：文粤 / 上传：天网灰灰
 
 0
