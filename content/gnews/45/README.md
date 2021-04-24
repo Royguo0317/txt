@@ -1,70 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 知道中共有解药以后西方该怎么办&nbsp; 习近平已经众叛亲离
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1133237/)
+## 中共无神论洗脑民众，宗教迫害
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1133324/)
 
-**摘要：郭先生在2021年4月22日的盖特视频中说，在他21日爆出中共有解药后，世界和国内都引起巨大震动，他告诉西方国家要跟中共要解药，并透露在分配解药一事上，习近平已经众叛亲离。**
-[下载字幕](https://www.gnews.org/wp-content/uploads/2021/04/Miles_20210422-getter1.srt.txt)
-**知道中共有解药以后西方该怎么办****  ****习近平已经众叛亲离**
+撰稿：自由战士
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-435.png)(图片来源网络)
+我们首先对共产主义的基本概念进行一下探讨，根据《共产党宣言》，要达到共产主义必须经历长期的发展，而现实共产主义的第一步是通过革命，暴力夺取政权，建立社会主义国家。用马克思的话说，就是占人口少数的处于统治和剥削地位的资产阶级将会被占人口多数且长期处于被剥削，被统治地位的广大无产阶级取代。他们的 宗旨是：
 
-**Knowing There Is an Antidote, How Should We Go Forward Next?**
+1. 实现“人民”当家作主的社会
+2. 以公有制社会取代私有制社会
+3. 阶级斗争和暴力革命
 
-那么另外一个我想和大家说的事情，就是昨天在我盖特发出以后，[我爆出了]共产党有解药。[共产党]有解药这件事情可以说在世界上[是]重大重大的一张[灭共牌]，[是]重磅的一则爆料，影响[深远]。
 
-So another thing that I want to share with everybody is that yesterday I posted my Getter video that exposed the fact that the CCP has an antidote. We can say that the fact that the CCP has an antidote can be used as a major card [in taking down the CCP]. It’s like a bombshell dropped and it will have a profound impact.
+我们可以看出，共产主义在来到这个世界上就是一个邪恶和魔鬼的化身，他们主张的就是仇恨和暴力为基础，蛊惑百姓进行所谓的革命运动。大家可以看到共产主义在全世界自从产生后，到现在信奉的国家在逐渐的减少。共产主义走到最后就是独裁，我们可以纵观中国华夏的上下五千年的历史，凡是独裁的政权，最后的下场都是被历史遗弃。但是中国共产党在把 共产主义引入到华夏大地后，经过70年的发展，他们进行了“改良“提升。让邪恶更加的无底线。首先中共在成立他们的邪恶政党的时候，也同步把社会达尔文主义这一思想同步引入中共的管理奴役的思路中，我们知道社会达尔文主义的核心概念是生存竞争，适者生存，弱肉强食。对达尔文进化论的观点鼓吹，把人们回归到兽性的阶段。把人性和人心和道德都统统抹杀。真正的回归动物性，大家知道动物性的特点是食物和交配。我们可以反观现在中共国墙内的人们天天攀比的就是房子有多大，存款有多少，怎么可以搞钱，有没有双休明星。丧失仁义道德的人我们可想有多可怕，
 
-所有真正有正事、有良知的[人]，知道冠状病毒[的情况]了解共产党的西方官员，他说为什么全世界人就没想过这个问题呢？他说你爆出这个问题太重要了。昨天我和亚洲的某个国家连线，人家对方就说：“郭先生，我们没有任何怀疑你的意思。我们应该怎么往前走？”
+牛津大学社会学与社会政策系荣誉教授斯坦.林根接受BBC中文网专访，介绍他的新书《完美的独裁：21世纪下的中国》。在书中，他提到中共国是一个完美的独裁政府，用专制等字眼形容中共太过温和了，现在的中共国事一个管控专制的国家，如果那个国家是一个独裁的国家，在全世界中共国是你学习的榜样，因为全球内没有一个国家做的比他好。在管控专制下，人民不需要被下令去做某些事情，而是由人民自发地自我控制、自我审查，不会去做一些“不应该做”的事情。这样可以令人产生错觉，以为中国“没有那么独裁”。这就是为什么目前墙内有那么多打鸡血的小粉红们，有的即使跑到墙外一样是邪恶红色文化盛行。这种前无古人后无来者的洗脑模式，可以说中共国已经做到了如火纯青的地步。我们可以总结中共无神论洗脑的模式和方法：
 
-Like all people in the West who are righteous, who have a conscience, who know about the coronavirus, and who understand the CCP, this guy asked, “Why hasn’t anybody in the world even thought about this?” He said that the stuff that I exposed is really important. Yesterday I connected with people from a certain country in Asia, and they said: “Mr. Guo, we don’t have any doubts about what you said, but how should we go forward?”
+1. 管控媒体，大内宣和大外宣，中共国内所有媒体的新闻必须要进行审查，对问题舆论进行引导性宣传。在墙外安排自己的媒体和BGY海外媒体为其服务。
 
-我说：“非常简单，你先定义这个[病毒]是不是自然的，不是自然的那就是人造的。[如果是]人造[的，那是]谁造的？大家现在怀疑唯一的[罪魁祸首]就是中国共产党。为啥共产党里面有人戴口罩有人不戴口罩？为什么共产党的老百姓死了上百万人武汉老百姓？为什么这些高官的家人一个不死？[事情]就这么简单。”
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-437.png)(图片来源网络)
+2、建立防火墙，让墙内的百姓只能接触一种声音。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-438.png)(图片来源网络)
+3、中共国现在强推的“雪亮工程”以综治信息化为支撑、以网格化管理为基础、以公共安全视频监控联网应用为重点的“群众性治安防控工程” ，它通过三级综治中心建设把治安防范措施延伸到群众身边共同参与治安防范，从而真正实现治安防控“全覆盖、无死角”，深层的含义就是通过网格化管理，对强民和智民要做到快速定位，第一时间进行清理管控，让劣币驱逐良币做到极致。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-439.png)(图片来源网络)
+4、教育洗脑，中共国目前从幼儿园到大学爱党爱国学习贯彻始终。孩子不应该是政府的，应该是神的，他们来到这个世界上不是服务于党和政府的，应该是服用于真理和事实才对，但是现在邪恶中共已经在你出生后就流水线式打造成为他服务的奴隶。可恶至极。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-436.png)(图片来源网络)![]()![](https://gnews.org/wp-content/uploads/2021/04/image-440.png)(图片来源网络)
+5、文化传媒的严格审核制度，不允许揭露邪恶中共统治的任何事实真相。同步邪恶中共旗下控制的传统媒体和互联网媒体大肆宣传伟光正，一种声音充斥着你的大脑，邪恶中共头目毛泽东深知一句话谎言说一万遍就变成了真理。这个贯彻中共统治的始终。这个谎言的意识型态可以无限强大，目前习大神也深信不疑，同时也变成了这个意识形态的俘虏，推行激进政策。让中共这个绞肉机体制谁都无法完全控制，只能在体制中疯狂杀戮。让人的魔性和撒旦精神暴露无遗。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-441.png)(图片来源网络)
+综上，邪恶中共的独裁统治建立在完整的洗脑体系中，对百姓进行彻底奴役，大力宣传魔性文化和丛林法则，扼杀人们心中的信仰和善良。无神论就是把人们心中的那份信仰和善良彻底清除。把百姓的思想退化到猪狗的状态，便于他们的管理和控制。这个完美的独裁统治制度经过70年的统治和100年的发展。已经达到了登峰造极的地步，有一个比喻，一个恶棍，想要别人改变自己的看法，第一种方法是，改变自己，变成好人。第二种是，给别人洗脑，让别人认为自己不是恶棍。第三种方式是把别人也变成恶棍。邪恶中共已经把第二第三种运用的如火纯青。已经威胁到了全人类，他的魔爪已经伸向了全世界，如果不彻底清除，全人类会被笼罩在撒旦的奴役之下，那时人类将永无反身之日。
 
-I said, “Very simple. First you define whether this virus is natural or not. If not, then it is man-made. If it is man-made, who made it? The only one suspected by everybody is the CCP. Why do some members of the CCP wear masks and some don’t? Why have millions of common people in Wuhan in communist China died but none of these high-ranking officials’ family have? That’s how simple it is.”
+关于中共对宗教的迫害，我们可以先看一下中共怎么对宗教定义的，怎么去抹黑宗教的，。虽然中共《宪法》规定了公民有信仰宗教的自由，也有不信仰宗教的自由；然而，中共政府却力图使宗教活动限于政府批准的组织和 已登记的宗教活动场所，并力图控制宗教团体的发展及其活动范围。中共政府力图控制和管理宗教团体，防止它们可能 在中国政府和中国共产党控制范围之外形成权威。虽然中共在强力控制，但是根据2005年4月的一份政府白皮书，中国共有超过1亿的宗教信 徒，存在着各种各样的宗教信仰和宗教活动。根据这份官方出版物，中国共有8.5万多个宗教活动场所、30万名神职人 员和3 000多个宗教组织。到今天为止信奉宗教人士在中共国已经超过4亿人。其实在中共强压下统治下，善良的百姓追求信仰的夙愿还是那么强烈。中国的人种是没有问题的，中华大地上下五千年的历史长河中，孕育着文明和德教，只不过邪恶中国为了自己的统治，活生生的把传统文化都进行了毁灭和篡改，让人们了解不到真相。只能在他洗脑的模式下生活。被中共修改后的宗教概念是这样的：佛教是用来烧香的，道教是用来算卦的，伊斯兰教基督教是恐怖组织的代名词。在这个不断充斥的谎言中，宗教人士就被潜移默化中进行了孤立对待。对宗教的管控，中共有一套完整的体系：
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-442.png)(图片来源网络)
+习近平上台后，对宗教的打压进行了升级，主要措施如下：
 
-“那么现在共产党如果说没有解药，那请让他[共产党]告诉你所有参与研究武汉实验室的任何工程师，让他[们]到美国和欧洲来接受质询。别说审判，质询他[们]。让他[们]告诉你怎么找到[冠状病毒的]解药，行不行？或者你们美国欧洲不敢跟共产党要真相，[那就跟共产党]要[冠状病毒的]解药呗。说你给解药我[们就]不追究你责任了，这不也挺好吗，对吧？也挺好啊。”
+1. 限制性更强，更加压力的法律环境。通过了一系列新的、限制性的法律，在有些情况下将原来非正式的政治指令法律化
+2. 扩大打压目标，原来受到容忍的活动和个人都被进行了管控，以前国家扶持的宗教人士和团体也面临惩罚
+3. 国家机器更多地干预日常宗教生活，地方武警和警察直接接入当地的宗教活动场所，进行直接管辖。有的地方甚至长期驻扎。
+4. 适应新的技术环境： 从录像头、无人飞行器，到网络监控，各种监控设备对宗教活动进行无死角监控。另外就是在网络社交媒体对关键信息进行阻断或者屏蔽，严重者进行定位拘捕。
 
-I continued, “So if the CCP replies that they have no antidote, you then ask them to tell you who the engineers involved in the research in the Wuhan lab are, then let them come to the US and Europe to receive questions at hearing. Don’t call it trials, call it hearings. Let them tell you how to find the antidote, okay? Or if you, the US and Europe, dare not ask the CCP for the truth about the virus, you can just ask for the antidote. Tell them that if they agree to give the antidote, you won’t hold them accountable. Isn’t it nice, right? It will be pretty nice.”
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-443.png)(图片来源网络)
+在习近平独裁期间对基督教的迫害尤为突出。自2014年年初，伴随官方有关“西方”价值观威胁和宗教需要“中国化”的论 调，地方政府一直在加强措施围堵基督教的传播。作为在中国两个主要基督教当 中较大的支派，新教尤其受到移除十字架和拆除教堂运动的影响，其中还包括国 家认可的教会领袖受到惩处，受理基督徒案件的维权律师遭到抓捕。
 
-所以说现在这个[冠状病毒]解药的问题引起了世界上的巨大震撼。
+大力拆除和破坏基督教设施，其中浙江省的三江教堂拆除事件最为严重。事件是在2014年2月27日，杭州余杭区黄湖镇基督教堂门顶上的十字架被拆除开始，当时的消息政府部门的理由是：矗立在教堂外面的十字架“太张扬”“太明显”，因此要做出整改。必须要上改下（从屋顶移到室内），大改小（挂在室内），然后到永嘉县的三江教堂，4月21日，政府出动交警，封锁教堂附近道路。信徒见状，纷纷赶至支援。温州市各教会呼吁信徒为三江教会禁食祷告。三江教会有多名长老和信徒被警方拘留或传唤。也有消息指政府派出闲杂人假扮信徒，企图强占教会，制造冲突，借词出动公安清场。23日，浙江省基督教两会发表《浙江省基督教界支持“三改一拆”倡议书》，使信徒大为失望。26日，当地教会与江北牧区负责人受政府恐吓，若不疏散信徒，就将聚会定性为“邪教”，取缔牧区，且清场时如有冲突，会被定性为“社会暴乱”。于是牧区与当地教会的负责人驱赶在场信徒，有信徒遭打伤，许多外地信徒因此离开。至27日凌晨，只有数十人留守教会。
 
-So now this antidote thing has greatly shocked the world.
+2014年4月28日，凌晨五时，共产党非法政府出动过千名武警，包围教堂附近一两公里地方，驱散尚余的少数人群，遮罩电讯信号，出动了数台重型机车强拆教堂主体建筑。在晚上8时35分，历时十年兴建，曾获政府誉为“样板工程”的三江教会新堂，被完全夷为平地。教会长老被控以“非法占用农用地罪”
 
-兄弟姐妹们，连我本人在48小时以前，我[都]从来没想过这个世界上会有[冠状病毒的]解药。我[之前]通过各种内部参与爆料[革命]的人[了解]，都给我一句话：“不可能有疫苗，因为这是人造的生化病毒，怎么可能有疫苗呢？这是个基本常识，而且每个[病毒]都在变异中。”直到他告诉我说：“文贵，我可以告诉你，没那么悲观。只要西方世界有正义的力量和正义的良知的人，这个世界是有解药的。”
+疯狂中共对信仰的恐惧在习近平时代达到了极点，这个也恰恰是权力对信仰的粗暴践踏，也是对所有信徒感情的残骸。没有人性的中共恶魔必将走向地狱。
 
-Brothers and sisters, even I myself had never thought that there could be an antidote existing in this world like 48 hours ago. Previously I heard the same answer from different fellow fighters of the Whistleblower Movement: “There can’t be any vaccines, because this is a man-made bioweapon virus. How can there be a vaccine? This is basic common sense. Besides, this virus keeps mutating.” Until this guy told me: “Miles, I can tell you, it’s not so hopeless. As long as there are righteous people with a conscience in the western world, there will be antidotes in this world.”
+(本文仅代表作者个人观点)
 
-我当时就傻了，我说：“你在开什么玩笑啊？怎么可能？生化病毒怎么[可能]有解药？”他说：“生化病毒只要是研究者当初把它当成病毒了，它就有解药。”然后给我讲了这个过程。[听完]我傻了。但是我也觉的这是个巨大的希望，[随后]我[把这个消息]第一个先告诉了我身边的最重要的一个替我把关这方面情报的科学的一个助理。我说：“你马上到你们某[机构]找这些人研究研究，[看看]这话是否可靠？”[得到的]答案是：他是对的！
+编辑：文远Bruce
 
-I was frozen on the spot, I said, “Are you kidding me? How could it be possible? How can a bioweapon virus has an antidote?” He said, “As long as the researchers of a bioweapon virus treated it as a virus when they developed it, there should be an antidote.” Then he explained the process to me. I was stunned. But I also felt that this could be a great hope. Then I forwarded this information to the most important assistant who has been helping me with verifying intelligence in the science field right away. I said: “Could you find people in your [institution] to research on this and find out whether the information is reliable or not?” The answer I got is: He is right!
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
 
-然后我又经过核实，特别是他说的国内所谓的中央政治局、中央常委2020年所谓的《工作方式的重要提要》，重要提要。就因为这个问题现在，大家记住啊习[近平]身边没人啦。韩正不行了，本来也不怎么行；栗战书也靠边站了；丁薛祥也靠边站了，大家看到了吗？王沪宁也靠边站了，大家看到了吗？现在就剩下仨人，严格讲四个人[是习信任的]：他弟弟习远平，然后军方的许其亮，[习近平对]许其亮最近也半信半疑，[对许也很]恼火。完全剩下[信任]杨娘娘[杨洁篪]，王太监[王毅]，王太监[王毅]。
-
-Then I verified again, especially on what he said about the so-called “Important Synopsis of Working Methods” by the so-called Political Bureau of the Central Committee and the Central Standing Committee in 2020, or “Important Synopsis” for short. Please remember this: Exactly because of this [Important Synopsis], Xi Jinping has lost everyone around him. Han Zheng is over (he hasn’t been trusted anyway); Li Zhanshu also stepped aside; Ding Xuexiang also stepped aside, have you seen it? Wang Huning also stepped aside, have you seen it? Now there are only three people left. Strictly speaking, there are four people [that Xi trusts]: his younger brother Xi Yuanping, then Xu Qiliang from the military, but Xu Qiliang has become suspicious and annoying in Xi’s eyes recently. So this only leaves Concubine Yang (Yang JieChi) and Eunuch Wang (Wang Yi) that he still trusts.
-
-所以说你看兄弟姐妹们，这杨娘娘[杨洁篪]、王公公[王毅]两人和习大神还得隔着个门指挥许其亮，还有个弟弟习远平。这共产党还有未来吗？听说就这个开会的形式把大家全[吓]傻了，也就是给不给谁解药的问题，不是说你家人要解药[就给你]。听说韩正要给家人要一些解药犯大忌了。你[韩正]想干什么？你[韩正]想干什么？嗯？
-
-So brothers and sisters, you can see that the Great God Xi can only command Xu Qiliang indirectly through Concubine Yang, Eunuch Wang Xi, and Xi Yuanping. So is there still hope for the CCP? I heard that the situation in the meeting really scared everyone, particularly, surrounding the question of whom to give the antidote. It’s not like you can request the antidote for anyone in your family. I heard that Han Zheng asked for some antidote for his family and this really touched the red line, making Xi think: “What do you want to do, Han Zheng?”
-
-这个解药啊，最后拿解药的人你一定记住：想要解药的人一定把拿解药的人弄死。这就是七哥在爆料[病毒]一出[现]，[刚]开始的时候就说过，[解药]叫“人尸丸”。看看那江湖上，那个什么任老妖[任我行]弄得泡的“人尸丸”。是不是啊？东邪西毒，吃下去用人尸体做的这个“人尸丸”，吃了以后你想再活？那就继续吃我“人尸丸”，必须听我的。这就[是]世界的“人尸丸”，你咋弄啊？苍天在上，啊苍天呐，苍天呐。
-
-Regarding this antidote, those who eventually got the antidote must remember this: those who want the antidote must kill those who have got the antidote. This is like what I, your Brother Miles said at the very beginning of the pandemic, the antidote is called the “zombie pill”. The zombie pill is like what the old demon Ren Woxing (a figure in a martial arts novel) cooked, isn’t it? If those who have taken this zombie pill want to live, they have to continue to take the pills, so they must listen to the master. So this virus antidote is like the modern world version of the zombie pill. What do we do? Heavens, please have mercy on us!
-
-所以现在共产党现在乱了，从我发出那个盖特[之后]。我让大家简单看一下啊，大家就简单[看一下]，[可]别暴露信息啊，我别爆露信息啊。你看我简单[说一下]，每一个小时三千多个[信息]，每一个小时啊，每一个小时。国内很多战友，体制内的战友纷纷爆料：“七哥，这个[病毒解药]太重要，你说对了！看看中央警卫局，中央警卫局还有八一大楼什么人戴口罩什么人不戴口罩？”
-
-Since I posted that Getter video, the CCP has been in chaos. I’ll let you guys take a look at it quickly, hoping not to reveal any private information. Simply put, I received more than 3,000 messages per hour. That’s per hour, per hour! Many fellow fighters in mainland China within the party system told me: “Brother Miles, this information is so important! You’re right! Look at the Central Guard Bureau, the Central Guard Bureau and the Eight-One Building and see who wears masks and who doesn’t.”
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/608164998616c84f0ff26438](https://gtv.org/getter/608164998616c84f0ff26438) (1:08-1:26, 1:49-5:36, 6:30-7:39,8:05-8:50)
-鸣谢：感谢盘古小蚂蚁、Antsee-GTV、TING GUO提供中文文本于 [https://www.gnews.org/zh-hans/1127073/](https://www.gnews.org/zh-hans/1127073/)
-
-* * *
-
-字幕：【JennyL】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
+【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
+【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
+![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2-1.jpg)
 0

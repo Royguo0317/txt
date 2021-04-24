@@ -1,35 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美参议员提出法案，要求拜登解密武毒所相关情报
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1133757/)
+## 【专栏】金融、货币与支付
+` 加拿大枫叶农场 大废墙` [轉載自GNews](https://gnews.org/zh-hans/1133251/)
 
-翻译:康州盘古农场 – Mike Li
-校对:康州盘古农场 – 柯镇恶
-编辑:康州盘古农场 – 心照
+随着“灭共”逐渐成为全球浪潮，如何建立后共产党时代的新中国这一个话题也逐渐被提起。本专栏从金融、货币和支付领域切入，在科普的同时，也希望吸引更多的专业人士贡献自己的时间，在Gnews这样一个平台上参与新中国联邦以及G系列建设的讨论。
 
-据《www.hawley.senate.gov》2021年4月22日报道
-
-今天，美国参议员乔什·霍利（Josh Hawley,R-Mo）和迈克·布劳恩（Mike Braun ,R-Ind）提出了《2021年COVID-19起源法案》，要求拜登政府解密与武汉病毒研究所（WIV）和新冠病毒大流行的起源之间任何潜在联系有关的情报。
-
-“一年多来，任何对武汉病毒研究所提出疑问的人，都被打成阴谋论者。世界需要知道这场大流行病是否是武汉实验室疏忽的产物，但中共已竭尽全力阻止可信的调查。这就是为什么拜登政府必须解密它所知道的关于武汉实验室的情况，以及北京试图掩盖大流行病起源的情况。”——参议员乔什·霍利
-
-布劳恩参议员说：“确定COVID-19大流行病的起源对于预防未来的大流行病至关重要。随着对病毒起源的调查和研究的继续，拜登政府应该解密与中国武汉生物研究实验室和COVID-19大流行病之间任何潜在联系有关的情报。”
-
-前美国疾病控制和预防中心（Centers for Disease Control and Prevention,CDC）主任罗伯特·雷德菲尔德（Robert Redfield）最近表示，他认为Covid起源于武汉病毒研究所（WIV）。《华盛顿邮报》编辑部（Washington Post Editorial Board）呼吁拜登政府解密与该实验室有关的任何情报。
-
-霍利参议员是第一个在2020年3月呼吁对中共掩盖冠状病毒的传播进行国际调查的国会议员。此外，他在2020年4月提出立法，以允许美国公民起诉中共国政府要求赔偿。
-
-文章来源：https://www.hawley.senate.gov/hawley-braun-introduce-bill-requiring-biden-declassify-wuhan-lab-leak-intelligence
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+本文是作者关于金融、货币以及支付话题的专栏，将已经发表和计划发表文章的目录大纲汇总于此，方便读者评阅、批评和指正。
 
 
+### **一、数字货币话题**
 
 
+#### **第一章 初探中共数字集权货币体系**
+
+1. [中共的区块链](https://gnews.org/zh-hans/893471/)[技术、数字钱包以及贬值游戏](https://gnews.org/zh-hans/893471/)
+2. [中](https://gnews.org/zh-hans/896428/)[共极权下的疫情以及幻想中的奴役之路](https://gnews.org/zh-hans/896428/)
+3. [中共数字货币体系带来的大集权与大清洗](https://gnews.org/zh-hans/904252/)
 
 
+#### **第二章 去中心化货币体系的探索**
 
-+1
+1. [去中心化金融背景下的中共体制](https://gnews.org/zh-hans/909601/)
+2. [从比特币的兴衰窥探去中心化体系](https://gnews.org/zh-hans/1113087/)
+3. [支撑去中心化的软件生态逻辑](https://gnews.org/zh-hans/1131702/)
+
+
+（文中引用的 [Fabian Schär发表在美联储圣路易斯联储官网的研究报告在此](https://research.stlouisfed.org/publications/review/2021/02/05/decentralized-finance-on-blockchain-and-smart-contract-based-financial-markets#:~:text=Fabian%20Sch%C3%A4r%20is%20a%20professor,and%20Economics%2C%20University%20of%20Basel.)）
+
+#### **第三章 （构思中…）**
+
+
+### 二、支付清算话题
+
+
+#### **第一章 墙国支付系统科普**
+
+1. [理解支付与清算](https://gnews.org/zh-hans/291927/)
+2. [逃不出的银联网联](https://gnews.org/zh-hans/312252/)
+3. [再聊捐款](https://gnews.org/zh-hans/341861/)
+4. [支付体系的比较](https://gnews.org/zh-hans/371775/)
+
+
+#### **第二章 （写作中…)**
+
+（文章仅代表作者个人观点）
+
+0

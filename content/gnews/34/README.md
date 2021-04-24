@@ -1,30 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】七哥和川普的领袖艺术
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1133544/)
+## 【世事解评】George Floyd，CCP病毒战、鸦片战、伪钞战的受害者
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1133711/)
 
-作者：纽约香草山福音部 小草
+作者：纽约香草山福音部 JingleChenge
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片52-1.png)
+相信读者一定知道George Floyd的大名，他因2020年5月25日死于Minneapolis警察执法过程中而闻名于世。
 
-我原想单独写他们俩，但为节省时间，现在大家在内忧家人外御病毒之际，我来谈谈这两个领袖。按照尼克松《领袖们》的描述，这两个人符合所有标准，是一种稀有物种，是拳击场上被击倒无数次又爬起来战斗，脸上带着血和汗的人，对世界产生重大影响，推动了人类变革，有胆量有谋略。但我不喜欢尼克松把周恩来和斯大林放进名单。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片54-1.png)
 
-七哥说讨厌政治，但在任何组织中他都是好领袖，尼克松说上级可以指挥下属，但不会自动获得下属忠诚，忠诚要靠上级去努力赢得。七哥从灭共那天起，是真正考验下属忠诚的开始。如此多员工的爱戴，为了七哥愿意在墙内入监，七哥一定是真诚对待别人，生死忠诚不能靠利益打动。爆料革命多少藏龙卧虎的战友，在信仰和人性召唤中挺身而出，在任何位置上给了七哥忠诚和信任。川普的领袖作风是建立在鲜明个性、解决问题能力、忠于国家使命召唤的基础上的。他刚到华盛顿时是个outsider, 他不说套话和冗长大论，他的直接、犀利让大多数政客讨厌，他在沼泽中是在刀尖上跳舞，在狼窝里吃肉，但现在爱他的人比2016年更多。好领袖提出真知灼见时，一定会冒犯众人，想铲除他的人会嗓门很大，可真正沉默地大多数会支持他。
+BLM为他的死在全美甚至全世界超过2000座城市发动了大规模、持续的游行，但这些游行很快就变成了暴力的打、砸、抢。光是Minneapolis市，在George Floyd死后的两周内，就有超过570家商家被毁，大部分是被火烧的，更不用说过去近一年全美的损失。
 
-从这俩人的班底来分析：七哥最知名助手是王雁平女士、凯琳美女、港妹……，还有很多未知。川普的助手有班农、朱利安尼、皮特·纳瓦罗、蓬皮奥、迈克尔·弗林将军、康威女士（2016年川普竞选女经理）等。王雁平女士受过法国高等教育，对工作热情投入，执行力超强。而班农先生经历丰富多彩，进入川普班子前干电影传媒风生水起。纳瓦罗低调、谦虚，为了写本书跑去中国和老百姓天天呆着，这种学者不为钱，不为名，是CCP 收买不了的人。康威女士长于竞选数据分析，战略清晰、客观。这就是一个好领袖的标准，永远敢用比自己更优秀的人，而且能吸引最好的人跟随。班农和朱利安尼都是极有个性的天才，本身也是好领袖，可他们对国家的忠诚，对民族的爱，对川普地欣赏让他们必须走向川普总统。班农在节目中也喊话过川普快行动，这个是好助手的特征，永远说实话，不说你爱听的。一个天才，个性上往往孤傲、挑剔、偏执、社交生硬、行事强悍，这需要领袖能听懂，能给天才空间。
+华春莹华大妈也在2020年5月30号在推特凑热闹，”I can’t breathe”。真是不要脸，也不想想CCP国执法人的暴力，每天不知道有多少个George Floyd死在他们手下。
 
-七哥对待任何人都带着尊严和尊敬，他对待厨师、船姐很客气，他对凯琳的工作也批评，他想让同事能成长，而不是领钱了事。他批评约翰叔叔和王雁平仅限于工作，情绪激动是恨其不争。而川普的”You’re fired.” 是世界流行语。川普在纽约的合伙人、律师、欣赏的下属大部分是复合型人才，他喜欢你是会计但要懂纽约市法律，最好知道些公司并购。这俩人珍惜时间，目标专注，忠诚朋友，是那种你出事不抛弃你的人。
+George Floyd的死，更是左派眼中的香馍馍。为了达到解散警察和执法者的目的，对有色人种生命从不感兴趣的左派真是拼了。不但在2020年6月8日为其下跪，在2021年4月20日, 佩婆还发表讲话，感谢George Floyd死了。George Floyd真是死得其所，恰恰好成了左派献祭的羔羊。
 
-对待背叛他们的人，七哥是只要不碰人伦法律底线，都是慈悲为怀，饶过罗杰·斯通，饶过2015年到2017年翻脸的人，他不带私人恩怨灭共才能客观、冷静。七哥对轻信的杨英讲事实讲理，并没有翻脸抛弃。对伪类作恶者，用法律解决。川普被背叛过无数次，从纽约之王到破产，后又复原回来，他的白宫助手出书骂他捅刀多了，他从不在意。他们都深懂人性，心怀良善，工作勤奋，他们爱生活，热爱挑战，忠于信仰。
+2021年4月17号的周六，加州左派女疯参议员Waters更是特地跑到Hennepin County District Court所在地Brooklyn Center煽风点火，号召抗议者用激进手段向法庭施压，不达目的誓不罢休。
+
+而BLM的创办人呢，刚刚才买了好几套豪华别墅。
+
+George Floyd的家属也获得了两千七百万美金的巨额赔偿，是Minneapolis地区有史以来最高的赔偿。满心希望他们能善用此款。
+
+似乎各人都能够利用George Floyd的死而有所得到。
+
+唯有执法人Chauvin被定罪的，他得在监狱里呆好几十年。
+
+谁都知道George Floyd的死起因于使用来自CCP的伪钞；他当天被捕前还吸食了大量来自CCP的芬太尼，以至于被捕时口吐泡沫，一直喊”I can’t breathe.”；他在2020年4月3日CCP病毒检测阳性；他的不健康生活导致他有动脉硬化和高血压，一条动脉被堵90％，另一条动脉被堵75％。警察的执法只不过是那最后一根稻草。George Floyd真正的死因是中了CCP的毒，Chauvin只不过是为了平息所谓的民意的替罪羔羊。
+
+参考：
+
+1. War Room Pandemic Ep 220，Ep 886
+
+2. [https://en.wikipedia.org/wiki/Murder\_of\_George\_Floyd](https://en.wikipedia.org/wiki/Murder_of_George_Floyd)
+
+3.[https://thehill.com/homenews/house/501633-pelosi-schumer-kneel-in-silence-for-almost-9-minutes-to-honor-george-floyd](https://thehill.com/homenews/house/501633-pelosi-schumer-kneel-in-silence-for-almost-9-minutes-to-honor-george-floyd)
+
+4. [https://wgntv.com/news/nancy-pelosi-thanks-george-floyd-for-sacrificing-your-life-for-justice-later-criticized/](https://wgntv.com/news/nancy-pelosi-thanks-george-floyd-for-sacrificing-your-life-for-justice-later-criticized/)
+
+5. [https://www.npr.org/sections/live-updates-protests-for-racial-justice/2020/06/04/869278494/medical-examiners-autopsy-reveals-george-floyd-had-positive-test-for-coronavirus](https://www.npr.org/sections/live-updates-protests-for-racial-justice/2020/06/04/869278494/medical-examiners-autopsy-reveals-george-floyd-had-positive-test-for-coronavirus)
 
 校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2.jpg)
 
 
 
