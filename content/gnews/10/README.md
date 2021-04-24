@@ -1,45 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】文贵先生向全世界爆大料： CCP病毒中共有解药！
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1134434/)
+## 慧眼看世界202104024（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1134650/)
 
-作者：纽约香草山信息部 6zero4
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-15.jpg)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-16.jpg)
 
-4月21日，文贵先生在盖特里面让战友正襟危坐屏住呼吸报大料：CCP病毒无庸置疑是中共的生化武器，因此永远不可能有疫苗，所有的疫苗都是假的害人的，让人打疫苗就是谋杀，因为他们根本还没有闹明白病毒来自自然还是生化武器，人类从来没有在短短的6个月内生产任何疫苗。没有疫苗后的问题就是有没有解药，现在科学家和国内的情报明确告诉文贵先生：“共—产—党，有—解—药！”共产党想通过解药掌握人类的命运，人类要想活下去，唯有跟共产党要解药！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-15.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS2305-【热点播报】文贵先生向全世界爆大料：-CCP病毒中共有解药！.png)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-16.jpg)
 
-文贵先生这个石破天惊的大料使被病毒肆虐得一地鸡毛的世界顿悟：新冠病毒来自CCP军方控制的实验室，是共产党以超限战方式发动第三次世界大战的秘密武器，是CCP控制世界、重塑世界秩序的超限生物武器。CCP在研制COVID-19这款病毒武器时也研制出来了解药，只是CCP里面的极个别顶层人物有使用解药的权利罢了。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-15.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS2305-【热点播报】文贵先生向全世界爆大料：-CCP病毒中共有解药-2.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-13.jpg)
 
-解铃还需系铃人，常识告诉我们，解决问题的前提是先要确信问题的来源和认清问题的本质。而当前科学界和疫苗界都将COVID-19当成是来自自然的病毒，以盲人摸象、自以为是的思路研制疫苗，试图通过疫苗征服人造生化武器新冠病毒的方式是徒劳的，而且一种疫苗只能针对一种病毒变种有效，而如今全世界新冠病毒的变异种类已经多达数千种，同时疫苗本身就是一种拔掉毒牙的病毒，可谁敢保证各大药厂仓促推出的各种疫苗的毒牙已经被彻底安全地拔掉了呢？如果疫苗的毒牙没有拔除干净，注射入体内的疫苗不就是另一种病毒吗？无数事实已经证明了文贵先生的预判：CCP联合世界各大药厂急于推出疫苗，继以“投毒”瘫痪和摧毁世界经济后，CCP以“疫苗经济”趁火打劫，收割全世界的第二轮人道灾难。拒绝打新冠疫苗，向CCP要解药成为人类生存下去唯一的路径！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-13.jpg)
 
-这个星球上，CCP将邪恶、残暴、冷血、恐怖、歹毒、阴险演绎得得登峰造极。在习总加速师的亲自部署亲自指挥下，CCP这个反人类反社会跨国犯罪集团正在末日狂奔，我们很快会看到回过神来的世界将把愤怒的目光聚焦CCP，排山倒海般的拳头砸向CCP，将CCP这个地球上最大的毒瘤彻底埋葬！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-13.jpg)
 
-编辑/校对/发稿：雪梨
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-13.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-19.jpg)
 
-**更多资讯，更多关注**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-19.jpg)
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-21.jpg)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-17.jpg)
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-16.jpg)
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-16.jpg)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-13.jpg)
 
-+1
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-12.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
+
+0

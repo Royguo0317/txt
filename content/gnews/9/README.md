@@ -1,27 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德时评简讯（视频版）: 文贵先生出庭后与战友拥抱问好(2021.4.21晚间路德社简讯之路博艾冠谈）
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1134462/)
+## 【每日快讯】04/23/2021:中共航母辽宁舰平衡器被美军电子战摧毁博鳌论坛门厅冷落惨淡收场
+` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1134608/)
 
-《路德社》出品
-
-以下视频是详细内容：
-
-內容摘要：
-
-一、文贵先生出庭后与战友拥抱问好
-
-二、美参议院外交委通过灭共战略竞争法案
-
-三、白宫证实中美领导人将不会进行双边会谈
+**制作：Cantonese工作室**
 
 
 
-制作：路德社简讯视频组
+摘要：
 
-审核校对：玫瑰新闻组
+1
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210424-__2.jpg)
+2
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210424-__3.jpg)
+3
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210424-__4.jpg)
+4
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210424-__5.jpg)
+5
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210424-__6.jpg)
+6
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210424-__7.jpg)
+7
+![]()![](https://gnews.org/wp-content/uploads/2021/04/210424-__8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/0-3.jpg)
 
-上传排版：玫瑰新闻组
 
-0
++1

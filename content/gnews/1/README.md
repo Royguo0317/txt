@@ -1,51 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104024（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1134650/)
+## 【香草诗词汇】书写：为自己点灯
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1134804/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+作者：纽约香草山写作组  木白
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01-15.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/【香草诗词汇】书写：为自己点灯.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02-16.jpg)
+这片土地的下面是几千年的文化。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03-15.jpg)
+文化，一个多么尴尬的词，
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-16.jpg)
+无墨的笔碰上无底的根。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05-15.jpg)
+一个人和身边的山川河流悄悄对话。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06-13.jpg)
+百无一用是书生，崖山之后还是中华。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07-13.jpg)
+文人，一个多么耻辱和光耀的名词。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08-13.jpg)
+与墨同哭，黑字的背后灼烧千斤灵魂，
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09-13.jpg)
+在惨白的尘世里铺开白纸吧，天就快亮了。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-19.jpg)
+天亮了：人们就忘记了。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-19.jpg)
+书写：为自己点灯。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-21.jpg)
+2020年
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-17.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-16.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-16.jpg)
+注解：崖山海战直接关系到南宋的存亡，宋军全军覆灭，十万军民跳海殉国。 此次战役之后，中国第一次整体被北方游牧民族所征服。 固有“崖山之后无中华”之说。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-13.jpg)
+审核/发稿： 雪梨
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-12.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpeg)
 
-本文仅代表作者观点
+**更多资讯，更多关注**
 
-发稿：Ranting
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
