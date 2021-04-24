@@ -1,87 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亚利桑那州选举审计一波三折川普连发三声明
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1134885/)
+## FBI局长：每10小时就有对中共国的新调查
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1134908/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+新闻来源：《CNN》| 作者：Mike Conte, Christian Sierra and Ben Westcott | 发布时间：2021年4月15日
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/A-33-1.jpg)thefreedomtimes.com
-前天（周四）笔者发文，介绍了亚利桑那州马里科帕郡（Maricopa）的投票设备、选票被运到退伍军人纪念体育馆（the Veterans Memorial Coliseum），由州参议院进行选举审计【1】。最新的情况似乎表明，又遇到了障碍，障碍之后又有翻转。
+翻译/简评：clau | 校对：Beicy-数学老师 | 审核：万人往 | Page：青山
 
-《门道专家》发文，“民主党派了73名律师到亚利桑那州，川普总统发表声明”【2】。
+[!\[\]()!\[\](https://spark.adobe.com/page/Zck5p9bG2LE8f/images/806c2da0-cdc0-438a-8215-70a2c42e2706.jpg?asset_id=372896f6-0bb0-4618-b5e7-0ed036007644&amp;img_etag=%2282172bdd78aab629b324b545a4cfd1a2%22&amp;size=1024)](https://spark.adobe.com/page/Zck5p9bG2LE8f/images/806c2da0-cdc0-438a-8215-70a2c42e2706.jpg?asset_id=372896f6-0bb0-4618-b5e7-0ed036007644&amp;img_etag=%2282172bdd78aab629b324b545a4cfd1a2%22&amp;size=1024)
 
-文章说，亚利桑那州选举投票审核计划今天（周五）开始，星期四，投票机和选票被转移到州集市的退伍军人纪念体育馆进行审核。
+**简评：**
 
-审计人员已经准备好开始对马里科帕郡2020年选举结果进行审计，今天，机器和选票被转移到州集市退伍军人纪念体育馆，在那里它们将被审计。
+上周三，联邦调查局局长、美国国家情报局局长、中央情报局局长针对来自中共国的全面威胁，同时出席了在美国国会的公开听证。他们的证词表明了来自中共的威胁是全方位的、深入的、持续的且动摇美国根基的。
 
-他们还设置了9个摄像头，在整个审计过程中都可以使用。在接下来的三周左右的时间里，如果您想了解情况，您可以登录AZAudit.org 并在审计过程中观察。
+联邦调查局局长克里斯托弗·雷称该局有2000多项调查与中共国政府有关，而且每10小时就有一项新调查，尤其提到了中共针对海外华人华侨开展的“猎狐行动”，此行动是中共违反美国法律，威胁、恐吓骚扰（和）敲诈“华裔”侨民的最典型例子。让人不禁想到自2017年郭文贵先生开始爆料以来，中共对郭先生的各种抹黑、造谣甚至是暗杀，最让人印象深刻的就是中共特务利用无人机黑客郭先生的私人游艇“Lady May”，导致游艇失控险些撞船的事件。中共利用网络黑客配合所在国当地间谍执行任务的能力可见一斑。
 
-这个网站将在接下来的几周不间断地展示体育馆的计票活动。
+此次美国情报系统三位局长少有的集体作证，向美国人表明了，中共对美国乃至全世界的威胁是真实存在的，绝不是什么耸人听闻阴谋论，也不是带着种族歧视眼光的抹黑论。希望西方国家拿出实质性的行动，直面因为自己几十年以来的天真和贪婪导致的不利局面，对抗来自中共的威胁！
 
-民主党今天提起诉讼，要求关闭这一（重新计票）程序。
+**原文翻译：**
 
-你会认为他们会想要一个审计来证明他们在亚利桑那州赢了，但不会是（那样的简单），他们正在与到场的、至少73名律师全力抗争。
+## **美国联邦调查局局长称“每10小时”就对中共国展开一次新的调查**
 
-周五，川普总统发表声明，抨击民主党一再试图关闭重新计票程序。
+[!\[\]()!\[\](https://spark.adobe.com/page/Zck5p9bG2LE8f/images/abab76e4-97ec-4af8-a8b8-ae170c829291.jpg?asset_id=98fa22e6-d419-45dd-a5dc-a13884ea9ee7&amp;img_etag=%22373c2554852145c408b237c10b5c3836%22&amp;size=1024)](https://spark.adobe.com/page/Zck5p9bG2LE8f/images/abab76e4-97ec-4af8-a8b8-ae170c829291.jpg?asset_id=98fa22e6-d419-45dd-a5dc-a13884ea9ee7&amp;img_etag=%22373c2554852145c408b237c10b5c3836%22&amp;size=1024)04:04 戏剧性的视频显示，中共国海军的演习加剧了台湾的紧张局势
 
-2021年4月23日
+美国有线电视新闻网(CNN)报道，美国联邦调查局局长周三告诉美国参议院情报委员会，该局有2000多项调查与中共国政府有关，而且“每10小时就有一项新调查”。
 
-唐纳德J·川普 美国第45任总统
+联邦调查局局长克里斯托弗·雷（Christopher Wray）在他的证词中说，没有其他国家比中共国对美国的经济安全和民主理念构成更大的威胁，并补充说，中共国影响美国机构的能力是“深入、广泛和持续的”。
 
-民主党人“蜂拥”抵达伟大的亚利桑那州，试图阻止法庭选举审计，因为只有他们知道自己到底做了什么，他们比任何人都更了解选举舞弊。这可能是最高级别的选举欺诈，别以为亚利桑那州是唯一的州，还有更多。【3】
+雷的评论是在华盛顿和北京当局在一系列战线上的紧张关系上升之际发表的，包括据称中共国在西部地区新疆的侵犯人权行为以及与台湾和香港有关的问题。
 
-随后，川普总统继续发布声明：
+美国国家情报局局长艾薇儿·海因斯（ Avril Haines）和中央情报局局长威廉·伯恩斯（William Burns）在周三的听证会上与雷一起发言，这是自2019年以来国家情报部门领导人在美国国会的首次集体公开作证。
 
-因此，许多人要感谢勇敢爱国的亚利桑那州共和党参议员，感谢他们在揭露2020年总统选举中发生的大规模选举舞弊事件中所做的令人难以置信的工作，他们的不懈努力导致了大规模的重新计票、选票检查和全面的法庭审计，由州参议院聘请的专家进行，结果将在六周内公布。民主党人在听到法院命令的消息后，已经派了73名律师到亚利桑那州，试图阻止重新计票和完全透明，因为他们知道自己做了什么！民主党人迫切希望这一骗局被继续掩盖，因为一旦揭发，威斯康辛州、密歇根州、佐治亚州、新罕布什尔州和伟大的宾夕法尼亚州将加快进行已经开始的工作。亚利桑那州的重新计票和审计将通过电视直播，供所有人观看。
+[!\[\]()!\[\](https://spark.adobe.com/page/Zck5p9bG2LE8f/images/746803f3-bb8e-47d7-9057-3a340970c478.jpg?asset_id=439190d4-e517-4a50-9b2d-64b86527e9d7&amp;img_etag=%22e3c93902ad0834bf7c8043aa3840bd45%22&amp;size=1024)](https://spark.adobe.com/page/Zck5p9bG2LE8f/images/746803f3-bb8e-47d7-9057-3a340970c478.jpg?asset_id=439190d4-e517-4a50-9b2d-64b86527e9d7&amp;img_etag=%22e3c93902ad0834bf7c8043aa3840bd45%22&amp;size=1024)4月14日星期三，在华盛顿国会山，联邦调查局局长克里斯托弗·雷（ Christopher Wray）在参议院情报特别委员会关于全球威胁的听证会上作证。
 
-为什么民主党人如此不顾一切地阻止这场舞弊的选举被曝光？答案是显而易见的！亚利桑那州州长道格杜西（Doug Ducey）对州参议院毫无帮助，他想“假装”选举是自由和公平的，他和马里科帕郡的官员想隐瞒什么？我们国家需要揭露2020年大选骗局的真相，如果不是，就像我们没有边界一样，我们就不能成为一个伟大的国家，诚实的选举是美国的灵魂，我们决不能让这种情况再次发生在我们伟大的国家，感谢亚利桑那州的参议员和其他人开始这项全面的法庭审计，我预测结果将是惊人的！【4】
+特别是，雷针对一项与中共国政府相关、名为“猎狐”的行动做出了指控，他指称该行动涉及北京政权在美国本土进行“未经协调的非法执法活动”，作为“威胁、恐吓骚扰（和）敲诈“华裔侨民”成员的手段。
 
-民主党人搅局获得成功，法官下令暂停审计。
+“这表明并说明了这种特殊的威胁是多么具有挑战性和多样性。”雷说。
 
-《门道专家》随即发文，“在民主党人提出诉讼要求关闭投票程序后，法官下令亚利桑那州的法庭选票审核工作暂时停止，直至周一”。【5】
+中共国政府将“猎狐行动”视为一项国际反腐败运动，目标是来自中共国的逃犯，通常是涉嫌经济犯罪的前官员或富人。
 
-文章说，民主党人担心，一个受雇审查该州最大的郡、近210万张选票的私人承包商，是否能遵守该州有关选举安全的法律。
+听证会是在美国情报界发布年度威胁评估报告后不到一周后举行的，报告中警告说，中共国和俄罗斯政府旨在利用新冠肺炎大流行病来扩大其全球影响力。
 
-马里科帕郡高级法院法官克里斯托弗·库里（Christopher Coury）作出了暂停审计的判决，暂停时间从周五下午5点开始到周一中午。
+该报告说，北京政权一直在“努力加紧改变美国的政治环境”，试图扩大其政治影响力，压制对其自身政策的批评，包括对新疆和香港公民自由的镇压。
 
-争取了至少3天的时间，谁知道这些没有底线的人能再出啥幺蛾子，或者在装箱前做了什么手脚！
+周三，海因斯告诉参议院情报委员会，中共国政府拥有“大量”的网络能力，“如果部署，至少可以对美国境内的关键基础设施造成局部的、暂时的破坏。”
 
-民主党又退缩了？没有支付100万元的保证金，所以选举审计继续。
+2020年7月，美国政府指控了两名据称来自中共国的黑客，当局称他们参与了“全面的全球性计算机入侵活动”，包括试图黑客美国冠状病毒研究及瞄准人权活动家。
 
-《门道专家》继续报道，因为民主党没有提交100万美元的保证金，因此亚利桑那州的审计将继续进行。【6】
+“在任何时候，在我们的规范和机构、我们的员工和整合我们工作上下功夫都是最重要的。”海因斯周三说。
 
-按照马里科帕县高级法院法官克里斯托弗·库里的裁定，审计必须从周五下午5点到周一中午停止，但这一命令取决于亚利桑那州民主党提交一份100万美元的保证金，以支付参议院因推迟审计而招致不当的任何费用。
+🔗[原文链接](https://edition.cnn.com/2021/04/14/politics/fbi-director-china-investigations-intl-hnk/index.html)
 
-民主党律师罗巴利德赛（Roopali Desai）说，民主党不会提供保证金，这意味着审计工作将不间断地进行。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-川普总统后来又发表声明：
 
-2021年4月24日
+编辑：【英国伦敦喜庄园编辑部】
 
-唐纳德J·川普 美国第45任总统
-
-共和党要求亚利桑那州州长杜西立即为勇敢的美国爱国者提供大规模的安全保障，让他们对2020年总统选举进行司法审查。杜西州长将对相关人员的安全负全部责任，州警察或国民警卫队必须立即派出保护，民主党人不想让这些信息被披露，他们会尽一切努力阻止它，杜西州长必须最终采取行动！
-
-从川普总统的这则声明里似乎能读出民主党人可能的孤注一掷，必须警惕！
-
-正如川普总统指出的那样，“民主党人迫切希望这一骗局被继续掩盖，因为一旦揭发，威斯康辛州、密歇根州、佐治亚州、新罕布什尔州和伟大的宾夕法尼亚州将加快进行已经开始的工作。”
-
-民主党不会善罢甘休，正义的力量更会势不可挡，背后的妖魔最终会暴露！
-
-参考链接：
-
-【1】[https://www.gnews.org/zh-hans/1129170/](https://www.gnews.org/zh-hans/1129170/)
-
-【2】[https://www.thegatewaypundit.com/2021/04/democrats-sent-73-lawyers-az-know-breaking-president-trump-releases-statement-forensic-audit-maricopa-county-arizona/](https://www.thegatewaypundit.com/2021/04/democrats-sent-73-lawyers-az-know-breaking-president-trump-releases-statement-forensic-audit-maricopa-county-arizona/)
-
-【3】[https://twitter.com/JennaEllisEsq/status/1385748365800058882/photo/1](https://twitter.com/JennaEllisEsq/status/1385748365800058882/photo/1)
-
-【4】[https://prescottenews.com/index.php/2021/04/24/statement-by-donald-j-trump-45th-president-of-the-united-states-of-america-2/](https://prescottenews.com/index.php/2021/04/24/statement-by-donald-j-trump-45th-president-of-the-united-states-of-america-2/)
-
-【5】[https://www.thegatewaypundit.com/2021/04/breaking-judge-orders-temporary-halt-arizona-forensic-ballot-audit-monday-democrats-file-suit-shut-process/](https://www.thegatewaypundit.com/2021/04/breaking-judge-orders-temporary-halt-arizona-forensic-ballot-audit-monday-democrats-file-suit-shut-process/)
-
-【6】[https://www.thegatewaypundit.com/2021/04/breaking-huge-update-az-democrats-arizona-wont-post-1-million-bond-election-audit-continues/](https://www.thegatewaypundit.com/2021/04/breaking-huge-update-az-democrats-arizona-wont-post-1-million-bond-election-audit-continues/)
+[!\[\]()!\[\](https://spark.adobe.com/page/Zck5p9bG2LE8f/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/Zck5p9bG2LE8f/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

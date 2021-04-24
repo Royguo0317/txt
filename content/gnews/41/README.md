@@ -1,33 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草山影院】纪录片《战争交响曲：肖斯塔科维奇对抗斯大林》电影解说
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1134572/)
+## 中共一直通过窃取和渗透，意图颠覆美国的生物医学研究行业
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1134584/)
 
-制作：纽约香草山视频部
+4/22/2021 美国国立卫生研究院（NIH）院外研究部副主任迈克尔·劳尔（Michael Lauer）博士在4月22日举行的参议院卫生、教育、劳工和退休金（HELP）委员会听证会上，作证外国势力（主要是中共）对美国生物医学研究中的影响；参议员罗杰⋅马歇尔：为消除美国的竞争优势，中共一直在以关键技术和研究机构为目标，系统性地努力渗透到美国学术研究界，因此中共将继续是美国技术竞争力的首要威胁。
 
+By： 【秘密翻译组 G-Translators】
 
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
-**电影解说原文： [【文艺灭共行动】对抗强权: 一个伟大艺术家的命运](https://gnews.org/zh-hans/357619/)**
-
-审核/发稿：雪梨
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-0
++3

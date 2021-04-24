@@ -1,51 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】TikTok助长了耶路撒冷的暴力
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1135078/)
+## 《我们的七芒星》第十三期选手介绍 &#8211; 美东周六4月24日晚8点
+` GMusic` [轉載自GNews](https://gnews.org/zh-hans/1135060/)
 
-作者：纽约香草山农场 四季
+我们的七芒星文宣组 May，山上的城，Q大哥整理
 
+由GTV空中唱响团队和纽约香草山农场文艺部倾心打造的新中国联邦首档全民灭共大型知识竞猜节目《我们的七芒星》第十三期节目将于美东时间4月24日周六晚8点，暨北京时间4月25日周日早8点，在GTV正式火热开播。 届时将有一位”主持人”选手，和来自全球的八位”挑战者”参赛。
 
+本期主持人选手是来自美国纽约香草山农场的Mindy！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Mindy1.jpeg)
+“挑战者”选手分别是：福太郎， 文小町， 叁贰壹倒计时， rizhong1154， 就爱七哥， 苍天饶过谁64，Ryan，鬼五。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+**福太郎   银河系**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/福太郎-2.jpeg)
+2017年开始关注文贵先生，被文贵先生的正义和勇气折服，有幸跟随爆料革成为新中国联邦人，尽己所能为灭共为唤醒更多被洗脑的中国人而战。
 
+**文小町   日本东京樱花团**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/小文.jpeg)
+2018年开始关注爆料革命。在参与爆料革命的同时，又通过GTV看到了不同国度的风土人情，都是朴实真实、原汁原味。新中国联邦传播事实真相，灭共就差你一个。
 
+**叁贰壹倒计时   日本东京樱花团**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/倒计时.jpeg)
+2017年开始跟随爆料革命，有幸成为爆料革命的一员，自己的后半生有了明确的目标。坚持唯真不破，灭共到底。爆料革命赢定了！中共，你完了！
 
-华盛顿自由灯塔4月23日报道，与中共有关系的社交网络TikTok，在耶路撒冷持续的暴力抗议中被用来鼓励阿拉伯人攻击犹太人——这些针对反犹太主义的暴力视频在以色列的TikTok上流行。
+**rizhong1154   美国波士顿五月花农场**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/rizhong-2.jpeg)
+自己曾在国内做过警察，父亲曾在批斗中受残酷迫害。国恨家仇让她此生愿在灭共大业上做一根稻草，为实现新中国联邦，走向喜马拉雅之巅而努力。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-447.png)图源网络
+**就爱七哥   德国慕尼黑感恩农场**
 
-这些视频显示阿拉伯青少年袭击毫无戒心的犹太人，激起了耶路撒冷旧城的暴力冲突，造成100多人受伤。视频同时显示，手无寸铁的犹太人遭到殴打，以及警察用防暴手榴弹驱散来自极右翼犹太团体Lehava的成员。
+曾穿着“民主 民权 六四”体恤衫去上课，老师在课堂上公然无耻谎称8964开枪照片是PS的。爆料革命给善良的中国人带来了希望，生死看淡，不服就干，就爱七哥，爱咋咋地。
 
-反犹太主义内容在TikTok应用程序上泛滥，上面有大量的反犹太主义的评论。并且，有一首嘲笑大屠杀受害者的歌曲在该应用程序上疯传，带有该歌曲的视频被观看了数百万次。
+**苍天饶过谁64   美国纽约香草山农场**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/苍天.jpeg)
+2017年听到文贵先生的直播后，心中燃起了灭共的希望，现在作为新中国联邦的一员，感到万分的荣幸和骄傲。加入新中国联邦是最最重要的选择，灭共是唯一目标。
 
-TikTok经常审查对中共国政府的批评言论。2019年被泄露给《卫报》的文件显示，TikTok坚持实行禁止提及西藏自由或天安门广场等词汇，支持法轮功的视频也同样不被允许上传。TikTok对支持抗议香港政权的视频进行审查，该平台也同样审查了提及新疆维吾尔人受压迫的视频。许多使用TikTok分享他们困境的维吾尔人发现他们的账户很快就被关闭了。其应用程序的算法旨在促进亲中共的内容——TikTok与中共国政府的关系是众所周知的。司法部称，字节跳动的创始人表明，他“致力于促进”中国共产党的议程。
+**Ryan    美国休斯敦星光农场**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/ryan-2.jpeg)
+因为是音乐人的缘故，所以加入了休斯敦星光农场，希望通过自己的专业尽自己的一份力，与其他战友并肩一起“以乐灭共”！
 
-参考阅读：
+**鬼五    美国休斯敦星光农场**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/guiwu.jpeg)
+还有一个月就是他参加爆料革命一周年纪念了！很庆幸有缘加入了这场拯救十四亿中国人，拯救七十五亿地球人的爆料革命，意义非凡。 战友们加油！
 
-[Anti-Semitic TikTok Trend Fuels Violence in Jerusalem](https://freebeacon.com/latest-news/anti-semitic-tiktok-trend-fuels-violence-in-jerusalem/)
+破解红毒，洞见真知。 灭共路上，没你不行！ 欢迎全球战友踊跃报名参加《我们的七芒星》。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+**报名方式 ：**
 
-编辑/校对/发稿：Irene木木
+报名”挑战者”或”主持人”：
 
-**更多资讯，更多关注**
+[https://forms.gle/7VT3Qrz4yq861Bk69](https://forms.gle/7VT3Qrz4yq861Bk69)
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+报名”智囊团”：
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
+[https://forms.gle/DHE6E78fwXT5nc5M9](https://forms.gle/DHE6E78fwXT5nc5M9)
 
 0
