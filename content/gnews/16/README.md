@@ -1,61 +1,101 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 台湾防疫成也封闭败也封闭
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1134970/)
+## 美国《2021战略竞争法》第301、302、303节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1135106/)
 
-台湾宝岛农场 zhong
-![]()![](https://gnews.org/wp-content/uploads/2021/02/TWchan.jpg)
-**背景事实简述**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-台湾时间04/23，新增一例本土感染案例，为中华航空外籍机师的家人。该外籍机师在确诊前曾值班到美、澳等地，返台后传染给家人。此外，在法律规定隔离期间、采检后，于自主健康管理期间参加大型宗教活动，导致台湾可能爆发群聚感染。
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/H-8.jpg)newsfirst.lk
+“副标题C——应对中共国的区域战略”的“第三部分——南亚和中亚”2节（261、262），“第四部分——非洲”6节（271至276节），“第五部分——中东和北非”2节（281、281），“第六部分北极地区”1节，“第七部分——大洋洲”2节（291、292）暂时略译。
 
-而这个防疫的漏洞产生，完全归因于过度封闭，台湾当初因为被国际排除在外，依靠自身防疫机制取得防疫先机，但防疫政策的渐变可以得知台湾防疫官员是「相信疫苗的」，并未对病毒、疫苗为生化武器有认识，台湾跟随国际逐渐开放边境的结果，就是将自己陷于危险中。
+本文为“标题3——我们价值观的投入”的3节。
 
-**过去台湾防疫仰赖边境封锁、长时间自主隔离**
+标题3——我们价值观的投入
 
-过去，入境台湾必须于防疫旅馆或其他处所隔离14天，采检后确认为阴性方可解除隔离，若采检结果是有感染可能将继续隔离。解除隔离后，还有一段自我健康管理期间，虽然人身自由并未受到拘束，但要求个人注意自身健康情形并即时通报。
+第301节 批准拨款支持香港民主运动
 
-**防疫逐渐缩短隔离期截至目前已明确将依赖疫苗**
+（a）为促进香港的民主，为国务院的《民主、人权和劳工局》（the Bureau of Democracy, Human Rights, and Labor）在2022财政年度授权拨款一千万美元。
 
-在2021年，台湾非常神奇的顺利取得疫苗，而当外界对于疫苗效力时，台湾防疫机关仅对外表示，防疫还是主要依靠隔离、疫调，且不会强迫医护以及其他高感染风险人士注射疫苗。
+（b）管理 – 国务卿应在国务院指定一个办公室，负责管理和协调国务院内部和整个美国政府提供第（a）小节所述的资金。
 
-但经过04/23的机师感染案例发生，已经可以明确防疫机关准备完全依赖不可信的疫苗。经防疫主管机关表示，该名染疫机师是在台湾以外地区染疫，但返台后经过法定自主隔离期、采检阴性后回归社会，再传染给家人，该名家属因此成为台湾本土感染个案。
+第302节 对在新疆维吾尔自治区实施有关强迫劳动的制裁
 
-04/15日以前，未注数疫苗的航空业人员，如长航程机师，必须要自主隔离7日并采检后，方可解除隔离。但04/15日以后，已经变更为长航程机师仅需要自主隔离3天即可采检。
+（a）通常情况 – 对《2020年维吾尔族人权政策法》（the Uyghur Human Rights Policy Act of 2020）（公共法116-145）第6（a）（1）节；《美国法典》第22编第6901节注解）的修订-
 
-本次台湾本土感染案例，就是三天隔离期满后采检阴性，解除隔离后，参与宗教活动产生了防疫破口。而防疫指挥中心居然表示，华航仅几十人施打疫苗，进度过慢，必须要加快施打疫苗的速度。 （真是神奇的结论）
+（1）将（E）项改为（F）项；以及
 
-**阎丽梦博士论文被多国研究台湾专家只愿相信自己？**
+（2）在（D）项后插入以下内容：“（E）与强迫劳动有关的严重侵犯人权（行为）。”
 
-过去，因为资讯上的不足，台湾防疫单位对外的解释以及对疫苗效力的疑虑，都还在可以接受的范围内。但阎丽梦博士竭尽心力研究的结果，已经可以明确中共病毒就是生化武器的本质，虽然病毒有快速变异特性，疫苗施打后还是会染疫，但疫苗本身利用自体免疫抗疫的方式，本就不适用于生化武器。
+（b）生效日期；适用性 -（a）款所作的修订 –
 
-今天台湾的媒体仍然炒作疫苗效力、病毒变种，模糊了台湾人对生化病毒武器的认识。此外，也模糊了疫苗本就无法对抗生化武器的关键点，成功转移焦点。
+（1）自本法颁布之日起生效；以及
 
-**利益的纠葛一直是阻碍人类文明进步的原因：奎宁**
+（2）适用于《2020年维吾尔族人权政策法》第6（a）（1）节要求的在该颁布日期之后提交的第一份报告。
 
-本文提及媒体利用「疫苗效力」模糊了疫苗根本无法治疗生化武器的关键事实，而阎丽梦博士早在疫情开始初期，便提出免疫调节剂「羟氯奎宁」可以有效预防中共病毒感染后在体类快速复制、诱导免疫系统的巨噬细胞(T细胞)过度反应（失控），使巨噬细胞在过度抵御病毒时释放发炎物质（细胞素）产生「细胞激素风暴」（即免疫风暴、免疫系统失控）。
+第303节 对在新疆维吾尔自治区蓄意强奸、强迫堕胎、强制绝育或非自愿避孕实施的制裁
 
-所谓免疫系统失控，是指中共病毒进入体内后快速增生，诱导身体的先天性、后天性免疫系统活化，巨噬细胞可以认为是身体内部的捍卫战士，巨噬细胞在专一性免疫作用中所扮演的「抗原呈现」的角色，对人体的抗病力表现极为重要。
+（a）通常情况 -《2020年维吾尔族人权政策法》（公共法116-145）第6（a）（1）节；《美国法典》第6901节注释）经第302节修订后，进一步修订 –
 
-但巨噬细胞，在中共病毒快速增生情形下，与病毒反应释放过多的发炎物质（又有称为细胞因子），发炎物质随着血液流经全身，引起器官组织损伤、衰竭坏死，甚至神经损伤。
+（1）将（F）项改为（G）项；以及
 
-因此，中共病毒可怕的是让自己身体免疫系统杀死自己，或产生巨大、不可逆的身体损伤。而奎宁，是非常有效的免疫力调节剂，非单纯抑制而是调节，有效遏止免疫系统过度反应，并且有效抑制中共病毒或其他病毒在体内快速增生。 （免疫力过强、过弱都是不理想的）
+（2）在（E）项后插入以下内容：“（F）蓄意强奸、强迫堕胎、强迫绝育或非自愿避孕政策和行为。”
 
-照理来说，奎宁药物成本远低于疫苗研发、贩售，但自疫情开始，奎宁便不间断受到质疑、攻击，一切原因就是利益。疫苗研发、贩卖，涉及巨大的利益，即便生物科技领域对于奎宁的特性、重要性及未来展望有完整了解，但在利益集团之下，便宜好用有效的产品终究会被污名化。
+（b）生效日期；适用性 -（a）款所作的修订 –
 
-（本文仅代表个人立场）
+（1）自本法颁布之日起生效；以及
 
-[点击阅读为何他厂疫苗为何不可信](https://gnews.org/zh-hant/1113314/)
+（2）适用于《2020年维吾尔族人权政策法》第6（a）（1）节要求的在该颁布日期之后提交的第一份报告。
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+（3节完）
 
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+原文链接：
 
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
 
-文章审核：zhong
+文字整理：
 
-文章发布：Little Liu
+TITLE III—INVESTING IN OUR VALUES
 
-+1
+SEC. 301. AUTHORIZATION OF APPROPRIATIONS FOR PRO 4 MOTION OF DEMOCRACY IN HONG KONG.
+
+(a) AUTHORIZATION OF APPROPRIATIONS. — There is authorized to be appropriated $10,000,000 for fiscal year 2022 for the Bureau of Democracy, Human Rights, and Labor of the Department of State to promote democracy in Hong Kong.
+
+(b) ADMINISTRATION. — The Secretary of State shall designate an office with the Department of State to administer and coordinate the provision of such funds described in subsection (a) within the Department of State and across the United States Government.
+
+SEC. 302. IMPOSITION OF SANCTIONS RELATING TO FORCED LABOR IN THE XINJIANG UYGHUR AUTONOMOUS REGION.
+
+(a) IN GENERAL. — Section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 (Public Law 116–145; 22 U.S.C. 6901 note) is amended—
+
+(1) by redesignating subparagraphs (E) as subparagraph (F); and
+
+(2) by inserting after subparagraph (D) the following:
+
+‘‘(E) Serious human rights abuses in connection with forced labor.’’
+
+(b) EFFECTIVE DATE; APPLICABILITY. — The amendment made by subsection (a)—
+
+(1) takes effect on the date of the enactment of this Act; and
+
+(2) applies with respect to the first report required by section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 submitted after such date of enactment.
+
+SEC. 303. IMPOSITION OF SANCTIONS WITH RESPECT TO SYSTEMATIC RAPE, COERCIVE ABORTION,
+
+FORCED STERILIZATION, OR INVOLUNTARY CONTRACEPTIVE IMPLANTATION IN THE XINJIANG UYGHUR AUTONOMOUS REGION.
+
+(a) IN GENERAL. — Section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 (Public Law 116–145; U.S.C. 6901 note), as amended by section 302, is further amended—
+
+(1) by redesignating subparagraphs (F) as subparagraph (G); and
+
+(2) by inserting after subparagraph (E) the following:
+
+‘‘(F) Systematic rape, coercive abortion, forced sterilization, or involuntary contraceptive implantation policies and practices.’’.
+
+(b) EFFECTIVE DATE; APPLICABILITY. — The amendment made by subsection (a)—
+
+(1) takes effect on the date of the enactment of this Act; and
+
+(2) applies with respect to the first report required by section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 submitted after such date of enactment.
+
+0

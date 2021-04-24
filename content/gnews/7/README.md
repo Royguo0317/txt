@@ -1,101 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第301、302、303节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1135106/)
+## 2017年5月15日文贵先生直播视频-1
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1135374/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+出品：Gnews编辑部郭先生直播资料库整理工作组
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/H-8.jpg)newsfirst.lk
-“副标题C——应对中共国的区域战略”的“第三部分——南亚和中亚”2节（261、262），“第四部分——非洲”6节（271至276节），“第五部分——中东和北非”2节（281、281），“第六部分北极地区”1节，“第七部分——大洋洲”2节（291、292）暂时略译。
+任何事情时间是很重要的，没有经历过时间考验的爱情、友情、事业都是没有质量、没有意义的，甚至是经不起推敲的。所以我说爆料革命需要三年时间，这是很最要的，不能让他们以为几个月就过去了。
 
-本文为“标题3——我们价值观的投入”的3节。
+***——*****郭文贵**
 
-标题3——我们价值观的投入
+**要点一：因为文贵先生的爆料****“****睡午觉****”****成为敏感词**
 
-第301节 批准拨款支持香港民主运动
+我早上五点起床接了无数个电话，特别是其中一位老领导说因为我的爆料，现在他们在办公室午睡都得开门，“睡午觉”属于敏感词了。同时“该吃吃该喝喝，啥事不往心里搁”也成敏感词了，岳文海、黄艳、王恩哥、朱善路都成关键词了，生活被搞的不得安宁。老领导一再提到最近两天都在忙碌北京的“一带一路”会议，无暇顾及其他，但是他们都在关注着我的推特和YouTube。
 
-（a）为促进香港的民主，为国务院的《民主、人权和劳工局》（the Bureau of Democracy, Human Rights, and Labor）在2022财政年度授权拨款一千万美元。
+**要点二：文贵先生爆料的****“****北大事件****”****引来各方争议**
 
-（b）管理 – 国务卿应在国务院指定一个办公室，负责管理和协调国务院内部和整个美国政府提供第（a）小节所述的资金。
+大家特别在乎北大的事情，特别是朱善璐的那些事儿，让他们很震惊。他们有耳闻但不知道具体情况，只有我能说出来，让他们特别惊讶的是特招生与北大方正集团的关系，因为基本各省都有这样一个“北大”出去的干部或领导。朱善璐这些人每天跑里跑外就是输送女学生，以此要项目、拿地、拿上市公司的牌照，所以北大方正集团是中国全牌照的金融控股集团。“北大事件”广泛引起各方争议，除了特招生和方正集团的非法敛财，各省领导不知道是否应该将像北大国际医院项目等的其他方正集团上万亩的未开发项目继续下去，其实大家都心知肚明，只是我说出来了而已。
 
-第302节 对在新疆维吾尔自治区实施有关强迫劳动的制裁
+**要点三：爆料革命一定要经得起时间的考验**
 
-（a）通常情况 – 对《2020年维吾尔族人权政策法》（the Uyghur Human Rights Policy Act of 2020）（公共法116-145）第6（a）（1）节；《美国法典》第22编第6901节注解）的修订-
+领导们贯性地认为，所有的热门事件通过时间全部可以消化，无论雷洋事件、泸州事件还是退伍老兵事件，甚至是文贵爆料。任何事情时间是很重要的，没有经历过时间考验的爱情、友情、事业都是没有质量、没有意义的，甚至是经不起推敲的。所以我说爆料革命需要三年时间，这是很最要的，不能让他们以为几个月就过去了。
 
-（1）将（E）项改为（F）项；以及
+**要点四：文贵先生爆料的****“****海航事件****”****、****“****黄****艳事件****”****和****“****北大事件****”****引起巨大的政治风波**
 
-（2）在（D）项后插入以下内容：“（E）与强迫劳动有关的严重侵犯人权（行为）。”
+前段时间爆料的“海航事件”、“黄艳事件”和“北大事件”引起了巨大的政治风波，特别是在地产开发商的圈子，很多朋友通过各种渠道联系我，绝大多数是希望我不要提及他们。但是有一些人是真的害怕了，因为不为人知的猫腻太多了！(网络中断）
 
-（b）生效日期；适用性 -（a）款所作的修订 –
-
-（1）自本法颁布之日起生效；以及
-
-（2）适用于《2020年维吾尔族人权政策法》第6（a）（1）节要求的在该颁布日期之后提交的第一份报告。
-
-第303节 对在新疆维吾尔自治区蓄意强奸、强迫堕胎、强制绝育或非自愿避孕实施的制裁
-
-（a）通常情况 -《2020年维吾尔族人权政策法》（公共法116-145）第6（a）（1）节；《美国法典》第6901节注释）经第302节修订后，进一步修订 –
-
-（1）将（F）项改为（G）项；以及
-
-（2）在（E）项后插入以下内容：“（F）蓄意强奸、强迫堕胎、强迫绝育或非自愿避孕政策和行为。”
-
-（b）生效日期；适用性 -（a）款所作的修订 –
-
-（1）自本法颁布之日起生效；以及
-
-（2）适用于《2020年维吾尔族人权政策法》第6（a）（1）节要求的在该颁布日期之后提交的第一份报告。
-
-（3节完）
-
-原文链接：
-
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
-
-文字整理：
-
-TITLE III—INVESTING IN OUR VALUES
-
-SEC. 301. AUTHORIZATION OF APPROPRIATIONS FOR PRO 4 MOTION OF DEMOCRACY IN HONG KONG.
-
-(a) AUTHORIZATION OF APPROPRIATIONS. — There is authorized to be appropriated $10,000,000 for fiscal year 2022 for the Bureau of Democracy, Human Rights, and Labor of the Department of State to promote democracy in Hong Kong.
-
-(b) ADMINISTRATION. — The Secretary of State shall designate an office with the Department of State to administer and coordinate the provision of such funds described in subsection (a) within the Department of State and across the United States Government.
-
-SEC. 302. IMPOSITION OF SANCTIONS RELATING TO FORCED LABOR IN THE XINJIANG UYGHUR AUTONOMOUS REGION.
-
-(a) IN GENERAL. — Section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 (Public Law 116–145; 22 U.S.C. 6901 note) is amended—
-
-(1) by redesignating subparagraphs (E) as subparagraph (F); and
-
-(2) by inserting after subparagraph (D) the following:
-
-‘‘(E) Serious human rights abuses in connection with forced labor.’’
-
-(b) EFFECTIVE DATE; APPLICABILITY. — The amendment made by subsection (a)—
-
-(1) takes effect on the date of the enactment of this Act; and
-
-(2) applies with respect to the first report required by section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 submitted after such date of enactment.
-
-SEC. 303. IMPOSITION OF SANCTIONS WITH RESPECT TO SYSTEMATIC RAPE, COERCIVE ABORTION,
-
-FORCED STERILIZATION, OR INVOLUNTARY CONTRACEPTIVE IMPLANTATION IN THE XINJIANG UYGHUR AUTONOMOUS REGION.
-
-(a) IN GENERAL. — Section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 (Public Law 116–145; U.S.C. 6901 note), as amended by section 302, is further amended—
-
-(1) by redesignating subparagraphs (F) as subparagraph (G); and
-
-(2) by inserting after subparagraph (E) the following:
-
-‘‘(F) Systematic rape, coercive abortion, forced sterilization, or involuntary contraceptive implantation policies and practices.’’.
-
-(b) EFFECTIVE DATE; APPLICABILITY. — The amendment made by subsection (a)—
-
-(1) takes effect on the date of the enactment of this Act; and
-
-(2) applies with respect to the first report required by section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 submitted after such date of enactment.
+听写校对：英喜庄园 胖丁
+要点原文： 纽约香草山 理想喜国
+要点原文校对：西班牙巴塞喜悦农场 Awen
+要点编辑：纽约香草山农场 Dolores
+要点编辑校对：纽约香草山农场 GForever(文紫)
+发布整理：休斯顿星光农场 文顺
+发布：日本樱花团 二丫
+视频链接： [https://www.youtube.com/watch?v=ME1eWwopmEg](https://www.youtube.com/watch?v=ME1eWwopmEg) （时长： 7分钟）
 
 0

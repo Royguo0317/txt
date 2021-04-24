@@ -1,51 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】TikTok助长了耶路撒冷的暴力
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1135078/)
+## 美中情局局长对阿富汗进行了突击访问
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1135351/)
 
-作者：纽约香草山农场 四季
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Snipaste_2021-04-25_00-01-46.jpg)[indiandefencereview.com](http://www.indiandefencereview.com/news/us-afghan-policy-a-shot-in-the-arm-for-india/)
+04月24日，美联社报道美中情局局长威廉·伯恩斯（William Burns）最近在美国军队即将从阿富汗撤军之前对喀布尔进行了一次暗访。文中未揭露中情局局长究竟与谁会面，但明确指出他讨论了美军撤离后阿富汗的战备状态，并向阿富汗方面保证，美国将继续参与打击该国的恐怖主义。
 
+一位前阿富汗安全官员称，由中央情报局训练的六支追踪武装分子的特种部队，其中有两支已经移交给了阿富汗共和国。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+早些时候，五角大楼报告了在美军从阿富汗撤军的背景下加强对美军的保护。特别是，德怀特·艾森豪威尔号航空母舰将继续留在中央情报局在该地区的作战责任区域，此外，指挥部批准增加部署几架远程轰炸机。
 
+4月14日，美国总统乔·拜登承诺在纽约911袭击事件20周年之前全撤出所有美军，而不是原定的5月1日。当时，他警告塔利班，他们准备好对可能的挑衅和攻击做出果断反应。
 
+自2001年以来，美国军队一直驻扎在阿富汗。在此期间，有超过2000名美国军人在那里被杀害。自2011年以来，美国开始逐步减少其特遣队，并于2014年撤出其主要作战部队。
 
-华盛顿自由灯塔4月23日报道，与中共有关系的社交网络TikTok，在耶路撒冷持续的暴力抗议中被用来鼓励阿拉伯人攻击犹太人——这些针对反犹太主义的暴力视频在以色列的TikTok上流行。
+2020年2月底，美国和塔利班签署了一项和平协议。该协议规定，美国和北约部队将在14个月内完全撤出阿富汗。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-447.png)图源网络
+参考链接：
 
-这些视频显示阿拉伯青少年袭击毫无戒心的犹太人，激起了耶路撒冷旧城的暴力冲突，造成100多人受伤。视频同时显示，手无寸铁的犹太人遭到殴打，以及警察用防暴手榴弹驱散来自极右翼犹太团体Lehava的成员。
-
-反犹太主义内容在TikTok应用程序上泛滥，上面有大量的反犹太主义的评论。并且，有一首嘲笑大屠杀受害者的歌曲在该应用程序上疯传，带有该歌曲的视频被观看了数百万次。
-
-TikTok经常审查对中共国政府的批评言论。2019年被泄露给《卫报》的文件显示，TikTok坚持实行禁止提及西藏自由或天安门广场等词汇，支持法轮功的视频也同样不被允许上传。TikTok对支持抗议香港政权的视频进行审查，该平台也同样审查了提及新疆维吾尔人受压迫的视频。许多使用TikTok分享他们困境的维吾尔人发现他们的账户很快就被关闭了。其应用程序的算法旨在促进亲中共的内容——TikTok与中共国政府的关系是众所周知的。司法部称，字节跳动的创始人表明，他“致力于促进”中国共产党的议程。
-
-参考阅读：
-
-[Anti-Semitic TikTok Trend Fuels Violence in Jerusalem](https://freebeacon.com/latest-news/anti-semitic-tiktok-trend-fuels-violence-in-jerusalem/)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
+[https://www.rbc.ru/rbcfreenews/6083c1539a7947590965650f](https://www.rbc.ru/rbcfreenews/6083c1539a7947590965650f)
 
 0

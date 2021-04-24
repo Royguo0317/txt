@@ -1,83 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】春日怀句
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1134777/)
+## FBI局长：每10小时就有对中共国的新调查
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1134908/)
 
-作者：纽约香草山写作组  木白
+新闻来源：《CNN》| 作者：Mike Conte, Christian Sierra and Ben Westcott | 发布时间：2021年4月15日
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
+翻译/简评：clau | 校对：Beicy-数学老师 | 审核：万人往 | Page：青山
 
+[!\[\]()!\[\](https://spark.adobe.com/page/Zck5p9bG2LE8f/images/806c2da0-cdc0-438a-8215-70a2c42e2706.jpg?asset_id=372896f6-0bb0-4618-b5e7-0ed036007644&amp;img_etag=%2282172bdd78aab629b324b545a4cfd1a2%22&amp;size=1024)](https://spark.adobe.com/page/Zck5p9bG2LE8f/images/806c2da0-cdc0-438a-8215-70a2c42e2706.jpg?asset_id=372896f6-0bb0-4618-b5e7-0ed036007644&amp;img_etag=%2282172bdd78aab629b324b545a4cfd1a2%22&amp;size=1024)
 
+**简评：**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/【香草诗词汇】春日怀句.jpg)
+上周三，联邦调查局局长、美国国家情报局局长、中央情报局局长针对来自中共国的全面威胁，同时出席了在美国国会的公开听证。他们的证词表明了来自中共的威胁是全方位的、深入的、持续的且动摇美国根基的。
 
-1
+联邦调查局局长克里斯托弗·雷称该局有2000多项调查与中共国政府有关，而且每10小时就有一项新调查，尤其提到了中共针对海外华人华侨开展的“猎狐行动”，此行动是中共违反美国法律，威胁、恐吓骚扰（和）敲诈“华裔”侨民的最典型例子。让人不禁想到自2017年郭文贵先生开始爆料以来，中共对郭先生的各种抹黑、造谣甚至是暗杀，最让人印象深刻的就是中共特务利用无人机黑客郭先生的私人游艇“Lady May”，导致游艇失控险些撞船的事件。中共利用网络黑客配合所在国当地间谍执行任务的能力可见一斑。
 
-写诗，让万物怀春，
+此次美国情报系统三位局长少有的集体作证，向美国人表明了，中共对美国乃至全世界的威胁是真实存在的，绝不是什么耸人听闻阴谋论，也不是带着种族歧视眼光的抹黑论。希望西方国家拿出实质性的行动，直面因为自己几十年以来的天真和贪婪导致的不利局面，对抗来自中共的威胁！
 
-让掉落的头发在心底生长，让头顶冒着生活之光。
+**原文翻译：**
 
-也让青光眼看见绿光：
+## **美国联邦调查局局长称“每10小时”就对中共国展开一次新的调查**
 
-数着白内障的日子，数进春天。
+[!\[\]()!\[\](https://spark.adobe.com/page/Zck5p9bG2LE8f/images/abab76e4-97ec-4af8-a8b8-ae170c829291.jpg?asset_id=98fa22e6-d419-45dd-a5dc-a13884ea9ee7&amp;img_etag=%22373c2554852145c408b237c10b5c3836%22&amp;size=1024)](https://spark.adobe.com/page/Zck5p9bG2LE8f/images/abab76e4-97ec-4af8-a8b8-ae170c829291.jpg?asset_id=98fa22e6-d419-45dd-a5dc-a13884ea9ee7&amp;img_etag=%22373c2554852145c408b237c10b5c3836%22&amp;size=1024)04:04 戏剧性的视频显示，中共国海军的演习加剧了台湾的紧张局势
 
+美国有线电视新闻网(CNN)报道，美国联邦调查局局长周三告诉美国参议院情报委员会，该局有2000多项调查与中共国政府有关，而且“每10小时就有一项新调查”。
 
+联邦调查局局长克里斯托弗·雷（Christopher Wray）在他的证词中说，没有其他国家比中共国对美国的经济安全和民主理念构成更大的威胁，并补充说，中共国影响美国机构的能力是“深入、广泛和持续的”。
 
-2
+雷的评论是在华盛顿和北京当局在一系列战线上的紧张关系上升之际发表的，包括据称中共国在西部地区新疆的侵犯人权行为以及与台湾和香港有关的问题。
 
-涵养三气，可吐三昧真火；
+美国国家情报局局长艾薇儿·海因斯（ Avril Haines）和中央情报局局长威廉·伯恩斯（William Burns）在周三的听证会上与雷一起发言，这是自2019年以来国家情报部门领导人在美国国会的首次集体公开作证。
 
-脚踏莲花，终究要做一棵安静的木棉树。
+[!\[\]()!\[\](https://spark.adobe.com/page/Zck5p9bG2LE8f/images/746803f3-bb8e-47d7-9057-3a340970c478.jpg?asset_id=439190d4-e517-4a50-9b2d-64b86527e9d7&amp;img_etag=%22e3c93902ad0834bf7c8043aa3840bd45%22&amp;size=1024)](https://spark.adobe.com/page/Zck5p9bG2LE8f/images/746803f3-bb8e-47d7-9057-3a340970c478.jpg?asset_id=439190d4-e517-4a50-9b2d-64b86527e9d7&amp;img_etag=%22e3c93902ad0834bf7c8043aa3840bd45%22&amp;size=1024)4月14日星期三，在华盛顿国会山，联邦调查局局长克里斯托弗·雷（ Christopher Wray）在参议院情报特别委员会关于全球威胁的听证会上作证。
 
-不爱江湖，爱江水，尽管游不到对岸——
+特别是，雷针对一项与中共国政府相关、名为“猎狐”的行动做出了指控，他指称该行动涉及北京政权在美国本土进行“未经协调的非法执法活动”，作为“威胁、恐吓骚扰（和）敲诈“华裔侨民”成员的手段。
 
-泳在心中，湮没心底的巨兽。
+“这表明并说明了这种特殊的威胁是多么具有挑战性和多样性。”雷说。
 
+中共国政府将“猎狐行动”视为一项国际反腐败运动，目标是来自中共国的逃犯，通常是涉嫌经济犯罪的前官员或富人。
 
+听证会是在美国情报界发布年度威胁评估报告后不到一周后举行的，报告中警告说，中共国和俄罗斯政府旨在利用新冠肺炎大流行病来扩大其全球影响力。
 
-3
+该报告说，北京政权一直在“努力加紧改变美国的政治环境”，试图扩大其政治影响力，压制对其自身政策的批评，包括对新疆和香港公民自由的镇压。
 
-种梅花，用好盆；
+周三，海因斯告诉参议院情报委员会，中共国政府拥有“大量”的网络能力，“如果部署，至少可以对美国境内的关键基础设施造成局部的、暂时的破坏。”
 
-远方的树，种最近的土。
+2020年7月，美国政府指控了两名据称来自中共国的黑客，当局称他们参与了“全面的全球性计算机入侵活动”，包括试图黑客美国冠状病毒研究及瞄准人权活动家。
 
-访顾人，旧重逢；一春一脚一泥土——
+“在任何时候，在我们的规范和机构、我们的员工和整合我们工作上下功夫都是最重要的。”海因斯周三说。
 
-都是自己把自己种进同样的命运。
+🔗[原文链接](https://edition.cnn.com/2021/04/14/politics/fbi-director-china-investigations-intl-hnk/index.html)
 
-
-
-4
-
-绿宝石，红宝石，不如心中的宝石；
-
-开绿花，开红花，都是我爱的海棠；
-
-怀句如怀春：
-
-你努力貌美如花，我努力写字养家。
-
-2021年3月24日
-
-注解：绿宝石，红宝石皆是海棠花的品种。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-审核/发稿： 雪梨
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[!\[\]()!\[\](https://spark.adobe.com/page/Zck5p9bG2LE8f/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/Zck5p9bG2LE8f/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
