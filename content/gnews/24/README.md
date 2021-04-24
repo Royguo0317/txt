@@ -1,70 +1,89 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 知道中共有解药以后西方该怎么办&nbsp; 习近平已经众叛亲离
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1133237/)
+## 【热点播报 】全世界都谴责中共的“种族灭绝”，世界报业辛迪加网站刊文为中共洗白
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1133219/)
 
-**摘要：郭先生在2021年4月22日的盖特视频中说，在他21日爆出中共有解药后，世界和国内都引起巨大震动，他告诉西方国家要跟中共要解药，并透露在分配解药一事上，习近平已经众叛亲离。**
-[下载字幕](https://www.gnews.org/wp-content/uploads/2021/04/Miles_20210422-getter1.srt.txt)
-**知道中共有解药以后西方该怎么办****  ****习近平已经众叛亲离**
+作者：   纽约香草山写作4组 兰兰
 
-**Knowing There Is an Antidote, How Should We Go Forward Next?**
 
-那么另外一个我想和大家说的事情，就是昨天在我盖特发出以后，[我爆出了]共产党有解药。[共产党]有解药这件事情可以说在世界上[是]重大重大的一张[灭共牌]，[是]重磅的一则爆料，影响[深远]。
 
-So another thing that I want to share with everybody is that yesterday I posted my Getter video that exposed the fact that the CCP has an antidote. We can say that the fact that the CCP has an antidote can be used as a major card [in taking down the CCP]. It’s like a bombshell dropped and it will have a profound impact.
+![]()![](https://gnews.org/wp-content/uploads/2021/04/logo-6.jpg)
 
-所有真正有正事、有良知的[人]，知道冠状病毒[的情况]了解共产党的西方官员，他说为什么全世界人就没想过这个问题呢？他说你爆出这个问题太重要了。昨天我和亚洲的某个国家连线，人家对方就说：“郭先生，我们没有任何怀疑你的意思。我们应该怎么往前走？”
 
-Like all people in the West who are righteous, who have a conscience, who know about the coronavirus, and who understand the CCP, this guy asked, “Why hasn’t anybody in the world even thought about this?” He said that the stuff that I exposed is really important. Yesterday I connected with people from a certain country in Asia, and they said: “Mr. Guo, we don’t have any doubts about what you said, but how should we go forward?”
 
-我说：“非常简单，你先定义这个[病毒]是不是自然的，不是自然的那就是人造的。[如果是]人造[的，那是]谁造的？大家现在怀疑唯一的[罪魁祸首]就是中国共产党。为啥共产党里面有人戴口罩有人不戴口罩？为什么共产党的老百姓死了上百万人武汉老百姓？为什么这些高官的家人一个不死？[事情]就这么简单。”
+4月20日，美国“世界报业辛迪加”网站刊文：The Xinjing Genocide Allegations Are Unjustified，大意为：对新疆种族灭绝的指控毫无根据。
 
-I said, “Very simple. First you define whether this virus is natural or not. If not, then it is man-made. If it is man-made, who made it? The only one suspected by everybody is the CCP. Why do some members of the CCP wear masks and some don’t? Why have millions of common people in Wuhan in communist China died but none of these high-ranking officials’ family have? That’s how simple it is.”
+在全世界都在对中共“种族灭绝罪”进行谴责和制裁的时候，这个网站发表为“种族灭绝”洗白的文章，这位作者，这个网站真是中共的“铁哥们”啊。
 
-“那么现在共产党如果说没有解药，那请让他[共产党]告诉你所有参与研究武汉实验室的任何工程师，让他[们]到美国和欧洲来接受质询。别说审判，质询他[们]。让他[们]告诉你怎么找到[冠状病毒的]解药，行不行？或者你们美国欧洲不敢跟共产党要真相，[那就跟共产党]要[冠状病毒的]解药呗。说你给解药我[们就]不追究你责任了，这不也挺好吗，对吧？也挺好啊。”
+文章态度明确地指出：美国总统乔·拜登政府不必要地升级了对中共在新疆地区维吾尔族人进行种族灭绝行为的言论。作者接着对美国政府这一言论进行了反驳：美国没有提供任何（关于中共在新疆种族灭绝行为的）证据。然后对美国国务院进行了建议：除非能够提供证据，否则国务院应该撤销这项指控并支持基于联合国的新疆局势调查。
 
-I continued, “So if the CCP replies that they have no antidote, you then ask them to tell you who the engineers involved in the research in the Wuhan lab are, then let them come to the US and Europe to receive questions at hearing. Don’t call it trials, call it hearings. Let them tell you how to find the antidote, okay? Or if you, the US and Europe, dare not ask the CCP for the truth about the virus, you can just ask for the antidote. Tell them that if they agree to give the antidote, you won’t hold them accountable. Isn’t it nice, right? It will be pretty nice.”
+全文都是在“证据”上下功夫，用“没有证据”坚定地为中共洗白。文章摆出了中共式骂架的嘴脸，对每一个提及的正义人士都破骂大口，批判了一番，把每一项提及的报告都否定了一遍，并用各种理由为中共脱罪。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/新疆劳改营.jpg)新疆劳改营
+对于正义人士，文章提及了蓬佩奥先生，说他毫不掩饰地撒谎，并将撒谎作为美国外交政策的工具，这不就是中共式的骂架吗？文章还提及了最近登上全球新闻头条的Newlines Institute的报告研究人士，并称他们只是来自弗吉尼亚一个只有153名学生8名全职教师的微型大学的项目，以及一个显然偏于保守的政策议程，其它主要人权组织都没有使用这一术语。中共媒体也称这所学校为“野鸡大学”。规模小不代表能力不行啊？麻雀虽小五脏俱全。CNN对Newlines Institute报告的评价是：这是首次由一个非政府组织对指控发生在新疆的种族灭绝进行的独立法律分析。至少CNN已经表明了这份报告是一份独立的法律分析。而在这篇文章的作者眼里，写报告的人地位卑微，无人认可。
 
-所以说现在这个[冠状病毒]解药的问题引起了世界上的巨大震撼。
+对于各种报告，文章提及了美国的《国家人权行为报告》（Country Reports on Human Rights Practices,缩写为HRP）。文章称HRP对蓬佩奥亦步亦趋，指责中共在新疆进行种族灭绝行为。文章说：HRP只在报告的序言和“中共章节”的概要中各使用了一次“种族灭绝”这一用词，因此对于证据，只能靠读者猜测。文章以引用次数不够来反驳。接着文章继续反驳：HRP的大部分内容涉及言论自由、难民保护和自由选举等问题，与种族灭绝指控关系不大。HRP有针对维吾尔族人的人权侵犯的指控，但并不构成种族灭绝。这是开玩笑吗？既然有了对维吾尔族人权侵犯的指控，这位作者，你怎么就能判定并不构成种族灭绝呢？莫非种族灭绝的定义是你定的么？你怎么不继续摆出证据来说说具体的人权侵犯行为呢？
 
-So now this antidote thing has greatly shocked the world.
+对于“人权指控”并不构成种族灭绝这一逻辑，接下来文章以美国9/11事件来为中共脱罪。文章引用香港商人兼作家单伟健于2021年4月14日发表在《南华早报》上的观点：在美国应对9/11失当而多次违反国际法，造成大规模流血事件的那些年里，中共国也经历了多次新疆恐怖袭击。事实上，直到2020年年底，美国一直将维吾尔东突厥斯坦伊斯兰运动列为恐怖组织，在阿富汗与维吾尔族战士作战，并关押了大量囚犯。2020年7月，联合国[注意到](https://apac01.safelinks.protection.outlook.com/?url=http%3A%2F%2Fundocs.org%2FS%2F2020%2F717&amp;data=04%7C01%7C%7C762c1fffc3d544a7a8ba08d903fafb7a%7C84df9e7fe9f640afb435aaaaaaaaaaaa%7C1%7C0%7C637545200089533011%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C1000&amp;sdata=XAuMu9NET777C7WUPia0KbWmu04jn9T7aA6r%2B0vc46g%3D&amp;reserved=0)在阿富汗和叙利亚有成千上万的维吾尔族战士。
 
-兄弟姐妹们，连我本人在48小时以前，我[都]从来没想过这个世界上会有[冠状病毒的]解药。我[之前]通过各种内部参与爆料[革命]的人[了解]，都给我一句话：“不可能有疫苗，因为这是人造的生化病毒，怎么可能有疫苗呢？这是个基本常识，而且每个[病毒]都在变异中。”直到他告诉我说：“文贵，我可以告诉你，没那么悲观。只要西方世界有正义的力量和正义的良知的人，这个世界是有解药的。”
+先不说香港的《南华早报》还有多少的公信力，这个引用是典型的拖美国下水为中共洗白的方式，更是塑造了中共是新疆恐怖袭击的受害者形象。针对这一份引用，文章再次指责美国政府为中共洗白，文章说：绝不应轻率地指控种族灭绝。不当使用这一术语可能会加剧地缘政治和军事紧张局势，使大屠杀等种族灭绝的历史记忆贬值，有碍于防止未来种族灭绝的能力。美国政府的任何种族灭绝指控都必须是负责任的，但在新疆问题上，美国政府没有做到这一点。世界上那么多媒体多年来持续报道新疆种族灭绝事件，现如今那么多国家包括美国都认为中共在新疆实施“种族灭绝”，你却用简简单单一个“绝不轻率地指控”来指点，你是用多么凝重的态度来写这篇文章的？
 
-Brothers and sisters, even I myself had never thought that there could be an antidote existing in this world like 48 hours ago. Previously I heard the same answer from different fellow fighters of the Whistleblower Movement: “There can’t be any vaccines, because this is a man-made bioweapon virus. How can there be a vaccine? This is basic common sense. Besides, this virus keeps mutating.” Until this guy told me: “Miles, I can tell you, it’s not so hopeless. As long as there are righteous people with a conscience in the western world, there will be antidotes in this world.”
+文章还提及了1948年版的《联合国种族灭绝罪公约》（UN Genocide Convention），公约规定必须存在五种行为之一，显然，列在首位的是杀戮。文章继续以“证据”来做文章，为“杀戮”脱罪：如果没有直接证据证明种族灭绝的意图—例如发布政策声明的形式，而仅有间接证据—及国际法院所谓的“行为模式”，种族灭绝指控就更加难以成立。
 
-我当时就傻了，我说：“你在开什么玩笑啊？怎么可能？生化病毒怎么[可能]有解药？”他说：“生化病毒只要是研究者当初把它当成病毒了，它就有解药。”然后给我讲了这个过程。[听完]我傻了。但是我也觉的这是个巨大的希望，[随后]我[把这个消息]第一个先告诉了我身边的最重要的一个替我把关这方面情报的科学的一个助理。我说：“你马上到你们某[机构]找这些人研究研究，[看看]这话是否可靠？”[得到的]答案是：他是对的！
+按照这个逻辑，如果要证明坏人是坏人，坏人需要发布公告声明他是坏人，表明他做坏人的意图。如果没有直接看到坏人的声明，而只是间接证据证明坏人做了坏事，那么这个坏人就很难被指控为坏人。
 
-I was frozen on the spot, I said, “Are you kidding me? How could it be possible? How can a bioweapon virus has an antidote?” He said, “As long as the researchers of a bioweapon virus treated it as a virus when they developed it, there should be an antidote.” Then he explained the process to me. I was stunned. But I also felt that this could be a great hope. Then I forwarded this information to the most important assistant who has been helping me with verifying intelligence in the science field right away. I said: “Could you find people in your [institution] to research on this and find out whether the information is reliable or not?” The answer I got is: He is right!
+首先什么叫做间接证据，作者能不能解释一下？其次，有哪个坏人在做坏事之前先做了声明，表明了他做坏事的意图？有这样的坏蛋吗？
 
-然后我又经过核实，特别是他说的国内所谓的中央政治局、中央常委2020年所谓的《工作方式的重要提要》，重要提要。就因为这个问题现在，大家记住啊习[近平]身边没人啦。韩正不行了，本来也不怎么行；栗战书也靠边站了；丁薛祥也靠边站了，大家看到了吗？王沪宁也靠边站了，大家看到了吗？现在就剩下仨人，严格讲四个人[是习信任的]：他弟弟习远平，然后军方的许其亮，[习近平对]许其亮最近也半信半疑，[对许也很]恼火。完全剩下[信任]杨娘娘[杨洁篪]，王太监[王毅]，王太监[王毅]。
+接着文章用2015年国际法院驳回了对塞尔维亚的种族灭绝指控和对克罗地亚的反指控。作者的理由是：国际法院一再表示，如果种族灭绝罪的指控紧紧基于从“行为模式”中得出的推论，则必须明确排除其他解释。尽管有证据表明克罗地亚存在残酷的种族清洗，也就是说尽管有证据表明坏蛋就是坏蛋，但是这不足以指控并确定坏蛋就是坏蛋。这位作者，你是一门心思放在了对文字的片面解读上而忽略了最基本的常识和逻辑了吧？
 
-Then I verified again, especially on what he said about the so-called “Important Synopsis of Working Methods” by the so-called Political Bureau of the Central Committee and the Central Standing Committee in 2020, or “Important Synopsis” for short. Please remember this: Exactly because of this [Important Synopsis], Xi Jinping has lost everyone around him. Han Zheng is over (he hasn’t been trusted anyway); Li Zhanshu also stepped aside; Ding Xuexiang also stepped aside, have you seen it? Wang Huning also stepped aside, have you seen it? Now there are only three people left. Strictly speaking, there are four people [that Xi trusts]: his younger brother Xi Yuanping, then Xu Qiliang from the military, but Xu Qiliang has become suspicious and annoying in Xi’s eyes recently. So this only leaves Concubine Yang (Yang JieChi) and Eunuch Wang (Wang Yi) that he still trusts.
+接着文章居然提问了“还有什么可能构成中共种族灭绝的证据呢”？这是继续为中共脱罪的提问。文章再次提到美国国务院的报告：大约一百万维吾尔族人被关押。如果得到证实，这将构成对人权的严重侵犯。
 
-所以说你看兄弟姐妹们，这杨娘娘[杨洁篪]、王公公[王毅]两人和习大神还得隔着个门指挥许其亮，还有个弟弟习远平。这共产党还有未来吗？听说就这个开会的形式把大家全[吓]傻了，也就是给不给谁解药的问题，不是说你家人要解药[就给你]。听说韩正要给家人要一些解药犯大忌了。你[韩正]想干什么？你[韩正]想干什么？嗯？
+文章继续以“证据”做文章，依然强调有种族灭绝行为的证据，但是没有种族灭绝意图的证据，依然不足以指控种族灭绝。所以文章总结：如果得到证实，这将构成对人权的严重侵犯，但是这本身并不存在灭绝意图的证据。也就是说尽管有行为，但是思想上不承认，没有书面表达的意图，就不能被指控有罪。
 
-So brothers and sisters, you can see that the Great God Xi can only command Xu Qiliang indirectly through Concubine Yang, Eunuch Wang Xi, and Xi Yuanping. So is there still hope for the CCP? I heard that the situation in the meeting really scared everyone, particularly, surrounding the question of whom to give the antidote. It’s not like you can request the antidote for anyone in your family. I heard that Han Zheng asked for some antidote for his family and this really touched the red line, making Xi think: “What do you want to do, Han Zheng?”
+接下来文章再次引用《联合国种族灭绝罪公约》的内容，五项公认的种族灭绝行为中的另一项是“实施旨在防止某群体生育的措施。”哇，这是说到计划生育了呀，说到了中共的基本国策了呀。计划生育是国人切肤之伤痛！多少婴儿无法见天日，多少母亲遭受痛苦，多少家庭遭到毁坏！作者却轻轻一句“直到最近，中共对大多数人口严格执行独生子女政策，但是少数民族的政策比较自由，包括维吾尔族”。直到最近，多近才叫最近？40年算不算最近？普通百姓被迫遵守独生子女政策，而那些高官们哪个不是私生子女一堆？作者你到底还有没有良知？
 
-这个解药啊，最后拿解药的人你一定记住：想要解药的人一定把拿解药的人弄死。这就是七哥在爆料[病毒]一出[现]，[刚]开始的时候就说过，[解药]叫“人尸丸”。看看那江湖上，那个什么任老妖[任我行]弄得泡的“人尸丸”。是不是啊？东邪西毒，吃下去用人尸体做的这个“人尸丸”，吃了以后你想再活？那就继续吃我“人尸丸”，必须听我的。这就[是]世界的“人尸丸”，你咋弄啊？苍天在上，啊苍天呐，苍天呐。
+文章继续提及：今天独生子女政策不再适用于大多数汉族人，但对新疆的穆斯林少数民族采取了更严格的措施，传统上他们的生育子女数量要高于中共平均水平。尽管如此，新疆总体人口仍保持正增长，2010-2018年间，新疆维吾尔族人口增速高于非维吾尔族人口。为什么独生子女政策不再适用于大多数汉族人呢？作者你能不能解释一下？新疆维吾尔族人口增速的数据，你能不能说明来源于哪里？户口本上写的是维吾尔族人，但实际血统又都是纯正的维吾尔族人吗？
 
-Regarding this antidote, those who eventually got the antidote must remember this: those who want the antidote must kill those who have got the antidote. This is like what I, your Brother Miles said at the very beginning of the pandemic, the antidote is called the “zombie pill”. The zombie pill is like what the old demon Ren Woxing (a figure in a martial arts novel) cooked, isn’t it? If those who have taken this zombie pill want to live, they have to continue to take the pills, so they must listen to the master. So this virus antidote is like the modern world version of the zombie pill. What do we do? Heavens, please have mercy on us!
+文章最后呼吁联合国专家正确调查新疆局势。中共政府最近表示：欢迎联合国以“交流与合作”而不是“有罪推定”为基础访问新疆。
 
-所以现在共产党现在乱了，从我发出那个盖特[之后]。我让大家简单看一下啊，大家就简单[看一下]，[可]别暴露信息啊，我别爆露信息啊。你看我简单[说一下]，每一个小时三千多个[信息]，每一个小时啊，每一个小时。国内很多战友，体制内的战友纷纷爆料：“七哥，这个[病毒解药]太重要，你说对了！看看中央警卫局，中央警卫局还有八一大楼什么人戴口罩什么人不戴口罩？”
+文章建议：除非美国国务院能够证实种族灭绝的指控，否则就应该撤销。它也应该支持联合国主导的新疆局势调查。联合国的工作，特别是联合国人权特别报告员的工作，对于促进《世界人权宣言》的文字和精神至关重要。
 
-Since I posted that Getter video, the CCP has been in chaos. I’ll let you guys take a look at it quickly, hoping not to reveal any private information. Simply put, I received more than 3,000 messages per hour. That’s per hour, per hour! Many fellow fighters in mainland China within the party system told me: “Brother Miles, this information is so important! You’re right! Look at the Central Guard Bureau, the Central Guard Bureau and the Eight-One Building and see who wears masks and who doesn’t.”
+时至今日加大拿、荷兰、英国的议会强烈谴责中共在新疆实施种族灭绝的行为。立陶宛将通过议会拟认定中共在新疆对维吾尔族实施“种族灭绝”。美国前国务卿蓬佩奥先生已宣布中共“种族灭绝罪”，现任美国政府也多次同意前任政府的态度。欧盟、澳大利亚、新西兰等国家纷纷报道中共“种族灭绝”行为。作者还分不清事实，继续为中共脱罪、洗白，并以有“种族灭绝行为证据”还不够，一定要有“种族灭绝意图”证据才能对中共指控种族灭绝的逻辑来大做文章。作者，你为中共站台的嘴脸真的很丑陋。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/608164998616c84f0ff26438](https://gtv.org/getter/608164998616c84f0ff26438) (1:08-1:26, 1:49-5:36, 6:30-7:39,8:05-8:50)
-鸣谢：感谢盘古小蚂蚁、Antsee-GTV、TING GUO提供中文文本于 [https://www.gnews.org/zh-hans/1127073/](https://www.gnews.org/zh-hans/1127073/)
+原文作者：
 
-* * *
+Jeffrey D. Sachs
 
-字幕：【JennyL】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+哥伦比亚大学大学教授，哥伦比亚大学可持续发展中心主任，联合国可持续发展解决方案网络总裁。他曾担任三位联合国秘书长的顾问，目前担任秘书长安东尼奥·古特雷斯（Antononio Guterres）领导下的可持续发展目标倡导者。
+
+著作包括《贫穷的终结》、《共同财富》、《可持续发展时代》、《建立新的美国经济》、《新的外交政策：超越美国例外主义》以及最近的《全球化时代》。
+
+William Schabas
+
+伦敦米德尔塞克斯大学（Middlesex University）的法学教授，也是《种族灭绝国际法：犯罪的罪行》（剑桥大学出版社，2009年）的作者。
+
+参考来源：
+
+The Xinjiang Genocide Allegations Are Unjustified
+
+[https://www.project-syndicate.org/commentary/biden-should-withdraw-unjustified-xinjiang-genocide-allegation-by-jeffrey-d-sachs-and-william-schabas-2021-04/chinese](https://www.project-syndicate.org/commentary/biden-should-withdraw-unjustified-xinjiang-genocide-allegation-by-jeffrey-d-sachs-and-william-schabas-2021-04/chinese)
+
+First independent report into Xinjiang genocide allegations claims evidence of Beijing’s ‘intent to destroy’ Uyghur people
+
+[https://www.cnn.com/2021/03/09/asia/china-uyghurs-xinjiang-genocide-report-intl-hnk/index.html](https://www.cnn.com/2021/03/09/asia/china-uyghurs-xinjiang-genocide-report-intl-hnk/index.html)
+
+校对/发稿： 火内
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

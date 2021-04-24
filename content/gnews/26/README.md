@@ -1,47 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共“灭白计划”之迟浩田系列二十六——戕害中华，中共元凶
-` 左媛专栏` [轉載自GNews](https://gnews.org/zh-hans/1133190/)
+## CBN：中共国是世界上最糟糕的人权迫害国
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1133302/)
 
-作者：左媛
+**摘要：在美国国际宗教自由委员会于2021年4月22日发布年度报告之后，CBN新闻采访该委员会副主席托尼·帕金斯先生，谈中共国迫害人权的问题。他谴责中共国，这个世界上有着最糟糕的人权迫害状况的国家向世界输出镇压人民的科技。**
 
-“共要灭美，我要灭共。”这是共产党和新中国联邦人不可调和的矛盾，也是我们要担当起的拯救人类的时代职责和历史使命。共产党用谎言洗脑百姓，却在“赵家人”面前袒露狂徒凶相。天不灭中华，来了一群誓言灭共的中国人！
+CBN:  We’re joined now by Family Research Councils Tony Perkins, Tony Perkins is also Vice  Chair of the Commission (USCIRF) behind today’s report. Tony, welcome, good to have you with us. What is the overall takeaway from this year’s report? Commissioners, they do seem to be united on condemning China.
 
-**今天，我们知道了迟浩田的报告，知道了中共有这么“深远的谋略”，知道了中共“红色江山”的“红”源于无数中国人的鲜血，也知道了无数国人的油膏肥沃了中共江山的土壤。**
+CBN：现在我们邀请到了家庭研究委员会的托尼•帕金斯。托尼•帕金斯也是今天这份报告的委员会副主席。托尼，欢迎您能来这里。今年报告的要点是什么？委员们似乎都一致谴责中[共]国。
 
-![](https://lh6.googleusercontent.com/RPUA4ST2SDqv0gfNPhIAEmtP-bB0HA0sZNBlr0zXffpBbcvW3rpszz2qYcf_fWpVAdAK6ggf1YOJs_grs7NdSLciPFzR_ThO2aQluee9e8dLvmGOPGVAZXT9JZxxUZpvSfkAz4xb)
+Tony: Yeah, certainly China is at the top of the list. It’s been a bad actor for some time, but believe it or not, they seem to be getting worse. The big concern that we have about China is the exportation of their repressive techniques and even their technology that they used to do that. Of course, it’s been a little bit more in the forefront as of late where we see many US major corporations being coopted or working in concert with China, free to do business with them when in fact, you know, China is incarcerating using forced labor. Some of these American companies are benefiting from that forced labor while at the same time preaching social justice here in the United States, the hypocrisy, pretty pretty strong.
 
-继续扒底裤，掀开中共丑恶的毛。
+是的，中[共]国当然在榜单上名列前茅。一段时间以来，中[共]国的行为一直遭人诟病，但信不信由你，尤其在我们所担忧的，关于中[共]国输出他们的镇压人民的科技，甚至是他们使用过的技术，在这些问题上他们似乎变得越来越糟糕。当然，到最近为止，我们看到很多美国大公司被中国拉拢或与中[共]国合作，和他们随便做生意，而在中[共]国实际上强迫被监禁的人劳动。一些公司一方面从这些强制劳动的生产中获益，另一方面却又同时在美国宣扬社会公义 — 这种显而易见的虚伪是令人震惊的。
 
-“为什么我们不通过行政途径而是在网上搞调查呢……首先，减少人为干扰，有助于摸清人民的真正思想，另外，不会泄密，不会暴露我们搞调查的真正目的。最重要的是，能够参加网上回答问题的，主要是有一定文化背景、有一定头脑的群体，他们是我们人民中起决定作用的中坚群体和带头羊。令我们非常欣慰的是……他们交了八十多分的优秀成绩。这是我们党几十年来宣传教育的优秀成果。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://www.youtube.com/watch?v=IgcbcDs29WA](https://www.youtube.com/watch?v=IgcbcDs29WA) (0:00-1:07)
 
-当然，也有极少数人受西方影响，反对对战俘和妇孺开枪……虽然持这类观点的人太少而不足以影响大局，但我们还是要针对这类论调，加强宣传工作的力度。”
+* * *
 
+听写 & 翻译 & 字幕：【奔腾的长江】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-
-![](https://lh5.googleusercontent.com/DrSN7hMN4LsEP_dA-3RlnI6EYa3nP2glw_IccqSaf7Jywd8ELljHme2lmLa8BPvDXxAprADi8UCQkh4-XPO7GsFZe3lKHQSGwIL0K271NcLQDRrifcyy7ZLve83ZhWds8ge8B0KH)
-
-
-
-![](https://lh6.googleusercontent.com/KA6m4JHGYqPlt3S-ZMcCUpzE_REQATQU9SIsIjkav_gjgSm8yd9ckZDEcJlpkKxgoJoJUdlenqa_7PUMGAtb6Hrn6z0fkcG1-6PSdX4cP2TszpO3LuA-ODMe6rUejF63H3rBFBsF)
-
-
-
-迟浩田说了网络调查的三个原因，露出中共做恶事还蒙蔽民众的不可告人的心理。
-
-用行政手段调查，那就把中共的恶昭告天下。中共怎么会亲自手握刀剑拦路登记填表呢？在虚拟的世界达到现实的目的，这才是中共的所思所行。和平年代搞“杀人”调查，金三胖也不及。为了摸清人民的真实思想，中共躲在幕后指挥借刀“杀人”，新浪网奉旨行事助纣为虐。新浪没有给出接受调查的人口数据，但排除18岁以下的未成年孩子和60岁以上的老人（应该有4亿左右吧），排除6亿月入1000以下的穷人，再排除大部分农村人口，再排除中坚年龄段的女性，再排除……就算只有5000万人接受调查，超83%的人选择“愿意向战俘和妇孺开枪”，也有令人恐怖的4000多万，几乎相当于北京人口的两倍。你能想象这么多人在战场上杀红了眼的场景吗？你能想象21世纪一个党一个政府会做这样的民意调查吗？中共会，它也做了，而且做得很成功！
-
-网民的一个选择，鼠标点击一下，也许是认真的也许是随意的甚至也许是恶搞的，但在中共那里就成了摸清了你的真实思想。你看，中共要掌握一群人的思想是很简单的一件事儿。最让它得意的是，如此好的“成绩”是它几十年宣传教育的优秀成果。真的，中共精心喂养的“网军”，为“鹰派”喉舌的报告拼命鼓掌的听众，那些随时都能被鼓动的仇美仇日的“U锁哥”，那些在“帝吧”出入的年轻人……他们的“战狼”精神是与生俱来的吗？NO，是中共几十年不间断的洗脑宣传带来的整个民族群体的虎狼之性。他们对自己的权益受侵害只能缩到尘埃里，对身边人的疾苦漠然处之，但对远方从未去过的美国却恨之入骨……中共对这个民族的戕害简直到了无以复加的地步，唯有灭共，我们才能新生！
-
-中国人都会这么嗜血如魔吗？不是。迟浩田也说调查中有少部分人反对对战俘和妇孺开枪，但他归咎于“受西方影响”，还要对这类论调加强宣传工作的力度。这里有两个重要信息：1.说明“西方”的价值观是追求和平友好的，也说明即使共产党70年杀人不止，宣传暴力斗争，也有人坚守内心的善良；2.中共要把每一个人都宣传洗脑成杀人机器，不允许一个善良的人存在。中共煽动父子母女相斗，夫妻相斗，师生相斗，同学相斗，上下级相斗……人与人之间无人不斗，共产党的江山就固若金汤了！今天，它要把战场延伸到美国，要用“血肉机器”消灭美国，用“血肉机器”来拥护中共的生物武器！共产党不灭，中华民族必亡！中共不灭，美国必亡，世界必完蛋！所以，行动起来，联合灭共不能停！
-
-2021.4.22于纽约
-
-
-
-【**免责声明**】 文章中表达的所有观点均属于作者，不代表任何组织或其他个人。
-![](https://lh5.googleusercontent.com/B_qgfzdPe7PXEFJ00CMor-4S7gUJ-rc3GQynsbf5lDQTFq_r_hT5QSG7kwT1m9npdEdLRZt4dmHwRck2gxDfZP_2j0Tdrpkh4kkHu-VEGIxrxwCUUAtzhszjO6fxxQ)
-
-
-+1
+0

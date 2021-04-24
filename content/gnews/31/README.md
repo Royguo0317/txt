@@ -1,97 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第257、258节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1133136/)
+## 中共“灭白计划”之迟浩田系列二十六——戕害中华，中共元凶
+` 左媛专栏` [轉載自GNews](https://gnews.org/zh-hans/1133190/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：左媛
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/IC.jpg)activistpost.com
-要点：美国和欧洲应协调努力，解决中共国政府利用联合国推动“一带一路倡议”， 并使之合法化为全球利益的问题。定期报告中共国和伊朗、中共国和俄罗斯之间的合作情况，包括交能源、基础设施、银行、金融、经济、军事和空间合作的主要领域，以及中共病毒疫情对此类合作影响的评估。
+“共要灭美，我要灭共。”这是共产党和新中国联邦人不可调和的矛盾，也是我们要担当起的拯救人类的时代职责和历史使命。共产党用谎言洗脑百姓，却在“赵家人”面前袒露狂徒凶相。天不灭中华，来了一群誓言灭共的中国人！
 
-第257节 加强跨大西洋合作，促进私营部门融资
+**今天，我们知道了迟浩田的报告，知道了中共有这么“深远的谋略”，知道了中共“红色江山”的“红”源于无数中国人的鲜血，也知道了无数国人的油膏肥沃了中共江山的土壤。**
 
-（a）通常情况 – 总统应与跨大西洋伙伴合作，以《发展金融公司》（the Development Finance Corporation）、（加拿大芬德夫金融发展机构）（FinDev Canada）、《欧洲发展金融机构》（the European Development Finance Institutions）（DFI联盟））之间的协议为基础，加强共同目标的协调，以促进私营部门主导的发展，并提供市场导向的替代品，促进新兴市场国家的融资，特别是针对中共国的“一带一路”倡议，包括整合的努力，例如 –
-（1）欧盟连接欧亚战略（the European Union Strategy on Connecting Europe and Asia）；
-（2）三海倡议和三海倡议基金（the Three Seas Initiative and Three Seas Initiative Fund）；
-（3）美国、日本和澳大利亚之间的蓝点网络（the Blue Dot Network）；以及
-（4）一项欧盟 – 日本倡议，已为基础设施项目筹集650亿美元，并强调透明度的标准。
+![](https://lh6.googleusercontent.com/RPUA4ST2SDqv0gfNPhIAEmtP-bB0HA0sZNBlr0zXffpBbcvW3rpszz2qYcf_fWpVAdAK6ggf1YOJs_grs7NdSLciPFzR_ThO2aQluee9e8dLvmGOPGVAZXT9JZxxUZpvSfkAz4xb)
 
-（b）在联合国的合作 – 美国和欧洲应协调努力，解决中共国政府利用联合国推动“一带一路倡议”，并使之合法化为全球利益的问题，包括中共国与联合国各基金和项目之间关于“一带一路倡议”实施谅解备忘录的扩散。
+继续扒底裤，掀开中共丑恶的毛。
 
-（c）标准 – 美国和欧盟应协调和发展一个战略，以加强与经合组织（the OECD）和巴黎俱乐部（the Paris Club）的跨大西洋合作，确保与发展中国家签订“一带一路”的合同及条款的最高可能的标准。
-（本节完）
+“为什么我们不通过行政途径而是在网上搞调查呢……首先，减少人为干扰，有助于摸清人民的真正思想，另外，不会泄密，不会暴露我们搞调查的真正目的。最重要的是，能够参加网上回答问题的，主要是有一定文化背景、有一定头脑的群体，他们是我们人民中起决定作用的中坚群体和带头羊。令我们非常欣慰的是……他们交了八十多分的优秀成绩。这是我们党几十年来宣传教育的优秀成果。
 
-第258节 中共国和伊朗、中共国和俄罗斯之间合作情况的简报和报告
+当然，也有极少数人受西方影响，反对对战俘和妇孺开枪……虽然持这类观点的人太少而不足以影响大局，但我们还是要针对这类论调，加强宣传工作的力度。”
 
-（a）合适的国会委员会的定义 – 在本节中，“国会合适委员会”一词是指-
-（1）参议院的情报特别委员会，外交关系委员会，军事委员会，商业、科学和运输委员会，能源和自然资源委员会，银行、住房和城市事务委员会，财政委员会和拨款委员会；以及
-（2）众议院的常设情报特别委员会、外交事务委员会、军事委员会、能源和商业委员会、金融服务委员会、筹款委员会和拨款委员会。
 
-（b）需要的报告和简报 –
-（1）通常情况 – 国家情报总监应在本法颁布之日起180天内，与国务卿、国防部长、商务部长、能源部长、财政部长，以及总监认为合适的其他联邦机构负责人协调，向国会有关委员会提交报告，向国会有关委员会简要介绍中共国与伊朗、中共国与俄罗斯的合作情况。
-（2）内容 – 根据第（1）款提交的报告应包括下列内容：
-（A）确定外交能源、基础设施、银行、金融、经济、军事和空间合作的主要领域 –
-（i）中共国和伊朗之间；以及
-（ii）中俄关系。
-（B）2019年中共病毒疫情对此类合作影响的评估。
-（3）表格 – 根据第（1）款提交的报告应以非保密形式提交，但可包括保密附件。
 
-（c）与盟友和伙伴分享的国会意识 – 国会认为，国家情报总监和其他有关联邦部门和机构的负责人应酌情与美国的重要盟友和伙伴分享根据（b）小节提交的报告的调查结果。
+![](https://lh5.googleusercontent.com/DrSN7hMN4LsEP_dA-3RlnI6EYa3nP2glw_IccqSaf7Jywd8ELljHme2lmLa8BPvDXxAprADi8UCQkh4-XPO7GsFZe3lKHQSGwIL0K271NcLQDRrifcyy7ZLve83ZhWds8ge8B0KH)
 
-（本节完）
 
-原文链接：
 
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
+![](https://lh6.googleusercontent.com/KA6m4JHGYqPlt3S-ZMcCUpzE_REQATQU9SIsIjkav_gjgSm8yd9ckZDEcJlpkKxgoJoJUdlenqa_7PUMGAtb6Hrn6z0fkcG1-6PSdX4cP2TszpO3LuA-ODMe6rUejF63H3rBFBsF)
 
-文字整理：
 
-SEC. 257. ENHANCING TRANSATLANTIC COOPERATION ON PROMOTING PRIVATE SECTOR FINANCE.
 
-(a) IN GENERAL. — The President should work with transatlantic partners to build on the agreement among the Development Finance Corporation, FinDev Canada, and the European Development Finance Institutions (called the DFI Alliance) to enhance coordination on shared objectives to foster private sector-led development and provide market-based alternatives to state-directed financing in emerging markets, particularly as related to the People’s Republic of China’s Belt and Road Initiative
+迟浩田说了网络调查的三个原因，露出中共做恶事还蒙蔽民众的不可告人的心理。
 
-(BRI), including by integrating efforts such as—
+用行政手段调查，那就把中共的恶昭告天下。中共怎么会亲自手握刀剑拦路登记填表呢？在虚拟的世界达到现实的目的，这才是中共的所思所行。和平年代搞“杀人”调查，金三胖也不及。为了摸清人民的真实思想，中共躲在幕后指挥借刀“杀人”，新浪网奉旨行事助纣为虐。新浪没有给出接受调查的人口数据，但排除18岁以下的未成年孩子和60岁以上的老人（应该有4亿左右吧），排除6亿月入1000以下的穷人，再排除大部分农村人口，再排除中坚年龄段的女性，再排除……就算只有5000万人接受调查，超83%的人选择“愿意向战俘和妇孺开枪”，也有令人恐怖的4000多万，几乎相当于北京人口的两倍。你能想象这么多人在战场上杀红了眼的场景吗？你能想象21世纪一个党一个政府会做这样的民意调查吗？中共会，它也做了，而且做得很成功！
 
-(1) the European Union Strategy on Connecting Europe and Asia;
+网民的一个选择，鼠标点击一下，也许是认真的也许是随意的甚至也许是恶搞的，但在中共那里就成了摸清了你的真实思想。你看，中共要掌握一群人的思想是很简单的一件事儿。最让它得意的是，如此好的“成绩”是它几十年宣传教育的优秀成果。真的，中共精心喂养的“网军”，为“鹰派”喉舌的报告拼命鼓掌的听众，那些随时都能被鼓动的仇美仇日的“U锁哥”，那些在“帝吧”出入的年轻人……他们的“战狼”精神是与生俱来的吗？NO，是中共几十年不间断的洗脑宣传带来的整个民族群体的虎狼之性。他们对自己的权益受侵害只能缩到尘埃里，对身边人的疾苦漠然处之，但对远方从未去过的美国却恨之入骨……中共对这个民族的戕害简直到了无以复加的地步，唯有灭共，我们才能新生！
 
-(2) the Three Seas Initiative and Three Seas Initiative Fund;
+中国人都会这么嗜血如魔吗？不是。迟浩田也说调查中有少部分人反对对战俘和妇孺开枪，但他归咎于“受西方影响”，还要对这类论调加强宣传工作的力度。这里有两个重要信息：1.说明“西方”的价值观是追求和平友好的，也说明即使共产党70年杀人不止，宣传暴力斗争，也有人坚守内心的善良；2.中共要把每一个人都宣传洗脑成杀人机器，不允许一个善良的人存在。中共煽动父子母女相斗，夫妻相斗，师生相斗，同学相斗，上下级相斗……人与人之间无人不斗，共产党的江山就固若金汤了！今天，它要把战场延伸到美国，要用“血肉机器”消灭美国，用“血肉机器”来拥护中共的生物武器！共产党不灭，中华民族必亡！中共不灭，美国必亡，世界必完蛋！所以，行动起来，联合灭共不能停！
 
-(3) the Blue Dot Network among the United States, Japan, and Australia; and
+2021.4.22于纽约
 
-(4) a European Union-Japan initiative that has leveraged $65,000,000,000 for infrastructure projects and emphasizes transparency standards.
 
-(b) COOPERATION AT THE UNITED NATIONS. — The United States and Europe should coordinate efforts to address the Government of China’s use of the United Nations to advance and legitimize BRI as a global good, including the proliferation of memoranda of understanding between the People’s Republic of China and United Nations funds and programs on BRI implementation.
 
-(c) STANDARDS. — The United States and the European Union should coordinate and develop a strategy to enhance transatlantic cooperation with the OECD and the Paris Club on ensuring the highest possible standards for Belt and Road Initiative contracts and terms with developing countries.
+【**免责声明**】 文章中表达的所有观点均属于作者，不代表任何组织或其他个人。
+![](https://lh5.googleusercontent.com/B_qgfzdPe7PXEFJ00CMor-4S7gUJ-rc3GQynsbf5lDQTFq_r_hT5QSG7kwT1m9npdEdLRZt4dmHwRck2gxDfZP_2j0Tdrpkh4kkHu-VEGIxrxwCUUAtzhszjO6fxxQ)
 
-SEC. 258. REPORT AND BRIEFING ON COOPERATION BETWEEN CHINA AND IRAN AND BETWEEN
 
-CHINA AND RUSSIA.
-
-(a) APPROPRIATE COMMITTEES OF CONGRESS DEFINED. — In this section, the term ‘‘appropriate committees of Congress’’ means—
-
-(1) the Select Committee on Intelligence, the Committee on Foreign Relations, the Committee on Armed Services, the Committee on Commerce, Science, and Transportation, the Committee on Energy and Natural Resources, the Committee on Banking, Housing, and Urban Affairs, the Committee on Finance, and the Committee on Appropriations of the Senate; and
-
-(2) the Permanent Select Committee on Intelligence, the Committee on Foreign Affairs, the Committee on Armed Services, the Committee on Energy and Commerce, the Committee on Financial Services, the Committee on Ways and Means, and the Committee on Appropriations of the House of Representatives.
-
-(b) REPORT AND BRIEFING REQUIRED. —
-
-(1) IN GENERAL. — Not later than 180 days after the date of the enactment of this Act, the Director of National Intelligence shall, in coordination with the Secretary of State, the Secretary of Defense, the Secretary of Commerce, the Secretary of Energy, the Secretary of the Treasury, and such other heads of Federal agencies as the Director considers appropriate, submit to the appropriate committees of Congress a report and brief the appropriate committees of Congress on cooperation between China and Iran and between China and Russia.
-
-(2) CONTENTS. — The report submitted under paragraph (1) shall include the following elements:
-
-(A) An identification of major areas of diplomatic energy, infrastructure, banking, financial, economic, military, and space cooperation—
-
-(i) between China and Iran; and
-
-(ii) between China and Russia.
-
-(B) An assessment of the effect of the Coronavirus Disease 2019 (COVID–19) pandemic on such cooperation.
-
-(3) FORM. — The report submitted under paragraph (1) shall be submitted in unclassified form, but may include a classified annex.
-
-(c) SENSE OF CONGRESS ON SHARING WITH ALLIES AND PARTNERS. — It is the sense of Congress that the Director of National Intelligence and the heads of other appropriate Federal departments and agencies should share the findings of the report submitted under subsection (b) with important allies and partners of the United States, as appropriate.
-
-0
++1
