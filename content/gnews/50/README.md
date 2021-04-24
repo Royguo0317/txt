@@ -1,27 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【圣城传声筒】英国国会定性中共对维吾尔族“种族灭绝”
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1131952/)
+## 【热点播报】Facebook数字货币Diem 计划2021年启动挂钩美元的稳定币试点
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1132020/)
 
-香草山写作组
+纽约香草山农场 乱谈秦
 
-爆料革命创始人郭文贵先生在2019年曾预言，中共政权的以黑治国、以警治国，以及对全世界“蓝金黄”、制造中共病毒的一切疯狂行为，最终将会导致世界各国形成自动灭共和争相灭共的大潮。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-23-at-11.44.55-AM.jpeg)
-在最近香港司法对反送中示威者、47人案、蔡玉玲案等等作出一系列荒唐的判决之后，英国国会23日一致通过一项决议，将中国在新疆对维吾尔族的侵犯人权行为定性为「种族灭绝 (genocide)」。发起动议的 Nusrat Ghani 是早前被中国制裁的议员之一，她形容中国尝试透过制裁令英国国会噤声，结果却遭反弹 (backfired)。
+CNBC近日援引知情人士报道，Diem计划于 2021 年启动与美元挂钩的单一稳定币的试点。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-65.png)图片来源：investing.com
+该匿名人士透露，这个试点规模不大，主要集中在个人消费者之间的交易，也可能会有用户购买商品和采购的选项。但是目前还没有确定的推出日期。
 
-国会通过的决议指，「本议院相信，在新疆维吾尔自治区，维吾尔及其他少数族裔及宗教人士正承受针对人权的罪行与种族灭绝。」
+Diem是由Facebook支持的数字货币项目Libra经过彻底的改造改名而来。目前正与瑞士金融监管机构进行谈判，以确保获得支付许可。
 
-今次动议由保守党议员 Nusrat Ghani 发起。生于克什米尔 (Kashmir)、后于英国接受教育的 Ghani，过去一直关注维吾尔议题，亦因而早前被中国制裁。她说﹕「中国尝试威吓国会沉默，却遭反弹 (backfired)。」她形容中国政府侵犯人权的行为是「工业规模的」，对少数族裔的囚禁也是「二战以来最大」。
+Diem的首席经济学家Christian Catalini称：“我们与监管机构对话的一个重要步骤是分阶段推出。我们将分阶段推出不同的功能和用例，及不同领域的应用。一旦我们得到绿灯，我们将开始与少数用户和少数玩家进行测试，目标是确保技术和储备系统按预期运行。”
 
-虽然表面上该决议和以上香港的一系列判决无直接关系，但英国在该议题上的进程已经落后于美国和欧盟。作为《中英联合声明》的直接缔造者之一，在被中共一再违约打脸，受利益羁绊的英国，在该议题上的跟进上一直举棋不定。但近日中共政权和港共政权的倒行逆施，以及传闻香港将在4月底将对特定人士采取“封关”，如获实施，实际上等于变相对英国的BNO护照进行封杀，严重侵害了英国的利益。英国这一次决议通过，将直接影响全球50多个英联邦国家。
+他还提到，成员无论大小，都必须接受严格的反洗钱检查。Diem计划最终将引入商家和其他合作伙伴。
 
-而在前一天，澳大利亚外长宣布废除维多利亚州与中共在2018年、2019年签订的“一带一路”协议，理由是指该协议备忘录与澳洲的外交政策并不一致。澳大利亚这次更是抢先英国一步对中共政权说“不”，两国的关键表态既重要而又耐人寻味。
-
-（部分内容引自[立场新闻](https://www.thestandnews.com/international/%E8%8B%B1%E5%9C%8B%E6%9C%83%E4%B8%80%E8%87%B4%E9%80%9A%E9%81%8E-%E5%AE%9A%E6%80%A7%E4%B8%AD%E5%9C%8B%E5%9C%A8%E6%96%B0%E7%96%86%E5%B0%8D%E7%B6%AD%E5%90%BE%E7%88%BE%E6%97%8F%E5%AF%A6%E8%A1%8C-%E7%A8%AE%E6%97%8F%E6%BB%85%E7%B5%95/)网页）
+原文链接：[**Facebook-backed Diem aims to launch digital currency pilot later this year**](https://www.cnbc.com/2021/04/20/facebook-backed-diem-aims-to-launch-digital-currency-pilot-in-2021.html)
 
 审核/发稿：正义的小新
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpeg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
 **更多资讯，更多关注**
 
 [**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -32,6 +32,6 @@
 
 **[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

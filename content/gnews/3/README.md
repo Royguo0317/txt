@@ -1,234 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 参议员兰德·保罗(Rand Paul)谈福奇博士和他的精英主义
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1132958/)
+## 中共太空计划 13000个卫星构建巨星星座
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1133049/)
 
-内容：
+翻译:康州盘古农场 – Layka
+校对:康州盘古农场 – 蓝精灵
+编辑:康州盘古农场 –蓝精灵
 
-参议员兰德·保罗(Rand Paul)：
+据《www.spacenews.com》作者：安德鲁·琼斯（Andrew Jones）2021年4月21日报道
+![]()![](https://gnews.org/wp-content/uploads/2021/04/AFB48CA8-65BA-4AF4-8FCE-BE3475F46A93.jpeg)*电信服务的卫星覆盖范围图示。 出处：欧洲航天局(ESA)-科学处*
+赫尔辛基和中共国将协调主要太空参与者国家，来监督和参与中共国国家卫星互联网巨型星座的建设和运营。
 
-The liberal elites. He thinks that common man is not smart enough to make decisions,
+高级官员最近的评论表明，改变太空部门的国有企业的早期星座计划，目前正在推进中。这些计划可能被纳入更大的“国网”或“国家网络”卫星互联网项目。
 
-自由派精英。他认为普通人不够聪明，不会做决定
+去年9月，中共国提交给国际电信联盟（ITU）的频谱分配文件显示，计划建造两个类似的“ GW”低地球轨道星座，总计12992颗卫星。
 
-so he will make decision for you.
+档案显示，GW的计划包括子星座，高度在500-1145公里之间，倾斜度在30-85度之间，卫星将在一定频带范围内运行。
 
-所以他会帮你做决定
+中国主要的太空承包商，中国航空航天科学技术公司（CASC）的高级官员鲍为民，3月7日在接受《上海证券报》采访时，首次公开承认了超级星座计划：“我们正在计划和开发天基互联网卫星，并已经发射了测试卫星。”鲍补充说，“还将建立一个“国家网络”（国网）公司，负责卫星互联网建设的总体规划和运营。”
 
-But in the process he may have to tell you a few lies,
+周一，中国航空航天科学技术公司的子公司之一，中国航天卫星有限公司的董事长葛玉军，告诉《澎湃新闻》，国有巨头姐妹集团（1）中国航天飞机集团和（2）中国航天科技和工业公司（CASIC），之前开发的红岩和宏运宽带星座将被修改并纳入新计划中。葛说，“国家有关部门”正在对星座建设进行总体规划，而且他了解到红岩和中国航天科技和工业公司的宏运原始计划将“经历重大变化”。
 
-但在这个过程中他可能不得不对你撒几个谎
+这两个星座都是在2018年左右宣布的，由数百颗低地球轨道的通信卫星组成。此后，发射了一些技术验证卫星。中国航天科技和工业公司计划在2022年之前将60颗红岩卫星送入轨道。
 
-because it’s for you, it’s for the better men of mankind.
+评论表明，旧的星座可能被纳入新的，更大的“国家网络”项目的一部分。目前尚不清楚该项目将如何进行，但卫星互联网的发展已成为国家优先事项。中国国家发展和改革委员会（NDRC）于2020年4月将“卫星互联网”添加到“新基础设施”列表中。最近批准的2021-2026年的第十四个五年计划和“到2035年的长期目标也注明了”呼吁建立一个综合的通信网络， 地球观测和导航卫星。
 
-因为这是“为了你好，为了更好的人类”
+中共国已经建设了北斗导航定位系统，并正在为中国高分辨率地球观测系统（CHEOS）部署高分卫星。此外，私有企业星系空间(Galaxy Space)于2020年推出了银河1号，以测试Q / V和Ka频段通信。今年早些时候，北京通信卫星技术发展有限公司获得中国互联网投资基金（CIIF）的政府的资助，用于卫星的研究和产业化。如果有的话, 尚不清楚这类公司将在国家网络项目中扮演什么角色。
 
-These are the sort of noble lives as play-doh set
+安全世界基金会（Secure World Foundation）私人部门计划主管伊恩·克里斯坦森（Ian Christensen），认为“GW”或国家网络项目有可能为中共国实现许多目标。这些措施包括支持国内技术和经济发展目标，并为中共国的软实力外交和区域领导工作做出贡献。克里斯坦森说，“星座的发展也将提供国内就业，锚定空间相关的产业集群，并通过满足和促进家庭连通性需求为经济发展做出贡献，” 他补充说，该项目还可以用作软实力的工具，是一带一路倡议或附近地区外交努力的一部分。
 
-这是一种像是用橡皮泥堆砌的高贵生活
+诸如SpaceX的Starlink和OneWeb之类的星座已经在进行中，亚马逊本周为其Atlas 5的Kuiper宽带卫星订购了任务。GW星座计划的开展，将更迫切要求解决与巨型星座部署相关的问题（包括空间碎片和空间交通管理等）带来了更大的紧迫性。
 
-and these would be like telling you in the beginning
+克里斯坦森说, “我个人将认真考虑成功部署GW星座的可能性。计划是紧迫的，并应进一步被强调，完善在部署和运行大型星座方面的全球协调方案，”“太空安全是美中两国分享共同利益的领域, 包括政府和私营部门行为者，但总体地缘政治趋势却使有意义的对话充满挑战。”
 
-这些就像是一开始就告诉你
+计划中的和正在发展的巨型星座，引起人们对轨道碎片风险增加的担忧。低地球轨道上越来越多的卫星也对目前太空生态状况构成威胁。
 
-That no masks work.
-
-不用戴口罩
-
-Because he didn’t want you to buy the N-95 masks,
-
-因为他不想让你买N-95口罩
-
-and then later on he told another lie saying
-
-后来他又撒了一个谎说
-
-all mask works non of  those was truth.
-
-所有的口罩都管用
-
-N-95 masks do work but all mask don’t work
-
-后来说N-95口罩管用，但其他口罩都不管用
-
-The cloth mask are completely pretend and theatre
-
-这些布口罩完全没用，都是演戏
-
-and so he comes into the senate hearing wearing two cloth mask.
-
-所以他戴着两个布口罩参加参议院听证会
-
-What is he doing is pretending in showing you something
-
-他在做什么是假装给你看什么东西
-
-that the science doesn’t support
-
-科学并不支持
-
-because he still doesn’t want you to buy the N-95 mask,
-
-因为他还是不想让你买N-95口罩
-
-which is the only mask that work
-
-这是唯一有效的口罩
-
-and really they only work in the hospital setting,
-
-实际上，在医院环境下，只有它们（N-95口罩）才管用
-
-when you’re very careful throwing them away,
-
-当你非常小心地把它们扔掉的时候
-
-wear gloves wash your hands before and after are incredibly cautious.
-
-戴上手套，洗手前后都要格外小心
-
-But, if you’re in the hospital
-
-但是，如果你在医院里
-
-and you want to go visit a COVID patient
-
-你想去探望一个新冠病人
-
-or you’re taking care of a COVID patient,
-
-或者你在照顾一个新冠病人
-
-the hospital will not let you enter the room with a cloth mask.
-
-医院不会让你戴布口罩进入房间的
-
-Because they don’t work.
-
-因为它们不起作用
-
-And so it is theatre, he is lying to us,
-
-所以这就是演戏，他在欺骗我们
-
-not because he hates mankind,
-
-不是因为他讨厌人类
-
-but because he thinks he’s smarter than the rest of us
-
-而是因为他认为自己比我们其他人更聪明
-
-and is this elitism？
-
-这是不是精英主义？
-
-the things that the common man can’t make his decision.
-
-那些普通人不能自己做决定
-
-I am the opposite.
-
-我正好相反
-
-I think, every individual American should be given the fact,
-
-我认为，每个美国人都应该得知道真相
-
-that is a disease that thousand times more deadly
-
-这种疾病的致命性对70岁以上的人比25岁以下的人
-
-over age 70 than it is below age 25.
-
-要厉害出一千倍
-
-and you should make your own decisions according to that.
-
-然后人们应该根据这一点自己做决定
-
-according to risk factors
-
-根据危险因素等
-
-and so the elderly without question
-
-对老年人毫无疑问
-
-the Vaccine is a good, is a good thing.
-
-疫苗是件好事，是件好事
-
-Under 25, I think really you have to assess your risk and make your own decision,
-
-在25岁以下，我认为你们真的要评估自己的风险并做出自己的决定
-
-主持人：
-
-as were you at this point of a mass，
-
-就像你说的，在混乱的节骨眼上
-
-is it time to just say Enough for this,
-
-是不是说得太多了，
-
-just take it off and just go live your life?
-
-把它摘下来，然后继续过你的生活？
-
-参议员兰德·保罗(Rand Paul)：
-
-Particularly for those who are vaccinated,
-
-尤其是那些接种了疫苗的人，
-
-or for those who got the disease naturally like I have
-
-或者是那些像我这样自然地感染了这个病毒
-
-a mask of no use their complete theatre
-
-一个毫无用处的口罩，他们整个就是在演戏
-
-even the CDC has admitted these much
-
-就连疾控中心也承认了这一点
-
-the CDC admitted a few weeks ago before they tried to roll back.
-
-疾控中心在几周前承认了这一点，之后他们还试图反悔
-
-they admitted that people vaccinated do not carry the virus are not spreading the virus.
-
-他们承认，接种疫苗的人没有携带病毒，并没有传播病毒
-
-The same is true of those who have been infected,
-
-那些被感染的人也是如此
-
-even Fauci’s institute admitted
-
-就连福奇的研究所也承认
-
-that those who have been infected have robust immunity.
-
-那些被感染的人有强大的免疫力
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://twitter.com/realamvoice/status/1384593964070752258?s=24](https://twitter.com/realamvoice/status/1384593964070752258?s=24)
-
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场-Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片: 康州盘古农场-银龙
-发布：康州盘古农场-文韵
+原文链接：https://spacenews.com/china-is-developing-plans-for-a-13000-satellite-communications-megaconstellation/
 [!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
 康州盘古农场欢迎您加入:(或点击上方图片）
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
 
 0

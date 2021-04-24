@@ -1,50 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共把社交媒体当成跟西方战争的第一武器
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1131971/)
+## 喀秋莎新闻参考- 2021年4月22日(星期四)
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1132006/)
 
-**摘要：郭先生在2021年4月19日的直播视频中披露，中共从江泽民时代后期就把社交媒体定义为是跟西方作战的第一武器，远重于核武器；孔子学院是国家情报机构；世界媒体在短短的四年里，被共产党已经用金钱合法控制，中共已经加入到犹太人控制的沼泽地，成为一股新的力量控制了世界的媒体。**
+俄罗斯莫斯科喀秋莎农场 土星
 
-**中共把社交媒体当成跟西方战争的第一武器**
+编辑 НастяApfel(娜斯佳)    上传 星河
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-1-1.jpg)
+一、新中国联邦新闻
 
-**The CCP Deems Social Media as Its No. 1 Weapon in Fighting Against the West**
+1. 郭文贵先生4月21日盖特爆料，中国共产党拥有治愈新冠病毒的解药。已经有足够多的证据指出，中共是此次新冠病毒大流行的制毒者和施毒者。文贵先生根据最近的情报获悉，中共在制造此次病毒的同时，也制造了相应的解药。
 
-七哥在一年前，我在船上接受战斗室直播的采访，还有那个那个很多媒体问我，共产党,（我是第一个告诉西方的在几年前，）共产党最早国家安全委员会成立安全部，从江时代后期就定义为社交媒体是跟西方作战斗争的第一武器，远远重要于核武器。
+2.“路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=jI4GOkPA6h4)、[晚间](https://www.youtube.com/watch?v=Io8iD5h1kms)）:
 
-A year ago, I, your Brother Miles, was interviewed live by the War Room on the yacht, and many media also asked me [this same question]. I was the first one to tell the West, a few years back, that the CCP’s National Security Council established the Ministry of Security and it deemed the social media as their number one weapon in its fight against the West, even more important than nuclear weapons, early as the late Jiang Zemin era.
+Ⅰ. 4月21日，博鳌亚洲论坛副理事长、中国人民银行前行长周小川在博鳌亚洲论坛2021年年会期间举办媒体见面会，对全球宏观政策、数字人民币和数字税等热点话题进行解答。周小川在采访中承认，一个货币是否能被用于国际支付，得看该货币背后的经济体系和可兑换性，中共现在仍在实行外汇管制，所以人民币很难走向国际化。
 
-这就是为什么搞孔子学院，孔子学院的第一个人、发起人是谁知道吗？是当时北京市政府的教委主任、姓耿的一位耿主任。这位耿主任后来跟我很好很熟，我还让他帮我送了北京电影学院几个小孩啊，小女孩很漂亮，朋友的孩子送进去，现在都成名了，电影学院啊送进去。教委主任权力很大啊。他给我介绍了一堆的中纪委、中央委员跟我认识，那教委的主任很有权力呀，是他发起的。发起当时北京市教委主任发起，发起这个时候是国家安全部、统战部、总参二部一起作为发起人，你说它[孔子学院]是干啥的？
+Ⅱ. 塞林博士（Dr. Sellin）4月22日发推：何飚在专门从事分离ZC45和ZXC21蝙蝠病毒的小组工作，同时他和涂长春都在金宁一的军事兽医研究所工作，涂长春也是一位非常重要的冠状病毒科学家，与武汉病毒研究所石正丽和王林发也一起共过事。
 
-So who knows the name of the first person who initiated the Confucius Institute? It was a director of the Education Commission of the Beijing City Government, named Geng. Director Geng later became very familiar with me, and I asked him/her to help send a few kids to the Beijing Film Academy. They were my friends’ girls, very pretty. Now they are all famous. [We] sent them to the film academy. The director of Education Commission had a lot of power. He hooked me up with a bunch of members of the Central Commission for Discipline Inspection and the Central Committee of the CCP. So the Director of the Education Commission is a very powerful person, and it was him who initiated it [the Confucius Institute]. It was co-founded by the Beijing Municipal Education Commission, together with the Ministry of National Security, the United Front Work Department, and the [PLA’s] General Staff Department, the 2nd Bureau. So you tell me what kind of place Confucius Institute really is?
+4月23日发推：长春军事兽医研究所很可能就是一个生物战中心，他们从2018年到2020年就开始进行舟山病毒ZC45和ZXC21的秘密研究，所以他们从2018年之后再也没有发表过研究论文。
 
-然后当时百度、包括阿里巴巴、微信，所有的技术指导是总参三部，所有的是国家安全部。到后来抖音、Zoom全是国家安全委员会全面控制。这是为什么像多维呀，这种基地都在北京的，是共产党的宣传媒体、情报媒体，获取情报的。所以说这个基本的常识，这是共产党作为核武器来用的，你还相信他来给你带来正义？
+Malik是病毒E蛋白方面的真正专家，也是真正的毒王。闫博士报告就是要让全世界科学家共同参与研究E蛋白，这样才能找到解决中共病毒的办法。闫博士将有第四份报告出炉。
 
-Also, all the technical guidance for Baidu, Alibaba, and WeChat was from the 3rd Bureau of the PLA’s General Staff Department, and all were under the supervision of the Ministry of National Security. Later, TikTok and Zoom got fully controlled by the National Security Council. This is why things like Duowei News are based in Beijing because they are the CCP’s propaganda media and intelligence media aiming for collecting information. So it is a common sense that it [the media] is used by the CCP as a nuclear weapon. Do you still believe that it [the media] will bring you any justice?
+3. 英国立法者周四批准了一项议会动议，即中共对新疆西部地区维吾尔族少数民族的政策相当于种族灭绝和反人类罪。
 
-在美国是更可怕了，那美国扎克伯格、推特，中国…现在看到后面这几十个股东里面现在已经很可怕的。我今天告诉大家，四年前的419的时候，共产党是用政治新闻、广告新闻、或者蓝金黄新闻，来影响和打击他的敌人。但是到今年[有了]本质上的不同，共产党已用国家的已经是叫做什么？真正的共产党的国家力量已经成为了“武器新闻”。武器新闻——推特、Facebook、Google、Zoom、抖音、香港所有的媒体、微信、百度，全面控制。 你看共产党有多危险，你就看媒体你就知道了。
+4. 参议员乔什·霍利和迈克·布劳恩周四提出了《2021年COVID-19起源法案》，要求拜登总统的政府解密与冠状病毒起源有关的信息。
 
-It’s even more terrifying in the United States. Look at Zuckerberg and Twitter in the United State. China… it’s already very terrifying when you see the dozens of shareholders behind the scene. Today, let me tell you that four years ago (April 19, 2017), the CCP used political news, advertisement news, or BGY’ed news to influence and attack its enemies. But this year, things have changed fundamentally. What they are really doing is to use its national power to weaponize news. The weaponized news media, including Twitter, Facebook, Google, Zoom, TikTok, all the media in Hong Kong, WeChat, Baidu, are all under its control. So if you want to know how dangerous the CCP is, you just look at the media.
+5. 参议员汤姆·科顿（R-阿肯色州）和乔尼·恩斯特（R-爱荷华州）提出了《农业情报措施法案》，该法案将在美国农业部内创建一个情报办公室。该办公室将利用情报界的资产更好地保护美国农业免受中共国等国家的外部威胁。
 
-世界的媒体在这短短的四年里，被共产党已经用金钱合法控制。也就是说沼泽地，世界的沼泽地，以犹太人为主的金融力量和媒体力量控制着世界，控制着美国，现在有另外一股力量，那就是中国共产党。
+6. 周四，参议院以94：1投票通过立法，旨在防止对亚裔美国人和太平洋岛民的暴力和歧视上升。该法案名为《COVID-19仇恨犯罪法案》。
 
-In these short four years, the world’s media has been legally controlled by the CCP with money. In other words, the swampland, the swampland of the world, where Jewish the people dominated  financial and media forces used to control the world and control the United States, have now been joined by another force – the Chinese Communist Party.
+7. 中共外交部周三抨击了世卫组织总干事谭德赛，因其敦促进一步调查武汉实验室泄漏是冠状病毒大流行的起源的可能性。中共对谭德赛的突然批斗清楚地表明，中共不会容忍对武汉实验室的进一步调查。
 
-今天可怕的事情， 这些媒体的力量已经不是美国一家说了算，共产党在利用这些媒体，正在干着新疆大屠杀、西藏大陷害、香港大屠杀、台湾大恐惧，都在被媒体有选择地屏蔽掉，这才是可怕的。
+8. 参议员吉姆·英霍夫将在地球日提出立法，该立法将阻止拜登政府颁布气候法规，直到美国以外的世界主要污染国，即中共国、印度和俄罗斯遵守与美国相同的监管标准，该法案被称为”国内制造业保护法案”，最终，将阻止拜登政府在面对持续的冠状病毒大流行时损害美国的企业和就业，重申美国对巴黎气候协议的承诺。
 
-What’s really terrifying today is that the US is no longer the only power behind the media. The CCP is using the media to mask its Xinjiang Massacre, the Tibet Massacre, the Hong Kong Massacre, and the Taiwan Terror. These things are all being selectively blocked by the media. And this is terrifying!
+9.  根据哈佛大学和波士顿大学的研究人员周三发表的一份报告分析，他们发现来自北京、沈阳、上海、广州和成都，这五个城市的中共当地监测站的数据与美国大使馆收集的数据之间存在统计学上的显著差异，中共国的空气污染数据可能被当地官员操纵。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=607d815f7e083973a72b95be](https://gtv.org/video/id=607d815f7e083973a72b95be) (1:42:58-1:46:14, 1:48:31-1:48:58)
-鸣谢：感谢喜联盟七哥直播组提供中文文本于[https://www.gnews.org/zh-hans/1125087/](https://www.gnews.org/zh-hans/1125087/)
+10. 澳大利亚外交部长玛丽斯·佩恩警告称，根据去年立法的全面否决权法案，与海外大国的进一步合作项目可能会脱钩，维多利亚州备受争议的“一带一路”协议因此被取消。目前，至少有两所位于大学校园内的中文语言中心正在接受审查，它们是昆士兰大学和阿德莱德大学的孔子学院。
 
-* * *
+11. 据司法部称，一名59岁的美国公民化学家尤小荣博士，因窃取商业机密而被定罪，根据法庭文件显示，该女士窃取了价值近1.2亿美元的商业秘密，用于在中共国开办的企业。
 
-字幕：【Rock小哥】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+12. 美国国家卫生研究院周四透露，超过500名联邦资助的科学家，因受到中共国和其他外国势力的威胁而受到调查。美国官员还敲响了警钟，称中共国试图入侵COVID-19的研究，有意窃取美国的科学技术，并认为美国的创新技术能帮助中共国超越美国，成为全球超级大国。
 
-+2
+13. 菲律宾总统杜特尔特本周表示，如果不进行”战争”，菲律宾无法夺回被中共国非法占领的西菲律宾海部分地区。
+
+14. 澳大利亚新南威尔士州政府周三表示，尽管为煤炭勘探开辟了一块新的土地，但已经暂停了两座煤矿的开发。州政府将向中共国公司神华能源支付1亿澳元（约7717万美元），以撤回位于悉尼北部猎人谷的神华水印煤炭项目的矿山租赁申请。
+
+15．香港立法者周四被告知，煽动他人在香港即将举行的选举中投下空白票或无效票可能会成为一种犯罪，而不需要证明故意破坏投票的意图。
+
+16. 香港政府周五表示，香港将把位于九龙半岛西部、靠近通往大陆的高速铁路的一块土地授予北京的国家安全办公室，作为其在香港的永久基地。
+
+17. 澳大利亚葡萄种植者和行业高管周五表示，澳大利亚鲜食葡萄在通关中共国港口方面出现延误，他们认为这是两国贸易关系恶化的另一个迹象。
+
+18. 菲律宾已经向中共国发出了两次新的外交抗议活动，因为它未能撤回周五所称的”威胁”船只，这些船只在南中国海有争议的地区集结。
+
+19. 英国通信情报机构GCHQ主任周五将警告说，如果西方国家不采取行动，他们将面临一个”清算时刻”，即支撑其经济和安全的未来数字技术不再受他们控制。
+
+20. 英国决定将海外发展援助（ODA）的支出从国民总收入的0.7％削减到0.5％，北京正在寻求进一步扩大自己的影响力和影响范围，中共已经明确表示，准备在非洲花更多的钱。
+
+21. 中共秘密通过铁路向朝鲜供粮进行援助。消息人士告诉记者，近日，一列满载中共国玉米的货运列车已经抵达朝鲜，这是一年多来第一列穿越中韩边境的国际货运列车。
+
+22. 中共央行数据，3月末社会融资规模存量为294.55万亿元人民币，同比增长12.3%，社融同比增速8个月来首次低于13%。国内资金流动性再次刹车。
+
+23. 星期四，欧洲国家立陶宛议会召开听证会，推动通过谴责中共在新疆实施种族灭绝的议案。立陶宛议员萨卡利埃内（Dovilė Šakalienė）推动了该议案，她因此被中共列入制裁名单，成为立陶宛在新疆问题上被中共制裁的第一位政治人物。
+
+二、世界新闻
+
+1. 参议员卢比奥和沃伦的一项名为《美国药品供应链审查法案》的计划，将指导联邦机构审查美国对外国药品和医疗用品的依赖。美国与中共国自由贸易的结果意味着美国目前依赖中共国生产的大约97%的抗生素和80%的活性药物成分。
+
+2. 美国中央司令部司令海军上将肯尼斯·麦肯齐周四表示，伊朗尚未做出任何不可逆转的核举动。
+
+3. 俄罗斯国防部称，周五，俄罗斯开始撤离在乌克兰边境附近进行演习的部队，缓解了莫斯科与西方国家之间的紧张局势。
+
+4. 美国前国务卿蓬佩奥，4月13日，在弗吉尼亚州自由大学商学院举行的名为”非洲公平”的首席执行官和非洲政治领导人峰会上发表了主旨演讲。蓬佩奥赞同通过非洲企业家自下而上的革命来启动非洲经济的努力。这场革命涉及对抗中共主宰非洲大陆的努力，同时阐明基督教对非洲发展的态度。
+
+0

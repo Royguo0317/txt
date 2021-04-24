@@ -1,91 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第256节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1133021/)
+## 拜登政府将援助阿富汗“近3亿美元”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1133063/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+俄罗斯莫斯科喀秋莎农场   银河
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/CUE.jpg)timesofindia.indiatimes.com
-本节要点：参议院确认的国务院高级官员，领导美国与欧盟等应对中共国的共同行动。共同面临的挑战和问题：中共国的经济挑战；中共国的民主和人权挑战；中共国有关的技术问题；中共国有关的国防问题；中共国的“一带一路倡议”。对抗中共国在世界各地推行独裁统治模式，支持欧洲努力寻找效益成本比高的华为5G技术替代品，与欧盟内的对应实体协调努力，对抗中共国的宣传。跟踪和反击中共国试图在多边论坛（包括在世界卫生组织）施加影响的企图。
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/AF-1.jpg)britannica.com
+布赖特巴特新闻(Breitbart News)报道，美国国务卿布林肯本周宣布，拜登政府预计将投资“近3亿美元”援助阿富汗，这应是布林肯宣传的加强民间参与阿富汗行动的开始。
 
-256 加强跨大西洋合作的战略，合作涉及中共国问题
+布林肯本月多次表示，美国将继续作为阿富汗政府的“伙伴”，参与阿富汗的重建工作。2001年，华盛顿入侵阿富汗，导致阿富汗经历了20年的战争。拜登在4月的一次讲话中宣布，他将把美国的驻军至少再延长4个月。他表示，他不会遵守前任川普总统设定的5月1日撤军最后期限，而是在9月11日之前撤出所有军队。这是导致阿富汗战争的基地组织恐怖袭击20周年纪念日。
 
-（a）通常情况 – 不迟于本法颁布之日后90天，总统应向参议院外交关系委员会和军事委员会以及众议院外交事务委员会和军事委员会，简要介绍美国将如何加强与欧盟、北约，以及欧洲伙伴国合作的战略，这些合作涉及应对与中共国的关系。
+“美国军队是时候回家了。”拜登宣布延长美国在阿富汗的军事存在。
 
-（b）要素 – （a）小节要求的简报应做到以下几点：
+阿富汗通讯社Khaama Press星期四报导说，布林肯预计向阿富汗政府捐款近3亿美元，这将是华盛顿在阿富汗撤军后的首批行动之一。布林肯通过他的推特账户表示，“我们在2020年11月举行的四年一度的捐助国会议上宣布了可能在未来提供的援助，现在提供这些援助是为了展示我们对阿富汗人民的持久支持。”基金的目标是”改善阿富汗公民获得基本服务的机会，打击腐败和毒品，促进经济增长，改善卫生和教育服务，支持增强妇女权能，促进人权，加强阿富汗民间社会和独立媒体”。
 
-（1）确定参议院确认的国务院高级官员，该官员领导美国与欧盟、北约和欧洲伙伴国合作的努力，以推进对中共国的共同行动。
+布林肯本周宣布这一消息之前访问了喀布尔，会见了阿富汗总统阿什拉夫·加尼，保证美国不会离开阿富汗，而只是撤出其军队。
 
-（2）确定美国和欧洲伙伴在技术、贸易和经济实践方面，对中共国的政策趋同和分歧的关键点。
+布林肯在阿富汗首都举行的新闻发布会上说:“我们对阿富汗有着持久和持续的承诺。”“即使我们的军队回国，我们与阿富汗的伙伴关系也将继续。”布林肯还向加尼保证，美国将继续支持阿富汗的“安全和国防部队”，但不是军事上的支持。
 
-（3）描述为促进与欧洲同行在这方面的共同利益所做的努力-
-（A）中共国的经济挑战；
-（B）共国面临的民主和人权挑战；
-（C）中共国有关的技术问题；
-（D）中共国有关的国防问题；以及
-（E）制定一项全面战略，以回应中共国政府建立的“一带一路倡议”。
+五角大楼领导人此后暗示，离开阿富汗的部队可能不会像拜登所说的那样“回家”，而是留在中亚其他地方。五角大楼正在就军队派往何处进行“详细规划”，以使美国军队能够在不永久驻扎阿富汗的情况下应对国家安全威胁。一些报道称，塔吉克斯坦、哈萨克斯坦或乌兹别克斯坦等国可能成为美军撤离的新家园。
 
-（4）描述国务院和国防部内负责与欧洲伙伴，就中共国问题进行接触的主要地区和职能机构之间的协调机制。
+在2001年入侵阿富汗之前，塔利班恐怖组织统治着阿富汗，目前的阿富汗政府在一定程度上是在战争中为了取代塔利班而被推上位的。在美军撤离后，塔利班可能会卷土重来，阿富汗军队面临被击溃的担忧。
 
-（5）详细介绍截至简报会召开之日所做的外交努力，以及未来与欧洲伙伴合作的计划，以对抗中共国在世界各地推行独裁统治模式。
+据报道，五角大楼每年向阿富汗安全部队拨款40亿美元帮助维系政府政权。美国主流媒体本周随后的报道显示，五角大楼要求在该地区部署一艘航空母舰，以维系美国从阿富汗按计划撤军后在亚洲的影响力。
 
-（6）详细说明截至该战略提交之日所做的外交努力，以及支持欧洲努力寻找效益成本比高的华为5G技术替代品的未来计划。
+参考链接：
 
-（7）详细说明美国的公共外交工具，包括美国国务院的《全球参与中心》（the Global Engagement Center），将如何与欧盟内的对应实体协调努力，以对抗中共国的宣传。
-
-（8）描述国务院致力于美国和欧盟，就中共国问题进行接触的人员配置和预算资源，并提供执行该战略的年度资源需求评估。
-
-（9）详细说明与欧洲伙伴合作的外交努力，以跟踪和反击中共国试图在多边论坛（包括在世界卫生组织）施加影响的企图。
-
-（c）表格 -（a）节要求的简报应保密。
-
-（d） 咨询 – 不迟于本法颁布之日后90天，此后每隔180天，国务卿应就战略的制定和实施，与适当的国会委员会进行磋商。
-（本节完）
-
-原文链接：
-
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
-
-文字整理：
-
-SEC. 256. STRATEGY TO ENHANCE TRANSATLANTIC COOPERATION WITH RESPECT TO THE PEOPLE’S REPUBLIC OF CHINA.
-
-(a) IN GENERAL. — Not later than 90 days after the date of the enactment of this Act, the President shall brief the Committee on Foreign Relations and the Committee on Armed Services of the Senate and the Committee on Foreign Affairs and the Committee on Armed Services of the House of Representatives on a strategy for how the United States will enhance cooperation with the European Union, NATO, and European partner countries on managing relations with the People’s Republic of China.
-
-(b) ELEMENTS. — The briefing required by subsection (a) shall do the following:
-
-(1) Identify the senior Senate-confirmed Department of State official that leads United States efforts to cooperate with the European Union, NATO, and European partner countries to advance a shared approach with respect to the People’s Republic of China.
-
-(2) Identify key policy points of convergence and divergence between the United States and European partners with respect to the People’s Republic of China in the areas of technology, trade, and economic practices.
-
-(3) Describe efforts to advance shared interests with European counterparts on—
-
-(A) economic challenges with the People’s Republic of China;
-
-(B) democracy and human rights challenges with respect to the People’s Republic of China;
-
-(C) technology issues with respect to the People’s Republic of China;
-
-(D) defense issues with respect to the People’s Republic of China; and
-
-(E) developing a comprehensive strategy to respond to the Belt and Road Initiative (BRI) established by the Government of the People’s Republic of China.
-
-(4) Describe the coordination mechanisms among key regional and functional bureaus within the Department of State and Department of Defense tasked with engaging with European partners on the People’s Republic of China.
-
-(5) Detail diplomatic efforts made up to the date on which the date of the briefing and future plans to work with European partners to counter Chinese advancement of an authoritarian governing model around the world.
-
-(6) Detail the diplomatic efforts made up to the date on which the strategy is submitted and future plans to support European efforts to identify cost effective alternatives to Huawei’s 5G technology.
-
-(7) Detail how United States public diplomacy tools, including the Global Engagement Center of the Department of State, will coordinate efforts with counterpart entities within the European Union to counter Chinese propaganda.
-
-(8) Describe the staffing and budget resources the Department of State dedicates to engagement between the United States and the European Union on the People’s Republic of China and provide an assessment of out-year resource needs to execute the strategy.
-
-(9) Detail diplomatic efforts to work with European partners to track and counter Chinese attempts to exert influence across multilateral fora, including at the World Health Organization.
-
-(c) FORM. — The briefing required by section (a) shall be classified.
-
-(d) CONSULTATION. — Not later than 90 days after the date of the enactment of this Act, and every 180 days thereafter, the Secretary of State shall consult with the appropriate congressional committees regarding the development and implementation of the strategy.
+[https://www.breitbart.com/asia/2021/04/23/biden-admin-will-invest-nearly-300-million-afghanistan/](https://www.breitbart.com/asia/2021/04/23/biden-admin-will-invest-nearly-300-million-afghanistan/)
 
 0
