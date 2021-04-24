@@ -1,234 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 参议员兰德·保罗(Rand Paul)谈福奇博士和他的精英主义
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1132958/)
+## 美国《2021战略竞争法》第256节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1133021/)
 
-内容：
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-参议员兰德·保罗(Rand Paul)：
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/CUE.jpg)timesofindia.indiatimes.com
+本节要点：参议院确认的国务院高级官员，领导美国与欧盟等应对中共国的共同行动。共同面临的挑战和问题：中共国的经济挑战；中共国的民主和人权挑战；中共国有关的技术问题；中共国有关的国防问题；中共国的“一带一路倡议”。对抗中共国在世界各地推行独裁统治模式，支持欧洲努力寻找效益成本比高的华为5G技术替代品，与欧盟内的对应实体协调努力，对抗中共国的宣传。跟踪和反击中共国试图在多边论坛（包括在世界卫生组织）施加影响的企图。
 
-The liberal elites. He thinks that common man is not smart enough to make decisions,
+256 加强跨大西洋合作的战略，合作涉及中共国问题
 
-自由派精英。他认为普通人不够聪明，不会做决定
+（a）通常情况 – 不迟于本法颁布之日后90天，总统应向参议院外交关系委员会和军事委员会以及众议院外交事务委员会和军事委员会，简要介绍美国将如何加强与欧盟、北约，以及欧洲伙伴国合作的战略，这些合作涉及应对与中共国的关系。
 
-so he will make decision for you.
+（b）要素 – （a）小节要求的简报应做到以下几点：
 
-所以他会帮你做决定
+（1）确定参议院确认的国务院高级官员，该官员领导美国与欧盟、北约和欧洲伙伴国合作的努力，以推进对中共国的共同行动。
 
-But in the process he may have to tell you a few lies,
+（2）确定美国和欧洲伙伴在技术、贸易和经济实践方面，对中共国的政策趋同和分歧的关键点。
 
-但在这个过程中他可能不得不对你撒几个谎
+（3）描述为促进与欧洲同行在这方面的共同利益所做的努力-
+（A）中共国的经济挑战；
+（B）共国面临的民主和人权挑战；
+（C）中共国有关的技术问题；
+（D）中共国有关的国防问题；以及
+（E）制定一项全面战略，以回应中共国政府建立的“一带一路倡议”。
 
-because it’s for you, it’s for the better men of mankind.
+（4）描述国务院和国防部内负责与欧洲伙伴，就中共国问题进行接触的主要地区和职能机构之间的协调机制。
 
-因为这是“为了你好，为了更好的人类”
+（5）详细介绍截至简报会召开之日所做的外交努力，以及未来与欧洲伙伴合作的计划，以对抗中共国在世界各地推行独裁统治模式。
 
-These are the sort of noble lives as play-doh set
+（6）详细说明截至该战略提交之日所做的外交努力，以及支持欧洲努力寻找效益成本比高的华为5G技术替代品的未来计划。
 
-这是一种像是用橡皮泥堆砌的高贵生活
+（7）详细说明美国的公共外交工具，包括美国国务院的《全球参与中心》（the Global Engagement Center），将如何与欧盟内的对应实体协调努力，以对抗中共国的宣传。
 
-and these would be like telling you in the beginning
+（8）描述国务院致力于美国和欧盟，就中共国问题进行接触的人员配置和预算资源，并提供执行该战略的年度资源需求评估。
 
-这些就像是一开始就告诉你
+（9）详细说明与欧洲伙伴合作的外交努力，以跟踪和反击中共国试图在多边论坛（包括在世界卫生组织）施加影响的企图。
 
-That no masks work.
+（c）表格 -（a）节要求的简报应保密。
 
-不用戴口罩
+（d） 咨询 – 不迟于本法颁布之日后90天，此后每隔180天，国务卿应就战略的制定和实施，与适当的国会委员会进行磋商。
+（本节完）
 
-Because he didn’t want you to buy the N-95 masks,
+原文链接：
 
-因为他不想让你买N-95口罩
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
 
-and then later on he told another lie saying
+文字整理：
 
-后来他又撒了一个谎说
+SEC. 256. STRATEGY TO ENHANCE TRANSATLANTIC COOPERATION WITH RESPECT TO THE PEOPLE’S REPUBLIC OF CHINA.
 
-all mask works non of  those was truth.
+(a) IN GENERAL. — Not later than 90 days after the date of the enactment of this Act, the President shall brief the Committee on Foreign Relations and the Committee on Armed Services of the Senate and the Committee on Foreign Affairs and the Committee on Armed Services of the House of Representatives on a strategy for how the United States will enhance cooperation with the European Union, NATO, and European partner countries on managing relations with the People’s Republic of China.
 
-所有的口罩都管用
+(b) ELEMENTS. — The briefing required by subsection (a) shall do the following:
 
-N-95 masks do work but all mask don’t work
+(1) Identify the senior Senate-confirmed Department of State official that leads United States efforts to cooperate with the European Union, NATO, and European partner countries to advance a shared approach with respect to the People’s Republic of China.
 
-后来说N-95口罩管用，但其他口罩都不管用
+(2) Identify key policy points of convergence and divergence between the United States and European partners with respect to the People’s Republic of China in the areas of technology, trade, and economic practices.
 
-The cloth mask are completely pretend and theatre
+(3) Describe efforts to advance shared interests with European counterparts on—
 
-这些布口罩完全没用，都是演戏
+(A) economic challenges with the People’s Republic of China;
 
-and so he comes into the senate hearing wearing two cloth mask.
+(B) democracy and human rights challenges with respect to the People’s Republic of China;
 
-所以他戴着两个布口罩参加参议院听证会
+(C) technology issues with respect to the People’s Republic of China;
 
-What is he doing is pretending in showing you something
+(D) defense issues with respect to the People’s Republic of China; and
 
-他在做什么是假装给你看什么东西
+(E) developing a comprehensive strategy to respond to the Belt and Road Initiative (BRI) established by the Government of the People’s Republic of China.
 
-that the science doesn’t support
+(4) Describe the coordination mechanisms among key regional and functional bureaus within the Department of State and Department of Defense tasked with engaging with European partners on the People’s Republic of China.
 
-科学并不支持
+(5) Detail diplomatic efforts made up to the date on which the date of the briefing and future plans to work with European partners to counter Chinese advancement of an authoritarian governing model around the world.
 
-because he still doesn’t want you to buy the N-95 mask,
+(6) Detail the diplomatic efforts made up to the date on which the strategy is submitted and future plans to support European efforts to identify cost effective alternatives to Huawei’s 5G technology.
 
-因为他还是不想让你买N-95口罩
+(7) Detail how United States public diplomacy tools, including the Global Engagement Center of the Department of State, will coordinate efforts with counterpart entities within the European Union to counter Chinese propaganda.
 
-which is the only mask that work
+(8) Describe the staffing and budget resources the Department of State dedicates to engagement between the United States and the European Union on the People’s Republic of China and provide an assessment of out-year resource needs to execute the strategy.
 
-这是唯一有效的口罩
+(9) Detail diplomatic efforts to work with European partners to track and counter Chinese attempts to exert influence across multilateral fora, including at the World Health Organization.
 
-and really they only work in the hospital setting,
+(c) FORM. — The briefing required by section (a) shall be classified.
 
-实际上，在医院环境下，只有它们（N-95口罩）才管用
-
-when you’re very careful throwing them away,
-
-当你非常小心地把它们扔掉的时候
-
-wear gloves wash your hands before and after are incredibly cautious.
-
-戴上手套，洗手前后都要格外小心
-
-But, if you’re in the hospital
-
-但是，如果你在医院里
-
-and you want to go visit a COVID patient
-
-你想去探望一个新冠病人
-
-or you’re taking care of a COVID patient,
-
-或者你在照顾一个新冠病人
-
-the hospital will not let you enter the room with a cloth mask.
-
-医院不会让你戴布口罩进入房间的
-
-Because they don’t work.
-
-因为它们不起作用
-
-And so it is theatre, he is lying to us,
-
-所以这就是演戏，他在欺骗我们
-
-not because he hates mankind,
-
-不是因为他讨厌人类
-
-but because he thinks he’s smarter than the rest of us
-
-而是因为他认为自己比我们其他人更聪明
-
-and is this elitism？
-
-这是不是精英主义？
-
-the things that the common man can’t make his decision.
-
-那些普通人不能自己做决定
-
-I am the opposite.
-
-我正好相反
-
-I think, every individual American should be given the fact,
-
-我认为，每个美国人都应该得知道真相
-
-that is a disease that thousand times more deadly
-
-这种疾病的致命性对70岁以上的人比25岁以下的人
-
-over age 70 than it is below age 25.
-
-要厉害出一千倍
-
-and you should make your own decisions according to that.
-
-然后人们应该根据这一点自己做决定
-
-according to risk factors
-
-根据危险因素等
-
-and so the elderly without question
-
-对老年人毫无疑问
-
-the Vaccine is a good, is a good thing.
-
-疫苗是件好事，是件好事
-
-Under 25, I think really you have to assess your risk and make your own decision,
-
-在25岁以下，我认为你们真的要评估自己的风险并做出自己的决定
-
-主持人：
-
-as were you at this point of a mass，
-
-就像你说的，在混乱的节骨眼上
-
-is it time to just say Enough for this,
-
-是不是说得太多了，
-
-just take it off and just go live your life?
-
-把它摘下来，然后继续过你的生活？
-
-参议员兰德·保罗(Rand Paul)：
-
-Particularly for those who are vaccinated,
-
-尤其是那些接种了疫苗的人，
-
-or for those who got the disease naturally like I have
-
-或者是那些像我这样自然地感染了这个病毒
-
-a mask of no use their complete theatre
-
-一个毫无用处的口罩，他们整个就是在演戏
-
-even the CDC has admitted these much
-
-就连疾控中心也承认了这一点
-
-the CDC admitted a few weeks ago before they tried to roll back.
-
-疾控中心在几周前承认了这一点，之后他们还试图反悔
-
-they admitted that people vaccinated do not carry the virus are not spreading the virus.
-
-他们承认，接种疫苗的人没有携带病毒，并没有传播病毒
-
-The same is true of those who have been infected,
-
-那些被感染的人也是如此
-
-even Fauci’s institute admitted
-
-就连福奇的研究所也承认
-
-that those who have been infected have robust immunity.
-
-那些被感染的人有强大的免疫力
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://twitter.com/realamvoice/status/1384593964070752258?s=24](https://twitter.com/realamvoice/status/1384593964070752258?s=24)
-
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场-Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片: 康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+(d) CONSULTATION. — Not later than 90 days after the date of the enactment of this Act, and every 180 days thereafter, the Secretary of State shall consult with the appropriate congressional committees regarding the development and implementation of the strategy.
 
 0

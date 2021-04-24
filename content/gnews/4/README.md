@@ -1,11 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4/19/2021 郭先生419四周年直播: 在短短的四年里，世界媒体已被共产党用金钱合法控制
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1133061/)
+## 【路德简报】4/23/2021早：FCC修改规则开启剿灭中共大外宣的行动
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1133057/)
 
-在短短的4年里，世界媒体已经被共产党用金钱合法控制，下一步是争夺媒体战。关键的时候西方也没有媒体自由。共产党在新疆、香港的大屠杀、对西藏的陷害以及对台湾的威胁都被媒体屏蔽掉了，这才是最危险的。
+**编辑：华盛顿DC农场 路德简报项目组**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2021-4-23-2-scaled.jpg)
 
-By: 【秘密翻译组G-Translators】
+
+> 2021 年 4月23日 路德时评 
+> 
+> 1. FCC修改规则开启剿灭中共大外宣的行动 
+> 
+> 2.中共发动宣传战 攻击特斯拉公司 [pic.twitter.com/Z5J8BWKD74](https://t.co/Z5J8BWKD74)
+> — 平民爆料 (@WM18320321) [April 24, 2021](https://twitter.com/WM18320321/status/1385786756335869955?ref_src=twsrc%5Etfw)
+
+
 
 0

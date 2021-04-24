@@ -1,37 +1,234 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 东盟齐聚雅加达与缅甸军头敏昂莱谈判
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1132951/)
+## 参议员兰德·保罗(Rand Paul)谈福奇博士和他的精英主义
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1132958/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+内容：
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/S-25.jpg)ph.news.yahoo.com
-据路透社报道，东南亚各国领导人会在周六（4月 24 日）举行的峰会上努力开辟一条结束缅甸内部动荡和暴力流血的道路。预计 2 月份接管缅甸军头敏昂莱（Min Aung Hlaing）会参加此次在雅加达的东南亚领导人峰会。
+参议员兰德·保罗(Rand Paul)：
 
-国际社会为缓解此次缅甸危机，由 10 国组成的东盟领导人齐聚雅加达。缅甸属于贫困国家，与中共国、印度和泰国接壤，在 1962-2011 年期间由军队统治。
+The liberal elites. He thinks that common man is not smart enough to make decisions,
 
-与会东盟领导人不顾疫情均亲自出席，印度尼西亚外交部长雷特诺·马苏迪（Retno Marsudi）周五表示，这次峰会反映了 “东盟对缅甸局势的深切关注，以及帮助缅甸摆脱当前困局的决心。希望明天的（峰会）能够达成对缅甸人民带来好消息的协议。”
+自由派精英。他认为普通人不够聪明，不会做决定
 
-新加坡外交部长维安（Vivian Balakrishnan）也到达了雅加达，他说东盟领导人 “将就缅甸(内部当前）严重局势进行讨论并寻找解决方案”。
+so he will make decision for you.
 
-不愿透露姓名的外交官和政府官员说，许多东盟领导人希望敏昂莱承诺约束他的安全部队。人权观察组织表示自 2 月 1 日反对军政府政变的抗议活动以来，缅甸安全部队已经杀害了 745 人。
+所以他会帮你做决定
 
-了解此次峰会内部流程的三位消息人士说，敏昂莱在雅加达峰会正式公开亮相前，会首先私下与每位参会的东盟领导人交换意见。另据消息人士说，只有少数官员会出席这次 “私密 ”的会议。
+But in the process he may have to tell you a few lies,
 
-东盟诸外交官和官员还发出向缅甸派遣人道主义援助团倡议。通过任命特使的方式，建立起政变军政府与反对派民族团结政府（NUG）等组织进行沟通对话的渠道。
+但在这个过程中他可能不得不对你撒几个谎
 
-印度尼西亚、越南、新加坡、马来西亚、柬埔寨和主席国文莱的领导人，以及泰国和菲律宾的外交部长都已确认出席雅加达峰会。但是，缅甸国家电视台在周五的夜间新闻公告没有提及东盟会议。
+because it’s for you, it’s for the better men of mankind.
 
-东盟当前采取的政策是通过盟国间的商讨找到成员国一致同意解决危机的方法，但任何统一的决议都不会涉及成员国内政事务。虽然这使得东盟内部成员国对有巨大分歧的政治经济问题难以达成一致性决议，但联合国、中共国和美国当前都认为东盟是直接处理政变军政府的最佳选择。
+因为这是“为了你好，为了更好的人类”
 
-设在雅加达的安全分析家埃文·拉克马纳（Evan Laksmana）说，是印度尼西亚总统佐科·维多多（Joko Widodo）为解决缅甸内部流血冲突呼吁召开这次高级别的峰会。维多多认为缅甸发生的暴力行为必须停止，缅甸也应重新恢复民主进程。
+These are the sort of noble lives as play-doh set
 
-NUG 的国际特使萨萨博士说，东盟此次应该坚持要求军方停止杀害平民，停止轰炸少数民族地区的村庄，释放政治犯并将权力交给 NUG。
+这是一种像是用橡皮泥堆砌的高贵生活
 
-参考链接：
+and these would be like telling you in the beginning
 
-[Southeast Asian leaders to discuss Myanmar with coup leader – REUTERS – 2021/04/23](https://www.reuters.com/world/asia-pacific/southeast-asian-leaders-discuss-myanmar-with-coup-leader-2021-04-23/)
+这些就像是一开始就告诉你
 
-+1
+That no masks work.
+
+不用戴口罩
+
+Because he didn’t want you to buy the N-95 masks,
+
+因为他不想让你买N-95口罩
+
+and then later on he told another lie saying
+
+后来他又撒了一个谎说
+
+all mask works non of  those was truth.
+
+所有的口罩都管用
+
+N-95 masks do work but all mask don’t work
+
+后来说N-95口罩管用，但其他口罩都不管用
+
+The cloth mask are completely pretend and theatre
+
+这些布口罩完全没用，都是演戏
+
+and so he comes into the senate hearing wearing two cloth mask.
+
+所以他戴着两个布口罩参加参议院听证会
+
+What is he doing is pretending in showing you something
+
+他在做什么是假装给你看什么东西
+
+that the science doesn’t support
+
+科学并不支持
+
+because he still doesn’t want you to buy the N-95 mask,
+
+因为他还是不想让你买N-95口罩
+
+which is the only mask that work
+
+这是唯一有效的口罩
+
+and really they only work in the hospital setting,
+
+实际上，在医院环境下，只有它们（N-95口罩）才管用
+
+when you’re very careful throwing them away,
+
+当你非常小心地把它们扔掉的时候
+
+wear gloves wash your hands before and after are incredibly cautious.
+
+戴上手套，洗手前后都要格外小心
+
+But, if you’re in the hospital
+
+但是，如果你在医院里
+
+and you want to go visit a COVID patient
+
+你想去探望一个新冠病人
+
+or you’re taking care of a COVID patient,
+
+或者你在照顾一个新冠病人
+
+the hospital will not let you enter the room with a cloth mask.
+
+医院不会让你戴布口罩进入房间的
+
+Because they don’t work.
+
+因为它们不起作用
+
+And so it is theatre, he is lying to us,
+
+所以这就是演戏，他在欺骗我们
+
+not because he hates mankind,
+
+不是因为他讨厌人类
+
+but because he thinks he’s smarter than the rest of us
+
+而是因为他认为自己比我们其他人更聪明
+
+and is this elitism？
+
+这是不是精英主义？
+
+the things that the common man can’t make his decision.
+
+那些普通人不能自己做决定
+
+I am the opposite.
+
+我正好相反
+
+I think, every individual American should be given the fact,
+
+我认为，每个美国人都应该得知道真相
+
+that is a disease that thousand times more deadly
+
+这种疾病的致命性对70岁以上的人比25岁以下的人
+
+over age 70 than it is below age 25.
+
+要厉害出一千倍
+
+and you should make your own decisions according to that.
+
+然后人们应该根据这一点自己做决定
+
+according to risk factors
+
+根据危险因素等
+
+and so the elderly without question
+
+对老年人毫无疑问
+
+the Vaccine is a good, is a good thing.
+
+疫苗是件好事，是件好事
+
+Under 25, I think really you have to assess your risk and make your own decision,
+
+在25岁以下，我认为你们真的要评估自己的风险并做出自己的决定
+
+主持人：
+
+as were you at this point of a mass，
+
+就像你说的，在混乱的节骨眼上
+
+is it time to just say Enough for this,
+
+是不是说得太多了，
+
+just take it off and just go live your life?
+
+把它摘下来，然后继续过你的生活？
+
+参议员兰德·保罗(Rand Paul)：
+
+Particularly for those who are vaccinated,
+
+尤其是那些接种了疫苗的人，
+
+or for those who got the disease naturally like I have
+
+或者是那些像我这样自然地感染了这个病毒
+
+a mask of no use their complete theatre
+
+一个毫无用处的口罩，他们整个就是在演戏
+
+even the CDC has admitted these much
+
+就连疾控中心也承认了这一点
+
+the CDC admitted a few weeks ago before they tried to roll back.
+
+疾控中心在几周前承认了这一点，之后他们还试图反悔
+
+they admitted that people vaccinated do not carry the virus are not spreading the virus.
+
+他们承认，接种疫苗的人没有携带病毒，并没有传播病毒
+
+The same is true of those who have been infected,
+
+那些被感染的人也是如此
+
+even Fauci’s institute admitted
+
+就连福奇的研究所也承认
+
+that those who have been infected have robust immunity.
+
+那些被感染的人有强大的免疫力
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频连接: [https://twitter.com/realamvoice/status/1384593964070752258?s=24](https://twitter.com/realamvoice/status/1384593964070752258?s=24)
+
+英听校:康州盘古农场-WZ
+翻译: 康州盘古农场-WZ
+翻译终校: 康州盘古农场-Mike Li
+字幕+视频制作:康州盘古农场-天涯行
+审片: 康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

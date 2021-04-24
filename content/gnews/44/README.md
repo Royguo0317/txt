@@ -1,68 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 习近平批评美国“妄自尊大，干涉他国内政
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1132213/)
+## 恶意调查GTV的背后：SEC内鬼及中共对美全面渗透
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1132243/)
 
-新闻来源：《Yahoo Finance》| 作者：Bloomberg News | 发布时间：2021年4月20日
+作者：蓝色| 校对：西川stanly| 审核：万人往| Page：小六月
 
-翻译/简评：wmorpho | 校对：SilverSpurs7 | 审核：万人往 | Page：我是球大哥
+[!\[\]()!\[\](https://spark.adobe.com/page/raJBTUPomiGeg/images/f07a643c-518f-4d5e-bd2a-9c0de4ed6cb5.jpg?asset_id=2329d75f-3cb1-42d9-83e9-135af49ce661&amp;img_etag=%222965777b23c51c8cc3131d3bb1c99f0c%22&amp;size=1024)](https://spark.adobe.com/page/raJBTUPomiGeg/images/f07a643c-518f-4d5e-bd2a-9c0de4ed6cb5.jpg?asset_id=2329d75f-3cb1-42d9-83e9-135af49ce661&amp;img_etag=%222965777b23c51c8cc3131d3bb1c99f0c%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/lZ3RJXgFlHEZ1/images/fe779ef1-5841-4933-9455-f48785ccbb7a.jpg?asset_id=2980efd1-6fdb-41c7-af17-d64d1c27c67a&amp;img_etag=%22027371b226f24cf6cbac89b403b19472%22&amp;size=1024)](https://spark.adobe.com/page/lZ3RJXgFlHEZ1/images/fe779ef1-5841-4933-9455-f48785ccbb7a.jpg?asset_id=2980efd1-6fdb-41c7-af17-d64d1c27c67a&amp;img_etag=%22027371b226f24cf6cbac89b403b19472%22&amp;size=1024)
+所谓豆豆（被战友挖出是中共），借九指妖SARA诈骗GTV事件，伙同SEC内鬼恶意调查GTV。九指妖诈骗GTV，GTV是受害者，SEC不去调查加害者，反而过度调查被害者，是明显的滥用职权，张冠李戴。
 
-**简评：**
+所以笔者高度怀疑SEC有中共的内鬼，故意借题发挥。笔者以此怀疑为基础，挖掘了一下SEC高层管理人员的背景，果然不出所料，发现了重要线索，背后隐藏的不仅是吴征和刘特佐，而是中共国对美国的全面渗透。
 
-这是一篇替习近平带风向的文章，作者没有署名，只是说彭博新闻，大家都知道彭博新闻的老板迈克·布隆伯格是中共国国家副主席王岐山的好朋友，彭博新闻实际上是中共国的海外大外宣。
+此次调查GTV的SEC核心人员是吹哨人办公室主任简·诺伯格 Jane Norberg，此人于2021年4月辞职（可能受迫于战友的抗议事件）。在加入SEC之前，她就职于“谢尔曼·思特灵 (Shearman & Sterling)律师事务所”，就在其任职期间，该律师事务所在“1MDB一马公司案”中帮助刘特佐洗钱。
 
-本文通过引述习近平在博鳌亚洲论坛上的开幕讲话，通篇都在批评美国“妄自尊大，干涉他国内政”，并呼吁美国不要与中共国脱钩，要与中共国合作。在经历了一年多中共病毒的袭击后，彭博新闻只字不提中共的邪恶和它对美国的生物武器超限战，而是一味地谈与中共的气候合作问题，企图转移大家的视线，其用心是多么的险恶。王岐山这个“临时报幕员”一出现，迈克·布隆伯格马上就开始卖力地表演，他们真是跨国组合超级盗国贼。如果没有文贵先生的爆料革命，全球就会被他们牵着鼻子走向深渊而不自知！
+[!\[\]()!\[\](https://spark.adobe.com/page/raJBTUPomiGeg/images/1c200f9b-e6da-40a8-9970-a644e97cd980.png?asset_id=f83afbf7-6657-457c-a4e8-0ab44069ebe0&amp;img_etag=%222c43fe5be2b260ae9115eccb93a0d161%22&amp;size=2560)](https://spark.adobe.com/page/raJBTUPomiGeg/images/1c200f9b-e6da-40a8-9970-a644e97cd980.png?asset_id=f83afbf7-6657-457c-a4e8-0ab44069ebe0&amp;img_etag=%222c43fe5be2b260ae9115eccb93a0d161%22&amp;size=1024)
 
-**原文翻译：**
+简·诺伯格能够在日后进入SEC担任要职，那其在律师事务所必然也是重要人物，她不可能不认识刘特佐，甚至可能是洗钱的直接参与人之一。此人应是SEC内鬼中的核心人物。
 
-## 习近平挑战美国全球领导地位，警告不要脱钩
+提拔简·诺伯格由副职转正的是前SEC主席玛丽·乔·怀特（Mary Jo White），此时的美国总统正是奥巴马和拜登。而玛丽·乔·怀特在入职SEC前后都加入了德普 (Debevoise & Plimpton)律师事务所。这又说明了什么呢？
 
-中共国国家主席习近平呼吁扩大全球经济一体化，并警告美国不要脱钩，同时呼吁美国及其盟国避免“妄自尊大”。
+笔者发现一条旧闻：白斯达 (Sidharth Bhasin)在2008年9月从Debevoise＆Plimpton香港办事处加入Shearman＆Sterling香港办事处。这说明，这些著名的律师事务所的人员是相互流动的。表面看是竞争关系，但是由于挖角跳槽和同学、同事等人际关系网络导致其背后实际上是合作关系。
 
-习近平周二在博鳌亚洲论坛上没有提及美国的名字，但是他说道：“国际事务应通过谈判和讨论的方式进行，世界前途命运应该由各国共同掌握，不能把一个或几个国家制定的规则强加于人，也不能由个别国家的单边主义给整个世界带节奏。”
+中共通过巨额律师费来腐败这些欧美的大型律师事务所。法官和直接参与执法的行政官员均出自职业律师，来自于各大型律师事务所。渗透了律师事务所，就等于可以部分操控美国法庭和行政官员。
 
-习近平隐晦地批评美国为减少对中共国供应链的依赖而采取的措施，并拒绝出口诸如高级计算机芯片之类的商品。习近平说：“任何建立壁垒和脱钩的行为都违背经济和市场原则，是损人不利己的。”
+笔者通过调查SEC，又发现了SEC和《华尔街日报》的关系。
 
-习近平还说：“当今世界，我们需要的是正义，而不是霸权。”他补充说：“中国将永远不会参加军备竞赛。妄自尊大或干涉他国的内政只能四处碰壁。”
+《华尔街日报》长期稳定的攻击郭先生、攻击爆料革命。而此次SEC事件的报道，依然是《华尔街日报》最为积极，为什么那么多媒体，唯独《华尔街日报》如此关注SEC调查GTV？直到笔者在推特上发现了这个人“孙梦琪MengqiSun”。原来，SEC和《华尔街日报》一直是有长期、稳定的直接联络人的。而这个华人和杨澜及其子毕业于同一所学校：位于纽约的哥伦比亚大学（著名的中共间谍聚集地）。
 
-习近平通过视频向在南部岛屿海南省博鳌论坛现场的2000多名官员和企业高管发表了讲话。官方媒体报道，全球领导人以及国际货币基金组织和联合国的负责人通过视频链接出席了开幕式。
+《华尔街日报》是道琼斯公司的出版物，而道琼斯公司早就被默多克收购了。再加上纽约南区法院，不难看出，中共通过和华尔街金融大佬的高度合作关系，对美国的行政、法律、媒体进行了全面的渗透。
 
-去年由于中共病毒爆发而取消了该论坛，中共国表示将恢复该会议的运行，该会议被称为亚洲版的达沃斯世界经济论坛。过去，中共官员们通过该活动宣布了开放金融体系的主要步骤，包括建立和扩大将内地股票交易所与香港连接起来的计划。
+此次SEC恶意调查GTV，背后黑手就是中共操控的SEC内鬼。
 
-中共国正在积极努力改善与美国企业的联系。大量的美国高管参加了该论坛，包括苹果公司的蒂姆·库克，特斯拉公司的伊隆·马斯克，黑石集团的斯蒂芬·施瓦茨曼（苏世民）以及桥水基金的雷·达里奥。
+[!\[\]()!\[\](https://spark.adobe.com/page/raJBTUPomiGeg/images/2c89c73e-83f6-4981-bb1b-40ed69e81649.png?asset_id=29780cf8-a857-4152-bb37-29fd54e044ad&amp;img_etag=%229189a129290b744bf040d776cd85e362%22&amp;size=1024)](https://spark.adobe.com/page/raJBTUPomiGeg/images/2c89c73e-83f6-4981-bb1b-40ed69e81649.png?asset_id=29780cf8-a857-4152-bb37-29fd54e044ad&amp;img_etag=%229189a129290b744bf040d776cd85e362%22&amp;size=1024)
 
-气候问题
+[!\[\]()!\[\](https://spark.adobe.com/page/raJBTUPomiGeg/images/5f7ad7d8-889a-4fb0-ab8a-fd939533489a.jpg?asset_id=4d627c30-a918-4479-8358-65035888c14d&amp;img_etag=%2221967c035d68b9a1314ebb7381d3eba1%22&amp;size=1024)](https://spark.adobe.com/page/raJBTUPomiGeg/images/5f7ad7d8-889a-4fb0-ab8a-fd939533489a.jpg?asset_id=4d627c30-a918-4479-8358-65035888c14d&amp;img_etag=%2221967c035d68b9a1314ebb7381d3eba1%22&amp;size=1024)
 
-在美国全球气候特使约翰·克里上周访问上海之后，美中两国承诺将共同致力于解决气候变化问题，这是中共国方面在气候问题上的主要目标。
-
-习近平没有提出任何削减中共国碳排放量或应对全球气候变化的新目标。他的演讲中多次提到“绿色”或“可持续性”，但没有提供有关碳中和途径的新承诺或建议。
-
-习近平说：“我们需要遵循绿色发展的理念，推进气候变化方面的国际合作，并为执行《巴黎气候变化协定》做更多的工作。”
-
-他发誓“一带一路”倡议中的项目将是可持续的，“绿色应该有效地成为一带一路的背景颜色。”
-
-自2019年起，习近平所谓的中共国标志性的外交政策战略走向绿色受到了环保人士的批评。根据波士顿大学的全球能源财务数据库，中共国基础设施计划资金的大约三分之二用于石油、煤炭和天然气项目，该数据库跟踪了两家中共国有开发银行的数据。
-
-华盛顿当局也对“一带一路”计划持批评态度，称中共国的贷款将贫穷国家锁定在“债务陷阱”中，同时推进其自身的战略目标。
-
-美国总统拜登将在周四和周五主持与世界各国领导人举行的虚拟气候会议。据道琼斯报道，习近平将参加此次活动。
-
-国务卿安东尼·布林肯表示，在抓住气候变化带来的机遇的竞赛中，美国落后于中共国。这个问题将越来越成为美国外交政策的中心，但布林肯发誓，拜登政府不会因为其他国家在遏制气候变化方面取得进展而让这些国家诸如侵犯人权之类的不良做法脱责。
-
-该论点似乎旨在反驳越来越多的批评，特别是来自共和党的批评，即克里可能会出卖美国利益来推动与中共国的气候合作。
-
-[原文链接](https://uk.finance.yahoo.com/news/xi-address-global-risks-china-234111475.html?guccounter=2)
+*文章仅代表作者观点*
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/lZ3RJXgFlHEZ1/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/lZ3RJXgFlHEZ1/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/raJBTUPomiGeg/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/raJBTUPomiGeg/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 +1
