@@ -1,11 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4/19/2021郭先生419四周年直播：共产党控制媒体、利用媒体在法庭上置人于死地
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1133048/)
+## 【路德简报】4/23/2021早：FCC修改规则开启剿灭中共大外宣的行动
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1133057/)
 
-在荒唐的太平联盟的案子中，太平联盟证据造假却被黑心法官判赢；这个世界和法律和正义和黑白已完全被媒体掌控；文贵这几年到法庭打的所有官司，对方拿出的证据全是基于媒体报道；共产党利用媒体完全把你犯罪化、置你于死地，剥夺你说话、讲话、上法庭开庭的权利
+**编辑：华盛顿DC农场 路德简报项目组**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2021-4-23-2-scaled.jpg)
 
-By: 【秘密翻译组G-Translators】
+
+> 2021 年 4月23日 路德时评 
+> 
+> 1. FCC修改规则开启剿灭中共大外宣的行动 
+> 
+> 2.中共发动宣传战 攻击特斯拉公司 [pic.twitter.com/Z5J8BWKD74](https://t.co/Z5J8BWKD74)
+> — 平民爆料 (@WM18320321) [April 24, 2021](https://twitter.com/WM18320321/status/1385786756335869955?ref_src=twsrc%5Etfw)
+
+
 
 0

@@ -1,97 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疫苗护照应该让我们停下来思考的7个理由
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1133124/)
+## 知道中共有解药以后西方该怎么办&nbsp; 习近平已经众叛亲离
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1133237/)
 
-【日本东京方舟农场】作者：泰勒·杜登（TYLER DURDEN）、尼克·科比什利（Nick Corbishley)   翻译：天与地的对话   校对：文小律
+**摘要：郭先生在2021年4月22日的盖特视频中说，在他21日爆出中共有解药后，世界和国内都引起巨大震动，他告诉西方国家要跟中共要解药，并透露在分配解药一事上，习近平已经众叛亲离。**
+[下载字幕](https://www.gnews.org/wp-content/uploads/2021/04/Miles_20210422-getter1.srt.txt)
+**知道中共有解药以后西方该怎么办****  ****习近平已经众叛亲离**
 
-随着疫苗护照像滚雪球般地在世界各地被使用，人们越来越担心它们的潜在作用范围和影响。
+**Knowing There Is an Antidote, How Should We Go Forward Next?**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/3C193D26-F2F3-43F7-89C7-BA78494C69C6.jpeg)
+那么另外一个我想和大家说的事情，就是昨天在我盖特发出以后，[我爆出了]共产党有解药。[共产党]有解药这件事情可以说在世界上[是]重大重大的一张[灭共牌]，[是]重磅的一则爆料，影响[深远]。
 
-疫苗护照（或通行证或证书）正在世界范围内匆忙推出，这也包括了在那些大多数人甚至还没有能够接种疫苗的地方。 通过提供证明已接种疫苗，人们才被允许旅行，购物，去健身房，参加体育和文化活动以及进行其他室内活动。它被吹捧为启动全球经济的方法。 以色列、沙特阿拉伯和新加坡等国家已在最近几个月内采用了疫苗护照。
+So another thing that I want to share with everybody is that yesterday I posted my Getter video that exposed the fact that the CCP has an antidote. We can say that the fact that the CCP has an antidote can be used as a major card [in taking down the CCP]. It’s like a bombshell dropped and it will have a profound impact.
 
-当然，使用“护照”一词具有欺骗性。  “护照”是指由建立国籍并保证外交保护的国家认可的文件。 尽管已有针对黄热病等疾病的免疫证明，但传统护照不需要持护照的人参加疫苗计划。另一个区别是疫苗护照很可能以数字文件的形式出现。 它的潜在使用范围也比普通护照广泛。 它可能不仅在国界而且还需要在自己的居住国内旅行，进入公共场所和基本服务时被要求出示以证明身份和疫苗接种的情况。
+所有真正有正事、有良知的[人]，知道冠状病毒[的情况]了解共产党的西方官员，他说为什么全世界人就没想过这个问题呢？他说你爆出这个问题太重要了。昨天我和亚洲的某个国家连线，人家对方就说：“郭先生，我们没有任何怀疑你的意思。我们应该怎么往前走？”
 
-在已经建立了国家卫生服务的国家，例如英国和以色列，疫苗护照已在州一级得到授权。 在美国，技术和医疗保健公司牢牢占据着主导地位。 目前至少正在开发17个替代项目。 至于欧盟，它提议颁发“数字绿色证书”，允许那些在夏季前做了疫苗接种，COVID-19（中共病毒）呈阴性或从疾病中康复的欧盟居民，自由地穿越27个联盟国。值得注意的是，自2019年初以来欧盟一直在研究创建通用欧盟疫苗接种卡的可行性。
+Like all people in the West who are righteous, who have a conscience, who know about the coronavirus, and who understand the CCP, this guy asked, “Why hasn’t anybody in the world even thought about this?” He said that the stuff that I exposed is really important. Yesterday I connected with people from a certain country in Asia, and they said: “Mr. Guo, we don’t have any doubts about what you said, but how should we go forward?”
 
-国际倡议（International Initiatives）：
+我说：“非常简单，你先定义这个[病毒]是不是自然的，不是自然的那就是人造的。[如果是]人造[的，那是]谁造的？大家现在怀疑唯一的[罪魁祸首]就是中国共产党。为啥共产党里面有人戴口罩有人不戴口罩？为什么共产党的老百姓死了上百万人武汉老百姓？为什么这些高官的家人一个不死？[事情]就这么简单。”
 
-国际上也有一些倡导，例如智能疫苗接种证书工作组（the Smart Vaccination Certificate Working Group），其合作伙伴包括世界卫生组织（WHO），联合国儿童基金会（UNICEF），国际电联（ITU）和欧洲委员会（European Commission）。 该小组“致力于为数字疫苗接种证书建立关键的规范，标准和信任框架，以促进实施有效且可互操作的数字解决方案，以支持COVID-19（中共病毒）疫苗的交付和监测，并打算应用于其他疫苗。”
+I said, “Very simple. First you define whether this virus is natural or not. If not, then it is man-made. If it is man-made, who made it? The only one suspected by everybody is the CCP. Why do some members of the CCP wear masks and some don’t? Why have millions of common people in Wuhan in communist China died but none of these high-ranking officials’ family have? That’s how simple it is.”
 
-另一个举措是由公共项目基金会 （Commons Project Foundation）开发的数字健康应用程序的普通通行证 （CommonPass），该基金会是由洛克菲勒基金会（the Rockefeller Foundation ）创立，并得到了世界经济论坛（the World Economic Forum）的支持。  普通通行证（CommonPass）是一个框架和一个应用程序，“将允许个人访问他们的实验室结果和疫苗接种记录，并同意在不透露任何其他基本个人健康信息的情况下，将该信息用于验证其COVID（中共病毒）感染状态。”
+“那么现在共产党如果说没有解药，那请让他[共产党]告诉你所有参与研究武汉实验室的任何工程师，让他[们]到美国和欧洲来接受质询。别说审判，质询他[们]。让他[们]告诉你怎么找到[冠状病毒的]解药，行不行？或者你们美国欧洲不敢跟共产党要真相，[那就跟共产党]要[冠状病毒的]解药呗。说你给解药我[们就]不追究你责任了，这不也挺好吗，对吧？也挺好啊。”
 
-然后是ID2020，这是一个非政府组织，倡导为全世界数十亿无证件人和服务不足的群体（例如难民）提供数字ID。 在2019年，ID2020与孟加拉国政府和全球疫苗和免疫联盟（GAVI）合作推出了一个新的数字身份计划。 现在，它参与了名为“良好健康通行证的合作计划”（Good Health Pass Collaborative)，该计划是“一项开放，包容，跨部门的倡议，它把技术，卫生和旅行领域的领先公司和组织召集在一起”。
+I continued, “So if the CCP replies that they have no antidote, you then ask them to tell you who the engineers involved in the research in the Wuhan lab are, then let them come to the US and Europe to receive questions at hearing. Don’t call it trials, call it hearings. Let them tell you how to find the antidote, okay? Or if you, the US and Europe, dare not ask the CCP for the truth about the virus, you can just ask for the antidote. Tell them that if they agree to give the antidote, you won’t hold them accountable. Isn’t it nice, right? It will be pretty nice.”
 
-停下来思考一下：
+所以说现在这个[冠状病毒]解药的问题引起了世界上的巨大震撼。
 
-其中一些举措已经正在由公司（包括航空公司）以及地方或区域的当局进行试点。 所有Nippons航空公司都已开始对从东京羽田（Tokyo Haneda ）到纽约（New York）的航班进行普通通行证（CommonPass）的测试。 上周，纽约发布了基于IBM技术名为精益求精通行证(Excelsior pass)。 其他州也可能会效仿。 法国也刚刚为前往马提尼尼克（Martninique）和瓜德罗普岛（Guadeloupe）的法航乘客完成了为期一个月的健康护照应用软件的试用。
+So now this antidote thing has greatly shocked the world.
 
-（人们对于）采取这些举措的速度之急促应引起思考。 就像使用追踪联系人的应用程序一样，它的推出是随意的，并且充满了利益冲突。 该技术还未经验证，隐私问题也很明显。 以下是我认为疫苗护照会让我们担心的七个原因。 也许您可以想到更多。
+兄弟姐妹们，连我本人在48小时以前，我[都]从来没想过这个世界上会有[冠状病毒的]解药。我[之前]通过各种内部参与爆料[革命]的人[了解]，都给我一句话：“不可能有疫苗，因为这是人造的生化病毒，怎么可能有疫苗呢？这是个基本常识，而且每个[病毒]都在变异中。”直到他告诉我说：“文贵，我可以告诉你，没那么悲观。只要西方世界有正义的力量和正义的良知的人，这个世界是有解药的。”
 
-**1.****我****们****仍然不知道疫苗的有效性或安全性**
+Brothers and sisters, even I myself had never thought that there could be an antidote existing in this world like 48 hours ago. Previously I heard the same answer from different fellow fighters of the Whistleblower Movement: “There can’t be any vaccines, because this is a man-made bioweapon virus. How can there be a vaccine? This is basic common sense. Besides, this virus keeps mutating.” Until this guy told me: “Miles, I can tell you, it’s not so hopeless. As long as there are righteous people with a conscience in the western world, there will be antidotes in this world.”
 
-疫苗护照背后的表面目的是提供证据，证明一个人已经接种了官方批准的疫苗，因此具有较小的传染风险。 但是我们仍然不知道每种疫苗的有效性或安全性。 自然，每种疫苗的功效水平会有所不同。 正如世卫组织（WHO）自己所承认的那样，目前仍无法确定接种（疫苗）是否真正能阻止病毒传播。
+我当时就傻了，我说：“你在开什么玩笑啊？怎么可能？生化病毒怎么[可能]有解药？”他说：“生化病毒只要是研究者当初把它当成病毒了，它就有解药。”然后给我讲了这个过程。[听完]我傻了。但是我也觉的这是个巨大的希望，[随后]我[把这个消息]第一个先告诉了我身边的最重要的一个替我把关这方面情报的科学的一个助理。我说：“你马上到你们某[机构]找这些人研究研究，[看看]这话是否可靠？”[得到的]答案是：他是对的！
 
-我们也不知道每种疫苗提供的免疫力（部分的免疫或其他程度的免疫）能持续多长时间。 而且，一些疫苗在对抗某些变种，包括（最初在南非鉴定的） B.1.351 毒株，似乎功效有所降低。
+I was frozen on the spot, I said, “Are you kidding me? How could it be possible? How can a bioweapon virus has an antidote?” He said, “As long as the researchers of a bioweapon virus treated it as a virus when they developed it, there should be an antidote.” Then he explained the process to me. I was stunned. But I also felt that this could be a great hope. Then I forwarded this information to the most important assistant who has been helping me with verifying intelligence in the science field right away. I said: “Could you find people in your [institution] to research on this and find out whether the information is reliable or not?” The answer I got is: He is right!
 
-让我们担心的不仅仅是潜在的功效不足，（疫苗 ）还有很大的安全隐患。 全世界已经报道了许多（接种疫苗后的）不良反应。 就阿斯利康（AstraZeneca)和强生公司(Johnson&Johnson)开发的疫苗而言，对血液凝结副作用的担忧已导致一些国家限制、甚至中止其使用。
+然后我又经过核实，特别是他说的国内所谓的中央政治局、中央常委2020年所谓的《工作方式的重要提要》，重要提要。就因为这个问题现在，大家记住啊习[近平]身边没人啦。韩正不行了，本来也不怎么行；栗战书也靠边站了；丁薛祥也靠边站了，大家看到了吗？王沪宁也靠边站了，大家看到了吗？现在就剩下仨人，严格讲四个人[是习信任的]：他弟弟习远平，然后军方的许其亮，[习近平对]许其亮最近也半信半疑，[对许也很]恼火。完全剩下[信任]杨娘娘[杨洁篪]，王太监[王毅]，王太监[王毅]。
 
-在美国，4月12日发布的最新《疫苗不良事件报告 》（VAER）的数据显示，接种中共病毒疫苗后的不良事件报告超过了46,000例。妇女受到的影响尤其严重，占病例的77％。 许多妇女正经历的月经失调，增加了人们对疫苗可能会影响生育能力的担忧。
+Then I verified again, especially on what he said about the so-called “Important Synopsis of Working Methods” by the so-called Political Bureau of the Central Committee and the Central Standing Committee in 2020, or “Important Synopsis” for short. Please remember this: Exactly because of this [Important Synopsis], Xi Jinping has lost everyone around him. Han Zheng is over (he hasn’t been trusted anyway); Li Zhanshu also stepped aside; Ding Xuexiang also stepped aside, have you seen it? Wang Huning also stepped aside, have you seen it? Now there are only three people left. Strictly speaking, there are four people [that Xi trusts]: his younger brother Xi Yuanping, then Xu Qiliang from the military, but Xu Qiliang has become suspicious and annoying in Xi’s eyes recently. So this only leaves Concubine Yang (Yang JieChi) and Eunuch Wang (Wang Yi) that he still trusts.
 
-**2.****疫苗地****缘****政治**
+所以说你看兄弟姐妹们，这杨娘娘[杨洁篪]、王公公[王毅]两人和习大神还得隔着个门指挥许其亮，还有个弟弟习远平。这共产党还有未来吗？听说就这个开会的形式把大家全[吓]傻了，也就是给不给谁解药的问题，不是说你家人要解药[就给你]。听说韩正要给家人要一些解药犯大忌了。你[韩正]想干什么？你[韩正]想干什么？嗯？
 
-出于各种意图和目的，西方已经与中国和俄罗斯陷入了新的冷战。 紧张局势几乎每天都在升级。 在这种背景下，西方国家或公司有时会拒绝承认基于俄罗斯或中国疫苗的疫苗证书，反之亦然。 随着有关疫苗功效和安全性的坏消息不断出现，这样做的正当理由将会越来越多。
+So brothers and sisters, you can see that the Great God Xi can only command Xu Qiliang indirectly through Concubine Yang, Eunuch Wang Xi, and Xi Yuanping. So is there still hope for the CCP? I heard that the situation in the meeting really scared everyone, particularly, surrounding the question of whom to give the antidote. It’s not like you can request the antidote for anyone in your family. I heard that Han Zheng asked for some antidote for his family and this really touched the red line, making Xi think: “What do you want to do, Han Zheng?”
 
-在过去的一个周末，西方新闻媒体报道，中国疾病预防控制中心（the Chinese Center for Disease Prevention and Control）主任高福（George Fu Gao）已经公开承认，中国制造的疫苗目前对这种病毒的功效很低。 他说：“我们将解决现有的疫苗保护率不高的问题。”他补充说，调整剂量或顺序的免疫和混合疫苗也许可以提高疗效。
+这个解药啊，最后拿解药的人你一定记住：想要解药的人一定把拿解药的人弄死。这就是七哥在爆料[病毒]一出[现]，[刚]开始的时候就说过，[解药]叫“人尸丸”。看看那江湖上，那个什么任老妖[任我行]弄得泡的“人尸丸”。是不是啊？东邪西毒，吃下去用人尸体做的这个“人尸丸”，吃了以后你想再活？那就继续吃我“人尸丸”，必须听我的。这就[是]世界的“人尸丸”，你咋弄啊？苍天在上，啊苍天呐，苍天呐。
 
-从那以后，中国回溯了这些评论。 但是尽管如此，这一插曲还是给那些严重依赖中国生产的国家（包括许多拉丁美洲国家）带来了严重的问题。 如果中（共）国的疫苗不如最初想像的那样有效，那么西方一些国家将拒绝承认带有中（共）国疫苗名称的疫苗通行证的做法是完全可行的。 因此，疫苗护照不是让全球旅行自由顺畅，而是可能建立新的障碍。
+Regarding this antidote, those who eventually got the antidote must remember this: those who want the antidote must kill those who have got the antidote. This is like what I, your Brother Miles said at the very beginning of the pandemic, the antidote is called the “zombie pill”. The zombie pill is like what the old demon Ren Woxing (a figure in a martial arts novel) cooked, isn’t it? If those who have taken this zombie pill want to live, they have to continue to take the pills, so they must listen to the master. So this virus antidote is like the modern world version of the zombie pill. What do we do? Heavens, please have mercy on us!
 
-**3.****这项****任****务****的潜在影响正悄悄地蔓延**
+所以现在共产党现在乱了，从我发出那个盖特[之后]。我让大家简单看一下啊，大家就简单[看一下]，[可]别暴露信息啊，我别爆露信息啊。你看我简单[说一下]，每一个小时三千多个[信息]，每一个小时啊，每一个小时。国内很多战友，体制内的战友纷纷爆料：“七哥，这个[病毒解药]太重要，你说对了！看看中央警卫局，中央警卫局还有八一大楼什么人戴口罩什么人不戴口罩？”
 
-起初，SMART健康卡（SMART Health Cards）似乎除了接种信息之外，还包括一个人的全名，性别，出生日期，手机号码和电子邮件地址。 但是，尽管SMART健康卡（SMART Health Cards）广告为数字疫苗接种记录，但显然他们打算把健康卡用于更多用途。 该协议的公开信息指出，SMART健康卡（SMART Health Cards）是“可在整个医疗保健中使用的构件”，它包括管理不仅仅限于COVID-19（中共病毒）疫苗的完整免疫记录，还与公共卫生机构共享数据并且与医疗保健机构沟通 。
+Since I posted that Getter video, the CCP has been in chaos. I’ll let you guys take a look at it quickly, hoping not to reveal any private information. Simply put, I received more than 3,000 messages per hour. That’s per hour, per hour! Many fellow fighters in mainland China within the party system told me: “Brother Miles, this information is so important! You’re right! Look at the Central Guard Bureau, the Central Guard Bureau and the Eight-One Building and see who wears masks and who doesn’t.”
 
-该框架不太可能仅限于医疗保健信息。  疫苗集体倡议 （Vaccine Collective Initiative）和IBM公司都使用“数字钱包”一词来指代它们不同的数字健康通道，这表明经济活动可能成为框架功能不可缺少的的组成部分。  乔什·曼德尔（Josh C.Mandel）是微软健康（Microsoft Health）疫苗集体倡议（the Vaccine Collective Initiative）的SMART 健康卡（SMART Health Cards ）框架的开发者，他在最近的YouTube演讲中暗示，SMART 健康卡（SMART Health Cards ）可能很快被用做（类似租车之类的）商业活动的证件（ID）。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/608164998616c84f0ff26438](https://gtv.org/getter/608164998616c84f0ff26438) (1:08-1:26, 1:49-5:36, 6:30-7:39,8:05-8:50)
+鸣谢：感谢盘古小蚂蚁、Antsee-GTV、TING GUO提供中文文本于 [https://www.gnews.org/zh-hans/1127073/](https://www.gnews.org/zh-hans/1127073/)
 
-随着世界各地的中心银行忙于为中心银行数字货币或CBDC奠定基础，这一切都在发生。它引发了人们对数字疫苗护照被用作创建纯数字货币系统代替实物硬币和纸币的工具的担忧。这不是说将要发生，而是有可能发生。如果疫苗护照确实变成了数字货币钱包并且现金被淘汰了，那么选择退出（数字疫苗护照的计划）将更加困难。 选择加入将使我们受到前所未有的监视和控制。
+* * *
 
-**4.****创****建一个两****级****的社会****/****世界**
-
-从一开始Covid-19（中共病毒）就一直是不平等的大流行。 在以色列尤其如此，以色列早在病毒出现之前就已经是一个两级社会。 它最近成为第一个发起全国疫苗护照计划的国家，即所谓的“绿色通行证”（Green Pass）。 但其针对目标是以色列人，而不是巴勒斯坦人。 据《卫报》（The Guardian）报道，迄今为止，居住在被占领的西岸和加沙地带的500万巴勒斯坦人中，仅有超过4％的人已接种疫苗。 新增的Covid（中共病毒）病例重返​​历史新高，而以色列其他地区则处于去年6月以来的最低数。
-
-无论在哪儿使用，疫苗护照最终都会加剧社会分化。 那些能够接种疫苗的人可以重回貌似正常的生活，而那些没有疫苗护照的人则倍受冷落。这不仅会在国家内部发生，而且会在国与国之间发生。 随着以色列经济的重新开放，巴勒斯坦人在行动和活动上面临的限制可以说比疫情以前还要多。 但是，不仅仅是巴勒斯坦人发现自己被视为二等公民；出于宗教，道德或健康原因而拒绝接种疫苗的以色列人也受如此对待。 没有绿色通行证，他们将无法进入某些地方或参加某些活动。
-
-随着时间的流逝，这些人的生活变得越来越困难，找到工作的压力也会越来越大。 至少这就是伦敦经济学院的琼·科斯塔·丰特（Joan Costa-Font）等疫苗护照支持者所希望的。
-
-“疫苗护照可以被用作改变行为的诱因。 它们不仅提供一些直接的好处，而且标志着社会对个人的期望。 它们例证了人们被期望去遵守的社会规范。”
-
-但是医学期刊《BMJ》的一个观点警告说，强迫人们接种疫苗可能会产生相反的效果：
-
-“总而言之，有理由得出这样的结论：用于基本活动的疫苗护照可能会使最需要激励的人群失去兴趣，从而实际上破坏了疫苗的推出。 进一步地观察以色列的“绿色通行证”的计划，更证明了这一点。用通行证可以增加疫苗接种人数的证据是没有说服力的。对强迫的怀疑和关于不接种疫苗就不允许工作的报道已经引起了（人们对疫苗护照的）抵制，并且在已经担心侵犯公民权利的人们中间增加了不信任感。”
-
-**5.****丧****失****对****身体的自主权和完整性**
-
-强迫不情愿者接种实验性疫苗，显然违反了他们对身体的自主权和完整性。 根据《欧盟基本权利宪章》（the EU Charter of Fundamental Rights），“人人有权尊重自己的身心健康的权利。 在医学和生物学领域，必须特别注意以下几点：根据法律规定的程序，人们对担心的事情有选择和知情的同意权。”
-
-如果人的自主权和完整性确实是基本人权，那么疫苗护照的发放应取决于个人的知情同意，而不是像法国所建议的那样强制接受或强迫（是的，拒绝人们获得基本的服务是一种强迫手段）去做。 对于仅在紧急情况下获得批准的疫苗而言，尤其如此。
-
-**6.****在****对****待我****们****最宝****贵****的数据方面，大多数政府和科技巨****头****一直无法****赢****得我****们****的信任**
-
-疫苗护照引起了极大的隐私问题。 微软（Microsoft）是疫苗认证计划（the Vaccine Credential Initiative）的成员之一。像它这样对数据如饥似渴的公司将获得新的机会来跟踪我们的日常行为和活动，并与第三方共享该数据。 数据的安全性也存在着重大问题。 如果最近的历史曾经教过我们什么，那就是没有数据（无论多么私密或珍贵）是绝对安全的。
-
-疫苗证书可能包括我们所有最宝贵的数据：我们的生物识别数据。 而且这不太可能是安全的。 正如英国GCHQ国家网络安全中心（NCSC）前副主任彼得·亚普 （Peter Yapp）最近警告说的那样，建立另一个集中式数据库来存储我们更多的个人数据将为黑客和网络犯罪组织提供更多掠夺我们数据的机会：
-
-“集中式数据库意味着您将大量数据放在一个地方，因此它成为吸引类似黑客等的目标，就像一个蜜罐–它吸引了人们，他们将一路走来，因为那里有太多数据…作为一名软件工程师，我知道所有软件都有错误，错误会产生安全漏洞，这就是为什么在一个地方收集如此重要的大量数据是一个糟糕的主意。 这是疫苗证书的主意不该有的另一个原因。”
-
-**7.****不管政客****们****怎么****说****，疫苗****证书****都是永久性的**
-
-上周在英国，有关疫苗证书的辩论达到高潮之际，保守党试图缓解投票者的恐惧，所以坚持说该证书会是临时的。
-
-一位不愿透露姓名的内部人士说：“我认为这个临时证书将是在有限的时间内，并且该计划的持续时间将以月为单位。”  “（到时候）保守党将会不再说该证书是临时的了。”
-
-这个（临时疫苗证书的说法）是来自同一政府的，该政府曾经公开坚持了数月说根本不会考虑疫苗证书，但私下里却研究如何使用它。在创建了一个数字身份识别系统并解决了所有麻烦和开支之后， 而且该系统可以轻松地扩展其应用领域和用途，所以英国政府在几个月后无论如何也不会取消临时疫苗证书。正如历史一次又一次地告诉我们的那样，每当政府奖励自己新的临时权力时，他们通常都很难放弃这些临时权力。 毫无疑问，对于疫苗护照，通行证，证明书，任何政府的想法也会如此。
-
-参考链接：[https://twitter.com/zerohedge/status/1382139214809161729](https://twitter.com/zerohedge/status/1382139214809161729)
+字幕：【JennyL】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0

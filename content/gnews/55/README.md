@@ -1,91 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第256节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1133021/)
+## 中共太空计划 13000个卫星构建巨星星座
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1133049/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+翻译:康州盘古农场 – Layka
+校对:康州盘古农场 – 蓝精灵
+编辑:康州盘古农场 –蓝精灵
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/CUE.jpg)timesofindia.indiatimes.com
-本节要点：参议院确认的国务院高级官员，领导美国与欧盟等应对中共国的共同行动。共同面临的挑战和问题：中共国的经济挑战；中共国的民主和人权挑战；中共国有关的技术问题；中共国有关的国防问题；中共国的“一带一路倡议”。对抗中共国在世界各地推行独裁统治模式，支持欧洲努力寻找效益成本比高的华为5G技术替代品，与欧盟内的对应实体协调努力，对抗中共国的宣传。跟踪和反击中共国试图在多边论坛（包括在世界卫生组织）施加影响的企图。
+据《www.spacenews.com》作者：安德鲁·琼斯（Andrew Jones）2021年4月21日报道
+![]()![](https://gnews.org/wp-content/uploads/2021/04/AFB48CA8-65BA-4AF4-8FCE-BE3475F46A93.jpeg)*电信服务的卫星覆盖范围图示。 出处：欧洲航天局(ESA)-科学处*
+赫尔辛基和中共国将协调主要太空参与者国家，来监督和参与中共国国家卫星互联网巨型星座的建设和运营。
 
-256 加强跨大西洋合作的战略，合作涉及中共国问题
+高级官员最近的评论表明，改变太空部门的国有企业的早期星座计划，目前正在推进中。这些计划可能被纳入更大的“国网”或“国家网络”卫星互联网项目。
 
-（a）通常情况 – 不迟于本法颁布之日后90天，总统应向参议院外交关系委员会和军事委员会以及众议院外交事务委员会和军事委员会，简要介绍美国将如何加强与欧盟、北约，以及欧洲伙伴国合作的战略，这些合作涉及应对与中共国的关系。
+去年9月，中共国提交给国际电信联盟（ITU）的频谱分配文件显示，计划建造两个类似的“ GW”低地球轨道星座，总计12992颗卫星。
 
-（b）要素 – （a）小节要求的简报应做到以下几点：
+档案显示，GW的计划包括子星座，高度在500-1145公里之间，倾斜度在30-85度之间，卫星将在一定频带范围内运行。
 
-（1）确定参议院确认的国务院高级官员，该官员领导美国与欧盟、北约和欧洲伙伴国合作的努力，以推进对中共国的共同行动。
+中国主要的太空承包商，中国航空航天科学技术公司（CASC）的高级官员鲍为民，3月7日在接受《上海证券报》采访时，首次公开承认了超级星座计划：“我们正在计划和开发天基互联网卫星，并已经发射了测试卫星。”鲍补充说，“还将建立一个“国家网络”（国网）公司，负责卫星互联网建设的总体规划和运营。”
 
-（2）确定美国和欧洲伙伴在技术、贸易和经济实践方面，对中共国的政策趋同和分歧的关键点。
+周一，中国航空航天科学技术公司的子公司之一，中国航天卫星有限公司的董事长葛玉军，告诉《澎湃新闻》，国有巨头姐妹集团（1）中国航天飞机集团和（2）中国航天科技和工业公司（CASIC），之前开发的红岩和宏运宽带星座将被修改并纳入新计划中。葛说，“国家有关部门”正在对星座建设进行总体规划，而且他了解到红岩和中国航天科技和工业公司的宏运原始计划将“经历重大变化”。
 
-（3）描述为促进与欧洲同行在这方面的共同利益所做的努力-
-（A）中共国的经济挑战；
-（B）共国面临的民主和人权挑战；
-（C）中共国有关的技术问题；
-（D）中共国有关的国防问题；以及
-（E）制定一项全面战略，以回应中共国政府建立的“一带一路倡议”。
+这两个星座都是在2018年左右宣布的，由数百颗低地球轨道的通信卫星组成。此后，发射了一些技术验证卫星。中国航天科技和工业公司计划在2022年之前将60颗红岩卫星送入轨道。
 
-（4）描述国务院和国防部内负责与欧洲伙伴，就中共国问题进行接触的主要地区和职能机构之间的协调机制。
+评论表明，旧的星座可能被纳入新的，更大的“国家网络”项目的一部分。目前尚不清楚该项目将如何进行，但卫星互联网的发展已成为国家优先事项。中国国家发展和改革委员会（NDRC）于2020年4月将“卫星互联网”添加到“新基础设施”列表中。最近批准的2021-2026年的第十四个五年计划和“到2035年的长期目标也注明了”呼吁建立一个综合的通信网络， 地球观测和导航卫星。
 
-（5）详细介绍截至简报会召开之日所做的外交努力，以及未来与欧洲伙伴合作的计划，以对抗中共国在世界各地推行独裁统治模式。
+中共国已经建设了北斗导航定位系统，并正在为中国高分辨率地球观测系统（CHEOS）部署高分卫星。此外，私有企业星系空间(Galaxy Space)于2020年推出了银河1号，以测试Q / V和Ka频段通信。今年早些时候，北京通信卫星技术发展有限公司获得中国互联网投资基金（CIIF）的政府的资助，用于卫星的研究和产业化。如果有的话, 尚不清楚这类公司将在国家网络项目中扮演什么角色。
 
-（6）详细说明截至该战略提交之日所做的外交努力，以及支持欧洲努力寻找效益成本比高的华为5G技术替代品的未来计划。
+安全世界基金会（Secure World Foundation）私人部门计划主管伊恩·克里斯坦森（Ian Christensen），认为“GW”或国家网络项目有可能为中共国实现许多目标。这些措施包括支持国内技术和经济发展目标，并为中共国的软实力外交和区域领导工作做出贡献。克里斯坦森说，“星座的发展也将提供国内就业，锚定空间相关的产业集群，并通过满足和促进家庭连通性需求为经济发展做出贡献，” 他补充说，该项目还可以用作软实力的工具，是一带一路倡议或附近地区外交努力的一部分。
 
-（7）详细说明美国的公共外交工具，包括美国国务院的《全球参与中心》（the Global Engagement Center），将如何与欧盟内的对应实体协调努力，以对抗中共国的宣传。
+诸如SpaceX的Starlink和OneWeb之类的星座已经在进行中，亚马逊本周为其Atlas 5的Kuiper宽带卫星订购了任务。GW星座计划的开展，将更迫切要求解决与巨型星座部署相关的问题（包括空间碎片和空间交通管理等）带来了更大的紧迫性。
 
-（8）描述国务院致力于美国和欧盟，就中共国问题进行接触的人员配置和预算资源，并提供执行该战略的年度资源需求评估。
+克里斯坦森说, “我个人将认真考虑成功部署GW星座的可能性。计划是紧迫的，并应进一步被强调，完善在部署和运行大型星座方面的全球协调方案，”“太空安全是美中两国分享共同利益的领域, 包括政府和私营部门行为者，但总体地缘政治趋势却使有意义的对话充满挑战。”
 
-（9）详细说明与欧洲伙伴合作的外交努力，以跟踪和反击中共国试图在多边论坛（包括在世界卫生组织）施加影响的企图。
+计划中的和正在发展的巨型星座，引起人们对轨道碎片风险增加的担忧。低地球轨道上越来越多的卫星也对目前太空生态状况构成威胁。
 
-（c）表格 -（a）节要求的简报应保密。
+原文链接：https://spacenews.com/china-is-developing-plans-for-a-13000-satellite-communications-megaconstellation/
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-（d） 咨询 – 不迟于本法颁布之日后90天，此后每隔180天，国务卿应就战略的制定和实施，与适当的国会委员会进行磋商。
-（本节完）
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-原文链接：
 
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
-
-文字整理：
-
-SEC. 256. STRATEGY TO ENHANCE TRANSATLANTIC COOPERATION WITH RESPECT TO THE PEOPLE’S REPUBLIC OF CHINA.
-
-(a) IN GENERAL. — Not later than 90 days after the date of the enactment of this Act, the President shall brief the Committee on Foreign Relations and the Committee on Armed Services of the Senate and the Committee on Foreign Affairs and the Committee on Armed Services of the House of Representatives on a strategy for how the United States will enhance cooperation with the European Union, NATO, and European partner countries on managing relations with the People’s Republic of China.
-
-(b) ELEMENTS. — The briefing required by subsection (a) shall do the following:
-
-(1) Identify the senior Senate-confirmed Department of State official that leads United States efforts to cooperate with the European Union, NATO, and European partner countries to advance a shared approach with respect to the People’s Republic of China.
-
-(2) Identify key policy points of convergence and divergence between the United States and European partners with respect to the People’s Republic of China in the areas of technology, trade, and economic practices.
-
-(3) Describe efforts to advance shared interests with European counterparts on—
-
-(A) economic challenges with the People’s Republic of China;
-
-(B) democracy and human rights challenges with respect to the People’s Republic of China;
-
-(C) technology issues with respect to the People’s Republic of China;
-
-(D) defense issues with respect to the People’s Republic of China; and
-
-(E) developing a comprehensive strategy to respond to the Belt and Road Initiative (BRI) established by the Government of the People’s Republic of China.
-
-(4) Describe the coordination mechanisms among key regional and functional bureaus within the Department of State and Department of Defense tasked with engaging with European partners on the People’s Republic of China.
-
-(5) Detail diplomatic efforts made up to the date on which the date of the briefing and future plans to work with European partners to counter Chinese advancement of an authoritarian governing model around the world.
-
-(6) Detail the diplomatic efforts made up to the date on which the strategy is submitted and future plans to support European efforts to identify cost effective alternatives to Huawei’s 5G technology.
-
-(7) Detail how United States public diplomacy tools, including the Global Engagement Center of the Department of State, will coordinate efforts with counterpart entities within the European Union to counter Chinese propaganda.
-
-(8) Describe the staffing and budget resources the Department of State dedicates to engagement between the United States and the European Union on the People’s Republic of China and provide an assessment of out-year resource needs to execute the strategy.
-
-(9) Detail diplomatic efforts to work with European partners to track and counter Chinese attempts to exert influence across multilateral fora, including at the World Health Organization.
-
-(c) FORM. — The briefing required by section (a) shall be classified.
-
-(d) CONSULTATION. — Not later than 90 days after the date of the enactment of this Act, and every 180 days thereafter, the Secretary of State shall consult with the appropriate congressional committees regarding the development and implementation of the strategy.
 
 0

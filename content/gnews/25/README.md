@@ -1,63 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】George Floyd，CCP病毒战、鸦片战、伪钞战的受害者
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1133711/)
+## 美参议员提出法案，要求拜登解密武毒所相关情报
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1133757/)
 
-作者：纽约香草山福音部 JingleChenge
+翻译:康州盘古农场 – Mike Li
+校对:康州盘古农场 – 柯镇恶
+编辑:康州盘古农场 – 心照
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
+据《www.hawley.senate.gov》2021年4月22日报道
 
+今天，美国参议员乔什·霍利（Josh Hawley,R-Mo）和迈克·布劳恩（Mike Braun ,R-Ind）提出了《2021年COVID-19起源法案》，要求拜登政府解密与武汉病毒研究所（WIV）和新冠病毒大流行的起源之间任何潜在联系有关的情报。
 
+“一年多来，任何对武汉病毒研究所提出疑问的人，都被打成阴谋论者。世界需要知道这场大流行病是否是武汉实验室疏忽的产物，但中共已竭尽全力阻止可信的调查。这就是为什么拜登政府必须解密它所知道的关于武汉实验室的情况，以及北京试图掩盖大流行病起源的情况。”——参议员乔什·霍利
 
-相信读者一定知道George Floyd的大名，他因2020年5月25日死于Minneapolis警察执法过程中而闻名于世。
+布劳恩参议员说：“确定COVID-19大流行病的起源对于预防未来的大流行病至关重要。随着对病毒起源的调查和研究的继续，拜登政府应该解密与中国武汉生物研究实验室和COVID-19大流行病之间任何潜在联系有关的情报。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片54-1.png)
+前美国疾病控制和预防中心（Centers for Disease Control and Prevention,CDC）主任罗伯特·雷德菲尔德（Robert Redfield）最近表示，他认为Covid起源于武汉病毒研究所（WIV）。《华盛顿邮报》编辑部（Washington Post Editorial Board）呼吁拜登政府解密与该实验室有关的任何情报。
 
-BLM为他的死在全美甚至全世界超过2000座城市发动了大规模、持续的游行，但这些游行很快就变成了暴力的打、砸、抢。光是Minneapolis市，在George Floyd死后的两周内，就有超过570家商家被毁，大部分是被火烧的，更不用说过去近一年全美的损失。
+霍利参议员是第一个在2020年3月呼吁对中共掩盖冠状病毒的传播进行国际调查的国会议员。此外，他在2020年4月提出立法，以允许美国公民起诉中共国政府要求赔偿。
 
-华春莹华大妈也在2020年5月30号在推特凑热闹，”I can’t breathe”。真是不要脸，也不想想CCP国执法人的暴力，每天不知道有多少个George Floyd死在他们手下。
+文章来源：https://www.hawley.senate.gov/hawley-braun-introduce-bill-requiring-biden-declassify-wuhan-lab-leak-intelligence
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-George Floyd的死，更是左派眼中的香馍馍。为了达到解散警察和执法者的目的，对有色人种生命从不感兴趣的左派真是拼了。不但在2020年6月8日为其下跪，在2021年4月20日, 佩婆还发表讲话，感谢George Floyd死了。George Floyd真是死得其所，恰恰好成了左派献祭的羔羊。
-
-2021年4月17号的周六，加州左派女疯参议员Waters更是特地跑到Hennepin County District Court所在地Brooklyn Center煽风点火，号召抗议者用激进手段向法庭施压，不达目的誓不罢休。
-
-而BLM的创办人呢，刚刚才买了好几套豪华别墅。
-
-George Floyd的家属也获得了两千七百万美金的巨额赔偿，是Minneapolis地区有史以来最高的赔偿。满心希望他们能善用此款。
-
-似乎各人都能够利用George Floyd的死而有所得到。
-
-唯有执法人Chauvin被定罪的，他得在监狱里呆好几十年。
-
-谁都知道George Floyd的死起因于使用来自CCP的伪钞；他当天被捕前还吸食了大量来自CCP的芬太尼，以至于被捕时口吐泡沫，一直喊”I can’t breathe.”；他在2020年4月3日CCP病毒检测阳性；他的不健康生活导致他有动脉硬化和高血压，一条动脉被堵90％，另一条动脉被堵75％。警察的执法只不过是那最后一根稻草。George Floyd真正的死因是中了CCP的毒，Chauvin只不过是为了平息所谓的民意的替罪羔羊。
-
-参考：
-
-1. War Room Pandemic Ep 220，Ep 886
-
-2. [https://en.wikipedia.org/wiki/Murder\_of\_George\_Floyd](https://en.wikipedia.org/wiki/Murder_of_George_Floyd)
-
-3.[https://thehill.com/homenews/house/501633-pelosi-schumer-kneel-in-silence-for-almost-9-minutes-to-honor-george-floyd](https://thehill.com/homenews/house/501633-pelosi-schumer-kneel-in-silence-for-almost-9-minutes-to-honor-george-floyd)
-
-4. [https://wgntv.com/news/nancy-pelosi-thanks-george-floyd-for-sacrificing-your-life-for-justice-later-criticized/](https://wgntv.com/news/nancy-pelosi-thanks-george-floyd-for-sacrificing-your-life-for-justice-later-criticized/)
-
-5. [https://www.npr.org/sections/live-updates-protests-for-racial-justice/2020/06/04/869278494/medical-examiners-autopsy-reveals-george-floyd-had-positive-test-for-coronavirus](https://www.npr.org/sections/live-updates-protests-for-racial-justice/2020/06/04/869278494/medical-examiners-autopsy-reveals-george-floyd-had-positive-test-for-coronavirus)
-
-校对/发稿：飞虹
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1
