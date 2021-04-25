@@ -1,101 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第301、302、303节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1135106/)
+## 「疫情下的西班牙」欧洲复苏的另一个宝库 — 家庭储蓄
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1135170/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+- **作者：Gokuabuela**
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/H-8.jpg)newsfirst.lk
-“副标题C——应对中共国的区域战略”的“第三部分——南亚和中亚”2节（261、262），“第四部分——非洲”6节（271至276节），“第五部分——中东和北非”2节（281、281），“第六部分北极地区”1节，“第七部分——大洋洲”2节（291、292）暂时略译。
 
-本文为“标题3——我们价值观的投入”的3节。
+***更多真相，请关注*** ***[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-标题3——我们价值观的投入
+**西班牙2021年4月24日电/西喜社——**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/021002lq955905bfef8502-1.jpg)
+对流动性的限制使欧洲家庭在2020年的消费下沉，然而，由于收入保护政策，他们的收入仍然不受影响。其结果是出现了储蓄热潮，等待转化为消费和投资。
 
-第301节 批准拨款支持香港民主运动
+中共病毒危机造成的经济衰退是由各国颁布的大限制造成的。为了补偿家庭，所有国家都制定了收入保护的社会政策，要么通过ERTE（欧洲模式，政府暂时托管失业工人），要么通过对家庭的支票（美国模式，直接发钱）。因此，在大多数发达国家，家庭总收入仍然是有保障的。
 
-（a）为促进香港的民主，为国务院的《民主、人权和劳工局》（the Bureau of Democracy, Human Rights, and Labor）在2022财政年度授权拨款一千万美元。
+相比之下，自大流行病开始以来，由于限制措施减缓了购买，家庭消费急剧下降。例如旅游或休闲，还有你几乎不能出去，你就不买衣服或不更换汽车，加上害怕病毒，你就很少出门。疫情期间受保护的收入和消费的崩溃的总和导致了储蓄的历史性增长。
 
-（b）管理 – 国务卿应在国务院指定一个办公室，负责管理和协调国务院内部和整个美国政府提供第（a）小节所述的资金。
+欧洲家庭在2020年产生了近5千亿欧元的超额储蓄。2020年，欧元区家庭的总储蓄为1.44万亿，其中因为疫情而产生的超额部分为5千亿。
 
-第302节 对在新疆维吾尔自治区实施有关强迫劳动的制裁
+这种集中于中高收入的储蓄，是欧洲经济在未来几个季度的巨大刺激。
 
-（a）通常情况 – 对《2020年维吾尔族人权政策法》（the Uyghur Human Rights Policy Act of 2020）（公共法116-145）第6（a）（1）节；《美国法典》第22编第6901节注解）的修订-
+当健康状况恢复正常时，调动这些储蓄的关键将是家庭的信心。因为如果没有信心，所有这些钱都会在国内经济可能变得更加复杂的恐惧中保持瘫痪。2021年3月，欧洲家庭的经济情绪恢复了这一指标的历史平均水平，归功于2个因素，家庭收入保护政策和对疫情好转的预期。
 
-（1）将（E）项改为（F）项；以及
+欧盟委员会本周公布了一份基于信心调查的关于危机导致的家庭财务状况的详细研究。报告显示“因为疫情而被限制的消费，反而提升了对财务状况的乐观倾向。”
 
-（2）在（D）项后插入以下内容：“（E）与强迫劳动有关的严重侵犯人权（行为）。”
+正如已经指出的那样，2020年欧元区积累的超额储蓄达4920亿欧元。为了理解这个数字的规模，只需提供一个数字：如果所有这些金额在2021年被转化为国内需求（投资或消费），它将使国内生产总值增加4.3%。也就是说，光是储蓄就会产生欧元区有史以来最高的历史增长。
 
-（b）生效日期；适用性 -（a）款所作的修订 –
+就西班牙而言，家庭储蓄总额为1080亿欧元，超额储蓄达到608亿欧元。调动这一数额将意味着对国内生产总值的提升达到5.4%，也就是说，几乎是2020年所遭受的历史衰退的一半。
 
-（1）自本法颁布之日起生效；以及
+然而，并非所有家庭的情况都一样，特别是对低收入人群和年轻人，以及那些在疫情开始前就在失业状态的人（他们不受家庭收入保护政策保护），成千上万的工人失去了工作，却没有得到补偿，也无权领取失业救济金，这是贫困的基础。此外，对有孩子的家庭援助的稀缺性，意味着最脆弱的群体被公共政策抛弃。
 
-（2）适用于《2020年维吾尔族人权政策法》第6（a）（1）节要求的在该颁布日期之后提交的第一份报告。
+在估计引导储蓄以重新激活经济方面，不平等的增加是一个非常相关的因素。原因是高收入家庭的消费倾向较低，主要是因为他们目前的收入已经足以满足所有的消费需求。相比之下，下层阶级把赚来的钱都花光了，没有足够的资源来储蓄。这意味着，在未来几个月里，高收入者积累的储蓄能否被调动起来是无法预测的。因此，关键在于中产阶级如何表现，他们才是有能力 消费储蓄去旅行、换车或犒劳自己的社会群体。
 
-第303节 对在新疆维吾尔自治区蓄意强奸、强迫堕胎、强制绝育或非自愿避孕实施的制裁
+**简评：**
 
-（a）通常情况 -《2020年维吾尔族人权政策法》（公共法116-145）第6（a）（1）节；《美国法典》第6901节注释）经第302节修订后，进一步修订 –
+**疫情期间，欧洲和美国都花费了大量的金钱，对受疫情影响的民众进行补贴。因为限制令，消费下降了，反而引起了储蓄的增加，这成为欧洲在疫情后复苏经济的重要支撑。**
 
-（1）将（F）项改为（G）项；以及
+**在看到欧洲国家的福利政策，以及失之东隅，收之桑榆的戏剧性效果，我们应该还看到几个负面的因素：消费的下降，让很多中小型企业难以为继，比如一些小型餐厅，小服装店等，他们的业主很多是没有被纳入家庭收入保护计划的，这是一个需要关注的人群。**
 
-（2）在（E）项后插入以下内容：“（F）蓄意强奸、强迫堕胎、强迫绝育或非自愿避孕政策和行为。”
+**所有的乐观估计是建立在夏季之前，疫情开始好转。但是，如果没有认识到病毒是生物武器的本质，想靠疫苗接种来结束疫情，终将会被证明是想多了。**
 
-（b）生效日期；适用性 -（a）款所作的修订 –
+**欧洲经济需要赶时间，因为疫情，超发了大量货币，急需迅速恢复经济活动，利用消费和投资，来消化通胀。如果经济迟迟得不到恢复，疫情依旧持续的话，还会产生更多的公共债务，更多的超发，终将悬着一把达摩克利斯之剑。**
 
-（1）自本法颁布之日起生效；以及
+**审核：蚂蚁兄弟 校对：阿伯塔 发稿：信心满满**
 
-（2）适用于《2020年维吾尔族人权政策法》第6（a）（1）节要求的在该颁布日期之后提交的第一份报告。
+**新闻来源：**[机密报](https://www.elconfidencial.com/economia/2021-04-24/gran-plan-recuperacion-europeo-medio-billon-ahorrado-familias_3047895/)
 
-（3节完）
-
-原文链接：
-
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
-
-文字整理：
-
-TITLE III—INVESTING IN OUR VALUES
-
-SEC. 301. AUTHORIZATION OF APPROPRIATIONS FOR PRO 4 MOTION OF DEMOCRACY IN HONG KONG.
-
-(a) AUTHORIZATION OF APPROPRIATIONS. — There is authorized to be appropriated $10,000,000 for fiscal year 2022 for the Bureau of Democracy, Human Rights, and Labor of the Department of State to promote democracy in Hong Kong.
-
-(b) ADMINISTRATION. — The Secretary of State shall designate an office with the Department of State to administer and coordinate the provision of such funds described in subsection (a) within the Department of State and across the United States Government.
-
-SEC. 302. IMPOSITION OF SANCTIONS RELATING TO FORCED LABOR IN THE XINJIANG UYGHUR AUTONOMOUS REGION.
-
-(a) IN GENERAL. — Section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 (Public Law 116–145; 22 U.S.C. 6901 note) is amended—
-
-(1) by redesignating subparagraphs (E) as subparagraph (F); and
-
-(2) by inserting after subparagraph (D) the following:
-
-‘‘(E) Serious human rights abuses in connection with forced labor.’’
-
-(b) EFFECTIVE DATE; APPLICABILITY. — The amendment made by subsection (a)—
-
-(1) takes effect on the date of the enactment of this Act; and
-
-(2) applies with respect to the first report required by section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 submitted after such date of enactment.
-
-SEC. 303. IMPOSITION OF SANCTIONS WITH RESPECT TO SYSTEMATIC RAPE, COERCIVE ABORTION,
-
-FORCED STERILIZATION, OR INVOLUNTARY CONTRACEPTIVE IMPLANTATION IN THE XINJIANG UYGHUR AUTONOMOUS REGION.
-
-(a) IN GENERAL. — Section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 (Public Law 116–145; U.S.C. 6901 note), as amended by section 302, is further amended—
-
-(1) by redesignating subparagraphs (F) as subparagraph (G); and
-
-(2) by inserting after subparagraph (E) the following:
-
-‘‘(F) Systematic rape, coercive abortion, forced sterilization, or involuntary contraceptive implantation policies and practices.’’.
-
-(b) EFFECTIVE DATE; APPLICABILITY. — The amendment made by subsection (a)—
-
-(1) takes effect on the date of the enactment of this Act; and
-
-(2) applies with respect to the first report required by section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 submitted after such date of enactment.
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 0
