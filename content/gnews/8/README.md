@@ -1,122 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】古道边组诗
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1138434/)
+## 羟氯喹和聚维酮碘咽喉喷雾可大幅降低中共病毒感染
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1138516/)
 
-作者：纽约香草山写作组 古道边
+**路仁**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/HCQQQQQQQQQQ.jpg)
+据[新加坡《海峡时报》](https://www.straitstimes.com/singapore/health/throat-spray-and-hydroxychloroquine-found-to-reduce-risk-of-covid-19-infection)报道，新加坡国立大学卫生系统（NUHS）的一组临床医生科学家团队在国立大学医院（NUH）内科的神经学高级顾问雷蒙德·塞特（Raymond Seet）副教授领导下进行了一项研究，证明口服羟氯喹（hydroxychloroquine）和用聚维酮碘咽喉喷雾（povidone-iodine throat spray)可使中共病毒感染概率降低20%之多。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/logo-5-768x103-1.jpg)
+该研究招募了3037个平均年龄33岁的匿名年轻人，大部分是来自大士南宿舍区（Tuas South Dormitory)的印度和巴基斯坦裔。实验之初这些人均做了检测呈阴性。在这个实验的时候，新加坡宿舍区中共病毒大流行，这些人和其他居民全部隔离和封闭在宿舍区里面。
 
+实验将将这些人分为五组，每组给予以下之一，持续六周：维生素C （vitamin C）（对照组），锌和维生素C（zinc and vitamin C），聚维酮碘咽喉喷雾剂（povidone-iodine throat spray)，羟氯喹（hydroxychloroquine）或伊维菌素 （ivermectin）。
 
+六周过后，采集了这些人血液对其中的中共病毒抗体进行检测。经检测发现，维生素C组中有**70****％**的人已被感染，而聚维酮碘咽喉喷雾（povidone-iodine throat spray)组中的**46****％**和羟氯喹组中的**49****％**的人已被病毒感染。
 
-#### 四月的天
+所有参与人员没有出现死亡和因为重症而住院的案例。因为这两种药物的半衰期都很短，所以每个人在服用药物后都得到了有效的保护。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片12-8.png)
+羟氯喹（hydroxychloroquine）是处方药，必须有医生处方才能买到。常见的副作用有头痛、头晕、腹泻、胃痉挛和呕吐。 如果片剂与食物一起服用，这些症状可能会减轻。
 
-四月的天
-是一张刚哭泣过的脸
-突然间就会又一次泪流满面
-
-压抑的雨声在窗外的墙面上爬行
-
-四月的雨把四月悲伤的脸
-一次又一次地洗了又洗
-尽量掩饰去年冬天的痛
-……
-四月注定是一个
-思念和流泪的季节
-……
-
-2021年4月13日晨：纪念病毒大流行的一年中逝去的生命
-
+聚维酮碘咽喉喷雾（povidone-iodine throat spray)则是非处方药，在各个药房的柜台或网站都可以购买。这无疑是对人类面临中共病毒威胁的一个好的选择。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/fdsafdsf-5.jpg)
 * * *
 
-#### 这是什么地方
+*编辑、发稿 文锦*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片11-9.png)
-
-这是什么地方
-人心如此的荒凉
-
-伊个巨大的谎言
-像厚厚的皑雪覆盖着弱小无知的民众
-
-自由的心
-是那只永远也飞不出笼子的鸟
-
-恶毒的病毒
-是恶棍丧尸们豢养的最凶残的猎狗
-躲在黑暗的每一个角落
-龇牙咧嘴
-随时准备着吞噬每一个
-毫无还手之力的生命
-……
-
-2021年4月15日晨；记于病毒期间无知的民众排着长长的队伍准备接种无效的病毒疫苗
-
-* * *
-
-#### 归途
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片10-13.png)
-
-归途
-踏着雨点
-城市的呼吸放到最缓慢的状态
-白日的伤痛
-使得城市匆忙而烦躁的夜空
-在车窗玻璃上落下了
-几滴无法言语的泪滴
-红色刺眼的路灯
-瞪着充满血丝的眼睛
-注视着每一位为了生活
-而拼命奔跑的归途人
-没有风的陪伴
-马路两旁的树完全走神地
-呆呆站着
-马路似乎也要睡着了
-但仍然静静地倾听着归途人的疲倦
-……
-
-2021年4月23日晚写于马路边，感叹民众生活的无奈和艰辛
-
-* * *
-
-#### 夜
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片9-17.png)
-
-夜
-揉碎了白日匆忙的脚步
-夜
-捂住了喧嚣的吵杂
-夜
-点燃了光明的憧憬
-夜
-饲养了伟大的梦
-夜
-煅出了思念的刀
-……
-
-2021年3月27日夜
-
-校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2.jpg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++2
