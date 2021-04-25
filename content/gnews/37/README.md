@@ -1,101 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第301、302、303节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1135106/)
+## 浅谈《2021战略竞争法案》
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1133384/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+```
+参考来源：美国国会官网
+发布时间：2021年4月23日
+评论： Michael.Tonny
+```
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/H-8.jpg)newsfirst.lk
-“副标题C——应对中共国的区域战略”的“第三部分——南亚和中亚”2节（261、262），“第四部分——非洲”6节（271至276节），“第五部分——中东和北非”2节（281、281），“第六部分北极地区”1节，“第七部分——大洋洲”2节（291、292）暂时略译。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-13-116-scaled.jpg)图片来源：《2021战略竞争法案》截图
+2021年4月21日，美国参议院外交关系委员会以21票赞成，1票反对通过了《Strategic Competition Act of 2021》法案，中文直译为《2021战略竞争法案》。法案由民主党参议院交会员会主席梅南德兹（Robert Menendez）、参院外交委会共和党籍首席议员里契（Jim Risch）于2021年4月8日联合推出。在这份长达285页的提案中，提出对中共掠夺性经济作为、恶意影响力攻击、数字威权、军事扩张、对台野心、压迫香港与新疆等对美威胁，提出美国运用所有战略、经济与外交工具，推动印太战略，应对中共的挑战。
 
-本文为“标题3——我们价值观的投入”的3节。
+该法案成为美国近年来最重大的抗中法案，或者说灭共法案。美国两党先后有几十名议员提出各自的修正案，希望将自己想法纳入这部历史性法案中，在这场浩浩荡荡的灭共大潮中，都能分得一杯羹。但为了确保该法案尽快获得参众两院通过，仅有少数修正案获得被纳入的机会。
 
-标题3——我们价值观的投入
+#### 简评：
 
-第301节 批准拨款支持香港民主运动
+**这是美国两党第一份跨党派共同制订针对中共国的未来战略方針的重大法案，标志着以国家法律的名义，从政治、外交、经济等多种战略工具全面对抗中共。美国朝野两党在灭共问题达成一致的里程碑式法案，中共（CCP）应当明白，灭共已经是美国两党共同的需要，不会因总统的更替而有所改变。**
 
-（a）为促进香港的民主，为国务院的《民主、人权和劳工局》（the Bureau of Democracy, Human Rights, and Labor）在2022财政年度授权拨款一千万美元。
+**爆料革命和新中国联邦，以及英雄科学家闫丽梦博士，对中共和中共病毒的深刻揭露，让世界开始觉醒。**
 
-（b）管理 – 国务卿应在国务院指定一个办公室，负责管理和协调国务院内部和整个美国政府提供第（a）小节所述的资金。
+**中共病毒、中共霸权对全世界的威胁，是对国际规则和国际秩序的严重挑战，严重损害国际经济繁荣。至今为止，中共中共病毒已经感染全世界接近1.5亿人，夺去无数无辜的生命。目前，中共还在加大生化武器病毒研发，在世界各地投毒，世界各地反中共的国家，经常爆出中共病毒新的变种，只要中共存在一天，中共病毒就不可能消失，中共的存在，是对全世界继续运行和人类基本生存的严重威胁**。
 
-第302节 对在新疆维吾尔自治区实施有关强迫劳动的制裁
+**中共在意识形态领域，包含孔子学院，对美国和世界全方位的渗透，已经对全世界造成巨大威胁。中共的存在，是对自由、民主、人权、法治、国际法、多边主义自由公正的经济秩序在内的普世价值和基本国际准则的疯狂践踏。**
 
-（a）通常情况 – 对《2020年维吾尔族人权政策法》（the Uyghur Human Rights Policy Act of 2020）（公共法116-145）第6（a）（1）节；《美国法典》第22编第6901节注解）的修订-
+**在新中国联邦和全世界爱好和平的人们共同努力下，中共军事扩张的野心，对全世界造成威胁，中共的真实嘴脸越来越大白于天下。包含武力恐吓台湾，对台湾海峡两岸和平与稳定的重要威胁。南中国海大量建造人工岛礁用于军事设施，单方面改变东中国海现状的企图。地中海、中东，东南亚、非洲、南美，中共表现出的野心；香港人权危机；新疆、西藏、内蒙的种族灭绝政策，都是对全世界的极大威胁。**
 
-（1）将（E）项改为（F）项；以及
+**美国两党联合提出的《2021战略竞争法案》法案，应当很快会顺利在参众两院得以顺利通过，标志着对抗中共，进而消灭中共，在美国以国家法律形式进行。全世界正义的人们，为了人类的共同福祉，灭共成为人类共同的话题、行动和目标！
+**（本文的简评只代表作者/译者观点，跟GNEWS平台无关）
 
-（2）在（D）项后插入以下内容：“（E）与强迫劳动有关的严重侵犯人权（行为）。”
+新闻来源链接：🔗[S.1169 – Strategic Competition Act of 2021](https://www.congress.gov/bill/117th-congress/senate-bill/1169/text)
 
-（b）生效日期；适用性 -（a）款所作的修订 –
+* * *
 
-（1）自本法颁布之日起生效；以及
-
-（2）适用于《2020年维吾尔族人权政策法》第6（a）（1）节要求的在该颁布日期之后提交的第一份报告。
-
-第303节 对在新疆维吾尔自治区蓄意强奸、强迫堕胎、强制绝育或非自愿避孕实施的制裁
-
-（a）通常情况 -《2020年维吾尔族人权政策法》（公共法116-145）第6（a）（1）节；《美国法典》第6901节注释）经第302节修订后，进一步修订 –
-
-（1）将（F）项改为（G）项；以及
-
-（2）在（E）项后插入以下内容：“（F）蓄意强奸、强迫堕胎、强迫绝育或非自愿避孕政策和行为。”
-
-（b）生效日期；适用性 -（a）款所作的修订 –
-
-（1）自本法颁布之日起生效；以及
-
-（2）适用于《2020年维吾尔族人权政策法》第6（a）（1）节要求的在该颁布日期之后提交的第一份报告。
-
-（3节完）
-
-原文链接：
-
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
-
-文字整理：
-
-TITLE III—INVESTING IN OUR VALUES
-
-SEC. 301. AUTHORIZATION OF APPROPRIATIONS FOR PRO 4 MOTION OF DEMOCRACY IN HONG KONG.
-
-(a) AUTHORIZATION OF APPROPRIATIONS. — There is authorized to be appropriated $10,000,000 for fiscal year 2022 for the Bureau of Democracy, Human Rights, and Labor of the Department of State to promote democracy in Hong Kong.
-
-(b) ADMINISTRATION. — The Secretary of State shall designate an office with the Department of State to administer and coordinate the provision of such funds described in subsection (a) within the Department of State and across the United States Government.
-
-SEC. 302. IMPOSITION OF SANCTIONS RELATING TO FORCED LABOR IN THE XINJIANG UYGHUR AUTONOMOUS REGION.
-
-(a) IN GENERAL. — Section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 (Public Law 116–145; 22 U.S.C. 6901 note) is amended—
-
-(1) by redesignating subparagraphs (E) as subparagraph (F); and
-
-(2) by inserting after subparagraph (D) the following:
-
-‘‘(E) Serious human rights abuses in connection with forced labor.’’
-
-(b) EFFECTIVE DATE; APPLICABILITY. — The amendment made by subsection (a)—
-
-(1) takes effect on the date of the enactment of this Act; and
-
-(2) applies with respect to the first report required by section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 submitted after such date of enactment.
-
-SEC. 303. IMPOSITION OF SANCTIONS WITH RESPECT TO SYSTEMATIC RAPE, COERCIVE ABORTION,
-
-FORCED STERILIZATION, OR INVOLUNTARY CONTRACEPTIVE IMPLANTATION IN THE XINJIANG UYGHUR AUTONOMOUS REGION.
-
-(a) IN GENERAL. — Section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 (Public Law 116–145; U.S.C. 6901 note), as amended by section 302, is further amended—
-
-(1) by redesignating subparagraphs (F) as subparagraph (G); and
-
-(2) by inserting after subparagraph (E) the following:
-
-‘‘(F) Systematic rape, coercive abortion, forced sterilization, or involuntary contraceptive implantation policies and practices.’’.
-
-(b) EFFECTIVE DATE; APPLICABILITY. — The amendment made by subsection (a)—
-
-(1) takes effect on the date of the enactment of this Act; and
-
-(2) applies with respect to the first report required by section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 submitted after such date of enactment.
+***编辑整理/校对:** Ting Guo*
 
 0
