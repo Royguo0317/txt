@@ -1,117 +1,103 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/04/25 英喜时事速递
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1137329/)
+## 英国大幅削减对中共国援助预算: 为何援助中共国？
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1137781/)
 
-收集：Filon，Daniel，Alicia
-*（世界协调时）部分信息收集于网络世界的各方，请自行甄别*
+新闻来源：《英国快报》| 作者：Kate Whitfield | 发布时间：2021年4月24日
+翻译/简评：原乡人 | 校对：Beicy-数学老师 | 审核：万人往 | Page：我是球大哥
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/coronavirus1.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/agWwBkElZBpqu/images/d0f0a55f-0837-499b-a9f9-529de7ca915a.jpg?asset_id=ea3af2c2-1f67-4aa2-8c67-3246422fb783&amp;img_etag=%22f76b771b0481a3fb48af2e0400629259%22&amp;size=1024)](https://spark.adobe.com/page/agWwBkElZBpqu/images/d0f0a55f-0837-499b-a9f9-529de7ca915a.jpg?asset_id=ea3af2c2-1f67-4aa2-8c67-3246422fb783&amp;img_etag=%22f76b771b0481a3fb48af2e0400629259%22&amp;size=1024)
 
-## 秘密翻译组：[闫博士解释为什么中共病毒实验室来源问题和政治无关](https://gtv.org/getter/6083f0878616c84f0ff33391)
+英国外交大臣多米尼克·拉布于4月21日在下议会宣布，大流行致使英国经济萎缩，导致政府削减2021/22财政年度对外援助的预算，从占国民产值比例的0.7%降到了0.5%，总共81亿英镑，其中近1/2将用于非洲，1/3用于印太及南亚地区。同时拉布也宣布，对中共国援助预算将削减95%至90万英镑，同时强调此笔援助针对中共国的“开放社会和人权”。
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/闫博士-1.jpg)
+2020年7月英国议会曾质疑为何世界第二大经济体中共国一年接受英国7100万英镑的外援，外交部的“发展跟踪报告”对此做了解释：从2011年开始，英国联手中共国为发展中国家在农业、减灾、卫生、贸易和投资方面提供援助，由此一部分援助预算拨到了中共国名下。
 
-评论：中共≠中国人！是在任何时间任何地点都需要被首先阐明的观点。我们中国人远离中共要像躲瘟疫一样与它隔开万尺。中共注定在不久的未来会被世界消灭的连灰尘都剩不下，中国人可不能被它再继续绑架或带走了。
+回想2015年10月习近平到访英国，开启中英关系的“黄金时代”，至今不到6年，曾经的卿卿我我变成了如今的势不两立。美国4月16日通过《美日联合声明》收回了中共国在亚太地区维持和平的“总代理”权，英国4月21日通过削减援助预算收回了中共国帮助发展中国家脱贫致富的“总承包”权，其他西方国家是否也在行动，或者只做不说，这只有中共国的战狼外交部才知道。
 
-## 英喜农场Gnews：[中共病毒变种横扫印度 卫生系统崩溃](https://gnews.org/zh-hans/1134016/)
+英国没有100%砍掉对世界第二大经济体的对外援助，留下5%表明中共治下的中国仍旧是一个接受外援的发展中国家，区区90万英镑，但是指定专用于促进“开放社会及人权”。毕竟是英国绅士，从不撕破脸，只是点到为止，一介草民都可以明白的事，但愿中共国的战狼外交部也能看懂。
 
-![]()![](https://spark.adobe.com/page/QPbLpfEPZWUmx/images/4fc4208f-1c3b-4946-90e9-c10e4a2f0705.jpg?asset_id=914e5df7-f3fc-4785-b2f4-d20cf72d6c35&amp;img_etag=%221079b76dd28bc1746079c54fde252ee2%22&amp;size=2560)
+**原文翻译：**
 
+## 外国援助:英国为什么要向中共国提供援助？
 
-> 评论：中共所谓的有效控制疫情就是不把人当人，只当一个数字。任何非独裁体制的民主国家都无法像中共这样“高效”处理人民。印度疫情的二次爆发对医疗系统的击溃，是中共超限战生物武器的又一次得逞。只有消灭中共才能彻底解除疫情。
+英国政府已将其对中共国的援助预算削减了95%，针对此举人们褒贬不一，不过我们首先要问：为什么英国要向中共国提供援助？
 
+本周，外交大臣多米尼克·拉布公布了外交部海外发展援助（ODA）的2021/22年度预算。中共国将从外交、英联邦和发展事务部（FCDO译注即外交部）获得90万英镑援助，95%被削减。此前英国政府宣布本年度国民总收入的0.5%用于对外援助，而非以往承诺的0.7%，直到英国经济从冠状病毒大流行中恢复过来。
 
-## 意大利达芬奇农场Gnews：[病毒突变体在增加](https://gnews.org/zh-hans/1132392/)
+英国外交部将在未来一年内花费81亿英镑用于对外援助。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/yxbze.png)
+[!\[\]()!\[\](https://spark.adobe.com/page/agWwBkElZBpqu/images/233391b4-31e1-44b2-bc90-2238ccf9ca7d.jpg?asset_id=e27ea571-2d6a-4870-8b18-31cd8f409a24&amp;img_etag=%2256b6dd3629010bcb8ad994b300b8ffe4%22&amp;size=2560)](https://spark.adobe.com/page/agWwBkElZBpqu/images/233391b4-31e1-44b2-bc90-2238ccf9ca7d.jpg?asset_id=e27ea571-2d6a-4870-8b18-31cd8f409a24&amp;img_etag=%2256b6dd3629010bcb8ad994b300b8ffe4%22&amp;size=1024)中共国所获外援：外交大臣多米尼克·拉布本周公布了外交部海外发展援助预算（图片: 盖蒂）
 
+拉布说，“国家战略利益”已确定，大约一半资金将支持非洲的项目，“重心转移”于东非。
 
-> 评论：德国权威病毒机构报告：新的欧洲病毒突变样本会绕过先前感染和接种疫苗的人的免疫保护。事实再一次佐证闫丽梦天使的在去年的判断，不找准病毒源头而跟着新增病例去寻找所谓原因和疫苗都是徒劳无效的。这反而是中了CCP的超限战诡计的。
+拉布宣布，另有三分之一的援助预算将用于印度-太平洋和南亚地区，资助项目包括气候变化、开放社会以及英国脱欧后关系重建等领域。
 
+然而，中共国仅仅分到90万英镑，同以往的援外预算拨款相比减少了95%。
 
-## 香草山农场Gnews：[【世事解评】忠字舞还魂，文革回潮](https://gnews.org/zh-hans/1134636/)
+**为什么英国向中共国提出援助呢？**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS2306-%E3%80%90%E4%B8%96%E4%BA%8B%E8%A7%A3%E8%AF%84%E3%80%91%E5%BF%A0%E5%AD%97%E8%88%9E%E8%BF%98%E9%AD%82%EF%BC%8C%E6%96%87%E9%9D%A9%E5%9B%9E%E6%BD%AE.jpg)
+英国外交部《发展跟踪报告》指出：“中共国作为发展中世界的主要贸易伙伴和投资来源，（英国）与其合作具有巨大潜力以期驱动发展中国家的经济增长。”
 
+该跟踪报告对此作了进一步的解释：英国在结束了对华双边援助项目之后，于2011年与中共国建立了新型“全球发展伙伴关系”。
 
-> 评论：共党不除，中华大地会在中共愚人的统治下迷宫式的一遍又一遍的邪恶轮回着。只有经历过，知道真相的清醒之人才能了解到它们的邪恶凉意。不站出来发声，所有人会被恶魔裹挟着往前再次轮回着，无一可以幸免。
+英国外交部称：“作为首个以此方式与中共国合作的国际援助机构，英国外交部为本国组织也为国际社会开辟了新天地。”
 
+[!\[\]()!\[\](https://spark.adobe.com/page/agWwBkElZBpqu/images/468f014a-06b9-4a31-b513-3efafc1f7586.jpg?asset_id=601bc931-6901-4f00-8053-7d03138ec18a&amp;img_etag=%2297633c6d5e5f059211e740f1a3f60d02%22&amp;size=2560)](https://spark.adobe.com/page/agWwBkElZBpqu/images/468f014a-06b9-4a31-b513-3efafc1f7586.jpg?asset_id=601bc931-6901-4f00-8053-7d03138ec18a&amp;img_etag=%2297633c6d5e5f059211e740f1a3f60d02%22&amp;size=1024)中共国所获外援：中国的经济规模是英国的五倍（图片: 盖蒂）。
 
-## 央广网 ：【每日一习话】航天科技是科技进步和创新的重要领域
+“我们相信通过优势互补、经验互享、方案创新，双方将更好更多地为世界脱贫。”
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/20210424145052LR2B.jpg)
+开发项目主要包括的行业是农业、减少灾害风险、全球卫生、贸易和投资。
 
+在具体实施中，这意味着英国在中共国花钱用以发展教育、支持人权、打击非法野生动物交易和促进绿色能源项目，援助对象不仅限于中共国，而是中英联手合作援外的其他发展中国家。
 
-> 评论：在中共这种假骗偷、以及人人自危的恶性绞肉机体制下科技进步和创新根本就是句空谈。
+**政策调整**
 
+2020年7月，英国议员们要求审查为何政府在一年内给中共国拨款7100万英镑作为援助，尽管中共国的经济规模约为英国的五倍。
 
-## 央视新闻：习近平出席海军三型主战舰艇集中交接入列活动
+前保守党领袖Iain Duncan Smith说：“中共国是世界上第二大经济体，它正在通过低价打压西方公司来赢得全世界的业务。”
 
-![习近平出席海军三型主战舰艇集中交接入列活动_随州新闻网_国内动态_国内新闻_随州新闻_随州市新闻门户网站【官网】](https://lh3.googleusercontent.com/proxy/ppclaW4y-J7oi5Ci-tUz-TJ8OdW6EWqK_mHNHxS6VydLmEmDCJ2WgQN-r6Ve33kf24Y0e12LCGXSYAoNuSuEHgvjX1XXuL4Lsq0IflaCpp1YqTkQjjy_wShfLeInxy7ygmzp)
+“这迫使我们对与中共国的整体关系，以及对其依赖性进行战略评估，也包括此类毫无必要的援助开支。”
 
+该追踪报告称，随着大流行对英国经济造成的持续破坏，“砍预算的斧头落到”中共国身上只是时间问题。
 
-> 评论：慈禧太后出席新购船舰的接收仪式。懂历史的一笑了之，被洗脑的群情激昂。一切轨迹一点不差的轮回着，真就都等待着那只靴子的落地。
+拉布称，2021/22年期间的对外援助仍将资助促进“开放社会和人权”的倡议。
 
+**各界反应**
 
-## 澎湃新闻-钟南山：正在全力研发针对变异毒株的疫苗
+一些人赞扬了外交部的决定，而另一些人则对其进行了严厉的谴责。
 
-![钟南山：正在全力研发针对变异毒株的疫苗|医学|中国工程院|钟南山_新浪科技_新浪网]()![钟南山：正在全力研发针对变异毒株的疫苗|医学|中国工程院|钟南山_新浪科技_新浪网](https://n.sinaimg.cn/sinakd2021424s/763/w1000h563/20210424/3e1c-kpamyii8283810.jpg)
-
-
-> 评论：钟南山指出的全力研发针对变异毒株的疫苗却戳破了中共自己撒的谎，让中共对毒疫苗的有效性、群体免疫屏障、和病毒来源问题的解释更加的无法自圆其说。
-
-
-## 观察者网:美国新政府还未找到与中国打交道的正确路径
-
-![王毅：美国新政府还未找到与中国打交道的正确路径_合作]()![王毅：美国新政府还未找到与中国打交道的正确路径_合作](https://p0.itc.cn/q_70/images03/20210424/76b3e80eced640b0a0e690f742e6eeee.jpeg)
-
-
-> 评论：不是美国新政府还未找到与中共国打交道的正确路径，而是中共与美国政府已经没有沟通管道了。
-
-
-## 北京日报：90后硕士村主任，上任两年沦为阶下囚
-
-![90后硕士村主任，上任两年沦为阶下囚_北京日报APP新闻](https://lh3.googleusercontent.com/proxy/-XrU01TUpSpLY9For1uQ4sFnLC_gxqBygzBneSI8isaDdZWTqHu5TSxlphimKQVdxJa3BwbZVkqtaGLSrnR5dZ8EurhcvkD96XLQIgMlKuWqFnCYwvk1VeB5-FrAiOozmxBum7WeUaLlqHP0SZ-duHoGeS7AXZc)
-
-
-> 评论：92年硕士研究生当村主任两年收受贿赂变为阶下囚，根源是共匪体制。在中共专制体制下，任何人都无法独善其身，只会跟着这台绞肉机一起掉落深渊。
-
-
-## 中國新聞簡訊​
+担任下议院国际发展委员会主席的工党议员Sarah Champion告诉《政客》杂志(POLITICO)：“英国一方面削减对世界上一些最贫穷国家的援助，一方面依旧还给中共国提供外援，这令人震惊。”
 
 
 
-> 中國新聞簡訊​：接種兩劑仍確診 西安檢驗師恐染變種[#陝西](https://twitter.com/hashtag/%E9%99%9D%E8%A5%BF?src=hash&amp;ref_src=twsrc%5Etfw) 省西安市第八醫院隔離區一名檢驗人員3月18日確診，她在感染前已接種完成兩劑 [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw)-19疫苗。 [pic.twitter.com/EOLhag6vJe](https://t.co/EOLhag6vJe)
-> — 新唐人電視台 (@NTDChinese) [April 24, 2021](https://twitter.com/NTDChinese/status/1385872023281414145?ref_src=twsrc%5Etfw)
+[!\[\]()!\[\](https://spark.adobe.com/page/agWwBkElZBpqu/images/6995720b-1e6c-4933-b8f5-e6bec572b6db.jpg?asset_id=914965dd-8113-4a5d-8157-f67346408598&amp;img_etag=%220fd2d3a7b9b5cade5c44709d7f089b24%22&amp;size=2560)](https://spark.adobe.com/page/agWwBkElZBpqu/images/6995720b-1e6c-4933-b8f5-e6bec572b6db.jpg?asset_id=914965dd-8113-4a5d-8157-f67346408598&amp;img_etag=%220fd2d3a7b9b5cade5c44709d7f089b24%22&amp;size=1024)中共国所获外援：中共国国家主席习近平2015年到访伦敦（图片: 盖蒂）
 
+“我估计英国纳税人更愿意看到援助拨给那些处于人道主义危机边缘的国家，而不是给世界第二大经济体。”
 
+长期批评北京当局的保守党议员Bob Seely也对这次削减表示欢迎，他指出，中共国比英国更富有，而且拥有庞大的国防预算。
 
+然而，拉布也被指责在会议结束时在下议院宣布此重大资金削减，从而避免了议会的审查。
 
-> 评论：验证了爆料革命的情报，疫情一定会反复再来，疫苗对于这个中共生物武器病毒是毫无用处的！
+自由民主党的外交事务发言人Layla Moran说，政府正在躲避“国会议员的审查，因为他们知道这对英国在世界舞台上的声誉有多大的损害。”
 
+各人道主义团体也对此做出了严厉的反击。
 
-## 大纪元新闻网
+“救助儿童会”(Save the Children)、“乐施会”(Oxfam)以及“关爱国际”(Care International)等200多个非政府组织敦促政府扭转削减计划，他们认为这是“对世界上许多最边缘化人群的沉重打击。”
 
+他们在一份联合声明称：“作为七国集团峰会(G7)及第26届联合国气候变化大会(COP26)的主办国，英国今年有机会展示其领导力让世上每个人都免受大流行病、冲突和气候变化的影响，撤回为此所需的资助是错误之举。”
 
-
-> 与中共关系密切 俄一科学家叛国罪判监20年 
-> 
-> 莫斯科城市法院4月23日发布消息说，该法院在4月22日判处研究火箭发动机的科学家沃罗比耶夫20年徒刑，并罚款1百万卢布。沃罗比耶夫被指与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hash&amp;ref_src=twsrc%5Etfw) 关系密切。[#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hash&amp;ref_src=twsrc%5Etfw) [#科学家](https://twitter.com/hashtag/%E7%A7%91%E5%AD%A6%E5%AE%B6?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/RzCi6sNYgc](https://t.co/RzCi6sNYgc)
-> — 大纪元新闻网 (@dajiyuan) [April 24, 2021](https://twitter.com/dajiyuan/status/1386042276762292229?ref_src=twsrc%5Etfw)
-
-
-
-
-> 评论：沃罗比耶夫被指与中共关系密切. 全世界对中共的围剿逐步加紧，就连“老大哥”对中共也不放过。
-
+[原文链接](https://www.express.co.uk/news/world/1426455/foreign-aid-why-does-the-uk-give-aid-to-china-evg?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+daily-express-world-news+%28Express+%3A%3A+World+Feed%29)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
 编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/agWwBkElZBpqu/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/agWwBkElZBpqu/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+
+
 0
