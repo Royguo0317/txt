@@ -1,31 +1,140 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选主题专栏：中共再提乒乓外交，人类历史的耻辱
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1136599/)
+## 中共超限战灭港计划（四十六）中英联合声明谈判之密函
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1136903/)
 
-《路德社》精选主题专栏组出品
+搜集/撰文：岁月如歌 / 封面合成：文粤
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4259.jpg)
+中英双方最初的角力遇到最大的问题就是主权问题，双方不在一个点上虽然都是围绕主权移交“斗争”，但是著力点不在一个点上，英方也曾想过继续租借香港，也曾有过天方夜谭的想法，为此双方陷入僵局。为此英国前驻华大使柯利达说服夫人给赵紫阳密信，以巧妙字眼在主权问题上退让并承诺，打破僵局。说主权移交必须经过国会决议通过，而要通过就必须提交具体的方案以保持香港繁荣稳定。双方都不就具体问题磋商，哪来的具体方案呢？中共态度强硬就一句话“首先移交主权否则免谈”。 【首相府档案PREM19/1054 Future of Hong Kong Part 5】
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4254.jpg)图片来自世代忏悔录
+Perhaps it would be helpful if I strengthened that assurance. Provided that agreement could be reached between the British and Chinese Government on administrative arrangements for Hong Kong which would guarantee the future prosperity and stability of Hong Kong, and would be acceptable to the British Parliament and to the people of Hong Kong as well as to the Chinese Govenment, I would be prepared to recommend to Parliament that sovereignty over the whole of Hong Kong should be reverted to China.（如果我加强这一保证，也许会有所帮助。只要中英政府可以就香港的行政安排达成协议，这可以保证香港的未来繁荣和稳定，并可以接受布莱蒂斯议会和香港人民以及人民的接受。中国政府，我准备向国会建议，将整个香港的主权归还中国）
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/042501.png)图片从左至右分别为：亨利-基辛格，周恩来，毛泽东
+戴卓尔夫人信中还希望中方尽快同意谈判，取得中英港三方面满意的结果。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4255.jpg)图片来自世代忏悔录
+1983年4月底赵紫阳总理回覆，赞夫人以大局为重，说一切好办，接下来是谈怎样移交，而不是谈要怎样才移交。夫人应该知道为何谈了半年了都没有进展，并重申当日会谈立场，「中共必须不迟于1997年对整个香港恢复行使主权」，只要主权解决了，一切好商量，双方可以好好谈如何合作让香港继续繁荣挣大钱。
 
-北京时间2021年4月24日，中共北京中央社报道，97岁的美国前国务卿上午以视讯形式参加北京纪念中美乒乓外交50周年活动。基辛格致词表示，期盼美中共国人民能基于两国在世界的格局，以及经济的重要性，彼此达成谅解。中共北京当局通过“中共国人民对外友协”、“中共国国家体育总局”、“中美人民友好协会”，举办中美乒乓外交50周年活动。
+YOU HAVE GIVEN AN ASSURANCE THAT YOUR ARE PREPARED AT A CERTAIN STAGE TO RECOMMEND TO PARLIAMENT THAT SOVEREIGNTY OVER THE ENTIRE HONG KONG AREA SHOULD REVERT TO CHINA⋯⋯THE FORM OF TRANSFERENCE OF SOVEREIGNTY AS WELL AS ON THE RELATED QUESTIONS OF HOW CHINA AND BRITAIN CAN COOPERATE DURING THE TRANSITIONAL PERIOD BETWEEN NOW AND 1997 AND AFTER 1997.（您已保证在某些阶段已准备好向国会推荐应在整个香港地区享有主权的中国—主权的转移形式以及有关中国和中国的有关问题在现在和1997年之间以及1997年之后的过渡时期进行合作）。
 
-美国前国务卿[亨利-基辛格](https://en.wikipedia.org/wiki/Henry_Kissinger)曾在美国总统尼克松与中共头号人物毛泽东之间充当秘密联络人，多次到访中共北京中南海。之后他被中共当局“定性”为“中共的老朋友”并受到北京的优待。
+只要解决香港历史遗留问题，中英双方肯定会进一步发展更上一层楼，到时候前途一片光明。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4256.jpg)图片来自世代忏悔录
+5月初，中共副外交部长姚广转交赵紫阳回信副本给柯利达时柯当场指出中方有理解错的地方，姚广重申中方主权立场外还说，夫人密函要达成中英港三方都接受的方案，其实根本没有什么「港人接受」问题，大部分都是中国人，都知道历史是怎么回事，不会有异议。中共也接见过港人，知道他们要什么，会按实际情况多加注意照顾港人。英方认为虽然有误读但总算有了新的开始。在这里我们可以看到中共在香港回归问题上，只要拿到香港，不管其他。突出中共的特点，没有民意，更不需要征求民意，没有民主，一切中共说了算。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4257.jpg)图片来自世代忏悔录
+前英国驻华大使柯利达回忆录（《中国的经历》1994年，183–186页）形容，「1982年10月至翌年7月实质谈判前的各种争持是卡夫卡式荒诞剧，中方在原则问题上企硬，拒绝处理实质性事务」。
 
-1971年当中共与美国进行乒乓外交时，中共已处于灭亡边缘。在外交上中共与美国等西方国家处于断交状态；在中共国内，中共发动的黑暗文革正如火如荼，被洗脑的民众放弃劳动生产，天天大搞阶级斗争，中共国内经济，工业，人民生活水平处于极度困难状态。然而，乒乓外交之后，中共得到美国的扶持，从此中共与美关系渐次解冻：中共国加入联合国，加入世贸组织，主办奥运会，世博会，在全球化中获利崛起，然后开发一代一路，创造新冠生物病毒武器，在全球扩张，广泛推行独裁模式，并试图通过超限病毒生物战结束美国，以及白种人在世界的领导地位。
+回忆录也说明了《中英联合声明》签署之前的谈判分为三个阶段，第一阶段就是英国想如何保留在香港的统治权；第二阶段就是跟中共实质性的对话，审议和改进中共的提案；第三部就是向国会提交议案，落实声明。有意思的是回忆录中谈到要对中共的提案进行审查和改进首先要做到令中方满意才可以进行。另外一个就是中共一直在拖延时间和收买人心，单方面宣传「港人治港」为中共造势，英方处于下风，本来双方说好保密，中方单方面泄露。柯利达说从赵紫阳的回信中可以看出中共最擅长「装傻装糊涂」，字里行间都透露中共在玩文字游戏占便宜。这个在香港回归后都体现出来了，特别是反送中运动，中共公开说《中英联合声明》已是历史，敢公开诋毁声明侵犯香港，都是玩文字游戏的结果。也证明中共在国际一贯不守承诺的无赖嘴脸。这是一封文字游戏的信，柯利达直接说「这封信是骗人的」。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4258.jpg)
+英方曾经有过很多设想，回忆录说首相曾考虑各种“天马行空”方案，但修后都得回到现实。It was as well I did so. Some explosive ideas were being canvassed in the frustration of the time: a public statement by the Prime Minister; a UN-supervised referendum for Hong Kong; bringing the ceded territories, Hong Kong Island and a portion of Kowloon, nearer independence. At one of our meetings Michael Heseltine, then Minister of Defence, was called in. （我也这样做了。当时的挫败感正在酝酿着一些具有爆炸性的想法：总理的公开声明；联合国监督下的香港全民公决；使割让的领土，香港岛和九龙的一部分更加独立。在我们的会议之一中，时任国防部长的迈克尔·黑瑟尔廷被邀请参加）。
 
-自1971年之后的50年，作者认为有三个原因使得中共获得了美国的扶持：第一，背叛苏联投诚美国，巧夺美国冷战胜利的功臣；第二，利用美国的天真，欺骗美国让其误认为随着经济的繁荣，中共国会主动拥抱自由民主；第三，利用美国的贪婪，窃取国内财富输送给美国华尔街，并联合华尔街金融势力奴役14亿中共国人民成为西方加工厂劳工。
+独立是绝对不可以的，但是能够独立自治，今日的香港人是何等的幸福。
 
-**乒乓外交是华夏民族的耻辱**，一个拥有14亿人口的民族居然把自己的命运，自己与世界沟通交流的话语权，代理给一个以土匪流氓起家，利用假骗偷治国的中国共产党。作者认为，共产党之所以能获得代理权，离不开中共国人一个普遍的人性弱点：“占便宜”。在中共国内生活时，作者时常能感受到普通人的一个想法：“政府是我们的仆人，凡事都会帮我们做主”。这是一个典型的占便宜思想，因为大众普遍认为政府做的事全是免费的，这样可笑的思想也是由于中共政府从来都不会公开其财政来源与支出造成的。然而现实却是，能做主的人都是“主人”而不是“仆人”，“主人”的资金财富全来自于“仆人”。
+时任港澳办副主任李后在回忆录里（《回归的历程》1997，第99–101页）也谈到中英双方分歧，「中方坚持接收主权是一项原则，英方则以维持稳定繁荣为先决条件；后来逐步议程就订明，按逐步先谈九七后如何确保稳定繁荣，再谈过渡期安排和主权如何移交」。
 
-**乒乓外交也是美国以及西方国家的耻辱**，中共在冷战时背叛了苏联，为何现在不能背叛美国和西方呢？中共的行事作风很像中国古代三国时期的三姓家奴吕布，谁用中共谁灭亡。冷战时强大的苏联与中共背靠背，结果解体，至今一蹶不振；2020年前与中共战略合作的美国和欧洲大国，现在都处于半死状态。美国和西方国家之所以被中共攻陷，作者认为离不开他们自身的弱点：“对资本的贪婪”。中共为美国和西方提供资本主义最为珍贵的廉价劳动力，使得对资本贪婪成性的金融和科技势力无法自拔。然而，与魔鬼做交易的代价就是要偿还魔鬼的契约，现在的中共病毒全球大流行就是在偿还魔鬼的契约。
+（未完待续）
 
-乒乓外交是华夏民族与美国以及西方国家的共同耻辱，也是世界的耻辱。人类已经能探索宇宙，确还放不下奴隶制度。消灭中共共产党，解放中共国内14亿民众。没有中共共产党的世界会更加和平、繁荣、和昌盛。
 
-[援引原文](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210424-50%E5%B9%B4%E8%BD%AE%E5%9B%9E-%E5%8C%97%E4%BA%AC%E7%BA%AA%E5%BF%B5%E4%B9%92%E4%B9%93%E5%A4%96%E4%BA%A4-%E5%9F%BA%E8%BE%9B%E6%A0%BC%E5%8F%91%E8%A8%80)
+【本文仅代表作者个人观点】
 
-本文作者：红胡子
-审核校对：鲁邦五世
-上传排版：糖果儿
+参考连接：
+[世纪忏悔录-柯利达、戴卓尔、李后忆述1983年密函前后谈判部署](https://medium.com/recall-hk/f-ad24a6992ee3)
 
-0
+[世纪忏悔录](https://medium.com/recall-hk/f-e1f9d147afad)[-赵紫阳覆英首相(1983)：同意谈判主权移交方式](https://medium.com/recall-hk/f-e1f9d147afad)
+
+[世纪忏悔录-戴卓尔致赵紫阳密函(1983)：主权问题巧妙让步](https://medium.com/recall-hk/f-438a066a868e)
+
+导读：
+中共超限战灭港计划
+
+[中共超限战灭港计划（一）权贵家族在香港的扩张](https://gnews.org/zh-hans/958921/)
+
+[中共超限战灭港计划（二）香港地下党员](https://gnews.org/zh-hans/961318/)
+
+[中共超限战灭港计划（三）中共早期地下党员梁慕娴](https://gnews.org/zh-hans/964147/)
+
+[中共超限战灭港计划（四）香港早期活跃人物司徒华的前半生](https://gnews.org/zh-hans/966481/)
+
+[中共超限战灭港计划（五）司徒华的下半生](https://gnews.org/zh-hans/969837/)
+
+[中共超限战灭港计划（六）五区公投](https://gnews.org/zh-hans/972231/https:/gnews.org/zh-hans/972231/)
+
+[中共超限战灭港计划（七）五区公投的前因与后果](https://gnews.org/zh-hans/975744/)
+
+[中共超限战灭港计划（八）](https://gnews.org/zh-hans/977519/)[23](https://gnews.org/zh-hans/977519/)[条之战与五区公投后果](https://gnews.org/zh-hans/977519/)
+
+[中共超限战灭港计划（九）中共十三届四次会议](https://gnews.org/zh-hans/981210/)
+
+[中共超限战灭港计划（十）梁慕娴揭露香港中共地下党](https://gnews.org/zh-hans/983319/)
+
+[中共超限战灭港计划（十一）梁振英的地下党员身分之争](https://gnews.org/zh-hans/986516/)
+
+[中共超限战灭港计划（十二）林郑月娥共产党员身分](https://gnews.org/zh-hans/990380/)
+
+[中共超限战灭港计划（十三）老鼠窝中联办](https://gnews.org/zh-hans/992518/)
+
+[中共超限战灭港计划（十四）占领舆论阵地之两封密电](https://gnews.org/zh-hans/997143/)
+
+[中共超限战灭港计划（十五）占领舆论阵地之私营报纸的存亡](https://gnews.org/zh-hans/1001701/)
+
+[中共超限战灭港计划（十六）抢占香港舆论阵地之共英之约](https://gnews.org/zh-hans/1006899/)
+
+[中共超限战灭港计划（十七）抢占舆论阵地之雨后春笋](https://gnews.org/zh-hans/1012264/)
+
+[中共超限战灭港计划（十八）抢占香港舆论阵地之张五场](https://gnews.org/zh-hans/1016253/)
+
+[中共超限战灭港计划（十九）传媒舆论分](https://gnews.org/zh-hans/1020122/)[析](https://gnews.org/zh-hans/1020122/)
+
+[中共超限战灭港计划（二十）新时代舆论战之反送中运动](https://gnews.org/zh-hans/1024389/)
+
+[中共超限战灭港计划（二十一）新时代舆论战之中共新战略](https://gnews.org/zh-hans/1028829/)
+
+[中共超限战灭港计划（二十二）双十暴动](https://gnews.org/zh-hans/1036475/)[(](https://gnews.org/zh-hans/1036475/)[上](https://gnews.org/zh-hans/1036475/)[)](https://gnews.org/zh-hans/1036475/)
+
+[中共超限战灭港计划（二十三）双十暴动](https://gnews.org/zh-hans/1039951/)[(](https://gnews.org/zh-hans/1039951/)[下](https://gnews.org/zh-hans/1039951/)[)](https://gnews.org/zh-hans/1039951/)
+
+[中共超限战灭港计划（二十四）暗杀周恩来](https://gnews.org/zh-hans/1046701/)
+
+[中共超限战灭港计划（二十五）六七暴动前的澳门](https://gnews.org/zh-hans/1049039/)
+
+[中共超限战灭港计划（二十六）六七暴动前的香港](https://gnews.org/zh-hans/1050567/)
+
+[中共超限战灭港计划（二十七）六七暴动之中共左派策动政治潮](https://gnews.org/zh-hans/1054412/)
+
+[中共超限战灭港计划（二十八）六七暴动之是谁煽动年轻人](https://gnews.org/zh-hans/1061090/)
+
+[中共超限战灭港计划（二十九）六七暴动之福建帮](https://gnews.org/zh-hans/1064591/)
+
+[中共超限战灭港计划（三十）六七暴动与周恩来](https://gnews.org/zh-hans/1068197/)
+
+[中共超限战灭港计划（三十一）六七暴动之吴荻舟笔记（上）](https://gnews.org/zh-hans/1071326/)
+
+[中共超限战灭港计划（三十二）六七暴动之吴荻舟笔记（下）](https://gnews.org/zh-hans/1076730/)
+
+[中共超限战灭港计划（三十三）六七暴动之斗委会](https://gnews.org/zh-hans/1081124/)
+
+[中共超限战灭港计划（三十四）六七暴动 之 青年乐园和“针”](https://gnews.org/zh-hans/1085211/)
+
+[中共超限战灭港计划（三十五）六七暴动之九龙、港岛暴动](https://gnews.org/zh-hans/1091957/)
+
+[中共超限战灭港计划（三十六）六七暴动之林彬之死](https://gnews.org/zh-hans/1095993/)
+
+[中共超限战灭港计划（三十七）六七暴动之“菠萝”与杨光](https://gnews.org/zh-hans/1099742/)
+
+[中共超限战灭港计划（三十八）六七暴动之沙头角枪击事件](https://gnews.org/zh-hans/1108096/)
+
+[中共超限战灭港计划（三十九）六七暴动之激战沙头角](https://gnews.org/zh-hans/1111176/)
+
+[中共超限战灭港计划（四十）六七暴动之宣传战](https://gnews.org/zh-hans/1114792/)
+
+[中共超限战灭港计划（四十一）六七暴动之火烧英国代表处（上）](https://gnews.org/zh-hans/1118410/)
+
+[中共超限战灭港计划（四十二）六七暴动之火烧英国代表处（下）](https://gnews.org/zh-hans/1122015/)
+
+[中共超限战灭港计划（四十三）六七暴动之中共欲武力收复香港](https://gnews.org/zh-hans/1126335/)
+
+[中共超限战灭港计划（四十四）中英联合声明之谈判](https://gnews.org/zh-hans/1129729/)
+
+[中共超限战灭港计划（四十五）中英联合声明谈判部署](https://gnews.org/zh-hans/1133486/)
+
+审稿/校对：卡西欧 / 上传：天网灰灰
+
++1

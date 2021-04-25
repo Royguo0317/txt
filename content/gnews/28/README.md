@@ -1,35 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在新疆问题上 令人失望的德国定位
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1137109/)
+## 【有声读物】古风·无题
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1137318/)
 
-```
-信息来源：德国世界报网络版   
-记者：马克西米利安·卡尔霍夫（Maximilian Kalkhof）
-发布时间：2021年4月24日
-```
+配音：香草山录音组 Swr拥抱太阳
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-#### **多年来，中国一直在镇压维吾尔族穆斯林。但是，西方的强烈抗议在很大程度上未能实现。直到现在，欧盟才实施第一批制裁。世界维吾尔代表大会主席解释了为什么这还不够。**
 
-**世界报：欧盟因镇压维吾尔人而对四名中国官员实施了制裁。这是30多年来对人权的首次制裁。您如何评价这一步？**
 
-**多尔肯·伊萨（Dolkun Isa）：**我们欢迎制裁。这清楚地表明，中国政府不能简单地实行种族灭绝并摆脱种族灭绝。但是制裁还不够。这四名受制裁的官员仅远距离参与这些罪行。罪魁祸首是新疆党的领导人**陈全国**。他像其他人一样列在名单上。我们也欢迎德国联邦政府的努力。
 
-在幕后，她帮助实行了欧洲制裁。但是，如果您看看德国如何将自己置于维吾尔族的压迫之下，那就太令人失望了。美国，加拿大和荷兰现在将这些罪行称为“种族灭绝”。我们呼吁联邦政府对这些国家做同样的事情。不幸的是，总理安格拉·默克尔（Angela Merkel）在此问题上保持沉默。 2007年，她遇到了西藏人的精神领袖达赖喇嘛。我们要求在2018年与联邦总理会晤。直到今天，她还没有与我们见面。
+红柿是花也是晴，
 
-#### **简评：**
+绿竹爱冬也爱春。
 
-**这篇文章的立场太好了。这位记者为德国的立场不坚定感到愤怒。德国总理默克尔在新疆问题，在种族灭绝问题上根本听不到她的声音，她一直在回避这个问题。在她的眼里就是德国公司在中共国的利益。也许迫于压力，也许有其它的因素。这篇文章的出现，就是提醒德国政界，你们不能坐视无睹，你们最起码要坚定你们的立场，你们的价值观。**
+白墙一抹为底色，
 
-**而且，不能只有立场没有行动。我非常高兴有这样的文章在德国这个后知后觉的国家出现。这是一个好的开端，也希望这样的文章越来越多，才能引起政界的注意力。尤其是在病毒大流行期间，在政客们的病毒政策中焦头烂额的情况下，还是有正义的人们，还是能够唤醒更多的人。今天中共可以这样对待新疆人，有一天他们会用同样的方法对付世界。因此到了结束中共的时候了。中共灭亡以后，德国在新中国的重建中会起到举足轻重的作用，请站稳你们的立场。 **
-（本文只代表作者观点， 与 Gnews平台无关。 ）
+花衣一件少女心。
 
-**新闻来源链接：**🔗[„Es ist enttäuschend, wie Deutschland sich positioniert“](https://www.welt.de/politik/ausland/article230537255/Uiguren-Es-ist-enttaeuschend-wie-Deutschland-sich-positioniert.html)
 
-* * *
 
-***翻译 /整理/ 简评：** Shuizhuyu* ***编辑整理/校对: **Ting Guo*
+**文字版原文：[【香草诗词汇】古风·无题](https://gnews.org/zh-hans/641435/)**
+
+作者：香草山写作组 木白
+
+
+
+音频处理/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
