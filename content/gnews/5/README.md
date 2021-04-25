@@ -1,25 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇为何资助这些美国禁止的对人类有风险的病毒研究？
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1138444/)
+## 羟氯喹和聚维酮碘咽喉喷雾可大幅降低中共病毒感染
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1138516/)
 
-加拿大多伦多枫叶农场蒙特利尔皇家山战友团 **Spirit**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/FFFFFFFF.jpg)图片来源：Lexington Herald leader
-据门户网站（Gateway Pundit）4月25日报道，参议员兰德-保罗（R-KY）今天早些时候参加了玛丽亚-巴蒂罗莫（Maria Bartiromo）的周日早间节目。在对谈中，保罗参议员讽刺乔-拜登本周在全球变暖的国际会议中戴着口罩，他说：”我猜这是福奇博士认为你可以通过网络摄像头感染中共病毒。”
+**路仁**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/HCQQQQQQQQQQ.jpg)
+据[新加坡《海峡时报》](https://www.straitstimes.com/singapore/health/throat-spray-and-hydroxychloroquine-found-to-reduce-risk-of-covid-19-infection)报道，新加坡国立大学卫生系统（NUHS）的一组临床医生科学家团队在国立大学医院（NUH）内科的神经学高级顾问雷蒙德·塞特（Raymond Seet）副教授领导下进行了一项研究，证明口服羟氯喹（hydroxychloroquine）和用聚维酮碘咽喉喷雾（povidone-iodine throat spray)可使中共病毒感染概率降低20%之多。
 
-保罗参议员接着说，福奇博士必须回答为什么美国禁止了危险的人类病毒测试，他还继续资助这些研究。
+该研究招募了3037个平均年龄33岁的匿名年轻人，大部分是来自大士南宿舍区（Tuas South Dormitory)的印度和巴基斯坦裔。实验之初这些人均做了检测呈阴性。在这个实验的时候，新加坡宿舍区中共病毒大流行，这些人和其他居民全部隔离和封闭在宿舍区里面。
 
-保罗参议员说：”关于病毒的起源有一个巨大的道德问题。伦理问题是我们是否应该进行功能增强，我们是否应该在实验室中升级动物病毒，使其对人类更加敏感……我们必须问福奇博士，为什么他在监督这些实验室时允许进行功能增强？为什么他允许实验室获得资金来升级动物病毒，使它们能够感染人类？我们大约在2、3年前就已经开始担心这个问题。我们关闭了其中大约一半的实验室，但后来福奇博士和他的委员会又把它们开放了。我们需要问他，为什么我们在中国那么做，而在美国却这么做？”
+实验将将这些人分为五组，每组给予以下之一，持续六周：维生素C （vitamin C）（对照组），锌和维生素C（zinc and vitamin C），聚维酮碘咽喉喷雾剂（povidone-iodine throat spray)，羟氯喹（hydroxychloroquine）或伊维菌素 （ivermectin）。
 
-大约一年前，《门户网站》（The Gateway Pundit）报道了福奇博士对中共国武汉实验室不道德和可能犯罪研究的资助，该实验室现在被怀疑是中共冠状病毒的可能来源。
+六周过后，采集了这些人血液对其中的中共病毒抗体进行检测。经检测发现，维生素C组中有**70****％**的人已被感染，而聚维酮碘咽喉喷雾（povidone-iodine throat spray)组中的**46****％**和羟氯喹组中的**49****％**的人已被病毒感染。
 
-福奇这么久才被问责或问罪，来得晚总比不来要好。当初川普总统那么信任他，每次带着他开疫情新闻发布会，殊不知福奇与中共的武汉实验室隐藏着很深的关联。如今他资助武汉实验室的事实被公开，还有压制羟氯喹普及等事件变相帮中共害死很多美国人的行径，这些账迟早要算。
+所有参与人员没有出现死亡和因为重症而住院的案例。因为这两种药物的半衰期都很短，所以每个人在服用药物后都得到了有效的保护。
 
-[原文链接](https://www.thegatewaypundit.com/2021/04/senator-rand-paul-dr-fauci-must-answer-questions-continued-fund-dangerous-human-virus-studies-banned-us-video/)
+羟氯喹（hydroxychloroquine）是处方药，必须有医生处方才能买到。常见的副作用有头痛、头晕、腹泻、胃痉挛和呕吐。 如果片剂与食物一起服用，这些症状可能会减轻。
 
+聚维酮碘咽喉喷雾（povidone-iodine throat spray)则是非处方药，在各个药房的柜台或网站都可以购买。这无疑是对人类面临中共病毒威胁的一个好的选择。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/fdsafdsf-5.jpg)
 * * *
 
 *编辑、发稿 文锦*
 
-0
++2
