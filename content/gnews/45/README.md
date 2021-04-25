@@ -1,101 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《2021战略竞争法》第301、302、303节摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1135106/)
+## 美中情局局长对阿富汗进行了突击访问
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1135351/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/H-8.jpg)newsfirst.lk
-“副标题C——应对中共国的区域战略”的“第三部分——南亚和中亚”2节（261、262），“第四部分——非洲”6节（271至276节），“第五部分——中东和北非”2节（281、281），“第六部分北极地区”1节，“第七部分——大洋洲”2节（291、292）暂时略译。
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Snipaste_2021-04-25_00-01-46.jpg)[indiandefencereview.com](http://www.indiandefencereview.com/news/us-afghan-policy-a-shot-in-the-arm-for-india/)
+04月24日，美联社报道美中情局局长威廉·伯恩斯（William Burns）最近在美国军队即将从阿富汗撤军之前对喀布尔进行了一次暗访。文中未揭露中情局局长究竟与谁会面，但明确指出他讨论了美军撤离后阿富汗的战备状态，并向阿富汗方面保证，美国将继续参与打击该国的恐怖主义。
 
-本文为“标题3——我们价值观的投入”的3节。
+一位前阿富汗安全官员称，由中央情报局训练的六支追踪武装分子的特种部队，其中有两支已经移交给了阿富汗共和国。
 
-标题3——我们价值观的投入
+早些时候，五角大楼报告了在美军从阿富汗撤军的背景下加强对美军的保护。特别是，德怀特·艾森豪威尔号航空母舰将继续留在中央情报局在该地区的作战责任区域，此外，指挥部批准增加部署几架远程轰炸机。
 
-第301节 批准拨款支持香港民主运动
+4月14日，美国总统乔·拜登承诺在纽约911袭击事件20周年之前全撤出所有美军，而不是原定的5月1日。当时，他警告塔利班，他们准备好对可能的挑衅和攻击做出果断反应。
 
-（a）为促进香港的民主，为国务院的《民主、人权和劳工局》（the Bureau of Democracy, Human Rights, and Labor）在2022财政年度授权拨款一千万美元。
+自2001年以来，美国军队一直驻扎在阿富汗。在此期间，有超过2000名美国军人在那里被杀害。自2011年以来，美国开始逐步减少其特遣队，并于2014年撤出其主要作战部队。
 
-（b）管理 – 国务卿应在国务院指定一个办公室，负责管理和协调国务院内部和整个美国政府提供第（a）小节所述的资金。
+2020年2月底，美国和塔利班签署了一项和平协议。该协议规定，美国和北约部队将在14个月内完全撤出阿富汗。
 
-第302节 对在新疆维吾尔自治区实施有关强迫劳动的制裁
+参考链接：
 
-（a）通常情况 – 对《2020年维吾尔族人权政策法》（the Uyghur Human Rights Policy Act of 2020）（公共法116-145）第6（a）（1）节；《美国法典》第22编第6901节注解）的修订-
-
-（1）将（E）项改为（F）项；以及
-
-（2）在（D）项后插入以下内容：“（E）与强迫劳动有关的严重侵犯人权（行为）。”
-
-（b）生效日期；适用性 -（a）款所作的修订 –
-
-（1）自本法颁布之日起生效；以及
-
-（2）适用于《2020年维吾尔族人权政策法》第6（a）（1）节要求的在该颁布日期之后提交的第一份报告。
-
-第303节 对在新疆维吾尔自治区蓄意强奸、强迫堕胎、强制绝育或非自愿避孕实施的制裁
-
-（a）通常情况 -《2020年维吾尔族人权政策法》（公共法116-145）第6（a）（1）节；《美国法典》第6901节注释）经第302节修订后，进一步修订 –
-
-（1）将（F）项改为（G）项；以及
-
-（2）在（E）项后插入以下内容：“（F）蓄意强奸、强迫堕胎、强迫绝育或非自愿避孕政策和行为。”
-
-（b）生效日期；适用性 -（a）款所作的修订 –
-
-（1）自本法颁布之日起生效；以及
-
-（2）适用于《2020年维吾尔族人权政策法》第6（a）（1）节要求的在该颁布日期之后提交的第一份报告。
-
-（3节完）
-
-原文链接：
-
-[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
-
-文字整理：
-
-TITLE III—INVESTING IN OUR VALUES
-
-SEC. 301. AUTHORIZATION OF APPROPRIATIONS FOR PRO 4 MOTION OF DEMOCRACY IN HONG KONG.
-
-(a) AUTHORIZATION OF APPROPRIATIONS. — There is authorized to be appropriated $10,000,000 for fiscal year 2022 for the Bureau of Democracy, Human Rights, and Labor of the Department of State to promote democracy in Hong Kong.
-
-(b) ADMINISTRATION. — The Secretary of State shall designate an office with the Department of State to administer and coordinate the provision of such funds described in subsection (a) within the Department of State and across the United States Government.
-
-SEC. 302. IMPOSITION OF SANCTIONS RELATING TO FORCED LABOR IN THE XINJIANG UYGHUR AUTONOMOUS REGION.
-
-(a) IN GENERAL. — Section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 (Public Law 116–145; 22 U.S.C. 6901 note) is amended—
-
-(1) by redesignating subparagraphs (E) as subparagraph (F); and
-
-(2) by inserting after subparagraph (D) the following:
-
-‘‘(E) Serious human rights abuses in connection with forced labor.’’
-
-(b) EFFECTIVE DATE; APPLICABILITY. — The amendment made by subsection (a)—
-
-(1) takes effect on the date of the enactment of this Act; and
-
-(2) applies with respect to the first report required by section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 submitted after such date of enactment.
-
-SEC. 303. IMPOSITION OF SANCTIONS WITH RESPECT TO SYSTEMATIC RAPE, COERCIVE ABORTION,
-
-FORCED STERILIZATION, OR INVOLUNTARY CONTRACEPTIVE IMPLANTATION IN THE XINJIANG UYGHUR AUTONOMOUS REGION.
-
-(a) IN GENERAL. — Section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 (Public Law 116–145; U.S.C. 6901 note), as amended by section 302, is further amended—
-
-(1) by redesignating subparagraphs (F) as subparagraph (G); and
-
-(2) by inserting after subparagraph (E) the following:
-
-‘‘(F) Systematic rape, coercive abortion, forced sterilization, or involuntary contraceptive implantation policies and practices.’’.
-
-(b) EFFECTIVE DATE; APPLICABILITY. — The amendment made by subsection (a)—
-
-(1) takes effect on the date of the enactment of this Act; and
-
-(2) applies with respect to the first report required by section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 submitted after such date of enactment.
+[https://www.rbc.ru/rbcfreenews/6083c1539a7947590965650f](https://www.rbc.ru/rbcfreenews/6083c1539a7947590965650f)
 
 0

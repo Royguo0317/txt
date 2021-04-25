@@ -1,59 +1,101 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本防卫早已明确将台湾纳入保卫范围
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1134956/)
+## 美国《2021战略竞争法》第301、302、303节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1135106/)
 
-台湾宝岛农场 zhong
-![]()![](https://gnews.org/wp-content/uploads/2021/04/擷取425.jpg)
-**旧美日安保条约**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-1950年代，亚洲政局多变，先是1949年中华民国政府退守台湾，后是1950年6月韩战开打，同年10月中共政权执政后与苏联缔结中苏友好同盟条约，并且介入韩战。
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/H-8.jpg)newsfirst.lk
+“副标题C——应对中共国的区域战略”的“第三部分——南亚和中亚”2节（261、262），“第四部分——非洲”6节（271至276节），“第五部分——中东和北非”2节（281、281），“第六部分北极地区”1节，“第七部分——大洋洲”2节（291、292）暂时略译。
 
-1951年，美国为防堵共产主义扩张，与日本签订美日安保条约，日本除了提供美军驻军基地外，美日安保条约的签订日本成为了亚洲防堵共产势力的中心点。
+本文为“标题3——我们价值观的投入”的3节。
 
-题外话：台湾、韩国在政治、经济、民主化、产业结构上具有高度相似，因此台韩从历史脉络上就是一对注定相互竞争的冤家。但台湾可以存在到现在，很大部分是韩战发生所赐。
+标题3——我们价值观的投入
 
-**中日和平条约**
+第301节 批准拨款支持香港民主运动
 
-美日安保条约签订后，日本按照美国要求与中华民国政府签订中日和平条约，承认中华民国政府是中国唯一合法代表政府。因此，中华民国退守台湾，台湾与日本正式展开外交关系，并互设大使馆。 1972年，日本与中华民国断交，**片面废止**合约。
+（a）为促进香港的民主，为国务院的《民主、人权和劳工局》（the Bureau of Democracy, Human Rights, and Labor）在2022财政年度授权拨款一千万美元。
 
-**早在1951年台湾就已经是旧美日安保条约防卫范围内**
+（b）管理 – 国务卿应在国务院指定一个办公室，负责管理和协调国务院内部和整个美国政府提供第（a）小节所述的资金。
 
-《美日安保条约》第一条规定，日本允许美军部署于日本国内及其附近，而驻日美军可被使用于远东地区国际和平与安全之维护。中华民国、日本当时有邦交，自然远东地区就包含台湾的领土范围，如此解释也才符合美国防堵共产扩张的目的。
+第302节 对在新疆维吾尔自治区实施有关强迫劳动的制裁
 
-**新美日安保条约**
+（a）通常情况 – 对《2020年维吾尔族人权政策法》（the Uyghur Human Rights Policy Act of 2020）（公共法116-145）第6（a）（1）节；《美国法典》第22编第6901节注解）的修订-
 
-1960年，美日签署新美日安保条约，但新条约承袭了旧合约维护远东地区的国际和平、安全。因此，台湾还是在新美日安保条约当中。即便是1972年，日本片面废止中日合约，与中华民国断交，仍然没有改变台湾是远东条款的范围。
+（1）将（E）项改为（F）项；以及
 
-**中共南海行动已经有损日本国安**
+（2）在（D）项后插入以下内容：“（E）与强迫劳动有关的严重侵犯人权（行为）。”
 
-麻六甲海峡，是日本的海上运输线、能源线，也就是日本的生命线。美日安保条约建构了美国对日本国安维护的责任，因日本仰赖马六甲海峡，而运输过程必经的南海顺势成为亚洲火药库。
+（b）生效日期；适用性 -（a）款所作的修订 –
 
-中共长期骚扰南海，意图将南海变为内海，若美军不确保南海安全，将直接导致日本国安危机。
+（1）自本法颁布之日起生效；以及
 
-同时，南海也是台湾存亡的关键。东沙岛、太平岛离台湾本岛距离太远，台湾现役战机无法提供迅速、有效的军事支援。而台湾海军因长期不均衡的发展，也难以抵御中共的侵夺。 （太平岛、东沙岛特色是易攻难守）
+（2）适用于《2020年维吾尔族人权政策法》第6（a）（1）节要求的在该颁布日期之后提交的第一份报告。
 
-台湾若丧失对南海领地的控制权，解放军将可任意进出第一岛链，台湾连动失去对台湾海峡的控制权。
+第303节 对在新疆维吾尔自治区蓄意强奸、强迫堕胎、强制绝育或非自愿避孕实施的制裁
 
-**为了避免中共对台战争合理化美国提出台湾国际团结法案**
+（a）通常情况 -《2020年维吾尔族人权政策法》（公共法116-145）第6（a）（1）节；《美国法典》第6901节注释）经第302节修订后，进一步修订 –
 
-台湾国际团结法案，针对北京扭曲国际组织攸关台湾的决议文字，该法案表示「联合国2758号决议」仅处理中国代表权，效力不及于台湾、台湾人民。
+（1）将（F）项改为（G）项；以及
 
-将台湾、台湾人民与政府代表权冲突切分，中共对台湾开战后，美、日也可基于美日安保条约因远东地区和平受侵害，直接性介入。中共对外主张台湾为中国领土，对台湾有合法统治权的主张，将因为过去联合国的决议效力都不及于台湾、台湾人民而不成立。
+（2）在（E）项后插入以下内容：“（F）蓄意强奸、强迫堕胎、强迫绝育或非自愿避孕政策和行为。”
 
-参考资料：[台日关系与美日安保条约](http://rportal.lib.ntnu.edu.tw/bitstream/20.500.12235/32681/1/ntnulib_tp_H0210_03_003.pdf)
+（b）生效日期；适用性 -（a）款所作的修订 –
 
-本文仅代表个人观点
+（1）自本法颁布之日起生效；以及
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+（2）适用于《2020年维吾尔族人权政策法》第6（a）（1）节要求的在该颁布日期之后提交的第一份报告。
 
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+（3节完）
 
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+原文链接：
 
-文章审核：zhong
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
 
-文章发布：Little Liu
+文字整理：
+
+TITLE III—INVESTING IN OUR VALUES
+
+SEC. 301. AUTHORIZATION OF APPROPRIATIONS FOR PRO 4 MOTION OF DEMOCRACY IN HONG KONG.
+
+(a) AUTHORIZATION OF APPROPRIATIONS. — There is authorized to be appropriated $10,000,000 for fiscal year 2022 for the Bureau of Democracy, Human Rights, and Labor of the Department of State to promote democracy in Hong Kong.
+
+(b) ADMINISTRATION. — The Secretary of State shall designate an office with the Department of State to administer and coordinate the provision of such funds described in subsection (a) within the Department of State and across the United States Government.
+
+SEC. 302. IMPOSITION OF SANCTIONS RELATING TO FORCED LABOR IN THE XINJIANG UYGHUR AUTONOMOUS REGION.
+
+(a) IN GENERAL. — Section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 (Public Law 116–145; 22 U.S.C. 6901 note) is amended—
+
+(1) by redesignating subparagraphs (E) as subparagraph (F); and
+
+(2) by inserting after subparagraph (D) the following:
+
+‘‘(E) Serious human rights abuses in connection with forced labor.’’
+
+(b) EFFECTIVE DATE; APPLICABILITY. — The amendment made by subsection (a)—
+
+(1) takes effect on the date of the enactment of this Act; and
+
+(2) applies with respect to the first report required by section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 submitted after such date of enactment.
+
+SEC. 303. IMPOSITION OF SANCTIONS WITH RESPECT TO SYSTEMATIC RAPE, COERCIVE ABORTION,
+
+FORCED STERILIZATION, OR INVOLUNTARY CONTRACEPTIVE IMPLANTATION IN THE XINJIANG UYGHUR AUTONOMOUS REGION.
+
+(a) IN GENERAL. — Section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 (Public Law 116–145; U.S.C. 6901 note), as amended by section 302, is further amended—
+
+(1) by redesignating subparagraphs (F) as subparagraph (G); and
+
+(2) by inserting after subparagraph (E) the following:
+
+‘‘(F) Systematic rape, coercive abortion, forced sterilization, or involuntary contraceptive implantation policies and practices.’’.
+
+(b) EFFECTIVE DATE; APPLICABILITY. — The amendment made by subsection (a)—
+
+(1) takes effect on the date of the enactment of this Act; and
+
+(2) applies with respect to the first report required by section 6(a)(1) of the Uyghur Human Rights Policy Act of 2020 submitted after such date of enactment.
 
 0
