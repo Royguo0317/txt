@@ -1,63 +1,170 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0423VII七哥出庭的案子判决后要好好谈谈庭上的感受
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1135742/)
+## 美国《2021战略竞争法》第401节摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1135804/)
 
-编辑整理：
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-伦敦喜庄园：万物归一；悉尼澳喜农场：Bruce(文远)；日本东京方舟农场：山川异域
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Cover-1-3.jpg)
-郭文贵先生在2021年4月23日的直播里爆出了中共航母平衡器被美军信息战黑瘫、航母舰载机以俄飞行员充数的擀面杖子军事以及习近平的政治经济军事外交班底全是草包导致习变成孤家寡人的惊天大料，本系列将根据郭先生直播中涉及的不同侧重点逐一上传，以下为本系列第七部分——七哥出庭的案子判决后要好好谈谈庭上的感受
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-1.png)zerohedge.com
+本节开始，进入《2021战略竞争法》的第4个标题。
 
-据[2021年4月23号 文贵直播：智囊团失信，军事被美打击，数字人民币DCEP被全世界抵制，习成孤家寡人；国内政治变化正在发生中；此次开庭希望能让新中国联邦人认识到媒体和法律的力量](https://gtv.org/video/id=6082cb627e083973a7301685)时间点1：34：39——
+本节要点：中共国正在推进一个反竞争的经济和产业政策的生态系统，包括：扭曲全球市场、限制创新、不公平地扶持中共国公司。中共国企业的补贴、知识产权盗窃和强制技术转让，是对全球经济最具破坏性的问题之一。中国共产党为了促进国家政治和经济目标，以反竞争的方式指导、胁迫和影响了企业的商业活动。通过破坏长期和普遍接受的、基于市场的公平竞争原则，扭曲全球市场经济导致了外国营企业进入和被迫退出市场的障碍，这种障碍不仅在中共国，而且存在于世界各地的市场。中共国在世界各地窃取关键技术和商业秘密，揭露中共国企业知识产权盗窃和大规模补贴的全部范围和规模，中共国的反竞争经济和产业政策破坏了几十年的全球增长和创新。
 
-今天七哥就是今天完全是这几天战友们都关心开庭的事儿，说实在话，七哥开庭是最好的休息，我坐在那儿看着法庭上后面的那个美国的那个人家法庭上那个徽，哎哟，这设计不错，我看到人家那法官长的那个头发、人家那帅气啊，我说为啥人家法官都长得那么帅呢？人家的书记员、人家的美女，人家的书记员认真。那个屋里面静得你不知道，美国法庭上就静到掉根针儿你都能听见，然后这次对方没人，没有欺民贼，都在外面呢没进来。
+标题4——投资于我们的经济治国之道
 
-结果看到的很多都是很多战友，咱们的战友，我的妈呀就是你在那个镜头前看那个小飞象啊，所以这个镜头千万别信包括我现在镜头，你千万别信。就小飞象她在镜头前你看那孩子啊，她就这么大个脑袋，然后那个头型弄了个五号头吧是六号头吧，就真的是我觉得是我娘当年四十多岁我娘梳的头，我觉得真是土得不行，而且小飞象脸给整大了特别难看我觉得，那个发卡哎呦我的妈呀。
+第401节 国会关于中共国产业政策的调查结果和意识
 
-但是生活中的小飞象，我以为她个子还很低呢，个儿高，因为脸啊穿这个衣服精神，但是唯一犯的错误，连续两天穿一件衣服，这是我们中国人的毛病，连续两天，我第二天一看怎么又穿了这衣服，我差点把西装脱了，小飞象你穿上七哥的西装吧。为什么要穿一个衣服？这是不对的啊，这么美女，头发染成了金色，香槟色上衣小夹克，哇噻，这个精神漂亮，哎哟那个皮肤极好，往那一坐，哎哟我的妈呀，真养眼，我要不看法官，我就好好看她们了。
+（a）调查结果——国会作出以下调查结果：
 
-旁边坐着一个Q May，这Q May是我看着在盘古，Q May是在盘古的个孩子，她那天呱唧穿着衣服，呱唧，长发小眼睛，这样皮肤好，我就傻了，我这Q May咋就变化那么大呀，当了孩子的娘了都，这美国也太养人了，哇噻，小白衣服一穿，她蹬一高跟鞋、个儿倍儿高，一看眼睛特别发亮，这些人都是眼睛亮皮肤好。看了都不好意思，你知道吗？那会儿只能想想断修魏了，要不然就是想法太多啊。
+（1）中共国在中国共产党的领导下，正在推进一个反竞争的经济和产业政策的生态系统 –
+（A）扭曲全球市场；
+（B）限制创新；
+（C）以牺牲美国和其他外国公司为代价，不公平地扶持中共国公司；以及
+（D）不公平和有害地损害消费者的选择。
 
-旁边佳佳，还有我们的佳佳啊，还有眼泪哭得都不行了，佳佳啊。还有我们的Idem，Idem就是跟那个代为主持节目的长发，全家直播的时候，Idem漂亮、眼睛都跟手电筒一样。小司机哇噻那肌肉壮的，这是男士，你想想小司机那样啊。我们小王子那形象，老凯，旁边这些战友往那咵一坐，哎哟我的妈呀，这真的是你知道我说，我今天真的是，我在两个地方看过中国人这个形象，一、在我们的盘古和裕达，每天都这形象；第二个：共产党的六十年大庆，哇噻，就是共产党这打扮出来，这精英全出来在天安门时候你看看，精英还在共产党里面，就是你都看的那种精气神儿，穿上军装的人，咵年轻人出来，哇噻，你说中国人是了不得的。中国人一旦要注意了形象，就是真了不得的。精神素质身体素质，就咵就出来了，就这回我看到了。
+（2）在中共国推行的广泛而系统的经济和产业政策中，对中共国企业的补贴、知识产权盗窃和强制技术转让，是对全球经济最具破坏性的问题之一。
 
-然后呢，昨天听说最后我没见到，最后是火鸡龚出现了，听说火鸡龚一出现，竟然完全是胡说八道，法官气得结束——太大的帮助了。火鸡龚对我们的帮助据律师讲来讲帮助太大了，所以她是，然后外面还有什么欺民贼呀，还有什么一堆啊我不知道啊，基本上是要饭帮，要饭帮。
+（3）通过监管干预和直接财政补贴，中国共产党为了促进国家政治和经济目标，以反竞争的方式指导、胁迫和影响了企业的商业活动，这些企业受到国家的指导、资助、影响，或者说是控制，包括国有企业，以及表面上是独立和私营的中共国公司，例如战略部门的技术公司。
 
-但是昨天就这几天在庭上，让我看到我是休息状态，就我脑子老开小差你知道吧？我老想着，哎呀一年国庆我们要谈啥话题呀？他问我话题中间要有翻译，因为我本来是证人嘛，三小时就完了，人家法官很公正是吧，因为人家主要目标是对着我来的是吧，对着我来的，那么法官呢，我就整个问对方，咱问对方不能超过十个小时，人家问咱也不能超过十个小时，总共啊。对方已经把我们的时间已经用完了，成了九个半个小时，还剩半小时，但法官给了对方又多了几个小时，让他多问我，因为中间有翻译、需要翻译，还有一个就是很多问题我们使用第五修正案，所以说人家法官就给了多时间。
+（4）中共国政府在国家和国家以下的各级，在电信、石油、电力、航空、银行和半导体等被指定为战略性行业的某些中共国公司，给予特殊特权或地位，企业从中国共产党获得了优惠贷款、免税和优惠土地使用权等国家的特殊优惠。
 
-所以这美国这法官，就这法律就这么公正，就我在那块坐着我就说，新中国联邦啥时候让中国人拥有这样的法庭、这么样的安静、这么让大家尊重、这么相信这个法官、这么相信这个这个法律，我就每时每刻都在想这个问题。然后法庭上坐的都是像我们战友这样素质的中国人，然后**让这些坏人不管他怎么表演，你会看到坏人会受到惩罚，而不是中国好人受到惩罚，是坏人受到惩罚。造假者，必被惩罚。在中国造假者必定得到奖赏，**我就在想这个问题你知道吗？
+（5）第（3）和（4）款所述的对中共国公司的补贴 –
+（A）使这些企业能够以低于市场价格的价格销售商品，企业利用其价格优势排挤市场上的竞争对手，从而在关键行业中占据全球的主导地位；
+（B）通过破坏长期和普遍接受的、基于市场的公平竞争原则，扭曲全球市场经济导致了外国或私营企业进入和被迫退出市场的障碍，这种障碍不仅在中共国，而且存在于世界各地的市场；
+（C）在关键领域建立政府赞助或支持的事实上的垄断、卡特尔（式垄断保护）以及其他反市场作法，限制或消除了其他公司的机会；以及
+（D）由于（A）至（C）段所述的问题，导致外国和私营公司研发所需的利润和收入下降。
 
-就那个法院的规矩啊，法院的整个法庭，因为咱们战友不知道那个区啊，南区法院就那个法庭，你在窗户往下看的时候就叫联邦法庭，就那个最早的香港被关的叫什么何什么的家伙？就是关在旁边的楼旁边法庭里面，那个楼里边就是联邦法庭、联邦监狱，旁边是联邦的这个法庭、最高法最高院。旁边还又是关了一个大监狱啊，那个监狱那个楼关过很多中国的名人所谓在那里，那个区就是关人的地方，那个地方是挺阴的，我跟你说啊。但是你在那地方你能感到这是美国法律的力量，1万多亿的GDP的纽约就靠这个法律系统——最精英的法官、最聪明的法官、最聪明的检察官全在南区。
+（6）中国共产党鼓励并授权中共国的行为者，从在中共国和世界各地运营的私人和外国竞争对手那里窃取关键技术和商业秘密，特别是在中国共产党认为对实现中共目标至关重要的领域。根据中国共产党的指示，中共国还继续实施反竞争法规、政策和做法，强迫外国企业将技术和其他相关性或敏感数据移交给国内企业，以换取进入中共国市场的机会。
 
-你不要看具体事件，所有人都在那里，所以你能感觉到美国这个法律。这个国家所以伟大，你总统到那去你也得走这门进去走这门出来，你到了法庭上你得老老实实，你们看到芝加哥那个叫什么七人君子那个审判，是吧？你们看到那个，刚刚卸任的司法部长——尼克森的前任的司法部长到庭上作证人一模一样程序，在中国孟建柱会去吗？不会去的。
+（7）美国和外国的公司在世界第三国市场，要与享受国家保护和助力的国家补贴的中共国公司竞争。赋予了中共国公司的优势，加上进入中共国市场本身的重大限制，严重阻碍了美国和外国公司竞争、创新和追求为客户提供最佳价值的能力。结果是一个不平衡的竞争环境，这种不可持续的进程，如果不加以制止，随着时间的推移，将导致全球竞争低迷，机会减少，对生产者和消费者都造成伤害。
 
-对了说孟建柱，我今天不讲了，孟建柱完全是被押送、押放出来。孟建柱的死党会彻彻底底最后扫得干干净净，包括孟建柱的家人一个都不剩，海内外的全都被抓。王岐山所有的跟他有利益的，王岐山所有的跟他有利益的，在习活着之前一定把他干掉！——一定干掉。王、孟，孙力军已经完了是吧？王、孟包括另外那仨人我先不说他名字，全部，他一定给你一窝端——老少、海外、内外，一窝给你端了，这就是真正的文化大革命，还有斯大林当年最后干的事儿，那一定的！一定的！
+（8）正如2018年3月美国贸易代表根据《1974年贸易法》（the Trade Act of 1974）第301节（《美国法典》第19卷第2411节）对中共国贸易惯例进行的调查所述，“当美国公司在知识产权方面的投资被剥夺了公平回报时，他们就无法实现再投资创新所需的增长。从这个意义上说，中共国的技术转让制度直接给创新生态系统带来负担，而创新生态系统是美国和类似经济体经济增长的引擎。”
 
-翻天覆地的巨大的变化，政治变化在国内正在发生中。有两结果：一个是外来力量，达到这个目的，把所有人铲平。 一个内部力量把他干掉，这两个一定有一个发生，所以我们的以毒灭共、以钱灭共、以共灭共、以美灭共、以法灭共，都会在最后的爆发点上，这两个爆发点上“啪！”~ 爆发，断修魏也停不了，也停不了！
+（9）除了本小节所述的强制技术外，美国贸易代表根据《1974年贸易法》（《美国法典》第19卷第2411节）对中共国进行的调查还认定，（中共国）要求外国公司以低于市场价值的价格（获得）许可产品，政府指导和政府补贴为战略目的收购的敏感技术，调查还确认了中共国的网络盗窃是其他不合理和不公正的关键技术获取和产业政策。这些政策使美国的知识产权、创新和技术发展以及数十个行业的就业面临风险。
 
-所以说我这两天在法庭上就感受人家的法庭、人家美国这个制度，让每个人穿着正装在那里严肃认真，你一句话谎都不能撒。在法庭所有的问题你记住别造假，你别撒谎，撒谎这事你就输掉一切，你可以合法的回避保护你自己，而且美国法庭不允许你证明自己有罪，不允许的，你自己证明有罪是不可以的，是要用证据和第三方事实来证明你有罪。
+（10）中共国产业政策生态系统中损害创新和扭曲全球市场的其他因素包括 –
+（A）推动鼓励本地生产而非进口的政策；
+（B）继续推行有利于中共国企业采用独特技术标准，而非全球公认标准的政策，这往往迫使外国企业改变其产品和制造链以进行竞争；
+（C）要求外国公司披露专有信息，以便有资格在中共国国内市场采用其标准；以及
+（D）维持封闭的采购流程，限制外国公司的参与，包括制定条款，要求外国公司使用国内供应商，向中共国公司转让专有技术，并披露专有信息。
 
-但是对方是以假以法耍流氓啊，就是Sasha龚这种瞪着眼睛完全胡说八道的，它是另外一回事儿，最后法律会给你答案。那么很多感动的事情，SEC现场的抗议DC纽约和我们到现场去的战友们有理有节、收放自如、非常文明、绝对守法，而且展示新中国联盟的形象。
+（11）在“一带一路”倡议和相关行业的具体努力，如数字丝绸之路，是推动中共国重商主义政策和实践在全球的关键载体，由此带来的挑战不仅影响到美国公司，欧洲商会在2020年1月的一份报告中指出，对中共国有企业的优惠贷款、不透明的采购和投标流程、封闭的数字标准，其他因素严重限制了欧洲和其他国家对“一带一路”倡议的参与，使得“在第三国市场（与中共国公司）的竞争极具挑战性”。这突出了“一带一路”倡议的一个关键目标，即确保基础设施、数字技术和其他重要商品依赖于中共国的供应链和技术标准。
 
-这不是七哥让你们去的，法庭专门问，对方的律师问是不是你让来的，我说不是我让来的的，当然不是我让来。大家都知道的是吧？我怎么可能让来呢？但是他展示新中国联邦的形象，这是新中国联邦的权力，是中国人的权利，我们让世界看到了我们什么样子。而且据我所知在DC华盛顿，还有在纽约包括在法庭这一次次的抗议，都让西方世界媒体，政治家多人看到。
+（b）国会意识 – 国会认为 –
 
-就在这个桌子，前天我从法庭回来就在这开会，最重要的美国政治家之一亲口告诉我说，亲口告诉我说：“真的是对我们的新中国联邦印象极为深刻！”我跟他谈的事情要未来你要当上总统得承认我们的新中国联邦，我是谈这个，然后呢谈的很多话题，我现在不能说，绝对震撼啊！绝对震撼！就在这儿，就在这儿。因为我们同时还和另外地区没来的视频上还在谈这个问题啊，就在这儿啊，对方坐在这、我坐在这儿，我们坐在这儿开会啊，那天会开到11点半吧？就是前天晚上 ，昨天回来又开到将近12点，戴着口罩，因为我从法庭回来。我戴着口罩我不能吃，我提前吃点东西，吃了一盆肉，然后呢，这么大一盆肉，然后吃完肉以后。人家来了，人家吃、人家喝酒，我戴着口罩坐着跟人家谈。然后是11点40睡觉了，倒那儿就睡着了，醒来之后大概在两点多一点一直工作到大概六点钟，然后又睡了将近，额不，五点钟，又睡到将近八点。咵！醒来了，不行，我得直播。 睡的舒服的不行了，所以人吧，你看他一有精力了、睡醒了，战友们一看这信息我根本没法回。那么多手机。战友们，你们所有的问候我没法回，但是我在这儿，我的表达因为这个案子还没有判我不能讲啊。等到这个案子判决出来后，我希望所有的战友们能认真静下心来参与的人，好好谈谈这个庭上的感受，好好谈谈这个感受。
+（1）像中共国这样的非市场经济体，在全球经济交流中占有如此大的份额，所带来的挑战在许多方面都是前所未有的，需要充分提升和持续的长期关注和警惕；
 
-接上文——
+（2）为了真正解决中共主导的重商主义经济战略中最有害的方面，美国必须采取 –
+（A）揭露中共国企业知识产权盗窃和大规模补贴的全部范围和规模，以及由此对美国、外国市场和全球经济造成的危害；
+（B）确保中共国公司面临反竞争行为的成本和后果；
+（C）为受影响的美国人提供解决方案和应对不合理和歧视性产业政策的选择；以及
+（D）加强对关键技术和敏感数据的保护，同时营造鼓励创新和竞争的环境；
 
-[郭文贵先生2021年4月23日直播前播放视频文字汇总](https://gnews.org/zh-hans/1133710/)
+（3）美国必须通过经济合作与发展组织（OECD）、世界贸易组织（WTO）以及其他场所和论坛与盟友和伙伴合作 –
+（A）加强长期以来公认的公平竞争和市场行为原则，解决中共国的反竞争经济和产业政策，这些政策破坏了几十年的全球增长和创新；
+（B）确保中共国在停止实施法律、法规、政策和惯例之前，不享有与自由市场经济同等的待遇，这些法律、法规、政策和惯例只为促进实现本国目标，对中共国企业提供不公平的利益保护，对以市场为基础的国际贸易施加不合理、歧视性和非法的负担；
+（C）调整政策，限制国家对私营部门的补贴，例如倡导有关透明度和坚持诚信的全球规则，包括通过美国、日本和欧洲联盟目前正在进行的努力；以及
 
-[郭先生0423I七哥六四可能要献的新歌儿将会惊倒战友](https://gnews.org/zh-hans/1135585/)
+（4）美国及其盟国和伙伴必须合作，鼓励各自的公司在以下领域进行合作 –
+（A）倡导保护世界各地市场的知识产权；
+（B）培养开放的技术标准；以及
+（C）加大对海外市场的联合投资。
+（本节完）
 
-[郭先生0423II什么样的药、什么样的医生也不如一个人的爱](https://gnews.org/zh-hans/1135641/)
+原文链接：
 
-[郭先生0423III演艺圈体育界对率性加入爆料革命者羡慕不已](https://gnews.org/zh-hans/1135655/)
+[https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf](https://www.foreign.senate.gov/imo/media/doc/DAV21598%20-%20Strategic%20Competition%20Act%20of%202021.pdf)
 
-[郭先生0423IV严密监护之下的王岐山虽极度恐惧也见了不少人](https://gnews.org/zh-hans/1135665/)
+文字整理：
 
-[郭先生0423V中共航母平衡器被黑瘫舰载机用俄飞行员充胖子](https://gnews.org/zh-hans/1135702/)
+TITLE IV—INVESTING IN OUR ECONOMIC STATECRAFT
 
-[郭先生0423VI政治经济军事外交全草包习彻底成了孤家寡人](https://gnews.org/zh-hans/1135729/)** **
+SEC. 401. FINDINGS AND SENSE OF CONGRESS REGARDING THE PRC’S INDUSTRIAL POLICY.
+
+(a) FINDINGS —Congress makes the following findings:
+
+(1) The People’s Republic of China, at the direction of the Chinese Communist Party, is advancing an ecosystem of anticompetitive economic and industrial policies that—
+
+(A) distort global markets;
+
+(B) limit innovation;
+
+(C) unfairly advantage PRC firms at the expense of the United States and other foreign firms; and
+
+(D) unfairly and harmfully prejudice consumer choice.
+
+(2) Of the extensive and systemic economic and industrial policies pursued by the PRC, the mass
+
+subsidization of Chinese firms, intellectual property theft, and forced technology transfer are among the most damaging to the global economy.
+
+(3) Through regulatory interventions and direct financial subsidies, the CCP, for the purposes of advancing national political and economic objectives, directs, coerces, and influences in anti-competitive ways the commercial activities of firms that are directed, financed, influenced, or otherwise controlled by the state, including state-owned enterprises, and ostensibly independent and private Chinese companies, such as technology firms in strategic sectors.
+
+(4) The PRC Government, at the national and subnational levels, grants special privileges or status to certain PRC firms in key sectors designated as strategic, such as telecommunications, oil, power, aviation, banking, and semiconductors. Enterprises receive special state preferences in the form of favorable loans, tax exemptions, and preferential land access from the CCP.
+
+(5) The subsidization of PRC companies, as described in paragraphs (3) and (4) —
+
+(A) enables these companies to sell goods below market prices, allowing them to outbid and crowd out market-based competitors and thereby pursue global dominance of key sectors;
+
+(B) distorts the global market economy by undermining longstanding and generally accepted market-based principles of fair competition, leading to barriers to entry and forced exit from the market for foreign or private firms, not only in the PRC, but in markets around the world;
+
+(C) creates government-sponsored or supported de facto monopolies, cartels, and other anti-market arrangements in key sectors, limiting or removing opportunities for other firms; and
+
+(D) leads to, as a result of the issues described in paragraphs (A) through (C), declines in profits and revenue needed by foreign and private firms for research and development.
+
+(6) The CCP incentivizes and empowers Chinese actors to steal critical technologies and trade secrets from private and foreign competitors operating in the PRC and around the world, particularly in areas that the CCP has identified as critical to advancing PRC objectives. The PRC, as directed by the CCP, also continues to implement anti-competitive regulations, policies, and practices that coerce the handover of technology and other propriety or sensitive data from foreign enterprises to domestic
+
+firms in exchange for access to the PRC market.
+
+(7) Companies in the United States and in foreign countries compete with state-subsidized PRC
+
+companies that enjoy the protection and power of the state in third-country markets around the world. The advantages granted to PRC firms, combined with significant restrictions to accessing the PRC market itself, severely hamper the ability of United States and foreign firms to compete, innovate, and pursue the provision of best value to customers. The result is an unbalanced playing field. Such an unsustainable course, if not checked, will over time lead to depressed competition around the world, reduced opportunity, and harm to both producers and consumers.
+
+(8) As stated in the United States Trade Representative’s investigation of the PRC’s trade practices under section 301 of the Trade Act of 1974 (19 U.S.C. 2411), conducted in March 2018, ‘‘When U.S. companies are deprived of fair returns on their investment in IP, they are unable to achieve the growth necessary to reinvest in innovation. In this sense, China’s technology transfer regime directly burdens the innovation ecosystem that is an engine of economic growth in the United States and similarly- situated economies.’’
+
+(9) In addition to forced technology described in this subsection, the United States Trade Representative’s investigation of the PRC under section of the Trade Act of 1974 (19 U.S.C. 2411) also identified requirements that foreign firms license products at less than market value, government-directed and government-subsidized acquisition of sensitive technology for strategic purposes, and cyber theft as other key PRC technology and industrial policies that are unreasonable and discriminatory. These policies place at risk United States intellectual property rights, innovation and technological development, and jobs in dozens of industries.
+
+(10) Other elements of the PRC’s ecosystem of industrial policies that harm innovation and distort global markets include—
+
+(A) advancement of policies that encourage local production over imports;
+
+(B) continuation of policies that favor unique technical standards in use by Chinese firms rather than globally accepted standards, which often force foreign firms to alter their products and manufacturing chains to compete;
+
+(C) requirements that foreign companies disclose proprietary information to qualify for the adoption of their standards for use in the PRC domestic market; and
+
+(D) maintenance of closed procurement processes, which limit participation by foreign firms, including by setting terms that require such firms to use domestic suppliers, transfer know-how to firms in the PRC, and disclose proprietary information.
+
+(11) The Belt and Road Initiative (BRI) and associated industry-specific efforts under this initiative, such as the Digital Silk Road, are key vectors to advance the PRC’s mercantilist policies and practices globally. The resulting challenges do not only affect United States firms. As the European Chamber of Commerce reported in a January 2020 report, the combination of concessional lending to Chinese state-owned enterprises, nontransparent procurement and bidding processes, closed digital standards, and other factors severely limit European and other participation in BRI and make ‘‘competition [with Chinese companies] in third-country markets extremely challenging’’. This underscores a key objective of BRI, which is to ensure the reliance of infrastructure, digital technologies, and other important goods on PRC supply chains and technical standards.
+
+(b) SENSE OF CONGRESS. — It is the sense of Congress that—
+
+(1) the challenges presented by a nonmarket economy like the PRC’s economy, which has captured such a large share of global economic exchange, are in many ways unprecedented and require sufficiently elevated and sustained long-term focus and engagement;
+
+(2) in order to truly address the most detrimental aspects of CCP-directed mercantilist economic strategy, the United States must adopt policies that—
+
+(A) expose the full scope and scale of intellectual property theft and mass subsidization of Chinese firms, and the resulting harm to the United States, foreign markets, and the global economy;
+
+(B) ensure that PRC companies face costs and consequences for anticompetitive behavior;
+
+(C) provide options for affected United States persons to address and respond to unreasonable and discriminatory CCP-directed industrial policies; and
+
+(D) strengthen the protection of critical technology and sensitive data, while still fostering an environment that provides incentives for innovation and competition;
+
+(3) the United States must work with its allies and partners through the Organization for Economic
+
+Cooperation and Development (OECD), the World Trade Organization, and other venues and fora—(A) to reinforce long-standing generally accepted principles of fair competition and market behavior and address the PRC’s anticompetitive economic and industrial policies that undermine decades of global growth and innovation;
+
+(B) to ensure that the PRC is not granted the same treatment as that of a free-market economy until it ceases the implementation of laws, regulations, policies, and practices that provide unfair advantage on PRC firms in furtherance of national objectives and impose unreasonable, discriminatory, and illegal burdens on market-based international commerce; and
+
+(C) to align policies with respect to curbing state-directed subsidization of the private sector, such as advocating for global rules related to transparency and adherence to notification requirements, including through the efforts currently being advanced by the United States, Japan, and the European Union; and
+
+(4) the United States and its allies and partners must collaborate to provide incentives to their respective companies to cooperate in areas such as—
+
+(A) advocating for protection of intellectual property rights in markets around the world;
+
+(B) fostering open technical standards; And
+
+(C) increasing joint investments in overseas markets.
 
 0

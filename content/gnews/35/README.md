@@ -1,33 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新冠长期症状者死亡率增加59%
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1135035/)
+## 墙内出现网络攻击中共黑警不罚黑客罚受害者
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1135091/)
 
-作者：Chloe
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a1-3.jpg)
-最新发表在《自然》杂志上的研究表明，新冠长期症状者因其旷日持久的症状而死亡的风险要高很多。
+字幕听译：乐禧禧| 字幕PR： yyshere | 字幕： 雨中漫步| 评论：Filon | 评论PR: 宁缺|评论翻译: yyshere | 翻译PR: Marialu
 
-高多少？研究人员4月22日在《自然》杂志上报告说，数据显示长期症状者在感染SARS-CoV-2病毒后六个月内死亡的风险增加59%。
+[!\[\]()!\[\](https://spark.adobe.com/page/aD1l4bdirc3N1/images/7b0ba838-87d5-4d64-b517-0b0940f9359f.jpg?asset_id=cf293495-7ff4-4cac-9650-2c2d5da6f8e9&amp;img_etag=%22062e226101595d2ca5c85d7bb62499b2%22&amp;size=1024)](https://spark.adobe.com/page/aD1l4bdirc3N1/images/7b0ba838-87d5-4d64-b517-0b0940f9359f.jpg?asset_id=cf293495-7ff4-4cac-9650-2c2d5da6f8e9&amp;img_etag=%22062e226101595d2ca5c85d7bb62499b2%22&amp;size=1024)
 
-领导这项研究的密苏里州圣路易斯退伍军人医疗中心研究和发展处处长Ziyad Al-Aly在接受彭博社采访时说：“当我们关注新冠病人急性期时，我们只是看到了冰山一角”。 发现长期症状者之后，“我们开始看到那座冰山下面的一点东西，这真的很令人震惊”。
+**墙内出现网络攻击中共黑警不罚黑客罚受害者**
 
-Al-Aly和他的同事们记录了困扰长途旅行者的一连串衰弱症状，甚至是在他们被诊断后的几个月：从血凝块、中风、糖尿病和呼吸困难到心脏、肝脏和肾脏损伤、抑郁、焦虑和记忆丧失。
+**——解决问题力所不及，解决人民得心应**
 
-什么是长期症状者？
+2021年4月8日19时许，银川市金凤区发生了一起黑客攻击事件。银川某科技有限公司报警称，公司的服务器被人恶意攻击导致无法正常使用。据银川某科技有限公司工作人员介绍，他们发现在当天下午自己企业的网站登录不上了，随后整个办公系统瘫痪，工作无法正常进行。
 
-一般来说，绝大多数新冠感染者属于两类人之一：大约80%的COVID-19患者最终有轻微的反应，大多数在大约两周内消失。对于对该病毒有严重反应的人来说，可能需要三到六周的时间来恢复。
+中共警察通过检测分析发现，该公司将服务器暴露在互联网，未使用安全设备进行基本安全防护、操作系统未安装杀毒软件，导致其公司服务器被黑客入侵、攻击。随后金凤区公安分局网安大队根据《网络安全法》的相关规定，对银川某科技有限公司未落实网络安全等级保护制度、未履行网络安全保护义务的行为，给予了相应的处罚。
 
-但现在有研究发现，有10%的新冠感染者不属于这两类人中的任何一类。他们在感染新冠后的几个月之后还会出现症状。
+[!\[\]()!\[\](https://spark.adobe.com/page/aD1l4bdirc3N1/images/405f95ce-8401-4cb8-8c32-196f28081615.png?asset_id=8ff160ff-c807-472d-b12b-bbb9c6a67802&amp;img_etag=%2247dce08684fe6c07479c52cc1cda7782%22&amp;size=1024)](https://spark.adobe.com/page/aD1l4bdirc3N1/images/405f95ce-8401-4cb8-8c32-196f28081615.png?asset_id=8ff160ff-c807-472d-b12b-bbb9c6a67802&amp;img_etag=%2247dce08684fe6c07479c52cc1cda7782%22&amp;size=1024)
 
-这个群体被称为“长期症状者”，包括年轻的、年老的，曾经健康的、有慢性病的，住过院的和没住过院的。 令人沮丧的是医学界还没有找到造成这个情况的原因。
+网络科技公司遭遇黑客攻击报警，警方没有能力找出黑客，反而认为科技公司安全措施不到位才让黑客有机可乘。逻辑上看似很荒唐，在中共治下却稀松平常。因为归根结底，政府官员内心认为民营网络科技公司的损失跟中共政府职能部门的利益没有半毛钱的关系。中共政府职能部门无法解决人民提出的问题，却十分擅长解决提出问题的人民。
 
-参考文献：
+中共擅长解决提出问题的人，在中共国这是极其普遍的现象。中共政府对权力的意识本质延续的是封建制度几千年下来的官本位思想。中共政府并不是真正由人民一人一票选出，职能部门权力的来源是领导，而非人民。官员不需要对人民负责，只需要对上级效忠，觉得官大于民。这种官民不对等的思想充斥着中共政府每一个职能体系，自然也就不会去在乎人民真正所遇到的问题。
 
-[New Study Shows “Long Haul” COVID-19 Can Kill Patients Months After Infection](https://www.zerohedge.com/covid-19/new-study-shows-long-haul-covid-19-kills-patients-months-after-infection)
+人类已进入21世纪，世界都开始研究火星了，号称人类先进文明体系的中国共产主义掰开虚伪外表，内核却还是封建旧制留下来的统治人民专制思想。中共政府七十年来除了将人民的GDP剥削的更狠，其它方面并未给世界提供多少前进动力，反而让人民与世界文明普世价值渐行渐远。共产主义的一党专政独裁体制是阻碍中国人民自由发展的枷锁，是时候让人民自己来发挥了。只有自由的中国人民在看清事情本质和真相之后，所迸发出无限的力量和潜能才能给人类文明提供发展助力。
 
-[Management of post-acute covid-19 in primary care](https://www.bmj.com/content/370/bmj.m3026)
+- [敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-发布：GLC
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/y2hVue2ZjdoiB/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/y2hVue2ZjdoiB/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
