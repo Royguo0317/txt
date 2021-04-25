@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】我们正在并肩战斗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1137361/)
+## 【有声读物】中共以举国之力打击治理跨境“赌博资金链”，有何企图？
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1137426/)
 
-配音：香草山录音组 Swr拥抱太阳
+配音：香草山录音组 蒙古鸿雁
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -12,25 +12,22 @@
 
 
 
-清早起来，阳光从《路德访谈》开始
 
-晚上不困，做完义工才睡
 
-若有七哥直播，定好闹钟，就怕错过
+据墙内媒体消息，4月23日，中共国央行召开所谓的打击“治理跨境赌博资金链”工作会议。会议重点为了就进一步推进金融领域打击“治理跨境赌博”进行部署。中共国人民银行副行长范一飞出席会议并讲话。
 
-都想被点名，无论网名有多长，多拗口
-
-搬起小板凳，作一个专心聆听的小学生
+范一飞指，2020年以来，由中共决策部署，紧抓“资金链”这条主线，要通过“靠前布局、主动作为”，实现“账户核查、风险整治、平台建设、线索移送、案件协办”等，目的就是企图打击所谓的跨境赌博“资金链”。
 
 
 
-**文字版原文：[【香草诗词汇】我们正在并肩战斗](https://gnews.org/zh-hans/652210/)**
+**文字版原文：[【热点播报】中共以举国之力打击治理跨境“赌博资金链”，有何企图？](https://gnews.org/zh-hans/1133630/)**
 
-作者：香草山写作组 木白
+作者：纽约香草山健身部 Jack Li文阳
 
 
 
-音频处理/发稿：雪梨
+音频处理：喜山必胜Maverick
+发稿：雪梨
 
 ![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 

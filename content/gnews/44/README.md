@@ -1,46 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】COVID-19疫苗的另一个副作用：带状疱疹
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1137435/)
+## 《路德社》新闻快讯（视频版）: 20210422蓬佩奥国务卿接受FOX采访
+` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1137455/)
 
-配音：香草山录音组 蒙古鸿雁
+《路德社》出品
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+以下视频是详细内容：
 
+主要内容：
 
+1.重返气候协议和拜登今天的声明是给CCP的礼物
 
+2.还没有看见CCP兑现过一次它的承诺，再提distrust but verify
 
+3.拜登政府以为的胜利只不过是CCP画的饼
 
+4.迅速解决现在问题的办法在于回归川普政府政策
 
-
-自然新闻网站4月20日的报道称，血凝块理所当然是COVID-19疫苗更引人注意的副作用之一，但以色列科学家又宣布了另一个潜在的副作用：疱疹感染。
-
-带状疱疹开始时是一种带有小红疙瘩的瘙痒性皮疹，如果不加以治疗，它可能导致疼痛和神经损伤。它还会在皮肤上引起长时间的烧灼感，这种感觉会在皮疹消失后持续很长时间。
-
-
-
-**文字版原文：[【热点播报】COVID-19疫苗的另一个副作用：带状疱疹](https://gnews.org/zh-hans/1131748/)**
-
-作者：纽约香草山写作组 四季
+5.称赞布林肯认定种族灭绝，鞭策拜登政府的薄弱环节
 
 
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+翻译：路德社翻译组
 
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+制作：路德社视频组
 
-**更多资讯，更多关注**
+审核校对：玫瑰新闻组
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+上传排版：玫瑰新闻组
 
 0
