@@ -1,117 +1,89 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/04/25 英喜时事速递
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1137329/)
+## 【香港快訊】 4月25日 支聯會續辦六四集會「結束一黨專政」口號恐違國安法 中大學生會前會長拒舉報自保
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1137791/)
 
-收集：Filon，Daniel，Alicia
-*（世界协调时）部分信息收集于网络世界的各方，请自行甄别*
+蒐集/整理：【喜馬拉雅-粵語組】阿恩、PO / 封面合成：文粵
+![pastedGraphic.png]()![pastedGraphic.png](https://gnews.org/wp-content/uploads/2021/04/image001-75.jpg)
+**支聯會續辦六四集會　「結束一黨專政」口號恐違國安法**
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/coronavirus1.jpg)
+因應1989年六四事件而成立的支聯會，過去一直以「結束一黨專政」作為其中一項綱領，亦在每年舉行的六四晚會上高呼此口號。有指在集會上高呼此口號，兼有實質性行為，就可能觸犯《港區國安法》。有執業大律師表示，支聯會的綱領中如果不刪去「結束一黨專政」，舉行的活動亦有機會違反國安法。
+![pastedGraphic_1.png]()![pastedGraphic_1.png](https://gnews.org/wp-content/uploads/2021/04/image002-15.png)
+**警方回信外國記者會　稱假資訊陰謀論可對社會構成挑戰**** **
 
-## 秘密翻译组：[闫博士解释为什么中共病毒实验室来源问题和政治无关](https://gtv.org/getter/6083f0878616c84f0ff33391)
+香港外國記者會（FCC）週四（22 日）去信鄧炳強，要求澄清如何界定假新聞，及如何保障新聞自由。警方今（24 日）由警察公共關係科總警司郭嘉銓回信，無回應何謂「假新聞」（fake news），並聲稱警方尊重言論自由，會在不抵觸警方行動前提下，協助「專業的」採訪工作，警方作為執法部門，有責任不偏不倚維護法紀，維持社會安定，「無人可以凌駕法律（No one is above the law）」強調 。
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/闫博士-1.jpg)
+警務處處長鄧炳強發公開信中表示，警方一向尊重言論、新聞及出版自由，在不影響警方的行動效率前提下，警員願意協助「專業的」採訪工作（As long as the operational efficiency of the Force is not compromised, Police officers will facilitate professional reporting work.）
+![pastedGraphic_2.png]()![pastedGraphic_2.png](https://gnews.org/wp-content/uploads/2021/04/image003-33.jpg)
+**工會狠批「鎖港條例」未列明入境處長權限****冀社會關注**
 
-评论：中共≠中国人！是在任何时间任何地点都需要被首先阐明的观点。我们中国人远离中共要像躲瘟疫一样与它隔开万尺。中共注定在不久的未来会被世界消灭的连灰尘都剩不下，中国人可不能被它再继续绑架或带走了。
+獲法案委員會極速通過的《2020年入境（修訂）條例草案》，即將於4月28日立法會大會上二讀。若修訂通過，入境處處長或有權禁止任何人出入境香港，被形容為「鎖港條例」。
 
-## 英喜农场Gnews：[中共病毒变种横扫印度 卫生系统崩溃](https://gnews.org/zh-hans/1134016/)
+多個工會今午（25日）就有關條例擺街站呼籲市民關注，有街站義工批評，草案中就入境處處長的權力寫得太含糊，完全無法得知可於甚麼時候使用、對誰使用。又表示深明在建制派把持下，已無法阻止立法會通過修訂，但仍希望社會關注事件，「不可以連講真話的人都沒有」。警方全程派便衣警員在現場監視，及後更有一隊軍裝警員到場截查街站。
+![pastedGraphic_3.png]()![pastedGraphic_3.png](https://gnews.org/wp-content/uploads/2021/04/image004-13.jpg)
+**民陣陳皓桓堅持留守：政權要打壓你的時候，你無法回避**
 
-![]()![](https://spark.adobe.com/page/QPbLpfEPZWUmx/images/4fc4208f-1c3b-4946-90e9-c10e4a2f0705.jpg?asset_id=914e5df7-f3fc-4785-b2f4-d20cf72d6c35&amp;img_etag=%221079b76dd28bc1746079c54fde252ee2%22&amp;size=2560)
+難以掌握紅線的《國安法》下，一篇無事實基礎的外媒報道令成立近20年的民間人權陣線飽受衝擊，遭到《文匯報》、《大公報》等中共喉舌連日刊文追擊，多個團體和秘書處職員憂誤觸「紅線」，先後宣佈停止參與和退出民陣工作。現於民陣「一夫當關」的陳皓桓坦言早前曾因此「壓力爆炸」，一度反思應否退出民陣，最終自覺在社運人士中「包袱最少」，決定留守。身負多宗案件的他稱，預計6月或會首度入獄，稍後會與仍留在民陣的組織商討未來方向，包括是否需要暫停運作。他稱，在極權政府下爭取民主自由，坐監或一如古思堯所言，「可能真係要成為我哋生活一部份」，指港人能做的就是在監獄外繼續堅持，「盡力發聲」。
+![pastedGraphic_4.png]()![pastedGraphic_4.png](https://gnews.org/wp-content/uploads/2021/04/image005-13.png)
+**中大校友評議會週年會員大會選出新主席及兩名常委**** **
 
+中文大學校友評議會舉行週年會員大會，選出新主席及兩名常委。
 
-> 评论：中共所谓的有效控制疫情就是不把人当人，只当一个数字。任何非独裁体制的民主国家都无法像中共这样“高效”处理人民。印度疫情的二次爆发对医疗系统的击溃，是中共超限战生物武器的又一次得逞。只有消灭中共才能彻底解除疫情。
+評議會主席一職有兩人競逐，楊於銘以6544票擊敗獲1022票的原副主席郭碧蓮。
 
+至於兩個常務委員議席，共有四名候選人參選。李軒朗及盧俊宇分別取得7709票及7715票當選，落選的李廣宇及王翠虹分別獲1016票及996票。3名當選人任期由昨日起至2023年8月31日。
 
-## 意大利达芬奇农场Gnews：[病毒突变体在增加](https://gnews.org/zh-hans/1132392/)
+根據相關條例及章程，中大校友評議會可從常委中推選不超過3名成員為大學校董，而校友評議會主席如符合指定條件，可自動當選為代表校友評議會的大學校董。
+![pastedGraphic_5.png]()![pastedGraphic_5.png](https://gnews.org/wp-content/uploads/2021/04/image006-23.jpg)
+**中大學生會前會長周竪峰拒舉報自保**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/yxbze.png)
+香港多名民主派人士在《國安法》通過後離港，曾參與籌組「香港公民議政平臺」工作的[中文大學學生會前會長周竪峰](https://www.facebook.com/WingCheungHK/posts/10217599610215909)今日在社交網站發文Facebook表示，自己於上月15日結婚，25日已離港，如今人在加拿大。文中透露他前年有份於7月1日佔領立法會，事後曾短暫逃往日本避風頭，但兩周後便回港。他在帖文中透露離港前的想法，稱自己4年前卸任中大學生會會長後，專心議員助理和文字工作，因初選案中，民主動力幕後工作人員亦被捕，對他是極大的警示，故他已於上月25日離港；並透露在初選案提訊期間，收到一名「中共國背景的人」透過中間人邀約會面，明言商談公民議政平臺事宜，暗示要他「舉報自保」。周坦言，倘若被告，沒有信心能保持尊嚴、貫徹信念，不投降、不乞求，故懦夫地選擇離開。
+![pastedGraphic_6.png]()![pastedGraphic_6.png](https://gnews.org/wp-content/uploads/2021/04/image007-21.jpg)
+**港府再封台灣教會網站**
 
+有曾關注香港人權問題的台灣教會「台灣基督教長老會」官方網站（http://www.pct.org.tw/），週六（24日）被香港用戶發現無法正常登入，用戶無法以手提或電腦正常載入該網，惟必須使用VPN（虛擬私人網絡）方能成功。警方與保安局回覆指「對任何揣測不作評論」。
 
-> 评论：德国权威病毒机构报告：新的欧洲病毒突变样本会绕过先前感染和接种疫苗的人的免疫保护。事实再一次佐证闫丽梦天使的在去年的判断，不找准病毒源头而跟着新增病例去寻找所谓原因和疫苗都是徒劳无效的。这反而是中了CCP的超限战诡计的。
+「台灣基督教長老會」為台灣教會網站，但該會同時亦十分關注人權民主議題，包括台灣主權、香港流亡人士等。該教會曾發表名為「堅守台灣的主權與尊嚴」聲明，表明期望政府或民間建立「民主防衛機制」，以防「中共國利用台灣的民主機制破壞台灣民主」，又呼籲要參與國際組織，「建立新而獨立的國家」等。黨媒《大公報》亦曾指控該會的濟南教會主任牧師黃春生，曾有份協助香港被控抗爭者逃亡，更指黃與已故台灣前總統李登輝關係密切，有份出錢支援香港示威等。
 
+此次封網情況與今年1月一個名為「香港編年史」的網站情況類似。有指因「香港編年史」內，載有大量警務人員及親建制者的個人資料，故遭警方國家安全處引用《港區國安法》第43條封鎖，為港府的首次封網行動。「香港編年史」其後亦有自行刊登回應，指「有理由相信香港的網絡供應商，主動封鎖本站內容，而當中或涉及政府部門的要求或合作。」
+![pastedGraphic_7.png]()![pastedGraphic_7.png](https://gnews.org/wp-content/uploads/2021/04/image008-12.jpg)
+**市建局逼遷****趕絕裕民坊商戶**
 
-## 香草山农场Gnews：[【世事解评】忠字舞还魂，文革回潮](https://gnews.org/zh-hans/1134636/)
+裕民坊（Yue Man Square）位於[九龍](https://zh-yue.wikipedia.org/wiki/%25E4%25B9%259D%25E9%25BE%258D)[觀塘](https://zh-yue.wikipedia.org/wiki/%25E8%25A7%2580%25E5%25A1%2598)市中心，長0.3公里，曾經是區內最旺的街，不過自2000年代開始納入重建項目，商品逐漸遷出，由於有商戶認為搬遷方案的津貼水準不足，未能反映構築物「市值」，目前仍有4間商戶堅持不會遷走。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS2306-%E3%80%90%E4%B8%96%E4%BA%8B%E8%A7%A3%E8%AF%84%E3%80%91%E5%BF%A0%E5%AD%97%E8%88%9E%E8%BF%98%E9%AD%82%EF%BC%8C%E6%96%87%E9%9D%A9%E5%9B%9E%E6%BD%AE.jpg)
+本月14 日市建局人員夥同執達吏（負責執行及傳達[法官](https://zh.wikipedia.org/wiki/%25E6%25B3%2595%25E5%25AE%2598)裁決的[職員](https://zh.wikipedia.org/wiki/%25E8%2581%258C%25E5%2591%2598)）清場，焊死鐵閘並張貼收樓令，有果汁店老闆一度與人員推撞致手部受傷，4月18日亦有曾在裕民坊經營清潔公司的 70 歲商戶，一度闖入已圍封的裕民坊天臺企跳下。
 
+市區重建局行政總監韋志成今日（25日）強調整體收回構築物過程合法合理，呼籲其餘佔用人盡快接受津貼遷出。協助留守商戶的「活在觀塘」負責人馮炳德批評， 目前市建局提議商戶搬遷至裕民坊對面凱匯商場內的「裕民裡」，換址後首3年將安排半租，每月租金介乎8,000至2.5萬港元不等，並在第4年開始全租，月租介乎1.6萬至2.5萬港元不等。馮又透露，願意搬至新商場的商戶，或面臨搬遷費被削近一半的局面，日後每月亦須自行負擔管理費及維修費等。大多數裕民坊商戶希望重新在觀塘原址復業，但市建局的觀塘復業計劃卻極為嚴苛，加重商戶經濟負擔，令他們復業後亦難以維生。
+![pastedGraphic_8.png]()![pastedGraphic_8.png](https://gnews.org/wp-content/uploads/2021/04/image009-14.jpg)
+**華大基因採樣差致走漏變種個案　衞署拒撤換**
 
-> 评论：共党不除，中华大地会在中共愚人的统治下迷宫式的一遍又一遍的邪恶轮回着。只有经历过，知道真相的清醒之人才能了解到它们的邪恶凉意。不站出来发声，所有人会被恶魔裹挟着往前再次轮回着，无一可以幸免。
+感染新冠肺炎N501Y變種病毒的菲傭，本月中在酒店完成21日檢疫隔離後，時隔一星期始確診，政府專家顧問、港大微生物學系講座教授袁國勇估計與採樣員在酒店採樣質素有關所致。衞生署表示，明日（26日）起會加入另一承辦商Prenetics提供檢疫酒店服務，換言之，屢被揭出錯的港府化驗承辦商華大基因（BGI）將繼續負責有關採樣工作。
 
+衞生署依然保留屢次出現檢查問題的華大基因為外判檢測服務承辦商，僅決定由本月26日開始，加入Prenetics與華大基因一起為指定檢疫酒店接受強制檢疫人士提供檢測服務。
+![pastedGraphic_9.png]()![pastedGraphic_9.png](https://gnews.org/wp-content/uploads/2021/04/image010-11.png)
+**孔繁毅料染疫外傭帶南非毒株****或酒店檢疫期間收到變種病毒感染**** **
 
-## 央广网 ：【每日一习话】航天科技是科技进步和创新的重要领域
+本港昨日再從社區發現N501Y變種病毒個案，疫苗臨床事件評估專家委員會召集人孔繁毅在商台節目指，相信該名初步確診外傭帶有的病毒為南非變種，估計是入住酒店檢疫期間感染，雖然BioNTech復必泰疫苗應對南非變種病毒時的中和抗體有下跌，但該疫苗應對印度變種病毒時亦有一定保護性，但須做臨床研究才能確定。
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/20210424145052LR2B.jpg)
+另外，孔繁毅指，瑪麗醫院58歲醫生在打針兩日後出現中風出血，暫未有相關個案的詳細資料，但病人本身可能有睡眠窒息、血壓偏高等問題，仍有待委員會開會檢視更多臨床數據，才能肯定與疫苗有否關係。
 
+另外，關於2宗孕婦接種疫苗後流產的呈報，他說，已知與疫苗接種無關。
+![pastedGraphic_10.png]()![pastedGraphic_10.png](https://gnews.org/wp-content/uploads/2021/04/image011-9.jpg)
+**疫下****26****萬人失業　近****2****萬人申領綜援創****7****年新高**
 
-> 评论：在中共这种假骗偷、以及人人自危的恶性绞肉机体制下科技进步和创新根本就是句空谈。
+五一勞動節將至，政務司司長張建宗今早(25日)發表網誌wenh問候本港387萬「打工仔」，他期望本地疫情可持續受控，消費及營商氣氛亦可在今年往後時間全面恢復，但預料部分行業經營環境仍然困難，港府會繼續鼓勵市民接種疫苗。
 
+張又提到，本港經濟因疫情影響而備受打擊，勞工市場顯著受壓，上週四(22日)公佈的今年1月至3月失業率為6.8%，有約26萬人失業，今年3月底領取綜援的個案總數為19,810宗，較去年1月底大幅增加約60%，是自2014年中以來的7年新高。
+![pastedGraphic_11.png]()![pastedGraphic_11.png](https://gnews.org/wp-content/uploads/2021/04/image012-8.png)
+**半億「小白象」觀塘音樂噴泉啟用****不足兩天即損壞**** **
 
-## 央视新闻：习近平出席海军三型主战舰艇集中交接入列活动
+耗費5,000萬公帑建造的觀塘海濱音樂噴泉, 被巿民狠批的「小白象」啟用不足2天，部份設施疑已損壞，因地板不平, 地磚鬆脫需圍封等待維修。另外，網媒「100毛」藝人東方昇週六亦到音樂噴泉拍攝直播節目，並即場用梘液「沐浴」，康文署回覆傳媒查詢時不點名批評東方昇，呼籲市民使用遊樂場地設施時要著重公德。
 
-![习近平出席海军三型主战舰艇集中交接入列活动_随州新闻网_国内动态_国内新闻_随州新闻_随州市新闻门户网站【官网】](https://lh3.googleusercontent.com/proxy/ppclaW4y-J7oi5Ci-tUz-TJ8OdW6EWqK_mHNHxS6VydLmEmDCJ2WgQN-r6Ve33kf24Y0e12LCGXSYAoNuSuEHgvjX1XXuL4Lsq0IflaCpp1YqTkQjjy_wShfLeInxy7ygmzp)
+資料來源：[東網（1）](https://hk.on.cc/hk/bkn/cnt/news/20210425/bkn-20210425131734915-0425_00822_001.html)、[香港電台（2）](https://news.rthk.hk/rthk/ch/component/k2/1587554-20210424.htm)、[蘋果日報（3）](https://hk.appledaily.com/local/20210425/LVJIURG64BDQFGKN4Y37E5ABUE/)、[蘋果日報（4）](https://hk.appledaily.com/local/20210425/AGVWO43KBRAVXO6HNDIGBSZYV4/)、[香港電台（5）](https://news.rthk.hk/rthk/ch/component/k2/1587553-20210424.htm)、[蘋果日報（6）](https://hk.appledaily.com/local/20210425/EZPWMWMDB5F3DMEQYT4O6EWWM4/)、[蘋果日報（7）](https://hk.appledaily.com/local/20210425/CIAHGYHHZVBRTFSTKMV7DOAZKA/)、[蘋果日報（8）](https://hk.appledaily.com/local/20210425/JNBQHUGQIRDVHCPZCVMSF7ZQCA/)、[蘋果日報（9）](https://hk.appledaily.com/local/20210424/DVVPMBG5PJHWZN5KOC6TXYUQ5M/)、[蘋果日報（10）](https://hk.appledaily.com/local/20210424/FJMQ2WOVHVETXOWGWZISFTFBDE/)、[東網（11）](https://hk.on.cc/hk/bkn/cnt/news/20210425/bkn-20210425080920006-0425_00822_001.html)、[蘋果日報（12）](https://hk.appledaily.com/local/20210424/WKMF6AYFRVDG3CA5ELNWW2CNO4/)
 
+封面素材：蘋果日報
 
-> 评论：慈禧太后出席新购船舰的接收仪式。懂历史的一笑了之，被洗脑的群情激昂。一切轨迹一点不差的轮回着，真就都等待着那只靴子的落地。
+審核：卡西歐 / 校對：文粵 / 上傳：流光飛舞
 
-
-## 澎湃新闻-钟南山：正在全力研发针对变异毒株的疫苗
-
-![钟南山：正在全力研发针对变异毒株的疫苗|医学|中国工程院|钟南山_新浪科技_新浪网]()![钟南山：正在全力研发针对变异毒株的疫苗|医学|中国工程院|钟南山_新浪科技_新浪网](https://n.sinaimg.cn/sinakd2021424s/763/w1000h563/20210424/3e1c-kpamyii8283810.jpg)
-
-
-> 评论：钟南山指出的全力研发针对变异毒株的疫苗却戳破了中共自己撒的谎，让中共对毒疫苗的有效性、群体免疫屏障、和病毒来源问题的解释更加的无法自圆其说。
-
-
-## 观察者网:美国新政府还未找到与中国打交道的正确路径
-
-![王毅：美国新政府还未找到与中国打交道的正确路径_合作]()![王毅：美国新政府还未找到与中国打交道的正确路径_合作](https://p0.itc.cn/q_70/images03/20210424/76b3e80eced640b0a0e690f742e6eeee.jpeg)
-
-
-> 评论：不是美国新政府还未找到与中共国打交道的正确路径，而是中共与美国政府已经没有沟通管道了。
-
-
-## 北京日报：90后硕士村主任，上任两年沦为阶下囚
-
-![90后硕士村主任，上任两年沦为阶下囚_北京日报APP新闻](https://lh3.googleusercontent.com/proxy/-XrU01TUpSpLY9For1uQ4sFnLC_gxqBygzBneSI8isaDdZWTqHu5TSxlphimKQVdxJa3BwbZVkqtaGLSrnR5dZ8EurhcvkD96XLQIgMlKuWqFnCYwvk1VeB5-FrAiOozmxBum7WeUaLlqHP0SZ-duHoGeS7AXZc)
-
-
-> 评论：92年硕士研究生当村主任两年收受贿赂变为阶下囚，根源是共匪体制。在中共专制体制下，任何人都无法独善其身，只会跟着这台绞肉机一起掉落深渊。
-
-
-## 中國新聞簡訊​
-
-
-
-> 中國新聞簡訊​：接種兩劑仍確診 西安檢驗師恐染變種[#陝西](https://twitter.com/hashtag/%E9%99%9D%E8%A5%BF?src=hash&amp;ref_src=twsrc%5Etfw) 省西安市第八醫院隔離區一名檢驗人員3月18日確診，她在感染前已接種完成兩劑 [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw)-19疫苗。 [pic.twitter.com/EOLhag6vJe](https://t.co/EOLhag6vJe)
-> — 新唐人電視台 (@NTDChinese) [April 24, 2021](https://twitter.com/NTDChinese/status/1385872023281414145?ref_src=twsrc%5Etfw)
-
-
-
-
-> 评论：验证了爆料革命的情报，疫情一定会反复再来，疫苗对于这个中共生物武器病毒是毫无用处的！
-
-
-## 大纪元新闻网
-
-
-
-> 与中共关系密切 俄一科学家叛国罪判监20年 
-> 
-> 莫斯科城市法院4月23日发布消息说，该法院在4月22日判处研究火箭发动机的科学家沃罗比耶夫20年徒刑，并罚款1百万卢布。沃罗比耶夫被指与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hash&amp;ref_src=twsrc%5Etfw) 关系密切。[#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hash&amp;ref_src=twsrc%5Etfw) [#科学家](https://twitter.com/hashtag/%E7%A7%91%E5%AD%A6%E5%AE%B6?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/RzCi6sNYgc](https://t.co/RzCi6sNYgc)
-> — 大纪元新闻网 (@dajiyuan) [April 24, 2021](https://twitter.com/dajiyuan/status/1386042276762292229?ref_src=twsrc%5Etfw)
-
-
-
-
-> 评论：沃罗比耶夫被指与中共关系密切. 全世界对中共的围剿逐步加紧，就连“老大哥”对中共也不放过。
-
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

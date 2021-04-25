@@ -1,39 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】奴隶社会
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1137888/)
+## 慧眼看世界202104025（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1137984/)
 
-纽约香草山健身部 童谣
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-哪里一个民族如此勤劳却这样贫困？
 
-哪里一个家庭被拆散却无人发声？
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-71.png)图片来源：history.com
-学生苦读无果，
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-青年四处奔波，
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-16.jpg)
 
-壮年沉重苦难，
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-17.jpg)
 
-白发无养难安。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-16.jpg)
 
-那片土地满目疮痍、文化失传、信仰触手难及，
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-18.jpg)
 
-七个魔鬼控制十四亿奴隶。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-16.jpg)
 
-审核/发稿：正义的小新
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-**更多资讯，更多关注**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-14-scaled.jpg)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-14.jpg)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-14.jpg)
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-14.jpg)
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-21-scaled.jpg)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-25.jpg)
 
-+1
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-19.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-17.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-17.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-14.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
+
+0

@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】你把帽子戴得那么漂亮
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1137354/)
+## 【有声读物】塞林博士继续深挖中共“13579”生化武器计划
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1137409/)
 
-配音：香草山录音组 Swr拥抱太阳
+配音：香草山录音组 蒙古鸿雁
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -12,23 +12,24 @@
 
 
 
-有那么多的白云就在头顶
-
-有那么多的白云落在心底
-
-水的尽头还是水
-
-岸的尽头是手臂
 
 
+4月22日早上，塞林博士发推，“长春军事兽医研究所也许一直是一个生物战中心。2018年到2020年期间，舟山蝙蝠病毒ZC45和ZXC21在科学文献中消失，然而长春军事兽医研究所在秘密的对这些病毒进行实验。”
 
-**文字版原文：[【香草诗词汇】你把帽子戴得那么漂亮](https://gnews.org/zh-hans/635957/)**
+赛琳博士在推文下，贴出四位中（共）国军方病毒专家的照片，他们是参加舟山蝙蝠病毒研究的几个关键人物，分别是金宁一、何彪、范泉水、涂长春。
 
-作者：香草山写作组 木白
+通过网上查询，得到他们一些个人资料。
 
 
 
-音频处理/发稿：雪梨
+**文字版原文：[【热点播报】塞林博士继续深挖中共“13579”生化武器计划](https://gnews.org/zh-hans/1131373/)**
+
+作者：纽约香草山翻译部 雪莲
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
 
 ![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
@@ -44,4 +45,4 @@
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-0
++1
