@@ -1,58 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 一次扛九袋米的大叔與二百斤麥子不換肩的習近平
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1137162/)
+## 【有声读物】你把帽子戴得那么漂亮
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1137354/)
 
-#### 作者：今天是個好日子
+配音：香草山录音组 Swr拥抱太阳
 
-
-
-
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-4月22日，廣東廣州，一位50多歲在米店打工大叔的視頻傳遍網絡。大叔身高只有一米五，但總比別人扛得多，一次能扛9袋米，重達270斤。
 
-當工友們勸他不要這麼拼命時，大叔還是堅持這麼做。
 
-**大叔對工友說：**“你們年輕都不懂，等到了這個年紀就知道生活的壓力了。”
+有那么多的白云就在头顶
 
-大叔上有父母，下有讀書的孩子，他就想盡最大的努力給他們更好的生活。
+有那么多的白云落在心底
 
-**CheneyC”網友說：“**等五六十歲以上了，就知道因為這個落下的毛病都出來了。”
+水的尽头还是水
 
-**網友“多麼痛的領悟”**：都是被生活所迫，沒有別的選擇
+岸的尽头是手臂
 
-**網友“匄掵oヤ兲涯”：**這位大叔，我只想告訴你，幹苦力幹得再多再厲害，也改變不了現實。
 
-**“噠噠”網友：**現實很殘酷，要是勤勞能致富，最有錢的應該是農民
 
-看到這則“勵誌新聞”，我馬上想到了扛二百斤麥子不換肩的人民兒子—習近平。
+**文字版原文：[【香草诗词汇】你把帽子戴得那么漂亮](https://gnews.org/zh-hans/635957/)**
 
-20歲的習近平扛著200斤麥子走出了梁家河，就像當年的毛澤東扛著雨傘走出韶山沖一樣，最後扛到了中南海當上了總書記，這個故事確實很勵誌。
+作者：香草山写作组 木白
 
-如今，50多的大叔天天在廣州扛270斤大米，扛到最後只能把身體搞跨，還要回到老家種地為生，這個故事是悲劇。
 
-同樣是人，同樣是扛著200斤，差別怎麼這麼大。我想了半天，勤勞能致富嗎，知識能改變命運嗎？都不能，在墻國只有出身能改變命運。
 
-習近平說，“我很自豪，自己能夠出生在一個革命家庭裏”，但農民扛幾十年還是農民。
+音频处理/发稿：雪梨
 
-習近平扛麥子是因為他爹說，“孩子們不要放在溫室裏，要經受大風大浪。”而老百姓扛大米是生活所迫，不是接受革命考驗。
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
-墻國正能量故事很多，《96歲奶奶深夜擺攤30年！她的這席話，網友：通透又瀟灑》、《80歲老奶奶小巷擺攤賣牛雜，食客擠滿整個巷子，去遲了就買不到》、《為給兒子省錢結婚，環衛工大爺舍不得吃面，老板做法太霸氣！》。看了這些故事，我無法勵誌，內心只有淒涼。
+**更多资讯，更多关注**
 
-在墻國，我或我的後代早晚都會為了生活，要幹到96，面都舍不得吃，要一次扛270斤。我們不但要終身為奴，還要世世為奴。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-要想永不為奴，只有幹掉中共（CCP）這個邪惡的政黨！
-（本文僅代表作者個人觀點，跟GNEWS平臺無關。）
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**媒體鏈接：**
-【1】[身高1米5大叔一次扛9袋米：想給老人孩子更好的生活](http://k.sina.com.cn/article_5787187353_v158f17899020019909.html)
-【2】[追尋習近平總書記的初心·梁家河篇](http://www.xinhuanet.com//politics/2017-03/19/c_129512760.htm)
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-* * *
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-***編輯整理/校對: **Ting Guo*
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
