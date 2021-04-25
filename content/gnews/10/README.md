@@ -1,15 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月24日 文贵先生盖特 1
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1138547/)
+## 华为赢了？
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1138673/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
+俄罗斯莫斯科喀秋莎农场 娜洁仕达
 
-🔥🔥《GTV真人真事》第5期 嘉宾：木兰 时间：美东时间4月24日上午10:30（北京时间4月24日晚上10:30） 平台：GTV真人真事，纽约香草山在线 同传直播 主持：Masha 长岛哥 ⭐️巾帼英雄木兰，她所领导的秘密翻译组为爆料革命和传递真相的做出了突出贡献，而生活中的木兰，除了甜美的嗓音，还有什么是我们不了解的呢？ 欢迎大家收看《GTV真人真事》第5期，为您揭开木兰神秘的面纱🎉🎉
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/84e6f0573ffea7be09ba1696b5c11db7.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/fe36e198db895ac0e1ad70cc4b3af5c0.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/04/dee3940744e21d83387108c402670fbf.jpg)
-[【2021年4月24日】文贵先生盖特原文](https://gtv.org/getter/60838bc78616c84f0ff30f4b)
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/S-27.jpg)wa.de
+4月25日新浪报道，特斯拉或将被暂停销售。党媒发声，事故非个案，应及时叫停。报道说，“频频发生的事故表明‘特斯拉车失灵’已非个案，甚至不排除这是特斯拉车辆的共性问题”。上海国际车展的“特斯拉”事件沸沸扬扬，此次舆情危机最大受益者恐怕就是华为了。
 
-**喜联盟Gnews编辑部**
+华为在同一屋檐下，一边在售卖华为手机，一边则在销售电动车，跨界之大，吸引了沪深闹市区的大批市民进店看车。4月23日小康股份旗下的新能源汽车品牌赛力斯发布消息称，赛力斯华为智选SF5开售两天，订单突破3000辆。华为赢了，任正非笑了！
+
+就在刚刚过去的2020年特斯拉Model 3夺取中共国新能源车销售冠军，2021年3月份，特斯拉两款车型共销售35478辆，仍然排在第一位。
+
+从价格来看赛力斯华为智选SF5两驱版售价21.68万元，四驱版售价24.68万元。而4月9日特斯拉Model 3标准续航升级版和长续航版起售价均上调500美元，调价后价格为3.849万美元和4.749万美元。
+
+从性能来看，首款Huawei inside智能豪华纯电轿车北汽阿尔法S（华为HI版）4月17日宣布采用华为快充技术，充电10分钟，续航197公里。同时华为在分析大会上公开表示，能够在市区做到1000公里无干预的自动驾驶，据称远超特斯拉。
+
+刚刚从手机市场上败下阵来的华为，立刻在新能源汽车领域里俯视特斯拉。曝光的数据堪称华丽，但是在爆料革命战友的眼里看来，这些数据不过是收割墙内无知“韭菜”的利器而已。
+
+特斯拉最核心的科技在于人工智能，它将航天技术引用到汽车上来，在汽车高速行驶当中遇到紧急情况能够做出躲闪动作，电脑操控的速度远远高于人脑的反应速度，大大降低了事故发生率。如此强大的计算能力，别说华为，就连智能手机的老大苹果公司也难望其项背。
+
+华为没有自己的系统，制造不出芯片，手机被“卡住了脖子”就想到养猪、现在甚至要在新能源汽车领域碾压特斯拉。这让人想到的是最近网上疯传的美国航母上舰长翘脚静观辽宁号的那照片。
+
+文贵先生爆料辽宁号的平衡器被美军在日本人面前打掉了，这不过是美军小试一下牛刀，但等于汽车轮子给人卸了一样，辽宁号立刻趴窝了，他们还继续装逼吗？台湾媒体也知道了，辽宁号出来是出外景拍献礼片的，阵仗很大，实力根本没有，别说打仗，连演习都不是。
+
+这华为与辽宁号如出一辙，完美诠释的就是中共国的假与装，假擀面杖还能撑几时？华为以为可以俯视特斯拉，让人情何以堪？如果有人相信这个，那被割是必然。华为任正非笑也自然有了骗子笑傻子的邪乎。
+
+参考链接：
+
+[https://www.sohu.com/a/462185843\_115362?scm=1101.MTEwMS50b3BpYy01LjA=.0.0.18169&spm=smpc.topic-5.topic-feed-https://baijiahao.baidu.com/s?id=1697917701092936322&wfr=spider&for=pc](https://www.sohu.com/a/462185843_115362?scm=1101.MTEwMS50b3BpYy01LjA=.0.0.18169&amp;spm=smpc.topic-5.topic-feed-https://baijiahao.baidu.com/s?id=1697917701092936322&amp;wfr=spider&amp;for=pc)
+
+[https://www.phb123.com/hangye/qiche/46738.html](https://www.phb123.com/hangye/qiche/46738.html)
+
+[https://baijiahao.baidu.com/s?id=1697974152819763046&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1697974152819763046&amp;wfr=spider&amp;for=pc)
+
+[http://finance.sina.com.cn/tech/2021-04-25/doc-ikmxzfmk8869630.shtml](http://finance.sina.com.cn/tech/2021-04-25/doc-ikmxzfmk8869630.shtml)
+
+[https://baijiahao.baidu.com/s?id=1697519692766961746&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1697519692766961746&amp;wfr=spider&amp;for=pc)
 
 0
