@@ -1,12 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】克里密会杨洁篪，二人谈崩，美日将一同干掉中共
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1136311/)
+## 【路德简报】4/24/2021早：印尼军方一艘潜艇疑似被电子干扰击沉
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1136365/)
 
-By: 【秘密翻译组G-Translators】
-
-郭文贵
-2021年4月18日
-
+**编辑：华盛顿DC农场 路德简报项目组**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2021-4-24-2-scaled.jpg)
 0
