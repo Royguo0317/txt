@@ -1,117 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/04/25 英喜时事速递
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1137329/)
+## 美国超过500名受联邦资助的科学家被调查“通共”
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1137829/)
 
-收集：Filon，Daniel，Alicia
-*（世界协调时）部分信息收集于网络世界的各方，请自行甄别*
+新闻来源：布莱特巴特(Breitbart)| 作者：John Hayward| 发布时间： 2021年4月23日
+翻译/简评：MikeHua| 校对: SilverSpurs7|审核：万人往| Page：小六月
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/coronavirus1.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/gLMjsIKTG7gCh/images/1045f611-e1c6-4d7f-959f-7df447b80e69.jpg?asset_id=d2b6633a-b8a6-424a-aad4-3d91ca9a5e99&amp;img_etag=%22253496a8cb8fb640fb9e7ea22af7b105%22&amp;size=1024)](https://spark.adobe.com/page/gLMjsIKTG7gCh/images/1045f611-e1c6-4d7f-959f-7df447b80e69.jpg?asset_id=d2b6633a-b8a6-424a-aad4-3d91ca9a5e99&amp;img_etag=%22253496a8cb8fb640fb9e7ea22af7b105%22&amp;size=1024)
 
-## 秘密翻译组：[闫博士解释为什么中共病毒实验室来源问题和政治无关](https://gtv.org/getter/6083f0878616c84f0ff33391)
+**简评：**
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/闫博士-1.jpg)
+今天的美国各界被共产党的“蓝金黄”渗透到了无以复加的地步，媒体界、政界、商界、金融界以及科学界，没有任何角落能逃脱共产党的腐蚀，就是因为共产党掌握了14亿人的“奴隶”，能够不计成本地给海外这些没有信仰的、堕落的、有影响力的人士输送金钱、性，甚至器官。美国处于目前的境地也是因果报应，在这次灭共战争中，美国遭受巨大打击，付出惨痛代价，最后不得不站出来灭共。这也是因为美国被中共收买、美国把中共养大、美国一部分卖国贼希望通过中共继续奴役14亿中国人导致的。
 
-评论：中共≠中国人！是在任何时间任何地点都需要被首先阐明的观点。我们中国人远离中共要像躲瘟疫一样与它隔开万尺。中共注定在不久的未来会被世界消灭的连灰尘都剩不下，中国人可不能被它再继续绑架或带走了。
+看美国如此腐败的各界，再看我们的闫博士，凭一己之力挑战整个美国乃至世界的科学界。在所有人都闭嘴不敢讨论病毒真相，甚至许多所谓科学家、诺贝尔奖得主与中共勾结一起掩盖病毒真相之时，闫博士抛家舍业，付出了一切，就是为了拯救人类，维护科学的精神，这才是真正的科学家。美国现在才开始调查与中共勾结的NIH官员，虽然已经太晚了，但是亡羊补牢聊胜于无。这次美国遭受的灾难会让美国醒来，让民意看清楚中共对整个世界的生死威胁。全世界没有选择，必须干掉共产党！
 
-## 英喜农场Gnews：[中共病毒变种横扫印度 卫生系统崩溃](https://gnews.org/zh-hans/1134016/)
+**原文翻译：**
 
-![]()![](https://spark.adobe.com/page/QPbLpfEPZWUmx/images/4fc4208f-1c3b-4946-90e9-c10e4a2f0705.jpg?asset_id=914e5df7-f3fc-4785-b2f4-d20cf72d6c35&amp;img_etag=%221079b76dd28bc1746079c54fde252ee2%22&amp;size=2560)
+## 美国国立卫生研究院正在调查超过500名联邦资助的科学家与中共国的联系
 
+[!\[\]()!\[\](https://spark.adobe.com/page/gLMjsIKTG7gCh/images/96003e8c-1481-4fc0-bca6-e0cf9085b291.png?asset_id=fea6d0e4-3db4-4bb5-ab1d-9cfe07e3be63&amp;img_etag=%22df4983e55276170e2e02c67a39afb574%22&amp;size=2560)](https://spark.adobe.com/page/gLMjsIKTG7gCh/images/96003e8c-1481-4fc0-bca6-e0cf9085b291.png?asset_id=fea6d0e4-3db4-4bb5-ab1d-9cfe07e3be63&amp;img_etag=%22df4983e55276170e2e02c67a39afb574%22&amp;size=1024)
 
-> 评论：中共所谓的有效控制疫情就是不把人当人，只当一个数字。任何非独裁体制的民主国家都无法像中共这样“高效”处理人民。印度疫情的二次爆发对医疗系统的击溃，是中共超限战生物武器的又一次得逞。只有消灭中共才能彻底解除疫情。
+美国国立卫生研究院(NIH)于周四告知参议院健康、教育、劳力与退休金委员会，称超过500名联邦资助的科学家正在因他们可能与中共国和其他国外势力的联系而被调查。
 
+在一次关于保护美国生物研究不受海外影响的听证会上，NIH官员作证，他们目前正在艰难地跟踪数百个可能受海外影响的案例，特别是中共国的影响。
 
-## 意大利达芬奇农场Gnews：[病毒突变体在增加](https://gnews.org/zh-hans/1132392/)
+根据NIH壁内研究中心副主任迈克尔·S·劳尔博士(Dr. Michael S. Lauer)的说法，去年超过百分之九十被调查的科学家都收到来自中共国的资金。中共国间谍活动瞄准了几乎每一个美国生物科学和医学研究的角落。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/yxbze.png)
+最近的高级别渗透案例包含南伊利诺伊大学(Southern Illinois University-Carbondale)的肖明清（音译）教授，一个从业20年的数学老研究员，他周三被指控电汇欺诈，隐瞒来自中共国政府的资助。还有前全国儿童医院的研究所(Nationwide Children’s Hospital Research Institute)雇员周宇（音译），他周一被判33个月监禁，并支付260万美元的赔偿金，罪名是与中共国勾结窃取商业秘密。
 
+听证会上的证词对这些间谍案的种族因素非常敏感，NIH官员急忙指出，中共国间谍案调查的许多对象并非华裔。
 
-> 评论：德国权威病毒机构报告：新的欧洲病毒突变样本会绕过先前感染和接种疫苗的人的免疫保护。事实再一次佐证闫丽梦天使的在去年的判断，不找准病毒源头而跟着新增病例去寻找所谓原因和疫苗都是徒劳无效的。这反而是中了CCP的超限战诡计的。
+NIH还指出，对研究人员来说，将非法的外国影响与相对良性的资助和研究合作分开是一项困难而耗时的工作。他们强调了国际合作对科学研究的重要性，同时也指出了这种合作可能成为间谍活动招募对象的危险。
 
+美国政府问责署(Government Accountability Office)现任科学与技术部负责人坎蒂丝·赖特(Candice Wright)说：
 
-## 香草山农场Gnews：[【世事解评】忠字舞还魂，文革回潮](https://gnews.org/zh-hans/1134636/)
+我们已经向大学社区联系，并且和主要的研究院以及行政人员多次谈话，从我们听到的话中，确信的是需要更多信息分享，需要更多训练和指导，特别是在对外人才招聘方面。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS2306-%E3%80%90%E4%B8%96%E4%BA%8B%E8%A7%A3%E8%AF%84%E3%80%91%E5%BF%A0%E5%AD%97%E8%88%9E%E8%BF%98%E9%AD%82%EF%BC%8C%E6%96%87%E9%9D%A9%E5%9B%9E%E6%BD%AE.jpg)
+“我们从大量的主要研究人员中得知，他们中的许多人有的要么不知道存在外国人才招聘项目，要么就是不知道如何去识别这些项目（中的间谍活动）。”赖特补充道。
 
+在这些招聘项目中，最臭名昭著的就是中共国的“千人计划”，该计划将数千名外国科学家与中共国政府联系起来，并与许多成功的知识产权盗窃案件联系起来。美国联邦调查局已经就“千人计划”和其他数百个中共国招聘项目向美国大学发出了警告。
 
-> 评论：共党不除，中华大地会在中共愚人的统治下迷宫式的一遍又一遍的邪恶轮回着。只有经历过，知道真相的清醒之人才能了解到它们的邪恶凉意。不站出来发声，所有人会被恶魔裹挟着往前再次轮回着，无一可以幸免。
+共和党高级会员委员会成员、参议员理查德·伯尔 (Richard Burr)警告称：“（这是）来自中共国的一个有预谋的行动，由其政府支持，将他们能学会、储存和盗窃的一切都拿回去。”
 
-
-## 央广网 ：【每日一习话】航天科技是科技进步和创新的重要领域
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/20210424145052LR2B.jpg)
-
-
-> 评论：在中共这种假骗偷、以及人人自危的恶性绞肉机体制下科技进步和创新根本就是句空谈。
-
-
-## 央视新闻：习近平出席海军三型主战舰艇集中交接入列活动
-
-![习近平出席海军三型主战舰艇集中交接入列活动_随州新闻网_国内动态_国内新闻_随州新闻_随州市新闻门户网站【官网】](https://lh3.googleusercontent.com/proxy/ppclaW4y-J7oi5Ci-tUz-TJ8OdW6EWqK_mHNHxS6VydLmEmDCJ2WgQN-r6Ve33kf24Y0e12LCGXSYAoNuSuEHgvjX1XXuL4Lsq0IflaCpp1YqTkQjjy_wShfLeInxy7ygmzp)
-
-
-> 评论：慈禧太后出席新购船舰的接收仪式。懂历史的一笑了之，被洗脑的群情激昂。一切轨迹一点不差的轮回着，真就都等待着那只靴子的落地。
-
-
-## 澎湃新闻-钟南山：正在全力研发针对变异毒株的疫苗
-
-![钟南山：正在全力研发针对变异毒株的疫苗|医学|中国工程院|钟南山_新浪科技_新浪网]()![钟南山：正在全力研发针对变异毒株的疫苗|医学|中国工程院|钟南山_新浪科技_新浪网](https://n.sinaimg.cn/sinakd2021424s/763/w1000h563/20210424/3e1c-kpamyii8283810.jpg)
-
-
-> 评论：钟南山指出的全力研发针对变异毒株的疫苗却戳破了中共自己撒的谎，让中共对毒疫苗的有效性、群体免疫屏障、和病毒来源问题的解释更加的无法自圆其说。
-
-
-## 观察者网:美国新政府还未找到与中国打交道的正确路径
-
-![王毅：美国新政府还未找到与中国打交道的正确路径_合作]()![王毅：美国新政府还未找到与中国打交道的正确路径_合作](https://p0.itc.cn/q_70/images03/20210424/76b3e80eced640b0a0e690f742e6eeee.jpeg)
-
-
-> 评论：不是美国新政府还未找到与中共国打交道的正确路径，而是中共与美国政府已经没有沟通管道了。
-
-
-## 北京日报：90后硕士村主任，上任两年沦为阶下囚
-
-![90后硕士村主任，上任两年沦为阶下囚_北京日报APP新闻](https://lh3.googleusercontent.com/proxy/-XrU01TUpSpLY9For1uQ4sFnLC_gxqBygzBneSI8isaDdZWTqHu5TSxlphimKQVdxJa3BwbZVkqtaGLSrnR5dZ8EurhcvkD96XLQIgMlKuWqFnCYwvk1VeB5-FrAiOozmxBum7WeUaLlqHP0SZ-duHoGeS7AXZc)
-
-
-> 评论：92年硕士研究生当村主任两年收受贿赂变为阶下囚，根源是共匪体制。在中共专制体制下，任何人都无法独善其身，只会跟着这台绞肉机一起掉落深渊。
-
-
-## 中國新聞簡訊​
-
-
-
-> 中國新聞簡訊​：接種兩劑仍確診 西安檢驗師恐染變種[#陝西](https://twitter.com/hashtag/%E9%99%9D%E8%A5%BF?src=hash&amp;ref_src=twsrc%5Etfw) 省西安市第八醫院隔離區一名檢驗人員3月18日確診，她在感染前已接種完成兩劑 [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw)-19疫苗。 [pic.twitter.com/EOLhag6vJe](https://t.co/EOLhag6vJe)
-> — 新唐人電視台 (@NTDChinese) [April 24, 2021](https://twitter.com/NTDChinese/status/1385872023281414145?ref_src=twsrc%5Etfw)
-
-
-
-
-> 评论：验证了爆料革命的情报，疫情一定会反复再来，疫苗对于这个中共生物武器病毒是毫无用处的！
-
-
-## 大纪元新闻网
-
-
-
-> 与中共关系密切 俄一科学家叛国罪判监20年 
-> 
-> 莫斯科城市法院4月23日发布消息说，该法院在4月22日判处研究火箭发动机的科学家沃罗比耶夫20年徒刑，并罚款1百万卢布。沃罗比耶夫被指与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hash&amp;ref_src=twsrc%5Etfw) 关系密切。[#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hash&amp;ref_src=twsrc%5Etfw) [#科学家](https://twitter.com/hashtag/%E7%A7%91%E5%AD%A6%E5%AE%B6?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/RzCi6sNYgc](https://t.co/RzCi6sNYgc)
-> — 大纪元新闻网 (@dajiyuan) [April 24, 2021](https://twitter.com/dajiyuan/status/1386042276762292229?ref_src=twsrc%5Etfw)
-
-
-
-
-> 评论：沃罗比耶夫被指与中共关系密切. 全世界对中共的围剿逐步加紧，就连“老大哥”对中共也不放过。
-
+伯尔称，目前美国政府没有任何一个“单独实体”专注于找到资金申请中的虚假数据以及其他“违反规则”的内容。相反，他说，整个系统看起来像是在等待执法机关在违规之后发现违规行为，因为大学和研究机构不知道他们和雇员以及国外合作者应该承担的责任。
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/gLMjsIKTG7gCh/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/gLMjsIKTG7gCh/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+
+
 0

@@ -1,59 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国超过500名受联邦资助的科学家被调查“通共”
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1137829/)
+## 慧眼看世界202104025（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1137984/)
 
-新闻来源：布莱特巴特(Breitbart)| 作者：John Hayward| 发布时间： 2021年4月23日
-翻译/简评：MikeHua| 校对: SilverSpurs7|审核：万人往| Page：小六月
-
-[!\[\]()!\[\](https://spark.adobe.com/page/gLMjsIKTG7gCh/images/1045f611-e1c6-4d7f-959f-7df447b80e69.jpg?asset_id=d2b6633a-b8a6-424a-aad4-3d91ca9a5e99&amp;img_etag=%22253496a8cb8fb640fb9e7ea22af7b105%22&amp;size=1024)](https://spark.adobe.com/page/gLMjsIKTG7gCh/images/1045f611-e1c6-4d7f-959f-7df447b80e69.jpg?asset_id=d2b6633a-b8a6-424a-aad4-3d91ca9a5e99&amp;img_etag=%22253496a8cb8fb640fb9e7ea22af7b105%22&amp;size=1024)
-
-**简评：**
-
-今天的美国各界被共产党的“蓝金黄”渗透到了无以复加的地步，媒体界、政界、商界、金融界以及科学界，没有任何角落能逃脱共产党的腐蚀，就是因为共产党掌握了14亿人的“奴隶”，能够不计成本地给海外这些没有信仰的、堕落的、有影响力的人士输送金钱、性，甚至器官。美国处于目前的境地也是因果报应，在这次灭共战争中，美国遭受巨大打击，付出惨痛代价，最后不得不站出来灭共。这也是因为美国被中共收买、美国把中共养大、美国一部分卖国贼希望通过中共继续奴役14亿中国人导致的。
-
-看美国如此腐败的各界，再看我们的闫博士，凭一己之力挑战整个美国乃至世界的科学界。在所有人都闭嘴不敢讨论病毒真相，甚至许多所谓科学家、诺贝尔奖得主与中共勾结一起掩盖病毒真相之时，闫博士抛家舍业，付出了一切，就是为了拯救人类，维护科学的精神，这才是真正的科学家。美国现在才开始调查与中共勾结的NIH官员，虽然已经太晚了，但是亡羊补牢聊胜于无。这次美国遭受的灾难会让美国醒来，让民意看清楚中共对整个世界的生死威胁。全世界没有选择，必须干掉共产党！
-
-**原文翻译：**
-
-## 美国国立卫生研究院正在调查超过500名联邦资助的科学家与中共国的联系
-
-[!\[\]()!\[\](https://spark.adobe.com/page/gLMjsIKTG7gCh/images/96003e8c-1481-4fc0-bca6-e0cf9085b291.png?asset_id=fea6d0e4-3db4-4bb5-ab1d-9cfe07e3be63&amp;img_etag=%22df4983e55276170e2e02c67a39afb574%22&amp;size=2560)](https://spark.adobe.com/page/gLMjsIKTG7gCh/images/96003e8c-1481-4fc0-bca6-e0cf9085b291.png?asset_id=fea6d0e4-3db4-4bb5-ab1d-9cfe07e3be63&amp;img_etag=%22df4983e55276170e2e02c67a39afb574%22&amp;size=1024)
-
-美国国立卫生研究院(NIH)于周四告知参议院健康、教育、劳力与退休金委员会，称超过500名联邦资助的科学家正在因他们可能与中共国和其他国外势力的联系而被调查。
-
-在一次关于保护美国生物研究不受海外影响的听证会上，NIH官员作证，他们目前正在艰难地跟踪数百个可能受海外影响的案例，特别是中共国的影响。
-
-根据NIH壁内研究中心副主任迈克尔·S·劳尔博士(Dr. Michael S. Lauer)的说法，去年超过百分之九十被调查的科学家都收到来自中共国的资金。中共国间谍活动瞄准了几乎每一个美国生物科学和医学研究的角落。
-
-最近的高级别渗透案例包含南伊利诺伊大学(Southern Illinois University-Carbondale)的肖明清（音译）教授，一个从业20年的数学老研究员，他周三被指控电汇欺诈，隐瞒来自中共国政府的资助。还有前全国儿童医院的研究所(Nationwide Children’s Hospital Research Institute)雇员周宇（音译），他周一被判33个月监禁，并支付260万美元的赔偿金，罪名是与中共国勾结窃取商业秘密。
-
-听证会上的证词对这些间谍案的种族因素非常敏感，NIH官员急忙指出，中共国间谍案调查的许多对象并非华裔。
-
-NIH还指出，对研究人员来说，将非法的外国影响与相对良性的资助和研究合作分开是一项困难而耗时的工作。他们强调了国际合作对科学研究的重要性，同时也指出了这种合作可能成为间谍活动招募对象的危险。
-
-美国政府问责署(Government Accountability Office)现任科学与技术部负责人坎蒂丝·赖特(Candice Wright)说：
-
-我们已经向大学社区联系，并且和主要的研究院以及行政人员多次谈话，从我们听到的话中，确信的是需要更多信息分享，需要更多训练和指导，特别是在对外人才招聘方面。
-
-“我们从大量的主要研究人员中得知，他们中的许多人有的要么不知道存在外国人才招聘项目，要么就是不知道如何去识别这些项目（中的间谍活动）。”赖特补充道。
-
-在这些招聘项目中，最臭名昭著的就是中共国的“千人计划”，该计划将数千名外国科学家与中共国政府联系起来，并与许多成功的知识产权盗窃案件联系起来。美国联邦调查局已经就“千人计划”和其他数百个中共国招聘项目向美国大学发出了警告。
-
-共和党高级会员委员会成员、参议员理查德·伯尔 (Richard Burr)警告称：“（这是）来自中共国的一个有预谋的行动，由其政府支持，将他们能学会、储存和盗窃的一切都拿回去。”
-
-伯尔称，目前美国政府没有任何一个“单独实体”专注于找到资金申请中的虚假数据以及其他“违反规则”的内容。相反，他说，整个系统看起来像是在等待执法机关在违规之后发现违规行为，因为大学和研究机构不知道他们和雇员以及国外合作者应该承担的责任。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
 
-编辑：【英国伦敦喜庄园编辑部】
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gLMjsIKTG7gCh/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/gLMjsIKTG7gCh/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-16.jpg)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-17.jpg)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-16.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-18.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-16.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-14-scaled.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-14.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-14.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-14.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-21-scaled.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-25.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-19.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-17.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-17.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-14.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0
