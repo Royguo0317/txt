@@ -1,73 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 战友展览板【4/24】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1135959/)
+## 【战友心声】辽宁号怎么了？
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1135098/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
-
-【以毒灭共】推文。如下
-![]()![](https://gnews.org/wp-content/uploads/2021/04/EzsHwvFWUAQ8kyi.jpeg)1. 图片来自**[德意志之鹰推特](https://twitter.com/dezying/status/1385710088854384655)**：
-*[病毒彻底让美国惊醒，开始从内部排毒。去年关停休斯顿领事馆，现今NIH调查与中共勾结的200多名科学家…. 都跟超限生物战有关。最近国家情报总监发布的《年度威胁评估》也把中共列为头号威胁（中共的全球霸权野心）](https://www.dailywire.com/news/u-s-government-flags-more-than-500-scientists-in-u-s-that-might-be-compromised-by-communist-china)*
+作者：纽约香草山写作组 Jenny
 
 
-> 看来他们做动物传代实验的时候也没想到后果会这么严重… 🙈
-> 其次，周鹏的这篇研究综述又提了一下基于STING蛋白的解毒方案🥸[https://t.co/iXZzqhGyN1](https://t.co/iXZzqhGyN1)[https://t.co/hChONaeBgj](https://t.co/hChONaeBgj) [pic.twitter.com/kFlYemdpOd](https://t.co/kFlYemdpOd)
-> — 德意志之鹰 (@dezying) [April 24, 2021](https://twitter.com/dezying/status/1386070827674783747?ref_src=twsrc%5Etfw)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/logo-5.jpg)
 
 
-2. **[德意志之鹰推特](https://twitter.com/dezying/status/1386070827674783747?s=21)**：
-*看来他们做动物传代实验的时候也没想到后果会这么严重..其次，周鹏的这篇研究综述又提了一下基于STING蛋白的解毒方案
-**[附链接](https://animaldiseases.biomedcentral.com/articles/10.1186/s44149-021-00004-w)***![]()![](https://gnews.org/wp-content/uploads/2021/04/EzuBqQjXEAEx_1G.jpeg)3. 图片来自**[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1385845143991996416)**：
-*在被告知 #CCPVirus #COVID19 实验室起源的真相之前，所有科学家，他们可能为它的创建做出了贡献，或者涉嫌帮助中国共产党掩盖它，都应该公开受到科学依据上的信誉认证*
 
+你问我中国海军有多强，我不知道，我只知道中国水军天下第一，世界无双。但是，最近美国海军网站上发布的一张照片吸引了我的目光，美国马斯廷号神盾驱逐舰的两位指挥官坐在侧舷观察台上，悠闲地翘着脚注视着远处的中国辽宁号航空母舰，距离仅数千英尺。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/马斯廷舰.jpg)
+这张照片在网上迅速传开，也不幸的传入了厉害国，不仅让中国水军感到奔溃蒙羞，也让中共党媒恼羞成怒，胡锡进扬言开战后要将美国海军赶到距海岸线1500公里以外。
 
-> E蛋白到底有啥秘密？马里克之前的这篇文章说到一些E蛋白的作用，但路德说真正的秘密还没公布🧐 [https://t.co/MHJE2X9YDC](https://t.co/MHJE2X9YDC) [pic.twitter.com/lbteTdumJp](https://t.co/lbteTdumJp)
-> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [April 23, 2021](https://twitter.com/jsdfposjpqyuee1/status/1385492785550139394?ref_src=twsrc%5Etfw)
+虽说我是个军事盲，但是出于好奇，也对这事儿关注起来，真是唱戏的但求人多，看热闹不嫌事大。
 
+据说，厉害国现在财大气粗了，造军舰就像下饺子。厉害国不仅会蒸“包子”，也会下“饺子”，想必，辽宁号是下的那只最大的饺子。
 
-4. **[火来战友推特](https://twitter.com/jsdfposjpqyuee1/status/1385492785550139394?s=20)**：
-*E蛋白是个五聚体的离子通道，对于病毒胞内组装和释放等至关重要。E蛋白的缺失或变异将大幅度降低冠状病毒的致病性。E蛋白如此重要，为了保持强的致病性，新冠病毒的E蛋白要和舟山蝙蝠病毒E蛋白100%一样；
-E蛋白到底有啥秘密？马里克之前的这篇文章说到一些E蛋白的作用，但路德说真正的秘密还没公布*
+辽宁号原名叫”良瓦格号“，前苏联解体前，船体完成了百分之八十，因缺乏后续资金无法造完。后来大陆商人把船当废铜烂铁买下，准备运回中国改造为海上娱乐城，后续演变为拖到大连改造，在俄国协助下，东拼西凑，翻修成“辽宁号航空母舰”。原来这还是只中西合璧的大饺子，牛！
 
+不过，洋人好像对包饺子不是太在行，饺子破了皮，露了馅，可是不太好看的。
 
-> 20201113筑波大學教授談閆博士第一期1/3
-> 原視頻↓請大家點讚🙏[https://t.co/AUmVxme8lF](https://t.co/AUmVxme8lF)
-> 1.閆博士的簡要經歷
-> 2.閆博士提出病毒是以ZC45爲骨架的
-> 3.嚴格意義上第一篇論文不是學術論文，而是羅列事實進行論證解說的論文
-> 4.通常冠狀病毒所沒有的弗林酶切位點很難偶然出現 [pic.twitter.com/um0WkXKfvV](https://t.co/um0WkXKfvV)
-> — Andy5 (@andy5\_123) [April 24, 2021](https://twitter.com/andy5_123/status/1385798647141441543?ref_src=twsrc%5Etfw)
+接着，又爆出美军船员为辽宁号航母上的战机成功起降鼓掌喝彩。这又是什么情况？厉害国的航空母舰不能起降飞机，还叫什么航母呢？美军还真以为辽宁号是只破了皮，露了馅的饺子吗？不幸被你言中了！
 
+原来，辽宁号上至今没有100年前美军航母就有的飞机弹射器。飞机弹射器能把战机在航空母舰相对短的跑道上弹上去，这样，飞机就能安全起飞，也能带更多的武器和燃料，增加飞机的航程和战斗力。飞机弹射器的发明者的名字正是照片里那两位抱着臂，翘着脚气定神闲的舰长所指挥的神盾驱逐舰的名字–马斯廷。
 
-5. **[ANDY5推特](https://twitter.com/andy5_123/status/1385798647141441543?s=20)**（附视频）：
-*20201113筑波大学教授谈闫博士第一期1/3
-原视频↓请大家点赞
-https://youtu.be/NIhZVZLgfw0
-1.闫博士的简要经历
-2.闫博士提出病毒是以ZC45为骨架的
-3.严格意义上第一篇论文不是学术论文，而是罗列事实进行论证解说的论文
-4.通常冠状病毒所没有的弗林酶切位点很难偶然出现
-20201113筑波大学教授谈闫博士第一期2/3
-5.对比SARS1、ZC45·ZXC21和CCPVirus，只有CCPVirus有弗林酶切位点
-6.这些被插入的片段让病毒更容易感染人
-7.病毒不是从零开始设计，而是在骨架上插入其他病毒片段甚至人工编辑的片段
-20201113筑波大学教授谈闫博士第一期3/3
-8.通过在无关紧要的地方插入其他病毒序列，让整个病毒乍看上去不像是ZC45做的骨架，混淆视听
-9.RaTG-13、穿山甲、以及其他罕有的序列，虽然不能说绝对不会自然地变成一个序列，但通过人工干预来实现的想法更為自然
-10.要验明这些观点就需要公布诸多实验室的样本*
+这不禁让我想到100多年前的北洋水师，号称亚洲第一海军，结果炮弹里都是沙子，根本就是摆设！难道共匪让当年的北洋水师复活了吗？
 
+辽宁号就别在这儿丢人现眼了，三十六计走为上，回家找妈去吧。
 
-> Dr. Yan Explains Why the Issues with Lab Origin of CCP Virus is Not About Politics
-> 闫博士解释为什么中共病毒实验室来源问题和政治无关 [pic.twitter.com/J73bZvp3pK](https://t.co/J73bZvp3pK)
-> — 秘密翻译组 (@G\_Translators6) [April 24, 2021](https://twitter.com/G_Translators6/status/1385901124272615428?ref_src=twsrc%5Etfw)
+– 咦？辽宁号怎么不动了？这是孙子兵法的哪一招？
 
+-还是….坏了？
 
-6. **[秘密翻译组推特](https://twitter.com/G_Translators6/status/1385901124272615428?s=20)**（附视频）：
-*闫博士解释为什么中共病毒实验室来源问题和政治无关*![]()![](https://gnews.org/wp-content/uploads/2021/04/EznaA1KWEAYNQtn.png)7. 图片来自**[胡博士推特](https://twitter.com/baobaoxiaoliao/status/1385378221336760320?s=20)**：
-*还是在去年闫博士公开报料后 由印度国会议员Rajeev Chandrasekhar在国会中介绍闫博士的报告。细致到人为制造，来自军方实验室，故意释放。现在当多种变种毒株又一次席卷印度，不知道他们会不会想起这位带来病毒真相的有责任有担当的议员当时振聋发聩的警告。世界会感激闫博士
-**[附链接](https://www.thehindu.com/news/national/growing-evidence-that-covid-19-emerged-from-pla-lab-says-bjp-mp-rajeev-chandrasekhar/article32631841.ece)***![]()![](https://gnews.org/wp-content/uploads/2021/04/EzxKtfAVUAEy9aS.png)8. 图片来自**[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1386067408582889473?s=20)**：
-*新冠病毒的E蛋白跟SARS的E蛋白相比，有两处改变 （a）在55-56处，由TV变成SF （b）在69-70处，由EG变成R 而处于C端末尾的DLLV（PDZ Binding Motif，PBM）都没变。变化（b）增强了PBM，变化（a）导致啥结果，还没整明白*
+-不至于吧
 
+-练内功呢？ 要亮出什么武林秘籍？
 
-+2
+-定于一尊了？也许是xx亲自指挥，亲自部署的？
+
+-海龙王看上了，当定海神针了？
+
+无数的猜想从我脑海中闪过….. 网上也是众说纷纭
+
+美军来打卡拍照留念，日军来打卡拍照留念，连台湾每天也来打卡拍照留念，太平洋上好不热闹，仿佛节日一般！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/辽宁号-4.jpg)
+辽宁号在憋什么大招呢？我太纳闷了，抓耳挠腮，匪夷所思，脑浆子都要想肿了……
+
+今天，文贵先生终于为我揭开了谜底，原来是美军用电子干扰，破坏了辽宁号的平衡系统，平衡系统失灵，辽宁号航母就是僵尸一具，棺材一口。
+
+这还不算，居然那些让美军鼓掌喝彩的起落战机都是俄罗斯的，连飞行员都是租来的演员，原来辽宁号真是娱乐城啊！
+
+本来以为，中国海军这些年冬练三九，夏练三伏，练得了一身绝代武功。今日出海，华山论剑，独孤求败，叫板天下英雄。没想到，原来是台上十分钟，台下十年功，为四月二十三日中共海军建军周年纪念日准备的一场娱乐盛宴。
+
+中国海军，我们都误会你了！
+
+中国水军，你们对中国海军的这场演出还满意吗？比你们的表演如何呢？
+
+编辑/校对/发稿： 悟空
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
