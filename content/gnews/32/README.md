@@ -1,32 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共必将亡于自身所建立的亦军亦民的广泛的生物战网络
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1137208/)
+## 【有声读物】古风·无题
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1137318/)
 
-编撰：PEACEMAN , 叶落知秋（文秋）
-审核：七角星
+配音：香草山录音组 Swr拥抱太阳
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Wuhan-Live-Animals-1.jpg)资料照片：来自参考链接
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-中共病毒从2019年底在武汉出现以来，已经给世界政治经济版图带来了很大的变化及不确定性。至今，已经有一年多了，各国疫情更是一波比一波猛，世界为之付出的代价可谓是惨烈之极。虽然除了爆料革命还未有哪国政府站出来直指中共制毒放毒的罪行，但是目前的找寻真相的民意和舆论一直在发酵中。
 
-根据外媒报道和挖掘真相，有媒体指出中共有在中共国建有广泛的军民融合的生物战网络，媒体直接指出军事和民用研究中心之间没有任何区别中国共产党的 “十三五 “规划（2016-2020年）第78章描述了军事和民用研究的融合，包括 “合成生物学 “领域。从中国主要研究科学家的出版物来看，”合成生物学 “似乎包括生物战。
 
-世人还低估了中国兽医和农业研究对这种军事计划的潜在贡献。金宁一是中国医学科学院的院士。他被描述为一名病毒学家，研究人畜共患疾病。他是吉林省人，朝鲜族，是中国共产党党员。他也是中国人民解放军的一名高级军官。
 
-金宁一是军事医学科学院军事兽医研究所分子病毒学和免疫学实验室主任，军事遗传工程重点实验室主任，吉林省病毒重组疫苗研究与开发工程中心主任。
 
-他与北京协和医学院、中国疾病控制中心（CCDC）、南京大学模式动物研究中心、吉林农业大学、温州大学、延边大学、石河子大学、四川大学、佛山大学以及其他据称是 “民用 “的研究机构进行研究合作。
+红柿是花也是晴，
 
-在一份科学出版物中，金宁一将自己列为温州大学和广西大学的教职员工。在另一份出版物中，他将自己归属于延边大学。金宁一在冠状病毒的实验方面有丰富的经验。他广泛使用基因工程，自2007年以来，他们用含有人类冠状病毒受体的转基因小鼠模型进行了实验。也就是说，这些中国实验室中的任何一个都可以利用该小鼠模型和一种叫做 “连续传代 “的技术，快速地对冠状病毒进行预适应，使其能够感染人类。
+绿竹爱冬也爱春。
 
-然而，更令人震惊的是金宁一对人畜共患病研究的态度。人畜共患疾病是由通常从动物传播给人类的病菌引起的。也就是说，根据定义，它是一个自然发生的事件。金宁一在2007年撰写的《人畜共患病新编》一书的序言中表达了这种观点。
+白墙一抹为底色，
 
-点评：由此可见，中共发动生物战是有广泛的网络，亦军亦民，军民不分。并且中共发动的生物战从开始设计病毒就有完美犯罪的思路，这也是中共在2020年释放中共病毒时已经想好了甩锅动物，并由此得出自然起源的说法。但是，文贵先生发起的爆料革命从2020年1月19日开始揭露并传播中共病毒的真相，这让中共完美犯罪的企图难以为继。随着真相的传播，随着查证真相民意的发酵，中共必将被它制造的超限生物武器灭掉。
+花衣一件少女心。
 
-参考链接：[中国共产党拥有广泛的支持生物战的研究网络](https://www.thegatewaypundit.com/2021/04/chinese-communist-party-extensive-research-network-supporting-biowarfare/)
 
-（文章只代表编者观点，与GENEWS无关）
+
+**文字版原文：[【香草诗词汇】古风·无题](https://gnews.org/zh-hans/641435/)**
+
+作者：香草山写作组 木白
+
+
+
+音频处理/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
