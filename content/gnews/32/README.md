@@ -1,53 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【信仰之声】论天国的仇敌——（七）帕罗林的自义
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1138163/)
+## 捷克总统将就驱逐俄罗斯外交官事件发表紧急讲话
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1138132/)
 
-作者：纽约香草山福音部 捆绑CCP一千年
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+编辑上传 银河
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Snipaste_2021-04-25_18-36-31-1.jpg)[oneworld.press](http://oneworld.press/?module=articles&amp;action=view&amp;id=1438&amp;fbclid=IwAR2B1Rhlro6hXAO9-GYGa9h9QYVyjVCBleKB1bqevNSO_0qnTYTruJBvx_Q)
+04月25日，国家总统发言人吉日·奥夫恰克（JiříOvčáček）在推特（Twitter）上说，捷克总统米洛斯·泽曼（Milos Zeman）将于4月25日星期日发表紧急电视讲话。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/logo-5-768x103-1.jpg)
+“共和国总统米洛什·泽曼将于2021年4月25日星期日上午11点发表紧急电视讲话，该讲话将由普利玛电视台和CNN普利玛新闻台播出。”吉日·奥夫恰克写道。
 
+奥夫恰克说，4月25日泽曼将就俄罗斯外交官被驱逐出捷克和有关维尔贝蒂察发生爆炸的消息发表评论。
 
+4月17日星期六，捷克总理安德烈·巴比什（Andrei Babis）说，布拉格怀疑俄罗斯GRU（现为俄罗斯武装部队总参谋部主谋）的雇员参与了2014年维尔贝蒂察一个弹药库的爆炸事件，该事件造成两人死亡。作为回应，捷克共和国驱逐了18名俄罗斯外交官，该国当局怀疑他们为安全机构工作。
 
-- **你们要追赶仇敌，他们必倒在你们刀下。（利未记 26:7）**
-- **你这充满各样诡诈奸恶，魔鬼的儿子、众善的仇敌，你混乱主的正道还不止住吗？（使徒行传 13:10）**
+俄罗斯否认了这些指控，并称这些指控是荒谬的。莫斯科宣布不受欢迎的人，并驱逐了20名捷克外交官。
 
+捷克共和国认为俄罗斯的反应过度，并宣布将把俄罗斯驻布拉格大使馆的规模缩小到捷克驻莫斯科外交使团的规模。捷克外交部负责人雅库布·库尔加内克（Jakub Kulganek）宣布，俄罗斯大使馆还有63名工作人员必须离开捷克。他们离开的最后期限是5月底。俄罗斯外交部的回应是要求减少捷克驻莫斯科大使馆的工作人员数量。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片6-26.png)
-
-自从梵蒂冈教廷于2020年10月，与北京秘密续签《中梵协议》以来，有关帕罗林国务卿出卖教会任命权引发的风波，促使了世界对帕罗林职业与信仰的持续追踪和解读。试想，作为人类最后一块净土——教会的权柄——可以拿来交易，那么还有什么不可以交易呢 ？因此，这一事件已超越中共国与梵蒂冈的外交关系，它关系到人类正义的维系。
-
-由于梵蒂冈是天主教教会国独立体，作为国务卿的帕罗林，他的一切外交工作和信仰是无差别的。基于这一特性，他在接受西班牙电视台COPE记者安娜波斯的采访时，在被问及职业与信仰时说：“我相信我的基本职责是牧师。我感到被召唤了，我仍然觉得自己是牧师，是在教会里为人服务的主的传道人。”细心的读者会发现，帕罗林实际上对自己是否是牧师？甚至是否是基督徒？已经不那么确定了。他说，我“仍然觉得自己是牧师”，我“行使牧师职事的方式”以及“教会外交”，在我看来，“我从来没有发现自己作为牧师和外交官之间的矛盾”（见《梵蒂冈新闻》）。
-
-帕罗林与中共敌基督国的秘密协议的续签被爆料革命灭共者郭文贵曝光后，在教廷内部引发了持续的对抗，甚至造成了教庭内部的分裂。引发教会分裂的原因并非梵蒂冈与中共的关系正常化，而是在中共人权和宗教信仰自由问题得不到改善的前提下，甚至在中共犯下反人类罪行的情况下，梵蒂冈为其权力背书就直接等同于将基督再次钉在十字架上一样，帕罗林充当了犹大这个极不光彩的角色。但帕罗林仍在强调，“目前所做的一切都是为了确保中国教会的正常生活”。
-
-真的如此吗？既然是为了福音的缘故，为何不敢公开《中梵协议》？2020年10月21日“帕罗林枢机主教确认，中国与罗马教廷之间的协议内容将保密”（见 梵蒂冈）。实际上，教会工作都应该是阳光的、透明的，就像任何一个负责任的政府，国与国之间的协议都公开在官网上一样。《诗篇》四十四篇21节说：“神岂不鉴察这事吗？因为他晓得人心里的隐秘。”既然帕罗林感到被神召唤，有来自天国的使命。神岂不追问你的罪孽、寻察你的罪过吗？
-
-敬虔的人那！“你要追赶仇敌”，你要斥责那悖逆之子卖主求荣的行径，你要指着经上记着的话语说，帕罗林，“你混乱主的道还不止住吗？”相信，那已经做了天国的仇敌之子，就是离开主的面、放弃神的权能，这等人自有天国的刑罚在等着他，因神的公义必不以人的自义为判断，判断人的乃是主耶稣基督。
-
-（ 2021年4月25日写于东亚）
-
-梵蒂冈新闻：[https://www.vaticannews.va/en/vatican-city/news/2021-04/parolin-church-must-be-united-in-witnessing-to-the-gospel.html](https://www.vaticannews.va/en/vatican-city/news/2021-04/parolin-church-must-be-united-in-witnessing-to-the-gospel.html)
-
-梵蒂冈：[https://www.vaticannews.va/en/vatican-city/news/2020-10/cardinal-parolin-holy-see-agreement-china-syria-bartholomew.html](https://www.vaticannews.va/en/vatican-city/news/2020-10/cardinal-parolin-holy-see-agreement-china-syria-bartholomew.html)
-
-校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2.jpg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+参考链接：
+https://www.rbc.ru/rbcfreenews/60848a4a9a794784f463e201
 
 0

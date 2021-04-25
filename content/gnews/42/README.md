@@ -1,39 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】奴隶社会
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1137888/)
+## 应聚焦中共病毒而不是全球气候峰会！
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1137943/)
 
-纽约香草山健身部 童谣
+#### 视频德文字幕翻译: 杰西
 
-哪里一个民族如此勤劳却这样贫困？
 
-哪里一个家庭被拆散却无人发声？
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-71.png)图片来源：history.com
-学生苦读无果，
 
-青年四处奔波，
+#### 文稿作者: 铜豌豆
 
-壮年沉重苦难，
 
-白发无养难安。
+闫丽梦博士：中共病毒是人造病毒。这种病毒并不是按照常规人们所理解的那种传统意义上的生物武器，这种病毒是超限生物武器。它属于中共长期生物武器计划中的一部分。
+SARS-CoV-2，即中共病毒，是从中国武汉逃逸出来的：这是罗伯特·莱德菲尔德（Robert Redfield）博士通过CNN向世界传递的话。他自 2018年3月至2021年1月供职于美国疾病控制与预防中心（the Centers for Disease Control and Prevention）以及有毒有害物质与疾病登记局（the Agency for Toxic Substances and Disease Registry），分别任主任和行政事务官。但是，事实情况远远比这个严重得多。从一开始起，闫丽梦博士从来就没有改变过她告诉这个世界真相的决心。
 
-那片土地满目疮痍、文化失传、信仰触手难及，
+SARS-CoV-2来自于武汉病毒研究所（武毒所）P4最高安全级别生物实验室。这个病毒是在舟山蝙蝠病毒ZC45以及ZXC21的骨架基础之上被人工制造出来的。舟山蝙蝠病毒ZC45以及ZXC21的病毒序列，中国共产党（中共）从来没跟世界分享过，而是一直捏在中共的军方手中。中共蓄意编造了两个似是而非的病毒来源理论，试图混淆视听、迷惑全世界：一，说病毒起源于武汉华南海鲜市场；二，说病毒起源于云南边陲的一个矿洞里的蝙蝠，通过其他动物中间宿主最终传染到了人的身上。
 
-七个魔鬼控制十四亿奴隶。
+闫丽梦博士的三份报告以强有力的证据证明了SARS-CoV-2的真正起源。SARS-CoV-2起源于武毒所的P4实验室。世界卫生组织（世卫组织）WHO和享誉世界盛名的顶尖科学杂志之一的《自然》杂志医学专刊，与中共合谋，精心掩盖了SARS-CoV-2的真正起源。他们利用其在科学领域的权威地位，系统性的释放了谎言。SARS-CoV-2是人造病毒，是在实验室中产出的生物武器。这个病毒并不是从实验室逃逸出来的，而是被人为故意释放出来的。SARS-CoV-2只是中共长期生物武器计划病毒库里的一种产品。
 
-审核/发稿：正义的小新
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-**更多资讯，更多关注**
+在过去的这个周的周四和周五，也就是2021年4月22日和23日，[拜登政府](https://www.washingtonpost.com/politics/2021/04/22/biden-climate-summit-live-updates/)召开了全球气候峰会。拜登总统说，他要启动一个国际气候金融计划从资金层面帮助实现各方过度到低碳化的全球经济。猜猜谁被邀请参加了这次峰会？习近平，中共党魁。这个世界的真正问题并不是全球变暖。为什么中共和它的共谋者们费这么大的力气要把大众的焦点移开呢？他们在隐藏什么？
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[视频来源](https://www.newsmaxtv.com/Shows/National-Report/vid/1_zor2sgcq)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+闫丽梦博士的三篇报告
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+- [第一份报告](https://zenodo.org/record/4028830)（发表于2020年9月14日）
+- [第二份报告](https://zenodo.org/record/4073131#.YGc-d-T3aEc)（发表于2020年10月8日）
+- [第三份报告](https://zenodo.org/record/4650821#.YGc-7-T3aEe)（发表于2021年3月31日）
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**工作人员团队**
+*视频选材: birdie
+任务发布: 美丽心情
+视频剪辑: laowu
+听写记录: 秘密翻译组
+德文校对: Michelle喜乐，美丽心情
+字幕挂放: 年糕
+字幕审核: 美丽心情
+字幕压缩: 美丽心情
+责任编辑: Michelle喜乐，美丽心情，铜豌豆
+封面图片: 铜豌豆
+排版发布: 铜豌豆*
 
-+1
+0
