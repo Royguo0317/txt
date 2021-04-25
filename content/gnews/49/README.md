@@ -1,48 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】塞林博士继续深挖中共“13579”生化武器计划
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1137409/)
+## 在叙利亚海岸被袭击的伊朗油轮 造成三人死亡
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1137246/)
 
-配音：香草山录音组 蒙古鸿雁
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-
+```
+信息来源：德国世界报网络版   
+发布时间：2021年4月25日
+翻译 /整理/ 简评： Shuizhuyu
+```
 
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-13-121-scaled.jpg)图片来源：法新社
 
-4月22日早上，塞林博士发推，“长春军事兽医研究所也许一直是一个生物战中心。2018年到2020年期间，舟山蝙蝠病毒ZC45和ZXC21在科学文献中消失，然而长春军事兽医研究所在秘密的对这些病毒进行实验。”
+根据人权活动家的说法，在叙利亚地中海沿岸一艘油轮上，一架可疑的无人机袭击使三人丧生。 目前尚不清楚是谁对这次袭击负责。
 
-赛琳博士在推文下，贴出四位中（共）国军方病毒专家的照片，他们是参加舟山蝙蝠病毒研究的几个关键人物，分别是金宁一、何彪、范泉水、涂长春。
+伊朗的一艘油轮在叙利亚海岸附近遭到袭击。 据叙利亚人权观察社称，周六在巴尼亚斯港附近的袭击中，三名叙利亚人被杀，包括两名船员。 叙利亚国家通讯社萨那（Sana）援引石油部的话报道说，袭击显然是由“从黎巴嫩水域方向的无人机”进行的，船上的一个坦克被纵火了。 现在火已经被扑灭了。
 
-通过网上查询，得到他们一些个人资料。
+根据其自己的陈述，天文台不知道袭击是用无人机还是从军舰上击落的导弹进行的。 最初还不清楚是谁造成了塔尔图斯省巴尼亚斯炼油厂附近袭击的幕后黑手，该袭击由叙利亚统治者巴沙尔·阿萨德的军队控制。
 
+还不清楚是谁对所谓的袭击负责。
 
+#### **简评：**
 
-**文字版原文：[【热点播报】塞林博士继续深挖中共“13579”生化武器计划](https://gnews.org/zh-hans/1131373/)**
+**中东地域最近很不太平。运河堵塞，霍尔木兹海峡的争夺等等。今天又发生了这样的袭击事件，让我们嗅出了不一般的味道。事出无常，必有妖。这件事情的发生虽然还在调查中，不管是叙利亚还是伊朗都是中共的小兄弟。到现在为止，还没有人站出来对袭击负责。我会继续关注这个事件的后续发展和调查。中共是正在做最后的挣扎，而世界各地正在发生着各种不正常的事件，请全世界都要严密监视中共的一举一动。望不会造成更大的事件发生！ **
+（本文只代表译者观点， 与 Gnews平台无关。）
 
-作者：纽约香草山翻译部 雪莲
+**新闻原文链接：**
+🔗[Drei Tote nach Angriff auf iranischen Tanker vor syrischer Küste](https://www.welt.de/politik/ausland/article230639475/Nahe-Banias-Drei-Tote-nach-Angriff-auf-iranischen-Tanker-vor-syrischer-Kueste.html)
 
+* * *
 
+***编辑整理/校对: **Ting Guo*
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-+1
+0
