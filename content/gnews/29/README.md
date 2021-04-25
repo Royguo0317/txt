@@ -1,39 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】奴隶社会
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1137888/)
+## 亚美尼亚总理称赞拜登承认种族灭绝罪行
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1138112/)
 
-纽约香草山健身部 童谣
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+编辑上传 银河
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Snipaste_2021-04-25_18-10-35.jpg)bbc.com
+4月24日，美国总统乔·拜登对亚美尼亚种族灭绝的承认是向国际社会发出的一个信号。亚美尼亚总理尼科尔·帕希尼扬（Nikol Pashinyan）在他的Facebook页面上这样解释。
 
-哪里一个民族如此勤劳却这样贫困？
+帕希尼扬写道：“美国承认亚美尼亚的种族灭绝是向国际社会发出的一个必要信号，证实了人权和价值观在国际关系中的至高无上地位。”
 
-哪里一个家庭被拆散却无人发声？
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-71.png)图片来源：history.com
-学生苦读无果，
+亚美尼亚总理在推特上指出，美国以其行动证明了“对保护人权和普遍价值的坚定承诺”。帕希尼扬还回顾说，美国国会早在2019年就承认了亚美尼亚的种族灭绝。
 
-青年四处奔波，
+亚美尼亚种族灭绝是1915年在奥斯曼帝国发生的大规模屠杀。然后，根据不同的估算，生活在该国境内的70万至150万亚美尼亚人被杀害。土耳其当局认为，这些杀戮并不是故意灭绝人民的。俄罗斯、德国、法国、瑞典、波兰和其他一些国家承认这些事件是种族灭绝。
 
-壮年沉重苦难，
+4月24日，拜登发表声明说，对亚美尼亚人的杀戮是种族灭绝。土耳其外交部谴责美国总统的言论，称其为民粹主义。阿塞拜疆总统伊利哈姆·阿利耶夫也谴责拜登的讲话。
 
-白发无养难安。
+参考链接：
+https://www.rbc.ru/rbcfreenews/6084611d9a79477c0f5daa8c
 
-那片土地满目疮痍、文化失传、信仰触手难及，
-
-七个魔鬼控制十四亿奴隶。
-
-审核/发稿：正义的小新
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-+1
+0
