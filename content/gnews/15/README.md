@@ -1,47 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】抢先接种中共国疫苗数月后，秘鲁前总统确诊感染
-` Basil4` [轉載自GNews](https://gnews.org/zh-hans/1139961/)
+## 【有声读物】一个深度贫困村的纪实（五）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1140641/)
 
-作者：纽约香草山健身部Jack Li文阳
+配音：香草山录音组 Swr拥抱太阳
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/GNEW-GTV-MOS-LOGO-2-5.jpg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-秘鲁前总统比斯卡拉周日（4月25）发推承认他和妻子都已检测呈阳性。他表示，“我的家人都已采取隔离措施，大家不要掉以轻心。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片15-4.png)
 
-现年58岁的比斯卡拉曾在2018～2020年担任秘鲁总统，他在最近的议员选举中胜选。因为去年利用职权抢先接种疫苗引发丑闻，秘鲁国会还禁止他暂时不能从事议员一职。
+1
 
-比斯卡拉否认利用权势提前接种，他声称他的兄弟、妻子和他参与的是正式接种前的临床试验。
+千山万水并非追逐的理由
 
-这位前总统同时还被指在2011～2014担任州长时涉嫌贪腐，秘鲁国会在去年11月通过弹劾罢免了他的总统职位。
+而是你永远在我心里有挥不去的美
 
-根据最新统计，这个有着3300万人口的国家目前确诊感染新冠病毒170万人，59440人死于新冠病毒。秘鲁目前正经历着第二波疫情爆发。
+一块块雪白的豆腐是这条河流孕育的乳房
 
-今年二月，媒体揭出这位前总统比斯卡拉和另外470人于去年10月份就抢先接种了中共国国药疫苗，那时秘鲁全国还没正式启动接种，这一“疫苗门”丑闻导致秘鲁卫生部长、外交部长等人辞职，比斯卡拉被弹劾下台。
+那个失去父母的孩子依旧在河边洗衣
 
-这位不惜冒着政治风险，抢先接种中共疫苗的前总统，这是抢着去死的节奏。只可惜中共疫苗也没为他挡住病毒，不仅丢了总统乌纱帽，还感染了病毒。这是关于病毒疫苗最滑稽的案例，正是：陪了夫人，又折兵。文贵先生说得好：相信共产党，走进火葬场。这位好嘛，还是走后门的。
+流水像少女的长发，像母亲的手指
 
-参考阅读：[https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210426-%E7%A7%98%E9%B2%81%E5%89%8D%E6%80%BB%E7%BB%9F%E6%8E%A5%E7%A7%8D%E4%B8%AD%E5%9B%BD%E7%96%AB%E8%8B%97%E6%95%B0%E6%9C%88%E5%90%8E%E7%A1%AE%E8%AF%8A%E6%84%9F%E6%9F%93](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210426-%E7%A7%98%E9%B2%81%E5%89%8D%E6%80%BB%E7%BB%9F%E6%8E%A5%E7%A7%8D%E4%B8%AD%E5%9B%BD%E7%96%AB%E8%8B%97%E6%95%B0%E6%9C%88%E5%90%8E%E7%A1%AE%E8%AF%8A%E6%84%9F%E6%9F%93)
+流水是那个男人的痛，一个父亲的哑然
 
-校对/发稿：飞虹
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/M4.jpg)
+
+**文字版原文：[【香草诗词汇】一个深度贫困村的纪实（五）](https://gnews.org/zh-hans/596159/)**
+
+作者：香草山写作组 木白
+
+
+
+音频处理/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
 [**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-+2
+0

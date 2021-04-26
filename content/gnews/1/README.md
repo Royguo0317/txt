@@ -1,39 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅新闻】武汉P4实验室的中共军方背景首次进入主流媒体视野
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1140120/)
+## 西喜时事新闻简报—病毒篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1140697/)
 
-**作者：**休斯顿星光农场 写作部 文顺
-![]()![](https://gnews.org/wp-content/uploads/2021/04/GNEW-GTV-MOS-LOGO-2.jpg)
-**4月26日，英国《每日邮报》揭露武汉P4实验室研究人员代表中共军方研究动物病毒，中共武汉实验室首次进入主流媒体视野。**
+- **作者：wenwu**
 
-据英国《每日邮报》周日报道，他们获得的新文件显示，武汉P4病实验室的研究人员在过去9年里一直代表中共军方研究包括蝙蝠在内的动物病毒。此前，中共军方否认了将他们与武汉实验室联系起来的指控。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-04-26-024320.jpg)
-*图片来源：Daily Mail*
 
-该文件详细介绍了一个名为 “发现野生动物携带的动物病原体 “的重大项目，该项目旨在寻找可能感染人类的生物体并研究其进化，并试图发现新的病毒并检测参与传播疾病的生物学的”暗物质”。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-该项目于2012年启动，由中共国家自然科学基金资助，徐建国领导。徐建国在2019年的一次会议上吹嘘说：“一个巨大的传染病预防和控制网络正在形成。”该项目的五位小组长包括绰号为”蝙蝠女”的中共武汉病毒学研究所（WIV）病毒学家石正丽（Shi Zhengli）和高级军官、中共政府生物反恐顾问曹务春。
+**西班牙2021年4月26日电/西喜社——**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/virus8.jpg)
 
-虽然石正丽否认了美国关于武汉病毒学研究所（WIV）与中共210万武装部队之间合作的指控，但是曹务春上校作为中共人民解放军军事医学科学院的研究员被列入项目报告。他与其他军事科学家密切合作，并担任军事生物安全专家委员会主任。曹上校甚至担任武汉病毒学研究所的顾问委员会成员，是中共国家顶级生物防御专家陈薇少将率领的军事小组的二把手。
 
-近年来，中共军方加大了对科学家的招聘力度，此前习近平表示，这是中共迈向全球霸主地位的关键因素。
+1. [俄罗斯报告了8828个新的COVID-19病例，399人死亡](https://www.reuters.com/business/healthcare-pharmaceuticals/russian-deaths-rose-21-feb-year-earlier-amid-covid-stats-agency-2021-04-02/)
 
-曾为中共政府工作的持不同政见者韩连潮（音译）表示，曹务春的介入令人怀疑，作为冠状病毒专家的军事研究人员也可能参与生物防御行动。他还说：“多年来，许多人一直在与西方研究机构合作，窃取我们的技术，但在此次大流行造成300多万人死亡一年后，中共仍拒绝分享关键信息。”
+据《路透社》4月24日电，根据约翰-霍普金斯大学的数据，冠状病毒相关的总死亡人数为225,572人，使俄罗斯在美国和巴西之后排名第三，美国报告的死亡人数超过553,000人，巴西超过325,000人。虽然俄罗斯政府报告的死亡人数约为一半，但是今年2月份与去年2月份的死亡人数进行对比，今年比去年多了3万人左右，也就是多了20.6%
 
-领导国务院调查中共武汉病毒起源的生物、化学和核扩散专家大卫·阿舍（David Asher）表示：”中共已经明确表示，他们视生物技术为混合战争未来的重要组成部分。最大的问题是，他们在这些领域的工作是进攻还是防御。”
+2. [伊恩·比雷尔写道：关于新冠病毒起源的令人担忧的新线索：武汉实验室的科学家如何帮助中国军队进行寻找动物病毒的秘密项目](http://（https://www.dailymail.co.uk/news/article-9507749/How-scientists-Wuhan-lab-helped-Chinese-army-secret-project-animal-viruses.html)
 
-这是主流媒体自病毒爆发以来首次正面报道中共军方参与制造武汉病毒，One America主持人杰克·波索比奇在推特评论说：“主流媒体终于发现了武汉。”
+据《每日邮报》4月24日电，“武毒所”的石正丽说不知道该研究所里存在任何军事工作，这是撒谎。陈薇和曹武春都是中共军方高级官员，而且都参与了生物病毒项目，和“武毒所”有密切的关系
 
-信息来源：
+3. [耶鲁流行病学家：一半以上的新冠病毒患者已经接种了疫苗（视频）](https://www.thegatewaypundit.com/2021/04/yale-epidemiologist-half-new-covid-patients-vaccinated-video/?utm_source=Gab&amp;utm_campaign=websitesharingbuttons)
 
-[How scientists at Wuhan lab helped Chinese army in secret project to find animal viruses | Daily Mail Online](https://www.dailymail.co.uk/news/article-9507749/How-scientists-Wuhan-lab-helped-Chinese-army-secret-project-animal-viruses.html)
+据《门扉网》4月24日电，8月里施（RISCH）博士指控安东尼·福奇博士因为压制羟氯喹，而导致“数十万美国人”死亡。60%的新冠病毒感染者打了疫苗。福奇是新冠病毒屠杀美国人的元凶，而且他还在位子上
 
-編輯/校對/發稿：Helen
+4. [泰国加大防控力度，每日死亡人数达到11人](http://%28https://www.reuters.com/world/asia-pacific/thailand-reports-2438-coronavirus-cases-daily-record-11-deaths-2021-04-25/%29)
 
-更多資訊，歡迎點擊[休斯頓星光農場官方推特賬號](https://twitter.com/HLitstar?s=20)
+据《路透社》4月25日电，尽管泰国去年在限制病毒传播方面取得了成功，但高传染性的B.1.1.7型病毒引发的新疫情在短短25天内已导致超过24000例病例和46例死亡。周日泰国面临第三波疫情，每日有11人为此死亡，当局采取强硬手段控制。
 
-更多節目資訊，歡迎進入[休斯頓星光GTV官方鏈接](https://gtv.org/user/6031a8c0047c4c3086d7683f)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-03-25-230524-1.jpg)
+5. [保持社交距离是否一定安全吗？](https://www.cnbc.com/2021/04/23/mit-researchers-say-youre-no-safer-from-covid-indoors-at-6-feet-or-60-feet-in-new-study.html）)
+
+麻省理工学院的一项研究表明，在室内与他人保持60英尺距离的人，并不比在室外只保持6英尺的距离更能保护自己。关于室内传播风险的计算方法遗漏了太多因素，因此无法准确量化这种风险。研究者说：”我们需要向公众传达科学的信息，而不是单纯地制造恐惧，而是真正基于分析”。
+
+**审核：蚂蚁兄弟； 校对：信心满满； 发稿：信心满满**
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+
+
+
 0

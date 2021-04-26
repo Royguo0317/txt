@@ -1,168 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 耶鲁大学流行病学和公共卫生学教授哈维-里希博士谈群体免疫和针对COVID的疫苗接种
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1139140/)
+## 郭先生0425VII民生5万亿美元资产爆雷的边际效应影响巨大
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1140109/)
 
-**原标题：**耶鲁大学流行病学和公共卫生学教授哈维-里希博士，医学博士，与《作战室》一起讨论群体免疫的概念和针对COVID的疫苗接种。
+编辑整理：
 
+华盛顿DC农场：湘江之水；七哥听写组：黎明之前
+![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-119.jpg)
+郭文贵先生在2021年4月25日的直播中谈到了以共灭共关键看最重要的一极的曾庆红出不出手；谈到了川普总统卸任手肠子都悔清的三件事儿等内容，本系列将根据郭先生直播中涉及的不同侧重点逐一上传，以下为本系列第七部分——民生5万亿美元资产爆雷的边际效应影响巨大
 
+据[2021年4月25号 文贵直播：川普总统卸任后最后悔的三件事！拜登欧洲之行意义为何？中共内部经济一塌糊涂，民生银行是中国经济最大的雷！习已经成为孤家“险”人，以共灭共的重点是曾家是否出手。](https://gtv.org/video/id=608571df8aa4fd003f365a28)时间点55：56——
 
-内容：
+从租赁、从地产商，好当时几个人跟着当时煤炭生意好的时候，民生控制了江湖上的所有的个人煤矿资源70%的所有煤矿的抵押贷款，也变相地说控制了70%的资源，后来习上来习之前所有的稀土百分之九十几都在这几个常委家族了，后来习上来全给收回来了，他们拿走了，这些稀土或者原来都押在民生，这是多大的钱兄弟姐妹？我告诉大家，民生的以10万亿人民币的资产所谓上，民生抵押的资产——**煤矿、稀土、房地产大概在30万亿人民币，也就是5万亿美元，你去想想它要爆了雷是什么感觉吗？它爆了可不是说就这个几百亿，那也不是几十亿的问题，它的边际效应它影响是巨大的**。
 
-this is the lead story, oh it must be the thing was an associated press story
+共产党会想尽一切办法让民生不爆，但是我告诉大家，没有，别说共产党，共产党他爹李大钊回来，那他都挡不住，它也得爆。原因是什么？因为没人承受得了，它涉及的人太多、行业太多，所以大家你们记住七哥就在这等着。
 
-这是主要的消息，哦，它必须是新闻媒体关注的故事
+张宏伟想再吹工，呼~~~~~~~~~~~吹不了了啊，断修魏能帮它，断修魏可以找人帮帮他是吧？他早晚得进去，这孙子早晚得进去，他两口子家人、儿子都得抓起来，董文彪这个小骗子100%抓起来，董文彪经常带着小女模特、名人到我那去嗯哼~嗯哼~嗯哼~，老一嗯哼我就说，欸，我说文彪董行长别嗯哼，最后我说那领导的妇人一嗯哼，我的痔疮掉一地，别嗯哼，别嗯哼，他一嗯哼，一见美女就嗯哼你咋办呢你说？那几个大明星在那儿一见了，哎呀~哎呀~董董事长~董大哥~一喊，哎呀~一拽衣服，董文彪嗯哼~嗯哼~嗯哼~哎哟，我的娘欸受不了了就，所以说董文彪肯定完球蛋，绝对是罪该万死，他完了吧。
 
-is about a month ago, and Fauci had said that in order to get to herd immunity
+洪崎那就完了，洪崎的弟弟那全家抄门，抄门、灭门。陈元一定完蛋的，陈元弄走几千亿，你不弄他，陈元是跟曾家是铁哥们是吧，那肯定的国开行，所以这几天上面一动作抓王岐山下边的纪委的人，然后又抓国开行的人，又抓了上海信托的人，又抓了东北盛京银行的人，又抓了民生的人，然后下一步现在招商银行的人只有一个，最后倒下的就是平安银行，你会看到这一个一个倒下来，像盛京原来像我说方正它一定会倒的，它一定会倒的嘛，它一定倒的，我说谁倒哪有不倒的，它只是时间的问题，像盛京啊包头完了吧我原来说的，哈尔滨哈商行、包头啊，还在走什么龟头包头什么的完啦！盛京然后民生啊、招商啊，是吧，然后是平安，是吧，最后是国有银行，上海银行一定是完蛋的。
 
-大约一个月前，福奇说过，为了达到群体免疫
+上海银行什么李一飞的、李友的马仔呀，是吧，还有什么余丽啊，余丽你在叫床她已经叫不出来了，是王恩哥你再给他折腾养养凑出来，我看她叫床厕所都能听不见。
 
-we’re gonna have to get to, I think he said at the time
+所以说现在你看清楚了国内企业，接着一个一个的马云完了马化腾叫三马，马化腾完了马明哲，三马皆毁、三马俱倒，三马倒了，大家你会看到就是从过去的民生的吴小晖，是吧，肖建华，然后大家就看到了，许加印出过国吗？我三年前我说许加印出不了国，你见他出过国吗？三年前我说过王健林不能出国了，就第二年这已经快三年了啊，王健林你见他出过国吗？见他出过国吗？董文彪我说你小子能出来、出得了国吗？张宏伟你叫他出国看看，是不是啊。
 
-我们必须达到，我想他当时说的是
+最近看着吴征和杨澜被保释出来以后，为了证明自己有子宫。结果是杨澜当着面过生日给吴征亲嘴，你亲嘴干嘛啊？你看看叫大家看看你子宫啊？对不对呀，是吧，她以为她能装一装呢，还在好整呢，你走着看！还有那个什么潘石屹是吧，当年多牛啊又告文贵又啥的，潘石屹在哪儿呢？儿子被通缉个球的了，是吧，还有张欣多牛啊！还有马云都是不爱钱的，然后讲情怀的张欣，还有讲什么正义的还有什么任志强啊，还有潘石屹——在哪儿呢？
 
-eighty to nine percent people vaccinated
+大家你会看到，最后你们能看到中共国把这些所有的该死的白手套的企业家，这些泯灭良知专坑老百姓的把这些投资当韭菜的这些企业家，全部都得完球蛋，全部都得完球蛋，我要马上结束人家开会的叫，还有10来分钟啊，今天就播到11点咱就结束。（郭先生看电话）………好，今天聊得都是快乐主题。
 
-达到80%到90%的人接种疫苗
+接上文——
 
-and the only way mathematically we could do
+[郭先生0425I以共灭共关键看最重要一极的曾庆红出不出手](https://gnews.org/zh-hans/1139865/)
 
-然而从数学计算上讲，我们能做到这一点的唯一方法是
+[郭先生0425II川普总统卸任后肠子都悔清的三件事儿](https://gnews.org/zh-hans/1139908/)
 
-that is you’re going to have to start to vaccinate schoolchildren
+[郭先生0425III川普总统想回来但拜登要采取行动不让他回来](https://gnews.org/zh-hans/1139934/)
 
-你必须开始为学校的孩子接种疫苗
+[郭先生0425IV目前响应灭共的欧洲国家和盟国比美国更积极](https://gnews.org/zh-hans/1139985/)
 
-now we put that up, nobody else covered it, it was a buried lead,
+[郭先生0425V拜登救共梦破中共内部焦虑症习大神变习大傻](https://gnews.org/zh-hans/1140003/)
 
-现在我们要重提这件事，没有人报道它，它是一个被埋没的线索
+[郭先生0425VI金融系统随时崩塌，民生一定是中国的地雷](https://gnews.org/zh-hans/1140070/)
 
-we went nuts on it, and they haven’t mentioned it since then,
-
-我们认为这是非常重要的事，从那时起他们就没有再提起
-
-they’ve talked about now trying to get the …,
-
-他们现在谈到了想要（给孩子接种疫苗）
-
-because at the time you hadn’t even done any testing of the vaccine on school children
-
-因为在那时候，甚至没有在学校的孩子身上做任何疫苗的测试
-
-why? am I missing it?
-
-为什么？我是不是遗漏了什么？
-
-because I know you followed this from a scientific point of view.
-
-因为我知道你是从科学的角度来关注这个问题。
-
-Why Are they not including, at least putting forward every day
-
-难道当他们每天谈论群体免疫力的时候
-
-when they talk about herd immunity, part of the calculation being …… the population that ……
-
-一部分被感染人群不被纳入统计计算内吗？
-
-because it would seem to me that if you add who’s been infected,
-
-因为在我看来，如果加上被感染的人群
-
-coupled with … I think they say forty percent of the American people have one jab,
-
-再加上他们所说的，有40%的美国人打了一针
-
-a (third) twenty five percent have two jabs, if you add that.
-
-有25%的人打了两针，如果你加上这些
-
-aren’t we at? aren’t we mathematically at herd community right now?
-
-我们现在不是在数字上达到群体免疫了吗？
-
-yes, we are as an average across the country
-
-是的，如果视全国的平均水平，是达到了
-
-but you have some states that had very little herd immunity to start with
-
-但是有一些州一开始的群体免疫基数就很小
-
-and now the vaccinations have gotten them to the peak or just past the peak of the epidemic curve
-
-现在接种疫苗让他们达到或刚刚过了流行病曲线的峰值
-
-and so it’ll take them quite a while to come down.
-
-因此他们还需要一段时间时间来使曲线下降
-
-The vaccination because it only cuts transmission by fifty to sixty percent and not by ninety percent.
-
-因为接种疫苗只能减少50%到60%的传播, 而不是90%
-
-it’s not that strong to shut off the infection,
-
-它没有那么强的能力来停止病毒蔓延
-
-so, yes it is adding to herd immunity
-
-所以，是的，它加强了群体免疫
-
-but it’s not enough to bring it down fast
-
-但还不足以快速降低病毒感染速度
-
-and that’s the reason why Dr. Dauci is still espousing distancing and mask wearing and so on
-
-这就是为什么福齐博士仍然要求保持距离和戴口罩等的原因
-
-because he’s trying to say we need more than just the fifty to sixty percent benefit
-
-因为他想说是，想要尽快降低感染率
-
-in order to bring the infections down more quickly
-
-仅仅减少50%到60%的传播是不够的
-
-and so you have the states that have too little herd immunity from before
-
-因此，像有些以前群体免疫水平很低的州
-
-that need more vaccination
-
-就需要更多的疫苗接种
-
-some states that have lots of herd immunity like I said,
-
-而像我说的，那些有大量群体免疫的州
-
-North Dakota ,South Dakota, Tennessee and so on, that don’t need vaccinations
-
-如北达科他州、南达科他州、田纳西州等，则不需要接种疫苗
-
-because they already have a large amount of herd immunity.
-
-因为他们已经有很高的群体免疫水平了
-
-Their number of cases is small
-
-他们的病例数量很少
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接: https://twitter.com/realamvoice/status/1384235352076947465?s=24
-
-英听校： 康州盘古农场 – Mike Li
-翻译： 康州盘古农场 – Mike Li
-翻译终校：康州盘古农场 – 柯镇恶
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-+1
+0

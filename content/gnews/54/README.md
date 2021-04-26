@@ -1,87 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 战友展览板【4/25】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1139149/)
+## 【世事解评】抢先接种中共国疫苗数月后，秘鲁前总统确诊感染
+` Basil4` [轉載自GNews](https://gnews.org/zh-hans/1139961/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
+作者：纽约香草山健身部Jack Li文阳
 
-【以毒灭共】推文。如下
-![]()![](https://gnews.org/wp-content/uploads/2021/04/EzyWu3eVoAAEewg.jpeg)1. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1386148595980640257)**：
-*这张图生动的展示了新冠病毒的E蛋白肺部细胞起的作用：如同特洛伊木马一样，进城之后就拉开门闩（图中蓝色PALS1），然后城门洞开，大量病毒就直接涌向血管，进入循环系统，然后通过血液到达全身各处。突破血脑屏障可能也是类似的过程，我猜的哈*
+![]()![](https://gnews.org/wp-content/uploads/2021/02/GNEW-GTV-MOS-LOGO-2-5.jpg)
 
 
-> “noteworthy ([#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) nature-origin) study was done as a collaboration between Dr. Yi Guan’s from HKU & Dr. Wuchun Cao’s from Academy of Military Medical Sciences (AMMS), China. Somehow, all authors affiliated with AMMS were excluded from the list of authors”
-> – 2nd Yan Report [https://t.co/3KEObXqHNM](https://t.co/3KEObXqHNM)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 25, 2021](https://twitter.com/DrLiMengYAN1/status/1386306209930678278?ref_src=twsrc%5Etfw)
 
+秘鲁前总统比斯卡拉周日（4月25）发推承认他和妻子都已检测呈阳性。他表示，“我的家人都已采取隔离措施，大家不要掉以轻心。”
 
-2. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1386306209930678278?s=20)**：
-*（斯帕丁将军）武汉实验室的科学家如何帮助中共国军队秘密寻找动物病毒 | [每日邮报在线](https://www.dailymail.co.uk/news/article-9507749/How-scientists-Wuhan-lab-helped-Chinese-army-secret-project-animal-viruses.html)
-（闫）“值得注意的是（#COVID19自然来源）研究是由香港大学的管轶博士和中国军事医学科学院（AMMS）的曹务春博士合作完成的。不知何故，所有与军事医学科学院有关的作者都被排除在作者名单之外。”
--第二份闫报告*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片15-4.png)
 
+现年58岁的比斯卡拉曾在2018～2020年担任秘鲁总统，他在最近的议员选举中胜选。因为去年利用职权抢先接种疫苗引发丑闻，秘鲁国会还禁止他暂时不能从事议员一职。
 
-> 能上环球时报，并且反对去年2月初川普政府禁飞令，现在还在大力推广疫苗，自称是兰德公司唐氏讲席教授、中国项目主任……
-> 
-> 所做的这些事情和她的以往经历，这个人的背景已经很清楚了[#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/4FSw1myXNu](https://t.co/4FSw1myXNu) [pic.twitter.com/8XwyfXK14i](https://t.co/8XwyfXK14i)
-> — 500 𝕸𝖎𝖑𝖊𝖘 (@Safeguard008) [April 25, 2021](https://twitter.com/Safeguard008/status/1386231011705376769?ref_src=twsrc%5Etfw)
+比斯卡拉否认利用权势提前接种，他声称他的兄弟、妻子和他参与的是正式接种前的临床试验。
 
+这位前总统同时还被指在2011～2014担任州长时涉嫌贪腐，秘鲁国会在去年11月通过弹劾罢免了他的总统职位。
 
-3. **[500miles推特](https://twitter.com/Safeguard008/status/1386231011705376769?s=20)**：
-*（VOA）新冠疫苗给人带来的副作用不到百万分之一，为什么有些人对很小的风险征兆如临大敌，对明确的疫情威胁却漫不经心？兰德公司流行病学家黄志环博士说，首先要让那些人认识到病毒的切身威胁。#时事大家谈 #精彩点评 [https://youtu.be/BuaBalBabg8](https://t.co/5AP4jubKFW?amp=1) [https://youtu.be/kZlTS2-EDLo](https://t.co/Zu9Dz6CODY?amp=1)
-（500miles)能上环球时报，并且反对去年2月初川普政府禁飞令，现在还在大力推广疫苗，自称是兰德公司唐氏讲席教授、中国项目主任…… 所做的这些事情和她的以往经历，这个人的背景已经很清楚了*
+根据最新统计，这个有着3300万人口的国家目前确诊感染新冠病毒170万人，59440人死于新冠病毒。秘鲁目前正经历着第二波疫情爆发。
 
+今年二月，媒体揭出这位前总统比斯卡拉和另外470人于去年10月份就抢先接种了中共国国药疫苗，那时秘鲁全国还没正式启动接种，这一“疫苗门”丑闻导致秘鲁卫生部长、外交部长等人辞职，比斯卡拉被弹劾下台。
 
-> 04/22/2021 G-Translators Newsflash 
-> News Summary：
-> 1、 Dr. Yan Limeng Tweets To Question Australian Virus Expert Edward Holmes Who Helped the Chinese Communist Party Hide the Truth About the Virus
-> 2、The CCP Has Won Full Control of Hong Kong, and the “Brainwashing” of Hong Kong [pic.twitter.com/Zr7keML6CI](https://t.co/Zr7keML6CI)
-> — 秘密翻译组 (@G\_Translators6) [April 25, 2021](https://twitter.com/G_Translators6/status/1386338405978542089?ref_src=twsrc%5Etfw)
+这位不惜冒着政治风险，抢先接种中共疫苗的前总统，这是抢着去死的节奏。只可惜中共疫苗也没为他挡住病毒，不仅丢了总统乌纱帽，还感染了病毒。这是关于病毒疫苗最滑稽的案例，正是：陪了夫人，又折兵。文贵先生说得好：相信共产党，走进火葬场。这位好嘛，还是走后门的。
 
+参考阅读：[https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210426-%E7%A7%98%E9%B2%81%E5%89%8D%E6%80%BB%E7%BB%9F%E6%8E%A5%E7%A7%8D%E4%B8%AD%E5%9B%BD%E7%96%AB%E8%8B%97%E6%95%B0%E6%9C%88%E5%90%8E%E7%A1%AE%E8%AF%8A%E6%84%9F%E6%9F%93](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210426-%E7%A7%98%E9%B2%81%E5%89%8D%E6%80%BB%E7%BB%9F%E6%8E%A5%E7%A7%8D%E4%B8%AD%E5%9B%BD%E7%96%AB%E8%8B%97%E6%95%B0%E6%9C%88%E5%90%8E%E7%A1%AE%E8%AF%8A%E6%84%9F%E6%9F%93)
 
-4. **[秘密翻译组推特](https://twitter.com/G_Translators6/status/1386338405978542089?s=20)**（附视频）：
-*4/22新闻提要：
-1、闫丽梦博士发推文质疑澳大利亚病毒专家爱德华·霍姆斯帮助中共隐瞒病毒真相的行为
-2、中共赢得了对香港的全面控制，并对香港进行 “洗脑”*![]()![](https://gnews.org/wp-content/uploads/2021/04/EzyA0K1VEAE9vNn.jpeg)5. **[Dr. Fleming推特](https://twitter.com/Doctor_I_am_The/status/1386124827623260160?s=20)**：
-*由美国纳税人支付的功能增益研究费给了EcoHealth的Peter Daszak，然后是Ralph Baric和石正丽。这里（图）是金额和国防部政策顾问。这里（图）也只是一些拨款的数字。传播给其他人，以便特别检察官能看到这些信息。*
+校对/发稿：飞虹
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/M4.jpg)
 
-> Yes, we need a full & unrestricted int’l forensic investigation into all [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) origin hypotheses.
-> Q: How to get “full access” to necessary intelligence/witness/data…when CCP regime is active? 🤔 Esp. when evidence points to intentionally release of [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw)😎 [https://t.co/Wk6qCkKkQo](https://t.co/Wk6qCkKkQo)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 25, 2021](https://twitter.com/DrLiMengYAN1/status/1386330957616062472?ref_src=twsrc%5Etfw)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-6. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1386330957616062472?s=20)**：
-*（杰米·梅茨尔）5/ 我一直认为，我们需要对所有起源假设进行全面和不受限制的法医调查，包括实验室泄漏，并充分访问所有相关记录、样本和人员。任何不探索所有选项的过程都不可能可信；
-（闫）是的，我们需要对所 #COVID19起 源假设进行全面和不受限制的法医调查。
-问：当中共政权处于活跃状态时，如何“完全访问”必要的情报/证人/数据？
-除非。当证据表明故意释放 #超限生物武器 时*
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-> Countdown to 2021.05.17… ⌛️
-> A kind reminder for [@PeterDaszak](https://twitter.com/PeterDaszak?ref_src=twsrc%5Etfw) :
-> Forget about Baijiu, Stop talking batshit, 
-> Finish the report !!! 
-> Tip: Double-crossing Zhengli and WIV is optional! 🤩[https://t.co/ILSf3E1TI2](https://t.co/ILSf3E1TI2) [https://t.co/9ekwgEK3uS](https://t.co/9ekwgEK3uS) [pic.twitter.com/n3bl24NWG2](https://t.co/n3bl24NWG2)
-> — 德意志之鹰 (@dezying) [April 25, 2021](https://twitter.com/dezying/status/1386379404553695233?ref_src=twsrc%5Etfw)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-
-7. **[德意志之鹰推特](https://twitter.com/dezying/status/1386379404553695233?s=20)**：
-*（Dr. Fleming)由美国纳税人支付的功能增益研究费给了EcoHealth的Peter Daszak，然后是Ralph Baric和石正丽。这里（图）是金额和国防部政策顾问。这里（图）也只是一些拨款的数字。传播给其他人，以便特别检察官能看到这些信息；
-(德）2021.05.17倒计时…
-一个善意的提醒[@PeterDaszak](https://twitter.com/PeterDaszak)：忘掉白酒吧，别再胡说八道了，完成报告！！！提示：石正丽和WIV双线可选。**[附链接](https://republicans-energycommerce.house.gov/news/ec-republican-leaders-request-information-from-u-s-group-affiliated-with-chinese-lab-at-center-of-covid-19-origin-investigation/)***
-
-
-> "民主与专制的战略对抗", 这个基调一确定, 中共之前3F美国, 离间美欧关系的鬼把戏就彻底破产了. 
-> 党内各派, 留给你们挑边的时间已经不多了, 已经开始倒计时了…
-> 路透社: 美国将在G7强化盟友关系, 共同对中国采取了强有力措施[https://t.co/2ej5FMsWt2](https://t.co/2ej5FMsWt2)
-> — 德意志之鹰 (@dezying) [April 25, 2021](https://twitter.com/dezying/status/1386374228719636482?ref_src=twsrc%5Etfw)
-
-
-8. **[德意志之鹰推特](https://twitter.com/dezying/status/1386374228719636482?s=20)**：
-*“民主与专制的战略对抗”, 这个基调一确定, 中共之前3F美国, 离间美欧关系的鬼把戏就彻底破产了. 党内各派, 留给你们挑边的时间已经不多了, 已经开始倒计时了…*
-*[路透社: 美国将在G7强化盟友关系, 共同对中国采取了强有力措施](https://www.reuters.com/world/china/exclusive-biden-will-push-allies-act-china-forced-labor-g7-adviser-2021-04-24/)*
-
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 +2

@@ -1,46 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共马六甲南海军演破产&nbsp; 沙特等国退出&nbsp; 中共遭严重打脸
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1139638/)
+## 【各抒己见】灭共战友是一家
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1140305/)
 
-**摘要：在2021年4月18日的GTV直播中，郭先生现场爆料，中共正在进行的马六甲南海军演只能和伊朗玩，因为沙特阿拉伯、阿联酋、巴基斯坦先后退出，真是花了银子又打脸。**
-[下载字幕](https://www.gnews.org/wp-content/uploads/2021/04/Miles_20210418-live-p2.srt.txt)
-**中共马六甲南海军演破产****  ****沙特等国退出****  ****中共遭严重打脸**
+作者：喜马拉雅东京樱花团 / 李文星
 
-**Saudi Arabia, the UAE, and Pakistan Withdraw From the CCP’s Military Exercise**
+![](https://lh4.googleusercontent.com/WwmSBuT4RrbESNIvN3-PXKrswS5zOPcTaiRWIfT5MrhYYnYKzALDCTx7xq3AVkhqna28shcKAAcgrVpN6wDrSL13XbbQrfVUWhXhdiNhnRssoWHzYWFFOPzzSoRjY9cPSmWhDIql)
+东京方舟农场&东京樱花团 4.24集会现场
 
-那么我今天告诉大家，我今天给大家爆个料啊。就在几个小时以前，就在我们今天直播几个小时以前，中共的驻沙特的大使在沙特，被沙特的王子给羞辱一番，和沙特皇室大吵了一架。为什么呢？过去的两周来吵了很多架，沙特的这个王子很年轻——本·扎耶德，本·扎耶德呢就是这过去几年基本上就是想尽一切办法来靠共，坐着飞机跑到中共去支持对新疆大屠杀，大家看到了啊，然后石油对中共永远是敞开的。
+4月24日，在东京新宿车站南口，由新中国联邦日本方舟农场主办、樱花团积极响应支援，共同举办了一场以“切割中共不代表中国人，揭露CCP病毒真相”为主题的街头集会活动。集会日恰巧赶在东京都再次进入紧急状态的前一天得以顺利进行，同时考虑到新宿车站是全世界最繁忙的车站，也是东京最重要的交通枢纽地，希望借此活动机会引起更多的日本民众关注CCP病毒真相，希望更多日本人能反思：到底是什么原因导致了再次进入紧急状态，谁才是真正的罪魁祸首……
 
-So I will tell you breaking news today. Just a few hours before we started the broadcast today, the CCP’s ambassador to Saudi Arabia was humiliated by the Saudi prince in Saudi Arabia, and he had a big quarrel with the Saudi royal family. Why? There have been a lot of quarrels in the past two weeks. The prince of Saudi Arabia, Bin Zayed, is very young. In the past few years, Bin Zayed tried every means to get close to the CCP and even flied to communist China to support its massacre in Xinjiang, which everyone has seen, and also kept their oil exports forever open to the CCP.
+方舟农场经过一段时间的构思并做了实地考察等一系列的前期准备，樱花团在接到方舟农场负责人草根小哥的盛情邀请后，第一时间积极动员樱花团战友4.24上街支援这次集会活动。其实在战友们的心里，农场是不分家的，都是爆料革命战友，新中国联邦所有战友都是兄弟姐妹，所有农场都隶属新中国联邦！我们是一家人！
 
-沙特的这种亲中包括导弹系统，包括防御系统，包括国防系统都尝试想用中国的红旗-9或红旗-9E，整个系统想对付伊朗。而中共呢也给它建了很多所谓的到什么葫芦岛建什么炼油站，一系列的啊。包括阿联酋，这阿联酋这国家没选择这个国家，也跟他们在搞在一起。然后就是伊朗。这是中共的一带一路就控制真正的海上之路，控制真正的产品供给线，改变世界上的游戏规则。
+揭露CCP病毒真相活动虽然是当天下午14:00才开始，但是方舟农场和樱花团战友12点多早早就到了现场，战友们那种每次上街都迫不及待的心情只有战友才能懂。战友们到现场后亲切打招呼，互相问候，同时每个战友又井然有序地执行各自担任的职务，打横幅标语、发传单、扛国旗、穿病毒服、摄影、演讲和现场警备等等。一切迅速按部就班各就其位，都缘于方舟农场前期的统筹运作和樱花团的积极配合，灭共从来都不是一个人的事，也不是单个团队的事。
 
-Saudi Arabia’s pro-China actions also include trying to use the CCP’s HQ-9 or HQ-9E in their missile system, defense system, and national defense system to deal with Iran. And in return, the CCP has built a lot of so-called oil refining plants and everything in Hulu Island (Dalian, Liaoning) for it, including the UAE, because the UAE has no choice other than engaging with them. Then there is Iran. This is the CCP’s One Belt One Road Initiative to control the supply line in the ocean and control the product supply chain. It has changed the rules of the game in the world.
+东京的新宿车站客流量非常大，过往的行人有的瞩目，有的与战友们进行关于CCP病毒真相交流，当然也有个别中共国粉红对战友进行辱骂，面对粉红的挑衅和辱骂，战友不卑不亢用慈悲之心化之。方舟农场主草根小哥和樱花团团长定于二尊在现场发表了揭露CCP病毒真相的演讲，现场发表演讲的还有两个农场的其他战友以及支持新中国联邦的日本人。
 
-世界的游戏规则就很简单：中东、委内瑞拉你们生产油，生产气；美国生产美元、高科技产品；中国生产廉价产品；日本你给我再看住中国、俄罗斯，然后你帮我代工。它是有分工的。欧洲你就做好我的花园，然后呢，你给我高精工产品让我美国人享用。 美国人就是要大量的消耗世界最高级的产品，印制美元。
+当活动结束战友们正在大合影的时候，一个日本小痞子过来辱骂挑衅，瞬间激怒了战友，战友们保持克制，整齐划一地朝着捣乱的小痞子怒吼：“打倒共产党！打倒共产党！打倒共产党！”几个负责警备的战友迅速迎上前去，战友们灭共的决心和气势瞬间灭掉了日本小痞子挑衅的气势，狼狈逃走。
 
-The rules of the game in the world are very simple. There is a division of labor: the Middle East and Venezuela produce oil and gas; the United States produces dollars and high-tech products; China produces cheap products; Japan keeps an eye on China and Russia for me (America), and then helps me with OEM; Europe serves as my garden and makes high-precision products for Americans to enjoy. The Americans just consume a lot of the world’s most advanced products and print dollars.
+本次活动，不仅限于方舟农场和樱花团，还有来自香草山和其他农场的日本战友，爆料革命战友是一家人，全球所有农场的战友都有一个共同的目标：就是灭共！建立新中国！
 
-那么中共的一带一路就把这个要给弄断了——我要控制美元，我要控制能源，我不仅仅想当生产，我还想当技术创造者，彻底替代美国嘛。那么在这种[情况]下，沙特和UAE和伊朗是他的绝对战略目标，这就是一带一路。
+*免责申明：本文只代表作者观点，与GNews网站无关。*
 
-But then the CCP’s One Belt One Road Initiative broke the rules because it wants to control the US dollar, control energy. Moreover, it not only wants to be a producer, but also wants to be a technology creator and completely replace the United States. So under this situation, Saudi Arabia, UAE and Iran are its absolute strategic goals. This is the Belt and Road Initiative.
+*校对：喜马拉雅东京樱花团 / 東洋武士*
+*责任编辑：喜马拉雅东京樱花团 / 文小白*
+*发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/二维码-2.jpg)
+0425C121c
 
-那么花了半年时间，共产党玩的最高的招儿，4月17号到4月19号，有一个在所谓的马六甲海峡，还有在整个南海有一个军事演习。谁参加呢？巴基斯坦、阿联酋、伊朗、沙特全参加，而且中共付大钱。结果美国强烈施压，在两周前沙特退出、阿联酋退出、巴基斯坦也退出。现在就剩下此时此刻，此时此刻，中共和伊朗自己玩儿。钱也花了，人家不来了，钱花了，人家不来了。这对中共是个很打脸的事儿，所以中共公开宣布，不再买沙特石油，买俄罗斯石油，减少阿联酋石油，然后巴基斯坦几个钱不投了，跟伊朗玩儿。大家知道，就此时此刻。这对共产党是一个重创。
 
-So it took half a year for the CCP to prepare something that they thought was the smartest – a military exercise, between April 17 and April 19, in the Strait of Malacca and in the entire South China Sea. Who participated? Pakistan, the UAE, Iran, and Saudi Arabia all planed to participate, and the CCP has paid large sums of money. However, under the huge pressure of the US, two weeks ago, Saudi Arabia withdrew, then the UAE withdrew, and Pakistan also withdrew. Now at this moment only the CCP and Iran are playing by themselves. The money has already been spent, but people won’t come. This is such a shame to the CCP, so the CCP publicly announced that it will no longer buy Saudi’s oil, it will turn to buy Russia’s oil, reduce the import of the UAE’s oil too, and stop investing in Pakistan.  It will play with Iran. So you know, it’s happening at this very moment, which hurts the CCP badly.
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=607c32577e083973a72a47cb](https://gtv.org/video/id=607c32577e083973a72a47cb) (1:08:53-1:12:39)
-鸣谢：感谢酸酸乳(文少)、笑笑、山川异域提供中文文本于[https://www.gnews.org/zh-hans/1117926/](https://www.gnews.org/zh-hans/1117926/)
 
-* * *
 
-字幕：【JennyL】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
-+3
++2

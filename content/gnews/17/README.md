@@ -1,35 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【时事解析】南海局势升级，菲演习对抗中共
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1139890/)
+## 【有声读物】这个秋天
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1140619/)
 
-作者：休斯顿星光农场 写作部 文顺
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-03-25-230524-1.jpg)
-**据法广4月26日报道，菲律宾海岸警卫队正在南中国海举行演习，以确保菲律宾能在该海域行使“海事管辖权。**
+配音：香草山录音组 Gtv abeilles（蜜蜂）
 
-菲律宾海岸警卫队与菲律宾渔业局一起部署了8艘船，在斯卡伯勒浅滩（中国称黄岩岛）和派格阿萨岛（中国称中业岛）进行了关于导航、小船操作、维护和后勤作业的训练。菲律宾海岸警卫队举行的此次演习，是在菲方23日对中共国船只在牛轭礁附近的争议海域持续停留提出外交抗议后进行的。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-04-26-014046.jpg)
 
-*图片来源：网络*
 
-菲律宾外交部表示，截至20日，菲律宾海事官员已观察到160艘中共国渔船和民兵船只在有争议的牛轭礁附近”继续未经许可的存在和活动”，并且在该地区还发现了五艘中国海岸警卫队船只。菲律宾总统罗德里戈•杜特尔特（RodrigoDuterte）19日表示，他准备部署海军舰艇，以维护菲律宾在专属经济区对石油和矿产资源的主权权利，并告诉中共，如果中共开始钻探石油，他也会这样做。
 
-杜特尔特在讲话中说：“我现在对捕鱼不那么感兴趣了，我认为（那里）没有足够的鱼来为此争吵”。 “如果我们去那里宣示我们的管辖权，那将是血腥的”，他说，“对西菲律宾海的占领是通过中国不退却的单一行为完成的”。最后他补充道：“这就是国际法中的规则。当你第一个离开时，意味着那里已经不是你的了。”
 
-杜特尔特表示，中共北京没有遵守2016年海牙国际仲裁法庭的裁决，同时他也不指望中方能遵守联合国的任何授权。“你认为中（共）国会因为联合国的要求而随意将它交出来吗？”他问。
 
-该事件已引起了国际社会的广泛关注。美国国务卿安东尼·布林肯上月表示，面对中共国在牛轭礁的行动，华盛顿”支持其盟友菲律宾”。本月24日，欧盟指责中共国危害南中国海和平，并敦促各方遵守2016年法庭的裁决，该裁决有利于菲律宾，同时使中共国在南中国海的大部分主张无效，但北京方面拒绝了这一裁决。
 
-信息来源：
+我与这座城市并无瓜葛
 
-菲律宾海岸警卫队在南海举行演习 (rfi.fr)Philippines protests China’s ‘threatening’ South China Sea presence | Reuters
+我与这个秋天也无瓜葛
 
-編輯/校對/發稿：Helen
+只是，你看不到的另一面
 
-更多資訊，歡迎點擊[休斯頓星光農場官方推特賬號](https://twitter.com/HLitstar?s=20)
 
-更多節目資訊，歡迎進入[休斯頓星光GTV官方鏈接](https://gtv.org/user/6031a8c0047c4c3086d7683f)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-03-25-230524-1.jpg)
+
+**文字版原文：[这个秋天](https://gnews.org/zh-hans/459164/)**
+
+作者：纽约香草山写作组  木白
+
+
+
+音频处理/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 0

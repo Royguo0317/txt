@@ -1,53 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美日会谈达成秘密经济协议继续QE&nbsp; 中共伺机囤积黄金
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1139024/)
+## 彭佩奥：中共国无意履行在气候峰会上的承诺
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1140247/)
 
-**摘要：2021年4月17日的盖特视频中，郭先生揭秘美日会谈达成的秘密经济合作协议，两国将继续QE印钱。期间中共获得情报，于是大量囤积黄金，海外并购金矿和限制私人黄金交易。**
-[下载字幕](https://www.gnews.org/wp-content/uploads/2021/04/Miles_20210417-getter.srt.txt)
+新闻来源：《福克斯新闻（FoxNews）》| 作者：迈克尔·昆兰（Michael Quinlan ） | 发布时间：2021年4月22日
+翻译/简评：随波逐流 | 校对：感恩 | 审核：万人往 | Page：Daoiii
 
-**美日会谈达成秘密经济协议继续****QE  ****中共伺机囤积黄金**
+[!\[\]()!\[\](https://spark.adobe.com/page/H2q5L6gDWyVb7/images/d9db9c2b-41ff-4aac-8714-f1e16bbdd724.jpg?asset_id=e51922b6-d3e6-4400-a004-9cf46a6edb41&amp;img_etag=%2227f55a915783f4466133161dceaaac49%22&amp;size=1024)](https://spark.adobe.com/page/H2q5L6gDWyVb7/images/d9db9c2b-41ff-4aac-8714-f1e16bbdd724.jpg?asset_id=e51922b6-d3e6-4400-a004-9cf46a6edb41&amp;img_etag=%2227f55a915783f4466133161dceaaac49%22&amp;size=1024)
 
-**US and Japan Have Reached a Secret Agreement to Continue Their QE**
+**简评：**
 
-哎呀，兄弟姐妹们，这几天大家看到都在关注什么事件啊？大家注意着几个问题呀，兄弟姐妹们，7哥可以今天在这儿说世界即将迎来人类有史上最大的通货膨胀，严格讲叫“恶性通货膨胀”。过去这些天发生这个事儿对共产党的这个整个政策调整你就看得出来。咱的目的就是灭共，咱拯救不了全人类的经济，但是世界的经济的动荡，它绝对地直接地影响我们灭共的步伐。那么大家看到发生什么事情？
+**彭佩奥在参加“今夜福克斯商业”节目时，谈到了对由美国主导的线上气候峰会的预测，他认为除了一堆无法兑现的空话，中共将一如既往地不会做出任何有实质意义的承诺，他不相信中共会转变污染情况。彭佩奥还说，不要看中共说什么或承诺什么，要看他们做了什么，美国需要观察中共国的实际行动来确定美国是否安全和繁荣。同时，他也期望拜登政府谨慎说话，大胆做事，不做无计划的承诺，用行动展现实力，保持一个大国的威慑力，在对待中共国、俄罗斯和伊朗问题时更要如此。**
 
-Ah. Brothers and sisters, what events have caught your attention these days? There are a few things you should be aware of, brothers and sisters. Your Brother Miles can say here that the world is on the verge of the most significant inflation in the history of humankind, technically called hyperinflation. The policy adjustment that has taken place in the last two weeks towards the CCP is evident. Our focused goal is destroying the CCP. We cannot save the entire human economy, but the economic turmoil of the world will directly impact the pace of taking down the CCP. Have you noticed what has happened?
+**当一个国家或领导人做出承诺时，一定要做到“言必信，行必果“，这样才能赢得世界的尊重并给对手构成威慑力。中共可谓是“言而无信，背信弃义”的典范，他们签署协议或者做出承诺时，只是为了达成自己之后政治或经济目标的一种过渡手段，用后即弃，没有任何羞耻之心。中共过往所做的承诺很多，但真正兑现的没有几个，《中英联合声明》、入世承诺以及不会将南中国海军事化的许诺都被中共弃如蔽帚。还有对国际专家组新冠溯源调查出尔反尔的态度，中共已经违背了太多承诺，假话说得太多，在世界上已没有任何信誉可言。在对待中共和伊朗等国家的态度上，绥靖政策只会换来他们更加的肆无忌惮，他们会靠无休止的一轮又一轮的无意义的谈判来拖延时间，在此过程中照样对全世界发动生化战、恐怖袭击、偷窃知识产权等不法行为。只有采取实际行动消灭这些流氓政权，才能结束一切纷争和威胁。**
 
-过去这几天，美国拜登总统和日本的首相菅义伟的见面，发生了什么事情？这俩国家印钞现在都印得非常厉害，印钞印得可以说是两个印钞大国，学术上叫QE。QE严格讲就是放的假屁，就是放的假屁，就是骗人的屁，实际上就是印钞票。日本、美国都将迎来巨大的通货膨胀及恶性通货膨胀期。
+[!\[\]()!\[\](https://spark.adobe.com/page/H2q5L6gDWyVb7/images/ed48a4a7-e74b-441a-a80a-7b261b950095.jpg?asset_id=764cf06a-591d-42f8-a8db-cd7a72020f6c&amp;img_etag=%22a02d1e80fcef4f7396cb4978aaceaffb%22&amp;size=1024)](https://spark.adobe.com/page/H2q5L6gDWyVb7/images/ed48a4a7-e74b-441a-a80a-7b261b950095.jpg?asset_id=764cf06a-591d-42f8-a8db-cd7a72020f6c&amp;img_etag=%22a02d1e80fcef4f7396cb4978aaceaffb%22&amp;size=1024)
 
-What happened at the meeting between the US President Biden and Japan’s Prime Minister Yoshihide Suga in the past few days? Both countries have seriously over-issued money, so we can call both countries as big “money printing” countries. Technically this is called QE (quantitative easing). Strictly speaking, QE is nothing but cheating, and it simply means printing money. Both the US and Japan will usher in a period of colossal inflation and hyperinflation.
+**原文翻译：**
 
-这两人的见面，两事儿诞生了。第一个，亚洲的“小池塘”，本来是中共以为自己是老大：我是鳄鱼，“小池塘”里的鳄鱼，美国不别碰。它以为已经完成了，七哥以前说过，完成了，亚洲我是老大，你美国别碰，欧洲别碰，这个小池塘是我说了算。大西洋，这个美国这块儿我给你 negotiation 一下，看看能不能也有我一席之地？现在亚洲的“小池塘”里边儿出了仨鳄鱼：印度、日本，还有中共自己。
+## 彭佩奥：中共国无意兑现其在气候峰会上所作的任何承诺
 
-When the two (Biden and Yoshihide Suga) met, two things happened. First, the CCP used to believe that it is the crocodile (the boss) of the “small pond” (Asia), so the US is not allowed to touch this place. The CCP believed that this was a sure thing already. As I, your Brother Miles told you before, the CCP believes that it has become the “Asian hegemon”. According to the CCP, the US should not interfere, Europe should not interfere, and Asia is exclusively the CCP’s territory. With regards to the Atlantic sphere of interest, the CCP is also trying to convince the US to allow it to share some of the profits there. However, there are now three crocodiles in the “small pond” of Asia: India, Japan, and the CCP.
+**习近平、拜登有望在周四的线上峰会上首次会面**
 
-它以为自己说了算了，但是菅义伟和美国的见面，这一次就证明了亚洲，中共已经说了不算了。日本现在已经平衡做老大。印度肯定不服啊，印度说：那我也是老大，是吧？这仨这是亚洲的“池塘之争”已经开始。
+[!\[\]()!\[\](https://spark.adobe.com/page/H2q5L6gDWyVb7/images/95245000-e457-49ec-ab16-d34c4b5026cd.png?asset_id=d44a2116-ffc2-47fb-80bc-978ed77957c7&amp;img_etag=%22c183ba8e6ab6242358b36ddb7b264a1c%22&amp;size=1024)](https://spark.adobe.com/page/H2q5L6gDWyVb7/images/95245000-e457-49ec-ab16-d34c4b5026cd.png?asset_id=d44a2116-ffc2-47fb-80bc-978ed77957c7&amp;img_etag=%22c183ba8e6ab6242358b36ddb7b264a1c%22&amp;size=1024)迈克·彭佩奥（Mike Pompeo）：没有理由相信中共国会扭转污染情况
 
-The CCP thought that it was already in charge of Asia, but the meeting between Yoshihide Suga and the US proved that the CCP no longer is. Japan has now emerged as the other boss to balance the power in Asia. India may not be convinced though because India thinks it should also be a boss too. So, this means that the battle among the three countries has already begun.
+前国务卿在“今夜福克斯商业”(Fox Business Tonight)节目中讨论了拜登与中共国、俄罗斯和伊朗之间的外交政策挑战。
 
-第二，大家注意到，美国和日本达成了经济上的各种合作，桌子底下的协议，那就是你也印我也印，印钞票。你看这就是共产党已经早前得到了情报，共产党干了什么？最近大量的买进黄金，大量的在国内禁止黄金交易，大量的国企在外面悄悄地买黄金和黄金的一些金矿的股份。我的好朋友两个拥有金矿控股权的，最近以高出几倍的价格把金矿控股权转让给了华字头的海外公司。大家看明白了吧？
+前国务卿迈克·彭佩奥（Mike Pompeo）周三参加了“今夜福克斯商业”节目，讨论了周四由美国主导的气候变化峰会，这将为拜登总统与中共国国家主席习近平进行的首次会晤创造条件。
 
-Secondly, you should notice that the US and Japan have secretly reached agreements under the table to cooperate in economy. That is we can both keep printing money. When the CCP became aware of this, what did they do? The CCP recently started to purchase large amounts of gold and imposed a widespread ban on gold trading among individuals in mainland China. At the same time, many state-owned companies secretly purchased gold and obtained shares of gold mines overseas. Two good friends of mine, who owned controlling stakes in gold mines, recently transferred their stakes to CCP-owned overseas companies at prices several times higher than market price. Do you understand what I mean?
+彭佩奥：我估计我们会听到来自中共的一如既往的一系列承诺，他们绝对无意兑现这些承诺。在过去的几年中，他们已经违背了更多承诺，包括向奥巴马总统承诺，他们不会将南中国海军事化。我们需要看到真实的行动。我不知道习近平明天会确切说些什么，但是美国的安全、美国的繁荣取决于观察中共国方面的实际行动，而不是他们在峰会上说什么或说了他们无意实际执行的一堆空话。
 
-所以说这个时候，你家里存点黄金没有用的，就黄金涨一倍你那么多有啥用啊？你兑现很难，千万不要乱买黄金。黄金根本不是你能买的玩意儿。你真有闲钱闲的怕老鼠咬了你才买点儿黄金，否则你不要去买那玩意儿，没用的。那么这是国家战略的东西，国与国之间。对我们老百姓没用，但是对咱G系列它就管用了，我们20%的钱去买黄金那就管用了，是吧？所以说看到这个大的变化。
+[!\[\]()!\[\](https://spark.adobe.com/page/H2q5L6gDWyVb7/images/34a4f1e3-b1d2-4d6a-a116-641b753fcf1f.jpg?asset_id=f79aea65-2839-4d98-8b3d-82a7d026598e&amp;img_etag=%227d516f1fafd7f2d7fe398492d323f084%22&amp;size=1024)](https://spark.adobe.com/page/H2q5L6gDWyVb7/images/34a4f1e3-b1d2-4d6a-a116-641b753fcf1f.jpg?asset_id=f79aea65-2839-4d98-8b3d-82a7d026598e&amp;img_etag=%227d516f1fafd7f2d7fe398492d323f084%22&amp;size=1024)
 
-But remember it is useless for you to keep gold at home. Even if the price of gold doubles, you won’t benefit from it. So what is the use, right? Besides, it is very inconvenient to exchange gold back into cash. So, I would not recommend that individuals buy gold because gold is not an investment asset for ordinary people. Only if you have large amounts of idle cash would it make sense to buy gold. Otherwise, don’t do it. It is useless. Gold is a strategic asset for countries to trade, not for ordinary people. But it is useful for our G-Series. We use 20% of our G-Coin money to buy gold, and that will work for our purpose. Right? You need be aware of this important global trend.
+**“滑稽”的贸易协议**
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/607ae5bf8616c84f0ff059a0](https://gtv.org/getter/607ae5bf8616c84f0ff059a0) (0:11-3:19)
-鸣谢：
-[1] 感谢彩虹桥提供中文文本于 [https://www.gnews.org/zh-hans/1111248/](https://www.gnews.org/zh-hans/1111248/)
-[2] 感谢 Antsee-GTV、Liberte、TING GUO 提供英文文本于 [https://gnews.org/1118602/](https://gnews.org/1118602/)
+我们[川普政府]谨慎地做的一件事是，我们没有做出承诺，没有提出我们不准备执行或兑现的威胁。我们谨慎说话，大胆做事。我希望这届政府不要将其反过来。一旦这些对手发现我们做出并不准备履行的承诺时，他们就会抓住这一弱点肆意践踏。绥靖政策只会引起战争，而实力来自于具有威慑的能力，让各国理解到，当领导人讲话时，他们的意思就是他们所说的话。我希望中国共产党将扭转其污染趋势，但是没有理由相信事实确实如此。
 
-* * *
+我已经看到他们[拜登政府]带着曾经安抚过伊朗并给了他们价值数十亿美元财富的同班人马去了维也纳，他们可以用这些财富来支付给真主党，煽动恐怖活动并建立他们的核计划。我们[川普政府]采取了相反的方法。我们拒绝了他们要求的资助。他们被迫将士兵的薪水减半，他们被迫就如何在全球范围内执行他们的使命做出艰难的抉择。伊朗人了解实力，他们在看到实力时总是屈从于实力。如果我们回到谈判桌前，再次给他们一条通往核武器的途径，那只会意味着美国人民的安全性降低，而我们在该地区盟友的安全性也会降低。
 
-*字幕：【JennyL】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】*
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+🔗[原文链接](https://www.foxnews.com/politics/mike-pompeo-us-china-climate-summit-biden-xi-iran)
 
-+4
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/H2q5L6gDWyVb7/images/2a9217f7-1549-446e-bf57-9fb29741160d.jpg?asset_id=c85755a7-ef39-495d-b9c1-33549723da36&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/H2q5L6gDWyVb7/images/2a9217f7-1549-446e-bf57-9fb29741160d.jpg?asset_id=c85755a7-ef39-495d-b9c1-33549723da36&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+
+
+
++2

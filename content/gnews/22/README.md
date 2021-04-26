@@ -1,37 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【时事解析】日本正式讨论台湾突发事态相关法律运用
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1139780/)
+## 将疫苗用显微镜放大似乎可以显示活体细胞
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1140431/)
 
-作者：休斯顿星光农场 写作部 文顺
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-03-25-230524-1.jpg)
-据共同社4月25日报道，日本政府多名相关人士透露，当局开始正式讨论台湾海峡出现突发事态时的自卫队活动相关法律运用。
+- 作者：The-world
 
-报道称，在日本首相菅义伟和美国总统拜登的首脑会谈上，台湾局势成为了主要议题。会议对基本安全保障相关法的“重要影响事态”、“存亡危机事态”、日本遭受直接攻击的“武力攻击事态”各种状况及自卫队的作用进行梳理，力图加强必要的防卫能力。实际适用则计划顾及到中共国、谨慎判断。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-04-26-010524.jpg)
-*图片来源：路透社*
 
-据报道，相关人士透露，在日美首脑时隔近半个世纪再次提及“台湾”的联合声明中，根据菅义伟的主张，追加了敦促和平解决的措辞。会谈中，日方还表达了台湾突发事态可能相当于重要影响事态或存亡危机事态的看法。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-据法广25日报道，一位在野党议员询问日本是否会在军事上卷入台海问题，以符合美国对抗中共大陆的军事战略？菅义伟对此回应说，美日声明提到台湾“并不以军事介入为前提”。另一位在野党议员称，联合声明中“和平解决两岸问题”的呼吁可能会改变局势。菅义伟表示，日本希望围绕台湾问题能通过有关各方直接对话，和平解决。对于有关台海发生冲突的假设，当被问到“‘无论事态如何日本都能为美军提供后方支援’中的‘事态’，是否指的是有重要影响的事态”时，菅义伟没有直接给出回答，仅表示这“难以一概而论”。
+**西班牙2021年4月26日电/西喜社——**
 
-此前，中共政府在2月施行的新《海警法》保护下，先后7次频繁派遣船只进入钓鱼岛（日本称为尖阁诸岛）海域，日本政府认为此海域增加了军事冲突的风险，表示会考虑制定部署自卫队的新规则，来制衡中共在东海的挑衅行为。
+辉瑞公司COVID-19疫苗的实验室录像显示，困惑的德国科学家在显微镜下争论他们到底观察到了什么。在显微镜下本应观察到病毒颗粒，可是德国的科学家认为他们可能观测到了不同于病毒的细胞活体。
 
-种种迹象表明，随着中共扩张的野心日益膨胀，日本政府努力寻求突破二战后的种种限制，得到了美国的支持，并将在日后维护亚太地区和平中扮演重要角色。
+一位科学家说：“我不清楚我们在这里看到了什么。”
 
-链接：
+“那么，这就是辉瑞疫苗的内在？”一位同事问。
 
-[日本政府正式讨论台湾突发事态相关法律运用 (kyodonews.net)](https://china.kyodonews.net/news/2021/04/95c2e1f946f1.html)
+他回答说：“这是从辉瑞公司那里来的。”他又补充说，所有漂浮的小点都是带有核的细胞，这使他想知道它们的作用是什么。
 
-[日政府据报正式讨论台湾突发事态相关法律运用 (rfi.fr)](https://www.rfi.fr/cn/%E4%BA%9A%E6%B4%B2/20210425-%E6%97%A5%E6%9C%AC%E6%94%BF%E5%BA%9C%E6%8D%AE%E6%8A%A5%E6%AD%A3%E5%BC%8F%E8%AE%A8%E8%AE%BA%E5%8F%B0%E6%B9%BE%E7%AA%81%E5%8F%91%E4%BA%8B%E6%80%81%E7%9B%B8%E5%85%B3%E6%B3%95%E5%BE%8B%E8%BF%90%E7%94%A8)
+“哇，但是你不知道那是什么吗？”同事问。
 
-[【时事解析】东海又起风云，日本部署钓鱼岛法案 – GNEWS](https://gnews.org/zh-hans/1048994/)
+他说：“不，这可能是Morgellon。”这是指美国国立卫生研究院（National Institute of Health）所称的“一种皮肤病，其特征是存在着位于皮肤下方，嵌入其中或从皮肤突出的多色细丝”。由此可认为皮肤已被昆虫和其他物体（如细绳）感染。
 
-編輯/校對/發稿：Helen
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-2-10.jpg)
 
-更多資訊，歡迎點擊[休斯頓星光農場官方推特賬號](https://twitter.com/HLitstar?s=20)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-3-13.jpg)
 
-更多節目資訊，歡迎進入[休斯頓星光GTV官方鏈接](https://gtv.org/user/6031a8c0047c4c3086d7683f)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-03-25-230524-1.jpg)
-+1
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-4-18.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-5-8.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-6-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-8-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-9-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-10-4.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-11-3.jpg)
+
+配图：The-world；审核：Ranting；校对：信心的选择；发稿：信心的选择
+
+新闻来源：[https://banned.video/watch?id=6084834cb7625f0944bd46a0](https://banned.video/watch?id=6084834cb7625f0944bd46a0)
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+
++5
