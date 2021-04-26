@@ -1,36 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻简评】中共为何不报道赵婷获得奥斯卡最佳导演
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1140537/)
+## 【有声读物】 运动员有充分的理由提防习近平的北京冬季奥运会
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1140662/)
 
-作者：喜马拉雅东京樱花团 / 待命（文晓）
+配音：香草山录音组 蒙古鸿雁
 
-![](https://lh4.googleusercontent.com/QhBAmSnHrid85reK9dtuGGTXpQnN2mTZGNHj-hFm2_QrgGf5r6xjez6nlPQ_xHnb370xIA_m4a-lhXvD3Aua82KlRL0DAjZkb3k2KOY1OMvRhp7hvorlWfQUOVUST5f-Noe1QO2r)
-[图片来源](https://www.abc.net.au/chinese/2021-04-26/news-briefing-4-26/100094946)
-
-4月26日，日本雅虎网站登出朝日新闻电子版的署名为【ジャオ氏に監督賞、中国で速報せず　過去の発言影響か】的文章。意为赵婷获得导演奖，中国没有报道。也许是因为她过去发表的言论。
-
-文章指出，中国的赵婷导演的《无依之地》获得美国奥斯卡奖的最高荣誉——最佳影片奖，赵婷还获得了最佳导演奖。但是，截至26日中午，中共国主流媒体还没有报道。赵婷曾经有过批评中共的言论，被质疑缺乏爱国主义精神，这可能是不被报道的原因。
-
-2月底，在赵婷获得被视为奥斯卡奖前奏曲的金球奖最佳影片和最佳导演奖时，中共的官方报纸《人民日报》电子版的报道称她是“史上第二女导演”。当时，中文版微博上也盛赞该作品“精彩”，还说“自由是创作优秀作品的源泉”。可是，进入3月，赵婷在2013年的一次采访中的批评言论被曝光，她在采访中说：“我10几岁的时候，中国到处都是谎言。”于是，媒体上话锋急转，说她对祖国的忠诚度不够。所以，尽管赵婷成为第一位获得奥斯卡最佳导演奖的亚洲女性，尽管这是中国人莫大的骄傲，可中共国营中央电视台的数字版，其前三条仍只能看到习近平主席视察访问的内容。
-
-《无依之地》本应于4月23日在中国发行，但至今仍未放映。在微博上，仍然可以通过搜索导演的名字查找到。在影片获得最佳导演奖之前，有批评赵婷的评论，同时也有一些积极的评论，如“没有必要禁止放映该片”和“期待该片获得奥斯卡奖”。另外，获得今年奥斯卡提名的还有纪录短片《不割席》，该片描述了2019年参加香港大规模民主街头示威活动的年轻人。然而，香港约50年来首次，没有播放奥斯卡颁奖典礼。
-
-据美国彭博新闻社报道，香港无线电视台解释说这是出于“纯粹的商业原因”。可是，中共宣传部已经向媒体发出通知，禁止直播颁奖典礼或报道有争议的内容。TVB拥有中国资本，其管理团队也受到亲华派的影响。 据信，这是在遵循中国当局的政策。
-
-在中共国，只要被扣上不爱国的帽子，再大本事都无济于事，不仅不能成为荣耀，不把你打倒、让你活着就算是幸运的了。所以，中共国养不住人才。所以，中共国人民连马桶盖都要从日本背回去。
-
-[信息来源](https://news.yahoo.co.jp/articles/6ce6e19198f23eac4dbad99d2e740cbb58b3a4ed)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
 
-*校对：喜马拉雅东京樱花团 / 東洋武士*
-*责任编辑：喜马拉雅东京樱花团 / 文小白*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews.org/wp-content/uploads/2021/04/二维码-2.jpg)
-0426C122b
 
-+2
+
+
+2021年4月18日New York Post（纽约邮报）发表了文章：《Althletes have good reason to beware Xi Jinping’s Beijing Winter Olympics》. 文章内容犀利，直言不讳地揭露了北京冬奥会背后中共的布局，同时也呼吁抵制北京冬奥会，为运动员寻求一个安全的地方进行比赛。
+
+当前国际形势下，越来越多的人呼吁抵制北京2022年冬季奥运会，或者呼吁将比赛地点转移到其他国家。不难看出，这种呼吁是充分考虑到了中共国在印太地区的侵略行为，侵犯人权的行为和对香港法治的碾压——更不用说北京政权对病毒（COVID-19）大流行的双重处理了。
+
+
+
+**文字版原文：[【热点播报】 运动员有充分的理由提防习近平的北京冬季奥运会](https://gnews.org/zh-hans/1124333/)**
+
+作者：纽约香草山写作4组 兰兰
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++1

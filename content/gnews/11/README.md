@@ -1,46 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】 运动员有充分的理由提防习近平的北京冬季奥运会
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1140662/)
+## 《文贵说》| 图片连载（七十六）
+` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/1080262/)
 
-配音：香草山录音组 蒙古鸿雁
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2020-10-14V2__1.jpg)
+**台湾2300万人一定会得到上天的万佛万神的庇佑，一定会成为新中国联邦干倒共产党最关键的堡垒。**
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+**—— 郭文贵先生 2020年8月29日**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2020-10-14__1.jpg)
+**台湾人信佛、信儒家，而且是中国文化善良一面的最美好保留的地方！**
+
+**—— 郭文贵先生 2020年8月29日**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/SPOILER_2020-10-16__1.jpg)
+**在前世和来生之间，在这世我认为最重要，为啥我觉得万佛万神，基督教也好，穆斯林也好，天主教也好，佛教，最后都是一个以善为本。**
+
+**—— 郭文贵先生 2020年8月29日**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2ac2055bcd4c1347.png)
+**我们所有的山川已经全被毁了，关键是人心被毁了。要想恢复人心，只有教育，只有信仰！**
+
+**—— 郭文贵先生 2020年8月29日**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/s45.jpg)
+**兄弟姐妹们，一定要记住，只有我们，而且必须是我们，一定会是我们，TAKE DOWN CCP！**
+
+**—— 郭文贵先生 2020年8月29日**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/s46.jpg)
+**让大家认识到我们，留下痕迹，就像今天你们站在大街上，这叫痕迹，这叫事实。**
+
+**—— 郭文贵先生 2020年8月29日**
 
 
 
+- [***更多精美海报请点击G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4)
 
-
-
-
-2021年4月18日New York Post（纽约邮报）发表了文章：《Althletes have good reason to beware Xi Jinping’s Beijing Winter Olympics》. 文章内容犀利，直言不讳地揭露了北京冬奥会背后中共的布局，同时也呼吁抵制北京冬奥会，为运动员寻求一个安全的地方进行比赛。
-
-当前国际形势下，越来越多的人呼吁抵制北京2022年冬季奥运会，或者呼吁将比赛地点转移到其他国家。不难看出，这种呼吁是充分考虑到了中共国在印太地区的侵略行为，侵犯人权的行为和对香港法治的碾压——更不用说北京政权对病毒（COVID-19）大流行的双重处理了。
-
-
-
-**文字版原文：[【热点播报】 运动员有充分的理由提防习近平的北京冬季奥运会](https://gnews.org/zh-hans/1124333/)**
-
-作者：纽约香草山写作4组 兰兰
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 +1

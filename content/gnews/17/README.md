@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】这个秋天
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1140619/)
+## 【有声读物】英国国会定性中共对维吾尔族“种族灭绝”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1140678/)
 
-配音：香草山录音组 Gtv abeilles（蜜蜂）
+配音：香草山录音组 蒙古鸿雁
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -14,21 +14,20 @@
 
 
 
-我与这座城市并无瓜葛
+爆料革命创始人郭文贵先生在2019年曾预言，中共政权的以黑治国、以警治国，以及对全世界“蓝金黄”、制造中共病毒的一切疯狂行为，最终将会导致世界各国形成自动灭共和争相灭共的大潮。
 
-我与这个秋天也无瓜葛
-
-只是，你看不到的另一面
+在最近香港司法对反送中示威者、47人案、蔡玉玲案等等作出一系列荒唐的判决之后，英国国会23日一致通过一项决议，将中国在新疆对维吾尔族的侵犯人权行为定性为「种族灭绝 (genocide)」。发起动议的 Nusrat Ghani 是早前被中国制裁的议员之一，她形容中国尝试透过制裁令英国国会噤声，结果却遭反弹 (backfired)。
 
 
 
-**文字版原文：[这个秋天](https://gnews.org/zh-hans/459164/)**
+**文字版原文：[【圣城传声筒】英国国会定性中共对维吾尔族“种族灭绝”](https://gnews.org/zh-hans/1131952/)**
 
-作者：纽约香草山写作组  木白
+作者：纽约香草山写作组 圣城传声筒
 
 
 
-音频处理/发稿：雪梨
+音频处理：喜山必胜Maverick
+发稿：雪梨
 
 ![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
@@ -44,4 +43,4 @@
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-0
++1

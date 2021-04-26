@@ -1,50 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 将疫苗用显微镜放大似乎可以显示活体细胞
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1140431/)
+## 【有声读物】呐喊
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1140651/)
 
-- 作者：The-world
+配音：香草山录音组 Swr拥抱太阳
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年4月26日电/西喜社——**
 
-辉瑞公司COVID-19疫苗的实验室录像显示，困惑的德国科学家在显微镜下争论他们到底观察到了什么。在显微镜下本应观察到病毒颗粒，可是德国的科学家认为他们可能观测到了不同于病毒的细胞活体。
 
-一位科学家说：“我不清楚我们在这里看到了什么。”
+大风把我灌醉
 
-“那么，这就是辉瑞疫苗的内在？”一位同事问。
+树叶在天上跺脚
 
-他回答说：“这是从辉瑞公司那里来的。”他又补充说，所有漂浮的小点都是带有核的细胞，这使他想知道它们的作用是什么。
+我想呐喊
 
-“哇，但是你不知道那是什么吗？”同事问。
+泉水却在身边小声地流
 
-他说：“不，这可能是Morgellon。”这是指美国国立卫生研究院（National Institute of Health）所称的“一种皮肤病，其特征是存在着位于皮肤下方，嵌入其中或从皮肤突出的多色细丝”。由此可认为皮肤已被昆虫和其他物体（如细绳）感染。
+把沉默交给落叶
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-2-10.jpg)
+随风而去
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-3-13.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-4-18.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-5-8.jpg)
+**文字版原文：[【香草诗词汇】呐喊](https://gnews.org/zh-hans/584501/)**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-6-5.jpg)
+作者：香草山写作组 木白
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-8-5.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-9-5.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-10-4.jpg)
+音频处理/发稿：雪梨
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-11-3.jpg)
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
-配图：The-world；审核：Ranting；校对：信心的选择；发稿：信心的选择
+**更多资讯，更多关注**
 
-新闻来源：[https://banned.video/watch?id=6084834cb7625f0944bd46a0](https://banned.video/watch?id=6084834cb7625f0944bd46a0)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-+5
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

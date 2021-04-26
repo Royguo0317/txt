@@ -1,32 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻简评】中共国驻大阪总领事已离岗约六个月
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1140523/)
+## 【有声读物】空山行
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1140657/)
 
-作者：喜马拉雅东京樱花团 / 待命（文晓）
+配音：香草山录音组 Swr拥抱太阳
 
-![](https://lh5.googleusercontent.com/StM13qC-1rXTZVQKfDJP4kaaP9FbMHNFNVsi8CoOeNZnZCPzfjNR25jI1hgP3di3AEGW4uvfm8ekqfyKaKpVoLRvGwzPvf8ssPvQmbgfFlPnIE5xmv2jIzwT7iQgqkyGf_zj2RlM)
-[图片来源](https://news.yahoo.co.jp/articles/b07045db46a82295f91834d3fda2ea5e52f40775?page=1)
-
-4月26日，日本雅虎网站上看到一则《每日新潮》的署名【中国駐大阪総領事館のトップが約半年不在　華僑社会でささやかれる“身柄拘束”説】的文章。大意为：中国驻大阪总领事已离岗约6个月了，华人社会中传说他已被拘留。
-
-该篇报道中说：针对大阪领事馆的总领事已不在岗一事，领事馆没给出任何解释。记者通过采访在日华侨得知，总领事说是临时回国，已于去年秋季离开，但至今仍未返回他在大阪领事馆的工作岗位。中国驻大阪总领事馆管辖着近畿、中国和四国地区的12个县，系仅次于中国驻东京大使馆的日本最大的领馆，但此事至今仍未向居住在日本的华侨披露，一些领事业务开始受阻，导致人们猜测总领事可能陷入了权力斗争而“被拘留”。
-
-根据驻大阪总领馆公布的消息，何总领事出生于1967年11月，现年53岁，拥有法学硕士学位。他是在日本驻东京大使馆工作并在北京外交部总部亚洲局处理日本废弃化学武器问题办公室任职后，于2016年至2019年担任驻福冈总领事，并于2020年2月被任命为驻大阪总领事。
-
-对此，但凡关心政治新闻，且信息源准确的华人，都不会感到震惊。因为在中共统治下的墙国，这很正常。别说是驻外领事，就是国际刑警组织的主席，又能怎么样，孟宏伟前主席不也是说调回去就调回去，说消失就消失，说判刑就判刑嘛。现任国家副主席王岐山的马仔们又能怎么样，不是说逮起来就逮起来嘛。我之所以用“逮”这个字来形容，这都是跟随爆料革命四年才得出的经验。因为中共抓人是不需要什么法律依据的，抓起来后的处理也是捉摸不定的，没有依据的抓捕，你说是拘留？是逮捕？是扣押？是让你消失？还是让你脚痛死？反正笔者是说不准。所以，还是暂且用“逮”比较合适。
-
-其实，今天浏览日本雅虎网站，本来是想找找4月24日东京新宿站南口的日本方舟农场主办的演讲集会相关报道。结果，根本没找到，却偶然发现了这则报道。可见，日本现在还是不敢报道新中国联邦，或者还觉得不是开始报道的时候。4月24日的演讲集会，笔者就在现场，有日本警视厅在场护卫，还有日本人参加演讲，活动宣传影响很大，很多日本人为之驻足。这么大的事儿，一向消息灵通的日本媒体怎么可能不知道。然而，领事馆的总领事离岗这类在我们这儿已司空见惯的事儿却被报道出来了。看来，对新中国联邦这个名字，日本仍持谨慎态度。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
 
-*校对：喜马拉雅东京樱花团 / 東洋武士
-责任编辑：喜马拉雅东京樱花团 / 文小白
-发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews.org/wp-content/uploads/2021/04/二维码-2.jpg)
-0426C121b
 
-+2
+风吹落树叶上的雨滴和红叶
+
+森林消失于念念回响的行走
+
+亿万草木，我是你们的一员
+
+光的轮廓，是我看到的树影
+
+
+
+**文字版原文：[【香草诗词汇】空山行](https://gnews.org/zh-hans/583600/)**
+
+作者：香草山写作组 木白
+
+
+
+音频处理/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++1
