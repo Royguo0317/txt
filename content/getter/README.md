@@ -17,9 +17,9 @@
 **郭文贵MILES** `2021-02-21T15:56:09`
 ##
 
-[4月25日：乖乖呀……【￼https://www.politico.eu/article/eu-china-biden-economy-climate-euro...](/content/getter/content/2021/04/6086323911a7ed500e98e62c.md)
+[4月25日我得乖乖呀，今天上午刚直播完，现在就来了。￼【https://www.politico.eu/article/eu-china-biden-econo...](/content/getter/content/2021/04/608633f611a7ed500e98e6c8.md)
 
-**郭文贵MILES** `2021-04-26T03:23:37`
+**郭文贵MILES** `2021-04-26T03:31:02`
 ##
 
 [4月25日：应战友们的要求．发一段SNOW的视频，🙏🙏🙏🙏🙏🙏🙏](/content/getter/content/2021/04/608586c911a7ed500e989dfb.md)
