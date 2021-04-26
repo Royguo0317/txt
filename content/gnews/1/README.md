@@ -1,46 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】亚利桑那州选举工作人员在马里科帕县选票上进行紫外线选票测试
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1138894/)
+## 【重磅新闻】武汉P4实验室的中共军方背景首次进入主流媒体视野
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1140120/)
 
-翻译：洛杉矶天使农场 –  烟波浩淼
-校对：洛杉矶天使农场 – Arthur
-审核：洛杉矶天使农场 – 断播
-![]()![](https://gnews.org/wp-content/uploads/2021/04/ballot-ultraviolet.jpg)图片来自视频截图
-亚利桑那州的司法审计今天在凤凰城市中心的退伍军人纪念体育馆继续进行。
+**作者：**休斯顿星光农场 写作部 文顺
+![]()![](https://gnews.org/wp-content/uploads/2021/04/GNEW-GTV-MOS-LOGO-2.jpg)
+**4月26日，英国《每日邮报》揭露武汉P4实验室研究人员代表中共军方研究动物病毒，中共武汉实验室首次进入主流媒体视野。**
 
-几个月来，在亚利桑那州的马里科帕县监事会一直抱怨要求对这个大而重要的县的选票进行司法审查。董事会成员声称一切正常，但他们不允许任何人接近他们的结果。选举结束后，他们花了几周时间捣鼓选票，然后才正式得出选举结果。
+据英国《每日邮报》周日报道，他们获得的新文件显示，武汉P4病实验室的研究人员在过去9年里一直代表中共军方研究包括蝙蝠在内的动物病毒。此前，中共军方否认了将他们与武汉实验室联系起来的指控。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-04-26-024320.jpg)
+*图片来源：Daily Mail*
 
-但是，尽管他们尽了最大努力来阻止对马里科帕县的选举结果进行审计，司法审计今天在退伍军人纪念体育馆进行。
+该文件详细介绍了一个名为 “发现野生动物携带的动物病原体 “的重大项目，该项目旨在寻找可能感染人类的生物体并研究其进化，并试图发现新的病毒并检测参与传播疾病的生物学的”暗物质”。
 
-AZAudit.org网站从9个不同角度对审计进行了直播。
+该项目于2012年启动，由中共国家自然科学基金资助，徐建国领导。徐建国在2019年的一次会议上吹嘘说：“一个巨大的传染病预防和控制网络正在形成。”该项目的五位小组长包括绰号为”蝙蝠女”的中共武汉病毒学研究所（WIV）病毒学家石正丽（Shi Zhengli）和高级军官、中共政府生物反恐顾问曹务春。
 
-正如我们之前所报道的–发明家兼数据分析师乔凡·哈顿·普利策（Jovan Hutton Pulitzer）有一个流程和围绕这个流程的专利，他可以根据使用的纸张、纸张上的折痕、表格上的墨水和其他特征来识别欺诈性选票。普利策可以识别欺诈性选票，这将最终导致2020年选举的准确结果，届时只有有效的选票被计算在内。
+虽然石正丽否认了美国关于武汉病毒学研究所（WIV）与中共210万武装部队之间合作的指控，但是曹务春上校作为中共人民解放军军事医学科学院的研究员被列入项目报告。他与其他军事科学家密切合作，并担任军事生物安全专家委员会主任。曹上校甚至担任武汉病毒学研究所的顾问委员会成员，是中共国家顶级生物防御专家陈薇少将率领的军事小组的二把手。
 
-**周六，体育馆的摄像头拍到选举工作人员在紫外线下逐个扫描选票的画面。**
+近年来，中共军方加大了对科学家的招聘力度，此前习近平表示，这是中共迈向全球霸主地位的关键因素。
 
-**看来选举工作人员正在对选票进行真正的司法测试。**
+曾为中共政府工作的持不同政见者韩连潮（音译）表示，曹务春的介入令人怀疑，作为冠状病毒专家的军事研究人员也可能参与生物防御行动。他还说：“多年来，许多人一直在与西方研究机构合作，窃取我们的技术，但在此次大流行造成300多万人死亡一年后，中共仍拒绝分享关键信息。”
 
+领导国务院调查中共武汉病毒起源的生物、化学和核扩散专家大卫·阿舍（David Asher）表示：”中共已经明确表示，他们视生物技术为混合战争未来的重要组成部分。最大的问题是，他们在这些领域的工作是进攻还是防御。”
 
+这是主流媒体自病毒爆发以来首次正面报道中共军方参与制造武汉病毒，One America主持人杰克·波索比奇在推特评论说：“主流媒体终于发现了武汉。”
 
-> ARIZONA AUDIT UPDATE: Maricopa County looks to be searching for special watermarks on the ballots [pic.twitter.com/XU4ZxzvlbK](https://t.co/XU4ZxzvlbK)
-> — “Mostly Peaceful” Matthew (@MostPeacefulOne) [April 24, 2021](https://twitter.com/MostPeacefulOne/status/1386024028888989701?ref_src=twsrc%5Etfw)
+信息来源：
 
+[How scientists at Wuhan lab helped Chinese army in secret project to find animal viruses | Daily Mail Online](https://www.dailymail.co.uk/news/article-9507749/How-scientists-Wuhan-lab-helped-Chinese-army-secret-project-animal-viruses.html)
 
-*“最和平”马修 @MostPeacefulOne*
-*亚利桑那州审计更新：马里科帕县似乎正在寻找选票上的特殊水印*
-2021年*4月24下午1：27*
-12月，乔凡·哈顿·普利策在 “经济作战室 “发表演讲，介绍了他和他的公司如何通过简单易行的物理选票检查，通过旨在检测选票物理签名的司法审查机来检测多种类型的选举欺诈。
+編輯/校對/發稿：Helen
 
-普利策是一位拥有200多项专利的模式识别专家。他的专利在全世界120亿台手持设备上使用。
+更多資訊，歡迎點擊[休斯頓星光農場官方推特賬號](https://twitter.com/HLitstar?s=20)
 
-在演讲中普利策描述了如何在预定的光源下扫描缺席选票，将显示选票是真的还是假的。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/kinematic-folds-ultraviolet-light-.jpg)
-如果缺席的选票不包括明显的折痕，这显然是一张欺诈性选票。
-
-原文作者：吉姆·霍夫特（Jim Hoft）
-发布时间：2021年4月24日
-原文链接：[https://www.thegatewaypundit.com/2021/04/breaking-happening-arizona-election-workers-running-ultra-violet-ballot-testing-maricopa-ballots-video/](https://www.thegatewaypundit.com/2021/04/breaking-happening-arizona-election-workers-running-ultra-violet-ballot-testing-maricopa-ballots-video/)
-
+更多節目資訊，歡迎進入[休斯頓星光GTV官方鏈接](https://gtv.org/user/6031a8c0047c4c3086d7683f)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-03-25-230524-1.jpg)
 0

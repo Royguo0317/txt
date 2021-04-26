@@ -1,47 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104025（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1137984/)
+## 【热点播报】印度疫情创纪录增长，美国对印度提供援助
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1139096/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+作者：纽约香草山健身部 Jack Li文阳
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01-16.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02-17.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03-16.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-18.jpg)
+白宫发言人4月25日表示，美国对印度新冠病毒病例激增深表关注，并将努力给印度政府和医护人员更多支持。美国和印度是对抗病毒的战略盟友，正致力于应对冠状病毒感染的创纪录增长。但在疫情方面，华盛顿承受着越来越大的压力，被要求做更多的事情来帮助印度。星期五，美国商会呼吁拜登政府释放数百万剂储存的阿斯利康疫苗，帮助印度等受灾国家。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05-16.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-463.png)图片来源：路透社
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06-14-scaled.jpg)
+印度新增新冠确诊病例数字创纪录地达到最高水平的349,691人。印度卫生部周日表示，全国共计有1696万例新冠病例，已有192,311人死亡。一个拥有13亿人口的国家正面临人道主义的灾难，专家估计，真实数字可能是该水平的五至十倍。印度政府方面已经部署了军用飞机和火车来运输急需的来自国外支援的氧气。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07-14.jpg)
+印度驻美国华盛顿大使馆发言人告诉路透社，两国官员都在积极参与，以确保美国公司在印度生产疫苗的原材料能稳定供应。他说，重要的是要共同努力，找出并克服医疗供应链的瓶颈，以及加速正在进行的疫苗接种工作。拜登政府还被敦促与印度和其他处于危机中的国家共享多余的疫苗。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08-14.jpg)
+白宫新闻秘书简·巴萨基周五表示，美国和印度官员正在努力寻找解决危机的方法。美国已经向印度提供了将近14亿美元的医疗援助和紧急救援物资，并为印度的州和地方卫生官员提供培训。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09-14.jpg)
+作为人口大国的印度，其正经历着一场前所未有的人道灾难。印度连续四天刷新世界单日新冠感染纪录，每三天就有近百万人感染，医疗系统面临崩溃。印度是羟氯喹的生产大国，却抱着特效药不用。有良知的医生、科学家应该要站出来，大声疾呼，大力推广羟氯喹预防和治疗中共病毒的效用。但愿上天庇佑，印度政府和人民能平稳地度过难关。在病毒问题上，没有政治视野，只能是被动挨打。要消灭病毒，拯救人类，只有追根溯源，彻查病毒来源真相。文贵先生已经说了：找中共，要解药。不干倒中共，人类不会得到安宁和平。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-21-scaled.jpg)
+参考阅读：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-25.jpg)
+[随着COVID-19案件激增，美国正竞相向印度提供援助](https://www.eddiba.com/%E9%9A%8F%E7%9D%80covid-19%E6%A1%88%E4%BB%B6%E6%BF%80%E5%A2%9E%EF%BC%8C%E7%BE%8E%E5%9B%BD%E6%AD%A3%E7%AB%9E%E7%9B%B8%E5%90%91%E5%8D%B0%E5%BA%A6%E6%8F%90%E4%BE%9B%E6%8F%B4%E5%8A%A9/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-19.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-17.jpg)
+编辑/校对/发稿：Irene木木
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-17.jpg)
+**更多资讯，更多关注**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-14.jpg)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-本文仅代表作者观点
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-发稿：Ranting
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-0
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
+
+
++2
