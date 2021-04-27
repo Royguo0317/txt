@@ -1,78 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭爆料串珠（238）所有的疫苗都是假的！中共有解药，想要解药必灭共
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1141906/)
+## 班农先生连线费莱明博士谈CCP病毒
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1142027/)
 
-**简述：兄弟姐妹们，今天给你们爆个大料。共产党的病毒毋庸置疑是共产党的生化武器，对吧？七哥一再说，永远不可能有疫苗，所有的疫苗都是假的，因为他们根本没闹清楚(病毒)，这个病毒是生化武器，还是来自自然。你怎么可能有疫苗？人类上从(来)没有在短短的六十天或六个月生产出任何一个疫苗。(既然)没有疫苗，(那)就是有没有解药。
-现在答案是，科学家、还有国内的情报、在欧洲的那位朋友明确地告诉我们：共产党有解药！
-疫苗是假的，是害人的。谁让别人打，谁强迫打，谁是犯罪，谁是谋杀。但共产党有解药，Cure、Cure、Cure！解药是什么？(说明)共产党掌握着人类的命运。
-所以昨天我正式地告诉某些人，我说：如果你相信我，我拿我的生命向你们保证，你们想活下去，找共产党要解药。(中共)在制造这个武器的时候，它就制造出了解药，而不要(找中共)要疫苗。
-他们如梦大醒，啊，哦，明白了！明白了，Miles，明白啦！
-没疫苗，永远不会有疫苗，因为它是生化武器！有解药，(去找)共产党！这就是真相！
-七哥今天爆的大料：要想活着，去找共产党要解药！要解药！要解药！
-我不是说挑拨离间，不是胡说八道，我愿意(对我说的)承担一切责任。共产党有解药！共产党有解药！要想活下去，找共产党要Cure、Cure、Cure！永远不可能有疫苗，记住我今天说的话啊！
-共产党有解药，我得到了100%(准确)的情报。——郭文贵2021年4月21日**
+整理：圆成翻译组
 
-**连我本人我就在48小时以前我从来没想过这个世界上会有解药，我通过各种内部参与爆料的人都给我一句话不可能有疫苗，因为这是人造的生化病毒，怎么可能有疫苗呢？这是个基本常识，而且它每刻都在变异中，直到他告诉我说，文贵我可以告诉你，没那么悲观只要西方世界有正义的力量和正义的良知的人，这个世界是有解药的，我当时就傻了，我说你在开什么玩笑、怎么可能，生化病毒怎么有解药，他说生化病毒只要是研究者当初把它当成病毒了，它就有解药，然后跟我讲了这个过程，我傻了。
-……
-这个解药最后是拿解药的人最后你一定记住，想要解药的人一定把拿解药的人弄死，这就是七哥在爆料一出、开始的时候就说过叫人尸丸，看看那江湖上那个什么任老妖弄的、泡的人尸丸，是吧？东邪西毒，吃下去，用人尸体做的人尸丸，吃了以后你想再活那就继续吃我人尸丸，你必须听我的，这就是世界的人尸丸，你咋弄啊？——郭文贵2021年4月22日**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-13-135.jpg)
-封面图文：最后，想要解药的人一定把拿解药的人弄死！郭文贵2021年4月22日
+**13/04/2021**
 
-2021年3月14日
-在今年春节前，梦见八弟手里拿着一个药葫芦。感觉到是八弟暗示我以毒灭共，解药就是以毒灭共，药就是治病的，病就是方法。解决这个病的方法就是药，药的方法就是毒，所以我才诞生出来，今年核心以毒灭共。
+**Steve Bannon: **Want to go to Dr. Richard Fleming. Dr Fleming, real quick can you give, just a quick your expertise in this area before we start going down a line of question?
 
-2020年4月17日
-郭文贵在GTV上发出如下两条盖特短文，向美国情报机构发出如下警告：
-“亲爱的情报局长：
-我认为美国的病毒感染情况可能会更加严重。仅是隔离措施无法保障生命！根据许多情报，包括我们的专家提供的情报，在美国和欧洲的病毒有来源。通常，第一次感染病毒后并没有感觉明显症状。三次传播之后病毒强度会减弱。然而在美国，情况刚好相反，病人从最初的感染开始症状就十分严重，特别是那些被无症状感染者传染的病人。
-我认为感染的人应该是中共设计的用以将病毒专门传播到西方的手段。他们称呼这些人为超级传播者。他们可能在美国，在欧洲，继续传播冠状病毒，且来无影去无踪。他们是最根本的病毒来源。不可能找到解药。美国和西方世界也会因此付出巨大代价。只有迫使中共公开所有信息，说出整个事实真相，屠杀世界的病毒才能被制止。我希望美国这次会重视情报。不要再出现自杀式的失误。这才是最根本的解决之道。
-以上文字仅代表文贵本人。”
+**史蒂夫·班农**：我要连线理查德**·**费莱明博士. 费莱明博士您能在我们开始提问前快速地谈谈您在这一领域的专业技能吗？
 
-2021年4月21日重磅爆料：中共有病毒解药 没有真疫苗！
-郭先生盖特爆大料：没有疫苗、有解药！中共制造病毒生物武器时一并制造了解药，这意味着中共掌握着全人类的命运 – 要想活命，去找中共要解药！习近平戴口罩是演戏，中南坑还戴口罩的人不被信任。
+**Dr. Richard Fleming:** Well the actual theory that explains why people with Sars-Cov2 who develop a disease that’s an inflammo-thrombotic disease, called Covid-19 was first presented by myself in 1994 at the American Heart Association meetings. That theory on inflammation, heart disease which account for these blood clots and inflammation is now accepted by most people as the cause for these chronic inflammatory disease. And that’s why the people with comorbidities were dying with Covid-19 because they weren’t being treated for that. I’m also the man who developed the imaging method for actually measuring changes in the tissue to monitor Sars-Cov2 and Covid-19 treatment responses. I have conducted a national clinical trial in seven countries at 23 sites showing what treatments work and don’t. And I may be the only one who’s actually gone through the review documents of the EUA to look at what these vaccines really can and can’t claim that they do. And we’ve done a tremendous amount of work to define the gain-of-function work: where that money came from? Who was involved with it?  And that’s important because the spike protein that’s coded for in these vaccines represents this genetic sequence that is man-made, so that the virus, the vaccines which are drugs that are being used actually contain sequences that are human-inserted into viruses so that what we’re dealing with is not a naturally occurring virus and it’s doing exactly what was designed to do, which is to increase infection and produce inflammation and blood clots. And so, vaccines like Johnson & Johnson’s or Pfizer, Moderna’s or Astraxeneca which actually has a component in it, trying to dissolve blood clots, are actually doing what one would expect: they are producing inflammation and blood clotting. When the virus is initially passed from person to person, it was only the people with these increased tendencies to form these blood clots and inflammation, and the people with the comorbidities, the older people with the heart disease, the diabetics who were showing the sings and were dying again because they weren’t being treated. Now, with the vaccines we’re dumping a larger load of material to make this non-naturally occurring spike protein producing this inflammon-thrombotic response in people that normally would not have a problem. But because there’s either 13 billion or 50 billion depending upon whether you’re talking about, the mRNA or DNA vaccines, even people that are healthy are now producing this increased inflammo-thrombotic response. That’s why you are seeing the blood clots in the deaths.
 
-兄弟姐妹们，今天给你们爆个大料。共产党的病毒毋庸置疑是共产党的生化武器，对吧？七哥一再说，永远不可能有疫苗，所有的疫苗都是假的，因为他们根本没闹清楚(病毒)，这个病毒是生化武器，还是来自自然。你怎么可能有疫苗？人类上从(来)没有在短短的六十天或六个月生产出任何一个疫苗。(既然)没有疫苗，(那)就是有没有解药。
-现在答案是，科学家、还有国内的情报、在欧洲的那位朋友明确地告诉我们：共产党有解药！
-疫苗是假的，是害人的。谁让别人打，谁强迫打，谁是犯罪，谁是谋杀。但共产党有解药，Cure、Cure、Cure！解药是什么？(说明)共产党掌握着人类的命运。
-所以昨天我正式地告诉某些人，我说：如果你相信我，我拿我的生命向你们保证，你们想活下去，找共产党要解药。(中共)在制造这个武器的时候，它就制造出了解药，而不要(找中共)要疫苗。
-他们如梦大醒，啊，哦，明白了！明白了，Miles，明白啦！
-没疫苗，永远不会有疫苗，因为它是生化武器！有解药，(去找)共产党！这就是真相！
-七哥今天爆的大料：要想活着，去找共产党要解药！要解药！要解药！
-我不是说挑拨离间，不是胡说八道，我愿意(对我说的)承担一切责任。共产党有解药！共产党有解药！要想活下去，找共产党要Cure、Cure、Cure！永远不可能有疫苗，记住我今天说的话啊！
-共产党有解药，我得到了100%(准确)的情报。
-这是共产党所有戴口罩的这些人都不是它信任的人，它信任的人都给你吃解药，不信任的人还得让你继续戴口罩。因为告诉你有解药的时候，你就会把我有解药的(事)给说出去了，那就另一方面证明了共产党制造了生化病毒。
-这就是共产党，只有几个主席台上的人是有解药，下面的99.9%的共产党员，死球蛋的啊。也不会给你解药，只要你戴口罩。谁戴口罩，谁就是不被信任的。 出去的时候习啊、什么习大神啊戴戴口罩，那是演给你看的，主要情况下都不戴口罩。不戴口罩的都有解药；戴口罩的都是不被信任者，因为你没有解药！
-直播视频：https://gnews.org/zh-hans/1123550/
+**理查德****·费****莱明博士**：好的，我的理念解释了为什么感染了Sars-Cov2病毒的人群会得炎性血栓病症，即Covid-19。这是我于1994年在美国心脏协会会议上首次提出的一个理论。这个关于炎症、心脏病会导致血栓和炎症的理论现在已被大多数人认定是这些慢性炎症性疾病的病因。这就是为什么患有并发症的患者会死于Covid-19，因为他们并没有得到相应的治疗。我还开发了一种成像技术用于实际评估细胞组织的变化以监测Sars-Cov2和身体对Covid-19治疗手段的反应。我已在七个国家的23个地点开展了一项国家级临床试验，以展示哪些疗法有效，哪些无效。 而且，我可能是唯一真正通读过EUA审阅性文件的人。进而，我得以审视这些疫苗真正能做什么，不能做什么。此外，我们做了大量的工作以定义“功能增强性实验”。（支持这种研究的）经费来自哪里? 有谁参与其中？这很重要，因为编码在这些疫苗中的刺突蛋白展示了其基因序列是人为改造的，因此，病毒以及正在使用的疫苗，即药物实际上包含人工插入的（基因）序列， 因此我们要对付的不是自然来源的病毒，而且，这个病毒正按照它被设计的功能在发挥作用，即增强传染性，并产生炎症和血栓。因此，强生、辉瑞、莫德纳或者阿斯利康疫苗，它们实际上都含有某种成分，这种成分试图溶解血栓，（但）实际上这些（成分）正发生一些大家可以料想到的作用：它们正引发炎症以及血栓。当病毒最初在人与人之间传播时，只有那些易生病的人才容易形成这些血栓和炎症，并且患有并发症的患者, 患有心脏病的老年人以及糖尿病患者有这种症状（炎症或血栓）时，因为他们没有得到治疗而同样面临死亡。现在，随着疫苗的使用，我们正向人们大量地注射这种“物质”，从而使这种非天然存在的刺突蛋白在通常没有问题的人身上产生这种炎性血栓反应。但是因为有130亿或500亿支所谓的mRNA疫苗或DNA疫苗，即使健康的人现在也在不断地产生炎性血栓反映。这就是为什么你们在死亡的病例中看到血栓的原因。
 
-2021年4月22日盖特:共产党有解药的问题引起了世界巨大震撼
-据郭文贵先生2021年4月22号盖特——4月22号：尊敬的战友们好……文贵又来爆尿爆尿了！
-尊敬的战友们好啊，今天是4月22号了啊，天呐，真快呀，4月22号，今天起得早，你们都知道要干啥啊，真的是昨天晚上回去就惨了，昨天从庭上回来以后连口罩也没摘一直开会，开到11：30，然后赶快去再去开另外一个小会一直到两点钟，两点钟完了冲洗一下、淋浴一下睡个觉，然后四点多就醒来，然后呢到六点多又睡一次，睡了大概四十多分钟，昨天晚上睡了两个多小时。
-然后起来一堆的电话，关于昨天开庭和战友见面的这些细节用任何语言我现在是不好形容，说着说着我大早上起来我再哭一通咋办呐是吧？让人看了咱多傻，成了眼泪男了，咱就不了，等有时间开完庭以后希望我直播一次，跟战友们连连线聊聊天谈谈我昨天开庭和现在的感受。
-那么另外一个我想跟大家说的事情，就是昨天在我盖特发出以后，共产党有解药，有解药这件事情可以说在世界上重大重大的一场重磅的一个爆料、影响，昨天我回来以后，很重要很重要的一个人昨天就在这儿边吃边聊，人家吃我戴着口罩，我说我为你负责，我呢戴着口罩因为我刚开庭回来，人家一桌子在那吃，我就在那儿看，就这看到十一点半，你说我昨天早上戴口罩戴到昨天晚上十一点半，所有的真正的有正事儿的、有良知的知道这个冠状病毒了解共产党的西方的官员他说，为什么全世界人就没想过这个问题呢，他说你爆出这个问题太重要了。
-昨天我和亚洲的某个国家连线，人家对方就说郭先生我们没有任何怀疑你的意思，我们应该怎么往前走，我说非常简单，你先定义这个疫苗是不是自然的，不是自然的那就是人造的，人造谁造的，他造的时候，大家现在怀疑的唯一就是共产党，为啥共产党里边人有人戴口罩有人不戴口罩，为什么共产党的这些老百姓死了上百万人武汉老百姓，为什么这些高官的家人一个也不死，就这么简单。
-那么你现在共产党如果说没有解药，那你请让他告诉你所有参与研究武汉实验室的任何工程师，让他到美国和欧洲来接受质询，别说审判，质询他，让他告诉你怎么找到解药行不行？或者你们美国和欧洲不敢跟共产党要真相，要解药呗，说你给我解药我不追究你责任了，这不也挺好吗，是吧？也挺好啊。
-所以说这个现在这个解药的问题引起了世界上的巨大震撼。兄弟姐妹们，连我本人我就在48小时以前我从来没想过这个世界上会有解药，我通过各种内部参与爆料的人都给我一句话不可能有疫苗，因为这是人造的生化病毒，怎么可能有疫苗呢？这是个基本常识，而且它每刻都在变异中，直到他告诉我说，文贵我可以告诉你，没那么悲观只要西方世界有正义的力量和正义的良知的人，这个世界是有解药的，我当时就傻了，我说你在开什么玩笑、怎么可能，生化病毒怎么有解药，他说生化病毒只要是研究者当初把它当成病毒了，它就有解药，然后跟我讲了这个过程，我傻了。
-但是我也觉得这是个巨大的希望，我第一个先告诉了我身边的最重要的一个替我把关这方面情报的科学的一个助理，我说你马上到你们某某某找这些人研究研究，这话是否可靠，答案是他是对的，然后我又经过核实，特别是他说的国内所谓的中央政治局中央常委2020年所谓的工作方式的重要提要，重要提要，就因为这个问题现在，大家记住啊习身边没人啦，韩正不行了也，是吧？本来也不怎么行，栗战书也靠边站了，丁薛祥也靠边站了，大家看到了吗？王沪宁也靠边站了！大家看到了吗？现在就剩了仨人、严格讲四个人——他弟弟习远平然后军方的许其亮，许其亮最近也半信半疑、恼火，完全剩下了杨娘娘、王太监，王~太~监，哎哟五个手指头，呵呵呵，我听说九指妖开会从一百个人现在变六十个人了，疯了，暴疯了，说G-Coin G-Dollar压根就没完成，William跑了，你说这个人她疯能疯到这个程度，九指妖你真的是太贱了，你真贱！你真贱呢你呀！贱人呐！真是贱人呐！还让我告她去FBI，不用我告，FBI一定会把你送监狱去，刚才我看到信息还是木兰发给我的，她的仇敌发给我的，说Sara崩溃了，说G-Coin、G-Dollar压根没研究出来，然后说他们人都跑了，就这瞎话能编到这样，这帮孙子真是烂人呐，这天下的烂人。
-所以说你看兄弟姐妹们，这杨娘娘、王公公两人和习大神还得隔着个门指挥许其亮，还有个弟弟习远平，这共产党还有未来吗，听说就这个开会的形式把大家全傻了，也就是给不给谁解药的问题，不是说你这些家人都有解药，听说韩正要给家人要一些解药，犯大忌了，你想干什么？！你想干什么？！嗯？！
-呵呵，这个解药最后是拿解药的人最后你一定记住，想要解药的人一定把拿解药的人弄死，这就是七哥在爆料一出、开始的时候就说过叫人尸丸，看看那江湖上那个什么任老妖弄的、泡的人尸丸，是吧？东邪西毒，吃下去，用人尸体做的人尸丸，吃了以后你想再活那就继续吃我人尸丸，你必须听我的，这就是世界的人尸丸，你咋弄啊？
-苍天在上，苍天呐，苍天呐，呵，不是Sara那个苍天，不是九指妖那个所谓的上帝，这个傻货，我今天早上木兰给我发信息把我笑得快晕了，太搞笑了，这么惨，惨到这个样子，说郭文贵来不是来灭共的，是灭九指妖的，你太拿你当个屁了！你太拿你当个屁了你呀！呵呵，灭你。
-所以说现在共产党现在乱了，从我发出那个盖特，我让大家简单看一下啊，大家就简单一看，哎呀，我别暴露信息呀，我别暴露信息呀，你看我简单，每一个小时三千多个塞满一次，每一个小时啊，每一个小时，国内很多战友体制内战友纷纷爆料，七哥这个太重要了，你说对了。看看中央警卫局，中央警卫局还有八一大楼什么人戴口罩、什么人不戴口罩。
-还有现在有些媒体说马云因为跟刘鹤搞矛盾，你扯淡简直是，轮得着刘鹤吗，刘鹤已经靠边站两年了身体都垮了个屁的了，而且查出一大堆的钱，几百个亿的钱，他跟马云好得很！我在北京马云跟他见刘鹤就跟孙子一样，马云卖了刘鹤是真的，还马云跟刘鹤有矛盾，刘鹤到了达沃斯论坛，马云带了一堆的东西邀请英国首相的、邀请欧洲首相的安排者就是刘鹤，都是我哥们儿，都问我呢，欸，Miles我应不应该去，我说你干嘛去，不就溷点吃的嘛，他们说不是啊！刘鹤请我的，刘鹤对我给我帮过忙，我说那你去吧，这是常识，回头七哥今天开完庭继续爆料。
+**Steve Bannon: **Why in the mainstream media, on CNN and MSNBC, Why would you be considered as apostate in the mainstream media? You hear Dr. (Sanjay) Gupta here, these people on CNN, the same guys, by the way, that told us it came out of a bat cave on the China-Laos border and it came up 1000 miles to the back country and got to a wet (market), but had nothing to do with the P-4 lab down the street.  Why would they say, “Fleming’s another crack; Fleming is a nutcase; Fleming is one of these anti-vax guys” Why is it? It seems like the mainstream thought of the scientific community. It would be opposed to your analysis right there.
 
-[郭爆料串珠系列文章标题和链接汇总238 – 1](https://gnews.org/zh-hans/888831/)
+**史蒂夫·班农：**为什么在CNN和MSNBC等主流媒体的眼中，您被他们视为异端，离经叛道之人？ 您也听到（桑杰）古普塔博士(的话)，顺便说一下，同样是CNN的这波人他们告诉我们这病毒是从中国-老挝边境上的一个蝙蝠洞传出来的，它“跑”了1000英里到过内陆的一个海鲜市场，但与同在一条街上的P4实验室毫无关系。他们为什么会说：“弗莱明是另一个古怪的人？弗莱明是个疯子，弗莱明就是反疫苗这帮人中的一员。”为什么会是这样呢？看起来这些主流媒体也有考虑科学界的知识。这都在反对您所作的分析。
 
-推荐阅读：
+**Dr. Richard Fleming: **Well, I think there’s a lot of eggs on the face, if you will- -from people that are now following kind of the party line, you know. If you ask, I’m an allopathic doctor; I am a MD; I am not anti-vax; I’m just anti bad medicine. I’m anti using something that hasn’t been proven to be effective or safe. And most people use the term safety and efficacy and that is, that’s flipped around. It’s efficacy and safety. And one of the things that nobody has apparently done because of her, nobody talked about it. If you go to the emergency use authorization documents for Pfizer, Moderna and Janssen, the Johnson & Johnson vaccine and you take out of those very documents that the FDA saw. And you look at the numbers which is the slide that I provided. I don’t know if you have that in front of you and you actually ask the legitimate first question. Do these vaccines statistically reduce the number of people who come down with Covid-19? If you look at that data, not my data, their date, the data they submitted to the FDA. If you look at that data, you’ll see that seven days after the second injection with Pfizer. There is no statistical difference in the number of people who come with Covid whether they get vaccinated or not. If you use the Moderna data, and they want you to look at two weeks after the second shot. There is no difference in the number of cases of Covid whether they get vaccinated or not. If you look at the Johnson & Johnson material, at 14 days, there is statistically significant difference. But two weeks later, at 28 days using the EUA documents that these companies provided themselves, there is no difference between the people who got the Johnson & Johnson vaccine and those who didn’t, as far as developing Covid-19. So, the first question is, are these vaccines beneficial? And the answer to that question based upon their documents, not Dr. Richard Fleming’s, is no, there is no statistical difference. Then you can start asking that other question…
 
-[郭爆料串珠(十) 不灭共，疫苗是不可能研制出来的](https://gnews.org/zh-hans/260583/)
+**理查德****·费****莱明博士**： 好吧， 我认为他们丑态百出，要知道，你们是些囿于成见的人。如果你非要问的话，我是一名对抗疗法的医生， 我是医学博士，我并不反对疫苗，我只是反对那些差劲的药物。我反对使用尚未被证明有效或安全的东西。大多数人都在谈论“安全性”和“功效”这两个术语，实际上顺序说反了：应该是“功效”和“安全性”。显然，还有一件事没有人做过，因为她，没有人谈论此事。如果您查阅了辉瑞、莫德纳和强生等疫苗的紧急使用授权文件，然后,您拿出了FDA所批阅的那些文件，并看看那些数字，在我所提供的幻灯片上有显示。我不知道你面前有没有这些数字。然后你会提出第一个合同的疑问。从数据上看，这些疫苗是否减少了Covid-19患者的数量？如果您关注这些数据，不是我的数据，是他们的数据，他们（以上这些药企）提供给FDA的数据。如果您详查这些数据，您会看到在辉瑞疫苗第二次接种的7天后，感染Covid的人数没有变化，无论他们是否接种疫苗。如果您使用莫德纳的数据，你们希望您看接种第二剂疫苗两周后的数据，感染Covid的人数没有变化，无论他们是否接种了疫苗。如果您看强生的资料，在第14天时感染人数有很大的变化，然而两周后，在第28天分析这些公司自己提供的紧急使用授权文件，接种强生疫苗与未接种强生疫苗感染Covid-19的人数没有变化。 因此，第一个问题是：这些疫苗有效吗？基于他们（药企）的文件，而不是基于我理查德.费莱明博的文件，这个问题的答案是：没有作用，在统计数据上不会有差异。然后，您会开始问另一个问题……
 
-[郭爆料串珠（222）想找解药必灭共，靠共产党给你是不可能的！](https://gnews.org/zh-hans/1057746/)
+**Steve Bannon: **But, hang on a second. But, hang on a second. They say you’ve seen on mainstream media, New York Times. It’s 96%. What effective, 96% efficacy, 98%. Today, today, hang on, today I think Willie Geist at MSNBC, we started the show with, they have breaking news and he comes in and I think he’s reading something that says, “You know, the six clots per 7 million still means it’s 99.99% effective.” So, what say you to that?
 
-[郭爆料串珠（223）中共病毒和疫苗就是中共给全世界准备的人尸丸！](https://gnews.org/zh-hans/1061842/)
+**史蒂夫·班农：**但是,等一下,等一下,(主流媒体)他们说,(相信)您在主流媒体如&lt;&lt;纽约时报&gt;&gt;上看到了 (疫苗有效率)是96%。什么有效率是96%、98%之类（的论述）。今天，今天，等我说完，我记得是MSNBC的威利l盖斯特,我们援引了他的节目作为开场,他们得到了突发新闻,他开始播报，而且，我觉得他在读着某些内容，说道：“要知道每700万人仅有6个出现血栓，这仍然说明了疫苗99.99%的有效率”。那么，您对此有何见解？
 
-整理：德国感恩农场文迅等
-发稿：如风
-郭爆料串珠系列文章，都是从800多篇郭文贵先生直播听写文字版、盖特精选而成，有时也包含部分班农先生、路德社、闫丽梦博士直播文字，具有文献价值。由德国感恩农场文迅等按时间、主题整理。感谢战友听写！
+**Dr. Richard Fleming: **Right. So, as vaccine efficacy is determined, exactly opposite of what you think it is. It is how many people came down with Covid in the vaccine group over how many people came with with Covid in the non-vaccine group. And that’s called the risk ratio. And you take one minus the risk ratio and that gives you vaccine efficacy. And that would be like me coming and telling you, “Steve, I want you to take this drug because it’s going to fail only this amount of time.”** **But if you ask the question, which is “does this vaccine prevent people from coming down with Covid-19?” And you take their data and you run their numbers which is in that slide that I sent over. It shows that even though you think there is a difference, that’s why we do statistical analysis. It shows that there isn’t a difference, it’s just a random chance.** There is no scientific evidence in the EUA documents.** **Unless, remember, there are still experimental vaccines, they have not been FDA approved. And people are not signing informed consent on these experimental drugs.** And, both Pfizer and Moderna quit recruiting for their experimental protocols on around the 20th of January. And, at that point in time, they didn’t need to because these were being rolled out. And they didn’t need to recruit anybody because everybody listening to your program and everybody not listening to your program is either in the experimental or the control group of this study. So, they don’t need to keep recruiting people. The numbers themselves show that the vaccines don not make no difference in the number of people that will come down with Covid-19. What we now know is that we’re seeking risk popping up across the board. And they’re all inflammatory and blood clotting. And it’s affecting not just the people with the comorbidities; it’s affecting the people that normally now we’re healthy and they’re being overwhelmed because their immune systems work. They are making antibodies to these vaccines. **And let’s remember two things. First of all, the spike protein is not naturally occurring; it is gain-of-function. It is crossing the blood brain barrier. And we know in the animal models of these spike proteins. We knows that in humanized mice they develop spongiform encephalopathy, which is, for the general public, mad cow disease. We also know that in the rhesus macaque models that about two weeks afterwards they develop Lewy bodies in the brain and inflammation. Lewy bodies are what caused Alzheimer’s and a number of neurologic disorders. And those numbers translate into about a year and a half for human beings to see the same consequences.** So, no statistically significant benefit from the very EUA documents that are posted, not mine, the company’s. Inflammation and blood clotting occurring with it. Lewy bodies, mad cow disease and nothing that suggests a benefit. It’s an experimental drug that people aren’t finding informed consent for and you are part of the control or experimental group.
+
+**理查德****·费****莱明博士**：好的，疫苗有效率的确定与您所想的完全相反。（疫苗有效率的确定）是用疫苗接种组中感染的Covid的患者数除以非疫苗接种组中感染Covid的患者数，得到的数即是风险比率。然后你用1减去风险比率则等于疫苗有效率。这就好比，我来告诉你：“史蒂夫，我要你服用这种药物，因为它只有很小的几率会失效。” 但是，如果您问这样一个问题：“这种疫苗是否可以防止人们感染Covid-19？” 然后您追踪他们的数据，根据他们的数据进行计算，结果就在我发送的幻灯片中。它表明，即便您认为有区别，这就是我们进行统计分析的原因，结果表明没有区别，那只是一个随机的结果。**紧急****授权****文件中没有科学证据（****支持****）****。请记住****，这些仍是实验性疫苗****，****他们尚未获得****FDA批准。****人****们****并****未****在****这****些实验性药物上****签署****知情同意****书****。**而且，辉瑞和莫德纳都于1月20日左右放弃了他们的试验招募计划。而且，在那个时候，他们已不需要（志愿者）了， 因为这些（疫苗）早已正式推出。而且，他们不需要招募任何人，因为所有那些听了您的节目以及不听您节目的人，要么属于本研究的实验组，要么属于对照组， 因此他们不需要继续招募人员。数字本身表明接种疫苗对感染Covid-19的人数没有产生任何影响。现在我们所知道的是我们看到了全方面的风险：几乎都是炎症和血栓。它不仅影响患有并发症的人群，它还影响着通常身体健康的人们，他们的身体正遭受打击，因为他们的免疫系统正常运转，（免疫系统）正在制造针对这些疫苗的抗体。让我们记住两件事。**首先，刺****突蛋白不****是天然存在的****；****它****具****有人工增强的功能。它****能够****穿越血脑****屏障，****而且我们****在****动物****模型****中了****解****这些刺****突蛋白，我****们知道，在人源化的老鼠****中****，****它****们（刺****突蛋白****）****会引****发****海绵状脑病，****对于普通大众来说，就是“****疯牛****病”****。我****们****还****知道在****恒河猴模型****中，大约（****感染****）****两周****后，会在大脑中形成路易氏体并****引****发炎症****。路****易氏体是引起****老年****痴呆症和许多神经系统疾病的原因。****这****些****数学****意****味****着大约一年半的****时间****，****人****类就可以****看相****同的结果****会****发生在人类自己身上。**因此，（FDA）所发布的紧急授权文件来看，统计上没有显示（疫苗）有显著的成效。这些文件并非来自我这里，而是来自药企，随之而来的还有炎症和血栓。路易氏体、疯牛病，还有疫苗没有显示出任何益处。这是一种实验性药物，人们没有获得知情同意，并且，每个人都是对照组或实验组成员之一。
+
+**Steve Bannon: **And the companies are open and that’s why you have the emergency use authorization. There’s so this is going to be quite complicated. We’re gona have you back on. But last thing, today when they take the podium up at the White House, Dr. Fauci and the team, what would you recommend to them? Clearly, this hit like a bombshell and they know they have a problem here now. What would you recommend Dr. Fauci and the other doctors? What should they say about the Johnson & Johnson situation right now?  And what course of action would you recommend to Joe Bidden?
+
+**史蒂夫·班农：**这些制药公司仍在正常经常,这就是为什么他们用紧急使用授权的原因。这事情变得非常复杂，我们还会邀请您再上我们的节目。最后，今天当福奇博士及其团队出现在白宫发言台时，您会对他们提出什么建议呢？显然，这种打击（疫苗的无效以及严重不良反应）就像重磅炸弹爆炸一样。他们知道他们现在出现了问题，您对福奇博士及其团队有何建议呢？他们对目前强生的状况应该说些什么呢？您会建议乔**.**拜登采取什么措施呢？
+
+**Dr. Richard Fleming: **At this point of time, based upon the evidence that we just went to, President Biden should call for the immediate cessation of the vaccination of American individuals with these vaccines and should call for an immediate reevaluation of. First, whether there’s any demonstrated efficacy? Because there is not. And secondly, what are the potential consequences of having already vaccinated a substantial number of individuals in this country? And third, a full review not only of this data, but of the people that were involved in the gain of function research and the promulgation of these vaccines.
+
+**理查德****·费****莱明博士**：在这个时间点上，根据我们刚刚回顾的证据, 拜登总统应呼吁立即停止让美国人接种这些疫苗，并应呼吁立即重新评估如下内容：首先，是否有任何被认证的有效疫苗，因为（当下我们分析过）没有。其次，本国大量已经接种了疫苗的人群，他们有何潜在后果？第三，不仅要对这些数据进行全面审查，还要对参与功能增强性研究的人员和发布疫苗的人员进行全面审查。
+
+**Steve Bannon: **Dr. Fleming, we got a bounce out. How do people get more access to you? Social media, website, all of that.
+
+**史蒂夫·班农：**弗莱明博士，我们要结束访谈了，人们通过怎样的渠道才能更好地了解您呢？社交媒体，网站之类的渠道。
+
+**Dr. Richard Fleming: **There is a website called flemingmethod.com, where we have a number of papers. We published the actual research and results of Sars-Cov2 of these vaccines of everything that is out there and provide an opportunity for people to learn and obtain the knowledge and information that they need to. I would also encourage the people to get involved in their individual states. Here in the state of Texas, there is a number of bills before the House and Congress where they’re looking at the vaccines, the masking families, what they’re doing with children.  I would also call for the immediate cessation of any vaccination programs, not just to find the American citizens, but particularly emphasizing the fact that the universities that are receiving funding from the US government which is our tax dollars to government’s, not the government’s tax dollars. They’re our tax dollars. To immediately stop the mandates that are going out to places like Notre Dame and other universities where they’re trying to force their students into becoming vaccinated.
+
+**理查德****·费****莱明博士**：我有一个名为flemingmethod.com的网站，在那我上传了很多论文，我们发表了Sars-Cov2的实际研究成果，以及所有这些疫苗的研究结果，并为人们提供了学习并获得知识的机会。我还鼓励人们参与其所在州的活动。比如，在得克萨斯州，州议会的参众两院会提出许多法案，来审查疫苗，审核家庭口罩使用以及审核（医药公司）对儿童的行为。我还呼吁立即停止任何疫苗接种计划，不仅要停止（医药公司）招募美国公民（进行试验），还要特别强调一个事实，那些接受美国政府资助的大学，那些资金是我们的纳税收入，而不是所谓的“政府的税收”，那是我们的税金，应立即废除圣母大学和其它大学所发出的强制性疫苗接种政策，他们正试图迫使学生接种疫苗。
+
+**Steve Bannon: **Dr. Fleming, thank you very much for taking the time. Look forward to having you back on either tonight or tomorrow. Really appreciate that you changed your schedule to join us today.
+
+**史蒂夫·班农：**弗莱明博士，非常感谢您抽出宝贵的时间，期待您今晚或明天再度参与我们的节目。非常感谢您今天更改日程，参与我们的节目。
+
+**Dr. Richard Fleming: **Thank you. My pleasure. Thank you.
+
+**理查德·费莱明博士**：谢谢，这是我的荣幸。
+
+原文来源于秘密翻译组
+
+编辑/发布：比卡丘
+
+20210426
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+
 
 0

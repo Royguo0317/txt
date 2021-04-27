@@ -1,40 +1,76 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普吁亚利桑那州长为选举审计提供安全保证
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1142862/)
+## 中共内部文件显示 国产疫苗副作用多
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1142990/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+新闻来源：《布赖特巴特（BREITBART）》| 作者：弗朗西斯·马特尔（FRANCES MARTEL） | 发布时间：2021年4月23日
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/AU-3.jpg)cbnc.com
-上周六（24日）川普总统发表声明，呼吁亚利桑那州长保证法庭重新计票工作人员的安全，声明说，“亚利桑那州州长杜西应该立即为勇敢的美国爱国者提供大规模的安全保障，让他们对2020年总统选举进行司法审查，杜西州长将对相关人员的安全负全部责任……”【1】
+翻译/简评：乡间小路 | 校对：SilverSpurs7 | 审核：万人往 | Page：Daoiii
 
-面对不容乐观的形势，川普总统今天再次发表声明：【2】
+[!\[\]()!\[\](https://spark.adobe.com/page/LM1ejLKm13pOi/images/919bda58-aea3-4c77-8c9b-d8fd5b5d1f9b.png?asset_id=fbb3190a-579c-49b8-91ad-dcea1e7afcc4&amp;img_etag=%229edbd519f4046c68932f942050e7adcd%22&amp;size=1024)](https://spark.adobe.com/page/LM1ejLKm13pOi/images/919bda58-aea3-4c77-8c9b-d8fd5b5d1f9b.png?asset_id=fbb3190a-579c-49b8-91ad-dcea1e7afcc4&amp;img_etag=%229edbd519f4046c68932f942050e7adcd%22&amp;size=1024)
 
-2021年4月26日
-美利坚合众国第45任总统唐纳德·川普的声明
+**简评：**
 
-亚利桑那州州长道格杜西（Doug Ducey），美国最糟糕的州长之一，也是美国第二糟糕的共和党州长，他正在拒绝为那些进行手工计算亚利桑那州选票的美国爱国者提供安全保障，这些选票操控了亚利桑那州2020年美国的大选。
+《大纪元》报道称，接种中共国生产的疫苗后出现的不良反应，包括腹泻、皮疹、呼吸短促和感染新冠病毒等。在依赖中共疫苗的智利，几乎在其推动全国接种疫苗的同时，国内新冠病毒感染率开始飙升。中共拒绝透露习近平是否将接种或者已经接种了国产疫苗。中共预计7月引进一款来自国外的辉瑞疫苗。
 
-川普总统的担心不是没有道理，据传安提法人员住在审计体育馆周围的宾馆，州长把警力部署到了边境，难怪最近一段时间，这位州长一反常态地与拜登政府、巫婆佩洛西唱反调，承认有边境危机的情况，原来这里对民主党的危机更大。警力弱了，无法无天的安提法可以捣乱、恐吓进行审计的工作人员。
+媒体和社区的宣传，加上个人盲目的跟从，目前在中共国内已经有超过1亿人接种了中共新冠病毒疫苗。在决定接种疫苗前，是否该问自己几个基本的问题：病毒的来源弄清楚了吗？疫苗的有效性、安全性有可靠的数据支持吗？我为什么要接种中共疫苗，真的是出于个人需要还是被宣传带动？
 
-《门道专家》（Gateway Pundit）报道，一名与民主党关联很大的法官被任命，将于明天开庭审理此案，民主党试图继续阻止参议院对2020年选举结果的审计，预计明天举行新的听证会【3】。
+临床试验数据不透明、有效性低、副作用多，这样的疫苗，请中共的领导先打。
 
-面对民主党做贼心虚、孤注一掷的猖狂行为，亚利桑那州共和党主席凯利·沃德（Kelli Ward）博士则泰然若之，告诉《门道专家》：“这是美国的审计，是为了美国”（视频）【4】
+[!\[\]()!\[\](https://spark.adobe.com/page/LM1ejLKm13pOi/images/95dd62d0-acef-40a9-a91a-2a0a49b15c00.jpg?asset_id=cd06476b-241d-4d2c-920c-fcd9583260c6&amp;img_etag=%2293ce5c733fbe72b8bf8f8ec7498f6bda%22&amp;size=1024)](https://spark.adobe.com/page/LM1ejLKm13pOi/images/95dd62d0-acef-40a9-a91a-2a0a49b15c00.jpg?asset_id=cd06476b-241d-4d2c-920c-fcd9583260c6&amp;img_etag=%2293ce5c733fbe72b8bf8f8ec7498f6bda%22&amp;size=1024)
 
-还有个奇怪的现象，所谓的主流媒体，对这样事关美国宪政的大事没作报道，美国危矣。
+**原文翻译：**
 
-若是没有文贵先生、爆料革命，美国真地要沦陷了。
+## **报道：中共国制造的疫苗不仅不能防护新冠病毒，反而引起发烧、腹泻**
 
-参考链接：
+[!\[\]()!\[\](https://spark.adobe.com/page/LM1ejLKm13pOi/images/cecd9d24-f846-4f7c-aaeb-d73a9211c275.png?asset_id=c2abcd19-2f60-45c6-81e5-b6f2dd8d9e90&amp;img_etag=%2233ba666a3bc7d629e0a1ff056aa8e4b1%22&amp;size=2560)](https://spark.adobe.com/page/LM1ejLKm13pOi/images/cecd9d24-f846-4f7c-aaeb-d73a9211c275.png?asset_id=c2abcd19-2f60-45c6-81e5-b6f2dd8d9e90&amp;img_etag=%2233ba666a3bc7d629e0a1ff056aa8e4b1%22&amp;size=1024)
 
-【1】https://www.gnews.org/zh-hans/1134885/
+反共产主义报纸《大纪元》在周四的一篇文章中声称获得了来自中共的文件，其中详细讲述了大量的关于人们在接种国产的新冠病毒疫苗后的负面结果，包括腹泻、皮疹、呼吸短促和感染新冠病毒。
 
-【2】[https://twitter.com/JennaEllisEsq/status/1386764726357594119/photo/1](https://twitter.com/JennaEllisEsq/status/1386764726357594119/photo/1)
+北京当局目前正在努力劝说国内民众参与在全国范围内开展的疫苗接种运动，中共国内的疫苗接种率明显低于许多西方国家。加之公众对于提供给他们的疫苗——全部来自国产——缺乏接种紧迫感，这反应出一个事实，即中共国疾病控制中心主任高福在本月所承认的，国产疫苗“没有很高的防护效率”。中共官员高福称有关他陈述的报道是一种“完全的误解”。
 
-【3】[https://www.thegatewaypundit.com/2021/04/maricopa-madness-new-judge-case-appointed-former-democrat-governor-janet-napolitano-opinions-now-vary-hearing-might-take-place-case/](https://www.thegatewaypundit.com/2021/04/maricopa-madness-new-judge-case-appointed-former-democrat-governor-janet-napolitano-opinions-now-vary-hearing-might-take-place-case/)
+截至发稿时，中共国已经批准了5款由中共国研发的预防中共病毒的备选疫苗以供紧急情况下使用。第一款获批的疫苗来自科兴生物科技公司。有2款获批的备选疫苗由国药控股生产。康希诺和安徽智飞龙科马生物制药有限公司研发了另外2款。
 
-【4】https://www.thegatewaypundit.com/2021/04/exclusive-az-gop-chair-dr-kelli-ward-tells-gateway-pundit-americas-audit-america-video/
+最突出的两款疫苗选项来自科兴和国药控股这两家公司。中共当局做了大量投入以促进其疫苗在国际上的销售，尤其是科兴生产的“Coronavac”灭活疫苗，尽管中共国内这款疫苗在促进免疫上少有效果。中共独裁者习近平在国际场合反复敦促其它国家购买中共疫苗，但自己没有参与任何国产疫苗接种计划。中共政权拒绝说明习自己是否将接受或者已经接种了疫苗。
 
-0
+中共国官媒预计，一款由美国辉瑞和欧洲拜恩泰科（BioNTech）共同研发的疫苗在今年7月或可供应给中国居民，这是反映国产疫苗需求量少的一个信号。
+
+《大纪元》声称获得了3份独立的中共国政府文件，它们全部来自河北省。第一份注明的日期是4月8号，其中详尽描述了国产新冠病毒疫苗的“不良反应”，包括“皮疹、发烧、恶心、腹泻、胸闷和呼吸短促”。另一份文件详细描述了一个个案——尽管完成了疫苗接种，但经反复检测，接种者的新冠病毒感染仍然呈阳性。这引发了关于接种过国产疫苗的人群可能会把病毒传播给没有接种过的人群的猜疑。
+
+第三份宣称获得的文件被注明“特急，不得向公众披露”，它要求河北地方政府官员加强对接种过国产疫苗的人群的观察，“调查并恰当处理任何因疫苗接种引发的死亡、严重残疾或者其它不良反应的案例，它们可能对社会造成重大影响。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/LM1ejLKm13pOi/images/a4ed291f-7b12-41ea-978f-05fe5277f89c.jpg?asset_id=d6bea8d6-bef6-4521-a0e4-884853994852&amp;img_etag=%2262c0203476ca35561287e1ee9af8c57c%22&amp;size=2560)](https://spark.adobe.com/page/LM1ejLKm13pOi/images/a4ed291f-7b12-41ea-978f-05fe5277f89c.jpg?asset_id=d6bea8d6-bef6-4521-a0e4-884853994852&amp;img_etag=%2262c0203476ca35561287e1ee9af8c57c%22&amp;size=1024)图为4月7日北京一居民区被标示接种疫苗率低于40%
+
+《大纪元》说文件来自“可靠的消息源”，它并没有指出有哪份文件强调哪款国产疫苗需要人们特别关注。
+
+和在中共国使用的疫苗不同，目前在美国使用的两款疫苗采用新型mRNA技术来诱导免疫反应以产生抗体进而阻止新冠病毒感染。辉瑞和莫德纳的疫苗在阻止感染方面的测试有效率都在95%左右。与之形成对照的是，科兴疫苗在阻止感染的临床测试上其有效率约为50.38%，这意味着近一半接种过疫苗的人仍会被感染。据报道，国药控股的一款疫苗其阻止感染的测试有效率为79.24%。截至发稿时，中共国的公司还没有提供其它疫苗的详细临床试验数据。
+
+中共国主要集中在向海外销售科兴疫苗。在去年给世界卫生大会的致辞中，习近平称国产疫苗是“全球公共产品”，誓言中共国将集中向海外分配其疫苗。但是，考虑到在那些依赖国产疫苗的地区的高新冠病毒感染率，国产疫苗有效性低已经引发了国际担忧。比如在智利，在全国接种疫苗的推动下，已经有超过40%的人口接种了疫苗，但是这些人中超过90%接种的是科兴疫苗。几乎在推动疫苗接种的同时，智利的新冠病毒感染率开始飙升，这引发了一个问题：一个依赖国产疫苗的群体能觉得自己有多安全呢？
+
+智利媒体记录了科兴疫苗的普遍副作用，如发烧、肌肉疼痛、胳膊肿胀、头疼和恶心。因为中共国的其它疫苗还没有在国际上广泛使用，和《大纪元》报道中声称的症状相比，截至发稿时关于中共国其它疫苗潜在副作用的信息还很少。
+
+中共国疾病控制中心主任高福承认，中共国疫苗在4月中旬表现不佳。
+
+高福透露：“现在官方正在考虑，在为了获得免疫的过程中，是否应该使用来自不同技术路线的疫苗。”
+
+就在高福发表评论后不久，中共国官方媒体开始吹嘘所谓的能预防新冠病毒的国产mRNA疫苗已经问世。但是有报道称中共正准备把辉瑞疫苗引进到中共国市场，于是关于国产mRNA疫苗的推测也就悄无声息了。中共官媒通过谨慎地使用其非美国开发商拜恩泰科（BioNTech）的名字来提及这款mRNA疫苗，同时提到一家中共国公司复星制药在资助疫苗上扮演了一个小角色。复星是科兴的竞争对手国药控股的母公司。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/LM1ejLKm13pOi/images/3a62bdc8-3cbd-4e8c-97de-4fdae2c35a1b.jpg?asset_id=6b268eaa-495e-4ea2-b365-6d4adca8b6db&amp;img_etag=%22a4128f928d17becb9ff1047dd745cbe5%22&amp;size=2560)](https://spark.adobe.com/page/LM1ejLKm13pOi/images/3a62bdc8-3cbd-4e8c-97de-4fdae2c35a1b.jpg?asset_id=6b268eaa-495e-4ea2-b365-6d4adca8b6db&amp;img_etag=%22a4128f928d17becb9ff1047dd745cbe5%22&amp;size=1024)
+
+“复星制药已经向中国的国家监管机构提交了由它和德国拜恩泰科共同开发的新冠肺炎mRNA疫苗的临床试验数据和其它相关材料以供轮流审查。”中共国官方媒体《环球时报》本周声称。
+
+周四，《环球时报》引用“消息源”预测说，辉瑞疫苗7月前可供中国居民使用，辉瑞疫苗将是除香港外第一款在中共国被用来预防中共病毒的国外疫苗。香港批准（随后停止）了使用欧洲公司阿斯利康的一款疫苗。
+
+🔗[原文链接](https://www.breitbart.com/asia/2021/04/23/report-chinese-made-vaccines-not-blocking-coronavirus-while-causing-fever-diarrhea/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/LM1ejLKm13pOi/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/LM1ejLKm13pOi/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+
++2
