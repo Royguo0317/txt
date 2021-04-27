@@ -1,51 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】 中共式的民主就是毒品
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1142542/)
+## 印度日感染35万人成为2021年疫情重灾区
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1142648/)
 
-作者：纽约香草山福音部 凤鸡
+撰稿：白雪
 
+据**BBC**报道，印度出现的这一波新冠病毒名为**B1617**印度变异病毒！
 
+目前被官方称为B1617的印度变异病毒是在2020年10月首次被发现。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+2021年1至3月期间，在印度西部马哈拉施特拉邦（Maharashtra）收集的361份新冠病毒样本中，有220份检测到这种变种病毒。
 
+与此同时，根据GISAID全球数据库，在至少21个国家发现其踪迹。
 
+国际旅行者似乎已将该变体带到英国，自2月22日以来，英国已发现103个印度变种病例。
 
-中共外长王毅最近再次搬出歪理，为中共的极权专制抹粉，称中共在大陆实行的是“中（共）国特色的民主”，跟美国不一样——“民主不是可口可乐，全世界一个味”。这些狡辩的言论再次遭到海内外网友的怒轰。
+邻国封锁，多国禁运！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-475.png)
+印度新增病例持续破纪录，医疗体系正面对巨大压力，病床和气氧供应也非常紧张。**4**月**25**日，印度公布有**352**，**991**人感染，连续第四天刷新世界纪录，**24**小时内死亡人数为**2812**人，过去七天平均日死亡**2**，**336**人，累计全国有**19.5**万人死亡。
 
-4月23日晚，王毅与美国对外关系委员会进行视频会议，他说道，“民主不是可口可乐，美国生产原浆，全世界一个味道。”然后他辩称，中共实行的是所谓“社会主义民主”且“得到了人民拥护”，如果西方说这种“中共式民主”是“威权”和“专制”，那就是“不民主的表现”。
-
-“王毅的意思，中共式的‘民主’不是可乐，是可以用政治迫害（的名义）杀死所有人，那就是可卡因了。”网民@poetjingwa说。
-
-说到底，民主的本质都是相同的——人民做主。而中共所称的民主就是“党专制”：国家的所有事务都以党的意志为依归，党凌驾于国家、民族和法律之上。这种极权跟西方民主的区别是显而易见的。而今，王毅硬要把中共极权专制包装为另一种所谓“民主”，这遭到网民地讥讽。
-
-明明是独裁，却还要说自己是独特的民主，这多么的可笑。墙内歌曲“团结就是力量”中唱到，“让一切不民主的制度死亡”，这句话已经洗脑民众多年，可大家会否想过，不民主的制度死亡了吗？事实是，它不但没有死亡，还越来越壮大了，更耍流氓称自己是民主，甚至要一直洗脑民众——这不是毒品是什么？所以说，只有灭共才能让独裁这种不民主的制度真正死亡。
-
-（本文仅代表作者观点）
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+家属们为病危的家人求救，许多患者等待数小时仍然未能获得治疗。火葬场正在对葬礼集体火化作出安排。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/IMAGE-2021-04-27-122317.jpg)网络截图
+在2020年疫情中毫无建树甚至是和中共勾兑的谭德塞则表示，全球很多人死于新冠肺炎，是因为他们没有打疫苗、接受检测和治疗：“印度情况沉痛地提醒我们病毒可以如此肆虐。”
 
 
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+（本文纯属个人观点）
 
+[印度新冠疫情：变种病毒B1617威胁多大等六个问题](https://www.bbc.com/zhongwen/simp/world-56857499)
 
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2-1.jpg)
 0

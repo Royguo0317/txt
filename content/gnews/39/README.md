@@ -1,37 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印度日感染35万人成为2021年疫情重灾区
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1142648/)
+## 川普吁亚利桑那州长为选举审计提供安全保证
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1142862/)
 
-撰稿：白雪
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-据**BBC**报道，印度出现的这一波新冠病毒名为**B1617**印度变异病毒！
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/AU-3.jpg)cbnc.com
+上周六（24日）川普总统发表声明，呼吁亚利桑那州长保证法庭重新计票工作人员的安全，声明说，“亚利桑那州州长杜西应该立即为勇敢的美国爱国者提供大规模的安全保障，让他们对2020年总统选举进行司法审查，杜西州长将对相关人员的安全负全部责任……”【1】
 
-目前被官方称为B1617的印度变异病毒是在2020年10月首次被发现。
+面对不容乐观的形势，川普总统今天再次发表声明：【2】
 
-2021年1至3月期间，在印度西部马哈拉施特拉邦（Maharashtra）收集的361份新冠病毒样本中，有220份检测到这种变种病毒。
+2021年4月26日
+美利坚合众国第45任总统唐纳德·川普的声明
 
-与此同时，根据GISAID全球数据库，在至少21个国家发现其踪迹。
+亚利桑那州州长道格杜西（Doug Ducey），美国最糟糕的州长之一，也是美国第二糟糕的共和党州长，他正在拒绝为那些进行手工计算亚利桑那州选票的美国爱国者提供安全保障，这些选票操控了亚利桑那州2020年美国的大选。
 
-国际旅行者似乎已将该变体带到英国，自2月22日以来，英国已发现103个印度变种病例。
+川普总统的担心不是没有道理，据传安提法人员住在审计体育馆周围的宾馆，州长把警力部署到了边境，难怪最近一段时间，这位州长一反常态地与拜登政府、巫婆佩洛西唱反调，承认有边境危机的情况，原来这里对民主党的危机更大。警力弱了，无法无天的安提法可以捣乱、恐吓进行审计的工作人员。
 
-邻国封锁，多国禁运！
+《门道专家》（Gateway Pundit）报道，一名与民主党关联很大的法官被任命，将于明天开庭审理此案，民主党试图继续阻止参议院对2020年选举结果的审计，预计明天举行新的听证会【3】。
 
-印度新增病例持续破纪录，医疗体系正面对巨大压力，病床和气氧供应也非常紧张。**4**月**25**日，印度公布有**352**，**991**人感染，连续第四天刷新世界纪录，**24**小时内死亡人数为**2812**人，过去七天平均日死亡**2**，**336**人，累计全国有**19.5**万人死亡。
+面对民主党做贼心虚、孤注一掷的猖狂行为，亚利桑那州共和党主席凯利·沃德（Kelli Ward）博士则泰然若之，告诉《门道专家》：“这是美国的审计，是为了美国”（视频）【4】
 
-家属们为病危的家人求救，许多患者等待数小时仍然未能获得治疗。火葬场正在对葬礼集体火化作出安排。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/IMAGE-2021-04-27-122317.jpg)网络截图
-在2020年疫情中毫无建树甚至是和中共勾兑的谭德塞则表示，全球很多人死于新冠肺炎，是因为他们没有打疫苗、接受检测和治疗：“印度情况沉痛地提醒我们病毒可以如此肆虐。”
+还有个奇怪的现象，所谓的主流媒体，对这样事关美国宪政的大事没作报道，美国危矣。
 
+若是没有文贵先生、爆料革命，美国真地要沦陷了。
 
+参考链接：
 
-（本文纯属个人观点）
+【1】https://www.gnews.org/zh-hans/1134885/
 
-[印度新冠疫情：变种病毒B1617威胁多大等六个问题](https://www.bbc.com/zhongwen/simp/world-56857499)
+【2】[https://twitter.com/JennaEllisEsq/status/1386764726357594119/photo/1](https://twitter.com/JennaEllisEsq/status/1386764726357594119/photo/1)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+【3】[https://www.thegatewaypundit.com/2021/04/maricopa-madness-new-judge-case-appointed-former-democrat-governor-janet-napolitano-opinions-now-vary-hearing-might-take-place-case/](https://www.thegatewaypundit.com/2021/04/maricopa-madness-new-judge-case-appointed-former-democrat-governor-janet-napolitano-opinions-now-vary-hearing-might-take-place-case/)
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2-1.jpg)
+【4】https://www.thegatewaypundit.com/2021/04/exclusive-az-gop-chair-dr-kelli-ward-tells-gateway-pundit-americas-audit-america-video/
+
 0

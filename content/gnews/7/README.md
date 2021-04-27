@@ -1,74 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/04/21 班农采访（4）:中美合作超人类杂交胚胎诞生，中国制造核心尖端想要称霸行业
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1143419/)
+## 研究员因窃取商业机密售卖给中共而被判入狱33个月
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1143441/)
 
-视频字幕：云岭 | 听写：云岭 | 翻译：葡萄树 | 校对：Clau | 简评/文字整理/编辑：胖丁| Page：Daoiii
-[!\[\]()!\[\](https://spark.adobe.com/page/kGHSuYLU4YSLX/images/7f970560-454f-4187-9377-a9754eed0fc1.png?asset_id=dce9cc1c-ef04-4bb6-802a-a145c7a1528f&amp;img_etag=%2272fab440f1cf31875a87b83d8879bb9a%22&amp;size=1024)](https://spark.adobe.com/page/kGHSuYLU4YSLX/images/7f970560-454f-4187-9377-a9754eed0fc1.png?asset_id=dce9cc1c-ef04-4bb6-802a-a145c7a1528f&amp;img_etag=%2272fab440f1cf31875a87b83d8879bb9a%22&amp;size=1024)
-**简评：**
+翻译：康州盘古农场 — 柯镇恶
+校对：康州盘古农场 — Mike Li
+编辑：康州盘古农场 — 心照
 
-**中美科研团队宣布人猴杂交胚胎诞生，这与中共的武汉P4实验室密切相关。实际上，中共一直在进行着大量不为人知的秘密试验。中共从来不担心由于政策失误导致的人口结构的失衡，因为中共一直致力于这种超人类的实验和发展。中共一直强调“2025中国制造”，在十大产业方面想要称霸，其核心尖端就包括生物科技和基因编辑。**
+据《大纪元时报》作者：CATHY HE，2021年4月20日报道
 
-GTV视频链接：[BannonInterview-Q4](https://gtv.org/video/id=6086cbe711a7ed500e99109e)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/AE0CA32E-A3D6-4ECC-9ADE-443995AF5872.png)*俄亥俄州哥伦布市全国儿童医院(Nationwide Children’s Hospital/CC BY-SA 2.0 via Flickr)*
 
+据司法部称，4月19日，一名医院研究员因密谋从俄亥俄州儿童医院窃取商业秘密并出售到中共国而被判处33个月监禁。
 
+51岁的周宇（Zhou Yu音译）于2020年12月认罪。他从俄亥俄州哥伦布市全国儿童医院研究所工作了10年，直到2017年至窃取了至少5个与外泌体研究有关的商业秘密。外泌体是从细胞释放出的小囊状液体，其越来越多地用于研究、鉴定和治疗包括肝纤维化和肝癌在内的多种疾病。
 
-**视频字幕：**
+周的同谋是他的妻子，现年48岁的陈莉（Chen Li音译）。她也曾在该研究所的另一个实验室担任研究员。在认罪之后，她因参与该计划而于2月被判处30个月监禁。
 
-**主持人：**这个问题是关于超人类的，因为一个由美国和中国科学家组成的团队上周宣布，人猴杂交胚胎已经诞生。
+俄亥俄州南部地区的美国代理律师维帕尔·帕特尔（Vipal J. Patel）在一份声明中说：“周和他的妻子执行了此计划多年，他们窃取美国研究成果后，在中共国成立企业，然后从中谋利。”
 
-他们的研究发表在《细胞》杂志上。
+法庭文件显示，这对夫妇在中共国成立了一家公司，利用该研究所窃取的商业秘密来制造和销售外泌体“隔离套件”。
 
-这个令人吃惊的实验能让世界看清中共的真实面目吗，班农先生？
+检察官说，他们还得到了中共政府的资助，包括国家外国专家事务管理局和中国国家自然科学基金会。
 
-**Bannon：**这个问题与P4实验室有种密不可分的联系。
+国家安全事务助理总检察长约翰·C·戴默斯（John C. Demers）在一份声明中说：“中共政府的一系列计划激发并鼓励了周的贪婪，这些计划旨在鼓励窃取美国的创造力和投资成果，来辅助中共的研究和开发目标。”
 
-章家敦谈到由于独生子女政策，中国的人口坍缩即将到来。
+该部门还说，这对夫妇还申请了几项由中共支持的科研计划，其中包括人才计划——这是北京用来促进外国技术向中共国转让的一种方法。
 
-简单算一算就会发现，中国在未来几年的压力巨大。
+作为定罪的一部分，这对夫妻被命令支付260万美元的赔偿。他们还被没收了约145万美元以及他们公司的股份。被告是于2019年7月在加利福尼亚州被捕的。
 
-因为他们的独生子女政策破坏了人口结构，将导致少数的人来赡养众多的老人。
+周的案件是该部门近年来针对中共国国家批准的盗窃美国知识产权的数十项起诉之一。
 
-为什么中国共产党对这个问题不那么担心？
+2020年12月，中共国医学研究人员郑灶松（Zheng Zaosong音译）因承认向联邦调查人员虚假陈述而被判处刑期。
 
-因为他们已经把超人类视为解决问题的方案。
+现年31岁的郑于2018年8月以J-1签证来到美国，并在哈佛大学波士顿贝丝以色列女执事医疗中心（Harvard University’s Beth Israel Deaconess Medical Center）从事癌细胞研究。他于2019年12月10日在波士顿洛根国际机场被捕，在那里他被发现，其行李箱中有21个装有生物材料的小瓶。当联邦官员问他是否携带任何生物物品旅行时，他撒谎并回答说“没有”。
 
-他们在各种会议中吹捧“中国制造2025”。
+郑后来承认，他打算用这些药瓶在中共国中山纪念医院的实验室进行研究，然后以自己的名字发表研究结果。
 
-到2025年，他们想称霸10个行业。
+原文链接：https://www.theepochtimes.com/researcher-sentenced-to-33-months-in-prison-for-stealing-trade-secrets-from-us-hospital\_3784185.html
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-为什么他们在10个行业方面必须称霸？
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-这些行业的尖端是先进的芯片设计、通用人工智能、再生机器人、生物技术和基因编辑。
-
-这四个方面的融合是奇点的主干，也是带我们进入超人类时代的主干。
-
-中国共产党准备跳过这个深渊，站在他们控制的智人的一边。
-
-这不是胡言乱语，事实摆在那裡，他们每天都在做。
-
-武汉实验室已经说明问题了。
-
-[**完整访谈视频**](https://www.youtube.com/watch?v=qnnVSjmLMxg)
-
-**主播：**Daniel, Dr. TCC, Castle和Mike
-
-- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
-- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
-
-
-***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三直播***
-
-编辑：【英国伦敦喜庄园编辑部】
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/kGHSuYLU4YSLX/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/kGHSuYLU4YSLX/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)
-
-
-
-+1
+0
