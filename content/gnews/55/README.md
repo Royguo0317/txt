@@ -1,31 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】披露“疫苗”真相——敲山震虎
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1139094/)
+## 【信仰之声】Derek Chauvin—— 一位被赶出逃城的人
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1143233/)
 
-香草山金融部 遵从内心
-![]()![](https://gnews.org/wp-content/uploads/2021/04/logo-5-768x103-1.jpg)
-在即将过去的这一周，全球新冠肺炎疫情继续恶化，世界多地出现数起疫苗引起的高风险病例；美国约有数以百万计的疫苗接种者很有可能不会完成第二计的注射，预防和控制前景堪忧；同时，印度单日新增确诊人数创下疫情爆发以来的全球新高。在这些层出不穷的消息包围下，人们依旧不知道疫情究竟何时能够过去，疫苗的效果究竟能否持久，以及这个究竟病毒到底是怎样出现的。
+作者：纽约香草山福音部 JingleChenge
 
-平地一声雷，郭先生此时在盖特上和大家分享了疫情开始以来又一个令人瞠目结舌的真相：中共制造病毒前已经做好了疫苗，因此现在只有中共手里有真正的解药。并且，只有共产党最相信的那些人才有知道解药和服用解药的资格——那些坐在主席台上的人因为有解药，所以可以高枕无忧不戴口罩；而不被共产党信任的人因为没有解药，所以继续戴着口罩。这个现象十分讽刺：那些继续与共产党为伍的人，他们的身家性命在共产党看来一钱不值，但他们本身并不知道这个真相，并还在继续心甘情愿地当中共操纵人民、为几个家族服务的傀儡和工具。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
 
-这个消息不是空穴来风，更不是痴人说梦。爆料革命四年来，中共的多少谎言被揭穿，多少面具被摘下，又有多少的真相继续被揭露，每位一直关注和支持灭共的战友最为清楚。郭先生在掌握这个秘密后，和多方都有交流和分享，他甚至强调，愿意拿自己的生命保证共产党手里面有冠状病毒的解药，更加说明了这个信息的可信度。相反，那些笑里藏刀的中共刽子手们，一次又一次说着类似“为人民服务” 般的假大空时，又有哪一个有着一丝力证自己言语的勇气？
 
-我们坚信，事实的一定会被揭露出来，只是一个时间的问题。并且随着人们越来越了解冠状病毒的真相后，各个国家也一定会去追究责任，缉拿这场人类灾难的元凶——中共。到那时，树倒猢狲散，共产党坚定的拥护者们的下场一定是极其悲惨。郭先生的这次爆料，其实更是给他们的一个警示：想要保住自己的性命和未来，必须正视现在全球灭共的形势，选择站在正义的一边，与爆料革命和新中国联邦一起消灭中共这个恶魔！
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-编辑/校对/发稿：正义的小新
+
+《圣经》记载了神为以色列人在应许之地设立了六座逃城，为的是使误杀人者可以逃入离他最近的一座，躲避报仇之人的追杀，得以保存生命，因报血仇者，不得进入城内报仇。但若误杀人者走出城外，报血仇者则有权报复。并且若非真实误杀人者，还要赶出城外依法究办。以色列人所设的逃城是在四通八达的地方，周围不得放有障碍物，逃命者才能便利地逃入。逃城有一条规矩，就是误杀人者在逃城里不得外出，要等到大祭司死后方可出城、恢复自由。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片23-4.png)
+
+美国的法律就是基于《圣经》记载的律法确立了无罪推定原则，为老百姓设立了一座没有边界的逃城，让过失杀人、过失伤人者有一个申辩的机会，不至于草菅人命。宁可放走一个罪犯，不可错杀一个好人。
+
+那我们来看最近对 George Floyd 执法的警官 Derek Chauvin 的庭审。明眼人可以看出，非常的匆忙，似乎急于定罪。开庭前，Minneapolis Star-Tribune 违法公开了所有12位陪审团员的详细资料，让BLM、ANTIFA 很容易定位并威胁他们，将他们及家人的生命置于危险中。按理，这些信息必须是保密的。从庭审及定罪的仓促来看，陪审团员确实受到了威胁。
+
+BLM 和 ANTIFA 在庭审期间每夜在开庭所在地的BC搞事，甚至纵火法庭。再加上加州左派女疯特地在宣判前两天跑到 Brooklyn Center，在本已不可抑制的乱象上添油加醋，若不按他们所要求的定罪，他们将继续闹下去，而且将闹得更大，甚至要挟Minneapolis市每一个人的生命。左派媒体当然一边倒地美化 George Floyd，从一个体内有高浓度芬太尼和有七次被捕史的大混蛋美化成了一个好市民、大英雄。他们抓案例法和陪审团制度的漏洞，用暴力形成所谓的民意，绑架法庭。
+
+对 Derek Chauvin 的庭审和定罪有许多疑点。他执法程序有问题，但罪不至此。除了Rudy Giuliani，War Room 和几个保守媒体对此有客观的分析以外，其他媒体都放弃了他，要么利用他的定罪达到自己的政治目的，要么害怕对自己不利。Derek Chauvin 成了一位从逃城中被赶逐之人。
+
+相信大家都读过“起初他们”这首德国信义宗牧师马丁·尼莫拉写于二战后1946年的忏悔诗，该诗叙述德国的知识分子与牧师如何屈服于纳粹党势力，沉默地坐视纳粹肃清一群又一群的无辜者。该诗意旨在阐明无视与自己无关的团体受迫害所造成的结果。这跟我们今天所处的环境很像，面对左派的共产主义意识形态，如果我们不站出来，Derek Chauvin 的结局也会是我们每一个人的结局。
+
+由此想到，面对邪恶的 CCP，如果我们不站出来，我们和我们的子孙，将避无可避，逃无可逃。 灭共，是公义的必须。
+
+参考：
+
+1. [https://amgreatness.com/2021/04/20/enemy-of-the-people-minneapolis-star-tribune-publishes-biographical-information-of-derek-chauvin-trial-jurors/](https://amgreatness.com/2021/04/20/enemy-of-the-people-minneapolis-star-tribune-publishes-biographical-information-of-derek-chauvin-trial-jurors/)
+
+2. https://pandemic.warroom.org (EP 888)
+
+3. [https://getpodcast.com/podcast/rudy-giulianis-common-sense](https://getpodcast.com/podcast/rudy-giulianis-common-sense)
+
+4.
+
+起初他们 起初，纳粹抓共产党人的时候，我沉默，因为我不是共产党人。
+
+当他们抓社会民主主义者的时候，我沉默，因为我不是社会民主主义者。
+
+当他们抓工会成员的时候，我沉默，因为我不是工会成员。
+
+当他们抓犹太人的时候，我沉默，因为我不是犹太人。
+
+最后当他们来抓我时，再也没有人站起来为我说话了。
+
+校对/发稿：飞虹
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2-1.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-+3
+0
