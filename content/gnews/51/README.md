@@ -1,29 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登计划将富人的增税额度提高近一倍
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1141393/)
+## 慧眼看世界202104026（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1141459/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/B-37.jpg)city-journal.org
-04月23日，美国总统乔·拜登（Joe Biden）打算提议将富人的资本收益税率提高近一倍，达到39.6%。彭博社援引熟悉总统计划人士的话写道。
 
-据对话者称，拜登希望提高税收以支付大部分旨在消除不平等的社会支出。现在，年收入在100万美元以上的美国人的税率是20%。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-正如彭博社所指出的，对于那些收入达到100万美元的人来说，新的最高税率加上现有的投资收入所得税，意味着富人投资者的联邦税率可能达到43.4%。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-17.jpg)
 
-据彭博社的对话者称，为奥巴马医改项目提供资金的3.8%投资所得税将被保留，这将使金融资产收益的税率高于一些工资收入的税率。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-18.jpg)
 
-该机构写道，拜登的提议可能会推翻税法中一项长期存在的规定，即对投资回报的征税低于对劳动力的征税。彭博社回顾说，美国总统此前曾主张对富人的资本利得税和所得税税率一视同仁，从而指出他们中的许多人支付的税率低于中产阶级工人的做法是不公平的。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-17.jpg)
 
-3月中旬，彭博社援引消息人士的话报道说，拜登正计划进行自1993年以来最大幅度的增税。讨论的措施包括将公司税从21%提高到28%，取消对有限责任公司（LLC）的税收优惠，以及提高收入超过40万美元的公民的所得税。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-19.jpg)
 
-此外，还讨论了对每年收入至少100万美元的人征收更高的资本收益税。根据彭博社的计算，这样的税收将使一百个最富有的美国人花费大约780亿美元。 因此，该机构指出，来自民主党的参议员伊丽莎白·沃伦提出的法案不太可能在国会获得支持，她长期以来一直赞成从富人那里收取额外费用。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-17.jpg)
 
-参考链接：
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-15.jpg)
 
-[https://www.rbc.ru/economics/23/04/2021/6082613a9a7947e492012cb5](https://www.rbc.ru/economics/23/04/2021/6082613a9a7947e492012cb5)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-15.jpg)
 
-+1
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-22.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-27.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-26.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-20.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-19.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-19.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-13.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/18-10.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/19-9.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20-7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/21-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/22-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/23-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/24-1.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
+
++2
