@@ -1,38 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【灭共头条】要想活命必宰中共 印度疫情大失控堪比人间炼狱
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1141881/)
+## 4月26日美国政要和政评家推特精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1142019/)
 
-撰稿: BZ
-责编：Shifter
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-88.jpg)印度因中共病毒死亡人数太多而不得不部分采用明柴火烧尸体 图片来源：网络
-进入4月以来，印度中共病毒疫情骤然飙升，并且连续几天创下世界纪录，3天新确诊人数过百万。并且印度的医疗资源出现严重不足，各地各医院氧气供应不足，很多病人由于不能得到救治而死去。并且因为死亡人数过多，印度各地火葬场不堪重负，百姓不得不用柴火来焚烧尸体，看到网络上让人心碎的视频，真是堪比人间炼狱。
+参议员瑞克·斯科特： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 对自由与自由的战争在变本加厉地继续。这是卑鄙的。我谴责 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 压迫性的审查，并赞扬赵婷（ChloéZhao）的成功。 【附纽约时报的报道：中共国对赵婷获奥斯卡奖噤声，但影迷们想方设法欢喜庆祝】
 
-这一背景是中共通过新华社和党媒跟班自媒体“刘乐观天下”4月23日向美国和印度祭出赤裸裸的威胁。“刘乐观天下” 视频标题称，印度目前急剧飙升的疫情惨状可能是挑衅中共的悲惨下场。中共用病毒生化武器向印度和日本这两个在亚洲地区与美国联合制衡中共的国家发出了致命威胁。
 
-路透社称，印度目前正处于第二波疫情的危急时刻。首都地区在资金不足的卫生系统陷入困境的情况下，德里每四分钟就有一人死于中共病毒。
 
-印度全国约13亿人口。卫生部4月24日表示，在过去24小时内，新增病例达到创纪录的346,786例，目前累计病例达1,660万例，包括189,544例死亡案例。
+> Communist China’s war against freedom and liberty rages on. It is despicable. I condemn this oppressive censorship by Communist China and applaud Chloé Zhao for her success. [https://t.co/SfPvJLYjGm](https://t.co/SfPvJLYjGm)
+> — Rick Scott (@SenRickScott) [April 26, 2021](https://twitter.com/SenRickScott/status/1386699886242979847?ref_src=twsrc%5Etfw)
 
-德里的甘加拉姆爵士医院（Sir Ganga Ram hospital）的顾问哥吉亚医生（Atul Gogia）对BBC表示，由于患者激增，急诊室里没有床位。
 
-他说：“我们没有那么多的氧气供应。提供氧气供应的地方早已人满为患。患者要自己带氧气瓶进入，但未必有氧气。我们都想帮助他们，但床位不足，甚至也没有氧气可以提供给他们。”
 
-“我们所有的电话线路都用满了。人们一直在拨打求助热线。医院外面也很混乱：有救护车停泊，病人想下车，但问题是没有床位了。”
+众议员迈克·华尔兹： 苹果公司和其他“醒来”的公司继续游说反对禁止美国公司使用 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 强迫劳工的法案。此举使他们自己蒙羞。你不能在美国大声疾呼社会正义的同时却又拥抱中共国种族灭绝的行为。 【每日电讯报报道：苹果等零售商继续就中共国奴工提案游说国会】
 
-“我们试图动员起来，尝试尽快让病情稳定的患者出院，以便提高流转率，但是目前情况仍然很困难。”
 
-4月21日文贵先生（Miles Guo）惊天爆料：共产党制造的这个病毒是生化武器，不可能有有效的疫苗，并且共产党有解药。一方面为印度和全世界受到中共病毒地区戕害而痛心，一方面为中共的邪恶和泯灭人性而切齿痛恨。但中共有解药这个信息也给了人类希望。
 
-印度海啸般的中共病毒疫情发生于同中共的日趋严重的对抗，无独有偶，日本的新一波的疫情发生于同美国日趋紧密协同对付中共之际，包括欧洲疫情的严重也是相似的背景之下。这些不得不让人联想到中共妄图一手拿着其制造的病毒生化武器一手拿着假疫苗和真解药逼迫和其对抗的对手下跪求饶的邪恶用心。
+> Apple and other “woke” corps continue to disgrace themselves in their efforts to lobby against bills that would prohibit American firms from using China forced labor. You can't call out social justice in the U.S. & embrace genocidal practices in China. [https://t.co/Elj62eYZO7](https://t.co/Elj62eYZO7)
+> — Rep. Mike Waltz (@michaelgwaltz) [April 26, 2021](https://twitter.com/michaelgwaltz/status/1386718075307937792?ref_src=twsrc%5Etfw)
 
-随着爆料革命对中共邪恶本质真相的揭露以及对世界的唤醒，印度，日本，美国和所有被中共病毒所严重戕害的国家只能灭共并拿到解药来解救自己的国民来让世界重生。
 
-参考链接:
 
-[印度疫情如“海啸”首都每4分钟1人死亡](https://www.epochtimes.com/gb/21/4/24/n12903007.htm)
+FBI： 中国政府通过最近的网络攻击，窃取了许多美国人的健康信息和个人身份信息。这些数据可以帮助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 针对个人进行潜在的监视、操纵或勒索。国家网络安全中心[@NCSCgov](https://twitter.com/NCSCgov) 【所附链接为，国家情报总监官网文章：中共国从美国收集基因组和其他医疗保健数据：隐私风险和美国经济与国家安全 】
 
-（文章仅代表编者观点）
 
-+2
+
+> Through recent cyberattacks, the Chinese government has stolen many Americans' health information and personally identifiable information. This data could help China target individuals for potential surveillance, manipulation, or extortion. [@NCSCgov](https://twitter.com/NCSCgov?ref_src=twsrc%5Etfw) [https://t.co/uWULxNAt23](https://t.co/uWULxNAt23) [pic.twitter.com/nxgnTIqsQX](https://t.co/nxgnTIqsQX)
+> — FBI (@FBI) [April 25, 2021](https://twitter.com/FBI/status/1386349513540001798?ref_src=twsrc%5Etfw)
+
+
+
+FBI： 中国政府通过最近的网络攻击，窃取了许多美国人的健康信息和个人身份信息。这些数据可以帮助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 针对个人进行潜在的监视、操纵或勒索。国家网络安全中心[@NCSCgov](https://twitter.com/NCSCgov) 【所附链接为，国家情报总监官网文章：中共国从美国收集基因组和其他医疗保健数据：隐私风险和美国经济与国家安全 】
+
+
+
+> Through recent cyberattacks, the Chinese government has stolen many Americans' health information and personally identifiable information. This data could help China target individuals for potential surveillance, manipulation, or extortion. [@NCSCgov](https://twitter.com/NCSCgov?ref_src=twsrc%5Etfw) [https://t.co/uWULxNAt23](https://t.co/uWULxNAt23) [pic.twitter.com/nxgnTIqsQX](https://t.co/nxgnTIqsQX)
+> — FBI (@FBI) [April 25, 2021](https://twitter.com/FBI/status/1386349513540001798?ref_src=twsrc%5Etfw)
+
+
+
+章家敦（中国问题专家）： [#基辛格](https://twitter.com/hashtag/%E5%9F%BA%E8%BE%9B%E6%A0%BC?src=hashtag_click) [#Kissinger](https://twitter.com/hashtag/Kissinger?src=hashtag_click) 曾说过，美国必须试着和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 共存。好，但如果中共国不想和我们共存呢？我们需要开始听听 [#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) 在说什么和看看他们实际上在做什么。[#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 【转商业内幕，基辛格谈疫情的后果等，和如何应对中国崛起】
+
+
+
+> [#Kissinger](https://twitter.com/hashtag/Kissinger?src=hash&amp;ref_src=twsrc%5Etfw) once again says the [#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw) must try to coexist with [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw): [https://t.co/HrH7u8eR73](https://t.co/HrH7u8eR73). Okay, but what if China has no intention to coexist with us? We need to start listening to what [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw) is saying and watching what it is in fact doing. [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Gordon G. Chang (@GordonGChang) [April 26, 2021](https://twitter.com/GordonGChang/status/1386682023352410119?ref_src=twsrc%5Etfw)
+
+
+
+美国防部部长奥斯汀： 我对印度的COVID-19疫情深感忧虑。今天，我指示国防部在我们的职权范围内使用所有可用的资源来支持美国的机构间工作，以向印度的一线医疗工作者提供他们所需的材料。 【附国防部长声明全文】
+
+
+
+> I’m deeply concerned about the COVID-19 outbreak in India, and today, I directed the [@DeptofDefense](https://twitter.com/DeptofDefense?ref_src=twsrc%5Etfw) to use every resources at our disposal, within our authority, to support U.S. interagency efforts to provide India’s frontline healthcare workers with the materials they need. [pic.twitter.com/v93iek3G2i](https://t.co/v93iek3G2i)
+> — Secretary of Defense Lloyd J. Austin III (@SecDef) [April 25, 2021](https://twitter.com/SecDef/status/1386464321723588610?ref_src=twsrc%5Etfw)
+
+
+
++3
