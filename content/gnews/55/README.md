@@ -1,87 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 武毒所帮助中共军队找到动物病毒的过程被揭露
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1143742/)
+## 【音频图片新闻】我们的民主在哪里？民国小学课本 vs 墙国的洗脑课本
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1143761/)
 
-新闻来源：《每日邮报》| 作者：IAN BIRRELL | 发布时间：2021年4月22日
-翻译/简评：wmorpho | 校对：SilverSpurs7 | 审核：万人往 | Page：我是球大哥
+**点评：Candy**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/cnxoye5kXF6eZ/images/4250c127-5ca7-4901-919f-54e39e96ef71.jpg?asset_id=99cb4610-01c7-4d06-965e-73b8ffde2bfe&amp;img_etag=%22417c89e201d77651fc387c5d42f578ac%22&amp;size=1024)](https://spark.adobe.com/page/cnxoye5kXF6eZ/images/4250c127-5ca7-4901-919f-54e39e96ef71.jpg?asset_id=99cb4610-01c7-4d06-965e-73b8ffde2bfe&amp;img_etag=%22417c89e201d77651fc387c5d42f578ac%22&amp;size=1024)
-
-本文作者伊恩·比雷尔披露，在中共国最高安全级别实验室研究蝙蝠疾病的科学家与（中共国）主要军事官员一起参与了一项名为“发现由野生动物携带的动物传播的病原体”的重大项目，该项目旨在寻找可以感染人类的动物有机体并研究使其进化。《星期日邮报》获得的文件显示，这是9年前启动的国家领导机构指导的项目，它的目的是寻找新的病毒，并与军事官员一起检测涉及传播疾病生物学的“暗物质”。
-
-也就是说，该项目是中共国的又一起军民融合项目，武汉病毒研究所参与了中共国的生物武器研发。该项目的五名团队负责人包括所谓的在洞穴中寻找样本并被称为“蝙蝠女”的武汉病毒研究所病毒学家石正丽，以及和生物恐怖主义有关的高级陆军军官和政府顾问曹务春，中共国顶级生物防御专家陈薇少将也参与其中，这间接证明了武汉病毒研究所与中共国超过210万人的武装部队之间的合作。这个项目于2012年启动，由中共国国家自然科学基金资助。该项目由徐建国领导，他在2019年的一次会议上吹嘘说“传染病预防和控制的庞大网络正在形成”。他们发表的论文说，如果病原体传播到人和牲畜，它们可能导致新的传染病“对人类健康和生命安全构成巨大威胁，并可能造成重大经济损失，甚至影响社会稳定”。这种描述与当今全球流行的中共病毒的特性及其相符，也就是说，中共病毒就是该项目的研究成果，是中共的生物武器，而我们正在经受这种生物武器的攻击。
-
-该是正本清源的时候了，让中共为中共病毒在全球肆虐造成的生命和经济损失负责，让中共在世界面前谢罪，让中共消失于人类的世界是正义的必须！
-
-**原文翻译：**
-
-## 有关新冠病毒起源的新线索令人担忧：武汉实验室的科学家是如何通过秘密项目帮助中共国军队寻找动物病毒的，伊恩·比雷尔报道
-
-- 武汉实验室的科学家进行了大规模动物病毒研究项目
-- 《星期日邮报》获得的文件揭示了一个全国性的计划
-- 它是由9年前启动的国家领导机构指导的项目
-- 它的目的是寻找新的病毒，并与军事官员一起检测涉及传播疾病生物学的“暗物质”——尽管（中共）否认有任何这样的联系
-
-
-在中共国最高安全级别实验室研究蝙蝠疾病的科学家与（中共国）主要军事官员一起参与了一项大型研究动物病毒的项目——尽管中共国科学家否认了这种联系。
-
-《星期日邮报》获得的文件显示，这是9年前启动的国家领导机构指导的项目，其目的是寻找新的病毒，并与军事官员一起检测涉及传播疾病生物学的“暗物质”。
-
-一位中共国著名科学家去年1月发表了新冠病毒的第一个基因序列，仅在该项目的前三年就发现了143种新疾病。
-
-由民事和军事科学家共同主导的这种病毒检测项目的事实似乎证实了美国爆炸性的说法，即武汉病毒研究所与中共国超过210万武装部队之间的合作。
-
-该计划的五名团队负责人包括所谓的在洞穴中寻找样本并被称为“蝙蝠女”的武汉病毒研究所病毒学家石正丽，以及和生物恐怖主义有关的高级陆军军官和政府顾问曹务春。
-
-石教授上个月否认了美国的指控，她说：“我不知道武汉病毒研究所的任何军事工作。该信息不正确。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/cnxoye5kXF6eZ/images/6248a13d-81a1-4d79-850f-449e380fb27d.png?asset_id=559f7d7a-639b-4a90-9849-168e6db4fcfe&amp;img_etag=%227934fd1f8eb93a012c6b64cbd63b7949%22&amp;size=2560)](https://spark.adobe.com/page/cnxoye5kXF6eZ/images/6248a13d-81a1-4d79-850f-449e380fb27d.png?asset_id=559f7d7a-639b-4a90-9849-168e6db4fcfe&amp;img_etag=%227934fd1f8eb93a012c6b64cbd63b7949%22&amp;size=1024)问题：武汉病毒研究所顾问曹务春少将，右，中共国顶级生物防御专家陈薇少将
-
-然而，曹务春在项目报告中被列为中共国人民解放军军事医学科学院的研究员，与其他军事科学家紧密合作，并且是军事生物安全专家委员会的主任。
-
-曾在剑桥大学学习过的流行病学家曹务春，甚至是武汉病毒研究所的顾问委员会成员。他是被派往武汉在顶级生物防御专家陈薇少将领导下的军事小组的副指挥，来应对这种新病毒并开发疫苗。
-
-美国国务院还对在武汉实验室进行操作的危险的冠状病毒“功能增强”实验提出了担忧，并指出武汉实验室研究人员在中共病毒在中共国城市广泛大爆发几周之前就出现了病毒感染症状。
-
-上个月，英国、美国和其他12个国家批评中共国拒绝共享关键数据和样本，此前世界卫生组织和中共国对大流行的起源进行了联合研究，认为实验室泄漏是“极不可能的”。
-
-伦敦国王学院的生物安全专家菲利帕·伦佐斯（FilippaLentzos）表示，最新的披露符合中共国的“不一致模式”。
-
-她说：“他们对我们仍然不透明。我们没有关于大流行起源的确切数据，无论是从动物身上自然起源还是某种与研究相关的意外泄漏，但我们都无法获得直接的答案，这根本就不会激发人们的信心。”
-
-《星期日邮报》获得的文件详细介绍了一个名为“发现由野生动物携带的动物传播的病原体”的重大项目，该项目旨在寻找可以感染人类的动物有机体并研究使其进化。
-
-这个项目于2012年启动，由中共国国家自然科学基金资助。该项目由徐建国领导，他在2019年的一次会议上吹嘘说“传染病预防和控制的庞大网络正在形成”。
-
-这位教授还领导了第一个专家小组调查在武汉出现的新冠病毒。尽管有医院的证据，他还是在最开始就否认了新冠病毒人播人的事实，接着在1月中旬坚持认为：“这种流行病传播是有限的，如果下周没有新的病例出现，这个流行病将会结束。”
-
-对徐建国的病毒狩猎项目的一篇评论承认，“已经发现了大量新病毒，引起了国际病毒学界的极大关注”。
-
-论文补充说，如果病原体传播到人和牲畜，它们可能导致新的传染病“对人类健康和生命安全构成巨大威胁，并可能造成重大经济损失，甚至影响社会稳定”。
-
-曾在国际期刊上发表了许多科学发现的科学团队在2018年更新表示，他们发现了四种新病原体和十种新细菌，而“使用宏基因组学技术发现了1640多种新病毒”。此类研究基于石教授从中共国南部洞穴网络的蝙蝠粪便和血液中采集的样本中提取的遗传物质。
-
-如此大量的采样使石教授去年迅速发现了RaTG13，RaTG13是与导致新冠病毒的毒株最接近的已知信息。
-
-它被存放在武汉实验室，该实验室是亚洲最大的蝙蝠冠状病毒库。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/cnxoye5kXF6eZ/images/252a196b-a545-473e-a587-4d397fb95a97.jpg?asset_id=0b172267-84b9-44ba-ac81-b6386a16e64b&amp;img_etag=%225a2b070461166e6bb6b5ce48b87d279c%22&amp;size=2560)](https://spark.adobe.com/page/cnxoye5kXF6eZ/images/252a196b-a545-473e-a587-4d397fb95a97.jpg?asset_id=0b172267-84b9-44ba-ac81-b6386a16e64b&amp;img_etag=%225a2b070461166e6bb6b5ce48b87d279c%22&amp;size=1024)图为：湖北省中部武汉市武汉病毒研究所，世界卫生组织团队成员正在调查冠状病毒的起源
+配图：summer, bingo
 
 
 
-[原文链接](https://www.dailymail.co.uk/news/article-9507749/How-scientists-Wuhan-lab-helped-Chinese-army-secret-project-animal-viruses.html)
+### 中华民国时的小学课本有什么内容？
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+![](https://lh3.googleusercontent.com/loELvrKkoDaIjOa9I6jtbcbNwEPrz5lMb7rLnfQAYEUeAmilLfi7KQZkYQhOzSYtgPQIl_tU2M78ssqz3Ia7gjgw5tthsDTti6TIacCXHIbWcdDJ6iFGjQnpT_kC7wsWrhIcDnBD)
 
+*中华民国时的小学课本以“君主政治和民主政治” 的对比, 作为授课内容，*
 
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/cnxoye5kXF6eZ/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/cnxoye5kXF6eZ/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+*令小学生对照学习，分析判断就知道哪个制度更好，更对人民有利，对国家向善的发展更有帮助。*
 
 
 
-+2
+
+
+中华民国时的小学课本以“君主政治和民主政治” 的对比为授课内容，明眼人一看就知道哪个制度更好，更对人民有利，对国家向善的发展更有帮助，更容易被人民所接纳。
+
+因为君主政治是帝王把国家、权利及人民统统看成是自己私有的，国家管理方面是大政府，下级必须服从上级，老百姓只有服从的份儿，所有人都要效忠于帝王。而民主政治则完全相反，人民是国家的主人，人民选举出政府官员，官员必须服务于人民，不满意的官员还可以被罢免。这样教育出来的人们才能明白是非黑白，遵守普世价值。
+
+
+
+### 墙国现在的小学课本有是什么内容？
+
+100年过去了，墙国现在的小学课本有是什么内容？我们找到了1970年代的中共国江苏胜苏州市小学算术课本。惨不忍睹的是，连算术题里都充满了共产党的阶级斗争仇恨与火药味！
+
+小学二年级的学生要学的算术题是：
+
+“贫下中农狠批刘少奇，第一天写了大字报42张，第二天写了51张，两天共写了多少张？”
+
+
+
+![](https://lh3.googleusercontent.com/s1WHBE5CoKWsuwOi6qQJI0nG32mNSUQhlbUpoJLWQC-kSoZNajkrIRXDBrTuH_17jI5y5n0I9OT2-3YjtN4cg4GQtU-deFD6vEv7nT5cp7sgTiuDlG6kf063n8EW51ZZyawKRoPI)
+
+
+
+![](https://lh6.googleusercontent.com/4C6GAFc3uutwL4zVCjgM9qRRlcWLoIfNABd44tTt1FaS0DBHeEDXR26H--KLJguASiYSb23o4UGZDvuZCj6vABegnyIvA77lVJ3wCvrHtIzglGTx0pEkuYKm_fP64JFVZi_7S2zM)
+
+
+
+语文课本则是，首先要了解教材编写的宗旨：在习近平总书记领导下，以党中央为核心，坚持……再看课本的内容：我随意从互联网上”语文迷“ 的教材里查看了一下，看到的是“雷锋叔叔，你在哪里？”，”这片土地是神圣的“，“为人民服务”，“人是一根能思想的稻草”。。。。一看题目就知道内容，无非是要人民——在他们眼里如稻草一般的贱民，无限地付出，直至死亡。而那些从小学到大的人民，大多数都是俯首帖耳地照收不误了，以至造成现在文革2.0版的疯狂再现。可悲又可怜！
+
+![](https://lh6.googleusercontent.com/XAEg0CbT0ZR1aSi5qoDTsAtDS5yBrkWwdqfKPNyxtxJo9aqQgsAtgc7UpGFEOkPAxNrq6qbSIw5OjzGld-CWqpuluo1onn8cNUADVY8xEXHMm4PtR3hV-O8wVW9W4B--v2egwUD6)
+
+![](https://lh6.googleusercontent.com/kwOdy7RaDbxf2PwGeIeD-KcnW2EHtxPImt2nf3sWUqbNMHcKUBTAxBbbo90Kr0j-RF8pwOccriEhBAHK6U3f4XdHjlxEV9ayUw4OjJKUFKPf7_ifC-LPOtp3Y7044OozBgd7rxmM)
+
+CCP 不倒，全世界都将失去民主，出现文革2.0，必须铲除CCP！
+
+
+
+#### 【**免责声明**】 文章中中表达的所有观点均属于作者，并不代表任何组织或其他个人。 
+
+【**责任编辑**】：bingo 旧金山文宣组
+
+### **欢迎战友加入旧金山金喜农场**
+![](https://lh5.googleusercontent.com/B_qgfzdPe7PXEFJ00CMor-4S7gUJ-rc3GQynsbf5lDQTFq_r_hT5QSG7kwT1m9npdEdLRZt4dmHwRck2gxDfZP_2j0Tdrpkh4kkHu-VEGIxrxwCUUAtzhszjO6fxxQ)
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)[** **](https://discord.gg/QQzQ79grEA)
+
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)[** **](https://twitter.com/sf_himalaya)
+
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
+
+[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
+
+
+
+
+
++1

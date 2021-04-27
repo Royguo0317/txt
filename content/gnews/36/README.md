@@ -1,27 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】04/26/2021：华裔女性赵婷获得奥斯卡最佳导演奖
-` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1143972/)
+## 【路德简报】4/26/2021晚：习近平坚持“不惜血战一场”
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1144035/)
 
-**制作：Cantonese工作室**
+**编辑：华盛顿DC农场 路德简报项目组**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20210426-2-scaled.jpg)
+
+
+> 2021 年4月26日 路德时评 晚 
+> 
+> 1. 习近平坚持 “不惜血战一场”
+> 
+> 2.美智库报告：预测习不指定接班人的后果 或被突然死亡 
+> 
+> 3. 欧盟称习政权独裁 对与中共合作感到悲观 [pic.twitter.com/8ACX79fNX9](https://t.co/8ACX79fNX9)
+> — 平民爆料 (@WM18320321) [April 27, 2021](https://twitter.com/WM18320321/status/1387032757558251529?ref_src=twsrc%5Etfw)
 
 
 
-**资料整理：【闪电】【Annie喜马拉雅】海报制作：【文雀】【小豆芽】视频制作:【ken】上传：【星星】【向阳6768】**
-
-摘要：
-
-1
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-478.png)
-2
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image2-1.png)
-3
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image3-1.png)
-4
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image4.png)
-5
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image5-2.png)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/0.jpg)
 0

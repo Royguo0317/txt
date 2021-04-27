@@ -1,43 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】中共内斗升级，王岐山还逍遥吗！
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1144344/)
+## 布林肯计划访问乌克兰
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1144538/)
 
-配音：香草山录音组 米小乐
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/U-20.jpg)ukrinform.net
+04月27日，美国国务卿安东尼·布林肯可能在5月份访问乌克兰。这是美国有线电视新闻网（CNN）的消息来源所报道的。
 
+据该电视频道称，在俄罗斯总统弗拉基米尔·普京与美国总统乔·拜登计划于夏季举行会晤之前，对乌克兰访问将明确显示华盛顿对基辅的支持。这样的访问具有特别重要的意义。
 
+有线电视新闻网的对话者补充说，布林肯对乌克兰的访问将允许讨论拜登和乌克兰领导人沃洛基米尔·泽伦斯基之间的潜在会晤。
 
+美国总统4月建议与普京在“第三国”的中立领土上会面。后来，普京的助手尤里·乌沙科夫说，他们的会面可能在6月进行。俄罗斯总统发言人德米特里·佩斯科夫证实，国家元首将在夏季会面，但他补充说，具体日期尚未确定。
 
+参考链接：
 
-
-
-凤凰网2021年04月26日引用新华社消息，简短75个字表述了原中央巡视组副部级干部董宏被最高检以受贿罪“依法逮捕”。董宏是2020年10月2号被中纪委监察委公布审查，2021年04月12号开除中共党籍，今日发布正式被逮捕消息。除了一些大陆媒体少量跟进外，在搜狗百科上已经查不到其人条目，百度百科也只是对“违记违法事实”多点着墨。
-
-
-
-**文字版原文：[【战友心声】中共内斗升级，王岐山还逍遥吗！](https://gnews.org/zh-hans/1142217/)**
-
-作者：纽约香草山健身部 文鹰
-
-
-
-音频处理/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://www.rbc.ru/rbcfreenews/60877ac79a7947c54e961162](https://www.rbc.ru/rbcfreenews/60877ac79a7947c54e961162)
 
 0
