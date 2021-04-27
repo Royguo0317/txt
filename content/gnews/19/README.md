@@ -1,120 +1,136 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共军工企业植入美国的“木马”
-` 薇文 HimalayaTorontoMapleLeaf` [轉載自GNews](https://gnews.org/zh-hans/1142288/)
+## 战友展览馆【4/26】
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1142609/)
 
-# 
+**西班牙巴塞罗那喜悦农场 **wenwu
 
-加拿大多伦多枫叶农场 薇文
-
-在DLA Piper (欧华律所，简称“DLA”) 的中文介绍里，有一个代表其服务水平的范例：DLA 代表**中国航空工业集团公司 (**简称“中航工业”**)**，在2011年收购一家知名的美国私人飞机制造商–西锐飞机设计制造公司( Cirrus Aircraft 简称“西锐” )。
-![](https://lh4.googleusercontent.com/YgNP_EiW2D3QgI3gGMZot_eu96uHSZTx1NppnXsNTapt-3e1hWpDV75Bingv0vOf7-Yx52SiujP1XIO6BMS-IkYOWcK5lTrP_K665-sYobfqc3JOan02VlhPNMJRKfZbHKaC9D4)图源：https://www.dlapiper.com › media › files › global…
-
-
-这个收购项目，被DLA 放在了所有成功案例之首，隐藏着什么含义？然而为什么其官网却无一字半句的信息？
-
-### **DLA简介**
-
-DLA 是美国一家从事商业、房地产和技术领域的全球性律师事务所，2019年营业收入列全球第三位。
-
-DLA 1988年就进入中国市场，在全球战略性交易和金融投资等关键环节为中共提供高端咨询服务，业务涵盖了航空、高科技、能源、金融、生命科学和房地产等行业。DLA是美国有军方背景的科恩集团 (TCG) 唯一的合作伙伴。
-
-美国现任副总统贺锦丽 (Kamala Harris)的丈夫任德龙 (Douglas Emhoff) 曾经是DLA的重要合伙人。他2017年加入DLA，2020年八月，因贺锦丽成为拜登的总统竞选伙伴暂离DLA，直到贺锦丽就职日之前才正式离开DLA 。
-
-### **中共军工企业收购美国企业**
-
-众所周知，中共一直来就想在民用航空上抗衡美国，跻身全球最大的飞机制造者之列。为此，中共不惜成本投入巨资，调动全国资源去实现这一野心。无奈胸怀高远大志，落地寸步难行。
-
-中共没有世界级的飞机研发和制造能力，更没有航空核心技术，而要建设一个支撑航空业发展的制造生态系统，没有几十年的功力简直痴人说梦。因此，唯一捷径就是收购海外相关资产和现有技术，通过资本运作，把他人技术据为己有。
-
-DLA 作为科恩集团的唯一合作伙伴，在中共眼里的价值，就是做中共智囊，运作跨境交易，其中就有帮助中共军方收购航空领域有价值的海外公司。
-
-这里介绍一个典型案例。
-
-- **中航通飞2011年收购西锐公司**
-
-
-位于明尼苏达州的私人飞机制造商西锐，专注于飞机操纵性、舒适性和安全性设计制造，是当时活塞单发飞机的领导者。1994年研制的SR20飞机，除了拥有先进的复合材料结构和空气动力学特性，最耀眼的是终极安全保护手段——机身降落伞系统 (CAPS) ，代表了当时最先进技术水平，也使这一系列的飞机在当时同级别机型中，全球销量最大。
-![](https://lh6.googleusercontent.com/ImCwzMjfNbcjcr7tDza6V-k1Yz3slz88SOJre14VNn_b0loAd8u4kjPYWqmgxK235PcRTuqwDkDMFcybo6qFyHuUCd4BkAEDc30IUqgOs0Y4GmY2OXgEmrAxTW13tcTxMAQPm0M)图源：https://www.cirrusapproach.com/caps-training/
-但2007年的全球金融危机，造成市场衰退，2009年西锐飞机的出厂量减少了51%，公司面临困境。西锐大股东欲撤资一直在找买家，直到2010年下半年，终于迎来接盘侠–**中航通用飞机有限公司**(简称“中航通飞”)。
-
-中航通飞隶属于中共十大军工企业之一—-中航工业 (AVIC)，其现任董事长来自中共国防科工委的“西航天鼎”，总经理则来自制造“歼”系列战斗机的中航沈飞。
-![](https://lh5.googleusercontent.com/e0QtD0F9IWugNhpTtDGCIQfucRdfrPIG4STeQOxiOzrsZSdLKexLPn7A_KPv8FBRssD_CFyNLdJifSm6iZ8jxsc4y1Not5GBsi4ZonGWLDXha0wMuSiUZtZOJ6XDUYw_jpmoDJc)图源：http://www.avicgeneral.com/sy/index.shtml
-中航通飞收购西锐公开的目的有二，一是为航空全产业链铺路，二是西锐全复合材料机身和整机配降落伞系统的技术。
-
-“保尔森基金会投资报告” 对该收购案例的分析：“中航空工业通飞很容易就可获得长期融资，因此从资金角度讲，收购西锐对其而言可以说是易如反掌。中航工业通飞的母公司—中航工业是最具影响力的战略性央企之一。”
-
-由于中航通飞是有军工背景和央企子公司，是典型的“军民融合”企业， 因此整个谈判过程中处于高度保密状态，“若稍有泄密，就有可能遭到政治阻挠。”
-
-在2011年2月，中航通飞以2.1亿美元价格，采用反三角合并方式，收购西锐公司100%的股权。于6月完成交割。这宗交易当年还获得金融时报的“国际创意交易奖”
-
-收购信息公布后，引来美国航空业和一些国会议员对工作机会和国家安全的担忧。明尼苏达州一议员因担心西锐的技术用于中共军事计划而强烈反对。但也有议员认为，美国完全没有必要担心中国人的此类投资。同时西锐也声明公司没有用于军事目的独特技术。 最终，反对意见未能影响到“ 美国外国投资委员会 ”(CFIUS)，以及美国有关航空和国家安全监管部门，交易顺利获得批准。
-
-“保尔森基金会投资报告” 中提到，原以为这宗交易买方来自中国军方的供应商，再加上国家安全和技术转移等因素，可能会因为政治考量而变得复杂不堪，没想到却以“轻舟已过万重山”的方式顺利完成了。美国政府甚至都没有任何表态。
-
-就这样，美国商业飞机公司首次纳入中共军工产业麾下，并以此为平台，打造美国产业基地，“通过美国基地以及与国内产业基地的协同发展，开拓全球通用飞机市场。”
-
-中共军方的这个目标，过了一个月就实现了。
-
-2011年7月，美国空军首次向中国军方–中航集团订购价值超过600万美元的SR-20教练机，制造商为中共军工航天集团全资控股的美国公司。
-
-“中国人成了美国空军的供应商，简直是一场革命”。美国媒体大惊失色的报道，某种程度也刺激了中共野心的膨胀。
-
-2015年5月27日，西锐在田纳西州建立了一个新的客户体验中心（称为“视觉中心”)。正如该州州长 Haslam所说： “田纳西州拥有不可思议的资源，例如橡树岭国家实验室和阿诺德工程开发综合体，可以帮助吸引航空航天公司。今天的公告是又一个重要步骤，就是我们成为东南地区高质量工作的首选之地。”
-
-**西锐收购案的两个秘密**
-
-一，中航通飞在收购中实际使用的资金约为3.5亿美元，是2.1亿收购价的1.67倍。
-
-2.1亿美元的收购价格，包括约8,600万美元收购西锐100%股权，以及交割时和交割后短期内支付西锐应付的债务和费用约1.24亿美元；此外，还投入1.4亿美元营运资金以满足西锐公司后续发展要求，但用在哪里却没有具体说明。
-
-二，DLA未提供中航通飞任何法律服务，所以其官网无任何信息。
-
-一位叫陈伯雄( Paul Chen)的香港人、杜威律师事务所（Dewey＆LeBoeuf）的合伙人，才是就该交易涉及的所有美国法律问题真正的法律顾问。
-
-陈伯雄既了解中共又熟知美国，他积极地揣摩并回应CFIUS委员们关心的问题，并使他们相信：中航通飞是一家国有企业，但这不意味着它是中央政府的臂膊。怎样让委员们转变观念，“不仅仅是通过律师，还要通过银行家和公关。” 他如是说。
-
-2012年9月，陈伯雄离开杜威律师事务所，成为DLA的合伙人，于是，这宗交易才成为DLA的服务范例。
-
-### **结语**
-
-中共倾一国之财力，通过军民融合的大型国企，收购美国涉及尖端技术的企业，仅仅是为了制造商用飞机赚钱吗？除了得到这些公司的技术和研发能力外，中共还有什么更险恶的企图？
-
-西锐被全资收购后，作为中共军企在美国境内的子公司，不仅以美国公司的名义进行研发和生产，2017年，西锐以美国公司的名义，试图进入美国橡树岭国家实验室 (Oak Ridge National Laboratories, 简称“ORNL”)进行研发工作。
-![](https://lh3.googleusercontent.com/k-zDXDY8bZlqwomLToSNbIx3KpbzEp4_2BJ9x1wP8XhDaBUBtahhufyIRMo4d1WLJNnLnS5c_4CEb6cevVWYZr7nJSUCphJZ9tk7S_0wNPr0pbghOnUKdbIQISkYI9nyVhue1rU)图源：Google Map
-ORNL是美国能源部下属的大型国家实验室，其前身是80年前“曼哈顿计划”的一部分，当初是生产和分离的铀和钚的地方。现在，ORNL拥有世界顶级的超级计算机，领先的中子和核能研究设施，生物能源科学中心，轻水核反应堆高级模拟联合体，还有最前沿的纳米材料科学中心和3D打印技术的研发中心。
-
-重点来了。用3D打印技术制造的飞机零部件更轻、更坚固，能提升飞机性能，中共“辽宁号”航母上的歼-15战斗机和最先进的歼-20都应用到了3D打印技术。还有欧洲的空中客车、美国F-22，中国的C919都应用了3D打印技术。
-
-这才是中共垂涎三尺、梦寐以求的核心技术。也是西锐选择与 ONRL毗邻的城市Alcoa Maryville 和 Knoxville 设立客服体验中心的真正原因。
-
-然而，美国人并没有意识到隐藏在西锐公司背后中共军方的企图。在西锐客户体验中心成立的庆贺典礼上，ORNL总监Thom Mason博士说：“就制造技术而言，这确实是令人兴奋的时刻。高性能计算，先进材料（例如Vision喷气机中的某些碳纤维）和某些新制造技术（如增材制造或3D打印）的结合，正以一种转变制造的方式融合在一起。 ”
-
-至此，中共不惜血本，全资收购类似西锐这样的“美国企业”，其真实意图已逐渐清晰。西锐之类的美国企业，是中共植入美国的“特洛伊木马”，用来偷盗美国技术，已达到抗衡美国的目的。
-
-（本文内容仅代表作者观点）
-
-参考链接
-
-[https://www.gnews.org/zh-hans/445509](https://www.gnews.org/zh-hans/445509)/
-
-[https://www.dlapiper.com › media › files › global…](https://www.dlapiper.com/~/media/files/service%20and-sector-recommended/global-services-for-chinese-companies--chi.pdf)
-
-[https://baike.baidu.com/item/%E8%A5%BF%E9%94%90%E9%A3%9E%E6%9C%BA%E8%AE%BE%E8%AE%A1%E5%88%B6%E9%80%A0%E5%85%AC%E5%8F%B8/5017206](https://baike.baidu.com/item/%E8%A5%BF%E9%94%90%E9%A3%9E%E6%9C%BA%E8%AE%BE%E8%AE%A1%E5%88%B6%E9%80%A0%E5%85%AC%E5%8F%B8/5017206)
-
-[https://www.163.com/dy/article/ES8GDVHI0519D6G8.html](https://www.163.com/dy/article/ES8GDVHI0519D6G8.html)
-
-[Dewey, King & Spalding Advise on Chinese Acquisition of U.S. Plane Maker](https://www.law.com/americanlawyer/almID/1202483808916/?slreturn=1&amp;hbxlogin=1)
-
-[Governor Haslam, Commissioner Boyd Announce Cirrus Aircraft to Establish New Customer Experience Center at McGhee Tyson Airport](https://www.tn.gov/former-governor-haslam/news/2015/5/6/governor-haslam-commissioner-boyd-announce-cirrus-aircraft-to-establish-new.html)
+战友展览馆【4/26】推文。如下
 
 
 
+> The Nature page missed some important figures:
+> Hongbing Shu (His Wife, Yanyi Wang: the director of WIV)
+> Fusheng Wang (PLA General, AMMS)
+> 
+> School of Public Health, HKU 
+> HAS a very close connection with WIV!
+> Malik Peiris, Kwok-yung Yuen, Yi Guan, Leo Poon
+> 
+> PLA-CCP-WHO-NIH Coalition [https://t.co/eQHP8DDnxE](https://t.co/eQHP8DDnxE) [pic.twitter.com/vHZAoMFNjh](https://t.co/vHZAoMFNjh)
+> — 德意志之鹰 (@dezying) [April 26, 2021](https://twitter.com/dezying/status/1386796409010147328?ref_src=twsrc%5Etfw)
 
-> [Flying high](https://law.asia/flying-high/)
+
+1. **[德意志之鹰推特](https://twitter.com/dezying/status/1386796409010147328?s=20)**：
+***（娜塔莉·温特斯）**福奇的NIAID科学家参加了武汉实验室峰会，现在从互联网上被擦拭了（附《国家脉动》[链接](https://thenationalpulse.com/exclusive/fauci-scientists-attended-wuhan-lab-conference/)）*
+***（德）**自然杂志页面遗漏了一些重要数据：舒红兵（妻子王延轶：武毒所监管）王福生（解放军将军，解放军传染病研究所）
+港大公共卫生学院与武毒所有非常密切的联系！马利克·佩里斯、袁国勇、管轶、潘烈文
+“解放军-中国共产党-世卫组织-美国国立卫生研究院”联盟*![]()![](https://gnews.org/wp-content/uploads/2021/04/Ez7vfcvWQAI4Dx2.png)（连接上推）
+*王福生（中）和同志们…*
 
 
-[ATP Announces Partnership With Continental Motors Enabling Maintenance Providers to Streamline Technical Information Management](https://www.prnewswire.com/news-releases/atp-announces-partnership-with-continental-motors-enabling-maintenance-providers-to-streamline-technical-information-management-300479399.html)
+> An important Tweet by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@himalaya\_de](https://twitter.com/himalaya_de?ref_src=twsrc%5Etfw)
+> Shows exactly how the Chinese Communist Party's biowarfare program works, a secret core military element linked to China's universities & research institutes linked to Western useful idiots like Peter Daszak & Edward Holmes. [https://t.co/I0pkSGWqVP](https://t.co/I0pkSGWqVP)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 26, 2021](https://twitter.com/LawrenceSellin/status/1386599325443272704?ref_src=twsrc%5Etfw)
 
-0
+
+2. **[Sellin博士](https://twitter.com/LawrenceSellin/status/1386599325443272704?s=20)**：
+***（慕尼黑感恩）**军医科三毒王：童贻刚（另外两个：曹务春、杨瑞馥） 曾任军事医学科学院微生物流行病研究所主任 WHO新冠溯源中方专家组动物与环境组组长 
+冠状病毒研究网络连连看：CDC高福，军医科曹务春，香港大学管轶袁国勇梁卓伟，武毒所石正丽周鹏，新加坡王林发，美国Peter Daszak, 澳洲Edwards Holmes
+**（Sellin)** #COVID19 的一条重要推文来自@himalaya\_de 侦探
+确切地展示了中国共产党的生物战计划是如何运作的，这是一个秘密的核心军事元素，与中共国大学和研究机构有关，与彼得·达扎克和爱德华·霍姆斯等西方“有用的白痴”有关*
+
+
+> "许多人说，既然我们无法改变中国的(共产党)政权，那我们就跟它做交易(共生)。 绝不可以! 我们无法改变它，我们可以切断与它的链接来保护自己。共产党太好战/太危险/太恶毒,无法维持任何正常(沟通)接触! " – 章家敦
+>  [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/IbdIkJxyQK](https://t.co/IbdIkJxyQK)
+> — Bo Lu II (文龍） (@BoLu213) [April 26, 2021](https://twitter.com/BoLu213/status/1386676097807421441?ref_src=twsrc%5Etfw)
+
+
+3. **[文龙推特](https://twitter.com/BoLu213/status/1386676097807421441?s=20)**（翻译）：
+*“许多人说，既然我们无法改变中国的(共产党)政权，那我们就跟它做交易(共生)。 绝不可以! 我们无法改变它，我们可以切断与它的链接来保护自己。共产党太好战/太危险/太恶毒,无法维持任何正常(沟通)接触! ” – 章家敦 #CommunistChina #CCP*
+
+
+> Yigang Tong is one of the leading Chinese experts in the WHO investigation team, but let's dig deeper:
+> He is formerly a PLA general (His successor in AMMS: Wuchao Cao and Ruifu Yang)
+> His research network: 😱
+> HKU
+> WIV
+> EcoHealth
+> …
+> The WHO report is a cover-up of biowarfare. [https://t.co/xHAH0obgc1](https://t.co/xHAH0obgc1) [pic.twitter.com/wy9XILbDEB](https://t.co/wy9XILbDEB)
+> — 德意志之鹰 (@dezying) [April 26, 2021](https://twitter.com/dezying/status/1386521530516099072?ref_src=twsrc%5Etfw)
+
+
+4.**[德意志之鹰推特](https://twitter.com/dezying/status/1386521530516099072?s=20)**：
+***（慕尼黑感恩）**军医科三毒王：童贻刚（另外两个：曹务春、杨瑞馥） 曾任军事医学科学院微生物流行病研究所主任 WHO新冠溯源中方专家组动物与环境组组长
+**（德）**童贻刚是世卫组织调查小组中领先的中共国专家之一，但让我们更深入地挖掘：曾任解放军大将（他继承了解放军病毒研究所：曹务春和杨瑞馥）
+他的研究网络：
+港大-武毒所-生态健康…
+世卫组织的报告掩盖了生物战*
+
+
+> Chinese officials blocked a meeting with US officials to discuss American concerns about China’s covert biological warfare program. Beijing’s military is working on ethnic biowarfare arms [https://t.co/IQkAPlGT0X](https://t.co/IQkAPlGT0X)
+> — Bill Gertz (@BillGertz) [April 25, 2021](https://twitter.com/BillGertz/status/1386439411475259392?ref_src=twsrc%5Etfw)
+
+
+5. **[比尔·格茨推特](https://twitter.com/BillGertz/status/1386439411475259392?s=20)**：
+中共国官员阻止与美国官员举行会议，讨论美国对中共国秘密生物战计划的担忧。北京军方正在研究种族生物战武器
+附[《华尔街时报》新闻链接](https://www.washingtontimes.com/news/2021/apr/25/china-nixed-biowarfare-meeting-coronavirus-queries/)![]()![](https://gnews.org/wp-content/uploads/2021/04/Ez4DG6BXsAAobAe.jpeg)6. 图片来自**[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1386549263606423554?s=20)**：
+*中共在财政上拯救了斯克里普斯（Scripps）研究公司，是否这就是为什么斯克里普斯公司在一篇被大量引用的 “科学 “文章《SARS-CoV-2的近端起源》中如此迅速地支持中共关于#COVID19来自大自然的说法？
+ #CCPVirus #UnrestrictedBiowarfare #OriginOfCOVID19*
+
+
+> Confirmation from [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) (谢谢) of the extensive Chinese Communist Party – Scripps Research collaboration. Scripps appears to be, in practice, a wholly-owned subsidiary of the CCP. [https://t.co/0xvxsLanSp](https://t.co/0xvxsLanSp)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 26, 2021](https://twitter.com/LawrenceSellin/status/1386564395313029120?ref_src=twsrc%5Etfw)
+
+
+7. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1386564395313029120?s=20)**：
+***（火来）**100%。自2016年斯克里普斯（Scripps）研究公司财务困难暴露以来，在过去的5年里，与中共达成了多项交易
+**(Sellin)**认证来自@jsdfposjpqyuee1（谢谢）中国共产党与斯克里普斯研究的广泛合作。
+在实践中，斯克里普斯似乎是中共的全资子公司。*
+
+
+> 21 Apr, 2021
+> – Some of concerns about COVID19 vaccines [https://t.co/OeuZTV1p6b](https://t.co/OeuZTV1p6b)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 25, 2021](https://twitter.com/DrLiMengYAN1/status/1386465731982897154?ref_src=twsrc%5Etfw)
+
+
+8. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1386465731982897154?s=20)**（附视频）：
+*（**战鹰团）**闫博士谈疫苗 現在還沒有有效的疫苗是因為～疫苗的副作用～病毒快速變異～它是超限生化武器～
+**（闫）**2021 年 4 月 21 日-关于新冠病毒疫苗的一些担忧*![]()![](https://gnews.org/wp-content/uploads/2021/04/Ez5ehnOXIAUPUNT.jpeg)9.图片**[来自Sellin博士](https://twitter.com/zhiyitw33/status/1386667568455368708?s=20)**（美国政要推特翻译）：
+*劳伦斯·塞林博士： 这些不是值得任何尊重的医生、科学家或军官。 他们只应受到谴责。 我支持中国人民。 我拒绝中国共产党 【图中贴出参与新冠病毒研制的 #中共军方 重要人员：金宁一，陈薇，曹务春，杨瑞馥，童贻刚，范泉水，王长军。并将他们与二战时期德国纳粹刽子手军医 约瑟夫·门格勒相提并论！
+译者注：约瑟夫·门格勒(Josef Mengele)，是二战时期的德国纳粹党卫军军官和医师。他在奥斯威辛集中营中进行致命试验，并为毒气室选择要被杀死的受害者。他亦被称为「死亡天使」】 #中共病毒 #超限生物武器 #超限生物战 #新冠病毒起源*
+
+
+> The Chinese Communist Party's biowarfare program exists at 3 levels, a core secret military program, a civilian/university program supporting it, which is linked to international programs, particularly US. 
+> Scroll down to see the network map being created[https://t.co/oIeZFJ4B01](https://t.co/oIeZFJ4B01)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 26, 2021](https://twitter.com/LawrenceSellin/status/1386536327550754818?ref_src=twsrc%5Etfw)
+
+
+10. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1386536327550754818)**：
+*中共的生物战计划有三个层次，一个是核心的秘密军事计划，剩下的是与国际计划与美国计划有连接，并以此支持它的民用和大学计划。
+向下滚动以查看正在创建的网络地图
+附[《每日邮报》新闻链接](https://www.dailymail.co.uk/news/article-9507749/How-scientists-Wuhan-lab-helped-Chinese-army-secret-project-animal-viruses.html)*![]()![](https://gnews.org/wp-content/uploads/2021/04/Ez4OcavWUAUlUpv.jpeg)11. 图片来自**[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1386561717539377152?s=20)**：
+*中共的军事生物战计划利用中共国的 “民用 “研究机构和大学，渗透到国际实验室，以获取技术和知识。这在美国的数百个地方正在发生。
+CCPVirus #COVID19*![]()![](https://gnews.org/wp-content/uploads/2021/04/Ez0cYJ1WQAAV0Gv.jpeg)12. 图片来自**[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1386297320485105668?s=20)**：
+*爆炸性的消息。安东尼·福奇为什么要资助 “科学怪人 “马利克·佩里斯博士？为什么美国食品和药物管理局在帮助他？为什么美国国立研究所的合同HHSN27220140000C如此隐秘？是不是因为HHSN2722014 “功能增强 “系列在2014年被 “暂停 “了？*
+【灭共时代】
+
+
+
+> 王岐山大管家董宏被捕！
+> 
+> 兵败如山倒。感觉“习亡岐山X”正在进行中。 [https://t.co/dj4kfr649k](https://t.co/dj4kfr649k) [pic.twitter.com/woqeuZo6h4](https://t.co/woqeuZo6h4)
+> — 瞿水台 Qu Shuitai (@QuShuitai) [April 26, 2021](https://twitter.com/QuShuitai/status/1386685220133429248?ref_src=twsrc%5Etfw)
+
+
+**[瞿水台推特](https://twitter.com/QuShuitai/status/1386685220133429248?s=20)**：
+*（11/20/20）王健最厉害的是创建了渤海金控！ 如果王健不死，第一个死的是董宏（王岐山的“大管家”，已被捕），第二个是陈峰，第三个可能就是王岐山。 王健死后的动静比死前还大！中共，香港人，法国人，美国人都在找王健的藏宝图
+（4/12/21）王岐山的“大管家“董宏今日落马，郭先生又蒙对了
+（4/26/21）王岐山大管家董宏被捕！ 兵败如山倒。感觉“习亡岐山X”正在进行中*
+
+
+
+
++2

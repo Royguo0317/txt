@@ -1,32 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【视频】&#8221;俄罗斯是穷人的天堂&#8221;那墙国呢？
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1141895/)
+## 4月26日美国政要和政评家推特精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1142019/)
 
-```
-視頻合成：文治
-文本：知道, Summer   
-编辑：滴水穿石
-```
+参议员瑞克·斯科特： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 对自由与自由的战争在变本加厉地继续。这是卑鄙的。我谴责 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 压迫性的审查，并赞扬赵婷（ChloéZhao）的成功。 【附纽约时报的报道：中共国对赵婷获奥斯卡奖噤声，但影迷们想方设法欢喜庆祝】
 
 
 
-
-【文本】
-
-来到了俄罗斯，我才发现这裡就是穷人的天堂啊。如果你失业，就在每天在家躺著，每个月有补助五万卢布，合人民币四千多块呢。他们最大的开销呢就是房子，而且住的越大，补助也就越多。如果你感觉还是不够花，那就多生孩子。对於俄罗斯人来说，即使一辈子不工作，吃喝也不愁啊。
-
-【观点】
-
-这个世界上的公共财务分配，有两个极端，过多的社会福利和过少的社会福利。前者呢，人们劳动的积极性不高，长期以往国家生產力下降。但是对于基层老百姓来说，生活安逸，人们的平安和健康都有保障。
-
-而后者，老百姓為了讨生活，没日没夜地工作，甚至白领也无法摆脱996（从早九点工作到晚九点，每周至少六天）的生活和早早被退休的命运。比如中共国，不管多麼辛苦地工作和赚钱都不能养活一家人，民不聊生。
-
-在中共国做老百姓，得到的尊重和生活质量常常不如西方国家的一只狗！
-
-【免责声明】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/QRcode_GGB_v2.jpg)
+> Communist China’s war against freedom and liberty rages on. It is despicable. I condemn this oppressive censorship by Communist China and applaud Chloé Zhao for her success. [https://t.co/SfPvJLYjGm](https://t.co/SfPvJLYjGm)
+> — Rick Scott (@SenRickScott) [April 26, 2021](https://twitter.com/SenRickScott/status/1386699886242979847?ref_src=twsrc%5Etfw)
 
 
-+7
+
+众议员迈克·华尔兹： 苹果公司和其他“醒来”的公司继续游说反对禁止美国公司使用 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 强迫劳工的法案。此举使他们自己蒙羞。你不能在美国大声疾呼社会正义的同时却又拥抱中共国种族灭绝的行为。 【每日电讯报报道：苹果等零售商继续就中共国奴工提案游说国会】
+
+
+
+> Apple and other “woke” corps continue to disgrace themselves in their efforts to lobby against bills that would prohibit American firms from using China forced labor. You can't call out social justice in the U.S. & embrace genocidal practices in China. [https://t.co/Elj62eYZO7](https://t.co/Elj62eYZO7)
+> — Rep. Mike Waltz (@michaelgwaltz) [April 26, 2021](https://twitter.com/michaelgwaltz/status/1386718075307937792?ref_src=twsrc%5Etfw)
+
+
+
+FBI： 中国政府通过最近的网络攻击，窃取了许多美国人的健康信息和个人身份信息。这些数据可以帮助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 针对个人进行潜在的监视、操纵或勒索。国家网络安全中心[@NCSCgov](https://twitter.com/NCSCgov) 【所附链接为，国家情报总监官网文章：中共国从美国收集基因组和其他医疗保健数据：隐私风险和美国经济与国家安全 】
+
+
+
+> Through recent cyberattacks, the Chinese government has stolen many Americans' health information and personally identifiable information. This data could help China target individuals for potential surveillance, manipulation, or extortion. [@NCSCgov](https://twitter.com/NCSCgov?ref_src=twsrc%5Etfw) [https://t.co/uWULxNAt23](https://t.co/uWULxNAt23) [pic.twitter.com/nxgnTIqsQX](https://t.co/nxgnTIqsQX)
+> — FBI (@FBI) [April 25, 2021](https://twitter.com/FBI/status/1386349513540001798?ref_src=twsrc%5Etfw)
+
+
+
+FBI： 中国政府通过最近的网络攻击，窃取了许多美国人的健康信息和个人身份信息。这些数据可以帮助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 针对个人进行潜在的监视、操纵或勒索。国家网络安全中心[@NCSCgov](https://twitter.com/NCSCgov) 【所附链接为，国家情报总监官网文章：中共国从美国收集基因组和其他医疗保健数据：隐私风险和美国经济与国家安全 】
+
+
+
+> Through recent cyberattacks, the Chinese government has stolen many Americans' health information and personally identifiable information. This data could help China target individuals for potential surveillance, manipulation, or extortion. [@NCSCgov](https://twitter.com/NCSCgov?ref_src=twsrc%5Etfw) [https://t.co/uWULxNAt23](https://t.co/uWULxNAt23) [pic.twitter.com/nxgnTIqsQX](https://t.co/nxgnTIqsQX)
+> — FBI (@FBI) [April 25, 2021](https://twitter.com/FBI/status/1386349513540001798?ref_src=twsrc%5Etfw)
+
+
+
+章家敦（中国问题专家）： [#基辛格](https://twitter.com/hashtag/%E5%9F%BA%E8%BE%9B%E6%A0%BC?src=hashtag_click) [#Kissinger](https://twitter.com/hashtag/Kissinger?src=hashtag_click) 曾说过，美国必须试着和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 共存。好，但如果中共国不想和我们共存呢？我们需要开始听听 [#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) 在说什么和看看他们实际上在做什么。[#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 【转商业内幕，基辛格谈疫情的后果等，和如何应对中国崛起】
+
+
+
+> [#Kissinger](https://twitter.com/hashtag/Kissinger?src=hash&amp;ref_src=twsrc%5Etfw) once again says the [#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw) must try to coexist with [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw): [https://t.co/HrH7u8eR73](https://t.co/HrH7u8eR73). Okay, but what if China has no intention to coexist with us? We need to start listening to what [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw) is saying and watching what it is in fact doing. [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Gordon G. Chang (@GordonGChang) [April 26, 2021](https://twitter.com/GordonGChang/status/1386682023352410119?ref_src=twsrc%5Etfw)
+
+
+
+美国防部部长奥斯汀： 我对印度的COVID-19疫情深感忧虑。今天，我指示国防部在我们的职权范围内使用所有可用的资源来支持美国的机构间工作，以向印度的一线医疗工作者提供他们所需的材料。 【附国防部长声明全文】
+
+
+
+> I’m deeply concerned about the COVID-19 outbreak in India, and today, I directed the [@DeptofDefense](https://twitter.com/DeptofDefense?ref_src=twsrc%5Etfw) to use every resources at our disposal, within our authority, to support U.S. interagency efforts to provide India’s frontline healthcare workers with the materials they need. [pic.twitter.com/v93iek3G2i](https://t.co/v93iek3G2i)
+> — Secretary of Defense Lloyd J. Austin III (@SecDef) [April 25, 2021](https://twitter.com/SecDef/status/1386464321723588610?ref_src=twsrc%5Etfw)
+
+
+
++3
