@@ -1,40 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普吁亚利桑那州长为选举审计提供安全保证
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1142862/)
+## 英国主流媒体关注曹茂春和陈薇与新冠病毒之间的联系
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1142847/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+撰稿：白雪
+![]()![](https://gnews.org/wp-content/uploads/2021/04/IMAGE-2021-04-27-130641.jpg)网络截图
+英国《**Daily Mail**》周日发文**”**令人担忧的有关Covid起源的新线索：武汉实验室的科学家通过秘密项目帮助中国军队发现动物病毒**“**。
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/AU-3.jpg)cbnc.com
-上周六（24日）川普总统发表声明，呼吁亚利桑那州长保证法庭重新计票工作人员的安全，声明说，“亚利桑那州州长杜西应该立即为勇敢的美国爱国者提供大规模的安全保障，让他们对2020年总统选举进行司法审查，杜西州长将对相关人员的安全负全部责任……”【1】
+**文章引发1300多条热议，其中一位的评论非常具有普遍性 – “我们都知道是从实验室泄漏出来的。 不用费神都能想明白。 调查小组甚至没有被允许进行适当的调查，而且WHO也只是一个在政治上受到损害的机构。 没有人会相信中国或世界卫生组织。**”
 
-面对不容乐观的形势，川普总统今天再次发表声明：【2】
+作者伊安**·**波尔（IAN BIRRELL）写道：
 
-2021年4月26日
-美利坚合众国第45任总统唐纳德·川普的声明
+- 武汉实验室的科学家正在研究动物病毒的大型项目
+- 《星期日邮报》获得的文件显示了一项全国性计划
+- 它是在九年前成立的，是由领先的国家机构领导的项目
+- 其目的是寻找新的病毒并检测与疾病传播有关的生物学“暗物质”-尽管否认有任何此类联系，但仍与军事官员一起
 
-亚利桑那州州长道格杜西（Doug Ducey），美国最糟糕的州长之一，也是美国第二糟糕的共和党州长，他正在拒绝为那些进行手工计算亚利桑那州选票的美国爱国者提供安全保障，这些选票操控了亚利桑那州2020年美国的大选。
 
-川普总统的担心不是没有道理，据传安提法人员住在审计体育馆周围的宾馆，州长把警力部署到了边境，难怪最近一段时间，这位州长一反常态地与拜登政府、巫婆佩洛西唱反调，承认有边境危机的情况，原来这里对民主党的危机更大。警力弱了，无法无天的安提法可以捣乱、恐吓进行审计的工作人员。
+两位军方**”**病毒王**“**曹务春**”**和**“**陈薇**”**在文中被提及。
 
-《门道专家》（Gateway Pundit）报道，一名与民主党关联很大的法官被任命，将于明天开庭审理此案，民主党试图继续阻止参议院对2020年选举结果的审计，预计明天举行新的听证会【3】。
+文章指出该计划的五名团队负责人包括被称为“蝙蝠女”的WIV病毒学家石正丽，以及高级陆军军官和生物恐怖主义政府顾问曹五春参与了去洞穴中寻找病毒样本的行程。
 
-面对民主党做贼心虚、孤注一掷的猖狂行为，亚利桑那州共和党主席凯利·沃德（Kelli Ward）博士则泰然若之，告诉《门道专家》：“这是美国的审计，是为了美国”（视频）【4】
+而对中国工程院院士、军事科学院军事医学研究院研究员陈薇则只是附了一副照片。有关陈薇的最新消息：**2021**年**2**月，陈薇团队领衔与康希诺生物股份公司研发的重组新冠疫苗（腺病毒载体）上市注册申请获得国家药品监督管理局附条件批准。
 
-还有个奇怪的现象，所谓的主流媒体，对这样事关美国宪政的大事没作报道，美国危矣。
+文章还指美国国务院对在武汉实验室进行冠状病毒操作的危险“功能获得”实验提出了担忧，并建议研究人员在中国城市更广泛爆发暴发流行几周之前就患上了**Covid**症状。
 
-若是没有文贵先生、爆料革命，美国真地要沦陷了。
+此前世界卫生组织和中国对大流行的起源进行了联合研究，认为实验室泄漏是“极不可能的”。
 
-参考链接：
+英美两国和其他12个国家批评北京拒绝共享关键数据和样本。
 
-【1】https://www.gnews.org/zh-hans/1134885/
+文章引用伦敦国王学院（King’s College London）的生物安全专家菲利帕·伦佐斯（Filippa Lentzos）的评论，最新披露符合北京的“不一致模式”。
 
-【2】[https://twitter.com/JennaEllisEsq/status/1386764726357594119/photo/1](https://twitter.com/JennaEllisEsq/status/1386764726357594119/photo/1)
+**“**他们对我们仍然不透明，我们没有关于大流行起源的确切数据，无论是从动物身上自然溢出还是某种与研究相关的意外泄漏，但我们都无法获得直接的答案，这根本就不会激发人们的信心。”
 
-【3】[https://www.thegatewaypundit.com/2021/04/maricopa-madness-new-judge-case-appointed-former-democrat-governor-janet-napolitano-opinions-now-vary-hearing-might-take-place-case/](https://www.thegatewaypundit.com/2021/04/maricopa-madness-new-judge-case-appointed-former-democrat-governor-janet-napolitano-opinions-now-vary-hearing-might-take-place-case/)
+（本文纯属个人观点）
 
-【4】https://www.thegatewaypundit.com/2021/04/exclusive-az-gop-chair-dr-kelli-ward-tells-gateway-pundit-americas-audit-america-video/
+审核：Gradient
+
+
+
+[原文链接：](https://t.co/Pb2axj57G7)
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
+
 
 0

@@ -1,67 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】灭共后的新政府筹备工作 ——信仰自由篇
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1141737/)
+## 4月26日美国政要和政评家推特精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1142019/)
 
-作者：纽约香草山福音部 小草
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+参议员瑞克·斯科特： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 对自由与自由的战争在变本加厉地继续。这是卑鄙的。我谴责 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 压迫性的审查，并赞扬赵婷（ChloéZhao）的成功。 【附纽约时报的报道：中共国对赵婷获奥斯卡奖噤声，但影迷们想方设法欢喜庆祝】
 
 
 
-中华民族是一个渴望信仰、向往礼仪的族群，但为什么我们对美好、良善的期许总是一再落空和被人利用呢？为什么中华民族的热情往往被浪费了呢？这些惨痛的结果造成几乎每一个国人都不相信生活还有明天，只愿今天得过且过。大多国人不再有盼望，也不敢有憧憬。我们不敢做自己的主，甚至连梦想都是别人塞给我们的“中国梦”——实际上是个邪灵。
-
-由此可见，未来的新中国联邦如果没有信仰、没有神的指导行正路，那一切的正义、法治、民主都是沙堡，都无法保证中华民族的灵性复兴，亦不能让每个人都过上行公义、好怜悯的生活。我们需要有灵性上地苏醒、觉悟和坚守，不让任何人偷走我们的信仰。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-471.png)
-
-未来新中国联邦应实行“信仰自由”这一国策。民众的信仰对象可以包括万神万佛。而政府也需对所有的福音和宗教一视同仁，反对一切宗教歧视、反对宗教商业化、反对邪教和宗教极端化。信仰和宗教则需在社会中履行劝善和社会关怀，做到扶弱救穷，并在社区中倡导正义、宣讲真话。所有信仰团体必须守法，在应对社会中出现的“假、恶、骗”行为有基本的态度和措施，做到世俗生活和信仰生活界限分明。
-
-一个教会的堕落往往基于两个因素——人的腐坏和财物的贪腐。教会人员的任命除了经由宗教协会委派外，还要进行教众选举，定期轮换，保证一个牧师在一个职位上不会停留太久。如果没有继任人选，教会牧师不可独自掌管教会财物，也不能随意支配任何钱财。而教会掌管财物的人员最好是在长老人员中推选，做到定期公布财会报告，重大财物使用交由全体教友投票决定。所有福音传讲人所收捐款不可进入私人账户，只能进入教会公共账户和慈善基金，且账目必须定期公开。学会管理好一个组织中的人和钱，才能做到初步民主。
-
-世俗生活需要教会的声音，但教会不能过于插手课堂教育、政治经济问题讨论、法律个案、媒体自由等等。社会中各司其职，教会可以规劝，但不能干预。教会不应让每一个社会问题都变成宗教问题，否则宗教领袖会成为社会领导人——这是我们需要避免的。实际上，宗教可以给社会问题指出方向和道路，再由一群有信仰的人来解决较稳妥。
-
-一个好的教会需有普及文字、知识、道德标准的基本职能；有洗涤心灵、规正行为的义务；有给人希望，惩治不公的能力；有为一切不公义的罪行，不能为自己发声的人呐喊的责任；有识恶、识魔、识妖怪并制服他们的本领。教会不是空中楼阁，不是摆设花瓶，不是高高在上的精神贵族，不是要你捐款的俱乐部。教会的领袖是神，但服务的是人。
-
-新中国联邦的一切教会团体要摒弃中共留下的垃圾：森严的等级、血统、种姓制度，地域、省份、人种的偏见，拜偶像、不敬神，穷富二极仇恨，扭曲的人际关系，虚假的历史教材，看待世界的偏见和无知等。可以说，信仰重建的工作艰巨但又伟大，也许这是中华民族最后一次被神拯救的机会，这个工作值得每一个宗教团体去做。从现在开始，不管你是摩门教、佛、道、大乘教、小乘教、天主教、基督教、新教……你爱中华民族，你就去做。
-
-（本文仅代表作者观点）
-
-相关阅读：
-
-[【战友心声】灭共后的新政府筹备工作——法治社会篇](https://gnews.org/zh-hans/1059484/)
-
-[【战友心声】灭共后的新政府筹备工作——儿童保护篇](https://gnews.org/zh-hans/1070426/)
-
-[【战友心声】灭共后的新政府筹备工作——女性启蒙篇](https://gnews.org/zh-hans/1083992/)
-
-[【战友心声】灭共后的新政府筹备工作——外交和军事篇](https://gnews.org/zh-hans/1124668/)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑：灵性探索
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+> Communist China’s war against freedom and liberty rages on. It is despicable. I condemn this oppressive censorship by Communist China and applaud Chloé Zhao for her success. [https://t.co/SfPvJLYjGm](https://t.co/SfPvJLYjGm)
+> — Rick Scott (@SenRickScott) [April 26, 2021](https://twitter.com/SenRickScott/status/1386699886242979847?ref_src=twsrc%5Etfw)
 
 
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+众议员迈克·华尔兹： 苹果公司和其他“醒来”的公司继续游说反对禁止美国公司使用 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 强迫劳工的法案。此举使他们自己蒙羞。你不能在美国大声疾呼社会正义的同时却又拥抱中共国种族灭绝的行为。 【每日电讯报报道：苹果等零售商继续就中共国奴工提案游说国会】
 
 
 
-+1
+> Apple and other “woke” corps continue to disgrace themselves in their efforts to lobby against bills that would prohibit American firms from using China forced labor. You can't call out social justice in the U.S. & embrace genocidal practices in China. [https://t.co/Elj62eYZO7](https://t.co/Elj62eYZO7)
+> — Rep. Mike Waltz (@michaelgwaltz) [April 26, 2021](https://twitter.com/michaelgwaltz/status/1386718075307937792?ref_src=twsrc%5Etfw)
+
+
+
+FBI： 中国政府通过最近的网络攻击，窃取了许多美国人的健康信息和个人身份信息。这些数据可以帮助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 针对个人进行潜在的监视、操纵或勒索。国家网络安全中心[@NCSCgov](https://twitter.com/NCSCgov) 【所附链接为，国家情报总监官网文章：中共国从美国收集基因组和其他医疗保健数据：隐私风险和美国经济与国家安全 】
+
+
+
+> Through recent cyberattacks, the Chinese government has stolen many Americans' health information and personally identifiable information. This data could help China target individuals for potential surveillance, manipulation, or extortion. [@NCSCgov](https://twitter.com/NCSCgov?ref_src=twsrc%5Etfw) [https://t.co/uWULxNAt23](https://t.co/uWULxNAt23) [pic.twitter.com/nxgnTIqsQX](https://t.co/nxgnTIqsQX)
+> — FBI (@FBI) [April 25, 2021](https://twitter.com/FBI/status/1386349513540001798?ref_src=twsrc%5Etfw)
+
+
+
+FBI： 中国政府通过最近的网络攻击，窃取了许多美国人的健康信息和个人身份信息。这些数据可以帮助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 针对个人进行潜在的监视、操纵或勒索。国家网络安全中心[@NCSCgov](https://twitter.com/NCSCgov) 【所附链接为，国家情报总监官网文章：中共国从美国收集基因组和其他医疗保健数据：隐私风险和美国经济与国家安全 】
+
+
+
+> Through recent cyberattacks, the Chinese government has stolen many Americans' health information and personally identifiable information. This data could help China target individuals for potential surveillance, manipulation, or extortion. [@NCSCgov](https://twitter.com/NCSCgov?ref_src=twsrc%5Etfw) [https://t.co/uWULxNAt23](https://t.co/uWULxNAt23) [pic.twitter.com/nxgnTIqsQX](https://t.co/nxgnTIqsQX)
+> — FBI (@FBI) [April 25, 2021](https://twitter.com/FBI/status/1386349513540001798?ref_src=twsrc%5Etfw)
+
+
+
+章家敦（中国问题专家）： [#基辛格](https://twitter.com/hashtag/%E5%9F%BA%E8%BE%9B%E6%A0%BC?src=hashtag_click) [#Kissinger](https://twitter.com/hashtag/Kissinger?src=hashtag_click) 曾说过，美国必须试着和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 共存。好，但如果中共国不想和我们共存呢？我们需要开始听听 [#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) 在说什么和看看他们实际上在做什么。[#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 【转商业内幕，基辛格谈疫情的后果等，和如何应对中国崛起】
+
+
+
+> [#Kissinger](https://twitter.com/hashtag/Kissinger?src=hash&amp;ref_src=twsrc%5Etfw) once again says the [#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw) must try to coexist with [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw): [https://t.co/HrH7u8eR73](https://t.co/HrH7u8eR73). Okay, but what if China has no intention to coexist with us? We need to start listening to what [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw) is saying and watching what it is in fact doing. [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Gordon G. Chang (@GordonGChang) [April 26, 2021](https://twitter.com/GordonGChang/status/1386682023352410119?ref_src=twsrc%5Etfw)
+
+
+
+美国防部部长奥斯汀： 我对印度的COVID-19疫情深感忧虑。今天，我指示国防部在我们的职权范围内使用所有可用的资源来支持美国的机构间工作，以向印度的一线医疗工作者提供他们所需的材料。 【附国防部长声明全文】
+
+
+
+> I’m deeply concerned about the COVID-19 outbreak in India, and today, I directed the [@DeptofDefense](https://twitter.com/DeptofDefense?ref_src=twsrc%5Etfw) to use every resources at our disposal, within our authority, to support U.S. interagency efforts to provide India’s frontline healthcare workers with the materials they need. [pic.twitter.com/v93iek3G2i](https://t.co/v93iek3G2i)
+> — Secretary of Defense Lloyd J. Austin III (@SecDef) [April 25, 2021](https://twitter.com/SecDef/status/1386464321723588610?ref_src=twsrc%5Etfw)
+
+
+
++3

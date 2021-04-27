@@ -1,75 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本驻澳大使称日本应加入“五眼联盟”情报网络
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1142313/)
+## 《路德社》精选新闻简讯翻译：与中俄紧张局势逐步加剧中，美军战舰与英国舰队在印太区域会师
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1142404/)
 
-翻译：康州盘古农场 – Mike Li
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-校对：康州盘古农场 – 柯镇恶
+![]()![](https://gnews.org/wp-content/uploads/2021/04/042701.png)皇家海军伊丽莎白女王号航母
 
-编辑：康州盘古农场 – 心照
+随着与中共国和俄罗斯紧张关系的加剧，下月，一艘美国驱逐舰将加入一只英国航母舰队，并一起在印太区域航行，该航母舰队由一艘耗资30亿英镑全新打造的英国[皇家海军伊丽莎白女王号航母](https://en.wikipedia.org/wiki/HMS_Queen_Elizabeth_%28R08%29)带领。
 
-据《The Sydney Morning Herald》 作者：Peter Hartcher，2021年4月21日报道
+周一，英国国防部宣布，5月美国[苏利文兄弟号驱逐舰](https://en.wikipedia.org/wiki/USS_The_Sullivans_%28DDG-68%29)将加入伊丽莎白女王号航母领衔的打击群，届时该打击群将访问印度，日本，韩国和新加坡。这次行动预计持续超过6个月，并访问超过40个国家。在此期间，打击群部队将参与超过70次军事行动，空中格斗演练，和其它行动。该行动是英国“印太战略倾斜”的关键部分，其战略旨在加强与亚洲盟国的安全关系，并加强对任何入侵的区域防御。
 
-日本驻澳大利亚大使称，日本正在朝着加入“英语国家战后情报网络”（即“五眼联盟”， Five Eyes）的方向稳步进展。
+这项行动的大背景是中共国与美国和西方盟友逐渐紧张的关系。本月6号，[中共军方宣布将在台湾岛附近进行军演](https://www.reuters.com/business/aerospace-defense/china-says-carrier-group-exercising-near-taiwan-drills-will-become-regular-2021-04-06/)；7号，[中共15架军机入侵台湾放空识别区](https://www.newsweek.com/china-warplanes-are-flying-near-taiwan-record-numbers-1585277)，7号当日，美国出动[约翰·S·麦凯恩号驱逐舰(DDG-56)](https://en.wikipedia.org/wiki/USS_John_S._McCain_%28DDG-56%29)穿越台湾海峡示警，然后招致中共国外交评击[点击查看](https://www.republicworld.com/world-news/us-news/us-navy-vessel-casually-transits-through-taiwan-strait-amid-china-tensions-pokes-beijing.html)。早在2020年10月9日，[美军新闻发布会](https://www.navy.mil/Press-Office/News-Stories/Article/2379054/uss-the-sullivans-joins-british-carrier-task-group-for-exercise-joint-warrior-2/)就表示，英国与美国之间的“特殊关系”是部署“苏利文”号的唯一原因，并且两国正在准备全球部署，发布会还向“对手”展示了“苏利文”号给航母战斗群带来的毁灭性打击能力。
 
-2020年12月上任的山上信吾说：“我对不久的将来感到非常乐观”。他说“希望看到这个想法在不久的将来成为现实”。
+美英两国海军的联手还只是刚刚开始，随着新冠病毒真相的步步揭露，作者相信最后194个国家都会联合起来消灭中国共产党。
 
-澳大利亚和新西兰在1956年加入了美国、英国和加拿大，组成了“五眼联盟”（Five Eyes），那次也是该组织最后一次接纳新成员。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/hyhyh6.png)
-日本大使山上信吾：“这是这些国家共享普世价值和战略利益的一个标志。”
+[援引原文](https://www.newsweek.com/us-warship-join-uk-fleet-indo-pacific-china-1586416?amp=1&amp;utm_term=Autofeed&amp;utm_medium=Social&amp;utm_source=Twitter&amp;__twitter_impression=true)
 
-“从逻辑上讲，就利益和能力而言，日本是最佳人选，”澳大利亚国立大学国家安全学院院长罗里·梅德卡夫（Rory Medcalf）说。
+本文翻译：红胡子
+审核校对：鲁邦五世
+上传排版：糖果儿
 
-“如果说有一个国家对中共国有深入细微的了解，那就是日本。在大部分时间里，“五眼联盟”被视为一个不可改变的联盟，但我认为与时俱进很重要。”
-
-在新西兰对增加“五眼联盟”覆盖范围表达保留意见的情况下，日本成为“第六只眼”的想法格外引人关注。
-
-曾任日本外务省情报部门负责人的山上说：“我们正在不断与澳大利亚情报界、日本情报界以及五眼联盟的其他成员建立具体的联系。”
-
-他在接受《悉尼先驱晨报》（The Sydney Morning Herald）和《时代报》（The Age）采访时说：“因此，这确实是正在真实发生的事情，日本的政治家和官员越来越意识到其重要性。”
-
-他说：“这是这些国家共享普世价值和战略利益的一个标志”。这六个国家都是民主国家，而且都把中共国视为战略对手。
-
-五眼国家通过持续的、最高机密的交流，彼此分享电子情报。梅德卡夫教授说：“这其实是情报机构之间互相信任，分享他们最敏感的材料”。
-
-日本将是一个有益的补充，因为它“被认为拥有自己强大的情报收集和评估分析能力”。
-
-他说，要满足“五眼联盟”的规则和协议，从而被完全接纳，对日本来说将是一个 “重大的体制挑战”。在发展成为一个正式的“六眼”联盟之前，可能尝试“五眼”加 “一眼”是更现实的。
-
-与此同时，新西兰外交部长纳尼亚·马胡塔（Nanaia Mahuta）说，新西兰政府对于利用“五眼联盟”作为外交平台不感兴趣。
-
-“我们对扩大‘五眼联盟’的职权范围感到不安，”她周一对“新西兰对中委员会”说。
-
-“我们更愿意寻找多边机会来表达我们的利益。” 马胡塔似乎对来自北京的抱怨置之不理。
-
-“五眼联盟”国家发表了一份联合声明，该声明对北京在2020年11月镇压香港的民主政治家的行为表示谴责。
-
-中共国政府的一位发言人对此发出批评。
-
-“不管他们是有5只眼睛还是有10只眼睛，如果他们胆敢损害中国的主权、安全和发展利益，就要小心他们的眼睛被戳瞎，”中国外交部的赵立坚在去年11月的一次日常简报会上说。
-
-日本是美国的长期条约盟友，向美国提供亚太地区的主要军事基地。山上说，为了加入“五眼”联盟，东京需要在“改善日本的情报界和立法方面”做“大量的准备”。
-
-山上将日本与澳大利亚的关系描述为“非常好”，并说“一切皆有可能”。
-
-他说，在中共国政府实施的惩罚性贸易制裁下，“全世界的目光现在都在关注经历巨大困难的澳大利亚”。
-
-他说，美国总统拜登和日本首相菅义伟周末的峰会“对澳大利亚来说是一次很好的会议”，因为两位领导人在其联合声明中特别谴责了使用经济胁迫的行为。
-
-山上说：“每个人都明白他们指的是谁（中共），所以这是一个很好的进步”。
-
-莫里森总理与拜登、菅义伟和印度总理纳伦德拉·莫迪一起参加了3月举行的四国集团领导人级会议的开幕式。
-
-四位民主国家领导人承诺建立“自由和开放的印度洋、太平洋”，这是对北京在该地区的扩张野心的间接斥责。
-
-原文链接：[https://www.smh.com.au/world/asia/japan-should-join-five-eyes-intelligence-network-says-ambassador-20210420-p57kv6.html](https://www.smh.com.au/world/asia/japan-should-join-five-eyes-intelligence-network-says-ambassador-20210420-p57kv6.html)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-
-
-+1
+0
