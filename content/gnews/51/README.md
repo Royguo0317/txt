@@ -1,65 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104026（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1141459/)
+## 勿忘四·二六社论
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1141491/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+#### 作者：帕丁顿
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20080425095219622.png)*1989年4月26日人民日报发表曾建徽起草的社论《旗帜鲜明地反对动乱》，将学运定性为动乱。激四二六社论杀气腾腾，发出了血腥镇压的信号。（六四档案图*）
+1989年4月15号胡耀邦去世后，引发的学生到天安门要见李鹏，当时的中国人基本上都在骂“官倒”，骂李鹏，骂邓小平，就像现在的老粉红、小粉红骂美国日本一样。我一个组的老师傅们，用方言。一张嘴就是“邓矮子”怎么样怎么样，从我住的城市到长沙的路上，路边一家饭店就叫“自由饭店“，地点就在一个叫“黄茅”的村子。
 
+一个场景可以再现当时的民意：长途客车陷在一个小坑里动弹不得，车上的售票员要乘客都下车减轻负重，车子还是摆脱不掉小坑。这个时候一个40来岁的汉子吆喝道：“北京的学生伢子一下子就把警车掀翻了，我们这么多人还推不动这辆车”？每天中午12点，CCTV都会直播天安门现场。哪些人从湖南的大学到了天安门，我的一个亲戚告诉我，长沙开往北京的火车连行李架上都坐满了人，车厢裡是一片欢乐的海洋。记得湘潭大学有英俊的美国青年老师，天天鼓励学生，最后还忘不了鼓励一句”你们要小心“……这只是在湖南的三线城市发生过的事。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+那么推测一下具有五四传承，而且有一大批精神领袖的北京会是啥样？ 学校里有方励之，刘晓波，企业有四通，企业家有万润南。在这十来天里，中南坑老杂毛们一声不吭，直到4月26号，人民日报社论《要旗帜鲜明的反对动乱》发表，中南坑准备再次向人民举起屠刀（估计和老布什谈好了），随后情况骤然变化。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01-17.jpg)
+我们厂团委和隔壁的市交通警察大队开联欢会，交警队的一个负责人上台讲话，讲到第4，5句话就是”要旗帜鲜明的反对动乱“。共匪篡权后唯一的开明10年就在32年前的今天结束了，李慎之评价：**「**六四打开一道闸门，全党贪污，全民犯罪**」**。我所经历过的读书不用学费，发助学金（足够伙食费），看病不要钱，毕业包分配，开始悄无声息的退出共产党政权的运营体系，无数罪恶开始扑向10多亿中国人民，真正开始暗无天日。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02-18.jpg)
+2017年郭先生开始的爆料革命，及2020年6月4号成立的新中国联邦必将击破邪恶的共产党罩在中国人民头上的共产魔咒，并一鼓作气把中南坑老杂毛和他们冥顽不化的几个喽罗送到无间地狱。
+（本文仅代表作者个人观点，跟GNEWS平台无关。）
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03-17.jpg)
+* * *
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-19.jpg)
+***编辑整理/校对:** Ting Guo*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05-17.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06-15.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07-15.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08-15.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09-15.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-22.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-27.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-26.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-20.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-19.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-19.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-15.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-13.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/18-10.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/19-9.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/20-7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/21-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/22-3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/23-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/24-1.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
-
-+2
++1
