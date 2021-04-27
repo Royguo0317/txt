@@ -1,36 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【各抒己见】灭共战友是一家
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1140305/)
+## 慧眼看世界202104026（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1141459/)
 
-作者：喜马拉雅东京樱花团 / 李文星
-
-![](https://lh4.googleusercontent.com/WwmSBuT4RrbESNIvN3-PXKrswS5zOPcTaiRWIfT5MrhYYnYKzALDCTx7xq3AVkhqna28shcKAAcgrVpN6wDrSL13XbbQrfVUWhXhdiNhnRssoWHzYWFFOPzzSoRjY9cPSmWhDIql)
-东京方舟农场&东京樱花团 4.24集会现场
-
-4月24日，在东京新宿车站南口，由新中国联邦日本方舟农场主办、樱花团积极响应支援，共同举办了一场以“切割中共不代表中国人，揭露CCP病毒真相”为主题的街头集会活动。集会日恰巧赶在东京都再次进入紧急状态的前一天得以顺利进行，同时考虑到新宿车站是全世界最繁忙的车站，也是东京最重要的交通枢纽地，希望借此活动机会引起更多的日本民众关注CCP病毒真相，希望更多日本人能反思：到底是什么原因导致了再次进入紧急状态，谁才是真正的罪魁祸首……
-
-方舟农场经过一段时间的构思并做了实地考察等一系列的前期准备，樱花团在接到方舟农场负责人草根小哥的盛情邀请后，第一时间积极动员樱花团战友4.24上街支援这次集会活动。其实在战友们的心里，农场是不分家的，都是爆料革命战友，新中国联邦所有战友都是兄弟姐妹，所有农场都隶属新中国联邦！我们是一家人！
-
-揭露CCP病毒真相活动虽然是当天下午14:00才开始，但是方舟农场和樱花团战友12点多早早就到了现场，战友们那种每次上街都迫不及待的心情只有战友才能懂。战友们到现场后亲切打招呼，互相问候，同时每个战友又井然有序地执行各自担任的职务，打横幅标语、发传单、扛国旗、穿病毒服、摄影、演讲和现场警备等等。一切迅速按部就班各就其位，都缘于方舟农场前期的统筹运作和樱花团的积极配合，灭共从来都不是一个人的事，也不是单个团队的事。
-
-东京的新宿车站客流量非常大，过往的行人有的瞩目，有的与战友们进行关于CCP病毒真相交流，当然也有个别中共国粉红对战友进行辱骂，面对粉红的挑衅和辱骂，战友不卑不亢用慈悲之心化之。方舟农场主草根小哥和樱花团团长定于二尊在现场发表了揭露CCP病毒真相的演讲，现场发表演讲的还有两个农场的其他战友以及支持新中国联邦的日本人。
-
-当活动结束战友们正在大合影的时候，一个日本小痞子过来辱骂挑衅，瞬间激怒了战友，战友们保持克制，整齐划一地朝着捣乱的小痞子怒吼：“打倒共产党！打倒共产党！打倒共产党！”几个负责警备的战友迅速迎上前去，战友们灭共的决心和气势瞬间灭掉了日本小痞子挑衅的气势，狼狈逃走。
-
-本次活动，不仅限于方舟农场和樱花团，还有来自香草山和其他农场的日本战友，爆料革命战友是一家人，全球所有农场的战友都有一个共同的目标：就是灭共！建立新中国！
-
-*免责申明：本文只代表作者观点，与GNews网站无关。*
-
-*校对：喜马拉雅东京樱花团 / 東洋武士*
-*责任编辑：喜马拉雅东京樱花团 / 文小白*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews.org/wp-content/uploads/2021/04/二维码-2.jpg)
-0425C121c
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-17.jpg)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-18.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-17.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-19.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-17.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-22.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-27.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-26.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-20.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-19.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-19.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-13.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/18-10.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/19-9.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20-7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/21-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/22-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/23-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/24-1.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 +2

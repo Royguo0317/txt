@@ -1,51 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】呐喊
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1140651/)
+## 【视频】&#8221;俄罗斯是穷人的天堂&#8221;那墙国呢？
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1141895/)
 
-配音：香草山录音组 Swr拥抱太阳
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-
-
-大风把我灌醉
-
-树叶在天上跺脚
-
-我想呐喊
-
-泉水却在身边小声地流
-
-把沉默交给落叶
-
-随风而去
+```
+視頻合成：文治
+文本：知道, Summer   
+编辑：滴水穿石
+```
 
 
 
-**文字版原文：[【香草诗词汇】呐喊](https://gnews.org/zh-hans/584501/)**
 
-作者：香草山写作组 木白
+【文本】
+
+来到了俄罗斯，我才发现这裡就是穷人的天堂啊。如果你失业，就在每天在家躺著，每个月有补助五万卢布，合人民币四千多块呢。他们最大的开销呢就是房子，而且住的越大，补助也就越多。如果你感觉还是不够花，那就多生孩子。对於俄罗斯人来说，即使一辈子不工作，吃喝也不愁啊。
+
+【观点】
+
+这个世界上的公共财务分配，有两个极端，过多的社会福利和过少的社会福利。前者呢，人们劳动的积极性不高，长期以往国家生產力下降。但是对于基层老百姓来说，生活安逸，人们的平安和健康都有保障。
+
+而后者，老百姓為了讨生活，没日没夜地工作，甚至白领也无法摆脱996（从早九点工作到晚九点，每周至少六天）的生活和早早被退休的命运。比如中共国，不管多麼辛苦地工作和赚钱都不能养活一家人，民不聊生。
+
+在中共国做老百姓，得到的尊重和生活质量常常不如西方国家的一只狗！
+
+【免责声明】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/QRcode_GGB_v2.jpg)
 
 
-
-音频处理/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++7

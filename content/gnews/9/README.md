@@ -1,42 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报-香港篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1140783/)
+## 【战友心声】中共内斗升级，王岐山还逍遥吗！
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1142217/)
 
-- 作者：蚂蚁兄弟
+香草山写作组 童谣
 
+凤凰网2021年04月26日引用新华社消息，简短75个字表述了原中央巡视组副部级干部董宏被最高检以受贿罪“依法逮捕”。董宏是2020年10月2号被中纪委监察委公布审查，2021年04月12号开除中共党籍，今日发布正式被逮捕消息。除了一些大陆媒体少量跟进外，在搜狗百科上已经查不到其人条目，百度百科也只是对“违记违法事实”多点着墨。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screen-Shot-2021-04-26-at-7.23.14-PM.png)图片来源：新唐人电视台
+董宏作为王岐山的“白手套”被正式逮捕，王公公虽然给习大神私下勾兑，保留了一点面子。但中共历来党内你死我活的内斗能消停下吗？不可能的！只要共产党在地球多存活一秒钟，不仅危害全人类，让世界永无宁日。共产党体制内部更是巨大的绞肉机，无论开国元勋、红二代、官三代等任何人也无路可逃。共产党对自己体制内的人更是残酷无情。他们近百年的进程，无处不是在血腥残暴欺骗谎言中，踏着亿万劳苦大众的尸体前行的。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+王岐山难当“林彪”第二，会坐以待毙吗？曾庆红坐山观虎斗还会观望吗？袁世凯、华盛顿在那里？体制内的人早一点清醒早一点行动，别让联军真的来临，给中华大地带来更大的伤害。
 
-**西班牙2021年4月26日电/西喜社——**
+参考来源：[https://ishare.ifeng.com/c/s/v002KmSBywsJ-\_ghsGHQAJWKpngm07HTXpYAZ3TkvnjOQBc8\_\_](https://ishare.ifeng.com/c/s/v002KmSBywsJ-_ghsGHQAJWKpngm07HTXpYAZ3TkvnjOQBc8__)
 
-您若想了解新闻全文报导内容，请点击新闻标题链接
+[https://hk.epochtimes.com/news/2020-10-02/48387318](https://hk.epochtimes.com/news/2020-10-02/48387318)
 
-**1. [为什么中国领导人习近平如此害怕香港和黎智英？](https://eu.usatoday.com/story/opinion/2021/04/24/jimmy-lai-hong-kong-democratic-protesters-beijing-oppression-column/7286271002/)**
+编辑/审核/发稿：正义的小新
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+**更多资讯，更多关注**
 
-今日美国时政评论人：James B 近日发表社评： 自4月16日黎智英和其他九名香港民主派领导人因在2019年8月进行和平示威而被判处监禁。进一步显示了北京的压迫和对香港法治的粉碎，再次证明香港法官在香港的自由棺材上钉了更多的钉子。
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**2.  [社会倒退：在港版国安法下，民主人士是否仍起作用？](https://hongkongfp.com/2021/04/25/back-to-the-wilderness-is-there-still-a-role-for-democrats-under-hong-kongs-new-national-security-regime/)**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-香港自由记者HKFP 4月25日，Suzanne Pepper 发表一篇长篇评论：自6月30日以来，香港最有前途的民主人才要么逃往海外，要么被关进监狱，他们最杰出的长者也因多种罪名被起诉关押。此篇文章记录香港人勇敢的为民主发声的各种活动，香港国安法后的真实投票现状，以及对香港的前途在哪里提出质疑。
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-**3. [在 “香港民主之死 “之后，一位前立法委员在流亡中与中共对抗](https://www.thenation.com/article/world/ted-hui-interview/)**
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-国家报4月21日消息，面对中共实施的一项新的国家安全法的多项指控，前香港立法委员许志峰与他的家人去年12月逃往欧洲。上个月，他抵达澳大利亚，他将在那里过着流亡生活，直到他可以安全返回。在中共通过了一项允许当局取消四名民主人士资格的决议后，许志锋与其他民主派立法者一起于11月从立法会辞职。此举使立法机构自1997年城市从英国移交给中国以来首次没有反对派阵营。
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-**4. [关于2019年香港抗议活动的电影争夺奥斯卡奖，激怒了中共](https://www.aljazeera.com/news/2021/4/25/do-not-split-exposes-emotional-toll-of-2019-hong-kong-protests)**
-
-半岛电视台4月25日宣传“不割席”香港抗议运动纪录片，反应的是真实的2019年香港运动，并不回避抗议活动中的暴力，但要表达的是香港的年轻人为保护他们所爱的城市而奋斗和他们的情感悲伤。
-
-**5. [香港媒体遭遇正面攻击，记者成为当局新目标](https://www.nytimes.com/2021/04/22/world/asia/hong-kong-free-press-rthk.html)**
-
-随着中共在香港扼杀不同意见，新闻机构发现自己处于当局的控制之下。
-
-据纽约时报4月22日消息 ，香港—香港警察局长警告记者，他们可能因报道 “假新闻 “而受到调查。一家由中国政府控制的报纸呼吁取缔该市最大的民主派新闻媒体机构。蒙面人洗劫了一家批评中国共产党的出版物的办公室，并捣毁了其印刷机。
-
-审核：蚂蚁兄弟；校对：信心的选择；发稿：信心的选择
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
-
-+2
+0

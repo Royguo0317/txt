@@ -1,39 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅新闻】武汉P4实验室的中共军方背景首次进入主流媒体视野
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1140120/)
+## 《路德社》精选新闻简讯翻译：与中俄紧张局势逐步加剧中，美军战舰与英国舰队在印太区域会师
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1142404/)
 
-**作者：**休斯顿星光农场 写作部 文顺
-![]()![](https://gnews.org/wp-content/uploads/2021/04/GNEW-GTV-MOS-LOGO-2.jpg)
-**4月26日，英国《每日邮报》揭露武汉P4实验室研究人员代表中共军方研究动物病毒，中共武汉实验室首次进入主流媒体视野。**
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-据英国《每日邮报》周日报道，他们获得的新文件显示，武汉P4病实验室的研究人员在过去9年里一直代表中共军方研究包括蝙蝠在内的动物病毒。此前，中共军方否认了将他们与武汉实验室联系起来的指控。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-04-26-024320.jpg)
-*图片来源：Daily Mail*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/042701.png)皇家海军伊丽莎白女王号航母
 
-该文件详细介绍了一个名为 “发现野生动物携带的动物病原体 “的重大项目，该项目旨在寻找可能感染人类的生物体并研究其进化，并试图发现新的病毒并检测参与传播疾病的生物学的”暗物质”。
+随着与中共国和俄罗斯紧张关系的加剧，下月，一艘美国驱逐舰将加入一只英国航母舰队，并一起在印太区域航行，该航母舰队由一艘耗资30亿英镑全新打造的英国[皇家海军伊丽莎白女王号航母](https://en.wikipedia.org/wiki/HMS_Queen_Elizabeth_%28R08%29)带领。
 
-该项目于2012年启动，由中共国家自然科学基金资助，徐建国领导。徐建国在2019年的一次会议上吹嘘说：“一个巨大的传染病预防和控制网络正在形成。”该项目的五位小组长包括绰号为”蝙蝠女”的中共武汉病毒学研究所（WIV）病毒学家石正丽（Shi Zhengli）和高级军官、中共政府生物反恐顾问曹务春。
+周一，英国国防部宣布，5月美国[苏利文兄弟号驱逐舰](https://en.wikipedia.org/wiki/USS_The_Sullivans_%28DDG-68%29)将加入伊丽莎白女王号航母领衔的打击群，届时该打击群将访问印度，日本，韩国和新加坡。这次行动预计持续超过6个月，并访问超过40个国家。在此期间，打击群部队将参与超过70次军事行动，空中格斗演练，和其它行动。该行动是英国“印太战略倾斜”的关键部分，其战略旨在加强与亚洲盟国的安全关系，并加强对任何入侵的区域防御。
 
-虽然石正丽否认了美国关于武汉病毒学研究所（WIV）与中共210万武装部队之间合作的指控，但是曹务春上校作为中共人民解放军军事医学科学院的研究员被列入项目报告。他与其他军事科学家密切合作，并担任军事生物安全专家委员会主任。曹上校甚至担任武汉病毒学研究所的顾问委员会成员，是中共国家顶级生物防御专家陈薇少将率领的军事小组的二把手。
+这项行动的大背景是中共国与美国和西方盟友逐渐紧张的关系。本月6号，[中共军方宣布将在台湾岛附近进行军演](https://www.reuters.com/business/aerospace-defense/china-says-carrier-group-exercising-near-taiwan-drills-will-become-regular-2021-04-06/)；7号，[中共15架军机入侵台湾放空识别区](https://www.newsweek.com/china-warplanes-are-flying-near-taiwan-record-numbers-1585277)，7号当日，美国出动[约翰·S·麦凯恩号驱逐舰(DDG-56)](https://en.wikipedia.org/wiki/USS_John_S._McCain_%28DDG-56%29)穿越台湾海峡示警，然后招致中共国外交评击[点击查看](https://www.republicworld.com/world-news/us-news/us-navy-vessel-casually-transits-through-taiwan-strait-amid-china-tensions-pokes-beijing.html)。早在2020年10月9日，[美军新闻发布会](https://www.navy.mil/Press-Office/News-Stories/Article/2379054/uss-the-sullivans-joins-british-carrier-task-group-for-exercise-joint-warrior-2/)就表示，英国与美国之间的“特殊关系”是部署“苏利文”号的唯一原因，并且两国正在准备全球部署，发布会还向“对手”展示了“苏利文”号给航母战斗群带来的毁灭性打击能力。
 
-近年来，中共军方加大了对科学家的招聘力度，此前习近平表示，这是中共迈向全球霸主地位的关键因素。
+美英两国海军的联手还只是刚刚开始，随着新冠病毒真相的步步揭露，作者相信最后194个国家都会联合起来消灭中国共产党。
 
-曾为中共政府工作的持不同政见者韩连潮（音译）表示，曹务春的介入令人怀疑，作为冠状病毒专家的军事研究人员也可能参与生物防御行动。他还说：“多年来，许多人一直在与西方研究机构合作，窃取我们的技术，但在此次大流行造成300多万人死亡一年后，中共仍拒绝分享关键信息。”
+[援引原文](https://www.newsweek.com/us-warship-join-uk-fleet-indo-pacific-china-1586416?amp=1&amp;utm_term=Autofeed&amp;utm_medium=Social&amp;utm_source=Twitter&amp;__twitter_impression=true)
 
-领导国务院调查中共武汉病毒起源的生物、化学和核扩散专家大卫·阿舍（David Asher）表示：”中共已经明确表示，他们视生物技术为混合战争未来的重要组成部分。最大的问题是，他们在这些领域的工作是进攻还是防御。”
+本文翻译：红胡子
+审核校对：鲁邦五世
+上传排版：糖果儿
 
-这是主流媒体自病毒爆发以来首次正面报道中共军方参与制造武汉病毒，One America主持人杰克·波索比奇在推特评论说：“主流媒体终于发现了武汉。”
-
-信息来源：
-
-[How scientists at Wuhan lab helped Chinese army in secret project to find animal viruses | Daily Mail Online](https://www.dailymail.co.uk/news/article-9507749/How-scientists-Wuhan-lab-helped-Chinese-army-secret-project-animal-viruses.html)
-
-編輯/校對/發稿：Helen
-
-更多資訊，歡迎點擊[休斯頓星光農場官方推特賬號](https://twitter.com/HLitstar?s=20)
-
-更多節目資訊，歡迎進入[休斯頓星光GTV官方鏈接](https://gtv.org/user/6031a8c0047c4c3086d7683f)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-03-25-230524-1.jpg)
 0

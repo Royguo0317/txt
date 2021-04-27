@@ -1,47 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】这个秋天
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1140619/)
+## 中共以经济实力作政治武器 澳政府不吃这一套
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1141787/)
 
-配音：香草山录音组 Gtv abeilles（蜜蜂）
+俄罗斯莫斯科喀秋莎农场  爱真理
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/A-33-4.jpg)7news.com.au
+中共国越来越多地将其经济实力用作政治武器，但这常常引起强烈反对。最新的例子是澳大利亚，外交部长马里斯·佩恩（Marise Payne）上周取消了维多利亚州与中共国政府之间的两项投资协议。
 
+北京计划与维多利亚州在基础设施，生物技术，先进制造和技术方面进行合作。上周取消的2018年谅解备忘录和2019年框架协议是中共国“一带一路”倡议的一部分，该倡议旨在利用资金和软实力扩大其全球影响力。
 
+澳大利亚知道中共国千篇一律的经济外交是什么样子。堪培拉2018年禁止中共国电信公司使用其5G网络，去年澳大利亚支持对中共病毒的起源进行独立调查。中共国是澳大利亚的最大贸易伙伴，中共已对澳大利亚的葡萄酒，牛肉，煤炭，龙虾，木材，大麦，糖和铜矿石征收关税和贸易限制。
 
+经济学家马塞尔·泰勒安（Marcel Thieliant）估计，“受限制的商品和服务价值已占澳大利亚对华出口的近四分之一”。他警告说，认为澳大利亚经济将永远不会重回病毒爆发前的状态也许是过度的，但是毫无疑问，澳大利亚已经失去了数十亿美元的商品销售额。
 
+这种情况导致澳大利亚国会在去年12月赋予外交部长权力，以审查外国实体与澳大利亚各州、领地、地方政府或公立大学之间的协议。议员们不希望州和地方政府达成破坏澳大利亚国家利益的交易。
 
+佩恩女士上周表示，她发现中共国与维多利亚之间的协议“与澳大利亚的外交政策不符或对我们的外交关系不利。” 作为回应，中共国外交部发言人汪文彬谴责澳大利亚“严重破坏了两国之间的正常交流与合作，严重破坏了两国关系和互信。”
 
+中共国的掠夺行为为贸易提出了特殊的挑战。 澳大利亚现状已经表明，中共国的强制性经济不符合自由经济的规则。
 
-我与这座城市并无瓜葛
+**评**：经济敲诈是中共惯用伎俩，它们一直以经济贸易作为政治的武器干预自由经济的运行，其结果必然遭至民主国家的集体反抗。加之中共病毒真相追责之势愈演愈烈，灭共是必然。澳洲政府这次站在反共灭共的前沿，挺过去暂时的困难，一定可以赢得巨大的回报，不仅是经济上的，更重要的是正义和民心。
 
-我与这个秋天也无瓜葛
+原文链接：
 
-只是，你看不到的另一面
-
-
-
-**文字版原文：[这个秋天](https://gnews.org/zh-hans/459164/)**
-
-作者：纽约香草山写作组  木白
-
-
-
-音频处理/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://www.wsj.com/articles/chinas-economic-blackmail-backfires-11619384564](https://www.wsj.com/articles/chinas-economic-blackmail-backfires-11619384564)
 
 0

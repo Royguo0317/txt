@@ -1,46 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】中共称愿支持印度抗疫，印疫情突然恶化背后有黑手
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1140696/)
+## 英国农场使用的40%的太阳能来自与新疆集中营有关的公司
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1142021/)
 
-配音：香草山录音组 蒙古鸿雁
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+- 翻译： 蚂蚁兄弟
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
+**西班牙2021年4月26日电/西喜社——**
 
+数十万维吾尔族成员被关押在 “再教育营”中，许多人还被强行转移到新疆维吾尔自治区和中国其他省份的工厂工作。
 
+据英国一家报纸报道，英国约40%的太阳能发电站，包括那些由国防和煤炭等政府部门委托的项目所使用的太阳能电池板，均来自于和新疆强迫劳动的集中营有关的公司。
 
+据报道，在该地区维吾尔族工人遭受到剥削和虐待性的生活及恶劣的工作环境。联合国商业和人权工作组收集的调查结果指出，“数十万维吾尔少数民族成员被关押在‘再教育营’中”，“据说许多人还被强行转移到新疆维吾尔自治区和中国其他省份的工厂工作”。这可能构成任意拘留、人口贩运、强迫劳动和使用强迫劳动的奴役犯罪。
 
-4月22日，针对印度疫情的问题，中共国外交部发言人汪文斌曾表示，中共国愿为印方控制疫情提供必要的支持和帮助。4月23日，战狼赵立坚在中共外交部例行记者会上也称，中共国愿支持印度政府抗疫。
+根据《卫报》的一份报告，将“晶科能源”、“晶澳能源”和“天合光能”列为在中国地区受益于强迫劳动的标杆企业。这些公司是世界上最大的太阳能电池板制造商之一，但最近的研究表明，它们可能利用了来自穆斯林维吾尔族社区的100多万男女的强迫劳动，这些人被关押在新疆地区的集中营里。
 
-中共外交部例行记者会上，发言人赵立坚回答记者提问时说，注意到了有关就印度疫情中方表明立场的报道，中共国对印度国内近期疫情形势恶化表示诚挚慰问。赵立坚称，中共国政府和中国人民坚定支持印度政府和人民抗击疫情，愿根据印方需求提供支持与帮助，正就此同印方保持沟通。“中方相信印度人民一定能够早日战胜疫情”云云。
+同时，根据《卫报》的报道中机密行业数据表明，英国多达40%的农场使用的太阳能电池板便是来自中国最大的太阳能电池板制造公司，包括“晶科能源”、“晶澳能源”和“天合光能”。
 
+**点评： 4月22日，英国下议院在无议员反对的情况下投票通过了“新疆维吾尔族人遭受反人类罪和种族灭绝罪”，这些作为中共国太阳能行业“老大”的公司也作为“中共帮凶”被提上公堂。中共发言人再怎么强烈反驳关于他们虐待维吾尔族人的指控，但始终不会抹去其罪恶事实的痕迹。世界对中共涉嫌侵犯人权的呼声也越来越高，从停止使用新疆棉花，到阻止太阳能电池板，还将会涉及到更多的行业。这也迫使英国首相约翰逊在对侵犯人权的问题上必须对中共要采取强硬的立场，并阻止英国与中共国的贸易交易，同时约翰逊也面临来自保守党内部越来越大的压力。国际法学界已经形成高度共识，认定新疆的反人类罪仍在继续，世界各国也在逐渐形成一个强有力的同盟，大家都确信新疆正在发生种族灭绝，必须对制造危机的责任者和相关公司实施制裁。**
 
+素材： 蚂蚁兄弟；审核：Aries的星；校对：Nuevo唐人；发稿：信心的选择
 
-**文字版原文：[【热点播报】中共称愿支持印度抗疫，印疫情突然恶化背后有黑手](https://gnews.org/zh-hans/1136977/)**
+**新闻来源：**[www.wionews.com](https://www.wionews.com/world/40-of-uk-solar-farms-use-panels-from-firms-linked-to-xinjiang-forced-labour-camps-380531)
 
-作者：纽约香草山健身部 Jack Li文阳
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++3
