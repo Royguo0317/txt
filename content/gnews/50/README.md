@@ -1,59 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国两党议员加大了对抗中共国的努力
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1142636/)
+## 川普吁亚利桑那州长为选举审计提供安全保证
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1142862/)
 
-翻译：康州盘古农场 — Layka
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-校对：康州盘古农场 — Mike Li
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/AU-3.jpg)cbnc.com
+上周六（24日）川普总统发表声明，呼吁亚利桑那州长保证法庭重新计票工作人员的安全，声明说，“亚利桑那州州长杜西应该立即为勇敢的美国爱国者提供大规模的安全保障，让他们对2020年总统选举进行司法审查，杜西州长将对相关人员的安全负全部责任……”【1】
 
-编辑：康州盘古农场 — 心照
+面对不容乐观的形势，川普总统今天再次发表声明：【2】
 
-据《路透社》记者帕特里夏·曾格勒(Patricia Zengerle), 迈克尔·马丁纳（Michael Martina）2021年4月22日上午3:17 报道
-![]()![](https://gnews.org/wp-content/uploads/2021/04/eeeeeeeeeeeeeeeeeeee.png)
-2021年1月21日，在中国北京的一家美国公司大楼外，中国和美国的国旗飘扬。 /王婷淑 (Tingshu Wang)
+2021年4月26日
+美利坚合众国第45任总统唐纳德·川普的声明
 
-美国国会两党加速推动抵制中共国，周三参议院委员会以压倒性多数支持北京人权问题的和经济竞争，同时其他的议员提出了一项数十亿美元用于技术研究的措施。
+亚利桑那州州长道格杜西（Doug Ducey），美国最糟糕的州长之一，也是美国第二糟糕的共和党州长，他正在拒绝为那些进行手工计算亚利桑那州选票的美国爱国者提供安全保障，这些选票操控了亚利桑那州2020年美国的大选。
 
-参议院外交关系委员会以21:1，支持“ 2021年战略竞争法”，将法案发送给拥有100名成员的参议院审议，甚至在委员会成员表示，是需要采取更多行动来对付北京的时候了。
+川普总统的担心不是没有道理，据传安提法人员住在审计体育馆周围的宾馆，州长把警力部署到了边境，难怪最近一段时间，这位州长一反常态地与拜登政府、巫婆佩洛西唱反调，承认有边境危机的情况，原来这里对民主党的危机更大。警力弱了，无法无天的安提法可以捣乱、恐吓进行审计的工作人员。
 
-委员会对该法案增加了数十项修正。美国宗教自由委员会也建议，应由美国官员而非运动员抵制2022年北京奥运会。
+《门道专家》（Gateway Pundit）报道，一名与民主党关联很大的法官被任命，将于明天开庭审理此案，民主党试图继续阻止参议院对2020年选举结果的审计，预计明天举行新的听证会【3】。
 
-另外，一组参议院和众议院议会立法者提出了“无尽边界法”，要求在五年内提供1000亿美元用于基础和先进技术研究，并要求100亿美元在全国范围内建立新的“技术中心” 。
+面对民主党做贼心虚、孤注一掷的猖狂行为，亚利桑那州共和党主席凯利·沃德（Kelli Ward）博士则泰然若之，告诉《门道专家》：“这是美国的审计，是为了美国”（视频）【4】
 
-两项法案都得到了两个政党的大力支持，预计将成为法律。在与中国打交道时采取强硬路线的愿望是美国国会中为数不多的真正的两党情绪之一，美国国会由同为乔·拜登总统的民主党人以微弱优势控制。
+还有个奇怪的现象，所谓的主流媒体，对这样事关美国宪政的大事没作报道，美国危矣。
 
-拜登政府支持这些措施。
+若是没有文贵先生、爆料革命，美国真地要沦陷了。
 
-参议院民主党主席鲍勃·梅嫩德斯（Bob Menendez）说，“通过压倒性的两党投票，《战略竞争法》成为我们一系列立法活动的第一步，以使我们的国家最终能够在权力、政治、外交、经济、创新、军事甚至文化的各个方面应对中共国的挑战。”
+参考链接：
 
-他和参议院最高共和党参议员吉姆·里施（Jim Risch）共同撰写了“战略竞争法”的具体措施，里施表示这是“真正的两党合作”。
+【1】https://www.gnews.org/zh-hans/1134885/
 
-这项立法在北京引起了愤怒。
+【2】[https://twitter.com/JennaEllisEsq/status/1386764726357594119/photo/1](https://twitter.com/JennaEllisEsq/status/1386764726357594119/photo/1)
 
-中共国外交部发言人汪文斌说：“这扭曲了事实，混淆了是非。”
+【3】[https://www.thegatewaypundit.com/2021/04/maricopa-madness-new-judge-case-appointed-former-democrat-governor-janet-napolitano-opinions-now-vary-hearing-might-take-place-case/](https://www.thegatewaypundit.com/2021/04/maricopa-madness-new-judge-case-appointed-former-democrat-governor-janet-napolitano-opinions-now-vary-hearing-might-take-place-case/)
 
-“它炒作了中国威胁论，谈论了与中国的全面战略竞争。它严重干涉了中国的事务和冷战的后遗症以及零和心态。”
-
-人权和军事开支
-
-参议院长达280页的法案通过诸如增加国际发展资金以及与盟国和国际组织合作等努力来应对与中共国的竞争。它推动了人道主义和民主价值观，就像对少数民族穆斯林维吾尔人的待遇实施制裁一样和支持香港的民主。 L1N2M113C
-
-该法案强调需要“优先考虑为实现美国在印度太平洋地区的政治目标所必需的军事投资”。它支持该地区与安全相关的资金大量增加以及与台湾的紧密联系。
-
-它将扩大美国外国投资委员会（CFIUS）的范围，该委员会将审查潜在的国家安全风险的金融交易。美国大学对该法案中要求美国外国投资委员会审查一些中共国的赠款和合同的条款表示关切。
-
-战略竞争和无尽疆界法案是民主党参议院多数党领袖查克·舒默（Chuck Schumer）在2月宣布的快速通道的一部分，该行动旨在通过广泛的立法来对付中共国。舒默是《无尽边境》法案的一个主要提案人。
-
-外交关系委员会成员说，他们想做更多。
-
-共和党参议员罗姆尼（Mitt Romney）说：“我相信没有人会认为这项立法会改变中共国向全球独裁和压制霸权迈进的步伐。” “ …我建议，我们还有很多工作要做。 ”
-
-原文链接：[https://www.reuters.com/world/asia-pacific/us-lawmakers-look-advance-sweeping-bid-counter-china-2021-04-21/](https://www.reuters.com/world/asia-pacific/us-lawmakers-look-advance-sweeping-bid-counter-china-2021-04-21/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+【4】https://www.thegatewaypundit.com/2021/04/exclusive-az-gop-chair-dr-kelli-ward-tells-gateway-pundit-americas-audit-america-video/
 
 0
