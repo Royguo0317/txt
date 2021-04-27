@@ -1,15 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月25日 文贵先生盖特 3
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1141422/)
+## 慧眼看世界202104026（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1141459/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-4月25日我得乖乖呀，今天上午刚直播完，现在就来了。【[https://www.politico.eu/article/eu-china-biden-economy-climate-europe/](https://www.politico.eu/article/eu-china-biden-economy-climate-europe/)】这歌唱得太好听了
 
-[【2021年4月25日】文贵先生盖特原文](https://gtv.org/getter/608633f611a7ed500e98e6c8)
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**喜联盟Gnews编辑部**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-17.jpg)
 
-0
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-18.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-17.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-19.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-17.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-22.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-27.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-26.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-20.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-19.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-19.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-13.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/18-10.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/19-9.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20-7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/21-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/22-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/23-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/24-1.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
+
++2

@@ -1,39 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】纽约南区法院和七哥互动的小回忆
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1142315/)
+## 《路德社》精选新闻简讯翻译：与中俄紧张局势逐步加剧中，美军战舰与英国舰队在印太区域会师
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1142404/)
 
-纽约香草山健身部 Ivy001
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-从4月5号开始的SEC抗议，在4月21号移师到了纽约南区法院门外。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/042701.png)皇家海军伊丽莎白女王号航母
 
-这天的天气有点怪，上午还是阳光灿烂的，下午突然就下起了大雨和冰雹，我和战友们一边在躲雨，一边在等着七哥从南区法院做完证出来。噼里啪啦的雨，下着下着突然就停了，抬头一看，七哥神采奕奕的从南区法院出来啦！
+随着与中共国和俄罗斯紧张关系的加剧，下月，一艘美国驱逐舰将加入一只英国航母舰队，并一起在印太区域航行，该航母舰队由一艘耗资30亿英镑全新打造的英国[皇家海军伊丽莎白女王号航母](https://en.wikipedia.org/wiki/HMS_Queen_Elizabeth_%28R08%29)带领。
 
-战友们一看见七哥，就摆手大叫“七哥！七哥…”七哥也激动的向战友们快步走过来。两方队伍胜利会合后，七哥二话不说，直接就给战友一个有力的拥抱。一个战友，然后又一个战友……旁边保护七哥的保镖团们，一脸的恼火。可是看到七哥和战友们热血沸腾的真情流露，他们都无奈的任由七哥了。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-56.png)
-当时大家都很激动，有负责人说：“大家不许往七哥身边拥，站好位置原地不动，要保证七哥的安全。” 我就站在原地拿着手机记录下这美好的瞬间，也没有想过七哥会拥抱每一个战友。开心又激动地看着七哥拥抱完一个又一个的战友，离我越来越近，哈哈～七哥也给我一个大大的拥抱！和我拥抱完了，七哥说了一句：“还有谁没有抱的？”这是什么？这就是七哥的铁汉柔情！这就是七哥一直说的，一个真战友都不会拉下。我的男子汉大心脏，也被七哥深深地感动了。这就是我们愿意一起追随的七哥。千言万语，最后只化作一句：好兄弟，一辈子！
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screen-Shot-2021-04-26-at-7.47.26-PM.png)
-回到我们健身部聊天的时候，大家对我得到七哥的拥抱表示羡慕和祝贺，真的感觉好幸福好幸运。格格战友说：“好羡慕你们这些离七哥这么近的战友，可以有机会和七哥拥抱。”我说：“会有机会的，等到灭共成功，我们联邦欢庆时，大家聚在一起，会有机会和七哥拥抱庆祝的。”
+周一，英国国防部宣布，5月美国[苏利文兄弟号驱逐舰](https://en.wikipedia.org/wiki/USS_The_Sullivans_%28DDG-68%29)将加入伊丽莎白女王号航母领衔的打击群，届时该打击群将访问印度，日本，韩国和新加坡。这次行动预计持续超过6个月，并访问超过40个国家。在此期间，打击群部队将参与超过70次军事行动，空中格斗演练，和其它行动。该行动是英国“印太战略倾斜”的关键部分，其战略旨在加强与亚洲盟国的安全关系，并加强对任何入侵的区域防御。
 
-希望共产党的灭亡早日到来，战友们可以尽情拥抱欢庆！
+这项行动的大背景是中共国与美国和西方盟友逐渐紧张的关系。本月6号，[中共军方宣布将在台湾岛附近进行军演](https://www.reuters.com/business/aerospace-defense/china-says-carrier-group-exercising-near-taiwan-drills-will-become-regular-2021-04-06/)；7号，[中共15架军机入侵台湾放空识别区](https://www.newsweek.com/china-warplanes-are-flying-near-taiwan-record-numbers-1585277)，7号当日，美国出动[约翰·S·麦凯恩号驱逐舰(DDG-56)](https://en.wikipedia.org/wiki/USS_John_S._McCain_%28DDG-56%29)穿越台湾海峡示警，然后招致中共国外交评击[点击查看](https://www.republicworld.com/world-news/us-news/us-navy-vessel-casually-transits-through-taiwan-strait-amid-china-tensions-pokes-beijing.html)。早在2020年10月9日，[美军新闻发布会](https://www.navy.mil/Press-Office/News-Stories/Article/2379054/uss-the-sullivans-joins-british-carrier-task-group-for-exercise-joint-warrior-2/)就表示，英国与美国之间的“特殊关系”是部署“苏利文”号的唯一原因，并且两国正在准备全球部署，发布会还向“对手”展示了“苏利文”号给航母战斗群带来的毁灭性打击能力。
 
-消息来源：纽约香草山健身部 小白白 口述
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-编辑/校对/发稿：正义的小新
+美英两国海军的联手还只是刚刚开始，随着新冠病毒真相的步步揭露，作者相信最后194个国家都会联合起来消灭中国共产党。
 
-**更多资讯，更多关注**
+[援引原文](https://www.newsweek.com/us-warship-join-uk-fleet-indo-pacific-china-1586416?amp=1&amp;utm_term=Autofeed&amp;utm_medium=Social&amp;utm_source=Twitter&amp;__twitter_impression=true)
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
+本文翻译：红胡子
+审核校对：鲁邦五世
+上传排版：糖果儿
 
 0

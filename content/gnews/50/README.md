@@ -1,65 +1,72 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共市监局对美团立案调查，腾讯还会远吗？
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1141275/)
+## 谷歌文件审查有关冠状病毒疫苗的内容
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1141398/)
 
-作者：纽约香草山农场 乱谈秦
+新闻来源：《布莱特巴特新闻》| 作者：Allum Bokhari | 发布时间：2021年4月23日
+
+翻译/简评：新街口 | 校对/审核：万人往| Page：Daoiii
+
+[!\[\]()!\[\](https://spark.adobe.com/page/C61SndXAPElr7/images/a37899d7-73e9-4374-8962-e94d03649129.png?asset_id=f7518a25-ceb2-42be-b63b-243c71d85c64&amp;img_etag=%22a54e0ceccab745453440a0b759623f48%22&amp;size=1024)](https://spark.adobe.com/page/C61SndXAPElr7/images/a37899d7-73e9-4374-8962-e94d03649129.png?asset_id=f7518a25-ceb2-42be-b63b-243c71d85c64&amp;img_etag=%22a54e0ceccab745453440a0b759623f48%22&amp;size=1024)图片来源：iyouport
+
+**简评：**
+
+随着疫苗被全世界各国政府强行推广，疫苗产生副作用的新闻也层出不穷。虽然很多有良知的科学家和新闻工作者挺身而出，对疫苗的安全性进行了质疑并进行了报道，但遗憾的是他们都被各种媒体和社交平台审查和封口。
+
+这篇布赖特巴特新闻的文章又给我们揭开了一个新的黑幕：除了大家都经历了的推文、视频、网上的文章，现在连我们的文档也被扫描、监控和封杀了。一个多达100多页、记录了来自世界各地关于疫苗头条新闻的文档，在上传到云端后受到了谷歌的审查。除了作者本人，其他人都不可以访问。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/C61SndXAPElr7/images/e79c5dfc-9013-4d9f-94c2-4954ac0a5a7d.png?asset_id=1e182dbf-aef7-45da-8437-c178b75afb90&amp;img_etag=%223f0265bb00446f466eff07078d3b9e1b%22&amp;size=1024)](https://spark.adobe.com/page/C61SndXAPElr7/images/e79c5dfc-9013-4d9f-94c2-4954ac0a5a7d.png?asset_id=1e182dbf-aef7-45da-8437-c178b75afb90&amp;img_etag=%223f0265bb00446f466eff07078d3b9e1b%22&amp;size=1024)图片来源：iyouport
+
+谷歌是一个技术公司，为本文作者提供的是网络存储服务，却对客户存储的文件进行审查，还对疫苗的作用做出裁定，把质疑疫苗作用和记录疫苗新闻的文档进行新闻检查和封杀。
+
+这种对文件的新闻检查可以说是对真相斩草除根式地彻底掩盖。对网络文章、视频的封杀只是堵住了说话人的嘴，盖住了听众们的耳朵。而控制你的网盘和网盘中的文件，无疑相当于到你家中去修改、销毁罪证。正如文章评论区有人评论的那样：“难道这么积极地将这一重要信息拒之于众，就是为了制药厂和各国政府避免受到疫苗受害者的诉讼吗？”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/C61SndXAPElr7/images/a384f55b-15c3-42f3-9fcd-98ff7b9407f3.jpg?asset_id=095fb581-011b-4903-a39d-e4d42c17c32a&amp;img_etag=%22e65f53d3a9f240392a30588a406c41c7%22&amp;size=1024)](https://spark.adobe.com/page/C61SndXAPElr7/images/a384f55b-15c3-42f3-9fcd-98ff7b9407f3.jpg?asset_id=095fb581-011b-4903-a39d-e4d42c17c32a&amp;img_etag=%22e65f53d3a9f240392a30588a406c41c7%22&amp;size=1024)图片来源：iyouport
+
+**原文翻译：**
+
+## 谷歌审查跟踪冠状病毒疫苗事情的文件
+
+[!\[\]()!\[\](https://spark.adobe.com/page/C61SndXAPElr7/images/6b7d96f4-5488-4bdd-894d-7d998e4a9bb9.jpg?asset_id=4f488959-2051-4c48-a8ad-32030da7da48&amp;img_etag=%22a7d8c51af2a138ac49562e7fa1addcd6%22&amp;size=2560)](https://spark.adobe.com/page/C61SndXAPElr7/images/6b7d96f4-5488-4bdd-894d-7d998e4a9bb9.jpg?asset_id=4f488959-2051-4c48-a8ad-32030da7da48&amp;img_etag=%22a7d8c51af2a138ac49562e7fa1addcd6%22&amp;size=1024)
+
+谷歌审查了一个公开文件，该文件收集了主流新闻媒体以及社交媒体上有关新冠肺炎疫苗不良反应的帖子。谷歌审查了这个长达100多页的文档。该文档现已重新托管在此网站上。
+
+前英国独立电视台（ITV）和英国广播公司（BBC）记者安娜·布雷斯（Anna Brees）在推特上的一条帖子注意到，谷歌审查了这份文件。
+
+“这是我第一次看到云端硬盘阻止了一个文档，”布雷斯说，“这是一份来自世界各地、关于疫苗头条新闻的很长的文件。这份文件通过电子邮件发送给我。三天前我还可以查看它，但现在它说了这个。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/C61SndXAPElr7/images/2350c1a0-1a30-4eea-a029-3633f92d0c12.png?asset_id=9db5eea6-4457-4c85-b1f8-9c7f63784cdb&amp;img_etag=%22723f9e999623ccdc797e55b2c8c4bade%22&amp;size=2761)](https://spark.adobe.com/page/C61SndXAPElr7/images/2350c1a0-1a30-4eea-a029-3633f92d0c12.png?asset_id=9db5eea6-4457-4c85-b1f8-9c7f63784cdb&amp;img_etag=%22723f9e999623ccdc797e55b2c8c4bade%22&amp;size=1024)
+
+布雷斯分享了一个截图，显示了谷歌的一条消息，通知用户该文档“违反了我们的服务条款”。
+
+布雷斯本人因报道冠状病毒而成为大型科技公司审查的对象。她最近采访了加拿大病理学家罗杰·霍德金森（Roger Hodkinson）博士，他在12月宣称新冠肺炎“只是又一次严重的流感”之后，成为包括法新社（AFP）在内的事实检查人员的目标。
+
+为了报复她对霍德金森的采访，布雷斯说YouTube删除了她的视频，而YouTube的竞争对手Vimeo不仅删除了采访，还删除了她的整个帐户，包括她拥有和经营的视频新闻学校的培训材料。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/C61SndXAPElr7/images/7b9c2ecb-4b6e-42f8-a481-c5135c318fff.png?asset_id=070c0c53-553c-428e-923a-37de60a8524d&amp;img_etag=%22e0b05efee8e6e921f7fa14f203dda0c9%22&amp;size=2560)](https://spark.adobe.com/page/C61SndXAPElr7/images/7b9c2ecb-4b6e-42f8-a481-c5135c318fff.png?asset_id=070c0c53-553c-428e-923a-37de60a8524d&amp;img_etag=%22e0b05efee8e6e921f7fa14f203dda0c9%22&amp;size=1024)
+
+布雷斯说，谷歌旗下的YouTube在一个小时内就删除了这段采访。
+
+谷歌文档是谷歌云端硬盘服务的一部分，没有像其他臭名昭著的大型技术平台那样，有审查其用户的不良记录，但是其服务条款长期以来一直赋予谷歌审查各种文档的能力。2017年，Google云端硬盘用户将公司对其文档的“令人毛骨悚然的监控”称为潜在的审查来源。
+
+谷歌云端硬盘的广泛服务条款使谷歌有权删除一系列其他违禁材料中的“仇恨言论”、“骚扰”和“误导性内容”。
+
+谷歌发言人在对布赖特巴特新闻的评论中说，如果文件违反其政策，谷歌将从公共访问中删除这些文件，但是文件所有者仍然可以访问该文件。
+
+“我们禁止将谷歌云端硬盘用于散布色情和露骨的色情内容、危险或非法活动、恶意软件以及有关新冠肺炎疫苗的有害的误导性言论等内容，”该发言人说，“如果共享文档不符合我们的政策，我们可能会禁止共享这些文件。文件所有者仍然可以访问其私人文件。”
+
+Allum Bokhari是布赖特巴特新闻的高级技术通讯员。他是《已删除：大型科技公司的战斗：去川普运动并抢夺大选》一书的作者
+
+🔗[原文链接](https://www.breitbart.com/tech/2021/04/23/google-censors-document-tracking-covid-vaccine-stories/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/C61SndXAPElr7/images/2a9217f7-1549-446e-bf57-9fb29741160d.jpg?asset_id=c85755a7-ef39-495d-b9c1-33549723da36&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/C61SndXAPElr7/images/2a9217f7-1549-446e-bf57-9fb29741160d.jpg?asset_id=c85755a7-ef39-495d-b9c1-33549723da36&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
-
-
-北京时间2021年4月26日下午，中共国市场监督管理总局（市监局）发布消息称，“近日，市场监督管理总局根据举报，依法对美团实施‘二选一’等涉嫌垄断行为立案调查”。美团微信公众号随后发文称，“将积极配合监管部门调查”。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-467.png)新闻截图
-
-“二选一”民众都很熟悉了。2020年12月24日，官方消息称，“根据举报，依法对阿里巴巴集团控股有限公司实施‘二选一’等涉嫌垄断行为立案调查”。2021年4月10日，市监局对阿里巴巴实施“二选一”垄断行为罚款182.28亿元人民币。由于牵涉到众多知名品牌厂家，以及京东和天猫的纠纷，在阿里巴巴被立案调查之前，其“二选一”已经闹得沸沸扬扬、众所周知。而美团却没那么引人关注。
-
-这里不得不多说一句，对外信息上，中共没用的东西废话连篇，正儿八经的事情惜字如金，具体情形没踪影，民众全靠猜猜猜，并且官方习惯说“根据举报”——难道又是“朝阳大妈”干的？由于阿里巴巴旗下有饿了么、口碑网等与美团竞争的平台，此次美团“二选一”案，推测应与阿里平台有关。
-
-在中共国市监局官网查询，有几条最近关于美团的记录。2021年3月3日官网发消息称，对深圳美团优选科技有限公司排挤竞争对手、低于成本销售商品等行为罚款150万元人民币，3月11日正式公告。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-468.png)图片来源：网易
-
-美团是中共国最大的生活服务电子商务平台，服务涵盖餐饮、外卖、生鲜零售、打车、共享单车、酒店旅游、电影、休闲娱乐等200多个品类，业务覆盖全国2800个县区市。发稿时止，其市值在中共国已上市公司排第五位，在互联网行业仅次于腾讯和阿里巴巴。
-
-2020年，美团营业的收入和净利润分别为1147.95亿元和47.08亿元人民币，其营业收入增长减速，但净利润同比翻倍。美团（HK03690）股价于2021年2月18日创下460港元的记录，彼时市值2.7万亿港元；今日立案调查消息发布前已收盘，收盘价305港元，市值1.8万亿港元。
-
-追溯美团的历史，其2010年由团购起家，2015年团购行业的老大美团与老二大众点评合并，2018年9月20日，美团登陆港交所。美团属于腾讯系公司，当前腾讯持股美团17.69%。而阿里巴巴则是美团的早期投资者，后逐步退出。美团与阿里巴巴、腾讯之间是中共国著名的“三角恋“故事。2020年7月，美团取消支付宝支付狙击阿里，引起很大反响。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-469.png)图片来源：网易
-
-阿里巴巴被反垄断立案调查是由于中共内部的派系斗争，盗国贼收割民企财富，要拿马云下手。这回中共又盯上了美团，是想立个牌坊，表明中共国2008年已施行的《反垄断法》不是说着玩的？还是继续收割民企共产化？还是剑指背后的最大股东腾讯呢？跟中共讲法当然是笑话，但弄个罚款当作中共的“餐前小菜”并不奇怪。参照阿里的罚款比例，中共对美团就是40到50亿元人民币的罚款。另外，腾讯作为中共国互联网巨头，在该领域扼杀创新，形成超级垄断控制，更是通过微信垄断社交通讯，配合中共控制言论。腾讯这块肥肉中共会放过吗？我们且慢慢看戏。
-
-(文章仅代表作者本人观点)
-
-参考资料：
-
-[中共对阿里巴巴罚款182.28亿元，这笔特殊“党费”能否让马云保命？](https://gnews.org/zh-hans/1073165/)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
-+2
++1

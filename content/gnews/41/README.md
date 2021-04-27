@@ -1,65 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界202104026（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1141459/)
+## 美国疾病预防控制中心（CDC）报道，共有7,157全面接种疫苗的美国人感染了COVID-19，其中88人死亡
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1141559/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+- 翻译： Jenny Ball
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01-17.jpg)
+**西班牙2021年4月26日电/西喜社——**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02-18.jpg)
+据卫生官员称，在已完成CCP病毒疫苗接种的美国人中，记录在案的COVID-19病例数量已超过7,100。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03-17.jpg)
+所谓的突破性病例由各州报告给疾病控制与预防中心（CDC），然后由CDC发布这些数字。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-19.jpg)
+CDC在其最新更新报告中说，已有7157人完成接种后感染CCP病毒。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05-17.jpg)
+在突破性病例中大多数发生在女性中，占64％，而46％发生在60岁以上的人群中。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06-15.jpg)
+尽管已进行了完全疫苗接种，但仍有近500例感染了COVID-19的人需要住院治疗，尽管其中约有三分之一因与COVID-19不相关的疾病而住院。 突破性患者中有88人（即1％）死亡。 据报道有11例死亡未显示症状或与疾病无关。各州案件的细目尚未公开。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07-15.jpg)
+CDC于4月15日首次报告了突破性案例数。更新显示了7,157个此类案例。一位发言人通过电子邮件告诉《大纪元》，新数字将持续到4月20日。CDC预计每个星期五都会更新数字。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08-15.jpg)
+因为当前系统依赖于州卫生部门的自愿报告，所以突破性病例可能比CDC发布的病例要多。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09-15.jpg)
+截至4月23日，已经有超过9100万美国人接受了针对CCP病毒的疫苗接种。完全接种疫苗是指在两周或更早之前接受第二次麦德纳（Moderna）或辉瑞(Pfizer)疫苗或单次强生疫苗的人。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-22.jpg)
+预计没有一种疫苗能提供全面的保护，因此卫生官员和专家表示，突破性病例无需引起关注。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-27.jpg)
+“虽然有突破性的案例，而且不足为奇，但它们极为罕见，丝毫不会破坏大规模疫苗接种的价值。佐治亚大学传染病学教授马克·汤普金斯（S. Mark Tompkins）在电子邮件中表示。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-26.jpg)
+CDC一位发言人说，预计将发生数千起突破性案件。突破性疫苗感染占完全接种疫苗的人的一小部分。CDC建议，所有符合条件的人都应尽快获得COVID-19疫苗。CDC还建议已完全接种疫苗的人在公共场所应继续采取预防措施，例如戴口罩，与他人保持至少6英尺的距离，避免人群和通风不良的地方，以及经常洗手。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-20.jpg)
+CDC说，它的监测报告了突破性的病例，这些病例可以根据人口统计，地理位置，接种疫苗的时间，疫苗类型和病毒谱系进行分类。它计划很快集中精力调查导致住院或死亡的重大病例。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-19.jpg)
+**点评：**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-19.jpg)
+**心情非常沉痛，曾几何时，疫苗引起了七千多人感染并且造成1%的死亡，在美国CDC眼里竟成了“不足为奇”。CDC是否从科学专业的角度，本着保护人民生命健康的目的去评估投入使用中的各公司疫苗？是否完成了疫苗投入使用的程序？而事实上，让全国人民充当了实验室小白鼠，并在出现如此数量的突破性病例后，仍在推广疫苗，而不是从追究病毒来源及病毒构成，去根本解决CCP病毒，其效果只能是自欺欺人的同时，让那些生产疫苗的医药公司发着“国难财”。**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-15.jpg)
+**我们要不停的呐喊：中共制造了这个生化武器的病毒，中共在把病毒当作武器制造时就备好了解药！CCP有解药，我们在还等什么？**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-13.jpg)
+素材： Jenny Ball；审核：Aries的星；校对：信心的选择；发稿：信心的选择
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/18-10.jpg)
+**新闻来源**：[《大纪元时报》](https://www.theepochtimes.com/7157-fully-vaccinated-americans-have-contracted-covid-19-88-dead-cdc_3789469.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-04-26)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/19-9.jpg)
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/20-7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/21-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/22-3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/23-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/24-1.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
-
-+2
++4

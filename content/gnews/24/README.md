@@ -1,78 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭爆料串珠（238）所有的疫苗都是假的！中共有解药，想要解药必灭共
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1141906/)
+## 4月26日美国政要和政评家推特精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1142019/)
 
-**简述：兄弟姐妹们，今天给你们爆个大料。共产党的病毒毋庸置疑是共产党的生化武器，对吧？七哥一再说，永远不可能有疫苗，所有的疫苗都是假的，因为他们根本没闹清楚(病毒)，这个病毒是生化武器，还是来自自然。你怎么可能有疫苗？人类上从(来)没有在短短的六十天或六个月生产出任何一个疫苗。(既然)没有疫苗，(那)就是有没有解药。
-现在答案是，科学家、还有国内的情报、在欧洲的那位朋友明确地告诉我们：共产党有解药！
-疫苗是假的，是害人的。谁让别人打，谁强迫打，谁是犯罪，谁是谋杀。但共产党有解药，Cure、Cure、Cure！解药是什么？(说明)共产党掌握着人类的命运。
-所以昨天我正式地告诉某些人，我说：如果你相信我，我拿我的生命向你们保证，你们想活下去，找共产党要解药。(中共)在制造这个武器的时候，它就制造出了解药，而不要(找中共)要疫苗。
-他们如梦大醒，啊，哦，明白了！明白了，Miles，明白啦！
-没疫苗，永远不会有疫苗，因为它是生化武器！有解药，(去找)共产党！这就是真相！
-七哥今天爆的大料：要想活着，去找共产党要解药！要解药！要解药！
-我不是说挑拨离间，不是胡说八道，我愿意(对我说的)承担一切责任。共产党有解药！共产党有解药！要想活下去，找共产党要Cure、Cure、Cure！永远不可能有疫苗，记住我今天说的话啊！
-共产党有解药，我得到了100%(准确)的情报。——郭文贵2021年4月21日**
+参议员瑞克·斯科特： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 对自由与自由的战争在变本加厉地继续。这是卑鄙的。我谴责 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 压迫性的审查，并赞扬赵婷（ChloéZhao）的成功。 【附纽约时报的报道：中共国对赵婷获奥斯卡奖噤声，但影迷们想方设法欢喜庆祝】
 
-**连我本人我就在48小时以前我从来没想过这个世界上会有解药，我通过各种内部参与爆料的人都给我一句话不可能有疫苗，因为这是人造的生化病毒，怎么可能有疫苗呢？这是个基本常识，而且它每刻都在变异中，直到他告诉我说，文贵我可以告诉你，没那么悲观只要西方世界有正义的力量和正义的良知的人，这个世界是有解药的，我当时就傻了，我说你在开什么玩笑、怎么可能，生化病毒怎么有解药，他说生化病毒只要是研究者当初把它当成病毒了，它就有解药，然后跟我讲了这个过程，我傻了。
-……
-这个解药最后是拿解药的人最后你一定记住，想要解药的人一定把拿解药的人弄死，这就是七哥在爆料一出、开始的时候就说过叫人尸丸，看看那江湖上那个什么任老妖弄的、泡的人尸丸，是吧？东邪西毒，吃下去，用人尸体做的人尸丸，吃了以后你想再活那就继续吃我人尸丸，你必须听我的，这就是世界的人尸丸，你咋弄啊？——郭文贵2021年4月22日**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-13-135.jpg)
-封面图文：最后，想要解药的人一定把拿解药的人弄死！郭文贵2021年4月22日
 
-2021年3月14日
-在今年春节前，梦见八弟手里拿着一个药葫芦。感觉到是八弟暗示我以毒灭共，解药就是以毒灭共，药就是治病的，病就是方法。解决这个病的方法就是药，药的方法就是毒，所以我才诞生出来，今年核心以毒灭共。
 
-2020年4月17日
-郭文贵在GTV上发出如下两条盖特短文，向美国情报机构发出如下警告：
-“亲爱的情报局长：
-我认为美国的病毒感染情况可能会更加严重。仅是隔离措施无法保障生命！根据许多情报，包括我们的专家提供的情报，在美国和欧洲的病毒有来源。通常，第一次感染病毒后并没有感觉明显症状。三次传播之后病毒强度会减弱。然而在美国，情况刚好相反，病人从最初的感染开始症状就十分严重，特别是那些被无症状感染者传染的病人。
-我认为感染的人应该是中共设计的用以将病毒专门传播到西方的手段。他们称呼这些人为超级传播者。他们可能在美国，在欧洲，继续传播冠状病毒，且来无影去无踪。他们是最根本的病毒来源。不可能找到解药。美国和西方世界也会因此付出巨大代价。只有迫使中共公开所有信息，说出整个事实真相，屠杀世界的病毒才能被制止。我希望美国这次会重视情报。不要再出现自杀式的失误。这才是最根本的解决之道。
-以上文字仅代表文贵本人。”
+> Communist China’s war against freedom and liberty rages on. It is despicable. I condemn this oppressive censorship by Communist China and applaud Chloé Zhao for her success. [https://t.co/SfPvJLYjGm](https://t.co/SfPvJLYjGm)
+> — Rick Scott (@SenRickScott) [April 26, 2021](https://twitter.com/SenRickScott/status/1386699886242979847?ref_src=twsrc%5Etfw)
 
-2021年4月21日重磅爆料：中共有病毒解药 没有真疫苗！
-郭先生盖特爆大料：没有疫苗、有解药！中共制造病毒生物武器时一并制造了解药，这意味着中共掌握着全人类的命运 – 要想活命，去找中共要解药！习近平戴口罩是演戏，中南坑还戴口罩的人不被信任。
 
-兄弟姐妹们，今天给你们爆个大料。共产党的病毒毋庸置疑是共产党的生化武器，对吧？七哥一再说，永远不可能有疫苗，所有的疫苗都是假的，因为他们根本没闹清楚(病毒)，这个病毒是生化武器，还是来自自然。你怎么可能有疫苗？人类上从(来)没有在短短的六十天或六个月生产出任何一个疫苗。(既然)没有疫苗，(那)就是有没有解药。
-现在答案是，科学家、还有国内的情报、在欧洲的那位朋友明确地告诉我们：共产党有解药！
-疫苗是假的，是害人的。谁让别人打，谁强迫打，谁是犯罪，谁是谋杀。但共产党有解药，Cure、Cure、Cure！解药是什么？(说明)共产党掌握着人类的命运。
-所以昨天我正式地告诉某些人，我说：如果你相信我，我拿我的生命向你们保证，你们想活下去，找共产党要解药。(中共)在制造这个武器的时候，它就制造出了解药，而不要(找中共)要疫苗。
-他们如梦大醒，啊，哦，明白了！明白了，Miles，明白啦！
-没疫苗，永远不会有疫苗，因为它是生化武器！有解药，(去找)共产党！这就是真相！
-七哥今天爆的大料：要想活着，去找共产党要解药！要解药！要解药！
-我不是说挑拨离间，不是胡说八道，我愿意(对我说的)承担一切责任。共产党有解药！共产党有解药！要想活下去，找共产党要Cure、Cure、Cure！永远不可能有疫苗，记住我今天说的话啊！
-共产党有解药，我得到了100%(准确)的情报。
-这是共产党所有戴口罩的这些人都不是它信任的人，它信任的人都给你吃解药，不信任的人还得让你继续戴口罩。因为告诉你有解药的时候，你就会把我有解药的(事)给说出去了，那就另一方面证明了共产党制造了生化病毒。
-这就是共产党，只有几个主席台上的人是有解药，下面的99.9%的共产党员，死球蛋的啊。也不会给你解药，只要你戴口罩。谁戴口罩，谁就是不被信任的。 出去的时候习啊、什么习大神啊戴戴口罩，那是演给你看的，主要情况下都不戴口罩。不戴口罩的都有解药；戴口罩的都是不被信任者，因为你没有解药！
-直播视频：https://gnews.org/zh-hans/1123550/
 
-2021年4月22日盖特:共产党有解药的问题引起了世界巨大震撼
-据郭文贵先生2021年4月22号盖特——4月22号：尊敬的战友们好……文贵又来爆尿爆尿了！
-尊敬的战友们好啊，今天是4月22号了啊，天呐，真快呀，4月22号，今天起得早，你们都知道要干啥啊，真的是昨天晚上回去就惨了，昨天从庭上回来以后连口罩也没摘一直开会，开到11：30，然后赶快去再去开另外一个小会一直到两点钟，两点钟完了冲洗一下、淋浴一下睡个觉，然后四点多就醒来，然后呢到六点多又睡一次，睡了大概四十多分钟，昨天晚上睡了两个多小时。
-然后起来一堆的电话，关于昨天开庭和战友见面的这些细节用任何语言我现在是不好形容，说着说着我大早上起来我再哭一通咋办呐是吧？让人看了咱多傻，成了眼泪男了，咱就不了，等有时间开完庭以后希望我直播一次，跟战友们连连线聊聊天谈谈我昨天开庭和现在的感受。
-那么另外一个我想跟大家说的事情，就是昨天在我盖特发出以后，共产党有解药，有解药这件事情可以说在世界上重大重大的一场重磅的一个爆料、影响，昨天我回来以后，很重要很重要的一个人昨天就在这儿边吃边聊，人家吃我戴着口罩，我说我为你负责，我呢戴着口罩因为我刚开庭回来，人家一桌子在那吃，我就在那儿看，就这看到十一点半，你说我昨天早上戴口罩戴到昨天晚上十一点半，所有的真正的有正事儿的、有良知的知道这个冠状病毒了解共产党的西方的官员他说，为什么全世界人就没想过这个问题呢，他说你爆出这个问题太重要了。
-昨天我和亚洲的某个国家连线，人家对方就说郭先生我们没有任何怀疑你的意思，我们应该怎么往前走，我说非常简单，你先定义这个疫苗是不是自然的，不是自然的那就是人造的，人造谁造的，他造的时候，大家现在怀疑的唯一就是共产党，为啥共产党里边人有人戴口罩有人不戴口罩，为什么共产党的这些老百姓死了上百万人武汉老百姓，为什么这些高官的家人一个也不死，就这么简单。
-那么你现在共产党如果说没有解药，那你请让他告诉你所有参与研究武汉实验室的任何工程师，让他到美国和欧洲来接受质询，别说审判，质询他，让他告诉你怎么找到解药行不行？或者你们美国和欧洲不敢跟共产党要真相，要解药呗，说你给我解药我不追究你责任了，这不也挺好吗，是吧？也挺好啊。
-所以说这个现在这个解药的问题引起了世界上的巨大震撼。兄弟姐妹们，连我本人我就在48小时以前我从来没想过这个世界上会有解药，我通过各种内部参与爆料的人都给我一句话不可能有疫苗，因为这是人造的生化病毒，怎么可能有疫苗呢？这是个基本常识，而且它每刻都在变异中，直到他告诉我说，文贵我可以告诉你，没那么悲观只要西方世界有正义的力量和正义的良知的人，这个世界是有解药的，我当时就傻了，我说你在开什么玩笑、怎么可能，生化病毒怎么有解药，他说生化病毒只要是研究者当初把它当成病毒了，它就有解药，然后跟我讲了这个过程，我傻了。
-但是我也觉得这是个巨大的希望，我第一个先告诉了我身边的最重要的一个替我把关这方面情报的科学的一个助理，我说你马上到你们某某某找这些人研究研究，这话是否可靠，答案是他是对的，然后我又经过核实，特别是他说的国内所谓的中央政治局中央常委2020年所谓的工作方式的重要提要，重要提要，就因为这个问题现在，大家记住啊习身边没人啦，韩正不行了也，是吧？本来也不怎么行，栗战书也靠边站了，丁薛祥也靠边站了，大家看到了吗？王沪宁也靠边站了！大家看到了吗？现在就剩了仨人、严格讲四个人——他弟弟习远平然后军方的许其亮，许其亮最近也半信半疑、恼火，完全剩下了杨娘娘、王太监，王~太~监，哎哟五个手指头，呵呵呵，我听说九指妖开会从一百个人现在变六十个人了，疯了，暴疯了，说G-Coin G-Dollar压根就没完成，William跑了，你说这个人她疯能疯到这个程度，九指妖你真的是太贱了，你真贱！你真贱呢你呀！贱人呐！真是贱人呐！还让我告她去FBI，不用我告，FBI一定会把你送监狱去，刚才我看到信息还是木兰发给我的，她的仇敌发给我的，说Sara崩溃了，说G-Coin、G-Dollar压根没研究出来，然后说他们人都跑了，就这瞎话能编到这样，这帮孙子真是烂人呐，这天下的烂人。
-所以说你看兄弟姐妹们，这杨娘娘、王公公两人和习大神还得隔着个门指挥许其亮，还有个弟弟习远平，这共产党还有未来吗，听说就这个开会的形式把大家全傻了，也就是给不给谁解药的问题，不是说你这些家人都有解药，听说韩正要给家人要一些解药，犯大忌了，你想干什么？！你想干什么？！嗯？！
-呵呵，这个解药最后是拿解药的人最后你一定记住，想要解药的人一定把拿解药的人弄死，这就是七哥在爆料一出、开始的时候就说过叫人尸丸，看看那江湖上那个什么任老妖弄的、泡的人尸丸，是吧？东邪西毒，吃下去，用人尸体做的人尸丸，吃了以后你想再活那就继续吃我人尸丸，你必须听我的，这就是世界的人尸丸，你咋弄啊？
-苍天在上，苍天呐，苍天呐，呵，不是Sara那个苍天，不是九指妖那个所谓的上帝，这个傻货，我今天早上木兰给我发信息把我笑得快晕了，太搞笑了，这么惨，惨到这个样子，说郭文贵来不是来灭共的，是灭九指妖的，你太拿你当个屁了！你太拿你当个屁了你呀！呵呵，灭你。
-所以说现在共产党现在乱了，从我发出那个盖特，我让大家简单看一下啊，大家就简单一看，哎呀，我别暴露信息呀，我别暴露信息呀，你看我简单，每一个小时三千多个塞满一次，每一个小时啊，每一个小时，国内很多战友体制内战友纷纷爆料，七哥这个太重要了，你说对了。看看中央警卫局，中央警卫局还有八一大楼什么人戴口罩、什么人不戴口罩。
-还有现在有些媒体说马云因为跟刘鹤搞矛盾，你扯淡简直是，轮得着刘鹤吗，刘鹤已经靠边站两年了身体都垮了个屁的了，而且查出一大堆的钱，几百个亿的钱，他跟马云好得很！我在北京马云跟他见刘鹤就跟孙子一样，马云卖了刘鹤是真的，还马云跟刘鹤有矛盾，刘鹤到了达沃斯论坛，马云带了一堆的东西邀请英国首相的、邀请欧洲首相的安排者就是刘鹤，都是我哥们儿，都问我呢，欸，Miles我应不应该去，我说你干嘛去，不就溷点吃的嘛，他们说不是啊！刘鹤请我的，刘鹤对我给我帮过忙，我说那你去吧，这是常识，回头七哥今天开完庭继续爆料。
+众议员迈克·华尔兹： 苹果公司和其他“醒来”的公司继续游说反对禁止美国公司使用 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 强迫劳工的法案。此举使他们自己蒙羞。你不能在美国大声疾呼社会正义的同时却又拥抱中共国种族灭绝的行为。 【每日电讯报报道：苹果等零售商继续就中共国奴工提案游说国会】
 
-[郭爆料串珠系列文章标题和链接汇总238 – 1](https://gnews.org/zh-hans/888831/)
 
-推荐阅读：
 
-[郭爆料串珠(十) 不灭共，疫苗是不可能研制出来的](https://gnews.org/zh-hans/260583/)
+> Apple and other “woke” corps continue to disgrace themselves in their efforts to lobby against bills that would prohibit American firms from using China forced labor. You can't call out social justice in the U.S. & embrace genocidal practices in China. [https://t.co/Elj62eYZO7](https://t.co/Elj62eYZO7)
+> — Rep. Mike Waltz (@michaelgwaltz) [April 26, 2021](https://twitter.com/michaelgwaltz/status/1386718075307937792?ref_src=twsrc%5Etfw)
 
-[郭爆料串珠（222）想找解药必灭共，靠共产党给你是不可能的！](https://gnews.org/zh-hans/1057746/)
 
-[郭爆料串珠（223）中共病毒和疫苗就是中共给全世界准备的人尸丸！](https://gnews.org/zh-hans/1061842/)
 
-整理：德国感恩农场文迅等
-发稿：如风
-郭爆料串珠系列文章，都是从800多篇郭文贵先生直播听写文字版、盖特精选而成，有时也包含部分班农先生、路德社、闫丽梦博士直播文字，具有文献价值。由德国感恩农场文迅等按时间、主题整理。感谢战友听写！
+FBI： 中国政府通过最近的网络攻击，窃取了许多美国人的健康信息和个人身份信息。这些数据可以帮助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 针对个人进行潜在的监视、操纵或勒索。国家网络安全中心[@NCSCgov](https://twitter.com/NCSCgov) 【所附链接为，国家情报总监官网文章：中共国从美国收集基因组和其他医疗保健数据：隐私风险和美国经济与国家安全 】
 
-0
+
+
+> Through recent cyberattacks, the Chinese government has stolen many Americans' health information and personally identifiable information. This data could help China target individuals for potential surveillance, manipulation, or extortion. [@NCSCgov](https://twitter.com/NCSCgov?ref_src=twsrc%5Etfw) [https://t.co/uWULxNAt23](https://t.co/uWULxNAt23) [pic.twitter.com/nxgnTIqsQX](https://t.co/nxgnTIqsQX)
+> — FBI (@FBI) [April 25, 2021](https://twitter.com/FBI/status/1386349513540001798?ref_src=twsrc%5Etfw)
+
+
+
+FBI： 中国政府通过最近的网络攻击，窃取了许多美国人的健康信息和个人身份信息。这些数据可以帮助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 针对个人进行潜在的监视、操纵或勒索。国家网络安全中心[@NCSCgov](https://twitter.com/NCSCgov) 【所附链接为，国家情报总监官网文章：中共国从美国收集基因组和其他医疗保健数据：隐私风险和美国经济与国家安全 】
+
+
+
+> Through recent cyberattacks, the Chinese government has stolen many Americans' health information and personally identifiable information. This data could help China target individuals for potential surveillance, manipulation, or extortion. [@NCSCgov](https://twitter.com/NCSCgov?ref_src=twsrc%5Etfw) [https://t.co/uWULxNAt23](https://t.co/uWULxNAt23) [pic.twitter.com/nxgnTIqsQX](https://t.co/nxgnTIqsQX)
+> — FBI (@FBI) [April 25, 2021](https://twitter.com/FBI/status/1386349513540001798?ref_src=twsrc%5Etfw)
+
+
+
+章家敦（中国问题专家）： [#基辛格](https://twitter.com/hashtag/%E5%9F%BA%E8%BE%9B%E6%A0%BC?src=hashtag_click) [#Kissinger](https://twitter.com/hashtag/Kissinger?src=hashtag_click) 曾说过，美国必须试着和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 共存。好，但如果中共国不想和我们共存呢？我们需要开始听听 [#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) 在说什么和看看他们实际上在做什么。[#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 【转商业内幕，基辛格谈疫情的后果等，和如何应对中国崛起】
+
+
+
+> [#Kissinger](https://twitter.com/hashtag/Kissinger?src=hash&amp;ref_src=twsrc%5Etfw) once again says the [#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw) must try to coexist with [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw): [https://t.co/HrH7u8eR73](https://t.co/HrH7u8eR73). Okay, but what if China has no intention to coexist with us? We need to start listening to what [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw) is saying and watching what it is in fact doing. [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Gordon G. Chang (@GordonGChang) [April 26, 2021](https://twitter.com/GordonGChang/status/1386682023352410119?ref_src=twsrc%5Etfw)
+
+
+
+美国防部部长奥斯汀： 我对印度的COVID-19疫情深感忧虑。今天，我指示国防部在我们的职权范围内使用所有可用的资源来支持美国的机构间工作，以向印度的一线医疗工作者提供他们所需的材料。 【附国防部长声明全文】
+
+
+
+> I’m deeply concerned about the COVID-19 outbreak in India, and today, I directed the [@DeptofDefense](https://twitter.com/DeptofDefense?ref_src=twsrc%5Etfw) to use every resources at our disposal, within our authority, to support U.S. interagency efforts to provide India’s frontline healthcare workers with the materials they need. [pic.twitter.com/v93iek3G2i](https://t.co/v93iek3G2i)
+> — Secretary of Defense Lloyd J. Austin III (@SecDef) [April 25, 2021](https://twitter.com/SecDef/status/1386464321723588610?ref_src=twsrc%5Etfw)
+
+
+
++3
