@@ -1,36 +1,72 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [疫情下的西班牙]邮寄选票 – 影响西班牙政治格局的关键？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1141341/)
+## 谷歌文件审查有关冠状病毒疫苗的内容
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1141398/)
 
-- 作者： gokuabuela
+新闻来源：《布莱特巴特新闻》| 作者：Allum Bokhari | 发布时间：2021年4月23日
 
+翻译/简评：新街口 | 校对/审核：万人往| Page：Daoiii
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-**西班牙2021年4月26日电/西喜社——**
-
-西班牙邮政局已经处理了235,696（23万5千）份为5月4日（星期二）马德里社区地区选举进行邮寄投票的申请，这意味着马德里地区4.6%的人口将通过这一形式进行投票。因为疫情，当然还有选举在工作日举行的事实，使这种投票形式成为有史以来的最大值，比2019年多了42%。与2015年相比，增加了52%。但与其他在疫情期间进行了投票的自治区相比，马德里的需求比预期的要低。巴斯克地区的邮寄选票比2016年多了高达140%，加利西亚的邮寄投票增加了79%，而在2月份的加泰罗尼亚地区选取中，邮寄选票相比2016年增加了350%。
-
-无论如何，应该指出的是，马德里的人民已经通过邮件进行了很多投票。在2019年5月的选举中，158124名公民选择了这一形式，当时还举行了市政和欧洲选举。在马德里的市中心Callao挂着一张PSOE（左翼执政党-社民党）的大海报，标语是：“你的自由就是去投票。如果你不能去，就通过邮件投票”。
-
-人民党正式要求延长这种方式的最后期限，中央选举委员会上周延长了通过电话申请投票（至4月25日）和在社区邮局存放选票（至5月1日）的最后期限。据今天的Correos报道，总共有235,696份申请被接受。其中，163,207人是亲自到邮局网络提交的，72,489人是通过电话提交的。
+[!\[\]()!\[\](https://spark.adobe.com/page/C61SndXAPElr7/images/a37899d7-73e9-4374-8962-e94d03649129.png?asset_id=f7518a25-ceb2-42be-b63b-243c71d85c64&amp;img_etag=%22a54e0ceccab745453440a0b759623f48%22&amp;size=1024)](https://spark.adobe.com/page/C61SndXAPElr7/images/a37899d7-73e9-4374-8962-e94d03649129.png?asset_id=f7518a25-ceb2-42be-b63b-243c71d85c64&amp;img_etag=%22a54e0ceccab745453440a0b759623f48%22&amp;size=1024)图片来源：iyouport
 
 **简评：**
 
-**疫情 – 邮寄选票 – 改变选举结果 – 川普落选，这个故事大家应该都很熟悉了。虽然不一定和美国一样，但中共的“超限战”对美国大选的严重干预，似乎正在西班牙上演。虽然尚未有十足的证据确认，但是至少，我们已经看到了一些熟悉的剧本。**
+随着疫苗被全世界各国政府强行推广，疫苗产生副作用的新闻也层出不穷。虽然很多有良知的科学家和新闻工作者挺身而出，对疫苗的安全性进行了质疑并进行了报道，但遗憾的是他们都被各种媒体和社交平台审查和封口。
 
-**加泰罗尼亚选举中，邮寄选票相比上一届增加了350%，当然理由就是疫情。最后，执政党PSOE（左翼执政党-社民党）的候选人，原卫生部长当选为加泰罗尼亚州长。而在选举前，PSOE的排名是远远落后的。还有一个熟悉的剧本，就是选举前，此候选人的宣传海报是最多的，媒体报道的民调也是最高的。**
+这篇布赖特巴特新闻的文章又给我们揭开了一个新的黑幕：除了大家都经历了的推文、视频、网上的文章，现在连我们的文档也被扫描、监控和封杀了。一个多达100多页、记录了来自世界各地关于疫苗头条新闻的文档，在上传到云端后受到了谷歌的审查。除了作者本人，其他人都不可以访问。
 
-**如今，马德里地区选举如火如荼。马德里是西班牙的政治中心，选举结果可以说能决定未来几年西班牙的政治走向。目前，马德里是右翼的人民党（PP）暂时领先于左翼的PSOE,而极右翼的VOX则是异军突起，虽然不太可能暂居州议会多数席位，但相较之前有了巨大增长。**
+[!\[\]()!\[\](https://spark.adobe.com/page/C61SndXAPElr7/images/e79c5dfc-9013-4d9f-94c2-4954ac0a5a7d.png?asset_id=1e182dbf-aef7-45da-8437-c178b75afb90&amp;img_etag=%223f0265bb00446f466eff07078d3b9e1b%22&amp;size=1024)](https://spark.adobe.com/page/C61SndXAPElr7/images/e79c5dfc-9013-4d9f-94c2-4954ac0a5a7d.png?asset_id=1e182dbf-aef7-45da-8437-c178b75afb90&amp;img_etag=%223f0265bb00446f466eff07078d3b9e1b%22&amp;size=1024)图片来源：iyouport
 
-**相比美国的邮寄选票的有效期可以拖延到选举日之后，西班牙的最后期限是在选举日之前，至少表面上看更公平一些，也许，会玩的不仅仅只有一个“左翼”。**
+谷歌是一个技术公司，为本文作者提供的是网络存储服务，却对客户存储的文件进行审查，还对疫苗的作用做出裁定，把质疑疫苗作用和记录疫苗新闻的文档进行新闻检查和封杀。
 
-素材：gokuabuela；审核：Aries的星；校对：信心的选择；发稿：信心的选择
+这种对文件的新闻检查可以说是对真相斩草除根式地彻底掩盖。对网络文章、视频的封杀只是堵住了说话人的嘴，盖住了听众们的耳朵。而控制你的网盘和网盘中的文件，无疑相当于到你家中去修改、销毁罪证。正如文章评论区有人评论的那样：“难道这么积极地将这一重要信息拒之于众，就是为了制药厂和各国政府避免受到疫苗受害者的诉讼吗？”
 
-**新闻来源：**[机密报](https://www.elconfidencial.com/espana/madrid/2021-04-26/demanda-voto-correo-madrid-crece-menos_3050712/)
+[!\[\]()!\[\](https://spark.adobe.com/page/C61SndXAPElr7/images/a384f55b-15c3-42f3-9fcd-98ff7b9407f3.jpg?asset_id=095fb581-011b-4903-a39d-e4d42c17c32a&amp;img_etag=%22e65f53d3a9f240392a30588a406c41c7%22&amp;size=1024)](https://spark.adobe.com/page/C61SndXAPElr7/images/a384f55b-15c3-42f3-9fcd-98ff7b9407f3.jpg?asset_id=095fb581-011b-4903-a39d-e4d42c17c32a&amp;img_etag=%22e65f53d3a9f240392a30588a406c41c7%22&amp;size=1024)图片来源：iyouport
 
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+**原文翻译：**
 
-+2
+## 谷歌审查跟踪冠状病毒疫苗事情的文件
+
+[!\[\]()!\[\](https://spark.adobe.com/page/C61SndXAPElr7/images/6b7d96f4-5488-4bdd-894d-7d998e4a9bb9.jpg?asset_id=4f488959-2051-4c48-a8ad-32030da7da48&amp;img_etag=%22a7d8c51af2a138ac49562e7fa1addcd6%22&amp;size=2560)](https://spark.adobe.com/page/C61SndXAPElr7/images/6b7d96f4-5488-4bdd-894d-7d998e4a9bb9.jpg?asset_id=4f488959-2051-4c48-a8ad-32030da7da48&amp;img_etag=%22a7d8c51af2a138ac49562e7fa1addcd6%22&amp;size=1024)
+
+谷歌审查了一个公开文件，该文件收集了主流新闻媒体以及社交媒体上有关新冠肺炎疫苗不良反应的帖子。谷歌审查了这个长达100多页的文档。该文档现已重新托管在此网站上。
+
+前英国独立电视台（ITV）和英国广播公司（BBC）记者安娜·布雷斯（Anna Brees）在推特上的一条帖子注意到，谷歌审查了这份文件。
+
+“这是我第一次看到云端硬盘阻止了一个文档，”布雷斯说，“这是一份来自世界各地、关于疫苗头条新闻的很长的文件。这份文件通过电子邮件发送给我。三天前我还可以查看它，但现在它说了这个。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/C61SndXAPElr7/images/2350c1a0-1a30-4eea-a029-3633f92d0c12.png?asset_id=9db5eea6-4457-4c85-b1f8-9c7f63784cdb&amp;img_etag=%22723f9e999623ccdc797e55b2c8c4bade%22&amp;size=2761)](https://spark.adobe.com/page/C61SndXAPElr7/images/2350c1a0-1a30-4eea-a029-3633f92d0c12.png?asset_id=9db5eea6-4457-4c85-b1f8-9c7f63784cdb&amp;img_etag=%22723f9e999623ccdc797e55b2c8c4bade%22&amp;size=1024)
+
+布雷斯分享了一个截图，显示了谷歌的一条消息，通知用户该文档“违反了我们的服务条款”。
+
+布雷斯本人因报道冠状病毒而成为大型科技公司审查的对象。她最近采访了加拿大病理学家罗杰·霍德金森（Roger Hodkinson）博士，他在12月宣称新冠肺炎“只是又一次严重的流感”之后，成为包括法新社（AFP）在内的事实检查人员的目标。
+
+为了报复她对霍德金森的采访，布雷斯说YouTube删除了她的视频，而YouTube的竞争对手Vimeo不仅删除了采访，还删除了她的整个帐户，包括她拥有和经营的视频新闻学校的培训材料。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/C61SndXAPElr7/images/7b9c2ecb-4b6e-42f8-a481-c5135c318fff.png?asset_id=070c0c53-553c-428e-923a-37de60a8524d&amp;img_etag=%22e0b05efee8e6e921f7fa14f203dda0c9%22&amp;size=2560)](https://spark.adobe.com/page/C61SndXAPElr7/images/7b9c2ecb-4b6e-42f8-a481-c5135c318fff.png?asset_id=070c0c53-553c-428e-923a-37de60a8524d&amp;img_etag=%22e0b05efee8e6e921f7fa14f203dda0c9%22&amp;size=1024)
+
+布雷斯说，谷歌旗下的YouTube在一个小时内就删除了这段采访。
+
+谷歌文档是谷歌云端硬盘服务的一部分，没有像其他臭名昭著的大型技术平台那样，有审查其用户的不良记录，但是其服务条款长期以来一直赋予谷歌审查各种文档的能力。2017年，Google云端硬盘用户将公司对其文档的“令人毛骨悚然的监控”称为潜在的审查来源。
+
+谷歌云端硬盘的广泛服务条款使谷歌有权删除一系列其他违禁材料中的“仇恨言论”、“骚扰”和“误导性内容”。
+
+谷歌发言人在对布赖特巴特新闻的评论中说，如果文件违反其政策，谷歌将从公共访问中删除这些文件，但是文件所有者仍然可以访问该文件。
+
+“我们禁止将谷歌云端硬盘用于散布色情和露骨的色情内容、危险或非法活动、恶意软件以及有关新冠肺炎疫苗的有害的误导性言论等内容，”该发言人说，“如果共享文档不符合我们的政策，我们可能会禁止共享这些文件。文件所有者仍然可以访问其私人文件。”
+
+Allum Bokhari是布赖特巴特新闻的高级技术通讯员。他是《已删除：大型科技公司的战斗：去川普运动并抢夺大选》一书的作者
+
+🔗[原文链接](https://www.breitbart.com/tech/2021/04/23/google-censors-document-tracking-covid-vaccine-stories/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/C61SndXAPElr7/images/2a9217f7-1549-446e-bf57-9fb29741160d.jpg?asset_id=c85755a7-ef39-495d-b9c1-33549723da36&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/C61SndXAPElr7/images/2a9217f7-1549-446e-bf57-9fb29741160d.jpg?asset_id=c85755a7-ef39-495d-b9c1-33549723da36&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+
++1

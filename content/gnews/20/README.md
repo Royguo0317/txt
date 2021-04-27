@@ -1,51 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 喀秋莎新闻参考- 2021年4月25日(星期日)
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1141953/)
+## 4月26日美国政要和政评家推特精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1142019/)
 
-俄罗斯莫斯科喀秋莎农场 土星
+参议员瑞克·斯科特： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 对自由与自由的战争在变本加厉地继续。这是卑鄙的。我谴责 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 压迫性的审查，并赞扬赵婷（ChloéZhao）的成功。 【附纽约时报的报道：中共国对赵婷获奥斯卡奖噤声，但影迷们想方设法欢喜庆祝】
 
-编辑 НастяApfel(娜斯佳)    上传 星河
-![]()![](https://gnews.org/wp-content/uploads/2021/04/PicsArt_04-23-03.20.12.jpg)
-一、新中国联邦新闻
 
-1.“路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=IiJ35C-5lPE)、[晚间](https://www.youtube.com/watch?v=tPySC0lcJFQ)）:
 
-Ⅰ. 4月25日，塞林博士（Dr.Sellin）再发重磅推文：“重磅炸弹：为什么福奇资助“科学怪人博士”马利克（Malik）？美国食品药品监督管理局（FDA）为什么要帮助他？为什么NIH合同HHSN27220140000C如此机密？是因为HHSN2722014的“功能增强”系列研究在2014年“暂停”了吗？”
+> Communist China’s war against freedom and liberty rages on. It is despicable. I condemn this oppressive censorship by Communist China and applaud Chloé Zhao for her success. [https://t.co/SfPvJLYjGm](https://t.co/SfPvJLYjGm)
+> — Rick Scott (@SenRickScott) [April 26, 2021](https://twitter.com/SenRickScott/status/1386699886242979847?ref_src=twsrc%5Etfw)
 
-Ⅱ. 2003年SARS病毒、中东MERS病毒和新冠病毒都是港大P3实验室首先完成病毒分离，但是港大P3实验室故意不发表论文，全世界只有三个人知道其中的秘密，闫丽梦博士就是其中之一。闫博士透露是她丈夫第一个成功分离出新冠病毒的，Malik特意要求他不要对外公布。
 
-Ⅲ. 曾是专业眼科医生的参议员保罗接受福克斯采访，当主持人玛丽亚询问他关于中共病毒起源问题时，他直接讨论了“功能增强”实验。他说，关于新冠病毒起源，一个很大的伦理学问题是：人类是否应该做“功能增强”实验。福奇为什么用美国的资金资助中共做这种危险的实验。
 
-2. 欧盟对中共的立场正在变得强硬。在北京和布鲁塞尔达成一项具有里程碑意义的投资协议的原则后仅四个月，政客们看到的一份高级别内部报告显示，欧盟现在越来越悲观，认为商业利益与政治上的担忧无关，而这正是习近平主席所谓的“威权主义转变”。
+众议员迈克·华尔兹： 苹果公司和其他“醒来”的公司继续游说反对禁止美国公司使用 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 强迫劳工的法案。此举使他们自己蒙羞。你不能在美国大声疾呼社会正义的同时却又拥抱中共国种族灭绝的行为。 【每日电讯报报道：苹果等零售商继续就中共国奴工提案游说国会】
 
-3. 周一，日本首相菅义伟在与印度总理莫迪的电话会谈中表示，对中共国在周边水域的侵略行为表示”严重关切”。
 
-4. 俄亥俄州共和党众议员迈克·特纳（Mike Turner）周日警告美国核武库负责人，美国还没有准备好面对中共国和俄罗斯发展核能的威胁。
 
-5. 根据MI6负责人理查德·摩尔的说法，英国经纪人正在监测世界上最大的污染源，特别是中共国，以确保他们遵守其对大气的国际义务。
+> Apple and other “woke” corps continue to disgrace themselves in their efforts to lobby against bills that would prohibit American firms from using China forced labor. You can't call out social justice in the U.S. & embrace genocidal practices in China. [https://t.co/Elj62eYZO7](https://t.co/Elj62eYZO7)
+> — Rep. Mike Waltz (@michaelgwaltz) [April 26, 2021](https://twitter.com/michaelgwaltz/status/1386718075307937792?ref_src=twsrc%5Etfw)
 
-6. 在对中共国在印度洋地区日益增长的海上存在越来越担忧的背景下，印度和法国海军周日在阿拉伯海展开了为期三天的大型军事演习。
 
-7. 美国国际宗教自由委员会（USCIRF）周三在一份年度报告中说，由于中共侵犯了新疆维吾尔自治区和其他地区的自由礼拜权，美国政府应将中共国重新命名为“特别关注国家”。
 
-8. 美国对澳门黑社会头目尹国驹（俗称破牙）的一系列制裁，帮助吉隆坡揭开马来西亚与中共犯罪集团的联系，以及东南亚国家相关的警察腐败。
+FBI： 中国政府通过最近的网络攻击，窃取了许多美国人的健康信息和个人身份信息。这些数据可以帮助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 针对个人进行潜在的监视、操纵或勒索。国家网络安全中心[@NCSCgov](https://twitter.com/NCSCgov) 【所附链接为，国家情报总监官网文章：中共国从美国收集基因组和其他医疗保健数据：隐私风险和美国经济与国家安全 】
 
-9. 北京驻香港的高级官员说，香港律师协会保罗·哈里斯“应该停止转向政治化”。此前，该组织的主席批评了资深民主党人对2019年8月两个未经授权的集会的判决。中共联络处发言人上周五表示，保罗·哈里斯“散布歪曲的意见，公然支持违法者，为使用暴力者开脱，抹黑执法，对司法机关施加压力。”
 
-二、世界新闻
 
-1. 印度的中共病毒病例在周一连续第五天达到创纪录的高峰，包括英国、德国和美国在内的国家承诺向印度医院提供紧急医疗援助，帮助应对这场危机。
+> Through recent cyberattacks, the Chinese government has stolen many Americans' health information and personally identifiable information. This data could help China target individuals for potential surveillance, manipulation, or extortion. [@NCSCgov](https://twitter.com/NCSCgov?ref_src=twsrc%5Etfw) [https://t.co/uWULxNAt23](https://t.co/uWULxNAt23) [pic.twitter.com/nxgnTIqsQX](https://t.co/nxgnTIqsQX)
+> — FBI (@FBI) [April 25, 2021](https://twitter.com/FBI/status/1386349513540001798?ref_src=twsrc%5Etfw)
 
-2. 英国皇家海军史上最强大的水面舰艇“伊丽莎白女王”号（HMS Queen Elizabeth）新航母将于下月启航前往亚洲，船上有8架快速喷气式飞机。随行人员将包括6艘皇家海军舰艇、一艘装备“战斧”巡航导弹的潜艇、14架海军直升机和一个皇家海军陆战队连。国防部长本·华莱士星期一表示，这次访问的目的是表明英国“不是后退，而是向前航行，在塑造国际体系中发挥积极的作用”。
 
-3. 俄罗斯检察官周一下令暂停克里姆林宫的批评者阿列克谢·纳瓦尔尼（Alexei Navalny）的反腐败基金会（FBK）及其区域网络的所有活动，等待法院裁定是否将其列为极端组织。
 
-4.  美国驻南亚部队指挥官奥斯汀·斯科特·米勒（Austin Scott Miller）周日在喀布尔告诉记者，美军已经开始了从阿富汗地区全面撤军的进程。
+FBI： 中国政府通过最近的网络攻击，窃取了许多美国人的健康信息和个人身份信息。这些数据可以帮助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 针对个人进行潜在的监视、操纵或勒索。国家网络安全中心[@NCSCgov](https://twitter.com/NCSCgov) 【所附链接为，国家情报总监官网文章：中共国从美国收集基因组和其他医疗保健数据：隐私风险和美国经济与国家安全 】
 
-5. 越来越多的世界领导人正在向美国公司和拜登总统施加压力，以避免与伊朗达成一项糟糕的协议，取消制裁或向德黑兰提供货币援助，而无需作出重大让步，以结束其恐怖主义、核威胁和其他恶意活动。
 
-6. 瑞典研究机构SIPRI报告称，尽管全球卫生和经济危机不断，但2020年的军费开支总额仍在上升。几乎三分之二的军费开支来自五个国家—美国、中共国、印度、俄罗斯和英国，占全部军费开支的62%。
 
-0
+> Through recent cyberattacks, the Chinese government has stolen many Americans' health information and personally identifiable information. This data could help China target individuals for potential surveillance, manipulation, or extortion. [@NCSCgov](https://twitter.com/NCSCgov?ref_src=twsrc%5Etfw) [https://t.co/uWULxNAt23](https://t.co/uWULxNAt23) [pic.twitter.com/nxgnTIqsQX](https://t.co/nxgnTIqsQX)
+> — FBI (@FBI) [April 25, 2021](https://twitter.com/FBI/status/1386349513540001798?ref_src=twsrc%5Etfw)
+
+
+
+章家敦（中国问题专家）： [#基辛格](https://twitter.com/hashtag/%E5%9F%BA%E8%BE%9B%E6%A0%BC?src=hashtag_click) [#Kissinger](https://twitter.com/hashtag/Kissinger?src=hashtag_click) 曾说过，美国必须试着和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 共存。好，但如果中共国不想和我们共存呢？我们需要开始听听 [#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) 在说什么和看看他们实际上在做什么。[#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 【转商业内幕，基辛格谈疫情的后果等，和如何应对中国崛起】
+
+
+
+> [#Kissinger](https://twitter.com/hashtag/Kissinger?src=hash&amp;ref_src=twsrc%5Etfw) once again says the [#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw) must try to coexist with [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw): [https://t.co/HrH7u8eR73](https://t.co/HrH7u8eR73). Okay, but what if China has no intention to coexist with us? We need to start listening to what [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw) is saying and watching what it is in fact doing. [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Gordon G. Chang (@GordonGChang) [April 26, 2021](https://twitter.com/GordonGChang/status/1386682023352410119?ref_src=twsrc%5Etfw)
+
+
+
+美国防部部长奥斯汀： 我对印度的COVID-19疫情深感忧虑。今天，我指示国防部在我们的职权范围内使用所有可用的资源来支持美国的机构间工作，以向印度的一线医疗工作者提供他们所需的材料。 【附国防部长声明全文】
+
+
+
+> I’m deeply concerned about the COVID-19 outbreak in India, and today, I directed the [@DeptofDefense](https://twitter.com/DeptofDefense?ref_src=twsrc%5Etfw) to use every resources at our disposal, within our authority, to support U.S. interagency efforts to provide India’s frontline healthcare workers with the materials they need. [pic.twitter.com/v93iek3G2i](https://t.co/v93iek3G2i)
+> — Secretary of Defense Lloyd J. Austin III (@SecDef) [April 25, 2021](https://twitter.com/SecDef/status/1386464321723588610?ref_src=twsrc%5Etfw)
+
+
+
++3

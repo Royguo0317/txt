@@ -1,57 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共对美的外交挑拨与示弱
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1141397/)
+## 慧眼看世界202104026（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1141459/)
 
-**撰稿: 天鹅**
-
-**审核: pv0, 鸡蛋灌饼**
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/2a79669bc79d2ed8.jpg)**图片: 昆仑竹**
-
-2021年4月26日中共官媒《环球时报》接连发表文章“中国对美国构成生存威胁？美媒：’中国威胁’远比不上当年日本”，美媒：与中国竞争，美国自缚手脚”。中共点评这两篇文章，意在挑拨日美同盟关系，妄图扭转美中的对抗局面，企图洗脑中（共）国老百姓，营造万事太平的迹象，其用意对内而不对外。
-
-**断章取义、掩盖真相**
-
-中共官媒但凡引用外媒的文章，无一例外的是断章取义，只讲好的，不讲坏的。《环球时报》在[3]“美媒：与中国竞争，美国自缚手脚”中引用CNBC的文章[4]“Op-ed: As China forges global trade ties, U.S. risks falling behind despite early Biden wins”，对其中的美日印澳的“四方会谈”、日本首相访美、美国联合欧美等国制裁等内容只字未提。文中写到了（Biden in March convened the first-ever leaders meeting of “the Quad”…,  Biden welcomed Japanese Prime Minister Yoshihide Suga as…, the EU on March 22 imposed economic sanctions on China over human rights violations…）拜登政府有史以来第一次召开了美日印澳的“四方会谈”，目的就是要制衡中共，应对中共的“疫苗外交”；日本首相来访时明确承诺要与自由民主国家共同努力，抵制那些挑战自由、开放国际秩序的国家，还要确保台湾海峡的和平；3月22日，欧盟与美国，加拿大和英国宣布对新疆的侵犯人权行为实施经济制裁等。中共在媒体上一贯造假，试问如此虚伪的政权，谁又敢与其进行贸易呢？中共博鳌论坛的凄惨氛围已然说明了一切。
-
-**外交荏弱无能**
-
-随着中共病毒、种族灭绝、反人类罪的发酵，中共正遭受全世界正义力量的制裁。上周郭文贵先生两次直播中分别爆料了中共邀请外籍飞行员，“辽宁号”航母的丑态，以及病毒的解药在中共手中。中共在外交上不得不再次示弱，在[1]《环球时报》文章中写道，“中国军力仍主要是区域性的，对美国并不构成直接威胁，特别是海军力量”。这也从侧面印证了爆料革命情报的准确性，唯真不破。
-
-文中还写道，“中国目前是否对美国构成生存威胁 — 以至于可能导致许多人所担心的霸权战争？答案是’还没有’ — 肯定还没有到德国或苏联那样的程度”。中共也意识到了在世界眼中，他们俨然就是当年的纳粹和苏联，但是与他们相比，中共的实力仍然只是“擀面杖”装装样子。所以中共只能在美中对抗的火焰中多浇上几盆水，可见党内外交、宣传口上仍然有着一些聪明人能够看清真相。一味地跟随习总加速师，最后必定是死路一条。笔者也奉劝这些人早日放下屠刀，与爆料革命、新中国联邦合作才能自救。
-
-**挑拨美日关系**
-
-中共在示弱的同时，不忘使用挑拨离间的老方法。文中写道[1]“现在，中国经济和政治影响力大增，但仍无法与20世纪70年代末的日本相比。当时，日本车企重挫美国汽车工业，导致后者大规模重组，引发美国政府救助”。一度自信爆棚的中共，居然吹起了日本，真是“司马昭之心路人皆知”。中共为了撇清中共的对美威胁，竟然举出如此荒唐的例子，实在让人对中共媒体的能力无语。对美国汽车业在70~80年的不景气是由多方面造成，但主要原因绝非是日本车企。
-
-简单谈一下，50~60年代，私人豪华车（兼具时尚与舒适），肌肉车（高性能、大排量）在美国风靡一时，但随着1963年的《清洁空气法》(Clean Air Act)、1965年的《车辆空气污染与控制法》(Vehicle Air Pollution and Control Act)的实施，1970年代初美国开始限制使用含铅汽油，从而导致了发动机的低压缩被使用，从而降低了马力和性能，全面影响了美国汽车也的工程、制造、营销等环节。豪华车、肌肉车逐步退出市场，由于行业的转型需要大量的时间，所以日本、韩国的一些进口的小型，廉价汽车逐渐进入美国市场。其次，1973年的石油危机造成汽油价格飞涨，这也使得外国小型节油汽车在美国汽车销售市场中所占份额急剧上升。此外许多州政府的财政激励，也引入了许多日本汽车厂进驻南部各州；通用，福特，克莱斯勒三巨头也与日本车企合作联合研发。总而言之，中共所谓的日本威胁论简直是无稽之谈。
-
-最后回到本文的主题。中共在外交上的示弱、挑拨等卑劣手段，充分反映出了他们的恐慌与极度不自信。军事上的一团浆糊、经济上的一塌糊涂，外交上的“举目无亲”，中共的灭亡已经成为了必然，希望墙内、党内看清真相的人士能够尽快站出来，与爆料革命、新中国联邦合作，一起消灭中共这个邪恶组织！
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**本文仅代表作者个人观点。**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-17.jpg)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-18.jpg)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-17.jpg)
 
-**参考新闻: **
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-19.jpg)
 
-[中国对美国构成生存威胁？美媒：“中国威胁”远比不上当年日本](https://oversea.huanqiu.com/article/42s8NfUgeTz)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-17.jpg)
 
-[Stop Hyping the China Threat](https://nationalinterest.org/feature/stop-hyping-china-threat-183433?page=0%2C1)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-15.jpg)
 
-[美媒：与中国竞争，美国自缚手脚](https://oversea.huanqiu.com/article/42s8Mj6Zv5Z)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-15.jpg)
 
-[Op-ed: As China forges global trade ties, U.S. risks falling behind despite early Biden wins](https://www.cnbc.com/2021/04/24/op-ed-as-china-forges-global-trade-ties-us-risks-falling-behind-biden-xi.html)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-15.jpg)
 
-[Automotive industry in the United States](https://en.wikipedia.org/wiki/Automotive_industry_in_the_United_States#Great_Depression_and_World_War_II)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-15.jpg)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-22.jpg)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-27.jpg)
 
-* * *
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-26.jpg)
 
-**发布: 法国巴黎七星编辑组**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-20.jpg)
 
-0
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-19.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-19.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-13.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/18-10.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/19-9.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20-7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/21-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/22-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/23-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/24-1.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
+
++2
