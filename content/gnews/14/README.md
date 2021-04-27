@@ -1,45 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳大利亚将取消与中共的港口租赁协议
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1144235/)
+## 【有声读物】纽约南区法院和七哥互动的小回忆
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1144305/)
 
-翻译：康州盘古农场 – Mike Li
-校对：康州盘古农场 – 柯镇恶
-编辑：康州盘古农场 – 心照
+配音：香草山录音组 米小乐
 
-据《Dailymail Australia》作者：Aidan Wondracz，2021年4月24日报道
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/2-70.jpg)      达尔文港
-达尔文港与中共国公司的租约可能会被政府撕毁
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-北领地政府于2015年与一家中共国公司签订了为期99年的租约
 
-外交部长玛丽斯-佩恩（Marise Payne）可能会认真考虑终止这一长期租约。
 
-此举是在她撕毁维多利亚州政府与中共的“一带一路”协议之后进行的。
 
-外交部长玛丽斯.佩恩在上周撕毁了维多利亚州政府的“一带一路”倡议后，她可能会撕毁达尔文港与中共签订的百年租约。
 
-北领地政府于2015年与一家中资公司签订了达尔文港为期99年的租约。
 
-国防部长彼得.达顿（Peter Dutton）周日表示，这只是佩恩女士正在审查的数千份与海外公司的租约中的一份。
 
-他说：“有数以千计的此类案件需要审查，外交部长正在处理所有这些案件。”
+从4月5号开始的SEC抗议，在4月21号移师到了纽约南区法院门外。
 
-“我不是在预告或者暗示她正在查看这个问题。我认为这是在玛丽斯的职权范围内。如果它（这些案件）不符合我们的国家利益，那么显然她会采取行动。”
+这天的天气有点怪，上午还是阳光灿烂的，下午突然就下起了大雨和冰雹，我和战友们一边在躲雨，一边在等着七哥从南区法院做完证出来。噼里啪啦的雨，下着下着突然就停了，抬头一看，七哥神采奕奕的从南区法院出来啦！
 
-周三，佩恩女士决定撕毁维多利亚州政府与中共国的 “一带一路 “协议，因为这不符合澳大利亚的国家利益。
 
-这一决定结束了总理斯科特-莫里森（Scott Morrison）和维多利亚州州长丹尼尔-安德鲁斯（Daniel Andrews）之间，关于由中共国资助的1.5万亿美元基础设施项目的长期争斗。
 
-12月，联邦政府通过了一项法律，允许联邦政府撤销州政府与外国实体之间的协议。
+**文字版原文：[【战友心声】纽约南区法院和七哥互动的小回忆](https://gnews.org/zh-hans/1142315/)**
 
-除了与中共国贸易协议有关的两项交易外，佩恩女士还撤销了维多利亚州与叙利亚的科学合作协议，以及维多利亚州与伊朗的教育合作协议。
+作者：纽约香草山健身部 Ivy001
 
-文章来源:[https://www.dailymail.co.uk/news/article-9508515/Port-Darwin-lease-China-torn-foreign-minister-Marise-Payne.html](https://www.dailymail.co.uk/news/article-9508515/Port-Darwin-lease-China-torn-foreign-minister-Marise-Payne.html)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+音频处理/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

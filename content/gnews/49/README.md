@@ -1,77 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【音频图片新闻】我们的民主在哪里？民国小学课本 vs 墙国的洗脑课本
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1143761/)
+## 独家：泄漏的便笺显示 积云媒体Cumulus Media员工必须在返回办公室之前接种COVID疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1143830/)
 
-**点评：Candy**
-
-配图：summer, bingo
+- 翻译：Jenny Ball
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-### 中华民国时的小学课本有什么内容？
+**西班牙2021年4月27日电/西喜社——**
 
-![](https://lh3.googleusercontent.com/loELvrKkoDaIjOa9I6jtbcbNwEPrz5lMb7rLnfQAYEUeAmilLfi7KQZkYQhOzSYtgPQIl_tU2M78ssqz3Ia7gjgw5tthsDTti6TIacCXHIbWcdDJ6iFGjQnpT_kC7wsWrhIcDnBD)
+据《每日电讯》报道，内部文件显示，总部位于亚特兰大的Cumulus Media是美国广播电台的第三大拥有者和运营商，据称要求每个员工100％接种COVID-19疫苗才能返回办公室。
 
-*中华民国时的小学课本以“君主政治和民主政治” 的对比, 作为授课内容，*
+根据备忘录，员工要“到2021年7月1日”到办公室上班。 从5月1日开始，员工可以自愿返回办公室，但必须100％接种疫苗， 他们还必须在办公室时继续戴口罩并保持社交距离。
 
-*令小学生对照学习，分析判断就知道哪个制度更好，更对人民有利，对国家向善的发展更有帮助。*
+为了获得临时入门许可：
 
+•员工必须进行完全疫苗接种，这是指他们在两剂系列中接受第二剂后至少两周，或在接受单剂疫苗后两周。
 
+•必须提供疫苗接种证明
 
+•员工必须选择在办公室全职工作，或在远程全职工作；鉴于目前的资源和支持需求的情况，我们无法迁就分开的时间表
 
+•员工必须有他们所在地主管的明确批准
 
-中华民国时的小学课本以“君主政治和民主政治” 的对比为授课内容，明眼人一看就知道哪个制度更好，更对人民有利，对国家向善的发展更有帮助，更容易被人民所接纳。
+这个备忘录指出，员工必须等到最后一次疫苗接种后至少两周，才可以重新使用Cumulus公司的任何设施。 员工还必须在返回工作之前，向当地业务经理和编程经理提交其COVID-19疫苗接种记录。
 
-因为君主政治是帝王把国家、权利及人民统统看成是自己私有的，国家管理方面是大政府，下级必须服从上级，老百姓只有服从的份儿，所有人都要效忠于帝王。而民主政治则完全相反，人民是国家的主人，人民选举出政府官员，官员必须服务于人民，不满意的官员还可以被罢免。这样教育出来的人们才能明白是非黑白，遵守普世价值。
+根据员工确认协议，“与COVID完全接种和疫苗接种有关的任何不正确或虚假陈述都会导致纪律处分，其中可能包括“立即解雇”。
 
+目前尚不清楚是否需要所有员工提供疫苗接种证明以在7月1日之后返回办公室，届时公司将重新评估其远程办公时间表。
 
+尽管美国食品药品监督管理局（FDA）为辉瑞，现代和强生疫苗提供了紧急使用授权（EUA），但FDA尚未对其正式许可。 FDA可能需要一年半的时间才能获得各种COVID疫苗的许可，具体取决于采用EUA的时间。根据STAT新闻，研究人员需要大约两年的时间进行临床试验，以建立足够的数据来证明疫苗是安全有效的。辉瑞和现代疫苗的临床试验始于2020年12月。
 
-### 墙国现在的小学课本有是什么内容？
+企业和雇主是否可以合法地要求雇员接种疫苗仍然悬而未决。菲利普·菲利普斯律师事务所（Fisher Phillips LLP）的合伙人凯文·特劳特曼（Kevin Troutman）表示，企业的疫苗强制执行计划受到人们的严重关注。
 
-100年过去了，墙国现在的小学课本有是什么内容？我们找到了1970年代的中共国江苏胜苏州市小学算术课本。惨不忍睹的是，连算术题里都充满了共产党的阶级斗争仇恨与火药味！
+特劳特曼告诉《华尔街日报》有关企业的一般情况：“执法过程可能非常复杂。”雇主必须提前发出大量通知，并需要数月的时间才能使雇员遵守。
 
-小学二年级的学生要学的算术题是：
+他解释说：“我开始看到许多雇主对采取此要求的行动缓慢。”
 
-“贫下中农狠批刘少奇，第一天写了大字报42张，第二天写了51张，两天共写了多少张？”
+根据《波士顿环球报》的子公司STAT News的说法，只要员工不歧视“由于潜在的残疾或宗教信仰而不能接受Covid-19疫苗的人”，雇主就可以要求使用该疫苗。
 
+Cumulus Media并未立即回应《每日电讯》的置评请求。
 
+**点评：**
 
-![](https://lh3.googleusercontent.com/s1WHBE5CoKWsuwOi6qQJI0nG32mNSUQhlbUpoJLWQC-kSoZNajkrIRXDBrTuH_17jI5y5n0I9OT2-3YjtN4cg4GQtU-deFD6vEv7nT5cp7sgTiuDlG6kf063n8EW51ZZyawKRoPI)
+**科学常识： 研究人员需要大约两年的时间进行临床试验，以建立足够的数据来证明疫苗是安全有效的。 辉瑞和现代疫苗的临床试验始于2020年12月。**
 
+**集权独裁的中共国在中国强行推行疫苗护照，以用疫苗为藉口全方位地控制人们的行动，言论和思想。现在在自由民主的灯塔国家的主要媒体机构，正在推行与强权中共同样的措施，采用同样的借口，对不服从者执行同样的制裁手段，更何况美国食品药品监督管理局（FDA）尚未为辉瑞，现代和强生疫苗正式许可。 FDA可能需要一年半的时间才能获得各种COVID疫苗的许可！难道不值得深思吗？**
 
+审核：蚂蚁兄弟；校对：信心的选择；发稿：信心的选择
 
-![](https://lh6.googleusercontent.com/4C6GAFc3uutwL4zVCjgM9qRRlcWLoIfNABd44tTt1FaS0DBHeEDXR26H--KLJguASiYSb23o4UGZDvuZCj6vABegnyIvA77lVJ3wCvrHtIzglGTx0pEkuYKm_fP64JFVZi_7S2zM)
+**新闻来源：**[www.dailywire.com](https://www.dailywire.com/news/exclusive-cumulus-media-employees-are-required-to-receive-covid-vaccine-before-returning-to-the-office-leaked-memo-reveals?utm_source=Jeeng)
 
-
-
-语文课本则是，首先要了解教材编写的宗旨：在习近平总书记领导下，以党中央为核心，坚持……再看课本的内容：我随意从互联网上”语文迷“ 的教材里查看了一下，看到的是“雷锋叔叔，你在哪里？”，”这片土地是神圣的“，“为人民服务”，“人是一根能思想的稻草”。。。。一看题目就知道内容，无非是要人民——在他们眼里如稻草一般的贱民，无限地付出，直至死亡。而那些从小学到大的人民，大多数都是俯首帖耳地照收不误了，以至造成现在文革2.0版的疯狂再现。可悲又可怜！
-
-![](https://lh6.googleusercontent.com/XAEg0CbT0ZR1aSi5qoDTsAtDS5yBrkWwdqfKPNyxtxJo9aqQgsAtgc7UpGFEOkPAxNrq6qbSIw5OjzGld-CWqpuluo1onn8cNUADVY8xEXHMm4PtR3hV-O8wVW9W4B--v2egwUD6)
-
-![](https://lh6.googleusercontent.com/kwOdy7RaDbxf2PwGeIeD-KcnW2EHtxPImt2nf3sWUqbNMHcKUBTAxBbbo90Kr0j-RF8pwOccriEhBAHK6U3f4XdHjlxEV9ayUw4OjJKUFKPf7_ifC-LPOtp3Y7044OozBgd7rxmM)
-
-CCP 不倒，全世界都将失去民主，出现文革2.0，必须铲除CCP！
-
-
-
-#### 【**免责声明**】 文章中中表达的所有观点均属于作者，并不代表任何组织或其他个人。 
-
-【**责任编辑**】：bingo 旧金山文宣组
-
-### **欢迎战友加入旧金山金喜农场**
-![](https://lh5.googleusercontent.com/B_qgfzdPe7PXEFJ00CMor-4S7gUJ-rc3GQynsbf5lDQTFq_r_hT5QSG7kwT1m9npdEdLRZt4dmHwRck2gxDfZP_2j0Tdrpkh4kkHu-VEGIxrxwCUUAtzhszjO6fxxQ)
-[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)[** **](https://discord.gg/QQzQ79grEA)
-
-[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)[** **](https://twitter.com/sf_himalaya)
-
-[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
-
-[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
-
-
-
-
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 +1

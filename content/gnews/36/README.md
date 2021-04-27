@@ -1,33 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳大利亚学者呼吁帮助新西兰减轻对中国的依赖
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1143816/)
+## 【每日快讯】04/26/2021：华裔女性赵婷获得奥斯卡最佳导演奖
+` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1143972/)
 
-翻译&评论：Runaway
-![]()![](https://gnews.org/wp-content/uploads/2021/04/115218916_gettyimages-1283432604.jpg)getty-image
-澳大利亚国家安全专家威廉·A·斯托尔茨博士（William A Stoltz）呼吁对澳新国家之间的关系进行“紧急重置”，以促使新西兰摆脱中国的经济影响。
+**制作：Cantonese工作室**
 
-这是在批评新西兰外交大臣纳奈·马哈塔（Nanaia Mahuta）未能加入“五眼联盟”关于北京干预香港的声明之后提出的。上周外交大臣纳奈·马哈塔称新西兰对“五眼联盟”呼吁就情报以外的问题发表意见感到“不舒服”。
 
-马哈塔的评论表明，新西兰对与关键贸易伙伴中国的关系采取更为谨慎的态度。但事实上是新西兰对中国经济的依赖让该国“盲目”地走上了错误的道路。
 
-斯托尔茨博士说，马哈塔提出的是“惊人的主张”。他在《悉尼先驱晨报》的一篇评论文章中写道：“新西兰对中国经济的深度依赖，使其对中国日益好战的行为视而不见，这表明了中国对新西兰的影响力。马哈塔的决定也是最近新西兰与中国自由贸易协定升级的结果。”斯托尔茨博士说，鉴于在COVID-19大流行之后新西兰脆弱的经济地位，这是“一笔丰厚的交易”。
+**资料整理：【闪电】【Annie喜马拉雅】海报制作：【文雀】【小豆芽】视频制作:【ken】上传：【星星】【向阳6768】**
 
-他说：“最终将新西兰从五眼联盟中分裂出来，是北京破坏自由民主国家之间重要伙伴关系的持久战略。”“对澳大利亚来说，这也是一个警告，如果要将新西兰和其他太平洋国家从中国的轨道上拉回来，双边关系需要紧急复位。”
+摘要：
 
-斯托尔茨博士说，近年来，随着双边领导人就新西兰公民被驱逐出境等问题进行争执，澳大利亚与新西兰的关系已经变得“疏远”。“澳大利亚迫切需要采取协调一致的外交行动，以帮助新西兰建立中国以外的多元化市场，并增强其对外国干预的抵御能力。”
+1
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-478.png)
+2
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image2-1.png)
+3
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image3-1.png)
+4
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image4.png)
+5
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image5-2.png)
 
-评论：
-
-中共以其专制体制下对经济的垄断地位，频繁地以市场做武器胁迫、捆绑民主国家在外交关系中遵从其立场。比如通过限制进口澳大利亚大麦、牛肉、红酒等农副产品，妄图改变澳大利亚坚定的维护国家安全和世界秩序的立场，但是澳大利亚“不吃这一套”。
-
-面对新西兰令人担忧的态度，澳洲能做的不是谴责，而是伸出援助之手帮助曾经并肩战斗的兄弟。唇亡齿寒，相信澳州人是清醒而智慧的。
-
-（本文仅代表个人观点）
-
-原文链接*：*[Australia should ‘urgently reset’ relationship with New Zealand to ease China’s leverage](https://www.newshub.co.nz/home/politics/2021/04/australia-should-urgently-reset-relationship-with-new-zealand-to-ease-china-s-leverage-aussie-academic.html)
-
-*审核&编辑：Ruaway*
-
+![]()![](https://gnews.org/wp-content/uploads/2021/04/0.jpg)
 0
