@@ -1,50 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 有报告指出：辉瑞和Moderna COVID“疫苗”可能引发阿尔茨海默氏症（老年痴呆）、肌萎缩性侧索硬化症和其他神经退行性疾病
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1143782/)
+## 【音频图片新闻】我们的民主在哪里？民国小学课本 vs 墙国的洗脑课本
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1143761/)
 
-作者：文虓Bobby
+**点评：Candy**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/042702.jpg)
+配图：summer, bingo
 
-从乔·拜登(Joe Biden)到红衣教皇方济各(Red Pope Francis)，每个人都在推动100%接受COVID-19核糖核酸（mRNA）疫苗。这种疫苗未经证实和测试。没有人知道疫苗是否比疾病更危险。
 
-现在大部分人不知道疫苗的危害，仍在无知的愿意接受这些疫苗。
 
-超过50%的新冠肺炎病例涉及到已经接种过疫苗的人，[正如Gateway Pundit早些时候报道的，根据耶鲁流行病学家的说法]。
+### 中华民国时的小学课本有什么内容？
 
-现在，《微生物学与传染病》上发布的一篇令人震惊的新报告发现，mRNA疫苗可能引发阿尔茨海默病、肌萎缩性侧索硬化症和其他神经和认知退化疾病。
+![](https://lh3.googleusercontent.com/loELvrKkoDaIjOa9I6jtbcbNwEPrz5lMb7rLnfQAYEUeAmilLfi7KQZkYQhOzSYtgPQIl_tU2M78ssqz3Ia7gjgw5tthsDTti6TIacCXHIbWcdDJ6iFGjQnpT_kC7wsWrhIcDnBD)
 
-医学博士J. Bart Classen的报告中写道:
+*中华民国时的小学课本以“君主政治和民主政治” 的对比, 作为授课内容，*
 
-在过去，新疫苗技术的开发一直受到问题的困扰。目前以RNA为基础的SARS-CoV-2疫苗在美国是在没有进行广泛长期安全测试的情况下使用紧急命令批准的。
+*令小学生对照学习，分析判断就知道哪个制度更好，更对人民有利，对国家向善的发展更有帮助。*
 
-克拉森博士（Dr. Classen）和他的同事们发现，疫苗通过打开通往人类DNA的通道，增加了这些可怕疾病的可能性，这正是这种基因治疗药物的目的:
 
-结果表明，该疫苗的RNA具有特定的序列，可诱导TDP-43和FUS折叠成它们的病理朊病毒证实。在目前的分析中，共鉴定了16个UG串联重复序列(ΨGΨG)和额外的UG丰富序列(ΨG)。发现了两个GGΨA序列。潜在的G四重序列可能存在，但需要一个更复杂的计算机程序验证这些。此外，疫苗RNA转化产生的刺突蛋白与血管紧张素转换酶2 (ACE2)结合，这是一种含锌的酶。
 
-更多关于锌的问题:
 
-这种相互作用有增加细胞内锌的潜力。锌离子已被证明可以导致TDP-43转化为其病理朊病毒结构。已知TDP-43和FUS折叠成病理朊病毒可导致ALS、额颞叶变性、阿尔茨海默病和其他神经退行性疾病。
 
-克拉森博士（Dr. Classen）得出了严峻的结论:
+中华民国时的小学课本以“君主政治和民主政治” 的对比为授课内容，明眼人一看就知道哪个制度更好，更对人民有利，对国家向善的发展更有帮助，更容易被人民所接纳。
 
-随附的发现以及额外的潜在风险使作者认为，监管部门批准基于RNA的SARS-CoV-2疫苗为时过早，这种疫苗可能造成的危害远大于益处。
+因为君主政治是帝王把国家、权利及人民统统看成是自己私有的，国家管理方面是大政府，下级必须服从上级，老百姓只有服从的份儿，所有人都要效忠于帝王。而民主政治则完全相反，人民是国家的主人，人民选举出政府官员，官员必须服务于人民，不满意的官员还可以被罢免。这样教育出来的人们才能明白是非黑白，遵守普世价值。
 
-鉴于本报告和其他有关对这些实验性基因疗法的阴性、致人衰弱和致命反应的报告，人们应仔细权衡与疫苗相关的未知风险与充分记录的COVID-19风险之间的关系。
 
-此外，有了如此多有效的预防和恢复性治疗方法，如HCQ、维生素D和锌，CDC应该立即停止疫苗分发，直到疫苗的危险被记录在案。
 
-实际上，不止该疫苗会给注射该疫苗的人带来阿尔茨海默病和其他神经退行性疾病等严重疾病，也有媒体公开报道辉瑞疫苗也被证实会导致渐冻症和阿尔兹海默病，面瘫、甚至死亡。中共国国内微博也有人爆出打完国产疫苗后，发高烧，浑身长红色斑点，遍及全身，奇痒不止。《大纪元》报道称，接种中共国生产的疫苗后出现的不良反应，包括腹泻、皮疹、呼吸短促和感染新冠病毒等。这些都是疫苗导致的严重后果，让人不寒而栗！在依赖中共疫苗的智利，几乎在其推动全国接种疫苗的同时，国内新冠病毒感染率开始飙升。
+### 墙国现在的小学课本有是什么内容？
 
-在没有搞清楚病毒来源的情况下，例如，都没有明确病毒是否来自自然还是实验室，或者是经过功能增强实验的人工改造的病毒，让它更容易感染人类；如此之快的推出疫苗有悖常理和逻辑，因为人类从来没有在短短6个月内就成功推出疫苗。对病毒的恐惧、自私和珍惜生命，让人们失去了对病毒的基本认知，当人们争先恐后地排队注射疫苗的时候，可能没有想到更大、更多的灾难在后面！
+100年过去了，墙国现在的小学课本有是什么内容？我们找到了1970年代的中共国江苏胜苏州市小学算术课本。惨不忍睹的是，连算术题里都充满了共产党的阶级斗争仇恨与火药味！
 
-众所周知该病毒来自CCP的武汉实验室，经过功能增强实验，使得病毒更容易感染人类，是一种超限生物武器。笔者认为这次COVID-19是对人类的一次拣选和考验，凡是站在真相、正义一边的人，自然会受到上天万佛万神的庇佑；反之，不探求真相，对邪恶漠然视之，甚至与邪恶为伍，很难得到上天的庇佑！如果想彻底灭绝病毒，让人类向星际文明等更高阶段发展，全世界人民必须跟CCP要解药，然后彻底消灭CCP！
+小学二年级的学生要学的算术题是：
 
-[援引原文](https://www.thegatewaypundit.com/2021/04/report-pfizer-moderna-covid-vaccines-trigger-alzheimers-als-neurological-degenerative-diseases/)
+“贫下中农狠批刘少奇，第一天写了大字报42张，第二天写了51张，两天共写了多少张？”
 
-审核校对：玫瑰天空
-上传排版：糖果儿
 
-0
+
+![](https://lh3.googleusercontent.com/s1WHBE5CoKWsuwOi6qQJI0nG32mNSUQhlbUpoJLWQC-kSoZNajkrIRXDBrTuH_17jI5y5n0I9OT2-3YjtN4cg4GQtU-deFD6vEv7nT5cp7sgTiuDlG6kf063n8EW51ZZyawKRoPI)
+
+
+
+![](https://lh6.googleusercontent.com/4C6GAFc3uutwL4zVCjgM9qRRlcWLoIfNABd44tTt1FaS0DBHeEDXR26H--KLJguASiYSb23o4UGZDvuZCj6vABegnyIvA77lVJ3wCvrHtIzglGTx0pEkuYKm_fP64JFVZi_7S2zM)
+
+
+
+语文课本则是，首先要了解教材编写的宗旨：在习近平总书记领导下，以党中央为核心，坚持……再看课本的内容：我随意从互联网上”语文迷“ 的教材里查看了一下，看到的是“雷锋叔叔，你在哪里？”，”这片土地是神圣的“，“为人民服务”，“人是一根能思想的稻草”。。。。一看题目就知道内容，无非是要人民——在他们眼里如稻草一般的贱民，无限地付出，直至死亡。而那些从小学到大的人民，大多数都是俯首帖耳地照收不误了，以至造成现在文革2.0版的疯狂再现。可悲又可怜！
+
+![](https://lh6.googleusercontent.com/XAEg0CbT0ZR1aSi5qoDTsAtDS5yBrkWwdqfKPNyxtxJo9aqQgsAtgc7UpGFEOkPAxNrq6qbSIw5OjzGld-CWqpuluo1onn8cNUADVY8xEXHMm4PtR3hV-O8wVW9W4B--v2egwUD6)
+
+![](https://lh6.googleusercontent.com/kwOdy7RaDbxf2PwGeIeD-KcnW2EHtxPImt2nf3sWUqbNMHcKUBTAxBbbo90Kr0j-RF8pwOccriEhBAHK6U3f4XdHjlxEV9ayUw4OjJKUFKPf7_ifC-LPOtp3Y7044OozBgd7rxmM)
+
+CCP 不倒，全世界都将失去民主，出现文革2.0，必须铲除CCP！
+
+
+
+#### 【**免责声明**】 文章中中表达的所有观点均属于作者，并不代表任何组织或其他个人。 
+
+【**责任编辑**】：bingo 旧金山文宣组
+
+### **欢迎战友加入旧金山金喜农场**
+![](https://lh5.googleusercontent.com/B_qgfzdPe7PXEFJ00CMor-4S7gUJ-rc3GQynsbf5lDQTFq_r_hT5QSG7kwT1m9npdEdLRZt4dmHwRck2gxDfZP_2j0Tdrpkh4kkHu-VEGIxrxwCUUAtzhszjO6fxxQ)
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)[** **](https://discord.gg/QQzQ79grEA)
+
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)[** **](https://twitter.com/sf_himalaya)
+
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
+
+[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
+
+
+
+
+
++1

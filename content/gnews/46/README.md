@@ -1,74 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/04/21 班农采访（4）:中美合作超人类杂交胚胎诞生，中国制造核心尖端想要称霸行业
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1143419/)
+## 因电杆漏电导致海口小学生触电倒入积水惨剧绝非首起
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1143408/)
 
-视频字幕：云岭 | 听写：云岭 | 翻译：葡萄树 | 校对：Clau | 简评/文字整理/编辑：胖丁| Page：Daoiii
-[!\[\]()!\[\](https://spark.adobe.com/page/kGHSuYLU4YSLX/images/7f970560-454f-4187-9377-a9754eed0fc1.png?asset_id=dce9cc1c-ef04-4bb6-802a-a145c7a1528f&amp;img_etag=%2272fab440f1cf31875a87b83d8879bb9a%22&amp;size=1024)](https://spark.adobe.com/page/kGHSuYLU4YSLX/images/7f970560-454f-4187-9377-a9754eed0fc1.png?asset_id=dce9cc1c-ef04-4bb6-802a-a145c7a1528f&amp;img_etag=%2272fab440f1cf31875a87b83d8879bb9a%22&amp;size=1024)
-**简评：**
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-34.png)
+据[**凯迪网络**](https://weibo.com/kdnet?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2021年4月27日 12:00](https://weibo.com/1744259092/KcP77BcsG?ref=home&amp;rid=7_0_8_2706433990488850317_6_0_0) 来自 [校园 · 视频社区](https://weibo.com/)
 
-**中美科研团队宣布人猴杂交胚胎诞生，这与中共的武汉P4实验室密切相关。实际上，中共一直在进行着大量不为人知的秘密试验。中共从来不担心由于政策失误导致的人口结构的失衡，因为中共一直致力于这种超人类的实验和发展。中共一直强调“2025中国制造”，在十大产业方面想要称霸，其核心尖端就包括生物科技和基因编辑。**
+【[#海口小学生触电倒入积水#](https://s.weibo.com/weibo?q=%23%E6%B5%B7%E5%8F%A3%E5%B0%8F%E5%AD%A6%E7%94%9F%E8%A7%A6%E7%94%B5%E5%80%92%E5%85%A5%E7%A7%AF%E6%B0%B4%23&amp;from=default) ，路人用雨伞拽出抢救，医院：人已清醒】[#海口触电倒入积水小学生已清醒#](https://s.weibo.com/weibo?q=%23%E6%B5%B7%E5%8F%A3%E8%A7%A6%E7%94%B5%E5%80%92%E5%85%A5%E7%A7%AF%E6%B0%B4%E5%B0%8F%E5%AD%A6%E7%94%9F%E5%B7%B2%E6%B8%85%E9%86%92%23&amp;from=default) 4月26日，海南海口。海口突降大雨，琼山区海南白驹学校附近路段积水严重。放学时，一名男生路过路灯杆时不幸触电，倒在水中。围观众人连忙将男孩拖出积水，紧急施救。据悉，该男孩已苏醒，正在医院接受进一步治疗。[#微博放映厅#](https://s.weibo.com/weibo?q=%23%E5%BE%AE%E5%8D%9A%E6%94%BE%E6%98%A0%E5%8E%85%23&amp;from=default) （via.漩涡视频）[L漩涡视频的微博视频](http://t.cn/A6cHBKUr)[收起全文d](void%280%29;)
 
-GTV视频链接：[BannonInterview-Q4](https://gtv.org/video/id=6086cbe711a7ed500e99109e)
+这样的事故不是第一次，打开[百度搜索——海南电杆漏电](https://www.baidu.com/s?tn=48021271_26_hao_pg&amp;ie=utf-8&amp;word=%E6%B5%B7%E5%8D%97%E7%94%B5%E6%9D%86%E6%BC%8F%E7%94%B5)可以看到多起数年来电杆漏电致人死伤的惨剧——
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-64.png)
+惨剧一直在上演，区别之处在于受害者换了一波又一波，区别在于事故地点要么是三亚要么是海口要么是琼山，永远不变的是导致惨剧的电线和这背后的官僚集团，天灾易躲、人祸难防，从这一点来说，在海南，在三亚，在海口，在琼山，在雷雨天气里为生计奔波的同胞们踩在积水里的每一步都事关生死，每一次的雨中前行都意味着大概率的生离死别，本不应该成为问题的电线由于暴政的冷酷和对生命的漠视成了令人望而生畏的鬼门关。
 
+（文章内容仅代表作者个人观点）
 
-
-**视频字幕：**
-
-**主持人：**这个问题是关于超人类的，因为一个由美国和中国科学家组成的团队上周宣布，人猴杂交胚胎已经诞生。
-
-他们的研究发表在《细胞》杂志上。
-
-这个令人吃惊的实验能让世界看清中共的真实面目吗，班农先生？
-
-**Bannon：**这个问题与P4实验室有种密不可分的联系。
-
-章家敦谈到由于独生子女政策，中国的人口坍缩即将到来。
-
-简单算一算就会发现，中国在未来几年的压力巨大。
-
-因为他们的独生子女政策破坏了人口结构，将导致少数的人来赡养众多的老人。
-
-为什么中国共产党对这个问题不那么担心？
-
-因为他们已经把超人类视为解决问题的方案。
-
-他们在各种会议中吹捧“中国制造2025”。
-
-到2025年，他们想称霸10个行业。
-
-为什么他们在10个行业方面必须称霸？
-
-这些行业的尖端是先进的芯片设计、通用人工智能、再生机器人、生物技术和基因编辑。
-
-这四个方面的融合是奇点的主干，也是带我们进入超人类时代的主干。
-
-中国共产党准备跳过这个深渊，站在他们控制的智人的一边。
-
-这不是胡言乱语，事实摆在那裡，他们每天都在做。
-
-武汉实验室已经说明问题了。
-
-[**完整访谈视频**](https://www.youtube.com/watch?v=qnnVSjmLMxg)
-
-**主播：**Daniel, Dr. TCC, Castle和Mike
-
-- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
-- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
-
-
-***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三直播***
-
-编辑：【英国伦敦喜庄园编辑部】
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/kGHSuYLU4YSLX/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/kGHSuYLU4YSLX/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)
-
-
-
-+1
+0
