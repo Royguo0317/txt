@@ -1,19 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 因电杆漏电导致海口小学生触电倒入积水惨剧绝非首起
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1143408/)
+## 亚利桑那州共和党人反击民主党阻挠选票审计的法律缠诉
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1143514/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
-![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-34.png)
-据[**凯迪网络**](https://weibo.com/kdnet?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2021年4月27日 12:00](https://weibo.com/1744259092/KcP77BcsG?ref=home&amp;rid=7_0_8_2706433990488850317_6_0_0) 来自 [校园 · 视频社区](https://weibo.com/)
+#### 翻译：Kal
 
-【[#海口小学生触电倒入积水#](https://s.weibo.com/weibo?q=%23%E6%B5%B7%E5%8F%A3%E5%B0%8F%E5%AD%A6%E7%94%9F%E8%A7%A6%E7%94%B5%E5%80%92%E5%85%A5%E7%A7%AF%E6%B0%B4%23&amp;from=default) ，路人用雨伞拽出抢救，医院：人已清醒】[#海口触电倒入积水小学生已清醒#](https://s.weibo.com/weibo?q=%23%E6%B5%B7%E5%8F%A3%E8%A7%A6%E7%94%B5%E5%80%92%E5%85%A5%E7%A7%AF%E6%B0%B4%E5%B0%8F%E5%AD%A6%E7%94%9F%E5%B7%B2%E6%B8%85%E9%86%92%23&amp;from=default) 4月26日，海南海口。海口突降大雨，琼山区海南白驹学校附近路段积水严重。放学时，一名男生路过路灯杆时不幸触电，倒在水中。围观众人连忙将男孩拖出积水，紧急施救。据悉，该男孩已苏醒，正在医院接受进一步治疗。[#微博放映厅#](https://s.weibo.com/weibo?q=%23%E5%BE%AE%E5%8D%9A%E6%94%BE%E6%98%A0%E5%8E%85%23&amp;from=default) （via.漩涡视频）[L漩涡视频的微博视频](http://t.cn/A6cHBKUr)[收起全文d](void%280%29;)
+#### **责编：白夜
+**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-65.png)**图片来源：** MSNBC News
+据美国极右翼网站《权威者门户》(*Gateway Pundit)4月25日报道，*亚利桑那州共和党主席凯莉·沃德(Kelli Ward)就马里科帕(Maricopa)县正在进行2020年美国大选选票和多米尼(Dominion)投票机的司法审计,进行了进展更新。
 
-这样的事故不是第一次，打开[百度搜索——海南电杆漏电](https://www.baidu.com/s?tn=48021271_26_hao_pg&amp;ie=utf-8&amp;word=%E6%B5%B7%E5%8D%97%E7%94%B5%E6%9D%86%E6%BC%8F%E7%94%B5)可以看到多起数年来电杆漏电致人死伤的惨剧——
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-64.png)
-惨剧一直在上演，区别之处在于受害者换了一波又一波，区别在于事故地点要么是三亚要么是海口要么是琼山，永远不变的是导致惨剧的电线和这背后的官僚集团，天灾易躲、人祸难防，从这一点来说，在海南，在三亚，在海口，在琼山，在雷雨天气里为生计奔波的同胞们踩在积水里的每一步都事关生死，每一次的雨中前行都意味着大概率的生离死别，本不应该成为问题的电线由于暴政的冷酷和对生命的漠视成了令人望而生畏的鬼门关。
+这位支持川普总统的主席是担任亚利桑那州共和党党魁的合适人选。
 
-（文章内容仅代表作者个人观点）
+凯利·沃德谈到了周五民主党人试图通过法院停止选票审计的行为。一个令人作呕的举动是，民主党人指责共和党招募“仇恨团体”参与此次审计，并且法庭没有接受他们的伪证。
+
+据沃德称，亚利桑那州最高法院权衡了民主党人的最新挑战，并允许该审计继续进行。
+
+**亚利桑那州共和党人的反击**
+
+下周亚利桑那州最高法院将对亚利桑那州参议院提出的动议进行裁决。该动议提出，在他们认为合适的地方，法院都没有权力侵犯参议院对选票审计的监督权力。任何由民主党人发起持续的法律行动以阻挠审计的这一行为，已经跨越了破坏美国“三权分立”宪政体系红线。
+
+**点评****：**
+
+2020年美国大选失利的共和党人，毫无疑问会一直致力于补美国诚信选举这一大“窟窿”。亚利桑那州共和党人已明确表示，此次的选票审计并非推翻2020大选结果，而是保证真实可信的选举。其目的明显是为了下一次大选。自拜登政府上台以来，民主党人为了保住白宫权力，一方面在影响美国安全利益方面需要拿出比川普政府更加强有力的行动，为下一次大选赚得足够多的政治筹码，另一方面千方百计阻挠各州的选票审计活动，出台有利于民主党人的新选举法案。相信共和党人和民主党人在选票审计和推新选举法上会有越来越激烈的缠斗。
+
+原文链接：[Arizona Republicans STRIKE BACK – File Motion of Their Own Against State Democrats – Arizona GOP Chairwoman Kelli Ward Delivers Update on Maricopa County Forensic Audit](https://www.thegatewaypundit.com/2021/04/arizona-republicans-strike-back-file-motion-state-democrats-arizona-gop-chairwoman-kelli-ward-delivers-update-maricopa-county-forensic-audit/)
 
 0
