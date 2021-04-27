@@ -1,35 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】 中共式的民主就是毒品
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1142542/)
+## 【热点播报】GTV投资者持续在美SEC门口抗议
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1142670/)
 
-作者：纽约香草山福音部 凤鸡
+香草山农场  顽童2017 kathy（文艺）
 
+4月26日，来自纽约、特拉华州、宾州的GTV投资者，针对美国SEC的抗议活动，进入第13天。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-26-at-9.30.56-PM-1.jpeg)
+当天，GTV投资者冒着零下3-4摄氏度严寒，顶着刺骨的寒风，以举牌、拉横幅、发传单的方式，抗议美国SEC与中共暗中勾兑，片面听信诬告者的信息，也不对诬告信息进行核实。SEC对GTV法律团队提供的上千页合法经营的证明文件，其中包括许多举报者，是在受到中共的威胁的情况下，被迫做出选择的事实证据，采取置之不理的态度，进行了长达8个多月的恶意调查，至今没有任何结论。
 
+SEC的行为，给合法的GTV投资者带来了巨大损失，也将身处中国境内投资者的生命置与危险之中。抗议者们冷静、理智、合法的抗议行为，得到了路过现场的美国朋友的赞许和同情。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-26-at-9.30.56-PM.jpeg)
+在此之前的抗议中，GTV的投资者向SEC提出了四项诉求：1、立即披露SEC与中共政府之间的所有通讯往来。2、全额赔偿GTV投资者的全部损失。3、立即停止与中共的密谋，停止对投资者的歧视和迫害。4、立即停止渎职和官僚行为，上法庭上解决问题。
+ 
+到发稿止，SEC方面尚未对GTV投资者提出四大诉求作出回复，GTV投资者们表示，抗议活动将持续进行下去。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-中共外长王毅最近再次搬出歪理，为中共的极权专制抹粉，称中共在大陆实行的是“中（共）国特色的民主”，跟美国不一样——“民主不是可口可乐，全世界一个味”。这些狡辩的言论再次遭到海内外网友的怒轰。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-475.png)
-
-4月23日晚，王毅与美国对外关系委员会进行视频会议，他说道，“民主不是可口可乐，美国生产原浆，全世界一个味道。”然后他辩称，中共实行的是所谓“社会主义民主”且“得到了人民拥护”，如果西方说这种“中共式民主”是“威权”和“专制”，那就是“不民主的表现”。
-
-“王毅的意思，中共式的‘民主’不是可乐，是可以用政治迫害（的名义）杀死所有人，那就是可卡因了。”网民@poetjingwa说。
-
-说到底，民主的本质都是相同的——人民做主。而中共所称的民主就是“党专制”：国家的所有事务都以党的意志为依归，党凌驾于国家、民族和法律之上。这种极权跟西方民主的区别是显而易见的。而今，王毅硬要把中共极权专制包装为另一种所谓“民主”，这遭到网民地讥讽。
-
-明明是独裁，却还要说自己是独特的民主，这多么的可笑。墙内歌曲“团结就是力量”中唱到，“让一切不民主的制度死亡”，这句话已经洗脑民众多年，可大家会否想过，不民主的制度死亡了吗？事实是，它不但没有死亡，还越来越壮大了，更耍流氓称自己是民主，甚至要一直洗脑民众——这不是毒品是什么？所以说，只有灭共才能让独裁这种不民主的制度真正死亡。
-
-（本文仅代表作者观点）
-
+编辑/发稿：正义的小新
 ![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
 **更多资讯，更多关注**
 
 [**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -40,12 +28,6 @@
 
 **[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-0
++1

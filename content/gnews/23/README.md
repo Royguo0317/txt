@@ -1,28 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【各抒己见】人间天使闫丽梦博士
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1143196/)
+## 【信仰之声】Derek Chauvin—— 一位被赶出逃城的人
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1143233/)
 
-作者：喜马拉雅东京樱花团 /小小星
+作者：纽约香草山福音部 JingleChenge
 
-![](https://lh3.googleusercontent.com/eyw7BizXNqmypWswU3ZnZPBttHR6FXuZgD0vutdwYtNPEUqRdAUU_9otL0HOgUDJhfELvhSmSMQm0frZc_XAXS0rp0uyE9rk_HKMIanlgGwqV5UNP5Chf0WM3-qqI03vN-NFG0aw)
-[图片来源](https://www.epochtimes.com/gb/20/8/10/n12320716.htm)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
 
-谁还记得2020年1月19日之前，那些看似平静的日子？如今来自中国武汉的中共病毒已经感染了一亿多人。当时，病毒发源地的武汉市民们都不知道真情。直到医院已经崩塌状态，医生们也都被感染，那些没有症状和没有被传染的人们依然没有得到消息，依然过着正常的生活。
 
-在全世界都没有任何中共病毒在蔓延的消息之情况下，路德社向全世界宣布：这是中共病毒，是会人传人的，中共病毒不久会在全世爆发。虽然这消息震惊了人们，可是人们听到这个消息后还在怀疑。今天，全球已经一亿多人感染了中共病毒，完全证实了路德社报道的真实性。而这真实性，恰恰源于曾任职于香港大学P3研究室的，我们美丽的天使闫丽梦博士。正是她，秘密地向路德社传递了中共病毒的真相。闫博士在经历了生死逃脱后，来到了美国，她的三篇关于中共病毒的科学报告直击中共心脏，是全球整个科学界里向世人传播中共病毒真相的第一人。这世界黑暗到了何等的地步，这么大的事儿，所有媒体都没有一丝的声音。黑白颠倒，全世界都在被假消息蒙蔽着。
 
-试想一下如果没有路德社的消息，没有闫博士的警告，世界现在会变成什么样？恐怕感染的不止一亿多人，应该是几亿或者几十亿吧。闫博士还告诉了我们，硫酸羟氯喹是最好的预防和治疗药，这又拯救了多少人的生命。
+《圣经》记载了神为以色列人在应许之地设立了六座逃城，为的是使误杀人者可以逃入离他最近的一座，躲避报仇之人的追杀，得以保存生命，因报血仇者，不得进入城内报仇。但若误杀人者走出城外，报血仇者则有权报复。并且若非真实误杀人者，还要赶出城外依法究办。以色列人所设的逃城是在四通八达的地方，周围不得放有障碍物，逃命者才能便利地逃入。逃城有一条规矩，就是误杀人者在逃城里不得外出，要等到大祭司死后方可出城、恢复自由。
 
-成千上万的科学研究者中，为什么只有一个瘦弱身躯的、年轻美丽的女博士站出来说实话。这是怎样的勇气？这是怎样的正义？又是怎样的信念？勇敢美丽的闫博士站出来拯救世界、拯救人类之伟大，会永远写在人类历史的记忆中，是人们心中永恒的天使！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片23-4.png)
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
+美国的法律就是基于《圣经》记载的律法确立了无罪推定原则，为老百姓设立了一座没有边界的逃城，让过失杀人、过失伤人者有一个申辩的机会，不至于草菅人命。宁可放走一个罪犯，不可错杀一个好人。
 
-*校对：喜马拉雅东京樱花团 / 待命（文晓）
-责任编辑：喜马拉雅东京樱花团 / 文小白
-发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews.org/wp-content/uploads/2021/04/二维码-2.jpg)
-0427C125c
+那我们来看最近对 George Floyd 执法的警官 Derek Chauvin 的庭审。明眼人可以看出，非常的匆忙，似乎急于定罪。开庭前，Minneapolis Star-Tribune 违法公开了所有12位陪审团员的详细资料，让BLM、ANTIFA 很容易定位并威胁他们，将他们及家人的生命置于危险中。按理，这些信息必须是保密的。从庭审及定罪的仓促来看，陪审团员确实受到了威胁。
 
-+3
+BLM 和 ANTIFA 在庭审期间每夜在开庭所在地的BC搞事，甚至纵火法庭。再加上加州左派女疯特地在宣判前两天跑到 Brooklyn Center，在本已不可抑制的乱象上添油加醋，若不按他们所要求的定罪，他们将继续闹下去，而且将闹得更大，甚至要挟Minneapolis市每一个人的生命。左派媒体当然一边倒地美化 George Floyd，从一个体内有高浓度芬太尼和有七次被捕史的大混蛋美化成了一个好市民、大英雄。他们抓案例法和陪审团制度的漏洞，用暴力形成所谓的民意，绑架法庭。
+
+对 Derek Chauvin 的庭审和定罪有许多疑点。他执法程序有问题，但罪不至此。除了Rudy Giuliani，War Room 和几个保守媒体对此有客观的分析以外，其他媒体都放弃了他，要么利用他的定罪达到自己的政治目的，要么害怕对自己不利。Derek Chauvin 成了一位从逃城中被赶逐之人。
+
+相信大家都读过“起初他们”这首德国信义宗牧师马丁·尼莫拉写于二战后1946年的忏悔诗，该诗叙述德国的知识分子与牧师如何屈服于纳粹党势力，沉默地坐视纳粹肃清一群又一群的无辜者。该诗意旨在阐明无视与自己无关的团体受迫害所造成的结果。这跟我们今天所处的环境很像，面对左派的共产主义意识形态，如果我们不站出来，Derek Chauvin 的结局也会是我们每一个人的结局。
+
+由此想到，面对邪恶的 CCP，如果我们不站出来，我们和我们的子孙，将避无可避，逃无可逃。 灭共，是公义的必须。
+
+参考：
+
+1. [https://amgreatness.com/2021/04/20/enemy-of-the-people-minneapolis-star-tribune-publishes-biographical-information-of-derek-chauvin-trial-jurors/](https://amgreatness.com/2021/04/20/enemy-of-the-people-minneapolis-star-tribune-publishes-biographical-information-of-derek-chauvin-trial-jurors/)
+
+2. https://pandemic.warroom.org (EP 888)
+
+3. [https://getpodcast.com/podcast/rudy-giulianis-common-sense](https://getpodcast.com/podcast/rudy-giulianis-common-sense)
+
+4.
+
+起初他们 起初，纳粹抓共产党人的时候，我沉默，因为我不是共产党人。
+
+当他们抓社会民主主义者的时候，我沉默，因为我不是社会民主主义者。
+
+当他们抓工会成员的时候，我沉默，因为我不是工会成员。
+
+当他们抓犹太人的时候，我沉默，因为我不是犹太人。
+
+最后当他们来抓我时，再也没有人站起来为我说话了。
+
+校对/发稿：飞虹
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
