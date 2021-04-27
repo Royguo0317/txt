@@ -1,55 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】「结束一党专政」被禁，或因林郑担心「共产党被骂倒」
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1143633/)
+## 【音频图片新闻】我们的民主在哪里？民国小学课本 vs 墙国的洗脑课本
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1143761/)
 
-编撰：天灭中共 / 封面合成：文粤
+**点评：Candy**
 
-在香港，每年6月4日，支联会都会在维园举行「六四」烛光晚会，悼念当年受中共迫害的死难者。今年是六四事件32周年，又适逢中共建党100周年，《港区国安法》之下，支联会今年能否再次在维园点亮蜡烛，备受外界关注。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/42710.jpg)
-**今年六四主题：「为自由 共命运 同抗争」**
+配图：summer, bingo
 
-早前，全国港澳研究会理事田飞龙在《商报》撰文指，香港支联会「长期以『爱国民主』为名，从事颠覆性的政治活动」，指控支联会涉嫌违反《港区国安法》。
 
-田飞龙认为，支联会长期以「释放民运人士，平反八九民运，追究屠城责任，结束一党专政，建设民主中国」为五大纲领，属于政治颠覆性组织，是一个以香港为基地、勾结外部势力的颜色革命组织。对此，支联会批评田飞龙「一派胡言」，亦表示不会退缩，会一如既往坚持「五大纲领」。据悉，支联会为今年六四制定的主题是「为自由 共命运 同抗争」。
 
-主席李卓人指，「当年叫『为自由』是支援内地人民，想不到，32年后香港要为自己叫『为自由』，希望港人人心不死，六四当日继续『走出来燃点烛光』。」
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4278.jpg)（图片来源：苹果日报）
-不过，昨日（26日）亲共媒体《星岛日报》引述知情人士消息指，警方会以疫情为由，不会批准今年六四烛光集会。特首林郑月娥今早在例行记者会上，就相关问题作出回应。
+### 中华民国时的小学课本有什么内容？
 
-**林郑月娥：尊重宪法，尊重中国共产党。**
+![](https://lh3.googleusercontent.com/loELvrKkoDaIjOa9I6jtbcbNwEPrz5lMb7rLnfQAYEUeAmilLfi7KQZkYQhOzSYtgPQIl_tU2M78ssqz3Ia7gjgw5tthsDTti6TIacCXHIbWcdDJ6iFGjQnpT_kC7wsWrhIcDnBD)
 
-记者问到支联会「结束一党专政」的纲领和口号，是否有违《国安法》时，林郑未有作正面回答，只是称香港是「法治社会」，所有事情都是「依法办事」。
+*中华民国时的小学课本以“君主政治和民主政治” 的对比, 作为授课内容，*
 
-她强调，在「一国两制」下，香港的「高度自治」不是「全面、绝对自治」，而是中央对特区有「全面管治权」下的「高度自治」，「今日中国宪法对于中国共产党领导下的，有中国特色的社会主义，讲的很清楚，在尊重宪法的前提下，同样应该尊重中国共产党。」
+*令小学生对照学习，分析判断就知道哪个制度更好，更对人民有利，对国家向善的发展更有帮助。*
 
-林郑续指，今年是中共的「百年庆典」，「在共产党领导下，国家这些年起飞，为人民带来美好生活，所以尊重国家执政党，是我们应有的立场。」
 
-**笔者评论：**
 
-**共产党究竟能不能骂倒？**
 
-拉德布鲁赫在其最经典的文章「天鹅之歌」中写到：「『法律就是法律』在极权专制统治下，只会沦为『强权就是法律』，『不正当的法』根本没有成为法律的资格。」
 
-中共在宪法序章中定明共产党拥有国家的唯一领导权，正印证了拉德布鲁赫的说法，中共有强权，中共就是法律，亦印证了中共的宪法是不正当的，没有成为法律的资格，遑论尊重。
+中华民国时的小学课本以“君主政治和民主政治” 的对比为授课内容，明眼人一看就知道哪个制度更好，更对人民有利，对国家向善的发展更有帮助，更容易被人民所接纳。
 
-邓小平在1984年讲过：「（香港、台湾）他们可以宣传『三民主义』，也可以骂共产党，我们不怕他们骂，共产党是骂不倒的」，「总之没有实际推翻政权的『行动』都可理解为尊重」。
+因为君主政治是帝王把国家、权利及人民统统看成是自己私有的，国家管理方面是大政府，下级必须服从上级，老百姓只有服从的份儿，所有人都要效忠于帝王。而民主政治则完全相反，人民是国家的主人，人民选举出政府官员，官员必须服务于人民，不满意的官员还可以被罢免。这样教育出来的人们才能明白是非黑白，遵守普世价值。
 
-因此，支联会「结束一党专政」的口号喊了31年，共产党依然屹立，足见香港人很「尊重」共产党。
-反而，林郑月娥非常不尊重邓小平以及习近平。
 
-邓小平说「共产党是骂不倒的」，林郑就将「骂过」的人全部拉去坐牢，还要禁止「再骂」，是否暗示邓小平错了，「共产党是骂的倒的」？
 
-反过来，如果邓小平执政期间，「共产党是骂不倒的」，现在习近平执政，「共产党是骂的倒的」，是否暗示，习近平不如邓小平？
+### 墙国现在的小学课本有是什么内容？
 
-林郑，你真的要好好交待一下，你究竟是讽刺习近平失败，还是看不起共产党，觉得它骂一下就会倒？
+100年过去了，墙国现在的小学课本有是什么内容？我们找到了1970年代的中共国江苏胜苏州市小学算术课本。惨不忍睹的是，连算术题里都充满了共产党的阶级斗争仇恨与火药味！
 
-【以上观点仅代表笔者本人】
+小学二年级的学生要学的算术题是：
 
-资料来源：
-[苹果日报](https://hk.appledaily.com/local/20210427/2ERGRXNKS5BD7KO4VAJCTWFDAE/)
+“贫下中农狠批刘少奇，第一天写了大字报42张，第二天写了51张，两天共写了多少张？”
 
-覆核： 卡西欧 /上传：天网灰灰
 
-0
+
+![](https://lh3.googleusercontent.com/s1WHBE5CoKWsuwOi6qQJI0nG32mNSUQhlbUpoJLWQC-kSoZNajkrIRXDBrTuH_17jI5y5n0I9OT2-3YjtN4cg4GQtU-deFD6vEv7nT5cp7sgTiuDlG6kf063n8EW51ZZyawKRoPI)
+
+
+
+![](https://lh6.googleusercontent.com/4C6GAFc3uutwL4zVCjgM9qRRlcWLoIfNABd44tTt1FaS0DBHeEDXR26H--KLJguASiYSb23o4UGZDvuZCj6vABegnyIvA77lVJ3wCvrHtIzglGTx0pEkuYKm_fP64JFVZi_7S2zM)
+
+
+
+语文课本则是，首先要了解教材编写的宗旨：在习近平总书记领导下，以党中央为核心，坚持……再看课本的内容：我随意从互联网上”语文迷“ 的教材里查看了一下，看到的是“雷锋叔叔，你在哪里？”，”这片土地是神圣的“，“为人民服务”，“人是一根能思想的稻草”。。。。一看题目就知道内容，无非是要人民——在他们眼里如稻草一般的贱民，无限地付出，直至死亡。而那些从小学到大的人民，大多数都是俯首帖耳地照收不误了，以至造成现在文革2.0版的疯狂再现。可悲又可怜！
+
+![](https://lh6.googleusercontent.com/XAEg0CbT0ZR1aSi5qoDTsAtDS5yBrkWwdqfKPNyxtxJo9aqQgsAtgc7UpGFEOkPAxNrq6qbSIw5OjzGld-CWqpuluo1onn8cNUADVY8xEXHMm4PtR3hV-O8wVW9W4B--v2egwUD6)
+
+![](https://lh6.googleusercontent.com/kwOdy7RaDbxf2PwGeIeD-KcnW2EHtxPImt2nf3sWUqbNMHcKUBTAxBbbo90Kr0j-RF8pwOccriEhBAHK6U3f4XdHjlxEV9ayUw4OjJKUFKPf7_ifC-LPOtp3Y7044OozBgd7rxmM)
+
+CCP 不倒，全世界都将失去民主，出现文革2.0，必须铲除CCP！
+
+
+
+#### 【**免责声明**】 文章中中表达的所有观点均属于作者，并不代表任何组织或其他个人。 
+
+【**责任编辑**】：bingo 旧金山文宣组
+
+### **欢迎战友加入旧金山金喜农场**
+![](https://lh5.googleusercontent.com/B_qgfzdPe7PXEFJ00CMor-4S7gUJ-rc3GQynsbf5lDQTFq_r_hT5QSG7kwT1m9npdEdLRZt4dmHwRck2gxDfZP_2j0Tdrpkh4kkHu-VEGIxrxwCUUAtzhszjO6fxxQ)
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)[** **](https://discord.gg/QQzQ79grEA)
+
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)[** **](https://twitter.com/sf_himalaya)
+
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
+
+[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
+
+
+
+
+
++1
