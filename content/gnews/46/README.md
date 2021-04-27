@@ -1,33 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】中共内斗升级，王岐山还逍遥吗！
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1142217/)
+## 【拍案惊奇】系列之八——红色基因，代代相害
+` 左媛专栏` [轉載自GNews](https://gnews.org/zh-hans/1142318/)
 
-香草山写作组 童谣
+作者：左媛
 
-凤凰网2021年04月26日引用新华社消息，简短75个字表述了原中央巡视组副部级干部董宏被最高检以受贿罪“依法逮捕”。董宏是2020年10月2号被中纪委监察委公布审查，2021年04月12号开除中共党籍，今日发布正式被逮捕消息。除了一些大陆媒体少量跟进外，在搜狗百科上已经查不到其人条目，百度百科也只是对“违记违法事实”多点着墨。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screen-Shot-2021-04-26-at-7.23.14-PM.png)图片来源：新唐人电视台
-董宏作为王岐山的“白手套”被正式逮捕，王公公虽然给习大神私下勾兑，保留了一点面子。但中共历来党内你死我活的内斗能消停下吗？不可能的！只要共产党在地球多存活一秒钟，不仅危害全人类，让世界永无宁日。共产党体制内部更是巨大的绞肉机，无论开国元勋、红二代、官三代等任何人也无路可逃。共产党对自己体制内的人更是残酷无情。他们近百年的进程，无处不是在血腥残暴欺骗谎言中，踏着亿万劳苦大众的尸体前行的。
+2020年11月16日，广州天河区棠下小学举行“红色基因红军小学授旗授牌仪式”，标志着天河第一所红军小学正式成立。据悉，全国已建设的红军小学已有约300所。
 
-王岐山难当“林彪”第二，会坐以待毙吗？曾庆红坐山观虎斗还会观望吗？袁世凯、华盛顿在那里？体制内的人早一点清醒早一点行动，别让联军真的来临，给中华大地带来更大的伤害。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/見鬼去吧紅色基因4-1.png)红色基因
 
-参考来源：[https://ishare.ifeng.com/c/s/v002KmSBywsJ-\_ghsGHQAJWKpngm07HTXpYAZ3TkvnjOQBc8\_\_](https://ishare.ifeng.com/c/s/v002KmSBywsJ-_ghsGHQAJWKpngm07HTXpYAZ3TkvnjOQBc8__)
+“中国工农红军”一词源于“苏联工农红军”，它存续的时间不过10年（1928.5——1937.8），它的组建又是源于中共在各地和国民军发动的起义和兵变。所以，它的名称是外来“入侵”的，它的任务是与中国合法政府为敌的。它本身就是带着邪恶而产生的一个怪胎。但这个怪胎给中国带来的损失是不可估量的。
 
-[https://hk.epochtimes.com/news/2020-10-02/48387318](https://hk.epochtimes.com/news/2020-10-02/48387318)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/見鬼去吧紅色基因2-1.png)儿童被无情地洗脑
 
-编辑/审核/发稿：正义的小新
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-**更多资讯，更多关注**
+改革开放之后三十多年，“红军”不见踪影，顶多在党员活动中有过短期的表现。没想到历史的车轮前进到今天，“红军”竟然大范围复活了，竟然复活到了小学校园。300所“红军小学”，就是至少近10万个孩子！充满血腥的中共“红色江山”竟然要中国人幼小的孩子去膜拜去保护，而真正的“红二代”“红三代”“红N代”在掠夺了中国人的财富和生命之后纷纷“孔雀欧美飞”，留下人民子子孙孙为他们无私奉献。
+这样的时代不能让它继续，我们的孩子不能让它继续祸害。什么“红色基因”“绿色帽子”通通见鬼去，我们要灭共！我们要属于人民的江山！我们的子孙要享受自由的人生！
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
+【**免责声明**】 文章中表达的所有观点均属于作者，不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is QRcode_GGB_v2.jpg]()![This image has an empty alt attribute; its file name is QRcode_GGB_v2.jpg](https://gnews.org/wp-content/uploads/2021/04/QRcode_GGB_v2.jpg)
++1
