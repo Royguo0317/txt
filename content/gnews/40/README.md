@@ -1,43 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】印度疫情与中共“援助”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1143855/)
+## 独家：泄漏的便笺显示 积云媒体Cumulus Media员工必须在返回办公室之前接种COVID疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1143830/)
 
-配音：香草山录音组 米小乐
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+- 翻译：Jenny Ball
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
+**西班牙2021年4月27日电/西喜社——**
 
+据《每日电讯》报道，内部文件显示，总部位于亚特兰大的Cumulus Media是美国广播电台的第三大拥有者和运营商，据称要求每个员工100％接种COVID-19疫苗才能返回办公室。
 
+根据备忘录，员工要“到2021年7月1日”到办公室上班。 从5月1日开始，员工可以自愿返回办公室，但必须100％接种疫苗， 他们还必须在办公室时继续戴口罩并保持社交距离。
 
+为了获得临时入门许可：
 
-4月26日大纪元报道，自3月中旬以来，印度CCP病毒感染人数呈爆发式增长，最近更是连续五天创下单日最高病例确诊数字，死亡人数也不断创下新高，仅昨天一天新增确诊病例就超过35万，单日死亡人数达到2812人。印度当下各种医疗资源已经用尽，但仍有数不清的患者停留在医院外等待救援。印度的疫情牵动着世界，许多国家向印度伸出了援助之手。其中，美国正积极调拨各项资源，以帮助印度制造疫苗，同时还向印度运送治疗药物、快速诊断测试盒和呼吸机等。欧盟将提供医用氧气和抗病毒药物瑞德西韦，爱尔兰、德国和法国也表明将提供帮助。
+•员工必须进行完全疫苗接种，这是指他们在两剂系列中接受第二剂后至少两周，或在接受单剂疫苗后两周。
 
+•必须提供疫苗接种证明
 
+•员工必须选择在办公室全职工作，或在远程全职工作；鉴于目前的资源和支持需求的情况，我们无法迁就分开的时间表
 
-**文字版原文：[【热点播报】印度疫情与中共“援助”](https://gnews.org/zh-hans/1142147/)**
+•员工必须有他们所在地主管的明确批准
 
-作者：纽约香草山美食部 蓝天大海
+这个备忘录指出，员工必须等到最后一次疫苗接种后至少两周，才可以重新使用Cumulus公司的任何设施。 员工还必须在返回工作之前，向当地业务经理和编程经理提交其COVID-19疫苗接种记录。
 
+根据员工确认协议，“与COVID完全接种和疫苗接种有关的任何不正确或虚假陈述都会导致纪律处分，其中可能包括“立即解雇”。
 
+目前尚不清楚是否需要所有员工提供疫苗接种证明以在7月1日之后返回办公室，届时公司将重新评估其远程办公时间表。
 
-音频处理/发稿：雪梨
+尽管美国食品药品监督管理局（FDA）为辉瑞，现代和强生疫苗提供了紧急使用授权（EUA），但FDA尚未对其正式许可。 FDA可能需要一年半的时间才能获得各种COVID疫苗的许可，具体取决于采用EUA的时间。根据STAT新闻，研究人员需要大约两年的时间进行临床试验，以建立足够的数据来证明疫苗是安全有效的。辉瑞和现代疫苗的临床试验始于2020年12月。
 
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+企业和雇主是否可以合法地要求雇员接种疫苗仍然悬而未决。菲利普·菲利普斯律师事务所（Fisher Phillips LLP）的合伙人凯文·特劳特曼（Kevin Troutman）表示，企业的疫苗强制执行计划受到人们的严重关注。
 
-**更多资讯，更多关注**
+特劳特曼告诉《华尔街日报》有关企业的一般情况：“执法过程可能非常复杂。”雇主必须提前发出大量通知，并需要数月的时间才能使雇员遵守。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+他解释说：“我开始看到许多雇主对采取此要求的行动缓慢。”
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+根据《波士顿环球报》的子公司STAT News的说法，只要员工不歧视“由于潜在的残疾或宗教信仰而不能接受Covid-19疫苗的人”，雇主就可以要求使用该疫苗。
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+Cumulus Media并未立即回应《每日电讯》的置评请求。
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+**点评：**
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**科学常识： 研究人员需要大约两年的时间进行临床试验，以建立足够的数据来证明疫苗是安全有效的。 辉瑞和现代疫苗的临床试验始于2020年12月。**
 
-0
+**集权独裁的中共国在中国强行推行疫苗护照，以用疫苗为藉口全方位地控制人们的行动，言论和思想。现在在自由民主的灯塔国家的主要媒体机构，正在推行与强权中共同样的措施，采用同样的借口，对不服从者执行同样的制裁手段，更何况美国食品药品监督管理局（FDA）尚未为辉瑞，现代和强生疫苗正式许可。 FDA可能需要一年半的时间才能获得各种COVID疫苗的许可！难道不值得深思吗？**
+
+审核：蚂蚁兄弟；校对：信心的选择；发稿：信心的选择
+
+**新闻来源：**[www.dailywire.com](https://www.dailywire.com/news/exclusive-cumulus-media-employees-are-required-to-receive-covid-vaccine-before-returning-to-the-office-leaked-memo-reveals?utm_source=Jeeng)
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+
++1

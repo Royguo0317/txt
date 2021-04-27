@@ -1,43 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】中共内斗升级，王岐山还逍遥吗！
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1144344/)
+## 美将建新机构以防俄与中共的“恶意行动”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1144445/)
 
-配音：香草山录音组 米小乐
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-45.jpg)prepareforchange.net
+04月27日，据Politico报道，在当局多次警告俄罗斯和其他国家试图影响该国选举的情况下，美国已经开始着手建立一个打击外国敌对干涉国家事务的中心。
 
+该报援引其发言人的声明说，这将由国家情报总监办公室完成。该中心需要“根据不断增长的威胁、支持不断变化的政策和国会的要求”来创建，他明确指出。
 
+这个新机构将收集与某些外国政府机构的恶意影响有关的情报，对其进行评估，并警告可能的干扰。据Politico报道，该中心将特别关注俄罗斯、伊朗、朝鲜和中共国的“恶意活动”。
 
+该中心的建立是由美国国家情报局局长艾薇儿·海恩斯（Avril Haynes）倡导的。她在1月份上任后开始谈论建立新机构的必要性。一段时间后，她在众议院情报委员会发言时宣布，该中心的工作已经开始。特别是，海恩斯称，遏制外国敌对影响是“一个令人难以置信的重要问题”。
 
+海恩斯在1月底被提名并确认为该职位的人选。在此之前，她在参议院情报委员会发言时宣布，华盛顿将12月的黑客攻击归咎于俄罗斯的背后支持，俄罗斯在网络空间构成的威胁非常严重。莫斯科否认参与了对美国联邦和私人网络的黑客攻击。
 
+海恩斯承诺将关注俄罗斯带来的危险，并引用了国土安全部的一份声明，该声明认为俄罗斯黑客的攻击威胁是一种“严重的风险”。
 
+4月中旬，美国情报界提交了年度报告，强调2021年俄罗斯将继续使用各种策略来“破坏美国的影响力，分裂西方世界并削弱其同盟。在这种情况下，俄罗斯情报部门被列为对美国最严重的威胁之一”。
 
-凤凰网2021年04月26日引用新华社消息，简短75个字表述了原中央巡视组副部级干部董宏被最高检以受贿罪“依法逮捕”。董宏是2020年10月2号被中纪委监察委公布审查，2021年04月12号开除中共党籍，今日发布正式被逮捕消息。除了一些大陆媒体少量跟进外，在搜狗百科上已经查不到其人条目，百度百科也只是对“违记违法事实”多点着墨。
+报告还提到了俄罗斯在大规模杀伤性武器领域以及网络领域所带来的危险。
 
+莫斯科多次否认干预美国选举，以及实施黑客攻击。例如，3月份，俄罗斯总统发言人德米特里·佩斯科夫（Dmitry Peskov）强调，俄罗斯对西方国家不构成威胁。“俄罗斯过去和现在都不是任何人的敌人，对任何人都不构成威胁。相反，正如普京总统多次所说，我们主张与所有国家建立正常化和发展良好的互利关系。”他认为。
 
+参考链接：
 
-**文字版原文：[【战友心声】中共内斗升级，王岐山还逍遥吗！](https://gnews.org/zh-hans/1142217/)**
-
-作者：纽约香草山健身部 文鹰
-
-
-
-音频处理/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://www.rbc.ru/politics/27/04/2021/6087900f9a7947c998f0f51e](https://www.rbc.ru/politics/27/04/2021/6087900f9a7947c998f0f51e)
 
 0

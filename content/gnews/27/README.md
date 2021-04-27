@@ -1,21 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月27日灭共要闻快报
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1143962/)
+## 【每日快讯】04/26/2021：华裔女性赵婷获得奥斯卡最佳导演奖
+` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1143972/)
 
-重点内容：
+**制作：Cantonese工作室**
 
-印度疫情近乎失控每四分钟就有一人离世；
 
-班农战斗室：中共用病毒和气候变化贩卖恐惧；
 
-闫博士：中共病毒实验室来源问题和政治无关；
+**资料整理：【闪电】【Annie喜马拉雅】海报制作：【文雀】【小豆芽】视频制作:【ken】上传：【星星】【向阳6768】**
 
-华裔导演赵婷获奥斯卡奖，墙内被禁
+摘要：
 
-常州一整条小吃街倒闭
+1
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-478.png)
+2
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image2-1.png)
+3
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image3-1.png)
+4
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image4.png)
+5
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image5-2.png)
 
-**By**：【秘翻组**–**上天造灭疫组】
-
+![]()![](https://gnews.org/wp-content/uploads/2021/04/0.jpg)
 0

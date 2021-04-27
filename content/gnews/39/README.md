@@ -1,77 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【音频图片新闻】我们的民主在哪里？民国小学课本 vs 墙国的洗脑课本
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1143761/)
+## 中共病毒大规模隐形杀伤力武器重创印度
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1143875/)
 
-**点评：Candy**
+台湾宝岛农场 Amitofu
 
-配图：summer, bingo
+由于印度受到中共病毒的袭击，使新冠状疫情迅速恶化，1760万人确诊、20万人死亡，连续8天单日新增确诊数都超过30万人，印度目前以英国变异病毒株B.1.1.7和印度本土变异病毒株B.1.617两种病毒肆虐，在双重突变病毒后现在还出三重突变病毒，名为 B.1.618 ，印度科学家发现三重突变病毒的传染力更强，特征是除了刺突蛋白中的 E484K 和 D614G 突变，可逃避、削弱人体对病毒免疫反应之外，还有 6 个核苷酸（H146del 和 Y145del）的染色体重排，是三重变异的病毒株。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/indiacovid-400x225.jpg)美聯社
+目前印度医疗系统濒临崩溃，氧气系统严重缺乏，部分患者家属争抢氧气罐的状况，部分医院超出医疗负荷被迫拒收病患，导致大量病人只能等待死亡，甚至殡葬业者因为大量增加的尸体，导致火葬场超出负荷，目前加拿大、英国、德国、荷兰等国家已禁止印度旅客入境。
 
+闫丽梦博士发表的第一份科学报告，证实中共病毒是经过军方拥有的舟山蝙蝠病毒ZC45/ZXC21为骨架，通过人为的基因改造技术在刺突蛋白中引入弗林酶切位点，S蛋白、E蛋白毒性的功能增强具有强变异和高传染性的特性，中共生化病毒引发全人类的灾难与恐慌，中共在有解药的情况下，一方面放毒一方面搞疫苗外交、疫苗经济，病毒大规模隐形杀伤力武器所造成的死伤和瘫痪全球系统，已经超过数枚核弹的死伤，文贵先生多次在直播中提到，中共对美国的3F计划13579征服世界2025、2035、2049，消灭全球白人菁英，最终控制世界的计划，爆料革命逐渐唤醒西方世界，相信以毒灭共将会有更多的正义力量加入新中国联邦。本文仅代表个人立场
 
+資料來源:文贵先生、班农战斗室、路德社、博士军团、新中国联邦
 
-### 中华民国时的小学课本有什么内容？
+审核:Athena雅典娜 发布:Amitofu
 
-![](https://lh3.googleusercontent.com/loELvrKkoDaIjOa9I6jtbcbNwEPrz5lMb7rLnfQAYEUeAmilLfi7KQZkYQhOzSYtgPQIl_tU2M78ssqz3Ia7gjgw5tthsDTti6TIacCXHIbWcdDJ6iFGjQnpT_kC7wsWrhIcDnBD)
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-*中华民国时的小学课本以“君主政治和民主政治” 的对比, 作为授课内容，*
-
-*令小学生对照学习，分析判断就知道哪个制度更好，更对人民有利，对国家向善的发展更有帮助。*
-
-
-
-
-
-中华民国时的小学课本以“君主政治和民主政治” 的对比为授课内容，明眼人一看就知道哪个制度更好，更对人民有利，对国家向善的发展更有帮助，更容易被人民所接纳。
-
-因为君主政治是帝王把国家、权利及人民统统看成是自己私有的，国家管理方面是大政府，下级必须服从上级，老百姓只有服从的份儿，所有人都要效忠于帝王。而民主政治则完全相反，人民是国家的主人，人民选举出政府官员，官员必须服务于人民，不满意的官员还可以被罢免。这样教育出来的人们才能明白是非黑白，遵守普世价值。
-
-
-
-### 墙国现在的小学课本有是什么内容？
-
-100年过去了，墙国现在的小学课本有是什么内容？我们找到了1970年代的中共国江苏胜苏州市小学算术课本。惨不忍睹的是，连算术题里都充满了共产党的阶级斗争仇恨与火药味！
-
-小学二年级的学生要学的算术题是：
-
-“贫下中农狠批刘少奇，第一天写了大字报42张，第二天写了51张，两天共写了多少张？”
-
-
-
-![](https://lh3.googleusercontent.com/s1WHBE5CoKWsuwOi6qQJI0nG32mNSUQhlbUpoJLWQC-kSoZNajkrIRXDBrTuH_17jI5y5n0I9OT2-3YjtN4cg4GQtU-deFD6vEv7nT5cp7sgTiuDlG6kf063n8EW51ZZyawKRoPI)
-
-
-
-![](https://lh6.googleusercontent.com/4C6GAFc3uutwL4zVCjgM9qRRlcWLoIfNABd44tTt1FaS0DBHeEDXR26H--KLJguASiYSb23o4UGZDvuZCj6vABegnyIvA77lVJ3wCvrHtIzglGTx0pEkuYKm_fP64JFVZi_7S2zM)
-
-
-
-语文课本则是，首先要了解教材编写的宗旨：在习近平总书记领导下，以党中央为核心，坚持……再看课本的内容：我随意从互联网上”语文迷“ 的教材里查看了一下，看到的是“雷锋叔叔，你在哪里？”，”这片土地是神圣的“，“为人民服务”，“人是一根能思想的稻草”。。。。一看题目就知道内容，无非是要人民——在他们眼里如稻草一般的贱民，无限地付出，直至死亡。而那些从小学到大的人民，大多数都是俯首帖耳地照收不误了，以至造成现在文革2.0版的疯狂再现。可悲又可怜！
-
-![](https://lh6.googleusercontent.com/XAEg0CbT0ZR1aSi5qoDTsAtDS5yBrkWwdqfKPNyxtxJo9aqQgsAtgc7UpGFEOkPAxNrq6qbSIw5OjzGld-CWqpuluo1onn8cNUADVY8xEXHMm4PtR3hV-O8wVW9W4B--v2egwUD6)
-
-![](https://lh6.googleusercontent.com/kwOdy7RaDbxf2PwGeIeD-KcnW2EHtxPImt2nf3sWUqbNMHcKUBTAxBbbo90Kr0j-RF8pwOccriEhBAHK6U3f4XdHjlxEV9ayUw4OjJKUFKPf7_ifC-LPOtp3Y7044OozBgd7rxmM)
-
-CCP 不倒，全世界都将失去民主，出现文革2.0，必须铲除CCP！
-
-
-
-#### 【**免责声明**】 文章中中表达的所有观点均属于作者，并不代表任何组织或其他个人。 
-
-【**责任编辑**】：bingo 旧金山文宣组
-
-### **欢迎战友加入旧金山金喜农场**
-![](https://lh5.googleusercontent.com/B_qgfzdPe7PXEFJ00CMor-4S7gUJ-rc3GQynsbf5lDQTFq_r_hT5QSG7kwT1m9npdEdLRZt4dmHwRck2gxDfZP_2j0Tdrpkh4kkHu-VEGIxrxwCUUAtzhszjO6fxxQ)
-[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)[** **](https://discord.gg/QQzQ79grEA)
-
-[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)[** **](https://twitter.com/sf_himalaya)
-
-[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
-
-[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
-
-
-
-
-
-+1
+0
