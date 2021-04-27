@@ -1,27 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】04/26/2021：华裔女性赵婷获得奥斯卡最佳导演奖
-` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1143972/)
+## 中共《疫苗真相》视频短片
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1143961/)
 
-**制作：Cantonese工作室**
+凯路视频组
 
+2020年，人类的一场大劫难， 来自中共军方实验室的生化武器病毒肆虐全球。
 
+中共病毒是中国共产党制造的超限生化武器, 中共疫苗是中共向世界输出的第二次生化病毒, 世界政客无视病毒的源头，疫苗成了新一轮的人类灾难。
 
-**资料整理：【闪电】【Annie喜马拉雅】海报制作：【文雀】【小豆芽】视频制作:【ken】上传：【星星】【向阳6768】**
+永远不会有疫苗，因为它是生化武器。 只有让中国共产党交出病毒的解药，世界的病毒疫情才能得到缓解， 唯有消灭中国共产党，人类才能真正的消灭病毒的源头，人类才能安全。
 
-摘要：
+中共不灭，病毒的源头不止，中共病毒源源不断, 这就是真相！
 
-1
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-478.png)
-2
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image2-1.png)
-3
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image3-1.png)
-4
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image4.png)
-5
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image5-2.png)
+* * *
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/0.jpg)
+*发稿 文锦*
+
 0

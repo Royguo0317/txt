@@ -1,43 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】印度疫情与中共“援助”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1143855/)
+## 中共病毒大规模隐形杀伤力武器重创印度
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1143875/)
 
-配音：香草山录音组 米小乐
+台湾宝岛农场 Amitofu
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+由于印度受到中共病毒的袭击，使新冠状疫情迅速恶化，1760万人确诊、20万人死亡，连续8天单日新增确诊数都超过30万人，印度目前以英国变异病毒株B.1.1.7和印度本土变异病毒株B.1.617两种病毒肆虐，在双重突变病毒后现在还出三重突变病毒，名为 B.1.618 ，印度科学家发现三重突变病毒的传染力更强，特征是除了刺突蛋白中的 E484K 和 D614G 突变，可逃避、削弱人体对病毒免疫反应之外，还有 6 个核苷酸（H146del 和 Y145del）的染色体重排，是三重变异的病毒株。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/indiacovid-400x225.jpg)美聯社
+目前印度医疗系统濒临崩溃，氧气系统严重缺乏，部分患者家属争抢氧气罐的状况，部分医院超出医疗负荷被迫拒收病患，导致大量病人只能等待死亡，甚至殡葬业者因为大量增加的尸体，导致火葬场超出负荷，目前加拿大、英国、德国、荷兰等国家已禁止印度旅客入境。
 
+闫丽梦博士发表的第一份科学报告，证实中共病毒是经过军方拥有的舟山蝙蝠病毒ZC45/ZXC21为骨架，通过人为的基因改造技术在刺突蛋白中引入弗林酶切位点，S蛋白、E蛋白毒性的功能增强具有强变异和高传染性的特性，中共生化病毒引发全人类的灾难与恐慌，中共在有解药的情况下，一方面放毒一方面搞疫苗外交、疫苗经济，病毒大规模隐形杀伤力武器所造成的死伤和瘫痪全球系统，已经超过数枚核弹的死伤，文贵先生多次在直播中提到，中共对美国的3F计划13579征服世界2025、2035、2049，消灭全球白人菁英，最终控制世界的计划，爆料革命逐渐唤醒西方世界，相信以毒灭共将会有更多的正义力量加入新中国联邦。本文仅代表个人立场
 
+資料來源:文贵先生、班农战斗室、路德社、博士军团、新中国联邦
 
+审核:Athena雅典娜 发布:Amitofu
 
-
-
-
-4月26日大纪元报道，自3月中旬以来，印度CCP病毒感染人数呈爆发式增长，最近更是连续五天创下单日最高病例确诊数字，死亡人数也不断创下新高，仅昨天一天新增确诊病例就超过35万，单日死亡人数达到2812人。印度当下各种医疗资源已经用尽，但仍有数不清的患者停留在医院外等待救援。印度的疫情牵动着世界，许多国家向印度伸出了援助之手。其中，美国正积极调拨各项资源，以帮助印度制造疫苗，同时还向印度运送治疗药物、快速诊断测试盒和呼吸机等。欧盟将提供医用氧气和抗病毒药物瑞德西韦，爱尔兰、德国和法国也表明将提供帮助。
-
-
-
-**文字版原文：[【热点播报】印度疫情与中共“援助”](https://gnews.org/zh-hans/1142147/)**
-
-作者：纽约香草山美食部 蓝天大海
-
-
-
-音频处理/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
 0
