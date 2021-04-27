@@ -1,75 +1,136 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本驻澳大使称日本应加入“五眼联盟”情报网络
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1142313/)
+## 战友展览馆【4/26】
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1142609/)
 
-翻译：康州盘古农场 – Mike Li
+**西班牙巴塞罗那喜悦农场 **wenwu
 
-校对：康州盘古农场 – 柯镇恶
-
-编辑：康州盘古农场 – 心照
-
-据《The Sydney Morning Herald》 作者：Peter Hartcher，2021年4月21日报道
-
-日本驻澳大利亚大使称，日本正在朝着加入“英语国家战后情报网络”（即“五眼联盟”， Five Eyes）的方向稳步进展。
-
-2020年12月上任的山上信吾说：“我对不久的将来感到非常乐观”。他说“希望看到这个想法在不久的将来成为现实”。
-
-澳大利亚和新西兰在1956年加入了美国、英国和加拿大，组成了“五眼联盟”（Five Eyes），那次也是该组织最后一次接纳新成员。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/hyhyh6.png)
-日本大使山上信吾：“这是这些国家共享普世价值和战略利益的一个标志。”
-
-“从逻辑上讲，就利益和能力而言，日本是最佳人选，”澳大利亚国立大学国家安全学院院长罗里·梅德卡夫（Rory Medcalf）说。
-
-“如果说有一个国家对中共国有深入细微的了解，那就是日本。在大部分时间里，“五眼联盟”被视为一个不可改变的联盟，但我认为与时俱进很重要。”
-
-在新西兰对增加“五眼联盟”覆盖范围表达保留意见的情况下，日本成为“第六只眼”的想法格外引人关注。
-
-曾任日本外务省情报部门负责人的山上说：“我们正在不断与澳大利亚情报界、日本情报界以及五眼联盟的其他成员建立具体的联系。”
-
-他在接受《悉尼先驱晨报》（The Sydney Morning Herald）和《时代报》（The Age）采访时说：“因此，这确实是正在真实发生的事情，日本的政治家和官员越来越意识到其重要性。”
-
-他说：“这是这些国家共享普世价值和战略利益的一个标志”。这六个国家都是民主国家，而且都把中共国视为战略对手。
-
-五眼国家通过持续的、最高机密的交流，彼此分享电子情报。梅德卡夫教授说：“这其实是情报机构之间互相信任，分享他们最敏感的材料”。
-
-日本将是一个有益的补充，因为它“被认为拥有自己强大的情报收集和评估分析能力”。
-
-他说，要满足“五眼联盟”的规则和协议，从而被完全接纳，对日本来说将是一个 “重大的体制挑战”。在发展成为一个正式的“六眼”联盟之前，可能尝试“五眼”加 “一眼”是更现实的。
-
-与此同时，新西兰外交部长纳尼亚·马胡塔（Nanaia Mahuta）说，新西兰政府对于利用“五眼联盟”作为外交平台不感兴趣。
-
-“我们对扩大‘五眼联盟’的职权范围感到不安，”她周一对“新西兰对中委员会”说。
-
-“我们更愿意寻找多边机会来表达我们的利益。” 马胡塔似乎对来自北京的抱怨置之不理。
-
-“五眼联盟”国家发表了一份联合声明，该声明对北京在2020年11月镇压香港的民主政治家的行为表示谴责。
-
-中共国政府的一位发言人对此发出批评。
-
-“不管他们是有5只眼睛还是有10只眼睛，如果他们胆敢损害中国的主权、安全和发展利益，就要小心他们的眼睛被戳瞎，”中国外交部的赵立坚在去年11月的一次日常简报会上说。
-
-日本是美国的长期条约盟友，向美国提供亚太地区的主要军事基地。山上说，为了加入“五眼”联盟，东京需要在“改善日本的情报界和立法方面”做“大量的准备”。
-
-山上将日本与澳大利亚的关系描述为“非常好”，并说“一切皆有可能”。
-
-他说，在中共国政府实施的惩罚性贸易制裁下，“全世界的目光现在都在关注经历巨大困难的澳大利亚”。
-
-他说，美国总统拜登和日本首相菅义伟周末的峰会“对澳大利亚来说是一次很好的会议”，因为两位领导人在其联合声明中特别谴责了使用经济胁迫的行为。
-
-山上说：“每个人都明白他们指的是谁（中共），所以这是一个很好的进步”。
-
-莫里森总理与拜登、菅义伟和印度总理纳伦德拉·莫迪一起参加了3月举行的四国集团领导人级会议的开幕式。
-
-四位民主国家领导人承诺建立“自由和开放的印度洋、太平洋”，这是对北京在该地区的扩张野心的间接斥责。
-
-原文链接：[https://www.smh.com.au/world/asia/japan-should-join-five-eyes-intelligence-network-says-ambassador-20210420-p57kv6.html](https://www.smh.com.au/world/asia/japan-should-join-five-eyes-intelligence-network-says-ambassador-20210420-p57kv6.html)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+战友展览馆【4/26】推文。如下
 
 
 
-+1
+> The Nature page missed some important figures:
+> Hongbing Shu (His Wife, Yanyi Wang: the director of WIV)
+> Fusheng Wang (PLA General, AMMS)
+> 
+> School of Public Health, HKU 
+> HAS a very close connection with WIV!
+> Malik Peiris, Kwok-yung Yuen, Yi Guan, Leo Poon
+> 
+> PLA-CCP-WHO-NIH Coalition [https://t.co/eQHP8DDnxE](https://t.co/eQHP8DDnxE) [pic.twitter.com/vHZAoMFNjh](https://t.co/vHZAoMFNjh)
+> — 德意志之鹰 (@dezying) [April 26, 2021](https://twitter.com/dezying/status/1386796409010147328?ref_src=twsrc%5Etfw)
+
+
+1. **[德意志之鹰推特](https://twitter.com/dezying/status/1386796409010147328?s=20)**：
+***（娜塔莉·温特斯）**福奇的NIAID科学家参加了武汉实验室峰会，现在从互联网上被擦拭了（附《国家脉动》[链接](https://thenationalpulse.com/exclusive/fauci-scientists-attended-wuhan-lab-conference/)）*
+***（德）**自然杂志页面遗漏了一些重要数据：舒红兵（妻子王延轶：武毒所监管）王福生（解放军将军，解放军传染病研究所）
+港大公共卫生学院与武毒所有非常密切的联系！马利克·佩里斯、袁国勇、管轶、潘烈文
+“解放军-中国共产党-世卫组织-美国国立卫生研究院”联盟*![]()![](https://gnews.org/wp-content/uploads/2021/04/Ez7vfcvWQAI4Dx2.png)（连接上推）
+*王福生（中）和同志们…*
+
+
+> An important Tweet by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@himalaya\_de](https://twitter.com/himalaya_de?ref_src=twsrc%5Etfw)
+> Shows exactly how the Chinese Communist Party's biowarfare program works, a secret core military element linked to China's universities & research institutes linked to Western useful idiots like Peter Daszak & Edward Holmes. [https://t.co/I0pkSGWqVP](https://t.co/I0pkSGWqVP)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 26, 2021](https://twitter.com/LawrenceSellin/status/1386599325443272704?ref_src=twsrc%5Etfw)
+
+
+2. **[Sellin博士](https://twitter.com/LawrenceSellin/status/1386599325443272704?s=20)**：
+***（慕尼黑感恩）**军医科三毒王：童贻刚（另外两个：曹务春、杨瑞馥） 曾任军事医学科学院微生物流行病研究所主任 WHO新冠溯源中方专家组动物与环境组组长 
+冠状病毒研究网络连连看：CDC高福，军医科曹务春，香港大学管轶袁国勇梁卓伟，武毒所石正丽周鹏，新加坡王林发，美国Peter Daszak, 澳洲Edwards Holmes
+**（Sellin)** #COVID19 的一条重要推文来自@himalaya\_de 侦探
+确切地展示了中国共产党的生物战计划是如何运作的，这是一个秘密的核心军事元素，与中共国大学和研究机构有关，与彼得·达扎克和爱德华·霍姆斯等西方“有用的白痴”有关*
+
+
+> "许多人说，既然我们无法改变中国的(共产党)政权，那我们就跟它做交易(共生)。 绝不可以! 我们无法改变它，我们可以切断与它的链接来保护自己。共产党太好战/太危险/太恶毒,无法维持任何正常(沟通)接触! " – 章家敦
+>  [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/IbdIkJxyQK](https://t.co/IbdIkJxyQK)
+> — Bo Lu II (文龍） (@BoLu213) [April 26, 2021](https://twitter.com/BoLu213/status/1386676097807421441?ref_src=twsrc%5Etfw)
+
+
+3. **[文龙推特](https://twitter.com/BoLu213/status/1386676097807421441?s=20)**（翻译）：
+*“许多人说，既然我们无法改变中国的(共产党)政权，那我们就跟它做交易(共生)。 绝不可以! 我们无法改变它，我们可以切断与它的链接来保护自己。共产党太好战/太危险/太恶毒,无法维持任何正常(沟通)接触! ” – 章家敦 #CommunistChina #CCP*
+
+
+> Yigang Tong is one of the leading Chinese experts in the WHO investigation team, but let's dig deeper:
+> He is formerly a PLA general (His successor in AMMS: Wuchao Cao and Ruifu Yang)
+> His research network: 😱
+> HKU
+> WIV
+> EcoHealth
+> …
+> The WHO report is a cover-up of biowarfare. [https://t.co/xHAH0obgc1](https://t.co/xHAH0obgc1) [pic.twitter.com/wy9XILbDEB](https://t.co/wy9XILbDEB)
+> — 德意志之鹰 (@dezying) [April 26, 2021](https://twitter.com/dezying/status/1386521530516099072?ref_src=twsrc%5Etfw)
+
+
+4.**[德意志之鹰推特](https://twitter.com/dezying/status/1386521530516099072?s=20)**：
+***（慕尼黑感恩）**军医科三毒王：童贻刚（另外两个：曹务春、杨瑞馥） 曾任军事医学科学院微生物流行病研究所主任 WHO新冠溯源中方专家组动物与环境组组长
+**（德）**童贻刚是世卫组织调查小组中领先的中共国专家之一，但让我们更深入地挖掘：曾任解放军大将（他继承了解放军病毒研究所：曹务春和杨瑞馥）
+他的研究网络：
+港大-武毒所-生态健康…
+世卫组织的报告掩盖了生物战*
+
+
+> Chinese officials blocked a meeting with US officials to discuss American concerns about China’s covert biological warfare program. Beijing’s military is working on ethnic biowarfare arms [https://t.co/IQkAPlGT0X](https://t.co/IQkAPlGT0X)
+> — Bill Gertz (@BillGertz) [April 25, 2021](https://twitter.com/BillGertz/status/1386439411475259392?ref_src=twsrc%5Etfw)
+
+
+5. **[比尔·格茨推特](https://twitter.com/BillGertz/status/1386439411475259392?s=20)**：
+中共国官员阻止与美国官员举行会议，讨论美国对中共国秘密生物战计划的担忧。北京军方正在研究种族生物战武器
+附[《华尔街时报》新闻链接](https://www.washingtontimes.com/news/2021/apr/25/china-nixed-biowarfare-meeting-coronavirus-queries/)![]()![](https://gnews.org/wp-content/uploads/2021/04/Ez4DG6BXsAAobAe.jpeg)6. 图片来自**[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1386549263606423554?s=20)**：
+*中共在财政上拯救了斯克里普斯（Scripps）研究公司，是否这就是为什么斯克里普斯公司在一篇被大量引用的 “科学 “文章《SARS-CoV-2的近端起源》中如此迅速地支持中共关于#COVID19来自大自然的说法？
+ #CCPVirus #UnrestrictedBiowarfare #OriginOfCOVID19*
+
+
+> Confirmation from [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) (谢谢) of the extensive Chinese Communist Party – Scripps Research collaboration. Scripps appears to be, in practice, a wholly-owned subsidiary of the CCP. [https://t.co/0xvxsLanSp](https://t.co/0xvxsLanSp)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 26, 2021](https://twitter.com/LawrenceSellin/status/1386564395313029120?ref_src=twsrc%5Etfw)
+
+
+7. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1386564395313029120?s=20)**：
+***（火来）**100%。自2016年斯克里普斯（Scripps）研究公司财务困难暴露以来，在过去的5年里，与中共达成了多项交易
+**(Sellin)**认证来自@jsdfposjpqyuee1（谢谢）中国共产党与斯克里普斯研究的广泛合作。
+在实践中，斯克里普斯似乎是中共的全资子公司。*
+
+
+> 21 Apr, 2021
+> – Some of concerns about COVID19 vaccines [https://t.co/OeuZTV1p6b](https://t.co/OeuZTV1p6b)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 25, 2021](https://twitter.com/DrLiMengYAN1/status/1386465731982897154?ref_src=twsrc%5Etfw)
+
+
+8. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1386465731982897154?s=20)**（附视频）：
+*（**战鹰团）**闫博士谈疫苗 現在還沒有有效的疫苗是因為～疫苗的副作用～病毒快速變異～它是超限生化武器～
+**（闫）**2021 年 4 月 21 日-关于新冠病毒疫苗的一些担忧*![]()![](https://gnews.org/wp-content/uploads/2021/04/Ez5ehnOXIAUPUNT.jpeg)9.图片**[来自Sellin博士](https://twitter.com/zhiyitw33/status/1386667568455368708?s=20)**（美国政要推特翻译）：
+*劳伦斯·塞林博士： 这些不是值得任何尊重的医生、科学家或军官。 他们只应受到谴责。 我支持中国人民。 我拒绝中国共产党 【图中贴出参与新冠病毒研制的 #中共军方 重要人员：金宁一，陈薇，曹务春，杨瑞馥，童贻刚，范泉水，王长军。并将他们与二战时期德国纳粹刽子手军医 约瑟夫·门格勒相提并论！
+译者注：约瑟夫·门格勒(Josef Mengele)，是二战时期的德国纳粹党卫军军官和医师。他在奥斯威辛集中营中进行致命试验，并为毒气室选择要被杀死的受害者。他亦被称为「死亡天使」】 #中共病毒 #超限生物武器 #超限生物战 #新冠病毒起源*
+
+
+> The Chinese Communist Party's biowarfare program exists at 3 levels, a core secret military program, a civilian/university program supporting it, which is linked to international programs, particularly US. 
+> Scroll down to see the network map being created[https://t.co/oIeZFJ4B01](https://t.co/oIeZFJ4B01)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 26, 2021](https://twitter.com/LawrenceSellin/status/1386536327550754818?ref_src=twsrc%5Etfw)
+
+
+10. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1386536327550754818)**：
+*中共的生物战计划有三个层次，一个是核心的秘密军事计划，剩下的是与国际计划与美国计划有连接，并以此支持它的民用和大学计划。
+向下滚动以查看正在创建的网络地图
+附[《每日邮报》新闻链接](https://www.dailymail.co.uk/news/article-9507749/How-scientists-Wuhan-lab-helped-Chinese-army-secret-project-animal-viruses.html)*![]()![](https://gnews.org/wp-content/uploads/2021/04/Ez4OcavWUAUlUpv.jpeg)11. 图片来自**[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1386561717539377152?s=20)**：
+*中共的军事生物战计划利用中共国的 “民用 “研究机构和大学，渗透到国际实验室，以获取技术和知识。这在美国的数百个地方正在发生。
+CCPVirus #COVID19*![]()![](https://gnews.org/wp-content/uploads/2021/04/Ez0cYJ1WQAAV0Gv.jpeg)12. 图片来自**[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1386297320485105668?s=20)**：
+*爆炸性的消息。安东尼·福奇为什么要资助 “科学怪人 “马利克·佩里斯博士？为什么美国食品和药物管理局在帮助他？为什么美国国立研究所的合同HHSN27220140000C如此隐秘？是不是因为HHSN2722014 “功能增强 “系列在2014年被 “暂停 “了？*
+【灭共时代】
+
+
+
+> 王岐山大管家董宏被捕！
+> 
+> 兵败如山倒。感觉“习亡岐山X”正在进行中。 [https://t.co/dj4kfr649k](https://t.co/dj4kfr649k) [pic.twitter.com/woqeuZo6h4](https://t.co/woqeuZo6h4)
+> — 瞿水台 Qu Shuitai (@QuShuitai) [April 26, 2021](https://twitter.com/QuShuitai/status/1386685220133429248?ref_src=twsrc%5Etfw)
+
+
+**[瞿水台推特](https://twitter.com/QuShuitai/status/1386685220133429248?s=20)**：
+*（11/20/20）王健最厉害的是创建了渤海金控！ 如果王健不死，第一个死的是董宏（王岐山的“大管家”，已被捕），第二个是陈峰，第三个可能就是王岐山。 王健死后的动静比死前还大！中共，香港人，法国人，美国人都在找王健的藏宝图
+（4/12/21）王岐山的“大管家“董宏今日落马，郭先生又蒙对了
+（4/26/21）王岐山大管家董宏被捕！ 兵败如山倒。感觉“习亡岐山X”正在进行中*
+
+
+
+
++2

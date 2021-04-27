@@ -1,33 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】中共内斗升级，王岐山还逍遥吗！
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1142217/)
+## 《路德社》精选新闻简讯翻译：与中俄紧张局势逐步加剧中，美军战舰与英国舰队在印太区域会师
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1142404/)
 
-香草山写作组 童谣
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-凤凰网2021年04月26日引用新华社消息，简短75个字表述了原中央巡视组副部级干部董宏被最高检以受贿罪“依法逮捕”。董宏是2020年10月2号被中纪委监察委公布审查，2021年04月12号开除中共党籍，今日发布正式被逮捕消息。除了一些大陆媒体少量跟进外，在搜狗百科上已经查不到其人条目，百度百科也只是对“违记违法事实”多点着墨。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screen-Shot-2021-04-26-at-7.23.14-PM.png)图片来源：新唐人电视台
-董宏作为王岐山的“白手套”被正式逮捕，王公公虽然给习大神私下勾兑，保留了一点面子。但中共历来党内你死我活的内斗能消停下吗？不可能的！只要共产党在地球多存活一秒钟，不仅危害全人类，让世界永无宁日。共产党体制内部更是巨大的绞肉机，无论开国元勋、红二代、官三代等任何人也无路可逃。共产党对自己体制内的人更是残酷无情。他们近百年的进程，无处不是在血腥残暴欺骗谎言中，踏着亿万劳苦大众的尸体前行的。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/042701.png)皇家海军伊丽莎白女王号航母
 
-王岐山难当“林彪”第二，会坐以待毙吗？曾庆红坐山观虎斗还会观望吗？袁世凯、华盛顿在那里？体制内的人早一点清醒早一点行动，别让联军真的来临，给中华大地带来更大的伤害。
+随着与中共国和俄罗斯紧张关系的加剧，下月，一艘美国驱逐舰将加入一只英国航母舰队，并一起在印太区域航行，该航母舰队由一艘耗资30亿英镑全新打造的英国[皇家海军伊丽莎白女王号航母](https://en.wikipedia.org/wiki/HMS_Queen_Elizabeth_%28R08%29)带领。
 
-参考来源：[https://ishare.ifeng.com/c/s/v002KmSBywsJ-\_ghsGHQAJWKpngm07HTXpYAZ3TkvnjOQBc8\_\_](https://ishare.ifeng.com/c/s/v002KmSBywsJ-_ghsGHQAJWKpngm07HTXpYAZ3TkvnjOQBc8__)
+周一，英国国防部宣布，5月美国[苏利文兄弟号驱逐舰](https://en.wikipedia.org/wiki/USS_The_Sullivans_%28DDG-68%29)将加入伊丽莎白女王号航母领衔的打击群，届时该打击群将访问印度，日本，韩国和新加坡。这次行动预计持续超过6个月，并访问超过40个国家。在此期间，打击群部队将参与超过70次军事行动，空中格斗演练，和其它行动。该行动是英国“印太战略倾斜”的关键部分，其战略旨在加强与亚洲盟国的安全关系，并加强对任何入侵的区域防御。
 
-[https://hk.epochtimes.com/news/2020-10-02/48387318](https://hk.epochtimes.com/news/2020-10-02/48387318)
+这项行动的大背景是中共国与美国和西方盟友逐渐紧张的关系。本月6号，[中共军方宣布将在台湾岛附近进行军演](https://www.reuters.com/business/aerospace-defense/china-says-carrier-group-exercising-near-taiwan-drills-will-become-regular-2021-04-06/)；7号，[中共15架军机入侵台湾放空识别区](https://www.newsweek.com/china-warplanes-are-flying-near-taiwan-record-numbers-1585277)，7号当日，美国出动[约翰·S·麦凯恩号驱逐舰(DDG-56)](https://en.wikipedia.org/wiki/USS_John_S._McCain_%28DDG-56%29)穿越台湾海峡示警，然后招致中共国外交评击[点击查看](https://www.republicworld.com/world-news/us-news/us-navy-vessel-casually-transits-through-taiwan-strait-amid-china-tensions-pokes-beijing.html)。早在2020年10月9日，[美军新闻发布会](https://www.navy.mil/Press-Office/News-Stories/Article/2379054/uss-the-sullivans-joins-british-carrier-task-group-for-exercise-joint-warrior-2/)就表示，英国与美国之间的“特殊关系”是部署“苏利文”号的唯一原因，并且两国正在准备全球部署，发布会还向“对手”展示了“苏利文”号给航母战斗群带来的毁灭性打击能力。
 
-编辑/审核/发稿：正义的小新
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-**更多资讯，更多关注**
+美英两国海军的联手还只是刚刚开始，随着新冠病毒真相的步步揭露，作者相信最后194个国家都会联合起来消灭中国共产党。
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[援引原文](https://www.newsweek.com/us-warship-join-uk-fleet-indo-pacific-china-1586416?amp=1&amp;utm_term=Autofeed&amp;utm_medium=Social&amp;utm_source=Twitter&amp;__twitter_impression=true)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+本文翻译：红胡子
+审核校对：鲁邦五世
+上传排版：糖果儿
 
 0

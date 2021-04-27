@@ -1,136 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 战友展览馆【4/26】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1142609/)
+## 【字幕】4/26/2021文贵盖特：为什么中国的赵婷的父母能培养出这样的孩子
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1142750/)
 
-**西班牙巴塞罗那喜悦农场 **wenwu
+制作： 【彩虹桥】
 
-战友展览馆【4/26】推文。如下
+尊敬的战友们好！今天都4月26号了吧，27号了，我都不知道是几号了，大家都看到了在14亿中国人，八、九十年的历史，这么多所谓的艺人，艺术家，知识分子，多少人呢？过去死的活的，弄了几十亿人口的国家，一个世界的奥斯卡奖没得着，然后诺贝尔奖弄了一个，现在弄得不敢说话了，是吧？弄了一个叫什么..山东的俺的老乡叫什么炎..老忘，咱没文化是吧？
 
+另外一个看到了赵婷，中国的80后，获得了奥斯卡奖，但是你发现了没有，一获奥斯卡奖，这人就是辱华，一获诺贝尔奖，就不忠于党。而且你发现了嘛，人家当时赵婷拍出来的不割习，《游牧人生》，《无依之地》，拍这些电影，大家去好好看看，这个电影拍完以后，最值得思考的是中国当爹当妈的，为什么赵婷的爹妈会生出这么一个孩子出来？这么多中国人说最流行的叫什么，望子成龙，望女成凤，望子成龙的另一个意义是什么战友们？是因为你不行，望子成龙因为你不行，因为你不行，你就变态的，你要希望你的孩子要行，所谓为了他好，把你的根本不可能实现的幻想，寄托在你那个望子成龙的梦上，结果是变态的教育。
 
+我听说..我瞎蒙的，赵婷，因为我家里的孩子有跟赵婷是同学的，赵婷此人生活中非常朴实真实，最重要的是拥有贵族的气质，勇敢。一个勇敢的孩子，他一定不是被父母所谓的望子成龙，望女成凤那种父母教育出来的，这个赵婷如果都听她爸她妈的，跟她爸和她妈一样的成长，她就不可能有今天，拍不出《无依之地》，拍不出《游牧人生》，就这么简单，每个人的经历和思想和身体各种环境都是不一样的。这就是个体化，才能表现出个性化，个体化、个性化，才能发掘出内心中最大的潜力，才能成为一个不同的一个能塑造出自己的个性这样的人生。
 
-> The Nature page missed some important figures:
-> Hongbing Shu (His Wife, Yanyi Wang: the director of WIV)
-> Fusheng Wang (PLA General, AMMS)
-> 
-> School of Public Health, HKU 
-> HAS a very close connection with WIV!
-> Malik Peiris, Kwok-yung Yuen, Yi Guan, Leo Poon
-> 
-> PLA-CCP-WHO-NIH Coalition [https://t.co/eQHP8DDnxE](https://t.co/eQHP8DDnxE) [pic.twitter.com/vHZAoMFNjh](https://t.co/vHZAoMFNjh)
-> — 德意志之鹰 (@dezying) [April 26, 2021](https://twitter.com/dezying/status/1386796409010147328?ref_src=twsrc%5Etfw)
+所以共产党在中国的教育叫什么？洗脑教育，叫标准型教育，就像过去穿的那个蓝的衣服、绿军装一样，这种灭绝人性，他连穿衣服只要你两个颜色，教育只按一个标准，然后爹亲娘亲不如党亲，然后杀掉佛，杀掉穆斯林，杀掉基督徒，杀掉天主教徒，你大爷来的，你有什么资格教育孩子？
 
+所以战友们兄弟姐妹们，天下的父母要想想，包括我是我的两个孩子，我从来不告诉孩子说，你要比你爸爸强，凭什么比我强，孩子任何方面都比我强，我看到我的孩子任何方面都比我强，是吧，身高比我高，是不是？身体状态比我好。而且他们都有着绝对的正义，而且有了自己的爱好，我女儿一听说奢侈品，她说烦死了，我头两天给他买双鞋，几百美金跟我急，你别给我买这个鞋，我烦。我都自己会买，儿子，人家有自己的多种爱好，是不是？我这俩孩子最好就是，没从政，也没做生意，而且我这两个孩子也不和政客也不和生意人在一起，这就是他们的人生。
 
-1. **[德意志之鹰推特](https://twitter.com/dezying/status/1386796409010147328?s=20)**：
-***（娜塔莉·温特斯）**福奇的NIAID科学家参加了武汉实验室峰会，现在从互联网上被擦拭了（附《国家脉动》[链接](https://thenationalpulse.com/exclusive/fauci-scientists-attended-wuhan-lab-conference/)）*
-***（德）**自然杂志页面遗漏了一些重要数据：舒红兵（妻子王延轶：武毒所监管）王福生（解放军将军，解放军传染病研究所）
-港大公共卫生学院与武毒所有非常密切的联系！马利克·佩里斯、袁国勇、管轶、潘烈文
-“解放军-中国共产党-世卫组织-美国国立卫生研究院”联盟*![]()![](https://gnews.org/wp-content/uploads/2021/04/Ez7vfcvWQAI4Dx2.png)（连接上推）
-*王福生（中）和同志们…*
+而中国人把孩子当成谋生的工具，除了望子成龙证明父母不行，让孩子实现你不可能拥有的幻想之外，就变态的达到了另外一个目的，让儿子女儿自己的孩子，成为未来自己发泄失败，所谓争面子的一个希望和一个工具，动不动就是孩子人家人家，动不动就是人家…人家的词儿是我最恨的一个词儿，每个人都不一样，我干嘛看人家？对不对？因为你失败了，你就要有发泄的地方，你就要找孩子，中国任何天下的父母看看赵婷，再看看中国这些年的艺术家，中国的导演们，我要是导演的话，我一定我今天我拉个屎，我要拿这盆屎倒我自己脸上，扣我自己头上去，我尿尿，我自己喝了，中国的导演艺术家，可以说千千万能达到这个水平的。
 
+赵婷的拍摄，赵婷的技术都不是最好的，但是她有一颗所有人都没有的一个钻般的心，她是人，她有勇气，她有胆量，她在为了活着，为什么这个问题上，她说出了自己真实的声音。人应该怎么活的问题上，她说出了自己的真话而已，但是多少所谓中国的大导演企业家动不动几个亿，动不动就几十个亿，包多少小仨儿，包多少鸭子，变态、吸毒，都比较赵婷厉害，但是没有人会记住你们，你们就是娱乐者，被娱乐者，娱乐者的垃圾，就像运动员郝海东先生，叶钊颖女士一样，就像我们的科学家闫丽梦博士一样，就像理工男我们的路德先生一样，博士军团一样，是他们活得与众不同，因为他们在为这个人类的文明在呐喊，为人性在呐喊，他们这一生不是活了多少钱，包了多少小仨儿，而是他们活在这个世界上，给这个地球和人类带来什么，每个人不会超过3万6千天，这3万6千天后，大家都会被烧了，但是赵婷的父母是最成功的父母，赵婷这一生是中国人几十亿人生生死死，打开了世界上，让知识界所谓的艺术界、导演界，一个新的标准。
 
-> An important Tweet by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@himalaya\_de](https://twitter.com/himalaya_de?ref_src=twsrc%5Etfw)
-> Shows exactly how the Chinese Communist Party's biowarfare program works, a secret core military element linked to China's universities & research institutes linked to Western useful idiots like Peter Daszak & Edward Holmes. [https://t.co/I0pkSGWqVP](https://t.co/I0pkSGWqVP)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 26, 2021](https://twitter.com/LawrenceSellin/status/1386599325443272704?ref_src=twsrc%5Etfw)
+我就不相信那些导演，那些演员，你们在床上能睡一辈子，能睡出黄金，能睡出你的金娃娃，那些互相搞装修，就能搞出你的价值，搞出你的快乐，有的人装神弄鬼的说两句，然后弄点钱，现在人家赵婷上来了，原来是中国骄傲，现在所谓辱华，原来中国多少导演有机会成为赵婷，但是最后在金钱和邪恶的势力面前选择了黑暗，不但选择了黑暗，还为黑暗在呐喊，还为黑暗在搞装修。帮助黑暗者来毁掉中国人民，人类会惩罚的，上天会审判的，永远要记住这个。
 
+兄弟姐妹们，这真是一个我们华人，任何人都要值得珍惜，值得感恩，值得我们荣幸的在世界上，共产党释放了全世界病毒，全世界都在把亚裔当成了世界的灾难的时候，而共产党把中国人民推向了一个可能万劫不复的世界病毒大灾难的责任者的时候，我们说出了中国人和共产党不是一回事，共产党不代表中国，共产党不代表中国人民，赵婷的出现，是拯救了很多华人，很多亚裔人，她替亚裔人争得了荣誉，争得了安全，无论她是谁，我们都该感激她，赵庭的父母养育了这么好的孩子，赵婷是中国的好儿女，我们作为同皮肤同中国人，不能像你那么伟大，但是我们会像你那样去为我们的同胞，为良知，为人性发声，今天我们所有的人，都应该为这个伟大的中国同胞赵庭而发声，而高声呐喊，我们将在任何情况下，我们要传播赵婷的电影和她的精神太伟大了，谢谢了！兄弟姐妹们。
 
-2. **[Sellin博士](https://twitter.com/LawrenceSellin/status/1386599325443272704?s=20)**：
-***（慕尼黑感恩）**军医科三毒王：童贻刚（另外两个：曹务春、杨瑞馥） 曾任军事医学科学院微生物流行病研究所主任 WHO新冠溯源中方专家组动物与环境组组长 
-冠状病毒研究网络连连看：CDC高福，军医科曹务春，香港大学管轶袁国勇梁卓伟，武毒所石正丽周鹏，新加坡王林发，美国Peter Daszak, 澳洲Edwards Holmes
-**（Sellin)** #COVID19 的一条重要推文来自@himalaya\_de 侦探
-确切地展示了中国共产党的生物战计划是如何运作的，这是一个秘密的核心军事元素，与中共国大学和研究机构有关，与彼得·达扎克和爱德华·霍姆斯等西方“有用的白痴”有关*
-
-
-> "许多人说，既然我们无法改变中国的(共产党)政权，那我们就跟它做交易(共生)。 绝不可以! 我们无法改变它，我们可以切断与它的链接来保护自己。共产党太好战/太危险/太恶毒,无法维持任何正常(沟通)接触! " – 章家敦
->  [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/IbdIkJxyQK](https://t.co/IbdIkJxyQK)
-> — Bo Lu II (文龍） (@BoLu213) [April 26, 2021](https://twitter.com/BoLu213/status/1386676097807421441?ref_src=twsrc%5Etfw)
-
-
-3. **[文龙推特](https://twitter.com/BoLu213/status/1386676097807421441?s=20)**（翻译）：
-*“许多人说，既然我们无法改变中国的(共产党)政权，那我们就跟它做交易(共生)。 绝不可以! 我们无法改变它，我们可以切断与它的链接来保护自己。共产党太好战/太危险/太恶毒,无法维持任何正常(沟通)接触! ” – 章家敦 #CommunistChina #CCP*
-
-
-> Yigang Tong is one of the leading Chinese experts in the WHO investigation team, but let's dig deeper:
-> He is formerly a PLA general (His successor in AMMS: Wuchao Cao and Ruifu Yang)
-> His research network: 😱
-> HKU
-> WIV
-> EcoHealth
-> …
-> The WHO report is a cover-up of biowarfare. [https://t.co/xHAH0obgc1](https://t.co/xHAH0obgc1) [pic.twitter.com/wy9XILbDEB](https://t.co/wy9XILbDEB)
-> — 德意志之鹰 (@dezying) [April 26, 2021](https://twitter.com/dezying/status/1386521530516099072?ref_src=twsrc%5Etfw)
-
-
-4.**[德意志之鹰推特](https://twitter.com/dezying/status/1386521530516099072?s=20)**：
-***（慕尼黑感恩）**军医科三毒王：童贻刚（另外两个：曹务春、杨瑞馥） 曾任军事医学科学院微生物流行病研究所主任 WHO新冠溯源中方专家组动物与环境组组长
-**（德）**童贻刚是世卫组织调查小组中领先的中共国专家之一，但让我们更深入地挖掘：曾任解放军大将（他继承了解放军病毒研究所：曹务春和杨瑞馥）
-他的研究网络：
-港大-武毒所-生态健康…
-世卫组织的报告掩盖了生物战*
-
-
-> Chinese officials blocked a meeting with US officials to discuss American concerns about China’s covert biological warfare program. Beijing’s military is working on ethnic biowarfare arms [https://t.co/IQkAPlGT0X](https://t.co/IQkAPlGT0X)
-> — Bill Gertz (@BillGertz) [April 25, 2021](https://twitter.com/BillGertz/status/1386439411475259392?ref_src=twsrc%5Etfw)
-
-
-5. **[比尔·格茨推特](https://twitter.com/BillGertz/status/1386439411475259392?s=20)**：
-中共国官员阻止与美国官员举行会议，讨论美国对中共国秘密生物战计划的担忧。北京军方正在研究种族生物战武器
-附[《华尔街时报》新闻链接](https://www.washingtontimes.com/news/2021/apr/25/china-nixed-biowarfare-meeting-coronavirus-queries/)![]()![](https://gnews.org/wp-content/uploads/2021/04/Ez4DG6BXsAAobAe.jpeg)6. 图片来自**[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1386549263606423554?s=20)**：
-*中共在财政上拯救了斯克里普斯（Scripps）研究公司，是否这就是为什么斯克里普斯公司在一篇被大量引用的 “科学 “文章《SARS-CoV-2的近端起源》中如此迅速地支持中共关于#COVID19来自大自然的说法？
- #CCPVirus #UnrestrictedBiowarfare #OriginOfCOVID19*
-
-
-> Confirmation from [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) (谢谢) of the extensive Chinese Communist Party – Scripps Research collaboration. Scripps appears to be, in practice, a wholly-owned subsidiary of the CCP. [https://t.co/0xvxsLanSp](https://t.co/0xvxsLanSp)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 26, 2021](https://twitter.com/LawrenceSellin/status/1386564395313029120?ref_src=twsrc%5Etfw)
-
-
-7. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1386564395313029120?s=20)**：
-***（火来）**100%。自2016年斯克里普斯（Scripps）研究公司财务困难暴露以来，在过去的5年里，与中共达成了多项交易
-**(Sellin)**认证来自@jsdfposjpqyuee1（谢谢）中国共产党与斯克里普斯研究的广泛合作。
-在实践中，斯克里普斯似乎是中共的全资子公司。*
-
-
-> 21 Apr, 2021
-> – Some of concerns about COVID19 vaccines [https://t.co/OeuZTV1p6b](https://t.co/OeuZTV1p6b)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 25, 2021](https://twitter.com/DrLiMengYAN1/status/1386465731982897154?ref_src=twsrc%5Etfw)
-
-
-8. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1386465731982897154?s=20)**（附视频）：
-*（**战鹰团）**闫博士谈疫苗 現在還沒有有效的疫苗是因為～疫苗的副作用～病毒快速變異～它是超限生化武器～
-**（闫）**2021 年 4 月 21 日-关于新冠病毒疫苗的一些担忧*![]()![](https://gnews.org/wp-content/uploads/2021/04/Ez5ehnOXIAUPUNT.jpeg)9.图片**[来自Sellin博士](https://twitter.com/zhiyitw33/status/1386667568455368708?s=20)**（美国政要推特翻译）：
-*劳伦斯·塞林博士： 这些不是值得任何尊重的医生、科学家或军官。 他们只应受到谴责。 我支持中国人民。 我拒绝中国共产党 【图中贴出参与新冠病毒研制的 #中共军方 重要人员：金宁一，陈薇，曹务春，杨瑞馥，童贻刚，范泉水，王长军。并将他们与二战时期德国纳粹刽子手军医 约瑟夫·门格勒相提并论！
-译者注：约瑟夫·门格勒(Josef Mengele)，是二战时期的德国纳粹党卫军军官和医师。他在奥斯威辛集中营中进行致命试验，并为毒气室选择要被杀死的受害者。他亦被称为「死亡天使」】 #中共病毒 #超限生物武器 #超限生物战 #新冠病毒起源*
-
-
-> The Chinese Communist Party's biowarfare program exists at 3 levels, a core secret military program, a civilian/university program supporting it, which is linked to international programs, particularly US. 
-> Scroll down to see the network map being created[https://t.co/oIeZFJ4B01](https://t.co/oIeZFJ4B01)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 26, 2021](https://twitter.com/LawrenceSellin/status/1386536327550754818?ref_src=twsrc%5Etfw)
-
-
-10. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1386536327550754818)**：
-*中共的生物战计划有三个层次，一个是核心的秘密军事计划，剩下的是与国际计划与美国计划有连接，并以此支持它的民用和大学计划。
-向下滚动以查看正在创建的网络地图
-附[《每日邮报》新闻链接](https://www.dailymail.co.uk/news/article-9507749/How-scientists-Wuhan-lab-helped-Chinese-army-secret-project-animal-viruses.html)*![]()![](https://gnews.org/wp-content/uploads/2021/04/Ez4OcavWUAUlUpv.jpeg)11. 图片来自**[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1386561717539377152?s=20)**：
-*中共的军事生物战计划利用中共国的 “民用 “研究机构和大学，渗透到国际实验室，以获取技术和知识。这在美国的数百个地方正在发生。
-CCPVirus #COVID19*![]()![](https://gnews.org/wp-content/uploads/2021/04/Ez0cYJ1WQAAV0Gv.jpeg)12. 图片来自**[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1386297320485105668?s=20)**：
-*爆炸性的消息。安东尼·福奇为什么要资助 “科学怪人 “马利克·佩里斯博士？为什么美国食品和药物管理局在帮助他？为什么美国国立研究所的合同HHSN27220140000C如此隐秘？是不是因为HHSN2722014 “功能增强 “系列在2014年被 “暂停 “了？*
-【灭共时代】
-
-
-
-> 王岐山大管家董宏被捕！
-> 
-> 兵败如山倒。感觉“习亡岐山X”正在进行中。 [https://t.co/dj4kfr649k](https://t.co/dj4kfr649k) [pic.twitter.com/woqeuZo6h4](https://t.co/woqeuZo6h4)
-> — 瞿水台 Qu Shuitai (@QuShuitai) [April 26, 2021](https://twitter.com/QuShuitai/status/1386685220133429248?ref_src=twsrc%5Etfw)
-
-
-**[瞿水台推特](https://twitter.com/QuShuitai/status/1386685220133429248?s=20)**：
-*（11/20/20）王健最厉害的是创建了渤海金控！ 如果王健不死，第一个死的是董宏（王岐山的“大管家”，已被捕），第二个是陈峰，第三个可能就是王岐山。 王健死后的动静比死前还大！中共，香港人，法国人，美国人都在找王健的藏宝图
-（4/12/21）王岐山的“大管家“董宏今日落马，郭先生又蒙对了
-（4/26/21）王岐山大管家董宏被捕！ 兵败如山倒。感觉“习亡岐山X”正在进行中*
-
-
-
-
-+2
+0

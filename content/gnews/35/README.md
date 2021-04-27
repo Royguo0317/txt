@@ -1,44 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新华社直白透露莫迪因挑衅中共而疫情爆发的真实原因
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1142480/)
+## 川普吁亚利桑那州长为选举审计提供安全保证
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1142862/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
-![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-123.jpg)
-郭文贵先生在[2021年4月26日盖特](https://gtv.org/getter/6086fda911a7ed500e9920a2)中贴出了下面这张图片——
-![]()![](https://gnews.org/wp-content/uploads/2021/04/00000000000000.jpg)
-按图索骥找到刘乐观天下的原始视频——**刘乐观天下2021年4月23日发布的**[印度疫情一夜变天，菅义伟被吓退，莫迪彻底没招](https://haokan.baidu.com/v?pd=wisenatural&amp;vid=7744155292685947181)
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-吾虽不及师旷之聪，闻弦歌而知雅意。作为中共喉舌的新华社绝对不会引用路德社的视频作为社评的组成部分，而刘乐观天下能够被引用说明刘乐要么是新华社的马甲要么是新华社的狗腿子，所以呢，对新华社《蓄谋全面“抗中”是开时代的倒车》的解读必须结合《刘乐观天下》的内容。
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/AU-3.jpg)cbnc.com
+上周六（24日）川普总统发表声明，呼吁亚利桑那州长保证法庭重新计票工作人员的安全，声明说，“亚利桑那州州长杜西应该立即为勇敢的美国爱国者提供大规模的安全保障，让他们对2020年总统选举进行司法审查，杜西州长将对相关人员的安全负全部责任……”【1】
 
-首先来说，挑衅中国的下场是什么？——印度疫情一夜变天。
+面对不容乐观的形势，川普总统今天再次发表声明：【2】
 
-[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[上午2:56 · 2021年4月18日](https://twitter.com/LawrenceSellin/status/1383494654633472007)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文已经把中共的13579计划大白天下——
+2021年4月26日
+美利坚合众国第45任总统唐纳德·川普的声明
 
+亚利桑那州州长道格杜西（Doug Ducey），美国最糟糕的州长之一，也是美国第二糟糕的共和党州长，他正在拒绝为那些进行手工计算亚利桑那州选票的美国爱国者提供安全保障，这些选票操控了亚利桑那州2020年美国的大选。
 
+川普总统的担心不是没有道理，据传安提法人员住在审计体育馆周围的宾馆，州长把警力部署到了边境，难怪最近一段时间，这位州长一反常态地与拜登政府、巫婆佩洛西唱反调，承认有边境危机的情况，原来这里对民主党的危机更大。警力弱了，无法无天的安提法可以捣乱、恐吓进行审计的工作人员。
 
-> My analysis of the Chinese Communist Party's dual-use military-civilian R&D program for novel genetically-engineered coronaviruses & heterologous vaccines against multiple strains, roughly follows this development plan, but involves more than one virus & a premature release. [pic.twitter.com/QYkJCJG17S](https://t.co/QYkJCJG17S)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 17, 2021](https://twitter.com/LawrenceSellin/status/1383494654633472007?ref_src=twsrc%5Etfw)
+《门道专家》（Gateway Pundit）报道，一名与民主党关联很大的法官被任命，将于明天开庭审理此案，民主党试图继续阻止参议院对2020年选举结果的审计，预计明天举行新的听证会【3】。
 
+面对民主党做贼心虚、孤注一掷的猖狂行为，亚利桑那州共和党主席凯利·沃德（Kelli Ward）博士则泰然若之，告诉《门道专家》：“这是美国的审计，是为了美国”（视频）【4】
 
+还有个奇怪的现象，所谓的主流媒体，对这样事关美国宪政的大事没作报道，美国危矣。
 
-也就是说中共要用病毒打垮的七国里就有印度，那么我们再通过《刘乐观天下》视频看一下在中共加大对印度的超限生物武器攻击之下现在已经实现了哪些战果（注：以下［］内引用内容皆来自《刘乐观天下》视频——
+若是没有文贵先生、爆料革命，美国真地要沦陷了。
 
-1、瘫痪印度的正常的对外交往尤其是与友邦国家元首和政要的交往：［日本首相菅义伟已经正式决定，继英国首相鲍里斯约翰逊之后正式取消对印度的访问………特别是在目前印度每天新确诊人数接近30万的情况下，保命是第一位的，首相也不例外。］
+参考链接：
 
-2、大量杀害、杀伤印度国民：［最近印度的疫情出现了大规模的反复，再次登上了国际媒体的头版头条，到现在为止每天的确诊人数接近30万人，总的确诊人数已经突破1500万，而病亡的人数也接近了20万，…………印度虽然号称是一个国家，但是它的中央政府统治力、执行力都是非常弱的，各个邦之间形同一盘散沙，印度到底有多少人感染、到底有多少人病亡、到底有多少人打过疫苗，这个数字永远是笔糊涂账，甚至连它的中央政府都统计不清的。所以印度现在公布的这个数字只是联邦政府知晓的数字，至于还有大家不知道的数字到底有多少，这个谁都不清楚。但是根据预估印度的疫情严重程度肯定要比公布的数字要高很多。所以未来印度有可能是新冠疫情下一个的主高峰，而它的最终数字甚至会有可能超过美国。］
+【1】https://www.gnews.org/zh-hans/1134885/
 
-3、针对莫迪的政治前途痛下杀手：
+【2】[https://twitter.com/JennaEllisEsq/status/1386764726357594119/photo/1](https://twitter.com/JennaEllisEsq/status/1386764726357594119/photo/1)
 
-3.1用失控的疫情打击莫迪的选情：［这里它或许还会有另外一个问题，就是这个疫情如果再继续持续下去的话，对印度总理莫迪的政治前途到底有多大的影响，莫迪问题自从2014年上台到现在连续执政的时间已经超过了七年，前期在印度是颇为受到大家的尊敬的，而且在民众当中的威望也是比较高的，几次投票都是占到压倒性的多数，但是新冠疫情对莫迪的这个选情包括未来的政治前途冲击是相当明显的。］
+【3】[https://www.thegatewaypundit.com/2021/04/maricopa-madness-new-judge-case-appointed-former-democrat-governor-janet-napolitano-opinions-now-vary-hearing-might-take-place-case/](https://www.thegatewaypundit.com/2021/04/maricopa-madness-new-judge-case-appointed-former-democrat-governor-janet-napolitano-opinions-now-vary-hearing-might-take-place-case/)
 
-3.2用疫情对经济的瘫痪打击莫迪的选情：［如果印度的疫情再持续下去，不管他到底有多少人病亡、到底有多少人确诊，这些数字和印度的政治前途相比其实并不重要，印度官方、印度政客更为看重的是疫情对经济的影响，如果疫情对印度经济产生了毁灭性的影响，特别是像去年二季度那样产生了大规模的负增长，那我想这种负增长民众经济不满的情绪必然会反映在选票上面，对莫迪未来的选情是一个非常大的打击。］
-
-通过疫情打击莫迪可能产生的后果是：［所以结合刚才说的疫情对莫迪选情的影响，所以未来我认为莫迪在这三板斧都有可能完全失效的情况下，再想继续执政下去遇到的困难是非常多的，想要赢得更多的选票也必然会付出更多的代价，在下一次的选举当中不排除会杀出黑马，最终把莫迪斩落马下，成为印度新任的问题，而印度下一任政府到底是印度人民党执政还是印度国大党卷土重来，这个事情到现在为止还没有一个定论，我们且看下一步的局势会向何方发展，最终我们还是现在继续观望为好。］
-
-综述：新华社不经意之间再一次把中共妄图利用病毒绑架全世界并打击反对它的政治领导人的意图昭然天下，这一次浮出水面的目标是印度，是印度的总理莫迪，那么没有浮出水面的另外13579的七个攻击目标国家呢？在全世界都知道中共有解药的情况下，对于这个世界来说，对于那些有可能被列为中共超限生物武器打击目标的政治家或者政客们来说，生存还是死亡，这的确是一个问题。
-
-（文章内容仅代表作者个人观点）
+【4】https://www.thegatewaypundit.com/2021/04/exclusive-az-gop-chair-dr-kelli-ward-tells-gateway-pundit-americas-audit-america-video/
 
 0

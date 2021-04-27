@@ -1,25 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯翻译：与中俄紧张局势逐步加剧中，美军战舰与英国舰队在印太区域会师
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1142404/)
+## 【战友心声】 中共式的民主就是毒品
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1142542/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
+作者：纽约香草山福音部 凤鸡
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/042701.png)皇家海军伊丽莎白女王号航母
 
-随着与中共国和俄罗斯紧张关系的加剧，下月，一艘美国驱逐舰将加入一只英国航母舰队，并一起在印太区域航行，该航母舰队由一艘耗资30亿英镑全新打造的英国[皇家海军伊丽莎白女王号航母](https://en.wikipedia.org/wiki/HMS_Queen_Elizabeth_%28R08%29)带领。
 
-周一，英国国防部宣布，5月美国[苏利文兄弟号驱逐舰](https://en.wikipedia.org/wiki/USS_The_Sullivans_%28DDG-68%29)将加入伊丽莎白女王号航母领衔的打击群，届时该打击群将访问印度，日本，韩国和新加坡。这次行动预计持续超过6个月，并访问超过40个国家。在此期间，打击群部队将参与超过70次军事行动，空中格斗演练，和其它行动。该行动是英国“印太战略倾斜”的关键部分，其战略旨在加强与亚洲盟国的安全关系，并加强对任何入侵的区域防御。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-这项行动的大背景是中共国与美国和西方盟友逐渐紧张的关系。本月6号，[中共军方宣布将在台湾岛附近进行军演](https://www.reuters.com/business/aerospace-defense/china-says-carrier-group-exercising-near-taiwan-drills-will-become-regular-2021-04-06/)；7号，[中共15架军机入侵台湾放空识别区](https://www.newsweek.com/china-warplanes-are-flying-near-taiwan-record-numbers-1585277)，7号当日，美国出动[约翰·S·麦凯恩号驱逐舰(DDG-56)](https://en.wikipedia.org/wiki/USS_John_S._McCain_%28DDG-56%29)穿越台湾海峡示警，然后招致中共国外交评击[点击查看](https://www.republicworld.com/world-news/us-news/us-navy-vessel-casually-transits-through-taiwan-strait-amid-china-tensions-pokes-beijing.html)。早在2020年10月9日，[美军新闻发布会](https://www.navy.mil/Press-Office/News-Stories/Article/2379054/uss-the-sullivans-joins-british-carrier-task-group-for-exercise-joint-warrior-2/)就表示，英国与美国之间的“特殊关系”是部署“苏利文”号的唯一原因，并且两国正在准备全球部署，发布会还向“对手”展示了“苏利文”号给航母战斗群带来的毁灭性打击能力。
 
-美英两国海军的联手还只是刚刚开始，随着新冠病毒真相的步步揭露，作者相信最后194个国家都会联合起来消灭中国共产党。
 
-[援引原文](https://www.newsweek.com/us-warship-join-uk-fleet-indo-pacific-china-1586416?amp=1&amp;utm_term=Autofeed&amp;utm_medium=Social&amp;utm_source=Twitter&amp;__twitter_impression=true)
+中共外长王毅最近再次搬出歪理，为中共的极权专制抹粉，称中共在大陆实行的是“中（共）国特色的民主”，跟美国不一样——“民主不是可口可乐，全世界一个味”。这些狡辩的言论再次遭到海内外网友的怒轰。
 
-本文翻译：红胡子
-审核校对：鲁邦五世
-上传排版：糖果儿
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-475.png)
+
+4月23日晚，王毅与美国对外关系委员会进行视频会议，他说道，“民主不是可口可乐，美国生产原浆，全世界一个味道。”然后他辩称，中共实行的是所谓“社会主义民主”且“得到了人民拥护”，如果西方说这种“中共式民主”是“威权”和“专制”，那就是“不民主的表现”。
+
+“王毅的意思，中共式的‘民主’不是可乐，是可以用政治迫害（的名义）杀死所有人，那就是可卡因了。”网民@poetjingwa说。
+
+说到底，民主的本质都是相同的——人民做主。而中共所称的民主就是“党专制”：国家的所有事务都以党的意志为依归，党凌驾于国家、民族和法律之上。这种极权跟西方民主的区别是显而易见的。而今，王毅硬要把中共极权专制包装为另一种所谓“民主”，这遭到网民地讥讽。
+
+明明是独裁，却还要说自己是独特的民主，这多么的可笑。墙内歌曲“团结就是力量”中唱到，“让一切不民主的制度死亡”，这句话已经洗脑民众多年，可大家会否想过，不民主的制度死亡了吗？事实是，它不但没有死亡，还越来越壮大了，更耍流氓称自己是民主，甚至要一直洗脑民众——这不是毒品是什么？所以说，只有灭共才能让独裁这种不民主的制度真正死亡。
+
+（本文仅代表作者观点）
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
 
 0
