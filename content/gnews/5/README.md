@@ -1,43 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】印度疫情与中共“援助”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1143855/)
+## 日本外交蓝皮书直指北京
+` 休斯顿星光农场 文顺` [轉載自GNews](https://gnews.org/zh-hans/1143739/)
 
-配音：香草山录音组 米小乐
+**4月27日，日本政府周一发布2021年版《外交蓝皮书》，对中共“军事扩张”以及在东海、南海日益增长的活动表达了深切担忧。 蓝皮书表示，中共此举“已成为包括日本的地区和国际社会在安全保障上的深深的忧虑” 。**
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+据法广报道，蓝皮书对中共允许海警局使用武器的《海警法》表示“深刻的忧虑”，认为《海警法》在国际法上存在问题。整个《外交蓝皮书》大部分涉及中共国问题，详述了美国和中共国之间的对立，认为“国际社会的力量平衡正在发生重大变化”。此外《外交蓝皮书》还提及香港和新疆并表达了关切。
 
+蓝皮书介绍了本月日本首相菅义伟和美国总统拜登的首脑会谈，强调会谈“就继续加强日美同盟达成了共识”。日本首相菅义伟16日下午（日本时间17日凌晨）与美国总统拜登在白宫举行了首次面对面首脑会谈。两国首脑在会谈后发表联合声明，明确指出：“日美两国在强调台湾海峡和平稳定的重要性的同时，敦促和平解决两岸问题。”但2021年版《外交蓝皮书》并未提到写入日美联合声明的“台湾海峡和平与稳定的重要性”。报道分析，此举可能是顾及到中方。
 
+据报道，2020年版《外交蓝皮书》所使用的言辞是“已成为地区和国际社会值得忧虑的事项”，而今年进一步加强了语气牵制中国。蓝皮书指出：中国的军费过去30年间增加了44倍，但是预算的详细分类与增加的意图并不明确。
 
-
-
-
-
-4月26日大纪元报道，自3月中旬以来，印度CCP病毒感染人数呈爆发式增长，最近更是连续五天创下单日最高病例确诊数字，死亡人数也不断创下新高，仅昨天一天新增确诊病例就超过35万，单日死亡人数达到2812人。印度当下各种医疗资源已经用尽，但仍有数不清的患者停留在医院外等待救援。印度的疫情牵动着世界，许多国家向印度伸出了援助之手。其中，美国正积极调拨各项资源，以帮助印度制造疫苗，同时还向印度运送治疗药物、快速诊断测试盒和呼吸机等。欧盟将提供医用氧气和抗病毒药物瑞德西韦，爱尔兰、德国和法国也表明将提供帮助。
+对此，中共一如既往的“坚决反对”。 外交部发言人汪文斌周二表示，中方对此坚决反对并提出严正交涉，敦促日本纠正错误做法，以实际行动构建稳定的中日关系。 他说：“蓝皮书大肆宣传中国威胁，中国坚决反对并已严正交涉。 ”
 
 
 
-**文字版原文：[【热点播报】印度疫情与中共“援助”](https://gnews.org/zh-hans/1142147/)**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/PHOTO-2021-04-27-07-16-26-2.jpg)
 
-作者：纽约香草山美食部 蓝天大海
+参考链接：
 
+[日本外交蓝皮书深深忧虑中国扩军和海洋活动 (rfi.fr)](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210427-%E6%97%A5%E6%9C%AC%E5%A4%96%E4%BA%A4%E8%93%9D%E7%9A%AE%E4%B9%A6%E6%B7%B1%E6%B7%B1%E5%BF%A7%E8%99%91%E4%B8%AD%E5%9B%BD%E6%89%A9%E5%86%9B%E5%92%8C%E6%B5%B7%E6%B4%8B%E6%B4%BB%E5%8A%A8)
 
+[中国外交部称日本外交蓝皮书渲染中国威胁 中方坚决反对并提出严正交涉 | 路透 (reuters.com)](https://cn.reuters.com/article/china-mofa-japan-dip-0427-idCNKBS2CE0SD)
 
-音频处理/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++2

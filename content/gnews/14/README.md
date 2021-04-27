@@ -1,41 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 六四经历回想 我是如何被审查的
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1143649/)
+## 【音频图片新闻】我们的民主在哪里？民国小学课本 vs 墙国的洗脑课本
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1143761/)
 
-撰稿：菜园子112~尕虎
-![]()![](https://gnews.org/wp-content/uploads/2021/04/2021-427_t8.png)图片来源于网络
-89年我上大学二年级，是六四运动的参与者和亲身经历者。这篇回顾文章主要说一下六四事件发生之后我的经历。
+**点评：Candy**
 
-六四以后，学校告知全体学生放假回家，具体多久回校复课等待学校的通知。
+配图：summer, bingo
 
-89年7月30日我母亲接到系里打来的电话，通知31日晚上7点之前必须到学校报到，如果迟到直接开除。31日下午4点我去学校报到，系办公室告知从现在起不许出校门，晚上8点开全校大会。
 
-我进校2年了，学校从来就没有在体育场开过大会，这次也算是见识了一下。进了体育场让人立刻感觉到一种压抑的气氛，同学们一个个表情严肃，没有人互相讲话，气氛非常凝重。学校领导告知全体学生，8月1日起全面对参与六四运动学生进行审查，为期一个月。在审查期间全体学生不得外出，谁若违反规定直接开除，并且规定了严格的作息时间。
 
-8月1日早上8点30分87届全体师生在学校大礼堂开会，在会上宣读党中央的指示，把六四事件定性为反革命暴乱，并播放了天安门事件纪录片。从这一天起我就感觉到了地狱一般，第一周每天学习发的资料，重复重复的学习，同学们之间也不敢多说话，也不知道后面将会发生什么事，大家就像犯人一样规规矩矩。
+### 中华民国时的小学课本有什么内容？
 
-第二周要求每人先写自我审查报告，报告自己在六四事件中都参与了什么，是不是“高自联”的成员，或者“高自联”下属部门的成员。我在六四运动中是“高自联”成立的学校护卫队的一员，不过我在自我审查报告中没有写，我只写了我参与了游行，证明人是我们宿舍的另外2位同学，那2位同学也是护卫队的成员，我们3个商量好坚决不说出去。
+![](https://lh3.googleusercontent.com/loELvrKkoDaIjOa9I6jtbcbNwEPrz5lMb7rLnfQAYEUeAmilLfi7KQZkYQhOzSYtgPQIl_tU2M78ssqz3Ia7gjgw5tthsDTti6TIacCXHIbWcdDJ6iFGjQnpT_kC7wsWrhIcDnBD)
 
-第三周日子就不好过了，学校对学生开始进行严格的审查，对一些重点对象查得很严，我就是被怀疑的对象之一。学校工作组成员在第三周和第四周连续对我进行审查，让我交代自己的问题，当时我的脑子还是比较清醒，没有被他们吓唬住，只交代参与了游行，其他一律没有参与。我的下铺同学他们家是工人，他的中学同学来找我们玩，就提醒我们，共产党的政策是坦白从严，抗拒从宽，能少交代就少交代，所以我们3个参加护卫队同学坚决不承认参加了“高自联”的任何部门。最后在为期一个月的封闭式审查中我和另外2位同学都安全过关，没有被学校开除。
+*中华民国时的小学课本以“君主政治和民主政治” 的对比, 作为授课内容，*
 
-8月份的这次审查，有一部分同学被警察抓走并关在了我们当地的看守所，他们主要是“高自联”的成员，这些同学全部被学校开除。有一部分在六四运动中去北京的和在我们当地广场参与绝食的同学都给了不同的处分。我要是被认定是学校护卫队的成员，肯定会被开除的。
+*令小学生对照学习，分析判断就知道哪个制度更好，更对人民有利，对国家向善的发展更有帮助。*
 
-当时参与六四运动，就我个人来说还是懵懵懂懂，其实并不知道自己有什么诉求，对民主也没有什么认知，只是本能的感觉参与这是一件正确的事情。后来慢慢的从各种渠道获得的信息，和自己认知水平的不断提高，明白自己原来参与了一个伟大的运动，会被写入华夏的历史。从六四运动过后我也慢慢认识到了共产党的邪恶，对共产党欺骗广大民众谎言连篇翻手为云覆手为雨，越来越看的清楚了。
 
-其实当你在中共国逐渐看清了共产党丑恶之后，是很痛苦的。你没有一个可以交流的对象，相互探讨共产党为什么对本国的老百姓如此狠毒，如此蛮横地压榨民脂民膏。每当看到底层老百姓被警察城管随意欺负，想帮忙又使不上劲的时候，便更加难受和痛苦，心里不禁就开始担心，难道这个恶魔政党真就要统治江山万万年了吗？
 
-但是，从接触到爆料革命以后，发现原来真有敢于为正义公理向共产党挑战的组织，以及清醒反抗的中华同胞！我就像在一个漆黑的山洞里发现了一丝光亮，在生命快完结的时候看到了希望，没有顾虑，径直去追寻。为了不让自己的后代在坟头前朝自己吐唾沫，骂自己的祖辈是一个懦弱无骨的人，也得参与这场消灭共产党的伟大革命。
 
-2021年4月24日星期六
 
-（本文纯属个人观点）
+中华民国时的小学课本以“君主政治和民主政治” 的对比为授课内容，明眼人一看就知道哪个制度更好，更对人民有利，对国家向善的发展更有帮助，更容易被人民所接纳。
 
-*审稿：**Gradient Boost**编辑：**8 Mile*
+因为君主政治是帝王把国家、权利及人民统统看成是自己私有的，国家管理方面是大政府，下级必须服从上级，老百姓只有服从的份儿，所有人都要效忠于帝王。而民主政治则完全相反，人民是国家的主人，人民选举出政府官员，官员必须服务于人民，不满意的官员还可以被罢免。这样教育出来的人们才能明白是非黑白，遵守普世价值。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2-1.jpg)
-0
+
+### 墙国现在的小学课本有是什么内容？
+
+100年过去了，墙国现在的小学课本有是什么内容？我们找到了1970年代的中共国江苏胜苏州市小学算术课本。惨不忍睹的是，连算术题里都充满了共产党的阶级斗争仇恨与火药味！
+
+小学二年级的学生要学的算术题是：
+
+“贫下中农狠批刘少奇，第一天写了大字报42张，第二天写了51张，两天共写了多少张？”
+
+
+
+![](https://lh3.googleusercontent.com/s1WHBE5CoKWsuwOi6qQJI0nG32mNSUQhlbUpoJLWQC-kSoZNajkrIRXDBrTuH_17jI5y5n0I9OT2-3YjtN4cg4GQtU-deFD6vEv7nT5cp7sgTiuDlG6kf063n8EW51ZZyawKRoPI)
+
+
+
+![](https://lh6.googleusercontent.com/4C6GAFc3uutwL4zVCjgM9qRRlcWLoIfNABd44tTt1FaS0DBHeEDXR26H--KLJguASiYSb23o4UGZDvuZCj6vABegnyIvA77lVJ3wCvrHtIzglGTx0pEkuYKm_fP64JFVZi_7S2zM)
+
+
+
+语文课本则是，首先要了解教材编写的宗旨：在习近平总书记领导下，以党中央为核心，坚持……再看课本的内容：我随意从互联网上”语文迷“ 的教材里查看了一下，看到的是“雷锋叔叔，你在哪里？”，”这片土地是神圣的“，“为人民服务”，“人是一根能思想的稻草”。。。。一看题目就知道内容，无非是要人民——在他们眼里如稻草一般的贱民，无限地付出，直至死亡。而那些从小学到大的人民，大多数都是俯首帖耳地照收不误了，以至造成现在文革2.0版的疯狂再现。可悲又可怜！
+
+![](https://lh6.googleusercontent.com/XAEg0CbT0ZR1aSi5qoDTsAtDS5yBrkWwdqfKPNyxtxJo9aqQgsAtgc7UpGFEOkPAxNrq6qbSIw5OjzGld-CWqpuluo1onn8cNUADVY8xEXHMm4PtR3hV-O8wVW9W4B--v2egwUD6)
+
+![](https://lh6.googleusercontent.com/kwOdy7RaDbxf2PwGeIeD-KcnW2EHtxPImt2nf3sWUqbNMHcKUBTAxBbbo90Kr0j-RF8pwOccriEhBAHK6U3f4XdHjlxEV9ayUw4OjJKUFKPf7_ifC-LPOtp3Y7044OozBgd7rxmM)
+
+CCP 不倒，全世界都将失去民主，出现文革2.0，必须铲除CCP！
+
+
+
+#### 【**免责声明**】 文章中中表达的所有观点均属于作者，并不代表任何组织或其他个人。 
+
+【**责任编辑**】：bingo 旧金山文宣组
+
+### **欢迎战友加入旧金山金喜农场**
+![](https://lh5.googleusercontent.com/B_qgfzdPe7PXEFJ00CMor-4S7gUJ-rc3GQynsbf5lDQTFq_r_hT5QSG7kwT1m9npdEdLRZt4dmHwRck2gxDfZP_2j0Tdrpkh4kkHu-VEGIxrxwCUUAtzhszjO6fxxQ)
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)[** **](https://discord.gg/QQzQ79grEA)
+
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)[** **](https://twitter.com/sf_himalaya)
+
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
+
+[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
+
+
+
+
+
++1

@@ -1,76 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共内部文件显示 国产疫苗副作用多
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1142990/)
+## 【热点播报】华人数学教授因经费欺诈遭联邦起诉
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1143181/)
 
-新闻来源：《布赖特巴特（BREITBART）》| 作者：弗朗西斯·马特尔（FRANCES MARTEL） | 发布时间：2021年4月23日
+作者：纽约香草山健身部 文真
 
-翻译/简评：乡间小路 | 校对：SilverSpurs7 | 审核：万人往 | Page：Daoiii
-
-[!\[\]()!\[\](https://spark.adobe.com/page/LM1ejLKm13pOi/images/919bda58-aea3-4c77-8c9b-d8fd5b5d1f9b.png?asset_id=fbb3190a-579c-49b8-91ad-dcea1e7afcc4&amp;img_etag=%229edbd519f4046c68932f942050e7adcd%22&amp;size=1024)](https://spark.adobe.com/page/LM1ejLKm13pOi/images/919bda58-aea3-4c77-8c9b-d8fd5b5d1f9b.png?asset_id=fbb3190a-579c-49b8-91ad-dcea1e7afcc4&amp;img_etag=%229edbd519f4046c68932f942050e7adcd%22&amp;size=1024)
-
-**简评：**
-
-《大纪元》报道称，接种中共国生产的疫苗后出现的不良反应，包括腹泻、皮疹、呼吸短促和感染新冠病毒等。在依赖中共疫苗的智利，几乎在其推动全国接种疫苗的同时，国内新冠病毒感染率开始飙升。中共拒绝透露习近平是否将接种或者已经接种了国产疫苗。中共预计7月引进一款来自国外的辉瑞疫苗。
-
-媒体和社区的宣传，加上个人盲目的跟从，目前在中共国内已经有超过1亿人接种了中共新冠病毒疫苗。在决定接种疫苗前，是否该问自己几个基本的问题：病毒的来源弄清楚了吗？疫苗的有效性、安全性有可靠的数据支持吗？我为什么要接种中共疫苗，真的是出于个人需要还是被宣传带动？
-
-临床试验数据不透明、有效性低、副作用多，这样的疫苗，请中共的领导先打。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/LM1ejLKm13pOi/images/95dd62d0-acef-40a9-a91a-2a0a49b15c00.jpg?asset_id=cd06476b-241d-4d2c-920c-fcd9583260c6&amp;img_etag=%2293ce5c733fbe72b8bf8f8ec7498f6bda%22&amp;size=1024)](https://spark.adobe.com/page/LM1ejLKm13pOi/images/95dd62d0-acef-40a9-a91a-2a0a49b15c00.jpg?asset_id=cd06476b-241d-4d2c-920c-fcd9583260c6&amp;img_etag=%2293ce5c733fbe72b8bf8f8ec7498f6bda%22&amp;size=1024)
-
-**原文翻译：**
-
-## **报道：中共国制造的疫苗不仅不能防护新冠病毒，反而引起发烧、腹泻**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/LM1ejLKm13pOi/images/cecd9d24-f846-4f7c-aaeb-d73a9211c275.png?asset_id=c2abcd19-2f60-45c6-81e5-b6f2dd8d9e90&amp;img_etag=%2233ba666a3bc7d629e0a1ff056aa8e4b1%22&amp;size=2560)](https://spark.adobe.com/page/LM1ejLKm13pOi/images/cecd9d24-f846-4f7c-aaeb-d73a9211c275.png?asset_id=c2abcd19-2f60-45c6-81e5-b6f2dd8d9e90&amp;img_etag=%2233ba666a3bc7d629e0a1ff056aa8e4b1%22&amp;size=1024)
-
-反共产主义报纸《大纪元》在周四的一篇文章中声称获得了来自中共的文件，其中详细讲述了大量的关于人们在接种国产的新冠病毒疫苗后的负面结果，包括腹泻、皮疹、呼吸短促和感染新冠病毒。
-
-北京当局目前正在努力劝说国内民众参与在全国范围内开展的疫苗接种运动，中共国内的疫苗接种率明显低于许多西方国家。加之公众对于提供给他们的疫苗——全部来自国产——缺乏接种紧迫感，这反应出一个事实，即中共国疾病控制中心主任高福在本月所承认的，国产疫苗“没有很高的防护效率”。中共官员高福称有关他陈述的报道是一种“完全的误解”。
-
-截至发稿时，中共国已经批准了5款由中共国研发的预防中共病毒的备选疫苗以供紧急情况下使用。第一款获批的疫苗来自科兴生物科技公司。有2款获批的备选疫苗由国药控股生产。康希诺和安徽智飞龙科马生物制药有限公司研发了另外2款。
-
-最突出的两款疫苗选项来自科兴和国药控股这两家公司。中共当局做了大量投入以促进其疫苗在国际上的销售，尤其是科兴生产的“Coronavac”灭活疫苗，尽管中共国内这款疫苗在促进免疫上少有效果。中共独裁者习近平在国际场合反复敦促其它国家购买中共疫苗，但自己没有参与任何国产疫苗接种计划。中共政权拒绝说明习自己是否将接受或者已经接种了疫苗。
-
-中共国官媒预计，一款由美国辉瑞和欧洲拜恩泰科（BioNTech）共同研发的疫苗在今年7月或可供应给中国居民，这是反映国产疫苗需求量少的一个信号。
-
-《大纪元》声称获得了3份独立的中共国政府文件，它们全部来自河北省。第一份注明的日期是4月8号，其中详尽描述了国产新冠病毒疫苗的“不良反应”，包括“皮疹、发烧、恶心、腹泻、胸闷和呼吸短促”。另一份文件详细描述了一个个案——尽管完成了疫苗接种，但经反复检测，接种者的新冠病毒感染仍然呈阳性。这引发了关于接种过国产疫苗的人群可能会把病毒传播给没有接种过的人群的猜疑。
-
-第三份宣称获得的文件被注明“特急，不得向公众披露”，它要求河北地方政府官员加强对接种过国产疫苗的人群的观察，“调查并恰当处理任何因疫苗接种引发的死亡、严重残疾或者其它不良反应的案例，它们可能对社会造成重大影响。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/LM1ejLKm13pOi/images/a4ed291f-7b12-41ea-978f-05fe5277f89c.jpg?asset_id=d6bea8d6-bef6-4521-a0e4-884853994852&amp;img_etag=%2262c0203476ca35561287e1ee9af8c57c%22&amp;size=2560)](https://spark.adobe.com/page/LM1ejLKm13pOi/images/a4ed291f-7b12-41ea-978f-05fe5277f89c.jpg?asset_id=d6bea8d6-bef6-4521-a0e4-884853994852&amp;img_etag=%2262c0203476ca35561287e1ee9af8c57c%22&amp;size=1024)图为4月7日北京一居民区被标示接种疫苗率低于40%
-
-《大纪元》说文件来自“可靠的消息源”，它并没有指出有哪份文件强调哪款国产疫苗需要人们特别关注。
-
-和在中共国使用的疫苗不同，目前在美国使用的两款疫苗采用新型mRNA技术来诱导免疫反应以产生抗体进而阻止新冠病毒感染。辉瑞和莫德纳的疫苗在阻止感染方面的测试有效率都在95%左右。与之形成对照的是，科兴疫苗在阻止感染的临床测试上其有效率约为50.38%，这意味着近一半接种过疫苗的人仍会被感染。据报道，国药控股的一款疫苗其阻止感染的测试有效率为79.24%。截至发稿时，中共国的公司还没有提供其它疫苗的详细临床试验数据。
-
-中共国主要集中在向海外销售科兴疫苗。在去年给世界卫生大会的致辞中，习近平称国产疫苗是“全球公共产品”，誓言中共国将集中向海外分配其疫苗。但是，考虑到在那些依赖国产疫苗的地区的高新冠病毒感染率，国产疫苗有效性低已经引发了国际担忧。比如在智利，在全国接种疫苗的推动下，已经有超过40%的人口接种了疫苗，但是这些人中超过90%接种的是科兴疫苗。几乎在推动疫苗接种的同时，智利的新冠病毒感染率开始飙升，这引发了一个问题：一个依赖国产疫苗的群体能觉得自己有多安全呢？
-
-智利媒体记录了科兴疫苗的普遍副作用，如发烧、肌肉疼痛、胳膊肿胀、头疼和恶心。因为中共国的其它疫苗还没有在国际上广泛使用，和《大纪元》报道中声称的症状相比，截至发稿时关于中共国其它疫苗潜在副作用的信息还很少。
-
-中共国疾病控制中心主任高福承认，中共国疫苗在4月中旬表现不佳。
-
-高福透露：“现在官方正在考虑，在为了获得免疫的过程中，是否应该使用来自不同技术路线的疫苗。”
-
-就在高福发表评论后不久，中共国官方媒体开始吹嘘所谓的能预防新冠病毒的国产mRNA疫苗已经问世。但是有报道称中共正准备把辉瑞疫苗引进到中共国市场，于是关于国产mRNA疫苗的推测也就悄无声息了。中共官媒通过谨慎地使用其非美国开发商拜恩泰科（BioNTech）的名字来提及这款mRNA疫苗，同时提到一家中共国公司复星制药在资助疫苗上扮演了一个小角色。复星是科兴的竞争对手国药控股的母公司。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/LM1ejLKm13pOi/images/3a62bdc8-3cbd-4e8c-97de-4fdae2c35a1b.jpg?asset_id=6b268eaa-495e-4ea2-b365-6d4adca8b6db&amp;img_etag=%22a4128f928d17becb9ff1047dd745cbe5%22&amp;size=2560)](https://spark.adobe.com/page/LM1ejLKm13pOi/images/3a62bdc8-3cbd-4e8c-97de-4fdae2c35a1b.jpg?asset_id=6b268eaa-495e-4ea2-b365-6d4adca8b6db&amp;img_etag=%22a4128f928d17becb9ff1047dd745cbe5%22&amp;size=1024)
-
-“复星制药已经向中国的国家监管机构提交了由它和德国拜恩泰科共同开发的新冠肺炎mRNA疫苗的临床试验数据和其它相关材料以供轮流审查。”中共国官方媒体《环球时报》本周声称。
-
-周四，《环球时报》引用“消息源”预测说，辉瑞疫苗7月前可供中国居民使用，辉瑞疫苗将是除香港外第一款在中共国被用来预防中共病毒的国外疫苗。香港批准（随后停止）了使用欧洲公司阿斯利康的一款疫苗。
-
-🔗[原文链接](https://www.breitbart.com/asia/2021/04/23/report-chinese-made-vaccines-not-blocking-coronavirus-while-causing-fever-diarrhea/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/LM1ejLKm13pOi/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/LM1ejLKm13pOi/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+经由美国联邦调查局、国税局和国土安全部展开联合调查，联邦大陪审团近日因两项电汇欺诈和一项虚假供诉起诉南伊利诺伊大学Carbondale分校（SIUC）华人数学教授 Mingqing Xiao，指控他从国家科学基金诈取联邦经费$151,099美元，因其隐瞒在同时期申请并获得中国政府及大学的支持。该起诉讼作为美国司法部 “中国项目” 的一部分，旨在全面深入对抗来自中共国的安全威胁和捍卫美国知识产权。
 
-+2
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片21-2.png)图片来源：justice.gov
+
+Mingqing Xiao自2000年在SIUC工作，主要研究领域为偏微分方程、控制理论、优化理论、动力系统和计算科学。2019年，他从美国国家科学基金申请研究基金的同时期，以中国广东深圳大学的职位申请到中国自然科学基金。而他有意向SIUC和美国国家科学基金隐瞒了这项事实。依据美国法律，在申请联邦研究经费的过程中故意隐瞒境外合作以及资金来源已构成违法行为。一旦判刑，将面临总共高达25年的刑期和 $250,000 美元的罚款。
+
+中共七十年的一党专政强调教育科研为党服务。洗脑教育使绝大多数中国人党国不分，党政不分。很多华人即使身在海外，依然被中共强大的大外宣洗脑和控制。中共通常以 “报效祖国” 为幌子，以学术交流为手段，用科研经费和大学职位笼络收买了一大批海外华人科技人员为其所用，从而达到偷窃发达国家先进知识产权的目的。随着爆料革命依法灭共一系列大行动的展开和节节胜利，美国法律界已经从国家安全层面明确意识到了中共对美国法律体系的渗透和瓦解企图。这项联邦起诉案件不仅加速了美国学术界与中共国脱钩，而且拉开了美国学术界依法灭共的序幕。
+
+郭文贵先生曾在2020年8月9日的直播中呼吁美国的华人科学家和工程师切忌天真，要对中共的残忍保持清醒认识。首先做到绝对不要触碰美国法律，而且在任何情况下，不要跟中共国的科技公司和民族爱国人士有任何接触。否则，一旦发生利益往来即进入中共 “超限战” 的圈套，开启死亡之路。在美华人应及早醒悟，在急转直下的中美关系中，首鼠两端的心态和利益两边通吃的行为最终只能落得自食恶果的结局。
+
+引用：
+
+[https://www.justice.gov/opa/pr/mathematics-professor-and-university-researcher-indicted-grant-fraud](https://www.justice.gov/opa/pr/mathematics-professor-and-university-researcher-indicted-grant-fraud)
+
+[https://math.siu.edu/faculty-staff/faculty/xiao.php](https://math.siu.edu/faculty-staff/faculty/xiao.php)
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpeg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
