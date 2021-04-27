@@ -1,27 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德时评简讯（视频版）: 英媒揭露中共军方支持武毒所从事病毒研究(2021.4.25晚间路德社简讯之路博艾冠谈）
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1143904/)
+## 【每日快讯】04/26/2021：华裔女性赵婷获得奥斯卡最佳导演奖
+` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1143972/)
 
-《路德社》出品
-
-以下视频是详细内容:
-
-内容摘要：
-
-一、英媒揭露中共军方支持武毒所从事病毒研究
-
-二、Sellin博士挖出毒王Malik和福奇之间的联系
-
-三、保罗参议员透露重磅信号
+**制作：Cantonese工作室**
 
 
 
-制作：路德社简讯视频组
+**资料整理：【闪电】【Annie喜马拉雅】海报制作：【文雀】【小豆芽】视频制作:【ken】上传：【星星】【向阳6768】**
 
-审核校对：玫瑰新闻组
+摘要：
 
-上传排版：玫瑰新闻组
+1
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-478.png)
+2
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image2-1.png)
+3
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image3-1.png)
+4
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image4.png)
+5
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image5-2.png)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/0.jpg)
 0
