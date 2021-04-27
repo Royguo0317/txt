@@ -1,61 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4月26日美国政要和政评家推特精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1142019/)
+## 欧盟官员：接种疫苗的美国人可以在今年夏天访问欧洲
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1142062/)
 
-参议员瑞克·斯科特： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 对自由与自由的战争在变本加厉地继续。这是卑鄙的。我谴责 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 压迫性的审查，并赞扬赵婷（ChloéZhao）的成功。 【附纽约时报的报道：中共国对赵婷获奥斯卡奖噤声，但影迷们想方设法欢喜庆祝】
-
-
-
-> Communist China’s war against freedom and liberty rages on. It is despicable. I condemn this oppressive censorship by Communist China and applaud Chloé Zhao for her success. [https://t.co/SfPvJLYjGm](https://t.co/SfPvJLYjGm)
-> — Rick Scott (@SenRickScott) [April 26, 2021](https://twitter.com/SenRickScott/status/1386699886242979847?ref_src=twsrc%5Etfw)
+- 翻译：Ranting
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-众议员迈克·华尔兹： 苹果公司和其他“醒来”的公司继续游说反对禁止美国公司使用 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 强迫劳工的法案。此举使他们自己蒙羞。你不能在美国大声疾呼社会正义的同时却又拥抱中共国种族灭绝的行为。 【每日电讯报报道：苹果等零售商继续就中共国奴工提案游说国会】
+**西班牙2021年4月26日电/西喜社——**
 
+在美国和欧洲之间因疫情而暂停非必要的旅行一年多以后，已经完全接种了新冠疫苗的美国人将被允许在今年夏天访问欧盟。
 
+欧盟委员会主席乌苏拉·冯德莱恩周日在布鲁塞尔告诉《纽约时报》，欧盟成员国将”无条件地接受”接种欧洲药品管理局批准的疫苗的人。
 
-> Apple and other “woke” corps continue to disgrace themselves in their efforts to lobby against bills that would prohibit American firms from using China forced labor. You can't call out social justice in the U.S. & embrace genocidal practices in China. [https://t.co/Elj62eYZO7](https://t.co/Elj62eYZO7)
-> — Rep. Mike Waltz (@michaelgwaltz) [April 26, 2021](https://twitter.com/michaelgwaltz/status/1386718075307937792?ref_src=twsrc%5Etfw)
+“据我所知，美国人使用欧洲药品管理局批准的疫苗，”冯德莱恩告诉《泰晤士报》。”这将使自由流动和前往欧盟的旅行成为可能。”
 
+“因为有一点是明确的：所有27个成员国都将无条件地接受所有使用经欧洲药品管理局批准的疫苗接种的人，”她补充说。
 
+《泰晤士报》指出，作为欧盟药品监管机构的欧洲药品管理局已经批准了莫德纳、辉瑞生物技术公司和强生公司的疫苗，这些疫苗都是在美国管理下的。
 
-FBI： 中国政府通过最近的网络攻击，窃取了许多美国人的健康信息和个人身份信息。这些数据可以帮助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 针对个人进行潜在的监视、操纵或勒索。国家网络安全中心[@NCSCgov](https://twitter.com/NCSCgov) 【所附链接为，国家情报总监官网文章：中共国从美国收集基因组和其他医疗保健数据：隐私风险和美国经济与国家安全 】
+冯德莱恩说，重新开放旅行取决于 “流行病学情况”。但她补充说，”美国的情况正在改善，正如希望欧盟的情况也在改善一样”。
 
+她说，美国正在”按部就班”地朝着在6月中旬达到群体免疫，或70%的成年人接种疫苗的方向取得”巨大进展”。
 
+冯德莱恩没有向《泰晤士报》透露游客旅行何时可能重新开始或如何进行。
 
-> Through recent cyberattacks, the Chinese government has stolen many Americans' health information and personally identifiable information. This data could help China target individuals for potential surveillance, manipulation, or extortion. [@NCSCgov](https://twitter.com/NCSCgov?ref_src=twsrc%5Etfw) [https://t.co/uWULxNAt23](https://t.co/uWULxNAt23) [pic.twitter.com/nxgnTIqsQX](https://t.co/nxgnTIqsQX)
-> — FBI (@FBI) [April 25, 2021](https://twitter.com/FBI/status/1386349513540001798?ref_src=twsrc%5Etfw)
+据《泰晤士报》报道，冯德莱恩的评论表明，欧盟委员会计划推荐上述政策变化，但个别成员国可能保留实施这一转变或保持更严格的限制的权利。《泰晤士报》指出，各国可能不允许来自集团外的个人进入其领土，或者他们可能实施隔离等限制。
 
+然而，美国仍在监测其公民在这种大流行病中可以前往哪些国家。上周，国务院宣布，由于病例开始再次激增，它计划将其”不要旅行”的警告扩大到全球约80%的国家。
 
+在“警告”扩大之前已经在名单上的国家包括乍得、科索沃、肯尼亚、巴西、阿根廷、海地、莫桑比克、俄罗斯和坦桑尼亚。
 
-FBI： 中国政府通过最近的网络攻击，窃取了许多美国人的健康信息和个人身份信息。这些数据可以帮助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 针对个人进行潜在的监视、操纵或勒索。国家网络安全中心[@NCSCgov](https://twitter.com/NCSCgov) 【所附链接为，国家情报总监官网文章：中共国从美国收集基因组和其他医疗保健数据：隐私风险和美国经济与国家安全 】
+素材：JIHO；审核：Aries的星；校对：Nuevo唐人；发稿：信心的选择
 
+**新闻来源：**[国会山报](https://thehill.com/policy/healthcare/public-global-health/550203-eu-official-vaccinated-americans-can-visit-this-summer)
 
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
-> Through recent cyberattacks, the Chinese government has stolen many Americans' health information and personally identifiable information. This data could help China target individuals for potential surveillance, manipulation, or extortion. [@NCSCgov](https://twitter.com/NCSCgov?ref_src=twsrc%5Etfw) [https://t.co/uWULxNAt23](https://t.co/uWULxNAt23) [pic.twitter.com/nxgnTIqsQX](https://t.co/nxgnTIqsQX)
-> — FBI (@FBI) [April 25, 2021](https://twitter.com/FBI/status/1386349513540001798?ref_src=twsrc%5Etfw)
-
-
-
-章家敦（中国问题专家）： [#基辛格](https://twitter.com/hashtag/%E5%9F%BA%E8%BE%9B%E6%A0%BC?src=hashtag_click) [#Kissinger](https://twitter.com/hashtag/Kissinger?src=hashtag_click) 曾说过，美国必须试着和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 共存。好，但如果中共国不想和我们共存呢？我们需要开始听听 [#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) 在说什么和看看他们实际上在做什么。[#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 【转商业内幕，基辛格谈疫情的后果等，和如何应对中国崛起】
-
-
-
-> [#Kissinger](https://twitter.com/hashtag/Kissinger?src=hash&amp;ref_src=twsrc%5Etfw) once again says the [#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw) must try to coexist with [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw): [https://t.co/HrH7u8eR73](https://t.co/HrH7u8eR73). Okay, but what if China has no intention to coexist with us? We need to start listening to what [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw) is saying and watching what it is in fact doing. [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Gordon G. Chang (@GordonGChang) [April 26, 2021](https://twitter.com/GordonGChang/status/1386682023352410119?ref_src=twsrc%5Etfw)
-
-
-
-美国防部部长奥斯汀： 我对印度的COVID-19疫情深感忧虑。今天，我指示国防部在我们的职权范围内使用所有可用的资源来支持美国的机构间工作，以向印度的一线医疗工作者提供他们所需的材料。 【附国防部长声明全文】
-
-
-
-> I’m deeply concerned about the COVID-19 outbreak in India, and today, I directed the [@DeptofDefense](https://twitter.com/DeptofDefense?ref_src=twsrc%5Etfw) to use every resources at our disposal, within our authority, to support U.S. interagency efforts to provide India’s frontline healthcare workers with the materials they need. [pic.twitter.com/v93iek3G2i](https://t.co/v93iek3G2i)
-> — Secretary of Defense Lloyd J. Austin III (@SecDef) [April 25, 2021](https://twitter.com/SecDef/status/1386464321723588610?ref_src=twsrc%5Etfw)
-
-
-
-+3
++1
