@@ -1,41 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【币圈】-数字货币动态-2021.04.27
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1143689/)
+## 【音频图片新闻】我们的民主在哪里？民国小学课本 vs 墙国的洗脑课本
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1143761/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
-![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image5.jpg)
-### 币圈的一天，从“一夜春风来”开始。
+**点评：Candy**
 
-## **每日一问**
-
-*家庭成员投资币圈有分歧该如何化解？*
-
-## **喜马拉雅Coin要闻**
-
-- KYC已经开始，请留意官方指引和先行者们的验证攻略！
+配图：summer, bingo
 
 
-## **新闻动态**
 
-1. 比特币周一强势大涨6%，巩固5万美元防线，向上挑战5.25万美元阻力。与此同时，竞争币却已抢先大幅上涨。Pancake Swap（CAKE）在过去4个交易日总计上涨逾28.27%；Solana（SOL）近两日则飙涨逾25.3%，更创下48.64美元新高。
-2. Defillama数据显示，当前DeFi领域的锁仓量超过1100亿美元，超过10亿美元的项目达到26个。来自以太坊生态的有19个，其中锁仓最大的是MakerDAO，有95亿美元。来自BSC的有4个，其中锁仓最大的是Pancake swap，锁仓量超过79亿美元。来自Polygon的有1个，来自Terra的有1个（Mirror），多链项目有1个（Lido)。
-3. Eherscan数据显示，以太坊网络单日交易笔数在4月22日续刷历史新高，达到超157万笔，24日和25日的单日交易笔数均约为140万笔，处于峰值附近。
-4. 官方公告，币安将上线Microstrategy(MSTR)、Apple(AAPL)和Microsoft(MSFT)代币。具体时间为，4月26日1:30PM(UTC)上线Microstrategy(MSTR/BUSD)；4月28日1:30PM(UTC)上线Apple(AAPL/BUSD)；4月30日1:30PM(UTC)上线Microsoft(MSFT/BUSD)。
-5. 今年以来，DOGE从年初的0.0057美元上涨至4月19日的0.4073美元，整体涨幅达到惊人的7045.61%，远高于同期BTC币价89.71%的涨幅。从DOGE二级市场交易量的构成来看，主力资金交易量超过80%来自USDT等稳定币。
-6. TheBlock研究总监LarryCermak表示，PancakeSwap的谷歌趋势搜寻量已是Uniswap的3倍，地位犹如美股散户心中的Robinhood，PancakeSwap以其总锁定价值(TVL)来看，360亿美元已达到以太坊六成水平。
-7. 随着价格与市场关注度的提升，目前已有19万人在美国请愿网站Change.org联署，要求亚马逊接受狗狗币DOGE作为支付媒介。
-8. Aave今天将开启“流动性挖矿”。每日2,200枚（价值百万美元）的额外奖励。目前Compound的总收益率为5.51%（包含稳定币USDC收益率3.31％，以及治理代币COMP的2%）。为与之竞争，Aave市场也提供相同的5.51%收益率，但单纯来自于利息收入。而在新的AIP-16流动性挖矿计划上线后，预计将近一步提高收益率。
-9. 与索罗斯共同创立量子基金、以投资商品期货闻名的JimRogers，近日接受采访，针对美国联准会主席鲍威尔上个月将比特币（BTC）模拟为黄金一事，认为比特币比黄金更危险！政府终将祭出禁令，捍卫主权货币权威。
-10. 经济日报报道，奇亚币（Chia）近期引发热潮，导致矿工疯抢固态硬盘（SSD）与传统硬盘（HDD），造成中港台的SSD与HDD突然短缺，价格飙升，将导致储存设备供应链厂商出货量爆发。
-11. 韩国金融监督委员会(FSC)主席在国民会议中表示，加密资产太投机，20%资本利得税将至、非合规交易所扫荡开始。
-12. 财联社报道，蚂蚁集团与央行数字货币研究所合作协议为2020年签署，双方在技术领域开展交流合作，不涉及具体产品选择。另外，记者打开数字人民币App中的钱包开立页面发现，“网商银行”“微众银行”仍为灰色不可选状态
+### 中华民国时的小学课本有什么内容？
+
+![](https://lh3.googleusercontent.com/loELvrKkoDaIjOa9I6jtbcbNwEPrz5lMb7rLnfQAYEUeAmilLfi7KQZkYQhOzSYtgPQIl_tU2M78ssqz3Ia7gjgw5tthsDTti6TIacCXHIbWcdDJ6iFGjQnpT_kC7wsWrhIcDnBD)
+
+*中华民国时的小学课本以“君主政治和民主政治” 的对比, 作为授课内容，*
+
+*令小学生对照学习，分析判断就知道哪个制度更好，更对人民有利，对国家向善的发展更有帮助。*
 
 
 
 
-*编辑：aQ
-发布：文顾*
 
-0
+中华民国时的小学课本以“君主政治和民主政治” 的对比为授课内容，明眼人一看就知道哪个制度更好，更对人民有利，对国家向善的发展更有帮助，更容易被人民所接纳。
+
+因为君主政治是帝王把国家、权利及人民统统看成是自己私有的，国家管理方面是大政府，下级必须服从上级，老百姓只有服从的份儿，所有人都要效忠于帝王。而民主政治则完全相反，人民是国家的主人，人民选举出政府官员，官员必须服务于人民，不满意的官员还可以被罢免。这样教育出来的人们才能明白是非黑白，遵守普世价值。
+
+
+
+### 墙国现在的小学课本有是什么内容？
+
+100年过去了，墙国现在的小学课本有是什么内容？我们找到了1970年代的中共国江苏胜苏州市小学算术课本。惨不忍睹的是，连算术题里都充满了共产党的阶级斗争仇恨与火药味！
+
+小学二年级的学生要学的算术题是：
+
+“贫下中农狠批刘少奇，第一天写了大字报42张，第二天写了51张，两天共写了多少张？”
+
+
+
+![](https://lh3.googleusercontent.com/s1WHBE5CoKWsuwOi6qQJI0nG32mNSUQhlbUpoJLWQC-kSoZNajkrIRXDBrTuH_17jI5y5n0I9OT2-3YjtN4cg4GQtU-deFD6vEv7nT5cp7sgTiuDlG6kf063n8EW51ZZyawKRoPI)
+
+
+
+![](https://lh6.googleusercontent.com/4C6GAFc3uutwL4zVCjgM9qRRlcWLoIfNABd44tTt1FaS0DBHeEDXR26H--KLJguASiYSb23o4UGZDvuZCj6vABegnyIvA77lVJ3wCvrHtIzglGTx0pEkuYKm_fP64JFVZi_7S2zM)
+
+
+
+语文课本则是，首先要了解教材编写的宗旨：在习近平总书记领导下，以党中央为核心，坚持……再看课本的内容：我随意从互联网上”语文迷“ 的教材里查看了一下，看到的是“雷锋叔叔，你在哪里？”，”这片土地是神圣的“，“为人民服务”，“人是一根能思想的稻草”。。。。一看题目就知道内容，无非是要人民——在他们眼里如稻草一般的贱民，无限地付出，直至死亡。而那些从小学到大的人民，大多数都是俯首帖耳地照收不误了，以至造成现在文革2.0版的疯狂再现。可悲又可怜！
+
+![](https://lh6.googleusercontent.com/XAEg0CbT0ZR1aSi5qoDTsAtDS5yBrkWwdqfKPNyxtxJo9aqQgsAtgc7UpGFEOkPAxNrq6qbSIw5OjzGld-CWqpuluo1onn8cNUADVY8xEXHMm4PtR3hV-O8wVW9W4B--v2egwUD6)
+
+![](https://lh6.googleusercontent.com/kwOdy7RaDbxf2PwGeIeD-KcnW2EHtxPImt2nf3sWUqbNMHcKUBTAxBbbo90Kr0j-RF8pwOccriEhBAHK6U3f4XdHjlxEV9ayUw4OjJKUFKPf7_ifC-LPOtp3Y7044OozBgd7rxmM)
+
+CCP 不倒，全世界都将失去民主，出现文革2.0，必须铲除CCP！
+
+
+
+#### 【**免责声明**】 文章中中表达的所有观点均属于作者，并不代表任何组织或其他个人。 
+
+【**责任编辑**】：bingo 旧金山文宣组
+
+### **欢迎战友加入旧金山金喜农场**
+![](https://lh5.googleusercontent.com/B_qgfzdPe7PXEFJ00CMor-4S7gUJ-rc3GQynsbf5lDQTFq_r_hT5QSG7kwT1m9npdEdLRZt4dmHwRck2gxDfZP_2j0Tdrpkh4kkHu-VEGIxrxwCUUAtzhszjO6fxxQ)
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)[** **](https://discord.gg/QQzQ79grEA)
+
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)[** **](https://twitter.com/sf_himalaya)
+
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
+
+[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
+
+
+
+
+
++1

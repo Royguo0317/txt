@@ -1,59 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国两党议员加大了对抗中共国的努力
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1142636/)
+## 美国参议员提出法案 要求拜登解密武毒所情报
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1142979/)
 
-翻译：康州盘古农场 — Layka
+新闻来源：《国家评论（National Review）》| 作者：卡罗琳·唐尼（Caroline Downey） | 发布时间：2021年4月22日
 
-校对：康州盘古农场 — Mike Li
+翻译/简评：Claire | 校对：感恩 | 审核：万人往 | Page：Daoiii
 
-编辑：康州盘古农场 — 心照
+[!\[\]()!\[\](https://spark.adobe.com/page/esLt2R8QJuvGy/images/5a5b79e9-4fcf-4796-8207-f21dd733c243.jpg?asset_id=4ef7a1c2-fe23-49ee-b70a-fadc484ef29b&amp;img_etag=%223932ca44586d37679abcbb1bc2d0beb6%22&amp;size=1024)](https://spark.adobe.com/page/esLt2R8QJuvGy/images/5a5b79e9-4fcf-4796-8207-f21dd733c243.jpg?asset_id=4ef7a1c2-fe23-49ee-b70a-fadc484ef29b&amp;img_etag=%223932ca44586d37679abcbb1bc2d0beb6%22&amp;size=1024)
 
-据《路透社》记者帕特里夏·曾格勒(Patricia Zengerle), 迈克尔·马丁纳（Michael Martina）2021年4月22日上午3:17 报道
-![]()![](https://gnews.org/wp-content/uploads/2021/04/eeeeeeeeeeeeeeeeeeee.png)
-2021年1月21日，在中国北京的一家美国公司大楼外，中国和美国的国旗飘扬。 /王婷淑 (Tingshu Wang)
+**简评：**
 
-美国国会两党加速推动抵制中共国，周三参议院委员会以压倒性多数支持北京人权问题的和经济竞争，同时其他的议员提出了一项数十亿美元用于技术研究的措施。
+两名美国共和党联邦议员4月22日推出《2021年新冠病毒起源法案》。该法案要求拜登政府解密武汉病毒研究所与新冠病毒大流行起源的潜在联系的情报。前疾病控制与预防中心主任雷德菲尔德也表示他相信新冠病毒是来自武汉病毒研究所。
 
-参议院外交关系委员会以21:1，支持“ 2021年战略竞争法”，将法案发送给拥有100名成员的参议院审议，甚至在委员会成员表示，是需要采取更多行动来对付北京的时候了。
+[!\[\]()!\[\](https://spark.adobe.com/page/esLt2R8QJuvGy/images/44282daa-a499-4c83-a40e-f74ecbe8d6f4.jpg?asset_id=f466dd2c-073f-4911-9d30-1c2c854e8036&amp;img_etag=%22719d090f96b6dbb12c991f45b02cbbf3%22&amp;size=1024)](https://spark.adobe.com/page/esLt2R8QJuvGy/images/44282daa-a499-4c83-a40e-f74ecbe8d6f4.jpg?asset_id=f466dd2c-073f-4911-9d30-1c2c854e8036&amp;img_etag=%22719d090f96b6dbb12c991f45b02cbbf3%22&amp;size=1024)霍利参议员
 
-委员会对该法案增加了数十项修正。美国宗教自由委员会也建议，应由美国官员而非运动员抵制2022年北京奥运会。
+2021年1月，前美国国务卿彭佩奥就发表过声明，表示美国政府有理由相信武汉病毒研究所内几名研究人员2019年秋患病，其症状与新冠病毒和普通季节性的疾病相符。《华盛顿邮报》呼吁拜登政府调查、搜集情报，把支撑彭佩奥这份声明背后的情报解密。
 
-另外，一组参议院和众议院议会立法者提出了“无尽边界法”，要求在五年内提供1000亿美元用于基础和先进技术研究，并要求100亿美元在全国范围内建立新的“技术中心” 。
+不仅仅是美国，全世界都需要真相。真相是极为重要的。不论中共政府如何否认，新冠病毒来源于武汉病毒研究所无需质疑。从疫情爆发以来，中共以它的傀儡——世界卫生组织——为盾牌，向全球隐瞒疫情。中共拒绝国际专家和美国疾病控制和预防中心的专家进入武汉调查。但是，闫博士不止一次地告诉全世界，新冠病毒绝非来自自然。她的三篇报告和其他大量的证据都表明新冠病毒是中共的超限生物武器。让我们拭目以待，尽力传播，真相一定会被揭开。
 
-两项法案都得到了两个政党的大力支持，预计将成为法律。在与中国打交道时采取强硬路线的愿望是美国国会中为数不多的真正的两党情绪之一，美国国会由同为乔·拜登总统的民主党人以微弱优势控制。
+[!\[\]()!\[\](https://spark.adobe.com/page/esLt2R8QJuvGy/images/1ac67103-ffdc-4f1f-a436-2c9d98899911.jpg?asset_id=d8948ff8-2076-4891-b266-f283dfad914a&amp;img_etag=%227025367f6a8f497e9bcfbc218475d563%22&amp;size=1024)](https://spark.adobe.com/page/esLt2R8QJuvGy/images/1ac67103-ffdc-4f1f-a436-2c9d98899911.jpg?asset_id=d8948ff8-2076-4891-b266-f283dfad914a&amp;img_etag=%227025367f6a8f497e9bcfbc218475d563%22&amp;size=1024)
 
-拜登政府支持这些措施。
+**原文翻译：**
 
-参议院民主党主席鲍勃·梅嫩德斯（Bob Menendez）说，“通过压倒性的两党投票，《战略竞争法》成为我们一系列立法活动的第一步，以使我们的国家最终能够在权力、政治、外交、经济、创新、军事甚至文化的各个方面应对中共国的挑战。”
+## **霍利和布劳恩提出法案，要求拜登解密武汉实验室（病毒）泄露情报**
 
-他和参议院最高共和党参议员吉姆·里施（Jim Risch）共同撰写了“战略竞争法”的具体措施，里施表示这是“真正的两党合作”。
+[!\[\]()!\[\](https://spark.adobe.com/page/esLt2R8QJuvGy/images/bdf92b45-bc89-4706-9092-2d711cf1a182.png?asset_id=83d3a46c-cc00-4fde-9edc-c31d48992030&amp;img_etag=%22e29e84dfc0a232ed17bf2b1b53936dc4%22&amp;size=1024)](https://spark.adobe.com/page/esLt2R8QJuvGy/images/bdf92b45-bc89-4706-9092-2d711cf1a182.png?asset_id=83d3a46c-cc00-4fde-9edc-c31d48992030&amp;img_etag=%22e29e84dfc0a232ed17bf2b1b53936dc4%22&amp;size=1024)世卫组织团队在2021年2月3日访问中国湖北省武汉市，负责调查新冠病毒的起源。在此期间，安保人员在武汉病毒研究所外进行监视。（Thomas Peter/路透社）
 
-这项立法在北京引起了愤怒。
+密苏里州共和党参议员乔什·霍利（Josh Hawley）和印第安纳州共和党参议员迈克·布劳恩（Mike Braun）周四（4月22日）推出《2021年新冠病毒起源法案》。该法案要求拜登政府对涉及中共国武汉病毒研究所与新冠病毒大流行起源的潜在联系的情报进行解密。
 
-中共国外交部发言人汪文斌说：“这扭曲了事实，混淆了是非。”
+霍利说：“一年多来，任何对武汉病毒研究所提出疑问的人都被烙上阴谋论者的标记。世界需要知道这次大流行病是否是武汉实验室疏忽的产物，但中共竭尽所能阻止可信的调查。”
 
-“它炒作了中国威胁论，谈论了与中国的全面战略竞争。它严重干涉了中国的事务和冷战的后遗症以及零和心态。”
+他还表示：“这就是为什么拜登政府必须解密其知道的有关武汉实验室和北京当局试图掩盖大流行病起源的情况。”
 
-人权和军事开支
+前疾病控制与预防中心（CDC）主任罗伯特·雷德菲尔德（Robert Redfield）最近声称， 新冠病毒起源于武汉病毒研究所。《华盛顿邮报》编辑委员会已呼吁拜登解密与该实验室有关的所有情报。
 
-参议院长达280页的法案通过诸如增加国际发展资金以及与盟国和国际组织合作等努力来应对与中共国的竞争。它推动了人道主义和民主价值观，就像对少数民族穆斯林维吾尔人的待遇实施制裁一样和支持香港的民主。 L1N2M113C
+该法案的共同发起人布劳恩说：“确定新冠病毒大流行的起源对预防未来的大流行至关重要，随着对病毒起源的调查和研究的持续进行，拜登政府应解密与中共国武汉生物研究实验室和新冠病毒大流行之间任何潜在联系相关的情报。”
 
-该法案强调需要“优先考虑为实现美国在印度太平洋地区的政治目标所必需的军事投资”。它支持该地区与安全相关的资金大量增加以及与台湾的紧密联系。
+[!\[\]()!\[\](https://spark.adobe.com/page/esLt2R8QJuvGy/images/f5e76d49-99ce-4195-a3ef-d89253342a68.jpg?asset_id=b00f6d59-7fbb-45d9-b1fd-b3dec6ad3cca&amp;img_etag=%22db4e0c52cd01cf2e2419707e0c63c851%22&amp;size=1024)](https://spark.adobe.com/page/esLt2R8QJuvGy/images/f5e76d49-99ce-4195-a3ef-d89253342a68.jpg?asset_id=b00f6d59-7fbb-45d9-b1fd-b3dec6ad3cca&amp;img_etag=%22db4e0c52cd01cf2e2419707e0c63c851%22&amp;size=1024)布劳恩参议员
 
-它将扩大美国外国投资委员会（CFIUS）的范围，该委员会将审查潜在的国家安全风险的金融交易。美国大学对该法案中要求美国外国投资委员会审查一些中共国的赠款和合同的条款表示关切。
+霍利参议员在2020年3月呼吁对中共对疫情的处理进行国际调查。他还与来自世界各地的一组科学家一起呼吁对实验室泄漏理论进行全面透明的调查。这些科学家认为世界卫生组织（WHO）的调查不充分，因为调查是由有利益冲突的科学家主导的，他们并不想探索一切可能，而只是依赖北京当局的保证。
 
-战略竞争和无尽疆界法案是民主党参议院多数党领袖查克·舒默（Chuck Schumer）在2月宣布的快速通道的一部分，该行动旨在通过广泛的立法来对付中共国。舒默是《无尽边境》法案的一个主要提案人。
+世界卫生组织总干事谭德塞（Tedros Adhanom Ghebreyesus）也表示，最初的调查并不令人满意，而且世卫组织仍在考虑实验室泄漏理论。国务卿安东尼·布林肯（Anthony Blinken）与谭德塞一起对这一调查表示怀疑。
 
-外交关系委员会成员说，他们想做更多。
+2020年4月，霍利提出允许美国公民起诉中共国政府并要求赔偿的《为新冠病毒受害者追求正义》法案。
 
-共和党参议员罗姆尼（Mitt Romney）说：“我相信没有人会认为这项立法会改变中共国向全球独裁和压制霸权迈进的步伐。” “ …我建议，我们还有很多工作要做。 ”
+该法案将使中共国政府对在美国法院提起的民事诉讼承担法律责任，如果由于中共国政府任何鲁莽的行为导致新冠病毒在美国爆发，美国法院可剥夺中共国政府的主权豁免权并有冻结中共国政府资产的权力。
 
-原文链接：[https://www.reuters.com/world/asia-pacific/us-lawmakers-look-advance-sweeping-bid-counter-china-2021-04-21/](https://www.reuters.com/world/asia-pacific/us-lawmakers-look-advance-sweeping-bid-counter-china-2021-04-21/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+🔗[原文链接](https://www.nationalreview.com/news/hawley-braun-propose-bill-requiring-biden-to-declassify-wuhan-lab-leak-intelligence/amp/?__twitter_impression=true)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/esLt2R8QJuvGy/images/2a9217f7-1549-446e-bf57-9fb29741160d.jpg?asset_id=c85755a7-ef39-495d-b9c1-33549723da36&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/esLt2R8QJuvGy/images/2a9217f7-1549-446e-bf57-9fb29741160d.jpg?asset_id=c85755a7-ef39-495d-b9c1-33549723da36&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
 0
