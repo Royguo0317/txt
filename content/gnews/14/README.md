@@ -1,41 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国终极格斗冠军赛（UFC）上罗斯-马祖纳斯（Rose Namajunas）在发表反共评论后击倒张伟丽（Zhang Weili）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1147075/)
+## 【有声读物】点燃更多的灯：照亮神佛庇佑的土地
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1147167/)
 
-- 翻译:the world
+配音：香草山录音组 Swr拥抱太阳
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年4月28日电/西喜社——**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片1-72.png)
-图片来源：Louis Grasse/PxImages/Icon Sportswire via Getty Images
-美国UFC格斗手，号称“暴徒”的罗斯·纳马祖纳斯,以强大的侧鞭腿击中对方头部,击倒了中国的选手张伟丽，从而夺回了她的轻量级冠军。
 
-在周六晚上的UFC比赛上，“暴徒”以1:18的比分在首轮比赛中将中共国选手张伟丽击倒，强有力的头部踢击引起了佛罗里达州观众的欢呼和解说员的生动的描述。
 
-在比赛开始之前，“暴徒”大胆地抨击共产主义。尽管罗斯坚称她和张伟丽之间没有私人过节，但她指出，她不喜欢张伟丽在一次采访中所宣传要“代表”的势力（即中共）。
+我们与末日正擦肩而过
 
-她说：“我从来没真的讨厌张伟丽，而且我不讨厌像她那样的人。但因为我的对手代表着共产主义，我确实感觉到我在这场对决更想取胜的欲望。
+但真正的灾难还没到来
 
-她还在比赛后说了一句名言，”宁可死也不要红色的共产主义”（Better dead than red）。她还说她如此努力不是因为私人过节，而是与代表中共的人争锋给了她很大的动力。
+勒紧裤带，擦亮眼睛
 
-罗斯补充说：“我为自由而战，我有基督信仰，我有立陶宛血统，我有美国梦。”这位战士是立陶宛裔，在成长过程中亲眼目睹了她父母逃到美国寻求更好生活的挣扎。
+你会看清：未来的历史和今天的真相
 
-点评：
 
-**体育本应是人类追求和平、友谊和团结精神之体现。中共在其独裁统治之下，利用宣传和教育的工具，把其“红色”的基因紧紧的捆绑在了国内每一个运动员的身上。信息的封锁，加之意识形态的高压，使中共国的每一个运动员似乎都要“宣誓”代表着中共去参加各种体育赛事。中共打破了体育事业本应体现的追求和价值。**
 
-**反中共，反共产主义信仰已经逐步开始在体育界和美国民间蔓延。中共和全世界之间的关系已经不再是“和谐共存”。**
+**文字版原文：[【香草诗词汇】点燃更多的灯：照亮神佛庇佑的土地](https://gnews.org/zh-hans/576747/)**
 
-**我们应该更加努力的传播真相，揭露中共的邪恶。**
+作者：香草山写作组 木白
 
-初审：Jenny Ball；审核：Aries的星；校对：阿伯塔；发稿：神奇四侠
 
-新闻来源：[INFOWARS](https://www.infowars.com/posts/video-ufcs-rose-namajunas-knocks-out-zhang-weili-after-comments-bashing-communism/)
 
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+音频处理/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

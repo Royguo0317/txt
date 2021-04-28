@@ -1,65 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《自然》删除福奇手下参加的武汉实验室峰会记录
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1146984/)
+## 【班农战斗室】903-904-905期简讯
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1147028/)
 
-新闻来源：《国家脉动》The National Pulse| 作者：Natalie Winters| 发布时间：2021年4月26日
-翻译/简评：村民彼得潘|校对：SilverSpurs7|审核：万人往|Page：小雨
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/https___cdn.cnn_.com_cnnnext_dam_assets_210203122008-who-wuhan-virus-lab-0203-0.jpg)
-**简评：**
+#### **翻译：七彩光**
 
-相对于其他侧重于新冠病毒本质及来源讨论的报道，这篇报道所提及的人名，以及被删除的网站截图上的人名无疑令人眼前一亮。这就好比塞林博士（Dr. Lawrence Sellin）近期不断放出的人名与头像，虽然参与爆料革命的诸位也许对这些人并不陌生，但这些平日里不声不响、实则对一个行业有着重大影响力的头头脑脑们大概是第一次昭然于英语世界。本文所例举的这些名字也不例外，稍稍查证不难发现，他们的成长背景、从事的专业、参与的项目都直接或间接地指向了同一处，即中共病毒与超限生物战。
+#### **校对/编辑： 文泓**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/903-904-905_.png)
+图片来源：墨尔本雅典娜农场设计组（精灵蓝）
 
-在文中点出的两位福奇现任或前任手下之一Kanta Subbarao，便是不久前被闫博士在《路德时评》中点名，此人目前已经升迁至被中共渗透极深的世卫组织。文中同时提到与会者中两位中共科学家，现任中共国疾控中心主任、时任中科院微生物研究所院士的高福，他在疫情期间已经广为人知；另一位时任武毒所所长、同为九十年代留洋读博的陈新文似乎也不容小觑。网站截图中还可以看到，两位主讲人其中之一就是大名鼎鼎的舒红兵，这位武汉大学医学研究院院长不单娶了武毒所所长王延轶为妻，塞林博士此前的推文中也暗示了他与江二世江绵恒的关系以及二人与新冠病毒放毒之间的联系。两位鲜有被提及却仍十分有嫌疑的名字同时在列，陈化兰， 中科院院士，研究禽流感病毒跨种属传染；王福生，解放军总医院第五医学中心感染性疾病诊疗与研究中心主任。一位没有被提及的会议联合主席唐宏，至今仍是上海巴斯德研究所所长。最为引人侧目的要属港大P3实验室的两位专家，裴伟士（Malik Peiris）与袁国勇，这二人对新冠病毒大流行做出的“贡献”无需赘述。
+**本期导读：**
 
-这一份并不长的名单几乎为人们勾勒出了新冠病毒来龙去脉的一整幅图景。仅仅十来人便牵涉到港大P3实验室、解放军、中共疾控中心、武毒所、上海巴斯德、世卫组织、NIH，世界独一份的技术、美国纳税人供养的机构出资、多方信用背书加上中共军事级别的多面协助……将这一切打包起来梳理成册，所有人都能明白，新冠病毒从何而来、为何爆发、能产生多大影响、背后藏着怎样的险恶用心、如何解决以及如何杜绝二次发生。这也难怪《自然》杂志要急着下架有关会议的信息，在今天对病毒溯源的声浪不断升高的大环境下，提前撇清关系是多么重要。然而在这一刊物发表出诋毁病毒实验室来源、力捧自然来源的联名文章之际，它积攒了百年之久的声誉早已名存实亡。同时在中共这边，用百度瞬间即可搜到关于这次会议的信息，中科院下属机构的网站也仍保留了这次会议的概述。《自然》此举想必并未像以往一样和中共提前通信，这会不会就是这一组织试图与中共单方面脱钩的信号呢？从谭德塞的倒戈不难想见，在与中共的勾兑伤及他们自身时，这些老牌国际组织在权衡利弊下弃船保命的能力堪比他们此前暗箱操作的能力。中共自以为天底下都是“拿人钱财替人消灾”的“实在人”，只有他自己懂得出尔反尔耍无赖，不知道当他们终于意识到自己正在被一个个“老朋友”出卖时，会作何感想，又还能有什么本事力挽狂澜。
+川普支持者MAGA运动继在佐治亚州基层选举大获全胜后，《UncoverDC》的主编特蕾西·比恩兹解释了MAGA在南卡罗莱纳州也获得了同样的胜利；民主党人审计师约翰•布雷基（John Brakey）说，亚利桑那州马里科帕县的选票审计是大选以来第一次真正的审计；弗兰克•加夫尼指出，美国必须加入抵制“种族灭绝游戏”（北京冬奥会）的行动。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/FSAwSAWml5UFL/images/022b77e2-6306-4a4f-af71-32a5f006297e.jpg?asset_id=53998d65-43a1-45d2-abb7-8ada042b54f7&amp;img_etag=%2234d43e2b9c7c63f082e5aefa867aa317%22&amp;size=2560)](https://spark.adobe.com/page/FSAwSAWml5UFL/images/022b77e2-6306-4a4f-af71-32a5f006297e.jpg?asset_id=53998d65-43a1-45d2-abb7-8ada042b54f7&amp;img_etag=%2234d43e2b9c7c63f082e5aefa867aa317%22&amp;size=1024)
+**主持人：史蒂夫****.班农**
 
-**原文翻译：**
+嘉宾：Maureen Bannon, John Brakey, Tracy Beanz, Cpt Corey Ray, Chris Fenton, Dr. Peter Navarro, Tom Del Beccaro, Ben Bergquam, Adam Brandon
 
-## 由福奇领导的美国国家过敏和传染病研究所的科学家参与的武汉实验室峰会被从网上抹除
+**1、MAGA接管南卡罗莱纳州共和党进行时**
 
-**除了资助与武汉病毒研究所合作的研究小组外，安东尼•福奇博士还批准了美国国家过敏和传染病研究所（NIAID）的研究人员参加一个由武汉病毒研究所内实验室主办的学术研讨会，该实验室被许多人认为是新冠病毒的来源。**
+《UncoverDC》的主编特蕾西·比恩兹（Tracy Beanz）解释了MAGA运动如何利用丹•舒尔茨（Dan Schultz）的“社区战略”占领了南卡罗来纳州（South Carolina）。
 
-由科学期刊《自然》主办的2016年“病毒感染与免疫应答国际研讨会”已经从该出版物的网站上被清除，但《国家脉动》已经找到了该网站的存档版本。我们还保存了武汉病毒研究所（WIV）的新闻稿。
+比恩兹周二告诉《战斗室》，有600多人参加了当地的共和党（GOP）基层选举，是两年前的三倍多。
 
-来自福奇博士领导的美国国家过敏和传染病研究所（NIAID）的两名研究人员出席了2016年的活动，该活动讨论了新兴病毒性疾病、感染和抗病毒免疫力——所有这些对于抗击新冠病毒的对策都至关重要。
+MAGA成功的秘诀是什么？“坚守你的诺言，诚实地工作，不让任何人接管……然后坚持你的立场，说到做到。”
 
-自1984年以来福奇博士一直担任该研究所所长，尽管他曾发表大量错误的预言和赤裸裸的谎言，他至今仍然是美国政府中收入最高的雇员。
+比恩兹还解释了在阻止共和党建制派举行在线网络大会的下一步工作。
 
-在研讨会召开的时期，与会者坎塔•苏巴里奥（Kanta Subbarao）正担任NIAID新兴呼吸道病毒科科长，南希•沙利文（Nancy Sullivan）正担任NIAID疫苗研究中心的生物防御研究科科长。沙利文目前仍然在福奇手下工作，而苏巴里奥则离开了该机构，成为世界卫生组织流感参考和研究合作中心的主任。
+“这些（建制派）共和党人在许多方面比民主党人更糟糕，”她说。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/FSAwSAWml5UFL/images/c71cc4ec-dc8d-4740-8fab-8619edfa3907.png?asset_id=d8424e21-2d34-42d6-a829-330cb29bd33a&amp;img_etag=%22e9cff683ab8dec59890a816c3ff17ccf%22&amp;size=2560)](https://spark.adobe.com/page/FSAwSAWml5UFL/images/c71cc4ec-dc8d-4740-8fab-8619edfa3907.png?asset_id=d8424e21-2d34-42d6-a829-330cb29bd33a&amp;img_etag=%22e9cff683ab8dec59890a816c3ff17ccf%22&amp;size=1024)研讨会发言人
+# 2、民主党审计师：亚利桑那州的（选票）审计是大选以来第一次真正意义上的审计
 
-十月的这一次研讨会包括六个部分：新发病毒性疾病流行病学、持续性病毒感染和免疫失调、病毒致病机理、对疾病的免疫干预与预防、先天性抗病毒免疫和系统获得性免疫诱导。
+民主党人审计师、伯尼•桑德斯（Bernie Sanders）的支持者约翰•布雷基（John Brakey）说，马里科帕县（Maricopa County）的选票审计是大选以来第一次真正的审计。
 
-在其组织者和发言人中，有几位来自中国共产党下属机构的研究人员，包括中共国疾病预防控制中心的现任主任（高福）和武汉病毒研究所负责人（陈新文）。
+这位“审计美国（Audit USA）”组织的联合创始人兼执行长告诉《战斗室》，以前的审计相当于在同样的投票机上运行同样有瑕疵的选票，等于换汤不换药。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/FSAwSAWml5UFL/images/8512cf84-e1fd-44d1-a755-14c12112cc22.png?asset_id=9e87df27-23b6-4c0e-bfaa-82e150a2aeb0&amp;img_etag=%226f115f3cab10eeccbb1e3f96e463b449%22&amp;size=2560)](https://spark.adobe.com/page/FSAwSAWml5UFL/images/8512cf84-e1fd-44d1-a755-14c12112cc22.png?asset_id=9e87df27-23b6-4c0e-bfaa-82e150a2aeb0&amp;img_etag=%226f115f3cab10eeccbb1e3f96e463b449%22&amp;size=1024)《自然》会议
+布雷基说，11月3日选举中的选民欺诈等同于大众汽车的排放作弊丑闻。
 
-武汉病毒研究所还与中国共产党保持着密切的关系，与中共市级政府签署了“全面合作”协议，其中的研究人员还获得了共青团和国务院的表彰。
+【备注：大众集团汽车废气排放丑闻（Volkswagen emissions scandal）、柴油门、排放门，是指大众集团（VW）于2015年9月，被美国国家环境保护局（EPA）查获，其在美国销售的车辆，发动机控制器都植入了特殊软件，以规避官方检验的事件。】
 
-该实验室还播映了中国共产党的全国人民代表大会。武汉病毒研究所的一份新闻稿叙述道：
+“（大选）真的没有进行过任何审计”，布雷基说：“这与大众汽车公司通过柴油车的排放测试（作弊）没有什么不同。”
 
-*“在观看直播的过程中，会议厅内秩序井然。大家都在认真听取胡锦涛总书记的工作报告，并认真做着笔记。现场气氛热烈，掌声一浪高过一浪。”*
+“他们制造了一台计算机，知道什么时候可以作弊，”他说。
 
-福奇的美国国立卫生研究院（NIH）将美国纳税人交纳的数百万美元用于资助“生态健康联盟”（EcoHealth Alliance）——武汉病毒研究所的美国合作伙伴，这些有关会议的报道是对其开展的研究项目曝光之后的又一次跟进。
+# 3、如何对抗中共的“种族灭绝游戏”—北京冬奥会
 
-NIAID分次向中共国提供了六笔拨款，总额近375万美元，以重点“了解蝙蝠冠状病毒出现的风险”。
+作家和平民主义中国问题专家克里斯•芬顿（Chris Fenton）和科里•雷（Corey Ray）上尉就美国对下届北京冬季奥运会的影响力，以及发起抵制的最佳策略进行了论述。
 
-[🔗原文链接](https://thenationalpulse.com/exclusive/fauci-scientists-attended-wuhan-lab-conference/)
+【克里斯·芬顿（Chris Fenton）是好莱坞制片人。是去年他出版的个人回忆录《放飞龙，置身于好莱坞、NBA和美企面临的万亿美元难题》的作者和《喂龙》（Feeding the Drago‪n Podcast）播客节目的主持人。】
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+【科里•雷（Corey Ray）上尉是国家战争学院战略与政策系主任和助理教授。1991年毕业于瓦拉瓦拉学院，获得工程学士学位，通过航空军官候补学校受命，在1992年被指定为海军飞行军官，并有资格作为P-3C猎户座的战术协调员（TACCO）。】
 
+芬顿说，美国应该与盟国合作，退出（冬季）奥运会，中国不仅会把奥运会作为对抗世界的宣传工具，而且也会对自己的人民进行宣传。
 
-编辑：【英国伦敦喜庄园编辑部】
+班农说，类似的情况发生在1936年的柏林（奥运会），美国必须要求（中共）就武汉实验室和维吾尔族种族灭绝问题作出答复。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/FSAwSAWml5UFL/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/FSAwSAWml5UFL/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+他说：“在未来的300天里，我们有大量的筹码可用。”
 
+弗兰克•加夫尼（Frank Gaffney）周一晚间告诉《战斗室》，美国必须加入抵制“种族灭绝游戏”（也称为北京冬奥会）的行动。
 
+【**备注：**弗兰克•加夫尼（Frank Gaffney）是外交、国防及国家安全政策专家，目前担任“应对中共当前危险委员会” （Committee on the Present Danger:China）的副主席，并是一家电台的主持人。他曾担任里根政府时期国防部代理助理部长，也曾是《华盛顿时报》（Washington Times）的专栏作家和国家评论（National Review）网上杂志的编辑。】
+
+**参考资料：**[维基百科](https://www.wikipedia.org/)
+
+**原文链接：**
+
+# 1.  [MAGA Takeover of South Carolina GOP Underway](https://pandemic.warroom.org/2021/04/27/maga-takeover-of-south-carolina-gop-underway/)
+
+# 2.  [Democrat Auditor: Arizona Audit First Real Audit Since the Election](https://pandemic.warroom.org/2021/04/27/democrat-auditor-arizona-audit-first-real-audit-since-the-election/)
+
+# 3.  [How to Confront the CCP’s ‘Genocide Games,’ the Beijing Olympics](https://pandemic.warroom.org/2021/04/27/how-to-confront-the-ccps-genocide-games-the-beijing-olympics/)
 
 0
