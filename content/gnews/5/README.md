@@ -1,45 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 马里科帕县法官暂时允许2020年选举审计继续进行
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1147827/)
+## 【香草诗词汇】望坑叹
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1147363/)
 
-翻译：奋斗
-校对：枳实
-编辑：七彩光
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image001-42.png)
-4月27日，亚利桑那州的一名法官允许该州最大县的2020年选举审计继续进行，直到4月28日的再次庭审听证。
+作者：纽约香草山佛教部 无执
 
-马里科帕县高等法院法官丹尼尔·马丁(Daniel Martin)表示，如果亚利桑那州民主党人缴纳了100万美元的保证金，他本不会延长4月23日的临时限制令，从而停止审计。
 
-“我认为这是一次非常有成效和有用的听证会。我还得考虑一下原告提出的救济要求。从现在到明天早上，我都会这么做。”马丁说。
 
-上周，在审计计划开始前几小时，民主党人在最后一刻提起诉讼，试图阻止审计。他们声称，下令进行选举审查的亚利桑那州参议院雇佣的承包商没有正确地确保选票和设备的安全。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-对200多万张选票和数十台电子投票机的审计工作于4月23日开始。
 
-亚利桑那州参议院在1月份发出传票，要求选举文件和机器作为证物。随后的一个月，一名法官裁定传票有效，必须遵守。
 
-包括参议院在内的被告说，由于审计程序已经在进行中，再加上指控缺乏依据和实质性要求，这意味着法官不应该停止审计。四家执行审计的公司之一数码忍者（Cyber Ninjas）的律师亚历山大·科罗丁(Alexander Kolodin)在法庭上表示:“哪怕是一天的禁制令也可能破坏这次审计。”
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4282w.jpg)图源网络
 
-参议院的律师Kory Langhofer告诉马丁法官，参议院“一直打算遵守法律”，但问题的关键是法律到底要求了什么，参议院认为原告想要的一切要么不适用，要么已经在实施，“根本没有必要颁布禁令。”
+生前未有死后弃，盗国欺世权谋利。
 
-亚利桑那州民主党律师罗帕莉·德赛(Roopali Desai)对凤凰城退伍军人纪念体育馆(Veterans Memorial colisein Phoenix)的安全问题提出了她所说的严重指控。审计工作正在这座体育馆进行。一名当地新闻记者声称，在审计进行的四天里，他都能“不受打扰”地在现场走动，包括接近制表机和选票。德赛认为，不能仅仅因为审计在各方准备实施适当的安全程序之前就开始了，“就导致我们不能暂停审计，直到我们绝对确定法律正在被遵守（再重新开始审计）。”
+生灵涂炭七十载，演尽黄粱小丑戏。
 
-2021年4月22日，总部位于佛罗里达州的咨询公司Cyber Ninjas安装了选票扫描设备，负责监督凤凰城亚利桑那退伍军人纪念体育馆的审计工作。
+明朝古树尤还在，故人悬颈望故居。
 
-德赛提交的一份听证会前备忘录中也提出了类似的论点。与此同时，参议院要求法官以缺乏“任何可认定的法律主张”为由，直接驳回此案。
+毒魔猖狂怒万神，不知死活蹈我迹。
 
-马丁最终站在了被告一边，但保留了在下一次听证会上改变主意的可能性。下次听证会将于4月28日举行。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2-1.jpg)
 
-下一次听证会还将包括对网络忍者的一项动议的口头辩论，该动议要求将部分提交的文件封存起来。该公司辩称，这些文件包含了详细说明其安全性以及（证物）监管链流程和操作方面的敏感信息。
+编辑：369文驹
 
-马丁还批准了亚利桑那州民主党国务卿凯蒂·霍布斯(Katie Hobbs)和亚利桑那州第一修正案联盟(First Amendment Coalition of Arizona)的动议，后者是一个代表记者的非营利组织，帕金斯·科伊(Perkins Coie)是其代表。
+校对/发稿：Irene木木
 
-马丁是民主党任命的法官，在法官克里斯托弗·库里因与一名涉案律师有关联而回避后接手了此案。马丁曾在布朗贝恩律师事务所(Brown & Bain)工作，之后该事务所与经常代表民主党和民主党团体的重量级律师事务所帕金斯科伊(Perkins Coie)合并。
+**更多资讯，更多关注**
 
-原文链接：
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[https://www.theepochtimes.com/maricopa-county-judge-lets-2020-election-audit-continue-for-now\_3793513.html?utm\_campaign=socialshare\_twitter&utm\_source=twitter.com](https://www.theepochtimes.com/maricopa-county-judge-lets-2020-election-audit-continue-for-now_3793513.html?utm_campaign=socialshare_twitter&amp;utm_source=twitter.com)
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
+
+
 
 0

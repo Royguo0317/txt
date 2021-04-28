@@ -1,102 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！(一)
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1147511/)
+## 【呐喊】九色鹿王本生故事
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1147275/)
 
-作者：纽约香草山信息部 6zero4
+作者：纽约香草山佛教部 无执
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
+
+过去无量劫前，有一头九色鹿，住在古恒河边一片景色秀丽的山林中。它双角洁白如雪，身上有九种鲜艳的毛色，为世间所罕见，漂亮极了，人们都称它九色鹿王。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4281w.jpg)图源网络
+
+有一天，九色鹿王在河边散步。突然，耳边传来“救命啊，救命”的呼喊，只见一个人在汹涌的波涛中奋力挣扎。九色鹿王亳不犹豫，立即纵身跳进河中，将落水之人救上岸来。
+
+落水人得救后连连向九色鹿叩头，感激地说：“谢谢您的救命之恩。我愿意为鹿王供水给草，永远做您的奴仆，终身受您的驱使……”
+
+九色鹿打断了落水人的话，说：“我救你并不是要你做我的奴仆。快回家吧。回去以后，若有人找鹿王，千万别向人提起我在这里。”
+
+落水人郑重起誓，誓死不说出鹿王的住处，然后千恩万谢地走了。
+
+当时的国王名叫“摩因光”，本性淳厚温和，常以仁慈之心教化百姓。有一日，皇后梦见了一头双角洁白如雪、身披九种鲜艳毛色的鹿王。她突发奇想：“如果用这只鹿王的毛皮做件衣服穿上，我一定会显得更加漂亮！”于是，她缠着国王要他去捕捉九色鹿王，不然就死给国王看。国王无奈，只好张贴皇榜，重金悬赏募求九色鹿王。
+
+那个落水人看到了皇榜，心想，发财的机会来啦！就进宫将见到鹿王的事情告诉了国王。等到话说完，落水人的脸上马上生出癞疮，满嘴臭气逼人。
+
+国王听了落水人的告密，立即调集军队，由落水人带路，浩浩荡荡地向着九色鹿王的住地进发，去寻找鹿王。
+
+山林之中，春光明媚。九色鹿王在开满鲜花的草地上休息，突然发现，国王率领着军队包围了这里。鹿王说道：“大王身处深宮之內，请问大王您是如何得知我在这里呢？”国王就指著那落水的人道：“是那个生癞疮的人告诉本王的。”鹿王向国王讲了之前救落水人的经过，并说：“宁可把水中漂浮的草木拉上岸，也不要救那反覆无常之辈。劫财杀人的罪恶还可以原谅，但受恩不报，反而悖逆相害，如此的残酷暴虐，实在难以陈述。”
+
+国王听完鹿王的话，大惊说道：“这是什么畜生而能怀有如此的弘慈，冒着危险救人，且不将此看作艰险之事？想必它定是天神啊！”于是，国王下召全国要尽力为鹿群提供食物，立志广行仁慈。
+
+王后听说国王把鹿王放了，心中又气又恨而至身亡。鹿王就是释迦牟尼佛的前生，而国王即是舍利弗，落水的人就是调达，而王后便是调达的妻子。
+
+这就是本生故事，讲述释迦牟尼佛在过去的轮回中，修行渡众生的故事。《佛本生经》中的九色鹿王，就是释迦牟尼佛的前生之一。其在敦煌壁画中也有记载：敦煌壁画中的《九色鹿经图》，是敦煌北魏（公元439-543年）洞窟壁画中的经典之作，绘于257号洞窟的西壁中部。它以精湛的绘画艺术再现了《佛说九色鹿经》中“鹿王本生”的故事。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+《六度集经》
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2-1.jpg)
+
+编辑：369文驹
+
+校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-
-今年以来，COVID-19主题专家、美军军情专家塞林博士 (Dr. Lawrence Sellin) 一系列的推文，体现了美国军情情报的中坚力量对中共病毒溯源的全面推进。尤其是通过公开网络资源与美国情报对参与制毒的解放军科学家的披露，吹响了对中共主动发起的这场超限生物战本质的认定和反击的冲锋号！同时，通过揭露中共军民融合的真面目，不仅揭露良知泯灭的中国科技工作者，更是曝光了利欲熏心的美国科学家。我们不妨以时间轴回看塞林博士揭露病毒真相的推文。
-
-代表美国核心力量的塞林博士对中共病毒来源真相有计划、有步骤地的揭秘行动，始于今年1月17日，塞林博士引用了自己一年前（即2020年2月6日）发布的推文， “柳叶刀上的一篇文章提供的原始证据表明病毒起源也许并不来自海鲜市场而是武毒所(WIV)病毒泄露”，披露中共国至今一直在对病毒起源撒谎！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS2413-【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！一-1.jpg)
-
-1月19日，塞林博士推文：“基于我的专业视角，COVID-19起源于中共实验室，如果不是直接生物战争意图的话，可能就是具军事意义的“功能获得”实验的结果。一场真相掩盖活动正在进行中！”
-
-
-
-> In my expert opinion, the origin of the COVID-19 virus was a laboratory in China, likely the result of "gain of function" experiments with military implications if not direct biological warfare intent. A cover-up is underway. Read my articles on the topic.[https://t.co/DSlhx33HnE](https://t.co/DSlhx33HnE)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [January 19, 2021](https://twitter.com/LawrenceSellin/status/1351455050187599872?ref_src=twsrc%5Etfw)
-
-
-
-1月31日塞林博士推文：不可否认的证据表明COVID-19病毒来自实验室，并强调疫苗接种是一种令人绝望的治疗尝试！
-
-
-
-> Undeniable proof the COVID-19 virus was lab-made. Bronchial lavage of the initial Dec 2019 patients showed COVID-19 virus spike protein & adenovirus vector sequences, the same as in this study. Immunization was a desperate attempt at treatment in Dec 2019. [https://t.co/jaEiPxEnJk](https://t.co/jaEiPxEnJk)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [January 30, 2021](https://twitter.com/LawrenceSellin/status/1355568642570788868?ref_src=twsrc%5Etfw)
-
-
-
-2月1日塞林博士推文：呼吁人们关注病毒实验室起源的真相，提及2020年中国军事医学科学院微生物流行病研究所专注于冠状病毒研究的关键人物周育森的秘密死亡，周是中共国与在美国病毒研究机构工作的科学家们之间合作的一个接洽点。（周育森浮出水面）
-
-
-
-> Until his mysterious death last year, a key player in the Chinese military's coronavirus research was Yusen Zhou, who also was an interface between China and Chinese scientists operating in U.S. virus research laboratories.[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/CHuWmYQbKV](https://t.co/CHuWmYQbKV)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [February 1, 2021](https://twitter.com/LawrenceSellin/status/1356232578563416069?ref_src=twsrc%5Etfw)
-
-
-
-2月2日塞林博士推文：COVID-19病毒的军方背景，贯穿重庆的第一军医大学，广州的第三军医大学和南京军区医学研究院等。早在2006到2007年，WIV就已经在进行蝙蝠病毒感染人类的基因改造工程，冠状病毒研究网络牵涉中共生物武器项目的研究人员。并贴出一篇自己2020年9月6日发表在CCNS上的一片文章，披露了中共对美国病毒研究项目的大规模渗透，揭露福奇的国立卫生研究院 (NIH)用美国纳税人的钱资助了中国军方。（福奇和NIH浮出水面）
-
-
-
-> What this article describes is only the tip of the iceberg of the massive infiltration of U.S. virus research programs by individuals from or connected with the Chinese military, many of which has been funded by Dr. Anthony Fauci’s NIH institute. [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/6Ugpx2ni4S](https://t.co/6Ugpx2ni4S)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [February 2, 2021](https://twitter.com/LawrenceSellin/status/1356485425452433409?ref_src=twsrc%5Etfw)
-
-
-
-2月3日塞林博士推文：其实中共军方早在2002-2003年期间的第一次SARS大流行后就深入参与了冠状病毒的研究，包括与WIV基因工程的合作。
-
-
-
-> China's People's Liberation Army (PLA) was deeply involved in coronavirus research after the first SARS pandemic (2002-2003), including genetic engineering & collaboration with the Wuhan Institute of Virology. After 2009, PLA coronavirus research went dark.[https://t.co/AhLfTQ7fJh](https://t.co/AhLfTQ7fJh)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [February 3, 2021](https://twitter.com/LawrenceSellin/status/1356978776987598851?ref_src=twsrc%5Etfw)
-
-
-
-2月9日塞林博士推文：WHO支持病毒来源于自然以帮助中共国掩盖病毒真相，而来源于实验室的证据是压倒性的。（WHO浮出水面）
-
-
-
-> A World Health Organization cover-up of China's culpability. Evidence for a laboratory origin of the COVID-19 is overwhelming compared to the pure conjecture supporting a conclusion that it was naturally-occurring.[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/ziO74OKkSd](https://t.co/ziO74OKkSd)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [February 9, 2021](https://twitter.com/LawrenceSellin/status/1359131261093113861?ref_src=twsrc%5Etfw)
-
-
-
-2月10日塞林博士推文贴出一张“CCP VIRUS”图片，阐述了中共国正在进行一个专门针对保护中国人免受COVID-19感染的病毒疫苗开发的大项目。
-
-
-
-> China has a major research program to develop virus vaccines that specifically protect Chinese people.[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDVaccine](https://twitter.com/hashtag/COVIDVaccine?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaVaccine](https://twitter.com/hashtag/CoronaVaccine?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/kwRdNC25uF](https://t.co/kwRdNC25uF)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [February 10, 2021](https://twitter.com/LawrenceSellin/status/1359500491424604164?ref_src=twsrc%5Etfw)
-
-
-
-综合以上推文，塞林博士揭露了中共军方早在2003年SARS疫情后就已经开始了冠状病毒的研究，WHO自本次疫情开始就一直配合中共对病毒真相进行掩盖，披露了中美病毒科学界合作的窗口人物周育森的秘密死亡是中共对知情人灭口的开始，并揭露了美国NIH及其掌门人福奇的深度参与。
-
-善者不来，来者不善！面对当下全世界中共病毒感染人数接近1亿5千万，死亡人数超过3百万，美国感染人数超过3千2百万，死亡超过57万的史无前例的疫情灾难，塞林博士自1月17日开始就是有备而来，对病毒真相来源开门见山，直指CCP病毒就是来源于中共实验室，是中共军方在全世界搞军民融合，以蓝金黄手段集合全世界冠状病毒科学界精英，在舟山蝙蝠病毒骨架基础上进行病毒分离、基因功能改造及增强实验，最终开发出来的生物武器。强调任何疫苗接种都是灾难。关于还有专门的项目团队在开发让中国人免受新冠病毒感染的疫苗这一说法，恰好是对文贵先生爆出的“没有疫苗只有解药”，和中共“灭白计划”、反人类种族灭绝行动的应证。
-
-编辑/校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

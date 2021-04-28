@@ -1,74 +1,102 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 前苏联叛逃者警告使用生物武器
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1147185/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！(一)
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1147511/)
 
-编撰：文虓Bobby
+作者：纽约香草山信息部 6zero4
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/042901.jpg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-一名前苏联生物武器计划的叛逃者今天在接受采访时说，莫斯科针对第三次世界大战的冷战计划包括准备“数百吨”炭疽菌和数十吨天花和鼠疫病毒。
 
-叛逃者卡纳詹·阿利贝科夫博士(Dr. Kanatjan Alibekov)现在的名字是肯·阿利贝克(Ken Alibek)，他是前苏联项目一个分支的二号人物，于1992年叛逃。他今天说，这些细菌和病毒可能在20世纪80年代早期被安装在洲际弹道导弹弹头上。47岁的哈萨克人阿利贝克(Alibek)说，俄罗斯军方在1991年仍在进行生物武器计划，那是在米哈伊尔s戈尔巴乔夫(Mikhail S. Gorbachev)下令停止该计划一年之后。
 
-阿利贝克博士（Dr.Alibek)说，他决定首次公开发言，以打击生物武器的扩散，并为制造这些武器寻求宽恕, ABC新闻节目“黄金时间直播”的制片人联系了《纽约时报》，该电视台上个月采访了他，并将于周三晚上播出。
+今年以来，COVID-19主题专家、美军军情专家塞林博士 (Dr. Lawrence Sellin) 一系列的推文，体现了美国军情情报的中坚力量对中共病毒溯源的全面推进。尤其是通过公开网络资源与美国情报对参与制毒的解放军科学家的披露，吹响了对中共主动发起的这场超限生物战本质的认定和反击的冲锋号！同时，通过揭露中共军民融合的真面目，不仅揭露良知泯灭的中国科技工作者，更是曝光了利欲熏心的美国科学家。我们不妨以时间轴回看塞林博士揭露病毒真相的推文。
 
-阿利贝克博士（Dr.Alibek)是一名私人顾问，他为美国政府写了一份关于前苏联生物武器计划的高度机密研究报告。他现在提供了一份独特的公开描述，描述了几十年来一直是莫斯科最深的秘密之一的武器计划。
+代表美国核心力量的塞林博士对中共病毒来源真相有计划、有步骤地的揭秘行动，始于今年1月17日，塞林博士引用了自己一年前（即2020年2月6日）发布的推文， “柳叶刀上的一篇文章提供的原始证据表明病毒起源也许并不来自海鲜市场而是武毒所(WIV)病毒泄露”，披露中共国至今一直在对病毒起源撒谎！
 
-美国情报官员认为，阿利贝克（Dr.Alibek)在他一手掌握的问题上——1975年至1991年前苏联生物武器计划的规模和结构——是可信的，但在间接了解的政治和军事问题上，他却被认为不那么可靠。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS2413-【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！一-1.jpg)
 
-他说，他相信莫斯科冷战时期的生物武器计划仍在俄罗斯打着防御研究的幌子。1990年，戈尔巴乔夫总统正式取消了进攻性武器计划，1992年，鲍里斯·n·叶利钦(Boris N. Yeltsin)总统再次正式取消了该计划，在今天的俄罗斯，该计划一直没有正式生效。
+1月19日，塞林博士推文：“基于我的专业视角，COVID-19起源于中共实验室，如果不是直接生物战争意图的话，可能就是具军事意义的“功能获得”实验的结果。一场真相掩盖活动正在进行中！”
 
-然而，阿利贝克（Dr.Alibek)说，“他们继续研究开发新的生物制剂;他们进行研究，并解释说这是出于防御目的。”
 
-俄罗斯是否坚持研发生物武器的问题在美国情报界引起了激烈的争论。没有人能给出一个明确的答案。许多分析人士认为，前苏联旧计划的某些部分仍在继续，但远远不能确定其中是否包括发展进攻性武器。莫斯科和俄罗斯驻华盛顿大使馆今天都没有对阿利贝克博士（Dr.Alibek)的采访做出官方回应。
 
-“我们可以说，俄罗斯继续在这一领域进行研究，以保持其军事生物潜力，” 阿利贝克博士（Dr.Alibek）说。“他们保护他们的人员和科学知识的安全，而且他们仍然有生产能力。”
+> In my expert opinion, the origin of the COVID-19 virus was a laboratory in China, likely the result of "gain of function" experiments with military implications if not direct biological warfare intent. A cover-up is underway. Read my articles on the topic.[https://t.co/DSlhx33HnE](https://t.co/DSlhx33HnE)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [January 19, 2021](https://twitter.com/LawrenceSellin/status/1351455050187599872?ref_src=twsrc%5Etfw)
 
-近30年前，理查德·m·尼克松(Richard M. Nixon)总统取消了美国的生物武器计划。美国继续研究防御生物武器攻击的项目，正如俄罗斯所说的那样。
 
-但阿利贝克博士（Dr.Alibek）说，前苏联从未相信美国的生物武器计划已经结束。在20世纪70年代和80年代，他们在一场秘密的军备竞赛中追求自己的计划，以对抗他们认为的威胁。
 
-阿利贝克博士（Dr.Alibek）是一名医生，曾在前苏联军队中拥有上校军衔，1992年离开前苏联，从阿拉木图—那时的哈萨克斯坦的首都，乘坐商业飞机飞往纽约——虽然不像一些冷战叛逃者那样引人注目，但仍然是一个冒险的提议。他选择不讨论细节，说回国的朋友会遭殃。
+1月31日塞林博士推文：不可否认的证据表明COVID-19病毒来自实验室，并强调疫苗接种是一种令人绝望的治疗尝试！
 
-阿利贝克博士（Dr.Alibek）抵达美国后，受到了中央情报局(Central Intelligence Agency) 比尔·帕特里克(Bill Patrick)的盘问，1948年至1969年帕特里克曾协助管理美国的生物武器项目。
 
-“一旦决定叛逃，他就竭尽全力向美国讲述所有细节——流程、特工、战略、使用概念——以帮助我们了解这个世界上规模最大、历史最悠久的生物战项目，”帕特里克(Patrick)说。
 
-他说:“当我第一次和这个家伙说话的时候，吓死我了。”
+> Undeniable proof the COVID-19 virus was lab-made. Bronchial lavage of the initial Dec 2019 patients showed COVID-19 virus spike protein & adenovirus vector sequences, the same as in this study. Immunization was a desperate attempt at treatment in Dec 2019. [https://t.co/jaEiPxEnJk](https://t.co/jaEiPxEnJk)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [January 30, 2021](https://twitter.com/LawrenceSellin/status/1355568642570788868?ref_src=twsrc%5Etfw)
 
-帕特里克(Patrick)说，他在与阿利贝克博士（Dr.Alibek）的谈话中了解到，前苏联的项目在军事技术方面“与我们非常相似”，尽管“他们花了很多很多年时间，才在生物制剂、运载系统和弹药方面超过我们”。
 
-他和阿利贝克博士（Dr.Alibek）在各自的采访中说，到1989年，前苏联的项目让美国的努力相形见绌。“我们生产一磅东西，他们就生产一百到五百磅，”帕特里克(Patrick)说。
 
-但在1989年末，阿利贝克博士（Dr.Alibek）说，“美国和英国对前苏联施加了巨大压力，要求其停止进攻计划。”这也播下了怀疑的种子导致他的最终叛逃。
+2月1日塞林博士推文：呼吁人们关注病毒实验室起源的真相，提及2020年中国军事医学科学院微生物流行病研究所专注于冠状病毒研究的关键人物周育森的秘密死亡，周是中共国与在美国病毒研究机构工作的科学家们之间合作的一个接洽点。（周育森浮出水面）
 
-“有很长一段时间，我为从事这项工作感到自豪——直到上世纪80年代末，直到我以项目第一副主任的身份来到莫斯科，”他说。“然后，要求停止工作的压力来了。”
 
-他说，“我们坚信美国有一个进攻性计划，”前苏联必须与之抗衡。“我问两名高级军事情报官员是否有关于这些美国进攻性武器的信息。他们问我:‘你需要什么?’我回答:‘他们的名字、地点、组织、结构、人员数量、拥有什么样的代理人。’”
 
-“我被告知:‘我们没有这个信息，’”他说。“这是我第一次产生怀疑。”
+> Until his mysterious death last year, a key player in the Chinese military's coronavirus research was Yusen Zhou, who also was an interface between China and Chinese scientists operating in U.S. virus research laboratories.[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/CHuWmYQbKV](https://t.co/CHuWmYQbKV)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [February 1, 2021](https://twitter.com/LawrenceSellin/status/1356232578563416069?ref_src=twsrc%5Etfw)
 
-1979年，前苏联在斯维尔德洛夫斯克（Sverdlovsk）的一个武器工厂向大气中释放了炭疽菌，阿利贝克博士（Dr.Alibek）对此事件的描述引人注目。但今天，它受到了研究这场灾难的美国专家的挑战，其中包括哈佛大学(Harvard University)的马修·梅尔森(Matthew Meselson)博士和马里兰大学(University of Maryland)国际与安全研究中心(Center for International and Security Studies)的米尔顿·雷滕贝格(Milton Leitenberg)。
 
-阿利贝克博士（Dr.Alibek）说，“几乎所有去过那片云的人都死了”，死亡人数达到了数百人。梅尔森博士（Dr. Meselson）和雷滕伯格（Mr. Leitenberg）说，在有毒云团的“足迹”或路径上，有成千上万的人;已确认62人死亡。
 
-阿利贝克博士（Dr.Alibek）还说，叶利钦总统（President Yeltsin）当时是斯维尔德洛夫斯克（Sverdlovsk）当地的共产党领导人，他个人和道德上都对掩盖这一事件负有责任。
+2月2日塞林博士推文：COVID-19病毒的军方背景，贯穿重庆的第一军医大学，广州的第三军医大学和南京军区医学研究院等。早在2006到2007年，WIV就已经在进行蝙蝠病毒感染人类的基因改造工程，冠状病毒研究网络牵涉中共生物武器项目的研究人员。并贴出一篇自己2020年9月6日发表在CCNS上的一片文章，披露了中共对美国病毒研究项目的大规模渗透，揭露福奇的国立卫生研究院 (NIH)用美国纳税人的钱资助了中国军方。（福奇和NIH浮出水面）
 
-他说:“叶利钦（Yeltsin）要为包含这些信息所做的一切负责。”他还说，他认为俄罗斯军方领导人利用这一事实胁迫叶利钦（Yeltsin）继续秘密的生物武器计划。
 
-如果这一理论是正确的，就可以解释前苏联时代建造更好生物武器计划的持续存在。但据几名情报分析人士称，人们普遍认为，在掩盖斯维尔德洛夫斯克（Sverdlovsk）事件的过程中，扮演主要角色的是前苏联情报机构克格勃(KGB)，而不是叶利钦（Yeltsin）。
 
-对阿利贝克博士（Dr.Alibek）来说，曾经吞噬了他生命的生物武器军备竞赛，现在是一场阻止此类武器扩散到恐怖组织和流氓国家的竞赛。“政府和这些组织之间存在着无形的竞争，”他说。“谁更快?谁就准备得更充分?”
+> What this article describes is only the tip of the iceberg of the massive infiltration of U.S. virus research programs by individuals from or connected with the Chinese military, many of which has been funded by Dr. Anthony Fauci’s NIH institute. [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/6Ugpx2ni4S](https://t.co/6Ugpx2ni4S)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [February 2, 2021](https://twitter.com/LawrenceSellin/status/1356485425452433409?ref_src=twsrc%5Etfw)
 
-他说，答案可能在于他的前苏联同事们的决定，他们要么为和平而努力，要么为出价最高的人而努力。“他们现在无处不在，”他说。“大多数人在俄罗斯。但有些是在海外。我们已经失去了对他们的控制。”
 
-在此时，《纽约时报》报道出前苏联叛逃者警告世界生物武器的使用，生物武器的巨大危害和造成的重大人员伤亡，让人们感到恐怖至极。由此说明美国的“左、中、右”各派力量已经针对目前CCP病毒事宜完全站在一起，要求追查病毒来源。经过前期针对病毒的一系列铺垫，包括CCP病毒来自实验室、塞林博士关于CCP病毒来源的推文、闫博士的关于CCP病毒三篇论文报告的发布、班农先生的作战室的节目等等，已经让美国的民众逐步意识到病毒是人工设计合成的，那么这篇文章就是在告诉美国大众，美国已经受到了生物武器的袭击，而且这是来自CCP 的、经过功能增强实验的、更容易感染人类的生物武器！美国的民意在一步步被唤起，下一步就会向CCP追究责任并进行纽伦堡大审判，邪恶必须接受正义的判决！
 
-[援引原文](https://www.nytimes.com/1998/02/25/world/soviet-defector-warns-of-biological-weapons.html)
+2月3日塞林博士推文：其实中共军方早在2002-2003年期间的第一次SARS大流行后就深入参与了冠状病毒的研究，包括与WIV基因工程的合作。
 
-审核校对：玫瑰天空
-上传排版：糖果儿
+
+
+> China's People's Liberation Army (PLA) was deeply involved in coronavirus research after the first SARS pandemic (2002-2003), including genetic engineering & collaboration with the Wuhan Institute of Virology. After 2009, PLA coronavirus research went dark.[https://t.co/AhLfTQ7fJh](https://t.co/AhLfTQ7fJh)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [February 3, 2021](https://twitter.com/LawrenceSellin/status/1356978776987598851?ref_src=twsrc%5Etfw)
+
+
+
+2月9日塞林博士推文：WHO支持病毒来源于自然以帮助中共国掩盖病毒真相，而来源于实验室的证据是压倒性的。（WHO浮出水面）
+
+
+
+> A World Health Organization cover-up of China's culpability. Evidence for a laboratory origin of the COVID-19 is overwhelming compared to the pure conjecture supporting a conclusion that it was naturally-occurring.[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/ziO74OKkSd](https://t.co/ziO74OKkSd)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [February 9, 2021](https://twitter.com/LawrenceSellin/status/1359131261093113861?ref_src=twsrc%5Etfw)
+
+
+
+2月10日塞林博士推文贴出一张“CCP VIRUS”图片，阐述了中共国正在进行一个专门针对保护中国人免受COVID-19感染的病毒疫苗开发的大项目。
+
+
+
+> China has a major research program to develop virus vaccines that specifically protect Chinese people.[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDVaccine](https://twitter.com/hashtag/COVIDVaccine?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaVaccine](https://twitter.com/hashtag/CoronaVaccine?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/kwRdNC25uF](https://t.co/kwRdNC25uF)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [February 10, 2021](https://twitter.com/LawrenceSellin/status/1359500491424604164?ref_src=twsrc%5Etfw)
+
+
+
+综合以上推文，塞林博士揭露了中共军方早在2003年SARS疫情后就已经开始了冠状病毒的研究，WHO自本次疫情开始就一直配合中共对病毒真相进行掩盖，披露了中美病毒科学界合作的窗口人物周育森的秘密死亡是中共对知情人灭口的开始，并揭露了美国NIH及其掌门人福奇的深度参与。
+
+善者不来，来者不善！面对当下全世界中共病毒感染人数接近1亿5千万，死亡人数超过3百万，美国感染人数超过3千2百万，死亡超过57万的史无前例的疫情灾难，塞林博士自1月17日开始就是有备而来，对病毒真相来源开门见山，直指CCP病毒就是来源于中共实验室，是中共军方在全世界搞军民融合，以蓝金黄手段集合全世界冠状病毒科学界精英，在舟山蝙蝠病毒骨架基础上进行病毒分离、基因功能改造及增强实验，最终开发出来的生物武器。强调任何疫苗接种都是灾难。关于还有专门的项目团队在开发让中国人免受新冠病毒感染的疫苗这一说法，恰好是对文贵先生爆出的“没有疫苗只有解药”，和中共“灭白计划”、反人类种族灭绝行动的应证。
+
+编辑/校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

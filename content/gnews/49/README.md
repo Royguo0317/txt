@@ -1,46 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【币圈】-数字货币动态-2021.04.28
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1146878/)
+## 【班农战斗室】903-904-905期简讯
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1147028/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
-![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image5.jpg)
-### 币圈的一天，从“千树万树梨花开”开始。
+#### **翻译：七彩光**
 
-## **每日一问**
+#### **校对/编辑： 文泓**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/903-904-905_.png)
+图片来源：墨尔本雅典娜农场设计组（精灵蓝）
 
-*投资，是在赚自己的钱，还是赚别人的钱？*
+**本期导读：**
 
-## **喜马拉雅Coin要闻**
+川普支持者MAGA运动继在佐治亚州基层选举大获全胜后，《UncoverDC》的主编特蕾西·比恩兹解释了MAGA在南卡罗莱纳州也获得了同样的胜利；民主党人审计师约翰•布雷基（John Brakey）说，亚利桑那州马里科帕县的选票审计是大选以来第一次真正的审计；弗兰克•加夫尼指出，美国必须加入抵制“种族灭绝游戏”（北京冬奥会）的行动。
 
-- KYC验证正在如火如荼地进行中！系统也受到CCP的疯狂攻击！
-- Etherscan显示，高达1亿美元的资金于27日购进Himalaya Dollar (HDO)。
+**主持人：史蒂夫****.班农**
 
+嘉宾：Maureen Bannon, John Brakey, Tracy Beanz, Cpt Corey Ray, Chris Fenton, Dr. Peter Navarro, Tom Del Beccaro, Ben Bergquam, Adam Brandon
 
-## **新闻动态**
+**1、MAGA接管南卡罗莱纳州共和党进行时**
 
-1. Tesla在稍早投资者电话会议中公布了第一季财报，其现金流量表显示，数字资产出售额达2.72亿美元，约占比特币持有量的 10%。
-2. 在过去一年中，以太币期权交易的未平仓合约从5000万美元增加到40亿美元。以太坊期权未平仓合约增长80倍，机构偏好上升。
-3. Gemini交易所将为其即将推出的万事达信用卡的用户提供高达3%的加密货币形式的返现。
-4. Binance加密货币交易所的新NFT平台和市场将于6月推出，与Binance.com共享相同的账户系统。
-5. 据1st News报道，尼日利亚酒店George Residence现已接受比特币支付，成为了尼日利亚第一家接受比特币的酒店。此外，酒店首席执行官’Yanju George透露，为了对冲法币的通货膨胀，酒店还会将比特币作为他们的主要储备资产。
-6. 荷兰音乐组合 Bassjackers 将于4月30日发布6首NFT曲目，拍卖持续到5月2日结束。该系列NFT由视觉艺术家Gergo Szabo参与制作。
-7. 俄罗斯航天局测试Waves Enterprise的IP Guard解决方案，成为第一个使用区块链来保护知识产权的组织。
-8. 为减轻经济制裁的破坏性影响而制定的战略，伊朗公司可以用加密货币来支付原材料和电子产品等的进口费用。
-9. 根据ShapeShift的报告，ShapeShift已经确定了两个无关联的项目作为DeFi保险协议，可以使DeFi免受传染。
-10. COVID-19已经在印度感染了1760多万人。Polygon联合创始人为印度COVID-19救援筹集了220万美元资金，以帮助该国应对这场灾难。
-11. 卢森堡总理Xavier Bettel表示，他 “不是一个技术人员 “或开发人员，但仍然支持区块链技术在卢森堡的未来，希望国家成为区块链领域的 “数字领跑者。
-12. 据报道，在两家主要交易所被指控欺诈后，土耳其可能建立中央托管银行。Vebitcoin首席执行官Ilker Bas被警方拘留，Thodex所有者Faruk Fatih Özer被怀疑已逃往阿尔巴尼亚。
-13. The Phnom Penh Post报道，印尼商品期货交易监管局（Bappebti）正考虑对加密货币交易进行征税，税率尚未讨论。
-14. 数字货币集团（DCG）和Coinbase进入了《时代周刊》2021年最有影响力的100家公司名单。
+《UncoverDC》的主编特蕾西·比恩兹（Tracy Beanz）解释了MAGA运动如何利用丹•舒尔茨（Dan Schultz）的“社区战略”占领了南卡罗来纳州（South Carolina）。
 
+比恩兹周二告诉《战斗室》，有600多人参加了当地的共和党（GOP）基层选举，是两年前的三倍多。
 
+MAGA成功的秘诀是什么？“坚守你的诺言，诚实地工作，不让任何人接管……然后坚持你的立场，说到做到。”
 
+比恩兹还解释了在阻止共和党建制派举行在线网络大会的下一步工作。
 
+“这些（建制派）共和党人在许多方面比民主党人更糟糕，”她说。
 
+# 2、民主党审计师：亚利桑那州的（选票）审计是大选以来第一次真正意义上的审计
 
-*编辑：aQ
-发布：文顾*
+民主党人审计师、伯尼•桑德斯（Bernie Sanders）的支持者约翰•布雷基（John Brakey）说，马里科帕县（Maricopa County）的选票审计是大选以来第一次真正的审计。
 
-+1
+这位“审计美国（Audit USA）”组织的联合创始人兼执行长告诉《战斗室》，以前的审计相当于在同样的投票机上运行同样有瑕疵的选票，等于换汤不换药。
+
+布雷基说，11月3日选举中的选民欺诈等同于大众汽车的排放作弊丑闻。
+
+【备注：大众集团汽车废气排放丑闻（Volkswagen emissions scandal）、柴油门、排放门，是指大众集团（VW）于2015年9月，被美国国家环境保护局（EPA）查获，其在美国销售的车辆，发动机控制器都植入了特殊软件，以规避官方检验的事件。】
+
+“（大选）真的没有进行过任何审计”，布雷基说：“这与大众汽车公司通过柴油车的排放测试（作弊）没有什么不同。”
+
+“他们制造了一台计算机，知道什么时候可以作弊，”他说。
+
+# 3、如何对抗中共的“种族灭绝游戏”—北京冬奥会
+
+作家和平民主义中国问题专家克里斯•芬顿（Chris Fenton）和科里•雷（Corey Ray）上尉就美国对下届北京冬季奥运会的影响力，以及发起抵制的最佳策略进行了论述。
+
+【克里斯·芬顿（Chris Fenton）是好莱坞制片人。是去年他出版的个人回忆录《放飞龙，置身于好莱坞、NBA和美企面临的万亿美元难题》的作者和《喂龙》（Feeding the Drago‪n Podcast）播客节目的主持人。】
+
+【科里•雷（Corey Ray）上尉是国家战争学院战略与政策系主任和助理教授。1991年毕业于瓦拉瓦拉学院，获得工程学士学位，通过航空军官候补学校受命，在1992年被指定为海军飞行军官，并有资格作为P-3C猎户座的战术协调员（TACCO）。】
+
+芬顿说，美国应该与盟国合作，退出（冬季）奥运会，中国不仅会把奥运会作为对抗世界的宣传工具，而且也会对自己的人民进行宣传。
+
+班农说，类似的情况发生在1936年的柏林（奥运会），美国必须要求（中共）就武汉实验室和维吾尔族种族灭绝问题作出答复。
+
+他说：“在未来的300天里，我们有大量的筹码可用。”
+
+弗兰克•加夫尼（Frank Gaffney）周一晚间告诉《战斗室》，美国必须加入抵制“种族灭绝游戏”（也称为北京冬奥会）的行动。
+
+【**备注：**弗兰克•加夫尼（Frank Gaffney）是外交、国防及国家安全政策专家，目前担任“应对中共当前危险委员会” （Committee on the Present Danger:China）的副主席，并是一家电台的主持人。他曾担任里根政府时期国防部代理助理部长，也曾是《华盛顿时报》（Washington Times）的专栏作家和国家评论（National Review）网上杂志的编辑。】
+
+**参考资料：**[维基百科](https://www.wikipedia.org/)
+
+**原文链接：**
+
+# 1.  [MAGA Takeover of South Carolina GOP Underway](https://pandemic.warroom.org/2021/04/27/maga-takeover-of-south-carolina-gop-underway/)
+
+# 2.  [Democrat Auditor: Arizona Audit First Real Audit Since the Election](https://pandemic.warroom.org/2021/04/27/democrat-auditor-arizona-audit-first-real-audit-since-the-election/)
+
+# 3.  [How to Confront the CCP’s ‘Genocide Games,’ the Beijing Olympics](https://pandemic.warroom.org/2021/04/27/how-to-confront-the-ccps-genocide-games-the-beijing-olympics/)
+
+0

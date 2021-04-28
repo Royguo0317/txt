@@ -1,15 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 又撒了多少币习大神邀请独裁国家为其政权合法性站台
-` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1147491/)
+## 【有声读物】欧盟向接种疫苗的美国游客敞开大门
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1147958/)
 
-**制作：Cantonese工作室**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image0.png8_.jpg)
-**近日，中共喉舌新华社又作妖，播放了一则委国统一社会主义党副主席阿丹.查韦斯为习大神站台的新闻，内容及其肉麻谄媚，可谓睁着眼睛说瞎话。**讲话内容恬不知耻地用“硕果累累”、“伟大胜利”、“中国人民乃至全人类幸福感”来形容。而委国统一社会主义党是该国“左派”政党，臭名昭著的独裁者马杜罗正正是该党成员。
+配音：香草山录音组 蒙古鸿雁
 
-**笔者留意到**，文字版上述新闻中更有以下内容——“采访中，查韦斯取出书架上摆放着的《习近平谈治国理政》第三卷说，阅读中国领导人的著作，可以帮助自己了解中国发展过程中迸发出的新思想、新视野、新进展，委内瑞拉驻古巴使馆已成立学习小组，讨论、分析、深入了解书中的理论。”从此段文字可以看出，本次作秀，主要力捧的对象是习大神。不知是经费不足还是国际上已经没人敢赤裸裸地接这单生意，连马杜罗都请不出来，只请到了所谓党副主席。众所周知目前委国现状——独裁统治、民不聊生。而这个瞎话张口就来的党副主席对习大神的吹捧，只能表明学习这套“治国理念”有多荒唐可笑。一个独裁国家找另外一个独裁国家站台，可见CCP已经慌不择路，饥不择食，末日近了。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image1.png9_.jpg)
-**作者： 【文林】 审核：【 文武全才】 发布：【向阳6768】**
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
+
+
+
+
+
+据零对冲4月26日的报道，由于许多欧盟成员国急于恢复旅游业以及税收的目的，欧盟向完全接种疫苗的美国游客敞开大门，这是具有里程碑意义的政策转变，欧盟正朝着毫不掩饰地拥护“疫苗护照”的政策发展。
+
+援引《纽约时报》对欧盟委员会主席乌苏拉-冯德莱恩的采访报道说，欧洲计划允许已经完全接种疫苗的美国游客在夏季访问欧盟。这个信息是明确无误的，旅游股因此而反弹。冯德莱恩将美国和欧洲监管机构之间的“高级会谈”作为欧洲认为有理由推出“疫苗护照”的众多原因之一。
+
+
+
+**文字版原文：[【热点播报】欧盟向接种疫苗的美国游客敞开大门](https://gnews.org/zh-hans/1141533/)**
+
+作者：纽约香草山写作组 四季
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
