@@ -1,51 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【健身健心】健身不练腿 早晚要后悔
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1145747/)
+## 中共病毒正在肆意屠戳印度，感染人数破千万
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1145859/)
 
-作者：纽约香草山健身部 周一
+翻译&评论: Hong
 
+印度卫生部今天（27日）最新数据显示，一天之内，有超过32.3万人中共病毒感染检测呈阳性，确认中共病毒感染病例总数已飙超1700万例，27日上午8点公布的数据显示,累计死于中共病毒的人数超过19.7万 ,单日新增死亡人数2771人。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1619577306.png)图片来自wionews
+从去年8月7日中共病毒爆发开始，印度累计确诊感染中共病毒病例首破200万大关，从此中共病毒犹如定时炸弹，随时引爆，8月23日感染病例突破300万例， 9月5日为400万感染病例， 9月16日突破500万例，9月28日突破600万例， 10月11日突破了700万例，10月29日为800万例，11月20日打破900万例大关，12月19日确诊感染人数暴增到1000万例。最新官方数据显示，4月9日印度累计确诊感染中共病毒病例增至1500万例,印度政府表示这个数字已经达到了一个严峻里程碑关头。
 
+目前被中共病毒摧残的印度，医疗系统处于崩溃状态，医用氧气已耗尽，感染中共病毒的患者因氧气短缺而处于病危状态，或因缺氧而死亡。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+由于中共病毒持续恶化，印度专家呼吁人们呆在家中，避免走出家门，尽量不要在家里接待来访客人。即使呆在家里不出门，也要戴口罩，以避免在说话、吃饭、唱歌和呼吸时被中共不断变异的病毒感染。
 
+印度正处在中共病毒最危机的时刻，许多国际盟友都相继向印度伸出了援助之手，雪中送炭，提供氧气设备、个人防护装备等其他重要的医用物资，以便帮助印度逃出中共病毒的炼狱。然而，中共政权不仅见死不救，反而还落井下石；中共供应商趁火打劫，对印度采购商提高了35%-40% 医疗用品的价格，运费也提高了20%以上。4月3日中共官媒又发布出幸灾乐祸，带有威胁性的言论；雪上加霜的是，4月26日中共国四川航空公司做出了暂停了所有飞往印度货运航班的不人道的做法。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1619577305.png)图片来自网络
+当下，如果印度要向中共政权寻求帮助的话，那就是向中共要解药，不然除了灭共，别无出路，因为中共故意释放生物武器，中共是造成这次病毒疫情灾难的始作俑者。
 
+（文章仅代表作者本人观点,与GNews无关）
 
-“新手健胸，老手健腿”——这是健身房里流行的一句话。很多人去健身房拼命锻炼腹肌、胸肌和手臂，而往往忽略了腿部肌肉地训练。实际上，练腿是非常重要的。
+审稿：文筝      编辑：五饼二鱼
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-485.png)图片来源：见水印
+新闻参考来源：
 
-人体最大的肌肉虽然不在腿部，但腿部却占了人体70%的肌肉，而人体当中最有力的肌肉也在腿部。腿部属于大肌群，肌肉含量最多，经常练腿能促进全身肌肉的增长。并且，练腿还能刺激身体分泌更多的睾酮素，这无论是对于增肌还是提高运动表现能力来说，无疑都是很好的。所以，腿部是人体运动的核心所在，是我们力量的源泉。
+[1] [https://www.wionews.com/india-news/india-reports-323144-new-covid-19-cases-in-last-24-hours-380680](https://www.wionews.com/india-news/india-reports-323144-new-covid-19-cases-in-last-24-hours-380680)
 
-人体过了三十岁，肌肉每年都会以3%的速度在流失——这也就是为什么我们看到很多老年人腿部很细，容易摔倒的原因。那么，为了对抗肌肉的流失，就要坚持地训练腿部肌肉。同时，练腿也能很好地刺激我们的神经系统，从而增强腿部的灵活性并保持身体的平衡能力——根基稳定了，灵活才会有保障。
+[2] [https://www.hindustantimes.com/india-news/5-covid-patients-die-in-hisar-hospital-kin-allege-oxygen-shortage-101619486034954.html](https://www.hindustantimes.com/india-news/5-covid-patients-die-in-hisar-hospital-kin-allege-oxygen-shortage-101619486034954.html)
 
-另外，练腿会增强你腰部的肌肉力量。腿部肌肉神经越发达，男女之间的生活也会更加的和谐。
+[3] [https://www.wionews.com/india-news/chinas-airline-suspends-cargo-flights-bringing-medical-supplies-to-india-380681](https://www.wionews.com/india-news/chinas-airline-suspends-cargo-flights-bringing-medical-supplies-to-india-380681)
 
-总之，健身一定要练腿，有一双强健有力的双腿，即使到了老的那一天，你也可以来一场说走就走的旅行。
-
-（本文仅代表作者观点）
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-+5
+[4] [https://www.youtube.com/watch?v=bdFJ-obnl9k](https://www.youtube.com/watch?v=bdFJ-obnl9k)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2-1.jpg)
++1
