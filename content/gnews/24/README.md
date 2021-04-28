@@ -1,25 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港手足家书-第十八期】 【十个春秋】『国语译本』
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1147723/)
+## 【有声读物】媒体平台的重要性
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1147911/)
 
-收集/翻译/整理：【喜马拉雅-粤语组】sherry/卡西欧/小叮咛、
-![]()![](https://gnews.org/wp-content/uploads/2021/04/18-1.png)
-今天我要真要表扬一下刘頴匡，前几天， 我收到他16号给我的信，原来他改编了林家谦的新歌《神奇的糊涂魔药》
+配音：香草山录音组 蒙古鸿雁
 
-这首歌发布不够一个月， 意味着刘頴匡只能够在收押所透过收音机草草听过几次，居然已经可以改编全首词出嚟，他真太励害了
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-今天我去探访，他说这首改编的歌词是在说我的故事，写的时候有几次忍不住流泪，说起「挚友」这个称呼，的确，我和他在惩教署相处的记忆里面，只是普遍「朋友」， 打个比喻，如果我在外面被撞车，他是不可能以挚友的身份申请来看我（不过话又说回来，如果我真的死了，你也不用来看）
 
-这两日我跟着旋律拍子轻哼，内心有点纠结， 表面上轻描淡写，但内容都非常写实，尤其是那种分隔「十个春秋」的无奈，在如此轻快的音乐的衬托下更显沉重， 也是我们现在天天在狱中苦中作乐、 尝试乐观面对的心态。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/十個-春秋.jpg)
-说起苦中作乐，一定要提一提：昨天15分钟的探访结束后，他突然间用蓝色原子笔将自己其中一只指甲涂成蓝色，然后望住我笑， 指一下我的手。原来，他居然留意到我前一日 换咗涂的指甲油慨款式，变成蓝色猫眼 （本来是粉红色）
 
-#他变了 #每天都在聚精会神找不同
 
-原文链接：[TG电报群：香港被捕手足家书](https://t.me/youarenotalonehk_mailbox/792)
 
-审核/上传：文粤
+
+
+近日，纽约香草山农场很多战友的社交媒体账号，因为发布郭文贵先生4月21日的爆料：“谈病毒解药和疫苗的视频”，被推特、YouTube公司，以违反传播COVID-19相关信息的政策为由，封停或冻结，无法正常使用，严重影响了真相地日常传播。
+
+4月21日，文贵先生爆料：“共产党的病毒，是生化武器，永远不可能有疫苗，所有的疫苗都是假的。不搞清楚病毒是来自生化武器还是自然，就不可能有疫苗。人类从没有在6个月这么短的时间内生产过任何疫苗。虽然没有疫苗，但是有解药！现在科学家、国内的情报和在欧洲的那位朋友明确地告诉我们，共产党有解药。疫苗是假的、是害人的，但是，共产党有解药。在制造这个武器的时候，他们就制造了解药。这就是真相。要想活下去，就去找共产党要解药。”
+
+
+
+**文字版原文：[【战友心声】媒体平台的重要性](https://gnews.org/zh-hans/1142075/)**
+
+作者：纽约香草山媒体部 天下大同
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

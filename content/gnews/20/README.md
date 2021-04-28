@@ -1,25 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评粤语快报】04.27：习近平视察广西全力掌控南部战区王牌军 SELLIN博士发推显示收网的时间快到了
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1147904/)
+## 慧眼看世界20210428（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1147721/)
 
-制作团队：【喜马拉雅-粤语组】wen fei、打杂的、文恩
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-主要内容
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-19.jpg)
 
-1、习近平到广西桂林柳州走一趟，全力掌控南部战区王牌军控制权意味着什么？
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-20.jpg)
 
-2、日本322页外交蓝皮书首提中共威胁意味着什么？
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-19.jpg)
 
-3、SELLIN博士发推显示收网的时间快到了
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-21.jpg)
 
-4、中共舆论开始批世卫组织是亲美反华势力控制的
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-19.jpg)
 
-【路德时评】[原视频链接1](https://youtu.be/eyK_Sq5wKtM)  [原视频链接2](https://youtu.be/1lh0Hw54iCw)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-17.jpg)
 
-上传：流光飞舞
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-17.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-17.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-17.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-24.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-29.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-28.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-22.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-21.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-21.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-18.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-16.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/18-13.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/19-11.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20-21.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/21-7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/22-4.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/23-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/24-2.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0

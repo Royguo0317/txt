@@ -1,47 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】点燃更多的灯：照亮神佛庇佑的土地
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1147167/)
+## 新疆血棉后易建联依旧力挺耐克说明了什么？
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1147174/)
 
-配音：香草山录音组 Swr拥抱太阳
+撰稿：自由战士
+![]()![](https://gnews.org/wp-content/uploads/2021/04/281-2-1.png)图片来自网络
+在中共国墙内，众所周知，最近一段时间围绕耐克新疆血棉的事件持续发酵的过程中，耐克被中共媒体推上了风口浪尖，全国疯狂抵制耐克的时候，令人不可思议的是开始耐克的股市一度出现狂涨的态势，这个资本市场是不会撒谎的，一方面证明的了中共的邪恶和无理取闹，另外一方面证明国际时候对新疆棉花的打压和禁用也是正确的选择。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+我们今天需要讨论和关注的话题是，在这个特殊时期，中国男篮一哥易建联的举动让中共内部和媒体抓狂，易建联在新疆棉花事件后，出现在一个耐克的活动中，而且还在篮球上签名，因为大家知道目前在墙内易建联是耐克的签约运动员。如果是签约的运动员，为自己代言的品牌宣传是理所应当和法律允许的事情，但是在墙内引来了一片声讨和谴责。认为易建联是背弃国家利益的败类，不以国家和党的利益为重。甚至有些媒体还来抹黑易建联是为了那个500w每年的代言费而拒绝道歉的。
 
+接着我查看了过往的历史，首先，易建联在NBA打球期间的工资待遇如下：
+![]()![](https://gnews.org/wp-content/uploads/2021/04/283.png)图片来自网络
+大家要知道，这个只是鼎盛时期在美国的工资而已，没有包括在CBA的工资所得和其他广告代言收入，如果易建联是为了这个500w而做的决定的话，简直是可笑之极。
 
+其次，在前些年，易建联在CBA赛场上公然脱下李宁换成耐克，理由是李宁容易受伤 ，这个对于一个职业运动员来说，对装备的认知度和舒适度肯定是了解很深的，另外就是对自己职业生涯的保护。这件事情，证明易建联对于耐克和李宁等国产品牌的质量是有自己一杆秤的。
 
+再次，易建联在NBA的职业生涯那么多年，难免会被西方的自由和民主的气氛感染，对于真相的坚持，肯定有自己的看法，另外对于中共的无礼强压表现出来的执着和正义的做法，不难看出易建联骨子里还是有那么一股正义的火种的。
 
+最后，这个只是自己的猜测，同样都是体育圈，他会不会对郝海东的64新中国联邦的成立也了解一二，对于未来也是充满了希望，只是迫于国内的压力无法表明支持，但是以擦边球的形式来表达自己和中共的切割。希望我的这个推测是对的。希望外来更多的各行各业的有影响力的战友们加入新中国联邦，加入灭共的队伍。
 
-我们与末日正擦肩而过
+灭共不分先后，不分高低贵贱，不分行业，只要有一颗追求法治民主自由的心，新中国联邦就是你移居之地。
 
-但真正的灾难还没到来
+（本文仅只代表个人观点）
 
-勒紧裤带，擦亮眼睛
-
-你会看清：未来的历史和今天的真相
-
-
-
-**文字版原文：[【香草诗词汇】点燃更多的灯：照亮神佛庇佑的土地](https://gnews.org/zh-hans/576747/)**
-
-作者：香草山写作组 木白
-
-
-
-音频处理/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*审核：五饼二鱼（文荣） 编辑：MG1*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2-1.jpg)
 0
