@@ -1,59 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 京东使用数字人民币发工资
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1146964/)
+## 【班农战斗室】903-904-905期简讯
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1147028/)
 
-新闻来源：《零对冲（ZeroHedge）》| 作者：泰勒·德登（Tyler Durden） | 发布时间：2021年4月26日
-翻译/简评：Claire | 校对：SilverSpurs7 | 审核：万人往 | Page：Daoiii
+#### **翻译：七彩光**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ySxKmWqchaCmz/images/40db1b49-afc2-4b6c-bf91-ddd168efbc80.png?asset_id=4ec1692e-7e2a-46f0-a061-837e0790b000&amp;img_etag=%222809f3925c276ff27e9549219fe329b3%22&amp;size=2560)](https://spark.adobe.com/page/ySxKmWqchaCmz/images/40db1b49-afc2-4b6c-bf91-ddd168efbc80.png?asset_id=4ec1692e-7e2a-46f0-a061-837e0790b000&amp;img_etag=%222809f3925c276ff27e9549219fe329b3%22&amp;size=1024)图片来源：coinquora
+#### **校对/编辑： 文泓**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/903-904-905_.png)
+图片来源：墨尔本雅典娜农场设计组（精灵蓝）
 
-**简评：**
+**本期导读：**
 
-**中共国电子商务巨头京东目前表示，已使用数字人民币支付员工薪水。作为综合技术服务商，京东将为数字人民币试点提供供应链、场景与技术三个层面的服务。除此之外，马云的蚂蚁集团、Bilibili、美团和滴滴打车也已开始接受使用数字人民币交易。数字人民币是中国人民银行（即央行）推出的一种法定数字货币，它或将成为全球第一个由央行推出的法定数字货币。**
+川普支持者MAGA运动继在佐治亚州基层选举大获全胜后，《UncoverDC》的主编特蕾西·比恩兹解释了MAGA在南卡罗莱纳州也获得了同样的胜利；民主党人审计师约翰•布雷基（John Brakey）说，亚利桑那州马里科帕县的选票审计是大选以来第一次真正的审计；弗兰克•加夫尼指出，美国必须加入抵制“种族灭绝游戏”（北京冬奥会）的行动。
 
-**然而，时至今日，以比特币为代表的加密货币在中国仍被禁止。在中共和央行大力宣传数字人民币的必要性和重要性的背后，隐藏的是中共掌控每一笔交易和每一个货币持有者身份的野心。使用数字人民币交易，消费的隐私性完全消失，每一分钱都会被监控，都可以无限追溯。而中共强调的所谓的匿名性，是人与人的匿名，不是人与银行的匿名。银行可以随时监测消费者账户的消费动向。为了满足自己的掌控欲和贪欲，中共无所不用其极地侵吞百姓财富，明目张胆地割韭菜。大家都快醒过来，认清中共地邪恶本质吧，共产党不灭，永远都没有自由、民主、富裕的生活。**
+**主持人：史蒂夫****.班农**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ySxKmWqchaCmz/images/1df800fe-acf7-4958-8880-fa1fcdad9732.jpg?asset_id=54f99108-f582-41ef-bf5b-3c2036ded25e&amp;img_etag=%228b34be111f0030da6338b0acbe8ef11b%22&amp;size=1024)](https://spark.adobe.com/page/ySxKmWqchaCmz/images/1df800fe-acf7-4958-8880-fa1fcdad9732.jpg?asset_id=54f99108-f582-41ef-bf5b-3c2036ded25e&amp;img_etag=%228b34be111f0030da6338b0acbe8ef11b%22&amp;size=1024)
+嘉宾：Maureen Bannon, John Brakey, Tracy Beanz, Cpt Corey Ray, Chris Fenton, Dr. Peter Navarro, Tom Del Beccaro, Ben Bergquam, Adam Brandon
 
-**原文翻译：**
+**1、MAGA接管南卡罗莱纳州共和党进行时**
 
-## 中共国电子商务巨头京东使用数字货币支付员工薪水
+《UncoverDC》的主编特蕾西·比恩兹（Tracy Beanz）解释了MAGA运动如何利用丹•舒尔茨（Dan Schultz）的“社区战略”占领了南卡罗来纳州（South Carolina）。
 
-直接与马云（Jack Ma）的阿里巴巴竞争的中国电子商务巨头京东（JD.com）周日表示，已开始使用数字人民币支付部分员工薪水。数字人民币是实体货币的虚拟版本，据称有些货币有望超过美元，并成为下一个全球储备货币。
+比恩兹周二告诉《战斗室》，有600多人参加了当地的共和党（GOP）基层选举，是两年前的三倍多。
 
-京东表示，自去年9月与中国人民银行合作以来，已为苏州、北京和成都的数字人民币试用计划提供技术和服务支持。
+MAGA成功的秘诀是什么？“坚守你的诺言，诚实地工作，不让任何人接管……然后坚持你的立场，说到做到。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ySxKmWqchaCmz/images/6388d255-1a5d-4ed5-9655-f83871ec73cb.png?asset_id=e6f17d80-3164-40ca-a450-68b3fd20ef12&amp;img_etag=%22cb7cc94094031ebc65d26e60c36477f7%22&amp;size=2560)](https://spark.adobe.com/page/ySxKmWqchaCmz/images/6388d255-1a5d-4ed5-9655-f83871ec73cb.png?asset_id=e6f17d80-3164-40ca-a450-68b3fd20ef12&amp;img_etag=%22cb7cc94094031ebc65d26e60c36477f7%22&amp;size=1024)
+比恩兹还解释了在阻止共和党建制派举行在线网络大会的下一步工作。
 
-正如我们广泛报道的那样，过去几个月来，中共国一直在忙于尝试数字货币，并有望成为世界上第一个发行其法定货币数字化版本的主要经济体。这可能会在2022年北京冬季奥运会被更广泛地推出。10月份，以南方先进经济政策著称的深圳向50万居民发放了价值1000万元人民币、可以在某些线上和线下零售商购物的数字货币。
+“这些（建制派）共和党人在许多方面比民主党人更糟糕，”她说。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ySxKmWqchaCmz/images/0d342606-f6e5-4c71-9e69-e02047521a71.png?asset_id=84a273f5-56c1-4567-9495-f389701e495d&amp;img_etag=%226659b1ad95cad52c787dd3c8215c181f%22&amp;size=1024)](https://spark.adobe.com/page/ySxKmWqchaCmz/images/0d342606-f6e5-4c71-9e69-e02047521a71.png?asset_id=84a273f5-56c1-4567-9495-f389701e495d&amp;img_etag=%226659b1ad95cad52c787dd3c8215c181f%22&amp;size=1024)
+# 2、民主党审计师：亚利桑那州的（选票）审计是大选以来第一次真正意义上的审计
 
-中共国的其他几个大城市也效仿了深圳的做法。这些地区的居民必须通过选定的银行申请才能使用数字人民币进行收款和付款。
+民主党人审计师、伯尼•桑德斯（Bernie Sanders）的支持者约翰•布雷基（John Brakey）说，马里科帕县（Maricopa County）的选票审计是大选以来第一次真正的审计。
 
-正如TechCrunch指出的那样，数字人民币计划是中共国监管机构、商业银行和技术解决方案提供商的集体努力。乍一看，该方案仍然模仿目前的人民币实际流通情况。在央行的指导下，包括工商银行（ICBC）在内的中共国六大商业银行将数字人民币分配给较小的银行，并提供网络技术解决方案，这可能有助于新的电子货币被更广泛使用。
+这位“审计美国（Audit USA）”组织的联合创始人兼执行长告诉《战斗室》，以前的审计相当于在同样的投票机上运行同样有瑕疵的选票，等于换汤不换药。
 
-当然，这意味着数字人民币不过是一种加密货币，是已经流通的货币的数字化版本。实际上，数字人民币所实现的是将所有纸币强制转换为数字令牌格式，这使北京方面能够对每笔交易进行全方位的控制，并获取每一个货币持有者的身份——这恰好与加密货币的初衷大相径庭。
+布雷基说，11月3日选举中的选民欺诈等同于大众汽车的排放作弊丑闻。
 
-当然，由于中共国是一个独裁政权，所有公司必须像马云的公司一样，遵守北京当局的要求，因此中共国的主要科技公司都积极参与了数字人民币系统的建设，这将有助于中央政府更好地跟踪资金流动。
+【备注：大众集团汽车废气排放丑闻（Volkswagen emissions scandal）、柴油门、排放门，是指大众集团（VW）于2015年9月，被美国国家环境保护局（EPA）查获，其在美国销售的车辆，发动机控制器都植入了特殊软件，以规避官方检验的事件。】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ySxKmWqchaCmz/images/dd61725b-be74-4760-ba48-328e7cb3307f.jpg?asset_id=957e745a-14ed-420e-974f-8c9fb9f47c77&amp;img_etag=%2246c31a92b3b53817e7ad5943e7961bd5%22&amp;size=1024)](https://spark.adobe.com/page/ySxKmWqchaCmz/images/dd61725b-be74-4760-ba48-328e7cb3307f.jpg?asset_id=957e745a-14ed-420e-974f-8c9fb9f47c77&amp;img_etag=%2246c31a92b3b53817e7ad5943e7961bd5%22&amp;size=1024)图片来源：btcmanager
+“（大选）真的没有进行过任何审计”，布雷基说：“这与大众汽车公司通过柴油车的排放测试（作弊）没有什么不同。”
 
-除京东外，视频流媒体平台Bilibili、按需服务提供商美团和打车应用程序滴滴也已开始接受使用数字人民币交易。游戏和社交网络巨头腾讯成为“数字人民币运营商”之一，并将参与电子货币的设计、研发和运营工作。马云的蚂蚁集团（Ant Group）在首次公开募股陷入停滞后正进行整改。该公司还与央行携手建设基础设施，以数字化方式转移资金。电信设备巨头华为在其一款智能手机型号上首次推出了一个钱包，即使设备处于离线状态，该设备也允许用户立即使用数字人民币进行交易。
+“他们制造了一台计算机，知道什么时候可以作弊，”他说。
 
-🔗[原文链接](https://www.zerohedge.com/crypto/chinas-e-commerce-giant-jdcom-starts-paying-some-workers-digital-yuan?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+# 3、如何对抗中共的“种族灭绝游戏”—北京冬奥会
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+作家和平民主义中国问题专家克里斯•芬顿（Chris Fenton）和科里•雷（Corey Ray）上尉就美国对下届北京冬季奥运会的影响力，以及发起抵制的最佳策略进行了论述。
 
+【克里斯·芬顿（Chris Fenton）是好莱坞制片人。是去年他出版的个人回忆录《放飞龙，置身于好莱坞、NBA和美企面临的万亿美元难题》的作者和《喂龙》（Feeding the Drago‪n Podcast）播客节目的主持人。】
 
-编辑：【英国伦敦喜庄园编辑部】
+【科里•雷（Corey Ray）上尉是国家战争学院战略与政策系主任和助理教授。1991年毕业于瓦拉瓦拉学院，获得工程学士学位，通过航空军官候补学校受命，在1992年被指定为海军飞行军官，并有资格作为P-3C猎户座的战术协调员（TACCO）。】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ySxKmWqchaCmz/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/ySxKmWqchaCmz/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+芬顿说，美国应该与盟国合作，退出（冬季）奥运会，中国不仅会把奥运会作为对抗世界的宣传工具，而且也会对自己的人民进行宣传。
 
+班农说，类似的情况发生在1936年的柏林（奥运会），美国必须要求（中共）就武汉实验室和维吾尔族种族灭绝问题作出答复。
 
+他说：“在未来的300天里，我们有大量的筹码可用。”
+
+弗兰克•加夫尼（Frank Gaffney）周一晚间告诉《战斗室》，美国必须加入抵制“种族灭绝游戏”（也称为北京冬奥会）的行动。
+
+【**备注：**弗兰克•加夫尼（Frank Gaffney）是外交、国防及国家安全政策专家，目前担任“应对中共当前危险委员会” （Committee on the Present Danger:China）的副主席，并是一家电台的主持人。他曾担任里根政府时期国防部代理助理部长，也曾是《华盛顿时报》（Washington Times）的专栏作家和国家评论（National Review）网上杂志的编辑。】
+
+**参考资料：**[维基百科](https://www.wikipedia.org/)
+
+**原文链接：**
+
+# 1.  [MAGA Takeover of South Carolina GOP Underway](https://pandemic.warroom.org/2021/04/27/maga-takeover-of-south-carolina-gop-underway/)
+
+# 2.  [Democrat Auditor: Arizona Audit First Real Audit Since the Election](https://pandemic.warroom.org/2021/04/27/democrat-auditor-arizona-audit-first-real-audit-since-the-election/)
+
+# 3.  [How to Confront the CCP’s ‘Genocide Games,’ the Beijing Olympics](https://pandemic.warroom.org/2021/04/27/how-to-confront-the-ccps-genocide-games-the-beijing-olympics/)
 
 0

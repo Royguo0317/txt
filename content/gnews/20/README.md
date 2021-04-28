@@ -1,27 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】04/27/2021：共产党的经济一定会崩塌共产党死前一定会很疯狂大家不要成为牺牲品
-` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1146638/)
+## 澳洲政府敦促从中共国公司手中收回达尔文港租约
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1146681/)
 
-**制作：Cantonese工作室**
+翻译&评论： Rosa
+![]()![](https://gnews.org/wp-content/uploads/2021/04/IMAGE-2021-04-28-184614.jpg)网络截图
+澳大利亚联邦贸易和投资增长联合常务委员会研究了澳大利亚与中国的贸易联系，发现对租赁或拥有战略基础设施的国有公司存在重大担忧。
 
+议会委员会建议，如果达尔文港的长期租约威胁到国家利益，联邦政府应考虑取消对一家中共国公司的租赁。
 
+2015年，北领地政府将港口租给了中国公司Landbridge，租期99年，租金5亿澳元。
 
-**播报：【文依】资料整理：【闪电】【文依】【专业家庭煮妇】海报制作：【米线】penny】视频制作:【文德】粤语翻译校对：【文雀】上传：【星星】【向阳6768】**
+随着与中共国的关系日渐趋冷，这笔交易引发了澳大利亚和海外的高度关注，因为这个战略重港的运营控制权居然交给了一家外国（中国）公司。
 
+每年向达尔文部署数百名士兵的美国也对该交易感到不满。奥巴马曾向当时的总理马尔科姆-特恩布尔表达了美国的担忧。
 
+现在，联邦贸易和投资增长联合常设委员会审查了澳大利亚与中共国的贸易联系，对外国国有企业租赁或拥有澳洲战略基础设施表达了重大关切。
 
-1
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210428-_page-0002.jpg)
-2
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210428-_page-0003.jpg)
-3
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210428-_page-0004.jpg)
-4
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210428-_page-0005.jpg)
-5
-![]()![](https://gnews.org/wp-content/uploads/2021/04/210428-_page-0006.jpg)
+该委员会在其21项建议中，已标记出一份有关该港口租赁是否受联邦政府新《对外关系法》约束的报告。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/0.jpg)
+该委员会主席国民议会议员乔治·克里斯滕森（George Christensen）说，拥有国有企业，特别是专制政权，拥有澳大利亚战略资产，损害了国家利益。
+
+但北领地首席部长迈克尔·冈纳（Michael Gunner）此前曾表示，与从兰布里奇（Landbridge）购回港口相比，他的政府有其它支出更迫切更重要。
+
+【评论】 澳洲前政府的短视在出租达尔文港给中共控制的国有公司的行为上一览无余。
+
+达尔文港位于澳洲的北部最靠近北半球的位置。它的价值不仅局限于它是一个重要的贸易港口，它对于澳洲在亚太地区的军事战略意义也非同小可。轻易将如此重要的一个港口出租给一个中共国支持的企业是十分不明智的。好在莫里森政府现在似乎已经深刻的意识到了中共的威胁，开始展现出对中共强硬的迹象。
+
+岚桥集团是帮助中共国获得达尔文港99年经验权的公司。叶成是该集团的老板，曾在2013年被中共政府授予“关心国防发展的个人”头衔。习近平于2014年就在澳洲亲自见证了岚桥集团对澳洲完成了能源战略部署。中共狼子野心昭然若揭。
+
+（本文纯属个人观点）
+
+[参考资料：](https://www.9news.com.au/national/federal-government-urged-to-reclaim-darwin-port-from-chinese-company/f66eedac-c2e0-4b7a-94ee-2d93f65585cd)
+
+【1】[http://www.landbridge.com.cn/ctnshow.php/aid/35](http://www.landbridge.com.cn/ctnshow.php/aid/35)
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2-1.jpg)
 0
