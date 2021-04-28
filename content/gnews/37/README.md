@@ -1,38 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4/27/2021 财经快讯：标普500指数和纳指刷新收盘记录,比特币单周资金流出创最高纪录
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1144018/)
+## 2021/04/21 班农采访(4): 老百姓的自由是最重要的核心主题
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1145874/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/2021-04-27_230955.jpg)图片来源：[https://www.reuters.com/](https://www.reuters.com/)
-**1.科技巨头发布财报，标普500指数，纳斯达克指数收高创纪录高位**
+视频字幕/听写：云岭| 翻译：葡萄树 | 校对：Clau | 简评/文字整理/编辑：胖丁| Page：Daoiii
 
-[标准普尔500指数和纳斯达克指数周一收于纪录高位，受特斯拉(Tesla)季报提振，该公司本周将公布多家重量级成长型企业的季报。纳斯达克创纪录的收盘点位证实了该指数在2月12日创下新高后开始的11%的调整已经结束。特斯拉提前发布了财报，分析师预计该公司在创纪录的交付量之后，第一季度营收将出现增长。](https://jp.reuters.com/article/usa-stocks/us-stocks-sp-500-nasdaq-close-at-record-highs-ahead-of-tech-earnings-wave-idUSL1N2MJ2LV)
+[!\[\]()!\[\](https://spark.adobe.com/page/Ko6nCWSd728MO/images/5bafa0a2-b8f1-4441-9ced-a21772de3fbb.png?asset_id=591eeac6-a5fa-461b-894a-49550ef24783&amp;img_etag=%22f4244ba0d32706199e31f3792dc4d4d5%22&amp;size=1024)](https://spark.adobe.com/page/Ko6nCWSd728MO/images/5bafa0a2-b8f1-4441-9ced-a21772de3fbb.png?asset_id=591eeac6-a5fa-461b-894a-49550ef24783&amp;img_etag=%22f4244ba0d32706199e31f3792dc4d4d5%22&amp;size=1024)
 
-[周二至周四，标普500指数市值中约40%的公司公布财报，其中包括微软(Microsoft Corp)、谷歌母公司字母控股（Alphabet Inc）、苹果(Apple Inc)和脸书（Facebook Inc）。这些公司的股价也有所上涨。截至目前，标准普尔500指数中已有124家公司发布财报，其中85.5%的公司盈利超过了分析师的预期，而Refinitiv IBES的数据目前预测利润增长将达到34.3%。 IndexIQ投资长布鲁诺（Sal Bruno）说，这给市场带来了很好的提振。道琼斯工业平均指数下跌0.18%，报收33,981.97点，标准普尔500指数上涨0.18%，报收4,187.74点。纳斯达克综合指数上涨0.87%，至14,138.78点。](https://jp.reuters.com/article/usa-stocks/us-stocks-sp-500-nasdaq-close-at-record-highs-ahead-of-tech-earnings-wave-idUSL1N2MJ2LV)
+**简评：**
 
-**2.涨势消退，比特币单周资金流出创最高纪录**
+**制裁不能让我们沉默和停止战斗。上帝与我们同在。受迫害的各界宗教人士和中国人民会和我们站在一起，推翻中国共产党，恢复中国人民的自由，重建基督教和天主教的信仰。**
 
-[数字货币管理公司CoinShares周一的数据显示，比特币创下单周资金流出最高纪录。随着比特币飙涨的势头停滞不前，加密货币整体人气转为谨慎。4月23日当周比特币流出达2,100万美元，创单周最高外流纪录。当周总流入仅130万美元，为2020年10月来最低单周流入数据。尽管如此，CoinShares表示，上周流出规模仅占资产管理加密货币资产的0.05%，今年单周流入平均占0.6%。截至上周，资产管理的加密货币总资产规模(AUM)为543亿美元，从4月中的642亿美元回落。“上周出现一些特殊情况，主要包括新疆矿区临时停电，我们看到投资者将资金撤离比特币，”Forex.com以及City Index市场研究全球主管马特·韦勒（Matt Weller）表示。](https://jp.reuters.com/article/crypto-currency-flows/bitcoin-hit-with-record-weekly-outflow-as-rally-ebbs-coinshares-data-idUSL1N2MJ247)
+GTV视频链接：[20210424-001-BannonInterview-Q4 我们与CCP的这场战争](https://gtv.org/video/id=6086cddc11a7ed500e99113e)
 
-**3.中共国3月份对朝鲜的出口是1 – 2月份出口额之和的400倍**
 
-[中共国海关总署(General Administration of Customs) 4月18日报告称，3月份中共国对朝鲜的出口达到6个月高点，是前两个月出口总额的398倍多。中共国一直是朝鲜最大的出口国和进口国。中共国出口的大幅增长引起了人们的注意，一些人表示，这可能是平壤放松边境限制的一个迹象。去年年初，金正恩(Kim Jong Un)政权因中共病毒在平壤方面实施了边境限制。2月3日，中共病毒疫苗全球实施计划(COVAX)宣布，将向朝鲜分发近200万剂印度制造的阿斯利康/牛津疫苗。3月2日，该项目说，170万剂疫苗将在5月前送到平壤。COVAX的拨款将意味着朝鲜2565万人口中约3.9%的人将接受两剂疫苗。如果金正恩在接受印度中共病毒疫苗后决定扩大边境开放，中共可能会从贸易中获得巨大利益。](https://www.theepochtimes.com/chinas-march-exports-to-north-korea-400-times-that-of-january-february-combined_3786066.html)
 
-**4.特斯拉第一季度销量增长超过70％**
+**视频字幕：**
 
-[4月26日美国电动汽车公司特斯拉公布了2021年第一季度的财务业绩。消息传出后，该公司在股票市场上损失不大。对于更广泛的电动汽车和电池初创企业市场来说，特斯拉的业绩普遍乐观，这可能是一件好事，凸显出市场对这类产品的硬件需求仍在继续。近几个月来，该市场已经有许多家公司以特殊目的收购公司为首进行合并。从数字上看，今年前三个季度，特斯拉的营收为103.89亿美元，毛利润为22.15亿美元，净利润为4.38亿美元。特斯拉的调整后净利润为10.52亿美元，摊薄后的非公认会计准则每股收益为0.93美元。华尔街此前预计该公司的营收为102.9亿美元，调整后每股收益为0.79美元。特斯拉的股价在盘后交易中下跌了约1%，此前该公司公布了其最高和最低收益。](https://techcrunch.com/2021/04/26/tesla-grows-74-in-the-first-quarter-besting-expectations-as-its-shares-ease-after-hours/)
+**Bannon：**21世纪上半叶最重要的核心主题是老百姓的自由。
 
-**5.智利罢工增加铜价上涨势头，铜价飙升至10年高点**
+因为老百姓获得自由时，人类就获得了自由。
 
-[铜价攀升至2011年以来的最高水平，原因是全球从疫情中复苏，延续了金属市场的涨势，同时智利港口工人发起罢工。周一，5月份交割的铜价格上涨了2%，纽约商品交易所（Comex）的铜期货价格为每磅4.4425美元(每吨9,795美元)。嘉能可（Glencore）股价周一上涨3.3%，费利浦·麦克莫兰铜金公司（Freeport-McMoRan）股价上涨6.6%。淡水河谷公司（Vale）、必和必拓（BHP）和力拓集团（Rio Tinto）的股价也上涨了约1.5%，同样得益于铁矿石价格的上涨。智利的港口工人周一举行罢工，以回应该国总统皮涅拉(Sebastian Pinera)阻止一项允许人们第三轮提前提取养老基金的法案。智利的铜供应量约占全球铜供应量的四分之一。“中共病毒在南美国家的威胁可能会阻碍铁矿石和铜等关键工业大宗商品的出口，”MineLife Pty的高级资源分析师加文·温特(Gavin Wendt)告诉彭博社。高盛最近表示，到2025年铜价可能飙升至15,000美元。](https://www.nxtmine.com/copper-price-blasts-to-10-year-high-as-chile-strike-adds-momentum-to-rally/)
+从前任政府到拜登政府，他们试图用制裁来让我沉默。
 
-**6.阿里巴巴之后，中共对美团进行反垄断调查**
+我不会沉默，从我们每周的节目和每天的作战室，你们能看到。
 
-[4月26日，市场监管总局发布公告称，其根据举报依法对美团实施“二选一”等涉嫌垄断行为立案调查。此次“二选一”指的是平台利用其优势地位和一些商家对平台的依赖性，采取不正当手段强迫商家在平台间“二选一”，对商家入驻其他平台进行限制。随后美团表示，公司将积极配合监管部门调查，进一步提升业务合规管理水平，保障用户以及各方主体合法权益，促进行业长期健康发展，切实履行社会责任。目前公司各项业务正常运行。今年3月，市场监管总局还因存在“不正当价格行为”对美团旗下的社区团购业务美团优选处以150万元罚款。中共近期频频使用反垄断法来约束中共国大型企业的快速扩张，美团似乎成为了继阿里巴巴等公司后的最新的打击对象。](https://www.voachinese.com/a/China-probes-food-delivery-giant-Meituan-amid-antitrust-squeeze-20210426/5867115.html)
+今天在作战室里，我将就此事做一个非常特别的报告。
 
-By 【金融组 – Tracy】
-素材搜集: Wendy, Tracy
-校对: Apple
+因为这些都是我们说过的。
 
-0
+如果你看作战室，你不会觉得惊讶。
+
+我们面前有一场漫长而艰难的战斗，但上帝站在我们这边。
+
+现在是中国人民受迫害最严重的时候，他们一定帮助领导我们渡过21世纪。
+
+我坚信这一点，宗教迫害，无论是佛教、法轮功、维吾尔族，特别是基督徒和天主教徒（都是受迫害最严重的时候）。
+
+我知道一定会是这样，中国人民，受迫害的基督徒和天主教徒，以及中国将在我们推翻中国共产党之后，带领天主教和基督教会达到另一个水平。
+
+因为他们从巨大的迫害中重生，就像第一世纪的罗马人试图摧毁基督教会一样。
+
+所以我感到非常乐观。
+
+我认为我们正在获胜，而且最终我们会赢。
+
+所以你只需要坚持战斗，只需要每天都在战斗中。
+
+[**完整访谈视频**](https://www.youtube.com/watch?v=qnnVSjmLMxg)
+
+**主播：**Daniel, Dr. TCC, Castle和Mike
+
+- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
+- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
+
+
+***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三直播***
+
+编辑：【英国伦敦喜庄园编辑部】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Ko6nCWSd728MO/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/Ko6nCWSd728MO/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)
+
++1

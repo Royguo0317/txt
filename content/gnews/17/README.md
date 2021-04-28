@@ -1,43 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】中共内斗升级，王岐山还逍遥吗！
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1144344/)
+## 当下中共国人民的生活
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1146197/)
 
-配音：香草山录音组 米小乐
+撰稿：大唐李白
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+**隐私是基本的人权可是现在中国大陆人民已经毫无隐私可言。**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16195864081.png)**（图片来自澳喜）**
+国产智能家电每天收集你的数据电话实名制微信支付宝QQ微博抖音实名认证出门无处不在的监控摄像头离开公共停车场要你微信付款去坐地铁火车汽车要扫健康码刷身份证去住酒店刷身份证扫健康码加人脸识别每一个街道小区村头村里都装有摄像头，开车上高速公路ETC记录你的行踪，去面试工作先要你的家庭住址和亲人信息。
 
+微信支付宝网购车票飞机票总被多付钱工资总是低物价年年涨房贷车贷支付宝微信贷必须月月还不管是因病毒还是什么天灾没有工作收入，房价医药价高到离谱底层民生一榻糊涂多少人没有工作可每天的新闻重点就是那几条习近平重要思想和专门洗脑的历史花边新闻，中共的这些作为就是典型的奴民五术目的是维持自己的邪恶独裁统治所以只要中共存在一天中国人民乃至世界人民就不会有美好生活，消灭邪恶的中共是正义的需要。
 
+**（本文章仅代表个人观点）**
 
-
-
-
-
-凤凰网2021年04月26日引用新华社消息，简短75个字表述了原中央巡视组副部级干部董宏被最高检以受贿罪“依法逮捕”。董宏是2020年10月2号被中纪委监察委公布审查，2021年04月12号开除中共党籍，今日发布正式被逮捕消息。除了一些大陆媒体少量跟进外，在搜狗百科上已经查不到其人条目，百度百科也只是对“违记违法事实”多点着墨。
-
-
-
-**文字版原文：[【战友心声】中共内斗升级，王岐山还逍遥吗！](https://gnews.org/zh-hans/1142217/)**
-
-作者：纽约香草山健身部 文鹰
-
-
-
-音频处理/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+审稿：文筝      编辑：五饼二鱼
+![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2-1.jpg)
 0

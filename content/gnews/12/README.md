@@ -1,23 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 布林肯计划访问乌克兰
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1144538/)
+## 【路德简报】4/27/2021早：习突袭巡视广西、桂林等地 欲全力掌握南部战区
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1146246/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+**编辑：华盛顿DC农场 路德简报项目组**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2021-4-27-2-scaled.jpg)
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/U-20.jpg)ukrinform.net
-04月27日，美国国务卿安东尼·布林肯可能在5月份访问乌克兰。这是美国有线电视新闻网（CNN）的消息来源所报道的。
 
-据该电视频道称，在俄罗斯总统弗拉基米尔·普京与美国总统乔·拜登计划于夏季举行会晤之前，对乌克兰访问将明确显示华盛顿对基辅的支持。这样的访问具有特别重要的意义。
+> 2021 年4月27日 路德时评 早
+> 
+> 1.习突袭巡视广西、桂林等地 欲全力掌握南部战区 [pic.twitter.com/YZDRgQVpUp](https://t.co/YZDRgQVpUp)
+> — 平民爆料 (@WM18320321) [April 28, 2021](https://twitter.com/WM18320321/status/1387242770243411970?ref_src=twsrc%5Etfw)
 
-有线电视新闻网的对话者补充说，布林肯对乌克兰的访问将允许讨论拜登和乌克兰领导人沃洛基米尔·泽伦斯基之间的潜在会晤。
 
-美国总统4月建议与普京在“第三国”的中立领土上会面。后来，普京的助手尤里·乌沙科夫说，他们的会面可能在6月进行。俄罗斯总统发言人德米特里·佩斯科夫证实，国家元首将在夏季会面，但他补充说，具体日期尚未确定。
 
-参考链接：
-
-[https://www.rbc.ru/rbcfreenews/60877ac79a7947c54e961162](https://www.rbc.ru/rbcfreenews/60877ac79a7947c54e961162)
-
-0
++1

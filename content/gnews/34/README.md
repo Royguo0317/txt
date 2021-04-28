@@ -1,39 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报—病毒篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1144090/)
+## 【热点播报】科学家揭示口罩对COVID的效果
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1145792/)
 
-- 作者：wenwu
-- 制图：透明的遮羞布
+作者：纽约香草山写作组 四季
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/LOGO3_1-2.jpg)
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/virus10.jpg)
 
-您若想了解全文报导内容，请点击标题链接
 
-**1. [报告：辉瑞和莫德纳新冠病毒疫苗可能引发阿尔茨海默病、肌萎缩侧索硬化症和其他神经退行性疾病](https://www.thegatewaypundit.com/2021/04/report-pfizer-moderna-covid-vaccines-trigger-alzheimers-als-neurological-degenerative-diseases/)**
 
-据《门扉网》4月25日电，政府和权威全力推动新型冠状病毒的mRNA疫苗，是未经证实和测试的。据耶鲁大学流行病学家报道，使用疫苗的调查结果可能是造成伤害大于益处。科学家们建议立即停止疫苗发放，并使用HCQ、维生素D和锌来代替。
+人类自由网站4月26日对一项名为“COVID-19时代的口罩”的研究进行了报道。该项由科学家巴鲁克·维恩谢尔布伊姆（Baruch Vainshelboim）进行的健康假设研究，对将佩戴口罩作为预防、干预COVID-19措施的有效性提出了质疑，并于2021年1月被发表在非常规同行评审的医学杂志——医学假说（Medical Hypotheses）上。
 
-**2. [冠状病毒质疑增多，中国拒绝就生物战问题举行会议](https://www.washingtontimes.com/news/2021/apr/25/china-nixed-biowarfare-meeting-coronavirus-queries/)**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/0-How-Effective-Are-Facemasks-Against-COVID-Here-is-What-Scientists-Think-e1619430367311-1.jpg)图片来源：humansarefree.com
 
-据《华盛顿时报》4月25日电，四年来北京首次拒绝与美国官员会面，讨论中共国涉嫌违反1975年《生物和毒素武器公约》（即《生物武器公约》），这加剧了人们对北京正在开发用微生物或致死毒素的武器担忧。去年叛逃到欧洲国家的一位解放军医生，详细介绍了北京的生物战计划。目前，新冠病毒起源是来自武毒所的可能性公认为唯一最大概率。
+自COVID-19大流行病爆发以来，全球各地的人们为了防止感染病毒开始佩戴口罩。但是到目前为止，口罩在控制疫情传播方面的功效尚未被确定。而维恩谢尔布伊姆进行的这项关于佩戴口罩对心理、生理和健康所产生的不利影响的研究则为上述功效的确定提供了一些思考。
 
-**3. [福奇的美国国立卫生研究所科学家参加了武汉实验室峰会，现在从互联网上抹掉了](https://thenationalpulse.com/exclusive/fauci-scientists-attended-wuhan-lab-conference/)**
+口罩有两种类型：医用和非医用。其中医用口罩又被进一步分为两类：国家职业安全与健康研究所（NIOSH）认证的N95口罩和外科口罩。
 
-据《国家脉动》4月26日电，美国国立卫生研究所参加了中共组织的峰会，聆听了胡锦涛总书记的工作报告，得到了共青团和中共国务院的奖项。另外，美国国立卫生研究所用美国纳税人的钱资助了武毒所将近375万美元，前后总共六笔。美中此次峰会会议已从《自然科学》杂志上消除了痕迹。
+N95口罩使用驻极体过滤器从而可以紧紧封住面部，相反地，外科口罩则相对宽松。非医用口罩则是由织物或布制成，所用织物可以是棉、聚酯、聚丙烯、丝绸或多种其他材料。
 
-**4. [印度新冠病毒病例激增 “吞噬 “人们，镜头显示人们死在街头](https://nypost.com/2021/04/26/covid-19-surge-swallowing-people-in-india-like-a-monster/)**
+然而，目前尚不清楚口罩是如何有效地保护人们不被感染的。
 
-据《纽约邮报》4月26日电，绝望的病人在等待治疗时，排队、有时在路上，在医院里等着治疗。一些北部州的医院发布了紧急通知，表示由于床位和用品开始耗尽，他们无法应对感染激增。政府官员想淡化供应短缺的事实，但截至周日印度已连续4天创下全球每日病例的记录。
+研究者认为，佩戴口罩会通过增加吸气和呼气过程中空气流动的阻力而机械地限制了呼吸，这一过程有可能改变我们体内的氧气和二氧化碳水平，使体内的氧气水平下降，从而导致呼吸问题、低氧血症，甚至还可能使现有的慢性病升级。另外，佩戴口罩还会对佩戴者的心理产生负面影响。德国神经学家在警告人们不要佩戴口罩时称：“缺氧会造成永久性的神经损伤”。
 
-**5. [“未来两周将是地狱”：印度新冠病毒风暴眼中的医生表示，随着患者在拥挤的医院外死亡，病例数量继续飙升，“情况非常严峻](https://www.dailymail.co.uk/news/article-9514787/The-two-weeks-going-hell-doctor-India-warns.html?ns_mchannel=rss&amp;ico=taboola_feed&amp;ns_mchannel=rss&amp;ico=taboola_feed)”**
+而如果从医用和非医用口罩的物理特性方面来考虑，与病毒颗粒的直径（60纳米至140纳米）相比，这些口罩的孔径至少大了1000倍（55微米至440微米）。由此我们可以得出结论：这些口罩不能有效阻挡病毒颗粒。
 
-据《每日邮报》4月26日电，高级病毒学家警告说，印度第二波疫情还有两周时间才能达到每天50万例感染的峰值。美英法相继对印度提供了医疗资源供给。政府被迫让各家各户在家中或者农场为自己的家人的尸体采取处理措施。专家预计接下来每天的死亡人数将达到5700人，每秒就有1-2个印度人因中共病毒死亡。
+人们在一项分别以有症状者和无症状患者作为两组实验对象的随机对照试验中发现，在有症状的患者组中，无论实验对象是否佩戴口罩，病毒都会从一个人传给另一个人。然而在无症状者群体中，无论实验对象是否配戴口罩，都没有通过气溶胶的传播被发现和报道。在对医护人员所做的同样的荟萃分析中，也得到了相同的结果。
 
-审核：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
+世卫组织曾在早期出版物中指出：“佩戴口罩是不必要的，因为并没有证据表明口罩对保护无病者有用”。然而，在后来的出版物中，世卫组织却又反驳了这些说法，并宣布佩戴织物制成的口罩是一种以“防止受感染的佩戴者将病毒传播给他人和/或为健康的佩戴者提供保护，使其免受感染（预防）”为目的的、普遍的社区做法。
 
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+人类针对中共制造和释放的生化武器的防范手段是极其有限的，而只有尽快确认病毒来源，才能拯救人类。留给人类的时间不多了。
+
+原文链接：
+
+[How Effective Are Facemasks Against COVID? Here is What Scientists Think (humansarefree.com)](https://humansarefree.com/2021/04/scientists-facemasks-effective-against-covid.html)
+
+编辑/校对/发稿：小鹿
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpeg)
+
+**更多资讯，更多关注**
+
+**[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)**
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+**[纽约香草山农场YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/LOGO3_1-2.jpg)
+
+
 
 +2
