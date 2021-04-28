@@ -1,47 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】点燃更多的灯：照亮神佛庇佑的土地
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1147167/)
+## 简评美国《2021战略竞争法案》
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1147097/)
 
-配音：香草山录音组 Swr拥抱太阳
+**作者： Michael.Tonny**
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20-9.jpg)
 
+2021年4月21日，美国参议院外交关系委员会以21票赞成，1票反对通过了《Strategic Competition Act of 2021》法案，中文直译为《2021战略竞争法案》。法案由民主党参议院外交委员会主席梅南德兹（Robert Menendez）、参院外交委员会共和党籍首席议员里契（Jim Risch）于2021年4月8日联合推出。在这份长达285页的提案中，提出对中共掠夺性经济作为、恶意影响力攻击、数字威权、军事扩张、对台野心、压迫香港与新疆等，以及对美威胁，提出美国运用所有战略、经济与外交工具，推动印太战略，应对中共的挑战。
 
+该法案成为美国近年来最重大的抗中法案，或者说灭共法案。美国两党先后有几十名议员提出各自的修正案，希望能将自己的想法纳入这部历史性法案当中，以在这场浩浩荡荡的灭共大潮中，期分得一杯羹。但为了确保该法案尽快获得参众两院通过，仅有少数修正案获得被纳入的机会。比如共和党参议员卢比奥（Marco Rubio）提出的修正案就未被纳入。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/21-6.jpg)
+**简评：**
 
+这是美国两党第一份跨党派共同制订针对中共国的未来战略方針的重大法案，标志着以国家法律的名义，从政治、外交、经济等多种战略工具全面对抗中共。这是美国朝野两党在灭共问题达成一致的里程碑式法案。中共CCP应当明白，灭共已经是美国两党共同的需要，不会因总统的更替而有所改变。
 
+爆料革命和新中国联邦，以及英雄科学家闫丽梦博士，对中共和中共病毒的深刻揭露，让世界开始觉醒。
 
-我们与末日正擦肩而过
+中共病毒、中共霸权对全世界的威胁，是对国际规则和国际秩序的严重挑战，严重损害国际经济繁荣。至今为止，中共CCP病毒已经感染全世界接近1.5亿人，夺去无数无辜的生命。目前，CCP还在继续研发生化武器病毒，在世界各地投毒，世界各地反对CCP的国家，经常爆出中共病毒新的变种，只要CCP存在一天，中共病毒就不可能消失，中共的存在，是对全世界继续运行和人类基本生存的严重威胁。
 
-但真正的灾难还没到来
+中共在意识形态领域，包含孔子学院，对美国和世界全方位的渗透，已经对全世界造成巨大威胁。中共的存在，是对自由、民主、人权、法治、国际法、多边主义自由公正的经济秩序在内的普世价值和基本国际准则的疯狂践踏。
 
-勒紧裤带，擦亮眼睛
+在新中国联邦和全世界爱好和平的人们共同努力下，中共军事扩张的野心、对全世界造成威胁的真实嘴脸越来越大白于天下。包含武力恐吓台湾，对台湾海峡两岸和平与稳定的重要威胁；南中国海大量建造人工岛礁用于军事设施，单方面改变东中国海现状的企图；在地中海、中东，东南亚、非洲、南美表现出的野心；以及香港人权危机和在新疆、西藏、内蒙的种族灭绝政策等。
 
-你会看清：未来的历史和今天的真相
+美国两党联合提出的《2021战略竞争法案》法案，预计很快会在参众两院得以顺利通过，这标志着对抗中共，进而消灭中共，将在美国以国家法律形式进行。灭共成为人类共同的话题、行动和目标，全世界正义的人们，为了人类的共同福祉正在行动中。
 
+***（本文只代表作者观点，与GNEWS无关）***
 
+参考链接：
+[Strategic Competition Act of 2021](https://www.congress.gov/bill/117th-congress/senate-bill/1169/text)（2021战略竞争法案）
 
-**文字版原文：[【香草诗词汇】点燃更多的灯：照亮神佛庇佑的土地](https://gnews.org/zh-hans/576747/)**
+* * *
 
-作者：香草山写作组 木白
-
-
-
-音频处理/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+# ***责任编辑：首尔喜韩农场 文迹～见证神迹***
+***编辑/校对：美国纽约香草山农场 七哩香***
+***发 布：骑着毛驴来挺郭***
 
 0

@@ -1,57 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美团被“反垄断”调查
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1147005/)
+## 【班农战斗室】903-904-905期简讯
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1147028/)
 
-新闻来源：《零对冲（Zerohedge）》| 作者：泰勒·德登（TYLER DURDEN） | 发布时间：2021年4月26日
-翻译/简评：随波逐流 | 校对/审核：万人往 | Page：Daoiii
+#### **翻译：七彩光**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/UOwHhN2dxT0of/images/3fdcfcbd-7f7e-4a09-bb82-5d16b4793680.jpg?asset_id=e79f68da-d1a7-4d5b-9880-e2b4cbb4fafa&amp;img_etag=%22f3f4fd93c57d2d51ae8b9b4d15834186%22&amp;size=1024)](https://spark.adobe.com/page/UOwHhN2dxT0of/images/3fdcfcbd-7f7e-4a09-bb82-5d16b4793680.jpg?asset_id=e79f68da-d1a7-4d5b-9880-e2b4cbb4fafa&amp;img_etag=%22f3f4fd93c57d2d51ae8b9b4d15834186%22&amp;size=1024)
+#### **校对/编辑： 文泓**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/903-904-905_.png)
+图片来源：墨尔本雅典娜农场设计组（精灵蓝）
 
-**简评：**
+**本期导读：**
 
-**据《南华早报》报道，中共监管部门开始对大科技公司发动反垄断调查，其中阿里巴巴集团已被处以创纪录的28亿美元的罚款，食物配送公司美团也正在接受调查并被处以罚金，这次严打行动远未结束，未来还会有更多公司被监管机构调查。此举不仅是为了收缴巨额罚款，也是为了令这些大科技公司屈服于中共，按中共意志行事。而这些公司也代表着中共各派的利益，因此，这次如此大规模的严打行动，也显示了这些公司背后的中共各个家族之间内斗的激烈程度。**
+川普支持者MAGA运动继在佐治亚州基层选举大获全胜后，《UncoverDC》的主编特蕾西·比恩兹解释了MAGA在南卡罗莱纳州也获得了同样的胜利；民主党人审计师约翰•布雷基（John Brakey）说，亚利桑那州马里科帕县的选票审计是大选以来第一次真正的审计；弗兰克•加夫尼指出，美国必须加入抵制“种族灭绝游戏”（北京冬奥会）的行动。
 
-**中共从建国之日起，无论是国家财富、政治权利、军事力量还是国家选举都掌握在中共少数的特权阶级手上。他们不仅暗箱操纵选举，事先指定接班人，垄断了国家的政治权利，而且牢牢把握住国家的经济命脉，为自己大肆敛财。借改革开放之机，各个家族迅速瓜分了中共国的能源、电力、电讯、金融、保险、证券、军工等关乎国计民生的所有领域，催生出了无数以中共太子党为首的红二代、红三代资本家。此外，为了掩人耳目，盗国贼家族将窃取的大量国家财产转移到海外，让自己的后代和无数的海外代理人为其持有巨额资产，为自己今后的失败安排了所谓的“沉船计划”。此举即为了自己和后代能继续享有奢侈的生活，同时也谋求伺机东山再起的资本，现已将触角伸展到港澳台和世界的各个角落。**
+**主持人：史蒂夫****.班农**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/UOwHhN2dxT0of/images/4add2a58-2472-44e9-ae0f-568f758b1167.jpg?asset_id=62cf0ed5-0e3f-4143-9f4f-882c16236d70&amp;img_etag=%228d6da31856de5e703aa0a29393496125%22&amp;size=1024)](https://spark.adobe.com/page/UOwHhN2dxT0of/images/4add2a58-2472-44e9-ae0f-568f758b1167.jpg?asset_id=62cf0ed5-0e3f-4143-9f4f-882c16236d70&amp;img_etag=%228d6da31856de5e703aa0a29393496125%22&amp;size=1024)
+嘉宾：Maureen Bannon, John Brakey, Tracy Beanz, Cpt Corey Ray, Chris Fenton, Dr. Peter Navarro, Tom Del Beccaro, Ben Bergquam, Adam Brandon
 
-**中共制定的各种政策都是以特权阶级的利益为考量的，以保证红色江山代代传，每次的全国人民代表大会就是一场特权阶层政治和经济分赃的切蛋糕大会。其实今天所谓遭打压的大科技公司，都是中共各派自己发展的代理人。当初给这些企业优惠政策的是他们，任这些企业垄断市场的也是他们，如今分赃不均了，势力强大的一方就会出台一些定向打击某类企业的严打政策，玩割韭菜的游戏，从来都是如此。中共国的市场永远属于中共的各大家族，其他人永远也别想进场挑战特权阶层，即使机缘巧合得到某些首长或各级政府的扶持，企业做大做强了，也是为他人作嫁衣裳，到最后只有粉身碎骨，海航王健的下场就是一个典型的例子。只要中共存在，中国人就不会有自由、有尊严的生活，私人财产绝不会有任何保障，所有身家财产随时可被以各种理由收归国有。**
+**1、MAGA接管南卡罗莱纳州共和党进行时**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/UOwHhN2dxT0of/images/71e7d000-e01f-4136-a154-d3acfd07b575.jpg?asset_id=f3c40f78-5a65-4f7a-8285-fda199a6e97e&amp;img_etag=%2209bf05625b052ce0c4484924fd3de403%22&amp;size=1024)](https://spark.adobe.com/page/UOwHhN2dxT0of/images/71e7d000-e01f-4136-a154-d3acfd07b575.jpg?asset_id=f3c40f78-5a65-4f7a-8285-fda199a6e97e&amp;img_etag=%2209bf05625b052ce0c4484924fd3de403%22&amp;size=1024)
+《UncoverDC》的主编特蕾西·比恩兹（Tracy Beanz）解释了MAGA运动如何利用丹•舒尔茨（Dan Schultz）的“社区战略”占领了南卡罗来纳州（South Carolina）。
 
-**原文翻译：**
+比恩兹周二告诉《战斗室》，有600多人参加了当地的共和党（GOP）基层选举，是两年前的三倍多。
 
-## 随着对食品配送巨头进行的反垄断调查，北京当局对“大科技公司”的严打继续进行
+MAGA成功的秘诀是什么？“坚守你的诺言，诚实地工作，不让任何人接管……然后坚持你的立场，说到做到。”
 
-中共国最高级的反垄断监管机构——中国国家市场监管总局——因滥用市场支配地位而对阿里巴巴处以创纪录的28亿美元罚款，**开启了该国首个重大反垄断行动，以阻止一家科技巨头控制中共国国内经济的局面，**在两周后，中国共产党刚刚发动了下一个重大反垄断调查。
+比恩兹还解释了在阻止共和党建制派举行在线网络大会的下一步工作。
 
-《南华早报》（SCMP）报道称，中共国反垄断监管机构周一正式启动了对食品配送服务提供商美团的调查，理由是涉嫌垄断性商业行为，例如强迫商家“二选一”，即迫使商家选择其平台作为其独家分销渠道，否则就会被禁止。
+“这些（建制派）共和党人在许多方面比民主党人更糟糕，”她说。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/UOwHhN2dxT0of/images/32dc9ee5-9343-4917-9e42-32bf1e09c4ac.jpg?asset_id=c90c6aaf-281a-4c78-82a7-4c4a1cf96ef1&amp;img_etag=%228435d6c105b0c0f5be5a6e865f32a7cc%22&amp;size=2560)](https://spark.adobe.com/page/UOwHhN2dxT0of/images/32dc9ee5-9343-4917-9e42-32bf1e09c4ac.jpg?asset_id=c90c6aaf-281a-4c78-82a7-4c4a1cf96ef1&amp;img_etag=%228435d6c105b0c0f5be5a6e865f32a7cc%22&amp;size=1024)
+# 2、民主党审计师：亚利桑那州的（选票）审计是大选以来第一次真正意义上的审计
 
-据报道，该调查是由公众举报引起的。尽管尚不清楚调查将持续多长时间，但值得记住的是，阿里巴巴的调查是在去年平安夜那天发起的，并于本月初结束。**美团已承诺配合调查（当然它在此事上别无选择）。**
+民主党人审计师、伯尼•桑德斯（Bernie Sanders）的支持者约翰•布雷基（John Brakey）说，马里科帕县（Maricopa County）的选票审计是大选以来第一次真正的审计。
 
-总部位于北京的美团在一份声明中说：“公司将积极配合监管部门的调查，进一步提高业务合规管理水平，保护用户和各方的合法权益，促进行业长期健康发展，**并切实履行社会责任。目前，公司的各项业务都在正常运转。**”
+这位“审计美国（Audit USA）”组织的联合创始人兼执行长告诉《战斗室》，以前的审计相当于在同样的投票机上运行同样有瑕疵的选票，等于换汤不换药。
 
-据《南华早报》报道，这种迫使商家只选择一个平台的策略在中共国已经很普遍，这表明，此次镇压行动——像其他反垄断行动一样——更多的是让中共国的新兴科技巨头屈服，并令他们服从中共的意愿。美团在香港市场的股价因此消息而下跌。
+布雷基说，11月3日选举中的选民欺诈等同于大众汽车的排放作弊丑闻。
 
-《南华早报》暗示，新的调查证明，北京当局对阿里巴巴和蚂蚁集团的严打并不是孤立的，而且在此次调查结束之前，可能还会有更多的对中共国其他科技巨头的调查。电子商务咨询公司海豚智库（Dolphin Think Tank）的首席执行官李成东表示：“这不是一个令人惊讶的决定。在阿里巴巴创纪录的罚款之后，任何大型科技公司都不应被免于垄断调查。**监管机构还需要表明，这项调查对每家公司都是公平的举动，不仅仅是对阿里巴巴。**”
+【备注：大众集团汽车废气排放丑闻（Volkswagen emissions scandal）、柴油门、排放门，是指大众集团（VW）于2015年9月，被美国国家环境保护局（EPA）查获，其在美国销售的车辆，发动机控制器都植入了特殊软件，以规避官方检验的事件。】
 
-由42岁的王兴创立的美团，以前曾因不正当竞争的指控而被告上法庭。江苏一家地方法院本月裁定，美团必须向饿了吗（Ele.me）支付赔偿金35.2万元人民币（54180美元），因为美团要求商家避开其（命中注定）的食物配送对手，阿里巴巴旗下的饿了吗的竞争服务。在此之后，美团发布了一份公开声明，声称将来不会提出此类要求。另一起类似的诉讼已于2月展开。然后，美团和其他33家科技公司在本月初被带到了中国国家市场监管总局（SAMR）和其他监管机构的面前，并被给出了5月13日的最后期限，以纠正反竞争行为，否则将受到“严厉惩罚”。**尽管该公司表示不实行“二选一”，但消息人士告诉英国《金融时报》，美团采用了一种更小规模的方式，以此降低仅使用其平台的商户的佣金。**
+“（大选）真的没有进行过任何审计”，布雷基说：“这与大众汽车公司通过柴油车的排放测试（作弊）没有什么不同。”
 
-🔗[原文链接](https://www.zerohedge.com/technology/beijings-big-tech-crackdown-continues-anti-trust-probe-food-delivery-giant?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+“他们制造了一台计算机，知道什么时候可以作弊，”他说。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+# 3、如何对抗中共的“种族灭绝游戏”—北京冬奥会
 
+作家和平民主义中国问题专家克里斯•芬顿（Chris Fenton）和科里•雷（Corey Ray）上尉就美国对下届北京冬季奥运会的影响力，以及发起抵制的最佳策略进行了论述。
 
-编辑：【英国伦敦喜庄园编辑部】
+【克里斯·芬顿（Chris Fenton）是好莱坞制片人。是去年他出版的个人回忆录《放飞龙，置身于好莱坞、NBA和美企面临的万亿美元难题》的作者和《喂龙》（Feeding the Drago‪n Podcast）播客节目的主持人。】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/UOwHhN2dxT0of/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/UOwHhN2dxT0of/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+【科里•雷（Corey Ray）上尉是国家战争学院战略与政策系主任和助理教授。1991年毕业于瓦拉瓦拉学院，获得工程学士学位，通过航空军官候补学校受命，在1992年被指定为海军飞行军官，并有资格作为P-3C猎户座的战术协调员（TACCO）。】
 
+芬顿说，美国应该与盟国合作，退出（冬季）奥运会，中国不仅会把奥运会作为对抗世界的宣传工具，而且也会对自己的人民进行宣传。
 
+班农说，类似的情况发生在1936年的柏林（奥运会），美国必须要求（中共）就武汉实验室和维吾尔族种族灭绝问题作出答复。
+
+他说：“在未来的300天里，我们有大量的筹码可用。”
+
+弗兰克•加夫尼（Frank Gaffney）周一晚间告诉《战斗室》，美国必须加入抵制“种族灭绝游戏”（也称为北京冬奥会）的行动。
+
+【**备注：**弗兰克•加夫尼（Frank Gaffney）是外交、国防及国家安全政策专家，目前担任“应对中共当前危险委员会” （Committee on the Present Danger:China）的副主席，并是一家电台的主持人。他曾担任里根政府时期国防部代理助理部长，也曾是《华盛顿时报》（Washington Times）的专栏作家和国家评论（National Review）网上杂志的编辑。】
+
+**参考资料：**[维基百科](https://www.wikipedia.org/)
+
+**原文链接：**
+
+# 1.  [MAGA Takeover of South Carolina GOP Underway](https://pandemic.warroom.org/2021/04/27/maga-takeover-of-south-carolina-gop-underway/)
+
+# 2.  [Democrat Auditor: Arizona Audit First Real Audit Since the Election](https://pandemic.warroom.org/2021/04/27/democrat-auditor-arizona-audit-first-real-audit-since-the-election/)
+
+# 3.  [How to Confront the CCP’s ‘Genocide Games,’ the Beijing Olympics](https://pandemic.warroom.org/2021/04/27/how-to-confront-the-ccps-genocide-games-the-beijing-olympics/)
 
 0

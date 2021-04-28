@@ -1,58 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 京东使用数字人民币发工资
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1146964/)
+## 中共国海军三艘“先进”战舰交接入列
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1147012/)
 
-新闻来源：《零对冲（ZeroHedge）》| 作者：泰勒·德登（Tyler Durden） | 发布时间：2021年4月26日
-翻译/简评：Claire | 校对：SilverSpurs7 | 审核：万人往 | Page：Daoiii
+新闻来源：《华盛顿自由灯塔》The Washington Free Beacon| 作者：Jack Beyrer| 发布时间：2021年4月26日
+翻译/简评：mcjaja|校对/审核：万人往|Page：小雨
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ySxKmWqchaCmz/images/40db1b49-afc2-4b6c-bf91-ddd168efbc80.png?asset_id=4ec1692e-7e2a-46f0-a061-837e0790b000&amp;img_etag=%222809f3925c276ff27e9549219fe329b3%22&amp;size=2560)](https://spark.adobe.com/page/ySxKmWqchaCmz/images/40db1b49-afc2-4b6c-bf91-ddd168efbc80.png?asset_id=4ec1692e-7e2a-46f0-a061-837e0790b000&amp;img_etag=%222809f3925c276ff27e9549219fe329b3%22&amp;size=1024)图片来源：coinquora
+[!\[\]()!\[\](https://spark.adobe.com/page/2aiDd4OHEGzY0/images/e1137830-2229-4774-8291-600fa2e823af.jpg?asset_id=85d6f374-2bb6-4453-b7f7-3b6c8fdeae83&amp;img_etag=%22853cebf74683c72864147e8b8ee50a5f%22&amp;size=2560)](https://spark.adobe.com/page/2aiDd4OHEGzY0/images/e1137830-2229-4774-8291-600fa2e823af.jpg?asset_id=85d6f374-2bb6-4453-b7f7-3b6c8fdeae83&amp;img_etag=%22853cebf74683c72864147e8b8ee50a5f%22&amp;size=1024)
 
 **简评：**
 
-**中共国电子商务巨头京东目前表示，已使用数字人民币支付员工薪水。作为综合技术服务商，京东将为数字人民币试点提供供应链、场景与技术三个层面的服务。除此之外，马云的蚂蚁集团、Bilibili、美团和滴滴打车也已开始接受使用数字人民币交易。数字人民币是中国人民银行（即央行）推出的一种法定数字货币，它或将成为全球第一个由央行推出的法定数字货币。**
+《华盛顿自由灯塔》的这篇报道显示了中共国海军已在南中国海以及台湾周边海域的蠢蠢欲动，试图通过跨越航空识别区和军事边界这类行径找寻擦枪走火的契机。与此同时，中共国正在持续扩建海军舰队以及新造核潜艇，其海洋霸权野心已彰显无遗，澳洲及美国军事人士都认为台海一战已一触即发。
 
-**然而，时至今日，以比特币为代表的加密货币在中国仍被禁止。在中共和央行大力宣传数字人民币的必要性和重要性的背后，隐藏的是中共掌控每一笔交易和每一个货币持有者身份的野心。使用数字人民币交易，消费的隐私性完全消失，每一分钱都会被监控，都可以无限追溯。而中共强调的所谓的匿名性，是人与人的匿名，不是人与银行的匿名。银行可以随时监测消费者账户的消费动向。为了满足自己的掌控欲和贪欲，中共无所不用其极地侵吞百姓财富，明目张胆地割韭菜。大家都快醒过来，认清中共地邪恶本质吧，共产党不灭，永远都没有自由、民主、富裕的生活。**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/ySxKmWqchaCmz/images/1df800fe-acf7-4958-8880-fa1fcdad9732.jpg?asset_id=54f99108-f582-41ef-bf5b-3c2036ded25e&amp;img_etag=%228b34be111f0030da6338b0acbe8ef11b%22&amp;size=1024)](https://spark.adobe.com/page/ySxKmWqchaCmz/images/1df800fe-acf7-4958-8880-fa1fcdad9732.jpg?asset_id=54f99108-f582-41ef-bf5b-3c2036ded25e&amp;img_etag=%228b34be111f0030da6338b0acbe8ef11b%22&amp;size=1024)
+文贵先生近日爆料，今年年初的美国访台行动差点造成“三战”的开打。这足以证明当前台海局势的紧张程度，一切已是箭在弦上，似乎就差像当年918事变的一个契机。台海之战必将结束中共，但此一战也会使沿海地区的同胞们饱受战火摧残，甚至波及至印度洋和澳洲地区。若这是灭共必须付出的代价，则求上天少带走无辜的生命，而惩戒罪无可恕的反人类罪犯们。
 
 **原文翻译：**
 
-## 中共国电子商务巨头京东使用数字货币支付员工薪水
+## 中共国三艘先进战舰服役
 
-直接与马云（Jack Ma）的阿里巴巴竞争的中国电子商务巨头京东（JD.com）周日表示，已开始使用数字人民币支付部分员工薪水。数字人民币是实体货币的虚拟版本，据称有些货币有望超过美元，并成为下一个全球储备货币。
+[!\[\]()!\[\](https://spark.adobe.com/page/2aiDd4OHEGzY0/images/6e5a0e14-1e20-4cea-a5b3-47a75af8716c.jpg?asset_id=1b6e7513-df4d-4173-8ef6-df9013c19997&amp;img_etag=%22a61895de280c116c4306464e5d7a0e10%22&amp;size=2560)](https://spark.adobe.com/page/2aiDd4OHEGzY0/images/6e5a0e14-1e20-4cea-a5b3-47a75af8716c.jpg?asset_id=1b6e7513-df4d-4173-8ef6-df9013c19997&amp;img_etag=%22a61895de280c116c4306464e5d7a0e10%22&amp;size=1024)辽宁舰，中共国的001型航空母舰/盖蒂图片
 
-京东表示，自去年9月与中国人民银行合作以来，已为苏州、北京和成都的数字人民币试用计划提供技术和服务支持。
+4月，中共国海军服役了三艘先进战舰，这是北京当局挑战美国在南中国海的军事优势和侵占台湾的更大努力的一部分。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ySxKmWqchaCmz/images/6388d255-1a5d-4ed5-9655-f83871ec73cb.png?asset_id=e6f17d80-3164-40ca-a450-68b3fd20ef12&amp;img_etag=%22cb7cc94094031ebc65d26e60c36477f7%22&amp;size=2560)](https://spark.adobe.com/page/ySxKmWqchaCmz/images/6388d255-1a5d-4ed5-9655-f83871ec73cb.png?asset_id=e6f17d80-3164-40ca-a450-68b3fd20ef12&amp;img_etag=%22cb7cc94094031ebc65d26e60c36477f7%22&amp;size=1024)
+解放军海军（PLAN）官方宣布，一艘弹道导弹核动力潜艇、一艘导弹巡洋舰和一艘直升机航母在南中国海附近的一个海军基地交接入列。据报道称，中共国主席习近平出席了典礼。
 
-正如我们广泛报道的那样，过去几个月来，中共国一直在忙于尝试数字货币，并有望成为世界上第一个发行其法定货币数字化版本的主要经济体。这可能会在2022年北京冬季奥运会被更广泛地推出。10月份，以南方先进经济政策著称的深圳向50万居民发放了价值1000万元人民币、可以在某些线上和线下零售商购物的数字货币。
+[!\[\]()!\[\](https://spark.adobe.com/page/2aiDd4OHEGzY0/images/05bcde9c-1800-4dd0-8468-95cd64078d68.jpg?asset_id=523229ae-d4f7-48e3-b1c0-b9ffab7d8d7c&amp;img_etag=%228e33bdf59278f87de1c10e7ed5151475%22&amp;size=1024)](https://spark.adobe.com/page/2aiDd4OHEGzY0/images/05bcde9c-1800-4dd0-8468-95cd64078d68.jpg?asset_id=523229ae-d4f7-48e3-b1c0-b9ffab7d8d7c&amp;img_etag=%228e33bdf59278f87de1c10e7ed5151475%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ySxKmWqchaCmz/images/0d342606-f6e5-4c71-9e69-e02047521a71.png?asset_id=84a273f5-56c1-4567-9495-f389701e495d&amp;img_etag=%226659b1ad95cad52c787dd3c8215c181f%22&amp;size=1024)](https://spark.adobe.com/page/ySxKmWqchaCmz/images/0d342606-f6e5-4c71-9e69-e02047521a71.png?asset_id=84a273f5-56c1-4567-9495-f389701e495d&amp;img_etag=%226659b1ad95cad52c787dd3c8215c181f%22&amp;size=1024)
+中共国海军的加强是在北京当局对台湾——一个民主国家和美国的盟友——的一系列升级之后。3月，中共国共派遣了54架次飞机进入台湾领空，4月初又有25架次。这一系列具有侵略性的行为与入侵南中国海同时发生，包括220艘渔船在美国海军的一个防御范围内集结，这给台湾的领土安全留下了疑问。
 
-中共国的其他几个大城市也效仿了深圳的做法。这些地区的居民必须通过选定的银行申请才能使用数字人民币进行收款和付款。
+上海已经在建造另外两艘直升机航母，这两艘航母可以容纳数架飞机，当两栖作战入侵台湾时，它们将成为一个巨大的威胁。
 
-正如TechCrunch指出的那样，数字人民币计划是中共国监管机构、商业银行和技术解决方案提供商的集体努力。乍一看，该方案仍然模仿目前的人民币实际流通情况。在央行的指导下，包括工商银行（ICBC）在内的中共国六大商业银行将数字人民币分配给较小的银行，并提供网络技术解决方案，这可能有助于新的电子货币被更广泛使用。
+这种被称为“刃海”级的导弹巡洋舰拥有自己的先进雷达技术和导弹系统阵列。北京当局已批准建造另外八艘“刃海”级巡洋舰，与此同时，中共国正在建造另一艘核动力潜艇，国防分析人士称，这将改善他们的核防御态势。
 
-当然，这意味着数字人民币不过是一种加密货币，是已经流通的货币的数字化版本。实际上，数字人民币所实现的是将所有纸币强制转换为数字令牌格式，这使北京方面能够对每笔交易进行全方位的控制，并获取每一个货币持有者的身份——这恰好与加密货币的初衷大相径庭。
+美国军事规划人员说，中共国可能在未来六年内入侵台湾。前美国海军军官预计，对台湾的战争可能会蔓延到澳大利亚、日本甚至印度洋海域。周日，澳大利亚国防部长彼得•达顿（Peter Dutton）告诉记者，台湾和中共国之间的冲突“不应该被忽视”。
 
-当然，由于中共国是一个独裁政权，所有公司必须像马云的公司一样，遵守北京当局的要求，因此中共国的主要科技公司都积极参与了数字人民币系统的建设，这将有助于中央政府更好地跟踪资金流动。
+共和党人认为，增加海军的国防预算将应对与日俱增的来自中共国的威胁。但不过，目前尚不清楚拜登政府是否会坚持这一路线，并建造更大的美国舰队。白宫发出的早期信号显示，美国国防预算停滞不前。美国国会预算办公室4月22日的一份报告显示，川普政府2020年12月批准的造船计划平均每年将花费340亿美元，比海军最初的估计高出10%。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ySxKmWqchaCmz/images/dd61725b-be74-4760-ba48-328e7cb3307f.jpg?asset_id=957e745a-14ed-420e-974f-8c9fb9f47c77&amp;img_etag=%2246c31a92b3b53817e7ad5943e7961bd5%22&amp;size=1024)](https://spark.adobe.com/page/ySxKmWqchaCmz/images/dd61725b-be74-4760-ba48-328e7cb3307f.jpg?asset_id=957e745a-14ed-420e-974f-8c9fb9f47c77&amp;img_etag=%2246c31a92b3b53817e7ad5943e7961bd5%22&amp;size=1024)图片来源：btcmanager
-
-除京东外，视频流媒体平台Bilibili、按需服务提供商美团和打车应用程序滴滴也已开始接受使用数字人民币交易。游戏和社交网络巨头腾讯成为“数字人民币运营商”之一，并将参与电子货币的设计、研发和运营工作。马云的蚂蚁集团（Ant Group）在首次公开募股陷入停滞后正进行整改。该公司还与央行携手建设基础设施，以数字化方式转移资金。电信设备巨头华为在其一款智能手机型号上首次推出了一个钱包，即使设备处于离线状态，该设备也允许用户立即使用数字人民币进行交易。
-
-🔗[原文链接](https://www.zerohedge.com/crypto/chinas-e-commerce-giant-jdcom-starts-paying-some-workers-digital-yuan?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+[🔗原文链接](https://freebeacon.com/national-security/china-commissions-three-advanced-warships/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ySxKmWqchaCmz/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/ySxKmWqchaCmz/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/2aiDd4OHEGzY0/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/2aiDd4OHEGzY0/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 
 
