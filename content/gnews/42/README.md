@@ -1,67 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新法官没有叫停亚利桑那州的选举审计
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1145802/)
+## 2021/04/21 班农采访(4): 老百姓的自由是最重要的核心主题
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1145874/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+视频字幕/听写：云岭| 翻译：葡萄树 | 校对：Clau | 简评/文字整理/编辑：胖丁| Page：Daoiii
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/M-16.jpg)swm.maricopa.gov
-就民主党试图继续阻止正在进行的、亚利桑那州参议院对2020年选举结果的审计事件，昨天笔者发文介绍，“一名与民主党关联很大的法官被任命，将于明天（即，今天）开庭审理此案……”【1】。
+[!\[\]()!\[\](https://spark.adobe.com/page/Ko6nCWSd728MO/images/5bafa0a2-b8f1-4441-9ced-a21772de3fbb.png?asset_id=591eeac6-a5fa-461b-894a-49550ef24783&amp;img_etag=%22f4244ba0d32706199e31f3792dc4d4d5%22&amp;size=1024)](https://spark.adobe.com/page/Ko6nCWSd728MO/images/5bafa0a2-b8f1-4441-9ced-a21772de3fbb.png?asset_id=591eeac6-a5fa-461b-894a-49550ef24783&amp;img_etag=%22f4244ba0d32706199e31f3792dc4d4d5%22&amp;size=1024)
 
-一个反对审计的人引述新法官马丁（Martin）在今天听证会上说的，“参议院有权进行审计，但必须权衡选民的宪法权利。我不能确信马里科帕郡（Maricopa）选民的权利得到了保护，这个问题是此案的核心。”【2】
+**简评：**
 
-马丁这样的表态，至少保证了今天至明天上午能继续审计，欣慰之余更令人担心！
+**制裁不能让我们沉默和停止战斗。上帝与我们同在。受迫害的各界宗教人士和中国人民会和我们站在一起，推翻中国共产党，恢复中国人民的自由，重建基督教和天主教的信仰。**
 
-《门道专家》（the gateway pundit）报道，“审计仍在继续——今天在亚利桑那州法庭上，新法官表达了对‘马里科帕（Maricopa）郡选民宪法权利’的关注——什么？！”【3】
+GTV视频链接：[20210424-001-BannonInterview-Q4 我们与CCP的这场战争](https://gtv.org/video/id=6086cddc11a7ed500e99113e)
 
-马里科帕郡的案件今天在亚利桑那州继续审理，新法官听取了民主党人试图阻止审计的论点，以及审计团队继续执行审计的决心。
 
-《大纪元》（The Epoch Times）报道了今天马丁法官的听证会：
 
-“我认为这是一次非常有成效和有用的听证会，对于原告要求的，我还有一些想法要考虑。”马丁说，“从现在到明天早上，我都会这么做的。”
+**视频字幕：**
 
-民主党人上周在最后一刻提起诉讼，要求阻止马里科帕郡的审计工作，而此时距审计工作预定开始还有几个小时。他们声称，下令进行选举审查的亚利桑那州参议院雇佣的承包商，没有妥善保管选票和设备。
+**Bannon：**21世纪上半叶最重要的核心主题是老百姓的自由。
 
-对200多万张选票和数十个电子制表机的审计工作于4月23日开始。
+因为老百姓获得自由时，人类就获得了自由。
 
-亚利桑那州参议院在1月份要求对选举文件和机器进行法庭传唤，一名法官在随后的一个月裁定传唤是有效的，必须服从。
+从前任政府到拜登政府，他们试图用制裁来让我沉默。
 
-包括参议院在内的被告说，由于这一过程已经开始，加上据称缺乏立案证据和实质性索赔，这意味着法官不应停止审计。
+我不会沉默，从我们每周的节目和每天的作战室，你们能看到。
 
-“哪怕是一天的禁令也可能会使审计脱轨。” 网络忍者（Cyber Ninjas）的律师亚历山大·科洛丁（Alexander Kolodin）告诉法庭，网络忍者是进行审计的四家公司之一。
+今天在作战室里，我将就此事做一个非常特别的报告。
 
-参议院律师科里·兰霍费尔（Kory Langhofer）告诉马丁，参议院“一直在遵守法律”，但此案提出了法律所要依据的问题。
+因为这些都是我们说过的。
 
-他说，参议院认为原告想要做的，要么不适用，要么已经在做了，并补充说“根本不需要禁令。”
+如果你看作战室，你不会觉得惊讶。
 
-……
+我们面前有一场漫长而艰难的战斗，但上帝站在我们这边。
 
-没有理由停止审计，原因如下：
+现在是中国人民受迫害最严重的时候，他们一定帮助领导我们渡过21世纪。
 
-1、这可能是有史以来最透明的审计，有9台摄像机通过AZAudit.org上的互联网与世界分享他们的信息。这不是亚利桑那州法律规定的，而是由审计单位（自愿）提供的，这样任何人都可以看到发生了什么（我说，是从国际审计的角度说的，我参与了全球数百项审计工作，在我的许多审计工作中，从来没有接受过视频监控，这真是“同类最佳”。）
+我坚信这一点，宗教迫害，无论是佛教、法轮功、维吾尔族，特别是基督徒和天主教徒（都是受迫害最严重的时候）。
 
-2、马里科帕郡进行过的审计，他们只看了少部分的选票，如果有的话，和少量的机器。它们的范围很小，也许是为了允许在最终结果中包括无效选票，他们几乎不能保证选举是准确和完整的。
+我知道一定会是这样，中国人民，受迫害的基督徒和天主教徒，以及中国将在我们推翻中国共产党之后，带领天主教和基督教会达到另一个水平。
 
-3、目前由网络忍者领导的审计正在审查该郡选举产生的所有选票，每一次投票都是法庭审查的一部分，以确保有效性，100%的人员抽样都是“同类最佳”。
+因为他们从巨大的迫害中重生，就像第一世纪的罗马人试图摧毁基督教会一样。
 
-4、审计没有侵犯选民的权利，因为没有一张选票，包括选票人的姓名或任何身份证明需要填写。
+所以我感到非常乐观。
 
-5、这次大规模的审计是在很短的时间内完成的。
+我认为我们正在获胜，而且最终我们会赢。
 
-6、选票和的机器每天都在9台摄像机现场拍摄的监视下进行审计。
+所以你只需要坚持战斗，只需要每天都在战斗中。
 
-7、马里科帕郡是法官应该关注的实体，撕碎的选票，装载在卡车上的选票，在没有法律责任的情况下被开到上帝知道的地方，阻止或阻止审计的琐碎诉讼，都是他们团体使用的工具。
+[**完整访谈视频**](https://www.youtube.com/watch?v=qnnVSjmLMxg)
 
-8、亚利桑那州马里科帕郡和美国人民有权知道他们的选举是准确和有效的，如果法官不这样认为，他就不配再当法官了。
+**主播：**Daniel, Dr. TCC, Castle和Mike
 
-参考链接：
+- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
+- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
 
-【1】[https://www.gnews.org/zh-hans/1142862/](https://www.gnews.org/zh-hans/1142862/)
 
-【2】[https://twitter.com/brahmresnik/status/1387141037081038850](https://twitter.com/brahmresnik/status/1387141037081038850)
+***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三直播***
 
-【3】[https://www.thegatewaypundit.com/2021/04/breaking-arizona-court-today-new-judge-expresses-concerns-constitutional-rights-voters-maricopa-county/](https://www.thegatewaypundit.com/2021/04/breaking-arizona-court-today-new-judge-expresses-concerns-constitutional-rights-voters-maricopa-county/)
+编辑：【英国伦敦喜庄园编辑部】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Ko6nCWSd728MO/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/Ko6nCWSd728MO/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)
 
 +1
