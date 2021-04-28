@@ -1,32 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国象牙塔内的焦虑
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1146167/)
+## 【路德简报】4/27/2021早：习突袭巡视广西、桂林等地 欲全力掌握南部战区
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1146246/)
 
-作者：Tang0426 | 校对：文明明 | 审核：宁缺 | Page: Daoiii
-
-[!\[\]()!\[\](https://spark.adobe.com/page/lcvscDObUcg5q/images/6639d82a-05b8-4bcd-b668-58b4a772a43f.png?asset_id=0bcc0cb3-7854-4765-9acc-07b06672e46c&amp;img_etag=%222ef7ef4607601813bc6fe350f3e6bb65%22&amp;size=1024)](https://spark.adobe.com/page/lcvscDObUcg5q/images/6639d82a-05b8-4bcd-b668-58b4a772a43f.png?asset_id=0bcc0cb3-7854-4765-9acc-07b06672e46c&amp;img_etag=%222ef7ef4607601813bc6fe350f3e6bb65%22&amp;size=1024)
-
-2021年4月21日清晨，中共国长沙市“中南大学”校园一学生跳楼身亡。据悉，该学生是在读研究生，学业优秀。跳楼起因是他发表在国际期刊上的论文自查有些问题，撤稿不成而顾虑重重，内心非常焦虑，起伏多天后竟然走上了不归路。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/lcvscDObUcg5q/images/7b8ecbc8-03ef-46d0-a84e-39bd17e9d17a.jpg?asset_id=4e80e2bc-3bba-4ae2-921f-e6d4bbdfeb77&amp;img_etag=%22a941c7342e70125494d61144e34672c6%22&amp;size=2560)](https://spark.adobe.com/page/lcvscDObUcg5q/images/7b8ecbc8-03ef-46d0-a84e-39bd17e9d17a.jpg?asset_id=4e80e2bc-3bba-4ae2-921f-e6d4bbdfeb77&amp;img_etag=%22a941c7342e70125494d61144e34672c6%22&amp;size=1024)
-
-中共国疾控中心早年有过一项调查统计：全国大学生中，高达25.4%的人有焦虑不安、神经衰弱、强迫症状和抑郁情绪等心理疾病。而中共国心理卫生协会大学生心理咨询专委会的调查也显示：50%以上的大学毕业生都存在这样或那样的心理问题。
-
-大学生理应是最阳光、最不受名利所累的象牙塔族群。但在中共国的应试教育体系和教育商业化的影响下，大学里培养出了大批虽有学历，但有心理疾病的毕业生。青春勃发的学生容易情绪波动，一些大学虽然设有心理咨询机构，但往往流于形式，没有恰当的疏导机制防止学生做出过激行为。
-
-学校是传道、授业、解惑的场所，但在中共国，除了一大堆应试教育，加上党文化宣传，有真正做的传道、解惑吗？“敬天地、爱父母、爱他人、也要爱自己”是否摆上了课堂？该学生纵身一跃前，是否想到过含辛茹苦地养育他成人的父母，我们不得而知。但我们知道的是：当中共政权将教育作为一种产业时，象牙塔就不复存在了，校园也不再是清净求学之地。该生在论文上署名院长和导师的名字，不就是投机心理吗？而后因论文有问题，生怕连累院长和导师，加重了心理负担。诚然逝者已去，我们唯求其安息！但最终令他走上绝路的不仅仅是他的脆弱，更是中共国僵化而缺乏爱的教育体制。
-
-*文章仅代表作者观点*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+**编辑：华盛顿DC农场 路德简报项目组**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2021-4-27-2-scaled.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+> 2021 年4月27日 路德时评 早
+> 
+> 1.习突袭巡视广西、桂林等地 欲全力掌握南部战区 [pic.twitter.com/YZDRgQVpUp](https://t.co/YZDRgQVpUp)
+> — 平民爆料 (@WM18320321) [April 28, 2021](https://twitter.com/WM18320321/status/1387242770243411970?ref_src=twsrc%5Etfw)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/lcvscDObUcg5q/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/lcvscDObUcg5q/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
 
 +1
