@@ -12,35 +12,35 @@
 
 ---
 
-### [中共病毒质疑增多 中共拒绝参加中美生物战问题的会议](/content/gnews/1/README.md)
+### [两名前中共总理被封杀，孰是孰非？](/content/gnews/1/README.md)
+ ` 喜马拉雅巴黎七星农场`
+
+### [中共病毒质疑增多 中共拒绝参加中美生物战问题的会议](/content/gnews/2/README.md)
  ` 喜马拉雅德国慕尼黑感恩农场`
 
-### [涉千人计划华裔化学家被认定为中共国窃取价值1.2亿美元的商业机密](/content/gnews/2/README.md)
+### [涉千人计划华裔化学家被认定为中共国窃取价值1.2亿美元的商业机密](/content/gnews/3/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [澳大利亚瞄准亚太防务，斥资5.8亿美元进行军事升级](/content/gnews/3/README.md)
+### [澳大利亚瞄准亚太防务，斥资5.8亿美元进行军事升级](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [保守的天主教徒准备 真相克服恐惧峰会， 以回应教皇弗朗西斯的全球主义者会议](/content/gnews/4/README.md)
+### [保守的天主教徒准备 真相克服恐惧峰会， 以回应教皇弗朗西斯的全球主义者会议](/content/gnews/5/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [家 庭 反 洗 脑 序 列 第二篇谈谈粮食问题](/content/gnews/5/README.md)
+### [家 庭 反 洗 脑 序 列 第二篇谈谈粮食问题](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [前苏联叛逃者警告使用生物武器](/content/gnews/6/README.md)
+### [前苏联叛逃者警告使用生物武器](/content/gnews/7/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [4/28/2021 财经快讯：Gemini与万事达卡合推加密货币信用卡；美监管机构拟定新指引限制SPAC](/content/gnews/7/README.md)
+### [4/28/2021 财经快讯：Gemini与万事达卡合推加密货币信用卡；美监管机构拟定新指引限制SPAC](/content/gnews/8/README.md)
  ` 秘密翻译组G-Translators`
 
-### [新疆血棉后易建联依旧力挺耐克说明了什么？](/content/gnews/8/README.md)
+### [新疆血棉后易建联依旧力挺耐克说明了什么？](/content/gnews/9/README.md)
  ` 澳喜农场`
 
-### [喜币上市之际的感想](/content/gnews/9/README.md)
+### [喜币上市之际的感想](/content/gnews/10/README.md)
  ` 澳喜农场`
-
-### [简评美国《2021战略竞争法案》](/content/gnews/10/README.md)
- ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
 
 ### [从钥匙澜找钥匙谈宫颈癌的发病](/content/gnews/11/README.md)
  ` 澳喜农场`
