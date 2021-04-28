@@ -1,51 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】望坑叹
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1147363/)
+## 【点睛要闻】特鲁多欲立法管制加拿大互联网言论
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1148000/)
 
-作者：纽约香草山佛教部 无执
+#### 撰稿：Ermat【㊙️翻Gnews原创组】
+责编：萌萌的朋克
+![]()![](https://gnews.org/wp-content/uploads/2021/04/hi-hi-hi.jpg)图片来源：mts.jk51.com
+据 NewsTarget 4月27日报道，加拿大总理贾斯汀·特鲁多（Justin Trudeau）提出了新的立法，旨在对加拿大互联网的内容进行审查、管制，以规范所有的网上言论。
 
+特鲁多以某些人针对特别是像他这样的政治家，在网络上传播”仇恨言论 “和 “伤害性 “语言为借口，希望出台法案，以迫使所有社交媒体平台，包括Facebook和Twitter，开始立即删除所有左派人士可能认为是 “冒犯 “的内容。
 
+加拿大遗产部长史蒂文·吉尔伯特（Steven Guilbeault）说，将用纳税人的钱建立一个新的监管机构，以监督所有互联网内容。拒绝或不遵守规定的科技巨头将招致经济处罚，这些处罚必须支付给特鲁多和他的亲信。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+他坚持认为，维护 “加拿大人共同的核心价值观 “的唯一方法是让任何在网上说了一些让政治家不高兴的话的人闭嘴。这样做将维护 “民主”，同时保持 “包容性和负责任的治理，和平的多元化，以及对多样性和人权的尊重。”
 
+疫情以来，从对中共的“妥协、放任”，到强制“隔离、管控”，推行威权主义，赋予警察违宪的权利，再到今天的言论封杀，特鲁多似乎在不顾一切地要把加拿大“转基因”成中共国。而刚结束的美国大选似乎又给了他一个重要的启示——控制媒体就能控制一切。
 
+但是，拜登总统虽然侥幸胜选，但也是“风波迭起、险象环生”，特鲁多确定自己一定会这样幸运吗？
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4282w.jpg)图源网络
+参考链接：
+[Canada introduces bill to police all internet speech](https://www.newstarget.com/2021-04-27-canada-introduces-bill-police-all-internet-speech.html)
 
-生前未有死后弃，盗国欺世权谋利。
+（本文仅代表作者个人观点）
 
-生灵涂炭七十载，演尽黄粱小丑戏。
-
-明朝古树尤还在，故人悬颈望故居。
-
-毒魔猖狂怒万神，不知死活蹈我迹。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2-1.jpg)
-
-编辑：369文驹
-
-校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-
-
-0
++1

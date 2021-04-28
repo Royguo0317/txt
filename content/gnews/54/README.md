@@ -1,47 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】开花的石头
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1147159/)
+## 喜币上市之际的感想
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1147162/)
 
-配音：香草山录音组 Swr拥抱太阳
+撰稿： 思乡油饼
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20210402_Task3_Cover.jpg)
+新中国联邦，爆料革命，文贵先生一手打造的G系列生态圈首个重要的产品-喜币4月21号，正式上市了！
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+喜币拥有自己5个交易所，它在全世界100多个国家申请的，而且是受最牛的金融国家认可的，这个数字货币，加密货币，而且这个货币的系统被很多国家认为这是数字货币有史以来，安全级别最高的。这是中国14亿人唯一的在国际上，让西方文明国家相信，这是一个没有共产党的一个现代化的加密数字货币，这是一个绝对安全的、守法的、这个是在西方文明的社会里，法律保障的社会里，受西方文明和法律所接受的，唯一的一个有稳定、浮动、联储、黄金，作为备用支付的唯一一个全功能的金融现代化加密、虚拟，现代金融系统平台，现代货币系统。
 
+喜币上市了，战友们都做KYC了。这是文贵先生为广大战友准备的福利，更是以钱灭共的重要手段之一。我们感恩文贵先生对战友的丝丝情谊，更要牢记爆料革命的使命—灭共！只有早日消灭中共这个恶魔，才能迎来新中国联邦美好的未来！战友们，加油！
 
+(本文仅代表作者个人观点)
 
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-
-每座城市都有我奔赴的理由
-
-每条河流都有你滋润的疆土
-
-每个战友都有我们拥抱的热泪
-
-沉默的石头，开花的树
-
-
-
-**文字版原文：[【香草诗词汇】开花的石头](https://gnews.org/zh-hans/576778/)**
-
-作者：香草山写作组 木白
-
-
-
-音频处理/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2-1.jpg)
 0

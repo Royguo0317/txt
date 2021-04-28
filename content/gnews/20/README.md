@@ -1,63 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210428（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1147721/)
+## 中共黑客试图利用“脸书“监视国内外的维吾尔人 （一）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1147975/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+- 翻译：蚂蚁兄弟
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01-19.jpg)
+**西班牙2021年4月28日电/西喜社——**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02-20.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/hacker-3480124_640.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03-19.jpg)
+今天的中国拥有一个复杂的监控网络系统，以跟踪其公民和异议者，无论是在国内还是国外。中共国不仅操作多个系统来维持对其公民的监视，而且还责成在中共国无论私营、国营公司都要进一步加强其人力和技术对人们进行监控。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-21.jpg)
+来自中国、包括生活在国外在内的几十人个维吾尔人都在监视下，并且他们在中共新疆维吾尔自治区的家人被威胁要与中共国合作。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05-19.jpg)
+最近，关于这一问题的一个有趣的事件被曝光了。IPVM视频监控信息，一家监控行业的公司与《纽约时报》共同揭露了关于阿里巴巴的云计算业务网站的信息，显示客户如何使用其软件通过图像和视频检测维吾尔族和其他突厥人的脸。这一功能被内置在“阿里巴巴”的软件中，帮助网络平台监控数字内容中与“恐怖主义、色情和其他异议类别”有关的材料。所有监控公司都为中共工作并提供服务，均受到法律保护，包括那些协助监测和迫害维吾尔族的公司。当《纽约时报》向“阿里巴巴”询问这一情况时，该公司修改了其网站，并删除了涉及到对维吾尔族和其他突厥族面孔识别的有关信息。“阿里巴巴”没有透露它创建这个软件的目的是什么，即使只是为了测试。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06-17.jpg)
+另一家中国云计算供应商金山云将其网站技术描述为能够使用人脸图像来预测 “种族”和其他特性。根据IPVM视频监控的金山云网站的一个页面信息发现，该公司的软件可以评估一个人的种族是”维吾尔族”还是”非维吾尔族”。当《纽约时报》向金山云询问该软件时，该公司从其网站上删除了这些网页。在一份书面声明中，金山云表示，此类有关工具从未出售给客户，它无法辨别维吾尔族人的面孔。该公司表示，该软件没有通过公司的内部审查程序，公司正在对这些机制进行评估，以确保适当的监督。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07-17.jpg)
+中共一直追求最顶尖的监视技术，监控和跟踪在中共国境内的少数民族。东突厥斯坦的维吾尔人在种族上与大多数汉族人不同，而且特征很突出，使软件很容易筛选出他们的脸。“华盛顿邮报”报道说，中国科技巨头华为公司测试了一款软件，当其监控摄像头检测到维吾尔族人的面孔时，可以自动提醒警方。法国足球运动员安托万-格里兹曼(Antoine Griezmann)证实这一消息后，切断了与该公司品牌大使代理的关系。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08-17.jpg)
+在中共国范围内有一个庞大的摄像头网络，中共国的面部识别系统几乎记录了中国境内的每一个公民。2019年的一次泄密事件显示，无孔不入的中国监控工具在一天内包含了680多万条记录。2020年3月，一个由17名美国参议员组成的两党小组给当时的国务卿蓬佩奥写了一封信，指出 “中共国使用面部识别来区分维吾尔人，根据他们的特征进行种族分类，并将他们挑出来进行跟踪、虐待和拘留”，这一点可以很清楚的证明。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09-17.jpg)
+中共国长期以来的间谍活动已经超出了它的边界。脸书facebook发现中共国黑客进行了一场深度的间谍活动，试图欺骗世界各地的亲维吾尔族活动人士，让他们下载一款恶意软件，以便对他们的设备进行监控。脸书确认这一行动是中共国某黑客组织所为，他们创建了维吾尔族社区流行的新闻网站的假版本，并用恶意软件对其进行加密。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-24.jpg)
+素材：蚂蚁兄弟；Aries的星；校对：信心的选择；发稿：信心的选择
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-29.jpg)
+**新闻来源：**[《新闻周刊》](https://www.newsweek.com/chinas-attempt-spy-uyghurs-home-abroad-opinion-1586475)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-28.jpg)
+续下一篇：中共黑客试图利用“脸书“监视国内外的维吾尔人 （二）
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-22.jpg)
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-21.jpg)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-21.jpg)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-18.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-16.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/18-13.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/19-11.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/20-21.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/21-7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/22-4.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/23-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/24-2.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
-
-0
++1

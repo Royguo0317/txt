@@ -1,28 +1,95 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共“一带一路”债务陷阱图穷匕见
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1147571/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（二）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1147830/)
 
-- 作者：千岛湖（文新）
+作者：纽约香草山信息部 6zero4
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年4月28日电/西喜社——**
+2月12日塞林博士推文：转贴石正丽等中共病毒科学家于2017年11月10日发表在Springer上的一篇文章“SARS冠状病毒特定抗体对抗SARS蝙蝠类冠状病毒的交叉中和作用”，以助于帮助美国纳税人了解自己的钱是如何被用于资助中共的生物武器研究的，线索最终指向WIV，并强调福奇的国家过敏与传染病研究所(NIAID)与中共军方的合作已经将近10年。还引用杜兰英 2007年发表在PubMed的一篇文章“以蛋白酶因子Xa分离的SARS冠状病毒S蛋白与病毒传染性相关”，以揭露中共孕育COVID-19的早期铺垫。（石正丽、杜兰英和NIAID浮出水面）
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-14.png)
 
-改革开放以后，中国经济高速发展，特别是在2001年加入WTO，2008年又成功举办北京奥运会后，中国迅速发展成世界第二大经济体。中共遂即在2013年提倡发展“一带一路”战略，正式迈开了对外“发展”的步伐。中共很好的利用和控制了手中的宣传机器，很多国家都误以为中共鼓吹的“中国模式”是一种先进的经济模式，殊不知“中国模式”是建立在高污染，过度开发，炒作房地产，无底线的压榨国内老百姓的基础上。作为世界第二大经济体，现在中国老百姓都还没能够享受免费的教育、医疗、养老福利，更别说基本的民主、自由和人权了。
 
-截止到2021年3月，中共已经与141个国家和31个国际组织签署了200份共建“一带一路”合作文件，但是其中绝大数都是发展中国家和不发达国家。中国有世界上最长里程数的高速公路和高铁，基础设施投资在中共经济增长中的占了很大的比重，现在中共通过“一带一路”把“铁公基”也推广到了这些国家。中共打着“构建人类命运共同体，共创人类共同美好未来”的幌子，开始给这些贫穷国家设下了债务陷阱。“一带一路”参与国家的基础建设所需大量资金，中共给予这些政府巨额贷款。根据这些国家的国情，需不需要像中国“大跃进”式的基础建设是值得商榷的，在这个过程当中就参杂了政府官员的腐败和出卖国家利益的行为，这也给了中共“蓝金黄”的绝佳机会。
+> To understand the COVID-19 Rabbit Hole, how U.S. taxpayers helped fund China's biological warfare research and the eventual link with the Wuhan Institute of Virology, follow this Yellow Brick Road (one key player missing). [@RaheemKassam](https://twitter.com/RaheemKassam?ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/cTvyQsfjX7](https://t.co/cTvyQsfjX7)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [February 12, 2021](https://twitter.com/LawrenceSellin/status/1360091818893795328?ref_src=twsrc%5Etfw)
 
-许多和中共的“一带一路”项目相关的贷款都是给了一些位于“战略性的地区”的发展中国家，而且现在欧美等媒体披露出贷款协议中的机密条款，包括中共的贷款往往利率很高，期限较短，而这些债务国经常使用国家能源、矿山、港口等国家资产作为抵押。如2017年12月，由于斯里兰卡无力偿还债务，根据一份有效期长达99年的租约，斯里兰卡正式将汉班托塔港移交给中国。汉班托塔港是中共参与建设和运营的42个外国港口之一，还有更多的港口中共要参与建设和运营。
 
-随着中共病毒全球大流行，世界各国经济都受到了严重危机，特别是曾经参与到“一带一路”的发展中国家，越来越多的国家表示无偿还能力。东南亚及非洲这些国家纷纷跳入了债务陷阱。
 
-审核：Aries的星；校对：信心的选择；发稿：信心的选择
+2月15日塞林博士推文：贴出自己刚刚发表在CCNS上的文章“中共军方与美国资金的联系，以及COVID-19的起源”，详细披露中国医学微生物研究所所长姜世勃在美国深造和工作后回国参与军方病毒研究的经历，尤其是在2013年，出现了许多确凿的证据证明了病毒的实验室起源。（姜世勃浮出水面）
 
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+
+
+> The Chinese Military, its Links to U.S. Funding and the Laboratory Origin of COVID-19
+> "Then, in 2013, came what many might consider the smoking gun."[@RaheemKassam](https://twitter.com/RaheemKassam?ref_src=twsrc%5Etfw) [@nataliegwinters](https://twitter.com/nataliegwinters?ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/tZ4KhwD6zN](https://t.co/tZ4KhwD6zN)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [February 15, 2021](https://twitter.com/LawrenceSellin/status/1361138705172488195?ref_src=twsrc%5Etfw)
+
+
+
+2月20日塞林博士推文：贴出自己刚刚发表在CCNS上的文章“明确的科学证据表明COVID-19病毒的实验室起源”，以通俗易懂的方式让非专业人员了解病毒来自实验室的科学证据。
+
+
+
+> Written for the non-scientist, but with scientific references.
+> 
+> "Unequivocal Scientific Evidence that the COVID-19 Virus Originated in a Laboratory"[#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusVaccine](https://twitter.com/hashtag/CoronavirusVaccine?src=hash&amp;ref_src=twsrc%5Etfw) [@RaheemKassam](https://twitter.com/RaheemKassam?ref_src=twsrc%5Etfw) [@RealPNavarro](https://twitter.com/RealPNavarro?ref_src=twsrc%5Etfw) [@nataliegwinters](https://twitter.com/nataliegwinters?ref_src=twsrc%5Etfw)[https://t.co/7NCM0noiD0](https://t.co/7NCM0noiD0)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [February 20, 2021](https://twitter.com/LawrenceSellin/status/1362966132488101888?ref_src=twsrc%5Etfw)
+
+
+
+2月21日塞林博士推文：再次强调美国病毒研究已经被中共军方深度渗透，美国纳税人的钱和从美国实验室偷取的技术帮助中共开发了COVID-19病毒。中共早在2020年1月12日前就已经知道COVID-19病毒与WIV和其它军方实验室掌握的病毒类似。
+
+
+
+> U.S. virus research programs are deeply penetrated by China including by the Chinese military. U.S. taxpayer money and technology acquired from U.S. labs helped fuel China's creation of the COVID-19 virus[@RaheemKassam](https://twitter.com/RaheemKassam?ref_src=twsrc%5Etfw) [@RealPNavarro](https://twitter.com/RealPNavarro?ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/fU2bCLVoig](https://t.co/fU2bCLVoig)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [February 20, 2021](https://twitter.com/LawrenceSellin/status/1363210254239096833?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> China knew prior to January 12, 2020 that the COVID-19 virus resembled coronaviruses already held by the Wuhan Institute of Virology and the laboratories of the Chinese military.[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [@RaheemKassam](https://twitter.com/RaheemKassam?ref_src=twsrc%5Etfw) [@RealPNavarro](https://twitter.com/RealPNavarro?ref_src=twsrc%5Etfw) [@nataliegwinters](https://twitter.com/nataliegwinters?ref_src=twsrc%5Etfw) [https://t.co/9mJVqRf3FT](https://t.co/9mJVqRf3FT)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [February 21, 2021](https://twitter.com/LawrenceSellin/status/1363458256191041537?ref_src=twsrc%5Etfw)
+
+
+
+2月22日塞林博士推文：贴出了高福负责的一项启动于2011年的项目的白皮书之首页，其项目名称就是“重要病毒跨种间感染与传播致病的分子机制研究”，赤裸裸地已经在研究反人类的病毒感染治病机理，直接导致COVID-19病毒得以基因分离、改造和功能增强。高福是中国CDC主任，中国科学院微生物研究所首席科学家，2019年当选为美国科学院院士。（高福浮出水面）
+
+
+
+> The title page of the China's 2011 viral pathogen research program that led to COVID-19. The author is Gao Fu or George F. Gao, head of China's CDC, who was elected a member of the U.S. National Academy of Sciences in 2019[@RaheemKassam](https://twitter.com/RaheemKassam?ref_src=twsrc%5Etfw) [@RealPNavarro](https://twitter.com/RealPNavarro?ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/CKEVbxVyP8](https://t.co/CKEVbxVyP8)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [February 21, 2021](https://twitter.com/LawrenceSellin/status/1363566461088915458?ref_src=twsrc%5Etfw)
+
+
+
+2月24日塞林博士推文：2019年9月12日开始外界访问WIV数据库的通道被掐断，这与美国国家安全情报部门截获的流感类疾病信号吻合。
+
+
+
+> Blocking of external access to the Wuhan Institute of Virology database ([https://t.co/UlTUdgnmMO](https://t.co/UlTUdgnmMO)) on 12 Sept 2019 coincided with National Security Agency signal intercepts indicating an outbreak of an influenza-like disease.[@RealPNavarro](https://twitter.com/RealPNavarro?ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/pu7opYyeEm](https://t.co/pu7opYyeEm)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [February 24, 2021](https://twitter.com/LawrenceSellin/status/1364536570959847426?ref_src=twsrc%5Etfw)
+
+
+
+塞林博士基于情报，揭示高福2011年开始的一个叫“重要病毒跨种间感染与传播致病的分子机制研究”，就是中共孕育COVID-19病毒的理论基础，中共军民融合的病毒学家石正丽、杜兰英和姜世勃等参与研究冠状病毒的事实浮出水面，披露了美国福奇及其NIAID已经与中共军方机构如WIV等合作了近10年。2019年9月，外界访问WIV数据库的通道被掐断，预示着中共为1个月后的武汉世界军运会放毒，让各国运动员将病毒传向全世界做准备（虽然此举失败），然后就是2020年1月份从武汉开始的COVID-19疫情向全世界大爆发！
+
+编辑/校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 +1

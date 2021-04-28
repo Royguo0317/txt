@@ -1,47 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】点燃更多的灯：照亮神佛庇佑的土地
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1147167/)
+## 4/28/2021 财经快讯：Gemini与万事达卡合推加密货币信用卡；美监管机构拟定新指引限制SPAC
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1147277/)
 
-配音：香草山录音组 Swr拥抱太阳
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-76.png)[图片来源](https://www.paymentsjournal.com/)
+**1.万事达卡和数字货币交易所****双子星****推出加密奖励信用卡**
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+[万事达卡公司和美国加密货币交易所双子星（Gemini）将在今年推出首张向用户提供数字货币“奖励”的信用卡，从而加深主要支付公司对新兴资产类别的参与。两家公司在一份声明中说，从今年夏天开始，该卡的用户将在购买时获得高达3％的比特币或其他加密货币，而数字货币则存储在持卡人的双子星帐户中。万事达卡在2月份表示，计划在今年为其网络上的某些加密货币提供支持，而Visa也将允许使用加密货币在其支付网络上进行交易结算。](https://thestarphoenix.com/pmn/business-pmn/mastercard-and-digital-currency-exchange-gemini-to-launch-crypto-rewards-credit-card)
 
+**2****.美国监管机构仔细考虑限制****SPAC**
 
+[据三位知情人士透露，美国证券监管机构正在考虑制定新的指导方针，以限制上市的空白支票公司的增长预测，并澄清它们何时有资格获得某些法律保护。证券交易委员会（SEC）的工作人员正在权衡先前未报告的措施，这将加剧其对特殊目的收购公司（SPAC）的交易狂热的镇压，它担心这会使投资者面临风险。在本月早些时候美国证券交易委员会（SEC）建议将SPAC发行的认股权证作为负债而非权益工具进行会计处理之后，SPAC市场已经开始失去动力，而潜在的新指导可能会加剧这种情况。华尔街是近年来最大的淘金热，SPAC是上市的空壳公司，通过募集资金来收购私人公司并将其上市，从而使目标公司可以避开首次公开募股的繁琐监管检查。](https://www.reuters.com/business/exclusive-us-watchdog-weighs-guidance-aimed-curbing-spac-projections-liability-2021-04-27/)
 
+**3.第一季度****中共****与美国的贸易额增长133.4％**
 
+[中共海关周一发布的数据显示，与美国的贸易在2021年第一季度增长了133.4％，达到125亿美元。与所有合作伙伴相比，山东省青岛市的总贸易量比2020年大流行年增长了8.8％，比2019年大流行前的总量增长了1.9％。《华尔街日报》周日报道称，中共越来越积极地将贸易增长作为政治武器，认为作为第一个从疫情中恢复的国家，中共国已经成为每个主要经济体不可或缺的贸易伙伴。然而这种咄咄逼人的姿态引发了澳大利亚等中共国贸易伙伴的“反弹”，导致中共“一带一路”倡议(BRI)的两个项目夭折。澳大利亚外交部长玛丽丝·潘恩(Marise Paine)认为这两项“一带一路”协议，“不符合澳大利亚的外交政策或不利于我们的外交关系”。](https://www.breitbart.com/national-security/2021/04/27/china-trade-u-s-up-133-4-first-quarter/)
 
-我们与末日正擦肩而过
+[路透社周二援引联合国的一份分析报告称，过去一年中，中共国在全球出口中所占的份额增长了近15％，但由于中共国的国内需求不断增长，劳动力成本不断上升以及其他出口商正在从大流行中摆脱出来，这一数字可能已经达到顶峰。](https://www.breitbart.com/national-security/2021/04/27/china-trade-u-s-up-133-4-first-quarter/)
 
-但真正的灾难还没到来
+**4.埃克森美孚公司在圭亚那****沿海****发现了第19个石油**
 
-勒紧裤带，擦亮眼睛
+[周二，埃克森美孚（Exxon Mobil Corp）在圭亚那海上的斯塔布鲁克（Stabroek）区块的Uaru-2号井发现了第19个油田，这家美国能源公司在过去十年继续开发世界上最重要的新油气区块之一。不过，该公司没有具体说明新发现的石油和天然气储量将在此前估计的90亿桶以上的可采储量基础上增加多少。作为包括赫斯公司（Hess Corp）和中共国海洋石油有限公司在内的财团的一部分，埃克森美孚运营着660万英亩的斯塔布鲁克区块，并于2019年开始生产。](https://jp.reuters.com/article/us-exxon-mobil-guyana/exxonmobil-makes-19th-oil-discovery-off-guyanas-coast-idUSKBN2CE1II)
 
-你会看清：未来的历史和今天的真相
+**5.中共****国****将****宣布其人口六十年来首次下降**
 
+[据英国《金融时报》报道，尽管目前尚不清楚到底有多少人口，但该世界人口最多国家的最新人口普查数字预计将下降到不到14亿。这是自1960-61年由于大饥荒的影响而连续两年下降以来的首次人口下降。根据官方数据，人口在1960年下降了1000万，在1961年又下降了340万，在1962年又回升至1440万。上个月，一位中共主要研究人员表示，中共将逐步开始提高中共国工人的退休年龄，这表明该国的劳动力规模不足以允许年长的工人按正常年龄退休。](https://www.scmp.com/news/china/article/3131341/china-reportedly-set-announce-its-first-decline-population-1949)
 
+[分析人士表示，中共国人口减少可能会对中共国经济产生巨大影响，也会影响包括美国在内的其他国家对中共国的看法。并有明显迹象表明，人口危机正在中共国逼近，而中共官员对他们提供的人口数字并不总是诚实的。密歇根大学国际研究所主任、《中国的威权合法性》一书的作者玛丽•加拉格尔(Mary Gallagher)表示:“在上述声明发布之前，中共国的人口趋势就已经很明显了，但这则消息证实了人们的担忧，即尽管放宽了人口政策，但中共国的人口仍在继续萎缩。制造业的劳动力短缺和中共国人口的快速老龄化在近20年前就已经被注意到了。”](https://www.scmp.com/news/china/article/3131341/china-reportedly-set-announce-its-first-decline-population-1949)
 
-**文字版原文：[【香草诗词汇】点燃更多的灯：照亮神佛庇佑的土地](https://gnews.org/zh-hans/576747/)**
+**6.一夜之间9股“戴帽”，还有这些股票风险很大**
 
-作者：香草山写作组 木白
+[仅昨日盘后，就有多达9家上市公司披露公告称，公司股票将被实施退市风险警示（即“戴帽”）；其中有5家均触发“2020年度经审计的净利润（扣除非经常性损益前后孰低）为负值且营业收入低于1亿元”的情形。这是今年以来，实施退市风险警示公司家数最多的一天。昨日盘后公告被实施退市风险警示的公司包括：华谊嘉信、西域旅游、天山生物、宝德股份、米奥会展、云南城投、大有能源、德新交运、香梨股份。在未披露年报也未披露业绩快报的公司中，共有28家公司去年前三季度营业收入小于1亿元。值得注意的是，其中不少公司预告2020年年报净利润为亏损。](https://www.sohu.com/a/463343812_146697)
 
-
-
-音频处理/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+By 【金融组 – 小海星】
+素材搜集：Wendy
+校对：Tracy
 
 0

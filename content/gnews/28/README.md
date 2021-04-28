@@ -1,45 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 马里科帕县法官暂时允许2020年选举审计继续进行
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1147827/)
+## 【有声读物】欧盟向接种疫苗的美国游客敞开大门
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1147958/)
 
-翻译：奋斗
-校对：枳实
-编辑：七彩光
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image001-42.png)
-4月27日，亚利桑那州的一名法官允许该州最大县的2020年选举审计继续进行，直到4月28日的再次庭审听证。
+配音：香草山录音组 蒙古鸿雁
 
-马里科帕县高等法院法官丹尼尔·马丁(Daniel Martin)表示，如果亚利桑那州民主党人缴纳了100万美元的保证金，他本不会延长4月23日的临时限制令，从而停止审计。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-“我认为这是一次非常有成效和有用的听证会。我还得考虑一下原告提出的救济要求。从现在到明天早上，我都会这么做。”马丁说。
 
-上周，在审计计划开始前几小时，民主党人在最后一刻提起诉讼，试图阻止审计。他们声称，下令进行选举审查的亚利桑那州参议院雇佣的承包商没有正确地确保选票和设备的安全。
 
-对200多万张选票和数十台电子投票机的审计工作于4月23日开始。
 
-亚利桑那州参议院在1月份发出传票，要求选举文件和机器作为证物。随后的一个月，一名法官裁定传票有效，必须遵守。
 
-包括参议院在内的被告说，由于审计程序已经在进行中，再加上指控缺乏依据和实质性要求，这意味着法官不应该停止审计。四家执行审计的公司之一数码忍者（Cyber Ninjas）的律师亚历山大·科罗丁(Alexander Kolodin)在法庭上表示:“哪怕是一天的禁制令也可能破坏这次审计。”
 
-参议院的律师Kory Langhofer告诉马丁法官，参议院“一直打算遵守法律”，但问题的关键是法律到底要求了什么，参议院认为原告想要的一切要么不适用，要么已经在实施，“根本没有必要颁布禁令。”
 
-亚利桑那州民主党律师罗帕莉·德赛(Roopali Desai)对凤凰城退伍军人纪念体育馆(Veterans Memorial colisein Phoenix)的安全问题提出了她所说的严重指控。审计工作正在这座体育馆进行。一名当地新闻记者声称，在审计进行的四天里，他都能“不受打扰”地在现场走动，包括接近制表机和选票。德赛认为，不能仅仅因为审计在各方准备实施适当的安全程序之前就开始了，“就导致我们不能暂停审计，直到我们绝对确定法律正在被遵守（再重新开始审计）。”
+据零对冲4月26日的报道，由于许多欧盟成员国急于恢复旅游业以及税收的目的，欧盟向完全接种疫苗的美国游客敞开大门，这是具有里程碑意义的政策转变，欧盟正朝着毫不掩饰地拥护“疫苗护照”的政策发展。
 
-2021年4月22日，总部位于佛罗里达州的咨询公司Cyber Ninjas安装了选票扫描设备，负责监督凤凰城亚利桑那退伍军人纪念体育馆的审计工作。
+援引《纽约时报》对欧盟委员会主席乌苏拉-冯德莱恩的采访报道说，欧洲计划允许已经完全接种疫苗的美国游客在夏季访问欧盟。这个信息是明确无误的，旅游股因此而反弹。冯德莱恩将美国和欧洲监管机构之间的“高级会谈”作为欧洲认为有理由推出“疫苗护照”的众多原因之一。
 
-德赛提交的一份听证会前备忘录中也提出了类似的论点。与此同时，参议院要求法官以缺乏“任何可认定的法律主张”为由，直接驳回此案。
 
-马丁最终站在了被告一边，但保留了在下一次听证会上改变主意的可能性。下次听证会将于4月28日举行。
 
-下一次听证会还将包括对网络忍者的一项动议的口头辩论，该动议要求将部分提交的文件封存起来。该公司辩称，这些文件包含了详细说明其安全性以及（证物）监管链流程和操作方面的敏感信息。
+**文字版原文：[【热点播报】欧盟向接种疫苗的美国游客敞开大门](https://gnews.org/zh-hans/1141533/)**
 
-马丁还批准了亚利桑那州民主党国务卿凯蒂·霍布斯(Katie Hobbs)和亚利桑那州第一修正案联盟(First Amendment Coalition of Arizona)的动议，后者是一个代表记者的非营利组织，帕金斯·科伊(Perkins Coie)是其代表。
+作者：纽约香草山写作组 四季
 
-马丁是民主党任命的法官，在法官克里斯托弗·库里因与一名涉案律师有关联而回避后接手了此案。马丁曾在布朗贝恩律师事务所(Brown & Bain)工作，之后该事务所与经常代表民主党和民主党团体的重量级律师事务所帕金斯科伊(Perkins Coie)合并。
 
-原文链接：
 
-[https://www.theepochtimes.com/maricopa-county-judge-lets-2020-election-audit-continue-for-now\_3793513.html?utm\_campaign=socialshare\_twitter&utm\_source=twitter.com](https://www.theepochtimes.com/maricopa-county-judge-lets-2020-election-audit-continue-for-now_3793513.html?utm_campaign=socialshare_twitter&amp;utm_source=twitter.com)
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
