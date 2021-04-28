@@ -1,63 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210428（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1147721/)
+## 【灭共头条】 “大管家”董宏被抓 王岐山被严密监视
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1147285/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+#### 撰稿：MIYA【㊙️翻 Gnews原创组】
+责编：萌萌的朋克
+![]()![](https://gnews.org/wp-content/uploads/2021/04/闪闪.jpg)图片 来源：Gnews
+中共最高检察院26日发布通告，以涉嫌受贿罪逮捕中央巡视组原副组长董宏，董宏曾任中共元老薄一波秘书，且长期追随国家副主席王岐山，被视为王的得力亲信、“大管家”。
 
+董宏是王岐山“大秘”、“大管家”的称号源自对王岐山的一路跟随，在后者担任广东省副省长、国务院体改办主任、海南省委书记、北京市市长的期间也在同地任职。然而，去年农历春节后，随着孙力军、孟建柱陆续被抓，与王岐山关系密切的地产大亨任志强，也于同年9月因撰文批习近平被重判18年，那个时期的王岐山几乎处于神隐状态。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+去年的10月初，董宏被中纪委以严重违纪违法为名，通告接受调查。郭文贵先生在随后11月20日“王健之死”发布会2周年的直播中这样假设道，如果王健不死，按死亡的先后顺序将依次排列为董宏、陈峰，然后是王岐山。由此可见董宏手上掌握王岐山的核心秘密绝不亚于被“拍照死”的王健。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01-19.jpg)
+董宏与王岐山的命运紧密相连似乎有迹可循。董宏落马的当月下旬，王岐山突然视讯露面上海外滩金融峰会，王在党内“上海帮”的“老巢”提出要防范金融风险，被当时的马云犀利回应“没有系统性风险”。 显然此时的王岐山已身不由己，成为习近平巩固政治地位的棋子。今年3月的两会期间，王岐山参加湖南代表团会议时，发言中至少8次提到习近平。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02-20.jpg)
+王岐山开始频频露面的时间线，正是董宏接受调查的期间。4月12日，中纪委再出通告称，董宏已被开除党籍，通告列举的罪状包括大搞迷信活动、家风败坏、大搞权钱交易，和非法收受巨额财物等；直至26日，中共最高人民检察院以涉嫌受贿罪，做出逮捕董宏的决定。同一时期，王岐山现身4月20日在海南召开的2021年博鳌亚洲论坛的开幕式，他难掩对习近平的不满、不屑和不服，一语双关地自称是为习主席“报幕”的“临时主持人”；4月24日，王岐山视讯为中美“乒乓外交”50周年活动致辞，他称 “合作是双方唯一正确选择”。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03-19.jpg)
+郭文贵先生在4月23日的GTV直播中透露了王岐山被严密监视的现状，郭先生说王身边已不见昔日紧紧跟随的裴楠楠等几名亲信警卫，王岐山借着在海南参加博鳌论坛的机会密会了不少人，其中，与在三亚亚龙湾301分院疗养的一位“老同志”会面时，有人提到为陈峰说情，被异常紧张的王岐山破口大骂。可见，从董宏接受调查后到正式逮捕，王岐山在与习近平二人关系中的位置似乎越来越被动。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-21.jpg)
+郭先生还揭露，习近平在盲目统揽权力的路上已成孤家寡人，身边可信可用的人已所剩无几，围绕习近平的不是落井下石之辈，就是傲慢无知的战争狂徒……习、王二人曾以“反腐”的名义一起狼狈为奸，又因知根知底导致彼此争斗、嫉恨。习近平用高压的政治手段，对一起做过恶、一起分过赃的“同伙”过河拆桥，一定会招致王岐山伙同更多习的政敌伺机反扑。中共永无止境的政治斗争从来没有“和平共处”一说，你死我活的血腥内斗，加上外部国际联盟对中共的围剿，必将导致这一邪恶政权的最终覆灭！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05-19.jpg)
+参考链接：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06-17.jpg)
+[王岐山频露面“示弱”习近平 前大管家董宏被捕下狱](https://news.ltn.com.tw/news/world/breakingnews/3512530)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07-17.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08-17.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09-17.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-24.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-29.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-28.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-22.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-21.jpg)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-21.jpg)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-18.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-16.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/18-13.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/19-11.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/20-21.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/21-7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/22-4.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/23-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/24-2.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
+（本文仅代表作者个人观点）
 
 0

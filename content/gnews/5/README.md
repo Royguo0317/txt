@@ -1,51 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】望坑叹
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1147363/)
+## 出尽洋相的辽宁舰航母要回家了
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1147936/)
 
-作者：纽约香草山佛教部 无执
+加拿大多伦多枫叶农场 军迷Wilson
 
+日本最高军事机关统合幕僚监部27日发布消息称， 中共国辽宁舰航母编队本周二经宫古海峡进入东海，日本海上自卫队出动护卫舰和P-3C巡逻机进行了监视。按照辽宁舰约20天的续航能力判断，辽宁舰是在返回母港的路上。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/thedrive.com_.jpg)*图片来源：thedrive.com*
+中共航母辽宁舰编队4月初出航，和日本首相即将访美有很大的关系。其长达15天的游弋，走的线路是从宫古海峡象征性地跨过第一岛链，绕过台湾外海即东海岸进入南海，这是西太平洋最敏感的地段，明显是在威吓台湾，是对美日及菲律宾等在南海有争端的国家进行示威和挑畔。
 
+令中共始料不及的是，这一次行动是自取其辱的旅程。美国并不把中共的假航母战斗编队当回事，美军的柏克级驱逐舰等美军舰船始终对辽宁舰近距离追踪监视，柏克级驱逐舰为了靠近辽宁舰，甚至从辽宁舰航母编队左侧中间位置强行切入编队中，外强中干的中共对美舰富有侵略性的行为异常宽容，不难看出，这不仅是美军对共军的藐视，也是美国有意反击中共的挑畔。对此，环球时报竟然自我吹嘘成“合围美舰”对墙内民众洗脑，中共宣传的无耻可见一斑。
+![]()![](https://cdn.discordapp.com/attachments/816464436691861525/836775922937626654/unknown.png)*图片来源：twitter.com*
+美军还用电子战手段破坏了辽宁舰的感知平衡器系统，使辽宁舰有一段时间无法动弹，也不能起降任何飞行器，其粗制滥造暴露无遗，这是柏克级驱逐舰舰长翘起二朗脚围观辽宁舰的底气所在。另外辽宁舰的动力采用老旧的蒸汽机，对外宣称自持能力为46天，实际不到20天。有调侃说，寻找辽宁舰不用雷达，只要看到烟窗冒着滚滚浓烟的就是它了。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+郭文贵先生介绍，即使是庞大的航母在大海中也是非常脆弱的，平衡系统失灵的航母会倾斜甚至倾覆，没有平衡器就象汽车被卸了轮胎。郭先生还透露，辽宁舰上的舰载飞机和飞行员都来自俄罗斯，中共按小时付费，实际上是中共花重金向普京租借的临时道具和演员，西方早就知道这个秘密，是中共用来欺骗中国老百姓的。
 
+航母不仅用于远程投射军事力量及进行国际主张，也是一个国家综合实力的象征。自1923年英国造出“竞技神”号航母以来，航母已实现了多个代际的更迭。中共70多年来实行禁固和摧残人性的野蛮统治，使中共国丧失了创新能力，即使是航母面世后的100年，中共仍然造不出真正有战斗力的航母。出尽洋相的辽宁舰这一次返回母港，除了照例大修，还会追究“责任”，迫害无辜的相关人员。
 
+参考链接：
+[1.详讯：中国航母“辽宁舰”从太平洋驶向东海](https://china.kyodonews.net/news/2021/04/3c3bf80157bb.html)
+[2.“美舰混入辽宁舰编队”](https://www.sohu.com/a/463311575_162758)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4282w.jpg)图源网络
+* * *
 
-生前未有死后弃，盗国欺世权谋利。
-
-生灵涂炭七十载，演尽黄粱小丑戏。
-
-明朝古树尤还在，故人悬颈望故居。
-
-毒魔猖狂怒万神，不知死活蹈我迹。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2-1.jpg)
-
-编辑：369文驹
-
-校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-
+编辑 发稿 云起时
 
 0

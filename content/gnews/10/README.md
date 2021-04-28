@@ -1,46 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】欧盟向接种疫苗的美国游客敞开大门
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1147958/)
+## 【世事解评】中共驻伊拉克大使发文为中共种族灭绝辩白
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1147828/)
 
-配音：香草山录音组 蒙古鸿雁
+作者：香草山农场写作四组 兰兰
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+![]()![](https://gnews.org/wp-content/uploads/2021/04/logo-6.jpg)
 
 
 
 
 
-据零对冲4月26日的报道，由于许多欧盟成员国急于恢复旅游业以及税收的目的，欧盟向完全接种疫苗的美国游客敞开大门，这是具有里程碑意义的政策转变，欧盟正朝着毫不掩饰地拥护“疫苗护照”的政策发展。
+2021年4月22日，中共驻伊拉克大使张涛在伊拉克沙法克通讯社、新世界通讯社发表题为《针对新疆的谣言可以休矣！》的署名文章，为中共 “种族灭绝” 辩白。
 
-援引《纽约时报》对欧盟委员会主席乌苏拉-冯德莱恩的采访报道说，欧洲计划允许已经完全接种疫苗的美国游客在夏季访问欧盟。这个信息是明确无误的，旅游股因此而反弹。冯德莱恩将美国和欧洲监管机构之间的“高级会谈”作为欧洲认为有理由推出“疫苗护照”的众多原因之一。
+张大使的文章立场坚定，坚决认为“美西方反华势力基于谎言和虚假信息，以所谓的‘新疆人权’问题为借口，对中方的治疆政策进行无端攻击，对中国新疆的有关个人和实体实施单边制裁，妄图给新疆扣上‘种族灭绝’的帽子。近期，他们编造谣言，称新疆棉花行业存在所谓的‘强迫劳动’，煽动国际社会抵制新疆棉。上述行径严重违背客观事实，违反国际法和国际关系基本准则，严重干涉中（共）国内政，中方对此坚决反对。”
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/0-Fmprc-Screenshot-2021-04-28-.png)图片来源：中（共）国外交部发文网页截图
 
+无风不起浪，为什么国际社会都在对中共新疆事件持续关注并不断发出正义的声音，这绝对不是空穴来风。大量的媒体报道，大量的新疆逃亡者证明，大量的文件，大量的卫星图像，包括中共自己前后矛盾的报道都指向中共在新疆进行了种族灭绝行为，张大使说 “事实胜于雄辩” ，说得好，任凭张大使怎么写文为中共辩解都逃不掉中共“种族灭绝”的事实。
 
-**文字版原文：[【热点播报】欧盟向接种疫苗的美国游客敞开大门](https://gnews.org/zh-hans/1141533/)**
+张大使说“世界上哪有西方人才配过上富足生活，而中（共）国等发展中国家就不行的道理？”每个人都有过上富足生活的权利和机会，这句话应该这么来问：“世界上哪有只有中共才配过上所谓的富足生活，而中（共）国的老百姓就不行的道理呢？”
 
-作者：纽约香草山写作组 四季
+张大使说：“新疆棉花行业根本不存在所谓 ‘强迫劳动’的条件和基础。” 对于新疆棉花的真相，请阅读一下这篇文章《新疆棉花采摘到底是正常雇佣还是强迫劳动？真相在这里！》驻外的张大使，您的呐喊实在是没有底气。
 
+张大使说：“涉疆问题根本不是民族、宗教问题，也不是人权问题，而是反暴恐反分裂问题。”为什么在中共的眼里，一切理由都是打击非法犯罪呢，都是如此负面的呢？以此为借口，吓唬恐吓百姓，并树立自己伟光正的形象，一举几得啊。
 
+张大使说：“为根除恐怖主义威胁及其滋生土壤，中（共）国政府依法严厉打击暴恐活动，积极践行联合国《防止暴力极端主义行动计划》，依法设立职业技能教育培训中心。”为什么从来就只见打击暴恐活动？为什么从来就没有正面的活动？
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+张大使也说了：“截至2019年10月，教培中心学员已全部毕业，新疆没有一所教培中心。”张大使的这句话，不是前后矛盾吗？既然教培中心学院已全部毕业，那为什么新疆没有一所教培中心呢？张大使的话是在向大家强调新疆就是有所谓的“教培中心”。
 
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+张大使说“中方始终认为，恐怖极端势力是全人类的公敌，对各国反恐、去极端化努力，不应奉行‘双重标准’，更不应违背国际道义和人类良知进行蓄意歪曲。”首先这句话语句稍微有点不通吧？应该是“更不应违背国际道义和对人类良知进行蓄意歪曲”。其次中共自己就是那个恐怖极端的全人类公敌，奉行“双重标准”，违背国际道义，对人类良知进行蓄意歪曲。
+
+张大使，针对新疆的辩解，您可以休矣。
+
+参考来源：
+
+[驻伊拉克大使张涛在伊媒体发表署名文章《针对新疆的谣言可以休矣！》 — 中华人民共和国外交部 (fmprc.gov.cn)](https://www.fmprc.gov.cn/web/dszlsjt_673036/ds_673038/t1870912.shtml)
+
+[新疆棉花采摘到底是正常雇佣还是强迫劳动？真相在这里！ – GNEWS](https://gnews.org/zh-hans/1038544/)
+
+编辑/校对/发稿：小鹿
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpeg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场****Twitter****（英文**](https://twitter.com/MosHimalaya)[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/logo-6.jpg)
+
+
+
+
+
+
 
 0
