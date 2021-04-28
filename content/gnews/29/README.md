@@ -1,49 +1,102 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 隐藏在中共军队里的罪恶
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1147453/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！(一)
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1147511/)
 
-**撰稿: xinyuan**
+作者：纽约香草山信息部 6zero4
 
-**审核: pv0, 莫黎**
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/98ae5f1042b55925.jpg)**图片: 昆仑竹**
-
-笔者最近看到一个视频，里面是一群老兵，在殴打几个新兵。打人者都光着膀子，而被殴打的人穿着整齐划一的军服。他们站在那里，刚开始只有一个挨打，后来两个，接着更多老兵加入了打新兵的行列，一个被打的新兵被一脚踹到墙上，接着又马上小跑回来立正站好，接着又被扇了一耳光。旁边有人拿出纸帮他擦拭鼻子，不知是不是被打出了鼻血。更有甚者，甚至一老兵手持木棒凶狠抽打两个新兵，直至木棒被打断。
-
-老兵出手之狠，让人震惊，看着这些人的行为，真是让人压不住的怒火。这是中共标榜的人民子弟兵的军队吗？对待战友宛如仇敌，这完全是黑社会啊。有网友评论：“难怪恐怖分子这么多，都是在这里培养的吧。”   这是政府用于维稳的武警。可能中共正需要用这样的方式让这些武警的人性泯灭，变成不辩是非，随意打人滋事的小混混。这样，未来当他们面对民众执法时，也会如出一辙，危害远超黑社会，而且是正大光明地打着维护国家利益的旗号欺压老百姓，实施犯罪。从画面上被打士兵的状态可以感觉的到，这种场面他们已经习以为常了。
-
-其实，新兵遭受虐待在很多国家都发生过，并不是新鲜事儿，但在中共国，却很少看到此类事情被曝光，这和中共国的新闻透明度有关。中共军队里的一切都是秘密，都只能烂在肚子里，外界因此也很难得看到相关资料。而我们只能从零星泄露的资料里窥见中共军人的处境。
-
-2017年，微博上发出一条新兵陈述自己被班长殴打的视频。入伍第三天，也就是9月15日他第一次遭受殴打，班长用书打他鼻子，当天总计打了10次以上。10月15日用腰带抽面部，导致鼻梁骨骨折。但当他汇报给更高部门，并没有得到重视，而是敷衍了事，不做任何处理。忍无可忍之下，11月20号他选择割腕自杀，后被部队发现，只用创可贴草草处理。而由于其手机被没收，家里人在12月才得知消息。从上述情况看的出，这种事情在军队里司空见惯，以致上级部门都懒于处理。
-
-而更糟的是还有士兵被虐打后直接失踪了。辽宁凌源市19岁的青年邵斌，考入武装部不到四个月失踪。孩子曾多次告诉父母，自己遭受了殴打、还禁止吃饭。最后一次与母亲通电话是殴打后被拉往不知名的地方的途中，从此再无消息。父母寻找儿子无果后，母亲服药自杀未遂。本来她们是不同意孩子当兵的，是孩子自己一定要去，谁料想走上了不归路，而 一个家庭就这样被毁掉了。
-
-网络上我们能看到的绝对只是冰山一角。中共国的军人在军队里不但身体上要遭受折磨，还要花费心思如何讨好长官或老兵，以求自保或少挨些打。在这样的环境下他们还有什么心思用在操练或业务能力上？这样的军队能有什么战斗力？如果打起仗来，他们之间会互相配合和照应吗？在这样的军队里，除了滋长人的劣根性，对个人整体素质的培养能有什么积极的影响？又有谁真的愿意把大好的青春葬送在这样的地方？
-
-这些年，中共为了招收更多的新兵，会给每个退役的士兵补助费，经济好的地方能达到20万。很多人当兵就是为了挣些退伍费。但仔细想一想，其实并不合算，军队里挨打受饿的，就算你能忍受，可现在世界局势也越来越不稳定，可以说现在入伍就是拿生命做赌注。玩命不怕，要看为什么玩命，是否值得去玩命？回看历史，谁愿意成为某个朝代统治者的陪葬品呢？如果不愿意，如果现在参军了，那么可能这些人就在做同样的事情。20万可以买人的尊严和生命吗？如果中共倒台了，中国经济慢慢恢复了，赚钱的机会肯定会更多。
-
-过去，别无选择时，奴隶必然是奴隶主的殉葬品。而封建社会的将士也毫无选择地时刻准备着成为帝王家族的牺牲品。现代文明社会的你们如果有选择的机会，又会怎么做？你们愿意用你宝贵的生命，抛下可能连医疗费都不够用的父母双亲，成为几个大家族的炮灰吗？
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-**本文仅代表作者个人观点。**
+今年以来，COVID-19主题专家、美军军情专家塞林博士 (Dr. Lawrence Sellin) 一系列的推文，体现了美国军情情报的中坚力量对中共病毒溯源的全面推进。尤其是通过公开网络资源与美国情报对参与制毒的解放军科学家的披露，吹响了对中共主动发起的这场超限生物战本质的认定和反击的冲锋号！同时，通过揭露中共军民融合的真面目，不仅揭露良知泯灭的中国科技工作者，更是曝光了利欲熏心的美国科学家。我们不妨以时间轴回看塞林博士揭露病毒真相的推文。
+
+代表美国核心力量的塞林博士对中共病毒来源真相有计划、有步骤地的揭秘行动，始于今年1月17日，塞林博士引用了自己一年前（即2020年2月6日）发布的推文， “柳叶刀上的一篇文章提供的原始证据表明病毒起源也许并不来自海鲜市场而是武毒所(WIV)病毒泄露”，披露中共国至今一直在对病毒起源撒谎！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS2413-【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！一-1.jpg)
+
+1月19日，塞林博士推文：“基于我的专业视角，COVID-19起源于中共实验室，如果不是直接生物战争意图的话，可能就是具军事意义的“功能获得”实验的结果。一场真相掩盖活动正在进行中！”
 
 
 
-**参考新闻: **
-
-[新兵受虐後失蹤 母尋子不獲自殺抗議](https://www.rfa.org/cantonese/news/solider-01172014083450.html)
-
-[武警新兵被老兵殘暴群毆 恐怖視頻激民憤](https://www.epochtimes.com/b5/13/12/9/n4030341.htm)
+> In my expert opinion, the origin of the COVID-19 virus was a laboratory in China, likely the result of "gain of function" experiments with military implications if not direct biological warfare intent. A cover-up is underway. Read my articles on the topic.[https://t.co/DSlhx33HnE](https://t.co/DSlhx33HnE)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [January 19, 2021](https://twitter.com/LawrenceSellin/status/1351455050187599872?ref_src=twsrc%5Etfw)
 
 
 
+1月31日塞林博士推文：不可否认的证据表明COVID-19病毒来自实验室，并强调疫苗接种是一种令人绝望的治疗尝试！
 
 
-* * *
 
-**发布: 法国巴黎七星编辑组**
+> Undeniable proof the COVID-19 virus was lab-made. Bronchial lavage of the initial Dec 2019 patients showed COVID-19 virus spike protein & adenovirus vector sequences, the same as in this study. Immunization was a desperate attempt at treatment in Dec 2019. [https://t.co/jaEiPxEnJk](https://t.co/jaEiPxEnJk)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [January 30, 2021](https://twitter.com/LawrenceSellin/status/1355568642570788868?ref_src=twsrc%5Etfw)
 
-+1
+
+
+2月1日塞林博士推文：呼吁人们关注病毒实验室起源的真相，提及2020年中国军事医学科学院微生物流行病研究所专注于冠状病毒研究的关键人物周育森的秘密死亡，周是中共国与在美国病毒研究机构工作的科学家们之间合作的一个接洽点。（周育森浮出水面）
+
+
+
+> Until his mysterious death last year, a key player in the Chinese military's coronavirus research was Yusen Zhou, who also was an interface between China and Chinese scientists operating in U.S. virus research laboratories.[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/CHuWmYQbKV](https://t.co/CHuWmYQbKV)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [February 1, 2021](https://twitter.com/LawrenceSellin/status/1356232578563416069?ref_src=twsrc%5Etfw)
+
+
+
+2月2日塞林博士推文：COVID-19病毒的军方背景，贯穿重庆的第一军医大学，广州的第三军医大学和南京军区医学研究院等。早在2006到2007年，WIV就已经在进行蝙蝠病毒感染人类的基因改造工程，冠状病毒研究网络牵涉中共生物武器项目的研究人员。并贴出一篇自己2020年9月6日发表在CCNS上的一片文章，披露了中共对美国病毒研究项目的大规模渗透，揭露福奇的国立卫生研究院 (NIH)用美国纳税人的钱资助了中国军方。（福奇和NIH浮出水面）
+
+
+
+> What this article describes is only the tip of the iceberg of the massive infiltration of U.S. virus research programs by individuals from or connected with the Chinese military, many of which has been funded by Dr. Anthony Fauci’s NIH institute. [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/6Ugpx2ni4S](https://t.co/6Ugpx2ni4S)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [February 2, 2021](https://twitter.com/LawrenceSellin/status/1356485425452433409?ref_src=twsrc%5Etfw)
+
+
+
+2月3日塞林博士推文：其实中共军方早在2002-2003年期间的第一次SARS大流行后就深入参与了冠状病毒的研究，包括与WIV基因工程的合作。
+
+
+
+> China's People's Liberation Army (PLA) was deeply involved in coronavirus research after the first SARS pandemic (2002-2003), including genetic engineering & collaboration with the Wuhan Institute of Virology. After 2009, PLA coronavirus research went dark.[https://t.co/AhLfTQ7fJh](https://t.co/AhLfTQ7fJh)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [February 3, 2021](https://twitter.com/LawrenceSellin/status/1356978776987598851?ref_src=twsrc%5Etfw)
+
+
+
+2月9日塞林博士推文：WHO支持病毒来源于自然以帮助中共国掩盖病毒真相，而来源于实验室的证据是压倒性的。（WHO浮出水面）
+
+
+
+> A World Health Organization cover-up of China's culpability. Evidence for a laboratory origin of the COVID-19 is overwhelming compared to the pure conjecture supporting a conclusion that it was naturally-occurring.[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/ziO74OKkSd](https://t.co/ziO74OKkSd)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [February 9, 2021](https://twitter.com/LawrenceSellin/status/1359131261093113861?ref_src=twsrc%5Etfw)
+
+
+
+2月10日塞林博士推文贴出一张“CCP VIRUS”图片，阐述了中共国正在进行一个专门针对保护中国人免受COVID-19感染的病毒疫苗开发的大项目。
+
+
+
+> China has a major research program to develop virus vaccines that specifically protect Chinese people.[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDVaccine](https://twitter.com/hashtag/COVIDVaccine?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaVaccine](https://twitter.com/hashtag/CoronaVaccine?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/kwRdNC25uF](https://t.co/kwRdNC25uF)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [February 10, 2021](https://twitter.com/LawrenceSellin/status/1359500491424604164?ref_src=twsrc%5Etfw)
+
+
+
+综合以上推文，塞林博士揭露了中共军方早在2003年SARS疫情后就已经开始了冠状病毒的研究，WHO自本次疫情开始就一直配合中共对病毒真相进行掩盖，披露了中美病毒科学界合作的窗口人物周育森的秘密死亡是中共对知情人灭口的开始，并揭露了美国NIH及其掌门人福奇的深度参与。
+
+善者不来，来者不善！面对当下全世界中共病毒感染人数接近1亿5千万，死亡人数超过3百万，美国感染人数超过3千2百万，死亡超过57万的史无前例的疫情灾难，塞林博士自1月17日开始就是有备而来，对病毒真相来源开门见山，直指CCP病毒就是来源于中共实验室，是中共军方在全世界搞军民融合，以蓝金黄手段集合全世界冠状病毒科学界精英，在舟山蝙蝠病毒骨架基础上进行病毒分离、基因功能改造及增强实验，最终开发出来的生物武器。强调任何疫苗接种都是灾难。关于还有专门的项目团队在开发让中国人免受新冠病毒感染的疫苗这一说法，恰好是对文贵先生爆出的“没有疫苗只有解药”，和中共“灭白计划”、反人类种族灭绝行动的应证。
+
+编辑/校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

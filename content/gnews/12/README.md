@@ -1,63 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210428（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1147721/)
+## 【香草诗词汇】望坑叹
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1147363/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+作者：纽约香草山佛教部 无执
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01-19.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02-20.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03-19.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-21.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4282w.jpg)图源网络
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05-19.jpg)
+生前未有死后弃，盗国欺世权谋利。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06-17.jpg)
+生灵涂炭七十载，演尽黄粱小丑戏。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07-17.jpg)
+明朝古树尤还在，故人悬颈望故居。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08-17.jpg)
+毒魔猖狂怒万神，不知死活蹈我迹。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09-17.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2-1.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-24.jpg)
+编辑：369文驹
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-29.jpg)
+校对/发稿：Irene木木
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-28.jpg)
+**更多资讯，更多关注**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-22.jpg)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-21.jpg)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-21.jpg)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-18.jpg)
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-16.jpg)
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/18-13.jpg)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/19-11.jpg)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/20-21.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/21-7.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/22-4.jpg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/23-2.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/24-2.jpg)
 
-本文仅代表作者观点
 
-发稿：Ranting
 
 0

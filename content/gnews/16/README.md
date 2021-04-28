@@ -1,46 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】媒体平台的重要性
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1147911/)
+## 中共超低空飞行以勘测台湾防空雷达盲区
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1147914/)
 
-配音：香草山录音组 蒙古鸿雁
+俄罗斯莫斯科喀秋莎农场 DongDong
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-46.jpg)caribbeannewsglobal.com
+周一(4 月 26 日)，一架中共军用间谍飞机进入台湾的防空识别区，近几个月来这种大陆军机扰台行为愈发频繁。据脸书上专门记录台湾西南部航空活动、长期监控披露讯息的 SouthwestAirspaceofTW 报道，这架侵台飞机以罕见超低空方式飞行，飞行高度仅为 30 米。这意味着，共军似乎是在探测台湾防空雷达的“侦测盲区”。
 
+所谓“超低空飞行”是指飞行高度低于 100 米的飞行。在作战中超低空飞行有利于回避雷达侦测、突破敌方空防系统，达到隐蔽突袭的效果。由于超低空飞行时易遭遇地面海面的气流、飞鸟、火炮等突发状况，飞行员高度精神集中情况下，又极易产生疲劳，因此通常情况下是不采用这种战术飞行的。
 
+台湾战略与国际事务研究所林教授也谈到，战术侦察机的低空飞行是为了测试对手的雷达反应能力。他建议使用小型雷达来探测低空飞行的飞机。林教授向《南华早报》解释说，“通常情况下，雷达信号会被某些地形所阻挡，比如高耸的山体。在 30 米的高度超低空飞行，实则是共军测试飞机是否能在无线电盲区飞行。”
 
+在台海局势紧张的情况下，中共在争议领空执行空军军事活动是为了勘测台海周边水文特征，以提供给情报部门使用。林认为此番中共飞机勘测海域属于潜艇能展开行动的深海区域。
 
+林教授还表示，“近期扰台飞行多是为了执行训练和军事演习任务，目的是让共军能提高作战指挥能力和加强对该地区水域的军事控制能力。”
 
+台湾军方为应对最近中共飞机的入侵，加装了喷气式飞机，并数次发出无线电“驱离”警告。据台湾国防部报告，此番为今年第 82 次中共飞机侵入台湾的防空识别区。
 
+中共一方面持续施压以迫使邻国接受其主权主张，另一方面不断对台湾进行骚扰。与此同时，台湾政府宣布，若中共有朝一日对其诉诸武力，台湾将血战到底。
 
-近日，纽约香草山农场很多战友的社交媒体账号，因为发布郭文贵先生4月21日的爆料：“谈病毒解药和疫苗的视频”，被推特、YouTube公司，以违反传播COVID-19相关信息的政策为由，封停或冻结，无法正常使用，严重影响了真相地日常传播。
+参考链接：
 
-4月21日，文贵先生爆料：“共产党的病毒，是生化武器，永远不可能有疫苗，所有的疫苗都是假的。不搞清楚病毒是来自生化武器还是自然，就不可能有疫苗。人类从没有在6个月这么短的时间内生产过任何疫苗。虽然没有疫苗，但是有解药！现在科学家、国内的情报和在欧洲的那位朋友明确地告诉我们，共产党有解药。疫苗是假的、是害人的，但是，共产党有解药。在制造这个武器的时候，他们就制造了解药。这就是真相。要想活下去，就去找共产党要解药。”
+[1] [Chinese Spy Plane Enters Taiwan to ‘Test Radar, Gather Intel’ – Defence Post – 27/04/2021](https://www.thedefensepost.com/2021/04/27/chinese-spy-plane-enters-taiwan/)
 
-
-
-**文字版原文：[【战友心声】媒体平台的重要性](https://gnews.org/zh-hans/1142075/)**
-
-作者：纽约香草山媒体部 天下大同
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[2] [空防雷达无死角！共机「30公尺」超低空扰西南照样被逮到 – NewTalk 新闻 – 26/04/2021](https://newtalk.tw/news/view/2021-04-26/568793)
 
 0

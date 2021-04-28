@@ -1,47 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国审查奥斯卡成功创造历史的赵婷
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1147799/)
+## 【有声读物】媒体平台的重要性
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1147911/)
 
-翻译：洛杉矶天使农场 – 烟波浩淼
-校对：洛杉矶天使农场 – 雨山溪桥客
-审核：洛杉矶天使农场 – 黎明的光芒
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Picture1-79.png)2021年4月25日，奥斯卡颁奖典礼在洛杉矶联合车站的新闻发布。中共国导演/制片人赵婷（Chloe Zhao）是电影奖的获得者，也是“无依之地”（Nomadland）的导演。 （照片：克里斯·皮佐洛（Chris Pizzello） /法新社）
-北京出生的赵婷（Chloe Zhao），周一因为民族主义的反击声掩盖了她成为第一位赢得奥斯卡最佳导演奖的有色人种女性的非凡成就。
+配音：香草山录音组 蒙古鸿雁
 
-周日晚，赵婷成为了第二位在奥斯卡上获得令人羡慕的奖项的女性，她的电影《无依之地》（Nomadland），讲述边缘化的美国人在西部漫游，该影片囊括了最佳影片奖，其主演弗朗西丝·麦克多曼（Frances McDormand）获得了最佳女主角奖。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-但最近所有包含她的名字和“Nomadland”的帖子在北京时间周一中午被神秘地从类似推特的微博网站上删除。
 
-她的胜利也遭到中共国媒体的沉默。
 
-最初，赵婷因其影片在今年3月金球奖上的成功而受到官方媒体的称赞，但社交媒体用户挖掘出多前的采访，似乎批评了自己出生的国后，赵婷成为了民族主义攻击的目标。
 
-中共国影院突然取消了该片的预定上映时间。
 
-今年的奥斯卡也没有在中共国电视台或主流媒体频道播出。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Picture2-29.png)截至周一晚上，有两篇关于赵婷在微博上获得奥斯卡金像奖的帖子，当时有人搜寻了她的中文名字。 照片：微博截图。
-赵婷在奥斯卡获奖感言中似乎暗指了这些困难，她说：“最近我一直在思考，当事情变得困难的时候，我是如何坚持下去的。”
 
-她还引用了一首中国古典诗词中的一句话，“人之初，性本善”。此举在帖子被删除之前受到了许多中共国社交媒体用户的赞扬。
 
-周一上午，微博上最初充斥着赞扬赵婷的帖子，其他人则谴责审查制度。
+近日，纽约香草山农场很多战友的社交媒体账号，因为发布郭文贵先生4月21日的爆料：“谈病毒解药和疫苗的视频”，被推特、YouTube公司，以违反传播COVID-19相关信息的政策为由，封停或冻结，无法正常使用，严重影响了真相地日常传播。
 
-一位拥有890多万粉丝的娱乐博客写道：“赵婷成为历史上第一位获得奥斯卡最佳导演奖的亚洲侨民/中共国女电影人。”这篇博文在被删除前获得了数千个点赞。
+4月21日，文贵先生爆料：“共产党的病毒，是生化武器，永远不可能有疫苗，所有的疫苗都是假的。不搞清楚病毒是来自生化武器还是自然，就不可能有疫苗。人类从没有在6个月这么短的时间内生产过任何疫苗。虽然没有疫苗，但是有解药！现在科学家、国内的情报和在欧洲的那位朋友明确地告诉我们，共产党有解药。疫苗是假的、是害人的，但是，共产党有解药。在制造这个武器的时候，他们就制造了解药。这就是真相。要想活下去，就去找共产党要解药。”
 
-中共国的舆论控制令人气愤。一位愤怒的用户写道：“在赵婷（Chloe Zhao）获得奥斯卡奖后，微博上连个屁都没有。”
 
-尽管审查人员做出了努力，但在北京街头，很容易找到以一位亚洲导演登上美国电影最高峰而感到骄傲的人。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Picture3-15.png)新浪微博上的网友对赵婷（Chloe Zhao）引用了讲话并没有提及自己的名字，对他赢得了奥斯卡奖表示祝贺。 微博用户在周一晚上写道：“既然不能说，那就别说了。” 照片：微博截图。
-女工程师严颖周一上午告诉法新社记者：“她是中国人的骄。一个中国人获得奥斯卡奖是非常罕见的。”
 
-38岁的法律工作者袁敏说：“我认为中共国电影会越来越好，她将为中共国内地导演树立一个非常好的榜样。”
+**文字版原文：[【战友心声】媒体平台的重要性](https://gnews.org/zh-hans/1142075/)**
 
-赵婷也是中共国著名女演员宋丹丹的继女。
+作者：纽约香草山媒体部 天下大同
 
-原文作者：法新社
-发布时间：2021年4月26日11:50
-原文链接：[https://hongkongfp.com/2021/04/26/china-censors-oscars-success-of-history-making-chloe-zhao/](https://hongkongfp.com/2021/04/26/china-censors-oscars-success-of-history-making-chloe-zhao/)
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -1,25 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评粤语快报】04.27：习近平视察广西全力掌控南部战区王牌军 SELLIN博士发推显示收网的时间快到了
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1147904/)
+## 【有声读物】欧盟向接种疫苗的美国游客敞开大门
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1147958/)
 
-制作团队：【喜马拉雅-粤语组】wen fei、打杂的、文恩
+配音：香草山录音组 蒙古鸿雁
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-主要内容
 
-1、习近平到广西桂林柳州走一趟，全力掌控南部战区王牌军控制权意味着什么？
 
-2、日本322页外交蓝皮书首提中共威胁意味着什么？
 
-3、SELLIN博士发推显示收网的时间快到了
 
-4、中共舆论开始批世卫组织是亲美反华势力控制的
+据零对冲4月26日的报道，由于许多欧盟成员国急于恢复旅游业以及税收的目的，欧盟向完全接种疫苗的美国游客敞开大门，这是具有里程碑意义的政策转变，欧盟正朝着毫不掩饰地拥护“疫苗护照”的政策发展。
 
-【路德时评】[原视频链接1](https://youtu.be/eyK_Sq5wKtM)  [原视频链接2](https://youtu.be/1lh0Hw54iCw)
+援引《纽约时报》对欧盟委员会主席乌苏拉-冯德莱恩的采访报道说，欧洲计划允许已经完全接种疫苗的美国游客在夏季访问欧盟。这个信息是明确无误的，旅游股因此而反弹。冯德莱恩将美国和欧洲监管机构之间的“高级会谈”作为欧洲认为有理由推出“疫苗护照”的众多原因之一。
 
-上传：流光飞舞
+
+
+**文字版原文：[【热点播报】欧盟向接种疫苗的美国游客敞开大门](https://gnews.org/zh-hans/1141533/)**
+
+作者：纽约香草山写作组 四季
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

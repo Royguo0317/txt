@@ -1,22 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德简报】4/27/2021晚：塞林博士发推 将中共军方病毒专家照片和二战头号战犯曼格勒同框
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1147076/)
+## 【有声读物】改变人心，要靠法治和德教
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1147144/)
 
-**编辑：华盛顿DC农场 路德简报项目组**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/20210428-2-scaled.jpg)
+配音：香草山录音组 Gtv abeilles（蜜蜂）
 
-
-> 2021 年4月27日 路德时评 晚 
-> 
-> 1. 塞林博士： 将中共军方病毒专家照片和二战头号战犯曼格勒同框 
-> 
-> 2.日本322页《外交蓝皮书》 提中共威胁273次 批中共军国主义扩张 
-> 
-> 3.中共全网媒体痛批谭德塞变脸 称其是拜登反华围剿的黑手 [pic.twitter.com/3jrYSrOLdm](https://t.co/3jrYSrOLdm)
-> — 平民爆料 (@WM18320321) [April 28, 2021](https://twitter.com/WM18320321/status/1387363505712467970?ref_src=twsrc%5Etfw)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
+
+
+
+
+
+离新中国联邦成立一周年还有38天，也是Himalaya Dollar开放注册的第一天，大部分战友们都忙着等待激活邮件或KYC认证，相信许多战友已将邮箱从头到尾刷了一整晚，但还是收不到或者收到几百封过期的验证邮件。这也是灭共路上一次次必经的挑战，如同去年这时的打赏币（AppStore）充值，还有GTV私募汇款难一样的心情。
+
+与其焦急的刷着邮箱，不如打开GTV，放松心情，看看正在直播的各位战友，卡尔爱丽丝的灭共美食荟直播一周年了，伊丽莎白老师的英语课一眨眼也已663集，诗歌聊新闻依然是那磁性的声音，德先生的53集德教启蒙也已开始第三次教学了。感恩这么多战友，不为名不为利，只为新中国联邦的建立贡献着自己独特的价值，让我们GTV越来越强大，就如七哥说的，媒体就是核武器！
+
+
+
+**文字版原文：[【战友心声】改变人心，要靠法治和德教](https://gnews.org/zh-hans/1144229/)**
+
+作者：纽约香草山美食部  Rainer
+
+
+
+音频处理/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

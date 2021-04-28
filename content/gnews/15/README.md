@@ -1,71 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【呐喊】九色鹿王本生故事
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1147275/)
+## 慧眼看世界20210428（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1147721/)
 
-作者：纽约香草山佛教部 无执
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-过去无量劫前，有一头九色鹿，住在古恒河边一片景色秀丽的山林中。它双角洁白如雪，身上有九种鲜艳的毛色，为世间所罕见，漂亮极了，人们都称它九色鹿王。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/01-19.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4281w.jpg)图源网络
+![]()![](https://gnews.org/wp-content/uploads/2021/04/02-20.jpg)
 
-有一天，九色鹿王在河边散步。突然，耳边传来“救命啊，救命”的呼喊，只见一个人在汹涌的波涛中奋力挣扎。九色鹿王亳不犹豫，立即纵身跳进河中，将落水之人救上岸来。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/03-19.jpg)
 
-落水人得救后连连向九色鹿叩头，感激地说：“谢谢您的救命之恩。我愿意为鹿王供水给草，永远做您的奴仆，终身受您的驱使……”
+![]()![](https://gnews.org/wp-content/uploads/2021/04/04-21.jpg)
 
-九色鹿打断了落水人的话，说：“我救你并不是要你做我的奴仆。快回家吧。回去以后，若有人找鹿王，千万别向人提起我在这里。”
+![]()![](https://gnews.org/wp-content/uploads/2021/04/05-19.jpg)
 
-落水人郑重起誓，誓死不说出鹿王的住处，然后千恩万谢地走了。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/06-17.jpg)
 
-当时的国王名叫“摩因光”，本性淳厚温和，常以仁慈之心教化百姓。有一日，皇后梦见了一头双角洁白如雪、身披九种鲜艳毛色的鹿王。她突发奇想：“如果用这只鹿王的毛皮做件衣服穿上，我一定会显得更加漂亮！”于是，她缠着国王要他去捕捉九色鹿王，不然就死给国王看。国王无奈，只好张贴皇榜，重金悬赏募求九色鹿王。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/07-17.jpg)
 
-那个落水人看到了皇榜，心想，发财的机会来啦！就进宫将见到鹿王的事情告诉了国王。等到话说完，落水人的脸上马上生出癞疮，满嘴臭气逼人。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08-17.jpg)
 
-国王听了落水人的告密，立即调集军队，由落水人带路，浩浩荡荡地向着九色鹿王的住地进发，去寻找鹿王。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/09-17.jpg)
 
-山林之中，春光明媚。九色鹿王在开满鲜花的草地上休息，突然发现，国王率领着军队包围了这里。鹿王说道：“大王身处深宮之內，请问大王您是如何得知我在这里呢？”国王就指著那落水的人道：“是那个生癞疮的人告诉本王的。”鹿王向国王讲了之前救落水人的经过，并说：“宁可把水中漂浮的草木拉上岸，也不要救那反覆无常之辈。劫财杀人的罪恶还可以原谅，但受恩不报，反而悖逆相害，如此的残酷暴虐，实在难以陈述。”
+![]()![](https://gnews.org/wp-content/uploads/2021/04/10-24.jpg)
 
-国王听完鹿王的话，大惊说道：“这是什么畜生而能怀有如此的弘慈，冒着危险救人，且不将此看作艰险之事？想必它定是天神啊！”于是，国王下召全国要尽力为鹿群提供食物，立志广行仁慈。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/11-29.jpg)
 
-王后听说国王把鹿王放了，心中又气又恨而至身亡。鹿王就是释迦牟尼佛的前生，而国王即是舍利弗，落水的人就是调达，而王后便是调达的妻子。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/12-28.jpg)
 
-这就是本生故事，讲述释迦牟尼佛在过去的轮回中，修行渡众生的故事。《佛本生经》中的九色鹿王，就是释迦牟尼佛的前生之一。其在敦煌壁画中也有记载：敦煌壁画中的《九色鹿经图》，是敦煌北魏（公元439-543年）洞窟壁画中的经典之作，绘于257号洞窟的西壁中部。它以精湛的绘画艺术再现了《佛说九色鹿经》中“鹿王本生”的故事。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/13-22.jpg)
 
-（本文仅代表作者观点）
+![]()![](https://gnews.org/wp-content/uploads/2021/04/14-21.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/15-21.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/16-18.jpg)
 
-参考阅读：
+![]()![](https://gnews.org/wp-content/uploads/2021/04/17-16.jpg)
 
-《六度集经》
+![]()![](https://gnews.org/wp-content/uploads/2021/04/18-13.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2-1.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/19-11.jpg)
 
-编辑：369文驹
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20-21.jpg)
 
-校对/发稿：Irene木木
+![]()![](https://gnews.org/wp-content/uploads/2021/04/21-7.jpg)
 
-**更多资讯，更多关注**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/22-4.jpg)
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/23-2.jpg)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/24-2.jpg)
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+本文仅代表作者观点
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+发稿：Ranting
 
 0
