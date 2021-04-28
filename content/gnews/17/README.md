@@ -1,18 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德简报】4/27/2021早：习突袭巡视广西、桂林等地 欲全力掌握南部战区
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1146246/)
+## 【粤语配音】习近平呼吁建立新的世界秩序，以提振全球主义者
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1146306/)
 
-**编辑：华盛顿DC农场 路德简报项目组**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/2021-4-27-2-scaled.jpg)
+4/21/2021 史蒂夫·班农援引英国《金融时报》的头条新闻——即在博鳌论坛期间习近平呼吁建立新世界秩序，重申了这一新世界秩序危及美国的全球领导地位，这一点得到了《金融时报》的认可；班农先生还指出，那些全球主义的资本家仍在买中共的账，而未要求国际团队进入武汉实验室展开全面调查。
 
+By： 【秘密翻译组 G-Translators】
 
-> 2021 年4月27日 路德时评 早
-> 
-> 1.习突袭巡视广西、桂林等地 欲全力掌握南部战区 [pic.twitter.com/YZDRgQVpUp](https://t.co/YZDRgQVpUp)
-> — 平民爆料 (@WM18320321) [April 28, 2021](https://twitter.com/WM18320321/status/1387242770243411970?ref_src=twsrc%5Etfw)
-
-
-
-+1
+0

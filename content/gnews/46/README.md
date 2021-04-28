@@ -1,51 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【健身健心】健身不练腿 早晚要后悔
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1145747/)
+## 2021/04/21 班农采访(4): 老百姓的自由是最重要的核心主题
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1145874/)
 
-作者：纽约香草山健身部 周一
+视频字幕/听写：云岭| 翻译：葡萄树 | 校对：Clau | 简评/文字整理/编辑：胖丁| Page：Daoiii
 
+[!\[\]()!\[\](https://spark.adobe.com/page/Ko6nCWSd728MO/images/5bafa0a2-b8f1-4441-9ced-a21772de3fbb.png?asset_id=591eeac6-a5fa-461b-894a-49550ef24783&amp;img_etag=%22f4244ba0d32706199e31f3792dc4d4d5%22&amp;size=1024)](https://spark.adobe.com/page/Ko6nCWSd728MO/images/5bafa0a2-b8f1-4441-9ced-a21772de3fbb.png?asset_id=591eeac6-a5fa-461b-894a-49550ef24783&amp;img_etag=%22f4244ba0d32706199e31f3792dc4d4d5%22&amp;size=1024)
 
+**简评：**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+**制裁不能让我们沉默和停止战斗。上帝与我们同在。受迫害的各界宗教人士和中国人民会和我们站在一起，推翻中国共产党，恢复中国人民的自由，重建基督教和天主教的信仰。**
 
-
-
-“新手健胸，老手健腿”——这是健身房里流行的一句话。很多人去健身房拼命锻炼腹肌、胸肌和手臂，而往往忽略了腿部肌肉地训练。实际上，练腿是非常重要的。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-485.png)图片来源：见水印
-
-人体最大的肌肉虽然不在腿部，但腿部却占了人体70%的肌肉，而人体当中最有力的肌肉也在腿部。腿部属于大肌群，肌肉含量最多，经常练腿能促进全身肌肉的增长。并且，练腿还能刺激身体分泌更多的睾酮素，这无论是对于增肌还是提高运动表现能力来说，无疑都是很好的。所以，腿部是人体运动的核心所在，是我们力量的源泉。
-
-人体过了三十岁，肌肉每年都会以3%的速度在流失——这也就是为什么我们看到很多老年人腿部很细，容易摔倒的原因。那么，为了对抗肌肉的流失，就要坚持地训练腿部肌肉。同时，练腿也能很好地刺激我们的神经系统，从而增强腿部的灵活性并保持身体的平衡能力——根基稳定了，灵活才会有保障。
-
-另外，练腿会增强你腰部的肌肉力量。腿部肌肉神经越发达，男女之间的生活也会更加的和谐。
-
-总之，健身一定要练腿，有一双强健有力的双腿，即使到了老的那一天，你也可以来一场说走就走的旅行。
-
-（本文仅代表作者观点）
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+GTV视频链接：[20210424-001-BannonInterview-Q4 我们与CCP的这场战争](https://gtv.org/video/id=6086cddc11a7ed500e99113e)
 
 
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+**视频字幕：**
+
+**Bannon：**21世纪上半叶最重要的核心主题是老百姓的自由。
+
+因为老百姓获得自由时，人类就获得了自由。
+
+从前任政府到拜登政府，他们试图用制裁来让我沉默。
+
+我不会沉默，从我们每周的节目和每天的作战室，你们能看到。
+
+今天在作战室里，我将就此事做一个非常特别的报告。
+
+因为这些都是我们说过的。
+
+如果你看作战室，你不会觉得惊讶。
+
+我们面前有一场漫长而艰难的战斗，但上帝站在我们这边。
+
+现在是中国人民受迫害最严重的时候，他们一定帮助领导我们渡过21世纪。
+
+我坚信这一点，宗教迫害，无论是佛教、法轮功、维吾尔族，特别是基督徒和天主教徒（都是受迫害最严重的时候）。
+
+我知道一定会是这样，中国人民，受迫害的基督徒和天主教徒，以及中国将在我们推翻中国共产党之后，带领天主教和基督教会达到另一个水平。
+
+因为他们从巨大的迫害中重生，就像第一世纪的罗马人试图摧毁基督教会一样。
+
+所以我感到非常乐观。
+
+我认为我们正在获胜，而且最终我们会赢。
+
+所以你只需要坚持战斗，只需要每天都在战斗中。
+
+[**完整访谈视频**](https://www.youtube.com/watch?v=qnnVSjmLMxg)
+
+**主播：**Daniel, Dr. TCC, Castle和Mike
+
+- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
+- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
 
 
+***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三直播***
 
-+5
+编辑：【英国伦敦喜庄园编辑部】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Ko6nCWSd728MO/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/Ko6nCWSd728MO/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)
+
++1
