@@ -1,56 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 残酷的中共国奥运冠军梦
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1147019/)
+## 【有声读物】开花的石头
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1147159/)
 
-作者：Saintyoung | 校对：仙女儿-文善 | 审核：宁缺| Page：我是球大哥
+配音：香草山录音组 Swr拥抱太阳
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ibV5QpBSUUVDB/images/106d0eb3-0aee-4fcc-9526-62be06d59791.jpg?asset_id=d0e26821-2e4c-489e-bb88-94cd7ff7119c&amp;img_etag=%22a5fd0d90407f15914eefd918414bbdfc%22&amp;size=1024)](https://spark.adobe.com/page/ibV5QpBSUUVDB/images/106d0eb3-0aee-4fcc-9526-62be06d59791.jpg?asset_id=d0e26821-2e4c-489e-bb88-94cd7ff7119c&amp;img_etag=%22a5fd0d90407f15914eefd918414bbdfc%22&amp;size=1024)
-
-每四年一次的奥林匹克运动会，对于每一位运动员来说，都是争取其最高荣誉的竞技场。由于中共新冠病毒的肆虐，本该于去年举办的第32界奥运会被迫延期至今。然而，不容乐观的是，本届2020年东京奥运会正在面临着被再度延期的困境，甚至有可能被彻底取消举办。
-
-众所周知，运动员的黄金时间一般只有十几年，有些甚至更短暂。对于众多职业运动员而言，努力备战四年却未能参与奥运是很大的遗憾。这令我想起，来自中共国的职业运动员多是从小加入专业体校的训练行列，年纪轻轻就立志以争取世界冠军和奥运金牌为目标。这不单单是为了个人荣誉或成就，更是与这些幼龄运动员背后的父母和整个家庭的未来息息相关。因为他们的父母往往把争取奖牌作为脱贫的唯一机会，几乎把所有的一切都押注上去。把幼儿送进培训学校也意味着儿童会失去正规的教育与生活，正可谓一将功成万骨枯，这简直是一条不归路。
-
-中国共产党一直强调及吹嘘中国是脱贫大国，现实是在中共国有多少父母为了脱贫，要忍心把自己的幼龄子女送进体校培训。他们明知里面只有刻苦锻炼和残酷竞争，但对他们来说，这是改变子女命运和实现脱贫的唯一机会。而这些幼儿早年也受到父母和生活环境的影响，从小已经变得很“懂事”，所以即使被迫长期远离父母、失去正常童年生活、几乎每天过着独立而且辛苦锻炼的机械式生活，却依然要坚持下去；当然，这当中也不乏一些遇到挫折而感到沮丧，结果选择放弃回家的幼童。而最终能够克服万难，在若干年后成功登上最高荣誉的世界冠军颁奖台上的却是廖廖可数。那些与奖牌无缘的则更可能一辈子都默默无名，也没有人知道他们的生活现状如何。相信世界上没有几个国家如中共国一样，出现一幕幕幼年儿童被父母亲手送进残酷竞争世界的现象。
-
-在中共眼中，这些儿童有如幼龄军人，除了长期在体校过着机械化的训练生活外，其价值就是在将来某一天可能为党为国家在国际舞台上争取荣光，进而充当洗脑国民的工具。相信大家也曾经与亲友们一起坐在电视机前观看奥运赛事，并为国家运动选手加油助威，而大家都会把注意力放在奖牌榜的金牌数量之上，这金牌的数量在不知不觉中已被默认为国家强大的象征，并总以美国作为最大假想敌。人民就是在中共的长期洗脑下，把运动竞技视为国与国之间的强弱较量，而忽略了运动比赛的体育精神之根本。
-
-然而，和那些中共国退役军人一样，中共国运动员是中共用完即弃的代表性群体之一。在比赛中夺金是首要任务，获取银牌铜牌几乎被视为失败的象征，退役以后一般都不会受到国家的重视。因为中共以14亿人口大国自居，总有源源不绝的人才可以利用，每当有人倒下，总会有人替代上去，这就是中共国运动员的悲哀。更讽刺的是，即使获取金牌也是难逃被抛弃，以下是从新闻上搜集的一些有关中共国运动员金牌得主退役以后的生活境况，往往令人感到无奈和唏嘘。
-
-前国际马拉松冠军-艾冬梅
-
-[!\[\]()!\[\](https://spark.adobe.com/page/ibV5QpBSUUVDB/images/095f0f2d-44c7-4e6c-add5-826f109bb098.png?asset_id=0cce4971-05db-4f1e-b441-7fbdf0074181&amp;img_etag=%22d26fb0e47e13509e6ec9f7a0648dd090%22&amp;size=1024)](https://spark.adobe.com/page/ibV5QpBSUUVDB/images/095f0f2d-44c7-4e6c-add5-826f109bb098.png?asset_id=0cce4971-05db-4f1e-b441-7fbdf0074181&amp;img_etag=%22d26fb0e47e13509e6ec9f7a0648dd090%22&amp;size=1024)
-
-19枚金牌得主，因长期过度操练致双腿残疾，无法维持生活之下，带着幼儿在街边摆地摊谋生，为了治疗及生计更要变卖金牌。
-
-前世界女子举重冠军-邹春兰
-
-[!\[\]()!\[\](https://spark.adobe.com/page/ibV5QpBSUUVDB/images/4fb1fd74-7dc8-4626-9763-3302ed430c0f.jpg?asset_id=3a8e353a-5947-442b-b5d1-9e4e90d56fdf&amp;img_etag=%2287f34be6e20e094210cdebd800896b26%22&amp;size=2560)](https://spark.adobe.com/page/ibV5QpBSUUVDB/images/4fb1fd74-7dc8-4626-9763-3302ed430c0f.jpg?asset_id=3a8e353a-5947-442b-b5d1-9e4e90d56fdf&amp;img_etag=%2287f34be6e20e094210cdebd800896b26%22&amp;size=1024)
-
-退役后曾在餐厅工作，又到公共浴堂帮人搓澡赚取微薄薪酬。她揭发当年教练为了获取佳绩，怂恿她们服食药物，更导致她终身不育。事件曝光后官方组织迫于压力介入，资助她开洗衣店维持生计。
-
-亚洲男子举重冠军-才力
-
-[!\[\]()!\[\](https://spark.adobe.com/page/ibV5QpBSUUVDB/images/73963fa4-b4f3-4bc7-831a-13b7be489793.jpg?asset_id=c96cb708-6504-4166-a874-eb3ed4320d6b&amp;img_etag=%2224a4576bbef74f2468bc2d486b28a6c6%22&amp;size=3241)](https://spark.adobe.com/page/ibV5QpBSUUVDB/images/73963fa4-b4f3-4bc7-831a-13b7be489793.jpg?asset_id=c96cb708-6504-4166-a874-eb3ed4320d6b&amp;img_etag=%2224a4576bbef74f2468bc2d486b28a6c6%22&amp;size=1024)
-
-被称为“亚洲第一力士”，因职业伤员被迫退役，其后在辽宁省体育运动技术学院从事保安工作，每月收入仅1,000元人民币，还要供养家人。由于常年训练积累一身病痛，最后更因没钱医病以致病入膏肓，33岁病逝时，只剩下300元积蓄。
-
-以上被媒体发现及报道的有关中共国运动员退役后的生活例子，在中共国很可能只属冰山一角。与西方文明国家相比，中共国缺乏对职业运动员培训期间的教育支持及退役后的社会保障制度。中共对无法为其继续创造价值的运动员群体往往是弃之如敝履，此举与中共对待全体老百姓的方式简直是如出一辙。比如中共自1949年窃取政权至今，依然没有建立起一个象样的退休金社会保障制度，一代一代的中国人民倾尽大半生勤恳工作、缴纳税费，可到了退休以后，本该安享晚年之际，却依然要面临着生活费和医疗费双重无保障的境况。
-
-在中国共产党执政下的今天，中国运动员在外国人眼中犹如一副副由工厂制造出来的机器，能够把训练期间练就出来的每一个近乎完美的高难度体操动作，不断重复地演绎出来，在比赛中取得佳绩。难怪英国著名跳水选手戴利（Daley）曾表示，“中国选手只知道训练，不知道休息，和机器人一模一样。他们远离家人，放弃读书，就只是训练。”他或许是说中国运动员刻苦勤奋，或许是指其竞争对手的运动技能之强是以放弃正常生活换来的。不管怎样，他却在不经意间道出了中共国体育制度下的运动员们所遭受的非人道待遇， 同时也揭示了中共治下的百姓所遭受的惨酷的身心催残与尊严践踏。
-
-**文章仅代表个人观点**
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/ibV5QpBSUUVDB/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/ibV5QpBSUUVDB/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 
+
+每座城市都有我奔赴的理由
+
+每条河流都有你滋润的疆土
+
+每个战友都有我们拥抱的热泪
+
+沉默的石头，开花的树
+
+
+
+**文字版原文：[【香草诗词汇】开花的石头](https://gnews.org/zh-hans/576778/)**
+
+作者：香草山写作组 木白
+
+
+
+音频处理/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
