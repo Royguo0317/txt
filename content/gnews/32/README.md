@@ -1,65 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在绝路上狂奔的中共国教育
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1146944/)
+## 中共国海军三艘“先进”战舰交接入列
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1147012/)
 
-作者：xiaopan | 校对：胖丁 | 审核：宁缺 | Page: Daoiii
+新闻来源：《华盛顿自由灯塔》The Washington Free Beacon| 作者：Jack Beyrer| 发布时间：2021年4月26日
+翻译/简评：mcjaja|校对/审核：万人往|Page：小雨
 
-[!\[\]()!\[\](https://spark.adobe.com/page/H3uryFY6PZYt2/images/917f9b8f-da42-48ee-a88d-02f426477a2f.png?asset_id=b6aada4e-d431-4011-adc9-6561c6191c2a&amp;img_etag=%22a689d173b0679dcf6ca8b9f0efa8feea%22&amp;size=1024)](https://spark.adobe.com/page/H3uryFY6PZYt2/images/917f9b8f-da42-48ee-a88d-02f426477a2f.png?asset_id=b6aada4e-d431-4011-adc9-6561c6191c2a&amp;img_etag=%22a689d173b0679dcf6ca8b9f0efa8feea%22&amp;size=1024)来源网络
+[!\[\]()!\[\](https://spark.adobe.com/page/2aiDd4OHEGzY0/images/e1137830-2229-4774-8291-600fa2e823af.jpg?asset_id=85d6f374-2bb6-4453-b7f7-3b6c8fdeae83&amp;img_etag=%22853cebf74683c72864147e8b8ee50a5f%22&amp;size=2560)](https://spark.adobe.com/page/2aiDd4OHEGzY0/images/e1137830-2229-4774-8291-600fa2e823af.jpg?asset_id=85d6f374-2bb6-4453-b7f7-3b6c8fdeae83&amp;img_etag=%22853cebf74683c72864147e8b8ee50a5f%22&amp;size=1024)
 
-2021年4月8日，南京大学仙林校区，研一女生跳楼身亡。诸多传言，没有结论。她选择坠落在二楼平台，避开楼下的地面，这样来降低对校友的负面影响。但对于南大来说，仙林校区19栋仿佛成了被诅咒的地方。加上鼓楼校区，短短的半年时间里，四起自杀事件。
+**简评：**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/H3uryFY6PZYt2/images/ff499759-9207-4e83-b484-05769c63b6fe.jpg?asset_id=9d733acc-1672-4ad2-a1b8-72de7f170773&amp;img_etag=%22330049b0a032d49bf7c470f02494f136%22&amp;size=2560)](https://spark.adobe.com/page/H3uryFY6PZYt2/images/ff499759-9207-4e83-b484-05769c63b6fe.jpg?asset_id=9d733acc-1672-4ad2-a1b8-72de7f170773&amp;img_etag=%22330049b0a032d49bf7c470f02494f136%22&amp;size=1024)来源网络：南京大学仙林校区宿舍19栋
+《华盛顿自由灯塔》的这篇报道显示了中共国海军已在南中国海以及台湾周边海域的蠢蠢欲动，试图通过跨越航空识别区和军事边界这类行径找寻擦枪走火的契机。与此同时，中共国正在持续扩建海军舰队以及新造核潜艇，其海洋霸权野心已彰显无遗，澳洲及美国军事人士都认为台海一战已一触即发。
 
-这不是南大的个案，更像是整个高等教育的缩影：导师，费尽心思远离教书育人的本职工作。学生，在漫无目的中消耗最宝贵的青春。压力来时，没有积极解决问题的能力，只选择逃避或者解决自己。曾几何时，大学，乃国之重器。大学生，社会之栋梁。
+文贵先生近日爆料，今年年初的美国访台行动差点造成“三战”的开打。这足以证明当前台海局势的紧张程度，一切已是箭在弦上，似乎就差像当年918事变的一个契机。台海之战必将结束中共，但此一战也会使沿海地区的同胞们饱受战火摧残，甚至波及至印度洋和澳洲地区。若这是灭共必须付出的代价，则求上天少带走无辜的生命，而惩戒罪无可恕的反人类罪犯们。
 
-现如今大陆的高等院校早已没有一丝为国而立的风骨。立校之本变成向党看齐，每个院系的最高决策层是一个叫“党委”的组织。在这个外行团伙的指导和监督下，一线的师生只能在专业的范围内匍匐前行，有着独立思考能力的师生往往如履薄冰，他们的言论和行为时刻被监管，并不断鼓励告密行为。任何被认为出格的话，会第一时间传递到所谓的监管部门。在这里，没有可解放的思想，只有盼望解放的财务自由。没人谈论理想，没人教道德，没人拥抱情怀，更没人树立信仰。学生负责混日子和不惹事，约定时间一到，扯张毕业证打发走人。
+**原文翻译：**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/H3uryFY6PZYt2/images/f4beb8cd-4062-47a1-941a-f5c2f84f0b2f.jpg?asset_id=f0e2c839-64f9-48da-9aa9-0fa3e5501547&amp;img_etag=%222ab51663eb09c5a0226d17832e820371%22&amp;size=2560)](https://spark.adobe.com/page/H3uryFY6PZYt2/images/f4beb8cd-4062-47a1-941a-f5c2f84f0b2f.jpg?asset_id=f0e2c839-64f9-48da-9aa9-0fa3e5501547&amp;img_etag=%222ab51663eb09c5a0226d17832e820371%22&amp;size=1024)来源网络
+## 中共国三艘先进战舰服役
 
-老师则需要评职称、拉关系、找财路、开会议。所有和教导学生无关的事情，他们都有精力来应对。那些有实力、有人脉的导师则做项目、骗经费、拉投资、开公司，甚至将自己的学生拿来作为免费劳力使用。更有甚者，稍有不顺就找机会对学生进行心理和身体的双重折磨。
+[!\[\]()!\[\](https://spark.adobe.com/page/2aiDd4OHEGzY0/images/6e5a0e14-1e20-4cea-a5b3-47a75af8716c.jpg?asset_id=1b6e7513-df4d-4173-8ef6-df9013c19997&amp;img_etag=%22a61895de280c116c4306464e5d7a0e10%22&amp;size=2560)](https://spark.adobe.com/page/2aiDd4OHEGzY0/images/6e5a0e14-1e20-4cea-a5b3-47a75af8716c.jpg?asset_id=1b6e7513-df4d-4173-8ef6-df9013c19997&amp;img_etag=%22a61895de280c116c4306464e5d7a0e10%22&amp;size=1024)辽宁舰，中共国的001型航空母舰/盖蒂图片
 
-到处充斥着学术腐败和肮脏的裙带关系，还记得文贵先生爆料的王恩哥和于丽吗？最高学府如此，何况其他。
+4月，中共国海军服役了三艘先进战舰，这是北京当局挑战美国在南中国海的军事优势和侵占台湾的更大努力的一部分。
 
-师德，成为不存在的传说，人伦底线常常被突破。从小缺乏抗争精神的学子，在重压之下宁愿走上自我消亡的道路。
+解放军海军（PLAN）官方宣布，一艘弹道导弹核动力潜艇、一艘导弹巡洋舰和一艘直升机航母在南中国海附近的一个海军基地交接入列。据报道称，中共国主席习近平出席了典礼。
 
-他们的颓废与浑噩，是初中、高中被长期心灵碾压的结果。没经历过中考、高考体系折磨的人，无法体会其中的痛苦和压力。成年人一般是八小时工作制，每周双休。在大陆，未成年高中生每天休息竟不足八小时。另外十几个小时是持续不断的听课、背书、解题、做试卷，周而复始。没有周末和假期，法定节假日被各种五花八门的培训班包围。初中四年高中三年，一代代年轻人最美好的青春，在低头呢喃中散尽。
+[!\[\]()!\[\](https://spark.adobe.com/page/2aiDd4OHEGzY0/images/05bcde9c-1800-4dd0-8468-95cd64078d68.jpg?asset_id=523229ae-d4f7-48e3-b1c0-b9ffab7d8d7c&amp;img_etag=%228e33bdf59278f87de1c10e7ed5151475%22&amp;size=1024)](https://spark.adobe.com/page/2aiDd4OHEGzY0/images/05bcde9c-1800-4dd0-8468-95cd64078d68.jpg?asset_id=523229ae-d4f7-48e3-b1c0-b9ffab7d8d7c&amp;img_etag=%228e33bdf59278f87de1c10e7ed5151475%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/H3uryFY6PZYt2/images/950ec1fd-bc83-4215-837e-fdcad967540c.png?asset_id=ca54739a-2033-4ca4-bc0e-d641bfd3cb20&amp;img_etag=%2258bf957fc368212d1b3314c14306df12%22&amp;size=1024)](https://spark.adobe.com/page/H3uryFY6PZYt2/images/950ec1fd-bc83-4215-837e-fdcad967540c.png?asset_id=ca54739a-2033-4ca4-bc0e-d641bfd3cb20&amp;img_etag=%2258bf957fc368212d1b3314c14306df12%22&amp;size=1024)来源网络
+中共国海军的加强是在北京当局对台湾——一个民主国家和美国的盟友——的一系列升级之后。3月，中共国共派遣了54架次飞机进入台湾领空，4月初又有25架次。这一系列具有侵略性的行为与入侵南中国海同时发生，包括220艘渔船在美国海军的一个防御范围内集结，这给台湾的领土安全留下了疑问。
 
-我们的孩子，被剥夺了自由飞翔的欲望，成就了一台手脚齐全的机械。
+上海已经在建造另外两艘直升机航母，这两艘航母可以容纳数架飞机，当两栖作战入侵台湾时，它们将成为一个巨大的威胁。
 
-与在畸形的教育体系中挣扎的学生相比，家长更是痛苦不堪。要上学先择校，多少孩子还未出生，家长就拼命的负债购买学区房，找关系，送礼行贿。甚至爆出为孩子上学，家长陪睡校长。孩子入校，便是家长入群时，每天开始为各类清单服务，漏一项都让你在家长群里颜面尽失。还要时刻应对各种调查、检查，配合学校作假。日常更要小心伺候好老师，好话好礼随时到位。网上曾调侃，拼多多砍价中，成功率最高的职业便是教师，既有人数又听话。
+这种被称为“刃海”级的导弹巡洋舰拥有自己的先进雷达技术和导弹系统阵列。北京当局已批准建造另外八艘“刃海”级巡洋舰，与此同时，中共国正在建造另一艘核动力潜艇，国防分析人士称，这将改善他们的核防御态势。
 
-还有无耻的教师课外办班。三月份，一个成绩优异的小学女生因为没有报自己老师开办的培训班，课堂之上被掌掴，导致该学生直接从教学楼跳下。就为一点点的课外培训费，一个天真烂漫的孩子终结了自己的生命。
+美国军事规划人员说，中共国可能在未来六年内入侵台湾。前美国海军军官预计，对台湾的战争可能会蔓延到澳大利亚、日本甚至印度洋海域。周日，澳大利亚国防部长彼得•达顿（Peter Dutton）告诉记者，台湾和中共国之间的冲突“不应该被忽视”。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/H3uryFY6PZYt2/images/b1147c7e-7c6c-423c-b296-a6d645f1bff7.jpg?asset_id=5919f81f-6ecb-43bb-bed6-bbd9f748531d&amp;img_etag=%22ca70bef5072cad2dd03f62225ce68dbb%22&amp;size=2560)](https://spark.adobe.com/page/H3uryFY6PZYt2/images/b1147c7e-7c6c-423c-b296-a6d645f1bff7.jpg?asset_id=5919f81f-6ecb-43bb-bed6-bbd9f748531d&amp;img_etag=%22ca70bef5072cad2dd03f62225ce68dbb%22&amp;size=1024)来源网络
+共和党人认为，增加海军的国防预算将应对与日俱增的来自中共国的威胁。但不过，目前尚不清楚拜登政府是否会坚持这一路线，并建造更大的美国舰队。白宫发出的早期信号显示，美国国防预算停滞不前。美国国会预算办公室4月22日的一份报告显示，川普政府2020年12月批准的造船计划平均每年将花费340亿美元，比海军最初的估计高出10%。
 
-一切向钱看，真正的问题无人管。在这个劣币驱逐良币的系统里，那些数量更多为人正派的教师，长期得不到应有的尊重和认可，学术成就和名声都被金钱替代。多数人只能慢慢的消沉下去，甚至变成自己讨厌的样子。曾立志做一个正派的人，却被无耻的体制侵蚀了意志。
-
-不敢作为的教师体系，能教育出多少心怀正念的学生呢？看那数不胜数的人际攀比，层出不穷的问题少年，时常发生的校园暴力就知道现状是多么严酷。网上不断转发的霸凌视频，暴虐孩子的凶残程度让人无法直视。很难想象施暴者和受害者将来进入社会能变成什么样的人，做出什么危险的事。学校本该努力纠正和教育这些恶劣的状况，如今成了造就这些问题的发源地。
-
-2021年4月15日，涟源市塘镇中学的14岁男生，被同学残忍地殴打后，直接从七楼丢下，抢救无效死亡。面对死者母亲撕心裂肺的痛哭和无助，是教育部门和学校一贯的冷漠态度。一个幼小的生命无辜逝去，除了家人，整个体制都无动于衷，甚至迫使受害人消声。
-
-但你可曾听说，黑人留学生骚扰中国女孩不成，向学校投诉种族歧视。结果各种校领导轮番做工作，要求女孩和非洲黑人留学生交往。被整个体制强暴的无奈，莫过于此。更有留学生制度中的各种腐败与不公，拿百姓的钱做高额补贴，驱逐百姓子女到拥挤的集体宿舍，给留学生分配高档的精装单间，诱骗、胁迫百姓的子女做学伴，种种无耻行径，秀出下线。
-
-同胞生死无人问，外夷冷暖党关心。古往今来，有拿土地卖国，情报卖国，金钱卖国。时至今日，我们见识到了卖国的新高度，社会主义创新精神的结晶－－教育卖国。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/H3uryFY6PZYt2/images/d5a891f2-eb55-4f32-9fb3-b71e69cae5f2.jpg?asset_id=97ab2b98-12eb-45f1-a13a-7029b616416f&amp;img_etag=%229c27c796c8a3cad42caa7faa04082349%22&amp;size=1024)](https://spark.adobe.com/page/H3uryFY6PZYt2/images/d5a891f2-eb55-4f32-9fb3-b71e69cae5f2.jpg?asset_id=97ab2b98-12eb-45f1-a13a-7029b616416f&amp;img_etag=%229c27c796c8a3cad42caa7faa04082349%22&amp;size=1024)
-
-几十年的不断产业化和腐败化，终于让教育走上了一条绝路。如何扭转畸形教育的恶劣影响，也终将会成为新中国联邦的重要使命之一。
-
-（文章仅代表作者个人观点）
+[🔗原文链接](https://freebeacon.com/national-security/china-commissions-three-advanced-warships/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 - [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/H3uryFY6PZYt2/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/H3uryFY6PZYt2/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/2aiDd4OHEGzY0/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/2aiDd4OHEGzY0/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 
 

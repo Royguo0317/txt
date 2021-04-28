@@ -1,58 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 京东使用数字人民币发工资
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1146964/)
+## 残酷的中共国奥运冠军梦
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1147019/)
 
-新闻来源：《零对冲（ZeroHedge）》| 作者：泰勒·德登（Tyler Durden） | 发布时间：2021年4月26日
-翻译/简评：Claire | 校对：SilverSpurs7 | 审核：万人往 | Page：Daoiii
+作者：Saintyoung | 校对：仙女儿-文善 | 审核：宁缺| Page：我是球大哥
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ySxKmWqchaCmz/images/40db1b49-afc2-4b6c-bf91-ddd168efbc80.png?asset_id=4ec1692e-7e2a-46f0-a061-837e0790b000&amp;img_etag=%222809f3925c276ff27e9549219fe329b3%22&amp;size=2560)](https://spark.adobe.com/page/ySxKmWqchaCmz/images/40db1b49-afc2-4b6c-bf91-ddd168efbc80.png?asset_id=4ec1692e-7e2a-46f0-a061-837e0790b000&amp;img_etag=%222809f3925c276ff27e9549219fe329b3%22&amp;size=1024)图片来源：coinquora
+[!\[\]()!\[\](https://spark.adobe.com/page/ibV5QpBSUUVDB/images/106d0eb3-0aee-4fcc-9526-62be06d59791.jpg?asset_id=d0e26821-2e4c-489e-bb88-94cd7ff7119c&amp;img_etag=%22a5fd0d90407f15914eefd918414bbdfc%22&amp;size=1024)](https://spark.adobe.com/page/ibV5QpBSUUVDB/images/106d0eb3-0aee-4fcc-9526-62be06d59791.jpg?asset_id=d0e26821-2e4c-489e-bb88-94cd7ff7119c&amp;img_etag=%22a5fd0d90407f15914eefd918414bbdfc%22&amp;size=1024)
 
-**简评：**
+每四年一次的奥林匹克运动会，对于每一位运动员来说，都是争取其最高荣誉的竞技场。由于中共新冠病毒的肆虐，本该于去年举办的第32界奥运会被迫延期至今。然而，不容乐观的是，本届2020年东京奥运会正在面临着被再度延期的困境，甚至有可能被彻底取消举办。
 
-**中共国电子商务巨头京东目前表示，已使用数字人民币支付员工薪水。作为综合技术服务商，京东将为数字人民币试点提供供应链、场景与技术三个层面的服务。除此之外，马云的蚂蚁集团、Bilibili、美团和滴滴打车也已开始接受使用数字人民币交易。数字人民币是中国人民银行（即央行）推出的一种法定数字货币，它或将成为全球第一个由央行推出的法定数字货币。**
+众所周知，运动员的黄金时间一般只有十几年，有些甚至更短暂。对于众多职业运动员而言，努力备战四年却未能参与奥运是很大的遗憾。这令我想起，来自中共国的职业运动员多是从小加入专业体校的训练行列，年纪轻轻就立志以争取世界冠军和奥运金牌为目标。这不单单是为了个人荣誉或成就，更是与这些幼龄运动员背后的父母和整个家庭的未来息息相关。因为他们的父母往往把争取奖牌作为脱贫的唯一机会，几乎把所有的一切都押注上去。把幼儿送进培训学校也意味着儿童会失去正规的教育与生活，正可谓一将功成万骨枯，这简直是一条不归路。
 
-**然而，时至今日，以比特币为代表的加密货币在中国仍被禁止。在中共和央行大力宣传数字人民币的必要性和重要性的背后，隐藏的是中共掌控每一笔交易和每一个货币持有者身份的野心。使用数字人民币交易，消费的隐私性完全消失，每一分钱都会被监控，都可以无限追溯。而中共强调的所谓的匿名性，是人与人的匿名，不是人与银行的匿名。银行可以随时监测消费者账户的消费动向。为了满足自己的掌控欲和贪欲，中共无所不用其极地侵吞百姓财富，明目张胆地割韭菜。大家都快醒过来，认清中共地邪恶本质吧，共产党不灭，永远都没有自由、民主、富裕的生活。**
+中国共产党一直强调及吹嘘中国是脱贫大国，现实是在中共国有多少父母为了脱贫，要忍心把自己的幼龄子女送进体校培训。他们明知里面只有刻苦锻炼和残酷竞争，但对他们来说，这是改变子女命运和实现脱贫的唯一机会。而这些幼儿早年也受到父母和生活环境的影响，从小已经变得很“懂事”，所以即使被迫长期远离父母、失去正常童年生活、几乎每天过着独立而且辛苦锻炼的机械式生活，却依然要坚持下去；当然，这当中也不乏一些遇到挫折而感到沮丧，结果选择放弃回家的幼童。而最终能够克服万难，在若干年后成功登上最高荣誉的世界冠军颁奖台上的却是廖廖可数。那些与奖牌无缘的则更可能一辈子都默默无名，也没有人知道他们的生活现状如何。相信世界上没有几个国家如中共国一样，出现一幕幕幼年儿童被父母亲手送进残酷竞争世界的现象。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ySxKmWqchaCmz/images/1df800fe-acf7-4958-8880-fa1fcdad9732.jpg?asset_id=54f99108-f582-41ef-bf5b-3c2036ded25e&amp;img_etag=%228b34be111f0030da6338b0acbe8ef11b%22&amp;size=1024)](https://spark.adobe.com/page/ySxKmWqchaCmz/images/1df800fe-acf7-4958-8880-fa1fcdad9732.jpg?asset_id=54f99108-f582-41ef-bf5b-3c2036ded25e&amp;img_etag=%228b34be111f0030da6338b0acbe8ef11b%22&amp;size=1024)
+在中共眼中，这些儿童有如幼龄军人，除了长期在体校过着机械化的训练生活外，其价值就是在将来某一天可能为党为国家在国际舞台上争取荣光，进而充当洗脑国民的工具。相信大家也曾经与亲友们一起坐在电视机前观看奥运赛事，并为国家运动选手加油助威，而大家都会把注意力放在奖牌榜的金牌数量之上，这金牌的数量在不知不觉中已被默认为国家强大的象征，并总以美国作为最大假想敌。人民就是在中共的长期洗脑下，把运动竞技视为国与国之间的强弱较量，而忽略了运动比赛的体育精神之根本。
 
-**原文翻译：**
+然而，和那些中共国退役军人一样，中共国运动员是中共用完即弃的代表性群体之一。在比赛中夺金是首要任务，获取银牌铜牌几乎被视为失败的象征，退役以后一般都不会受到国家的重视。因为中共以14亿人口大国自居，总有源源不绝的人才可以利用，每当有人倒下，总会有人替代上去，这就是中共国运动员的悲哀。更讽刺的是，即使获取金牌也是难逃被抛弃，以下是从新闻上搜集的一些有关中共国运动员金牌得主退役以后的生活境况，往往令人感到无奈和唏嘘。
 
-## 中共国电子商务巨头京东使用数字货币支付员工薪水
+前国际马拉松冠军-艾冬梅
 
-直接与马云（Jack Ma）的阿里巴巴竞争的中国电子商务巨头京东（JD.com）周日表示，已开始使用数字人民币支付部分员工薪水。数字人民币是实体货币的虚拟版本，据称有些货币有望超过美元，并成为下一个全球储备货币。
+[!\[\]()!\[\](https://spark.adobe.com/page/ibV5QpBSUUVDB/images/095f0f2d-44c7-4e6c-add5-826f109bb098.png?asset_id=0cce4971-05db-4f1e-b441-7fbdf0074181&amp;img_etag=%22d26fb0e47e13509e6ec9f7a0648dd090%22&amp;size=1024)](https://spark.adobe.com/page/ibV5QpBSUUVDB/images/095f0f2d-44c7-4e6c-add5-826f109bb098.png?asset_id=0cce4971-05db-4f1e-b441-7fbdf0074181&amp;img_etag=%22d26fb0e47e13509e6ec9f7a0648dd090%22&amp;size=1024)
 
-京东表示，自去年9月与中国人民银行合作以来，已为苏州、北京和成都的数字人民币试用计划提供技术和服务支持。
+19枚金牌得主，因长期过度操练致双腿残疾，无法维持生活之下，带着幼儿在街边摆地摊谋生，为了治疗及生计更要变卖金牌。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ySxKmWqchaCmz/images/6388d255-1a5d-4ed5-9655-f83871ec73cb.png?asset_id=e6f17d80-3164-40ca-a450-68b3fd20ef12&amp;img_etag=%22cb7cc94094031ebc65d26e60c36477f7%22&amp;size=2560)](https://spark.adobe.com/page/ySxKmWqchaCmz/images/6388d255-1a5d-4ed5-9655-f83871ec73cb.png?asset_id=e6f17d80-3164-40ca-a450-68b3fd20ef12&amp;img_etag=%22cb7cc94094031ebc65d26e60c36477f7%22&amp;size=1024)
+前世界女子举重冠军-邹春兰
 
-正如我们广泛报道的那样，过去几个月来，中共国一直在忙于尝试数字货币，并有望成为世界上第一个发行其法定货币数字化版本的主要经济体。这可能会在2022年北京冬季奥运会被更广泛地推出。10月份，以南方先进经济政策著称的深圳向50万居民发放了价值1000万元人民币、可以在某些线上和线下零售商购物的数字货币。
+[!\[\]()!\[\](https://spark.adobe.com/page/ibV5QpBSUUVDB/images/4fb1fd74-7dc8-4626-9763-3302ed430c0f.jpg?asset_id=3a8e353a-5947-442b-b5d1-9e4e90d56fdf&amp;img_etag=%2287f34be6e20e094210cdebd800896b26%22&amp;size=2560)](https://spark.adobe.com/page/ibV5QpBSUUVDB/images/4fb1fd74-7dc8-4626-9763-3302ed430c0f.jpg?asset_id=3a8e353a-5947-442b-b5d1-9e4e90d56fdf&amp;img_etag=%2287f34be6e20e094210cdebd800896b26%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ySxKmWqchaCmz/images/0d342606-f6e5-4c71-9e69-e02047521a71.png?asset_id=84a273f5-56c1-4567-9495-f389701e495d&amp;img_etag=%226659b1ad95cad52c787dd3c8215c181f%22&amp;size=1024)](https://spark.adobe.com/page/ySxKmWqchaCmz/images/0d342606-f6e5-4c71-9e69-e02047521a71.png?asset_id=84a273f5-56c1-4567-9495-f389701e495d&amp;img_etag=%226659b1ad95cad52c787dd3c8215c181f%22&amp;size=1024)
+退役后曾在餐厅工作，又到公共浴堂帮人搓澡赚取微薄薪酬。她揭发当年教练为了获取佳绩，怂恿她们服食药物，更导致她终身不育。事件曝光后官方组织迫于压力介入，资助她开洗衣店维持生计。
 
-中共国的其他几个大城市也效仿了深圳的做法。这些地区的居民必须通过选定的银行申请才能使用数字人民币进行收款和付款。
+亚洲男子举重冠军-才力
 
-正如TechCrunch指出的那样，数字人民币计划是中共国监管机构、商业银行和技术解决方案提供商的集体努力。乍一看，该方案仍然模仿目前的人民币实际流通情况。在央行的指导下，包括工商银行（ICBC）在内的中共国六大商业银行将数字人民币分配给较小的银行，并提供网络技术解决方案，这可能有助于新的电子货币被更广泛使用。
+[!\[\]()!\[\](https://spark.adobe.com/page/ibV5QpBSUUVDB/images/73963fa4-b4f3-4bc7-831a-13b7be489793.jpg?asset_id=c96cb708-6504-4166-a874-eb3ed4320d6b&amp;img_etag=%2224a4576bbef74f2468bc2d486b28a6c6%22&amp;size=3241)](https://spark.adobe.com/page/ibV5QpBSUUVDB/images/73963fa4-b4f3-4bc7-831a-13b7be489793.jpg?asset_id=c96cb708-6504-4166-a874-eb3ed4320d6b&amp;img_etag=%2224a4576bbef74f2468bc2d486b28a6c6%22&amp;size=1024)
 
-当然，这意味着数字人民币不过是一种加密货币，是已经流通的货币的数字化版本。实际上，数字人民币所实现的是将所有纸币强制转换为数字令牌格式，这使北京方面能够对每笔交易进行全方位的控制，并获取每一个货币持有者的身份——这恰好与加密货币的初衷大相径庭。
+被称为“亚洲第一力士”，因职业伤员被迫退役，其后在辽宁省体育运动技术学院从事保安工作，每月收入仅1,000元人民币，还要供养家人。由于常年训练积累一身病痛，最后更因没钱医病以致病入膏肓，33岁病逝时，只剩下300元积蓄。
 
-当然，由于中共国是一个独裁政权，所有公司必须像马云的公司一样，遵守北京当局的要求，因此中共国的主要科技公司都积极参与了数字人民币系统的建设，这将有助于中央政府更好地跟踪资金流动。
+以上被媒体发现及报道的有关中共国运动员退役后的生活例子，在中共国很可能只属冰山一角。与西方文明国家相比，中共国缺乏对职业运动员培训期间的教育支持及退役后的社会保障制度。中共对无法为其继续创造价值的运动员群体往往是弃之如敝履，此举与中共对待全体老百姓的方式简直是如出一辙。比如中共自1949年窃取政权至今，依然没有建立起一个象样的退休金社会保障制度，一代一代的中国人民倾尽大半生勤恳工作、缴纳税费，可到了退休以后，本该安享晚年之际，却依然要面临着生活费和医疗费双重无保障的境况。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ySxKmWqchaCmz/images/dd61725b-be74-4760-ba48-328e7cb3307f.jpg?asset_id=957e745a-14ed-420e-974f-8c9fb9f47c77&amp;img_etag=%2246c31a92b3b53817e7ad5943e7961bd5%22&amp;size=1024)](https://spark.adobe.com/page/ySxKmWqchaCmz/images/dd61725b-be74-4760-ba48-328e7cb3307f.jpg?asset_id=957e745a-14ed-420e-974f-8c9fb9f47c77&amp;img_etag=%2246c31a92b3b53817e7ad5943e7961bd5%22&amp;size=1024)图片来源：btcmanager
+在中国共产党执政下的今天，中国运动员在外国人眼中犹如一副副由工厂制造出来的机器，能够把训练期间练就出来的每一个近乎完美的高难度体操动作，不断重复地演绎出来，在比赛中取得佳绩。难怪英国著名跳水选手戴利（Daley）曾表示，“中国选手只知道训练，不知道休息，和机器人一模一样。他们远离家人，放弃读书，就只是训练。”他或许是说中国运动员刻苦勤奋，或许是指其竞争对手的运动技能之强是以放弃正常生活换来的。不管怎样，他却在不经意间道出了中共国体育制度下的运动员们所遭受的非人道待遇， 同时也揭示了中共治下的百姓所遭受的惨酷的身心催残与尊严践踏。
 
-除京东外，视频流媒体平台Bilibili、按需服务提供商美团和打车应用程序滴滴也已开始接受使用数字人民币交易。游戏和社交网络巨头腾讯成为“数字人民币运营商”之一，并将参与电子货币的设计、研发和运营工作。马云的蚂蚁集团（Ant Group）在首次公开募股陷入停滞后正进行整改。该公司还与央行携手建设基础设施，以数字化方式转移资金。电信设备巨头华为在其一款智能手机型号上首次推出了一个钱包，即使设备处于离线状态，该设备也允许用户立即使用数字人民币进行交易。
-
-🔗[原文链接](https://www.zerohedge.com/crypto/chinas-e-commerce-giant-jdcom-starts-paying-some-workers-digital-yuan?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+**文章仅代表个人观点**
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ySxKmWqchaCmz/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/ySxKmWqchaCmz/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/ibV5QpBSUUVDB/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/ibV5QpBSUUVDB/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 
 

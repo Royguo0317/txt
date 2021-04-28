@@ -1,11 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德州通过新法案保护其基础设施
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1147044/)
+## 【有声读物】开花的石头
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1147159/)
 
-4/27/2021 卡尔·巴斯和州参议员多娜·坎贝尔介绍新法案，旨在保护德州的基础设施；一个解放军将军建造异常高的风力发电塔来监视附近的美国空军基地，他的风力发电场还连接上德州的电力系统，所以对德州的基础设施是严重威胁。
+配音：香草山录音组 Swr拥抱太阳
 
-By： 【秘密翻译组 G-Translators】
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
+
+
+
+每座城市都有我奔赴的理由
+
+每条河流都有你滋润的疆土
+
+每个战友都有我们拥抱的热泪
+
+沉默的石头，开花的树
+
+
+
+**文字版原文：[【香草诗词汇】开花的石头](https://gnews.org/zh-hans/576778/)**
+
+作者：香草山写作组 木白
+
+
+
+音频处理/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

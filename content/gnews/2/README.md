@@ -1,38 +1,102 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒质疑增多 中共拒绝参加中美生物战问题的会议
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1147392/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！(一)
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1147511/)
 
-编撰：PEACEMAN ，叶落知秋（文秋）
-审核：MiYa
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-66.png)资料照片：来自参考链接
-根据一份新的报告，中共取消了去年与美国官员的在线会议，以讨论中共生物武器的秘密工作，可能违反一项国际条约的事项。
+作者：纽约香草山信息部 6zero4
 
-由于中共病毒的旅行限制，美国国务院军备控制官员和他们的中国同行之间的会议被计划为视频会议，而无需出席到现场。根据国务院本月发布的关于遵守武器协议情况的年度报告中的描述，中共官员以未指明的技术问题为由，没有出席会议。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-这是四年来中共第一次拒绝与美国官员会面，讨论中共涉嫌违反1975年《生物和毒素武器公约》（又称《生物武器公约》）的问题，这加剧了人们对中共正在研制生物或毒素型杀伤性武器的担忧。
 
-最新的武器履约报告与去年的报告相比，在措辞上也有轻微但重大的变化，表明美国情报机构已经澄清了有关中共生物战秘密工作的一些问题。2020年的报告说中共从事了有潜在军事用途的活动。2021年的报告省略了 “潜在 “一词，表明这一发现是基于有关研究的新情报。
 
-新信息的一个可能来源是一名人民解放军医生，他去年带着北京生物战项目的细节叛逃到一个欧洲国家。华盛顿时报于9月报道了这一叛逃事件。
+今年以来，COVID-19主题专家、美军军情专家塞林博士 (Dr. Lawrence Sellin) 一系列的推文，体现了美国军情情报的中坚力量对中共病毒溯源的全面推进。尤其是通过公开网络资源与美国情报对参与制毒的解放军科学家的披露，吹响了对中共主动发起的这场超限生物战本质的认定和反击的冲锋号！同时，通过揭露中共军民融合的真面目，不仅揭露良知泯灭的中国科技工作者，更是曝光了利欲熏心的美国科学家。我们不妨以时间轴回看塞林博士揭露病毒真相的推文。
 
-美国情报分析家认为，中共的活动可能违背了公约中关于禁止开发、生产或储存非和平用途的生物制剂或毒素的限制。被取消的在线会议本来可以澄清一些问题。从2017年到2019年，美国一直在与中共就该议题举行年度会议。
+代表美国核心力量的塞林博士对中共病毒来源真相有计划、有步骤地的揭秘行动，始于今年1月17日，塞林博士引用了自己一年前（即2020年2月6日）发布的推文， “柳叶刀上的一篇文章提供的原始证据表明病毒起源也许并不来自海鲜市场而是武毒所(WIV)病毒泄露”，披露中共国至今一直在对病毒起源撒谎！
 
-退役的以色列中校Dany Shoham是研究中共生物战计划的专家，他在12月发表的一篇文章中说，人类干预在实验室中创造冠状病毒的概率高于自然发生的、自发进化的病毒适应。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS2413-【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！一-1.jpg)
 
-根据该报告，中共军队开展了具有军民融合的生物研究。这些研究 引起了人们对中共是否遵守“生物武器公约”第一条的关注。
+1月19日，塞林博士推文：“基于我的专业视角，COVID-19起源于中共实验室，如果不是直接生物战争意图的话，可能就是具军事意义的“功能获得”实验的结果。一场真相掩盖活动正在进行中！”
 
-该公约第一条规定，签署国 “在任何情况下 “都不得生产非和平用途的微生物或生物制剂。它还禁止签署国制造生物制剂或毒素的武器或运载系统。中共在1984年签署了该公约，根据其条款，中共应披露所有当前和过去的细菌武器工作。
 
-中（共）国有40多个由人民解放军管理的军事研究机构，据说它们从事秘密的生物武器工作。
 
-退役的中共将军张世波在2017年的一本书中写道，生物技术的进步增加了使用进攻性生物武器的危险，包括那些能够 “特定民族基因攻击 “的生物武器。
+> In my expert opinion, the origin of the COVID-19 virus was a laboratory in China, likely the result of "gain of function" experiments with military implications if not direct biological warfare intent. A cover-up is underway. Read my articles on the topic.[https://t.co/DSlhx33HnE](https://t.co/DSlhx33HnE)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [January 19, 2021](https://twitter.com/LawrenceSellin/status/1351455050187599872?ref_src=twsrc%5Etfw)
 
-中共拒绝参加生物战问题的中美会议并不奇怪。一方面显示了中共面对外界揭露其制造超限生物武器真相后的心虚。另一方面这是中共一贯不遵守契约的流氓嘴脸，中共爽约放鸽子已经不是第一次了，最近的一次是中共爽约2020年12月14日至16日与美国印度太平洋司令部举行的“海上军事安全磋商机制会议”（MMCA）。无论中共对话与否，也难以逃脱全世界对其制造超限生物武器罪行的追责，为承担对全世界人民的生命及世界经济造成的巨大伤害，接受最终极的审判！
 
-参考链接: [China nixed meeting on biowarfare concerns as coronavirus queries increased](https://m.washingtontimes.com/news/2021/apr/25/china-nixed-biowarfare-meeting-coronavirus-queries/)
 
-（文章只代表编者观点，与GENEWS平台无关）
+1月31日塞林博士推文：不可否认的证据表明COVID-19病毒来自实验室，并强调疫苗接种是一种令人绝望的治疗尝试！
+
+
+
+> Undeniable proof the COVID-19 virus was lab-made. Bronchial lavage of the initial Dec 2019 patients showed COVID-19 virus spike protein & adenovirus vector sequences, the same as in this study. Immunization was a desperate attempt at treatment in Dec 2019. [https://t.co/jaEiPxEnJk](https://t.co/jaEiPxEnJk)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [January 30, 2021](https://twitter.com/LawrenceSellin/status/1355568642570788868?ref_src=twsrc%5Etfw)
+
+
+
+2月1日塞林博士推文：呼吁人们关注病毒实验室起源的真相，提及2020年中国军事医学科学院微生物流行病研究所专注于冠状病毒研究的关键人物周育森的秘密死亡，周是中共国与在美国病毒研究机构工作的科学家们之间合作的一个接洽点。（周育森浮出水面）
+
+
+
+> Until his mysterious death last year, a key player in the Chinese military's coronavirus research was Yusen Zhou, who also was an interface between China and Chinese scientists operating in U.S. virus research laboratories.[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/CHuWmYQbKV](https://t.co/CHuWmYQbKV)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [February 1, 2021](https://twitter.com/LawrenceSellin/status/1356232578563416069?ref_src=twsrc%5Etfw)
+
+
+
+2月2日塞林博士推文：COVID-19病毒的军方背景，贯穿重庆的第一军医大学，广州的第三军医大学和南京军区医学研究院等。早在2006到2007年，WIV就已经在进行蝙蝠病毒感染人类的基因改造工程，冠状病毒研究网络牵涉中共生物武器项目的研究人员。并贴出一篇自己2020年9月6日发表在CCNS上的一片文章，披露了中共对美国病毒研究项目的大规模渗透，揭露福奇的国立卫生研究院 (NIH)用美国纳税人的钱资助了中国军方。（福奇和NIH浮出水面）
+
+
+
+> What this article describes is only the tip of the iceberg of the massive infiltration of U.S. virus research programs by individuals from or connected with the Chinese military, many of which has been funded by Dr. Anthony Fauci’s NIH institute. [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/6Ugpx2ni4S](https://t.co/6Ugpx2ni4S)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [February 2, 2021](https://twitter.com/LawrenceSellin/status/1356485425452433409?ref_src=twsrc%5Etfw)
+
+
+
+2月3日塞林博士推文：其实中共军方早在2002-2003年期间的第一次SARS大流行后就深入参与了冠状病毒的研究，包括与WIV基因工程的合作。
+
+
+
+> China's People's Liberation Army (PLA) was deeply involved in coronavirus research after the first SARS pandemic (2002-2003), including genetic engineering & collaboration with the Wuhan Institute of Virology. After 2009, PLA coronavirus research went dark.[https://t.co/AhLfTQ7fJh](https://t.co/AhLfTQ7fJh)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [February 3, 2021](https://twitter.com/LawrenceSellin/status/1356978776987598851?ref_src=twsrc%5Etfw)
+
+
+
+2月9日塞林博士推文：WHO支持病毒来源于自然以帮助中共国掩盖病毒真相，而来源于实验室的证据是压倒性的。（WHO浮出水面）
+
+
+
+> A World Health Organization cover-up of China's culpability. Evidence for a laboratory origin of the COVID-19 is overwhelming compared to the pure conjecture supporting a conclusion that it was naturally-occurring.[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/ziO74OKkSd](https://t.co/ziO74OKkSd)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [February 9, 2021](https://twitter.com/LawrenceSellin/status/1359131261093113861?ref_src=twsrc%5Etfw)
+
+
+
+2月10日塞林博士推文贴出一张“CCP VIRUS”图片，阐述了中共国正在进行一个专门针对保护中国人免受COVID-19感染的病毒疫苗开发的大项目。
+
+
+
+> China has a major research program to develop virus vaccines that specifically protect Chinese people.[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDVaccine](https://twitter.com/hashtag/COVIDVaccine?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaVaccine](https://twitter.com/hashtag/CoronaVaccine?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/kwRdNC25uF](https://t.co/kwRdNC25uF)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [February 10, 2021](https://twitter.com/LawrenceSellin/status/1359500491424604164?ref_src=twsrc%5Etfw)
+
+
+
+综合以上推文，塞林博士揭露了中共军方早在2003年SARS疫情后就已经开始了冠状病毒的研究，WHO自本次疫情开始就一直配合中共对病毒真相进行掩盖，披露了中美病毒科学界合作的窗口人物周育森的秘密死亡是中共对知情人灭口的开始，并揭露了美国NIH及其掌门人福奇的深度参与。
+
+善者不来，来者不善！面对当下全世界中共病毒感染人数接近1亿5千万，死亡人数超过3百万，美国感染人数超过3千2百万，死亡超过57万的史无前例的疫情灾难，塞林博士自1月17日开始就是有备而来，对病毒真相来源开门见山，直指CCP病毒就是来源于中共实验室，是中共军方在全世界搞军民融合，以蓝金黄手段集合全世界冠状病毒科学界精英，在舟山蝙蝠病毒骨架基础上进行病毒分离、基因功能改造及增强实验，最终开发出来的生物武器。强调任何疫苗接种都是灾难。关于还有专门的项目团队在开发让中国人免受新冠病毒感染的疫苗这一说法，恰好是对文贵先生爆出的“没有疫苗只有解药”，和中共“灭白计划”、反人类种族灭绝行动的应证。
+
+编辑/校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
