@@ -1,54 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生爆辽宁号大料：平衡器被美军轻松黑瘫&nbsp; 租借俄飞行员按小时算钱
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1150485/)
+## 脸书的事实核查员与数十亿美元的疫苗公司的关系
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1150997/)
 
-**摘要：在2021年4月23日的直播中郭文贵先生爆了一个军事大料。中共找俄罗斯的飞行员按小时算钱，在辽宁号航母上“表演”飞机起降。而美国仅动用电子战中最简单的办法就把辽宁号的传导系统黑瘫，日本海上自卫队则全程围观。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29134803/Miles_20210423-live-p1.srt.txt)
-**郭先生爆辽宁号大料：平衡器被美军轻松黑瘫****  ****租借俄飞行员按小时算钱**
+- 翻译：坐看云起时
+- 制图：透明的遮羞布
 
-**Liaoning Aircraft Carrier’s Stabilizing System Is Paralyzed; CCP “Rents” Russian Pilots Hourly**
 
-大家知道航空母舰头两天儿出啥事儿了吗？我们的博士老解读，他是只能解读、他没有现场、他没情报啊，是吧，我今天负责任告诉大家，航空母舰出啥事儿了知道吧？航空母舰出什么事大家知道吗，大家我听听啊。
+**简评：**
 
-Do you know what happened to the [Liaoning] aircraft carrier in the past two days? Our PhD Team of Lude Media can only interpret news, but they have no first-hand intelligence, right? I take responsibility for what I am going to tell you today. What happened to the aircraft carrier? Do you know what happened to its aircraft carrier? Everyone, listen.
+**自从全世界大规模推广中共病毒疫苗以来，有关疫苗的不良反应乃至死亡事件层出不穷，但这些消息都被主流媒体和社交媒体平台噤声或贴上“事实核查”标签。关于疫苗，闫博士曾说过一个最绝妙比喻：在不了解病毒真相的情况下开发疫苗，使用疫苗，犹如仅靠看门狗来保护家庭的安全，这种防护力量不但非常单薄，而且还有伤了自家主人的可能**。
 
-（郭先生与战友们互动）漏水倒没那么差，锅炉炸裂，有人叛逃被干掉，潜水艇，大家瞎蒙不行啊，轮机坏了，马桶爆了，裂纹、电机，电子系统失灵，油泵坏了，系统电子战啊，没导航，动力坏了，控制系统被黑了，被拖回去了，被炸了，都错了啊。
+**但是被金钱蒙住双眼的世界，在疫苗的万亿美金市场面前，有许多人抛弃了良知。正如文贵先生所说，在这个混乱不堪的世界中，只有新中国联邦是唯一坚持正义，坚持真相的一极。希望世界能早日从对金钱的执迷中醒来，回归真相。**
 
-(Miles reads the answers guessed by the viewers on GTV) Water leaks (not that bad), the boiler bursts, someone defects and gets killed, submarine, (unfounded guess is not allowed), the engine is broken, toilet bursts, cracks, motor, electronic system failure, oil pump broken, electronic war, no navigation, power failure, control system is hacked, the ship is to be dragged back, bombed. All wrong!
+原文翻译：
 
-这个博博士知道。这个人家美军的航空母舰它最重要的人家的平衡器，叫平衡器，这个平衡器是世界上最牛的。航空母舰最核心的就弹射——磁弹射、汽弹射，还有一个就是整个船的平衡器，当然动力了、武器都别说。这仨东西没了你飞机上不去下不来，平衡器完了你这个船就完蛋了，你不要看航空母舰有多大，到了海里面是一纸之叶，它随时一切就完了。
+《自由人类》(Humans Are Free)新闻网4月29日报道，国会议员托马斯-马西（Thomas Massie）在推特上发表声明，指出在脸书（Facebook）对疫苗进行事实核查的人，其部分资金来自于一个在一家疫苗公司持有超过18亿美元股票的组织。
 
-Dr. Bo knows the answer. The most important thing on a US aircraft carrier is the stabilizing system. The US’s stabilizing system is the best in the world. The core technologies of an aircraft carrier are the aircraft catapult, including the EMALS and steam catapult, the stabilizing system, and of course the power and weapons. Without these three things, your aircraft can’t leave the carrier even if it can get on the carrier. If your stabilizing system is not working, your whole ship will be over. Don’t focus on how big an aircraft carrier is because in the ocean, it’s just like a leaf and can be finished at any moment.
+马西在他4月27日推特中写道：“谁在给事实核查人员发工资？声称独立的factcheckdot.org疫苗事实核查人员，由一个在疫苗公司持有超过18亿美元股票的组织资助，并由CDC的前主任管理。”
 
-俄罗斯、乌克兰造的这个所谓的航空母舰是最早的机械式的平衡器，现在的游艇上、军方上用的是 Zero Speed，就是零，在停止下零的平衡动力器，在行驶当中它的平衡器是太重要了。很可悲的事情啊，这个中共的所谓辽宁号航空母舰，这个东凑西凑这个家伙。大家你们真不知道，船上那些天飞行的所有飞行员你们知道是哪来的吗？大家知道那飞行员是哪来的吗？
 
-The so-called aircraft carriers built by Russia and Ukraine use an ancient mechanical stabilizer. What modern yachts and military vessels use is the Zero Speed stabilizer, which stabilizes the vessel when it is still. The stabilizing system is so critical when the ship is moving. It’s so pathetic for the so-called Liaoning aircraft carrier of the CCP, which was put together with parts got from all over the places. You guys really don’t know where all the pilots on the ship came from. Do you know where the pilots came from?
 
-我告诉你美国人傻啦，看着飞来飞去哇噻这飞得不错呀歼-15，连飞的歼-15的飞机、连飞的所谓的歼-15B的飞机都是俄罗斯来的，飞行员是俄罗斯的。你们不敢想象共产党造假造到啥程度。结果这个平衡器，航空的一个平衡器最基本的，就像汽车轱辘要转圈一样，它必须有轱辘，这轱辘得转圈就这么简单，它转圈得平衡，一不平衡这车不翻了吗？平衡器在船上碎了、爆了、完了，航空母舰可不能是一个平衡器，它是一系列的平衡装置——爆了。 美国人那个不是看，美国人最后发傻了，日本人也傻了，原来中共找的全是俄罗斯的飞行员，chua~chua~chua，按小时算钱，外援。
+> Who pays the paychecks of the factcheckers? The vaccine fact checkers at [@factcheckdotorg](https://twitter.com/factcheckdotorg?ref_src=twsrc%5Etfw), who claim to be independent, are funded by an organization that holds over $1.8 billion of stock in a vaccine company, and is run by a former director of [@CDCgov](https://twitter.com/CDCgov?ref_src=twsrc%5Etfw).[https://t.co/cmKuJ25Xki](https://t.co/cmKuJ25Xki)
+> — Thomas Massie (@RepThomasMassie) [April 27, 2021](https://twitter.com/RepThomasMassie/status/1387093387409559556?ref_src=twsrc%5Etfw)
 
-Let me tell you. The Americans were shocked when they found that the J-15s and J-15Bs, which flied around pretty well, were actually from Russia and the pilots were also from Russia. You just can’t imagine how terribly the CCP has faked everything. In the end, their stabilizing system – you know, the stabilizing system is very basic, like a car’s wheels, when the wheels are turning, they need to be stable; if they lose stability, the car will turn over, right? So, in the end, the stabilizer on their aircraft carrier exploded, finished. You know the aircraft carrier doesn’t just have one stabilizer, rather it has a stabilizing system, and it was this system that exploded. The Americans were shocked, and so were the Japanese, to find out that the CCP hired Russian pilots on the carrier and paid them hourly.
 
-兄弟姐妹们，航母今天都是俄罗斯的飞机外援，平衡器都能让美国人给你干掉——美国就当着你面给你干掉的。平衡器有两个东西是最关键的，最核心的就是传导系统，就像手机信号一样，信号断了就扯淡了。就美国动用的就是电子战当中最简单的办法，就把你这个航空母舰的传导系统里面内部的，还不是通信系统，传导系统直接给你毁掉。
 
-Brothers and sisters, today the [Liaoning] aircraft carrier’s pilots were all Russians, and the stabilizing system was destroyed by Americans, right in front of their eyes. The stabilizing system has two most crucial systems, and the core is the conduction system, which is just like the signal of a cell phone: when there is no signal, the cell phone will be useless. What the Americans used is the simplest method in an electronic war – destroying the conduction system in the aircraft carrier from inside, not the communication system. What they directly destroyed was the conduction system.
+根据Factcheck.org自己公开的信息，Factcheck.org的部分资金来自罗伯特-伍德-约翰逊基金会(Robert Wood Johnson Foundation)。根据该基金会2019年的财务报表，该项目持有超过18亿美元的中共病毒疫苗制造商强生公司的股票，同时，该基金会的首席执行官是理查德-贝瑟是奥巴马时期疾病预防控制中心的前代理主任和ABC新闻的前首席健康和医学编辑。
 
-日本人就在那看着美国人就给它干了，这就像吹气儿一样，“噗”，一口气儿——对面灯灭啦。它不是灯灭，他把闸给它拉了，就这么简单，这叫魔术，“噗”，灯灭了，旁边有人关灯，把电源给他关了就动不了了。人家就在那儿看着，日本、美帝国主义、日本帝国主义啊，成天手撕鬼子的这些士兵全傻了、全傻了。你知道这个东西船会出大事的，你一个飞机也落不下、一个飞机也起不来。
+众所周知，尽管有大量的报告说明当前中共病毒疫苗不良反应数量惊人，包括疾病预防控制中心的疫苗不良事件报告系统（VAERS）中的数千人死亡，但任何在脸书（Facebook）平台上质疑疫苗安全性的人都会立即被这个组织打上事实核查的警告。
 
-The Japanese watched the Americans while the Americans were doing this. It just took the time of a breath, and then “puff”, the light goes out. It’s as simple as one turning off the light. And it’s also like magic: someone next to you turns off your light, and then you can’t move anymore. The Japanese were just there watching. The soldiers [of the PLA], who always called the Japanese the Japanese imperialists and always boasted that they could tear up the Japanese with their bear hands, were all shocked to death. You know that something serious will happen to the ship when you can’t launch or land a plane.
+VAERS的建立正是为了对疫苗的潜在问题进行监测。从2011年到2020年，所有疫苗接种后向VAERS报告的死亡人数只有994人。而在2021年第一季度，已经有超过2700例疫苗不良事件引发的死亡报告，这至少应该引发官方调查。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=6082cb627e083973a7301685](https://gtv.org/video/id=6082cb627e083973a7301685) (1:05:27-1:07:34, 1:08:05-1:09:17, 1:13:16-1:14:34)
-鸣谢：感谢西林1、山川异域 提供中文文本于 [https://www.gnews.org/zh-hans/1135702/](https://www.gnews.org/zh-hans/1135702/)
+虽然目前没有直接证据表明疫苗制造商在向事实核查人员发号施令，但 “跟着钱走 “这句老话的存在是有原因的。
 
-* * *
+评论：自从全世界大规模推广中共病毒疫苗以来，有关疫苗的不良反应乃至死亡事件层出不穷，但这些消息都被主流媒体和社交媒体平台噤声或贴上“事实核查”标签。关于疫苗，闫博士曾说过一个最绝妙比喻：在不了解病毒真相的情况下开发疫苗，使用疫苗，犹如仅靠看门狗来保护家庭的安全，这种防护力量不但非常单薄，而且还有伤了自家主人的可能。
 
-字幕：【JennyL】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+但是被金钱蒙住双眼的世界，在疫苗的万亿美金市场面前，有许多人抛弃了良知。正如文贵先生所说，在这个混乱不堪的世界中，只有新中国联邦是唯一坚持正义，坚持真相的一极。希望世界能早日从对金钱的执迷中醒来，回归真相。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29134530/virus12.jpg)
+本文只代表作者观点，与GNEWS网站无关
 
-+5
++3

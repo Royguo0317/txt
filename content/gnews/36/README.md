@@ -1,52 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 「疫情下的西班牙」瓦伦西亚在公交车内注射疫苗，惊动科学界
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1150764/)
+## 亚利桑那巡游骑兵为选举审计提供安保
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1150843/)
 
-- **作者：gokuabuela**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/A-33-8.jpg)azragers.us
+昨天马里科帕郡（Maricopa）高级法院法官丹尼尔·马丁（Daniel Martin）驳回民主党律师要求的审计临时限制令后【1】，川普总统在第一时间发表声明，对法官的决定给予了赞扬，声明如下：【2】
 
-***更多真相，请关注***[***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+2021年4月28日
 
-**西班牙2021年4月29日电/西喜社——**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29130057/bus.jpg)
-巴伦西亚自治区在公交车内为人们接种疫苗。官方解释说：”这不是政治决定，而是医务人员的决定。
+唐纳德J.川普 美国第45任总统
 
-4月22日，接送接种人员的巴士到达时恰逢大雨，卫生工作者选择在车内注射药剂，因为从停车点到普林西比-费利佩博物馆设立的接种区域有一段无遮挡的距离。一名护士、一名医生和一名行政人员登上巴士，疫苗被装在一个已经准备好的官方特性的托盘中带到了车上，用于注射。
+今天在亚利桑那州大获全胜。一位备受尊敬的法官刚刚裁定，亚利桑那州参议院正在进行的法庭审计可以而且将继续进行。100多名民主党律师被派去反对这次审计，美国和世界看到的结果将是非常有趣的！为什么民主党人要竭力掩盖事实？我知道为什么，其他人也知道。
 
-本周一，也是雨天，在另一个注射点的大门口也发生了类似的场景。
+声明原文文字整理：
 
-然而，作为西班牙生物化学和分子生物学协会的科学秘书，何塞-曼努埃尔-包蒂斯塔（José Manuel Bautista），对公民在公共汽车上接种疫苗的现象进行了批评。在他看来，在满是“尚未有免疫力的人、没有通风或安全距离的公共汽车上提供疫苗，不仅会使病毒继续循环，而且会在接种疫苗的人中爆发”。
+April 28, 2021
 
-根据瓦伦西亚卫生部12月5日的一项决议，关于预防中共病毒的措施，“在公共汽车运输中，如果乘员水平允许，允许在乘客之间有高达百分之一百的座位隔离”。
+Statement by Donald J. Trump 45th President of the United States of America
 
-而在上述的两次事件中，巴士上的人员并没有保持安全距离。在纽约，有一些车辆已被改造成移动诊所。但与瓦伦西亚发生的情况相反的是，纽约的车内，已经安装了一些设施，以隔离接种疫苗的用户。
+BIG victory today in Arizona. A highly respected Judge has just ruled that the Forensic Audit being done by the Arizona State Senate can and will continue. Over 100 Democrat lawyers were sent to fight against this audit. The results will be very interesting for the USA and the World to see! Why are the Democrats fighting so hard to hide the facts? I know why, and so does everyone else.
 
-**简评：**
+马里科帕郡审计的相关消息：
 
-**我们注意到，这辆巴士上人是坐满的，也就是说，当车去接送人员时，就没有保持安全距离。**
+《门道专家》报道，守护法庭审计中心的亚利桑那巡游骑兵（The Arizona Rangers），募集到14万美元，他们继续对马里科帕郡的审计安全提供保护【3】
 
-**从这件事也可以看出，西班牙社会对疫情的恐慌，不管是政府，还是民众。都把疫苗当成了唯一的救命稻草，只想着快点接种，快点接种……接种完了就安全了。**
+亚利桑那巡游骑兵是一个穿制服的执法辅助队伍，它丰富的历史可以追溯到1901年。这是一家根据“501（c）（3）”法案注册的非营利组织。
 
-**信息的缺乏与不透明，使人们无法了解到疫苗的危害。欧美人普遍相信自己的医疗系统，他们会相信自己的家庭医生，不一定相信主流媒体，但是会相信主流科学家。当这些大众所信任的渠道也不告诉他们真相时，他们无法做出正确的判断。我们问过一些身边的朋友，大部分已经注射了疫苗或即将去注射疫苗。而对我们的宣传，总是抱着半信半疑的态度。**
+根据GoFundMe网页，亚利桑那巡游骑兵可以为亚利桑那州任何的联邦、州和地方执法机构提供执法协助，为社区和公民组织提供安全服务，并为亚利桑那州的青年和青年组织提供支持。
 
-**中共就是邪恶到了让你无法相信“世上还会有这样邪恶”的程度。**
+亚利桑那巡游骑兵目前正在退伍军人纪念体育馆提供安保，亚利桑那州参议院正在该体育馆内进行法庭审计。
 
-**印度正在发生的一幕幕，会不会在欧洲、在美国、在其他国家重演？这或许是有可能的，甚至更厉害。中共所发动的“病毒超限战”，就和中共一样阴险，在设计之初，他们就考虑到了你会怎样防范，知道你一定会发展疫苗，他们就按照这个思路给你“挖了坑”，让你的疫苗变成了病毒的催化剂。等其他国家大部分人已经注射完疫苗，中共或许再会引发新的疫情，那将会更致命，更可怕。**
+这则消息似乎令人舒了口气，川普总统为马里科帕郡审计的安全事宜担忧过，连续发了两则声明，敦促州长对参加审计人员的安全全面负责。【4】
 
-**从这个角度来说，我们认为现在大力推行疫苗接种的政府或许会在接下来事态的发展中无以为继。因为一旦爆发新的疫情，一旦真相大白，他们将如何向他们的国民交待？所以，我们有理由认为将来真正起来灭共的人，也许不是现在执政的这些人，除非他们在疫苗危害爆发之前，就宣布中共病毒为“生物武器”，并向中共开战。**
+参考链接：
 
-**也是从这个角度，我们认为能站出来灭共的人，是相信中共病毒是生物武器的人，是相信中共有解药的人，比如瑟林博士，比如其他一些人。这应该就是郭先生说的，“血流成河的日子还远远未到，西方必须要涅槃后才能重生”。**
+【1】[https://www.gnews.org/zh-hans/1149251/](https://www.gnews.org/zh-hans/1149251/)
 
-**但涅槃完，需要这世界牺牲多少人，付出多大的代价？简直不敢想象！特别是，过程越是惨烈，世界对始作俑者的愤恨就越强烈。如果没有郭先生一开始就大力宣传，并让全世界认识到“中共不等于中国人”，我们这个民族也许真的就要被中共拖入到万劫不复的深渊中去……**
+【2】[https://twitter.com/JennaEllisEsq/status/1387568345390669828](https://twitter.com/JennaEllisEsq/status/1387568345390669828)
 
-**为了我们自己，为了我们的民族，为了世界上每个我们认识的，不认识的人，我们要更多的宣传病毒真相、疫苗真相，让更多的人知道“中共不等于中国人”。**
+【3】[https://www.thegatewaypundit.com/2021/04/arizona-rangers-guarding-forensic-audit-center-raises-140000-continue-protection-maricopa-county-audit/](https://www.thegatewaypundit.com/2021/04/arizona-rangers-guarding-forensic-audit-center-raises-140000-continue-protection-maricopa-county-audit/)
 
-**审核：Aries的星**；**校对：阿伯塔**；**发布：阿伯塔**
-
-**新闻来源：[ABC新闻](https://www.abc.es/espana/comunidad-valenciana/abci-valencia-inyecta-vacunas-interior-autobuses-y-alarma-cienfificos-avisan-riesgo-brotes-202104291109_noticia.html)**
-
-[**欢迎加入西班牙巴塞罗那喜悦农场**](https://discord.com/invite/WPy8Qp7)
+【4】[https://www.gnews.org/zh-hans/1142862/](https://www.gnews.org/zh-hans/1142862/)
 
 +1

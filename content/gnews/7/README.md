@@ -1,60 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 报告：中国军方是否为防止特朗普连任向在2019年10月访问武汉的美国士兵运动员释放COVID？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1151335/)
+## 【热点播报】欧洲投资银行使用以太坊发行数字债券
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1151312/)
 
-- 翻译：peacelv
+作者：纽约香草山农场写作组 四季
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/LOGO3_1-2.jpg)
 
 
-***更多真相，请关注***[***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-**西班牙2021年4月29日电/西喜社——**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29165140/image0-4-19-1.jpg)图片来源：thegatewaypundit.com
 
-731部队是满洲关东军防疫和水净化部门的正式名称，实际上是第二次世界大战期间日本帝国军秘密的生化战研究与发展中心。
+零对冲4月27日报道，欧洲投资银行正在通过高盛（Goldman Sachs）、桑坦德银行（Banco Santander）和法国兴业银行使用区块链技术发行1亿欧元（约1.2亿美元）的2年期数字债券。根据彭博社的消息，该票据最快可能在今天定价。这是加密货币日益成为主流的最新迹象。
 
-当中国共产党在1949年征服了中国大陆后，人民解放军掌控了731部队，以及大陆科学院马病研究所，这些同样是被日本帝国军在满洲成立的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29163747/0-5.jpg)图片源自Twitter
 
-根据日本关东军的回忆录，兽医研究和军马保健被用作掩饰来掩盖满洲设施，研究和生产生物武器的真正目的。
+近年来，以太坊网络的活动以去中心化金融 (Decentralized Finance, DeFi)和非同质化代币（Non-Fungible Token，NFT）的繁荣为特征，但它仍需在银行等机构中赢得更广泛的认可。以太坊使用智能合约处理其交易，它是当今最大和最常用的智能合约平台，每天记录约150万笔交易。今年非同质化代币（NFT）的爆发也激发了数字创作者和主要流行艺术家都开始使用该网络，如阿姆（Eminem）和莱昂国王（Kings of Leon）。
 
-显然中国人民解放军不仅接受了它的资源，而且还接受了日本帝国军的操作方式。
+尽管以太坊不像它的前身比特币那样广为人知，但它最近也得到了主流世界相当大的关注。全球最大的衍生品交易所芝加哥商品交易所集团（CME Group）在2月份推出了以太坊（ETH）期货。与比特币（BTC）一样，以太坊（ETH）现在也得到了PayPal的支持，在过去的三天里，它的涨幅超过了20%，今年的涨幅为267%，大大超过了比特币的表现。
 
-1953年，中国的五所中国人民解放军兽医大学合并为一所位于长春的大型院校，距离731部队的旧址以南仅140英里。
+如果欧洲投资银行和其他金融巨头要开始在以太坊上发行支付指令，那么大规模采用可能就在眼前了。
 
-与日本帝国军的名字一样，“战马健康研究院”或者相似的中心在北京，成都，广州，南京，云南成立，与区域军事指挥部密切合作。
+世界金融的伟大变革时代正向我们走来。现代化的加密数字货币 – 喜币的上市给新中国联邦人带来了新的希望。
 
-这里列举的兽医研究网络，在人民解放军领导下，由中国军事医学科学院监督，是中国的生物战计划的核心指挥和控制要素。
+原文链接：
 
-两个军事兽医，夏咸柱和金宁一，属于领导地位。他们都是中国医学科学院学术咨询委员会的成员，且共同在长春军事兽医研究所和人畜共患病研究所工作。
+[European Investment Bank Issues €100 Million In Digital Bonds Using Ethereum | ZeroHedge](https://www.zerohedge.com/markets/european-investment-bank-issue-eu100-million-digital-bonds-using-ethereum)
 
-夏咸柱和金宁一的至少四名同事在八年多的时间里一直在从事大规模的国内和国际病毒收集工作：何彪，范泉水，涂长春，吴志强。
+编辑/校对/发稿：小鹿
 
-解放军高级军官曹务春，杨瑞馥和陈薇作为北京军事医学科学院的成员参与了该计划的监督。 何彪和在重庆的第三军事医学大学的王长军，在分离ZC45和ZXC21的过程中发挥了关键作用，这两种蝙蝠冠状病毒被中国爆料者闫丽梦博士声称是COVID-19的病毒骨架。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpeg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29165814/image0-6-6.jpg)
+**更多资讯，更多关注**
 
-在James Quan的2021年2月22日题为“ Covid-19的起源：从假设到真相”的视频中，可以找到故意释放COVID-19的可能和符合逻辑的情况。
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-如情况中描述的，面对川普政府日益增加的经济和地缘政治压力，中共国领导人习近平授权中国人民解放军在2019年10月28日至31日期间，让参加世界军事运动会的美国士兵运动员在等待从武汉机场出发时接触COVID-19。
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-其目的是通过在其基地传播感染来削弱美国军队，在美国平民中播下混乱的种子，并阻止唐纳德·川普总统的连任。
+[**纽约香草山农场****Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-大约在美国士兵-运动员接触到病毒的时候，在武汉市内释放COVID-19的转移注意力的行为将提供一个自然的解释，以反驳关于使用生物武器的指控。
+[**纽约香草山农场****Twitter****（英文）**](https://twitter.com/MosHimalaya)
 
-对美国士兵运动员的攻击失败了，但武汉发布的消息扩散了，到2019年11月底，感染人数加速增加。
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-在最初针对美国军事人员的直接行动失败后，面对中国国内灾难性的大流行影响，北京的领导层在危险问题上撒谎，允许COVID-19通过商业旅行在全球范围内传播。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/LOGO3_1-2.jpg)
 
-无论实际的释放情况如何，中国共产党必须对制造COVID-19病毒负责。
 
-劳伦斯·塞林（Lawrence Sellin）博士从商业和医学研究的国际职业退休，在美国陆军预备役中服役29年，并曾在阿富汗和伊拉克服役。他是国家安全问题公民委员会的成员，并著有《恢复共和国：第二次美国革命的论点》一书的作者。他的电子邮件地址是[email protected]
 
-素材：peacelv；初审：Ranting；终审：蚂蚁兄弟；校对：信心的选择；发稿：信心的选择
 
-新闻来源：[www.thegatewaypundit.com](https://www.thegatewaypundit.com/2021/04/chinas-military-biowarfare-network-led-covid-19/)
 
-[**欢迎加入西班牙巴塞罗那喜悦农场**](https://discord.com/invite/WPy8Qp7)
-
-+1
+0

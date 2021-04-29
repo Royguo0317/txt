@@ -1,39 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】佛罗里达州众议院通过法案，永久禁止COVID-19“疫苗护照”
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1150656/)
+## 朝鲜成功完成其无人机的测试
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1150658/)
 
-作者：香草山媒体部 天下大同
+俄罗斯莫斯科喀秋莎农场 DongDong
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/N-16.jpg)thelibertarianrepublic.com
+据《朝鲜日报》报道，朝鲜已经成功测试了其无人侦察机和无人攻击机。报道称，从 4 月 10 日开始，于平安北道龟城方贤区开始对两种原型机进行了为期三天的测试。
 
+据称，这些无人机可用于对朝鲜主要军事设施进行侦察，并进行 “钳形攻击”。钳形攻势是一种重要战术，指的是将己方军队分成两路，于左右两个方向以包围之势向敌方同时发起进攻。
 
+朝鲜最高领导人金正恩曾在年初呼吁开发 “能够深入作战前沿达 500 公里” 的无人侦察机。朝鲜军方的目标是在 4 月 15 日金日成的生日前完成所有测试。报道称，4月 14 日，负责的军事机构向朝鲜领导人汇报称，军方已完成对无人机的所有测试，测试结果表明数据稳定无误差、技战术配合成功。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29121437/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E4%BD%9B%E7%BD%97%E9%87%8C%E8%BE%BE%E5%B7%9E%E4%BC%97%E8%AE%AE%E9%99%A2%E9%80%9A%E8%BF%87%E6%B3%95%E6%A1%88%EF%BC%8C%E6%B0%B8%E4%B9%85%E7%A6%81%E6%AD%A2COVID-19%E7%96%AB%E8%8B%97%E6%8A%A4%E7%85%A7-1.jpg)图片来源：Axios
+军方还声称，侦察型无人机能 “深入前线地区完成高精度侦察” 任务，攻击型无人机可完成 “精确自杀式攻击” 任务。两者都能针对韩国的主要军事设施开展侦察任务，对攻击目标实施 “钳形突袭 ” 作战任务。
 
-2021年4月28日，[佛罗里达州众议院批准了一项法案](https://welovetrump.com/2021/04/29/florida-house-passes-bill-to-ban-vaccine-passports/)，该法案将限制当地的紧急命令，并执行州长德桑蒂斯(Ron Desantis)的行政命令，禁止COVID-19 疫苗“护照”，众议院以76票对40票通过了该提案。参议院上周已经通过了该法案，但由于众议院做出了修改，该法案需要重新提交参议院审议。
+朝鲜军方计划在未来五年内继续深入推进无人机的研究和开发。据报道，这两款无人机将于 4 月 15 日之后开始量产，预计将在 11 月正式列装。
 
-佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）于4月2日签署了一项行政命令，禁止在该州使用COVID-19疫苗护照。“该命令禁止任何政府实体发行疫苗护照，并禁止企业要求消费者提供任何此类证明文件。州长指出，对自由和隐私的关注是行政命令的主要原因。另外还有佛罗里达人没有疫苗接种的机会，并且有人可能由于健康，宗教或其他原因而无法接种疫苗。” 现在立法机关已将该行政命令永久化。
+早在 2017 年据《自由亚洲电台》报道，韩国军方就曾在江原道麟蹄郡的山林里发现了一架朝鲜坠落的无人机。虽然当时的朝鲜无人机的功能并不很先进，但是却可以有效地搜集韩国境内的军事情报。
 
-德克萨斯州和爱荷华州也已经发布了相关行政命令。美国众议院少数党领袖凯文·麦卡锡(Kevin McCarthy)抨击了新冠病毒疫苗护照的想法，称它们更适合“共产主义中国”，而不是美国。拜登政府也表示，由于隐私问题，他们不会发放疫苗护照。
+该无人机采用了捷克制造的双发引擎，其他部件来自中共国、美国、日本、瑞士和韩国。首尔方面认为，这些部件不排除是从各个国家直接进口的，但是，另有一种可能性是通过中共国的中转，或在中共国购置后运回朝鲜的。
 
-共产党的病毒，是生化武器，永远不可能有疫苗，所有的疫苗都是假的。疫苗护照侵犯人权，跟中共的健康码一样是用来控制人民，如果是强行的推广“疫苗护照”，将会使很多不愿意打疫苗的人，因为生活工作的原因，而不得不去接种疫苗。法案的出台，可以更好的保护个人的自由和患者隐私，期待更多国家和地区出台类似法案。
+所以，韩国方面始终怀疑朝鲜的无人机发展与中共国提供零部件供给有很大的相关关系。他们认为，中共国虽然没有刻意地向朝鲜出口无人机或零部件，但却无法推卸管理不够严厉的责任。
 
-编辑/发稿：雪梨
+参考链接：
 
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+[1] [N. Korea Completes Reconnaissance and Attack Drone Tests – Defense Post – 28/04/20201](https://www.thedefensepost.com/2021/04/28/n-korea-reconnaissance-attack-drone-tests/)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[2] [韩国发现一架疑似朝鲜的无人机 怀疑中国企业或个人在提供零部件 – 自由亚洲电台 – 13/06/2017](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/ko-06132017103507.html)
 
 0
