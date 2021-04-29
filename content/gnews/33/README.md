@@ -1,46 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】欧盟向接种疫苗的美国游客敞开大门
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1147958/)
+## 西喜时事新闻简报—病毒篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1150150/)
 
-配音：香草山录音组 蒙古鸿雁
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+- **作者：wenwu**
 
 
+***更多真相，请关注***[***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
+**西班牙2021年4月29日电/西喜社——**
 
+您若想了解全文报导内容，请点击标题后链接
 
+1. 令人震惊的调查发现: [南非的Covid菌株本月初在悉尼一家检疫酒店的客人之间传播而未被发现](https://www.dailymail.co.uk/news/article-9515107/South-African-Covid-strain-spread-guests-Sydney-quarantine-hotel.html)
 
+据《每日邮报》4月27日电，澳大利亚卫生当局证实，美居酒店（Mercure Hotels)客人之间传播突变菌株；两人是家庭成员住在相连的房间，另一人为相邻；所有三个人都有相同的B1.351南非新冠病毒变异株病毒序列。
 
-据零对冲4月26日的报道，由于许多欧盟成员国急于恢复旅游业以及税收的目的，欧盟向完全接种疫苗的美国游客敞开大门，这是具有里程碑意义的政策转变，欧盟正朝着毫不掩饰地拥护“疫苗护照”的政策发展。
+2. 加拿大一[主要军事基地爆发新冠病毒疫情](https://www.rcinet.ca/zh/2021/04/28/加拿大一主要军事基地爆发新冠病毒疫情/)
 
-援引《纽约时报》对欧盟委员会主席乌苏拉-冯德莱恩的采访报道说，欧洲计划允许已经完全接种疫苗的美国游客在夏季访问欧盟。这个信息是明确无误的，旅游股因此而反弹。冯德莱恩将美国和欧洲监管机构之间的“高级会谈”作为欧洲认为有理由推出“疫苗护照”的众多原因之一。
+据《加广（RCI）》4月28日报道，加拿大国防部证实，加拿大军队在安大略省Petawawa的军事基地爆发了COVID-19疫情。4月19日为止加拿大军队所有感染新冠病毒人员的数量是1525人，其中有99人仍然处于病毒活跃期
 
+3. 欧洲COVID-19: [累计病例破5千万例](https://www.rfi.fr/cn/欧洲covid-19累计病例破5千万例)
 
+据《法广（RFI）》4月29日电，目前包含亚塞拜然、俄罗斯等52个欧洲国家和领地，累计病例已来到5002万1615例。过去7天一共记录到138万2000例，这代表平均每天有19万7400起病例。欧洲累计病例约占全球1/3，但过去这周新增病例只占全球的24%
 
-**文字版原文：[【热点播报】欧盟向接种疫苗的美国游客敞开大门](https://gnews.org/zh-hans/1141533/)**
+4. 西班牙银行警告说，[中共疫情以后对年轻人经济状况恢复来说很艰难](https://news.sky.com/story/covid-19-nhs-app-to-be-used-as-covid-passport-for-international-travel-grant-shapps-confirms-12289071)
 
-作者：纽约香草山写作组 四季
+中央贷款机构说，这种大流行病加剧了就业市场的不平衡、教育质量、获得可负担住房等现有问题。
 
+5. 东京: [奥运会将对运动员进行日常检测](https://www.dw.com/en/coronavirus-digest-tokyo-olympics-to-test-athletes-daily/a-57357336）)
 
+据德国之声4月28日电， 对于7月23日即将开幕的东京夏季奥运会，东京官员表示，为了防止冠状病毒的爆发，奥运会运动员将不被允许访问餐馆、商店或旅游区。
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+**审核：蚂蚁兄弟; 校对：阿伯塔; 发稿：阿伯塔**
 
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+[**欢迎加入西班牙巴塞罗那喜悦农场**](https://discord.com/invite/WPy8Qp7)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1

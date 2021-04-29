@@ -1,63 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210428（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1147721/)
+## 【路德时评摘要】习近平柳州桂林掌控南部战区王牌军
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1150800/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+视频剪辑 : 洛杉矶天使农场–小腾腾说
+中听校：洛杉矶天使农场–雨山溪桥客
+英翻译：洛杉矶天使农场–Arthur
+英校对：洛杉矶天使农场–烟波浩淼
+字幕+视频制作：洛杉矶天使农场–小腾腾说
 
+**路德：**
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+为什么呢，之前习发现，这个南海。就算第一，你够不着，是不是？说白了，美国就算对南海收拾他也够不着。第二本身广东广西啊。广东广西很难有大仗可以打得了。因为北边才是真正的陆军所能开展的。所以呢南部战区自古只有两个集团军这所有的别的军队。都是至少几个以上，几个主力集团军。南部战区的集团军只有两个。现在他发现啊，问题来了，就是说可以通过，三亚跑路。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/01-19.jpg)
+但是你要控制三亚这个潜艇基地你要靠什么。 你得靠陆军，陆军如果你不掌握。他就可以跑路了，直接跑了。而121师你看到没有啊，在桂林。谁在指挥，赵乐秦，习回头一看吓死了。这王牌军竟然是赵乐秦赵乐际的弟弟控制着，赵乐际跟王岐山，表面上来收拾董宏。实际上，说不定暗中勾兑都有可能。他到了三亚一定别人说，这个是老鼠吃大象。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/02-20.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03-19.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/04-21.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/05-19.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06-17.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/07-17.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/08-17.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/09-17.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/10-24.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/11-29.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/12-28.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13-22.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/14-21.jpg)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/15-21.jpg)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16-18.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/17-16.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/18-13.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/19-11.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/20-21.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/21-7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/22-4.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/23-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/24-2.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
+海军在海上你牛，但是在陆地你的北海舰队。谁控制北海舰队，就是靠陆军。陆军王牌师被谁控制谁就控制整个军，发现一看，赵乐秦控制着，这步棋老早就下好了，2013年。那个时候习说白了，懵懵懂懂的，根本还不懂这些。现在发现这个问题太大了，赶紧跑到桂林去说不定过一段时间这个赵乐秦可能就会被换人了，这个121师师长所有的政委全部换，41集团军换成自己的人。
 
 0

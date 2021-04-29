@@ -1,47 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国审查奥斯卡成功创造历史的赵婷
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1147799/)
+## 【热点播报】佛罗里达州众议院通过法案，永久禁止COVID-19“疫苗护照”
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1150656/)
 
-翻译：洛杉矶天使农场 – 烟波浩淼
-校对：洛杉矶天使农场 – 雨山溪桥客
-审核：洛杉矶天使农场 – 黎明的光芒
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Picture1-79.png)2021年4月25日，奥斯卡颁奖典礼在洛杉矶联合车站的新闻发布。中共国导演/制片人赵婷（Chloe Zhao）是电影奖的获得者，也是“无依之地”（Nomadland）的导演。 （照片：克里斯·皮佐洛（Chris Pizzello） /法新社）
-北京出生的赵婷（Chloe Zhao），周一因为民族主义的反击声掩盖了她成为第一位赢得奥斯卡最佳导演奖的有色人种女性的非凡成就。
+作者：香草山媒体部 天下大同
 
-周日晚，赵婷成为了第二位在奥斯卡上获得令人羡慕的奖项的女性，她的电影《无依之地》（Nomadland），讲述边缘化的美国人在西部漫游，该影片囊括了最佳影片奖，其主演弗朗西丝·麦克多曼（Frances McDormand）获得了最佳女主角奖。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-但最近所有包含她的名字和“Nomadland”的帖子在北京时间周一中午被神秘地从类似推特的微博网站上删除。
 
-她的胜利也遭到中共国媒体的沉默。
 
-最初，赵婷因其影片在今年3月金球奖上的成功而受到官方媒体的称赞，但社交媒体用户挖掘出多前的采访，似乎批评了自己出生的国后，赵婷成为了民族主义攻击的目标。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29121437/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E4%BD%9B%E7%BD%97%E9%87%8C%E8%BE%BE%E5%B7%9E%E4%BC%97%E8%AE%AE%E9%99%A2%E9%80%9A%E8%BF%87%E6%B3%95%E6%A1%88%EF%BC%8C%E6%B0%B8%E4%B9%85%E7%A6%81%E6%AD%A2COVID-19%E7%96%AB%E8%8B%97%E6%8A%A4%E7%85%A7-1.jpg)图片来源：Axios
 
-中共国影院突然取消了该片的预定上映时间。
+2021年4月28日，[佛罗里达州众议院批准了一项法案](https://welovetrump.com/2021/04/29/florida-house-passes-bill-to-ban-vaccine-passports/)，该法案将限制当地的紧急命令，并执行州长德桑蒂斯(Ron Desantis)的行政命令，禁止COVID-19 疫苗“护照”，众议院以76票对40票通过了该提案。参议院上周已经通过了该法案，但由于众议院做出了修改，该法案需要重新提交参议院审议。
 
-今年的奥斯卡也没有在中共国电视台或主流媒体频道播出。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Picture2-29.png)截至周一晚上，有两篇关于赵婷在微博上获得奥斯卡金像奖的帖子，当时有人搜寻了她的中文名字。 照片：微博截图。
-赵婷在奥斯卡获奖感言中似乎暗指了这些困难，她说：“最近我一直在思考，当事情变得困难的时候，我是如何坚持下去的。”
+佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）于4月2日签署了一项行政命令，禁止在该州使用COVID-19疫苗护照。“该命令禁止任何政府实体发行疫苗护照，并禁止企业要求消费者提供任何此类证明文件。州长指出，对自由和隐私的关注是行政命令的主要原因。另外还有佛罗里达人没有疫苗接种的机会，并且有人可能由于健康，宗教或其他原因而无法接种疫苗。” 现在立法机关已将该行政命令永久化。
 
-她还引用了一首中国古典诗词中的一句话，“人之初，性本善”。此举在帖子被删除之前受到了许多中共国社交媒体用户的赞扬。
+德克萨斯州和爱荷华州也已经发布了相关行政命令。美国众议院少数党领袖凯文·麦卡锡(Kevin McCarthy)抨击了新冠病毒疫苗护照的想法，称它们更适合“共产主义中国”，而不是美国。拜登政府也表示，由于隐私问题，他们不会发放疫苗护照。
 
-周一上午，微博上最初充斥着赞扬赵婷的帖子，其他人则谴责审查制度。
+共产党的病毒，是生化武器，永远不可能有疫苗，所有的疫苗都是假的。疫苗护照侵犯人权，跟中共的健康码一样是用来控制人民，如果是强行的推广“疫苗护照”，将会使很多不愿意打疫苗的人，因为生活工作的原因，而不得不去接种疫苗。法案的出台，可以更好的保护个人的自由和患者隐私，期待更多国家和地区出台类似法案。
 
-一位拥有890多万粉丝的娱乐博客写道：“赵婷成为历史上第一位获得奥斯卡最佳导演奖的亚洲侨民/中共国女电影人。”这篇博文在被删除前获得了数千个点赞。
+编辑/发稿：雪梨
 
-中共国的舆论控制令人气愤。一位愤怒的用户写道：“在赵婷（Chloe Zhao）获得奥斯卡奖后，微博上连个屁都没有。”
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
-尽管审查人员做出了努力，但在北京街头，很容易找到以一位亚洲导演登上美国电影最高峰而感到骄傲的人。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Picture3-15.png)新浪微博上的网友对赵婷（Chloe Zhao）引用了讲话并没有提及自己的名字，对他赢得了奥斯卡奖表示祝贺。 微博用户在周一晚上写道：“既然不能说，那就别说了。” 照片：微博截图。
-女工程师严颖周一上午告诉法新社记者：“她是中国人的骄。一个中国人获得奥斯卡奖是非常罕见的。”
+**更多资讯，更多关注**
 
-38岁的法律工作者袁敏说：“我认为中共国电影会越来越好，她将为中共国内地导演树立一个非常好的榜样。”
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-赵婷也是中共国著名女演员宋丹丹的继女。
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-原文作者：法新社
-发布时间：2021年4月26日11:50
-原文链接：[https://hongkongfp.com/2021/04/26/china-censors-oscars-success-of-history-making-chloe-zhao/](https://hongkongfp.com/2021/04/26/china-censors-oscars-success-of-history-making-chloe-zhao/)
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

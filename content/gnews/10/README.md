@@ -1,22 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 多辆特斯拉高速路口被拦，广州交警：只是交通管制，不针对特定品牌
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1148263/)
+## 【热点播报】全球通胀将导致社会动荡
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1150929/)
 
-字幕听译：yyshere | 字幕PR：乐禧禧 | 字幕：雨中漫步 | 评论：宁缺 |评论翻译: 乐禧禧 | 翻译PR: yyshere| Page：小六月
-[!\[\]()!\[\](https://spark.adobe.com/page/16rIxLraHP19E/images/21271725-a55d-4dda-b80c-f492ff528e4f.png?asset_id=cb153341-50c9-47b7-8c91-b821e053de3e&amp;img_etag=%22efd80bd49fa71ae206842013d823c0ec%22&amp;size=1024)](https://spark.adobe.com/page/16rIxLraHP19E/images/21271725-a55d-4dda-b80c-f492ff528e4f.png?asset_id=cb153341-50c9-47b7-8c91-b821e053de3e&amp;img_etag=%22efd80bd49fa71ae206842013d823c0ec%22&amp;size=1024)
-近日，广州路管部门在广州南沙港的一次交通管制行动，让特斯拉再次引起网友热议。从网友上传的视频中来看，多辆特斯拉疑似被路管人员拦停，并且停放在路边。经历了上海车展针对特斯拉的闹剧事件之后，特斯拉行车是否安全的最终结果还没有定论，政府的交管部门就可以蛮横下令禁止特斯拉上路。
-
-再一次证明了建设法治社会不过是中共给大家说的一个笑话而已。实际上，中共国根本没有私人汽车公司，都是盗国贼白手套车企。这些依靠国家强大补贴和垄断的优势，面对国外的竞争对手，还要选择这种下作的打砸抹黑手法，充分暴露了中共几十年经济发展的光鲜外表下，依然没有摆脱市井流氓的思维和行为模式。除此之外，中共央媒这几天连发评论对特斯拉的连番责难，就连整顿中共党内纪律的中纪委网站也不务正业跑来凑热闹，对特斯拉口诛笔伐。在中美交恶的大背景下，一件普通的民事案件竟需要如此多的重磅官僚媒体一一过堂，不知道的人还以为特斯拉卷入了政治腐败丑闻。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+作者：纽约香草山农场写作组     四季
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/16rIxLraHP19E/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/16rIxLraHP19E/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-0
+
+
+据《零对冲》近日报道，截至周五，波罗的海每日指数（the Freightos Baltic Daily Index）评估的亚洲-西海岸即期汇率（SONAR：FBXD.CNAW）为每四十英尺当量单位（FEU）4,797美元，亚洲-东海岸汇率（SONAR：FBXD.CNAE）为每四十英尺当量单位（FEU）6,306美元，均接近历史最高点。对现货货物装船的附加保费比以前更高，比现货价格（FAK）高出2000到3000美元，这还是目前最好的情况。在价格已经飙升的情况下，全球通胀即将进入超速状态——因为领先的食品价格指标，即彭博农业现货指数达到六年来的最高水平。
+
+食品是亚洲消费物价指数（CPI）篮子中的重要组成部分，并且这个居住着世界一半以上人口的地区的巨大通货膨胀冲力将导致世界工厂的工资成本上升。随着亚洲的消费物价指数（CPI）和生产者价格指数（PPI）的上升，通胀将在未来几个月内遍及全球。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29135214/Picture1-90-1.jpg)图片来源：彭博农业现货指数，the Bloomberg Agri spot index
+
+德意志银行（Deutsche Bank）策略师吉姆-里德展示了彭博社的农业现货指数同比上升了约76%，他指出，“这是近十年来最大的年度涨幅。”他认为，“有大量文献将食品价格上涨与社会动荡时期联系起来。”事实上，你会从图表中注意到，上一次从2010年中期到2011年初的大涨，恰好是“阿拉伯之春”的开始——食品通胀被认为是这一事件的一个促成因素。里德还提醒我们，新兴市场更容易受到这种趋势的影响，因为他们的消费者在食品上的支出占其收入的比例远远高于发达国家。
+
+里德随后全盘托出了所有人的想法，即“这种食品价格上涨导致社会动荡的趋势可以追溯到很久以前，并围绕着许多关键的转折点。1789年的法国大革命推翻了旧制度，就是在农业连续的欠收导致食品价格大幅上涨之后发生的。欧洲的1848年革命也是如此，它是在19世纪40年代马铃薯作物欠收和欧洲大部分地区发生相关的严重饥荒之后发生的。而1917年俄国沙皇政权被推翻也是在粮食短缺的背景下发生的。”
+
+虽然，今天的食品价格飙升可能会产生什么后果还有待观察，但里德警告说，“鉴于大流行病已经造成的困难，从历史的角度来看，新一波的动荡并不令人惊讶。”
+
+以史为鉴，中共病毒的肆虐对世界经济的破坏正在显现，世界已经付出的惨痛代价似乎还不足以让人类警醒并采取行动，这是人类的悲哀。希望能看到世界尽早确认病毒来源，采取行动向中共追责，以拯救人类于水火之中。
+
+参考阅读：
+
+[One Bank Warns Soaring Food Prices Will Lead To Social Unrest](https://www.zerohedge.com/markets/one-bank-warns-soaring-food-prices-will-lead-social-unrest)
+
+[“It’s About To Get Much Worse”: Supply Chains Implode As “Price Doesn’t Even Matter Anymore”](https://www.zerohedge.com/markets/its-about-get-much-worse-supply-chains-implode-price-doesnt-even-matter-anymore)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑：Delilah小胖
+
+校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
++1

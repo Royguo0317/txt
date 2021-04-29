@@ -1,46 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】媒体平台的重要性
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1147911/)
+## 塞林博士爆五名对中共病毒不作为的参议员
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1150709/)
 
-配音：香草山录音组 蒙古鸿雁
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-47.jpg)ccnationalsecurity.org
+塞林博士今早（4月29日）又发重磅推文：
 
+可悲的事实是，在过去的一年里，我联系了五位共和党参议员，没有人想调查中共病毒的起源，因为美国国会不是为美国人民工作，而是为那些和中国共产党一起赚钱的国际商人工作。
 
+推文附有这5名人员的照片：
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/图.jpg)
+大名鼎鼎的克鲁兹位居中央！难怪他力挺假牧师傅希秋！
 
+赶紧弃暗投明，与邪共划清界限，站出来揭露中共这个恶魔，以此向美国人民、向全世界赎罪，感恩文贵先生，感恩天使闫博士，感恩新中国联邦！
 
+5名参议员分别是（从左至右）：
+拉马尔·亚历山大（Lamar Alexander），田纳西州（Tennessee）；
+汤姆·提利斯（Thom Tillis），北卡罗来纳州（North Carolina）；
+泰德·克鲁斯（Ted Cruz），德克萨斯州（Texas）；
+理查德·伯（Richard Burr），北卡罗来纳州（North Carolina）；
+托马斯·布莱恩·科顿（Thomas Bryant Cotton），阿肯色州（Arkansas）。
 
+塞林博士推文链接：[https://twitter.com/LawrenceSellin/status/1387700846574637057](https://twitter.com/LawrenceSellin/status/1387700846574637057)
 
-
-近日，纽约香草山农场很多战友的社交媒体账号，因为发布郭文贵先生4月21日的爆料：“谈病毒解药和疫苗的视频”，被推特、YouTube公司，以违反传播COVID-19相关信息的政策为由，封停或冻结，无法正常使用，严重影响了真相地日常传播。
-
-4月21日，文贵先生爆料：“共产党的病毒，是生化武器，永远不可能有疫苗，所有的疫苗都是假的。不搞清楚病毒是来自生化武器还是自然，就不可能有疫苗。人类从没有在6个月这么短的时间内生产过任何疫苗。虽然没有疫苗，但是有解药！现在科学家、国内的情报和在欧洲的那位朋友明确地告诉我们，共产党有解药。疫苗是假的、是害人的，但是，共产党有解药。在制造这个武器的时候，他们就制造了解药。这就是真相。要想活下去，就去找共产党要解药。”
-
-
-
-**文字版原文：[【战友心声】媒体平台的重要性](https://gnews.org/zh-hans/1142075/)**
-
-作者：纽约香草山媒体部 天下大同
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++2

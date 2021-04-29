@@ -1,36 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 赵婷：用行动坚守内心的善
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1148131/)
+## 郭先生爆辽宁号大料：平衡器被美军轻松黑瘫&nbsp; 租借俄飞行员按小时算钱
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1150485/)
 
-作者：穆清| 校对：宁缺| 审核：宁缺| Page：小六月
+**摘要：在2021年4月23日的直播中郭文贵先生爆了一个军事大料。中共找俄罗斯的飞行员按小时算钱，在辽宁号航母上“表演”飞机起降。而美国仅动用电子战中最简单的办法就把辽宁号的传导系统黑瘫，日本海上自卫队则全程围观。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29134803/Miles_20210423-live-p1.srt.txt)
+**郭先生爆辽宁号大料：平衡器被美军轻松黑瘫****  ****租借俄飞行员按小时算钱**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ssCdQkXsD7WZv/images/db77263d-5f26-4cb3-8429-88281b606c1b.jpg?asset_id=7e073a6d-618c-4188-921a-508f70b693f1&amp;img_etag=%2292f3536df68dde39bd15a86560b766cc%22&amp;size=1024)](https://spark.adobe.com/page/ssCdQkXsD7WZv/images/db77263d-5f26-4cb3-8429-88281b606c1b.jpg?asset_id=7e073a6d-618c-4188-921a-508f70b693f1&amp;img_etag=%2292f3536df68dde39bd15a86560b766cc%22&amp;size=1024)
+**Liaoning Aircraft Carrier’s Stabilizing System Is Paralyzed; CCP “Rents” Russian Pilots Hourly**
 
-近日，华人导演赵婷凭借《游牧人生》斩获93届奥斯卡最佳导演奖，成为首位获此殊荣的亚裔女性导演，该片同时也摘得最佳影片、最佳女主角共三项大奖。至今只拍过三部电影的她，便在众星云集的好莱坞占据一席之地，令世人刮目相看，但中共谋体却只字不提，还进行了大面积的消息封锁和删帖。
+大家知道航空母舰头两天儿出啥事儿了吗？我们的博士老解读，他是只能解读、他没有现场、他没情报啊，是吧，我今天负责任告诉大家，航空母舰出啥事儿了知道吧？航空母舰出什么事大家知道吗，大家我听听啊。
 
-出生于中国的赵婷，今年2月就历史性夺得金球奖，一度成为中共官媒追捧的对象。随后被网友挖出“辱华言论”，遭到中共全网封杀。就因为在过往的采访中，赵婷表示儿时的中国是“一个遍地谎言的地方”、“如今，美国是我的国家”，顷刻间从“中国骄傲”变成了“辱华分子”。在中共国，这样的事情屡见不鲜，为人所知的郝海东和叶钊颖夫妇就是最好的例子。在对待才华之人，中共历来遵从“不为我所用杀之”的准则，利用道德绑架、政治迫害于拒绝听命之人。
+Do you know what happened to the [Liaoning] aircraft carrier in the past two days? Our PhD Team of Lude Media can only interpret news, but they have no first-hand intelligence, right? I take responsibility for what I am going to tell you today. What happened to the aircraft carrier? Do you know what happened to its aircraft carrier? Everyone, listen.
 
-在中共劣币驱逐良币的体制下，学生不能比老师强，下级不能比上级能干，因此在这种土壤里几乎不可能培养出杰出的人才。在中共看来，与其培养不如拿来，岂不美哉。在中共内外交困之际，本想揽着赵婷的光环为自己贴金、站台，收割民意，在赵婷夺得金球奖后便大肆追捧，褒奖有佳。按照中共的一贯套路不难想象，对赵婷的拉拢不仅局限于表面的示好，还会在背地里使用各种威逼利诱的手段进行俘获，为己所用。就目前看来，心性善良的赵婷，选择了坚持正义，不畏强权，不忘14岁逃离谎言之地的初心，用实力狠狠打脸中共。
+（郭先生与战友们互动）漏水倒没那么差，锅炉炸裂，有人叛逃被干掉，潜水艇，大家瞎蒙不行啊，轮机坏了，马桶爆了，裂纹、电机，电子系统失灵，油泵坏了，系统电子战啊，没导航，动力坏了，控制系统被黑了，被拖回去了，被炸了，都错了啊。
 
-![Director Chloe Zhao Arrives With Early Oscar Contender 'Nomadland' and Next  Year's 'Eternals': &quot;It's a Bit Surreal&quot; | Hollywood Reporter]()![Director Chloe Zhao Arrives With Early Oscar Contender 'Nomadland' and Next  Year's 'Eternals': &quot;It's a Bit Surreal&quot; | Hollywood Reporter](https://static.hollywoodreporter.com/wp-content/uploads/2020/09/10627_02_0290-1599007003-768x433.jpg)
+(Miles reads the answers guessed by the viewers on GTV) Water leaks (not that bad), the boiler bursts, someone defects and gets killed, submarine, (unfounded guess is not allowed), the engine is broken, toilet bursts, cracks, motor, electronic system failure, oil pump broken, electronic war, no navigation, power failure, control system is hacked, the ship is to be dragged back, bombed. All wrong!
 
-颁奖现场，扎着两条麻花辫的赵婷自信从容地走上领奖台，她落落大方的获奖感言让笔者深为动容。她提到，当事情变得困难时使她前进的，是从她孩儿时候开始直到今天仍然坚信的来自《三字经》中“人之初，性本善”，尽管有时候看起来可能相反，但她坚持在她遇到的每一个人身上，到过的每一个地方，寻找善意······她的出现让笔者又一次看到了东方女性最美好的一面，朴素、善良、勇敢、博爱，以及对电影艺术的真切追求。同时再次证明，只要脱离中共的体制，中国女性的才能和魅力都能足以征服世界任何领域。在我们新中国联邦，以闫丽梦、叶钊颖、安红、艾丽以及木兰为代表的新中国女性，以其绝对的勇气和智慧当仁不让地走在灭共的前线，肩负着拯救全人类的使命，在此谨代表笔者个人向她们表达深深的敬意。
+这个博博士知道。这个人家美军的航空母舰它最重要的人家的平衡器，叫平衡器，这个平衡器是世界上最牛的。航空母舰最核心的就弹射——磁弹射、汽弹射，还有一个就是整个船的平衡器，当然动力了、武器都别说。这仨东西没了你飞机上不去下不来，平衡器完了你这个船就完蛋了，你不要看航空母舰有多大，到了海里面是一纸之叶，它随时一切就完了。
 
-中共此番封禁行为，不禁让世人追问，中共究竟在隐瞒什么？恐惧什么？一个号称中华文明五千年，拥有十四亿人的泱泱大国，却容不下一个戳破谎言的善良之人。在中共国，从你呱呱坠地开始，他们就打着“为你好”的旗号，逼迫你听父母的话，听老师的话，听领导的话，听共产党的话。一个要你一直听话的人，几乎都充满着谎言和欺骗，其目的是另有所谋，使你成为阿谀奉承又听话的奴才，只有奴才才能满足他们无限的贪婪和控制欲。
+Dr. Bo knows the answer. The most important thing on a US aircraft carrier is the stabilizing system. The US’s stabilizing system is the best in the world. The core technologies of an aircraft carrier are the aircraft catapult, including the EMALS and steam catapult, the stabilizing system, and of course the power and weapons. Without these three things, your aircraft can’t leave the carrier even if it can get on the carrier. If your stabilizing system is not working, your whole ship will be over. Don’t focus on how big an aircraft carrier is because in the ocean, it’s just like a leaf and can be finished at any moment.
 
-从奥斯卡到诺贝尔，试问中共体制下几人问鼎，而离开中共国的华人却在世界每一个领域大放异彩。这就足以说明中国文化和中国人的基因没有问题，有问题的是中共及其掌权下的体制。
+俄罗斯、乌克兰造的这个所谓的航空母舰是最早的机械式的平衡器，现在的游艇上、军方上用的是 Zero Speed，就是零，在停止下零的平衡动力器，在行驶当中它的平衡器是太重要了。很可悲的事情啊，这个中共的所谓辽宁号航空母舰，这个东凑西凑这个家伙。大家你们真不知道，船上那些天飞行的所有飞行员你们知道是哪来的吗？大家知道那飞行员是哪来的吗？
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+The so-called aircraft carriers built by Russia and Ukraine use an ancient mechanical stabilizer. What modern yachts and military vessels use is the Zero Speed stabilizer, which stabilizes the vessel when it is still. The stabilizing system is so critical when the ship is moving. It’s so pathetic for the so-called Liaoning aircraft carrier of the CCP, which was put together with parts got from all over the places. You guys really don’t know where all the pilots on the ship came from. Do you know where the pilots came from?
 
+我告诉你美国人傻啦，看着飞来飞去哇噻这飞得不错呀歼-15，连飞的歼-15的飞机、连飞的所谓的歼-15B的飞机都是俄罗斯来的，飞行员是俄罗斯的。你们不敢想象共产党造假造到啥程度。结果这个平衡器，航空的一个平衡器最基本的，就像汽车轱辘要转圈一样，它必须有轱辘，这轱辘得转圈就这么简单，它转圈得平衡，一不平衡这车不翻了吗？平衡器在船上碎了、爆了、完了，航空母舰可不能是一个平衡器，它是一系列的平衡装置——爆了。 美国人那个不是看，美国人最后发傻了，日本人也傻了，原来中共找的全是俄罗斯的飞行员，chua~chua~chua，按小时算钱，外援。
 
-编辑：【英国伦敦喜庄园编辑部】
+Let me tell you. The Americans were shocked when they found that the J-15s and J-15Bs, which flied around pretty well, were actually from Russia and the pilots were also from Russia. You just can’t imagine how terribly the CCP has faked everything. In the end, their stabilizing system – you know, the stabilizing system is very basic, like a car’s wheels, when the wheels are turning, they need to be stable; if they lose stability, the car will turn over, right? So, in the end, the stabilizer on their aircraft carrier exploded, finished. You know the aircraft carrier doesn’t just have one stabilizer, rather it has a stabilizing system, and it was this system that exploded. The Americans were shocked, and so were the Japanese, to find out that the CCP hired Russian pilots on the carrier and paid them hourly.
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ssCdQkXsD7WZv/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/ssCdQkXsD7WZv/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+兄弟姐妹们，航母今天都是俄罗斯的飞机外援，平衡器都能让美国人给你干掉——美国就当着你面给你干掉的。平衡器有两个东西是最关键的，最核心的就是传导系统，就像手机信号一样，信号断了就扯淡了。就美国动用的就是电子战当中最简单的办法，就把你这个航空母舰的传导系统里面内部的，还不是通信系统，传导系统直接给你毁掉。
 
+Brothers and sisters, today the [Liaoning] aircraft carrier’s pilots were all Russians, and the stabilizing system was destroyed by Americans, right in front of their eyes. The stabilizing system has two most crucial systems, and the core is the conduction system, which is just like the signal of a cell phone: when there is no signal, the cell phone will be useless. What the Americans used is the simplest method in an electronic war – destroying the conduction system in the aircraft carrier from inside, not the communication system. What they directly destroyed was the conduction system.
 
+日本人就在那看着美国人就给它干了，这就像吹气儿一样，“噗”，一口气儿——对面灯灭啦。它不是灯灭，他把闸给它拉了，就这么简单，这叫魔术，“噗”，灯灭了，旁边有人关灯，把电源给他关了就动不了了。人家就在那儿看着，日本、美帝国主义、日本帝国主义啊，成天手撕鬼子的这些士兵全傻了、全傻了。你知道这个东西船会出大事的，你一个飞机也落不下、一个飞机也起不来。
 
-0
+The Japanese watched the Americans while the Americans were doing this. It just took the time of a breath, and then “puff”, the light goes out. It’s as simple as one turning off the light. And it’s also like magic: someone next to you turns off your light, and then you can’t move anymore. The Japanese were just there watching. The soldiers [of the PLA], who always called the Japanese the Japanese imperialists and always boasted that they could tear up the Japanese with their bear hands, were all shocked to death. You know that something serious will happen to the ship when you can’t launch or land a plane.
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=6082cb627e083973a7301685](https://gtv.org/video/id=6082cb627e083973a7301685) (1:05:27-1:07:34, 1:08:05-1:09:17, 1:13:16-1:14:34)
+鸣谢：感谢西林1、山川异域 提供中文文本于 [https://www.gnews.org/zh-hans/1135702/](https://www.gnews.org/zh-hans/1135702/)
+
+* * *
+
+字幕：【JennyL】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
++5
