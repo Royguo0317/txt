@@ -1,49 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亚利桑那巡游骑兵为选举审计提供安保
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1150843/)
+## 西喜团队带你深入了解虚拟货币 （三）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1150619/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+- 作者：文用
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/A-33-8.jpg)azragers.us
-昨天马里科帕郡（Maricopa）高级法院法官丹尼尔·马丁（Daniel Martin）驳回民主党律师要求的审计临时限制令后【1】，川普总统在第一时间发表声明，对法官的决定给予了赞扬，声明如下：【2】
 
-2021年4月28日
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-唐纳德J.川普 美国第45任总统
+**西班牙2021年4月29日电/西喜社——**
 
-今天在亚利桑那州大获全胜。一位备受尊敬的法官刚刚裁定，亚利桑那州参议院正在进行的法庭审计可以而且将继续进行。100多名民主党律师被派去反对这次审计，美国和世界看到的结果将是非常有趣的！为什么民主党人要竭力掩盖事实？我知道为什么，其他人也知道。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-15.jpg)
 
-声明原文文字整理：
+在“西喜团队带你深入了解虚拟货币”直播节目的第二期，我们结合脸书推出的虚拟货币Diem的白皮书，挖一挖脸书在白皮书中阐述的虚拟货币LBR（Libra，又称Diem）是什么，重点关注了哪些内容，从中我们可以看到LBR和喜币的相同和不同的地方，有助于我们了解当前虚拟货币的发展形势，为认识未来的金融世界奠定基础。
 
-April 28, 2021
+脸书的白皮书内容较多，笔者仅对认为需要重点关注的内容进行分享，了解全文可以通过该链接查看：[https://www.diem.com/en-us/white-paper/](https://www.diem.com/en-us/white-paper/)
 
-Statement by Donald J. Trump 45th President of the United States of America
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29120313/image0-1-18.jpg)
 
-BIG victory today in Arizona. A highly respected Judge has just ruled that the Forensic Audit being done by the Arizona State Senate can and will continue. Over 100 Democrat lawyers were sent to fight against this audit. The results will be very interesting for the USA and the World to see! Why are the Democrats fighting so hard to hide the facts? I know why, and so does everyone else.
+2020年底脸书更新了LBR的白皮书，其中在开头处着重提到了为应对监管需求，在白皮书中增加了四个重大的改动，第一条提到增加了单币种稳定币，这与喜币的双币结构非常的相似；第二，加强LBR支付系统的安全性；第三，辅助过渡到未来的无许可的体系并同时保障其经济属性；在LBR联储的设计中加入强有力的保护措施。从中我们不难发现，更新版的白皮书的关键字是“稳定币”和“合规、监管”。“稳定币”决定了LBR的定位，对于其成功与否至关重要，如我们在第一期节目中提到的，虚拟货币的币值稳定将决定其是否能成功地履行货币的基本职能，因为脸书对LBR的定位绝不仅仅只是停留在交易所里的买卖的金融产品，而是要保证LBR能够和法定货币一样进入商业流通渠道。“合规、监管”决定了LBR的寿命，因为任何不能满足国家级金融监管需求、不能杜绝反洗钱或恐怖主义融资等非法活动的虚拟货币都终将遭到主权国家的惩罚和禁止。脸书能够在白皮书中增加这些内容，也显示出其在虚拟货币发展的野心。
 
-马里科帕郡审计的相关消息：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29120409/image0-2-11-1.jpg)
 
-《门道专家》报道，守护法庭审计中心的亚利桑那巡游骑兵（The Arizona Rangers），募集到14万美元，他们继续对马里科帕郡的审计安全提供保护【3】
+脸书为解决主权国家对LBR有可能影响本国法定货币的运行和货币政策的担忧，推出了几款单币种稳定币LBR，包括LBR美元，LBR欧元，LBR英镑和LBR新币。稳定币LBR和其对应的法定货币的兑换比例为1：1，这样保证虚拟货币稳定币不具有增发的功能。同时，每种稳定币LBR均有资产背书，并且背书的资产是对应的法定货币现金及现金等价物，或短期国债（不超过三个月）。在稳定币的设计上，我们看到脸书推出了多款单币种稳定币，脸书没有把“鸡蛋放在同一个篮子里”，但是背书资产的购买力不如喜币的背书资产——黄金贵金属。
 
-亚利桑那巡游骑兵是一个穿制服的执法辅助队伍，它丰富的历史可以追溯到1901年。这是一家根据“501（c）（3）”法案注册的非营利组织。
+另外特别值得关注的一点，是浮动LBR价格的计算方式，即类似于IMF（国际货币基金组织）对SDR（特别提款权）中对不同法定货币的固定权重，按照不同款单币种稳定币LBR的固定权重加权计算出浮动LBR的参照价格。白皮书的这一点不免让人联想到脸书是否在推进将LBR纳入SDR的计算，如果成功的话将从国际金融体系上确立LBR或者虚拟货币的金融地位。当然如果LBR有这样的战略考量，笔者相信文贵先生也应该在推动喜币成为SDR权重的一部分。虚拟货币是否能够成为IMF认可的货币形式还有待市场检验，和其发行机构能否严格履行白皮书中陈述的合规和监管义务，2021年底将是IMF对其一篮子货币进行回顾的窗口期，我们且看IMF对人民币和虚拟货币的态度。
 
-根据GoFundMe网页，亚利桑那巡游骑兵可以为亚利桑那州任何的联邦、州和地方执法机构提供执法协助，为社区和公民组织提供安全服务，并为亚利桑那州的青年和青年组织提供支持。
+审核：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
 
-亚利桑那巡游骑兵目前正在退伍军人纪念体育馆提供安保，亚利桑那州参议院正在该体育馆内进行法庭审计。
+[西喜团队带你深入了解虚拟货币（第一期）](https://gnews.org/zh-hans/1150871/)
+[西喜团队带你深入了解虚拟货币（第二期）](https://gnews.org/zh-hans/1150067/)
+[西喜团队带你深入了解虚拟货币（第四期）](https://gnews.org/zh-hans/?p=1150113&amp;preview=true)
 
-这则消息似乎令人舒了口气，川普总统为马里科帕郡审计的安全事宜担忧过，连续发了两则声明，敦促州长对参加审计人员的安全全面负责。【4】
-
-参考链接：
-
-【1】[https://www.gnews.org/zh-hans/1149251/](https://www.gnews.org/zh-hans/1149251/)
-
-【2】[https://twitter.com/JennaEllisEsq/status/1387568345390669828](https://twitter.com/JennaEllisEsq/status/1387568345390669828)
-
-【3】[https://www.thegatewaypundit.com/2021/04/arizona-rangers-guarding-forensic-audit-center-raises-140000-continue-protection-maricopa-county-audit/](https://www.thegatewaypundit.com/2021/04/arizona-rangers-guarding-forensic-audit-center-raises-140000-continue-protection-maricopa-county-audit/)
-
-【4】[https://www.gnews.org/zh-hans/1142862/](https://www.gnews.org/zh-hans/1142862/)
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 +1
