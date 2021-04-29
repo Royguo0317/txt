@@ -1,22 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共在罗布泊全年运行核试验 且缺乏透明度
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1150577/)
+## 【热点播报】佛罗里达州众议院通过法案，永久禁止COVID-19“疫苗护照”
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1150656/)
 
-编撰：PEACEMAN ，叶落知秋（文秋）
-复核：七角星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29113350/596b15da04ea47fa8cff2d2bdb3d7775.jpeg)资料照片：来自网络
-美国国务院本月发布了关于武器协议遵守情况的年度报告，该报告涉及其他军备控制问题，并说中国继续在其位于中国西部的罗布泊核武器试验场加紧工作。这些活动引起了人们的关注，即中共正在违反暂停试验的规定，秘密地进行核武器试验。
+作者：香草山媒体部 天下大同
 
-报告说：”近年来，中共可能准备全年运行其罗布泊试验场，而且其核试验活动缺乏透明度，这引起了人们对其遵守美国零产量标准的关注。”中共在整个2020年继续在罗布泊核武器试验场开展工作。”报告说，中共还继续出售导弹和相关技术，这违反了1987年的导弹技术控制制度，一个非正式的反扩散协议，并且没有遵守2000年向美国作出的不协助任何国家发展能够运载核武器的弹道导弹的承诺，在2020年向伊朗出售导弹和设备。”
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-报告说：”尽管美国要求中国调查并制止此类活动，但其中大部分案件仍未得到解决。去年，根据《伊朗、朝鲜和叙利亚不扩散法》对八家中国公司实施制裁，因为它们向伊朗转让导弹技术。
 
-几年前，一个联合国专家小组报告说，中国向朝鲜提供了卡车，这些卡车被改装成平壤远程核导弹的运输-安装发射器。朝鲜的移动式洲际弹道导弹曾在阅兵式上展示过，这些导弹搭载在中国设计的公路移动式发射架上。
 
-点评：面对国际条约，中共一贯的流氓做法是有选择地遵守与破坏，而且一贯假骗偷，面对世界联合灭共的态势，中共违反暂停试验的规定，秘密地进行核武器试验的做法需要引起世人对其挺而走险孤注一掷的高度警惕。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29121437/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E4%BD%9B%E7%BD%97%E9%87%8C%E8%BE%BE%E5%B7%9E%E4%BC%97%E8%AE%AE%E9%99%A2%E9%80%9A%E8%BF%87%E6%B3%95%E6%A1%88%EF%BC%8C%E6%B0%B8%E4%B9%85%E7%A6%81%E6%AD%A2COVID-19%E7%96%AB%E8%8B%97%E6%8A%A4%E7%85%A7-1.jpg)图片来源：Axios
 
-（文章只代表编者观点，与GENEWS平台无关）
+2021年4月28日，[佛罗里达州众议院批准了一项法案](https://welovetrump.com/2021/04/29/florida-house-passes-bill-to-ban-vaccine-passports/)，该法案将限制当地的紧急命令，并执行州长德桑蒂斯(Ron Desantis)的行政命令，禁止COVID-19 疫苗“护照”，众议院以76票对40票通过了该提案。参议院上周已经通过了该法案，但由于众议院做出了修改，该法案需要重新提交参议院审议。
+
+佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）于4月2日签署了一项行政命令，禁止在该州使用COVID-19疫苗护照。“该命令禁止任何政府实体发行疫苗护照，并禁止企业要求消费者提供任何此类证明文件。州长指出，对自由和隐私的关注是行政命令的主要原因。另外还有佛罗里达人没有疫苗接种的机会，并且有人可能由于健康，宗教或其他原因而无法接种疫苗。” 现在立法机关已将该行政命令永久化。
+
+德克萨斯州和爱荷华州也已经发布了相关行政命令。美国众议院少数党领袖凯文·麦卡锡(Kevin McCarthy)抨击了新冠病毒疫苗护照的想法，称它们更适合“共产主义中国”，而不是美国。拜登政府也表示，由于隐私问题，他们不会发放疫苗护照。
+
+共产党的病毒，是生化武器，永远不可能有疫苗，所有的疫苗都是假的。疫苗护照侵犯人权，跟中共的健康码一样是用来控制人民，如果是强行的推广“疫苗护照”，将会使很多不愿意打疫苗的人，因为生活工作的原因，而不得不去接种疫苗。法案的出台，可以更好的保护个人的自由和患者隐私，期待更多国家和地区出台类似法案。
+
+编辑/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

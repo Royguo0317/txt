@@ -1,54 +1,86 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生爆辽宁号大料：平衡器被美军轻松黑瘫&nbsp; 租借俄飞行员按小时算钱
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1150485/)
+## 【热点播报】【GNews 纽约记者站】春寒料峭中坚守的勇士——SEC 纽约抗议现场综合报道
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1150990/)
 
-**摘要：在2021年4月23日的直播中郭文贵先生爆了一个军事大料。中共找俄罗斯的飞行员按小时算钱，在辽宁号航母上“表演”飞机起降。而美国仅动用电子战中最简单的办法就把辽宁号的传导系统黑瘫，日本海上自卫队则全程围观。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29134803/Miles_20210423-live-p1.srt.txt)
-**郭先生爆辽宁号大料：平衡器被美军轻松黑瘫****  ****租借俄飞行员按小时算钱**
+前方记者：纽约香草山记者站 – Kathy（文艺）
+后方撰稿：GNews记者总站 – 向往真理
 
-**Liaoning Aircraft Carrier’s Stabilizing System Is Paralyzed; CCP “Rents” Russian Pilots Hourly**
 
-大家知道航空母舰头两天儿出啥事儿了吗？我们的博士老解读，他是只能解读、他没有现场、他没情报啊，是吧，我今天负责任告诉大家，航空母舰出啥事儿了知道吧？航空母舰出什么事大家知道吗，大家我听听啊。
 
-Do you know what happened to the [Liaoning] aircraft carrier in the past two days? Our PhD Team of Lude Media can only interpret news, but they have no first-hand intelligence, right? I take responsibility for what I am going to tell you today. What happened to the aircraft carrier? Do you know what happened to its aircraft carrier? Everyone, listen.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-（郭先生与战友们互动）漏水倒没那么差，锅炉炸裂，有人叛逃被干掉，潜水艇，大家瞎蒙不行啊，轮机坏了，马桶爆了，裂纹、电机，电子系统失灵，油泵坏了，系统电子战啊，没导航，动力坏了，控制系统被黑了，被拖回去了，被炸了，都错了啊。
 
-(Miles reads the answers guessed by the viewers on GTV) Water leaks (not that bad), the boiler bursts, someone defects and gets killed, submarine, (unfounded guess is not allowed), the engine is broken, toilet bursts, cracks, motor, electronic system failure, oil pump broken, electronic war, no navigation, power failure, control system is hacked, the ship is to be dragged back, bombed. All wrong!
 
-这个博博士知道。这个人家美军的航空母舰它最重要的人家的平衡器，叫平衡器，这个平衡器是世界上最牛的。航空母舰最核心的就弹射——磁弹射、汽弹射，还有一个就是整个船的平衡器，当然动力了、武器都别说。这仨东西没了你飞机上不去下不来，平衡器完了你这个船就完蛋了，你不要看航空母舰有多大，到了海里面是一纸之叶，它随时一切就完了。
+4 月份的纽约依然春寒料峭。经过美国证监会（SEC）纽约办公大楼的人们都会看到——一群华裔抗议者，他们整齐地站立在寒风中，举着抗议的标语和牌子，向来往的行人发放传单，宣讲他们的诉求。
 
-Dr. Bo knows the answer. The most important thing on a US aircraft carrier is the stabilizing system. The US’s stabilizing system is the best in the world. The core technologies of an aircraft carrier are the aircraft catapult, including the EMALS and steam catapult, the stabilizing system, and of course the power and weapons. Without these three things, your aircraft can’t leave the carrier even if it can get on the carrier. If your stabilizing system is not working, your whole ship will be over. Don’t focus on how big an aircraft carrier is because in the ocean, it’s just like a leaf and can be finished at any moment.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29140821/image-498-2.png)
 
-俄罗斯、乌克兰造的这个所谓的航空母舰是最早的机械式的平衡器，现在的游艇上、军方上用的是 Zero Speed，就是零，在停止下零的平衡动力器，在行驶当中它的平衡器是太重要了。很可悲的事情啊，这个中共的所谓辽宁号航空母舰，这个东凑西凑这个家伙。大家你们真不知道，船上那些天飞行的所有飞行员你们知道是哪来的吗？大家知道那飞行员是哪来的吗？
+人们远远地会看到两种横幅标语，其上分别写着“SEC, Immediately disclose all of its communications with the CCP and its party police”和“We demand the SEC to wholly compensate GTV investors’ loss”。从现场发回的图片、视频和音频中，人们可以清楚地感受到这些人的勇敢和执着。
 
-The so-called aircraft carriers built by Russia and Ukraine use an ancient mechanical stabilizer. What modern yachts and military vessels use is the Zero Speed stabilizer, which stabilizes the vessel when it is still. The stabilizing system is so critical when the ship is moving. It’s so pathetic for the so-called Liaoning aircraft carrier of the CCP, which was put together with parts got from all over the places. You guys really don’t know where all the pilots on the ship came from. Do you know where the pilots came from?
+这支由20多位GTV投资者和家属组成的抗议队伍，他们在这里的抗议已经是第15天了。其实，最初的抗议人员包括全美各地的GTV投资者，但随着来自外州的抗议者们陆续返回，现在主要是纽约及附近地区的抗议者们在继续坚守。他们中有人是和家人一起来的——特别是一位来自乔治亚的投资人，她每天都带着80多岁的老母亲，与丈夫一起参加抗议，尤为令人感动。
 
-我告诉你美国人傻啦，看着飞来飞去哇噻这飞得不错呀歼-15，连飞的歼-15的飞机、连飞的所谓的歼-15B的飞机都是俄罗斯来的，飞行员是俄罗斯的。你们不敢想象共产党造假造到啥程度。结果这个平衡器，航空的一个平衡器最基本的，就像汽车轱辘要转圈一样，它必须有轱辘，这轱辘得转圈就这么简单，它转圈得平衡，一不平衡这车不翻了吗？平衡器在船上碎了、爆了、完了，航空母舰可不能是一个平衡器，它是一系列的平衡装置——爆了。 美国人那个不是看，美国人最后发傻了，日本人也傻了，原来中共找的全是俄罗斯的飞行员，chua~chua~chua，按小时算钱，外援。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29140927/image-498-3.png)
 
-Let me tell you. The Americans were shocked when they found that the J-15s and J-15Bs, which flied around pretty well, were actually from Russia and the pilots were also from Russia. You just can’t imagine how terribly the CCP has faked everything. In the end, their stabilizing system – you know, the stabilizing system is very basic, like a car’s wheels, when the wheels are turning, they need to be stable; if they lose stability, the car will turn over, right? So, in the end, the stabilizer on their aircraft carrier exploded, finished. You know the aircraft carrier doesn’t just have one stabilizer, rather it has a stabilizing system, and it was this system that exploded. The Americans were shocked, and so were the Japanese, to find out that the CCP hired Russian pilots on the carrier and paid them hourly.
+SEC办公大楼临近河边，抗议现场是无处遮掩的露天环境。近日的大风和阴森天气，让人倍感寒风刺骨——这对坚守的抗议者们来说，是身体和意志的双重挑战。为了避免如厕不便，他们往往不敢多喝水。可即使有诸多不便，他们仍然每一天都按时在SEC门前整齐排列队伍，拉着横幅，举着美国国旗和英文标语牌，安静有序地表达自己的诉求。
 
-兄弟姐妹们，航母今天都是俄罗斯的飞机外援，平衡器都能让美国人给你干掉——美国就当着你面给你干掉的。平衡器有两个东西是最关键的，最核心的就是传导系统，就像手机信号一样，信号断了就扯淡了。就美国动用的就是电子战当中最简单的办法，就把你这个航空母舰的传导系统里面内部的，还不是通信系统，传导系统直接给你毁掉。
+安静、平和，没有大声的口号——平静的抗议赢得了来往美国人不同程度的支持：有的投来友善的眼光，有的竖起大拇指表示赞同，有的对他们说“你们很勇敢”，有的停下驻足并询问了解，有的用鸣笛表示致敬……
 
-Brothers and sisters, today the [Liaoning] aircraft carrier’s pilots were all Russians, and the stabilizing system was destroyed by Americans, right in front of their eyes. The stabilizing system has two most crucial systems, and the core is the conduction system, which is just like the signal of a cell phone: when there is no signal, the cell phone will be useless. What the Americans used is the simplest method in an electronic war – destroying the conduction system in the aircraft carrier from inside, not the communication system. What they directly destroyed was the conduction system.
+**SEC与CCP权贵资本狼狈为奸**
 
-日本人就在那看着美国人就给它干了，这就像吹气儿一样，“噗”，一口气儿——对面灯灭啦。它不是灯灭，他把闸给它拉了，就这么简单，这叫魔术，“噗”，灯灭了，旁边有人关灯，把电源给他关了就动不了了。人家就在那儿看着，日本、美帝国主义、日本帝国主义啊，成天手撕鬼子的这些士兵全傻了、全傻了。你知道这个东西船会出大事的，你一个飞机也落不下、一个飞机也起不来。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29143423/image-498-4.png)
 
-The Japanese watched the Americans while the Americans were doing this. It just took the time of a breath, and then “puff”, the light goes out. It’s as simple as one turning off the light. And it’s also like magic: someone next to you turns off your light, and then you can’t move anymore. The Japanese were just there watching. The soldiers [of the PLA], who always called the Japanese the Japanese imperialists and always boasted that they could tear up the Japanese with their bear hands, were all shocked to death. You know that something serious will happen to the ship when you can’t launch or land a plane.
+一位来自纽约的投资者Richren接受了采访，对记者谈到了他的个人感想。他认为，GTV是一个稀有资源，就像黄金一样宝贵。诚然，GTV是全球少有的勇敢追求真相的媒体平台，也是全球唯一一个反共、灭共的平台。于投资方面，GTV还给平民草根提供了参与的机会——这是史无前例的。众所周知，一般公司的原始股东和创立股东，只有权贵资本、官僚资本、达官贵人才能染指，草根永远可望不可及。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=6082cb627e083973a7301685](https://gtv.org/video/id=6082cb627e083973a7301685) (1:05:27-1:07:34, 1:08:05-1:09:17, 1:13:16-1:14:34)
-鸣谢：感谢西林1、山川异域 提供中文文本于 [https://www.gnews.org/zh-hans/1135702/](https://www.gnews.org/zh-hans/1135702/)
+Richren还提到，早在2013年，中（共）国政府就与美国证监会通过了一个备忘录，由美国SEC帮助中共把中（共）国的垃圾公司打包到香港、美国上市，圈美国人的钱。然而，SEC对于由平民参股的GTV，却用似是而非的理由，冻结GTV资金，阻止其融资和发展。Richren对投资GTV报以厚望，他希望通过本次投资实现财务自由。因此，他认为SEC严重损害了他的权益。
 
-* * *
+他今天来到在现场要向SEC讨一个说法，同时他认为，CCP是造成今天世界秩序如此混乱的罪魁祸首。只有把CCP彻底从地球上抹去，世界才能恢复正常的秩序。Richren希望投资的回报能让他有更多的时间、精力和能力参与灭共大业。
 
-字幕：【JennyL】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+**坚持GTV追求真理的信念**
 
-+5
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29145609/image-498-8.png)
+
+今天现场来了一位高大帅气的美国男士，他叫David，是纽约香草山农场GTV《边锋新闻》节目的主持人，也是GTV平台的第一个英文主播。他与中国有缘：有一位中国太太，同时也是GTV的投资者。David通过他太太认识了爆料革命和郭文贵先生，随后接触了GTV，又通过GTV陆续明白了中共通过“蓝金黄”搞死、搞弱美国的阴谋，也看清了中共病毒的真相。
+
+David喜欢GTV的LOGO——他觉得很有品位——而他更欣赏GTV坚持唯真不破的价值观和追求真相、真理的使命。为此，David开创了GTV的英语节目。他表示，很多美国人甚至都不知道CCP这三个字母代表什么，英语节目可以帮助更多的美国人了解中国人的真实生存状况，GTV平台甚至涉及很多有关俄罗斯和伊朗的真实新闻。
+
+同为投资者，他谴责SEC和CCP的勾结，不公平地对待郭先生和GTV，耽误了GTV正常的融资和上市，给投资者造成了巨大的损失。他和太太一起勇敢地站了出来，向美国证监会发出抗议。
+
+David相信，合法的、有品质的、追求真相的媒体一定大有前途。他很相信郭先生的智慧和他领导的爆料革命，他认为GTV是传播正能量的渠道。他说，其实CCP害怕GTV，因为GTV爆料了CCP的腐败和邪恶。他认为，坚持抗争才能使GTV赢得最后的胜利。他希望有更多的美国人会因他而陆续站出来，揭露真相。
+
+**在寒风中继续坚持**
+
+虽然最后的结果尚未可知，但抗议者们每一天依然会到现场。刺骨的寒风让他们感到阳光的珍贵——他们尽可能地站在阳光下，成了一群追逐阳光的人。
+
+持续了半个月的抗议活动，在当地亦产生了相当的影响：不少附近的美国人已经听到了投资者的诉求，认识到了中共对美国社会的危害。随着越来越多美国人的觉醒，投资者们会越战越勇，越来越有信心。身体的疲劳不算什么，揭露真相的动力会支持着他们继续坚守。
+
+**另：**
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29145441/image-498-6.png)
+
+文章发出时我们得到消息，SEC的执行（Enforcement）主管昨天突然辞职。该主管是位华人，而她辞职的原因是，其以前和华尔街监管的复杂关系。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
+0

@@ -1,21 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】习近平柳州桂林掌控南部战区王牌军
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1150800/)
+## 亚利桑那巡游骑兵为选举审计提供安保
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1150843/)
 
-视频剪辑 : 洛杉矶天使农场–小腾腾说
-中听校：洛杉矶天使农场–雨山溪桥客
-英翻译：洛杉矶天使农场–Arthur
-英校对：洛杉矶天使农场–烟波浩淼
-字幕+视频制作：洛杉矶天使农场–小腾腾说
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**路德：**
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/A-33-8.jpg)azragers.us
+昨天马里科帕郡（Maricopa）高级法院法官丹尼尔·马丁（Daniel Martin）驳回民主党律师要求的审计临时限制令后【1】，川普总统在第一时间发表声明，对法官的决定给予了赞扬，声明如下：【2】
 
-为什么呢，之前习发现，这个南海。就算第一，你够不着，是不是？说白了，美国就算对南海收拾他也够不着。第二本身广东广西啊。广东广西很难有大仗可以打得了。因为北边才是真正的陆军所能开展的。所以呢南部战区自古只有两个集团军这所有的别的军队。都是至少几个以上，几个主力集团军。南部战区的集团军只有两个。现在他发现啊，问题来了，就是说可以通过，三亚跑路。
+2021年4月28日
 
-但是你要控制三亚这个潜艇基地你要靠什么。 你得靠陆军，陆军如果你不掌握。他就可以跑路了，直接跑了。而121师你看到没有啊，在桂林。谁在指挥，赵乐秦，习回头一看吓死了。这王牌军竟然是赵乐秦赵乐际的弟弟控制着，赵乐际跟王岐山，表面上来收拾董宏。实际上，说不定暗中勾兑都有可能。他到了三亚一定别人说，这个是老鼠吃大象。
+唐纳德J.川普 美国第45任总统
 
-海军在海上你牛，但是在陆地你的北海舰队。谁控制北海舰队，就是靠陆军。陆军王牌师被谁控制谁就控制整个军，发现一看，赵乐秦控制着，这步棋老早就下好了，2013年。那个时候习说白了，懵懵懂懂的，根本还不懂这些。现在发现这个问题太大了，赶紧跑到桂林去说不定过一段时间这个赵乐秦可能就会被换人了，这个121师师长所有的政委全部换，41集团军换成自己的人。
+今天在亚利桑那州大获全胜。一位备受尊敬的法官刚刚裁定，亚利桑那州参议院正在进行的法庭审计可以而且将继续进行。100多名民主党律师被派去反对这次审计，美国和世界看到的结果将是非常有趣的！为什么民主党人要竭力掩盖事实？我知道为什么，其他人也知道。
 
-0
+声明原文文字整理：
+
+April 28, 2021
+
+Statement by Donald J. Trump 45th President of the United States of America
+
+BIG victory today in Arizona. A highly respected Judge has just ruled that the Forensic Audit being done by the Arizona State Senate can and will continue. Over 100 Democrat lawyers were sent to fight against this audit. The results will be very interesting for the USA and the World to see! Why are the Democrats fighting so hard to hide the facts? I know why, and so does everyone else.
+
+马里科帕郡审计的相关消息：
+
+《门道专家》报道，守护法庭审计中心的亚利桑那巡游骑兵（The Arizona Rangers），募集到14万美元，他们继续对马里科帕郡的审计安全提供保护【3】
+
+亚利桑那巡游骑兵是一个穿制服的执法辅助队伍，它丰富的历史可以追溯到1901年。这是一家根据“501（c）（3）”法案注册的非营利组织。
+
+根据GoFundMe网页，亚利桑那巡游骑兵可以为亚利桑那州任何的联邦、州和地方执法机构提供执法协助，为社区和公民组织提供安全服务，并为亚利桑那州的青年和青年组织提供支持。
+
+亚利桑那巡游骑兵目前正在退伍军人纪念体育馆提供安保，亚利桑那州参议院正在该体育馆内进行法庭审计。
+
+这则消息似乎令人舒了口气，川普总统为马里科帕郡审计的安全事宜担忧过，连续发了两则声明，敦促州长对参加审计人员的安全全面负责。【4】
+
+参考链接：
+
+【1】[https://www.gnews.org/zh-hans/1149251/](https://www.gnews.org/zh-hans/1149251/)
+
+【2】[https://twitter.com/JennaEllisEsq/status/1387568345390669828](https://twitter.com/JennaEllisEsq/status/1387568345390669828)
+
+【3】[https://www.thegatewaypundit.com/2021/04/arizona-rangers-guarding-forensic-audit-center-raises-140000-continue-protection-maricopa-county-audit/](https://www.thegatewaypundit.com/2021/04/arizona-rangers-guarding-forensic-audit-center-raises-140000-continue-protection-maricopa-county-audit/)
+
+【4】[https://www.gnews.org/zh-hans/1142862/](https://www.gnews.org/zh-hans/1142862/)
+
++1

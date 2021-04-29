@@ -1,40 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/04/28 参、众议员联合呼吁世卫组织接纳台湾，打破中共对台湾的孤立
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1151358/)
+## 【热点播报】欧洲投资银行使用以太坊发行数字债券
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1151312/)
 
-视频字幕：云岭 | 听写：云岭 | 翻译：Roberts，云岭 | 校对：Roberts，云岭 | 简评/文字整理/编辑：胖丁
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/taiwan-us-101__v-videowebm.jpg)
-**简评：**
+作者：纽约香草山农场写作组 四季
 
-相比中共对其国民的独裁、残暴和种族灭绝，台湾展现出了民主世界最好的一面。尤其是在全球疫情期间，台湾作为一个小国，不但成功地抑制了新冠病毒在本国的蔓延，还愿意支持其他疫情严重的国家。但是在中共的压力下，世卫组织和其他机构一直在孤立台湾。为了对抗中共，应该接受台湾进入世卫组织，打破中共对台湾的孤立。
-
-YouTube视频链接：
+![]()![](https://gnews.org/wp-content/uploads/2021/04/LOGO3_1-2.jpg)
 
 
 
-GTV视频链接：
-
-[https://gtv.org/video/id=608abb574486aa0bb2315b0b](https://gtv.org/video/id=608abb574486aa0bb2315b0b)
-
-**视频字幕：**
-
-我是参议员里克•史考特。几十年来，中共一直骚扰和企图恐吓我们的和平民主盟友—台湾。是时候站出來反对中共的霸凌行为了。我呼吁世界卫生组织停止充当中共的木偶并接受台湾作为成员国。世卫组织不能继续作为中共孤立台湾的同谋。是时候接受台湾的帮助并接纳其进入世卫组织了。
-
-在过去的一年，我们看到中共与台湾之间最鲜明的对比。随着中共对其公民的残酷对待，实行种族灭绝，在国内外执行审查制度，台湾不断展现出民主世界最好的一面。台湾成功抑制新冠蔓延，作为一个小国，愿意支持其他遭受严重疫情的国家，表现出了民主台湾优于独裁中共国的价值。
-
-然而，世界各地的卫生机构在关键的会议和研究中拒绝台湾提供帮助，因为北京牢牢控制了这些所谓的无党派组织。从大瘟疫刚刚开始的时候，我们就已经看到，世界卫生组织和其他机构对北京的顺从，置全世界所付出的时间和生命的代价于不顾。没有比这个更过分的了。
-
-如果我们想对抗中共，使世界变得更好，我们可以从接受台湾的帮助开始。我们再也不能允许中共孤立台湾和霸凌其他国家，使台湾长期孤立。台湾站在民主世界的前沿，处于反对中共独裁主义的第一线。
-
-今天我呼吁即将召开的世界卫生大会接受台湾参加。起码我们可以为朋友做到这一点。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+零对冲4月27日报道，欧洲投资银行正在通过高盛（Goldman Sachs）、桑坦德银行（Banco Santander）和法国兴业银行使用区块链技术发行1亿欧元（约1.2亿美元）的2年期数字债券。根据彭博社的消息，该票据最快可能在今天定价。这是加密货币日益成为主流的最新迹象。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29163747/0-5.jpg)图片源自Twitter
+
+近年来，以太坊网络的活动以去中心化金融 (Decentralized Finance, DeFi)和非同质化代币（Non-Fungible Token，NFT）的繁荣为特征，但它仍需在银行等机构中赢得更广泛的认可。以太坊使用智能合约处理其交易，它是当今最大和最常用的智能合约平台，每天记录约150万笔交易。今年非同质化代币（NFT）的爆发也激发了数字创作者和主要流行艺术家都开始使用该网络，如阿姆（Eminem）和莱昂国王（Kings of Leon）。
+
+尽管以太坊不像它的前身比特币那样广为人知，但它最近也得到了主流世界相当大的关注。全球最大的衍生品交易所芝加哥商品交易所集团（CME Group）在2月份推出了以太坊（ETH）期货。与比特币（BTC）一样，以太坊（ETH）现在也得到了PayPal的支持，在过去的三天里，它的涨幅超过了20%，今年的涨幅为267%，大大超过了比特币的表现。
+
+如果欧洲投资银行和其他金融巨头要开始在以太坊上发行支付指令，那么大规模采用可能就在眼前了。
+
+世界金融的伟大变革时代正向我们走来。现代化的加密数字货币 – 喜币的上市给新中国联邦人带来了新的希望。
+
+原文链接：
+
+[European Investment Bank Issues €100 Million In Digital Bonds Using Ethereum | ZeroHedge](https://www.zerohedge.com/markets/european-investment-bank-issue-eu100-million-digital-bonds-using-ethereum)
+
+编辑/校对/发稿：小鹿
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场****Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场****Twitter****（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/LOGO3_1-2.jpg)
+
+
+
+
+
 0

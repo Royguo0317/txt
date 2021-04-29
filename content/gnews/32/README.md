@@ -1,49 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亚利桑那巡游骑兵为选举审计提供安保
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1150843/)
+## 西喜团队带你深入了解虚拟货币（第一期）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1150871/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+- 作者：文用
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/A-33-8.jpg)azragers.us
-昨天马里科帕郡（Maricopa）高级法院法官丹尼尔·马丁（Daniel Martin）驳回民主党律师要求的审计临时限制令后【1】，川普总统在第一时间发表声明，对法官的决定给予了赞扬，声明如下：【2】
 
-2021年4月28日
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-唐纳德J.川普 美国第45任总统
+**西班牙2021年4月29日电/西喜社——**
 
-今天在亚利桑那州大获全胜。一位备受尊敬的法官刚刚裁定，亚利桑那州参议院正在进行的法庭审计可以而且将继续进行。100多名民主党律师被派去反对这次审计，美国和世界看到的结果将是非常有趣的！为什么民主党人要竭力掩盖事实？我知道为什么，其他人也知道。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-15.jpg)
 
-声明原文文字整理：
+西喜团队带你深入了解虚拟货币系列节目，第一期我们从一篇关于比特币的论文出发，对文中涉及的货币的发展、比特币的现状和各国对其监管的情况进行分析，并探讨虚拟货币未来发展和相关政策之间的关系。
 
-April 28, 2021
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-2-5.jpg)
 
-Statement by Donald J. Trump 45th President of the United States of America
+论文摘要中阐述了2008年经济危机以来，社会对政府信用货币开始产生不信任感，加之以技术的不断发展使得虚拟货币成为可能，比特币进而成为首款去中心化的加密虚拟货币。然而，比特币们给监管和税收带来了巨大挑战，制度建设的不足日益凸显。如何既能保障虚拟货币这一未来货币的健康发展，又能遏制其洗钱和资助恐怖主义等弊端，是各国监管部门不得不面对的重要议题。
 
-BIG victory today in Arizona. A highly respected Judge has just ruled that the Forensic Audit being done by the Arizona State Senate can and will continue. Over 100 Democrat lawyers were sent to fight against this audit. The results will be very interesting for the USA and the World to see! Why are the Democrats fighting so hard to hide the facts? I know why, and so does everyone else.
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-3-10.jpg)
 
-马里科帕郡审计的相关消息：
+论文从货币和货币当局等基本概念开始，指出人类使用过的硬币或纸币等货币的价值是基于信用的，法定货币是由一国中央银行发行的，具有无限法偿性（有限法偿的情况较少）。维护金融秩序、确保货币的价值和稳定是一国货币当局基本的调控目的，而且货币当局应尽量保持其货币政策不受任何政府制约。
 
-《门道专家》报道，守护法庭审计中心的亚利桑那巡游骑兵（The Arizona Rangers），募集到14万美元，他们继续对马里科帕郡的审计安全提供保护【3】
+比特币作为一种去中心化的加密货币，没有相应的“货币当局”的概念，即没有任何机构或个人会为比特币的币值进行有目的的调控，也不会有任何机构或个人会对其未来的发展进行长远规划。从中我们可以认识到，一个中心化的G系列虚拟货币对于其发展至关重要。喜马拉雅联储等机构承担着G系列虚拟货币健康发展的责任，杜绝和防范任何将其用于洗钱、逃税或恐怖主义融资的行为，这是为了保障对每一位投资者的切身利益，保障新中国联邦金融体系能够实现并稳定发展。
 
-亚利桑那巡游骑兵是一个穿制服的执法辅助队伍，它丰富的历史可以追溯到1901年。这是一家根据“501（c）（3）”法案注册的非营利组织。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-4-16.jpg)
 
-根据GoFundMe网页，亚利桑那巡游骑兵可以为亚利桑那州任何的联邦、州和地方执法机构提供执法协助，为社区和公民组织提供安全服务，并为亚利桑那州的青年和青年组织提供支持。
+谈及货币，不能绕开的是货币的职能。关于价值尺度的职能，我们从一个简单问题出发：1个G coin等价于0.1美元，和1美元等价于10个G coin，意义是否是一样的？答案显然是否定的。美金作为法定货币，具有着衡量其他商品的价值尺度职能，所以虚拟货币这类商品完全可以用美金进行标价。相反地，目前社会上没有商品使用G系列虚拟货币进行定价，目前不具备价值尺度的功能。算术上是相等的，但背后的经济原理后者是不成立的。但这也正是未来G系列发展的目标。G系列虚拟货币的内在价值是通过与黄金挂钩体现的，这使得G系列虚拟货币与其他没有和重金属挂钩、或只和一篮子信用货币挂钩的虚拟货币相比脱颖而出，这是G系列虚拟货币未来能够实现价值尺度、币值稳定的重要基础。
 
-亚利桑那巡游骑兵目前正在退伍军人纪念体育馆提供安保，亚利桑那州参议院正在该体育馆内进行法庭审计。
+G系列虚拟货币如何实现流通手段的职能？答案显而易见，就是文贵先生直播中反复提及的进行G Pay的推广，使G系列虚拟货币能够在商业领域普及开来，扩大G系列的GDP，形成和提高G系列虚拟货币的使用需求，让其真正“动”起来。恰逢这个短期内可预见的金融危机，任何企业和政府可以选择的投资品种都是有限的，更不用说投资重金属或和重金属绑定的产品，也更不用说这种产品竟然又是虚拟货币。所以，我们坚信G系列虚拟货币一定会受到社会的广泛青睐，而且问题将不是战友思考如何使用G系列虚拟货币购买商品，而是企业如何提供优质商品来赚取战友们手里的G系列虚拟货币。
 
-这则消息似乎令人舒了口气，川普总统为马里科帕郡审计的安全事宜担忧过，连续发了两则声明，敦促州长对参加审计人员的安全全面负责。【4】
+审核：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
 
-参考链接：
+[西喜团队带你深入了解虚拟货币（第二期）](https://gnews.org/zh-hans/1150067/)
+[西喜团队带你深入了解虚拟货币（第三期）](https://gnews.org/zh-hans/?p=1150619&amp;preview=true)
+[西喜团队带你深入了解虚拟货币（第四期）](https://gnews.org/zh-hans/?p=1150113&amp;preview=true)
 
-【1】[https://www.gnews.org/zh-hans/1149251/](https://www.gnews.org/zh-hans/1149251/)
-
-【2】[https://twitter.com/JennaEllisEsq/status/1387568345390669828](https://twitter.com/JennaEllisEsq/status/1387568345390669828)
-
-【3】[https://www.thegatewaypundit.com/2021/04/arizona-rangers-guarding-forensic-audit-center-raises-140000-continue-protection-maricopa-county-audit/](https://www.thegatewaypundit.com/2021/04/arizona-rangers-guarding-forensic-audit-center-raises-140000-continue-protection-maricopa-county-audit/)
-
-【4】[https://www.gnews.org/zh-hans/1142862/](https://www.gnews.org/zh-hans/1142862/)
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 +1
