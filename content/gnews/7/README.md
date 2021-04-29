@@ -1,53 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】欧洲投资银行使用以太坊发行数字债券
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1151312/)
+## 德国 太平洋上的新力量
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1151354/)
 
-作者：纽约香草山农场写作组 四季
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/LOGO3_1-2.jpg)
-
-
-
-
-
-零对冲4月27日报道，欧洲投资银行正在通过高盛（Goldman Sachs）、桑坦德银行（Banco Santander）和法国兴业银行使用区块链技术发行1亿欧元（约1.2亿美元）的2年期数字债券。根据彭博社的消息，该票据最快可能在今天定价。这是加密货币日益成为主流的最新迹象。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29163747/0-5.jpg)图片源自Twitter
-
-近年来，以太坊网络的活动以去中心化金融 (Decentralized Finance, DeFi)和非同质化代币（Non-Fungible Token，NFT）的繁荣为特征，但它仍需在银行等机构中赢得更广泛的认可。以太坊使用智能合约处理其交易，它是当今最大和最常用的智能合约平台，每天记录约150万笔交易。今年非同质化代币（NFT）的爆发也激发了数字创作者和主要流行艺术家都开始使用该网络，如阿姆（Eminem）和莱昂国王（Kings of Leon）。
-
-尽管以太坊不像它的前身比特币那样广为人知，但它最近也得到了主流世界相当大的关注。全球最大的衍生品交易所芝加哥商品交易所集团（CME Group）在2月份推出了以太坊（ETH）期货。与比特币（BTC）一样，以太坊（ETH）现在也得到了PayPal的支持，在过去的三天里，它的涨幅超过了20%，今年的涨幅为267%，大大超过了比特币的表现。
-
-如果欧洲投资银行和其他金融巨头要开始在以太坊上发行支付指令，那么大规模采用可能就在眼前了。
-
-世界金融的伟大变革时代正向我们走来。现代化的加密数字货币 – 喜币的上市给新中国联邦人带来了新的希望。
-
-原文链接：
-
-[European Investment Bank Issues €100 Million In Digital Bonds Using Ethereum | ZeroHedge](https://www.zerohedge.com/markets/european-investment-bank-issue-eu100-million-digital-bonds-using-ethereum)
-
-编辑/校对/发稿：小鹿
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场****Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场****Twitter****（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/LOGO3_1-2.jpg)
+```
+新闻来源：世界报网络版
+记者：马克西米利安·卡尔霍夫（Maximilian Kalkhof）
+发表时间：2021年4月29日
+```
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29173953/IMG_20210429_233907.png)图片来源：留园网
 
+欧洲的安全也决定于太平洋，布鲁塞尔和柏林对此达成共识。因此，德国海军应该在该地区展示其存在，但是中国与台湾之间的一个重要海峡是禁忌。要给北京下跪吗？
 
+中共国越来越清楚地表明其在太平洋大国的权力主张。北京自称拥有南中国海的90％，即大致位于中国，菲律宾，印度尼西亚和马来西亚之间的海域。它通过将岛屿发展成军事基地来强调这种对权力的要求。海牙常设仲裁法院的法官于2016年驳回了中国的诉求。但是北京无视判决。
+
+但是中共国的权力扩张在柏林也不是没有被忽视。去年9月，联邦政府通过了印度太平洋地区准则。该准则的目的是减少对中共国的经济依赖，并加强与太平洋伙伴的多边主义，人权和自由贸易。该准则是欧洲倡议的一部分。直到四月份，欧洲联盟才发布了印度太平洋战略。该战略的目的是在军事上更多地参与该地区。
+
+#### **简评：**
+
+**这篇新闻稿，让我眼前一亮。其中，对中共在太平洋上霸权表示不满，并提出尖锐的问题——「要向北京下跪吗？」德国海军不顾中共国在台湾海峡的禁忌，要在该地区显示自己的存在。欧盟和德国在这个方面的意见出奇的一致，欧盟也发布了印度太平洋战略报告。就是要更多的军事上参与印太的行动。这就显然表明了德国的立场，中共声称在南中国海的90%的主权，这是不能接受的。**
+
+**郭先生在他的直播中，也多次提到了欧洲的情况，也要和美国站在一起反对中共的霸权。唯一的遗憾，在正篇新闻中，一直是使用了“中国”这个字眼。要改变他们的意识，即中共不等于中国，中共不等于中国人。这样的概念还需要我们继续做出我们的努力，努力向他们宣传。我们，中国人是中共这个邪恶政权的最大受害者。相信，拜登在6月份到访欧洲，参加完七国首脑会议，北约峰会和欧盟峰会后，世界的形式还会有更大的变化，那就是所有的人都要对抗中共。 **
+（本文只代表译者观点，与Gnews平台无关。）
+
+**新闻原文链接：**🔗[Deutschland, die neue Mini-Macht im Pazifik](https://www.welt.de/politik/ausland/plus230743141/Geopolitik-Deutschland-die-neue-Mini-Macht-im-Pazifik.html)
+
+* * *
+
+***翻译/ 整理/ 评论：** Shuizhuyu **编辑整理/校对:** Ting Guo*
 
 0

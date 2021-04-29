@@ -1,30 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 塞林博士爆五名对中共病毒不作为的参议员
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1150709/)
+## 西喜时事新闻简报—病毒篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1150150/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+- **作者：wenwu**
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/C-47.jpg)ccnationalsecurity.org
-塞林博士今早（4月29日）又发重磅推文：
 
-可悲的事实是，在过去的一年里，我联系了五位共和党参议员，没有人想调查中共病毒的起源，因为美国国会不是为美国人民工作，而是为那些和中国共产党一起赚钱的国际商人工作。
+***更多真相，请关注***[***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-推文附有这5名人员的照片：
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/图.jpg)
-大名鼎鼎的克鲁兹位居中央！难怪他力挺假牧师傅希秋！
+**西班牙2021年4月29日电/西喜社——**
 
-赶紧弃暗投明，与邪共划清界限，站出来揭露中共这个恶魔，以此向美国人民、向全世界赎罪，感恩文贵先生，感恩天使闫博士，感恩新中国联邦！
+您若想了解全文报导内容，请点击标题后链接
 
-5名参议员分别是（从左至右）：
-拉马尔·亚历山大（Lamar Alexander），田纳西州（Tennessee）；
-汤姆·提利斯（Thom Tillis），北卡罗来纳州（North Carolina）；
-泰德·克鲁斯（Ted Cruz），德克萨斯州（Texas）；
-理查德·伯（Richard Burr），北卡罗来纳州（North Carolina）；
-托马斯·布莱恩·科顿（Thomas Bryant Cotton），阿肯色州（Arkansas）。
+1. 令人震惊的调查发现: [南非的Covid菌株本月初在悉尼一家检疫酒店的客人之间传播而未被发现](https://www.dailymail.co.uk/news/article-9515107/South-African-Covid-strain-spread-guests-Sydney-quarantine-hotel.html)
 
-塞林博士推文链接：[https://twitter.com/LawrenceSellin/status/1387700846574637057](https://twitter.com/LawrenceSellin/status/1387700846574637057)
+据《每日邮报》4月27日电，澳大利亚卫生当局证实，美居酒店（Mercure Hotels)客人之间传播突变菌株；两人是家庭成员住在相连的房间，另一人为相邻；所有三个人都有相同的B1.351南非新冠病毒变异株病毒序列。
 
-+2
+2. 加拿大一[主要军事基地爆发新冠病毒疫情](https://www.rcinet.ca/zh/2021/04/28/加拿大一主要军事基地爆发新冠病毒疫情/)
+
+据《加广（RCI）》4月28日报道，加拿大国防部证实，加拿大军队在安大略省Petawawa的军事基地爆发了COVID-19疫情。4月19日为止加拿大军队所有感染新冠病毒人员的数量是1525人，其中有99人仍然处于病毒活跃期
+
+3. 欧洲COVID-19: [累计病例破5千万例](https://www.rfi.fr/cn/欧洲covid-19累计病例破5千万例)
+
+据《法广（RFI）》4月29日电，目前包含亚塞拜然、俄罗斯等52个欧洲国家和领地，累计病例已来到5002万1615例。过去7天一共记录到138万2000例，这代表平均每天有19万7400起病例。欧洲累计病例约占全球1/3，但过去这周新增病例只占全球的24%
+
+4. 西班牙银行警告说，[中共疫情以后对年轻人经济状况恢复来说很艰难](https://news.sky.com/story/covid-19-nhs-app-to-be-used-as-covid-passport-for-international-travel-grant-shapps-confirms-12289071)
+
+中央贷款机构说，这种大流行病加剧了就业市场的不平衡、教育质量、获得可负担住房等现有问题。
+
+5. 东京: [奥运会将对运动员进行日常检测](https://www.dw.com/en/coronavirus-digest-tokyo-olympics-to-test-athletes-daily/a-57357336）)
+
+据德国之声4月28日电， 对于7月23日即将开幕的东京夏季奥运会，东京官员表示，为了防止冠状病毒的爆发，奥运会运动员将不被允许访问餐馆、商店或旅游区。
+
+**审核：蚂蚁兄弟; 校对：阿伯塔; 发稿：阿伯塔**
+
+[**欢迎加入西班牙巴塞罗那喜悦农场**](https://discord.com/invite/WPy8Qp7)
+
++1
