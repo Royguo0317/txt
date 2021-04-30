@@ -1,27 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 无论是谁，都将成为中共权斗的工具和牺牲品
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1151337/)
+## 【热点播报】欧洲投资银行使用以太坊发行数字债券
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1151312/)
 
-#### **译评：Hakunamatata  | 责编：沙拉猫**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29165636/capture-17-12.jpg)图片来源：Twitter
-据《苹果日报》4月27日报道，中共党媒新华社称，中共国副主席王岐山的前右手董宏，星期一因“贿赂”罪而被正式逮捕。中共的最高反贪污机构–最高人民检察院根据2020年10月的调查做出了这一决定。
+作者：纽约香草山农场写作组 四季
 
-据报道，董宏被捕的罪名是涉嫌在2012年至2017年期间担任王岐山的高级纪律检查官期间受贿。据中共的新华社报道，国家监察委员会（国监委）已完成对董的案件的调查，并将案件移交给检察官。
-
-68岁的董宏曾是中共退位高官薄一波的秘书，薄一波则是重庆市前书记薄熙来的父亲。董宏因“严重违反党的纪律和法律”在4月13日被开除中共党籍，中共给董列出的罪状包括，董失去了理想和信念，对党不忠诚，并利用其职位在商业运作和项目承包中为他人谋取利益，接受大量金钱和礼物作为回报。董的行为严重违反了中共党纪和有关的法律。根据中共的法规和法律，决定将其驱逐出党，没收其非法所得，并将他的案子移交给司法。
-
-至于董宏的主子王岐山，貌似并没因为董宏事件而受到影响，他出席了4月20日在海南举行的年度博鳌论坛开幕式。
-
-* * *
-
-评： 中共内斗已经开始，共产党独裁体制就是一个祸害国家和个人的绞肉机，共产主义意识形态依然停留在商鞅残暴的野蛮时期，社会主义制度是孕育邪恶，泯灭人性的温床，独裁体系成为个人谋私利的最好帮凶。在没有法治的中共国，董宏案或王健之死的现象是常态，无论是谁，无论曾经拥有多大的权利，都必须遵循中共为其独裁专制所制定的所谓的法律，完全不是文明民主社会所奉行的法律体系。中共的法律政策都只是为权大者所用，可以随时为当权者的利益而随时修改，因此，即便是中共党内的人，也都可能随时成为权利斗争的工具和牺牲品。
-
-过去的中国一直在不断的重复着“打倒皇帝当皇帝”的戏，人民从来不曾有过属于自己的权利。共产主义在中国存在的70年，为那片国土带去的是不断的灾难和痛苦，而现又利用病毒将灾难输出到世界，把腐败戮杀带到西方挑战普世价值和基督文明，中共对世界所犯下的反人类罪行一定会最终受到审判，共产主义一定会被埋没于历史的长河中！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/LOGO3_1-2.jpg)
 
 
 
-&gt;&gt;原报道链接&gt;&gt;[Chinese VP Wang Qishan’s confidant arrested over bribery: report](https://hk.appledaily.com/news/20210427/646MWEMZQJH3XBQ2GQIWC4JDAA/)
+
+
+零对冲4月27日报道，欧洲投资银行正在通过高盛（Goldman Sachs）、桑坦德银行（Banco Santander）和法国兴业银行使用区块链技术发行1亿欧元（约1.2亿美元）的2年期数字债券。根据彭博社的消息，该票据最快可能在今天定价。这是加密货币日益成为主流的最新迹象。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29163747/0-5.jpg)图片源自Twitter
+
+近年来，以太坊网络的活动以去中心化金融 (Decentralized Finance, DeFi)和非同质化代币（Non-Fungible Token，NFT）的繁荣为特征，但它仍需在银行等机构中赢得更广泛的认可。以太坊使用智能合约处理其交易，它是当今最大和最常用的智能合约平台，每天记录约150万笔交易。今年非同质化代币（NFT）的爆发也激发了数字创作者和主要流行艺术家都开始使用该网络，如阿姆（Eminem）和莱昂国王（Kings of Leon）。
+
+尽管以太坊不像它的前身比特币那样广为人知，但它最近也得到了主流世界相当大的关注。全球最大的衍生品交易所芝加哥商品交易所集团（CME Group）在2月份推出了以太坊（ETH）期货。与比特币（BTC）一样，以太坊（ETH）现在也得到了PayPal的支持，在过去的三天里，它的涨幅超过了20%，今年的涨幅为267%，大大超过了比特币的表现。
+
+如果欧洲投资银行和其他金融巨头要开始在以太坊上发行支付指令，那么大规模采用可能就在眼前了。
+
+世界金融的伟大变革时代正向我们走来。现代化的加密数字货币 – 喜币的上市给新中国联邦人带来了新的希望。
+
+原文链接：
+
+[European Investment Bank Issues €100 Million In Digital Bonds Using Ethereum | ZeroHedge](https://www.zerohedge.com/markets/european-investment-bank-issue-eu100-million-digital-bonds-using-ethereum)
+
+编辑/校对/发稿：小鹿
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场****Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场****Twitter****（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/LOGO3_1-2.jpg)
+
+
+
+
 
 0
