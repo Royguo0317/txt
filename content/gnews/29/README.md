@@ -1,57 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【信仰之声】CCP病毒，哈米吉多顿大战的序幕
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1151903/)
+## 中俄对中共病毒疫苗散布虚假信息
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1152115/)
 
-作者：纽约香草山福音部 JingleChenge
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/R-24.jpg)usatoday.com
+路透社报道，一份欧洲报告周三揭示，中共和俄罗斯媒体在最新的造谣活动中，系统性地试图挑起对西方中共病毒疫苗的不信任，旨在推广自己国家的疫苗经济，分裂西方。
 
+这份欧盟研究报告称，从去年12月到今年4月，中俄两国官方媒体在网上用多种语言发布假新闻，大肆渲染疫苗安全担忧，将疫苗接种与欧洲死亡案例之间毫无根据的联系在一起，并宣传中共国和俄罗斯的疫苗更有优势。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+中共政府和俄罗斯政府否认了欧盟提出的关于虚假信息指控。欧盟研究报告称，中共和俄罗斯的疫苗外交“遵循一种零和博弈逻辑，并结合了虚假信息和操纵努力，以破坏对西方制造的疫苗的信任”。该报告由欧盟虚假信息部门发布。
 
+“俄罗斯和中共都在利用国家控制的媒体、代理媒体网络和社交媒体，包括官方外交社交媒体账户，来实现这些目标。”该报告称，并引用了今年俄罗斯的100个例子。欧盟和北约经常指责俄罗斯采取包括散布虚假信息在内的秘密行动，试图利用社会分裂来破坏西方的稳定。
 
+欧盟报告称“中共国官方渠道和亲克里姆林宫的媒体都夸大了有关西方疫苗据称有副作用的内容，歪曲和夸大了国际媒体的报道，并将死亡与辉瑞/生物科技在挪威、西班牙和其他地方生产的疫苗联系起来。” 报告发现，中共同时将其疫苗宣传为“全球公益产品”，并“将其推销为更适合发展中国家和西巴尔干地区的疫苗”。西巴尔干国家被视为未来的欧盟成员国。
 
-因为病毒疫情，全世界的基督徒已经有一年多不能上教会礼拜了。
+路透社(Reuters)的一项调查显示，去年，中共曾试图阻止欧盟发布揭露和指控北京在中共病毒疫情中传播虚假信息的报告。
 
-自大流行开始，教会自动关闭，只有纽约州的正统犹太人还坚持去会堂。直到2020年10月，纽约州长一纸令下，关闭了他们的会堂，当时激起了犹太人很大的反弹。就凭此，犹太人比我们强。
+俄罗斯对此进行了例行否认。中共驻欧盟使团周四发表声明狡辩称 “一份没有事实依据的虚假信息报告本身就是虚假信息”，用一贯的推诿无赖战术来应对国际社会的指控。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29205806/image-498-9.png)图源网络
+这是旨在争夺疫苗经济市场的有预谋的媒体战。除了爆料革命GNEWS， GTV的媒体平台，世界上还没有其他媒体勇于揭露病毒和疫苗的真相。疫苗政治是继病毒真相后的又一场骗局。真相是，不管哪国的疫苗，都是一场寻求利益的资本博弈，在中共制造的超限生物武器面前，根本没有有效的疫苗。破除病毒困局的唯一出路是消灭病毒源头——中共邪恶政权。
 
-2021年4月2日，War Room第844期中Maria Luisa提到，以前一到复活节就热闹非凡的意大利，现在万人空巷，凄惨的境况让这位记者潸然泪下。
+参考链接：
 
-2021年4月4日，伦敦警察以盖世太保的方式公然在复活节的周五，走进一家正在做弥撒的波兰人教会（London’s Christ the King Polish Church）。警察抢过话筒，以罚款200英镑或逮捕为胁，要求会众立即离开。（详情可参见2021年4月6日，War Room EP. 852）
-
-《纽约时报》现在正发文抨击不肯打CCP疫苗的福音派别基督徒，说他们是当前疫情况居高不下的罪魁祸首。在德州达拉斯的Catholic Diocese of Dallas，一位身怀六甲又怀抱一个一岁婴儿的母亲，她领完弥撒后想揣口气，随手取下了口罩，立即受到被捕的威胁。（详情可参见2021年4月6日，War Room EP. 852）
-
-2021年4月26日在爱尔兰，警察大张旗鼓地驱赶正在祷告的会友。Artur Pawlowski，Cave of Adullam的牧师，当天也在War Room（EP. 900）中揭露加拿大Calgary的市长Naheed Nenshi是如何千方百计阻止他们崇拜聚会的。
-
-以上这些仅仅是被曝光出来为少数人所知的，那些没有被报道的类似事件还有多少，就不得而知了。据统计，美国受到CCP病毒影响的教会有38万家之多。这就是末世的征兆，撒旦利用病毒千方百计地阻拦信徒到现实中来敬拜这位真正的上帝。这是撒旦拉开了向上帝宣战的序幕，CCP充当了撒旦的工具。
-
-这一年多以来，我们都在线上聚会，好像更方便了——不用出家门，不用穿戴整齐，方式灵活，还可以边聚会、边利用时间干其他事务，而且全世界的信徒可以跨边界聚会了。但实际情况呢，因着与弟兄姊妹没有生命的联接、肢体的相交，不能及时知道信徒的情况，无法操练属灵的生命；不能进行面对面的敬拜，被时空隔了起来，脱离现实；又渐渐习惯了懒惰的不用付代价的线上聚会，恐怕属灵生命的枯干指日可待！希伯来书已经警告了我们，其中10章25节说：“你们不可停止聚会，好像那些停止惯了的人，倒要彼此劝勉，既知道那日子临近，就更当如此。”
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2-1.jpg)
-
-编辑：灵性探索
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+[https://www.reuters.com/world/china/russia-china-sow-disinformation-undermine-trust-western-vaccines-eu-report-says-2021-04-28/](https://www.reuters.com/world/china/russia-china-sow-disinformation-undermine-trust-western-vaccines-eu-report-says-2021-04-28/)
 
 0
