@@ -1,54 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生爆辽宁号大料：平衡器被美军轻松黑瘫&nbsp; 租借俄飞行员按小时算钱
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1150485/)
+## 俄罗斯染疫480万，普京发出向中共要解药信号
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1151100/)
 
-**摘要：在2021年4月23日的直播中郭文贵先生爆了一个军事大料。中共找俄罗斯的飞行员按小时算钱，在辽宁号航母上“表演”飞机起降。而美国仅动用电子战中最简单的办法就把辽宁号的传导系统黑瘫，日本海上自卫队则全程围观。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29134803/Miles_20210423-live-p1.srt.txt)
-**郭先生爆辽宁号大料：平衡器被美军轻松黑瘫****  ****租借俄飞行员按小时算钱**
+**向真**
 
-**Liaoning Aircraft Carrier’s Stabilizing System Is Paralyzed; CCP “Rents” Russian Pilots Hourly**
+据俄罗斯卫星通讯社4月29日报道，截至本周四，俄罗斯累计确诊感染CCP病毒人数 4796557人，累计死亡人数为109731人，在过去的24小时，新增确诊病例9284例，新增死亡病例364例，疫情有再次爆发的趋势。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29150414/5008283cc81f46a583ce24e07e905fc2.jpeg)
+美国前国家安全顾问布热津斯基曾经指出，俄罗斯(包括前苏联)是一部为了扩张领土而生的机器。15世纪还是小小的莫斯科大公国，经过500年从不间断的无耻侵略，其国土面积已达1713平方公里(苏联2240平方公里)。但是，人口稀少加上出生率持续下降，对俄罗斯的国家安全非常不利，其中的道理很简单，辽阔的疆域要用庞大的军队和财政来守卫，财政规模则直接依靠人口数量。值得注意的是，由于几百年来的野蛮侵略和扩张，几乎所有的邻居都对俄罗斯仇恨有加，虎视眈眈。一个人口不断下降的俄罗斯前景确实不妙。
 
-大家知道航空母舰头两天儿出啥事儿了吗？我们的博士老解读，他是只能解读、他没有现场、他没情报啊，是吧，我今天负责任告诉大家，航空母舰出啥事儿了知道吧？航空母舰出什么事大家知道吗，大家我听听啊。
+因此，普京去年大幅提高新生儿的每月补助，同年俄罗斯“母亲委员会”呼吁开征“无子女税”，以缓解人口不断下降的危机。苏联解体后，俄罗斯的死亡率一直高于出生率，2020年俄罗斯人口减少约51万人，2021年因为CCP病毒继续肆虐，其人口下降幅度将更大。由于俄罗斯民族的强悍和排外，以及长年经济衰退，外来补充人口极少，本土人口却一直外流。
 
-Do you know what happened to the [Liaoning] aircraft carrier in the past two days? Our PhD Team of Lude Media can only interpret news, but they have no first-hand intelligence, right? I take responsibility for what I am going to tell you today. What happened to the aircraft carrier? Do you know what happened to its aircraft carrier? Everyone, listen.
+俄罗斯最近发现了本土变异的两种病毒，加上外来变异病毒的泛滥，疫情防控更加困难。日本人口略少于俄罗斯，但俄罗斯的感染和染疫死亡人数均高出日本约10倍，当前俄罗斯毫无控制疫情的胜算。对于俄罗斯而言，人口损失就是国力削弱，等于危及国家安全，相对于和中共保持友好稳收那点油气钱，尽快解决病毒危机，把国家从生存危机中解救出来，才是普京的头等大事，因此，普京是决不会白白吃下习近平这个哑巴亏的。
 
-（郭先生与战友们互动）漏水倒没那么差，锅炉炸裂，有人叛逃被干掉，潜水艇，大家瞎蒙不行啊，轮机坏了，马桶爆了，裂纹、电机，电子系统失灵，油泵坏了，系统电子战啊，没导航，动力坏了，控制系统被黑了，被拖回去了，被炸了，都错了啊。
+俄罗斯杜马主席沃洛金本周三公开声称“中共病毒可能从中国武汉的一个美国实验室泄露”，这是普京迫不及待向拜登发出的强烈信号，大概意思是(设想场景):那个新中国联邦的头头郭文贵说中共有解药，拜登你听到了吗？我这边相信他说的话，因为他是情报高手，而且从来不说假话，另外你别忘了，我们克格勃也不是吃闲饭的，得到的情报和郭文贵的爆料高度吻合。相信拜登兄你也知道，中共军方放出来的病毒，是聪明的生物武器，我们瞎弄的疫苗根本不管用，你和我一样没辙了吧？再这么下去，人都死光了，我俩也不用吵架了，你先别扯那些七旧八远的事情了，救命要紧，先叫习近平此厮交出解药吧。如果你听不进我的忠言，我可能要自个儿干了，到时你肯定吃不了兜着走。
 
-(Miles reads the answers guessed by the viewers on GTV) Water leaks (not that bad), the boiler bursts, someone defects and gets killed, submarine, (unfounded guess is not allowed), the engine is broken, toilet bursts, cracks, motor, electronic system failure, oil pump broken, electronic war, no navigation, power failure, control system is hacked, the ship is to be dragged back, bombed. All wrong!
+*参考链接：*
 
-这个博博士知道。这个人家美军的航空母舰它最重要的人家的平衡器，叫平衡器，这个平衡器是世界上最牛的。航空母舰最核心的就弹射——磁弹射、汽弹射，还有一个就是整个船的平衡器，当然动力了、武器都别说。这仨东西没了你飞机上不去下不来，平衡器完了你这个船就完蛋了，你不要看航空母舰有多大，到了海里面是一纸之叶，它随时一切就完了。
+[【文字版】路德时评2021.4.28早间（路安墨谈）:俄罗斯杜马主席说病毒来自美国的实验室](https://www.gnews.org/zh-hans/1149424/)-GNews
 
-Dr. Bo knows the answer. The most important thing on a US aircraft carrier is the stabilizing system. The US’s stabilizing system is the best in the world. The core technologies of an aircraft carrier are the aircraft catapult, including the EMALS and steam catapult, the stabilizing system, and of course the power and weapons. Without these three things, your aircraft can’t leave the carrier even if it can get on the carrier. If your stabilizing system is not working, your whole ship will be over. Don’t focus on how big an aircraft carrier is because in the ocean, it’s just like a leaf and can be finished at any moment.
+[俄罗斯表示已经检测到本国出现的两种新冠病毒变种病毒](https://www.163.com/dy/article/G898DUNV05159H47.html)
 
-俄罗斯、乌克兰造的这个所谓的航空母舰是最早的机械式的平衡器，现在的游艇上、军方上用的是 Zero Speed，就是零，在停止下零的平衡动力器，在行驶当中它的平衡器是太重要了。很可悲的事情啊，这个中共的所谓辽宁号航空母舰，这个东凑西凑这个家伙。大家你们真不知道，船上那些天飞行的所有飞行员你们知道是哪来的吗？大家知道那飞行员是哪来的吗？
-
-The so-called aircraft carriers built by Russia and Ukraine use an ancient mechanical stabilizer. What modern yachts and military vessels use is the Zero Speed stabilizer, which stabilizes the vessel when it is still. The stabilizing system is so critical when the ship is moving. It’s so pathetic for the so-called Liaoning aircraft carrier of the CCP, which was put together with parts got from all over the places. You guys really don’t know where all the pilots on the ship came from. Do you know where the pilots came from?
-
-我告诉你美国人傻啦，看着飞来飞去哇噻这飞得不错呀歼-15，连飞的歼-15的飞机、连飞的所谓的歼-15B的飞机都是俄罗斯来的，飞行员是俄罗斯的。你们不敢想象共产党造假造到啥程度。结果这个平衡器，航空的一个平衡器最基本的，就像汽车轱辘要转圈一样，它必须有轱辘，这轱辘得转圈就这么简单，它转圈得平衡，一不平衡这车不翻了吗？平衡器在船上碎了、爆了、完了，航空母舰可不能是一个平衡器，它是一系列的平衡装置——爆了。 美国人那个不是看，美国人最后发傻了，日本人也傻了，原来中共找的全是俄罗斯的飞行员，chua~chua~chua，按小时算钱，外援。
-
-Let me tell you. The Americans were shocked when they found that the J-15s and J-15Bs, which flied around pretty well, were actually from Russia and the pilots were also from Russia. You just can’t imagine how terribly the CCP has faked everything. In the end, their stabilizing system – you know, the stabilizing system is very basic, like a car’s wheels, when the wheels are turning, they need to be stable; if they lose stability, the car will turn over, right? So, in the end, the stabilizer on their aircraft carrier exploded, finished. You know the aircraft carrier doesn’t just have one stabilizer, rather it has a stabilizing system, and it was this system that exploded. The Americans were shocked, and so were the Japanese, to find out that the CCP hired Russian pilots on the carrier and paid them hourly.
-
-兄弟姐妹们，航母今天都是俄罗斯的飞机外援，平衡器都能让美国人给你干掉——美国就当着你面给你干掉的。平衡器有两个东西是最关键的，最核心的就是传导系统，就像手机信号一样，信号断了就扯淡了。就美国动用的就是电子战当中最简单的办法，就把你这个航空母舰的传导系统里面内部的，还不是通信系统，传导系统直接给你毁掉。
-
-Brothers and sisters, today the [Liaoning] aircraft carrier’s pilots were all Russians, and the stabilizing system was destroyed by Americans, right in front of their eyes. The stabilizing system has two most crucial systems, and the core is the conduction system, which is just like the signal of a cell phone: when there is no signal, the cell phone will be useless. What the Americans used is the simplest method in an electronic war – destroying the conduction system in the aircraft carrier from inside, not the communication system. What they directly destroyed was the conduction system.
-
-日本人就在那看着美国人就给它干了，这就像吹气儿一样，“噗”，一口气儿——对面灯灭啦。它不是灯灭，他把闸给它拉了，就这么简单，这叫魔术，“噗”，灯灭了，旁边有人关灯，把电源给他关了就动不了了。人家就在那儿看着，日本、美帝国主义、日本帝国主义啊，成天手撕鬼子的这些士兵全傻了、全傻了。你知道这个东西船会出大事的，你一个飞机也落不下、一个飞机也起不来。
-
-The Japanese watched the Americans while the Americans were doing this. It just took the time of a breath, and then “puff”, the light goes out. It’s as simple as one turning off the light. And it’s also like magic: someone next to you turns off your light, and then you can’t move anymore. The Japanese were just there watching. The soldiers [of the PLA], who always called the Japanese the Japanese imperialists and always boasted that they could tear up the Japanese with their bear hands, were all shocked to death. You know that something serious will happen to the ship when you can’t launch or land a plane.
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=6082cb627e083973a7301685](https://gtv.org/video/id=6082cb627e083973a7301685) (1:05:27-1:07:34, 1:08:05-1:09:17, 1:13:16-1:14:34)
-鸣谢：感谢西林1、山川异域 提供中文文本于 [https://www.gnews.org/zh-hans/1135702/](https://www.gnews.org/zh-hans/1135702/)
+[俄防疫指挥部：俄单日新增新冠病毒感染病例9284例 累计超479.6万例](http://sputniknews.cn/covid-2019/202104291033600390/)
 
 * * *
 
-字幕：【JennyL】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+*编辑、发稿 文锦*
 
-+5
++2

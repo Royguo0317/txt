@@ -1,47 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 反川的切尼称中共监视美国人的一切
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1151036/)
+## 【热点播报】全球通胀将导致社会动荡
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1150929/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：纽约香草山农场写作组     四季
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/CH-6.jpg)justthenews.com
-笔者多次发文、转载批评了众议院弹劾川普的10名叛徒首领兹·切尼（Liz Cheney），今天又看到报道【1】，她更憋足了劲高调反对川普总统。
 
-正要再次启动批骂这个反川分子时，看到了她最后的评论。
 
-文章说，
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-众议员利兹·切尼（Liz Cheney）周四在接受《拳击手新闻》（Punchbowl News）采访时说，在2022年连任努力中，她将“每一天”都支持弹劾前总统川普的投票。
 
-切尼是众议院共和党会议主席，在1月6日川普的追随者袭击国会大厦后，切尼公开谴责川普，引起了许多右翼人士的热议。
 
-切尼在众议院共和党人今年早些时候幸免保住了会议主席的职务，当时得到了加州少数党领袖凯文·麦卡锡（Kevin McCarthy）的支持。但川普问题仍不时冒泡，包括本周共和党在佛罗里达州举行的一次政策审视会议，突显了党内的分歧。
+据《零对冲》近日报道，截至周五，波罗的海每日指数（the Freightos Baltic Daily Index）评估的亚洲-西海岸即期汇率（SONAR：FBXD.CNAW）为每四十英尺当量单位（FEU）4,797美元，亚洲-东海岸汇率（SONAR：FBXD.CNAE）为每四十英尺当量单位（FEU）6,306美元，均接近历史最高点。对现货货物装船的附加保费比以前更高，比现货价格（FAK）高出2000到3000美元，这还是目前最好的情况。在价格已经飙升的情况下，全球通胀即将进入超速状态——因为领先的食品价格指标，即彭博农业现货指数达到六年来的最高水平。
 
-这次，麦卡锡似乎对切尼提出了一些隐晦的批评，他说：“这是一种责任，如果你要当领导，领导就要学会沉稳……当领导者试图冲出去时，不是像一个团队一样工作时，就会产生困难。”
+食品是亚洲消费物价指数（CPI）篮子中的重要组成部分，并且这个居住着世界一半以上人口的地区的巨大通货膨胀冲力将导致世界工厂的工资成本上升。随着亚洲的消费物价指数（CPI）和生产者价格指数（PPI）的上升，通胀将在未来几个月内遍及全球。
 
-星期三晚上，切尼是少数几个参加拜登的国会联席会议讲演的共和党人之一，但她抨击了拜登的一些政策。还有人看到她与参议院少数党领袖米奇·麦康奈尔（Mitch McConnell，R-Ky）进行了一次似乎很长时间的谈话，麦康奈尔是另一位在1月6日袭击事件后与川普保持距离的共和党人。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29135214/Picture1-90-1.jpg)图片来源：彭博农业现货指数，the Bloomberg Agri spot index
 
-笔者认为，这或许是她再次高调反对川普的原因之一，中共女婿麦康奈尔反对川普是首位，因为川普撼动了他的共和党第一把交椅的地位。
+德意志银行（Deutsche Bank）策略师吉姆-里德展示了彭博社的农业现货指数同比上升了约76%，他指出，“这是近十年来最大的年度涨幅。”他认为，“有大量文献将食品价格上涨与社会动荡时期联系起来。”事实上，你会从图表中注意到，上一次从2010年中期到2011年初的大涨，恰好是“阿拉伯之春”的开始——食品通胀被认为是这一事件的一个促成因素。里德还提醒我们，新兴市场更容易受到这种趋势的影响，因为他们的消费者在食品上的支出占其收入的比例远远高于发达国家。
 
-但是，切尼在接受采访谈到中共问题时，有这样的表述：
+里德随后全盘托出了所有人的想法，即“这种食品价格上涨导致社会动荡的趋势可以追溯到很久以前，并围绕着许多关键的转折点。1789年的法国大革命推翻了旧制度，就是在农业连续的欠收导致食品价格大幅上涨之后发生的。欧洲的1848年革命也是如此，它是在19世纪40年代马铃薯作物欠收和欧洲大部分地区发生相关的严重饥荒之后发生的。而1917年俄国沙皇政权被推翻也是在粮食短缺的背景下发生的。”
 
-“听着，最根本的问题是，‘你想生活在一个（怎样的）世界里？你想让你的孩子成长在这样的一个环境，那就是美国与信奉自由的盟国，从根本上一起制定的路线规则（的环境）？还是，你要他们生活在一个受控于全球监视状态下的世界里？’”
+虽然，今天的食品价格飙升可能会产生什么后果还有待观察，但里德警告说，“鉴于大流行病已经造成的困难，从历史的角度来看，新一波的动荡并不令人惊讶。”
 
-她接着说：“你知道中国共产党知道你的一举一动，他们掌握了你所有的数据，他们知道你得了什么病，他们知道你的一切，知道你在网上做什么，他们可能在每个人的家里都有摄像机……这就是我们要走的路。”
+以史为鉴，中共病毒的肆虐对世界经济的破坏正在显现，世界已经付出的惨痛代价似乎还不足以让人类警醒并采取行动，这是人类的悲哀。希望能看到世界尽早确认病毒来源，采取行动向中共追责，以拯救人类于水火之中。
 
-结合今天早晨塞林博士的推文【2】，惊爆5个挺川普总统的重量级参议员，包括克鲁兹、科顿，在调查中共病毒问题上的不作为，且被怀疑直接或间接受惠于与中共国有生意往来的公司。
+参考阅读：
 
-挺川的不作为，反川的有认知？
+[One Bank Warns Soaring Food Prices Will Lead To Social Unrest](https://www.zerohedge.com/markets/one-bank-warns-soaring-food-prices-will-lead-social-unrest)
 
-想起了文贵先生的话，只要反共、灭共就是朋友！
+[“It’s About To Get Much Worse”: Supply Chains Implode As “Price Doesn’t Even Matter Anymore”](https://www.zerohedge.com/markets/its-about-get-much-worse-supply-chains-implode-price-doesnt-even-matter-anymore)
 
-参考链接：
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
-【1】[https://www.foxnews.com/politics/cheney-campaign-impeaching-trump-primary-challenges](https://www.foxnews.com/politics/cheney-campaign-impeaching-trump-primary-challenges)
+编辑：Delilah小胖
 
-【2】[https://www.gnews.org/zh-hans/1150709/](https://www.gnews.org/zh-hans/1150709/)
+校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
 
 +1
