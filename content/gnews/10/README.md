@@ -1,43 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】荼毒笔记（三）
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1152318/)
+## 中共迫使英雄联盟游戏角色“瘟疫之源”改名
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1156193/)
 
-作者：香草山美食部 新世界一员
+作者：蓝色| 校对：文明明 |审核：万人往 |Page：小雨
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
+[!\[\]()!\[\](https://spark.adobe.com/page/tujNd5hW2RTVt/images/6ccf14f6-490c-4fbb-bfe4-17fd9d185a7f.jpg?asset_id=4ee595ad-c068-4868-8a65-964e276f4720&amp;img_etag=%22d8691355f5dc8c03e6cbc30b329bd863%22&amp;size=2560)](https://spark.adobe.com/page/tujNd5hW2RTVt/images/6ccf14f6-490c-4fbb-bfe4-17fd9d185a7f.jpg?asset_id=4ee595ad-c068-4868-8a65-964e276f4720&amp;img_etag=%22d8691355f5dc8c03e6cbc30b329bd863%22&amp;size=1024)
+
+中共国内有一款流行游戏叫“英雄联盟”，其中有个角色的名称叫“瘟疫之源”。因其中文名称暗示病毒起源中共国，[曾在2020年5月的一场游戏比赛中，触动中共敏感神经，闹出过所谓的辱华风波](https://tw.news.yahoo.com/%25E4%25B8%25AD%25E5%259C%258B%25E7%258E%25A9%25E5%25AE%25B6%25E6%25B0%25A3%25E7%2582%25B8%25E5%2587%25BA%25E5%25BE%2581-%25E5%258F%25AA%25E5%259B%25A0-%25E7%2598%259F%25E7%2596%25AB%25E4%25B9%258B%25E6%25BA%2590-044520468.html?guccounter=1)。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/tujNd5hW2RTVt/images/a60a1042-3327-49ae-a513-f1d0724fc111.jpg?asset_id=aae8c4be-f48e-4479-bdaa-fc5e991d4ec2&amp;img_etag=%22f272082ba2c6e42fa7d0a8fc243dc971%22&amp;size=2560)](https://spark.adobe.com/page/tujNd5hW2RTVt/images/a60a1042-3327-49ae-a513-f1d0724fc111.jpg?asset_id=aae8c4be-f48e-4479-bdaa-fc5e991d4ec2&amp;img_etag=%22f272082ba2c6e42fa7d0a8fc243dc971%22&amp;size=1024)
+
+「瘟疫之源」是中共國《英雄聯盟》官方給予圖其的稱呼。（圖／翻攝自中國英雄聯盟官網）
+
+[中共刚刚指使腾讯公司在测试服中将此角色的名称改掉](https://tw.news.yahoo.com/%25E8%25BF%25BD%25E6%25B1%2582%25E7%25A5%2596%25E5%259C%258B%25E5%2592%258C%25E8%25AB%25A7-%25E8%258B%25B1%25E9%259B%2584%25E8%2581%25AF%25E7%259B%259F-%25E4%25B8%25AD%25E5%259C%258B%25E6%25B8%25AC%25E8%25A9%25A6%25E6%259C%258D%25E5%25A4%259A%25E4%25BD%258D%25E8%258B%25B1%25E9%259B%2584%25E6%2594%25B9%25E7%25A8%25B1%25E8%2599%259F-084120105.html)，相信很快也会在正式服中进行修改。如果只是单单修改这一个角色，那目的就显得太明显了。所以，一同修改名称的还有另外6个角色，以掩耳盗铃的形式掩盖真实目的。所有人都知道，其主要目标就是要修改“瘟疫之源”，其他游戏角色都是无辜躺枪。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/tujNd5hW2RTVt/images/2a0b5e1f-7941-4e13-b42e-da142d292235.png?asset_id=c26eb4ce-b28e-4175-89e8-90c3484c147d&amp;img_etag=%226c0724950f3a1f8237be116d1caedcd7%22&amp;size=2560)](https://spark.adobe.com/page/tujNd5hW2RTVt/images/2a0b5e1f-7941-4e13-b42e-da142d292235.png?asset_id=c26eb4ce-b28e-4175-89e8-90c3484c147d&amp;img_etag=%226c0724950f3a1f8237be116d1caedcd7%22&amp;size=1024)七个被中共改名的游戏英雄
+
+首先，上次的辱华风波本就是一个“此地无银三百两”的笑话。“瘟疫之源”，有说源头在哪里吗？怎么就辱华了？你强烈抗议，那不是不打自招吗？这是典型的对号入座。其结果更是等于在宣扬病毒就是来自中共国，生怕别人忘掉。
+
+其次，怎么早不改，晚不改，事隔快一年了才想起这事？
+
+原因只有一个：病毒追责！中共已经快吓死了，所以才试图抹掉所有病毒起源的相关信息，妄图做到：骗不了别人，也要先骗自己（人）！
+
+病毒追责，是灭掉中共的唯一途径，是中共亲手给自己挖的坟墓。“文字狱”是假象，害怕病毒真相被揭穿才是其真实的目的。中共干的事，常常会适得其反，欲盖弥彰，让大家更进一步看清楚他们做贼心虚的嘴脸。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/tujNd5hW2RTVt/images/35405900-72a9-4513-8d17-20b0d118d913.png?asset_id=a22964f2-7a02-4ee6-810c-33130677d0b4&amp;img_etag=%22a6ed29eb11cb323ed2584b61efab6a00%22&amp;size=2560)](https://spark.adobe.com/page/tujNd5hW2RTVt/images/35405900-72a9-4513-8d17-20b0d118d913.png?asset_id=a22964f2-7a02-4ee6-810c-33130677d0b4&amp;img_etag=%22a6ed29eb11cb323ed2584b61efab6a00%22&amp;size=1024)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/tujNd5hW2RTVt/images/db622fdc-331f-43da-b7f0-b860ed7e157e.png?asset_id=9431429f-8396-4da3-9c62-fbd9381bf785&amp;img_etag=%224d55ac0c4f41e26c98cf9c2b2ba7f324%22&amp;size=3168)](https://spark.adobe.com/page/tujNd5hW2RTVt/images/db622fdc-331f-43da-b7f0-b860ed7e157e.png?asset_id=9431429f-8396-4da3-9c62-fbd9381bf785&amp;img_etag=%224d55ac0c4f41e26c98cf9c2b2ba7f324%22&amp;size=1024)
+
+***文章仅代表个人观点***
+
+编辑：【英国伦敦喜庄园编辑部】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
 
+[!\[\]()!\[\](https://spark.adobe.com/page/tujNd5hW2RTVt/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/tujNd5hW2RTVt/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
-明明是乱世，现实生活却如盛世一般。几乎所有的人都在聚餐、斗酒、唱歌、旅游，在朋友圈晒吃晒喝晒快乐，仿佛从来没有出现过疫情，仿佛李文亮是前个世纪的人，仿佛武汉死亡的恐惧不曾发生过。被共匪洗脑的人们，记忆力减退了，感恩心减少了，善良心也缺乏了。虽不像清朝时的民众那么愚昧无情，被爱国热泯灭了心智，泯灭了良知，拿馒头蘸谭君子的血吃，说可以治百病，但剩下的智识也薄如秋窗纸了。很多人看到我晒在朋友圈对印度有悲悯之心的文字，觉得我是吃饱了撑的。我的朋友圈几乎没有人点赞了，我的文字表达在他人眼里是异样的，估计还会有人背后议论，说我太会多想，做好自己的工作、过好自己的生活不就好了吗，多想想如何把工作做得更好，才是关乎切身利益的事。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29074846/image0-16.png)
-
-我曾经对那些身边感觉可信任的人试图开口说出真相，但刚一尝试，他们便一个个都远离了我，因为不爱听我说话。每离开一个我就难受一次，就出现了有时清醒有时迷惘的状态，分不清自己到底是该清醒、孤独、痛苦地生活，还是该迷惘、无知地生活。清醒时，能感受正义和精彩，却因孤独、无助而痛苦；迷惘时，虽有亲朋环绕，却又得回到谎言中、欺骗中。每念及此，我的心就会下沉，感觉生活得黑暗无比，绝望颓废。
-
-但每到此时，头上的国旗蓝就像有无尽的力量托我浮出水面，我又想起了七哥每一次直播的那句感动人心的“战友们好呀！”我的眼前又浮现出战友们勇敢的游行集会，我的心就会比过去更清晰，更坚定，更勇敢。整个人又有了活力和激情。我又看到了七哥为了灭共，为了14亿中国人，引领战友们，苦战在各个领域。富可敌国的七哥数次以身犯险，只为歼灭恶党，只为子孙后代而战的七哥让多少人感动得流泪。
-
-每每动摇时，想到七哥，想到战友，我就会自责自己的不坚定，感觉愧对战友俩字。就在这样的起起浮浮中，我在成长，在进步。我虽没有勇气做新中国联邦的国旗，但我把国旗蓝做成了一朵蓝莲花挂在头顶的墙上，时刻祈祷七哥和战友们，平安灭共，快乐灭共，早日灭共，不离不弃。
-
-我觉得我必须把平凡的人生尽力活出高度和宽度。我的朋友圈晒的都是反洗脑的文字，希望别人看到时心里留下点痕迹，等墙倒的时候，认真看我文字的人会醒悟得早些；在日常的生活和工作中，我会在不经意间说出共产党种种不堪的现实，希望惊醒到人们的内心，让他们不至于在可以获取真相时拒绝真相。我觉得自己虽没有战友们的高度，跟战友们比，微小的我怕是萤火虫的光都不及，可我知道，我唯有懂努力，有进步，方不辜负七哥不顾身家安全，抛弃富豪生活，战斗在一线的大义大爱的大情怀，不辜负七哥日夜为战友们工作，不辜负战友们亲如一家的情缘，更不辜负七芒星的召唤，不辜负奋战中的每一个战友们的辛苦。
-
-我选择跟随爆料革命，见证实现民主社会，虽孤独寂寞，虽没有人亲近、走进，可我活得荣幸。以后我可以自豪地告诉他人：在乱世里我没有行尸走肉，没有灯红酒绿，我听从了喜马拉雅的召唤，在心的感应中得到了爆料革命的指引，精彩了我平凡的人生。我跟随了伟大的郭先生，跟随了伟大的爆料革命，跟战友们一起参与了击溃共产党的谎言、消灭万恶之源共匪的史记伟业，更见证了新中国联邦的建立。我活得有尊严，有信仰，有骄傲，有勇敢，有正义，有荣耀。我爱这样的自己，活出光明和阳光的生命，精彩纷呈！
-
-编辑/校对：遍地开花，飞虹 发稿：飞虹
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/4_April-2-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
