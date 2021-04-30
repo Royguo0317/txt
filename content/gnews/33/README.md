@@ -1,31 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共广电总局以阴阳合同为由对娱乐界进行收割
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1156148/)
+## 中共迫使英雄联盟游戏角色“瘟疫之源”改名
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1156193/)
 
-撰稿：自由战士
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30031224/20210430_Task6_Cover.jpg)（图片来自网络）
-中共国家广电总局29号表示，要求北京市广电局、上海市广电局等配合税务部门对有关公司和郑爽签订“阴阳合同”、拆分收入获取“天价片酬”、偷逃税等涉嫌违法行为进行调查，如有违法违规情况将严肃处理。中共国家广电总局表示，将严格执行《关于进一步加强电视剧网络剧创作生产管理有关工作的通知》《关于进一步加强广播电视和网络视听文艺节目管理的通知》有关规定，进一步加强电视剧行业管理。
+作者：蓝色| 校对：文明明 |审核：万人往 |Page：小雨
 
-我们知道在2018年的时候范冰冰的阴阳合同案件被闹的沸沸扬扬，最终被罚款2.4亿元解决。
+[!\[\]()!\[\](https://spark.adobe.com/page/tujNd5hW2RTVt/images/6ccf14f6-490c-4fbb-bfe4-17fd9d185a7f.jpg?asset_id=4ee595ad-c068-4868-8a65-964e276f4720&amp;img_etag=%22d8691355f5dc8c03e6cbc30b329bd863%22&amp;size=2560)](https://spark.adobe.com/page/tujNd5hW2RTVt/images/6ccf14f6-490c-4fbb-bfe4-17fd9d185a7f.jpg?asset_id=4ee595ad-c068-4868-8a65-964e276f4720&amp;img_etag=%22d8691355f5dc8c03e6cbc30b329bd863%22&amp;size=1024)
 
-针对中共国的娱乐界的明星，其实都是统治阶层的玩物而已。中共各大娱乐媒体公司及平台背后的大佬都是太子党和中共统治阶层。尤其是习近平上台后，借助彭丽媛在娱乐圈的多年布局，一改前朝江泽民时代钥匙兰主持圈的黄色行贿模式，进而把行贿手段拓展到了影视圈。去年的百亿菲，千亿甜事件充分表明作为娱乐影星是无法逃脱权贵阶层的掌控魔爪的。
+中共国内有一款流行游戏叫“英雄联盟”，其中有个角色的名称叫“瘟疫之源”。因其中文名称暗示病毒起源中共国，[曾在2020年5月的一场游戏比赛中，触动中共敏感神经，闹出过所谓的辱华风波](https://tw.news.yahoo.com/%25E4%25B8%25AD%25E5%259C%258B%25E7%258E%25A9%25E5%25AE%25B6%25E6%25B0%25A3%25E7%2582%25B8%25E5%2587%25BA%25E5%25BE%2581-%25E5%258F%25AA%25E5%259B%25A0-%25E7%2598%259F%25E7%2596%25AB%25E4%25B9%258B%25E6%25BA%2590-044520468.html?guccounter=1)。
 
-1. 开始作为追求影视表演，成为一个明星梦的俊男靓女们，最初可能都怀有一颗单纯的心，也许是喜欢艺术而加入这个大军。但是在往上爬的过程中，不免要以出卖自己身体为代价，否则你的星途将一片黯淡。
-2. 在一路陪睡的路上，也许会脱颖而出，但是这时，有可能会被权贵阶层拿来去性贿赂西方政要，这是邪恶中共蓝金黄中黄的重要资源输出。虽然常人看来，他们都有一个靓丽的外表和不菲的身价，其实自己的财产就是中共在你那里暂时存放而已，他们也沦为免费雇佣的保险柜而已。同时还在压榨你青春年华为中共邪恶统治服务。
-3. 在陌路狂奔的最后时刻，邪恶中共已经意识到目前娱乐界已经到了收割的时刻，这次广电总局以严查的名义，会把大部分明星辛苦三陪挣来的所谓辛苦钱全部充公。如果有反抗者，后面等待你的就是牢狱之灾或者死亡威胁。
-4. 我们再回观上周奥斯卡赵婷的收获，在没有中共洗脑和思想奴役的环境下，她的努力付出和天性善良，在自由的西方社会发出了耀眼的光芒。让西方认识到了东方中国人的传统美德，中华民族是最优秀的民族。再看被奴役的墙内百姓和娱乐明星，真是天差地别。这次中共对娱乐圈的疯狂收割，将会唤醒更多的娱乐界向往自由的人士。
+[!\[\]()!\[\](https://spark.adobe.com/page/tujNd5hW2RTVt/images/a60a1042-3327-49ae-a513-f1d0724fc111.jpg?asset_id=aae8c4be-f48e-4479-bdaa-fc5e991d4ec2&amp;img_etag=%22f272082ba2c6e42fa7d0a8fc243dc971%22&amp;size=2560)](https://spark.adobe.com/page/tujNd5hW2RTVt/images/a60a1042-3327-49ae-a513-f1d0724fc111.jpg?asset_id=aae8c4be-f48e-4479-bdaa-fc5e991d4ec2&amp;img_etag=%22f272082ba2c6e42fa7d0a8fc243dc971%22&amp;size=1024)
+
+「瘟疫之源」是中共國《英雄聯盟》官方給予圖其的稱呼。（圖／翻攝自中國英雄聯盟官網）
+
+[中共刚刚指使腾讯公司在测试服中将此角色的名称改掉](https://tw.news.yahoo.com/%25E8%25BF%25BD%25E6%25B1%2582%25E7%25A5%2596%25E5%259C%258B%25E5%2592%258C%25E8%25AB%25A7-%25E8%258B%25B1%25E9%259B%2584%25E8%2581%25AF%25E7%259B%259F-%25E4%25B8%25AD%25E5%259C%258B%25E6%25B8%25AC%25E8%25A9%25A6%25E6%259C%258D%25E5%25A4%259A%25E4%25BD%258D%25E8%258B%25B1%25E9%259B%2584%25E6%2594%25B9%25E7%25A8%25B1%25E8%2599%259F-084120105.html)，相信很快也会在正式服中进行修改。如果只是单单修改这一个角色，那目的就显得太明显了。所以，一同修改名称的还有另外6个角色，以掩耳盗铃的形式掩盖真实目的。所有人都知道，其主要目标就是要修改“瘟疫之源”，其他游戏角色都是无辜躺枪。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/tujNd5hW2RTVt/images/2a0b5e1f-7941-4e13-b42e-da142d292235.png?asset_id=c26eb4ce-b28e-4175-89e8-90c3484c147d&amp;img_etag=%226c0724950f3a1f8237be116d1caedcd7%22&amp;size=2560)](https://spark.adobe.com/page/tujNd5hW2RTVt/images/2a0b5e1f-7941-4e13-b42e-da142d292235.png?asset_id=c26eb4ce-b28e-4175-89e8-90c3484c147d&amp;img_etag=%226c0724950f3a1f8237be116d1caedcd7%22&amp;size=1024)七个被中共改名的游戏英雄
+
+首先，上次的辱华风波本就是一个“此地无银三百两”的笑话。“瘟疫之源”，有说源头在哪里吗？怎么就辱华了？你强烈抗议，那不是不打自招吗？这是典型的对号入座。其结果更是等于在宣扬病毒就是来自中共国，生怕别人忘掉。
+
+其次，怎么早不改，晚不改，事隔快一年了才想起这事？
+
+原因只有一个：病毒追责！中共已经快吓死了，所以才试图抹掉所有病毒起源的相关信息，妄图做到：骗不了别人，也要先骗自己（人）！
+
+病毒追责，是灭掉中共的唯一途径，是中共亲手给自己挖的坟墓。“文字狱”是假象，害怕病毒真相被揭穿才是其真实的目的。中共干的事，常常会适得其反，欲盖弥彰，让大家更进一步看清楚他们做贼心虚的嘴脸。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/tujNd5hW2RTVt/images/35405900-72a9-4513-8d17-20b0d118d913.png?asset_id=a22964f2-7a02-4ee6-810c-33130677d0b4&amp;img_etag=%22a6ed29eb11cb323ed2584b61efab6a00%22&amp;size=2560)](https://spark.adobe.com/page/tujNd5hW2RTVt/images/35405900-72a9-4513-8d17-20b0d118d913.png?asset_id=a22964f2-7a02-4ee6-810c-33130677d0b4&amp;img_etag=%22a6ed29eb11cb323ed2584b61efab6a00%22&amp;size=1024)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/tujNd5hW2RTVt/images/db622fdc-331f-43da-b7f0-b860ed7e157e.png?asset_id=9431429f-8396-4da3-9c62-fbd9381bf785&amp;img_etag=%224d55ac0c4f41e26c98cf9c2b2ba7f324%22&amp;size=3168)](https://spark.adobe.com/page/tujNd5hW2RTVt/images/db622fdc-331f-43da-b7f0-b860ed7e157e.png?asset_id=9431429f-8396-4da3-9c62-fbd9381bf785&amp;img_etag=%224d55ac0c4f41e26c98cf9c2b2ba7f324%22&amp;size=1024)
+
+***文章仅代表个人观点***
+
+编辑：【英国伦敦喜庄园编辑部】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
 
-习总加速师在墙内各个行业加速推进。光明即将到来，对邪恶统治的畏惧，只能助长共匪的嚣张气焰。我们不要恐惧，面对邪恶，只能勇敢地站出来揭穿他们，打倒他们，才能为自己和家人迎来光明和自由。一灯能除千年暗，有爆料革命和郭先生的这盏明灯，我们后面的人只要勇敢站出来跟随，就可以彻底消灭CCP。
+[!\[\]()!\[\](https://spark.adobe.com/page/tujNd5hW2RTVt/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/tujNd5hW2RTVt/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
-（本文仅代表个人观点）
 
-*审稿、编辑：光耀华夏*
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-澳喜Logo.jpeg)
 0

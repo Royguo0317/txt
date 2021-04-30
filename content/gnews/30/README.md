@@ -1,45 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共迫使英雄联盟游戏角色“瘟疫之源”改名
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1156193/)
+## 中共出台反间谍新规 开启以警治国的恐怖时代
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1156235/)
 
-作者：蓝色| 校对：文明明 |审核：万人往 |Page：小雨
+新闻来源：《布莱特巴特新闻网》BREITBART| 作者：GABRIELLE REYES| 发布时间：2021年4月27日
+翻译/简评：wmorpho|校对/审核：万人往|Page：小雨
 
-[!\[\]()!\[\](https://spark.adobe.com/page/tujNd5hW2RTVt/images/6ccf14f6-490c-4fbb-bfe4-17fd9d185a7f.jpg?asset_id=4ee595ad-c068-4868-8a65-964e276f4720&amp;img_etag=%22d8691355f5dc8c03e6cbc30b329bd863%22&amp;size=2560)](https://spark.adobe.com/page/tujNd5hW2RTVt/images/6ccf14f6-490c-4fbb-bfe4-17fd9d185a7f.jpg?asset_id=4ee595ad-c068-4868-8a65-964e276f4720&amp;img_etag=%22d8691355f5dc8c03e6cbc30b329bd863%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/djQRZX1Susu02/images/b1bbae34-00b4-4b8f-9c94-ac7b42f49c9e.jpg?asset_id=37f5eed9-0086-4105-a3f1-6c5c29e82019&amp;img_etag=%22aa6e7892b08ae00684918cc55093b631%22&amp;size=1024)](https://spark.adobe.com/page/djQRZX1Susu02/images/b1bbae34-00b4-4b8f-9c94-ac7b42f49c9e.jpg?asset_id=37f5eed9-0086-4105-a3f1-6c5c29e82019&amp;img_etag=%22aa6e7892b08ae00684918cc55093b631%22&amp;size=1024)
 
-中共国内有一款流行游戏叫“英雄联盟”，其中有个角色的名称叫“瘟疫之源”。因其中文名称暗示病毒起源中共国，[曾在2020年5月的一场游戏比赛中，触动中共敏感神经，闹出过所谓的辱华风波](https://tw.news.yahoo.com/%25E4%25B8%25AD%25E5%259C%258B%25E7%258E%25A9%25E5%25AE%25B6%25E6%25B0%25A3%25E7%2582%25B8%25E5%2587%25BA%25E5%25BE%2581-%25E5%258F%25AA%25E5%259B%25A0-%25E7%2598%259F%25E7%2596%25AB%25E4%25B9%258B%25E6%25BA%2590-044520468.html?guccounter=1)。
+**简评：**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/tujNd5hW2RTVt/images/a60a1042-3327-49ae-a513-f1d0724fc111.jpg?asset_id=aae8c4be-f48e-4479-bdaa-fc5e991d4ec2&amp;img_etag=%22f272082ba2c6e42fa7d0a8fc243dc971%22&amp;size=2560)](https://spark.adobe.com/page/tujNd5hW2RTVt/images/a60a1042-3327-49ae-a513-f1d0724fc111.jpg?asset_id=aae8c4be-f48e-4479-bdaa-fc5e991d4ec2&amp;img_etag=%22f272082ba2c6e42fa7d0a8fc243dc971%22&amp;size=1024)
+根据中共国《环球时报》的报道，中共国国家安全部于4月26日发布了反间谍法令。该法令责令中共国的各个机构，包括社会团体、企业和公共机构，必须像敏感的政府实体一样运作，并培训其员工发现并阻止外国人进行间谍活动。当局将要求被认定的公司安排要上岗的员工在上岗之前签署承诺书。这些公司还必须要求员工向其上级汇报任何与国家安全有关的活动，在员工前往国外任职之前为他们提供反间谍教育，并在员工返回中共国后向其上级汇报情况。计划在国外任职的被认定公司的员工必须首先完成通过研讨会和短片来展示要前往国家情报工作的案例，以完成出国前的反间谍教育。该法令还授权中共国国家安全部门进入所涉公司的所在地获取内部材料、电子媒体工具、设施、计算机和信息系统。那些未能履行职责并导致负面结果的公司或机关将受到相应的惩罚。
 
-「瘟疫之源」是中共國《英雄聯盟》官方給予圖其的稱呼。（圖／翻攝自中國英雄聯盟官網）
+这意味着中共国开启了全面“以警治国”的恐怖时代。任何公司或个人如果被认定与国家安全有关，就会被全面调查与监控，从触及灵魂深处到观察所言所行，24小时被放在聚光灯下，人不被逼疯才怪。如此下去，中共国将来就会变成一个巨大的疯人院，无论是监控者还是被监控者都会是中共国的陪葬品，可怜的中国人！
 
-[中共刚刚指使腾讯公司在测试服中将此角色的名称改掉](https://tw.news.yahoo.com/%25E8%25BF%25BD%25E6%25B1%2582%25E7%25A5%2596%25E5%259C%258B%25E5%2592%258C%25E8%25AB%25A7-%25E8%258B%25B1%25E9%259B%2584%25E8%2581%25AF%25E7%259B%259F-%25E4%25B8%25AD%25E5%259C%258B%25E6%25B8%25AC%25E8%25A9%25A6%25E6%259C%258D%25E5%25A4%259A%25E4%25BD%258D%25E8%258B%25B1%25E9%259B%2584%25E6%2594%25B9%25E7%25A8%25B1%25E8%2599%259F-084120105.html)，相信很快也会在正式服中进行修改。如果只是单单修改这一个角色，那目的就显得太明显了。所以，一同修改名称的还有另外6个角色，以掩耳盗铃的形式掩盖真实目的。所有人都知道，其主要目标就是要修改“瘟疫之源”，其他游戏角色都是无辜躺枪。
+**原文翻译：**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/tujNd5hW2RTVt/images/2a0b5e1f-7941-4e13-b42e-da142d292235.png?asset_id=c26eb4ce-b28e-4175-89e8-90c3484c147d&amp;img_etag=%226c0724950f3a1f8237be116d1caedcd7%22&amp;size=2560)](https://spark.adobe.com/page/tujNd5hW2RTVt/images/2a0b5e1f-7941-4e13-b42e-da142d292235.png?asset_id=c26eb4ce-b28e-4175-89e8-90c3484c147d&amp;img_etag=%226c0724950f3a1f8237be116d1caedcd7%22&amp;size=1024)七个被中共改名的游戏英雄
+## 中共国实施“反间谍教育”，对敏感企业进行监控
 
-首先，上次的辱华风波本就是一个“此地无银三百两”的笑话。“瘟疫之源”，有说源头在哪里吗？怎么就辱华了？你强烈抗议，那不是不打自招吗？这是典型的对号入座。其结果更是等于在宣扬病毒就是来自中共国，生怕别人忘掉。
+[!\[\]()!\[\](https://spark.adobe.com/page/djQRZX1Susu02/images/fa933f2a-2257-496c-9068-084246b1c6c6.jpg?asset_id=f4d5930f-86e5-4b71-ac8e-0957d89090b4&amp;img_etag=%22132d693bafa3eac69c36ad235a08149b%22&amp;size=2560)](https://spark.adobe.com/page/djQRZX1Susu02/images/fa933f2a-2257-496c-9068-084246b1c6c6.jpg?asset_id=f4d5930f-86e5-4b71-ac8e-0957d89090b4&amp;img_etag=%22132d693bafa3eac69c36ad235a08149b%22&amp;size=1024)彼得•帕克斯/法新社通过盖蒂图片社
 
-其次，怎么早不改，晚不改，事隔快一年了才想起这事？
+**中共国政府周一宣布了一项新的“反间谍”法规，要求“易受外国渗透”的中共国公司和组织采取新的安全措施。**
 
-原因只有一个：病毒追责！中共已经快吓死了，所以才试图抹掉所有病毒起源的相关信息，妄图做到：骗不了别人，也要先骗自己（人）！
+中共国国家安全部于4月26日发布了反间谍法令。该法令责令中共国的各个机构，包括“社会团体、企业和公共机构”，必须像敏感的政府实体一样运作，并培训其员工发现并阻止外国人进行间谍活动。
 
-病毒追责，是灭掉中共的唯一途径，是中共亲手给自己挖的坟墓。“文字狱”是假象，害怕病毒真相被揭穿才是其真实的目的。中共干的事，常常会适得其反，欲盖弥彰，让大家更进一步看清楚他们做贼心虚的嘴脸。
+[!\[\]()!\[\](https://spark.adobe.com/page/djQRZX1Susu02/images/8d2e7d7a-59a3-4b68-8c3a-d82abd79f692.png?asset_id=bba3f116-8867-4264-89c7-4b55e4c77efe&amp;img_etag=%22d1458b0cdd57b8f1380e2d17d58f2465%22&amp;size=2560)](https://spark.adobe.com/page/djQRZX1Susu02/images/8d2e7d7a-59a3-4b68-8c3a-d82abd79f692.png?asset_id=bba3f116-8867-4264-89c7-4b55e4c77efe&amp;img_etag=%22d1458b0cdd57b8f1380e2d17d58f2465%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/tujNd5hW2RTVt/images/35405900-72a9-4513-8d17-20b0d118d913.png?asset_id=a22964f2-7a02-4ee6-810c-33130677d0b4&amp;img_etag=%22a6ed29eb11cb323ed2584b61efab6a00%22&amp;size=2560)](https://spark.adobe.com/page/tujNd5hW2RTVt/images/35405900-72a9-4513-8d17-20b0d118d913.png?asset_id=a22964f2-7a02-4ee6-810c-33130677d0b4&amp;img_etag=%22a6ed29eb11cb323ed2584b61efab6a00%22&amp;size=1024)
+根据中共国官方媒体《环球时报》的说法，中共国国家安全部门将“根据该行业所涉及的保密程度、外国的参与程度以及以前是否发生过危害国家安全的事件”将某些实体认定为容易受到外国间谍活动的威胁。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/tujNd5hW2RTVt/images/db622fdc-331f-43da-b7f0-b860ed7e157e.png?asset_id=9431429f-8396-4da3-9c62-fbd9381bf785&amp;img_etag=%224d55ac0c4f41e26c98cf9c2b2ba7f324%22&amp;size=3168)](https://spark.adobe.com/page/tujNd5hW2RTVt/images/db622fdc-331f-43da-b7f0-b860ed7e157e.png?asset_id=9431429f-8396-4da3-9c62-fbd9381bf785&amp;img_etag=%224d55ac0c4f41e26c98cf9c2b2ba7f324%22&amp;size=1024)
+然后，当局将要求被认定的公司安排要上岗的员工“在上岗之前签署承诺书”。这些公司还必须要求员工向其上级汇报任何与国家安全有关的活动，员工前往国外任职之前为他们提供反间谍教育，并在员工返回中共国后向其上级汇报情况。
 
-***文章仅代表个人观点***
+根据《环球时报》的报道，计划在国外任职的被认定公司的员工必须首先完成“出国前的反间谍教育，通过研讨会和短片来展示要前往国家情报工作的案例”。
 
-编辑：【英国伦敦喜庄园编辑部】
+该报周一采访了“一名在北京的央企总部负责外交事务的工作人员，他要求匿名”，称他的未命名公司“要求从事敏感领域的工作人员或具有重要职责人员的[数字]档案电子设备留在家中，带新的设备到国外。”
+
+该男子指称：
+
+*已通知前往五眼联盟国家出差的工作人员——例如美国、英国、澳大利亚、加拿大和新西兰——必须严格汇报其旅行目的地、议程以及与外国人员的会议，在总部对其申请进行审查之前，他们必须先获得其直接上级的批准。*
+
+根据规定：
+
+*[中共国]国家安全机关可以通过提供工作手册、指南等宣传教育材料，向[指定公司]发布书面指导，并通过举行工作培训、召开工作会议、提醒、建议等方法进行反间谍活动安全防护工作指导[原文如此]。*
+
+《环球时报》报道，该法令还授权中共国国家安全部门“进入所涉公司的所在地获取内部材料、电子媒体工具、设施、计算机和信息系统[原文如此]”。“那些未能履行职责并导致负面结果的公司或机关将受到相应的惩罚。”
+
+中共国国安部一位不愿透露姓名的高级官员于4月26日告诉中共国官方新闻社新华社：“海外间谍和情报机构以及敌对势力加强了对中国的渗透，并扩大了以各种方式在更多领域窃取秘密的策略，对中国的国家安全和利益构成了严重威胁。”
+
+这位官员说：“ [星期一宣布的]新法规的制定是为了确保各个国家机构和实体在防止间谍活动方面的具体职责得到履行，并增强社会，特别是核心地区在确保国家安全方面的能力。”
+
+🔗[原文链接](https://www.breitbart.com/asia/2021/04/27/china-imposes-anti-spying-education-surveillance-sensitive-companies/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
-[!\[\]()!\[\](https://spark.adobe.com/page/tujNd5hW2RTVt/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/tujNd5hW2RTVt/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/djQRZX1Susu02/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/djQRZX1Susu02/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 
 
