@@ -1,25 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美驻伊基地不到1周又遇袭火箭落巴格达机场附近(2021/04/23第93期）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1151419/)
+## 川普考虑2024年总统大选 谴责对朱利安尼的搜查不公
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1151595/)
 
-本期焦点新闻摘要：
+作者：坐看云起时
 
-\*美驻伊基地不到1周又遇袭火箭落巴格达机场附近
+大纪元4月30日报道，前总统川普在本周四接受福克斯玛丽娅节目 “Mornings With Maria “的电话采访时透露说，他百分之百在考虑2024年再次竞选总统，并且“肯定”会考虑跟佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）搭档参加竞选。
 
-\*英国议会宣布新疆存在种族灭绝行为向约翰逊政府施压
+另外，据TheWesternJournal 报道，在这次访谈中川普指出，朱利安尼是纽约历史上最伟大的市长，是一名伟大的爱国者，周三联邦调查局对朱利安尼曼哈顿公寓执行的搜查令和对电子设备的没收，是一种极大的不公。川普强调说： “鲁迪是一个热爱这个国家的爱国者。”
 
-\*日本将寻求在东京与大阪等地实施“短暂而有力”的紧急状态
+据《泰晤士报》报道，代表朱利安尼的罗伯特-科斯特洛说，搜查完全没有必要，因为朱利安尼愿意回答除与他的客户之间的保密信息以外的所有问题，认为该搜查行为是一种“合法的暴徒行为”。
 
-\*欧洲中央银行将政策利率维持在历史最低点
+南卡罗来纳州的共和党参议员林赛-格雷厄姆(Lindsey Graham)则认为发出搜查令并不意味着有罪，但是过去曾经的种种滥用权力行为应该给每个人敲响警钟。
 
-\*国泰航空将关闭加拿大、澳洲和新西兰的飞行员基地
+参考链接：[https://www.epochtimes.com/gb/21/4/29/n12914435.htm](https://www.epochtimes.com/gb/21/4/29/n12914435.htm)
 
-\*欧盟执委会称尚未决定是否对阿斯利康采取法律行动
 
-\*疫情新闻：德州农工大学实验室检测到具有抗体抗性和导致更严重疾病的变种病毒
 
-\*疫情新闻：韩国侨民接种中国疫苗3天后在上海死亡
+> [Trump Speaks Out After Feds Raid Rudy Giuliani’s Apartment: ‘A Double Standard’ Like We’ve Never Seen Before](https://www.westernjournal.com/trump-speaks-feds-raid-rudy-giulianis-apartment-double-standard-like-never-seen/)
+
+
+
+本文仅代表作者本人观点，不代表Gnews平台
+
+校对/发稿: Penny
 
 0

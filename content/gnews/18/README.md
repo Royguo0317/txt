@@ -1,53 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】欧洲投资银行使用以太坊发行数字债券
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1151312/)
+## 俄罗斯卫星五号（Sputnik V）疫苗 发现一种能够在疫苗中复制的病毒
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1151476/)
 
-作者：纽约香草山农场写作组 四季
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/LOGO3_1-2.jpg)
-
-
-
-
-
-零对冲4月27日报道，欧洲投资银行正在通过高盛（Goldman Sachs）、桑坦德银行（Banco Santander）和法国兴业银行使用区块链技术发行1亿欧元（约1.2亿美元）的2年期数字债券。根据彭博社的消息，该票据最快可能在今天定价。这是加密货币日益成为主流的最新迹象。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29163747/0-5.jpg)图片源自Twitter
-
-近年来，以太坊网络的活动以去中心化金融 (Decentralized Finance, DeFi)和非同质化代币（Non-Fungible Token，NFT）的繁荣为特征，但它仍需在银行等机构中赢得更广泛的认可。以太坊使用智能合约处理其交易，它是当今最大和最常用的智能合约平台，每天记录约150万笔交易。今年非同质化代币（NFT）的爆发也激发了数字创作者和主要流行艺术家都开始使用该网络，如阿姆（Eminem）和莱昂国王（Kings of Leon）。
-
-尽管以太坊不像它的前身比特币那样广为人知，但它最近也得到了主流世界相当大的关注。全球最大的衍生品交易所芝加哥商品交易所集团（CME Group）在2月份推出了以太坊（ETH）期货。与比特币（BTC）一样，以太坊（ETH）现在也得到了PayPal的支持，在过去的三天里，它的涨幅超过了20%，今年的涨幅为267%，大大超过了比特币的表现。
-
-如果欧洲投资银行和其他金融巨头要开始在以太坊上发行支付指令，那么大规模采用可能就在眼前了。
-
-世界金融的伟大变革时代正向我们走来。现代化的加密数字货币 – 喜币的上市给新中国联邦人带来了新的希望。
-
-原文链接：
-
-[European Investment Bank Issues €100 Million In Digital Bonds Using Ethereum | ZeroHedge](https://www.zerohedge.com/markets/european-investment-bank-issue-eu100-million-digital-bonds-using-ethereum)
-
-编辑/校对/发稿：小鹿
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-1.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场****Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场****Twitter****（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/LOGO3_1-2.jpg)
+```
+新闻来源：今日新闻（today.it）
+发布日期：2021.4.28 意大利
+翻译整理/简评：斩草要除根
+```
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29182843/57143788_303.jpg)图片来源：德国之声
 
+新冠病毒俄罗斯卫星五号（Sputnik V）疫苗似乎有着一个严重的问题：巴西国家健康监督局拒绝使用该药，因为分析的样品中含有一种能够在非活性状态下能够复制的病毒。米兰维塔礼炮圣拉斐尔大学的教授，病毒学家罗伯托·伯尼（Roberto Burioni）评论说：“一致的拒绝并不令人惊讶。”
 
+“出于若干原因” 巴西对俄罗斯俄罗斯卫星五号（Sputnik V）抗新冠病毒疫苗表示拒绝，其中包括我们所说的最严重的一种。巴西国家卫生监督局Anvisa分析说每批次包含复制型腺病毒。
+
+“该机构说，来自加马里亚研究所的每批基于Ad5病毒载体的疫苗似乎都含有具有复制能力的腺病毒，在分析中观察到，关于能够复制的腺病毒的数据已经出现，“可能不会对接种疫苗的人群造成重大问题，但是我们要避免问题造成的损害。”
+
+基于腺病毒载体的疫苗是通过去除大多数腺病毒，然后插入DNA产生冠状病毒抗原而制成的。专家总结说，从对巴西机构的分析中得出的结果“使整个生产过程和质量控制受到质疑”。就在今天，土耳其签署了一项协议，将接受5000万剂针对新冠病毒的俄罗斯Sputnik V疫苗，该疫苗将在六个月内交付。第一批俄罗斯疫苗将于5月交付。
+
+#### 简评：
+
+去年就有报道俄罗斯疫苗研发抄近路走捷径，连普京总统自己打的第二针新冠疫苗是哪种都没有透露，许多俄罗斯人也对他们的疫苗持怀疑态度。政府想通过媒体的虚假宣传来推销自己国家的新冠疫苗，其有效性和安全性却不是被考虑的重点，只有让当小白鼠的去发现问题。同时欧盟在28日，批评俄罗斯与中共国透过散播假讯息，批评意图增加外界对西方新冠疫苗的不信任感，试图垄断疫苗市场。
+（本文仅代表译者个人观点，跟GNEWS平台无关。）
+
+**新闻原文链接：**
+🔗[Sputnik, abbiamo un problema (grave): nel vaccino un virus capace di replicarsi](https://www.today.it/attualita/vaccino-sputink-problema.html)
+
+* * *
+
+***编辑整理/校对: **Ting Guo*
 
 0
