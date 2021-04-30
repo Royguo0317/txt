@@ -1,36 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国制药公司拒绝 撤销印度要求的疫苗专利
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1156780/)
+## 【热点播报】反食品浪费法：中共“小快灵”立法的样板
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1156890/)
 
-```
-新闻来源：今日新闻（today.it）
-发布日期：2021.4.29 意大利
-翻译整理/简评：斩草要除根
-```
+作者：纽约香草山写作组四组 唯心力行
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30082306/6202869935ff20d3b049681df016f5b9.jpg.png)图片来源：第一财经
 
-印度新德里政府几个月来一直要求可以获得临时生产小瓶的许可，但是制药公司BioNTech的创始人撒辛（Ugur Sahin）重申说，反对暂时撤销抗冠状病毒药物的专利，坚信旨在暂停剂量知识产权的举措不会加快疫苗的生产，实际上会在剂量质量上产生进一步的问题，他对最贫穷国家的生产标准感到担忧,工业超级大国应该捍卫生产者的地位。
+[新华社北京4月29日电](http://www.npc.gov.cn/npc/c30834/202104/7f69abf4f4d84c3ea81db717c301ef22.shtml)，“反食品浪费法”历经二次审议，十三届全国人大常委会第二十八次会议29日表决通过。全国人大常委会法工委有关部门负责人表示，此项立法是中共探索“小快灵”立法的生动实践，切口小，意义重大，聚焦餐饮浪费问题有利于保障国家粮食安全，有利于弘扬中华民族传统美德和社会主义核心价值观，有利于促进绿色发展和可持续发展。
 
-一个联盟组织大声疾呼对南非和印度为首的一百多个国家停止专利，因为他们正面临着剧烈的健康危机，同时伴随着本地新变种的噩梦。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30090349/MOS2471-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E5%8F%8D%E9%A3%9F%E5%93%81%E6%B5%AA%E8%B4%B9%E6%B3%95%EF%BC%9A%E4%B8%AD%E5%85%B1%E5%B0%8F%E5%BF%AB%E7%81%B5%E6%9E%81%E6%9D%83%E6%B3%95%E5%BE%8B%E7%9A%84%E6%A0%B7%E6%9D%BF.jpg)
 
-这家德国制药公司的创始人说，风险是看到穷国生产的劣质疫苗的出现，将疫苗生产许可证放弃或出售给其他人不是一个好主意，我们必须保证在伊拉克或非洲生产的疫苗具有与我们相同的质量，美国和欧盟同意BioNTech。
+“反食品浪费法”第一条明确了立法目的，即粮食安全、社会主义核心价值观和绿色发展，其真实目的昭然若揭。反食品浪费法与粮食安全南辕北辙，只不过为中共推卸粮食危机罪责提供了借口，是中共以假治国、以骗治国的一贯伎俩。社会主义核心价值观的实质是中共极权统治对人民的“惩罚与规训”，反食品浪费法是“规训”（奴役）人民的绝好工具。“绿色发展”是中共输出极权治理模式的幌子，妄图实现世界新秩序“大重启”。
 
-印度的传染病正在达到灾难性的程度，卫生设施正在崩溃。非政府组织乐施会强调在过去的24小时内近380,000例病例，超过3600名受害者，自大流行开始以来，共有204,000多人死亡。人们死在街头，停车场或家中。改非政府组织印度负责人阿米塔布·比哈尔（Amitabh Behar）说，印度没有人不知道被感染的朋友，家人或同事。医院和卫生中心缺少设备、药品和氧气，价格也是飞涨。我们面临的紧急情况超出了我的想象，这也许是最严重的一次”。
+中共的“依法治国”沦为彻头彻尾的骗局和阴谋。中共领导立法，而不受法律约束。党内法规和军事法规完全架空国家法律，从毛泽东时代的政策讲话治国，到习近平时代的手谕口信电话治国，重要命令不得留下文字记录，中共从来不靠法律的“本本”治国。“反食品浪费法”是中共“依法治国”的骗局和阴谋，中共“小快灵”立法的样板，是极权统治商鞅驭民五策的计谋。
 
-#### 简评：
+校对/发稿：雪梨
 
-一方面，印度的疫情在全世界的眼皮底下肆虐，外界的援助也仅只是杯水车薪；另一方面，是大的制药公司却对疫苗市场严防死守，都想尽可能的多分一块蛋糕。阿斯利康刚刚公布，其2021年第一季度的利润翻番，其他的制药公司也一定是同样的情况。印度是全球第三大仿制药大国，被称之为“世界药房”。但是BioNTech公司却表示说，对贫穷国家生产标准的担忧，实际上我们都知道这说不出口的实话是，在因疫苗带来的巨大利润面前，怎么可能对冠状病毒药物的专利放手呢。
-（本文仅代表译者个人观点，跟GNEWS平台无关。）
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
-**新闻原文链接：**
-🔗[BioNTech nega la revoca del brevetto sul vaccino richiesta dall’India: “A rischio la qualità delle dosi”](https://europa.today.it/attualita/biontech-nega-brevetto-vaccino-india.html#_ga=2.19307704.1838743631.1619694513-145009575.1615972944)
+**更多资讯，更多关注**
 
-* * *
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-***编辑整理/校对: **Ting Guo*
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

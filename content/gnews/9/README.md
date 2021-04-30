@@ -1,65 +1,144 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《欧中全面投资协议》前景堪忧
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1156769/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（六）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1156836/)
 
-#### 翻译：牛小妹 | 校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30075205/%E4%BA%8B%E5%AE%9E%E4%B8%8A.jpg)图片来源：Shutterstock
-**欧盟对《欧中全面投资协议》态度转趋强硬**
+作者：纽约香草山信息部 6zero4
 
-去年12月，欧盟执委（European Commission）会匆匆决定与中共国签订《欧中全面投资协定》时备受争议。当时即将上任的拜登（Joe Biden）政府曾表示，希望欧盟在决定签约之前先与华府进行磋商。然而欧盟拒绝接受了此项提议，并与中共国签订了一项协议，在中共国设有工厂的欧洲汽车制造商将因此协议的实施而获得巨大的利益。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-据媒体《政客》（Politico）查阅的一份高层内部报告显示，就在欧盟匆匆与中共国达成具有里程碑意义的《欧中全面投资协议》的四个月之后，由于中共总书记习近平所领导的中共体制愈来愈“独裁专制”，欧盟认为将商业利益与中共的专制政权分开看待的可能性愈来愈低，因此要达成《欧中全面投资协议》的机率也微乎其微。
 
-欧盟在《欧中全面投资协议》的《进度报告》中抨击中共高层对欧盟的经济承诺方面毫无进展，特别是在开放数位市场、农产品市场、解决钢铁产能过剩和控制工业补贴等方面。中共国的经济正以惊人的速度从中共病毒大流行中复苏，《进度报告》呼吁欧盟成员国对此进一步采取强有力的措施，以应对新的挑战。欧盟比以往更果断、强硬的措辞反映了未来欧盟对待中共国的官方态度。
 
-4月21日，欧洲执委会主席乌尔苏拉•冯•德•莱恩（Ursula von der Leyen）和欧盟外交政策负责人约瑟普•博雷尔（Josep Borrell）在一份向包括27个欧盟国家领导人在内的欧洲理事会（European Council）提交的报告中提及，“目前的实际状况是欧中之间存在根本性的分歧，无论是在经济体系、全球化议题、民主与人权议题，还是在与非欧盟和非欧洲自由贸易协会的第三类国家打交道方面。”这些分歧持续存在于可预见的未来，欧盟无法等闲视之。约瑟普•博雷尔的发言人于4月25日证实，有关中共国的报告已提交欧洲理事会。
+3月30日塞林博士的2个推文：首先转发了秘密翻译组剪辑的一个短视频，在接受媒体采访中亲自肯定了美国前CDC主任“病毒来自武汉实验室”的说法。第二推：中共有一个军民融合的生物研究项目，其中包括生物战及为此获得相关技术支持的积极行动，所有这些项目均由相互关联的关键人物在推动，并贴出了陈薇、周育森、姜世勃和高福的照片。（陈薇浮出水面）
 
-**欧中关系恶化**
 
-《欧中全面投资协议》的《进度报告》旨在评估自《欧中战略展望》于2019年发布以来不断角力的各种政治力量。国际社会及欧盟越来越关注中共国利用军事力量企图边缘化台湾的野心、对新疆维吾尔族穆斯林的非人道镇压以及对香港人基本自由的残酷剥夺。自从去年12月以来，欧中外交关系出乎意料的迅速恶化，欧盟承认现在的欧中关系“更具挑战性”。
 
-今年三月，欧洲企图将商业利益和中共人权问题分开看待的努力面临崩解。当欧盟因中共镇压新疆维吾尔族穆斯林，而对中共国官员实施看似低调的制裁时，中共随即展开对欧盟外交官、欧洲议会议员和欧洲智库学者的报复性制裁，此事使得欧中关系冲突进入白热化。许多欧洲议会议员明确表示，在其同事受到制裁的情况之下，他们绝不会批准《欧中全面投资协议》。约瑟普･博雷尔在当月对《欧中全面投资协议》提出质疑：“中共国对欧盟官员的制裁使得欧中关系面临新的改变与挑战。我相信，当我们向欧盟理事会提交这份报告时，理事会主席将对此进行讨论，并将最近发生的制裁事件纳入考量范围。”
+> COVID-19 came from a laboratory in China[@RealPNavarro](https://twitter.com/RealPNavarro?ref_src=twsrc%5Etfw) [@RaheemKassam](https://twitter.com/RaheemKassam?ref_src=twsrc%5Etfw) [#Biden](https://twitter.com/hashtag/Biden?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaVirusUpdates](https://twitter.com/hashtag/CoronaVirusUpdates?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#ContemporaryGeneticWeapon](https://twitter.com/hashtag/ContemporaryGeneticWeapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPLiedPeopleDied](https://twitter.com/hashtag/CCPLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/IPuklvj4M7](https://t.co/IPuklvj4M7)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [March 29, 2021](https://twitter.com/LawrenceSellin/status/1376565324942864394?ref_src=twsrc%5Etfw)
 
-**欧盟成员国放不下手中的中共的利益**
 
-尽管拜登认为欧洲应与美国合作，建立统一的民主阵线以共同对抗中共国，然而，被中共严重蓝金黄的法国及德国仍坚持与中共沆瀣一气。
 
-由于无法放弃在中共国的某些商业利益，欧盟依然相当坚持中共国既是战略竞争对手和系统对手，同时也是包括共同面对气候变化在内的“合作谈判伙伴”，甚至还是协助“缅甸民主过渡”的合作伙伴。
 
-**欧盟敌视中共政权的独裁霸权**
 
-最近在欧盟内部的报告也显示，中共在过去两年采取了“更加独裁的路线”。 “随着中共国持续封闭国内的民主政治空间，加强社会控制以及对新疆和西藏的恐怖镇压，中共的政权正逐渐走向独裁专政。中共国同时还打压了香港的民主、自由和人权，这只会对欧中关系产生负面的影响”。报告中还提到：“欧盟的利益与南中国海的和平稳定息息相关，欧盟正密切关注近来台湾海峡不断升温的紧张局势。”
+> The Chinese Communist Party has an integrated military-civilian biological research program that includes biowarfare & aggressive efforts to acquire international technology & knowledge that feeds into the CCP program, all facilitated by key inter-connected individuals[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/TJuo0nGTzK](https://t.co/TJuo0nGTzK)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [March 30, 2021](https://twitter.com/LawrenceSellin/status/1376893325077254144?ref_src=twsrc%5Etfw)
 
-**横跨大西洋的灭共力量**
 
-欧盟对中共国的态度与美国越来越接近。拜登准备在六月份访问欧盟，并参加G7高峰会议，届时中共国将成为高峰会议讨论的重点。欧盟执委会主席乌尔苏拉•冯•德•莱恩和欧盟外交政策负责人约瑟普•博雷尔强调：”美国拜登政府已证实，美国打算与多边机构重新接触，并与盟国和伙伴在面对中共国方面密切合作……在这个世界舞台上，欧盟也需要与其他伙伴密切合作以便充分发挥作用，欧盟必须展开双臂迎接受这一改变，并共同努力维护欧盟本身的立场和利益。”
 
-欧洲议会最大派系欧洲人民党（the European People’s Party）的领导人曼弗雷德•韦伯（Manfred Weber）说，“关于对抗中共国的立场，欧洲必须努力与美国站在同一阵线，捍卫欧美的共同利益，并坚决反对中共国对欧洲全球盟友的侵略。”对比以往，欧盟对中共的态度更倾向于强硬的对立，欧盟认为：“多元的管道……应该仍然是欧盟与中共国打交道的首选方式。同时，关于现有行动的落实及应付一系列新的挑战，欧盟仍需坚定地努力执行。”
+3月31日塞林博士的推文：一个与二战时英国在布莱切利公园的破译中心之SIXTA项目相似的网络分析系统，正用于识别与COVID-19病毒相关的中共军民融合之核心领域，如病原体与生物安全国家重点实验室，解放军302和193医院，并贴出了两张照片，一张是解放军军事医学科学院北京生物工程研究所所长和拟定的中共生物战项目负责人陈薇少将，另一张是重庆第三军医大学免疫研究所的所长吴玉章。（吴玉章浮出水面）
 
-**中共毫无诚意的承诺造成欧中不平等的商业关系**
 
-欧盟文件还对中共准许欧盟进入中共国市场的承诺进行了深入探讨，发现欧盟执委会曾认为《欧中投资协议》是历史性的成就，根本就是个严重的错误。报告中说：“尽管中共国领导人再三保证，包括准许欧盟的农业产品和数位产业进入中共国，然而除了金融服务领域取得了一些成果外，其他毫无进展。” 。
 
-欧盟已与拜登政府制定了一项联合议程，以解决与中共国的相关问题。在联合议程的内部报告里发现，特别是在贸易和技术这两个领域，更凸显了中共国在兑现改革承诺方面的拖延战术。欧盟表示，关于中共国以补贴的名义，不正当的将国有资金注入各行各业的问题，中共迄今为止仍没有实质性的参与讨论，中共国辩称”欧中世贸组织改革工作小组”的任务仅限于信息交流而不是谈判。
+> A network analysis system similar to SIXTA from British WW2 codebreaking center, Bletchley Park, being used to identify China's military-civilian centers linked to [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) e.g. State Key Laboratory of Pathogen and Biosecurity, PLA Hospitals 302 & 193.[#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/FGQla5eVlN](https://t.co/FGQla5eVlN)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [March 31, 2021](https://twitter.com/LawrenceSellin/status/1377121502928142337?ref_src=twsrc%5Etfw)
 
-欧盟担心，由于中共国的补贴政策，有些产业现在已经或将来可能遭受产能过剩的打击，例如铝或高科技行业，如某些类型的半导体。欧盟的相关报告指出：“中共国钢铁产量的持续增长，而中共病毒的疫情大流行引发的危机进一步加深了产能过剩的问题。”
 
-**欧盟开始积极面对中共的挑战**
 
-在报告中指出，新的政治势力和成员国已经意识到，欧盟企业进入中共国采购市场面临极大的困难。经过多年对中共恶霸行为的不吭声不作为，欧盟现在强力警告中共国，并迅速采取行动，禁止中共国公司在欧盟公开采购市场进行大型的基础设施投标。报告中说：“欧盟已经加强对中共的工作，目标是在欧盟理事会主席国葡萄牙总统任期结束前（2021年上半年）在理事会中达成共识。之后，欧盟将开始与欧洲议会和理事会进行三方讨论，以期在2021年底之前通过共同立法的提案。”
+4月1日塞林博士的推文：转发了自己与Joe Hoft刚刚联合发表在Gateway Pundit的文章–“是的，COVID-19就是来自中共的生物战袭击”，新冠病毒正是中共政策及其行动的结果，是一种投机取巧的生物恐怖主义。
 
-欧盟执委会所面临的困难其实不只来自于中共，还包括欧盟内部的成员国。目前，仍有十个成员国尚未建立投资筛选机制，使得有中共北京的公司有机会大钻法律漏洞，如同十年前的金融危机期间一样，利用中共病毒疫情大流行后的经济低迷，低价抢购欧洲的重要产业，例如希腊的比雷埃夫斯港（Piraeus Port）。
 
-报告说，欧盟在技术优势上可与中共国一争高下，但在数字化治理方面与中共没有相同的原则和价值观，无法招架中共惯常使用的抢、偷、骗招数。展望未来，欧盟仍需持续加强其关键基础设施和基础技术的安全性。欧盟执委会随时准备与成员国共同合作，确保和解决与战略和关键技术（特别是与网路监视技术和其他新兴技术有关）的贸易所涉及的安全风险和人权问题。”
 
-**译者点评：**
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) is the product of policies and actions undertaken by the Chinese Communist Party, a form of “Opportunistic Bioterrorism”[#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#DRASTIC](https://twitter.com/hashtag/DRASTIC?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/h2MKUEo10h](https://t.co/h2MKUEo10h)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 1, 2021](https://twitter.com/LawrenceSellin/status/1377645482391011333?ref_src=twsrc%5Etfw)
 
-《欧中全面投资协议》草案，历经7年才于2020年底达成共识。虽然欧盟内部目前正对协定内容进行审核，然而由于中共的独裁政权、新疆种族灭绝问题、打压香港民主政治、中共不信守承诺、不合理补贴政策导致产能过剩……等多重因素导致反对声浪高涨，《欧中全面投资协议》的实现之日看来遥遥无期！
 
-欧盟对中共的态度转趋强硬，令中欧脱钩的机会大增！中共自己做死，谎话连篇、蒙混拐骗，只能被扫进历史的垃圾堆。
 
-原文链接：[EU slams China’s ‘authoritarian shift’ and broken economic promises](http://https：//www.google.com/url?q=https%3A%2F%2Fwww.politico.eu%2Farticle%2Feu-china-biden-economy-climate-europe%2F&amp;sa=D&amp;sntz=1&amp;usg=AFQjCNEiKWlkk3_6oyfHMfNB_1ygIPaGWA)
+4月4日塞林博士的2个推文：第一推，COVID-19病毒很可能预先通过“人源化”动物模型的连续传代并已经适应人类感染了，并贴出了邓宏魁(Hong-kui Deng)和秦川(Chuan Qin)的照片。第二推，姜世勃是COVID-19病毒之福林酶切位点源头的关键人物，其研究始于SARS疫情后的2007，并于2013年通过基因成功插入4aa福林酶切位点，随后高福在2015年将S1-S2 福林酶切位点列入SARS类冠状病毒的“愿望清单”中，这些课题都与中共军方相关，并再次贴出了姜世勃和高福的照片。（邓宏魁和秦川浮出水面）
 
-+1
+
+
+> The [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) virus was likely pre-adapted for human infection by serial passage through "humanized" animal models 
+> To explore such capabilities, begin here[#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#DRASTIC](https://twitter.com/hashtag/DRASTIC?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/uhjk1AQDMu](https://t.co/uhjk1AQDMu)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 3, 2021](https://twitter.com/LawrenceSellin/status/1378392745170112513?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Shibo Jiang, a key link in the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) 's furin cleavage site (FCS), began with SARS in 2007, genetically inserted a 4aa FCS in 2013. In 2015, a S1-S2 FCS was on Gao Fu's "wish list" for SARS-like coronaviruses. From those articles, follow the military links.[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1h7wufTpzG](https://t.co/1h7wufTpzG)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 4, 2021](https://twitter.com/LawrenceSellin/status/1378725944098238472?ref_src=twsrc%5Etfw)
+
+
+
+4月5日塞林博士的3连推：第一推，COVID-19的起源离不开北京微生物&流行病学研究所(BIME)、中共军事医学科学院(AMMS)和中共国疾病预防控制中心(CDC)的联合领导，贴出了陈薇、周育森、姜世勃、高福、谭文杰、袁国勇、郭德银和石正丽8人的照片。第二推，COVID-19病毒起源范围已经缩小到与中共军方关联的P2-P3级病毒研究相关的位置和个人，并贴出一张标识着武汉水果湖街道附近的“东湖大厦”的地图图片。第三推，毫无疑问，陈薇少将就是拟定的中共生物战项目的负责人，并再次贴出了陈薇、周育森、姜世勃、高福、谭文杰、袁国勇、郭德银和石正丽8人的照片，这些人都曾为军方工作过，表明在中共国民用和军事研究之间没有区别。（谭文杰、袁国勇和郭德银浮出水面）
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)'s origin – leadership at Beijing Institute of Microbiology & Epidemiology, Academy of Military Medical Sciences & Chinese Center for Disease Control and Prevention with the same names popping up.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/CL17NY5QXf](https://t.co/CL17NY5QXf)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1378972629831454721?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)'s origin – Initial outbreak epicenter has now been narrowed to locations and individuals associated with military-related P2-P3 level virology research. [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/xs8RihMO0d](https://t.co/xs8RihMO0d)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1378983513232449539?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Make no mistake, Maj. Gen. Wei Chen is presumed head of the CCP biowarfare program & everyone shown has worked with the military. In China, there is no distinction between civilian and military research.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/luEHWbcH2F](https://t.co/luEHWbcH2F)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1379000079768510467?ref_src=twsrc%5Etfw)
+
+
+
+4月6日塞林博士的5连推：第一推，有迹象表明COVID-19可能泄露于动物实验中心的动物实验，武汉大学动物实验中心ABSL-3实验室成为焦点区域，并贴出标注了该实验室的地图图片。第二推，转发了Andrew Kerr在2天前发表在Daily Caller的文章“美国资助增强蝙蝠类冠状病毒为骨架的研究向武汉实验室拨款的事情，从未经卫生与福利部的审查”，美国的政府官员和科学家正试图掩盖中共病毒实验室起源的真相，因为他们(福奇、打杂客)正是直接导致病毒产生的利益相关方。第三推，经过与SIXTA类似的网络系统分析，正在将相关专业知识与武昌本地疫情爆发中心关联起来，并贴出了郭德银、石正丽、李放和邬开朗4人的照片。第四推，中共有一个军事相关的国内外研究网络，一些人就在美国工作，甚至是与新冠病毒起源息息相关的美国公民，并贴出了石正丽给李放颁奖的合照。第五推，这四人已经人赃俱获，武汉大学的邬开朗，冠状病毒人类结合专家、合作研究员郭德银和李放，以及合作研究员“蝙蝠女”石正丽。（李放和邬开朗浮出水面）
+
+
+
+> There are indications that [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) might have leaked during animal testing at the Center for Animal Experiment, Animal Biosafety Level-III Laboratory Wuhan University, 武汉大学动物实验中心ABSL-3实验室, which is in the hot zone.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/GnGm7LAVEV](https://t.co/GnGm7LAVEV)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1379115533887537154?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> There are U.S. government officials and scientists, who are trying to cover-up the lab origin of the CCP's [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) because they are implicated in its creation – Anthony Fauci, Peter Daszak.[#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/3rO5mSKF4X](https://t.co/3rO5mSKF4X)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 6, 2021](https://twitter.com/LawrenceSellin/status/1379284279985897475?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Research network analysis similar to SIXTA from British WW2 codebreaking center, Bletchley Park, used to identify the laboratory origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) – Linking expertise to a local release in the Wuchang epicenter.[#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/pRgBxI9M0t](https://t.co/pRgBxI9M0t)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 6, 2021](https://twitter.com/LawrenceSellin/status/1379437072763609090?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Chinese Communist Party has a military-related domestic and international research network, some of whom work in the U.S. and may be U.S. citizens who are linked to the laboratory origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/0u16BdeLc2](https://t.co/0u16BdeLc2)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 6, 2021](https://twitter.com/LawrenceSellin/status/1379447548058988552?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Kailang Wu, Wuhan University, near the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) outbreak epicenter & research collaborator of Deyin Guo & Fang Li, coronavirus human binding expert and collaborator with bat woman Zheng-Li Shi, identified (hat tip to [@Hlu28849973](https://twitter.com/Hlu28849973?ref_src=twsrc%5Etfw))[#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/UzoyG2d8r4](https://t.co/UzoyG2d8r4)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 6, 2021](https://twitter.com/LawrenceSellin/status/1379459492077797384?ref_src=twsrc%5Etfw)
+
+
+
+塞林博士在这个期间的推文内容里面，进一步揭示了中共军民融合的生物战项目深度融合了美国病毒研究的资金和技术，通过“人源化”动物模型的连续传代，以蝙蝠类冠状病毒为骨架，以基因编辑和改造手段在动物试验中将改造的冠状病毒做到直接适应人类感染，这就是COVID-19疫情爆发近一年半且科技如此发达的今天仍然找不到病毒的中间宿主的原因，是病毒来自实验室的铁证，是赤裸裸的反人类生物恐怖主义！
+
+塞林博士在此期间曝光了不少参与COVID-19病毒研究的中共科研人员，尤其是将拟定的中共生物战项目负责人陈薇少将浮出水面，大戏出台前的铺垫陆续到位，让我们屏住呼吸静待收网时刻的到来！
+
+校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
