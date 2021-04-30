@@ -1,95 +1,114 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【DC大中华时事】台湾为防止重要技术人才流向大陆删除为中企招聘员工 2021.04.30
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1156693/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（五）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1156792/)
 
-*编辑：文华 / 作图：中华之光*
+作者：纽约香草山信息部 6zero4
 
-![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/大中华时事-1.jpg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-#   墙国妄语每日驳
 
 
+3月17日塞林博士的推文：转发Joe Hoft昨天刚刚发表在Gateway Pundit的一篇文章“中共对美国病毒研究实验室的大规模渗透”，表达当下中共军方对美国病毒研究实验室里没有不熟知的事情的担忧。
 
 
 
-### 04/29 新华社 汪文斌说美炮制军控遵约报告是惯用伎俩
+> Today there is virtually nothing happening in U.S. virus research laboratories about which China’s military is not intimately aware.
+> 
+> US Military[@GordonGChang](https://twitter.com/GordonGChang?ref_src=twsrc%5Etfw) [@RealPNavarro](https://twitter.com/RealPNavarro?ref_src=twsrc%5Etfw) [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusVaccine](https://twitter.com/hashtag/CoronavirusVaccine?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/QcwkdyuJSp](https://t.co/QcwkdyuJSp)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [March 16, 2021](https://twitter.com/LawrenceSellin/status/1371912819747254275?ref_src=twsrc%5Etfw)
 
 
 
+3月20日塞林博士的推文：转贴了第四军医大学军事预防医学院军队流行病学教研室徐德忠、张磊和孙慧敏联合发表在国内网站“知网”的一篇文章“SARS CoV非自然起源”的链接，和一张标有GTV和香草山农场Logo，写有“我们必须面对冠状病毒是生物武器的真相，全世界正处在与CCP的超限生物战争中”的英文图片。
 
 
-就近期美国发布《军控、防扩散与裁军遵约报告》一事，外交部发言人汪文斌29日说，美国每年都炮制所谓军控遵约报告，摆出一副教师爷的姿态对他国的军控和防扩散政策指手画脚，并将自己标榜为所谓的“模范”，不过是美国转移国际视线、污蔑抹黑他国的惯用伎俩。他说，美方在报告中声称其所有活动都符合《禁止生物武器公约》的规定，但是对于国际社会严重关切的美国德特里克堡基地问题却讳莫如深，对美国在境外大量生物实验室问题也是轻描淡写。“我们再次敦促美方作出澄清：美国军方在德特里克堡基地以及美国境外的生物实验室到底开展了什么活动？美国为什么满世界建这么多生物实验室？美方如何证明这些活动都符合公约的规定？”
 
+> In 2013, scientists at the Fourth Military Medical University of the People's Liberation Army in Xi'an, China claimed that the first SARS pandemic 2002-2003 was of "unnatural origin"[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaVaccine](https://twitter.com/hashtag/CoronaVaccine?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/yC3XbkBUPl](https://t.co/yC3XbkBUPl) [pic.twitter.com/0JIhhW2r68](https://t.co/0JIhhW2r68)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [March 20, 2021](https://twitter.com/LawrenceSellin/status/1373238472450920449?ref_src=twsrc%5Etfw)
 
 
 
+3月21日塞林博士的推文：转发了1篇由张金勇(Jinyong Zhang, 音译) 、曾昊(Hao Zeng , 音译) 、古江(Jiang Gu , 音译) 、李海波( Haibo Li, 音译) 、郑立新(Lixin Zheng , 音译)和邹泉明( Quanming Zou, 音译) 6位中共病毒科研工作者10天前联合投稿在MDPI的一份科学报告“SARS-CoV-2疫苗开发的进展和展望”，当下无法找到比这更有趣的事情了，譬如有些在福奇的NIAID实验室工作的人，一直在与中共军方研究中心合作并制造出COVID-19病毒（请看闫博士的第一份病毒报告）。
 
-***简评：中共口炮部在回应国际共识和公约的时候，总是摆出一副我是流氓我怕谁和无理取闹的嘴脸，中共国作为联合国五个常任理事国之一，推动国际社会遵守《禁止生物武器公约》，维护人类社会的和平发展应该是义不容辞的责任和义务。可是我们看到标榜自己是负责任大国，所行之事、所发之言为人们所不齿。中共国之所以跳出来反对美国发布的《军控、防扩散与裁军遵约报告》，就是怕以美国为首的西方国际正义力量，揭发中共国私下偷偷发展超限生物武器，并妄图以邪恶力量称霸世界的野心。由于川普时期美国通过贸易和关税来调整不公平的经济关系，并及时调整国家政策遏制邪恶中共的发展计划，导致习神国内、国际压力陡增，因此释放出中共病毒，给国际经济和社会造成了巨大的破坏，在闫丽梦博士的三份关于病毒起源的报告和新中国联邦爆料革命推动下，世界各国通过情报和科学的研究认识到了中共病毒就是中共释放的超限生物武器。因此美国发布的这份报告就是对中共追责的一部分，中共想逃脱国际社会的追责，就嫁祸于美国，然后金蝉脱壳。这召只会是中共死亡前的哀嚎罢了，在科学和情报铁的事实面前，所有的罪恶是无法嫁祸于人洗白自己的，拙劣的表演只会更加暴露犯罪的事实，等待中共的将是纽伦堡大审判。***
 
 
+> Haven't found much interesting today except someone working in Dr. Anthony Fauci's NIAID lab, who was collaborating with a Chinese military research center linked to the creation of the [#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw) virus. (see Dr. Yan's [https://t.co/zhzjFBkOa2](https://t.co/zhzjFBkOa2))[#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/rXUGuwl2zI](https://t.co/rXUGuwl2zI)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [March 21, 2021](https://twitter.com/LawrenceSellin/status/1373649452142051328?ref_src=twsrc%5Etfw)
 
 
 
-### 4/29 央视网 国家广电总局：坚决支持依法查处“阴阳合同”、“天价片酬”等问题
+3月22日塞林博士的推文：转发自己本月3日做客Joe Hoft的Gateway Pundit后发表在CCNS的客座文章“2020年5月，美国科研机构为中共军方举行新冠疫情事实通报会”，痛心于那些愚蠢的美国同胞，2019年当选为美国科学院院士的中共CDC主任高福，以及与制造COVID-19病毒实验室直接相关的王长军，都与中共军方有长期而深入的合作。（王长军浮出水面）
 
 
 
+> Stupid Americans. George F. Gao, head of China's CDC, who was elected to the U.S. Academy of Science in 2019, has a deep and long-term collaboration with China's military , including labs implicated in the creation of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) (Changjun Wang)[#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/2YbIZVzJPy](https://t.co/2YbIZVzJPy)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [March 22, 2021](https://twitter.com/LawrenceSellin/status/1373938290982801409?ref_src=twsrc%5Etfw)
 
 
-国家广电总局今天（29日）表示，已责成北京市广电局对电视剧《倩女幽魂》制作机构涉嫌违反制作成本配置比例有关规定启动调查，同时要求北京市广电局、上海市广电局等配合税务部门对有关公司和郑爽签订“阴阳合同”、拆分收入获取“天价片酬”、偷逃税等涉嫌违法行为进行调查，如有违法违规情况将严肃处理。
 
-国家广电总局表示，将严格执行《关于进一步加强电视剧网络剧创作生产管理有关工作的通知》《关于进一步加强广播电视和网络视听文艺节目管理的通知》有关规定，进一步加强电视剧行业管理。
+3月23日塞林博士的推文：转贴了一段来自GTV的视频链接，视频描述了WIV（王林发）公开承认他们收集并重建了蝙蝠冠状病毒序列，进而利用基因工程改变病毒序列以产生新的冠状病毒，COVID-19就是其中成果之一。并附上一张来自GTV和Gnews的含“CCP病毒来自WIV，生物武器计划”的英文文字图片。
 
 
 
+> Wuhan Institute of Virology admits they collect bat coronavirus sequences, re-constructs them and alters them using genetic engineering to create new coronaviruses.[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) is one of them. Watch video.[#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/aApIVi9REZ](https://t.co/aApIVi9REZ) [pic.twitter.com/S6KIaNjs4F](https://t.co/S6KIaNjs4F)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [March 22, 2021](https://twitter.com/LawrenceSellin/status/1374039095261982727?ref_src=twsrc%5Etfw)
 
 
-***简评：国家广电总局：坚决支持依法查处“阴阳合同”、“天价片酬”等问题的申明就是典型的中共以假治国、以黑治国，同时也是国内经济崩溃前对社会各界的又一次收割。国家广电总局作为中共国娱乐圈的直属管理机构怎么会不知道早已存在的“阴阳合同”、“天价片酬”，从法律的角度来讲，这就是共犯，可它确可以收受私利，损害国家的利益，所谓之以假治国。当东窗事发时，它又可以检举他人，逃脱罪责，就因为它是官办机构，所谓之以黑治国。”官“字两片嘴，横竖他们说的算，连娱乐圈所谓的名人富裕阶级都避免不了被收割的命运，而且得不到公正、合法的审判，更遑论普通的草根百姓了，这就是个现代版的封建奴隶社会。随着国内经济接近崩溃的边缘，给中共政府税收带来巨大压力，再加上扩军备战和国内维稳经费居高不下，只收割国内大企业和私人企业家已经无法满足中共对资金的需求，现在把手伸向了社会名流和中产阶级，最后就是带着底层炮灰，跑步奔向毁灭之路，葬送中华民族的前途和未来。因此消灭中共是正义的必需，也事关中华民族的未来和兴衰，每一个拥有正义感和使命感的中国人都应该站起来TAKE DOWN THE CCP。***
 
+3月24日塞林博士的推文：转发了Joe Hoft刚刚发表在Gateway Pundit的文章“独家重磅：COVID-19疫情的源头已确定—-位于武汉的两个生物武器基地之间”，根据中共国自己的数据记载，COVID-19疫情最初的感染爆发点就在WIV和生物制剂研究所之间4英里的一个武汉居民区。
 
 
 
+> According to China’s own data, the original hot spot for [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) infections occurred in a residential area in the four miles between the Wuhan Institute of Virology and the Biological Preparations Institute. [#CovidVaccine](https://twitter.com/hashtag/CovidVaccine?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/xt6eVyODUC](https://t.co/xt6eVyODUC)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [March 24, 2021](https://twitter.com/LawrenceSellin/status/1374714648717631490?ref_src=twsrc%5Etfw)
 
-### 4/29 环球时报 中国已停止运输美国在华为印度采购的制氧机？外交部：假新闻
 
 
+3月26日塞林博士的2个推文：转发了2篇文章，一篇是Rowan Jacobsen昨天刚刚发表在Newsweek的文章“可能是人类而不是动物将COVID-19病毒带到武汉，与中共国说法恰恰相反”，更多证据证明病毒来自实验室，起源于现在正在推崇来自冷冻食品的荒谬观念的中共的臭皮匠彼得·打杂客(Peter Daszak)，昭示着病毒来自自然的理论不堪一击。另一篇是Aidan Mclaughlin今天刚刚发表在Mediaite的文章“前美国CDC主任(Robert Redfield)表示，相信冠状病毒‘逃离’了武汉实验室”，这是科学界病毒溯源过程中巨大的突破。（打杂客浮出水面）
 
 
 
-在29日举行的外交部例行记者会上，有印度记者求证问及，中国是否已停止运输美国在华为印度采购的制氧机？对此，外交部发言人汪文斌回应称，有关“中国停止运输美国为印度在华采购的制氧机”的说法，是假新闻。
+> More evidence [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) came from a laboratory. Showing just how weak the naturally-occurring theory of [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw)'s origin is, Peter Daszak, Chinese Communist Party stooge, is now pushing the ridiculous notion it came from frozen food.[#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#DRASTIC](https://twitter.com/hashtag/DRASTIC?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/NaiY3nvbBe](https://t.co/NaiY3nvbBe)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [March 26, 2021](https://twitter.com/LawrenceSellin/status/1375413007250026496?ref_src=twsrc%5Etfw)
 
 
 
 
 
-***简评：中共就是最大的谎言制造者，编造谎言是中共的拿手好戏，以骗治国不是浪得虚名的，谁都有资格批评假新闻，唯独中共没有资格。由于印度加入以美国为首组织的亚约四国，全面开展军事、经济、防务等各方面的合作，意在围堵中共，印度走在了对抗中共外来轴心的前沿，从边境冲突到经济制裁，这给中共雪上加霜的国际环境又上了一道枷锁，最近印度病毒的快速暴发，离不开中共在背后的操弄，通过病毒搞乱印度、搞弱印度、搞死印度，使其不敢倒向美国，并共同围剿中共。中共正想乘机通过病毒的外交控制印度，完成私下勾兑，但印度不吃这一套，口炮部的回应，正是骗子和犯罪分子被抓现形后气急败坏的表现。***
+> HUGE BREAKING: Former Director of the U.S. Centers for Disease Control (CDC) Says He Believes Coronavirus ‘Escaped’ From Wuhan Lab[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#DRASTIC](https://twitter.com/hashtag/DRASTIC?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#ContemporaryGeneticWeapon](https://twitter.com/hashtag/ContemporaryGeneticWeapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPLiedPeopleDied](https://twitter.com/hashtag/CCPLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/HTW5kvdkQ2](https://t.co/HTW5kvdkQ2)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [March 26, 2021](https://twitter.com/LawrenceSellin/status/1375450663904231424?ref_src=twsrc%5Etfw)
 
 
 
+3月27日塞林博士的推文：向粉丝公告自己即将接受Steel Truth直播平台探讨COVID-19病毒实验室起源真相的采访。
 
 
-#   港台资讯
 
+> Interview with Dr. Lawrence Sellin about the laboratory origin of COVID-19 (March 26, 2021, 23:30 – 33:45)[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#DRASTIC](https://twitter.com/hashtag/DRASTIC?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#ContemporaryGeneticWeapon](https://twitter.com/hashtag/ContemporaryGeneticWeapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPLiedPeopleDied](https://twitter.com/hashtag/CCPLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/DOnICvT1KV](https://t.co/DOnICvT1KV)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [March 27, 2021](https://twitter.com/LawrenceSellin/status/1375759612033531909?ref_src=twsrc%5Etfw)
 
 
 
+塞林博士痛心疾首于美国科研机构的有些同胞荒唐愚蠢至极，竟然与邪恶的中共军方生物武器项目合作，一年前还帮中共军方举行新冠疫情事实通报会，扼腕叹息美国病毒研究实验室已经被中共军方彻底俘虏，尤其是“打杂客”这个与魔共舞的美奸之无耻嘴脸展露无遗。进一步展示了中共军方很早就已经在进行冠状病毒及其疫苗的理论研究和产品开发的证据，而且中共自己的一篇文章“SARS CoV非自然起源”更是确凿了SARS类冠状病毒不可能来自自然的铁证。可喜的是前美国CDC主任Redfield正式表示冠状病毒来自武汉实验室，这是科学界病毒溯源舆论转向的另一个里程碑事件！
 
+塞林博士日拱一卒，稳步推进，将自己掌握的所有关于COVID-19病毒的军情情报，结合中共国自己曾经在公共网络发布的文章和视频，进行了系统的分类整理，按时间顺序由轻到重、由浅而深、循循善诱，并适时将全世界有关病毒真相揭秘的热点接入，联合作战，不断壮大正义联盟的舆论力量，形成以塞林博士自己掌握的军情线索为主线的病毒溯源之西方主战场，将全世界追求病毒真相的亿万人民的热情和注意力充分调动起来，势将掩盖病毒真相的惊天铁幕砸碎！
 
-![]()![](https://media.discordapp.net/attachments/817883141107613766/837195710851448842/4-29-1.png)
+校对/发稿：雪梨
 
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
+**更多资讯，更多关注**
 
-![]()![](https://media.discordapp.net/attachments/817883141107613766/837559292872753172/image0.jpg?width=1409&amp;height=793)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-![]()![](https://media.discordapp.net/attachments/817883141107613766/837559318680305744/image0.jpg?width=1409&amp;height=793)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-
-
-*编辑：文华**审核：星空無垠**发布：文顾*
- 
 0
