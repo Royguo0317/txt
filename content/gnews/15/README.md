@@ -1,55 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210429（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1157041/)
+## 【战友心声】天道智慧看郭先生
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1156639/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+作者：香草山美食部 Rainer
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-5-768x103-1.jpg)
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102445/01-20.jpg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102449/02-21.jpg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102455/03-20.jpg)
+读德教启蒙第一期有感：我们知道，七哥是政治家，经济学家，思想家，宗教家，企业家，艺术家，美食家等等。如果放在以前，大家都不相信有任何人能达到这样的高度，而七哥这四年多用上千部视频直播把他生活点点滴滴真实的展现给大家，我们也希望向七哥学习提升自己，但是需要如何做呢？要学这么多知识如何学得完？但大家是否记得，七哥直播曾提到过，找到开启的那把钥匙，如同回家打开保险柜一样，一切都会很简单。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/【香草诗词汇】书写：为自己点灯.jpg)
+虽然七哥说高处不胜寒，懂他的人不多，那今天我们就用中华传统智慧的角度，来分析一下七哥的内心世界。像七哥这么多好的品质，包括他建的郑州裕达，盘古七星，到现在整个的G系列，我们可以总结为“东魂西技”。其中西技就是西方的技术，法治，流程等等，但是如果我们只学西方的技术如何超越他们呢？那东魂是什么？德教总结为三条：上合天道，下合人心，内明自心。也就中华传统文化的儒释道三种智慧。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102501/04-22.jpg)
+首先，这3种智慧我们要连起来看，不是各自独立的。就像一座楼的三层，底层就是下合人心，我们活在这个社会上就是要处理人与人之间的各种关系。但是处理好人际关系就能完成一切吗？还不足，所以第二层是上合天道，就是我们如何按照天道的规律，即天时地利人和，这样做事才能成功。但事业成功了你过得很痛苦，跟自己内心过不去，这还是不行。所以最后还需要第三层，即内明自心。这是佛法的智慧，教我们如何与自己内心和谐相处，无我利他，慈悲智慧勇气。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102529/05-1-1.jpg)
+第一层，儒家的下合人心。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102533/05-2-1.jpg)
+孝悌为本：就像七哥每天都悼念母亲，尊敬所有行孝道的战友。同时为他死去的八弟发誓讨回公道，也为他所有被迫害的同事，合作伙伴而战斗到底。仁义礼智信：七哥爱战友，为战友着想，每天端庄的出现在镜头前，信守承诺等等。天行健：就像每天升起的太阳一样，七哥坚持锻炼，自强不息，每天工作十几二十个小时。地势坤：就像大地一样，包容一切好的与坏的。这都是我们学习的榜样。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102540/05-3-1.jpg)
+第二层，道家的上合天道。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102547/05-4-1.jpg)
+我们做任何事情，都需要符合自然规律，知道哪些能做哪些不能做，而不是一畏的踩油门。敬天敬神，道法自然：七哥是信佛教的，但是无论去到哪个寺庙他都进去拜拜。西方的教堂他也与班农先生一起进去祈祷，祈求万佛万神保佑我们。天地人三才：简单理解就是天时地利人和。七哥能看到事物背后的规律，知道在什么时候把手中的牌打出来才是最有效的。也曾与小唐姐提过，最厉害的是手里拿着炸弹没炸，把敌人吓跑了。知己知彼，百战不殆！功成身退，天之道：七哥一直提到灭掉共产党后就隐居山林，绝不从政。这像美国第一任总统华盛顿一样的伟大。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102612/06-18.jpg)
+第三层，佛家的内明自心。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102618/07-18.jpg)
+无我，利他：我们做事的出发点不是为了自己，是为了利于他人，让这个世界更美好。但是光有善良是不够的，如果对所有人都好，如何分辨真假善恶呢？所以还要有智慧，能够看清事物的本质，不然就是助纣为虐了。又善良又有智慧，但是没有行动，一样没结果。所以还需要勇气，敢于发声，有智慧的行动，这就是七哥经常提到的真善狠！就是佛家讲的慈悲，智慧，勇气。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102626/08-18.jpg)
+外面的世界一直在变，不变的是人心。那我们如何适应呢？就如同大大小小不同形状的杯子，我们要让内心像水一样的流动，才能适应不同的环境。但是水可能会有杂质，会有冰块。杂质就是错误的观念，冰块就是我们的执着。如果能放下执着，去除杂念，我们就能变成一碗清澈的水。而如果我们能继续修行，让这碗水保持定力，不要晃动，那么这碗清澈明亮的水就会像一面镜子一样，也就是无论遇到什么事我们都能看透，犹如照妖镜一样一下抓住本质，那不就是七哥说的开启了那把钥匙了吗？
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102711/09-18.jpg)
+让我们好好学习古圣先贤留给我们的宝贵传统文化，为学日增，为道日损，损之又损，以至于无为，无为而无不为。战友们一起努力吧！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102715/10-25.jpg)
+编辑/校对：遍地开花
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+**更多资讯，更多关注**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102720/11-30.jpg)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102733/12-29-2.jpg)
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102804/13-23.jpg)
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102810/14-23-1.jpg)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102815/15-22-1.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102820/16-19-1.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

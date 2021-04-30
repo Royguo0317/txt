@@ -1,40 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国人口普查结果“难产”暴露出人口及人口红利减少的大问题
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1157351/)
+## 【有声读物】全球通胀将导致社会动荡
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1157516/)
 
-编撰：PEACEMAN ，JAY
-审核：MiYa
+配音：香草山录音组 蒙古鸿雁
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30121749/1-69-3.png)图片来自点新闻资料
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-原定4月上旬公布的第七次全国[人口普查](https://www.epochtimes.com/gb/tag/%E4%BA%BA%E5%8F%A3%E6%99%AE%E6%9F%A5.html)结果“难产”，国内外都有分析指，中国人口将在近六十年来首次下降。但是中共统计局的最新声明称，2020年人口“持续增长”。
 
-周四（4月29日）中共国家统计局在一份声明中表示，“中国人口在2020年继续增长，详细数字将在第七次[人口普查](https://www.epochtimes.com/gb/tag/%E4%BA%BA%E5%8F%A3%E6%99%AE%E6%9F%A5.html)报告中发布。”
 
-中共自1953年开始约每十年进行一次全国人口普查，2020年底已完成第七次的全国人口普查。2019年末中国内地总人口为14亿5万人，首次突破14亿。原定在今年4月上旬举行的国家统计局发布会上公布，但是至今没有正式公布。
 
-英国《金融时报》4月27日引述知情人士的消息指出，中国的最新人口普查结果显示，总人口已经跌破14亿，是约60年来首次人口下降。
 
-报导说，因为中国的总人口数“相当敏感”，中共各部门须针对相关数据与牵涉的影响达成一定的共识。因为人口红利消失，意味着将对中国的经济发展、消费力带来不利影响。
 
-《大国空巢》作者易富贤长期呼吁，中国人口危机的严重程度远远超过人们的想像。“这意味着中国的经济、社会、政治、国防、外交，包括养老政策，长期都是建立在错误的人口数据的基础上，后果是很严重的。”他在接受自由亚洲采访时说。
 
-“自由亚洲”还引用海外的异见人士韩武的话说，人口普查数据之所以敏感，可能与中国的“非正常死亡”有关，因为疫情之中的实际死亡人数远远超过官方数据，“经过疫情之后呢，他这个数字的下降或者增长非常的不准确。”
+据《零对冲》近日报道，截至周五，波罗的海每日指数（the Freightos Baltic Daily Index）评估的亚洲-西海岸即期汇率（SONAR：FBXD.CNAW）为每四十英尺当量单位（FEU）4,797美元，亚洲-东海岸汇率（SONAR：FBXD.CNAE）为每四十英尺当量单位（FEU）6,306美元，均接近历史最高点。对现货货物装船的附加保费比以前更高，比现货价格（FAK）高出2000到3000美元，这还是目前最好的情况。在价格已经飙升的情况下，全球通胀即将进入超速状态——因为领先的食品价格指标，即彭博农业现货指数达到六年来的最高水平。
 
-尽管中共已逐步放宽计划生育政策，但仍无法扭转出生率下降的情况。根据中共自己的数据，大陆多地[出生人口](https://www.epochtimes.com/gb/tag/%E5%87%BA%E7%94%9F%E4%BA%BA%E5%8F%A3.html)减少10%～30%，而且中共央行还发出严厉警告称“人口问题迫在眉睫”。
+食品是亚洲消费物价指数（CPI）篮子中的重要组成部分，并且这个居住着世界一半以上人口的地区的巨大通货膨胀冲力将导致世界工厂的工资成本上升。随着亚洲的消费物价指数（CPI）和生产者价格指数（PPI）的上升，通胀将在未来几个月内遍及全球。
 
-中共公安部的数据显示，2020年新生儿登记数仅1003.5万，较2019年大幅下降约15%。可以推算出2020年[出生人口](https://www.epochtimes.com/gb/tag/%E5%87%BA%E7%94%9F%E4%BA%BA%E5%8F%A3.html)或较2019年下降超200万。
 
-而北京市卫健委信息统计中心的数据显示，北京2020年户籍人口出生数量仅10万人，创下十年来新低，比2019年减少24.3%。
 
-今年2月26日，中共人力资源和社会保障部副部长游钧称，到2019年底，60岁及以上的人口比重已达18.1%，预计“十四五”（2021年至2025年）期间，中国老年人口将超过3亿人，从轻度[老龄化](https://www.epochtimes.com/gb/tag/%E8%80%81%E9%BE%84%E5%8C%96.html)进入到中度老龄化阶段。
+**文字版原文：[【热点播报】全球通胀将导致社会动荡](https://gnews.org/zh-hans/1150929/)**
 
-评论：中共以假治国由来已久，所以中共国的各种数据大多是有党性的政治数据，不可真信。无论如何，中共国的人口及人口红利的急剧减少将会给社会带来一系列的问题。
+作者：纽约香草山写作组     四季
 
-参考链接：[中共自称人口“持续增长” 遭外界质疑](https://www.epochtimes.com/gb/21/4/29/n12913584.htm)
 
-（文章只代表编者观点，与GENEWS平台无关）
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

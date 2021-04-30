@@ -1,47 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【健身健心】如何养成健身的习惯
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1156766/)
+## 【热点播报】反食品浪费法：中共“小快灵”立法的样板
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1156890/)
 
-作者：纽约香草山健身部 周一
+作者：纽约香草山写作组四组 唯心力行
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
-
-
-
-健身的好处不言而喻，而健身半途而废的也总会有不同的理由，健身的路上也总是胖子常说，瘦子长动。那么如何把健身变成生活的一部分呢，今天和大家分享一下几个方法。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30072944/%E5%9B%BE%E7%89%878-18-1.png)图片来源：k.sina.com.cn
-
-一、找一个喜欢的运动。健身对很多人来说既无聊又枯燥，那么先从自己喜欢的运动入手，有了兴趣才会有动力坚持。如果你喜欢跳舞，哪怕广场舞那也是一种很好的运动，让自己动起来是健身的第一步。
-
-二、 给自己定一个小目标。健身最怕急功近利，想让自己很快地变成什么什么样子。如果你想在一个月减掉十几磅或者增加几磅肌肉这样的目标对很多人来说都是不切实际的，目标达不到也就很容易半途而废。所以合理地制定一个容易实现的小目标，比如让自己每周至少一次运动每次至少十五分钟。没有压力的运动就更加容易执行下去，几个月下来也就变成了习惯。
-
-三、 准备一些喜欢的健身衣。别小看了健身衣，看着漂亮的健身衣，无论如何也要穿上美美地去健身。
-
-四、拒绝给自己找借口。健身的过程对很多人是无聊的，任何一个借口都会让你前功尽弃。一旦给了自己第一次偷懒的借口那么接下来会有更多的借口，容易放弃目标。
-
-五、想办法让健身不再枯燥。健身时可以选择听一些自己喜欢的音乐或者听书，这些简单的小方法会让健身变得不再无聊。比如小编每次户外运动时就听七哥的录播或者路德时评，健身的同时也健了心。
-
-以上就是小编自己坚持下去的经验所得，千万别让借口绊住了自己双脚。如果你觉得又累又没有时间的时候就想想七哥，他比任何人都忙比任何人都累，可是这些年他从来没有停止健身。所以战友们行动，行动，行动！
-
-校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April-2-1.jpg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
+
+[新华社北京4月29日电](http://www.npc.gov.cn/npc/c30834/202104/7f69abf4f4d84c3ea81db717c301ef22.shtml)，“反食品浪费法”历经二次审议，十三届全国人大常委会第二十八次会议29日表决通过。全国人大常委会法工委有关部门负责人表示，此项立法是中共探索“小快灵”立法的生动实践，切口小，意义重大，聚焦餐饮浪费问题有利于保障国家粮食安全，有利于弘扬中华民族传统美德和社会主义核心价值观，有利于促进绿色发展和可持续发展。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30090349/MOS2471-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E5%8F%8D%E9%A3%9F%E5%93%81%E6%B5%AA%E8%B4%B9%E6%B3%95%EF%BC%9A%E4%B8%AD%E5%85%B1%E5%B0%8F%E5%BF%AB%E7%81%B5%E6%9E%81%E6%9D%83%E6%B3%95%E5%BE%8B%E7%9A%84%E6%A0%B7%E6%9D%BF.jpg)
+
+“反食品浪费法”第一条明确了立法目的，即粮食安全、社会主义核心价值观和绿色发展，其真实目的昭然若揭。反食品浪费法与粮食安全南辕北辙，只不过为中共推卸粮食危机罪责提供了借口，是中共以假治国、以骗治国的一贯伎俩。社会主义核心价值观的实质是中共极权统治对人民的“惩罚与规训”，反食品浪费法是“规训”（奴役）人民的绝好工具。“绿色发展”是中共输出极权治理模式的幌子，妄图实现世界新秩序“大重启”。
+
+中共的“依法治国”沦为彻头彻尾的骗局和阴谋。中共领导立法，而不受法律约束。党内法规和军事法规完全架空国家法律，从毛泽东时代的政策讲话治国，到习近平时代的手谕口信电话治国，重要命令不得留下文字记录，中共从来不靠法律的“本本”治国。“反食品浪费法”是中共“依法治国”的骗局和阴谋，中共“小快灵”立法的样板，是极权统治商鞅驭民五策的计谋。
+
+校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
 [**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
