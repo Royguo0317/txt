@@ -1,46 +1,97 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共迫使英雄联盟游戏角色“瘟疫之源”改名
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1156193/)
+## 【班农战斗室】909-910-911期简讯
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1156246/)
 
-作者：蓝色| 校对：文明明 |审核：万人往 |Page：小雨
+#### 翻译：七彩光
 
-[!\[\]()!\[\](https://spark.adobe.com/page/tujNd5hW2RTVt/images/6ccf14f6-490c-4fbb-bfe4-17fd9d185a7f.jpg?asset_id=4ee595ad-c068-4868-8a65-964e276f4720&amp;img_etag=%22d8691355f5dc8c03e6cbc30b329bd863%22&amp;size=2560)](https://spark.adobe.com/page/tujNd5hW2RTVt/images/6ccf14f6-490c-4fbb-bfe4-17fd9d185a7f.jpg?asset_id=4ee595ad-c068-4868-8a65-964e276f4720&amp;img_etag=%22d8691355f5dc8c03e6cbc30b329bd863%22&amp;size=1024)
+#### 校对/编辑： 文泓
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30040838/909-910-911_.png)
+图片来源：墨尔本雅典娜农场设计组（精灵蓝）
 
-中共国内有一款流行游戏叫“英雄联盟”，其中有个角色的名称叫“瘟疫之源”。因其中文名称暗示病毒起源中共国，[曾在2020年5月的一场游戏比赛中，触动中共敏感神经，闹出过所谓的辱华风波](https://tw.news.yahoo.com/%25E4%25B8%25AD%25E5%259C%258B%25E7%258E%25A9%25E5%25AE%25B6%25E6%25B0%25A3%25E7%2582%25B8%25E5%2587%25BA%25E5%25BE%2581-%25E5%258F%25AA%25E5%259B%25A0-%25E7%2598%259F%25E7%2596%25AB%25E4%25B9%258B%25E6%25BA%2590-044520468.html?guccounter=1)。
+主持人：史蒂夫.班农
 
-[!\[\]()!\[\](https://spark.adobe.com/page/tujNd5hW2RTVt/images/a60a1042-3327-49ae-a513-f1d0724fc111.jpg?asset_id=aae8c4be-f48e-4479-bdaa-fc5e991d4ec2&amp;img_etag=%22f272082ba2c6e42fa7d0a8fc243dc971%22&amp;size=2560)](https://spark.adobe.com/page/tujNd5hW2RTVt/images/a60a1042-3327-49ae-a513-f1d0724fc111.jpg?asset_id=aae8c4be-f48e-4479-bdaa-fc5e991d4ec2&amp;img_etag=%22f272082ba2c6e42fa7d0a8fc243dc971%22&amp;size=1024)
+嘉宾：John Tamny, Carrie Liebich, Ben Bergquam, Mike Lindell, Maureen Bannon, Marjorie Taylor Greene
 
-「瘟疫之源」是中共國《英雄聯盟》官方給予圖其的稱呼。（圖／翻攝自中國英雄聯盟官網）
+**1、“我们再也无法忍受了！”：亚利桑那州的父母们携手一起反对学校董事会针对孩子们的口罩计划**
 
-[中共刚刚指使腾讯公司在测试服中将此角色的名称改掉](https://tw.news.yahoo.com/%25E8%25BF%25BD%25E6%25B1%2582%25E7%25A5%2596%25E5%259C%258B%25E5%2592%258C%25E8%25AB%25A7-%25E8%258B%25B1%25E9%259B%2584%25E8%2581%25AF%25E7%259B%259F-%25E4%25B8%25AD%25E5%259C%258B%25E6%25B8%25AC%25E8%25A9%25A6%25E6%259C%258D%25E5%25A4%259A%25E4%25BD%258D%25E8%258B%25B1%25E9%259B%2584%25E6%2594%25B9%25E7%25A8%25B1%25E8%2599%259F-084120105.html)，相信很快也会在正式服中进行修改。如果只是单单修改这一个角色，那目的就显得太明显了。所以，一同修改名称的还有另外6个角色，以掩耳盗铃的形式掩盖真实目的。所有人都知道，其主要目标就是要修改“瘟疫之源”，其他游戏角色都是无辜躺枪。
+亚利桑那州维尔地区的家长们已经受够了学校针对他们孩子的口罩暴政。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/tujNd5hW2RTVt/images/2a0b5e1f-7941-4e13-b42e-da142d292235.png?asset_id=c26eb4ce-b28e-4175-89e8-90c3484c147d&amp;img_etag=%226c0724950f3a1f8237be116d1caedcd7%22&amp;size=2560)](https://spark.adobe.com/page/tujNd5hW2RTVt/images/2a0b5e1f-7941-4e13-b42e-da142d292235.png?asset_id=c26eb4ce-b28e-4175-89e8-90c3484c147d&amp;img_etag=%226c0724950f3a1f8237be116d1caedcd7%22&amp;size=1024)七个被中共改名的游戏英雄
+凯莉·利比希（Carrie Liebich），作为一位母亲和作家，周四加入了《战斗室》，解释了父母是如何自觉自愿地站在一起迫使学校董事会成员逃离的。利比希说，家长们不会停止，直到他们召回学校董事会成员发布的对孩子们产生危害影响的口罩命令。
 
-首先，上次的辱华风波本就是一个“此地无银三百两”的笑话。“瘟疫之源”，有说源头在哪里吗？怎么就辱华了？你强烈抗议，那不是不打自招吗？这是典型的对号入座。其结果更是等于在宣扬病毒就是来自中共国，生怕别人忘掉。
+“家长们没有退缩，已经足够了”，她说：“我们孩子的自杀率增加了300%……但是20岁以下的孩子死于冠状病毒的，却没有一个。”
 
-其次，怎么早不改，晚不改，事隔快一年了才想起这事？
+针对现场的数百名抗议儿童口罩规定的家长们，学校董事会叫来了警察。亚利桑那州州长取消了口罩规定。尽管知道口罩对孩子们的健康危害比中共病毒更有害，而极左派的学校董事会主席继续强迫孩子们戴口罩。
 
-原因只有一个：病毒追责！中共已经快吓死了，所以才试图抹掉所有病毒起源的相关信息，妄图做到：骗不了别人，也要先骗自己（人）！
+“我们坚持我们的立场，用非常和平的方式”，她说：“我们很友好，很尊重，但我们站出来在那里，因为我们知道自己的权利，我们的呼声有权利被听到。”
 
-病毒追责，是灭掉中共的唯一途径，是中共亲手给自己挖的坟墓。“文字狱”是假象，害怕病毒真相被揭穿才是其真实的目的。中共干的事，常常会适得其反，欲盖弥彰，让大家更进一步看清楚他们做贼心虚的嘴脸。
+“而他们却跑了，”利比希说。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/tujNd5hW2RTVt/images/35405900-72a9-4513-8d17-20b0d118d913.png?asset_id=a22964f2-7a02-4ee6-810c-33130677d0b4&amp;img_etag=%22a6ed29eb11cb323ed2584b61efab6a00%22&amp;size=2560)](https://spark.adobe.com/page/tujNd5hW2RTVt/images/35405900-72a9-4513-8d17-20b0d118d913.png?asset_id=a22964f2-7a02-4ee6-810c-33130677d0b4&amp;img_etag=%22a6ed29eb11cb323ed2584b61efab6a00%22&amp;size=1024)
+利比希说，这场运动开始时只有两位家长，但很快校董成员就被韦尔地区志同道合的家长们所淹没。利比希鼓励各地的父母们也这样做。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/tujNd5hW2RTVt/images/db622fdc-331f-43da-b7f0-b860ed7e157e.png?asset_id=9431429f-8396-4da3-9c62-fbd9381bf785&amp;img_etag=%224d55ac0c4f41e26c98cf9c2b2ba7f324%22&amp;size=3168)](https://spark.adobe.com/page/tujNd5hW2RTVt/images/db622fdc-331f-43da-b7f0-b860ed7e157e.png?asset_id=9431429f-8396-4da3-9c62-fbd9381bf785&amp;img_etag=%224d55ac0c4f41e26c98cf9c2b2ba7f324%22&amp;size=1024)
+“我们需要表明立场”，她说：“找到另一个同意你想法的家长，因为他们已经在那里。这里开始时只有两个家长，但现在我们有数以百计的家长加入我们。”
 
-***文章仅代表个人观点***
+“我们受够了（学校的做法）”，利比希说：“人们已经无法忍受，你们只需要站出来。”
 
-编辑：【英国伦敦喜庄园编辑部】
+利比希说，下一步行动是收集足够多的签名，以召回并罢免至少两名反对家长选择的学校董事会成员。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+“没有任何逻辑，仅仅关于是权力和控制，他们想控制我们的孩子”，她说：“而且他们已经说得很清楚，父母没有权利（推翻口罩规定）。”
 
+“我们的孩子正在死于你们的疫情缓解计划”，她说：“我们不再接受该计划。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/tujNd5hW2RTVt/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/tujNd5hW2RTVt/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+班农说，这可能是世界上（针对疫情缓解计划）打响的第一枪。
 
+“这就是开始”，班农说：“亚利桑那州的韦尔地区是发起这项运动的地方。”
 
+#### 2、讽刺：在卡特尔们随意通过的开放边境，联邦调查局以“非法入侵”为由骚扰记者
+
+《真实美国之声》记者本·伯格夸姆（Ben Bergquam）在边境现场报道时，联邦调查局以“非法入侵”为由对他进行骚扰，而就在同一个地方，卡特尔们直接无障碍通过。
+
+伯格夸姆在拜登政府停止修建川普总统边境墙的地方加入了《战斗室》，告知观众该地方大门敞开，任何人都可以随意走入美国境内。
+
+拉希姆·卡萨姆（Raheem Kassam）说：“这不是一堵墙的终点，而是一个国家的边境。”
+
+班农说：“这是美国主权的结束（边界），这是乔·拜登在说‘不，你的主权不重要，你的健康也不重要。’”
+
+（备注：这里指边境的非法移民，以及中共病毒携带者通过边境混入美国。）
+
+#### 3、迈克·林德尔在吉米·坎摩尔节目中获得好评：让真相大白于天下的“游戏改变者”
+
+迈克·林德尔（Mike Lindell）刚刚在吉米·坎摩尔（Jimmy Kimmel）的节目中成功亮相，在节目中，这位“我的枕头（My Pillow）”首席执行官阐述他关于选举舞弊的观点。
+
+“他读过我的书，他们说他手不释卷”，林德尔说：“这让我在上场前感到平静。他是所有主持人中我觉得很舒服的一个。”
+
+“他真的伸出手来和我握手，”林德尔说。
+
+采访结束后，工作人员要求合影拍照。出现在录制现场的抗议者们实际上都是支持林德尔的，以及支持他的新社交媒体平台弗兰克(FrankSpeech.com)。
+
+“当我离开那里时，这些抗议者们都在那里”，林德尔说：“我抬头一看，一片人海，他们说‘弗兰克（FrankSpeech.com）将拯救美国’。”
+
+“我（对司机）说快停车，我想出去！”他说。
+
+拉希姆·卡萨姆在油管（YouTube）上看了林德尔在吉米·坎摩尔节目中获得的好评，观众们称赞它是一档“我们非常及时有效的访谈”。
+
+在短短几个小时内，林德尔的访谈节目观看次数60万次，2万个赞。相比之下，乔·拜登周三在白宫油管（YouTube）主频道的讲话只有2.2万次观看，438个赞，5300个踩。
+
+林德尔说，这次采访打破了左派媒体（垄断）的防火墙，并将成为让真相大白于天下的“游戏改变者”。
+
+他说：“昨晚真的是扭转局面，开始让我们的声音被听到，”
+
+林德尔说，他仍然相信唐纳德·川普总统会在8月回到白宫，并暗示有三个途径可以推翻舞弊选举结果。
+
+“你是说川普总统将在2024年回归”，林德尔说：“顺便说一句，我还是坚持在今年8月（回归）。”
+
+“我也认为要提前了，”班农说。
+
+参考资料：[维基百科](https://www.wikipedia.org/)
+
+原文链接：
+
+1.  [‘We’re Not Taking it Anymore!’: AZ Parents Band Together Against Kid Mask Mandate, Ed Board Runs](https://pandemic.warroom.org/2021/04/29/were-not-taking-it-anymore-az-parents-band-together-against-kid-mask-mandate-ed-board-runs/)
+
+2.  [IRONY: Feds Harass Reporter for ‘Trespassing’ at Wide Open Border Where Cartels Walk Through](https://pandemic.warroom.org/2021/04/29/irony-feds-harass-reporter-for-trespassing-at-wide-open-border-where-cartels-walk-through/)
+
+3.  [Mike Lindell Gets Rave Reviews on Jimmy Kimmel: ‘Game Changer’ on Getting Truth Out](https://pandemic.warroom.org/2021/04/29/mike-lindell-gets-rave-reviews-on-jimmy-kimmel-game-changer-on-getting-truth-out/)
 
 0
