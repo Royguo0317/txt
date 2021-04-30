@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（五）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1156792/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（六）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1156836/)
 
 作者：纽约香草山信息部 6zero4
 
@@ -10,90 +10,120 @@
 
 
 
-3月17日塞林博士的推文：转发Joe Hoft昨天刚刚发表在Gateway Pundit的一篇文章“中共对美国病毒研究实验室的大规模渗透”，表达当下中共军方对美国病毒研究实验室里没有不熟知的事情的担忧。
+3月30日塞林博士的2个推文：首先转发了秘密翻译组剪辑的一个短视频，在接受媒体采访中亲自肯定了美国前CDC主任“病毒来自武汉实验室”的说法。第二推：中共有一个军民融合的生物研究项目，其中包括生物战及为此获得相关技术支持的积极行动，所有这些项目均由相互关联的关键人物在推动，并贴出了陈薇、周育森、姜世勃和高福的照片。（陈薇浮出水面）
 
 
 
-> Today there is virtually nothing happening in U.S. virus research laboratories about which China’s military is not intimately aware.
-> 
-> US Military[@GordonGChang](https://twitter.com/GordonGChang?ref_src=twsrc%5Etfw) [@RealPNavarro](https://twitter.com/RealPNavarro?ref_src=twsrc%5Etfw) [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusVaccine](https://twitter.com/hashtag/CoronavirusVaccine?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/QcwkdyuJSp](https://t.co/QcwkdyuJSp)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [March 16, 2021](https://twitter.com/LawrenceSellin/status/1371912819747254275?ref_src=twsrc%5Etfw)
-
-
-
-3月20日塞林博士的推文：转贴了第四军医大学军事预防医学院军队流行病学教研室徐德忠、张磊和孙慧敏联合发表在国内网站“知网”的一篇文章“SARS CoV非自然起源”的链接，和一张标有GTV和香草山农场Logo，写有“我们必须面对冠状病毒是生物武器的真相，全世界正处在与CCP的超限生物战争中”的英文图片。
-
-
-
-> In 2013, scientists at the Fourth Military Medical University of the People's Liberation Army in Xi'an, China claimed that the first SARS pandemic 2002-2003 was of "unnatural origin"[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaVaccine](https://twitter.com/hashtag/CoronaVaccine?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/yC3XbkBUPl](https://t.co/yC3XbkBUPl) [pic.twitter.com/0JIhhW2r68](https://t.co/0JIhhW2r68)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [March 20, 2021](https://twitter.com/LawrenceSellin/status/1373238472450920449?ref_src=twsrc%5Etfw)
-
-
-
-3月21日塞林博士的推文：转发了1篇由张金勇(Jinyong Zhang, 音译) 、曾昊(Hao Zeng , 音译) 、古江(Jiang Gu , 音译) 、李海波( Haibo Li, 音译) 、郑立新(Lixin Zheng , 音译)和邹泉明( Quanming Zou, 音译) 6位中共病毒科研工作者10天前联合投稿在MDPI的一份科学报告“SARS-CoV-2疫苗开发的进展和展望”，当下无法找到比这更有趣的事情了，譬如有些在福奇的NIAID实验室工作的人，一直在与中共军方研究中心合作并制造出COVID-19病毒（请看闫博士的第一份病毒报告）。
-
-
-
-> Haven't found much interesting today except someone working in Dr. Anthony Fauci's NIAID lab, who was collaborating with a Chinese military research center linked to the creation of the [#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw) virus. (see Dr. Yan's [https://t.co/zhzjFBkOa2](https://t.co/zhzjFBkOa2))[#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/rXUGuwl2zI](https://t.co/rXUGuwl2zI)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [March 21, 2021](https://twitter.com/LawrenceSellin/status/1373649452142051328?ref_src=twsrc%5Etfw)
-
-
-
-3月22日塞林博士的推文：转发自己本月3日做客Joe Hoft的Gateway Pundit后发表在CCNS的客座文章“2020年5月，美国科研机构为中共军方举行新冠疫情事实通报会”，痛心于那些愚蠢的美国同胞，2019年当选为美国科学院院士的中共CDC主任高福，以及与制造COVID-19病毒实验室直接相关的王长军，都与中共军方有长期而深入的合作。（王长军浮出水面）
-
-
-
-> Stupid Americans. George F. Gao, head of China's CDC, who was elected to the U.S. Academy of Science in 2019, has a deep and long-term collaboration with China's military , including labs implicated in the creation of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) (Changjun Wang)[#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/2YbIZVzJPy](https://t.co/2YbIZVzJPy)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [March 22, 2021](https://twitter.com/LawrenceSellin/status/1373938290982801409?ref_src=twsrc%5Etfw)
-
-
-
-3月23日塞林博士的推文：转贴了一段来自GTV的视频链接，视频描述了WIV（王林发）公开承认他们收集并重建了蝙蝠冠状病毒序列，进而利用基因工程改变病毒序列以产生新的冠状病毒，COVID-19就是其中成果之一。并附上一张来自GTV和Gnews的含“CCP病毒来自WIV，生物武器计划”的英文文字图片。
-
-
-
-> Wuhan Institute of Virology admits they collect bat coronavirus sequences, re-constructs them and alters them using genetic engineering to create new coronaviruses.[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) is one of them. Watch video.[#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/aApIVi9REZ](https://t.co/aApIVi9REZ) [pic.twitter.com/S6KIaNjs4F](https://t.co/S6KIaNjs4F)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [March 22, 2021](https://twitter.com/LawrenceSellin/status/1374039095261982727?ref_src=twsrc%5Etfw)
-
-
-
-3月24日塞林博士的推文：转发了Joe Hoft刚刚发表在Gateway Pundit的文章“独家重磅：COVID-19疫情的源头已确定—-位于武汉的两个生物武器基地之间”，根据中共国自己的数据记载，COVID-19疫情最初的感染爆发点就在WIV和生物制剂研究所之间4英里的一个武汉居民区。
-
-
-
-> According to China’s own data, the original hot spot for [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) infections occurred in a residential area in the four miles between the Wuhan Institute of Virology and the Biological Preparations Institute. [#CovidVaccine](https://twitter.com/hashtag/CovidVaccine?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/xt6eVyODUC](https://t.co/xt6eVyODUC)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [March 24, 2021](https://twitter.com/LawrenceSellin/status/1374714648717631490?ref_src=twsrc%5Etfw)
-
-
-
-3月26日塞林博士的2个推文：转发了2篇文章，一篇是Rowan Jacobsen昨天刚刚发表在Newsweek的文章“可能是人类而不是动物将COVID-19病毒带到武汉，与中共国说法恰恰相反”，更多证据证明病毒来自实验室，起源于现在正在推崇来自冷冻食品的荒谬观念的中共的臭皮匠彼得·打杂客(Peter Daszak)，昭示着病毒来自自然的理论不堪一击。另一篇是Aidan Mclaughlin今天刚刚发表在Mediaite的文章“前美国CDC主任(Robert Redfield)表示，相信冠状病毒‘逃离’了武汉实验室”，这是科学界病毒溯源过程中巨大的突破。（打杂客浮出水面）
-
-
-
-> More evidence [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) came from a laboratory. Showing just how weak the naturally-occurring theory of [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw)'s origin is, Peter Daszak, Chinese Communist Party stooge, is now pushing the ridiculous notion it came from frozen food.[#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#DRASTIC](https://twitter.com/hashtag/DRASTIC?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/NaiY3nvbBe](https://t.co/NaiY3nvbBe)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [March 26, 2021](https://twitter.com/LawrenceSellin/status/1375413007250026496?ref_src=twsrc%5Etfw)
+> COVID-19 came from a laboratory in China[@RealPNavarro](https://twitter.com/RealPNavarro?ref_src=twsrc%5Etfw) [@RaheemKassam](https://twitter.com/RaheemKassam?ref_src=twsrc%5Etfw) [#Biden](https://twitter.com/hashtag/Biden?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaVirusUpdates](https://twitter.com/hashtag/CoronaVirusUpdates?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#ContemporaryGeneticWeapon](https://twitter.com/hashtag/ContemporaryGeneticWeapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPLiedPeopleDied](https://twitter.com/hashtag/CCPLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/IPuklvj4M7](https://t.co/IPuklvj4M7)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [March 29, 2021](https://twitter.com/LawrenceSellin/status/1376565324942864394?ref_src=twsrc%5Etfw)
 
 
 
 
 
-> HUGE BREAKING: Former Director of the U.S. Centers for Disease Control (CDC) Says He Believes Coronavirus ‘Escaped’ From Wuhan Lab[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#DRASTIC](https://twitter.com/hashtag/DRASTIC?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#ContemporaryGeneticWeapon](https://twitter.com/hashtag/ContemporaryGeneticWeapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPLiedPeopleDied](https://twitter.com/hashtag/CCPLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/HTW5kvdkQ2](https://t.co/HTW5kvdkQ2)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [March 26, 2021](https://twitter.com/LawrenceSellin/status/1375450663904231424?ref_src=twsrc%5Etfw)
+> The Chinese Communist Party has an integrated military-civilian biological research program that includes biowarfare & aggressive efforts to acquire international technology & knowledge that feeds into the CCP program, all facilitated by key inter-connected individuals[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/TJuo0nGTzK](https://t.co/TJuo0nGTzK)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [March 30, 2021](https://twitter.com/LawrenceSellin/status/1376893325077254144?ref_src=twsrc%5Etfw)
 
 
 
-3月27日塞林博士的推文：向粉丝公告自己即将接受Steel Truth直播平台探讨COVID-19病毒实验室起源真相的采访。
+3月31日塞林博士的推文：一个与二战时英国在布莱切利公园的破译中心之SIXTA项目相似的网络分析系统，正用于识别与COVID-19病毒相关的中共军民融合之核心领域，如病原体与生物安全国家重点实验室，解放军302和193医院，并贴出了两张照片，一张是解放军军事医学科学院北京生物工程研究所所长和拟定的中共生物战项目负责人陈薇少将，另一张是重庆第三军医大学免疫研究所的所长吴玉章。（吴玉章浮出水面）
 
 
 
-> Interview with Dr. Lawrence Sellin about the laboratory origin of COVID-19 (March 26, 2021, 23:30 – 33:45)[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#DRASTIC](https://twitter.com/hashtag/DRASTIC?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#ContemporaryGeneticWeapon](https://twitter.com/hashtag/ContemporaryGeneticWeapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPLiedPeopleDied](https://twitter.com/hashtag/CCPLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/DOnICvT1KV](https://t.co/DOnICvT1KV)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [March 27, 2021](https://twitter.com/LawrenceSellin/status/1375759612033531909?ref_src=twsrc%5Etfw)
+> A network analysis system similar to SIXTA from British WW2 codebreaking center, Bletchley Park, being used to identify China's military-civilian centers linked to [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) e.g. State Key Laboratory of Pathogen and Biosecurity, PLA Hospitals 302 & 193.[#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/FGQla5eVlN](https://t.co/FGQla5eVlN)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [March 31, 2021](https://twitter.com/LawrenceSellin/status/1377121502928142337?ref_src=twsrc%5Etfw)
 
 
 
-塞林博士痛心疾首于美国科研机构的有些同胞荒唐愚蠢至极，竟然与邪恶的中共军方生物武器项目合作，一年前还帮中共军方举行新冠疫情事实通报会，扼腕叹息美国病毒研究实验室已经被中共军方彻底俘虏，尤其是“打杂客”这个与魔共舞的美奸之无耻嘴脸展露无遗。进一步展示了中共军方很早就已经在进行冠状病毒及其疫苗的理论研究和产品开发的证据，而且中共自己的一篇文章“SARS CoV非自然起源”更是确凿了SARS类冠状病毒不可能来自自然的铁证。可喜的是前美国CDC主任Redfield正式表示冠状病毒来自武汉实验室，这是科学界病毒溯源舆论转向的另一个里程碑事件！
+4月1日塞林博士的推文：转发了自己与Joe Hoft刚刚联合发表在Gateway Pundit的文章–“是的，COVID-19就是来自中共的生物战袭击”，新冠病毒正是中共政策及其行动的结果，是一种投机取巧的生物恐怖主义。
 
-塞林博士日拱一卒，稳步推进，将自己掌握的所有关于COVID-19病毒的军情情报，结合中共国自己曾经在公共网络发布的文章和视频，进行了系统的分类整理，按时间顺序由轻到重、由浅而深、循循善诱，并适时将全世界有关病毒真相揭秘的热点接入，联合作战，不断壮大正义联盟的舆论力量，形成以塞林博士自己掌握的军情线索为主线的病毒溯源之西方主战场，将全世界追求病毒真相的亿万人民的热情和注意力充分调动起来，势将掩盖病毒真相的惊天铁幕砸碎！
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) is the product of policies and actions undertaken by the Chinese Communist Party, a form of “Opportunistic Bioterrorism”[#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#DRASTIC](https://twitter.com/hashtag/DRASTIC?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/h2MKUEo10h](https://t.co/h2MKUEo10h)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 1, 2021](https://twitter.com/LawrenceSellin/status/1377645482391011333?ref_src=twsrc%5Etfw)
+
+
+
+4月4日塞林博士的2个推文：第一推，COVID-19病毒很可能预先通过“人源化”动物模型的连续传代并已经适应人类感染了，并贴出了邓宏魁(Hong-kui Deng)和秦川(Chuan Qin)的照片。第二推，姜世勃是COVID-19病毒之福林酶切位点源头的关键人物，其研究始于SARS疫情后的2007，并于2013年通过基因成功插入4aa福林酶切位点，随后高福在2015年将S1-S2 福林酶切位点列入SARS类冠状病毒的“愿望清单”中，这些课题都与中共军方相关，并再次贴出了姜世勃和高福的照片。（邓宏魁和秦川浮出水面）
+
+
+
+> The [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) virus was likely pre-adapted for human infection by serial passage through "humanized" animal models 
+> To explore such capabilities, begin here[#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#DRASTIC](https://twitter.com/hashtag/DRASTIC?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/uhjk1AQDMu](https://t.co/uhjk1AQDMu)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 3, 2021](https://twitter.com/LawrenceSellin/status/1378392745170112513?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Shibo Jiang, a key link in the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) 's furin cleavage site (FCS), began with SARS in 2007, genetically inserted a 4aa FCS in 2013. In 2015, a S1-S2 FCS was on Gao Fu's "wish list" for SARS-like coronaviruses. From those articles, follow the military links.[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1h7wufTpzG](https://t.co/1h7wufTpzG)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 4, 2021](https://twitter.com/LawrenceSellin/status/1378725944098238472?ref_src=twsrc%5Etfw)
+
+
+
+4月5日塞林博士的3连推：第一推，COVID-19的起源离不开北京微生物&流行病学研究所(BIME)、中共军事医学科学院(AMMS)和中共国疾病预防控制中心(CDC)的联合领导，贴出了陈薇、周育森、姜世勃、高福、谭文杰、袁国勇、郭德银和石正丽8人的照片。第二推，COVID-19病毒起源范围已经缩小到与中共军方关联的P2-P3级病毒研究相关的位置和个人，并贴出一张标识着武汉水果湖街道附近的“东湖大厦”的地图图片。第三推，毫无疑问，陈薇少将就是拟定的中共生物战项目的负责人，并再次贴出了陈薇、周育森、姜世勃、高福、谭文杰、袁国勇、郭德银和石正丽8人的照片，这些人都曾为军方工作过，表明在中共国民用和军事研究之间没有区别。（谭文杰、袁国勇和郭德银浮出水面）
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)'s origin – leadership at Beijing Institute of Microbiology & Epidemiology, Academy of Military Medical Sciences & Chinese Center for Disease Control and Prevention with the same names popping up.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/CL17NY5QXf](https://t.co/CL17NY5QXf)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1378972629831454721?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)'s origin – Initial outbreak epicenter has now been narrowed to locations and individuals associated with military-related P2-P3 level virology research. [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/xs8RihMO0d](https://t.co/xs8RihMO0d)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1378983513232449539?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Make no mistake, Maj. Gen. Wei Chen is presumed head of the CCP biowarfare program & everyone shown has worked with the military. In China, there is no distinction between civilian and military research.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/luEHWbcH2F](https://t.co/luEHWbcH2F)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1379000079768510467?ref_src=twsrc%5Etfw)
+
+
+
+4月6日塞林博士的5连推：第一推，有迹象表明COVID-19可能泄露于动物实验中心的动物实验，武汉大学动物实验中心ABSL-3实验室成为焦点区域，并贴出标注了该实验室的地图图片。第二推，转发了Andrew Kerr在2天前发表在Daily Caller的文章“美国资助增强蝙蝠类冠状病毒为骨架的研究向武汉实验室拨款的事情，从未经卫生与福利部的审查”，美国的政府官员和科学家正试图掩盖中共病毒实验室起源的真相，因为他们(福奇、打杂客)正是直接导致病毒产生的利益相关方。第三推，经过与SIXTA类似的网络系统分析，正在将相关专业知识与武昌本地疫情爆发中心关联起来，并贴出了郭德银、石正丽、李放和邬开朗4人的照片。第四推，中共有一个军事相关的国内外研究网络，一些人就在美国工作，甚至是与新冠病毒起源息息相关的美国公民，并贴出了石正丽给李放颁奖的合照。第五推，这四人已经人赃俱获，武汉大学的邬开朗，冠状病毒人类结合专家、合作研究员郭德银和李放，以及合作研究员“蝙蝠女”石正丽。（李放和邬开朗浮出水面）
+
+
+
+> There are indications that [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) might have leaked during animal testing at the Center for Animal Experiment, Animal Biosafety Level-III Laboratory Wuhan University, 武汉大学动物实验中心ABSL-3实验室, which is in the hot zone.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/GnGm7LAVEV](https://t.co/GnGm7LAVEV)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1379115533887537154?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> There are U.S. government officials and scientists, who are trying to cover-up the lab origin of the CCP's [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) because they are implicated in its creation – Anthony Fauci, Peter Daszak.[#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/3rO5mSKF4X](https://t.co/3rO5mSKF4X)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 6, 2021](https://twitter.com/LawrenceSellin/status/1379284279985897475?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Research network analysis similar to SIXTA from British WW2 codebreaking center, Bletchley Park, used to identify the laboratory origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) – Linking expertise to a local release in the Wuchang epicenter.[#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/pRgBxI9M0t](https://t.co/pRgBxI9M0t)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 6, 2021](https://twitter.com/LawrenceSellin/status/1379437072763609090?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Chinese Communist Party has a military-related domestic and international research network, some of whom work in the U.S. and may be U.S. citizens who are linked to the laboratory origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/0u16BdeLc2](https://t.co/0u16BdeLc2)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 6, 2021](https://twitter.com/LawrenceSellin/status/1379447548058988552?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Kailang Wu, Wuhan University, near the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) outbreak epicenter & research collaborator of Deyin Guo & Fang Li, coronavirus human binding expert and collaborator with bat woman Zheng-Li Shi, identified (hat tip to [@Hlu28849973](https://twitter.com/Hlu28849973?ref_src=twsrc%5Etfw))[#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/UzoyG2d8r4](https://t.co/UzoyG2d8r4)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 6, 2021](https://twitter.com/LawrenceSellin/status/1379459492077797384?ref_src=twsrc%5Etfw)
+
+
+
+塞林博士在这个期间的推文内容里面，进一步揭示了中共军民融合的生物战项目深度融合了美国病毒研究的资金和技术，通过“人源化”动物模型的连续传代，以蝙蝠类冠状病毒为骨架，以基因编辑和改造手段在动物试验中将改造的冠状病毒做到直接适应人类感染，这就是COVID-19疫情爆发近一年半且科技如此发达的今天仍然找不到病毒的中间宿主的原因，是病毒来自实验室的铁证，是赤裸裸的反人类生物恐怖主义！
+
+塞林博士在此期间曝光了不少参与COVID-19病毒研究的中共科研人员，尤其是将拟定的中共生物战项目负责人陈薇少将浮出水面，大戏出台前的铺垫陆续到位，让我们屏住呼吸静待收网时刻的到来！
 
 校对/发稿：雪梨
 

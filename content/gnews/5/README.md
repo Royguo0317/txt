@@ -1,55 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210429（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1157041/)
+## 【各抒己见】邻国日本曾经发生的儿童砍杀事件
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1157169/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+作者：喜马拉雅樱花团 / 盐和光
+
+![](https://lh5.googleusercontent.com/Gvu_uYRGExPk8D3_vgCYi7xCpdnAxzx2IkXEEZIMKZcjMvjfB7ggBIRW8QKjCrS1P9SQAdBqTT-4gXvuV30Hzzm5ci1UTu6ZEomhd84PoQmLgnHedRIRPZRxfHmTT7ADJQt-r3_9)
+[图片来源](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a5/Osaka_Kyoiku_University_Ikeda_elementary_school.jpg/1280px-Osaka_Kyoiku_University_Ikeda_elementary_school.jpg)
+
+伤痕累累的孩子们躺在医院里，可能被打上了“病危”，可能在急症室中危在旦夕。他们不明白为何突遭袭击？又为何无缘无故灾难降临？我们不妨看看邻国的日本，他们也曾发生过儿童砍杀事件，看看他们对事件的处理…
+
+2001年6月，一个叫宅间守的日本人，拿着一把菜刀溜进池田小学，在那十分钟后，整个学校被死亡笼罩！令人唏嘘不已。
+
+看到小孩，他马上挥起屠刀，一个冷血的杀人恶魔！两个女老师站在他的面前，没有逃命，勇敢地站在了他的面前。女老师胸口被他刺了一刀，可女老师仍然抓住他，并使劲地向后面的孩子喊道：“跑！你们跑吧！”随后校长和体育老师一起赶到，最终将宅间守制服。
+
+池田小学无差别杀人，造成8死21伤，这8个死者，全是无辜的孩子。事件之后，日本人都干了些什么？是麻木不仁？还是等着伤口愈合？没有！没有！大家都采取了行动！
+
+警察逮捕了宅间守，他自称是精神病。众所周知，为了逃避法律制裁，精神错乱是最佳借口。警方找到了一系列证据，证明他意识清楚，试图利用精神错乱逃避责任。代理该案的检察官早川幸延，哭泣着向受害儿童的父母保证：“即使拼了这一命，我必须给他判死刑。”
+
+在被拘留期间，在法庭之上，宅间守没有一丝悔意，他还冷血的向着遇难儿童的家长讽刺道：“每天的交通事故都会死很多人，这件事和车祸并无二致。”事实上，从冲进学校砍杀孩子开始，宅间守已准备好去死，人们不禁要问，他为什么这么残忍？
+
+“我本想自杀，但我自己无法下决心，因为自杀者是很痛苦的。因此，杀掉了那些孩子，处死那些孩子，让警察痛快地打死我吧。”
+
+死对他来说是一种解脱，可他万万没有想到，法院竟然把他关进了黑暗的监狱。判决的结果虽显而易见，但却迟迟不判，直至2003年终于宣判死刑。可宣判之后又迟迟不执行，超过了明确规定的死刑执行时间。
+
+这一切使他生不如死，受尽折磨，思想一天天地崩溃。他甚至多次提出诉讼：“我要死！我要死了！拜托各位，等着死，真是一件很痛苦的事。”
+
+2004年9月14日，宅间守才终于离开了人世，他没有想到，死亡，是一件如此艰难的事情。
+
+除了司法机关，日本社会各界也都在努力着！
+
+为了让池田小学幸存的孩子们能够暂时忘记伤痛，职业足球俱乐部“大阪Gamba”特地组织起足球教室，让孩子们把注意力转移到足球上，俱乐部的每场足球比赛，都邀请孩子们免费观看。
+
+日本教育部则对8名受害者家属，发放了4亿日元赔偿金，鼓励他们坚强地活下去。
+
+杀人犯宅间守未被视为精神病，但因这件事日本的许多社会团体，对精神病人犯罪非常重视，并推动日本颁布了新法：精神病犯杀人罪，抢劫罪，强奸罪；会被关进精神病医院，通过观察和治疗，阻止它们再次危害社会。
+
+池田小学的做法更是令人敬佩，他们没有将此事件视为学校的污点进行掩埋、遮盖、遗忘，而是选择了永远铭记！
+
+每年的6月8日，池田小学都会举行悼念仪式，一是怀念不幸的孩子，二是为了警醒整个社会。2006年，在经历了苦难的孩子们的毕业之际，池田小学还特地向8名遇难的孩子授予了毕业证书。
+
+而从池田小学开始，日本的中小学、幼儿园、托儿所全部行动起来，建立了有效保护孩子的机制！给学校安装摄像头，让外人无法轻易进入。甚至连家属想进入校内，都得仔细核对信息。并且每个教室都配备了，催泪喷雾、钢叉等武器，对孩子的安全又上了第二层保险。
+
+学校还专门设立了安全课，指导孩子逃生、防范的技术等等，让他们很小就懂得什么是危险，并且碰到危险时，可以条件反射做出反应。
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102445/01-20.jpg)
+*免责申明：本文只代表作者观点，与GNews网站无关。*
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102449/02-21.jpg)
+*校对：喜马拉雅东京樱花团 / 文小白*
+*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
+*发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/二维码-2.jpg)
+0429C139c
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102455/03-20.jpg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102501/04-22.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102529/05-1-1.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102533/05-2-1.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102540/05-3-1.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102547/05-4-1.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102612/06-18.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102618/07-18.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102626/08-18.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102711/09-18.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102715/10-25.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102720/11-30.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102733/12-29-2.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102804/13-23.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102810/14-23-1.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102815/15-22-1.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102820/16-19-1.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
 
 0

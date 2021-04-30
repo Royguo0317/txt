@@ -1,39 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 林昭，在黑暗中为我们每一个人追求光明
-` Hezekiah` [轉載自GNews](https://gnews.org/zh-hans/1156997/)
+## 慧眼看世界20210429（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1157041/)
 
-*【以下内容由发布者个人引用自互联网，以供读者自行品读思考，其中观点不代表G-News平台意见】*
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-**作者：满华微语**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30100604/404-2021-04-30-Linzhao-coverphoto.jpg)图片来自网络
-53年前，林昭因[1]坚持说真话、反对个人崇拜等而献出了年轻的生命。她是为我们每一个人生活在阳光下而被永远锁入无尽的黑暗，她是为我们每一个人的自由而被剥夺宝贵的自由。当我们还不能理解这一点时，对她的一切纪念和赞誉，都是苍白而脆弱的。
 
-刚读到林昭的校友、作家沙光今天发表的《挽歌中的圣女》[2]，兹引其中几句：
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-活在你的衣冠冢外面，
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102445/01-20.jpg)
 
-我们都是自由的罪人。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102449/02-21.jpg)
 
-目视你被夺杀的肉体，
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102455/03-20.jpg)
 
-阻不住人们出卖灵魂。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102501/04-22.jpg)
 
-黑夜扭臀小跑，
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102529/05-1-1.jpg)
 
-太阳梁脊折断，
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102533/05-2-1.jpg)
 
-丛林逐灭良善
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102540/05-3-1.jpg)
 
-人们用松动的假牙笑谈灾难。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102547/05-4-1.jpg)
 
-是的，当黑夜得意地扭起臀来的时候，任何在黑暗里行动失灵却赞美黑夜扭臀舞姿的人，都是光明的弃行动失灵却赞美黑夜扭臀舞姿的人，都是光明的弃儿，不做自由的罪人。这，是对林昭最好的纪念。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102612/06-18.jpg)
 
-【注：参考链接和图片为发布者添加】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102618/07-18.jpg)
 
-参考链接：
-[1] [林昭 维基百科，自由的百科全书](https://zh.wikipedia.org/wiki/%E6%9E%97%E6%98%AD)
-[2] [沙光 丨 挽歌中的圣女请接纳我们无言的泪水](http://www.360doc.com/content/20/0428/21/12810717_909092585.shtml)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102626/08-18.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102711/09-18.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102715/10-25.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102720/11-30.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102733/12-29-2.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102804/13-23.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102810/14-23-1.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102815/15-22-1.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102820/16-19-1.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0

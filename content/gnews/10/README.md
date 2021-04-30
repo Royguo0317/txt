@@ -1,19 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 波士顿联邦法院指控覃树人替中共南海舰队非法取得声纳系统
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1156982/)
+## 澳洲船业巨头撤出中共国，加强与美国合作的势头
+` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1156993/)
 
-台湾宝岛农场 Amitofu
+作者:【默凡】
 
-美国波士顿联邦法院4月28日，指控麻萨诸塞州的海洋生物学家覃树人，由于覃树人与人民解放军长期紧密合作，密谋替在商务部实体名单上的西北工业大学军事研究所，非法采购价值超过10万美元的60具军用遥控侧扫声纳系统，替解放军购买海洋敏感技术，用于发展军事无人水下航行器、无人水面航行器、机器人船和水中声纳，最终交付中共的南海舰队和海军潜艇学院使用。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30094909/ccprussia-333x225.jpg)
-覃树人在2014年通过EB-5移民投资签证进入美国，并在美国建立青岛领海海洋仪器有限公司LinkOcean Technologies LTD。替解放军从美国加拿大和欧洲进口军用海洋用途的商品和技术，但未获得美国批准出口许可证，并隐瞒提交出口给解放军的信息，除了从事非法出口、走私洗钱、签证欺诈等10项指控外，2017年调查人员发现到覃树人的目标是美国海军用于军事用途反潜作战目的的声纳浮标，这是他非法出口的计划。本文仅代表个人立场
+**大纪元4月30日报道[1]：澳大利亚国防出口业巨头Austal造船公司决定出售广东省中澳合资造船厂40%的股份，Austal将转向与美国或东南亚其他国防和商业伙伴合作。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102314/6834613E-726C-4521-96C2-0FBE4991CAE1.jpeg)
+西澳Austal造船公司于2016年与中国江龙船艇科技股份有限公司合资成立澳龙船艇科技有限公司，主要生产高性能铝合金船艇产品，Austal公司负责提供设计与建造技术。近日，中国江龙船艇科技股份有限公司发布公告说，该公司于4月22日与Austal公司签署了意向书，将收购Austal在澳龙船艇持有的40%股份，双方同意最迟在今年10月31日之前完成股权转让交易。
 
-[Chinese National Pleads Guilty to Illegal Exports to Northwestern Polytechnical University](https://www.justice.gov/opa/pr/chinese-national-pleads-guilty-illegal-exports-northwestern-polytechnical-university)
+Austal公司认为退出的理由是，造船业务发展没有达到5年前成立合资公司的预期，Austal公司将进入美国钢铁造船业，以及发展我们在东南亚的国防和商业业务，所以我们无法给予奥龙合资公司发展所需的关注和资金。Austal公司还与美国军方展开多个项目的合作。
 
-审核:Athena雅典娜 发布:Amitofu
+在中澳两国关系不断恶化之际，澳洲本土企业在战略基础设施领域正面临联邦政府的严格审查，澳洲政府正在逐渐清除中共国对澳洲的渗透，尤其在战略基础设施领域，防止中共国利用军民融合项目从澳洲窃取重要的情报信息。
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+在过去一年中，中澳两国贸易陷入历史冰点，两国矛盾越来越深，澳洲企业纷纷响应政府号召，开始撤离中共国，Austal公司此次撤出中共国，无疑让本来就萧条的中共国造船行业雪上加霜。更重要的是，Austal公司的撤出让中共企图从Austal公司窃取核心技术的阴谋彻底泡汤。
+
+本文仅代表作者本人观点，不代表Gnews平台
+
+校对/发布：文婷
 
 0
