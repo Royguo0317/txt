@@ -1,49 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亚利桑那巡游骑兵为选举审计提供安保
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1150843/)
+## 拜登将签发有关网络安全行政令
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1150900/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+- 作者：坐看云起时
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/A-33-8.jpg)azragers.us
-昨天马里科帕郡（Maricopa）高级法院法官丹尼尔·马丁（Daniel Martin）驳回民主党律师要求的审计临时限制令后【1】，川普总统在第一时间发表声明，对法官的决定给予了赞扬，声明如下：【2】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29133558/hacking-3112539_1920.png)
+据《国会山报》（The Hill) 4月29日报道，美国总统拜登正在准备签署一项网络安全行政命令。该行政令针对2020年12月发生的太阳风（SolarWinds）网络黑客事件，旨在保护国家免受未来的网络攻击。
 
-2021年4月28日
+据美国国家公共广播电台（NPR）报道，白宫负责网络和新兴技术的副国家安全顾问安妮-纽伯格（Anne Nueberger）告诉NPR，该命令目前的内容包括一系列要求，与政府开展业务的公司将被要求遵守该系列规定。
 
-唐纳德J.川普 美国第45任总统
+具体而言，该命令规定了软件开发的标准和扩大系统调查的举措，以调查网络事件。 该命令的中心思想是，联邦合同程序的变化将使改革 “渗透 “到私营部门的其余部分。安妮-纽伯格告诉国家公共广播电台，该行政命令将 “设定目标，给出一个时间表，然后建立程序来制定细节”。其中涉及一些网络安全计划，从建立调查网络攻击的新方法到创建软件标准。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29133554/matrix-1735640_1920.jpg)
+安妮-纽伯格说，政府对太阳风（SolarWinds）进行了“详细”研究，结果显示，有“重要的工作”要做，以“使我们的网络安全现代化”，并“减少这种情况再次发生的风险”。她说，迫在眉睫的行政命令是“其中一个重要部分”。
 
-今天在亚利桑那州大获全胜。一位备受尊敬的法官刚刚裁定，亚利桑那州参议院正在进行的法庭审计可以而且将继续进行。100多名民主党律师被派去反对这次审计，美国和世界看到的结果将是非常有趣的！为什么民主党人要竭力掩盖事实？我知道为什么，其他人也知道。
+自3月起，美国政府一直在吹风说将制订“近一打”有关网络安全的行动项目。 国土安全部的一位高级官员在3月份的一次电话会议上告诉记者，该部门正在继续 “紧急工作，进行必要的投资，政府正在为即将发布的行政命令制定近十项行动”。 此外，政府上周启动了一项旨在保护国家电网免受网络攻击的100天计划。
 
-声明原文文字整理：
+本文仅代表作者本人观点，不代表Gnews平台
 
-April 28, 2021
-
-Statement by Donald J. Trump 45th President of the United States of America
-
-BIG victory today in Arizona. A highly respected Judge has just ruled that the Forensic Audit being done by the Arizona State Senate can and will continue. Over 100 Democrat lawyers were sent to fight against this audit. The results will be very interesting for the USA and the World to see! Why are the Democrats fighting so hard to hide the facts? I know why, and so does everyone else.
-
-马里科帕郡审计的相关消息：
-
-《门道专家》报道，守护法庭审计中心的亚利桑那巡游骑兵（The Arizona Rangers），募集到14万美元，他们继续对马里科帕郡的审计安全提供保护【3】
-
-亚利桑那巡游骑兵是一个穿制服的执法辅助队伍，它丰富的历史可以追溯到1901年。这是一家根据“501（c）（3）”法案注册的非营利组织。
-
-根据GoFundMe网页，亚利桑那巡游骑兵可以为亚利桑那州任何的联邦、州和地方执法机构提供执法协助，为社区和公民组织提供安全服务，并为亚利桑那州的青年和青年组织提供支持。
-
-亚利桑那巡游骑兵目前正在退伍军人纪念体育馆提供安保，亚利桑那州参议院正在该体育馆内进行法庭审计。
-
-这则消息似乎令人舒了口气，川普总统为马里科帕郡审计的安全事宜担忧过，连续发了两则声明，敦促州长对参加审计人员的安全全面负责。【4】
-
-参考链接：
-
-【1】[https://www.gnews.org/zh-hans/1149251/](https://www.gnews.org/zh-hans/1149251/)
-
-【2】[https://twitter.com/JennaEllisEsq/status/1387568345390669828](https://twitter.com/JennaEllisEsq/status/1387568345390669828)
-
-【3】[https://www.thegatewaypundit.com/2021/04/arizona-rangers-guarding-forensic-audit-center-raises-140000-continue-protection-maricopa-county-audit/](https://www.thegatewaypundit.com/2021/04/arizona-rangers-guarding-forensic-audit-center-raises-140000-continue-protection-maricopa-county-audit/)
-
-【4】[https://www.gnews.org/zh-hans/1142862/](https://www.gnews.org/zh-hans/1142862/)
-
-+1
+0

@@ -1,133 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 战友展览板【4/29】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1151432/)
+## 反对者：加拿大自由党对新疆商品限制应更强硬
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1151762/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
+翻译/简评：加拿大草原三省战友之家 文莱
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29201135/%E5%9C%B0%E7%93%9C%E5%9C%9F%E8%B1%86%E7%9A%84%E6%95%85%E4%BA%8B-1.png)
+据加拿大《国家邮报》4月26日报道，在加国政府据称已采取措施制止中共国滥用强迫劳动几个月后，加拿大国际贸易部长在本周一的下议院国际贸易委员会上，并未提供有关联邦政府是否禁止从中共国进口涉嫌使用强迫劳动的进口商品的详细信息。
 
-【灭共时代】
+从一次委员会的证词中得知，伍凤仪（Mary Ng）拒绝回答保守党议员的问题——即自从自由党政府在一月份表示将打击这一问题以来，加拿大当局拦截了多少来自中共国新疆地区的进口商品（如果有的话）。
 
+伍凤仪对相关情况并未提供任何细节，只是笼统地谈了政府所采取的“全面方法”。而据另一位部门发言人说，政府一直在对这个问题进行“积极的研究”，并对此将向加拿大边境服务局（CBSA）提供一份报告，以采取“潜在的执法行动”。但是批评者质疑自由党政府对遏制从新疆的进口棉花、西红柿和其他产品的承诺度，他们认为今年早些时候推出的措施缺乏力度，并对加拿大进口商施加了太多的压力。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29201116/uighur_genocide.jpg)
+根据数据显示，中共国在新疆拘留了多达100万维吾尔族穆斯林和其他少数民族，其中一些人被强迫在工厂劳动。据一个联盟组织“结束维吾尔族强迫劳动”（End Uyghur Forced Labour）估计，多达五分之一的棉花产品（如毛巾和衣服）均来自于新疆地区，因此该组织和其他组织已经一致呼吁西方盟友遏制从该地区进口商品。
 
+2018年，自由党政府签署了一项条约，作为《北美自由贸易协定》重新谈判的一部分，旨在打击由胁迫劳动制造的产品的进口，该条约已于2020年中期生效。不过简答全球事务发言人说，到目前为止，加拿大边境署还没有对任何强迫劳动生产的进口商品实施关税禁令。
 
-> 福克斯玛丽亚反复强调：中共不等于中国人，都是中共做的恶，与中国人无关
-> 当年游泳逃港的黄博士说，习与毛拥有相同的DNA，习就是要做毛
-> 
-> 毛病不改 积恶成习
-> 僖战薪号 欢迎关注 [pic.twitter.com/6imjMEyV9s](https://t.co/6imjMEyV9s)
-> — 珠穆朗玛 (@ZanXixi) [April 28, 2021](https://twitter.com/ZanXixi/status/1387201108938919939?ref_src=twsrc%5Etfw)
+自由党政府在1月12日宣布将颁布更多的措施，其中一些是专门针对中国的。他们要求加拿大公司签署一份声明以确保公司不会进口来自新疆地区已知或未知的来自强迫劳动的商品，并对此成立了一个商业咨询小组，“提醒“私营公司要注意新疆劳工的状况。
 
+不过批评者表示，这些措施做的还不到位，特别是因为私营公司无法及时确定供应量是否依赖于强迫劳动，与此同时，中共当局驳斥了关于新疆劳改营的说法。
 
-1. **[喜站推特](https://twitter.com/ZanXixi/status/1387201108938919939?s=20)**：
-*福克斯玛丽亚反复强调：中共不等于中国人，都是中共做的恶，与中国人无关 当年游泳逃港的黄博士说，习与毛拥有相同的DNA，习就是要做毛 
-毛病不改 积恶成习 僖战薪号 欢迎关注*
+保守党外交事务评论员庄文浩（Micheal Chong）表示：“1月12日推出的措施是无效的，因为它们不会发挥作用。自由党没有充分考虑这些措施的可行性，因此也并没有真正的实施这些措施”。莊文浩呼吁加拿大直接禁止从新疆地区进口所有棉花和西红柿，因为并不能指望加拿大边境人员来区别哪些产品依赖于强迫劳动力。
 
+2020年年底，美国前总统唐纳德·川普（Donald Trump）阻止了来自新疆生产建设兵团（Xinjiang Production and Construction Corps）的所有棉花进口，该公司是当地的一个主要生产者。而美国官员和一些私营公司已经开始使用新的测试方法，以确定其棉花投入是否来自于中共新疆。
 
-> 【突发】今日凌晨曼哈顿的联邦调查员对前纽约市市长朱利安尼的家和办公室进行了搜查，拿走了他的电子设备。据说该搜查与朱利安尼在乌克兰的活动是否违法了公关法有关。
-> 
-> 朱利安尼曾担任川普的私人秘书，帮助川普在乌克兰调查拜登的肮脏交易。此次搜查可能是党派之争的逆袭。 [https://t.co/C9XO3FwCzG](https://t.co/C9XO3FwCzG)
-> — 瞿水台 Qu Shuitai (@QuShuitai) [April 28, 2021](https://twitter.com/QuShuitai/status/1387455748502921216?ref_src=twsrc%5Etfw)
+加拿大总理贾斯汀·特鲁多(Justin Trudeau)在3月份为他的措施辩解，声称这些措施将 “帮助公司保护自己”，以避免采购强迫劳动的产品。“我们已经采取了行动，为加拿大公司提供了额外的支持和能力，以确保它们避开有问题的供应量。”
 
+不过据《多伦多星报》上个月的一份报告发现，加拿大从新疆地区进口了近400批货物，美国当局指称这些货物来自使用强迫维吾尔族劳动力的中共国制造商。而《环球邮报》的另一份报告指出，加拿大的在线零售商继续进口从新疆制造的毛巾、服装和其他产品。
 
-2. **[瞿水台推特](https://twitter.com/QuShuitai/status/1387455748502921216?s=20)**：
-*【突发】今日凌晨曼哈顿的联邦调查员对前纽约市市长朱利安尼的家和办公室进行了搜查，拿走了他的电子设备。据说该搜查与朱利安尼在乌克兰的活动是否违法了公关法有关。 
-朱利安尼曾担任川普的私人秘书，帮助川普在乌克兰调查拜登的肮脏交易。此次搜查可能是党派之争的逆袭。附《纽约邮报》[链接](https://www.nytimes.com/2021/04/28/nyregion/rudy-giuliani-trump-ukraine-warrant.html)
+**简评：**
 
-【拜登开始报复】 针对今早的突袭搜家，朱利安尼通过他的律师回复道：这次突袭“完全没有必要“，这么做的唯一原因就是进行一个让朱利安尼看起来像是犯罪分子的恶意宣传。 有分析认为，这明显是拜登对朱利安尼曾经揭露儿子亨特丑闻的报复行为。拜登开始报复，要小心了！附《贝克新闻》[链接](https://beckernews.com/giulianis-lawyer-responds-to-fbi-raid-of-apartment-seizure-of-electronic-devices-38818/)*
+加拿大作为西方五眼联盟的成员国之一，当今执政的自由党派却与民主自由的普世价值背道而驰。自美国政府认定中共国为“反人类罪”与“种族大屠杀”后，世界伐共的脚步越来越快。只不过，某些西方国家例如加拿大在此议题上并未做出等同于其价值观的措施。从大批量反对者的声音得知，自由党政府依旧持贸易优先的态度，因为从数据来看，1月份渥太华方颁布的针对新疆地区商品进口的限制措施并未得以实施，反而政府却依赖私营公司或边境人员来实施其措施，所以才有反对的声音质疑此措施的漏洞。
 
+中共国关押维吾尔族人并滥用强迫劳动力已是不争的事实，其残忍程度将会是21世纪最大的败笔，郭文贵先生带领亿万中华同胞发起了爆料革命，4年来不断的努力已将中共送进了死刑牢房，接下来的觉醒行动中，中共的反人性必会将其自己从世界中铲除，而所有同流合污、沆瀣一气的精英、政客、财团都将会被钉上历史的耻辱柱上。
 
-> 这就是中共现在非常害怕赵婷女士的一点：华人在“无共”和“脱共”的情况下会更加的优秀和得到国际社会的更大认可。稍微动脑子的人就会开始怀疑中共的存在就是骗局。事实就是——没有共产党，华人会更优秀，华人会生活得更好，华人会被文明世界更好的接纳。 [https://t.co/XwCeN1FG6m](https://t.co/XwCeN1FG6m)
-> — 墨博士 (@4RxMbPD3YbeN1fS) [April 27, 2021](https://twitter.com/4RxMbPD3YbeN1fS/status/1386919343930318849?ref_src=twsrc%5Etfw)
+新闻来源：
 
+[Trade minister dodges questions on whether Canada has curbed potential forced-labour imports from China | National Post](https://nationalpost.com/news/trade-minister-dodges-questions-on-whether-canada-has-curbed-suspected-forced-labour-imports-from-china)
 
-3. **[墨博士推特](https://twitter.com/4RxMbPD3YbeN1fS/status/1386919343930318849?s=20)**：
-***（DW）**中共国封杀奥斯卡转播，赵婷NYU校友没在怕？
+* * *
 
-**（墨）**这就是中共现在非常害怕赵婷女士的一点：华人在“无共”和“脱共”的情况下会更加的优秀和得到国际社会的更大认可。稍微动脑子的人就会开始怀疑中共的存在就是骗局。事实就是——没有共产党，华人会更优秀，华人会生活得更好，华人会被文明世界更好的接纳。*
-【以毒灭共】推文。如下
+*编辑、发稿 文锦*
 
-
-
-> “Several researchers used by leading corporate media outlets to debunk claims that COVID-19 originated at the Wuhan Institute of Virology have previously attended events or accepted awards from the controversial lab” – National Pulse[https://t.co/2MWrhNVXaE](https://t.co/2MWrhNVXaE)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 27, 2021](https://twitter.com/DrLiMengYAN1/status/1387192977370537985?ref_src=twsrc%5Etfw)
-
-
-1. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1387192977370537985?s=20)**：
-*“一些研究人员被主流的企业媒体用来驳斥中共病毒起源于武汉病毒研究所的说法，他们以前曾参加过该实验室有争议的活动或接受过该实验室的奖励”–[《国家脉搏》](https://thenationalpulse.com/news/scientists-debunking-lab-leak-theory-linked-to-ccp/)*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29180349/E0CnezJWQAIg-IV.jpeg)2. **[Sellin博士推特](https://thenationalpulse.com/news/scientists-debunking-lab-leak-theory-linked-to-ccp/)**：
-是否*还有人认为那些像在管理中国共产党-中国人民解放军生物战计划的人负责执行《生物战公约》很奇怪吗？ 
-#CCPVirus #UnrestrictedBiowarfare #OriginOfCOVID19 #UnrestrictedBioweapon*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29182007/E0C04eqX0AEFyHt.jpeg)3. **[Sellin博士推特](https://twitter.com/lawrencesellin/status/1387307631023382529?s=21)**：
-*根据其复合结构，RaTG13，这个据称与 #新冠病毒 最接近的蝙蝠冠状病毒要么是一个完全捏造的序列，要么更有可能是军方提供的、实验室创造的通向 #中共病毒 的合成途径的中间产物。
-#超限生物战*
-
-
-> “novel animal coronaviruses (bat RaTG13/RmYN02/pangolin CoVs) all share &gt;90% seq identities with SARS-CoV-2…served as founding evidence for nature-origin theory …we provide genetic & other analyses…prove (novel CoVs) don’t exist in nature (but) fabrication”
-> – 2nd Yan Report [https://t.co/0RUsW4afVy](https://t.co/0RUsW4afVy)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 28, 2021](https://twitter.com/DrLiMengYAN1/status/1387390888477970434?ref_src=twsrc%5Etfw)
-
-
-4.**[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1387390888477970434?s=20)**：
-***（Sellin)**根据其复合结构，RaTG13，这个据称与 #新冠病毒 最接近的蝙蝠冠状病毒要么是一个完全捏造的序列，要么更有可能是军方提供的、实验室创造的通向 #中共病毒 的合成途径的中间产物。
-#超限生物战
-
-**(闫）**“新型动物冠状病毒（蝙蝠RaTG13/RmYN02/穿山甲CoVs）都与SARS-CoV-2有超过90%的序列相同性……作为自然起源理论的基础证据……我们提供遗传和其他分析……证明（新型CoVs）并不存于自然（但是）人工制造”
--第二份闫报告*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29182718/E0EJRHfWEAIoT2U.png)*5. **[德意志之鹰推特](https://twitter.com/dezying/status/1387400357475663874?s=20)**：
-[闫博士进一步揭示投毒细节](https://rumble.com/vg79i5-lethal-deception-part-2.html): 中共用的动物模型不恰当，他们用的人源小鼠（hACE2 transgenic mice），但是他们没有做仓鼠（golden hamster）的模型，所以认为释放病毒可防可控！ 这一点可以从秦川的访谈和相关论文中得到验证!*
-
-
-> “these data support a gain of function role for the “PRRA” insertion in switching on membrane fusion”
-> To layman: New article from China confirmed one more harmful function in [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) virus, induced by PLA lab-inserted furin cleavage site in Spike protein.[https://t.co/W3FvcIl1dY](https://t.co/W3FvcIl1dY)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 28, 2021](https://twitter.com/DrLiMengYAN1/status/1387424910486745090?ref_src=twsrc%5Etfw)
-
-
-6. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1387424910486745090?s=20)**：
-*问：为什么通讯员孙强博士没有明确自己是军事医学科学院生物技术研究所的解放军科学家？为什么他只在中国医学科学院表现出自己的民事身份？是来自他的主任陈薇将军的要求吗？[附图](https://twitter.com/DrLiMengYAN1/status/1387429967252836356?s=20)
-
-“这些数据支持在打开膜融合时插入“PRRA”功能作用的增强”
-致外行人：来自中国的新文章证实了#COVID19病毒的又一种有害功能，该功能是由[解放军实验室在突刺蛋白中插入的弗林酶切位点引起的](https://www.nature.com/articles/s41418-021-00782-3)*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29184314/E0FEWaoVkAAov_h.png)7. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1387467453467283458?s=21)**：
-*“目的为建立SHIV艾滋病动物模型提供毒力较强的病毒株,将新合成的SHIV XJ02170病毒适应猴体,并增强其毒力。” 
-2005年，秦川在猴子上做动物传代实验，筛选增强型艾滋病病毒，该项目还有NIH资助……秦川做动物传代实验的病毒筛选由来已久，这是为什么疫情初期能快速的推出新冠人源化小鼠和猴的动物模型*
-
-
-> Why was an emergency response drill held on September 18, 2019 for a new coronavirus infection at the Wuhan airport? Why coronavirus when others virus outbreaks like influenza H7N9 had just occurred or any other more common or dangerous virus?[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/HQbmE3fi4X](https://t.co/HQbmE3fi4X)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 28, 2021](https://twitter.com/LawrenceSellin/status/1387458434216378372?ref_src=twsrc%5Etfw)
-
-
-8. **[Sellin博士推特](https://twitter.com/lawrencesellin/status/1387458434216378372?s=21)**：
-*2019年9月18日，武汉机场为什么要举行新型冠状病毒的感染应急演练？为什么是冠状病毒演练，而不是其他病毒爆发的演练，如H7N9流感或其他更常见或危险的病毒是刚刚发生的？
-#中共病毒 [附视频](https://www.youtube.com/watch?v=uuRjH3Z3Pdk)*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29185034/E0E4w21XEAUkKI3.jpeg)9. **[德意志之鹰推特](https://twitter.com/dezying/status/1387453485071937536?s=21)**：
-*[https://t.co/6Za2leBBP7?amp=1](https://mega.nz/folder/r0oggTJK#_So7AOEb6Xt-Bh1GrJEzag)
-感谢发给我电子版图书的战友，我把两本书都OCR后传上来，方便大家搜索阅读。 下载传播，大家一起挖料，take down the evil CCP!*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29185410/E0FAKmrWYAItWC6.jpeg)10. **[德意志之鹰推特](https://twitter.com/dezying/status/1387461961999323145?s=21)**：
-*PLA biowarfare expert Wu-Chun Cao instructs you how to determine whether SARS-CoV-2 is a bioweapon: 曹务春从流行病学特点分析，为什么新冠是生物武器。 （杨瑞馥 & 曹务春《防生物危害医学》P.50）*
-
-
-> According to the scenario, the aim was to debilitate the U.S. military through an infection spreading in its bases, sow chaos among the U.S. civilian population and prevent the reelection of President Donald Trump[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/2eYitDnLJQ](https://t.co/2eYitDnLJQ)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 28, 2021](https://twitter.com/LawrenceSellin/status/1387438298428317707?ref_src=twsrc%5Etfw)
-
-
-11. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1387438298428317707?s=20)**：
-*根据该方案，其目的是通过在其基地传播的感染来削弱美国军队，在美国平民中制造混乱，并阻止唐纳德·川普总统的连任。附《门扉网》[链接](https://www.thegatewaypundit.com/2021/04/chinas-military-biowarfare-network-led-covid-19/)
-CCPVirus #Unrestricted Bioweapon #COVID19*
-
-
-> 2021年4月26日秘翻快報【頭條新聞】
-> 新聞總結：
-> 1. 中共幕後推動抵制特斯拉
-> 2. 中共關押作家的人數 全球最多
-> 3. 2020年美國的死亡率創1900年以來最高記錄
-> 4. 印度疫情失控 醫療系統幾近崩潰
-> 5. 倫敦萬人上街 反對封城示威[https://t.co/sq9UgClJ8M](https://t.co/sq9UgClJ8M) [pic.twitter.com/hSA8YvPwaT](https://t.co/hSA8YvPwaT)
-> — 秘密翻译组 (@G\_Translators6) [April 28, 2021](https://twitter.com/G_Translators6/status/1387430766200516609?ref_src=twsrc%5Etfw)
-
-
-12. **[秘密翻译组推特](https://twitter.com/G_Translators6/status/1387430766200516609?s=20)**：
-*2021年4月26日秘翻快报【头条新闻】
-新闻总结：
-中共幕后推动抵制特斯拉
-中共关押作家的人数 全球最多
-2020年美国的死亡率创1900年以来最高记录
-印度疫情失控 医疗系统几近崩溃
-伦敦万人上街 反对封城示威
-[https://gtv.org/video/id=6088f94f6c00a14130e13c05](https://gtv.org/video/id=6088f94f6c00a14130e13c05)*
-
-
-+1
+0

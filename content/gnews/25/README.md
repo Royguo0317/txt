@@ -1,44 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 脸书的事实核查员与数十亿美元的疫苗公司的关系
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1150997/)
+## 【热点播报】全球通胀将导致社会动荡
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1150929/)
 
-- 翻译：坐看云起时
-- 制图：透明的遮羞布
-
-
-**简评：**
-
-**自从全世界大规模推广中共病毒疫苗以来，有关疫苗的不良反应乃至死亡事件层出不穷，但这些消息都被主流媒体和社交媒体平台噤声或贴上“事实核查”标签。关于疫苗，闫博士曾说过一个最绝妙比喻：在不了解病毒真相的情况下开发疫苗，使用疫苗，犹如仅靠看门狗来保护家庭的安全，这种防护力量不但非常单薄，而且还有伤了自家主人的可能**。
-
-**但是被金钱蒙住双眼的世界，在疫苗的万亿美金市场面前，有许多人抛弃了良知。正如文贵先生所说，在这个混乱不堪的世界中，只有新中国联邦是唯一坚持正义，坚持真相的一极。希望世界能早日从对金钱的执迷中醒来，回归真相。**
-
-原文翻译：
-
-《自由人类》(Humans Are Free)新闻网4月29日报道，国会议员托马斯-马西（Thomas Massie）在推特上发表声明，指出在脸书（Facebook）对疫苗进行事实核查的人，其部分资金来自于一个在一家疫苗公司持有超过18亿美元股票的组织。
-
-马西在他4月27日推特中写道：“谁在给事实核查人员发工资？声称独立的factcheckdot.org疫苗事实核查人员，由一个在疫苗公司持有超过18亿美元股票的组织资助，并由CDC的前主任管理。”
+作者：纽约香草山农场写作组     四季
 
 
 
-> Who pays the paychecks of the factcheckers? The vaccine fact checkers at [@factcheckdotorg](https://twitter.com/factcheckdotorg?ref_src=twsrc%5Etfw), who claim to be independent, are funded by an organization that holds over $1.8 billion of stock in a vaccine company, and is run by a former director of [@CDCgov](https://twitter.com/CDCgov?ref_src=twsrc%5Etfw).[https://t.co/cmKuJ25Xki](https://t.co/cmKuJ25Xki)
-> — Thomas Massie (@RepThomasMassie) [April 27, 2021](https://twitter.com/RepThomasMassie/status/1387093387409559556?ref_src=twsrc%5Etfw)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
 
-根据Factcheck.org自己公开的信息，Factcheck.org的部分资金来自罗伯特-伍德-约翰逊基金会(Robert Wood Johnson Foundation)。根据该基金会2019年的财务报表，该项目持有超过18亿美元的中共病毒疫苗制造商强生公司的股票，同时，该基金会的首席执行官是理查德-贝瑟是奥巴马时期疾病预防控制中心的前代理主任和ABC新闻的前首席健康和医学编辑。
+据《零对冲》近日报道，截至周五，波罗的海每日指数（the Freightos Baltic Daily Index）评估的亚洲-西海岸即期汇率（SONAR：FBXD.CNAW）为每四十英尺当量单位（FEU）4,797美元，亚洲-东海岸汇率（SONAR：FBXD.CNAE）为每四十英尺当量单位（FEU）6,306美元，均接近历史最高点。对现货货物装船的附加保费比以前更高，比现货价格（FAK）高出2000到3000美元，这还是目前最好的情况。在价格已经飙升的情况下，全球通胀即将进入超速状态——因为领先的食品价格指标，即彭博农业现货指数达到六年来的最高水平。
 
-众所周知，尽管有大量的报告说明当前中共病毒疫苗不良反应数量惊人，包括疾病预防控制中心的疫苗不良事件报告系统（VAERS）中的数千人死亡，但任何在脸书（Facebook）平台上质疑疫苗安全性的人都会立即被这个组织打上事实核查的警告。
+食品是亚洲消费物价指数（CPI）篮子中的重要组成部分，并且这个居住着世界一半以上人口的地区的巨大通货膨胀冲力将导致世界工厂的工资成本上升。随着亚洲的消费物价指数（CPI）和生产者价格指数（PPI）的上升，通胀将在未来几个月内遍及全球。
 
-VAERS的建立正是为了对疫苗的潜在问题进行监测。从2011年到2020年，所有疫苗接种后向VAERS报告的死亡人数只有994人。而在2021年第一季度，已经有超过2700例疫苗不良事件引发的死亡报告，这至少应该引发官方调查。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29135214/Picture1-90-1.jpg)图片来源：彭博农业现货指数，the Bloomberg Agri spot index
 
-虽然目前没有直接证据表明疫苗制造商在向事实核查人员发号施令，但 “跟着钱走 “这句老话的存在是有原因的。
+德意志银行（Deutsche Bank）策略师吉姆-里德展示了彭博社的农业现货指数同比上升了约76%，他指出，“这是近十年来最大的年度涨幅。”他认为，“有大量文献将食品价格上涨与社会动荡时期联系起来。”事实上，你会从图表中注意到，上一次从2010年中期到2011年初的大涨，恰好是“阿拉伯之春”的开始——食品通胀被认为是这一事件的一个促成因素。里德还提醒我们，新兴市场更容易受到这种趋势的影响，因为他们的消费者在食品上的支出占其收入的比例远远高于发达国家。
 
-评论：自从全世界大规模推广中共病毒疫苗以来，有关疫苗的不良反应乃至死亡事件层出不穷，但这些消息都被主流媒体和社交媒体平台噤声或贴上“事实核查”标签。关于疫苗，闫博士曾说过一个最绝妙比喻：在不了解病毒真相的情况下开发疫苗，使用疫苗，犹如仅靠看门狗来保护家庭的安全，这种防护力量不但非常单薄，而且还有伤了自家主人的可能。
+里德随后全盘托出了所有人的想法，即“这种食品价格上涨导致社会动荡的趋势可以追溯到很久以前，并围绕着许多关键的转折点。1789年的法国大革命推翻了旧制度，就是在农业连续的欠收导致食品价格大幅上涨之后发生的。欧洲的1848年革命也是如此，它是在19世纪40年代马铃薯作物欠收和欧洲大部分地区发生相关的严重饥荒之后发生的。而1917年俄国沙皇政权被推翻也是在粮食短缺的背景下发生的。”
 
-但是被金钱蒙住双眼的世界，在疫苗的万亿美金市场面前，有许多人抛弃了良知。正如文贵先生所说，在这个混乱不堪的世界中，只有新中国联邦是唯一坚持正义，坚持真相的一极。希望世界能早日从对金钱的执迷中醒来，回归真相。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29134530/virus12.jpg)
-本文只代表作者观点，与GNEWS网站无关
+虽然，今天的食品价格飙升可能会产生什么后果还有待观察，但里德警告说，“鉴于大流行病已经造成的困难，从历史的角度来看，新一波的动荡并不令人惊讶。”
 
-+3
+以史为鉴，中共病毒的肆虐对世界经济的破坏正在显现，世界已经付出的惨痛代价似乎还不足以让人类警醒并采取行动，这是人类的悲哀。希望能看到世界尽早确认病毒来源，采取行动向中共追责，以拯救人类于水火之中。
+
+参考阅读：
+
+[One Bank Warns Soaring Food Prices Will Lead To Social Unrest](https://www.zerohedge.com/markets/one-bank-warns-soaring-food-prices-will-lead-social-unrest)
+
+[“It’s About To Get Much Worse”: Supply Chains Implode As “Price Doesn’t Even Matter Anymore”](https://www.zerohedge.com/markets/its-about-get-much-worse-supply-chains-implode-price-doesnt-even-matter-anymore)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑：Delilah小胖
+
+校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
++1
