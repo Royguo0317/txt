@@ -1,59 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】全球通胀将导致社会动荡
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1150929/)
+## 无论是谁，都将成为中共权斗的工具和牺牲品
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1151337/)
 
-作者：纽约香草山农场写作组     四季
+#### **译评：Hakunamatata  | 责编：沙拉猫**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29165636/capture-17-12.jpg)图片来源：Twitter
+据《苹果日报》4月27日报道，中共党媒新华社称，中共国副主席王岐山的前右手董宏，星期一因“贿赂”罪而被正式逮捕。中共的最高反贪污机构–最高人民检察院根据2020年10月的调查做出了这一决定。
 
+据报道，董宏被捕的罪名是涉嫌在2012年至2017年期间担任王岐山的高级纪律检查官期间受贿。据中共的新华社报道，国家监察委员会（国监委）已完成对董的案件的调查，并将案件移交给检察官。
 
+68岁的董宏曾是中共退位高官薄一波的秘书，薄一波则是重庆市前书记薄熙来的父亲。董宏因“严重违反党的纪律和法律”在4月13日被开除中共党籍，中共给董列出的罪状包括，董失去了理想和信念，对党不忠诚，并利用其职位在商业运作和项目承包中为他人谋取利益，接受大量金钱和礼物作为回报。董的行为严重违反了中共党纪和有关的法律。根据中共的法规和法律，决定将其驱逐出党，没收其非法所得，并将他的案子移交给司法。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+至于董宏的主子王岐山，貌似并没因为董宏事件而受到影响，他出席了4月20日在海南举行的年度博鳌论坛开幕式。
 
+* * *
 
+评： 中共内斗已经开始，共产党独裁体制就是一个祸害国家和个人的绞肉机，共产主义意识形态依然停留在商鞅残暴的野蛮时期，社会主义制度是孕育邪恶，泯灭人性的温床，独裁体系成为个人谋私利的最好帮凶。在没有法治的中共国，董宏案或王健之死的现象是常态，无论是谁，无论曾经拥有多大的权利，都必须遵循中共为其独裁专制所制定的所谓的法律，完全不是文明民主社会所奉行的法律体系。中共的法律政策都只是为权大者所用，可以随时为当权者的利益而随时修改，因此，即便是中共党内的人，也都可能随时成为权利斗争的工具和牺牲品。
 
-据《零对冲》近日报道，截至周五，波罗的海每日指数（the Freightos Baltic Daily Index）评估的亚洲-西海岸即期汇率（SONAR：FBXD.CNAW）为每四十英尺当量单位（FEU）4,797美元，亚洲-东海岸汇率（SONAR：FBXD.CNAE）为每四十英尺当量单位（FEU）6,306美元，均接近历史最高点。对现货货物装船的附加保费比以前更高，比现货价格（FAK）高出2000到3000美元，这还是目前最好的情况。在价格已经飙升的情况下，全球通胀即将进入超速状态——因为领先的食品价格指标，即彭博农业现货指数达到六年来的最高水平。
-
-食品是亚洲消费物价指数（CPI）篮子中的重要组成部分，并且这个居住着世界一半以上人口的地区的巨大通货膨胀冲力将导致世界工厂的工资成本上升。随着亚洲的消费物价指数（CPI）和生产者价格指数（PPI）的上升，通胀将在未来几个月内遍及全球。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29135214/Picture1-90-1.jpg)图片来源：彭博农业现货指数，the Bloomberg Agri spot index
-
-德意志银行（Deutsche Bank）策略师吉姆-里德展示了彭博社的农业现货指数同比上升了约76%，他指出，“这是近十年来最大的年度涨幅。”他认为，“有大量文献将食品价格上涨与社会动荡时期联系起来。”事实上，你会从图表中注意到，上一次从2010年中期到2011年初的大涨，恰好是“阿拉伯之春”的开始——食品通胀被认为是这一事件的一个促成因素。里德还提醒我们，新兴市场更容易受到这种趋势的影响，因为他们的消费者在食品上的支出占其收入的比例远远高于发达国家。
-
-里德随后全盘托出了所有人的想法，即“这种食品价格上涨导致社会动荡的趋势可以追溯到很久以前，并围绕着许多关键的转折点。1789年的法国大革命推翻了旧制度，就是在农业连续的欠收导致食品价格大幅上涨之后发生的。欧洲的1848年革命也是如此，它是在19世纪40年代马铃薯作物欠收和欧洲大部分地区发生相关的严重饥荒之后发生的。而1917年俄国沙皇政权被推翻也是在粮食短缺的背景下发生的。”
-
-虽然，今天的食品价格飙升可能会产生什么后果还有待观察，但里德警告说，“鉴于大流行病已经造成的困难，从历史的角度来看，新一波的动荡并不令人惊讶。”
-
-以史为鉴，中共病毒的肆虐对世界经济的破坏正在显现，世界已经付出的惨痛代价似乎还不足以让人类警醒并采取行动，这是人类的悲哀。希望能看到世界尽早确认病毒来源，采取行动向中共追责，以拯救人类于水火之中。
-
-参考阅读：
-
-[One Bank Warns Soaring Food Prices Will Lead To Social Unrest](https://www.zerohedge.com/markets/one-bank-warns-soaring-food-prices-will-lead-social-unrest)
-
-[“It’s About To Get Much Worse”: Supply Chains Implode As “Price Doesn’t Even Matter Anymore”](https://www.zerohedge.com/markets/its-about-get-much-worse-supply-chains-implode-price-doesnt-even-matter-anymore)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑：Delilah小胖
-
-校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+过去的中国一直在不断的重复着“打倒皇帝当皇帝”的戏，人民从来不曾有过属于自己的权利。共产主义在中国存在的70年，为那片国土带去的是不断的灾难和痛苦，而现又利用病毒将灾难输出到世界，把腐败戮杀带到西方挑战普世价值和基督文明，中共对世界所犯下的反人类罪行一定会最终受到审判，共产主义一定会被埋没于历史的长河中！
 
 
 
+&gt;&gt;原报道链接&gt;&gt;[Chinese VP Wang Qishan’s confidant arrested over bribery: report](https://hk.appledaily.com/news/20210427/646MWEMZQJH3XBQ2GQIWC4JDAA/)
 
-
-+1
+0
