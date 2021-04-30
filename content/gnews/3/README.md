@@ -1,60 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美军将于9月11日前全面撤离阿富汗
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1157234/)
+## 亚利桑那共和党主席称这次为“历史的审计”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1157329/)
 
-新闻来源：《CNBC》| 作者：Amanda Macias | 发布时间：2021年4月29日
-翻译/简评：大和凯多 | 校对/审核：万人往 | Page：青山
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NNzu1WpJ1HHQV/images/65a0a87a-43da-47c8-aa0d-a5aef8e86e71.jpg?asset_id=d1a7be23-f414-4dbb-b4ee-e437027060e7&amp;img_etag=%2261be65908608fdb6e4189eabda97edd4%22&amp;size=1024)](https://spark.adobe.com/page/NNzu1WpJ1HHQV/images/65a0a87a-43da-47c8-aa0d-a5aef8e86e71.jpg?asset_id=d1a7be23-f414-4dbb-b4ee-e437027060e7&amp;img_etag=%2261be65908608fdb6e4189eabda97edd4%22&amp;size=1024)
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/K-7.jpg)kpbs.org
+民主党人的干扰仍不停，审计也在进行中。称这次审计为“美国的审计”、“历史的审计”的亚利桑那州共和党主席凯利·沃德博士（Dr.Kelli Ward）介绍了审计的最新情况。
 
-**简评：**
+《门道专家》报道，沃德博士说，“我们会发现问题——违规行为，我们可能会发现彻头彻尾的欺诈行为”。【1】
 
-拜登宣布，美军将于今年9月11日之前全面撤离阿富汗，结束这场持续多年的战争。五角大楼部署包括航母打击群在内的其他部队以保护美军安全撤离。
+文章说，亚利桑那州共和党主席凯利·沃德博士星期四在《Newsmax》电视台与克里斯·萨尔塞多（Chris Salcedo）一道介绍了亚利桑那州参议院对马里科帕郡的法庭审计的最新情况。
 
-我们都知道川普总统在任期间已经安排美军撤离阿富汗，截止时间定在今年5月1日之前。拜登政府虽然宣布于9月11日之前撤离，晚了几个月，但整体上仍然坚持了川普政府的方针。随着南中国海的局势逐步升温，台湾已经是世界上最危险的地方，成为了世界的焦点。拜登政府从阿富汗撤军表明了美国仍然坚持对中共的强硬态度，美军将会有更多的资源分配到南中国海应对中共。从郭文贵先生的爆料我们得知，美军第七舰队已于无声无息之间废了中共吹捧的“辽宁号”航空母舰。“墙国”的部队原来这么不堪一击！随着全球经济濒临危机边缘，军事冲突也会呼之欲出。中共正在一步步走向死亡边缘，正如郭先生所说“谁也挡不住”。我们期待这一天的到来！
+官员和选举工作人员已经计票五天多了，到目前为止，至少检查了10万张选票。
 
-**原文翻译：**
+凯利·沃德博士再次抨击民主党人，他们继续在选举过程中撒谎，继续与选举诚信作斗争。
 
-## 美军开始撤出阿富汗，部署军事装备以保护部队
+凯利·沃德博士：尽管民主党人和左翼人士都在阻止，但审计仍在继续，美国的审计仍在继续……我们希望选举的公正性，他们称之为选民镇压，我当然想压制死人投票，我想很多人也希望这样，除非他们是民主党人，他们想在选举中作弊……我希望我们的立法者具备客观的知识，能够为我们州制定一流的选举法，也可以成为全国其他地方的榜样……我相信我们会发现问题，我们将发现违规行为，我们可能会发现彻头彻尾的欺诈行为。
 
-**要点：**
+《门道专家》的另一篇文章则介绍了民主党人新的企图，题目“三个法律团体请愿拜登的司法部，要求关闭马里科帕郡的法庭审计——蟑螂怕光”【2】
 
-- 白宫表示，美军已开始从阿富汗撤军。
-- 五角大楼积极部署临时军事装备，以保护该地区的部队。
-- 本月初，拜登宣布，美军将于9月11日之前全面撤离阿富汗，结束美国最长的战争。
+全文如下：
 
+民主党人非常非常担心今天在亚利桑那州进行的司法审查。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NNzu1WpJ1HHQV/images/de5c44a0-df38-401b-8d4a-43a5f9500873.jpg?asset_id=859659d0-a9ad-4e2c-bc26-7e9512174f7e&amp;img_etag=%22d32d7350772eaab26864f7cf1ea785cf%22&amp;size=2560)](https://spark.adobe.com/page/NNzu1WpJ1HHQV/images/de5c44a0-df38-401b-8d4a-43a5f9500873.jpg?asset_id=859659d0-a9ad-4e2c-bc26-7e9512174f7e&amp;img_etag=%22d32d7350772eaab26864f7cf1ea785cf%22&amp;size=1024)美国海军陆战队员在阿富汗赫尔曼德省登上美国海军陆战队MV-22B鱼鹰直升机。图片来源：Alejandro Pena下士 美国海军陆战队图片
+法庭审计将使用紫外线灯对投票机和210万张选票进行检查，以确定这些选票是真实的，还是可能的欺骗性选票。
 
-华盛顿报道-白宫周四证实，美军已开始从阿富汗撤出，并积极增派部队和军事装备以保护该地区的部队。
+民主党未能在亚利桑那州关闭这一进程，所以周四，他们去拜登的司法部试图关闭亚利桑那州的审计。
 
-白宫副新闻发言人卡琳·让-皮埃尔（Karine Jean-Pierre）告诉随行空军一号的记者：“潜在的敌人应该知道，如果他们在我们撤出时攻击我们，我们将使用一切可用的手段来捍卫自己以及我们的合作伙伴。”
+他们希望拜登政府关闭在亚利桑那州选举中发现舞弊的程序。
 
-她说拜登政府打算“安全负责任地”撤出这个饱受战争折磨的国家，并补充道：“尽管这些行动最初将增加驻阿美军人数，但我们仍努力于2021年9月11日之前将所有美军人员撤离阿富汗。”
+民主党人害怕真相，就像蟑螂害怕光明一样。
 
-五角大楼已向美国中央司令部临时提供了B-52H空中堡垒轰炸机，该司令部负责监督美国在中东的行动。一个美国海军航母打击群也在该地区提供支持。
+如果拜登政府能够做到这一点，我们都会知道，今天的美国已经没有法律和秩序了。
 
-五角大楼发言人约翰·柯比（John Kirby）此前曾表示，随着美国和联军的撤离，美国国防部领导层将继续评估对增加军事能力的需求。
+《保守派树屋》（The Conservative Treehouse）报告说：在民主党州务卿未能让亚利桑那州总检察长启动审计调查之后；一位民主党州法官也拒绝了民主党提出的临时限制令；在所有其他的努力都失败之后……现在，我们看到三个外部左翼选举团体（声称两党合作，但由纽约大学的律师领导）要求司法部介入亚利桑那州马里科帕郡的投票审核。
 
-本月初，拜登宣布，美军将于9月11日之前全面撤离阿富汗，结束美国最长的战争。
+审计工作于4月23日开始，4月28日，一名法官驳回了民主党人阻止这一进程的企图。
 
-今年刚好也是911恐怖袭击20周年，大约有3000名美军会从该地区撤离。911恐怖袭击促使美国卷入了中东和中亚的漫长战争。
+“布伦南中心”（The Brennan Center），“保护民主”（Protect Democracy）和“”领导会议”（The Leadership Conference）已经签署了一封信，交给了司法部的民权部门，要求他们参与进来。
 
-拜登的撤离时间表与川普政府去年与塔利班协调的时间表并不一致。根据川普政府的时间表，所有外国部队都必须在5月1日之前离开阿富汗。
+这封信中的论点与其他法律团体，包括珀金斯·科伊（Perkins Coie,），与此前向州法官提出的论点完全相同，州法官驳回了这些论点，因为没有提交证据给法庭来支持这些论点。
 
-🔗[原文链接](https://www.cnbc.com/2021/04/29/us-begins-afghanistan-withdrawal-deploys-military-assets-to-protect-troops.html)
+显然，在这个由法律工作者和左派活动家组成的网络中，有人对正在进行的投票审计感到非常恐惧，这封信只是强调了他们的担忧，即亚利桑那州的选举舞弊行为可能会被证明是美国广大选民最关心的问题。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+……
 
+丧心病狂地造假，无底线地掩盖，不择手段地禁言，层出不穷的滥招……美国正在民主党化，民主党正在中共化，一步步地向深渊迈进。新中国联邦的使命就是要阻止恶魔中共对世界的侵蚀，正在唤醒世界对这个邪魔的认知！
 
-编辑：【英国伦敦喜庄园编辑部】
+参考链接：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NNzu1WpJ1HHQV/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/NNzu1WpJ1HHQV/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+【1】[https://www.thegatewaypundit.com/2021/04/will-find-mistakes-irregularities-probably-going-find-outright-fraud-az-gop-chair-dr-kelli-ward-give-update-historic-audit-video/](https://www.thegatewaypundit.com/2021/04/will-find-mistakes-irregularities-probably-going-find-outright-fraud-az-gop-chair-dr-kelli-ward-give-update-historic-audit-video/)
 
-
+【2】[https://www.thegatewaypundit.com/2021/04/three-lawfare-groups-petition-biden-doj-shut-maricopa-county-forensic-audit-cockroaches-fear-light/](https://www.thegatewaypundit.com/2021/04/three-lawfare-groups-petition-biden-doj-shut-maricopa-county-forensic-audit-cockroaches-fear-light/)
 
 0

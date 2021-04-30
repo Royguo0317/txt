@@ -1,48 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫正在调查类似于哈瓦那综合症的“无法解释的健康事件”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1156943/)
+## 慧眼看世界20210429（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1157041/)
 
-- 翻译：Jenny Ball
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
 
-***更多真相，请关注***[***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年4月30日电/西喜社——**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102445/01-20.jpg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30094153/capital-hill-2645396_640.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102449/02-21.jpg)
 
-白宫表示正在调查“无法解释的健康事件”，此前有报道称，华盛顿地区的两名美国官员经历了类似于美国外交官和海外间谍遭受的“哈瓦那综合症”症状的突然事件。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102455/03-20.jpg)
 
-美国国家科学院认为，2016年始于古巴的神秘脑损伤波很可能是某种形式的定向能量装置的结果，中情局，国务院和五角大楼都已展开调查。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102501/04-22.jpg)
 
-美国CNN周四报道说，在美国土壤上可能发生的两起事件是调查的一部分。 去年11月，发生在白宫南侧椭圆形的大草坪椭圆附近，国家安全委员会的一名官员突然发病。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102529/05-1-1.jpg)
 
-另一个是在2019年，涉及一名白宫官员在华盛顿的阿灵顿郊区遛狗。 去年《 GQ》杂志曾报道过该事件。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102533/05-2-1.jpg)
 
-该说法说，这件事是在工作人员经过一辆停放的货车，一名男子下车走过她之后发生的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102540/05-3-1.jpg)
 
-“她的狗先开始紧抓，然后她也感觉到了：耳朵有高音频响起，剧烈的头痛，一边脸刺痛，”报告说。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102547/05-4-1.jpg)
 
-官员警告说，对这些事件和其他事件的调查尚未得出结论。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102612/06-18.jpg)
 
-“美国公务员的健康和福利是拜登政府的首要任务。 我们非常重视我们人员的所有健康事件报告，”白宫发言人说。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102618/07-18.jpg)
 
-“白宫正在与各部门和机构紧密合作，以解决无法解释的健康事件，并确保在全球服务的美国人的安全与保障。 鉴于我们仍在事件的评估，并且我们需要保护报告事件的个人的隐私，因此我们目前无法提供或确认具体细节。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102626/08-18.jpg)
 
-哈瓦那综合症发作的症状包括听到奇怪的声音，随后出现头晕，恶心，严重的头痛和记忆力减退，在某些情况下可能会持续数年。 有数十名受害者，其中大多数人驻扎在古巴和中共国，其他地方有少数案件。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102711/09-18.jpg)
 
-受影响的大多数人，以及许多官员和专家，都认为他们受到外国力量的攻击，他们使用某种形式的微波装置。 但是在12月美国国家科学院（National Academy of Sciences）进行研究之前，他们进行了艰苦的努力，说服他们的雇主，他们的脑部受伤是他们在执行任务时遭受袭击的结果。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102715/10-25.jpg)
 
-中情局在12月成立了一个工作组，新任局长威廉·伯恩斯（William Burns）已任命一名高级官员，以协调对受影响者的照料并调查袭击的起源。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102720/11-30.jpg)
 
-尽管调查仍在继续，但政府尚未证实遭受的伤害是否是武器造成的，西半球国家安全委员会高级主任胡安·冈萨雷斯（Juan Gonzalez）在接受CNN西班牙语采访时提到本月初古巴发生的微波袭击。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102733/12-29-2.jpg)
 
-审核：蚂蚁兄弟；校对：信心的选择；发稿：信心的选择
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102804/13-23.jpg)
 
-**新闻来源：**[www.theguardian.com](https://www.theguardian.com/us-news/2021/apr/29/us-unexplained-health-incidents-officials-washington)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102810/14-23-1.jpg)
 
-[**欢迎加入西班牙巴塞罗那喜悦农场**](https://discord.com/invite/WPy8Qp7)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102815/15-22-1.jpg)
 
-+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30102820/16-19-1.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
+
+0
