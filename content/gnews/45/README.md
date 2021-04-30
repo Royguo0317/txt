@@ -1,35 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 人间炼狱真实上演
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1152380/)
+## 4/25/2021郭先生直播: 中共的“拜登救共梦”已破灭，内部经济濒临爆雷
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1152660/)
 
-**撰稿：脐橙君**
+拜登总统欧洲行非常重要，美国已和英法德等G7国家在病毒、香港和新疆种族大屠杀等问题上达成一致；中共国的经济会随时崩塌；曾经把中国老百姓当韭菜的中共白手套们最后也是中共高层的韭菜。
 
-**根据印度卫生部公布的数据，截至星期四（4月29日）报告，新增确诊病例37万9257例，新增死亡病例3645例，这两个数字均创疫情以来新高。每一分钟，就有2个人死亡，遍地都是停尸房，处处都是焚烧炉。从生到死，从来没有被如此加速，生命的尊严在病毒面前被击溃，被粉碎。**
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30000643/25-1.jpg)**在病毒笼罩的世界，连呼吸都是奢侈**
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30000701/26-1.jpg)
-
-**医疗系统崩溃，两人共享一张病床**
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30000709/27.jpg)
-
-**痛失亲人的街头**
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30000718/28-2.jpg)
-
-**这不是垃圾焚烧厂，而是尸体焚化地**
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30000651/29-1.jpg)
-
-**生死一瞬间**
-
-本文仅代表作者本人观点，不代表Gnews平台
-
-声明：图片均来源于网络
-
-校对/发稿: Penny
+By: 【秘密翻译组G-Translators】
 
 0

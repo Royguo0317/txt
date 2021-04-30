@@ -1,23 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 喜币对国内草根的意义
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1152465/)
+## 图片新闻
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1152530/)
 
-撰稿人：freeman
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30003817/3012.png)图片来自网络
-国内的草根同胞想让自己的钱安全一定遇到过两个绕不过去的难点：要么你去银行提取现金美元，要么通过转账的方式将不值钱的人民币转到境外以保值外币的形式持有。如果你想通过购买比特币或者艺术品寄给国外亲戚那儿保存，想以此保财是不可取的，因为这两种方法最后的结果是无法消费的，无法消费的个人财产或者账户金额不叫钱，只能叫数字。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30010928/photo_2021-04-30_11-27-37.jpg)
 
-相对来说比较简单的是取现金美元，但现在各个城市的各个银行背地里都有说不清道不明的潜规则给你设置重重阻力，最终你只能取到少量美元。即使取到美元后你放哪儿？有地方能让你放的安心吗？不怕共匪哪天直接抢吗？所以更安全的方式就是转账到境外，安全是安全，懂行的人都知道里面坑有多少，不懂行的人请看下图：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30003938/302-2.png)作者个人绘制
-看完往境外汇款这些分类后，你是不是觉得既麻烦又风险大？那现在完美的解决方案来了，就是通过喜马拉雅交易所，喜美元（Himalaya Dollar，简称HDollar）与美元1：1挂钩，美元有什么价值HDollar就有同等价值，并且可以随时互相自由转换。郭先生直播里说过已经拿到了美国的金融支付牌照，拿到更多国家的金融支付牌照只是时间问题。既可以存钱又可以支付不就相当于是银行账号吗？此外，你还能直接通过HDollar购买全世界最安全最有信用的加密货币——喜币（Himalaya Coin，简称HCoin），喜币价格根据市场需求浮动。懂的人都知道未来世界是加密货币的天下，喜马拉雅交易所的账号就是通向未来的金融账号。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30004052/303-2.png)图片来自网络
-墙内同胞们，看完上面的浅显介绍，你们明白了吗？如果你明白了，只剩下一个步骤：那就是怎么将你的合法资金存入喜马拉雅交易所的账号里。不明白的再看看我图片里的“汇款方式”，祝战友们在共产党灭亡前能尽可能多的保住自己的财富，并抓住新时代来临之际的最大机会。
+图片说明：全球公共衛生學校院長論壇在清华大学举办，陳馮富珍（Margaret Chan）等領導人加強了大流行後時代的合作與創新。作者： 蓝精灵
 
-（本文仅代表作者观点）
 
-*审稿：光耀华夏*
 
-*编辑：MG1*
-![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30011442/Screen-Shot-2021-04-29-at-3.25.44-PM.png)
+
+图片说明：49年以来中国人口首次减少。
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30012609/image0-13-145.jpg)
+
+图片说明：民众打疫苗第一针没事，第二针面瘫，拍视频警示众人，但官方掩盖，至今没有任何媒体提及。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30013202/BP_COMP_BRAZIL-VIRUS.jpg)
+
+图片说明：研究发现巴西P1变异ccp病毒传染率比当地已知所有变异病毒高70%-140%，并可以绕过部分免疫系统使20%-40%已感染患者再次感染。
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30013550/bkn-20210429190735757-0429_00882_001_01p.jpeg)
+
+图片说明：前国足队长张恩华去世，前一天刚过完48岁生日，朋友圈还发布聚会照片。
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30015042/51b708a3bd1b4a749254f925f248de7d.jpeg)
+
+图片说明：科兴疫苗的包装盒上载明的公司名称。
+
+本文仅代表作者本人观点，不代表Gnews平台
+
+图片/校对/发稿: Penny
+
+
+
 0
