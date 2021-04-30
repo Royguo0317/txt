@@ -1,11 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】精英们必须明白不能信任中共国，否则结局会很糟糕
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1152661/)
+## 2021年4月28日秘翻快报【头条新闻】
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1152719/)
 
-4/21/2021 彼得·纳瓦罗评论即将举行的气候峰会：不能信任中共国；精英们必须明白，如果仍然信任中共国，那结局会很糟糕。
+**新闻总结：**
 
-By： 【秘密翻译组 G-Translators】
+1.    香港再添注射中共疫苗死亡案例
+
+2.    中共秘密军事项目被揭露 研究动物病毒长达9年
+
+3.    中共博鳌论坛带节奏 挑拨美企对抗美国
+
+4.    许多女性在接种疫苗后月经周期反常
+
+5.    印度中共病毒感染数据连破世界纪录
+
+**By: 【秘翻快報組】**
+
+GTV链接:[https://gtv.org/video/id=608b90b26c00a14130e2efeb](https://gtv.org/video/id=608b90b26c00a14130e2efeb)
 
 0
