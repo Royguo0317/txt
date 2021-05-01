@@ -1,43 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210501（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1161237/)
+## 中共大量收割韭菜農工越脫越貧
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1161304/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+台灣寶島農場 Amitofu
 
+2021年 2 月 25 日中共在北京人民大會舉行全國脫貧攻堅總結表彰大會，習近平宣稱，832 個貧困縣、12.8 萬貧困村落和 9,899 萬農村絕對貧困人口已全數脫貧，實現全面建成小康社會的目標任務，長期以來三農的貧困化問題一直是中共國內最大挑戰，農民問題、農村問題、農業問題，長期犧牲農業結構，以農養工的發展戰略，失衡的社會結構使農村更加凋敝，加上城鄉二元戶口制度，更是將廣大貧困農民束縛在農村而越脫越貧。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01122512/ccpfarm-400x225.jpg)
+早期中共對農村扶貧開發綱要的總體目標，是要在 2020 年實現扶貧對象，不愁吃、不愁穿，保障義務教育、基本醫療和住房的兩不愁三保障，達成農村脫貧全面建成小康社會目標，然而中共從江澤民的發展全面推動經濟改革，到習近平推行多年的反貪腐鬥爭，以貪反貪以假反貪，江派貪官東北虎徐才厚、西北狼郭伯雄，前中共政治局常委周永康，胡錦濤心腹前中共統戰部長令計劃，中南坑高官貪腐都是最少幾百億、幾千億，甚至到文貴先生爆料王建從1千多億騙到發展幾萬億的海航、到海航倒閉，貫均、劉呈杰、華銳世紀張博等，海外私生子的巨額財富。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+**中共自改革開放至 2020 年底扶貧資金超過9400多億元人民幣，自稱累計有 7.7 億農村人口達到脫貧，事實上中共對貧窮線指標的設定是採絕對貧窮而非相對貧窮將極端農村貧困定義為人均年收入低於620 美元（4,000 元人民幣），日均收入1.69 美元，低於世界銀行門檻每天 1.9 美元。世界銀行將中上收入國家貧困線設為每日收入 5.5 美元，也就是四分之一中共國貧困線以下的人口達4億多，若加上少數民族地區、邊疆地區和特殊山地等貧窮人數更高，李克強曾表示有 6 億人月收入約1,000元人民幣。**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121442/01.jpg)
+2021年4月30日中共國國家統計局公布【2020年農工平均月收入為人民幣4072元，比起2019年增加110元，增幅為2.8％，當中，前往外地就業的農工平均月收入為人民幣4549元，比2019年多了122元，增幅2.7％；留在家鄉工作的農工平均月收較少，為人民幣3606元，但仍較2019年增長106元，漲幅3％。】**中共為了51竟然造假將農工真實的平均月收入1200-1500改成4072元，有大量網民批評質疑中共統計局農工數據來源，並表示自己月薪不如4549元的農工，目前三線城市的民辦幼稚園主班老師月工資平均2500元左右。**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121447/02.jpg)
+筆者認為**中共階段性的農村脫貧動員型政權，是共產黨為了完成團結14億人社會主義的意識形態，強化及鞏固民族主義情緒，為2022年10月召開的 20 大做準備，讓習近平的共產黨在領導國家和統治上的合法性，營造有利習近平連任的新形勢**，隨著美中經濟的脫鉤和不斷攀升的債務危機，強迫民企成為國企，大量收割韭菜，將造成14億人生命財產的危機，期待早日消滅共產黨，讓新中國聯邦建立一個有基本醫療保障、社福系統的法治國家。本文僅代表個人立場
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121453/03.jpg)
+祈禱萬佛萬神加持七哥與新中國聯邦戰友
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121500/04.jpg)
+資料來源:文貴先生直播。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121533/05.jpg)
+[中共國家統計局造假數據2020年农民工监测调查报告](http://www.stats.gov.cn/tjsj/zxfb/202104/t20210430_1816933.html)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121538/06.jpg)
+審核:Athena雅典娜 發佈:Amitofu
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121543/07.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121550/08.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121647/09.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121654/10.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121658/11.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121704/12.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121708/13.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
+[點擊此處閱讀更多台灣農場精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
 0
