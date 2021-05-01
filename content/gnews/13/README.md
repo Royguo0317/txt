@@ -1,67 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/04/28 班农采访(2): 郭文贵的情报完全准确，民众对疫苗的危害缺乏认识
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1160614/)
+## 【世事解评】你担心接种疫苗会变成强制性的要求吗？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1160676/)
 
-视频字幕：雨中漫步 | 听写/翻译：Roberts | 校对：Clau | 简评/文字整理/编辑：胖丁 | Page：Daoiii
+作者：纽约香草山美食部   为真不破20
 
-[!\[\]()!\[\](https://spark.adobe.com/page/a3C0EwGmKMSqg/images/f5e0760e-c5f5-4744-a883-a95940d880fd.png?asset_id=dbb06385-aa42-4f0b-a629-b631f2431afb&amp;img_etag=%22944cdad46f5e6d3ab3be180af71b9f9a%22&amp;size=1024)](https://spark.adobe.com/page/a3C0EwGmKMSqg/images/f5e0760e-c5f5-4744-a883-a95940d880fd.png?asset_id=dbb06385-aa42-4f0b-a629-b631f2431afb&amp;img_etag=%22944cdad46f5e6d3ab3be180af71b9f9a%22&amp;size=1024)
-
-**简评：**
-
-**郭文贵先生爆料称，新冠病毒是来自武汉实验室的生化武器，疫苗不但对病毒不起作用，还能引起严重的副作用。三年来郭文贵先生的情报被证明是完全准确的，但人们对疫苗的危害仍然缺乏认识。实际上郭文贵先生的影响力已经远远超出了Gnews和GTV，中共视郭文贵先生为头号敌人，而主流媒体继续帮助中共掩盖病毒和疫苗的真相。**
-
-GTV视频链接：[Mr. Bannon’s Weekly Interview Q 为什么还是没有或者很少的人听进去郭文贵先生的意见](https://gtv.org/video/id=608c11ba4486aa0bb231aa66)
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
 
 
 
-**视频字幕：**
+在美国，随着疫苗的大批量生产以及在各州可以接种的疫苗年龄的不断降低，很多人都争相预约打疫苗。他们认为，打了疫苗就有免疫力并相对安全！想必那些人不知道闫博士多次提到并没有有效的疫苗，也不了解爆料革命多方面传播疫苗经济的真相以及疫苗的潜在灾难。
 
-**主持人：**班农先生，郭文贵先生一直说新冠病毒是生物武器。
+目前，有的医院已经开始要求医护人员必须打疫苗才可以去医院上班。打疫苗成为一种必须！
 
-上个星期他在盖特上爆了另一个大料，就是疫苗对病毒没有作用，而且会引起严重的副作用。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01060836/%E5%9B%BE%E7%89%8719.png)图片来源：abc-7.com 
 
-我的问题是，在过去三年他的情报已经被证明是非常准确的情况下，为什么还是没有或者很少的人听进去郭文贵的意见？
+最近，有的大学希望尽快使学校的教学秩序恢复正常，认为最佳方法是给所有人接种疫苗，因此开始要求学生、教职员工必须打疫苗才可以去学校上课。据Spokesman报道，华盛顿州立大学（WSU）校长4月28日公告宣布将要求来年参加大学校园或场所活动的所有学生、员工和志愿者提供接种新冠病毒疫苗的证明。尽管有要求，但WSU还将允许那些决定不接种疫苗的人获得个人豁免。声明出于医疗、宗教或个人原因，允许豁免。 参加完全在线或远程计划的学生将自动获得豁免。根据《高等教育纪事》，此举使华盛顿州立大学成为华盛顿州第一所提出新冠病毒疫苗要求的公立大学。 该大学渴望在周五本学期结束前以某种方式宣布这一决定。
 
-**Bannon：**实际上我认为很多人都听进去了郭文贵的话。 郭文贵正在强化人们对疫苗的顾虑。
+该要求将扩展到居住在大学住房中的学生。 根据周三的公告，这些学生的疫苗接种证明必须在8月6日之前提交。
 
-注意，我不反对疫苗。我小的时候也接种疫苗，我在部队的时候也接种疫苗。
-所以我不是反疫苗者，但是我现在的的确确对疫苗有顾虑，很犹豫。
-我认为文贵对疫苗的担忧是非常非常直率的。
-他以往说过的事情比任何人都准确。 我认为有很多人听进去了他说的话。
-我认为现在全世界对疫苗的担忧，部分原因就是因为人们在听郭文贵的意见。
+根据校长的说法，不住在大学宿舍或有特定计划要求的学生将需要在11月1日之前提供疫苗或豁免证明的证明文件。那些没有这些证明的学生将无法注册春季课程，并可能面临其他限制。
 
-我不是说这是一个主要原因，但肯定是其中一个因素。
-主流媒体永远不会这么说，记住，因为主流媒体是达沃斯党和世界经济论坛党的宣传机器。
-达沃斯完全与中共狼狈为奸，所以他们永远不会称赞郭文贵。
-尽管现在每个人都知道病毒不是自然的，而是来自武汉实验室，达沃斯党也不会说出事实。
-郭文贵早在2020年1月中旬就说了。
+据本大学称，获豁免的学生、员工和志愿者可能必须参加常规的新冠测试和/或其他新冠公共卫生措施。
 
-现在大媒体开始明白对此他们没办法继续圆谎了，但是他们不会因此而给郭文贵一点荣誉。因为郭文贵是中共的头号敌人，而他们是跟中共一伙的。
-但是我认为无论是病毒解药、还是疫苗以及病毒的问题，都正在被人们重视。
+看了上面的新闻，你是否会担心你以及家人、孩子所在的学校、单位甚至各大餐饮购物场所在不久的将来也都会跟中共国一样要求你像扫描健康码一样出示你的疫苗卡，否则限制你的行为呢？
 
-我认为郭文贵在全世界的听众远远不局限于Gnews和GTV。
-
-[**完整访谈视频**](https://gtv.org/video/id=60895bcb6c00a14130e170f3)
-
-**主播：**Daniel, Dr. TCC, Castle和Mike
-
-- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
-- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
-
-
-***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三直播***
-
-编辑：【英国伦敦喜庄园编辑部】
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/a3C0EwGmKMSqg/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/a3C0EwGmKMSqg/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01061648/%E5%9B%BE%E7%89%8720.png)图片来源：edweek.org
 
 
 
-0
+参考文章：
+
+[https://www.spokesman.com/stories/2021/apr/28/washington-state-university-to-require-covid-19-va/](https://www.spokesman.com/stories/2021/apr/28/washington-state-university-to-require-covid-19-va/)
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++1
