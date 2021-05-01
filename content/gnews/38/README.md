@@ -1,23 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 委内瑞拉软禁了六名被捕的美国石油高管
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1159241/)
+## 音乐速递：Miles郭即将推出新歌
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1159385/)
 
 **撰稿人： 蓝精灵**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30232951/19-12-2.jpg)周五（4-30日），已在委内瑞拉被判入狱三年以上的六名美国石油高管被软禁，此举被解释为在白宫审查对华政策时，向白宫提供橄榄枝的努力。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01000610/%E6%96%B0%E5%BB%BA%E5%9B%BE%E7%89%8719.jpg)
 
-Tomeu Vadell，Jose Luis Zambrano，Alirio Zambrano，Jorge Toledo，Gustavo Cardenas和Jose Pereira于2017年11月首次被蒙面的安全人员拘留。他们前往委内瑞拉参加与Citgo的母公司、国有石油公司PDVSA的会议。
+Miles郭今天在新媒体GTV上发盖特视频，说他正在录制一首新歌曲，名字叫做“马背英雄”。
 
-这些男子的家庭成员向美联社确认了他们间断性被释放。六名男子于2019年12月被软禁后两个月，2020年初被拘留、扔回监狱。那个时候川普总统在白宫会见了反对派领袖胡安·瓜伊多（JuanGuaidó）。这些人最终于2020年因挪用公款被定罪，尽管审判因延误和违规而受到严重质疑。
+他是一位从未经过音乐和唱歌技巧教育和专业训练的人，在他的老师唐平和威廉王的指导下，之前已经发布了三首歌曲，分别是《酒灭中共》、《妈妈之歌》，还有和好莱坞音乐人一起制作的Hip-pop风格的歌曲《Take Down The CCP》，在苹果音乐榜上打榜，均位占据前列。
 
-他们的间断性释放是在政府官员开会讨论如何与委内瑞拉打交道时达成的。委内瑞拉独裁政府制止了去年似乎即将上台的反对派运动。谈判桌上的选择之一是维持严厉的制裁，这进一步削弱了委内瑞拉的经济。
+Miles郭还告诉大家，他会和所有人一起分享录制这首歌曲的感受。
 
-国家安全委员会西半球高级主管胡安·冈萨雷斯（Juan Gonzalez）本周向美联社表示，他希望看到独裁者尼古拉斯·马杜罗（NicolásMaduro）的“政权的具体步骤，而不是言语”。
 
-链接：[https://thehill.com/latino/551289-venezuela-grants-house-arrest-for-six-jailed-us-oil-execs](https://thehill.com/latino/551289-venezuela-grants-house-arrest-for-six-jailed-us-oil-execs)
 
 ***校对发布**：文顾*
 
-+1
+0
