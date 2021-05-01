@@ -1,22 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发新闻：阿富汗东部发生致命汽车炸弹爆炸
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1158682/)
+## 美国批准向印度出售24亿美元海上巡逻机
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1159130/)
 
-**撰稿人： 蓝精灵**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30203534/%E6%96%B0%E5%BB%BA%E5%9B%BE%E7%89%8717.jpg)
-在阿富汗东部发生致命汽车炸弹爆炸，据报道，至少有27人丧生，数十人受伤。美国昨天才刚刚开始从阿富汗进行最后的撤军，在此时发生的炸弹袭击，背后有是么样的故事呢？
+**编译： 蓝精灵**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30224528/Indonesia_Sub658.jpg)
+据《华盛顿邮报》比尔.格兹2021年4月31日报道，拜登政府宣布将向印度出售六架P-8海上巡逻机及相关装备，价值24.2亿美元。美国国务院宣布了这批飞机的出售，五角大楼的国防安全合作机构于周五将出售项目通知了国会。
 
+武器转让是美国为吸引传统上不结盟的印度政府投入更大的区域努力，以对抗中国日益增长的军事扩张主义的积极行动的一部分。印度加入了包括美国、日本和澳大利亚在内的区域大国的“四元组”，这些国家正以准“反北京联盟”的形式出现。
 
+P-8是军事化的波音737，被认为是先进的反潜和反水面舰艇武器。它可搭载的武器包括鱼雷和鱼叉反舰导弹。这些喷气机还可以作为海上侦察机运行，并提供目标和跟踪信息。
 
-> A deadly car bombing in Eastern Afghanistan today. Officials say at least 27 killed, dozens wounded. The attack comes as the U.S. just yesterday began a final drawdown in Afghanistan after nearly 2 decades of war. CNBC's [@EamonJavers](https://twitter.com/EamonJavers?ref_src=twsrc%5Etfw) has the story. [pic.twitter.com/YX0BFpnuMw](https://t.co/YX0BFpnuMw)
-> — The News with Shepard Smith (@thenewsoncnbc) [April 30, 2021](https://twitter.com/thenewsoncnbc/status/1388281180454375428?ref_src=twsrc%5Etfw)
+链接：[https://www.washingtontimes.com/news/2021/apr/30/us-approves-24-billion-sale-maritime-patrol-jets-i/](https://www.washingtontimes.com/news/2021/apr/30/us-approves-24-billion-sale-maritime-patrol-jets-i/)
 
-
-
-链接：[https://twitter.com/thenewsoncnbc/status/1388281180454375428?s=20](https://twitter.com/thenewsoncnbc/status/1388281180454375428?s=20)
-
-***校对发布**：文顾*
+***发布**：文顾*
 
 +1
