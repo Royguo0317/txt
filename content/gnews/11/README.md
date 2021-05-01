@@ -1,21 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共政法委官媒微博无底线讥讽印度疫情 极尽阴损之能事绑架十四亿中国人
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1160829/)
+## 【每日快讯】04/30/2021：爆料革命各系列急需管理人才特别是一位独特意识形态下全面管理的CEO
+` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1160924/)
 
-#### 撰稿：盐和光、萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01091645/%E4%B8%AD%E5%A4%AE.jpg)图片来源：中央社
-中共病毒满世界肆虐、蔓延，难以控制，给人类带来了难以估量的损失和伤痛，印度作为重灾国，更是死伤无数。在如此惨绝人寰的时刻，“中国长安网”官方微博账号，却发布了这样的一幅人伦尽丧的拼图——左边是中国发射火箭的图片，右边是印度街头火化尸体的画面，并配文“中国点火VS印度点火”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01091614/%E7%81%AB%E7%AE%AD%E5%95%8A%E5%95%8A%E5%95%8A.jpg)图片来源：微博截图
-这并非长安网首次穷凶极恶式幸灾乐祸。4月29日，该官博也曾贴出一张由中国火神山建设工地和印度焚化场拼贴在一起的对比图，并配文“中国火神山，印度‘火神山’#印度德里将狗用火葬场改为人用”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01091624/%E7%81%AB%E7%A5%9E%E5%B1%B1.jpg)图片来源：微博截图
-长安网隶属于是中央政法委，属于党政新闻机构，替中国共产党发声，代表了9000万中共党员的形象。发出这样阴阳怪气的声音，实在“有辱”官媒门楣。把自己乖戾的快乐建立在别人的恐惧、痛苦之上，稍微有点人性普世观念，都不会发出如此丧心病狂的对比图和讽刺话语，所谓堂堂世界第二经济体，世界第一人口大国，也就是这样的作风？
+**制作；Cantonese工作室**
 
-人家烧尸体，中共哂之以烧火箭。《礼记》有云，“邻有丧，舂不相；里有殡，不巷歌” ，尊重生命是我们人类应该秉承的原则底线。作为官方媒体，发如此之图文，除了戳人痛处，还暗藏了捆绑14亿同胞的险恶用心，为此，新中国联邦人应更加大力度传播真相，区分共匪和14亿老百姓！
 
-（本文仅代表作者个人观点）
 
-校对/发布：萌萌的朋克
+**播报：【海媚 】 资料整理：【Elaine】【Annie】【文武全才】海报制作：【侬民】【Penny】视频制作：【Ken】粤语翻译校对：【文雀】上传：【星星】【向阳6768】**
 
-+1
+摘要：
+
+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01094201/210501-__02-1.jpg)
+2
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01094242/210501-__03-1.jpg)
+3
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01094325/210501-__04-1.jpg)
+4
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01094429/210501-__05-1.jpg)
+5
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01094503/210501-__06-2.jpg)
+6
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01094647/210501-__07-1.jpg)
+7
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01094729/210501-__08-1.jpg)
+8
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01094809/210501-__09-1.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01093124/image0%E9%9D%A2.jpg)
+0

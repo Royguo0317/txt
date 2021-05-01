@@ -1,24 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语版】4月28日秘翻快报
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1160294/)
+## 2021年5月1日灭共要闻快报
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1160592/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01044754/IMAGE-2021-05-01-164721.jpg)
-播放連接:[https://gtv.org/video/id=608d0ca56c00a14130e414b8](https://gtv.org/video/id=608d0ca56c00a14130e414b8)
+重点内容：
 
-**新闻总结：**
+印总理莫迪叔母因中共病毒去世；
 
-1.    香港再添注射中共疫苗死亡案例
+印度变异毒株扩散18国；
 
-2.    中共秘密军事项目被揭露 研究动物病毒长达9年
+中国人口普查数据迟不公布引热议；
 
-3.    中共博鳌论坛带节奏 挑拨美企对抗美国
+腾讯或被罚15.4亿美元；
 
-4.    许多女性在接种疫苗后月经周期反常
+网爆特斯拉车主维权“惊人内幕”；
 
-5.    印度中共病毒感染数据连破世界纪录
+因曝光中国肿瘤治疗黑幕张煜医生遭停职
 
-**By:【秘密翻译组】**
+**By**：【秘翻组**–**上天造灭疫组】
+
+
 
 0
