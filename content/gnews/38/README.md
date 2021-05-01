@@ -1,51 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读习神对海南进行重大人事调整
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1158541/)
+## 4月30日美国政要和政评家推特精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1158597/)
 
-直播视频：
+参议员乔什·霍利： 随着拜登政府放松了对 [#抖音](https://twitter.com/hashtag/%E6%8A%96%E9%9F%B3?src=hashtag_click)[@tiktok\_us](https://twitter.com/tiktok_us) 的施压，该公司就停止假装它不是个 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 公司了-并和北京有大量的联系。（转推说，还记得TikTok决定聘请美国首席执行官以缓解对其与中国关系的担忧吗？ 好吧，现在他们的首席执行官将兼任北京字节跳动的首席财务官）
 
 
 
-《路德时评》2021年4月30日早间节目主要内容：
+> As Biden Admin lets up the pressure on [@tiktok\_us](https://twitter.com/tiktok_us?ref_src=twsrc%5Etfw), the company stops pretending it’s anything other than a Chinese company – with ties aplenty to Beijing [https://t.co/1ei46NN9AG](https://t.co/1ei46NN9AG)
+> — Josh Hawley (@HawleyMO) [April 30, 2021](https://twitter.com/HawleyMO/status/1388152969783349256?ref_src=twsrc%5Etfw)
 
-**·**习神对海南进行重大人事调整
 
-新华社北京4月30日报道[\[1\]](http://www.xinhuanet.com/local/2021-04/30/c_1127397194.htm)：日前，经中共中央批准，中央纪委国家监委对海南省委原常委、三亚市委原书记童道驰严重违纪违法问题进行了立案审查调查。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30193055/%E7%AB%A5%E9%81%93%E9%A9%B0.jpg)[童道驰](https://p6-tt.byteimg.com/origin/pgc-image/e99b1130ed9c444bbdcea9e1c8a44443?from=pc)
-4月29日消息[\[2\]](https://www.163.com/dy/article/G8QLTMJL051482MP.html)，中共中央日前批准：陈国猛任中共海南省委委员、常委和省纪委书记。陈国猛此前担任中央纪委国家监委案件审理室主任。简历显示，陈国猛1966年出生，福建晋江人，厦门大学法律系毕业。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30193045/%E9%99%88%E5%9B%BD%E7%8C%9B.jpg)[陈国猛](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0430%2Fad102ac2p00qsco9v004td200hi00afg00g2009k.png&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
-中国人大网4月29日发布了一则消息[\[3\]](https://news.hangzhou.com.cn/gnxw/content/2021-05/01/content_7957473.htm)，由解放军选出的第十三届全国人民代表大会代表，海军原副参谋长宋学，因涉嫌严重违纪违法，2021年4月8日，海军召开军人代表大会决定罢免其第十三届全国人民代表大会代表职务。宋学的代表资格终止。这一消息中披露了两层意思，其一，宋学已不再担任海军副参谋长，其二，宋学涉嫌严重违纪违法。宋学曾任歼-15舰载机起降试验任务副总指挥。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30193033/%E5%AE%8B%E5%AD%A6.png)[宋学](https://x0.ifengimg.com/res/2021/4221267BF608CA6AA92E5AAC7D1F98F9B5C53B02_size469_w1080_h599.png)
-路德社评论：
 
-1、从陈国猛简历来看，他属于福建帮，是习神的亲信，习神现在的亲信要么来自福建帮，要么来自浙江帮。习神前几天突降三亚潜艇基地参加海军舰艇交付仪式，已经彰显出他将拿下海南的意图。
+美国务院： 在视频会议中, 阿斯彭安全论坛[@AspenSecurity](https://twitter.com/AspenSecurity)和副国务卿[@DepSecDef](https://twitter.com/DepSecDef)讨论了面临的来自中国的挑战以及国防部在遏制侵略中的持续作用。有关更多详细信息，请访问[https://go.usa.gov/xHmT8](https://t.co/ooMA0zKr2f?amp=1)。
 
-2、中共各派势力以反腐为名抓捕官员就是为抢占地盘，海南GDP在全国并非名列前茅，所以习神此前放任海南，交由王岐山管理。现在，习神意识到海南具有非常重要的战略意义，海南不仅有潜艇基地，还有大量前苏联军事专家，海南这几年大力发展旅游也，让当地房地产价格飙升，海南也成为发展党政关系的要地，南海局势越发紧张，南部战区最有可能发生战事，所以习神现在急于拿下南部战区的控制权。
 
-3、习亲信突降海南任纪委书记意味着中共党内在海南的斗争已经摆上台面，4月20日王岐山在博鳌论坛做开幕式讲话，4月25日习突降海南潜艇基地参加军舰交付仪式，若习不及时出面，王岐山肯定会有所行动。只要谁任命第一位战舰舰长，谁就能安插核心技术人员，就能控制整艘军舰。习此前忽视了海军的重要性，所以他安排空军的许其亮成为军委副主席，陆军与海军对此非常不满，习现在意识到东海和黄海战略纵深有限，南海则相反，海南还承包了南海岛礁建设，掌握着中共国海军话语权。
 
-4、习突然任命陈国猛担任海南纪委书记，计划用反腐的方式清除王岐山在海南的势力，海南是王岐山最后的领地，肯定会殊死反抗，他们极有可能对陈国猛下狠手，党内必将掀起一场血雨腥风。
+> During a virtual address with the [@AspenSecurity](https://twitter.com/AspenSecurity?ref_src=twsrc%5Etfw) Forum, [@DepSecDef](https://twitter.com/DepSecDef?ref_src=twsrc%5Etfw) discussed the challenges presented by China and the ongoing role of the DOD in deterring aggression. Visit [https://t.co/hKSwChWu9I](https://t.co/hKSwChWu9I) for more details. [pic.twitter.com/8fkVrDhvFZ](https://t.co/8fkVrDhvFZ)
+> — Department of Defense 🇺🇸 (@DeptofDefense) [April 30, 2021](https://twitter.com/DeptofDefense/status/1388212413208702977?ref_src=twsrc%5Etfw)
 
-5、中共党内局势现在变得非常复杂，各派势力间既联手又互杀，中共常用双规引出某位官员背后的势力，这就是中共的绞肉机体制，谁都避免不了站队和党内斗争。在美国，任何一位涉案官员都有最基本的人权保障，还有自己的发声机会，而中共国的官员连发声机会都没有，中共就是通过击溃对方心理防线和人格底线的方式控制人，所以，陈国猛空降海南肯定让当地官员恐惧。
 
-6、中央政法委秘书长，全国政法队伍教育整顿领导小组副组长、办公室主任陈一新近日也在对政法委系统进行整顿[\[4\]](http://legal.people.com.cn/n1/2021/0429/c205462-32091316.html)，习正在为2022年连任做人事调整，他现在最大的敌人就是上海帮。截至目前，上海帮节节败退，习神势力直插上海帮控制的各个领域，从表面上看，习神的掌控力越来越强，但是中共党内斗争的谜底只能等未来才知晓，这样的体制绝不可能给中国带来任何希望。
 
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+国务院发言人内德·普莱斯： [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 对新冠杰出的控制和捐献防护用具，都体现出它对全球健康的强大贡献。台湾拥有抗击该疾病的世界领先的专家，我们需要在世界卫生大会上听到来自台湾的声音。
 
-参考文章：
 
-[1][http://www.xinhuanet.com/local/2021-04/30/c\_1127397194.htm](http://www.xinhuanet.com/local/2021-04/30/c_1127397194.htm)
 
-[2][https://www.163.com/dy/article/G8QLTMJL051482MP.html](https://www.163.com/dy/article/G8QLTMJL051482MP.html)
+> Taiwan's outstanding control of COVID-19 and its donations of PPE demonstrate its strong contribution to global health. Taiwan has some of the world's leading experts in combatting this disease, and we need to hear from Taiwan at the World Health Assembly.
+> — Ned Price (@StateDeptSpox) [April 30, 2021](https://twitter.com/StateDeptSpox/status/1388119696315142144?ref_src=twsrc%5Etfw)
 
-[3][https://news.hangzhou.com.cn/gnxw/content/2021-05/01/content\_7957473.htm](https://news.hangzhou.com.cn/gnxw/content/2021-05/01/content_7957473.htm)
 
-[4][http://legal.people.com.cn/n1/2021/0429/c205462-32091316.html](http://legal.people.com.cn/n1/2021/0429/c205462-32091316.html)
 
-文章撰写：【重生】  编辑：【香柏树】
+章家敦（中国问题专家）： 拜登总统昨晚谈到 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 是一个竞争对手。某些用语表述为“对手”。那会更实际一些，但为什么我们不能像 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 称呼我们那样称呼他们？毕竟，他们向美国宣布发动“人民战争”，那为什么我们不该把他们叫做“敌人”？[#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click)
 
-本文仅代表作者个人观点
 
-+6
+
+> Prez [#Biden](https://twitter.com/hashtag/Biden?src=hash&amp;ref_src=twsrc%5Etfw) last night spoke of [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) as a competitor. Some term that state an “adversary.” That’s more realistic, but why can’t we call the [#Chinese](https://twitter.com/hashtag/Chinese?src=hash&amp;ref_src=twsrc%5Etfw) what they call us? After all, they declared a “people’s war” on [#America](https://twitter.com/hashtag/America?src=hash&amp;ref_src=twsrc%5Etfw), so why shouldn’t we say “enemy”? [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Gordon G. Chang (@GordonGChang) [April 29, 2021](https://twitter.com/GordonGChang/status/1387908138410680320?ref_src=twsrc%5Etfw)
+
+
+
+比尔·戈茨（华盛顿时报专栏作家）： 本周的华盛顿时报 [@WashTimes](https://twitter.com/WashTimes) “内幕”专栏：美国的核威慑策略需要针对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 作出升级。海军专家警告中共国是“未来十年的危险”；拜登的国务院过去的中国政策。【转推华盛顿时报，对中国的核威慑需要升级】
+
+
+
+> This week’s Inside the Ring column [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): US deterrence strategy needs upgrade to address China; Naval expert warns of China’s ‘Decade of Danger;’ Biden State Department on past China policy [https://t.co/q9FXA9MNKb](https://t.co/q9FXA9MNKb)
+> — Bill Gertz (@BillGertz) [April 29, 2021](https://twitter.com/BillGertz/status/1387914194859737091?ref_src=twsrc%5Etfw)
+
+
+
+
+
++4

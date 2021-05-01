@@ -1,22 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发新闻：阿富汗东部发生致命汽车炸弹爆炸
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1158682/)
+## 《路德社》新闻快讯（视频版）: 20210429朱利安尼先生接受Tucker采访
+` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1159030/)
 
-**撰稿人： 蓝精灵**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30203534/%E6%96%B0%E5%BB%BA%E5%9B%BE%E7%89%8717.jpg)
-在阿富汗东部发生致命汽车炸弹爆炸，据报道，至少有27人丧生，数十人受伤。美国昨天才刚刚开始从阿富汗进行最后的撤军，在此时发生的炸弹袭击，背后有是么样的故事呢？
+《路德社》出品
+
+以下视频是详细内容：
+
+主要内容：
+
+1.朱利安尼先生是第三位跟川普总统保持联系又被司法部调查的律师
+
+2.早上6点7名FBI突袭朱利安尼先生住所
+
+3.朱利安尼先生屡次三番询问是否需要亨特的硬盘，调查员都说了NO
+
+4.调查员居然不调查就信任了6点被突袭的人的话，认为那是亨特的硬盘
+
+5.媒体称这调查朱利安尼先生是否是乌克兰代理人
+
+6.现在的司法部不公正
+
+7.硬盘里面清晰地展示了亨特是瘾君子且拥枪，证明他在法庭上撒谎左派对其拥枪视而不见
+
+8.朱利安尼先生不会成为外国代理人
+
+9.搜查令违法违宪
+
+10.朱利安尼先生的律师提醒司法部信息泄漏然而司法部不作为
+
+11.司法部没有告诉朱利安尼先生调查什么事件，只要求他回顾他一生中做的事
+
+12.证明川普总统在通俄门等事情上的无辜是老爷子最重要的事
+
+13.拜登家族犯罪证据就在硬盘里
+
+14.朱利安尼先生认为这件事本来该有更大动静
+
+15.参与其中的检察官等都违反了宪法
+
+16.在弹劾案答辩过程中出现了司法部侵入朱利安尼先生iCloud的事情，这种事只会出现在独裁国家如战前东柏林
 
 
 
-> A deadly car bombing in Eastern Afghanistan today. Officials say at least 27 killed, dozens wounded. The attack comes as the U.S. just yesterday began a final drawdown in Afghanistan after nearly 2 decades of war. CNBC's [@EamonJavers](https://twitter.com/EamonJavers?ref_src=twsrc%5Etfw) has the story. [pic.twitter.com/YX0BFpnuMw](https://t.co/YX0BFpnuMw)
-> — The News with Shepard Smith (@thenewsoncnbc) [April 30, 2021](https://twitter.com/thenewsoncnbc/status/1388281180454375428?ref_src=twsrc%5Etfw)
+翻译：路德社翻译组
 
+制作：路德社视频组
 
+审核校对：玫瑰新闻组
 
-链接：[https://twitter.com/thenewsoncnbc/status/1388281180454375428?s=20](https://twitter.com/thenewsoncnbc/status/1388281180454375428?s=20)
-
-***校对发布**：文顾*
+上传排版：玫瑰新闻组
 
 +1

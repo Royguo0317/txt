@@ -1,57 +1,120 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共着手打击腾讯等科技巨头，华尔街反应震惊
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1158549/)
+## 战友展览板【4/30】
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1158670/)
 
-**翻译编辑： 蓝精灵**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30195140/tencent.jpg)
-2021年4月30日，泰勒.德登在Zero hedge上发表文章：有报道称，北京方面正在寻求监管机构的替罪羊，是谁最初负责并允许命运多劫的蚂蚁集团首次公开募股。在阿里巴巴创始人和蚂蚁集团董事长马云（Jack Ma）批评中国的金融法规之后，中共领导在十月份破坏了该法规。在一个不起眼的行业会议上，中国的反托拉斯监管机构惩罚了蚂蚁之后，正在对其他中国科技巨头的金融部门施加新的限制。
+**西班牙巴塞罗那喜悦农场 **wenwu
 
-据报道，北京方面准备对腾讯施加反托拉斯罚款，这与最近对阿里巴巴罚款28亿美元类似。有消息称，中国监管机构已召集13家互联网公司，下令他们整顿旗下数字金融业务，这对市场情绪造成了打击。分析师警告称，广泛的限制可能会影响信贷增长，并损害金融科技公司公开发行股票的前景。
+【以毒灭共】推文。如下
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30203011/E0M4ZjNWYAELSQt.jpeg)1. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1388015286356484097?s=20)**：
+*需要更多的中国COVID-19侦探。 搜索进行病毒研究的人民解放军科学家的照片。 在Twitter上显示研究和照片，使用Google Scholar*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30203408/E0AV-A0XsAIwQQ6-scaled.jpeg)2. **[Sellin博士推特](https://twitter.com/lawrencesellin/status/1387612423365046279?s=21)**：
+***（老百姓）**斯克里普斯研究所怎么会有一个董事会成员是与中国解放军军事医学科学院合作的药明康德的总裁？这是不是中共的军民融合？
 
-因为北京誓言要加强对该行业垄断行为的审查，并对阿里巴巴的蚂蚁集团进行全面改革，许多中国科技公司的HS科技指数比2月份的峰值下降了23％。美团是本周早些时候反托拉斯行动进行打击的对象，该公司股价下跌了多达3.6％，而腾讯则下跌了1.2％。两家公司是MSCI亚太指数的最大拖累。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30195506/meituantencent.png)
-在香港，恒生指数跌至最低点，跌1.6％，其中阿里巴巴和美团跌幅最大。沪深300指数是中国的蓝筹股指数，上周五下跌了0.6％，是下周五市场假期之前的最后一次下跌。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30195454/CSI.png)
-尽管现在是晚上，但在0700ET上发布的《华尔街日报》报道了消息，该报告证实了分析师的普遍预期：中国人民银行和其他四个监管机构已告知腾讯和其他公司，他们的财务状况应用程序将不再被应用在贷款和其他金融产品，将要求这些公司从现在开始进行结算。在中国人民银行金融市场部近三个小时的会议中，监管机构告诉公司代表，将多个金融服务捆绑在一个平台上的金融体系，使很多钱流入了各种产品，给投资者带来了更大范围的风险。
-
-监管机构推动将技术公司广泛的金融产品和服务与其核心支付平台脱钩。亿万富翁企业家马云（Jack Ma）说：如果实施的话，将打击由金融服务巨头蚂蚁集团（Ant Group Co.）最成功开创的有利可图的商业模式。“过去，付款是所有交易的结束，但现在付款已成为所有交易的开始。”蚂蚁金服当时的首席执行官高西蒙（Simon Hu）去年对中国媒体说。
-
-后来，监管机构以蚂蚁造成的系统性金融风险为由，停止了该公司计划的首次公开募股，并敦促其重组为金融机构，并接受中国中央银行的监督。华尔街银行的分析师对北京最近的举动表示（由彭博社提供）,北京对中国最大企业的反托拉斯打击行动是全球第二大经济体股票市场估值面临的最大威胁之一（并且可能至少部分促成了中国企业最近在美国上市的热潮）。
-
-杰佛瑞（Jefferies）：
-
-- “好日子已经过去了。第2级金融科技平台（除腾讯金融外的13家公司）在过去六个月中业务增长迅速，这是因为它们一直在获得市场份额，而监管机构则专注于蚂蚁整顿，但我们预计从2020开始它们的交易量增速将放缓。 ”
-- “我们重申，中国已经从鼓励个人消费贷款转变为遏制住宅杠杆的快速增长。”
-- “金融科技公司将很难上市，包括海外和二级上市，这对香港交易所也是不利的。”
-- 其小额贷款或消费金融子公司的ABS发行将收紧。
-- 全球首席信息官办公室（首席执行官Gary Dugan）：此举“令人担忧”，“如果这些限制限制信贷增长，对经济和股票市场将是个坏消息。”
+**（Sellin)**重要的是–中共国的军方已经深入渗透到美国的病毒研究项目中。斯克里普斯公司领导了一场 “科学 “运动，以支持中共关于#COVID19是自然起源的说法，其作品被广泛引用的是克里斯蒂安·安德森的《SARS-CoV-2的近似起源》。只是来自中共的宣传。*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30204129/E0IaVhRXIAEagpZ.jpeg)3. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1387700846574637057)**：
+*可悲的事实是–在过去一年中，我联系了五位美国共和党参议员。没有人愿意调查新冠病毒的起源，因为美国国会不是为美国人民工作，而是为那些与中共合作赚钱的国际商人工作。*
+*Senator Lamar Alexander 、Senator Thom Tillis 、Senator Ted Cruz 、Senator Richard Burr 、Senator Tom Cotton*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30204608/E0HYsJzWUAAccu8.jpeg)4. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1387628680009093128)**：
+*最后的一根稻草–毫无疑问，COVID-19是实验室制造的#中共病毒。早在2005年，中共的科学家们就已经通过动物模型 “连续传递 “基因工程病毒，使其更加致命。
+（向火来战友致敬） #超限生物武器*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30205301/E0HAsDjUcAAxIg-.jpeg)5. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1387604910871437312)**：
+*周育森生前的最后一项专利 “新型冠状病毒COVID-19疫苗、制备方法及其应用” 
+这款疫苗既不是mrna疫苗，也不是灭活疫苗，而是融合蛋白疫苗。注意！专利的申请时间是2020年2月24日，也就是武汉封城一个月后，这款疫苗就已经问世。只有一种可能的解释，那就是疫情爆发前就已经研发疫苗多时*
 
 
-核心太平洋
-
-- 投资者会保持谨慎，因为关于每个公司的详细政策还不够清楚，因为目前只有一个政策框架
-- 鉴于每家公司的政策不确定性仍然很高，投资者目前可能不会急于购买这些公司，尽管该框架本身消除了该行业的一些负担。
-- 例如，对腾讯和美团的影响尚不明确，而这两家公司有可能不需要像阿里巴巴那样，重组其金融科技业务。
+> Another critical SMOKING GUN provided by [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw)
+> Chinese Communist Party military scientists (Yusen Zhou) already had a [#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) prepared at the beginning of the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) pandemic. Patent application on February 24, 2020.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#corona](https://twitter.com/hashtag/corona?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/C32mbRn7wU](https://t.co/C32mbRn7wU)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 29, 2021](https://twitter.com/LawrenceSellin/status/1387632646344294403?ref_src=twsrc%5Etfw)
 
 
-彭博资讯（分析师Francis Chan）
+6. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1387632646344294403)**：
+***（火来）****周育森生前的最后一项专利 “新型冠状病毒COVID-19疫苗、制备方法及其应用”
+这款疫苗既不是mrna疫苗，也不是灭活疫苗，而是融合蛋白疫苗。注意！专利的申请时间是2020年2月24日，也就是武汉封城一个月后，这款疫苗就已经问世。只有一种可能的解释，那就是疫情爆发前就已经研发疫苗多时*
 
-- “大型科技应用程序的支付功能是中国大多数金融科技产品的最大门户，而删除这些链接可能会削弱金融科技行业的未来前景。”
-- “这可能导致整个金融科技市场萎缩。”
+***（Sellin)**另一个关键的确凿证据由 火来 提供
+中共军事科学家（周育森）在#COVID19大流行之初就已经准备好了#COVID19疫苗。2020年2月24日申请专利。
+#中共病毒 #超限生物战*
 
 
-在即将到来的黄金周假期期间，亚洲股市面临一周的流动性停滞，中国下跌，最新的令人失望的采购经理人指数，引发了人们对中国经济增长是否可能放缓的质疑。在星期五的政治局会议之后，该国最高统治机构警告说，当前的经济复苏仍然是“不平衡和不稳定的”，将需要更多的努力来实现“平衡”的经济。
+> 关于Sad Truth，一点个人感想：
+> 看到Sellin博士义愤填膺直接点名几位参议员，去年没有推动病毒真相的时候。我在想，为什么他们不推动呢，是因为我们给的材料不够么，说服力不强？急迫性不高？或者客观上美国疫情不够惨烈？(1)
+> — 德意志之鹰 (@dezying) [April 29, 2021](https://twitter.com/dezying/status/1387767980377915406?ref_src=twsrc%5Etfw)
 
-但是，对中国经济短期前景的担忧可能并不是唯一影响投资者情绪的因素。本周早些时候，我们还得到确认，中国经济面临的通货紧缩势头特别可怕。综上所述，最新的中国人口普查数据（不知何故泄露给了英国《金融时报》）预计将显示自1949年开始记录以来人口的首次年度下降。
 
-这只是最近的一次提醒，中国正在与三个恶性经济恶魔作战，而不是与三个恶魔作战。不可克服的债务、通货紧缩和人口统计，这些相互关联的问题有可能削弱世界的未来增长潜力。所有这些使我们回到了可能是市场最重要的近期因素之一：中国的信贷冲动占国内生产总值的百分比，这是对于不熟悉的人来说，是衡量公共和私人信贷创造变化的一种度量。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30195427/ccimpulse.jpg)
-随着华盛顿推动数十年来最大幅度的加税，以及美国不断上升的通货膨胀，美联储越来越难以忽视，中国的信贷冲动将在全球信贷创造中发挥更大的作用，而使全球经济转向。
+7. **[德意志之鹰推特](https://twitter.com/dezying/status/1387767980377915406?s=20)**：
+*关于Sad Truth，一点个人感想： 看到Sellin博士义愤填膺直接点名几位参议员，去年没有推动病毒真相的时候。我在想，为什么他们不推动呢，是因为我们给的材料不够么，说服力不强？急迫性不高？或者客观上美国疫情不够惨烈？(1)
+美国国会运作有其自身逻辑，民众的批评和责问会给议员施加压力，可以影响具体议案的商讨，最终推进成法案，落实到行政。但抨击“他们不代表美国人民”不是我们绝大多数美国政治局外人的说辞，如果我们也去跟风骂几位议员，似乎只有泄愤，而且近似一种无能的愤怒。(2)
+又看了一遍闫博士两期Lethal Deception视频，我觉得我找到定位了。美国人可以尽情把这个话题政治化抨击当局政策，部分是出于他们强烈的问责政府戒备心态，另一方面，也因为他们并不能把病毒真相的细节说得足够细致。但是，我们能！(3)
+听着各位医生博士科学家各种政治化的，情绪化的观点，在一旁的闫博士一直非常冷静，只讲解病毒真相的重要细节和中共病毒战的思路。以毒灭共，一定是赢在这些关键的细节上！所以我只能一再感叹：完美的闫博士！真诚无敌的闫博士！(4)
+在我们还没有把中共寻毒制毒投毒解毒的完整网络和证据链摸清楚的时候，似乎更应该埋头梳理证据，传播分享关键信息，而不是跟风骂这些议员无良。 有道是：强者强己不强人 恕者恕人不恕己 与大家共勉！(5)*
 
-原文链接：[https://www.zerohedge.com/markets/jolted-wall-street-responds-chinas-latest-crackdown-tech-giants](https://www.zerohedge.com/markets/jolted-wall-street-responds-chinas-latest-crackdown-tech-giants)
 
-***校对发布**：文顾*
+> SARS冠状病毒的仓鼠动物模型，中共军方是一直在做的。2007年第三军医大的吴玉章和军事医学科学院的王希良团队分别做了中国仓鼠(Chinese hamster)和叙利亚金仓鼠(golden Syrian hamster)的免疫实验，NIH/NIAID的Kanta Subbarao也是该动物模型较早的建立者。
+> p.s. 这些可爱的小动物闫博士应该都很熟悉 😀 [https://t.co/KrKI8VoeWW](https://t.co/KrKI8VoeWW) [pic.twitter.com/lvAjK5g1V6](https://t.co/lvAjK5g1V6)
+> — 德意志之鹰 (@dezying) [April 29, 2021](https://twitter.com/dezying/status/1387558706687225859?ref_src=twsrc%5Etfw)
 
-+4
+
+8. **[德意志之鹰推特](https://twitter.com/dezying/status/1387558706687225859?s=20)**：
+*闫博士进一步揭示投毒细节: 中共用的动物模型不恰当，他们用的人源小鼠（hACE2 transgenic mice），但是他们没有做仓鼠（golden hamster）的模型，所以认为释放病毒可防可控！ 这一点可以从秦川的访谈和相关论文中得到验证!
+SARS冠状病毒的仓鼠动物模型，中共军方是一直在做的。2007年第三军医大的吴玉章和军事医学科学院的王希良团队分别做了中国仓鼠(Chinese hamster)和叙利亚金仓鼠(golden Syrian hamster)的免疫实验，NIH/NIAID的Kanta Subbarao也是该动物模型较早的建立者。 p.s. 这些可爱的小动物闫博士应该都很熟悉*
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30210534/E0KN4VoWQAMFrID.jpeg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30210526/E0KN4VlWEAcFUyj.jpeg)
+
+9. **[Simone Gold博士推特](https://twitter.com/drsimonegold/status/1387827663801393161)**：
+*相互矛盾吗？辉瑞公司的试验警告男人要远离孕妇……但现在CDC正在推动孕妇不假思索地注射一种实验性生物疫苗。*
+【灭共时代】
+
+
+
+> 二马曾经竭尽全力向共产党表衷心，拍马屁，立先锋，看来没啥屁用！ [https://t.co/yp1TWH6gx5](https://t.co/yp1TWH6gx5) [pic.twitter.com/7WP7dIpRSj](https://t.co/7WP7dIpRSj)
+> — 瞿水台 Qu Shuitai (@QuShuitai) [April 29, 2021](https://twitter.com/QuShuitai/status/1387878682522423299?ref_src=twsrc%5Etfw)
+
+
+1. **[瞿水台推特](https://twitter.com/QuShuitai/status/1387878682522423299?s=20)**：
+***（RFA）**中国“反垄断”大刀再砍向互联网巨头。 《路透社》引述消息人士，指中国将对腾讯开出至少100亿元人民罚单，少于阿里巴巴早前的182.28亿元人民币 知情人士指，监管机构对阿里巴巴和腾讯的态度不同，腾讯不是最大目标，但既然反垄断行动正在进行，就不可能不处罚腾讯
+
+**（瞿水台）**二马曾经竭尽全力向共产党表衷心，拍马屁，立先锋，看来没啥屁用！*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30211456/E0I4qTzXsAIRVYr-1.jpeg)2. **[Sellin博士推特](https://twitter.com/lawrencesellin/status/1387734054980788229?s=21)**：
+*历史讣告*
+
+
+> 参议院军事委员会举行「全球威胁」听证会，讨论中共威胁
+> 参议员图伯维尔问国防情报局局长贝利尔：现在习周围全是“应声虫”，没人敢提反对意见，“忠诚”比其他独裁者更“绝对”，这会增加习对形势误判的风险吗？尤其在台海上。您对此担忧吗？
+> 贝利尔：回头再告诉您
+> 
+> 搂(lōu)住，搂住！可不能影响人家加速… [pic.twitter.com/CSPOWtB7Fb](https://t.co/CSPOWtB7Fb)
+> — 珠穆朗玛 (@ZanXixi) [April 30, 2021](https://twitter.com/ZanXixi/status/1387920148833529856?ref_src=twsrc%5Etfw)
+
+
+3. **[喜站推特](https://twitter.com/ZanXixi/status/1387920148833529856?s=20)**：
+*参议院军事委员会举行「全球威胁」听证会，讨论中共威胁 
+参议员图伯维尔问国防情报局局长贝利尔：现在习周围全是“应声虫”，没人敢提反对意见，“忠诚”比其他独裁者更“绝对”，这会增加习对形势误判的风险吗？尤其在台海上。您对此担忧吗？ 
+贝利尔：回头再告诉您 搂(lōu)住，搂住！可不能影响人家加速…*
+
+
+> 20210429朱利安尼先生接受Tucker採訪1/4
+> 1.朱利安尼先生是第三位跟川普總統保持聯繫又被司法部調查的律師
+> 2.早上6點7名FBI突襲朱利安尼先生住所
+> 3.朱利安尼先生屢次三番詢問是否需要亨特的硬盤，調查員都說了NO
+> 4.調查員居然不調查就信任了6點被突襲的人的話，認為那是亨特的硬盤 [pic.twitter.com/5VxZhjxx3I](https://t.co/5VxZhjxx3I)
+> — Andy5 (@andy5\_123) [April 30, 2021](https://twitter.com/andy5_123/status/1388056360957272068?ref_src=twsrc%5Etfw)
+
+
+4. **[Andy5推特](https://twitter.com/andy5_123/status/1388059309980872706)**：
+***20210429朱利安尼先生接受Tucker採访**
+1.朱利安尼先生是第三位跟川普总统保持联系又被司法部调查的律师
+2.早上6点7名FBI突袭朱利安尼先生住所
+3.朱利安尼先生屡次三番询问是否需要亨特的硬盘，调查员都说了NO
+4.调查员居然不调查就信任了6点被突袭的人的话，认为那是亨特的硬盘
+5.媒体称这调查朱利安尼先生是否是乌克兰代理人
+6.现在的司法部不公正
+7.硬盘裡面清晰地展示了亨特是癮君子且拥枪，证明他在法庭上撒谎左派对其拥枪视而不见
+8.朱利安尼先生不会成為外国代理人
+9.搜查令违法违宪
+10.朱利安尼先生的律师提醒司法部信息洩漏然而司法部不作为
+11.司法部没有告诉朱利安尼先生调查什麼事件，只要求他回顾他一生中做的事
+12.证明川普总统在通俄门等事情上的无辜是老爷子最重要的事
+13.拜登家族犯罪证据就在硬盘裡
+14.朱利安尼先生认为这件事本来该有更大动静
+15.参与其中的检察官等都违反了宪法
+16.在弹劾案答辩过程中出现了司法部侵入朱利安尼先生iCloud的事情，这种事只会出现在独裁国家如战前东柏林*
+
+
++3

@@ -1,30 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【健身健心】花式滚轮健身
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1158903/)
+## 【军事快讯】海豹突击队转型回归海洋作战——意味深长的战略部署
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1159011/)
 
-作者：纽约香草山健身部 Ivy001
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+作者：纽约香草山健身部     Ivy001
 
 
 
-关注健身滚轮训练课程的战友，你们有没有练出腹肌了呢？不知不觉中，健身滚轮的训练课程，已经到最后一课了。纽约香草山健身部小教练的专业教程之——后背式健身滚轮的用法。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30213720/85-1.jpg)图源网络
 
-首先，坐下，双腿伸直，把健身滚轮放在背后。挺背收腹，双手握住健身滚轮手柄，往后推动滚轮，身体最大限度向后拉伸，然后拉着滚轮回到原位。如此反复。
 
-后背式滚轮健身可以锻炼上身的背部和肩部肌肉，同时，还能拉伸肩部的韧带。
+4月28日《美联社》报道，在过去二十年主力于反恐战争的美国海豹突击队，正在进行重大转型，将重新集中入海作战，以更好地应对来自中、俄等强国的威胁。
 
-温馨提示，做后背式滚轮健身训练时，一定要注意腿部保持伸直，不能弯曲，否则腿部会分担腹部的受力，影响训练效果。
+海豹突击队将怎样过渡到新任务呢？美国海军海豹突击队指挥官、海军特种作战司令部司令霍华德（Wyman Howard III）海军少将介绍说：“新的计划将海豹突击队的作战小组数量减少30%，扩大作战小组的人员编制。提高这些作战小组的打击能力和对付先进海面上和水下敌对势力的能力。还计划提高海豹突击队作战部队的网络战、电子战和无人驾驶系统的能力。”
 
-战友们，今天你健身了吗？传播爆料革命了吗？传播香港危机、病毒真相了吗？传播疫苗的危害了吗？让我们紧跟文贵先生的步伐，快乐健身，健康生活，努力灭共！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30225402/image-498-67.png)图源网络
 
-（本文仅代表作者观点）
+美国海豹突击队，世界最强、最先进的特种部队之一。海豹（Seal）是“Sea, Air and Lands”的缩写。海豹突击队主要执行五类任务：非常规战争（UW），境外内部防卫（FID），直接行动（DA），反恐行动（CT），特别侦察（SR）。用个形象一点的比喻，海豹突击队就是一把最锋利的匕首，最擅长的就是制定情报网络，发现目标并打击目标。哪里是最危险、对美国威胁最大的地方，这把匕首就会被装备在那里。
+
+现在，美国国防部从伊拉克和阿富汗撤回这支最精锐的部队，重新定位到海洋，回归海军。这意味着，美国国防部认为，目前最大的威胁是来自海上，尤其是亚太地区，必须把这把最锋利的匕首装备在那里。所谓回归海洋，说白了，就是编制到航母编队上。
+
+海军是美国最重要的部队，也是风向标部队。因为哪里准备开战，海军就会部署到哪里，航母编队就会开到哪里。目前，美国在北欧巡防的只有一个航母编队，这是主要防备俄罗斯的，而在亚太地区，光是日本就驻防了两个航母编队。美国还与英国、澳洲、日本、加拿大等17个国家，在亚太地区进行联合军演。美国在剑指俄罗斯，还是中共国？这完全是不言而喻了，肯定重点防备的是中共国。
+
+现在，美国国防部把海豹突击队调防到航母编队上——这是个斩首本拉登的精锐部队。五角大楼动的这一步棋，意味深长哦。中南坑里的老杂毛，你们晚上还能睡得着吗？
+
+参考阅读：
+
+[美国海豹突击队在任务中转型 集中面对中俄威胁](https://www.timednews.com/article/2021/04/28/4338.html)
 
 ![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
@@ -40,14 +44,14 @@
 
 **[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
 
-
-+3
++2
