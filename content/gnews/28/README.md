@@ -1,84 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》解读美最高将领明确将军力聚焦中共国，及四位美国将领同框照片
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1159979/)
+## 蔚来汽车因芯片供应短缺陷入生产困境
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1160071/)
 
-直播视频：
+新闻来源：《美国消费者新闻与商业频道（CNBC）》| 作者：郑伊琳（EvelynCheng） | 发布时间：2021年4月30日
+翻译/简评：随波逐流 | 校对/审核：万人往 | Page：Daoiii
+
+[!\[\]()!\[\](https://spark.adobe.com/page/JMTzmr3WzWRB7/images/0f78b99a-12ba-4451-a619-34ad82595438.jpg?asset_id=15c5c387-bf00-4ded-8281-938cd0e5ce1c&amp;img_etag=%225ff09ce87f2fe079996ffc225ba6e939%22&amp;size=2560)](https://spark.adobe.com/page/JMTzmr3WzWRB7/images/0f78b99a-12ba-4451-a619-34ad82595438.jpg?asset_id=15c5c387-bf00-4ded-8281-938cd0e5ce1c&amp;img_etag=%225ff09ce87f2fe079996ffc225ba6e939%22&amp;size=1024)
+
+**简评：**
+
+**中共的《中国制造2025》计划，暴露了中共想要引领世界科技的野心，从最初不断高调声称自己是世界第二大经济体，到发展“一带一路”，再到高呼“合作共赢”及共建“人类命运共同体”，种种狂妄自大的表现引起了全世界的关注。在此过程中，中共运用的多种不正当竞争手段所造成的巨大对美贸易顺差，直接引发了川普政府的警觉和调查，从而要求中共履行世贸协议，取消关税壁垒，开始了旷日持久的中美贸易战和之后一系列针对中共企业的制裁措施。最后的结果是，当初声势浩大的计划纷纷遭遇搁浅，华为、中兴等一大批欲在全球市场一展拳脚的军工企业受到史上最严厉制裁，芯片供应链完全中断，虽然对外仍勉力维持形象，发布一些虚假消息来振奋国人，但终究难逃破产命运。**
+
+**《中国制造 2025 》的宗旨是靠政府补贴帮助中共在生物制药、新能源汽车、芯片制造、量子计算机等领域，发展一大批高科技类制造产业，夺取全球市场份额以取代外国竞争对手，造成未来全世界对中共市场的依赖。中共从来没有努力发展自己的技术，都是拿来主义、机会主义，自己做不来就买，大肆并购外国企业，而且在此过程中使用了偷窃知识产权、派出商业间谍、强制市场换技术、包装的军民融合企业、收买技术人才等多种不正当竞争手段。以前没有引发全球制裁时，中共认为自己无所不能，可以称霸世界了，结果因为一个芯片问题，瞬间被打回原形，各个领域的短板相继暴露无疑，核心技术几乎没有。**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/JMTzmr3WzWRB7/images/7a33f862-bffe-48d3-a167-f3ad8fe07ddb.jpg?asset_id=e3cc3929-638d-40c2-9406-144b3f1db806&amp;img_etag=%22a3db18070cb38eb290cffb54a08ada86%22&amp;size=2560)](https://spark.adobe.com/page/JMTzmr3WzWRB7/images/7a33f862-bffe-48d3-a167-f3ad8fe07ddb.jpg?asset_id=e3cc3929-638d-40c2-9406-144b3f1db806&amp;img_etag=%22a3db18070cb38eb290cffb54a08ada86%22&amp;size=1024)
+
+**目前，中共的许多核心技术产品都要依赖外国进口，靠着偷窃它国知识产权得到的一些皮毛，就仓促上马各类前沿产业，最后只是靠一大堆的进口零件组装出了所谓的“中国制造”。以前的华为、中兴如此，现在刚起步的电动汽车企业蔚来汽车也是如此，到了关键的芯片供应链遇到问题而面临短缺时，以前夸下的海口就迟迟无法兑现了。不管条件是否成熟，中共只想借某种新兴产业理念作为噱头，然后以各种宣传来为自己造势，靠着伪造的漂亮业绩表和一系列宏伟的计划蓝图，借机打包上市，欺骗投资者，到全世界割股民的韭菜。结果可想而知，不是因为关键技术被别人卡脖子，就是自己实力不行生产出一堆问题产品。等到人们醒悟过来，它已经在股市涨跌中狠赚了一把，买单的都是无辜的股民。这种毫无诚信的做法只会造成中共与世界经济大面积“脱钩”，使国内经济发展陷入困境，激化社会矛盾，加速其灭亡。**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/JMTzmr3WzWRB7/images/4a6ddf63-2e41-414a-85e5-4e4f1e4942a7.jpg?asset_id=677791d8-040c-40b5-8628-c48949a1fff8&amp;img_etag=%2215166e6f195ee82d7a739abcb46eff28%22&amp;size=2560)](https://spark.adobe.com/page/JMTzmr3WzWRB7/images/4a6ddf63-2e41-414a-85e5-4e4f1e4942a7.jpg?asset_id=677791d8-040c-40b5-8628-c48949a1fff8&amp;img_etag=%2215166e6f195ee82d7a739abcb46eff28%22&amp;size=1024)
+
+**原文翻译：**
+
+## 中共国电动汽车制造商蔚来汽车表示，芯片短缺将减慢汽车交付速度
+
+**关键点**
+
+- 蔚来汽车董事长李斌（William Li）在周五的财报电话会议上表示，汽车行业普遍预计芯片短缺将在第三季度达到一个转折点。
+- 目前，初创企业蔚来汽车预测第二季度交付量将比今年前三个月温和增长5％到10％。
+- 管理层表示，衡量盈利情况的车辆销售利润率在第一季度上升至21.2％，这主要是由于消费者购买了蔚来汽车的驾驶辅助软件并升级到了更昂贵的电池订购计划。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/JMTzmr3WzWRB7/images/a20ad67b-1f7f-439c-927a-86b09de49f70.png?asset_id=2b762182-ee1b-457f-82bc-a25b47fd05e5&amp;img_etag=%2269cbb977ca37d78316bbdf74eabdd2bb%22&amp;size=2560)](https://spark.adobe.com/page/JMTzmr3WzWRB7/images/a20ad67b-1f7f-439c-927a-86b09de49f70.png?asset_id=2b762182-ee1b-457f-82bc-a25b47fd05e5&amp;img_etag=%2269cbb977ca37d78316bbdf74eabdd2bb%22&amp;size=1024)CNBC 蔚来汽车计划在2022年开始交付其ET7电动轿车。郑伊琳 | 美国消费者新闻与商业频道（CNBC）
+北京——中共国电动汽车初创公司蔚来汽车（Nio）周五表示，预计全球芯片短缺将拉低第二季度的汽车交付量。
+
+在瑞萨电子（Renesas）拥有的一家日本芯片工厂里，三月发生的一场火灾加剧了现有的半导体产品的短缺，主要汽车制造商已被迫减产。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/JMTzmr3WzWRB7/images/2a773f0d-5b93-4d94-ab3c-bc14e012f191.jpg?asset_id=3188a859-1f0e-4142-98e8-4df1ad2a6e7c&amp;img_etag=%22f19616e79c9864ca29f75fd2a758dc7d%22&amp;size=2560)](https://spark.adobe.com/page/JMTzmr3WzWRB7/images/2a773f0d-5b93-4d94-ab3c-bc14e012f191.jpg?asset_id=3188a859-1f0e-4142-98e8-4df1ad2a6e7c&amp;img_etag=%22f19616e79c9864ca29f75fd2a758dc7d%22&amp;size=1024)
+
+没有提及发生火灾工厂的名字，蔚来汽车董事长李斌在一次财报电话会议上表示，他预计火灾的负面影响将在五月中旬冲击汽车供应链。李斌说，行业内普遍预计，短缺将在第三季度达到转折点。
+
+李斌说，目前，蔚来汽车不得不在3月底前后停产5个工作日，这将影响4月的汽车交付量。
+
+这家初创公司预测第二季度的汽车交付量将在21000到22000辆之间，与今年前三个月相比将增长5％到10％。与第一季度的16％和去年第四季度的42％增长相比，季度环比增长显著放缓。
+
+尽管存在着供应链和技术发展方面的挑战，但李斌表示，公司的首个ET7轿车仍有望在2022年第一季度按计划向客户推出。
+
+蔚来汽车在第一季度交付了20060辆汽车，是在美国上市的中共国电动汽车初创企业同行中交付最多的。蔚来汽车周五表示，在此期间的汽车销售额为74.1亿元人民币（11.3亿美元）。
+
+然而，埃隆·马斯克（Elon Musk）的特斯拉（Tesla）一直稳步提高在中共国的产量，在第一季度中，为这家汽车制造商带来了30亿美元的销售额。今年头三个月，中共国在特斯拉全球销量中所占的份额从2020年全年的21％上升至29％。
+
+今年迄今为止，特斯拉股价下跌了4％。蔚来汽车股价下跌了20％。
+
+**更多的司机升级他们的电池计划**
+
+成立于2014年的蔚来汽车报告称，第一季度每股亏损低于预期的0.23元人民币（4美分），而FactSet公司预测的是每股亏损0.68元人民币。
+
+衡量盈利情况的车辆销售利润率从前一个季度的17.2％上升至第一季度的21.2％。管理层表示，利润率的增长主要是由于消费者购买了蔚来汽车的驾驶辅助软件，并升级到了更昂贵的电池订购计划。
+
+100千瓦时电池功率计划每月花费1480元（约合228美元），而70千瓦时电池计划每月花费980元。
+
+在上周的上海车展上，公司总裁秦力洪（Lihong Qin）告诉美国消费者新闻与商业频道，近60％的蔚来汽车用户都选择了自八月份以来推出的电池即服务计划。
+
+管理层周五表示，蔚来汽车还选择了挪威的奥斯陆作为公司首个海外创业地。这家初创公司计划在5月6日公布更多细节。
+
+🔗[原文链接](https://www.cnbc.com/2021/04/30/chinese-electric-automaker-nio-says-chip-shortage-will-slow-car-deliveries.html)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/JMTzmr3WzWRB7/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/JMTzmr3WzWRB7/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
 
 
-《路德时评》2021年4月30日晚间节目主要内容：
-
-一、Sellin发推将史迪威、陈纳德、杜立特及其本人并列排放
-
-Sellin博士5月1日发推说道：“相信中国人民胜利的美国士兵。”Sellin博士还放上四位美国军官照片，分别是史迪威、陈纳德、杜立特和Sellin本人。
-
-
-
-> 相信中国人民胜利的美国士兵[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/CG9YWgooSu](https://t.co/CG9YWgooSu)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 30, 2021](https://twitter.com/LawrenceSellin/status/1388182835601739782?ref_src=twsrc%5Etfw)
-
-
-
-路德社评论：
-
-1、史迪威出生于美国佛罗里达州，美国陆军四星上将，曾经在二次大战期间驻中国接近三年，任驻华美军司令，东南亚战区副司令，盟军中国战区参谋长，支援中国物资等职务，后因与委员长蒋中正关系破裂而被调任，1946年去世。[\[1\]](https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%91%9F%E5%A4%AB%C2%B7%E5%8F%B2%E8%BF%AA%E5%A8%81)
-
-2、陈纳德曾为美国陆军航空队中将，飞行员。陈纳德有法国裔和匈牙利裔家庭背景，陈氏是二次大战时在中华民国抗日战争作战的美国志愿航空队（“飞虎队”）的指挥官，有“飞虎将军”之称。陈纳德将军的夫人是华裔美国政治家陈香梅女士。[\[2\]](https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%91%9F%E5%A4%AB%C2%B7%E5%8F%B2%E8%BF%AA%E5%A8%81)
-
-3、杜立特上将曾是美国空军将领、杰出的特技飞行员和航空工程师，第二次世界大战中率编队首次空袭日本东京，史称杜立特空袭，杜立特因此次行动成为美国人心目中的英雄，他也因这次行动中的贡献获颁荣誉勋章。[\[3\]](https://zh.wikipedia.org/wiki/%E8%A9%B9%E5%A7%86%E6%96%AF%C2%B7%E5%93%88%E7%BE%85%E5%BE%B7%C2%B7%E6%9D%9C%E7%AB%8B%E5%BE%B7)
-
-4、史迪威、陈纳德和杜立特这三位将领都曾在二战时期帮助中国抗击日本军国主义，在中共病毒肆虐的今天，美国将领Sellin博士依然与中国人民站在一起，照片中的新中国联邦旗帜就代表中国人民，可见全世界正义力量在支持新中国联邦。
-
-5、前三位将领都参与过二战，Sellin博士将自己照片与这三位将领并排就是在告诉全世界，中共发起的超限生物武器战争比肩二战，前三位将军都曾帮助中国人抵制日军侵略，新中国联邦爆料革命向全世界揭露中共病毒真相后，美国将和中国人民一同灭共，为中国人民赢得自由。
-
-6、近日，爆料革命战友和其他正义人士向Sellin博士提供了大量中共开展生物武器研究的证据，这让Sellin博士有感而发，在维护正义的道路上，中国人再次和美国并肩作战，这也让美国看到中国的希望，知道中共不等于中国人。
-
-二、美最高将领明确将军力聚焦中共国
-
-路透社5月1日报道[\[4\]](https://www.reuters.com/article/us-usa-military/next-major-war-will-be-very-different-us-defense-secretary-says-idUSKBN2CH2QO)：国防部长劳埃德·奥斯丁（Lloyd Austin）周五在前往夏威夷的美国太平洋司令部访问期间首次发表重要政策方面的讲话，美国需要为将来可能发生的冲突做准备，下一场主要战争的战斗方式将与我们此前的战斗大相径庭，这与五角大楼长期关注的“旧式战争”几乎没有相似之处。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01031908/%E7%BE%8E%E5%9B%BD%E9%98%B2%E9%83%A8%E9%95%BF.jpg)[美防长](https://s.wsj.net/public/resources/images/S1-JX114_USISRA_M_20210409094014.jpg)
-CNN4月30日报道[\[5\]](https://edition.cnn.com/2021/04/30/politics/us-japan-south-korea-generals-meet-intl-hnk/index.html)：美国最高将军周四同韩日军方举行会晤，美国军方称他们将“维护该地区长期和平与稳定”的承诺，并强调了美国将从中东向中共国进行更广泛的转移。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01031856/210303070141-file-mark-milley-2020-exlarge-169.jpg)[图片地址](https://cdn.cnn.com/cnnnext/dam/assets/210303070141-file-mark-milley-2020-exlarge-169.jpg)
-路德社评论：
-
-1、中共军事教材《非典非自然起源和人制人新种病毒基因武器》这本书将中共病毒称为当代基因武器，路德社曾在节目中说一次世界大战是化学武器的战场，二次世界大战是核武器的战场，第三次世界大战就是超限生物武器的战场，美国军方现在也意识到中共病毒战是中共发起的新型战争模式。
-
-2、中共对美国发起的超限战与传统战争有巨大区别，中共用超限战的方式对美国的媒体、金融、科技等各个领域发起全面攻击，中共病毒战直接将这场超限战带入高潮，美军将采用最新的反制措施应对这场战争，Sellin博士就代表美国军方奋战在一线。
-
-3、美国军事部署已经做出全面调整，从中东转移至中共国，美国将从此前的反恐主义全面转变为反共主义。
-
-三、基辛格警告美中紧张局势存在巨大危险
-
-基辛格（Henry Kissinger）周五在麦凯恩研究所全球问题塞多纳论坛上表示，美中紧张局势有可能吞没整个世界，并可能导致两大军事科技巨头之间发生类似世界末日的冲突。这两个超级大国的经济，军事和技术实力的融合所带来的风险远大于美国与苏联冷战的风险[\[6\]](https://www.france24.com/en/live-news/20210430-kissinger-warns-of-colossal-dangers-in-us-china-tensions)。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01031847/%E5%9F%BA%E8%BE%9B%E6%A0%BC.jpg)[基辛格](https://cdn.dayu.news/article/202103/28/93911/bac30256-6f18-4252-aa06-06868ddb63bb.jpg)
-路德社评论：
-
-1、基辛格对美中局势变化的论调已经有所转变，从此前的合作关系转变为敌对关系，基辛格也意识到中美冲突不可避免，他说出此番言论也意味着他将与中共保持距离。
-
-2、基辛格将中美关系与美苏冷战进行对比，一方面中美之战就是一次意识形态之战，另一方面中美之战的影响力和对全球的冲击力将远超美苏冷战。他也在提醒美国要做好心理准备。
-
-3、除此之外，新上任的印太司令官将于5月份访问日本，可见美国各个层面正在做全方位准备来应对中共国挑战。
-
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
-
-参考文章：
-
-[1][https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%91%9F%E5%A4%AB%C2%B7%E5%8F%B2%E8%BF%AA%E5%A8%81](https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%91%9F%E5%A4%AB%C2%B7%E5%8F%B2%E8%BF%AA%E5%A8%81)
-
-[2][https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%91%9F%E5%A4%AB%C2%B7%E5%8F%B2%E8%BF%AA%E5%A8%81](https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%91%9F%E5%A4%AB%C2%B7%E5%8F%B2%E8%BF%AA%E5%A8%81)
-
-[3][https://zh.wikipedia.org/wiki/%E8%A9%B9%E5%A7%86%E6%96%AF%C2%B7%E5%93%88%E7%BE%85%E5%BE%B7%C2%B7%E6%9D%9C%E7%AB%8B%E5%BE%B7](https://zh.wikipedia.org/wiki/%E8%A9%B9%E5%A7%86%E6%96%AF%C2%B7%E5%93%88%E7%BE%85%E5%BE%B7%C2%B7%E6%9D%9C%E7%AB%8B%E5%BE%B7)
-
-[4][https://www.reuters.com/article/us-usa-military/next-major-war-will-be-very-different-us-defense-secretary-says-idUSKBN2CH2QO](https://www.reuters.com/article/us-usa-military/next-major-war-will-be-very-different-us-defense-secretary-says-idUSKBN2CH2QO)
-
-[5]h[ttps://edition.cnn.com/2021/04/30/politics/us-japan-south-korea-generals-meet-intl-hnk/index.html](//edition.cnn.com/2021/04/30/politics/us-japan-south-korea-generals-meet-intl-hnk/index.html)
-
-[6][https://www.france24.com/en/live-news/20210430-kissinger-warns-of-colossal-dangers-in-us-china-tensions](https://www.france24.com/en/live-news/20210430-kissinger-warns-of-colossal-dangers-in-us-china-tensions)
-
-文章撰写：【重生】  编辑：【香柏树】
-
-本文仅代表作者个人观点
-
-+1
+0
