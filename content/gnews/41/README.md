@@ -1,53 +1,120 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疫苗是大流行病：拜登向印度倾销 6千万支能导致凝血的阿斯利康疫苗
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1158568/)
+## 战友展览板【4/30】
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1158670/)
 
-**作者：**Ethan Huff 2021-04-28
+**西班牙巴塞罗那喜悦农场 **wenwu
 
-**翻译：**加拿大温哥华圆成农场 卢卡斯
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30195321/%E5%9B%BE%E7%89%8710-14-1.png)图片来源：Ethan Huff 原文
-《自然新闻》美国历史上最令人厌恶的选举造假总统准备向印度倾销6千万支注射后能致人死亡阿斯利康疫苗，此前有报道称，注射该疫苗导致严重的血栓。
+【以毒灭共】推文。如下
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30203011/E0M4ZjNWYAELSQt.jpeg)1. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1388015286356484097?s=20)**：
+*需要更多的中国COVID-19侦探。 搜索进行病毒研究的人民解放军科学家的照片。 在Twitter上显示研究和照片，使用Google Scholar*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30203408/E0AV-A0XsAIwQQ6-scaled.jpeg)2. **[Sellin博士推特](https://twitter.com/lawrencesellin/status/1387612423365046279?s=21)**：
+***（老百姓）**斯克里普斯研究所怎么会有一个董事会成员是与中国解放军军事医学科学院合作的药明康德的总裁？这是不是中共的军民融合？
 
-现在，在美国没有人愿意接受阿斯利康疫苗，乔拜登正计划把阿斯利康疫苗当作”礼物”给印度，假装是一个善意的行为。
+**（Sellin)**重要的是–中共国的军方已经深入渗透到美国的病毒研究项目中。斯克里普斯公司领导了一场 “科学 “运动，以支持中共关于#COVID19是自然起源的说法，其作品被广泛引用的是克里斯蒂安·安德森的《SARS-CoV-2的近似起源》。只是来自中共的宣传。*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30204129/E0IaVhRXIAEagpZ.jpeg)3. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1387700846574637057)**：
+*可悲的事实是–在过去一年中，我联系了五位美国共和党参议员。没有人愿意调查新冠病毒的起源，因为美国国会不是为美国人民工作，而是为那些与中共合作赚钱的国际商人工作。*
+*Senator Lamar Alexander 、Senator Thom Tillis 、Senator Ted Cruz 、Senator Richard Burr 、Senator Tom Cotton*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30204608/E0HYsJzWUAAccu8.jpeg)4. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1387628680009093128)**：
+*最后的一根稻草–毫无疑问，COVID-19是实验室制造的#中共病毒。早在2005年，中共的科学家们就已经通过动物模型 “连续传递 “基因工程病毒，使其更加致命。
+（向火来战友致敬） #超限生物武器*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30205301/E0HAsDjUcAAxIg-.jpeg)5. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1387604910871437312)**：
+*周育森生前的最后一项专利 “新型冠状病毒COVID-19疫苗、制备方法及其应用” 
+这款疫苗既不是mrna疫苗，也不是灭活疫苗，而是融合蛋白疫苗。注意！专利的申请时间是2020年2月24日，也就是武汉封城一个月后，这款疫苗就已经问世。只有一种可能的解释，那就是疫情爆发前就已经研发疫苗多时*
 
-虽然阿斯利康的注射尚未在美国获得批准，但它正在整个欧洲使用，在那里接受者正在遭受致命的副作用。这导致包括丹麦在内的一些国家永久停止使用该疫苗。
 
-关于阿斯利康刺的所有坏消息显然都让这事成为一个糟糕的赌注，所以亨特的父亲——或者更准确地说，处理该疫苗的人决定把它们兜售到印度，而不是烧掉它们。
+> Another critical SMOKING GUN provided by [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw)
+> Chinese Communist Party military scientists (Yusen Zhou) already had a [#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) prepared at the beginning of the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) pandemic. Patent application on February 24, 2020.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#corona](https://twitter.com/hashtag/corona?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/C32mbRn7wU](https://t.co/C32mbRn7wU)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 29, 2021](https://twitter.com/LawrenceSellin/status/1387632646344294403?ref_src=twsrc%5Etfw)
 
-据报道，最初考虑用于美国的阿斯利康疫苗的全部库存将很快运往印度，等待联邦批准。美国食品和药物管理局（FDA）尚未授权使用阿斯利康疫苗，甚至用于”紧急”目的。
 
-白宫中共病毒协调员杰夫·齐恩茨（Jeff Zients）在谈到该计划时表示：”鉴于美国已经拥有并已获得FDA授权的各种疫苗的多个选择，而且阿斯利康疫苗未获授权在美国使用，我们在未来几个月内不需要在这里使用阿斯利康疫苗。
+6. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1387632646344294403)**：
+***（火来）****周育森生前的最后一项专利 “新型冠状病毒COVID-19疫苗、制备方法及其应用”
+这款疫苗既不是mrna疫苗，也不是灭活疫苗，而是融合蛋白疫苗。注意！专利的申请时间是2020年2月24日，也就是武汉封城一个月后，这款疫苗就已经问世。只有一种可能的解释，那就是疫情爆发前就已经研发疫苗多时*
 
-因此，美国正在考虑与其他国家共享阿斯利康剂量的选项。
+***（Sellin)**另一个关键的确凿证据由 火来 提供
+中共军事科学家（周育森）在#COVID19大流行之初就已经准备好了#COVID19疫苗。2020年2月24日申请专利。
+#中共病毒 #超限生物战*
 
-**阿斯利康疫苗是新的天花毯子**
 
-就像中共国故意将感染中共病毒的非法外国人释放到美国一样，这位造假总统最近的”同情印度国中共病毒大爆发”的行为与早期美国天花毛毯骗局非常相似。
+> 关于Sad Truth，一点个人感想：
+> 看到Sellin博士义愤填膺直接点名几位参议员，去年没有推动病毒真相的时候。我在想，为什么他们不推动呢，是因为我们给的材料不够么，说服力不强？急迫性不高？或者客观上美国疫情不够惨烈？(1)
+> — 德意志之鹰 (@dezying) [April 29, 2021](https://twitter.com/dezying/status/1387767980377915406?ref_src=twsrc%5Etfw)
 
-过去，早期的美国定居者欺骗美洲原住民，给他们天花感染的毯子作为”礼物”。当地人拿走了这些毯子，以为这些礼物是为他们好而不是害他们。他们中的许多人后来在感染了隐藏的病原体（然后通过他们的人民传播）后遭受痛苦和死亡。
 
-在当今世界，同样的事情再次发生，政府”仁慈地”试图将有毒的”疫苗”分流到第三世界国家。他们声称，当现实情况是，注射这些疫苗正在以复仇结束生命时，美国只是”尽自己的一份力量”来帮助”拯救生命”。
+7. **[德意志之鹰推特](https://twitter.com/dezying/status/1387767980377915406?s=20)**：
+*关于Sad Truth，一点个人感想： 看到Sellin博士义愤填膺直接点名几位参议员，去年没有推动病毒真相的时候。我在想，为什么他们不推动呢，是因为我们给的材料不够么，说服力不强？急迫性不高？或者客观上美国疫情不够惨烈？(1)
+美国国会运作有其自身逻辑，民众的批评和责问会给议员施加压力，可以影响具体议案的商讨，最终推进成法案，落实到行政。但抨击“他们不代表美国人民”不是我们绝大多数美国政治局外人的说辞，如果我们也去跟风骂几位议员，似乎只有泄愤，而且近似一种无能的愤怒。(2)
+又看了一遍闫博士两期Lethal Deception视频，我觉得我找到定位了。美国人可以尽情把这个话题政治化抨击当局政策，部分是出于他们强烈的问责政府戒备心态，另一方面，也因为他们并不能把病毒真相的细节说得足够细致。但是，我们能！(3)
+听着各位医生博士科学家各种政治化的，情绪化的观点，在一旁的闫博士一直非常冷静，只讲解病毒真相的重要细节和中共病毒战的思路。以毒灭共，一定是赢在这些关键的细节上！所以我只能一再感叹：完美的闫博士！真诚无敌的闫博士！(4)
+在我们还没有把中共寻毒制毒投毒解毒的完整网络和证据链摸清楚的时候，似乎更应该埋头梳理证据，传播分享关键信息，而不是跟风骂这些议员无良。 有道是：强者强己不强人 恕者恕人不恕己 与大家共勉！(5)*
 
-不久，注射造成的死亡人数将远远超过中共病毒检测”阳性”，后来死于车祸的人数。毕竟，2020年发生的几乎每起死亡事件都被归类为”死于中共病毒”。
 
-许多疫苗引起的死亡也有可能归咎于病毒，或者可能归咎于那些拒绝被实验基因疗法永久改变基因的未接种疫苗者。
+> SARS冠状病毒的仓鼠动物模型，中共军方是一直在做的。2007年第三军医大的吴玉章和军事医学科学院的王希良团队分别做了中国仓鼠(Chinese hamster)和叙利亚金仓鼠(golden Syrian hamster)的免疫实验，NIH/NIAID的Kanta Subbarao也是该动物模型较早的建立者。
+> p.s. 这些可爱的小动物闫博士应该都很熟悉 😀 [https://t.co/KrKI8VoeWW](https://t.co/KrKI8VoeWW) [pic.twitter.com/lvAjK5g1V6](https://t.co/lvAjK5g1V6)
+> — 德意志之鹰 (@dezying) [April 29, 2021](https://twitter.com/dezying/status/1387558706687225859?ref_src=twsrc%5Etfw)
 
-“他们也向叙利亚倾销了几百万支有毒疫苗，”GreatGameIndia的一位评论者在谈到拜登政权正在向叙利亚发送有毒注射剂的其他地方时指出。”对这些不幸的土地来说，这将是棺材里的最后一颗钉子。
 
-“我在这里看到了一个阴谋，”另一个写道。”美国正试图将其垃圾疫苗倾倒在印度，就像它向叙利亚倾销EOL（生命终结）库存以实现既得利益一样。
+8. **[德意志之鹰推特](https://twitter.com/dezying/status/1387558706687225859?s=20)**：
+*闫博士进一步揭示投毒细节: 中共用的动物模型不恰当，他们用的人源小鼠（hACE2 transgenic mice），但是他们没有做仓鼠（golden hamster）的模型，所以认为释放病毒可防可控！ 这一点可以从秦川的访谈和相关论文中得到验证!
+SARS冠状病毒的仓鼠动物模型，中共军方是一直在做的。2007年第三军医大的吴玉章和军事医学科学院的王希良团队分别做了中国仓鼠(Chinese hamster)和叙利亚金仓鼠(golden Syrian hamster)的免疫实验，NIH/NIAID的Kanta Subbarao也是该动物模型较早的建立者。 p.s. 这些可爱的小动物闫博士应该都很熟悉*
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30210534/E0KN4VoWQAMFrID.jpeg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30210526/E0KN4VlWEAcFUyj.jpeg)
 
-好消息是，许多人现在完全意识到这个骗局，拒绝接受这些有毒疫苗。尽管试图给这个国家的大多数人群注射疫苗，但目前白宫的占领者可能会遇到说服数以千万计”心怀犹豫”的美国人接受基因治疗毒药疗法的难题。无论如何，只要说不，一定要尽自己的一分抗拒。
+9. **[Simone Gold博士推特](https://twitter.com/drsimonegold/status/1387827663801393161)**：
+*相互矛盾吗？辉瑞公司的试验警告男人要远离孕妇……但现在CDC正在推动孕妇不假思索地注射一种实验性生物疫苗。*
+【灭共时代】
 
-**评：**众所周知，美国现任总统拜登是沼泽地黑暗势力的代理人，他在奥巴马政府当副总统期间就与中共勾结出卖美国利益，获取中共的回馈给其家族的利益输送，毫无疑问最大的得利者是藏在背后的那些黑暗势力。今年初，拜登在中共及其西方同谋者深层政府的全力帮助下，以选举作弊的手法夺得总统选举，他上台后也必然继续代表美国这些黑暗势力的利益。阿斯利康中共病毒疫苗因为其严重的副作用已经被西方很多国家停用，拜登却把这个有毒疫苗当作“礼物”送给正在遭受中共病毒大爆发的印度使用，这不得不让人怀疑他背后的动机是为了这些大疫苗公司的利益，同时让印度因为国民接种这有毒的疫苗而遭受更大的损失，这样相当于间接地帮助了中共，因为后者正在致力于削弱印度的实力。当前人类的悲剧在于统治世界的黑暗力量为了自己的私利，图谋控制奴役全人类，以人类的生命健康为代价来达到他们邪恶的目的。所幸越来越多的人开始清醒过来，为了自身的生存和未来，而进行反控制反奴役的斗争，然而我们需要唤醒整个人类，联合起来组织起来进行强大有力量的斗争，人类的未来才会有希望重新回归正常状态。
 
-**原文：**Ethan Huff, “The vaccine is the pandemic: Biden to dump 60 million blood clotting Covid-19 vaccines from AstraZeneca on India”.《 Natural News》, April 28, 2021.[https://www.naturalnews.com/2021-04-28-biden-dumps-covid19-vaccines-astrazeneca-india.html](https://www.naturalnews.com/2021-04-28-biden-dumps-covid19-vaccines-astrazeneca-india.html)
 
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+> 二马曾经竭尽全力向共产党表衷心，拍马屁，立先锋，看来没啥屁用！ [https://t.co/yp1TWH6gx5](https://t.co/yp1TWH6gx5) [pic.twitter.com/7WP7dIpRSj](https://t.co/7WP7dIpRSj)
+> — 瞿水台 Qu Shuitai (@QuShuitai) [April 29, 2021](https://twitter.com/QuShuitai/status/1387878682522423299?ref_src=twsrc%5Etfw)
 
-编辑/发布：比卡丘
 
-20210430
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
-0
+1. **[瞿水台推特](https://twitter.com/QuShuitai/status/1387878682522423299?s=20)**：
+***（RFA）**中国“反垄断”大刀再砍向互联网巨头。 《路透社》引述消息人士，指中国将对腾讯开出至少100亿元人民罚单，少于阿里巴巴早前的182.28亿元人民币 知情人士指，监管机构对阿里巴巴和腾讯的态度不同，腾讯不是最大目标，但既然反垄断行动正在进行，就不可能不处罚腾讯
+
+**（瞿水台）**二马曾经竭尽全力向共产党表衷心，拍马屁，立先锋，看来没啥屁用！*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30211456/E0I4qTzXsAIRVYr-1.jpeg)2. **[Sellin博士推特](https://twitter.com/lawrencesellin/status/1387734054980788229?s=21)**：
+*历史讣告*
+
+
+> 参议院军事委员会举行「全球威胁」听证会，讨论中共威胁
+> 参议员图伯维尔问国防情报局局长贝利尔：现在习周围全是“应声虫”，没人敢提反对意见，“忠诚”比其他独裁者更“绝对”，这会增加习对形势误判的风险吗？尤其在台海上。您对此担忧吗？
+> 贝利尔：回头再告诉您
+> 
+> 搂(lōu)住，搂住！可不能影响人家加速… [pic.twitter.com/CSPOWtB7Fb](https://t.co/CSPOWtB7Fb)
+> — 珠穆朗玛 (@ZanXixi) [April 30, 2021](https://twitter.com/ZanXixi/status/1387920148833529856?ref_src=twsrc%5Etfw)
+
+
+3. **[喜站推特](https://twitter.com/ZanXixi/status/1387920148833529856?s=20)**：
+*参议院军事委员会举行「全球威胁」听证会，讨论中共威胁 
+参议员图伯维尔问国防情报局局长贝利尔：现在习周围全是“应声虫”，没人敢提反对意见，“忠诚”比其他独裁者更“绝对”，这会增加习对形势误判的风险吗？尤其在台海上。您对此担忧吗？ 
+贝利尔：回头再告诉您 搂(lōu)住，搂住！可不能影响人家加速…*
+
+
+> 20210429朱利安尼先生接受Tucker採訪1/4
+> 1.朱利安尼先生是第三位跟川普總統保持聯繫又被司法部調查的律師
+> 2.早上6點7名FBI突襲朱利安尼先生住所
+> 3.朱利安尼先生屢次三番詢問是否需要亨特的硬盤，調查員都說了NO
+> 4.調查員居然不調查就信任了6點被突襲的人的話，認為那是亨特的硬盤 [pic.twitter.com/5VxZhjxx3I](https://t.co/5VxZhjxx3I)
+> — Andy5 (@andy5\_123) [April 30, 2021](https://twitter.com/andy5_123/status/1388056360957272068?ref_src=twsrc%5Etfw)
+
+
+4. **[Andy5推特](https://twitter.com/andy5_123/status/1388059309980872706)**：
+***20210429朱利安尼先生接受Tucker採访**
+1.朱利安尼先生是第三位跟川普总统保持联系又被司法部调查的律师
+2.早上6点7名FBI突袭朱利安尼先生住所
+3.朱利安尼先生屡次三番询问是否需要亨特的硬盘，调查员都说了NO
+4.调查员居然不调查就信任了6点被突袭的人的话，认为那是亨特的硬盘
+5.媒体称这调查朱利安尼先生是否是乌克兰代理人
+6.现在的司法部不公正
+7.硬盘裡面清晰地展示了亨特是癮君子且拥枪，证明他在法庭上撒谎左派对其拥枪视而不见
+8.朱利安尼先生不会成為外国代理人
+9.搜查令违法违宪
+10.朱利安尼先生的律师提醒司法部信息洩漏然而司法部不作为
+11.司法部没有告诉朱利安尼先生调查什麼事件，只要求他回顾他一生中做的事
+12.证明川普总统在通俄门等事情上的无辜是老爷子最重要的事
+13.拜登家族犯罪证据就在硬盘裡
+14.朱利安尼先生认为这件事本来该有更大动静
+15.参与其中的检察官等都违反了宪法
+16.在弹劾案答辩过程中出现了司法部侵入朱利安尼先生iCloud的事情，这种事只会出现在独裁国家如战前东柏林*
+
+
++3

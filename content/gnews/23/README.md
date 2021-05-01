@@ -1,19 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国批准向印度出售24亿美元海上巡逻机
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1159130/)
+## 音乐速递：Miles郭即将推出新歌
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1159385/)
 
-**编译： 蓝精灵**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30224528/Indonesia_Sub658.jpg)
-据《华盛顿邮报》比尔.格兹2021年4月31日报道，拜登政府宣布将向印度出售六架P-8海上巡逻机及相关装备，价值24.2亿美元。美国国务院宣布了这批飞机的出售，五角大楼的国防安全合作机构于周五将出售项目通知了国会。
+**撰稿人： 蓝精灵**
 
-武器转让是美国为吸引传统上不结盟的印度政府投入更大的区域努力，以对抗中国日益增长的军事扩张主义的积极行动的一部分。印度加入了包括美国、日本和澳大利亚在内的区域大国的“四元组”，这些国家正以准“反北京联盟”的形式出现。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01000610/%E6%96%B0%E5%BB%BA%E5%9B%BE%E7%89%8719.jpg)
 
-P-8是军事化的波音737，被认为是先进的反潜和反水面舰艇武器。它可搭载的武器包括鱼雷和鱼叉反舰导弹。这些喷气机还可以作为海上侦察机运行，并提供目标和跟踪信息。
+Miles郭今天在新媒体GTV上发盖特视频，说他正在录制一首新歌曲，名字叫做“马背英雄”。
 
-链接：[https://www.washingtontimes.com/news/2021/apr/30/us-approves-24-billion-sale-maritime-patrol-jets-i/](https://www.washingtontimes.com/news/2021/apr/30/us-approves-24-billion-sale-maritime-patrol-jets-i/)
+他是一位从未经过音乐和唱歌技巧教育和专业训练的人，在他的老师唐平和威廉王的指导下，之前已经发布了三首歌曲，分别是《酒灭中共》、《妈妈之歌》，还有和好莱坞音乐人一起制作的Hip-pop风格的歌曲《Take Down The CCP》，在苹果音乐榜上打榜，均位占据前列。
 
-***发布**：文顾*
+Miles郭还告诉大家，他会和所有人一起分享录制这首歌曲的感受。
 
-+1
+
+
+***校对发布**：文顾*
+
+0

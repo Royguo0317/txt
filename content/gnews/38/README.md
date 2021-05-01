@@ -1,54 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4月30日美国政要和政评家推特精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1158597/)
+## 【五月花思】华盛顿SEC抗议感悟之感动篇
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1158671/)
 
-参议员乔什·霍利： 随着拜登政府放松了对 [#抖音](https://twitter.com/hashtag/%E6%8A%96%E9%9F%B3?src=hashtag_click)[@tiktok\_us](https://twitter.com/tiktok_us) 的施压，该公司就停止假装它不是个 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 公司了-并和北京有大量的联系。（转推说，还记得TikTok决定聘请美国首席执行官以缓解对其与中国关系的担忧吗？ 好吧，现在他们的首席执行官将兼任北京字节跳动的首席财务官）
+五月花写作组 ｜ 作者：一尘 ｜ 编辑：jamie(文胤) ｜ 美工、发布：灭共小宇宙
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30214013/%E4%BA%94%E6%9C%88%E8%8A%B1%E6%80%9D.jpg)
 
+4月5日起，GTV的投资者自发从各地去往美国首都华盛顿的SEC办公楼前抗议。SEC与共产党勾兑，滥用职权，采纳虚假信息，在过去一年的时间里，对GTV展开了无底线无尽头的调查。作为GTV的投资人之一，我在第一时间赶往华盛顿，在SEC大楼前抗议了一个星期。
 
-> As Biden Admin lets up the pressure on [@tiktok\_us](https://twitter.com/tiktok_us?ref_src=twsrc%5Etfw), the company stops pretending it’s anything other than a Chinese company – with ties aplenty to Beijing [https://t.co/1ei46NN9AG](https://t.co/1ei46NN9AG)
-> — Josh Hawley (@HawleyMO) [April 30, 2021](https://twitter.com/HawleyMO/status/1388152969783349256?ref_src=twsrc%5Etfw)
+坚守了一个星期，我才真实地体会到了维护自己的权益是一件多么不容易的事情。与众多投资者一道，每天在SEC大楼前按照上班时间从早9点站到晚5点，不停的高喊着四大诉求，控诉SEC与邪恶中共合作导致投资者不仅蒙受经济损失，更有投资者因信息被SEC泄漏而被中共黑警迫害甚至消失。除了辛苦之外，其实每人的内心并不太确定这样的抗议是否会有效果，是否会达到维权的目的。但让我义无反顾坚持站在那里的原因有二：
 
+一、我坚信GTV是世上唯一一个令中国人在共产党残酷统治下可以发声的渠道，是世界了解邪恶CCP本质的唯一平台。
 
+二、我被诸多GTV投资者愤怒而有力量的呐喊与控诉感动着。只想和大家一起维护自己的利益，维护我们唯一可以揭露真相、袒露心声的平台。
 
-美国务院： 在视频会议中, 阿斯彭安全论坛[@AspenSecurity](https://twitter.com/AspenSecurity)和副国务卿[@DepSecDef](https://twitter.com/DepSecDef)讨论了面临的来自中国的挑战以及国防部在遏制侵略中的持续作用。有关更多详细信息，请访问[https://go.usa.gov/xHmT8](https://t.co/ooMA0zKr2f?amp=1)。
+在抗议的过程中，偶尔会有行人好奇我们在做什么，过来与我们交流。抗议进行到第三天时，有一对年轻男女过来询问。我便详细的和对方介绍GTV以及SEC对GTV的不正当调查导致来自中国的投资者被中共迫害。那位男士显然有兴趣了解更多，但和他在一起的女士着急想走。那位男士虽然很顾虑女士的感受，但还是很耐心的听完我的介绍，并且祝我们好运。每当路人听完介绍并对我们表示支持，甚至向我们竖起大拇指时，我们的心中不觉涌上阵阵暖流，只要做正义之事，能传播出我们的声音，哪怕只有一个人听到，都值了。
 
+SEC的抗议一直在持续，我从华盛顿归来后，每天都通过GTV关注抗议现场，与投资者同在。看到更多的投资者从四面八方加入到抗议的队伍中，每天都整整齐齐的站在那里坚守阵地，内心为曾和这样的投资者们并肩战斗而倍感骄傲。
 
+4月14日那天，我看到投资人之一的七哥老妹，一大早就在SEC门口默默地把椅子和宣传牌排列的整整齐齐，做着新一天抗议的准备。稍后下起了雨，气温骤降，看着老妹蜷缩着身体，紧握拳头接受采访，眼泪真的忍不住夺眶而出，真的很想给老妹送去一件羽绒服披上。身材瘦小的她，在那一刻看来是那么的高大和勇敢。她在寒风中坚持着，从未放弃，握紧的拳头感觉更像是在表达对SEC的愤怒。不争取到权益，我们绝不罢休，永不放弃。
 
-> During a virtual address with the [@AspenSecurity](https://twitter.com/AspenSecurity?ref_src=twsrc%5Etfw) Forum, [@DepSecDef](https://twitter.com/DepSecDef?ref_src=twsrc%5Etfw) discussed the challenges presented by China and the ongoing role of the DOD in deterring aggression. Visit [https://t.co/hKSwChWu9I](https://t.co/hKSwChWu9I) for more details. [pic.twitter.com/8fkVrDhvFZ](https://t.co/8fkVrDhvFZ)
-> — Department of Defense 🇺🇸 (@DeptofDefense) [April 30, 2021](https://twitter.com/DeptofDefense/status/1388212413208702977?ref_src=twsrc%5Etfw)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29192244/SEC%E6%8A%97%E8%AE%AE%E4%B8%80%E5%91%A82.jpg)
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29192252/SEC%E6%8A%97%E8%AE%AE%E4%B8%80%E5%91%A81.jpg)
 
+在抗议的第5天，SEC举报办主任迫于压力辞职，先前内心对抗议效果的未知烟消云散。只要我们行动，就会产生影响，每一份坚持会得到回报，因为我们秉承着正义的信念和价值观。
 
-国务院发言人内德·普莱斯： [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 对新冠杰出的控制和捐献防护用具，都体现出它对全球健康的强大贡献。台湾拥有抗击该疾病的世界领先的专家，我们需要在世界卫生大会上听到来自台湾的声音。
+* * *
 
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
 
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
 
-> Taiwan's outstanding control of COVID-19 and its donations of PPE demonstrate its strong contribution to global health. Taiwan has some of the world's leading experts in combatting this disease, and we need to hear from Taiwan at the World Health Assembly.
-> — Ned Price (@StateDeptSpox) [April 30, 2021](https://twitter.com/StateDeptSpox/status/1388119696315142144?ref_src=twsrc%5Etfw)
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
-
-
-章家敦（中国问题专家）： 拜登总统昨晚谈到 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 是一个竞争对手。某些用语表述为“对手”。那会更实际一些，但为什么我们不能像 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 称呼我们那样称呼他们？毕竟，他们向美国宣布发动“人民战争”，那为什么我们不该把他们叫做“敌人”？[#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click)
-
-
-
-> Prez [#Biden](https://twitter.com/hashtag/Biden?src=hash&amp;ref_src=twsrc%5Etfw) last night spoke of [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) as a competitor. Some term that state an “adversary.” That’s more realistic, but why can’t we call the [#Chinese](https://twitter.com/hashtag/Chinese?src=hash&amp;ref_src=twsrc%5Etfw) what they call us? After all, they declared a “people’s war” on [#America](https://twitter.com/hashtag/America?src=hash&amp;ref_src=twsrc%5Etfw), so why shouldn’t we say “enemy”? [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Gordon G. Chang (@GordonGChang) [April 29, 2021](https://twitter.com/GordonGChang/status/1387908138410680320?ref_src=twsrc%5Etfw)
-
-
-
-比尔·戈茨（华盛顿时报专栏作家）： 本周的华盛顿时报 [@WashTimes](https://twitter.com/WashTimes) “内幕”专栏：美国的核威慑策略需要针对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 作出升级。海军专家警告中共国是“未来十年的危险”；拜登的国务院过去的中国政策。【转推华盛顿时报，对中国的核威慑需要升级】
-
-
-
-> This week’s Inside the Ring column [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): US deterrence strategy needs upgrade to address China; Naval expert warns of China’s ‘Decade of Danger;’ Biden State Department on past China policy [https://t.co/q9FXA9MNKb](https://t.co/q9FXA9MNKb)
-> — Bill Gertz (@BillGertz) [April 29, 2021](https://twitter.com/BillGertz/status/1387914194859737091?ref_src=twsrc%5Etfw)
-
-
-
-
-
-+4
++2
