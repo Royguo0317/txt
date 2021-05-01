@@ -1,35 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 非法向中共出口敏感设备 麻省一大陆男子被捕认罪
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1160971/)
+## 美国情报部门警告：中共国的核武库远超预测
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1161059/)
 
-#### 翻译：Kal | 校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01100325/doj.jpg)图片来源： FOREIGN POLICY
-4月28日，据美国《华盛顿观察家报》（Washington Examiner）报道，马塞诸塞州一华裔男子被指控向中共国军事机构非法出口敏感设备。
+- 作者：坐看云起时
 
-美国司法部周三宣布，一名持美国移民签证的中共国籍男子承认非法出口价值10万美元的商品给已列入出口限制黑名单的一所中共国军事院校。该军事院校与中共国军队关系密切，致力于其军事实力的提升。
 
-周三，44岁的秦树人（音译，Shuren Qin）在美国波士顿联邦法院承认了一项“在未获得出口许可证的情况下，从向中共国西北工业大学出口商品”罪名，以及一项签证欺诈。据悉，他被控涉及两项“向执法部门谎报客户及其帮助出口零部件到中共国”罪名，四项洗钱罪名，以及两项“从美国向中国走私水下传声器”罪名。
+据《零对冲》（Zerohedge)4月30日报道，美国情报部门在国会听证会上警告，中共国扩大核武库及加快核扩张的步伐，超出了美国之前的预测。
 
-司法部说，秦于2005年在中共国成立了一家名为青岛领海海洋仪器有限公司（LinkOcean Technologies）的公司，客户包括中共海军和陆军。起诉书称，他的 VIP 客户包括中共南海舰队91388部队和解放军科技大学，同时他于2014年在美国成立了公司。美国司法部表示，2015年至2018年期间，秦向中共政府控制的实体提供了价值800万美元的货物，其中超过350万美元销售的对象为中共解放军、中共国防科技大学和中共解放军海军潜艇学院等。
+报道指出，美国参议院军事委员会本周举行的关于美国在全球面临的一系列威胁的听证会上，重点关注中共国和中共领导人。
 
-美国马萨诸塞州代理检察官纳撒尼尔·门德尔（Nathaniel Mendell）周三表示，“中共国对我国最敏感的产品和技术有着贪得无厌的胃口——尤其是那些具有军事用途的产品和技术”。“通过向中共国一所军事大学出口关键的反潜武器产品，秦先生对我们的国家安全构成了威胁，违反了法律。毫无疑问，这就需要联邦起诉。”
+证词中最值得注意的是美国情报部门对中共国不断扩大的核武库的看法，预计未来十年中共国的核武库将至少增加一倍。虽然目前国防部估计中共国的弹头储备在200枚以下，但国防情报局局长斯科特-贝里尔中将星期四在参议院听证会上说，迅速扩大其储备是北京的首要任务，同时他强烈暗示国防情报局的预测实际上低估了中共国真正的核扩张和野心。
 
-美国司法部涉及中共国的倡议旨在打击中共违反美国出口规定、窃取商业机密和从事经济间谍活动。
+参议员吉姆-英霍夫在4月29日的推特上说：
 
-检察官表示，在2015年和2016年，秦在没有商务部出口许可的情况下出口了至少60个水听器到中共西北工业大学。与该计划有关的是，他被控从事洗钱活动，将10万多美元从中共国的银行账户转移到美国的银行账户，为他的行动提供便利。美国司法部指出，中共西北工业大学“参与了中共军方无人驾驶飞行器、自主水下航行器和导弹扩散项目的开发”。2001年，美国商务部以“国家安全之由”将这所中共国大学列入了黑名单。
+中共国正变得越来越有侵略性–在世界各地扩大其力量范围，包括在非洲。我自己也看到了这方面的证据。国防情报局局长贝里尔今天证实，中共国正努力在非洲以及拉丁美洲和南美洲部署军事力量。
 
-澳大利亚战略政策研究所（Australian Strategic Policy Institute）表示，中共西北工业大学“因其绝密的机构资质，数量众多的国防实验室和国防研究领域，参与非法出口以及受到工业和信息技术部（Ministry of Industry and Information Technology）的监管，被认定为非常高的风险。它是中共国的“国防七子”之一，专注于“航空、航天和海军技术”。
 
-司法部表示，2016年7月，秦“从事签证欺诈”，“谎称自己无罪，自成为条件永久居民后就没有被逮捕，而实际上，他在2015年就非法出口水听器” 。据称，他还“两次向联邦特工就领海海洋仪器有限公司的客户及其出口活动做出虚假陈述”，隐瞒了他曾出口“远程操作的侧扫声纳系统、无人水下航行器、无人水面航行器、机器人船和水听器”的事实。司法部称其中几项货物“被交付给了中共国的军事终端用户”。据司法部称，2018年7月，他还在与中共西北工业大学和中共国防科技大学合作时，还撒谎说自己没有任何黑名单客户，而实际上这两所大学“参与了中共军队的现代化”。
 
-秦的罪名包括违反美国出口法律、签证欺诈和走私、虚假陈述和洗钱，他分别面临最高20年、10年、5年和20年的监禁，及25万美元到100万美元不等的罚款。
+> China is growing more aggressive – expanding its power projection around the world, including in Africa. I’ve seen evidence of it myself. [@DefenseIntel](https://twitter.com/DefenseIntel?ref_src=twsrc%5Etfw) Director LTG Berrier confirmed today China is looking to place military forces in Africa, as well as in Latin and South America. [pic.twitter.com/qB8RT54Tyl](https://t.co/qB8RT54Tyl)
+> — Sen. Jim Inhofe (@JimInhofe) [April 29, 2021](https://twitter.com/JimInhofe/status/1387804839447601161?ref_src=twsrc%5Etfw)
 
-美国司法部国家安全司司长约翰·德默斯（John Demers）强调，“当个人以牺牲美国国家安全为代价非法追求个人利益时，司法部将阻止这种行为，并惩罚相关人员。”
 
-评：一个离开了“假、骗、偷”就不能活的政党，在这次高科技偷盗上被抓了现行，进一步坐实了其虚伪本质。
 
-原文链接：[Chinese national pleads guilty to violating US blacklist by exporting goods to Chinese military university](https://www.washingtonexaminer.com/news/chinese-national-pleads-guilty-violating-us-blacklist-exporting-goods-chinese-university)
+贝里尔将军在听证会上说：“在他们（中共）所拥有的能力范围内，核武一直是一个组成部分。这对他们来说是一个优先事项，”
 
-0
+贝里尔将军指出， 中共国正在努力扩大其核武库并使之多样化。自从去年美国国防部评估中共国的核弹头储备在200枚以下，并预测它在未来十年至少翻一番之后，中共已经加快了其核扩张的步伐，并超出了美国之前的预测，其核储备可能在这十年中至少增加一倍，并增加对美国本土的威胁。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01110754/%E5%9B%BE%E7%89%871-1.png)图片来源：zerohedge
+
+而且他进一步警告说，中共在尽力提升核武器数量和技术的同时，越来越多的证据表明，中共试图将其部分核力量保持在 “预警时发射 “的状态。他说，中共正在将其国防技术工作的重点 “几乎肯定 “地放在 “使美国和盟军处于更大的风险和离中国大陆更远的地方”。
+
+2020年，总部设在伊利诺伊州的《原子科学家公报》估计，中共国拥有350枚核弹头，这个数字远远高于国防部更保守的估计。该智囊团在当时的报告中写道：”我们估计中共国已经生产了大约350枚核弹头，其中大约272枚是由240多枚作战的陆基弹道导弹、48枚海基弹道导弹和20枚分配给轰炸机的核重力炸弹运载。其余的78枚弹头是用来装备正在实战中的其他陆基和海基导弹的”。
+
+新闻来源：[零对冲](https://www.zerohedge.com/geopolitical/us-intelligence-tells-congress-chinas-nuclear-arsenal-track-exceed-our-previous?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+
++2

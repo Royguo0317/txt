@@ -1,53 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】文某某的情
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1161159/)
+## 慧眼看世界20210501（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1161237/)
 
-配音：香草山录音组 Swr拥抱太阳
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121442/01.jpg)
 
-爆料革命一声吼
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121447/02.jpg)
 
-诞生了无数文某某
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121453/03.jpg)
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121500/04.jpg)
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121533/05.jpg)
 
-在这场震惊世界的改革浪场中
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121538/06.jpg)
 
-郭文贵先生
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121543/07.jpg)
 
-用他的真、善、狠
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121550/08.jpg)
 
-唤醒了世界各地向往自由民主的华人
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121647/09.jpg)
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121654/10.jpg)
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121658/11.jpg)
 
-**文字版原文：[【香草诗词汇】文某某的情](https://gnews.org/zh-hans/562688/)**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121704/12.jpg)
 
-作者：香草山写作组 木白
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121708/13.jpg)
 
+本文仅代表作者观点
 
-
-音频处理/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+发稿：Ranting
 
 0
