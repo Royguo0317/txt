@@ -1,76 +1,113 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “辟谣”武汉实验室泄漏理论的科学家与中共勾兑
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1161322/)
+## 中共病毒变种横扫印度 卫生系统崩溃
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1161398/)
 
-新闻来源：《国家脉动》| 作者：NATALIE WINTERS | 发布时间：2021年4月27日
-翻译/简评：新街口 | 校对：感恩 | 审核：万人往 | Page：我是球大哥
+新闻来源：《每日邮报》Mail Online| 作者：Ross Ibbetson| 发布时间：2021年4月20日
+翻译/简评：新街口|校对：SilverSpurs7|审核：万人往|Page：小雨
 
-[!\[\]()!\[\](https://spark.adobe.com/page/piPd3TLfL6ixK/images/e35c5259-ad9d-4e5f-9022-8c9c7dbe65c3.jpg?asset_id=19cec034-d47e-4bd4-a128-c0aa9e12d724&amp;img_etag=%22ca5507d79dc6f27a30a41ddeddbcbcd4%22&amp;size=1024)](https://spark.adobe.com/page/piPd3TLfL6ixK/images/e35c5259-ad9d-4e5f-9022-8c9c7dbe65c3.jpg?asset_id=19cec034-d47e-4bd4-a128-c0aa9e12d724&amp;img_etag=%22ca5507d79dc6f27a30a41ddeddbcbcd4%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/POvXqlh41wd1z/images/041a800f-8fe4-425c-90b1-19ed861da3ab.jpg?asset_id=d5edea7e-3931-475b-9019-2ea0f2cedde0&amp;img_etag=%22caa2e5d54eb65637592b6767e47fb212%22&amp;size=1024)](https://spark.adobe.com/page/POvXqlh41wd1z/images/041a800f-8fe4-425c-90b1-19ed861da3ab.jpg?asset_id=d5edea7e-3931-475b-9019-2ea0f2cedde0&amp;img_etag=%22caa2e5d54eb65637592b6767e47fb212%22&amp;size=1024)
 
-本文作者引用了武汉病毒研究所公开发表的会议纪要为证据，揭露了三名西方科学家都曾经到武汉病毒研究所进行过交流并发表过演讲，而且还接受过中共的奖项。
+**简评：**
 
-这三名科学家在中共病毒大爆发期间，有人表示病毒起源于海鲜市场，有人公开呼吁川普政府停止指责中共，还有人把证据确凿的武汉病毒实验室泄露称为是“阴谋论”。这三个人在不同的主流媒体、从不同的角度、以不同的方式公开地为中共和武毒所站台洗地，帮助其逃脱病毒起源的责任。
+本文所描述在印度的中共病毒二次大爆发的各种惨状我们并不陌生，诸如医院人满为患、重症抢救设施根本不够、火葬场24小时不停地运转焚烧死者等等，因为这一切都曾经在一年前的武汉发生过。那一次中共还甚至从全国调集了流动焚化炉去武汉帮助焚烧火葬场根本烧不完的尸体。
 
-作者还引用了这些人的推特、历史照片和视频，用他们自己公开的信息佐证了他们与中共合作的事实。例如，Fair自己的推特显示了他从2017年就开始和武毒所的研究人员有着紧密的个人关系。
+上一次的中共病毒大爆发，中共利用独裁体制，采用野蛮、没有人权的方式，例如强行把感染者的家门焊死、把患者送进有去无回的临时集中隔离医院等等极端的措施，才把疫情“控制”住。
 
-令人遗憾的是这些科学家与中共和武毒所的利益关系被西方的主流媒体——如NBC和CBS——进行选择性地忽略。这些媒体不但允许他们在自己的节目中公开支持中共和武毒所，并且还向公众介绍这些科学家在调查中共病毒起源中是公正的裁判员。
+这一次印度的二次爆发，也印证了闫丽梦博士所揭露的新冠病毒就是中共研制的、专门针对民主国家的超限生物武器。
 
-《国家脉动》这篇文章中提到的几个主流媒体和科学家在这次病毒大爆发中扮演了极不光彩的角色，因为他们帮助中共掩盖了病毒起源真相，误导了公众认清中共病毒是生化武器的事实，为中共成功地向世界散播病毒起到了推波助澜的作用。
+因为这个病毒就是被设计成了初期感染者无症状、高传染率、低死亡率。印度是一个尊重人权的民主国家，根本不可能像中共极权体制那样不顾人权地把患者锁在家里或强制送到隔离场集中，任其在里面自生自灭。再加上印度人口众多、人均医疗资源占有率低，自然就成为了最容易被中共病毒伤害的国家。
 
-**原文翻译：**
+本文所介绍的印度医疗系统的崩塌就是中共病毒是超限生物武器的一个最有力的证据。医疗系统的崩塌意味着一方面病人无法得到救治，另一方面会有更大规模的传染，最终的结果就是造成国家的生产制造、农业、政府、国防等等整个社会体系的停摆、崩溃。因而就根本没有机会和可能去向中共追缴病毒真相。
 
-## 揭秘：“辟谣”武汉实验室泄漏理论的科学家承认是中国共产党的“合作者”和受奖者
+为了避免印度当前的惨状，各个国家必须联合起来向中共追究病毒真相、尽早消灭中共、拿到中共的解药，才有可能彻底摆脱中共病毒的危害。
 
-**《国家脉动》透露，被主流媒体用来为“新冠病毒起源于武汉病毒研究所”的说法辟谣的多位研究人员，以前都曾经参加过这个有争议的实验室的活动，或接受过其颁布的奖项。**
+[!\[\]()!\[\](https://spark.adobe.com/page/POvXqlh41wd1z/images/800c8037-0345-4ff9-be60-f59f78f77760.jpg?asset_id=dcbb8011-a695-44e5-87f7-4bc12e49ba8e&amp;img_etag=%22a75babee1e31150c2da154f6f334d240%22&amp;size=1024)](https://spark.adobe.com/page/POvXqlh41wd1z/images/800c8037-0345-4ff9-be60-f59f78f77760.jpg?asset_id=dcbb8011-a695-44e5-87f7-4bc12e49ba8e&amp;img_etag=%22a75babee1e31150c2da154f6f334d240%22&amp;size=1024)
 
-这些研究人员与中国共产党的关系——他们之间存在明显的利益冲突——在媒体报道中被省略了，相反，媒体把他们作为新冠病毒起源的公正裁判员。
+**原文翻译(节选）：**
 
-2020年3月，美国全国广播公司（NBC）的科学撰稿人Joseph Fair博士呼吁川普政府在病毒大爆发上“停止指责中共国”，尽管在当时有越来越多的证据表明中共国正在隐藏信息和数据，并迫使举报人闭口保持沉默。
+## 印度的卫生系统正在崩溃，因为新冠病毒变体横扫全国：殡葬人员焚烧成堆的受害者，火葬场的炉子因24小时不间断使用而熔化
 
-Fair博士将现在越来越成为主流的实验室泄漏理论称为“阴谋论”。
+- 上周平均每天有超过20万病例，是两个月前的20倍
+- 英国周一开始禁止从印度来的旅行人士，但行动“为时已晚”，因为英国已经有100例感染了印度变种病毒的病例
+- 鲍里斯•约翰逊（Boris Johnson）今晚回答有关为何每天允许900人从印度流进入英国的问题
+- 印度新的新冠肺炎变种具有两个突变，科学家担心这会使疫苗失效
+- 据信这种B.1.617变种比其他毒株更容易传播，并且可能具有更大的致死性
+- 印度各地的医生表示，此次的患者比第一波患者年轻得多，德里三分之二的感染者年龄在45岁以下
+- 医生说，年轻人的“病情严重程度增加”，尤其是在他们的肺、心脏和肾脏方面
+- 德里实行为期一周的封锁，原因是该市有2900万人口，但重症病床不到150张
+- 整个印度，火葬场都在日以继夜地工作，出现了火化炉烟囱裂开和铁架融化的情况
 
-《国家脉动》可以揭示，2013年Fair在武汉病毒研究所发表过讲话。
 
-“在访问期间，他参加了‘葛洪·精英论坛’，并发表了一篇出色的学术报告，题为《生物安全性4级遏制研究和重组生物学：分子生物学的进步如何促进体外产品设计》。（会议的）总结报告说，武汉病毒研究所的许多老师和学生，包括陈新文所长和胡志宏、魏红萍等研究人员，都听取了这份报告。”
+自从传播速度最快的冠状病毒大流行开始以来，印度的卫生系统正在崩溃，殡葬人员要焚烧成堆的尸体，而火葬场的火炉因为一天二十四小时不间断地开动也融化了。
 
-会议总结还介绍了“Joseph Fair博士目前从事‘环球病毒预警计划’（Global Viral Forecasting Initiative，GVFI）中高毒力病毒的快速诊断工作，并希望将来与研究所在相关研究领域进行合作。”
+周二记录的259170个病例是全世界最高的单日发病率，并且有1761例死亡，是该国有史以来最高的死亡人数。在出现了新的新冠变种之后，科学家担心这可能会部分逃避疫苗。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/piPd3TLfL6ixK/images/26056744-f609-461c-9955-9f983800deef.jpg?asset_id=270e8401-aec2-46c3-a024-c576a5a926cd&amp;img_etag=%22d73f6038c0b4129175b96b395863e046%22&amp;size=2560)](https://spark.adobe.com/page/piPd3TLfL6ixK/images/26056744-f609-461c-9955-9f983800deef.jpg?asset_id=270e8401-aec2-46c3-a024-c576a5a926cd&amp;img_etag=%22d73f6038c0b4129175b96b395863e046%22&amp;size=1024)Fair博士与“蝙蝠女”石正丽
+英国周一将印度列入“红色名单”，但被指责行事为时已晚，因为自3月底以来，英国已有100多人被确定为印度变种病毒测试阳性，其中大部分可追溯到国外旅行。
 
-Fair博士的推特账户中也包含将武汉病毒研究所的研究人员描述为“合作者”、“同事”和朋友的帖子，并补充说：“多年来，我非常喜欢与他们合作。”
+鲍里斯•约翰逊首相今晚将举行新闻发布会，回答日益严峻的问题，为什么在过去的三周中每天有900人从印度来，而英国人被禁止出国旅行以阻止传播。
 
-Fair赞扬了实验室“在共享数据方面的开放性”，尽管该研究所在2019年末销毁了1.6万个病毒样本，并在整个大流行期间继续这样做。
+在旅行禁令于周五生效之前，为了躲避检疫隔离，将有5000人从印度紧急进入英国。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/piPd3TLfL6ixK/images/393260a4-fec0-4b09-aeef-ceac9e0b782e.png?asset_id=10ae6e30-119d-44c9-89be-a7523f357df9&amp;img_etag=%22b056bd5f74f1fd19346cd3032e538309%22&amp;size=2560)](https://spark.adobe.com/page/piPd3TLfL6ixK/images/393260a4-fec0-4b09-aeef-ceac9e0b782e.png?asset_id=10ae6e30-119d-44c9-89be-a7523f357df9&amp;img_etag=%22b056bd5f74f1fd19346cd3032e538309%22&amp;size=1024)
+这些人都具有携带B.1.617变种病毒的危险，该变种病毒被认为比其他毒株更容易传播、更具有致死性，印度医生对相当一部分年轻患者也表示担忧。
 
-FAIR’S TWEETS Fair的推特
+一些医生说，45岁以下的年轻人现在容易受到感染的原因是他们要去上班并且会更多地去外面餐厅吃饭，但是这种说法并没有确切的证据来证明。
 
-Ian Lipkin博士宣称“没有证据表明新冠病毒是在实验室中制作的”，他看到了他的这一主张被CBS（哥伦比亚广播公司）和《今日美国》等媒体大肆渲染。2015年他也在武汉病毒研究所发表过演讲。
+今年年初，印度认为自己已经战胜了大流行，并开始了大规模疫苗接种运动。
 
-武汉病毒研究所的会议摘要显示：“由石正丽教授主持，他为我所的师生们做了一个题为《小规模狩猎（Small game hunting）》的精彩报告。”在此次访问被揭露之前，《国家脉动》报道中突出显示Lipkin曾经获得中国共产党的奖项，并称自己是共产主义政权的“顾问”。
+口罩和社交隔离被抛在一边，大量的人群涌向宗教节日、选举集会和板球比赛。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/piPd3TLfL6ixK/images/e879fecb-929a-4a32-b13e-bbf71c1e230d.jpg?asset_id=7c324558-1101-4ebb-aadd-a60c3413fda8&amp;img_etag=%2277e5d2202d809d0a268902b3b3806234%22&amp;size=2560)](https://spark.adobe.com/page/piPd3TLfL6ixK/images/e879fecb-929a-4a32-b13e-bbf71c1e230d.jpg?asset_id=7c324558-1101-4ebb-aadd-a60c3413fda8&amp;img_etag=%2277e5d2202d809d0a268902b3b3806234%22&amp;size=1024)
+由于医院里氧气、呼吸机和床位不足，医生开始警告那些不知所措的人，其中包括新加入的年轻的患者。
 
-LIPKIN AT THE WIV Lipkin在武汉病毒研究所
+德里的医护人员说，他们新患者中三分之二的年龄是在45岁以下。在孟买，医生说他们接诊了12至15岁的儿童，而在第一波疫情中，根本没有儿童入院。
 
-在2016年参加武汉病毒研究所会议的另一位研究员Elodie Ghedin出现在（CBS的）《60分钟》节目上，以支持有关新冠肺炎起源可以追溯到武汉海鲜市场的理论。
+古吉拉特邦的一家医院已经建立了该州首家冠状病毒的儿科病房。
 
-“人们一直在说这是一种人造病毒。事实并非如此。而且我们是通过查看遗传信息和查看编码知道的，编码可以告诉你很多信息。”
+Hinduja国家医院和马哈拉施特拉邦新冠疫情工作组成员说: “在第二波疫情中我们还看到12岁至15岁的确诊儿童。去年几乎没有孩子被确诊。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/piPd3TLfL6ixK/images/00f582f2-ec33-4522-ac03-b7ed9032877c.png?asset_id=38a0c103-1830-41a0-90f3-f2867dd2fef7&amp;img_etag=%22ffbd362e56bfde63d4e05a77b14e335d%22&amp;size=2740)](https://spark.adobe.com/page/piPd3TLfL6ixK/images/00f582f2-ec33-4522-ac03-b7ed9032877c.png?asset_id=38a0c103-1830-41a0-90f3-f2867dd2fef7&amp;img_etag=%22ffbd362e56bfde63d4e05a77b14e335d%22&amp;size=1024)
+在古吉拉特邦，肺科医师Amit Dave说:“年轻人的肺、心脏和肾脏遭受冠状病毒伤害的‘严重程度增加’。”
 
-[原文链接](https://thenationalpulse.com/news/scientists-debunking-lab-leak-theory-linked-to-ccp/)
+在南部的班加罗尔IT中心，到4月初，40岁以下的年轻人占了感染中共病毒人数的58%，高于去年的46%。
+
+据信，45岁以下的人也更容易在马哈拉施特拉邦（受灾最严重的州）感染一种新的“双重突变”变体。60%的该变种病毒样本在该州发生。
+
+卫生部周一宣布，将从下个月初开始将疫苗推广到18岁以上，但目前尚不清楚这个14亿人口的国家（世界最大的疫苗生产国）是否在需要的地方提供足够的疫苗，引发了对世界其他地区供应链的担忧。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/POvXqlh41wd1z/images/f9ae653f-5e73-4a6e-98e7-088cb191b49d.jpg?asset_id=0f4442b4-fdab-4d76-873f-ec7bec788f08&amp;img_etag=%2267660e6b98fee7b589c50ef5aad1c55f%22&amp;size=1024)](https://spark.adobe.com/page/POvXqlh41wd1z/images/f9ae653f-5e73-4a6e-98e7-088cb191b49d.jpg?asset_id=0f4442b4-fdab-4d76-873f-ec7bec788f08&amp;img_etag=%2267660e6b98fee7b589c50ef5aad1c55f%22&amp;size=1024)
+
+上周末在德里的一个火葬场里，死于新冠肺炎的病人被火化了。这个拥有2900万人的城市，其配备呼吸机的床位不足100张，可供需要重症监护的患者的床位不足150张。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/POvXqlh41wd1z/images/97653334-5439-4a42-9ab1-044d9f03b212.jpg?asset_id=a90dc541-afc0-43ff-9a0b-b3a293e4aaf2&amp;img_etag=%2239ac742634b77ec69d81bbdb68f8dd3e%22&amp;size=1024)](https://spark.adobe.com/page/POvXqlh41wd1z/images/97653334-5439-4a42-9ab1-044d9f03b212.jpg?asset_id=a90dc541-afc0-43ff-9a0b-b3a293e4aaf2&amp;img_etag=%2239ac742634b77ec69d81bbdb68f8dd3e%22&amp;size=1024)
+
+戴着个人防护装备（PPE）的死者亲属在燃烧的葬礼堆中行走，为博帕尔的新冠肺炎受害者举行的葬礼。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/POvXqlh41wd1z/images/7c5608fe-9a69-4249-8e73-6f21afde6a30.jpg?asset_id=6ed6df24-8903-47b1-a83b-319c2a247a13&amp;img_etag=%2252fa328bdf169235143db6fa750584c3%22&amp;size=1024)](https://spark.adobe.com/page/POvXqlh41wd1z/images/7c5608fe-9a69-4249-8e73-6f21afde6a30.jpg?asset_id=6ed6df24-8903-47b1-a83b-319c2a247a13&amp;img_etag=%2252fa328bdf169235143db6fa750584c3%22&amp;size=1024)
+
+上周平均每天记录确诊者超过20万例，是两个月前的20倍，因为出现了新冠肺炎的新变种，科学家担心这种变种可能会部分逃避疫苗的防护作用。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/POvXqlh41wd1z/images/9acd4673-9fea-4c82-bba0-d170d531848e.jpg?asset_id=dc038f19-b394-46e9-8bb8-130770abe1c2&amp;img_etag=%2246eaecc6dee5d8595c5b4edbe8077f9a%22&amp;size=1024)](https://spark.adobe.com/page/POvXqlh41wd1z/images/9acd4673-9fea-4c82-bba0-d170d531848e.jpg?asset_id=dc038f19-b394-46e9-8bb8-130770abe1c2&amp;img_etag=%2246eaecc6dee5d8595c5b4edbe8077f9a%22&amp;size=1024)
+
+在过去的7天中，平均每天记录了1247人的死亡，尽管据信印度有关新冠死亡人数的数字被大大低估了
+
+德里，这座拥有2900万人口的城市，昨晚开始实施为期一周的封城行动，以保护其将要崩溃的医院，因为只有不到100张病床可以使用呼吸机，而不到150张病床可以给需要重症监护的患者使用。
+
+在古吉拉特邦西部，苏拉特、拉杰果德、贾姆纳格尔和艾哈迈达巴德的火葬场昼夜不停地运转，尸体比平时多三到四倍。
+
+在过去两周每天持续使用长达20个小时，艾哈迈达巴德的一台电焚尸炉的烟囱破裂并坍塌。
+
+苏拉特的工业钻石中心内的另一个焚尸炉的铁架熔化了，因为没有时间让炉子冷却。
+
+[🔗原文链接](https://www.dailymail.co.uk/news/article-9490181/Indias-health-collapsing-Covid-19-spreads-faster-ever.html)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/piPd3TLfL6ixK/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/piPd3TLfL6ixK/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/POvXqlh41wd1z/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/POvXqlh41wd1z/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 
 
