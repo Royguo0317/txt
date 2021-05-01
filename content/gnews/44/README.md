@@ -1,55 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 为防止川普连任，中共军方让 美国军人运动员于2019年10月 访问武汉期间感染新冠？
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1161122/)
+## “辟谣”武汉实验室泄漏理论的科学家与中共勾兑
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1161322/)
 
-翻译：康州盘古 – 郭班之樱
+新闻来源：《国家脉动》| 作者：NATALIE WINTERS | 发布时间：2021年4月27日
+翻译/简评：新街口 | 校对：感恩 | 审核：万人往 | Page：我是球大哥
 
-校对：康州盘古 – Mike Li
+[!\[\]()!\[\](https://spark.adobe.com/page/piPd3TLfL6ixK/images/e35c5259-ad9d-4e5f-9022-8c9c7dbe65c3.jpg?asset_id=19cec034-d47e-4bd4-a128-c0aa9e12d724&amp;img_etag=%22ca5507d79dc6f27a30a41ddeddbcbcd4%22&amp;size=1024)](https://spark.adobe.com/page/piPd3TLfL6ixK/images/e35c5259-ad9d-4e5f-9022-8c9c7dbe65c3.jpg?asset_id=19cec034-d47e-4bd4-a128-c0aa9e12d724&amp;img_etag=%22ca5507d79dc6f27a30a41ddeddbcbcd4%22&amp;size=1024)
 
-审核：康州盘古 – 心照
+本文作者引用了武汉病毒研究所公开发表的会议纪要为证据，揭露了三名西方科学家都曾经到武汉病毒研究所进行过交流并发表过演讲，而且还接受过中共的奖项。
 
-据乔·霍夫特（Joe Hoft）在2021年4月28日上午10:15发布
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01105856/olol1.jpg)
-劳伦斯.塞林(Lawrence Sellin)和安娜.陈（Anna Chen)的特邀帖子
+这三名科学家在中共病毒大爆发期间，有人表示病毒起源于海鲜市场，有人公开呼吁川普政府停止指责中共，还有人把证据确凿的武汉病毒实验室泄露称为是“阴谋论”。这三个人在不同的主流媒体、从不同的角度、以不同的方式公开地为中共和武毒所站台洗地，帮助其逃脱病毒起源的责任。
 
-731部队是满洲关东军防疫和水净化部门的正式名称，实际上是第二次世界大战期间日本军秘密的生化战研究与发展中心。
+作者还引用了这些人的推特、历史照片和视频，用他们自己公开的信息佐证了他们与中共合作的事实。例如，Fair自己的推特显示了他从2017年就开始和武毒所的研究人员有着紧密的个人关系。
 
-1949年中共征服中国大陆时，中共国人民解放军控制了731部队和大陆科学院马病研究所该研究所也是由日本帝国军在满洲建立的。根据日本关东军的回忆录，兽医研究和军马保健被用作掩饰，以掩盖用满洲设施研究和生产生物武器的真正目的。
+令人遗憾的是这些科学家与中共和武毒所的利益关系被西方的主流媒体——如NBC和CBS——进行选择性地忽略。这些媒体不但允许他们在自己的节目中公开支持中共和武毒所，并且还向公众介绍这些科学家在调查中共病毒起源中是公正的裁判员。
 
-看来，中共国人民解放军不仅接收了它的资源，而且还沿袭了日本帝国军的手法。
+《国家脉动》这篇文章中提到的几个主流媒体和科学家在这次病毒大爆发中扮演了极不光彩的角色，因为他们帮助中共掩盖了病毒起源真相，误导了公众认清中共病毒是生化武器的事实，为中共成功地向世界散播病毒起到了推波助澜的作用。
 
-1953年，中共国的5所解放军兽医大学被合并为长春市的一个大型机构，而长春市位于731部队以前的所在地以南140英里处。
+**原文翻译：**
 
-同时，像日本军队以帝国的名义那样，在北京、成都、广州、南京和云南建立了“战时卫生研究所”类似的中心，大致与地区军事指挥相应。
+## 揭秘：“辟谣”武汉实验室泄漏理论的科学家承认是中国共产党的“合作者”和受奖者
 
-由中共国人民解放军领导，中共国军事医学科学院监督的兽医研究网络是中共国生物战计划的核心指挥和控制要素。
+**《国家脉动》透露，被主流媒体用来为“新冠病毒起源于武汉病毒研究所”的说法辟谣的多位研究人员，以前都曾经参加过这个有争议的实验室的活动，或接受过其颁布的奖项。**
 
-夏宪柱和金宁一是两位军人兽医领导。他们都是中共国医学科学院学术咨询委员会的成员，并在长春市军事兽医研究所和人畜共患病研究所一起工作。至少有四位夏宪柱和金宁一的同伴：何彪，范泉水，涂长春和吴志强从事了超过八年的大规模的国内外病毒收集工作。解放军高级军官曹务春，杨瑞馥和陈薇作为北京军事医学科学院成员，相信参与了该计划的监督工作。
+这些研究人员与中国共产党的关系——他们之间存在明显的利益冲突——在媒体报道中被省略了，相反，媒体把他们作为新冠病毒起源的公正裁判员。
 
-分离了的ZC45和ZXC21所谓蝙蝠冠状病毒，被检举中共国的闫丽梦博士认为是冠状病毒（COVID-19）的病毒主干，而何彪与重庆第三军医大学的王长军一起在分离ZC45和ZXC21中发挥了关键作用。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01105930/hohoh4.jpg)
-在詹姆斯·泉（James Quan）2021年2月22日的题为《新冠状病毒（COVID-19）的起源：从假设到真相》的视频中，可以找到一个故意发放新冠状病毒的有可能和合乎逻辑的情景。
+2020年3月，美国全国广播公司（NBC）的科学撰稿人Joseph Fair博士呼吁川普政府在病毒大爆发上“停止指责中共国”，尽管在当时有越来越多的证据表明中共国正在隐藏信息和数据，并迫使举报人闭口保持沉默。
 
-这种情景是：在受到川普政府日益增加的经济和地缘政治压力的同时，中共国国家主席习近平授权人民解放军，在2019年参加世界军人运动会的美军士兵正等待离开武汉机场的10月28日至31日期间，向他们投放新冠状病毒。
+Fair博士将现在越来越成为主流的实验室泄漏理论称为“阴谋论”。
 
-其目的是令美军通过在其基地内蔓延的感染而衰弱，在美国平民中造成混乱以防止唐纳德·川普总统的连任。
+《国家脉动》可以揭示，2013年Fair在武汉病毒研究所发表过讲话。
 
-大约在美军士兵暴露于这种病毒的时候，武汉市内新冠状病毒的转移性释放就为反驳使用生物武器的指控提供了自然的解释。
+“在访问期间，他参加了‘葛洪·精英论坛’，并发表了一篇出色的学术报告，题为《生物安全性4级遏制研究和重组生物学：分子生物学的进步如何促进体外产品设计》。（会议的）总结报告说，武汉病毒研究所的许多老师和学生，包括陈新文所长和胡志宏、魏红萍等研究人员，都听取了这份报告。”
 
-对美军士兵的袭击没有成功，但武汉（病毒）的释放却蔓延开来，到2019年11月底，感染人数加速增长。
+会议总结还介绍了“Joseph Fair博士目前从事‘环球病毒预警计划’（Global Viral Forecasting Initiative，GVFI）中高毒力病毒的快速诊断工作，并希望将来与研究所在相关研究领域进行合作。”
 
-在对美国军事人员采取的直接行动失败并面对中共国内部的灾难性大流行影响之后，北京领导人却对这种危害撒谎了，并允许了新冠状病毒通过商业旅行在全球范围内传播。
+[!\[\]()!\[\](https://spark.adobe.com/page/piPd3TLfL6ixK/images/26056744-f609-461c-9955-9f983800deef.jpg?asset_id=270e8401-aec2-46c3-a024-c576a5a926cd&amp;img_etag=%22d73f6038c0b4129175b96b395863e046%22&amp;size=2560)](https://spark.adobe.com/page/piPd3TLfL6ixK/images/26056744-f609-461c-9955-9f983800deef.jpg?asset_id=270e8401-aec2-46c3-a024-c576a5a926cd&amp;img_etag=%22d73f6038c0b4129175b96b395863e046%22&amp;size=1024)Fair博士与“蝙蝠女”石正丽
 
-不管实际释放情况如何，中共都必须对制造新冠状病毒负责。
+Fair博士的推特账户中也包含将武汉病毒研究所的研究人员描述为“合作者”、“同事”和朋友的帖子，并补充说：“多年来，我非常喜欢与他们合作。”
 
-作者简介：劳伦斯·塞林（Lawrence 29年，并曾在阿富汗和伊拉克服役。 他是国家安全公民委员会的成员，并着有《恢复共和国：第二次美国革命的论点》一书的作者。 他的电子邮件地址是[email protected]
+Fair赞扬了实验室“在共享数据方面的开放性”，尽管该研究所在2019年末销毁了1.6万个病毒样本，并在整个大流行期间继续这样做。
 
-原文链接：[https://www.thegatewaypundit.com/2021/04/chinas-military-biowarfare-network-led-covid-19/#post-comments](https://www.thegatewaypundit.com/2021/04/chinas-military-biowarfare-network-led-covid-19/#post-comments)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+[!\[\]()!\[\](https://spark.adobe.com/page/piPd3TLfL6ixK/images/393260a4-fec0-4b09-aeef-ceac9e0b782e.png?asset_id=10ae6e30-119d-44c9-89be-a7523f357df9&amp;img_etag=%22b056bd5f74f1fd19346cd3032e538309%22&amp;size=2560)](https://spark.adobe.com/page/piPd3TLfL6ixK/images/393260a4-fec0-4b09-aeef-ceac9e0b782e.png?asset_id=10ae6e30-119d-44c9-89be-a7523f357df9&amp;img_etag=%22b056bd5f74f1fd19346cd3032e538309%22&amp;size=1024)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+FAIR’S TWEETS Fair的推特
+
+Ian Lipkin博士宣称“没有证据表明新冠病毒是在实验室中制作的”，他看到了他的这一主张被CBS（哥伦比亚广播公司）和《今日美国》等媒体大肆渲染。2015年他也在武汉病毒研究所发表过演讲。
+
+武汉病毒研究所的会议摘要显示：“由石正丽教授主持，他为我所的师生们做了一个题为《小规模狩猎（Small game hunting）》的精彩报告。”在此次访问被揭露之前，《国家脉动》报道中突出显示Lipkin曾经获得中国共产党的奖项，并称自己是共产主义政权的“顾问”。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/piPd3TLfL6ixK/images/e879fecb-929a-4a32-b13e-bbf71c1e230d.jpg?asset_id=7c324558-1101-4ebb-aadd-a60c3413fda8&amp;img_etag=%2277e5d2202d809d0a268902b3b3806234%22&amp;size=2560)](https://spark.adobe.com/page/piPd3TLfL6ixK/images/e879fecb-929a-4a32-b13e-bbf71c1e230d.jpg?asset_id=7c324558-1101-4ebb-aadd-a60c3413fda8&amp;img_etag=%2277e5d2202d809d0a268902b3b3806234%22&amp;size=1024)
+
+LIPKIN AT THE WIV Lipkin在武汉病毒研究所
+
+在2016年参加武汉病毒研究所会议的另一位研究员Elodie Ghedin出现在（CBS的）《60分钟》节目上，以支持有关新冠肺炎起源可以追溯到武汉海鲜市场的理论。
+
+“人们一直在说这是一种人造病毒。事实并非如此。而且我们是通过查看遗传信息和查看编码知道的，编码可以告诉你很多信息。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/piPd3TLfL6ixK/images/00f582f2-ec33-4522-ac03-b7ed9032877c.png?asset_id=38a0c103-1830-41a0-90f3-f2867dd2fef7&amp;img_etag=%22ffbd362e56bfde63d4e05a77b14e335d%22&amp;size=2740)](https://spark.adobe.com/page/piPd3TLfL6ixK/images/00f582f2-ec33-4522-ac03-b7ed9032877c.png?asset_id=38a0c103-1830-41a0-90f3-f2867dd2fef7&amp;img_etag=%22ffbd362e56bfde63d4e05a77b14e335d%22&amp;size=1024)
+
+[原文链接](https://thenationalpulse.com/news/scientists-debunking-lab-leak-theory-linked-to-ccp/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/piPd3TLfL6ixK/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/piPd3TLfL6ixK/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+
 
 0

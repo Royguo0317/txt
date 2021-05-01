@@ -1,44 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## COVID-19疫苗是否被用来“自我传播”给未接种疫苗的人？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1161400/)
+## 【有声读物】左派开始报复了, 朱利安尼住所和办公室被搜查
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1161468/)
 
-- 作者：the world
+配音：香草山录音组：蒙古鸿雁
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-***更多真相，请关注***[***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-**西班牙2021年5月1日电/西喜社——**
+4月28日清晨6点，联邦调查局特工突袭了朱利安尼先生在麦迪逊大道的公寓和公园大道的办公室，这两个地址都位于曼哈顿的东区。朱利安尼先生曾担任纽约市市长和川普总统的私人律师。即使在川普总统卸任后，朱利安尼先生也一直在为2020年总统选举中令人震惊的欺诈行为不断发声、呼吁调查。这似乎招来了政治对手的报复。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01130912/image0.jpg)
+文字版全文：[【热点播报】左派开始报复了, 朱利安尼住所和办公室被搜查](https://gnews.org/zh-hans/1148918/)
 
-辉瑞公司，约翰霍普金斯大学和其他公司的文件讨论了COVID-19疫苗可能以“自我传播”的方式，使最近接种疫苗的人传播给未接种疫苗的人。
+原文作者：香草山教育部 新生
 
-实际上，约翰霍普金斯大学彭博公共卫生学院卫生安全中心在2018年的一份报告中提出了使用这种疫苗故意传播给他人以“保护”疾病的想法。
+编辑/发稿：正义的小新
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+**更多资讯，更多关注**
 
-约翰·霍普金斯大学的文件在“自蔓延疫苗”一节中指出：“自蔓延疫苗是经过基因工程改造的疫苗，可以在传染病等人群中传播，但它们不会带来疾病，而是提供了‘保护’。其目标是，对目标人群中的少数几个人进行疫苗接种，然后该疫苗株将像致病性病毒一样在人群中传播，从而产生快速，广泛的免疫力。”
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-COVID-19疫苗安全性研究文件中也描述了该疫苗可能对与最近接种疫苗的个体密切接触的人造成不良影响。
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-该文件在“怀孕期间暴露”一节中警告说，如果“女性家庭成员或医疗保健提供者报告说她在通过吸入或皮肤接触接种疫苗的人后怀孕”，则应在24小时内报告接触暴露情况。
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-博士后研究员盖伊·里夫斯（Guy Reeves）和来自挪威的顶级社会科学家菲利帕·伦佐斯（Filippa Lentzos）博士在2020年9月发表的一篇文章讽刺“自我传播”疫苗：“科学家们正在研究像疾病一样传播的疫苗。肯定不会有事的！”
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-现在，全球数以万计的妇女在接近最近接种疫苗的人之后，报告了月经周期异常、流产和其他健康问题。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-这是否表明当前的COVID-19疫苗在未接种人群中传播并引起不良反应？如果是，这是故意的还是偶然的？
-
-辉瑞公司前副总裁兼首席科学官迈克尔·耶登（Michael Yeadon）博士最近表示，他认为疫苗“将用于大规模减少人口。”
-
-佛罗里达州迈阿密的一位名叫莱拉·森特纳（Leila Centner）的妇女与他人合办了一所私立学校，该校本周成为全国头条新闻，因为他们告诉最近接种过COVID-19疫苗的教师要远离学生，因为他们“可能传播某些东西”。
-
-**COVID-19疫苗很可能跟COVID病毒一样是中共用来对全人类进行生化攻击的武器。**
-
-审核：Ranting；校对：信心的选择；发稿：信心的选择
-
-**新闻来源：**[www.infowars.com](https://www.infowars.com/posts/were-covid-19-vaccines-made-to-self-spread-to-non-vaccinated-people/)
-
-[**欢迎加入西班牙巴塞罗那喜悦农场**](https://discord.com/invite/WPy8Qp7)
-
-+1
+0
