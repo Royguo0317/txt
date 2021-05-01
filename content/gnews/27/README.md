@@ -1,67 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 苏联叛逃人员警告说有生物武器
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1156984/)
+## 4月30日美国政要和政评家推特精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1158597/)
 
-原文地址：[https://www.nytimes.com/1998/02/25/world/soviet-defector-warns-of-biological-weapons.html](https://www.nytimes.com/1998/02/25/world/soviet-defector-warns-of-biological-weapons.html)
+参议员乔什·霍利： 随着拜登政府放松了对 [#抖音](https://twitter.com/hashtag/%E6%8A%96%E9%9F%B3?src=hashtag_click)[@tiktok\_us](https://twitter.com/tiktok_us) 的施压，该公司就停止假装它不是个 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 公司了-并和北京有大量的联系。（转推说，还记得TikTok决定聘请美国首席执行官以缓解对其与中国关系的担忧吗？ 好吧，现在他们的首席执行官将兼任北京字节跳动的首席财务官）
 
-翻译整理：秘密翻译组北美组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30095009/Gnews%E8%8B%8F%E8%81%94%E5%B0%81%E9%9D%A2.jpg)
-图片来源：[natureworldnews.com](https://www.natureworldnews.com/articles/32355/20161119/russian-secret-researchers-decode-mysterious-biological-weapon-soviet-era.htm)
 
-*前**苏联**生物武器**计划**的一名叛逃者今天在接受采**访时说**，莫斯科的第三次世界大**战**冷**战计划**包括准**备**“**数**百**吨**“**炭疽**细**菌和**数**十**吨**天花和鼠疫病毒。*
 
-这位叛逃者Kanatjan Alibekov博士，现在被称为Ken Alibek，是苏联计划的一个分支的第二把手，于1992年叛逃。他今天说，在20世纪80年代初，这些细菌和病毒可以在几天内被安装在洲际弹道导弹的弹头上。47岁的哈萨克斯坦人阿里贝克博士（Dr. Alibek) 说，1991年，在Mikhail S. Gorbachev下令停止生物武器计划一年后，俄罗斯军方仍在实施该计划。
+> As Biden Admin lets up the pressure on [@tiktok\_us](https://twitter.com/tiktok_us?ref_src=twsrc%5Etfw), the company stops pretending it’s anything other than a Chinese company – with ties aplenty to Beijing [https://t.co/1ei46NN9AG](https://t.co/1ei46NN9AG)
+> — Josh Hawley (@HawleyMO) [April 30, 2021](https://twitter.com/HawleyMO/status/1388152969783349256?ref_src=twsrc%5Etfw)
 
-阿里贝克博士（Dr. Alibek）说，他决定首次公开发言，以打击生物武器的传播，并为制造生物武器寻求赦免，美国广播公司新闻节目 “PrimeTime Live “的制作人与《纽约时报》取得了联系，该节目上个月采访了他，并将于周三晚上播出采访内容。
 
-担任私人顾问的阿里贝克博士(Dr. Alibek)曾为美国政府撰写了一份关于苏联生物武器计划的高度机密研究报告。现在，他正在对一项几十年来一直是莫斯科最深层秘密之一的武器计划进行独特的公开说明。
 
-美国情报官员认为，在他所知道的第一手资料–1975年至1991年期间苏联生物武器计划的规模和结构–方面，阿里贝克博士（Dr. Alibek）是可信的，但人们认为阿里贝克博士（Dr. Alibek）在他所知道的第二手政治和军事问题上不太可靠。
+美国务院： 在视频会议中, 阿斯彭安全论坛[@AspenSecurity](https://twitter.com/AspenSecurity)和副国务卿[@DepSecDef](https://twitter.com/DepSecDef)讨论了面临的来自中国的挑战以及国防部在遏制侵略中的持续作用。有关更多详细信息，请访问[https://go.usa.gov/xHmT8](https://t.co/ooMA0zKr2f?amp=1)。
 
-他说，他认为莫斯科冷战时期的生物武器计划的残余正在以防御性研究的名义在俄罗斯继续进行。1990年戈尔巴乔夫总统正式取消了进攻性武器计划，1992年叶利钦总统再次正式取消了这一计划，在今天的俄罗斯，该计划仍然官方宣称的失效状态。
 
-尽管如此，阿里贝克博士（Dr. Alibek)说，“他们继续进行研究，开发新的生物制剂；他们进行研究，并解释为出于防御目的。”
 
-俄罗斯是否坚持研究和开发生物武器，这个问题在美国情报界引起了激烈的争论。没有人有一个硬性的答案。许多分析家认为，旧苏联计划的一些项目仍在继续，但远远不能确定它们是否包括开发进攻性武器。今天，无论是莫斯科还是俄罗斯驻华盛顿大使馆都没有对阿里贝克博士（Dr. Alibek) 的采访作出官方回应。
+> During a virtual address with the [@AspenSecurity](https://twitter.com/AspenSecurity?ref_src=twsrc%5Etfw) Forum, [@DepSecDef](https://twitter.com/DepSecDef?ref_src=twsrc%5Etfw) discussed the challenges presented by China and the ongoing role of the DOD in deterring aggression. Visit [https://t.co/hKSwChWu9I](https://t.co/hKSwChWu9I) for more details. [pic.twitter.com/8fkVrDhvFZ](https://t.co/8fkVrDhvFZ)
+> — Department of Defense 🇺🇸 (@DeptofDefense) [April 30, 2021](https://twitter.com/DeptofDefense/status/1388212413208702977?ref_src=twsrc%5Etfw)
 
-”我们可以说，俄罗斯继续在这一领域进行研究，以保持其军事生物潜力，”阿里贝克博士（Dr. Alibek) 说。”他们保持他们的人员和科学知识的安全。而且他们仍然有生产能力。
 
-美国的生物武器计划在近30年前被理查德-M-尼克松总统取消了。美国继续对保护自己免受生物攻击的计划进行研究，正如俄罗斯所说的那样。
 
-但阿里贝克博士（Dr. Alibek) 说，苏联人从未相信美国的生物武器计划已经结束。在20世纪70年代和80年代，他们在一场秘密的军备竞赛中推行自己的计划，以应对所认为的威胁。
+国务院发言人内德·普莱斯： [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 对新冠杰出的控制和捐献防护用具，都体现出它对全球健康的强大贡献。台湾拥有抗击该疾病的世界领先的专家，我们需要在世界卫生大会上听到来自台湾的声音。
 
-阿里贝克博士（Dr. Alibek) 是一名医生，曾在苏联军队中担任上校军衔，他于1992年离开前苏联，乘坐商业客机从阿拉木图（当时的哈萨克斯坦首都）前往纽约市–没有像一些冷战时期的叛逃者那样戏剧性地逃跑，但仍然是一个危险的提议。他选择不讨论其细节，说家乡的朋友会受到牵连。
 
-阿里贝克博士（Dr. Alibek）抵达美国后，他为中央情报局听取了比尔-帕特里克的汇报，他在1948年至1969年期间帮助管理美国的生物武器计划。
 
-帕特里克先生说：”一旦他决定叛逃，他就努力向美国讲述所有的细节–流程、制剂、战略、使用概念–以帮助我们了解世界上最大和最古老的生物战计划。
+> Taiwan's outstanding control of COVID-19 and its donations of PPE demonstrate its strong contribution to global health. Taiwan has some of the world's leading experts in combatting this disease, and we need to hear from Taiwan at the World Health Assembly.
+> — Ned Price (@StateDeptSpox) [April 30, 2021](https://twitter.com/StateDeptSpox/status/1388119696315142144?ref_src=twsrc%5Etfw)
 
-他说：”当我第一次与这个家伙交谈时，我被吓坏了。
 
-帕特里克先生说，他在与阿里贝克博士（Dr. Alibek）的会谈中了解到，在军事技术方面，苏联的计划 “与我们非常接近”，尽管 “他们花了很多很多年才在生物制剂、运载系统和弹药方面超过我们”。
 
-到1989年，他和阿里贝克博士（Dr. Alibek) 在分别接受采访时说，苏联的计划使美国的努力相形见绌。帕特里克先生说：”如果我们生产一磅的东西，他们就生产一百到五百磅。
+章家敦（中国问题专家）： 拜登总统昨晚谈到 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 是一个竞争对手。某些用语表述为“对手”。那会更实际一些，但为什么我们不能像 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 称呼我们那样称呼他们？毕竟，他们向美国宣布发动“人民战争”，那为什么我们不该把他们叫做“敌人”？[#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click)
 
-但在1989年末，阿里贝克博士（Dr. Alibek）说，”当时美国和英国施加了巨大的压力，要求阻止苏联的进攻计划。”  也埋下了怀疑的种子，导致了他的叛逃。
 
-“在很长一段时间里，我为做这项工作感到自豪–直到20世纪80年代末，直到我来到莫斯科担任项目第一副主任。” 他说：“后来有了停止这项工作的压力。”
 
-“我们坚信美国有一个进攻性计划，’而苏联必须与之匹配对应。”’  他说：’我问两位高级军事情报官员是否有关于这些美国进攻性武器的信息。他们问我：’你需要什么？’我回答：’名称、地点、组织、结构、人员数量、他们有哪些特工。”
+> Prez [#Biden](https://twitter.com/hashtag/Biden?src=hash&amp;ref_src=twsrc%5Etfw) last night spoke of [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) as a competitor. Some term that state an “adversary.” That’s more realistic, but why can’t we call the [#Chinese](https://twitter.com/hashtag/Chinese?src=hash&amp;ref_src=twsrc%5Etfw) what they call us? After all, they declared a “people’s war” on [#America](https://twitter.com/hashtag/America?src=hash&amp;ref_src=twsrc%5Etfw), so why shouldn’t we say “enemy”? [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Gordon G. Chang (@GordonGChang) [April 29, 2021](https://twitter.com/GordonGChang/status/1387908138410680320?ref_src=twsrc%5Etfw)
 
-“我被告知：‘我们没有这些信息’”他说: “这是我第一次开始怀疑。”
 
-阿里贝克博士（Dr. Alibek）对发生在1979年的炭疽泄漏事故做了戏剧性的描述。 当时炭疽云从前苏联的生物武器工厂斯维尔德洛夫斯克（Sverdlovsk）泄漏到大气中。研究本事故对今天的美国的专家依旧是一个挑战，包括哈佛大学的马修 梅瑟生（Matthew Meselson）博士和马里兰大学国际与安全研究中心的米尔顿 莱顿伯格（Milton Leitenberg）。
 
-阿里贝克博士（Dr. Alibek) 特别指出，炭疽云所经之处，无人生还，死亡人数达数百人。但是梅瑟生博士和莱顿伯格博士曾说，有成千上万的人处于毒云笼罩之下，确认死亡人数是62人。
+比尔·戈茨（华盛顿时报专栏作家）： 本周的华盛顿时报 [@WashTimes](https://twitter.com/WashTimes) “内幕”专栏：美国的核威慑策略需要针对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 作出升级。海军专家警告中共国是“未来十年的危险”；拜登的国务院过去的中国政策。【转推华盛顿时报，对中国的核威慑需要升级】
 
-阿里贝克博士（Dr. Alibek）还说，当地的共产党书记叶利钦（Yeltsin）应该对掩盖本次事故在人性及道义上负责。叶利钦负责掩盖所有的信息，他补充说，他相信俄罗斯军事领导人利用这一事件，勒索叶利钦继续进行秘密的生物武器计划。
 
-如果这一推论是正确的， 就可以解释为什么前苏联持续地实行生物武器优先发展计划。但据一些情报分析人士称，通常认为在斯维尔德洛夫斯克炭疽泄漏事故中起了主导作用的是前苏联情报部门–克格勃，而不是叶利钦。
 
-对于阿里贝克博士（Dr. Alibek）而言，倾其一生于生物军备竞赛，现在到了阻止此类武器向恐怖组织和流氓国家扩散的时候。“政府与这些组织之间存在着无形的竞争。” 他说，“谁更快？ 谁准备得更好？”
+> This week’s Inside the Ring column [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): US deterrence strategy needs upgrade to address China; Naval expert warns of China’s ‘Decade of Danger;’ Biden State Department on past China policy [https://t.co/q9FXA9MNKb](https://t.co/q9FXA9MNKb)
+> — Bill Gertz (@BillGertz) [April 29, 2021](https://twitter.com/BillGertz/status/1387914194859737091?ref_src=twsrc%5Etfw)
 
-他说，答案可能取决于他前苏联同事们所做的决定，为维护世界和平，还是为最高出价的买者？ “他们如今无处不在，” 他说:  “大多数在俄罗斯， 但是有些在海外。 我们已经失去了对他们的控制。”
 
-0
+
+
+
++4

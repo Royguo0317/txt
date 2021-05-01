@@ -1,37 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】反食品浪费法：中共“小快灵”立法的样板
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1156890/)
+## 美国明确决心，全面执行台湾关系法
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1158429/)
 
-作者：纽约香草山写作组四组 唯心力行
+**翻译编辑： 蓝精灵**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30190722/https3A2F2Fs3-ap-northeast-1.amazonaws.com2Fpsh-ex-ftnikkei-3937bb42Fimages2F12F02F22F62F33966201-3-eng-GB2FCropped-16198134982020-11-24T190332Z_2019383897_RC2V9K90O3M8_RTRMADP_3_USA-B.jpeg)
+美国国家安全顾问杰克·沙利文（Jake Sullivan）周五在阿斯彭研究所（Aspen Institute）举行的虚拟论坛上说：“美国对此的立场很简单，我们相信’一个中国’政策，全面执行《台湾关系法》、六项保证……，我们反对单方面改变现状。”他的讲话是拜登上任100天后的第二天——这是一个传统的里程碑，在此里程碑上可以衡量政府的早期成就，并确定其政策方向。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+沙利文谈到“澄清”时，他认为这并不是从美国所谓的战略模糊性，转移到明确承诺在中国对其采取军事行动时进行干预的转变。沙利文说，布什政府的立场与两党就“追溯几十年”的美中政策达成共识。
 
+这位国家安全顾问说，需要加大对台湾的压力一直是习近平主席领导下中国当前外交政策的“中心特征”，习近平认为该岛“对中国的声誉和长期稳定至关重要”。因此，华盛顿需要继续履行《台湾关系法》所规定的义务，以协助该岛进行自卫，提高其对与印度太平洋国家的关系的担忧，并继续加深我们人民的经济和教育。沙利文说，人们与台湾有联系。沙利文说：“我们希望看到的是两岸关系的稳定，而不是单方面改变现状的努力。”他补充说，美国政府已将此事传达给中国，并已确认给台湾以及包括日本在内的美国伙伴。
 
+4月中旬，日本首相须贺芳秀在华盛顿会见拜登时，两国领导人发表联合声明，强调“台湾海峡和平与稳定的重要性，并鼓励和平解决两岸问题”。中方对此声明表示反击：“这些事关中国的根本利益，不容干涉。我们对联合领导人声明中的有关评论表示强烈关注和坚决反对。”
 
-[新华社北京4月29日电](http://www.npc.gov.cn/npc/c30834/202104/7f69abf4f4d84c3ea81db717c301ef22.shtml)，“反食品浪费法”历经二次审议，十三届全国人大常委会第二十八次会议29日表决通过。全国人大常委会法工委有关部门负责人表示，此项立法是中共探索“小快灵”立法的生动实践，切口小，意义重大，聚焦餐饮浪费问题有利于保障国家粮食安全，有利于弘扬中华民族传统美德和社会主义核心价值观，有利于促进绿色发展和可持续发展。
+根据1979年《台湾关系法》，美国不保证干预，但提供武器和服务以确保台湾具有足够的自卫能力。在“一个中国”政策下，华盛顿“承认中国的立场”，只有一个中国，台湾是中国的一部分。美国承认中华人民共和国政府为“中国唯一的合法政府”，但并未明确承认中国对台湾的主权。这一直是美国自1979年以来一直实行的“一个中国”政策。这与北京的“一个中国”原则不同，后者将台湾视为中国的一个省，并且是其主权主张的一部分。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30090349/MOS2471-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E5%8F%8D%E9%A3%9F%E5%93%81%E6%B5%AA%E8%B4%B9%E6%B3%95%EF%BC%9A%E4%B8%AD%E5%85%B1%E5%B0%8F%E5%BF%AB%E7%81%B5%E6%9E%81%E6%9D%83%E6%B3%95%E5%BE%8B%E7%9A%84%E6%A0%B7%E6%9D%BF.jpg)
+沙利文上周五的讲话也是在美国国家情报总监艾弗里尔·海恩斯（Avril Haines）告诉国会的第二天，即中国人会发现美国摆脱了战略歧义的“严重动荡”。海恩斯在参议院军事委员会作证时说：“我认为这将巩固中国人的看法，即美国一心一意限制美国的崛起，包括通过军事力量来遏制中国的崛起，并可能导致北京在全球范围内积极破坏美国利益。”
 
-“反食品浪费法”第一条明确了立法目的，即粮食安全、社会主义核心价值观和绿色发展，其真实目的昭然若揭。反食品浪费法与粮食安全南辕北辙，只不过为中共推卸粮食危机罪责提供了借口，是中共以假治国、以骗治国的一贯伎俩。社会主义核心价值观的实质是中共极权统治对人民的“惩罚与规训”，反食品浪费法是“规训”（奴役）人民的绝好工具。“绿色发展”是中共输出极权治理模式的幌子，妄图实现世界新秩序“大重启”。
+在拜登担任下一任总统期间，美国仍处于政策审查和与盟国协商的中间，以制定整个政府以及对抗中国的多边战略。其中包括应对北京带来的经济，贸易和技术挑战。沙利文说：“我们有耐心，我们将系统地处理这一问题。”他随后补充说，他相信北京已经注意到这一点。他说，华盛顿的目标不是遏制中国，“发动新的冷战”或陷入冲突，而是“大力竞争，并回击为我们的价值观和我们认为的普遍价值观服务”。
 
-中共的“依法治国”沦为彻头彻尾的骗局和阴谋。中共领导立法，而不受法律约束。党内法规和军事法规完全架空国家法律，从毛泽东时代的政策讲话治国，到习近平时代的手谕口信电话治国，重要命令不得留下文字记录，中共从来不靠法律的“本本”治国。“反食品浪费法”是中共“依法治国”的骗局和阴谋，中共“小快灵”立法的样板，是极权统治商鞅驭民五策的计谋。
+原文链接：[https://asia.nikkei.com/Politics/International-relations/Biden-s-Asia-policy/US-vows-to-approach-Taiwan-with-clarity-and-resolve](https://asia.nikkei.com/Politics/International-relations/Biden-s-Asia-policy/US-vows-to-approach-Taiwan-with-clarity-and-resolve)
 
-校对/发稿：雪梨
+***校对发布**：文顾*
 
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++3

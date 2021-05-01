@@ -1,30 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻简评】广西北流市幼儿园发生一起伤害事件
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1157119/)
+## 突发新闻：阿富汗东部发生致命汽车炸弹爆炸
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1158682/)
 
-作者：喜马拉雅樱花团 / 盐和光
-
-![](https://lh6.googleusercontent.com/-tzIipinOCdD7hajuvghuIELWnIQbxUTq5RflpCRyyz3RswWGgYjvQxAKEAmYeXZblSShPar3Me-2DxmyfymYZrH-Ss4xAPpF2W2s2uvQap4yC681f5Uo0UyZHtpFgIBHHu3pqwi)
-[图片来源](https://www.twoeggz.com/news/2875660.html)
-
-2021年4月28日14时许，广西北流市新丰镇民办健乐幼儿园发生一起伤害事件，初步了解有16名幼儿、2名教师受伤，其中两名幼儿伤势较重。目前，玉林市、北流市正在组织力量不惜一切代价救治受伤人员，公安机关已抓捕犯罪嫌疑人，具体情况正在调查处理中。稍后报道出该起案件嫌疑人已被抓获，资料显示该男子，25岁，是幼儿园附近人，网传是精神问题，抑郁症，情感问题等等 ……在写此文时，已爆出有9名儿童死去，后续还会跟踪具体情况。无辜的小生命就这样被所谓的精神问题剥夺，此刻除了叹息无从言语，那我们该清醒地回想反思，这些年这样的悲剧时刻重演，到底是怎么回事？
-
-总有一身戾气，他们祸害不了阶层高的人，因为彼此不在一个圈层，于是，弱者挥刀向弱者，残害同样处在社会底层的其他人，这种底层之间的互害，往往更加直白、赤裸、不加掩饰，从倾轧同类的快乐中，得到一点稀薄的存在感。然而，互踩互害，能让他们摆脱底层吗？不能。只能越陷越深。社会学家孙立平先生曾经提出过一个概念：底层沦陷。意思是，如果你身处底层，就很容易陷入一种互害模式中，大家你踩我我踩你，由于我们把大量的精力用来伤害对方，没有精力去提升，谁都没有办法逃离，最后集体陷入一种沦陷之中。
-
-当眼光只局限在那一亩三分地，满脑子想的都是如何踩别人，就只能被牢牢地困在底层的土壤中，无法逃离。上层社会人捧人，中层社会人比人，下层社会人踩人，这是当今社会的生动写照。 底层相互迫害，不可能有赢家，最后的结局就是大家跟着一起沦陷，只有学会去互相成就，互相帮助，才能走出这样的怪圈。螃蟹定律相信很多人都知道，把一只螃蟹放到水桶里，它能凭借自己的本事爬出来。但是把很多只螃蟹放进去，下面的螃蟹就会拼命拉住向上爬的螃蟹，这样的话，一只也爬不出来，因为他们会互相钳制。
-
-互害生态链已经形成，每个人，无论你从事什么行业、地位高低、年龄大小，都不可避免地生活在这个生态链里，无法逃脱。以后的历史学家们可能会发现有这么一段历史，上面的都是抑郁症，下面的都是精神病，随时随地都有可能爆发，比中共病毒都可怕，病毒至少有所谓的疫苗，这个真没的治。互害的国人，这状态正是商君书驭民之术所期望的最佳状态……百代君王，愚民之术一以贯之，愚民之技术手段力不从心，如何能走出这循环了千年的怪圈？唯有新中国联邦可以医治，唯有新中国联邦可以拯救！
+**撰稿人： 蓝精灵**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30203534/%E6%96%B0%E5%BB%BA%E5%9B%BE%E7%89%8717.jpg)
+在阿富汗东部发生致命汽车炸弹爆炸，据报道，至少有27人丧生，数十人受伤。美国昨天才刚刚开始从阿富汗进行最后的撤军，在此时发生的炸弹袭击，背后有是么样的故事呢？
 
 
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
+> A deadly car bombing in Eastern Afghanistan today. Officials say at least 27 killed, dozens wounded. The attack comes as the U.S. just yesterday began a final drawdown in Afghanistan after nearly 2 decades of war. CNBC's [@EamonJavers](https://twitter.com/EamonJavers?ref_src=twsrc%5Etfw) has the story. [pic.twitter.com/YX0BFpnuMw](https://t.co/YX0BFpnuMw)
+> — The News with Shepard Smith (@thenewsoncnbc) [April 30, 2021](https://twitter.com/thenewsoncnbc/status/1388281180454375428?ref_src=twsrc%5Etfw)
 
-*校对：喜马拉雅东京樱花团 / 文小白*
-*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews.org/wp-content/uploads/2021/04/二维码-2.jpg)
-0429C136b
 
-0
+
+链接：[https://twitter.com/thenewsoncnbc/status/1388281180454375428?s=20](https://twitter.com/thenewsoncnbc/status/1388281180454375428?s=20)
+
+***校对发布**：文顾*
+
++1
