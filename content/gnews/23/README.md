@@ -1,22 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发新闻：阿富汗东部发生致命汽车炸弹爆炸
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1158682/)
+## 【拍案惊奇系列】之十——粮荒在即，中共末日
+` 左媛专栏` [轉載自GNews](https://gnews.org/zh-hans/1158690/)
 
-**撰稿人： 蓝精灵**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30203534/%E6%96%B0%E5%BB%BA%E5%9B%BE%E7%89%8717.jpg)
-在阿富汗东部发生致命汽车炸弹爆炸，据报道，至少有27人丧生，数十人受伤。美国昨天才刚刚开始从阿富汗进行最后的撤军，在此时发生的炸弹袭击，背后有是么样的故事呢？
+作者：左媛
 
+在“盛世繁华”之今日，中共竟然出乎意料之外推出了《中华人民共和国反食品浪费法》。北京时间2021.4.29，习近平签署该法令，即日施行。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30204152/%E7%B2%AE%E9%A3%9F2.png)习主席的新法律
 
-> A deadly car bombing in Eastern Afghanistan today. Officials say at least 27 killed, dozens wounded. The attack comes as the U.S. just yesterday began a final drawdown in Afghanistan after nearly 2 decades of war. CNBC's [@EamonJavers](https://twitter.com/EamonJavers?ref_src=twsrc%5Etfw) has the story. [pic.twitter.com/YX0BFpnuMw](https://t.co/YX0BFpnuMw)
-> — The News with Shepard Smith (@thenewsoncnbc) [April 30, 2021](https://twitter.com/thenewsoncnbc/status/1388281180454375428?ref_src=twsrc%5Etfw)
+50年代粮食短缺没有出这个法，60年代初饿死几千万没有这个法，70年代经济崩溃也没有推这个法，但是，在中共吹嘘GDP全球第二，天天唱“大国崛起”，嚷嚷要给全球各行各业“指明方向”的今天，却匆匆出台了《反食品浪费法》，为啥呢？粮食严重不够了，全球围剿中共了。
 
+饿死几千万的当年，人民大会堂茅台照样喝，美味照样吃。如今，三胖来访，习近平照样100多万一瓶的矮嘴茅台招待他，同时有6亿人月入不到1000元，一瓶茅台是一个底层百姓100多年的收入。这“党肥民瘦”就是专制共产党的写照，过去是，现在是，将来也是，如果它有将来的话。
 
+老百姓挣钱艰难，自然舍不得丢弃一饭一羹，可权贵们未必会啥不得，因为他们吃的喝的不需要自己掏腰包，随口扔，随手弃那是常态。还有，权贵们随侍的美女帅男，消费的不会比餐饮少，算浪费还是不算浪费？怎么监管？怎么执行？各级官方招待有谁来监管执行！人民大会堂的奢华国宴又有谁来监管执行？制定法律的目的是为了监管百姓还是自我监管还是“王子犯法与庶民同罪”？如果皇帝犯法又与谁同罪呢？
 
-链接：[https://twitter.com/thenewsoncnbc/status/1388281180454375428?s=20](https://twitter.com/thenewsoncnbc/status/1388281180454375428?s=20)
+官方制定法律，从来都是管制老百姓的。中共恶行被国际通晓，灭共力量集结，《反食品浪费法》此时出台，在日益艰难的经济形势下，它会怎样打击百姓，限量供应粮食，不可细思，细思极恐！国人同胞当自保！
 
-***校对发布**：文顾*
+（以上文章仅代表个人观点，与其他组织或个人无关）
 
-+1
+【参考来源】
+
+[凤凰网：中华人民共和国反食品浪费法](https://i.ifeng.com/c/85qxEWjDS1s)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30203611/QRcode_GGB_v2-1.jpg)
++5

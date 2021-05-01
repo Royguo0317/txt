@@ -1,49 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】祝英雄科学家生日快乐
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1158375/)
+## 拜登的中央情报局局长被曝与中共藕断丝连
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1158395/)
 
-配音：香草山录音组 Swr拥抱太阳
+蒙特利尔皇家山战友团 Spirit
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30184046/babibai.jpg)图片来源：PBS
+据《国家脉动》（National Pulse）4月30日报道，伯恩斯于2015年3月成为卡内基国际和平基金会主席，他在参议院确认听证会上声称，他只是 “继承了 “该智库与中美交流基金会（CUSEF）的长期关系。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+据美国政府称，中美交流基金会是中共统战部的一部分，其目的是 “收编和化解可能反对其执政的中国共产党的政策和权威的来源”，并 “影响外国政府采取支持北京首选政策的行动或立场”。
 
+目前领导中央情报局（CIA）的伯恩斯自称 “越来越担心中国影响力行动的扩大”，坚称他在开始任职后 “不久 “就切断了卡内基与CUSEF的关系。然而，伯恩的说法与卡内基基金会2021年4月8日发表的一份题目为《中美网络核C3稳定性》不一致。卡内基的新闻稿写道：”这份文件是通过卡内基和上海国际问题研究所领导的三年对话产生的，美国和中国的技术和军事专家提供了意见和评论。”该新闻稿透露，该项目于2018年开始。
 
+这个位于上海、由中国共产党管理的智库与卡内基基金会合作，承认来自CUSEF的 “财政支持 “推动了这一努力。上海国际问题研究所所长陈东晓在61页的报告中所讲道：“我也希望上海国际问题研究所和卡内基将继续围绕美中网络安全问题进行联合研究，为美中关系做出更大贡献。一如既往，上海国际问题研究所感谢中美交流基金会的资金支持，帮助上海国际问题研究所各课题组开展中美关系的联合研究，包括与卡内基国际和平基金会的这项开创性工作”。该文件本身侧重于解决 “对核指挥、控制和通信系统的网络威胁”–尽管中共实体经常对美国利益包括政府机构进行网络攻击。
 
+被挖掘出来的关系及事态发展使伯恩斯名声受损，与他声称“对CUSEF采取了反对立场”不符。作为中共团体的创始人在2017年访问了位于北京的卡内基-清华中心。
 
+一如既往，上海国际问题研究所感谢中美交流基金会的资金支持，帮助上海国际问题研究所各课题组开展中美关系的联合研究，包括与卡内基国际和平基金会的这项开创性工作”。卡内基的2018年财务报告也将CUSEF–实际上是中共–列为捐赠者。
 
-今日，正义在集结
+中央情报局局长与中共国的影响力行动保持关系，或许在确认过程中就应该取消资格。国会山的共和党人几乎没有表现出对此类问题的关注。美国中情局局长的职责是保卫美国国家安全，他却与旨在“支持首选中共政府立场”的“蓝金黄”基金会合作，这让美国政府情何以堪？希望这些爆料引起共和党重视并采取相应的行动。
 
-挺川百万人大游行震撼着世界
+[原文链接](https://thenationalpulse.com/exclusive/biden-cia-director-lied-about-ccp-ties/)
 
-37年前的今日，一个天使坠落人间
+* * *
 
-她也一样震撼着
+*编辑、发稿 文锦*
 
-这个尚未完全坠入黑暗的世界
-
-
-
-文字版原文：[【香草诗词汇】祝英雄科学家生日快乐](https://gnews.org/zh-hans/562774/)
-
-作者：香草山写作组 木白
-
-
-
-音频处理/发稿：正义的小新
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-+4
++2

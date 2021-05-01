@@ -1,53 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【健身健心】花式滚轮健身
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1158903/)
+## 【五月花思】华盛顿SEC抗议感悟之感动篇
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1158671/)
 
-作者：纽约香草山健身部 Ivy001
+五月花写作组 ｜ 作者：一尘 ｜ 编辑：jamie(文胤) ｜ 美工、发布：灭共小宇宙
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30214013/%E4%BA%94%E6%9C%88%E8%8A%B1%E6%80%9D.jpg)
 
+4月5日起，GTV的投资者自发从各地去往美国首都华盛顿的SEC办公楼前抗议。SEC与共产党勾兑，滥用职权，采纳虚假信息，在过去一年的时间里，对GTV展开了无底线无尽头的调查。作为GTV的投资人之一，我在第一时间赶往华盛顿，在SEC大楼前抗议了一个星期。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+坚守了一个星期，我才真实地体会到了维护自己的权益是一件多么不容易的事情。与众多投资者一道，每天在SEC大楼前按照上班时间从早9点站到晚5点，不停的高喊着四大诉求，控诉SEC与邪恶中共合作导致投资者不仅蒙受经济损失，更有投资者因信息被SEC泄漏而被中共黑警迫害甚至消失。除了辛苦之外，其实每人的内心并不太确定这样的抗议是否会有效果，是否会达到维权的目的。但让我义无反顾坚持站在那里的原因有二：
 
+一、我坚信GTV是世上唯一一个令中国人在共产党残酷统治下可以发声的渠道，是世界了解邪恶CCP本质的唯一平台。
 
+二、我被诸多GTV投资者愤怒而有力量的呐喊与控诉感动着。只想和大家一起维护自己的利益，维护我们唯一可以揭露真相、袒露心声的平台。
 
-关注健身滚轮训练课程的战友，你们有没有练出腹肌了呢？不知不觉中，健身滚轮的训练课程，已经到最后一课了。纽约香草山健身部小教练的专业教程之——后背式健身滚轮的用法。
+在抗议的过程中，偶尔会有行人好奇我们在做什么，过来与我们交流。抗议进行到第三天时，有一对年轻男女过来询问。我便详细的和对方介绍GTV以及SEC对GTV的不正当调查导致来自中国的投资者被中共迫害。那位男士显然有兴趣了解更多，但和他在一起的女士着急想走。那位男士虽然很顾虑女士的感受，但还是很耐心的听完我的介绍，并且祝我们好运。每当路人听完介绍并对我们表示支持，甚至向我们竖起大拇指时，我们的心中不觉涌上阵阵暖流，只要做正义之事，能传播出我们的声音，哪怕只有一个人听到，都值了。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30213720/85-1.jpg)图源网络
+SEC的抗议一直在持续，我从华盛顿归来后，每天都通过GTV关注抗议现场，与投资者同在。看到更多的投资者从四面八方加入到抗议的队伍中，每天都整整齐齐的站在那里坚守阵地，内心为曾和这样的投资者们并肩战斗而倍感骄傲。
 
-首先，坐下，双腿伸直，把健身滚轮放在背后。挺背收腹，双手握住健身滚轮手柄，往后推动滚轮，身体最大限度向后拉伸，然后拉着滚轮回到原位。如此反复。
+4月14日那天，我看到投资人之一的七哥老妹，一大早就在SEC门口默默地把椅子和宣传牌排列的整整齐齐，做着新一天抗议的准备。稍后下起了雨，气温骤降，看着老妹蜷缩着身体，紧握拳头接受采访，眼泪真的忍不住夺眶而出，真的很想给老妹送去一件羽绒服披上。身材瘦小的她，在那一刻看来是那么的高大和勇敢。她在寒风中坚持着，从未放弃，握紧的拳头感觉更像是在表达对SEC的愤怒。不争取到权益，我们绝不罢休，永不放弃。
 
-后背式滚轮健身可以锻炼上身的背部和肩部肌肉，同时，还能拉伸肩部的韧带。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29192244/SEC%E6%8A%97%E8%AE%AE%E4%B8%80%E5%91%A82.jpg)
 
-温馨提示，做后背式滚轮健身训练时，一定要注意腿部保持伸直，不能弯曲，否则腿部会分担腹部的受力，影响训练效果。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/29192252/SEC%E6%8A%97%E8%AE%AE%E4%B8%80%E5%91%A81.jpg)
 
-战友们，今天你健身了吗？传播爆料革命了吗？传播香港危机、病毒真相了吗？传播疫苗的危害了吗？让我们紧跟文贵先生的步伐，快乐健身，健康生活，努力灭共！
+在抗议的第5天，SEC举报办主任迫于压力辞职，先前内心对抗议效果的未知烟消云散。只要我们行动，就会产生影响，每一份坚持会得到回报，因为我们秉承着正义的信念和价值观。
 
-（本文仅代表作者观点）
+* * *
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
 
-编辑/校对/发稿：Irene木木
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
 
-**更多资讯，更多关注**
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-
-
-+3
++2

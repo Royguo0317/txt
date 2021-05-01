@@ -1,20 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德简报】430/2021早：习亲信陈国猛调任海南纪委书记，三亚原市委书记严重违纪被查
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1159346/)
+## 音乐速递：Miles郭即将推出新歌
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1159385/)
 
-**编辑：华盛顿DC农场 路德简报项目组**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30234836/2021-4-30-scaled.jpg)
+**撰稿人： 蓝精灵**
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01000610/%E6%96%B0%E5%BB%BA%E5%9B%BE%E7%89%8719.jpg)
+
+Miles郭今天在新媒体GTV上发盖特视频，说他正在录制一首新歌曲，名字叫做“马背英雄”。
+
+他是一位从未经过音乐和唱歌技巧教育和专业训练的人，在他的老师唐平和威廉王的指导下，之前已经发布了三首歌曲，分别是《酒灭中共》、《妈妈之歌》，还有和好莱坞音乐人一起制作的Hip-pop风格的歌曲《Take Down The CCP》，在苹果音乐榜上打榜，均位占据前列。
+
+Miles郭还告诉大家，他会和所有人一起分享录制这首歌曲的感受。
 
 
-> 2021 年 4月30日 路德时评 早
-> 
-> 1. 习突袭巡视海南广西后为了控制海南，将亲信陈国猛调任海南纪委书记意味着中共内斗升级，三亚原市委书记严重违纪被立案
-> 
-> 2.习继续清洗异已派系海军原副参谋长宋学涉嫌严重违法被查 [pic.twitter.com/aHh6PRI0ET](https://t.co/aHh6PRI0ET)
-> — 平民爆料 (@WM18320321) [May 1, 2021](https://twitter.com/WM18320321/status/1388328772680798211?ref_src=twsrc%5Etfw)
 
-
+***校对发布**：文顾*
 
 0
