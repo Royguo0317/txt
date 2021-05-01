@@ -1,57 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 第三波新冠疫情将导致已接种两剂疫苗的人中60-70%死亡或住院
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1161337/)
+## 【有声读物】美媒疫情设想：中共军方对美军运动员释放新冠病毒
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1161449/)
 
-翻译：康州盘古农场 – 暴力小蘑菇
+配音：香草山录音组：蒙古鸿雁
 
-校对：康州盘古农场 – Mike Li
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-审核：康州盘古农场 – 心照
 
-据《Greatgameindia》作者：Suzanne Hamner 2021年4月26日发布
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01111331/good22.png)
-建模预测(下附全文)结果由英国顶级科学咨询机构Sage的下属小组之一的系统性大流行性流感建模操作小组(SPI-M-O)提交。
 
-英国一顶级建模预测机构的预测报告显示，COVID-19的第三波高峰将导致已经接种两剂疫苗的人中60-70%死亡或住院。这篇论文指出，再次飙升的住院和死亡病例将主要来源于那些接受了两剂疫苗的人，即接受了两剂疫苗的人将占据住院病例数的60%和死亡病例数的70%。
+4月28日，美国媒体网站《门户专家》发表乔-霍夫特（Joe Hoft）的文章，标题为《报告：中（共）国军方2019年10月是否对访问武汉的美国士兵运动员投放了COVID病毒以阻止特朗普连任？》文中对先前有人提出的中共针对美国大兵故意释放病毒这一说法，认为这是可能且符合逻辑的设想。
 
-这个学术委员会在新冠大流行期间进行了建模工作，并研究了疫苗接种对居民个体入院、感染和死亡的影响。
+文字版全文：**[【热点播报】美媒疫情设想：中共军方对美军运动员释放新冠病毒](https://gnews.org/zh-hans/1149059/)**
 
-研究结果表明，第三波疫情高峰的来临不可避免。但病例激增的规模取决于疫苗的有效性、人员流动限制的放松速度以及新变种对的传播能力和致病程度及其影响。
+原文作者：纽约香草山翻译部  文明世界
 
-研究结果表明，再次激增的住院和死亡病例将 “以那些接种了两剂疫苗的人为主”。
+发稿：正义的小新
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+**更多资讯，更多关注**
 
-“在施行第四阶段(英国计划从6月21日起取消所有限制)放松管制的措施后，针对以上3方面的问题（疫苗的有效性、人员流动限制的放松速度以及新变种对的传播能力和致病程度及其影响）的有效举措，几乎肯定不会减少随后的疫情复燃的规模。”
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-根据近期数据的建模结果印证了这一假设，大众可能对基础措施的依从性较低，进而可导致病毒传播增加，可能导致下一波疫情复燃的规模接近2021年1月的峰值。
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-这篇论文探讨了随着进入夏季后的放松管制，可预期的新冠的疫情走势的一系列可能性。
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-它还考虑了一系列不同的信息来源，包括来自华威大学、伦敦帝国理工学院和伦敦卫生与热带医学院的模型。
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-“在施行第四阶段(英国计划于6月全面取消限制)放松管制的措施后，病毒的传播几乎没有减少的可能性，从悲观的或即使经过粉饰的疫苗效力假设出发，也可推导出疫情可能复燃并达到与2021年1月类似的住院病例规模。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-这篇论文指出，再次飙升的住院和死亡病例将主要来源于那些接受了两剂疫苗的人，即接受了两剂疫苗的人将占据住院病例数的60%和死亡病例数的70%。
-
-沃里克模型的主要结果如图所示：住院患者(左)或死亡患者(右)的年龄和疫苗接种情况。
-
-上图为绝对数量，下图为比例。
-
-一旦该模型被公开，事实核查人员们就将试图揭穿或淡化这样一个结论，即接种了两剂疫苗的人将贡献第三波疫情高峰病例的60-70%，占据了最重要的比重。
-
-以下是格蕾丝.拉赫曼（Grace Rahman）基于当前的完整事实(Full Fact)的结论:
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01111353/good77.png)
-预测模型显示，当第三波新冠疫情爆发时，住院和死亡病例主要来源于那些接种过疫苗的人群。这是因为到那时许多易感者已经接种了疫苗，而不是因为疫苗正在伤害他们。
-
-然而，核查者坚持认为疫苗接种与第三波新冠疫情高峰无关。
-
-不过，我们还是让读者来决定吧。请在下面的评论中告诉我们你的想法。
-
-原文链接：[https://greatgameindia.com/third-wave-two-vaccines-deaths/](https://greatgameindia.com/third-wave-two-vaccines-deaths/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
++1

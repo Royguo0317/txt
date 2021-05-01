@@ -1,57 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【信仰之声】《无依之地》与《三峡好人》里的两个世界(上)
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1161200/)
+## 中共以假治国&nbsp; 不掌握军事核心技术&nbsp; 只能雇佣大批前苏联专家
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1158290/)
 
-作者：纽约香草山福音部 山城小哥
+**摘要：在2021年4月25日的GTV直播中，郭先生在爆出中共辽宁号航母租借俄罗斯飞行员之后，继续爆出中共以假治国，解放军根本不掌握发动机和芯片等军事核心技术，只能靠大批收买前苏联各国的军事人员，将他们安置于在青岛、大连、哈尔滨和三亚等地。军方高层只懂吃喝嫖赌，毫无战斗力。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01123105/Miles_20210425_p2.srt.txt)
+**中共以假治国  不掌握军事核心技术  只能雇佣大批前苏联专家**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
+**CCP Has Former Soviet Union Military People Working for Them**
 
+然后头两天文贵爆的那个航空母舰，还有那个平衡器电瘫对国内影响非常大。说你这一爆，他说：“为什么你知道这么多事儿啊？这是很核心的。” 就共产党啊，战友们要记住，共产党大家要记住，就共产党这个家伙它是以假治国。就中国人玩潜水艇还有玩什么航空母舰，扯球蛋呢啊。大家你们都真的是有但凡跟军队这些人接触你就知道咋回事儿。就原来说的坦克走100米能偏1米，你能玩啥呀？
 
+The news that I broke two days ago, which was about the [Liaoning] aircraft carrier’s stabilizing system being paralyzed, has had a great impact in mainland China. I was asked by someone, “Why do you know so many details? They are at very high confidentiality level.” Brothers and sisters, remember – because this is very crucial – that the CCP mafia is ruling the country with falsehood, then you would know that the submarines and aircraft carriers boasted by them must be bullshit. Everyone, if you know any [CCP’s] military people in person, you would know what I mean. Say, if for every 100 meters, their tanks can go off 1 meter, what can you expect them to do well?
 
-赵婷最近获奥斯卡奖的电影《无依之地》讲述了一个60岁左右的美国妇女在经历突如其来的失业、丧夫之痛以后，穷困潦倒地开着房车在美国西部过着半做临时工。半游历的生活，一直到她放下过去，重新开始新生活。电影真实而生动地描绘了一部分美国社会“边缘人士”和底层半游历式的生活状态和他们的内心世界，同时也对美国的美元经济秩序、养老、房地产、产业结构等提出了一些思考。
+就是苏联解体后的军事专家、科学家、飞行员，乌克兰的，包括原来很多格鲁吉亚籍的加入的乌克兰原苏联的，包括原来车臣的一些，一些被那个普京上来打压的那些所谓的军人原苏联地区的，几乎到最后全都到了中共给弄过来了。这些当兵来了以后，先进行给你签合同，你家人全迁到中国来。大连呐、东北哈尔滨呐。你但凡在哈尔滨东北的你去看看，有多少原苏联那是在那块儿生活啊？他们都是要服务于军工的，他不会做轻工，他只能军工。然后把这些人全弄来，在哈尔滨，在大连，在东北生活，全家过来你不能再离开了，给你高薪。
 
-无独有偶，中国导演贾樟柯也拍过一些类似的电影，不过，他的电影反映的是中国底层的生存状态。对作为重庆人的笔者而言，我感觉最真实、最贴近生活而具有代表性的非《三峡好人》这部电影莫属，这部电影确实很真实和深刻地从一个侧面刻画了我们重庆的一个时代。
+The military experts, scientists, and pilots from Ukraine, including many Georgian nationals who joined Ukraine from the former Soviet Union, also including some from Chechnya, and soldiers from the former Soviet Union who were suppressed by Putin, almost all of them were brought to China by the CCP. After these military people arrive, they will first sign a contract, and all family members will then move to China, to Dalian or Harbin in Northeast China. If you live in Harbin, you can go and see how many people from former Soviet Unions live there. They all serve in military industries because they don’t know anything about light industry. All these people and their families were brought here and settled in Harbin and Dalian in the Northeast China. The whole family will come over and you can’t leave anymore, and you will be paid a very good salary.
 
-这里，我简单说说我对这两部电影的感受，简单对比一下这两部电影。从中看看美中两个国度的根本性的差异两国面临的挑战与未来的出路。
+然后呢在海南三亚那地方有一帮人，他们喜欢那个地方，定居在那里。这些人服务什么？——航空母舰、潜水艇。中共玩潜水艇，别以为他吹牛，早着呢！早着呢！潜水艇、海军事业都是这帮人。这就是所谓的“代工”，这是很正常的。
 
-由于中共国的奴隶劳动力远比美国劳动力廉价，而且低人权、不计环境成本，所以美国许多产业链都转移到了中共国。于是美国实体制造业经济渐趋萧条，随着美国实体经济的萧条，《无依之地》的女主人公费恩和丈夫所在的工厂在2011年关闭了，不久后丈夫也去世了。失去工作后的费恩没有房子可住，也没有多少钱，于是她变卖了仅有的家当，开着房车，唱着赞美耶稣基督和玛利亚的歌出发去在美国西部找工作。但由于年纪已大，稳定的坐办公室类工作机会日少。她便一边打一些简单的零工，一边住在房车里过半旅行式的生活。
+Also there is a group of people in Sanya, Hainan Province. They like that place and settle down there. Where do these people serve? Aircraft carriers and submarines. The CCP claims that it’s good at submarines, but don’t believe their brags. They are far from being good, very far! Submarines and all other naval businesses are supported by the aforementioned people. This is the so-called outsourcing, which is normal.
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01115255/%E5%9B%BE%E7%89%8721.png)
+有很多战友不到这个层次你不知道，（哎呀，我这敏感啊，）所以说当你知道共产党这一套东西的时候你就明白了。所以它很丢人，它吹狼蛋呢，吹狼蛋呢。只有咱们很多普通的人没见过这世面，听它吹很过瘾。像我们这成天在一起呢，这胡扯，胡扯呢。这回一练就知道了，航空母舰趴在那儿了，甭说去打仗了，侵略台湾了，你开到台湾都开不过去。
 
-这种生活，在美国中产阶级看来可能是很悲惨的。但这种想走就走、半旅行式的生活对许多中国人而言却是一种奢侈。虽然没有稳定的工作，但在美国那样优厚的经济环境下，60岁的她，即使在亚马逊做一下包装工，在快餐店做一下简单的工作也可以吃穿不愁。严格来说，她从来没有为食宿而真正担忧过，只要她愿意工作，随时可以轻松地自食其力。
+There are many fellow fighters who are not aware of this because they are not at this level. Oh, my allergy. So when you know about CCP’s businesses, you will understand what I mean. So it’s very shameful for them to always brag like that. Only a lot of ordinary people who have never seen the real world would enjoy listening to their brags. People like me who hang around with them all the time know that they always talk nonsense. This time their aircraft carrier came out and showed people what it really is. The aircraft carrier was paralyzed right there. Let alone go to a war with Taiwan [with the aircraft carrier], you can’t even move it to Taiwan.
 
-更重要的是，费恩没有因为自己的穷困而在美国社会里失去作为人的尊严，没有人欺负她，看不起她，或者对她品头论足。从她半游历生活一开始，就处处有人对她表示关爱和做善意的提示。朋友、驴友和妹妹几次真诚地邀请她去他们家暂住或长住，但她自己想自我游荡一段时间，疗心里的伤，所以没有去。更让人感到温暖的是，在一次下雪的时候，她房车停靠场地的一个管理人员不失尊重地告诉她，如果房车里冷，她可以去住基督教浸信会提供给无家可归者的床位……
+所以说这个爆料影响非常大对国内，影响很大。这就是我们路波切兄弟需要了解的，我们博士军团需要了解的。航空母舰你要想了解中国军事，你必须了解苏联的军事，原苏联，了解原苏联的军事和原苏联所有解体后的各国家的所有这些武器技术的去向和动静，这是非常了解中共的最核心，最最核心的。
 
-从这一切里，我看到美国社会人与人之间大多充满了在中共国罕见的彼此的体贴、尊重和关爱。美国不是一个像中共国一样近乎完全冷冰冰的社会，大多数人十分有人情味。而这一点，其实远远比美国强大的经济和易生存的经济环境更让人安心。
+So this breaking news really had a huge impact in mainland China. And this is what our Brother Lude needs to understand and what our Ph.D. Team needs to understand: Talking about aircraft carriers, you need to understand the Chinese military, and you must know the Soviet Union’s military, its army, and know the whereabouts of all the weapons and technologies from all the former Soviet Union states after the dissolution of the Soviet Union. This is the most critical thing that you need to know if you wan to understand the CCP.
 
-后来同为游历者的Dave 病了，他能很快得到美国医疗系统的医疗服务，若在中共国，没钱人生了这病，基本就只有等死了，谁还敢去游历？而且我们看到，在美国，同样伤心、失意的人们可以自发组织社团，一起在西部荒漠组建一个社区一样的地方，人们可以自由结社，在那里彼此互助，彼此交流，彼此温暖，还可以一起自由发表自己对当下政治经济状况的看法，这要是在中共国，早就被以煽颠罪灭了N次了。
+那么另外一个就是现在芯片。就是我们博博士每次艾丽、墨博士、冠博士、我们路波切每次还有安红都讲这个芯片，芯片已经讲透了，芯片。芯片是核心。中共没有生产芯片的能力，没有和所有控制英文世界的源代码的能力。你更不具备生产军事上的两大核心一个叫引擎，咱叫发动机。不论是天上地上的，最大核心就是发动机。你生产不了发动机，你只能买别人的，你买别人的发动机，那发动机是人家产的，那里面全是外国的文化，外国的语言，你能解读得了吗？扯淡吗这不是吗！
 
-美国还有保留完好的大自然，过着游历生活费恩还可以自由地在山间清澈的溪水里游泳，观看漫步的野牛，……相比已被中共压榨得山穷水尽，几乎不再有野外生存自然条件的中国，在美国野外求生似乎也很简单。
+Another thing now is about the chips. Dr. Bo, Ms. Ai Li, Dr. Mo, Dr. Guan, Mr. Lude and Ms. An Hong always talk about chips. Chips have been thoroughly covered and explained by them. Chips are the core. The CCP doesn’t have the ability to make chips, and doesn’t have the ability to control the source code in the English world, let alone the two core technologies in the military industry. One core technology is called engine, whether it’s in the sky or on the ground. If you [the CCP] can’t make engines yourself, you will have to buy other people’s engines, but the engines made by other people are from foreign cultures from inside out. Can you fully understand their languages? [Without your own chips,] everything is just nonsense, isn’t it?
 
-本来这部电影讲述的是美国底层生活的悲凉，但作为一个在中国大陆有生活经验的人，我看了《无依之地》这电影以后，不但不对美国底层的生活状态感到太多难过，反而觉得我情愿做一个美国自由的游历者和底层，也不愿做在中共奴役之下的亿万富翁。因为那个社会有更多的《圣经》里神所说的爱，有神要求的对孤儿寡妇、寄居者最基本的关怀。
+所以就找雇佣兵，必须维护它的发动机，航空母舰、潜水艇都是一样儿。你都难以想象在青岛有多少所谓的俄国专家基地。在大连、哈尔滨、三亚叫俄国专家楼啊俄国什么都是所谓原苏联的吃不了饭的军工人员维护你的最核心，也就是军队所用的发动机，中国人玩不了，怎么可能啊。
 
-因为有法治，所以底层能有尊严地生存下来，而不需要被迫去卖儿卖女。那是一个人人都有希望、有出路的社会。只要自己愿意，谁都可以选择像费恩一样去过一段时间的游历生活，在自然里去亲近神，去医治自己心灵的创伤。人人都有最基本的生存环境去张扬自己的个性，像那个向费恩借烟的流浪汉小伙子一样，他只是单纯地想自我流浪，他的流浪里毫无为奴的中国人那种悲苦和压力，反而是十分自然安宁，甚至喜乐。
+Therefore, you have to find mercenaries so you can outsource the maintenance of engines, aircraft carriers, and submarines to them. You can hardly imagine how many so-called Russian expert bases are in Qingdao. They are called Russian expert buildings in Dalian, Harbin, and Sanya for military personnels coming from former Soviet Union where they had a hard time to survive. They came to you [the CCP] to maintain the most critical technologies for you, that is military engines. The Chinese are incapable to do it themselves, and how could they be?
 
-从整个电影来看，我看到美国社会确实需要一些政治经济上的调整，总体问题不大。在电影里我们看到，由于与中共打交道太多太深，中共贪图不劳而获，压榨啃食后代年轻人的炒房做法，也感染了美国人，许多美国人己经受不住的诱惑，开始做和中共类似的事情。美国中低端制造业被中共抽走后，让许多美国人失去了稳定的、体面的工作和生活，以及由此而来的自我认同和自我定位。说到底，最核心的问题还是美国立国之本——耶稣基督信仰——的衰落，导致灵魂虚空和迷失的风气弥漫在更多美国人心里，许多人的生活失去了使命感和有永恒价值的方向。总的来说，美国需要福音上的奋兴，政治经济上的调整，需要和中共脱钩和彻底灭共。
+第二个是通信，是吧？所有的通信，通信的核心是芯片。你说你通信你产不了芯片，你能有安全的通信吗？什么北斗7星，你北斗9星也不中啊，你没芯片能行吗？那么你有芯片，它一系列的东西都出来了，这时候就加密、语言、安全，你根本做不了，你最终这些东西还得找到外国偷的还要找外国专家，甚至找外国专家来帮你。就这么简单！就这么简单的事儿。
 
-校对/发稿：飞虹
+The second [core technology] is communication, right? But what lies in the core of all communications is the chip. If you say you can’t make chips, how can you have secured communications? Even though you have the BeiDou Navigation Satellite System (note: BeiDou means the 7 stars of Big Dipper in Chinese), can you make them work without a chip? Not even if you had a nine-star Big Dipper! If you have chips, then you can make a series of things, such as encryption, language, and security, but you can do none of these. So in the end, you still have to either steal technologies from foreign countries or find foreign experts to help you. It’s that simple! It’s that simple!
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+中共只要你生产不出来跟你武力和你野心相匹配的发动机，还有通信的芯片，你什么都是球扯淡。懂这个就行了。就像我那时候成天和那军人在一起，哎呀，演习完回来以后全都跑到我那去吃，吃完以后出去嫖去，哪个人旁边都带着小女当兵儿了。
 
+As long as the CCP can’t produce the engines that match its military power and ambition, can’t produce chips, everything it talks about will be just bullshit. You all must understand this. Just like those days when I hung around with those PLA military personnels, whenever they came back from a military exercise, they all came to my place to eat. After eating, they went out to have sex, and every single one of them would bring a young military girl with them all the time.
 
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=608571df8aa4fd003f365a28](https://gtv.org/video/id=608571df8aa4fd003f365a28) (1:02:16-1:06:29, 1:06:59-1:08:00)
+鸣谢：感谢湘江之水、黎明之前提供中文文本于 [https://www.gnews.org/zh-hans/1140135/](https://www.gnews.org/zh-hans/1140135/)
 
-**更多资讯，更多关注**
+* * *
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+字幕：【JennyL】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++2
