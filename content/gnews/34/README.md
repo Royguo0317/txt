@@ -1,77 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】另类超限战——从诱惑到控制（下）
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1161127/)
+## 中共以假治国&nbsp; 不掌握军事核心技术&nbsp; 只能雇佣大批前苏联专家
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1158290/)
 
-作者：纽约香草山农场  春草
+**摘要：在2021年4月25日的GTV直播中，郭先生在爆出中共辽宁号航母租借俄罗斯飞行员之后，继续爆出中共以假治国，解放军根本不掌握发动机和芯片等军事核心技术，只能靠大批收买前苏联各国的军事人员，将他们安置于在青岛、大连、哈尔滨和三亚等地。军方高层只懂吃喝嫖赌，毫无战斗力。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01123105/Miles_20210425_p2.srt.txt)
+**中共以假治国  不掌握军事核心技术  只能雇佣大批前苏联专家**
 
+**CCP Has Former Soviet Union Military People Working for Them**
 
+然后头两天文贵爆的那个航空母舰，还有那个平衡器电瘫对国内影响非常大。说你这一爆，他说：“为什么你知道这么多事儿啊？这是很核心的。” 就共产党啊，战友们要记住，共产党大家要记住，就共产党这个家伙它是以假治国。就中国人玩潜水艇还有玩什么航空母舰，扯球蛋呢啊。大家你们都真的是有但凡跟军队这些人接触你就知道咋回事儿。就原来说的坦克走100米能偏1米，你能玩啥呀？
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+The news that I broke two days ago, which was about the [Liaoning] aircraft carrier’s stabilizing system being paralyzed, has had a great impact in mainland China. I was asked by someone, “Why do you know so many details? They are at very high confidentiality level.” Brothers and sisters, remember – because this is very crucial – that the CCP mafia is ruling the country with falsehood, then you would know that the submarines and aircraft carriers boasted by them must be bullshit. Everyone, if you know any [CCP’s] military people in person, you would know what I mean. Say, if for every 100 meters, their tanks can go off 1 meter, what can you expect them to do well?
 
+就是苏联解体后的军事专家、科学家、飞行员，乌克兰的，包括原来很多格鲁吉亚籍的加入的乌克兰原苏联的，包括原来车臣的一些，一些被那个普京上来打压的那些所谓的军人原苏联地区的，几乎到最后全都到了中共给弄过来了。这些当兵来了以后，先进行给你签合同，你家人全迁到中国来。大连呐、东北哈尔滨呐。你但凡在哈尔滨东北的你去看看，有多少原苏联那是在那块儿生活啊？他们都是要服务于军工的，他不会做轻工，他只能军工。然后把这些人全弄来，在哈尔滨，在大连，在东北生活，全家过来你不能再离开了，给你高薪。
 
+The military experts, scientists, and pilots from Ukraine, including many Georgian nationals who joined Ukraine from the former Soviet Union, also including some from Chechnya, and soldiers from the former Soviet Union who were suppressed by Putin, almost all of them were brought to China by the CCP. After these military people arrive, they will first sign a contract, and all family members will then move to China, to Dalian or Harbin in Northeast China. If you live in Harbin, you can go and see how many people from former Soviet Unions live there. They all serve in military industries because they don’t know anything about light industry. All these people and their families were brought here and settled in Harbin and Dalian in the Northeast China. The whole family will come over and you can’t leave anymore, and you will be paid a very good salary.
 
-根据爆料革命四步曲之《盘古相聚》〈特洛伊木马〉整理
+然后呢在海南三亚那地方有一帮人，他们喜欢那个地方，定居在那里。这些人服务什么？——航空母舰、潜水艇。中共玩潜水艇，别以为他吹牛，早着呢！早着呢！潜水艇、海军事业都是这帮人。这就是所谓的“代工”，这是很正常的。
 
-上篇谈了中共利用人性的优缺点靠拉拢收买，俘虏了很多国际上的要人，本篇谈一下中共是如何利用民主制度的漏洞和缺限，加上人性的缺点，控制了民主国家及国际组织。
+Also there is a group of people in Sanya, Hainan Province. They like that place and settle down there. Where do these people serve? Aircraft carriers and submarines. The CCP claims that it’s good at submarines, but don’t believe their brags. They are far from being good, very far! Submarines and all other naval businesses are supported by the aforementioned people. This is the so-called outsourcing, which is normal.
 
-![This image has an empty alt attribute; its file name is Gnews-超限战-0.png]()![This image has an empty alt attribute; its file name is Gnews-超限战-0.png](https://gnews.org/wp-content/uploads/2021/04/Gnews-%E8%B6%85%E9%99%90%E6%88%98-0.png)
+有很多战友不到这个层次你不知道，（哎呀，我这敏感啊，）所以说当你知道共产党这一套东西的时候你就明白了。所以它很丢人，它吹狼蛋呢，吹狼蛋呢。只有咱们很多普通的人没见过这世面，听它吹很过瘾。像我们这成天在一起呢，这胡扯，胡扯呢。这回一练就知道了，航空母舰趴在那儿了，甭说去打仗了，侵略台湾了，你开到台湾都开不过去。
 
-一、中共利用民主制度的缺限和漏洞及人海战术击败了民主国家
+There are many fellow fighters who are not aware of this because they are not at this level. Oh, my allergy. So when you know about CCP’s businesses, you will understand what I mean. So it’s very shameful for them to always brag like that. Only a lot of ordinary people who have never seen the real world would enjoy listening to their brags. People like me who hang around with them all the time know that they always talk nonsense. This time their aircraft carrier came out and showed people what it really is. The aircraft carrier was paralyzed right there. Let alone go to a war with Taiwan [with the aircraft carrier], you can’t even move it to Taiwan.
 
-1、利用民主自由平等的制度进行大量的文化侵略。
+所以说这个爆料影响非常大对国内，影响很大。这就是我们路波切兄弟需要了解的，我们博士军团需要了解的。航空母舰你要想了解中国军事，你必须了解苏联的军事，原苏联，了解原苏联的军事和原苏联所有解体后的各国家的所有这些武器技术的去向和动静，这是非常了解中共的最核心，最最核心的。
 
-西方民主国家立国的根本就是保护人民的天赋人权，即生存权、平等权、生命权、自由权、幸福权以及财产所有权。美国几乎包融了世界上大部分民族的人，并且以法律的形式确立了不能有种族歧视的行为，甚至在言语中都不能使用疑似种族歧视的词汇。中共就利用平等自由的权力，以文化交流为幌子在世界各地建立了孔子学院，仅美国就有100多个，基本上都挂靠在当地的大学里。表面上是在教汉语以及学习孔孟思想，实则是在灌输共产主义理论和社会主义观念。
+So this breaking news really had a huge impact in mainland China. And this is what our Brother Lude needs to understand and what our Ph.D. Team needs to understand: Talking about aircraft carriers, you need to understand the Chinese military, and you must know the Soviet Union’s military, its army, and know the whereabouts of all the weapons and technologies from all the former Soviet Union states after the dissolution of the Soviet Union. This is the most critical thing that you need to know if you wan to understand the CCP.
 
-近几年经常有报导在美国的大学里，中（共）国留学生不许老师说中（共）国不好，更有甚者公开在学校成立中共党支部，开展党组织活动。除了学校还有文体系统也被中共控制，好莱坞拍片子的内容要经过中共审查通过才能在中（共）国上映，据说中共已经用投资控制了好莱坞。还有美国主流媒也己成为中共在美的宣传机器，包括三大社交媒体完全听命于中共。2017年七哥在《美国之音》的“4·19”断播事件就证明，美国的媒体系统基本上是为共产党服务的，可想而知中共是花了多大的本钱。
+那么另外一个就是现在芯片。就是我们博博士每次艾丽、墨博士、冠博士、我们路波切每次还有安红都讲这个芯片，芯片已经讲透了，芯片。芯片是核心。中共没有生产芯片的能力，没有和所有控制英文世界的源代码的能力。你更不具备生产军事上的两大核心一个叫引擎，咱叫发动机。不论是天上地上的，最大核心就是发动机。你生产不了发动机，你只能买别人的，你买别人的发动机，那发动机是人家产的，那里面全是外国的文化，外国的语言，你能解读得了吗？扯淡吗这不是吗！
 
-二、利用美国私有财产受法律保护的制度转移资产
+Another thing now is about the chips. Dr. Bo, Ms. Ai Li, Dr. Mo, Dr. Guan, Mr. Lude and Ms. An Hong always talk about chips. Chips have been thoroughly covered and explained by them. Chips are the core. The CCP doesn’t have the ability to make chips, and doesn’t have the ability to control the source code in the English world, let alone the two core technologies in the military industry. One core technology is called engine, whether it’s in the sky or on the ground. If you [the CCP] can’t make engines yourself, you will have to buy other people’s engines, but the engines made by other people are from foreign cultures from inside out. Can you fully understand their languages? [Without your own chips,] everything is just nonsense, isn’t it?
 
-中共盗国集团为了把贪污的黑钱转往美国以及其它民主国家，他们勾结华尔街大佬，用“蓝金黄”手段，转出了数十万亿美元的资金。他们先以学习、实习的名义，把自己的子女亲属安插进美国的几大银行，再投资一些股份，然后做好假帐通过几次转手，非法资金就变成合法资产了。如，高盛顾雇用过中共前总书记江泽民的孙子江志成，摩根、花旗、高盛都雇用过中（共）国光大集团董事长唐双宁的儿子唐晓宁，摩根大通还以业务培训接收过中共前常委刘云山之子刘乐飞推荐的两人。据美国司法部调查，在2016年以前的7年里，摩根大通先后雇佣了大约100多名中共高官推荐的实习生和全职员工。据说华尔街的大佬们通过帮中共盗国贼洗钱获得了高额的回报，当然这些年他们也为中共输血3万多亿美元，这可是美国纳税人的血汗钱啊。
+所以就找雇佣兵，必须维护它的发动机，航空母舰、潜水艇都是一样儿。你都难以想象在青岛有多少所谓的俄国专家基地。在大连、哈尔滨、三亚叫俄国专家楼啊俄国什么都是所谓原苏联的吃不了饭的军工人员维护你的最核心，也就是军队所用的发动机，中国人玩不了，怎么可能啊。
 
-三、利用美国的市场经济骗取了美国纳税人大量的资金
+Therefore, you have to find mercenaries so you can outsource the maintenance of engines, aircraft carriers, and submarines to them. You can hardly imagine how many so-called Russian expert bases are in Qingdao. They are called Russian expert buildings in Dalian, Harbin, and Sanya for military personnels coming from former Soviet Union where they had a hard time to survive. They came to you [the CCP] to maintain the most critical technologies for you, that is military engines. The Chinese are incapable to do it themselves, and how could they be?
 
-美国是市场经济，相对中共的计划经济要宽松自由的多，但是法律规则是很严格的，尤其是对上市公司财务报表的审查非常认真一丝不苟，不能有半点差错。而中共企业的财务帐目没有一家不造假的，这样的企业若想在美国上市，是无法通过美国证监会审查的。但是一贯在国际贸易中投机取巧、钻洞溜缝伪中共企业是有办法的。首先，用合法的公开的方式进行径济往来，私下里再谈非法交易，然后再抛出钓饵引诱目标人物上钩，最后收紧索套。这一整套方式就是七哥说的“蓝金黄”手段，对于这些自私、贪婪、无人性底线的资本家，十个有九个中招。
+第二个是通信，是吧？所有的通信，通信的核心是芯片。你说你通信你产不了芯片，你能有安全的通信吗？什么北斗7星，你北斗9星也不中啊，你没芯片能行吗？那么你有芯片，它一系列的东西都出来了，这时候就加密、语言、安全，你根本做不了，你最终这些东西还得找到外国偷的还要找外国专家，甚至找外国专家来帮你。就这么简单！就这么简单的事儿。
 
-结果大家都知道了，七哥爆料说这十几年，中共有700多家公司在美国证交所上市，全部免于审查，畅通无阻。很多是以国家名义但实际是贪官家族控股的公司，如王岐山家族控制的“海南航空”、江泽民家族控制的“阿里巴巴”……还有一些皮包公司根本没有实体业务，就是到美国骗钱的。
+The second [core technology] is communication, right? But what lies in the core of all communications is the chip. If you say you can’t make chips, how can you have secured communications? Even though you have the BeiDou Navigation Satellite System (note: BeiDou means the 7 stars of Big Dipper in Chinese), can you make them work without a chip? Not even if you had a nine-star Big Dipper! If you have chips, then you can make a series of things, such as encryption, language, and security, but you can do none of these. So in the end, you still have to either steal technologies from foreign countries or find foreign experts to help you. It’s that simple! It’s that simple!
 
-但对于说实话、讲真事、维护真理、揭露中共种族灭绝的犯罪集团的GTV媒体，还在初始筹资阶段，美国证监会SEC就百般刁难、万般阻拦，在毫无证据的情况下，就以欺骗的罪名冻结了投资者的资金，并且把投资者个人的信息通报给中共，使很多身在中（共）国大陆的投资者被喝茶、拘捕甚至判刑。这些资本家已和中共沆瀣一气，成为反人类的罪犯。
+中共只要你生产不出来跟你武力和你野心相匹配的发动机，还有通信的芯片，你什么都是球扯淡。懂这个就行了。就像我那时候成天和那军人在一起，哎呀，演习完回来以后全都跑到我那去吃，吃完以后出去嫖去，哪个人旁边都带着小女当兵儿了。
 
-四、利用相互交流学习的机会窃取科研资料和技术
+As long as the CCP can’t produce the engines that match its military power and ambition, can’t produce chips, everything it talks about will be just bullshit. You all must understand this. Just like those days when I hung around with those PLA military personnels, whenever they came back from a military exercise, they all came to my place to eat. After eating, they went out to have sex, and every single one of them would bring a young military girl with them all the time.
 
-中（共）国加入WTO之后，发达国家愿意帮助发展中国家尽快提高经济实力，所以在世界贸易中给了中（共）国很多优惠政策，同时也希望能投资中（共）国的市场。中共抓住这个机会，引进资金和技术，同时派出科研人員到发达国家学习。本来是双赢的好事，但中共却走了邪门歪道。他们先用优惠的政策引进外资建厂生产，等达到一定的规模时，对外资方提出了卡脖子条件：必须无条件转让技术，并由中共企业控股，否则连本带利全部留下。这一举动致使很多外企忍痛放弃了在华资产，留下来的也只能忍气吞声任其牢割。对于外派学习的科技术人员都经过了专业的训练，是带有多重任务的：一是学习，二是窃取机密资料，三是发展美国科研人员成为间谍。如在美国某石油公司工作的谭晋鸿，2018年辞去工作时，带走了价值10多亿美元的商业机密；又如在美国的中（共）国公民张昊，因伙同博通公司前雇员庞伟，盗窃商业机密，被美国判经济间谍罪；还有美国国立卫生研究院（NIH）的140人，因怀疑非法给中共输送资信被有关部门调查……中共所谓的先进技术、领先国际的科研成果，都是靠偷窃所得。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=608571df8aa4fd003f365a28](https://gtv.org/video/id=608571df8aa4fd003f365a28) (1:02:16-1:06:29, 1:06:59-1:08:00)
+鸣谢：感谢湘江之水、黎明之前提供中文文本于 [https://www.gnews.org/zh-hans/1140135/](https://www.gnews.org/zh-hans/1140135/)
 
-五、利用三权分立的民主制度渗透控制了所有民主国家
+* * *
 
-民主国家为了不让政府形成独裁政权，把国家权力一分为三：立法、司法、行政，三权相互独立、相互制恒又相互依存。这种松散的权力架构虽然不会形成独裁政权，却成了权力之间的相互争斗、相互推诿，甚至造成了政令无法执行的政治状况，给人民和国家带来巨大的损失（如这次中共病毒疫情）。这也给了中共最好的机会，他们充分利用人性的弱点，用“蓝金黄”手段，围点打援、各个击破，轻而易举地拿下了各国的政要。如德国总理、法国总统、英国首相……美国的政府更是整体塌方，他们基本上成了中共的代理人，看当今世界几乎成了中共的天下。
+字幕：【JennyL】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-善良的人们可能不明白，中共的贪官们和世界上的某些大富豪，他们已经有几代人都花不完、用不完的资产了，为什么还想称霸世界，还想奴疫全世界的人民？？？ 因为它们不是人，是恶魔。它们想要的不只是钱财，它们想要的是突破人类道德底线、人性底线，甚至超出兽性的所有的东西。只有你想不到，没有它们做不到！！！不消灭共产党，世界人民都不安全！
-
-（全文完）
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
-
-编辑：苟日新
-
-校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
-0
++2

@@ -1,61 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《我们的七芒星》第三场复赛 &#8211; 美东5月1日周六晚8点
-` GMusic` [轉載自GNews](https://gnews.org/zh-hans/1161348/)
+## 【有声读物】美媒疫情设想：中共军方对美军运动员释放新冠病毒
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1161449/)
 
-我们的七芒星文宣组 May，山上的城，Q大哥整理
+配音：香草山录音组：蒙古鸿雁
 
-由GTV空中唱响团队和纽约香草山农场文艺部倾心打造的新中国联邦首档全民灭共大型知识竞猜节目《我们的七芒星》第十四期，暨第三场复赛，将于美东时间5月1日周六晚8点，暨北京时间5月2日周日早8点，在GTV正式火热开播。 届时8位晋级复赛的挑战者将“侠路相逢”，放手一搏。 考脑力，拼运气。紧张刺激，欢乐有趣！ 精彩不容错过，战友们敬请期待！
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-本期的嘉宾主持人是来自美国休斯敦星光农场的QMay！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01124330/QMay.jpeg)
-参加本期复赛的8位“挑战者”分别是：
 
-**Victoria   墨尔本雅典娜农场**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01124419/Victoria.jpg)
-她坚定跟随爆料革命四年，风风雨雨，喜怒哀乐，亦师亦友，学习成长。 她坚信七芒星是新中国联邦的信仰之星，自由之星。 灭掉流氓恶魔共匪人人有责。
 
-* * *
+4月28日，美国媒体网站《门户专家》发表乔-霍夫特（Joe Hoft）的文章，标题为《报告：中（共）国军方2019年10月是否对访问武汉的美国士兵运动员投放了COVID病毒以阻止特朗普连任？》文中对先前有人提出的中共针对美国大兵故意释放病毒这一说法，认为这是可能且符合逻辑的设想。
 
-**文小町   日本东京樱花团**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/小文.jpeg)
-2018年开始关注爆料革命。在参与爆料革命的同时，又通过GTV看到了不同国度的风土人情，都是朴实真实、原汁原味。新中国联邦传播事实真相，灭共就差你一个。
+文字版全文：**[【热点播报】美媒疫情设想：中共军方对美军运动员释放新冠病毒](https://gnews.org/zh-hans/1149059/)**
 
-* * *
+原文作者：纽约香草山翻译部  文明世界
 
-**文拓   日本东京方舟农场**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01124700/%E6%96%87%E6%8B%93.jpg)
-VOA断播之前就开始关注郭先生的爆料，通过4年的经历，他对世界和中国的认识有了根本的改变。 他希望将来能用自己的专业知识和工作经验为更多的中国人提供服务。
+发稿：正义的小新
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+**更多资讯，更多关注**
 
-* * *
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**铜钱草   日本东京方舟农场**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01124746/%E9%93%9C%E9%92%B1%E8%8D%89.jpg)
-在YouTube上看到文贵先生的声明深受感动，从此义无反顾参与了大坂和东京的游行活动，响应农场号召做力所能及的工作。现在GTV【方舟有你】直播组。
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-* * *
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-**流浪的加菲 美国纽约香草山农场**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01124830/%E5%8A%A0%E8%8F%B2.jpg)
-有幸这个时代七哥竖旗灭共。单纯的信，坚定的跟随，四载陪伴的日子，有袍泽之情，有灭共天理，或唱或答，小蚂蚁尽力添稻草，跟随爆料革命，盼无红魔之世。
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-* * *
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-**苍天饶过誰64   美国纽约香草山农场**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/苍天.jpeg)
-2017年听到文贵先生的直播后，心中燃起了灭共的希望，现在作为新中国联邦的一员，感到万分的荣幸和骄傲。加入新中国联邦是最最重要的选择，灭共是唯一目标。
-
-* * *
-
-**宇宙之泾   日本东京方舟农场**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01125054/%E5%AE%87%E5%AE%99.jpg)
-代表方舟农场参加了第一季《我是音雄》，担任农场文化灭共和直播组的工作，专注于农场G系列和G生态圈的建设。 感恩能成为新中国联邦的一员，愿与战友们一起努力。
-
-* * *
-
-**Ryan   美国休斯敦星光农场**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/ryan-2.jpeg)
-因为是音乐人的缘故，所以加入了休斯顿星光农场，希望通过自己的专业尽自己的一份力，与其他战友并肩一起“以乐灭共”！
-
-0
++1

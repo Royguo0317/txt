@@ -1,43 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210501（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1161237/)
+## 为防止川普连任，中共军方让 美国军人运动员于2019年10月 访问武汉期间感染新冠？
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1161122/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+翻译：康州盘古 – 郭班之樱
 
+校对：康州盘古 – Mike Li
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+审核：康州盘古 – 心照
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121442/01.jpg)
+据乔·霍夫特（Joe Hoft）在2021年4月28日上午10:15发布
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01105856/olol1.jpg)
+劳伦斯.塞林(Lawrence Sellin)和安娜.陈（Anna Chen)的特邀帖子
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121447/02.jpg)
+731部队是满洲关东军防疫和水净化部门的正式名称，实际上是第二次世界大战期间日本军秘密的生化战研究与发展中心。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121453/03.jpg)
+1949年中共征服中国大陆时，中共国人民解放军控制了731部队和大陆科学院马病研究所该研究所也是由日本帝国军在满洲建立的。根据日本关东军的回忆录，兽医研究和军马保健被用作掩饰，以掩盖用满洲设施研究和生产生物武器的真正目的。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121500/04.jpg)
+看来，中共国人民解放军不仅接收了它的资源，而且还沿袭了日本帝国军的手法。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121533/05.jpg)
+1953年，中共国的5所解放军兽医大学被合并为长春市的一个大型机构，而长春市位于731部队以前的所在地以南140英里处。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121538/06.jpg)
+同时，像日本军队以帝国的名义那样，在北京、成都、广州、南京和云南建立了“战时卫生研究所”类似的中心，大致与地区军事指挥相应。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121543/07.jpg)
+由中共国人民解放军领导，中共国军事医学科学院监督的兽医研究网络是中共国生物战计划的核心指挥和控制要素。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121550/08.jpg)
+夏宪柱和金宁一是两位军人兽医领导。他们都是中共国医学科学院学术咨询委员会的成员，并在长春市军事兽医研究所和人畜共患病研究所一起工作。至少有四位夏宪柱和金宁一的同伴：何彪，范泉水，涂长春和吴志强从事了超过八年的大规模的国内外病毒收集工作。解放军高级军官曹务春，杨瑞馥和陈薇作为北京军事医学科学院成员，相信参与了该计划的监督工作。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121647/09.jpg)
+分离了的ZC45和ZXC21所谓蝙蝠冠状病毒，被检举中共国的闫丽梦博士认为是冠状病毒（COVID-19）的病毒主干，而何彪与重庆第三军医大学的王长军一起在分离ZC45和ZXC21中发挥了关键作用。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01105930/hohoh4.jpg)
+在詹姆斯·泉（James Quan）2021年2月22日的题为《新冠状病毒（COVID-19）的起源：从假设到真相》的视频中，可以找到一个故意发放新冠状病毒的有可能和合乎逻辑的情景。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121654/10.jpg)
+这种情景是：在受到川普政府日益增加的经济和地缘政治压力的同时，中共国国家主席习近平授权人民解放军，在2019年参加世界军人运动会的美军士兵正等待离开武汉机场的10月28日至31日期间，向他们投放新冠状病毒。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121658/11.jpg)
+其目的是令美军通过在其基地内蔓延的感染而衰弱，在美国平民中造成混乱以防止唐纳德·川普总统的连任。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121704/12.jpg)
+大约在美军士兵暴露于这种病毒的时候，武汉市内新冠状病毒的转移性释放就为反驳使用生物武器的指控提供了自然的解释。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121708/13.jpg)
+对美军士兵的袭击没有成功，但武汉（病毒）的释放却蔓延开来，到2019年11月底，感染人数加速增长。
 
-本文仅代表作者观点
+在对美国军事人员采取的直接行动失败并面对中共国内部的灾难性大流行影响之后，北京领导人却对这种危害撒谎了，并允许了新冠状病毒通过商业旅行在全球范围内传播。
 
-发稿：Ranting
+不管实际释放情况如何，中共都必须对制造新冠状病毒负责。
+
+作者简介：劳伦斯·塞林（Lawrence 29年，并曾在阿富汗和伊拉克服役。 他是国家安全公民委员会的成员，并着有《恢复共和国：第二次美国革命的论点》一书的作者。 他的电子邮件地址是[email protected]
+
+原文链接：[https://www.thegatewaypundit.com/2021/04/chinas-military-biowarfare-network-led-covid-19/#post-comments](https://www.thegatewaypundit.com/2021/04/chinas-military-biowarfare-network-led-covid-19/#post-comments)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

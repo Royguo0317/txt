@@ -1,47 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【健身健心】念念不忘（健⾝健 ⼼），必有回响（健康⾝⼼）！
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1161417/)
+## 【有声读物】左派开始报复了, 朱利安尼住所和办公室被搜查
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1161468/)
 
-作者：纽约香草山健⾝部  格格
+配音：香草山录音组：蒙古鸿雁
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-“今天你健⾝了吗？” 经常在耳边响起，已成为郭先⽣爆料直播的既定开场⽩。⽬睹郭先⽣在成就灭共⼤业过程中，没有因⾝体被CCP迫害落下的伤痛，睡眠时间被繁 忙的⼯作挤掉等原因，放松或放弃健⾝，越发佩服郭先⽣的超⼈毅⼒及强⼤的⾃控 能⼒。 回想⾃⼰这⼗年的健⾝历程，感慨万千。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01125155/image0-13-56.jpg)
-⼗年前，记忆中连感冒都少有的我，突然接收到⾝体发出的警报。不 查不知道，⼀查吓⼀ 跳，在不知不觉中，我加入了“三⾼”患者队 伍，尽管是轻度的，还是引起了我的⾼度重视，同时我非常疑惑：这些通常老年⼈才会得的疾 病，为什么也在我⾃认为年轻的⾝体上出现呢？
+4月28日清晨6点，联邦调查局特工突袭了朱利安尼先生在麦迪逊大道的公寓和公园大道的办公室，这两个地址都位于曼哈顿的东区。朱利安尼先生曾担任纽约市市长和川普总统的私人律师。即使在川普总统卸任后，朱利安尼先生也一直在为2020年总统选举中令人震惊的欺诈行为不断发声、呼吁调查。这似乎招来了政治对手的报复。
 
-咨询专业医⽣，在⽹上狂搜相关资料信息后，了 解到这“三⾼”即⾼⾎ 压、⾼⾎脂、⾼⾎糖， 不再是老年⼈的专利， 是现代社会所派⽣出来 的“富贵病”。随着⽣活 ⽔平提⾼和⽣活节奏的改变，这“富贵病”已如“旧时王谢堂前燕 ，⻜入寻常百姓家”，成为中青年⼈的常⻅病。在⾼强⾼压的⼯作、缺乏运动或运动量不⾜、饮食的不节制及不良⽣活习惯的共同作⽤下，使中青年⼈群中三⾼患者数量攀升，另外忙于⼯ 作、为前途打拼的中青年⼈群常忽略体检，不能及时发现，及时预 防，也是数量攀升的原因之⼀。
+文字版全文：[【热点播报】左派开始报复了, 朱利安尼住所和办公室被搜查](https://gnews.org/zh-hans/1148918/)
 
-了解了“三⾼”的发病原因和应对措施，我从⾃⾝存在的饮食结构和运动不⾜问题入⼿， 给⾃⼰制定了⼀套防治计划：
+原文作者：香草山教育部 新生
 
-1. 三低饮食对抗三⾼威 胁：每天尽量做到低油、低盐、低热量饮食。
-
-2. 加强运动量提⾼代谢机能：根据⾃我运动喜好，或每周⼀次⾼强度徒步登⼭运动，或每周⼆⾄三次低强度快走及骑⻋运动。
-
-3. 定期进⾏⾎液检查：每半年为⼀期，及时掌握和调整⾝体健康变化。
-
-这⼗年的防治计划取得了良好的结果，虽经受过各种⼲ 扰和思想波折，最终毅力战胜了惰性，坚持锻炼及饮食控制不放弃，我的“三⾼”中之“⼀⾼” ， 在药物控制下保持正 常，另“⼆⾼”在非药物控制下停留在当初⽔ 平。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01130200/%E5%9B%BE%E7%89%8723.png)
-健康的体魄，是独立思考的能量棒，是灭共⾏动的动⼒机。四年来郭先⽣的爆料，彻底颠覆了我在CCP教育体制下形成的三观，打开了我的⼼智，开阔我的眼界，提⾼了我对真与假、善与恶、是与非的 辨别能⼒。⾃从CCP病毒肆虐全球，危害⼈类 健康以来，跟随郭先⽣坚持健⾝，坚持传播病毒真相，坚持服⽤闫博⼠推荐预防CCP病毒药 物，让我的⾝⼼得以保持良好状态，⾜以抗衡 CCP病毒的威胁。
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-
+编辑/发稿：正义的小新
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -1,51 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙内热搜】70岁开始牢狱生涯，你图个啥？
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1161580/)
+## 欧洲数据库：中共病毒疫苗造成8,430人死亡，354,177人受伤
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1161693/)
 
-作者：纽约香草山写作二组     桃花水母
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+- 作者：坐看云起时
+- 制图：七白石
 
 
+《自由人类》5月1日报道，欧洲的疑似药物反应报告数据库EudraVigilance收录的数据表明，截至2021年4月24日，中共病毒疫苗导致了8430例死亡和354177例伤害事件。
 
-2021年4月29日，吉林省长春市中级人民法院一审公开开庭审理了中（共）国华电集团公司原总经理云公民受贿一案。检察机关指控，云公民非法收受有关单位和个人给予的财物，共计折合人民币4.6866亿余元。云公民当庭表示认罪、悔罪。法庭宣布择期宣判。
+![](https://lh3.googleusercontent.com/41bFPLaRh7RtQFbH3ilMP8JhR_LQhTULnYP0I32OGlrKR-u88fvrzxnifUhNiBnLMaI80eX5Z3ZjNGhrrg7Ca7mIo6QF3955F5dI8mtvBsTMvwMIiMti8Fz1eE7_pNu3sJQpcR0)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01151143/88-1.jpg)图源网络
+欧洲的疑似药物反应报告数据库（EudraVigilance）系统自2001年12月开始使用，于2012年又由欧洲药品管理局推出EudraVigilance网站，为公众提供可疑副作用（也称为可疑药物不良反应）的报告。这些报告由国家药品监管部门和持有药品上市授权（许可）的制药公司以电子方式提交给EudraVigilance。 该网站是一个旨在收集可疑副作用报告的系统，这些报告用于评估药品开发过程中的益处和风险，并在药品在欧洲经济区（EEA）获得授权后监测其安全性。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01154852/107322487_gettyimages-1027752634_mh1614961600575.jpg)
+它同时也跟踪实验性中共病毒疫苗产生的伤害和死亡报告。
 
-云公民，1950年生人，47岁就任内蒙古自治区政府副主席，2001年转赴山西，任省委副书记。2006年，云公民加入神华集团，两年后的2008年，他改任华电集团总经理，2013年退休。退休6年后，云公民被调查。
+截至2021年4月24日，当前在欧洲使用的四种疫苗不良反应的数据汇总如下：
 
-调查云公民的受贿时间从1992年其任内蒙古伊克昭盟副盟长开始，一直到退休3年后，共24年。中（共）国刑法追诉时效最长是20年，而云公民受贿追责时间跨度之长，比较罕见。公诉人控诉的事实中，云公民在其退休后3年内依然能够大肆收钱办事。
+BioNTech Pfizer 疫苗：4524人死亡，151306人受伤；
 
-内蒙古的“云”姓，应该是蒙古族。他取名“公民”，最初一定是想当一个有担当、有责任的人。但不管谁到了共产党的染缸里，早晚都得进到绞肉机般的体制中。倒查24年，退休后继续利用自身影响力也被列入受贿行为——谁给共产党干，还想侥幸逃脱，简直痴心妄想。
+Moderna公司疫苗： 2283人死亡，17625人受伤
 
-新闻来源：
+牛津阿斯利康公司疫苗：1579人死亡，184833人受伤。
 
-中央纪委国家监委网站
+强生公司疫苗：44人死亡，413人受伤。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+目前，丹麦和挪威已经完全暂停使用阿斯利康疫苗。 挪威公共卫生研究所发表的一份声明指出，阿斯利康中共病毒疫苗比中共病毒本身更危险，特别是对年轻人而言。但欧洲药品管理局（EMA）仍然继续推荐它，只是对其增加了安全警告，因为它会产生致命的血凝块。
 
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
+新闻来源：[自由人类](https://humansarefree.com/2021/05/european-database-of-adverse-drug-reactions-for-covid-19-vaccines.html)
 
 0
