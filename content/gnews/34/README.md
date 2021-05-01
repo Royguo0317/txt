@@ -1,33 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】04/30/2021：爆料革命各系列急需管理人才特别是一位独特意识形态下全面管理的CEO
-` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1160924/)
+## 《文贵说》| 图片连载（七十八）
+` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/1080423/)
 
-**制作；Cantonese工作室**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/687.jpg)
+**我们中国人向全世界展示了，我们是一个可以尊重、可以信赖、可以成为好朋友的民族，我们有真正的五千年的文明，但不包括共产党这70年。**
+
+**—— 郭文贵先生 2020年9月8日**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2020-10-22V1__1.jpg)
+**你们记住我说的话，很快你们会验证到，未来人类上研究最最可怕的事情就是一个14亿的中国人，为什么就被不到五个手指头的家族控制着，从来没改变过！**
+
+**—— 郭文贵先生 2020年8月31日**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2020-10-22.jpg)
+**新中国人和共产党不一样！共产党是让你一切都听党的、一切都是党的，爹亲娘亲不如党亲。新中国联邦一切都是战友的，必须和爹和娘亲，一切以你为主！**
+
+** —— 郭文贵先生 2020年8月31日**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/s52.jpg)
+**兄弟姐妹们，就在我们放开歌喉高声唱歌的时候，这个世界正在改变中！**
+
+**—— 郭文贵先生 2020年9月2日**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/s53.jpg)
+**你们的手指头能改变世界，我们已经做到了。我们要使全世界知道共产党的疯狂；我们要使全世界知道真正的关于中国和中国人民的真相，我们唯真不破！**
+
+**—— 郭文贵先生 2020年9月2日**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2020-10-24__1.jpg)
+**经济疯狂的变态增长，然后极端的民族主义，一帮神经病、大外宣，制造了人类上最魔鬼的哲学，叫什么？！把谎言说一千遍就会当成真理，拍电影、大外宣，给老百姓洗脑，把老百姓绑上了战车。**
+
+**—— 郭文贵先生 2020年9月2日**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2020-10-24V2__1.jpg)
+**我们中国人向全世界展示了我们是一个可以尊重、可以信赖、可以成为好朋友的一个民族，我们有真正的五千年的文明，但不包括共产党这70年。**
+
+**—— 郭文贵先生 2020年9月8日**
 
 
 
-**播报：【海媚 】 资料整理：【Elaine】【Annie】【文武全才】海报制作：【侬民】【Penny】视频制作：【Ken】粤语翻译校对：【文雀】上传：【星星】【向阳6768】**
+- [***更多精美海报请点击G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4)
 
-摘要：
 
-1
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01094201/210501-__02-1.jpg)
-2
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01094242/210501-__03-1.jpg)
-3
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01094325/210501-__04-1.jpg)
-4
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01094429/210501-__05-1.jpg)
-5
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01094503/210501-__06-2.jpg)
-6
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01094647/210501-__07-1.jpg)
-7
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01094729/210501-__08-1.jpg)
-8
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01094809/210501-__09-1.jpg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01093124/image0%E9%9D%A2.jpg)
-0
+
++1

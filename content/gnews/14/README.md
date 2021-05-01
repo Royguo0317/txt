@@ -1,43 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210501（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1161237/)
+## 美国和北约正式开始最后阶段的阿富汗撤军行动
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1161330/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+- 作者：坐看云起时
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01123851/vehicle-3104459_1920.jpg)
+据美联社阿富汗卡布尔5月1日新闻，从本星期六开始，最后一批在阿富汗的美国和北约部队的撤离正式开始，将在夏季结束前撤出。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+5月1日被定为在阿富汗剩余部队–约2500-3500名美军和约7000名北约士兵–撤离的正式开始日期。 甚至在星期六之前，收拾行李的艰巨任务已经开始。 军方一直在盘点，决定哪些东西要运回美国，哪些要交给阿富汗安全部队，哪些要在阿富汗的市场上作为垃圾出售。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121442/01.jpg)
+最近几周，军方一直在用大型C-17货运飞机运出设备。 根据布朗大学的战争成本项目，美国在过去20年里估计在阿富汗花费了超过2万亿美元，其中包含了美国军事介入的隐藏成本。 国防部官员和外交官告诉美联社，在过去一年里，撤军涉及关闭较小的基地。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121447/02.jpg)
+到目前为止，美国和北约还没有收到塔利班关于在撤军期间不会袭击部队的承诺。塔利班发言人苏海尔-沙欣在回答美联社问题时说，塔利班领导层仍在酝酿其战略。叛乱组织指责美国违反了去年川普所签将在5月1日前撤出所有部队的协议。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121453/03.jpg)
+美军发言人桑尼-莱格特(Sonny Leggett)上校周六在推特上说，美军最大的基地之一坎大哈空军基地南部地区发生了一些无效的射击，没有人员受伤或设备损坏，但没有说明责任方。 他还发布了美国领导的阿富汗联盟负责人奥斯汀-米勒将军对一名阿富汗记者讲话的视频片段，将军在视频中说，”恢复暴力将是一个毫无意义的悲剧，”但联盟部队 “有军事手段对任何类型的攻击做出有力的回应。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121500/04.jpg)
+根据战争成本项目，阿富汗人已经付出了自2001年以来的最高代价，有47245名平民被杀。还有数百万人在阿富汗境内流离失所或逃往巴基斯坦、伊朗和欧洲。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121533/05.jpg)
+美军和北约从阿富汗的完全撤离，在南海的军事集结以及亚洲”小北约“的正式形成，表明了美国及其盟友正按照对中共的战略打击计划的时间表，坚实地步步推进。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121538/06.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121543/07.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121550/08.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121647/09.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121654/10.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121658/11.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121704/12.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121708/13.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
+新闻来源：[美联社](https://apnews.com/article/asia-pacific-joe-biden-kabul-afghanistan-ap-top-news-b06334b7f884e5392a92136ee03f610a)
 
 0

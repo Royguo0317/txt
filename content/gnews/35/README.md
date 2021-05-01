@@ -1,44 +1,153 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中南坑内斗升级，这次究竟是江派主动出击还是习要对马云立即开刀问斩？
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1160851/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（七）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1161035/)
 
-作者： Michael.Tonny
+作者：纽约香草山信息部 6zero4
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01092519/Picture1-1.jpg)
-
-图片来自网络
-
-2021年4月30日，墙国军事门户网站推出一篇题为《[马云旗下报纸公然挑衅！妄称中国入侵台湾](http://shizheng.xilu.com/20210430/1000010001172957_12.html)》的文章，释放中南坑内斗升级的重大信号，究竟是江派主动出击，还是要对马云立即开刀问斩？
-
-文章称，马云的阿里巴巴在2015年12月收购和控制的第25家媒体《南华早报》英文版，公然在习总加速师三亚玩得正High之际，跳出来搞事情！习总加速师在三亚参加CCP党卫军长征18号艇、大连舰、海南舰三型主战舰艇集中交接入列活动仪式时，在中共国内无不对习大神追捧至极、各路诸候极尽效忠之际，马云旗下媒体《南华早报》英文版居然称中共国与台湾“有领海争议”，同时使用“入侵台湾”字眼。这是明显打破CCP黑帮内部帮派势力平衡的“不和谐”的声音。
-
-马云帮作为蚂蚁集团的实际控制人和最大受益人，囊括了一大票华北地区、中原地区、江浙地区、华南地区（也就是大半个中国）的所谓投资机构与CCP所谓企业家群体，包括博裕系，中金系，云峰系，春华系，先锋系。甚至连大裤衩央视、社保基金、中投公司、中G人寿、太平Y人寿、人保资本、新H人寿都是蚂蚁集团的股东……
-
-“无论个头有多大，无论认识什么人，无论股权结构有多复杂，无论透过盗梦空间能够找到什么样的实际股权持有人，无论拥有什么样的雄心壮志，无论朋友圈众兄弟能够买下多少资产，无论在湖畔能够聚集多少英雄好汉，无论多少人管你叫爸爸，无论多少人欠你的钱……在国家主权面前，都不过是空气。”不知道马云看到文章中的这段话是不是后背发凉，脖子是否洗干净了？
-
-评论：
-
-毫无疑问，这是CCP黑帮火拼升级，已经到了刺刀见红时候的重大信号。
-
-笔者在4月27日发表文章《[马云“帮”危矣！](https://gnews.org/zh-hans/1144147/)》一文。墙国媒体从今年2月起，首先拿柳传志的“泰山会”开刀。之后，在本月上旬，阿里被罚182亿，各种CCP控制的媒体密集拿马云帮开刀。马云的湖畔大学，被指比柳传志的“泰山会”走得还要远。《[马云湖畔大学被勒令关停！巨大阴谋浮出水面](http://www.xilu.com/20210413/1000010001170441.html)》一文称，马云存在巨大阴谋，马云帮是比财阀本身更恐怖、更恶性的“党阀”，把马云、柳传志、冯仑、郭广昌、史玉柱、沈国军、钱颖一、蔡洪滨、邵晓锋等共同创办的湖畔大学比作东林书院、黄埔军校，称马云想要成为像蒋介石一样有巨大政治成就的校长；暗指湖畔大学已经不再是一个民营企业学校，已经不屑于与国有企业的经济市场竞争，而是有着更大的诉求的组织。
-
-阿里被罚182亿时，马云还不得不表面认怂，阿里也在官网发了一封公开信：“今天的处罚是对我们的警醒和鞭策”。而时间过去不过才20多天，这次却是马云控制的媒体《南华早报》英文版主动跳出来，拨弄CCP和总加速师的敏感神经。不知道有心的读者是不是觉得有意思，甚至已经闻到了八宝山焚尸炉的味道？！
-
-我们都知道，《南华早报》一直是江家控制的墙国大外宣，墙内媒体一般是不会去揭这些老底的。而这一次，不仅直接掀锅盖、揭老底，还直接挑战CCP和总加速师权威。而且用英文告诉全世界，这是在侵略台湾。这很容易让人猜想，这次内斗升级究竟是江派想借助国际社会灭习呢，还是习派已经占据上风，直接借此机会灭江呢？可能很快会有答案！当然，无论怎么说，CCP的帮凶们，管你马云还是马化腾、柳传志……午时三刻快到，再不反抗，开刀问斩想拖到未时都是不太可能了！
-
-（文章仅代表作者本人观点，与GNEWS无关）
-
-参考链接：
-1.[马云旗下报纸公然挑衅！妄称中国入侵台湾](http://马云旗下报纸公然挑衅！妄称中国入侵台湾)
-2.[马云“帮”危矣！](https://gnews.org/zh-hans/1144147/)
-3.[马云湖畔大学被勒令关停！巨大阴谋浮出水面](http://www.xilu.com/20210413/1000010001170441.html)
-
-*责任编辑：华盛顿DC农场 光之子(沙加)*
-*编辑／校对：首尔喜韩农场 文迹～见证神迹*
-*发布: Hong*
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-+1
+4月7日塞林博士的3连推：
+第一推，继续强调受用于中共而工作在美国的科学家是其军民融合的一部分，位于武昌的疫情爆发中心附近的3处可疑机构，即武大P3动物实验室、WIV和PLA广州军区武汉总医院，并贴上标识着此三机构位置的地图。
+
+
+
+> Chinese Communist Party makes no distinction between military & civilian virus research. CCP-sponsored scientists working in the US are considered part of the same network. Three suspect facilities in the Wuchang [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) hot zone[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/m6G90qTV2N](https://t.co/m6G90qTV2N)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 7, 2021](https://twitter.com/LawrenceSellin/status/1379678047532630019?ref_src=twsrc%5Etfw)
+
+
+
+第二推，贴上中共病毒科研人员郭德银、石正丽、李放和邬开朗等发表在国际期刊上的冠状病毒科研论文和报告，这是CCP军民融合冠状病毒研究网络剽窃美国专业知识和资金，以促成中共对军事和经济主导地位之目标的一个小案例。
+
+
+
+> One small example of the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s global military-civilian [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) research network exploiting U.S. expertise and funding to advance the CCP's quest for military and economic dominance.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/XwfNATNXtn](https://t.co/XwfNATNXtn)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 7, 2021](https://twitter.com/LawrenceSellin/status/1379754150611853313?ref_src=twsrc%5Etfw)
+
+
+
+第三推，“SARS-CoV-2的亚基因组格局及其新颖的调控功能”提供了COVID-19病毒实验室起源/泄露的证据，这涉及到“蝙蝠女” 石正丽，以及武大P3动物实验室的邬开朗和蓝柯，并贴出郭德银、石正丽、李放、邬开朗和蓝柯的照片。（蓝柯浮出水面）
+
+
+
+> "The SARS-CoV-2 subgenome landscape and its novel regulatory features" offers one [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) laboratory origin/leak link to bat woman Zheng-Li Shi, Kailang Wu aka Kai Wu & Ke Lan of the Wuhan University coronavirus Level-3 animal testing facility. [#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/yfesknoWup](https://t.co/yfesknoWup)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 7, 2021](https://twitter.com/LawrenceSellin/status/1379792479919161349?ref_src=twsrc%5Etfw)
+
+
+
+4月8日塞林博士的2连推：
+第一推，WIV的危宏平，即所谓的“零号病人”黄燕玲的导师，与包括第三军医大学在内的中共军方有关联，是COVID疑似蝙蝠冠状病毒骨架ZC45/ZXC21的源头，并贴出危宏平和黄燕玲的照片。
+
+
+
+> Wuhan Institute of Virology's Hongping Wei, mentor of alleged [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) "patient zero" Yanling Huang, has links to China's military including the Third Military Medical University source of [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw)'s suspected bat [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) backbone ZC45/ZXC21.[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/sGXkDfrMER](https://t.co/sGXkDfrMER)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 8, 2021](https://twitter.com/LawrenceSellin/status/1380052151964213248?ref_src=twsrc%5Etfw)
+
+
+
+第二推，在武汉疫情感染高峰期，武昌区的感染密度最高，而且这些高密度感染的地方都靠近武大P3动物实验室、WIV和PLA广州军区武汉总医院，并贴上1月26日这个区域病毒感染密度分布图和这三家可疑机构的位置标识地图。（危宏平浮出水面）
+
+
+
+> In Wuhan's peak [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) infection period, Wuchang district had the highest density & its highest density were in the areas of Wuhan University P-3 animal lab, Wuhan Institute of Virology & the PLA military Hospital[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/DK74IxTOGX](https://t.co/DK74IxTOGX)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 8, 2021](https://twitter.com/LawrenceSellin/status/1380129105316810761?ref_src=twsrc%5Etfw)
+
+
+
+4月9日塞林博士的4连推：
+第一推，PLA中部战区总医院是PLA广州军区总医院在地图上的新名字，在COVID-19病毒起源上与WIV、武大及广泛的军事机构有渊源，并再次贴上这三家可疑机构的地理位置分布地图。
+
+
+
+> General Hospital of Central Theater Command of the PLA is the new name of the General Hospital of Guangzhou Military of PLA on maps, linked to Wuhan Institute of Virology, Wuhan University & extended military institutes in the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/KN7ZFUhX5S](https://t.co/KN7ZFUhX5S)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 9, 2021](https://twitter.com/LawrenceSellin/status/1380382787585380353?ref_src=twsrc%5Etfw)
+
+
+
+第二推，众所周知，PLA与大学及私企共同参与了基于人群的减毒病毒（如轮状病毒）的疫苗测试，而这种疫苗可以自发恢复致病状态，并贴出美军印太司令部解读中共军民融合项目的图片，以阐述COVID-19病毒泄露的三种场景：1）基因工程改造后的冠状病毒直接投放；2）减毒后的冠状病毒疫苗自发恢复致病；3）接种未成熟的疫苗失误导致病毒失控。
+
+
+
+> China's People's Liberation Army is known to participate together with universities & private companies in population-based testing of attenuated viral (e.g. rotavirus) vaccines, which can spontaneously revert to a pathogenic state.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/fBU7OEDmmD](https://t.co/fBU7OEDmmD)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 9, 2021](https://twitter.com/LawrenceSellin/status/1380399327747670017?ref_src=twsrc%5Etfw)
+
+
+
+第三推，包含中南医院在内的武汉多家机构，在COVID-19病毒实验室起源中发挥的作用，与一个秘密的军事关联的病毒类微粒疫苗项目关联在一起，这是中共为在纳米技术领域占据全球主导地位之目标的一部分，并贴出李峰、石正丽、谭文杰和周鹏的照片。
+
+
+
+> Wuhan's multi-institutional (also Zhongnan Hospital) role in [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)'s laboratory origin is embedded in a secret military-linked virus-like particle vaccine program, part of the CCP's goal of global dominance in nanotechnology.[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/gUfy3sRetx](https://t.co/gUfy3sRetx)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 9, 2021](https://twitter.com/LawrenceSellin/status/1380437260458409986?ref_src=twsrc%5Etfw)
+
+
+
+第四推，转贴“德意志之鹰”战友关于“中山大学医学院免疫学副研究员张辉的纳米颗粒疫苗接种”的推文，赞许“德意志之鹰”找到靶心，先前在WIV工作的郭德银，现在和张辉是同事，他们都是武汉病毒涉毒集团的外延部分，是病毒起源的关键一环，并贴出郭德银和张辉的照片。（李峰、周鹏和张辉浮出水面）
+
+
+
+> Post by [@dezying](https://twitter.com/dezying?ref_src=twsrc%5Etfw) is right on target. Deyin Guo, who formerly worked at the Wuhan Institute of Virology, now in Guangzhou as is Hui Zhang, is an extension of the Wuhan group and a key link in the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [@Highlandlions](https://twitter.com/Highlandlions?ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wfvDgPRs88](https://t.co/wfvDgPRs88)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 9, 2021](https://twitter.com/LawrenceSellin/status/1380532850928316418?ref_src=twsrc%5Etfw)
+
+
+
+4月10日塞林博士的2连推：
+第一推，拟定的中共生物战负责人陈薇少将，在2017年的一次秘密会议上说“只要有矛，才能研究盾”，可能中共已经通过基因工程制造出了一种类似COVID-19的冠状病毒，再次贴出陈薇少将的照片和病毒泄露的三种可能的图片。
+
+
+
+> In 2017, Maj Gen Wei Chen CCP's presumed biowarfare chief said in a secret meeting 只要有矛.才能研究盾 "you need a pike to study the shield" & may have tried to make a universal [#CoronaVaccine](https://twitter.com/hashtag/CoronaVaccine?src=hash&amp;ref_src=twsrc%5Etfw) with genetically-engineered viruses like [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/SUbqRy2Gmh](https://t.co/SUbqRy2Gmh)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 10, 2021](https://twitter.com/LawrenceSellin/status/1380825202137956355?ref_src=twsrc%5Etfw)
+
+
+
+第二推，COVID-19病毒，是中共军民融合的病毒研究和疫苗开发项目的产品，武汉作为一个多机构研发中心，致力于病毒工程、动物实验和医院临床服务，病毒自那里泄露，并贴上一张“中共国为生物霸权的战争”图片。
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) – a product of the CCP’s fused military-civilian virus research/vaccine development program – where Wuhan acts as a multi-institutional R & D center for viral engineering, animal testing, vaccine production and hospital clinical services – and from where it was released. [pic.twitter.com/YQEZNzJU3j](https://t.co/YQEZNzJU3j)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 10, 2021](https://twitter.com/LawrenceSellin/status/1380832576726781959?ref_src=twsrc%5Etfw)
+
+
+
+4月11日塞林博士的2连推：
+第一推，与SARS和MERS相比，COVID-19病毒的无症状传播这一功能的增加是一个典型的生物武器特征，出症状前的高病毒载量和上呼吸道粘膜脱落，就是福林酶切位点的插入和预先适应的高人类亲和力受体ACE2的结果，并转贴一张爆料革命的宣传图片，其内容是超限生物武器的特征：1）高传染性；2）低致死性；3）显著的毒性；4）耐温度变化；5）高无症状传染性；6）耐环境变化；7）空前的破坏力。
+
+
+
+> Increased asymptomatic transmission is a bioweapon feature that [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) has compared to SARS & MERS, due to pre-symptom high viral loads & shedding in the upper respiratory tract, a result of furin cleavage site insertion & pre-adapted high affinity human ACE2 binding[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/lNB5cKdGen](https://t.co/lNB5cKdGen)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 11, 2021](https://twitter.com/LawrenceSellin/status/1381156085944422402?ref_src=twsrc%5Etfw)
+
+
+
+第二推，COVID-19实际上是在武汉秘密进行的，多机构交叉测试的几种经基因工程改造的冠状病毒之一，例如基于NSP（DG，ZLS）的减毒异源疫苗，这就可能构成了COVID-19病毒释放的3种场景，并贴出郭德银和石正丽的照片。
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) was actually one of several engineered coronaviruses undergoing secret multi-institutional testing in Wuhan e.g. NSP-based (DG, ZLS) attenuated heterologous vaccines, which could have been [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) release scenarios 1, 2 or 3.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/IJpeORnIOR](https://t.co/IJpeORnIOR)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 11, 2021](https://twitter.com/LawrenceSellin/status/1381198113428414464?ref_src=twsrc%5Etfw)
+
+
+
+塞林博士在这个期间的推文内容里面，将中共筹划、规划和实施超限生物战的背景浮出水面，将设计和制造COVID-19病毒的生物机制梳理得让非专业人士也不难看懂，将病毒溯源排查的空间范围缩放到武汉的3处可疑机构，即武大P3动物实验室、WIV和PLA广州军区武汉总医院，用与SIXTA类似的网络系统分析工具结合军情情报得出结论：病毒的研发、制造和泄露极可能就来自武汉的这几个与军方关联的病毒科研机构。同时，反复阐述了病毒释放的3种可能的场景，并科普了超限生物武器定义的7个特征，COVID-19毫无疑问就是这种毁灭性的超限生物武器，正如闫博士告诉世界的那样：人类剩下的时间不多了！
+
+校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

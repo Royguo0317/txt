@@ -1,38 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国情报部门警告：中共国的核武库远超预测
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1161059/)
+## 美国疾病控制与预防中心（CDC） 对COVID-19病毒长期携带的研究：三分之二的非住院患者接受了新的诊断
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1161161/)
 
-- 作者：坐看云起时
+【日本东京方舟农场】作者：贾斯汀·科尔曼（Justine Coleman）；翻译：天与地的对话；校对：小油鍋
 
+周五，美国疾病控制与预防中心（CDC）进行的一项研究发现，三分之二的未住院的COVID-19（中共病毒）患者在感染该病毒后的六个月内接受了某种新的诊断，这支持了人们对（感染该病毒）以后的健康问题的担忧。
 
-据《零对冲》（Zerohedge)4月30日报道，美国情报部门在国会听证会上警告，中共国扩大核武库及加快核扩张的步伐，超出了美国之前的预测。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01114842/EA4DB44E-BF6A-4FE4-838A-3ED7F6A9F518.jpeg)
 
-报道指出，美国参议院军事委员会本周举行的关于美国在全球面临的一系列威胁的听证会上，重点关注中共国和中共领导人。
+与佐治亚州凯撒医疗中心（Kaiser Permanente Georgia）合作完成的这项研究发现，有69％的患者被初次诊断为COVID-19（中共病毒）后，又在28至180天之间去了至少一次的门诊。
 
-证词中最值得注意的是美国情报部门对中共国不断扩大的核武库的看法，预计未来十年中共国的核武库将至少增加一倍。虽然目前国防部估计中共国的弹头储备在200枚以下，但国防情报局局长斯科特-贝里尔中将星期四在参议院听证会上说，迅速扩大其储备是北京的首要任务，同时他强烈暗示国防情报局的预测实际上低估了中共国真正的核扩张和野心。
+该研究检查了3,171名患者的医疗保健就诊电子记录数据，他们都是被诊断为冠状病毒后的28天内未住院的患者。共有2,177名患者在被诊断为COVID-19（中共病毒）后的28至180天之间，至少一次医疗就诊，总计约8000次就诊。
 
-参议员吉姆-英霍夫在4月29日的推特上说：
+在接受过医疗就诊的患者中，有68％接受了新的诊断，而38％的患者拜访了新专家，他们在COVID-19（中共病毒）诊断那一年之前从来没有对患者进行过治疗。
 
-中共国正变得越来越有侵略性–在世界各地扩大其力量范围，包括在非洲。我自己也看到了这方面的证据。国防情报局局长贝里尔今天证实，中共国正努力在非洲以及拉丁美洲和南美洲部署军事力量。
+65岁以上的患者，女性，非西班牙裔黑人患者以及具有潜在健康隐患的病人更有可能去看门诊。科学家认为部分原因可能是因为某些群体更容易受到冠状病毒的影响，并且在患上COVID-19（中共病毒）之后的延续风险更高。
 
+新的诊断包括咳嗽，呼吸急促，胸痛或喉咙痛或疲倦，研究人员指出“或许意味着持续的COVID-19（中共病毒）症状”。
 
+有10%的患者被记录为COVID-19（中共病毒）“现行诊断” (an active diagnosis)，他们是在180天内至少接受过一次医疗的患者。60天后，就COVID-19（中共病毒）症状进行的就诊次数有所减少，但有些人120天以后仍然有症状。
 
-> China is growing more aggressive – expanding its power projection around the world, including in Africa. I’ve seen evidence of it myself. [@DefenseIntel](https://twitter.com/DefenseIntel?ref_src=twsrc%5Etfw) Director LTG Berrier confirmed today China is looking to place military forces in Africa, as well as in Latin and South America. [pic.twitter.com/qB8RT54Tyl](https://t.co/qB8RT54Tyl)
-> — Sen. Jim Inhofe (@JimInhofe) [April 29, 2021](https://twitter.com/JimInhofe/status/1387804839447601161?ref_src=twsrc%5Etfw)
+研究人员指出，他们没有对未住院的COVID-19（中共病毒）成年人与未诊断为COVID-19（中共病毒）的成年人的就诊次数进行比较。 他们还说，四分之三的参加者都购买了商业保险，其中大多数人没有保险或公共保险。
 
+这项研究的出现恰好是在医学界警告说，感染COVID-19（中共病毒）的患者在感染后数周和数月内一直存在健康问题。
 
+该研究说：“活跃的COVID-19（中共病毒）病毒的存在，COVID-19（中共病毒）的症状诊断以及专科转诊表明，一些未住院的成年人，包括那些无症状或轻度急性疾病的成年人，可能在诊断后的几个月内仍然需要继续进行医疗保健。”
 
-贝里尔将军在听证会上说：“在他们（中共）所拥有的能力范围内，核武一直是一个组成部分。这对他们来说是一个优先事项，”
+该研究补充说：“在急性SARS-CoV-2（中共病毒）传染（的岁月）以后，提高患者，临床医生和卫生系统对常见新诊断和健康需求（包括专家评估）的认识，对于了解这种疾病的长期影响非常重要。”
 
-贝里尔将军指出， 中共国正在努力扩大其核武库并使之多样化。自从去年美国国防部评估中共国的核弹头储备在200枚以下，并预测它在未来十年至少翻一番之后，中共已经加快了其核扩张的步伐，并超出了美国之前的预测，其核储备可能在这十年中至少增加一倍，并增加对美国本土的威胁。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01110754/%E5%9B%BE%E7%89%871-1.png)图片来源：zerohedge
+本周在《自然》杂志上发表的一项类似研究得出的结论是，未住院的COVID-19（中共病毒）幸存者比未感染的人死亡的可能性高60％。
 
-而且他进一步警告说，中共在尽力提升核武器数量和技术的同时，越来越多的证据表明，中共试图将其部分核力量保持在 “预警时发射 “的状态。他说，中共正在将其国防技术工作的重点 “几乎肯定 “地放在 “使美国和盟军处于更大的风险和离中国大陆更远的地方”。
+正文链接：[https://thehill.com/policy/healthcare/549950-cdc-study-on-covid-19-long-haulers-two-thirds-of-non-hospitalized-patients](https://thehill.com/policy/healthcare/549950-cdc-study-on-covid-19-long-haulers-two-thirds-of-non-hospitalized-patients)
 
-2020年，总部设在伊利诺伊州的《原子科学家公报》估计，中共国拥有350枚核弹头，这个数字远远高于国防部更保守的估计。该智囊团在当时的报告中写道：”我们估计中共国已经生产了大约350枚核弹头，其中大约272枚是由240多枚作战的陆基弹道导弹、48枚海基弹道导弹和20枚分配给轰炸机的核重力炸弹运载。其余的78枚弹头是用来装备正在实战中的其他陆基和海基导弹的”。
-
-新闻来源：[零对冲](https://www.zerohedge.com/geopolitical/us-intelligence-tells-congress-chinas-nuclear-arsenal-track-exceed-our-previous?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
-
-+2
+0

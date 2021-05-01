@@ -1,101 +1,146 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港快讯】 5月1日 港大与学生会割席 校友联署谴责 记协约见运输署被拒
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1161047/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（八）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1161057/)
 
-搜集/整理：【喜马拉雅-粤语组】阿恩、PO / 封面合成：文粤
-![pastedGraphic.png]()![pastedGraphic.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01100744/image001.png)
-**9 ****间大专院校学生会谴责港大打压学生会**
+作者：纽约香草山信息部 6zero4
 
-香港大学（30 日）发声明，提出多项“封杀”学生会措施，包括停止代收会费、停止财务管理服务、收回学生会会址等设施管理权。 9 间大专院校学生会及临时行政委员会发表联合声明，批评港大校方的做法，严重打压学生参与社会事务及言论自由，将白色恐怖带入校园，形容是“欲以莫须有之罪名整肃校园学生组织” 、“漠视学生权利的蛮横行径”，对港大校方的失实言论及出于政治考量的打压，予以强烈谴责。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-声明中指，批评校方再而三地打压学生，试图瘫痪学生会的运作，形容校方“为虎作伥，甘愿依附政权，成为败坏自由及人权的共犯”、“彻底沦为以剥夺学生权利换取利益的学店” 。声明中重提，城大停收学生会费，中大禁用学生会会室，指大专学生会现时面临共同危难，会“同仇敌忾”，否则“唇​​寒，齿亡”。
 
-声明最后指，“士人风骨不尘埃”，大专学界“必是其是、非其非，不咋舌吞声，只求无负教晦”，呼吁各大学均要以学生为本，停止对学生的无理打压。
 
-声明以教大学生会、演艺学院学生会、恒大学生会、理大学生会、城大学生会、科大学生会、公开大学学生会、浸大学生会临时行政委员会，以及中大学生会临时行政委员会，共9 间大专院校学生会名义发出，未包括事件中的港大学生会。
-![pastedGraphic_1.png]()![pastedGraphic_1.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01100803/image002.png)
-**港大与学生会割席　校友联署谴责**
+4月12日塞林博士的推文：转发一个叫Hahahah的网友引用闫博士第三份报告之精华片段的帖子，COVID-19病毒其E蛋白与蝙蝠冠状病毒的ZC45完全相同，也与云南矿洞说中的RaTG13完全相同，没有任何不同的地方，这就奇怪了，难道RaTG13是假的基因序列？
 
-香港大学昨（30 日）宣布，停止为学生会代收会费、不再提供财务管理服务，同时收回港大学生会会室等设施的管理权；港大学生会今发声明，港大学生会在1912 年10 月6 日成立，百多年来以服务学生、促进与校方沟通合作为己任，与大学“共存共荣”，虽然学生会不附属于大学，但一直保持密切平等合作关系，“共承港大百年基业”；但校方突然单方面划清界线，毁弃双方多年建立的合作关系，学生会批评校方的声明，“葬送师生先辈数十载耕耘以及双方之间的互信”，亦对学生会及属会运作和同学的利益影响深远，深感遗憾。学生会称，他们作为唯一代表及服务所有港大本科生的组织，希望校方三思，维持与学生会的合作关系。
 
-另外，港大校友关注组发起联署，谴责校方政治打压学生会是政治任务，目的是削弱学生会代表性和影响力，挤压学生会的财务资源，最终迫使学生会噤声；关注组又批评，校方的做法严重践踏大专学生组织自主运作，与港府打压公民社会做法如出一辙，“对此我们感到极度愤慨与不满”。
-![pastedGraphic_2.png]()![pastedGraphic_2.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01100824/image003.png)
-**多****2****教师遭除去教席牌****, ****被指教学挑起学生“对国家反感”****成首位被除牌官中教师**
 
-教育局去年先后以“教材涉煽动港独”及教学严重失误为由，分别取消两名小学教师资格。局方披露今年初至今再多两名教师因涉“社会动乱”而遭取消教师注册。其中1人为前龙翔官立中学通识科教师，指其教学“挑起学生对国家、中共国人民的反感”，为首位被除牌的官中教师；另外1人则因遭法庭定罪而被除牌。
-![pastedGraphic_3.png]()![pastedGraphic_3.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01100842/image004.png)
-**【传媒查册被判有罪】　记协约见运输署被拒**
+> Smart post by [@Hahahah07248228](https://twitter.com/Hahahah07248228?ref_src=twsrc%5Etfw) citing [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw)'s important work about the pathogenic [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) E protein being 100% the same ZC45, also 100% the same as RaTG13 in BLAST, but nothing else. Strange. Is RaTG13 a fake sequence?[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/qNqqrR5Z0D](https://t.co/qNqqrR5Z0D)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 12, 2021](https://twitter.com/LawrenceSellin/status/1381535980319088640?ref_src=twsrc%5Etfw)
 
-《铿锵集》前编导蔡玉玲因查车牌被裁“虚假陈述”罪成，引发新闻界忧虑，多个传媒暂停查车牌。记协主席杨健兴指，记者已清楚说明个别情况，不理解署方所谓“实际情况”还要考虑什么，质疑署方以“空泛官话”回应，实属刁难。记协主席杨健兴透露，裁决前曾去信约见运输署，欲反映业界关注，运输署昨午（30 日）书面回覆记协，指“暂时没有计划就证明书相关事宜与个别业界代表会面或收集其意见”。
 
-执业大律师黄宇逸认为，蔡玉玲案未有解决传媒以新闻用途为目的查车牌的合法性问题，认为运输署应向律政司谘询。
-![pastedGraphic_4.png]()![pastedGraphic_4.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01100905/image005.png)
-**Now****新闻台工程人员索偿案****. ****官劝作供警长勿说谎：不要侮辱我的智慧**
 
-Now新闻台工程人员李小龙2014年采访占旺期间遭警员抢梯及暴力对待，事后入禀向警方索偿。审讯踏入第14天，被指抢梯的警长继续接受原告一方盘问，对当日争执细节多次表示“不能确定”。主审区域法院法官李树旭不满警长看过庭上播放影片及相片后，仍未记起案发几秒间发生的事，若不诚实作供，终会被发现，更严斥：“不要侮辱我的智慧, 不要令警队蒙羞。”警长则表示明白并坚称：“我一直讲正确的事实。”
-![pastedGraphic_5.png]()![pastedGraphic_5.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01100920/image006.jpg)
-**清理民主派**** | ****防火委员会升格做选委****民主派委员被“清零”**
+4月13日塞林博士2连推：
+第一推，众所周知，用精氨酸(R)替代2002-2004年流行的SARS病毒中E蛋白的氨基酸E69和G70，其毒性将增加，这样的替换在COVID-19、舟山蝙蝠冠状病毒(ZC45)、泰国蝙蝠病毒(RacCS203)和云南矿洞说的RaTG13中相同的E蛋白中可见，并贴出了香港大学P3实验室的马利克、潘烈文、袁国勇和管轶等的合照。
 
-民政事务总署公布今届地区防火委员会委员名单，上届获委任的29名民主派区议员新一年都不获续任，被政权强行“清零”。多名民主派前防火委员会委员批评政府在防火会“搞清一色”，为提高未来特首选委会选举的安全系数，将政治凌驾民生。上届地区防火委员会，只有13区、合共29名民主派区议员获委任，占整体委员会数不足7%。在“完善”选举制度下，分区委员会（分区会）、地区灭罪和防火委员会由地区谘询组织“升格”，可以个人票互选出156名特首选委，政圈早有传言政府要将仅余的民主派议员都排除，杜绝泛民在选委会选举中“搞局”。
-![pastedGraphic_6.png]()![pastedGraphic_6.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01100937/image007.png)
-**港台新闻部摘恒大新闻奖金银奖****李百全通知主办方退赛****奖项改颁他人**
 
-节目“刽子手”的广播处长李百全，上月底以检讨提名电视及电台节目参与遴选本地、内地及国际奖项的机制为由，下令香港电台暂停将作品提交本地及国际赛事参赛, 获悉，港台中文新闻部原有作品获得“第五届恒大商业新闻奖”的金奖和银奖，惟恒大之后将奖项“收回”改颁予其他传媒。恒大回覆指，是收到港台通知要求退赛。
-![pastedGraphic_7.png]()![pastedGraphic_7.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01100958/image008.png)
-**警反对五一游行　职工盟发起街站　吁坚守自由空间续发声**
 
-今日是5 月1 日劳动节，惟警方第二年向职工盟发出反对游行通知，禁止他们举行劳动节游行，职工盟“变阵”，联同多个民间团体、区议员和工会，在全港发起超过三十个街站“遍地开花”，职工盟总干事蒙兆达表示，公民社会要继续“站出来”，表达抗争态度，守护仅余的发声空间。
+> It is known that replacing the E Protein's amino acids E69 & G70 in the 2002-2004 SARS-CoV-1 pandemic virus with arginine (R), virulence would increase. Such a substitution is seen in the identical E Proteins of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) & bat coronaviruses ZC45, RacCS203 & RaTG13.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/fgTCsvbCW8](https://t.co/fgTCsvbCW8)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 13, 2021](https://twitter.com/LawrenceSellin/status/1381939134936268805?ref_src=twsrc%5Etfw)
 
-职工盟今天中午在铜锣湾的街举行五一活动开幕仪式，派发宣传卡，鼓励市民拍照上载社交媒体。上街游行争取劳工权益是职工盟多年传统，如今政治局势下，要思考面对专制政权，随着政权清算、打压，民主派中许多人被关押、流亡，“公民社会的民间团体、已经成为极权制度下的最前线，成为第一排”，职工盟希望透过街站继续连系香港人，“不要投降，不能习惯，留下的人还有很多事可以做。”
-![pastedGraphic_8.png]()![pastedGraphic_8.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01101012/image009.jpg)
-**五一劳动节︱社民连工党续游行争劳工权益**
 
-五一劳动节，原本是属于打工仔女的大日子，每年均有劳工团体在劳动节以示威形式，争取劳工权益。惟在疫情下，警方频频以限聚为由打压不同游行，社民连与工党今年与去年一样，4人一组前往政总游行，提出劳工及争取普选等诉求。社民连及工党以“失业贫穷，天理不容；失业援助，刻不容缓”为口号举行五一游行，游行间高叫标准工时、提升最低工资和设立全民退休保障等与劳工权益相关的诉求，也有提及“立即实行真普选”、拒绝小圈子选举。两党在声明斥政府的保就业计划、防疫抗疫基金等无法帮助基层巿民。
 
-声明表示，现时每小时的最低工资连茶餐厅午餐亦未必能负担，却遭冻薪，让基层巿民根本无法维持生活；取消强积金对冲、立法保障集体谈判权等劳工政策一直被拖延，从未订立之际，加上疫情夹击，惨令打工仔女沦为“二等公民”。
+第二推，转发并赞赏了“德意志之鹰”战友的关于港大P3实验室在2010年发表的，有关SARS冠状病毒E蛋白对于成就COVID-19是何等关键的文章，并附有港大实验室成员的合照。通过修改E蛋白以“破坏肺上皮屏障，并较SARS更有效地放大炎症过程”来增加毒性。（马利克、潘烈文和管轶浮出水面）
 
-社民连主席黄浩铭指，今年五一游行，李卓人及长毛都因身陷囹圄而不能参与，但其余在墙外的人依旧坚持主张来到游行。
-![pastedGraphic_9.png]()![pastedGraphic_9.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01101035/image010.png)
-**外佣强检迫打针****陈肇始否认歧视**
 
-日前两名外佣确诊并验出变种病毒株，政府昨日宣布全港 37 万外佣，5 月 9 日前要强制检测，续约、来港前要打疫苗。亚洲移居人士联盟（Asian Migrants’ Coordinating Body）发言人Eman Villanueva 在Facebook 撰文，批评港府以注射疫苗作为外佣续约条件是“勒索”，劳福局局长罗致光称外佣可选择不在港工作的说法“无耻”。文中批评，港府在未确认源头前，强制整个移民工群体检测及注射疫苗，是对移民家务工“最恶劣的歧视及社会区隔”，外佣被港府当作二等公民，在香港遭系统性及社会性区隔，外佣若不遵守这带歧视性、不合逻辑及不合理的规定，就可能失去工作。
 
-食物及衞生局局长陈肇始今早否认措施标签外佣群体，认为检测中心能协助市民保持社交距离，无需担心强制 37 万名外佣检测会造成人群聚集。
-![pastedGraphic_10.png]()![pastedGraphic_10.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01101051/image011.png)
-**工会斥外佣强检是歧视****强烈反对续约必须打疫苗　批政府将抗疫政策失败**
+> Correct scientific articles are shown by [@dezying](https://twitter.com/dezying?ref_src=twsrc%5Etfw) linking an increase in [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)'s virulence by modifying the E Protein to "disrupt the pulmonary epithelial barrier and amplify the inflammatory process more effectively than SARS-CoV E does"[https://t.co/gCQV9J5VjQ](https://t.co/gCQV9J5VjQ)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/m4Vzq9m4E9](https://t.co/m4Vzq9m4E9)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 13, 2021](https://twitter.com/LawrenceSellin/status/1381963736399769609?ref_src=twsrc%5Etfw)
 
-香港亚洲家务工工会联会（Hong Kong Federation of Asian Domestic Workers Unions）强烈反对政府要求所有外佣续约前须接种疫苗。联会认为，并非所有外佣均适合接种疫苗，并已收到不少患慢性病、年长或曾接受手术的人士均表达担忧，认为在外佣不了解健康情况下，要求他们接种疫苗是不可能。
 
-联会亦质疑，现时疫苗对变种病毒的有效率仅有 10% 至 52%。若外佣接种疫苗后感到不适，是否有权请病假？甚至当接种疫苗后身亡或瘫痪，政府会否承担责任。至于强制检测方面，联会批评有关措施明显是歧视（clear discrimination），认为此举会令外佣污名化，并提出他们来港时已经需要检疫，认为已能确保不会感染后进入香港社区。
-![pastedGraphic_11.png]()![pastedGraphic_11.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01101118/image012.jpg)
-**数百外佣趁放假涌采样站做检测**
 
-今日是5.1劳动节公众假期，外佣难得可享2日连假，却因港府突强制要求全港37万外佣在9天内接受病毒检测，假期日的部份时间都在排队中度过。位于中环遮打道行人专用区的免费流动采样站，虽然早上10时起才提供检测服务，但今早7时前已有外佣到场排队，足足等候4个半小时才获安排进行检测。直至中午，排队人龙由遮打道延至雪厂街，龙尾排到干诺道中的遮打大厦出入口。现场估计有数百名外佣聚集，警方沿遮打道架起铁马，亦有劳工处人员举起4人限聚令和保持1.5米社交距离的标语，但未见有人员严格执法。
-![pastedGraphic_12.png]()![pastedGraphic_12.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01101135/image013.png)
-**教育局发通告****要求各校交教职员打针数字****选项不设“不适宜接种”**
+4月14日塞林博士的2连推：
+第一推，“新发现”的2018年分离的PrC31蝙蝠冠状病毒是不是另一种类似于RaTG13的伪序列，以供CCP科学家用来支持COVID-19病毒自然起源理论？并贴出爆料革命路德社119惊天爆料后石正丽伪造RaTG13混淆视听的过程图片。
 
-教育局3月时曾宣布，教职员亦可豁免每14天一次的病毒检测。惟计划推出至今，中小学反应未算热烈。局方今向全港学校发通告，要求学校提交教职员接种疫苗的现况。
 
-参考通告附件，学校须向局方提供已完成接种两剂疫苗、已完成接种第一剂疫苗、已预约接种第一剂疫苗、有意接种疫苗、无意接种疫苗及不愿意披露其意向共6个选项的数字。不过，选项中没有不适宜接种此一选项。
 
-局方又称，“由于接种名额有限，请各教职员务必立即行动，尽快预约，珍惜这得来不易的机会”。
-![pastedGraphic_13.png]()![pastedGraphic_13.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01101154/image014.png)
-**黄色经济圈办“五一惩罚祭”　黄店**** App ****下载排名踞榜首**
+> Is the "newly discovered" 2018-isolated PrC31 bat coronavirus another RaTG13-like fake sequence used by CCP scientists to buttress the fraudulent naturally-occurring theory of the [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw)?
+> Stay tuned.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/CKnRE64l4y](https://t.co/CKnRE64l4y) [pic.twitter.com/ClZUrgbWP1](https://t.co/ClZUrgbWP1)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 14, 2021](https://twitter.com/LawrenceSellin/status/1382229297302278144?ref_src=twsrc%5Etfw)
 
-今日（1 日）是疫情下的五一公众假期，本地“黄色经济圈”今年展开一连9 日“五一惩罚祭”，而集合多间黄店资讯和优惠的App“惩罚Mee”，昨晚（30 日）至今早都在苹果iOS App Store 免费程式排名榜高踞榜首。开发团队说，不少“黄店”都在疫情下挣扎求存，希望透过大家的“惩罚”让他们增加收入，坚持经营。 “Mee 惩罚师”上月表示，海关拘捕“阿布泰”负责人促成了市民长达一周的惩罚风潮，证明大家都做到“一方有难，八方支援”。
 
-不过团队表示，社会气氛极为低迷，以至政府以防疫打压小店、甚至未能复业，都令很多铺头只能挣扎求存，“急需我们集体惩罚的商店不只一间”。因此，团队希望透过再举办活动，“希望透过同路人的集体惩罚，为一众黄店商户提供喘息机会的同时，为黄色经济圈注入新的动力。”黄店一直为社会发声，港府推出“安心出行”等招数应付疫情下，黄店亦继续坚守底线，与食客一齐维护原则，期望他们能够在假期和惩罚祭当中增加收入，继续经营下去，巩固公民社会。宣布举办“惩罚祭”后，黄店反应热烈，至今已经有逾千商户参加，符合预期。参与的黄店包括发型屋、服装店、茶饮店、餐厅等。团队指下载程式后再加入成为 Mee 会员，光顾部份商店可以享有优惠。
-![pastedGraphic_14.png]()![pastedGraphic_14.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01101214/image015.png)
-**黄店纷结业　民间今办“惩罚祭”**
 
-疫情看似放缓，但部份力量微小的黄店已无法熬下去，纷纷结业。有结业商户透露疫情下亏损严重，为免员工捱打针或检测之苦，一直坚持二人一枱待客，无奈已捱不下去决定结业。留下来的，就在今日起举办“五一惩罚祭”，鼓励香港人大力“惩罚”，撑住同路人。
+第二推，如果以ORF10基因片段为参照，则COVID-19并非由RaTG13演变而来，而舟山蝙蝠病毒的ZC45的ORF10与COVID-19完全匹配。
 
-资料来源：[立场新闻（1）](https://www.thestandnews.com/society/%E6%B8%85%E7%AE%97%E5%AD%B8%E7%94%9F%E6%9C%83-9-%E9%96%93%E5%A4%A7%E5%B0%88%E9%99%A2%E6%A0%A1%E5%AD%B8%E7%94%9F%E6%9C%83%E8%AD%B4%E8%B2%AC%E6%B8%AF%E5%A4%A7%E6%89%93%E5%A3%93%E5%AD%B8%E7%94%9F%E6%9C%83-%E6%88%90%E7%82%BA%E6%95%97%E5%A3%9E%E8%87%AA%E7%94%B1%E5%8F%8A%E4%BA%BA%E6%AC%8A%E7%9A%84%E5%85%B1%E7%8A%AF/)、[立场新闻（2）](https://www.thestandnews.com/politics/%E6%B8%AF%E5%A4%A7%E5%AD%B8%E7%94%9F%E6%9C%83-%E6%A0%A1%E6%96%B9%E5%8D%B1%E9%9B%A3%E6%99%82%E8%88%87%E5%AD%B8%E7%94%9F%E5%89%B2%E5%B8%AD-%E9%9D%9E%E6%96%87%E6%98%8E%E6%95%99%E8%82%B2%E5%B7%A5%E4%BD%9C%E8%80%85%E6%89%80%E7%82%BA-%E6%A0%A1%E5%8F%8B%E8%81%AF%E7%BD%B2%E8%AD%B4%E8%B2%AC%E6%89%93%E5%A3%93%E5%AD%B8%E7%94%9F%E6%9C%83/)、[苹果日报（3）](https://hk.appledaily.com/local/20210430/R3SOTQZRR5HSLIQBZUPYKFI34Q/)、[立场新闻（4）](https://www.thestandnews.com/politics/%E6%9F%A5%E5%86%8A%E6%9C%89%E7%BD%AA-%E5%82%B3%E5%AA%92%E6%9F%A5%E8%BB%8A%E7%89%8C%E7%96%91%E5%9C%98%E6%9C%AA%E8%A7%A3-%E7%AB%8B%E5%A0%B4-%E5%88%97-5-%E6%83%85%E6%B3%81%E5%95%8F%E7%94%B3%E8%AB%8B%E6%98%AF%E5%90%A6%E5%90%88%E6%B3%95-%E9%81%8B%E8%BC%B8%E7%BD%B2%E6%8B%92%E8%A7%A3%E9%87%8B/)、[苹果日报（5）](https://hk.appledaily.com/local/20210430/SVRWT2WVIVDMFPK5G72IVQ2GHI/)、[苹果日报（6）](https://hk.appledaily.com/local/20210501/C4KDPXFNEZHNHGGFZTTYKIVLR4/)、[苹果日报（7）](https://hk.appledaily.com/local/20210430/JQ4XERIWGVCUHOVTH5XPZ7MOKE/)、[立场新闻（8）](https://www.thestandnews.com/politics/%E8%AD%A6%E7%AC%AC%E4%BA%8C%E5%B9%B4%E5%8F%8D%E5%B0%8D%E4%BA%94%E4%B8%80%E9%81%8A%E8%A1%8C-%E8%81%B7%E5%B7%A5%E7%9B%9F%E7%99%BC%E8%B5%B7%E5%85%A8%E6%B8%AF%E9%80%BE%E4%B8%89%E5%8D%81%E8%A1%97%E7%AB%99-%E7%B1%B2%E5%A0%85%E5%AE%88%E8%87%AA%E7%94%B1%E7%A9%BA%E9%96%93%E7%BA%8C%E7%99%BC%E8%81%B2/)、[苹果日报（9）](https://hk.appledaily.com/local/20210501/4VUTE6ROAJGU5NAG2V35RGDEH4/)、[立场新闻（10）](https://www.thestandnews.com/society/%E5%A4%96%E5%82%AD%E5%BC%B7%E6%AA%A2%E8%BF%AB%E6%89%93%E9%87%9D-%E9%97%9C%E6%B3%A8%E5%9C%98%E9%AB%94-%E6%AD%A7%E8%A6%96-%E5%8B%92%E7%B4%A2-%E8%A6%96%E5%A4%96%E5%82%AD%E7%82%BA%E4%BA%8C%E7%AD%89%E5%85%AC%E6%B0%91/)、[立场新闻（11）](https://www.thestandnews.com/society/ab%E5%B7%A5%E6%9C%83%E6%96%A5%E5%A4%96%E5%82%AD%E5%BC%B7%E6%AA%A2%E6%98%AF%E6%AD%A7%E8%A6%96-%E5%BC%B7%E7%83%88%E5%8F%8D%E5%B0%8D%E7%BA%8C%E7%B4%84%E5%BF%85%E9%A0%88%E6%89%93%E7%96%AB%E8%8B%97-%E6%89%B9%E6%94%BF%E5%BA%9C%E5%B0%87%E6%8A%97%E7%96%AB%E6%94%BF%E7%AD%96%E5%A4%B1%E6%95%97%E6%AD%B8%E5%92%8E%E5%A4%96%E5%82%AD/)、[苹果日报（12）](https://hk.appledaily.com/local/20210501/VI4UIDWC5RBKHD43KXYICBBSNY/)、[苹果日报（13）](https://hk.appledaily.com/local/20210430/CHMJDYR6S5DXNJJG24QXZVKVKQ/)、[立场新闻（14）](https://www.thestandnews.com/society/%E9%BB%83%E8%89%B2%E7%B6%93%E6%BF%9F%E5%9C%88%E8%BE%A6-%E4%BA%94%E4%B8%80%E6%87%B2%E7%BD%B0%E7%A5%AD-%E9%BB%83%E5%BA%97-app-%E4%B8%8B%E8%BC%89%E6%8E%92%E5%90%8D%E8%B8%9E%E6%A6%9C%E9%A6%96/)、[苹果日报（15）](https://hk.appledaily.com/local/20210501/JBIC5WQ35NF6BHLPAMNTQ5WRDM/)
 
-封面素材：立场新闻
 
-审核：文燕、卡西欧 / 校对：文粤 / 上传：流光飞舞
+> If ORF10 is any indication, [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) (SARS-CoV-2) did not evolve from RaTG13. The ORF10 of Zhoushan ZC45 is a 100% match with SARS-CoV-2.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#corona](https://twitter.com/hashtag/corona?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/0ExSyoCyMy](https://t.co/0ExSyoCyMy)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 14, 2021](https://twitter.com/LawrenceSellin/status/1382301636643655684?ref_src=twsrc%5Etfw)
 
-0
+
+
+4月15日塞林博士的5连推：
+第一推，似乎CCP病毒科学家正在发布可疑的蝙蝠冠状病毒序列，以掩盖COVID-19病毒的实验室起源，并将病毒源头引向中国境外，试图将泰国(RacCS203)、云南(PrC31)和舟山(ZC45)之间的地理范围（并附地图）联系起来，以宣称是自然重组事件。
+
+
+
+> Seems [#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) scientists are posting dubious bat [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) sequences to hide [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)'s lab origin & point to a source outside China, attempting to link the geographic ranges of Thailand (RacCS202), Yunnan (PrC31) & Zhoushan (ZC45), alleging a natural recombination event. [pic.twitter.com/X6BfW5Yw8g](https://t.co/X6BfW5Yw8g)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 14, 2021](https://twitter.com/LawrenceSellin/status/1382368407836880897?ref_src=twsrc%5Etfw)
+
+
+
+第二推，我正在制作一个名为“流氓画廊”的专辑，收录中共国内外的病毒科学家，他们要么是COVID-19病毒实验室起源的元凶，要么是协助中共企图掩盖实验室起源，请把你的提名发给我。并贴上一张展示美国纳税人的钱转变成CCP病毒，再变成人类尸骨并在福奇、打杂客、石正丽之间流转的图片。
+
+
+
+> I am creating an album “Rogues Gallery” of Chinese Communist Party Virus scientists, both inside and outside China, who, I think, have contributed to the laboratory origin of COVID-19 and/or assisted the CCP in attempting to cover-up its lab origin. Please send me you nominees. [pic.twitter.com/ophUvRjB4X](https://t.co/ophUvRjB4X)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 15, 2021](https://twitter.com/LawrenceSellin/status/1382543103861653504?ref_src=twsrc%5Etfw)
+
+
+
+第三推，2020年2月早期，美国科学家通过电子邮件参与了支持中共的病毒自然起源，并淡化了实验室起源的证据，尤其是针对非自然存在的福林酶切位点，并贴出了Peter Daszak、Trevor Bedford、Kristian Anderson、Ralph Baric、Stanley Perlman、Aravinda Chakravarti、Rita Colwell和Linda Saif八位美国科学家的照片。
+
+
+
+> US-based scientists who from their own emails were involved in the early February 2020 effort to support the Chinese Communist Party’s claim that [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) occurred naturally and downplay evidence of a laboratory origin, especially the unnatural presence of the furin cleavage site [pic.twitter.com/SzBBYcYYlG](https://t.co/SzBBYcYYlG)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 15, 2021](https://twitter.com/LawrenceSellin/status/1382604213952212997?ref_src=twsrc%5Etfw)
+
+
+
+第四推，两名接受过中共军方训练的科学家一直是PLA和中共在美国运营，并由美国政府部分资助的病毒研究网络的关键纽带，并贴出周育森和姜世勃的照片。
+
+
+
+> Two military-trained Chinese Communist Party scientists have been key connections between the Chinese People's Liberation Army & the CCP's virus research network operating in the U.S. partially funded by the U.S. government.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/iek7FVFRJG](https://t.co/iek7FVFRJG)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 15, 2021](https://twitter.com/LawrenceSellin/status/1382619983595896839?ref_src=twsrc%5Etfw)
+
+
+
+第五推直接是中文，“我支持中国人民，我拒绝中国共产党”，并贴出一张“中共制造了病毒，中共不等于中国”的爆料革命英文图片。（Trevor Bedford、Kristian Anderson、Ralph Baric、Stanley Perlman、Aravinda Chakravarti、Rita Colwell和Linda Saif共7位美国科学家浮出水面）
+
+
+
+> 我支持中国人民。 我拒绝中国共产党 [pic.twitter.com/6Du10owBsE](https://t.co/6Du10owBsE)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 15, 2021](https://twitter.com/LawrenceSellin/status/1382684439118020613?ref_src=twsrc%5Etfw)
+
+
+
+4月16日塞林博士的2连推：
+第一推，打败中共的唯一的、最重要和最紧迫的步骤是揭露COVID-19病毒产生的科研网络及其活动，我有该网络的详细地图，但我需要来自中共国内部的更多信息，并贴出需要征集的与COVID-19病毒产生过程中相关的任何信息的文字描述图片。
+
+
+
+> The single, most important and most immediate step to defeat the Chinese Communist Party is to expose the network and scientific activities responsible for the creation of the COVID-19 virus. I have a detailed map of that network but I need more information from inside China. [pic.twitter.com/bzzQAjqqSB](https://t.co/bzzQAjqqSB)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 16, 2021](https://twitter.com/LawrenceSellin/status/1382961557613740034?ref_src=twsrc%5Etfw)
+
+
+
+第二推，也是纯中文推：“帮我打到中国共产党，请向我发送有关中国病毒研究的信息”，并贴出翻译好的病毒研究信息征集中文告示。
+
+
+
+> 帮我打倒中国共产党。 请向我发送有关中国病毒研究的信息[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/tIll8UdRpg](https://t.co/tIll8UdRpg)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 16, 2021](https://twitter.com/LawrenceSellin/status/1383018664966885380?ref_src=twsrc%5Etfw)
+
+
+
+塞林博士在这个期间的推文里面，揭示了以石正丽为首的中共病毒科学家们在掩盖病毒实验室起源过程中技术上屡出臭招和笑话，被爆料革命路德社、闫博士及其博士军团牵着鼻子走，打得满地找牙的局面。并将中共病毒研究网络的海内外科学家，尤其是代表冠状病毒研究领域最高水品的港大P3实验室团队披露出来，特别是他们在对基因序列上E蛋白的改造是冠状病毒毒性增强的关键的理论，让中共如获至宝，在开发生物武器过程中喜出望外甚至得意忘形！毒王马利克的浮出水面是病毒溯源过程中有一个里程碑事件！
+
+继知道S蛋白增强感染性和E蛋白增强毒性后的中共，在以冠状病毒为武器，以超限战为模式的战争中，CCP似乎看到了统治称霸世界的契机，快速将世界拖进惨不忍睹的疫情黑暗模式，哀鸿遍野，浮尸遍地，经济贸易停摆，国际航运瘫痪，政治纷争摇摆，军事蠢蠢欲动，社会动荡不安。塞林博士是中国人民的好朋友，毫不掩饰对中国人民的理解和喜爱，更是爆料革命的坚定战友，多次引用爆料革命的宣传图片和信息，并公开向中国人募集中共病毒研究网络上的任何信息，以补充和完善中共病毒研究网络的详细地图，为收网行动吹响了集结号！
+
+校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++1

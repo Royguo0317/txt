@@ -1,37 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国疾病控制与预防中心（CDC） 对COVID-19病毒长期携带的研究：三分之二的非住院患者接受了新的诊断
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1161161/)
+## 慧眼看世界20210501（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1161237/)
 
-【日本东京方舟农场】作者：贾斯汀·科尔曼（Justine Coleman）；翻译：天与地的对话；校对：小油鍋
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-周五，美国疾病控制与预防中心（CDC）进行的一项研究发现，三分之二的未住院的COVID-19（中共病毒）患者在感染该病毒后的六个月内接受了某种新的诊断，这支持了人们对（感染该病毒）以后的健康问题的担忧。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01114842/EA4DB44E-BF6A-4FE4-838A-3ED7F6A9F518.jpeg)
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-与佐治亚州凯撒医疗中心（Kaiser Permanente Georgia）合作完成的这项研究发现，有69％的患者被初次诊断为COVID-19（中共病毒）后，又在28至180天之间去了至少一次的门诊。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121442/01.jpg)
 
-该研究检查了3,171名患者的医疗保健就诊电子记录数据，他们都是被诊断为冠状病毒后的28天内未住院的患者。共有2,177名患者在被诊断为COVID-19（中共病毒）后的28至180天之间，至少一次医疗就诊，总计约8000次就诊。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121447/02.jpg)
 
-在接受过医疗就诊的患者中，有68％接受了新的诊断，而38％的患者拜访了新专家，他们在COVID-19（中共病毒）诊断那一年之前从来没有对患者进行过治疗。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121453/03.jpg)
 
-65岁以上的患者，女性，非西班牙裔黑人患者以及具有潜在健康隐患的病人更有可能去看门诊。科学家认为部分原因可能是因为某些群体更容易受到冠状病毒的影响，并且在患上COVID-19（中共病毒）之后的延续风险更高。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121500/04.jpg)
 
-新的诊断包括咳嗽，呼吸急促，胸痛或喉咙痛或疲倦，研究人员指出“或许意味着持续的COVID-19（中共病毒）症状”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121533/05.jpg)
 
-有10%的患者被记录为COVID-19（中共病毒）“现行诊断” (an active diagnosis)，他们是在180天内至少接受过一次医疗的患者。60天后，就COVID-19（中共病毒）症状进行的就诊次数有所减少，但有些人120天以后仍然有症状。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121538/06.jpg)
 
-研究人员指出，他们没有对未住院的COVID-19（中共病毒）成年人与未诊断为COVID-19（中共病毒）的成年人的就诊次数进行比较。 他们还说，四分之三的参加者都购买了商业保险，其中大多数人没有保险或公共保险。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121543/07.jpg)
 
-这项研究的出现恰好是在医学界警告说，感染COVID-19（中共病毒）的患者在感染后数周和数月内一直存在健康问题。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121550/08.jpg)
 
-该研究说：“活跃的COVID-19（中共病毒）病毒的存在，COVID-19（中共病毒）的症状诊断以及专科转诊表明，一些未住院的成年人，包括那些无症状或轻度急性疾病的成年人，可能在诊断后的几个月内仍然需要继续进行医疗保健。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121647/09.jpg)
 
-该研究补充说：“在急性SARS-CoV-2（中共病毒）传染（的岁月）以后，提高患者，临床医生和卫生系统对常见新诊断和健康需求（包括专家评估）的认识，对于了解这种疾病的长期影响非常重要。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121654/10.jpg)
 
-本周在《自然》杂志上发表的一项类似研究得出的结论是，未住院的COVID-19（中共病毒）幸存者比未感染的人死亡的可能性高60％。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121658/11.jpg)
 
-正文链接：[https://thehill.com/policy/healthcare/549950-cdc-study-on-covid-19-long-haulers-two-thirds-of-non-hospitalized-patients](https://thehill.com/policy/healthcare/549950-cdc-study-on-covid-19-long-haulers-two-thirds-of-non-hospitalized-patients)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121704/12.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01121708/13.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
 
 0

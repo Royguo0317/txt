@@ -1,43 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《文贵说》| 图片连载（七十八）
-` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/1080423/)
+## 【有声读物】戴三个表
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1161134/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/687.jpg)
-**我们中国人向全世界展示了，我们是一个可以尊重、可以信赖、可以成为好朋友的民族，我们有真正的五千年的文明，但不包括共产党这70年。**
+配音：香草山录音组 Swr拥抱太阳
 
-**—— 郭文贵先生 2020年9月8日**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/2020-10-22V1__1.jpg)
-**你们记住我说的话，很快你们会验证到，未来人类上研究最最可怕的事情就是一个14亿的中国人，为什么就被不到五个手指头的家族控制着，从来没改变过！**
-
-**—— 郭文贵先生 2020年8月31日**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/2020-10-22.jpg)
-**新中国人和共产党不一样！共产党是让你一切都听党的、一切都是党的，爹亲娘亲不如党亲。新中国联邦一切都是战友的，必须和爹和娘亲，一切以你为主！**
-
-** —— 郭文贵先生 2020年8月31日**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/s52.jpg)
-**兄弟姐妹们，就在我们放开歌喉高声唱歌的时候，这个世界正在改变中！**
-
-**—— 郭文贵先生 2020年9月2日**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/s53.jpg)
-**你们的手指头能改变世界，我们已经做到了。我们要使全世界知道共产党的疯狂；我们要使全世界知道真正的关于中国和中国人民的真相，我们唯真不破！**
-
-**—— 郭文贵先生 2020年9月2日**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/2020-10-24__1.jpg)
-**经济疯狂的变态增长，然后极端的民族主义，一帮神经病、大外宣，制造了人类上最魔鬼的哲学，叫什么？！把谎言说一千遍就会当成真理，拍电影、大外宣，给老百姓洗脑，把老百姓绑上了战车。**
-
-**—— 郭文贵先生 2020年9月2日**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/2020-10-24V2__1.jpg)
-**我们中国人向全世界展示了我们是一个可以尊重、可以信赖、可以成为好朋友的一个民族，我们有真正的五千年的文明，但不包括共产党这70年。**
-
-**—— 郭文贵先生 2020年9月8日**
-
-
-
-- [***更多精美海报请点击G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
 
-+1
+
+乌鸦代表喜鹊
+
+王八代表池塘
+
+拳头代表手，膝盖代表腿
+
+
+
+拍马屁的代表不拍马屁的
+
+不拍马屁代表沉默
+
+沉默代表笼中窒息的鸟
+
+
+
+**文字版原文：[【香草诗词汇】戴三个表](https://gnews.org/zh-hans/573064/)**
+
+作者：香草山写作组 木白
+
+
+
+音频处理/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
