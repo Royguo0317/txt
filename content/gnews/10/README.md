@@ -1,45 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】五一期间特种设备安全被再提及却难保游客人身健康
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1159191/)
+## 委内瑞拉软禁了六名被捕的美国石油高管
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1159241/)
 
-香草山农场写作组  鹰(文言)
+**撰稿人： 蓝精灵**
 
-环球网4月30日转载市说新语报道，中共市场监管总局发布《关于做好2021年劳动节期间特种设备安全和工业产品质量安全有关工作的通知》，要求全国各地针对景区娱乐场所等继续加强特种设备安全。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30230508/Screen-Shot-2021-04-30-at-11.03.58-PM.png)
-《通知》要求各特种设备使用单位履行主体责任，并对客运索道、大型游乐设施和旅游观光车辆等设备严查，质量、技术保障上严格校验；同时应急管理和应急值班等“战备”工作等级也较以往提高。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30230450/Screen-Shot-2021-04-30-at-11.04.09-PM.png)
-虽然中共政府三令五申加强旅游安全，保障游客合法权益，但近年来不但高价票、强制购物、霸凌条款现象接连出现，更有威胁人身安全的事故屡发。2020年十一期间，在中共“经济转正”噱头的号召下，国民被唆使外出游玩，然而不但青岛隐瞒疫情导致节后CCP病毒区域爆发，更有10月1日当天太原台骀山景区冰雕馆火灾致13人遇难重大事故发生。前者可看作中共对人民生命安全的轻视，而后者可看作官僚体制的浮夸，消防安全督导的“流于形式”（9月28日当地区委书记和主要领导专门就该景点进行定点督察）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30232951/19-12-2.jpg)周五（4-30日），已在委内瑞拉被判入狱三年以上的六名美国石油高管被软禁，此举被解释为在白宫审查对华政策时，向白宫提供橄榄枝的努力。
 
-十一旅游为中共带来了可观的经济刺激效果，配合媒体宣传，国内经济更加“一片大好”。中共在石家庄CCP病毒大爆发后，一方面采取“就地过年”这种形式化的“减少病毒”传播风险举措，另一方面却鼓励民众外出游玩，旅游景点、电影院等人员密集区域人满为患。中共将以消费拉动资金流通，带动的短期经济效益，将经济发展至于人身安全之上。在就地过年期间，也在再三强调抓安全的阶段，湖南邵阳一游乐场飞椅失控坠落导致16人受伤，即抓安全却依旧不安全。
+Tomeu Vadell，Jose Luis Zambrano，Alirio Zambrano，Jorge Toledo，Gustavo Cardenas和Jose Pereira于2017年11月首次被蒙面的安全人员拘留。他们前往委内瑞拉参加与Citgo的母公司、国有石油公司PDVSA的会议。
 
-即便中共各地政府再三官话“保旅游安全、游客利益”，但这些都不过是其牺牲人身健康和掠夺民众财产的遮羞布。就像高调整治森林防火灭火的四川冕宁县，三月份以来的四次大火，直接揭开了中共官场的作秀戏码。同样，哪怕媒体宣传、官方整治、安全督导检查再多在光鲜，只要形式主义、官僚主义的中共体制不改变，民众的生命和财产安全就不可能有保障。
+这些男子的家庭成员向美联社确认了他们间断性被释放。六名男子于2019年12月被软禁后两个月，2020年初被拘留、扔回监狱。那个时候川普总统在白宫会见了反对派领袖胡安·瓜伊多（JuanGuaidó）。这些人最终于2020年因挪用公款被定罪，尽管审判因延误和违规而受到严重质疑。
 
-新闻来源：
+他们的间断性释放是在政府官员开会讨论如何与委内瑞拉打交道时达成的。委内瑞拉独裁政府制止了去年似乎即将上台的反对派运动。谈判桌上的选择之一是维持严厉的制裁，这进一步削弱了委内瑞拉的经济。
 
-[市场监管总局部署做好劳动节期间特种设备安全和工业产品质量安全工作](https://china.huanqiu.com/article/42vz04gx63g)
+国家安全委员会西半球高级主管胡安·冈萨雷斯（Juan Gonzalez）本周向美联社表示，他希望看到独裁者尼古拉斯·马杜罗（NicolásMaduro）的“政权的具体步骤，而不是言语”。
 
-[太原一冰雕景点火灾致13人遇难 游客回忆细节称真后怕](https://baijiahao.baidu.com/s?id=1679409842003306114&amp;wfr=spider&amp;for=pc)
+链接：[https://thehill.com/latino/551289-venezuela-grants-house-arrest-for-six-jailed-us-oil-execs](https://thehill.com/latino/551289-venezuela-grants-house-arrest-for-six-jailed-us-oil-execs)
 
-[痛心！太原市一冰雕景点起火致13人遇难！国务院安委会挂牌督办](https://baijiahao.baidu.com/s?id=1679403257496987335&amp;wfr=spider&amp;for=pc)
+***校对发布**：文顾*
 
-[湖南邵阳五峰铺镇弄子口景区一游乐场项目发生故障：16人受伤](https://xw.qq.com/cmsid/20210215A01YB700)
-
-[这个县 县委书记、县长同时被免职](https://news.sina.com.cn/c/2021-04-30/doc-ikmyaawc2822706.shtml)
-
-编辑/发稿：正义的小新
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1
