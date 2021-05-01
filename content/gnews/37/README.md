@@ -1,69 +1,84 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】网传中共欲重罚腾讯，但中共并未打算切除这个互联网行业的最大毒瘤
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1159971/)
+## 《路德时评》解读美最高将领明确将军力聚焦中共国，及四位美国将领同框照片
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1159979/)
 
-**作者：纽约香草山农场 乱谈秦**
-
-自从2020年底阿里巴巴被反垄断调查及2021年4月10日被罚款182.28亿元后，网民一致的呼声就是尽快查腾讯。多数媒体都预测下一个反垄断对象就是腾讯。然而，4月26日被美团抢了先，当然跟腾讯也有关系，腾讯是美团最大股东。今天4月29日中午，中共终于放出消息要处罚腾讯。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01031223/%E5%9B%BE%E7%89%8714.png)图片来源：网络
-
-路透社援引知情人士消息称，中共正准备对腾讯控股（00700.HK）罚款至少100亿元人民币，但可能低于阿里巴巴的罚款金额。
-
-据称，腾讯面临处罚是因未申报其收购和投资事项，以及以音乐流媒体为重点的反竞争行为，而其核心业务，即视频游戏和微信，可能会保持不变。
-
-腾讯控股（00700.HK）是中国市值最高的上市公司，当前总市值6.04万亿港元。其2020年营业收入（人民币）4820.64亿，净利润1601.25亿。100亿元人民币的罚款就是其几天的收入而已。所以消息人士原话称，腾讯不介意支付高额罚款，如果需要的话，它愿意支付更多，只要它的核心业务保持不变。有阿里事件在先，3月底，马化腾亲自出马到中共国监管部门游说，内容显然就是要舍卒保车——舍不舍还有得谈，因为腾讯不缺钱。
-
-笔者之前《[中共放风马云必须出局！阿里巴巴反垄断只是表象](https://gnews.org/zh-hans/977237/)》等文章，对阿里巴巴和蚂蚁集团一系列事件进行了梳理和分析，从中我们知道，反垄断只是中共的幌子，中共派系斗争、打压可能威胁中共极权统治根基的势力，以及收割民企财富，是其最大目的。阿里巴巴被反垄断调查，主要是因为牵涉到习江斗，马云是江派的白手套和马仔，行事高调，自然成为中共最先下手的对象。如果单纯看真正的垄断和限制竞争行为，在腾讯面前，阿里蚂蚁系就是小巫见大巫。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01031458/%E5%9B%BE%E7%89%8715.png)图片来源：网络
-
-腾讯在中共屏蔽国外同类软件的保护下，通过微信垄断了中共国十四亿人的社交通讯，中共也正需要这样一个垄断性的软件以方便言论管控，形成了极权与垄断企业的完美勾结。有用户才有未来，微信支付追赶支付宝的速度得到验证，腾讯利用捆绑微信的微信支付，成为中共国移动支付领域唯一有实力挑战支付宝的公司。腾讯更以庞大的用户量为要挟，在互联网领域坑蒙拐骗偷，甚至直接抢夺，扼杀创新，排他竞争，不择手段，攻城掠地，最终形成了中共国互联网领域的超级垄断控制。
-
-在中共国，很多有一定创新的互联网创业企业，只有两个选择，被腾讯收购控制或者被腾讯打压，还有第三个，就是被腾讯消灭。有互联网创业者就在网络发文描述其经历，腾讯投资团队假借投资名义，当面了解其商业创意、技术和模式，拿到相关资料后，转身就利用其人力和财力优势，迅速推出同类产品。创业者救命投资款没拿到，死刑判决书倒有了。
-
-慑于和诱惑于腾讯的社交用户流量，美团、京东、拼多多等大的互联网企业都被腾讯控制或者腾讯让拥有重要影响力。其中，京东和美团APP支持微信支付，却屏蔽支付宝或者对其不友好，腾讯恰恰是它们的最大股东。这是京东和美团公司的意愿呢，还是腾讯投资合作中提出的硬性要求？这个马化腾心里很清楚。看得见的事实是，微信和QQ屏蔽了多个竞争对手的链接，包括淘宝、抖音等。2021年2月，抖音已经起诉腾讯的封禁行为。腾讯在涉足的业务领域，滥用市场支配地位、达成排他竞争和垄断协议的行为比比皆是。
-
-还有重要的一点，腾讯自发家的QQ起，就在模仿和偷窃，发展到今天的抢夺，未见其在技术、经营模式上有任何创新。阿里蚂蚁系至少曾经推动了中共国垄断金融业服务的进步，腾讯除了用微信严格配合中共控制民众言论，它还干过啥？
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01032116/%E5%9B%BE%E7%89%8716.png)图片来源：网络
-
-腾讯最厉害的是游戏。腾讯2020年网络游戏业务收入1561亿元，占其增值服务收入的59%，总营收的32.4%；游戏业务营收增速36%，在所有业务中增长最快，同期总营收增速为28%；游戏所在的增值服务业务毛利率最高，高达54%，总营收毛利率为46%。也就是说，腾讯最大的营收和净利润来源是网络游戏，并且占比还在上升。请别告诉我网络游戏有创新，有核心技术！
-
-腾讯自研的互联网产品，比如电商、搜索、微博客等，大多以失败告终。最终靠游戏赚来的钱，加上微信用户量的威慑，腾讯买买买头部企业，并持续胁迫和诱惑，最终合并竞争对手，形成了各领域的垄断。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01032246/%E5%9B%BE%E7%89%8717.png)图片来源：网络
-腾讯可谓劣迹斑斑，罪行累累，这就是中共国最大上市公司腾讯的真实情况。所有在中共国生活的网民对腾讯的恶深有体会，深恶痛绝腾讯甚于阿里蚂蚁系。腾讯是中共国互联网行业的垄断巨头和最大毒瘤。并且，腾讯牵涉到中共各派的利益，其在互联网领域的发展和垄断行为更是在盗国贼的庇护下进行的。
-
-观察此次消息，法律对未申报收购没有处罚力度，对排除、限制竞争行为抓小放大，罚款低于阿里巴巴，而微信的垄断调查不在其中。证实了腾讯背后利益的错综复杂，更证明了反垄断只是中共内斗时的幌子，演戏给民众——我中共“反垄断动真格”！中共通过外媒透露消息，既为试探民间反应，更是警告企业和利益相关方，给各方站队和勾兑的时间。也许马化腾已向当今“皇上”表忠了。很快到来的对腾讯的调查和处理不会伤腾讯筋骨，罚款只是九牛一毛。
-
-笔者《[中共市监局对美团立案调查，腾讯还会远吗？](https://gnews.org/zh-hans/1141275/)》一文中，认为中共对美团下手的原因之一就是假装执法立牌坊，因为为阿里量身定做的“反垄断风暴”需要继续演下去才能掩盖派系斗争的实质。消息人士的说法也验证了这点：“监管部门的态度是，与阿里巴巴不同，你（腾讯）不是最大的目标，但现在运动正在进行，不可能不对腾讯进行惩罚。”
-
-然而，腾讯躲过此劫，并不意味着其未来有好结局。马化腾虽然也是中共多个派系的白手套，但名义上是个相对独立经营的民企，中共怎么会允许你坐大失控，尤其在派系斗争中你就是牺牲品。在中共极权与邪恶体制下，钱财都是中共的，你只是代管而已，站错队还有性命之虞，前有王健等，今有马云，那马化腾能走多远？中共体制是个绞肉机，参与者最终都逃不过。在当前全世界联合灭共的浪潮下，中共这个邪恶政权崩溃的日子即将来临，谁也无法改变。自由民主的中国、新中国联邦，也不会允许腾讯这样的影响中国发展的大毒瘤存在！马化腾等中共国商人，务必及时认清方向，走向正义才有善报。
-
-(文章仅代表作者本人观点)
-
-参考来源：
-
-[EXCLUSIVE China readies Tencent penalty in antitrust crackdown- source**s**](https://www.reuters.com/world/china/exclusive-china-readies-tencent-penalty-antitrust-crackdown-sources-2021-04-29/)
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
+直播视频：
 
 
 
-**更多资讯，更多关注**
+《路德时评》2021年4月30日晚间节目主要内容：
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+一、Sellin发推将史迪威、陈纳德、杜立特及其本人并列排放
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+Sellin博士5月1日发推说道：“相信中国人民胜利的美国士兵。”Sellin博士还放上四位美国军官照片，分别是史迪威、陈纳德、杜立特和Sellin本人。
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+> 相信中国人民胜利的美国士兵[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/CG9YWgooSu](https://t.co/CG9YWgooSu)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 30, 2021](https://twitter.com/LawrenceSellin/status/1388182835601739782?ref_src=twsrc%5Etfw)
 
-0
+
+
+路德社评论：
+
+1、史迪威出生于美国佛罗里达州，美国陆军四星上将，曾经在二次大战期间驻中国接近三年，任驻华美军司令，东南亚战区副司令，盟军中国战区参谋长，支援中国物资等职务，后因与委员长蒋中正关系破裂而被调任，1946年去世。[\[1\]](https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%91%9F%E5%A4%AB%C2%B7%E5%8F%B2%E8%BF%AA%E5%A8%81)
+
+2、陈纳德曾为美国陆军航空队中将，飞行员。陈纳德有法国裔和匈牙利裔家庭背景，陈氏是二次大战时在中华民国抗日战争作战的美国志愿航空队（“飞虎队”）的指挥官，有“飞虎将军”之称。陈纳德将军的夫人是华裔美国政治家陈香梅女士。[\[2\]](https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%91%9F%E5%A4%AB%C2%B7%E5%8F%B2%E8%BF%AA%E5%A8%81)
+
+3、杜立特上将曾是美国空军将领、杰出的特技飞行员和航空工程师，第二次世界大战中率编队首次空袭日本东京，史称杜立特空袭，杜立特因此次行动成为美国人心目中的英雄，他也因这次行动中的贡献获颁荣誉勋章。[\[3\]](https://zh.wikipedia.org/wiki/%E8%A9%B9%E5%A7%86%E6%96%AF%C2%B7%E5%93%88%E7%BE%85%E5%BE%B7%C2%B7%E6%9D%9C%E7%AB%8B%E5%BE%B7)
+
+4、史迪威、陈纳德和杜立特这三位将领都曾在二战时期帮助中国抗击日本军国主义，在中共病毒肆虐的今天，美国将领Sellin博士依然与中国人民站在一起，照片中的新中国联邦旗帜就代表中国人民，可见全世界正义力量在支持新中国联邦。
+
+5、前三位将领都参与过二战，Sellin博士将自己照片与这三位将领并排就是在告诉全世界，中共发起的超限生物武器战争比肩二战，前三位将军都曾帮助中国人抵制日军侵略，新中国联邦爆料革命向全世界揭露中共病毒真相后，美国将和中国人民一同灭共，为中国人民赢得自由。
+
+6、近日，爆料革命战友和其他正义人士向Sellin博士提供了大量中共开展生物武器研究的证据，这让Sellin博士有感而发，在维护正义的道路上，中国人再次和美国并肩作战，这也让美国看到中国的希望，知道中共不等于中国人。
+
+二、美最高将领明确将军力聚焦中共国
+
+路透社5月1日报道[\[4\]](https://www.reuters.com/article/us-usa-military/next-major-war-will-be-very-different-us-defense-secretary-says-idUSKBN2CH2QO)：国防部长劳埃德·奥斯丁（Lloyd Austin）周五在前往夏威夷的美国太平洋司令部访问期间首次发表重要政策方面的讲话，美国需要为将来可能发生的冲突做准备，下一场主要战争的战斗方式将与我们此前的战斗大相径庭，这与五角大楼长期关注的“旧式战争”几乎没有相似之处。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01031908/%E7%BE%8E%E5%9B%BD%E9%98%B2%E9%83%A8%E9%95%BF.jpg)[美防长](https://s.wsj.net/public/resources/images/S1-JX114_USISRA_M_20210409094014.jpg)
+CNN4月30日报道[\[5\]](https://edition.cnn.com/2021/04/30/politics/us-japan-south-korea-generals-meet-intl-hnk/index.html)：美国最高将军周四同韩日军方举行会晤，美国军方称他们将“维护该地区长期和平与稳定”的承诺，并强调了美国将从中东向中共国进行更广泛的转移。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01031856/210303070141-file-mark-milley-2020-exlarge-169.jpg)[图片地址](https://cdn.cnn.com/cnnnext/dam/assets/210303070141-file-mark-milley-2020-exlarge-169.jpg)
+路德社评论：
+
+1、中共军事教材《非典非自然起源和人制人新种病毒基因武器》这本书将中共病毒称为当代基因武器，路德社曾在节目中说一次世界大战是化学武器的战场，二次世界大战是核武器的战场，第三次世界大战就是超限生物武器的战场，美国军方现在也意识到中共病毒战是中共发起的新型战争模式。
+
+2、中共对美国发起的超限战与传统战争有巨大区别，中共用超限战的方式对美国的媒体、金融、科技等各个领域发起全面攻击，中共病毒战直接将这场超限战带入高潮，美军将采用最新的反制措施应对这场战争，Sellin博士就代表美国军方奋战在一线。
+
+3、美国军事部署已经做出全面调整，从中东转移至中共国，美国将从此前的反恐主义全面转变为反共主义。
+
+三、基辛格警告美中紧张局势存在巨大危险
+
+基辛格（Henry Kissinger）周五在麦凯恩研究所全球问题塞多纳论坛上表示，美中紧张局势有可能吞没整个世界，并可能导致两大军事科技巨头之间发生类似世界末日的冲突。这两个超级大国的经济，军事和技术实力的融合所带来的风险远大于美国与苏联冷战的风险[\[6\]](https://www.france24.com/en/live-news/20210430-kissinger-warns-of-colossal-dangers-in-us-china-tensions)。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01031847/%E5%9F%BA%E8%BE%9B%E6%A0%BC.jpg)[基辛格](https://cdn.dayu.news/article/202103/28/93911/bac30256-6f18-4252-aa06-06868ddb63bb.jpg)
+路德社评论：
+
+1、基辛格对美中局势变化的论调已经有所转变，从此前的合作关系转变为敌对关系，基辛格也意识到中美冲突不可避免，他说出此番言论也意味着他将与中共保持距离。
+
+2、基辛格将中美关系与美苏冷战进行对比，一方面中美之战就是一次意识形态之战，另一方面中美之战的影响力和对全球的冲击力将远超美苏冷战。他也在提醒美国要做好心理准备。
+
+3、除此之外，新上任的印太司令官将于5月份访问日本，可见美国各个层面正在做全方位准备来应对中共国挑战。
+
+[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+
+参考文章：
+
+[1][https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%91%9F%E5%A4%AB%C2%B7%E5%8F%B2%E8%BF%AA%E5%A8%81](https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%91%9F%E5%A4%AB%C2%B7%E5%8F%B2%E8%BF%AA%E5%A8%81)
+
+[2][https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%91%9F%E5%A4%AB%C2%B7%E5%8F%B2%E8%BF%AA%E5%A8%81](https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%91%9F%E5%A4%AB%C2%B7%E5%8F%B2%E8%BF%AA%E5%A8%81)
+
+[3][https://zh.wikipedia.org/wiki/%E8%A9%B9%E5%A7%86%E6%96%AF%C2%B7%E5%93%88%E7%BE%85%E5%BE%B7%C2%B7%E6%9D%9C%E7%AB%8B%E5%BE%B7](https://zh.wikipedia.org/wiki/%E8%A9%B9%E5%A7%86%E6%96%AF%C2%B7%E5%93%88%E7%BE%85%E5%BE%B7%C2%B7%E6%9D%9C%E7%AB%8B%E5%BE%B7)
+
+[4][https://www.reuters.com/article/us-usa-military/next-major-war-will-be-very-different-us-defense-secretary-says-idUSKBN2CH2QO](https://www.reuters.com/article/us-usa-military/next-major-war-will-be-very-different-us-defense-secretary-says-idUSKBN2CH2QO)
+
+[5]h[ttps://edition.cnn.com/2021/04/30/politics/us-japan-south-korea-generals-meet-intl-hnk/index.html](//edition.cnn.com/2021/04/30/politics/us-japan-south-korea-generals-meet-intl-hnk/index.html)
+
+[6][https://www.france24.com/en/live-news/20210430-kissinger-warns-of-colossal-dangers-in-us-china-tensions](https://www.france24.com/en/live-news/20210430-kissinger-warns-of-colossal-dangers-in-us-china-tensions)
+
+文章撰写：【重生】  编辑：【香柏树】
+
+本文仅代表作者个人观点
+
++1
