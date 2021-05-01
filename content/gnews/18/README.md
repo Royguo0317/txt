@@ -1,75 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国将在8月放开对国际学生的入境限制
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1160027/)
+## 【世事解评】灭共利器，浅谈阿利·伯克级驱逐舰
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1160115/)
 
-新闻来源：《Reuters 路透社 》| 作者：David Shepardson | 发布时间：2021年4月28日
-翻译/简评：clau | 校对/审核：万人往 | Page：Daoiii
+作者：纽约香草山健身部 Jack Li文阳
 
-[!\[\]()!\[\](https://spark.adobe.com/page/nnKIDXA3ix03u/images/777e2e46-8327-4006-bde8-1db86e343516.jpg?asset_id=b7e10aa4-454a-460b-acfa-eaad8924f529&amp;img_etag=%220ebe844fb2035fd73c743f3a38987e2b%22&amp;size=1024)](https://spark.adobe.com/page/nnKIDXA3ix03u/images/777e2e46-8327-4006-bde8-1db86e343516.jpg?asset_id=b7e10aa4-454a-460b-acfa-eaad8924f529&amp;img_etag=%220ebe844fb2035fd73c743f3a38987e2b%22&amp;size=1024)
-
-**简评：**
-
-**美国国务院在周二决定将从8月1日起放宽在秋季前往美国的中国和其他国家学生的限制，美国教育委员会推动了这一政策的调整。去年因为新冠疫情的影响，美国减少国际学生入境，导致经济效益相较2019年下降了约20亿美元。美国大约有37.2万名的中国学生，占美国国际学生的35%，贡献的经济效益约为160亿美元。**
-
-**美国各行各业的都需要复苏，教育行业也不例外，作为美国国际留学生群体中最大的“金主”，中国留学生被放宽限制允许入境，这符合教育行业的利益吗？是的。符合美国在国家安全层面以及公共卫生安全层面的利益吗？还真不好说。资本主义社会，没有资本就没有主义，很现实，也很无奈。希望现在的美国政府能权衡好利弊，做出真正对美国人民有利的决策，或者在调整政策的同时，建立好配套的应对突发状况的机制。毕竟没有哪个国家能再承受一次病毒的袭击了。看看现在的印度，即便强大如美国，也经受不起病毒的再次大爆发。**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/nnKIDXA3ix03u/images/2d1005f6-7472-4a41-a4b2-bbe7a39b82bc.jpg?asset_id=56d286de-b746-4632-8af1-6ef3067ae1f9&amp;img_etag=%229490251a5e9477d8e2f4004d33c3544f%22&amp;size=1024)](https://spark.adobe.com/page/nnKIDXA3ix03u/images/2d1005f6-7472-4a41-a4b2-bbe7a39b82bc.jpg?asset_id=56d286de-b746-4632-8af1-6ef3067ae1f9&amp;img_etag=%229490251a5e9477d8e2f4004d33c3544f%22&amp;size=1024)
-
-**原文翻译：**
-
-## 美国放宽对中国学生的新冠病毒限制
-
-[!\[\]()!\[\](https://spark.adobe.com/page/nnKIDXA3ix03u/images/2afcc991-61fe-4612-a8ec-48aa65bd993d.png?asset_id=152103f3-801c-4a67-b528-dbecb7ad877e&amp;img_etag=%22999cbfba7adf303d9c632f7c064371d7%22&amp;size=1024)](https://spark.adobe.com/page/nnKIDXA3ix03u/images/2afcc991-61fe-4612-a8ec-48aa65bd993d.png?asset_id=152103f3-801c-4a67-b528-dbecb7ad877e&amp;img_etag=%22999cbfba7adf303d9c632f7c064371d7%22&amp;size=1024)2021年3月9日，美国华盛顿特区，一名学生在乔治城大学的阳光下学习。路透社/Kevin Lamarque
-
-拜登政府周二表示，它正在放宽对今年秋季前往美国的中国和其他国家学生的限制，这可能会帮助那些在新冠病毒大流行期间招生人数减少的大学。
-
-美国国务院说，它正在扩大其国家利益豁免范围，从8月1日起涵盖来自世界各地的学生和学者。它在3月为欧洲学生做出了这一政策调整。
-
-根据国际教育交流协会(IEE)的数据，在2019-20学年，美国大约有37.2万名的中国学生，占美国国际学生的35%，几乎是第二高的印度学生的两倍。
-
-根据国家学生信息交流中心的数据，2020年秋季，高等教育的总体入学率下降了2.5%，几乎是2019年秋季报告降幅的两倍。
-
-2020年1月，时任总统唐纳德·川普禁止了几乎所有在中共国的非美国公民进入美国。
-
-“我真的很高兴拜登政府在经历了新冠病毒疫情和川普的可怕政策的干扰后至少恢复了某种程度的正常状态。”23岁的张某说。
-
-这位北京人说，他计划在加州大学伯克利分校攻读研究生课程。
-
-美国教育委员会（ACE）曾敦促总统乔·拜登的政府迅速采取行动，在上个月的一封信中说，它可以“向目前和未来的国际学生传递一个欢迎的信息，这可以帮助恢复美国作为首选目的地的地位，并在美国经济从新冠病毒大流行中恢复时作为一项重要的经济活动支撑。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/nnKIDXA3ix03u/images/6de28c90-19a7-4de4-b516-3d53576f2dc1.jpg?asset_id=0262474d-b857-480b-8e78-434e134166eb&amp;img_etag=%229adca0bd4e54cc60f8c7b51af13300da%22&amp;size=1024)](https://spark.adobe.com/page/nnKIDXA3ix03u/images/6de28c90-19a7-4de4-b516-3d53576f2dc1.jpg?asset_id=0262474d-b857-480b-8e78-434e134166eb&amp;img_etag=%229adca0bd4e54cc60f8c7b51af13300da%22&amp;size=1024)
-
-“这是美国迈出的积极的一步。”中共国外交部发言人赵立坚星期三告诉记者。
-
-“我们希望美国能够妥善安排中国赴美人员，为恢复人员交流创造有利条件。”
-
-目前还不清楚美国大学或美国政府是否会承认中共国学生接受的未经美国食品和药物管理局批准的疫苗接种。一些美国学校正在要求学生在复课前完全接种疫苗。
-
-另一个大问题是要求首次申请学生签证的人在美国大使馆和领事馆进行面试。国务院周二表示，它会“继续寻求方法，根据卫生当局的科学指导，处理更多的签证申请”。
-
-美国教育委员会援引一项研究说，在2019-20学年，国际学生产生的经济效益下降了约20亿美元，降至约390亿美元。
-
-国际教育交流协会的报告说，在2019学年，中国学生给美国带来的效益估计为160亿美元。
-
-20岁的杰西卡·袁(Jessica Yuan)是南加州大学的大二学生，她说她希望能在8月中旬之前回到美国。
-
-“我真的很期待回去和大家见面。”这位机械工程专业的学生说。
-
-“我无法相信已经过了一整年了！”
-
-🔗[原文链接](https://www.reuters.com/world/china/exclusive-us-ease-travel-restrictions-chinese-students-sources-2021-04-27/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/nnKIDXA3ix03u/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/nnKIDXA3ix03u/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+本月，美军最近发表了一张阿利·伯克级驱逐舰舰长在菲律宾海上跷脚远眺戏弄中共国辽宁号航母的照片，令阿利·伯克级驱逐舰出尽风头。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01040029/%E5%9B%BE%E7%89%8718.png)
+
+阿利·伯克级驱逐舰 （Arleigh Burke class destroyer）分为Flight Ⅰ/ⅠA(21艘)Flight Ⅱ(7艘)Flight ⅡA(40艘)等多种构型，现役共计68艘，仍有新舰在建造，是世界上建造数量最多的现役驱逐舰。
+
+伯克级驱逐舰 （是美国海军装备的一型配备了“宙斯盾”作战系统和AN/SPY-1 3D相控阵雷达的驱逐舰，主要任务为协同航母战斗群的防空作战。第一艘阿利·伯克级驱逐舰于1991年7月4日服役。并在2005年9月21日至2016年5月20日间一度成为美国海军唯一的现役驱逐舰级。伯克级成为美国海军在二战后建造数量最多的驱逐舰。排水量9,800吨（最新Flight III构型），全长超过155米。
+
+阿利·伯克级是至今世界上战力最强的驱逐舰之一，其重量和火力超过许多巡洋舰。伯克级主武装为舰上的MK-41垂直发射系统，载弹量为90枚。伯克级特别重视被动的防御，除了舰体大多为钢材料制外，在重要部分还使用了近130吨的[凯夫勒](https://zh.wikipedia.org/wiki/%E5%87%B1%E5%A4%AB%E5%8B%92)装甲。
+
+伯克级是第一艘采用隐身设计的美国军舰，舰上结构平面处皆为倾斜构造，并尽量使舰体边缘圆滑。舰体的一些垂直表面涂有雷达吸收涂料。伯克级使用新型倾斜式铝合金桅杆取代了格子桅，可降低船舰的雷达截面积。
+
+伯克级被设计为防空多用途驱逐舰，为适应防空作战他们有强大的宙斯盾作战系统和标准系列防空导弹；反潜则有拖曳声纳、鱼雷、ASROC反潜火箭，和反潜直升机；水面战有鱼叉导弹和RIM-174 标准六型导弹 SM-6 ERAM；并可配备战斧巡航导弹进行对地打击。宙斯盾战斗系统，是全世界第一种全数字化的舰载战斗系统。宙斯盾系统核心的防空管制能力极为出色，加上搭配了功能强大的AN/SPY-1 3D相控阵雷达，使其可同时处理大量目标 。
+
+伯克级也是第一型有核生化空气过滤器防护的驱逐舰，其舰体设计具有气密的效果，所有船舱皆可增加气压来防止核生化污染。
+
+伯克级作为世界上最新锐、最先进、战斗力最全面的驱逐舰，必定能为维持南中国海和台湾海峡的和平，以及威慑中共邪恶政权发挥更大积极的作用。
+
+参考阅读：
+
+[https://zh.wikipedia.org/wiki/%E9%98%BF%E5%88%A9%C2%B7%E4%BC%AF%E5%85%8B%E7%B4%9A%E9%A9%85%E9%80%90%E8%89%A6](https://zh.wikipedia.org/wiki/%E9%98%BF%E5%88%A9%C2%B7%E4%BC%AF%E5%85%8B%E7%B4%9A%E9%A9%85%E9%80%90%E8%89%A6)
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
 
 
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

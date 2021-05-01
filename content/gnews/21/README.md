@@ -1,84 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》解读美最高将领明确将军力聚焦中共国，及四位美国将领同框照片
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1159979/)
+## “对中共国强硬”需要方法和艺术
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1160002/)
 
-直播视频：
+#### 翻译：阿基米德 | 校对：卡拉马佐夫姐姐
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01033928/%E9%98%BF%E5%9F%BA%E7%B1%B3%E5%BE%B7.jpg)图片来源：金融时报
+中共大外宣《亚洲时报》发表洗地文章，坚称各国对中共的日渐强硬主要限于打嘴炮而不是实际行动。而事实恰恰相反，近两年来西方、印度和日本的行动与过去相比有质的变化。纵观十年前的光景，东南亚国家开始对中共国在南中国海的霸凌进行反抗、法国奥运会火炬传递时对内地少数民族的民主声援，从这些实际行动可以看出到从那时起政府和民间就已经有了反集权行动，而不是像某些媒体所说的仅仅停留在口头上的文字游戏，因此可以看出，西方、印度和日本自始至终都在逐步对中共国收紧包围圈。最近，我们看到的一些强硬措施包括：美国总统乔·拜登和日本首相菅义伟在四月发布联合公报重申了他们钢铁般的联盟；欧洲盟友英国、法国和德国向亚洲派遣军舰；以及印度正在筹建一个与民主国家相互结盟的”亚洲北约“组织。从我自身的理解来看，反集权及反独裁绝对不是政府层面的简单做秀表演，而是民间和有良知的政府官员相互配合推进的人类文明提升壮举。
 
+**打破中共国构建的吸血经济秩序**
 
+世贸组织总干事恩戈齐·奥孔乔·伊韦阿拉，曾游说美国说对中共国强硬会扰乱全球经济和贸易系统，加剧经济上原本由冠状病毒引发的[困难](http://www.xinhuanet.com/english/2021-04/28/c_139912077.htm)。这是彻头彻尾的洗地行为。以中共国为首的深层政府所构建的，靠剥削底层劳动人民的经济架构本身就是邪恶的源头，打破这种十恶不赦的规律是必须的，而所带来一定时期内经济动荡是必要的代价，更是让世界各国政府重回人性的还魂药。而现今的瘟疫大流行本身就是中共所为，是中共国存于世上结下的恶果，因此要想让世界重归向好，必须铲除这个邪恶源头。因此从这两个方面看，世贸组织总干事所提出的那两个问题的解决方案都直指“对中共国强硬”这个选项。
 
-《路德时评》2021年4月30日晚间节目主要内容：
+至于原文所提出“一些欧盟国家，包括法国和德国会因为会损害国家利益而不想对中共国强硬”这个观点来看，实属黔驴技穷，缺乏智慧的宿命论。即使利益是资本主义的核心考量，即便中共国控制着大量的财富，作为一个向善的人，一个想要逃脱邪恶死亡终结的人，都会自发的组织起来，形成与邪恶对抗的力量，因为大家都知道邪恶意味着终结，就算正义的力量再小，也会在逆境中得以求生，所以正义的力量最终会战胜邪恶。
 
-一、Sellin发推将史迪威、陈纳德、杜立特及其本人并列排放
+**中共国以中共病毒为跳板，妄图控制世界经济**
 
-Sellin博士5月1日发推说道：“相信中国人民胜利的美国士兵。”Sellin博士还放上四位美国军官照片，分别是史迪威、陈纳德、杜立特和Sellin本人。
+在任何情况下，中共国的军队总是配合国内的洗脑媒体和国外的大外宣媒体，表现出随时准备好对抗美国、欧盟和日本的军事包围，并兼以绑架台湾、香港，妄图在这两个地区实施军事冒险主义行为和共产主义邪恶统治，以此绑架自由世界盟友之情在经济上逼迫美、欧、日本及印度做出让步，通过进一步融入世界经济来支撑其经济发展。
 
+举例来说，中共国在去年和其他15个亚太国家达成了一类[贸易协议](https://www.bbc.com/zhongwen/simp/world-54917712)，以达到这些区域经济的全面控制，和欧盟（深层的欧共体政府）也签订了全面投资协议，全然不顾美国的抗议。除此之外，中共国还正在一带一路的政策带动下扩展投资和贸易，向非西方国家伸出邪恶的黑手，在贸易和投资方面进一步展开经济绑架，进而上升到政治绑架。
 
+同时，中共国借着在国外大搞流氓政治手腕的淫威，在国内制定 “双循环 “战略，将国内消费作为经济驱动力，制造更大的通胀，为国内独裁统治输血。另外，其在频次、规模和强度上提高了它的军事训练密度，以此在国内制造遍地风声鹤唳的环境，进而收紧民生支出，从百姓身上盘剥更多剩余价值。
 
-> 相信中国人民胜利的美国士兵[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/CG9YWgooSu](https://t.co/CG9YWgooSu)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 30, 2021](https://twitter.com/LawrenceSellin/status/1388182835601739782?ref_src=twsrc%5Etfw)
+**美国和盟国所面临的问题**
 
+综上所述，与西方国家、日本和印度相比，中共国的疫情“灭白计划”正在如火如荼的进行。由于这些国家仍在控制疫情蔓延，这些国家将不可能实现其经济增长目标。
 
+拿印度举例来说，这个国家正面临一场每天新增成百上千感染者的疫情危机。为了遏制疫情蔓延，印度不得不实施严格的封锁措施，因此在实现其2021年12%的经济规划增长的过程中正面临着不可逾越的困难。
 
-路德社评论：
+奥运会从去年起就一直在被推迟，而在当前第四波中共病毒大流行正威胁其奥运会举办计划的前提下，日本并不比其他国家有更好的光景。而且即便举办奥运会，由于体育赛事将没有外国观众，经济预期”一飞冲天 “的梦想已经破灭。
 
-1、史迪威出生于美国佛罗里达州，美国陆军四星上将，曾经在二次大战期间驻中国接近三年，任驻华美军司令，东南亚战区副司令，盟军中国战区参谋长，支援中国物资等职务，后因与委员长蒋中正关系破裂而被调任，1946年去世。[\[1\]](https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%91%9F%E5%A4%AB%C2%B7%E5%8F%B2%E8%BF%AA%E5%A8%81)
+美国和欧洲的经济只是稍微好一些，有所增长的原因大致是因为巨大的经济刺激计划，政府借入巨额资金以维持消费支出或拯救企业。毕竟补贴只是一个短期的创可贴解决方案。
 
-2、陈纳德曾为美国陆军航空队中将，飞行员。陈纳德有法国裔和匈牙利裔家庭背景，陈氏是二次大战时在中华民国抗日战争作战的美国志愿航空队（“飞虎队”）的指挥官，有“飞虎将军”之称。陈纳德将军的夫人是华裔美国政治家陈香梅女士。[\[2\]](https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%91%9F%E5%A4%AB%C2%B7%E5%8F%B2%E8%BF%AA%E5%A8%81)
+如果没有长期的经济复苏计划，缺乏投资资金和不断增加的国家债务，西方的大流行病后的复苏将面临风险。美联储和国家央行主席杰罗姆·鲍威尔，实际上承认了经济复苏仍旧“遥不可期”。
 
-3、杜立特上将曾是美国空军将领、杰出的特技飞行员和航空工程师，第二次世界大战中率编队首次空袭日本东京，史称杜立特空袭，杜立特因此次行动成为美国人心目中的英雄，他也因这次行动中的贡献获颁荣誉勋章。[\[3\]](https://zh.wikipedia.org/wiki/%E8%A9%B9%E5%A7%86%E6%96%AF%C2%B7%E5%93%88%E7%BE%85%E5%BE%B7%C2%B7%E6%9D%9C%E7%AB%8B%E5%BE%B7)
+一句话，各国应改变企盼经济复苏的定式思路，把经济危机看作转变思路的一剂苦口良药，专心灭共。
 
-4、史迪威、陈纳德和杜立特这三位将领都曾在二战时期帮助中国抗击日本军国主义，在中共病毒肆虐的今天，美国将领Sellin博士依然与中国人民站在一起，照片中的新中国联邦旗帜就代表中国人民，可见全世界正义力量在支持新中国联邦。
+**中共国能向世界提供什么呢？**
 
-5、前三位将领都参与过二战，Sellin博士将自己照片与这三位将领并排就是在告诉全世界，中共发起的超限生物武器战争比肩二战，前三位将军都曾帮助中国人抵制日军侵略，新中国联邦爆料革命向全世界揭露中共病毒真相后，美国将和中国人民一同灭共，为中国人民赢得自由。
+毫无疑问，现今中共国已被看作地球村鹤立鸡群的经济玩家。在当前疫情大流行无可知解药的前提下，中共国的V字型经济复苏正是疫情制造者最明显的特征。而其疫情恢复手段和长期的经济恢复政策正是其输出其共产主义意识形态的伎俩，所谓解药在手，顺者生，逆者死。目前掌控疫情局面的人将世界分成了两部分，苟且偷生者将沦为它的奴隶，与其相背者要么在沉默中死亡，要么在沉默中爆发。真是撒旦在世的真实写照。
 
-6、近日，爆料革命战友和其他正义人士向Sellin博士提供了大量中共开展生物武器研究的证据，这让Sellin博士有感而发，在维护正义的道路上，中国人再次和美国并肩作战，这也让美国看到中国的希望，知道中共不等于中国人。
+**中共国的逻辑悖论和道义流氓行为**
 
-二、美最高将领明确将军力聚焦中共国
+当中共国被指控其在新疆实施“种族灭绝”和“强迫劳动”的时候，中共国就会搬出西方和日本的殖民史。这样的论断经过仔细分析，便可得出其在逻辑和道义上的混乱和非人道。
 
-路透社5月1日报道[\[4\]](https://www.reuters.com/article/us-usa-military/next-major-war-will-be-very-different-us-defense-secretary-says-idUSKBN2CH2QO)：国防部长劳埃德·奥斯丁（Lloyd Austin）周五在前往夏威夷的美国太平洋司令部访问期间首次发表重要政策方面的讲话，美国需要为将来可能发生的冲突做准备，下一场主要战争的战斗方式将与我们此前的战斗大相径庭，这与五角大楼长期关注的“旧式战争”几乎没有相似之处。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01031908/%E7%BE%8E%E5%9B%BD%E9%98%B2%E9%83%A8%E9%95%BF.jpg)[美防长](https://s.wsj.net/public/resources/images/S1-JX114_USISRA_M_20210409094014.jpg)
-CNN4月30日报道[\[5\]](https://edition.cnn.com/2021/04/30/politics/us-japan-south-korea-generals-meet-intl-hnk/index.html)：美国最高将军周四同韩日军方举行会晤，美国军方称他们将“维护该地区长期和平与稳定”的承诺，并强调了美国将从中东向中共国进行更广泛的转移。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01031856/210303070141-file-mark-milley-2020-exlarge-169.jpg)[图片地址](https://cdn.cnn.com/cnnnext/dam/assets/210303070141-file-mark-milley-2020-exlarge-169.jpg)
-路德社评论：
+首先从逻辑上看，中共国的论断实际上否定了世界文明的发展。因为其用过去的西方殖民史和现今的中共国当代史进行比较，两个时代的文明程度显而易见的不同，而中共国的论断却用两个不同的标准进行比较，这在逻辑上不通。
 
-1、中共军事教材《非典非自然起源和人制人新种病毒基因武器》这本书将中共病毒称为当代基因武器，路德社曾在节目中说一次世界大战是化学武器的战场，二次世界大战是核武器的战场，第三次世界大战就是超限生物武器的战场，美国军方现在也意识到中共病毒战是中共发起的新型战争模式。
+再而从道义上看，中共国的论断可以简化为这样的意思：“不管A是否有所改正，只要A过去做了坏事，所以B现在做同类的坏事没有错”。这可以看作知错不改的例子，我们可以作进一步追问：“既然A改正了错误，那么B如何看待A改正错误了呢？”，显然B的实际行动已经能够说明B认为A过去并没有做坏事，这是B的本意；而B所说的却又在指责A过去做了坏事。综上所述，从一个人实际所为出发，可以判定B是一个做了坏事，又不承认的坏人。
 
-2、中共对美国发起的超限战与传统战争有巨大区别，中共用超限战的方式对美国的媒体、金融、科技等各个领域发起全面攻击，中共病毒战直接将这场超限战带入高潮，美军将采用最新的反制措施应对这场战争，Sellin博士就代表美国军方奋战在一线。
+原文链接：[‘Getting tough on China’ more rhetoric than reality](https://asiatimes.com/2021/04/getting-tough-on-china-more-rhetoric-than-reality/)
 
-3、美国军事部署已经做出全面调整，从中东转移至中共国，美国将从此前的反恐主义全面转变为反共主义。
-
-三、基辛格警告美中紧张局势存在巨大危险
-
-基辛格（Henry Kissinger）周五在麦凯恩研究所全球问题塞多纳论坛上表示，美中紧张局势有可能吞没整个世界，并可能导致两大军事科技巨头之间发生类似世界末日的冲突。这两个超级大国的经济，军事和技术实力的融合所带来的风险远大于美国与苏联冷战的风险[\[6\]](https://www.france24.com/en/live-news/20210430-kissinger-warns-of-colossal-dangers-in-us-china-tensions)。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01031847/%E5%9F%BA%E8%BE%9B%E6%A0%BC.jpg)[基辛格](https://cdn.dayu.news/article/202103/28/93911/bac30256-6f18-4252-aa06-06868ddb63bb.jpg)
-路德社评论：
-
-1、基辛格对美中局势变化的论调已经有所转变，从此前的合作关系转变为敌对关系，基辛格也意识到中美冲突不可避免，他说出此番言论也意味着他将与中共保持距离。
-
-2、基辛格将中美关系与美苏冷战进行对比，一方面中美之战就是一次意识形态之战，另一方面中美之战的影响力和对全球的冲击力将远超美苏冷战。他也在提醒美国要做好心理准备。
-
-3、除此之外，新上任的印太司令官将于5月份访问日本，可见美国各个层面正在做全方位准备来应对中共国挑战。
-
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
-
-参考文章：
-
-[1][https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%91%9F%E5%A4%AB%C2%B7%E5%8F%B2%E8%BF%AA%E5%A8%81](https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%91%9F%E5%A4%AB%C2%B7%E5%8F%B2%E8%BF%AA%E5%A8%81)
-
-[2][https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%91%9F%E5%A4%AB%C2%B7%E5%8F%B2%E8%BF%AA%E5%A8%81](https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%91%9F%E5%A4%AB%C2%B7%E5%8F%B2%E8%BF%AA%E5%A8%81)
-
-[3][https://zh.wikipedia.org/wiki/%E8%A9%B9%E5%A7%86%E6%96%AF%C2%B7%E5%93%88%E7%BE%85%E5%BE%B7%C2%B7%E6%9D%9C%E7%AB%8B%E5%BE%B7](https://zh.wikipedia.org/wiki/%E8%A9%B9%E5%A7%86%E6%96%AF%C2%B7%E5%93%88%E7%BE%85%E5%BE%B7%C2%B7%E6%9D%9C%E7%AB%8B%E5%BE%B7)
-
-[4][https://www.reuters.com/article/us-usa-military/next-major-war-will-be-very-different-us-defense-secretary-says-idUSKBN2CH2QO](https://www.reuters.com/article/us-usa-military/next-major-war-will-be-very-different-us-defense-secretary-says-idUSKBN2CH2QO)
-
-[5]h[ttps://edition.cnn.com/2021/04/30/politics/us-japan-south-korea-generals-meet-intl-hnk/index.html](//edition.cnn.com/2021/04/30/politics/us-japan-south-korea-generals-meet-intl-hnk/index.html)
-
-[6][https://www.france24.com/en/live-news/20210430-kissinger-warns-of-colossal-dangers-in-us-china-tensions](https://www.france24.com/en/live-news/20210430-kissinger-warns-of-colossal-dangers-in-us-china-tensions)
-
-文章撰写：【重生】  编辑：【香柏树】
-
-本文仅代表作者个人观点
-
-+1
+0
