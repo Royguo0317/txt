@@ -1,33 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】美媒疫情设想：中共军方对美军运动员释放新冠病毒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1161449/)
+## 美上将说太空已经成为战场
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1161519/)
 
-配音：香草山录音组：蒙古鸿雁
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/A.jpg)news.yahoo.com
+05月01日，美国太空部队总司令约翰·雷蒙德（John Raymond）上将告诉《华盛顿邮报》，在过去的几年里，太空已经成为与空中、陆地和海上一样的战场。
 
+他声称：“中共国是我们的持续威胁，而俄罗斯已经开发出了可以使我们的卫星失效或从地面、太空或网络空间摧毁它们的武器。”
 
+根据雷蒙德的说法，美国不应该卷入始于太空或蔓延到太空的冲突中。“我们的目标是防止这种情况发生，为了做到这一点，我认为我们必须采取有力的行动，改变我们威慑竞争对手和对手的方法。我们希望这一区域对每个人都是安全的。”将军说。
 
-4月28日，美国媒体网站《门户专家》发表乔-霍夫特（Joe Hoft）的文章，标题为《报告：中（共）国军方2019年10月是否对访问武汉的美国士兵运动员投放了COVID病毒以阻止特朗普连任？》文中对先前有人提出的中共针对美国大兵故意释放病毒这一说法，认为这是可能且符合逻辑的设想。
+3月，雷蒙德说，莫斯科和北京的太空能力是华盛顿的一个担忧。这位将军还谈到了俄罗斯的一颗卫星，旨在“摧毁地球轨道上的美国卫星”。俄罗斯总统新闻秘书德米特里·佩斯科夫称将军的担忧毫无根据，并指出莫斯科赞赏与美国在该领域的合作。
 
-文字版全文：**[【热点播报】美媒疫情设想：中共军方对美军运动员释放新冠病毒](https://gnews.org/zh-hans/1149059/)**
+2020年4月，美国空军太空司令部指责俄罗斯测试了一枚反卫星导弹。声明说，该武器能够摧毁处于低地球轨道（距离地球表面160-2000公里的高度）的卫星。雷蒙德随后说，就俄罗斯试验直接拦截导弹而言，对美国和盟国的威胁是“真实、严重和不断增长的”。俄罗斯外交部称关于莫斯科测试反卫星武器的声明是一个宣传上的失误。
 
-原文作者：纽约香草山翻译部  文明世界
+几个月后，太空司令部报告说，俄罗斯测试了一种直接拦截式反卫星导弹（DA-ASAT系统）。五角大楼没有具体说明情况发生的确切时间，但指出莫斯科正在开发和测试几种类型的太空武器，包括激光武器。
 
-发稿：正义的小新
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-**更多资讯，更多关注**
+参考链接：
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[https://www.rbc.ru/politics/01/05/2021/608cd4469a7947086632733f](https://www.rbc.ru/politics/01/05/2021/608cd4469a7947086632733f)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-+1
+0

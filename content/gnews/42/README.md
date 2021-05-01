@@ -1,67 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒再次成为港府禁止纪念六四的借口
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1161375/)
+## 【有声读物】美媒疫情设想：中共军方对美军运动员释放新冠病毒
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1161449/)
 
-新闻来源：《香港自由新闻》| 作者：未署名 | 发布时间：2021年4月28日
-翻译/简评：新街口 | 校对：SilverSpurs7 | 审核：万人往 | Page：我是球大哥
+配音：香草山录音组：蒙古鸿雁
 
-[!\[\]()!\[\](https://spark.adobe.com/page/nUqfIhXmVRwE9/images/4f0fdb59-bf6e-45b1-873d-9d20c5bc1967.jpg?asset_id=510ec4d5-0d47-414d-8948-2815c0f75df4&amp;img_etag=%22a5387d7650c0f34fc0572514812b8356%22&amp;size=1024)](https://spark.adobe.com/page/nUqfIhXmVRwE9/images/4f0fdb59-bf6e-45b1-873d-9d20c5bc1967.jpg?asset_id=510ec4d5-0d47-414d-8948-2815c0f75df4&amp;img_etag=%22a5387d7650c0f34fc0572514812b8356%22&amp;size=1024)
-
-每年6月4日在香港维多利亚公园举行的烛光守夜是在中共国境内唯一一个公开纪念89年天安门大屠杀的活动。每年都会有成千上万的香港人参加，这应该也是世界上参加人数最多、最隆重的一个纪念中共对支持民主运动的和平示威学生和市民进行野蛮屠杀的一个活动。
-
-中共对香港市民的这个集会早已经恨之入骨，这次以中共病毒为借口连续第二次禁止这个集会一点也不出乎意料。
-
-从1997年中共把香港从英国骗回到自己手中后，对香港的民主制度和体系进行了全方面的渗透、腐蚀和打压。但民主的理念在香港人心中根深蒂固，正是因为如此，他们才能30年来坚持不懈地每年都举行这个守夜活动，纪念被屠杀的受害者，同时也向世界提醒着中共是个野蛮的政权。也正是如此，才有数百万香港人在2019年到2020年的反遣恶法的抗战中勇敢地走上街头，表达自己的政治诉求。
-
-尽管去年以来有26位民主人士因组织、参与纪念活动而受到诉讼，但今年活动的组织者仍旧不懈、勇敢地、依照法律申请今年的纪念活动。这次申请肯定会不出意料地被中共控制的香港政府所禁止，甚至林郑月娥已经搬出国安恶法来进行威胁。但我们相信，勇敢的香港人一定会用自己的方式继续这个活动，因为香港是所有支持民主体制的华人心目中的圣城。
-
-**原文翻译：**
-
-## 香港再次以新冠病毒限制为借口，禁止维多利亚公园的纪念天安门大屠杀守夜活动
-
-*康乐及文化事务署已暂停处理所有组织（包括联盟）在公园举行活动的申请。*
-
-香港官员以冠状病毒大流行期间公众健康的担忧为由，连续第二年禁止了6月4日在维多利亚公园举行的、纪念1989年天安门大屠杀的守夜活动。
-
-康乐及文化事务署发言人本周三告诉《香港自由新闻》，他们已全面暂停处理所有组织和社团对非指定用途设施租赁的申请。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/nUqfIhXmVRwE9/images/4065d4d0-1e61-4ad0-8973-b2a9fc506b4d.jpg?asset_id=cc608b61-3702-4c58-ab33-e2305aa2bf8b&amp;img_etag=%22fcac5f45cd88661fc3e7b8c55f3a6f67%22&amp;size=1024)](https://spark.adobe.com/page/nUqfIhXmVRwE9/images/4065d4d0-1e61-4ad0-8973-b2a9fc506b4d.jpg?asset_id=cc608b61-3702-4c58-ab33-e2305aa2bf8b&amp;img_etag=%22fcac5f45cd88661fc3e7b8c55f3a6f67%22&amp;size=1024)照片：Kaiser/社会联合媒体。
-
-他说，该部门尚未拒绝在6月4日举行活动的申请，但未给出恢复处理请求的时间表,康乐及文化事务署的一份声明中说：“针对新冠疫情的最新情况，该部门已暂停处理用于非指定活动的免费娱乐和运动场所的申请，直到有进一步的通知。”
-
-该部门说，它已经通知了香港市民支援爱国民主运动联盟，该联盟在1990年至2019年之间组织了每一年的守夜活动。这也是在中共国土地上举行的唯一此类纪念活动。
-
-食物及卫生局局长周三表示，香港第四次冠状病毒感染浪潮维持在较低的水平，情况“大致稳定”。针对疫苗接种者较宽松的社会隔离规则将于周四生效。
-
-同时，康乐及文化事务署将于下星期一开始逐步恢复社区体育和娱乐活动。
-
-天安门大屠杀发生于1989年6月4日，终结了由学生主导的、在中共国的示威游行。据估计，人民解放军被部署到北京镇压示威者后，有数百人、也有可能是数千人丧生。
-
-**禁止守夜活动**
-
-维多利亚公园举行的烛光守夜活动每年都吸引了数以千计的人参加，从去年开始，被香港政府以担心疫情为由被禁止，这是三十年来该活动第一次被中断。尽管如此，还是有成千上万的人出席了纪念支持民主的示威者在大屠杀中的遇难者。
-
-从去年以来，已有26位民主人士被指控参与、煽动他人参加去年未经授权的集会。
-[!\[\]()!\[\](https://spark.adobe.com/page/nUqfIhXmVRwE9/images/083e54fb-9f98-4cf2-b2fd-21dbdacd18ec.jpg?asset_id=891138f3-1aaa-40d3-b068-c7a689b50994&amp;img_etag=%22bf8630c1ac8a2fc466577a979f08e95e%22&amp;size=1024)](https://spark.adobe.com/page/nUqfIhXmVRwE9/images/083e54fb-9f98-4cf2-b2fd-21dbdacd18ec.jpg?asset_id=891138f3-1aaa-40d3-b068-c7a689b50994&amp;img_etag=%22bf8630c1ac8a2fc466577a979f08e95e%22&amp;size=1024)天安门大屠杀守夜 2020年6月31日 香港维多利亚公园 图片：Studio Incendo。
-今年守夜活动的组织者已正式要求警察发出对此次活动不反对的文件。
-
-行政长官林郑月娥周二早些时候表示，是否允许该活动继续进行将取决于这些活动是否违反了国家安全法。
-
-林郑月娥说：“这在很大程度上取决于这些聚会中发生的事情，以及它们是否会涉及国家安全法明确禁止的犯罪——涉及分裂国家、颠覆中央政府和香港特别行政区政府、从事恐怖分子活动，或与外部政党勾结以危害国家安全的行为。”
-
-[原文链接](https://hongkongfp.com/2021/04/28/hong-kong-bans-victoria-parks-tiananmen-massacre-vigil-again-citing-covid-19-restrictions/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/nUqfIhXmVRwE9/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/nUqfIhXmVRwE9/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-0
+4月28日，美国媒体网站《门户专家》发表乔-霍夫特（Joe Hoft）的文章，标题为《报告：中（共）国军方2019年10月是否对访问武汉的美国士兵运动员投放了COVID病毒以阻止特朗普连任？》文中对先前有人提出的中共针对美国大兵故意释放病毒这一说法，认为这是可能且符合逻辑的设想。
+
+文字版全文：**[【热点播报】美媒疫情设想：中共军方对美军运动员释放新冠病毒](https://gnews.org/zh-hans/1149059/)**
+
+原文作者：纽约香草山翻译部  文明世界
+
+发稿：正义的小新
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++1
