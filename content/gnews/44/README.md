@@ -1,53 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】戴三个表
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1161134/)
+## 五一劳动节，别再祝我快乐，我一点都不开心
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1161205/)
 
-配音：香草山录音组 Swr拥抱太阳
+- 作者：盐和光
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01115959/%E5%9B%BE%E7%89%872-1.png)
+劳动只是为了活着，不存在光荣一说，也不快乐，谁说劳动快乐谁来试试吧
 
+当劳动者的薪水只能够糊自己的口而养不起家，那么劳动者就连动物都不如！因为，世上所有动物的劳动所得不但可以喂饱自己，还可以喂饱自己的孩子。
 
+当劳动者用尽他毕生的劳动也买不起一个安身立命遮风避雨的窝，那么劳动者就比小小的麻雀都不如！因为，小小的麻雀都能做到用自己一生劳动成果的千份之一，就能为自己搭建起自己一家人所享受的安乐窝。
 
+当劳动者的劳动所得比动物的劳动所得都不如时，说人的劳动是光荣的，就是在侮辱劳动者！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01120019/%E5%9B%BE%E7%89%871-2.png)
 
-
-乌鸦代表喜鹊
-
-王八代表池塘
-
-拳头代表手，膝盖代表腿
-
-
-
-拍马屁的代表不拍马屁的
-
-不拍马屁代表沉默
-
-沉默代表笼中窒息的鸟
-
-
-
-**文字版原文：[【香草诗词汇】戴三个表](https://gnews.org/zh-hans/573064/)**
-
-作者：香草山写作组 木白
-
-
-
-音频处理/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 4_April.jpg]()![This image has an empty alt attribute; its file name is 4_April.jpg](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

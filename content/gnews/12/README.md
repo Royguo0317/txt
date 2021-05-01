@@ -1,27 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄罗斯第一批疫苗已交付印度
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1161565/)
+## 欧洲数据库：中共病毒疫苗造成8,430人死亡，354,177人受伤
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1161693/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+- 作者：坐看云起时
+- 制图：七白石
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/05/I.jpg)newsindiaexpress.com
-05月01日，俄罗斯第一批《人造卫星五型》疫苗被运送到印度海德拉巴市。在推特上的疫苗页面上报道了这一消息。
 
-“在同一天（5月1日），全国开始大规模接种中共病毒疫苗，覆盖所有成年人口。”声明中说。
+《自由人类》5月1日报道，欧洲的疑似药物反应报告数据库EudraVigilance收录的数据表明，截至2021年4月24日，中共病毒疫苗导致了8430例死亡和354177例伤害事件。
 
-印度外交部的一位发言人向路透社证实，印度已经收到15万剂《人造卫星五型》疫苗。该部官员说，随后将有“数百万剂量”的疫苗，由制药公司雷迪博士实验室有限公司在印度销售。
+![](https://lh3.googleusercontent.com/41bFPLaRh7RtQFbH3ilMP8JhR_LQhTULnYP0I32OGlrKR-u88fvrzxnifUhNiBnLMaI80eX5Z3ZjNGhrrg7Ca7mIo6QF3955F5dI8mtvBsTMvwMIiMti8Fz1eE7_pNu3sJQpcR0)
 
-在过去几天里，印度正在不断创造每天患病人数的新纪录。因此，4月28日在全国发现了约36.1万例中共病毒病例，4月29日—天近38万例，4月30日约38.65万例，5月1日近40.2万例新感染中共病毒的病例。
+欧洲的疑似药物反应报告数据库（EudraVigilance）系统自2001年12月开始使用，于2012年又由欧洲药品管理局推出EudraVigilance网站，为公众提供可疑副作用（也称为可疑药物不良反应）的报告。这些报告由国家药品监管部门和持有药品上市授权（许可）的制药公司以电子方式提交给EudraVigilance。 该网站是一个旨在收集可疑副作用报告的系统，这些报告用于评估药品开发过程中的益处和风险，并在药品在欧洲经济区（EEA）获得授权后监测其安全性。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01154852/107322487_gettyimages-1027752634_mh1614961600575.jpg)
+它同时也跟踪实验性中共病毒疫苗产生的伤害和死亡报告。
 
-布里汉孟买市政府（BMC）宣布由于缺乏疫苗，4月30日至5月2日在印度孟买暂停接种疫苗。
+截至2021年4月24日，当前在欧洲使用的四种疫苗不良反应的数据汇总如下：
 
-俄罗斯正在协助印度，两架载有药品和医疗设备的飞机已经抵达该国。
+BioNTech Pfizer 疫苗：4524人死亡，151306人受伤；
 
-参考链接：
+Moderna公司疫苗： 2283人死亡，17625人受伤
 
-[https://www.rbc.ru/rbcfreenews/608d4b409a79472645614ffb](https://www.rbc.ru/rbcfreenews/608d4b409a79472645614ffb)
+牛津阿斯利康公司疫苗：1579人死亡，184833人受伤。
+
+强生公司疫苗：44人死亡，413人受伤。
+
+目前，丹麦和挪威已经完全暂停使用阿斯利康疫苗。 挪威公共卫生研究所发表的一份声明指出，阿斯利康中共病毒疫苗比中共病毒本身更危险，特别是对年轻人而言。但欧洲药品管理局（EMA）仍然继续推荐它，只是对其增加了安全警告，因为它会产生致命的血凝块。
+
+新闻来源：[自由人类](https://humansarefree.com/2021/05/european-database-of-adverse-drug-reactions-for-covid-19-vaccines.html)
 
 0
