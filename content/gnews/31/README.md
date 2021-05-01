@@ -1,38 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印度最黑暗的一天&#8211;连遭中共生物武器暴击
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1160276/)
+## 2021/04/28 班农采访(2): 郭文贵的情报完全准确，民众对疫苗的危害缺乏认识
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1160614/)
 
-翻译整理与评论: Hong
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01050548/%E5%8D%B0%E5%BA%A6%E6%9C%80%E9%BB%91%E6%9A%97%E7%9A%84%E4%B8%80%E5%A4%A9.png)
-图片来源网络
-据印度卫生部数据显示, 4月30日是印度历史上的最黑暗的一天, 在过去24小时内,新增感染中共病毒确认病例接近38万例，3天之内就有超过100万人感染中共病毒，同时，单日丧命于中共病毒的人数也飙升至3645人。目前，印度已有超过1800万确诊感染中共病毒病例，这个残酷的数据又一次刷新了全球单日新增中共病毒感染病例的纪录。
+视频字幕：雨中漫步 | 听写/翻译：Roberts | 校对：Clau | 简评/文字整理/编辑：胖丁 | Page：Daoiii
 
-该数字还在以惊人的速度继续攀升,专家断言，中共病毒在印度疯狂攻击的程度远远超出人们的想象，印度感染人数可能比官方报告的数字高出20倍至30倍。据ABC新闻报道，在首都新德里，每隔四分钟就会有一人丧命于中共病毒。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01050944/%E5%8D%B0%E5%BA%A6%E6%9C%80%E9%BB%91%E6%9A%97%E7%9A%84%E4%B8%80%E5%A4%A92.png)
-中共病毒再次疯狂地砸向印度, 给印度带来了毁灭性的灾难。 眼下的印度犹如人间炼狱, 医疗系统濒临崩溃、医用氧气、医疗设施频频告急、死亡人数持续飙升、火葬场、墓地也不堪负重，出现了一幕幕集体火化，百姓搭建临时设施，用柴火焚烧亲人遗体的残酷的场面。
+[!\[\]()!\[\](https://spark.adobe.com/page/a3C0EwGmKMSqg/images/f5e0760e-c5f5-4744-a883-a95940d880fd.png?asset_id=dbb06385-aa42-4f0b-a629-b631f2431afb&amp;img_etag=%22944cdad46f5e6d3ab3be180af71b9f9a%22&amp;size=1024)](https://spark.adobe.com/page/a3C0EwGmKMSqg/images/f5e0760e-c5f5-4744-a883-a95940d880fd.png?asset_id=dbb06385-aa42-4f0b-a629-b631f2431afb&amp;img_etag=%22944cdad46f5e6d3ab3be180af71b9f9a%22&amp;size=1024)
 
-眼下,随着中共病毒在印度持续恶化,印度国内民众纷纷设法逃离避难,有钱的人不惜支付高昂的价格，包机逃离本国，普通百姓逃往邻国或无奈“听天由命。” 与此同时，印度周边邻国也陆续关闭了边境。随之，多国对印度实施了旅行禁令，以便遏制中共病毒进一步的暴增。
+**简评：**
 
-然而，值得关注的是，中共这个跨国犯罪集团已经再次将双重变异毒株（生物武器）释放到全世界，向预定目标实施暴击。无论人们逃到哪里，无论人们采取什么措施，都躲不过中共病毒的疯狂攻击。
+**郭文贵先生爆料称，新冠病毒是来自武汉实验室的生化武器，疫苗不但对病毒不起作用，还能引起严重的副作用。三年来郭文贵先生的情报被证明是完全准确的，但人们对疫苗的危害仍然缺乏认识。实际上郭文贵先生的影响力已经远远超出了Gnews和GTV，中共视郭文贵先生为头号敌人，而主流媒体继续帮助中共掩盖病毒和疫苗的真相。**
 
-中共病毒是中共故意释放的生物武器，众所周知，郭文贵先生早在去年1月25日就警告全世界：“中共在武汉生化武器研究中心研究出了冠状病毒。” 今年4月25日，郭先生又再次警告全球 “中共制造病毒生物武器时一并制造了解药，这意味着中共掌握着全人类的命运。”
+GTV视频链接：[Mr. Bannon’s Weekly Interview Q 为什么还是没有或者很少的人听进去郭文贵先生的意见](https://gtv.org/video/id=608c11ba4486aa0bb231aa66)
 
-现在，中共这个跨国犯罪集团一手捏着不断变异的生物武器，一手捏着解药，摆出一副与全球对抗的嘴脸、无情地肆虐世界各国；不仅仅是印度，乃至全人类的命运都掌握在中共这个跨国犯罪集团的手中；在这决定人类命运的关键时刻，每个人应牢记郭文贵先生的警告，拿起觉醒的武器，集结正义的力量，彻底消灭中共这个绝世邪恶的跨国犯罪集团。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01051556/%E5%8D%B0%E5%BA%A6%E6%9C%80%E9%BB%91%E6%9A%97%E7%9A%84%E4%B8%80%E5%A4%A93.png)
-（文章仅代表作者本人观点,与GNews无关）
-审稿：文远
-编辑：MG4
 
-欢迎加入【澳喜农场】
-【澳喜文章1】
-【澳喜文章2】
 
-新闻参考来源：
-⦁ https://www.youtube.com/watch?v=YeENDV9Yygw
-⦁ https://www.youtube.com/watch?v=6ZL3fMGqp8Q
-⦁ https://www.economist.com/the-economist-explains/2021/04/28/are-indian-statistics-understating-covid-19-cases-and-deaths
-⦁ https://www.abc.net.au/news/2021-04-26/coronavirus-covid-19-india-narendra-modi-criticism-restriction/100094714
-![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2-1.jpg)
-+1
+**视频字幕：**
+
+**主持人：**班农先生，郭文贵先生一直说新冠病毒是生物武器。
+
+上个星期他在盖特上爆了另一个大料，就是疫苗对病毒没有作用，而且会引起严重的副作用。
+
+我的问题是，在过去三年他的情报已经被证明是非常准确的情况下，为什么还是没有或者很少的人听进去郭文贵的意见？
+
+**Bannon：**实际上我认为很多人都听进去了郭文贵的话。 郭文贵正在强化人们对疫苗的顾虑。
+
+注意，我不反对疫苗。我小的时候也接种疫苗，我在部队的时候也接种疫苗。
+所以我不是反疫苗者，但是我现在的的确确对疫苗有顾虑，很犹豫。
+我认为文贵对疫苗的担忧是非常非常直率的。
+他以往说过的事情比任何人都准确。 我认为有很多人听进去了他说的话。
+我认为现在全世界对疫苗的担忧，部分原因就是因为人们在听郭文贵的意见。
+
+我不是说这是一个主要原因，但肯定是其中一个因素。
+主流媒体永远不会这么说，记住，因为主流媒体是达沃斯党和世界经济论坛党的宣传机器。
+达沃斯完全与中共狼狈为奸，所以他们永远不会称赞郭文贵。
+尽管现在每个人都知道病毒不是自然的，而是来自武汉实验室，达沃斯党也不会说出事实。
+郭文贵早在2020年1月中旬就说了。
+
+现在大媒体开始明白对此他们没办法继续圆谎了，但是他们不会因此而给郭文贵一点荣誉。因为郭文贵是中共的头号敌人，而他们是跟中共一伙的。
+但是我认为无论是病毒解药、还是疫苗以及病毒的问题，都正在被人们重视。
+
+我认为郭文贵在全世界的听众远远不局限于Gnews和GTV。
+
+[**完整访谈视频**](https://gtv.org/video/id=60895bcb6c00a14130e170f3)
+
+**主播：**Daniel, Dr. TCC, Castle和Mike
+
+- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
+- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
+
+
+***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三直播***
+
+编辑：【英国伦敦喜庄园编辑部】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/a3C0EwGmKMSqg/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/a3C0EwGmKMSqg/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)
+
+
+
+0

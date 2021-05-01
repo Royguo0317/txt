@@ -17,6 +17,11 @@
 **郭文贵MILES** `2021-02-21T15:56:09`
 ##
 
+[5月1号：尊敬的战友们好，你们健身了吗？你们传播C C P病毒．香港危机真相了吗？中共的经济到了什么样的灾难的时刻，共产党要打赢冠状病毒这一仗的意义是什么？手段...](/content/getter/content/2021/05/608d69874486aa0bb231f904.md)
+
+**郭文贵MILES** `2021-05-01T14:45:27`
+##
+
 [4月30號：尊敬的戰友們好！剛剛录制幾個小時的［馬背英雄］新歌之後的感想．分享給大家！感謝唐平老師！威廉王老師！辛苦的付出！和對一個完全不具備唱歌的學生！所付出...](/content/getter/content/2021/04/608c8c9d4486aa0bb231c905.md)
 
 **郭文贵MILES** `2021-04-30T23:02:53`
@@ -155,10 +160,5 @@
 [Sean Duffy：高额债务使得美国更易遭受中共国货币战的攻击  Sean Duffy：Very high debt makes the US vulnera...](/content/getter/content/2021/04/607e86ab8616c84f0ff190eb.md)
 
 **郭文贵MILES** `2021-04-20T07:45:47`
-##
-
-[玛丽亚呼吁抵制北京奥运会，因为中共收集运动员的基因信息  Maria calls for a boycott of the Beijing Olympics b...](/content/getter/content/2021/04/607e86728616c84f0ff190dc.md)
-
-**郭文贵MILES** `2021-04-20T07:44:50`
 ##
 
