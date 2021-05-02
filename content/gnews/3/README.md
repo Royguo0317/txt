@@ -1,27 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Sellin博士揭露印度发现的中共病毒突变体更具传染性
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1163843/)
+## 中共国投入千亿英镑大肆收购英国资产
+` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1163987/)
 
 #### 作者:【默凡】
 
-5月2日，Sellin博士再发两条重磅推特：
+Dailymail新闻网5月2日报道称：中共国投资者至少投入1340亿英镑购买英国资产，其中包括私立学校，基础设施企业和数家排名靠前的英国公司。
 
-第一条：
+据《星期日泰晤士报》报道，总部位于中共国或香港的投资者和企业现在拥有泰晤士水务，希思罗机场和英国电力网络等关键基础设施业务的股份。该报称，中共国对富时100强公司的投资额高达570亿英镑。
 
-中共军事科学家在中共病毒中插入弗林酶切位点，这为印度出现P681R（脯氨酸转为精氨酸）突变体，并增加其传染性和致命性创造了条件，使弗林酶切位点更加危险。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02084517/E261F8D6-93D4-448A-A222-BE292CF3BA48.jpeg)
-Sellin博士引用了一篇4月24日发布的预印版论文，这篇论文题为《印度马哈拉施特拉邦第二波新冠肺炎疫情发现的L452R、E484Q和P681R新冠病毒突变体出现趋同进化》，该研究对L452R、E484Q和P681R这三种突变体进行结构分析后发现，突变可能会增加S1-S2切割的速率，并增加病毒与ACE2受体的结合能力，从而提高病毒的传染性。
+中共国在病毒大流行期间投资了数百所陷入困境的所私立学校，中共国公司已经拥有17所学校，但是这个数字将激增。去年中共国公司就购买了三所学校。
 
-第二条：
+在生物科技领域，中共国风投公司一直在悄悄购入多家生物科技公司股票，其中包括癌症生物公司Immunocore和基因测序公司Oxford Nanopore。
 
-P681H（脯氨酸对组氨酸）和印度出现的更具危险性的P681R（脯氨酸对精氨酸），这两个突变表明中共病毒的弗林蛋白酶切割位点是人工加入的，这在任何蝙蝠冠状病毒的自然近亲中都不存在。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02084806/AA4531C9-8880-498F-B46C-6E1C5F17EAFD.jpeg)
-从以上图片可以清楚地看到只有新冠病毒（第一行）的680到690位点有氨基酸（弗林酶切位点），而其他蝙蝠冠状病毒没有，这种不符合自然规律的现象足可以说明新冠病毒中的弗林酶切位点是人为添加的，并非自然进而成。
+依据Argus Vickers公司提供的数据，中共国目前持有的英国100家最大上市公司股票市值高达570亿英镑，比2015年增长了30%。中共国公司目前持有的富时100指数股票市值将近140亿英镑，其中近50%的英国汇丰银行股份被中共国投资者持有，总市值超过420亿英镑，在所有持股公司中排名第一。
 
 本文仅代表作者本人观点，不代表Gnews平台
 
-*校对/发表：文婷*
+参考文章：
+
+[https://www.dailymail.co.uk/news/article-9534637/Chinese-investors-spend-134-BILLION-UK-assets-including-infrastructure-FTSE-100-firms.html?ns\_mchannel=rss&ns\_campaign=1490&ito=1490](https://www.dailymail.co.uk/news/article-9534637/Chinese-investors-spend-134-BILLION-UK-assets-including-infrastructure-FTSE-100-firms.html?ns_mchannel=rss&amp;ns_campaign=1490&amp;ito=1490)
+
+校对/发布：文婷
 
 0
