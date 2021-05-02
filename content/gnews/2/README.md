@@ -1,39 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 黑山共和国 陷入一带一路丝绸之路的债务陷阱
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1162157/)
+## 中共疾控官员高福谈印度疫情恶化意在彰显“中共模式”
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1162283/)
 
-```
-新闻来源：经济周刊网络版
-记者：康拉德·菲舍尔（Konrad Fischer） 
-发布时间：2021年5月01日
-```
+编辑：艾瑞克
 
+截止5月1日10:30点，印度疫情单日新增病例19164969例，单日死亡211853例，疫情仍处于恶化状态。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01194634/medium.jpeg)图片来源：Flipbord
+中共国疾控中心主任高福日前在接受媒体采访时表示，印度疫情近期急剧恶化，其原因在于前期的NPI措施（非药物措施）没有跟上，才导致疫情恶化。NPI措施指戴口罩、保持社交距离、保持个人卫生。他还特意提到了保持距离包括“不要轻易聚会”，并说中共国在这方面一直做得很好。他认为，印度人口密度比较大也是疫情恶化的一个因素。
 
-欧洲中部的整个国家第一次威胁要依赖中国。 怪罪黑山的苦难：这条长达40公里的高速公路延伸到山区中间，
+高福同时指出，印度疫情跟以往不同的是，这次中等城市里（病例）比较多；印度变异毒株比过去的毒株传播力增强，中共国要小心这些毒株进入中共国，因此仍要加强目前的非药物措施的实施。
 
-欧洲中部的小国黑山引起如此多的关注，就像布鲁塞尔两周前收到的书面请求一样。黑山政府在要求欧盟帮助其还清贷款。仅靠她自己，她可能无法筹集积累的9.44亿美元。债主：中（共）国。
+2020年武汉疫情爆发期间，中共在疫区采取了严厉的管控措施，比如禁止居民出门，致使很多居民食物短缺。更有甚者，湖北黄冈一村民焉小文因疑似中共病毒肺炎被带走隔离，留下脑瘫儿子焉成一人在家，导致焉成疑被饿死。
 
-委员会发言人彼得·斯塔诺（Peter Stano）表示， “对黑山而言，欧盟是最大的财政援助捐助国，最大的投资者和贸易伙伴。但是，我们没有偿还从第三方那里获得的贷款。”自那时以来，世界上一直存在着一种担忧，即最近很少有人考虑到更理论上的可能性。即，中（共）国不仅通过非洲或南亚，而且通过欧洲中部，通过贷款协议使那些国家依靠自己。在黑山，具有讽刺意味的是：此项目对该国的经济毫无益处。
+高福不仅是中共国疾控部门官员，还是该国微生物研究所研究员、中科院院士。他对造成印度疫情恶化的病毒来源避而不谈，却只谈NPI措施，这对解决疫情是否真的有用？这背后有什么用意吗？
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01195536/medium-1.jpeg)图片来源：Flipbord
+文章仅代表作者本人观点，与GNews无关
 
-如卫星图像所示，这个项目非常庞大， 以至于可以很容易地从太空中识别出来。此项目将地中海和巴尔港与塞尔维亚连接起来。 黑山的东北部位于首都波德戈里察与塞尔维亚和科索沃的边界之间，从那里被视为一片绿色的山脉，被几条带有石灰色床的野生河流穿过。
+新闻来源：
 
-#### **简评：**
+[https://www.cnbc.com/amp/2021/05/01/op-ed-china-is-stepping-up-its-diplomatic-bravado-testing-how-hard-biden-will-push-back.html](https://www.cnbc.com/amp/2021/05/01/op-ed-china-is-stepping-up-its-diplomatic-bravado-testing-how-hard-biden-will-push-back.html)
 
-**众所周知的一带一路是中共向世界扩张的巨大阴谋。黑山共和国地处欧洲中部，中共利用这个项目，把黑手伸向欧洲，以此向外延申。这个长达40公里的高速公里，对当地的经济毫无益处，而地域的优势也让中共不能放手。**
+[https://haokan.baidu.com/v?pd=wisenatural&vid=7322361383590924318](https://haokan.baidu.com/v?pd=wisenatural&amp;vid=7322361383590924318)
 
-**现在黑山共和国突然意识到了危险，而自己已经深陷债务之中，只能向欧盟申请偿还这笔高达9.44亿没有的债务。谁是受害者，当然是黑山共和国的老百姓。庆幸的是，黑山终于醒悟了，现在是还钱，以后可能就是灭国。所以，中共是最大的恶毒政府，只能对抗，别无选择。 **
+[https://baijiahao.baidu.com/s?id=1698564158430765883&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1698564158430765883&amp;wfr=spider&amp;for=pc)
 
-**新闻原文链接：**
-🔗[Montenegro: Auf der Seidenstraße in die Schuldknechtschaft?](https://www.wiwo.de/technologie/wirtschaft-von-oben/wirtschaft-von-oben-104-autobahn-montenegro-auf-der-seidenstrasse-in-die-schuldknechtschaft/27143668.html)
+[https://www.google.com/amp/s/www.ntdtv.com/gb/2020/02/18/a102779556.html/amp](https://www.google.com/amp/s/www.ntdtv.com/gb/2020/02/18/a102779556.html/amp)
 
-* * *
+[https://m.sohu.com/a/369568769\_665455/?pvid=000115\_3w\_a](https://m.sohu.com/a/369568769_665455/?pvid=000115_3w_a)
 
-***翻译 /整理/ 简评：** Shuizhuyu **编辑整理/校对: **Ting Guo*
+校对/发稿：Penny
 
 0

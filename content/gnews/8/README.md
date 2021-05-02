@@ -1,39 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 前苏联叛逃者早年警告俄罗斯生物武器计划，今中共疯狂实施生物武器戕害全世界
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1162092/)
+## 5月1日美国政要和政评家推特精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1162159/)
 
-**编撰:WENJUN**
+参议员瑞克·斯科特： 美国的纳税人不应该为向 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 这样的暴政国家提供世界银行贷款而感到困惑。自豪加入参议员Chuck Grassley，参议员卢比奥 和同事们重新提出《世界银行诚信保护法》，以保护纳税人并对中共国追责。 【附卢比奥参议员新闻办公室相同内容推文】
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01191657/5-1.jpg)
 
-印度日前疫情如同海啸般爆发，三天感染人数超过百万，并且日本，澳洲，欧洲以及南美等地也是一波波的被袭击。中共的超限生物武器把世界变成了人间炼狱，同时，世界的舆论和民意越来越密集地在探究病毒的来源。日前，媒体应景地挖出了前苏联生物武器计划的叛逃者在美国接受采访的内容。
 
-前苏联生物武器计划的一名叛逃者在接受采访时说，莫斯科为第三次世界大战制定的冷战计划包括准备 “数百吨 “炭疽细菌和数十吨天花和鼠疫病毒。这位叛逃者Kanatjan Alibekov博士，现在被称为Ken Alibek，是苏联计划的一个分支的第二把手，他于1992年叛逃。这次采访时他说，在20世纪80年代初，这些细菌和病毒可以在几天内被安装在洲际弹道导弹的弹头上。47岁的哈萨克斯坦人Alibek博士说，在米哈伊尔-戈尔巴乔夫（Mikhail S. Gorbachev）下令停止生物武器计划一年后的1991年，俄罗斯军方仍在实施该计划。
+> American taxpayers shouldn't be on the hook for World Bank loans to oppressive nations, like Communist China. Proud to join [@ChuckGrassley](https://twitter.com/ChuckGrassley?ref_src=twsrc%5Etfw), [@marcorubio](https://twitter.com/marcorubio?ref_src=twsrc%5Etfw), & colleagues to reintroduce the World Bank Integrity Preservation Act to protect taxpayers & hold Communist China accountable. [https://t.co/UUGmEHkZ3X](https://t.co/UUGmEHkZ3X)
+> — Rick Scott (@SenRickScott) [May 1, 2021](https://twitter.com/SenRickScott/status/1388564026632835082?ref_src=twsrc%5Etfw)
 
-担任私人顾问的Alibek博士曾为美国政府撰写了一份关于苏联生物武器计划的高度机密研究报告。现在，他正在对一项几十年来一直是莫斯科最深层秘密之一的武器计划进行独特的公开描述。
 
-美国情报官员认为，在他知道的1975年至1991年苏联生物武器计划的规模和结构第一手资料方面，Alibek博士是可信的，但在他知道的第二手政治和军事问题上，他被认为不太可靠。
 
-他说，他相信部分莫斯科冷战时期的生物武器计划正以防御性研究为幌子在俄罗斯继续进行。1990年戈尔巴乔夫总统正式取消了进攻性武器计划，1992年叶利钦总统再次正式取消了该计划，在今天的俄罗斯，该计划官方上停止的。
+前白宫贸易顾问彼得·纳瓦罗: 羟氯喹似乎正在印度挽救生命。 尽管医疗保健系统较差，死亡率仍只是美国的1/6。 羟氯喹HCQ被广泛使用。 拒绝报道正面研究的[@cnn](https://twitter.com/CNN)和纽约时报[@nyt](https://twitter.com/NYT) 手上沾满鲜血。
 
-然而，Alibek博士说，”他们继续进行研究，开发新的生物制剂，他们进行研究，并解释为出于防御目的。
 
-关于俄罗斯是否坚持研究和开发生物武器的问题，在美国情报界引起了激烈的辩论。没有人有一个清晰的答案。许多分析家认为，旧苏联计划的一些内容仍在继续，但远不能确定它们是否包括开发进攻性武器。”我们可以说，俄罗斯继续在这一领域进行研究，以保持其军事生物战的潜力，” Alibek博士说。”他们保证了他们的人员第安全以及有相关的科学知识。而且他们仍然有生产的能力”。
 
-美国的生物武器计划是在近30年前被尼克松总统取消的。同时，美国继续对防御生物攻击的计划进行研究，这正如俄罗斯所说的那样。
+> Hydroxychloroquine appears to be saving lives in India. Mortality rate is 1/6th that in the U.S. despite inferior health care system. HCQ in widespread use.
+> 
+> Blood on hands of [@cnn](https://twitter.com/CNN?ref_src=twsrc%5Etfw) and [@nyt](https://twitter.com/NYT?ref_src=twsrc%5Etfw) which refuses to cover positive studies.
+> — Peter Navarro (@RealPNavarro) [May 1, 2021](https://twitter.com/RealPNavarro/status/1388507996779646979?ref_src=twsrc%5Etfw)
 
-Alibek博士是一名医学博士，在苏联军队中拥有上校军衔，他于1992年离开前苏联，乘坐商业客机从阿拉木图（当时的哈萨克斯坦首都）前往纽约市，没有像一些冷战时期的叛逃者那样戏剧性地逃跑。他选择不讨论其细节，说家乡的朋友会受到影响。
 
-Alibek博士的有关莫斯科生物战的内容是否属实以及多少内容符合现在实际情况，目前不得而知。以上可以作为一个对世界的警告，警告这个世界面临着可能的危险和不确定性，警告这个世界如果高科技被邪恶势力所运用后果将会有多么地严重。
 
-从Alibek博士的言论可能的事实中回到现实，现实正在上演着人间的惨剧，上演着没有人知道结果会有多惨烈的CCP病毒的一波又一波的疫情。2019年年底以来世界所遭受的中共的超限生物武器的毒害是每时每刻都在真实发生着，第三波甚至第四波疫情正在给世界带来前所未有的威胁。留给世界的时间不多了，唯有灭共才有可能让世界不坠入万劫不复的深渊！
+纽约前市长朱利安尼： 最新播报-为什么马克思主义批判性种族理论教导美国是邪恶的。 在Apple Podcast上收听Rudy Giuliani的“常识”广播节目最新一集，或在此处获得完整的视频体验：
 
-参考链接: [https://www.nytimes.com/1998/02/25/world/soviet-defector-warns-of-biological-weapons.html](https://www.nytimes.com/1998/02/25/world/soviet-defector-warns-of-biological-weapons.html)
 
-（文章只代表编者观点，与GENEWS平台无关）
 
-***校对发布**：文顾*
+> LATEST PODCAST –&gt; Why Marxist Critical Race Theory TEACHES AMERICA IS EVIL
+> 
+> Listen to the latest episode of Rudy Giuliani's Common Sense on Apple Podcasts or get the full video experience here: [https://t.co/UdLrMqkSwO](https://t.co/UdLrMqkSwO) [pic.twitter.com/7aMvA1DbP5](https://t.co/7aMvA1DbP5)
+> — Rudy W. Giuliani (@RudyGiuliani) [May 1, 2021](https://twitter.com/RudyGiuliani/status/1388526124028858370?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特: 美国内政部[@Interior](https://twitter.com/Interior)必须保持其承诺，保护佛罗里达海岸免遭石油钻探，与 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 所构成的威胁作斗争，并使美国的能源独立以保护美国的就业。 阅读我给内政部部长[@SecDebHaaland](https://twitter.com/SecDebHaaland) 的信涵可了解更多信息：（附信函链接 [http://bit.ly/3vDARP3](https://t.co/YYNIB7lE9j?amp=1)）
+
+
+
+> .[@Interior](https://twitter.com/Interior?ref_src=twsrc%5Etfw) must maintain its commitment to protect Florida’s coasts from oil drilling, combat threats posed by Communist China, and keep American energy independent to protect U.S. jobs. Read more in my letter to [@SecDebHaaland](https://twitter.com/SecDebHaaland?ref_src=twsrc%5Etfw): [https://t.co/HGUWbQuTtS](https://t.co/HGUWbQuTtS)
+> — Rick Scott (@SenRickScott) [May 1, 2021](https://twitter.com/SenRickScott/status/1388516295969320960?ref_src=twsrc%5Etfw)
+
+
+
+章家敦 (中国问题专家)： 这是 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 犯下世纪罪行的结果，故意将新冠 [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 越过其边界传播。 【转News24推文：印度人在停车场被火葬 – 家人不得不买票并等待（附火葬场照片）】 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) [#CovidIndia](https://twitter.com/hashtag/CovidIndia?src=hashtag_click) [#India](https://twitter.com/hashtag/India?src=hashtag_click) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click)
+
+
+
+> This is the result of [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s crime of the century, the deliberate spread of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) beyond its borders. [#CovidIndia](https://twitter.com/hashtag/CovidIndia?src=hash&amp;ref_src=twsrc%5Etfw) [#India](https://twitter.com/hashtag/India?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/2ZbHNwwEDl](https://t.co/2ZbHNwwEDl)
+> — Gordon G. Chang (@GordonGChang) [May 1, 2021](https://twitter.com/GordonGChang/status/1388345881376735232?ref_src=twsrc%5Etfw)
+
+
 
 0
