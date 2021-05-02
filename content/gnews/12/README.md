@@ -1,35 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 最新研究显示，辉瑞疫苗具有引发老年痴呆等神经退行性病变的风险
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1162187/)
+## 《我们的万亿货币帝国ep3-2》加密货币面临的主要问题
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1163738/)
 
-作者:【默凡】
+台湾宝岛农场直播节目组 主持：政清、台湾大牛、江玉山
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02070309/image0-2.jpg)[點擊觀看節目影片](https://gtv.org/video/id=608be8166c00a14130e32d3f)
+**加密货币面临的主要问题**
 
-《微生物与传染病学杂志》近日发表一篇题为《新冠RNA疫苗与朊病毒致病风险》[1]的论文，这份报告发现美国辉瑞公司研制的新冠病毒疫苗可能具有从未曾披露的长期健康影响，包括肌萎缩性侧索硬化症、老年痴呆（阿尔茨海默氏症）、或其他神经退行性病变” 。
+全球交易者认为最大的虚拟货币交易问题。这些因素加上透明度与法规的欠缺，推迟了公众广泛使用加密货币的进程。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02071206/%E5%9C%96%E7%89%87-1.png)图为Hcoin白皮书指出加密货币交易者在IT安全的主要风险逐年增长
+政清表示，加密货币发展的确因为这些问题受到了很大的限制。而Hcoin白皮书提到这主要问题，是表示Hcoin可以解决这存在已经的市场问题，这也直接体现出Hcoin的商业价值。
 
-图片资料：
+2014年，比特币全球第一个交易所被盗取85万个比特币，图表是按照2014年比特币价格统计。2018年，日本的加密货币交易所发行的加密货币全部被盗取，该交易所用全部的资金赔偿投资者。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01200946/33.jpg)
+这两事件发生，导致当时的加密货币交易价格狂跌，原因在于盗取后将进行抛售，会直接冲击到投资者，因此产生了恐慌心理，进而影响对加密货币市场的信心。
 
-[https://scivisionpub.com/pdfs/covid19-rna-based-vaccines-and-the-risk-of-prion-disease-1503.pdf](https://scivisionpub.com/pdfs/covid19-rna-based-vaccines-and-the-risk-of-prion-disease-1503.pdf)
+在加密货币行业中，投资者投资并非为资产配置，高度可能将资产全部放置在同一交易所中，若交易所被攻破，就代表着投资者的资产损失。在任何投资领域都会有安全性问题。
 
-该研究报告宣称：“当前基于RNA研发的新冠肺炎疫苗已在美国获得紧急批准并投入使用，而没有对该疫苗进行长期的安全性测试。”
+**加密货币的安全性是最核心议题 可能影响整体走向**
 
-这篇报告对辉瑞新冠肺炎疫苗在疫苗接种者中诱发病毒性疾病的潜力进行了评估。根据国家医学图书馆的一份报告，辉瑞疫苗是一款mRNA疫苗，这是一种未经测试的疫苗，它进入人体后可产生新蛋白，还可以整合到人类基因组中，这非常令人担忧。换句话说，普通人接种辉瑞疫苗后，随时可能出现大脑退化症状。[2]
+政清举“以太坊”为例，在遇到一次重大骇客攻击后，整体区块链因为安全性议题而分裂成两种版本。第一种，投资人支持以太坊进行代码更新，解决骇客攻击问题；另一版本，投资人则认为更新代码已经违背加密货币不可回溯性的初衷，因此决定继续维持原代码。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02071336/%E5%9C%96%E7%89%87-1-1.png)
+因此，Hcoin白皮书当中特别提及安全性问题，希望让投资人了解到Hcoin商业发展当中已经妥善考量到安全性问题。加密货币商业体系，相较于现存银行体系较不成熟，因此安全性问题在Hcoin发展够到特别的注意。
 
-该研究报告的摘要总结认为：“该发现及其他潜在的风险使作者相信，RNA新冠肺炎疫苗的监管批准为时过早，该疫苗造成的危害可能会大于收益。”
+政清认为从Hcoin白皮书当中，可以确定Hcoin的发展和现存的加密货币是完全不同的，Hcoin白皮书载明了面对各种层级资安攻击的有效技术解决方案。
 
-因此，研究者在这份报告末尾写道：这种疫苗可能是一种生物武器，甚至比起初感染还危险（The vaccine could be a bioweapon and even more dangerous than the original infection.）。
+**Hcoin愿景、使命**
 
-本文仅代表作者本人观点，不代表Gnews平台
+透过加密货币的特性及自身强大的专业技术能力，普及化后将排除传统银行体系的诸多限制，达到真正的实现个人行使财产权的自由。这是Hcoin白皮书传递给投资者最重要的讯息。
 
-参考文章：
+[第三部分点击接续阅读](https://gnews.org/zh-hant/?p=1163624)
 
-[\[1\]https://scivisionpub.com/pdfs/covid19-rna-based-vaccines-and-the-risk-of-prion-disease-1503.pdf](http://[1]https://scivisionpub.com/pdfs/covid19-rna-based-vaccines-and-the-risk-of-prion-disease-1503.pdf)
+整理╱zhong
+發布╱zhong
 
-[\[2\]https://www.globalresearch.ca/report-pfizer-vaccine-confirmed-cause-neurodegenerative-diseases-study/5743522](http://[2]https://www.globalresearch.ca/report-pfizer-vaccine-confirmed-cause-neurodegenerative-diseases-study/5743522)
-
-校对/发稿：Penny
-
-0
++2

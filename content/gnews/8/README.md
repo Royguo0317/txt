@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共想挑战美国的能源独立地位
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1162253/)
+## 中共虎视眈眈欲对台湾微芯片产能下手
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1163830/)
 
-4/30/2021 蓬佩奥：中共想要挑战美国独立的能源供给地位，这是令美国敏感的世界舞台地位。
+4/30/2021 通过控制台湾半导体产业，中共就能控制全球市场和最先进的制造产能，这甚至比控制世界领土更具价值。
 
 By： 【秘密翻译组 G-Translators】
 

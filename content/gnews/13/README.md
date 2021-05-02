@@ -1,61 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新德里创下单日中共病毒死亡人数最高纪录，死亡病例很可能是由危险疫苗引起的
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1162217/)
+## 【有声读物】一个深度贫困村的纪实（一）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1163745/)
 
-**作者：**Arsenio Toledo 2021-04-28
+配音：香草山录音组 Swr拥抱太阳
 
-**翻译：**加拿大温哥华圆成农场 卢卡斯
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01200834/%E5%9B%BE%E7%89%8712-1.png)图片来源：Arsenio Toledo原文
-《自然新闻》4月24日星期六，印度首都新德里创下了单日中共病毒死亡人数的最高纪录，24小时内有357人死亡。该市约3000万人在同一时期也记录了24，000多例新发病例。这些死亡发生在全国各地的疫苗接种激增之后。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-截至当天，新德里的中共病毒死亡人数接近14，000人，测试阳性率为32.27%。
 
-新德里目前的局势与3月份的情况大相径庭，当时平均每天只有4人死亡。
 
-新德里一家无家可归者慈善机构的执行董事苏尼尔·库马尔·阿莱迪亚说：”德里的情况非常糟糕。”政府的管治失败了。人群中有了恐慌。
 
-自4月16日封锁开始以来，阿莱迪亚一直在提供帮助给那些被中共病毒感染的人们以及他们的家人。
 
-“德里首席部长阿文德·凯里瓦尔早些时候向公众提到，该州的氧气储备仅够两天。他不应该这样说的。它散布了很多恐慌。他还有两天时间协调，”阿莱迪亚说。
+**村里的老人**
 
-“人们正在寻找床和氧气瓶。这些是物资方面的东西。现实，包括人们对形势的反应，都与他们的精神状态有关。
+这是一个国家深度贫困村
 
-根据该市卫生部门公布的数据，该市约有93，000例中共病毒活跃病例。5万多名活跃病例在家隔离，其余患者住进医院、中共病毒护理中心和其他临时中共病毒治疗中心。
+年轻人在外打工
 
-**新德里中共病毒危机压垮了墓地和火葬场**
+留下老人和小孩
 
-新德里空前的死亡人数已经将该市的墓地和火葬场推向了崩溃的边缘。由于在任何特定时间需要埋葬或火化的人数众多，许多指定地点被迫略过个人仪式和类似的印度教仪式。
+这里的老人一年没吃过一顿牛肉
 
-这是一个严重的问题，因为印度教徒相信这些仪式有助于将灵魂从重生的循环中释放。
+一辈子没做过一次飞机
 
-在Sarai Kale Khan火葬场，每天处理大约60至70具尸体，尽管该设施每天只能进行22次火葬。该火葬场不得不在建筑群的绿地上建造至少100个新平台，以预期每天的死亡人数还会进一步增加。
+很少出远门，大多时间活动于这座山里
 
-“完成这些新平台的建设压力很大，”一位在火葬场工作的人士表示。
 
-Sarai Kale Khan 的工作人员也因每天必须进行火葬的数量而过度劳累。情况对工人来说已经变得如此糟糕，死者的亲属经常不得不在火葬过程中提供帮助，例如移动物品和添加木柴。
 
-新德里最大的穆斯林墓地的墓主穆罕默德·沙米姆（Mohammad Shamem）表示，自大流行开始以来，已有1000多人被埋葬在那里。”我担心我们很快就会耗尽埋葬死人的空间，”沙米姆说。
+**文字版原文：[【香草诗词汇】一个深度贫困村的纪实（一）](https://gnews.org/zh-hans/548000/)**
 
-印度其他州和市政府也遇到了类似的担忧。印度西南部卡纳塔克邦政府最近对当地媒体NDTV说，该邦政府启动了确定可以开发的土地以建立临时火葬场的进程。
+作者：香草山写作组 木白
 
-在博帕尔市，许多火葬场被迫将其容量从每座十几座葬礼火炉增加到50多座。在巴德巴达维什拉姆加特火葬场，周六有110多人被火化。
 
-印度教火葬场官员马姆泰什·夏尔马（Mamtesh Sharma）说：”病毒像怪物一样吞噬了我们城市的人们。”我们只是不停地焚烧刚刚到来的尸体。就好像我们正处于战争之中。
 
-**评：**印度国自今年一月中旬开展疫苗接种运动(见下图)，然后到了4月中下旬印度全国中共病毒大爆发，从4月21日开始连续1周的时间全国每日新增中共病毒感染病例超过30万个，天天创造新的感染人数记录[1]。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01195845/%E5%9B%BE%E7%89%8713.png)图片来源：** **[**Virgilio Marin**](https://www.naturalnews.com/author/virgiliomarin)[1]
-本文说明，大规模接种中共病毒疫苗的新感染人数和死亡人数远远超过疫苗接种运动之前的数目，说明接种疫苗不但不能有效保护人们的生命健康，反而让他们更加容易被感染，死于中共病毒的再次大爆发，这种情况与之前报道说的接种过中共病毒疫苗的将在下一波中共病毒来袭时大规模地死亡，因为中共病毒疫苗对人们的危害胜过中共病毒本身。正如文贵先生最近在盖特视频里说的，目前所有的中共病毒疫苗都是假的，接种了这样的疫苗，自己就不得不面临随时死去的危险。中共病毒疫苗本身就是一个生物武器，接种疫苗相当于往自己身体了注射了一个定时生物炸弹。全球主义者制造推行中共病毒疫苗运动的目的时控制监控人类，和进行全球人口灭绝计划，是他们的全球大重启和建立世界新秩序的关键一环。印度的中共病毒大爆发近于失控，这样的情况下一步很可能会在美国发生，就是说会在那些对中共有严重威胁的国家发生。今天中共病毒大流行并没有减弱，仍然继续在肆虐全球，庆父不死鲁难不已！人类每一个人都不得不面临中共病毒带来的死亡威胁，要想活命，就必须问责中共，消灭中共，拿到中共手里的解药，从而控制和消除全球中共病毒大流行，彻底终结中共病毒大流行对全世界的危害！
+音频处理/发稿：雪梨
 
-#### **原文**：Arsenio Toledo, “New Delhi records highest ever single-day tally of 357 “coronavirus” deaths that are most likely caused by dangerous vaccines”.《 Natural News》, April 28, 2021.** **[https://www.naturalnews.com/2021-04-28-new-delhi-records-coronavirus-deaths-highest-tally.html](https://www.naturalnews.com/2021-04-28-new-delhi-records-coronavirus-deaths-highest-tally.html)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-#### [1] [Virgilio Marin](https://www.naturalnews.com/author/virgiliomarin), “Booster shots can create VACCINE-RESISTANT variants of the coronavirus, scientists warn”. 《 Natural News》, April 29, 2021.** **[https://www.naturalnews.com/2021-04-28-new-delhi-records-coronavirus-deaths-highest-tally.html](https://www.naturalnews.com/2021-04-28-new-delhi-records-coronavirus-deaths-highest-tally.html)
+**更多资讯，更多关注**
 
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-编辑/发布：比卡丘
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-20210501
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 0

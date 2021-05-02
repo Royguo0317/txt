@@ -1,25 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【各抒己见】警惕共匪用媒体舆论绑架14亿国人
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1162044/)
+## HCN发行量、决定权
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/1163532/)
 
-作者：喜马拉雅东京樱花团 /盐和光
+MX
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02063611/image-17.png)
+**什么是Himalaya Coin (HCN)？**
 
-![](https://lh5.googleusercontent.com/6RAqHc1OlF5fzJOpmGPuLe0mhbdQ6X6zl-i6Fq7rbRYS_sToP52UoQISuacvlDcg9hAn2zSnNeowj0Q8EZhbHlZjDOVj8ha9eYiFjBHNJPaWSnvNx8zO6w3i_sNYMdVPhB5oloYm)
+Himalaya Coin (HCN)由Himalaya Exchange独家推出。Himalaya Coin（HCN）的诞生，是为了解决目前加密货币在付款流程上的缺点。
 
-病毒肆虐，蔓延无法控制。在世界为之难过的今天，这是中国长安网，发布了这样的一幅拼图。左边是中国发射火箭的图片，右边是印度街头火化尸体的画面，并配文字“中国点火VS印度点火”。
+Himalaya Coin（HCN）与Himalaya Pay的商家和服务提供商合作，为交易人和购物者提供可观的折扣，也就说，Himalaya Exchange能够提供更低的交易费用。
 
-长安网是官方媒体网站，是中央政法委，党的机构的网站。代表了党，代表了9000万中共党员的声音。发出这样阴阳怪气的声音，用这两幅图片作为对比，简直就是小人作为，是把自己的乖戾快乐建立在别人的恐惧痛苦之上。但凡有点人性，但凡懂点普世观念，都不会发表如此缺乏人性的对比图和嘲讽的声音。所谓堂堂世界第二经济体，世界第一人口大国，难道就是这等作风？ 尊重生命是我们人类应该秉承的原则和底线，人家烧死人，共匪烧火箭。 作为官方媒体，发如此之不堪的图文，就是想要捆绑14亿同胞，令全世界都讨厌中国人。为此，新中国联邦人应更大力度传播真相，让世界知道共匪不等于14亿中国老百姓 。
 
-邻有丧，舂不相； 里有殡，不巷歌。 ——《礼记·曲礼上》
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
+# Himalaya Coin的发行量是多少？
 
-*校对：喜马拉雅东京樱花团 / 待命（文晓）*
-*责任编辑：喜马拉雅东京樱花团 / 文小白*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01183841/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
-0501C003c
+在首次发行中，Himalaya International Reserved Ltd将发行一定数量的认购金额，让您通过注册进行认购。这是一个投资的黄金时机。有了Himalaya Coin，就可以为自己的未来投资。
 
-0
+HCN的首次发行以私人配售方式进行，仅限受邀者参与，并不开放予所有公众。
+
+只有预先通知的人员（“私人配售参与者”）和下单金额等于或超过1,000,000美元或等值的Himalaya Dollar（每个“战略投资者”）的人员可能会参与HCN积分的首次销售。
+
+Himalaya International Financial Group Ltd将会在首次发行期间发行特定数量的代币，让投资者通过注册程序进行认购。HCN之首次发行仅以邀请的形式作私募配售，并不开放予公众会员，只有预先获通知者（“私人配售参与者”）才可参与本次HCN信用积分的首次销售。
+
+HCN发行量的上限为100,000,000,000（”发行上限”），每年最多发行4次，在任何12个月期间允许发行的年度上限为1,000,000,000 （加上以前年度的任何未发行金额）。
+
+有关将来的发行及消息将另外公布，敬请期待。
+
+
+
+# 谁来决定Himalaya Coin的价值？
+
+喜马拉雅币的价值是完全基于供需法则并取决于由市场参与者(买方和卖方)。
+
+
+
+Himalaya Dollar（HDO）是与美元（USD）挂钩的ERC20稳定币，由现金以及现金等值的资产支持。
+
+考虑到Himalaya Coin（HCN）的市场价格有可能波动，把Himalaya Dollar（HDO）和美元的价值挂钩，可以为交易人和投资者提供一个可以避险的避风港。
+
+**什么是Himalaya Dollar（HDO）？**
+
+Himalaya Coin（HCN）和Himalaya Dollar（HDO）可以通过Himalaya Pay以及Himalaya Exchange的相关交易市场进行交换。
+
+
+
+**喜马拉雅交易所官方网站：himalaya.exchange**
+
++4

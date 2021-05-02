@@ -1,56 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月1日美国政要和政评家推特精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1162159/)
+## 【热点播报】“天和”核心舱发射成功，中共国的太空竞赛再加码
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1163701/)
 
-参议员瑞克·斯科特： 美国的纳税人不应该为向 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 这样的暴政国家提供世界银行贷款而感到困惑。自豪加入参议员Chuck Grassley，参议员卢比奥 和同事们重新提出《世界银行诚信保护法》，以保护纳税人并对中共国追责。 【附卢比奥参议员新闻办公室相同内容推文】
+作者：纽约香草山健身部 Ivy001
 
-
-
-> American taxpayers shouldn't be on the hook for World Bank loans to oppressive nations, like Communist China. Proud to join [@ChuckGrassley](https://twitter.com/ChuckGrassley?ref_src=twsrc%5Etfw), [@marcorubio](https://twitter.com/marcorubio?ref_src=twsrc%5Etfw), & colleagues to reintroduce the World Bank Integrity Preservation Act to protect taxpayers & hold Communist China accountable. [https://t.co/UUGmEHkZ3X](https://t.co/UUGmEHkZ3X)
-> — Rick Scott (@SenRickScott) [May 1, 2021](https://twitter.com/SenRickScott/status/1388564026632835082?ref_src=twsrc%5Etfw)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01210308/gnews-logo-1.jpeg)
 
 
 
-前白宫贸易顾问彼得·纳瓦罗: 羟氯喹似乎正在印度挽救生命。 尽管医疗保健系统较差，死亡率仍只是美国的1/6。 羟氯喹HCQ被广泛使用。 拒绝报道正面研究的[@cnn](https://twitter.com/CNN)和纽约时报[@nyt](https://twitter.com/NYT) 手上沾满鲜血。
+4月29日，中共国成功发射了名为“天和”的太空站核心舱，北京野心勃勃的太空计划又迈出了新一步。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02073600/%E5%9B%BE%E7%89%8741.png)图片来源：Dr. Bo Twitter
+
+“天和”在文昌航天发射场由长征五号B火箭运载升空，是新空间站的一个核心部分，拥有可供3名宇航员生活起居的舱室。按照北京的计划，在明年“天宫号”空间站投入运作之前，将会至少再发射10个类似的空间站模块。
+
+北京的目标是在2030年左右成为航天强国，登月计划，火星探索以及太空站的建设均在这个整体计划之内。中共国的太空探索计划是习近平提出的执政思想的一部分，是民族复兴的重要一步。
+
+是重要就对了，就怕你们觉得不重要。不管你们在太空计划里，是用从俄罗斯买来的技术，还是用从美国偷来的技术，只要你们继续发展太空计划就对了。为你们全面下注太空竞赛，表示支持。
+
+其实，中共国“天和”核心舱的成功发射，美国航太工业界也是感到由衷的高兴。因为，有中共国的全力加入太空竞赛，美国下一代商用空间站、所需要的投资（包括官方和民间），以及所需要的政策绿灯，基本上没有什么问题了。和SpaceX一样，美国的下一代空间站Axiom也是私营公司的项目。
+
+欢迎中共国踩入太空竞赛的巨坑中，我们新中国联邦人会努力帮忙填土的。
+
+Take down the CCP!
+
+[https://www.bbc.com/zhongwen/simp/science-56926554](https://www.bbc.com/zhongwen/simp/science-56926554)
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
 
 
 
-> Hydroxychloroquine appears to be saving lives in India. Mortality rate is 1/6th that in the U.S. despite inferior health care system. HCQ in widespread use.
-> 
-> Blood on hands of [@cnn](https://twitter.com/CNN?ref_src=twsrc%5Etfw) and [@nyt](https://twitter.com/NYT?ref_src=twsrc%5Etfw) which refuses to cover positive studies.
-> — Peter Navarro (@RealPNavarro) [May 1, 2021](https://twitter.com/RealPNavarro/status/1388507996779646979?ref_src=twsrc%5Etfw)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-纽约前市长朱利安尼： 最新播报-为什么马克思主义批判性种族理论教导美国是邪恶的。 在Apple Podcast上收听Rudy Giuliani的“常识”广播节目最新一集，或在此处获得完整的视频体验：
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-> LATEST PODCAST –&gt; Why Marxist Critical Race Theory TEACHES AMERICA IS EVIL
-> 
-> Listen to the latest episode of Rudy Giuliani's Common Sense on Apple Podcasts or get the full video experience here: [https://t.co/UdLrMqkSwO](https://t.co/UdLrMqkSwO) [pic.twitter.com/7aMvA1DbP5](https://t.co/7aMvA1DbP5)
-> — Rudy W. Giuliani (@RudyGiuliani) [May 1, 2021](https://twitter.com/RudyGiuliani/status/1388526124028858370?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特: 美国内政部[@Interior](https://twitter.com/Interior)必须保持其承诺，保护佛罗里达海岸免遭石油钻探，与 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 所构成的威胁作斗争，并使美国的能源独立以保护美国的就业。 阅读我给内政部部长[@SecDebHaaland](https://twitter.com/SecDebHaaland) 的信涵可了解更多信息：（附信函链接 [http://bit.ly/3vDARP3](https://t.co/YYNIB7lE9j?amp=1)）
-
-
-
-> .[@Interior](https://twitter.com/Interior?ref_src=twsrc%5Etfw) must maintain its commitment to protect Florida’s coasts from oil drilling, combat threats posed by Communist China, and keep American energy independent to protect U.S. jobs. Read more in my letter to [@SecDebHaaland](https://twitter.com/SecDebHaaland?ref_src=twsrc%5Etfw): [https://t.co/HGUWbQuTtS](https://t.co/HGUWbQuTtS)
-> — Rick Scott (@SenRickScott) [May 1, 2021](https://twitter.com/SenRickScott/status/1388516295969320960?ref_src=twsrc%5Etfw)
-
-
-
-章家敦 (中国问题专家)： 这是 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 犯下世纪罪行的结果，故意将新冠 [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 越过其边界传播。 【转News24推文：印度人在停车场被火葬 – 家人不得不买票并等待（附火葬场照片）】 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) [#CovidIndia](https://twitter.com/hashtag/CovidIndia?src=hashtag_click) [#India](https://twitter.com/hashtag/India?src=hashtag_click) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click)
-
-
-
-> This is the result of [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s crime of the century, the deliberate spread of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) beyond its borders. [#CovidIndia](https://twitter.com/hashtag/CovidIndia?src=hash&amp;ref_src=twsrc%5Etfw) [#India](https://twitter.com/hashtag/India?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/2ZbHNwwEDl](https://t.co/2ZbHNwwEDl)
-> — Gordon G. Chang (@GordonGChang) [May 1, 2021](https://twitter.com/GordonGChang/status/1388345881376735232?ref_src=twsrc%5Etfw)
-
-
-
-0
++1
