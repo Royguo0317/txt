@@ -1,51 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】荼毒笔记（四）
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1159360/)
+## 火星直升飞机第四次飞行挑战极限 刷新之前记录
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1161641/)
 
-作者：纽约香草山美食部 新世界一员
+- 作者：坐看云起时
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01153000/moon-2048727_1920.jpg)
+《零对冲》5月1日消息，周五美国宇航局的火星直升机Ingenuity完成了它在火星上的第四次飞行，此前一个技术故障使旋翼飞机无法切换到飞行模式。
 
+加利福尼亚州帕萨迪纳的美国宇航局喷气推进实验室说，这次火星直升机Ingenuity 得到了更大的推动，”比以前走得更远更快”。这架4磅重的直升机在436英尺的飞行计划中以16英尺的高度向下飞行。它在往返的过程中记录了超过872英尺，持续了117秒。
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-
-
-早跑，看到河水又变得混绿相间，上面还漂浮着白色的泡沫——不知是哪里又放出的污染。河边来往的人那么多，可是却没人在意，好像河水污染、空气污染跟自己没有关系。没有人提及，更没有人查、没有人问、没有人管，仿佛这些对自己的健康完全没有影响，亦或是抱着“多一事不如少一事”、只管往前的僵尸心态。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01005647/image0-16-768x432-1.png)
-
-实际上，饭后茶余间，大多数人们仍是会谈起空气污染的事，指责那是因政府的不作为，更是那些贪官污吏在共产党统治下得了好处，睁一只眼闭一只眼，明着暗着放任这些毁人健康的排污现象。然而，独裁之下，你一老百姓的不满又能怎么样呢，共匪的恶在于——不仅污染了环境，还污染了人们的心。在墙内，人们谈不了正事、说不得不平之事，整天就讲些东家长、西家短的，无形中造就了一群善用语言攻击的平庸群体，这也是万恶的共产党愚民之术的一种——让你们互相伤害、互相攻击、互相仇恨。
-
-而今，满目疮痍的国土只有那些没有共产党染指的偏远地区尚还保持着干净的空气和纯净的水源！比如，江西灵山就因为少了工业、企业而显得山清水秀、风景优美。本是山河多娇，奈何共产幽灵入侵，人心混沌，人性的弱点被放大——传统的文化抵不过各种利益诱惑，少年时期的梦想扛不住为活着奔忙的操劳，低俗的娱乐吞噬掉了正确的思路。
-
-我有时悲伤，有时低落，有时会有急迫感，不忍、不想、不要身边的人受伤。可邪党存在一天，伤害就层层增加。朗朗乾坤，在共产党虚假的风平浪静的世界里，有的人如同活在地狱，有的人活着好似哑巴，有的人活得战战兢兢、如履薄冰，有的人活得虽生犹死，有的人活着不知明天可否继续活着，有的人承受着折磨，有的人被威胁着，有的人活得压力重重、时时产生轻生念头，有的人活着只为了分数和伤脑、弱智商的作业，有的人活着一边忙碌、一边流泪，有的人日夜工作只为还房贷、车贷，有的人活得卑微到尘埃，有的人为了活着赚昧心的钱，而更多的人活在自己的白日梦里。在共产党的谎言下，人们总相信明天会更好，可惜明天复明天，不知明天在哪里，这样的明天，永远在明天。
-
-造成人们这样生活的就是共产党，这个吃人肉、喝人血的万恶之源。灭共是为了自己能活出人的模样，灭共是可以解脱所有苦难的需要，灭共是恢复心智的需要，灭共是为了愉快生活的必须，灭共是为了能正常说想说的话，灭共是为了真正的美好的明天。新中国联邦要创造的明天不是梦，这个明天是你活出自我价值的明天！这个明天就是歼灭共产党以后的光明的明天！实现自由、民主的法治社会，是公平、公正的明天。这个万世不朽、有普世价值的明天需要现在的你、我、他的勇气，勇敢的行动，行动，行动！！！
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01143151/M5.jpg)
-
-编辑：遍地开花
-
-校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+美国宇航局喷气推进实验室在推特中发布视频庆祝Ingenuity的破记录飞行
 
 
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+> Breaking its own records! The [#MarsHelicopter](https://twitter.com/hashtag/MarsHelicopter?src=hash&amp;ref_src=twsrc%5Etfw) team celebrated their 4th flight today. Ingenuity rose 16 ft (5 m) above the surface before flying south ~436 ft (~133 m) and then back. It was in the air for 117 seconds during its 872-ft (266-m) trip. [https://t.co/gCeXq5jtkL](https://t.co/gCeXq5jtkL) [pic.twitter.com/GxdjKFMo77](https://t.co/GxdjKFMo77)
+> — NASA JPL (@NASAJPL) [April 30, 2021](https://twitter.com/NASAJPL/status/1388265387855204352?ref_src=twsrc%5Etfw)
 
+
+
+火星直升机拍到了岩石表面的照片：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01153231/pasted-image-0.png)
+美国宇航局说：“在飞行期间我们用彩色相机和Ingenuity自带的黑白导航相机拍摄了许多图像。”
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01153310/pasted-image-0-1.png)
+Ingenuity展示了在火星上进行可控飞行的可能性，而且侦察任务将继续进行。该行动可能有利于未来对火星和其他世界的探索。
+
+美国宇航局科学任务局副局长Thomas Zurbuchen说： “Ingenuity技术演示取得了巨大的成功，”他还说道，由于Ingenuity仍然保持着良好的状况，NASA计划利用它来为未来的航空平台服务，同时优先考虑并推进毅力号探测器团队的近期科学目标。
+
+因为Ingenuity将飞得更远更快，未来几周计划会进行更多的飞行。它将继续作为 “毅力 “号漫游车的伙伴，为其探索绘制路线。这项任务是为了让美国宇航局和私营企业更好地了解红色星球上的条件。
+
+美国对火星及月球的兴趣源于美国对与中共国和俄罗斯之间不可避免的太空采矿战争的预计。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01153630/spaceship-5570682_1920.jpg)
+简评：
+
+历史总是何其相似地不断轮回。1347年蒙古军队在攻打黑海城市卡法时引发的瘟疫大流行，在14世纪40年代散布到整个欧洲，这场瘟疫在全世界造成了大约7500万-2亿人死亡，根据估计，瘟疫爆发期间的中世纪欧洲约有占人口总数30%-60%的人死于黑死病。【1】
+
+瘟疫如此恐怖，但从瘟疫打击中恢复过来的欧洲，却迅速地进入了一个崭新的时代，文艺复兴、大航海时代、工业革命…
+
+当今的世界也正处在这么一个关键的历史转折时期。中共的生物武器肆虐全球，已造成超过320万人的死亡【2】
+
+并且这个数字还在不断地疯狂上涨。全人类的生存状态被它彻底地改变。
+
+赫胥黎曾在他的文章《新神性》（The New Divinity）（1965年）中指出，基督教对世界的改变花费了漫长的千余年时间，但在现代便利的通讯传播的情况下，世界的改变必将比之前远远迅速得多。
+
+我们正站在这么一个人类历史的关键节点，一方是妄想将世界拖回原始奴隶时代的中共及其邪恶势力，而另一方则是与新中国联邦站在一起的全人类正义力量正准备开启人类的崭新一页—星球文明。
+
+人生的美好，不是因为世界的完美，而是因为世上存在黑暗而更要努力追求光明，因为有邪恶而更加珍惜善良，因为有死亡而格外热爱生命。
+
+仰望星空，在茫茫星海，无限宇宙之中，人类不是唯一。作为一个宇宙中的一个族群，人类应当如何负责任地对待自己，对待自己所在的星球，如何面对未来的星际探索，这是每一个人都应深思的问题。
+
+- 新闻来源：[零对冲](https://www.zerohedge.com/geopolitical/breaking-records-nasa-pushes-envelope-mars-helicopter-fourth-flight?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+- 【1】[维基百科：黑死病](https://zh.wikipedia.org/wiki/%E9%BB%91%E6%AD%BB%E7%97%85)
+- 【2】[worldometer](https://www.worldometers.info/coronavirus/)
 
 
 0

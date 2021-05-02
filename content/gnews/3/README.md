@@ -1,105 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “掀锅盖”系列：20210429喜币发行成功，西方世界在搜集病毒样本，并应对已经到来的金融海啸
-` 《爆料贵语--掀郭盖》NZ` [轉載自GNews](https://gnews.org/zh-hans/1162084/)
+## 5月1日美国政要和政评家推特精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1162159/)
 
-**郭先生口述内容：**
-
-喜币在短短的三天的时间
-
-达到九千多位了这个注册成功
-
-他们的这个投资机构啊
-
-还有法务部门都感到非常的自豪
-
-喜币获得了巨大的上线成功
-
-从昨天到今天最大的变化
-
-中国共产党现在正在联合世界上
-
-低于五百万人的国家
-
-所谓的联合要病毒真相
-
-你看共产党荒唐到什么程度
-
-昨天晚上我和一个到海外的原来共产党内部的一位资深的资深的社会学家我们两聊了一会
-
-他说西方人正在悄悄的
-
-正在整理着各种证据
-
-包括包括对病毒的
-
-全世界各地病毒不同版本的收集、取证
-
-他说这个动作和中共正好是相反的
-
-中共是以外交以大嗓门以外宣
-
-来解决病毒的来源和病毒的问题
-
-而西方是用科学、证据、实证
-
-实验室的验证
-
-专家的意见
-
-在搞清楚病毒的真相和病毒的来源
-
-大家又看到这个经济上国内现在房地产什么样了
-
-美国某智库在下周二在美国某个地方开会
-
-研究中国经济一旦崩溃
-
-给世界带来的影响
-
-本人可能要在视频上出席一下
-
-现在大家想想世界的经济脆弱到什么程度
-
-只要苏伊士运河和马六甲海峡
-
-但凡有个风吹草动油价上升
-
-就会加剧通货膨胀
-
-加剧世界经济的整个的调整
-
-比特币最终一定会被干掉的
-
-然后其它的加密货币会起来
-
-然后美国最后没有选择的
-
-一定自己也发展加密货币
-
-这就是喜币喜美元到来
-
-喜联储的到来
-
-最伟大的设计
-
-\*所有经过节选，编辑和剪辑的简报和视频形式仅供留存及传播，分享信息！
-
-\*所有信息以郭文贵先生源盖特视频和直播视频为准！
+参议员瑞克·斯科特： 美国的纳税人不应该为向 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 这样的暴政国家提供世界银行贷款而感到困惑。自豪加入参议员Chuck Grassley，参议员卢比奥 和同事们重新提出《世界银行诚信保护法》，以保护纳税人并对中共国追责。 【附卢比奥参议员新闻办公室相同内容推文】
 
 
 
-听写整理：作而无作
+> American taxpayers shouldn't be on the hook for World Bank loans to oppressive nations, like Communist China. Proud to join [@ChuckGrassley](https://twitter.com/ChuckGrassley?ref_src=twsrc%5Etfw), [@marcorubio](https://twitter.com/marcorubio?ref_src=twsrc%5Etfw), & colleagues to reintroduce the World Bank Integrity Preservation Act to protect taxpayers & hold Communist China accountable. [https://t.co/UUGmEHkZ3X](https://t.co/UUGmEHkZ3X)
+> — Rick Scott (@SenRickScott) [May 1, 2021](https://twitter.com/SenRickScott/status/1388564026632835082?ref_src=twsrc%5Etfw)
 
-翻译：风之伤
 
-校对：正义的伙伴
 
-视频制作：农夫
+前白宫贸易顾问彼得·纳瓦罗: 羟氯喹似乎正在印度挽救生命。 尽管医疗保健系统较差，死亡率仍只是美国的1/6。 羟氯喹HCQ被广泛使用。 拒绝报道正面研究的[@cnn](https://twitter.com/CNN)和纽约时报[@nyt](https://twitter.com/NYT) 手上沾满鲜血。
 
-审核：掀锅盖组
 
-上传：糊糊文婴
 
-+1
+> Hydroxychloroquine appears to be saving lives in India. Mortality rate is 1/6th that in the U.S. despite inferior health care system. HCQ in widespread use.
+> 
+> Blood on hands of [@cnn](https://twitter.com/CNN?ref_src=twsrc%5Etfw) and [@nyt](https://twitter.com/NYT?ref_src=twsrc%5Etfw) which refuses to cover positive studies.
+> — Peter Navarro (@RealPNavarro) [May 1, 2021](https://twitter.com/RealPNavarro/status/1388507996779646979?ref_src=twsrc%5Etfw)
+
+
+
+纽约前市长朱利安尼： 最新播报-为什么马克思主义批判性种族理论教导美国是邪恶的。 在Apple Podcast上收听Rudy Giuliani的“常识”广播节目最新一集，或在此处获得完整的视频体验：
+
+
+
+> LATEST PODCAST –&gt; Why Marxist Critical Race Theory TEACHES AMERICA IS EVIL
+> 
+> Listen to the latest episode of Rudy Giuliani's Common Sense on Apple Podcasts or get the full video experience here: [https://t.co/UdLrMqkSwO](https://t.co/UdLrMqkSwO) [pic.twitter.com/7aMvA1DbP5](https://t.co/7aMvA1DbP5)
+> — Rudy W. Giuliani (@RudyGiuliani) [May 1, 2021](https://twitter.com/RudyGiuliani/status/1388526124028858370?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特: 美国内政部[@Interior](https://twitter.com/Interior)必须保持其承诺，保护佛罗里达海岸免遭石油钻探，与 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 所构成的威胁作斗争，并使美国的能源独立以保护美国的就业。 阅读我给内政部部长[@SecDebHaaland](https://twitter.com/SecDebHaaland) 的信涵可了解更多信息：（附信函链接 [http://bit.ly/3vDARP3](https://t.co/YYNIB7lE9j?amp=1)）
+
+
+
+> .[@Interior](https://twitter.com/Interior?ref_src=twsrc%5Etfw) must maintain its commitment to protect Florida’s coasts from oil drilling, combat threats posed by Communist China, and keep American energy independent to protect U.S. jobs. Read more in my letter to [@SecDebHaaland](https://twitter.com/SecDebHaaland?ref_src=twsrc%5Etfw): [https://t.co/HGUWbQuTtS](https://t.co/HGUWbQuTtS)
+> — Rick Scott (@SenRickScott) [May 1, 2021](https://twitter.com/SenRickScott/status/1388516295969320960?ref_src=twsrc%5Etfw)
+
+
+
+章家敦 (中国问题专家)： 这是 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 犯下世纪罪行的结果，故意将新冠 [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 越过其边界传播。 【转News24推文：印度人在停车场被火葬 – 家人不得不买票并等待（附火葬场照片）】 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) [#CovidIndia](https://twitter.com/hashtag/CovidIndia?src=hashtag_click) [#India](https://twitter.com/hashtag/India?src=hashtag_click) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click)
+
+
+
+> This is the result of [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s crime of the century, the deliberate spread of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) beyond its borders. [#CovidIndia](https://twitter.com/hashtag/CovidIndia?src=hash&amp;ref_src=twsrc%5Etfw) [#India](https://twitter.com/hashtag/India?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/2ZbHNwwEDl](https://t.co/2ZbHNwwEDl)
+> — Gordon G. Chang (@GordonGChang) [May 1, 2021](https://twitter.com/GordonGChang/status/1388345881376735232?ref_src=twsrc%5Etfw)
+
+
+
+0
