@@ -1,53 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2017年5月18日文贵先生直播视频
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1162066/)
+## 5月1日美国政要和政评家推特精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1162159/)
 
-出品：Gnews编辑部郭先生直播资料库整理工作组
+参议员瑞克·斯科特： 美国的纳税人不应该为向 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 这样的暴政国家提供世界银行贷款而感到困惑。自豪加入参议员Chuck Grassley，参议员卢比奥 和同事们重新提出《世界银行诚信保护法》，以保护纳税人并对中共国追责。 【附卢比奥参议员新闻办公室相同内容推文】
 
-盗国贼就是想在十九大之前把我至于死地，他们的第一招是缓兵之计；第二招是把我所有爆过料的人和所有的利益集团形成一个合力，用国家的力量到美国游说，再出让国家利益将我遣返。这两招不行，就用黑社会的方式处置我。
 
-——郭文贵
 
-他们的首要任务就是让我马上闭嘴，绝不能再有直播系统和通信系统；其次他们动用华盛顿、第三国的公关公司和美国的私人侦探在我现在住的两个地方的周围盯着和我接触的人，同时近距离进行信息收集，对WI-FI、通讯系统、电脑进行骇客。还有一帮当地各种背景的黑社会伺机出手，让当地警方以刑事罪让我失去自由切断我的联系，总之是已经启动一切在西方的沉默力量，天价悬赏构陷我、消灭我。
+> American taxpayers shouldn't be on the hook for World Bank loans to oppressive nations, like Communist China. Proud to join [@ChuckGrassley](https://twitter.com/ChuckGrassley?ref_src=twsrc%5Etfw), [@marcorubio](https://twitter.com/marcorubio?ref_src=twsrc%5Etfw), & colleagues to reintroduce the World Bank Integrity Preservation Act to protect taxpayers & hold Communist China accountable. [https://t.co/UUGmEHkZ3X](https://t.co/UUGmEHkZ3X)
+> — Rick Scott (@SenRickScott) [May 1, 2021](https://twitter.com/SenRickScott/status/1388564026632835082?ref_src=twsrc%5Etfw)
 
-**要点一：文贵先生爆料盗国贼动用一切西方的沉默力量要构陷他消灭他**
 
-非常感谢推友们对我和妻女相聚的祝福，所有人的哭声说明人类的本质都是善良的，我的遭遇完全是 “以黑治国”“以警治国”“以贪反贪”的中国现代社会的缩影。毫不夸张的说现在每一天甚至每半天都可以拍一部好莱坞大片，过去的三年多他们一直妄想着让我消失在世界上，抢走我手里的所有资料和资产。我最近一直和北京在沟通，承诺三个星期之内不爆料，但是我的善意丝毫没有影响盗国贼们继续采取各种手段来达到以上目的，继续动用国家机器，以国家和人民的名义、国家的外交和多国之间的关系、国家与其它国家经济贸易的合同作为威胁条件展开了一系列对我的追杀，妄图让第三国捏造刑事犯罪、经济犯罪然后在美国申请遣返或起诉，将我遣送到第三国，最后达到交换回中国的目的。他们的首要任务就是让我马上闭嘴，绝不能再有直播系统和通信系统；其次他们动用华盛顿、第三国的公关公司和美国的私人侦探在我现在住的两个地方的周围盯着和我接触的人，同时近距离进行信息收集，对WI-FI、通讯系统、电脑进行骇客。还有一帮当地各种背景的黑社会伺机出手，让当地警方以刑事罪让我失去自由切断我的联系，总之是已经启动一切在西方的沉默力量，天价悬赏构陷我、消灭我。
 
-**要点二：盗国贼不惜出卖国家利益和动用黑社会手段想遣返文贵先生**
+前白宫贸易顾问彼得·纳瓦罗: 羟氯喹似乎正在印度挽救生命。 尽管医疗保健系统较差，死亡率仍只是美国的1/6。 羟氯喹HCQ被广泛使用。 拒绝报道正面研究的[@cnn](https://twitter.com/CNN)和纽约时报[@nyt](https://twitter.com/NYT) 手上沾满鲜血。
 
-同时，北京警方专案组对在美国、欧洲和亚洲为我工作过的中国员工和其家庭进行威胁恐吓，让他们指证或栽赃陷害我。他们现在想尽各种办法将我牵扯到经济和刑事犯罪中，寻找可以栽赃陷害我的理由。在过去的四五天，有人想在银行以我的名字开设账号，有人想把别人的房产放到我的名下，甚至由博讯首发的我杀害日本人一案，企图在精神上、身体上、意志上打垮我。他们在习主席面前、在中央常委会和政治局面前渲染、捏造我的危害性和影响力以达到共同认为我是国家的敌人和威胁，然后动用国家力量来对付我。盗国贼就是想在十九大之前把我至于死地，他们的第一招是缓兵之计；第二招是把我所有爆过料的人和所有的利益集团形成一个合力，用国家的力量到美国游说，再出让国家利益将我遣返。这两招不行，就用黑社会的方式处置我。非常夸张的是国家的钱、利益、土地、项目都变成了盗国贼们随意开出的交易清单，他们以维护领导的私人信息安全、帮他们掩盖丑闻和家人财富安全为名，将每个领导跟他们绑在一起。有的人跟我联系示好，向我传递信息出卖他们的队友，价值最大化后将其出卖。多个利益团体和盗国贼们演绎着各种丑陋的背叛，表演者没有人性和尊严的假忠诚。
 
-**要点三：文贵先生坚信美国的民主制度、独立司法制度和媒体监督的权利**
 
-昨天，美国政府的一个高官让我转告中国的政府官员，他们是中国的政法委书记、常委、公安局长，不是世界的局长、美国的局长，更不是美国的领导。想在美国收买高官，绑架美国政府，非但不能得逞，还将成为他们的坟墓。美国政府明确地说很多事情都在掌握和观察之中，他们给我提供的保护让我很有信心，中国的思想到美国不管用。几个高官说美国的民主制度、独立司法制度和媒体监督权利，任何人无法收买，对此我深信不疑。
+> Hydroxychloroquine appears to be saving lives in India. Mortality rate is 1/6th that in the U.S. despite inferior health care system. HCQ in widespread use.
+> 
+> Blood on hands of [@cnn](https://twitter.com/CNN?ref_src=twsrc%5Etfw) and [@nyt](https://twitter.com/NYT?ref_src=twsrc%5Etfw) which refuses to cover positive studies.
+> — Peter Navarro (@RealPNavarro) [May 1, 2021](https://twitter.com/RealPNavarro/status/1388507996779646979?ref_src=twsrc%5Etfw)
 
-**要点四：面对盗国贼们的背信弃义文贵先生已经做好一切准备**
 
-过去的九十六个小时，多路人马齐头并进，盗国贼们已经深信在过去的七十个小时内我一定会被闭嘴，一定会被中断通信，一定会被带走，我相信此时此刻他们还在做着这个梦。我兑现了对北京老领导的承诺，三周之内不爆料，但是北京所有的行动变本加厉更加疯狂。推友们说不要相信共产党和政府的这些人，千万不要变成张洪宝、吴宏达和赖昌星，从过去的九十六个小时看大家说的都是对的。他们的背信弃义、无法无天，我们的忠诚、道德不会让他们有半点怜悯和同情，我从来没有那么天真，咱们拭目以待。我们绝不可以低估这些盗国贼们的本事，不能低估黄艳的小手，也不能低估岳文海下三滥的攻击，更不能低估北大在全世界这些人的影响力。所有人都认为拿着钱全世界都可以买，重赏之下必有勇夫，这样的游戏我一点儿也不陌生，反而很享受这种过程，因为我已经做好了各种准备。
 
-**要点五：文贵先生的爆料连万分之一都没有拿出来**
+纽约前市长朱利安尼： 最新播报-为什么马克思主义批判性种族理论教导美国是邪恶的。 在Apple Podcast上收听Rudy Giuliani的“常识”广播节目最新一集，或在此处获得完整的视频体验：
 
-他们所做的一切恰恰证明我的爆料非常有价值，再说一遍我真的万分之一、亿分之一都没有拿出来，因为我不想让这个国家动乱。我如果爆了贺锦涛、贺国强家如何拿国家的钱，如何控制矿产资源，如何敛财存到海外，如何玩儿人家奶奶、妈妈、姐姐、妹妹四代人，那只是千万人走上街头。我要是把盗国贼们的丑陋的嘴脸，如何盗取人民的财产，如何用易租宝、泛亚敛财，如何对付老兵，如何转移财产到海外，那就不止是千万人上街，所有有良知的中国人都会上街，因为所有人过去几十年的劳动财富已经完全被这些人盗取。我不想这么做是因为我还抱着一丝丝的希望，我希望能把我妻子、女儿放出来，让我哥哥回来，再坦白地说我已经做好了最坏的准备，二十八年和我八弟的死亡会证明这一切只会让我更强大。
 
-**要点六：盗国贼把文贵先生的千亿资产许诺给他国政府来毁掉文贵先生**
 
-我现在还坚持着中国人的事中国人解决，可是这些盗国贼已经全面让外国人介入，利用外国人对付我们，中国历史上的昏官、贪官、腐败政府都是以洋挟内，用外国人毁掉中国人民的。我坚守的原则已经被你们打破，你们变本加厉用外国人来对付我和我的家人，你们用我一千多亿的资产许诺给一个个国家政府让他们用国家资源在美国把我毁掉，你们就是卖国贼。你们现在就是要让我闭嘴不开全球新闻发布会，让我失去自由过度到第三国，再弄回中国把我全家灭了，最近领导开会一再说一定让我家破人亡、生不如死。你们互相背叛互相假忠诚，在十九大之前这一百多天的恐惧会让更多人跟我站在一起。
+> LATEST PODCAST –&gt; Why Marxist Critical Race Theory TEACHES AMERICA IS EVIL
+> 
+> Listen to the latest episode of Rudy Giuliani's Common Sense on Apple Podcasts or get the full video experience here: [https://t.co/UdLrMqkSwO](https://t.co/UdLrMqkSwO) [pic.twitter.com/7aMvA1DbP5](https://t.co/7aMvA1DbP5)
+> — Rudy W. Giuliani (@RudyGiuliani) [May 1, 2021](https://twitter.com/RudyGiuliani/status/1388526124028858370?ref_src=twsrc%5Etfw)
 
-**要点七：文贵先生公布失联预案**
 
-我早已对生死置之度外，“氢化逍遥丸”我带了很多年。很多推友们担心我发生意外，我今天会公布预案，稍后二十四小时之内挂到推特。第一，我会把我的律师代表的照片、公司地址等各种联络方式公布出来；第二，我会把我助理的联络方式和照片公布出来，我认可的这三个人发布的信息是绝对可信的。我已经将所有的资料采用世界上最好的加密方式和储存方式存放好，我的安保团队也是世界上最好的，一旦有事情发生，这三个人将在不同的时间收到不同的信息、视频、语音、文件档案、资产信息和过去的各种银行账号、政治局常委孩子的上学信息、各种性丑闻、明星之间的丑闻、各国政府之间的黑暗行贿和资金来往的所有资料。他们会按照我的节奏一步步地放出料，任何人都无法阻挡，因为我们已经完成了关键的两步——资料的法律认证和英文翻译。我们还有另外一套方案请法官协会、警察协会和我的律师签署对我所存放的信息做多个公证，到时候他们会受我家族基金的委托将这些资料爆出，另外我已经用这些天一直帮助我的人的名字、信息和推特的尾号成立一个密码，密码、信息和很多数据在两周前已经储存完毕。推友们当你收到我给你们发的私信告诉你去和谁联系的时候千万不要怀疑，你直接联系回复那个私信就会有律师和退休的法官见证，让你们拿到一部分应有的信息，可以公布、使用，授权书和信息使用方式也会同时发给你们，还有八百多家媒体、自媒体朋友们的联络信息我们全部整理完毕，当这些媒体收到我给你们发的信息时，一定记住信息里面最关键的三个小拳头，一切都是刚刚开始同时附带你曾经发给我的信息再打开，否则不要打开。下一周内随时公告，未来会有律师和专业的指定媒体公关公司作为我的代表进行对外发布有关这方面的信息，这些代表和工作团队会向全世界公布我们全球发“不”会的具体方案和细节。
 
-**要点八：文贵先生谈爆料的目的，呼吁大家一起行动**
+参议员瑞克·斯科特: 美国内政部[@Interior](https://twitter.com/Interior)必须保持其承诺，保护佛罗里达海岸免遭石油钻探，与 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 所构成的威胁作斗争，并使美国的能源独立以保护美国的就业。 阅读我给内政部部长[@SecDebHaaland](https://twitter.com/SecDebHaaland) 的信涵可了解更多信息：（附信函链接 [http://bit.ly/3vDARP3](https://t.co/YYNIB7lE9j?amp=1)）
 
-我的爆料定义为三年，我不希望提前，因为提前的代价不是我，也不仅仅是盗国贼，是我们这个社会。我希望通过我的爆料让美国人民、世界人民了解真实的中国和中国盗国贼们的丑恶嘴脸，也希望更多的中国人了解美国这个国家的伟大、司法制度的伟大、以及依法治国的重要。我们一定要捍卫美国这个国家在世界上的地位，美国的司法制度和社会制度是唯一能保护我们的圣地。推友们一再给我提出建议，呼吁要采取各种行动，在此我严肃地告诉推友们：千万不要采取任何行动，不要低估这些盗国贼，你们的冲动会给他们留下所有的把柄，他们的恐惧是我们的武器，他们的恐惧是我们的胜利，他们的恐惧会让他们灭亡，他们的疯狂会让他们灭亡。但是你们的不冷静会成为人家的武器，后果你们承受不了，那无异于自取灭亡、螳螂挡臂。我们永远不会像盗国贼那样弄虚作假，我妻子女儿承诺的回去就一定会让她们回去，作为我的家人她们面临这种困难和压力是命中注定的。如果我要做的事情连我家人都不能承担和面对，我还有什么资格和推友们讲这些话，当然我也会尽一切努力在不违背信义、不弄虚作假的情况下不让她们回去。我相信习主席和中国中央绝大多数政府官员知道谁邪谁正，我希望尽快让我非法长期羁押的员工们恢复自由。这几天退伍老兵们给我发来信息，每个都震撼我内心，我一定替你们发声，我也希望退伍协会的老战士们有各种信息尽快发给我，很荣幸的为你们做些事情。包括易租宝、泛亚的事情，任何人如果有各种信息请继续发给我，我们一定把全球发“不”会做好，我们会全力以赴。
 
-**要点九：文贵先生有信心推动中国依法治国走向文明**
 
-此时此刻我更加有信心赢得这三年以“郭七条”为原则的目标——依法治国和国家体制的完善，得到世界文明国家的尊重和更加良好的合作，我深信能给草根和私人企业家们带来更多的尊严和安全感。一定要记住你们的每个行动都会超过我，你们的行动和我的行动联合在一，加上上天赐予我这二十八年的准备，一定会推动这个时代的进步，推动以法治国的进步。我现在更加自信上天赐予我这么多资料和信息不是我的能力，一切都是上天的安排，我必将和推友们一起赴汤蹈火追求我们的“郭七条”。所有的推友们请记住，不要被挑拨离间，不要失去希望，不要被收买，只要我们团结在一起一定会迎来灿烂美好的一天，我已经听到这个时代的脚步声！
+> .[@Interior](https://twitter.com/Interior?ref_src=twsrc%5Etfw) must maintain its commitment to protect Florida’s coasts from oil drilling, combat threats posed by Communist China, and keep American energy independent to protect U.S. jobs. Read more in my letter to [@SecDebHaaland](https://twitter.com/SecDebHaaland?ref_src=twsrc%5Etfw): [https://t.co/HGUWbQuTtS](https://t.co/HGUWbQuTtS)
+> — Rick Scott (@SenRickScott) [May 1, 2021](https://twitter.com/SenRickScott/status/1388516295969320960?ref_src=twsrc%5Etfw)
 
-视频链接：[https://youtu.be/dDTvNQ4WzPE](https://youtu.be/dDTvNQ4WzPE) （视频时长：52分钟）
+
+
+章家敦 (中国问题专家)： 这是 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 犯下世纪罪行的结果，故意将新冠 [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 越过其边界传播。 【转News24推文：印度人在停车场被火葬 – 家人不得不买票并等待（附火葬场照片）】 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) [#CovidIndia](https://twitter.com/hashtag/CovidIndia?src=hashtag_click) [#India](https://twitter.com/hashtag/India?src=hashtag_click) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click)
+
+
+
+> This is the result of [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s crime of the century, the deliberate spread of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) beyond its borders. [#CovidIndia](https://twitter.com/hashtag/CovidIndia?src=hash&amp;ref_src=twsrc%5Etfw) [#India](https://twitter.com/hashtag/India?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/2ZbHNwwEDl](https://t.co/2ZbHNwwEDl)
+> — Gordon G. Chang (@GordonGChang) [May 1, 2021](https://twitter.com/GordonGChang/status/1388345881376735232?ref_src=twsrc%5Etfw)
+
+
 
 0

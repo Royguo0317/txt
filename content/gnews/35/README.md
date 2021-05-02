@@ -1,48 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 「疫情下的西班牙」疫情，颠覆西班牙社会结构的关键？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1161657/)
+## 【世事解评】为什么说中共控制全球区块链的图谋必然破产？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1161787/)
 
-- 作者：gokuabuela
+作者：香草山金融部 ilovezhanshen
 
+前任美国总统助理、白宫贸易与制造业政策办公室主任以及《国防生产法》政策协调员彼得·纳瓦罗在4月14日接受[福克斯采访](https://gtv.org/video/id=607a48b98616c84f0ff03fa3)时表示，如同19世纪和20世纪时，控制海上航线就等同于控制全世界，在21世纪，控制数字货币和区块链就可以控制全世界，而中共就一直在向这个方向努力。
 
-***更多真相，请关注***[***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+笔者在之前的一篇[文章](https://gnews.org/zh-hans/1035568/)中提到过，美国外交关系委员会 （Council on Foreign Relations，CFR，被认为是美国最有影响力的外交政策智库）最近发布了一份190页的报告，全面系统地揭示了中共“一带一路”战略对美国各方面利益的威胁，并用大篇幅分析了中共“一带一路”在区块链领域的布局和对美国产生的威胁。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01172039/Screen-Shot-2021-05-01-at-5.20.27-PM.png)
+中共在2020年推出的区块链服务网络（BSN，全称 Blockchain-based Service Network）由国家信息中心（隶属于中共发改委）、中国移动通信集团公司、中国银联股份有限公司、北京红枣科技有限公司共同发起，其目标是成为部署和运行区块链应用的全球性公共基础设施网络，企图通过搭建一个低成本的大平台吸引国际上主流的区块链加入，并以此掌握对[世界区块链生态圈的控制权](https://gnews.org/zh-hans/1109666/)。
 
-**西班牙2021年5月1日电/西喜社——**
+因为看到了全球加密货币对金融系统进行去中心化的巨大浪潮，中共在过去几年迅速部署了高度中心化极权的数字人民币。与此类似，中共在区块链方面的行动也十分迅速。截至2021年3月，已经有15个国际知名的公链加盟中共的BSN平台，它们是：Ethereum, EOS, Tezos, Neo, Solana, Polkadot, Casper, Nervos, IRISnet, Algorand, ShareRing, Oasis, Bityuan, Near and Findora。
 
-由于社会的关注点集中在与病毒的斗争和经济的复苏上，政府利用当下的文化弱点，正在加紧进行基于激进的世俗主义和性别意识形态等参数的社会变革进程。为了实现这一目标，必须逐步限制家庭为其子女选择教育类型的权利，并限制信仰团体，特别是天主教团体的社会影响。
+BSN的技术架构主要由北京红枣科技有限公司负责。红枣科技的CEO何一凡在接受采访时曾明确表示，如果他们在区块链上看到令中共政府不满的活动，BSN可以在后台将整条区块链删除。区块链技术的初衷原本是让各种社会经济活动去中心化，降低权力集中可能带来的腐败和低效率。中共如今搞出这个企图控制全球区块链的中心化平台，可以说让世人叹为观止，也对其邪恶与傲慢产生了更加清醒的认识。
 
-同样关键的是设计政策，试图模糊基于一男一女之间婚姻的家庭形态。
+然而，中共的特点向来是“兔子打拳，一溜小动作”。动作又多又快，但是能否真正成功地实现其野心，就是另外一回事了。根据美国智库的分析，中共在“一带一路”上推广它的BSN平台，本质上和之前推广华为的5G通信技术是一样的，都将对参与的国家造成巨大的国家安全风险。目前，只是由于区块链热潮刚刚兴起，BSN才刚刚推出不久，所以不像华为5G那样备受媒体和社会的关注，但这并不意味未来西方的各国政府不会对它采取严厉的制裁行动。就像华为的很多技术需要很多美国公司或依赖于美国公司的外国公司（比如台积电）提供，BSN海外数据中心的主要云服务也由Amazon Web Services (AWS)、Microsoft 和 Google等美国公司提供。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01172124/Screen-Shot-2021-05-01-at-5.21.11-PM.png)
+未来，美国政府完全可以像制裁华为一样制裁BSN平台，禁止相关的美国公司为BSN提供相关服务。全球各地的区块链开发者一旦认识到这一政策风险，很可能就不会选择在BSN平台上进行区块链开发了，BSN于是也会面临和华为一样的悲惨境地。
 
-尽管民间社会中有许多不同意见者对这些项目提出了批评，但政府的一部分人却在按下油门，甚至寻求对抗，正如好战的部长贝拉拉（Ione Belarra）所表明的那样。
+目前，美国政府虽然还没有像制裁华为一样出台具体的政策措施，但在最近参议院外交关系委员会于4月21日高票通过的《2021战略竞争法案》中，已经对中共的数字独裁表达了鲜明的立场。美国国会表示，美国必须领导新一轮数字技术的国际标准制定，保证这些技术的自由与安全。另外，美国会协同各盟友以及伙伴，领导国际社会用一切的经济与外交手段去对抗中共国“利用信息与通信技术的产品和服务去监控、镇压和操纵人口”的“数字威权主义”。
 
-一个民族的文化只有在失去了对其根源和价值的认识时，也就是说，当它不再是一种生活方式时，才能被政治权力所塑造。因此，当下的任务是文化和教育，而不是政治。
+如今，在拜登政府对中共坚持强硬政策，病毒追责不断推进，美国情报界对中共在区块链领域的野心有着清醒认识的大背景之下，再加上有着对华为严厉制裁的先例，中国移动（BSN的主要发起人）已经被纽交所退市的情况下，美国政府对中共区块链平台进行雷霆行动指日可待。
 
-**简评：**
+中共希望通过控制全球区块链来掌控世界的野心图谋必将破产。
 
-与许多西方国家一样，西班牙是一个信仰天主教的国家，有着悠久的文化传承，其文化和民族的根源来自天主教。比如构成社会最基本的形态—家庭，就是基于天主教传统的一男一女的婚姻。
+参考资料：
 
-而现在，这些传承了千年的文化面临着被颠覆的风险。
+[CoinDesk 3/16 Inside China’s Effort to Create a Blockchain It Can Control](https://www.coindesk.com/china-to-create-it-can-control)
 
-文章中提到的一件事情是“社会权利和2030议程部长”贝拉拉周三宣布，《家庭多样性和家庭支持法》将 “在明年年初” 提交给众议院，并将用于承认 “所有家庭模式”，从单亲家庭到同性恋大家庭。该法律的重点是 “在法律和社会上充分承认家庭的多样性，改善其社会保护，部署支持调解和共同责任的措施，并特别关注那些有特殊情况或需求的家庭，以照顾他们并为他们提供相应支持”。 来源：[（ABC新闻）](https://www.abc.es/sociedad/abci-belarra-compromete-presentar-ley-diversidad-familiar-principios-2022-202104281327_noticia.html)
+[https://www.bloomberg.com/news/articles/2021-03-24/china-s-new-belt-and-road-has-less-concrete-more-blockchain](https://www.bloomberg.com/news/articles/2021-03-24/china-s-new-belt-and-road-has-less-concrete-more-blockchain)
 
-文中提到的另一件事，“性别意识形态”即追求“女权的绝对平等”。 西班牙为此专门成立了一个“平等部”， 部长伊莲娜-蒙特罗（Irene Montero**）**是前副首相，“我们能够”党领袖伊格莱西亚斯的妻子，因为采用激进的政治方式，追求“女权”而饱受争议，特别是在去年3月8日，不顾疫情，组织10万人进行女权游行，被认为引爆了西班牙的第一波疫情。
+[https://www.reuters.com/world/asia-pacific/us-lawmakers-look-advance-sweeping-bid-counter-china-2021-04-21/](https://www.reuters.com/world/asia-pacific/us-lawmakers-look-advance-sweeping-bid-counter-china-2021-04-21/)
 
-维护女权，对弱势群体和单亲家庭进行帮助是没有问题的。焦点在于用法律的形式“承认所有家庭模式”， 比如同性恋家庭，以及同性恋者收养孩子后共同组建的大家庭。甚至可以包括“你和你家的狗组建的婚姻家庭”。 本身法律可以用更缓和更友好的方式，去解决一些这方面的现实问题。但是牵涉到伦理和文化，用法律去强压是不妥当的，需要充分的讨论和广泛的妥协。
+[【世事解评】中共的区块链服务网络BSN](https://gnews.org/zh-hans/1109666/)
 
-而在疫情的掩盖下，当社会的所有焦点都在疫苗是否有效，疫苗的副作用时，一些原本应该慎重讨论的法律却获得了快速通过，例如“安乐死法案”，例如即将推出的“家庭法案”。 正如文中所说的，“当文化不再是一种生活方式时，才能被政治权力所塑造”， 这些貌似追求“平等、自由、人权”的法案，都有一个共同的特点：颠覆天主教的价值观。
+[China’s Belt and Road: Implications for the United States](https://www.cfr.org/report/chinas-belt-and-road-implications-for-the-united-states/)
 
-比如同性恋家庭，在西班牙，同性恋婚姻是合法的，但同性恋家庭的组建，甚至是生养或领养孩子，牵涉到伦理，传统。我们不在此讨论同性恋家庭是否需要承认及其社会意义。我们只是说，天主教是反同性恋的。当一个个被天主教反对的事情，都被用法律手段固定下来，作为社会变革的成果，来改变人类的生活，以天主教为基础的文明不成了空中楼阁吗？
+[【世事解评】美外交智库报告揭示 中共一带一路的巨大威胁](https://gnews.org/zh-hans/1035568/)
 
-当天主教的根基被颠覆，当信仰不再是信仰，当文化被政治所替代时，是否意味着天主教文明被颠覆，这是否就是大重启的一个方面？
+[BSN 中文官网](https://www.bsnbase.com)
 
-审核：蚂蚁兄弟；校对：信心的选择；发稿：信心的选择
+编辑/校对/发稿：正义的小新
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+**更多资讯，更多关注**
 
-**新闻来源：**[ABC新闻](https://www.abc.es/sociedad/abci-vacuna-contra-ingenieria-social-202105010049_noticia.html)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**欢迎加入西班牙巴塞罗那喜悦农场**](https://discord.com/invite/WPy8Qp7)
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-+1
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

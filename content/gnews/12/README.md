@@ -1,41 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本外相访问欧洲
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1162001/)
+## 最新研究显示，辉瑞疫苗具有引发老年痴呆等神经退行性病变的风险
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1162187/)
 
-```
-新闻来源：每日新闻 日本
-发布日期：2021年4月28日
-翻译整理/简评：帕丁顿
-```
+作者:【默凡】
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01192339/hz2syo2sm0261.png)图片来源：Reddit
-【据日本《每日新闻》2021年4月28日报导】日本外交大臣茂木敏周二表示，他将于本周晚些时候前往英国和三个东欧国家：斯洛文尼亚、波兰、波斯尼亚和黑塞哥维那。在从周四到5月8日的旅行中，茂木敏二将与来自七个工业化国家集团的同行参加在伦敦举行的会议。从下周一开始的为期三天的七国集团会议之际，日本正寻求加强与民主的欧洲国家的联系，这是由于人们对中国的自信心日益增强感到担忧。
+《微生物与传染病学杂志》近日发表一篇题为《新冠RNA疫苗与朊病毒致病风险》[1]的论文，这份报告发现美国辉瑞公司研制的新冠病毒疫苗可能具有从未曾披露的长期健康影响，包括肌萎缩性侧索硬化症、老年痴呆（阿尔茨海默氏症）、或其他神经退行性病变” 。
 
-在一次新闻发布会上茂木说：“当关于印太地区的讨论变得更加活跃时，在此关头，日本必须展示其在欧洲的存在，这一点极为重要。”
+图片资料：
 
-《每日新闻》说，欧洲国家一直在将注意力转移到该地区，以确保国家利益，该地区是世界经济增长的主要引擎。欧洲联盟于4月中旬同意制定印度太平洋战略。
-茂木定于週一在伦敦与英国外交大臣多米尼克·拉布（Dominic Raab）举行双边会议，并与美国国务卿安东尼·布林肯（Antony Blinken）安排一次会晤，后者还将出席7国集团会议。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01200946/33.jpg)
 
-日本外相此次访问在伦敦的行程将夹在其他三个欧洲国家的同僚之间。
-在波兰，茂木将参加维谢格拉德集团的外长会议，匈牙利，斯洛伐克，捷克共和国及其东道国将在该国举行。
+[https://scivisionpub.com/pdfs/covid19-rna-based-vaccines-and-the-risk-of-prion-disease-1503.pdf](https://scivisionpub.com/pdfs/covid19-rna-based-vaccines-and-the-risk-of-prion-disease-1503.pdf)
 
-另【据斯洛文尼亚RTV 4月30号报导】日本外交大臣茂木敏正今天对斯洛文尼亚进行正式访问，在与斯洛文尼亚外长安日·洛加尔举行会谈后，两国部长呼吁加深两国之间的合作，洛加尔强调在经济和其他领域（包括网络安全）的合作将加深。茂木还计划与博鲁特·帕霍尔总统和总理珍妮斯·扬沙会晤，日本外相将继续他在波斯尼亚和黑塞哥维那的中东欧国家的访问。
+该研究报告宣称：“当前基于RNA研发的新冠肺炎疫苗已在美国获得紧急批准并投入使用，而没有对该疫苗进行长期的安全性测试。”
 
-#### 简评：
+这篇报告对辉瑞新冠肺炎疫苗在疫苗接种者中诱发病毒性疾病的潜力进行了评估。根据国家医学图书馆的一份报告，辉瑞疫苗是一款mRNA疫苗，这是一种未经测试的疫苗，它进入人体后可产生新蛋白，还可以整合到人类基因组中，这非常令人担忧。换句话说，普通人接种辉瑞疫苗后，随时可能出现大脑退化症状。[2]
 
-**70多年的加入正常国家的预备期考核通过，及加入五眼联盟后，我们希望军国主义的日本武士刀正在变成代表普世价值的正义之剑，尽快刺向邪恶的东欧共产残余势力。虽然日本个头如同她在东欧几个国家大使馆，很多都在一栋写字楼里面，和共产党的动辄好几栋楼的大使馆没法比，但是这种对比不是力量的全部。**
+该研究报告的摘要总结认为：“该发现及其他潜在的风险使作者相信，RNA新冠肺炎疫苗的监管批准为时过早，该疫苗造成的危害可能会大于收益。”
 
-**日本国，是反日情绪最容易被点燃的中国人向往的旅游胜地，容易点燃也就容易熄灭。只要媒体不提“钓鱼岛”，“南京大屠杀”即可。日本国以她36万平方公里的面积及一亿二千六百万人口，如果不算上俄罗斯，放在欧洲绝对第一大国，只要回归一个正常国家，特别是进入联合国常任理事国，其在欧洲的影响绝对会比大多数中国人想像的要大。日本应该积极发挥其做为一个民主大国的作用，正义一旦崛起，邪恶会墙倒众人推。一个有趣的现象是网上搜不到中文版的《每日新闻》这则消息，这也是我要写这篇评论的原因。**
-（本文仅代表作者个人观点，跟GNEWS平台无关。）
+因此，研究者在这份报告末尾写道：这种疫苗可能是一种生物武器，甚至比起初感染还危险（The vaccine could be a bioweapon and even more dangerous than the original infection.）。
 
-**新闻原文链接：**
-🔗[Japan foreign minister to visit Britain, 3 Eastern European countries](https://mainichi.jp/english/articles/20210428/p2g/00m/0na/071000c)
-🔗[Japanese FM in Slovenia](http://www.rtvslo.si/radio-si/news/japanese-fm-in-slovenia/578507)
+本文仅代表作者本人观点，不代表Gnews平台
 
-* * *
+参考文章：
 
-***编辑整理/校对: **Ting Guo*
+[\[1\]https://scivisionpub.com/pdfs/covid19-rna-based-vaccines-and-the-risk-of-prion-disease-1503.pdf](http://[1]https://scivisionpub.com/pdfs/covid19-rna-based-vaccines-and-the-risk-of-prion-disease-1503.pdf)
+
+[\[2\]https://www.globalresearch.ca/report-pfizer-vaccine-confirmed-cause-neurodegenerative-diseases-study/5743522](http://[2]https://www.globalresearch.ca/report-pfizer-vaccine-confirmed-cause-neurodegenerative-diseases-study/5743522)
+
+校对/发稿：Penny
 
 0
