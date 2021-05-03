@@ -1,283 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士谈论疫苗的安全性
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1162772/)
+## 【世事解评】你我的挣扎
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1166042/)
 
-**内容：**
+作者：纽约香草山信息部 TimeTraveler
 
-**闫丽梦博士：**
 
-I do have my concern about the vaccine now.
 
-我现在确实对疫苗感到担忧
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
 
-And the first thing is
 
-第一件事是
 
-I kept telling people there no real effective vaccines against the pandemic
 
-我一直告诉人们没有真正有效的疫苗来对抗这种大流行
 
-So there are some reasons very simple the people can understand the vaccine
 
-所以有一些很简单的原因，让人们可以理解疫苗
 
-The first thing is this virus SARS Covid-2 is basically the bigger version, enhanced version of SARS 1,
+**你我**：我们的工资很低，杂事却多，经常要加班，加班还没有加班工资，下班回去还时刻要注意手机，害怕错过客户或者老闆的电话，日复一日就这麽茫然地过，时不时还受点不公和委屈，无处申诉，以为换了工作就会好过一点，谁知道还是换汤不换药，感觉就是从一个坑跳进另一个坑。物价高的离谱，房贷、车贷压得喘不过气，还好我没有孩子，不然压力更大，而且吃的食物有毒，住的房子有问题，连空气都有严重污染，根本都不能给孩子一个健康的环境去生活，不知道为什麽要这样活著，心好累。
 
-首先，这种SARS Covid-2病毒基本上是SARS一号的增强版本，
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02225042/%E4%B8%89%E5%BA%A7%E5%A4%A7%E5%B1%B1-1.jpeg)（图源网络）
 
-And we never have such vaccine, because of the nature, I am not
+**觉醒者**：因为生活所涉及的各个方面都没有途径可以去维护我们的权利，所以只能被毫无底线地剥削。
+**你我**：为什麽没有途径维护我们的福利和权益?
+**觉醒者**：就工作方面来说，保障福利和权益一般是工会的职责，但是这个国家的工会不是帮助工人的，是帮助中共维稳工人的。
+**你我**：难道没有人起来反抗或者改组工会吗？
+**觉醒者**：有啊，不过那些人最后不是消失了就是还在牢房裡。
+**你我**：为什麽会消失或者在牢房裡？
+**觉醒者**：因为他们增加奴隶主的管理成本，危害奴隶社会的稳定。最简单的办法就是给他们安一个罪名，关进牢裡做苦工，如果他们体检采样符合要求，会等待器官配对，最后把有用的器官摘下卖钱，活摘器官之后尸体直接火化于是就消失了。医院、学校、火葬场和墓地也都是党产，医疗费、学费、火化费、墓地费也都很高昂，很多奴隶无力承担，读不起、病不起、死不起。之前有一个叫孙大午的开了一个大午医院，当地村民每月只要交1元就能看病拿药，他办的学校也每月交100元生活费就能上学，可是中共给人家安了好一些罪名，抄家了，所有资产变成党产，人还在牢裡；如果受了不公想去告发迫害自己的官员，那更是难上加难，公检法都是服务于党的，想学古人上访？截访的比上访的还多，中共这个体制从裡到外都烂透了，有良心者寸步难行，无良心者步步高升。
+**你我**：？？？我到底生活在一个什麽样的国家？
+**觉醒者**：准确地说你不是生活在一个国家，而是生活在一个巨大监狱裡。这个监狱由土匪建立，他们用谎言欺骗大家，说要建立民主国家，继而打土豪分田地又把土地收归党有、公私合营强佔企业，洗劫社会各层级。监狱里充满著谎言，因为监狱足够大又有足够多的谎言，所以让大家以为这是一个国家。
+**你我**：那我们为什麽不逃跑？或者是求救？
+**觉醒者**：因为你跑不了，周围都是监控，摄像头能识别你的身份，即使你戴上帽子、戴上口罩，也能通过你的步态识别出你；手机方面能通过软件后门获取你手机的所有内容，你在社交媒体的一言一行都被监控著，而手机号能确定你的身份；电脑方面能通过软件后门获取你的流览数据，杀毒软件一类的还能获取你电脑所有的资料、数据并上传到服务器，IP位址能定位到你，有些大学甚至登记MAC位址来确定哪台电脑发出的哪条资讯。在边境有高牆和电网，还有守卫和猎犬。求救的话，信号也发不出去，即使发出去了，也会被中共派出去的人掩盖真相，而发信号的人也会进牢房等待消失。当然有比我们高等级的奴隶通过其他方法逃出去恢复自由的，但这是你我这种低等级的奴隶望尘莫及的。
+**你我**：既然是这样一个生不如死的地方，为什麽还要把我生出来，为了让我感受绝望？
+**觉醒者**：因为你的父母被周围的谎言欺骗，没有寻求真相的途径又或者不敢去寻求真相、面对真相，于是他们成了谎言的受害者和维护者。
+**你我**：我到底应该怎麽办？真相的衝击颠覆我所有的认知，我觉得既愤怒又痛苦，愤怒中共对我的欺骗，痛苦自己还要生活在这个充满谎言的巨大监狱里，但是又不知道该做什麽！
+**觉醒者**：现在能做的是鼓起勇气面对所有的真相，拓展自己的知识面，并且传播真相。
+**你我**：回想一下自己以前在学校，那麽努力学习的历史居然有充满谎言，花费那麽多时间背诵的知识居然全是假的！
+**觉醒者**：也不完全是，至少在你知道某一真相以后，能第一时间反应过来共产党在哪方面说了什麽样的谎言。比如苏联对中共的扶植其实是对中国的殖民侵略；比如中共的长征其实是被第五次围剿后的大逃跑，而被围剿的原因是中共以国共合作为切入口进而以亲共、远共、反共三派分化国民政府，阻止北伐，以国军身份製造与外国的矛盾，在盘踞之地强取豪夺、屠杀百姓，以致民不聊生等等；比如中共的抗日其实是纸上抗日，报纸上宣传其抗日，其实是招揽人员扩充军队（抗战初期共军只有二万五千人，到抗战结束时已有九十一万正规军，二百二十万民兵），并且出卖国军情报给日军，趁国军迎面抗击日军之时，在后方与日军夹击国军，还在南泥湾种植鸦片销售到国统区，荼毒百姓等。还有好多好多的真相这裡就不一一列举了，共产党真的是“好话说尽，坏事做绝”。
+**你我**：除了瞭解真相，面对真相，我们还能做什麽？
+**觉醒者**：加入爆料革命，联合全世界正义的力量，一起灭共。现在中共已经释放了超限生化武器对付全世界，在此决一死战之后，世界必是一番新景象。假如正义的力量赢了，迎接我们的将是美好的未来，至少可以找回做人的尊严。我相信上帝会帮助我们战胜中共的！
+**你我**：好，加入爆料革命，学习真相、传播真相，一起灭共。
+**觉醒者**：快了，日子近了。
 
-我们从来没有研究出过这样的疫苗，因为自然界的原因，我并
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
 
-anti vaccine I worked on universal influenza vaccine
+编辑/校对/发稿： 人间世
 
-不反对疫苗，我本身也是做流感疫苗的研究方面的工作
+**更多资讯，更多关注**
 
-I have my patent on pending,
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-我有申请中的疫苗专利
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-I know, I just know how to develop vaccine in a proper way try to in a proper way, right?
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-我知道，我只是知道如何以适当的方式开发疫苗，对吗？
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-So this SARS Covid 2, it likes SARS 1, we don’t have vaccine because of the
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-所以这个SARS Covid 2，它就像SARS 1，我们没有疫苗，因为
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
 
-side effect contains
 
-副作用的因素
-
-Likes as allergy or antibody dependent enhancement
-
-像过敏或抗体依赖性增强的
-
-and also we don’t have the good universal influenza vaccine that will have
-
-而且我们也没有好的通用流感疫苗
-
-to develop year by year
-
-需要逐年研发
-
-because of the quick mutant
-
-因为流感病毒变异很快。
-
-So now SARS 2 combined the quick mutant in the circulation
-
-所以现在SARS 2结合了循环中的快速变异
-
-and also it had side effect from SARS 1
-
-此外，它还具有非典1的副作用。
-
-So how could people quickly overcome these issues in several months
-
-那么，人们如何才能在几个月内迅速克服这些问题呢？
-
-and also we know that SARS 2 actually have a lot of modification
-
-我们也知道SARS 2实际上有很多修改
-
-as the Doctor Fleming also mentioned its bio-weapon, right?
-
-因为弗莱明博士也提到了它的生物武器，对吧？
-
-and I already showed that is an unrestricted bio-weapon
-
-我已经证明了这是一种超限的生物武器
-
-so there are also many hidden functions and this is as ….the protein, …
-
-所以还有很多隐藏的功能，这就是…。蛋白质，…..
-
-there are many things…
-
-有很多事情…
-
-now is OK
-
-现在可以了，声音回来了
-
-So at least, you see now we are using most properly we are using
-
-所以，至少我们现在知道，使用的是
-
-the S protein equipped on as I don’t know Virus- mRNA,
-
-最合适的S蛋白，因为我不知道病毒-mRNA
-
-adaptors deliver to our body
-
-适应体传递到我们的身体上里
-
-I don’t judge the technic, because I didn’t see a lot of technic data released
-
-我不评判技术，因为我没有看到很多mRNA公司
-
-by these mRA companies
-
-发布的技术数据
-
-So we need to exam these when its openly released, more released data
-
-因此，我们需要在公开发布更多数据时对其进行检查，这样我们才能
-
-and we can know more
-
-了解更多信息
-
-But just talk about S protein that whether there is still hidden function inside
-
-但是说到S蛋白，我们还不知道里面是否还有
-
-we don’t know
-
-隐藏的功能
-
-We do see that people get infected and get more communication as we just men-tioned
-
-正如我们刚才提到的，我们确实看到人们感染了病毒，并获得了更多的传播
-
-So at this time if just delivered S protein to our body
-
-所以在这个时候，如果只是把S蛋白送到我们的身体里。
-
-whether it will release some other adverse effect
-
-会不会释放一些其他的不利影响。 、
-
-which is even ignored which may come out not in the short term
-
-它甚至被忽视了，这可能不是在短期内出现的
-
-but as chronic style later in our bodies
-
-而是后来在我们身体里变成慢性疾病形式出现
-
-whether it will induce some problem and which can be triggered later by some oth-er
-
-它是否会引发一些问题，以及以后会不会被其他诱发剂触发
-
-factors when we get vulnerable we don’t know that
-
-当我们变得脆弱时，我们不知道
-
-We just know that we still need more data, animal data, enrichful data and
-
-我们只知道我们还需要更多的数据、动物数据、丰富的数据和
-
-also small human trial data
-
-少量的人体试验数据
-
-This need to be done on very strict surveillance and also a lot people should,
-
-这需要在非常严格的监控下进行，而且大家也应该这样做
-
-I mean scientist should check the data carefully and open discuss it.
-
-我的意思是科学家应该仔细检查数据并公开讨论
-
-We don’t know that we just say the vaccine is given to people
-
-我们不知道我们只是说疫苗是给人接种的
-
-Even when they have some other basic problem
-
-即使他们有其他一些基础疾病问题
-
-Even when they are old I don’t know
-
-即使他们老了，我也不知道
-
-For example in China, they gave some in Hong Kong, in negative or
-
-比如在中国，他们在香港给了一些灭活的或者
-
-in other type of vaccine, like Sino Vaccine,
-
-其他类型的疫苗，比如科兴疫苗
-
-From that company to senior age group
-
-给老年群组使用
-
-I am not sure whether it’s in negative or re-combining
-
-我不确定它是灭活的还是重组的疫苗
-
-Anyway, they gave it to the group over 60 years and that is a special group
-
-不管怎么说，他们给60岁以上的人群提供了疫苗，这是一个特殊的群体
-
-I mean in vaccine development you know that senior people have a lower immunity
-
-我的意思是说，在疫苗开发方面，你们知道的，老年人的免疫力较低
-
-immune response
-
-免疫反应较低
-
-So whether the vaccine work for them has to be done for this specific age popula-tion
-
-因此，疫苗是否适用于这一特定年龄段的人群
-
-for small tr​​ial
-
-需要进行小规模试验
-
-and also because they usually has the diabetes or hypertension or other problems
-
-也因为他们通常有糖尿病或高血压或其他问题
-
-we have to think about whether these condition will affect these vaccines
-
-我们必须考虑这些情况是否会影响这些疫苗
-
-but now it seems that it just come into human and then people see the result
-
-但现在看来，疫苗只是被注射进入人体，然后人们等着看结果
-
-and we even didn’t receive the very clear result
-
-我们甚至没有收到非常明确的结果
-
-although the vaccine has been given for several months, right?
-
-虽然疫苗已经打了几个月了，对吧？
-
-so now, I really feel that it’s hurry to get vaccine and
-
-所以现在，我真的觉得现在太急于接种疫苗
-
-we do encourage the pharmacy to generate more data to show people
-
-我们确实鼓励制药厂商将更多的数据
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://rumble.com/vfy3xf-lethal-deception.html](https://rumble.com/vfy3xf-lethal-deception.html)
-
-英听校:康州盘古农场-WZ
-
-翻译: 康州盘古农场-WZ
-
-翻译终校: 康州盘古农场-Mike Li
-
-字幕+视频制作:康州盘古农场 – 天涯行
-
-审片:康州盘古农场 – 银龙
-
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

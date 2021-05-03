@@ -1,35 +1,283 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 缅甸冲突给东盟带来新冷战格局
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1166011/)
+## 闫博士谈论疫苗的安全性
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1162772/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+**内容：**
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/05/A-2.jpg)cseashawaii.org
-日经新闻报道，东南亚国家联盟(Association of Southeast Asian Nations，简称东盟)领导人最近发表的主席声明中，暗示该地区卷入了这个时代最重要的地缘政治冲突。
+**闫丽梦博士：**
 
-声明强调了总体接触的必要性，称他们“指示外长尽快与中华人民共和国和美国举行会晤”。
+I do have my concern about the vaccine now.
 
-这两个国家并不是欧盟唯一的对话伙伴，其他对话伙伴还包括日本、俄罗斯和印度。但它们是全球竞争的两个极端，这一竞争被界定为民主与独裁之间的“新冷战”，而缅甸的政变和随后发生的暴力事件让这一动态得到了鲜明的体现。
+我现在确实对疫苗感到担忧
 
-声明包含了关于缅甸问题的“五点共识”，包括呼吁立即停止暴力，并通过“建设性对话”寻求和平解决方案。对于一个传统上避免干涉成员国内部事务的集团来说，这是一个不同寻常的举动。
+And the first thing is
 
-缅甸民族政府的发言人在社交媒体上发表声明，对这一“令人鼓舞的消息”表示欢迎。同时称赞了印尼总统佐科·维多多 (Joko Widodo)要求缅甸军政府释放政治犯的呼吁。维多多还敦促结束暴力，恢复民主。主席的声明和维多多的言论似乎表明东盟内部正在发生微妙的变化。
+第一件事是
 
-但问题是这些话能否转化为行动，第一个考验是任命一位东盟特使进行调解。
+I kept telling people there no real effective vaccines against the pandemic
 
-目前没有机制可促使缅甸“立即停止暴力”。如果缅甸军方继续对抗议者进行暴力镇压，或与反对政变的武装组织发生冲突，邀请缅甸军政府领导人参加谈判的东盟领导人就会颜面尽失。即使缅甸军政府停止暴力镇压，如果军队不释放民主党领导人昂山素季，以军政府身份参与政治对话,其掌权将成为一个既成事实,东盟将承担被批评为军政府进入国际社会开启了方便之门的风险。
+我一直告诉人们没有真正有效的疫苗来对抗这种大流行
 
-联合国安理会(U.N. Security Council)在2月1日政变后不久举行会议，权衡如何回应，但中共和俄罗斯反对美国和欧洲成员国谴责政变的努力，目前僵局尚未打破。这种僵持局面并不罕见。冷战时期，美国和苏联经常把冲突的包袱带到讨论中，而缅甸在“新冷战”中再次上演这种情况。
+So there are some reasons very simple the people can understand the vaccine
 
-在东盟成立前后，东南亚是最初冷战的主要战场。东盟与西方集团结盟，支持资本主义反对共产主义。现在，如果新冷战是民主国家和专制国家之间的斗争，东盟很难坚定地站在一方或另一方。该组织自成立以来一直在扩大，它的成员在两个方向上都有倾斜。
+所以有一些很简单的原因，让人们可以理解疫苗
 
-缅甸以及东盟周边的国际动态令人担忧，新的冷战来到了东盟，缅甸的局势清楚地表明了东盟成员国现在所处的困境。
+The first thing is this virus SARS Covid-2 is basically the bigger version, enhanced version of SARS 1,
 
-参考链接：
+首先，这种SARS Covid-2病毒基本上是SARS一号的增强版本，
 
-[https://asia.nikkei.com/Spotlight/Myanmar-Coup/Myanmar-conflict-brings-new-Cold-War-to-ASEAN-s-door](https://asia.nikkei.com/Spotlight/Myanmar-Coup/Myanmar-conflict-brings-new-Cold-War-to-ASEAN-s-door)
+And we never have such vaccine, because of the nature, I am not
+
+我们从来没有研究出过这样的疫苗，因为自然界的原因，我并
+
+anti vaccine I worked on universal influenza vaccine
+
+不反对疫苗，我本身也是做流感疫苗的研究方面的工作
+
+I have my patent on pending,
+
+我有申请中的疫苗专利
+
+I know, I just know how to develop vaccine in a proper way try to in a proper way, right?
+
+我知道，我只是知道如何以适当的方式开发疫苗，对吗？
+
+So this SARS Covid 2, it likes SARS 1, we don’t have vaccine because of the
+
+所以这个SARS Covid 2，它就像SARS 1，我们没有疫苗，因为
+
+side effect contains
+
+副作用的因素
+
+Likes as allergy or antibody dependent enhancement
+
+像过敏或抗体依赖性增强的
+
+and also we don’t have the good universal influenza vaccine that will have
+
+而且我们也没有好的通用流感疫苗
+
+to develop year by year
+
+需要逐年研发
+
+because of the quick mutant
+
+因为流感病毒变异很快。
+
+So now SARS 2 combined the quick mutant in the circulation
+
+所以现在SARS 2结合了循环中的快速变异
+
+and also it had side effect from SARS 1
+
+此外，它还具有非典1的副作用。
+
+So how could people quickly overcome these issues in several months
+
+那么，人们如何才能在几个月内迅速克服这些问题呢？
+
+and also we know that SARS 2 actually have a lot of modification
+
+我们也知道SARS 2实际上有很多修改
+
+as the Doctor Fleming also mentioned its bio-weapon, right?
+
+因为弗莱明博士也提到了它的生物武器，对吧？
+
+and I already showed that is an unrestricted bio-weapon
+
+我已经证明了这是一种超限的生物武器
+
+so there are also many hidden functions and this is as ….the protein, …
+
+所以还有很多隐藏的功能，这就是…。蛋白质，…..
+
+there are many things…
+
+有很多事情…
+
+now is OK
+
+现在可以了，声音回来了
+
+So at least, you see now we are using most properly we are using
+
+所以，至少我们现在知道，使用的是
+
+the S protein equipped on as I don’t know Virus- mRNA,
+
+最合适的S蛋白，因为我不知道病毒-mRNA
+
+adaptors deliver to our body
+
+适应体传递到我们的身体上里
+
+I don’t judge the technic, because I didn’t see a lot of technic data released
+
+我不评判技术，因为我没有看到很多mRNA公司
+
+by these mRA companies
+
+发布的技术数据
+
+So we need to exam these when its openly released, more released data
+
+因此，我们需要在公开发布更多数据时对其进行检查，这样我们才能
+
+and we can know more
+
+了解更多信息
+
+But just talk about S protein that whether there is still hidden function inside
+
+但是说到S蛋白，我们还不知道里面是否还有
+
+we don’t know
+
+隐藏的功能
+
+We do see that people get infected and get more communication as we just men-tioned
+
+正如我们刚才提到的，我们确实看到人们感染了病毒，并获得了更多的传播
+
+So at this time if just delivered S protein to our body
+
+所以在这个时候，如果只是把S蛋白送到我们的身体里。
+
+whether it will release some other adverse effect
+
+会不会释放一些其他的不利影响。 、
+
+which is even ignored which may come out not in the short term
+
+它甚至被忽视了，这可能不是在短期内出现的
+
+but as chronic style later in our bodies
+
+而是后来在我们身体里变成慢性疾病形式出现
+
+whether it will induce some problem and which can be triggered later by some oth-er
+
+它是否会引发一些问题，以及以后会不会被其他诱发剂触发
+
+factors when we get vulnerable we don’t know that
+
+当我们变得脆弱时，我们不知道
+
+We just know that we still need more data, animal data, enrichful data and
+
+我们只知道我们还需要更多的数据、动物数据、丰富的数据和
+
+also small human trial data
+
+少量的人体试验数据
+
+This need to be done on very strict surveillance and also a lot people should,
+
+这需要在非常严格的监控下进行，而且大家也应该这样做
+
+I mean scientist should check the data carefully and open discuss it.
+
+我的意思是科学家应该仔细检查数据并公开讨论
+
+We don’t know that we just say the vaccine is given to people
+
+我们不知道我们只是说疫苗是给人接种的
+
+Even when they have some other basic problem
+
+即使他们有其他一些基础疾病问题
+
+Even when they are old I don’t know
+
+即使他们老了，我也不知道
+
+For example in China, they gave some in Hong Kong, in negative or
+
+比如在中国，他们在香港给了一些灭活的或者
+
+in other type of vaccine, like Sino Vaccine,
+
+其他类型的疫苗，比如科兴疫苗
+
+From that company to senior age group
+
+给老年群组使用
+
+I am not sure whether it’s in negative or re-combining
+
+我不确定它是灭活的还是重组的疫苗
+
+Anyway, they gave it to the group over 60 years and that is a special group
+
+不管怎么说，他们给60岁以上的人群提供了疫苗，这是一个特殊的群体
+
+I mean in vaccine development you know that senior people have a lower immunity
+
+我的意思是说，在疫苗开发方面，你们知道的，老年人的免疫力较低
+
+immune response
+
+免疫反应较低
+
+So whether the vaccine work for them has to be done for this specific age popula-tion
+
+因此，疫苗是否适用于这一特定年龄段的人群
+
+for small tr​​ial
+
+需要进行小规模试验
+
+and also because they usually has the diabetes or hypertension or other problems
+
+也因为他们通常有糖尿病或高血压或其他问题
+
+we have to think about whether these condition will affect these vaccines
+
+我们必须考虑这些情况是否会影响这些疫苗
+
+but now it seems that it just come into human and then people see the result
+
+但现在看来，疫苗只是被注射进入人体，然后人们等着看结果
+
+and we even didn’t receive the very clear result
+
+我们甚至没有收到非常明确的结果
+
+although the vaccine has been given for several months, right?
+
+虽然疫苗已经打了几个月了，对吧？
+
+so now, I really feel that it’s hurry to get vaccine and
+
+所以现在，我真的觉得现在太急于接种疫苗
+
+we do encourage the pharmacy to generate more data to show people
+
+我们确实鼓励制药厂商将更多的数据
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频连接: [https://rumble.com/vfy3xf-lethal-deception.html](https://rumble.com/vfy3xf-lethal-deception.html)
+
+英听校:康州盘古农场-WZ
+
+翻译: 康州盘古农场-WZ
+
+翻译终校: 康州盘古农场-Mike Li
+
+字幕+视频制作:康州盘古农场 – 天涯行
+
+审片:康州盘古农场 – 银龙
+
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

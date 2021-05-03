@@ -1,33 +1,93 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美日韩首次会晤关切朝鲜核武
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1165967/)
+## 【香草诗词汇】洗VS喜
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1166048/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：纽约香草山健身部 回响
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/05/J-1.jpg)wilsoncenter.org
-日经新闻报道，美国、日本和韩国的高级官员最近在夏威夷会晤，表达对朝鲜问题的关切，并讨论在该地区促进基于规则的国际秩序的重要性。
 
-美国参谋长联席会议主席马克·米利 (Mark Milley)，日本自卫队联合参谋部参谋长山崎幸二 (Kōji Yamazaki)，韩国参谋长联席会议(Joint Chiefs of Staff)主席元仁哲 (Won In-choul)，于当地时间周四在夏威夷举行会议，这是自全球疫情以来三国领导人的首次会面。
 
-美国方面在一份新闻稿中说，“三方对朝鲜的核项目和弹道导弹项目都表示关切，并讨论了在该地区促进基于规则的国际秩序的重要性。”
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
 
-元仁哲强调了三方合作确保朝鲜半岛和东北亚和平与安全的重要性，而山崎幸二则强调了共同努力使朝鲜全面遵守联合国安理会决议的必要性。
 
-据美方消息，在第二天的双边会谈中，山崎和米利重申“美日仍然反对任何单方面改变东海现状的企图”。
 
-日本首相菅义伟(Yoshihide Suga)和美国总统拜登(Joe Biden)在4月份的峰会上确认了“台海和平与稳定的重要性”。
+一个俨然不可一世的组织
 
-东海的紧张局势一直在升级，中共上月派遣辽宁号航空母舰前往日本冲绳和宫古岛之间海域。中共海警船多次进入日本管辖的尖阁诸岛(Senkaku Islands，中国称钓鱼岛及其附属岛屿)附近海域。中共声称对这些岛屿拥有主权。
+被世人称为洗洗屁
 
-山崎和米利讨论了“美国坚定承诺保卫日本”。根据部分的双边安全条约的解释为，美国对待任何攻击日本领土相当于对待对美国本土的攻击。
+洗——
 
-随着中共加强军事力量和海上扩张，日本和美国正在加强与欧洲国家在该地区的协调。英国将把伊丽莎白女王号航母部署到亚洲水域，包括访问日本的港口。法国本月也将参加与日本和美国的防卫演习。
+是越来越多人知道
 
-参考链接:
+幕后的欺骗、蛊惑、邪恶、无耻
 
-[https://asia.nikkei.com/Politics/International-relations/Indo-Pacific/US-Japan-South-Korea-generals-hold-first-meeting-since-outbreak](https://asia.nikkei.com/Politics/International-relations/Indo-Pacific/US-Japan-South-Korea-generals-hold-first-meeting-since-outbreak)
+它正在走向消亡的不归路
 
-0
+伴着亿万良知的鄙视和唾弃
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02224041/93.jpg)图片来源：HIMALAYA EXCHANGE官网
+
+2021年4月21日
+
+一个金融界的新生儿来到人世
+
+名叫喜币
+
+喜——
+
+是会当凌绝顶的高高屹立
+
+喜——
+
+是亿万战友从前不可能的财富开始
+
+喜——
+
+是顺时应势的华夏奇迹
+
+喜——
+
+是亿万炎黄的未来
+
+喜——
+
+是爆料革命新中国联邦的信誉
+
+喜——
+
+是文贵先生的大智大勇大爱
+
+喜币
+
+更是洗洗屁烟消云散的大杀器！
+
+恭喜
+
+恭喜
+
+（本文仅代表作者观点）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01143151/M5.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+
+
++1

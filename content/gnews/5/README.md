@@ -1,126 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士谈E蛋白帮助病毒维持神经毒性
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1166219/)
+## 郭先生0502V金融危机和脱钩的冰冻效应将使中共瞬间崩塌
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1166283/)
 
-字幕内容：
+编辑整理：
 
-闫丽梦博士：
+多伦多枫叶农场：Winner为自由而战（文祥）；纽约香草山农场：清泉石上流；日本东京方舟农场：山川异域
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02234350/%E5%B0%81%E9%9D%A2-5.jpg)
+据[2021年5月2号 文贵直播标题：国内银行倒闭，房地产崩塌，粮食链断裂，国际关系的冰冻效应，中共内部已经认为中共即将终结；以美灭共会最终促成以共灭共的发生，在2022年开始；喜币是金融界的金箍棒](https://gtv.org/video/id=608ea73f6c00a14130e56d95)时间点31：50——
 
-So what I want to comment on it,
+所以刚才说到的一开始的金融领域，大家记住啊，共产党那么多年包括国民党到现在，你记住当银行开始倒闭的时候，房地产就开始倒了。中国，我再重申一遍，中国人不生产任何所谓的有专利权，没有任何的文明的开发的东西，中国人没有任何在世界上跟世界叫板儿的所谓的生产力。
 
-对于这一点，我想说的是
+我们只有商业生产力，没有任何的原创生产力。那中国就没有任何经济增长点，你告诉我经济中国能产什么？中国能往外卖什么？你就是再加工啊，就是血汗钱嘛，打工妹、打工仔嘛。
 
-I am not neurologist, I just have the medical knowledge about neurology disease.
+那么如果世界经济和中国脱钩以后，中国完全既没有原创生产力也没有商业生产力的时候，这种经济模式，中国人只能什么？是“自产”——自力更生，自生自灭。14亿的中国，你有全生产链儿、全供应链儿，但是你将回到你的原始社会——石器时代。
 
-我不是神经科医生，我只是有神经科疾病的医学知识
+那么共产党在这个时候，能不能经受的住中国人内部的反抗，中国人会不会反抗？答案非常清楚，中国人一定会反抗。14亿人不要说是14亿人全站起来反抗，只要是一亿人、一千万人甚至是几百万人一定会把共产党推翻。
 
-But what I have pointed in my third report and also in my first report, I can use it as smoking gun.
+金融的崩塌、房地产的崩塌、粮食链儿一定会出问题，跟国际社会上的经济封锁和国际上的信息的封锁，和国际社会之间的各种矛盾，全面爆发后，和过去这几年大撒币不能兑现导致的严重的这种政治结果、国际关系的结果，会瞬间形成国内的冰冻效应。
 
-但正如我在第三份报告和第一份报告中指出的那样，我可以把它当作确凿的证据
+什么叫冰冻效应？你暖着呢，正在洗着桑拿呢，duang~一下子结冰了。一、导致你休克，二，这个人他有一种本能的反应，他就会想收身子，想蹦出去，来拒绝这种冰冻效应。这种冰冻效应就是当年突尼斯小贩Ali.默哈默德，还有他当时的总统、他的女婿和司法部长阿瓦利导致的突尼斯现象——瞬间崩塌，瞬间崩塌。这就是现在整个中国、整个中共的国际政治、经济所面临的形势。
 
-is envelop protein, E protein, in SARS-Covid 2,
+接上文——
 
-就是E蛋白，SARS-Covid 2中的E蛋白
+[郭先生0502I中共用温水煮青蛙的方式开始铺垫银行的倒闭](https://gnews.org/zh-hans/1165675/)
 
-it’s hundred percent identical as it as the back born, Zhou Shan Conoravirus
+[郭先生0502II在2020年中共已经消失剩下的就是物理上的消灭](https://gnews.org/zh-hans/1165954/)
 
-可以100%完全确认SARS-Covid 2使用舟山蝙蝠冠状病毒作为骨架
+[郭先生0502III比物理灭共更重要的不承认中共的时刻已到来](https://gnews.org/zh-hans/1166160/)
 
-First, this is the evidence. It comes from the Zhou Shan bat conoravirus, which is somehow, completely cab into SARS Covid 2.
-
-首先，这是证据。该E蛋白来自舟山蝙蝠冠状病毒，不知何故，它完全被发现在SARS Covid 2 病毒里
-
-Because if it is going through the spices that’s a kind of host changing, jump from bat to animal to animal to human
-
-因为如果它经过物种间传代，那就是一种从蝙蝠到动物再到动物再到人类的宿主
-
-definitely, that we would see the change, because they already observed the change
-
-当然，我们会看到这种变化，因为他们在人类大流行最早的时候
-
-during the earliest the pandemic in human.
-
-就已经观察到了这种变化
-
-And second thing is why do they keep it, because this is smoking gun,
-
-第二个问题是，中共为什么要对此守口如瓶，因为它是确凿证据
-
-since I write this problem from last year 19th January, with Youtube.
-
-因为我在去年1月19日用YouTube写了这个问题
-
-China had done a quickly get response and later they even locked down.
-
-中共很快就做出了反应，后来他们甚至封锁了E蛋白的信息
-
-Because they know someone released the real information of this bio-weapon.
-
-因为他们知道内部有人泄露了这种生物武器的真实机密
-
-But why until now, no scientist there to touch this E protein issue to argue with me.
-
-但是为什么到目前为止，还没有科学家触及到这个E蛋白的问题，他们也没有来和我争论这个E蛋白的问题？
-
-And even Shi Zhengli, and their like the Chinese Military Academy,
-
-就连shizhengli, 像那些中国军事医学院的学者们
-
-they have developed a lot of novel fabricated too naughty virus, including from bat from Pangolins,
-
-他们已经合成出了很多新奇的病毒，包括从蝙蝠身上，从穿山甲身上，
-
-which all have the identical E protein in those fabricated sequence.
-
-它们在构建的序列中都有相同的E蛋白。
-
-What do they want to hide?
-
-他们想隐瞒什么？
-
-Then lets we back to check E protein’s function.
-
-然后我们再回来检查一下E蛋白的功能
-
-Yes it ‘s not clearly investigated , but we know it’s important for virus fabrication
-
-是的，它还没有得到明确的调查，但我们知道它对病毒的合成至关重要
-
-as some other important part in the Coronavirus
-
-作为冠状病毒的其他重要组成部分
-
-But it’s also have another function what
-
-但是它还有另外一个功能，那就是
-
-discovered and actually my ex-lab in the University of Hong Kong,
-
-在我之前工作的香港大学的实验室
-
-it’s the lab get involve to discover is E protein can have the virus
-
-发现这种E蛋白可以帮助病毒
-
-help the virus maintain the neuronal toxicity
-
-帮助病毒保持其神经毒性
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://rumble.com/vfy3xf-lethal-deception.html](https://rumble.com/vfy3xf-lethal-deception.html)
-
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场-Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片: 康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[郭先生0502IV中共既无妥协机会也无对抗能力,它该结束了](https://gnews.org/zh-hans/1166229/)
 
 0

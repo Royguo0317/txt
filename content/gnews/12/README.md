@@ -1,65 +1,420 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】你我的挣扎
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1166042/)
+## 前苏联武器专家肯·阿里贝克（Ken Alibek）博士的采访（一）
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1166123/)
 
-作者：纽约香草山信息部 TimeTraveler
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
+1997年，美国国防部特别武器局接待了肯·阿里贝克（Ken Alibek）博士，讨论前苏联生物武器计划的能力。
 
 
 
+字幕内容：
 
+Walt Zimmers
 
+沃尔特·齐默斯
 
+So what you’re saying is that molecular biology today
 
-**你我**：我们的工资很低，杂事却多，经常要加班，加班还没有加班工资，下班回去还时刻要注意手机，害怕错过客户或者老闆的电话，日复一日就这麽茫然地过，时不时还受点不公和委屈，无处申诉，以为换了工作就会好过一点，谁知道还是换汤不换药，感觉就是从一个坑跳进另一个坑。物价高的离谱，房贷、车贷压得喘不过气，还好我没有孩子，不然压力更大，而且吃的食物有毒，住的房子有问题，连空气都有严重污染，根本都不能给孩子一个健康的环境去生活，不知道为什麽要这样活著，心好累。
+所以你要说的是今天的分子生物学
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02225042/%E4%B8%89%E5%BA%A7%E5%A4%A7%E5%B1%B1-1.jpeg)（图源网络）
+as we know it can probably be easily adapted
 
-**觉醒者**：因为生活所涉及的各个方面都没有途径可以去维护我们的权利，所以只能被毫无底线地剥削。
-**你我**：为什麽没有途径维护我们的福利和权益?
-**觉醒者**：就工作方面来说，保障福利和权益一般是工会的职责，但是这个国家的工会不是帮助工人的，是帮助中共维稳工人的。
-**你我**：难道没有人起来反抗或者改组工会吗？
-**觉醒者**：有啊，不过那些人最后不是消失了就是还在牢房裡。
-**你我**：为什麽会消失或者在牢房裡？
-**觉醒者**：因为他们增加奴隶主的管理成本，危害奴隶社会的稳定。最简单的办法就是给他们安一个罪名，关进牢裡做苦工，如果他们体检采样符合要求，会等待器官配对，最后把有用的器官摘下卖钱，活摘器官之后尸体直接火化于是就消失了。医院、学校、火葬场和墓地也都是党产，医疗费、学费、火化费、墓地费也都很高昂，很多奴隶无力承担，读不起、病不起、死不起。之前有一个叫孙大午的开了一个大午医院，当地村民每月只要交1元就能看病拿药，他办的学校也每月交100元生活费就能上学，可是中共给人家安了好一些罪名，抄家了，所有资产变成党产，人还在牢裡；如果受了不公想去告发迫害自己的官员，那更是难上加难，公检法都是服务于党的，想学古人上访？截访的比上访的还多，中共这个体制从裡到外都烂透了，有良心者寸步难行，无良心者步步高升。
-**你我**：？？？我到底生活在一个什麽样的国家？
-**觉醒者**：准确地说你不是生活在一个国家，而是生活在一个巨大监狱裡。这个监狱由土匪建立，他们用谎言欺骗大家，说要建立民主国家，继而打土豪分田地又把土地收归党有、公私合营强佔企业，洗劫社会各层级。监狱里充满著谎言，因为监狱足够大又有足够多的谎言，所以让大家以为这是一个国家。
-**你我**：那我们为什麽不逃跑？或者是求救？
-**觉醒者**：因为你跑不了，周围都是监控，摄像头能识别你的身份，即使你戴上帽子、戴上口罩，也能通过你的步态识别出你；手机方面能通过软件后门获取你手机的所有内容，你在社交媒体的一言一行都被监控著，而手机号能确定你的身份；电脑方面能通过软件后门获取你的流览数据，杀毒软件一类的还能获取你电脑所有的资料、数据并上传到服务器，IP位址能定位到你，有些大学甚至登记MAC位址来确定哪台电脑发出的哪条资讯。在边境有高牆和电网，还有守卫和猎犬。求救的话，信号也发不出去，即使发出去了，也会被中共派出去的人掩盖真相，而发信号的人也会进牢房等待消失。当然有比我们高等级的奴隶通过其他方法逃出去恢复自由的，但这是你我这种低等级的奴隶望尘莫及的。
-**你我**：既然是这样一个生不如死的地方，为什麽还要把我生出来，为了让我感受绝望？
-**觉醒者**：因为你的父母被周围的谎言欺骗，没有寻求真相的途径又或者不敢去寻求真相、面对真相，于是他们成了谎言的受害者和维护者。
-**你我**：我到底应该怎麽办？真相的衝击颠覆我所有的认知，我觉得既愤怒又痛苦，愤怒中共对我的欺骗，痛苦自己还要生活在这个充满谎言的巨大监狱里，但是又不知道该做什麽！
-**觉醒者**：现在能做的是鼓起勇气面对所有的真相，拓展自己的知识面，并且传播真相。
-**你我**：回想一下自己以前在学校，那麽努力学习的历史居然有充满谎言，花费那麽多时间背诵的知识居然全是假的！
-**觉醒者**：也不完全是，至少在你知道某一真相以后，能第一时间反应过来共产党在哪方面说了什麽样的谎言。比如苏联对中共的扶植其实是对中国的殖民侵略；比如中共的长征其实是被第五次围剿后的大逃跑，而被围剿的原因是中共以国共合作为切入口进而以亲共、远共、反共三派分化国民政府，阻止北伐，以国军身份製造与外国的矛盾，在盘踞之地强取豪夺、屠杀百姓，以致民不聊生等等；比如中共的抗日其实是纸上抗日，报纸上宣传其抗日，其实是招揽人员扩充军队（抗战初期共军只有二万五千人，到抗战结束时已有九十一万正规军，二百二十万民兵），并且出卖国军情报给日军，趁国军迎面抗击日军之时，在后方与日军夹击国军，还在南泥湾种植鸦片销售到国统区，荼毒百姓等。还有好多好多的真相这裡就不一一列举了，共产党真的是“好话说尽，坏事做绝”。
-**你我**：除了瞭解真相，面对真相，我们还能做什麽？
-**觉醒者**：加入爆料革命，联合全世界正义的力量，一起灭共。现在中共已经释放了超限生化武器对付全世界，在此决一死战之后，世界必是一番新景象。假如正义的力量赢了，迎接我们的将是美好的未来，至少可以找回做人的尊严。我相信上帝会帮助我们战胜中共的！
-**你我**：好，加入爆料革命，学习真相、传播真相，一起灭共。
-**觉醒者**：快了，日子近了。
+我们知道它可能很容易适应
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
+by other countries to development of biological weapons agents
 
-编辑/校对/发稿： 人间世
+由其他国家开发生物武器代理商
 
-**更多资讯，更多关注**
+and that they too could potentially produce genetically altered strains
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+而且它们也有可能产生基因改变的菌株
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+that would be antibiotically resistant
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+那会产生抗生素抗性
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+Dr. Alibek
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+阿里贝克博士
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
+Uh let me say um we don’t have to underestimate a capability
 
+嗯，让我说，我们不必去低估这个能力
 
+of we call them in many cases are underdeveloped countries
+
+在很多情况下，我们称他们为未发达国家
+
+This underdeveloped countries now have very significant scientific capability
+
+这些不发达国家现在具有非常重要的科学能力
+
+just take a look at Cuba
+
+就看看古巴
+
+We consider this country an underdeveloped country
+
+我们认为这个国家是未发达国家
+
+but now they’re capable to develop practically any genetically altered agent possible
+
+但现在他们有能力开发出几乎所有可能的基因改变剂
+
+Walt Zimmers
+
+沃尔特·齐默斯
+
+using modern techniques
+
+使用现代技术
+
+Dr. Alibek
+
+阿里贝克博士
+
+Yeah using modern techniques even uh 10-15 years ago
+
+是的，甚至在10到15年前使用现代技术
+
+they were able just to develop genetically altered recombinant bacteria
+
+他们只能够开发出基因转变的重组细菌
+
+recombinant bacteria of course we don’t know
+
+重组细菌，当然，我们不知道
+
+whether or not they develop genetically altered antibiotic resistant
+
+他们是否研制出基因转变的抗生素抗性
+
+but in many cases if you know this technique
+
+但是在很多情况下，如果你懂得这项技术
+
+of course it’s not a big deal
+
+当然没什么大不了的
+
+just to insert instead of a gene of one another technological substance
+
+只是插入而不是另一个技术实质的基因
+
+biological substance
+
+生物实体
+
+or if you’ve got uh knowledge how to do this
+
+或者，如果你掌握了如何做的知识
+
+it’s not a big deal it’s not a problem
+
+这没什么大不了的
+
+just to insert a gene uh plasmid with a gene
+
+只是将一个基因插入带有基因的质粒中
+
+that could cause an antibiotic resistance to one another antibiotic
+
+可能导致一种抗生素对另一种抗生素产生抗药性
+
+Walt Zimmers
+
+沃尔特·齐默斯
+
+And in fact the former soviet union was doing this
+
+实际上，前苏联正这样做过
+
+even before the advent of modern molecular biology
+
+甚至在现代分子生物学问世之前
+
+by probably selection process or
+
+通过可能性筛选过程或
+
+whatever to find uh antibiotic resistant
+
+任何可以找到对抗生素有抗药性
+
+or vaccine-resistant strains of organisms
+
+或对疫苗有抗药性的生物菌株
+
+Dr. Alibek
+
+阿里贝克博士
+
+You’re absolutely right there are several techniques just to
+
+您是完全正确的，有几种技巧可以去
+
+Walt Zimmers
+
+沃尔特·齐默斯
+
+Just to do that
+
+只是去做那个
+
+Dr. Alibek
+
+阿里贝克博士
+
+To do this but as  new techniques
+
+去做这个，但作为新技术
+
+new uh approaches are we discovered
+
+我们所发现的新方法
+
+of course the soviet union was able just to apply this technique
+
+苏联当然能够运用这种技术
+
+uh this particular technique to develop new and new biological agents
+
+嗯，这项特别的技术来研制新生物制剂
+
+Walt Zimmers
+
+沃尔特·齐默斯
+
+This is a pretty bleak picture
+
+这是一张非常惨淡的画面
+
+as far as I’m concerned with respect to a hypothetical situation
+
+就我所关心的假设情况而言
+
+let’s say where the former soviet union
+
+比如说前苏联在那里
+
+let’s the head let a cloud go over a city
+
+让我们的头上，让乌云笼罩整个城市
+
+of an organism an agent that they had
+
+他们所拥有的生物体
+
+how could that population respond effectively
+
+该人群如何有效应对
+
+to protect themselves against that agent
+
+以保护自己不受那代理的攻击
+
+if in fact what you’re telling me is true
+
+如果实际上你告诉我的是正确的
+
+that antibiotics wouldn’t work
+
+抗生素会是无效的
+
+but the concept of even if people were vaccinated that may not have worked
+
+但是，这个概念是即使人们接种了疫苗，也可能是无效的
+
+what would be what would how would the soviet union have thought
+
+苏联会怎么想
+
+about protecting itself against such agents
+
+关于保护自己免受此类药剂的侵害
+
+and how would you describe a city in the United States
+
+以及您如何描述一个美国城市
+
+as with respect to their capabilities to protect the people against such agents
+
+就他们保护人民免受这种行为者侵害的能力而言
+
+Dr. Alibek
+
+阿里贝克博士
+
+first of all what I’d like to say
+
+首先，我想说的是
+
+of course in many cases we are not talking about
+
+当然，在很多情况下，我们并不是在谈论
+
+what was done what has been done
+
+做了什么，已经做了什么
+
+in many cases we just need to talk about possibility
+
+在许多情况下，我们只需要谈论可能性
+
+and now we are talking about a level of biotechnology
+
+现在我们正在谈论生物技术的水平
+
+and we say this level allows
+
+我们说这个水平允许
+
+just to do a lot in this area
+
+只是在这个领域做很多事情
+
+just to develop a lot of new genetically altered agents
+
+只是为了研制很多新的基因转变剂
+
+Uh, the problem is now
+
+嗯，现在的问题是
+
+of course there is a very serious gap
+
+当然那是一个很大的差距
+
+between what we are doing in the area of developing some
+
+我们在发展一些领域之间所做的事情
+
+by defense medical aspects medical approaches for biodefense
+
+通过国防医学方面的生物防御医学方法
+
+and what was done
+
+以及已经完成了什么
+
+and what could be done in the area of developing biological agents
+
+和在研制生物制剂方面可以做些什么
+
+and biological weapons and probably this way
+
+和生物武器，也许是这种方式
+
+and this approach we use now
+
+我们现在使用的这种方法
+
+of course would never help us to reach
+
+当然绝对不会帮助我们达成目标
+
+just to capture
+
+只是抓住目标
+
+just to uh to find an appropriate solution
+
+只是为了找到合适的解决方案
+
+just how to develop appropriate medical defense products techniques
+
+以及如何开发适当的医疗防御产品技术
+
+and this type of things probably we need to reconsider
+
+而这类事情，我们可能需要重新考虑
+
+whether or not we’ve chosen a right away
+
+我们是否选择了一个正确的方法
+
+in other words just imagine the situation
+
+换句话说，只要想象一下情况
+
+when we’re talking about possible biological agents could be used in biological weapons
+
+当我们谈论有可能的生物制剂可用于生物武器时
+
+dozens even hundreds how many vaccines we need to develop
+
+我们需要研制数十甚至数百种疫苗
+
+in this case how many treatment techniques
+
+在这种情况下多少种治疗技术
+
+and in many cases we just don’t know
+
+而且在很多情况下，我们就是不知道
+
+what kind of genetically altered agent could be developed in the future
+
+将来会发展出什么样的基因转化剂
+
+in this case it’s very difficult to develop a goodbye defense
+
+在这种情况下，进行再见防御是非常困难的
+
+in my opinion there is an approach it’s a long way to go
+
+在我看来，有一种方法，还有很长的路要走
+
+but I’m convinced that it would be the best way
+
+但我坚信这将是最好的方法
+
+we need to start researching our body’s own immune response system
+
+我们需要开始研究人体自身的免疫反应系统
+
+so called  non-specific human response
+
+所谓的非特定性人类反应
+
+just it is a significant scientific discussion
+
+只是一个重大的科学讨论
+
+and probably but in any case
+
+而且可能，但无论如何
+
+and for example if we start discussing this issue
+
+例如，如果我们开始讨论这个问题
+
+and we involved as many as possible scientists to help to develop this approach
+
+并且我们邀请了尽可能多的科学家来帮助开展这种方法
+
+maybe in five   seven ten years we will be able to say
+
+也许在五，七，十年后，我们可以说
+
+we’ve solved this problem and now biological weapons are absolutely useless
+
+我们已经解决了这个问题，生物武器现在完全没有用
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接: https://youtube.be/uFsYOLRA3hY
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – 郭班之樱
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
