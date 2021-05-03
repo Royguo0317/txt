@@ -1,46 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】形式防沉迷，难解“手机儿童”现状
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1166149/)
+## 德州州长称中共国非法移民可能是间谍
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1166188/)
 
-配音：香草山录音组 蒙古鸿雁
+俄罗斯莫斯科喀秋莎农场   银河
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/T-1.jpg)conservativedailypost.com
+每日传讯 (The Daily Caller)报道，德克萨斯州共和党州长格雷格·阿博特 (Greg Abbott)周日表示，一些非法进入南部边境的移民可能是来自中共国和伊朗的间谍。
 
+阿博特在回答福克斯主持人问及据称来自中共国的边境移民时表示“可能是间谍行为。”
 
+阿博特称，“再一次，这表明]乔·拜登的危险政府什么都没做，因为我们需要揭穿，如果有任何人认为这些人还只是自墨西哥和中美洲来这里从事农业，那么他们忘记的是来自中共国、来自伊朗，来自以恐怖主义为基础的国家的人。”
 
+福克斯主持人称一名边防警卫讲到，“他们逮捕了一群来自中共国的人，那群来自中共国的人告诉他们，他们每人付了5万美元——顺便说一下，这些人都是来自中共国的科学家、医生和工程师。”你不得不问，为什么(中国共产党)要把这些人派到边境，显然他们不想被注意，他们到这里后在做什么?”
 
+阿博特表示，拜登政府“没有采取任何行动来阻止”一场边境危机，不断有移民偷越边境，而并不担心被驱逐出境。他说，这场危机的成本包括“医疗保健成本、教育成本、执法成本，以及所有其他成本，这些成本不仅会发生在德克萨斯州，还会发生在犯罪团伙和人贩子最终去的所有其他州。”
 
+拜登的8年入籍计划将允许所有从2021年1月1日起居住在美国的非法移民在5年内获得临时合法身份，并在3年后申请入籍。
 
+参考链接：
 
-环球网5月2日转载半月谈网文章，农村孩子沉迷手机游戏、小视频，过度使用手机现象堪忧。
+[https://dailycaller.com/2021/05/02/texas-governor-greg-abbott-illegal-border-migrants-china-could-be-espionage/](https://dailycaller.com/2021/05/02/texas-governor-greg-abbott-illegal-border-migrants-china-could-be-espionage/)
 
-虽然今年中共两会期间，不少人大代表倡议未成年人游戏防护，通过立法、立规等方式防沉迷，但实操上却依旧困难重重。截至2020年12月，国内应用市场上游戏类APP达88.7万款，占APP数量总量的25.7%，虽然2019年就出台《关于防止未成年人沉迷网络游戏的通知》，但一方面是行业数据不互通，另一方面则由于一些大型游戏企业以防沉迷之名行充会员之实，防护系统仍形同虚设。
-
-
-
-**文字版原文：[【世事解评】形式防沉迷，难解“手机儿童”现状](https://gnews.org/zh-hans/1163383/)**
-
-作者：纽约香草山写作组  鹰(文言)
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1

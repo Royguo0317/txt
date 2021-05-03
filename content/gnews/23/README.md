@@ -1,126 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士谈E蛋白帮助病毒维持神经毒性
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1166219/)
+## 又一起悲剧，幸好与死神擦肩而过
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1166304/)
 
-字幕内容：
+**撰稿：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02234828/%E6%96%B0%E5%BB%BA%E5%9B%BE%E7%89%874-1.jpg)
+“卡车司机“这个职业，瞬间成为了2021年的高危职业。这个”高危“并不是被无法预测的客观危险所左右，而是时时刻刻难逃自己内心的煎熬，让自己放弃自己。
 
-闫丽梦博士：
+每个人对生命都有与生俱来的珍惜，不到万不得已，不会也不敢轻生，就算成人的世界有太多无奈和失落，但只要心中还有一丝爱和希望，就会挣扎地活下去。
 
-So what I want to comment on it,
+我真的很难想象，是怎样的绝望，才让这群上有老下有小的卡车司机，宁愿不要生命，不顾亲情，毅然走向黄泉路，对于没有经历过那种绝望的人来说，是无法给出令人信服的答案的。如果说个例，可以归结为性格的懦弱，但我们看看当今中共治下的那片土地，有多少类似的灾难在每天上演，多到让你看到也变得麻木，让你能练就如此坦然地接受一条鲜活的生命在瞬间陨落。
 
-对于这一点，我想说的是
+幸好，这个卡车司机被从死亡线上拉了回来，当他清醒过来，他会庆幸自己依然在人间吗？还是，他会怪责那些救他回来的人，要知道，“死一回“需要多大的勇气。
 
-I am not neurologist, I just have the medical knowledge about neurology disease.
+而中共呢，害怕这些事件引起的连锁反应，他们害怕到极致，连告诉真相的勇气也没有，只要命还在，就可以抹去他寻死的这个痛苦的过程，只要命还在，他们大可以用他们的方法，让他看上去缓过来并活的很好。
 
-我不是神经科医生，我只是有神经科疾病的医学知识
+而沉睡的人究竟要多久才能明白，当不幸成为常态的时候，可能我们自己也会遭遇下一秒的不幸，只是排队的秩序不同而已。一个政权是否能赢得民心，并不是它对外表现的有多强大，也不是它给了你一个多么辉煌的海市蜃楼。而是，你是否做着自己喜欢的事，你是否有足够的时间陪伴你最该陪伴的人，你的劳动所得是否改善了你的生活品质，你是否有权利去哭去笑，你是否在说每一句心声之前不用去顾虑是否政治正确？
 
-But what I have pointed in my third report and also in my first report, I can use it as smoking gun.
+问问你自己的内心，给你自己一个答案，如果都是否定的，那么，为什么不去改变？
 
-但正如我在第三份报告和第一份报告中指出的那样，我可以把它当作确凿的证据
+（本文只代表作者观点，与Gnews平台无关。）
 
-is envelop protein, E protein, in SARS-Covid 2,
+**新闻来源**：[微博 (weibo.cn)](https://m.weibo.cn/status/4632678260803705)
 
-就是E蛋白，SARS-Covid 2中的E蛋白
-
-it’s hundred percent identical as it as the back born, Zhou Shan Conoravirus
-
-可以100%完全确认SARS-Covid 2使用舟山蝙蝠冠状病毒作为骨架
-
-First, this is the evidence. It comes from the Zhou Shan bat conoravirus, which is somehow, completely cab into SARS Covid 2.
-
-首先，这是证据。该E蛋白来自舟山蝙蝠冠状病毒，不知何故，它完全被发现在SARS Covid 2 病毒里
-
-Because if it is going through the spices that’s a kind of host changing, jump from bat to animal to animal to human
-
-因为如果它经过物种间传代，那就是一种从蝙蝠到动物再到动物再到人类的宿主
-
-definitely, that we would see the change, because they already observed the change
-
-当然，我们会看到这种变化，因为他们在人类大流行最早的时候
-
-during the earliest the pandemic in human.
-
-就已经观察到了这种变化
-
-And second thing is why do they keep it, because this is smoking gun,
-
-第二个问题是，中共为什么要对此守口如瓶，因为它是确凿证据
-
-since I write this problem from last year 19th January, with Youtube.
-
-因为我在去年1月19日用YouTube写了这个问题
-
-China had done a quickly get response and later they even locked down.
-
-中共很快就做出了反应，后来他们甚至封锁了E蛋白的信息
-
-Because they know someone released the real information of this bio-weapon.
-
-因为他们知道内部有人泄露了这种生物武器的真实机密
-
-But why until now, no scientist there to touch this E protein issue to argue with me.
-
-但是为什么到目前为止，还没有科学家触及到这个E蛋白的问题，他们也没有来和我争论这个E蛋白的问题？
-
-And even Shi Zhengli, and their like the Chinese Military Academy,
-
-就连shizhengli, 像那些中国军事医学院的学者们
-
-they have developed a lot of novel fabricated too naughty virus, including from bat from Pangolins,
-
-他们已经合成出了很多新奇的病毒，包括从蝙蝠身上，从穿山甲身上，
-
-which all have the identical E protein in those fabricated sequence.
-
-它们在构建的序列中都有相同的E蛋白。
-
-What do they want to hide?
-
-他们想隐瞒什么？
-
-Then lets we back to check E protein’s function.
-
-然后我们再回来检查一下E蛋白的功能
-
-Yes it ‘s not clearly investigated , but we know it’s important for virus fabrication
-
-是的，它还没有得到明确的调查，但我们知道它对病毒的合成至关重要
-
-as some other important part in the Coronavirus
-
-作为冠状病毒的其他重要组成部分
-
-But it’s also have another function what
-
-但是它还有另外一个功能，那就是
-
-discovered and actually my ex-lab in the University of Hong Kong,
-
-在我之前工作的香港大学的实验室
-
-it’s the lab get involve to discover is E protein can have the virus
-
-发现这种E蛋白可以帮助病毒
-
-help the virus maintain the neuronal toxicity
-
-帮助病毒保持其神经毒性
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://rumble.com/vfy3xf-lethal-deception.html](https://rumble.com/vfy3xf-lethal-deception.html)
-
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场-Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片: 康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+***校对发布**：文顾*
 
 0
