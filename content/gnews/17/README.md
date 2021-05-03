@@ -1,70 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欢迎来到Himalaya Exchange
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/1167498/)
+## 【世事解评】明主已经驾临，知青上山下乡还会远吗？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1167949/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03113128/%E6%AC%A2%E8%BF%8E%E6%9D%A5%E5%88%B0Himalaya-Exchange.jpg)
-**首次发行和私人配售**
+作者：纽约香草山健身部 Ivy001
 
-首次发行以私人配售的方式进行，仅提供给已在Himalaya Exchange开户的私人配售参与者。
-
-私人配售参与者如有意参与首次发行，必须完成注册和验证程序，并开立Himalaya Exchange账户。开立账户后，参与者可以通过向Himalaya Exchange的银行账户付款购买Himalaya Dollar 信用积分。
-
-所有在第一阶段开始前或在此期间获Himalaya Exchange 正式通知的私人配售参与者，均可参与首次发行，其购买数量不得超过已同意的最大和指定分配数量。
-
-在Himalaya Exchange完全启动后，Himalaya Coin和 Himalaya Dollar将以市场价格向所有Himalaya Exchange的会员开放买卖。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01223226/logo.jpg)
 
 
 
-**发行和产品与服务之分阶段推出**
+在中共国，民主这个词，正在逐渐被“明主”所取代。民主远去，“明主”驾临。
 
-HCN的首次启动和相关产品和服务的推出计划在60天内分阶段进行。 分阶段推出的目的是从交易的第一天起，最大限度地提高Himalaya Exchange 的流动性，并为相关产品和服务的用户实现最佳效用。分阶段推出主要产品和服务的预期时间表如下：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03130409/%E5%9B%BE%E7%89%8757.png)图片来源：网络
 
-第一阶段
-2021年4月
-Himalaya Exchange预先注册及Himalaya Dollar之发行
-私人配售参与者可申请开立Himalaya Exchange账户，并完成KYC程序。开立账户后，私人配售参与者可以1：1的比例购买Himalaya Dollar信用积分，对其账户进行充值。
+“明主”习皇帝陛下的最爱是什么？当然是文革啦。从现在学生和名人的红军装，到广场舞大妈的忠字舞，到地铁的狂读《毛选》，再到学校的忆苦思甜饭……无一不是文革的配方，文革的味道。
 
-第二阶段
-2021年6月
-Himalaya Coin之发行
-私人配售参与者的注册期结束。私人配售参与者可购买获分配数量内的HCN信用积分。
-第三阶段
+“明主”习皇帝陛下最骄傲的是什么？必须是“那个时候啊，挑200斤麦子，十里山路我不换肩”。“明主”习皇帝陛下最向往的又是什么？当然是投身到广阔天地的“上山下乡”。
 
-第三阶段
-2021年7月
-Himalaya Exchange全面启动
-Himalaya Pay App正式上线
-会员可透过其Himalaya Exchange账户交易HDO、HCN和其他加密货币的信用积分。此阶段，Himalaya Exchange将会开放给公众注册和交易。会员可下载Himalaya Pay App，在全球范围内发送和接收付款。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03130417/%E5%9B%BE%E7%89%8758.png)图片来源：网络
 
-第四阶段
-即将推出
-Himalaya Exchange App
-Himalaya生态系统之会员可以下载Himalaya Exchange App，立即展开交易。
+上有所好， 下必甚焉。所以，现在国内一边在党媒上为文革洗白，一边在网络上制造舆论，论证大学开到农村去，大学生到农村去接受教育的美好前景，和美好意义。结论：上山下乡运动必须重启。
 
-\* Himalaya Exchange可根据其判断延长第一阶段。若第一阶段的期限予以延长，第二阶段和第三阶段的开始日期亦将顺延相同的期限。若因SARS-CoV-2的持续影响及/或对相关发行的巨大需求，且Himalaya Exchange或任何其他提供商认定有必要，则可延迟任何阶段、或任何阶段之任何要素的时间。
+小粉红们，“美好的农村大学”生活即将来临，你们做好准备了吗？曾经当过红卫兵、做过知青的老粉红们，你们的儿女或孙辈即将继承你们的宿命，要到广阔的天地去奋斗啦，你们的心理阴影面积大不大？在世界历史上，还从来没有一个国家和民族，会在短短的几十年时间，掉落同一个大坑里。中共国，你是头一个，而且是唯一的一个。这是国家的悲哀，也是民族的悲哀。自从共产党剽窃了人民的政权后，民族的哀歌在这片苦难之地，一直没有停过。
 
+不彻底灭掉中国共产党，华夏人民就不会有长久的好日子过，华夏大地就不会有长久的安宁和平，华夏民族就不会有希望有美好的未来。必须消灭中国共产党！
 
+[https://3g.163.com/dy/article/G8U92EF90534S70H.html?referFrom=baidu&spss=adap\_dy](https://3g.163.com/dy/article/G8U92EF90534S70H.html?referFrom=baidu&amp;spss=adap_dy)
 
-**首次发行**
+校对/发稿：飞虹
 
-Himalaya Coin之首次发行将以私人配售的方式开放予Himalaya Exchange的会员。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
 
-这意味只有那些在第一阶段开始前，或在第一阶段期间获Himalaya Exchange 正式通知的人士（泛指作为”私人配售参与者”的客户）才能率先认购Himalaya Coin。
+**更多资讯，更多关注**
 
-私人配售参与者可在首次发行期间购买Himalaya Coin信用积分。请注意，相关私人配售将会在第三阶段开始之日过期。
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-**Himalaya生态系统**
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-要实现任何一种加密货币的大众接受度、采用率和可持续性，并提高其价值和实用性，其中一个关键要素是要开发一个足以赋予货币内在价值并激励大众采纳和使用的生态系统。发行人及其分支机构至致力通过建立商业合作伙伴关系发展Himalaya生态系统，并以逐步扩展其规模为目标。
-
-通过建立和发展Himalaya ECO 系统，我们的目标是加入知名品牌和建立大量的合作伙伴关系，以及激励在生态系统内的初创公司。我们已投资销售点终端硬件，最终目的是在全球范围内，让商家能够以低廉的费用在即时结算处理系统上接收我们的信用积分。
-
-在所有其他产品和服务推出后，Himalaya ECO 系统初始合作伙伴及其关联机构即将上线，并且会在发布日期之前通知成员。Himalaya ECO 系统将会让合资格的会员连结至我们遍布全球的商家。
-
-更多有关Himalaya ECO 系统的详情将会在Himalaya Exchange网站和支援中心的页面上公布。
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

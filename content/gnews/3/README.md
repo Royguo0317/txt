@@ -1,39 +1,120 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共新版党史为习量身定做与毛比肩
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1168005/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（十一）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1166275/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+作者：纽约香草山信息部 6zero4
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/05/X-1.jpg)asianews.it
-中共喉舌《人民日报》发布百句党史名言，毛习各占 30 句。《人民日报》稍早前发布建党百年百句名言录，绝大部分出自中共五代领导人之口，毛泽东和习近平各占 30 句，此次习已经比肩毛的地位。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-百句中共名言绝大部分出自中共五代领导人之口。其中第一代领导人毛泽东与现任领导人习近平各占 30 句，邓小平 14 句，江泽民和胡锦涛各 10 句；其余 6 句则出自周恩来（2句）、刘少奇、朱德、陈云、彭德怀（各 1 句）。
 
-颇为尴尬的是，习的其中一句于2020年10月在人民大会堂抗疫表彰大会上的名言“世上没有从天而降的英雄，只有挺身而出的凡人”，根据考证原出处为香港一名支持街头抗争的五金店“国难五金”老板李政熙。报道引述李政熙说，2015年区议会选举参战，其弟弟李珏熙为他撰写参选宣言时想出的上句，因此百分百属于香港原创。
 
-另外党内也有一些高干总喜欢拿习引以为傲的金句开玩笑，在习费劲力气树立自己权威之时，这些开玩笑的话被抓到把柄，惨遭革职处理。例如，2017年内蒙古自治区质量技术监督局局长张海顺，在2月6日召开质监局处级以上干部会议时，曾说“总书记号召’撸起袖子加油干’，我局要认真落实！要’撩起裙子使劲干’！ ” 当场引发哄堂大笑，会议结束时他更把这番话重复一次。
+4月25日塞林博士的推文：为什么福奇要资助“科学怪人博士”马利克？为什么美国FDA要帮助他？为什么NIH合同HHSN27220140000C如此机秘？是因为合同HHSN2722014的“功能增益”系列在2014年“暂停”了吗？并贴上马利克等人于2018年10月6日发表的“H1N1流感病毒感染及血清抗体”相关的论文网页截图，并附上福奇、马利克和FDA的Maryna Eichelberger的照片。（Maryna Eichelberger真容浮出水面）
 
-当然，也有一些颇具投机头脑的演艺家借机将习的金句改为歌曲。例如，徐嘉文就在习发表金句后，迅速将《撸起袖子加油干》填词作曲，并顺利发表同名专辑，借此歌在各大综艺平台混得个脸熟，赚得盆满钵满。
 
-无论如何，有一点是确定的，上述排序《人民日报》编辑部是无法定夺的。此事关乎顶层政治，必定提前向高层请示过，并经由最高决策层首肯后方能见报。而此次排序的标准就是入选“名言”的数量，从数量上体现个人在党内的地位。因此习一尊通过此次“名言”排序，俨然已超越邓总设计师，与毛并列为“向全世界开药方”的老中医了。中共建党一百周年的活动就是一场政治运动，与明年的“二十大”紧密相连。习在“二十大”要问鼎“一尊”宝座，此时必须要积攒足够多的政治资本为“二十大”的连任做准备。
 
-今年“七一”，中共建党一百周年，官方将大张旗鼓地纪念，但面临各种生存压力的百姓可能不会有多少人在意这个日子。它提醒人们一个事实，中共离“百年老店”的门槛只有一步之遥。如同一个人的生命周期一样，中共经历了从诞生、青少年和壮年时期，现在已进入风烛残年，百病缠身，来日无多。
+> Bombshell: Why is Anthony Fauci funding Malik "Dr. Frankenstein" Peiris? Why is the U.S. FDA helping him? Why is NIH contract HHSN27220140000C so secret? Is it because the HHSN2722014 "gain of function" series were "paused" in 2014? [pic.twitter.com/A5IUnTU7NA](https://t.co/A5IUnTU7NA)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 25, 2021](https://twitter.com/LawrenceSellin/status/1386297320485105668?ref_src=twsrc%5Etfw)
 
-习如今对中共的现状是很清楚的，知道共产党深入骨髓的腐败已经失去民心，党面临生死存亡的关头，他不想做亡党之君。随着七一临近，习试图重拾毛时代的文革遗风，扭转颓势，再造中共，使其起死回生。全国上下掀起一片重读新版《中国共产党简史》的学习之风，颇似十年浩劫时在林彪带领下全民背诵《毛泽东语录》一样。
 
-2021年 3月31日习在党史学习教育动员大会上强调，要旗帜鲜明地反对历史虚无主义，他还称，中共不是历史虚无主义者，“不能数典忘祖，妄自菲薄”。但是，观察人士指出，为庆祝中共建党百周年推出的新版《中国共产党简史》，仅习近平执政以来9年的党史，占了全书四分之一。这部简史除了对“习新时代”事无巨细外，还把一些极其重要的历史淡化了，甚至虚无了，最重要的就是淡化骇人听闻的文革十年历史。
 
-早在习在掌权后翌年，即2013年1月就提出“两个不能否定”。至此，习将党史划分为了以文革和阶级斗争为代表的前30年和以经济建设及对外开放为主体的后30年。所谓“两个不能否定”指的是“不能用改革开放后的历史时期否定改革开放前的历史时期，也不能用改革开放前的历史时期否定改革开放后的历史时期”。从此就能看出，早在2013年习就已经试图模糊和淡化处理文革十年的历史。
+4月26日塞林博士的6连推：
 
-习在2016年中共建党95周年大会讲话时，就已既不提文革，更不提中共曾经犯过重大错误，因此，2020年新版中共简史，实际上是统一党内思想的宣传培训教材，是在习授意下编撰的一部洗脑教材。
+第1推，转发Ian Birrell昨天发表在Daily Mail的文章“关于新冠病毒起源的新线索令人担忧：武汉实验室的科学家是如何帮助中国军队秘密寻找动物病毒的？”中共的生物战计划分为三个层次：一个核心秘密军事项目，一个支持它的国际化（尤其是与美国相关）的民用/大学项目等。
 
-总之，不论是现在《人民日报》为即将到来的百年党建将习捧为“一尊”所特意做的百年金句，还是习授意下颁布并发动全国学习的新版《中国共产党简史》的活动，都是习为了给中共续命想出的“方法”。这里面或多或少都留下了毛的印记和手法，体现了习对毛的顽固崇拜，追求与毛相提并论的历史地位，目的就是成为毛之后中共国新的“一尊”。愚蠢至极。
 
-参考链接：
 
-[中共建党百年推百金句 习毛并驾齐驱 – 法广(RFI) – 01/05/2021](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210501-%E4%B8%AD%E5%85%B1%E5%BB%BA%E5%85%9A%E7%99%BE%E5%B9%B4%E6%8E%A8%E7%99%BE%E9%87%91%E5%8F%A5-%E4%B9%A0%E6%AF%9B%E5%B9%B6%E9%A9%BE%E9%BD%90%E9%A9%B1)
+> The Chinese Communist Party's biowarfare program exists at 3 levels, a core secret military program, a civilian/university program supporting it, which is linked to international programs, particularly US. 
+> Scroll down to see the network map being created[https://t.co/oIeZFJ4B01](https://t.co/oIeZFJ4B01)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 26, 2021](https://twitter.com/LawrenceSellin/status/1386536327550754818?ref_src=twsrc%5Etfw)
+
+
+
+第2推，中共是否在经济上挽救了Scripps研究中心？这就是为什么Scripps如此迅速地，以一篇广为引用的“科学”论文“SARS-CoV-2的近端起源”，支持中共的COVID-19病毒自然起源的主张，并贴上该论文的网页截图。（Scripps Research浮出水面）
+
+
+
+> Did the Chinese Communist Party financially save Scripps Research, which is why Scripps so quickly supported the CCP's claim that [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) came from nature in a much quoted "scientific" article The Proximal Origin of SARS-CoV-2?[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/GNHWf9dhV4](https://t.co/GNHWf9dhV4)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 26, 2021](https://twitter.com/LawrenceSellin/status/1386549263606423554?ref_src=twsrc%5Etfw)
+
+
+
+第3推，中共军事生物战计划利用中共国的“民用”科研机构和大学来渗透国际实验室，以获取其技术知识，这发生在美国的数百个地方，并贴出一张马利克等中外病毒界科学家于2020年5月18日联合发表的有关“SARS类病毒间交叉反应抗体”的论文截图。
+
+
+
+> The Chinese Communist Party's military biowarfare program uses China's "civilian" research institutes and universities to penetrate international laboratories to access technology and knowledge. It is happening in hundreds of places in the United States.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/hBsNoBblvy](https://t.co/hBsNoBblvy)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 26, 2021](https://twitter.com/LawrenceSellin/status/1386561717539377152?ref_src=twsrc%5Etfw)
+
+
+
+第4推，转发“火来2号”战友针对第3推疑问的信息确认：100%，自2016年Scripps研究中心的财务危机被爆出以来，过去5年与CCP达成了多笔交易，并贴上Scripps当时财务危机及后来与中方机构如深圳湾实验室、亿升生物制药和上药集团等合作的新闻网页截图。“火来2号”战友的信息证实了CCP与Scripps研究中心之间的广泛合作，Scripps研究中心似乎是事实上CCP的全资子公司。
+
+
+
+> Confirmation from [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) (谢谢) of the extensive Chinese Communist Party – Scripps Research collaboration. Scripps appears to be, in practice, a wholly-owned subsidiary of the CCP. [https://t.co/0xvxsLanSp](https://t.co/0xvxsLanSp)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 26, 2021](https://twitter.com/LawrenceSellin/status/1386564395313029120?ref_src=twsrc%5Etfw)
+
+
+
+第5推，转发“慕尼黑感恩”战友的中文推“军医科三毒王：童贻刚（另外2个是曹务春和杨瑞馥）曾任军事医学科学院微生物流行病研究室主任，WHO新冠溯源中方专家组动物与环境组组长。冠状病毒研究网络连连看：CDC高福，军医科曹务春，港大管轶袁国勇梁卓伟，武毒所石正丽周鹏，新加坡王林发，美国Peter Daszak，澳洲Edwards Holmes等，并贴上他们之间联合发表的科研论文的网页截屏，以及童贻刚、曹务春等人的照片。塞林博士赞赏了“慕尼黑感恩”战友这个非常重要的COVID-19探源推文信息，这准确地展示了CCP的生物战计划是如何运作的，其与中共国的大学和科研机构关联在一起的秘密核心军事要素，也与西方有用的白痴们如Daszak和Holmes等关联在一起。（童贻刚真容浮出水面）
+
+
+
+> An important Tweet by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@himalaya\_de](https://twitter.com/himalaya_de?ref_src=twsrc%5Etfw)
+> Shows exactly how the Chinese Communist Party's biowarfare program works, a secret core military element linked to China's universities & research institutes linked to Western useful idiots like Peter Daszak & Edward Holmes. [https://t.co/I0pkSGWqVP](https://t.co/I0pkSGWqVP)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 26, 2021](https://twitter.com/LawrenceSellin/status/1386599325443272704?ref_src=twsrc%5Etfw)
+
+
+
+第6推，这是一个中英双语混合推，他们不是值得尊敬的医生、科学家和军官，等待他们的唯有清算，并再次加上中文推文“我支持中国人民。我拒绝中国共产党”。并将中共军医金宁一、陈薇、曹务春、杨瑞馥(中共军事医学科学院动物病毒学家微生物流行病研究所病原微生物国家重点实验室主任、中共国家生物医学分析中心分析微生物实验室主任、曾任中共973项目首席科学家)、童贻刚、范泉水、王长军7人的照片，与德国纳粹党卫军军官兼奥斯维辛集中营军医，人称“死亡天使”的Josef Mengele的照片放在一起相提并论。（杨瑞馥真容浮出水面）
+
+
+
+> These are not doctors, scientists or military officers worthy of any respect. They deserve only condemnation.
+> 
+> 我支持中国人民。 我拒绝中国共产党[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/P6sjiMpzv9](https://t.co/P6sjiMpzv9)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 26, 2021](https://twitter.com/LawrenceSellin/status/1386649870543560712?ref_src=twsrc%5Etfw)
+
+
+
+4月27日塞林博士2连推：
+
+第1推，CCP-PLA的生物战核心计划是在中共军事医学科学院的监管下，分散在位于长春、成都、广州、北京、云南和南京的“军马卫生研究所”以ZC45和ZXC21为骨架分头展开研究的，向提供准确信息的Anna战友致敬！并贴出了夏咸柱(动物病毒学家、中共工程院院士、中共军事医学科学院专家组成员)、金宁一、何彪、范泉水、曹务春、涂长春、吴志强、王长军、杨瑞馥和陈薇10人的照片。（夏咸柱真容浮出水面）
+
+
+
+> CCP-PLA's biowarfare program core are the Warhorse Health Institutes 军马卫生研究所 in Changchun, Chengdu, Guangzhou, Beijing, Yunnan & Nanjing supervised by the Academy of Military Medical Sciences, where Zhoushan ZC45, ZXC21 landed (hat tip to [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@2020Gladiator](https://twitter.com/2020Gladiator?ref_src=twsrc%5Etfw)) [pic.twitter.com/vCilJXIivU](https://t.co/vCilJXIivU)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 27, 2021](https://twitter.com/LawrenceSellin/status/1386883835489570817?ref_src=twsrc%5Etfw)
+
+
+
+第2推，基于PLA军事兽医研究所的何彪和涂长春的出版物记载，明确表明他们是在收集病毒，而不是研究病毒，并展示了何彪和涂长春收集病毒的历史纪录，再次贴出了夏咸柱、金宁一、何彪和涂长春4人的照片。
+
+
+
+> It is clear from the publication record of Biao He and Changchun Tu from the Chinese People's Liberation Army's Military Veterinary Institute that they were collecting viruses, not studying them.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/X4TmCduKUR](https://t.co/X4TmCduKUR)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 27, 2021](https://twitter.com/LawrenceSellin/status/1386950905128488966?ref_src=twsrc%5Etfw)
+
+
+
+塞林博士一如既往日拱一卒，稳步推进病毒溯源进程，进一步揭示福奇和FDA支持资助科学怪人、世界毒王、冠状病毒研究教皇级人物马利克；揭露美国Scripps研究中心因财务危机而被CCP趁人之危，果断迅速被其收编麾下，成为CCP事实上的全资子公司，全面与CCP军方关联的病毒科研机构合作，并积极帮助捏造假信息假数据掩盖病毒真相。同时深挖进入中共军方病毒科研网络的深水区，将中共军事生物战核心计划是如何在国际国内执行运行的，是如何利用中共国的“民用”科研机构和大学来渗透国际尤其是美国实验室获取其关键技术的，将中共军方病毒研究的总工程师级别的人物童贻刚、杨瑞馥和夏咸柱等人推出水面！
+
+校对/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
