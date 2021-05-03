@@ -1,49 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国向印度出售价值24.2亿美元的6架波音P-8I巡逻机
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1163431/)
+## 亚利桑那州审计现场出现“防火防盗防CNN”的景象
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1165310/)
 
-新闻来源：《Defense World》| 作者：Our Bureau | 发布时间：2021年5月1日
-翻译/简评：mcjaja | 校对/审核：万人往 | Page：Daoiii
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-[!\[\]()!\[\](https://spark.adobe.com/page/PwAttG70e3tIe/images/a12cbad7-a647-4d2f-873f-97947fc938cc.jpg?asset_id=8f269058-e4e3-4670-916c-312d5fd2b291&amp;img_etag=%223fd06a335673d21d1a46c3c95ea37c0f%22&amp;size=1024)](https://spark.adobe.com/page/PwAttG70e3tIe/images/a12cbad7-a647-4d2f-873f-97947fc938cc.jpg?asset_id=8f269058-e4e3-4670-916c-312d5fd2b291&amp;img_etag=%223fd06a335673d21d1a46c3c95ea37c0f%22&amp;size=1024)图为2020年10月印度陆军副司令塞尼中将紧急访问美国，和美军方商谈进一步的军事合作和武器采购
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/CNN.jpg)talkingpointsmemo.com
+《门道专家》（The Gateway Pundit）继续报道，“媒体已确认！—— 美国有线电视新闻网（CNN）在亚利桑那州审计中心停车场外骚扰‘国家审计’工作人员被抓获”。【1】
 
-**简评：**
+文章说，周五晚上，《门道专家》的权威人士乔丹·康拉德森（Jordan Conradson）采访了亚利桑那州的审计总监肯·贝内特（Ken gave），谈了历史性的马里科帕（Maricopa）郡法庭审计的最新进展。
 
-**美国批准了向其同盟国印度的一笔新的军售，预计售价在24.2亿美元，此笔军售包含了6架波音P-8I巡逻机及其相关的无线电系统、导弹警报传感器和雷达等。**
+星期五肯·贝内特总监就“历史审计”给了《门道专家》独家专访的机会，介绍了“在凤凰城退伍军人纪念体育馆进行的审计”。【2】
 
-**美国近期正不断向其亚洲同盟国进行军事补强，一系列具有针对性的军事销售是为了在随时可能与中共国开战的情况下对中共实现军事碾压。由于近期印度疫情的突然加剧，美国本次批准的对印度P-8I的销售实则是再次强调与印度一起坚定灭共的立场。**
+肯贝内特在采访中也投下了这个炸弹，自由媒体们试图恶意泄露审计工作者！
 
-**原文翻译：**
+《门道专家》的乔丹·康拉德森：我听说工人们正在遮盖车牌，有没有关于“黑命贵”（BLM）和“安提法”（Antifa）阻挠、干扰的消息？
 
-## 美国批准向印度出售6架波音P-8I巡逻机，价值24.2亿美元
+肯·贝内特：没有，我们还没有确认那些特定团体或其他人有任何活动。但是，不幸的是，我们已经被新闻媒体拍下了人们的车牌，当然，他们还试图用特写拍摄审计人员的姓名徽章和脸部。因此，当新闻媒体要花那么长的时间试图确认某人的身份时，这让工作人员和审计者有点紧张，他们害怕自己会被恶意泄露之类的事，所以我们希望这不会发生，我们希望每个人更关注一点。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/PwAttG70e3tIe/images/f995faef-6170-4312-af91-92cba2127338.jpg?asset_id=9ff5a438-947f-47e2-a9b3-9c054510a661&amp;img_etag=%22a8249170dd4abedadb2c5e82455f3911%22&amp;size=2560)](https://spark.adobe.com/page/PwAttG70e3tIe/images/f995faef-6170-4312-af91-92cba2127338.jpg?asset_id=9ff5a438-947f-47e2-a9b3-9c054510a661&amp;img_etag=%22a8249170dd4abedadb2c5e82455f3911%22&amp;size=1024)波音P-81巡逻机
+这是一个令人震惊的消息，但并不令人惊讶，现在我们知道哪个极左翼的媒体在骚扰选举审计的工作人员。没人惊讶，是CNN！
 
-美国国防安全合作局（DSCA）周五宣布，美国国务院已批准了一笔对印度的“外国军事销售”，其中包括6架P8I巡逻机及相关设备，预估售价为24.2亿美元。
+CNN人员在退伍军人纪念体育馆（Veterans Memorial Coliseum）的停车口外，当选举工作人员开车进入停车场时，人们发现了她对审计工作人员进行了拍摄骚扰。
 
-印度政府已要求购买6架P-8I巡逻机、8个多功能信息分发系统-联合战术无线电系统5（MID- JTRS 5）、42个AN/ARR-54导弹警报传感器、雷达和应对措施
+一名选举工作人员问CNN人员，“你和《美国新闻网》（OAN）一起的吗？”当CNN黑客回答“不”时，这名妇女关起车窗开车走了。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/PwAttG70e3tIe/images/373add8d-3090-4d9e-83e0-6fde2c3edc22.jpg?asset_id=b472d998-5e4c-4315-882f-56e6f4e440db&amp;img_etag=%227c79d56d6ab7821aef5aea81a9924457%22&amp;size=2560)](https://spark.adobe.com/page/PwAttG70e3tIe/images/373add8d-3090-4d9e-83e0-6fde2c3edc22.jpg?asset_id=b472d998-5e4c-4315-882f-56e6f4e440db&amp;img_etag=%227c79d56d6ab7821aef5aea81a9924457%22&amp;size=1024)图片来源网络
+聪明的女士！
 
-印度海军于2009年1月通过“直接商业销售”渠道从波音公司采购了8架P-8I飞机，并于2016年7月签订了另外四架飞机的合同。
+（原文附上了照片）
 
-首架P-8I飞机于2013年交付给印度海军，这为联合海上作战提供了互通性和关键能力。拟售的另外6架P-8I飞机将使印度海军扩大其在未来30年内的海上侦察机（MSA）的能力。
+这是CNN人员在亚利桑那州审计外骚扰选举工作人员的视频。
 
-主要承包商是华盛顿州西雅图的波音公司。购买方通常会要求补偿。任何的补偿协议都将在买方与主要承包商之间的谈判中确定。
+（原文也附上了有关视频）
 
-🔗[原文链接](https://www.defenseworld.net/news/29480/U_S__Approves_Six_Boeing_P_8I_Patrol_Aircraft_Sale_to_India_worth__2_42_Billion#.YI0oxy00hKN)
+（原文完）
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+川普总统专门对亚利桑那州的审计安全发出了三个声明，要求州长确保审计人员的安全，看来不是没有道理，捣乱者难以进入审计现场，但可以对审计人员进行骚扰，如何获得审计人员的信息，不良媒体可以充当这个角色，所以，必须防范与邪恶共舞者的一切伎俩，真正做到“防火、防盗、防CNN之类的不良媒体”。
 
+参考链接：
 
-编辑：【英国伦敦喜庄园编辑部】
+【1】[https://www.thegatewaypundit.com/2021/05/update-media-outlet-identified-cnn-caught-outside-az-audit-center-parking-lot-harassing-state-audit-workers-video/](https://www.thegatewaypundit.com/2021/05/update-media-outlet-identified-cnn-caught-outside-az-audit-center-parking-lot-harassing-state-audit-workers-video/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/PwAttG70e3tIe/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/PwAttG70e3tIe/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+【2】[https://www.gnews.org/zh-hans/1161491/](https://www.gnews.org/zh-hans/1161491/)
 
-
-
-0
++1
