@@ -1,35 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 布林肯称中共在海外的行为更加咄咄逼人
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1165846/)
+## 美日韩首次会晤关切朝鲜核武
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1165967/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/05/B-1.jpg)nasdaq.com
-路透社报道，美国国务卿布林肯(Antony Blinken)在周日播出的一次采访中表示，中共最近在海外表现得“更加咄咄逼人”，而且“敌对态度越来越强”。
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/J-1.jpg)wilsoncenter.org
+日经新闻报道，美国、日本和韩国的高级官员最近在夏威夷会晤，表达对朝鲜问题的关切，并讨论在该地区促进基于规则的国际秩序的重要性。
 
-在被哥伦比亚广播公司(CBS)的“60分钟”(60 Minutes)节目问及华盛顿是否正走向与北京的军事对抗时，布林肯说，“达到这个地步，甚至朝着那个方向前进，都严重违背中美两国的利益。”
+美国参谋长联席会议主席马克·米利 (Mark Milley)，日本自卫队联合参谋部参谋长山崎幸二 (Kōji Yamazaki)，韩国参谋长联席会议(Joint Chiefs of Staff)主席元仁哲 (Won In-choul)，于当地时间周四在夏威夷举行会议，这是自全球疫情以来三国领导人的首次会面。
 
-他补充称，“过去几年，我们看到的是，中共在国内表现得更强势，在海外表现得更咄咄逼人。这是事实。”
+美国方面在一份新闻稿中说，“三方对朝鲜的核项目和弹道导弹项目都表示关切，并讨论了在该地区促进基于规则的国际秩序的重要性。”
 
-在被问及有关中共窃取数千亿美元或更多美国商业机密和知识产权的报道时，布林肯表示，拜登政府对知识产权问题感到“切实关切”。
+元仁哲强调了三方合作确保朝鲜半岛和东北亚和平与安全的重要性，而山崎幸二则强调了共同努力使朝鲜全面遵守联合国安理会决议的必要性。
 
-他说，这听起来像是“某人试图以越来越敌对的方式进行不公平竞争。但如果我们把志同道合、同样愤愤不平的国家召集到一起，对北京方面说：‘这不能容忍，也不会容忍。’我们会更有效、更强大。”
+据美方消息，在第二天的双边会谈中，山崎和米利重申“美日仍然反对任何单方面改变东海现状的企图”。
 
-中共国驻华盛顿大使馆周日没有立即回应对布林肯采访的置评请求。
+日本首相菅义伟(Yoshihide Suga)和美国总统拜登(Joe Biden)在4月份的峰会上确认了“台海和平与稳定的重要性”。
 
-布林肯于周日抵达伦敦参加七国集团外长会议，中共是会议议程之一。
+东海的紧张局势一直在升级，中共上月派遣辽宁号航空母舰前往日本冲绳和宫古岛之间海域。中共海警船多次进入日本管辖的尖阁诸岛(Senkaku Islands，中国称钓鱼岛及其附属岛屿)附近海域。中共声称对这些岛屿拥有主权。
 
-布林肯在采访中说，美国的目的不是“遏制中共”，而是“维护基于规则的秩序——中共正在对其构成挑战。”任何对这种秩序提出挑战的，我们都将挺身而出，我们要捍卫它。”
+山崎和米利讨论了“美国坚定承诺保卫日本”。根据部分的双边安全条约的解释为，美国对待任何攻击日本领土相当于对待对美国本土的攻击。
 
-拜登将与中共的竞争视为他的政府最大的外交政策挑战。在上周三向国会发表的首次演讲中，他承诺美国将在印度洋-太平洋地区保持强大的军事存在，并推动美国的技术发展。
-
-上个月，布林肯说，美国担心中共对台湾的侵略行动，并警告说，任何试图用武力改变西太平洋现状的都将是一个“严重的错误”。布林肯说，美国根据《台湾关系法》做出了长期承诺，确保自治的台湾有能力自卫并维持西太平洋地区的和平与安全。
+随着中共加强军事力量和海上扩张，日本和美国正在加强与欧洲国家在该地区的协调。英国将把伊丽莎白女王号航母部署到亚洲水域，包括访问日本的港口。法国本月也将参加与日本和美国的防卫演习。
 
 参考链接:
 
-[https://www.reuters.com/world/china/blinken-says-china-acting-more-aggressively-abroad-60-minutes-interview-2021-05-02/](https://www.reuters.com/world/china/blinken-says-china-acting-more-aggressively-abroad-60-minutes-interview-2021-05-02/)
+[https://asia.nikkei.com/Politics/International-relations/Indo-Pacific/US-Japan-South-Korea-generals-hold-first-meeting-since-outbreak](https://asia.nikkei.com/Politics/International-relations/Indo-Pacific/US-Japan-South-Korea-generals-hold-first-meeting-since-outbreak)
 
-+1
+0

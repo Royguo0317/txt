@@ -1,51 +1,283 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】意料之中，港支联会“六四”烛光晚会及游行申请被拒
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1165860/)
+## 闫博士谈论疫苗的安全性
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1162772/)
 
-作者：纽约香草山健身部    Jack Li文阳
+**内容：**
 
+**闫丽梦博士：**
 
+I do have my concern about the vaccine now.
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
+我现在确实对疫苗感到担忧
 
+And the first thing is
 
+第一件事是
 
-4月27日下午，香港支联会就举办纪念“六四事件”的烛光晚会及其他活动，向警方申请不反对通知书并申请借用场地，但港府康文署借故以中共病毒疫情为由，不处理有关申请。中共撕毁“一国两制”，疯狂打压民主活动，这次港共政府拒绝“六四”活动申请，也是意料之中。
+I kept telling people there no real effective vaccines against the pandemic
 
-2019年6月4日，香港支联会组织举办了纪念“六四”的烛光晚会，参加者超过18万之众。当年6月9日，香港爆发了震惊中外、旷日持久的“反送中”运动。在一年多里，香港的民主勇士们组织了多次的超过百万人的游行，而中、小型游行更是常态性举行。香港人为了争取保持原有的民主自由，不畏港共政府黑警的疯狂打压、屠杀，坚持了一年多的民主抗争运动。2020年的“六四”前夕，香港支联会如常申请举行“六四”烛光晚会，警方以中共病毒疫情和“限聚令”为由，向支联会发出反对通知书，为31年来首次。但支联会主席李卓人、副主席何俊仁等人仍手持烛光，进入维园悼念，当时超过万名香港市民响应。然而晚会后，部分发起人遭港共秋后算账。
+我一直告诉人们没有真正有效的疫苗来对抗这种大流行
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02213859/image-20.png)图源网络
+So there are some reasons very simple the people can understand the vaccine
 
-为表达争取民主自由的决心和勇气，支联会今年继续申请举办“六四”纪念活动。4月27日，支联会向港府提出了集会游行申请，如去年的结果一样，香港警方以中共病毒疫情为由，再次拒绝了支联会的申请。
+所以有一些很简单的原因，让人们可以理解疫苗
 
-“六四”话题在中共国是高度敏感词，绝对不可谈论，举行对其的纪念活动简直不可思议。如今，中共扼杀“一国两制”，香港的政治氛围已经和大陆无异，甚至极权高压直逼新疆。所以，支联会在香港举行“六四”活动也会引发中共的无限恐惧，势必招致港共政府的疯狂打压。甚至在中共强推“国安法”后，更在香港大肆抓捕民主派人士。但港人无惧白色恐怖，坚持抗争，他们捍卫合法权利的精神，依然可敬可佩。但同时，笔者也希望香港勇士们把抗争转入地下，也可以关注爆料革命、新中国联邦，以钱灭共，保存抗争实力，静待中共覆灭，光复香港。
+The first thing is this virus SARS Covid-2 is basically the bigger version, enhanced version of SARS 1,
 
-参考阅读：
+首先，这种SARS Covid-2病毒基本上是SARS一号的增强版本，
 
-[支联会“申办”六四集会 港府以疫情为由拒绝](https://www.aboluowang.com/2021/0502/1587984.html)
+And we never have such vaccine, because of the nature, I am not
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
+我们从来没有研究出过这样的疫苗，因为自然界的原因，我并
 
-编辑/校对/发稿：Irene木木
+anti vaccine I worked on universal influenza vaccine
 
-**更多资讯，更多关注**
+不反对疫苗，我本身也是做流感疫苗的研究方面的工作
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+I have my patent on pending,
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+我有申请中的疫苗专利
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+I know, I just know how to develop vaccine in a proper way try to in a proper way, right?
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+我知道，我只是知道如何以适当的方式开发疫苗，对吗？
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+So this SARS Covid 2, it likes SARS 1, we don’t have vaccine because of the
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+所以这个SARS Covid 2，它就像SARS 1，我们没有疫苗，因为
 
+side effect contains
 
+副作用的因素
 
+Likes as allergy or antibody dependent enhancement
 
+像过敏或抗体依赖性增强的
 
-+1
+and also we don’t have the good universal influenza vaccine that will have
+
+而且我们也没有好的通用流感疫苗
+
+to develop year by year
+
+需要逐年研发
+
+because of the quick mutant
+
+因为流感病毒变异很快。
+
+So now SARS 2 combined the quick mutant in the circulation
+
+所以现在SARS 2结合了循环中的快速变异
+
+and also it had side effect from SARS 1
+
+此外，它还具有非典1的副作用。
+
+So how could people quickly overcome these issues in several months
+
+那么，人们如何才能在几个月内迅速克服这些问题呢？
+
+and also we know that SARS 2 actually have a lot of modification
+
+我们也知道SARS 2实际上有很多修改
+
+as the Doctor Fleming also mentioned its bio-weapon, right?
+
+因为弗莱明博士也提到了它的生物武器，对吧？
+
+and I already showed that is an unrestricted bio-weapon
+
+我已经证明了这是一种超限的生物武器
+
+so there are also many hidden functions and this is as ….the protein, …
+
+所以还有很多隐藏的功能，这就是…。蛋白质，…..
+
+there are many things…
+
+有很多事情…
+
+now is OK
+
+现在可以了，声音回来了
+
+So at least, you see now we are using most properly we are using
+
+所以，至少我们现在知道，使用的是
+
+the S protein equipped on as I don’t know Virus- mRNA,
+
+最合适的S蛋白，因为我不知道病毒-mRNA
+
+adaptors deliver to our body
+
+适应体传递到我们的身体上里
+
+I don’t judge the technic, because I didn’t see a lot of technic data released
+
+我不评判技术，因为我没有看到很多mRNA公司
+
+by these mRA companies
+
+发布的技术数据
+
+So we need to exam these when its openly released, more released data
+
+因此，我们需要在公开发布更多数据时对其进行检查，这样我们才能
+
+and we can know more
+
+了解更多信息
+
+But just talk about S protein that whether there is still hidden function inside
+
+但是说到S蛋白，我们还不知道里面是否还有
+
+we don’t know
+
+隐藏的功能
+
+We do see that people get infected and get more communication as we just men-tioned
+
+正如我们刚才提到的，我们确实看到人们感染了病毒，并获得了更多的传播
+
+So at this time if just delivered S protein to our body
+
+所以在这个时候，如果只是把S蛋白送到我们的身体里。
+
+whether it will release some other adverse effect
+
+会不会释放一些其他的不利影响。 、
+
+which is even ignored which may come out not in the short term
+
+它甚至被忽视了，这可能不是在短期内出现的
+
+but as chronic style later in our bodies
+
+而是后来在我们身体里变成慢性疾病形式出现
+
+whether it will induce some problem and which can be triggered later by some oth-er
+
+它是否会引发一些问题，以及以后会不会被其他诱发剂触发
+
+factors when we get vulnerable we don’t know that
+
+当我们变得脆弱时，我们不知道
+
+We just know that we still need more data, animal data, enrichful data and
+
+我们只知道我们还需要更多的数据、动物数据、丰富的数据和
+
+also small human trial data
+
+少量的人体试验数据
+
+This need to be done on very strict surveillance and also a lot people should,
+
+这需要在非常严格的监控下进行，而且大家也应该这样做
+
+I mean scientist should check the data carefully and open discuss it.
+
+我的意思是科学家应该仔细检查数据并公开讨论
+
+We don’t know that we just say the vaccine is given to people
+
+我们不知道我们只是说疫苗是给人接种的
+
+Even when they have some other basic problem
+
+即使他们有其他一些基础疾病问题
+
+Even when they are old I don’t know
+
+即使他们老了，我也不知道
+
+For example in China, they gave some in Hong Kong, in negative or
+
+比如在中国，他们在香港给了一些灭活的或者
+
+in other type of vaccine, like Sino Vaccine,
+
+其他类型的疫苗，比如科兴疫苗
+
+From that company to senior age group
+
+给老年群组使用
+
+I am not sure whether it’s in negative or re-combining
+
+我不确定它是灭活的还是重组的疫苗
+
+Anyway, they gave it to the group over 60 years and that is a special group
+
+不管怎么说，他们给60岁以上的人群提供了疫苗，这是一个特殊的群体
+
+I mean in vaccine development you know that senior people have a lower immunity
+
+我的意思是说，在疫苗开发方面，你们知道的，老年人的免疫力较低
+
+immune response
+
+免疫反应较低
+
+So whether the vaccine work for them has to be done for this specific age popula-tion
+
+因此，疫苗是否适用于这一特定年龄段的人群
+
+for small tr​​ial
+
+需要进行小规模试验
+
+and also because they usually has the diabetes or hypertension or other problems
+
+也因为他们通常有糖尿病或高血压或其他问题
+
+we have to think about whether these condition will affect these vaccines
+
+我们必须考虑这些情况是否会影响这些疫苗
+
+but now it seems that it just come into human and then people see the result
+
+但现在看来，疫苗只是被注射进入人体，然后人们等着看结果
+
+and we even didn’t receive the very clear result
+
+我们甚至没有收到非常明确的结果
+
+although the vaccine has been given for several months, right?
+
+虽然疫苗已经打了几个月了，对吧？
+
+so now, I really feel that it’s hurry to get vaccine and
+
+所以现在，我真的觉得现在太急于接种疫苗
+
+we do encourage the pharmacy to generate more data to show people
+
+我们确实鼓励制药厂商将更多的数据
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频连接: [https://rumble.com/vfy3xf-lethal-deception.html](https://rumble.com/vfy3xf-lethal-deception.html)
+
+英听校:康州盘古农场-WZ
+
+翻译: 康州盘古农场-WZ
+
+翻译终校: 康州盘古农场-Mike Li
+
+字幕+视频制作:康州盘古农场 – 天涯行
+
+审片:康州盘古农场 – 银龙
+
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

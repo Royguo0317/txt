@@ -1,65 +1,126 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】你我的挣扎
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1166042/)
+## 闫博士谈E蛋白帮助病毒维持神经毒性
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1166219/)
 
-作者：纽约香草山信息部 TimeTraveler
+字幕内容：
 
+闫丽梦博士：
 
+So what I want to comment on it,
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
+对于这一点，我想说的是
 
+I am not neurologist, I just have the medical knowledge about neurology disease.
 
+我不是神经科医生，我只是有神经科疾病的医学知识
 
+But what I have pointed in my third report and also in my first report, I can use it as smoking gun.
 
+但正如我在第三份报告和第一份报告中指出的那样，我可以把它当作确凿的证据
 
+is envelop protein, E protein, in SARS-Covid 2,
 
+就是E蛋白，SARS-Covid 2中的E蛋白
 
-**你我**：我们的工资很低，杂事却多，经常要加班，加班还没有加班工资，下班回去还时刻要注意手机，害怕错过客户或者老闆的电话，日复一日就这麽茫然地过，时不时还受点不公和委屈，无处申诉，以为换了工作就会好过一点，谁知道还是换汤不换药，感觉就是从一个坑跳进另一个坑。物价高的离谱，房贷、车贷压得喘不过气，还好我没有孩子，不然压力更大，而且吃的食物有毒，住的房子有问题，连空气都有严重污染，根本都不能给孩子一个健康的环境去生活，不知道为什麽要这样活著，心好累。
+it’s hundred percent identical as it as the back born, Zhou Shan Conoravirus
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02225042/%E4%B8%89%E5%BA%A7%E5%A4%A7%E5%B1%B1-1.jpeg)（图源网络）
+可以100%完全确认SARS-Covid 2使用舟山蝙蝠冠状病毒作为骨架
 
-**觉醒者**：因为生活所涉及的各个方面都没有途径可以去维护我们的权利，所以只能被毫无底线地剥削。
-**你我**：为什麽没有途径维护我们的福利和权益?
-**觉醒者**：就工作方面来说，保障福利和权益一般是工会的职责，但是这个国家的工会不是帮助工人的，是帮助中共维稳工人的。
-**你我**：难道没有人起来反抗或者改组工会吗？
-**觉醒者**：有啊，不过那些人最后不是消失了就是还在牢房裡。
-**你我**：为什麽会消失或者在牢房裡？
-**觉醒者**：因为他们增加奴隶主的管理成本，危害奴隶社会的稳定。最简单的办法就是给他们安一个罪名，关进牢裡做苦工，如果他们体检采样符合要求，会等待器官配对，最后把有用的器官摘下卖钱，活摘器官之后尸体直接火化于是就消失了。医院、学校、火葬场和墓地也都是党产，医疗费、学费、火化费、墓地费也都很高昂，很多奴隶无力承担，读不起、病不起、死不起。之前有一个叫孙大午的开了一个大午医院，当地村民每月只要交1元就能看病拿药，他办的学校也每月交100元生活费就能上学，可是中共给人家安了好一些罪名，抄家了，所有资产变成党产，人还在牢裡；如果受了不公想去告发迫害自己的官员，那更是难上加难，公检法都是服务于党的，想学古人上访？截访的比上访的还多，中共这个体制从裡到外都烂透了，有良心者寸步难行，无良心者步步高升。
-**你我**：？？？我到底生活在一个什麽样的国家？
-**觉醒者**：准确地说你不是生活在一个国家，而是生活在一个巨大监狱裡。这个监狱由土匪建立，他们用谎言欺骗大家，说要建立民主国家，继而打土豪分田地又把土地收归党有、公私合营强佔企业，洗劫社会各层级。监狱里充满著谎言，因为监狱足够大又有足够多的谎言，所以让大家以为这是一个国家。
-**你我**：那我们为什麽不逃跑？或者是求救？
-**觉醒者**：因为你跑不了，周围都是监控，摄像头能识别你的身份，即使你戴上帽子、戴上口罩，也能通过你的步态识别出你；手机方面能通过软件后门获取你手机的所有内容，你在社交媒体的一言一行都被监控著，而手机号能确定你的身份；电脑方面能通过软件后门获取你的流览数据，杀毒软件一类的还能获取你电脑所有的资料、数据并上传到服务器，IP位址能定位到你，有些大学甚至登记MAC位址来确定哪台电脑发出的哪条资讯。在边境有高牆和电网，还有守卫和猎犬。求救的话，信号也发不出去，即使发出去了，也会被中共派出去的人掩盖真相，而发信号的人也会进牢房等待消失。当然有比我们高等级的奴隶通过其他方法逃出去恢复自由的，但这是你我这种低等级的奴隶望尘莫及的。
-**你我**：既然是这样一个生不如死的地方，为什麽还要把我生出来，为了让我感受绝望？
-**觉醒者**：因为你的父母被周围的谎言欺骗，没有寻求真相的途径又或者不敢去寻求真相、面对真相，于是他们成了谎言的受害者和维护者。
-**你我**：我到底应该怎麽办？真相的衝击颠覆我所有的认知，我觉得既愤怒又痛苦，愤怒中共对我的欺骗，痛苦自己还要生活在这个充满谎言的巨大监狱里，但是又不知道该做什麽！
-**觉醒者**：现在能做的是鼓起勇气面对所有的真相，拓展自己的知识面，并且传播真相。
-**你我**：回想一下自己以前在学校，那麽努力学习的历史居然有充满谎言，花费那麽多时间背诵的知识居然全是假的！
-**觉醒者**：也不完全是，至少在你知道某一真相以后，能第一时间反应过来共产党在哪方面说了什麽样的谎言。比如苏联对中共的扶植其实是对中国的殖民侵略；比如中共的长征其实是被第五次围剿后的大逃跑，而被围剿的原因是中共以国共合作为切入口进而以亲共、远共、反共三派分化国民政府，阻止北伐，以国军身份製造与外国的矛盾，在盘踞之地强取豪夺、屠杀百姓，以致民不聊生等等；比如中共的抗日其实是纸上抗日，报纸上宣传其抗日，其实是招揽人员扩充军队（抗战初期共军只有二万五千人，到抗战结束时已有九十一万正规军，二百二十万民兵），并且出卖国军情报给日军，趁国军迎面抗击日军之时，在后方与日军夹击国军，还在南泥湾种植鸦片销售到国统区，荼毒百姓等。还有好多好多的真相这裡就不一一列举了，共产党真的是“好话说尽，坏事做绝”。
-**你我**：除了瞭解真相，面对真相，我们还能做什麽？
-**觉醒者**：加入爆料革命，联合全世界正义的力量，一起灭共。现在中共已经释放了超限生化武器对付全世界，在此决一死战之后，世界必是一番新景象。假如正义的力量赢了，迎接我们的将是美好的未来，至少可以找回做人的尊严。我相信上帝会帮助我们战胜中共的！
-**你我**：好，加入爆料革命，学习真相、传播真相，一起灭共。
-**觉醒者**：快了，日子近了。
+First, this is the evidence. It comes from the Zhou Shan bat conoravirus, which is somehow, completely cab into SARS Covid 2.
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
+首先，这是证据。该E蛋白来自舟山蝙蝠冠状病毒，不知何故，它完全被发现在SARS Covid 2 病毒里
 
-编辑/校对/发稿： 人间世
+Because if it is going through the spices that’s a kind of host changing, jump from bat to animal to animal to human
 
-**更多资讯，更多关注**
+因为如果它经过物种间传代，那就是一种从蝙蝠到动物再到动物再到人类的宿主
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+definitely, that we would see the change, because they already observed the change
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+当然，我们会看到这种变化，因为他们在人类大流行最早的时候
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+during the earliest the pandemic in human.
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+就已经观察到了这种变化
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+And second thing is why do they keep it, because this is smoking gun,
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
+第二个问题是，中共为什么要对此守口如瓶，因为它是确凿证据
 
+since I write this problem from last year 19th January, with Youtube.
 
+因为我在去年1月19日用YouTube写了这个问题
+
+China had done a quickly get response and later they even locked down.
+
+中共很快就做出了反应，后来他们甚至封锁了E蛋白的信息
+
+Because they know someone released the real information of this bio-weapon.
+
+因为他们知道内部有人泄露了这种生物武器的真实机密
+
+But why until now, no scientist there to touch this E protein issue to argue with me.
+
+但是为什么到目前为止，还没有科学家触及到这个E蛋白的问题，他们也没有来和我争论这个E蛋白的问题？
+
+And even Shi Zhengli, and their like the Chinese Military Academy,
+
+就连shizhengli, 像那些中国军事医学院的学者们
+
+they have developed a lot of novel fabricated too naughty virus, including from bat from Pangolins,
+
+他们已经合成出了很多新奇的病毒，包括从蝙蝠身上，从穿山甲身上，
+
+which all have the identical E protein in those fabricated sequence.
+
+它们在构建的序列中都有相同的E蛋白。
+
+What do they want to hide?
+
+他们想隐瞒什么？
+
+Then lets we back to check E protein’s function.
+
+然后我们再回来检查一下E蛋白的功能
+
+Yes it ‘s not clearly investigated , but we know it’s important for virus fabrication
+
+是的，它还没有得到明确的调查，但我们知道它对病毒的合成至关重要
+
+as some other important part in the Coronavirus
+
+作为冠状病毒的其他重要组成部分
+
+But it’s also have another function what
+
+但是它还有另外一个功能，那就是
+
+discovered and actually my ex-lab in the University of Hong Kong,
+
+在我之前工作的香港大学的实验室
+
+it’s the lab get involve to discover is E protein can have the virus
+
+发现这种E蛋白可以帮助病毒
+
+help the virus maintain the neuronal toxicity
+
+帮助病毒保持其神经毒性
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频连接: [https://rumble.com/vfy3xf-lethal-deception.html](https://rumble.com/vfy3xf-lethal-deception.html)
+
+英听校:康州盘古农场-WZ
+翻译: 康州盘古农场-WZ
+翻译终校: 康州盘古农场-Mike Li
+字幕+视频制作:康州盘古农场-天涯行
+审片: 康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

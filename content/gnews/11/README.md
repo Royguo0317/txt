@@ -1,35 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 缅甸冲突给东盟带来新冷战格局
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1166011/)
+## 【有声读物】形式防沉迷，难解“手机儿童”现状
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1166149/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+配音：香草山录音组 蒙古鸿雁
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/05/A-2.jpg)cseashawaii.org
-日经新闻报道，东南亚国家联盟(Association of Southeast Asian Nations，简称东盟)领导人最近发表的主席声明中，暗示该地区卷入了这个时代最重要的地缘政治冲突。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-声明强调了总体接触的必要性，称他们“指示外长尽快与中华人民共和国和美国举行会晤”。
 
-这两个国家并不是欧盟唯一的对话伙伴，其他对话伙伴还包括日本、俄罗斯和印度。但它们是全球竞争的两个极端，这一竞争被界定为民主与独裁之间的“新冷战”，而缅甸的政变和随后发生的暴力事件让这一动态得到了鲜明的体现。
 
-声明包含了关于缅甸问题的“五点共识”，包括呼吁立即停止暴力，并通过“建设性对话”寻求和平解决方案。对于一个传统上避免干涉成员国内部事务的集团来说，这是一个不同寻常的举动。
 
-缅甸民族政府的发言人在社交媒体上发表声明，对这一“令人鼓舞的消息”表示欢迎。同时称赞了印尼总统佐科·维多多 (Joko Widodo)要求缅甸军政府释放政治犯的呼吁。维多多还敦促结束暴力，恢复民主。主席的声明和维多多的言论似乎表明东盟内部正在发生微妙的变化。
 
-但问题是这些话能否转化为行动，第一个考验是任命一位东盟特使进行调解。
 
-目前没有机制可促使缅甸“立即停止暴力”。如果缅甸军方继续对抗议者进行暴力镇压，或与反对政变的武装组织发生冲突，邀请缅甸军政府领导人参加谈判的东盟领导人就会颜面尽失。即使缅甸军政府停止暴力镇压，如果军队不释放民主党领导人昂山素季，以军政府身份参与政治对话,其掌权将成为一个既成事实,东盟将承担被批评为军政府进入国际社会开启了方便之门的风险。
 
-联合国安理会(U.N. Security Council)在2月1日政变后不久举行会议，权衡如何回应，但中共和俄罗斯反对美国和欧洲成员国谴责政变的努力，目前僵局尚未打破。这种僵持局面并不罕见。冷战时期，美国和苏联经常把冲突的包袱带到讨论中，而缅甸在“新冷战”中再次上演这种情况。
+环球网5月2日转载半月谈网文章，农村孩子沉迷手机游戏、小视频，过度使用手机现象堪忧。
 
-在东盟成立前后，东南亚是最初冷战的主要战场。东盟与西方集团结盟，支持资本主义反对共产主义。现在，如果新冷战是民主国家和专制国家之间的斗争，东盟很难坚定地站在一方或另一方。该组织自成立以来一直在扩大，它的成员在两个方向上都有倾斜。
+虽然今年中共两会期间，不少人大代表倡议未成年人游戏防护，通过立法、立规等方式防沉迷，但实操上却依旧困难重重。截至2020年12月，国内应用市场上游戏类APP达88.7万款，占APP数量总量的25.7%，虽然2019年就出台《关于防止未成年人沉迷网络游戏的通知》，但一方面是行业数据不互通，另一方面则由于一些大型游戏企业以防沉迷之名行充会员之实，防护系统仍形同虚设。
 
-缅甸以及东盟周边的国际动态令人担忧，新的冷战来到了东盟，缅甸的局势清楚地表明了东盟成员国现在所处的困境。
 
-参考链接：
 
-[https://asia.nikkei.com/Spotlight/Myanmar-Coup/Myanmar-conflict-brings-new-Cold-War-to-ASEAN-s-door](https://asia.nikkei.com/Spotlight/Myanmar-Coup/Myanmar-conflict-brings-new-Cold-War-to-ASEAN-s-door)
+**文字版原文：[【世事解评】形式防沉迷，难解“手机儿童”现状](https://gnews.org/zh-hans/1163383/)**
+
+作者：纽约香草山写作组  鹰(文言)
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
