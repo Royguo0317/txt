@@ -1,280 +1,417 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士谈论疫苗的安全性
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1162772/)
+## 前苏联武器专家肯·阿里贝克（Ken Alibek）博士的采访（一）
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1166123/)
 
-**内容：**
+1997年，美国国防部特别武器局接待了肯·阿里贝克（Ken Alibek）博士，讨论前苏联生物武器计划的能力。
 
-**闫丽梦博士：**
 
-I do have my concern about the vaccine now.
 
-我现在确实对疫苗感到担忧
+字幕内容：
 
-And the first thing is
+Walt Zimmers
 
-第一件事是
+沃尔特·齐默斯
 
-I kept telling people there no real effective vaccines against the pandemic
+So what you’re saying is that molecular biology today
 
-我一直告诉人们没有真正有效的疫苗来对抗这种大流行
+所以你要说的是今天的分子生物学
 
-So there are some reasons very simple the people can understand the vaccine
+as we know it can probably be easily adapted
 
-所以有一些很简单的原因，让人们可以理解疫苗
+我们知道它可能很容易适应
 
-The first thing is this virus SARS Covid-2 is basically the bigger version, enhanced version of SARS 1,
+by other countries to development of biological weapons agents
 
-首先，这种SARS Covid-2病毒基本上是SARS一号的增强版本，
+由其他国家开发生物武器代理商
 
-And we never have such vaccine, because of the nature, I am not
+and that they too could potentially produce genetically altered strains
 
-我们从来没有研究出过这样的疫苗，因为自然界的原因，我并
+而且它们也有可能产生基因改变的菌株
 
-anti vaccine I worked on universal influenza vaccine
+that would be antibiotically resistant
 
-不反对疫苗，我本身也是做流感疫苗的研究方面的工作
+那会产生抗生素抗性
 
-I have my patent on pending,
+Dr. Alibek
 
-我有申请中的疫苗专利
+阿里贝克博士
 
-I know, I just know how to develop vaccine in a proper way try to in a proper way, right?
+Uh let me say um we don’t have to underestimate a capability
 
-我知道，我只是知道如何以适当的方式开发疫苗，对吗？
+嗯，让我说，我们不必去低估这个能力
 
-So this SARS Covid 2, it likes SARS 1, we don’t have vaccine because of the
+of we call them in many cases are underdeveloped countries
 
-所以这个SARS Covid 2，它就像SARS 1，我们没有疫苗，因为
+在很多情况下，我们称他们为未发达国家
 
-side effect contains
+This underdeveloped countries now have very significant scientific capability
 
-副作用的因素
+这些不发达国家现在具有非常重要的科学能力
 
-Likes as allergy or antibody dependent enhancement
+just take a look at Cuba
 
-像过敏或抗体依赖性增强的
+就看看古巴
 
-and also we don’t have the good universal influenza vaccine that will have
+We consider this country an underdeveloped country
 
-而且我们也没有好的通用流感疫苗
+我们认为这个国家是未发达国家
 
-to develop year by year
+but now they’re capable to develop practically any genetically altered agent possible
 
-需要逐年研发
+但现在他们有能力开发出几乎所有可能的基因改变剂
 
-because of the quick mutant
+Walt Zimmers
 
-因为流感病毒变异很快。
+沃尔特·齐默斯
 
-So now SARS 2 combined the quick mutant in the circulation
+using modern techniques
 
-所以现在SARS 2结合了循环中的快速变异
+使用现代技术
 
-and also it had side effect from SARS 1
+Dr. Alibek
 
-此外，它还具有非典1的副作用。
+阿里贝克博士
 
-So how could people quickly overcome these issues in several months
+Yeah using modern techniques even uh 10-15 years ago
 
-那么，人们如何才能在几个月内迅速克服这些问题呢？
+是的，甚至在10到15年前使用现代技术
 
-and also we know that SARS 2 actually have a lot of modification
+they were able just to develop genetically altered recombinant bacteria
 
-我们也知道SARS 2实际上有很多修改
+他们只能够开发出基因转变的重组细菌
 
-as the Doctor Fleming also mentioned its bio-weapon, right?
+recombinant bacteria of course we don’t know
 
-因为弗莱明博士也提到了它的生物武器，对吧？
+重组细菌，当然，我们不知道
 
-and I already showed that is an unrestricted bio-weapon
+whether or not they develop genetically altered antibiotic resistant
 
-我已经证明了这是一种超限的生物武器
+他们是否研制出基因转变的抗生素抗性
 
-so there are also many hidden functions and this is as ….the protein, …
+but in many cases if you know this technique
 
-所以还有很多隐藏的功能，这就是…。蛋白质，…..
+但是在很多情况下，如果你懂得这项技术
 
-there are many things…
+of course it’s not a big deal
 
-有很多事情…
+当然没什么大不了的
 
-now is OK
+just to insert instead of a gene of one another technological substance
 
-现在可以了，声音回来了
+只是插入而不是另一个技术实质的基因
 
-So at least, you see now we are using most properly we are using
+biological substance
 
-所以，至少我们现在知道，使用的是
+生物实体
 
-the S protein equipped on as I don’t know Virus- mRNA,
+or if you’ve got uh knowledge how to do this
 
-最合适的S蛋白，因为我不知道病毒-mRNA
+或者，如果你掌握了如何做的知识
 
-adaptors deliver to our body
+it’s not a big deal it’s not a problem
 
-适应体传递到我们的身体上里
+这没什么大不了的
 
-I don’t judge the technic, because I didn’t see a lot of technic data released
+just to insert a gene uh plasmid with a gene
 
-我不评判技术，因为我没有看到很多mRNA公司
+只是将一个基因插入带有基因的质粒中
 
-by these mRA companies
+that could cause an antibiotic resistance to one another antibiotic
 
-发布的技术数据
+可能导致一种抗生素对另一种抗生素产生抗药性
 
-So we need to exam these when its openly released, more released data
+Walt Zimmers
 
-因此，我们需要在公开发布更多数据时对其进行检查，这样我们才能
+沃尔特·齐默斯
 
-and we can know more
+And in fact the former soviet union was doing this
 
-了解更多信息
+实际上，前苏联正这样做过
 
-But just talk about S protein that whether there is still hidden function inside
+even before the advent of modern molecular biology
 
-但是说到S蛋白，我们还不知道里面是否还有
+甚至在现代分子生物学问世之前
 
-we don’t know
+by probably selection process or
 
-隐藏的功能
+通过可能性筛选过程或
 
-We do see that people get infected and get more communication as we just men-tioned
+whatever to find uh antibiotic resistant
 
-正如我们刚才提到的，我们确实看到人们感染了病毒，并获得了更多的传播
+任何可以找到对抗生素有抗药性
 
-So at this time if just delivered S protein to our body
+or vaccine-resistant strains of organisms
 
-所以在这个时候，如果只是把S蛋白送到我们的身体里。
+或对疫苗有抗药性的生物菌株
 
-whether it will release some other adverse effect
+Dr. Alibek
 
-会不会释放一些其他的不利影响。 、
+阿里贝克博士
 
-which is even ignored which may come out not in the short term
+You’re absolutely right there are several techniques just to
 
-它甚至被忽视了，这可能不是在短期内出现的
+您是完全正确的，有几种技巧可以去
 
-but as chronic style later in our bodies
+Walt Zimmers
 
-而是后来在我们身体里变成慢性疾病形式出现
+沃尔特·齐默斯
 
-whether it will induce some problem and which can be triggered later by some oth-er
+Just to do that
 
-它是否会引发一些问题，以及以后会不会被其他诱发剂触发
+只是去做那个
 
-factors when we get vulnerable we don’t know that
+Dr. Alibek
 
-当我们变得脆弱时，我们不知道
+阿里贝克博士
 
-We just know that we still need more data, animal data, enrichful data and
+To do this but as  new techniques
 
-我们只知道我们还需要更多的数据、动物数据、丰富的数据和
+去做这个，但作为新技术
 
-also small human trial data
+new uh approaches are we discovered
 
-少量的人体试验数据
+我们所发现的新方法
 
-This need to be done on very strict surveillance and also a lot people should,
+of course the soviet union was able just to apply this technique
 
-这需要在非常严格的监控下进行，而且大家也应该这样做
+苏联当然能够运用这种技术
 
-I mean scientist should check the data carefully and open discuss it.
+uh this particular technique to develop new and new biological agents
 
-我的意思是科学家应该仔细检查数据并公开讨论
+嗯，这项特别的技术来研制新生物制剂
 
-We don’t know that we just say the vaccine is given to people
+Walt Zimmers
 
-我们不知道我们只是说疫苗是给人接种的
+沃尔特·齐默斯
 
-Even when they have some other basic problem
+This is a pretty bleak picture
 
-即使他们有其他一些基础疾病问题
+这是一张非常惨淡的画面
 
-Even when they are old I don’t know
+as far as I’m concerned with respect to a hypothetical situation
 
-即使他们老了，我也不知道
+就我所关心的假设情况而言
 
-For example in China, they gave some in Hong Kong, in negative or
+let’s say where the former soviet union
 
-比如在中国，他们在香港给了一些灭活的或者
+比如说前苏联在那里
 
-in other type of vaccine, like Sino Vaccine,
+let’s the head let a cloud go over a city
 
-其他类型的疫苗，比如科兴疫苗
+让我们的头上，让乌云笼罩整个城市
 
-From that company to senior age group
+of an organism an agent that they had
 
-给老年群组使用
+他们所拥有的生物体
 
-I am not sure whether it’s in negative or re-combining
+how could that population respond effectively
 
-我不确定它是灭活的还是重组的疫苗
+该人群如何有效应对
 
-Anyway, they gave it to the group over 60 years and that is a special group
+to protect themselves against that agent
 
-不管怎么说，他们给60岁以上的人群提供了疫苗，这是一个特殊的群体
+以保护自己不受那代理的攻击
 
-I mean in vaccine development you know that senior people have a lower immunity
+if in fact what you’re telling me is true
 
-我的意思是说，在疫苗开发方面，你们知道的，老年人的免疫力较低
+如果实际上你告诉我的是正确的
 
-immune response
+that antibiotics wouldn’t work
 
-免疫反应较低
+抗生素会是无效的
 
-So whether the vaccine work for them has to be done for this specific age popula-tion
+but the concept of even if people were vaccinated that may not have worked
 
-因此，疫苗是否适用于这一特定年龄段的人群
+但是，这个概念是即使人们接种了疫苗，也可能是无效的
 
-for small tr​​ial
+what would be what would how would the soviet union have thought
 
-需要进行小规模试验
+苏联会怎么想
 
-and also because they usually has the diabetes or hypertension or other problems
+about protecting itself against such agents
 
-也因为他们通常有糖尿病或高血压或其他问题
+关于保护自己免受此类药剂的侵害
 
-we have to think about whether these condition will affect these vaccines
+and how would you describe a city in the United States
 
-我们必须考虑这些情况是否会影响这些疫苗
+以及您如何描述一个美国城市
 
-but now it seems that it just come into human and then people see the result
+as with respect to their capabilities to protect the people against such agents
 
-但现在看来，疫苗只是被注射进入人体，然后人们等着看结果
+就他们保护人民免受这种行为者侵害的能力而言
 
-and we even didn’t receive the very clear result
+Dr. Alibek
 
-我们甚至没有收到非常明确的结果
+阿里贝克博士
 
-although the vaccine has been given for several months, right?
+first of all what I’d like to say
 
-虽然疫苗已经打了几个月了，对吧？
+首先，我想说的是
 
-so now, I really feel that it’s hurry to get vaccine and
+of course in many cases we are not talking about
 
-所以现在，我真的觉得现在太急于接种疫苗
+当然，在很多情况下，我们并不是在谈论
 
-we do encourage the pharmacy to generate more data to show people
+what was done what has been done
 
-我们确实鼓励制药厂商将更多的数据
+做了什么，已经做了什么
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+in many cases we just need to talk about possibility
 
-原视频连接: [https://rumble.com/vfy3xf-lethal-deception.html](https://rumble.com/vfy3xf-lethal-deception.html)
+在许多情况下，我们只需要谈论可能性
 
-英听校:康州盘古农场-WZ
+and now we are talking about a level of biotechnology
 
-翻译: 康州盘古农场-WZ
+现在我们正在谈论生物技术的水平
 
-翻译终校: 康州盘古农场-Mike Li
+and we say this level allows
 
-字幕+视频制作:康州盘古农场 – 天涯行
+我们说这个水平允许
 
-审片:康州盘古农场 – 银龙
+just to do a lot in this area
 
-发布：康州盘古农场 – 彩虹 Rainbow
+只是在这个领域做很多事情
+
+just to develop a lot of new genetically altered agents
+
+只是为了研制很多新的基因转变剂
+
+Uh, the problem is now
+
+嗯，现在的问题是
+
+of course there is a very serious gap
+
+当然那是一个很大的差距
+
+between what we are doing in the area of developing some
+
+我们在发展一些领域之间所做的事情
+
+by defense medical aspects medical approaches for biodefense
+
+通过国防医学方面的生物防御医学方法
+
+and what was done
+
+以及已经完成了什么
+
+and what could be done in the area of developing biological agents
+
+和在研制生物制剂方面可以做些什么
+
+and biological weapons and probably this way
+
+和生物武器，也许是这种方式
+
+and this approach we use now
+
+我们现在使用的这种方法
+
+of course would never help us to reach
+
+当然绝对不会帮助我们达成目标
+
+just to capture
+
+只是抓住目标
+
+just to uh to find an appropriate solution
+
+只是为了找到合适的解决方案
+
+just how to develop appropriate medical defense products techniques
+
+以及如何开发适当的医疗防御产品技术
+
+and this type of things probably we need to reconsider
+
+而这类事情，我们可能需要重新考虑
+
+whether or not we’ve chosen a right away
+
+我们是否选择了一个正确的方法
+
+in other words just imagine the situation
+
+换句话说，只要想象一下情况
+
+when we’re talking about possible biological agents could be used in biological weapons
+
+当我们谈论有可能的生物制剂可用于生物武器时
+
+dozens even hundreds how many vaccines we need to develop
+
+我们需要研制数十甚至数百种疫苗
+
+in this case how many treatment techniques
+
+在这种情况下多少种治疗技术
+
+and in many cases we just don’t know
+
+而且在很多情况下，我们就是不知道
+
+what kind of genetically altered agent could be developed in the future
+
+将来会发展出什么样的基因转化剂
+
+in this case it’s very difficult to develop a goodbye defense
+
+在这种情况下，进行再见防御是非常困难的
+
+in my opinion there is an approach it’s a long way to go
+
+在我看来，有一种方法，还有很长的路要走
+
+but I’m convinced that it would be the best way
+
+但我坚信这将是最好的方法
+
+we need to start researching our body’s own immune response system
+
+我们需要开始研究人体自身的免疫反应系统
+
+so called  non-specific human response
+
+所谓的非特定性人类反应
+
+just it is a significant scientific discussion
+
+只是一个重大的科学讨论
+
+and probably but in any case
+
+而且可能，但无论如何
+
+and for example if we start discussing this issue
+
+例如，如果我们开始讨论这个问题
+
+and we involved as many as possible scientists to help to develop this approach
+
+并且我们邀请了尽可能多的科学家来帮助开展这种方法
+
+maybe in five   seven ten years we will be able to say
+
+也许在五，七，十年后，我们可以说
+
+we’ve solved this problem and now biological weapons are absolutely useless
+
+我们已经解决了这个问题，生物武器现在完全没有用
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接: https://youtube.be/uFsYOLRA3hY
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – 郭班之樱
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场-文韵
 [!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
 康州盘古农场欢迎您加入:(或点击上方图片）
 

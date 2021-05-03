@@ -1,126 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士谈E蛋白帮助病毒维持神经毒性
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1166219/)
+## 习毛并举齐张，红色江山何谓？
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1166343/)
 
-字幕内容：
+撰稿：喜妈
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02232349/301.png)图片来自网络截图
+最近，中共官媒第一代表，《人民日报》发布“100句名言回顾党史100年”。这一百句收集了前后中共五代领导人的所谓金句，希望以此来纪念邪共的党庆，并作为其中的庆祝配合。这100句话，毛泽东与习近平各有30句，邓小平14句，江泽民和胡锦涛各10句，此外，周恩来2句，刘少奇、朱德、陈云和彭德怀各1句。
 
-闫丽梦博士：
+习近平作为最后一个当政的领导，资历最年轻却拥有和在中共建党建政上重量级人物毛泽东相同的在红色江湖的地位。同时，习近平还得到远远超出之前的历任领导的重视和关注程度，这个做法和安排是值得好好玩味的。
 
-So what I want to comment on it,
+首先，我们都知道，凡是金句，能够进入纪念党庆的普遍性的宣传领域，势必是非常重要，具有强烈代表性的浓缩思想。这些具有代表性和指向性的个人主政思想的浓缩，会进入中共的各种教科书，专业研究领域和全社会全体人员的思想范畴，是用于在中共体系下全民洗脑运动的指挥棒。也因此，能否成为体制内全体人员顶礼膜拜的最高思想，意味着自己拥有当下的绝对权威。从这个意义上，当然习某人及其党羽要把握好这个为自己大吹大擂的机会，不会放过任何一个处在绝对权威的标杆性事件中。习和他的党羽，将他与毛并举，其实就是从这个中共庆祝其建党的重要活动中，体现可以与毛同等作用，同样贡献，在红色江山拥有控制权。
 
-对于这一点，我想说的是
+其次，笔者认为，从这个五个阶段中共的各位领导人金句所占的数量，可以看出，在红色江山的地位评级上，就是典型的“胜者王，败者寇”的小农思想主导。谁在位，谁主政，谁就有绝对话语权，谁就可以登堂入室，赫赫然醒目。熟悉墙内生态的民众，多半知道邓小平和江泽民的江湖地位，世界上的一个基本认可度，还是要远远高于习某人。结果这二位居然都只能入选比较习某人来说才三分之一的金句入选。这就是明显的打压和明面上的示威和表态。
 
-I am not neurologist, I just have the medical knowledge about neurology disease.
+第三，众所周知，在目前的墙内生态和墙外的局势下，习某人四面楚歌，根本是应接不暇。可是他还要虚张声势，扯大旗，以为喇叭大，就有道理，就可以服人，就能够压倒性地形成自己的权威，这是极其幼稚可笑的。他这种明眼人一看就耻笑其作为的方式，不得人心。这样的虚造声势，为自己造神，体制内的不服气，体制外的也并不领情。他这个不穿衣服到处走的儿皇帝，想要得到从这些形式上得来的最高地位，无上光荣，恰好是自取其辱。
 
-我不是神经科医生，我只是有神经科疾病的医学知识
+第四，笔者认为，从这些红色体制下的各种炒作和刻意的领导人形象构建，根本就是海市蜃楼，虚幻景象。他们不仅让自己困在其中，就是对红色政权来说，以这样的方式去庆祝，也是对自己的打脸。一个作假和夸张的领导人，造了梯子把自己送上绝对的江湖高位，摔下来的时候就是难以言喻的惨状。这个江山，习某人还想主掌，还想拥有绝对权力，估计，结局就是怎么上去就怎么下来，红色江山不仅没有属于过人民，也没有属于过中共这个体制，它实质就是谁在位就是谁的江山；谁有绝对权力就是谁家的江山而已了。
 
-But what I have pointed in my third report and also in my first report, I can use it as smoking gun.
+习某人如果认为他有和毛某人一样数量的金句，就拥有了同等的在红色政权历史上和红色江山中的同等影响力，那大家姑且可以再等等，再仔细看看，那个高高的梯子够着的皇位，没点功夫，还是坐不稳，还是占不牢的。虚幻景象毕竟还是虚幻，泡影一破，啥都没有啦。
 
-但正如我在第三份报告和第一份报告中指出的那样，我可以把它当作确凿的证据
+（本文纯属个人观点）
 
-is envelop protein, E protein, in SARS-Covid 2,
+*审核：**Runaway 编辑：MG1*
 
-就是E蛋白，SARS-Covid 2中的E蛋白
+参考资料：
 
-it’s hundred percent identical as it as the back born, Zhou Shan Conoravirus
+**[中共发布100句党史名言：毛习各占30句彭德怀名言上榜](https://www.dwnews.com/%E4%B8%AD%E5%9B%BD/60238693/%E4%B8%AD%E5%85%B1%E5%8F%91%E5%B8%83100%E5%8F%A5%E5%85%9A%E5%8F%B2%E5%90%8D%E8%A8%80%E6%AF%9B%E4%B9%A0%E5%90%84%E5%8D%A030%E5%8F%A5%E5%BD%AD%E5%BE%B7%E6%80%80%E5%90%8D%E8%A8%80%E4%B8%8A%E6%A6%9C)**
 
-可以100%完全确认SARS-Covid 2使用舟山蝙蝠冠状病毒作为骨架
-
-First, this is the evidence. It comes from the Zhou Shan bat conoravirus, which is somehow, completely cab into SARS Covid 2.
-
-首先，这是证据。该E蛋白来自舟山蝙蝠冠状病毒，不知何故，它完全被发现在SARS Covid 2 病毒里
-
-Because if it is going through the spices that’s a kind of host changing, jump from bat to animal to animal to human
-
-因为如果它经过物种间传代，那就是一种从蝙蝠到动物再到动物再到人类的宿主
-
-definitely, that we would see the change, because they already observed the change
-
-当然，我们会看到这种变化，因为他们在人类大流行最早的时候
-
-during the earliest the pandemic in human.
-
-就已经观察到了这种变化
-
-And second thing is why do they keep it, because this is smoking gun,
-
-第二个问题是，中共为什么要对此守口如瓶，因为它是确凿证据
-
-since I write this problem from last year 19th January, with Youtube.
-
-因为我在去年1月19日用YouTube写了这个问题
-
-China had done a quickly get response and later they even locked down.
-
-中共很快就做出了反应，后来他们甚至封锁了E蛋白的信息
-
-Because they know someone released the real information of this bio-weapon.
-
-因为他们知道内部有人泄露了这种生物武器的真实机密
-
-But why until now, no scientist there to touch this E protein issue to argue with me.
-
-但是为什么到目前为止，还没有科学家触及到这个E蛋白的问题，他们也没有来和我争论这个E蛋白的问题？
-
-And even Shi Zhengli, and their like the Chinese Military Academy,
-
-就连shizhengli, 像那些中国军事医学院的学者们
-
-they have developed a lot of novel fabricated too naughty virus, including from bat from Pangolins,
-
-他们已经合成出了很多新奇的病毒，包括从蝙蝠身上，从穿山甲身上，
-
-which all have the identical E protein in those fabricated sequence.
-
-它们在构建的序列中都有相同的E蛋白。
-
-What do they want to hide?
-
-他们想隐瞒什么？
-
-Then lets we back to check E protein’s function.
-
-然后我们再回来检查一下E蛋白的功能
-
-Yes it ‘s not clearly investigated , but we know it’s important for virus fabrication
-
-是的，它还没有得到明确的调查，但我们知道它对病毒的合成至关重要
-
-as some other important part in the Coronavirus
-
-作为冠状病毒的其他重要组成部分
-
-But it’s also have another function what
-
-但是它还有另外一个功能，那就是
-
-discovered and actually my ex-lab in the University of Hong Kong,
-
-在我之前工作的香港大学的实验室
-
-it’s the lab get involve to discover is E protein can have the virus
-
-发现这种E蛋白可以帮助病毒
-
-help the virus maintain the neuronal toxicity
-
-帮助病毒保持其神经毒性
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://rumble.com/vfy3xf-lethal-deception.html](https://rumble.com/vfy3xf-lethal-deception.html)
-
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场-Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片: 康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+[https://hd.stheadline.com/news/realtime/chi/2061849/](https://hd.stheadline.com/news/realtime/chi/2061849/)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2-1.jpg)
 0

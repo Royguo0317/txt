@@ -1,49 +1,283 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0502II在2020年中共已经消失剩下的就是物理上的消灭
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1165954/)
+## 闫博士谈论疫苗的安全性
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1162772/)
 
-编辑整理：
+**内容：**
 
-纽约香草山：鹰(文言)；日本东京方舟农场：山川异域
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02220447/%E5%B0%81%E9%9D%A2-2.jpg)
-据[2021年5月2号 文贵直播标题：国内银行倒闭，房地产崩塌，粮食链断裂，国际关系的冰冻效应，中共内部已经认为中共即将终结；以美灭共会最终促成以共灭共的发生，在2022年开始；喜币是金融界的金箍棒](https://gtv.org/video/id=608ea73f6c00a14130e56d95)时间点13：12——
+**闫丽梦博士：**
 
-说到这现在我要谈一下，咱们现在看到现在美国、欧洲以及全世界的以毒灭共还有灭共的时刻，大家看到越来越多人的觉醒，甚至很多世界级的人物都在推崇我们的新中国联邦、支持新中国联邦，更多人认识到共产党不等同于中国人，共产党不等同于中国。
+I do have my concern about the vaccine now.
 
-而且更多人站出来开始转发我们科学家闫博士的所有的这些论文，更多人在转发我们路德访谈当年119的事实，还有我们博士军团各种信息以及在世界上各国之间各种语言在广泛的传播，我们看到这些的时候，请战友们想到一个最核心的问题，我们这样是不是就认为共产党一定会被灭了。
+我现在确实对疫苗感到担忧
 
-我告诉过大家，说实在话我在去年我就认为共产党已经没了，我跟所有外国人沟通，我说如果你在2020年你以为这个世界上还有中国共产党的话，你已经OUT了。我说你把我这话先记住，你把我的话你可以不信，你等到若干年以后你就懂我说的什么意思了。
+And the first thing is
 
-为什么我这么说，我说因为自从冠状病毒也就是共产党病毒被传播到这个世界的时候，就决定了共产党已经消失了，它只是最后的一个物理上的消失而已。我说在心理上，全世界人都知道共产党完了，那么我这个观点得到了多少人印证呢？西方很多人都认为，Miles你这么一说，我真的认为是这样子的。这个事情已经不以任何人的意志为转移的事情——共产党已经是完了。
+第一件事是
 
-为什么？它有三个最核心的特征，在川普总统离开白宫的时候他把它定义为新疆种族大屠杀、反人类罪，这个事情又被拜登政府给佐证和印证，这就说明了什么问题——没有人敢推翻这个事实了。
+I kept telling people there no real effective vaccines against the pandemic
 
-这个事情在法理上给西方国家对中共无论是政治、经济和军事任何领域对它进行打击和对它进行修理惩罚，它都是有法律依据的，这个借口可以把共产党所有的事情想怎么弄它怎么弄它——种族大屠杀和反人类罪是人人诛之，人人可诛，就这么大的罪。
+我一直告诉人们没有真正有效的疫苗来对抗这种大流行
 
-第二个香港事件，香港事件它撕毁了国际合约，并且对香港的学生和孩子进行了大规模的强奸、杀害、威胁、驱离，撕毁了国际上最重要的中英的合同，这个说明了什么问题？就是中共完全不遵守任何国际上所说的所签署的任何合约、任何契约。
+So there are some reasons very simple the people can understand the vaccine
 
-在香港犯下的罪行只是最后像新疆一样要不要得到印证、要不要面对、要不要形成法律，我相信大家看到了，最后的香港的保护法有了、香港的各种法有了，像新疆一样，新疆花了50年才把共产党定为种族大屠杀、反人类罪，香港最终一定会列为也是大屠杀，犯群体大屠杀罪，这是毋庸置疑的。
+所以有一些很简单的原因，让人们可以理解疫苗
 
-那么这种情况下，第二个问题说明什么呢，就全世界各国最后跟中共签的合约全都可以不算数，和中共所有的契约都可以不算数——它的意义在这里。而且什么时候出手，特别是在联合国，种族大屠杀和不遵守契约者绝对不能在联合国待着。那么这种情况下，联合国这个常务，它的最大的玩法就常务理事国，也就是常委、国际常委，你觉得它还能待住吗。
+The first thing is this virus SARS Covid-2 is basically the bigger version, enhanced version of SARS 1,
 
-好，这两样咱先放这儿。结果2020年它又放出了共产党的冠状病毒，冠状病毒放出来以后，你不管怎么折腾，这个冠状病毒有几个事儿是说不清楚的，就是武汉到底死了多少人，如果任何人相信武汉只死了共产党说的几百人咱就别聊了，你最好不要看我直播。如果你不相信武汉死了几百人，而是几万人还是几十万人还是一百万人，这都是政治权力犯罪，这是对人类的最大的一个犯罪——反人类罪。
+首先，这种SARS Covid-2病毒基本上是SARS一号的增强版本，
 
-那么如果武汉死了那么多人你掩盖它，你的目的是什么？又来自武汉实验室，包括武汉第一个吹哨人李文亮医生被害死，多个吹哨人被消失，包括对科学家的追杀和迫害，这都是事实。那说明了病毒是来自你家，如果不来自你家，你为什么要销声匿迹呀，这是个起码的逻辑。
+And we never have such vaccine, because of the nature, I am not
 
-然后你又拒绝国际社会调查，从拒绝调查到最后威胁社会按照它的方式来调查，按照共产党的方式来进行调查，叫操纵调查，然后跟国际社会不分享任何有关病毒的信息。
+我们从来没有研究出过这样的疫苗，因为自然界的原因，我并
 
-不但如此，各种新型病毒屡屡发生，最重要的发生在哪里呀？巴西，巴西死亡率高的时候巴西彻底跪下；英国死亡率高的时候，英国桌子底下也几乎叫爹了；美国全军崩溃，美国就没敢、没有人敢提出来、没有一个政府在任官员敢向中共要个说法——没有！大家千万记住，到目前为止没有美国任何官方的人和官方的机构向中共说你要给我个说法，没有的。
+anti vaccine I worked on universal influenza vaccine
 
-然后是印度，印度是完全死伤绝对不是真实的数字，一定是高过你看到的数字，然后还威胁日本、澳大利亚，公开威胁，你不听我的话你的病毒就会严重。我这边点火发卫星，你家点火烧死你家人。
+不反对疫苗，我本身也是做流感疫苗的研究方面的工作
 
-种种以上的证据，冠状病毒最后到底是来自共产党还是来自于共产党的武汉实验室还是共产党的军方，我们科学家已经明确告诉大家是超限生化武器，病毒从过去的天然说、蝙蝠洞说、穿山甲说、什么汽车说、什么宇宙陨石说，不管什么说，最后都证明了科学家说的是对的——这个病毒来自于武汉实验室，它是共产党军方早有预谋的、发展的、国家级的、军事级的、超超限战、超限生化武器。
+I have my patent on pending,
 
-如果在这个问题成立了，世界上还认同共产党的政权合法性吗，所以说这三样加在一起，如果你还认为中国共产党还能代表14亿中国人民、全世界人民还继续跟它做贸易、欢迎所有共产党的国家的政权的财富和做生意，和所有这个国家政权的党员和孩子们、家人们可以到世界上旅行学习，那你是疯了！那你真是疯了！
+我有申请中的疫苗专利
 
-接上文——
+I know, I just know how to develop vaccine in a proper way try to in a proper way, right?
 
-[郭先生0502I中共用温水煮青蛙的方式开始铺垫银行的倒闭](https://gnews.org/zh-hans/1165675/)
+我知道，我只是知道如何以适当的方式开发疫苗，对吗？
+
+So this SARS Covid 2, it likes SARS 1, we don’t have vaccine because of the
+
+所以这个SARS Covid 2，它就像SARS 1，我们没有疫苗，因为
+
+side effect contains
+
+副作用的因素
+
+Likes as allergy or antibody dependent enhancement
+
+像过敏或抗体依赖性增强的
+
+and also we don’t have the good universal influenza vaccine that will have
+
+而且我们也没有好的通用流感疫苗
+
+to develop year by year
+
+需要逐年研发
+
+because of the quick mutant
+
+因为流感病毒变异很快。
+
+So now SARS 2 combined the quick mutant in the circulation
+
+所以现在SARS 2结合了循环中的快速变异
+
+and also it had side effect from SARS 1
+
+此外，它还具有非典1的副作用。
+
+So how could people quickly overcome these issues in several months
+
+那么，人们如何才能在几个月内迅速克服这些问题呢？
+
+and also we know that SARS 2 actually have a lot of modification
+
+我们也知道SARS 2实际上有很多修改
+
+as the Doctor Fleming also mentioned its bio-weapon, right?
+
+因为弗莱明博士也提到了它的生物武器，对吧？
+
+and I already showed that is an unrestricted bio-weapon
+
+我已经证明了这是一种超限的生物武器
+
+so there are also many hidden functions and this is as ….the protein, …
+
+所以还有很多隐藏的功能，这就是…。蛋白质，…..
+
+there are many things…
+
+有很多事情…
+
+now is OK
+
+现在可以了，声音回来了
+
+So at least, you see now we are using most properly we are using
+
+所以，至少我们现在知道，使用的是
+
+the S protein equipped on as I don’t know Virus- mRNA,
+
+最合适的S蛋白，因为我不知道病毒-mRNA
+
+adaptors deliver to our body
+
+适应体传递到我们的身体上里
+
+I don’t judge the technic, because I didn’t see a lot of technic data released
+
+我不评判技术，因为我没有看到很多mRNA公司
+
+by these mRA companies
+
+发布的技术数据
+
+So we need to exam these when its openly released, more released data
+
+因此，我们需要在公开发布更多数据时对其进行检查，这样我们才能
+
+and we can know more
+
+了解更多信息
+
+But just talk about S protein that whether there is still hidden function inside
+
+但是说到S蛋白，我们还不知道里面是否还有
+
+we don’t know
+
+隐藏的功能
+
+We do see that people get infected and get more communication as we just men-tioned
+
+正如我们刚才提到的，我们确实看到人们感染了病毒，并获得了更多的传播
+
+So at this time if just delivered S protein to our body
+
+所以在这个时候，如果只是把S蛋白送到我们的身体里。
+
+whether it will release some other adverse effect
+
+会不会释放一些其他的不利影响。 、
+
+which is even ignored which may come out not in the short term
+
+它甚至被忽视了，这可能不是在短期内出现的
+
+but as chronic style later in our bodies
+
+而是后来在我们身体里变成慢性疾病形式出现
+
+whether it will induce some problem and which can be triggered later by some oth-er
+
+它是否会引发一些问题，以及以后会不会被其他诱发剂触发
+
+factors when we get vulnerable we don’t know that
+
+当我们变得脆弱时，我们不知道
+
+We just know that we still need more data, animal data, enrichful data and
+
+我们只知道我们还需要更多的数据、动物数据、丰富的数据和
+
+also small human trial data
+
+少量的人体试验数据
+
+This need to be done on very strict surveillance and also a lot people should,
+
+这需要在非常严格的监控下进行，而且大家也应该这样做
+
+I mean scientist should check the data carefully and open discuss it.
+
+我的意思是科学家应该仔细检查数据并公开讨论
+
+We don’t know that we just say the vaccine is given to people
+
+我们不知道我们只是说疫苗是给人接种的
+
+Even when they have some other basic problem
+
+即使他们有其他一些基础疾病问题
+
+Even when they are old I don’t know
+
+即使他们老了，我也不知道
+
+For example in China, they gave some in Hong Kong, in negative or
+
+比如在中国，他们在香港给了一些灭活的或者
+
+in other type of vaccine, like Sino Vaccine,
+
+其他类型的疫苗，比如科兴疫苗
+
+From that company to senior age group
+
+给老年群组使用
+
+I am not sure whether it’s in negative or re-combining
+
+我不确定它是灭活的还是重组的疫苗
+
+Anyway, they gave it to the group over 60 years and that is a special group
+
+不管怎么说，他们给60岁以上的人群提供了疫苗，这是一个特殊的群体
+
+I mean in vaccine development you know that senior people have a lower immunity
+
+我的意思是说，在疫苗开发方面，你们知道的，老年人的免疫力较低
+
+immune response
+
+免疫反应较低
+
+So whether the vaccine work for them has to be done for this specific age popula-tion
+
+因此，疫苗是否适用于这一特定年龄段的人群
+
+for small tr​​ial
+
+需要进行小规模试验
+
+and also because they usually has the diabetes or hypertension or other problems
+
+也因为他们通常有糖尿病或高血压或其他问题
+
+we have to think about whether these condition will affect these vaccines
+
+我们必须考虑这些情况是否会影响这些疫苗
+
+but now it seems that it just come into human and then people see the result
+
+但现在看来，疫苗只是被注射进入人体，然后人们等着看结果
+
+and we even didn’t receive the very clear result
+
+我们甚至没有收到非常明确的结果
+
+although the vaccine has been given for several months, right?
+
+虽然疫苗已经打了几个月了，对吧？
+
+so now, I really feel that it’s hurry to get vaccine and
+
+所以现在，我真的觉得现在太急于接种疫苗
+
+we do encourage the pharmacy to generate more data to show people
+
+我们确实鼓励制药厂商将更多的数据
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频连接: [https://rumble.com/vfy3xf-lethal-deception.html](https://rumble.com/vfy3xf-lethal-deception.html)
+
+英听校:康州盘古农场-WZ
+
+翻译: 康州盘古农场-WZ
+
+翻译终校: 康州盘古农场-Mike Li
+
+字幕+视频制作:康州盘古农场 – 天涯行
+
+审片:康州盘古农场 – 银龙
+
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
