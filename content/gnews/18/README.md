@@ -1,45 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】首个获奥斯卡奖华人女导演，在中共国被封杀
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1167009/)
+## 澳洲正在审查中共国在达尔文港的所有权
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1167204/)
 
-作者：纽约香草山商业部 文明
+翻译与评论：Shirley
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03072650/darwen.jpg)网络图片
+澳洲国防部长达顿（Peter Dutton）证实，他的部门正在审查一家中共国公司在达尔文港的所有权问题。达尔文港是一个位于澳洲最北端的、具有战略意义的、有美国海军陆战队基地的港口。
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
+达顿在周日晚些时候接受《悉尼先驱晨报》采访时说，总理莫里森内阁的国家安全委员会已要求国防部就达尔文港所有权提供建议。当被问及政府是否在酝酿强制撤资时，他说，政府会考虑国家利益。
 
+澳洲北领地政府在2015年，将达尔文港租给中共国陆桥集团公司（Landbridge），租期99年，此交易受到了安全专家的批评。
 
+达顿发誓要更公开地谈论中共国的侵略行为，比如澳洲的网络系统是如何”受到攻击”的。澳洲必须要保卫其非常重要的北部和西部水域免受侵犯，所以达尔文港尤其显得重要。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03050215/%E5%9B%BE%E7%89%8750.png)
+澳洲联邦政府上个月使用新的《对外关系法》，取消了中共国与维州政府的 “一带一路 “协议，引发了中共国的不满。有关达尔文港的决定，必然会进一步加剧澳洲与中共国之间的紧张关系。相信在达尔文港之后还会有纽卡斯尔港、西澳的工程项目等等，最后就是澳洲与中共国彻底脱钩。
 
-《无依之地》在第77届威尼斯电影节拿下金狮奖，而导演赵婷也成为2021年奥斯卡电影像奖（The Academy Awards）最佳导演奖得主，是奥斯卡史上第一位华人女性和第二位女性最佳导演。但赵婷的名字在中共国却少人问津，还不及宋丹丹继女名号热度大，许多人看新闻也是看到宋丹丹继女几个字才看的新闻。
+中共国在香港问题上单方面撕毁国际上公认的《中英联合声明》，让全世界认识到中共国是不守信用的，可以单方面撕毁任何协议。如果一个国家因为不执行合同失去了信誉，所谓的朋友如俄罗斯、伊朗以及小三胖等，都不过是酒肉朋友罢了，到了关键时刻都将是背后捅刀子的。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03050117/%E5%9B%BE%E7%89%8751.png)
+同时，中共国残忍地杀害香港热爱自由的年轻人，也让西方自由世界意识到中共国的杀掠本性。面对中共霸凌，自由世界为了保护自己的利益，第一件要做的事，就是将流氓中共扫地出门。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03050123/%E5%9B%BE%E7%89%8752.png)
+郭先生说过，香港是灭共的第一道大门。透过香港事件，全世界都醒了，认识到了中共无耻与邪恶的本质，别无选择，全世界只能团结起来共诛之。中共命不久矣！
+（本文仅代表个人观点）
 
-2021年3月1日，赵婷获金球奖最佳导演的消息登上微博热搜榜。宋丹丹发文称赵婷：“你是我们家的传奇”。消息一出，不少媒体跟风追捧称赵婷是中共国的骄傲。她一度受到中共国官媒的褒奖和网友的热议，但在短短一个月之后，她历史性斩获奥斯卡奖的消息却在中共国面临着严格审查和全网性的封杀。在微博上，“赵婷”“无依之地”和“奥斯卡”等似乎都成为了敏感词，相关网络帖子被大面积删除。根据中共国网友翻出赵婷在2013年接受杂志*Filmmaker*访问时提到，为何自己有一种叛逆的性格时，她这样回答：“要追溯回我成长时期的中共国，当时到处都是谎言，很多接收到的资讯都不是正确的 （It goes back to when I was teenager in China，being in a place where there are lies everywhere）”。此外，她2020年接受澳大利亚媒体采访时直言，“现在我的国家是美国”，而这一言论被解读为涉嫌“辱华”。
+参考链接：
 
-而电影《无依之地》的内容本身与中共国政治并无关系，讲的是一则关于美国的故事——在2010年代美国经济衰退后，一名60多岁的女人在变卖自己的全部家当，住进一辆移动房车，过上了现代游民生活的故事。在豆瓣上，该电影的条目虽在，但中文海报已被撤下，同时中共国地区上映的日期也消失不见。根据此前的电影海报，《无依之地》本定于4月23日在中共国上映，但据说后来被撤档。如果电影本身并无敏感问题，但被封杀，就让人不禁思考在电影得奖之后的高调追捧，再到后面的大量删除网络信息，背后是否隐藏了其他政治层面的问题。中共国媒体对本次奥斯卡颁奖礼到现在都没有任何报道，而香港亦在52年来首次不直播奥斯卡颁奖礼。往年直播颁奖礼的香港媒体TVB称，这是“纯商业考虑”。除了赵婷外，以香港“反送中”运动为题材的纪录片《不割席》（Do Not Split）获得本届奥斯卡最佳纪录短片提名，这很有可能也是另一个引起中共国政界人士忌惮的原因。
+[https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.html](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
 
-中共国对赵婷这部电影的封杀，深刻凸显出当下中共国对艺术界的恐惧。当然中共国的这种封杀行为对墙内百姓来说已经是家常便饭。他们对这种封杀的宣传无一例外都扣上了一顶“辱华”的帽子，从而导致墙内百姓这几十年一直游离于真实的国际形势之外。
+[https://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-says](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
 
-校对/发稿：飞虹
+[https://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
+*审核&编辑：Runaway*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
 
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

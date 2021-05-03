@@ -1,47 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】“一带一路”输出“中共特色”强迫劳动
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1166544/)
+## 新西兰与中共国的关系渐行渐远
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1166671/)
 
-作者：纽约香草山健身部 童谣
+翻译与评论：Shirley
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03024658/5301-2.png)图片来自网络
+新西兰总理阿德恩（Jacinda Ardern）周一在奥克兰举行的中国商业峰会上发表演讲时表示，新西兰和中共国之间的分歧正变得越来越难以调和。中共国和新西兰在一些事情上 “没有、不能、也不会达成一致”。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
+此时，新西兰面临着来自西方盟友的压力，因为它不愿意用五眼联盟的情报批评北京。
 
+外交部长马胡塔（Nanaia Mahuta）上个月说，她对扩大五眼联盟的作用感到不舒服，随即被五眼国家的保守派评论家指责为放弃了新西兰的传统同盟关系。
 
+中共国在新疆的侵权行为，可能会在未来几周进一步挑战阿德恩女士的政府。目前，美国、加拿大和英国议会均宣布新疆的情况为种族灭绝。新西兰的右翼反对党Act，正在准备对此提出一个动议，进行辩论。
 
-“一带一路”不仅是频频暴雷的债务陷阱，也成了中共奴役中国工人的新型方式。据美国之音报道，习近平的“一带一路”在向世界扩展实力的同时，也把侵犯人权的模式扩展到了全球。即使在文明世界的监督下，也没能阻止这样一条黑暗的传送带将中共国工人像奴隶一样“运输”到全球各地。即使身在墙国之外，自由民主世界的阳光也始终没有照到这群人身上。
+做为五眼联盟情报核心的一员，新西兰外长马胡塔公开替中共辩护，让西方世界再一次警醒，认识到中共“蓝金黄”的威力，中共的力量也又一次刷新了西方民主国家的认知。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03014641/%E5%9B%BE%E7%89%8748.png)图片来源：美国之音中文网
+新西兰的现任政府，为了自己腰包里的钱，不惜危害普通民众的利益，很早就向中共国开放边界、通航。表面上看，开放边界是为了促进经济，可是结局却将是为北京打了掩护，方便了中共实施放毒计划，最后搞垮新西兰的经济。
 
-永青集团被称为中共国“一带一路”战略在印尼的“早期重要成果”。德龙公司也是在印尼从事镍业生产的第二大中资企业。但在这两家公司被强迫劳动的中共国工人只能拿一个月不到一万元人民币的工资，而且生活环境极其恶劣，没有任何人身安全保障和生活医疗保险，生病也无法就医，身体耽误治疗后成为永久性损伤都没有任何补助和报销。同时工人们只是持有商务签证便被公司非法雇佣进行长期工作，护照又在合同期间被没收，最后只能成为“黑户”。这样的非法身份想回国也没有办法。
+不顾普通百姓利益的西方民主国家政府，必定要付出代价，这一点从澳洲的西澳和塔州的州选举就可以知道，投票人最在乎的是自身安全，而不是经济。如果阿德恩女士的政府仍然与中共勾兑，必将遭到人民的唾弃。下台后，一定会受到法律的公正审判。
 
-国际劳工组织的标准认为，扣留身份证明文件跟限制行动自由、恐吓和威胁等其他手段一样，是认定强迫劳动的指标之一。
+（本文仅代表个人观点）
 
-当前“一带一路”几乎覆盖全球三分之二的国家，这样遭受非法对待、强迫劳动的中共国人被带到世界各地，作为非法移民身份既得不到所在国家的保护也没有数据可以追踪，只能成为永远生存在隐形灰色地带的一群人。
+*审核：**Runaway 编辑：MG1*
 
-与此同时，中共国在印尼的一带一路项目却仍在继续扩大进行，包括青山集团和德龙镍业都在网上发布招工启事。与中共勾兑的资本政府深知其中的黑暗，也只是选择睁一只眼闭一只眼，赚着共产党的钱，吸着中国老百姓的血。
+[https://au.news.yahoo.com/ardern-admits-strain-china-nz-235726235.html](https://au.news.yahoo.com/ardern-admits-strain-china-nz-235726235.html)
 
-素材来源：
+[https://www.ndtv.com/world-news/new-zealand-pm-jacinda-ardern-says-differences-with-china-becoming-harder-to-reconcile-2426774](https://www.ndtv.com/world-news/new-zealand-pm-jacinda-ardern-says-differences-with-china-becoming-harder-to-reconcile-2426774)
 
-[https://www.voachinese.com/a/Forced-labor-Chinese-Worker-Overseas-Belt-Road-Initiative-Indonesia-China-Labor-Watch-20210430/5873308.html](https://www.voachinese.com/a/Forced-labor-Chinese-Worker-Overseas-Belt-Road-Initiative-Indonesia-China-Labor-Watch-20210430/5873308.html)
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[https://www.abc.net.au/news/2021-04-19/new-zealand-five-eyes-intelligence-sharing-china-australia/100078834](https://www.abc.net.au/news/2021-04-19/new-zealand-five-eyes-intelligence-sharing-china-australia/100078834)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2-1.jpg)
 0
