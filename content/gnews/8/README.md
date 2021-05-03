@@ -1,31 +1,283 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 霍利参议员称大科技公司是对美国自由的最大的威胁
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1165880/)
+## 闫博士谈论疫苗的安全性
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1162772/)
 
-蒙特利尔皇家山战友团 Spirit
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02213406/holy.jpg)图片来源：NBC News
-据《纽约邮报》(New York Post) 5月2 日报道，参议员乔什-霍利称大科技公司是对美国自由的最大威胁，指责社交媒体巨头干涉2020年总统选举，并审查保守派的声音，试图推行他们的极左议程。
+**内容：**
 
-这位密苏里州共和党人自2018年11月当选参议员以来，一直把科技巨头放在“瞄准器”上，在周日发表的福克斯新闻采访中说“这些科技巨头无处不在，如此强大，他们一天比一天更强大。”霍利讲道，大科技公司 “大肆干预 “了选举，并指出推特和脸书是如何阻止《邮报》传播其关于亨特-拜登在其父亲担任副总统期间与外国政府打交道的爆料的。
+**闫丽梦博士：**
 
-他还抨击了大科技公司在1月6日美国国会大厦遇袭事件后“卸下“ 前总统特朗普的发声平台，谎称他 “进一步煽动暴力”。霍利说“这些人试图将他们极左的议程强加给国家”并补充“大科技公司想告诉人们你可以发布什么，想控制新闻，控制人们阅读的内容“。
+I do have my concern about the vaccine now.
 
-霍利在福克斯新闻采访中宣传他的新书《大科技的暴政》这本书定于5月4日出版，本应由西蒙-舒斯特出版，但在霍利和其他几位共和党人于1月6日投票反对为总统拜登认证几个战场州的总统选举后，该图书出版商放弃了出版该书。霍利告诉福克斯新闻，“具有讽刺意味的是，这本书是关于大科技公司对我们的政治和社会的控制，而正是大科技公司主导了取消这本书的出版”。霍利告诉福克斯新闻。
+我现在确实对疫苗感到担忧
 
-霍利感谢像Regnery出版社这样的独立出版商，该出版社将发行他的书。他说：”这是一本左派不希望任何人阅读的书，是关于大科技公司和巨型企业如何与大政府携手合作，试图管理我们的国家，压制我们的言论，并接管我们的政府的书。我们必须阻止他们。”霍利继续说，他已经敦促他的共和党同僚打破大科技公司的 “寡头”，并提出了 “打击大科技公司法案”。
+And the first thing is
 
-“Facebook目前拥有Facebook，也拥有Instagram，他们还想拥有自己的货币，或者类似的东西，”霍利说。”谷歌不仅拥有谷歌搜索，还有Gmail，以及所有这些其他产品，还有云计算服务，他们还拥有YouTube。不应该允许一家公司拥有所有这些不同的平台，”霍利补充说。
+第一件事是
 
-他的法案将对哪些产品可以在在线市场上销售进行限制。例如，它将阻止亚马逊将自己营销的零售商品与其他卖家的商品一起销售，或向互联网上不断增长的公司或竞争对手提供在线托管或云服务。该法案还将授权联邦贸易委员会加强反垄断执法。
+I kept telling people there no real effective vaccines against the pandemic
 
-参议员霍利1月6日勇敢地挑战这些大科技公司操纵的选举欺诈结果，之后他一直用行动不懈努力抨击大科技公司与政府勾结压制言论自由。希望能有更多的勇敢的共和党人站出来和霍利一起，打破“媒体寡头治国”的企图。
+我一直告诉人们没有真正有效的疫苗来对抗这种大流行
 
-[原文链接](https://nypost.com/2021/05/02/sen-hawley-slams-big-tech-for-imposing-woke-agenda/)
+So there are some reasons very simple the people can understand the vaccine
 
-* * *
+所以有一些很简单的原因，让人们可以理解疫苗
 
-*发稿 文锦*
+The first thing is this virus SARS Covid-2 is basically the bigger version, enhanced version of SARS 1,
+
+首先，这种SARS Covid-2病毒基本上是SARS一号的增强版本，
+
+And we never have such vaccine, because of the nature, I am not
+
+我们从来没有研究出过这样的疫苗，因为自然界的原因，我并
+
+anti vaccine I worked on universal influenza vaccine
+
+不反对疫苗，我本身也是做流感疫苗的研究方面的工作
+
+I have my patent on pending,
+
+我有申请中的疫苗专利
+
+I know, I just know how to develop vaccine in a proper way try to in a proper way, right?
+
+我知道，我只是知道如何以适当的方式开发疫苗，对吗？
+
+So this SARS Covid 2, it likes SARS 1, we don’t have vaccine because of the
+
+所以这个SARS Covid 2，它就像SARS 1，我们没有疫苗，因为
+
+side effect contains
+
+副作用的因素
+
+Likes as allergy or antibody dependent enhancement
+
+像过敏或抗体依赖性增强的
+
+and also we don’t have the good universal influenza vaccine that will have
+
+而且我们也没有好的通用流感疫苗
+
+to develop year by year
+
+需要逐年研发
+
+because of the quick mutant
+
+因为流感病毒变异很快。
+
+So now SARS 2 combined the quick mutant in the circulation
+
+所以现在SARS 2结合了循环中的快速变异
+
+and also it had side effect from SARS 1
+
+此外，它还具有非典1的副作用。
+
+So how could people quickly overcome these issues in several months
+
+那么，人们如何才能在几个月内迅速克服这些问题呢？
+
+and also we know that SARS 2 actually have a lot of modification
+
+我们也知道SARS 2实际上有很多修改
+
+as the Doctor Fleming also mentioned its bio-weapon, right?
+
+因为弗莱明博士也提到了它的生物武器，对吧？
+
+and I already showed that is an unrestricted bio-weapon
+
+我已经证明了这是一种超限的生物武器
+
+so there are also many hidden functions and this is as ….the protein, …
+
+所以还有很多隐藏的功能，这就是…。蛋白质，…..
+
+there are many things…
+
+有很多事情…
+
+now is OK
+
+现在可以了，声音回来了
+
+So at least, you see now we are using most properly we are using
+
+所以，至少我们现在知道，使用的是
+
+the S protein equipped on as I don’t know Virus- mRNA,
+
+最合适的S蛋白，因为我不知道病毒-mRNA
+
+adaptors deliver to our body
+
+适应体传递到我们的身体上里
+
+I don’t judge the technic, because I didn’t see a lot of technic data released
+
+我不评判技术，因为我没有看到很多mRNA公司
+
+by these mRA companies
+
+发布的技术数据
+
+So we need to exam these when its openly released, more released data
+
+因此，我们需要在公开发布更多数据时对其进行检查，这样我们才能
+
+and we can know more
+
+了解更多信息
+
+But just talk about S protein that whether there is still hidden function inside
+
+但是说到S蛋白，我们还不知道里面是否还有
+
+we don’t know
+
+隐藏的功能
+
+We do see that people get infected and get more communication as we just men-tioned
+
+正如我们刚才提到的，我们确实看到人们感染了病毒，并获得了更多的传播
+
+So at this time if just delivered S protein to our body
+
+所以在这个时候，如果只是把S蛋白送到我们的身体里。
+
+whether it will release some other adverse effect
+
+会不会释放一些其他的不利影响。 、
+
+which is even ignored which may come out not in the short term
+
+它甚至被忽视了，这可能不是在短期内出现的
+
+but as chronic style later in our bodies
+
+而是后来在我们身体里变成慢性疾病形式出现
+
+whether it will induce some problem and which can be triggered later by some oth-er
+
+它是否会引发一些问题，以及以后会不会被其他诱发剂触发
+
+factors when we get vulnerable we don’t know that
+
+当我们变得脆弱时，我们不知道
+
+We just know that we still need more data, animal data, enrichful data and
+
+我们只知道我们还需要更多的数据、动物数据、丰富的数据和
+
+also small human trial data
+
+少量的人体试验数据
+
+This need to be done on very strict surveillance and also a lot people should,
+
+这需要在非常严格的监控下进行，而且大家也应该这样做
+
+I mean scientist should check the data carefully and open discuss it.
+
+我的意思是科学家应该仔细检查数据并公开讨论
+
+We don’t know that we just say the vaccine is given to people
+
+我们不知道我们只是说疫苗是给人接种的
+
+Even when they have some other basic problem
+
+即使他们有其他一些基础疾病问题
+
+Even when they are old I don’t know
+
+即使他们老了，我也不知道
+
+For example in China, they gave some in Hong Kong, in negative or
+
+比如在中国，他们在香港给了一些灭活的或者
+
+in other type of vaccine, like Sino Vaccine,
+
+其他类型的疫苗，比如科兴疫苗
+
+From that company to senior age group
+
+给老年群组使用
+
+I am not sure whether it’s in negative or re-combining
+
+我不确定它是灭活的还是重组的疫苗
+
+Anyway, they gave it to the group over 60 years and that is a special group
+
+不管怎么说，他们给60岁以上的人群提供了疫苗，这是一个特殊的群体
+
+I mean in vaccine development you know that senior people have a lower immunity
+
+我的意思是说，在疫苗开发方面，你们知道的，老年人的免疫力较低
+
+immune response
+
+免疫反应较低
+
+So whether the vaccine work for them has to be done for this specific age popula-tion
+
+因此，疫苗是否适用于这一特定年龄段的人群
+
+for small tr​​ial
+
+需要进行小规模试验
+
+and also because they usually has the diabetes or hypertension or other problems
+
+也因为他们通常有糖尿病或高血压或其他问题
+
+we have to think about whether these condition will affect these vaccines
+
+我们必须考虑这些情况是否会影响这些疫苗
+
+but now it seems that it just come into human and then people see the result
+
+但现在看来，疫苗只是被注射进入人体，然后人们等着看结果
+
+and we even didn’t receive the very clear result
+
+我们甚至没有收到非常明确的结果
+
+although the vaccine has been given for several months, right?
+
+虽然疫苗已经打了几个月了，对吧？
+
+so now, I really feel that it’s hurry to get vaccine and
+
+所以现在，我真的觉得现在太急于接种疫苗
+
+we do encourage the pharmacy to generate more data to show people
+
+我们确实鼓励制药厂商将更多的数据
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频连接: [https://rumble.com/vfy3xf-lethal-deception.html](https://rumble.com/vfy3xf-lethal-deception.html)
+
+英听校:康州盘古农场-WZ
+
+翻译: 康州盘古农场-WZ
+
+翻译终校: 康州盘古农场-Mike Li
+
+字幕+视频制作:康州盘古农场 – 天涯行
+
+审片:康州盘古农场 – 银龙
+
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

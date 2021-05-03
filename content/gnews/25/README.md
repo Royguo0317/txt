@@ -1,44 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 残暴的根源在哪里
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1165619/)
+## 【热点播报】重达21吨的长征第二级整体舱段将完全失控的堕入大气层
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1165728/)
 
-作者：Tang0426 | 校对：文明明 | 审核：Beicy-数学老师 | Page：我是球大哥
-
-[!\[\]()!\[\](https://spark.adobe.com/page/qbBG4ibCZrsK6/images/132f1b84-19f1-46a6-b0d7-e692b411bf1b.jpg?asset_id=380d7e2e-4d69-4246-94d7-5c1dc538c8ac&amp;img_etag=%22855a2d5cacde1375292af22e78dcdfb7%22&amp;size=1024)](https://spark.adobe.com/page/qbBG4ibCZrsK6/images/132f1b84-19f1-46a6-b0d7-e692b411bf1b.jpg?asset_id=380d7e2e-4d69-4246-94d7-5c1dc538c8ac&amp;img_etag=%22855a2d5cacde1375292af22e78dcdfb7%22&amp;size=1024)
-
-中共国党魁习总书记，广西视察时号召：要有“湘江血战”的精神。在他离开的次日，即4月28日广西北流市一幼儿园遭歹徒血洗。在媒体有限的报道中我们得知：16名幼儿、2名教师被砍，死亡人数语嫣不祥。凶徒很快被定性“精神异常”。紧接着4月30日，广西桂平又发生2岁幼童被砍事件。
-
-我循着网络简略查看了一下，从早些年江苏泰兴中心幼儿园砍杀幼儿事件，到“重庆幼儿园14名孩童被一恶妇菜刀砍伤”，再到“云南幼童遭喷剧毒液，50多人受伤”，又至去年6月4日广西梧州市旺浦镇中心小学，近40人被人砍伤，多数是6岁左右的儿童……。真是一看吓一跳，从这有限的资讯里，我们就看到那么多残害儿童的事件。
-
-为何中共国无辜孩童会遭如此残害？似乎，这些施暴者都带着对社会的怨气，但凡正常人都知道，这绝不是把毒手伸向无辜孩童的理由。你可以向强权者、施压者讨要说法，那样世人会同情你、尊敬你。然而，你却堕落到下毒手残害孩童，泯灭人性，必入地狱。这大概是中共国宣传、教育下无信仰的缘故，他们不相信因果报应，才会有如此无视人类底线的行为。
-
-中共国媒体时常引导人们，觉得是这类人的性格缺陷所致，但他们性格缺陷到这等程度，根源是什么呢？
-
-“物竞天择”的丛林法则一直是中共推崇的。所以强者欺小凌弱、官员恣意妄为、医护把赚钱当作首要、校园拔苗助长……。强权与弱小更加分明，弱者除了向强权下跪，就是欺凌更弱小者。
-
-曾经温良、敦厚的中华民族，越来越多地出现反文明、反人类的行为。这正是与中共国体制相吻合。“与天斗、与地斗、与人斗，其乐无穷”把中华民族拖进了苦难的深渊，人与人之间的信任和友爱被猜忌、斗争所替代。而今又重踏老路，倡导“湘江血战”，无非是想蒙骗人民再“抛头颅、再洒热血”来维护他们高高在上的统治地位。
-
-中共七十多年的强权统治，奴役着人民、愚昧着人民，即便成了世界第二大经济体，人民依旧生活在贫弱困苦中，巨量的财富被盗国贼收刮，大量的金钱被拿去服务于他们“赵家”利益的“蓝金黄”、去大撒币。民怨四起，可恨的是，有些民怨不敢跟强权要说法，却将屠刀挥向最天真无辜的孩童。画面中，那流淌鲜血的小脸蛋满是惊恐，受此创伤，他们成人后还会相信这个世界、爱这个世界吗？在缺失爱的世界，最易滋生恨的种子。
-
-由此，我想起一个曾经的少年，因为说了几句反对文革的话，被党以“敌我矛盾”关押。一个大雨夜晚，乘看守松懈，偷跑回家。母亲震惊问道：“你怎么跑回来了？”他说：“妈，我饿。”亲妈没有做饭给他，而是偷跑去组织检举他。少年绝望地冲进了雨夜中……。
-
-曾经的那个少年，而今已是当朝一尊，他不会忘记曾经的苦难，但是却选择将曾经的苦难加倍地砸向今天的中国人民。
-
-愿上天眷顾中华民族！让正义和良善回归，赋予人们抗争强权的勇气和信念，为了世界安宁、为了纯真孩子们的未来，快快让我们消灭中共政权！
-
-[!\[\]()!\[\](https://spark.adobe.com/page/qbBG4ibCZrsK6/images/1a00903b-7c90-4a0b-9e38-3b00af52d937.jpg?asset_id=003d3b2c-331e-4507-a722-8c0ce24af2c2&amp;img_etag=%228e4ad90ee152a9f864519541fda81f07%22&amp;size=1024)](https://spark.adobe.com/page/qbBG4ibCZrsK6/images/1a00903b-7c90-4a0b-9e38-3b00af52d937.jpg?asset_id=003d3b2c-331e-4507-a722-8c0ce24af2c2&amp;img_etag=%228e4ad90ee152a9f864519541fda81f07%22&amp;size=1024)
-
-（文章仅代表个人观点）
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+作者：纽约香草山健身部     Ivy001
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/qbBG4ibCZrsK6/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/qbBG4ibCZrsK6/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-0
+
+
+突发消息：据消息人士透露，重达21吨的长征5B第二级整体舱段，将在未来几天内，以完全失控的方式，堕入地球大气层。这个舱段是属于中共国上周发射的长征5B火箭的一部分。自1990年以来，世界尚没有任何一个超过10吨的太空垃圾，曾以这种毫无控制的方式堕入地球大气层。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02201153/91.jpg)图源网络
+
+类似这种大型的太空垃圾，国际的通常做法是：受控制的脱离轨道，并且坠落入“尼莫点”（一个南太平洋的无人居住区域，距离世界陆地最远的一片海域，又称作“航天器的坟墓”）。选择此海域是因为它地处偏远，交通量有限，可以避免任何坠落残骸的碎片危及人类生命安全。美国、欧洲、俄罗斯、日本航天局，包括中共国以前的一些大型太空垃圾，都是这样处理的。
+
+这次，中共国任由大型太空垃圾毫无控制地坠入大气层、坠落地球，这是极其不负责的行为，希望不至于造成太大伤害。由此可见，一个不负责任的政府，对世界的危害是巨大而不可捉摸的。
+
+CCP真是全人类的公敌，必须消灭CCP！
+
+参考阅读：
+
+[Disclose.tv’s tweet](https://mobile.twitter.com/disclosetv/status/1388897055423279106?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Etweet)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
++3
