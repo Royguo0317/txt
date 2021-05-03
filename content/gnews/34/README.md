@@ -1,35 +1,93 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 布林肯称中共在海外的行为更加咄咄逼人
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1165846/)
+## 【香草诗词汇】洗VS喜
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1166048/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：纽约香草山健身部 回响
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/05/B-1.jpg)nasdaq.com
-路透社报道，美国国务卿布林肯(Antony Blinken)在周日播出的一次采访中表示，中共最近在海外表现得“更加咄咄逼人”，而且“敌对态度越来越强”。
 
-在被哥伦比亚广播公司(CBS)的“60分钟”(60 Minutes)节目问及华盛顿是否正走向与北京的军事对抗时，布林肯说，“达到这个地步，甚至朝着那个方向前进，都严重违背中美两国的利益。”
 
-他补充称，“过去几年，我们看到的是，中共在国内表现得更强势，在海外表现得更咄咄逼人。这是事实。”
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
 
-在被问及有关中共窃取数千亿美元或更多美国商业机密和知识产权的报道时，布林肯表示，拜登政府对知识产权问题感到“切实关切”。
 
-他说，这听起来像是“某人试图以越来越敌对的方式进行不公平竞争。但如果我们把志同道合、同样愤愤不平的国家召集到一起，对北京方面说：‘这不能容忍，也不会容忍。’我们会更有效、更强大。”
 
-中共国驻华盛顿大使馆周日没有立即回应对布林肯采访的置评请求。
+一个俨然不可一世的组织
 
-布林肯于周日抵达伦敦参加七国集团外长会议，中共是会议议程之一。
+被世人称为洗洗屁
 
-布林肯在采访中说，美国的目的不是“遏制中共”，而是“维护基于规则的秩序——中共正在对其构成挑战。”任何对这种秩序提出挑战的，我们都将挺身而出，我们要捍卫它。”
+洗——
 
-拜登将与中共的竞争视为他的政府最大的外交政策挑战。在上周三向国会发表的首次演讲中，他承诺美国将在印度洋-太平洋地区保持强大的军事存在，并推动美国的技术发展。
+是越来越多人知道
 
-上个月，布林肯说，美国担心中共对台湾的侵略行动，并警告说，任何试图用武力改变西太平洋现状的都将是一个“严重的错误”。布林肯说，美国根据《台湾关系法》做出了长期承诺，确保自治的台湾有能力自卫并维持西太平洋地区的和平与安全。
+幕后的欺骗、蛊惑、邪恶、无耻
 
-参考链接:
+它正在走向消亡的不归路
 
-[https://www.reuters.com/world/china/blinken-says-china-acting-more-aggressively-abroad-60-minutes-interview-2021-05-02/](https://www.reuters.com/world/china/blinken-says-china-acting-more-aggressively-abroad-60-minutes-interview-2021-05-02/)
+伴着亿万良知的鄙视和唾弃
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02224041/93.jpg)图片来源：HIMALAYA EXCHANGE官网
+
+2021年4月21日
+
+一个金融界的新生儿来到人世
+
+名叫喜币
+
+喜——
+
+是会当凌绝顶的高高屹立
+
+喜——
+
+是亿万战友从前不可能的财富开始
+
+喜——
+
+是顺时应势的华夏奇迹
+
+喜——
+
+是亿万炎黄的未来
+
+喜——
+
+是爆料革命新中国联邦的信誉
+
+喜——
+
+是文贵先生的大智大勇大爱
+
+喜币
+
+更是洗洗屁烟消云散的大杀器！
+
+恭喜
+
+恭喜
+
+（本文仅代表作者观点）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01143151/M5.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+
 
 +1

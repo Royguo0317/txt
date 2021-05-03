@@ -1,280 +1,123 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士谈论疫苗的安全性
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1162772/)
+## 闫博士谈E蛋白帮助病毒维持神经毒性
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1166219/)
 
-**内容：**
+字幕内容：
 
-**闫丽梦博士：**
+闫丽梦博士：
 
-I do have my concern about the vaccine now.
+So what I want to comment on it,
 
-我现在确实对疫苗感到担忧
+对于这一点，我想说的是
 
-And the first thing is
+I am not neurologist, I just have the medical knowledge about neurology disease.
 
-第一件事是
+我不是神经科医生，我只是有神经科疾病的医学知识
 
-I kept telling people there no real effective vaccines against the pandemic
+But what I have pointed in my third report and also in my first report, I can use it as smoking gun.
 
-我一直告诉人们没有真正有效的疫苗来对抗这种大流行
+但正如我在第三份报告和第一份报告中指出的那样，我可以把它当作确凿的证据
 
-So there are some reasons very simple the people can understand the vaccine
+is envelop protein, E protein, in SARS-Covid 2,
 
-所以有一些很简单的原因，让人们可以理解疫苗
+就是E蛋白，SARS-Covid 2中的E蛋白
 
-The first thing is this virus SARS Covid-2 is basically the bigger version, enhanced version of SARS 1,
+it’s hundred percent identical as it as the back born, Zhou Shan Conoravirus
 
-首先，这种SARS Covid-2病毒基本上是SARS一号的增强版本，
+可以100%完全确认SARS-Covid 2使用舟山蝙蝠冠状病毒作为骨架
 
-And we never have such vaccine, because of the nature, I am not
+First, this is the evidence. It comes from the Zhou Shan bat conoravirus, which is somehow, completely cab into SARS Covid 2.
 
-我们从来没有研究出过这样的疫苗，因为自然界的原因，我并
+首先，这是证据。该E蛋白来自舟山蝙蝠冠状病毒，不知何故，它完全被发现在SARS Covid 2 病毒里
 
-anti vaccine I worked on universal influenza vaccine
+Because if it is going through the spices that’s a kind of host changing, jump from bat to animal to animal to human
 
-不反对疫苗，我本身也是做流感疫苗的研究方面的工作
+因为如果它经过物种间传代，那就是一种从蝙蝠到动物再到动物再到人类的宿主
 
-I have my patent on pending,
+definitely, that we would see the change, because they already observed the change
 
-我有申请中的疫苗专利
+当然，我们会看到这种变化，因为他们在人类大流行最早的时候
 
-I know, I just know how to develop vaccine in a proper way try to in a proper way, right?
+during the earliest the pandemic in human.
 
-我知道，我只是知道如何以适当的方式开发疫苗，对吗？
+就已经观察到了这种变化
 
-So this SARS Covid 2, it likes SARS 1, we don’t have vaccine because of the
+And second thing is why do they keep it, because this is smoking gun,
 
-所以这个SARS Covid 2，它就像SARS 1，我们没有疫苗，因为
+第二个问题是，中共为什么要对此守口如瓶，因为它是确凿证据
 
-side effect contains
+since I write this problem from last year 19th January, with Youtube.
 
-副作用的因素
+因为我在去年1月19日用YouTube写了这个问题
 
-Likes as allergy or antibody dependent enhancement
+China had done a quickly get response and later they even locked down.
 
-像过敏或抗体依赖性增强的
+中共很快就做出了反应，后来他们甚至封锁了E蛋白的信息
 
-and also we don’t have the good universal influenza vaccine that will have
+Because they know someone released the real information of this bio-weapon.
 
-而且我们也没有好的通用流感疫苗
+因为他们知道内部有人泄露了这种生物武器的真实机密
 
-to develop year by year
+But why until now, no scientist there to touch this E protein issue to argue with me.
 
-需要逐年研发
+但是为什么到目前为止，还没有科学家触及到这个E蛋白的问题，他们也没有来和我争论这个E蛋白的问题？
 
-because of the quick mutant
+And even Shi Zhengli, and their like the Chinese Military Academy,
 
-因为流感病毒变异很快。
+就连shizhengli, 像那些中国军事医学院的学者们
 
-So now SARS 2 combined the quick mutant in the circulation
+they have developed a lot of novel fabricated too naughty virus, including from bat from Pangolins,
 
-所以现在SARS 2结合了循环中的快速变异
+他们已经合成出了很多新奇的病毒，包括从蝙蝠身上，从穿山甲身上，
 
-and also it had side effect from SARS 1
+which all have the identical E protein in those fabricated sequence.
 
-此外，它还具有非典1的副作用。
+它们在构建的序列中都有相同的E蛋白。
 
-So how could people quickly overcome these issues in several months
+What do they want to hide?
 
-那么，人们如何才能在几个月内迅速克服这些问题呢？
+他们想隐瞒什么？
 
-and also we know that SARS 2 actually have a lot of modification
+Then lets we back to check E protein’s function.
 
-我们也知道SARS 2实际上有很多修改
+然后我们再回来检查一下E蛋白的功能
 
-as the Doctor Fleming also mentioned its bio-weapon, right?
+Yes it ‘s not clearly investigated , but we know it’s important for virus fabrication
 
-因为弗莱明博士也提到了它的生物武器，对吧？
+是的，它还没有得到明确的调查，但我们知道它对病毒的合成至关重要
 
-and I already showed that is an unrestricted bio-weapon
+as some other important part in the Coronavirus
 
-我已经证明了这是一种超限的生物武器
+作为冠状病毒的其他重要组成部分
 
-so there are also many hidden functions and this is as ….the protein, …
+But it’s also have another function what
 
-所以还有很多隐藏的功能，这就是…。蛋白质，…..
+但是它还有另外一个功能，那就是
 
-there are many things…
+discovered and actually my ex-lab in the University of Hong Kong,
 
-有很多事情…
+在我之前工作的香港大学的实验室
 
-now is OK
+it’s the lab get involve to discover is E protein can have the virus
 
-现在可以了，声音回来了
+发现这种E蛋白可以帮助病毒
 
-So at least, you see now we are using most properly we are using
+help the virus maintain the neuronal toxicity
 
-所以，至少我们现在知道，使用的是
+帮助病毒保持其神经毒性
 
-the S protein equipped on as I don’t know Virus- mRNA,
-
-最合适的S蛋白，因为我不知道病毒-mRNA
-
-adaptors deliver to our body
-
-适应体传递到我们的身体上里
-
-I don’t judge the technic, because I didn’t see a lot of technic data released
-
-我不评判技术，因为我没有看到很多mRNA公司
-
-by these mRA companies
-
-发布的技术数据
-
-So we need to exam these when its openly released, more released data
-
-因此，我们需要在公开发布更多数据时对其进行检查，这样我们才能
-
-and we can know more
-
-了解更多信息
-
-But just talk about S protein that whether there is still hidden function inside
-
-但是说到S蛋白，我们还不知道里面是否还有
-
-we don’t know
-
-隐藏的功能
-
-We do see that people get infected and get more communication as we just men-tioned
-
-正如我们刚才提到的，我们确实看到人们感染了病毒，并获得了更多的传播
-
-So at this time if just delivered S protein to our body
-
-所以在这个时候，如果只是把S蛋白送到我们的身体里。
-
-whether it will release some other adverse effect
-
-会不会释放一些其他的不利影响。 、
-
-which is even ignored which may come out not in the short term
-
-它甚至被忽视了，这可能不是在短期内出现的
-
-but as chronic style later in our bodies
-
-而是后来在我们身体里变成慢性疾病形式出现
-
-whether it will induce some problem and which can be triggered later by some oth-er
-
-它是否会引发一些问题，以及以后会不会被其他诱发剂触发
-
-factors when we get vulnerable we don’t know that
-
-当我们变得脆弱时，我们不知道
-
-We just know that we still need more data, animal data, enrichful data and
-
-我们只知道我们还需要更多的数据、动物数据、丰富的数据和
-
-also small human trial data
-
-少量的人体试验数据
-
-This need to be done on very strict surveillance and also a lot people should,
-
-这需要在非常严格的监控下进行，而且大家也应该这样做
-
-I mean scientist should check the data carefully and open discuss it.
-
-我的意思是科学家应该仔细检查数据并公开讨论
-
-We don’t know that we just say the vaccine is given to people
-
-我们不知道我们只是说疫苗是给人接种的
-
-Even when they have some other basic problem
-
-即使他们有其他一些基础疾病问题
-
-Even when they are old I don’t know
-
-即使他们老了，我也不知道
-
-For example in China, they gave some in Hong Kong, in negative or
-
-比如在中国，他们在香港给了一些灭活的或者
-
-in other type of vaccine, like Sino Vaccine,
-
-其他类型的疫苗，比如科兴疫苗
-
-From that company to senior age group
-
-给老年群组使用
-
-I am not sure whether it’s in negative or re-combining
-
-我不确定它是灭活的还是重组的疫苗
-
-Anyway, they gave it to the group over 60 years and that is a special group
-
-不管怎么说，他们给60岁以上的人群提供了疫苗，这是一个特殊的群体
-
-I mean in vaccine development you know that senior people have a lower immunity
-
-我的意思是说，在疫苗开发方面，你们知道的，老年人的免疫力较低
-
-immune response
-
-免疫反应较低
-
-So whether the vaccine work for them has to be done for this specific age popula-tion
-
-因此，疫苗是否适用于这一特定年龄段的人群
-
-for small tr​​ial
-
-需要进行小规模试验
-
-and also because they usually has the diabetes or hypertension or other problems
-
-也因为他们通常有糖尿病或高血压或其他问题
-
-we have to think about whether these condition will affect these vaccines
-
-我们必须考虑这些情况是否会影响这些疫苗
-
-but now it seems that it just come into human and then people see the result
-
-但现在看来，疫苗只是被注射进入人体，然后人们等着看结果
-
-and we even didn’t receive the very clear result
-
-我们甚至没有收到非常明确的结果
-
-although the vaccine has been given for several months, right?
-
-虽然疫苗已经打了几个月了，对吧？
-
-so now, I really feel that it’s hurry to get vaccine and
-
-所以现在，我真的觉得现在太急于接种疫苗
-
-we do encourage the pharmacy to generate more data to show people
-
-我们确实鼓励制药厂商将更多的数据
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
 原视频连接: [https://rumble.com/vfy3xf-lethal-deception.html](https://rumble.com/vfy3xf-lethal-deception.html)
 
 英听校:康州盘古农场-WZ
-
 翻译: 康州盘古农场-WZ
-
 翻译终校: 康州盘古农场-Mike Li
-
-字幕+视频制作:康州盘古农场 – 天涯行
-
-审片:康州盘古农场 – 银龙
-
-发布：康州盘古农场 – 彩虹 Rainbow
+字幕+视频制作:康州盘古农场-天涯行
+审片: 康州盘古农场-银龙
+发布：康州盘古农场-文韵
 [!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
 康州盘古农场欢迎您加入:(或点击上方图片）
 
