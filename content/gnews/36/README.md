@@ -1,54 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【商见你我他】美国经济——繁荣下的阴影
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1167583/)
+## 【热点播报】欧中投资协议被暂停
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1167774/)
 
-五月花写作组 | 商业部：无米之炊 | 编辑：文合 | 美工：灭共小宇宙 | 发稿：jamie(文胤)
+作者：纽约香草山健身部Jack Li文阳
 
-自从2020年CCP病毒疫情在全球范围内爆发，世界的经济受到了史无前例的重创。2021年，随着美国联邦政府一揽子的财政救助和刺激计划的出台，以及越来越多人接种了新冠疫苗， 美国经济的复苏被注入了一针强心剂。 据CNBC近日报道，美国不仅第一季度的GDP增长率有望大于7%,  4月份更是已经连续两周失业救济金的申请数少于60万例。美国的经济已经走出疫情的重创？还是这一切只是表面的繁荣？
-
-我们首先关注劳动力市场。福克斯新闻4月24日报道，由于疫情期间的失业福利还在继续，全国范围内的大量餐馆面临无法招募到员工的困境，很多餐馆不得不用现金，或雇佣高中生来维持生意。除了餐馆，很多大量雇佣廉价劳动力的商家都面临同样的困境，比如园艺公司，清洁公司等。与此同时，大量媒体报道每月新增的就业机会正以几十万的数目增加。一方面是大量失业人口，另一方面是商家无人可雇，为什么会有这种矛盾的现象？
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03103705/Picture1-7.jpg)图片来源：CNBC
-
-据路透社报道，2020年的疫情令美国失去了近两千两百万个就业岗位, 其中56%是低收入行业的工作。目前这些失业人口中只有少部分人在寻找工作。三月底人口普查局的一项调查显示，因自己或家人生病的原因，导致约有两百六十万的人没有寻找工作，有四百六十万人为了避免感染上病毒而拒绝去工作，还有百万计的人因为要照顾孩子不得不放弃工作。这些原因使得现在和疫情前相比，可劳动的人口减少了约五百万。此外，政府的失业保险福利和救助支票让低收入行业的人员更愿意在家领取失业金，而不愿继续工作。这无疑进一步加剧了目前商家无人可雇的局面。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03103718/Picture2-2.jpg)图片来源：flipboard.com
-
-另一个受疫情影响颇深的领域是芯片供应链。据雅虎财经报道，芯片的短缺已经对169个行业产生了影响。个人电子产品行业、汽车、机械行业都在竭尽全力争取买到足够的芯片来维持产品生产。福克斯新闻4月26日报道，通用汽车主席罗伊斯称：”这次的芯片供应链危机是他职业生涯中见过的汽车制造业里最大的危机”。目前通用汽车减少了旗下几乎所有汽车和小型SUV的生产，来保证有盈利空间的卡车生产所需的芯片。电视、个人电子产品的生产也面临同样的困境。疫情引发的居家办公和上学潮，极大的促进了电视、电脑、手机、显示屏和其他电子产品的销售。苹果的执行总监Tim Cook告诉路透社：苹果没有足够的芯片用于新手机的生产。令人担忧的是，芯片短缺的状况并不能在短时间内解决，这种状况可能要持续到今年年底或明年才会好转。而造成这次大范围的芯片短缺的原因除了疫情造成的芯片生产商停工减产、及对个人电子产品需求的激增外，还有半导体供应链自身结构的问题，以及中美贸易战的因素。半导体行业大部分公司为了利益最大化，已经不再自主生产芯片，而是将生产外包给台积电、三星等企业。而2019，2020年内存芯片价格的下调也让很多厂商减少了它们的产量。疫情期间激增的订单令这些企业即使开足马力也不能满足需求。由于川普政府对中国芯片企业开出了禁令，很多企业，如华为、本田，很早就囤积了大量的芯片以备不时之需，这进一步加剧了芯片的短缺。汽车行业使用的芯片和电子产品并不相同。由于疫情初期汽车销售的休克，让汽车生产商砍掉了他们的芯片订单，当他们后续意识到要采购大量芯片进行生产的时候，汽车芯片的生产早已被供不上货的个人电子产品企业垄断了。尽管芯片的短缺令生产商深受折磨，但经销商却因此赚的盆满钵满。
-
-因短缺造成的强劲销售，是昙花一现的通胀？还是经济回暖？相信大家都有自己的判断。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03103640/Picture3-2.jpg)图片来源：Yahoo Finance
-
-失之东隅， 收之桑榆。UPS联合包裹服务公司，是在疫情期间受益的公司之一。电子商务行业在疫情期间蓬勃发展。UPS称他们每日的运输量在疫情期间增长了14%，去年的收益为47.9亿美金，较2019年增长了400%。此外，UPS还在疫情期间为世界各国运输CCP病毒疫苗。该公司称，目前为止他们已经运送了1亿9千6百万剂疫苗。其他全球知名物流公司，如Fedex, DHL等，也在疫情中表现亮眼。
-
-劳动力不足，通货膨胀与通货滞涨并存。美国的经济是福是祸，我们拭目以待。
-
-参考来源：
-
-1. [https://www.ilo.org/global/topics/coronavirus/impacts-and-responses/WCMS\_767028/lang–en/index.htm](https://www.ilo.org/global/topics/coronavirus/impacts-and-responses/WCMS_767028/lang--en/index.htm)
-2. [https://www.cnbc.com/2021/01/12/hiring-for-these-jobs-is-on-the-rise-in-2021-according-to-linkedin.html](https://www.cnbc.com/2021/01/12/hiring-for-these-jobs-is-on-the-rise-in-2021-according-to-linkedin.html)
-3. [https://www.cnbc.com/2021/04/22/the-labor-market-is-starting-to-rip-as-fewer-seek-unemployment-benefits.html](https://www.cnbc.com/2021/04/22/the-labor-market-is-starting-to-rip-as-fewer-seek-unemployment-benefits.html)
-4. [https://www.wsj.com/articles/the-job-market-is-tighter-than-you-think-11619006400](https://www.wsj.com/articles/the-job-market-is-tighter-than-you-think-11619006400)
-5. [https://www.foxbusiness.com/lifestyle/restaurants-nationwide-struggle-to-find-workers](https://www.foxbusiness.com/lifestyle/restaurants-nationwide-struggle-to-find-workers)
-6. [https://www.reuters.com/article/us-usa-economy/u-s-economy-loses-jobs-as-covid-19-hammers-restaurants-bars-idUSKBN29D0J9](https://www.reuters.com/article/us-usa-economy/u-s-economy-loses-jobs-as-covid-19-hammers-restaurants-bars-idUSKBN29D0J9)
-7. https://www.cbpp.org/research/poverty-and-inequality/tracking-the-covid-19-recessions-effects-on-food-housing-and
-8. [https://cn.reuters.com/article/usa-economy-job-poll-0213-idCNKBS2AD01H](https://cn.reuters.com/article/usa-economy-job-poll-0213-idCNKBS2AD01H)
-9. [https://www.foxbusiness.com/lifestyle/gm-president-ruess-chip-shortage-auto](https://www.foxbusiness.com/lifestyle/gm-president-ruess-chip-shortage-auto)
-10. [https://www.theguardian.com/business/2021/mar/21/global-shortage-in-computer-chips-reaches-crisis-point](https://www.theguardian.com/business/2021/mar/21/global-shortage-in-computer-chips-reaches-crisis-point)
-11. [https://www.cnbc.com/2021/02/10/whats-causing-the-chip-shortage-affecting-ps5-cars-and-more.html](https://www.cnbc.com/2021/02/10/whats-causing-the-chip-shortage-affecting-ps5-cars-and-more.html)
-12. [https://www.foxbusiness.com/economy/small-business-demand-ups-profit-revenue-q1](https://www.foxbusiness.com/economy/small-business-demand-ups-profit-revenue-q1)
-13. https://www.cnbc.com/2020/09/15/fedex-revenue-jumps-as-pandemic-drives-e-commerce-bounce.html
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
 
-* * *
 
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+据报道，尽管新疆人权问题导致欧盟与中共国关系交恶，导致双方相互制裁，但德国总理默克尔仍然企图促成欧中投资协议。不过，欧盟国家反对的声音日益加大，使协议在欧盟议会上面临失败。
 
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03123934/%E5%9B%BE%E7%89%8755.png)
 
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+2020年，由于德国总理默克尔和法国总统马克龙当值欧盟委员会的时候，中共国乘机与欧盟签订签署欧中投资协议，但该协议还需得到欧盟议会的批准。这一关目前不容易通过。因为多位欧盟议员在本周警告，只要中共国继续制裁五位欧盟议员，禁止其入境，他们就不会投票同意通过欧中投资协议。
 
-0
+根据目前局势，欧中投资协议是否还合时宜，成为各方的关注点。前不久，在欧中关系日益恶化的背景下，德国和中共国政府总理举行磋商会议，默克尔明显在为四面楚歌的中共国站台，相信探讨如何促成欧中投资协议也是会议的一大议题。
+
+新疆人权问题引发的制裁冲突，使该协议在欧盟议会搁浅。现在欧盟议会在部分议员受到中共国制裁的情况下，批准该协议显然几无可能。反过来，在习近平外交思想指引下，在国际上横冲直撞的中共，绝无可能撤回对欧盟的反制裁。所以，欧中投资协议近期内可能根本就不会进入欧盟议会的议事日程。另外，一些保护欧洲企业，使其不被有国家补贴的外国企业吞并的法律，正在欧盟委员会制定中。欧中气氛显然还将持续冷淡，这将使欧中投资协议雪上加霜，更加难产。
+
+欧中投资协议，明显就是一份中共扩张欧洲，以开放中共国市场为利益引诱，企图获取欧洲资金和技术以及吞并欧洲企业的协议。马克龙和默克尔以为可以暗渡陈仓，偷梁换柱，暗中协助中共在欧盟埋下巨雷。根据此协议，欧盟国家可能在短期内得到一些经济上的好处，在中共病毒疫情之下，稍纾眼下之困。但与一个毫无信用、满口谎言的无赖邪恶政权签订的任何协议，都是出卖自己的卖身契。长远来看，欧洲将失去质优企业、技术优势和政治的独立性，一句话，就是失去未来。
+
+参考阅读：
+
+[https://www.rfi.fr/cn/%E6%94%BF%E6%B2%BB/20210502%E6%AC%A7%E4%B8%AD%E6%8A%95%E8%B5%84%E5%8D%8F%E8%AE%AE%E6%9A%82%E6%97%B6%E6%90%81%E6%B5%85](https://www.rfi.fr/cn/%E6%94%BF%E6%B2%BB/20210502-%E6%AC%A7%E4%B8%AD%E6%8A%95%E8%B5%84%E5%8D%8F%E8%AE%AE%E6%9A%82%E6%97%B6%E6%90%81%E6%B5%85)
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++1

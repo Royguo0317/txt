@@ -1,57 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【呐喊】浅谈“禅”
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1166904/)
+## 美国的大战是在2022年&nbsp; 两位副总统都不是省油的灯
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1168118/)
 
-作者：纽约香草山佛教部  无执
+**摘要：在2021年4月30日的盖特视频中，郭先生说：“美国的大战是在2022年”，“两个副总统都不是省油的灯”，还说：“我们最好的结局就需要他们这样，2022年美国的所有所谓的保守派，还有所谓的亲共派来一场大对决”。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03143813/Miles_20210430-getter3.srt-1.txt)
+**美国的大战是在****2022****年**
 
+**America’s Big War Will Be in 2022**
 
+朱利安尼现在这种强势反击多好啊？美国的大战是在2022年。「大家」记住：只有郭文贵说过两个副总统都不是省油的灯。我再告诉大家：我们最好的结局就需要他们这样，2022年美国的所有所谓的保守派，还有所谓的亲共派「来」一场大对决。对决完以后在国会山、白宫、然后美国整个媒体，精英界彻底醒过来，包括在美国底层的老百姓知道共产党是他们的威胁。病毒只有找解药，然后要找原因、找元凶。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
+How great is this strong counterattack that Giuliani is having now! America’s big war will be in 2022. Remember only Miles Guo said neither of the two vice-presidents is easy to deal with. I can also tell you that our best outcome requires a big contest between the so-called conservatives and the so-called pro-communist in the United States in 2022. After the contest, the Capitol Hill, the White House, then the entire American media and the elite circle will wake up completely. The grass roots of America will realize that the Communist Party is a threat to them. The only solution to the virus is to find the antidote, then to find the cause and the culprit.
 
+看看共产党找那些小国家，二、三十个国家，五、六十个国家，我在一年前就说了，半年前就说：这是它的战略，「共产党」还想动联合国呢？联合国在纽约，美国认你联合国就认；不认「联合国」连个屁都不是，连个橡皮图章都不是，是不是？2022年当真正的美国，美国国家主义，美国的保守派和美国真正的灭共派站起来的时候，联合国「还有」所有世界上的国际组织都将重新改组，因为被共产党渗透得太厉害了。
 
+Look at those small countries, the 20 or 30 countries, the 50 or 60 countries that the CCP found [to ally with]. I said a year or half a year ago, that this is their strategy. [The CCP] wanted to play the UN card? The [Headquarter of the] UN is in New York. If America recognizes you [the UN], you are the UN; otherwise, the UN is nothing, not even a rubber stamp, right? In 2022, when the real United States [spirit], the American nationalists, the American conservatives and the real anti-CCP groups of the United States stand up, the UN and all international organizations in the world will be restructured because they have been infiltrated too much by the CCP.
 
-禅是梵语“禅那（nuo）”的略称，义译为静虑，是制心一处、思维观修之义。禅，也是“禅定”的略称。“禅定”一语是梵语“禅那”的略称，是由“禅”和梵语“三摩地”意译（略译“三昧”）的“定”的梵汉结合而成。“禅”是汉语中的外来语。“禅那”和“三摩地”都是印度各宗教所通用的术语。禅定还有瑜珈、止观等不一样的名称。由禅引申出来相关联的禅语是很多的，诸如：禅观、禅定、禅心、禅意、禅味、禅风、禅机、禅悟，以至禅诗、禅画等等。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/608c3c144486aa0bb231b863](https://gtv.org/getter/608c3c144486aa0bb231b863) (8:01-9:25)
+鸣谢：感谢 Antsee-GTV、TING GUO 提供中文文本于 [https://www.gnews.org/zh-hans/1159960/](https://www.gnews.org/zh-hans/1159960/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045411/2021.05.03w.jpg)图源网络
+* * *
 
-自从六祖慧能顿悟成就后，禅宗在中国一直有着深远的影响。如今，“禅”也走进了普通人的生活。因此，有些和“禅”、禅宗有关的基础知识，人们还是应该有所了解。
+翻译：【雷鸣（文鸣）】字幕：【JennyL】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-在很多人看来，佛即是禅，禅即是佛。佛，是梵语，翻译过来是觉者、觉悟的人。禅，字义十分抽象。按照《俱舍论》上说，禅是一种可以令人平服个人内心干扰和外界引诱的侵袭，使精神集中于被限定的体察对象，实现由痴而智，由“污染”而“清净”的转变，进行“正审思虑”、“心注一境”。因此，佛与禅是有区别的，佛是从此岸世界到彼岸世界的人，而禅则是我们可以从此岸世界到彼岸世界的重要途径、方法。
-
-另外，“禅坐”指僧侣端坐静修。《六祖坛经》云：“内见自性不动为禅。外于一切善恶境界，心念不起为坐。”而静坐则是我们普通人一种修身养心的方法，通过排除思虑、闭目安坐，达到疏通经络、调理脏腑、舒缓压力、增强幸福感的目的。在形式上，禅坐和静坐虽有相似之处，并且所达到的有利于身心健康的效果也有重叠，但静坐毕竟是世间法，无法达到佛教提倡我们都应该努力达到的解脱，不得证悟到菩提。从包含与被包含的关系来看，静坐未必包含禅坐，而禅坐一定包含静坐。静坐与禅坐的关系，也体现着佛法，即出世法不离世间法，世间法觉悟即是出世间法，世间万物都不能独立存在。佛教中的禅坐以在“悟”，而达到明心见性。如果禅坐不为见自性，则和世间普通的静坐就没有差别了。
-
-禅宗讲究见性成佛。但是，禅宗并非是任何人都适合修学的。正如中国禅门巨匠虚云大师所云：“禅宗虽一超直入，非上根利智不能修。”很多人也都如同虚云大师的一位弟子一样，会请教师父、大德：“我是否适合修习禅宗”。而虚云大师回答弟子的答案，希望能对大家有所帮助。他说：“汝自审，果能处烦恼而不乱，住禅定而不寂，则可以参禅；若未能做到，则当一心念佛。”
-
-对于没有修过禅的人，很难理解禅的内容。就像一个从未看过、吃过释迦果的人，无论你如何形容释迦果的颜色、形状、味道，他都无法领会，除非他亲自去品尝。对于尚未进入禅门的人，禅是不能用语言文字来说明的东西，也无法依靠语言文字的说明来了解它，但语言文字却能引导或指示初学者如何去亲自体验它。因为禅的经验就是，“如人饮水，冷暖自知”，要靠自己品味。
-
-其实，禅宗也好，净土宗、密宗也好，都是佛教菩提树上的一枝，最后都可以令如法修持的人成就。能够按照自身的情况，不盲目自大，正确地选择一条学佛之路，才是具备了学佛最基本的智慧，才有了成佛的基础。
-
-（本文仅代表作者观点）
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-
-编辑：369文驹
-
-校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-
-
-0
++2
