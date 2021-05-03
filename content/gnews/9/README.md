@@ -1,27 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【各抒己见】五一劳动节，别再祝我快乐，我一点都不开心
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1167308/)
+## CNN民意调查显示，70％的共和党人不认为拜登通过合法手段赢得选举
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1167325/)
 
-作者：喜马拉雅东京樱花团 /盐和光
+- **作者：the world**
 
-![](https://lh5.googleusercontent.com/MyMd_3-4PWabxwDNfJ-Oa2iZFFwbzh5hz-WmibHcfyxE6etdJfa6JgVj36gtF_s-fvNHY21PnkC5V3iLycc0B622rji4lOJxzFgVO_8S18U4KUG2Cc550v4Zkwv59OUuDHtdDh8E)
 
-劳动只是为了活着，不存在光荣一说，也不快乐，谁说劳动快乐谁来试试吧！
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-当劳动者的薪水只能够糊自己的口而养不起家，那么劳动者就连动物都不如！因为，世上所有动物的劳动所得不但可以喂饱自己，还可以喂饱自己的孩子。
+**西班牙2021年5月3日电/西喜社——**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03083720/cnn.png)**图片来源：**@donie/Twitter
+CNN的一项民意调查肯定会激怒CNN自己，高达70％的共和党人认为乔·拜登没有合法地赢得2020年大选。CNN记者奥沙利文周日对民意调查结果表示遗憾，称其“十分震惊”。
 
-当劳动者用尽他毕生的劳动也买不起一个安身立命遮风避雨的窝，那么劳动者就连小小的麻雀都不如！因为，小小的麻雀用自己一生劳动成果的千份之一，就能做到为自己搭建起一家人所能享受的安乐窝。
+奥沙利文继续抨击亚利桑那州的选举审计是“荒谬的”，只会给川普的支持者一种“错误的希望感”。
 
-当劳动者的劳动所得比动物的劳动所得都不如时，说人的劳动是光荣的，就是在侮辱劳动者！
+CNN的调查是在上周对1,004名成年人进行的全国抽样调查，抽样误差为±3.6％。
 
-![](https://lh5.googleusercontent.com/jCEtjgKLIFEnYQc_ZvFevP7TYNiJF7W6aLvVDQESvWMOIZ50gC61LRfSM0jEsF7LxP8Jo-7HT35KG-Hm0iMX2_kHGe5x2Vo2Ud72SYZOyrWiQPrJyt_Cpza8OGbiUkXdw64LqSru)
+不难看出为什么共和党人不认为他是合法的，特别是在民主党人声称他赢得了8100万张选票时，这是总统在美国历史上获得过的最多选票。
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
+一位川普的支持者告诉CNN：“我对试图掩埋真相的做法和选举欺诈感到失望，” “真相现在正在亚利桑那州水落石出，这将成为重现真相。我不知道会发生什么，但我知道的是，一个县里只有这么多选民可以投票，而选民远远超过了这个数字，这明显违反常识。”
 
-*校对：喜马拉雅东京樱花团 / 待命（文晓）*
-*责任编辑：喜马拉雅东京樱花团 / 文小白*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01183841/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
-+1
+**评论：民主党将这次审计描述为无理取闹的儿戏。美国左派媒体更是将有关共和党人的所有新闻统统和“白人种族主义”联系在一起。如果这次审计真的没有意义，那么为什么民主党人感到有必要派出73名律师和六名法官来尝试停止审计？这些可不是有利于让美国人民信他们合法地赢得了选举的举措。他们这样做是不是为了阻止真相被人们所知晓。不管审计结果如何，美国人民有权调查在这次选举中出现的所有可疑的，作弊的行为。如果美国的总统选举都不能公平公正公开的话，那将是对自由世界的一次重大打击。中国共产党的邪恶目标也将得以实现。我们应该支持对2020年总统选举的调查。**
+
+**素材＋翻译＋评论：the World**
+
+**审核： Jenny Ball；校对：阿伯塔；发稿：阿伯塔**
+
+**素材来源：[InfoWars](https://www.infowars.com/posts/cnn-poll-finds-70-of-republicans-dont-think-biden-legitimately-won-election/)**
+
+[**欢迎加入西班牙巴塞罗那喜悦农场**](https://discord.com/invite/WPy8Qp7)
+
+0
