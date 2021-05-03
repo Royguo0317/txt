@@ -1,38 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲正在审查中共国在达尔文港的所有权
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1167204/)
+## 2021年5月2日 郭先生直播：国际国内局势的选择，大多是“一本道”
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1167274/)
 
-翻译与评论：Shirley
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03072650/darwen.jpg)网络图片
-澳洲国防部长达顿（Peter Dutton）证实，他的部门正在审查一家中共国公司在达尔文港的所有权问题。达尔文港是一个位于澳洲最北端的、具有战略意义的、有美国海军陆战队基地的港口。
+【日本东京方舟农场】作者：石桥李次郎   校对：文小律
 
-达顿在周日晚些时候接受《悉尼先驱晨报》采访时说，总理莫里森内阁的国家安全委员会已要求国防部就达尔文港所有权提供建议。当被问及政府是否在酝酿强制撤资时，他说，政府会考虑国家利益。
+围棋用语“一本道”，指己方和对手在行棋时只此一手，别无选择。
 
-澳洲北领地政府在2015年，将达尔文港租给中共国陆桥集团公司（Landbridge），租期99年，此交易受到了安全专家的批评。
+郭先生在2021年5月2日的直播中用战略性的思维告诉全世界，据郭先生掌握的情报大陆在不远的将来（一个月，三个月或半年不会太久）各个银行会先后倒闭破产，大陆百姓的存款会化为乌有，楼市崩盘，经济断崖式崩溃，百姓会遭遇粮食危机，中共已无力回天；美国两党如要保全各党在美国的利益与地位必须争先恐后的以消灭中共为首任。
 
-达顿发誓要更公开地谈论中共国的侵略行为，比如澳洲的网络系统是如何”受到攻击”的。澳洲必须要保卫其非常重要的北部和西部水域免受侵犯，所以达尔文港尤其显得重要。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03081056/95ECBCE2-5632-43AC-B9BB-F81CD1F9390E.jpeg)
 
-澳洲联邦政府上个月使用新的《对外关系法》，取消了中共国与维州政府的 “一带一路 “协议，引发了中共国的不满。有关达尔文港的决定，必然会进一步加剧澳洲与中共国之间的紧张关系。相信在达尔文港之后还会有纽卡斯尔港、西澳的工程项目等等，最后就是澳洲与中共国彻底脱钩。
+经济是任何现代国家的命脉，法治社会，经济景气，百姓则生活安定无忧，政治局势就会稳定。中共历任当权者几十年来利用公权力贪污腐败天量财富；几十年来对百姓创造的财富暗渡陈仓的盗窃；近十年强抢明夺民间财富，长期积累的恶果以臸临界。中共当权者自作孽的后果是面对国内的经济崩溃已经回天乏术，已无任何可能有解决经济不崩溃（经济崩溃权力就会旁落）的手段，中共当权者因以前作恶太多，手段过于残酷，一放松权力就会被人民无情清算（当权者想想都后怕），已经失去政治改革的机会。在军事方面，面对国际对手美欧日，中共军事力量又不堪一击。所以中共当权者在国内政治不敢改，经济要崩溃，军事全是假大空的局势下只此一招（一本道）：2019年末释放生化武器，搞乱搞疲搞死全世界。对内则洗脑百姓：中共抗疫有方是社会主义制度的优越性，是在“伟光正”的中共领导下抗疫全面胜利，领先全世界。这样中共才有苟延残喘的可能。
 
-中共国在香港问题上单方面撕毁国际上公认的《中英联合声明》，让全世界认识到中共国是不守信用的，可以单方面撕毁任何协议。如果一个国家因为不执行合同失去了信誉，所谓的朋友如俄罗斯、伊朗以及小三胖等，都不过是酒肉朋友罢了，到了关键时刻都将是背后捅刀子的。
+全球经济、科技、军事无可争议的第一国美国，是可以迅速遏止甚至消灭中共的唯一国家。美国是典型的两党政治（其他党派在政治层面权重极轻），两党政客通过选举制度进入政府和国会两院参政，两党之间争权夺利又相互妥协。联邦政府对外政策掣肘于国会，两党政客耽于国内民主制度，又有各自的打算和利益，许多重量级政客还被中共蓝金黄许多年，在面对中共发起的第三次世界大战（全球生化危机）一年多来，美国的联邦政府，各州政府竟无一人对祸害人类的CCP冠状病毒的释放者中共追责。病毒肆虐的世界美国能独善其身吗？答案是不可能独善其身。在CCP冠状病毒面前，美国也面临经济全面崩盘，经济崩盘失业率就会居高不下，美国百姓生活水平会剧降，责任就要当今执政党民主党承担，甚至参众两院的所有政客也不能幸免经济崩盘百姓失业的责任。更何况美国自建国以来本土首次全境受到外来政权的攻击，美国百姓的生命安全正遭受前所未有的威胁（三千多万民众染疫，五十多万因疫死亡），这些当政者在病毒真相大白天下以后会被美国人民追讨罪责过失（民主制度的必然结果）。美国两党政客们都已经明白过来，要继续执政和未来执政，还做议员，而且为减少以后的追责，现今只有一条路（一本道）：只有追责中共，消灭中共。
 
-同时，中共国残忍地杀害香港热爱自由的年轻人，也让西方自由世界意识到中共国的杀掠本性。面对中共霸凌，自由世界为了保护自己的利益，第一件要做的事，就是将流氓中共扫地出门。
+郭先生在直播中告诉我们，中共没有选择，只有一条道走到黑，美国也没有选择只有消灭中共。
 
-郭先生说过，香港是灭共的第一道大门。透过香港事件，全世界都醒了，认识到了中共无耻与邪恶的本质，别无选择，全世界只能团结起来共诛之。中共命不久矣！
-（本文仅代表个人观点）
+注：本文仅代表作者观点
 
-参考链接：
-
-[https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.html](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
-
-[https://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-says](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
-
-[https://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
-
-*审核&编辑：Runaway*
-![]()![](https://gnews.org/wp-content/uploads/2021/04/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
-
+参考链接：[https://gtv.org/video/id=608ea73f6c00a14130e56d95](https://gtv.org/video/id=608ea73f6c00a14130e56d95)
 
 0

@@ -1,54 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【商见你我他】美国经济——繁荣下的阴影
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1167583/)
+## 欢迎来到Himalaya Exchange
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/1167498/)
 
-五月花写作组 | 商业部：无米之炊 | 编辑：文合 | 美工：灭共小宇宙 | 发稿：jamie(文胤)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03113128/%E6%AC%A2%E8%BF%8E%E6%9D%A5%E5%88%B0Himalaya-Exchange.jpg)
+**首次发行和私人配售**
 
-自从2020年CCP病毒疫情在全球范围内爆发，世界的经济受到了史无前例的重创。2021年，随着美国联邦政府一揽子的财政救助和刺激计划的出台，以及越来越多人接种了新冠疫苗， 美国经济的复苏被注入了一针强心剂。 据CNBC近日报道，美国不仅第一季度的GDP增长率有望大于7%,  4月份更是已经连续两周失业救济金的申请数少于60万例。美国的经济已经走出疫情的重创？还是这一切只是表面的繁荣？
+首次发行以私人配售的方式进行，仅提供给已在Himalaya Exchange开户的私人配售参与者。
 
-我们首先关注劳动力市场。福克斯新闻4月24日报道，由于疫情期间的失业福利还在继续，全国范围内的大量餐馆面临无法招募到员工的困境，很多餐馆不得不用现金，或雇佣高中生来维持生意。除了餐馆，很多大量雇佣廉价劳动力的商家都面临同样的困境，比如园艺公司，清洁公司等。与此同时，大量媒体报道每月新增的就业机会正以几十万的数目增加。一方面是大量失业人口，另一方面是商家无人可雇，为什么会有这种矛盾的现象？
+私人配售参与者如有意参与首次发行，必须完成注册和验证程序，并开立Himalaya Exchange账户。开立账户后，参与者可以通过向Himalaya Exchange的银行账户付款购买Himalaya Dollar 信用积分。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03103705/Picture1-7.jpg)图片来源：CNBC
+所有在第一阶段开始前或在此期间获Himalaya Exchange 正式通知的私人配售参与者，均可参与首次发行，其购买数量不得超过已同意的最大和指定分配数量。
 
-据路透社报道，2020年的疫情令美国失去了近两千两百万个就业岗位, 其中56%是低收入行业的工作。目前这些失业人口中只有少部分人在寻找工作。三月底人口普查局的一项调查显示，因自己或家人生病的原因，导致约有两百六十万的人没有寻找工作，有四百六十万人为了避免感染上病毒而拒绝去工作，还有百万计的人因为要照顾孩子不得不放弃工作。这些原因使得现在和疫情前相比，可劳动的人口减少了约五百万。此外，政府的失业保险福利和救助支票让低收入行业的人员更愿意在家领取失业金，而不愿继续工作。这无疑进一步加剧了目前商家无人可雇的局面。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03103718/Picture2-2.jpg)图片来源：flipboard.com
-
-另一个受疫情影响颇深的领域是芯片供应链。据雅虎财经报道，芯片的短缺已经对169个行业产生了影响。个人电子产品行业、汽车、机械行业都在竭尽全力争取买到足够的芯片来维持产品生产。福克斯新闻4月26日报道，通用汽车主席罗伊斯称：”这次的芯片供应链危机是他职业生涯中见过的汽车制造业里最大的危机”。目前通用汽车减少了旗下几乎所有汽车和小型SUV的生产，来保证有盈利空间的卡车生产所需的芯片。电视、个人电子产品的生产也面临同样的困境。疫情引发的居家办公和上学潮，极大的促进了电视、电脑、手机、显示屏和其他电子产品的销售。苹果的执行总监Tim Cook告诉路透社：苹果没有足够的芯片用于新手机的生产。令人担忧的是，芯片短缺的状况并不能在短时间内解决，这种状况可能要持续到今年年底或明年才会好转。而造成这次大范围的芯片短缺的原因除了疫情造成的芯片生产商停工减产、及对个人电子产品需求的激增外，还有半导体供应链自身结构的问题，以及中美贸易战的因素。半导体行业大部分公司为了利益最大化，已经不再自主生产芯片，而是将生产外包给台积电、三星等企业。而2019，2020年内存芯片价格的下调也让很多厂商减少了它们的产量。疫情期间激增的订单令这些企业即使开足马力也不能满足需求。由于川普政府对中国芯片企业开出了禁令，很多企业，如华为、本田，很早就囤积了大量的芯片以备不时之需，这进一步加剧了芯片的短缺。汽车行业使用的芯片和电子产品并不相同。由于疫情初期汽车销售的休克，让汽车生产商砍掉了他们的芯片订单，当他们后续意识到要采购大量芯片进行生产的时候，汽车芯片的生产早已被供不上货的个人电子产品企业垄断了。尽管芯片的短缺令生产商深受折磨，但经销商却因此赚的盆满钵满。
-
-因短缺造成的强劲销售，是昙花一现的通胀？还是经济回暖？相信大家都有自己的判断。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03103640/Picture3-2.jpg)图片来源：Yahoo Finance
-
-失之东隅， 收之桑榆。UPS联合包裹服务公司，是在疫情期间受益的公司之一。电子商务行业在疫情期间蓬勃发展。UPS称他们每日的运输量在疫情期间增长了14%，去年的收益为47.9亿美金，较2019年增长了400%。此外，UPS还在疫情期间为世界各国运输CCP病毒疫苗。该公司称，目前为止他们已经运送了1亿9千6百万剂疫苗。其他全球知名物流公司，如Fedex, DHL等，也在疫情中表现亮眼。
-
-劳动力不足，通货膨胀与通货滞涨并存。美国的经济是福是祸，我们拭目以待。
-
-参考来源：
-
-1. [https://www.ilo.org/global/topics/coronavirus/impacts-and-responses/WCMS\_767028/lang–en/index.htm](https://www.ilo.org/global/topics/coronavirus/impacts-and-responses/WCMS_767028/lang--en/index.htm)
-2. [https://www.cnbc.com/2021/01/12/hiring-for-these-jobs-is-on-the-rise-in-2021-according-to-linkedin.html](https://www.cnbc.com/2021/01/12/hiring-for-these-jobs-is-on-the-rise-in-2021-according-to-linkedin.html)
-3. [https://www.cnbc.com/2021/04/22/the-labor-market-is-starting-to-rip-as-fewer-seek-unemployment-benefits.html](https://www.cnbc.com/2021/04/22/the-labor-market-is-starting-to-rip-as-fewer-seek-unemployment-benefits.html)
-4. [https://www.wsj.com/articles/the-job-market-is-tighter-than-you-think-11619006400](https://www.wsj.com/articles/the-job-market-is-tighter-than-you-think-11619006400)
-5. [https://www.foxbusiness.com/lifestyle/restaurants-nationwide-struggle-to-find-workers](https://www.foxbusiness.com/lifestyle/restaurants-nationwide-struggle-to-find-workers)
-6. [https://www.reuters.com/article/us-usa-economy/u-s-economy-loses-jobs-as-covid-19-hammers-restaurants-bars-idUSKBN29D0J9](https://www.reuters.com/article/us-usa-economy/u-s-economy-loses-jobs-as-covid-19-hammers-restaurants-bars-idUSKBN29D0J9)
-7. https://www.cbpp.org/research/poverty-and-inequality/tracking-the-covid-19-recessions-effects-on-food-housing-and
-8. [https://cn.reuters.com/article/usa-economy-job-poll-0213-idCNKBS2AD01H](https://cn.reuters.com/article/usa-economy-job-poll-0213-idCNKBS2AD01H)
-9. [https://www.foxbusiness.com/lifestyle/gm-president-ruess-chip-shortage-auto](https://www.foxbusiness.com/lifestyle/gm-president-ruess-chip-shortage-auto)
-10. [https://www.theguardian.com/business/2021/mar/21/global-shortage-in-computer-chips-reaches-crisis-point](https://www.theguardian.com/business/2021/mar/21/global-shortage-in-computer-chips-reaches-crisis-point)
-11. [https://www.cnbc.com/2021/02/10/whats-causing-the-chip-shortage-affecting-ps5-cars-and-more.html](https://www.cnbc.com/2021/02/10/whats-causing-the-chip-shortage-affecting-ps5-cars-and-more.html)
-12. [https://www.foxbusiness.com/economy/small-business-demand-ups-profit-revenue-q1](https://www.foxbusiness.com/economy/small-business-demand-ups-profit-revenue-q1)
-13. https://www.cnbc.com/2020/09/15/fedex-revenue-jumps-as-pandemic-drives-e-commerce-bounce.html
+在Himalaya Exchange完全启动后，Himalaya Coin和 Himalaya Dollar将以市场价格向所有Himalaya Exchange的会员开放买卖。
 
 
-* * *
 
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+**发行和产品与服务之分阶段推出**
 
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+HCN的首次启动和相关产品和服务的推出计划在60天内分阶段进行。 分阶段推出的目的是从交易的第一天起，最大限度地提高Himalaya Exchange 的流动性，并为相关产品和服务的用户实现最佳效用。分阶段推出主要产品和服务的预期时间表如下：
 
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+第一阶段
+2021年4月
+Himalaya Exchange预先注册及Himalaya Dollar之发行
+私人配售参与者可申请开立Himalaya Exchange账户，并完成KYC程序。开立账户后，私人配售参与者可以1：1的比例购买Himalaya Dollar信用积分，对其账户进行充值。
+
+第二阶段
+2021年6月
+Himalaya Coin之发行
+私人配售参与者的注册期结束。私人配售参与者可购买获分配数量内的HCN信用积分。
+第三阶段
+
+第三阶段
+2021年7月
+Himalaya Exchange全面启动
+Himalaya Pay App正式上线
+会员可透过其Himalaya Exchange账户交易HDO、HCN和其他加密货币的信用积分。此阶段，Himalaya Exchange将会开放给公众注册和交易。会员可下载Himalaya Pay App，在全球范围内发送和接收付款。
+
+第四阶段
+即将推出
+Himalaya Exchange App
+Himalaya生态系统之会员可以下载Himalaya Exchange App，立即展开交易。
+
+\* Himalaya Exchange可根据其判断延长第一阶段。若第一阶段的期限予以延长，第二阶段和第三阶段的开始日期亦将顺延相同的期限。若因SARS-CoV-2的持续影响及/或对相关发行的巨大需求，且Himalaya Exchange或任何其他提供商认定有必要，则可延迟任何阶段、或任何阶段之任何要素的时间。
+
+
+
+**首次发行**
+
+Himalaya Coin之首次发行将以私人配售的方式开放予Himalaya Exchange的会员。
+
+这意味只有那些在第一阶段开始前，或在第一阶段期间获Himalaya Exchange 正式通知的人士（泛指作为”私人配售参与者”的客户）才能率先认购Himalaya Coin。
+
+私人配售参与者可在首次发行期间购买Himalaya Coin信用积分。请注意，相关私人配售将会在第三阶段开始之日过期。
+
+
+
+**Himalaya生态系统**
+
+要实现任何一种加密货币的大众接受度、采用率和可持续性，并提高其价值和实用性，其中一个关键要素是要开发一个足以赋予货币内在价值并激励大众采纳和使用的生态系统。发行人及其分支机构至致力通过建立商业合作伙伴关系发展Himalaya生态系统，并以逐步扩展其规模为目标。
+
+通过建立和发展Himalaya ECO 系统，我们的目标是加入知名品牌和建立大量的合作伙伴关系，以及激励在生态系统内的初创公司。我们已投资销售点终端硬件，最终目的是在全球范围内，让商家能够以低廉的费用在即时结算处理系统上接收我们的信用积分。
+
+在所有其他产品和服务推出后，Himalaya ECO 系统初始合作伙伴及其关联机构即将上线，并且会在发布日期之前通知成员。Himalaya ECO 系统将会让合资格的会员连结至我们遍布全球的商家。
+
+更多有关Himalaya ECO 系统的详情将会在Himalaya Exchange网站和支援中心的页面上公布。
 
 0
