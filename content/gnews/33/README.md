@@ -1,47 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】明主已经驾临，知青上山下乡还会远吗？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1167949/)
+## 前总统唐纳德·特朗普（Donald Trump）将在本周获悉他是否可以重返Facebook。
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1168055/)
 
-作者：纽约香草山健身部 Ivy001
+作者：文复
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03142726/trump-2704264_1920.jpg)
+该社交网络的准独立监督委员会表示，它们将在周三宣布有关对前总统一案的决定。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01223226/logo.jpg)
+特朗普的帐户因涉嫌煽动暴力导致1月6日致命的国会暴动而被暂停。
 
+经过多年对待特朗普的煽动性言论轻描淡写的处理之后，Facebook和Instagram在今年1月7日对他的帐户禁言，称他的账户将“至少”悬置到其总统任期结束之前。
 
+Facebook成立了一个监督小组，以就其平台上内容的棘手问题做出裁决，以回应人们对其无法迅速处置的普遍批评，这些处置涉及应对误导信息，仇恨言论和邪恶势力运动的问题。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03142748/facebook-76536_1920.png)
+**评论：**
 
-在中共国，民主这个词，正在逐渐被“明主”所取代。民主远去，“明主”驾临。
+**身处爆料革命中的战友无不知，以FACEBOOK, TWITTER等为首的国际社交媒体，已经沦落为钳制自由言论，扼杀言论自由的媒体势力，亦或许，它们诞生之初，就秉承着“沼泽地”操纵下的国际媒体引导民意的“使命”。只是，爆料革命，郭先生让世界上的普通民众有机会尽早认清其真实面目，而不再被其随意洗脑。**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03130409/%E5%9B%BE%E7%89%8757.png)图片来源：网络
+**正如郭先生在今年的419断播日直播中所传达的那样，世界上根本不存在“中立媒体”，既然是媒体，那么一定带有明显的倾向性和立场。我们的GTV,GNEWS，作为中共国被消灭前后世界上唯一以真实和正义为立场的媒体平台，将为14亿中共国人和75亿世界人民夺回真理的定义权和定价权。笔者认为这将是为“真”的价值和价格重新昭彰的伟大历史创举。值得我们每个战友为之努力。**
 
-“明主”习皇帝陛下的最爱是什么？当然是文革啦。从现在学生和名人的红军装，到广场舞大妈的忠字舞，到地铁的狂读《毛选》，再到学校的忆苦思甜饭……无一不是文革的配方，文革的味道。
+**此外，我们也可以看到，在美国，总统的权力是有限的，受到媒体的监督与制衡，无法“为所欲为”，这正是三权分立的民主宪政体制的美妙之处，未来的新中国联邦，亦不可缺少媒体力量对权力的监督。**
 
-“明主”习皇帝陛下最骄傲的是什么？必须是“那个时候啊，挑200斤麦子，十里山路我不换肩”。“明主”习皇帝陛下最向往的又是什么？当然是投身到广阔天地的“上山下乡”。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03130417/%E5%9B%BE%E7%89%8758.png)图片来源：网络
-
-上有所好， 下必甚焉。所以，现在国内一边在党媒上为文革洗白，一边在网络上制造舆论，论证大学开到农村去，大学生到农村去接受教育的美好前景，和美好意义。结论：上山下乡运动必须重启。
-
-小粉红们，“美好的农村大学”生活即将来临，你们做好准备了吗？曾经当过红卫兵、做过知青的老粉红们，你们的儿女或孙辈即将继承你们的宿命，要到广阔的天地去奋斗啦，你们的心理阴影面积大不大？在世界历史上，还从来没有一个国家和民族，会在短短的几十年时间，掉落同一个大坑里。中共国，你是头一个，而且是唯一的一个。这是国家的悲哀，也是民族的悲哀。自从共产党剽窃了人民的政权后，民族的哀歌在这片苦难之地，一直没有停过。
-
-不彻底灭掉中国共产党，华夏人民就不会有长久的好日子过，华夏大地就不会有长久的安宁和平，华夏民族就不会有希望有美好的未来。必须消灭中国共产党！
-
-[https://3g.163.com/dy/article/G8U92EF90534S70H.html?referFrom=baidu&spss=adap\_dy](https://3g.163.com/dy/article/G8U92EF90534S70H.html?referFrom=baidu&amp;spss=adap_dy)
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+新闻来源：[美联社](https://apnews.com/article/government-and-politics-technology-business-3e0cb7002231ae2e9e24ba44d44112ca)
 
 0

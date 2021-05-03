@@ -1,28 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 终于感受到接种疫苗的压力了，你呢？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1168293/)
+## 慧眼看世界20210502
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1168346/)
 
-- **作者： 太阳花**
+- 制图：透明的遮羞布
+- 编辑：神奇四侠
 
-
-***更多真相，请关注***[***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
-
-**西班牙2021年5月3日电/西喜社——**
-
-原来一直劝说国内的家人和朋友不要打疫苗，到现在除了老父母没有打，其余的朋友家人或者已经打了，或者还在排队等待。加上现在国内紧锣密鼓全方位的强国强党宣传，随便一个小学生都知道外国街上打砸抢，每天都在因为病毒死人，全世界最厉害的就是中国，而且是真心地感觉骄傲。在海外的我们本来在国人眼中就不看好，继续劝说感觉好像居心不良，还好自己父母因为年纪大已经不在社会的关注范围。
-
-身在欧洲，所有人都拥有自由选择的权利，本以为可以安心熬过这段黑暗时期等待世界拿到中共的解药，最近居然也开始感受到打疫苗的压力了。毕竟主流媒体掌控了人的思维模式，每天媒体所展示的是感染人数和接种人数，再加上各种医学专家的推演：只要大家再加把力，注射疫苗的人数比例再高一些，那大家盼望已久的正常生活方式即将回归！人们见面的聊天内容也多了一个“有没有打疫苗以及疫苗的种类和副作用“。在欧洲，因为这里的医疗系统，任何非处方药物的服用是必须由医生来决定，当和周围朋友推荐了硫酸羟氯喹，所有人都是先去咨询自己的医生，问回来的结果都是一致的，“这种药只能针对已经感染的病人，是属于副作用很强的药物，不能用做预防。” 再说生物武器的话题，沟通就更加难了，因为这里的人都想不通 ，为什么政府会杀自己人，为什么还有政府想要控制世界，为什么有解药还要研究疫苗，为什么自己的政府知道疫苗不好还要带头推动打疫苗…..深深体会郭先生说的“人微言轻”，身边的朋友邻居最后依然都按部就班的去药店预约疫苗注射。
-
-前几天去药店买药，店主很关切的问我有没有打疫苗了，她可以帮我预约；也有朋友好心来问是否需要帮助预约莫德纳的疫苗，虽然都婉言拒绝了，但感觉现在不打疫苗的人仿佛有不愿承担社会责任，不关爱家人之嫌。
-
-现在疫苗正在大规模的行进中，商业、旅游业、所有的学校都即将全面开放，在每天的感染数据中没有注射疫苗之后的的相关感染率，但是从媒体可以看到，疫苗的注射比例上升，感染人数下降这一趋势。跟随爆料革命这些年，对于任何媒体都会打几个问号，在媒体推动下的社会群体行为，到底会有什么后果？如果各国开始推行疫苗护照，那没有注射疫苗的人将很难正常生活旅行，虽然很多国家表态不会以此变相强制接种，但现在已经可以感受到这种推动力。 我们行走在历史的转折时期，在爆料革命带领下的新中国联邦人民还属于极少数群体，真相的传播是如此艰难，我们期待主流媒体能够转向寻找病毒真相，期待世界能早日从中共手中拿到解药，期待人类能够经过这次磨砺能懂得悔改，能更加成熟。
-
-**审核：蚂蚁兄弟； 校对:  阿伯塔；发稿：阿伯塔**
-
-[**欢迎加入西班牙巴塞罗那喜悦农场**](https://discord.com/invite/WPy8Qp7)
-
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162625/01-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162639/02-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162652/03-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162742/04-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162755/05-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162810/06-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162825/07-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163031/08-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163043/09-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163057/10-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163112/11-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163124/12-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163139/13-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163150/14.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163328/15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163339/16.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163351/17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163404/18.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163415/19.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163430/20.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163444/21.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163459/22.jpg)
+以上文字图片仅代表作者个人观点，与GNEWS无关
 
 0
