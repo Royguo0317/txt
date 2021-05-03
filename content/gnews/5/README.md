@@ -1,54 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【商见你我他】美国经济——繁荣下的阴影
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1167583/)
+## 《路德社》每日简报版2021.04.21–NewYork Time 日本即将加入五眼联盟
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1167646/)
 
-五月花写作组 | 商业部：无米之炊 | 编辑：文合 | 美工：灭共小宇宙 | 发稿：jamie(文胤)
+出品《路德社》 编辑：路德社精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03112644/21.jpeg)
+2021.4.21 美东早晚间 路德时评 路.安.墨谈 路.冠.胡谈
 
-自从2020年CCP病毒疫情在全球范围内爆发，世界的经济受到了史无前例的重创。2021年，随着美国联邦政府一揽子的财政救助和刺激计划的出台，以及越来越多人接种了新冠疫苗， 美国经济的复苏被注入了一针强心剂。 据CNBC近日报道，美国不仅第一季度的GDP增长率有望大于7%,  4月份更是已经连续两周失业救济金的申请数少于60万例。美国的经济已经走出疫情的重创？还是这一切只是表面的繁荣？
+**一、日本即将加入五眼联盟**
 
-我们首先关注劳动力市场。福克斯新闻4月24日报道，由于疫情期间的失业福利还在继续，全国范围内的大量餐馆面临无法招募到员工的困境，很多餐馆不得不用现金，或雇佣高中生来维持生意。除了餐馆，很多大量雇佣廉价劳动力的商家都面临同样的困境，比如园艺公司，清洁公司等。与此同时，大量媒体报道每月新增的就业机会正以几十万的数目增加。一方面是大量失业人口，另一方面是商家无人可雇，为什么会有这种矛盾的现象？
+日本驻澳洲大使山上信吾近日表示，日本有望在短期内加入五眼联盟（Five Eyes）这个情报共享组织。澳洲国防安全专家表示，日本将是五眼联盟吸纳新成员的最佳选择。五眼联盟是由五个英语国家组成的情报共享联盟，成员国包括澳洲、美国、新西兰、英国和加拿大。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03103705/Picture1-7.jpg)图片来源：CNBC
+五眼联盟是一个庞大的秘密网络，这就相当于北约组织中的情报部门。日本以其七十年遵守契约的优异表现被五眼联盟认可，日本加入五眼联盟后将加强西方国家处理汉语情报的能力，也进一步制衡中共国，日本之所以即将加入五眼联盟也离不开习总加速师的“帮助”。
 
-据路透社报道，2020年的疫情令美国失去了近两千两百万个就业岗位, 其中56%是低收入行业的工作。目前这些失业人口中只有少部分人在寻找工作。三月底人口普查局的一项调查显示，因自己或家人生病的原因，导致约有两百六十万的人没有寻找工作，有四百六十万人为了避免感染上病毒而拒绝去工作，还有百万计的人因为要照顾孩子不得不放弃工作。这些原因使得现在和疫情前相比，可劳动的人口减少了约五百万。此外，政府的失业保险福利和救助支票让低收入行业的人员更愿意在家领取失业金，而不愿继续工作。这无疑进一步加剧了目前商家无人可雇的局面。
+日本加入五眼联盟后将进入快车道，最重要的目的就是灭共，日本早已经做好和中共国脱钩的准备，安倍下台就是在与中共做内部脱钩，好让菅义伟上台后可以推动灭共，日本很有可能早在几年前就依据情报得知中共国将成为全世界的敌人，并提前为灭共做准备。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03103718/Picture2-2.jpg)图片来源：flipboard.com
+**二、中共外交部开批谭德塞**
 
-另一个受疫情影响颇深的领域是芯片供应链。据雅虎财经报道，芯片的短缺已经对169个行业产生了影响。个人电子产品行业、汽车、机械行业都在竭尽全力争取买到足够的芯片来维持产品生产。福克斯新闻4月26日报道，通用汽车主席罗伊斯称：”这次的芯片供应链危机是他职业生涯中见过的汽车制造业里最大的危机”。目前通用汽车减少了旗下几乎所有汽车和小型SUV的生产，来保证有盈利空间的卡车生产所需的芯片。电视、个人电子产品的生产也面临同样的困境。疫情引发的居家办公和上学潮，极大的促进了电视、电脑、手机、显示屏和其他电子产品的销售。苹果的执行总监Tim Cook告诉路透社：苹果没有足够的芯片用于新手机的生产。令人担忧的是，芯片短缺的状况并不能在短时间内解决，这种状况可能要持续到今年年底或明年才会好转。而造成这次大范围的芯片短缺的原因除了疫情造成的芯片生产商停工减产、及对个人电子产品需求的激增外，还有半导体供应链自身结构的问题，以及中美贸易战的因素。半导体行业大部分公司为了利益最大化，已经不再自主生产芯片，而是将生产外包给台积电、三星等企业。而2019，2020年内存芯片价格的下调也让很多厂商减少了它们的产量。疫情期间激增的订单令这些企业即使开足马力也不能满足需求。由于川普政府对中国芯片企业开出了禁令，很多企业，如华为、本田，很早就囤积了大量的芯片以备不时之需，这进一步加剧了芯片的短缺。汽车行业使用的芯片和电子产品并不相同。由于疫情初期汽车销售的休克，让汽车生产商砍掉了他们的芯片订单，当他们后续意识到要采购大量芯片进行生产的时候，汽车芯片的生产早已被供不上货的个人电子产品企业垄断了。尽管芯片的短缺令生产商深受折磨，但经销商却因此赚的盆满钵满。
+中共外交部回应谭德塞称新冠溯源报告评估不充分，汪文斌强调说，世卫组织于3月30日发布了中国—世卫组织联合专家组溯源研究报告，明确了病毒由实验室泄漏极不可能的结论，不存在所谓的获取原始数据困难。
 
-因短缺造成的强劲销售，是昙花一现的通胀？还是经济回暖？相信大家都有自己的判断。
+谭德塞两星期前说“病毒由实验室泄露极不可能，这一结论的评估还不够充分，需进一步研究，并准备派相关领域专家赴华。”中共经过两星期的努力仍旧无法搞定谭德塞，所以中共外交部才站出来发言批评谭德塞的言论，相信不用多久，中共将开始批评科学界。中共原计划等WHO发布中共病毒报告后能为中共彻底洗白，但是谭德塞在报告发布后立即反水，这打乱了中共原先的计划。无论中共耍什么样的伎俩，在绝对实力面前都无济于事。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03103640/Picture3-2.jpg)图片来源：Yahoo Finance
+**三、中共军事专家呼吁警惕“应对中共国危险委员会”**
 
-失之东隅， 收之桑榆。UPS联合包裹服务公司，是在疫情期间受益的公司之一。电子商务行业在疫情期间蓬勃发展。UPS称他们每日的运输量在疫情期间增长了14%，去年的收益为47.9亿美金，较2019年增长了400%。此外，UPS还在疫情期间为世界各国运输CCP病毒疫苗。该公司称，目前为止他们已经运送了1亿9千6百万剂疫苗。其他全球知名物流公司，如Fedex, DHL等，也在疫情中表现亮眼。
+中共军事专家杨承军4月20日撰文称，要高度关注并警惕美国“应对中共国危险委员会”，特别是对它的使命任务、人员组成和运作方式，决不可等闲视之。该委员会的成员，包括前白宫首席策略师班农等40多名前政府官员、国会议员、智库成员组成。
 
-劳动力不足，通货膨胀与通货滞涨并存。美国的经济是福是祸，我们拭目以待。
+杨承军绝对是爆料革命的忠实粉丝，文贵先生在2019年就提及并参与筹建“应对中共国危险委员会”，杨承军教授也意识到反中共不是某些政党所为，而是历史潮流，他承认120之后进入两党联合灭共时代，无论这些军事专家如何叫唤，也不能改变中共必亡的结局。
 
-参考来源：
+**一、文贵先生出庭后与战友拥抱问好**
 
-1. [https://www.ilo.org/global/topics/coronavirus/impacts-and-responses/WCMS\_767028/lang–en/index.htm](https://www.ilo.org/global/topics/coronavirus/impacts-and-responses/WCMS_767028/lang--en/index.htm)
-2. [https://www.cnbc.com/2021/01/12/hiring-for-these-jobs-is-on-the-rise-in-2021-according-to-linkedin.html](https://www.cnbc.com/2021/01/12/hiring-for-these-jobs-is-on-the-rise-in-2021-according-to-linkedin.html)
-3. [https://www.cnbc.com/2021/04/22/the-labor-market-is-starting-to-rip-as-fewer-seek-unemployment-benefits.html](https://www.cnbc.com/2021/04/22/the-labor-market-is-starting-to-rip-as-fewer-seek-unemployment-benefits.html)
-4. [https://www.wsj.com/articles/the-job-market-is-tighter-than-you-think-11619006400](https://www.wsj.com/articles/the-job-market-is-tighter-than-you-think-11619006400)
-5. [https://www.foxbusiness.com/lifestyle/restaurants-nationwide-struggle-to-find-workers](https://www.foxbusiness.com/lifestyle/restaurants-nationwide-struggle-to-find-workers)
-6. [https://www.reuters.com/article/us-usa-economy/u-s-economy-loses-jobs-as-covid-19-hammers-restaurants-bars-idUSKBN29D0J9](https://www.reuters.com/article/us-usa-economy/u-s-economy-loses-jobs-as-covid-19-hammers-restaurants-bars-idUSKBN29D0J9)
-7. https://www.cbpp.org/research/poverty-and-inequality/tracking-the-covid-19-recessions-effects-on-food-housing-and
-8. [https://cn.reuters.com/article/usa-economy-job-poll-0213-idCNKBS2AD01H](https://cn.reuters.com/article/usa-economy-job-poll-0213-idCNKBS2AD01H)
-9. [https://www.foxbusiness.com/lifestyle/gm-president-ruess-chip-shortage-auto](https://www.foxbusiness.com/lifestyle/gm-president-ruess-chip-shortage-auto)
-10. [https://www.theguardian.com/business/2021/mar/21/global-shortage-in-computer-chips-reaches-crisis-point](https://www.theguardian.com/business/2021/mar/21/global-shortage-in-computer-chips-reaches-crisis-point)
-11. [https://www.cnbc.com/2021/02/10/whats-causing-the-chip-shortage-affecting-ps5-cars-and-more.html](https://www.cnbc.com/2021/02/10/whats-causing-the-chip-shortage-affecting-ps5-cars-and-more.html)
-12. [https://www.foxbusiness.com/economy/small-business-demand-ups-profit-revenue-q1](https://www.foxbusiness.com/economy/small-business-demand-ups-profit-revenue-q1)
-13. https://www.cnbc.com/2020/09/15/fedex-revenue-jumps-as-pandemic-drives-e-commerce-bounce.html
+4月21日，文贵先生前往南区法院参加庭审作证，文贵先生走出法院后与战友们一一拥抱问好，在法院门口等候的新中国联邦战友都非常欣喜。
 
+文贵先生作证结束走出法院后与所有战友们拥抱问好，完全没有受到疫情的影响，可见文贵先生非常珍惜每一位支持他的战友。自从有了爆料革命新中国联邦以后，文贵先生非常在乎中国人的形象和新中国联邦人的形象，中国人不等于中共。
 
-* * *
+**二、美参议院外交委通过灭共战略竞争法案**
 
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+美国参议院外交委员会4月22日高票通过跨党派议案“战略竞争法”，该法案长达281页，共有5大章节，针对掠夺性经济作为、恶意影响力攻击、数字威权、军事扩张、对台野心、压迫香港与新疆等多项北京的问题行径提出了应对措施。
 
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+之后参众两院将对该法案进行投票表决，当拜登总统签字后就正式生效。《战略竞争法案》针对中共国多项问题提出了应对措施，其中明确规定法案生效后的180天内给出中共病毒最有可能的来源，必须制定有关中共病毒来源、武毒所等所有问题报告的时间表，该法案已经罗列出病毒调查报告的大纲，这才是该法案推动灭共的最重要部分，路德社爆料美国参议院将成立病毒调查委员会，Sellin博士将被选入该委员会中。共和党建制派议员罗姆尼提出了一项修正案，将对北京奥运会实施美国外交抵制。
 
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+**三、白宫证实中美领导人将不会进行双边会谈**
+
+白宫周三证实，中共国家主席习近平将参加周四与周五美国主办的领导人气候峰会，但总统拜登不会与习近平进行双边会谈。此次气候峰会将详细商讨具体行动方案，美国在此次气候峰会上将拉着全世界再次向中共施压，若中共仍然不遵守承诺，那留给中共的最后一扇门将被关闭。
+
+拜登和习近平在此次峰会上将不会举行双边会谈，拜登总统一方面想与习保持距离，另一方面，双方其实也没有什么好谈的，因为双方在关键问题上已经不可能达成共识。拜登政府总是用软硬兼施的策略对付中共国，美国一边继续往灭共的方向推进，一边又要做到斗而不破，防止中共狗急跳墙，等带时机成熟时，美国再对中共发起毙命一击。
+
+文案：《路德社》简报组
+审核校对：玫瑰天空
+上传排版：CharlieNZ查理
 
 0
