@@ -1,70 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欢迎来到Himalaya Exchange
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/1167498/)
+## 【信仰之声】慈爱主钉痕的手
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1167760/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03113128/%E6%AC%A2%E8%BF%8E%E6%9D%A5%E5%88%B0Himalaya-Exchange.jpg)
-**首次发行和私人配售**
+作者：香草山福音部 小野猫（文凯琳）
 
-首次发行以私人配售的方式进行，仅提供给已在Himalaya Exchange开户的私人配售参与者。
-
-私人配售参与者如有意参与首次发行，必须完成注册和验证程序，并开立Himalaya Exchange账户。开立账户后，参与者可以通过向Himalaya Exchange的银行账户付款购买Himalaya Dollar 信用积分。
-
-所有在第一阶段开始前或在此期间获Himalaya Exchange 正式通知的私人配售参与者，均可参与首次发行，其购买数量不得超过已同意的最大和指定分配数量。
-
-在Himalaya Exchange完全启动后，Himalaya Coin和 Himalaya Dollar将以市场价格向所有Himalaya Exchange的会员开放买卖。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
 
 
 
-**发行和产品与服务之分阶段推出**
+主耶穌钉痕的手是为世人的罪被钉在十字架上所造成的。祂从死里复活的当天晚上，穿过了门徒所在紧闭的门，站在他们中间说：“愿你们平安！”于是，就向他们展现手上的钉痕和肋旁的伤痕。
 
-HCN的首次启动和相关产品和服务的推出计划在60天内分阶段进行。 分阶段推出的目的是从交易的第一天起，最大限度地提高Himalaya Exchange 的流动性，并为相关产品和服务的用户实现最佳效用。分阶段推出主要产品和服务的预期时间表如下：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03121859/%E5%9B%BE%E7%89%8754.png)
 
-第一阶段
-2021年4月
-Himalaya Exchange预先注册及Himalaya Dollar之发行
-私人配售参与者可申请开立Himalaya Exchange账户，并完成KYC程序。开立账户后，私人配售参与者可以1：1的比例购买Himalaya Dollar信用积分，对其账户进行充值。
+八天后，复活主同样穿过门徒所在紧闭的门，站在他们当中说：“愿你们平安！”主耶穌叫多马用手指探入祂手上的钉痕和肋旁的伤痕，并告诉他说：“不要疑惑，总要信。”因之前他并不相信门徒见到复活主，而且还说要亲自验证才相信。当多马看见耶穌并向他展现手与肋旁的伤痕时，他就立刻回答：“我的主！我的上帝！”耶穌对他说：“你因为看见才信吗？那没有看见却信的有福了。”（约20:29）
 
-第二阶段
-2021年6月
-Himalaya Coin之发行
-私人配售参与者的注册期结束。私人配售参与者可购买获分配数量内的HCN信用积分。
-第三阶段
+主耶穌钉痕的手是对世人爱的印记，是祂为世人捨命并且叫人得著永生。我们的主，我们的父，祂曾伸出这双手，敞开胸怀拥抱世上的罪人  祝福他们、为人赶鬼治病、扶软弱者及为门徒洗脚⋯⋯，祂是那位昔在、今在、以后永在的父神，阿门！
 
-第三阶段
-2021年7月
-Himalaya Exchange全面启动
-Himalaya Pay App正式上线
-会员可透过其Himalaya Exchange账户交易HDO、HCN和其他加密货币的信用积分。此阶段，Himalaya Exchange将会开放给公众注册和交易。会员可下载Himalaya Pay App，在全球范围内发送和接收付款。
+他的手也需要及渴望其他人的手，但是，衪双手仍是空空的，而这空空的双手不但没有得到拥抱和珍惜，却被无情地钉在十字架上，为我们所有人的罪，甘愿作出牺牲⋯⋯。当复活主向门徒显现并展示手上的钉痕时，是有骨有肉的身体，祂已復活了。这实在是大好的消息，门徒一看见是主就喜乐了。
 
-第四阶段
-即将推出
-Himalaya Exchange App
-Himalaya生态系统之会员可以下载Himalaya Exchange App，立即展开交易。
+耶穌基督已经从死里复活了！那些看见復活主的门徒从圣灵得著能力并為主作那美好的见证，还可以与那些没有亲眼看见復活主却信的有福人，一同用他们的双手关爱社区、服侍他人、同时也使自己的生命成为流通的管子，并活出上帝馨香的气息，祝福别人的生命。而那些没有看见復活主就信的有福人，就是歷代的信徒，包括你和我。耶穌的爱永不止息！
 
-\* Himalaya Exchange可根据其判断延长第一阶段。若第一阶段的期限予以延长，第二阶段和第三阶段的开始日期亦将顺延相同的期限。若因SARS-CoV-2的持续影响及/或对相关发行的巨大需求，且Himalaya Exchange或任何其他提供商认定有必要，则可延迟任何阶段、或任何阶段之任何要素的时间。
+让我们拿出勇敢和坚毅的信心向身边的人张开双手，敞开胸怀，分享上帝的福音，让更多的人得享上帝丰盛的恩典！
+
+校对/发稿：飞虹
 
 
 
-**首次发行**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01143151/M5.jpg)
 
-Himalaya Coin之首次发行将以私人配售的方式开放予Himalaya Exchange的会员。
+**更多资讯，更多关注**
 
-这意味只有那些在第一阶段开始前，或在第一阶段期间获Himalaya Exchange 正式通知的人士（泛指作为”私人配售参与者”的客户）才能率先认购Himalaya Coin。
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-私人配售参与者可在首次发行期间购买Himalaya Coin信用积分。请注意，相关私人配售将会在第三阶段开始之日过期。
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-**Himalaya生态系统**
-
-要实现任何一种加密货币的大众接受度、采用率和可持续性，并提高其价值和实用性，其中一个关键要素是要开发一个足以赋予货币内在价值并激励大众采纳和使用的生态系统。发行人及其分支机构至致力通过建立商业合作伙伴关系发展Himalaya生态系统，并以逐步扩展其规模为目标。
-
-通过建立和发展Himalaya ECO 系统，我们的目标是加入知名品牌和建立大量的合作伙伴关系，以及激励在生态系统内的初创公司。我们已投资销售点终端硬件，最终目的是在全球范围内，让商家能够以低廉的费用在即时结算处理系统上接收我们的信用积分。
-
-在所有其他产品和服务推出后，Himalaya ECO 系统初始合作伙伴及其关联机构即将上线，并且会在发布日期之前通知成员。Himalaya ECO 系统将会让合资格的会员连结至我们遍布全球的商家。
-
-更多有关Himalaya ECO 系统的详情将会在Himalaya Exchange网站和支援中心的页面上公布。
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

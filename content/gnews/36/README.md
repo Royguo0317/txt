@@ -1,27 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【各抒己见】五一劳动节，别再祝我快乐，我一点都不开心
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1167308/)
+## 西喜时事新闻简报—病毒篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1167202/)
 
-作者：喜马拉雅东京樱花团 /盐和光
+- 作者：wenwu
 
-![](https://lh5.googleusercontent.com/MyMd_3-4PWabxwDNfJ-Oa2iZFFwbzh5hz-WmibHcfyxE6etdJfa6JgVj36gtF_s-fvNHY21PnkC5V3iLycc0B622rji4lOJxzFgVO_8S18U4KUG2Cc550v4Zkwv59OUuDHtdDh8E)
 
-劳动只是为了活着，不存在光荣一说，也不快乐，谁说劳动快乐谁来试试吧！
+***更多真相，请关注***[***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-当劳动者的薪水只能够糊自己的口而养不起家，那么劳动者就连动物都不如！因为，世上所有动物的劳动所得不但可以喂饱自己，还可以喂饱自己的孩子。
+**西班牙2021年5月3日电/西喜社——**
 
-当劳动者用尽他毕生的劳动也买不起一个安身立命遮风避雨的窝，那么劳动者就连小小的麻雀都不如！因为，小小的麻雀用自己一生劳动成果的千份之一，就能做到为自己搭建起一家人所能享受的安乐窝。
+您若想了解全文报导内容，请点击标题链接
 
-当劳动者的劳动所得比动物的劳动所得都不如时，说人的劳动是光荣的，就是在侮辱劳动者！
+**1. [中共国用疫苗向世界示好的努力为何会适得其反。智利出现奇怪的新冠病例激增，有报道称中共疫苗仅有3%的效果](https://www.dailymail.co.uk/news/article-9533705/Why-Chinas-bid-woo-world-vaccines-backfiring.html)**
 
-![](https://lh5.googleusercontent.com/jCEtjgKLIFEnYQc_ZvFevP7TYNiJF7W6aLvVDQESvWMOIZ50gC61LRfSM0jEsF7LxP8Jo-7HT35KG-Hm0iMX2_kHGe5x2Vo2Ud72SYZOyrWiQPrJyt_Cpza8OGbiUkXdw64LqSru)
+据《每日邮报》5月1日电，中共疫苗外交被北京称为健康丝绸之路——是共产党政权宣传运动的关键部分，此前，共产党政权的早期掩盖加剧了疫情，全球对该病毒的真正起源越来越怀疑。欧盟警告说，中共的疫苗外交支持了“破坏对西方制造疫苗信任的误导和操纵的努力”。
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
+**2. [军情六处处长支持武汉实验室的理论，抨击中共国对科学界的合纵连横](https://thenationalpulse.com/breaking/m16-chief-blasts-wuhan-lab-theory/)**
 
-*校对：喜马拉雅东京樱花团 / 待命（文晓）*
-*责任编辑：喜马拉雅东京樱花团 / 文小白*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01183841/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
-+1
+据《国家脉动》5月2日电，英国秘密情报局的一位前负责人坚持认为，新冠病毒更有可能是从中共国实验室泄露出来的，而不是源自自然界，并指出来自”中共国的重大影响 “阻止了关于病毒起源的公开辩论。
+
+**3. [印度行业机构敦促限制经济活动以拯救生命](https://www.reuters.com/world/india/indias-covid-19-cases-rise-by-392488-health-ministry-2021-05-02/)**
+
+据《路透社》5月2日电，印度新感染率略有下降，但死亡人数不断攀升。当局在过去24小时内报告了392488例新病例，使病例总数达到1956万例。死亡人数创下3,689人，总死亡人数达到215,542人。印度工业联合会（CII）敦促采取最强有力的国家步骤。
+
+**4. [美国密州就疫情追责 传唤中共多个部委](https://www.epochtimes.com/gb/21/5/1/n12918496.htm)**
+
+据《大纪元》5月3日电，美国密苏里州和密西西比州起诉中共，要求中共政府对中共病毒造成瘟疫负责，并寻求经济赔偿，以补偿那些由瘟疫造成的人员死亡、人们承受的痛苦和经济损失。密西西比州已经向中共及其几个部委等发出传票。
+
+**5. [浙江一病例隔离14天后才呈阳性 曾搭乘火车](https://www.epochtimes.com/gb/21/5/2/n12919112.htm)**
+
+据《大纪元》5月2日电，日前，[浙江省金华市义乌市](https://www.epochtimes.com/gb/tag/%E6%B5%99%E6%B1%9F%E7%9C%81%E9%87%91%E5%8D%8E%E5%B8%82%E4%B9%89%E4%B9%8C%E5%B8%82.html)出现一起中共病毒病例，是在[隔离](https://www.epochtimes.com/gb/tag/%E9%9A%94%E7%A6%BB.html)14天后才[核酸检测](https://www.epochtimes.com/gb/tag/%E6%A0%B8%E9%85%B8%E6%A3%80%E6%B5%8B.html)呈阳性。其是来自非洲尼日尔的病例，在解除隔离后曾搭乘两列火车。有网民说：“完了呀，刚好五一游客高峰。”
+
+**6.[许多美国人对疫情后恢复“正常”感到焦虑](https://www.voanews.com/covid-19-pandemic/many-americans-anxious-about-returning-normal-after-pandemic)**
+
+据《美国之音》5月1日电，根据美国心理学协会的一项调查，大约一半的成年人对疫情后恢复面对面的互动感到不舒服。他们从感染新冠病毒后再次与朋友、家人和同事沟通，感到紧张。家里有人因此死亡，会对靠近购物中心感到恐惧。
+
+审核：蚂蚁兄弟；校对：信心的选择；发稿：信心的选择
+
+[**欢迎加入西班牙巴塞罗那喜悦农场**](https://discord.com/invite/WPy8Qp7)
+
++2
