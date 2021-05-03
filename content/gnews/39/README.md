@@ -1,25 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 被中共阉割的艺术
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1167941/)
+## 美国的大战是在2022年&nbsp; 两位副总统都不是省油的灯
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1168118/)
 
-俄罗斯莫斯科喀秋莎农场 娜洁仕达
+**摘要：在2021年4月30日的盖特视频中，郭先生说：“美国的大战是在2022年”，“两个副总统都不是省油的灯”，还说：“我们最好的结局就需要他们这样，2022年美国的所有所谓的保守派，还有所谓的亲共派来一场大对决”。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03143813/Miles_20210430-getter3.srt-1.txt)
+**美国的大战是在****2022****年**
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/05/C-1.jpg)themoscowtimes.com
-生活在在中共国的人们已经很久没有听到过《沧海一声啸》、《TAKE DOWN THE CCP》、《让荣光归香港》这样振聋发聩、令人感动的歌曲了，在中共的统治下，电影、音乐、绘画等等艺术作品都被包裹上了厚厚的中共党文化外衣，失去了灵魂。
+**America’s Big War Will Be in 2022**
 
-艺术本是借助一些手段或媒介，塑造形象、营造氛围，来反映现实、寄托情感的一种文化。艺术，是用形象来反映现实但比现实有典型性的社会意识形态。与科学相比，艺术离不开情感的表达，且更富有创造性。
+朱利安尼现在这种强势反击多好啊？美国的大战是在2022年。「大家」记住：只有郭文贵说过两个副总统都不是省油的灯。我再告诉大家：我们最好的结局就需要他们这样，2022年美国的所有所谓的保守派，还有所谓的亲共派「来」一场大对决。对决完以后在国会山、白宫、然后美国整个媒体，精英界彻底醒过来，包括在美国底层的老百姓知道共产党是他们的威胁。病毒只有找解药，然后要找原因、找元凶。
 
-中共国的流行音乐排行榜上 ，独占鳌头的总是表达情啊、爱啊的流行歌曲。走进大街小巷，时下最流行的歌曲《白月光与朱砂痣》，宫斗剧《甄嬛传》在各大电视台重播了无数遍收视率依然居高不下，为独裁者唱赞歌的《大秦赋》被炒得火热，近年既叫好又叫座的电影是《战狼》，在中共国，只有这样的作品才最安全，而获得奥斯卡的赵婷的《无依之地》却在中共国遭到封杀。
+How great is this strong counterattack that Giuliani is having now! America’s big war will be in 2022. Remember only Miles Guo said neither of the two vice-presidents is easy to deal with. I can also tell you that our best outcome requires a big contest between the so-called conservatives and the so-called pro-communist in the United States in 2022. After the contest, the Capitol Hill, the White House, then the entire American media and the elite circle will wake up completely. The grass roots of America will realize that the Communist Party is a threat to them. The only solution to the virus is to find the antidote, then to find the cause and the culprit.
 
-再看中共国的“艺术界”，已经被称为“演艺圈”，艺术家也被称为“明星”。明星们晒豪宅、晒豪车，背着名包、穿着名牌，打扮得漂漂亮亮，过着令人羡慕的生活。同时偷税漏税、吸毒、酗酒、私生子、整容、包养、潜规则等等乱象被纷纷曝光，就连陪吃、陪睡也明码标价，动辄天文数字的片酬、出场费一再引发热议，网友们批判社会的不公平时，也在暗自羡慕这些明星们光鲜亮丽的生活。
+看看共产党找那些小国家，二、三十个国家，五、六十个国家，我在一年前就说了，半年前就说：这是它的战略，「共产党」还想动联合国呢？联合国在纽约，美国认你联合国就认；不认「联合国」连个屁都不是，连个橡皮图章都不是，是不是？2022年当真正的美国，美国国家主义，美国的保守派和美国真正的灭共派站起来的时候，联合国「还有」所有世界上的国际组织都将重新改组，因为被共产党渗透得太厉害了。
 
-于是人们一边痛斥“贵圈真乱”，一边逼着自己的孩子从小学习音乐、舞蹈、绘画、播音主持，梦想着自己的孩子也能成为明星，挣大钱，过上“体面的生活” “钱”成为了人们衡量成功与否的唯一标准。在这样的思想意识之下艺术如何能反映真实的现实？如何表达真实的情感？艺术在中共国早已经被阉割。
+Look at those small countries, the 20 or 30 countries, the 50 or 60 countries that the CCP found [to ally with]. I said a year or half a year ago, that this is their strategy. [The CCP] wanted to play the UN card? The [Headquarter of the] UN is in New York. If America recognizes you [the UN], you are the UN; otherwise, the UN is nothing, not even a rubber stamp, right? In 2022, when the real United States [spirit], the American nationalists, the American conservatives and the real anti-CCP groups of the United States stand up, the UN and all international organizations in the world will be restructured because they have been infiltrated too much by the CCP.
 
-中共国各个媒体报道的是经过严格政治审查、加工过的新闻，有着严重的思维导向性，微信朋友圈里点赞最多的竟然是外交部发言人在记者会上怒怼外国记者的小视频，单一的新闻环境造就了单一的意识形态，在这样的洗脑教育下，人们的良知被泯灭，人性被掩盖，即使艺术拥有了创造性，也不可能走进人们的内心，不会被主流社会认可、无法走向世界，更无法传承，只会像文革时期的“样板戏”、“ 忠字舞”一样被丢进历史的垃圾堆，贻笑大方！
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/608c3c144486aa0bb231b863](https://gtv.org/getter/608c3c144486aa0bb231b863) (8:01-9:25)
+鸣谢：感谢 Antsee-GTV、TING GUO 提供中文文本于 [https://www.gnews.org/zh-hans/1159960/](https://www.gnews.org/zh-hans/1159960/)
 
-文贵先生声音嘶哑地练唱《马背英雄》，他是用心对在中共统治下的蒙古族人民表达敬意，我们新中国联邦人创作的《喜马拉雅之巅》、《自由》等歌曲是在表达我们与爱好和平、追求自由的中国人在一起，我们永远为他们呐喊、为他们抗争！在自由环境下创作出来的艺术作品才能引发人们的共鸣！希望所有爱好和平、爱好自由的艺术家们，团结起来共同推翻共产党，卸掉中共党文化的束缚，创造出更有价值的艺术作品，让艺术回归自然，回归艺术的本身！
+* * *
 
-0
+翻译：【雷鸣（文鸣）】字幕：【JennyL】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
++2
