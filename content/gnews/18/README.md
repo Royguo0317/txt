@@ -1,33 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 浅谈喜币的交易与支付双账户系统
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1168350/)
+## 慧眼看世界20210502
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1168346/)
 
-活力人生
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03161945/6f916cd11336a8fc8ad6781d3fc607b9.jpg)
-倍受期待的喜马拉雅交易所（Himalaya Exchange，以下简称“喜交所”）已经于4月26日正式开放个人账户注册和KYC验证程序，这也标志着我们距离喜币的正式上市交易又近了一步。同一时间在喜交所网站上发布了稳定币Hdollar和浮动币Hcoin的白皮书，里面亮点很多。喜币最为人津津乐道的就是稳定币和浮动币的双币系统，这一点已经有很多人解读过，在此不再赘述。本文要重点介绍的是很少有人注意到的喜币双账户系统。
+- 制图：透明的遮羞布
+- 编辑：神奇四侠
 
-什么是喜币双账户系统？用一句话概括，就是用于交易的喜交所和用于支付的喜支付（Himalaya Pay）是两个独立的，互不干扰的账户，两者分别有各自的APP，这点在白皮书中体现过多次。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03161931/HC.jpg)
-在白皮书发布之前，笔者一直以为喜币的存储，交易，支付等功能都是集中在一处完成。相信不少人都有同样的想法，甚至因此产生过一些疑虑。我看到过有些战友对电子产品操作不熟练，担心是否会误操作，一不小心就把喜币转出去了等等。而交易与支付双账户系统很好地避免了这些问题。笔者认为，双账户系统至少有以下三大优点：
-
-**1，安全性**
-
-用于喜币交易的账户是十分私密的，除了活跃的交易者，大多数人都是长期持有等待升值，使用频率不高。而用于支付的账户则不可避免地经常要与很多其他账户进行交互，两者分开，平常喜币储存在交易账户，需要支付时再转入支付账户，支付账户中只保存少量余额。这种设计避免了误操作带来的麻烦，也大大提高了安全性。两个账户分别有各自不同的APP，必然可以设置不同的密码，这也提高了有心人士想要盗取资金的难度。
-
-**2，专业性**
-
-两个账户分开，做交易的专心交易，做支付的专心支付，各自专心在专业领域发展，可以提高发展效率，避免大机构内部沟通不畅造成的麻烦。甚至笔者大胆猜测，喜交所与喜支付已经是，或者必然成为，两家独立运营的公司。随着灭共进程的推进，大家都能看到G系列的前景如何。作为G系列核心的货币支付系统将来必定成为巨无霸的级别。在运营初期各自独立，好过合在一起长大以后尾大不掉，拆分困难。一旦触发反垄断法之类的，那可不是闹着玩的。
-
-**3，包容性与扩展性**
-
-账户与功能的分割也提高了各自的包容性与扩展性，降低了使用门槛，使得更多的人能够参与到G生态系统的财富盛宴中来。做为独立的支付应用，喜支付支持在G系列中使用喜币交易，但是没有虚拟币的人以及无法使用虚拟币交易的商户就无法参与了吗？当然不会。我认为，喜支付以后除了支持虚拟币，也会支持法币交易，全世界的使用者可以选择使用虚拟币或者当地法币，如欧元，日元等进行交易。喜支付将成为横跨虚拟币与实体法币的支付巨头。与此同时，独立的喜交所以后除了支持更多的虚拟货币交易，还可能依托G系列银行，发展出基于虚拟货币的金融服务。目前传统银行的服务只接受各国法币，但数字货币才是未来的发展趋势，喜交所此举必然又开历史先河。
-
-综上所述，喜交所与喜支付双账户系统有多种优点。笔者在这里试举几例，但是还有更多优点与应用场景亟待发掘。如同郭先生在盖特中所说：还没有任何一个人，能彻底解释出喜币喜美元和G系列的核心价值。笔者抛砖引玉，希望更多有才能的战友贡献智慧，集思广益，共同完整G系列的宏伟拼图。
-
-* * *
-
-*发稿 文锦*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162625/01-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162639/02-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162652/03-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162742/04-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162755/05-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162810/06-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162825/07-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163031/08-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163043/09-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163057/10-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163112/11-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163124/12-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163139/13-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163150/14.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163328/15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163339/16.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163351/17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163404/18.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163415/19.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163430/20.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163444/21.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163459/22.jpg)
+以上文字图片仅代表作者个人观点，与GNEWS无关
 
 0

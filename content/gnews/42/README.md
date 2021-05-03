@@ -1,27 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 布林肯称军事对抗对美中都没有好处
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1168029/)
+## 川普总统发表声明称2020大选为“大谎言”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1168113/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/05/A.png)commondream.org
-05月03日，美国国务卿安东尼·布林肯告诉哥伦比亚广播公司电视台，军事对抗对美国和中共国都没有好处。
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/E-2.jpg)americaoutloud.com
+随着亚利桑那州重新计票过程的推进（笔者一直作了跟踪报道）【1】、【2】，刚刚川普总统发表声明，看上去更有底气了！
 
-布林肯当被问及事情是否正朝着与中共国的某种军事对抗发展时。他认为“走到那一步（对抗）或甚至朝那个方向发展，都是与中共国和美国的利益严重相悖的。”
+声明如下：【3】
 
-同时，国务卿认为，在过去几年中，北京开始“在国内更有压迫性，在国外更有侵略性”，中共国的目标是要主宰世界。
+2012年5月3日
 
-国务院负责人补充说，美国的目标“不是为了遏制中共国”，而是试图维持既定秩序，中共国正在“挑战”这一秩序。
+美国第45任总统 唐纳德J·川普
 
-3月底，布林肯宣布美国打算从实力的立场上与中共国建立关系。他指出两国之间日益加剧的竞争，建议美国及其盟友“制定一个共同的方法来应对中共国带来的挑战”，将能够更好地应对这些挑战。
+从今天起，舞弊欺诈的2020年总统选举将被称为大谎言！
 
-中共国主席习近平称两国之间的合作是“唯一正确的选择”，因为华盛顿和北京之间的冲突将是世界的灾难。美国总统乔·拜登说，中共国是美国“最严重的竞争对手”。4月底，拜登在国会发言时说，美国正在与包括中共国在内的其他国家争夺21世纪的领导权。
+文字整理：
 
-参考链接：
+May 3,2021
 
-[https://www.rbc.ru/rbcfreenews/608f74ea9a79470ec2593d5d](https://www.rbc.ru/rbcfreenews/608f74ea9a79470ec2593d5d)
+Statement by Donald J. Trump, 45th President of the United States of America
+
+The Fraudulent Presidential Election of 2020 will be，from this day forth, known as THE BIG LIE!
+
+是的，一旦亚利桑那州打开了突破口，宾夕法尼亚州、佐治亚州、威斯康星州、密歇根州、新罕布什尔州会接踵而来，就会有多米诺骨牌效应出现，大科技、大资金和大媒体也随之暴露，而他们肯定不会束手待毙，会拼死顽抗，接下来是否就会出现文贵先生预测的那样，宪政危机的到来。
+
+首先站出来回应川普总统声明的人不是民主党，而是“叛徒”切尼（Liz Cheney），她说，“2020年总统大选并未被盗，声称‘大谎言’者，正是背弃法治并毒害我们民主制度的人。”阿拉斯加州的参议员“叛徒”默考斯基（Lisa Murkowsk）昨天也作了类似这样的表态。左派媒体不报道亚利桑那州的审计，也不直接报道川普总统的声明，却大肆宣传报道共和党“叛徒”的声音，其用心是明显的。
+
+静观事态发展，为美国人民祈福！
+
+有关链接：
+
+【1】[https://www.gnews.org/zh-hans/1161491/](https://www.gnews.org/zh-hans/1161491/)
+
+【2】[https://www.gnews.org/zh-hans/1164827/](https://www.gnews.org/zh-hans/1164827/)
+
+【3】[https://twitter.com/JennaEllisEsq/status/1389221805412524032/photo/1](https://twitter.com/JennaEllisEsq/status/1389221805412524032/photo/1)
 
 0

@@ -1,13 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210502
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1168346/)
+## 澳大利亚政府为达到无病毒的极权特征
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1168390/)
 
-- 制图：透明的遮羞布
-- 编辑：神奇四侠
+```
+新闻来源：世界报 网络版
+记者：芭芭拉·巴克豪森（Barbara Barkhausen）
+发表时间：2021年5月3日
+```
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162625/01-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162639/02-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162652/03-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162742/04-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162755/05-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162810/06-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162825/07-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163031/08-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163043/09-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163057/10-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163112/11-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163124/12-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163139/13-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163150/14.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163328/15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163339/16.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163351/17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163404/18.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163415/19.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163430/20.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163444/21.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163459/22.jpg)
-以上文字图片仅代表作者个人观点，与GNEWS无关
+
+澳大利亚禁止其公民因受到感染而从印度返回。任何敢于这样做的人都可能面临监禁。人权维护者感到震惊。堪培拉为民主国家树立了危险的先例。
+
+严厉的限制措施已在打击澳大利亚大流行中结出硕果：该国自去年秋天以来几乎没有病毒。但是政府的一项新措施遭到了广泛的批评。甚至国家人权委员会也在周末进行了干预。
+
+截止周一，来自印度的澳大利亚旅客将被禁止返回家园，印度目前是印度这种流行病特别肆虐的地方。任何敢于这样做的人都将面临高额罚款和监禁。违反规定的任何人将受到最高66,600澳元的罚款，相当于近43,000欧元，处以5年监禁，或两者并罚。
+
+目前，有9000多名澳大利亚人在印度登记返回家园。
+
+#### **简评：**
+
+**印度的病毒大爆发，看到的一些照片，那简直就是人间地狱。由于印度病毒的变种，是多变种的结合，让所有的人都感到了恐惧。每天几十万的感染率，面临的死亡威胁也是巨大的。导致了澳大利亚政府做出了这个无法被民主社会接受的政策。那些在印度的澳大利亚人不能返回家园，要面临罚款和监禁。这个病毒让全世界都感到了恐惧，让政客们都难于做出决定。这是一个多么疯狂的世界。还是要回到根源，只有消灭中共，向他们索要解药才是解决病毒问题的唯一途径。才能让这个世界重新回到平静。 **
+（本文只代表作者观点，与Gnews平台无关。）
+
+** 新闻原文链接：**🔗[Australiens harte No-Covid-Strategie](https://www.welt.de/politik/ausland/plus230828489/Geld-und-Haftstrafen-Australiens-harte-No-Covid-Strategie.html)
+
+* * *
+
+***翻译整理/ 评论：** Shuizhuyu* ***编辑整理/校对: **Ting Guo*
 
 0
