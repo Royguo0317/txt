@@ -1,35 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朝鲜指责拜登“敌对”态度
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1165221/)
+## 【热点播报】欢迎回到地球，欢迎回家
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1165315/)
 
-```
-新闻来源：世界报网络版  
-发布时间：2021年5月02日
-翻译 /整理/ 简评： Shuizhuyu
-```
+纽约香草山健身部 Ivy001
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02145559/IMG_20210502_205515.jpg)图片来源：世界报
 
-拜登周三表示，他的政府将“通过外交和严格威慑”对北韩核计划构成的威胁作出反应后，北韩国务院周日发表讲话说，美国总统犯了“严重错误”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-拜登的声明显示，他“希望继续对美国实行半个多世纪的对朝鲜采取敌对政策，”国务院平壤国务卿说。 美国所谓的外交实际上只是一种旨在掩盖华盛顿的“敌对行为”的欺骗。 所谓的“威慑”只是用核武器威胁北朝鲜的一种手段。
 
-白宫周五说，美国总统愿意与朝鲜就核裁军进行谈判。 美国政府的目标仍然是“朝鲜半岛完全无核化”。
 
-朝鲜统治者金正恩近年来依靠与拜登的前任唐纳德·特朗普的和解来解除制裁。 两位领导人亲自见了三次面。 但是，特朗普与金正恩之间于2019年2月在河内举行的最后一次峰会失败了。 自那以来，华盛顿与平壤之间为拆除北韩核计划而进行的谈判一直处于搁置状态。
+5月2日凌晨，SpaceX Crew-1 龙飞船安全溅落在佛罗里达州的墨西哥湾。这是自阿波罗8号以后，首次夜间回收载人航天飞船。
 
-#### **简评：**
+四名宇航员星期五晚上登入龙飞船，并且按计划顺利脱离太空国际空间站，踏上回家的路。龙飞船全程全自动操作，离开轨道，进入地球大气层。并于凌晨两点安全溅落在佛罗里达州的墨西哥湾。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02152202/Screen-Shot-2021-05-02-at-3.21.40-PM.png)图片来源：CNN
+4名宇航员分别是：NASA’s Michael Hopkins, Victor Glover, Shannon Walker, Soichi Noguchi （一位来自日本的宇航员）。四位宇航员都已经顺利安全出舱，健康良好。SpaceX Crew-1 龙飞船的任务，画上完美的句号。
 
-**在国际局势日益紧张的时候，金三胖也出来指责拜登的对北韩政策是严重错误。殊不知，这个政策已经实施了半个世纪。北韩就是中共的一颗棋子，一旦中共遇到阻力，就拿出来走一走，无非就是要威胁它有核武器。核武器是哪里来的，大家都心知肚明。现在中共就要面对全世界的追讨，还是老套路，拿出这颗棋子再用用。相信，有爆料革命，有郭先生的情报，这次中共一定不会得逞。北韩也不过是出来大声喊喊，目的无非是要找中共要点银两，相信全世界都已经看清了这个技俩。**
-（本文只代表译者观点， 与 Gnews平台无关。 ）
+SpaceX 龙飞船的安全回归，标志着NASA与 SpaceX 在航天载人飞船回归地球的项目合作成功。在太空航天领域，SpaceX 与 NASA 的联手合作，让人类载人航天进入新的时代。
 
-**新闻原文链接：**🔗[Nordkorea wirft Biden „feindliche“ Haltung vor](https://www.welt.de/politik/ausland/article230808119/Nordkorea-wirft-US-Praesident-Joe-Biden-feindliche-Haltung-vor.html)
+中共国，赶紧加大太空计划的投入，加码太空竞赛的投注。你们要输啦！
 
-* * *
+[https://www.cnn.com/2021/05/02/tech/nasa-spacex-astronauts-return-iss-highlights-scn/index.html](https://www.cnn.com/2021/05/02/tech/nasa-spacex-astronauts-return-iss-highlights-scn/index.html)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+编辑/校对/发稿：正义的小新
 
-***编辑整理/校对: **Ting Guo*
+**更多资讯，更多关注**
 
-+2
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01210350/gnews-logo-2.jpeg)
+
+
+
+0

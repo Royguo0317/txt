@@ -1,47 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】港警打压泛民主派的街头五一活动
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1165273/)
+## 亚利桑那州审计现场出现“防火防盗防CNN”的景象
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1165310/)
 
-纽约香草山健身部 Jack Li文阳
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/CNN.jpg)talkingpointsmemo.com
+《门道专家》（The Gateway Pundit）继续报道，“媒体已确认！—— 美国有线电视新闻网（CNN）在亚利桑那州审计中心停车场外骚扰‘国家审计’工作人员被抓获”。【1】
 
+文章说，周五晚上，《门道专家》的权威人士乔丹·康拉德森（Jordan Conradson）采访了亚利桑那州的审计总监肯·贝内特（Ken gave），谈了历史性的马里科帕（Maricopa）郡法庭审计的最新进展。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
+星期五肯·贝内特总监就“历史审计”给了《门道专家》独家专访的机会，介绍了“在凤凰城退伍军人纪念体育馆进行的审计”。【2】
 
+肯贝内特在采访中也投下了这个炸弹，自由媒体们试图恶意泄露审计工作者！
 
+《门道专家》的乔丹·康拉德森：我听说工人们正在遮盖车牌，有没有关于“黑命贵”（BLM）和“安提法”（Antifa）阻挠、干扰的消息？
 
-今年五一劳动节，全球不少国家的民众上街示威，争取劳工权益。泛民主派的劳工团体走上街头，并按规定，以四人一组为上限，但仍遭警方搔扰。香港劳工团体已是连续第二年被警方以防疫为由，禁止劳动节游行。
+肯·贝内特：没有，我们还没有确认那些特定团体或其他人有任何活动。但是，不幸的是，我们已经被新闻媒体拍下了人们的车牌，当然，他们还试图用特写拍摄审计人员的姓名徽章和脸部。因此，当新闻媒体要花那么长的时间试图确认某人的身份时，这让工作人员和审计者有点紧张，他们害怕自己会被恶意泄露之类的事，所以我们希望这不会发生，我们希望每个人更关注一点。
 
-5月1日，香港职工会联盟与26个工会组织和区议会议员办事处在全港31个地点设立街站，并向市民分发“坚持宗旨”的透明小卡片，希望重燃香港人反抗的火苗。呼吁市民写信给在囚的民主派人士，希望港人不要放弃抗争。另外有政党游行到政府总部，要求当局关注疫情下失业率创新高、贫富悬殊等问题。
+这是一个令人震惊的消息，但并不令人惊讶，现在我们知道哪个极左翼的媒体在骚扰选举审计的工作人员。没人惊讶，是CNN！
 
-活动却遭到警方警告，指不可违反4人限聚令，禁止筹款。警方在部分街站旁设置摄录机拍摄情况，并派出十多名警员在场戒备。在举行总结记者会的葵芳街站，警员更在记者会结束时在现场拉起封锁线，质疑职工盟涉嫌违反限聚令，无端要求搜证，骚扰了数十分钟后离去。
+CNN人员在退伍军人纪念体育馆（Veterans Memorial Coliseum）的停车口外，当选举工作人员开车进入停车场时，人们发现了她对审计工作人员进行了拍摄骚扰。
 
-在场的医管局员工阵线代表质疑，指明这是港府肆意打压公民社会的表现，只要发出不受港府欢迎的声音，便会被针对对待。活动街站只是标榜“揸宗旨，抗暴政”，呼吁市民不要放弃、坚持讲真话、守住公民社会底线等，警方便指责他们发出噪音。工会有六、七人在场，但都是最多四人一组站立，警方却派出二十多人到场采取行动。
+一名选举工作人员问CNN人员，“你和《美国新闻网》（OAN）一起的吗？”当CNN黑客回答“不”时，这名妇女关起车窗开车走了。
 
-另外，两个民主派政党社民连及工党的4名成员星期六早上游行到政府总部，要求当局关注疫情下失业率创新高及贫富悬殊等问题。他们沿途高呼口号：劳动尊严、不容剥夺；失业贫穷、天理不容；失业缓助、刻不容缓。
+聪明的女士！
 
-职工盟总干事蒙兆达认为，限聚令已成为警方及港府限制示威、游行的工具，他强调疫情渐趋缓和，部分社交距离措施亦已放宽，虽然在室外，但限聚令依然维持4人的上限。
+（原文附上了照片）
 
-中共借“港版国安法” 竖起所谓的”爱国者治港”的大旗，进一步阉割香港的民主社会。中共针对民主派进行大搜捕，利用疫情限聚令、封区强制检测等措施，令香港变成一个白色恐怖的城市。很多香港人心灰意冷，纷纷移民逃离香港，不过仍然有不少港人无惧恐吓，坚持抗争。
+这是CNN人员在亚利桑那州审计外骚扰选举工作人员的视频。
 
-参考阅读：[https://www.voachinese.com/a/hk-democratic-groups-labor-day-street-booths-protests-20210501/5874563.html](https://www.voachinese.com/a/hk-democratic-groups-labor-day-street-booths-protests-20210501/5874563.html)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-编辑/校对/发稿：正义的小新
+（原文也附上了有关视频）
 
-**更多资讯，更多关注**
+（原文完）
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+川普总统专门对亚利桑那州的审计安全发出了三个声明，要求州长确保审计人员的安全，看来不是没有道理，捣乱者难以进入审计现场，但可以对审计人员进行骚扰，如何获得审计人员的信息，不良媒体可以充当这个角色，所以，必须防范与邪恶共舞者的一切伎俩，真正做到“防火、防盗、防CNN之类的不良媒体”。
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+参考链接：
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+【1】[https://www.thegatewaypundit.com/2021/05/update-media-outlet-identified-cnn-caught-outside-az-audit-center-parking-lot-harassing-state-audit-workers-video/](https://www.thegatewaypundit.com/2021/05/update-media-outlet-identified-cnn-caught-outside-az-audit-center-parking-lot-harassing-state-audit-workers-video/)
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+【2】[https://www.gnews.org/zh-hans/1161491/](https://www.gnews.org/zh-hans/1161491/)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01210350/gnews-logo-2.jpeg)
-
-0
++1
