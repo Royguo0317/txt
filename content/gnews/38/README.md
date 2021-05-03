@@ -1,126 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士谈E蛋白帮助病毒维持神经毒性
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1166219/)
+## 澳国防部长誓言更公开叫板中共的侵略行为
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1166264/)
 
-字幕内容：
+俄罗斯莫斯科喀秋莎农场   银河
 
-闫丽梦博士：
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/AU.jpg)skynews.com.au
+澳洲媒体报道，澳大利亚国防部长彼得·达顿(Peter Dutton)发誓要更公开地叫板中共的侵略行为，宣称澳大利亚人每天与政府站在一起，并理解北京构成的威胁。
 
-So what I want to comment on it,
+达顿警告称，澳大利亚在网络世界“已经受到攻击”，并表示澳大利亚的网络间谍机构未来几年将需要加强人手，以应对不断升级的黑客攻击浪潮。同时，达顿表示，澳大利亚国防军需要有能力保卫澳大利亚北部和西部的进攻。
 
-对于这一点，我想说的是
+在接受采访时，达顿表示，澳大利亚国防军(Australian Defence Force)已准备好采取行动，澳大利亚需要做好保卫北部和西部水域的准备，这是一个明确的优先事项。这些言论证实了莫里森政府最近措辞的强硬，包括对中共的强硬态度。并表明澳政府希望与澳大利亚人进行更公开的讨论。在中共对整个印度洋-太平洋地区日益扩张的推动下，澳大利亚正寻求在国防能力上投入更多资金。
 
-I am not neurologist, I just have the medical knowledge about neurology disease.
+上周，国防部长称台湾问题不容忽视，这激怒了中共政府，内政部长迈克·佩佐 (Mike Pezzullo)宣布“战鼓”已经敲响，但没有指明任何潜在对手。
 
-我不是神经科医生，我只是有神经科疾病的医学知识
+达顿表示，他希望就中共的意图“与公众进行更坦率的讨论”。如果政府有把握，而且这样做不会暴露澳大利亚信号理事会(ASD)以前的任何秘密能力，他不排除指名网络攻击背后的国家。
 
-But what I have pointed in my third report and also in my first report, I can use it as smoking gun.
+澳大利亚军事规划者越来越担心“灰色地带”战争的威胁，这是指介于传统上认为的战争与和平之间的侵略行为。它包括网络攻击、虚假信息活动、盗窃知识产权和宣传。去年，一个据信是中共的国家行为体对各级政府、行业和关键基础设施(包括医院、地方议会和国有公用事业)发动了一系列网络袭击。
 
-但正如我在第三份报告和第一份报告中指出的那样，我可以把它当作确凿的证据
+当被问及澳大利亚需要做些什么来抵御灰色地带战争时，达顿表示，澳大利亚人需要明白，“我们已经在网络战线上遭到了攻击”。 “这就是我们看不到的现实，战场上没有伤亡，但每天都有公司和个人的受害者。”
 
-is envelop protein, E protein, in SARS-Covid 2,
+澳大利亚已经开始采购远程导弹，以保护海外军队、盟友和本土，包括为澳大利亚海军舰队配备先进的远程制导武器，以抵御海上威胁，并可能购买一系列高超音速导弹。
 
-就是E蛋白，SARS-Covid 2中的E蛋白
+达顿表示，澳大利亚政府的首要任务是“在我们的地区继续保持和平”，但他警告称，澳大利亚需要“在该地区发挥影响力，实现这一目标”。
 
-it’s hundred percent identical as it as the back born, Zhou Shan Conoravirus
+参考链接：
 
-可以100%完全确认SARS-Covid 2使用舟山蝙蝠冠状病毒作为骨架
-
-First, this is the evidence. It comes from the Zhou Shan bat conoravirus, which is somehow, completely cab into SARS Covid 2.
-
-首先，这是证据。该E蛋白来自舟山蝙蝠冠状病毒，不知何故，它完全被发现在SARS Covid 2 病毒里
-
-Because if it is going through the spices that’s a kind of host changing, jump from bat to animal to animal to human
-
-因为如果它经过物种间传代，那就是一种从蝙蝠到动物再到动物再到人类的宿主
-
-definitely, that we would see the change, because they already observed the change
-
-当然，我们会看到这种变化，因为他们在人类大流行最早的时候
-
-during the earliest the pandemic in human.
-
-就已经观察到了这种变化
-
-And second thing is why do they keep it, because this is smoking gun,
-
-第二个问题是，中共为什么要对此守口如瓶，因为它是确凿证据
-
-since I write this problem from last year 19th January, with Youtube.
-
-因为我在去年1月19日用YouTube写了这个问题
-
-China had done a quickly get response and later they even locked down.
-
-中共很快就做出了反应，后来他们甚至封锁了E蛋白的信息
-
-Because they know someone released the real information of this bio-weapon.
-
-因为他们知道内部有人泄露了这种生物武器的真实机密
-
-But why until now, no scientist there to touch this E protein issue to argue with me.
-
-但是为什么到目前为止，还没有科学家触及到这个E蛋白的问题，他们也没有来和我争论这个E蛋白的问题？
-
-And even Shi Zhengli, and their like the Chinese Military Academy,
-
-就连shizhengli, 像那些中国军事医学院的学者们
-
-they have developed a lot of novel fabricated too naughty virus, including from bat from Pangolins,
-
-他们已经合成出了很多新奇的病毒，包括从蝙蝠身上，从穿山甲身上，
-
-which all have the identical E protein in those fabricated sequence.
-
-它们在构建的序列中都有相同的E蛋白。
-
-What do they want to hide?
-
-他们想隐瞒什么？
-
-Then lets we back to check E protein’s function.
-
-然后我们再回来检查一下E蛋白的功能
-
-Yes it ‘s not clearly investigated , but we know it’s important for virus fabrication
-
-是的，它还没有得到明确的调查，但我们知道它对病毒的合成至关重要
-
-as some other important part in the Coronavirus
-
-作为冠状病毒的其他重要组成部分
-
-But it’s also have another function what
-
-但是它还有另外一个功能，那就是
-
-discovered and actually my ex-lab in the University of Hong Kong,
-
-在我之前工作的香港大学的实验室
-
-it’s the lab get involve to discover is E protein can have the virus
-
-发现这种E蛋白可以帮助病毒
-
-help the virus maintain the neuronal toxicity
-
-帮助病毒保持其神经毒性
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://rumble.com/vfy3xf-lethal-deception.html](https://rumble.com/vfy3xf-lethal-deception.html)
-
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场-Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片: 康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.html](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.html)
 
 0

@@ -1,39 +1,420 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0502III比物理灭共更重要的不承认中共的时刻已到来
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1166160/)
+## 前苏联武器专家肯·阿里贝克（Ken Alibek）博士的采访（一）
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1166123/)
 
-编辑整理：
+1997年，美国国防部特别武器局接待了肯·阿里贝克（Ken Alibek）博士，讨论前苏联生物武器计划的能力。
 
-纽约香草山农场：鹰(文言)；日本东京方舟农场：山川异域
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02230914/%E5%B0%81%E9%9D%A2-3.jpg)
-据[2021年5月2号 文贵直播标题：国内银行倒闭，房地产崩塌，粮食链断裂，国际关系的冰冻效应，中共内部已经认为中共即将终结；以美灭共会最终促成以共灭共的发生，在2022年开始；喜币是金融界的金箍棒](https://gtv.org/video/id=608ea73f6c00a14130e56d95)时间点21：16——
 
-所以说战友们，现在中南坑成了习一坑，成了习一个人的坑了。我在2017年说的时候，2018年开完常委会大家见到了我说中国没有常委机构了，多少人在乎过我说的这话。
 
-你见过中国历史上什么时候像过去这几年没有任何常委出席活动、常委基本上不出现，基本上就仨人说话——习一神还有杨娘娘、王公公，国家安全委员会是由中办来管理的，就连丁薛祥现在都销声匿迹了。栗战书两年基本不出来了，韩正还敢出来说话吗，李克强哪轮得到他了跟个怨妇似的，打入冷宫的怨妇，还有谁呀？刘鹤副总理还出来吗？胡春华还出来吗？总理都没了，哪有你副总理的事儿啊！军方许其亮多少次站出来讲话呀？就这几个人吧。何总参谋长，站出来讲话了吗，何其宗有几次？！
+字幕内容：
 
-中共已经到了一人集权，习一坑儿，没有常委只有安全委员会的一个真正的1932年到1946年的希特勒时代，它都不如当时二战的日本，当时的日本还有山本五十六呢，是不是啊？还有军方呢，不光天皇一个人呢，还有总理呢，那现在呢？没有任何人说话。
+Walt Zimmers
 
-那么在这种情况下，反过来我想问兄弟姐妹们，你们想一想在香港发生的事情是不是集体决定的？冠状病毒是不是集体决定？对美政策是不是集体决定？——一定不是集体决定。既然不是集体决定的这么大的事情，打台湾能是集体决定吗？——打台湾也不会是集体决定。既然打台湾不是集体决定，那么谁知道台湾什么时候开战？——没有人知道。
+沃尔特·齐默斯
 
-那么说到这的时候，大家记住我刚才谈了那三个中共在国际上的条件，联合国。共产党所有这两三年，它都在玩弄着联合国的人权组织、国际合作组织、国际金融组织，以及在国际上所有的最大的几个机构——世纪贸易组织WTO，还有一个世界银行，还有IMF世界货币组织，它渗透的也差不多了，联合国基本上它买差不多了。
+So what you’re saying is that molecular biology today
 
-欧洲啊、中东啊，那几个什么欧盟峰会啊，还有G7呀，特别是中东那几个组织，大家记住基本上就没什么用了，那就是个讲数的勾兑的组织。那么共产党这过去几年想控制的整个联合国，利用国际游戏规则，利用联合国的游戏在世界上横冲直撞、所向披靡，没遇到任何障碍。
+所以你要说的是今天的分子生物学
 
-在这时候大家要看到一个核心的问题——日本，这就是美日联盟这个事儿很大，日本要加入世界的联合国、加入常委的话，那这个世界的格局彻底改了。如果日本的部队已经正常化的话，世界的军事版图也彻底改了。
+as we know it can probably be easily adapted
 
-那么如果说人民币，DCEP人民币数字化对美元是个巨大的威胁和挑战，如果再真的出现亚元的话，亚、欧、美元三元鼎力的话，美国基本完球蛋了。那么所以说，任何一个有政治脑袋的、任何一个有金融智慧的，大家要看到最后世界跟老共打的仗在那几个领域，兄弟姐妹们——联合国国际组织领域，无论是已定义的种族大屠杀、反人类罪，香港的群体灭绝犯罪定罪，还是冠状病毒查出来凶手，这三条都足以将共产党移除联合国。
+我们知道它可能很容易适应
 
-无论是在世界刑警组织，还有武汉Organization—— WHO世界卫生组织，还是联合国人权组织，未来发生一系列的腐败案，包括以上的三个核心原因都会让共产党成为必须离开的最好的这种法律的根据。
+by other countries to development of biological weapons agents
 
-在这种情况下，我们战友们要看到了一个最最关键的时刻的到来——法律上、法理上世界不再承认中国共产党，它比物理上消灭共产党它还重要，就是灭掉共产党绝对不能成为一个国与国之间的所谓各种战争，灭掉共产党绝对不是说隔靴搔痒，什么制裁呀，那不可能。
+由其他国家开发生物武器代理商
 
-接上文——
+and that they too could potentially produce genetically altered strains
 
-[郭先生0502I中共用温水煮青蛙的方式开始铺垫银行的倒闭](https://gnews.org/zh-hans/1165675/)
+而且它们也有可能产生基因改变的菌株
 
-[郭先生0502II在2020年中共已经消失剩下的就是物理上的消灭](https://gnews.org/zh-hans/1165954/)
+that would be antibiotically resistant
 
-+1
+那会产生抗生素抗性
+
+Dr. Alibek
+
+阿里贝克博士
+
+Uh let me say um we don’t have to underestimate a capability
+
+嗯，让我说，我们不必去低估这个能力
+
+of we call them in many cases are underdeveloped countries
+
+在很多情况下，我们称他们为未发达国家
+
+This underdeveloped countries now have very significant scientific capability
+
+这些不发达国家现在具有非常重要的科学能力
+
+just take a look at Cuba
+
+就看看古巴
+
+We consider this country an underdeveloped country
+
+我们认为这个国家是未发达国家
+
+but now they’re capable to develop practically any genetically altered agent possible
+
+但现在他们有能力开发出几乎所有可能的基因改变剂
+
+Walt Zimmers
+
+沃尔特·齐默斯
+
+using modern techniques
+
+使用现代技术
+
+Dr. Alibek
+
+阿里贝克博士
+
+Yeah using modern techniques even uh 10-15 years ago
+
+是的，甚至在10到15年前使用现代技术
+
+they were able just to develop genetically altered recombinant bacteria
+
+他们只能够开发出基因转变的重组细菌
+
+recombinant bacteria of course we don’t know
+
+重组细菌，当然，我们不知道
+
+whether or not they develop genetically altered antibiotic resistant
+
+他们是否研制出基因转变的抗生素抗性
+
+but in many cases if you know this technique
+
+但是在很多情况下，如果你懂得这项技术
+
+of course it’s not a big deal
+
+当然没什么大不了的
+
+just to insert instead of a gene of one another technological substance
+
+只是插入而不是另一个技术实质的基因
+
+biological substance
+
+生物实体
+
+or if you’ve got uh knowledge how to do this
+
+或者，如果你掌握了如何做的知识
+
+it’s not a big deal it’s not a problem
+
+这没什么大不了的
+
+just to insert a gene uh plasmid with a gene
+
+只是将一个基因插入带有基因的质粒中
+
+that could cause an antibiotic resistance to one another antibiotic
+
+可能导致一种抗生素对另一种抗生素产生抗药性
+
+Walt Zimmers
+
+沃尔特·齐默斯
+
+And in fact the former soviet union was doing this
+
+实际上，前苏联正这样做过
+
+even before the advent of modern molecular biology
+
+甚至在现代分子生物学问世之前
+
+by probably selection process or
+
+通过可能性筛选过程或
+
+whatever to find uh antibiotic resistant
+
+任何可以找到对抗生素有抗药性
+
+or vaccine-resistant strains of organisms
+
+或对疫苗有抗药性的生物菌株
+
+Dr. Alibek
+
+阿里贝克博士
+
+You’re absolutely right there are several techniques just to
+
+您是完全正确的，有几种技巧可以去
+
+Walt Zimmers
+
+沃尔特·齐默斯
+
+Just to do that
+
+只是去做那个
+
+Dr. Alibek
+
+阿里贝克博士
+
+To do this but as  new techniques
+
+去做这个，但作为新技术
+
+new uh approaches are we discovered
+
+我们所发现的新方法
+
+of course the soviet union was able just to apply this technique
+
+苏联当然能够运用这种技术
+
+uh this particular technique to develop new and new biological agents
+
+嗯，这项特别的技术来研制新生物制剂
+
+Walt Zimmers
+
+沃尔特·齐默斯
+
+This is a pretty bleak picture
+
+这是一张非常惨淡的画面
+
+as far as I’m concerned with respect to a hypothetical situation
+
+就我所关心的假设情况而言
+
+let’s say where the former soviet union
+
+比如说前苏联在那里
+
+let’s the head let a cloud go over a city
+
+让我们的头上，让乌云笼罩整个城市
+
+of an organism an agent that they had
+
+他们所拥有的生物体
+
+how could that population respond effectively
+
+该人群如何有效应对
+
+to protect themselves against that agent
+
+以保护自己不受那代理的攻击
+
+if in fact what you’re telling me is true
+
+如果实际上你告诉我的是正确的
+
+that antibiotics wouldn’t work
+
+抗生素会是无效的
+
+but the concept of even if people were vaccinated that may not have worked
+
+但是，这个概念是即使人们接种了疫苗，也可能是无效的
+
+what would be what would how would the soviet union have thought
+
+苏联会怎么想
+
+about protecting itself against such agents
+
+关于保护自己免受此类药剂的侵害
+
+and how would you describe a city in the United States
+
+以及您如何描述一个美国城市
+
+as with respect to their capabilities to protect the people against such agents
+
+就他们保护人民免受这种行为者侵害的能力而言
+
+Dr. Alibek
+
+阿里贝克博士
+
+first of all what I’d like to say
+
+首先，我想说的是
+
+of course in many cases we are not talking about
+
+当然，在很多情况下，我们并不是在谈论
+
+what was done what has been done
+
+做了什么，已经做了什么
+
+in many cases we just need to talk about possibility
+
+在许多情况下，我们只需要谈论可能性
+
+and now we are talking about a level of biotechnology
+
+现在我们正在谈论生物技术的水平
+
+and we say this level allows
+
+我们说这个水平允许
+
+just to do a lot in this area
+
+只是在这个领域做很多事情
+
+just to develop a lot of new genetically altered agents
+
+只是为了研制很多新的基因转变剂
+
+Uh, the problem is now
+
+嗯，现在的问题是
+
+of course there is a very serious gap
+
+当然那是一个很大的差距
+
+between what we are doing in the area of developing some
+
+我们在发展一些领域之间所做的事情
+
+by defense medical aspects medical approaches for biodefense
+
+通过国防医学方面的生物防御医学方法
+
+and what was done
+
+以及已经完成了什么
+
+and what could be done in the area of developing biological agents
+
+和在研制生物制剂方面可以做些什么
+
+and biological weapons and probably this way
+
+和生物武器，也许是这种方式
+
+and this approach we use now
+
+我们现在使用的这种方法
+
+of course would never help us to reach
+
+当然绝对不会帮助我们达成目标
+
+just to capture
+
+只是抓住目标
+
+just to uh to find an appropriate solution
+
+只是为了找到合适的解决方案
+
+just how to develop appropriate medical defense products techniques
+
+以及如何开发适当的医疗防御产品技术
+
+and this type of things probably we need to reconsider
+
+而这类事情，我们可能需要重新考虑
+
+whether or not we’ve chosen a right away
+
+我们是否选择了一个正确的方法
+
+in other words just imagine the situation
+
+换句话说，只要想象一下情况
+
+when we’re talking about possible biological agents could be used in biological weapons
+
+当我们谈论有可能的生物制剂可用于生物武器时
+
+dozens even hundreds how many vaccines we need to develop
+
+我们需要研制数十甚至数百种疫苗
+
+in this case how many treatment techniques
+
+在这种情况下多少种治疗技术
+
+and in many cases we just don’t know
+
+而且在很多情况下，我们就是不知道
+
+what kind of genetically altered agent could be developed in the future
+
+将来会发展出什么样的基因转化剂
+
+in this case it’s very difficult to develop a goodbye defense
+
+在这种情况下，进行再见防御是非常困难的
+
+in my opinion there is an approach it’s a long way to go
+
+在我看来，有一种方法，还有很长的路要走
+
+but I’m convinced that it would be the best way
+
+但我坚信这将是最好的方法
+
+we need to start researching our body’s own immune response system
+
+我们需要开始研究人体自身的免疫反应系统
+
+so called  non-specific human response
+
+所谓的非特定性人类反应
+
+just it is a significant scientific discussion
+
+只是一个重大的科学讨论
+
+and probably but in any case
+
+而且可能，但无论如何
+
+and for example if we start discussing this issue
+
+例如，如果我们开始讨论这个问题
+
+and we involved as many as possible scientists to help to develop this approach
+
+并且我们邀请了尽可能多的科学家来帮助开展这种方法
+
+maybe in five   seven ten years we will be able to say
+
+也许在五，七，十年后，我们可以说
+
+we’ve solved this problem and now biological weapons are absolutely useless
+
+我们已经解决了这个问题，生物武器现在完全没有用
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接: https://youtube.be/uFsYOLRA3hY
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – 郭班之樱
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

@@ -1,33 +1,126 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0502IV中共既无妥协机会也无对抗能力,它该结束了
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1166229/)
+## 闫博士谈E蛋白帮助病毒维持神经毒性
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1166219/)
 
-编辑整理：
+字幕内容：
 
-纽约香草山农场：鹰(文言)；多伦多枫叶农场：Winner为自由而战（文祥）；日本东京方舟农场：山川异域
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02232934/%E5%B0%81%E9%9D%A2-4.jpg)
-据[2021年5月2号 文贵直播标题：国内银行倒闭，房地产崩塌，粮食链断裂，国际关系的冰冻效应，中共内部已经认为中共即将终结；以美灭共会最终促成以共灭共的发生，在2022年开始；喜币是金融界的金箍棒](https://gtv.org/video/id=608ea73f6c00a14130e56d95)时间点27：18——
+闫丽梦博士：
 
-所以现在大家看到，各国之间科学家、军事家各种各样的行动，我可以告诉大家，你看我连一次我都不说，那完全是胡球扯呢，就像共产党每天扫黑扫黄一样，他根本不会扫你的黑、扫你的黄，因为他本身就是嫖客、他本身就是黑社会、他扫什么黑？扫什么黄？他只是利用扫黑扫黄来重新换掉替自己执行黑社会命令、替自己选美女和让他自己不仅要拿掉你这个黑黄的钱，还要要了黑黄人的命、杀人灭口的一次一次的机会而已。
+So what I want to comment on it,
 
-这国际上所谓的一系列一波又一波的看着这些对共产党的我们要声讨它呀、我们要制裁它呀，这全是和共产党的扫黑扫黄是一样的道理——完全是虚伪的、完全是掩人耳目的利益勾兑。所有这些科学家他都没用，没有多大用，只不过是一些说白了在这个事儿的问题上，他只是一个具体的小环境和大环境的问题。
+对于这一点，我想说的是
 
-现在作为一个习一坑的中共集权，以及在西方世界经济上的渗透，我可以告诉大家，没有几个人，甚至没有那个国家敢想一想说我跟共产党开一战——几乎都没有。就是他所有人都知道，只要跟共产党讨论这问题就是第三次世界大战，第三次世界大战人类就可能灭亡，几乎这个问题已经完全地笼罩了全世界。就是这个流氓黑社会这共产党已到了什么程度？只要你敢，我虐待十四亿人民、我要问鼎世界之集权，谁敢抗顶我，那你就必死无疑。它已经形成这个世界上一个政治、军事上的影响力。
+I am not neurologist, I just have the medical knowledge about neurology disease.
 
-在这种情况下，我们说幻想着那个国家、那个政府真心地想干掉共产党，那就太天真了。我说最后是以共灭共，没有共产党出来神人是灭不了共产党的。就共产党的高官和共产党的利益集团最了解共产党的弱项在哪里、共产党的死穴在哪里。
+我不是神经科医生，我只是有神经科疾病的医学知识
 
-某位中共的要员头两天私下里面聚会的时候说过一个精彩的话，大家都听的很熟悉，但是他说得非常明白，他说从毛泽东到邓小平到江泽民，他说当整个国际社会环境和国内环境产生本质变化后，对待中国共产党只有两个极端的选择——一个选择完全妥协、一个选择与世界为敌。
+But what I have pointed in my third report and also in my first report, I can use it as smoking gun.
 
-他说今天的中国，既没有妥协的机会，也没有与世界为敌的能力，他说结局想象而知，可想而知。当然他不提习本人，他也不敢提。在坐的几个人都频频的点头哇，没有多言。说那我们现在时代进入了什么篇章？老首长，进入了什么篇章？听说这位半天不语，最后说了一句，他说共产党跟这个国际气候和中国人现在所追求的未来的生活方式，或者真要实现中国梦的话，已经成了生死对决的巨大冲突的时刻。他说我们这辈子很不幸的将看到最终的结局。（举起大拇指）高！共产党到了结束的时候了。
+但正如我在第三份报告和第一份报告中指出的那样，我可以把它当作确凿的证据
 
-接上文——
+is envelop protein, E protein, in SARS-Covid 2,
 
-[郭先生0502I中共用温水煮青蛙的方式开始铺垫银行的倒闭](https://gnews.org/zh-hans/1165675/)
+就是E蛋白，SARS-Covid 2中的E蛋白
 
-[郭先生0502II在2020年中共已经消失剩下的就是物理上的消灭](https://gnews.org/zh-hans/1165954/)
+it’s hundred percent identical as it as the back born, Zhou Shan Conoravirus
 
-[郭先生0502III比物理灭共更重要的不承认中共的时刻已到来](https://gnews.org/zh-hans/1166160/)
+可以100%完全确认SARS-Covid 2使用舟山蝙蝠冠状病毒作为骨架
+
+First, this is the evidence. It comes from the Zhou Shan bat conoravirus, which is somehow, completely cab into SARS Covid 2.
+
+首先，这是证据。该E蛋白来自舟山蝙蝠冠状病毒，不知何故，它完全被发现在SARS Covid 2 病毒里
+
+Because if it is going through the spices that’s a kind of host changing, jump from bat to animal to animal to human
+
+因为如果它经过物种间传代，那就是一种从蝙蝠到动物再到动物再到人类的宿主
+
+definitely, that we would see the change, because they already observed the change
+
+当然，我们会看到这种变化，因为他们在人类大流行最早的时候
+
+during the earliest the pandemic in human.
+
+就已经观察到了这种变化
+
+And second thing is why do they keep it, because this is smoking gun,
+
+第二个问题是，中共为什么要对此守口如瓶，因为它是确凿证据
+
+since I write this problem from last year 19th January, with Youtube.
+
+因为我在去年1月19日用YouTube写了这个问题
+
+China had done a quickly get response and later they even locked down.
+
+中共很快就做出了反应，后来他们甚至封锁了E蛋白的信息
+
+Because they know someone released the real information of this bio-weapon.
+
+因为他们知道内部有人泄露了这种生物武器的真实机密
+
+But why until now, no scientist there to touch this E protein issue to argue with me.
+
+但是为什么到目前为止，还没有科学家触及到这个E蛋白的问题，他们也没有来和我争论这个E蛋白的问题？
+
+And even Shi Zhengli, and their like the Chinese Military Academy,
+
+就连shizhengli, 像那些中国军事医学院的学者们
+
+they have developed a lot of novel fabricated too naughty virus, including from bat from Pangolins,
+
+他们已经合成出了很多新奇的病毒，包括从蝙蝠身上，从穿山甲身上，
+
+which all have the identical E protein in those fabricated sequence.
+
+它们在构建的序列中都有相同的E蛋白。
+
+What do they want to hide?
+
+他们想隐瞒什么？
+
+Then lets we back to check E protein’s function.
+
+然后我们再回来检查一下E蛋白的功能
+
+Yes it ‘s not clearly investigated , but we know it’s important for virus fabrication
+
+是的，它还没有得到明确的调查，但我们知道它对病毒的合成至关重要
+
+as some other important part in the Coronavirus
+
+作为冠状病毒的其他重要组成部分
+
+But it’s also have another function what
+
+但是它还有另外一个功能，那就是
+
+discovered and actually my ex-lab in the University of Hong Kong,
+
+在我之前工作的香港大学的实验室
+
+it’s the lab get involve to discover is E protein can have the virus
+
+发现这种E蛋白可以帮助病毒
+
+help the virus maintain the neuronal toxicity
+
+帮助病毒保持其神经毒性
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频连接: [https://rumble.com/vfy3xf-lethal-deception.html](https://rumble.com/vfy3xf-lethal-deception.html)
+
+英听校:康州盘古农场-WZ
+翻译: 康州盘古农场-WZ
+翻译终校: 康州盘古农场-Mike Li
+字幕+视频制作:康州盘古农场-天涯行
+审片: 康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
