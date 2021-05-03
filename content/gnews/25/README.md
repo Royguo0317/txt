@@ -1,39 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 如何理解中共体制下“跳楼后是抑郁症”的现象
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1167165/)
+## 澳洲正在审查中共国在达尔文港的所有权
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1167204/)
 
-撰稿：喜妈
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03064204/301-1.png)网络截图
-最近，天津和平公安分局主任跳楼身亡，官方又是讳莫如深，不予表态。这个已经成为中共体制下官员死亡的常态性事件。我们想要问：如何理解中共体制下“跳楼后抑郁症”的极其普遍的现象呢？
+翻译与评论：Shirley
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03072650/darwen.jpg)网络图片
+澳洲国防部长达顿（Peter Dutton）证实，他的部门正在审查一家中共国公司在达尔文港的所有权问题。达尔文港是一个位于澳洲最北端的、具有战略意义的、有美国海军陆战队基地的港口。
 
-首先，笔者简单做了一个数据的搜寻，发现很难得到近年来中共体制下因为抑郁跳楼死亡的确切数据。一方面当然是当局不让外界知晓，另外一方面的确也不好统计。很多的跳楼事件都是在未通报的情况下就草草了事。可是，即使在笔者不完全的资料中，我们可以推测出一定的背景。
+达顿在周日晚些时候接受《悉尼先驱晨报》采访时说，总理莫里森内阁的国家安全委员会已要求国防部就达尔文港所有权提供建议。当被问及政府是否在酝酿强制撤资时，他说，政府会考虑国家利益。
 
-比如，在2014到2015年间，就有25万党员受到警告或纪律处分，导致此间因为打击腐败运动而受到冲击的官员自杀数量急剧上升。来自香港的统计研究表明，中高级官员自杀率比城镇居民高出30%。 据有学者指出，自杀是中共体制下官员逃避惩罚的选项之一。
+澳洲北领地政府在2015年，将达尔文港租给中共国陆桥集团公司（Landbridge），租期99年，此交易受到了安全专家的批评。
 
-仅仅以习近平上任后为例，2016年的报道称中共体制下官员的自杀率飙升，比胡锦涛时代多一倍。这是非常惊人的。这也形成了民间所传，在中共当官，是高危职业的笑谈。从2012年习当政后，曾经一年半时间官员自杀或“非正常死亡”达到120人，比胡锦涛时代的68个远远超出。
+达顿发誓要更公开地谈论中共国的侵略行为，比如澳洲的网络系统是如何”受到攻击”的。澳洲必须要保卫其非常重要的北部和西部水域免受侵犯，所以达尔文港尤其显得重要。
 
-事实上，从文贵先生发起爆料革命之后，在这几年内，我们能听到的官员自杀或跳楼的事件比比皆是。我们虽然得不到全面的数字，有一点却是非常明确的：这就是一个吃人的体制。这个中共体制对一般百姓是无比压迫，对其巨大绞肉机中的每个零件，也是一样的下场。
+澳洲联邦政府上个月使用新的《对外关系法》，取消了中共国与维州政府的 “一带一路 “协议，引发了中共国的不满。有关达尔文港的决定，必然会进一步加剧澳洲与中共国之间的紧张关系。相信在达尔文港之后还会有纽卡斯尔港、西澳的工程项目等等，最后就是澳洲与中共国彻底脱钩。
 
-我们来理解中共体制下“跳楼后是抑郁症”的现象，说明了体制吃人，害人，而且还要粉饰自己为毫无责任的可怕和无耻。那些被反腐反贪，被双规的官员们，都是没有后台所保，或者后台失势，或者成为主子的弃子，都是内部争斗的牺牲品。笔者认为，那些在体制内的还未有警觉的官员们，自己都要好好想想，你能保自己一生平安否？明天跳楼的，抑郁的，会不会是自己？
+中共国在香港问题上单方面撕毁国际上公认的《中英联合声明》，让全世界认识到中共国是不守信用的，可以单方面撕毁任何协议。如果一个国家因为不执行合同失去了信誉，所谓的朋友如俄罗斯、伊朗以及小三胖等，都不过是酒肉朋友罢了，到了关键时刻都将是背后捅刀子的。
 
-每次听到看到这样的跳楼或抑郁死的官员，我们的心情很复杂。虽然这些官员自己也不干净，很多也有违法行为，可是他们命不该绝，至少不该这样死。一个法治的社会下，任何犯罪的人，也应该有他的权力和起码的人格。这也是文贵先生一直强调的，一个人有罪，你可以审判他，定罪他，但是你不能不审就定罪，无罪加罪等等。
+同时，中共国残忍地杀害香港热爱自由的年轻人，也让西方自由世界意识到中共国的杀掠本性。面对中共霸凌，自由世界为了保护自己的利益，第一件要做的事，就是将流氓中共扫地出门。
 
-更加重要的是，我们必须知道，最大的恶，在中共体制。一个只有人治没有法治的体制和社会，人人都是牺牲品。为了一个健全和有尊严的社会，我们只有一个选择，take down CCP.
+郭先生说过，香港是灭共的第一道大门。透过香港事件，全世界都醒了，认识到了中共无耻与邪恶的本质，别无选择，全世界只能团结起来共诛之。中共命不久矣！
+（本文仅代表个人观点）
 
-（本文纯属个人观点）
+参考链接：
 
-*审核：**Runaway 编辑：MG1*
+[https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.html](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
 
-参考资料：
+[https://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-says](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
 
-[https://www.epochtimes.com/gb/21/5/1/n12918289.htm](https://www.epochtimes.com/gb/21/5/1/n12918289.htm)
+[https://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
 
-[https://news.sina.cn/gn/2015-01-31/detail-ichmifpx6287950.d.html](https://news.sina.cn/gn/2015-01-31/detail-ichmifpx6287950.d.html)
+*审核&编辑：Runaway*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
 
-[https://business.sohu.com/20150302/n409272505.shtml](https://business.sohu.com/20150302/n409272505.shtml)
 
-[中共官员自杀率飙升比胡锦涛时代多一倍 (rfi.fr)](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20160629-%E4%B8%AD%E5%85%B1%E5%AE%98%E5%91%98%E8%87%AA%E6%9D%80%E7%8E%87%E9%A3%99%E5%8D%87%E6%AF%94%E8%83%A1%E9%94%A6%E6%B6%9B%E6%97%B6%E4%BB%A3%E5%A4%9A%E4%B8%80%E5%80%8D)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2-1.jpg)
 0

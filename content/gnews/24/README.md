@@ -1,38 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲正在审查中共国在达尔文港的所有权
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1167204/)
+## 中共国监管机构约谈金融网络平台公司预示“国进民退”加剧
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1167203/)
 
-翻译与评论：Shirley
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03072650/darwen.jpg)网络图片
-澳洲国防部长达顿（Peter Dutton）证实，他的部门正在审查一家中共国公司在达尔文港的所有权问题。达尔文港是一个位于澳洲最北端的、具有战略意义的、有美国海军陆战队基地的港口。
+撰稿：三只松鼠
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03072049/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2021-05-03-211709-2.png)图片来自网络截图
+3月18日，中共网信办针对语音社交软件问题，曾“集体约谈”映客（直播App）、小米、快手（短影音平台）、字节跳动（抖音母公司）、鲸准数服（股权投资融资平台）、云账户、喜马拉雅（音频分享平台）、阿里巴巴、网易云音乐、腾讯、去演（换脸神器）等11家互联网企业。
 
-达顿在周日晚些时候接受《悉尼先驱晨报》采访时说，总理莫里森内阁的国家安全委员会已要求国防部就达尔文港所有权提供建议。当被问及政府是否在酝酿强制撤资时，他说，政府会考虑国家利益。
+经过四个多月的调查，4月10日认定阿里巴巴违反中共“反垄断法”，处以182亿元人民币巨额罚款。
 
-澳洲北领地政府在2015年，将达尔文港租给中共国陆桥集团公司（Landbridge），租期99年，此交易受到了安全专家的批评。
+4月13日，中共市场监管总局、网信办、税务总局联合召集34家互联网企业召开“互联网平台企业行政指导会”，会上要求这些企业“在一个月内全面自检自查，逐项彻底整改”，一个月后有被重罚的风险。
 
-达顿发誓要更公开地谈论中共国的侵略行为，比如澳洲的网络系统是如何”受到攻击”的。澳洲必须要保卫其非常重要的北部和西部水域免受侵犯，所以达尔文港尤其显得重要。
+4月26日，习近平在广西柳工集团考察时说“加强党对国有企业的全面领导”。
 
-澳洲联邦政府上个月使用新的《对外关系法》，取消了中共国与维州政府的 “一带一路 “协议，引发了中共国的不满。有关达尔文港的决定，必然会进一步加剧澳洲与中共国之间的紧张关系。相信在达尔文港之后还会有纽卡斯尔港、西澳的工程项目等等，最后就是澳洲与中共国彻底脱钩。
+4月29日，人民银行、银保监会、证监会、外汇局等金融管理部门以“反垄断和防止资本无序扩张”名义约谈了腾讯、度小满金融、京东金融、字节跳动、美团金融、滴滴金融、陆金所、天星数科、360数科、新浪金融、苏宁金融、国美金融、携程金融等13家网络平台企业实际控制人或代表。
 
-中共国在香港问题上单方面撕毁国际上公认的《中英联合声明》，让全世界认识到中共国是不守信用的，可以单方面撕毁任何协议。如果一个国家因为不执行合同失去了信誉，所谓的朋友如俄罗斯、伊朗以及小三胖等，都不过是酒肉朋友罢了，到了关键时刻都将是背后捅刀子的。
+金融监管部门称“网络平台企业在提升金融服务效率和金融体系普惠性、降低交易成本方面发挥了重要作用，发展的总体态势是好的”，“但同时也普遍存在无牌或超许可范围从事金融业务、公司治理机制不健全、监管套利、不公平竞争、损害消费者合法权益等严重违规问题”。
 
-同时，中共国残忍地杀害香港热爱自由的年轻人，也让西方自由世界意识到中共国的杀掠本性。面对中共霸凌，自由世界为了保护自己的利益，第一件要做的事，就是将流氓中共扫地出门。
+监管部门提出了七大整改要求，包括“全部纳入金融监管，金融业务必须持牌经营”等；并称“一视同仁对各类违法违规金融活动零容忍”。
 
-郭先生说过，香港是灭共的第一道大门。透过香港事件，全世界都醒了，认识到了中共无耻与邪恶的本质，别无选择，全世界只能团结起来共诛之。中共命不久矣！
-（本文仅代表个人观点）
+从之前文贵先生的爆料中我们知道，阿里巴巴的背后是江家的身影，江志成的“博裕资本”是阿里巴巴的股东之一。大家再看看以上这些行业内巨头企业，哪一个背后没有盗国贼集团的身影。金融监管部门称“普遍存在无牌或超许可范围从事金融业务”，为什么之前不进行整顿，还违规经营这么久？他们之前肯定清楚这些企业背后的背景，不敢轻易得罪。另外现在肯定是得到最高层指示，才敢“一视同仁对各类违法违规金融部门零容忍”。近期如此频繁地对这些金融网络平台公司进行整顿加巨额罚款，首先说明中共内部斗争的加剧，新一轮内部清洗即将来临。能拿钱消灾的赶快拿钱，该递交投名状的赶快递交投名状，继续顽抗的就等着挨刀吧！
 
-参考链接：
+其次，最高层这样做的目的“醉翁之意不在酒”，上述企业大都也是数据平台民营公司。随着中共数字货币的强行推广，也需要大量的数据支撑。之前的蚂蚁金服的支付宝和腾讯的微信支付几乎占据了所有的移动支付市场。所以，当局迫切需要将这些数据平台公司收归国有，建立一个由中共掌控的新的数据市场，从而梦想在未来控制世界经济。这点在路德社节目中也有披露。目前，中共官员也正在对数据所有权进行立法，将这些金融网络平台公司国有化指日可待。中共国的“国进民退”的闹剧正在进一步上演。
 
-[https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.html](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
+（本文纯属个人观点）
 
-[https://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-says](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
+*审核：**Runaway 编辑：MG1*
 
-[https://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
+参考资料：[https://www.epochtimes.com/gb/21/4/29/n12914338.htm?utm\_source=dable](https://www.epochtimes.com/gb/21/4/29/n12914338.htm?utm_source=dable)；
 
-*审核&编辑：Runaway*
-![]()![](https://gnews.org/wp-content/uploads/2021/04/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
-
-
+[https://www.epochtimes.com/gb/21/4/23/n12901112.htm?utm\_source=dable](https://www.epochtimes.com/gb/21/4/23/n12901112.htm?utm_source=dable)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2-1.jpg)
 0
