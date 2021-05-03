@@ -1,38 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲正在审查中共国在达尔文港的所有权
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1167204/)
+## 中共国无力摆脱对澳洲铁矿石的依赖
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1167295/)
 
-翻译与评论：Shirley
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03072650/darwen.jpg)网络图片
-澳洲国防部长达顿（Peter Dutton）证实，他的部门正在审查一家中共国公司在达尔文港的所有权问题。达尔文港是一个位于澳洲最北端的、具有战略意义的、有美国海军陆战队基地的港口。
+拟稿：金生水
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03082232/coal.jpg)图片来自网络
+澳大利亚战略政策研究所在5月3日的一篇分析中指出中共国钢铁业将铁矿石价格飞涨的原因归结于澳大利亚铁矿的集中拉升价格，并呼吁中共国政府干预。
 
-达顿在周日晚些时候接受《悉尼先驱晨报》采访时说，总理莫里森内阁的国家安全委员会已要求国防部就达尔文港所有权提供建议。当被问及政府是否在酝酿强制撤资时，他说，政府会考虑国家利益。
+中共国钢铁协会副会长罗铁军在上周的一次行业会议上说：“我们认为供应方高度集中，市场机制不起作用，因此我们呼吁当局在市场失灵的情况下发挥更大的作用。” 现实情况是，市场运作良好，而中共国当局影响该市场的能力比罗铁军想象的要小得多。
 
-澳洲北领地政府在2015年，将达尔文港租给中共国陆桥集团公司（Landbridge），租期99年，此交易受到了安全专家的批评。
+过高的铁矿石价格反映了中共国自身铁矿石开采效率的低下，而并非是中共当局所谓的澳洲主要矿业公司对市场的垄断行为。必须让中共当局意识到，尽管他们决心惩罚澳大利亚犯下的许多所谓的“罪行”，发起对澳洲进口商品的抵制，但他们从澳大利亚的年度进口仍接近创纪录水平，并有可能超过去年上半年达到的1500亿美元的峰值。
 
-达顿发誓要更公开地谈论中共国的侵略行为，比如澳洲的网络系统是如何”受到攻击”的。澳洲必须要保卫其非常重要的北部和西部水域免受侵犯，所以达尔文港尤其显得重要。
+铁矿石价格一直逼近每吨200美元的纪录高位，是一年前价格的两倍多，是澳大利亚政府在制定去年预算时所预期的三倍。居高不下的铁矿石价格正在为澳大利亚的矿山带来丰厚的利润，同时也增加了澳大利亚政府的税收收入。必和必拓和力拓的铁矿石开采成本不超过每吨16美元。
 
-澳洲联邦政府上个月使用新的《对外关系法》，取消了中共国与维州政府的 “一带一路 “协议，引发了中共国的不满。有关达尔文港的决定，必然会进一步加剧澳洲与中共国之间的紧张关系。相信在达尔文港之后还会有纽卡斯尔港、西澳的工程项目等等，最后就是澳洲与中共国彻底脱钩。
+在铁矿石市场上，成本最高的生产商都来自中共国。中共国通常占据全球铁矿石海运贸易的70％左右，即约10亿吨，但仍有9亿吨的铁矿石缺口需要通过国内生产来完成。然而，中共国约75%的国内生产需要至少每吨100美元的价格才能运作，一些矿山的收支平衡阈值远高于此。中国的铁矿石储量低，需要昂贵的热处理才能将其送入钢厂。 2015年产量达到15亿吨的峰值，但由于该行业经济状况不佳以及政府为阻止对环境造成破坏的浅带开采而做出的努力，产量已经下降。
 
-中共国在香港问题上单方面撕毁国际上公认的《中英联合声明》，让全世界认识到中共国是不守信用的，可以单方面撕毁任何协议。如果一个国家因为不执行合同失去了信誉，所谓的朋友如俄罗斯、伊朗以及小三胖等，都不过是酒肉朋友罢了，到了关键时刻都将是背后捅刀子的。
+尽管中共国为煤矿的高运营成本设定了定价下限，但市场为应对中共病毒大流行引发的需求激增，该需求是指在中共国乃至世界范围内受到政府刺激支出的建筑和消费品行业。
 
-同时，中共国残忍地杀害香港热爱自由的年轻人，也让西方自由世界意识到中共国的杀掠本性。面对中共霸凌，自由世界为了保护自己的利益，第一件要做的事，就是将流氓中共扫地出门。
+澳大利亚一直供应世界铁矿石贸易的60％，预计今年的出口量将达到9亿吨。中共国一直在从可能获得铁矿石的地方尽可能的大量采买，包括从印度购买的铁矿石增加一倍。但是，印度出口铁矿石量一年为3000万吨，仅仅是边缘供应国。
 
-郭先生说过，香港是灭共的第一道大门。透过香港事件，全世界都醒了，认识到了中共无耻与邪恶的本质，别无选择，全世界只能团结起来共诛之。中共命不久矣！
-（本文仅代表个人观点）
+与此同时，中共国近年来一直在非洲建设铁矿石开采项目，希望通过非洲来摆脱对澳洲铁矿石的依赖。但因为地缘政治，运输成本和项目规模等原因无法实质性地改变中共国乃至全世界对澳大利亚的依赖。
+
+中共国钢铁协会要求当局对铁矿石价格飙升采取某些措施，这反映了他们对2008-09年铁矿石价格飙升的反应，这是中共国政府为应对全球金融危机而采取的刺激性支出所致。多年以后，他们故技重施，开始指责澳大利亚生产商。
+
+由此可见，中共国无力摆脱对澳洲铁矿石的依赖，这是从其自身经济角度上来说的。其发展过于依赖建筑行业，如果其产业结构无法转型或者出现革命性的创新，那么无论是短期还是长期这种现状都无法改变。
+
+文章内容仅代表个人观点
 
 参考链接：
 
-[https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.html](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
 
-[https://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-says](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
 
-[https://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
+> [No end in sight for China’s dependence on Australian iron ore](https://www.aspistrategist.org.au/no-end-in-sight-for-chinas-dependence-on-australian-iron-ore/)
+
+
 
 *审核&编辑：Runaway*
 ![]()![](https://gnews.org/wp-content/uploads/2021/04/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
-
-
 0
