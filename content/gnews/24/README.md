@@ -1,9 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德简报】5/2/2021晚：习近平下令与美国争夺全球媒体话语权
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1166571/)
+## 中共或俄罗斯可能在白宫附近进行微波武器攻击
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1166593/)
 
-**编辑：华盛顿DC农场 路德简报项目组**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03013042/20210502-2-scaled.jpg)
-+1
+4/29/2021 过去两年在白宫附近曾发生至少两起微波武器攻击，罪魁祸首可能是中共或俄罗斯，在古巴、中共国和俄罗斯的美国官员也遭到类似袭击，症状包括眩晕和剧烈头痛；人民大学教授金灿荣炫耀解放军在边境冲突中对印度士兵使用微波武器。
+
+By： 【秘密翻译组 G-Translators】
+
+0

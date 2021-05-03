@@ -1,45 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新型冠状病毒危机下疫苗供应短缺，拜登实施印度旅行禁令
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1166861/)
+## 回应《卫报》对爆料革命的不实报导
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1167066/)
 
-翻译：康州盘古农场 – KY
-校对：康州盘古农场 – Mike Li
-编辑：康州盘古农场 -格格巫
+作者：红胡子
 
-据《零对冲》作者： TYLER DURDEN，时间：2021年4月30日星期五发布
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03053741/050312.png)图片：郭文贵先生在向班农先生介绍中共的超限战战略和意图
 
-本周末，印度的COVID-19形势继续恶化，该国周五又报告了每天近40万（38.66万）新确诊的COVID-19病例，创下了另一个新的记录，同时有超过3千人新增死亡。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03043751/6CD682F0-A5C7-49C0-842F-8B9136885AF6.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03043810/894298A1-4928-402D-B166-729FA3DDA03A.png)
-而在印度多个州因供应短缺关闭了疫苗接种点，路透社报道说，据白宫消息灵通人士透露，总统乔-拜登预计将从周二开始对印度实施新的旅行限制，禁止大多数非美国公民进入美国。
+英国《卫报》4月30号，发表了由詹森·威尔逊撰写的一篇关于法轮功新闻传媒的文章。在文章中作者歪曲事实、胡乱猜测，毫无根据地抹黑郭文贵先生、班农先生、G-news、以及《班农战斗室》。美国传播策略师和政治顾问，[杰森·米勒](https://en.wikipedia.org/wiki/Jason_Miller_%28communications_strategist%29)，在他的推特上对这篇新闻的评论是：“《卫报》已沦为中共大外宣宣传口，只会替中共搬运文字，并利用美国极左翼“媒体监督组织”为其背书”。[查看米勒的推特](https://twitter.com/jasonmillerindc/status/1388141069859266562?s=21)
 
-该官员说，新的限制措施是根据CDC的建议实施的，”鉴于COVID-19病例数特别多，而且有多个病毒的变种在印度传播”。预计将于周五正式宣布，该政策将于5月4日星期二生效。
+该篇文章中，作者全文单单引用极左翼“[媒体监督组织](https://en.wikipedia.org/wiki/Media_Matters_for_America)”（Media Matters for America）总裁兼首席执行官[安杰洛·卡鲁松](https://www.linkedin.com/in/angelo-carusone-48319724)的个人极端观点，来歪曲报道法轮功相关传媒，并同时含沙射影地抹黑郭文贵先生、班农先生、G-news、以及《班农战斗室》，歪曲爆料革命对新冠病毒溯源的事实。
 
-作为提醒，以下是乔-拜登在2020年3月对飞行禁令的看法。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03043819/B2D7324E-4528-4A46-8509-B68226371D88.png)
-这话说得不好听。该政策意味着大多数非美国公民如果在过去14天内去过这些国家，现在还包括印度，就没有资格去美国旅行，中国和伊朗也都在该政策范围内。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03044121/B105CEE1-9A49-45AA-B8DB-B2E5A22B0043.png)
-拜登在1月份对最近去过南非的大多数非美国公民发布了类似的入境禁令。他还对几乎所有去过巴西、英国、爱尔兰和欧洲26个开放边界的国家的非美国旅行者重新实施了入境禁令。
+文章首先说：“尽管没有直接证据，但法轮功传媒已经向郭文贵先生和班农先生显示出了好感”。既然没有证据，那就是作者的个人猜测，所以这完全是一种暗示，作者威尔逊在向读者暗示，法轮功与两位先生有合谋编造谎言之嫌。事实上，在反击中共的行为上，前后两者的确一致，并且在各自的新闻和广播节目中也曾相互引用对方的新闻，但双方在资金和情报上没有任何合作，所以谈不上合谋，最多只能说双方愿景一致。对于是否编造谎言，作者威尔逊则完全没有弄明白，郭文贵先生和班农先生是当前国际形势发展和变化的重要推动者，而非只是做宣传。他们在各自节目中传达的信息都与当时正在发生的真实事件相关联，其中一些事件尘埃落定呈现在公众面前，已经得到验证，而另一些则正在发生，其结果取决于对事件的推动与事件的发展。
 
-与此同时，印度，这个拥有比世界上任何其他国家都要多的疫苗生产能力的国家。据报道已经用完了疫苗，导致报名参加疫苗接种的居民无法得到疫苗。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03044112/2D23E619-647D-466E-92B7-15BF60ED5496.png)
-疫苗短缺正在破坏从星期六开始扩大加强疫苗接种量的计划。孟买政府宣布，由于“疫苗库存不足”，该市的94个疫苗接种中心将从周五至周日关闭。其他地方也出现短缺，包括新德里和其他州。
+文章接着说，郭文贵先生通过咨询合同和捐款资助班农先生，但没有提到消息来自何处。据本文作者了解，文贵先生与班农先生没有任何合同或约定，文贵先生的直播也对此有过声明。对于捐款，班农先生曾出任过《[法治基金](https://rolfoundation.org/)》董事，但他不是受资助方，也未曾享用或挪用过基金捐款为己私用。《法制基金》全面接受美国法律全面监管，但至今未有任何关于《法制基金》的任何案件，所以所谓“捐款资助”也是威尔逊无中生有地捏造是非。
 
-在印度14亿人口中，只有约9%的人接种了第一针疫苗。由于缺乏原材料以及制造阿斯利康疫苗的血清研究所发生火灾，印度一直在努力将产能提高到每月8000万剂以上。
+文章最后无端指责，郭文贵先生和班农先生在 [G-News](https://gnews.org/category/guo_us/)和《[班农战斗室](https://americasvoice.news/playlists/the-war-room/)》散播和指控，新冠病毒全球大流行是由中共国政府故意释放的生物武器所致。郭文贵先生和班农先生，的确在G-News和《班农战斗室》一遍又一遍、不断地的告诫世人“新冠病毒”的真相 —— 中共超限战生物武器；并揭露该武器正与替中共说话的各国主流媒体配合，在主流媒体对真相的掩盖和误导下，打击各国的经济和卫生系统，试图瓦解西方国家的文明基石 —— 民主和自由；并在全球大力推行中共的独裁模式，以实现中共统治世界的霸业。目前，两位先生的行动已经在全球各国唤醒无数正义之士，正义的力量正在以超乎想象的速度集结，形成超乎中共想象的对抗力量，中共也已经开始为之恐惧。
 
-当然，在印度各州耗尽疫苗的同时，美国的许多州也在看着未使用的疫苗堆积如山。
+郭文贵先生和班农先生揭露的病毒真相，并非毫无根据，而是来自准确和严谨的科学调查与报告。最重要的科学报告出自华人病毒科学家[闫丽梦博士](https://twitter.com/drlimengyan1?s=11)。闫博士在2019年底，武汉爆发新冠初期，参与香港大学对新冠的秘密调查，并根据掌握的新冠病毒第一手资料，在2020年1月19号，通过《路德访谈》节目向全球预警新冠病毒的全球大流行。2020年4月，闫博士被从香港解救到美国。自2020年9月以来，闫博士在[zenodo](https://en.wikipedia.org/wiki/Zenodo)上发表了四篇学术报告，分别从：病毒骨架、ACE2受体亲和力，E蛋白，等各个方面，分析 论证：新冠病毒（COVID-19）来自于中共生化实验室；是中共军事医学院通过基因重组技术研发的超限战生物武器；新冠大流行是中共故意发动的生化超限战。直至目前，没有任何人或组织能驳斥闫博士的科学报告。以下链接是闫博士的四篇科学报告：
 
-本周总死亡人数已超过20万，病例接近1,900万，仅2月以来就有近800万新病例，因为变异毒株和一些“超级传播者”事件—政治集会和印度教宗教庆祝活动被认为引发了最近的病例上升。医学专家说，实际数字可能比官方统计数字高5到10倍。病人一直在乞求医院床位，而氧气瓶则很稀缺，很珍贵。
-
-其他国家也对印度实施了类似的旅行限制，包括英国、德国、意大利和新加坡，而加拿大、香港和新西兰已经暂停与印度的所有商业旅行。
-
-原文链接：[https://www.zerohedge.com/markets/biden-bans-travel-between-us-and-india-covid-crisis-causes-states-run-out-vaccines](https://www.zerohedge.com/markets/biden-bans-travel-between-us-and-india-covid-crisis-causes-states-run-out-vaccines)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+- 第一份闫博士论文：[https://zenodo.org/record/4028830#.YGc-meT3aEc](https://zenodo.org/record/4028830#.YGc-meT3aEc)
+- 第二份闫博士论文：[https://zenodo.org/record/4073131#.YGc-d-T3aEc](https://zenodo.org/record/4073131#.YGc-d-T3aEc)
+- 第三份闫博士论文：[https://zenodo.org/record/4650821#.YGc-7-T3aEe](https://zenodo.org/record/4650821#.YGc-7-T3aEe)
+- 第四份闫博士论文：[https://zenodo.org/record/4448499#.YGc\_nOT3aEc](https://zenodo.org/record/4448499#.YGc_nOT3aEc)
 
 
+威尔逊，在此文中歪曲事实，通过毫无根据的猜测误导读者， 抹黑郭文贵先生、班农先生、G-News、《班农战斗室》。文章论据、观点单一，完全没有说服力，替中共脱罪的意图非常明显。威尔逊为中共脱罪的文章绝非一篇，他发表于《卫报》的文章“[因麦康奈尔的抗议，冠状病毒经济救济谈判恢复](https://www.theguardian.com/us-news/live/2020/oct/20/donald-trump-joe-biden-us-elections-debate-coronavirus-covid-19-fauci-live-updates)”替中共脱罪拜登硬盘门事件；“[为什么特朗普的媒体盟友在新冠大流行中转而反对福西?](https://www.theguardian.com/us-news/2020/apr/07/fox-news-coronavirus-trump-media-allies-turn-against-fauci)”攻击班农，替福奇和中共脱罪；“[右翼如何应对冠状病毒：否认、现实主义还是危险的对立主义](https://www.theguardian.com/commentisfree/2020/apr/07/how-the-right-is-responding-to-the-coronavirus-denial-realism-or-dangerous-contrarianism)”指责班农把新冠爆发怪罪与中共。由此可见，威尔逊与中共的合作由来已久。然而，英国著名的《卫报》能让这些文章发表，则更让人惋惜，《卫报》昔日的伟大也不能让它摆脱沦落为中共红色恶魔宣传工具的厄运。这更加警示世人，中共红色恶魔就在身边。
+
+世界需要真相，爆料革命为真不破。加入爆料革命唤醒中华民族、唤醒世界。
+
+[援引原文](https://www.theguardian.com/us-news/2021/apr/30/falun-gong-media-epoch-times-democrats-chinese-communists)
+
+审核校对：鲁邦五世
+上传排版：糖果儿
 
 0

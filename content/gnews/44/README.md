@@ -1,126 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士谈E蛋白帮助病毒维持神经毒性
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1166219/)
+## 复星和京东考虑为海航收拾残局
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1166372/)
 
-字幕内容：
+**撰稿：脐橙君**
 
-闫丽梦博士：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03003539/%E4%B8%8B%E8%BD%BD.jpg)
 
-So what I want to comment on it,
+据早报报道，知情人士透露，复星集团和京东旗下企业正考虑投资海航集团的国内业务。
 
-对于这一点，我想说的是
+而彭博社今天（3日）也报道，匿名知情人士披露，中国平安保险、吉祥航空和中国国际航空也就海航的资产进行研究。任何交易都可以达到数十亿美元。
 
-I am not neurologist, I just have the medical knowledge about neurology disease.
+知情人士称，一些竞标者可能在竞标投资项目方面展开合作，任何潜在交易架构尚未敲定。而且现在处在商议阶段，并不确定潜在投资者是否会提出实质献议。
 
-我不是神经科医生，我只是有神经科疾病的医学知识
+**评论**：海航今年亏损600多亿，究竟钱去了哪里？在内部被掏空以后，留了一个徒有虚名的外壳，现在这个外壳还要最后榨取一票，背后的交易和安排，实在不得不感叹海航的背景和实力。复星集团和京东都是民营企业背景，其创始人在业内也是绝对的寡头地位，像这样的企业，要花巨资去投资一家被掏空的破产企业，背后的逻辑实在有违常理。
 
-But what I have pointed in my third report and also in my first report, I can use it as smoking gun.
+一种原因，价格十分诱人，具备投资的潜质。另一个原因，替真正的背后老板解套，完成金蝉脱壳的最后一步。中共国的经济情况，相信本就是企业家的郭广昌和刘强东再清楚不过的了，此时大规模投资，不是一个理智的行为。但第二种可能的概率就一下子上升了。因为中共经济已濒临崩溃，那么所谓“赵家人”手中握有的国内资产，就要急于变现，最好的方式就是让民营企业家来买单。如果听话，就乖乖交钱，如果不听话，就等着进监狱，本就满手沾血的民营企业家又怎能从局中脱身呢？这是继对阿里、腾讯开出天价罚单后，又一种变相剥削的“合理”方式。
 
-但正如我在第三份报告和第一份报告中指出的那样，我可以把它当作确凿的证据
+（本文只代表作者观点，与Gnews平台无关。）
 
-is envelop protein, E protein, in SARS-Covid 2,
+**新闻来源**：[消息：复星和京东旗下企业考虑投资海航业务 | 早报 (zaobao.com.sg)](https://www.zaobao.com.sg/realtime/china/story20210503-1143955)
 
-就是E蛋白，SARS-Covid 2中的E蛋白
-
-it’s hundred percent identical as it as the back born, Zhou Shan Conoravirus
-
-可以100%完全确认SARS-Covid 2使用舟山蝙蝠冠状病毒作为骨架
-
-First, this is the evidence. It comes from the Zhou Shan bat conoravirus, which is somehow, completely cab into SARS Covid 2.
-
-首先，这是证据。该E蛋白来自舟山蝙蝠冠状病毒，不知何故，它完全被发现在SARS Covid 2 病毒里
-
-Because if it is going through the spices that’s a kind of host changing, jump from bat to animal to animal to human
-
-因为如果它经过物种间传代，那就是一种从蝙蝠到动物再到动物再到人类的宿主
-
-definitely, that we would see the change, because they already observed the change
-
-当然，我们会看到这种变化，因为他们在人类大流行最早的时候
-
-during the earliest the pandemic in human.
-
-就已经观察到了这种变化
-
-And second thing is why do they keep it, because this is smoking gun,
-
-第二个问题是，中共为什么要对此守口如瓶，因为它是确凿证据
-
-since I write this problem from last year 19th January, with Youtube.
-
-因为我在去年1月19日用YouTube写了这个问题
-
-China had done a quickly get response and later they even locked down.
-
-中共很快就做出了反应，后来他们甚至封锁了E蛋白的信息
-
-Because they know someone released the real information of this bio-weapon.
-
-因为他们知道内部有人泄露了这种生物武器的真实机密
-
-But why until now, no scientist there to touch this E protein issue to argue with me.
-
-但是为什么到目前为止，还没有科学家触及到这个E蛋白的问题，他们也没有来和我争论这个E蛋白的问题？
-
-And even Shi Zhengli, and their like the Chinese Military Academy,
-
-就连shizhengli, 像那些中国军事医学院的学者们
-
-they have developed a lot of novel fabricated too naughty virus, including from bat from Pangolins,
-
-他们已经合成出了很多新奇的病毒，包括从蝙蝠身上，从穿山甲身上，
-
-which all have the identical E protein in those fabricated sequence.
-
-它们在构建的序列中都有相同的E蛋白。
-
-What do they want to hide?
-
-他们想隐瞒什么？
-
-Then lets we back to check E protein’s function.
-
-然后我们再回来检查一下E蛋白的功能
-
-Yes it ‘s not clearly investigated , but we know it’s important for virus fabrication
-
-是的，它还没有得到明确的调查，但我们知道它对病毒的合成至关重要
-
-as some other important part in the Coronavirus
-
-作为冠状病毒的其他重要组成部分
-
-But it’s also have another function what
-
-但是它还有另外一个功能，那就是
-
-discovered and actually my ex-lab in the University of Hong Kong,
-
-在我之前工作的香港大学的实验室
-
-it’s the lab get involve to discover is E protein can have the virus
-
-发现这种E蛋白可以帮助病毒
-
-help the virus maintain the neuronal toxicity
-
-帮助病毒保持其神经毒性
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://rumble.com/vfy3xf-lethal-deception.html](https://rumble.com/vfy3xf-lethal-deception.html)
-
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场-Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片: 康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+***校对发布**：文顾*
 
 0
