@@ -1,38 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲正在审查中共国在达尔文港的所有权
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1167204/)
+## 【各抒己见】期待中共战狼们模仿博鳌亚洲论坛上的王岐山
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1167276/)
 
-翻译与评论：Shirley
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03072650/darwen.jpg)网络图片
-澳洲国防部长达顿（Peter Dutton）证实，他的部门正在审查一家中共国公司在达尔文港的所有权问题。达尔文港是一个位于澳洲最北端的、具有战略意义的、有美国海军陆战队基地的港口。
+作者：喜马拉雅东京樱花团 /待命（文晓）
 
-达顿在周日晚些时候接受《悉尼先驱晨报》采访时说，总理莫里森内阁的国家安全委员会已要求国防部就达尔文港所有权提供建议。当被问及政府是否在酝酿强制撤资时，他说，政府会考虑国家利益。
+![](https://lh3.googleusercontent.com/KQNCmhnBdjvK6gIWkBIeHuXa7wiOVoDR66tyHArc0F2PONHZjdV12bUwYexZ5A16gzAMAqP5Kb-IKYL8jZIczRpgXj7aBoesHSsrNF4oFTHn3O4d1jKZ13IHKhWPkJuWVmua0_L8)
+[图片来源](https://www.google.com/search?q=%E5%A4%96%E4%BA%A4%E9%83%A8%E7%BE%A4%E6%88%98%E7%8B%BC&amp;rlz=1C1SQJL_jaJP828JP828&amp;sxsrf=ALeKk00X-q41f3SDpXPUsWreX1tF3M22cQ:1619699055344&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwiruNiWuaPwAhUOPXAKHdwLAioQ_AUoAnoECAEQBA&amp;biw=1280&amp;bih=599#imgrc=LDA-zQtES3RTzM)
 
-澳洲北领地政府在2015年，将达尔文港租给中共国陆桥集团公司（Landbridge），租期99年，此交易受到了安全专家的批评。
+鬼子六王岐山，在博鳌亚洲论坛开幕式上的讲话，把自己说成“仅仅是来给习主席报幕的”，连嘲带讽了习近平，同时也是推脱责任，告诉世人：“话都是习近平说的、事儿都是习近平定的，不关我什么事儿”。之所以要避嫌、之所以急着撇清自己的责任，爆料革命的战友们最清楚，中共已到了苟延残喘的地步。“鬼子六”知道现在中共干的不是人事儿，被定罪是早晚的事儿。
 
-达顿发誓要更公开地谈论中共国的侵略行为，比如澳洲的网络系统是如何”受到攻击”的。澳洲必须要保卫其非常重要的北部和西部水域免受侵犯，所以达尔文港尤其显得重要。
+那么，“鬼子六”这种认识，这种逃避心里，难道外交部那些战狼们能没有吗？笔者觉得不可能，因为战狼们的国骂工作，至少也得弄清楚挨骂对象、就什么事儿去骂。为此，战狼们应该有远远优越于普通百姓的信息源，应该比老百姓得到的信息更早、更多。从王毅、杨洁篪、华春莹的战狼眼神里，真能看得出敌对挨骂国家的凶光。可笔者看到的诸如赵立坚、汪文斌，以及已经消逝了的耿爽，都是很不自信的、心里没底的、很幼稚的小男孩儿似的眼神，还有文革期间跳忠字舞似的动作。根本不具备大国外交部该有的做派和风范。说不定他们已经在害怕、已经在不知所措、已经在失眠、已经在为自己的将来担忧。耿爽的消失，会不会是他这个红二代家族的力量使然？就像老子找个理由，把孩子从硝烟弥漫的战场上调回来，这都有可能，相信未来的历史会给我们个正确答案。
 
-澳洲联邦政府上个月使用新的《对外关系法》，取消了中共国与维州政府的 “一带一路 “协议，引发了中共国的不满。有关达尔文港的决定，必然会进一步加剧澳洲与中共国之间的紧张关系。相信在达尔文港之后还会有纽卡斯尔港、西澳的工程项目等等，最后就是澳洲与中共国彻底脱钩。
+所以啊，我在盼，盼望战狼们脱口说出“我只是中共外交部的喊话筒，喊什么都不是我能决定的，其实不关我什么事儿”。因为那一天到了，就说明中共内部已经从上到下浑身发抖了，就说明天快亮了。
 
-中共国在香港问题上单方面撕毁国际上公认的《中英联合声明》，让全世界认识到中共国是不守信用的，可以单方面撕毁任何协议。如果一个国家因为不执行合同失去了信誉，所谓的朋友如俄罗斯、伊朗以及小三胖等，都不过是酒肉朋友罢了，到了关键时刻都将是背后捅刀子的。
+*免责申明：本文只代表作者观点，与GNews网站无关。*
 
-同时，中共国残忍地杀害香港热爱自由的年轻人，也让西方自由世界意识到中共国的杀掠本性。面对中共霸凌，自由世界为了保护自己的利益，第一件要做的事，就是将流氓中共扫地出门。
-
-郭先生说过，香港是灭共的第一道大门。透过香港事件，全世界都醒了，认识到了中共无耻与邪恶的本质，别无选择，全世界只能团结起来共诛之。中共命不久矣！
-（本文仅代表个人观点）
-
-参考链接：
-
-[https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.html](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
-
-[https://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-says](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
-
-[https://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
-
-*审核&编辑：Runaway*
-![]()![](https://gnews.org/wp-content/uploads/2021/04/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
-
-
+*校对：喜马拉雅东京樱花团 / 文小白*
+*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
+*发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01183841/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
 0

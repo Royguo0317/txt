@@ -1,48 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【币圈】-数字货币动态-2021.5.03
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1167090/)
+## 澳洲正在审查中共国在达尔文港的所有权
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1167204/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
-![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image5.jpg)
-### 币圈的一天，从“相信”开始。
+翻译与评论：Shirley
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03072650/darwen.jpg)网络图片
+澳洲国防部长达顿（Peter Dutton）证实，他的部门正在审查一家中共国公司在达尔文港的所有权问题。达尔文港是一个位于澳洲最北端的、具有战略意义的、有美国海军陆战队基地的港口。
 
-## **每日一问**
+达顿在周日晚些时候接受《悉尼先驱晨报》采访时说，总理莫里森内阁的国家安全委员会已要求国防部就达尔文港所有权提供建议。当被问及政府是否在酝酿强制撤资时，他说，政府会考虑国家利益。
 
-*投资币圈，是否一直在和风险战斗？*
+澳洲北领地政府在2015年，将达尔文港租给中共国陆桥集团公司（Landbridge），租期99年，此交易受到了安全专家的批评。
 
-## **喜马拉雅Coin要闻**
+达顿发誓要更公开地谈论中共国的侵略行为，比如澳洲的网络系统是如何”受到攻击”的。澳洲必须要保卫其非常重要的北部和西部水域免受侵犯，所以达尔文港尤其显得重要。
 
-- KYC验证正在如火如荼地继续！
-- 邮箱和名字匹配才能显示HCN配额，注意：邮箱字母大小写也要匹配。
-- 资金来源国，尽量先只选税务居民所在国或地区。
+澳洲联邦政府上个月使用新的《对外关系法》，取消了中共国与维州政府的 “一带一路 “协议，引发了中共国的不满。有关达尔文港的决定，必然会进一步加剧澳洲与中共国之间的紧张关系。相信在达尔文港之后还会有纽卡斯尔港、西澳的工程项目等等，最后就是澳洲与中共国彻底脱钩。
 
+中共国在香港问题上单方面撕毁国际上公认的《中英联合声明》，让全世界认识到中共国是不守信用的，可以单方面撕毁任何协议。如果一个国家因为不执行合同失去了信誉，所谓的朋友如俄罗斯、伊朗以及小三胖等，都不过是酒肉朋友罢了，到了关键时刻都将是背后捅刀子的。
 
-## **新闻动态**
+同时，中共国残忍地杀害香港热爱自由的年轻人，也让西方自由世界意识到中共国的杀掠本性。面对中共霸凌，自由世界为了保护自己的利益，第一件要做的事，就是将流氓中共扫地出门。
 
-1. 以太坊于2日早上正式突破3,000美元大关，市值超过BOA。四月份的多项利多都为以太币的上涨提供了关键的助力。其中包括“多伦多证交所上市三个以太币ETF”、“欧洲投资银行计划再以太坊发行两年期的1亿欧元数字债券”、“DeFi总锁定资产价值突破1000亿美元”。
-2. Hotbit公告，交易所被骇。目前该平台已关闭“全部服务”进行检查修复，初步估计耗时7-14天，200万用户遭殃。
-3. 区块链分析公司White Stream认为，土耳其密交所Thodex高层似乎一直在盗取用户资金。从去年8月至今年2月，Thodex将约5000枚比特币发送至Kraken，总价值约1.25亿美元，很可能是Thodex的套现操作。
-4. 官方消息，DeFi项目Spartan表示，Spartan Poolsv1被利用。团队正在研究协议漏洞，尝试将剩余资金退还给相关成员，并与币安合作追回被盗资金。Spartan称，攻击者使用价值6100万美元的BNB，通过目前未知的经济漏洞，从资金池中卷走大约3000万美元的资金。
-5. Coinhills数据显示，当前比特币兑法币交易占比中美元占比降至78.63%，仍排名第一；韩元升至第二，为8.07%；第三欧元占比为6.55%；排名四五位的分别为日元（3.75%）、土耳其里拉（0.86%）。
-6. DeBank数据显示，DeFi总锁仓量于5月2日突破1100亿美元，创历史新高。当前总锁仓量为1112.4亿美元，净锁仓量为790.3亿美元。当前锁仓金额排名前三的DeFi协议分别是PancakeSwap（142亿美元）、Uniswap（103亿美元）、Compound（103亿美元）。
-7. Whale alert数据显示，北京时间5月2日，2亿枚USDT从TetherTreasury转入FTX交易所。
-8. 欧科云链OKLink数据，当前以太坊2.0存款合约地址已收到4102722 ETH，质押量超过410万枚。
-9. 抹茶交易所（MXC）上周二（4/27）晚间8点上架Chia Network原生代币XCH/USDT交易市场。结果开盘就暴涨817％，最高报2751美元。同时Chia也驱动内存市场热度，让威刚4月订单爆增。
-10. NFT交易平台Pandora Protocol近日宣布与区块链通用投资平台OroPocket达成合作，为OroPocket平台的代币化资产提供流动性。因此，用户、投资者或交易者将利用Pandora的中间件流动性解决方案以及跨链交易功能使OroPocket上的资产代币化。
-11. CoinDesk消息，5月2日的比特币采矿难度调整是2021年的第二次向下调整，也是比特币自2020年11月3日的16％下降以来的最大难度修正，降幅为12.6％。降至20.61T。据分析，部分原因是与新疆停电安全检查有关。
-12. 2021年巴菲特股东大会上，当被问及如何评价比特币时，巴菲特拒绝讨论该话题。而芒格则表示他讨厌比特币，因为其整个发展过程与文明的利益背道而驰。
-13. Dailyhodl消息，知名交易分析师CryptoCobain认为，比特币的空头就是以太坊。如果以太坊持续上涨超过比特币的市值，那么可能会损害领先的加密资产的成功，因为长期的BTC所有者会将其持有的资产交易为ETH。
-14. 5月2日，以太坊创始人VitalikButerin在以太坊研究论坛中提出，可基于交互式验证协议Truebit搭建以太坊二层扩容方案OptimisticRollup，以解决重复验证问题，并给出了基本方案。Truebit可以使智能合约以标准的程序语言安全地执行复杂的计算从而降低gas费用，该协议已于4月21日上线以太坊主网。
-15. Sputnik News消息，委内瑞拉总统Nicolas Maduro表示，政府已批准使用Petro加密货币作为计算社会福利金的基础，以解决通货膨胀问题。
-16. 韩联社消息，韩国民主党立法委员5月2日表示，加密货币制度法案内容将很快启动，他计划下周初提出临时提案。据悉，该临时法案规定，在新加密货币发行时，交易所应发布《白皮书》指明发行规模和风险性。另外，将虚拟资产另存于金融机构，以应对诈骗损失的危险，交易所必须验证投资者的实名信息。
-17. 台湾金管会将在 5 月 7 日召开“虚拟通货平台防制洗钱办法”草案会议，招集台湾各大交易所进行讨论。
+郭先生说过，香港是灭共的第一道大门。透过香港事件，全世界都醒了，认识到了中共无耻与邪恶的本质，别无选择，全世界只能团结起来共诛之。中共命不久矣！
+（本文仅代表个人观点）
+
+参考链接：
+
+[https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.html](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
+
+[https://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-says](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
+
+[https://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
+
+*审核&编辑：Runaway*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
 
 
-*编辑：aQ*
-*发布：文顾*
-
-
- 
 0

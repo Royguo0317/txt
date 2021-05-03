@@ -1,63 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙内热搜】西安的哥猝死，交警仍旧贴罚单
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1167730/)
+## 【世事解评】明主已经驾临，知青上山下乡还会远吗？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1167949/)
 
-作者：纽约香草山佛教部     369文驹
+作者：纽约香草山健身部 Ivy001
 
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01223226/logo.jpg)
 
 
 
-据墙媒新浪报道，西安张姓“的哥”猝死在车内，然而车门框上仍旧被交警贴上了罚单。
+在中共国，民主这个词，正在逐渐被“明主”所取代。民主远去，“明主”驾临。
 
-该报道中梳理的事件时间轴表示，5月1日凌晨4时57分，出租车司机张师傅感觉身体不适，便将车辆打着双闪，停靠在了康乐路的双向四车道最右侧。随后，张师傅转至副驾驶位，并放倒座椅躺卧。伴随着呕吐、抽搐等症状，躺卧在副驾驶的张师傅在上午9时42分失去了生理动作反应。37分钟后，交警新城大队警务人员在执勤过程中，发现张师傅的车违法停放。交警在驾驶位B柱处粘贴了违法停车告知单后便离开了，全程没有与车内之人有任何交流的意图。10时43分，群众发现车内人员情况，拨打120，120到达后确认该司机死亡。随后，现场群众报警。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03130409/%E5%9B%BE%E7%89%8757.png)图片来源：网络
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03115746/image-25.png)图片来源：新浪网
+“明主”习皇帝陛下的最爱是什么？当然是文革啦。从现在学生和名人的红军装，到广场舞大妈的忠字舞，到地铁的狂读《毛选》，再到学校的忆苦思甜饭……无一不是文革的配方，文革的味道。
 
-然而，该事件暴露出来的远不是以上冷冰冰的事件经过。
+“明主”习皇帝陛下最骄傲的是什么？必须是“那个时候啊，挑200斤麦子，十里山路我不换肩”。“明主”习皇帝陛下最向往的又是什么？当然是投身到广阔天地的“上山下乡”。
 
-1、既然知道张师傅凌晨4点57分停车打双闪，必然是监控拍到了这一画面。然而，到了10点43分张师傅的情况才被发群众发现，期间经过了近6个小时。停车打双闪意味着车内有情况，这么长时间有监控盯着，但是执法部门却没人理会，也没有巡逻人员上前询问。所谓监控摄像头，到底是用来监视人民的，还是服务人民的？为何对打着双闪近6小时的出租车不闻不问？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03130417/%E5%9B%BE%E7%89%8758.png)图片来源：网络
 
-2、张师傅的车窗是开着的，从车外一眼就能看见里面有人。早上10点30分，意味着已经过了早上的上班高峰期，人来人往，但就是没人关心打着双闪、车里倒下的人！一条活生生的人命就此在冷漠的社会环境中消失，这就是中国的缩影。
+上有所好， 下必甚焉。所以，现在国内一边在党媒上为文革洗白，一边在网络上制造舆论，论证大学开到农村去，大学生到农村去接受教育的美好前景，和美好意义。结论：上山下乡运动必须重启。
 
-3、交警特意给张师傅的车贴了条，面对这样打着双闪的车，交警并不与车内人员有任何沟通意图。如果说交警没看车内情况，那么交警就是只管贴罚单，其他都不管；如果交警看了车内情况，更是见死不救！交警贴罚单创收早已不是新鲜事儿，可是只管经济效益，不管人命，也太残酷了。
+小粉红们，“美好的农村大学”生活即将来临，你们做好准备了吗？曾经当过红卫兵、做过知青的老粉红们，你们的儿女或孙辈即将继承你们的宿命，要到广阔的天地去奋斗啦，你们的心理阴影面积大不大？在世界历史上，还从来没有一个国家和民族，会在短短的几十年时间，掉落同一个大坑里。中共国，你是头一个，而且是唯一的一个。这是国家的悲哀，也是民族的悲哀。自从共产党剽窃了人民的政权后，民族的哀歌在这片苦难之地，一直没有停过。
 
-4、据披露，张师傅家境不富裕，之前一直跑夜班，近几年才转为白班。可是，为何张师傅病发打双闪停车是发生在凌晨4点？凌晨4点是白班吗？简直是睁着眼睛说瞎话！这当中到底有什么隐情？报道还说，张师傅“没有任何慢性疾病，身体一向很好”，可是鉴定结果是“心脏问题猝死”，前后毫无逻辑，自相矛盾。我们有理由相信，张师傅的身体早已透支，但是为了家庭，却不得不继续坚持，再加上这样冷漠的现实，这就是中共统治下的社会冷暖，人间悲剧。
+不彻底灭掉中国共产党，华夏人民就不会有长久的好日子过，华夏大地就不会有长久的安宁和平，华夏民族就不会有希望有美好的未来。必须消灭中国共产党！
 
-中共带给人民的灾难罄竹难书，只有早日推翻中共，这样的人间悲剧才能不再上演。
+[https://3g.163.com/dy/article/G8U92EF90534S70H.html?referFrom=baidu&spss=adap\_dy](https://3g.163.com/dy/article/G8U92EF90534S70H.html?referFrom=baidu&amp;spss=adap_dy)
 
-（本文仅代表作者观点）
+校对/发稿：飞虹
 
-参考阅读：
-
-[西安的哥车内猝死仍被贴罚单](https://news.sina.com.cn/s/2021-05-03/doc-ikmyaawc3256419.shtml?cre=tianyi&amp;mod=pcpager_china&amp;loc=4&amp;r=0&amp;rfunc=63&amp;tj=cxvertical_pc_pager_spt&amp;tr=164)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-
-编辑：369文驹
-
-编辑/校对/发稿：Irene木木
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

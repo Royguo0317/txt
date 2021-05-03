@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【各抒己见】五一劳动节，别再祝我快乐，我一点都不开心
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1167308/)
+## 【各抒己见】致爱我和我爱的战友们
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1167353/)
 
-作者：喜马拉雅东京樱花团 /盐和光
+作者：喜马拉雅日京樱花团 /ThreeColors
 
-![](https://lh5.googleusercontent.com/MyMd_3-4PWabxwDNfJ-Oa2iZFFwbzh5hz-WmibHcfyxE6etdJfa6JgVj36gtF_s-fvNHY21PnkC5V3iLycc0B622rji4lOJxzFgVO_8S18U4KUG2Cc550v4Zkwv59OUuDHtdDh8E)
+![](https://lh5.googleusercontent.com/1BVYFQc5nCMB-QHFwgwzbEaByqN5AutkY52b353o9zZrtlkCdHCjHQ_ZpAYOZtfvO6ESj4zq2olzCLMWnWji0kwAVPp90X8KLpnn32ONRA7FYLFAj3ptjCA-PRZn3mgYI9eEUw2o)
 
-劳动只是为了活着，不存在光荣一说，也不快乐，谁说劳动快乐谁来试试吧！
+感恩感谢爱我和我爱的战友们，让我们互相成就、互相扶持，开心地度过每一秒吧！
 
-当劳动者的薪水只能够糊自己的口而养不起家，那么劳动者就连动物都不如！因为，世上所有动物的劳动所得不但可以喂饱自己，还可以喂饱自己的孩子。
+在樱花团里，我遇到了真诚、刻苦、常熬夜的一群战友！我们互相牵挂着，一起哭一起笑，让我认为原本就“灰常”美好的生活变得更加丰富多彩起来。
 
-当劳动者用尽他毕生的劳动也买不起一个安身立命遮风避雨的窝，那么劳动者就连小小的麻雀都不如！因为，小小的麻雀用自己一生劳动成果的千份之一，就能做到为自己搭建起一家人所能享受的安乐窝。
+我还记得有位法国哲学家曾经说过：“人生中最最痛苦的事情就是遇到变革和经历革命。”，我认为他说的一点儿都没错。我也是个普通的活物而已，只想平平淡淡开开心心健健康康的度过一生。但是，没想到哇没想到，我唧唧居然会亲身经历世界的大变革。所以，让我们尽情享受所有的美好和不美好的吧！
 
-当劳动者的劳动所得比动物的劳动所得都不如时，说人的劳动是光荣的，就是在侮辱劳动者！
-
-![](https://lh5.googleusercontent.com/jCEtjgKLIFEnYQc_ZvFevP7TYNiJF7W6aLvVDQESvWMOIZ50gC61LRfSM0jEsF7LxP8Jo-7HT35KG-Hm0iMX2_kHGe5x2Vo2Ud72SYZOyrWiQPrJyt_Cpza8OGbiUkXdw64LqSru)
+我喜欢也希望唧唧成为真诚、刻苦、善良，同时有毅力的，学会给予和收获的人。愿和如今的战友们一起成长，成为一生的朋友和知己。我们会为我们现在所做的所有的事情而骄傲的，相信我！
 
 *免责申明：本文只代表作者观点，与GNews网站无关。*
 
-*校对：喜马拉雅东京樱花团 / 待命（文晓）*
+*校对：喜马拉雅东京樱花团 / 待命（文晓)*
 *责任编辑：喜马拉雅东京樱花团 / 文小白*
 *发布：喜马拉雅东京樱花团 / 煙火1095*
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01183841/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
-+1
++2
