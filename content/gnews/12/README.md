@@ -1,15 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210503
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1168490/)
+## 中共用疫苗拉拢世界却适得其反
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1168713/)
 
-- 制图：透明的遮羞布
-- 编辑：神奇四侠
+#### 翻译：喝咖啡的小蚂蚁  | 责编：沙拉猫
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03180426/rtx7te7o-1-2.jpg)图片来源： Council On Foreign Relation
+据英国《每日邮报》5月1日报道，中共的病毒疫苗研发迅速，并很快推向了全世界，中共宣称这是“全世界公众的福音”，以此来展示中共国的友善。在28个国家订购中共疫苗后，上亿剂疫苗被分发到海外各地，中共还向超过60个贫穷但有着重要战略地位的地区免费供应中共疫苗，企图以此填补国际上疫苗供应的短缺！在中共早期掩盖病毒大流行之后，全球质疑中共病毒真正起源的呼声日渐高涨，而作为中共的“健康丝绸之路”， 疫苗外交牌成了中国共产党独裁政权宣传力量的重要部分！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164512/01-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164523/02-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164542/03-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164602/04-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164619/05-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164636/06-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164655/07-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164714/08-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164733/09-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164754/10-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164813/11-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164829/12-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164846/13-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164901/14-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164920/15-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164934/16-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164949/17-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03165005/18-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03165020/19-1.jpg)
-以上文字图片仅代表作者个人观点，与GNEWS无关
+然而，中共供应给新加坡的疫苗已经被遗弃在仓库里。多个国家，包括波兰、韩国、越南等，都以缺乏有效作用和实验数据为由拒绝了中共提供的疫苗。连亲中共的菲律宾总统也拒绝接种。而作为接种疫苗最快的国家之一，智利使用的中共的疫苗，随后却迎来了奇怪的感染病例飙升。智利疫情数字怪异的飙升，中共疫苗单针仅3%有效而且杯水车薪！
 
-发稿：神奇四侠
+而在阿拉伯国家，有些疫苗接种者因为前两剂的免疫力不足，不得不接种第三剂中共疫苗！其他一些国家因为疫苗供应不足则恼羞成怒。比如土耳其总统因疫苗短缺怒斥中共国的外交部长，并被迫关闭一些疫苗接种点，现在感染病例已经激增。同样的事情也发生在墨西哥，第二针接种因疫苗供应延误被迫推迟。
+
+中共用疫苗作为筹码，利用全世界人民对疫情防护的期望而绑架各国，企图迫使一些国家默许其欺压台湾，以及接受像华为这样的中共科技公司在当地开展业务。然而，似乎中共的这种企图突然之间起到了适得其反的效果！
+
+本周世卫组织正在根据现有的数据进行评估，以决定是否把中共的两种关键疫苗加入紧急使用清单，这引起了人们对于中共疫苗缺乏同行评议研究以及公开的临床试验数据数据的担忧。相比之下，辉瑞、阿斯利康、莫德纳（Moderna）和强生公司开发的疫苗已经被列入到了世卫清单。英国的疫苗和传染病专家皮特.英格利希（Peter English）表示对广泛使用中共疫苗的国家表示担忧。新加坡国立大学政治科学教授崇札兰（Chong Ja Ian）对华盛顿邮报表示，新加坡政府为了避免惹怒中共政府，已经接受了中共疫苗，但是鉴于有限的数据并未批准使用。
+
+现在有两种主要的中共疫苗被输送到全世界，第一种是中共国药集团生产的疫苗。国药集团是中共政府拥有的大型企业，据宣称，国药疫苗拥有79%的有效性，但这远远低于其竞争对手的西方和俄罗斯。另一家中共疫苗生产商是科兴，科兴已经在全世界范围内分发出了超过2.6亿剂疫苗，其有效率在巴西试验阶段为50.7%，在土耳其为83%。而其早期数据更为糟糕，针对有症状的感染者评估仅仅49.6%有效，数据显示，如果考虑无症状感染者的话，疫苗有效性下降到35%。
+
+智力方面研究发现，第一针疫苗的保护率很低，有报告显示单剂疫苗仅有3%~16%的有效性，在第二针后有效性会上升67%。根据图表数据分析，尽管推出了一种更加有效的快速疫苗，但伴随着更多毒性更强的毒株的出现，以及疫情管控的松懈，这或多或少解释了为何上个月智利的医院都挤满了病患，以及达到了破纪录的感染数字。智利已经有40%的人接种了疫苗，这并不比英国和以色列的接种比例低多少，但致死率却比英国高16倍，感染人数是英国的10倍还多。
+
+这样的数据直接打脸中共所吹捧的医药产业，尽管这些产业在中共国内已经被丑闻和低信用所诅咒。澳大利亚弗林德斯大学医药学教授兼疫苗研发人员尼古拉.彼得罗夫斯基（Nikolai Petrovsky）表示， 中共的疫苗科技并不像其其他领域那样先进。中共依赖于陈旧的技术，使用灭活的病毒混和铝基化合物辅助剂，模仿人类的免疫系统。这种传统的疫苗开发手段与西方正在应用的现代基因科技相比，很难保证质量控制和消除变异，特别是在把灭活疫苗投入大规模生产的时候。彼得罗夫斯基教授还称，除非中共国的公司提高标准，并提供可以证明其疫苗连续有效的数据，否则，疫苗一旦被那些绝望的国家采用，尤其是免费供应的时候，后果可能会很严重。
+
+中共的疫苗外交在国内也遭遇了一次挫折。中共国疾控中心主任高福之前承认“疫苗有问题”，表示中共国的疫苗效率“不高”，但随后撤回其言论，表示“完全是误解”，但他的评论遭到了中共的审查。在国际上，中共也屡屡受挫。上周欧盟就公开警告称，中共的疫苗外交政策实际就是通过散布虚假信息，同时施加操控以诋毁西方疫苗的可信度。
+
+&gt;&gt;原报道链接&gt;&gt; [Why China’s bid to woo the world with vaccines is backfiring: IAN BIRRELL looks at a strange surge of Covid cases in Chile, reports of a single dose being only 3% effective and supply failures](https://www.dailymail.co.uk/news/article-9533705/Why-Chinas-bid-woo-world-vaccines-backfiring.html)
 
 0

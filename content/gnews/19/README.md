@@ -1,55 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】人权问题绝不是中共内政
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1168402/)
+## 慧眼看世界20210503
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1168490/)
 
-作者：纽约香草山香港部     圣城传声筒
+- 制图：透明的遮羞布
+- 编辑：神奇四侠
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164512/01-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164523/02-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164542/03-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164602/04-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164619/05-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164636/06-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164655/07-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164714/08-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164733/09-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164754/10-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164813/11-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164829/12-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164846/13-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164901/14-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164920/15-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164934/16-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164949/17-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03165005/18-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03165020/19-1.jpg)
+以上文字图片仅代表作者个人观点，与GNEWS无关
 
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-5月2日，美国哥伦比亚广播公司“60分钟”节目采访了现任国务卿布林肯。节目中，当被问及中共国的人权问题视，布林肯做出了相应声明。他认为，在过去几年里，中共国的人权问题在持续恶化，其在国内更具压制性，同时对外也更加咄咄逼人。然而，对于西方世界对此问题的关注，中共却指责这种关注为“干涉中（共）国内政”。但布林肯强调，“关切中（共）国的人权问题，绝非干涉中（共）国内部事务。”布林肯认为，中（共）国现在正在违反其对《世界人权宣言》做出的承诺。
-
-![]()![](https://i.epochtimes.com/assets/uploads/2021/02/000_9298LZ-600x400-1.jpg)图片来源：SAUL LOEB/AFP
-
-中共为在香港地区拥有更多的政治权力并对香港人民进行更严格的掌控，去年在香港通过了《港区国安法》。该法令声明，任何参与政治、表达诉求的香港民主派人士都有可能因“颠覆国家政权”罪，被中共政府逮捕。同时，中共在今年更是强制改变了香港的选举制度。而这些举措在布林肯看来，完全是在违反国际承诺，镇压香港民主。
-
-布林肯也对新疆少数民族穆斯林的人权问题表示了关注。布林肯表示，据消息称，仍有大量的新疆维吾尔人被关在中共的“再教育营”。虽然中共一再诡辩其“再教育营”的性质，但这些营地的本质是对新疆维吾尔人进行种族灭绝。维吾尔人在这些“再教育营”会受到暴力压制和强迫绝育等毫无人道的对待。
-
-郭文贵先生从2019年开始就不断地说，香港是打开灭共的第一道大门。最近，他更反复强调，一旦中共国经济出现重大问题，美国这张香港牌必定会被打出，而且随之而来的就是中共病毒牌。布林肯这次采访中也强调了，香港问题绝不是中共国的内政，隐隐就是在向中共政权再次发出强烈的警示。
-
-但经历过几年的爆料革命，我们绝不会再有任何的天真。根据文贵先生的爆料以及笔者的观察，中共国目前之所以还能如此嚣张，除了他本身的狂妄外，也是因为中共在过往几十年的经营过程中，网罗了不少西方世界的人才——这里有的人甚至是心向共产国际的——这些人在帮助中共国维持经济运作和出谋划策方面举足轻重。因此，何时能将中共真正定义成犯罪集团或恐怖组织，至关重要。只有这样，才能在法律层面上彻底切断中共政权与其背后幕僚之间的合作关系，中共的“假擀面杖”必然就会瞬间崩塌。
-
-参考阅读：
-
-[布林肯：中共是拜登政府最大外交挑战](https://www.epochtimes.com/gb/21/5/3/n12920280.htm)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
-
+发稿：神奇四侠
 
 0
