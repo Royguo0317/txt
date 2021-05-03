@@ -1,283 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士谈论疫苗的安全性
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1162772/)
+## 郭先生0502III比物理灭共更重要的不承认中共的时刻已到来
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1166160/)
 
-**内容：**
+编辑整理：
 
-**闫丽梦博士：**
+纽约香草山农场：鹰(文言)；日本东京方舟农场：山川异域
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02230914/%E5%B0%81%E9%9D%A2-3.jpg)
+据[2021年5月2号 文贵直播标题：国内银行倒闭，房地产崩塌，粮食链断裂，国际关系的冰冻效应，中共内部已经认为中共即将终结；以美灭共会最终促成以共灭共的发生，在2022年开始；喜币是金融界的金箍棒](https://gtv.org/video/id=608ea73f6c00a14130e56d95)时间点21：16——
 
-I do have my concern about the vaccine now.
+所以说战友们，现在中南坑成了习一坑，成了习一个人的坑了。我在2017年说的时候，2018年开完常委会大家见到了我说中国没有常委机构了，多少人在乎过我说的这话。
 
-我现在确实对疫苗感到担忧
+你见过中国历史上什么时候像过去这几年没有任何常委出席活动、常委基本上不出现，基本上就仨人说话——习一神还有杨娘娘、王公公，国家安全委员会是由中办来管理的，就连丁薛祥现在都销声匿迹了。栗战书两年基本不出来了，韩正还敢出来说话吗，李克强哪轮得到他了跟个怨妇似的，打入冷宫的怨妇，还有谁呀？刘鹤副总理还出来吗？胡春华还出来吗？总理都没了，哪有你副总理的事儿啊！军方许其亮多少次站出来讲话呀？就这几个人吧。何总参谋长，站出来讲话了吗，何其宗有几次？！
 
-And the first thing is
+中共已经到了一人集权，习一坑儿，没有常委只有安全委员会的一个真正的1932年到1946年的希特勒时代，它都不如当时二战的日本，当时的日本还有山本五十六呢，是不是啊？还有军方呢，不光天皇一个人呢，还有总理呢，那现在呢？没有任何人说话。
 
-第一件事是
+那么在这种情况下，反过来我想问兄弟姐妹们，你们想一想在香港发生的事情是不是集体决定的？冠状病毒是不是集体决定？对美政策是不是集体决定？——一定不是集体决定。既然不是集体决定的这么大的事情，打台湾能是集体决定吗？——打台湾也不会是集体决定。既然打台湾不是集体决定，那么谁知道台湾什么时候开战？——没有人知道。
 
-I kept telling people there no real effective vaccines against the pandemic
+那么说到这的时候，大家记住我刚才谈了那三个中共在国际上的条件，联合国。共产党所有这两三年，它都在玩弄着联合国的人权组织、国际合作组织、国际金融组织，以及在国际上所有的最大的几个机构——世纪贸易组织WTO，还有一个世界银行，还有IMF世界货币组织，它渗透的也差不多了，联合国基本上它买差不多了。
 
-我一直告诉人们没有真正有效的疫苗来对抗这种大流行
+欧洲啊、中东啊，那几个什么欧盟峰会啊，还有G7呀，特别是中东那几个组织，大家记住基本上就没什么用了，那就是个讲数的勾兑的组织。那么共产党这过去几年想控制的整个联合国，利用国际游戏规则，利用联合国的游戏在世界上横冲直撞、所向披靡，没遇到任何障碍。
 
-So there are some reasons very simple the people can understand the vaccine
+在这时候大家要看到一个核心的问题——日本，这就是美日联盟这个事儿很大，日本要加入世界的联合国、加入常委的话，那这个世界的格局彻底改了。如果日本的部队已经正常化的话，世界的军事版图也彻底改了。
 
-所以有一些很简单的原因，让人们可以理解疫苗
+那么如果说人民币，DCEP人民币数字化对美元是个巨大的威胁和挑战，如果再真的出现亚元的话，亚、欧、美元三元鼎力的话，美国基本完球蛋了。那么所以说，任何一个有政治脑袋的、任何一个有金融智慧的，大家要看到最后世界跟老共打的仗在那几个领域，兄弟姐妹们——联合国国际组织领域，无论是已定义的种族大屠杀、反人类罪，香港的群体灭绝犯罪定罪，还是冠状病毒查出来凶手，这三条都足以将共产党移除联合国。
 
-The first thing is this virus SARS Covid-2 is basically the bigger version, enhanced version of SARS 1,
+无论是在世界刑警组织，还有武汉Organization—— WHO世界卫生组织，还是联合国人权组织，未来发生一系列的腐败案，包括以上的三个核心原因都会让共产党成为必须离开的最好的这种法律的根据。
 
-首先，这种SARS Covid-2病毒基本上是SARS一号的增强版本，
+在这种情况下，我们战友们要看到了一个最最关键的时刻的到来——法律上、法理上世界不再承认中国共产党，它比物理上消灭共产党它还重要，就是灭掉共产党绝对不能成为一个国与国之间的所谓各种战争，灭掉共产党绝对不是说隔靴搔痒，什么制裁呀，那不可能。
 
-And we never have such vaccine, because of the nature, I am not
+接上文——
 
-我们从来没有研究出过这样的疫苗，因为自然界的原因，我并
+[郭先生0502I中共用温水煮青蛙的方式开始铺垫银行的倒闭](https://gnews.org/zh-hans/1165675/)
 
-anti vaccine I worked on universal influenza vaccine
+[郭先生0502II在2020年中共已经消失剩下的就是物理上的消灭](https://gnews.org/zh-hans/1165954/)
 
-不反对疫苗，我本身也是做流感疫苗的研究方面的工作
-
-I have my patent on pending,
-
-我有申请中的疫苗专利
-
-I know, I just know how to develop vaccine in a proper way try to in a proper way, right?
-
-我知道，我只是知道如何以适当的方式开发疫苗，对吗？
-
-So this SARS Covid 2, it likes SARS 1, we don’t have vaccine because of the
-
-所以这个SARS Covid 2，它就像SARS 1，我们没有疫苗，因为
-
-side effect contains
-
-副作用的因素
-
-Likes as allergy or antibody dependent enhancement
-
-像过敏或抗体依赖性增强的
-
-and also we don’t have the good universal influenza vaccine that will have
-
-而且我们也没有好的通用流感疫苗
-
-to develop year by year
-
-需要逐年研发
-
-because of the quick mutant
-
-因为流感病毒变异很快。
-
-So now SARS 2 combined the quick mutant in the circulation
-
-所以现在SARS 2结合了循环中的快速变异
-
-and also it had side effect from SARS 1
-
-此外，它还具有非典1的副作用。
-
-So how could people quickly overcome these issues in several months
-
-那么，人们如何才能在几个月内迅速克服这些问题呢？
-
-and also we know that SARS 2 actually have a lot of modification
-
-我们也知道SARS 2实际上有很多修改
-
-as the Doctor Fleming also mentioned its bio-weapon, right?
-
-因为弗莱明博士也提到了它的生物武器，对吧？
-
-and I already showed that is an unrestricted bio-weapon
-
-我已经证明了这是一种超限的生物武器
-
-so there are also many hidden functions and this is as ….the protein, …
-
-所以还有很多隐藏的功能，这就是…。蛋白质，…..
-
-there are many things…
-
-有很多事情…
-
-now is OK
-
-现在可以了，声音回来了
-
-So at least, you see now we are using most properly we are using
-
-所以，至少我们现在知道，使用的是
-
-the S protein equipped on as I don’t know Virus- mRNA,
-
-最合适的S蛋白，因为我不知道病毒-mRNA
-
-adaptors deliver to our body
-
-适应体传递到我们的身体上里
-
-I don’t judge the technic, because I didn’t see a lot of technic data released
-
-我不评判技术，因为我没有看到很多mRNA公司
-
-by these mRA companies
-
-发布的技术数据
-
-So we need to exam these when its openly released, more released data
-
-因此，我们需要在公开发布更多数据时对其进行检查，这样我们才能
-
-and we can know more
-
-了解更多信息
-
-But just talk about S protein that whether there is still hidden function inside
-
-但是说到S蛋白，我们还不知道里面是否还有
-
-we don’t know
-
-隐藏的功能
-
-We do see that people get infected and get more communication as we just men-tioned
-
-正如我们刚才提到的，我们确实看到人们感染了病毒，并获得了更多的传播
-
-So at this time if just delivered S protein to our body
-
-所以在这个时候，如果只是把S蛋白送到我们的身体里。
-
-whether it will release some other adverse effect
-
-会不会释放一些其他的不利影响。 、
-
-which is even ignored which may come out not in the short term
-
-它甚至被忽视了，这可能不是在短期内出现的
-
-but as chronic style later in our bodies
-
-而是后来在我们身体里变成慢性疾病形式出现
-
-whether it will induce some problem and which can be triggered later by some oth-er
-
-它是否会引发一些问题，以及以后会不会被其他诱发剂触发
-
-factors when we get vulnerable we don’t know that
-
-当我们变得脆弱时，我们不知道
-
-We just know that we still need more data, animal data, enrichful data and
-
-我们只知道我们还需要更多的数据、动物数据、丰富的数据和
-
-also small human trial data
-
-少量的人体试验数据
-
-This need to be done on very strict surveillance and also a lot people should,
-
-这需要在非常严格的监控下进行，而且大家也应该这样做
-
-I mean scientist should check the data carefully and open discuss it.
-
-我的意思是科学家应该仔细检查数据并公开讨论
-
-We don’t know that we just say the vaccine is given to people
-
-我们不知道我们只是说疫苗是给人接种的
-
-Even when they have some other basic problem
-
-即使他们有其他一些基础疾病问题
-
-Even when they are old I don’t know
-
-即使他们老了，我也不知道
-
-For example in China, they gave some in Hong Kong, in negative or
-
-比如在中国，他们在香港给了一些灭活的或者
-
-in other type of vaccine, like Sino Vaccine,
-
-其他类型的疫苗，比如科兴疫苗
-
-From that company to senior age group
-
-给老年群组使用
-
-I am not sure whether it’s in negative or re-combining
-
-我不确定它是灭活的还是重组的疫苗
-
-Anyway, they gave it to the group over 60 years and that is a special group
-
-不管怎么说，他们给60岁以上的人群提供了疫苗，这是一个特殊的群体
-
-I mean in vaccine development you know that senior people have a lower immunity
-
-我的意思是说，在疫苗开发方面，你们知道的，老年人的免疫力较低
-
-immune response
-
-免疫反应较低
-
-So whether the vaccine work for them has to be done for this specific age popula-tion
-
-因此，疫苗是否适用于这一特定年龄段的人群
-
-for small tr​​ial
-
-需要进行小规模试验
-
-and also because they usually has the diabetes or hypertension or other problems
-
-也因为他们通常有糖尿病或高血压或其他问题
-
-we have to think about whether these condition will affect these vaccines
-
-我们必须考虑这些情况是否会影响这些疫苗
-
-but now it seems that it just come into human and then people see the result
-
-但现在看来，疫苗只是被注射进入人体，然后人们等着看结果
-
-and we even didn’t receive the very clear result
-
-我们甚至没有收到非常明确的结果
-
-although the vaccine has been given for several months, right?
-
-虽然疫苗已经打了几个月了，对吧？
-
-so now, I really feel that it’s hurry to get vaccine and
-
-所以现在，我真的觉得现在太急于接种疫苗
-
-we do encourage the pharmacy to generate more data to show people
-
-我们确实鼓励制药厂商将更多的数据
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://rumble.com/vfy3xf-lethal-deception.html](https://rumble.com/vfy3xf-lethal-deception.html)
-
-英听校:康州盘古农场-WZ
-
-翻译: 康州盘古农场-WZ
-
-翻译终校: 康州盘古农场-Mike Li
-
-字幕+视频制作:康州盘古农场 – 天涯行
-
-审片:康州盘古农场 – 银龙
-
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
++1

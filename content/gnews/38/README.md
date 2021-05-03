@@ -1,39 +1,126 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0502III比物理灭共更重要的不承认中共的时刻已到来
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1166160/)
+## 闫博士谈E蛋白帮助病毒维持神经毒性
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1166219/)
 
-编辑整理：
+字幕内容：
 
-纽约香草山农场：鹰(文言)；日本东京方舟农场：山川异域
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02230914/%E5%B0%81%E9%9D%A2-3.jpg)
-据[2021年5月2号 文贵直播标题：国内银行倒闭，房地产崩塌，粮食链断裂，国际关系的冰冻效应，中共内部已经认为中共即将终结；以美灭共会最终促成以共灭共的发生，在2022年开始；喜币是金融界的金箍棒](https://gtv.org/video/id=608ea73f6c00a14130e56d95)时间点21：16——
+闫丽梦博士：
 
-所以说战友们，现在中南坑成了习一坑，成了习一个人的坑了。我在2017年说的时候，2018年开完常委会大家见到了我说中国没有常委机构了，多少人在乎过我说的这话。
+So what I want to comment on it,
 
-你见过中国历史上什么时候像过去这几年没有任何常委出席活动、常委基本上不出现，基本上就仨人说话——习一神还有杨娘娘、王公公，国家安全委员会是由中办来管理的，就连丁薛祥现在都销声匿迹了。栗战书两年基本不出来了，韩正还敢出来说话吗，李克强哪轮得到他了跟个怨妇似的，打入冷宫的怨妇，还有谁呀？刘鹤副总理还出来吗？胡春华还出来吗？总理都没了，哪有你副总理的事儿啊！军方许其亮多少次站出来讲话呀？就这几个人吧。何总参谋长，站出来讲话了吗，何其宗有几次？！
+对于这一点，我想说的是
 
-中共已经到了一人集权，习一坑儿，没有常委只有安全委员会的一个真正的1932年到1946年的希特勒时代，它都不如当时二战的日本，当时的日本还有山本五十六呢，是不是啊？还有军方呢，不光天皇一个人呢，还有总理呢，那现在呢？没有任何人说话。
+I am not neurologist, I just have the medical knowledge about neurology disease.
 
-那么在这种情况下，反过来我想问兄弟姐妹们，你们想一想在香港发生的事情是不是集体决定的？冠状病毒是不是集体决定？对美政策是不是集体决定？——一定不是集体决定。既然不是集体决定的这么大的事情，打台湾能是集体决定吗？——打台湾也不会是集体决定。既然打台湾不是集体决定，那么谁知道台湾什么时候开战？——没有人知道。
+我不是神经科医生，我只是有神经科疾病的医学知识
 
-那么说到这的时候，大家记住我刚才谈了那三个中共在国际上的条件，联合国。共产党所有这两三年，它都在玩弄着联合国的人权组织、国际合作组织、国际金融组织，以及在国际上所有的最大的几个机构——世纪贸易组织WTO，还有一个世界银行，还有IMF世界货币组织，它渗透的也差不多了，联合国基本上它买差不多了。
+But what I have pointed in my third report and also in my first report, I can use it as smoking gun.
 
-欧洲啊、中东啊，那几个什么欧盟峰会啊，还有G7呀，特别是中东那几个组织，大家记住基本上就没什么用了，那就是个讲数的勾兑的组织。那么共产党这过去几年想控制的整个联合国，利用国际游戏规则，利用联合国的游戏在世界上横冲直撞、所向披靡，没遇到任何障碍。
+但正如我在第三份报告和第一份报告中指出的那样，我可以把它当作确凿的证据
 
-在这时候大家要看到一个核心的问题——日本，这就是美日联盟这个事儿很大，日本要加入世界的联合国、加入常委的话，那这个世界的格局彻底改了。如果日本的部队已经正常化的话，世界的军事版图也彻底改了。
+is envelop protein, E protein, in SARS-Covid 2,
 
-那么如果说人民币，DCEP人民币数字化对美元是个巨大的威胁和挑战，如果再真的出现亚元的话，亚、欧、美元三元鼎力的话，美国基本完球蛋了。那么所以说，任何一个有政治脑袋的、任何一个有金融智慧的，大家要看到最后世界跟老共打的仗在那几个领域，兄弟姐妹们——联合国国际组织领域，无论是已定义的种族大屠杀、反人类罪，香港的群体灭绝犯罪定罪，还是冠状病毒查出来凶手，这三条都足以将共产党移除联合国。
+就是E蛋白，SARS-Covid 2中的E蛋白
 
-无论是在世界刑警组织，还有武汉Organization—— WHO世界卫生组织，还是联合国人权组织，未来发生一系列的腐败案，包括以上的三个核心原因都会让共产党成为必须离开的最好的这种法律的根据。
+it’s hundred percent identical as it as the back born, Zhou Shan Conoravirus
 
-在这种情况下，我们战友们要看到了一个最最关键的时刻的到来——法律上、法理上世界不再承认中国共产党，它比物理上消灭共产党它还重要，就是灭掉共产党绝对不能成为一个国与国之间的所谓各种战争，灭掉共产党绝对不是说隔靴搔痒，什么制裁呀，那不可能。
+可以100%完全确认SARS-Covid 2使用舟山蝙蝠冠状病毒作为骨架
 
-接上文——
+First, this is the evidence. It comes from the Zhou Shan bat conoravirus, which is somehow, completely cab into SARS Covid 2.
 
-[郭先生0502I中共用温水煮青蛙的方式开始铺垫银行的倒闭](https://gnews.org/zh-hans/1165675/)
+首先，这是证据。该E蛋白来自舟山蝙蝠冠状病毒，不知何故，它完全被发现在SARS Covid 2 病毒里
 
-[郭先生0502II在2020年中共已经消失剩下的就是物理上的消灭](https://gnews.org/zh-hans/1165954/)
+Because if it is going through the spices that’s a kind of host changing, jump from bat to animal to animal to human
 
-+1
+因为如果它经过物种间传代，那就是一种从蝙蝠到动物再到动物再到人类的宿主
+
+definitely, that we would see the change, because they already observed the change
+
+当然，我们会看到这种变化，因为他们在人类大流行最早的时候
+
+during the earliest the pandemic in human.
+
+就已经观察到了这种变化
+
+And second thing is why do they keep it, because this is smoking gun,
+
+第二个问题是，中共为什么要对此守口如瓶，因为它是确凿证据
+
+since I write this problem from last year 19th January, with Youtube.
+
+因为我在去年1月19日用YouTube写了这个问题
+
+China had done a quickly get response and later they even locked down.
+
+中共很快就做出了反应，后来他们甚至封锁了E蛋白的信息
+
+Because they know someone released the real information of this bio-weapon.
+
+因为他们知道内部有人泄露了这种生物武器的真实机密
+
+But why until now, no scientist there to touch this E protein issue to argue with me.
+
+但是为什么到目前为止，还没有科学家触及到这个E蛋白的问题，他们也没有来和我争论这个E蛋白的问题？
+
+And even Shi Zhengli, and their like the Chinese Military Academy,
+
+就连shizhengli, 像那些中国军事医学院的学者们
+
+they have developed a lot of novel fabricated too naughty virus, including from bat from Pangolins,
+
+他们已经合成出了很多新奇的病毒，包括从蝙蝠身上，从穿山甲身上，
+
+which all have the identical E protein in those fabricated sequence.
+
+它们在构建的序列中都有相同的E蛋白。
+
+What do they want to hide?
+
+他们想隐瞒什么？
+
+Then lets we back to check E protein’s function.
+
+然后我们再回来检查一下E蛋白的功能
+
+Yes it ‘s not clearly investigated , but we know it’s important for virus fabrication
+
+是的，它还没有得到明确的调查，但我们知道它对病毒的合成至关重要
+
+as some other important part in the Coronavirus
+
+作为冠状病毒的其他重要组成部分
+
+But it’s also have another function what
+
+但是它还有另外一个功能，那就是
+
+discovered and actually my ex-lab in the University of Hong Kong,
+
+在我之前工作的香港大学的实验室
+
+it’s the lab get involve to discover is E protein can have the virus
+
+发现这种E蛋白可以帮助病毒
+
+help the virus maintain the neuronal toxicity
+
+帮助病毒保持其神经毒性
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频连接: [https://rumble.com/vfy3xf-lethal-deception.html](https://rumble.com/vfy3xf-lethal-deception.html)
+
+英听校:康州盘古农场-WZ
+翻译: 康州盘古农场-WZ
+翻译终校: 康州盘古农场-Mike Li
+字幕+视频制作:康州盘古农场-天涯行
+审片: 康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0
