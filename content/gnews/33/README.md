@@ -1,31 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 灭共的种子已经深入人心
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1166555/)
+## 新西兰与中共国的关系渐行渐远
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1166671/)
 
-#### 翻译报道： Chris
+翻译与评论：Shirley
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03024658/5301-2.png)图片来自网络
+新西兰总理阿德恩（Jacinda Ardern）周一在奥克兰举行的中国商业峰会上发表演讲时表示，新西兰和中共国之间的分歧正变得越来越难以调和。中共国和新西兰在一些事情上 “没有、不能、也不会达成一致”。
 
-#### **责编：白夜**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03014938/1-4.png)图片来源：BBC NEWS
-根据彭博社（bloomberg）的报道，中共最高执法机构近期在网络上发帖，将中共成功发射太空舱与印度火葬场进行对比，并冠以 “中国点火与印度点火 “的标题讽刺印度面临的灾难。进而许多国内用户对该贴表示强烈愤怒与批评，迫于舆论最终只好删帖。
+此时，新西兰面临着来自西方盟友的压力，因为它不愿意用五眼联盟的情报批评北京。
 
-自称是正义的一方，事实上却做着最恶毒的事，这是中共的一贯作风。
+外交部长马胡塔（Nanaia Mahuta）上个月说，她对扩大五眼联盟的作用感到不舒服，随即被五眼国家的保守派评论家指责为放弃了新西兰的传统同盟关系。
 
-#### 对外
+中共国在新疆的侵权行为，可能会在未来几周进一步挑战阿德恩女士的政府。目前，美国、加拿大和英国议会均宣布新疆的情况为种族灭绝。新西兰的右翼反对党Act，正在准备对此提出一个动议，进行辩论。
 
-中共竭尽全力想要在世界上树立一个正义的形象，例如中共外交部表示，中共会支持印度抗疫，并会向印度运送更多物资。对于中印边境的交火，习近平不但既往不咎，还向印度总理发出慰问，表示愿意帮助印度应对猛烈激增的中共病毒。就连中共大外宣《环球时报》都厚颜无耻地说，在这个时候应该高举人道主义的旗帜，对印度表示同情，中共将继续坚守道德的高地。
+做为五眼联盟情报核心的一员，新西兰外长马胡塔公开替中共辩护，让西方世界再一次警醒，认识到中共“蓝金黄”的威力，中共的力量也又一次刷新了西方民主国家的认知。
 
-#### 对内
+新西兰的现任政府，为了自己腰包里的钱，不惜危害普通民众的利益，很早就向中共国开放边界、通航。表面上看，开放边界是为了促进经济，可是结局却将是为北京打了掩护，方便了中共实施放毒计划，最后搞垮新西兰的经济。
 
-中共一直以各种方式引起舆论挑拨中国人民对其他国家的仇恨。比如在这个 “中印点火”的帖子之前，中共公安部也曾在社交媒体上发帖将武汉建造的“火神山”医院与印度大规模的火化做讽刺对比，不过好在该贴受到大量批评，该社交媒体的用户表示发这种帖子是“道德有问题。“
+不顾普通百姓利益的西方民主国家政府，必定要付出代价，这一点从澳洲的西澳和塔州的州选举就可以知道，投票人最在乎的是自身安全，而不是经济。如果阿德恩女士的政府仍然与中共勾兑，必将遭到人民的唾弃。下台后，一定会受到法律的公正审判。
 
-对于这场风波“微博上发生了什么”（What’s On Weibo）的主编马尼亚-科泰斯（Manya Koetse）分析称：“我不认为我们会等来中共官方对此事的澄清，但是我认为这个帖子在中共内部没有达成共识，否则它不会这么快被删除。
+（本文仅代表个人观点）
 
-#### 评论：
+*审核：**Runaway 编辑：MG1*
 
-这篇文章突出了两个非常关键的信息，首先是中共内部产生了矛盾，中共内部有那些独裁恶棍，但同样也有我们潜伏的战友，从内部瓦解中共，以共灭共。其次越来越多的老百姓正在醒来，中共一直以来通过控制舆论从而把14亿中国老百姓与中共捆绑在一起，在外交上以14亿人民生命当做筹码，在国内通过舆论挑起内部各种斗争。但是这次事情就是墙内百姓反抗中共的重要一幕。拒绝洗脑拒绝与中共同流合污。中共不等于中国人，这也一直是爆料革命正在做的。如果中共内部能有更多潜伏的战友瓦解中共，而且墙内能有更多的老百姓能醒来一起反抗中共的绑架，没有了这些中共什么都不是，灭共指日可待。
+[https://au.news.yahoo.com/ardern-admits-strain-china-nz-235726235.html](https://au.news.yahoo.com/ardern-admits-strain-china-nz-235726235.html)
 
-原文链接：[China Deletes Social Media Posts Mocking India Amid Backlash](https://www.bloomberg.com/news/articles/2021-05-02/china-deletes-social-media-posts-mocking-india-after-backlash)
+[https://www.ndtv.com/world-news/new-zealand-pm-jacinda-ardern-says-differences-with-china-becoming-harder-to-reconcile-2426774](https://www.ndtv.com/world-news/new-zealand-pm-jacinda-ardern-says-differences-with-china-becoming-harder-to-reconcile-2426774)
 
-+1
+[https://www.abc.net.au/news/2021-04-19/new-zealand-five-eyes-intelligence-sharing-china-australia/100078834](https://www.abc.net.au/news/2021-04-19/new-zealand-five-eyes-intelligence-sharing-china-australia/100078834)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2-1.jpg)
+0

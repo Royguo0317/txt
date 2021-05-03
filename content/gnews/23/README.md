@@ -1,74 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 巴西拒绝使用俄罗斯的新冠疫苗
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1166735/)
+## 新型冠状病毒危机下疫苗供应短缺，拜登实施印度旅行禁令
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1166861/)
 
-新闻来源：《The Hill （国会山报）》| 作者：JOSEPH CHOI | 发布时间：2021年4月27日
-翻译/简评：clau | 校对：感恩 | 审核：万人往 | Page：Daoiii
+翻译：康州盘古农场 – KY
+校对：康州盘古农场 – Mike Li
+编辑：康州盘古农场 -格格巫
 
-[!\[\]()!\[\](https://spark.adobe.com/page/r2Xtb70AeIsr7/images/e40902d4-583e-4f18-a69b-077a78e83d63.jpg?asset_id=0bc9d8e2-2053-45dc-a0a4-4c7244ec2812&amp;img_etag=%22e885385a8f18a8e2b737458f0e18bfaa%22&amp;size=1024)](https://spark.adobe.com/page/r2Xtb70AeIsr7/images/e40902d4-583e-4f18-a69b-077a78e83d63.jpg?asset_id=0bc9d8e2-2053-45dc-a0a4-4c7244ec2812&amp;img_etag=%22e885385a8f18a8e2b737458f0e18bfaa%22&amp;size=1024)
+据《零对冲》作者： TYLER DURDEN，时间：2021年4月30日星期五发布
 
-**简评：**
+本周末，印度的COVID-19形势继续恶化，该国周五又报告了每天近40万（38.66万）新确诊的COVID-19病例，创下了另一个新的记录，同时有超过3千人新增死亡。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03043751/6CD682F0-A5C7-49C0-842F-8B9136885AF6.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03043810/894298A1-4928-402D-B166-729FA3DDA03A.png)
+而在印度多个州因供应短缺关闭了疫苗接种点，路透社报道说，据白宫消息灵通人士透露，总统乔-拜登预计将从周二开始对印度实施新的旅行限制，禁止大多数非美国公民进入美国。
 
-巴西卫生监管机构拒绝了俄罗斯的卫星V（Sputnik V）新冠病毒疫苗，理由是该疫苗在研究过程中存在瑕疵。克里姆林宫的一位发言人就此事做出了回应，认为一些国家因为受到一些压力而拒绝使用俄罗斯的疫苗。
+该官员说，新的限制措施是根据CDC的建议实施的，”鉴于COVID-19病例数特别多，而且有多个病毒的变种在印度传播”。预计将于周五正式宣布，该政策将于5月4日星期二生效。
 
-现在来辩论哪国的疫苗更安全有效，这本身就是一个伪命题。不管是辉瑞、强生、阿斯利康，还是科兴、智飞、卫星V，所有的疫苗都不可信。因为新冠病毒的真相并没有被调查清楚，建立在不完整信息基础之上的疫苗研究成果，本身就会带来更大的灾难。我们暂且认定各个跨国公司和政府都是出于善意，迫于疫情的紧急，开展了这一场史无前例的“疫苗大跃进”运动，但人类历史上好心办坏事的例子已不胜枚举。如果“疫苗大跃进”有更深层的，甚至更邪恶的目的，也请大家不要觉得意外，毕竟从新冠病毒被释放、“潘多拉魔盒”被打开的那一刻起，这个世界已经改变了，再也回不去了。而且我们仍然处在整个事件的初期，很多长期的影响还未显现。肯定有人会问：疫苗不能打，那我们怎么办？如何恢复正常的社会生活？
+作为提醒，以下是乔-拜登在2020年3月对飞行禁令的看法。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03043819/B2D7324E-4528-4A46-8509-B68226371D88.png)
+这话说得不好听。该政策意味着大多数非美国公民如果在过去14天内去过这些国家，现在还包括印度，就没有资格去美国旅行，中国和伊朗也都在该政策范围内。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03044121/B105CEE1-9A49-45AA-B8DB-B2E5A22B0043.png)
+拜登在1月份对最近去过南非的大多数非美国公民发布了类似的入境禁令。他还对几乎所有去过巴西、英国、爱尔兰和欧洲26个开放边界的国家的非美国旅行者重新实施了入境禁令。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/r2Xtb70AeIsr7/images/c04a9aef-6758-4518-81f1-c96b657f31b4.jpg?asset_id=528e1488-ce18-4e14-8e65-f1d943366f9f&amp;img_etag=%22b30874d4ce112db2abd41666de521b22%22&amp;size=2560)](https://spark.adobe.com/page/r2Xtb70AeIsr7/images/c04a9aef-6758-4518-81f1-c96b657f31b4.jpg?asset_id=528e1488-ce18-4e14-8e65-f1d943366f9f&amp;img_etag=%22b30874d4ce112db2abd41666de521b22%22&amp;size=1024)
+与此同时，印度，这个拥有比世界上任何其他国家都要多的疫苗生产能力的国家。据报道已经用完了疫苗，导致报名参加疫苗接种的居民无法得到疫苗。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03044112/2D23E619-647D-466E-92B7-15BF60ED5496.png)
+疫苗短缺正在破坏从星期六开始扩大加强疫苗接种量的计划。孟买政府宣布，由于“疫苗库存不足”，该市的94个疫苗接种中心将从周五至周日关闭。其他地方也出现短缺，包括新德里和其他州。
 
-郭文贵先生最近在他的盖特上分享了一段1997年前苏联的生物武器项目负责人肯·阿利伯克的采访，肯在采访中谈到了很多的生物武器相关的概念，并提出了指导性的意见。生物武器作为一种与核武器同级别的战略武器，它们的研究方法决定了，制造者会研发生产一系列的产品，而不仅仅局限于单一产品，产品间细微的差别就可以导致能够防御某一个产品的医疗手段失效，不管是抗生素还是疫苗。疫苗的研发成本和难易程度与生物武器相比是完全不成正比的，后者远远大于前者。所以，当时肯·阿利伯克谈到如何应对生物武器的攻击时，他说：我们应当研发基于非特异性免疫反应的医疗防御措施，很不幸，这是唯一有可能的解决方法。结合郭文贵先生前段时间的爆料，中共有新冠病毒的解药，是否中共已经研发出来了一种可以增强人体非特异性免疫的解药呢？全球的国家都必须尽快行动起来，向中共追责，找中共要解药，停止新冠病毒导致的直接死亡和衍生出的次生灾害！
+在印度14亿人口中，只有约9%的人接种了第一针疫苗。由于缺乏原材料以及制造阿斯利康疫苗的血清研究所发生火灾，印度一直在努力将产能提高到每月8000万剂以上。
 
-**原文翻译：**
+当然，在印度各州耗尽疫苗的同时，美国的许多州也在看着未使用的疫苗堆积如山。
 
-## 巴西拒绝俄罗斯的新冠病毒疫苗
+本周总死亡人数已超过20万，病例接近1,900万，仅2月以来就有近800万新病例，因为变异毒株和一些“超级传播者”事件—政治集会和印度教宗教庆祝活动被认为引发了最近的病例上升。医学专家说，实际数字可能比官方统计数字高5到10倍。病人一直在乞求医院床位，而氧气瓶则很稀缺，很珍贵。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/r2Xtb70AeIsr7/images/f672bd6b-206b-4267-af4a-639bad3f5d77.png?asset_id=067d0d36-1020-4b39-9200-571d4ef61b2b&amp;img_etag=%22110e35a48163999b0c0fe94f5d6bb636%22&amp;size=2560)](https://spark.adobe.com/page/r2Xtb70AeIsr7/images/f672bd6b-206b-4267-af4a-639bad3f5d77.png?asset_id=067d0d36-1020-4b39-9200-571d4ef61b2b&amp;img_etag=%22110e35a48163999b0c0fe94f5d6bb636%22&amp;size=1024)
+其他国家也对印度实施了类似的旅行限制，包括英国、德国、意大利和新加坡，而加拿大、香港和新西兰已经暂停与印度的所有商业旅行。
 
-巴西卫生监管机构周一拒绝了俄罗斯的卫星V（Sputnik V）新冠病毒疫苗，理由是对该疫苗的开发和生产存在担忧。
+原文链接：[https://www.zerohedge.com/markets/biden-bans-travel-between-us-and-india-covid-crisis-causes-states-run-out-vaccines](https://www.zerohedge.com/markets/biden-bans-travel-between-us-and-india-covid-crisis-causes-states-run-out-vaccines)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-据《华盛顿邮报》报道，巴西的卫生监管机构，即Anvisa，根据它所说的缺乏质量控制、疗效数据和不良副作用的信息做出了裁决。
-
-该机构在一份声明中说：“瑕疵……在临床研究的所有阶段都被发现。”它补充说，它没有发现“任何已确定的制造条件，可以证明产品是被稳定生产和控制的”。
-
-该决定公布后不久，卫星V（Sputnik V）在推特上对该机构的评估进行了反击。
-
-“卫星V与Anvisa分享了所有必要的信息和文件，比在61个国家批准卫星V所用的信息和文件多得多。我们希望在决策中使用科学，而不是来自另一个国家的压力。”该疫苗制造商用葡萄牙语写道。
-
-
-
-> O Departamento de Saúde dos Estados Unidos confirmou publicamente que pressionou o Brasil contra a Sputnik V. Os países devem trabalhar juntos para salvar vidas. Os esforços para minar as vacinas são antiéticos e custam vidas.
-> 👇[https://t.co/Ga5i4zvbCt](https://t.co/Ga5i4zvbCt) Pág. 48 [pic.twitter.com/9mszFs3iYQ](https://t.co/9mszFs3iYQ)
-> — Sputnik V (@sputnikvaccine) [March 15, 2021](https://twitter.com/sputnikvaccine/status/1371444687198883847?ref_src=twsrc%5Etfw)
-
-
-
-该评论很可能是指美国政府向其他国家施压以拒绝俄罗斯新冠病毒疫苗的说法。
-
-克里姆林宫的一位发言人在3月份说，一些国家正受到“前所未有的”压力，要求拒绝这种药品。
-
-德米特里·佩斯科夫（Dmitry Peskov）说：“在许多国家，压力的规模是相当空前的……这种迫使各国放弃任何疫苗的自私企图是没有前景的。我们认为，应该有尽可能多的疫苗剂量，以便所有国家，包括最贫穷的国家，都有机会阻止这种大流行病。”
-
-《华盛顿邮报》报道，佩斯科夫周二表示，俄罗斯政府愿意向巴西提供更多信息。
-
-尽管最近的测试发现卫星V冠状病毒疫苗在预防冠状病毒感染方面是安全和有效的，但该疫苗在被俄罗斯政府批准使用之前没有经过进一步的测试，因此受到了许多全球卫生专家的批评。
-
-《华盛顿邮报》指出，斯洛伐克的药品监管机构放弃了一批卫星V疫苗，说它确实具有“相同的特征和属性”，这些特征和属性是在同行评议的医学杂志《柳叶刀》上发表的一项研究中观察到的。
-
-迄今为止，巴西已经批准了辉瑞、强生、阿斯利康和科兴的新冠病毒疫苗。该国作为受大流行影响第二大的国家，最近被印度赶超。
-
-根据世界卫生组织的数据，巴西已经确认了有超过1400万新冠病毒病例和近40万人死亡。到目前为止，该国已经注射了超过3550万剂疫苗。
-
-🔗[原文链接](https://thehill.com/policy/international/550464-brazil-rejects-russias-coronavirus-vaccine)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/r2Xtb70AeIsr7/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/r2Xtb70AeIsr7/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 
 

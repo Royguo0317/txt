@@ -1,38 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲正在审查中共国在达尔文港的所有权
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1167204/)
+## 国以群分 别字时代
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1167253/)
 
-翻译与评论：Shirley
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03072650/darwen.jpg)网络图片
-澳洲国防部长达顿（Peter Dutton）证实，他的部门正在审查一家中共国公司在达尔文港的所有权问题。达尔文港是一个位于澳洲最北端的、具有战略意义的、有美国海军陆战队基地的港口。
-
-达顿在周日晚些时候接受《悉尼先驱晨报》采访时说，总理莫里森内阁的国家安全委员会已要求国防部就达尔文港所有权提供建议。当被问及政府是否在酝酿强制撤资时，他说，政府会考虑国家利益。
-
-澳洲北领地政府在2015年，将达尔文港租给中共国陆桥集团公司（Landbridge），租期99年，此交易受到了安全专家的批评。
-
-达顿发誓要更公开地谈论中共国的侵略行为，比如澳洲的网络系统是如何”受到攻击”的。澳洲必须要保卫其非常重要的北部和西部水域免受侵犯，所以达尔文港尤其显得重要。
-
-澳洲联邦政府上个月使用新的《对外关系法》，取消了中共国与维州政府的 “一带一路 “协议，引发了中共国的不满。有关达尔文港的决定，必然会进一步加剧澳洲与中共国之间的紧张关系。相信在达尔文港之后还会有纽卡斯尔港、西澳的工程项目等等，最后就是澳洲与中共国彻底脱钩。
-
-中共国在香港问题上单方面撕毁国际上公认的《中英联合声明》，让全世界认识到中共国是不守信用的，可以单方面撕毁任何协议。如果一个国家因为不执行合同失去了信誉，所谓的朋友如俄罗斯、伊朗以及小三胖等，都不过是酒肉朋友罢了，到了关键时刻都将是背后捅刀子的。
-
-同时，中共国残忍地杀害香港热爱自由的年轻人，也让西方自由世界意识到中共国的杀掠本性。面对中共霸凌，自由世界为了保护自己的利益，第一件要做的事，就是将流氓中共扫地出门。
-
-郭先生说过，香港是灭共的第一道大门。透过香港事件，全世界都醒了，认识到了中共无耻与邪恶的本质，别无选择，全世界只能团结起来共诛之。中共命不久矣！
-（本文仅代表个人观点）
-
-参考链接：
-
-[https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.html](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
-
-[https://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-says](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
-
-[https://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
-
-*审核&编辑：Runaway*
-![]()![](https://gnews.org/wp-content/uploads/2021/04/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
+- 作者：春晖
 
 
-0
+***更多真相，请关注***[***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+
+**西班牙2021年5月3日电/西喜社——**
+
+这两天，有不少网民就民主味儿在微信群里发表个人看法，本人觉得很正常。
+
+同，是相对的，不同，是绝对的。没有不同，便没有五彩斑斓的大自然和人类社会。
+
+早就有哲学家说过，宇宙没有两粒沙子或两片树叶是完全相同的；自然，也没有两个人的脸完全一样——即使孪生，也只是高度相似，还是有不同；而且冰心也说过，如果这个世界上所有人的脸长得完全一样，她必不愿看人脸。
+
+托尔斯泰在《安娜·卡列尼娜》开篇就写道：幸福的家庭都是相似的，不幸的家庭各有各的不幸。但民主与独裁却像是“反着来”。都知道，如果用民主比喻幸福，那么，无疑就要用独裁比喻不幸了。可这一对，与“幸福”和“不幸”的一对，在“味儿”上恰恰相反：独裁的国家都是相似的，而民主的国家却各有各的不同——用现在“流行”的说法，民主不是可口可乐，不可能只是一个味儿。这正是大千世界的奇妙之处。
+
+但民主与不幸毕竟有点不同。“不幸”，不仅各有各的不幸，而且“毫无幸福”可言。但民主不是这样。民主虽然不是一个味儿，可首先要有民主，即要有人能感觉到的一种幸福。如果是“毫无幸福”的民主，不管它如何变幻花样，即不能称之为民主。这是最基本也是底线，同时，也是“民主”与“不幸”最大的不同。
+
+不说七十年，也不说一百年，因为在这一百年里，我们不能说这个国家“毫无民主”。2014年去世的“美国政治学家、战后最杰出的民主理论家”（百度百科）、美国耶鲁大学终身教授罗伯特·达尔在他的《论民主》一书中说：“……反民主的信仰和运动仍然继续存在，而且时常还有狂热的民族主义或宗教原教旨主义加盟其中。民主性质的政府（‘民主’的程度参差不齐）还不到世界政府总数的一半，其人口也不到世界人口的一半。世界上五分之一的人口生活在中国，在其辉煌的四千年历史中，中国从未出现过民主政府。”
+
+不要惊诧，罗伯特·达尔所说的“四千年历史中”，大概不包括这一百年吧。另外，还注意到，这段话中括号里有“‘民主’的程度参差不齐”，这应该也足以证明民主不是可口可乐，不可能只是一个味儿。但我们还是要明白，“程度参差不齐”，主要是指民主的完善程度，但性质一定是民主的，不是独裁专制的，这是与那些民主程度够高的国家相比较而言。所以，“程度参差不齐”不应成为“变味”的理由或依据，更不应成为反对实行民主的口实。
+
+《论民主》是上世纪九十年代问世的，当时的统计，这个世界上民主政府还不到世界政府总数的一半。现在转眼近三十年过去，据本人所知，民主政府早已大大超过一半了，尽管这些民主政府的程度参差不齐，但方向是朝着更高的民主努力，并向着高度民主看齐的。
+
+这样一来，这个世界上就分出了民主与不民主的国家。这是没有办法的事。就像物或人一样：物以类聚，人以群分。国也一样。到今天，我们就会看得更清楚：国同样也是以群分。
+
+人类毕竟离大同还远，因此，呈现在世人面前的就是，什么样的国跟什么样的国友好，什么样的国跟什么样的国敌对。美国与加拿大的边境线上没有一个士兵巡逻，而美国跟英国友好的就像父子或兄弟，说干什么就干什么，往往团结一致，同仇敌忾，说到做到，让一些国家羡慕死。不仅如此，独裁国家之间经常发战争，而类似情形在民主国家往往看不到。
+
+可以说，现在人类已进入到“国以群分”的时代，就算你不关心天下大事，只要天天看央视节目看新闻联播而又不呆不傻，你就一定能感受得到。
+
+“国以群分”好不好？好也不好。特别是如果民主国家只帮助民主国家，那么，非民主国家猴年马月才能实现民主？即使民主不是一个味儿，非民主国家的人民也还是希望先走上民主道路再说，然后去完善它，而绝不会像两千多年前大秦的百姓那样，希望“大秦万年”。
+
+审核：蚂蚁兄弟；校对：信心的选择；发稿：信心的选择
+
+[**欢迎加入西班牙巴塞罗那喜悦农场**](https://discord.com/invite/WPy8Qp7)
+
++1
