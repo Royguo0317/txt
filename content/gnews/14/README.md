@@ -1,67 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【熱點播報】習神霸氣側漏露獠牙，破壞國際新秩序！
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1167908/)
+## 美国的大战是在2022年&nbsp; 两位副总统都不是省油的灯
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1168118/)
 
-作者：紐約香草山福音部 能燈山神
+**摘要：在2021年4月30日的盖特视频中，郭先生说：“美国的大战是在2022年”，“两个副总统都不是省油的灯”，还说：“我们最好的结局就需要他们这样，2022年美国的所有所谓的保守派，还有所谓的亲共派来一场大对决”。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03143813/Miles_20210430-getter3.srt-1.txt)
+**美国的大战是在****2022****年**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01211000/gnews-logo-3.jpeg)
+**America’s Big War Will Be in 2022**
 
+朱利安尼现在这种强势反击多好啊？美国的大战是在2022年。「大家」记住：只有郭文贵说过两个副总统都不是省油的灯。我再告诉大家：我们最好的结局就需要他们这样，2022年美国的所有所谓的保守派，还有所谓的亲共派「来」一场大对决。对决完以后在国会山、白宫、然后美国整个媒体，精英界彻底醒过来，包括在美国底层的老百姓知道共产党是他们的威胁。病毒只有找解药，然后要找原因、找元凶。
 
+How great is this strong counterattack that Giuliani is having now! America’s big war will be in 2022. Remember only Miles Guo said neither of the two vice-presidents is easy to deal with. I can also tell you that our best outcome requires a big contest between the so-called conservatives and the so-called pro-communist in the United States in 2022. After the contest, the Capitol Hill, the White House, then the entire American media and the elite circle will wake up completely. The grass roots of America will realize that the Communist Party is a threat to them. The only solution to the virus is to find the antidote, then to find the cause and the culprit.
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03124541/%E5%9B%BE%E7%89%8756.png)
+看看共产党找那些小国家，二、三十个国家，五、六十个国家，我在一年前就说了，半年前就说：这是它的战略，「共产党」还想动联合国呢？联合国在纽约，美国认你联合国就认；不认「联合国」连个屁都不是，连个橡皮图章都不是，是不是？2022年当真正的美国，美国国家主义，美国的保守派和美国真正的灭共派站起来的时候，联合国「还有」所有世界上的国际组织都将重新改组，因为被共产党渗透得太厉害了。
 
-路德社5月3日美東早間節目發布重要消息如下。
+Look at those small countries, the 20 or 30 countries, the 50 or 60 countries that the CCP found [to ally with]. I said a year or half a year ago, that this is their strategy. [The CCP] wanted to play the UN card? The [Headquarter of the] UN is in New York. If America recognizes you [the UN], you are the UN; otherwise, the UN is nothing, not even a rubber stamp, right? In 2022, when the real United States [spirit], the American nationalists, the American conservatives and the real anti-CCP groups of the United States stand up, the UN and all international organizations in the world will be restructured because they have been infiltrated too much by the CCP.
 
-美國在尋找新的國際秩序，中共一直在破壞這個秩序，自己建秩序自己不遵守，面上玩一套私下幹著邪惡的事，這種邪惡一旦曝光于天下就無法控制！就像“CCP病毒”放出去就再也收不回來。這個中共病毒武器完全失控，中共病毒不需要高超的技術，美國的高科技和知識産權沒法控制中共土流氓的這個“秩序”。這是美國最最最害怕的事！
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/608c3c144486aa0bb231b863](https://gtv.org/getter/608c3c144486aa0bb231b863) (8:01-9:25)
+鸣谢：感谢 Antsee-GTV、TING GUO 提供中文文本于 [https://www.gnews.org/zh-hans/1159960/](https://www.gnews.org/zh-hans/1159960/)
 
-現在全球五億人感染中共病毒，政府醫療體系崩潰，就像印度國家出現危機，政府秩序被中共病毒搞得徹底崩潰。美國兩黨政府清楚再不行動就走印度的後塵！美國秩序也將崩潰！
+* * *
 
-習神霸氣側漏獠牙暴露：“多喝奶茶多鍛煉”。“青年人要鍛煉好身體，爲革命事業健康工作50年”。這種行屍走肉的“老秩序”老粉紅和小粉紅們還沒准備好就要和習大神一起死定了！
+翻译：【雷鸣（文鸣）】字幕：【JennyL】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-美國對中共的邪惡已經忍無可忍！左右兩黨達成一致，兩派媒體開始發功。哥倫比亞廣播公司CBS“60分鍾”對布林肯最新專訪，談美中關系，世界新秩序，爆料揭開中共邪惡本質！
-
-布林肯發狠話：“美國正面臨重大挑戰和（中共）敵對勢力”。“美中關系處于低谷的原因在于中（共）國。美中關系處在一個困難時刻。我們看到中（共）國近年來在國內采取了更加壓制自由的行動，我們看到它在境外采取了更加囂張的行動”。“美國並不是要抑制中國，美國要對付的是那些挑戰‘基于規則的國際秩序’的人。”
-
-CBS評論說：對抗中共國是當今民主黨和共和黨唯一能達成一致的問題。
-
-布林肯：“中（共）國簽署了世界人權宣言，對人權作出了莊嚴承諾，但它違反了這些承諾。他們還承諾會遵守捍衛國際和平與安全的聯合國憲章，但他們正在削弱自己爲維持國際秩序作出的承諾。這就是爲什麽我們會有那些言行。”
-
-“縱觀美國曆史，當國家面對重大挑戰和敵對勢力時，美國人民努力走到了一起，真正做了長遠的思考和長遠投資。國家現在就處在這樣一個時刻，並面臨這樣的挑戰”。“中（共）國的所作所爲將會對自己經濟帶來負面影響，因爲如果它面對來自世界廣大地區的責難時，發展經濟將會越來越難”。
-
-以毒滅共—以美滅共—以共滅共—以幣滅共！
-
-全球滅共已經開始了！就像中共病毒收不回來，只是時間的問題！
-
-闫博士已經告訴世界：我們人類的時間已經不多了！
-
-【新中國聯邦】
-
-爆料革命‼️唯真不破‼️
-
-正道主義‼️萬佛萬神‼️
-
-敬畏萬物‼️感恩天地‼️
-
-同心同德‼️與善同在‼️
-
-校對/發稿：飛虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
-
-
-
-**更多資訊，更多關注**
-
-[**紐約香草山農場GTV****–****香草山之聲**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**紐約香草山農場GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山訪談**
-
-[**紐約香草山農場****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**紐約香草山農場Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**紐約香草山農場 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++2

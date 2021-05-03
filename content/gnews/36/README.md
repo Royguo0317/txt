@@ -1,57 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【信仰之声】《无依之地》与《三峡好人》里的两个世界(下)
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1167447/)
+## 【商见你我他】美国经济——繁荣下的阴影
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1167583/)
 
-作者：纽约香草山福音部 山城小哥
+五月花写作组 | 商业部：无米之炊 | 编辑：文合 | 美工：灭共小宇宙 | 发稿：jamie(文胤)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02191345/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
+自从2020年CCP病毒疫情在全球范围内爆发，世界的经济受到了史无前例的重创。2021年，随着美国联邦政府一揽子的财政救助和刺激计划的出台，以及越来越多人接种了新冠疫苗， 美国经济的复苏被注入了一针强心剂。 据CNBC近日报道，美国不仅第一季度的GDP增长率有望大于7%,  4月份更是已经连续两周失业救济金的申请数少于60万例。美国的经济已经走出疫情的重创？还是这一切只是表面的繁荣？
+
+我们首先关注劳动力市场。福克斯新闻4月24日报道，由于疫情期间的失业福利还在继续，全国范围内的大量餐馆面临无法招募到员工的困境，很多餐馆不得不用现金，或雇佣高中生来维持生意。除了餐馆，很多大量雇佣廉价劳动力的商家都面临同样的困境，比如园艺公司，清洁公司等。与此同时，大量媒体报道每月新增的就业机会正以几十万的数目增加。一方面是大量失业人口，另一方面是商家无人可雇，为什么会有这种矛盾的现象？
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03103705/Picture1-7.jpg)图片来源：CNBC
+
+据路透社报道，2020年的疫情令美国失去了近两千两百万个就业岗位, 其中56%是低收入行业的工作。目前这些失业人口中只有少部分人在寻找工作。三月底人口普查局的一项调查显示，因自己或家人生病的原因，导致约有两百六十万的人没有寻找工作，有四百六十万人为了避免感染上病毒而拒绝去工作，还有百万计的人因为要照顾孩子不得不放弃工作。这些原因使得现在和疫情前相比，可劳动的人口减少了约五百万。此外，政府的失业保险福利和救助支票让低收入行业的人员更愿意在家领取失业金，而不愿继续工作。这无疑进一步加剧了目前商家无人可雇的局面。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03103718/Picture2-2.jpg)图片来源：flipboard.com
+
+另一个受疫情影响颇深的领域是芯片供应链。据雅虎财经报道，芯片的短缺已经对169个行业产生了影响。个人电子产品行业、汽车、机械行业都在竭尽全力争取买到足够的芯片来维持产品生产。福克斯新闻4月26日报道，通用汽车主席罗伊斯称：”这次的芯片供应链危机是他职业生涯中见过的汽车制造业里最大的危机”。目前通用汽车减少了旗下几乎所有汽车和小型SUV的生产，来保证有盈利空间的卡车生产所需的芯片。电视、个人电子产品的生产也面临同样的困境。疫情引发的居家办公和上学潮，极大的促进了电视、电脑、手机、显示屏和其他电子产品的销售。苹果的执行总监Tim Cook告诉路透社：苹果没有足够的芯片用于新手机的生产。令人担忧的是，芯片短缺的状况并不能在短时间内解决，这种状况可能要持续到今年年底或明年才会好转。而造成这次大范围的芯片短缺的原因除了疫情造成的芯片生产商停工减产、及对个人电子产品需求的激增外，还有半导体供应链自身结构的问题，以及中美贸易战的因素。半导体行业大部分公司为了利益最大化，已经不再自主生产芯片，而是将生产外包给台积电、三星等企业。而2019，2020年内存芯片价格的下调也让很多厂商减少了它们的产量。疫情期间激增的订单令这些企业即使开足马力也不能满足需求。由于川普政府对中国芯片企业开出了禁令，很多企业，如华为、本田，很早就囤积了大量的芯片以备不时之需，这进一步加剧了芯片的短缺。汽车行业使用的芯片和电子产品并不相同。由于疫情初期汽车销售的休克，让汽车生产商砍掉了他们的芯片订单，当他们后续意识到要采购大量芯片进行生产的时候，汽车芯片的生产早已被供不上货的个人电子产品企业垄断了。尽管芯片的短缺令生产商深受折磨，但经销商却因此赚的盆满钵满。
+
+因短缺造成的强劲销售，是昙花一现的通胀？还是经济回暖？相信大家都有自己的判断。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03103640/Picture3-2.jpg)图片来源：Yahoo Finance
+
+失之东隅， 收之桑榆。UPS联合包裹服务公司，是在疫情期间受益的公司之一。电子商务行业在疫情期间蓬勃发展。UPS称他们每日的运输量在疫情期间增长了14%，去年的收益为47.9亿美金，较2019年增长了400%。此外，UPS还在疫情期间为世界各国运输CCP病毒疫苗。该公司称，目前为止他们已经运送了1亿9千6百万剂疫苗。其他全球知名物流公司，如Fedex, DHL等，也在疫情中表现亮眼。
+
+劳动力不足，通货膨胀与通货滞涨并存。美国的经济是福是祸，我们拭目以待。
+
+参考来源：
+
+1. [https://www.ilo.org/global/topics/coronavirus/impacts-and-responses/WCMS\_767028/lang–en/index.htm](https://www.ilo.org/global/topics/coronavirus/impacts-and-responses/WCMS_767028/lang--en/index.htm)
+2. [https://www.cnbc.com/2021/01/12/hiring-for-these-jobs-is-on-the-rise-in-2021-according-to-linkedin.html](https://www.cnbc.com/2021/01/12/hiring-for-these-jobs-is-on-the-rise-in-2021-according-to-linkedin.html)
+3. [https://www.cnbc.com/2021/04/22/the-labor-market-is-starting-to-rip-as-fewer-seek-unemployment-benefits.html](https://www.cnbc.com/2021/04/22/the-labor-market-is-starting-to-rip-as-fewer-seek-unemployment-benefits.html)
+4. [https://www.wsj.com/articles/the-job-market-is-tighter-than-you-think-11619006400](https://www.wsj.com/articles/the-job-market-is-tighter-than-you-think-11619006400)
+5. [https://www.foxbusiness.com/lifestyle/restaurants-nationwide-struggle-to-find-workers](https://www.foxbusiness.com/lifestyle/restaurants-nationwide-struggle-to-find-workers)
+6. [https://www.reuters.com/article/us-usa-economy/u-s-economy-loses-jobs-as-covid-19-hammers-restaurants-bars-idUSKBN29D0J9](https://www.reuters.com/article/us-usa-economy/u-s-economy-loses-jobs-as-covid-19-hammers-restaurants-bars-idUSKBN29D0J9)
+7. https://www.cbpp.org/research/poverty-and-inequality/tracking-the-covid-19-recessions-effects-on-food-housing-and
+8. [https://cn.reuters.com/article/usa-economy-job-poll-0213-idCNKBS2AD01H](https://cn.reuters.com/article/usa-economy-job-poll-0213-idCNKBS2AD01H)
+9. [https://www.foxbusiness.com/lifestyle/gm-president-ruess-chip-shortage-auto](https://www.foxbusiness.com/lifestyle/gm-president-ruess-chip-shortage-auto)
+10. [https://www.theguardian.com/business/2021/mar/21/global-shortage-in-computer-chips-reaches-crisis-point](https://www.theguardian.com/business/2021/mar/21/global-shortage-in-computer-chips-reaches-crisis-point)
+11. [https://www.cnbc.com/2021/02/10/whats-causing-the-chip-shortage-affecting-ps5-cars-and-more.html](https://www.cnbc.com/2021/02/10/whats-causing-the-chip-shortage-affecting-ps5-cars-and-more.html)
+12. [https://www.foxbusiness.com/economy/small-business-demand-ups-profit-revenue-q1](https://www.foxbusiness.com/economy/small-business-demand-ups-profit-revenue-q1)
+13. https://www.cnbc.com/2020/09/15/fedex-revenue-jumps-as-pandemic-drives-e-commerce-bounce.html
 
 
+* * *
 
-回过头来看看类似的一部描写中国底层或者说绝大部分中国人生活的电影《三峡好人》。该影片的许多情节内容和笔者经历过的现实近乎完全相符。
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
 
-电影里的主人公山西人韩三明十六年前在人口买卖市场上买了一个妻子，后来妻子嫌弃他穷，带着女儿跑回了重庆娘家。十六年后的主人公，想念妻子和孩子，于是在2005年左右去重庆奉节去找妻子和孩子。
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03085112/%E5%9B%BE%E7%89%8753.png)
-
-跟随着电影的镜头，我们首先看到的就是在客船上抓住一点空闲时间就喝酒、赌博、看手相算命的乘客。那一张张空洞，对生命和世界茫然无知的中国脸。相信每一个看过的战友都会感到难过。
-
-主人公下船以后，一不小心在码头休息室就被耍魔术的人敲诈了一番。然后他打摩托车去妻子留给他的地址，摩托车司机明知那里已经被新修的三峡水库的水淹没了，但依旧收了他的钱带他去。后来去拆迁办查询妻子新居地址的路上，他又邂逅了一群因中共拆迁安置不公平合理而和言而无信的中共底层官员闹纠纷的大爷大妈。
-
-到了拆迁办，又碰上拆迁办的电脑坏了，没办法查信息。于是摩托车司机带他去找许多人一起住的便宜床位先住宿。住宿店老大爷知道他是外地人，本来住宿只需要一元钱左右一晚上，却告诉他要三元钱一晚。摩托司机假装帮助讨价还价以后，最后定价一块二毛钱一晚上，司机回过头来又向老大爷要了一些回扣。后来主人公又在住宿地点遇到了当地共匪养做解决拆迁事务打手的青年“小二哥”。“小二哥”以香港黑社会电影里的古惑仔大佬“发哥”为偶像，主动问主人公要烟，并让主人公给他点烟，他说他会“罩着”主人公，这里是他的地盘……
-
-由于长时间没妻子消息，主人公便和室友一起去下苦力干拆房的活。后来终于见到了妻子，发现妻子也没再嫁出去过，妻子说她逃回家很后悔，说自己那时年轻不懂事……。虽然是买来的妻子，而且十六年没见，但因为男主人公对妻子好，所以夫妻见面，真情都在不言中。问到女儿时，妻子说16岁的女儿已经去沿海的工厂打工求生存去了。妻子的父亲说要两万块钱，才能让主人公带妻子走。主人公却没有那么多钱，说一年后挣够了钱来带妻子走。
-
-后来“小二哥”参与打架斗殴死掉了。……主人公在当地做了一段时间拆迁活儿，有了路费以后，于是打算回山西。工友们都问他山西有啥“活路”(我们重庆人把干活叫做干“活路”，我觉得太准确了)没有，主人公告诉他们他打算回去挖煤，工资高，200块钱一天。工友们都说愿意去，主人公说工资高，但是脏，而且有时候下去就上不来了。工友们听了以后一脸茫然，但为了求“活路”，大家一杯酒下肚以后还是跟着主人公一起出发了。最后主人公离开奉节时，回望了一眼，看到一个人在两栋房子之间走钢丝。一个如同走钢丝一样的社会，等待主人公的也是走钢丝一样的人生……
-
-还有一些细节不多讲了。通过这部电影里的许多人和细节，我们看到的是在中共的奴役和洗脑之下，中共国绝大多数底层百姓真的是集近乎让人绝望的贫穷、愚昧、无知、败坏、冷漠等等为一体。一个个人就像一个个被抽干灵魂的驱壳，勉强苟活，所以此电影外文名叫“Still life ”,也就是“仍然活着”，实在是太准确了。
-
-整个电影虽然没说政治，但其实是对中共暴政无声的控诉。因为中共的存在，中国社会几乎每个角落和领域都充满了压榨、欺骗、冷漠。除了血亲之间以外，很难看到一点爱的存在。绝大多数人挣扎着只求一条“活路”，从来没时间，没精力，没心情，没意识去关心灵魂的归宿、法治自由、公平正义……。绝大多数底层只是默默地接受着和适应着一切，过着行尸走肉一样的生活。整个社会从上到下全体性地败坏，绝大多数人都在自己能力范围内做着和中共高层一样败坏道德的事。整个社会如同片头一样，就是一个赌博，谁运气好，谁诡诈，谁会玩，谁就赢得名利。
-
-看了这电影，再深入观察我们面临的现实，有时候，我们忍不住会问“这样的社会，还能有救吗”？其实，一个社会有没有救我们不知道。但即使在这样的社会里，许多人依然可以得救。一个再败坏的人，只要他能有机会听闻耶稣基督的福音，他就有接受耶稣基督的福音，悔改得救的机会。
-
-和《无依之地》反映的美国人底层的状态相比，中国人底层似乎最缺的是钱，但中国人本质上缺的是耶稣福音带来的那种人与人之间的彼此关爱与一个真正的法治制度。如文贵先生昨天在直播里说的，没有其他国家能或者愿意用武力的方式来改变中共国。即使美国能做的也只是制造环境，让中共国自己去改变，让中共国人自己去解散中共。这一切都充满变数，谁也不知道中共的崩塌具体会如何发生以及在什么时候发生。我们基督徒战友们能做的就是传播福音，传播中共的真相，等候耶和华。一切都有定时，我们相信中共必灭。希望有一天，华人的流浪生活也能像美国人的一样浪漫。
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01143151/M5.jpg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-​
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
 0
