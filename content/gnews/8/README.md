@@ -1,126 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士谈E蛋白帮助病毒维持神经毒性
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1166219/)
+## 灰头土脸的辽宁号刚走，山东号又来南海军演！
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1166162/)
 
-字幕内容：
+*加拿大多伦多枫叶农场 向真*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02232613/theedgemarkets.com-2.jpg)*图片来源：theedgemarkets.com*
+辽宁舰航母编队4月初启航，自东海进入太平洋，经宫古海峡一路南下，绕南海一圈后于本月中旬返回母港。随后中共国防部发表声明，敦促美国“限制其在中国附近海空前线部队”，指责美国派遣海军舰艇进入其战略区。这明显是指强行插入辽宁航母编队，并用电子战瘫痪了辽宁航平衡器的美军柏克级马斯廷号导弹驱逐舰。
 
-闫丽梦博士：
+南海是全世界最繁忙最重要的黄金水道，海产异常丰富，有巨量的油气资源，南海的领海主权争端由来已久，中共不顾国际社会的反对，在南海强行划下所谓的领海九段线，几乎包含了整个南海水道，并在九段线之内的海域建设军事基地，将战略轰炸机及超高音速洲际导弹等战略性武器装备强行部署到南海。
 
-So what I want to comment on it,
+早前国际法庭作出了中共的南海九段线及军事部署属于“非法行为”，美国的川普政府跟进宣布中共在南海的行为非法。但习总加速师对国际社会的强烈反对置之不理，近来频频在西太平洋进行大规模军演，两个航母编队轮番上阵到南海耀武扬威，加剧了南海的紧张局势，菲律宾甚至明确表示和中共“必有一战”，美国及主要北约成员国的战舰云集南海，南海成了真正的火药桶。
 
-对于这一点，我想说的是
+现在来简单看一下中共首艘航母山东号是什么货色。山东号釆用蒸气机动力，和美国1956年生产，2009年退役的小鹰号常规动力航母相比，各项参数还差了一大截。小鹰号满载排水量是8.6万吨，能够搭载各型舰载机共80多架，山东号和辽宁号一样满载排水量都是6万吨，经过改造的山东号比辽宁号搭载的各型舰载机稍多，但最多也是50架左右。小鹰号配备了4部蒸汽弹射器，15分钟内至少可以起飞15架舰载飞机，山东舰楞是弄不出人家60年前就已经熟练掌握的蒸气弹射技术，用的还是百年前使用的滑跃起飞技术，15分钟只能起飞5架舰载机，战力大打折扣。
 
-I am not neurologist, I just have the medical knowledge about neurology disease.
+小鹰号服役时搭载的20架F-14“熊猫”舰载机、36架F-18舰载机、9架A-6攻击机、10架反潜机、6架EA-6B电子战机、4架E-2C固定翼预警机、4架加油机以及12架舰载直升机，即使原样搬到今天，也能秒杀山东号的各种垃圾舰载机，何况飞行员和部分飞机还是临时租借俄罗斯的。另外，航母必须配套的固定翼运输机、加油机、电子战机等，由于山东号不能提供蒸气弹射的瞬间加速能力，都上不了航母，因此作战半径仅等于小鹰号的一半。
 
-我不是神经科医生，我只是有神经科疾病的医学知识
+中共自称山东号的电子系统、供电系统、舰载武器非常先进，这恰恰是山东号的软肋，以上这些系统的运行和使用无一不依靠高端芯片，中共既造不出高端芯片，又被西方封锁，因此其电子频谱战和西方发达国家的差距不仅是一个代际的差距，美舰略施小技，就搞瘫了辽宁号航母至关重要的平衡系统，就是最好的注解。可以预见，美中一旦爆发海战，号称天下第一的中共海军，其下场比甲午海战的北洋水师还要更加悲摧。
 
-But what I have pointed in my third report and also in my first report, I can use it as smoking gun.
+新闻来源：
+1.[China’s carrier group conducts exercises in South China Sea](https://www.hindustantimes.com/world-news/chinas-carrier-group-conducts-exercises-in-south-china-sea-101619947557938.html?utm_source=ht_site_copyURL&amp;utm_medium=social&amp;utm_campaign=ht_site)
+2.[全面对比“小鹰号航母”与“山东号”航母](https://www.sohu.com/a/416772639_100183371)
 
-但正如我在第三份报告和第一份报告中指出的那样，我可以把它当作确凿的证据
+* * *
 
-is envelop protein, E protein, in SARS-Covid 2,
+编辑 发稿 坐看云起时
 
-就是E蛋白，SARS-Covid 2中的E蛋白
-
-it’s hundred percent identical as it as the back born, Zhou Shan Conoravirus
-
-可以100%完全确认SARS-Covid 2使用舟山蝙蝠冠状病毒作为骨架
-
-First, this is the evidence. It comes from the Zhou Shan bat conoravirus, which is somehow, completely cab into SARS Covid 2.
-
-首先，这是证据。该E蛋白来自舟山蝙蝠冠状病毒，不知何故，它完全被发现在SARS Covid 2 病毒里
-
-Because if it is going through the spices that’s a kind of host changing, jump from bat to animal to animal to human
-
-因为如果它经过物种间传代，那就是一种从蝙蝠到动物再到动物再到人类的宿主
-
-definitely, that we would see the change, because they already observed the change
-
-当然，我们会看到这种变化，因为他们在人类大流行最早的时候
-
-during the earliest the pandemic in human.
-
-就已经观察到了这种变化
-
-And second thing is why do they keep it, because this is smoking gun,
-
-第二个问题是，中共为什么要对此守口如瓶，因为它是确凿证据
-
-since I write this problem from last year 19th January, with Youtube.
-
-因为我在去年1月19日用YouTube写了这个问题
-
-China had done a quickly get response and later they even locked down.
-
-中共很快就做出了反应，后来他们甚至封锁了E蛋白的信息
-
-Because they know someone released the real information of this bio-weapon.
-
-因为他们知道内部有人泄露了这种生物武器的真实机密
-
-But why until now, no scientist there to touch this E protein issue to argue with me.
-
-但是为什么到目前为止，还没有科学家触及到这个E蛋白的问题，他们也没有来和我争论这个E蛋白的问题？
-
-And even Shi Zhengli, and their like the Chinese Military Academy,
-
-就连shizhengli, 像那些中国军事医学院的学者们
-
-they have developed a lot of novel fabricated too naughty virus, including from bat from Pangolins,
-
-他们已经合成出了很多新奇的病毒，包括从蝙蝠身上，从穿山甲身上，
-
-which all have the identical E protein in those fabricated sequence.
-
-它们在构建的序列中都有相同的E蛋白。
-
-What do they want to hide?
-
-他们想隐瞒什么？
-
-Then lets we back to check E protein’s function.
-
-然后我们再回来检查一下E蛋白的功能
-
-Yes it ‘s not clearly investigated , but we know it’s important for virus fabrication
-
-是的，它还没有得到明确的调查，但我们知道它对病毒的合成至关重要
-
-as some other important part in the Coronavirus
-
-作为冠状病毒的其他重要组成部分
-
-But it’s also have another function what
-
-但是它还有另外一个功能，那就是
-
-discovered and actually my ex-lab in the University of Hong Kong,
-
-在我之前工作的香港大学的实验室
-
-it’s the lab get involve to discover is E protein can have the virus
-
-发现这种E蛋白可以帮助病毒
-
-help the virus maintain the neuronal toxicity
-
-帮助病毒保持其神经毒性
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://rumble.com/vfy3xf-lethal-deception.html](https://rumble.com/vfy3xf-lethal-deception.html)
-
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场-Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片: 康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
++1

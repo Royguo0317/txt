@@ -1,62 +1,283 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## HCOIN 信号论
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1165753/)
+## 闫博士谈论疫苗的安全性
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1162772/)
 
-作者：遥远的诗歌
+**内容：**
 
-今天我想用信号的方式去理解一下什么是 HCOIN 还有 HCOIN 在未来的价值。
-如今全世界在中共病毒的侵蚀下正在彻底的改变，深度互联网社会正在全面推进，但是大多数的人还在被中共释放的谎言所误导，对中共病毒的恐惧导致太多人无法沉静下来思考。
+**闫丽梦博士：**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02213623/050303.jpg)
+I do have my concern about the vaccine now.
 
-社会的变迁其实从另一个角度理解就是信号传递变化的变迁，把每一个个体都理解成为一个节点的话，那么再去看向人类社会的演化其实就是节点连接的范围和效率的变化。
-国与国的连接，语言与语言的连接还有人与人的连接等等，那么我们可以推论一下一个发达国家的
-条件：
-1、有着巨大的传递信号能力
-2、信号传递的效率最快速
-3、吸引外界主动接入信号的吸引力
-从最原始的吼叫声–烽火–信件–手机–互联网，其本质就是在不断优化和增加信号的传递范围和效率的变化。
+我现在确实对疫苗感到担忧
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02213808/050304.jpg)
+And the first thing is
 
-而货币的出现其实也是在建立起一套连接信号的体系，从贝壳到今天的数字货币都可以这样理解，用货币使国民连接成为了一个巨大的信号体，当信号出现阻断和破坏的时候就不得不重新对货币进行重新定义，而国家的衰亡也代表着人民正在全面放弃信号的连接使用。
+第一件事是
 
-目前的世界正处在巨大的金融灾难前夕，在中共病毒的真相面前多数的国家选择了沉默，使得目前的疫情正在全面威胁人类的生存空间，而不断叠加的谎言必然导致整个世界的经济走向深渊。
+I kept telling people there no real effective vaccines against the pandemic
 
-隔离的生活方式已经改变了几千年来延续下来的人类群居模式，而中共注定的灭亡剧本也让未来的世界变得极为不同，一个被 70 多年压制的巨大人口的国家，所带来的颠覆式改变将会对未来的走向有着巨大的影响。
+我一直告诉人们没有真正有效的疫苗来对抗这种大流行
 
-那么我们目前所能看到的未来世界的缩影中必备的前提就得出–隔离式深度互联网社会，那么数字货币的重要性可见一斑，不夸张的说在这一次的世界大战中能够在大浪淘沙的环境下生存下载的数字货币将会成为未来世界的基石–新世界信号核心的诞生。
+So there are some reasons very simple the people can understand the vaccine
 
-而深度互联网的到来也会让更多的财富涌入到互联网当中，那么目前我们所经历的就是一个宇宙大爆炸的过程，新的秩序、新的时代、新的生活方式将会全面到来。
+所以有一些很简单的原因，让人们可以理解疫苗
 
-Hcoin 和 Hdollar 的双币制大大强化了使用效率和使用范围，给我们提供了一个最安全最自由的数字货币选择。一个潜力最强大的信号，一个将会把 14 亿人全面连接然后点亮世界的巨大信号源已诞生。
+The first thing is this virus SARS Covid-2 is basically the bigger version, enhanced version of SARS 1,
 
-Hcoin 在未来的涨幅与 G 体系在未来的辐射范围紧密相关,而其中的 Hdollar 将会成为全面连接信号的最强有力的保障存在。比起波动的 Hcoin 来说，无论是中共灭亡后兴起的新中国联邦还是全世界被中共病毒和疫苗经济深陷泥泽的国家，最急切需要的是一个可以稳定保值的货币能够成为避风港，哪怕是世界经济进入崩溃后也依然能够进行安全流通的贸易方式。
+首先，这种SARS Covid-2病毒基本上是SARS一号的增强版本，
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02215039/050307.jpg)
+And we never have such vaccine, because of the nature, I am not
 
-可能我们都没有注意到在未来最强大的保障就是保值。
-而郭先生所打造的 G 体系完全符合了最完美的信号站建立。
-GTV—Gnews–喜币–Gfashion–盖特–Gbank–喜联储–交易所等等等等。。。
-一个环形经济体在一个我们看不到的地方已经形成，很荣幸我能够成为其中的一员见证一个时代的开始。国家将会在未来成为一个越来越淡化的词汇，因为互联网并没有国界线，也就是说我们在未来完全可以选择在一个喜欢的环形云上国家去生活，因为一个环形经济已经满足了一个人的所有需求。
+我们从来没有研究出过这样的疫苗，因为自然界的原因，我并
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02214408/050306.jpg)
+anti vaccine I worked on universal influenza vaccine
 
-而环形的经济流动必然产生巨大的引力，使得更多的经济融入到其中，就好像行星的运转一样。圆环一直以来就是最符合世界本质的存在，道家的太极也是一样，太极图是圆的，道家哲学认为世界的基本构造是圆和球形（圆是自然界效率最高的平面图形）。
+不反对疫苗，我本身也是做流感疫苗的研究方面的工作
 
-那么我们可以看出未来世界将会出现多种环形经济的形成，中国将会在中共灭亡后全面重生，巨大的人口基数和民族向心力还有认清中共邪恶本质后，理性思维的全面回归都会使新中国联邦在未来成为世界上闪耀的国家。
+I have my patent on pending,
 
-而 G 体系的构架也保障了未来的中国不会与世界失去信号的连接，并且会提供一个更高效快速和安全的生活模式，也为后人提供了一个自由的安全岛，能够保障国人的财富不会再被独裁者剥削，被贪婪的政府剥夺，被腐败的资本家利用。
+我有申请中的疫苗专利
 
-2017 年郭先生的爆料就是一个新时代微弱信号的开端，再看看今天新中国联邦的成立，无数的战友被唤醒，还有 G 体系的全面形成，G 体系我更想理解为 G 信号已经开始全面连接世界，中共的挣扎不过是断电前最后的几次的闪烁，一个伟大的时代正在到来。
+I know, I just know how to develop vaccine in a proper way try to in a proper way, right?
 
-Hcoin 的价值我想已经完全不言而喻，一切都已经全面开始，让我们一起呐喊欢呼。
+我知道，我只是知道如何以适当的方式开发疫苗，对吗？
 
-【文章仅代表作者个人观点】
+So this SARS Covid 2, it likes SARS 1, we don’t have vaccine because of the
 
-审核校对：鲁邦五世
-上传排版：糖果儿
+所以这个SARS Covid 2，它就像SARS 1，我们没有疫苗，因为
+
+side effect contains
+
+副作用的因素
+
+Likes as allergy or antibody dependent enhancement
+
+像过敏或抗体依赖性增强的
+
+and also we don’t have the good universal influenza vaccine that will have
+
+而且我们也没有好的通用流感疫苗
+
+to develop year by year
+
+需要逐年研发
+
+because of the quick mutant
+
+因为流感病毒变异很快。
+
+So now SARS 2 combined the quick mutant in the circulation
+
+所以现在SARS 2结合了循环中的快速变异
+
+and also it had side effect from SARS 1
+
+此外，它还具有非典1的副作用。
+
+So how could people quickly overcome these issues in several months
+
+那么，人们如何才能在几个月内迅速克服这些问题呢？
+
+and also we know that SARS 2 actually have a lot of modification
+
+我们也知道SARS 2实际上有很多修改
+
+as the Doctor Fleming also mentioned its bio-weapon, right?
+
+因为弗莱明博士也提到了它的生物武器，对吧？
+
+and I already showed that is an unrestricted bio-weapon
+
+我已经证明了这是一种超限的生物武器
+
+so there are also many hidden functions and this is as ….the protein, …
+
+所以还有很多隐藏的功能，这就是…。蛋白质，…..
+
+there are many things…
+
+有很多事情…
+
+now is OK
+
+现在可以了，声音回来了
+
+So at least, you see now we are using most properly we are using
+
+所以，至少我们现在知道，使用的是
+
+the S protein equipped on as I don’t know Virus- mRNA,
+
+最合适的S蛋白，因为我不知道病毒-mRNA
+
+adaptors deliver to our body
+
+适应体传递到我们的身体上里
+
+I don’t judge the technic, because I didn’t see a lot of technic data released
+
+我不评判技术，因为我没有看到很多mRNA公司
+
+by these mRA companies
+
+发布的技术数据
+
+So we need to exam these when its openly released, more released data
+
+因此，我们需要在公开发布更多数据时对其进行检查，这样我们才能
+
+and we can know more
+
+了解更多信息
+
+But just talk about S protein that whether there is still hidden function inside
+
+但是说到S蛋白，我们还不知道里面是否还有
+
+we don’t know
+
+隐藏的功能
+
+We do see that people get infected and get more communication as we just men-tioned
+
+正如我们刚才提到的，我们确实看到人们感染了病毒，并获得了更多的传播
+
+So at this time if just delivered S protein to our body
+
+所以在这个时候，如果只是把S蛋白送到我们的身体里。
+
+whether it will release some other adverse effect
+
+会不会释放一些其他的不利影响。 、
+
+which is even ignored which may come out not in the short term
+
+它甚至被忽视了，这可能不是在短期内出现的
+
+but as chronic style later in our bodies
+
+而是后来在我们身体里变成慢性疾病形式出现
+
+whether it will induce some problem and which can be triggered later by some oth-er
+
+它是否会引发一些问题，以及以后会不会被其他诱发剂触发
+
+factors when we get vulnerable we don’t know that
+
+当我们变得脆弱时，我们不知道
+
+We just know that we still need more data, animal data, enrichful data and
+
+我们只知道我们还需要更多的数据、动物数据、丰富的数据和
+
+also small human trial data
+
+少量的人体试验数据
+
+This need to be done on very strict surveillance and also a lot people should,
+
+这需要在非常严格的监控下进行，而且大家也应该这样做
+
+I mean scientist should check the data carefully and open discuss it.
+
+我的意思是科学家应该仔细检查数据并公开讨论
+
+We don’t know that we just say the vaccine is given to people
+
+我们不知道我们只是说疫苗是给人接种的
+
+Even when they have some other basic problem
+
+即使他们有其他一些基础疾病问题
+
+Even when they are old I don’t know
+
+即使他们老了，我也不知道
+
+For example in China, they gave some in Hong Kong, in negative or
+
+比如在中国，他们在香港给了一些灭活的或者
+
+in other type of vaccine, like Sino Vaccine,
+
+其他类型的疫苗，比如科兴疫苗
+
+From that company to senior age group
+
+给老年群组使用
+
+I am not sure whether it’s in negative or re-combining
+
+我不确定它是灭活的还是重组的疫苗
+
+Anyway, they gave it to the group over 60 years and that is a special group
+
+不管怎么说，他们给60岁以上的人群提供了疫苗，这是一个特殊的群体
+
+I mean in vaccine development you know that senior people have a lower immunity
+
+我的意思是说，在疫苗开发方面，你们知道的，老年人的免疫力较低
+
+immune response
+
+免疫反应较低
+
+So whether the vaccine work for them has to be done for this specific age popula-tion
+
+因此，疫苗是否适用于这一特定年龄段的人群
+
+for small tr​​ial
+
+需要进行小规模试验
+
+and also because they usually has the diabetes or hypertension or other problems
+
+也因为他们通常有糖尿病或高血压或其他问题
+
+we have to think about whether these condition will affect these vaccines
+
+我们必须考虑这些情况是否会影响这些疫苗
+
+but now it seems that it just come into human and then people see the result
+
+但现在看来，疫苗只是被注射进入人体，然后人们等着看结果
+
+and we even didn’t receive the very clear result
+
+我们甚至没有收到非常明确的结果
+
+although the vaccine has been given for several months, right?
+
+虽然疫苗已经打了几个月了，对吧？
+
+so now, I really feel that it’s hurry to get vaccine and
+
+所以现在，我真的觉得现在太急于接种疫苗
+
+we do encourage the pharmacy to generate more data to show people
+
+我们确实鼓励制药厂商将更多的数据
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频连接: [https://rumble.com/vfy3xf-lethal-deception.html](https://rumble.com/vfy3xf-lethal-deception.html)
+
+英听校:康州盘古农场-WZ
+
+翻译: 康州盘古农场-WZ
+
+翻译终校: 康州盘古农场-Mike Li
+
+字幕+视频制作:康州盘古农场 – 天涯行
+
+审片:康州盘古农场 – 银龙
+
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
