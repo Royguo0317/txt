@@ -1,38 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲正在审查中共国在达尔文港的所有权
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1167204/)
+## 美军九大司令罕见联署呼吁扩大解密情报对抗中俄信息战
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1167180/)
 
-翻译与评论：Shirley
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03072650/darwen.jpg)网络图片
-澳洲国防部长达顿（Peter Dutton）证实，他的部门正在审查一家中共国公司在达尔文港的所有权问题。达尔文港是一个位于澳洲最北端的、具有战略意义的、有美国海军陆战队基地的港口。
+【日本东京方舟农场】撰稿：青衣    素材采编：武汉老温   校对：文小律
 
-达顿在周日晚些时候接受《悉尼先驱晨报》采访时说，总理莫里森内阁的国家安全委员会已要求国防部就达尔文港所有权提供建议。当被问及政府是否在酝酿强制撤资时，他说，政府会考虑国家利益。
+据《大纪元新闻网》4月29日消息，美国政治新闻网站《Politico》近日独家爆料称，美军9位四星上将司令去年发出罕见联署信，紧急呼吁美国情报界提供帮助，以对抗中（共）国和俄罗斯的情报战，美国情报部门正寻求加速解密和公开信息，以满足战略需要，并公布更多关于中俄两国恶意行径的情报。
 
-澳洲北领地政府在2015年，将达尔文港租给中共国陆桥集团公司（Landbridge），租期99年，此交易受到了安全专家的批评。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03075041/16E956B5-FF0E-47FA-9B76-2A8DBB0F4058.jpeg)
 
-达顿发誓要更公开地谈论中共国的侵略行为，比如澳洲的网络系统是如何”受到攻击”的。澳洲必须要保卫其非常重要的北部和西部水域免受侵犯，所以达尔文港尤其显得重要。
+《Politico》的独家报道称，美军9位司令去年曾签署备忘录，送交当时的代理国家情报总监（DNI）马奎尔（Joseph Maguire），恳请情报机构提供更多可以公开的证据，以对抗中俄的“恶意行径”。这份备忘录是由美国印太司令部司令菲利普·戴维森（Philip Davidson）上将筹划，签署人还包括时任美国太空司令部司令的约翰·雷蒙德（John W.Raymond）将军，以及欧洲、非洲和拉丁美洲等区域和特种作战司令部的司令。其中雷蒙德目前是美国太空军司令暨参谋首长联席会议成员。
 
-澳洲联邦政府上个月使用新的《对外关系法》，取消了中共国与维州政府的 “一带一路 “协议，引发了中共国的不满。有关达尔文港的决定，必然会进一步加剧澳洲与中共国之间的紧张关系。相信在达尔文港之后还会有纽卡斯尔港、西澳的工程项目等等，最后就是澳洲与中共国彻底脱钩。
+报道称，这些将领在信中表示，“中俄两国正通过全面国家力量的手段进行政治战，操弄信息环境，侵犯国家主权，与国际组织协作，削弱国际社会的完整性，破坏我们的盟友和伙伴关系。他们试图以自己的形象重塑世界，扩散威权主义，推进其野心。他们的行为是挑衅、危险和破坏稳定的。” 信中呼吁情报界必须采取更多行动，向全球展示中俄两国当前的恶行。
 
-中共国在香港问题上单方面撕毁国际上公认的《中英联合声明》，让全世界认识到中共国是不守信用的，可以单方面撕毁任何协议。如果一个国家因为不执行合同失去了信誉，所谓的朋友如俄罗斯、伊朗以及小三胖等，都不过是酒肉朋友罢了，到了关键时刻都将是背后捅刀子的。
+该报道指出，多名知悉这份备忘录的政府官员称，美军11位四星上将作战司令中就有9位签署，且其中8人是现役，而没有参与联署的仅有美军中央司令部及网战司令部司令，这几乎是前所未闻，凸显出美军高层不寻常的警惕程度。
 
-同时，中共国残忍地杀害香港热爱自由的年轻人，也让西方自由世界意识到中共国的杀掠本性。面对中共霸凌，自由世界为了保护自己的利益，第一件要做的事，就是将流氓中共扫地出门。
+报道称，这封从未对外公开的联署信，去年在五角大楼、情报界以及国会山掀起波澜，熟悉人士将其昵称为“36星备忘录”。这封信不属于保密范畴，但标有“仅供官方使用”的标签。不过，这封联署信并非命令，也不是最后通牒，而是恳请美国情报界做出重大改变。
 
-郭先生说过，香港是灭共的第一道大门。透过香港事件，全世界都醒了，认识到了中共无耻与邪恶的本质，别无选择，全世界只能团结起来共诛之。中共命不久矣！
-（本文仅代表个人观点）
+这封信并没有具体说明这些将领希望公开什么证据，但指出了俄罗斯和中（共）国都发动了针对美国的重大黑客活动。这封信坚称，现在的状况远远不能达到将领们所需要的对抗俄罗斯和中（共）国有害行为的水平。
+
+据称，将领们要求公开的其中一个情报领域是卫星图像。一位前五角大楼高级情报官员对《Politico》表示，这份备忘录暗示了一些作战指挥官对无法与盟国和伙伴分享敌方行为的卫星照片极为不满。另一位前国防部官员还表示，指挥官们私下里说，情报由于被保密；或解密程序过慢；或过度分类而无法分享。
+
+国家情报总监办公室负责战略沟通的副助理马特·拉尔在给《Politico》的一份声明中称，去年夏天，一个由五角大楼和情报官员组成的小组针对这份军事备忘录召集了一系列工作会议，并提出了建议。2020年12月，国家情报总监办公室要求情报机构审查其现有程序，做出改善，以所需的速度和规模支持战斗指挥部。他还补充说，今年1月，已收到了情报机构主管的“初步答复”，称正在审查这些机构的进展，并强调打击恶意影响仍然是首要任务。此外，答复中还概述了一系列措施，以回应军方对输掉信息战的持续担忧，包括提高披露、降级和解密流程的效率，以及优先满足解决战略信息传递和恶意影响的情报公布要求。声明还表示，战略通信部还在为情报官员和分析人员制定教育和培训计划，介绍如何发现对手不同形式的错误虚假信息。
+
+《Politico》的报道最后援引美国参议院军事委员会副主席、民主党联邦参议员杰克·里德的话说，美国在对抗中（共）国和俄罗斯方面具有主要优势。因为“事实站在我们这边，我们需要更好地阐明和揭露对手的这些活动。”
+
+注：本文仅代表作者观点
 
 参考链接：
 
-[https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.html](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
-
-[https://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-says](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
-
-[https://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0](https://www.smh.com.au/politics/federal/dutton-vows-to-call-out-beijing-and-declares-everyday-australians-are-with-the-government-20210501-p57o14.htmlhttps://www.bloomberg.com/news/articles/2021-05-03/australia-reviewing-china-s-darwin-port-ownership-dutton-sayshttps://www.9news.com.au/national/asio-chief-mike-burgess-warns-of-terrorist-attack-in-next-year/31a2de7c-7d76-4774-a93c-e4d4332f66e0)
-
-*审核&编辑：Runaway*
-![]()![](https://gnews.org/wp-content/uploads/2021/04/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
+1. [https://twitter.com/dajiyuan/status/1387708357834944512](https://twitter.com/dajiyuan/status/1387708357834944512)
+2. [https://twitter.com/RFI\_Cn/status/1387424136540999690](https://twitter.com/RFI_Cn/status/1387424136540999690)
+3. [https://www.backchina.com/news/2021/04/28/741228.html](https://www.backchina.com/news/2021/04/28/741228.html)
 
 
-0
++2
