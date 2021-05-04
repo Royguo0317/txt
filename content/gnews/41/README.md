@@ -1,110 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（十三）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1171006/)
+## 从中共病毒蹂躏下的印度想到的
+` 大废墙` [轉載自GNews](https://gnews.org/zh-hans/1165779/)
 
-作者：纽约香草山信息部 6zero4
+**加拿大多伦多枫叶农场 大废墙**
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+前言：显然，当下全世界对中共的集体声讨丝毫没有影响它继续祸害人类，笔者尝试从另一个方面去解读中共的病毒超限战战术。
 
+## 匪夷所思的作案动机
 
+最难定罪的谋杀犯，不一定是销毁证据的高手，而是常人根本无法理解的作案动机。
 
-5月1日塞林博士的8连推：
+香港人民不会想到，中共计划在香港投毒，仅仅为了驱散香港抗议的人群；中共主动在武汉社区释放病毒，全然不顾无辜百姓的安危，仅仅为了“预览”病毒的效果。当武汉病毒失控，地球上因病毒死去的人民不会想到，中共停止所有国内航班的同时开放所有国际航班，利用武汉人民去感染全球以及无辜的美国老百姓，仅仅是为了阻止川普连任。
 
-第1推，中文推：我们将一起为中国人民打败中国共产党，并贴出一张写着“神赐美好家园”的新中国联邦国旗，飘荡在喜马拉雅山巅。
+试想，即便有充足的证据阐述中共故意投毒的事实，作为拥有正常思维的陪审团，要如何才能相信，最初它向自己治下无辜的武汉人民投毒，仅仅就是为了“预览一下”病毒好不好用？正常人无法理解的作案动机，是除了强大的宣传机器之外，中共屡屡得手的另一个法宝。
 
+当川普败选，全球灭共浪潮仍然愈发不可阻挡之际，印度的疫情“在恰当的时机”的再次爆发。如果这一次也是中共投毒，那么作案动机是什么？
 
+从表面看中共完全没有在印度投毒的必要。从正常的政治逻辑来分析，中共向印度投毒由于缺乏“作案动机”是“政治安全”的。然而非常明显的一点是，印度爆发疫情对全世界都是一场灾难，唯独对中国共产党有利。基于这一点，分析中共向印度投毒的动机就显得非常有必要了。
 
-> 我们将一起为中国人民打败中国共产党[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/EMetvJ71ZN](https://t.co/EMetvJ71ZN)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 30, 2021](https://twitter.com/LawrenceSellin/status/1388167750682562567?ref_src=twsrc%5Etfw)
+## 打击自由民主制度
 
+中共从来不在乎多少无辜的生命被病毒夺走，在病毒把川普赶出白宫后他们似乎更加确信，当今的民主体制在中共病毒这一个超限战生化武器面前是多么脆弱，特别是对于印度这样医疗设施并不先进的民主国家而言，疫情对执政党连任的打击是致命的（参考另一位战友的[文章解读](https://gnews.org/zh-hans/1162118/)）。
 
+2020年同一时候，国内疫情形势严峻。中共大内宣重点报道欧美发达国家遭疫情袭击的惨状，一个重要的原因就是给墙内民众一个暗示：连那些地球上最发达的国家都被病毒折磨的这么惨，相比之下墙国政府还是很给力的。
 
-第2推，也是中文推：相信中国人民胜利的士兵。贴图是一张4位美国军人在新中国联邦国旗下的图片，4位美国军人分别是Joseph Stilwell, Claire Chennault, Jimmy Doolittle & Lawrence Sellin。
+然而这一次的印度就不一样了。在西方世界乃至国内，很多人会不自觉的拿中国与印度，即一个集权一个民主体制做对比。当前展现在墙内百姓眼前的是，在中共的政府高压下，疫情得到有效控制，社会生产正在快速恢复，而号称民主新星的印度却惨遭病毒蹂躏毫无办法。
 
+千万不要小看最近被撤稿的“中印两国点火对比”图片，它反映出中共宣传部门高超的宣传技巧。被网友骂毫无人性进而被迫撤稿仅仅作为吸引流量的噱头，墙内百姓的潜意识里“还是中共政府靠谱”，“庆幸没有生在印度”的观念通过这一波嘲讽式的操作得到了非常强烈的刺激与加固，内心则慢慢习惯毫无人性的集权理念。这种通过心理暗示的洗脑比起被动观看新闻联播有效的多。
 
+而这种“社会主义制度优越性”的论调，不仅非常有利于墙内维稳，还伴着墙内几乎不再增长的确诊数字，通过海外华人的微信朋友圈不断侵蚀着自由世界。
 
-> 相信中国人民胜利的美国士兵[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/CG9YWgooSu](https://t.co/CG9YWgooSu)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 30, 2021](https://twitter.com/LawrenceSellin/status/1388182835601739782?ref_src=twsrc%5Etfw)
+## 病毒经济超限战
 
+笔者曾在探讨中共数字集权货币体系的[文章](https://gnews.org/zh-hans/896428/)中，尝试分析中共利用病毒奴役世界的货币战略。然而透过印度的疫情，中共之所做有过之而无不及。
 
+当今国际的局势虽然还不至于剑拔弩张，但各个领域的大型企业却实实在在的正在与中共国脱钩。长期来看，[被动脱钩几乎一定会导致中共集权体系崩溃](https://gnews.org/zh-hans/904252/)。而通过外交、蓝金黄等手段阻止国际大资本家与中共脱钩收效甚微。
 
-第3推，转发2021年1月16日中共“央广网”军事专栏的一篇文章“军事科学院首届‘最美军科人’评选揭晓”。请给出意见。比赛的目的是什么？
+在过去的二十年里，中共国成功的融入全球生产体系，牢牢抓住了低附加值、高污染的劳动密集型产业，与西方的高附加值产业形成互补，共同为全世界供应优质且廉价的商品。对于中共国而言，如果此时全力打击西方高附加值产业，那么自己的低附加值产业链必然受到牵连。那么，转而打击同为低附加值的“竞争对手”就成为一个较好的选择。
 
+那么，在高附加值产业纷纷将工厂从中国迁往印度、南亚甚至南美之际，作为美国印太战略的重要据点——印度，就自然而然的成为投毒的首选目标。
 
+同时，印度的惨状也带来了一定的威慑效果，国际资本会更加谨慎的将工厂从中共国撤离，以劳动密集型为主的南亚国家政客们也会更加谨慎的考虑建厂带来的疫情爆发风险。
 
-> 请给出意见。 比赛的目的是什么？[https://t.co/qUFoBj7Zsy](https://t.co/qUFoBj7Zsy)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388349669395337216?ref_src=twsrc%5Etfw)
+同时，中共则趁机全力恢复生产，营造出一个制造业“极乐净土”的假象，诱引国际资本迁回中共国，使得西方世界与中共脱钩的计划失败，进而继续以低端产业链作为筹码要挟世界。
 
+说到底，只有将病毒真相大白于天下，才能真正打破中共的病毒超限战魔咒。
 
-
-第4推，转发“慕尼黑感恩”战友的中文推：随手搜了这位“孙岩松”，就发现了让人心跳加速的“宝藏”：军事医学研究院(AMMS)在2018年申请专利：分别是高等级生物安全防护式中小 / 中大动物病原体空气传播实验装置(CN209435971U) / (CN209435980U)，军方提前两年开始做病毒飞沫和气溶胶传播的动物实验！！！并贴出这两份专利文件及孙岩松的照片。塞林博士中英双语推：COVID-19探源之“慕尼黑感恩”找到了一些重要的信息。请顺藤摸瓜搜索更多并将搜索结果放在这里。（孙岩松真容浮出水面）
-
-
-
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@himalaya\_de](https://twitter.com/himalaya_de?ref_src=twsrc%5Etfw) has discovered some very important information. Please follow his trail and post your results here.
-> COVID-19 detective @ himalaya\_de
-> 找到了一些非常重要的信息。 请搜索更多。 将结果放在这里。 [https://t.co/4SHyBomWNi](https://t.co/4SHyBomWNi)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388355157272973314?ref_src=twsrc%5Etfw)
-
-
-
-第5推，再次转发“慕尼黑感恩”战友的推文：童贻刚在2016.1-2019.12期间领导了一个秘密军事项目（与WIV合作），现在他正在招募研究员以优化他热衷的穿山甲冠状病毒GX\_P2V的感染性及其治疗药品，这是参与“计划好的”疫情并掩盖病毒真相等黑手的绝佳时机，并贴上该项目计划书及相关论文的截图，以及附上童贻刚、曹务春等4人的照片。COVID-19探源之“慕尼黑感恩”又一个重大发现，童贻刚是与WIV联系的军方人物，这个线索还与哪些与病毒起源有关的军事实验室有关联？
-
-
-
-> Another important discovery by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@himalaya\_de](https://twitter.com/himalaya_de?ref_src=twsrc%5Etfw)
-> Yigang Tong is the military link to the Wuhan Institute of Virology. How does that link connect to others that would explain the military lab [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) ? [https://t.co/DG6tjDRI3W](https://t.co/DG6tjDRI3W)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388359960485146625?ref_src=twsrc%5Etfw)
-
-
-
-第6推，转发“火来2号”战友的中文推，将与军事医学科学院(AMMS)有关的中外科研人员的照片都贴出来了。COVID-19病毒探源之“火来2号”准确地用正确的向外传播的病毒研究网络分析工具，以呈现PLA-AMMS如何将‘民用’研究所/大学机构与国际上的实验室连接起来的关键环节，线索基于5W(who, what, where, when & why) 。
-
-
-
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) uses exactly the correct outwardly-spreading virus research network analysis. A PLA AMMS core linked to Chinese "civilian" institutes/universities connected to international labs. The 5 Ws, who, what, where, when and why. [https://t.co/tkTub7ZSLH](https://t.co/tkTub7ZSLH)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388369261996003328?ref_src=twsrc%5Etfw)
-
-
-
-第7推，在CCP病毒产生前其福林酶切位点的理论基础已经成型，基于惠塔克(Whittaker)分析工具，姜世勃的人工插入福林酶切位点，是PLA的卢广文和高福渴望已久、梦寐以求的法宝，脯氨酸的介入是为了提高其稳定性和酶的利用率，并贴上相关论文的网页截图。
-
-
-
-> The conceptual basis for [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)'s furin cleavage site (FCS) was in place before the [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) was created. Whittaker's analysis, Shibo Jiang's artificial FCS insertion & PLA Guangwen Lu & George F. Gao's eagerness for doing so. Proline was added for stability & enzyme access. [pic.twitter.com/rn0vHJzEF1](https://t.co/rn0vHJzEF1)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388456407146635270?ref_src=twsrc%5Etfw)
-
-
-
-第8推，继续转发“火来2号”战友的中文推：“闫博士今天在The National Pulse的采访中，谈到了功能获得性研究gain of function。我们再次回顾下拉尔夫巴里克再一次网络会议中，说到功能获得性研究时，那得意的笑，让人不寒而栗”，并附上该段视频。“这些都是非常自大的人，巴里克知道真相，但他隐藏了自己的同谋，并保密自己的资金来源，在我看来，这些人和在实验室制作病毒的人同罪”。
-
-
-
-> These are very arrogant people. Baric knows the truth, but he is hiding his own complicity and wants to protect his source of funding. In my opinion, such people are just as criminal as those who created [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) in the laboratory.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/Fz0N0d8mWl](https://t.co/Fz0N0d8mWl)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388479385121038339?ref_src=twsrc%5Etfw)
-
-
-
-CCP病毒产生前最核心理论基础就是姜世勃的福林酶切位点人工插入，这让PLA生物战计划项目科研领军人物卢广文和高福如获至宝、喜出望外，军方孙岩松提前两年开始做病毒飞沫和气溶胶传播动物实验的专利证据，以及童贻刚招募研究员优化穿山甲冠状病毒GX\_P2V的感染性及其治疗药品以混淆视听掩盖病毒真相这些铁证，必将把CCP-PLA钉死在人类历史的耻辱柱上！
-
-有理由相信塞林博士在引领COVID-19病毒溯源过程中，许多情报信息是来自新中国联邦爆料革命，尤其是来自文贵先生和闫博士等的第一手情报信息甚至实锤证据，因此塞林博士内心无法掩盖对新中国联邦的热爱和尊重，毫不掩饰地贴出了我们新中国联邦的国旗，甚至将二战期间中美两军亲密合作缔结两国人民坚定盟友的3位美军将领Joseph Stilwell, Claire Chennault, Jimmy Doolittle，以及穿军装的塞林博士自己的照片一起贴在新中国联邦的国旗下，这意味深长而重大：这4位美军军官将加入新中国联邦的护旗手队伍，发扬中美两军精诚合作、并肩作战的历史传统，不畏艰难困苦，勇变不可能为可能，誓死在COVID-19超限生物战中找到真相，消灭邪恶至极的CCP！
-
-校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-+2
+0
