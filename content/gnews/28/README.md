@@ -1,53 +1,195 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆料革命希望篇I中国共产党如何彻底毁灭了中国人民的希望
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1170623/)
+## 【每日快报】欧盟立法者在关于制裁北京的首次会议上承诺拒绝欧中投资协议 2021.05.04
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1170759/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04084004/%E5%B0%81%E9%9D%A2-11.jpg)
-郭文贵先生在**2020年01日29日谈CCP统治下的孤国孤市孤镇孤村，我们现在最重要的事情是迅速传播真相**直播中提到：
+作者：星空無垠，骑着毛驴来挺郭
+![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2021/05/image-3.png)
+# ***今日摘要***
 
-［我们的声音很小，但却是现在黑暗中唯一的一个希望、一个火光。］
+1. **欧盟立法者在关于制裁北京的首次会议上承诺拒绝欧盟-中国投资协议**
+2. **国务卿布林肯透露拜登并不打算 “遏制中国”**
+3. **中国正试图瓦解 “五眼 “情报网络**
+4. **亚利桑那州立法者在接种疫苗后感染依旧强调COVID-19疫苗的重要性**
 
-［我YouTube上的关注绝对超过5亿关注，全人类最牛的，最多超过5亿，但是都被黑了。我的Twitter大家知道有时候一天就几万。如果中国互联网打开，我的Twitter、我的YouTube都在几亿以上的关注，那是什么力量啊？它是唯一一个替中国人发声的、给中国人希望的！］
 
-［希望我们在这黑暗中能发出一点点光，但愿这个星星之火真的能燎原，能唤醒所有的同胞，拯救我们的父母、拯救我们的兄弟姐妹和孩子。］
+# 重要事件
 
-为什么我们微弱的声音会成为黑暗中唯一的一个希望和一个火光？为什么我们微弱的声音会成为唯一替中国人发声的给中国人希望的声音？本文根据郭先生四年来直播中的相关内容进行汇总，摘录文字皆来源于爆料革命战友整理的郭先生直播视频文字纪要，在此特别向默默付出的义工战友们致敬，以下为本系列第一篇：中国共产党如何彻底毁灭了中国人民的希望
+- **[05.04. ZeroHedge 欧盟立法者在关于制裁\[北京\](https://www.zerohedge.com/geopolitical/eu-lawmakers-pledge-reject-eu-china-investment-deal-first-meeting-beijings-sanctions?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)的首次会议上承诺拒绝欧盟-中国投资协议 EU Lawmakers Pledge To Reject EU-China Investment Deal In First Meeting On Beijing’s Sanctions](https://www.zerohedge.com/geopolitical/eu-lawmakers-pledge-reject-eu-china-investment-deal-first-meeting-beijings-sanctions?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)**
 
-一、中共治下的十四亿人民被剥夺了信仰自由，这个民族和这个国家永远不会有希望，据[2021年3月14日 农历二月初二 文贵直播：回忆慈母；谈新中国联邦人如何重建家庭文化；如何孝敬老人](https://gtv.org/video/id=604dfa4075e88a51e6ee8e69)
 
-［任何一个国家、任何一个国、政党，当它这个社会给你所有的提供没有信仰和没有法律保障的信仰自由，这个民族这个国家不会有希望！永远不会有希望！永远在战争和灾难之中轮回。远看中东再看非洲再看南亚某些国家，它是根本的结局！根本的结果！再看我们的中共，信仰不自由、教育是党教，所有的中国人、老人没有任何保障，这样的国家民族难道你有希望？请问问你自己！］
+欧洲议会成员誓言拒绝因中国侵犯人权和执政党共产党的制裁而等待批准的欧盟-中国投资协议。
 
-二、中共用表面的虚假繁荣掩盖了内部经济的崩溃，中南坑盗国贼成了包括九千万共产党员在内的敌人，人人都希望早日开战灭掉这几个老杂毛，据[郭文贵2021年3月17日盖特 20210317\_1 尊敬的战友们好．与国内的企业家通话后的一些感受——共产党的政治．经济．生活信心．已经彻底的在崩溃当中……](https://gwins.org/cn/milesguo/22687.html)
+30多名欧洲议会议员于4月28日发言，谴责中国要求欧盟停止对其人权记录的批评，表示除非人权问题首先得到解决，否则他们不会批准中国的投资协议。一些人直截了当地说，他们希望该协议被抛出。
 
-［共产党在城市里边儿用了街道表面上的虚假繁荣掩盖了共产党现在真正的内部的经济的崩溃、“假大空”、到处撒币造成的内部的各种即将迸发的“经济癌症”，以及在世界上扩张要征服世界、制造病毒、导致内部的恐惧，都在等待着最后那个靴子掉下来——啥时候能开战，啥时候“中南坑”那些老杂毛能死了，都在等这个结果。全中国上下，没有人心是安的，没有人心是对未来有希望的，没有任何人觉得明天会比今天更美好，每个人！］
+这些评论是在欧洲议会关于中共政权对欧盟代表和实体的反制裁的第一次会议上发表的，这些代表和实体在3月底就新疆维吾尔族和其他少数民族的人权侵犯行为制裁了几名中共官员。
 
-三、中共控制下的海外民运用烈士鲜血做血馒头一吃三十年，天天打着六四、民主、民运的旗号搞募捐，三十年下来不仅一事无成，而且彻底灭掉了中国民主运动的火光。
+但这些反制裁措施危及了投资协议被批准的可能性。
 
-3.1据**2017年11月18日星期六文贵1118 Instagram 直播**
+法国欧洲议会议员埃马纽埃尔-莫雷尔在谈到中共的制裁时说：”如果我们想一劳永逸地表明，欧盟不只是一个超市，而是有原则……我们必须拿出一些实际行动，这意味着我们需要拒绝投资协议。”
 
-［现在活着的人，你为啥还活着？ 你六四没有死，别说六四以后你干什么，你干啥都是应该的——你愿意干。谁也没有拿枪顶着你让你干， 对不对呀，现在有些人竟然天天打着六四、 民主、 民运的旗号，“民运”这个词多么的伟大，那是代表所有人民的希望，精神上的喜马拉雅。
+欧盟议会人权小组委员会副主席、德国议员汉娜-诺伊曼说：”这是一个政权任意射出的猎枪，针对的是我们的言论自由、研究自由和我们作为议员的权利。”
 
-动不动我就是民运分子，你配做民运份子吗？民运分子这哪是谁都可以叫的呀？ 别人说你，你都应该谦虚，说不是不是。哪有自己一打字幕就是六四幸存者，六四英雄。推特上去看去六四时期的什么什么人，干嘛呀？干嘛呀？你做生意你就做生意，有本事你有你就别拿死人在那块说事，做死人生意，都不如那开火葬场的。
+她告诉议会，在推进投资交易之前需要解决人权问题，并补充说 “我不愿意让一个外国对我的工作指手画脚”。
 
-还有现在在美国西方自我介绍，动不动就说我是六四的，六四的， 我说实在话，在任何情况下我都不说，任何人让我说我都不说。别拿六四的死人说事，那些英雄们的血流了别成了你们的人血馒头，从这一点上说比那些盗国贼还要可怕，比盗国贼还要可怕。所以说我最近两天在深思，海外我上推特以后，我追求我们的喜马拉雅这个目标提早暴露。**最伤我心的最有挑战性的绝对不是盗国贼， 是谁呀，是所谓的海外的民运界， 还有海外所谓打着良心界，还有法律界。** ］
+- **[05.03. National Pulse 国务卿布林肯透露拜登并不打算 “遏制中国” Biden Doesn’t Plan To ‘Contain China,’ Reveals Secretary Of State Blinken](https://thenationalpulse.com/breaking/biden-wont-contain-china-reveals-blinken/)**
 
-3.2据[郭文贵2018年2月10日第三次直播 20180210\_3 骗子韦石，屎诺](https://gwins.org/cn/milesguo/713.html)
 
-［第二个通过这个事件让吴征和马云获得政治上的价值和利益和保护，那么他们执行得非常清楚通过博讯韦石、希诺、李伟东、夏业良、乱伦彪这些人挺王反习达到了在海外在国际上在国内形成一个政治上的一个氛围，那就是今天大家所讲的全当姓习，实际上就达到了全党恨习，现在要做的事情就是全国姓党，实际上是全国要反党，然后接下来的国际大战略是全世界都跟共产党到全世界宣布要挑战共产党。
+国务卿安东尼-布林肯透露，拜登政权并不寻求 “遏制中国”。”我们的目的不是试图遏制中国或压制中国，”布林肯断言道。
 
-这就是把中国人民就完全的绑架在盗国贼的战车之上，把习主席绑架在了战车之上，把这个中国人民绑架在战车上。这就是今天出现的怪现象，所谓的过去的民主民运的大佬们，挺王反习、砸锅，要搞他们所谓的民主。这就是今天真正的事实的真相。
+“我们要做的是维护国际的、以规则为基础的秩序，我们国家在这么多年里投入了这么多，我想说的是，这不仅有利于我们自己的公民，也有利于全世界的人民。顺便说一下，包括中国，”他补充说。
 
-那么这些盗国贼的利益集团本质上是保护他们几万亿十几万亿盗取的盗国财富，和海航如出一辙，这是马云寻求政治庇护，为他的背后老板和吴征的背后老板由于地域关系还有过去的经济利益还有生殖器上的关系导致的必然结果。韦石、博讯希诺、袁建彬、陈军不过是在前面冲杀喊砍的一定被牺牲的小卒子而已，他们的丑陋已经逐渐会被伟大的智慧的战友揭发出来，这就是文贵爆料革命最伟大的成果，将海外的真正的威胁到十四亿人民唯一希望的民主、民运、法治的希望，这些里边儿的伪类们，这些假民运分子们彻底揭穿暴露，这是上天赐给我们的礼物。］
+这番话是在与英国外交大臣多米尼克-拉布举行的联合新闻发布会上说的，也是在布林肯的咨询公司与中共之间的关系被揭露后说的。
 
-3.3据**2019年2月16日文贵和班农先生关于法治基金和法治公会基金的解读（上）**
+- [**05.04. ZeroHedge 中国正试图瓦解 “五眼 “情报网络 China Is Trying To Break Up The Five Eyes Intelligence Network**](https://www.zerohedge.com/geopolitical/china-trying-break-five-eyes-intelligence-network?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
 
-［全人类只有中国一个十四亿人的国家，就那么稀稀拉拉的几个民主民运人士。干嘛呢？出来了29年，六四到今年29年，募捐、离婚募捐，离婚都募捐！打官司募捐，家里有豪宅住着什么都募捐。30年如一日没工作、没饭吃。成天到美国政府国会去，在那磨叽跟个要饭的似的、跟个流街狗似的。见人家议员拍个照拿来开始忽悠去了。
 
-有些人啥也不干，就说是替国内传输这个传那个，搞这证那证。很多中国老百姓，非常热诚的献身民主事业的人，结果是受到这帮人的微信上的鼓噪，在国内喊两嗓子结果被抓起来了。这个危害不仅是被你骗了捐，它的危害的核心是什么？是他刚刚萌芽的希望，被人连根给拔了。**这造成几十年来，中国的民主运动的火光，那星星之火燎原的那个火种，被灭掉，被共产党撒泡尿就给灭掉了。**］
+中国正通过与新西兰总理Jacinda Ardern的左翼政府建立更紧密的关系，故意在精英的 “五眼 “情报共享联盟中制造分裂。
 
-（文章内容仅代表作者个人观点）
+由美国、加拿大、英国、澳大利亚和新西兰组成的 “五眼联盟 “可以追溯到第二次世界大战，当时一些关键盟友决定分享情报，以击败纳粹德国和日本。
 
-+2
+今天，保持五个英语国家之间的情报共享合作被认为对打击俄罗斯和共产主义中国等专制国家构成的威胁至关重要。
+
+然而，在阿德恩女士的政府宣布将改善与北京的贸易关系作为其优先事项，而不是维持对五眼联盟的支持之后，目前形式的联盟的生存受到了威胁。
+
+新西兰外交部长Nanaia Mahuta在本月早些时候宣布了寻求与北京改善贸易关系的决定，她宣称新西兰对五眼联盟就其骇人听闻的人权记录向中国施压感到 “不舒服”，而是希望追求自己的双边关系。
+
+50岁的马胡塔女士对英国、美国、加拿大、澳大利亚和新西兰的国防部长去年作出的决定作出了回应，即赞同扩大该联盟的作用，公开承诺不仅要应对共同的安全挑战，而且要 “推进他们共同的民主、自由和尊重人权的价值观”。
+
+- **[05.03. Washinton Examiner 亚利桑那州立法者在接种疫苗后感染还强调COVID-19疫苗的重要性 Arizona lawmaker stresses COVID-19 vaccine importance after post-inoculation infection](https://www.washingtonexaminer.com/politics/arizona-lawmaker-stresses-covid-19-vaccine-importance-after-post-inoculation-infection)**
+
+
+亚利桑那州的一位议员说，如果她在本周对冠状病毒检测呈阳性之前没有接种COVID-19疫苗，情况可能会更糟。
+
+图森市议员阿尔玛-埃尔南德斯（Alma Hernandez）说，她在周三对COVID-19检测呈阳性，大约在她接受辉瑞公司的第二剂疫苗后11周。
+
+“她说：”尽管有广泛的疫苗供应，但我们必须继续采取预防措施以减缓传播。”要靠我们大家一起努力来打败这种大流行病。”
+
+28岁的埃尔南德斯说，她无法闻到或尝到味道，发烧和 “可怕的偏头痛”。她说，星期四下午，如果她没有接种疫苗，她的情况会更糟糕。
+
+“她说：”我一直感到非常疲惫，我不希望任何人生病，但我也想鼓励大家，如果你们没有接种疫苗，请尽快接种疫苗。”如果我没有接种疫苗，我现在的情况会更糟糕。”
+
+埃尔南德斯也是一名公共卫生专业人士。她和她的兄弟住在一起，她的兄弟也接种了疫苗，而且COVID-19的检测结果为阴性。
+
+据她的办公室说，这位立法者本周确实算作出席了立法会议，但却是远程参加会议。亚利桑那州议会的两院都取消了口罩要求，但大多数民主党人都保持着面部遮盖。
+
+亚利桑那州尚未报告有接种疫苗的人死于COVID-19，尽管它已经报告了947例突破性病例。
+
+美国疾病控制和预防中心本月早些时候说，大约有5800名完全接种疫苗的人感染了COVID-19，74人死亡。截至周四，超过1.01亿美国人已经完全接种了疫苗。在突破性病例中，近一半是60岁以上的人。疾病预防控制中心怀疑一些突破性病例来自COVID-19变异株，尽管药物制造商已经发现他们的疫苗对这些变异株基本有效。
+
+# 每日文贵说
+![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/05/E6MN76YRL6NFGJO-1024x576.png)
+# 更多要闻链接
+
+1. [前首富比尔盖兹与梅琳达宣布离婚，由於比尔盖兹身家高达惊人的1300亿美元（约台币3.6兆元），因此离婚后的财產分配，也成了外界焦点](https://news.ltn.com.tw/news/world/breakingnews/3519989)
+2. [民主党人更加疯狂：绿色新政策划者声称拯救地球需要消除警察并改变权力关系](https://www.thegatewaypundit.com/2021/05/democrat-insanity-green-new-deal-mastermind-claims-saving-planet-requires-eliminating-police-changing-power-relationships/)
+3. [华为销量暴跌五成，苹果销量反涨94%](https://www.toutiao.com/a6957714439571259907/?channel=&amp;source=search_tab)
+4. [报道称：中国火箭碎片可能击中美国](https://www.newsmax.com/newsfront/china-space-nasa-rocket/2021/05/03/id/1019979/)
+5. [英国主办疫情发生以来首次G7外长面对面会议](https://cn.reuters.com/article/uk-covid-g7-foreign-ministers-0503-idCNKBS2CK0MF)
+
+
+# 每日推特文摘
+
+
+
+前军情六处处长说：”冠状病毒来自实验室的可能性大得多”。
+另一位官员重复了去年春天我们国家媒体集体认为的 “危险的阴谋论”。
+“Far more likely coronavirus came from a lab,” says the former head of MI6.
+Another official repeats what our national press collectively deemed a “dangerous conspiracy theory” last spring.
+
+
+
+
+
+> "Far more likely coronavirus came from a lab," says the former head of MI6. 
+> 
+> Another official repeats what our national press collectively deemed a "dangerous conspiracy theory" last spring. [https://t.co/5v3pUCyHU0](https://t.co/5v3pUCyHU0)
+> — John Noonan (@noonanjo) [May 3, 2021](https://twitter.com/noonanjo/status/1389216491409661953?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+COVID19侦探@No3Mos显示了病毒研究网络分析的有效性。中共生物战计划的一个核心要素是军事兽医，他们做了什么研究，与谁有联系。
+COVID19 detective @No3Mos shows the effectiveness of virus research network analysis. A core element of the Chinese Communist Party biowarfare program is the military veterinarians, what research they did and to whom they were linked.
+
+
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@No3Mos](https://twitter.com/No3Mos?ref_src=twsrc%5Etfw) shows the effectiveness of virus research network analysis. A core element of the Chinese Communist Party biowarfare program is the military veterinarians, what research they did and to whom they were linked. [https://t.co/A4fSWvsjFa](https://t.co/A4fSWvsjFa)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389425795723153409?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+在几条推文中#COVID19侦探@devonJ32130301显示，中共的军事兽医经常使用实验室操纵的连续通道，使病毒更加危险。军事兽医是中共生物战计划的一个关键部分。
+In several Tweets #COVID19 detective @devonJ32130301 shows that Chinese Communist Party military veterinarians were routinely using the laboratory manipulation of serial passage to make viruses more dangerous. Military veterinarians are a key part of the CCP’s biowarfare program.
+
+
+
+
+
+> In several Tweets [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@devonJ32130301](https://twitter.com/devonJ32130301?ref_src=twsrc%5Etfw) shows that Chinese Communist Party military veterinarians were routinely using the laboratory manipulation of serial passage to make viruses more dangerous. Military veterinarians are a key part of the CCP's biowarfare program. [https://t.co/N2HY2BL17j](https://t.co/N2HY2BL17j)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389428627809443841?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+G7布林肯与英外相记者会 记者问：G7目的是联合民主国家共同对抗中国和俄罗斯的独裁专制吗？ 布林肯说，对于俄罗斯，非常欢迎俄走正确的道路，美国愿意与俄合作。而对于中国，美国的目的不是压制中国，而且是要对抗任何挑战「基于规则的国际秩序」的人，这是为了世界人民的利益，也是为了中国人民的利益
+
+
+
+
+
+> G7布林肯与英外相记者会
+> 记者问：G7目的是联合民主国家共同对抗中国和俄罗斯的独裁专制吗？
+> 布林肯说，对于俄罗斯，非常欢迎俄走正确的道路，美国愿意与俄合作。而对于中国，美国的目的不是压制中国，而且是要对抗任何挑战「基于规则的国际秩序」的人，这是为了世界人民的利益，也是为了中国人民的利益 [pic.twitter.com/zhCjJLdAge](https://t.co/zhCjJLdAge)
+> — 珠穆朗玛 (@ZanXixi) [May 3, 2021](https://twitter.com/ZanXixi/status/1389346015417884672?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+20200923閆博士接受Valuetainment訪談精華3
+》CCP在路德社119之後立馬修改了確診數字，從62增加了兩倍到198
+》習主席簽署命令要求按照SARS標準來應對
+》CCP搜刮全世界的醫療物資然而卻不發給一線醫生
+》石正麗立馬撰文利用虛假的RaTG-13序列想將病毒起源引向自然
+》閆博士能言之鑿鑿地說病毒來自實驗室，是因為真相只有一個、並且掌握證據和信心 
+》港大Malik是冠狀病毒的頂尖專家
+
+
+
+
+
+> 20200923閆博士接受Valuetainment訪談精華4
+> 》閆博士能言之鑿鑿地說病毒來自實驗室，是因為真相只有一個、並且掌握證據和信心
+> 》港大Malik是冠狀病毒的頂尖專家 [pic.twitter.com/h7Snww9RTq](https://t.co/h7Snww9RTq)
+> — Andy5 (@andy5\_123) [May 3, 2021](https://twitter.com/andy5_123/status/1389200996815937538?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+RaTG13 是与新冠病毒最接近的实验室制造的假序列，诱导人们相信新冠病毒。共产党和一些有影响的西方舔共科学家欺骗其他科学家发表关于几百篇这个假病毒的文章
+
+
+
+
+
+> RaTG13 是与新冠病毒最接近的实验室制造的假序列，诱导人们相信新冠病毒。共产党和一些有影响的西方舔共科学家欺骗其他科学家发表关于几百篇这个假病毒的文章 [https://t.co/ERMLCSTEIM](https://t.co/ERMLCSTEIM)
+> — Roberts (@Roberts59064781) [May 4, 2021](https://twitter.com/Roberts59064781/status/1389555403076345858?ref_src=twsrc%5Etfw)
