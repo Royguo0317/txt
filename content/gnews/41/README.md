@@ -1,194 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 谁是闫丽梦博士，冠状病毒真相的唯一爆料人？Wer ist Dr.Li-Meng Yan, die einzige Whistleblowerin der Coronaviren?
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1171262/)
+## 今天你传播CCP病毒真相了吗？
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1171316/)
 
-![](https://lh3.googleusercontent.com/GN2sJNx1dmlu_BPNDNokfv8UkXx0qO5O0dPzW-rlDU3mLEfdJNC8WaWjaBlR497_9nx_yCe9g8Z6tPKVDGippeicLggOubilX-T0dI8JlbgL8ZRvICl04OxJa4OEQW_8uQ)![](https://lh4.googleusercontent.com/tPVj7Rm9QHmW0yDO24DT8c0MMJaapCkO30q352cCo0Wv9hG3mmZ73pyIvC74Y7QPpjZbBpvdt8kXWg5pkmFIPMomPj8WcJNUipOCCZOH83-wE7NbjrSFMm1767Z1AR8ZaA)
-Ich kann die einzige sein, die einzige Whistleblowerin der Welt die Tatsache der Coronaviren sagen kann！——Dr. Li-Meng Yan
+**作者：**天空的鸿雁
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04125104/WhatsApp-Image-2021-05-04-at-5.48.48-AM-2.jpeg)图片来源：自拍
+在CCP病毒全球大流行的这一年多的时间里，世界各国无论是人员还是经济财产都损失惨重！ 不管是经济发达的英美国家，还是发展落后的国家地区，直到现在CCP病毒的传播和伤害毫无停止或减缓的迹象。不找出CCP病毒的根源，地球人类将永无宁日，社会经济发展将停滞甚至倒退。新中国联邦在七哥的倡导下和引领下，还有在我们英雄的闫丽梦博士发表的科学论文中，彻底揭穿了中共的险恶目的，揭穿了CCP病毒的真相，让世界了解中共病毒的起源及其全球大流行的真相。
 
-6 Aug.2020 in American Thought Leaders Interview [https://youtu.be/Vl4hwjq7cAo](https://youtu.be/Vl4hwjq7cAo)
+亲爱的战友们！在急切等待KYC审批通过的同时，请别忘记传播爆料革命、新中国联邦的事业，传播CCP病毒的真相，传播H coin 在未来发展的巨大潜力。这是带给您身边人福祉的好事情。揭露CCP妄想称霸全世界的险恶阴谋和丑恶伎俩，和他们用腐败收买、拉拢、渗透到世界的各种下流卑鄙的手段。CCP的触角已经能够触及全球的任何地方，使用的是蓝金黄手段，进行威逼利诱，来达到其阴险而不可告人的目的。
 
-2020年1月19日，路德社从闫博士获得信息并警告人们，病毒会人传人，强变异，大爆发！因此，闫博士拯救了人类世界，是人类的英雄！所有这些都已经被时间证明!
+他们用感染CCP病毒的人为媒介，把CCP病毒传播到世界各地，残害世界各国众多无辜的人们的生命，导致无数家庭失去亲人，同时造成全人类都处在一种无法正常生活，陷入到极其恐惧和危险的状态中。在全世界都在向CCP要病毒来源真相的时候，为了掩盖事实真相，CCP东拼西凑，百般抵赖，妄图通过宣传工具把事实真相引导到自然起源上面；此外还拉来被CCP严重收买渗透控制的世卫组织，让其充当自己的帮凶，为CCP站台背书，以达到隐瞒事实真相，欺骗整个世界的目的。
 
-Am 19. Januar 2020 erhielt die Lude Nachrichtenagentur Informationen von Dr. Yan und warnte die Menschen, dass sich das Virus von Person zu Person ausbreiten, stark mutieren und ausbrechen wird! Deshalb hat Dr. Yan die menschliche Welt gerettet und ist ein Held der Menschheit! All dies hat sich durch die Zeit bewährt!
-![](https://lh4.googleusercontent.com/kqd4ZcduTWtvAkoZt4kJXt1L0pIhQy6Zmx9p1u4YRkCZXD0AyXJf5BUSH_HShU9Z-sPbyJrlhs33Gdf1qxbKTBa0PWDShlA4X4bYOoaC4OjCdPmBkM0GZ1MktGWBmpOasQ)![](https://lh3.googleusercontent.com/8SgDDpkw19Rwg78gQRHLvT0knahFBXK4ERz2O2YA7T1-SsPSf85vJGpbsdJcr_qVdom2T6cck0PVBYDSHDxAnL_zlIuN6YIUyzW3OFHFXI-TzLwUQY4H6M4mgw0JtN0TVw)![](https://lh5.googleusercontent.com/WVuprqsY__ylvsI7zAKy8gMaUDt1BBRLsCd-AZL6gr1dVaL9jijyFuVaz7GHmnv_iwNx37Cu9TydK3-XyJeQgoM5332Kcu6Q1Kq2f_zKhT6DMKrX7BeCHajQEj1zgwrfeg)![](https://lh3.googleusercontent.com/ym2eFtir3eNqftpKyO_mLNBeDth338kiaL87FNK2HKRX1oULBTybWZ3vKLi6VDOqb3I6nb4LJfwZRfZ0RT7YBAf2rU3zy36VoLp-zXso6ESvJtaav-YR5fN8UUEtQsq6EA)![](https://lh3.googleusercontent.com/RtTeMKN-nntaW0nolKvoqQygQfv804h40OHTTTIU1SnBKag7rsmIX6BntGezRPNzHWYbFLrWHQBTucH-qd2LEyCfVZXKUH4dCoR7kRzzAl8KEZT147RqF8DPplPwp1mPlQ)![](https://lh3.googleusercontent.com/Fg4568aB7jiOPaiWEanhVd9n__kSbxRusDn_OCTBGA5OItam3IARfVRdUqe4GLB4gLqZLgmjmpYkaYrLTPGfeGRGha_Fz8eVhIrO_ZYJNKzJV9A6RjE0CPHFqud7CqoKOQ)
-I don’t trust WHO!
-![](https://lh6.googleusercontent.com/9RxDaPkV5fH6QDWx_l_8pzN8hfavprFtcE850XfHB56qiFWBjcr-07EZDfuJh9xbObuaHvjYhisjz8K5tHZj6HNSwQRQW28R-04xdifVPc2x10Sj36s9LnEN0LuO352d2w)
-Whistleblower virologist’s mother reportedly arrested by Chinese government – The virologist, Dr. Li-Meng Yan, has said that China purposefully created COVID-19.[https://justthenews.com/world/asia/virologists-mother-reportedly-arrested-chinese-government](https://justthenews.com/world/asia/virologists-mother-reportedly-arrested-chinese-government)
-![](https://lh4.googleusercontent.com/oPSyQ7-Z4EXDgE8IOWT0S1-4f1DljvK751d9xWI2GahP116dpe153-gax7LMMeOJ14JOHjbuL6wea_vVPmUekqHPsIMryLv9QtcA8CqzKm-XymVVSDOI_WGebY06R365NA)![](https://lh5.googleusercontent.com/OhtdYgrEHvcm8Bk_w5fDKbbGnJSSoIB_CIA6i25Cmnz_P7wvz4iZYkEujhg03uaIK0A8O-R-JQV_WrldHOPujFUQXTP6RMqu0Qe_OELRHANEXMqzZspnFp9_0AmpTibOvw)
-我来到美国的原因是想要传递冠状病毒的真相。
+传播CCP病毒的真相是我们每个新中国联邦战友的责任和义务，目的是为了挽救人类生命，挽救世界文明，维护世界和平与安宁。每一个爆料革命的战友都要努力进取，这是上天赋予我们的使命！关系到我们每一个人、每一个家庭的健康和生命。宣传新中国联邦爆料革命的理念，传播CCP病毒真相，感召身边的每一个人都来加入我们的行列，消灭中共是正义的必须！正义决不会向邪恶屈服，Take Down The  CCP 需要每一个人的努力，战友们加油！
 
-我来自香港，就职于香港大学公共卫生学院。我的实验室是世界顶级新型冠状病毒研究机构。Der Grund, warum ich in die USA kam, war, die Wahrheit über das Coronavirus weiterzugeben。Ich komme aus Hongkong und arbeitete in der School of Public Health der Universität Hongkong. Mein Labor ist die weltweit führende Forschungseinrichtung für neue Coronaviren.
+在爆料革命的历程中，我们成立了新中国联邦，我们建立了喜农场和喜联盟，我们还建立了G News和GTV，现在我们将要建立完善我们的金融体系，喜联储。这关系到新中国联邦的未来，这关系到全中国人民的未来。
 
-Li-Meng Yan10.7.2020
+Hcoin将推进人类世界文明发展进入新时代，谁能占领这个高度拥有它，谁就将走在未来世界发展的最前列，主导未来世界文明的发展方向，Hcoin未来的发展潜力无可限量！在未来，Hcoin 将会成为世界流通货币，在虚拟世界里就是现实的美元，也会是各国国家银行政府的储备货币！也是世界上大机构、大公司争相购买保值增值的产品！亲爱的战友们，把这样的好消息告诉您身边的每一个人，把福音带给大家，让更多的人知道并加入进来，这不仅仅可以传播正义的真相，也能给更多的人带来财富和希望！让越多的人加入进来，我们的力量就越强大，CCP失血就越快，Hcoin升值速度和潜力空间越大，CCP灭亡的速度就越快，此消彼长！这是我们的战场！这也是我们努力的方向和目标！
 
-[https://gtv.org/video/id=5f5a631fdaed5626f990ad60](https://gtv.org/video/id=5f5a631fdaed5626f990ad60)
+亲爱的战友们努力加油，尽快铲除邪恶CCP，尽早解救受CCP病毒残害的人们脱离苦难，拯救世界文明，拯救受黑暗压迫的人们走向光明，正义的力量正在在集结，西方文明世界的政治、经济、军事、媒体舆论的布局已经全面开始了，仔细观察世界各国的军事力量调动部署，仔细研究西方国家官方媒体舆论的报道方向，可以看出，为了生存、为了利益，为了未来，围剿中共的结盟已经开始，CCP已经走到末路尽头了。但灭共最终还要靠我们自己，最终的胜利一定属于我们新中国联邦，属于每一个爆料革命的战友们！
 
-How did she flee from Hongkong?
+免责声明：文章观点仅代表作者本人，与GNEWS无关！
 
-Wie sie Hongkong entkommen ist？
+编辑/发布：比卡丘
 
-[https://gtv.org/video/id=5f7c46ba06847a4c650c28df](https://gtv.org/video/id=5f7c46ba06847a4c650c28df)
-
-7 Oct 2020   #DR\_YAN\_HNZ
-
-Virologist Dr. Li-Meng Yan tells ‘Tucker Carlson Tonight’ her mother was arrested because Yan was ‘telling truth’
-
-COVID whistleblower’s mother arrested by Chinese authorities [https://twitter.com/himalayayan/status/1314306646793838594?s=21](https://twitter.com/himalayayan/status/1314306646793838594?s=21)
-
-October 3 – According to Mr. Miles Guo, the CCP arrested Dr. Limeng Yan’s mother in mainland China, allegedly as a retribution on Dr. Yan, the Hong Kong virologist, Chinese Whistleblower and CCP COVID-cover-up debunker. The news was released to the public in Bannon WarRoom Ep. 419.[https://gnews.org/zh-hans/1109263/](https://gnews.org/zh-hans/1109263/)
-![](https://lh3.googleusercontent.com/_xFY2V6HWzNwkFQMH-UkgcLox9_OWsxFENmOYAPxLIVmzf4NeqIiwrrw6gQhS0nBoxFJQgENpZJNDHgHy6sSG39IpbciYCnmgrQqoqw3l9MBJktNuAOlbiEKA6b7i4vwQw)
-我随时都有被中共消失的可能，但我最最担心的是在我被消失之前能否把中共制造的摧垮世界、毁灭人类的烈性病毒真相及时地告诉全世界。更令我感到不安的是，中共病毒留给我们人类的时间已经不多了……闫丽梦
-
-I may be disappeared by the CCP at any time, but what I am most worried about is whether I can tell the world the truth about the scary virus that the CCP has created to destroy the world and destroy mankind before I disappear. What makes me more disturbed is that the time left by the CCP virus for us humans is running out…
-![](https://lh5.googleusercontent.com/GKpPqPWkA03acuMkdjpbdRpyXHaX2Gnllc56PDM7vzO9At2bZ2WFSF9q93XcgXNQbltJlPg-DdPZlV4zOg-79C6G62AeQktwbjCbciFdz3rlCXGR83TnAIFhvFAtYdzhyQ)
-
-
-> 闫博士解释中共解放军是如何利用现代基因生物武器来制造完美犯罪，其目标就是要破坏和瘫痪敌对国家的经济活动和整个社会系统。(1/2) [pic.twitter.com/4uiiaBwqfe](https://t.co/4uiiaBwqfe)
-> — tietietie (@tietietie7) [May 1, 2021](https://twitter.com/tietietie7/status/1388486201712119820?ref_src=twsrc%5Etfw)
-
-
-
-闫博士揭示投毒细节: 中共用的动物模型不恰当，他们用人源小鼠，但是他们没有做仓鼠模型，所以认为释放病毒可防可控。They utilize “serial passage” on hACE2 model animals to polish the lab-engineered virus so it can better adapt to humans and more akin to a “nature originated” virus.[https://twitter.com/realliangnaduo/status/1387974049364680707?s=21](https://twitter.com/realliangnaduo/status/1387974049364680707?s=21)
-![](https://lh4.googleusercontent.com/a0DyKnwjOVyheH9H7LTedfMtOH7VFowgkkAQUZWTcHhTlgF8q1dj8WtVJnjXRmNV3Zr6kkVjTfqPTPNSuZG9JuCmBjOQyOmNAegKI5HFwklpoxu1T1nWob0lUvcC7h_kBw)
-Dr. Li-meng Yan used to work closely with Dr. Malik in top HK P3 lab. She was the eye witness, fled HK to tell the world the truth of Covid-19 . She warned about human-to-human transmission before WHO admitted it![](https://lh5.googleusercontent.com/9ghZmi-pSNCiNkfe8MImFtQWtyYQFcGk5PIoQPNT-C2-DygK5Za7-PUBFHShi9JAy2z1Ksw41y5Bx56TSQVzqRITCPejGgaoNEYV5Cd2DB7xkCiGd_pokFUMDqheWYOgqQ)
-
-Clip of my first appearance on Fox News: 13-min of the whole 4-hour interview is publicized on 10 Jul, 2020 – Don’t expect herd immunity at this moment, cos you don’t know (#COVID19) virus. It’s totally different as what you know previously.
-
-– The key is to understand its origin闫丽梦新中国联邦英雄科学家闫博士逃离中共魔爪后首次接受美国媒体采访的视频。（转自喜马拉雅加拿大多伦多农场精心制作短视频）[https://twitter.com/realcolidorra/status/1387078103936155653?s=21](https://twitter.com/realcolidorra/status/1387078103936155653?s=21)
-![](https://lh4.googleusercontent.com/WoiY6CaI8SPKMKfNWj2bR7UmvE4x0md4ZQW9xE-6wlaZHaC7VQgeLtHKb230KxNNSAOQ_wAz-ekFeloYsiRQKZ93MbwqA9akflX2RttV7gxQXIYwesCS87lFg6OsOB3TWg)![](https://lh4.googleusercontent.com/6aGFW-jF6zrT3QqD1HONgpg57BnpXv5x001gNhNkHYELB6VtQC_GSdStmoSO1oQe89xnPjytNDeL4lMdEg7DRWg3g1KddxREfmbxgXMsL4IJVWryeg4CcVkv3G_-xpUn1A)
-[https://gtv.org/video/id=6015be4c46c6c3519a3d04ee](https://gtv.org/video/id=6015be4c46c6c3519a3d04ee)
-![](https://lh6.googleusercontent.com/2Jo9at87xn-uvO_7Yy_bPiZfR8paNgJNrZ5QjE8sIFB6jy_PTDS4rhsHPlqBPU75N-qAu19WqoYtDEA1DyevyL3lbT1YBmOryXLQLSujCgSZDJfOyzaDAaH6Ft1ewNWPeA)
-[https://gtv.org/video/id=5fb0bd9dad3f0f61d2c0a1de](https://gtv.org/video/id=5fb0bd9dad3f0f61d2c0a1de)
-![](https://lh6.googleusercontent.com/HVtB4agXqCtWlk0fNhEx9gdI1SlzEjuVPLFmgG1JD5ug3k5eLpNu8a1II4sIN4oTsoKdTZQl21yAV-9HQr0puGYVoQ0HuvGlue1BLmRAWBuOYWqwr3KBsQpjvwUuXYLTLA)![](https://lh4.googleusercontent.com/GnjvR5GeZr9iKgNAzxOShDqEEuH4TyApczPjUGlfKy_k-sqNI9FDbiSC9SYF9AohIEwhm8RnNPdyCEx6_RC0jN0iMxitobxCoMZYONGy35581Vep5WGSyvHlBuDYHZwQaQ)
-Die Tatsache der Coronaviren-Impfstoffe:
-
-The truth of coronavirus vaccine:
-
-
-
-> [《中共病毒疫苗真相》视频短片](https://gnews.org/zh-hans/1143961/)
-
-
-
-08/11/2020 Newsmax 采访 闫博士
-
-WHO不希望世界知道羟氯喹有效？
-
-闫：所有科学家对羟氯喹的预防&早期治疗效果，去看看一线医生报告/ 20多年来一直都是最安全的药物
-
-药物机理和中共病毒的治疗符合
-
-70年的老药 儿童&孕妇都能服用 还说啥呢？
-
-止痛药都比羟氯喹副作用大
-
-08/11/2020 Newsmax Interview dr. Gong
-
-Die WHO will nicht, dass die Welt weiß, dass Hydroxychloroquin funktioniert?
-
-Alle Wissenschaftler zur Prävention von Hydroxychloroquin Frühbehandlung Wirkung, siehe die erste Linie Arzt Bericht / seit mehr als 20 Jahren ist das sicherste Medikament
-
-Der Mechanismus des Medikaments ist mit der Behandlung des chinesischen kommunistischen Virus vereinbar
-
-70-jährige Medizin, Kinder und Schwangere können es einnehmen.
-
-Schmerzmittel haben mehr Nebenwirkungen als Hydroxychloroquin.
-
-
-
-> 08/11/2020 Newsmax 采访 闫博士
-> 
-> ❓WHO不希望世界知道羟氯喹有效？
-> 
-> 闫：所有科学家对羟氯喹的预防&早期治疗效果，去看看一线医生报告/ 20多年来一直都是最安全的药物
-> 
-> ❣️药物机理和中共病毒的治疗符合
-> ❣️70年的老药 儿童&孕妇都能服用 还说啥呢？
-> ❣️止痛药都比羟氯喹副作用大 [pic.twitter.com/Ht6Ub9ia2F](https://t.co/Ht6Ub9ia2F)
-> — 跟隨小蚂蚁 (@mini04123) [August 12, 2020](https://twitter.com/mini04123/status/1293550692964003840?ref_src=twsrc%5Etfw)
-
-
-
-Hydroxychloroquine appears to be saving lives in India.  Mortality rate is 1/6th that in the U.S. despite inferior health care system.  HCQ in widespread use.
-
-Blood on hands of @cnn and @nyt which refuses to cover positive studies.[https://twitter.com/realpnavarro/status/1388507996779646979?s=21](https://twitter.com/realpnavarro/status/1388507996779646979?s=21)
-![](https://lh4.googleusercontent.com/ExZXr5zLhb9zPxFJOvjFlIl_87H2-dE03IkWOL8lsg9lzhsFTjpsLyb00ixuFoYZcWF5a3qE4okJIW1YB3OzMsreCkcPITn7zAQQZGNKdVDOR3JgOJcH-r0-ngPvvhQDTw)
-硫酸羟氯喹+锌预防优于任何备选疫苗 HCQ+Zink:Besser als jeder alternative Impfstoff
-
-
-
-> [硫酸羟氯喹+锌预防优于任何备选疫苗 HCQ+Zink:Besser als jeder alternative Impfstoff](https://gnews.org/zh-hans/1119967/)
-
-
-
-HCQ, HCQ,HCQ…..
-
-Bitte suchen Sie HCQ, warten Sie nicht länger.
-
-
-
-> Dr.Yan闫博士谈疫苗
-> 現在還沒有有效的疫苗是因為
-> 🔹疫苗的副作用
-> 🔹病毒快速變異
-> 🔹它是超限生化武器 [pic.twitter.com/hCtXNNXAW8](https://t.co/hCtXNNXAW8)
-> — anina xin (@AninaXin) [May 2, 2021](https://twitter.com/AninaXin/status/1388989591751905282?ref_src=twsrc%5Etfw)
-
-
-![](https://lh4.googleusercontent.com/TzgxfJBNPJULdAV4qOZ2GLzLj7Klx30RHYaa5P2XimwRHfYPT3UZm_Q2Vmm3icq7G9YiD9k1PhgB5aBGCtieImcbVzAtTNtdHHfHfxNUd_LeCqzKF5ukwNrt0aRUEmXRiA)
-
-
-> 你相信谁会决定你将来的命运。 [pic.twitter.com/C3es9tkzlN](https://t.co/C3es9tkzlN)
-> — 桃花岛主(Lucky) (@Mydoglucky2) [May 3, 2021](https://twitter.com/Mydoglucky2/status/1389314796118372352?ref_src=twsrc%5Etfw)
-
-
-![](https://lh6.googleusercontent.com/K8v2fsJyi2S7na6DNAnXEZMP18j8x1D1UIAOUqeNlT-cYxJMr38W-1er9VwN_fFFbhITL8Gq2SN_m0RkMSQk5TUjQZkwM5WUBulv6S0lPvx3ajP7vePHMQYFosGXuwl9gg)![](https://lh4.googleusercontent.com/Vmlzyz2HEXJPu9I7BBqRxMLS9NkZhntHe-pkNTtft-_iCdKY6ax9qSynoKzximlcZoYa6qplhIwCaNaFBYNRh5ehWSlF-_vRJ3gT2Zah9zPJGfBWPE9IBRnq1Yeud5u5dQ)![](https://lh5.googleusercontent.com/3h4CesG254c4I287gmnefhbhXGOZRSpLev2xuMprmmyVF4ZRVFTV1Y7KzQRkogcNiAkyDQS2ab48jZBcNnp8oXrwC1iD_RjAytGGu_uwnHGTsv7p4Z52Ma_BIukUQTYz9Q)![](https://lh5.googleusercontent.com/3msBP-LkYUwEVP9OempKVQ07sKkbadtzdZxjdyBcFdJ1FKvVDDfpI2DRogZCitiSYeeuRoMPjxB8tLU27U_UgO665nF9h-Pk-Dwc_1Ur9KWPaQ_gRHu4oi-VcsJwNUnmDA)![](https://lh4.googleusercontent.com/y_zyPrpfe8Xvkk8hB44g_oC57UEcOAEKlh7zxsVA4MFz2wVd6EBqwlnRLm41gctnJqLaXHX2JAMtrE_KEaS86qVqYICmoTQpsXlQZTFvR1bECbqXWT5aTJsQaZKxYPpHxQ)![](https://lh4.googleusercontent.com/qFltXNXL2W4LAB065KZ5eHVve3cv7nyeCi9yiKeMCo_K3bZ4suzKT4xGHtWI6Tg-iwMH5HTsvR_B_XfgoVTe506u7danyIk79XCWxmU5w_UaFDzMe0BsBmVTvKUC2uGbBg)![](https://lh3.googleusercontent.com/CLbyYjANpnCCawIMlsOKcUiPViYEQFia7l-O3s--ht8dD5ZNp51oIZF92hWcX9FQD440FinoO-eRgAhfIbBLcybqL_mUMej3SwMzFGA7BsSnky9IdWz8uLaD7sfN3q7cOg)![](https://lh5.googleusercontent.com/pI9IN_16IoCNuNHTyPYpCG5nUPuaBozWFNfuy3Apxo53jRWRSj1-diqpVkJDXx7UY6wzZScemIS59SFzV4d50JytgAqVZ8_5vUaGquDk9sPx6zSYcgXrLLUASiC-WPC-cg)![](https://lh3.googleusercontent.com/j8zoYb5a9DaqiZaYen4utE2HwnNO8N7XyX-lbmTBDXff-noH-vTy49F6CYAA5wsH_xkcJFQYdmWFTHVOrhYYNTyZiYD_kkA9-D09JA1V04pfniMVX1SfBYFtDeiI8BotaA)![](https://lh4.googleusercontent.com/B5mNuZN1wnyROEG30fgtwjDuRoJsQJ9cnU4HsfGMwfve2E9b6StN_H1nqRKA8D1UVVLUarmFr8J3p6Qcyu2n-kyPwOIif-vsxlwc7ZcLHeEHHhHNRHTZdnkAtzk1TCQjSg)![](https://lh3.googleusercontent.com/5ctl5TeNzmJFrLOpa6w_pkYSt2dSh0qg7MrDZI4NMzLKfUlEMedrzLxEeb2xAdbLTAGlwbD8EIeoui6mqHdyGu66zA7s_Xoi7RzerzvuhKVw3QRAAQY2CecFdZSSZAEmsA)![](https://lh6.googleusercontent.com/G6k3MGgUw1MhjoACE8xtkiiukyDWMJNn_e8m0ZVXO0GrPMboK_3ZiXEvDwp7oM4-dk_fxX5NtVYUtczxggIRPsUmkxZa1q0zDX6Bcav-xK6WnlbOZFZybW5UdO4gwj5crQ)![](https://lh3.googleusercontent.com/z3V6QRT9WxpTmZ0vgq8W-wyclzDjqvI2q5rNvytG3WHfOiaUTUhtWp_65LxhiTA5cqw9Uj7aD5uGJVU9WBH6DB4hhQ0VZpl05OC5_hzmAuAmkfXm7HGZCU_0tmbN2yf-SA)
-Dr. Li-meng Yan who is the Hong Kong virologist and Chinese Whistleblower, fled China to the United States to speak out the truth of COVID-19 and how the Chinese Communist Party (CCP)covers up the truth. After Dr Yan has been interviewed by many mainstream media, her mother was arrested by the CCP. She was targeted as a retaliation for Dr. Yan’s bravery and efforts to save the world from the pandemic. The CCP has once again shown the world their evil.
-
-We therefore ask the House to urge the Chinese government to release Dr Yan’s mom. Australia as one of the Five Eyes Partner, also Australia has been one of the most early advocates of an independent investigation into the origins of this virus. We need to act together and bring justice to the world. From 191 citizens (EN1958)[https://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;db=CHAMBER;id=chamber%2Fhansardr%2Fab224a69-3544-4a95-9ce8-8319329dd01a%2F0015;query=Id%3A%22chamber%2Fhansardr%2Fab224a69-3544-4a95-9ce8-8319329dd01a%2F0410%22](https://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;db=CHAMBER;id=chamber%2Fhansardr%2Fab224a69-3544-4a95-9ce8-8319329dd01a%2F0015;query=Id%3A%22chamber%2Fhansardr%2Fab224a69-3544-4a95-9ce8-8319329dd01a%2F0410%22)
-![](https://lh5.googleusercontent.com/vIvD2XFXuksDUnnFG6XfcEc8k9Nh_1MxqDY-C_IkZqfNp77YP5r_enYVoTUVCd3XqsuZVIojQD6w1i0WVuO3scf3PSm30qPxgjkW1OO2rKu6kg736blx4RIg_qV-0K0MwQ)![](https://lh6.googleusercontent.com/54PMlaeuF73zPTV3MC7u4_rY-iyqTHfa00ORpArUs8EcJ-ViXFJnnsBXQR2TDPCk_-bK8WnuDUEdcfh-DXMMeON-fV4XfeSK4TVkK_fpLJBfUsQHlCfuYPUeH5sN5NlhJg)
-Außerdem würde ich gerne mit Ihnen andere 2 Artikel über Coronaviren teilen:
-
-🌟🌟🌟🌟🌟
-
-70 Poster enthüllen die Geheimnisse des Coronavirus [https://gnews.org/zh-hans/1098229/](https://gnews.org/zh-hans/1098229/)
-
-🌟🌟🌟🌟🌟
-
-Coronaviren-Impfstoffe sind unsicher, sogar tödlich.
-
-70 Poster illustrieren die Unsicherheit der Corona-Impfstoffe
-
-
-
-> [70张海报告诉你疫苗不可靠（2/2） 70 Poster illustrieren die Unsicherheit der Corona-Impfstoffe](https://gnews.org/zh-hans/1109263/)
-
-
-
-[https://gtv.org/video/id=5fa43646ad3f0f61d2bab129](https://gtv.org/video/id=5fa43646ad3f0f61d2bab129)
-
-Please continue to pay attention to me. I will find the truth for you, make contributions to mankind, oppose covering up the truth and lies, and don’t be blinded by the so-called scientists and the World Health Organization
-
-
-
-> Update of “origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)” links:
-> 1st Yan Report [https://t.co/bvbzeL3ETA](https://t.co/bvbzeL3ETA)
-> 
-> 2nd Yan Report[https://t.co/Kw8xuixz54](https://t.co/Kw8xuixz54)
-> 
-> 3rd Yan Report [https://t.co/BSIPG1jgyR](https://t.co/BSIPG1jgyR)
-> 
-> Response to Fake News [@CNN](https://twitter.com/CNN?ref_src=twsrc%5Etfw) [https://t.co/PwU2i8olXn](https://t.co/PwU2i8olXn)
-> 
-> Additional, [https://t.co/9gVV4Kj7C4](https://t.co/9gVV4Kj7C4)[#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/rcannJTzPs](https://t.co/rcannJTzPs)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 2, 2021](https://twitter.com/DrLiMengYAN1/status/1378015779287891968?ref_src=twsrc%5Etfw)
-
-
-![](https://lh3.googleusercontent.com/l9N4aEF91jAipf7kcAIKYvlmkA7CK5isbfeIsHqExjSAwDODFlv9CGRq-1r5_68z6pWLWapohLD_8wL0WRtUym39RfjgGJqGPMrPIBoi6kPT96eG_bKKWsN2PfuLeeWPCg)![](https://lh3.googleusercontent.com/Ak_8oycT_zbFD7P65ZD_xfHw9HgHAy32J9Rd6LtqkMJXN9OhwEUFmKJq8qMKiR8hM231LWn6pzjhvd3JcqJZe2gZwd4yZCGdvC5-74hhMtJxCy_gURc_DjxOWAGnmBhj8Q)
-德国感恩农场文迅搜集整理，
-
-感谢战友们制作的精美海报！
-
-+1
+20210504
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+0

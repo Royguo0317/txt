@@ -1,49 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧盟和中共国之间的经济合作关系正在迅速恶化
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1171572/)
+## 【热点播报】60多个美国体育场所引入疫苗护照
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1171710/)
 
-#### 作者：坐看云起时
+作者：纽约香草山农场写作组  四季
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04154225/600x-1_0.jpg)安格拉·默克尔（Angela Merkel）在4月28日与李克强进行虚拟对话期间
-摄影师：Pool / Getty Images
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-《零对冲》（Zerohedge) 5月4日报道指出，欧盟和中国之间的经济合作关系正在迅速恶化，在12月以一项重大投资交易为标志的关系 “高水位线 “之后，欧盟的行政部门和德国都在制定立法，使中共国实体的投资难度大大增加，彭博社将欧盟的这一系列行动称为 “加入美国，与北京进行针锋相对的制裁。”
 
-与此同时，意大利从支持中共 “一带一路 “倡议到如今阻止中共国公司的收购计划。在法国，中共国大使在3月被传唤时甚至没有出现，理由是 “议程原因”。
 
-简而言之，欧洲对北京的立场越来越强硬–这其中最大因素可能来自于德国对中共持怀疑态度的绿党的人气激增。
+零对冲5月4日报道，美国60多个体育场馆和其他场所正在为夏天部署疫苗护照（或通行证或证书），以使经济“恢复正常”。
 
-据彭博社报道，虽然德国总理安格拉-默克尔上周与中共国总理李克强进行了会谈，双方承诺在中共疫苗和应对气候变化方面进行更密切的合作。但在柏林的谈论中，围绕这一关系的乐观情绪已经消失。一位不愿透露姓名中共国官员将与欧洲的关系描述为处于下降的轨道上，他说，无论德国绿党是否能够上台，欧盟与中共国的关系都处在一个关键时刻。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04162840/0-2021-05-03_06-38-06-1.png)图片来源：[ZeroHedge](https://www.zerohedge.com/covid-19/vaccine-passports-coming-sports-venues)
 
-报道认为，在美国国务卿安东尼-布林肯在伦敦与七国集团同行进行讨论时，欧洲 “在与中共国的对峙中向总统乔-拜登政府的观点靠拢”。一位美国官员说，欧洲对美国的中共国立场的想法已经发生了 “巨大变化”，尤其是德国。
+美国职业棒球大联盟的旧金山巨人队和纽约大都会队是第一批要求球迷出示疫苗接种证明或通过一个名为Clear的应用程序验证其COVID-19近期阴性测试的一些球队中的一员。这些球队将接受医疗文件作为证明，但他们鼓励所有体育迷下载Clear应用程序以获得便利。
 
-驻北京的中共国欧盟商会主席、柏林墨卡托中国研究所的董事会成员约尔格-伍特克（Joerg Wuttke）说：”（对中共的）情绪已经发生了转变，”墨卡托中国研究所是3月份被中共制裁的实体之一。
+Clear已通过将所有旅行文件固定在一个应用程序中，简化了旅客经由机场旅行的过程。现在，Clear正在机场以外的60多个美国体育场馆和其他场所应用。截至4月，Clear约有14.2万次下载。
 
-伍特克指出，中共在台湾问题上的强硬立场、收紧对香港的政治控制的努力，以及国际社会对广泛报道的新疆地区侵犯人权行为的制裁–再加上中共国没有兑现其经济开放的承诺这一事实，构成了一场 “完美风暴”。
+随着疫苗护照的使用从机场向体育场馆滚滚而来，人们对该应用程序的潜在范围和影响的担忧正在增加。隐私组织电子前沿基金会担心Clear会持有用户的敏感医疗数据，并将其转化为消费者追踪器。但Clear表示，用户可以控制他们的健康记录。
 
-尽管如此，一些欧盟成员，如匈牙利，正与中共保持着热烈紧密的关系。
+目前，美国的几个州已经表现出反对疫苗护照的决心。其中包括目前的德克萨斯州、田纳西州、佛罗里达州、密西西比州。我们猜想还会有更多的州跟进。
 
-彭博社报道：经济联系仍然是最重要的，因为中共国是欧盟最大的贸易伙伴，2020年的总量约为6860亿美元，超过了美中贸易的5720亿美元。然而，现在即使是中共国十大贸易伙伴中的荷兰，也越来越警惕，保护其高科技公司不被收购，并制定了专门的中共国战略。
+中共病毒的灾难历经一年多的时间都没有被追究病毒的真相，反而政府却企图通过集权主义控制人们最基本的日常生活。难道以后所有的公共场所都将需要护照了吗？
 
-据中共国官员称，美国已经迫使欧盟站队。 在四个月前，当默克尔帮助引导欧盟签署《欧盟-中共国全面投资协议》时，欧盟委员会主席乌苏拉-冯德莱恩说这是 “我们与中（共）国关系中的一个重要里程碑”。 然而，到3月底，欧盟已经加入了美国、加拿大和英国的行列，对中共国的种族灭绝罪行实施制裁，中共也以自己的制裁作为回应，瑞典时装零售商Hennes & Mauritz AB则受到了非官方的抵制。该中欧协议仍有待欧洲议会批准。
+原文链接：
 
-中共国际经济交流中心美欧研究所高级研究员张茉楠认为”欧盟最近增加了更多与人权、意识形态、民主挂钩的议程项目，这种反对和摩擦预计将继续下去。”
+[Vaccine Passports Are Coming To Sports Venues | ZeroHedge](https://www.zerohedge.com/covid-19/vaccine-passports-coming-sports-venues)
 
-现在，欧盟委员会正在提议制定规则，对外国国有企业进行罚款，而默克尔和她的内阁已经批准阻止外国对高科技领域的投资，包括人工智能和量子计算–这两个领域都直接影响到中共国。
 
-中共政府下属智库的一位学者认为，中共希望将政治和经济问题分开，并将欧洲与其消费市场捆绑在一起，现在“越来越不可能”。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04154311/uighur-camop.jpg)据信这是一个劳教所，该设施于2019年6月在新疆地区拘留了大部分穆斯林少数民族
-摄影师：GREG BAKER / AFP
+编辑/校对/发稿：小鹿
 
-如果德国的绿党在9月取得胜利，那将是一个对中共采取比现任政府更严厉的路线的政府。绿党呼吁中共政府结束其 “公然侵犯人权的行为”，同时要求欧洲和北美伙伴在中共国问题上进行更密切的协调。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
 
-原文链接：[The Thrill Is Gone: Europe Chills On China Over Human Rights Record](https://www.zerohedge.com/geopolitical/thrill-gone-europe-chills-china-over-human-rights-record?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+**更多资讯，更多关注**
 
-* * *
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-*排版发布：日本东京方舟农场 文柯Miles*
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+
+
 
 0
