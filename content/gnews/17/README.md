@@ -1,33 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Bill Hwang 的爆仓事件引发出的问题：华融会是下一个吗？
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1171107/)
+## 布林肯：中共国自认为可以主导世界
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1171178/)
 
-#### 作者：坐看云起时
+新闻来源：Fox News《福克斯新闻》| 作者：Edmund DeMarche| 发布时间： 2021年5月2日
+翻译/简评：clau| 校对/审核：万人往 | Page：小六月
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04111151/1617250316-92526312-g_n.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/Eb18LmHYsCWbg/images/b9e1d553-9092-4e47-945b-6d2dcac656c7.jpg?asset_id=e8b642bd-7e57-4913-b355-70d2aad41881&amp;img_etag=%220f1903815d3bcd0dc0f1e0ceb1612e61%22&amp;size=1024)](https://spark.adobe.com/page/Eb18LmHYsCWbg/images/b9e1d553-9092-4e47-945b-6d2dcac656c7.jpg?asset_id=e8b642bd-7e57-4913-b355-70d2aad41881&amp;img_etag=%220f1903815d3bcd0dc0f1e0ceb1612e61%22&amp;size=1024)
 
-《零对冲》5月4日发文指出，近日Bill Hwang 掌控的百亿美金级别的对冲基金Archegos Capital Management史无前列的爆仓事件引发了市场对中共欺诈性上市骗局的关注。
+**简评：**
 
-文中指出，Bill Hwang爆仓事件的特殊性在于他的投资选择。Hwang做多了几个有问题的公司，而这些公司过去一直是卖空机构的目标。   在成为做空者目标的几个月里，Hwang投资的一些股票–比如GSX–也曾出现了密集的看涨买盘，很可能有助于将股票的价格推高几倍，这一点在精明的市场观察者眼中看来是相当不正常的事情。
+美国国务卿安东尼·布林肯接受了哥伦比亚广播公司新闻节目《60分钟》的采访，谈到很多方面的问题。当谈到中共国时，他承认中共国是这个世界上唯一能够在军事、经济和外交上挑战美国的国家，而且是世界上所有国家中对美国威胁最大的一个国家。
 
-目前尚未证实Bill Hwang 是否参与了这些有问题的股票的期权购买，但他的一些股票选择已经引起了媒体的注意。   《南华早报》指出，”Archegos公司在被指控有欺诈行为的中共国公司的投资上大做文章”。在这篇文章中问道，黄的事件是否是记录片《中共国骗局》中 “未完成的故事 “的结论，这部纪录片阐述了众多中共国公司如何在美国各交易所系统地进行欺诈，牺牲美国投资者和机构资金，把资金抽走。
+布林肯在采访中展现出来的态度是避重就轻和软弱的。尤其是当谈到所谓的捍卫基于规则的秩序时，他说：“美国的目的不是要遏制中共国，牵制和压制它，而是为了捍卫秩序。”当主持人问到，中共国的GDP按照目前的速度发展，2028年会超过美国时，他说：“中共国是个很大的国家，人口众多。”当主持人问他，如果中共国成为了最富有的国家，难道不意味着他们是最强大的国家吗？布林肯说，美国的人口结构相对中共国更有优势。
 
-《南华早报》指出，《中共国骗局》记录片中许多卖空者主角指控过许多中共国公司存在欺诈行为，而这些公司则是Bill Hwang的投资组合中的一部分。除了GSX，还有像爱奇艺和唯品会这样的公司，它们都被做空者如Muddy Waters Research、J Capital Research和Citron Research指出存在欺诈行为。
+如果中共国利用生物武器杀死了超过五十万的美国人，造成了上万亿美元的损失，都还只是一个竞争对手，什么样的国家才会是美国的敌人？相比彭佩奥国务卿在任时对中共国的态度，布林肯真的令人失望，或者说目前的政府对于中共国的态度就是如此。相信美国的爱国者们肯定会感到非常愤怒，因为死去的亲人和同胞，损失的自由和金钱，以及最重要的，美国作为世界最强大国家被人夺去的自信和骄傲，这一切都是因为中共作恶才失去。所有的情绪正在快速蓄积之中，就像火山喷发前在蓄积能量，弹簧弹出前会被挤压到极点一样，现在发生的所有事情，对爆料革命和新中国联邦都是礼物。等美国人真正开始爆发的时候，他们只能同唯真不破的爆料革命和新中国联邦人站在一起，灭掉邪恶的CCP!
 
-值得令人注意的是，许多这些被指控为欺诈的公司，尤其是GSX，都能以某种方式抵御极有分量的指控并神秘地上涨。但突然间，Bill Huang爆仓了。
+**原文翻译：**
 
-这篇文章描述了Bill Huang的持仓是如何一个接一个地降低的，《南华早报》指出，在Bill Huang投资组合这个 “微妙平衡的炸弹 “最终被引爆后，人们的目光转向了中国华融资产管理公司。 南华早报》写道，该资产管理公司 “在其220亿美元的债券中拥有不良资产货币化的投资组合，这些资产正被美国投资者利用”。”在恐慌性抛售之后，惠誉将其对这些债券的信用评级从’A’下调至’B’–比垃圾级高一档。”
+## 布林肯说：中共国认为自己应该成为主导世界的国家
 
-文章最后提出问题， 为什么Bill Huang的投资组合中充满了被指控欺诈的公司？为什么他的几个投资对象，如DISCA和VIAC，都神秘地以积极的速度上涨？Bill Huang是否参与了这些公司的期权市场投资？中国华融资产管理公司会是下一个爆炸的炸弹吗？市场将会继续关注并深究更多相关的内情和故事。
+拜登政府已明确表示，它将中共国视为对美国的一个严重挑战
 
-评：众所周知，《南华早报》背后势力为党内的江派势力。在此中共内斗白热化，公开化的时刻，《南华早报》出面把Bill Hwang引发全球金融巨震的爆仓事件与中共国资金，中共国在美国上市公司的欺诈行为以及华融资产管理公司联系起来，这背后的深意不禁令人深思。
+[!\[\]()!\[\](https://spark.adobe.com/page/Eb18LmHYsCWbg/images/c6f24a86-d8c6-4c47-a9e5-495779943a53.png?asset_id=06e15e95-b46e-4ec0-9faf-c98b9f692e03&amp;img_etag=%22e02a988d0e9bbf72fdf98aace1a8d68b%22&amp;size=1024)](https://spark.adobe.com/page/Eb18LmHYsCWbg/images/c6f24a86-d8c6-4c47-a9e5-495779943a53.png?asset_id=06e15e95-b46e-4ec0-9faf-c98b9f692e03&amp;img_etag=%22e02a988d0e9bbf72fdf98aace1a8d68b%22&amp;size=1024)太空顾问道格拉斯·麦金农（Douglas MacKinnon）：中共国打算“控制一切”，包括控制太空。
 
-原文链接：[Bill Hwang’s Blowup Begs Questions About The Next “China Hustle” In Its Wake](https://www.zerohedge.com/markets/bill-hwangs-blowup-leaves-questions-about-next-china-hustle-its-wake?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+前白宫和五角大楼官员道格拉斯·麦金农警告说，如果美国在太空方面不能跟上中共国的步伐，那么美国将在“国家安全方面处于艰难境地”。
 
-* * *
+国务卿安东尼·布林肯在周日播出的一个采访中说，中共国是这个世界上唯一能够在军事、经济和外交上挑战美国的国家。
 
-*排版发布：日本东京方舟农场 文柯Miles*
+“我考虑过这个问题，随着时间的推移，中共国认为它——它——可以、应该并且未来会成为主导这个世界的国家。”布林肯告诉哥伦比亚广播公司（CBS）新闻节目《60分钟》。
+
+拜登政府已经明确表示，它将中共国视为对美国的一个严重挑战。
+
+2月，拜登总统宣布成立国防部中共国问题工作组，以评估未来来自中共国的挑战。而在3月，拜登向英国首相鲍里斯·约翰逊建议，欧洲的民主国家应该联合起来，挑战中共国的大规模“一带一路”倡议。
+
+曾在奥巴马总统手下担任副国务卿的布林肯在1月份的确认听证会上说，中共国“构成了对美国来说世界上所有国家中最重要的挑战”。
+
+“我想非常清楚地说明一件事。”布林肯在《60分钟》采访中说。“而且这很重要。我们的目的不是要遏制中共国，牵制和压制它。我们的目的为了维护这个基于规则的秩序，而中共国正在对其构成挑战。任何对这一秩序构成挑战的人，我们都会站出来，并且——捍卫它。”
+
+采访的范围很广。记者诺拉·奥唐纳（Norah O’Donnell）问布林肯关于新疆的情况，中共国在那里被指控侵犯了维吾尔少数民族的人权。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Eb18LmHYsCWbg/images/fe2bf5d9-5dc6-4aea-87df-4d93d8724290.png?asset_id=6aff016a-9c0b-4cb9-affe-eace7c8d73a1&amp;img_etag=%22c07ada93881200d6c52dfe5465559abf%22&amp;size=2638)](https://spark.adobe.com/page/Eb18LmHYsCWbg/images/fe2bf5d9-5dc6-4aea-87df-4d93d8724290.png?asset_id=6aff016a-9c0b-4cb9-affe-eace7c8d73a1&amp;img_etag=%22c07ada93881200d6c52dfe5465559abf%22&amp;size=1024)
+
+布林肯说，美国已经明确表示，它认为针对该地区穆斯林少数民族的“种族灭绝行为已经发生”。
+
+“超过一百万人被关进，选择你的说法，集中营、再教育营、拘留营。当北京当局说，‘哦，存在一个恐怖主义的威胁，’我们没有看到这一点。它不是来自这一百万人。”
+
+奥唐纳提到了中共国最近在南中国海和与台湾的侵略行为。报告指出，就在上周，北京当局让三艘新的军舰下水，在该地区进行巡逻。
+
+布林肯以乐观的语气说，美国在过去已经迎接了挑战，并坚持认为，“走到那一步（冲突），甚至朝那一方向更进一步，都严重违背了中美两国的利益。”
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Eb18LmHYsCWbg/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/Eb18LmHYsCWbg/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+
 
 0

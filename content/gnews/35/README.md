@@ -1,11 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共是美国外交政策的最大威胁，美国必将会站出来进行防御
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1170813/)
+## 【每日快讯】05/02/2021：人民银行是最大的抢劫犯有组织有计划的抢劫老百姓
+` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1170808/)
 
-5/3/2021 美国国务卿安东尼·布林肯本周接受《60分钟》采访。他说中共现在是美国外交政策的最大威胁。它威胁到以规则为基础的国际秩序。中共近几年在国内国外行为都颇具挑衅和侵略性。它违背了曾向联合国许下的承诺。美国将会站出来抵抗任何试图挑战或者破坏该国际秩序的威胁。
+**制作：Cantonese工作室**
 
-By： 【秘密翻译组 G-Translators】
 
+
+**播报：【文依】资料整理：【二丫】【kate】【郁金香 】【文林】【深寒】海报制作：【小豆芽】视频制作：【Ken】粤语翻译校对：【文雀】上传：【星星】【向阳6768】**
+
+摘要：
+
+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095504/15_2_of_7-1.png)
+2
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095626/15_3_of_7-1.png)
+3
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095713/15_4_of_7-1.png)
+4
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095812/15_5_of_7-1.png)
+5
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095920/15_6_of_7-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01093124/image0%E9%9D%A2.jpg)
 0

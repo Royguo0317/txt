@@ -1,25 +1,95 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】05/02/2021：人民银行是最大的抢劫犯有组织有计划的抢劫老百姓
-` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1170808/)
+## “掀锅盖”系列：20210430从中共国逃离的资金都被吸引到G系列，资本的力量无穷
+` 《爆料贵语--掀郭盖》NZ` [轉載自GNews](https://gnews.org/zh-hans/1170839/)
 
-**制作：Cantonese工作室**
+**郭先生口述内容：**
+
+这个喜币啊
+
+喜dollar喜联储上市后
+
+七哥突然之间又回到了五年前
+
+所得到的尊重和重视
+
+这个世界就这么现实
+
+就连现在大家看到的
+
+美国日本的合作
+
+日本第一次告诉中共
+
+你敢在这个事上再跟我扯蛋
+
+我经济上全跟你第一个我跟你脱钩
+
+听说王毅在电话上傻了
+
+第二欧洲
+
+德国法国不就是因为钱磕头了共产党吗
+
+但这次美国到欧洲去
+
+要给他更多的钱
+
+最后的法国德国一定跪倒在他最不喜欢的美国人脚底下
+
+昨天某个机构要来参股GTV
+
+结果它出了个价格
+
+这个价格出来以后
+
+给了我最大的一个惊醒
+
+就是连我们自己都不知道
+
+我们在这几年爆料革命所积累的信用
+
+影响力唯真不破
+
+还有GTV的价值
+
+还有GTV和喜美元喜币
+
+还有我们的G club这一切联合在一起以后的
+
+它共同发的力
+
+所以说他们看明白了共产党已经完了
+
+从中国撤出来的钱最好的是投中国
+
+未来的新中国概念
+
+那就是新中国联邦后的
+
+GTV、G club、Gfashion、喜币喜美元
+
+伟大的时刻原来已经来了
+
+我们还没准备好呢
+
+\*所有经过节选，编辑和剪辑的简报和视频形式仅供留存及传播，分享信息！
+
+\*所有信息以郭文贵先生源盖特视频和直播视频为准！
 
 
 
-**播报：【文依】资料整理：【二丫】【kate】【郁金香 】【文林】【深寒】海报制作：【小豆芽】视频制作：【Ken】粤语翻译校对：【文雀】上传：【星星】【向阳6768】**
+听写整理：作而无作
 
-摘要：
+翻译：Bordedbug
 
-1
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095504/15_2_of_7-1.png)
-2
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095626/15_3_of_7-1.png)
-3
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095713/15_4_of_7-1.png)
-4
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095812/15_5_of_7-1.png)
-5
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095920/15_6_of_7-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01093124/image0%E9%9D%A2.jpg)
+校正：小鱼
+
+视频制作：农夫
+
+审核：掀锅盖组
+
+上传：糊糊文婴
+
 0

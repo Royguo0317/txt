@@ -1,110 +1,123 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（十四）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1171044/)
+## 爆料革命希望篇IV很有可能你就是那個傳遞雅典娜希望的使者
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1171180/)
 
-作者：纽约香草山信息部 6zero4
+撰稿：喜馬拉雅的肉夾饃；審核：喜馬拉雅的饃夾肉；校對：Maarago；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04113439/%E5%B0%81%E9%9D%A2-14.jpg)
+郭文貴先生在**2020****年****01****日****29****日談****CCP****統治下的孤國孤市孤鎮孤村，我們現在最重要的事情是迅速傳播真相**直播中提到：
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+［我們的聲音很小，但卻是現在黑暗中唯一的一個希望、一個火光。］
 
+［我YouTube上的關注絕對超過5億關注，全人類最牛的，最多超過5億，但是都被黑了。我的Twitter大家知道有時候一天就幾萬。如果中國互聯網打開，我的Twitter、我的YouTube都在幾億以上的關注，那是什麼力量啊？它是唯一一個替中國人發聲的、給中國人希望的！］
 
+［希望我們在這黑暗中能發出一點點光，但願這個星星之火真的能燎原，能喚醒所有的同胞，拯救我們的父母、拯救我們的兄弟姐妹和孩子。］
 
-5月2日塞林博士的8连推：
+為什麼我們微弱的聲音會成為黑暗中唯一的一個希望和一個火光？為什麼我們微弱的聲音會成為唯一替中國人發聲的給中國人希望的聲音？本文根據郭先生四年來直播中的相關內容進行匯總，摘錄文字皆來源於爆料革命戰友整理的郭先生直播視頻文字紀要，在此特別向默默付出的義工戰友們致敬，以下為本系列終結篇：很有可能你就是那個傳遞雅典娜希望的使者
 
-第1推，转发“Zion a Deplorable老百姓”战友响应塞林博士征集CCP病毒信息的推文：夏咸柱在PLA-AMMS获得的专利表明他参与了流感病毒的功能获得研究（源于Anna的挖掘），并贴上该专利的网页截图及夏咸柱的照片。重磅，显然PLA的核心兽医生物战小组进行了生物武器研究，COVID-19病毒探源的“Zion a Deplorable老百姓”和Anna战友合作发现了铁的证据，PLA将其伪装成疫苗研究，并正在制造耐热病毒，这是持久性生物武器的关键目标。
+一、帶給我們無盡的未來和無限希望的G系列：
 
+1.1據[2021年1月31號文貴直播：賴小民被槍斃和海航破產重組再次證明中共盜國集團的黑暗本質！共產黨變成掏肛黨後已經走向瘋狂！文貴一定會讓所有傷害戰友的人受到法律嚴懲！](https://gtv.org/video/id=6016ba7969dc393c0ff294b3)
 
+［加入爆料革命新中國聯邦的戰友們你就更辛福吧！因為你們有希望、因為你們有未來——無盡的未來、無限的希望，全人類任何國家沒有像爆料革命戰友一樣像今天擁有一個美好的、不可思議的、美好的希望，還有G系列。］
 
-> Huge. Clearly bioweapons research by PLA's core veterinary biowarfare group. [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detectives [@ZionaEmanuel](https://twitter.com/ZionaEmanuel?ref_src=twsrc%5Etfw) & [@2020Gladiator](https://twitter.com/2020Gladiator?ref_src=twsrc%5Etfw) team up to uncover damning evidence. Disguising it as vaccine research, the PLA is making heat-resistant viruses, a key goal for persistent bioweapons [https://t.co/o5uqNluRnW](https://t.co/o5uqNluRnW)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388715782415261698?ref_src=twsrc%5Etfw)
+1.2據**2020****年****4****月****29****日郭先生****GTV****直播**
 
+［我們過去14天創造的這個歷史，兩周！全人類現在沒有一家幹的事我們幹了；全人類上沒有一個公司做到的事情我們做到了；全世界沒有一個傳奇續寫買G幣這樣的我們做到了；全世界沒有想到的這麼大的網路公司沒有做到的咱做到了！你說我們驕傲不驕傲，那相當的驕傲！這就是我再告訴大家G幣給你無限的希望，也給你真正讓你能摸的著看的到的安全，和給你方便。還有什麼樣的企業能跟我們現在這樣，G-News、G-Fashion，是吧，未來能有這麼高的期望值和空間，沒有！］
 
+1.3據**2020****年****5****月****15****日郭先生****GTV****直播**
 
-第2推，转发“Sweet Journey”战友响应塞林博士征集CCP病毒信息的中英混合推：跟着钱的线索挖掘！挖掘与 “重大项目、973、863、十一五、十二五、国家自然科学基金、杰青”等项目有科研经费拨款的人物，这样的情况很多，找到负责“结题报告”的人，你将发现所有你需要的东西。跟着资金的线索挖掘，是“Sweet Journey”战友提供的一种可靠思路。
+［所以爆料革命給你的希望，就像這個投資有個希望，你投了錢，你老有希望。中國人是全人類最沒有希望的民族，信仰沒了，共產黨在這控制著，有啥希望？沒任何希望，只有喜馬拉雅給了希望，你投資了，等著賺錢。］
 
+［你投資的錢、你投資了股權誰拿走一分錢都得進監獄，這不能開半點玩笑，立馬進去誰也救不了你。你們是把錢放在這兒是等待著一個希望，等待一個回報，可不是給我的，我給你發語音感謝是你對法治基金的支持。咱別搞錯了關係，別瘋狂，這是一個正常的投資，這是一個希望不是賭博！］
 
+1.4據**郭先生****2020****年****5****月****21****日****GTV****直播**
 
-> Follow the money.
-> A solid lead worth pursuing offered by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@SweetJourney1](https://twitter.com/SweetJourney1?ref_src=twsrc%5Etfw) [https://t.co/5kqsQfPSTs](https://t.co/5kqsQfPSTs)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388720369033519109?ref_src=twsrc%5Etfw)
+［戰友們你知道人生活在世界上最可怕的是沒有希望啊！你沒有等待沒有希望，不論男的還是女的，人活著那口氣就是念想就是希望！就是上天給你的那一口氣！投資這個東西當你真有那一口氣是你相信的時候，它已經不是投資了，它是個希望，它是一個期許。］
 
+［那麼投資最大的快樂是什麼？就是你投對了，判斷對了，然後才是錢的回報，然後錢這回報給了你一個希望、信心。更重要的事情你還有個可能，繼續下去啊。給我一個繼續下去的理由，這就是人生啊。］
 
+1.5據**郭先生****2020****年****7****月****4****號****GTV****直播**
 
-第3推，转发“Citizen Journalists”战友的中文推：于志君，其博导夏咸柱典型地通过小鼠模型进行动物传代获得增强型毒株的实验，结合去年川普总统和七哥对H1N1流感的描述进行分析，并附上相关报道文章的网页截图。基于“Citizen Journalists”战友的推文，中共国的科学文献暴露了CCP的病毒功能获得研究之广度和深度，并贴上夏咸柱的照片及相关报道截图。
+［那麼現在大家看到了，我們建立了國際關係、國際信譽、感謝上天啊！但是非常恨共產黨！這個香港運動這麼多人死亡，更加讓世界看清了共產黨。香港的悲哀成就了新中國聯邦的基礎，是共產黨死亡的第一道大門；全世界受到共產黨冠狀病毒的威脅，現在成就了新中國聯邦要成為唯一新中國未來的代表、合法政權的希望的基石；G-TV所有的投資者這一千個人，你將成為新中國和新中國人未來的最牛、最受尊敬的人，當然你現實也得到最大的回報！因為你的投資讓新中國聯邦、讓G-TV整個金融系統全面的開始，包括G-Dollar的投資者。這個得到的回報你必須得是第一的，也是最大的！那麼同時你也是新中國聯邦系列未來最大的功臣！開啟了一個新的未來！沒有人可以停止］
 
+［最起碼現在我們是新中國人的新希望，親愛的兄弟姐妹們這就是我們現在的新中國聯邦。］
 
+1.6據[2021年1月1日 文貴直播](https://gtv.org/video/id=5fef3de6f579a75e0bbfcb95)
 
-> As [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@NFSC\_007](https://twitter.com/NFSC_007?ref_src=twsrc%5Etfw) notes in his Tweet below, the Chinese scientific literature reveals just how deep and widespread the CCP's virus "gain of function" research is.
-> 夏咸柱（Xia Xianzhu)[https://t.co/3I5N4s3LhQ](https://t.co/3I5N4s3LhQ) [pic.twitter.com/oZvcVN3VNq](https://t.co/oZvcVN3VNq)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388727914276007938?ref_src=twsrc%5Etfw)
+［我希望所有戰友利用G系列做代理、做GCLUB、做GFASHION，讓你們合法地擁有財富，然後你成為別人的希望，這是七哥最希望的，新中國聯邦、爆料革命就是生產希望、生產純潔、生產智慧、生產真正的高檔人生，不要見風你就倒、見動靜你就趴下你就跑，人家說一你就說一、人家說二你就說二，沒點兒原則，不要認為任何什麼世界大事都可以決定我們的命運，我們可以決定他們的命運，憑什麼讓他們決定我們的命運啊，如果對爆料革命新中國聯邦沒這個認識那你就錯了，兄弟姐妹們。］
 
+1.7據[2021年2月19號 文貴直播](https://gtv.org/video/id=602fda58047c4c3086d58495)
 
+［我就一個目標——讓我們真的爆料革命的像GTV的1300把椅子這些人一樣，未來從1300把椅子能出来一千個十億、百億富豪，新中國聯邦就成功了。這一千把椅子的億萬、十億萬富豪我就希望你們幹一個良心的事兒——滅共，拿出你1%的錢滅共就行，七哥不要錢，但七哥希望你有了錢的人你真的站出來滅共，為全世界尋找出正義，為全世界建築我們美好的未來，為中國人建設一個一人一票、有信仰、自由、獨立、法治的新中國聯邦，這就叫以錢滅共。］
 
-第4推，转发“Jac Sr. Returns”战友回应上面第一推的推文：与该实验室相同的地址隶属于中国农业科学院长春兽医研究所病毒研究实验室，是吉林省人畜疾病预防控制重点实验室及科技创新中心的重要组成部分。以长春为中心的PLA兽医团队及其在吉林省内的关联机构对CCP的生物战计划至关紧要。
+1.8據[2021年3月10號 文貴直播：共產黨邪惡的階級論，血統論，Ｇ系列讓草根戰友們翻身做“上等人”，壯大滅共實力；GTV最新方案](https://gtv.org/video/id=6048dd2a75e88a51e6e93786)
 
+［如果戰友們這次在G-TV和爆料革命的G系列當中，如果你還沒有，如果你沒有學到感恩、你沒有學到公益、你沒有學到一個人與人之間尊重的話，你絕對沒有希望了，你再也沒有希望了，在這個當中有人什麼懷疑啊、不信啊趕快走、快點走，你走得越快越好，去找九指妖去給她寫遺書，九指妖給你真相、給你上帝，共產黨比爹親比娘親的共產黨，你找它去，給你土地，是吧，去找它去，千萬別跟我們，如果爆料革命這幾年還沒讓你學會辨別真假善惡，你最好離我們遠去，這樣的人我們是絕對不歡迎的，因為這是累贅。］
 
+1.9據**2020****年****4****月****2****日傍晚****GTV****第二次直播**** ****共產黨員該如何考慮自救了**
 
-> Please note these key Tweets by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jacksrreturns](https://twitter.com/jacksrreturns?ref_src=twsrc%5Etfw)
-> The PLA veterinary group centered in Changchun and its associated institutions in Jilin Province are critical to the CCP's biowarfare program.[https://t.co/RbvpQTCU5P](https://t.co/RbvpQTCU5P)[https://t.co/jFF7M5a3zA](https://t.co/jFF7M5a3zA)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388732548939927552?ref_src=twsrc%5Etfw)
+［**你要使用****GTV****就能給你帶來未來和希望，**這是絕對的。**尋找正義和真相就去使用****GTV****。**而且世界上只有一個平臺讓你使用，讓你用視頻音訊直播，不可篡改的證據。只有GTV，還有誰啊？誰敢啊，Google嗎，YouTube敢嗎？推特敢嗎？不但現在不敢，未來它也不敢。］
 
+［爆料革命戰友多少人失去了自由，多少人被抓起來，多少人被虐待。文貴的家人，文貴的同事就是大家的一面鏡子，幾千億資產。那不知道的戰友被抓的、被虐待的那是多少數啊，這些人的生命和時間，失去的自由所換來的中國人唯一的希望就是發聲的平臺，你說它值多少錢］
 
+二、共產黨的阻撓不能擋住真正要構建諾亞方舟的人的巨額捐款，據**2019****年****11****月****27****日晚上文貴再談《香港人權與民主法案》並祝感恩節快樂**
 
-第5推，转发一篇4月22日发表在bioRxiv的文章“印度Maharashtra邦第二波COVID-19疫情中SARS-CoV-2刺突突变L452R、E484Q和P681R的趋同进化”。依我之见(IMO)：CCP军事科学家将福林酶切位点人工插入COVID-19病毒，为更具传染性和致死性的印度P681R(脯氨酸转精氨酸)突变创造了条件，从而使福林酶切位点更加危险。
+［我們很多捐款都是被共產黨徹底威脅過的支付機構，我不說是什麼，大家都明白的。很多錢就是幾十萬、幾百萬的就是給block掉，有些帳號根本就不讓你劃轉這個錢。但是它也擋不住真正想捐錢、想建造諾亞方舟的人的巨額捐款。即使在這種威脅下、這種情況下，法治基金得到了太多中國人的認可和給予的厚望,為什麼？因為法治基金是真正的實力派，法治基金是真正的中國人的希望，法治基金的錢是絕對屬於中國人的，不屬於那幾個人的。］
 
+［上天給了我們機會，上天給我們開了無數的方便之門。我們要珍惜這方便之門！我們不能辜負上天對我們的寄予的希望和給我們的可以說是任務。我們應該更加努力，更加堅決。］
 
+三、潘朵拉盒子下面的雅典娜的希望是給人類留下的機會，很有可能你就是幫雅典娜女神傳遞希望的那個人。
 
-> IMO: The artificial insertion of a furin cleavage site (FCS) into [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) by Chinese Communist Party military scientists created the conditions for a more contagious & lethal Indian P681R (proline to arginine) mutation making the FCS much more dangerous.[https://t.co/HUPTrBhsYn](https://t.co/HUPTrBhsYn)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388740244695142401?ref_src=twsrc%5Etfw)
+3.1據**2020****年****2****月****29****日共產黨正在開始集體自焚**
 
+［可能戰友們只聽說文貴老講潘朵拉盒子，只講危機、危險和我們面對的挑戰。大家知道還有另外一個故事，在潘朵拉盒子下面還有一個好東西。大家知道是什麼嗎？上帝、上天、宇宙之神放了個雅典娜的希望。大家去看看雅典娜的希望，是給人類留下了機會的。雅典娜的希望是我們的未來。潘朵拉盒子再壞，他最後還是有希望的。雅典娜的希望就是我們人類自救、自贖，和陽光的心理和心態，和在災難面前找回自己，災難面前讓自己重生。也就是佛家說的，在大災大難面前你才可能立地成佛，你才能戒掉和除掉你的貪、嗔、癡、慢、疑。也就是潘朵拉盒子的幾大要素。你才能找到真正的歡喜，和來到這個世間的你真正的大般若，也就是自我。那就是我們的希望。］
 
+［人民一定會得到解藥，一定會找到雅典娜的希望，潘朵拉盒子底下那個秘密：雅典娜的希望。］
 
-第6推， P681H(脯氨酸转组氨酸)及更危险的PD81R(脯氨酸转精氨酸)这两个突变，表明了COVID-19的福林酶切位点的人工属性，在任何自然界的近蝙蝠冠状病毒亲戚中都不存在，并贴上相关基因序列对比图片。
+［共產黨已經完啦！咱不能滅完共，你把自己變成骨灰盒回去，去天安門，去盤古見面去啊。無論如何，在盤古、在天安門見面的時候，文貴可不希望一大堆骨灰盒排在那兒啊。不管是敵人還是戰友，都不希望這樣。如果想和文貴在盤古龍頭相見，天安門廣場為六四平反，宣佈六四是國家、國際承認新的國家日的時候，把中國這個英文“China”改掉的時候，讓中國人一人一票選舉的時候，中國人可以自由的決定自己信仰的時候，你不要變成骨灰盒。那就從你先開始做起，自我隔離。不傳謠，還不傳病毒，而且不被別人傳染病毒，這是爆料革命戰友新的任務。但是我們的武器核心就是做到這三“不” 的時候一定要傳播真相。**不傳謠、不傳播病毒、不被病毒傳染，做到這三條然後再做一條，第四條，一定要傳播武漢疫情真相。**我懇請希望、相信潘朵拉盒子的雅典娜那個人類最後的希望。用自己的正義、冷靜、行動、勇氣和對上天的敬意。和對生命的這種絕對的尊重變成行動來徹底滅共，實現我們的喜馬拉雅。我希望我們的戰友們一個也不能少的出現在盤古龍頭上。］
 
+［全人類處在黑暗的威脅之中的時候，我們在抱著雅典娜的希望，在走向喜馬拉雅。接下來每一刻你都會聽到震天響的資訊！從2月29，共產黨正式在國際上將被宣佈結束，而且進入了結束倒計時，共產黨有限公司集體自焚的，自焚自己焚滅的一個關鍵時代。］
 
+3.2據**2020年8月16日郭先生GTV直播連線紐西蘭戰友**
 
-> The two mutations, P681H (proline to histidine) and now the more dangerous Indian P681R (proline to arginine) point to the artificial nature of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) 's furin cleavage site, which does not exist in any natural close bat coronavirus relative.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/oJBxnCbsPs](https://t.co/oJBxnCbsPs)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388744397005668354?ref_src=twsrc%5Etfw)
+［我想告訴大家的事情，有潘朵拉盒子，就有雅典娜計畫。大家要記住，很有可能你就是雅典娜計畫最關鍵的那個人，就是幫雅典娜女神傳遞希望的那個人。］
 
+四、用美好的歌聲唱出我們的未來和我們的希望：
 
+4.1據**G-Forever****《我是音雄》全球跨年晚會（跨過****2020****年進入****2021****年）**
 
-第7推，转发Anna战友的中英混合推文：卢广文，南方医科大学即第一军医大学生物工程学院教授，并贴上卢广文及其南方医科大学的照片。这是一位与中共CDC主任高福关系密切的PLA军事科学家，其本人与军方有着广泛的联系，在CCP控制下的中国，军用与民用研究是交织在一起的。（卢广文真容浮出水面）
+［我覺得你今天比你在今天的歌聲都很重要。因為我相信這些話是發自你內心的，這也是我覺得唐萍妹妹和威廉王把這個平臺建立以後，最大的收穫就是讓中國人能唱出內心世界裡面真實的聲音，這才叫音樂嘛，是吧！這是音樂嘛，他不是說往床上唱，往房間裡面唱。這是真的是唱出美好的世界，唱出我們的希望，唱出我們的未來。這才叫真正的音樂啊！不是英雄這麼簡單，，你們都是英雄，而且他拯救世界的英雄，而且我覺得剛才說找那個大家庭。確實中國的男人嘛！有很多都是真的不是鹹黃瓜，都是真的了不起的英雄級的。然後這裡的女士都是美麗啊，都是蓮花級的，都是出污泥而不染啊，可以征服世界的。另外一個我覺得給我們帶來了希望，我們活得很真實、很快樂，有挑戰、有奮鬥，有沮喪。］
 
+4.2據[2021年1月1日 文貴直播](https://gtv.org/video/id=5fef3de6f579a75e0bbfcb95)
 
+［大家在看這個昨天我是音雄的時候大家會想什麼，大家想一想，大家會怎麼看待我們，**我們是他們的希望啊，**這一輩子要想能，我昨天我最想跟大家說的，**當你活這一輩子能成為別人的希望的時候，你就成功了，當你能活這一輩子的時候你給別人帶來希望的時候，你就真的成功了！**
 
-> A PLA military scientist who is closely linked to George F. Gao (Gao Fu), head of China's Centers for Disease Control (CCDC), who himself has extensive links to the military. In [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) -controlled China, military and "civilian" research are fused.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/E0FnIVlDkK](https://t.co/E0FnIVlDkK)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388748917098024960?ref_src=twsrc%5Etfw)
+**昨天每個人都是多少中國人的希望，別小看了昨天晚上啊，**你看看這個，這是事實嘛，昨天如果在推特上它據實顯示的話，咱也應該顯示35萬線上的數，昨天真實應該是線上應該是35萬乘以100萬，也就是三千到四千萬，這就是昨天真實的情況。］
 
+五、2020年6月4日成立的新中國聯邦成了中國人內心世界、十四億中國人的一點微微的希望，我們要把這個希望變成現實。
 
+5.1據**2019****年****1****月****16****日郭先生報平安視頻（上，下）**
 
-第8推，转发AjaySachdev战友对第一推回应的推文：转发2020年7月24日路透社发表在WION上的一篇文章“在病毒剧变后，中共国与巴基斯坦达成了制造生物武器的协议”，中巴生物武器协议与当下印度疫情爆炸性蔓延之间可能的相关性需要急速得到调查，这启发于扣人心弦的间谍惊悚片“纳格里布行动”作者的分析。塞林博士完全认同中巴生物武器协议之间的关联必须被调查清楚。
+［我深深地感受到，西方世界在迅速地在蘇醒。對中美貿易，我再說一遍，中美貿易一定是個滑稽的結局。我現在不說，就像我去年一直說，歐洲，很多國家會突然間蘇醒，突然間翻臉，騙你錢，搞貿易，拿到利益，一定跟你翻臉。現在大家都看到了。非洲，更多的國家會翻臉，東南亞國家會有很多人翻臉。這就是咱們爆料革命和文貴做的巨大工作。還有很多不露臉，不發聲，真正的是反CCP的很多力量都在工作著。那些力量是巨大的。遠遠大於我們爆料革命，更大於文貴，文貴是極為渺小的。這些力量集體地工作，還有在世界上的發聲，和默默地對盜國賊的打擊和揭發，起到了關鍵的作用，關鍵的作用。我真是感受到了。現在前所未有的在國內國外，有一大批的堅定的反共的力量看到了希望，他們在默默地工作著。我深有感觸，深有感觸。］
 
+5.2據[2021年2月28日 文貴直播： 為了確保戰友的利益，文貴做出的最終決定，確保Ｇ系列控制權一定都在戰友手中](https://gtv.org/video/id=603c25e0047c4c3086e2e2bf)
 
+［6月4號我們和郝海東先生、葉釗穎女士以及這麼多戰友、班農先生成立了新中國聯邦。她成了中國人內心世界、十四億中國人、有良知的人內心僅存的一點微微的希望，我們要把這個希望變成現實。］
 
-> Yes, the biowarfare links between Pakistan and China need to be investigated.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CovidIndia](https://twitter.com/hashtag/CovidIndia?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/7ksqYwPAH1](https://t.co/7ksqYwPAH1)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388768893041352705?ref_src=twsrc%5Etfw)
+5.3據[2021年4月15日 文貴直播：以毒滅共正在全面進行；馬雲的進進出出；江家勢力楊雄之死絕非正常；中共如同二戰時的日本；七哥已經準備好方案，保證所有G-TV美國投資人的核心利益](https://gtv.org/video/id=60783bf8400d9941d0110a93)
 
+［我是發自內心再說一遍，我就希望通過爆料革命、通過G系列找到好人、找到我喜歡我需要的人，成為新中國聯邦的未來、成為新中國聯邦戰友們和我們追求滅共後的中國人體面、獨立法治、信仰自由、活出中國人真正的真樣子的、這樣的中國人的團隊和精英們。這是我最希望的！就像現在我們的科學家閆麗夢博士一樣，我現在提閆麗夢博士天使，我就心情很愉悅，我很自豪、我很驕傲。］
 
+續上篇——
 
-“跟着钱的线索挖掘”是当下病毒溯源战场上的一把利器。夏咸柱关于流感病毒功能获得研究的专利，表明PLA的核心兽医生物战团队打着疫苗研究的幌子进行生物武器研究，并正在制造耐热病毒，这是持久性生物武器的关键目标，以铁的事实证明了当下COVID-19就是无温度和地域敏感性的生物武器。已经曝光的中共国科学文献也暴露了CCP对病毒功能获得研究的广度和深度， 尤其是以长春为中心的PLA兽医团队及其在吉林省内的关联机构对CCP生物战计划至关紧要！
+[爆料革命希望篇I中國共產黨如何徹底毀滅了中國人民的希望](https://gnews.org/zh-hant/1170633/)
 
-在任何自然界的近蝙蝠冠状病毒亲戚中都不存在的COVID-19福林酶切位点，是人工属性的确凿证据，也为更具传染性和致死性的印度P681H 和P681R两个突变创造了条件。当下犹如炼狱的印度疫情是不是倍感蹊跷？中巴生物武器协议与当下印度疫情爆炸性蔓延之间的关联性需不需要快速得到调查？
+[爆料革命希望篇II徹底失去希望的中國人民如何恢復希望](https://gnews.org/zh-hant/1170784/)
 
-校对/发稿：雪梨
+[爆料革命希望篇III爆料革命的戰友們為什麼是中國唯一的希望](https://gnews.org/zh-hant/1170994/)
 
-![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+（文章內容僅代表作者個人觀點）
 
 0

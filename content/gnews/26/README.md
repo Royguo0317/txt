@@ -1,125 +1,110 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月26-27日郭先生盖特和直播内容整理
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1170988/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（十三）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1171006/)
 
-**赵婷得奥斯卡奖和父母教育**
+作者：纽约香草山信息部 6zero4
 
-大家看到14亿中国人，八十年的历史，这么多艺人、知识分子没得过一个奥斯卡奖。弄了一个诺贝尔奖，现在也不敢说话。中国80后的赵婷，原来是中国骄傲，一获得奥斯卡奖，就辱华。
-
-赵婷在生活中非常朴实、真实，是一个勇敢的孩子。她的拍摄、技术都不是最好的，但她有胆量，在人怎么活着，这个问题上说真话，表达出自己真实的声音。赵婷的《游牧人生》电影拍完以后，最值得思考的是中国的父母：
-
-1：中国人最流行的望子成龙，望女成凤。意义是父母不行，就变态的教育孩子，希望孩子要行。为了孩子好的理由，把不可能实现的幻想，寄托在孩子。
-
-2：把孩子当成谋生、争面子的希望和工具，发泄自己的失败。动不动就是别人家的孩子怎么样了。
-
-3：共产党的教育是洗脑教育，只按一个标准。爹亲娘亲不如党亲，毁掉宗教，灭绝人性。所以面对孩子的人生，做父母的不要告诉孩子，要比父母强。
-
-赵婷的父母是最成功的，赵婷也一定不是被父母望子成龙，望女成凤教育的。如果都听她父母的话，跟父母一样的成长，不可能拍出《无依之地》。每个人的经历、思想、身体、环境都不一样，才能表现出个性化。发掘出自己最大的潜力，塑造自己的人生。
-
-赵婷让知识界、艺术界、导演界，有了一个新的标准。中国这些年的艺术家、导演都比赵婷厉害，动不动几个亿。导演、演员互相搞双休，包小三、鸭子，变态、吸毒。装神弄鬼说两句，弄点钱。就是娱乐者的垃圾，没有人会记住。很多导演有机会成为赵婷，但在金钱和邪恶的势力面前，不但选择了黑暗，还为黑暗呐喊，帮助黑暗者毁掉中国人民。
-
-共产党释放的病毒，让世界把亚裔当成灾难的时候。共产党把中国人民推向病毒灾难的责任者，可能万劫不复的时候。赵婷的出现，替亚裔人争得了荣誉、安全，拯救了很多华人。值得我们珍惜、感恩她和她的父母。
-
-同样爆料革命战友，活得也与众不同。活着不是为了钱，不是包多少小三。我们为同胞、良知、人性发声，为人类文明呐喊。说出中国人和共产党不是一回事，共产党不代表中国，共产党不代表中国人民。
-
-**喜币上市和展望**
-
-喜币在4月21号正式上市。在3月份，已经获得5个国家的支付金融牌照，美国都批下来了。在100多个国家申请，部分已经批准，现在拥有五个交易所。上市以后的轰动效应，体验度是最好、设计最漂亮，上线是最稳定的。唯一的是涉及到Gmail回复，大家没有等到。跟Gmail公司签了合同，设置的限别是最高的。但马上就会解决。
-
-喜美元、喜币到了那么多国家，很多人都傻眼了。白皮书是世界上最棒的，是一个安全守法，最严格的KFC。摩根的代码系统是目前写的最好的加密货币。货币系统被很多国家认为是数字货币有史以来，安全级别最高的。受最牛的金融国家，认可的数字加密货币。
-
-共产党设计的DCEP是胡扯、骗人的。喜币是中国人在国际上，唯一让西方文明国家相信的，一个没有共产党的现代化加密数字货币。是西方社会，接受的唯一有稳定、浮动、联储，黄金作为备用支付，全功能的现代化虚拟金融平台和现代加密货币系统。
-
-喜联储、喜美元、喜支付将改变新中国联邦，将成为华人在世界上第一个货币金融系统。现在只有喜币系统，把稳定币、浮动币放在一起。喜币的加密和未来支付能力，未来会创造金融界的历史。连共产党都没做到，我们做到了。
-
-九指妖之前说，喜币不可能研发出来，展不出来。现在金融交易所都上市了，战友们都做KYC了。她不知道啥叫虚拟币，还在群里说是假的，是预售。一点常识都没有，连金融上市都不懂。真希望欺民贼、共产党的党员都去听、去信这帮傻叉的话。现在我们让子弹飞一会的过程当中，让敌人共产党付出代价，让他们成为牺牲品。
-
-**战友跟郭先生交流灭共的最大困难**
-
-战友表示，现在灭共的最大的困难是民智——中国老百姓民心、民智未开。
-
-郭先生认为：不是这个样子，完全错了。
-
-叫不醒装睡的人，是因为你能力不够，办法不对。中国人被喻为羊群，羊看到同伴被拉走杀掉的时候，都认为不关自己的事，继续低头吃草。但它不知道下一个就是自己，一生都被剪羊毛。统治羊群的中共披上了狼皮，中共跳悬崖，都跟着跳。这是羊的悲哀和愚蠢。狼都是集体作战，分工明细、绝不妥协、勇敢、不怕死，一定弄个死活。一个孤狼即使走到任何地方，也不会臣服任何动物。
-
-中国人既有羊的温柔、善良，也有狼的团队、勇气、智慧。由于中华民族几百年的没落，输掉工业革命，后来被共产主义思想掠夺。中共把中国人教育70年，导致中国人现在人非人、物非物；既非狼，也非羊。中国人变得非常不自信、不健康、不善良，失去了信仰、认知能力。更不要谈勇气、谈政治，集体作战、绝不放弃的精神。所以中国人崇拜狼，追求的狼的团结精神。只有灭了共产党，才知道我们是啥。
-
-所有的Loser、海外欺民贼、共产党高官，都会以一个理由伤害、背叛中国人—中国人愚昧，人种有问题。
-
-1：像王岐山认为中国人百年都不可能开智，必须用鞭子虐待。（这是共产党奴役中国人，最王八蛋的理由）
-
-2：像毛泽东杀几亿人，中国人才会老实。共产党剪羊毛的时候，让你干啥，你干啥。就认为你狗屁不是，在他们的世界只有输和赢。
-
-3：海外欺民贼啥也办不成的时候，就是中国人根本不配有民主。
-
-他根本没有能力、没有信心拯救中国人民。海外民运流氓们要钱、捐款的时候，欺骗中国老百姓，连感谢也不说。捐完款以后，就是傻叉、根本不知道有民主。这些人都是垃圾，把自己的失败和错误，借用各种理由，高高在上的对中国人贬低。
-
-1：G系列给了我们最好的答案，中国人不是羊也不是狼，而是世界上最聪明、最有灵智的人性。
-
-2：赵婷到美国学习，英文讲得比普通话都好，就得奥斯卡。
-
-3：香港就是中国人的榜样。中国人到了香港100年，成了香港的英雄。香港人是狼追求的、羊崇拜的最高境界——互相之间抱团取暖、极为善良、从不伤害别人。香港人告诉了中国人可以那样。
-
-**CCP病毒祸害印度**
-
-印度遭受了重创，拥有三万多个神的印度，现在神也没了。头一段时间非常侥幸——印度受神佛的保佑，没多少人感染。结果共产党放剧毒，各种新型病毒。印度现在满大街，都是烧不完的死人。有的一家一家的死，很多人没有尊严地死去。有家人的给烧了，没家人的就扔在旁边，连狗都不吃。有私人飞机的，带着全家逃走。
-
-看印度的时候，对比中共：
-
-1：印度给了我们一个最好的答案，没有共产党不敢做的。
-
-2：印度没有禁止媒体报道，没有禁止人去访问。最起码老百姓知道发生了什么。但在中共国，没人敢说、敢报道。医生给弄死，记者全闭嘴。
-
-3：最可怕的是共产党的杀人手段，让你消失在无声无息之中，还让你感恩它。印度大街上烧人，但是武汉被烧的人比这还惨。中国人想在路边烧的机会都没有，谁还相信武汉就死了几百个人？就这样的国家要治理全球、拯救人类，一切都听党的。
-
-4: 谁还相信这样的共产党存在地球上，是连魔都不如的人间邪恶的化身。国内同胞们为共产党呼吁的时候，是在犯罪、害人。让中共骗成这个样子，猪狗不如。别人把你看成猪狗，那是别人的错。自己把自己做贱得，连猪狗都不如。
-
-**各国对中共的愤怒**
-
-1：欧洲现在已经愤怒到了极点，已经感觉到过去几十年和共产党的勾兑,付出的不是经济代价，不是尊严、正义，而是在犯罪。犯罪的轮回已经回到他们身边了，现在要灭掉他们的一切—挑战他们的安全，挑战他们做人生存下去的底线。把欧洲变为共产党的双修、藏钱的私生子女的后花园，低价地掠夺欧洲的资源。
-
-2：日本这次感受到共产党是要歼灭日本
-
-3：澳大利亚已经意识到中共的渗透和威胁是致命的。
-
-4：中东人还在贪小便宜，与共产党同枕共眠。很快会明白，他们因为跟共产党的勾兑，会被共产党当成炮灰牺牲掉。
-
-5：美国人在觉醒，华尔街、好莱坞、硅谷、华盛顿都在迅速地苏醒中。一定会站在上帝、正义的一边，为保护美国人的价值观和信仰、利益，反击中共，找共产党算账。现在共产党对欧洲除了骂大街，就是威胁。对澳大利亚、日本威胁再威胁。
-
-**郭先生的建议：**
-
-1：共产党没那么容易死亡，一定会很疯狂。打台湾、对香港更凶残、内部更打压，南海挑衅。共产党在倒闭前的疯狂，不要让你和家人成为牺牲品，去陪葬这个流氓。
-
-2：共产党的经济一定会很快崩塌，在崩塌的时候不要成为牺牲品。老百姓为了保护自己的钱上访，共产党会更疯狂。不希望中共这些人——毁了那么多同胞。
-
-**其他方面：**
-
-1：中国人的历史上，害中国人最深的是苏联、俄罗斯。现在中共给俄罗斯买油的钱，是整个广东GDP——将近上万亿。中共和俄罗斯之间，除了军事战略的政治利用之外，还有大腐败。这几年来，共产党很多钱转移到了海外。
-
-2：两三年前，恒大的许家印金融票据已经达到了30%的利息，即使美国政府都支付不了。他一定会爆。不爆，是因为中南坑老杂毛在撑着。
-
-3：民生、“三马”、许加印这些人要爆的时候，会把共产党炸得魂飞魄散，中共一半死在它手里面。然后中国老百姓的房、车、银行一切结束。
-
-4：肖建华当年玩票据，后来搞信托、假贷款，搞项目、股市做空，也成为剪羊毛的一部分。
-
-内容来源：
-
-【字幕】4/26/2021文贵盖特：为什么中国的赵婷的父母能培养出这样的孩子
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-> [【字幕】4/26/2021文贵盖特：为什么中国的赵婷的父母能培养出这样的孩子](https://gnews.org/zh-hans/1142750/)
+5月1日塞林博士的8连推：
+
+第1推，中文推：我们将一起为中国人民打败中国共产党，并贴出一张写着“神赐美好家园”的新中国联邦国旗，飘荡在喜马拉雅山巅。
 
 
 
-郭文贵2021年4月27日直播
+> 我们将一起为中国人民打败中国共产党[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/EMetvJ71ZN](https://t.co/EMetvJ71ZN)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 30, 2021](https://twitter.com/LawrenceSellin/status/1388167750682562567?ref_src=twsrc%5Etfw)
 
-喜币正式上线，喜联储，喜美元，喜支付，金融支付系统将改变新中国联邦； CCP病毒让印度如同人间炼狱， 但是是真实的；欧日澳美都在迅速觉醒；共产党经济一定很快崩塌，不要成为牺牲品；
 
-[https://gwins.org/cn/milesguo/22863.html](https://gwins.org/cn/milesguo/22863.html)
 
-整理：proud
+第2推，也是中文推：相信中国人民胜利的士兵。贴图是一张4位美国军人在新中国联邦国旗下的图片，4位美国军人分别是Joseph Stilwell, Claire Chennault, Jimmy Doolittle & Lawrence Sellin。
 
-0
+
+
+> 相信中国人民胜利的美国士兵[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/CG9YWgooSu](https://t.co/CG9YWgooSu)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 30, 2021](https://twitter.com/LawrenceSellin/status/1388182835601739782?ref_src=twsrc%5Etfw)
+
+
+
+第3推，转发2021年1月16日中共“央广网”军事专栏的一篇文章“军事科学院首届‘最美军科人’评选揭晓”。请给出意见。比赛的目的是什么？
+
+
+
+> 请给出意见。 比赛的目的是什么？[https://t.co/qUFoBj7Zsy](https://t.co/qUFoBj7Zsy)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388349669395337216?ref_src=twsrc%5Etfw)
+
+
+
+第4推，转发“慕尼黑感恩”战友的中文推：随手搜了这位“孙岩松”，就发现了让人心跳加速的“宝藏”：军事医学研究院(AMMS)在2018年申请专利：分别是高等级生物安全防护式中小 / 中大动物病原体空气传播实验装置(CN209435971U) / (CN209435980U)，军方提前两年开始做病毒飞沫和气溶胶传播的动物实验！！！并贴出这两份专利文件及孙岩松的照片。塞林博士中英双语推：COVID-19探源之“慕尼黑感恩”找到了一些重要的信息。请顺藤摸瓜搜索更多并将搜索结果放在这里。（孙岩松真容浮出水面）
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@himalaya\_de](https://twitter.com/himalaya_de?ref_src=twsrc%5Etfw) has discovered some very important information. Please follow his trail and post your results here.
+> COVID-19 detective @ himalaya\_de
+> 找到了一些非常重要的信息。 请搜索更多。 将结果放在这里。 [https://t.co/4SHyBomWNi](https://t.co/4SHyBomWNi)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388355157272973314?ref_src=twsrc%5Etfw)
+
+
+
+第5推，再次转发“慕尼黑感恩”战友的推文：童贻刚在2016.1-2019.12期间领导了一个秘密军事项目（与WIV合作），现在他正在招募研究员以优化他热衷的穿山甲冠状病毒GX\_P2V的感染性及其治疗药品，这是参与“计划好的”疫情并掩盖病毒真相等黑手的绝佳时机，并贴上该项目计划书及相关论文的截图，以及附上童贻刚、曹务春等4人的照片。COVID-19探源之“慕尼黑感恩”又一个重大发现，童贻刚是与WIV联系的军方人物，这个线索还与哪些与病毒起源有关的军事实验室有关联？
+
+
+
+> Another important discovery by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@himalaya\_de](https://twitter.com/himalaya_de?ref_src=twsrc%5Etfw)
+> Yigang Tong is the military link to the Wuhan Institute of Virology. How does that link connect to others that would explain the military lab [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) ? [https://t.co/DG6tjDRI3W](https://t.co/DG6tjDRI3W)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388359960485146625?ref_src=twsrc%5Etfw)
+
+
+
+第6推，转发“火来2号”战友的中文推，将与军事医学科学院(AMMS)有关的中外科研人员的照片都贴出来了。COVID-19病毒探源之“火来2号”准确地用正确的向外传播的病毒研究网络分析工具，以呈现PLA-AMMS如何将‘民用’研究所/大学机构与国际上的实验室连接起来的关键环节，线索基于5W(who, what, where, when & why) 。
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) uses exactly the correct outwardly-spreading virus research network analysis. A PLA AMMS core linked to Chinese "civilian" institutes/universities connected to international labs. The 5 Ws, who, what, where, when and why. [https://t.co/tkTub7ZSLH](https://t.co/tkTub7ZSLH)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388369261996003328?ref_src=twsrc%5Etfw)
+
+
+
+第7推，在CCP病毒产生前其福林酶切位点的理论基础已经成型，基于惠塔克(Whittaker)分析工具，姜世勃的人工插入福林酶切位点，是PLA的卢广文和高福渴望已久、梦寐以求的法宝，脯氨酸的介入是为了提高其稳定性和酶的利用率，并贴上相关论文的网页截图。
+
+
+
+> The conceptual basis for [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)'s furin cleavage site (FCS) was in place before the [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) was created. Whittaker's analysis, Shibo Jiang's artificial FCS insertion & PLA Guangwen Lu & George F. Gao's eagerness for doing so. Proline was added for stability & enzyme access. [pic.twitter.com/rn0vHJzEF1](https://t.co/rn0vHJzEF1)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388456407146635270?ref_src=twsrc%5Etfw)
+
+
+
+第8推，继续转发“火来2号”战友的中文推：“闫博士今天在The National Pulse的采访中，谈到了功能获得性研究gain of function。我们再次回顾下拉尔夫巴里克再一次网络会议中，说到功能获得性研究时，那得意的笑，让人不寒而栗”，并附上该段视频。“这些都是非常自大的人，巴里克知道真相，但他隐藏了自己的同谋，并保密自己的资金来源，在我看来，这些人和在实验室制作病毒的人同罪”。
+
+
+
+> These are very arrogant people. Baric knows the truth, but he is hiding his own complicity and wants to protect his source of funding. In my opinion, such people are just as criminal as those who created [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) in the laboratory.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/Fz0N0d8mWl](https://t.co/Fz0N0d8mWl)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388479385121038339?ref_src=twsrc%5Etfw)
+
+
+
+CCP病毒产生前最核心理论基础就是姜世勃的福林酶切位点人工插入，这让PLA生物战计划项目科研领军人物卢广文和高福如获至宝、喜出望外，军方孙岩松提前两年开始做病毒飞沫和气溶胶传播动物实验的专利证据，以及童贻刚招募研究员优化穿山甲冠状病毒GX\_P2V的感染性及其治疗药品以混淆视听掩盖病毒真相这些铁证，必将把CCP-PLA钉死在人类历史的耻辱柱上！
+
+有理由相信塞林博士在引领COVID-19病毒溯源过程中，许多情报信息是来自新中国联邦爆料革命，尤其是来自文贵先生和闫博士等的第一手情报信息甚至实锤证据，因此塞林博士内心无法掩盖对新中国联邦的热爱和尊重，毫不掩饰地贴出了我们新中国联邦的国旗，甚至将二战期间中美两军亲密合作缔结两国人民坚定盟友的3位美军将领Joseph Stilwell, Claire Chennault, Jimmy Doolittle，以及穿军装的塞林博士自己的照片一起贴在新中国联邦的国旗下，这意味深长而重大：这4位美军军官将加入新中国联邦的护旗手队伍，发扬中美两军精诚合作、并肩作战的历史传统，不畏艰难困苦，勇变不可能为可能，誓死在COVID-19超限生物战中找到真相，消灭邪恶至极的CCP！
+
+校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++2

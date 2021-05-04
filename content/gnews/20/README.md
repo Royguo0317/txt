@@ -1,60 +1,110 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙内404】五四运动中的反基督教活动
-` Hezekiah` [轉載自GNews](https://gnews.org/zh-hans/1171110/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（十四）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1171044/)
 
-*（以下内容由发布者个人引用自互联网，以供读者自行品读思考，其中观点不代表G-News平台意见。）*
+作者：纽约香草山信息部 6zero4
 
-**作者：网络不详**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04110420/404-2021-05-04-May4-Wiki-coverphoto.jpg)Wiki
-有关五四运动的历史，不需要再说，探究五四运动之中产生的反基督教活动。自从基督教传入中国以来，反对的声音和行动一直不断，义和团运动已经使反基督教活动到达了一个顶峰， 由于相貌、语言、文化的巨大差异，造成封闭的中国社会对基督教的极大不信任和恐慌，但有意思的是，作为愚昧的社会底层人士，他们反对基督教还情有可原，可是作为眼界开阔的知识分子，却也有更多的人加入了反基督教活动中，其中不乏李大钊、陈独秀、蔡元培等大腕。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04110922/404-2021-05-04-May4-ChenDuxiu-1.jpeg)陈独秀（图片来自网络）
 
-义和团之乱结束后，反对基督教的活动进入一个比较温和的时期，之后的孙中山、宋教仁都是基督徒，基督教青年会、中国内地会等发展很快，国语的和合本圣经1919年翻译出版，世界基督教学生同盟第11次大会于1922年4月4日在北京举行。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04112149/404-2021-05-04-May4-YiHeTuan-1.jpeg)义和团（图片来自网络）
+5月2日塞林博士的8连推：
 
-按照正常的理解，作为新文化运动的发起人，陈独秀李大钊等人应该对基督教持有宽容的接纳态度才对，但事实上他们却一直对基督教持有批评态度。
+第1推，转发“Zion a Deplorable老百姓”战友响应塞林博士征集CCP病毒信息的推文：夏咸柱在PLA-AMMS获得的专利表明他参与了流感病毒的功能获得研究（源于Anna的挖掘），并贴上该专利的网页截图及夏咸柱的照片。重磅，显然PLA的核心兽医生物战小组进行了生物武器研究，COVID-19病毒探源的“Zion a Deplorable老百姓”和Anna战友合作发现了铁的证据，PLA将其伪装成疫苗研究，并正在制造耐热病毒，这是持久性生物武器的关键目标。
 
-1919年春 ，中国在巴黎和会上的外交失败 ，激化了中国与列强的民族矛盾 ，爆发了汹涌澎湃的五四爱国运动。五四运动和后来的五卅惨案、六二三惨案把中国人民的反帝爱国斗争推向一浪又一浪的高潮。由于基督教是从西方传来 ，并且它在中国的传播本身带有不平等条约的背景 ，因而“城门失火 ，殃及池鱼” ，基督教在中国受到广泛非议和冲击就是很自然的了。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04110442/404-2021-05-04-May4-ShaoNianZhongGuoXueHui.jpeg)少年中国学会（图片来自网络）
-五四之后共产国际带领中国共产党发起了有组织的非基督教运动，得到青年和知识分子的热烈回应。时任共产国际在华工作全权代表的俄国人利金，拟定了反对基督教运动之计划。一些青年学生在上海社会主义青年团（中国共产主义青年团前身）的倡议和领导下，于1922年3月4日成立非基督教学生同盟，设立章程，规定同盟以反对基督教为宗旨，并于3月9日在社会主义青年团机关报《先驱》第四期发表特刊，发布《非基督教学生同盟宣言》及其通电，号召全国学生，起来反对将于4月4日召开的世界基督教学生同盟大会。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04110505/404-2021-05-04-May4-magzines.png)图片来自网络
 
-由五四运动所激发的中国青年学生反对基督教的情绪借着反对这次世界基督教大会爆发出来。开会之前 ，1922年3月9日 ，发表了《非基督教学生同盟宣言》 ，该宣言揭露基督教曾制造了许多历史上的罪恶 ，并还在继续帮助资本主义制造新的罪恶；宣言认定“资本主义社会是不合理的 ，非人道的” ，因而基督教是“助桀为虐”的恶魔。此后又再次发表非基督教同盟宣言和两个通电。第二次宣言中有一著名的极端口号：“有宗教可无人类 ，有人类应无宗教 ，宗教与人类不能两立。”这两次宣言和两个通电发出后 ，引起全国学生界的响应。
+> Huge. Clearly bioweapons research by PLA's core veterinary biowarfare group. [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detectives [@ZionaEmanuel](https://twitter.com/ZionaEmanuel?ref_src=twsrc%5Etfw) & [@2020Gladiator](https://twitter.com/2020Gladiator?ref_src=twsrc%5Etfw) team up to uncover damning evidence. Disguising it as vaccine research, the PLA is making heat-resistant viruses, a key goal for persistent bioweapons [https://t.co/o5uqNluRnW](https://t.co/o5uqNluRnW)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388715782415261698?ref_src=twsrc%5Etfw)
 
-此后 ，上海《民国日报》专辟非基督教特刊 ，广州《民国日报》也开辟“反基周特刊” ，以此将反基督教运动推向全国。北京、上海、河南、四川、湖南、安徽、江西、武汉、宁波等地都有非基督教或反文化侵略同盟的组织。中国共产党和中国共产主义青年团在非基督教运动中起了重要的推动作用。
 
-1924年12月 ，《中国青年》曾发表文章 ，提议12月24日至26日三天 ，为全国一致反基督教运动的日子 ，号召全国青年积极参加。中国青年社出版了《反基督教运动》专辑 ，其中有蔡和森、恽代英、杨贤江、朱执信等批判基督教的文章 ，作为反基督教运动的宣传材料。如恽代英1925年写《打倒教会教育》一文 ，指出：百万民众 ，“正在帝国主义者派遣来的一般牧师、神父、教会教育家手中 ，受他们的蛊惑劫制。我们天天怕色彩 ，怕党派；帝国主义者已经借教堂、学校、青年会的帮助 ，在中国造成这样一个大的党派了。我们愿意永远一盘散沙地屈服于他们这种党派行动之下么？还是我们应当为反对他们而即刻组织起来？”杨贤江《反对基督教运动》一文指斥教会学校对青年学生的压迫：
-1. 专制。不许学生自由行动 ，自由思想。
-2. 恐吓。骗小学生说 ，“不信上帝 ，有魔鬼来”。
-3. 强迫。不信教的也要做礼拜 ，也要查经。
-4. 虐待。不做礼拜 ，不准请假 ，还要挨饿。
-5. 守旧。课本、教法、行政 ，都陈旧不堪。
-6. 禁止爱国。平时辱骂中国 ，不许参加爱国运动 ，此类事甚多。
-7. 妨碍个性发展。用耶教经典 ，用严厉办法 ，使学生先入为主 ，学非所用 ，完全不合科学道理。
-文章最后号召在拥护真实与自由的前提下 ，反对基督教和教会学校。
 
-与此相对的是，周作人等人提出了相反意见，他们发表了《主张信教自由宣言》，原载1922年3月31日《晨报》，宣言中说道：“我们不是任何宗教的信徒，我们不拥护任何宗教，也不赞成挑战的反对任何宗教。我们认为人们的信仰，应当有绝对的自由，不受任何人的干涉，除去法律的制裁以外，信教自由，载在约法，知识阶级的人应首先遵守，至少也不应首先破坏。我们因此对于现在非基督教非宗教同盟的运动表示反对。”
+第2推，转发“Sweet Journey”战友响应塞林博士征集CCP病毒信息的中英混合推：跟着钱的线索挖掘！挖掘与 “重大项目、973、863、十一五、十二五、国家自然科学基金、杰青”等项目有科研经费拨款的人物，这样的情况很多，找到负责“结题报告”的人，你将发现所有你需要的东西。跟着资金的线索挖掘，是“Sweet Journey”战友提供的一种可靠思路。
 
-这样一来，反基督教活动与支持基督教活动形成了对立。并且反基督教活动促进了另外一个结果：基督教本色运动的发展，这个本色运动，我们可以看做是三自爱国教会的先期活动。
 
-所谓“本色运动”是指将基督教会办成自理自养自传的中国化教会 ，或者说 ，就是基督教中国化的运动。本色运动的目的任务有两点：一是 ，教会在经济上、工作上、行政上都以中国教徒为主 ，外国教士为辅 ，其目的无非是要摆脱基督教所具有的不平等条约背景 ，以增强对中国人的吸引力。二是要发扬东方固有的文明 ，使基督教与中国文化结合。有的教会为了洗刷或弱化基督教的西洋色彩 ，在改革基督教的礼仪上做了种种实验。而一些基督教学者则更重在研究如何从思想文化上促成基督教与中国的调合。
 
-反基督教活动在政治、文化的影响下，迅速发展壮大。特别是广州和湖南两地。广州因是国民革命的中心 ，有国民党中央党部和国民政府做后盾 ，非基督教运动蓬勃发展 ，不光是共产党 ，而且国民党一些领袖人物如汪精卫、朱执信、李石曾等都对基督教持否定态度。1926年12月“反基督教活动周”几乎酿成暴力反教事件 ，幸得鲍罗廷制止 ，未造成严重后果。但福建、浙江、湖南、江苏、江西、湖北等处常有捕捉传教牧师 ，反缚戴纸帽游街等过激事件发生 ，甚至有牧师丧命、教会学校遭受破坏的事件发生。
+> Follow the money.
+> A solid lead worth pursuing offered by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@SweetJourney1](https://twitter.com/SweetJourney1?ref_src=twsrc%5Etfw) [https://t.co/5kqsQfPSTs](https://t.co/5kqsQfPSTs)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388720369033519109?ref_src=twsrc%5Etfw)
 
-正当反基督活动如火如荼的时候，伴随着大革命的失败，这场反基督的活动悄然归于平静，而基督教，伴随着国民政府的宽容态度，逐步在中国稳定发展起来。     反基督教活动是中国人民反帝国主义政治运动的产物 ，它与如何从历史上、宗教上评价基督教完全是两回事。五四的宗旨是反日，不是广义的反帝。反对帝国主义是列宁主义的重要部分，五四以后在苏联的推动下，国内左倾政治思想和民族主义思想不断发展，推动了反帝运动的发展。前述1922年3月的《非基督教同学同盟宣言》，反对基督教的理由就是因为它帮助“资本主义”“掠夺我国经济”，就是反帝的意思。
 
-当把反对基督教活动提高到了反对帝国主义的高度上以后，除了极少数的学者以外，例如周作人胡适等人，大多人都会被这一股洪流席卷。不过这也验证了一句话：清醒者是少数的。正是周作人等少数清醒者，为宗教自由保留了一丝希望，但是这个希望随着历史走向的选择而彻底破灭。
 
-**而这一句极端的：“有宗教可无人类 ，有人类应无宗教 ，宗教与人类不能两立。”在今天看来，更是一个天大的笑话。**
+第3推，转发“Citizen Journalists”战友的中文推：于志君，其博导夏咸柱典型地通过小鼠模型进行动物传代获得增强型毒株的实验，结合去年川普总统和七哥对H1N1流感的描述进行分析，并附上相关报道文章的网页截图。基于“Citizen Journalists”战友的推文，中共国的科学文献暴露了CCP的病毒功能获得研究之广度和深度，并贴上夏咸柱的照片及相关报道截图。
 
-* * *
 
-*供稿：盐与光
-编辑/发布：Hezekiah*
 
-+1
+> As [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@NFSC\_007](https://twitter.com/NFSC_007?ref_src=twsrc%5Etfw) notes in his Tweet below, the Chinese scientific literature reveals just how deep and widespread the CCP's virus "gain of function" research is.
+> 夏咸柱（Xia Xianzhu)[https://t.co/3I5N4s3LhQ](https://t.co/3I5N4s3LhQ) [pic.twitter.com/oZvcVN3VNq](https://t.co/oZvcVN3VNq)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388727914276007938?ref_src=twsrc%5Etfw)
+
+
+
+第4推，转发“Jac Sr. Returns”战友回应上面第一推的推文：与该实验室相同的地址隶属于中国农业科学院长春兽医研究所病毒研究实验室，是吉林省人畜疾病预防控制重点实验室及科技创新中心的重要组成部分。以长春为中心的PLA兽医团队及其在吉林省内的关联机构对CCP的生物战计划至关紧要。
+
+
+
+> Please note these key Tweets by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jacksrreturns](https://twitter.com/jacksrreturns?ref_src=twsrc%5Etfw)
+> The PLA veterinary group centered in Changchun and its associated institutions in Jilin Province are critical to the CCP's biowarfare program.[https://t.co/RbvpQTCU5P](https://t.co/RbvpQTCU5P)[https://t.co/jFF7M5a3zA](https://t.co/jFF7M5a3zA)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388732548939927552?ref_src=twsrc%5Etfw)
+
+
+
+第5推，转发一篇4月22日发表在bioRxiv的文章“印度Maharashtra邦第二波COVID-19疫情中SARS-CoV-2刺突突变L452R、E484Q和P681R的趋同进化”。依我之见(IMO)：CCP军事科学家将福林酶切位点人工插入COVID-19病毒，为更具传染性和致死性的印度P681R(脯氨酸转精氨酸)突变创造了条件，从而使福林酶切位点更加危险。
+
+
+
+> IMO: The artificial insertion of a furin cleavage site (FCS) into [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) by Chinese Communist Party military scientists created the conditions for a more contagious & lethal Indian P681R (proline to arginine) mutation making the FCS much more dangerous.[https://t.co/HUPTrBhsYn](https://t.co/HUPTrBhsYn)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388740244695142401?ref_src=twsrc%5Etfw)
+
+
+
+第6推， P681H(脯氨酸转组氨酸)及更危险的PD81R(脯氨酸转精氨酸)这两个突变，表明了COVID-19的福林酶切位点的人工属性，在任何自然界的近蝙蝠冠状病毒亲戚中都不存在，并贴上相关基因序列对比图片。
+
+
+
+> The two mutations, P681H (proline to histidine) and now the more dangerous Indian P681R (proline to arginine) point to the artificial nature of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) 's furin cleavage site, which does not exist in any natural close bat coronavirus relative.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/oJBxnCbsPs](https://t.co/oJBxnCbsPs)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388744397005668354?ref_src=twsrc%5Etfw)
+
+
+
+第7推，转发Anna战友的中英混合推文：卢广文，南方医科大学即第一军医大学生物工程学院教授，并贴上卢广文及其南方医科大学的照片。这是一位与中共CDC主任高福关系密切的PLA军事科学家，其本人与军方有着广泛的联系，在CCP控制下的中国，军用与民用研究是交织在一起的。（卢广文真容浮出水面）
+
+
+
+> A PLA military scientist who is closely linked to George F. Gao (Gao Fu), head of China's Centers for Disease Control (CCDC), who himself has extensive links to the military. In [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) -controlled China, military and "civilian" research are fused.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/E0FnIVlDkK](https://t.co/E0FnIVlDkK)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388748917098024960?ref_src=twsrc%5Etfw)
+
+
+
+第8推，转发AjaySachdev战友对第一推回应的推文：转发2020年7月24日路透社发表在WION上的一篇文章“在病毒剧变后，中共国与巴基斯坦达成了制造生物武器的协议”，中巴生物武器协议与当下印度疫情爆炸性蔓延之间可能的相关性需要急速得到调查，这启发于扣人心弦的间谍惊悚片“纳格里布行动”作者的分析。塞林博士完全认同中巴生物武器协议之间的关联必须被调查清楚。
+
+
+
+> Yes, the biowarfare links between Pakistan and China need to be investigated.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CovidIndia](https://twitter.com/hashtag/CovidIndia?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/7ksqYwPAH1](https://t.co/7ksqYwPAH1)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388768893041352705?ref_src=twsrc%5Etfw)
+
+
+
+“跟着钱的线索挖掘”是当下病毒溯源战场上的一把利器。夏咸柱关于流感病毒功能获得研究的专利，表明PLA的核心兽医生物战团队打着疫苗研究的幌子进行生物武器研究，并正在制造耐热病毒，这是持久性生物武器的关键目标，以铁的事实证明了当下COVID-19就是无温度和地域敏感性的生物武器。已经曝光的中共国科学文献也暴露了CCP对病毒功能获得研究的广度和深度， 尤其是以长春为中心的PLA兽医团队及其在吉林省内的关联机构对CCP生物战计划至关紧要！
+
+在任何自然界的近蝙蝠冠状病毒亲戚中都不存在的COVID-19福林酶切位点，是人工属性的确凿证据，也为更具传染性和致死性的印度P681H 和P681R两个突变创造了条件。当下犹如炼狱的印度疫情是不是倍感蹊跷？中巴生物武器协议与当下印度疫情爆炸性蔓延之间的关联性需不需要快速得到调查？
+
+校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
