@@ -1,503 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士和弗莱明博士讨论了导致 COVID-19的SARS-CoV-2病毒 的起源
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1171386/)
+## 喀秋莎新闻参考- 2021年5月3日(星期一)
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1171455/)
 
-**中文字幕：**
+俄罗斯莫斯科喀秋莎农场 土星
 
-Dr. Richard Fleming
+编辑 НастяApfel(娜斯佳)    上传 星河
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030159/covid19ccpvirus.jpg)
+一、新中国联邦新闻
 
-理查德·弗莱明博士
+1.“路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=HE893gxC0xI)、[晚间](https://www.youtube.com/watch?v=g2xDVkhBo48)）:
 
-I think it’s interesting
+Ⅰ. 5月3日，有记者询问布林肯，G7目的是联合民主国家共同对抗中共国和俄罗斯的独裁专制吗？布林肯回答说，对于俄罗斯，我们非常欢迎俄罗斯走正确的道路，美国愿意与俄合作。而对于中共国，美国的目的不是压制中国，而是要对抗任何挑战“基于规则的国际秩序”的人，这是为了世界人民的利益，也是为了中国人民的利益。
 
-我认为有趣的是
+Ⅱ. ABC新闻网独家报道，一年前，美国能源部首屈一指的生物防御研究机构，劳伦斯·利弗莫尔国家实验室的科学家对SARS-CoV-2起源进行了一项分类研究，最终得出结论，中共病毒可能起源于中共国的实验室。
 
-that the patent for furin cleavage protease enzymes
+2. 中共国正在有意试图通过与新西兰总理杰辛达·阿登的左翼政府建立更密切的关系，以期在五眼情报共享联盟内部制造分裂。
 
-弗林蛋白酶切割蛋白酶的专利
+3.  美国国务卿安东尼·布林肯在伦敦与英国外交大臣多米尼克·拉布在5月3日一起举行的简报会上表示，他反对中共国和俄罗斯违反全球秩序的行为，并承诺在两国所说的优先事项上团结一致，团结民主社会反对专制社会。
 
-is owned by the United States government
+4. 日本外相茂木敏三和美国国务卿布林肯5月3日同意在处理与中共国有关的问题时加强合作，并再次确认维护台湾海峡稳定与和平的重要性。
 
-是美国政府所拥有的
+5. 塔斯尼姆通讯社报道，伊朗道路和城市发展部长穆罕默德·埃斯拉米5月3日宣布，德黑兰签署了与中共国倡议的全球“一带一路”（BRI）基础设施项目。埃斯拉米表示，中共国制定的BRI包括“重大信息技术计划”。
 
-Dr. Yan
+6. 最近公布的中共政府内部文件显示，习近平亲自指示党内政权集中精力控制全球互联网，取代美国的影响力。
 
-闫博士
+7. 台湾军事专家4月28日表示，台武装部队应该密切关注中共国研制的新型战机，因为这将大大提高了中共国空军进行远程袭击的能力。
 
-Pardon? What’s that Sorry?
+8. G7外交部长于5月3日在伦敦开始了为期三天的会议，重点讨论如何实现印太地区的自由和开放以及遏制冠状病毒的大流行。
 
-抱歉？那是什么？
+9. 美国5月3日表示，希望朝鲜能够重返谈判以实现无核化的目标，并表示拜登总统的政府已经明确将在这个问题上开展“务实”的外交。
 
-Dr. Fleming
+10. NBA首席执行官亚当·西尔弗正在为他与中共政府的交易辩护，坚持认为联盟在某种程度上有助于给这个专制、非民主国家带来“改变””。
 
-弗莱明博士
+11. 媒体最近在去年由澳大利亚少将亚当·芬德利向澳大利亚陆军士兵提供的2020年4月秘密简报中获得的信息显示，澳大利亚当时已经意识到北京正在对澳大利亚发动“灰色地带”战争，他们必须为未来可能升级为真正冲突的局势做好准备。
 
-Patent for the furin cleavage sites is owned by the U.S.
+12. 据《华尔街日报》5月3日报道，美国资产管理公司富达投资公司已将其在中共金融科技公司蚂蚁金服集团的股票估值减半，蚂蚁金服正处在重大监管打击的中心。
 
-弗林蛋白酶裂解位点的专利归美国所有
+13．据已发表的报道，重达21吨的中共国长征5B火箭残骸在不受控制的路径上返回地球，可能会在未来几天内将碎片落入纽约或美国其他人口稠密的地区。
 
-and the federal government gets it has patent rights to it
+14. 据Politico5月3日报道，英国已经开始加强其尝试的范围和严肃性，以对抗中共国在开发关键技术的竞赛中由国家支持的对英国公司和研究机构的不断渗透。
 
-而且联邦政府获得了它的专利权
+15. 日本领先的基础设施公司NTT和九州电气将停止使用中共制造的无人机，协助政府遏制潜在安全风险。
 
-Dr. Yan
+16. 日本松下集团计划将于2022年，正式关闭位于中共国境内最后的电池厂。清算当地资产，将土地归还上海，然后转战人工及土地成本更低廉的东南亚。
 
-闫博士
+17. 根据研究，中共国的银行是与热带雨林砍伐有关的商品的第二大资助者，这使人们对中共政府成为应对气候变化的全球领导者的野心产生怀疑。由非政府组织组成的全球联盟“森林与金融”分析的数据显示，从2016年1月至2020年4月，中共机构向从事与东南亚、巴西和非洲毁林有关的商品交易的公司提供了150亿美元的贷款和承销服务。
 
-What I want to say.
+18. 根据野村在4月27日发布的报告，包括北京和内蒙古在内的中共国北半部的15个地区占去年全国债券违约数量的63.4%，高于2019年的51.5%。中共国推动减少碳排放提升了这些地区的债务违约风险。
 
-我想说的是
+19. 澳大利亚政治顾问吉姆·米德尔顿表示，中共国对全球民主国家构成了严重的挑战，因为它没有显示出从其“日益自信、有影响力和侵略性的行为”中退缩的迹象。
 
-the patent belongs to whom is important,
+二、世界新闻
 
-专利所属是很重要的
+1. 美国非营利性的数字美元项目5月3日表示，它将在未来12个月内推出五个试点项目，以测试美国中央银行数字货币的潜在用途，这是美国在这方面的首次努力。
 
-but it’s not real important things when people using it
+2. 美国国务院已经批准了两项对澳大利亚的潜在武器交易，总额为19.4亿美元，这些交易注定要为印太的重要盟友提供新的亚伯兰主战坦克和更多直升机。
 
-但是当人们使用它时，这并不是真正重要的事情
+3. 据《国家动脉》披露，美国最重要的培训教师和影响课堂课程的研究生院之一艾瑞克森学院，正与一个监督该政权共青团的中共团体建立 “长期合作关系”，并出版包括 “体现社会主义核心价值观的童谣 “和赞扬习近平和马克思的杂志。
 
-according to Chinese government thinking
+4. 5月3日，英国外交部的多米尼克·拉布和日本外长本庶佑在伦敦举行会晤后发表声明称，英国和日本同意深化贸易和安全合作。
 
-根据中共政府的想法
+5. 佛罗里达州共和党参议员马可·卢比奥在5月3日的采访中表示，不排除2024年竞选总统的可能性。
 
-that whatever you have,
-
-不管你有什么
-
-I can get it, I can steal it
-
-我你得到它，我能偷到它
-
-I mean,
-
-我的意思
-
-Dr. Fleming
-
-弗莱明博士
-
-Right
-
-是的
-
-Dr. Yan
-
-闫博士
-
-I don’t want humiliate the Chinese scientists
-
-我不想羞辱中国科学家
-
-I’m sure many Chinese scientists like people working with me,
-
-我确定许多的中国的科学家, 像与我一起工作的人
-
-they are honest, we don’t do such things.
-
-他们是诚实的，他们不会做此类事情
-
-But there are always some people
-
-但是总有一些人
-
-When Chinese government using money, big titles
-
-当中共政府用金钱、大头衔
-
-and other things to attract them
-
-和利用其他一些东西吸引他们时
-
-They will do this and this is a something kind of a open secret
-
-他们会做这个，并且这是一个某种的公开的秘密
-
-in the Chinese scientific world
-
-在中共的科学界
-
-So these things when you as guide (25:06)
-
-所以这些事情，当你被指引
-
-then search Chinese scientists bring it back
-
-然后去寻找华裔的科学家们把它带回来
-
-and all even some US scientists
-
-而且甚至一些美国的科学家
-
-and other country’s scientists bring these techniques to China .
-
-和其他国家的科学家将这些技术带到中共国
-
-This is common,
-
-这很常见
-
-Dr. Fleming
-
-弗莱明博士
-
-Right
-
-是的
-
-so base fact that people may ask whether this is designed in the U.S.
-
-因此，人们可能会问这是否是在美国设计的
-
-but what I want to emphasize is
-
-但我想强调的是
-
-the backbone of the sars-cov-2
-
-新冠的主干
-
-it came from China，PLA
-
-它来自中共国的解放军
-
-Chinese army owned, discovered
-
-中共军方拥有的，发现的，
-
-owned unique the bat coronavirus CZ45 or ZX21
-
-拥有的唯一的蝙蝠冠状病毒CZ45或ZX21
-
-And also China government is the one making the cover up
-
-并且中共国政府正在试图掩盖这个
-
-and spreading the misinformation don’t allow people to check or to do more.
-
-还散播错误信息，不允许人们去检查或做更多的事情
-
-Even cannot talk about it censor the things
-
-甚至不能谈论它，审查言论
-
-So, we can clearly say who is the one making
-
-所以，我能清楚的说谁是那个制造者
-
-Dr. Fleming
-
-弗莱明博士
-
-Perfect.
-
-太棒了
-
-Karladine
-
-卡拉丁
-
-So the bottom line is this
-
-所以归根到底
-
-I’m just going to ask to make it very clear
-
-我只想问得更清楚一点
-
-For those who are going to be listening to this
-
-对那些要听这个的人
-
-Then this virus that we’re dealing with right now
-
-就是我们现在正在面对处理的病毒
-
-is something that does not happen in natural
-
-是那些不会发生在自然界的
-
-And then it appears that this was a bio engineered effort
-
-而且看起来这是生物工程的成果
-
-And it was an international effort,
-
-并且这是一项国际化的努力
-
-not just necessarily one or two
-
-不只是一两个
-
-But it was probably from this country and UK is
-
-但这可能是来自这个国家和英国是
-
-as Dr. Fleming was saying
-
-就如弗莱明博士所说的
-
-and many others, is, am I correct in saying that?
-
-和其他许多的，是，我说的对吗？
-
-Dr. Yan
-
-闫博士
-
-I think, from the de Darling to equip （26:47）
-
-我认为，依据科学事实来看
-
-Of course, this is a project
-
-当然，这是一个计划
-
-Directed plan by the Chinese Communist Party government,
-
-由中国共产党政府指导的计划
-
-and the big, biggest role behind is a Chinese military medical academic,
-
-而最大，最大的角色是中国军事医学学者
-
-we can see here shadow behind those work
-
-我们可以在这里看到这些工作背后的阴影
-
-And also, they are a lot of civil labs get involved,
-
-并且，他们有许多的民用实验室的参与
-
-like the WIV, and even
-
-就像武毒所，而且甚至
-
-there are many important experience from my previous lab,
-
-我以前的实验室有很多重要的经验
-
-the University of Hong Kong — the WHO lab
-
-香港大学—世界卫生组织实验室
-
-and beside these things,
-
-而且除了这些东西
-
-they are a lot of international scientists donated inside
-
-他们是很多国际科学家捐赠的
-
-But these international scientists,
-
-但是这些国际科学家们
-
-they may not know the real thing to get involved
-
-他们可能不知道他们真正参与其中的事情
-
-because the Chinese communist Party.
-
-因为中国共产党
-
-They won’t trust anyone,
-
-他们不信任任何人
-
-especially when this is a foreigner from foreign country,
-
-特别是当这个外国人是来自外国
-
-which is not that easy to be controlled
-
-的科学家不是那么容易控制的
-
-but they know how to use like money，or in a scientific world,
-
-但是他们知道如何利用金钱, 或在科学界
-
-your paper, use promotion opportunities,
-
-你的论文，利用晋升机会
-
-all these things to influence and then control that.
-
-所有这些东西都会影响然后控制它
-
-And also, the money, as we discussed before from different countries taxpayers.
-
-而且，正如我们之前讨论的，研究资金来自不同国家的纳税人
-
-Yes go into China because they feel China is providing some environment,
-
-是的，进入中共国是因为他们觉得中共国正在提供一些良好的科研环境，
-
-to give them good outcome,
-
-得到好的科研结果
-
-but actually, this money they could use for this kind of bad purpose,
-
-但实际上，这笔钱他们可以用于这种不良目的，
-
-and also somehow they managed to get word out of the international surveillance .
-
-而且他们设法以某种方式躲避国际的监视
-
-And meanwhile, some medical journals
-
-同时，一些医学期刊
-
-like Cell, Nature, Science, Lancet, New England Journal
-
-像细胞，自然、科学、柳叶刀、新英格兰杂志
-
-they all get very well collaboration with Chinese Communist Party
-
-他们都和中国共产党有很好的合作
-
-because China government gave a lot of money to help them develop
-
-因为中共国政府捐了很多钱来帮助他们发展
-
-and also there are a lot of people who can’t get good.
-
-xchange of maybe other part time chance in China
-
-你知道作为交换可能在中共国得到兼职工作
-
-So these journals also help Chinese Communist Party in powering up
-
-因此，这些期刊还帮助中国共产党加强
-
-and also spreading misinformation and doing the censorship
-
-并散布错误信息并进行审查的能力
-
-So this is a the long term after the case
-
-所以这是一个长期的
-
-that kind of long term strategy to in Chinese Communist Party
-
-中国共产党的那种长期战略
-
-And during this time they did make a big international,
-
-在这段时间里，他们确实建立了庞大的国际的
-
-I mean huge international network involving the important scientists
-
-我的意思是庞大的国际网络涉及重要的科学家
-
-important journal， important organizations
-
-重要的期刊，重要的组织
-
-like WHO and even NIH
-
-像世卫组织，甚至美国国立卫生研究院
-
-And all these even media together
-
-与所有这些甚至媒体一起
-
-That’s why when it happened
-
-这就是为什么当它发生的时候
-
-You know people, most of people,
-
-你知道，人们，大多数的人
-
-even the scientist fall into their pieces from nature
-
-甚至有些科学家也陷入了他们的来自大自然的（说法）
-
-Or this is something we cannot treat at
-
-或这是我们无法解决的
-
-how we would forward a novel vaccine,
-
-我们将如何开发新型疫苗
-
-all these things actually are made up
-
-所有这些东西实际上都是捏造的
-
-to help Chinese government achieve their evil goal.
-
-帮助中国政府实现其邪恶目标。
-
-Karladine
-
-卡拉丁
-
-Well, I had been told that the editors of many of these journals received quite a bit of mon-ey
-
-好，有人告诉我，其中许多期刊的编辑都收到了很多钱
-
-And there’s so many exchanged for articles that certainly not only China
-
-并且交换的文章太多了，不仅限于中共国
-
-But the big pharmaceuticals, also,
-
-但是大的制药公司，并且
-
-are trying to slant that information so
-
-正在尝试倾斜该信息，
-
-when I was, I’m I’m older so
-
-当我是，我现在老了，所以
-
-when I went to medical school
-
-当我上医学院时
-
-when I after got out, you know,
-
-当我毕业后，你知道
-
-the New England Journal of Medicine and so on
-
-新英格兰医学杂志等等
-
-was kind of the mainstay of us.
-
-是我们了解最新消息
-
-Knowing what was up to date.
-
-的主要来源
-
-So are you saying that these journals are not really reliable for true.
-
-那么，你是说这些期刊不是真的可靠吗？
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接： [https://rumble.com/vfy3xf-lethal-deception.html](https://rumble.com/vfy3xf-lethal-deception.html)
-
-英听校： 康州盘古农场 – Layka
-
-翻译： 康州盘古农场 – Layka
-
-翻译终校：康州盘古农场 – Mike Li
-
-字幕+视频制作：康州盘古农场-天涯行
-
-审片：康州盘古农场- 银龙
-
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+6. 美国国务院4月29日表示，俄罗斯的新闻自由受到越来越大的威胁，因为当局用限制性的“外国代理人”标签和罚款打压RFE/RL（自由欧洲电台/自由电台）和其他媒体组织。
 
 0

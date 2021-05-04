@@ -1,60 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】继阿里巴巴之后，腾讯、美团被反垄断巨额罚款
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1170246/)
+## 【热点播报】60多个美国体育场所引入疫苗护照
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1171710/)
 
-作者：纽约香草山写作组    静水流深
+作者：纽约香草山农场写作组  四季
 
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 
 
-2020年12月24日，中（共）国国家市场监管总局发布最新消息，“根据举报，依法对阿里巴巴集团控股有限公司实施‘二选一’等涉嫌垄断行为立案调查”。2021年4月10日，市监局对阿里巴巴实施“二选一”垄断行为罚款182.28亿元人民币。中共对阿里巴巴的罚款开启了该国首个重大反垄断行动，以阻止一家科技巨头控制中共国国内经济的局面，在两周后，中国共产党刚刚发动了下一个重大反垄断调查。
+零对冲5月4日报道，美国60多个体育场馆和其他场所正在为夏天部署疫苗护照（或通行证或证书），以使经济“恢复正常”。
 
-4月26日，国家市场监管总局网站发布消息：近日，市场监管总局根据举报，依法对美团实施“二选一”等涉嫌垄断行为立案调查。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04162840/0-2021-05-03_06-38-06-1.png)图片来源：[ZeroHedge](https://www.zerohedge.com/covid-19/vaccine-passports-coming-sports-venues)
 
-2018年至2020年三年间，美团的收入分别为652亿元、975亿元及1148亿元。如果美团“二选一”等垄断行为被判定成立，美团须交罚金的金额可能在6.5亿（652亿元*1%）至 115亿元（1148亿元*10%）之间。
+美国职业棒球大联盟的旧金山巨人队和纽约大都会队是第一批要求球迷出示疫苗接种证明或通过一个名为Clear的应用程序验证其COVID-19近期阴性测试的一些球队中的一员。这些球队将接受医疗文件作为证明，但他们鼓励所有体育迷下载Clear应用程序以获得便利。
 
-腾讯作为中共国互联网巨头，在该领域扼杀创新，形成超级垄断控制，更是通过微信垄断社交通讯，配合中共控制言论。
+Clear已通过将所有旅行文件固定在一个应用程序中，简化了旅客经由机场旅行的过程。现在，Clear正在机场以外的60多个美国体育场馆和其他场所应用。截至4月，Clear约有14.2万次下载。
 
-4月29日新闻报道：中（共）国将在反垄断调查中向腾讯开出巨额罚单。腾讯因反竞争行为以及在反垄断审查中不当报告过去的收购和投资而面临处罚。消息说，腾讯正面临来自中（共）国当局至少15.4亿美元的罚款。
+随着疫苗护照的使用从机场向体育场馆滚滚而来，人们对该应用程序的潜在范围和影响的担忧正在增加。隐私组织电子前沿基金会担心Clear会持有用户的敏感医疗数据，并将其转化为消费者追踪器。但Clear表示，用户可以控制他们的健康记录。
 
-目前正值相关部门寻求控制中（共）国的互联网巨头之际。一方面，这说明中共的财政紧张。另一方面，习近平加速“国有化”这些互联网巨头的意图非常明显，实施中共计划多年的“极权+科技控制”的统治模式。
+目前，美国的几个州已经表现出反对疫苗护照的决心。其中包括目前的德克萨斯州、田纳西州、佛罗里达州、密西西比州。我们猜想还会有更多的州跟进。
 
-（本文仅代表作者观点）
+中共病毒的灾难历经一年多的时间都没有被追究病毒的真相，反而政府却企图通过集权主义控制人们最基本的日常生活。难道以后所有的公共场所都将需要护照了吗？
 
-参考来源：
+原文链接：
 
-1、[反垄断第二枪，目标瞄准美团](https://www.ithome.com/0/548/568.htm)
-2、[反垄断利剑指向美团：罚款最高或至115亿元](https://www.ithome.com/0/548/605.htm)
-3、[中国反垄断剑指腾讯 传巨额罚单仍需中央高层首肯](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210429-%E4%B8%AD%E5%9B%BD%E5%8F%8D%E5%9E%84%E6%96%AD%E5%89%91%E6%8C%87%E8%85%BE%E8%AE%AF-%E4%BC%A0%E5%B7%A8%E9%A2%9D%E7%BD%9A%E5%8D%95%E4%BB%8D%E9%9C%80%E4%B8%AD%E5%A4%AE%E9%AB%98%E5%B1%82%E9%A6%96%E8%82%AF)
-4、[美团被“反垄断”调查](https://gnews.org/zh-hans/1147005/)
-5、[【热点播报】中共市监局对美团立案调查，腾讯还会远吗？](https://gnews.org/zh-hans/1141275/)
+[Vaccine Passports Are Coming To Sports Venues | ZeroHedge](https://www.zerohedge.com/covid-19/vaccine-passports-coming-sports-venues)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
 
-编辑/校对/发稿：369文驹
+
+编辑/校对/发稿：小鹿
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
-
-
-
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 
 

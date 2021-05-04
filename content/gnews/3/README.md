@@ -1,53 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】60多个美国体育场所引入疫苗护照
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1171710/)
+## 朱利安尼正义凛然，美主流媒体自我打脸
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1171816/)
 
-作者：纽约香草山农场写作组  四季
+#### 译评：Kal  | 责编：沙拉猫
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04171447/Capture-2.jpg)图片来源： Salon.com
+据美国《国会山报》（The Hill）5月1日报道，《纽约时报》（The New York Times）、《华盛顿邮报》（The Washington Post）和NBC新闻撤回了关于美国联邦调查局（FBI）与川普私人律师鲁迪·朱利安尼（Rudy Giuliani） 就有关俄罗斯问题进行沟通的报道。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+4月28日，FBI以调查朱利安尼的乌克兰交易为由，突击搜查了朱利安尼在纽约的公寓和办公室，并没收了一些电子设备。第二天的周四，朱利安尼先生告诉塔克·卡尔森（Tucker Carlson），FBI的突袭行动“没有正当理由”，并否认自己有任何非法行为。
 
+《华盛顿邮报》上周四率先发表了有关朱利安尼被FBI警告的报道，FBI称朱利安尼是去年俄罗斯对美影响活动的目标，美国新闻网(OANN)收到了类似的警告。戏剧性的是，《华盛顿邮报》在两天后的周六发布了一份更正声明，称已经删除了有关朱利安尼和OANN收到此类警告的说法。
 
+据报道，《纽约时报》同样报道了FBI与朱利安尼的联系，称解雇前美国驻乌克兰大使玛丽·约凡诺维奇（Marie Yovanovitch）是调查的核心。另外NBC也报道称朱利安尼在2019年收到了一份关于俄罗斯影响活动的防御简报，但随后在周六下午更正称FBI只准备了一个通报会。由于担心这会对朱利安尼的调查复杂化，所以没有进行通报。
 
-零对冲5月4日报道，美国60多个体育场馆和其他场所正在为夏天部署疫苗护照（或通行证或证书），以使经济“恢复正常”。
+* * *
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04162840/0-2021-05-03_06-38-06-1.png)图片来源：[ZeroHedge](https://www.zerohedge.com/covid-19/vaccine-passports-coming-sports-venues)
+评：朱利安尼先生是最早曝光亨特·拜登丑闻的人，通过亨特丢失硬盘曝光信息，揭露亨特甚至拜登家族与中共的政治经济联系，拜登家族是名副其实的“中共啦啦队“。同时，朱利安尼先生作为川普总统的私人律师，协助解决构陷川普总统的“通俄门”调查。此次FBI调查朱利安尼很有可能是拜登的报复行动。
 
-美国职业棒球大联盟的旧金山巨人队和纽约大都会队是第一批要求球迷出示疫苗接种证明或通过一个名为Clear的应用程序验证其COVID-19近期阴性测试的一些球队中的一员。这些球队将接受医疗文件作为证明，但他们鼓励所有体育迷下载Clear应用程序以获得便利。
+文贵先生在4月30日盖特上的分析到， “朱利安尼，打的绝对不是朱利安尼的案子，是美国真正的海外代理案的乌克兰，乌克兰！”。川普总统执政时期，调查了拜登家族涉及乌克兰能源公司Burisma Holdings的腐败案，朱利安尼深涉其中。FBI搜查令是基于怀疑朱利安尼在代表乌克兰进行游说时违反了美国《外国代理人登记法》（FARA）。拜登此次行动更可能意在为下一次大选做准备。
 
-Clear已通过将所有旅行文件固定在一个应用程序中，简化了旅客经由机场旅行的过程。现在，Clear正在机场以外的60多个美国体育场馆和其他场所应用。截至4月，Clear约有14.2万次下载。
+与川普阵营的大选对决，需要互有攻防，提前布局大选辩论“必考题”显然是一个“合乎情理”政治手段。据朱利安尼透露的一个细节是，此次突袭其寓所的行动中，FBI特工拿走了8台他的电子设备和两台其他人的设备，但特工们却没拿走亨特·拜登的三个硬盘，这似乎说明朱利安尼对随时的突袭搜查行动早有准备。朱利安尼先生是“爆料革命”铁杆灭共战友。任何法律缠诉和政治构陷都会使其拿出“本能”进行反抗，让灭共阵营力量更加强大。
 
-随着疫苗护照的使用从机场向体育场馆滚滚而来，人们对该应用程序的潜在范围和影响的担忧正在增加。隐私组织电子前沿基金会担心Clear会持有用户的敏感医疗数据，并将其转化为消费者追踪器。但Clear表示，用户可以控制他们的健康记录。
-
-目前，美国的几个州已经表现出反对疫苗护照的决心。其中包括目前的德克萨斯州、田纳西州、佛罗里达州、密西西比州。我们猜想还会有更多的州跟进。
-
-中共病毒的灾难历经一年多的时间都没有被追究病毒的真相，反而政府却企图通过集权主义控制人们最基本的日常生活。难道以后所有的公共场所都将需要护照了吗？
-
-原文链接：
-
-[Vaccine Passports Are Coming To Sports Venues | ZeroHedge](https://www.zerohedge.com/covid-19/vaccine-passports-coming-sports-venues)
-
-
-
-编辑/校对/发稿：小鹿
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
-
-
+&gt;&gt;原报道链接&gt;&gt;[New York Times, WaPo, NBC retract reports about Giuliani’s contact with FBI](https://thehill.com/homenews/media/551349-new-york-times-wapo-nbc-retract-reports-about-giulianis-contact-with-fbi)
 
 0

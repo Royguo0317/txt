@@ -1,194 +1,92 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 谁是闫丽梦博士，冠状病毒真相的唯一爆料人？Wer ist Dr.Li-Meng Yan, die einzige Whistleblowerin der Coronaviren?
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1171262/)
+## 郭爆料串珠（240-1/2）哪怕发生十万个“六四”，共产党都要始终保持专政高压
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1171290/)
 
-![](https://lh3.googleusercontent.com/GN2sJNx1dmlu_BPNDNokfv8UkXx0qO5O0dPzW-rlDU3mLEfdJNC8WaWjaBlR497_9nx_yCe9g8Z6tPKVDGippeicLggOubilX-T0dI8JlbgL8ZRvICl04OxJa4OEQW_8uQ)![](https://lh4.googleusercontent.com/tPVj7Rm9QHmW0yDO24DT8c0MMJaapCkO30q352cCo0Wv9hG3mmZ73pyIvC74Y7QPpjZbBpvdt8kXWg5pkmFIPMomPj8WcJNUipOCCZOH83-wE7NbjrSFMm1767Z1AR8ZaA)
-Ich kann die einzige sein, die einzige Whistleblowerin der Welt die Tatsache der Coronaviren sagen kann！——Dr. Li-Meng Yan
+**简述：从八九六四我就最大的一个教训，就是当时八九六四太多人有幻想症了！幻想到了一种，上上街就能把共产党给灭了。怎么可能？最后被共产党给弄那么惨、杀那么多人。八九六四从今天看，绝对不可能成功，绝对是个巨大的牺牲。不但牺牲那么多人没让共产党去想一想给中国人民主，他连想都不愿意想。天真、幻想、无知，这比愚蠢还可怕！——郭文贵2021年1月17日
+周永康在最火的时候有一段对话，可能大家在网上你们认真地搜能搜到是跟谁的对话，这也是他政治犯罪的证据之一啊。后来提起了，没有人敢，那时他说啥没人敢动他。说共产党下一个不管选哪个书记必须选出来一个能当皇帝的人，不管选谁都是要对付美帝国主义、都要和美国人较量。中国现在跟世界上这八大强国也好、六七大强国也好，现在是刚刚人家这张桌子上七个人在吃饭，中国人刚刚想可能平等地上这个桌子，要么上去，要么就万劫不复被打回原形，他们就会灭了共产党。如何办呢？ 就是中国人一旦是没有了共产党，中国人真的会跟随美国走向西方的生活方式和政治制度，中国人是不会容忍共产党的，中国人会把共产党的老账算清楚、挖祖坟。如何让共产党在中国继续地生存下去，我们必须有超限的武器和超限的战争准备，跟迟浩田说的一样的话。迟浩田这是我们经常一起喝酒，这话他是挂在嘴边的。你们觉得很稀罕，我听得多了。这是他很认真的，周永康，要在全世界无处不在是我们派出的人和到处有我们的钱。一旦需要即使毁掉这个世界也在所不惜，也得维持共产党在中国的执政。不论发生任何情况下，在中国维持共产党的专政，原话，记住，专政是不能妥协的。不要说一个六四、一百个、一万个、十万个六四、天天发生六四的事情，共产党都要在中国始终保持专政高压。中国在未来的几百年上千年，这是他原话，说中国共产党都要明白，中国人民人口素质低下，只能是优化人口统治下的中国社会。记住啊，记住啊，在优化人口统治下的中国社会。中国那些什么狗屁老师啊、文人知识分子一帮流氓从来没有研究过共产党，从来不知道什么，听他们胡说八道，这是郭文贵亲耳听到的。什么叫优化知道吗战友们，就是把人分上中下等，就是今天你听到你看到的疫苗政治、疫苗经济、疫苗阶级！和中国的高中低等城市优化。他们认为你只有像很多人从家里边爹娘穷也好爬出来，就他们尊奉的精子优化论，说当人性交之后上百万几百万上千万的精子经过最后一个怀上了，那些全被干掉了，他认为这就是精化。我亲自见过一个少校和一个少将打起来了，就因为在讨论这个问题，在八大处北京军区打起来了，因为他们骨子里相信，就是被淘汰的你就是应该被淘汰的，我站上来了我就是优化人种了。被优化后的人口，你记住周永康原话——被优化后的人口，他认为只要是共产党我把你提拔上来到了上面你就被优化了，剩下的那些全都是傻叉就该被统治。不要忘了他说过——即使一天一个天安门、一天十个天安门，就是杀掠也不能让出共产党的专政。你觉得共产党在全世界人类面前，它有胆怯、它有羞耻、它有道义、它有人性、它有法律、它有境界，那你真的是有病了，你就真的是低端人口了，你就太low了。——郭文贵2021年3月10日**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04124253/image0-12.jpg)
+封面图文：即使一天十个天安门，就是杀掠也不能让出共产党的专政。你觉得共产党在全世界人类面前，它有胆怯、它有羞耻、它有道义、它有人性、它有法律、它有境界，那你真的是有病了!郭文贵21年3月10日
 
-6 Aug.2020 in American Thought Leaders Interview [https://youtu.be/Vl4hwjq7cAo](https://youtu.be/Vl4hwjq7cAo)
+2017年5月17日
+大家查查窗户，查查产权证，把北京民生银行西城区的所有帐打开，西城区分行，西城区可是壹个腐败的老窝，现在要出中央领导，要掩盖继续的腐败。所有的推友们，妳们绝对不知道盗国贼，我说的盗墓贼的意义，盗国贼是要控制这个国家未来20年，这些盗国贼们只有侥幸、只有狂妄，不可能有半点儿善良，不会有半点人性，绝不会以为妳老百姓能做点啥，在他们的眼里，在酒桌上壹说话，这农民就是猪狗，农村出来的，就算妳考上什么大学，不管哪来的，妳就是壹个农村来的，就是个草根，在北京城还有壹批，像傅政华说北京话的，那妳就是外地人、就是傻叉。这种严重的血统论、无知的血统论、傲慢的权力论，深植于这些长安街、这些绑架了国家机器、盗取了国家机器的人。
 
-2020年1月19日，路德社从闫博士获得信息并警告人们，病毒会人传人，强变异，大爆发！因此，闫博士拯救了人类世界，是人类的英雄！所有这些都已经被时间证明!
+推友们都在说这个，说那个，妳们去做，给文贵递子弹，我再次说，给文贵递子弹，有10000个文贵也帮不了妳们，妳们的妻子和女儿，都会像郭文贵下场壹样，她们的嶽庆芝和郭美的爸爸和她的丈夫，还是壹个这么牛的人，溷到今天，妳们能像郭文贵这本事吗？有这个勇气吗?有这个智慧吗?有这些智慧勇气比郭文贵多的多了，那妳们敢嘛？给文贵递子弹，妳给妳自己递子弹吧！不要给文贵递，我不需要子弹，我们要站起来，要敢于说不，否则妳们的妻子、儿女、姐妹也会像我的妻子、我的女儿的这个下场，像我弟弟的下场，开了枪不让妳治病，看着妳死，医院看着妳死。
 
-Am 19. Januar 2020 erhielt die Lude Nachrichtenagentur Informationen von Dr. Yan und warnte die Menschen, dass sich das Virus von Person zu Person ausbreiten, stark mutieren und ausbrechen wird! Deshalb hat Dr. Yan die menschliche Welt gerettet und ist ein Held der Menschheit! All dies hat sich durch die Zeit bewährt!
-![](https://lh4.googleusercontent.com/kqd4ZcduTWtvAkoZt4kJXt1L0pIhQy6Zmx9p1u4YRkCZXD0AyXJf5BUSH_HShU9Z-sPbyJrlhs33Gdf1qxbKTBa0PWDShlA4X4bYOoaC4OjCdPmBkM0GZ1MktGWBmpOasQ)![](https://lh3.googleusercontent.com/8SgDDpkw19Rwg78gQRHLvT0knahFBXK4ERz2O2YA7T1-SsPSf85vJGpbsdJcr_qVdom2T6cck0PVBYDSHDxAnL_zlIuN6YIUyzW3OFHFXI-TzLwUQY4H6M4mgw0JtN0TVw)![](https://lh5.googleusercontent.com/WVuprqsY__ylvsI7zAKy8gMaUDt1BBRLsCd-AZL6gr1dVaL9jijyFuVaz7GHmnv_iwNx37Cu9TydK3-XyJeQgoM5332Kcu6Q1Kq2f_zKhT6DMKrX7BeCHajQEj1zgwrfeg)![](https://lh3.googleusercontent.com/ym2eFtir3eNqftpKyO_mLNBeDth338kiaL87FNK2HKRX1oULBTybWZ3vKLi6VDOqb3I6nb4LJfwZRfZ0RT7YBAf2rU3zy36VoLp-zXso6ESvJtaav-YR5fN8UUEtQsq6EA)![](https://lh3.googleusercontent.com/RtTeMKN-nntaW0nolKvoqQygQfv804h40OHTTTIU1SnBKag7rsmIX6BntGezRPNzHWYbFLrWHQBTucH-qd2LEyCfVZXKUH4dCoR7kRzzAl8KEZT147RqF8DPplPwp1mPlQ)![](https://lh3.googleusercontent.com/Fg4568aB7jiOPaiWEanhVd9n__kSbxRusDn_OCTBGA5OItam3IARfVRdUqe4GLB4gLqZLgmjmpYkaYrLTPGfeGRGha_Fz8eVhIrO_ZYJNKzJV9A6RjE0CPHFqud7CqoKOQ)
-I don’t trust WHO!
-![](https://lh6.googleusercontent.com/9RxDaPkV5fH6QDWx_l_8pzN8hfavprFtcE850XfHB56qiFWBjcr-07EZDfuJh9xbObuaHvjYhisjz8K5tHZj6HNSwQRQW28R-04xdifVPc2x10Sj36s9LnEN0LuO352d2w)
-Whistleblower virologist’s mother reportedly arrested by Chinese government – The virologist, Dr. Li-Meng Yan, has said that China purposefully created COVID-19.[https://justthenews.com/world/asia/virologists-mother-reportedly-arrested-chinese-government](https://justthenews.com/world/asia/virologists-mother-reportedly-arrested-chinese-government)
-![](https://lh4.googleusercontent.com/oPSyQ7-Z4EXDgE8IOWT0S1-4f1DljvK751d9xWI2GahP116dpe153-gax7LMMeOJ14JOHjbuL6wea_vVPmUekqHPsIMryLv9QtcA8CqzKm-XymVVSDOI_WGebY06R365NA)![](https://lh5.googleusercontent.com/OhtdYgrEHvcm8Bk_w5fDKbbGnJSSoIB_CIA6i25Cmnz_P7wvz4iZYkEujhg03uaIK0A8O-R-JQV_WrldHOPujFUQXTP6RMqu0Qe_OELRHANEXMqzZspnFp9_0AmpTibOvw)
-我来到美国的原因是想要传递冠状病毒的真相。
+推友们，仔细观察观察妳周围，妳的油、妳的治病、妳的银行、妳的安全、妳的荣誉、妳听到的话，都被谁控制的？妳没有壹样说的算，妳能告诉我壹样妳说的算，妳连生殖器上床妳说的都不算，妳要敢说，妳什么说的算，大家去想想，什么妳们说的算，上街警察交警随便理由、随便就可以把妳搞定、随便妳像雷洋壹样，被淫乱、被嫖娼，可以像李明壹样，开着警车傅政华去，24小时让妳消失，弄死，然后就说，在审问当中打针打死，去了看守所可以摔摔死，躲猫猫死，骗妳的钱，泛亚的事情是不是，E租宝的事情那骗妳几百亿上千亿，骗了咋地？有法院给妳做裁决，法院我们家的，我说了算，这老兵，青春献出来了，不行当地收拾妳，就像那个老兵给我说的，骑着摩托车被人踹到草堆里，壹顿胖揍，然后拿女人做威胁，这不是“以黑治国”吗？“以警治国”吗？壹个家庭受到了这样的威胁。
 
-我来自香港，就职于香港大学公共卫生学院。我的实验室是世界顶级新型冠状病毒研究机构。Der Grund, warum ich in die USA kam, war, die Wahrheit über das Coronavirus weiterzugeben。Ich komme aus Hongkong und arbeitete in der School of Public Health der Universität Hongkong. Mein Labor ist die weltweit führende Forschungseinrichtung für neue Coronaviren.
+2018年10月4日
+在过去的70年，在人类居住的地球上，没有一个总统像川普总统在联合国敢那样讲话的。也没有一个美国副总统敢这样讲话。世界上也没有一个人被杀了爹杀了娘，灭了族，敢这样对待中共讲话。人类上不要说总统，副总统，杀了爹杀了娘，别强奸了老婆，强奸了孩子的人，灭了族的人也不敢对中共这样讲话。就连文化大革命，发生那么惨，死了几千万人；就连六四天安门广场事件，死了那么多人，用坦克居然碾压他的人民，血流成河，世界上没有一个国家政要敢讲这样的话的。这是全人类的悲哀，这是全人类的一个黑暗的时代。
 
-Li-Meng Yan10.7.2020
+2018年11月8日
+我说，将军，我先把你打住。我说我先纠正你一下，中国是有几千年的历史，中国文化确实是博大精深，我也感谢你说你认识的中国人和你喜欢的中国人，和对中国文化饮食服装和中国人得勤劳的这种赞美。就像我说的，共产党代表不了我们中国人，中国文化。我说你刚才还说，美国历史才两百年，共产党中国历史几千年。我说您说错了。
 
-[https://gtv.org/video/id=5f5a631fdaed5626f990ad60](https://gtv.org/video/id=5f5a631fdaed5626f990ad60)
+美国的历史两百多年，是继承了欧洲的经过了血，泪和生命换来的基督教和成熟的宗教信仰的社会，走向了民主法制和宪政的国家社会。那么是尊重自由的。我说共产党才多少年啊。共产党在人类上历史还不到一百年。才一百年，跟你美国比，他是你孙子。共产党到了中国才七十年。
 
-How did she flee from Hongkong?
+我说我们中国人当年从俄罗斯回来有个叫李立三的，我看过他很多书。李立三私下里说，这就是来自于国外的病毒。然后旁边他的女情人问他，你说这病毒是共产党吗，还是共产主义？他哈哈大笑，最终没说出来。他知道这是病毒。我说共产党在中国才七十年，跟你美国历史比他差远了。在这个人类文明的进步，在这方面跟你比，他孙子辈的。
 
-Wie sie Hongkong entkommen ist？
+你不要把共产党七十年的病毒，和外来的政权，和外来的盗国者，和我们的绑架者，和强奸了我们民族七十年的流氓盗国集团，跟我们五千年文化绑在一起。他们的阴谋，他们的坏，他们的强盗逻辑，是建立在失败的共产主义和乌托邦思想之上。他是人类的共同的公敌。他的历史就是杀人，欺骗，男盗女娼，给人类带来一个一个大灾难。他是我们人类的公敌。
 
-[https://gtv.org/video/id=5f7c46ba06847a4c650c28df](https://gtv.org/video/id=5f7c46ba06847a4c650c28df)
+这位将军说你说的有道理，他马上记下来。我说共产党只有七十年，没有五千年。共产党不代表我们中国这十四亿人，共产党是外来政权，是人类的病毒。所有共产党去的地方你看看，几乎没有宗教，或者说几乎都是灭教的。我说你看我们整个中国现在社会最大的问题是什么，不允许任何宗教和信仰的存在。
 
-7 Oct 2020   #DR\_YAN\_HNZ
+CCP共产党要把它变成一个教，我们称之为 “邪教” ，这才是危险的。我说你们看到的中国领导人，那全都是鬼的附身，魔鬼的附身，他回家以后他撕开脸上的皮，背后都是骷髅。比魔鬼还狰狞。我说你觉得我是在跟你开玩笑，我是在跟你形容。我说我不跟你开半点儿玩笑。
 
-Virologist Dr. Li-Meng Yan tells ‘Tucker Carlson Tonight’ her mother was arrested because Yan was ‘telling truth’
+你美国人看不清楚这一点，还有西方人，他不仅会盗走你们的财富，盗走你的工作，他最重要的是盗走你的信仰和盗走你的宗教。更要盗走你的未来。我说不是开玩笑。共产党说不吃你孩子，他能把孩子当肉给炖了吃了。再者他会让你孩子根本长不大，他让你的孩子会吃了孩子，和你的孩子根本就不会长成成人。这不是吓唬你的。
 
-COVID whistleblower’s mother arrested by Chinese authorities [https://twitter.com/himalayayan/status/1314306646793838594?s=21](https://twitter.com/himalayayan/status/1314306646793838594?s=21)
+我说如果共产党的共产主义社会主义到了你们西方来，要成功了，那人类就真的到了地狱了。太阳不会再升起。人类将真的没太阳，已经被黑暗遮住了。
 
-October 3 – According to Mr. Miles Guo, the CCP arrested Dr. Limeng Yan’s mother in mainland China, allegedly as a retribution on Dr. Yan, the Hong Kong virologist, Chinese Whistleblower and CCP COVID-cover-up debunker. The news was released to the public in Bannon WarRoom Ep. 419.[https://gnews.org/zh-hans/1109263/](https://gnews.org/zh-hans/1109263/)
-![](https://lh3.googleusercontent.com/_xFY2V6HWzNwkFQMH-UkgcLox9_OWsxFENmOYAPxLIVmzf4NeqIiwrrw6gQhS0nBoxFJQgENpZJNDHgHy6sSG39IpbciYCnmgrQqoqw3l9MBJktNuAOlbiEKA6b7i4vwQw)
-我随时都有被中共消失的可能，但我最最担心的是在我被消失之前能否把中共制造的摧垮世界、毁灭人类的烈性病毒真相及时地告诉全世界。更令我感到不安的是，中共病毒留给我们人类的时间已经不多了……闫丽梦
+我昨天跟其中一个朋友，日本的一位老朋友，老人家。谈到了最近中日的关系。谈到了······这很敏感，有些中日的话我不能说，不能说。我跟这位日本朋友说，我说老人家，当年跟你在长安街上，跟你坐着车，去长安俱乐部去吃饭，前边是你的女朋友。这个小女孩是中国打高尔夫的，这个女孩子。我说她帮我给你翻译啊。走到天安门那块的时候你问我，你每次走到天安门的时候你有什么感受。我说我告诉你，我过去曾经经常往毛主席像那给他敬礼。后来我读了书，我发现他太了不起了，如何如何。我还在85年结婚那一年，带我太太参观了毛主席纪念堂，还排了队。后来我到了国外，读书越来越多，我再也没给他敬礼，我再也没去过纪念堂。
 
-I may be disappeared by the CCP at any time, but what I am most worried about is whether I can tell the world the truth about the scary virus that the CCP has created to destroy the world and destroy mankind before I disappear. What makes me more disturbed is that the time left by the CCP virus for us humans is running out…
-![](https://lh5.googleusercontent.com/GKpPqPWkA03acuMkdjpbdRpyXHaX2Gnllc56PDM7vzO9At2bZ2WFSF9q93XcgXNQbltJlPg-DdPZlV4zOg-79C6G62AeQktwbjCbciFdz3rlCXGR83TnAIFhvFAtYdzhyQ)
+后来发生了八九六四，您知道我被关了两年。这个地方对我来讲就是时刻警醒我：这个地方会用坦克会用枪杀他的同胞，杀他的儿女，然后把他们全部烧掉而永不成人。而且这个地方我告诉你个事情，很多人不知道当时在地铁站的军事设施里还有所谓的国防地下工程里藏有多少的军人，这些人根本没有出来， 一旦要出来我说死的人就不是那上万了 。
 
+所以我告诉你老人家，这是一个魔鬼控制的城市。 他拍了拍我的肩膀说 这话你以后就不要乱说了 ，注意你的安全和你家人的安全 ,如果再说的话提前告诉我 ,我在日本提前准备个房子叫你别回来了,说完还笑 。那天我们吃了很多大闸蟹，他老人家一个人吃了八个，八个 大闸蟹，我的娘呀 ！你说那么大岁数了 ,还有那么年轻的女朋友 ,70多岁了还有了一个儿子。
 
-> 闫博士解释中共解放军是如何利用现代基因生物武器来制造完美犯罪，其目标就是要破坏和瘫痪敌对国家的经济活动和整个社会系统。(1/2) [pic.twitter.com/4uiiaBwqfe](https://t.co/4uiiaBwqfe)
-> — tietietie (@tietietie7) [May 1, 2021](https://twitter.com/tietietie7/status/1388486201712119820?ref_src=twsrc%5Etfw)
+我昨天跟他聊天， 他就跟我说日本怎么看待这次中日友好，他刚刚见了一个美国退休的官员和一个金融的到日本的访问团。他告诉我说，日本从来没有像现在 这么警惕中共过 ，日本从来没有像现在感觉到这个世界真的正在战争中 ，这场战争是立体的意识形态的超限战 ，他说日本从来没有像现在感觉到共产党真的是疯狂！ 是魔鬼 !他无法想象这个新疆事件是真的 ,他无法想象现在中国竟然是一切都听党的！
 
+一切都是党的 !爹亲娘亲不如党亲还在中国大肆宣传 ,到处都是这个追捧、恐惧！还有这种虚假经济 ,可以说整个香港是当年他一生的最爱 ，他每年到香港去花 3亿到5亿，我说这是八几年到九几年的，花几亿给自己的情人家人买礼物买古董， 他最爱香港 ，也投资巨大资金在中国 ，给我支持很大 。
 
+他说他现在到香港去见到每个人都恐惧 ，他见了香港很多富豪 ，一谈到中国共产党的时候他们马上就吓得摆手说：不要说不要说 ,不要谈这个话题 ,每个人都看着屋子看天花板东看看西看看 ,好像每个地方都是监听器 。他说怎么会成这个样子 ？他说现在就连香港和大陆的过去的朋友到日本来,说话都是欲言又止,战战兢兢 ！看我说着说着就出汗了,激动啊 ！
 
-闫博士揭示投毒细节: 中共用的动物模型不恰当，他们用人源小鼠，但是他们没有做仓鼠模型，所以认为释放病毒可防可控。They utilize “serial passage” on hACE2 model animals to polish the lab-engineered virus so it can better adapt to humans and more akin to a “nature originated” virus.[https://twitter.com/realliangnaduo/status/1387974049364680707?s=21](https://twitter.com/realliangnaduo/status/1387974049364680707?s=21)
-![](https://lh4.googleusercontent.com/a0DyKnwjOVyheH9H7LTedfMtOH7VFowgkkAQUZWTcHhTlgF8q1dj8WtVJnjXRmNV3Zr6kkVjTfqPTPNSuZG9JuCmBjOQyOmNAegKI5HFwklpoxu1T1nWob0lUvcC7h_kBw)
-Dr. Li-meng Yan used to work closely with Dr. Malik in top HK P3 lab. She was the eye witness, fled HK to tell the world the truth of Covid-19 . She warned about human-to-human transmission before WHO admitted it![](https://lh5.googleusercontent.com/9ghZmi-pSNCiNkfe8MImFtQWtyYQFcGk5PIoQPNT-C2-DygK5Za7-PUBFHShi9JAy2z1Ksw41y5Bx56TSQVzqRITCPejGgaoNEYV5Cd2DB7xkCiGd_pokFUMDqheWYOgqQ)
+战友们，昨晚我和他聊天聊得很兴奋很兴奋 ！老人家说：现在你那深夜，你快睡吧！你多喝点水。但我们还是很兴奋继续聊。昨天跟那么多与王岐山有接触的朋友聊完天又和他这老人家聊，他的女儿 讲流利的中文，是日本最有钱人家中讲中文讲得最好的 ，在中国呆过多年， 他女儿也以其他身份参加了这个新加坡的论坛，并私下见了很多人。
 
-Clip of my first appearance on Fox News: 13-min of the whole 4-hour interview is publicized on 10 Jul, 2020 – Don’t expect herd immunity at this moment, cos you don’t know (#COVID19) virus. It’s totally different as what you know previously.
+他女儿告诉他，说中国一定会在很快的时间内有重大的政治动荡或者重大的政治革命！ 而且告诉他说，他们老叫我：郭桑，郭桑，不是李小牧桑啊！李小牧桑现在日本可出名了 ,
 
-– The key is to understand its origin闫丽梦新中国联邦英雄科学家闫博士逃离中共魔爪后首次接受美国媒体采访的视频。（转自喜马拉雅加拿大多伦多农场精心制作短视频）[https://twitter.com/realcolidorra/status/1387078103936155653?s=21](https://twitter.com/realcolidorra/status/1387078103936155653?s=21)
-![](https://lh4.googleusercontent.com/WoiY6CaI8SPKMKfNWj2bR7UmvE4x0md4ZQW9xE-6wlaZHaC7VQgeLtHKb230KxNNSAOQ_wAz-ekFeloYsiRQKZ93MbwqA9akflX2RttV7gxQXIYwesCS87lFg6OsOB3TWg)![](https://lh4.googleusercontent.com/6aGFW-jF6zrT3QqD1HONgpg57BnpXv5x001gNhNkHYELB6VtQC_GSdStmoSO1oQe89xnPjytNDeL4lMdEg7DRWg3g1KddxREfmbxgXMsL4IJVWryeg4CcVkv3G_-xpUn1A)
-[https://gtv.org/video/id=6015be4c46c6c3519a3d04ee](https://gtv.org/video/id=6015be4c46c6c3519a3d04ee)
-![](https://lh6.googleusercontent.com/2Jo9at87xn-uvO_7Yy_bPiZfR8paNgJNrZ5QjE8sIFB6jy_PTDS4rhsHPlqBPU75N-qAu19WqoYtDEA1DyevyL3lbT1YBmOryXLQLSujCgSZDJfOyzaDAaH6Ft1ewNWPeA)
-[https://gtv.org/video/id=5fb0bd9dad3f0f61d2c0a1de](https://gtv.org/video/id=5fb0bd9dad3f0f61d2c0a1de)
-![](https://lh6.googleusercontent.com/HVtB4agXqCtWlk0fNhEx9gdI1SlzEjuVPLFmgG1JD5ug3k5eLpNu8a1II4sIN4oTsoKdTZQl21yAV-9HQr0puGYVoQ0HuvGlue1BLmRAWBuOYWqwr3KBsQpjvwUuXYLTLA)![](https://lh4.googleusercontent.com/GnjvR5GeZr9iKgNAzxOShDqEEuH4TyApczPjUGlfKy_k-sqNI9FDbiSC9SYF9AohIEwhm8RnNPdyCEx6_RC0jN0iMxitobxCoMZYONGy35581Vep5WGSyvHlBuDYHZwQaQ)
-Die Tatsache der Coronaviren-Impfstoffe:
+我说你想尽办法支持支持我们李小牧桑，李小牧桑你要支持他我会万分感激你，让我们一华人要在东京当选我将万分感激啊，他真可能要出手，李小牧桑真有可能选举上。原来他真不知道，头几次跟我说了以后，最近他明白了，在了解他。叫郭桑，他说你原来跟我们说的这些事情啊，我们也都信都有感觉，但没有像现在那么深感觉过。美国中期选举完，我们俩交流了观点，他说看到王岐山一系列的举动，看到中国现在示弱，要在G20和川普做一个交易，以及他们所了解美国人对中期选举后，他们的朋友和美国公司，他们家在那个华盛顿旁边有一个最大的房子，大家可以上网查一查，我不说名字了，是一个最大的房子，就在华盛顿的白宫旁边，是用日本的一个名字，大家一查都能查得出来，他其中的一个家族之一，在那块把那房子买了，把那房子买了以后是一个大院子，作为日本和美国交流协会的，现在在卖，快要卖了一年多了，是最大的房子之一吧，很漂亮！
 
-The truth of coronavirus vaccine:
+他说他们马上跟美国的有些人接触，他说白宫乱得一塌煳涂，乱透了！这个中期选举他认为共和党输得很惨，川普总统也输得很惨，他认为。最重要他说他了解到美国上层都很清楚，所有的媒体都被共产党CCP几乎是百分之百都通过各种方式影响了，他说共产党太厉害了，他说就是我们日本到今天，每天都惊讶得掉下巴的感觉，共产党这方面统战的力量太大了，太厉害了！他佩服得五体投地，当然了他也感到害怕，这是真实的，这是真相，这绝对是真相。
 
+2018年12月16日
+大家可以看一看，最近国内，对老兵的整个的打压特别厉害，刚刚内部下来一个文，要12月20日以前必须控制住，不允许老兵进京，上省会闹事，12月29日，必须不允许老兵进京或上各大省会闹事，然后马上要对，特别是公安，赵克志，亲自到各省开会，布置对老兵的打压任务，而且有一系列，十几条，比如说什么样的老兵必须得抓，什么样的老兵必须得弄，媒体上要同时出手，所以大家看到了媒体上，有一部分人打着老兵的名义在闹事，这是当年跟处理六四的事情是一样的，我不说你都是老兵，我说有一部分人，就把一帮带头的给抓了，然后要求建立所有老兵的档案，一个也不能放过，对家人，活动，电子监控成立了专门的部门，赵克志亲自指挥，估计到12月20日以后，也就过几天以后，对老兵的打压会全面开始，因为什么呢，多方面的了解，应该是习非常恼火的事情，在中非论坛的时候，老兵闹事，而且老兵闹事的时候提出了3个观念是他非常受不了的，说反对现在向非洲大撒钱，反对某些领导几圈，反对某些领导集权不管老兵，反对政治上贪腐，导致老兵没有钱，这话一听都是对习去的，习认为这都是江家和曾家，朱家，王岐山家在背后操作。
 
+2019年1月10日
+但是共产党就敢把天下人全当傻X，就敢录这个录像出来，告诉你她自愿去的。
 
-> [《中共病毒疫苗真相》视频短片](https://gnews.org/zh-hans/1143961/)
+我说你去看看192几年的希特勒到1942年的希特勒和1972年的希特勒，你去看看那所有的，他身边那几个搞宣传的人，他敢这么造假吗？他也不敢。
 
+我说那么中国的文化当中现在已经形成一切，为什么假假奶粉，假疫苗，假孩子的疫苗针，这是共产党在中国最大的悲哀。
 
+这位美国朋友他们都不能相信，这个人他说肯定是不自愿的，但是共产党就真的敢录这个视频，我说他敢录。他们还敢放到中央电视台去。他还敢全世界外交部说，怎么的？他自愿去。我说因为共产党这70年，玩一回赢一回，六四，没死人，六四是几个黑社会，这话都说的出来。
 
-08/11/2020 Newsmax 采访 闫博士
+然后中国GDP6.6，形式一片大好。美国到处火灾，内部一团乱。然后，我们GDP6.6，实际上是0或负1.6。
 
-WHO不希望世界知道羟氯喹有效？
+我说中国雾霾，美国人说有雾霾了，马上外交部说中国从来没有雾霾，这是西方人的一个阴谋。
 
-闫：所有科学家对羟氯喹的预防&早期治疗效果，去看看一线医生报告/ 20多年来一直都是最安全的药物
+十天后公佈我们有雾霾，但是是PM10不是PM2.5，再过10天我们是有PM2.5,但是这个原因呢是多重複杂的複杂的，我们正在治理中。
 
-药物机理和中共病毒的治疗符合
+你看看，我说你往回看，从文化大革命死人，到文化大革命是伟大正确的。到六四，六四完了中央的定性。就是西方要颠复中国共产党，然后没死人。然后到了中国雾霾，经济，GDP，跟美国签WTO，跟美国要求2008奥运会，然后叫中国40年来天天改革，天天改革，改革，继续改革。
 
-70年的老药 儿童&孕妇都能服用 还说啥呢？
+这个人类上改革骗子已经被共产党玩完了。我说培养的人民深信不疑。这是为什么有Bruno Wu，有杨澜，在中央电视台，还能活那么好。
 
-止痛药都比羟氯喹副作用大
+2019年3月5日
+文贵爆了两年料，爆完料，我说嘛，文贵爆料，热度在48小时，谈论在一星期，CCP共产党都摸透了，不管你死多少人，多大事，你的热度就是一星期。当时四川大巴车死了300多个人，我和上海的老领导通电话，我说这就不追究责任，不查清楚，老百姓能愿意吗？
 
-08/11/2020 Newsmax Interview dr. Gong
+老领导笑了笑说，文贵，六四老百姓坚持了多长时间呀，六四中国老百姓坚持多长时间？当时我的心难受死了，350个人，那李克强总理还到那裡去表演表演，又扎帐篷，又啥的。当时的高速火车死人，几天就把那个坑挖了，把人埋了，把尸体埋了，埋了之后人家有记者拍出来，他说没埋过，从来没有挖过，最后把视频亮出来，哎呀，我们是及时处理，为了便于继续通车。这就是共产党。
 
-Die WHO will nicht, dass die Welt weiß, dass Hydroxychloroquin funktioniert?
+[郭爆料串珠系列文章标题和链接汇总240 – 1](https://gnews.org/zh-hans/888831/)
 
-Alle Wissenschaftler zur Prävention von Hydroxychloroquin Frühbehandlung Wirkung, siehe die erste Linie Arzt Bericht / seit mehr als 20 Jahren ist das sicherste Medikament
+整理：德国感恩农场文迅等
+发稿：如风
+郭爆料串珠系列文章，都是从800多篇郭文贵先生直播听写文字版、盖特精选而成，有时也包含部分班农先生、路德社、闫丽梦博士直播文字，具有文献价值。由德国感恩农场文迅等按时间、主题整理。感谢战友听写！
 
-Der Mechanismus des Medikaments ist mit der Behandlung des chinesischen kommunistischen Virus vereinbar
-
-70-jährige Medizin, Kinder und Schwangere können es einnehmen.
-
-Schmerzmittel haben mehr Nebenwirkungen als Hydroxychloroquin.
-
-
-
-> 08/11/2020 Newsmax 采访 闫博士
-> 
-> ❓WHO不希望世界知道羟氯喹有效？
-> 
-> 闫：所有科学家对羟氯喹的预防&早期治疗效果，去看看一线医生报告/ 20多年来一直都是最安全的药物
-> 
-> ❣️药物机理和中共病毒的治疗符合
-> ❣️70年的老药 儿童&孕妇都能服用 还说啥呢？
-> ❣️止痛药都比羟氯喹副作用大 [pic.twitter.com/Ht6Ub9ia2F](https://t.co/Ht6Ub9ia2F)
-> — 跟隨小蚂蚁 (@mini04123) [August 12, 2020](https://twitter.com/mini04123/status/1293550692964003840?ref_src=twsrc%5Etfw)
-
-
-
-Hydroxychloroquine appears to be saving lives in India.  Mortality rate is 1/6th that in the U.S. despite inferior health care system.  HCQ in widespread use.
-
-Blood on hands of @cnn and @nyt which refuses to cover positive studies.[https://twitter.com/realpnavarro/status/1388507996779646979?s=21](https://twitter.com/realpnavarro/status/1388507996779646979?s=21)
-![](https://lh4.googleusercontent.com/ExZXr5zLhb9zPxFJOvjFlIl_87H2-dE03IkWOL8lsg9lzhsFTjpsLyb00ixuFoYZcWF5a3qE4okJIW1YB3OzMsreCkcPITn7zAQQZGNKdVDOR3JgOJcH-r0-ngPvvhQDTw)
-硫酸羟氯喹+锌预防优于任何备选疫苗 HCQ+Zink:Besser als jeder alternative Impfstoff
-
-
-
-> [硫酸羟氯喹+锌预防优于任何备选疫苗 HCQ+Zink:Besser als jeder alternative Impfstoff](https://gnews.org/zh-hans/1119967/)
-
-
-
-HCQ, HCQ,HCQ…..
-
-Bitte suchen Sie HCQ, warten Sie nicht länger.
-
-
-
-> Dr.Yan闫博士谈疫苗
-> 現在還沒有有效的疫苗是因為
-> 🔹疫苗的副作用
-> 🔹病毒快速變異
-> 🔹它是超限生化武器 [pic.twitter.com/hCtXNNXAW8](https://t.co/hCtXNNXAW8)
-> — anina xin (@AninaXin) [May 2, 2021](https://twitter.com/AninaXin/status/1388989591751905282?ref_src=twsrc%5Etfw)
-
-
-![](https://lh4.googleusercontent.com/TzgxfJBNPJULdAV4qOZ2GLzLj7Klx30RHYaa5P2XimwRHfYPT3UZm_Q2Vmm3icq7G9YiD9k1PhgB5aBGCtieImcbVzAtTNtdHHfHfxNUd_LeCqzKF5ukwNrt0aRUEmXRiA)
-
-
-> 你相信谁会决定你将来的命运。 [pic.twitter.com/C3es9tkzlN](https://t.co/C3es9tkzlN)
-> — 桃花岛主(Lucky) (@Mydoglucky2) [May 3, 2021](https://twitter.com/Mydoglucky2/status/1389314796118372352?ref_src=twsrc%5Etfw)
-
-
-![](https://lh6.googleusercontent.com/K8v2fsJyi2S7na6DNAnXEZMP18j8x1D1UIAOUqeNlT-cYxJMr38W-1er9VwN_fFFbhITL8Gq2SN_m0RkMSQk5TUjQZkwM5WUBulv6S0lPvx3ajP7vePHMQYFosGXuwl9gg)![](https://lh4.googleusercontent.com/Vmlzyz2HEXJPu9I7BBqRxMLS9NkZhntHe-pkNTtft-_iCdKY6ax9qSynoKzximlcZoYa6qplhIwCaNaFBYNRh5ehWSlF-_vRJ3gT2Zah9zPJGfBWPE9IBRnq1Yeud5u5dQ)![](https://lh5.googleusercontent.com/3h4CesG254c4I287gmnefhbhXGOZRSpLev2xuMprmmyVF4ZRVFTV1Y7KzQRkogcNiAkyDQS2ab48jZBcNnp8oXrwC1iD_RjAytGGu_uwnHGTsv7p4Z52Ma_BIukUQTYz9Q)![](https://lh5.googleusercontent.com/3msBP-LkYUwEVP9OempKVQ07sKkbadtzdZxjdyBcFdJ1FKvVDDfpI2DRogZCitiSYeeuRoMPjxB8tLU27U_UgO665nF9h-Pk-Dwc_1Ur9KWPaQ_gRHu4oi-VcsJwNUnmDA)![](https://lh4.googleusercontent.com/y_zyPrpfe8Xvkk8hB44g_oC57UEcOAEKlh7zxsVA4MFz2wVd6EBqwlnRLm41gctnJqLaXHX2JAMtrE_KEaS86qVqYICmoTQpsXlQZTFvR1bECbqXWT5aTJsQaZKxYPpHxQ)![](https://lh4.googleusercontent.com/qFltXNXL2W4LAB065KZ5eHVve3cv7nyeCi9yiKeMCo_K3bZ4suzKT4xGHtWI6Tg-iwMH5HTsvR_B_XfgoVTe506u7danyIk79XCWxmU5w_UaFDzMe0BsBmVTvKUC2uGbBg)![](https://lh3.googleusercontent.com/CLbyYjANpnCCawIMlsOKcUiPViYEQFia7l-O3s--ht8dD5ZNp51oIZF92hWcX9FQD440FinoO-eRgAhfIbBLcybqL_mUMej3SwMzFGA7BsSnky9IdWz8uLaD7sfN3q7cOg)![](https://lh5.googleusercontent.com/pI9IN_16IoCNuNHTyPYpCG5nUPuaBozWFNfuy3Apxo53jRWRSj1-diqpVkJDXx7UY6wzZScemIS59SFzV4d50JytgAqVZ8_5vUaGquDk9sPx6zSYcgXrLLUASiC-WPC-cg)![](https://lh3.googleusercontent.com/j8zoYb5a9DaqiZaYen4utE2HwnNO8N7XyX-lbmTBDXff-noH-vTy49F6CYAA5wsH_xkcJFQYdmWFTHVOrhYYNTyZiYD_kkA9-D09JA1V04pfniMVX1SfBYFtDeiI8BotaA)![](https://lh4.googleusercontent.com/B5mNuZN1wnyROEG30fgtwjDuRoJsQJ9cnU4HsfGMwfve2E9b6StN_H1nqRKA8D1UVVLUarmFr8J3p6Qcyu2n-kyPwOIif-vsxlwc7ZcLHeEHHhHNRHTZdnkAtzk1TCQjSg)![](https://lh3.googleusercontent.com/5ctl5TeNzmJFrLOpa6w_pkYSt2dSh0qg7MrDZI4NMzLKfUlEMedrzLxEeb2xAdbLTAGlwbD8EIeoui6mqHdyGu66zA7s_Xoi7RzerzvuhKVw3QRAAQY2CecFdZSSZAEmsA)![](https://lh6.googleusercontent.com/G6k3MGgUw1MhjoACE8xtkiiukyDWMJNn_e8m0ZVXO0GrPMboK_3ZiXEvDwp7oM4-dk_fxX5NtVYUtczxggIRPsUmkxZa1q0zDX6Bcav-xK6WnlbOZFZybW5UdO4gwj5crQ)![](https://lh3.googleusercontent.com/z3V6QRT9WxpTmZ0vgq8W-wyclzDjqvI2q5rNvytG3WHfOiaUTUhtWp_65LxhiTA5cqw9Uj7aD5uGJVU9WBH6DB4hhQ0VZpl05OC5_hzmAuAmkfXm7HGZCU_0tmbN2yf-SA)
-Dr. Li-meng Yan who is the Hong Kong virologist and Chinese Whistleblower, fled China to the United States to speak out the truth of COVID-19 and how the Chinese Communist Party (CCP)covers up the truth. After Dr Yan has been interviewed by many mainstream media, her mother was arrested by the CCP. She was targeted as a retaliation for Dr. Yan’s bravery and efforts to save the world from the pandemic. The CCP has once again shown the world their evil.
-
-We therefore ask the House to urge the Chinese government to release Dr Yan’s mom. Australia as one of the Five Eyes Partner, also Australia has been one of the most early advocates of an independent investigation into the origins of this virus. We need to act together and bring justice to the world. From 191 citizens (EN1958)[https://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;db=CHAMBER;id=chamber%2Fhansardr%2Fab224a69-3544-4a95-9ce8-8319329dd01a%2F0015;query=Id%3A%22chamber%2Fhansardr%2Fab224a69-3544-4a95-9ce8-8319329dd01a%2F0410%22](https://parlinfo.aph.gov.au/parlInfo/search/display/display.w3p;db=CHAMBER;id=chamber%2Fhansardr%2Fab224a69-3544-4a95-9ce8-8319329dd01a%2F0015;query=Id%3A%22chamber%2Fhansardr%2Fab224a69-3544-4a95-9ce8-8319329dd01a%2F0410%22)
-![](https://lh5.googleusercontent.com/vIvD2XFXuksDUnnFG6XfcEc8k9Nh_1MxqDY-C_IkZqfNp77YP5r_enYVoTUVCd3XqsuZVIojQD6w1i0WVuO3scf3PSm30qPxgjkW1OO2rKu6kg736blx4RIg_qV-0K0MwQ)![](https://lh6.googleusercontent.com/54PMlaeuF73zPTV3MC7u4_rY-iyqTHfa00ORpArUs8EcJ-ViXFJnnsBXQR2TDPCk_-bK8WnuDUEdcfh-DXMMeON-fV4XfeSK4TVkK_fpLJBfUsQHlCfuYPUeH5sN5NlhJg)
-Außerdem würde ich gerne mit Ihnen andere 2 Artikel über Coronaviren teilen:
-
-🌟🌟🌟🌟🌟
-
-70 Poster enthüllen die Geheimnisse des Coronavirus [https://gnews.org/zh-hans/1098229/](https://gnews.org/zh-hans/1098229/)
-
-🌟🌟🌟🌟🌟
-
-Coronaviren-Impfstoffe sind unsicher, sogar tödlich.
-
-70 Poster illustrieren die Unsicherheit der Corona-Impfstoffe
-
-
-
-> [70张海报告诉你疫苗不可靠（2/2） 70 Poster illustrieren die Unsicherheit der Corona-Impfstoffe](https://gnews.org/zh-hans/1109263/)
-
-
-
-[https://gtv.org/video/id=5fa43646ad3f0f61d2bab129](https://gtv.org/video/id=5fa43646ad3f0f61d2bab129)
-
-Please continue to pay attention to me. I will find the truth for you, make contributions to mankind, oppose covering up the truth and lies, and don’t be blinded by the so-called scientists and the World Health Organization
-
-
-
-> Update of “origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)” links:
-> 1st Yan Report [https://t.co/bvbzeL3ETA](https://t.co/bvbzeL3ETA)
-> 
-> 2nd Yan Report[https://t.co/Kw8xuixz54](https://t.co/Kw8xuixz54)
-> 
-> 3rd Yan Report [https://t.co/BSIPG1jgyR](https://t.co/BSIPG1jgyR)
-> 
-> Response to Fake News [@CNN](https://twitter.com/CNN?ref_src=twsrc%5Etfw) [https://t.co/PwU2i8olXn](https://t.co/PwU2i8olXn)
-> 
-> Additional, [https://t.co/9gVV4Kj7C4](https://t.co/9gVV4Kj7C4)[#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/rcannJTzPs](https://t.co/rcannJTzPs)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 2, 2021](https://twitter.com/DrLiMengYAN1/status/1378015779287891968?ref_src=twsrc%5Etfw)
-
-
-![](https://lh3.googleusercontent.com/l9N4aEF91jAipf7kcAIKYvlmkA7CK5isbfeIsHqExjSAwDODFlv9CGRq-1r5_68z6pWLWapohLD_8wL0WRtUym39RfjgGJqGPMrPIBoi6kPT96eG_bKKWsN2PfuLeeWPCg)![](https://lh3.googleusercontent.com/Ak_8oycT_zbFD7P65ZD_xfHw9HgHAy32J9Rd6LtqkMJXN9OhwEUFmKJq8qMKiR8hM231LWn6pzjhvd3JcqJZe2gZwd4yZCGdvC5-74hhMtJxCy_gURc_DjxOWAGnmBhj8Q)
-德国感恩农场文迅搜集整理，
-
-感谢战友们制作的精美海报！
-
-+1
+0
