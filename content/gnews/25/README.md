@@ -1,13 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210502
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1168346/)
+## 疫情追责，新冠病毒溯源终将水落石出
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1168846/)
 
-- 制图：透明的遮羞布
-- 编辑：神奇四侠
+- 作者：XB
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162625/01-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162639/02-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162652/03-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162742/04-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162755/05-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162810/06-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03162825/07-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163031/08-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163043/09-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163057/10-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163112/11-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163124/12-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163139/13-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163150/14.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163328/15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163339/16.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163351/17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163404/18.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163415/19.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163430/20.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163444/21.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03163459/22.jpg)
-以上文字图片仅代表作者个人观点，与GNEWS无关
 
-0
+***更多真相，请关注*** ***[Gtv、Gnews！](https://gtv.org/)***
+
+**西班牙2021年5月3日电/西喜社——**
+
+新冠疫情暴发迄今已近一年半了，各国政府疲于应对疫情，以拯救国民生命安全于危难之中。降低国民遭受病毒攻击的风险与损失，以确保国民生命安全，当然是各国政府重要的职责与义务。但是在防止疫情扩散的前提下，进行疫情追责，对疫情进行溯源，是更重要的工作。
+
+新冠疫情最初究竟是怎么发生的？此前的世卫组织的调查报告有多少可信度？某种程度上，这是比单一的防止新冠疫情扩散更为紧迫的工作。来势凶猛、迅速蔓延到全球的病毒，看似迷雾重重，但是冷静思考，根据疫情暴发迄今的许多事实，疏理与分折后，事实真相究竟如何，并不难辨析。拨开迷雾，就会得出合乎逻辑的结论与判断。因为许多事实证据表明，疫情来源于中共武汉病毒所，何况闫丽梦博士的论文早已将病毒真相昭告于世人。
+
+美国密卅议员就疫情发起向中共追责，这是代表了美国政界有识之士的正义之声。紧跟美国正义力量之后，英国、德国、法国、澳大利亚、加拿大等许多国家也加入到向中共追责的正义力量之中。相信不久的将来，全球会有更多的国家(政府)参与到疫情追责的行列中，这种强大的力量，必将汇集为排山倒海之势，砸向制造并释放新冠病毒的罪魁祸首，为那些因为疫情而丧生的数百万冤魂讨还血债。
+
+作恶者看似精明，即使他们千方百计地制造假象，隐瞒自己的罪责，也是徒劳无功的。谎言与欺骗、隐瞒与伪造、销毁证据等等，这一切，在铁一样的事实面前，谎言不攻自破。在严密的逻辑分析与判断面前，即使隐瞒地再严实、故意制造的假象再多，也难以掩饰病毒来源的真相。因为法网恢恢，疏而不漏。
+
+我们欣喜地看到，密苏里州早在一年前就向法院提起诉讼，通过法律途径、依靠强大的国家力量解决病毒溯源问题。法治国家的行动看似迟缓，一旦程序全部走完，采取相应的行动就不是一个政党的行为而是整个国家的意志了。这也是法治的力量与人类文明发展的结晶。
+
+“机关算尽太聪明，反误了卿卿性命”。通过美国为首的正义国家的强大推动，将有条不紊地开展疫情追责工作，我们坚信，新冠病毒溯源终将水落石出，这一天已经不远了！
+
+审核：Aries的星 **;** 校对：Nuevo唐人 **;** 发稿：Nuevo唐人
+
+**新闻来源：**[大纪元](https://www.epochtimes.com/gb/21/5/1/n12918496.htm)
+
+**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+
++2
