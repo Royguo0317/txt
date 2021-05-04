@@ -1,195 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快报】欧盟立法者在关于制裁北京的首次会议上承诺拒绝欧中投资协议 2021.05.04
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1170759/)
+## 印度沦陷，中共脱下羊皮，露出獠牙！
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1170825/)
 
-作者：星空無垠，骑着毛驴来挺郭
-![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2021/05/image-3.png)
-# ***今日摘要***
+路仁
 
-1. **欧盟立法者在关于制裁北京的首次会议上承诺拒绝欧盟-中国投资协议**
-2. **国务卿布林肯透露拜登并不打算 “遏制中国”**
-3. **中国正试图瓦解 “五眼 “情报网络**
-4. **亚利桑那州立法者在接种疫苗后感染依旧强调COVID-19疫苗的重要性**
+中共病毒第三波疫情来势汹汹，由于出现了难以预料的变种病毒，印度感染人数和死亡人数，短短几天就达到了历史新高。曾经在武汉发生的那一幕，似乎在印度重演了。以至于中共官方的“中国长安网”在微博上发出了那副享誉推特的“点火”图片。图片里专门注明“#印度单日新增确诊超40万例”，就差在前面加“祝贺”二字了。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095802/india.jpg)
+而中共的一家名为民间智库，实为中共官办智库智库的“察哈尔学会”，4月29日发表了一篇[《如果印度就此倒下，谁来买单？》](https://www.toutiao.com/a6956291223594205732/?log_from=cdc49b1e0aa56_1620109071350)的文章。文中主要分析了印度此次疫情大爆发后产生的一系列后续效应。与隶属于中共政法委的“中国长安网”一样，这篇分析文章里也充满了小人得志，幸灾乐祸的口气。而且文中指出印度这次疫情引发的一系列后果，却无不暗合郭先生爆料的中共“13579计划”，“灭白计划”，“3F”计划等中共欲统治全球的邪恶目的。也在一定程度上验证了中共放毒的事实依据：这不正是他们要的结果吗？
 
+文章内容主要如下：
 
-# 重要事件
+1. **如今的印度已然成为****“****人间炼狱****”**
 
-- **[05.04. ZeroHedge 欧盟立法者在关于制裁\[北京\](https://www.zerohedge.com/geopolitical/eu-lawmakers-pledge-reject-eu-china-investment-deal-first-meeting-beijings-sanctions?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)的首次会议上承诺拒绝欧盟-中国投资协议 EU Lawmakers Pledge To Reject EU-China Investment Deal In First Meeting On Beijing’s Sanctions](https://www.zerohedge.com/geopolitical/eu-lawmakers-pledge-reject-eu-china-investment-deal-first-meeting-beijings-sanctions?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)**
 
+病例激增，火化场不堪重负，人们排队等火化，甚至有人自己烧亲人的尸体。（这一幕相信爆料革命的战友们不会陌生的，多么像2019年年底武汉的情形）。于是作者提出*“**雪崩时，没有一片雪花是无辜的！*”–简言之，印度那些感染的病人，死去的病人，他们即使故去，也不是无辜的！作者给出的理由是：*“**民众无知，政府无能，疫苗还有可能无效。印度一直以来自视甚高，一副要拯救全人类的架势，但现在看来印度或许连自己都拯救不了**”**。*自视甚高，也成了错？拯救全人类，创造人类命运共同体，不是中共和习神一直宣扬的价值观吗？中共病毒，始发于武汉，其惨烈程度，已经不是秘密。随后，意大利，英国，美国，巴西等国家轮流出现疫情爆发，那么这些都是属于“民众无知，政府无能”吗？
 
-欧洲议会成员誓言拒绝因中国侵犯人权和执政党共产党的制裁而等待批准的欧盟-中国投资协议。
+1. ** ****经济复苏前景黯淡**
 
-30多名欧洲议会议员于4月28日发言，谴责中国要求欧盟停止对其人权记录的批评，表示除非人权问题首先得到解决，否则他们不会批准中国的投资协议。一些人直截了当地说，他们希望该协议被抛出。
 
-这些评论是在欧洲议会关于中共政权对欧盟代表和实体的反制裁的第一次会议上发表的，这些代表和实体在3月底就新疆维吾尔族和其他少数民族的人权侵犯行为制裁了几名中共官员。
+首先疫情后封城造成的失业–由于去年印度全国封锁令长达4个月，导致近一亿人失业。*经历过封城的民众们，踩着封城前的时间点疯狂出逃；（*多么熟悉的画面？*）如今城市里缺少劳动力，就算是封城解除了，城市也无法正常运行。其次如果印度疫情不能得到有效控制，世界其他国家可能继续扩大与印度相关的航空运输限制，将印度变成一座**“**孤岛**”**，造成印度各产业供应链的中断。就算印度恢复了，也很难再参与到全球产业的世界分工当中。* 在这里感觉中共就是在为印度设计了一个“蓝图”，我们有理由相信，这个“蓝图”他们早已经设计好了，而且这个精心设计的“蓝图”的目标，绝不仅仅是印度，网传[迟浩田的内部讲话](https://www.gnews.org/zh-hans/1100055/)，郭先生爆料的[“中共13579计划“](https://www.gnews.org/zh-hans/1120999/)，无不印证了中共的的蓄谋已久的邪恶目的。
 
-但这些反制裁措施危及了投资协议被批准的可能性。
+1. **贫富差距继续扩大**
 
-法国欧洲议会议员埃马纽埃尔-莫雷尔在谈到中共的制裁时说：”如果我们想一劳永逸地表明，欧盟不只是一个超市，而是有原则……我们必须拿出一些实际行动，这意味着我们需要拒绝投资协议。”
 
-欧盟议会人权小组委员会副主席、德国议员汉娜-诺伊曼说：”这是一个政权任意射出的猎枪，针对的是我们的言论自由、研究自由和我们作为议员的权利。”
+文中指出，印度穷人是这次疫情爆发的最大受害者，因为除了感染中共病毒以外，治疗，甚至亲人死后的安葬等都对穷人来说又是一笔重负。文中引用皮尤研究中心的数据显示，*去年因为疫情的影响，印度已经有**3200**万印度中产阶级因为新冠疫情而重返贫困，贫富差距正在越拉越大。于此同时，印度的富豪们争先恐后地忙着逃离印度。而穷人们在寻求医疗资源时将积蓄挥霍一空，富者恒富而穷者愈穷**，**印度国内本就巨大的贫富差距在疫情中愈演愈烈。*其实中共国的情形又何尝不是如此呢？在武汉封城的前24个小时，有多少中共高官及家属逃离武汉？只留下无辜的平民经历了武汉地狱般的折磨。而在中共疫情爆发期间，又有多少中国人逃离中共国？这里面又有多少中共高官及家属？而当疫情重心转移到国外时，同样逃回中共国的，不也是这帮人吗？
 
-她告诉议会，在推进投资交易之前需要解决人权问题，并补充说 “我不愿意让一个外国对我的工作指手画脚”。
+1. **国内政治动荡**
 
-- **[05.03. National Pulse 国务卿布林肯透露拜登并不打算 “遏制中国” Biden Doesn’t Plan To ‘Contain China,’ Reveals Secretary Of State Blinken](https://thenationalpulse.com/breaking/biden-wont-contain-china-reveals-blinken/)**
 
+*疫情如此泛滥，印度总理莫迪及其所在的印度人民党自然难辞其咎，此次疫情正在成为印度国内政治的**“**转折点**”**。具体而言，莫迪首先失去的是其广泛的中产阶级群众基础。*
 
-国务卿安东尼-布林肯透露，拜登政权并不寻求 “遏制中国”。”我们的目的不是试图遏制中国或压制中国，”布林肯断言道。
+*于是，一边是支持莫迪的民族主义粉丝们，一边是对莫迪失去幻想的中产阶级，印度国内政治暗潮汹涌。接下来，要么是双方开始在政治议题上发生冲突，要么是莫迪的支持者日渐流失以致莫迪执政根基不稳。转变或许还没发生，但已经在酝酿之中。*民主国家，政党轮替执政，实属正常不过。作者夸大莫迪在处理疫情中的责任，无非就是因为莫迪在西方民主国家里面时坚定的站在反共的前沿的原因。在这里我们要问作者，中共在武汉疫情初期，掩盖疫情，打压吹哨人，压制媒体，隐瞒世界，造成武汉人道灾难，中共是否也难辞其咎呢？
 
-“我们要做的是维护国际的、以规则为基础的秩序，我们国家在这么多年里投入了这么多，我想说的是，这不仅有利于我们自己的公民，也有利于全世界的人民。顺便说一下，包括中国，”他补充说。
+1. **国际地位受损**
 
-这番话是在与英国外交大臣多米尼克-拉布举行的联合新闻发布会上说的，也是在布林肯的咨询公司与中共之间的关系被揭露后说的。
 
-- [**05.04. ZeroHedge 中国正试图瓦解 “五眼 “情报网络 China Is Trying To Break Up The Five Eyes Intelligence Network**](https://www.zerohedge.com/geopolitical/china-trying-break-five-eyes-intelligence-network?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+*曾经的莫迪，硬气地许下对外出口**10**亿疫苗的承诺；通过印度的**“**疫苗外交**”**对抗中国疫苗的国际影响力，现在看来，真是痴人说梦。而当印度发现疫苗的储备量甚至无法满足本国的需求，不得不宣布推迟**“**新冠肺炎疫苗实施计划**”**（**COVAX**）的交货时间时，它的**“**疫苗外交**”**已经名存实亡。如今印度疫情全面失控，将印度的**“**疫苗外交**”**和中国抗疫成功之间对比，只会贻笑大方。少了印度的四国机制就只剩下美日澳三个国家，美国的**“**印太战略**”**又回到了美国的盟友圈里，影响力自然大打折扣。*
 
+作者在嘲笑印度的所谓“疫苗外交”失败的时候，是否也曾想到中共国也企图大搞“疫苗外交”，企图用疫苗来要挟世界，结果中共研发疫苗在全球第三世界国家里面效率低下，副作用大，以至于许多国家在打了中共疫苗后疫情重新爆发，这算不算“贻笑大方”呢。即便时在中共国内，受中共宣传洗脑的老百姓也对其疫苗持怀疑态度，以至于许多地方要靠强制或者小恩小惠诱惑人们打疫苗。
 
-中国正通过与新西兰总理Jacinda Ardern的左翼政府建立更紧密的关系，故意在精英的 “五眼 “情报共享联盟中制造分裂。
+因疫情而影响“四国机制”和美国的“印太战略”？可见中共多么的忌惮印度作为亚洲大国加入由美国倡导的四国机制啊！在经历了中共病毒对印度的沉重打击后，相信印度会更加坚定的站在西方民主国家一边,必将成为将来反共灭共的排头兵。
 
-由美国、加拿大、英国、澳大利亚和新西兰组成的 “五眼联盟 “可以追溯到第二次世界大战，当时一些关键盟友决定分享情报，以击败纳粹德国和日本。
+1. **为全球防疫带来新的挑战**
 
-今天，保持五个英语国家之间的情报共享合作被认为对打击俄罗斯和共产主义中国等专制国家构成的威胁至关重要。
 
-然而，在阿德恩女士的政府宣布将改善与北京的贸易关系作为其优先事项，而不是维持对五眼联盟的支持之后，目前形式的联盟的生存受到了威胁。
+*印度发现的新冠病毒变种还给全世界的抗疫工作带来了全新的挑战。一旦印度政府控制不住疫情，印度将成为新冠病毒的长期**“**定居点**”**。在这种情况下，全球抗疫工作都要关注在印度身上。如果印度疫情无法结束，那意味着全球疫情也将长期无法结束。变异新冠病毒能在印度现在高达**40**摄氏度的气温下存活的能力也让人警惕。印度松散的防疫政策为各种各样的新冠病毒变种之间的交流带来了绝佳的机会。这次病毒能够抗高温，下一次病毒会进化成什么样子？谁也不会知道。*
 
-新西兰外交部长Nanaia Mahuta在本月早些时候宣布了寻求与北京改善贸易关系的决定，她宣称新西兰对五眼联盟就其骇人听闻的人权记录向中国施压感到 “不舒服”，而是希望追求自己的双边关系。
+印度由于人口众多，居住环境差，这是不争的事实。但印度由于在上次疫情期间，全民推广羟氯喹等预防药物，无论是确诊病例和死亡人数，都远远低于美国等重灾国家。印度去年经历了长达4个月的全国性封锁令，经济已经受到了很大的影响。在疫情的缓解形势和经济的压力下，印度政府和莫迪总理完全有理由放松经济，放宽封锁令。即便是本次由于变种病毒引起的再次大爆发，印度中共病毒死亡比例还远低于其他国家。那么问题来了，为什么了突然会出现能在高达40度下存货的变种病毒？这种变种病毒交流的“绝佳”机会，是被谁发现了？为什么印度的疫情大爆发，引发了中共国的网上狂欢？连众多官方网站都喜形于色？
 
-50岁的马胡塔女士对英国、美国、加拿大、澳大利亚和新西兰的国防部长去年作出的决定作出了回应，即赞同扩大该联盟的作用，公开承诺不仅要应对共同的安全挑战，而且要 “推进他们共同的民主、自由和尊重人权的价值观”。
+1. **结语**
 
-- **[05.03. Washinton Examiner 亚利桑那州立法者在接种疫苗后感染还强调COVID-19疫苗的重要性 Arizona lawmaker stresses COVID-19 vaccine importance after post-inoculation infection](https://www.washingtonexaminer.com/politics/arizona-lawmaker-stresses-covid-19-vaccine-importance-after-post-inoculation-infection)**
 
+*印度一直以来相当自满，一边不注重科学防疫，一边又想**“**拯救全人类**”**。折腾一圈之后，终于把自己变成了病毒的超级培养皿。面对这样不省心的邻居，中国依然选择拉印度一把。无论印度能不能知恩图报，放下他那脆弱的自尊心，但我们仍要问印度一句：以德报怨，何以报德？*
 
-亚利桑那州的一位议员说，如果她在本周对冠状病毒检测呈阳性之前没有接种COVID-19疫苗，情况可能会更糟。
+文中提到，在莫迪政府还在对中共国寻求援助支支吾吾时，一些印度公司私下从中国采购500台制氧机飞到德里。在这里我们可以得到的信息时，印度政府并未向中共国提出援助请求。而印度的公司向中共国订购的氧气机，也是正常的商业行为，人家花钱采购的！ 而作者就要求印度知恩图报，还不忘了自我意淫一番，扯出“以德报怨”的骗人犊子来。试问中共国在疫情初期隐瞒疫情，将祸水引向全世界，造成本世界最大的人道灾难，请问中共，这是“德”呢？还是“怨”？ 在全球病毒源头追责正紧之际，中共企图利用印度疫情爆发转移视线，试图混肴试听，也只能骗骗墙内小粉红而已。世界灭共大潮，浩浩汤汤，顺者昌，逆者亡！
 
-图森市议员阿尔玛-埃尔南德斯（Alma Hernandez）说，她在周三对COVID-19检测呈阳性，大约在她接受辉瑞公司的第二剂疫苗后11周。
+* * *
 
-“她说：”尽管有广泛的疫苗供应，但我们必须继续采取预防措施以减缓传播。”要靠我们大家一起努力来打败这种大流行病。”
+*发稿 文锦*
 
-28岁的埃尔南德斯说，她无法闻到或尝到味道，发烧和 “可怕的偏头痛”。她说，星期四下午，如果她没有接种疫苗，她的情况会更糟糕。
-
-“她说：”我一直感到非常疲惫，我不希望任何人生病，但我也想鼓励大家，如果你们没有接种疫苗，请尽快接种疫苗。”如果我没有接种疫苗，我现在的情况会更糟糕。”
-
-埃尔南德斯也是一名公共卫生专业人士。她和她的兄弟住在一起，她的兄弟也接种了疫苗，而且COVID-19的检测结果为阴性。
-
-据她的办公室说，这位立法者本周确实算作出席了立法会议，但却是远程参加会议。亚利桑那州议会的两院都取消了口罩要求，但大多数民主党人都保持着面部遮盖。
-
-亚利桑那州尚未报告有接种疫苗的人死于COVID-19，尽管它已经报告了947例突破性病例。
-
-美国疾病控制和预防中心本月早些时候说，大约有5800名完全接种疫苗的人感染了COVID-19，74人死亡。截至周四，超过1.01亿美国人已经完全接种了疫苗。在突破性病例中，近一半是60岁以上的人。疾病预防控制中心怀疑一些突破性病例来自COVID-19变异株，尽管药物制造商已经发现他们的疫苗对这些变异株基本有效。
-
-# 每日文贵说
-![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/05/E6MN76YRL6NFGJO-1024x576.png)
-# 更多要闻链接
-
-1. [前首富比尔盖兹与梅琳达宣布离婚，由於比尔盖兹身家高达惊人的1300亿美元（约台币3.6兆元），因此离婚后的财產分配，也成了外界焦点](https://news.ltn.com.tw/news/world/breakingnews/3519989)
-2. [民主党人更加疯狂：绿色新政策划者声称拯救地球需要消除警察并改变权力关系](https://www.thegatewaypundit.com/2021/05/democrat-insanity-green-new-deal-mastermind-claims-saving-planet-requires-eliminating-police-changing-power-relationships/)
-3. [华为销量暴跌五成，苹果销量反涨94%](https://www.toutiao.com/a6957714439571259907/?channel=&amp;source=search_tab)
-4. [报道称：中国火箭碎片可能击中美国](https://www.newsmax.com/newsfront/china-space-nasa-rocket/2021/05/03/id/1019979/)
-5. [英国主办疫情发生以来首次G7外长面对面会议](https://cn.reuters.com/article/uk-covid-g7-foreign-ministers-0503-idCNKBS2CK0MF)
-
-
-# 每日推特文摘
-
-
-
-前军情六处处长说：”冠状病毒来自实验室的可能性大得多”。
-另一位官员重复了去年春天我们国家媒体集体认为的 “危险的阴谋论”。
-“Far more likely coronavirus came from a lab,” says the former head of MI6.
-Another official repeats what our national press collectively deemed a “dangerous conspiracy theory” last spring.
-
-
-
-
-
-> "Far more likely coronavirus came from a lab," says the former head of MI6. 
-> 
-> Another official repeats what our national press collectively deemed a "dangerous conspiracy theory" last spring. [https://t.co/5v3pUCyHU0](https://t.co/5v3pUCyHU0)
-> — John Noonan (@noonanjo) [May 3, 2021](https://twitter.com/noonanjo/status/1389216491409661953?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-COVID19侦探@No3Mos显示了病毒研究网络分析的有效性。中共生物战计划的一个核心要素是军事兽医，他们做了什么研究，与谁有联系。
-COVID19 detective @No3Mos shows the effectiveness of virus research network analysis. A core element of the Chinese Communist Party biowarfare program is the military veterinarians, what research they did and to whom they were linked.
-
-
-
-
-
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@No3Mos](https://twitter.com/No3Mos?ref_src=twsrc%5Etfw) shows the effectiveness of virus research network analysis. A core element of the Chinese Communist Party biowarfare program is the military veterinarians, what research they did and to whom they were linked. [https://t.co/A4fSWvsjFa](https://t.co/A4fSWvsjFa)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389425795723153409?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-在几条推文中#COVID19侦探@devonJ32130301显示，中共的军事兽医经常使用实验室操纵的连续通道，使病毒更加危险。军事兽医是中共生物战计划的一个关键部分。
-In several Tweets #COVID19 detective @devonJ32130301 shows that Chinese Communist Party military veterinarians were routinely using the laboratory manipulation of serial passage to make viruses more dangerous. Military veterinarians are a key part of the CCP’s biowarfare program.
-
-
-
-
-
-> In several Tweets [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@devonJ32130301](https://twitter.com/devonJ32130301?ref_src=twsrc%5Etfw) shows that Chinese Communist Party military veterinarians were routinely using the laboratory manipulation of serial passage to make viruses more dangerous. Military veterinarians are a key part of the CCP's biowarfare program. [https://t.co/N2HY2BL17j](https://t.co/N2HY2BL17j)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389428627809443841?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-G7布林肯与英外相记者会 记者问：G7目的是联合民主国家共同对抗中国和俄罗斯的独裁专制吗？ 布林肯说，对于俄罗斯，非常欢迎俄走正确的道路，美国愿意与俄合作。而对于中国，美国的目的不是压制中国，而且是要对抗任何挑战「基于规则的国际秩序」的人，这是为了世界人民的利益，也是为了中国人民的利益
-
-
-
-
-
-> G7布林肯与英外相记者会
-> 记者问：G7目的是联合民主国家共同对抗中国和俄罗斯的独裁专制吗？
-> 布林肯说，对于俄罗斯，非常欢迎俄走正确的道路，美国愿意与俄合作。而对于中国，美国的目的不是压制中国，而且是要对抗任何挑战「基于规则的国际秩序」的人，这是为了世界人民的利益，也是为了中国人民的利益 [pic.twitter.com/zhCjJLdAge](https://t.co/zhCjJLdAge)
-> — 珠穆朗玛 (@ZanXixi) [May 3, 2021](https://twitter.com/ZanXixi/status/1389346015417884672?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-20200923閆博士接受Valuetainment訪談精華3
-》CCP在路德社119之後立馬修改了確診數字，從62增加了兩倍到198
-》習主席簽署命令要求按照SARS標準來應對
-》CCP搜刮全世界的醫療物資然而卻不發給一線醫生
-》石正麗立馬撰文利用虛假的RaTG-13序列想將病毒起源引向自然
-》閆博士能言之鑿鑿地說病毒來自實驗室，是因為真相只有一個、並且掌握證據和信心 
-》港大Malik是冠狀病毒的頂尖專家
-
-
-
-
-
-> 20200923閆博士接受Valuetainment訪談精華4
-> 》閆博士能言之鑿鑿地說病毒來自實驗室，是因為真相只有一個、並且掌握證據和信心
-> 》港大Malik是冠狀病毒的頂尖專家 [pic.twitter.com/h7Snww9RTq](https://t.co/h7Snww9RTq)
-> — Andy5 (@andy5\_123) [May 3, 2021](https://twitter.com/andy5_123/status/1389200996815937538?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-RaTG13 是与新冠病毒最接近的实验室制造的假序列，诱导人们相信新冠病毒。共产党和一些有影响的西方舔共科学家欺骗其他科学家发表关于几百篇这个假病毒的文章
-
-
-
-
-
-> RaTG13 是与新冠病毒最接近的实验室制造的假序列，诱导人们相信新冠病毒。共产党和一些有影响的西方舔共科学家欺骗其他科学家发表关于几百篇这个假病毒的文章 [https://t.co/ERMLCSTEIM](https://t.co/ERMLCSTEIM)
-> — Roberts (@Roberts59064781) [May 4, 2021](https://twitter.com/Roberts59064781/status/1389555403076345858?ref_src=twsrc%5Etfw)
+0

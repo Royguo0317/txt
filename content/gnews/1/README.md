@@ -1,31 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳军少将称与中共国发生武装冲突的可能性极大
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1170834/)
+## 慧眼看世界20210504
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1170879/)
 
-【日本东京方舟农场】撰稿：青衣   素材采编：武汉老温   校对：文小律
+- 制图：透明的遮羞布
+- 编辑：神奇四侠
 
-《悉尼先驱晨报》（Sydney Morning Herald）和《时代报》（The Age）5月4日同时刊登报道称，时任澳大利亚特种作战部指挥官的芬德利少将(Adam Findlay)， 曾于2020年4月在其任内的一次向麾下官兵训话时表示，中共已经在对澳大利亚进行“灰色地带 ”战争，澳军必须为未来极有可能蔓延到实际武装冲突的情况做好准备。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101620/01-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101640/02-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101700/03-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101720/04-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101741/05-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101801/06-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101819/07-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101837/08-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101853/09-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101911/10-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101934/11-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101947/12-1-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102008/12-2-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102031/13-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102048/14-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102105/15-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102127/16-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102146/17-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102204/18-2.jpg)
+以上文字图片仅代表作者个人观点，与GNEWS无关
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04100257/A40D1D1C-33B7-4A4A-8043-27E9D0F8F314.jpeg)
-
-报道引述多个匿名消息来源的消息称，芬德莱在去年向特种部队发表了一场机密简报，内容主要讲述澳洲最高层级的军事参谋人员对于中共国威胁的看法，当中提及的观点大多未曾公开。据称，芬德莱少将在简报会上指出，中共国已针对澳洲发动了一连串处于灰色地带的“政治作战”行动，并很可能演变成武装冲突。
-
-报道称，芬德莱的机密简报会有20多名受过严格训练的特种部队官兵在场聆听。芬德莱在简报会上指出，澳洲军方一方面要防止战争爆发，但同时也指出外国情势不可预测，并且“有高度可能性”会爆发冲突。芬德莱表示，中共国是主要的威胁来源，他警示说，澳军需要加强印太地区部署。他还强调，中共国的特种部队队员高达2万6000人，一旦爆发军事冲突，澳大利亚国防军不仅需要依靠传统的空中、陆地和海上力量，还需要依靠澳洲使用网络和太空战的能力。
-
-芬德莱指出，中共国表面以“合作”的名义行事，其实是针对澳洲实行一种处于“灰色地带”（grey zone）的作战方式。中共国目前避免军事上的正面冲突，取而代之的是采取“政治作战”（political warfare）手段，试图达到“毋需武装冲突而取得战略效果”的目的。芬德莱说：“他们（中共国）知道西方民主国家是和平的，但要是他们一旦踩过界的话，我们就会愤怒，然后我们就会轰炸他们。”
-
-芬德莱提到的“政治作战”包括贸易手段、情报、外国势力干预、外交和网军等。他还指出，这是澳洲自第二次世界大战以来，第一次面对中共国这样的“势均力敌的敌人”（peer enemy）。芬德利表示，为了“阻止战争爆发”，澳军必须与中共国强加给澳大利亚的“胁迫性限制”竞争。澳大利亚的目标是“使对手处于劣势，使自己处于优势”。芬德利现在虽已不再担任特种作战部指挥官一职，但他仍然为澳大利亚国防军提供咨询。
-
-近期以来，澳中关系日益紧张。澳洲国防部长杜登（Peter Dutton）4月25日曾向媒体表示，不应低估中共国因台湾问题爆发军事冲突的可能性。他还称，随着来自中共国的军事威胁日益严重，澳洲军方应把焦点移转至邻近区域。而就在同一天，澳洲内政部秘书长裴佐洛（Michael Pezzullo）也发布声明，强调“战鼓”（drums of war）已经响起，澳洲与崇尚自由的盟友要准备为自由而战。
-
-注：本文仅代表作者观点
-
-参考链接：
-
-1. [https://www.cna.com.tw/news/aopl/202105040028.aspx](https://www.cna.com.tw/news/aopl/202105040028.aspx)
-2. [https://twitter.com/RFI\_Cn/status/1389392855618056192](https://twitter.com/RFI_Cn/status/1389392855618056192)
-
+发稿：神奇四侠
 
 0
