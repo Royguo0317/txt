@@ -1,11 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共是美国外交政策的最大威胁，美国必将会站出来进行防御
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1170813/)
+## 慧眼看世界20210504
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1170879/)
 
-5/3/2021 美国国务卿安东尼·布林肯本周接受《60分钟》采访。他说中共现在是美国外交政策的最大威胁。它威胁到以规则为基础的国际秩序。中共近几年在国内国外行为都颇具挑衅和侵略性。它违背了曾向联合国许下的承诺。美国将会站出来抵抗任何试图挑战或者破坏该国际秩序的威胁。
+- 制图：透明的遮羞布
+- 编辑：神奇四侠
 
-By： 【秘密翻译组 G-Translators】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101620/01-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101640/02-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101700/03-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101720/04-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101741/05-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101801/06-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101819/07-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101837/08-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101853/09-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101911/10-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101934/11-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101947/12-1-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102008/12-2-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102031/13-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102048/14-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102105/15-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102127/16-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102146/17-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102204/18-2.jpg)
+以上文字图片仅代表作者个人观点，与GNEWS无关
+
+发稿：神奇四侠
 
 0
