@@ -1,27 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世卫计划在夏季评估俄疫苗的安全性
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1171693/)
+## 【热点播报】60多个美国体育场所引入疫苗护照
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1171710/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+作者：纽约香草山农场写作组  四季
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/05/S-2.jpg)kogonuso.com
-05月03日，世界卫生组织（WHO）计划在6月下旬至7月评估俄罗斯《人造卫星五型》中共病毒疫苗的安全性。这是世卫组织专家玛丽安吉拉·思茅（Mariangela Simao）在简报会上宣布的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-她说：“我们正在等待完整的档案资料，以及临床试验和生产的必要标准，并在6月底让技术专家评估该疫苗，但更有可能在7月进行。”
 
-欧洲药品管理局（EMA）于3月初开始审查《人造卫星五型》的注册档案，这是可能导致该药物在欧盟范围内获得批准程序的第一步。
 
-4月27日，俄罗斯卫生部长米哈伊尔·穆拉什科（Mikhail Murashko）说，欧洲药品管理局（EMA）的专家已经完成了对俄罗斯的《人造卫星五型》中共病毒疫苗的第一阶段检查。
+零对冲5月4日报道，美国60多个体育场馆和其他场所正在为夏天部署疫苗护照（或通行证或证书），以使经济“恢复正常”。
 
-在EMA批准并完成俄罗斯人的大规模疫苗接种之后，计划于2021年6月向欧盟大规模交付。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04162840/0-2021-05-03_06-38-06-1.png)图片来源：[ZeroHedge](https://www.zerohedge.com/covid-19/vaccine-passports-coming-sports-venues)
 
-然而，据欧盟内部市场专员特里·布莱顿（Thierry Breton）称，万一《人造卫星五型》疫苗获得监管部门批准，所需药物数量可能要到2021年底才能在欧盟上市。此前，他说俄罗斯疫苗将“为时已晚”。
+美国职业棒球大联盟的旧金山巨人队和纽约大都会队是第一批要求球迷出示疫苗接种证明或通过一个名为Clear的应用程序验证其COVID-19近期阴性测试的一些球队中的一员。这些球队将接受医疗文件作为证明，但他们鼓励所有体育迷下载Clear应用程序以获得便利。
 
-参考链接：
+Clear已通过将所有旅行文件固定在一个应用程序中，简化了旅客经由机场旅行的过程。现在，Clear正在机场以外的60多个美国体育场馆和其他场所应用。截至4月，Clear约有14.2万次下载。
 
-[https://www.rbc.ru/rbcfreenews/609027ed9a794734e23d6101](https://www.rbc.ru/rbcfreenews/609027ed9a794734e23d6101)
+随着疫苗护照的使用从机场向体育场馆滚滚而来，人们对该应用程序的潜在范围和影响的担忧正在增加。隐私组织电子前沿基金会担心Clear会持有用户的敏感医疗数据，并将其转化为消费者追踪器。但Clear表示，用户可以控制他们的健康记录。
+
+目前，美国的几个州已经表现出反对疫苗护照的决心。其中包括目前的德克萨斯州、田纳西州、佛罗里达州、密西西比州。我们猜想还会有更多的州跟进。
+
+中共病毒的灾难历经一年多的时间都没有被追究病毒的真相，反而政府却企图通过集权主义控制人们最基本的日常生活。难道以后所有的公共场所都将需要护照了吗？
+
+原文链接：
+
+[Vaccine Passports Are Coming To Sports Venues | ZeroHedge](https://www.zerohedge.com/covid-19/vaccine-passports-coming-sports-venues)
+
+
+
+编辑/校对/发稿：小鹿
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+
+
 
 0

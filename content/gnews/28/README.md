@@ -1,87 +1,503 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】比尔盖茨可以离婚，但放不下魔鬼基金的运作
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1171062/)
+## 闫博士和弗莱明博士讨论了导致 COVID-19的SARS-CoV-2病毒 的起源
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1171386/)
 
-作者：纽约香草山农场    Paul Li
+**中文字幕：**
 
+Dr. Richard Fleming
 
+理查德·弗莱明博士
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
+I think it’s interesting
 
+我认为有趣的是
 
+that the patent for furin cleavage protease enzymes
 
-5月3日，比尔·盖茨和梅琳达宣布离婚，看来这位叱咤风云的科技大佬的生活并不像外界想象的那样平和。
+弗林蛋白酶切割蛋白酶的专利
 
-随着盖茨离婚的消息被世界关注，比尔与梅琳达·盖茨基金会又再次吸引着世界的目光。BBC中文网对此的报道标题为，“比尔‧盖茨与梅琳达宣布离婚基金会：将运作如常”[1]，德国之声中文网的报道标题为“比尔盖兹宣布离婚 震撼慈善界”[2]，这种笔法颇令人寻味，暗示这个基金会的分量似乎远高于比尔盖茨和梅琳达的婚姻。
+is owned by the United States government
 
-比尔与梅琳达盖茨基金会是非常重要的组织，位列美国最大的私人慈善基金会，也是世界最大的基金会之一，该基金会一直专注于公共卫生，其举措包括支持新冠病毒在内的疫苗研发、诊断测试和医疗。据BBC报道，这一个慈善组织花费大量金钱对抗传染病和支持儿童接种疫苗，估计每年用上50亿美元。
+是美国政府所拥有的
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04111243/image-51.png)图源网络
+Dr. Yan
 
-在社会普罗大众的眼中，比尔盖茨因为在慈善事业中的突出表现，而成为道德楷模被主流媒体宣传。然而在一片祥和的赞歌中，有一个人发出了尖利刺耳的哨声，这个人就是小罗伯特·肯尼迪（Robert F. Kennedy Jr.）。小罗伯特·肯尼迪，是美国前总统约翰·肯尼迪之弟罗伯特·肯尼迪的第三子，是肯尼迪家族的成员。2020年4月9日，小罗伯特·肯尼迪在的Instagram帖子中说：
+闫博士
 
+Pardon? What’s that Sorry?
 
-> ***#比尔盖茨的#疫苗是一项有战略野心的慈善事业，疫苗支持了他的许多疫苗相关业务（包括#微软致力于控制全球疫苗企业的雄心），并赋予他对全球卫生政策的独裁控制权，这是新跨国企业帝国主义的排头兵。****盖茨对疫苗的痴迷似乎源于他要成为救世主的信念，即他有使命以技术来拯救世界，带着像上帝一样的意志来用渺小的人类生命做实验。*
-> 
-> *盖茨承诺以12亿美元根除小儿麻痹症，为此，盖茨控制了印度国家咨询委员会（National Advisory Board，NAB），并向5岁以下的每个孩子强制使用了50种小儿麻痹症疫苗（从5种增加到50种）。印度医生认为，盖茨的项目导致疫苗引起的脊髓灰质炎的流行，并在 2000年至 2017年间使 496,000名儿童瘫痪。2017年，印度政府结束了盖茨的疫苗接种方案，并把盖茨及其亲信从印度国家咨询委员会驱逐，随后脊髓灰质炎致残率急剧下降。 2017年，世界卫生组织无奈地承认，全球脊髓灰质炎爆发主要来自疫苗，这意味着它来自盖茨的疫苗计划。刚果、菲律宾和阿富汗最可怕的流行病都与盖茨的疫苗有关。到 2018年，全球 3/4例小儿麻痹症病例来自盖茨的疫苗。*
-> 
-> *2014年，盖茨基金资助了由葛兰素史克（GSK）和默克（Merck）开发的实验性 HPV疫苗测试，疫苗测试接种了偏远印度各省的 23,000名年轻女孩。大约 1,200人遭受了严重的副作用，包括自身免疫性疾病和生育障碍，并导致七人死亡。印度政府的调查指控盖茨资助的研究人员犯下了道德违规行为：迫使易受伤害的乡村女孩参加实验，欺侮她们的父母，伪造同意书以及拒绝为受伤的女孩提供医疗服务。此案目前在该国最高法院审理。*
-> 
-> *2010年，盖茨基金会资助了一项葛兰素史克实验性疟疾疫苗试验，该试验害死了 151名非洲婴儿，并给 5,049名儿童中的 1,048名造成了严重的不利影响，包括瘫痪，癫痫发作和高热惊厥。*
-> 
-> *2002年，在撒哈拉以南的非洲进行MenAfriVac活动期间，盖茨的工作人员为数千名非洲儿童接种了预防脑膜炎的疫苗，随后50-500名儿童出现了瘫痪。南非报纸抱怨说：“我们是毒品生产商的小白鼠”。纳尔逊·曼德拉（Nelson Mandela）的前高级经济学家帕特里克·邦德（Patrick Bond）教授形容盖茨的慈善行为“无情”和“不道德”。*
-> 
-> *2010年，盖茨向世卫组织承诺提供100亿美元，通过新疫苗减少人口。一个月后，盖茨在一次Ted Talk上说，新疫苗“可以减少人口”。2014年，肯尼亚天主教医生协会指责世界卫生组织（WHO）通过伪装的“破伤风”疫苗注射活动对数百万不自愿的肯尼亚妇女进行了化学绝育。独立实验室在每种测试的疫苗中均发现了不育配方。世卫组织最终承认，他们已经开发绝育疫苗十多年了。*
-> 
-> *坦桑尼亚，尼加拉瓜，墨西哥和菲律宾也有类似的指控。*
-> 
-> *2017年的一项研究（Morgensen等人）表明，世卫组织流行的DTP疫苗所造成的非洲死亡人数多于其所挽救的人数。接种疫苗的女孩的死亡率是未接种疫苗的儿童的10倍。*
-> 
-> *盖茨和世界卫生组织拒绝召回世界卫生组织每年向数百万非洲儿童提供的致命疫苗。*
-> 
-> *世界各地的全球公共卫生倡导者指责盖茨绑架了世卫组织的议程，使那些受到疾病困扰的人远离已被证实可以遏制传染病的项目，比如清洁水，卫生营养的改善和经济发展。他们说，盖茨挪用了机构的资源来服务于他的个人怪癖——身体健康只能通过注射器来实现。*
-> 
-> *盖茨除了利用慈善事业控制世卫组织，联合国儿童基金会，全球疫苗免疫联盟和PATH之外，还资助生产疫苗的私营制药公司以及庞大的制药行业，进行欺骗性宣传，开展欺诈性研究，对使用疫苗犹豫不决的人群进行监视和心理操作，并利用盖茨的能力和金钱来压制异议并强迫遵守合规。*
-> 
-> *在最近Pharmedia（法米迪亚医学有限公司，是一家专业的医疗营销服务提供商，专门为全球制药和医疗设备行业提供咨询和创新的数字解决方案。）的演讲中，盖茨似乎很高兴COVID-19病毒危机将使他有机会将他的第三世界疫苗计划强加给美国儿童。*
-> 小罗伯特·肯尼迪Instagram（现已被删除）
+抱歉？那是什么？
 
+Dr. Fleming
 
-然而，除了互联网的存档，公众很难在小罗伯特·肯尼迪的Instagram看到上述内容。在2021年2月，Ins.的母公司Facebook表示，Instagram下架了反疫苗活动家小罗伯特·肯尼迪的账号，原因是他分享了有关冠状病毒的虚假说法。中共的媒体搜狐网亦报道了小罗伯特·肯尼迪被封号的事件[3]。
+弗莱明博士
 
-郭文贵先生作为最初警告世界病毒危机的吹哨人，根据他在中共内部的情报，最早并多次示警世界，小心疫苗的副作用，“小心疫苗经济变成疫苗灾难”。现在看来，疫苗灾难早就在比尔盖茨这样的精英操纵之下开始了，只是从贫穷的第三世界来到了全世界，特别是发达国家。虽然主流媒体没有报道COVID-19疫苗对人类的副作用，但是前车之鉴告诉我们，必须以怀疑的眼光审视任何一种疫苗。
+Patent for the furin cleavage sites is owned by the U.S.
 
-世界卫生组织、医药大财团及比尔盖茨这样的精英，还有中国共产党已经形成密切的合作网络，按照他们的邪恶计划试图绑架全人类，杀戮人类。像郭文贵先生和小罗伯特·肯尼迪、闫丽梦博士这样的吹哨人都被他们禁声封号。这场正义和邪恶的终极之战，牵连的不仅是你我的车子、房子、票子，更关系到我们的生命和下一代人类的未来，您选好站在哪一边了吗？
+弗林蛋白酶裂解位点的专利归美国所有
 
-参考阅读：
+and the federal government gets it has patent rights to it
 
-1. [比尔‧盖茨与梅琳达宣布离婚 基金会：将运作如常](https://www.bbc.com/zhongwen/simp/business-56976421)
-2. [比尔盖兹宣布离婚 震撼慈善界](https://www.dw.com/zh/%E6%AF%94%E5%B0%94%E7%9B%96%E5%85%B9%E5%AE%A3%E5%B8%83%E7%A6%BB%E5%A9%9A-%E9%9C%87%E6%92%BC%E6%85%88%E5%96%84%E7%95%8C/a-57418463)
-3. [小罗伯特·F·肯尼迪的Instagram账户因传播COVID-19假信息而被封号](https://www.sohu.com/a/450484377_100191015)
+而且联邦政府获得了它的专利权
 
+Dr. Yan
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
+闫博士
 
-编辑/校对/发稿：Irene木木
+What I want to say.
 
-**更多资讯，更多关注**
+我想说的是
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+the patent belongs to whom is important,
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+专利所属是很重要的
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+but it’s not real important things when people using it
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+但是当人们使用它时，这并不是真正重要的事情
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+according to Chinese government thinking
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+根据中共政府的想法
 
+that whatever you have,
 
+不管你有什么
 
+I can get it, I can steal it
 
+我你得到它，我能偷到它
+
+I mean,
+
+我的意思
+
+Dr. Fleming
+
+弗莱明博士
+
+Right
+
+是的
+
+Dr. Yan
+
+闫博士
+
+I don’t want humiliate the Chinese scientists
+
+我不想羞辱中国科学家
+
+I’m sure many Chinese scientists like people working with me,
+
+我确定许多的中国的科学家, 像与我一起工作的人
+
+they are honest, we don’t do such things.
+
+他们是诚实的，他们不会做此类事情
+
+But there are always some people
+
+但是总有一些人
+
+When Chinese government using money, big titles
+
+当中共政府用金钱、大头衔
+
+and other things to attract them
+
+和利用其他一些东西吸引他们时
+
+They will do this and this is a something kind of a open secret
+
+他们会做这个，并且这是一个某种的公开的秘密
+
+in the Chinese scientific world
+
+在中共的科学界
+
+So these things when you as guide (25:06)
+
+所以这些事情，当你被指引
+
+then search Chinese scientists bring it back
+
+然后去寻找华裔的科学家们把它带回来
+
+and all even some US scientists
+
+而且甚至一些美国的科学家
+
+and other country’s scientists bring these techniques to China .
+
+和其他国家的科学家将这些技术带到中共国
+
+This is common,
+
+这很常见
+
+Dr. Fleming
+
+弗莱明博士
+
+Right
+
+是的
+
+so base fact that people may ask whether this is designed in the U.S.
+
+因此，人们可能会问这是否是在美国设计的
+
+but what I want to emphasize is
+
+但我想强调的是
+
+the backbone of the sars-cov-2
+
+新冠的主干
+
+it came from China，PLA
+
+它来自中共国的解放军
+
+Chinese army owned, discovered
+
+中共军方拥有的，发现的，
+
+owned unique the bat coronavirus CZ45 or ZX21
+
+拥有的唯一的蝙蝠冠状病毒CZ45或ZX21
+
+And also China government is the one making the cover up
+
+并且中共国政府正在试图掩盖这个
+
+and spreading the misinformation don’t allow people to check or to do more.
+
+还散播错误信息，不允许人们去检查或做更多的事情
+
+Even cannot talk about it censor the things
+
+甚至不能谈论它，审查言论
+
+So, we can clearly say who is the one making
+
+所以，我能清楚的说谁是那个制造者
+
+Dr. Fleming
+
+弗莱明博士
+
+Perfect.
+
+太棒了
+
+Karladine
+
+卡拉丁
+
+So the bottom line is this
+
+所以归根到底
+
+I’m just going to ask to make it very clear
+
+我只想问得更清楚一点
+
+For those who are going to be listening to this
+
+对那些要听这个的人
+
+Then this virus that we’re dealing with right now
+
+就是我们现在正在面对处理的病毒
+
+is something that does not happen in natural
+
+是那些不会发生在自然界的
+
+And then it appears that this was a bio engineered effort
+
+而且看起来这是生物工程的成果
+
+And it was an international effort,
+
+并且这是一项国际化的努力
+
+not just necessarily one or two
+
+不只是一两个
+
+But it was probably from this country and UK is
+
+但这可能是来自这个国家和英国是
+
+as Dr. Fleming was saying
+
+就如弗莱明博士所说的
+
+and many others, is, am I correct in saying that?
+
+和其他许多的，是，我说的对吗？
+
+Dr. Yan
+
+闫博士
+
+I think, from the de Darling to equip （26:47）
+
+我认为，依据科学事实来看
+
+Of course, this is a project
+
+当然，这是一个计划
+
+Directed plan by the Chinese Communist Party government,
+
+由中国共产党政府指导的计划
+
+and the big, biggest role behind is a Chinese military medical academic,
+
+而最大，最大的角色是中国军事医学学者
+
+we can see here shadow behind those work
+
+我们可以在这里看到这些工作背后的阴影
+
+And also, they are a lot of civil labs get involved,
+
+并且，他们有许多的民用实验室的参与
+
+like the WIV, and even
+
+就像武毒所，而且甚至
+
+there are many important experience from my previous lab,
+
+我以前的实验室有很多重要的经验
+
+the University of Hong Kong — the WHO lab
+
+香港大学—世界卫生组织实验室
+
+and beside these things,
+
+而且除了这些东西
+
+they are a lot of international scientists donated inside
+
+他们是很多国际科学家捐赠的
+
+But these international scientists,
+
+但是这些国际科学家们
+
+they may not know the real thing to get involved
+
+他们可能不知道他们真正参与其中的事情
+
+because the Chinese communist Party.
+
+因为中国共产党
+
+They won’t trust anyone,
+
+他们不信任任何人
+
+especially when this is a foreigner from foreign country,
+
+特别是当这个外国人是来自外国
+
+which is not that easy to be controlled
+
+的科学家不是那么容易控制的
+
+but they know how to use like money，or in a scientific world,
+
+但是他们知道如何利用金钱, 或在科学界
+
+your paper, use promotion opportunities,
+
+你的论文，利用晋升机会
+
+all these things to influence and then control that.
+
+所有这些东西都会影响然后控制它
+
+And also, the money, as we discussed before from different countries taxpayers.
+
+而且，正如我们之前讨论的，研究资金来自不同国家的纳税人
+
+Yes go into China because they feel China is providing some environment,
+
+是的，进入中共国是因为他们觉得中共国正在提供一些良好的科研环境，
+
+to give them good outcome,
+
+得到好的科研结果
+
+but actually, this money they could use for this kind of bad purpose,
+
+但实际上，这笔钱他们可以用于这种不良目的，
+
+and also somehow they managed to get word out of the international surveillance .
+
+而且他们设法以某种方式躲避国际的监视
+
+And meanwhile, some medical journals
+
+同时，一些医学期刊
+
+like Cell, Nature, Science, Lancet, New England Journal
+
+像细胞，自然、科学、柳叶刀、新英格兰杂志
+
+they all get very well collaboration with Chinese Communist Party
+
+他们都和中国共产党有很好的合作
+
+because China government gave a lot of money to help them develop
+
+因为中共国政府捐了很多钱来帮助他们发展
+
+and also there are a lot of people who can’t get good.
+
+xchange of maybe other part time chance in China
+
+你知道作为交换可能在中共国得到兼职工作
+
+So these journals also help Chinese Communist Party in powering up
+
+因此，这些期刊还帮助中国共产党加强
+
+and also spreading misinformation and doing the censorship
+
+并散布错误信息并进行审查的能力
+
+So this is a the long term after the case
+
+所以这是一个长期的
+
+that kind of long term strategy to in Chinese Communist Party
+
+中国共产党的那种长期战略
+
+And during this time they did make a big international,
+
+在这段时间里，他们确实建立了庞大的国际的
+
+I mean huge international network involving the important scientists
+
+我的意思是庞大的国际网络涉及重要的科学家
+
+important journal， important organizations
+
+重要的期刊，重要的组织
+
+like WHO and even NIH
+
+像世卫组织，甚至美国国立卫生研究院
+
+And all these even media together
+
+与所有这些甚至媒体一起
+
+That’s why when it happened
+
+这就是为什么当它发生的时候
+
+You know people, most of people,
+
+你知道，人们，大多数的人
+
+even the scientist fall into their pieces from nature
+
+甚至有些科学家也陷入了他们的来自大自然的（说法）
+
+Or this is something we cannot treat at
+
+或这是我们无法解决的
+
+how we would forward a novel vaccine,
+
+我们将如何开发新型疫苗
+
+all these things actually are made up
+
+所有这些东西实际上都是捏造的
+
+to help Chinese government achieve their evil goal.
+
+帮助中国政府实现其邪恶目标。
+
+Karladine
+
+卡拉丁
+
+Well, I had been told that the editors of many of these journals received quite a bit of mon-ey
+
+好，有人告诉我，其中许多期刊的编辑都收到了很多钱
+
+And there’s so many exchanged for articles that certainly not only China
+
+并且交换的文章太多了，不仅限于中共国
+
+But the big pharmaceuticals, also,
+
+但是大的制药公司，并且
+
+are trying to slant that information so
+
+正在尝试倾斜该信息，
+
+when I was, I’m I’m older so
+
+当我是，我现在老了，所以
+
+when I went to medical school
+
+当我上医学院时
+
+when I after got out, you know,
+
+当我毕业后，你知道
+
+the New England Journal of Medicine and so on
+
+新英格兰医学杂志等等
+
+was kind of the mainstay of us.
+
+是我们了解最新消息
+
+Knowing what was up to date.
+
+的主要来源
+
+So are you saying that these journals are not really reliable for true.
+
+那么，你是说这些期刊不是真的可靠吗？
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接： [https://rumble.com/vfy3xf-lethal-deception.html](https://rumble.com/vfy3xf-lethal-deception.html)
+
+英听校： 康州盘古农场 – Layka
+
+翻译： 康州盘古农场 – Layka
+
+翻译终校：康州盘古农场 – Mike Li
+
+字幕+视频制作：康州盘古农场-天涯行
+
+审片：康州盘古农场- 银龙
+
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
