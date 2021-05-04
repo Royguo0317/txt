@@ -1,110 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（十三）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1171006/)
+## 【墙内404】五四运动中的反基督教活动
+` Hezekiah` [轉載自GNews](https://gnews.org/zh-hans/1171110/)
 
-作者：纽约香草山信息部 6zero4
+*（以下内容由发布者个人引用自互联网，以供读者自行品读思考，其中观点不代表G-News平台意见。）*
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+**作者：网络不详**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04110420/404-2021-05-04-May4-Wiki-coverphoto.jpg)Wiki
+有关五四运动的历史，不需要再说，探究五四运动之中产生的反基督教活动。自从基督教传入中国以来，反对的声音和行动一直不断，义和团运动已经使反基督教活动到达了一个顶峰， 由于相貌、语言、文化的巨大差异，造成封闭的中国社会对基督教的极大不信任和恐慌，但有意思的是，作为愚昧的社会底层人士，他们反对基督教还情有可原，可是作为眼界开阔的知识分子，却也有更多的人加入了反基督教活动中，其中不乏李大钊、陈独秀、蔡元培等大腕。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04110922/404-2021-05-04-May4-ChenDuxiu-1.jpeg)陈独秀（图片来自网络）
 
+义和团之乱结束后，反对基督教的活动进入一个比较温和的时期，之后的孙中山、宋教仁都是基督徒，基督教青年会、中国内地会等发展很快，国语的和合本圣经1919年翻译出版，世界基督教学生同盟第11次大会于1922年4月4日在北京举行。
 
-5月1日塞林博士的8连推：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04112149/404-2021-05-04-May4-YiHeTuan-1.jpeg)义和团（图片来自网络）
 
-第1推，中文推：我们将一起为中国人民打败中国共产党，并贴出一张写着“神赐美好家园”的新中国联邦国旗，飘荡在喜马拉雅山巅。
+按照正常的理解，作为新文化运动的发起人，陈独秀李大钊等人应该对基督教持有宽容的接纳态度才对，但事实上他们却一直对基督教持有批评态度。
 
+1919年春 ，中国在巴黎和会上的外交失败 ，激化了中国与列强的民族矛盾 ，爆发了汹涌澎湃的五四爱国运动。五四运动和后来的五卅惨案、六二三惨案把中国人民的反帝爱国斗争推向一浪又一浪的高潮。由于基督教是从西方传来 ，并且它在中国的传播本身带有不平等条约的背景 ，因而“城门失火 ，殃及池鱼” ，基督教在中国受到广泛非议和冲击就是很自然的了。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04110442/404-2021-05-04-May4-ShaoNianZhongGuoXueHui.jpeg)少年中国学会（图片来自网络）
+五四之后共产国际带领中国共产党发起了有组织的非基督教运动，得到青年和知识分子的热烈回应。时任共产国际在华工作全权代表的俄国人利金，拟定了反对基督教运动之计划。一些青年学生在上海社会主义青年团（中国共产主义青年团前身）的倡议和领导下，于1922年3月4日成立非基督教学生同盟，设立章程，规定同盟以反对基督教为宗旨，并于3月9日在社会主义青年团机关报《先驱》第四期发表特刊，发布《非基督教学生同盟宣言》及其通电，号召全国学生，起来反对将于4月4日召开的世界基督教学生同盟大会。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04110505/404-2021-05-04-May4-magzines.png)图片来自网络
 
-> 我们将一起为中国人民打败中国共产党[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/EMetvJ71ZN](https://t.co/EMetvJ71ZN)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 30, 2021](https://twitter.com/LawrenceSellin/status/1388167750682562567?ref_src=twsrc%5Etfw)
+由五四运动所激发的中国青年学生反对基督教的情绪借着反对这次世界基督教大会爆发出来。开会之前 ，1922年3月9日 ，发表了《非基督教学生同盟宣言》 ，该宣言揭露基督教曾制造了许多历史上的罪恶 ，并还在继续帮助资本主义制造新的罪恶；宣言认定“资本主义社会是不合理的 ，非人道的” ，因而基督教是“助桀为虐”的恶魔。此后又再次发表非基督教同盟宣言和两个通电。第二次宣言中有一著名的极端口号：“有宗教可无人类 ，有人类应无宗教 ，宗教与人类不能两立。”这两次宣言和两个通电发出后 ，引起全国学生界的响应。
 
+此后 ，上海《民国日报》专辟非基督教特刊 ，广州《民国日报》也开辟“反基周特刊” ，以此将反基督教运动推向全国。北京、上海、河南、四川、湖南、安徽、江西、武汉、宁波等地都有非基督教或反文化侵略同盟的组织。中国共产党和中国共产主义青年团在非基督教运动中起了重要的推动作用。
 
+1924年12月 ，《中国青年》曾发表文章 ，提议12月24日至26日三天 ，为全国一致反基督教运动的日子 ，号召全国青年积极参加。中国青年社出版了《反基督教运动》专辑 ，其中有蔡和森、恽代英、杨贤江、朱执信等批判基督教的文章 ，作为反基督教运动的宣传材料。如恽代英1925年写《打倒教会教育》一文 ，指出：百万民众 ，“正在帝国主义者派遣来的一般牧师、神父、教会教育家手中 ，受他们的蛊惑劫制。我们天天怕色彩 ，怕党派；帝国主义者已经借教堂、学校、青年会的帮助 ，在中国造成这样一个大的党派了。我们愿意永远一盘散沙地屈服于他们这种党派行动之下么？还是我们应当为反对他们而即刻组织起来？”杨贤江《反对基督教运动》一文指斥教会学校对青年学生的压迫：
+1. 专制。不许学生自由行动 ，自由思想。
+2. 恐吓。骗小学生说 ，“不信上帝 ，有魔鬼来”。
+3. 强迫。不信教的也要做礼拜 ，也要查经。
+4. 虐待。不做礼拜 ，不准请假 ，还要挨饿。
+5. 守旧。课本、教法、行政 ，都陈旧不堪。
+6. 禁止爱国。平时辱骂中国 ，不许参加爱国运动 ，此类事甚多。
+7. 妨碍个性发展。用耶教经典 ，用严厉办法 ，使学生先入为主 ，学非所用 ，完全不合科学道理。
+文章最后号召在拥护真实与自由的前提下 ，反对基督教和教会学校。
 
-第2推，也是中文推：相信中国人民胜利的士兵。贴图是一张4位美国军人在新中国联邦国旗下的图片，4位美国军人分别是Joseph Stilwell, Claire Chennault, Jimmy Doolittle & Lawrence Sellin。
+与此相对的是，周作人等人提出了相反意见，他们发表了《主张信教自由宣言》，原载1922年3月31日《晨报》，宣言中说道：“我们不是任何宗教的信徒，我们不拥护任何宗教，也不赞成挑战的反对任何宗教。我们认为人们的信仰，应当有绝对的自由，不受任何人的干涉，除去法律的制裁以外，信教自由，载在约法，知识阶级的人应首先遵守，至少也不应首先破坏。我们因此对于现在非基督教非宗教同盟的运动表示反对。”
 
+这样一来，反基督教活动与支持基督教活动形成了对立。并且反基督教活动促进了另外一个结果：基督教本色运动的发展，这个本色运动，我们可以看做是三自爱国教会的先期活动。
 
+所谓“本色运动”是指将基督教会办成自理自养自传的中国化教会 ，或者说 ，就是基督教中国化的运动。本色运动的目的任务有两点：一是 ，教会在经济上、工作上、行政上都以中国教徒为主 ，外国教士为辅 ，其目的无非是要摆脱基督教所具有的不平等条约背景 ，以增强对中国人的吸引力。二是要发扬东方固有的文明 ，使基督教与中国文化结合。有的教会为了洗刷或弱化基督教的西洋色彩 ，在改革基督教的礼仪上做了种种实验。而一些基督教学者则更重在研究如何从思想文化上促成基督教与中国的调合。
 
-> 相信中国人民胜利的美国士兵[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/CG9YWgooSu](https://t.co/CG9YWgooSu)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 30, 2021](https://twitter.com/LawrenceSellin/status/1388182835601739782?ref_src=twsrc%5Etfw)
+反基督教活动在政治、文化的影响下，迅速发展壮大。特别是广州和湖南两地。广州因是国民革命的中心 ，有国民党中央党部和国民政府做后盾 ，非基督教运动蓬勃发展 ，不光是共产党 ，而且国民党一些领袖人物如汪精卫、朱执信、李石曾等都对基督教持否定态度。1926年12月“反基督教活动周”几乎酿成暴力反教事件 ，幸得鲍罗廷制止 ，未造成严重后果。但福建、浙江、湖南、江苏、江西、湖北等处常有捕捉传教牧师 ，反缚戴纸帽游街等过激事件发生 ，甚至有牧师丧命、教会学校遭受破坏的事件发生。
 
+正当反基督活动如火如荼的时候，伴随着大革命的失败，这场反基督的活动悄然归于平静，而基督教，伴随着国民政府的宽容态度，逐步在中国稳定发展起来。     反基督教活动是中国人民反帝国主义政治运动的产物 ，它与如何从历史上、宗教上评价基督教完全是两回事。五四的宗旨是反日，不是广义的反帝。反对帝国主义是列宁主义的重要部分，五四以后在苏联的推动下，国内左倾政治思想和民族主义思想不断发展，推动了反帝运动的发展。前述1922年3月的《非基督教同学同盟宣言》，反对基督教的理由就是因为它帮助“资本主义”“掠夺我国经济”，就是反帝的意思。
 
+当把反对基督教活动提高到了反对帝国主义的高度上以后，除了极少数的学者以外，例如周作人胡适等人，大多人都会被这一股洪流席卷。不过这也验证了一句话：清醒者是少数的。正是周作人等少数清醒者，为宗教自由保留了一丝希望，但是这个希望随着历史走向的选择而彻底破灭。
 
-第3推，转发2021年1月16日中共“央广网”军事专栏的一篇文章“军事科学院首届‘最美军科人’评选揭晓”。请给出意见。比赛的目的是什么？
+**而这一句极端的：“有宗教可无人类 ，有人类应无宗教 ，宗教与人类不能两立。”在今天看来，更是一个天大的笑话。**
 
+* * *
 
+*供稿：盐与光
+编辑/发布：Hezekiah*
 
-> 请给出意见。 比赛的目的是什么？[https://t.co/qUFoBj7Zsy](https://t.co/qUFoBj7Zsy)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388349669395337216?ref_src=twsrc%5Etfw)
-
-
-
-第4推，转发“慕尼黑感恩”战友的中文推：随手搜了这位“孙岩松”，就发现了让人心跳加速的“宝藏”：军事医学研究院(AMMS)在2018年申请专利：分别是高等级生物安全防护式中小 / 中大动物病原体空气传播实验装置(CN209435971U) / (CN209435980U)，军方提前两年开始做病毒飞沫和气溶胶传播的动物实验！！！并贴出这两份专利文件及孙岩松的照片。塞林博士中英双语推：COVID-19探源之“慕尼黑感恩”找到了一些重要的信息。请顺藤摸瓜搜索更多并将搜索结果放在这里。（孙岩松真容浮出水面）
-
-
-
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@himalaya\_de](https://twitter.com/himalaya_de?ref_src=twsrc%5Etfw) has discovered some very important information. Please follow his trail and post your results here.
-> COVID-19 detective @ himalaya\_de
-> 找到了一些非常重要的信息。 请搜索更多。 将结果放在这里。 [https://t.co/4SHyBomWNi](https://t.co/4SHyBomWNi)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388355157272973314?ref_src=twsrc%5Etfw)
-
-
-
-第5推，再次转发“慕尼黑感恩”战友的推文：童贻刚在2016.1-2019.12期间领导了一个秘密军事项目（与WIV合作），现在他正在招募研究员以优化他热衷的穿山甲冠状病毒GX\_P2V的感染性及其治疗药品，这是参与“计划好的”疫情并掩盖病毒真相等黑手的绝佳时机，并贴上该项目计划书及相关论文的截图，以及附上童贻刚、曹务春等4人的照片。COVID-19探源之“慕尼黑感恩”又一个重大发现，童贻刚是与WIV联系的军方人物，这个线索还与哪些与病毒起源有关的军事实验室有关联？
-
-
-
-> Another important discovery by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@himalaya\_de](https://twitter.com/himalaya_de?ref_src=twsrc%5Etfw)
-> Yigang Tong is the military link to the Wuhan Institute of Virology. How does that link connect to others that would explain the military lab [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) ? [https://t.co/DG6tjDRI3W](https://t.co/DG6tjDRI3W)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388359960485146625?ref_src=twsrc%5Etfw)
-
-
-
-第6推，转发“火来2号”战友的中文推，将与军事医学科学院(AMMS)有关的中外科研人员的照片都贴出来了。COVID-19病毒探源之“火来2号”准确地用正确的向外传播的病毒研究网络分析工具，以呈现PLA-AMMS如何将‘民用’研究所/大学机构与国际上的实验室连接起来的关键环节，线索基于5W(who, what, where, when & why) 。
-
-
-
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) uses exactly the correct outwardly-spreading virus research network analysis. A PLA AMMS core linked to Chinese "civilian" institutes/universities connected to international labs. The 5 Ws, who, what, where, when and why. [https://t.co/tkTub7ZSLH](https://t.co/tkTub7ZSLH)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388369261996003328?ref_src=twsrc%5Etfw)
-
-
-
-第7推，在CCP病毒产生前其福林酶切位点的理论基础已经成型，基于惠塔克(Whittaker)分析工具，姜世勃的人工插入福林酶切位点，是PLA的卢广文和高福渴望已久、梦寐以求的法宝，脯氨酸的介入是为了提高其稳定性和酶的利用率，并贴上相关论文的网页截图。
-
-
-
-> The conceptual basis for [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)'s furin cleavage site (FCS) was in place before the [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) was created. Whittaker's analysis, Shibo Jiang's artificial FCS insertion & PLA Guangwen Lu & George F. Gao's eagerness for doing so. Proline was added for stability & enzyme access. [pic.twitter.com/rn0vHJzEF1](https://t.co/rn0vHJzEF1)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388456407146635270?ref_src=twsrc%5Etfw)
-
-
-
-第8推，继续转发“火来2号”战友的中文推：“闫博士今天在The National Pulse的采访中，谈到了功能获得性研究gain of function。我们再次回顾下拉尔夫巴里克再一次网络会议中，说到功能获得性研究时，那得意的笑，让人不寒而栗”，并附上该段视频。“这些都是非常自大的人，巴里克知道真相，但他隐藏了自己的同谋，并保密自己的资金来源，在我看来，这些人和在实验室制作病毒的人同罪”。
-
-
-
-> These are very arrogant people. Baric knows the truth, but he is hiding his own complicity and wants to protect his source of funding. In my opinion, such people are just as criminal as those who created [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) in the laboratory.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/Fz0N0d8mWl](https://t.co/Fz0N0d8mWl)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388479385121038339?ref_src=twsrc%5Etfw)
-
-
-
-CCP病毒产生前最核心理论基础就是姜世勃的福林酶切位点人工插入，这让PLA生物战计划项目科研领军人物卢广文和高福如获至宝、喜出望外，军方孙岩松提前两年开始做病毒飞沫和气溶胶传播动物实验的专利证据，以及童贻刚招募研究员优化穿山甲冠状病毒GX\_P2V的感染性及其治疗药品以混淆视听掩盖病毒真相这些铁证，必将把CCP-PLA钉死在人类历史的耻辱柱上！
-
-有理由相信塞林博士在引领COVID-19病毒溯源过程中，许多情报信息是来自新中国联邦爆料革命，尤其是来自文贵先生和闫博士等的第一手情报信息甚至实锤证据，因此塞林博士内心无法掩盖对新中国联邦的热爱和尊重，毫不掩饰地贴出了我们新中国联邦的国旗，甚至将二战期间中美两军亲密合作缔结两国人民坚定盟友的3位美军将领Joseph Stilwell, Claire Chennault, Jimmy Doolittle，以及穿军装的塞林博士自己的照片一起贴在新中国联邦的国旗下，这意味深长而重大：这4位美军军官将加入新中国联邦的护旗手队伍，发扬中美两军精诚合作、并肩作战的历史传统，不畏艰难困苦，勇变不可能为可能，誓死在COVID-19超限生物战中找到真相，消灭邪恶至极的CCP！
-
-校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-+2
++1

@@ -1,33 +1,110 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国“伊丽莎白女王”号航母打击群部署印太威慑中共
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1171078/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（十四）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1171044/)
 
-#### **翻译：**Kal | 校对：人间四月
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04110456/%E4%BC%8A%E4%B8%BD%E8%8E%8E%E7%99%BD.jpg)图片来源：Edward H. Lundquist / Defense Media Network
-据美国退役海军上将詹姆斯·斯塔夫里迪斯（James Stavridis） 在彭博社（Bloomberg）2021年4月30日撰写的文章，一个以“伊丽莎白女王”号航空母舰为首的英国海军战斗群将“全球英国”战略带到印度-太平洋地区。
+作者：纽约香草山信息部 6zero4
 
-在斯塔夫里迪斯上将的美国海军生涯中，他喜欢在海上与英国皇家海军合作。英国军舰一直都操控良好，配通讯员训练有素，必要时，它们在海上作战上有相当攻击力。当你访问他们的时候，你可以在军官室用午餐时里喝一杯啤酒，这与美国海军自己的“禁酒”船不同。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-上世纪90年代，斯塔夫里迪斯上将花了相当多的时间在诺丁汉号(Nottingham)执行任务，这是一艘驱逐舰，由一位年轻的指挥官伊恩•蒙克里夫(Ian Moncrieff)领导，他后来成为一名英国海军上将，至今仍是斯塔夫里迪斯上将的密友。在北约组织（North Atlantic Treaty Organization ）对饱受战争蹂躏的巴尔干半岛海岸实施武器禁运行动中，他的舰艇是多国部队中的佼佼者——比斯塔夫里迪斯上将自己的新阿利·伯克级驱逐舰表现得更好，尽管诺丁汉号老十岁。
 
-有消息称，自1982年马岛战争以来英国将首次向海上派遣一支满载弹药的航母打击群，这提醒了美国的盟友在全球的实力。鉴于这支舰队将部署在印度洋和太平洋，计划在印度、日本、新加坡和韩国停留，这显示了这些盟国在美国与中共日益激烈的对抗中表现出的团结。
 
-以6万吨“伊丽莎白女王”号航空母舰为中心的打击群，包括两艘前线防空驱逐舰和两艘实力强大的反潜护卫舰，以及一艘核潜艇。
+5月2日塞林博士的8连推：
 
-空军联队由第五代联合攻击战斗机组成，由美国和包括英国在内的盟国组成。此外，舰上有一组非常有能力的直升机，能够攻击水面舰艇和潜艇，并进行远程侦察和瞄准。虽然“伊丽莎白女王”号没有装备像美国航母上的弹射器(10万吨推力)，少40%空气机翼的空中力量，但它仍然是一个强大的存在。
+第1推，转发“Zion a Deplorable老百姓”战友响应塞林博士征集CCP病毒信息的推文：夏咸柱在PLA-AMMS获得的专利表明他参与了流感病毒的功能获得研究（源于Anna的挖掘），并贴上该专利的网页截图及夏咸柱的照片。重磅，显然PLA的核心兽医生物战小组进行了生物武器研究，COVID-19病毒探源的“Zion a Deplorable老百姓”和Anna战友合作发现了铁的证据，PLA将其伪装成疫苗研究，并正在制造耐热病毒，这是持久性生物武器的关键目标。
 
-值得注意的是，将有一艘配备宙斯盾导弹防御系统的美国驱逐舰以及一艘先进的荷兰战斗舰，分配给英国打击群。
 
-所有这些都代表了英国首相鲍里斯·约翰逊(Boris Johnson)政府在完成脱欧后推崇的“全球英国”愿景。该打击群最终将访问印度-太平洋地区的40个国家。与所谓的“四方框架”(澳大利亚、印度、日本和美国)类似，英国将强调与澳大利亚、马来西亚、新西兰和新加坡达成的 “五大国”防御协议。对美国来说，这样的盟友和朋友在安全方面靠自己完成的越多，就越好。
 
-不出所料，中共对这一部署感到不满，称其为该地区的外部干涉。同样，中共政府对包括法国和德国在内的其他欧洲国家在南中共海的“航行自由”巡逻也做出了负面反应。另一方面，日本和其他太平洋国家热烈欢迎英国的部署。
+> Huge. Clearly bioweapons research by PLA's core veterinary biowarfare group. [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detectives [@ZionaEmanuel](https://twitter.com/ZionaEmanuel?ref_src=twsrc%5Etfw) & [@2020Gladiator](https://twitter.com/2020Gladiator?ref_src=twsrc%5Etfw) team up to uncover damning evidence. Disguising it as vaccine research, the PLA is making heat-resistant viruses, a key goal for persistent bioweapons [https://t.co/o5uqNluRnW](https://t.co/o5uqNluRnW)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388715782415261698?ref_src=twsrc%5Etfw)
 
-英国在这片海域强势的存在不仅会受到华盛顿的欢迎，也会受到位于夏威夷的美国太平洋舰队总部的欢迎，尤其是位于日本横须贺的美国第七舰队。美国海军知道，面对中共将是最终的团队作战1。
 
-**评：**英国“伊丽莎白女王”号航母打击群首次部署印太是“新八国联军”回应中共挑战国际底线的一个缩影。包括英国在内的世界各国在CCP病毒的祸害下，国内社会矛盾重重，经济危机深重。历史告诉我们历朝历代的统治者都会通过转移国内矛盾为对外战争。中共利用“假、骗、偷”扰乱世界壮大自己，同时又释放CCP病毒祸害苍生，其邪恶招之“人神共愤”，遭“天下围攻”只是时间问题。
 
-原文链接：[Britain’s Royal Navy Is Sending a Warning to China](https://www.bloomberg.com/opinion/articles/2021-04-30/u-k-s-royal-navy-is-sending-a-warning-to-china-in-the-indo-pacific)
+第2推，转发“Sweet Journey”战友响应塞林博士征集CCP病毒信息的中英混合推：跟着钱的线索挖掘！挖掘与 “重大项目、973、863、十一五、十二五、国家自然科学基金、杰青”等项目有科研经费拨款的人物，这样的情况很多，找到负责“结题报告”的人，你将发现所有你需要的东西。跟着资金的线索挖掘，是“Sweet Journey”战友提供的一种可靠思路。
 
-+1
+
+
+> Follow the money.
+> A solid lead worth pursuing offered by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@SweetJourney1](https://twitter.com/SweetJourney1?ref_src=twsrc%5Etfw) [https://t.co/5kqsQfPSTs](https://t.co/5kqsQfPSTs)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388720369033519109?ref_src=twsrc%5Etfw)
+
+
+
+第3推，转发“Citizen Journalists”战友的中文推：于志君，其博导夏咸柱典型地通过小鼠模型进行动物传代获得增强型毒株的实验，结合去年川普总统和七哥对H1N1流感的描述进行分析，并附上相关报道文章的网页截图。基于“Citizen Journalists”战友的推文，中共国的科学文献暴露了CCP的病毒功能获得研究之广度和深度，并贴上夏咸柱的照片及相关报道截图。
+
+
+
+> As [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@NFSC\_007](https://twitter.com/NFSC_007?ref_src=twsrc%5Etfw) notes in his Tweet below, the Chinese scientific literature reveals just how deep and widespread the CCP's virus "gain of function" research is.
+> 夏咸柱（Xia Xianzhu)[https://t.co/3I5N4s3LhQ](https://t.co/3I5N4s3LhQ) [pic.twitter.com/oZvcVN3VNq](https://t.co/oZvcVN3VNq)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388727914276007938?ref_src=twsrc%5Etfw)
+
+
+
+第4推，转发“Jac Sr. Returns”战友回应上面第一推的推文：与该实验室相同的地址隶属于中国农业科学院长春兽医研究所病毒研究实验室，是吉林省人畜疾病预防控制重点实验室及科技创新中心的重要组成部分。以长春为中心的PLA兽医团队及其在吉林省内的关联机构对CCP的生物战计划至关紧要。
+
+
+
+> Please note these key Tweets by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jacksrreturns](https://twitter.com/jacksrreturns?ref_src=twsrc%5Etfw)
+> The PLA veterinary group centered in Changchun and its associated institutions in Jilin Province are critical to the CCP's biowarfare program.[https://t.co/RbvpQTCU5P](https://t.co/RbvpQTCU5P)[https://t.co/jFF7M5a3zA](https://t.co/jFF7M5a3zA)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388732548939927552?ref_src=twsrc%5Etfw)
+
+
+
+第5推，转发一篇4月22日发表在bioRxiv的文章“印度Maharashtra邦第二波COVID-19疫情中SARS-CoV-2刺突突变L452R、E484Q和P681R的趋同进化”。依我之见(IMO)：CCP军事科学家将福林酶切位点人工插入COVID-19病毒，为更具传染性和致死性的印度P681R(脯氨酸转精氨酸)突变创造了条件，从而使福林酶切位点更加危险。
+
+
+
+> IMO: The artificial insertion of a furin cleavage site (FCS) into [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) by Chinese Communist Party military scientists created the conditions for a more contagious & lethal Indian P681R (proline to arginine) mutation making the FCS much more dangerous.[https://t.co/HUPTrBhsYn](https://t.co/HUPTrBhsYn)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388740244695142401?ref_src=twsrc%5Etfw)
+
+
+
+第6推， P681H(脯氨酸转组氨酸)及更危险的PD81R(脯氨酸转精氨酸)这两个突变，表明了COVID-19的福林酶切位点的人工属性，在任何自然界的近蝙蝠冠状病毒亲戚中都不存在，并贴上相关基因序列对比图片。
+
+
+
+> The two mutations, P681H (proline to histidine) and now the more dangerous Indian P681R (proline to arginine) point to the artificial nature of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) 's furin cleavage site, which does not exist in any natural close bat coronavirus relative.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/oJBxnCbsPs](https://t.co/oJBxnCbsPs)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388744397005668354?ref_src=twsrc%5Etfw)
+
+
+
+第7推，转发Anna战友的中英混合推文：卢广文，南方医科大学即第一军医大学生物工程学院教授，并贴上卢广文及其南方医科大学的照片。这是一位与中共CDC主任高福关系密切的PLA军事科学家，其本人与军方有着广泛的联系，在CCP控制下的中国，军用与民用研究是交织在一起的。（卢广文真容浮出水面）
+
+
+
+> A PLA military scientist who is closely linked to George F. Gao (Gao Fu), head of China's Centers for Disease Control (CCDC), who himself has extensive links to the military. In [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) -controlled China, military and "civilian" research are fused.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/E0FnIVlDkK](https://t.co/E0FnIVlDkK)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388748917098024960?ref_src=twsrc%5Etfw)
+
+
+
+第8推，转发AjaySachdev战友对第一推回应的推文：转发2020年7月24日路透社发表在WION上的一篇文章“在病毒剧变后，中共国与巴基斯坦达成了制造生物武器的协议”，中巴生物武器协议与当下印度疫情爆炸性蔓延之间可能的相关性需要急速得到调查，这启发于扣人心弦的间谍惊悚片“纳格里布行动”作者的分析。塞林博士完全认同中巴生物武器协议之间的关联必须被调查清楚。
+
+
+
+> Yes, the biowarfare links between Pakistan and China need to be investigated.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CovidIndia](https://twitter.com/hashtag/CovidIndia?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/7ksqYwPAH1](https://t.co/7ksqYwPAH1)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388768893041352705?ref_src=twsrc%5Etfw)
+
+
+
+“跟着钱的线索挖掘”是当下病毒溯源战场上的一把利器。夏咸柱关于流感病毒功能获得研究的专利，表明PLA的核心兽医生物战团队打着疫苗研究的幌子进行生物武器研究，并正在制造耐热病毒，这是持久性生物武器的关键目标，以铁的事实证明了当下COVID-19就是无温度和地域敏感性的生物武器。已经曝光的中共国科学文献也暴露了CCP对病毒功能获得研究的广度和深度， 尤其是以长春为中心的PLA兽医团队及其在吉林省内的关联机构对CCP生物战计划至关紧要！
+
+在任何自然界的近蝙蝠冠状病毒亲戚中都不存在的COVID-19福林酶切位点，是人工属性的确凿证据，也为更具传染性和致死性的印度P681H 和P681R两个突变创造了条件。当下犹如炼狱的印度疫情是不是倍感蹊跷？中巴生物武器协议与当下印度疫情爆炸性蔓延之间的关联性需不需要快速得到调查？
+
+校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

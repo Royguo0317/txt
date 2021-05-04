@@ -1,15 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210504
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1170879/)
+## 【世事解评】冠状疫苗是预防还是加速传播？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1171016/)
 
-- 制图：透明的遮羞布
-- 编辑：神奇四侠
+作者：纽约香草山健身部 阿年
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101620/01-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101640/02-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101700/03-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101720/04-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101741/05-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101801/06-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101819/07-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101837/08-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101853/09-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101911/10-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101934/11-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101947/12-1-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102008/12-2-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102031/13-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102048/14-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102105/15-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102127/16-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102146/17-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102204/18-2.jpg)
-以上文字图片仅代表作者个人观点，与GNEWS无关
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01223226/logo.jpg)
 
-发稿：神奇四侠
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04110034/image0-11.jpg)
+
+#### 冠状病毒的特性
+
+1. 强变异：经过传播数次后，病毒不断变异且增强。
+2. ADE效应：抗体依赖性感染加剧效应。一般情况下，人体因为外在病毒的感染，自身免疫系统会产生抗体，并在痊癒后，生成免疫的功能。然而，因为冠状病毒具有变异性，所以当人们二度感染变异后的病毒时，人体的免疫系统会误以为病毒已被有效控制，而不作设防，进而导致出现比没有抗体的人更加严重的症状，以及更高的致死率。
+
+
+#### 疫苗的有效性疑虑
+
+1. 病毒残留疑虑及后遗症的产生原因不明，甚或为一辈子的健康阴影。
+2. 疫苗制造商声称已具有防止ADE效应的效果，但是，SARS 及登革热已经出现多年，仍未能研制出有效疫苗，更遑论ADE效应的应对，何以比这两种病毒更具杀伤力的COVID-19 能在短短6个月内成功(瑞德西韦甚至几乎与病毒开始爆发同时出现，而且隔天中共某药厂即取得中国大陆之专利）？
+3. 巴西、印度的疫情大爆发，为什么都是在全面性施打疫苗后，也就是病毒经过传染变异后出现。
+4. 中共用尽所有办法：免费+鼓励措施+疫苗护照软硬兼施达到全面施打疫苗的目的，为的是人民健康福祉吗？
+5. 中共除了在自己国家，还在全世界利用其疫苗外交，或赠送或私下利益勾兑，软硬兼施促销其疫苗，所欲为何？
+6. 各国为了免责於防疫不力的口实，竞相实施疫苗之接种，而避谈疫苗是否遵行阶段性临床试验及评估结果，更遑论有效性之评估。
+7. 各国免费施打疫苗的背后，仍是用国民纳税的钱高额付予製药厂，其中的故事，耐人寻味。
+8. 其他如：使用羟氯喹预防与治疗的有效性说、来自中共实验室说、生化武器说等，在爆发初期，为何都被刻意忽视甚至打压？
+9. 各国制药厂做出的疫苗，全都跳过正规疫苗研发的过程，直接上线，一方面取得暴利先机，一方面当人类为白老鼠，持续研发过程。更藉持续改进之名，持续赚取暴利。试问，真正有效的疫苗出现了吗？
+
+
+#### 结论
+
+1. 羟氯喹是目前為止最有效的预防与治疗处方，平时准备好足够的量，持续并恪守预防的服用週期。一旦感染，也按治疗的服用方式渡过危机。
+2. 面对当今正道主义与邪恶势力的决死交战，只有加入新中国联邦，支持爆料革命，才有机会获得最后胜利。
+3. 即使我们自认起不了多大作用，也不能再置之不理，更不能助紂为虐。现在正是该挺身而出的时候了，为我们的子子孙孙长远福祉创造出真善美的新世界。
+
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

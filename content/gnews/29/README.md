@@ -1,33 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Bill Hwang 的爆仓事件引发出的问题：华融会是下一个吗？
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1171107/)
+## 多国科学家及官员联名要求 WHO 再次调查中共病毒起源
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1171148/)
 
-#### 作者：坐看云起时
+#### 翻译：nstar | 校对：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04115506/zdf.jpg)图片来源：zdf
+据 The Daily Caller 4月30日报道，上周五，由世卫组织（WHO）顾问、大西洋理事会（Atlantic Council）智囊团高级研究员杰米·梅茨（Jamie Metzl) 和来自多个国家的国际科学家和学者在致世卫组织的一封公开信中写道，应授权WHO对中共病毒大流行的起源进行下一阶段的调查，并且要以数据为基础， 应允许该小组访问病原体和样本的关键数据库。这些数据库非常重要，因为它们包含有关尚未发布的病毒数据，其中某些病毒可能与中共病毒密切相关。世卫组织团队应保证获得所需的原始数据（相关记录、样品、项目申请、项目报告、人员信息、实地考察信息、相关电子邮件和实验室笔记本等）。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04111151/1617250316-92526312-g_n.jpg)
+信中还有许多其他建议，包括小组成员的甄选过程透明化，不应允许中共国有否决权；该团队应有相关领域的适合的专家，而不应是“存在利益冲突的专家”， 例如世卫组织第一个团队中唯一的美国成员彼得·达扎克（Peter Daszak）为生态健康联盟（EcoHealth Alliance）工作，该联盟已获得美国拨款在武汉实验室进行研究，这可能与中共病毒大流行的根源有关。
 
-《零对冲》5月4日发文指出，近日Bill Hwang 掌控的百亿美金级别的对冲基金Archegos Capital Management史无前列的爆仓事件引发了市场对中共欺诈性上市骗局的关注。
+美国国立卫生研究院（NIH）主任弗朗西斯·柯林斯（Francis Collins）上周三在众议院能源和商业健康小组委员会（the House Energy and Commerce Subcommittee on Health）的听证会上说，需要对今年3月世卫组织发布的《关于中共病毒大流行起源》的报告进行调查。这个由世卫组织领导的小组被拒绝访问重要数据。世卫组织总干事、白宫、美国国务院和其他13个国家对世卫组织研究小组的报告“有所保留”表示关注。
 
-文中指出，Bill Hwang爆仓事件的特殊性在于他的投资选择。Hwang做多了几个有问题的公司，而这些公司过去一直是卖空机构的目标。   在成为做空者目标的几个月里，Hwang投资的一些股票–比如GSX–也曾出现了密集的看涨买盘，很可能有助于将股票的价格推高几倍，这一点在精明的市场观察者眼中看来是相当不正常的事情。
+世界卫生组织第73.1号的决议是， 今年1月份前往武汉调查中共病毒的起源，其任务仅是识别“病毒的人畜共患病源”，但他们没有执行调查的任务，更不用说对实验室进行法医审计了，取而代之的是“推荐、帮助设计和审查科学研究” 。因此周五的这封信说， 这次必须给WHO团队一个不同的目标：应允许这个新的团队在没有不必要的中共国政府非科学人员在场的情况下开展工作。“对中共病毒的所有可能来源（无论是否是人畜共患的）进行全面的科学和法证研究”， 包括实验室泄漏。
 
-目前尚未证实Bill Hwang 是否参与了这些有问题的股票的期权购买，但他的一些股票选择已经引起了媒体的注意。   《南华早报》指出，”Archegos公司在被指控有欺诈行为的中共国公司的投资上大做文章”。在这篇文章中问道，黄的事件是否是记录片《中共国骗局》中 “未完成的故事 “的结论，这部纪录片阐述了众多中共国公司如何在美国各交易所系统地进行欺诈，牺牲美国投资者和机构资金，把资金抽走。
+华尔街日报（The Wall Street Journal）上周二报道，美国卫生与公共服务部（the U.S. Department of Health and Human Services）、国务院和其他六个联邦机构的官员也计划就其对中共病毒起源的第二次调查向世卫组织提出建议。预计美国将建议对[武汉]实验室工作人员的病历进行审查，并允许国际科学家从实验室或患者那里获得2020年前的病毒株。美国还将建议对动物和人类进行更多测试，以发现新的中共病毒的早期证据。
 
-《南华早报》指出，《中共国骗局》记录片中许多卖空者主角指控过许多中共国公司存在欺诈行为，而这些公司则是Bill Hwang的投资组合中的一部分。除了GSX，还有像爱奇艺和唯品会这样的公司，它们都被做空者如Muddy Waters Research、J Capital Research和Citron Research指出存在欺诈行为。
+评: 美国和其他13个国家对世卫组织发表的有关中共病毒起源的报告提出了怀疑，包括丹麦、挪威、英国、澳大利亚、拿大和日本。 相信还会有更多的国家参入进来。 他们要求中共为下一阶段的调查研究提供更多的“透明度”。以毒灭共的步伐已经开始!
 
-值得令人注意的是，许多这些被指控为欺诈的公司，尤其是GSX，都能以某种方式抵御极有分量的指控并神秘地上涨。但突然间，Bill Huang爆仓了。
-
-这篇文章描述了Bill Huang的持仓是如何一个接一个地降低的，《南华早报》指出，在Bill Huang投资组合这个 “微妙平衡的炸弹 “最终被引爆后，人们的目光转向了中国华融资产管理公司。 南华早报》写道，该资产管理公司 “在其220亿美元的债券中拥有不良资产货币化的投资组合，这些资产正被美国投资者利用”。”在恐慌性抛售之后，惠誉将其对这些债券的信用评级从’A’下调至’B’–比垃圾级高一档。”
-
-文章最后提出问题， 为什么Bill Huang的投资组合中充满了被指控欺诈的公司？为什么他的几个投资对象，如DISCA和VIAC，都神秘地以积极的速度上涨？Bill Huang是否参与了这些公司的期权市场投资？中国华融资产管理公司会是下一个爆炸的炸弹吗？市场将会继续关注并深究更多相关的内情和故事。
-
-评：众所周知，《南华早报》背后势力为党内的江派势力。在此中共内斗白热化，公开化的时刻，《南华早报》出面把Bill Hwang引发全球金融巨震的爆仓事件与中共国资金，中共国在美国上市公司的欺诈行为以及华融资产管理公司联系起来，这背后的深意不禁令人深思。
-
-原文链接：[Bill Hwang’s Blowup Begs Questions About The Next “China Hustle” In Its Wake](https://www.zerohedge.com/markets/bill-hwangs-blowup-leaves-questions-about-next-china-hustle-its-wake?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
-
-* * *
-
-*排版发布：日本东京方舟农场 文柯Miles*
+原文链接：[WHO Team Investigating Pandemic’s Origins Must Have Better Access， Officials And Scientists Say](https://dailycaller.com/2021/04/30/who-team-investigating-pandemics-origins-must-have-better-access-officials-scientists-say/)
 
 0
