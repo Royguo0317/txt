@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新的钻石王老五诞生 比尔盖茨恢复单身
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1169354/)
+## 【每日快讯】05/02/2021：人民银行是最大的抢劫犯有组织有计划的抢劫老百姓
+` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1170808/)
 
-整理撰稿：蓝精灵
+**制作：Cantonese工作室**
 
-比尔和梅林达·盖茨是世界上最富有的两个人，他们通过盖茨先生作为微软联合创始人创造的财富，重塑了慈善事业和公共卫生。周一他们说正在离婚。
 
-数十年来，盖茨先生和女士一直是世界舞台上的强大力量，他们的巨大慈善贡献使他们得以进入最高级别的政府，企业和非营利部门。比尔和梅琳达·盖茨基金会（Bill and Melinda Gates Foundation）拥有约500亿美元的捐赠，在全球卫生和幼儿教育等领域具有巨大影响力，并且在减少由疟疾和其他传染病引起的死亡方面取得了长足的进步。在过去的一年中，这对夫妻特别引人注目，他们经常在全球范围内与Covid-19进行抗争，因为他们的基金会花费了超过10亿美元来对抗这种大流行。
 
-盖茨夫妇在发布到Twitter的声明中说：“经过深思熟虑，并为我们的关系进行了大量工作之后，我们才决定终止婚姻。”
+**播报：【文依】资料整理：【二丫】【kate】【郁金香 】【文林】【深寒】海报制作：【小豆芽】视频制作：【Ken】粤语翻译校对：【文雀】上传：【星星】【向阳6768】**
 
-他们接着说，他们“已经建立了一个可以在全世界运作的基础，使所有人都能过上健康，富有成效的生活”，而且他们“继续对这一使命抱有信念”，但他们“不再相信我们”。可以在我们生活的下一个阶段成双成对地成长。”
+摘要：
 
-编者简评：
-
-在Covid-19这件事情上，比尔盖茨发表了很多超人的言论。在这个敏感的时期，背后究竟有是么样的故事呢？
-
-(以上仅代表作者观点，不代表Gnews平台)
-
-参考链接：
-
-[https://www.nytimes.com/2021/05/03/business/bill-melinda-gates-divorce.html](https://www.nytimes.com/2021/05/03/business/bill-melinda-gates-divorce.html)
-
-校对/发布：Penny
-
+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095504/15_2_of_7-1.png)
+2
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095626/15_3_of_7-1.png)
+3
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095713/15_4_of_7-1.png)
+4
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095812/15_5_of_7-1.png)
+5
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095920/15_6_of_7-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01093124/image0%E9%9D%A2.jpg)
 0

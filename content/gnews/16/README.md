@@ -1,58 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月3日美国政要和政评家推特精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1169142/)
+## 【世事解评】中国人民集体反对“点火文”，亲身实践“中共不等于中国人”
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1170611/)
 
-美国国务院： 拜登总统[@POTUS](https://twitter.com/POTUS)关于美中关系：美国绝不接受不公平的贸易做法，这些做法削弱了美国工人和美国工业的竞争力。美国将不会放弃我们对人权的承诺，我们将在印度太平洋地区保持强大的军事存在。
+作者：纽约香草山健身部Jack Li文阳
 
-
-
-> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) on U.S.-China relations: America will stand up to unfair trade practices that undercut American workers and American industries. America will not back away from our commitment to human rights and we’ll maintain a strong military presence in the Indo-Pacific. [pic.twitter.com/NYOdyXUl56](https://t.co/NYOdyXUl56)
-> — Department of State (@StateDept) [May 3, 2021](https://twitter.com/StateDept/status/1389021891441086475?ref_src=twsrc%5Etfw)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
 
 
 
-国务卿安东尼·布林肯： 降落在伦敦了，很高兴受到伦敦美国使馆的迎接[@USAinUK](https://twitter.com/USAinUK)。英国，我们坚定的盟友，上次主办G7峰会[@G7](https://twitter.com/G7)还是在8年前了。很高兴回来与合作伙伴和盟友们进行这些讨论。Quote Tweet
+近日，中共政法委新闻网站官方微博“中国长安网”发图文丧尽天良地嘲讽印度疫情严重，引发中共国网民愤怒，纷纷表示中共的立场并不代表自己。
+
+在愤怒声中，中共国长安网将该条博文删除，但是网友的谴责没有停止，显然，中共嚣张彰显的“国威”并非民意。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04081932/%E5%9B%BE%E7%89%872-6.png)
+
+中共政法委没想到，自己这篇得意之作，火烧的是中共。其在文中讥讽印度“送人上天”，但在我们看来，政法委此举是要“送中共上天”啊。“点火文”充分暴露了中共泯灭人性的邪恶本质，同时遭到国内外广大网民的集体炮轰。中共这一次真真正正地给国民上了生动的一课——“中共不等于中国人”“中共不等于中国”。只要是有一点点良知的人，还有一点点底线的人，都不会认同中共在这次印度疫情里的冷嘲热讽、落井下石的做法。
+
+每次中共遭遇西方国家制裁时，都推出所谓的“中国人不答应”，故意混淆中共和中国人的概念，并把这种病毒植入中国人民的脑子里。中共绑架14亿人民，每一次危机发生时，都推出这14亿人质，并告诉他们：你们不答应，美国西方要找你们算账。每一次，墙民们都被中共煽动起来，冲在最前面。
+
+斯伯丁将军曾明确地说，要将中共国和中国人民区分开来。他说，当中共受到批评或制裁时，它会依赖于将中共、中国和中国人民之间的概念混淆来挑战美国的政策。“他们是邪恶的角色，是极权主义政权，他们实际上并不支持中国人民。当你批评他们时，你是在批评中共政权，你不是在批评中国这个国家或中国人民。”
+
+蓬佩奥曾将“中共”与“中国人民”进行区分，夸赞中国人民聪明、有能力，强调“美中冲突只是美国与中共的冲突”。与蓬佩奥热情的夸赞中国人民形成鲜明对比，中共异常狠毒的回应称：“企图将中国人民和中共割裂对立的言行……是对全体中国人民的挑衅”。可以看出，把中共和中国人民区分，就是要中共命的法宝。
+
+在中共国外交部新发言人汪文斌上任后的第一场例行记者会上，他无耻地反驳美国将中共与中国拆分的言论，并污蔑美国“百般挑拨中国共产党同中国人民的关系”。中共最反对的就是他最害怕的。
+
+最近，参议员萨斯在参议院听证会上说：美国受到的所有的威胁都来自习近平及中共当局，不是中国人民。这一点，已经得到两党共识。他呼吁两党一定要向美国民主重复这一概念：中共才是加害者，中国人民也是无辜的受害者。
+
+爆料革命文贵先生和美国政要不断的呼吁世人：中共不等于中国人，西方各国各界对此也已经达成共识。中共在全世界释放病毒生物武器，世界各国一定会找中共算帐。中国人民要及早觉醒，与中共切割。新中国联邦叫你们跳车，你们不要还拼命把自己绑在中共的破车上，最后落得个车毁人亡。
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
 
 
 
-> Touched down in London and glad to be welcomed by [@USAinUK](https://twitter.com/USAinUK?ref_src=twsrc%5Etfw). It was eight years ago that the UK, our indispensable Ally, last hosted the [@G7](https://twitter.com/G7?ref_src=twsrc%5Etfw) presidency. It’s good to be back among partners and allies for these discussions. [pic.twitter.com/q1afyAxXNI](https://t.co/q1afyAxXNI)
-> — Secretary Antony Blinken (@SecBlinken) [May 2, 2021](https://twitter.com/SecBlinken/status/1388993577951301635?ref_src=twsrc%5Etfw)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-参议员乔什·霍利： 如果您认为高科技寡头现在已经很吓人了，那请等到它开始与大政府合作来监视您 【附CNN报道：拜登政府可能会与私人公司合作在网上监视国内恐怖嫌疑分子】
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-> If you think [#BigTech](https://twitter.com/hashtag/BigTech?src=hash&amp;ref_src=twsrc%5Etfw) is scary now, wait until it starts teaming up with Big Government to spy on you [https://t.co/im2qKm64Qy](https://t.co/im2qKm64Qy)
-> — Josh Hawley (@HawleyMO) [May 3, 2021](https://twitter.com/HawleyMO/status/1389300618221719555?ref_src=twsrc%5Etfw)
-
-
-
-参议员泰德·克鲁兹： 不，您的工作不是与中国“遵守基于规则的次序”。 你的工作是保卫美国。 【CBSN 60分钟推文: 国务卿布林肯说：“我想把一些事说清楚, 我们的目的不是遏制中国,压制中国.而是维护以规则为基础的秩序，而中共国正在挑战这一次序。” （国务卿布林肯说他从来没见过中共国如此军事扩张）】
-
-
-
-> No, your job is not to “uphold a rules-based order” with China.
-> 
-> Your job is to defend America. [https://t.co/t7zUs0O2f9](https://t.co/t7zUs0O2f9)
-> — Ted Cruz (@tedcruz) [May 3, 2021](https://twitter.com/tedcruz/status/1389335049414250501?ref_src=twsrc%5Etfw)
-
-
-
-纽约前市长朱利安尼： 鲁迪·朱利安尼抨击搜查他公寓的行为，说联邦调查局试图“陷害”他 “曾经担任过美国助理检察官，美国检察官，市长，副检察长的人通常会收到传票-房屋不会遭到搜查，” 【附福克斯新闻报道：鲁迪·朱利安尼抨击搜查他公寓的失控行为，说联邦调查局试图“陷害”他】
-
-
-
-> Rudy Giuliani slams raid on apartment, says feds trying to 'frame' him
-> 
-> "a person who has been a former assistant U.S. attorney, a U.S. attorney, a mayor, the associate attorney general, usually they receive a subpoena — not have their home raided," [https://t.co/5Gb7e7M7bY](https://t.co/5Gb7e7M7bY)
-> — Rudy W. Giuliani (@RudyGiuliani) [May 3, 2021](https://twitter.com/RudyGiuliani/status/1389274964642213891?ref_src=twsrc%5Etfw)
-
-
-
-
-
-0
++3

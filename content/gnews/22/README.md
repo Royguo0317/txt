@@ -1,33 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在香港资金和人才逃离时，彭博社发文说香港是全球第二大生物技术融资中心
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1168981/)
+## 2021/04/30 中共通过金钱交易，操纵美国科学界政治化
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1170524/)
 
-整理撰稿：蓝精灵
+视频字幕/听写：云岭| 翻译：Roberts | 校对：Cow | 简评/文字整理/编辑：胖丁 | Page： Daoiii
 
-香港特别行政区政府的InnoHK研究集群（一项重大的I＆T计划，旨在将香港发展为全球研究合作的枢纽），以利用其I＆T生态系统。 虽然资金是关键，但开发本土技术所需的全面能力也同样重要。
+[!\[\]()!\[\](https://spark.adobe.com/page/i11JJ4h6hCZQR/images/65c7ace0-1c78-4138-8dc0-b9717ef32ae8.png?asset_id=c925ce41-0126-4983-aea3-c9644dfd58fc&amp;img_etag=%22277711d380579468a328769432f6cec9%22&amp;size=1024)](https://spark.adobe.com/page/i11JJ4h6hCZQR/images/65c7ace0-1c78-4138-8dc0-b9717ef32ae8.png?asset_id=c925ce41-0126-4983-aea3-c9644dfd58fc&amp;img_etag=%22277711d380579468a328769432f6cec9%22&amp;size=1024)
 
-资金范围包括租金补贴，补助金以及针对技术和业务发展的定向资金。此外，鉴于生物技术研究涉及相对复杂的监管程序，Incu-Bio提供最高200万港元（257,000美元）的专项拨款，用于从事生物技术认证或新药研究等用途的孵化器。
+**简评：**
 
-“香港是全球金融中心，我们在金融服务方面拥有丰富的经验。当与人工智能，大数据和区块链等新兴技术结合使用时，产生的金融技术将为跨境金融服务释放大量机会，数码港还通过针对不同成长阶段的一系列创业计划为初创企业提供财务援助。 除了分别在数码港创意微型基金和数码港孵化计划下分别提供的100,000港元和500,000港元的资金支持外，希望发展GBA或海外市场的初创企业也可以通过市场开发支持计划获得高达200,000港元的资金。 数码港加速器支持计划提供高达港币30万元的资金，用于加入世界一流的加速器，其中包括许多位于GBA中的加速器。
+**《国家脉动》对主流媒体推荐的专家们进行了信息的挖掘，发现他们都与中共国密切相联。以彼特·达萨克为例，他的20多项研究都与中共有直接的资金来往和隶属关系，而且很多研究员的简历中都特别标注他们获得了中共的杰出贡献奖。由此看来，社会主义价值观已经渗透进美国的科学界，并且促使其政治化。**
 
-严先生说：“我们的目标是为初创企业蓬勃发展和成功扫除尽可能多的障碍，并为每一步提供充足的支持和资源，以帮助他们充分利用GBA的巨大机遇。”
-
-编者简评：
-
-自从反送中运动之后，大量香港资金和人才流失，香港作为中共国内陆的对外窗口，一直被中共利用，来规避相关的国际协议条款。此时欧美国家正在进行企业回迁，资金回撤，中共政府意欲以生物科技为招牌宣传，吸引西方资金，希望能继续与海外资金科技挂钩。香港大学作为国际生物科学的顶级研究室，在此次新冠病毒的溯源问题上有着非常重要的地位。
-
-据路德社和西方其他重要媒体报道，香港大学的生物研究实验室闫丽梦博士，在一年前逃离香港，前往美国，她指出Covid-19病毒由中共实验室制造，时中共长期有计划的超限生物战计划。并发表了三份研究报告，引起了科学界的关注和热烈讨论。科学界要求彻查病毒真相的呼声越来越高。在这个背景下，发文宣扬香港是生物科技发展的最好的融资平台，非常耐人寻味。
-
-(以上仅代表作者观点，不代表Gnews平台)
-
-参考链接：
-
-[https://sponsored.bloomberg.com/immersive/brand-hong-kong/introducing-the-new-dawn/fusion-power?utm\_medium=social&utm\_id=customcontent-HKISD&utm\_source=Twitter&utm\_campaign=Asia-Paid&utm\_content=APAC-Ad1&twclid=11389347749359882241](https://sponsored.bloomberg.com/immersive/brand-hong-kong/introducing-the-new-dawn/fusion-power?utm_medium=social&amp;utm_id=customcontent-HKISD&amp;utm_source=Twitter&amp;utm_campaign=Asia-Paid&amp;utm_content=APAC-Ad1&amp;twclid=11389347749359882241)
-
-校对/发布：Penny
+GTV视频链接：[《国家脉动》高级调查记者娜塔莉Natalie谈中共对美国科学界的操纵](https://gtv.org/video/id=608f581d4486aa0bb2329021)
 
 
 
-0
+**视频字幕：**
+
+主流媒体反复推出的任何让我们相信的专家，《国家动脉》都进行了信息的挖掘。
+
+结果都显示了他们与中国共产党的联系。有的是像彼特·达萨克一样，他有20多个研究都与中共有直接的资金往来和隶属关系。
+
+这些不是普通的中共科技智库，那只是表像。因为，正如我所说的，中共的操作方式就是用研究经费，非常非常高额的研究经费使你屈从于他们。
+
+通过与彼特·达萨克合作的机构的网页我们看到，很多研究工作者的简历中都写着他们获得了中共杰出贡献奖。
+
+这些研究中心和大学都认为，撰写科学百科全书要符合社会主义价值观。这个太疯狂了。
+
+我觉得你现在听到一些，特别是像彼特·达萨克和很多类似研究者担心，川普政府政治化科学研究，政治化功能增强性研究。
+
+是的，美国科学界正在发生着政治化，但是这是由中国共产党操纵的。
+
+- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
+- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/i11JJ4h6hCZQR/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/i11JJ4h6hCZQR/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)
+
+
+
++2

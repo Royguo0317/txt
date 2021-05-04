@@ -1,15 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210503
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1168490/)
+## 香港已经不适合居住-为自由移民来台湾
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1170255/)
 
-- 制图：透明的遮羞布
-- 编辑：神奇四侠
+台湾宝岛农场 Amitofu
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164512/01-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164523/02-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164542/03-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164602/04-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164619/05-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164636/06-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164655/07-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164714/08-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164733/09-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164754/10-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164813/11-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164829/12-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164846/13-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164901/14-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164920/15-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164934/16-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03164949/17-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03165005/18-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03165020/19-1.jpg)
-以上文字图片仅代表作者个人观点，与GNEWS无关
+自从中共自2019年6月9日和6月16日有超过200万人站出来的反送中大游行、无数学生被强奸被跳楼被死亡，中共撕毁《中英联合声明》香港50年不变的承诺，到2021年强推行爱国者治港，表决通过「关于完善香港特别行政区选举制度的决定草案」，使得香港的行政、司法、立法权完全被中共控制，宣告香港从自由的资本主义逐渐走向集权的共产化，造成许多香港人移居来台湾，根据台湾移民署最新统计，2020年港人来台居留许可人数，创下历史新高，高达1万813人，是2019年的1.8倍。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04044522/HKtaiwan-400x225.png)圖片來源AP
+香港的自由、民主、法治濒临全面瓦解的危机，笔者最近认识1位来台74岁的港人，以投资移民方式申请来台，最近获得批准，目前移居台北淡水的新市镇。笔者2018年就听文贵直播，参与爆料革命，询问老先生在香港一切好吗？老先生停顿了好几分钟，眼眶泛红说着:「太太也已经申请来台，几个月就会过来台湾和我一起住，在反送中游行中看到很多学生被广东福建军警殴打、被虐待性侵甚至消失死亡，对我的精神困扰非常的大，出现严重的忧郁症，看了心理医生也睡不着觉，我在香港住了40多年，香港已经不适合再居住。」笔者问到为什么要移居台湾？不怕中共打来？老先生说:「台湾靠近香港，万一亲友有什么事我可以很快回去。港台两地文化很容易适应，最重要的是台湾是民主的国家，很多台湾人看到香港变成这样，台湾人更应该珍惜坚守民主的价值」，「不满习近平独裁这样对待港人、香港政治不民主，现在住在香港就快要受不了，哪还怕中共打来，就算打台湾，共产党也活不了多久」。
 
-发稿：神奇四侠
+老先生表示在香港忙了大半辈子，想要准备退休过晚年，却遇到共产党破坏对香港的承诺，特别是习近平上台以后，2019年就很多富二代、富三代陆续移民出去了，谈到香港的政治环境，表情看起来相当惊恐，说着8964的阴影全部浮现，共产党…，老先生是贸易公司的负责人，目前等待将香港的房产出售后定居台湾，香港已经不适合居住了。笔者从老先生的眼中看到，中共对香港人所做的各种迫害，残忍烙印在港人的心中，心里的痛苦是说不出来的。本文仅代表个人立场
 
-0
+祈祷万佛万神加持七哥与新中国联邦战友
+
+审核:Athena雅典娜 发布:Amitofu
+
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+
++5

@@ -1,159 +1,195 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 战友展览板【5/3】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1168936/)
+## 【每日快报】欧盟立法者在关于制裁北京的首次会议上承诺拒绝欧中投资协议 2021.05.04
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1170759/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
+作者：星空無垠，骑着毛驴来挺郭
+![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2021/05/image-3.png)
+# ***今日摘要***
 
-【以毒灭共】推文。如下
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03192521/E0XXN-VUcAIKpvD.png)1. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1388755124999254017?s=20)**：
-***（火来）**胡丹的毕业论文，导师王长军 舟山蝙蝠病毒直接感染乳鼠，多脏器出现炎症，大脑检测出病毒颗粒 1 从蝙蝠到小鼠，病毒跨越了物种，他们眼前一亮 2 多脏器炎症就已经说明这不只是肺炎那么简单 3 血脑屏障被突破，大脑出现病毒颗粒 一经发现，舟山蝙蝠病毒就有被改造成生物武器的巨大潜力，CCP当然不会放过
-**（公民记者）**现在被挖出的真的只是冰山一角，九牛一毛的台面上公开的人物啊，还有很多做科研项目的人隐藏其中*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03192748/E0XO9aOXIAYNrLj.jpeg)2. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1388744397005668354?s=20)**：
-*这两个突变，P681H（脯氨酸到组氨酸）和现在更危险的印度P681R（脯氨酸到精氨酸）指出了#COVID19的furin酶切位点的人工性质，它不存在任何天然的近似蝙蝠冠状病毒的亲属。
-中共病毒 #超限生物武器*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03193336/E0XF5urVgAAfZbp.jpeg)3. **[公民记者推特](https://twitter.com/NFSC_007/status/1388735146996559874?s=20)**：
-*典型的功能增强，动物传代，伪装成疫苗研究的危险违法实验和研究！
-夏咸柱、于志君，范泉水已经披露，顺藤摸瓜，剩下的参与研究的挨个查,一查一个准。 战友们，活来了。*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03195405/E0XEFjNUYAEICEW.png)3. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1388732983759106052?s=20)**：
-*奇文共欣赏，2020年1月27日，通过福林酶切位点给出了中间宿主的列表 注意 “东部战区总医院 施劲松”
-[http://www.chinaxiv.org/abs/202002.00004v3](http://www.chinaxiv.org/abs/202002.00004v3)*
+1. **欧盟立法者在关于制裁北京的首次会议上承诺拒绝欧盟-中国投资协议**
+2. **国务卿布林肯透露拜登并不打算 “遏制中国”**
+3. **中国正试图瓦解 “五眼 “情报网络**
+4. **亚利桑那州立法者在接种疫苗后感染依旧强调COVID-19疫苗的重要性**
 
 
-> IMO: The artificial insertion of a furin cleavage site (FCS) into [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) by Chinese Communist Party military scientists created the conditions for a more contagious & lethal Indian P681R (proline to arginine) mutation making the FCS much more dangerous.[https://t.co/HUPTrBhsYn](https://t.co/HUPTrBhsYn)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388740244695142401?ref_src=twsrc%5Etfw)
+# 重要事件
+
+- **[05.04. ZeroHedge 欧盟立法者在关于制裁\[北京\](https://www.zerohedge.com/geopolitical/eu-lawmakers-pledge-reject-eu-china-investment-deal-first-meeting-beijings-sanctions?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)的首次会议上承诺拒绝欧盟-中国投资协议 EU Lawmakers Pledge To Reject EU-China Investment Deal In First Meeting On Beijing’s Sanctions](https://www.zerohedge.com/geopolitical/eu-lawmakers-pledge-reject-eu-china-investment-deal-first-meeting-beijings-sanctions?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)**
 
 
-4. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1388740244695142401?s=20)**：
-*中共军事科学家在 #新冠病毒 中人工插入了一个furin酶切位点（FCS），还为更具传染性和致命性的印度P681R（脯氨酸到精氨酸）突变创造了条件，使FCS更加危险
-[https://www.biorxiv.org/content/10.1101/2021.04.22.440932v1.full](https://www.biorxiv.org/content/10.1101/2021.04.22.440932v1.full)*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03200308/E0XFgjuVoAEgCfs.png)5. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1388738051526991872)**：
-*（上）王长军团队多篇文章均提到2015-2018年间，在舟山地区实施的蝙蝠病原体采集行动，在这次行动中他们发现了舟山蝙蝠冠状病毒ZC45/ZXC21，他们还发现了轮状病毒，圆环病毒，博卡病毒。 ZC=2017年发现的病毒 ZXC=2015年发现的病毒 所以你会看到，比如蝙蝠轮状病毒ZXC25/ZXC35
-（下）王长军，胡丹，谭伟龙，朱长强，艾乐乐可以说是这次蝙蝠病毒搜集行动的核心成员，胡丹也是发表舟山蝙蝠冠状病毒ZC45/ZXC21文章的第一作者*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03200548/E0VwFjCWEAIo6qD-1.jpeg)6. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1388715782415261698)**：
-***（老百姓）**来自中国人民解放军军事科学院的夏咸柱的一项专利显示，他参与了一项关于流感病毒的功能增强研究
+欧洲议会成员誓言拒绝因中国侵犯人权和执政党共产党的制裁而等待批准的欧盟-中国投资协议。
 
-**（Sellin)**巨大的发现。这显然是解放军的核心兽医生物战小组的生物武器研究。
-来自 #COVID19 侦探（Anna和老百姓）
-组队发现了令人震惊的证据。解放军将其伪装成疫苗研究，正在制造抗热病毒，这是持久性生物武器的一个关键目标*
+30多名欧洲议会议员于4月28日发言，谴责中国要求欧盟停止对其人权记录的批评，表示除非人权问题首先得到解决，否则他们不会批准中国的投资协议。一些人直截了当地说，他们希望该协议被抛出。
 
+这些评论是在欧洲议会关于中共政权对欧盟代表和实体的反制裁的第一次会议上发表的，这些代表和实体在3月底就新疆维吾尔族和其他少数民族的人权侵犯行为制裁了几名中共官员。
 
-> Here's more background our our fight to ensure a full investigation into [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) origins. It's insane everyone on earth not demanding [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) end its coverup & provide unrestricted access to key records, samples & personnel. [@MaajidNawaz](https://twitter.com/MaajidNawaz?ref_src=twsrc%5Etfw) [@zlj517](https://twitter.com/zlj517?ref_src=twsrc%5Etfw) [https://t.co/EDqD5LFNzg](https://t.co/EDqD5LFNzg)
-> — Jamie Metzl (@JamieMetzl) [May 2, 2021](https://twitter.com/JamieMetzl/status/1388883572283617285?ref_src=twsrc%5Etfw)
+但这些反制裁措施危及了投资协议被批准的可能性。
 
+法国欧洲议会议员埃马纽埃尔-莫雷尔在谈到中共的制裁时说：”如果我们想一劳永逸地表明，欧盟不只是一个超市，而是有原则……我们必须拿出一些实际行动，这意味着我们需要拒绝投资协议。”
 
-7. **[Jamie Metzl推特](https://twitter.com/JamieMetzl/status/1388883572283617285?s=20)**：
-*地球上的每个人都在疯狂地要求 #中共国 结束其掩盖病毒信息和提供误导性的关键记录、样本和人员 
-[https://changingtimes.media/2021/03/31/sars-cov-2-who-china-report-dismisses-lab-origin-hypothesis-as-being-extremely-unlikely/amp/?\_\_twitter\_impression=true](https://changingtimes.media/2021/03/31/sars-cov-2-who-china-report-dismisses-lab-origin-hypothesis-as-being-extremely-unlikely/amp/?__twitter_impression=true)*
+欧盟议会人权小组委员会副主席、德国议员汉娜-诺伊曼说：”这是一个政权任意射出的猎枪，针对的是我们的言论自由、研究自由和我们作为议员的权利。”
+
+她告诉议会，在推进投资交易之前需要解决人权问题，并补充说 “我不愿意让一个外国对我的工作指手画脚”。
+
+- **[05.03. National Pulse 国务卿布林肯透露拜登并不打算 “遏制中国” Biden Doesn’t Plan To ‘Contain China,’ Reveals Secretary Of State Blinken](https://thenationalpulse.com/breaking/biden-wont-contain-china-reveals-blinken/)**
 
 
-> 請用我們每一個人的力量，對抗中共的超限科學誤導，以及中共的超限信息戰，向全世界展示我們華人的正義力量！
-> 不積跬步，無以至千里。
-> 鍥而不捨，金石可鏤。
-> 🙏🏻🙏🏻🙏🏻[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPLiedPeopleDied](https://twitter.com/hashtag/CCPLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/xqDT5bEx6r](https://t.co/xqDT5bEx6r)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 2, 2021](https://twitter.com/DrLiMengYAN1/status/1388953052498075650?ref_src=twsrc%5Etfw)
+国务卿安东尼-布林肯透露，拜登政权并不寻求 “遏制中国”。”我们的目的不是试图遏制中国或压制中国，”布林肯断言道。
+
+“我们要做的是维护国际的、以规则为基础的秩序，我们国家在这么多年里投入了这么多，我想说的是，这不仅有利于我们自己的公民，也有利于全世界的人民。顺便说一下，包括中国，”他补充说。
+
+这番话是在与英国外交大臣多米尼克-拉布举行的联合新闻发布会上说的，也是在布林肯的咨询公司与中共之间的关系被揭露后说的。
+
+- [**05.04. ZeroHedge 中国正试图瓦解 “五眼 “情报网络 China Is Trying To Break Up The Five Eyes Intelligence Network**](https://www.zerohedge.com/geopolitical/china-trying-break-five-eyes-intelligence-network?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
 
 
-8. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1388953052498075650?s=20)**：
-***（德意志之鹰）**无论发生什么，我都会坚持下去
+中国正通过与新西兰总理Jacinda Ardern的左翼政府建立更紧密的关系，故意在精英的 “五眼 “情报共享联盟中制造分裂。
 
-**（闫）**请用我们每一个人的力量，对抗中共的超限科学误导，以及中共的超限信息战，向全世界展示我们华人的正义力量！
-不积跬步，无以至千里。
-契而不舍，金石可镂
-中共病毒 #中共撒谎人类死亡*
+由美国、加拿大、英国、澳大利亚和新西兰组成的 “五眼联盟 “可以追溯到第二次世界大战，当时一些关键盟友决定分享情报，以击败纳粹德国和日本。
 
+今天，保持五个英语国家之间的情报共享合作被认为对打击俄罗斯和共产主义中国等专制国家构成的威胁至关重要。
 
-> 这个流水线有个非常邪恶伪装，那就是号称为了预防新发疾病，提前预警，所以主动出击去搜索病毒，主动寻找可以跨物种传播的病毒，主动进行人工改造，主动进行动物传代，筛选增强型病毒并消除人为痕迹。一切都打着为了老百姓生命健康的名义。“大郎，该吃药了”，就是这个意思 [https://t.co/wB7IA2Be2G](https://t.co/wB7IA2Be2G)
-> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [May 2, 2021](https://twitter.com/jsdfposjpqyuee1/status/1388970926008459266?ref_src=twsrc%5Etfw)
+然而，在阿德恩女士的政府宣布将改善与北京的贸易关系作为其优先事项，而不是维持对五眼联盟的支持之后，目前形式的联盟的生存受到了威胁。
 
+新西兰外交部长Nanaia Mahuta在本月早些时候宣布了寻求与北京改善贸易关系的决定，她宣称新西兰对五眼联盟就其骇人听闻的人权记录向中国施压感到 “不舒服”，而是希望追求自己的双边关系。
 
-9. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1388970926008459266?s=20)**：
-*（上）CCP野外采集病原体后，目前必须要用到的一项技术叫通量测序技术（High-throughput sequencing），即一次对几十万甚至几百万条遗传物质进行测序，效率极高。以下是几个主要的提供这项技术的公司，注意Complete Genomics已经被深圳华大基因收购。CCP已经把病毒的采集-测序-病理研究做成了流水线
-（中）采集-测序-病理研究流水线 1采集：人海战术，全国范围搜集病毒 2测序：用通量测序技术提高效率 3病理：病毒采集并分离后，拿回实验室感染乳鼠，如果乳鼠能被感染，说明该病毒可以跨物种，那可以成为制作生物武器的原材料 这样的生产线犹如东南沿海的代工工厂，新的病毒会被源源不断的生产出来
-（下）这个流水线有个非常邪恶伪装，那就是号称为了预防新发疾病，提前预警，所以主动出击去搜索病毒，主动寻找可以跨物种传播的病毒，主动进行人工改造，主动进行动物传代，筛选增强型病毒并消除人为痕迹。一切都打着为了老百姓生命健康的名义。“大郎，该吃药了”，就是这个意思*
+50岁的马胡塔女士对英国、美国、加拿大、澳大利亚和新西兰的国防部长去年作出的决定作出了回应，即赞同扩大该联盟的作用，公开承诺不仅要应对共同的安全挑战，而且要 “推进他们共同的民主、自由和尊重人权的价值观”。
+
+- **[05.03. Washinton Examiner 亚利桑那州立法者在接种疫苗后感染还强调COVID-19疫苗的重要性 Arizona lawmaker stresses COVID-19 vaccine importance after post-inoculation infection](https://www.washingtonexaminer.com/politics/arizona-lawmaker-stresses-covid-19-vaccine-importance-after-post-inoculation-infection)**
 
 
-> 制毒是庞大的系统工程，挖料是个大工作量。需要更多的战友参与。以下是挖料网站，欢迎战友补充：
-> 英文网站：
-> 1，[https://t.co/NtNzvRUcIv](https://t.co/NtNzvRUcIv)
-> 2，[https://t.co/SnWhSIwrYf](https://t.co/SnWhSIwrYf)
-> 中文网站：
-> 1，[https://t.co/via3NpZS5f](https://t.co/via3NpZS5f)
-> 2，[https://t.co/uDwIC59qmD](https://t.co/uDwIC59qmD)
-> 3，[https://t.co/3Ih2EarG3w](https://t.co/3Ih2EarG3w)
-> 4，[https://t.co/6pWULJuq9I](https://t.co/6pWULJuq9I)
-> 接下
-> — Citizen Journalists (@NFSC\_007) [May 2, 2021](https://twitter.com/NFSC_007/status/1388714200529215488?ref_src=twsrc%5Etfw)
+亚利桑那州的一位议员说，如果她在本周对冠状病毒检测呈阳性之前没有接种COVID-19疫苗，情况可能会更糟。
+
+图森市议员阿尔玛-埃尔南德斯（Alma Hernandez）说，她在周三对COVID-19检测呈阳性，大约在她接受辉瑞公司的第二剂疫苗后11周。
+
+“她说：”尽管有广泛的疫苗供应，但我们必须继续采取预防措施以减缓传播。”要靠我们大家一起努力来打败这种大流行病。”
+
+28岁的埃尔南德斯说，她无法闻到或尝到味道，发烧和 “可怕的偏头痛”。她说，星期四下午，如果她没有接种疫苗，她的情况会更糟糕。
+
+“她说：”我一直感到非常疲惫，我不希望任何人生病，但我也想鼓励大家，如果你们没有接种疫苗，请尽快接种疫苗。”如果我没有接种疫苗，我现在的情况会更糟糕。”
+
+埃尔南德斯也是一名公共卫生专业人士。她和她的兄弟住在一起，她的兄弟也接种了疫苗，而且COVID-19的检测结果为阴性。
+
+据她的办公室说，这位立法者本周确实算作出席了立法会议，但却是远程参加会议。亚利桑那州议会的两院都取消了口罩要求，但大多数民主党人都保持着面部遮盖。
+
+亚利桑那州尚未报告有接种疫苗的人死于COVID-19，尽管它已经报告了947例突破性病例。
+
+美国疾病控制和预防中心本月早些时候说，大约有5800名完全接种疫苗的人感染了COVID-19，74人死亡。截至周四，超过1.01亿美国人已经完全接种了疫苗。在突破性病例中，近一半是60岁以上的人。疾病预防控制中心怀疑一些突破性病例来自COVID-19变异株，尽管药物制造商已经发现他们的疫苗对这些变异株基本有效。
+
+# 每日文贵说
+![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/05/E6MN76YRL6NFGJO-1024x576.png)
+# 更多要闻链接
+
+1. [前首富比尔盖兹与梅琳达宣布离婚，由於比尔盖兹身家高达惊人的1300亿美元（约台币3.6兆元），因此离婚后的财產分配，也成了外界焦点](https://news.ltn.com.tw/news/world/breakingnews/3519989)
+2. [民主党人更加疯狂：绿色新政策划者声称拯救地球需要消除警察并改变权力关系](https://www.thegatewaypundit.com/2021/05/democrat-insanity-green-new-deal-mastermind-claims-saving-planet-requires-eliminating-police-changing-power-relationships/)
+3. [华为销量暴跌五成，苹果销量反涨94%](https://www.toutiao.com/a6957714439571259907/?channel=&amp;source=search_tab)
+4. [报道称：中国火箭碎片可能击中美国](https://www.newsmax.com/newsfront/china-space-nasa-rocket/2021/05/03/id/1019979/)
+5. [英国主办疫情发生以来首次G7外长面对面会议](https://cn.reuters.com/article/uk-covid-g7-foreign-ministers-0503-idCNKBS2CK0MF)
 
 
-10. **[公民记者推特](https://twitter.com/NFSC_007/status/1388714200529215488?s=20)**：
-*制毒是庞大的系统工程，挖料是个大工作量。需要更多的战友参与。以下是挖料网站，欢迎战友补充：
- 英文网站： 1，[https://patents.google.com](https://t.co/NtNzvRUcIv?amp=1) 2，[https://scholar.google.com](https://t.co/SnWhSIwrYf?amp=1) 
-中文网站： 1，[https://patentguru.com](https://t.co/via3NpZS5f?amp=1) 2，[https://xuewen.cnki.net/Default.aspx](https://t.co/uDwIC59qmD?amp=1) 3，[https://cnki.com.cn](https://t.co/3Ih2EarG3w?amp=1) 4，[https://xueshu.baidu.com](https://t.co/6pWULJuq9I?amp=1) 5，[https://patentguru.com](https://t.co/via3NpZS5f?amp=1) 6.万方数据知识服务平台：[https://wanfangdata.com.cn/index.html](https://t.co/5aEClbvfMe?amp=1) 7.爱学术： [https://ixueshu.com](https://t.co/XL8Jn1lbp2?amp=1) 8.百度学术： [https://xueshu.baidu.com](https://t.co/6pWULJuq9I?amp=1)*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03203013/E0XAJduXsAE2lvt.jpeg)11. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1388733053095272453)**：
-***（Jacksrreturns)**并且，与该实验室的地址相同，隶属于中国农业科学院长春兽医研究所病毒学研究室，
-
-**(Sellin)**请注意 #COVID19 侦探 (@jacksrreturns)的关键推文：
-以长春为中心的解放军兽医团体及其在吉林省的关联机构对中国共产党的生物战计划至关重要*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03203747/E0cYUUsXoAUP3hl.jpeg)12.**[Sellin博士推特](https://twitter.com/lawrencesellin/status/1389105853362544640?s=21)**：
-*闫丽梦博士是完全正确的。早期用组合药物治疗 #新冠病毒 可以挽救成千上万的生命，减少大流行的影响，但是有钱有势的人从疫苗中赚取了太多的钱。
-新冠病毒疫苗 #中共病毒*
+# 每日推特文摘
 
 
-> 前军情六处局长理查德·迪尔洛夫爵士认为证据强烈地表明了实验室泄漏的可能性更大。病毒的核糖核酸里有插片，这是实验室功能增强实现的。间接证据是在武汉发生的，及之后发生的事情、支撑病毒研究发表的论文、发表的时间，并且病毒是在大爆发后才注册的。 [pic.twitter.com/pbThltvqJl](https://t.co/pbThltvqJl)
-> — 秘密翻译组 (@G\_Translators6) [May 3, 2021](https://twitter.com/G_Translators6/status/1389164097946624011?ref_src=twsrc%5Etfw)
+
+前军情六处处长说：”冠状病毒来自实验室的可能性大得多”。
+另一位官员重复了去年春天我们国家媒体集体认为的 “危险的阴谋论”。
+“Far more likely coronavirus came from a lab,” says the former head of MI6.
+Another official repeats what our national press collectively deemed a “dangerous conspiracy theory” last spring.
 
 
-13. **[秘密翻译组推特](https://twitter.com/G_Translators6/status/1389164097946624011?s=20)**：
-*前军情六处局长理查德·迪尔洛夫爵士认为证据强烈地表明了实验室泄漏的可能性更大。病毒的核糖核酸里有插片，这是实验室功能增强实现的。间接证据是在武汉发生的，及之后发生的事情、支撑病毒研究发表的论文、发表的时间，并且病毒是在大爆发后才注册的*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03204258/E0dKFQ_WQAMCoJw.jpeg)14. **[Sellin博士推特](https://twitter.com/lawrencesellin/status/1389160702997315586?s=21)**：
-*中国人民解放军的兽医们公开通过实验室操作使一种人类流感病毒变得更加危险（传代通道）。长春军事兽医研究所和相关研究中心似乎是中共生物战计划的核心要素*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03205003/E0bMaw0X0AMLPJK.jpeg)15. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1389088181270851585?s=20)**：
-***（蒙特利尔）**中国人民解放军军科院军事医学研究院在2020年9月15日发布的专利报告中承认，羟氯喹（HCQ）可以抑制感染，抑制病毒基因组对SARS-COV-2的复制。
-不公开发明人的含义是什么？
-
-**（Sellin)**这应该让每个人都非常愤怒（1）中国人民解放军试图控制并从使用羟氯喹（HCQ）治疗 
-#新冠病毒 中获利
-（2）福奇等美国政府官员、科学家、科学期刊和媒体淡化了HCQ的早期使用，造成导致10万多人死亡*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03210009/E0dqvoHXEAIIgPV.jpeg)16.**[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1389196440619077635)**：
-*长春军事兽医研究所的夏咸柱和北京实验动物科学研究所的秦川合作，通过实验室序列通道使2009年大流行的H1N1流感病毒更具毒性。提示：部分 #新冠病毒 是如何制成
-中共病毒的*
 
 
-> A PLA military scientist who is closely linked to George F. Gao (Gao Fu), head of China's Centers for Disease Control (CCDC), who himself has extensive links to the military. In [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) -controlled China, military and "civilian" research are fused.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/E0FnIVlDkK](https://t.co/E0FnIVlDkK)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388748917098024960?ref_src=twsrc%5Etfw)
 
-
-17. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1388748917098024960?s=20)**：
-*一位解放军军事科学家卢广文与中国疾病控制中心（CCDC）主任George F. Gao（高福）关系密切，他本人与军方有广泛联系。在中共控制的中国，军事和 “民用 “研究融合在一起。
-#中共病毒 #超限生物武器*
-
-
-> Please note these key Tweets by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jacksrreturns](https://twitter.com/jacksrreturns?ref_src=twsrc%5Etfw)
-> The PLA veterinary group centered in Changchun and its associated institutions in Jilin Province are critical to the CCP's biowarfare program.[https://t.co/RbvpQTCU5P](https://t.co/RbvpQTCU5P)[https://t.co/jFF7M5a3zA](https://t.co/jFF7M5a3zA)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388732548939927552?ref_src=twsrc%5Etfw)
-
-
-18.**[Sellin博士推特](https://twitter.com/lawrencesellin/status/1388732548939927552?s=21)**：
-***（Jacksrreturns)**并是吉林省人兽共患病防控重点实验室和吉林省人兽共患病防控科技创新中心的重要组成部分
-
-**(Sellin)**请注意#COVID19侦探(jacksrreturns)关键推文，
-以长春为中心的解放军兽医集团及其在吉林省的相关机构对中共的生物战计划至关重要*
-
-
-> 首次在东南沿海舟山地区蝙蝠体内检测到轮状病毒！VP3基因序列与人源轮转病毒同源性为90%！
-> 没有蝙蝠女？
-> 何婷 朱长强 艾乐乐 胡丹 吕瑞辰 谭伟龙 王长军✅ 钱晖 [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) [@2020Gladiator](https://twitter.com/2020Gladiator?ref_src=twsrc%5Etfw) [@dezying](https://twitter.com/dezying?ref_src=twsrc%5Etfw) [@himalaya\_de](https://twitter.com/himalaya_de?ref_src=twsrc%5Etfw) [@ZionaEmanuel](https://twitter.com/ZionaEmanuel?ref_src=twsrc%5Etfw) [@LawrenceSellin](https://twitter.com/LawrenceSellin?ref_src=twsrc%5Etfw) [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) [pic.twitter.com/Qt7K170agj](https://t.co/Qt7K170agj)
-> — Citizen Journalists (@NFSC\_007) [May 2, 2021](https://twitter.com/NFSC_007/status/1388787556322398209?ref_src=twsrc%5Etfw)
-
-
-19. **[公民记者推特](https://twitter.com/NFSC_007/status/1388787556322398209?s=20)**：
-首次在东南沿海舟山地区蝙蝠体内检测到轮状病毒！VP3基因序列与人源轮转病毒同源性为90%！ 没有蝙蝠女？ 何婷 朱长强 艾乐乐 胡丹 吕瑞辰 谭伟龙 王长军 钱晖
-[万方链接](https://d.wanfangdata.com.cn/periodical/ChlQZXJpb2RpY2FsQ0hJTmV3UzIwMjEwNDI4EhF6aHdzc2N5eDIwMjAwMTAwMxoIOGRpZDh6OXc%3D) [知网链接](https://www.cnki.com.cn/Article/CJFDTOTAL-JSCY201901004.htm)
-
-
-> Origin of Covid — Following the Clues
-> Did people or nature open Pandora’s box at Wuhan?
+> "Far more likely coronavirus came from a lab," says the former head of MI6. 
 > 
-> Excellent long read.[https://t.co/0Uc5vlKWLI](https://t.co/0Uc5vlKWLI)
-> — Richard H. Ebright (@R\_H\_Ebright) [May 3, 2021](https://twitter.com/R_H_Ebright/status/1389025874398388224?ref_src=twsrc%5Etfw)
+> Another official repeats what our national press collectively deemed a "dangerous conspiracy theory" last spring. [https://t.co/5v3pUCyHU0](https://t.co/5v3pUCyHU0)
+> — John Noonan (@noonanjo) [May 3, 2021](https://twitter.com/noonanjo/status/1389216491409661953?ref_src=twsrc%5Etfw)
 
 
-20. **[R\_H\_Ebright推特](https://twitter.com/R_H_Ebright/status/1389025874398388224?s=20)**：
-新冠病毒的起源–追踪这个线索
-是人还是自然在武汉打开了潘多拉的盒子？
-[优秀的长篇读物](https://nicholaswade.medium.com/origin-of-covid-following-the-clues-6f03564c038)
 
 
-+1
+
+
+
+COVID19侦探@No3Mos显示了病毒研究网络分析的有效性。中共生物战计划的一个核心要素是军事兽医，他们做了什么研究，与谁有联系。
+COVID19 detective @No3Mos shows the effectiveness of virus research network analysis. A core element of the Chinese Communist Party biowarfare program is the military veterinarians, what research they did and to whom they were linked.
+
+
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@No3Mos](https://twitter.com/No3Mos?ref_src=twsrc%5Etfw) shows the effectiveness of virus research network analysis. A core element of the Chinese Communist Party biowarfare program is the military veterinarians, what research they did and to whom they were linked. [https://t.co/A4fSWvsjFa](https://t.co/A4fSWvsjFa)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389425795723153409?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+在几条推文中#COVID19侦探@devonJ32130301显示，中共的军事兽医经常使用实验室操纵的连续通道，使病毒更加危险。军事兽医是中共生物战计划的一个关键部分。
+In several Tweets #COVID19 detective @devonJ32130301 shows that Chinese Communist Party military veterinarians were routinely using the laboratory manipulation of serial passage to make viruses more dangerous. Military veterinarians are a key part of the CCP’s biowarfare program.
+
+
+
+
+
+> In several Tweets [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@devonJ32130301](https://twitter.com/devonJ32130301?ref_src=twsrc%5Etfw) shows that Chinese Communist Party military veterinarians were routinely using the laboratory manipulation of serial passage to make viruses more dangerous. Military veterinarians are a key part of the CCP's biowarfare program. [https://t.co/N2HY2BL17j](https://t.co/N2HY2BL17j)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389428627809443841?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+G7布林肯与英外相记者会 记者问：G7目的是联合民主国家共同对抗中国和俄罗斯的独裁专制吗？ 布林肯说，对于俄罗斯，非常欢迎俄走正确的道路，美国愿意与俄合作。而对于中国，美国的目的不是压制中国，而且是要对抗任何挑战「基于规则的国际秩序」的人，这是为了世界人民的利益，也是为了中国人民的利益
+
+
+
+
+
+> G7布林肯与英外相记者会
+> 记者问：G7目的是联合民主国家共同对抗中国和俄罗斯的独裁专制吗？
+> 布林肯说，对于俄罗斯，非常欢迎俄走正确的道路，美国愿意与俄合作。而对于中国，美国的目的不是压制中国，而且是要对抗任何挑战「基于规则的国际秩序」的人，这是为了世界人民的利益，也是为了中国人民的利益 [pic.twitter.com/zhCjJLdAge](https://t.co/zhCjJLdAge)
+> — 珠穆朗玛 (@ZanXixi) [May 3, 2021](https://twitter.com/ZanXixi/status/1389346015417884672?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+20200923閆博士接受Valuetainment訪談精華3
+》CCP在路德社119之後立馬修改了確診數字，從62增加了兩倍到198
+》習主席簽署命令要求按照SARS標準來應對
+》CCP搜刮全世界的醫療物資然而卻不發給一線醫生
+》石正麗立馬撰文利用虛假的RaTG-13序列想將病毒起源引向自然
+》閆博士能言之鑿鑿地說病毒來自實驗室，是因為真相只有一個、並且掌握證據和信心 
+》港大Malik是冠狀病毒的頂尖專家
+
+
+
+
+
+> 20200923閆博士接受Valuetainment訪談精華4
+> 》閆博士能言之鑿鑿地說病毒來自實驗室，是因為真相只有一個、並且掌握證據和信心
+> 》港大Malik是冠狀病毒的頂尖專家 [pic.twitter.com/h7Snww9RTq](https://t.co/h7Snww9RTq)
+> — Andy5 (@andy5\_123) [May 3, 2021](https://twitter.com/andy5_123/status/1389200996815937538?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+RaTG13 是与新冠病毒最接近的实验室制造的假序列，诱导人们相信新冠病毒。共产党和一些有影响的西方舔共科学家欺骗其他科学家发表关于几百篇这个假病毒的文章
+
+
+
+
+
+> RaTG13 是与新冠病毒最接近的实验室制造的假序列，诱导人们相信新冠病毒。共产党和一些有影响的西方舔共科学家欺骗其他科学家发表关于几百篇这个假病毒的文章 [https://t.co/ERMLCSTEIM](https://t.co/ERMLCSTEIM)
+> — Roberts (@Roberts59064781) [May 4, 2021](https://twitter.com/Roberts59064781/status/1389555403076345858?ref_src=twsrc%5Etfw)
