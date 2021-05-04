@@ -1,53 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】60多个美国体育场所引入疫苗护照
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1171710/)
+## G7外长周二将讨论与俄罗斯的关系
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1171765/)
 
-作者：纽约香草山农场写作组  四季
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/G-1.jpg)geo.tv
+05月04日，在七国集团（G7）外长峰会期间，与会者将讨论与俄罗斯的关系。英国外交部在英国政府网站的一份声明中说。
 
+“在疫情开始以来的第一次重要的面对面外交会议和2019年以来的第一次G7外长会议上，多米尼克·拉布（Dominic Raab）将提出讨论威胁到民主、自由和人权的紧迫地缘政治问题。这些问题包括与俄罗斯、中共国和伊朗的关系，以及缅甸的危机、埃塞俄比亚的暴力和叙利亚的持续战争。”报告说。
 
+在与俄罗斯有关的话题中，英国外交办公室提到了与乌克兰边境的军事集结和反对派领导人阿列克谢·纳瓦尔尼的监禁。
 
-零对冲5月4日报道，美国60多个体育场馆和其他场所正在为夏天部署疫苗护照（或通行证或证书），以使经济“恢复正常”。
+G7是一个讨论全球问题的非正式组织。它由七个国家组成：英国、德国、意大利、加拿大、美国、法国和日本。在2014年之前，俄罗斯一直是这个集团的成员。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04162840/0-2021-05-03_06-38-06-1.png)图片来源：[ZeroHedge](https://www.zerohedge.com/covid-19/vaccine-passports-coming-sports-venues)
+下一次外长峰会将于5月4日举行。英国将主持这次会议。
 
-美国职业棒球大联盟的旧金山巨人队和纽约大都会队是第一批要求球迷出示疫苗接种证明或通过一个名为Clear的应用程序验证其COVID-19近期阴性测试的一些球队中的一员。这些球队将接受医疗文件作为证明，但他们鼓励所有体育迷下载Clear应用程序以获得便利。
+英国外交大臣多米尼克·拉布早些时候表示，在会议期间，G7成员将考虑建立一个快速反应机制，以打击俄罗斯的宣传和虚假信息。英国将是发起人。
 
-Clear已通过将所有旅行文件固定在一个应用程序中，简化了旅客经由机场旅行的过程。现在，Clear正在机场以外的60多个美国体育场馆和其他场所应用。截至4月，Clear约有14.2万次下载。
+参考链接：
 
-随着疫苗护照的使用从机场向体育场馆滚滚而来，人们对该应用程序的潜在范围和影响的担忧正在增加。隐私组织电子前沿基金会担心Clear会持有用户的敏感医疗数据，并将其转化为消费者追踪器。但Clear表示，用户可以控制他们的健康记录。
-
-目前，美国的几个州已经表现出反对疫苗护照的决心。其中包括目前的德克萨斯州、田纳西州、佛罗里达州、密西西比州。我们猜想还会有更多的州跟进。
-
-中共病毒的灾难历经一年多的时间都没有被追究病毒的真相，反而政府却企图通过集权主义控制人们最基本的日常生活。难道以后所有的公共场所都将需要护照了吗？
-
-原文链接：
-
-[Vaccine Passports Are Coming To Sports Venues | ZeroHedge](https://www.zerohedge.com/covid-19/vaccine-passports-coming-sports-venues)
-
-
-
-编辑/校对/发稿：小鹿
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
-
-
+[https://www.rbc.ru/rbcfreenews/6090979c9a79474939880c4f](https://www.rbc.ru/rbcfreenews/6090979c9a79474939880c4f)
 
 0
