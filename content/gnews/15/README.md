@@ -1,110 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（十三）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1171006/)
+## 布林肯：中共国自认为可以主导世界
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1171178/)
 
-作者：纽约香草山信息部 6zero4
+新闻来源：Fox News《福克斯新闻》| 作者：Edmund DeMarche| 发布时间： 2021年5月2日
+翻译/简评：clau| 校对/审核：万人往 | Page：小六月
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/Eb18LmHYsCWbg/images/b9e1d553-9092-4e47-945b-6d2dcac656c7.jpg?asset_id=e8b642bd-7e57-4913-b355-70d2aad41881&amp;img_etag=%220f1903815d3bcd0dc0f1e0ceb1612e61%22&amp;size=1024)](https://spark.adobe.com/page/Eb18LmHYsCWbg/images/b9e1d553-9092-4e47-945b-6d2dcac656c7.jpg?asset_id=e8b642bd-7e57-4913-b355-70d2aad41881&amp;img_etag=%220f1903815d3bcd0dc0f1e0ceb1612e61%22&amp;size=1024)
 
+**简评：**
 
+美国国务卿安东尼·布林肯接受了哥伦比亚广播公司新闻节目《60分钟》的采访，谈到很多方面的问题。当谈到中共国时，他承认中共国是这个世界上唯一能够在军事、经济和外交上挑战美国的国家，而且是世界上所有国家中对美国威胁最大的一个国家。
 
-5月1日塞林博士的8连推：
+布林肯在采访中展现出来的态度是避重就轻和软弱的。尤其是当谈到所谓的捍卫基于规则的秩序时，他说：“美国的目的不是要遏制中共国，牵制和压制它，而是为了捍卫秩序。”当主持人问到，中共国的GDP按照目前的速度发展，2028年会超过美国时，他说：“中共国是个很大的国家，人口众多。”当主持人问他，如果中共国成为了最富有的国家，难道不意味着他们是最强大的国家吗？布林肯说，美国的人口结构相对中共国更有优势。
 
-第1推，中文推：我们将一起为中国人民打败中国共产党，并贴出一张写着“神赐美好家园”的新中国联邦国旗，飘荡在喜马拉雅山巅。
+如果中共国利用生物武器杀死了超过五十万的美国人，造成了上万亿美元的损失，都还只是一个竞争对手，什么样的国家才会是美国的敌人？相比彭佩奥国务卿在任时对中共国的态度，布林肯真的令人失望，或者说目前的政府对于中共国的态度就是如此。相信美国的爱国者们肯定会感到非常愤怒，因为死去的亲人和同胞，损失的自由和金钱，以及最重要的，美国作为世界最强大国家被人夺去的自信和骄傲，这一切都是因为中共作恶才失去。所有的情绪正在快速蓄积之中，就像火山喷发前在蓄积能量，弹簧弹出前会被挤压到极点一样，现在发生的所有事情，对爆料革命和新中国联邦都是礼物。等美国人真正开始爆发的时候，他们只能同唯真不破的爆料革命和新中国联邦人站在一起，灭掉邪恶的CCP!
 
+**原文翻译：**
 
+## 布林肯说：中共国认为自己应该成为主导世界的国家
 
-> 我们将一起为中国人民打败中国共产党[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/EMetvJ71ZN](https://t.co/EMetvJ71ZN)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 30, 2021](https://twitter.com/LawrenceSellin/status/1388167750682562567?ref_src=twsrc%5Etfw)
+拜登政府已明确表示，它将中共国视为对美国的一个严重挑战
 
+[!\[\]()!\[\](https://spark.adobe.com/page/Eb18LmHYsCWbg/images/c6f24a86-d8c6-4c47-a9e5-495779943a53.png?asset_id=06e15e95-b46e-4ec0-9faf-c98b9f692e03&amp;img_etag=%22e02a988d0e9bbf72fdf98aace1a8d68b%22&amp;size=1024)](https://spark.adobe.com/page/Eb18LmHYsCWbg/images/c6f24a86-d8c6-4c47-a9e5-495779943a53.png?asset_id=06e15e95-b46e-4ec0-9faf-c98b9f692e03&amp;img_etag=%22e02a988d0e9bbf72fdf98aace1a8d68b%22&amp;size=1024)太空顾问道格拉斯·麦金农（Douglas MacKinnon）：中共国打算“控制一切”，包括控制太空。
 
+前白宫和五角大楼官员道格拉斯·麦金农警告说，如果美国在太空方面不能跟上中共国的步伐，那么美国将在“国家安全方面处于艰难境地”。
 
-第2推，也是中文推：相信中国人民胜利的士兵。贴图是一张4位美国军人在新中国联邦国旗下的图片，4位美国军人分别是Joseph Stilwell, Claire Chennault, Jimmy Doolittle & Lawrence Sellin。
+国务卿安东尼·布林肯在周日播出的一个采访中说，中共国是这个世界上唯一能够在军事、经济和外交上挑战美国的国家。
 
+“我考虑过这个问题，随着时间的推移，中共国认为它——它——可以、应该并且未来会成为主导这个世界的国家。”布林肯告诉哥伦比亚广播公司（CBS）新闻节目《60分钟》。
 
+拜登政府已经明确表示，它将中共国视为对美国的一个严重挑战。
 
-> 相信中国人民胜利的美国士兵[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/CG9YWgooSu](https://t.co/CG9YWgooSu)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 30, 2021](https://twitter.com/LawrenceSellin/status/1388182835601739782?ref_src=twsrc%5Etfw)
+2月，拜登总统宣布成立国防部中共国问题工作组，以评估未来来自中共国的挑战。而在3月，拜登向英国首相鲍里斯·约翰逊建议，欧洲的民主国家应该联合起来，挑战中共国的大规模“一带一路”倡议。
 
+曾在奥巴马总统手下担任副国务卿的布林肯在1月份的确认听证会上说，中共国“构成了对美国来说世界上所有国家中最重要的挑战”。
 
+“我想非常清楚地说明一件事。”布林肯在《60分钟》采访中说。“而且这很重要。我们的目的不是要遏制中共国，牵制和压制它。我们的目的为了维护这个基于规则的秩序，而中共国正在对其构成挑战。任何对这一秩序构成挑战的人，我们都会站出来，并且——捍卫它。”
 
-第3推，转发2021年1月16日中共“央广网”军事专栏的一篇文章“军事科学院首届‘最美军科人’评选揭晓”。请给出意见。比赛的目的是什么？
+采访的范围很广。记者诺拉·奥唐纳（Norah O’Donnell）问布林肯关于新疆的情况，中共国在那里被指控侵犯了维吾尔少数民族的人权。
 
+[!\[\]()!\[\](https://spark.adobe.com/page/Eb18LmHYsCWbg/images/fe2bf5d9-5dc6-4aea-87df-4d93d8724290.png?asset_id=6aff016a-9c0b-4cb9-affe-eace7c8d73a1&amp;img_etag=%22c07ada93881200d6c52dfe5465559abf%22&amp;size=2638)](https://spark.adobe.com/page/Eb18LmHYsCWbg/images/fe2bf5d9-5dc6-4aea-87df-4d93d8724290.png?asset_id=6aff016a-9c0b-4cb9-affe-eace7c8d73a1&amp;img_etag=%22c07ada93881200d6c52dfe5465559abf%22&amp;size=1024)
 
+布林肯说，美国已经明确表示，它认为针对该地区穆斯林少数民族的“种族灭绝行为已经发生”。
 
-> 请给出意见。 比赛的目的是什么？[https://t.co/qUFoBj7Zsy](https://t.co/qUFoBj7Zsy)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388349669395337216?ref_src=twsrc%5Etfw)
+“超过一百万人被关进，选择你的说法，集中营、再教育营、拘留营。当北京当局说，‘哦，存在一个恐怖主义的威胁，’我们没有看到这一点。它不是来自这一百万人。”
 
+奥唐纳提到了中共国最近在南中国海和与台湾的侵略行为。报告指出，就在上周，北京当局让三艘新的军舰下水，在该地区进行巡逻。
 
+布林肯以乐观的语气说，美国在过去已经迎接了挑战，并坚持认为，“走到那一步（冲突），甚至朝那一方向更进一步，都严重违背了中美两国的利益。”
 
-第4推，转发“慕尼黑感恩”战友的中文推：随手搜了这位“孙岩松”，就发现了让人心跳加速的“宝藏”：军事医学研究院(AMMS)在2018年申请专利：分别是高等级生物安全防护式中小 / 中大动物病原体空气传播实验装置(CN209435971U) / (CN209435980U)，军方提前两年开始做病毒飞沫和气溶胶传播的动物实验！！！并贴出这两份专利文件及孙岩松的照片。塞林博士中英双语推：COVID-19探源之“慕尼黑感恩”找到了一些重要的信息。请顺藤摸瓜搜索更多并将搜索结果放在这里。（孙岩松真容浮出水面）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@himalaya\_de](https://twitter.com/himalaya_de?ref_src=twsrc%5Etfw) has discovered some very important information. Please follow his trail and post your results here.
-> COVID-19 detective @ himalaya\_de
-> 找到了一些非常重要的信息。 请搜索更多。 将结果放在这里。 [https://t.co/4SHyBomWNi](https://t.co/4SHyBomWNi)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388355157272973314?ref_src=twsrc%5Etfw)
+[!\[\]()!\[\](https://spark.adobe.com/page/Eb18LmHYsCWbg/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/Eb18LmHYsCWbg/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 
 
-第5推，再次转发“慕尼黑感恩”战友的推文：童贻刚在2016.1-2019.12期间领导了一个秘密军事项目（与WIV合作），现在他正在招募研究员以优化他热衷的穿山甲冠状病毒GX\_P2V的感染性及其治疗药品，这是参与“计划好的”疫情并掩盖病毒真相等黑手的绝佳时机，并贴上该项目计划书及相关论文的截图，以及附上童贻刚、曹务春等4人的照片。COVID-19探源之“慕尼黑感恩”又一个重大发现，童贻刚是与WIV联系的军方人物，这个线索还与哪些与病毒起源有关的军事实验室有关联？
-
-
-
-> Another important discovery by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@himalaya\_de](https://twitter.com/himalaya_de?ref_src=twsrc%5Etfw)
-> Yigang Tong is the military link to the Wuhan Institute of Virology. How does that link connect to others that would explain the military lab [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) ? [https://t.co/DG6tjDRI3W](https://t.co/DG6tjDRI3W)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388359960485146625?ref_src=twsrc%5Etfw)
-
-
-
-第6推，转发“火来2号”战友的中文推，将与军事医学科学院(AMMS)有关的中外科研人员的照片都贴出来了。COVID-19病毒探源之“火来2号”准确地用正确的向外传播的病毒研究网络分析工具，以呈现PLA-AMMS如何将‘民用’研究所/大学机构与国际上的实验室连接起来的关键环节，线索基于5W(who, what, where, when & why) 。
-
-
-
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) uses exactly the correct outwardly-spreading virus research network analysis. A PLA AMMS core linked to Chinese "civilian" institutes/universities connected to international labs. The 5 Ws, who, what, where, when and why. [https://t.co/tkTub7ZSLH](https://t.co/tkTub7ZSLH)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388369261996003328?ref_src=twsrc%5Etfw)
-
-
-
-第7推，在CCP病毒产生前其福林酶切位点的理论基础已经成型，基于惠塔克(Whittaker)分析工具，姜世勃的人工插入福林酶切位点，是PLA的卢广文和高福渴望已久、梦寐以求的法宝，脯氨酸的介入是为了提高其稳定性和酶的利用率，并贴上相关论文的网页截图。
-
-
-
-> The conceptual basis for [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)'s furin cleavage site (FCS) was in place before the [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) was created. Whittaker's analysis, Shibo Jiang's artificial FCS insertion & PLA Guangwen Lu & George F. Gao's eagerness for doing so. Proline was added for stability & enzyme access. [pic.twitter.com/rn0vHJzEF1](https://t.co/rn0vHJzEF1)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388456407146635270?ref_src=twsrc%5Etfw)
-
-
-
-第8推，继续转发“火来2号”战友的中文推：“闫博士今天在The National Pulse的采访中，谈到了功能获得性研究gain of function。我们再次回顾下拉尔夫巴里克再一次网络会议中，说到功能获得性研究时，那得意的笑，让人不寒而栗”，并附上该段视频。“这些都是非常自大的人，巴里克知道真相，但他隐藏了自己的同谋，并保密自己的资金来源，在我看来，这些人和在实验室制作病毒的人同罪”。
-
-
-
-> These are very arrogant people. Baric knows the truth, but he is hiding his own complicity and wants to protect his source of funding. In my opinion, such people are just as criminal as those who created [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) in the laboratory.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/Fz0N0d8mWl](https://t.co/Fz0N0d8mWl)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388479385121038339?ref_src=twsrc%5Etfw)
-
-
-
-CCP病毒产生前最核心理论基础就是姜世勃的福林酶切位点人工插入，这让PLA生物战计划项目科研领军人物卢广文和高福如获至宝、喜出望外，军方孙岩松提前两年开始做病毒飞沫和气溶胶传播动物实验的专利证据，以及童贻刚招募研究员优化穿山甲冠状病毒GX\_P2V的感染性及其治疗药品以混淆视听掩盖病毒真相这些铁证，必将把CCP-PLA钉死在人类历史的耻辱柱上！
-
-有理由相信塞林博士在引领COVID-19病毒溯源过程中，许多情报信息是来自新中国联邦爆料革命，尤其是来自文贵先生和闫博士等的第一手情报信息甚至实锤证据，因此塞林博士内心无法掩盖对新中国联邦的热爱和尊重，毫不掩饰地贴出了我们新中国联邦的国旗，甚至将二战期间中美两军亲密合作缔结两国人民坚定盟友的3位美军将领Joseph Stilwell, Claire Chennault, Jimmy Doolittle，以及穿军装的塞林博士自己的照片一起贴在新中国联邦的国旗下，这意味深长而重大：这4位美军军官将加入新中国联邦的护旗手队伍，发扬中美两军精诚合作、并肩作战的历史传统，不畏艰难困苦，勇变不可能为可能，誓死在COVID-19超限生物战中找到真相，消灭邪恶至极的CCP！
-
-校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-+2
+0

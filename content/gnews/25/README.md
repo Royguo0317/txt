@@ -1,11 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 当前形势下， 香港很难继续保持其经济和金融中心的地位
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1170814/)
+## 慧眼看世界20210504
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1170879/)
 
-5/3/2021 安东尼·布林肯: 中共政府已经违背了当初的承诺，维持香港的民主到2047年不变。在现在形势下，香港很难继续保持其经济和金融中心的地位。本届政府将会对破坏香港民主的直接责任人 采取制裁，包括阻止其入境美国。
+- 制图：透明的遮羞布
+- 编辑：神奇四侠
 
-By： 【秘密翻译组 G-Translators】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101620/01-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101640/02-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101700/03-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101720/04-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101741/05-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101801/06-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101819/07-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101837/08-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101853/09-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101911/10-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101934/11-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101947/12-1-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102008/12-2-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102031/13-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102048/14-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102105/15-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102127/16-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102146/17-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102204/18-2.jpg)
+以上文字图片仅代表作者个人观点，与GNEWS无关
+
+发稿：神奇四侠
 
 0

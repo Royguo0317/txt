@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共政权灭亡之际，墙内再现极端天气
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1170641/)
+## 【每日快讯】05/02/2021：人民银行是最大的抢劫犯有组织有计划的抢劫老百姓
+` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1170808/)
 
-#### 撰稿：默凡
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04085753/%E6%9E%81%E7%AB%AF.jpg)图片来源：xdstudio
-5月3日，广东阳江。海面突然出现巨型龙卷风，由远及近扑向岸边。岸边安保人员迅速吹哨呼喊游客上岸，不少游客仍然驻足拍摄。很快，龙卷风冲到岸边，游客惊呼着逃散，但仍有人被裹挟其中。所幸，龙卷风上岸后已迅速衰减，只掀起一片沙尘，就很快消散。
+**制作：Cantonese工作室**
 
 
 
-近来，大陆多地出现极端气候。4月30日晚，江苏南通市部分地区出现冰雹和大范围强雷暴风天气，局地阵风达到14级，仅大风超过10级的站点就超过66个，中共官媒报道此次暴风天气造成11人死亡，102人受伤。
+**播报：【文依】资料整理：【二丫】【kate】【郁金香 】【文林】【深寒】海报制作：【小豆芽】视频制作：【Ken】粤语翻译校对：【文雀】上传：【星星】【向阳6768】**
 
-据中国天气网消息，中央气象台5月4日6时继续发布沙尘暴蓝色预警：受冷空气大风影响，预计4日8时至5日8时，新疆南疆盆地、内蒙古中西部、陕西北部、山西、河北北部和西部等地有扬沙或浮尘天气，内蒙古中部局地有沙尘暴。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04085805/%E5%A4%A9%E6%B0%94.jpeg)图片来源：网络截图
-参考链接：
+摘要：
 
-1. [广东阳江海面出现巨型龙卷风，扑岸而来游客惊呼逃散](https://www.163.com/news/article/G94SQ1IQ0001899O.html)
-2. [沙尘暴蓝色预警继续发布](https://www.sohu.com/a/464502749_260616)
-
-
-（本文仅代表作者个人观点）
-
-校对/发布：萌萌的朋克
-
-+2
+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095504/15_2_of_7-1.png)
+2
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095626/15_3_of_7-1.png)
+3
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095713/15_4_of_7-1.png)
+4
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095812/15_5_of_7-1.png)
+5
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095920/15_6_of_7-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01093124/image0%E9%9D%A2.jpg)
+0
