@@ -1,25 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】05/02/2021：人民银行是最大的抢劫犯有组织有计划的抢劫老百姓
-` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1170808/)
+## 慧眼看世界20210504
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1170879/)
 
-**制作：Cantonese工作室**
+- 制图：透明的遮羞布
+- 编辑：神奇四侠
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101620/01-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101640/02-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101700/03-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101720/04-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101741/05-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101801/06-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101819/07-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101837/08-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101853/09-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101911/10-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101934/11-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04101947/12-1-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102008/12-2-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102031/13-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102048/14-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102105/15-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102127/16-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102146/17-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04102204/18-2.jpg)
+以上文字图片仅代表作者个人观点，与GNEWS无关
 
+发稿：神奇四侠
 
-**播报：【文依】资料整理：【二丫】【kate】【郁金香 】【文林】【深寒】海报制作：【小豆芽】视频制作：【Ken】粤语翻译校对：【文雀】上传：【星星】【向阳6768】**
-
-摘要：
-
-1
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095504/15_2_of_7-1.png)
-2
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095626/15_3_of_7-1.png)
-3
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095713/15_4_of_7-1.png)
-4
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095812/15_5_of_7-1.png)
-5
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095920/15_6_of_7-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01093124/image0%E9%9D%A2.jpg)
 0

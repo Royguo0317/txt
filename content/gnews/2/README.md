@@ -1,125 +1,110 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月26-27日郭先生盖特和直播内容整理
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1170988/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（十四）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1171044/)
 
-**赵婷得奥斯卡奖和父母教育**
+作者：纽约香草山信息部 6zero4
 
-大家看到14亿中国人，八十年的历史，这么多艺人、知识分子没得过一个奥斯卡奖。弄了一个诺贝尔奖，现在也不敢说话。中国80后的赵婷，原来是中国骄傲，一获得奥斯卡奖，就辱华。
-
-赵婷在生活中非常朴实、真实，是一个勇敢的孩子。她的拍摄、技术都不是最好的，但她有胆量，在人怎么活着，这个问题上说真话，表达出自己真实的声音。赵婷的《游牧人生》电影拍完以后，最值得思考的是中国的父母：
-
-1：中国人最流行的望子成龙，望女成凤。意义是父母不行，就变态的教育孩子，希望孩子要行。为了孩子好的理由，把不可能实现的幻想，寄托在孩子。
-
-2：把孩子当成谋生、争面子的希望和工具，发泄自己的失败。动不动就是别人家的孩子怎么样了。
-
-3：共产党的教育是洗脑教育，只按一个标准。爹亲娘亲不如党亲，毁掉宗教，灭绝人性。所以面对孩子的人生，做父母的不要告诉孩子，要比父母强。
-
-赵婷的父母是最成功的，赵婷也一定不是被父母望子成龙，望女成凤教育的。如果都听她父母的话，跟父母一样的成长，不可能拍出《无依之地》。每个人的经历、思想、身体、环境都不一样，才能表现出个性化。发掘出自己最大的潜力，塑造自己的人生。
-
-赵婷让知识界、艺术界、导演界，有了一个新的标准。中国这些年的艺术家、导演都比赵婷厉害，动不动几个亿。导演、演员互相搞双休，包小三、鸭子，变态、吸毒。装神弄鬼说两句，弄点钱。就是娱乐者的垃圾，没有人会记住。很多导演有机会成为赵婷，但在金钱和邪恶的势力面前，不但选择了黑暗，还为黑暗呐喊，帮助黑暗者毁掉中国人民。
-
-共产党释放的病毒，让世界把亚裔当成灾难的时候。共产党把中国人民推向病毒灾难的责任者，可能万劫不复的时候。赵婷的出现，替亚裔人争得了荣誉、安全，拯救了很多华人。值得我们珍惜、感恩她和她的父母。
-
-同样爆料革命战友，活得也与众不同。活着不是为了钱，不是包多少小三。我们为同胞、良知、人性发声，为人类文明呐喊。说出中国人和共产党不是一回事，共产党不代表中国，共产党不代表中国人民。
-
-**喜币上市和展望**
-
-喜币在4月21号正式上市。在3月份，已经获得5个国家的支付金融牌照，美国都批下来了。在100多个国家申请，部分已经批准，现在拥有五个交易所。上市以后的轰动效应，体验度是最好、设计最漂亮，上线是最稳定的。唯一的是涉及到Gmail回复，大家没有等到。跟Gmail公司签了合同，设置的限别是最高的。但马上就会解决。
-
-喜美元、喜币到了那么多国家，很多人都傻眼了。白皮书是世界上最棒的，是一个安全守法，最严格的KFC。摩根的代码系统是目前写的最好的加密货币。货币系统被很多国家认为是数字货币有史以来，安全级别最高的。受最牛的金融国家，认可的数字加密货币。
-
-共产党设计的DCEP是胡扯、骗人的。喜币是中国人在国际上，唯一让西方文明国家相信的，一个没有共产党的现代化加密数字货币。是西方社会，接受的唯一有稳定、浮动、联储，黄金作为备用支付，全功能的现代化虚拟金融平台和现代加密货币系统。
-
-喜联储、喜美元、喜支付将改变新中国联邦，将成为华人在世界上第一个货币金融系统。现在只有喜币系统，把稳定币、浮动币放在一起。喜币的加密和未来支付能力，未来会创造金融界的历史。连共产党都没做到，我们做到了。
-
-九指妖之前说，喜币不可能研发出来，展不出来。现在金融交易所都上市了，战友们都做KYC了。她不知道啥叫虚拟币，还在群里说是假的，是预售。一点常识都没有，连金融上市都不懂。真希望欺民贼、共产党的党员都去听、去信这帮傻叉的话。现在我们让子弹飞一会的过程当中，让敌人共产党付出代价，让他们成为牺牲品。
-
-**战友跟郭先生交流灭共的最大困难**
-
-战友表示，现在灭共的最大的困难是民智——中国老百姓民心、民智未开。
-
-郭先生认为：不是这个样子，完全错了。
-
-叫不醒装睡的人，是因为你能力不够，办法不对。中国人被喻为羊群，羊看到同伴被拉走杀掉的时候，都认为不关自己的事，继续低头吃草。但它不知道下一个就是自己，一生都被剪羊毛。统治羊群的中共披上了狼皮，中共跳悬崖，都跟着跳。这是羊的悲哀和愚蠢。狼都是集体作战，分工明细、绝不妥协、勇敢、不怕死，一定弄个死活。一个孤狼即使走到任何地方，也不会臣服任何动物。
-
-中国人既有羊的温柔、善良，也有狼的团队、勇气、智慧。由于中华民族几百年的没落，输掉工业革命，后来被共产主义思想掠夺。中共把中国人教育70年，导致中国人现在人非人、物非物；既非狼，也非羊。中国人变得非常不自信、不健康、不善良，失去了信仰、认知能力。更不要谈勇气、谈政治，集体作战、绝不放弃的精神。所以中国人崇拜狼，追求的狼的团结精神。只有灭了共产党，才知道我们是啥。
-
-所有的Loser、海外欺民贼、共产党高官，都会以一个理由伤害、背叛中国人—中国人愚昧，人种有问题。
-
-1：像王岐山认为中国人百年都不可能开智，必须用鞭子虐待。（这是共产党奴役中国人，最王八蛋的理由）
-
-2：像毛泽东杀几亿人，中国人才会老实。共产党剪羊毛的时候，让你干啥，你干啥。就认为你狗屁不是，在他们的世界只有输和赢。
-
-3：海外欺民贼啥也办不成的时候，就是中国人根本不配有民主。
-
-他根本没有能力、没有信心拯救中国人民。海外民运流氓们要钱、捐款的时候，欺骗中国老百姓，连感谢也不说。捐完款以后，就是傻叉、根本不知道有民主。这些人都是垃圾，把自己的失败和错误，借用各种理由，高高在上的对中国人贬低。
-
-1：G系列给了我们最好的答案，中国人不是羊也不是狼，而是世界上最聪明、最有灵智的人性。
-
-2：赵婷到美国学习，英文讲得比普通话都好，就得奥斯卡。
-
-3：香港就是中国人的榜样。中国人到了香港100年，成了香港的英雄。香港人是狼追求的、羊崇拜的最高境界——互相之间抱团取暖、极为善良、从不伤害别人。香港人告诉了中国人可以那样。
-
-**CCP病毒祸害印度**
-
-印度遭受了重创，拥有三万多个神的印度，现在神也没了。头一段时间非常侥幸——印度受神佛的保佑，没多少人感染。结果共产党放剧毒，各种新型病毒。印度现在满大街，都是烧不完的死人。有的一家一家的死，很多人没有尊严地死去。有家人的给烧了，没家人的就扔在旁边，连狗都不吃。有私人飞机的，带着全家逃走。
-
-看印度的时候，对比中共：
-
-1：印度给了我们一个最好的答案，没有共产党不敢做的。
-
-2：印度没有禁止媒体报道，没有禁止人去访问。最起码老百姓知道发生了什么。但在中共国，没人敢说、敢报道。医生给弄死，记者全闭嘴。
-
-3：最可怕的是共产党的杀人手段，让你消失在无声无息之中，还让你感恩它。印度大街上烧人，但是武汉被烧的人比这还惨。中国人想在路边烧的机会都没有，谁还相信武汉就死了几百个人？就这样的国家要治理全球、拯救人类，一切都听党的。
-
-4: 谁还相信这样的共产党存在地球上，是连魔都不如的人间邪恶的化身。国内同胞们为共产党呼吁的时候，是在犯罪、害人。让中共骗成这个样子，猪狗不如。别人把你看成猪狗，那是别人的错。自己把自己做贱得，连猪狗都不如。
-
-**各国对中共的愤怒**
-
-1：欧洲现在已经愤怒到了极点，已经感觉到过去几十年和共产党的勾兑,付出的不是经济代价，不是尊严、正义，而是在犯罪。犯罪的轮回已经回到他们身边了，现在要灭掉他们的一切—挑战他们的安全，挑战他们做人生存下去的底线。把欧洲变为共产党的双修、藏钱的私生子女的后花园，低价地掠夺欧洲的资源。
-
-2：日本这次感受到共产党是要歼灭日本
-
-3：澳大利亚已经意识到中共的渗透和威胁是致命的。
-
-4：中东人还在贪小便宜，与共产党同枕共眠。很快会明白，他们因为跟共产党的勾兑，会被共产党当成炮灰牺牲掉。
-
-5：美国人在觉醒，华尔街、好莱坞、硅谷、华盛顿都在迅速地苏醒中。一定会站在上帝、正义的一边，为保护美国人的价值观和信仰、利益，反击中共，找共产党算账。现在共产党对欧洲除了骂大街，就是威胁。对澳大利亚、日本威胁再威胁。
-
-**郭先生的建议：**
-
-1：共产党没那么容易死亡，一定会很疯狂。打台湾、对香港更凶残、内部更打压，南海挑衅。共产党在倒闭前的疯狂，不要让你和家人成为牺牲品，去陪葬这个流氓。
-
-2：共产党的经济一定会很快崩塌，在崩塌的时候不要成为牺牲品。老百姓为了保护自己的钱上访，共产党会更疯狂。不希望中共这些人——毁了那么多同胞。
-
-**其他方面：**
-
-1：中国人的历史上，害中国人最深的是苏联、俄罗斯。现在中共给俄罗斯买油的钱，是整个广东GDP——将近上万亿。中共和俄罗斯之间，除了军事战略的政治利用之外，还有大腐败。这几年来，共产党很多钱转移到了海外。
-
-2：两三年前，恒大的许家印金融票据已经达到了30%的利息，即使美国政府都支付不了。他一定会爆。不爆，是因为中南坑老杂毛在撑着。
-
-3：民生、“三马”、许加印这些人要爆的时候，会把共产党炸得魂飞魄散，中共一半死在它手里面。然后中国老百姓的房、车、银行一切结束。
-
-4：肖建华当年玩票据，后来搞信托、假贷款，搞项目、股市做空，也成为剪羊毛的一部分。
-
-内容来源：
-
-【字幕】4/26/2021文贵盖特：为什么中国的赵婷的父母能培养出这样的孩子
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-> [【字幕】4/26/2021文贵盖特：为什么中国的赵婷的父母能培养出这样的孩子](https://gnews.org/zh-hans/1142750/)
+5月2日塞林博士的8连推：
+
+第1推，转发“Zion a Deplorable老百姓”战友响应塞林博士征集CCP病毒信息的推文：夏咸柱在PLA-AMMS获得的专利表明他参与了流感病毒的功能获得研究（源于Anna的挖掘），并贴上该专利的网页截图及夏咸柱的照片。重磅，显然PLA的核心兽医生物战小组进行了生物武器研究，COVID-19病毒探源的“Zion a Deplorable老百姓”和Anna战友合作发现了铁的证据，PLA将其伪装成疫苗研究，并正在制造耐热病毒，这是持久性生物武器的关键目标。
 
 
 
-郭文贵2021年4月27日直播
+> Huge. Clearly bioweapons research by PLA's core veterinary biowarfare group. [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detectives [@ZionaEmanuel](https://twitter.com/ZionaEmanuel?ref_src=twsrc%5Etfw) & [@2020Gladiator](https://twitter.com/2020Gladiator?ref_src=twsrc%5Etfw) team up to uncover damning evidence. Disguising it as vaccine research, the PLA is making heat-resistant viruses, a key goal for persistent bioweapons [https://t.co/o5uqNluRnW](https://t.co/o5uqNluRnW)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388715782415261698?ref_src=twsrc%5Etfw)
 
-喜币正式上线，喜联储，喜美元，喜支付，金融支付系统将改变新中国联邦； CCP病毒让印度如同人间炼狱， 但是是真实的；欧日澳美都在迅速觉醒；共产党经济一定很快崩塌，不要成为牺牲品；
 
-[https://gwins.org/cn/milesguo/22863.html](https://gwins.org/cn/milesguo/22863.html)
 
-整理：proud
+第2推，转发“Sweet Journey”战友响应塞林博士征集CCP病毒信息的中英混合推：跟着钱的线索挖掘！挖掘与 “重大项目、973、863、十一五、十二五、国家自然科学基金、杰青”等项目有科研经费拨款的人物，这样的情况很多，找到负责“结题报告”的人，你将发现所有你需要的东西。跟着资金的线索挖掘，是“Sweet Journey”战友提供的一种可靠思路。
+
+
+
+> Follow the money.
+> A solid lead worth pursuing offered by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@SweetJourney1](https://twitter.com/SweetJourney1?ref_src=twsrc%5Etfw) [https://t.co/5kqsQfPSTs](https://t.co/5kqsQfPSTs)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388720369033519109?ref_src=twsrc%5Etfw)
+
+
+
+第3推，转发“Citizen Journalists”战友的中文推：于志君，其博导夏咸柱典型地通过小鼠模型进行动物传代获得增强型毒株的实验，结合去年川普总统和七哥对H1N1流感的描述进行分析，并附上相关报道文章的网页截图。基于“Citizen Journalists”战友的推文，中共国的科学文献暴露了CCP的病毒功能获得研究之广度和深度，并贴上夏咸柱的照片及相关报道截图。
+
+
+
+> As [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@NFSC\_007](https://twitter.com/NFSC_007?ref_src=twsrc%5Etfw) notes in his Tweet below, the Chinese scientific literature reveals just how deep and widespread the CCP's virus "gain of function" research is.
+> 夏咸柱（Xia Xianzhu)[https://t.co/3I5N4s3LhQ](https://t.co/3I5N4s3LhQ) [pic.twitter.com/oZvcVN3VNq](https://t.co/oZvcVN3VNq)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388727914276007938?ref_src=twsrc%5Etfw)
+
+
+
+第4推，转发“Jac Sr. Returns”战友回应上面第一推的推文：与该实验室相同的地址隶属于中国农业科学院长春兽医研究所病毒研究实验室，是吉林省人畜疾病预防控制重点实验室及科技创新中心的重要组成部分。以长春为中心的PLA兽医团队及其在吉林省内的关联机构对CCP的生物战计划至关紧要。
+
+
+
+> Please note these key Tweets by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jacksrreturns](https://twitter.com/jacksrreturns?ref_src=twsrc%5Etfw)
+> The PLA veterinary group centered in Changchun and its associated institutions in Jilin Province are critical to the CCP's biowarfare program.[https://t.co/RbvpQTCU5P](https://t.co/RbvpQTCU5P)[https://t.co/jFF7M5a3zA](https://t.co/jFF7M5a3zA)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388732548939927552?ref_src=twsrc%5Etfw)
+
+
+
+第5推，转发一篇4月22日发表在bioRxiv的文章“印度Maharashtra邦第二波COVID-19疫情中SARS-CoV-2刺突突变L452R、E484Q和P681R的趋同进化”。依我之见(IMO)：CCP军事科学家将福林酶切位点人工插入COVID-19病毒，为更具传染性和致死性的印度P681R(脯氨酸转精氨酸)突变创造了条件，从而使福林酶切位点更加危险。
+
+
+
+> IMO: The artificial insertion of a furin cleavage site (FCS) into [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) by Chinese Communist Party military scientists created the conditions for a more contagious & lethal Indian P681R (proline to arginine) mutation making the FCS much more dangerous.[https://t.co/HUPTrBhsYn](https://t.co/HUPTrBhsYn)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388740244695142401?ref_src=twsrc%5Etfw)
+
+
+
+第6推， P681H(脯氨酸转组氨酸)及更危险的PD81R(脯氨酸转精氨酸)这两个突变，表明了COVID-19的福林酶切位点的人工属性，在任何自然界的近蝙蝠冠状病毒亲戚中都不存在，并贴上相关基因序列对比图片。
+
+
+
+> The two mutations, P681H (proline to histidine) and now the more dangerous Indian P681R (proline to arginine) point to the artificial nature of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) 's furin cleavage site, which does not exist in any natural close bat coronavirus relative.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/oJBxnCbsPs](https://t.co/oJBxnCbsPs)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388744397005668354?ref_src=twsrc%5Etfw)
+
+
+
+第7推，转发Anna战友的中英混合推文：卢广文，南方医科大学即第一军医大学生物工程学院教授，并贴上卢广文及其南方医科大学的照片。这是一位与中共CDC主任高福关系密切的PLA军事科学家，其本人与军方有着广泛的联系，在CCP控制下的中国，军用与民用研究是交织在一起的。（卢广文真容浮出水面）
+
+
+
+> A PLA military scientist who is closely linked to George F. Gao (Gao Fu), head of China's Centers for Disease Control (CCDC), who himself has extensive links to the military. In [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) -controlled China, military and "civilian" research are fused.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/E0FnIVlDkK](https://t.co/E0FnIVlDkK)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388748917098024960?ref_src=twsrc%5Etfw)
+
+
+
+第8推，转发AjaySachdev战友对第一推回应的推文：转发2020年7月24日路透社发表在WION上的一篇文章“在病毒剧变后，中共国与巴基斯坦达成了制造生物武器的协议”，中巴生物武器协议与当下印度疫情爆炸性蔓延之间可能的相关性需要急速得到调查，这启发于扣人心弦的间谍惊悚片“纳格里布行动”作者的分析。塞林博士完全认同中巴生物武器协议之间的关联必须被调查清楚。
+
+
+
+> Yes, the biowarfare links between Pakistan and China need to be investigated.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CovidIndia](https://twitter.com/hashtag/CovidIndia?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/7ksqYwPAH1](https://t.co/7ksqYwPAH1)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 2, 2021](https://twitter.com/LawrenceSellin/status/1388768893041352705?ref_src=twsrc%5Etfw)
+
+
+
+“跟着钱的线索挖掘”是当下病毒溯源战场上的一把利器。夏咸柱关于流感病毒功能获得研究的专利，表明PLA的核心兽医生物战团队打着疫苗研究的幌子进行生物武器研究，并正在制造耐热病毒，这是持久性生物武器的关键目标，以铁的事实证明了当下COVID-19就是无温度和地域敏感性的生物武器。已经曝光的中共国科学文献也暴露了CCP对病毒功能获得研究的广度和深度， 尤其是以长春为中心的PLA兽医团队及其在吉林省内的关联机构对CCP生物战计划至关紧要！
+
+在任何自然界的近蝙蝠冠状病毒亲戚中都不存在的COVID-19福林酶切位点，是人工属性的确凿证据，也为更具传染性和致死性的印度P681H 和P681R两个突变创造了条件。当下犹如炼狱的印度疫情是不是倍感蹊跷？中巴生物武器协议与当下印度疫情爆炸性蔓延之间的关联性需不需要快速得到调查？
+
+校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

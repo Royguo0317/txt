@@ -1,64 +1,110 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印度沦陷，中共脱下羊皮，露出獠牙！
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1170825/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（十三）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1171006/)
 
-路仁
+作者：纽约香草山信息部 6zero4
 
-中共病毒第三波疫情来势汹汹，由于出现了难以预料的变种病毒，印度感染人数和死亡人数，短短几天就达到了历史新高。曾经在武汉发生的那一幕，似乎在印度重演了。以至于中共官方的“中国长安网”在微博上发出了那副享誉推特的“点火”图片。图片里专门注明“#印度单日新增确诊超40万例”，就差在前面加“祝贺”二字了。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04095802/india.jpg)
-而中共的一家名为民间智库，实为中共官办智库智库的“察哈尔学会”，4月29日发表了一篇[《如果印度就此倒下，谁来买单？》](https://www.toutiao.com/a6956291223594205732/?log_from=cdc49b1e0aa56_1620109071350)的文章。文中主要分析了印度此次疫情大爆发后产生的一系列后续效应。与隶属于中共政法委的“中国长安网”一样，这篇分析文章里也充满了小人得志，幸灾乐祸的口气。而且文中指出印度这次疫情引发的一系列后果，却无不暗合郭先生爆料的中共“13579计划”，“灭白计划”，“3F”计划等中共欲统治全球的邪恶目的。也在一定程度上验证了中共放毒的事实依据：这不正是他们要的结果吗？
-
-文章内容主要如下：
-
-1. **如今的印度已然成为****“****人间炼狱****”**
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-病例激增，火化场不堪重负，人们排队等火化，甚至有人自己烧亲人的尸体。（这一幕相信爆料革命的战友们不会陌生的，多么像2019年年底武汉的情形）。于是作者提出*“**雪崩时，没有一片雪花是无辜的！*”–简言之，印度那些感染的病人，死去的病人，他们即使故去，也不是无辜的！作者给出的理由是：*“**民众无知，政府无能，疫苗还有可能无效。印度一直以来自视甚高，一副要拯救全人类的架势，但现在看来印度或许连自己都拯救不了**”**。*自视甚高，也成了错？拯救全人类，创造人类命运共同体，不是中共和习神一直宣扬的价值观吗？中共病毒，始发于武汉，其惨烈程度，已经不是秘密。随后，意大利，英国，美国，巴西等国家轮流出现疫情爆发，那么这些都是属于“民众无知，政府无能”吗？
 
-1. ** ****经济复苏前景黯淡**
+5月1日塞林博士的8连推：
 
-
-首先疫情后封城造成的失业–由于去年印度全国封锁令长达4个月，导致近一亿人失业。*经历过封城的民众们，踩着封城前的时间点疯狂出逃；（*多么熟悉的画面？*）如今城市里缺少劳动力，就算是封城解除了，城市也无法正常运行。其次如果印度疫情不能得到有效控制，世界其他国家可能继续扩大与印度相关的航空运输限制，将印度变成一座**“**孤岛**”**，造成印度各产业供应链的中断。就算印度恢复了，也很难再参与到全球产业的世界分工当中。* 在这里感觉中共就是在为印度设计了一个“蓝图”，我们有理由相信，这个“蓝图”他们早已经设计好了，而且这个精心设计的“蓝图”的目标，绝不仅仅是印度，网传[迟浩田的内部讲话](https://www.gnews.org/zh-hans/1100055/)，郭先生爆料的[“中共13579计划“](https://www.gnews.org/zh-hans/1120999/)，无不印证了中共的的蓄谋已久的邪恶目的。
-
-1. **贫富差距继续扩大**
+第1推，中文推：我们将一起为中国人民打败中国共产党，并贴出一张写着“神赐美好家园”的新中国联邦国旗，飘荡在喜马拉雅山巅。
 
 
-文中指出，印度穷人是这次疫情爆发的最大受害者，因为除了感染中共病毒以外，治疗，甚至亲人死后的安葬等都对穷人来说又是一笔重负。文中引用皮尤研究中心的数据显示，*去年因为疫情的影响，印度已经有**3200**万印度中产阶级因为新冠疫情而重返贫困，贫富差距正在越拉越大。于此同时，印度的富豪们争先恐后地忙着逃离印度。而穷人们在寻求医疗资源时将积蓄挥霍一空，富者恒富而穷者愈穷**，**印度国内本就巨大的贫富差距在疫情中愈演愈烈。*其实中共国的情形又何尝不是如此呢？在武汉封城的前24个小时，有多少中共高官及家属逃离武汉？只留下无辜的平民经历了武汉地狱般的折磨。而在中共疫情爆发期间，又有多少中国人逃离中共国？这里面又有多少中共高官及家属？而当疫情重心转移到国外时，同样逃回中共国的，不也是这帮人吗？
 
-1. **国内政治动荡**
-
-
-*疫情如此泛滥，印度总理莫迪及其所在的印度人民党自然难辞其咎，此次疫情正在成为印度国内政治的**“**转折点**”**。具体而言，莫迪首先失去的是其广泛的中产阶级群众基础。*
-
-*于是，一边是支持莫迪的民族主义粉丝们，一边是对莫迪失去幻想的中产阶级，印度国内政治暗潮汹涌。接下来，要么是双方开始在政治议题上发生冲突，要么是莫迪的支持者日渐流失以致莫迪执政根基不稳。转变或许还没发生，但已经在酝酿之中。*民主国家，政党轮替执政，实属正常不过。作者夸大莫迪在处理疫情中的责任，无非就是因为莫迪在西方民主国家里面时坚定的站在反共的前沿的原因。在这里我们要问作者，中共在武汉疫情初期，掩盖疫情，打压吹哨人，压制媒体，隐瞒世界，造成武汉人道灾难，中共是否也难辞其咎呢？
-
-1. **国际地位受损**
+> 我们将一起为中国人民打败中国共产党[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/EMetvJ71ZN](https://t.co/EMetvJ71ZN)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 30, 2021](https://twitter.com/LawrenceSellin/status/1388167750682562567?ref_src=twsrc%5Etfw)
 
 
-*曾经的莫迪，硬气地许下对外出口**10**亿疫苗的承诺；通过印度的**“**疫苗外交**”**对抗中国疫苗的国际影响力，现在看来，真是痴人说梦。而当印度发现疫苗的储备量甚至无法满足本国的需求，不得不宣布推迟**“**新冠肺炎疫苗实施计划**”**（**COVAX**）的交货时间时，它的**“**疫苗外交**”**已经名存实亡。如今印度疫情全面失控，将印度的**“**疫苗外交**”**和中国抗疫成功之间对比，只会贻笑大方。少了印度的四国机制就只剩下美日澳三个国家，美国的**“**印太战略**”**又回到了美国的盟友圈里，影响力自然大打折扣。*
 
-作者在嘲笑印度的所谓“疫苗外交”失败的时候，是否也曾想到中共国也企图大搞“疫苗外交”，企图用疫苗来要挟世界，结果中共研发疫苗在全球第三世界国家里面效率低下，副作用大，以至于许多国家在打了中共疫苗后疫情重新爆发，这算不算“贻笑大方”呢。即便时在中共国内，受中共宣传洗脑的老百姓也对其疫苗持怀疑态度，以至于许多地方要靠强制或者小恩小惠诱惑人们打疫苗。
-
-因疫情而影响“四国机制”和美国的“印太战略”？可见中共多么的忌惮印度作为亚洲大国加入由美国倡导的四国机制啊！在经历了中共病毒对印度的沉重打击后，相信印度会更加坚定的站在西方民主国家一边,必将成为将来反共灭共的排头兵。
-
-1. **为全球防疫带来新的挑战**
+第2推，也是中文推：相信中国人民胜利的士兵。贴图是一张4位美国军人在新中国联邦国旗下的图片，4位美国军人分别是Joseph Stilwell, Claire Chennault, Jimmy Doolittle & Lawrence Sellin。
 
 
-*印度发现的新冠病毒变种还给全世界的抗疫工作带来了全新的挑战。一旦印度政府控制不住疫情，印度将成为新冠病毒的长期**“**定居点**”**。在这种情况下，全球抗疫工作都要关注在印度身上。如果印度疫情无法结束，那意味着全球疫情也将长期无法结束。变异新冠病毒能在印度现在高达**40**摄氏度的气温下存活的能力也让人警惕。印度松散的防疫政策为各种各样的新冠病毒变种之间的交流带来了绝佳的机会。这次病毒能够抗高温，下一次病毒会进化成什么样子？谁也不会知道。*
 
-印度由于人口众多，居住环境差，这是不争的事实。但印度由于在上次疫情期间，全民推广羟氯喹等预防药物，无论是确诊病例和死亡人数，都远远低于美国等重灾国家。印度去年经历了长达4个月的全国性封锁令，经济已经受到了很大的影响。在疫情的缓解形势和经济的压力下，印度政府和莫迪总理完全有理由放松经济，放宽封锁令。即便是本次由于变种病毒引起的再次大爆发，印度中共病毒死亡比例还远低于其他国家。那么问题来了，为什么了突然会出现能在高达40度下存货的变种病毒？这种变种病毒交流的“绝佳”机会，是被谁发现了？为什么印度的疫情大爆发，引发了中共国的网上狂欢？连众多官方网站都喜形于色？
-
-1. **结语**
+> 相信中国人民胜利的美国士兵[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/CG9YWgooSu](https://t.co/CG9YWgooSu)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 30, 2021](https://twitter.com/LawrenceSellin/status/1388182835601739782?ref_src=twsrc%5Etfw)
 
 
-*印度一直以来相当自满，一边不注重科学防疫，一边又想**“**拯救全人类**”**。折腾一圈之后，终于把自己变成了病毒的超级培养皿。面对这样不省心的邻居，中国依然选择拉印度一把。无论印度能不能知恩图报，放下他那脆弱的自尊心，但我们仍要问印度一句：以德报怨，何以报德？*
 
-文中提到，在莫迪政府还在对中共国寻求援助支支吾吾时，一些印度公司私下从中国采购500台制氧机飞到德里。在这里我们可以得到的信息时，印度政府并未向中共国提出援助请求。而印度的公司向中共国订购的氧气机，也是正常的商业行为，人家花钱采购的！ 而作者就要求印度知恩图报，还不忘了自我意淫一番，扯出“以德报怨”的骗人犊子来。试问中共国在疫情初期隐瞒疫情，将祸水引向全世界，造成本世界最大的人道灾难，请问中共，这是“德”呢？还是“怨”？ 在全球病毒源头追责正紧之际，中共企图利用印度疫情爆发转移视线，试图混肴试听，也只能骗骗墙内小粉红而已。世界灭共大潮，浩浩汤汤，顺者昌，逆者亡！
+第3推，转发2021年1月16日中共“央广网”军事专栏的一篇文章“军事科学院首届‘最美军科人’评选揭晓”。请给出意见。比赛的目的是什么？
 
-* * *
 
-*发稿 文锦*
 
-0
+> 请给出意见。 比赛的目的是什么？[https://t.co/qUFoBj7Zsy](https://t.co/qUFoBj7Zsy)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388349669395337216?ref_src=twsrc%5Etfw)
+
+
+
+第4推，转发“慕尼黑感恩”战友的中文推：随手搜了这位“孙岩松”，就发现了让人心跳加速的“宝藏”：军事医学研究院(AMMS)在2018年申请专利：分别是高等级生物安全防护式中小 / 中大动物病原体空气传播实验装置(CN209435971U) / (CN209435980U)，军方提前两年开始做病毒飞沫和气溶胶传播的动物实验！！！并贴出这两份专利文件及孙岩松的照片。塞林博士中英双语推：COVID-19探源之“慕尼黑感恩”找到了一些重要的信息。请顺藤摸瓜搜索更多并将搜索结果放在这里。（孙岩松真容浮出水面）
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@himalaya\_de](https://twitter.com/himalaya_de?ref_src=twsrc%5Etfw) has discovered some very important information. Please follow his trail and post your results here.
+> COVID-19 detective @ himalaya\_de
+> 找到了一些非常重要的信息。 请搜索更多。 将结果放在这里。 [https://t.co/4SHyBomWNi](https://t.co/4SHyBomWNi)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388355157272973314?ref_src=twsrc%5Etfw)
+
+
+
+第5推，再次转发“慕尼黑感恩”战友的推文：童贻刚在2016.1-2019.12期间领导了一个秘密军事项目（与WIV合作），现在他正在招募研究员以优化他热衷的穿山甲冠状病毒GX\_P2V的感染性及其治疗药品，这是参与“计划好的”疫情并掩盖病毒真相等黑手的绝佳时机，并贴上该项目计划书及相关论文的截图，以及附上童贻刚、曹务春等4人的照片。COVID-19探源之“慕尼黑感恩”又一个重大发现，童贻刚是与WIV联系的军方人物，这个线索还与哪些与病毒起源有关的军事实验室有关联？
+
+
+
+> Another important discovery by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@himalaya\_de](https://twitter.com/himalaya_de?ref_src=twsrc%5Etfw)
+> Yigang Tong is the military link to the Wuhan Institute of Virology. How does that link connect to others that would explain the military lab [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) ? [https://t.co/DG6tjDRI3W](https://t.co/DG6tjDRI3W)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388359960485146625?ref_src=twsrc%5Etfw)
+
+
+
+第6推，转发“火来2号”战友的中文推，将与军事医学科学院(AMMS)有关的中外科研人员的照片都贴出来了。COVID-19病毒探源之“火来2号”准确地用正确的向外传播的病毒研究网络分析工具，以呈现PLA-AMMS如何将‘民用’研究所/大学机构与国际上的实验室连接起来的关键环节，线索基于5W(who, what, where, when & why) 。
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) uses exactly the correct outwardly-spreading virus research network analysis. A PLA AMMS core linked to Chinese "civilian" institutes/universities connected to international labs. The 5 Ws, who, what, where, when and why. [https://t.co/tkTub7ZSLH](https://t.co/tkTub7ZSLH)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388369261996003328?ref_src=twsrc%5Etfw)
+
+
+
+第7推，在CCP病毒产生前其福林酶切位点的理论基础已经成型，基于惠塔克(Whittaker)分析工具，姜世勃的人工插入福林酶切位点，是PLA的卢广文和高福渴望已久、梦寐以求的法宝，脯氨酸的介入是为了提高其稳定性和酶的利用率，并贴上相关论文的网页截图。
+
+
+
+> The conceptual basis for [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)'s furin cleavage site (FCS) was in place before the [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) was created. Whittaker's analysis, Shibo Jiang's artificial FCS insertion & PLA Guangwen Lu & George F. Gao's eagerness for doing so. Proline was added for stability & enzyme access. [pic.twitter.com/rn0vHJzEF1](https://t.co/rn0vHJzEF1)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388456407146635270?ref_src=twsrc%5Etfw)
+
+
+
+第8推，继续转发“火来2号”战友的中文推：“闫博士今天在The National Pulse的采访中，谈到了功能获得性研究gain of function。我们再次回顾下拉尔夫巴里克再一次网络会议中，说到功能获得性研究时，那得意的笑，让人不寒而栗”，并附上该段视频。“这些都是非常自大的人，巴里克知道真相，但他隐藏了自己的同谋，并保密自己的资金来源，在我看来，这些人和在实验室制作病毒的人同罪”。
+
+
+
+> These are very arrogant people. Baric knows the truth, but he is hiding his own complicity and wants to protect his source of funding. In my opinion, such people are just as criminal as those who created [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) in the laboratory.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/Fz0N0d8mWl](https://t.co/Fz0N0d8mWl)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 1, 2021](https://twitter.com/LawrenceSellin/status/1388479385121038339?ref_src=twsrc%5Etfw)
+
+
+
+CCP病毒产生前最核心理论基础就是姜世勃的福林酶切位点人工插入，这让PLA生物战计划项目科研领军人物卢广文和高福如获至宝、喜出望外，军方孙岩松提前两年开始做病毒飞沫和气溶胶传播动物实验的专利证据，以及童贻刚招募研究员优化穿山甲冠状病毒GX\_P2V的感染性及其治疗药品以混淆视听掩盖病毒真相这些铁证，必将把CCP-PLA钉死在人类历史的耻辱柱上！
+
+有理由相信塞林博士在引领COVID-19病毒溯源过程中，许多情报信息是来自新中国联邦爆料革命，尤其是来自文贵先生和闫博士等的第一手情报信息甚至实锤证据，因此塞林博士内心无法掩盖对新中国联邦的热爱和尊重，毫不掩饰地贴出了我们新中国联邦的国旗，甚至将二战期间中美两军亲密合作缔结两国人民坚定盟友的3位美军将领Joseph Stilwell, Claire Chennault, Jimmy Doolittle，以及穿军装的塞林博士自己的照片一起贴在新中国联邦的国旗下，这意味深长而重大：这4位美军军官将加入新中国联邦的护旗手队伍，发扬中美两军精诚合作、并肩作战的历史传统，不畏艰难困苦，勇变不可能为可能，誓死在COVID-19超限生物战中找到真相，消灭邪恶至极的CCP！
+
+校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++2
