@@ -1,121 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（十五）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1176019/)
+## 喀秋莎新闻参考-2021年5月4日（星期二）
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1176235/)
 
-作者：纽约香草山信息部 6zero4
+俄罗斯莫斯科喀秋莎农场土星
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/封面K-1-400x225-3-400x225-1.jpeg)
+**一、新中国联邦新闻**
 
+1.“路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=29CO6HuOlzw)、[晚间](https://www.youtube.com/watch?v=qReT_G_RIBw)）:
 
+Ⅰ. 5月4日，劳伦斯·赛林博士发表重磅声明表示，中共病毒是实验室的产物，是中共科学家利用军民融合项目开展的一项更广泛的功能增强获得型病毒研究计划的产品。中共利用军民融合，将秘密的军事研究隐藏在民用机构和大学中。中共自日本帝国军队继承了类似的战略，该战略把生物武器开发隐藏成兽医学或农业研究所。目前由与中共解放军有密切联系的军事医学科学院牵头，一大批参与军民融合的机构和医院涉及参与了病毒收集工作。
 
-5月3日塞林博士的4连推：
+Ⅱ. 5月3日，Jack Keane将军接受FOX采访时表示，习近平比毛泽东更具侵略性、更有野心；习向美国的盟友传达信号，拜登政府保护不了他们；中共国作为最先从疫情中恢复的国家，其军力在印太地区比美国强；台湾最可能是擦枪走火的地方，美国需要建立有效的军事狙击力，需要集结美国的实力，加装更先进的武器来抗衡中共国的科技优势。
 
-第1推，转发“Montreal Himalaya蒙特利尔”战友响应塞林博士面向全球征集CCP病毒信息的推文：AMMS在2020年9月15日发布的专利报告中承认羟氯喹(HCQ)可以抑制针对SARS-CoV-2病毒基因组的感染和复制，不公开发明人是什么意思？并贴上该专利报告的截图。这让每个人无比愤怒：（1）PLA试图控制HCQ并从中获利；（2）福奇、科学家们、科学杂志和媒体对HCQ针对COVID-19的早期使用轻描淡写，可能已经导致多大10万人的死亡。
+2. 欧盟执行副主席瓦尔迪斯·东布罗夫斯基斯5月4日表示，鉴于双方在针锋相对的制裁后外交关系恶化，欧盟已经暂停了与中共国敲定其大规模投资协议的努力。
 
+3. 欧盟将在5月5日提出对国家资助的公司的新限制。欧盟竞争事务专员玛格丽特·维斯塔格(Margrethe Vestager)4日表示，欧盟需要 “侵入性 “的规则，以防止如来自中共国的由外国国家资助的公司的恶意竞争。
 
+4. 中共国周二纪念了 “五四青年节”，作为从5月1日或 “国际工人节 “开始的为期五天的马克思主义庆祝活动的一部分，中共国的青年成为”红色旅游”的一个日益增长的目标人群。
 
-> This should make everyone very angry (1) PLA tried to control and profit from the use of hydroxychloroquine (HCQ) for [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) (2) U.S. government officials like Fauci, scientists, scientific journals & media downplayed the early use of HCQ, likely causing the deaths of 100,000s. [https://t.co/GoWH0bYtVR](https://t.co/GoWH0bYtVR)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 3, 2021](https://twitter.com/LawrenceSellin/status/1389088181270851585?ref_src=twsrc%5Etfw)
+5. 美国印太地区政策协调员5月4日似乎拒绝了要求美国在中共国进攻时明确表示愿意保卫台湾的呼吁，他说这种做法有 “重大不利因素”。
 
+6. 对中共国崛起的担忧使布鲁塞尔和新德里更加紧密， 欧盟和印度在5月1日的一次虚拟峰会上同意重启停滞不前的自由贸易谈判。该声明草案必须在5日由欧盟大使签署，并需要新德里的最终批准，它将把世界上最大的两个经济体结合在一起，形成一个被视为对抗中共国的联盟。
 
+7. 日本政府表示，外相茂木敏充5月4日在七国集团外长会议的第二天，对中共国单方面试图改变东海和南中国海现状的行为表示 “严重关切”。据日本外务省称，在部长们讨论与中共国和俄罗斯有关的问题时，日本还对北京处理与新疆自治区穆斯林维吾尔族有关的人权问题以及香港的局势表示关切。
 
-第2推，闫博士是绝对正确的，混合使用多种药物对COVID-19的早期治疗本可以挽救数以千计人类的生命，并减少疫情传播的规模，但有钱有势的人却在疫苗中赚钱，并贴上爆料革命关于闫博士对HCQ等早期用药治疗建议的图片。
+8. 中共外交部5月4日中断了为期五天的 “五一 “假期，谴责菲律宾外交部长特奥多罗·洛辛在周末的推特咆哮中告诉中共 “滚出 “菲律宾在南中国海的领土。
 
+9. 中共驻联合国特使张军5月3日告诉记者，美国国务卿安东尼·布林肯对中共国邀请他出席周五的联合国安理会虚拟峰会给予了 “积极 “回应。希望布林肯利用5月4日的七国集团会议为针对王毅的第二回合做准备。
 
+10. 习近平采用了毛泽东最后使用的 “舵手 “称号，这是他试图巩固权力的最新迹象。美国陆军中将Scott Berrier上周在参议院军事委员会发言时表示，”中共中央委员会10月的一次会议标志着习近平权力的重大转变。我认为习近平已经牢牢控制了党、军队和中共国社会的各个方面。“
 
-> Dr. Limeng Yan [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) is absolutely correct. Early treatment of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) with a combination of drugs could have saved thousands of lives and decreased the pandemic's effects, but rich and powerful people were making too much money from vaccines.[#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/4CYAm3Z847](https://t.co/4CYAm3Z847)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 3, 2021](https://twitter.com/LawrenceSellin/status/1389105853362544640?ref_src=twsrc%5Etfw)
+11. 印度政府5月4日表示，将允许移动运营商与爱立信、诺基亚和三星网络部门等设备制造商开展5G试验，但没有将中共的华为和中兴列入参与者。
 
+12. 与中共相关的孔子学院在美国正在崩溃，由于川普政府的压力以及现任美国政府内部对中共国影响力带来的日益关注，几年之内，孔子学院的数量从100多家降到了十几家。
 
+13. 林郑月娥5月4日表示，随着对全球金融中心媒体自由的担忧日益加剧，香港政府正在制定“假新闻”立法，以应对“错误信息，仇恨和谎言”。外界普遍认为中共将进一步加紧香港的新闻管控。
 
-第3推，PLA兽医公开通过实验室改造(连续传代)将感染人类的流感病毒变得更危险，长春兽医研究所及其相关的研究中心似乎是CCP生物战计划的核心要素，并贴上夏咸柱的照片及其相关论文的截图。
+14. 印度武装部队没有陷入繁重的国防采购过程，而是利用副总司令的财政权力，从美国、法国和俄罗斯等战略盟友那里租借关键武器平台，以应对北方邻国的挑战。
 
+**二、世界新闻**
 
+1. 国际货币基金组织总裁克里斯塔琳娜·格奥尔基耶娃5月4日表示，一项关于税收的多边协议，如美国提出的解决方案，是确保高利润的跨国公司在其开展业务的地方（包括低收入国家）支付足够税收的唯一途径。
 
-> People's Liberation Army veterinarians openly making a human influenza virus more dangerous by laboratory manipulation (serial passage). The Military Veterinary Research Institute, Changchun and linked research centers appear to be core elements of the CCP's biowarfare program. [pic.twitter.com/uVt0cc5N4h](https://t.co/uVt0cc5N4h)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 3, 2021](https://twitter.com/LawrenceSellin/status/1389160702997315586?ref_src=twsrc%5Etfw)
+2. 美国总统拜登5月4日表示，他希望在6月的欧洲之行中与俄罗斯总统普京举行他所提议的峰会。
 
+3. 欧盟委员会将提议联合采购Covid-19治疗方法，以便寻求在中共病毒急性期过后的时期内确保潜在的关键药物供应。
 
+4．这不仅仅是印度，猛烈的新的中共病毒浪潮正笼罩着世界上其他发展中国家，给它们的卫生保健系统带来了严重的压力，并逼迫人们发出了援助呼吁。
 
-第4推，长春兽医研究所的夏咸柱和北京动物研究实验室的秦川，联手通过实验室连续传代将H1N1流感病毒变得更具毒性，与其相关的研究中心似乎是CCP生物战计划的核心要素，并贴上夏咸柱及其相关论文的截图，线索：部分地了解了COVID-19是如何制造出来的！并贴上夏咸柱和秦川的照片及其相关论文的截图。
+5. 据英国《独立报》周一报道，加拿大卫生部长在接受加拿大公共电台采访时说，加拿大将 “绝对 “要求中共病毒 “疫苗护照 “用于国际旅行。
 
+6. 美国商务部长吉娜·雷蒙多5月4日表示，美国商务部正在敦促台湾积体电路制造有限公司（台积电）和其他台湾公司优先考虑美国汽车制造商的需求，以在短期内缓解芯片短缺。
 
+7. 脸书的独立监督委员会5月5日将就该平台对美国前总统川普的禁令作出裁决，该案件可能为社交媒体如何处理世界领导人的内容树立先例。川普对禁令毫不畏惧，经常通过电子邮件发表声明，并在5月4日推出了一个类似博客的网站，他称该网站是 “自由的灯塔”，是 “自由和安全发言的地方”。
 
-> Xianzhu Xia of the Military Veterinary Research Institute, Changchun & Chuan Qin of the Institute of Laboratory Animal Sciences, Beijing team up to make the 2009 pandemic H1N1 influenza virus more virulent by laboratory serial passage. Hint: partly how [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) was made[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/N9syMLaDrD](https://t.co/N9syMLaDrD)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 3, 2021](https://twitter.com/LawrenceSellin/status/1389196440619077635?ref_src=twsrc%5Etfw)
+8. 在总理纳伦德拉·莫迪和英国首相鲍里斯·约翰逊5月4日的虚拟峰会上，印度和英国就扩大双边防务合作达成协议，其内容包括通过技术合作开发作战飞机和复杂武器，这是一个重大举措。
 
+9. 俄罗斯方面抱怨说，俄罗斯和俄罗斯盟国正被模拟当成北约的敌人，美国和盟国5月4日在欧洲发起了一项计划已久的军事演习，涉及来自该大陆26个国家的28000多名士兵。这次名为 “欧洲保卫者21 “的演习在阿尔巴尼亚举行了开幕式后开始，是在俄罗斯军队沿乌克兰边境移动后进行的。
 
+10. 日本外务省4日表示，日本，美国和韩国将于5月5日在伦敦举行外交部长级会议。这次会议将在七国集团外长会谈的间隙举行，将可能集中在朝鲜问题的三边协调等问题上。
 
-5月4日塞林博士的5连推：
+11. 5月4日，澳大利亚在马绍尔群岛和法属波利尼西亚开设了大使馆，堪培拉加快了应对来自中共国在太平洋地区日益增长的影响力竞争的努力。
 
-第1推，转发“MosTrans”战友回应自己5月3日第4推的推文：夏、秦和金三人之间的紧密关系，并贴出了他们之间过去联合发表科学论文的搜索结果截图。赞扬了COVID-19侦探Devon Y战友运用病毒研究网络分析的有效性，CCP生物战计划的核心要素就是军事兽医，以及研究了什么并与谁有关。
-
-
-
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@No3Mos](https://twitter.com/No3Mos?ref_src=twsrc%5Etfw) shows the effectiveness of virus research network analysis. A core element of the Chinese Communist Party biowarfare program is the military veterinarians, what research they did and to whom they were linked. [https://t.co/A4fSWvsjFa](https://t.co/A4fSWvsjFa)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389425795723153409?ref_src=twsrc%5Etfw)
-
-
-
-第2推，转发“Devon Y”战友回应自己5月3日第3推的中文推：夏咸柱通过小鼠的传代实验，经过9代之后，用MDCK细胞扩繁病毒，得到了JN-P9-2-M1毒株，该毒株比原病毒毒性提高了至少1000倍，对小鼠致病能力得到初步提高，并贴上其实验室团队对此的研究分析报告截图。认可COVID-19侦探MosTrans战友对CCP军事兽医经常使用实验室操纵的连续传代使病毒变得更加危险的揭露，军事兽医是CCP生物战计划的关键部分。
-
-
-
-> In several Tweets [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@devonJ32130301](https://twitter.com/devonJ32130301?ref_src=twsrc%5Etfw) shows that Chinese Communist Party military veterinarians were routinely using the laboratory manipulation of serial passage to make viruses more dangerous. Military veterinarians are a key part of the CCP's biowarfare program. [https://t.co/N2HY2BL17j](https://t.co/N2HY2BL17j)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389428627809443841?ref_src=twsrc%5Etfw)
-
-
-
-第3推，塞林博士的中文推：致所有COVID-19侦探。请搜索：ZC45和ZXC21发生了什么？ZC45和ZXC21于2018年在第三军医大学进行了研究，然后消失了，他们去了哪些实验室？长春军事兽医研究所？并贴上闫博士有关CCP病毒骨架ZC45和ZXC21及其神经毒性观点的图片。
-
-
-
-> 致所有COVID-19侦探。 请搜索。 
-> ZC45和ZXC21发生了什么？ 
-> ZC45和ZXC21于2018年在第三军医大学进行了研究，然后消失了。 
-> 他们去了哪些其他实验室？ 长春军事兽医研究所？ [pic.twitter.com/d10SY6wIJt](https://t.co/d10SY6wIJt)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389442615960129538?ref_src=twsrc%5Etfw)
-
-
-
-第4推，转发“Devon Y”战友回应自己上一推的中午推：通过蝙蝠病毒的进一步研究，成功提取出了两株新的SARS病毒，新毒株SL-CoVsZC45在蝙蝠组织上感染乳鼠，来自PLA陆军军医大学，2019年，并贴上该研究报告网页截图。塞林博士回应中文推：致所有COVID-19侦探。资金：军事后勤研究项目（编号AWS16J020，AWS16J021，AWS16J023等）通常意味着与长春军事兽医研究所的何彪从蝙蝠身上收集了ZC45和ZXC21，跟着资金挖，并贴上自己4月22日关于何彪的推文链接。
-
-
-
-> 致所有COVID-19侦探。 资金：军事后勤研究项目（编号AWS161020，AWS161021，AWS16102）通常意味着与长春军事兽医研究所的链接。 (Biao He) 军事兽医研究所的何彪从蝙蝠身上收集了ZX45和ZXC21。 跟着钱。 [https://t.co/87Kuj5goOY](https://t.co/87Kuj5goOY) [https://t.co/b90GEp9zQ7](https://t.co/b90GEp9zQ7)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389461628744306690?ref_src=twsrc%5Etfw)
-
-
-
-第5推，是的，RaTG13是最接近COVID-19的亲戚，因为它也是实验室改造出来的，是一个通向COVID-19的中间过渡病毒，CCP及一些有影响力并亲共的西方科学家撰写了数百篇有关假病毒的文章，欺骗了其他科学家，并贴上闫博士有关RaTG13观点的爆料革命宣传图片。
-
-
-
-> Yes, RaTG13 is the closest relative to [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) because it is also a laboratory construct, an intermediate, drawing board virus on the way to COVID-19. The CCP & some influential CCP-friendly Western scientists fooled other scientists to write 100s of articles about a fake virus. [pic.twitter.com/3w9oM4JRwT](https://t.co/3w9oM4JRwT)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389488592926486528?ref_src=twsrc%5Etfw)
-
-
-
-CCP生物战计划的核心要素就是PLA军事兽医系统，长春兽医研究所及其相关的研究中心，北京动物研究实验室，第三军医大学（PLA陆军军医大学）进入COVID-19病毒溯源的聚光灯下。战友们继续跟着CCP-PLA-AMMS项目资金挖，挖到了长春兽医研究所的夏咸柱和北京动物研究实验室的秦川，联手通过实验室连续传代将H1N1流感病毒变得更具毒性的证据。塞林博士继续抛砖引玉、穿针引线，抛出2018年在第三军医大学（现PLA陆军军医大学）研究的，具神经毒性的ZC45和ZXC21消失后，去了哪些实验室的线索让战友们继续深挖。幽默地戏谑了RaTG13是最接近COVID-19的亲戚的说法，准确说是实验室内的亲戚关系，因为RaTG13是实验室改造出来以过渡到COVID-19的中间体，是CCP及其收买的西方科学家以假病毒RaTG13为道具，以大搞文章、浑水摸鱼、混淆视听，从而隐瞒真相、制造假象、欺骗世界！
-
-AMMS在2020年9月15日发布的专利报告中承认羟氯喹(HCQ)可以抑制针对SARS-CoV-2病毒基因组的感染和复制，应证了闫博士对HCQ在COVID病毒预防和早期治疗有效的科学论断，但科学界、媒体和疫苗公司等有钱有势的权贵和资本家却竭力否定HCQ，一门心思在疫苗中赚大钱，这可能已经导致多大10万美国人的死亡，创造了人类灾难中赚黑心钱、赚死人钱的世界纪录！
-
-校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+12. 日本已经开始向菲律宾军队提供救生设备，以加强两国的外交关系。这是东京首次向另一国的武装部队提供自卫队装备。
 
 0
