@@ -1,95 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【信仰之声】CCP病毒，CCP军事实验室制造的大麻疯
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1176662/)
+## 生在中共国，是一种悲哀
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1176749/)
 
-作者：纽约香草山福音部 JingleChenge
+作者：胖丁| 校对：X-Wing| 审核：宁缺| Page：小六月
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02191345/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
+[!\[\]()!\[\](https://spark.adobe.com/page/gYwXUQhKQMtQZ/images/c13e2936-9fe2-435a-a433-83f2810a5bc2.jpg?asset_id=1a512dbe-7b87-44f0-b6dc-3f98babc10c0&amp;img_etag=%2205dd0b3364e634bb0d597e86fce5ac72%22&amp;size=1024)](https://spark.adobe.com/page/gYwXUQhKQMtQZ/images/c13e2936-9fe2-435a-a433-83f2810a5bc2.jpg?asset_id=1a512dbe-7b87-44f0-b6dc-3f98babc10c0&amp;img_etag=%2205dd0b3364e634bb0d597e86fce5ac72%22&amp;size=1024)
+
+平时浏览新闻，最想跳过去不看的除了父母被弃养，就是婴幼儿被拐卖、被残杀。
+
+最近广西玉林幼儿园的孩子被砍，导致两名幼儿死亡，16人受伤，再一次令我的心悲伤不已。这样的恶性案件每次在中共国发生的时候，警方轻描淡写给出的理由，要么是袭击者的精神有问题，要么就是受到了什么刺激想要报复社会。过不了多久，新闻的热度过去了，事情就不了了之了。没有人继续关注后续的发展，警方不会通报袭击者的情况，也没有人过问失去孩子的父母们是否精神也会出现问题。
+
+当恶性案件发生时，除了哭，幼儿是没有任何反抗能力的。而哭能阻止行凶者吗？每个人活着都不容易，都有痛不欲生的时刻。一个成年人如果不能自己解决问题或者没有社会体制的帮助，当忍到不到再忍的时候，悲剧就会发生。而最悲剧的是，弱小的儿童往往成了牺牲品。尚未成年，生命已经停止。侥幸活下来的，今后的岁月也会伴随着心灵的创伤。
+
+为什么？类似的悲剧一再发生？为什么每次都是针对儿童？为什么没有袭击者去攻击政府大楼或者公检法机构？甚至直接挑战中南坑？精神出了问题还知道挑弱者来欺负，精神真的出问题了吗？
+
+这不仅仅是袭击者个人的问题，是整个社会体制的问题。中共国从上到下就是一个没有法制、恃强凌弱的流氓犯罪组织。流氓本不可怕，可怕的是流氓手里有了枪，还有了制定法律的权力和执行法律的手段，百姓就遭了殃。人民有冤无处伸，有理无处评。各行各业都是不合理竞争，弱肉强食，人民生活苦不堪言。人压抑到一定程度的时候，就会爆发，于是，没有任何反抗能力的儿童就成了很多人发泄的对象。中共的体制浸透着人民的鲜血。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/gYwXUQhKQMtQZ/images/d2700dd2-0338-4bea-8d3b-e72dcbe9db35.jpg?asset_id=2ae0a874-a944-4a11-a36d-57aab1c5c06b&amp;img_etag=%226b7a8b18538ad4fe14c18fec733cd7e3%22&amp;size=1024)](https://spark.adobe.com/page/gYwXUQhKQMtQZ/images/d2700dd2-0338-4bea-8d3b-e72dcbe9db35.jpg?asset_id=2ae0a874-a944-4a11-a36d-57aab1c5c06b&amp;img_etag=%226b7a8b18538ad4fe14c18fec733cd7e3%22&amp;size=1024)
+
+国内的朋友，能出来的我劝她们尽量出来，想回去的劝她们尽量把孩子留在海外，出不来的劝她们不要生育。文贵先生说过，哪怕就是当一条美国狗也是幸福的。孩子出生在中共国，是一种悲哀。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-《圣经》在摩西五经中记载了一种皮肤病，就是在四五千年前就在人群中流行的大麻疯。
-
-大麻疯是一种无药可治的病，是由麻风杆菌与弥漫型麻疯分枝杆菌引起的一种慢性传染病，会在患者的神经系统、呼吸道、皮肤与眼部长出肉芽肿。这些肉芽肿使患处失去痛觉感知，从而导致得这种病的人不知道保护自己不受火热、利器、打击、跌倒的伤害，以至于全身会因各种伤害没有及时医治而严重溃烂（疼痛是天父上帝赐予人的礼物，时刻提醒我们危险所在。可能我们对此不以为然，甚至厌恶疼痛，只有等到哪一天我们身体上某个部位没有感觉的时候，我们才知道对疼痛的珍贵。失去之后才知道曾经拥有过的贵重）。
-
-大麻疯主要经由飞沫传染，但传染性并不强。感染初期不会出现症状，潜伏期可达5～20年。大家都不敢靠近长麻疯的人，因为怕被传染。《圣经》中许多著名的人物都曾为此病所苦，包括神人摩西（出4：6-7）、摩西的姊姊米利暗（民12：10）、亚兰的常胜将军乃缦（王下5）和犹大王乌西雅（代下26：19-21）。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05141119/%E5%9B%BE%E7%89%8719-1.png)
-
-CCP病毒与这大麻疯的致病效果很相似。首先来看大麻疯的致病效果：
-
-1、飞沫传播
-
-2、潜伏期可长达达5至20年
-
-3、失去知觉
-
-4、祭司鉴定是不是大麻疯
-
-5、用手遮口
-
-6、见到人就喊叫：不洁净了，不洁净了
-
-7、人人躲避
-
-8、是否痊愈，由祭司鉴定
-
-9、承受被人弃逐的心灵痛苦
-
-再来看CCP病毒的致病效果：
-
-1、飞沫传播
-
-2、潜伏期可长达达14至28天
-
-3、失去味觉、嗅觉
-
-4、CCP病毒检测中心检测是不是感染了
-
-5、戴口罩
-
-6、通知周围人群：阳性了，阳性了
-
-7、人人躲避
-
-8、是否转阴，由CCP病毒检测中心说了算
-
-9、承受被人嫌弃的心灵痛苦
-
-但这两者也有不同点。
-
-大麻疯是外在的，肉眼可见的，人一看就知道躲避，传染性也不强，要不然全人类早死光了。
-
-而CCP病毒是内在的，隐蔽的，肉眼看不见就不知躲避，而且传染性超强。迄今为止短短一年之内，CCP病毒感染了全世界154,371,149人，使3,227,968人失去生命。更可怕的是，这个病毒并无衰减的迹象，人类正等待一个未知的结局，除非神迹出现！
-
-《圣经》新约记载耶稣治愈了许多人的大麻疯（太8：2-4；可1：40-45；路5：12-15；腓三17：7-9），甚至有一次一下就治好了十位大麻疯患者（路17：11-19）。
-
-证明这事的说，是了。我必快来。阿们。（启22:20）
-
-主耶稣阿，我愿你来。
-
-1. 统计数字截至2021年5月5日上午 11:08:06
-
-[https://news.google.com/covid19/map?hl=enUS&mid=%2Fm%2F02j71&gl=US&ceid=US%3Aen](https://news.google.com/covid19/map?hl=enUS&amp;mid=%2Fm%2F02j71&amp;gl=US&amp;ceid=US%3Aen)
-
-2. [https://zh.wikipedia.org/wiki/%E9%BA%BB%E9%A3%8E%E7%97%85](https://zh.wikipedia.org/wiki/%E9%BA%BB%E9%A3%8E%E7%97%85)
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01143151/M5.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[!\[\]()!\[\](https://spark.adobe.com/page/gYwXUQhKQMtQZ/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/gYwXUQhKQMtQZ/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

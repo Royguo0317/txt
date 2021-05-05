@@ -1,121 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（十五）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1176019/)
+## 《路德时评》深入解读Sellin博士声明与G7峰会的关联
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1176308/)
 
-作者：纽约香草山信息部 6zero4
+直播视频：
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
+《路德时评》2021年5月5日早间节目主要内容：
 
-5月3日塞林博士的4连推：
+**·**解读Sellin博士与G7峰会的关联性
 
-第1推，转发“Montreal Himalaya蒙特利尔”战友响应塞林博士面向全球征集CCP病毒信息的推文：AMMS在2020年9月15日发布的专利报告中承认羟氯喹(HCQ)可以抑制针对SARS-CoV-2病毒基因组的感染和复制，不公开发明人是什么意思？并贴上该专利报告的截图。这让每个人无比愤怒：（1）PLA试图控制HCQ并从中获利；（2）福奇、科学家们、科学杂志和媒体对HCQ针对COVID-19的早期使用轻描淡写，可能已经导致多大10万人的死亡。
+前中情局局长布伦南接受左媒CNN采访时抨击川普抗共不力。他说，中共国是美国面对的最大独裁专制威胁，G7峰会的目的就是联合世界民主国家共同对抗中共。他还批评川普只会对中共打口炮，没有实际行动，而拜登作为一个有经验的国际政治家，对中共不会虚张声势，而是采取务实的方式，并且是坚决果断。
 
 
 
-> This should make everyone very angry (1) PLA tried to control and profit from the use of hydroxychloroquine (HCQ) for [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) (2) U.S. government officials like Fauci, scientists, scientific journals & media downplayed the early use of HCQ, likely causing the deaths of 100,000s. [https://t.co/GoWH0bYtVR](https://t.co/GoWH0bYtVR)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 3, 2021](https://twitter.com/LawrenceSellin/status/1389088181270851585?ref_src=twsrc%5Etfw)
+> 前中情局局长布伦南接受左媒CNN采访，抨击川普抗共不力。
+> 他说，中共国是美国面对的最大独裁专制威胁，G7峰会的目的就是联合世界民主国家共同对抗中共。
+> 他认为川普对中共只会口炮，没有实际行动；而拜登作为一个有经验的国际政治家，对中共不会虚张声势，而是采取务实的方式，并且会坚决果断 [pic.twitter.com/wgpKm41knL](https://t.co/wgpKm41knL)
+> — 珠穆朗玛 (@ZanXixi) [May 5, 2021](https://twitter.com/ZanXixi/status/1389880772786417667?ref_src=twsrc%5Etfw)
 
 
 
-第2推，闫博士是绝对正确的，混合使用多种药物对COVID-19的早期治疗本可以挽救数以千计人类的生命，并减少疫情传播的规模，但有钱有势的人却在疫苗中赚钱，并贴上爆料革命关于闫博士对HCQ等早期用药治疗建议的图片。
+路德社评论：
 
+1、路德社在昨天节目中提及日韩两国与东盟轮值国主席文莱都参与此次G7峰会，此次峰会主要提及三件事，分别是如何解决中共病毒问题，气候问题，以及未来科技问题，中共病毒问题绝对是此次会谈的重中之重。Sellin博士随即也发布有关中共病毒的正式声明，美国军情部门代表Sellin博士此时站出来肯定是有意安排。
 
+2、G7峰会参与国对中共病毒问题已经达成共识，该问题严重威胁所有国家的安全，中共肯定非常惧怕G7峰会，因为G7成员国就是全球秩序的制定者和守护者。
 
-> Dr. Limeng Yan [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) is absolutely correct. Early treatment of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) with a combination of drugs could have saved thousands of lives and decreased the pandemic's effects, but rich and powerful people were making too much money from vaccines.[#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/4CYAm3Z847](https://t.co/4CYAm3Z847)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 3, 2021](https://twitter.com/LawrenceSellin/status/1389105853362544640?ref_src=twsrc%5Etfw)
+3、Sellin博士站出来揭露中共病毒真相后，中共网络水军疯狂抹黑Sellin博士，说他是爆料革命捏造的每股军情专家，当Sellin博士露脸发布正式声明后彻底打脸中共，再次揭穿中共搅混水的阴谋。Sellin博士此次是穿西装发表声明，过段时间就会穿着军装发表声明，再过一段时间就是与最顶级的美国官员同框出境，这也是在提醒中共国老百姓要提前做好中共灭亡的各种准备。
 
+4、爆料革命几年前就开始提醒中共国老百姓屯粮换美元，卖房变现，服用羟氯喹预防感染……中共国一直诋毁和分裂爆料革命，只要是真战友肯定已经行动了。
 
+5、美国军队中最强的军力藏在民间，这就是美国的伟大，将所有都藏富于民，个体的强大才是真正的强大，所以美国不可能出现集权，这就是新中国联邦要追求的目标。中国几千年的集权统治已经将老百姓训练成奴隶，中共国仍是如此，中共军队在美军面前不堪一击。
 
-第3推，PLA兽医公开通过实验室改造(连续传代)将感染人类的流感病毒变得更危险，长春兽医研究所及其相关的研究中心似乎是CCP生物战计划的核心要素，并贴上夏咸柱的照片及其相关论文的截图。
+6、布伦南作为左派官员肯定会批评川普总统，但是美国左派也已经开始反共，这是非常好的现象。布伦南在采访中提及G7峰会中的民主政府能否就应对中共病毒问题达成共识，这非常重要。中共国就想利用病毒摧毁西方民主社会的体系，让西方社会陷入无政府的混乱局面，所以民主国家必须要达成消灭中共独裁政府的共识。
 
+7、**路德社爆料：美国很多曾经聚焦中东军事的军情人员已经将焦点转移至中共国和中共病毒问题上，**美国高层只要调整指挥棒，一线人员立马就会调整方向。
 
+8、爆料革命新中国联邦战友在灭共上绝对是站在全球最前列，我们只要脚踏实地地往前走，只要有实力，以我们对中共病毒和中共邪恶体制的了解，未来一定会成为一笔重要的人生财富。现在，全球都在调整方向，转向灭共。
 
-> People's Liberation Army veterinarians openly making a human influenza virus more dangerous by laboratory manipulation (serial passage). The Military Veterinary Research Institute, Changchun and linked research centers appear to be core elements of the CCP's biowarfare program. [pic.twitter.com/uVt0cc5N4h](https://t.co/uVt0cc5N4h)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 3, 2021](https://twitter.com/LawrenceSellin/status/1389160702997315586?ref_src=twsrc%5Etfw)
+9、川普总统在卸任前始终不敢公开揭露中共病毒真相，这也是导致他下台的最重要原因，即使他准备好灭共的板砖也无济于事，拜登政府现在坐享其成。拜登总统以其丰富的从政经验，开始联合众多盟友共同对抗中共国威胁。
 
+10、新中国联邦每个人只有个体强大，才能让新中国联邦强大，才不会被外国欺负，每个人都要积极参与到体系的建设中，绝对不能指望靠一两个人就可以建立其完善的体系，我们不仅要发挥个人才干，还要建立一套完善的监督机制和追责机制。
 
+[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
 
-第4推，长春兽医研究所的夏咸柱和北京动物研究实验室的秦川，联手通过实验室连续传代将H1N1流感病毒变得更具毒性，与其相关的研究中心似乎是CCP生物战计划的核心要素，并贴上夏咸柱及其相关论文的截图，线索：部分地了解了COVID-19是如何制造出来的！并贴上夏咸柱和秦川的照片及其相关论文的截图。
+文章撰写：【重生】  编辑：【香柏树】
 
+本文仅代表作者个人观点
 
-
-> Xianzhu Xia of the Military Veterinary Research Institute, Changchun & Chuan Qin of the Institute of Laboratory Animal Sciences, Beijing team up to make the 2009 pandemic H1N1 influenza virus more virulent by laboratory serial passage. Hint: partly how [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) was made[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/N9syMLaDrD](https://t.co/N9syMLaDrD)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 3, 2021](https://twitter.com/LawrenceSellin/status/1389196440619077635?ref_src=twsrc%5Etfw)
-
-
-
-5月4日塞林博士的5连推：
-
-第1推，转发“MosTrans”战友回应自己5月3日第4推的推文：夏、秦和金三人之间的紧密关系，并贴出了他们之间过去联合发表科学论文的搜索结果截图。赞扬了COVID-19侦探Devon Y战友运用病毒研究网络分析的有效性，CCP生物战计划的核心要素就是军事兽医，以及研究了什么并与谁有关。
-
-
-
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@No3Mos](https://twitter.com/No3Mos?ref_src=twsrc%5Etfw) shows the effectiveness of virus research network analysis. A core element of the Chinese Communist Party biowarfare program is the military veterinarians, what research they did and to whom they were linked. [https://t.co/A4fSWvsjFa](https://t.co/A4fSWvsjFa)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389425795723153409?ref_src=twsrc%5Etfw)
-
-
-
-第2推，转发“Devon Y”战友回应自己5月3日第3推的中文推：夏咸柱通过小鼠的传代实验，经过9代之后，用MDCK细胞扩繁病毒，得到了JN-P9-2-M1毒株，该毒株比原病毒毒性提高了至少1000倍，对小鼠致病能力得到初步提高，并贴上其实验室团队对此的研究分析报告截图。认可COVID-19侦探MosTrans战友对CCP军事兽医经常使用实验室操纵的连续传代使病毒变得更加危险的揭露，军事兽医是CCP生物战计划的关键部分。
-
-
-
-> In several Tweets [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@devonJ32130301](https://twitter.com/devonJ32130301?ref_src=twsrc%5Etfw) shows that Chinese Communist Party military veterinarians were routinely using the laboratory manipulation of serial passage to make viruses more dangerous. Military veterinarians are a key part of the CCP's biowarfare program. [https://t.co/N2HY2BL17j](https://t.co/N2HY2BL17j)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389428627809443841?ref_src=twsrc%5Etfw)
-
-
-
-第3推，塞林博士的中文推：致所有COVID-19侦探。请搜索：ZC45和ZXC21发生了什么？ZC45和ZXC21于2018年在第三军医大学进行了研究，然后消失了，他们去了哪些实验室？长春军事兽医研究所？并贴上闫博士有关CCP病毒骨架ZC45和ZXC21及其神经毒性观点的图片。
-
-
-
-> 致所有COVID-19侦探。 请搜索。 
-> ZC45和ZXC21发生了什么？ 
-> ZC45和ZXC21于2018年在第三军医大学进行了研究，然后消失了。 
-> 他们去了哪些其他实验室？ 长春军事兽医研究所？ [pic.twitter.com/d10SY6wIJt](https://t.co/d10SY6wIJt)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389442615960129538?ref_src=twsrc%5Etfw)
-
-
-
-第4推，转发“Devon Y”战友回应自己上一推的中午推：通过蝙蝠病毒的进一步研究，成功提取出了两株新的SARS病毒，新毒株SL-CoVsZC45在蝙蝠组织上感染乳鼠，来自PLA陆军军医大学，2019年，并贴上该研究报告网页截图。塞林博士回应中文推：致所有COVID-19侦探。资金：军事后勤研究项目（编号AWS16J020，AWS16J021，AWS16J023等）通常意味着与长春军事兽医研究所的何彪从蝙蝠身上收集了ZC45和ZXC21，跟着资金挖，并贴上自己4月22日关于何彪的推文链接。
-
-
-
-> 致所有COVID-19侦探。 资金：军事后勤研究项目（编号AWS161020，AWS161021，AWS16102）通常意味着与长春军事兽医研究所的链接。 (Biao He) 军事兽医研究所的何彪从蝙蝠身上收集了ZX45和ZXC21。 跟着钱。 [https://t.co/87Kuj5goOY](https://t.co/87Kuj5goOY) [https://t.co/b90GEp9zQ7](https://t.co/b90GEp9zQ7)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389461628744306690?ref_src=twsrc%5Etfw)
-
-
-
-第5推，是的，RaTG13是最接近COVID-19的亲戚，因为它也是实验室改造出来的，是一个通向COVID-19的中间过渡病毒，CCP及一些有影响力并亲共的西方科学家撰写了数百篇有关假病毒的文章，欺骗了其他科学家，并贴上闫博士有关RaTG13观点的爆料革命宣传图片。
-
-
-
-> Yes, RaTG13 is the closest relative to [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) because it is also a laboratory construct, an intermediate, drawing board virus on the way to COVID-19. The CCP & some influential CCP-friendly Western scientists fooled other scientists to write 100s of articles about a fake virus. [pic.twitter.com/3w9oM4JRwT](https://t.co/3w9oM4JRwT)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389488592926486528?ref_src=twsrc%5Etfw)
-
-
-
-CCP生物战计划的核心要素就是PLA军事兽医系统，长春兽医研究所及其相关的研究中心，北京动物研究实验室，第三军医大学（PLA陆军军医大学）进入COVID-19病毒溯源的聚光灯下。战友们继续跟着CCP-PLA-AMMS项目资金挖，挖到了长春兽医研究所的夏咸柱和北京动物研究实验室的秦川，联手通过实验室连续传代将H1N1流感病毒变得更具毒性的证据。塞林博士继续抛砖引玉、穿针引线，抛出2018年在第三军医大学（现PLA陆军军医大学）研究的，具神经毒性的ZC45和ZXC21消失后，去了哪些实验室的线索让战友们继续深挖。幽默地戏谑了RaTG13是最接近COVID-19的亲戚的说法，准确说是实验室内的亲戚关系，因为RaTG13是实验室改造出来以过渡到COVID-19的中间体，是CCP及其收买的西方科学家以假病毒RaTG13为道具，以大搞文章、浑水摸鱼、混淆视听，从而隐瞒真相、制造假象、欺骗世界！
-
-AMMS在2020年9月15日发布的专利报告中承认羟氯喹(HCQ)可以抑制针对SARS-CoV-2病毒基因组的感染和复制，应证了闫博士对HCQ在COVID病毒预防和早期治疗有效的科学论断，但科学界、媒体和疫苗公司等有钱有势的权贵和资本家却竭力否定HCQ，一门心思在疫苗中赚大钱，这可能已经导致多大10万美国人的死亡，创造了人类灾难中赚黑心钱、赚死人钱的世界纪录！
-
-校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1
