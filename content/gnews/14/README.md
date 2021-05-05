@@ -1,15 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210505
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1177016/)
+## 中共与欧盟的关系迅速恶化
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1177088/)
 
-- 制图：透明的遮羞布
-- 编辑：神奇四侠
+俄罗斯莫斯科喀秋莎农场   银河
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172614/01-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172638/02-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172704/03-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172725/04-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172744/05-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172804/06-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172823/07-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172842/08-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172903/09-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172925/10-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172953/11-7.jpg)
-以上文字图片仅代表作者个人观点，与GNEWS无关
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/C-3.jpg)canadiandimension.com
+零对冲5月4日社评称，欧盟和中共之间的经济关系迅速恶化，在12月以一项重大投资交易为标志的关系“高水位线”之后，欧盟的行政部门和德国都在制定立法，这将使中共实体的投资变得更加困难，媒体称之为“加入美国，与北京进行针锋相对的制裁”。
 
-发稿：神奇四侠
+与此同时，意大利已从支持中共国家主席习近平的“一带一路”倡议，转向类似阻止中共国企业的收购计划。德国默克尔总理上周与李克强总理通话，双方承诺在中共病毒疫苗和应对气候变化方面加强合作。然而，柏林方面的说法是，围绕中欧关系的乐观情绪已经消失，令中欧关系正处于下行轨道。简而言之，欧洲正在加强对北京的立场。
+
+文中指出，在与中共的对峙中，欧洲正“向乔·拜登(Joe Biden)政府的观点靠拢”，而美国国务卿安东尼·布林肯(Antony Blinken)在伦敦与七国集团(G7)同行进行讨论，“一个与华盛顿更加结盟的欧洲将标志着就川普政府对跨大西洋关系造成的损害进行一些修复，对贸易、关税和获得技术都有影响。”欧洲人对美国、对中共的立场发生了“翻天覆地的变化”。
+
+中共国欧盟商会(European Chamber of Commerce in China)驻北京主席、柏林墨卡托中国研究所(Mercator Institute of China Studies)董事伍德克(Joerg Wuttke)表示，中共在台湾问题上的强硬立场，加强对香港政治控制的努力，以及广泛报道的新疆地区侵犯人权的国际制裁，加上中共没有兑现其经济开放的承诺，这是一场“完美风暴”。
+
+经济关系仍然至关重要，因为中共是欧盟最大的贸易伙伴，2020年欧盟贸易总额约为6,860亿美元，超过美中贸易5,720亿美元。但现在，即使是中共国十大贸易伙伴之一的荷兰，也变得越来越谨慎，保护本国高科技公司不被收购，并制定专门的对华战略。有评论称，美国已经迫使欧盟表明立场。
+
+四个月前，默克尔帮助欧盟敲定了《中欧投资全面协议》(EU-China Comprehensive Agreement on Investment)。欧盟委员会主席冯德莱恩(Ursula von der Leyen)表示，这“我们与中共国关系中的一个重要里程碑”。该协议仍有待欧洲议会(European Parliament)的批准。
+
+然而，到3月底，欧盟已经加入了美国、加拿大和英国的行列，对中共在新疆维吾尔族种族灭绝和强迫劳动的犯罪实施了制裁。中共政府以制裁作为回应。现在，欧盟委员会正在提议对外国国有企业处以罚款，而默克尔和她的内阁已经批准了额外的权力来阻止外国在高科技领域的投资，包括人工智能和量子计算——这两个领域都直接影响到中共国。中共希望将政治和经济问题分开，并将欧洲与其消费市场联系起来的愿望现在越来越不可能实现。
+
+如果德国的绿党能够在9月份宣告胜利，默克尔将下台，让位给一个对中共国态度比现任政府更为强硬的政府。绿党呼吁北京停止“公然侵犯人权”，并要求欧洲和北美伙伴在中共问题上加强协调。
+
+中共与欧盟的关系已经全面转向，寒冬将至。
+
+参考链接：
+
+[https://www.zerohedge.com/geopolitical/thrill-gone-europe-chills-china-over-human-rights-record](https://www.zerohedge.com/geopolitical/thrill-gone-europe-chills-china-over-human-rights-record)
 
 0

@@ -1,18 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 特别翻译：劳伦斯.塞林博士关于美国的病毒研究计划遭到中国人民解放军大规模渗透的声明
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1176758/)
+## 欧盟冻结与中共国的投资协议
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1176897/)
 
-劳伦斯·塞林(Lawrence Sellin)博士关于美国的病毒研究计划遭到中国人民解放军大规模渗透的声明
-
-
-
-> A statement by Dr. Lawrence Sellin about the massive infiltration of U.S. virus research programs by China's People's Liberation Army[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaPandemic](https://twitter.com/hashtag/CoronaPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/LjxKERAdEp](https://t.co/LjxKERAdEp)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 5, 2021](https://twitter.com/LawrenceSellin/status/1389861364190093315?ref_src=twsrc%5Etfw)
-
+```
+新闻来源：意大利安莎通讯社（ANSA）
+发表日期：2021年5月4日    
+翻译整理/简评：斩草要除根
+```
 
 
-我是劳伦斯·塞林博士。 在过去的30年中，中国人民解放军PLA已经深深地渗透了美国的病毒研究计划。 媒体已大量报道了有关皮特·打杂客(Peter Daschak) 的生态健康联盟(EcoHealth Alliance)将多达3百万美元的资金，从美国国家卫生研究院(NIH)转移到武汉病毒研究所(WIV)。 而那只是冰山一角。 数十亿美元 (注意是B打头, Billions)，数十亿美国纳税人的钱，以知识、技能、和资金的形式，直接或间接地为中共解放军PLA的病毒研究计划做出了贡献，最终导向了新冠病毒COVID-19。 其中大部分资金来自于美国过敏和传染病研究所(NIAID)的安东尼·蝠奇(Anthony Fauci)博士。 但是美国国防部也提供了大量的资金。 我将以一名解放军军方科学家为例来说明它是如何发生的。 我称之为科学链迁移。 姜世勃毕业于解放军军医大学。 他于1990年代来到美国，在纽约洛克菲勒大学进行了关于艾滋病病毒HIV的研究，该项目是由蝠奇(Fauci)的研究所资助的。 姜世勃最终在附近的纽约血液中心林德斯利 F·金博尔(Lindsley F.Kimball) 研究所获得了永久性职位。 在接下来的20年中，其他的解放军PLA科学家、或与解放军相关联的科学家们，源源不断地流向他的实验室来工作，而该实验室获得了超过1700万美元的美国研究资金的助金。 其中大部分资金来自蝠奇(Fauci)的研究所。 同时，蒋世勃还直接与在中国境内的人民解放军科学家们合作，并与他们一起发表了许多科学出版物。 更重要的是，他与美国领先的病毒研究实验室建立了广泛的连接网络，其中一些实验室在进行「功能增强」性研究，从而为解放军建立了接触最先进技术的附加链接。 直到今天，姜世博带到美国的一位科学家，杜兰英 – 她是位居高职的解放军训练有素的科学家(周育森)的妻子 – (她)仍然在林德斯利·金博尔研究所工作，并且由安东尼·蝠奇(Anthony Fauci) 资助。 将世勃深入地参与了2002年至2004年间第一次萨斯SARS大流行的冠状病毒研究。自从他回到中国以来，作为上海复旦大学上海的教授，他一直是新冠病毒COVID-19研究的关键人物。 2013年，是姜世勃与描述了福林霉切位点插入技术的中国科学家们在合作，而这种结构现已被许多人认为是新冠病毒COVID-19起源于实验室的(间接)确凿证据。 实际上，已经有成百上千的姜世勃们在美国的病毒研究实验室里工作，而这些实验室是由美国纳税人资助的。 许多人至今仍然在那里。 他们中的许多人无疑为中共解放军的生物战计划做出了贡献。 对美国人民来说，现在是时候该结束对我们的知识、技能和研究经费的抢劫了！ 对美国人来说，现在是时候该与中国人民站在一起，来结束 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 了！
+布鲁塞尔，5月4日—-欧盟“中止”了其批准去年12月与中（共）国签署的投资协议的努力。欧盟委员会副主席瓦尔迪斯·多姆布罗夫斯基斯（*Valdis Dombrovskis*）在接受法国记者采访时宣布了这一消息。
+
+多姆布罗夫斯基斯解释说，鉴于布鲁塞尔和北京之间最近的外交关系日益紧缩，欧洲委员会已暂停其努力，要求成员国和议会批准与中国在2020年底达成的投资协议。“目前，我们暂停了委员会提高政治意识的努力，因为很明显，在当前形势下，随着欧盟对中国的制裁和中国的反制裁，包括对欧洲议会议员的制裁，这不利于该协议的批准”，委员会副主席说。
+
+#### 简评：
+
+**这显然是在相互制裁后，中欧之间外交关系恶化的表现。在巨大的经济利益面前，欧盟能忍痛割肉的下此决心，把经过长达7年的谈判叫停。当时，特别是德国的推动，才让此协议于去年12月达成，现在可以看出来作为欧盟之首的德国已经选择好与英国、美国采取统一步调了，真实可喜可贺！**
+（本文仅代表译者个人观点，跟GNEWS平台无关。）
+
+**新闻原文链接：**🔗[L’Ue congela l’accordo sugli investimenti con la Cina](https://www.ansa.it/sito/notizie/topnews/2021/05/04/lue-congela-laccordo-sugli-investimenti-con-la-cina_837a1406-f194-4634-bedb-9d4f7defe2ca.html)
+
+* * *
+
+***编辑整理/校对: **Ting Guo*
 
 0

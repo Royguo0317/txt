@@ -1,36 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大时政生活杂谈 （第十一期）2021.05.03
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1176957/)
+## 慧眼看世界20210505
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1177016/)
 
-蒙特利尔皇家山战友团
-作者: 平民正道
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05164218/%E6%97%B6%E6%94%BF.jpg)
-**一、 一周新闻简报**
-全世界疫情共一亿五千四百万，过去四天新增将近三百万，死亡人数四万五千。
-美国感染人数持续走高，已经超过三千三百万。过去的四天，新增了十五万五千，死亡人数过去四天平均每天五百人。
-加拿大过去四天新增了感染人数两万九千七百九十四人，死亡人数过去四天增加了一百五十三。安省过去四天新增两万三千八百零一。安省过去四天死了一百七十五个人。全省已经有超过八千人死亡。
-过去十天印度每天新增感染人数近三十万，昨天接近四十万。仅昨天一天死亡人数超过三千。印度感染总是已经两千二百多万，死亡人数超过了二十万。印度医疗资源接近崩溃。印度疫情主要是双重突变和三重突变。
-魁省总人数累计三十五万两千六百七十八人，死亡人数已经达到了一万零九百四十四人。到现在为止，已经有百分之三十七点二的人接种了疫苗。从五月中旬开始蒙特利尔的特鲁多机场将为在车里的人提供接种疫苗服务。被接种者不需下车，只要伸出胳膊即可接种。预计每天将有四千人接种。
+- 制图：透明的遮羞布
+- 编辑：神奇四侠
 
-**二、 疫苗知识简答**
-甲状腺患者，癌症，心脏病，高血压等慢性病在疾病控制期内理论上都是可以打疫苗的。但是目前中共国的新冠疫苗也好，国外各个疫苗厂家生产的新冠疫苗也好三期临床试验都排除了以上慢性病患者。所有新冠疫苗是否对慢性病患者有用，需要时间的检验，患者打疫苗之前应有充分的心理准备。
-接受了心脏移植手术的患者如果打新冠疫苗的话目前没有数据证明疫苗对此类患者是安全的。患者要打疫苗的话，需要自己承担风险。
-过敏体质如海鲜过敏、花粉过敏者建议不打疫苗。
-无论有基础病的还是身体非常健康的人，只要感染新冠病毒，都会搞弱搞残细胞功能，可能留下后遗症。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172614/01-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172638/02-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172704/03-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172725/04-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172744/05-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172804/06-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172823/07-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172842/08-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172903/09-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172925/10-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172953/11-7.jpg)
+以上文字图片仅代表作者个人观点，与GNEWS无关
 
-一般的疫苗只需打一针是因为病毒具有稳定性，例如天花，乙肝病毒。新冠疫苗需要2针甚至更多次数因为新冠疫苗具有变异性。即使感染后注射疫苗抗体也只能维持3个月。3个月之后必须再次注射疫苗。
-检验疫苗好坏不是使用半衰期。疫苗要么刺激机体产生抗体，要么不刺激机体产生抗体。衡量疫苗的好坏是抗体的低度和抗体低度持续的时间。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05164204/%E8%AE%B0%E5%8F%B7%E8%AE%B0%E5%8F%B7%E8%AE%B0%E5%8F%B7%E3%80%81.jpg)
-**三、 时政杂谈**
-加拿大移民局新增9万人基础工作和留学生移民项目。法语移民项目不限量申请。5月6号网上开始申请，资料准备多多益善，申请采取先到先得的顺序。
-土共通过千人计划偷盗西方国家的知识产权带回国。
-
-[视频连接](https://gtv.org/video/id=6090810d6c00a14130e6e4f5)
-
-* * *
-
-*编辑、发稿 文锦*
+发稿：神奇四侠
 
 0

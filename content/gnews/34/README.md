@@ -1,46 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 迈克·耶顿博士访谈（二）“疫苗护照是数十亿大规模杀戮的通道”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1176645/)
+## 特别翻译：劳伦斯•塞林博士关于新冠病毒是中共生物战项目结构的声明
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1176736/)
 
-- **作者: **Jenny Ball
+劳伦斯•塞林博士关于新冠病毒 [#Covid19](https://twitter.com/hashtag/Covid19?src=hashtag_click) 和 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 生物战项目结构的声明 （附油管视频：[http://youtube.com/watch?v=qFSQih](https://t.co/fE4hlgWHVG?amp=1)…）
 
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-**西班牙2021年5月5日电/西喜社——**
+> A statement by Dr. Lawrence Sellin about the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) and the structure of the Chinese Communist Party's biowarfare program[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/tcPupWMGH1](https://t.co/tcPupWMGH1)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389641506240225284?ref_src=twsrc%5Etfw)
 
-“没有打疫苗的人怎么办？”
 
-“他们会说，‘你不知道吗，你是不洁的人，你是造成（病毒）变种的人，你会杀了我们，你能一走了之吗？我都觉得我必须要杀了你’。我想疫苗护照会实施，那些已经接种疫苗的人会为之欢呼，许多尚未接种疫苗的人会急于要接种，因为他们看到自己（因此）而造成各种机会的缩小，但他们根本不会意识到，自己像牛一样正在被驱赶进围栏里。
 
-“我担心明年冬天，在这个国家（英国）没有接种疫苗的人，还会面临其他精心策划的事件。他们需要那样做才能驱使人们去打疫苗补充剂量。我已决定不停止战斗，我要离开英国，我会去任何需要去的地方，因为对于未接种疫苗的人来说，这始终是不安全的。”
+以下为YOUTUDE视频中文翻译
 
-疫苗补充剂量是另外一个使耶顿博士感到恐惧的事情，他强调了这个事实，不会对疫苗补充剂量的安全性做进一步的检查。他补充说，这些疫苗的驱动力将以新变种的形式出现，他说这些变体与原始序列几乎没有任何不同。
+我是赛琳博士，此信息是给还在试图掩盖 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 真相的那些政客们，媒体们尤其是科学界的学者们，不管你们是出于个人利益还是政治目的，你们在虚假宣传 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 源于自然界。它根本不是源于自然的。 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 是一个大范围的“功能增益型”病毒研究，所制造出的产品，这些研究是来自 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 科学家们利用的军民融合等项目。也就是说 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 来自实验室。 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 有太多不寻常的的特征，这些特征根本不能用自然进化论解释。[#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 具有的福林酶切位点，在任何蝙蝠病毒中都找不到。这个特征表明它直接与人造 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 有关。福林酶切位点可增强病毒传染性和致病性。而 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 科学家们知道如何人工干预插入它们。唯一的遗留问题是 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 是出自哪里并如何制造的，以及病毒的释放是泄露的还是故意的。在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 统治的中国，军方病毒研究机构和民企病毒研究机构没实质区别，它们其实是捆绑在一起的。 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 2016年公布的5年计划中明确声明是计划的一个目标。自2020年底，随着大量 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的科研信息被披露，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) ，西方国家政府部门和媒体开始审查封杀此类信息 。我于是决定改变我的分析策略。 你们很多人可能知道，二战时德国有个密码机器叫Enigma, 艾伦•图灵（Alan Turing）因破解Enigma而闻名。但其实还有个鲜为人知的天才起了重要作用。他是戈登•韦尔奇曼(Gordon Welchman)。在Enigma 被破解之前，戈登•韦尔奇曼采用了一套技术叫做“通信分析”系统，来判断破解，比如说，德国军队的调遣以及德国发出的指挥命令等。他的那套理论叫做Hut Six. 现在我和一位 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 侦探已经改进了戈登•韦尔奇曼的通信分析法，来用于对中共病毒战计划的整个网络进行分析。下面这些是我们目前发现的：中共生物战项目分为3个级别，秘密军事计划是核心，并建立在民间研究所和大学研究项目之上。这种层次结构为病毒研究提供了必要的手段，通过与国际病毒研究机构的互动从而获取相关知识和研究成果。所有这些收获最后都流向了中共的生物战核心项目。中共生物战项目的起源和传统核心并非出于医药目的，而是兽医学还有部分农业学。在二战期间，日本帝国军队在满洲里有个生化武器研究所，叫731部队。它的官方名字叫：“防疫和水净化部门”。其实还有第二个研究中心–100部队，官方称为“关东军战马疾病预防所”。当 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 军队在1949年夺取中国政权后，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 沿袭了日本人的方式，将生物战研究纳入兽医研究，在北京，成都，广州，南京和云南建立了“战马健康研究中心”以及类似的研究机构。基本上，这些机构部门都隶属于中共战区军队的管辖。 1953年，5所中共解放军兽医大学被并入长春的一所大学。该位置就在原日军731部队研究所以南140公里左右。而武汉，尤其是武毒所，成为了这次病毒大流行的中心，备受关注。有关 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的研究工作在多个军方控制的设施中完成，涵盖病原体培养及相关疫苗开发。由长春军事兽医研究所带头，在国内及国际上展开了大量的收集病毒的工作。 就是那个病毒收集项目为#中共病毒 提供了蝙蝠冠状病毒的骨架,以及创建了像RaTG-13这样的中介病毒，并被错误且广泛的宣传为目前流行的冠状病毒的鼻祖。在北京军事医学科学院的监督带领下，他们把最感兴趣的病毒都收集并分发给不同的实验室。武毒所，武汉大学病毒实验室以及武汉军医院都是这个项目的核心参与部门。在下一集的视频中，我会详细介绍 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 如何利用全球的关系网来壮大他的生物战项目。特别是 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 如何深层次渗透美国的病毒研究项目。
 
-耶顿博士说：“当他们开始谈论[新变种]时，我就去查看了原始资料，发现与武汉序列最不同的变种仍然有99.7％的相同。”“而且我可以向您保证，能够避免自然感染或接种了疫苗的人的免疫力的几率是零——不是令人难以置信，就是零几率。无论他们怎么忽悠你，这都是绝对不可能的。
-
-“例如，我们知道与2003年的SARS有20%的不同——不是0.3，是180倍的不同——而免疫系统在识别这两个兄弟时绝对没有问题。我有事实证据，有理论证据。然而，与此相反，世界各地的智者，政客们在告诉我们，您需要这些变异疫苗。我们已经关闭了边界，正在破坏着我们的经济，并用本就是一个谎言的变体理论剥夺了人们的自由。现在，我们正在生产变异疫苗。当我得知他们实际上是在生产，而不仅仅是谈论它时，我感到非常恐惧——当世界上所有大型药品监管机构发表联合声明说：由于疫苗变体与衍生疫苗的母体非常相似，因此，我们不需要制造商进行任何临床安全性研究。
-
-“我已经与英国的八位教授进行了交谈，他们的学科包括免疫学，他们都同意我在技术方面的分析。三个月前，我的恐惧程度达到了红色，我恳求他们，‘像你们这样的人要开始写信给编辑，然后在报纸上发表文章，告诉人们这种关于变体的说法是假的，因为人们会相信你们。卡尔·海内汉（Carl Heneghan）（牛津大学循证医学主任）说，目前世界处于一种恐慌之中，他所说的任何话都不会有任何突破性的力量。
-
-“我们受过训练的思考会认为，如果有人对疫苗提出任何疑问，就会自动说你是“反疫苗主义者”。我整个职业生涯都花在了生产这些东西的行业中。可以说我是非常支持创新药物的。除了抗不安全的药物外，我不抗任何该死的东西。为什么我们得到的疫苗显然比其他公共卫生预防性疫苗危险得多？仅比较一个月内的死亡人数与所有其他疫苗接种后报告的死亡人数，他们大约要糟糕十倍。
-
-“接种不同Covid疫苗两个月内的死亡人数，是接种所有其他疫苗全年死亡人数总和的10倍。大多数疫苗都是非常安全的，但罕见的特质反应，包括致命的反应，确实会发生。你明天可能踏出车门就会死亡。但只要这个数字非常非常小，就可以容忍，因为疫苗有好处。但是，我们这里要说明的是，即使被接种疫苗的人仍处于危险之中。——很多人没有危险——60岁以下的任何身体状况良好，且先前没有严重慢性疾病的人，不会被这种病毒杀死，事实如此。该死地向他们提供疫苗都是不道德的。声明说我们需要给所有人接种疫苗以阻止这种情况，这个声明没有逻辑，就是胡说八道。”
-
-**点评：耶顿博士一步步解释邪恶的力量如何把疫苗当成大规模人口杀戮的通道，他们将用什么伎俩，如同爆料革命一样，把中共一切阴谋在实施之前就暴露在世人面前，只有真相才能拯救这个世界。**
-
-**第一部分，耶顿博士从中共病毒疫苗角度进行了剖析，第二部分从将要到来的疫苗补充剂量的推广路数，让人们警惕，呼唤正义良知科学家站出来为真相发声。**
-
-**我们也在此呼唤有着巨大影响力的主流媒体，请为正义发声！**
-
-素材：Jenny Ball；**审核：**Ranting**；校对：信心满满； 发稿 : 信心的选择**
-
-**新闻来源：**[dailyexpose.co.uk](https://dailyexpose.co.uk/2021/05/01/an-interview-with-dr-mike-yeadon-vaccine-passports-are-a-gateway-to-mass-killing-in-the-billions/)
-
-**上一篇：**[迈克•耶顿(Mike Yeadon)博士访谈–“疫苗护照是大规模杀戮数十亿人的通道”](https://gnews.org/zh-hans/1161805/)
-
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
-
-+1
+0

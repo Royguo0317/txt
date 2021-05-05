@@ -1,20 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 特别翻译：劳伦斯•塞林博士关于新冠病毒是中共生物战项目结构的声明
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1176736/)
+## 新冠疫苗 辉瑞将销售上调70%
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1176734/)
 
-劳伦斯•塞林博士关于新冠病毒 [#Covid19](https://twitter.com/hashtag/Covid19?src=hashtag_click) 和 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 生物战项目结构的声明 （附油管视频：[http://youtube.com/watch?v=qFSQih](https://t.co/fE4hlgWHVG?amp=1)…）
-
-
-
-> A statement by Dr. Lawrence Sellin about the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) and the structure of the Chinese Communist Party's biowarfare program[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/tcPupWMGH1](https://t.co/tcPupWMGH1)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389641506240225284?ref_src=twsrc%5Etfw)
-
+```
+新闻来源：意大利共和国报（La repubblica）  
+发表日期：2021年5月4日   
+翻译整理/简评：斩草要除根
+```
 
 
-以下为YOUTUDE视频中文翻译
+抗新冠疫苗的淘金热继续创下新高，辉瑞公司今天已上调了与*Biontech*合作开发的该药物的所有销售额的估计。升级令人印象深刻：在今年年初，预测显示这家美国巨人的收益总额约为100亿。早在3月，这一数字就被上调至150亿。如今，标准已提高到260亿。辉瑞已经成功地大幅提高了产量（到12月，我们正在谈论约25亿剂），欧洲，加拿大和以色列在某些情况下签署了新的合同，价格均上调了。结果显示，该集团三分之一的收入将从年底上市的最新产品中获得。
 
-我是赛琳博士，此信息是给还在试图掩盖 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 真相的那些政客们，媒体们尤其是科学界的学者们，不管你们是出于个人利益还是政治目的，你们在虚假宣传 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 源于自然界。它根本不是源于自然的。 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 是一个大范围的“功能增益型”病毒研究，所制造出的产品，这些研究是来自 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 科学家们利用的军民融合等项目。也就是说 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 来自实验室。 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 有太多不寻常的的特征，这些特征根本不能用自然进化论解释。[#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 具有的福林酶切位点，在任何蝙蝠病毒中都找不到。这个特征表明它直接与人造 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 有关。福林酶切位点可增强病毒传染性和致病性。而 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 科学家们知道如何人工干预插入它们。唯一的遗留问题是 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 是出自哪里并如何制造的，以及病毒的释放是泄露的还是故意的。在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 统治的中国，军方病毒研究机构和民企病毒研究机构没实质区别，它们其实是捆绑在一起的。 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 2016年公布的5年计划中明确声明是计划的一个目标。自2020年底，随着大量 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的科研信息被披露，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) ，西方国家政府部门和媒体开始审查封杀此类信息 。我于是决定改变我的分析策略。 你们很多人可能知道，二战时德国有个密码机器叫Enigma, 艾伦•图灵（Alan Turing）因破解Enigma而闻名。但其实还有个鲜为人知的天才起了重要作用。他是戈登•韦尔奇曼(Gordon Welchman)。在Enigma 被破解之前，戈登•韦尔奇曼采用了一套技术叫做“通信分析”系统，来判断破解，比如说，德国军队的调遣以及德国发出的指挥命令等。他的那套理论叫做Hut Six. 现在我和一位 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 侦探已经改进了戈登•韦尔奇曼的通信分析法，来用于对中共病毒战计划的整个网络进行分析。下面这些是我们目前发现的：中共生物战项目分为3个级别，秘密军事计划是核心，并建立在民间研究所和大学研究项目之上。这种层次结构为病毒研究提供了必要的手段，通过与国际病毒研究机构的互动从而获取相关知识和研究成果。所有这些收获最后都流向了中共的生物战核心项目。中共生物战项目的起源和传统核心并非出于医药目的，而是兽医学还有部分农业学。在二战期间，日本帝国军队在满洲里有个生化武器研究所，叫731部队。它的官方名字叫：“防疫和水净化部门”。其实还有第二个研究中心–100部队，官方称为“关东军战马疾病预防所”。当 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 军队在1949年夺取中国政权后，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 沿袭了日本人的方式，将生物战研究纳入兽医研究，在北京，成都，广州，南京和云南建立了“战马健康研究中心”以及类似的研究机构。基本上，这些机构部门都隶属于中共战区军队的管辖。 1953年，5所中共解放军兽医大学被并入长春的一所大学。该位置就在原日军731部队研究所以南140公里左右。而武汉，尤其是武毒所，成为了这次病毒大流行的中心，备受关注。有关 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的研究工作在多个军方控制的设施中完成，涵盖病原体培养及相关疫苗开发。由长春军事兽医研究所带头，在国内及国际上展开了大量的收集病毒的工作。 就是那个病毒收集项目为#中共病毒 提供了蝙蝠冠状病毒的骨架,以及创建了像RaTG-13这样的中介病毒，并被错误且广泛的宣传为目前流行的冠状病毒的鼻祖。在北京军事医学科学院的监督带领下，他们把最感兴趣的病毒都收集并分发给不同的实验室。武毒所，武汉大学病毒实验室以及武汉军医院都是这个项目的核心参与部门。在下一集的视频中，我会详细介绍 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 如何利用全球的关系网来壮大他的生物战项目。特别是 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 如何深层次渗透美国的病毒研究项目。
+凭借基于*M-RNA*技术的抗共生药物的成功，辉瑞，*Biontech*和*Moderna*成为当今治愈大流行病的主要受益者，无论是在收入方面还是在股票市场方面，仅在2021年，预计将产生超过650亿美元的营业额，是最初预测的两倍。*Biontech*不久将上调100亿美元的预期收入，而莫德纳（*Moderna* 去年的收入为几亿美元）将以184亿美元的收入结束资产负债表。强生公司（*Johnson and Jonson*）「与阿斯利康（*AstraZeneca*）一样，现在以成本价出售」的目标是100亿美元。
+
+迄今为止，在股票交易所，辉瑞制药公司今天上涨了约1％，接近其历史最高水平。莫德纳*（Moderna*）的价值在一年内从6亿增至700亿。*Biontech*的股价在8到42之间。*Curevac*已将其价值提高了一倍。如今，数十个组织和州（由印度和南非领导）正在敦促世界贸易组织（*WTO*）要求暂停专利以便将疫苗能分发给所有人。
+
+#### 简评：
+
+在中共病毒大流行的一年后，凭借着疫苗的制药公司和华尔街，可谓是赚的盆满钵满，收益是成倍的往上涨。全世界都缺疫苗，而几家制药公司牢牢的把控着专利权这棵摇钱树。短时间研发出来的疫苗到底有多少副作用，到底真实的有效率我们是无法得知的，但是他们巨额盈利的事实却有目共睹。俗话说得好：“人为财死，鸟为食亡”，利益至上永远是这些制药企业不变的信条。
+（本文仅代表y者个人观点，跟GNEWS平台无关。）
+
+**新闻原文链接：**
+🔗[Vaccini anti-Covid, piove oro su Big Pharma: Pfizer rivede al rialzo le vendite del 70%](https://www.repubblica.it/economia/2021/05/04/news/vaccini_anti-covid_piove_oro_su_big_pharma_pfizer_rivede_al_rialzo_le_vendite_del_70_-299386627/?ref=RHTP-VS-I270681073-P11-S3-T1)
+
+* * *
+
+***编辑整理/校对: **Ting Guo*
 
 0
