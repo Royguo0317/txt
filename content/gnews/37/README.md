@@ -1,27 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 家庭教育的重要性
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1172115/)
+## 5月4日美国政要和政评家推特精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1172232/)
 
-作者：洛杉矶天使农场 – Nio
-校对：洛杉矶天使农场 – Gunner
-审核：洛杉矶天使农场 – 黎明的光芒
-![]()![](https://www.gnews.org/wp-content/uploads/2021/05/Picture1-5.png)图片来自网络
-我看动物世界里企鹅抚育孩子的过程很受启示。企鹅夫妻非常恩爱，在孵化幼子的时候互相协助，分别承担孵化和觅食的工作，并且会交替做这个事情，当小企鹅从蛋壳里孵出来之后企鹅父母又交替给小企鹅取暖和觅食。小企鹅能走路之后，且父母带着小企鹅和周围的朋友交往，培养小企鹅的社交活动，让小企鹅融入集体之中，在寒冷的冬天所有的企鹅要围一起抱团取暖，且非常知道团结的重要性，否则就会死去。当春暖花开时，企鹅夫妻带着小企鹅教他觅食和游泳的技能，刚开始小企鹅害怕，大企鹅给小企鹅示范，并鼓励，第一次，第二次小企鹅都没成功，到第三次小企鹅就成功的游进了海洋。从此以后，小企鹅离开父母独自生活。企鹅夫妻也继续自己的生活。
+国务卿安东尼·布林肯： 在G7峰会与德国外长Heiko Maas举行了很棒的会议，讨论了中共国，俄罗斯，伊朗和其他问题。德国是面对共同挑战和促进我们共同议程的必不可少的伙伴。
 
-我们人类给与孩子的最好的教育就是夫妻首先是互相爱慕和包容的品质，当孩子看到父母相爱感受到的情绪是积极的。恩爱的父母是爱孩子的，给与孩子身心灵的发展是非常积极的信息。这样的感情氛围内长大的孩子爱心是满满的，性格不孤僻，心地善良，与人为善。在培育孩子的过程中大人会站在孩子的角度考虑问题，不对孩子用强迫的手段进行压制教育，能充分发掘孩子的天赋。在养育孩子的过程中教孩子基本的生存技能和与人相处的能力，这个很重要。现在我们中共国的家长都不教孩子基本的生存能力和与人相处的能力，使得孩子在走向社会感觉手足无措，身心灵完全失调。造成孩子打游戏逃避现实，或者对家长非常叛逆。中共国的夫妻多数不是以爱为基础的婚姻，而是以利益为目的的结合，在孩子未出生时就会感知父母之间欺瞒的感情，所以夫妻两个的情绪和心态在胎儿时期就会影响胎儿。在这种情绪生出的孩子情绪就容易失控。
 
-作为家长的你身教胜于言教。小孩子从出生到成年他的模仿能力特别强，他模仿的第一个人就是父母。所以父母的言行特别重要，父母的修养、思维活动和行为方式直接影响儿童的发展。这些影响并不是学校能给与的。
 
-那么如何培养孩子的社交能力呢？
+> Great meeting with [@HeikoMaas](https://twitter.com/HeikoMaas?ref_src=twsrc%5Etfw) at [#G7](https://twitter.com/hashtag/G7?src=hash&amp;ref_src=twsrc%5Etfw) to discuss China, Russia, Iran, and other issues. Germany is an indispensable partner for facing common challenges and promoting our shared agenda. [pic.twitter.com/v4yOCx78Dt](https://t.co/v4yOCx78Dt)
+> — Secretary Antony Blinken (@SecBlinken) [May 4, 2021](https://twitter.com/SecBlinken/status/1389614318497456135?ref_src=twsrc%5Etfw)
 
-家长要带着孩子与人接触，并且让孩子与小朋友共同协作玩游戏，游戏有分工有协作，这样孩子既知道自己的责任范围，又可以和小朋友互相协作帮助完成一件事，长大之后走向社会进行工作就知道与人如何去分工协作。游戏是非常重要的。既能满足分工又能满足协作，而不是简单的一个人就能完成的游戏。家长要在这方面动脑筋去创作游戏。这样还能避免孩子沉迷于电子产品和电子游戏当中，而不喜欢现实生活。在选择玩具时，尽量少选择人工制作的，尽量领孩子去大自然观察动物植物的结构和生活习性，如何让动物植物为人类服务？各种自然界的生物都是现成的玩具。会满足小孩子的求知欲和好奇心。
 
-如何培养孩子的基本的生存能力呢？
 
-从书本上让孩子知道各种植物，认识植物的各部分特征和功效，及生长时期和生长条件。认识各种动物，各种动物的生活习性及与人类的关系。造物主造各种动物和植物是服务于人类的。人类是自然界的主宰而不是破坏者。人类与动物植物和谐相处。所有技术治理世界的物件都没有造物主给与我们的精美。自然界中除了动物植物还有微生物等人类肉眼看不见的其他物种，这些生物的生物特征与人之间的关系是什么，让孩子知道。让孩子了解宇宙星辰是怎么形成的？宇宙法则是什么？这些知识为孩子将来生存提供了非常必要的知识储备。除了书本上来的知识，更重要的是带孩子走向大自然了解真实的自然界，把书本知识用于实践。在幼儿时期就让孩子仔细观察动物植物的生活习性，这样孩子的思维速度会很快。对于植物小孩子先天就知道拿些可以作为食物，哪些不能作为食物。我们现代人总是低估小孩子的能力，从而阻止了孩子认知的发展。再领孩子认识大自然的时候也就会了解一些初步的物理化学和生物的科学知识。
+参议员瑞克·斯科特： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 强迫维族人从事奴工，以在新疆采摘棉花。然而，NBA正在出售由一家 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 公司生产的鞋，该公司从那里采购棉花。 只要这种情况持续下去，NBA就会成为中共令人恶心的侵犯人权行为的同谋。 【转freebecon推文：NBA网店销售的鞋是由一家使用新疆棉花的中共国公司生产】
 
-以上是我对于小孩子教育的一点感悟。
+
+
+> Communist China forces Uyghurs into slave labor to pick cotton in Xinjiang – yet, the [@NBA](https://twitter.com/NBA?ref_src=twsrc%5Etfw) is selling shoes made by a Chinese company that sources its cotton from there.
+> 
+> As long as this continues, the NBA is complicit in Communist China's disgusting human rights abuses. [https://t.co/sfQ5SQ6Vbf](https://t.co/sfQ5SQ6Vbf)
+> — Rick Scott (@SenRickScott) [May 4, 2021](https://twitter.com/SenRickScott/status/1389643878173716492?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： 亚当·西尔弗(Adam Silver)通过声称与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的交易是“净收益” 而为自己辩解。帮助支持 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 没有任何积极意义。 对于那些应该对玩弄游戏了解很多之人，你在被人耍弄，西尔弗。 【转布赖特巴特新闻网：NBA总裁亚当·西尔弗将NBA与中共国的交易称为“ 净收益”】
+
+
+
+> Adam Silver is justifying his deals with China by claiming they’re a ‘net plus’. There’s nothing positive about helping support the Chinese Communist Party. 
+> 
+> For someone who should know a lot about plays, you’re being played, Silver.[https://t.co/RlmldwuwHz](https://t.co/RlmldwuwHz)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 4, 2021](https://twitter.com/MarshaBlackburn/status/1389644034495373314?ref_src=twsrc%5Etfw)
+
+
+
+众议员保罗·戈萨尔： 需要对这些与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 相关联的公司进行法医式审计，这些公司收取了(本应)供美国纳税人使用的PPP(薪资保护计划)资金。 【附大纪元文章链接：与中共有关联的公司可能已收到超过4亿美元的病毒救济贷款】
+
+
+
+> There needs to be a forensic audit these [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) linked firms who received PPP money meant for American taxpayers. [https://t.co/UH3XdNx1z0](https://t.co/UH3XdNx1z0) via [@news\_ntd](https://twitter.com/news_ntd?ref_src=twsrc%5Etfw)
+> — Rep. Paul Gosar, DDS (@RepGosar) [May 4, 2021](https://twitter.com/RepGosar/status/1389649821376602112?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬佩奥： 如果你提高了能源花费，让投资美国的企业们增加负担，减少了小微企业尝试风险的能力，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 就会支配我们。我们需要强力的领导来面对这些威胁，而不是自由派的心愿清单Quote Tweet
+
+
+
+> If you raise energy costs, burden companies that invest in America, and reduce the ability for small businesses to take risks, then China will dominate us. We need strong leadership to confront these threats, NOT a liberal wishlist.
+> — Mike Pompeo (@mikepompeo) [May 4, 2021](https://twitter.com/mikepompeo/status/1389573653768151043?ref_src=twsrc%5Etfw)
+
+
+
+比尔·戈茨： 美国国防情报局局长披露，中国最高领导人习近平采用了“舵手”头衔，它在毛泽东的个人崇拜和大屠杀统治期间是最后一个用过的称号。【转推华盛顿时报，习近平采用了毛泽东的“舵手”称呼】
+
+
+
+> DIA director reveals Chinese supreme leader Xi Jinping has adopted the title “helmsman” last used by Mao during his personality cult and reign of mass murder [https://t.co/7ZQgDm4W6X](https://t.co/7ZQgDm4W6X)
+> — Bill Gertz (@BillGertz) [May 4, 2021](https://twitter.com/BillGertz/status/1389553880820862977?ref_src=twsrc%5Etfw)
+
+
 
 0

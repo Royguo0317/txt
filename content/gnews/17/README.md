@@ -1,46 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】新版中共简史篡改历史
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1172678/)
+## CCP病毒危机或促美俄联手灭共
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1172552/)
 
-配音：香草山录音组 熊井（文兰）
+加拿大多伦多枫叶农场 军迷Wilson
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+美国总统乔.拜登今天表示，美俄两国的官员正在努力寻求合作的机会，希望下个月在他赴欧洲参加七国集团峰会及北约峰会期间，与普京举行另一个峰会一一美俄峰会。俄罗斯的高级官员最近也透露，华府和莫斯科正在商议峰会的细节，表明双方都有意改善当前紧张的关系。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04222247/npr.org-2.jpg)*图片来源：npr.org*
+拜登一直坚持俄罗斯是美国最大的敌人。当拜登称普京为“杀手”、没有灵魂时激怒了普京，俄罗斯召回了驻美大使，作为回应，美国也召回了驻俄大使，随后拜登政府以俄罗斯干预美国大选和对美国发动网络攻击为由对俄罗斯实施了新制裁；在乌克兰与俄罗斯的军事对峙中，拜登坚决站在乌克兰这一边，导致美俄关系降到冰点。
 
+众所周知的是，拜登不依不挠找俄罗斯的茬，却对大规模干预美国大选、对全世界发动超限生物战的中共宽容有加，让人难以理解。比如前段时间拜登差一点卷入俄罗斯和乌克兰的军事冲突，从美国安全利益角度考虑，确实没有理由，何况美国深陷CCP病毒危机之中，因而参战的时机也不合适。麻省理工学院的巴里·波森认为，只有在美国的安全、主权、领土完整受到严重伤害时，美国才有开战或参战的理由，即使整个乌克兰被俄罗斯占领，对美国的安全影响还是很小。
 
+美国国务卿布林肯在今天的G7外长会议上，喊话俄罗斯一起对抗中共，使国际社会长吁了一口气。这进一步证实了拜登似乎正在回到灭共的正确轨道上，虽然布林肯在今天的露面中，对病毒来源只字不提，但明确呼吁联俄抗共，有更为深层的内涵。今天闫丽梦博士发布重磅推文称，CCP病毒是一种高级生物武器，等同于核弹，而中共是不会让这种高级别的生物武器意外泄露的……，中共国政府所做的事情比掩盖事故更加严重。闫博士在这个时候发这样的推，可谓意味深长，可以理解为配合西方政府正式宣布中共放毒之前所做的铺垫。
 
+中共军方故意释放的病毒，已经使美国死亡近60万人，已超过100年以来，美国在一战、二战、韩战、越战等历次战争及911恐袭死亡的总人数。俄罗斯染疫死亡人数也超过了11.1万人，而且疫情还在继续恶化。因此，美俄理所当然知道，中共才是他们最大的敌人，两国联手命令中共交出解药，才是当务之急。如果俄罗斯加入灭共阵营，中共将腹背受敌，后方不再安全，能源安全也将失去保障，这就是习近平拼命向普京输送利益、以图收买俄罗斯的原因。但中共放毒彻底损害了俄罗斯的国家安全利益，我们因而有理由乐观预期，拜登和普京为了战胜CCP病毒危机，起码暂时和解并联手对付凶残的中共。
 
+参考链接:
+1[.Biden says hopes to meet Putin during June trip to Europe](https://www.reuters.com/world/us/biden-says-hopes-meet-putin-during-june-trip-europe-2021-05-04/)
+2.[Four Pivots Joe Biden Should Make with Russia](https://nationalinterest.org/blog/skeptics/four-pivots-joe-biden-should-make-russia-184085)
+3.[来自武汉实验室的病毒是生物武器，不会被意外泄露](https://gnews.org/zh-hans/1171791/)
+4.[【文字版】路德时评2021.5.3晚:布林肯G7峰会喊话俄罗斯一起对抗中共国](https://gnews.org/zh-hans/1170469/)
 
+* * *
 
-
-2021年新版《中国共产党简史》，在中共建党100周年前夕推出。与2011年的旧版简史相比，新版简史做了哪些修改？笔者认为，比较大的改变，包括三个方面。
-
-首先，对于1949年以前的历史，新版简史加重描写了长征，突出了毛泽东在长征中的作用。旧版对长征的描述相对简短，点到为止。新版则详细描述了遵义会议在党史中的重要地位，以及自遵义会议以后，毛泽东指挥中央红军“根据实际情况的变化，灵活变换作战方向”，四渡赤水，南渡乌江，佯攻贵阳，渡过金沙江，成功“摆脱了国民党反动军事力量的围追堵截”。强调这一切“充分显示了毛泽东高超的军事指挥艺术”。称其”在最危急关头挽救了党、挽救了红军、挽救了中国革命”。
-
-
-
-**文字版原文：[【世事解评】新版中共简史篡改历史](https://gnews.org/zh-hans/1163216/)**
-
-作者：纽约香草山美食部 蓝天大海
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑 发稿 云起时
 
 0

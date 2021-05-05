@@ -1,79 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】养老市场火爆，相关企业数量激增“假象”难掩政府养老职能缺失
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1172290/)
+## Himalaya Dollar会割了银行业的命根子
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1172469/)
 
-作者：香草山写作组  鹰(文言)
+撰稿：两万五，爆大料
 
+随着HIMALAYA EXCHANGE开放注册，Himalaya Dollar也逐步揭开神秘的面纱，发布了一份令全世界激动的白皮书。Himalaya Dollar上市会对全球银行业带来何种冲击，甚至是否会颠覆传统银行业呢？接下来本文重点进行分析。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04220037/16201794911.png)网络截图
+目前全球银行的国际货币交易中，美元占90%以上，跨国际的美元转账系统主要依靠SWIFT及CHIPS。这里先普及下SWIFT及CHIPS。SWIFT称为环球同业银行金融电讯协会，总部设在比利时的布鲁塞尔，每一个加入的会员银行或者金融机构，都会获得一个独一无二的代码。那SWIFT是如何工作的呢。举例来讲，中国的张三要给住在美国的李四汇钱，首先张三先将人民币在银行里换成美元，然后在银行柜台填汇款单，汇款单中最重要的信息就是收款行的SWIFT代码，加上汇款单上其它的内容，该汇款单组成了一张详细报文信息。银行通过SWIFT发送详细报文信息，李四在美国开户的银行收到详细报文信息后，告知李四来拿钱。说简单点就是SWIFT是一个门牌号，缺少这个门牌号，别人就找不到你的家。CHIPS就稍微复杂一点（能看懂的战友就看一下，看不懂的就直接跳过）。CHIPS主要进行跨国美元交易的清算，参加CHIPS系统的成员主要分为清算用户和非清算用户，区别是清算用户能直接使用该系统实现资金转移，非清算用户则不能直接利用该系统进行清算，必须通过某个清算用户作为代理行。那再以张三汇款为例。张三从中国银行汇款给美国的李四，李四的银行账号是在美行Z，如果美行Z不是CHIPS清算用户，美行Z的CHIPS清算代理银行是美国银行B，具体流程是：张三汇款-&gt;工行（SWIFT）-&gt;工行美国代理银行A（CHIPS）-&gt;美行Z代理银行B（SWIFT）-&gt;美行Z-&gt;李四拿到钱。
 
+总之SWIFT和CHIPS非常牛逼，据统计CHIPS每年要处理全球95%左右的国际美元交易，简直是金融核武器！比如美国为了制裁伊朗，让SWIFT和CHIPS不为伊朗银行提供服务，到伊朗游玩的国外游客只能用现金美元进行购物，因为所有银行卡在伊朗境内均不能提现美元！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
+看了以上头晕眼花的操作，是不是觉得跨国美元交易太繁琐。此外不止这一点，跨国美元交易还面临交费手续费贵，转账时间长的缺点。拿G系列投资来讲，每个战友对银行拒绝汇款，钱被退回的经历恨的咬牙切齿，对于心急的战友来讲，就希望汇款秒到账。墙内战友还担心汇款信息的泄露，甚至被喝茶。
 
+那Himalaya Dollar的上市对目前银行业会带来什么影响？变革！变革！变革！
 
+根据七哥爆料，Himalaya Dollar采取军用级别网络安保、摩根银行的源代码、独立电网等等。可见Himalaya Dollar的安全性已经达到地狱级别。解决了安全性，这就会使大量用户加入进来。接下来我们在以张三的例子进行分析Himalaya Dollar的杀手锏。张三汇款给李四的具体流程是：张三打开Himalaya exchange APP-&gt;点击转账金额-&gt;李四拿到钱。对就这么简单，只要有网络和手机，就可以完成转账，真正实现打破传统银行间的壁垒，实现全球货币大流通。与传统银行相比，Himalaya Dollar的优势体现在转账速度快，安全性高，转账手续费低！Himalaya Dollar相当于革了传统银行的命根子，打破传统银行的垄断地位，创造金融界的新规则！（希望战友多多点赞，下一篇为战友分析H-COIN的价值展望）
 
-环球网5月4日转载央视财经消息，截至2019年底，国内60岁以上老人达2.5亿人口，占总人口的18.1%。与市场巨大相对应的，国内养老相关企业数量的激增，仅2020年就新增46484家，达到如今的近24万家。
+（文章内容仅代表作者观点）
 
-自2019年8月中共国务院号召扩大养老服务、增大养老消费后，截至19年9月A股市场涉及养老概念的上市公司就达37家（其中房地产、医疗保健及金融行业的企业达23家，占比超过62%），部分上市公司亏损上百万（湖南发展亏损518.89万、双箭股份毛利亏损395.87万）的同时，也有如南京新百毛利润3.9亿、宜华健康毛利1.85亿的大赚特赚现象。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04212701/Screen-Shot-2021-05-04-at-9.25.38-PM.png)
-根据天眼查数据显示，2010年至2019年，含有养老范围的企业数量从0.95万家增至12.47万，翻了13倍。2020年经济如此萎靡的现状下，又新增4.3万家入场。与其说是企业响应中共，鼓励民间资本和社会资本参与养老服务的号召，不如说原因在于10万亿养老市场规模的巨大吸引力。
-
-虽然养老相关企业数量激增，但与之相悖的是养老护理员（从事老年人生活照料、护理服务人员）数量的急缺。2020年国内现有养老护理员50多万名。这不但与2.5亿老年人基数差距悬殊，就连4000多万失能、半失能老年人照护基本需求都无法满足。以国际标准，每三位失能老人需要一名护理人员计算，护理员需求缺口超1000万。更可况50万养老护理员中，持证上岗的仅有30余万人，占比仅60%。有不少岗位有国家补贴，可以免费进行养老护理员的培训。但自主寻求培训者仍是屈指可数。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04212617/Screen-Shot-2021-05-04-at-9.25.50-PM.png)
-一方面是养老机构中，养老护理员的短缺；另一方面则是社会上养老企业的迅猛壮大。根据资本逐利的特性，在2019年A股上市企业中，都存在亏损严重这一“前车之鉴”下，社会资本非但没有亦步亦趋，反而更像是嗅到肉味的狼群一样抢占养老市场。近日中共媒体曝出，首个老龄慢病人群专属普惠保险保障计划问世。该计划可为100岁以内慢病老人提供特殊医疗保险，其保费均由北京爱尔公益基金会“解释”和负担保费来源。该基金会会长为原国务院副总理陶铸之女陶斯亮。2016年12月慈善筹款当天，二十多位红二代、红三代亮相助威。社会资本又为何对老年养老市场如此热衷呢？无他，不过是以“养老名义”对客户资金的再集中。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04212641/Screen-Shot-2021-05-04-at-9.25.44-PM.png)
-养老企业规模增大的背后，也反映着政府基本养老职能的缺失。无论是其政策的反复无常，从“只生一个好、国家来养老”到“政府帮养老”，再到“养老不能靠政府”、“以房养老”，延迟退休等等。中共一直在用欺骗的方式圈养和鱼肉百姓。永远填不满的社保基金黑洞和与物价普遍上涨对应的是“捉襟见肘”的养老金。中共不但掏空了百姓的财富，更是将基本社保职能“利益化”，用社会逐利的方式对民众再进一步的敛财。所以市场潜力再大，规模再高，老百姓依旧只能自费养老。“死不起、老不起”的现世地狱没有丝毫的改变。
-
-新闻来源：
-
-市场巨大！关乎250000000老人！相关企业暴增超4万家！又一个新风口？
-
-[https://china.huanqiu.com/article/42yrWG6VhwF](https://china.huanqiu.com/article/42yrWG6VhwF)
-
-养老护理“用工荒”：人才缺口上千万 培训免费但罕有自主报名
-
-[https://www.sohu.com/a/430182814\_115362](https://www.sohu.com/a/430182814_115362)
-
-我国养老护理员缺口已达上百万 民政部独家回应：如何解决养老护理员职业发展瓶颈？
-
-[http://china.cnr.cn/xwwgf/20201107/t20201107\_525322519.shtml](http://china.cnr.cn/xwwgf/20201107/t20201107_525322519.shtml)
-
-老龄化催生产业风口 二季度新增养老相关企业近万家
-
-[https://zj.zjol.com.cn/news/1501433.html](https://zj.zjol.com.cn/news/1501433.html)
-
-37家上市公司布局养老产业，地产金融及医疗行业占6成
-
-[http://www.bjnews.com.cn/finance/2019/09/02/622256.html](http://www.bjnews.com.cn/finance/2019/09/02/622256.html)
-
-我国养老服务相关企业10年间增长13倍 老龄化催生万亿级市场
-
-[https://tech.sina.com.cn/roll/2020-05-21/doc-iircuyvi4215334.shtml](https://tech.sina.com.cn/roll/2020-05-21/doc-iircuyvi4215334.shtml)
-
-养老市场规模接近10万亿 年内已新增4.3万家相关企业
-
-[https://finance.sina.com.cn/stock/yjdt/2020-11-26/doc-iiznezxs3735059.shtml](https://finance.sina.com.cn/stock/yjdt/2020-11-26/doc-iiznezxs3735059.shtml)
-
-国内首个老龄慢病人群专属普惠保险保障计划发布
-
-[https://news.sina.com.cn/c/2021-05-03/doc-ikmyaawc3186195.shtml](https://news.sina.com.cn/c/2021-05-03/doc-ikmyaawc3186195.shtml)
-![This image has an empty alt attribute; its file name is 5_May.jpg]()![This image has an empty alt attribute; its file name is 5_May.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-
-
-0
+审稿&编辑：五饼二鱼
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04002827/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
++1

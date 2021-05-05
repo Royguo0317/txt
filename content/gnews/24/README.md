@@ -1,25 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Himalaya Dollar会割了银行业的命根子
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1172469/)
+## 【世事解评】CDC对冠状病毒测试的新指南
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1172567/)
 
-撰稿：两万五，爆大料
+作者：纽约香草山农场 四季
 
-随着HIMALAYA EXCHANGE开放注册，Himalaya Dollar也逐步揭开神秘的面纱，发布了一份令全世界激动的白皮书。Himalaya Dollar上市会对全球银行业带来何种冲击，甚至是否会颠覆传统银行业呢？接下来本文重点进行分析。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04220037/16201794911.png)网络截图
-目前全球银行的国际货币交易中，美元占90%以上，跨国际的美元转账系统主要依靠SWIFT及CHIPS。这里先普及下SWIFT及CHIPS。SWIFT称为环球同业银行金融电讯协会，总部设在比利时的布鲁塞尔，每一个加入的会员银行或者金融机构，都会获得一个独一无二的代码。那SWIFT是如何工作的呢。举例来讲，中国的张三要给住在美国的李四汇钱，首先张三先将人民币在银行里换成美元，然后在银行柜台填汇款单，汇款单中最重要的信息就是收款行的SWIFT代码，加上汇款单上其它的内容，该汇款单组成了一张详细报文信息。银行通过SWIFT发送详细报文信息，李四在美国开户的银行收到详细报文信息后，告知李四来拿钱。说简单点就是SWIFT是一个门牌号，缺少这个门牌号，别人就找不到你的家。CHIPS就稍微复杂一点（能看懂的战友就看一下，看不懂的就直接跳过）。CHIPS主要进行跨国美元交易的清算，参加CHIPS系统的成员主要分为清算用户和非清算用户，区别是清算用户能直接使用该系统实现资金转移，非清算用户则不能直接利用该系统进行清算，必须通过某个清算用户作为代理行。那再以张三汇款为例。张三从中国银行汇款给美国的李四，李四的银行账号是在美行Z，如果美行Z不是CHIPS清算用户，美行Z的CHIPS清算代理银行是美国银行B，具体流程是：张三汇款-&gt;工行（SWIFT）-&gt;工行美国代理银行A（CHIPS）-&gt;美行Z代理银行B（SWIFT）-&gt;美行Z-&gt;李四拿到钱。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04221555/s2-2.jpg)
 
-总之SWIFT和CHIPS非常牛逼，据统计CHIPS每年要处理全球95%左右的国际美元交易，简直是金融核武器！比如美国为了制裁伊朗，让SWIFT和CHIPS不为伊朗银行提供服务，到伊朗游玩的国外游客只能用现金美元进行购物，因为所有银行卡在伊朗境内均不能提现美元！
 
-看了以上头晕眼花的操作，是不是觉得跨国美元交易太繁琐。此外不止这一点，跨国美元交易还面临交费手续费贵，转账时间长的缺点。拿G系列投资来讲，每个战友对银行拒绝汇款，钱被退回的经历恨的咬牙切齿，对于心急的战友来讲，就希望汇款秒到账。墙内战友还担心汇款信息的泄露，甚至被喝茶。
 
-那Himalaya Dollar的上市对目前银行业会带来什么影响？变革！变革！变革！
+据人类自由网站5月4日的报道，美国疾病预防控制中心（CDC）发布了用于衡量“突破性”Covid病例（感染病毒的疫苗接种人员）的新指南，建议将PCR测试周期调低至28以下，以避免假阳性结果。
 
-根据七哥爆料，Himalaya Dollar采取军用级别网络安保、摩根银行的源代码、独立电网等等。可见Himalaya Dollar的安全性已经达到地狱级别。解决了安全性，这就会使大量用户加入进来。接下来我们在以张三的例子进行分析Himalaya Dollar的杀手锏。张三汇款给李四的具体流程是：张三打开Himalaya exchange APP-&gt;点击转账金额-&gt;李四拿到钱。对就这么简单，只要有网络和手机，就可以完成转账，真正实现打破传统银行间的壁垒，实现全球货币大流通。与传统银行相比，Himalaya Dollar的优势体现在转账速度快，安全性高，转账手续费低！Himalaya Dollar相当于革了传统银行的命根子，打破传统银行的垄断地位，创造金融界的新规则！（希望战友多多点赞，下一篇为战友分析H-COIN的价值展望）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04221817/0-1-1.jpg)图源网络
 
-（文章内容仅代表作者观点）
+让我们回顾一下有关PCR 测试周期数据的权威界定和指南，以及媒体的揭示：
 
-审稿&编辑：五饼二鱼
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04002827/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
-+1
+2021年1月5日，美国食品和药物管理局与世界卫生组织和福奇博士一起，承认用于定义一个人是否是COVID“病例”的标准PCR测试存在明显的错误结果风险。
+
+在2020年7月16日的播客“本周病毒学”中，福奇特别指出，当PCR COVID测试设置在“35个周期阈值或更高”时进行测试，所出现的表示被测者是感染者的阳性结果是不能被接受或相信的，因为该测试是无用和误导的。
+
+但美国食品和药物管理局却说，为了确定病毒是否存在，要将测试运行到40个周期，而不是福奇提到得35次。如果这样，数以百万计的美国人被告知他们感染了病毒。而美国的COVID病例总数是基于该测试进行的，所以这是一个严重的假象。
+
+有关FDA的指南显示，“仅供紧急使用”是指美国食品和药物管理局在传统的紧急使用授权类别下认证了PCR测试。“如果所有2019-nCoV标志物（N1、N2）的周期阈值增长曲线在40.00周期内越过阈值线（&lt;40.00Ct），则认为标本对2019-nCoV[病毒]呈阳性”。
+
+这样，很自然地，许多检测实验室在阅读该指南后会得出结论：“要想知道病人体内是否有病毒，我们应该将检测一直进行到40个周期。这就是官方的建议”。
+
+有一篇2020年8月29日《纽约时报》的文章（2021年4月14日更新），标题是：“你的冠状病毒测试是阳性的。也许它不应该是”。文章中写到：“大多数测试将极限设定为40周期，少数在37个”。“设定极限”通常意味着，“我们要一直看到40个周期，看看病毒是否在那里”。而泰晤士报说，“找到病毒所需的这个扩增周期数，称为周期阈值，从来没有被包含在邮寄给医生和冠状病毒患者的测试结果中”。
+
+为了避免假阳性结果而将PCR测试周期调低是有道理的，但是，对于已进行了一年多的以40个或40个以上为周期进行的测试的假阳性结果又该怎么处理呢？是不是假阳性可能破坏对疫苗的支持？为了让人们打疫苗也是拼了！
+
+参考阅读：
+
+1. [CDC Suddenly Concerned About Covid ‘False Positive’ Tests, After Ignoring the Blatant ‘Casedemic’ From the Beginning (humansarefree.com)](https://humansarefree.com/2021/05/cdc-false-positive-tests-casedemic.html)
+2. [FDA Admits PCR Tests Give False Results, Prepares Ground For Biden To ‘Crush’ Casedemic (humansarefree.com)](https://humansarefree.com/2021/01/fda-admits-pcr-tests-give-false-results.html)
+3. [Bombshell: Fauci States COVID Test Has Fatal Flaw (humansarefree.com)](https://humansarefree.com/2020/11/bombshell-fauci-states-covid-test-has-fatal-flaw.html)
+
+
+
+
+编辑/校对/发稿：小鹿
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04221555/s2-2.jpg)
+
+
+
+0
