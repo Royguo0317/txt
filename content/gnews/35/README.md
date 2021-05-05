@@ -1,33 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《文贵说》| 图片连载（八十）
-` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/1175973/)
+## 【战友心声】 路德5月3日直播有感
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1176454/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05092101/G2101006_X_CN_1.jpg)
-**战友们，人无信则不立，这是我们中国人老祖宗传承下来最重要的品质！**
+作者：纽约香草山医疗部    悠然
 
-**—— 郭文贵先生 2019年12月7日**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05092121/G2101007_X_CN_1.jpg)
-**社交媒体是个现代社会最伟大的一个力量。它的力量超过核武器、超过冠状病毒。但是你不去好好用它，或者你不好好使用它，你就会被击倒，你就会被利用。**
-
-**—— 郭文贵先生 2019年12月7日**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05092140/G2101008_X_CN_1.jpg)
-**人家看得起你、尊重你，是基于你的行动，你的修行，你的品行和知行合一。**
-
-**—— 郭文贵先生 2020年3月28日**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05092158/G2101009_X_CN_1.jpg)
-**最核心的东西是西方有信仰，相信上天，相信善良，完全不是作秀，完全是让自己的内心真正的致良知、知行合一，这才是本质！**
-
-**—— 郭文贵先生 2020年3月28日**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05092218/G2101010_X_CN1.jpg)
-**所有西方的崩溃，一个根本原因就是：相信了共产党。**
-
-**—— 郭文贵先生 2020年4月2日**
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-- [***更多精美海报请点击G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4#getter)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05122950/MOS2624-%E3%80%90%E6%88%98%E5%8F%8B%E5%BF%83%E5%A3%B0%E3%80%91%E8%B7%AF%E5%BE%B75%E6%9C%883%E6%97%A5%E7%9B%B4%E6%92%AD%E6%9C%89%E6%84%9F.png)
 
+5月3日，路德先生在直播中首次提出：1949年老毛贼在天安门城楼喊出的是“中央人民政府成立了”，而不是“中华人民共和国”的成立。路德先生道破天机、语惊四座，以敏锐犀利的洞察力，发现并戳破了这个蒙蔽我们70年的弥天大谎。
 
-+1
+试问有谁公开质疑过老毛贼所谓49年的开国大典？没人意识到这只是一个伪党政府的成立，与民众本意里的国没有任何关联。就这样，一代又一代的同胞被其文字游戏所欺骗和蒙蔽。直到今天，听到路德先生不一样的解读才恍然大悟，当头一棒，而又如梦初醒、五味杂陈。记得年少时，在作文里还很庆幸自己生在红旗下，没有经历旧社会的苦。现在想来，这何曾不也是一种相比下更高级的苦，只是换了马甲变换了形式，被麻痹，被蒙蔽了双眼而已。就这样日复一日年复一年，从少年到青年，一路跟随党，相信党就是国、永远相信媒体和政府所言，从来没有质疑和反向思考过。在无形的大网下，两耳不闻窗外事，每天上班下班、忙忙碌碌为生计奔波。历经多年禁锢和束缚及思想蹂躏，早已失去了探索的动力，何谈有其他想法。
+
+已经被欺骗70年了，难道还要继续被欺骗吗？只有曾经身处其中，现在跳出那张大网的人，才深切体会到谎言的可怕和危害有多大。权力和金钱至上，人的思想被奴役，尊严被践踏，上至庙堂，下到村长，无处不在的权利大战，用金钱维护和保持的各种人际关系。在这污浊的氛围里，哪能静下心来思考。没有尊严和人权，永远活在编织的谎言里，民众的思想变得愚钝和功利。广袤肥沃的大好河山被一个非法政府用谎言经营了70年，金玉其外败絮其中，早已满目疮痍，不堪一击。而谎言犹如肥皂泡，终究会破灭。
+
+文贵先生吸引了我，为我打开了一扇窗，让我看到另一个风景和世界。爆料革命刺破了这些谎言的肥皂泡，刷新了我们的三观，让我们有幸先了解了真相，并让我们学会了思考和分析。不管是命运的安排或历史机遇，我们每个人或多或少都有自己的使命，有同样的价值观，在无形的指引下相聚在一起。爆料革命让我们看到自己的价值，我们知道该做什么、可以做什么，我们每个人都愿意做压死骆驼的那最后一根稻草，传播真相，唤醒大众。我们都愿意像郭先生那样给他人打开一扇窗，带来另一片天空。
+
+在历史发展的舞台上，王朝更替是永远不变的主题。遥想唐、宋、明、清曾何等不可一世，最终不过都是过眼云烟。水能载舟亦能覆舟，没有谁能阻挡历史前进的车轮。CCP大限将至，没有谁能阻挡！
+
+随着觉醒的人越来越多，愤怒声和讨伐声此起彼伏，如此燎原之势才能加快以共灭共的进程。有谁愿意自己的亲人生活在水深火热之中？尽快灭共才能帮助亲人和同胞。爆料革命秉承“唯真不破“，用“真”来重建新中国，用“真”来普及教育，用“真”来纯化民风，这样的新中国能不令人期待吗?
+
+2020年6月4日才是真正意义上新中国成立的日子。她的“唯真”精神气贯长虹，在中国历史上将真正开启一个新篇章。
+
+（文章进代表作者个人观点）
+
+编辑/校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
