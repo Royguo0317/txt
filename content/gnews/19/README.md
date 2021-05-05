@@ -1,43 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印度的疫情蔓延到亚洲 泰国和老挝感染病例激增
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1171806/)
+## 【圣城传声筒】香港良心节目主持人惨遭政治清洗
+` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1171960/)
 
-#### 作者：坐看云起时
+荐评：纽约香草山香港部写作组
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04171124/042721indiahelp_960x540.jpg)
 
-《零对冲》5月4日报道，印度恐怖的疫情已经蔓延过边境，使中共病毒感染病例在整个地区上升，从邻国不丹和尼泊尔非相邻的老挝和泰国，感染病例都在急剧攀升。
 
-据彭博社报道，该地区的加速传播的主要原因是更具传染性的变异株，如首次在印度发现的B-1617变异株，现在已在其边界之外被发现。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
 
-世卫组织发布了一份它正在密切关注的10个变异菌株的名单。随着病毒的不断演变，每天都会发现新的毒株，但只有少数毒株进入世卫组织的官方观察名单，成为 “关注变种 “或更严重的 “关注变种”，后者通常被定义为传染性更强、更致命、对现有疫苗和治疗方法更有抵抗力的变异毒株。
 
-与印度一样，激增的病例数使老挝和其他地方的卫生保健系统不堪重负。老挝卫生部长上周寻求医疗设备和用品，因为病例在一个月内激增了200倍。尼泊尔的医院迅速被填满，而且与印度一样，它的氧气供应已经用完。泰国的卫生设施面临压力，那里98%的新病例来自传染性更强的变异菌株，而太平洋上的一些岛国正面临第一波的中共病毒疫情。
 
-按照新记录的感染者比上个月的变化排名，老挝以22,000%的增长位居第一，其次是尼泊尔和泰国，这两个国家的新病例数量都比上个月猛增了1000%以上。
+原文来源：立场新闻网页
 
-![](https://lh3.googleusercontent.com/-564WYu90E_GGZBZXayfksRHk4V9vy1vA9YBhl7OQTaUoNi1BkQ8vCK2nud3Qk7YGgIDnpNrzK5DsqQR-bcgFu-TiLDewypEoRbXJunHNiXPKaIsWHiFRp1P1jropTc2YBn5APId)图片来源：bloomberg
-
-老挝疫情的突然爆发，显示了一些内陆国家面临的挑战。尽管政策有所限制，但无法打击到非法入境。
-
-虽然与印度的人口或爆发的范围相差甚远，但这些国家中的大多数国家所报告的峰值都要大得多，这表明不受控制的传播存在着潜在的危险。疫情的重新爆发，以及在一些去年基本避免了这一祸害的地方的首次爆发，使向较贫穷、影响力较小的国家提供疫苗供应和避免长期大流行的紧迫性得到了加强。
-
-世界卫生组织欧洲区域主任汉斯-克鲁格（Hans Kluge）在上周的一次简报会上说：”认识到印度的情况可能发生在任何地方，这一点非常重要。“
-
-为了抗击疫情，老挝共产党已下令封锁其首都万象，并禁止在首都和各省之间旅行。卫生部长向越南等邻国求援，但目前还不清楚是否能得到什么援助。
-
-即使是东南亚感染人数最少的越南，在报告4月份新病例激增131%之后，也在对公共集会进行限制。随着上周自2月以来每日病例首次超过3K，马来西亚将于5月6日至5月17日在该国最富有的雪兰莪州的六个地区加强限制。
-
-但迄今为止，最受关注的国家是泰国，由于该国的公共卫生系统面临压力，当局正试图建立野战医院，以容纳大量的COVID患病患者。据朱拉隆功大学（Chulalongkorn University）临床病毒学卓越中心主任Yong Poovorawan称，根据500人的样本，泰国首次确定约98%的病例是与英国变异 “肯特株 “有关的变种。
-
-泰国已于周二启动了一项广泛的疫苗接种活动，试图控制第三波疫情。
-
-原文链接：[Thailand, Laos Report Surging COVID Cases As India’s Outbreaks Spreads Across Asia](https://www.zerohedge.com/covid-19/thailand-laos-report-surging-covid-cases-indias-outbreaks-spreads-across-asia?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+原文链接：[【整治港台】利君雅不获续约　未能正式成为公务员　五月底离港台](https://www.thestandnews.com/politics/%E6%95%B4%E6%B2%BB%E6%B8%AF%E5%8F%B0-%E5%88%A9%E5%90%9B%E9%9B%85%E4%B8%8D%E7%8D%B2%E7%BA%8C%E7%B4%84-%E6%9C%AA%E8%83%BD%E6%AD%A3%E5%BC%8F%E6%88%90%E7%82%BA%E5%85%AC%E5%8B%99%E5%93%A1-%E4%BA%94%E6%9C%88%E5%BA%95%E9%9B%A2%E6%B8%AF%E5%8F%B0/)
 
 * * *
 
-*排版发布：日本东京方舟农场 文柯Miles*
+* * *
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04181738/image-53.png)图源网路
+
+据立场新闻报道，香港电台节目制作人员工会获确认，电视部员工利君雅不获续约，未能正式成为公务员。工会指，利君雅早前两度被延长试用期，第二次试用期限为本月 30 日，意味她将于月底离任。
+
+利君雅在2017 年加入港台电视部，任助理节目主任，原本在 3 年试用期后，可转为公务员合约，但在今年 1 月中，港台管理层终止其公务员试用期合约。港台工会当时表示，管方以未完成调查为由，向她另开一份为期 120 日的聘用合约，利君雅当时亦有签署合约。新的试用期合约原订将于本月 30 日届满，而港台早前已通知利君雅，新试用期合约后，她要离开港台。
+
+对此事香港电台回复指，香港电台作为政府部门，按既定机制和程序（包括公务员事务局的既定指引和《公务员事务规例》）处理员工的聘任安排，不会评论个别个案。
+
+* * *
+
+评论：
+
+利君雅为巴基斯坦裔，从小在香港长大。自 2017年加入港台之后，一直以敢言着称。尤其在2019年反修例运动期间，多次在警方或港共政府举行的新闻发布会上对其种种不合理之处提出尖锐问题，获得香港市民一片喝彩声。但同时，她的这些举动也让港共政府和背后的中共政权极为难堪，一直对她颇有不满。中共对内宣传更对她进行丑化抹黑，诟病其造谣伤港。今次港台对利君雅的辞退，明显只是为了配合中共彻底干预香港司法独立以及言论自由，对所有抗争者代表以及知名良心媒体人的秋后算账而已。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205738/M5-1.jpg)
+
+校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
+
+
 
 +1

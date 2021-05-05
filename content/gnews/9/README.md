@@ -1,41 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本告诉中共&nbsp; 你再跟我扯淡&nbsp; 我第一个跟你脱钩
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1171811/)
+## 家庭教育的重要性
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1172115/)
 
-**摘要：在2021年4月30日的盖特视频中，郭先生披露了中共被日本羞辱的细节。在美日峰会后中共一直让王毅打电话骚扰日本外务省，日本则直接告诉中共：“你敢在这个事儿上再跟我扯淡，经济上我第一个跟你脱钩！”他说欧洲最后也必然会和美国合作。**
+作者：洛杉矶天使农场 – Nio
+校对：洛杉矶天使农场 – Gunner
+审核：洛杉矶天使农场 – 黎明的光芒
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/Picture1-5.png)图片来自网络
+我看动物世界里企鹅抚育孩子的过程很受启示。企鹅夫妻非常恩爱，在孵化幼子的时候互相协助，分别承担孵化和觅食的工作，并且会交替做这个事情，当小企鹅从蛋壳里孵出来之后企鹅父母又交替给小企鹅取暖和觅食。小企鹅能走路之后，且父母带着小企鹅和周围的朋友交往，培养小企鹅的社交活动，让小企鹅融入集体之中，在寒冷的冬天所有的企鹅要围一起抱团取暖，且非常知道团结的重要性，否则就会死去。当春暖花开时，企鹅夫妻带着小企鹅教他觅食和游泳的技能，刚开始小企鹅害怕，大企鹅给小企鹅示范，并鼓励，第一次，第二次小企鹅都没成功，到第三次小企鹅就成功的游进了海洋。从此以后，小企鹅离开父母独自生活。企鹅夫妻也继续自己的生活。
 
-**日本告诉中共****  ****你再跟我扯淡****  ****我第一个跟你脱钩**
+我们人类给与孩子的最好的教育就是夫妻首先是互相爱慕和包容的品质，当孩子看到父母相爱感受到的情绪是积极的。恩爱的父母是爱孩子的，给与孩子身心灵的发展是非常积极的信息。这样的感情氛围内长大的孩子爱心是满满的，性格不孤僻，心地善良，与人为善。在培育孩子的过程中大人会站在孩子的角度考虑问题，不对孩子用强迫的手段进行压制教育，能充分发掘孩子的天赋。在养育孩子的过程中教孩子基本的生存技能和与人相处的能力，这个很重要。现在我们中共国的家长都不教孩子基本的生存能力和与人相处的能力，使得孩子在走向社会感觉手足无措，身心灵完全失调。造成孩子打游戏逃避现实，或者对家长非常叛逆。中共国的夫妻多数不是以爱为基础的婚姻，而是以利益为目的的结合，在孩子未出生时就会感知父母之间欺瞒的感情，所以夫妻两个的情绪和心态在胎儿时期就会影响胎儿。在这种情绪生出的孩子情绪就容易失控。
 
-**Japan Asks the CCP to Shut Up Otherwise It Will Decouple**
+作为家长的你身教胜于言教。小孩子从出生到成年他的模仿能力特别强，他模仿的第一个人就是父母。所以父母的言行特别重要，父母的修养、思维活动和行为方式直接影响儿童的发展。这些影响并不是学校能给与的。
 
-就连现在大家看到的美国[和]日本的合作，共产党敢放个屁吗？它敢放屁吗？它敢说话吗？据我所最掌握的情报来讲，日本第一次告诉中共：你敢在这个事儿上再跟我扯淡，经济上我第一个跟你脱钩。不是共产党威胁日本要脱钩，是日本告诉共产党，“我第一个就跟你共产党丫挺的脱钩。”听说王毅在电话上傻了。
+那么如何培养孩子的社交能力呢？
 
-Now everyone can see the cooperation between the United States and Japan. Does the CCP dare to say a word? Does it dare to say a word? According to the intelligence that I have got, Japan told the CCP for the first time: Do you dare to talk shit to me on this matter, I will be the first one to decouple with you economically. It was not the CCP that threatened Japan to decouple, rather it was Japan who told the CCP: “I will be the first to decouple with you, the CCP bastard!” I heard that Wang Yi was shocked on the phone.
+家长要带着孩子与人接触，并且让孩子与小朋友共同协作玩游戏，游戏有分工有协作，这样孩子既知道自己的责任范围，又可以和小朋友互相协作帮助完成一件事，长大之后走向社会进行工作就知道与人如何去分工协作。游戏是非常重要的。既能满足分工又能满足协作，而不是简单的一个人就能完成的游戏。家长要在这方面动脑筋去创作游戏。这样还能避免孩子沉迷于电子产品和电子游戏当中，而不喜欢现实生活。在选择玩具时，尽量少选择人工制作的，尽量领孩子去大自然观察动物植物的结构和生活习性，如何让动物植物为人类服务？各种自然界的生物都是现成的玩具。会满足小孩子的求知欲和好奇心。
 
-日本人是不开玩笑的，说干就干。共产党你能硬的起来吗？[共产党一旦]没钱了，它连个屁都不是。日本一个脱钩把[共产党]吓的。美日峰会后共产党一再威胁[日本]，王毅打电话，打[电话给]日本的外务省[进行威胁]。人家说明确告诉[王毅]：你敢在这事儿上再给我做文章 — 我日本早晚要走今天的，好不容易美国佬现在答应我了– 你敢再给我折腾，我就给你脱钩。闭嘴！”[这是]什么力量？Money，Money！[这是]钱的力量，战友们。
+如何培养孩子的基本的生存能力呢？
 
-The Japanese were not joking. They mean it when they say it. Can the CCP still be tough? Once the CCP has no money, it will be nothing. Japan’s decoupling has really scared the CCP. After the US-Japan summit, the CCP repeatedly threatened Japan, by having Wang Yi to call Japan’s Ministry of Foreign Affairs. This time they made it clear to Wang Yi: Do you dare to make a fuss about this matter, I will decouple with you. I (Japan) has already gone as far as this and the Yankee has finally promised me. So you’d better shut up!” This shows the power of money, right? Money, money, the power of money, my fellow fighters!
+从书本上让孩子知道各种植物，认识植物的各部分特征和功效，及生长时期和生长条件。认识各种动物，各种动物的生活习性及与人类的关系。造物主造各种动物和植物是服务于人类的。人类是自然界的主宰而不是破坏者。人类与动物植物和谐相处。所有技术治理世界的物件都没有造物主给与我们的精美。自然界中除了动物植物还有微生物等人类肉眼看不见的其他物种，这些生物的生物特征与人之间的关系是什么，让孩子知道。让孩子了解宇宙星辰是怎么形成的？宇宙法则是什么？这些知识为孩子将来生存提供了非常必要的知识储备。除了书本上来的知识，更重要的是带孩子走向大自然了解真实的自然界，把书本知识用于实践。在幼儿时期就让孩子仔细观察动物植物的生活习性，这样孩子的思维速度会很快。对于植物小孩子先天就知道拿些可以作为食物，哪些不能作为食物。我们现代人总是低估小孩子的能力，从而阻止了孩子认知的发展。再领孩子认识大自然的时候也就会了解一些初步的物理化学和生物的科学知识。
 
-第二，欧洲[的]德国、法国不就是因为钱磕头了共产党吗？但是这次美国到欧洲去要给更多的钱。[所以]，最后的法国、德国一定跪倒在最不喜欢的美国人脚底下，一定这结局的。这就是资本主义社会和资本主义的今天[在]21世纪必然的结局。
+以上是我对于小孩子教育的一点感悟。
 
-Second, didn’t Germany and France in Europe just kowtow to the CCP because of money? But this time the U.S. goes to Europe to give them more money. So, eventually France and Germany will definitely kneel under the feet of Americans who they dislike the most. It must end this way. This is what the capitalist society and capitalism inevitably lead to in the 21st century today.
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/608c20af4486aa0bb231afcf](https://gtv.org/getter/608c20af4486aa0bb231afcf) (1:40-3:28)
-鸣谢：感谢Antsee-GTV、TING GUO 提供中文文本于 [https://www.gnews.org/zh-hans/1159871/](https://www.gnews.org/zh-hans/1159871/)
-
-* * *
-
-字幕：【Rock小哥】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-翻译 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
-+1
+0
