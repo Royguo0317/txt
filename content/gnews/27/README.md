@@ -1,80 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 只有美国这个国家赢了才能消灭这个毒瘤共产党
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1171913/)
+## 【战友心声】2022年或将是中共的死期
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1172012/)
 
-**摘要：在2021年4月28日的两个盖特视频中，郭先生说中共有核武器和几百万的军队，因此在美国没有行动之前其他国家不可能跟中共动武。西方国家将会继续受到病毒的袭击。灭共的关键时刻将在美国2022年中期选举之后。毋庸置疑，中共将会被很痛快地推翻，但是不要急于求成，也不要天真。**
+作者：纽约香草山媒体部  文扬四海
 
-**日本、美国、澳大利亚以及英国等国家将会在灭共事业上达成共识，同时基督教信徒以及犹太人也会明白中共带给他们的巨大威胁。届时，中共国会像前苏联那样被世界对待，世界经济（包括美国经济）将会崩溃。中共将会成为解决所以问题的对象。结果是我们将会进入以超限战为特点的第三次世界大战，即“生物科技大战”。最后是世界加密货币时代的到来。我们参与到了这个过程，并且希望美国最终赢得胜利。只有美国赢得胜利，中共才会被推翻，世界才会拥有和平。**
 
-**只有美国这个国家赢了才能消灭这个毒瘤**** — ****共产党！**
 
-**Only When the U.S. Wins Can This CCP Cancer Be Eliminated**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
-我要再说一下「关于」现在这个灭共形势。很多「人」很高兴看到日本又出手啦，印度要反抗拉，然后这个澳大利亚又发声啦，然后美国又有什么动作啦。我告诉你战友们：这些一点都不重要！我必须跟你们说实话，这都是扯淡的事儿，知道吗？印度这个国家死再多人都没有能力，也不敢对中共动手；日本这个国家再折腾也不敢对中共动手。你别以为啥，「如果日本」跟中共动手，它打不过中共，这是肯定的。这个咱别糊弄自己。还有这欧洲就在那边嘚瑟，目前它对中共动手不可能。「如果」没有美国动手，你不可能在武力上动中共的。「共产党」毕竟有核武器，毕竟有那几百万部队在那摆着呢，最关键他腚底下坐着14亿老百姓呢，这就是「共产党能」耍流氓的原因。
 
-I want to say something about the current situation of taking down the CCP. Many people feel excited to see that Japan is taking actions, that India is fighting back, that Australia is in vocal protest again, and that the U.S. is about to take some actions. I tell you this, my fellow fighters: none of these matters! I must be honest with you that this is all superficial. Do you understand? Even if India had more people died of the CCP-virus, it would not have the ability or guts to act against the CCP. Japan is a country that does not dare to act against the CCP, no matter how much it thrashes around. Think by yourself. If there were a military conflict between Japan and the CCP, Japan would not be a match for the CCP. That’s for sure. We should not fool ourselves. Also, although Europe has made some comments, it will not act against the CCP now because without any actions of the U.S., it would be impossible for them to strike the CCP militarily. After all, the CCP has nuclear weapons and millions of troops. Most critically, the CCP controls 1.4 billion ordinary people (Lao Bai Xing), which is why it can play hooligan without scruples.
 
-那么，最早七哥在半年前就说过，“下一个「病毒爆发国家」是印度。”那时候「有人说」印度没事的时候，我说：“你胡扯。”印度，日本，澳大利亚然后英国美国一定会被接二连三的放毒，这是毋庸置疑的。
+中国共产党自成立以来，便不断以邪恶、杀戮和欺骗、洗脑的方式发展壮大自身，至于其盗取中国政权后，更加无所不用其极：中共长期对内实行专制统治，残酷镇压反抗异议者；对外到处欺骗、渗透、大搞“蓝金黄”。同时，中共用各种谎言宣传对全世界洗脑，把中共包装成伟光正的政党。
 
-Your Brother Miles said half a year ago: “The next country to have a virus outbreak will be India.” At that time, when somebody said India was fine, I said, “You’re full of shit.” This round, the virus is starting from India, then Japan and Australia, and finally the UK and the U.S. There is no doubt that these countries will be under attack by the virus one after another.
+灭共者郭文贵先生自八九64后受上天启示，承上天使命着手准备灭共：他用了近三十年时间积累资金、人脉和证据、情报等等。2017年，郭文贵先生正式发起爆料革命，向全世界揭露中共谎言。郭先生还以香港问题和王健之死的真相游说世界沼泽地力量，让他们意识到中共的邪恶远超想象，西方文明世界必须与中共脱钩并灭之。
+![]()![](https://media.discordapp.net/attachments/721544615953432698/824098122938187836/image0.png?width=1083&amp;height=609)
+川普政府上台后，美国开始在各方面和中共针锋相对，尤其在贸易和关税上给中共施加了极大的压力。在这种情况下，2020年，中共的习总加速师铤而走险，亲自指挥、部署，向全世界投放武汉实验室的中共病毒，发动了一场超限生物战争。然而，由于闫丽梦博士和路德社在1.19爆料中揭露了中共病毒的真相，相当于已经把中共判了死刑。随后，中共动用一切资源企图掩盖病毒真相并操纵美国大选，寄希望于拜登上台后能与之勾兑。可惜，由于川普总统在病毒来源问题上的优柔寡断，导致自己连任失败，也让中共暂时得以续命。
 
-什么结果？这个世界的付出的代价和清醒的时刻远远没有到来。他们现在要坚定的灭掉中国共产党，把中国共产党和中国人民分开的时刻远远没有到来。我认为2022年美国中期选举后，才是那个最关键的时刻。在这之前，美国还要付出代价，欧洲要付出代价，日本，印度，也就是所谓的民主国家，28亿的天主教和基督教徒们这些国家，文明的国家，也就是和共产党的流氓国家的这些流氓们不一样的国家。将付出更多代价以后，才可能像我们想象的那样。 你看看，哎呀你看看！所以说战友们永远不要天真，永远不要着急。共产党残虐中国人七十多年了，我们要花1500天，1700天把它灭掉，有点天真，大家等等啊。「共产党」会灭的很痛快，但是不要着急，不要着急。
+即便如此，中共并不能高兴太久。前国务卿蓬佩奥在离任前定性中共犯下种族灭罪，让拜登政府不敢和中共过度勾兑。随着爆料革命对病毒真相地持续推动，西方各国已逐渐认识到这场病毒危机的本质。目前，美国两党在对待中共问题上已经达成共识。为此，拜登政府正在联合美国盟友步步紧逼，在经济、科技、军事等方面封锁制裁中共国——刚刚召开的七国集团会议上，英、美表示要加强合作，应对来自中共国和俄罗斯的挑战。从拜登政府目前的表现结合郭先生的情报来看，我们可以判断拜登政府的策略是，美国联合盟国使用除热战以外的一切手段打压、制裁中共，希望通过极限施压促使中共内部发生变化而解体——就像当年对付前苏联那样。
 
-What’s the consequence? The time for the world to finish paying the price and become awaken has not yet come. The time for the world to make up their mind to destroy the CCP and to separate Chinese people from the CCP, has not yet come. I think that the most critical moment will arrive after the U.S. mid-term elections in 2022. Until then, the U.S. and Europe will continue paying the price. The so-called democratic countries like Japan and India, and civilized countries that have 2.8 billion Catholics and Christians, which are different from the rogue country represented by the CCP, still have to suffer more before doing what we expect. Do you understand that? So, our fellow fighters should never be naive or anxious. Since the CCP has been brutalizing and abusing Chinese people for over 70 years, we are a bit naive to expect to take it down in 1500 or 1700 days. Everybody should be more patient. The CCP will undoubtedly be destroyed in a very crisp and clean way, but there is no rush. No rush.
+从目前看，这个可能性极大。而今，中共国内金融系统已经接近爆雷边缘，最近更是有五家地方银行接连破产，随之而来民生银行、平安集团及四大国有银行，恐将一个接一个地爆雷。随着西方国家制裁的进一步加码，将会导致这一过程加速。至于中共党内，江、曾、王的势力很清楚全世界对中共病毒的追责迟早会到来，所有参与制毒、投毒的人员都将面临像纳粹一样的大审判，再加上中共“二十大”的接班人问题悬而未决，习想继续连任的野心昭然若揭。这时，中共的内斗会逐步升级为火拼。江、曾、王一定会殊死一搏，实施南普陀计划的最后一环：卸磨杀驴，把习扳倒，然后将一切责任推到习身上。江泽民虽然老了，但是他多年来培植的亲信党羽遍布党内，很多党内关键部门真不好说是控制在谁的手上。而曾庆红则是被郭先生称作中（共）国的沼泽地，党内的政治大家，以共灭共的关键人——他是红二代出身，党内根基极深。至于王岐山更是被路德社点评为当代司马懿，老谋深算，实际控制着中（共）国金融及中共海外的大量关系网。另外，还有曾被郭先生点名说有可能做袁世凯的杨洁篪，此人实乃江派，在海外的能量也不容小觑。倘若到时这几人联合发难逼宫，成事的几率极大。由此可见，习除了要防范明面上的对手，自己人也不得不防。然而，习的刚愎自用导致现在身边已无人才可用，成了孤家寡人——也许最后要习命的就是身边人也未可知。
 
-就像现在懦弱的日本 – 它就知道了：“我只有跟「共产党」拼个你死我活，我才有活下去的机会。”美国才会知道：“不灭共产党，「共产党」就灭我。”然后欧洲北约知道：“原来共产党不仅要灭美国，它是要灭白人？连我也灭啊？所以说也得上。”澳大利亚会发现光喊不行啊，「原来」以为给它「共产党」喊喊就能弄点铁的交易了，「后来发现」得动手，最后它动手。英国就更不用提了，英国这帮傻货只有跟着美国干。
+当然，习总加速师不会坐以待毙。他手握军权，会继续对党内进行清洗，对其他家族势力的财产蛮横掠夺，甚至不惜发动对台湾的战争，把党内的政治对手送上前线当炮灰，并用核武器和被绑架的14亿人民为要挟，致使西方国家不敢干预。但是，只要中共打台湾，西方国家是一定会出手的。西方的军事实力完全碾压中共，到那时，习估计会被无人机直接斩首。
 
-Just like coward Japan – it now knows that “only by fighting the CCP to the death do we have a chance of survival.” The United States will know: “if we don’t take down the CCP, the CCP will destroy us.” Europe and NATO will know: “the reality is that the CCP not only wants to destroy the United States, but also wants to exterminate all the white people, including us.” Then Europe will join the fight. Australia will find out that just yelling at the CCP is not enough. The Aussies initially thought that they would get some iron trade deals by shouting at the CCP a bit. Later they discovered that they had to take actions. Eventually, Australia will join the fight. Not to mention the United Kingdom. The British idiots will know that their only option is to follow the United States.
+退一万步，即使中共的内斗火拼没能解体中共，到今年底明年初，美国经济上将出现崩盘危机，再加上2022年中期选举的压力，如果参、众两院被共和党夺回，拜登将面临被弹劾以及被起诉选举欺诈的问题。为了解决经济和政治上的双重压力，到那时，拜登政府只能选择主动和中共热战了。一旦开战，中共就结束了。所以，中共已离死期不远，笔者推算有望在2022年内就彻底终结中共。
 
-这个时候「全世界」才能形成气候。经济不崩塌，内部政治不出突发事件，病毒的事情不引起全世界更多重视，或者死更多人或者全世界醒过来共产党有解药，要「问共产党」要解药，「如果」美国没有清楚的认识到对美国的威胁已经不是超限战那么简单，「而是」就在战争中「了」，没有这些事情的发生唤醒不了全世界的犹太人，犹太人毕竟是美国媒体百分之90的控制者，「也」影响不了基督教，毕竟基督教28亿人「是」人类的最重要的一个文明的基础，包括天主教。
+（本文仅代表作者观点）
 
-Until then, the world will develop consensus against the CCP. If the economy does not collapse, if there are no emergencies occurring in internal politics, if the virus does not attract more attention worldwide, if there are no enough people dying, if the world does not wake up and ask the CCP for an antidote, if the United States does not clearly realize that the CCP’s threat to the US is unrestricted warfare and that the reality is the U.S. is already at war, and if none of these is happening, the Jewish people of the world cannot be awakened. After all, the Jews control 90% of the American media. Without any of these happening, nor can the Christians be awakened. After all, the 2.8 billion Christians around the world are the most important foundation of civilization and humanity.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
 
-没有这些宗教和种族认识到，像犹太人认识到伊朗的背后实际上是绝对共产党，共产党「是」实际上背后的所有的麻烦制造者包括对以色列。然后中东这些国家跟着共产党的，加一起现在跟共产党玩儿的国家GDP加一起29个国家，「GDP」大概5万亿美元，也就是一个英国的经济体，算个球啊，是吧？「GDP才」跟日本一样，有啥用啊？没用的。所以说最后他们会醒过来。
+编辑/校对/发稿：Irene木木
 
-Without been recognized by these religions and races, it is impossible to take down the CCP. For example, Jews realize that it is the CCP that is behind Iran. The CCP is the actual troublemaker, including causing problems to Israel. There are 29 countries in the Middle East, who are allied with the CCP. Their GDP is about 5 trillion U.S. dollars in total, which is equal to the British economy. So it is nothing, right? Their total GDP is the same as Japan’s. What’s the use? So, in the end, they will wake up.
+**更多资讯，更多关注**
 
-结果中国老百姓「会」发现原来世界上咱不但没朋友，「而且」跟原来苏联一样全人类都希望苏联越坏越好，都诅咒苏联这个国家。后来苏联解体了「全世界」都高兴的不得了，因为苏联历史上干了太多坏事，从来没有任何一个让人尊敬的事儿。二战实际上「苏联也」是罪魁祸首，跟希特勒是一样的。打波兰，包括占领德国后强奸1、2百万，蹂躏杀害德国的妇女和孩子，这都是他们干的。
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-In the end, Chinese people will find out that we have no friends in the world. China will be treated as the former Soviet Union. The whole world hoped for the worst for the Soviet Union. They all cursed this country. After the collapse of the Soviet Union, the world was thrilled. That’s because the Soviet Union did so many bad things in its history, and it had never done anything respectable. The Soviet Union was one of the chief culprits in World War II, along with Hitler. The Soviets attacked Poland. After the occupation of Germany, they raped 1 to 2 million German women, ravaged and killed many German women and children. All done by them.
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-哎呀，我特别敏感，这花开了以后就这感觉，非常抱歉啊！
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-Oh, I’m very allergic to flowers. I feel bad when the flowers bloom. I’m very sorry.
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-所以，兄弟姐妹们，这个时刻的世界需要的是什么？需要我们对世界大局的把握，「并且」多交朋友。美国的经济一定会崩盘，一定会崩盘。美国经济崩盘的时候欧洲经济能好吗？「那」是不可能的；日本经济能好吗？也是不可能的。美国作为「全球」消费第一大国，世界上60%的高科技产品的生产国，全世界80%的高科技的专利国，而且每年有这么巨大开支的军事强国，他经济崩塌怎么办？「美国也」一定要转移所有的问题，只有一个目标能承受得了：中国共产党。然后美国会认识到经济崩塌的核心的原因不能说100%是共产党「造成」的，40%几是共产党「造成」的，美国内部的原因还占超过50%，但是他要解决这个问题唯一的办法那就消灭共产党。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-So, brothers and sisters, what does the world need at this moment? We need to grasp the gravity of the global situation and make more friends. The U.S. economy is bound to collapse. Will the European economy do well when the U.S. economy collapses? That is impossible. Can the Japanese economy improve? It is also impossible. The United States is the world’s largest consumer economy, a producer of 60% of the world’s high-tech products, and a country that owns 80% of the world’s high-tech patents, with military power, and with huge expenditures every year. What if its economy collapses? The U.S. must then find ways to distract from all its problems. Only one target deserves the blame: the Chinese Communist Party. The United States will realize that the fundamental reason for its economic collapse is the CCP. The CCP may not be 100% liable, but at least 40%. The internal reasons of the U.S. account for more than 50%. But the only reasonable course to solve these problems is to take down the CCP.
 
-人类都是自私的，在最后你发现只有一个办法能解决「问题」的时候你不会再问正不正义，你也不会问是否是对错，你就一定会对着目标去了，「目标」就是共产党。所以，兄弟姐妹「们」，这一刻「的出现」需要各种因素，「包括」美国病毒再次爆发，「虽然我」希望那刻不要来，「发生」像印度一样这样的病情。在澳大利亚在日本「随着」共产党的再次多次释放病毒，世界要解药。世界的经济再靠印钞票解决不了恶性通胀，全球发生经济局部崩塌到全面崩塌，过渡到了二战以后的「以」超限战「为特点」的第3次世界大战：叫生物科技世界大战，最后到加密数字货币时代到来。
 
-Human beings are all selfish. When they realize that there is only one way to solve their problems, they will no longer ask whether it is justified or whether it is right. They will definitely go after their target and that target is the CCP. Therefore, brothers and sisters, before this happens, many things can happen, including the possible outbreak of the virus in the U.S. again – although we hope this won’t happen – another pandemic like what is happening in India at this moment. Following the CCP’s repeated release of the virus in Australia and Japan, the world will demand an antidote. The world economy cannot solve hyperinflation by printing money. The global economy will first see a partial collapse, then a total collapse. We will go from the post-World War II era to World War III, which will be characterized by unrestricted warfare. I call it the World Biotechnology War. This will usher in an era of encrypted digital currency.
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
 
-这个过程我们参与了，很伟大、很危险，但是我们要脑子很清楚。这个时候「要」记住不要蠢蠢欲动啊，咱不要轻易出手。更重要的事情我们要希望美国赢，只有美国这个国家赢了世界才是太平「的」，只有美国这个国家赢了才能消灭这个毒瘤 — 共产党！就这么简单。
 
-We are being involved in this process, which is great but dangerous. We must be very clear in our minds. Remember not to be tempted. Let’s not take easy shots. More importantly, we must hope that the United States will win. Only when the U.S. wins will the world be at peace. Only when the U.S. wins can this CCP cancer be eliminated. It’s that simple.
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：
-[1] [https://gtv.org/user/5e596957357cc612d35a8044#getter](https://gtv.org/user/5e596957357cc612d35a8044#getter) (06:52-09:38)
-[2] [https://gtv.org/getter/60897c084486aa0bb2311053](https://gtv.org/getter/60897c084486aa0bb2311053) (01:44-06:50)
-鸣谢：
-[1] 感谢盘古小蚂蚁、Antsee-GTV、TING GUO 提供中文文本于 [https://www.gnews.org/zh-hans/1148333/](https://www.gnews.org/zh-hans/1148333/), [https://www.gnews.org/zh-hans/1148358/](https://www.gnews.org/zh-hans/1148358/)
-[2] 感谢Antsee-GTV、YY、Liberte 提供英文翻译于[https://gnews.org/1151554/](https://gnews.org/1151554/), [https://gnews.org/1151656/](https://gnews.org/1151656/)
-
-* * *
-
-整理校对 & 新闻撰写：【7PawBear（纽约香草山农场）】
-字幕：【Rock小哥】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
-+2
+0

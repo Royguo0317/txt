@@ -1,43 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印度的疫情蔓延到亚洲 泰国和老挝感染病例激增
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1171806/)
+## 日本告诉中共&nbsp; 你再跟我扯淡&nbsp; 我第一个跟你脱钩
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1171811/)
 
-#### 作者：坐看云起时
+**摘要：在2021年4月30日的盖特视频中，郭先生披露了中共被日本羞辱的细节。在美日峰会后中共一直让王毅打电话骚扰日本外务省，日本则直接告诉中共：“你敢在这个事儿上再跟我扯淡，经济上我第一个跟你脱钩！”他说欧洲最后也必然会和美国合作。**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04171124/042721indiahelp_960x540.jpg)
+**日本告诉中共****  ****你再跟我扯淡****  ****我第一个跟你脱钩**
 
-《零对冲》5月4日报道，印度恐怖的疫情已经蔓延过边境，使中共病毒感染病例在整个地区上升，从邻国不丹和尼泊尔非相邻的老挝和泰国，感染病例都在急剧攀升。
+**Japan Asks the CCP to Shut Up Otherwise It Will Decouple**
 
-据彭博社报道，该地区的加速传播的主要原因是更具传染性的变异株，如首次在印度发现的B-1617变异株，现在已在其边界之外被发现。
+就连现在大家看到的美国[和]日本的合作，共产党敢放个屁吗？它敢放屁吗？它敢说话吗？据我所最掌握的情报来讲，日本第一次告诉中共：你敢在这个事儿上再跟我扯淡，经济上我第一个跟你脱钩。不是共产党威胁日本要脱钩，是日本告诉共产党，“我第一个就跟你共产党丫挺的脱钩。”听说王毅在电话上傻了。
 
-世卫组织发布了一份它正在密切关注的10个变异菌株的名单。随着病毒的不断演变，每天都会发现新的毒株，但只有少数毒株进入世卫组织的官方观察名单，成为 “关注变种 “或更严重的 “关注变种”，后者通常被定义为传染性更强、更致命、对现有疫苗和治疗方法更有抵抗力的变异毒株。
+Now everyone can see the cooperation between the United States and Japan. Does the CCP dare to say a word? Does it dare to say a word? According to the intelligence that I have got, Japan told the CCP for the first time: Do you dare to talk shit to me on this matter, I will be the first one to decouple with you economically. It was not the CCP that threatened Japan to decouple, rather it was Japan who told the CCP: “I will be the first to decouple with you, the CCP bastard!” I heard that Wang Yi was shocked on the phone.
 
-与印度一样，激增的病例数使老挝和其他地方的卫生保健系统不堪重负。老挝卫生部长上周寻求医疗设备和用品，因为病例在一个月内激增了200倍。尼泊尔的医院迅速被填满，而且与印度一样，它的氧气供应已经用完。泰国的卫生设施面临压力，那里98%的新病例来自传染性更强的变异菌株，而太平洋上的一些岛国正面临第一波的中共病毒疫情。
+日本人是不开玩笑的，说干就干。共产党你能硬的起来吗？[共产党一旦]没钱了，它连个屁都不是。日本一个脱钩把[共产党]吓的。美日峰会后共产党一再威胁[日本]，王毅打电话，打[电话给]日本的外务省[进行威胁]。人家说明确告诉[王毅]：你敢在这事儿上再给我做文章 — 我日本早晚要走今天的，好不容易美国佬现在答应我了– 你敢再给我折腾，我就给你脱钩。闭嘴！”[这是]什么力量？Money，Money！[这是]钱的力量，战友们。
 
-按照新记录的感染者比上个月的变化排名，老挝以22,000%的增长位居第一，其次是尼泊尔和泰国，这两个国家的新病例数量都比上个月猛增了1000%以上。
+The Japanese were not joking. They mean it when they say it. Can the CCP still be tough? Once the CCP has no money, it will be nothing. Japan’s decoupling has really scared the CCP. After the US-Japan summit, the CCP repeatedly threatened Japan, by having Wang Yi to call Japan’s Ministry of Foreign Affairs. This time they made it clear to Wang Yi: Do you dare to make a fuss about this matter, I will decouple with you. I (Japan) has already gone as far as this and the Yankee has finally promised me. So you’d better shut up!” This shows the power of money, right? Money, money, the power of money, my fellow fighters!
 
-![](https://lh3.googleusercontent.com/-564WYu90E_GGZBZXayfksRHk4V9vy1vA9YBhl7OQTaUoNi1BkQ8vCK2nud3Qk7YGgIDnpNrzK5DsqQR-bcgFu-TiLDewypEoRbXJunHNiXPKaIsWHiFRp1P1jropTc2YBn5APId)图片来源：bloomberg
+第二，欧洲[的]德国、法国不就是因为钱磕头了共产党吗？但是这次美国到欧洲去要给更多的钱。[所以]，最后的法国、德国一定跪倒在最不喜欢的美国人脚底下，一定这结局的。这就是资本主义社会和资本主义的今天[在]21世纪必然的结局。
 
-老挝疫情的突然爆发，显示了一些内陆国家面临的挑战。尽管政策有所限制，但无法打击到非法入境。
+Second, didn’t Germany and France in Europe just kowtow to the CCP because of money? But this time the U.S. goes to Europe to give them more money. So, eventually France and Germany will definitely kneel under the feet of Americans who they dislike the most. It must end this way. This is what the capitalist society and capitalism inevitably lead to in the 21st century today.
 
-虽然与印度的人口或爆发的范围相差甚远，但这些国家中的大多数国家所报告的峰值都要大得多，这表明不受控制的传播存在着潜在的危险。疫情的重新爆发，以及在一些去年基本避免了这一祸害的地方的首次爆发，使向较贫穷、影响力较小的国家提供疫苗供应和避免长期大流行的紧迫性得到了加强。
-
-世界卫生组织欧洲区域主任汉斯-克鲁格（Hans Kluge）在上周的一次简报会上说：”认识到印度的情况可能发生在任何地方，这一点非常重要。“
-
-为了抗击疫情，老挝共产党已下令封锁其首都万象，并禁止在首都和各省之间旅行。卫生部长向越南等邻国求援，但目前还不清楚是否能得到什么援助。
-
-即使是东南亚感染人数最少的越南，在报告4月份新病例激增131%之后，也在对公共集会进行限制。随着上周自2月以来每日病例首次超过3K，马来西亚将于5月6日至5月17日在该国最富有的雪兰莪州的六个地区加强限制。
-
-但迄今为止，最受关注的国家是泰国，由于该国的公共卫生系统面临压力，当局正试图建立野战医院，以容纳大量的COVID患病患者。据朱拉隆功大学（Chulalongkorn University）临床病毒学卓越中心主任Yong Poovorawan称，根据500人的样本，泰国首次确定约98%的病例是与英国变异 “肯特株 “有关的变种。
-
-泰国已于周二启动了一项广泛的疫苗接种活动，试图控制第三波疫情。
-
-原文链接：[Thailand, Laos Report Surging COVID Cases As India’s Outbreaks Spreads Across Asia](https://www.zerohedge.com/covid-19/thailand-laos-report-surging-covid-cases-indias-outbreaks-spreads-across-asia?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/608c20af4486aa0bb231afcf](https://gtv.org/getter/608c20af4486aa0bb231afcf) (1:40-3:28)
+鸣谢：感谢Antsee-GTV、TING GUO 提供中文文本于 [https://www.gnews.org/zh-hans/1159871/](https://www.gnews.org/zh-hans/1159871/)
 
 * * *
 
-*排版发布：日本东京方舟农场 文柯Miles*
+字幕：【Rock小哥】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+翻译 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 +1
