@@ -1,61 +1,121 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】穷苦的中国草根人民
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1172520/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（十五）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1176019/)
 
-作者：纽约香草山健身部  魇蚁蚁蚁
+作者：纽约香草山信息部 6zero4
 
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-中国草根人民为什么这么穷苦？
+5月3日塞林博士的4连推：
 
-是因为他们懒惰和不勤劳吗？
+第1推，转发“Montreal Himalaya蒙特利尔”战友响应塞林博士面向全球征集CCP病毒信息的推文：AMMS在2020年9月15日发布的专利报告中承认羟氯喹(HCQ)可以抑制针对SARS-CoV-2病毒基因组的感染和复制，不公开发明人是什么意思？并贴上该专利报告的截图。这让每个人无比愤怒：（1）PLA试图控制HCQ并从中获利；（2）福奇、科学家们、科学杂志和媒体对HCQ针对COVID-19的早期使用轻描淡写，可能已经导致多大10万人的死亡。
 
-笔者在这里说说我们自己真实的故事。
 
-60年代末期，我丈夫出生在中国中部一个偏北的小乡村。丈夫的父母从结婚开始就在农村的生产大队干活，两人起早贪黑一天工都不敢缺。到了年底，生产队按工分结算所得口粮，分给二人红薯（红薯是高产）和其他粮食。这些粮食只够一家人每天吃一顿，每顿吃半饱，吃三个月——如果光喝稀的能维持到半年。后半年，一家人全靠吃红薯充饥——他家如此，全村大部分人也如此（只有村长、队长、会计除外，因为他们除了是干部，就是有权的人）。在丈夫出生时，他母亲因挨饿而没有奶水。丈夫靠着喝稀面糊长到两岁时，家中又添了一个弟弟——情况更是艰难。丈夫四岁的时候，他的父亲因吃已经馊了的食物得了痢疾，又由于缺医少药，没有及时得到医治，两天后，只有24岁的父亲就过世了。如此，本就困苦的日子压在母亲一人身上，整个家庭雪上加霜。丈夫追忆，他一直长到16岁都从没吃饱过。
 
-丈夫17岁时初中毕业，到县城打工，工作的内容是拉带大围栏的架子车。丈夫一个人拉了三个月，挣了一点钱，用来给母亲的一个远房亲戚送礼：买了两条烟和家里的一只鸡。因为亲戚在负责招兵工作，丈夫通过亲戚就当上兵了。当兵后，丈夫被分到了偏远的西北某山上的步兵团。在部队里，丈夫第一次吃了顿饱饭——粘面馒头加咸菜。然而，部队按份例的伙食费都被排长、连长以及他们的家属（干部是可以带家属的）买了其他更好的食物，单独享用。
+> This should make everyone very angry (1) PLA tried to control and profit from the use of hydroxychloroquine (HCQ) for [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) (2) U.S. government officials like Fauci, scientists, scientific journals & media downplayed the early use of HCQ, likely causing the deaths of 100,000s. [https://t.co/GoWH0bYtVR](https://t.co/GoWH0bYtVR)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 3, 2021](https://twitter.com/LawrenceSellin/status/1389088181270851585?ref_src=twsrc%5Etfw)
 
-西北的冬天很冷，零下二十多度，部队的取暖期规定是五个月（11月 – 3月）。但是，上头派发的冬煤被团、营、连、排的家人亲属们层层盘剥。他们把好的煤挑完，剩下些不好的渣子，却只够烧两个月的暖气。于是，五个月的取暖期两头一掐，改为三个月（12月—2月）。就这样，还是有一个月没有煤烧，部队里的兵冻得不行了，班长就在半夜带领一个班的人去山下偷老百姓家门口堆放的冬煤——一人一家，偷一大块，这样再凑和着烧一个月，取暖就算过去了（而这些都是军事秘密不能说）。部队冬天不发棉鞋，只有单胶鞋；冬天的被子很薄，可还要给被子浇水——只有这样才能够将被子叠出整齐划一的、军队特色的内务豆腐块。所以，丈夫在当新兵的三年一直在挨冻。
 
-到了第四年，邓小平裁军，步兵团解散，丈夫被分到军区后勤处站岗看仓库，除了站岗，还额外负责后勤处的农场养猪和种菜、种瓜。因此，丈夫得知，每当分猪肉和菜的时候，军队会严格按照官级排名分——官越大发的越多，等级制度非常严格。丈夫一年养了五六头猪，但只分到了两斤猪肉。
 
-在当兵第七个年头的时候，军队评比志愿兵，如果评不上就需退伍回原籍农村去。当兵前母亲告诉丈夫，人一定要勤快，不能偷懒。因此，在仓库的这四年，丈夫每天早上都比所有人都起的早，天天义务打扫整个仓库大院，没有一天空缺过。但殊不知，在部队，凡事都要送礼，丈夫穷，送不起礼，眼看就要退伍回家时，一个有良知的老主任替丈夫说了一句话，说他勤快了四年就留下吧。这样，丈夫就成了一个“鲤鱼跳龙门”的拿国家工资的志愿兵了。
+第2推，闫博士是绝对正确的，混合使用多种药物对COVID-19的早期治疗本可以挽救数以千计人类的生命，并减少疫情传播的规模，但有钱有势的人却在疫苗中赚钱，并贴上爆料革命关于闫博士对HCQ等早期用药治疗建议的图片。
 
-后来，丈夫志愿兵又当了五年。军队规定，这五年中如果没有提干，丈夫就要转业退伍回家。提干和转志愿兵是一样的，不是评能力，而是凭关系和金钱——提干又比转志愿兵更难，因为仓库主任说了不算，是军区组织部说了算，任你再好的表现也没用。说到底，有关系的人，当一年兵就可以转干；没关系但有钱的人，钱送到位，同样可以转干——这都是领导一句话的事。然而丈夫一介草根，要啥没啥，在当兵的第13年时转业到了地方。此时，我们已经结婚，丈夫就按政策随了女方。虽然随女方，可我在甲地，他却被分配到一个偏远的小站，学检修、维修车间和开叉车。后来，我们两地分居了一年多才被调到了一起。实际上，丈夫在等待分配的六个月中，没拿过一分工资。可是，但凡有关系、有钱的人，却可以工作任意挑。丈夫当兵13年，最终只得到了7000元人民币的转业费——他们根本不管你一个普通兵的生存和死活。
 
-由此细想，在中共国，军队都这样，那其他行业的底层老百姓就更苦了。试想，这样一个被共产党领导的军队，他是人民的军队吗？他是穷苦老百姓的军队吗？不是，他是集权统治者的军队，他从不为底层人民着想，也从不为当炮灰的底层士兵着想。这个邪恶的共产党统治者，他连保卫他们统治集团的军人都如此对待，他能爱别人吗？什么军队爱人民，人民爱军队，全部都是骗人的！底层士兵和平民百姓在他们眼里都是狗屁！
 
-所以，中国人民都要站起来，一起来推翻这个邪恶的共产党的。
+> Dr. Limeng Yan [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) is absolutely correct. Early treatment of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) with a combination of drugs could have saved thousands of lives and decreased the pandemic's effects, but rich and powerful people were making too much money from vaccines.[#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/4CYAm3Z847](https://t.co/4CYAm3Z847)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 3, 2021](https://twitter.com/LawrenceSellin/status/1389105853362544640?ref_src=twsrc%5Etfw)
 
-（本文仅代表作者观点）
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
 
-编辑/校对/发稿：Irene木木
+第3推，PLA兽医公开通过实验室改造(连续传代)将感染人类的流感病毒变得更危险，长春兽医研究所及其相关的研究中心似乎是CCP生物战计划的核心要素，并贴上夏咸柱的照片及其相关论文的截图。
+
+
+
+> People's Liberation Army veterinarians openly making a human influenza virus more dangerous by laboratory manipulation (serial passage). The Military Veterinary Research Institute, Changchun and linked research centers appear to be core elements of the CCP's biowarfare program. [pic.twitter.com/uVt0cc5N4h](https://t.co/uVt0cc5N4h)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 3, 2021](https://twitter.com/LawrenceSellin/status/1389160702997315586?ref_src=twsrc%5Etfw)
+
+
+
+第4推，长春兽医研究所的夏咸柱和北京动物研究实验室的秦川，联手通过实验室连续传代将H1N1流感病毒变得更具毒性，与其相关的研究中心似乎是CCP生物战计划的核心要素，并贴上夏咸柱及其相关论文的截图，线索：部分地了解了COVID-19是如何制造出来的！并贴上夏咸柱和秦川的照片及其相关论文的截图。
+
+
+
+> Xianzhu Xia of the Military Veterinary Research Institute, Changchun & Chuan Qin of the Institute of Laboratory Animal Sciences, Beijing team up to make the 2009 pandemic H1N1 influenza virus more virulent by laboratory serial passage. Hint: partly how [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) was made[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/N9syMLaDrD](https://t.co/N9syMLaDrD)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 3, 2021](https://twitter.com/LawrenceSellin/status/1389196440619077635?ref_src=twsrc%5Etfw)
+
+
+
+5月4日塞林博士的5连推：
+
+第1推，转发“MosTrans”战友回应自己5月3日第4推的推文：夏、秦和金三人之间的紧密关系，并贴出了他们之间过去联合发表科学论文的搜索结果截图。赞扬了COVID-19侦探Devon Y战友运用病毒研究网络分析的有效性，CCP生物战计划的核心要素就是军事兽医，以及研究了什么并与谁有关。
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@No3Mos](https://twitter.com/No3Mos?ref_src=twsrc%5Etfw) shows the effectiveness of virus research network analysis. A core element of the Chinese Communist Party biowarfare program is the military veterinarians, what research they did and to whom they were linked. [https://t.co/A4fSWvsjFa](https://t.co/A4fSWvsjFa)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389425795723153409?ref_src=twsrc%5Etfw)
+
+
+
+第2推，转发“Devon Y”战友回应自己5月3日第3推的中文推：夏咸柱通过小鼠的传代实验，经过9代之后，用MDCK细胞扩繁病毒，得到了JN-P9-2-M1毒株，该毒株比原病毒毒性提高了至少1000倍，对小鼠致病能力得到初步提高，并贴上其实验室团队对此的研究分析报告截图。认可COVID-19侦探MosTrans战友对CCP军事兽医经常使用实验室操纵的连续传代使病毒变得更加危险的揭露，军事兽医是CCP生物战计划的关键部分。
+
+
+
+> In several Tweets [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@devonJ32130301](https://twitter.com/devonJ32130301?ref_src=twsrc%5Etfw) shows that Chinese Communist Party military veterinarians were routinely using the laboratory manipulation of serial passage to make viruses more dangerous. Military veterinarians are a key part of the CCP's biowarfare program. [https://t.co/N2HY2BL17j](https://t.co/N2HY2BL17j)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389428627809443841?ref_src=twsrc%5Etfw)
+
+
+
+第3推，塞林博士的中文推：致所有COVID-19侦探。请搜索：ZC45和ZXC21发生了什么？ZC45和ZXC21于2018年在第三军医大学进行了研究，然后消失了，他们去了哪些实验室？长春军事兽医研究所？并贴上闫博士有关CCP病毒骨架ZC45和ZXC21及其神经毒性观点的图片。
+
+
+
+> 致所有COVID-19侦探。 请搜索。 
+> ZC45和ZXC21发生了什么？ 
+> ZC45和ZXC21于2018年在第三军医大学进行了研究，然后消失了。 
+> 他们去了哪些其他实验室？ 长春军事兽医研究所？ [pic.twitter.com/d10SY6wIJt](https://t.co/d10SY6wIJt)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389442615960129538?ref_src=twsrc%5Etfw)
+
+
+
+第4推，转发“Devon Y”战友回应自己上一推的中午推：通过蝙蝠病毒的进一步研究，成功提取出了两株新的SARS病毒，新毒株SL-CoVsZC45在蝙蝠组织上感染乳鼠，来自PLA陆军军医大学，2019年，并贴上该研究报告网页截图。塞林博士回应中文推：致所有COVID-19侦探。资金：军事后勤研究项目（编号AWS16J020，AWS16J021，AWS16J023等）通常意味着与长春军事兽医研究所的何彪从蝙蝠身上收集了ZC45和ZXC21，跟着资金挖，并贴上自己4月22日关于何彪的推文链接。
+
+
+
+> 致所有COVID-19侦探。 资金：军事后勤研究项目（编号AWS161020，AWS161021，AWS16102）通常意味着与长春军事兽医研究所的链接。 (Biao He) 军事兽医研究所的何彪从蝙蝠身上收集了ZX45和ZXC21。 跟着钱。 [https://t.co/87Kuj5goOY](https://t.co/87Kuj5goOY) [https://t.co/b90GEp9zQ7](https://t.co/b90GEp9zQ7)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389461628744306690?ref_src=twsrc%5Etfw)
+
+
+
+第5推，是的，RaTG13是最接近COVID-19的亲戚，因为它也是实验室改造出来的，是一个通向COVID-19的中间过渡病毒，CCP及一些有影响力并亲共的西方科学家撰写了数百篇有关假病毒的文章，欺骗了其他科学家，并贴上闫博士有关RaTG13观点的爆料革命宣传图片。
+
+
+
+> Yes, RaTG13 is the closest relative to [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) because it is also a laboratory construct, an intermediate, drawing board virus on the way to COVID-19. The CCP & some influential CCP-friendly Western scientists fooled other scientists to write 100s of articles about a fake virus. [pic.twitter.com/3w9oM4JRwT](https://t.co/3w9oM4JRwT)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389488592926486528?ref_src=twsrc%5Etfw)
+
+
+
+CCP生物战计划的核心要素就是PLA军事兽医系统，长春兽医研究所及其相关的研究中心，北京动物研究实验室，第三军医大学（PLA陆军军医大学）进入COVID-19病毒溯源的聚光灯下。战友们继续跟着CCP-PLA-AMMS项目资金挖，挖到了长春兽医研究所的夏咸柱和北京动物研究实验室的秦川，联手通过实验室连续传代将H1N1流感病毒变得更具毒性的证据。塞林博士继续抛砖引玉、穿针引线，抛出2018年在第三军医大学（现PLA陆军军医大学）研究的，具神经毒性的ZC45和ZXC21消失后，去了哪些实验室的线索让战友们继续深挖。幽默地戏谑了RaTG13是最接近COVID-19的亲戚的说法，准确说是实验室内的亲戚关系，因为RaTG13是实验室改造出来以过渡到COVID-19的中间体，是CCP及其收买的西方科学家以假病毒RaTG13为道具，以大搞文章、浑水摸鱼、混淆视听，从而隐瞒真相、制造假象、欺骗世界！
+
+AMMS在2020年9月15日发布的专利报告中承认羟氯喹(HCQ)可以抑制针对SARS-CoV-2病毒基因组的感染和复制，应证了闫博士对HCQ在COVID病毒预防和早期治疗有效的科学论断，但科学界、媒体和疫苗公司等有钱有势的权贵和资本家却竭力否定HCQ，一门心思在疫苗中赚大钱，这可能已经导致多大10万美国人的死亡，创造了人类灾难中赚黑心钱、赚死人钱的世界纪录！
+
+校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 **[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-
 
 0

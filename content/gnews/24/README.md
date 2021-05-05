@@ -1,62 +1,90 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】CDC对冠状病毒测试的新指南
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1172567/)
+## 【墙内404】昨晚，复旦教授沈逸也被打脸了
+` 牆內心聲` [轉載自GNews](https://gnews.org/zh-hans/1175590/)
 
-作者：纽约香草山农场 四季
+***（以下内容由发布者个人引用自互联网，以供读者自行品读思考，其中观点不代表G-News平台意见。）***
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04221555/s2-2.jpg)
+**作者/发表时间：小晖/2021年5月2日**
 
+有时候真的忍不住要为我们的教授们叹口气了，专业没有了，脸也不要了，心也狠毒了，温文尔雅什么的全给扔没了，更不用说君子气象学人风度了。
 
+网友们自然是失望的，肯定要发泄出来，于是就在昨晚，复旦大学教授沈逸就刚好撞在枪口上，被网友们轮流打脸了。
 
-据人类自由网站5月4日的报道，美国疾病预防控制中心（CDC）发布了用于衡量“突破性”Covid病例（感染病毒的疫苗接种人员）的新指南，建议将PCR测试周期调低至28以下，以避免假阳性结果。
+就在昨晚，沈逸转发了“中国长安网”的微博，语气很尖酸，也很刻薄，全然没有大学教授应有的冲淡平和。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04221817/0-1-1.jpg)图源网络
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05065936/1-8.png)
 
-让我们回顾一下有关PCR 测试周期数据的权威界定和指南，以及媒体的揭示：
+不得不说，沈逸的这番话真的是在给大学讲师们丢脸了，原来人气讲师就是这样的，很多网友都明白了。
 
-2021年1月5日，美国食品和药物管理局与世界卫生组织和福奇博士一起，承认用于定义一个人是否是COVID“病例”的标准PCR测试存在明显的错误结果风险。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05070004/2-2.png)
 
-在2020年7月16日的播客“本周病毒学”中，福奇特别指出，当PCR COVID测试设置在“35个周期阈值或更高”时进行测试，所出现的表示被测者是感染者的阳性结果是不能被接受或相信的，因为该测试是无用和误导的。
+在这里，沈逸跟长安网犯了同一个错误，那就是原本以为能收获网友们的好感度，可是网友们并没有买帐，开始以各种方式轮流打他的脸了。
 
-但美国食品和药物管理局却说，为了确定病毒是否存在，要将测试运行到40个周期，而不是福奇提到得35次。如果这样，数以百万计的美国人被告知他们感染了病毒。而美国的COVID病例总数是基于该测试进行的，所以这是一个严重的假象。
+相比于沈逸没有理论没有事实只有情绪发泄，网友们打脸的方式就高明多了，有网友在摆出事实，他们找到了这样一条微博。
 
-有关FDA的指南显示，“仅供紧急使用”是指美国食品和药物管理局在传统的紧急使用授权类别下认证了PCR测试。“如果所有2019-nCoV标志物（N1、N2）的周期阈值增长曲线在40.00周期内越过阈值线（&lt;40.00Ct），则认为标本对2019-nCoV[病毒]呈阳性”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05070032/3-1.png)
 
-这样，很自然地，许多检测实验室在阅读该指南后会得出结论：“要想知道病人体内是否有病毒，我们应该将检测一直进行到40个周期。这就是官方的建议”。
+还找出了这样的一条微博，觉得沈逸不只自己是白眼狼，还想让其他人也成为白眼狼。
 
-有一篇2020年8月29日《纽约时报》的文章（2021年4月14日更新），标题是：“你的冠状病毒测试是阳性的。也许它不应该是”。文章中写到：“大多数测试将极限设定为40周期，少数在37个”。“设定极限”通常意味着，“我们要一直看到40个周期，看看病毒是否在那里”。而泰晤士报说，“找到病毒所需的这个扩增周期数，称为周期阈值，从来没有被包含在邮寄给医生和冠状病毒患者的测试结果中”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05070309/4.png)
 
-为了避免假阳性结果而将PCR测试周期调低是有道理的，但是，对于已进行了一年多的以40个或40个以上为周期进行的测试的假阳性结果又该怎么处理呢？是不是假阳性可能破坏对疫苗的支持？为了让人们打疫苗也是拼了！
+还有网友比较刁钻，他们找出了沈逸的这条微博，让更多人看到了他的口是心非，说一套做一套。
 
-参考阅读：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05070250/5.png)
 
-1. [CDC Suddenly Concerned About Covid ‘False Positive’ Tests, After Ignoring the Blatant ‘Casedemic’ From the Beginning (humansarefree.com)](https://humansarefree.com/2021/05/cdc-false-positive-tests-casedemic.html)
-2. [FDA Admits PCR Tests Give False Results, Prepares Ground For Biden To ‘Crush’ Casedemic (humansarefree.com)](https://humansarefree.com/2021/01/fda-admits-pcr-tests-give-false-results.html)
-3. [Bombshell: Fauci States COVID Test Has Fatal Flaw (humansarefree.com)](https://humansarefree.com/2020/11/bombshell-fauci-states-covid-test-has-fatal-flaw.html)
+连沈逸的老朋友胡锡进都跟他拉开了距离。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05070232/6.png)
 
+海南警方官微则以另一种方式与沈逸划清了界限，这样的官微表达才是既有高度也有气度。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05070221/7.png)
 
-编辑/校对/发稿：小鹿
+还有网友讲了这样一个故事，把沈逸的内心刻画得淋漓尽致活灵活现。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05070207/8.png)
 
-**更多资讯，更多关注**
+当然，有更多的普通网友在评论区里发表了自己的观点。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05070155/9.png)
 
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+这些普通网友虽然不是大学讲师，但他们的观点和胸襟比沈逸高太多了。
 
-[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05070145/10.png)
 
-[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
+看看这些网友的话，都是普通人心声的表达，他们都懂得物伤其类这个道理，沈逸读了那么多书，却一点也不懂得。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05070135/11-1.png)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04221555/s2-2.jpg)
+这些网友虽然没有沈逸读书多，但他们懂得什么叫礼仪廉耻。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05072427/12-3.png)
 
+普通网友们都在担心，这样的言论会不会祸害到自己，沈逸有想过吗？
 
-0
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05070427/13.png)
+
+就这样，昨晚在各路网友们的花式打脸下，沈逸的脸已经不成人样了，可就算这样，沈逸不只是在死鸭子嘴硬，更是在气急败坏了。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05070415/14.png)
+
+看来身为大学教授的沈逸眼中只有立场，没有客观事实的存在，更没有悲天悯人情怀的存在，这样的学者是不能让人信服的，因为他丢掉了知识分子最重要的一个特质，那就是仁。
+
+我始终认为，只有心存仁心，才会懂得他人的痛苦，才会有感同身受，才会站在别人的角度去思考问题。没有了仁，越是聪明的人，对他人造成的危害就越大，因为他心中只有自己的利益，不会有别人的死活。
+
+沈逸现在就是这样，把同情印度的网友说成是圣母婊，这样的话是一个大学教授应该说出来的吗？
+
+还是昨天那句话，越是心存仁义的人，就越是勇敢，因为他心中有底气，做一个忠厚质朴的人，就有那么难吗？说点人话，做点人事，不去幸灾乐祸，就有那么难吗？
+
+也许对于大多数普通人来说，这并不难，但是对于沈逸教授来说，就挺难了，因为他想成为人上人，所谓的风骨和良知，在他看来，是不能当饭吃的。
+
+可是他忘了，有些东西固然是不能当饭吃，但至少可以让我们活得安心，活得坦然，活得有底气。我想这些沈逸一辈子都不会明白。
+
+* * *
+
+***新闻线索/采集：Peter wong
+编辑/校对/发布：墙内心声***
+
++4

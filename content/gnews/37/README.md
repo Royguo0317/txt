@@ -1,65 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月4日美国政要和政评家推特精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1172232/)
+## 分类研究发现Covid-19很可能来自实验室
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1174136/)
 
-国务卿安东尼·布林肯： 在G7峰会与德国外长Heiko Maas举行了很棒的会议，讨论了中共国，俄罗斯，伊朗和其他问题。德国是面对共同挑战和促进我们共同议程的必不可少的伙伴。
+#### 翻译报道：Evalu
 
+#### 责编：白夜
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05062723/1-7.png)图片来源：www.eastbaytimes.com
 
-> Great meeting with [@HeikoMaas](https://twitter.com/HeikoMaas?ref_src=twsrc%5Etfw) at [#G7](https://twitter.com/hashtag/G7?src=hash&amp;ref_src=twsrc%5Etfw) to discuss China, Russia, Iran, and other issues. Germany is an indispensable partner for facing common challenges and promoting our shared agenda. [pic.twitter.com/v4yOCx78Dt](https://t.co/v4yOCx78Dt)
-> — Secretary Antony Blinken (@SecBlinken) [May 4, 2021](https://twitter.com/SecBlinken/status/1389614318497456135?ref_src=twsrc%5Etfw)
+据ABC News 7位于华盛顿的辛克莱广播集团（Washington SBG -Sinclair Broadcast Group)5月3日报道，在对Sara-Covid-2病毒起源进行为时一年的分类研究中，劳伦斯利弗莫尔国家实验室（   Lawrence Livermore National Laboratory）（LLNL)所属能量最优生物防御研究所的科学家们得出结论，认为造成目前全球大流行的冠状病毒可能来自于中共国的某个实验室。该研究所”Z部门”（属实验室情报单位）的研究人员于2020年5月27日首次发布归类为“顶级秘密”的报告。
 
+新上任的国家情报总监阿佛瑞尔·海茵斯（Avril Haines）于4月15日美国白宫情报委员会上说：“我们把在情报界内部获得的各种碎片化信息拼凑起来得到两种大家认可的理论，一个是实验室的事故，另一个是找出与人接触的受感染动物，我们只是还不能确定这个病毒具体在什么时间，什么地点和如何起始的。”海茵斯还说，中共领导人不愿意提供帮助，美国的分析不基于他们的假设。美国情报机构或医学以及科学领域都不能忽略同时存在的这两种理论。
 
+来自中共国和世界卫生组织提出的动物来源理论。
 
-参议员瑞克·斯科特： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 强迫维族人从事奴工，以在新疆采摘棉花。然而，NBA正在出售由一家 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 公司生产的鞋，该公司从那里采购棉花。 只要这种情况持续下去，NBA就会成为中共令人恶心的侵犯人权行为的同谋。 【转freebecon推文：NBA网店销售的鞋是由一家使用新疆棉花的中共国公司生产】
+而实验室来源理论，是基于武汉病毒研究所（武毒所）位于武汉海鲜市场附近这个事实，武汉是这次大流行的起始性中心城市，武毒所长期研究蝙蝠冠状病毒并处于领先地位。
 
+根据美国国务院1月15日发布的“事实清单”显示，武毒所人员与中共军方密切合作，实施了涉及RaTG13相关的实验，这个蝙蝠冠状病毒与SARS-CoV-2最接近，有96.2%的相似度。实验室还发表了“功能增强”研究方面的论文，其目的是要增加病毒在人际传播中的作用。
 
+专家告诉记者，这方面的科学活动具有“双用途”作用，它能支持新疫苗的开发和治疗，但也能用于转换成生物或化学武器项目，人们怀疑中共就在做这项工作，国务院清单中还列出了中共正在做“基因工程嵌合病毒”。美国国务院军队控制，证实与协调部门在本月发布的2021年报告中阐述了中共国科学研究的“双用途应用”增加了人们对于从1975年就实施的生物武器公约中的第一条款的疑虑，中共国签署了这个公约，这个条款禁止成员国搞生物武器。
 
-> Communist China forces Uyghurs into slave labor to pick cotton in Xinjiang – yet, the [@NBA](https://twitter.com/NBA?ref_src=twsrc%5Etfw) is selling shoes made by a Chinese company that sources its cotton from there.
-> 
-> As long as this continues, the NBA is complicit in Communist China's disgusting human rights abuses. [https://t.co/sfQ5SQ6Vbf](https://t.co/sfQ5SQ6Vbf)
-> — Rick Scott (@SenRickScott) [May 4, 2021](https://twitter.com/SenRickScott/status/1389643878173716492?ref_src=twsrc%5Etfw)
+这个功能增强的“双用途”研究也把支持实验室起源的人们分成二大阵营，两者都认为该病毒起源于武毒所实验室“泄露”，但一方认为是事故应该对医学研究方面加强立法，而另一方面则认为应该禁止生物武器研究。
 
+美国国务院明确声明中关于武毒所与中共军方的密切合作关系，这种关系可看作是危害美国国家安全，武毒所是与中共和中共军方密切合作的单位。武毒所在2018年发生了一起严重的潜在性实验室泄露事故，当时美国国务院介入，将他们在武毒所观察到的工作人员在安全操作过程中的松懈现象通过光缆传回华盛顿。
 
+世卫组织成员曾被中共政府拒绝进入关键地方，拒绝提供关键数据，并不得不与中共合作—指定间接的动物来源学说（即蝙蝠-动物-人）是“很可能的”，尽管这个组的成员们没有确定中间宿主，而该小组所发布的世卫组织与中共国的调查报告仍声称实验室来源理论是“极不可能的。”
 
-参议员玛莎·布莱克本： 亚当·西尔弗(Adam Silver)通过声称与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的交易是“净收益” 而为自己辩解。帮助支持 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 没有任何积极意义。 对于那些应该对玩弄游戏了解很多之人，你在被人耍弄，西尔弗。 【转布赖特巴特新闻网：NBA总裁亚当·西尔弗将NBA与中共国的交易称为“ 净收益”】
+美国国务卿安东尼·布林肯（Antony Blinken ）于3月份说政府“确实担扰（世卫组织）报告的方法学和过程，包括北京政府很明显地帮助完成这份报告的事实。”。
 
+而Z部门的报告仅仅涉及当时的情报信息，以提供给当时的川普政府高官的询问，下层官员还联系利佛莫尔科学家希望获得更多信息。
 
+大卫·瑞克斯托（David J. Rakestraw）博士是一位高级科学顾问，曾领衔LLNL的生物防御项目，并与应对Covid-19的实验室技术反应小组进行协调，密切参与了Z部门报告，他说：“我们于过去六年在LLNL集中采用计算机资源分析，以加快开发可以应对可能出现的生化危机。”
 
-> Adam Silver is justifying his deals with China by claiming they’re a ‘net plus’. There’s nothing positive about helping support the Chinese Communist Party. 
-> 
-> For someone who should know a lot about plays, you’re being played, Silver.[https://t.co/RlmldwuwHz](https://t.co/RlmldwuwHz)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 4, 2021](https://twitter.com/MarshaBlackburn/status/1389644034495373314?ref_src=twsrc%5Etfw)
+在2020年5月Z部门报告出炉前2周，瑞克斯托上传了与一位科学家同事的油管会议视频，他指出Covid-19是“必然发生的事件”，他暗示这是在中共做功能增强试验后的大暴发。他说：“我可能是工作最勤奋的了，能够这么快地作出反应，我们同时关注了自然发生的可能性，也关注了潜在的生物技术所带来的威胁，而我们还没有疫苗来预防。”
 
+大多数美国人甚至情报界都不知道Z部门的存在，它创立于1965年，当时是为研究前苏联核武器项目而成立，该部门后来扩大范围包含了生物和化学武器项目，2006年的工作招聘广告称该部门寻找有病毒学，微生物，免疫和流行病学以及其他领域的与生物武器研究相关的生物医学科学家。Z部门报告当时在美国各级政府机构内迟迟不公布，导致当时的川普内阁官员要求情报部门公布报告。
 
+2021年3月26日，疾控中心首席病毒学家，发布世卫组织与中共国的调查报告（即认为实验室起源“极不可能”可能）的负责人罗伯特·瑞徳弗尔德（Robert Redfiel）博士告诉CNN，他相信该病毒最可能的来源是武汉实验室的“泄露”。该言论激怒了一些自由派法律制定者，他们要求瑞徳弗尔德辞职。巴尔的摩市民主党代表比尔·弗戈森（Bill Ferguson）说瑞徳弗尔德的关于倾向于实验室起源的论点使得该州自2019年底疫情暴发以来反亚裔情绪的增加。他说：“瑞徳弗尔德的言论是不适当的，在这个不幸的时刻是不可接受的，这种言论在国家级的新闻中出现是不可以的。”
 
-众议员保罗·戈萨尔： 需要对这些与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 相关联的公司进行法医式审计，这些公司收取了(本应)供美国纳税人使用的PPP(薪资保护计划)资金。 【附大纪元文章链接：与中共有关联的公司可能已收到超过4亿美元的病毒救济贷款】
+身为国立过敏与感染研究院主任的福奇则说他认同动物起源论。福奇说这个病毒对人的传染性很强，这两种理论都有可能，但作为传染病学专家他会倾向于动物来源理论。
 
+#### 评论：
 
+关于Covid-19病毒起源问题，中共当局一直声称起源于动物，但一直没有找到令人信服的证据，而与此同时，武汉病毒研究所长期进行的冠状病毒研究，与最早发现感染病例的海鲜市场很近，而且该所长期进行的一系列病毒基因改造工程，功能增强试验以及与中共军方密切合作的事实，让人更加倾向于认为是实验室来源，而美国各部门如情报界，医学科学界的人士秉着科学态度，从这两个方面在研究和调查，相信不久真相将大白于天下。
 
-> There needs to be a forensic audit these [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) linked firms who received PPP money meant for American taxpayers. [https://t.co/UH3XdNx1z0](https://t.co/UH3XdNx1z0) via [@news\_ntd](https://twitter.com/news_ntd?ref_src=twsrc%5Etfw)
-> — Rep. Paul Gosar, DDS (@RepGosar) [May 4, 2021](https://twitter.com/RepGosar/status/1389649821376602112?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿蓬佩奥： 如果你提高了能源花费，让投资美国的企业们增加负担，减少了小微企业尝试风险的能力，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 就会支配我们。我们需要强力的领导来面对这些威胁，而不是自由派的心愿清单Quote Tweet
-
-
-
-> If you raise energy costs, burden companies that invest in America, and reduce the ability for small businesses to take risks, then China will dominate us. We need strong leadership to confront these threats, NOT a liberal wishlist.
-> — Mike Pompeo (@mikepompeo) [May 4, 2021](https://twitter.com/mikepompeo/status/1389573653768151043?ref_src=twsrc%5Etfw)
+原文链接：[EXCLUSIVE: Classified study found COVID-19 could have originated in Chinese lab](Classified%20study%20found%20COVID-19%20could%20have%20originated%20in%20Chinese%20lab)
 
 
 
-比尔·戈茨： 美国国防情报局局长披露，中国最高领导人习近平采用了“舵手”头衔，它在毛泽东的个人崇拜和大屠杀统治期间是最后一个用过的称号。【转推华盛顿时报，习近平采用了毛泽东的“舵手”称呼】
-
-
-
-> DIA director reveals Chinese supreme leader Xi Jinping has adopted the title “helmsman” last used by Mao during his personality cult and reign of mass murder [https://t.co/7ZQgDm4W6X](https://t.co/7ZQgDm4W6X)
-> — Bill Gertz (@BillGertz) [May 4, 2021](https://twitter.com/BillGertz/status/1389553880820862977?ref_src=twsrc%5Etfw)
-
-
-
-0
++2

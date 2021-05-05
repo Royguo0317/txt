@@ -1,67 +1,231 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】越走越偏的“盲盒”趋势还能否正常化？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1172364/)
+## 2021/05/05 英喜时事速递
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1175482/)
 
-作者：香草山写作组  鹰(文言)
+收集：Filon，Daniel，Cindy，感言，Alicia，飞翔的鹰
+*（世界协调时）部分信息收集于网络世界的各方，请自行甄别*
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/aron-visuals-BXOXnQ26B7o-unsplash.jpg)
+
+## 英喜农场Gnews：[郭文贵先生近期盖特精要汇总 – 2021年4月30日-5月1日](https://gnews.org/zh-hans/1170429/)
+
+![]()![](https://spark.adobe.com/page/jBgefCYymgR1K/images/9b609a75-86f8-4780-8c13-fcab6e4d42ef.jpg?asset_id=0101a3d5-692a-4b86-9fc4-090eafa028e4&amp;img_etag=%22b937b81bb243bf512ffbc3182fbcf493%22&amp;size=1024)
+
+
+> 评论：G系列应运而生并不断强大；全球灭共大势不可阻挡，中共内斗会伴随着国际国内压力，随时巨变。中国人要意识清醒，没有共产党后的好日子才刚刚开始。
+
+
+## 英喜农场Gnews：[中共国人口在2020年下降 系毛泽东时代以来的首次](https://gnews.org/zh-hans/1168199/)
+
+![]()![](https://spark.adobe.com/page/RPPTk25Lq3hKS/images/93a95a27-1b6e-4094-bab6-5d8b6b871f16.jpg?asset_id=c28c1f49-2b53-4f3a-86bd-cd5581fe6aaa&amp;img_etag=%22de0c96c730d11abe762bd3a70ccb8560%22&amp;size=1024)
+
+
+> 评论：从计划生育政策对民族的伤害来看，CCP的反人类罪就已经无法逃脱。杀害中华民族最多的犯罪集团就是中国共产党。共产主义在中国大地这百年来，除了祸害和压迫民族，没有任何所谓执政功绩，CCP是个百分百的祸害。
+
+
+## 澳喜农场Gnews：[干掉CCP是你唯一的选择 中共国楼房的阴影](https://gnews.org/zh-hans/1170362/)
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/20210504_t8.jpg)
+
+
+> 评论：当中国百姓所有的积蓄都压在那一套套房子上时，换来的只是CCP的一纸使用租约。在国际社会都从不守约的CCP，你又为何要用几代人的身家性命去测试它的守约信用度呢？中国共产党的一生都是靠欺骗来维护统治，清醒过来的人民必将彻底将其清扫出局。
+
+
+## Gnews：[钟南山对羟氯喹和板蓝根的表态能否坐实其反人类本性](https://gnews.org/zh-hans/1169648/)
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/封面-3.png)
+
+
+> 评论：随着病毒线索不断被挖出，单从时间线上即可确认CCP的邪恶犯罪企图。钟南山作为CCP掩盖新冠病毒的绝对帮凶，必将是日后国际社会审判CCP反人类罪被告席上不能缺席的一员。
+
+
+## 英喜农场Gnews：[2021/04/28 班农专访 (1): 中共声称变异病毒是印度挑战中国的代价，世界该如何应对](https://gnews.org/zh-hans/1170470/)
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/05/LOGO3_1.jpg)
+
+> 评论：郭文贵和闫博士一直明确强调，病毒你防得了一次攻击，你不能防得永远，中共病毒会不断的攻击你，只到你的国家崩溃为止。被双变异体快要击溃的印度病毒灾难再一次告诉我们，疫苗没用，病毒会一直变异绕过疫苗防疫系统。灭共才是永恒解决病毒唯一方法。
+
+
+## 观察者网: 菲外长用粗话指责中国，杜特尔特：中国是我们恩人，不能无礼
+
+![菲外长用粗话指责中国，杜特尔特：中国是我们恩人，不能无礼_菲律宾]()![菲外长用粗话指责中国，杜特尔特：中国是我们恩人，不能无礼_菲律宾](https://p6.itc.cn/q_70/images03/20210504/247c34e5cf3a41cfae23df41abd50aa8.jpeg)
+
+
+> 评论：杜特尔特言下之意是中共的外交疯狗现在很无礼，菲律宾虽然和中共在南海问题上有冲突，但是不能像中共战狗那么无礼。
+
+
+## 观察者网—布林肯声称：不许中国挑战国际秩序，但军事冲突严重违背中美两国利益
+
+![布林肯声称：不许中国挑战国际秩序，但军事冲突严重违背中美两国利益|中美关系|国务卿_网易新闻](https://nimg.ws.126.net/?url=http%3A%2F%2Fcms-bucket.ws.126.net%2F2021%2F0428%2F56b06bd6p00qs97yj0237c001ho00r6c.png&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
+
+
+> 评论：美国国务卿布林肯的潜台词是中共是国际秩序的破坏者，如果中共继续一意孤行下去的话美国会考虑使用最不想用的军事手段来解决问题。
+
+
+## 环球军事时报—印媒：印度防长正考虑在德里部署军队，应对新冠危机
+
+![印媒：印度防长正考虑在德里部署军队，应对新冠危机|国防部长|高等法院_网易订阅](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0504%2F0c622e7bj00qsjhiv000qc000hs00a0m.jpg&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
+
+
+> 评论：印度在这种时刻更应该清醒地认识到幕后黑手是中共，只有找中共要解药才是解决疫情的正确打开方式。
+
+
+## 观察者网：“为何非洲支持中国反对西方？”BBC被网友教育
+
+![为何非洲支持中国反对西方？”BBC被网友教育|西方国家|美国_网易新闻](https://nimg.ws.126.net/?url=http%3A%2F%2Fcms-bucket.ws.126.net%2F2021%2F0504%2F40dcc407p00qsjzjc00dac000hx00d7c.png&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
+
+
+> 评论：非洲的支持是中共大撒币的结果，而挑起种族矛盾是中共在西方搞阶级斗争的另一种方式，这是中共灭白计划的一部分，西方世界的白人只有认清中共是要对他们搞种族灭绝而不是什么政治正确的游戏，这才能让他们下定决心更坚定的去灭共。
+
+
+## 观察者网：马丁·沃尔夫：中国认为美国面临不可避免的衰退？
+
+![马丁·沃尔夫：中国认为美国面临不可避免的衰退？_对公司]()![马丁·沃尔夫：中国认为美国面临不可避免的衰退？_对公司](https://p8.itc.cn/q_70/images03/20210504/e6cd3d5333544cdc9f5727ec2213ce35.jpeg)
+
+
+> 评论：美国的衰退说是因为美国人习惯于自黑，而中共的所谓世界第二大经济体是因为把14亿百姓作为奴隶大搞血汗工厂，以及超发货币和注入大量的经济泡沫属于虚胖，而美国是在实体经济和泡沫经济上比较平衡没什么太大的短板，虽然目前世界的经济模式有重大隐患，一但经济泡沫被戳穿的时候美国可以凭借自身扎实的基础重新爬起来，而中共的假擀面杖经济一但崩塌那就彻底跨了。
+
+
+## 努力成为堪当民族复兴重任的时代新人——庆祝五四青年节
+
+![央视快评】努力成为堪当民族复兴重任的时代新人——庆祝五四青年节]()![央视快评】努力成为堪当民族复兴重任的时代新人——庆祝五四青年节](https://imgcdn.yicai.com/uppics/images/hylanda/20210504/84/2013740420611318872.jpg)
+
+
+> 评论：每逢五四，七一，八一，十一这些日子，各大网站头条少不了洗脑新闻。忽悠，接着忽悠，看土共还能蹦哒几时！新中国联邦一定会灭了这些妖魔鬼怪！
+
+
+## 外媒：中国取代美国成为全球最大投资目的地
+
+![外媒：中国取代美国成为全球最大投资目的地_经合组织]()![外媒：中国取代美国成为全球最大投资目的地_经合组织](https://p7.itc.cn/q_70/images03/20210504/f45eff7bc85740b0b5c0ca23b4126ea3.jpeg)
+
+
+> 评论：CCP对世界灭绝的疯狂代价即将到来，中共国现在的经济也即将崩塌，却还用媒体忽悠外企，欺骗国内百姓
+
+
+## 又想毁了与中企的协议？作为美盟友，澳大利亚可当杀鸡儆猴样板
+
+![又想毁了与中企的协议？作为美盟友，澳大利亚可当杀鸡儆猴样板|美国|达尔文|莫里森|维多利亚州_网易订阅](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0504%2Ff865571cj00qskqr0002bc000rs00gom.jpg&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
+
+
+> 评论：CCP的口炮功夫天下无敌，整天指责其也国家毁了自己的约，而CCP毁了关于香港的中英联合声明怎么就不提了，就让CCP继续作，很快就会作死自己的
+
+
+## 七国集团外长伦敦碰头，美国国务卿布林肯：不会遏制中国崛起
+
+![七国集团外长伦敦碰头，美国国务卿布林肯：不会遏制中国崛起_会议]()![七国集团外长伦敦碰头，美国国务卿布林肯：不会遏制中国崛起_会议](https://p6.itc.cn/q_70/images03/20210504/8e047b31530c494d968af75438c28279.png)
+
+
+> 评论：CCP宣传的《厉害了我的国》给墙内百姓灌毒汤，去年又给全世界放病毒威胁，目的就是想要自己当世界老大，取代美国及美元地位，文贵先生曾经说过，别看政客说了什么，看他们做了什么才重要
+
+
+## 英国疫情期间针对亚裔仇恨犯罪激增 BBC向特朗普甩锅
+
+![英国疫情期间针对亚裔仇恨犯罪激增，BBC向特朗普甩锅_种族歧视]()![英国疫情期间针对亚裔仇恨犯罪激增，BBC向特朗普甩锅_种族歧视](https://p9.itc.cn/q_70/images03/20210504/805e19f752a645de96bf5911c143c256.png)
+
+
+> 评论：CCP VIRUS现在对全世界的影响，不管是经济、安全、医疗、生存环境等都不是谁轻易就能妥协的，威胁英国，骂川普都是小事，CCP还想甩病毒锅，让CCP先把病毒的解药拿出来
+
+
+## 惨烈的疫情与惨败的选举，“莫迪时代”落幕或自此开始
+
+![惨烈的疫情与惨败的选举，“莫迪时代”落幕或自此开始_手机新浪网]()![惨烈的疫情与惨败的选举，“莫迪时代”落幕或自此开始_手机新浪网](https://k.sinaimg.cn/n/news/crawl/116/w550h366/20210504/0bde-kppteas6771000.jpg/w700h350z1l10t104ff.jpg)
+
+
+> 评论：CCP最近在媒体头条除了宣传自己不要脸成立100年，然后就是骂美国，骂印度，骂澳洲，骂英国，骂日本，骂台湾，骂菲律宾等，就是不敢骂俄罗斯，一点新意都没有，泼妇骂街不知羞耻
+
+
+## 美传染病专家在印度感染新冠去世 曾注射2针辉瑞疫苗
+
+![注射两针疫苗后去印度照顾亲人，美国传染病专家感染新冠病毒去世|卫生部_网易订阅](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0505%2Fd2440800j00qsmd1b0028c000kp00ksg.jpg&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
+
+
+> 评论：爆料革命一直在警醒世人，没有疫苗！唉，却还有很多人被市面上的媒体欺骗
+
+
+## BBC：[中美关系：布林肯谴责中国对外好斗、对内压制 警告军事冲突违背美中利益](https://www.bbc.com/zhongwen/simp/world-56973401)
+
+![Antony Blinken in Washington on 27 April 2021]()![Antony Blinken in Washington on 27 April 2021](https://ichef.bbci.co.uk/news/640/cpsprodpb/D87C/production/_118302455_blinkenreuterslr.jpg)
+
+
+> 评论：中共的战狼外交在国外越来越咄咄逼人，已引起西方国家对其的厌恶，对国内则施加更为压制性的政策，来打压老百姓。
+
+
+## 德国之声：[香港电台下架YouTube旧片 网友呼吁下载备份“保留历史”](https://www.dw.com/zh/%E9%A6%99%E6%B8%AF%E7%94%B5%E5%8F%B0%E4%B8%8B%E6%9E%B6youtube%E6%97%A7%E7%89%87-%E7%BD%91%E5%8F%8B%E5%91%BC%E5%90%81%E4%B8%8B%E8%BD%BD%E5%A4%87%E4%BB%BD%E4%BF%9D%E7%95%99%E5%8E%86%E5%8F%B2/a-57422455)
+
+![China I Radio Television Hong Kong (RTHK)]( "China I Radio Television Hong Kong (RTHK)")![China I Radio Television Hong Kong (RTHK)](https://static.dw.com/image/57368709_303.jpg "China I Radio Television Hong Kong (RTHK)")
+
+
+> 评论：香港媒体被中共管制和打压到没有任何独立性，现在连旧片都不放过。
+
+
+## 法广：[中国拼命寻找《有用的白痴》证实了软实力极低](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210503-%E4%B8%AD%E5%9B%BD%E6%8B%BC%E5%91%BD%E5%AF%BB%E6%89%BE-%E6%9C%89%E7%94%A8%E7%9A%84%E7%99%BD%E7%97%B4-%E8%AF%81%E5%AE%9E%E4%BA%86%E8%BD%AF%E5%AE%9E%E5%8A%9B%E6%9E%81%E4%BD%8E)
+
+![作家洛伊斯·惠勒·斯諾丈夫埃德加·斯諾](https://s.rfi.fr/media/display/3a4f9c16-1257-11ea-a991-005056a99247/w:980/p:16x9/liu_shaoqi_mao_zedong_and_edgar_snow.webp)
+
+
+> 评论：由于中共被定义为种族大屠杀，现在在世界上的形象越来越糟糕，其战狼外交也让世界上大多数国家反感，中共正急迫寻找一个能够给他说话的白痴。
+
+
+## 法广：[因报道疫情而身陷囹圄的公民记者张展荣获比利时自由大学言论自由奖](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210504-%E5%9B%A0%E6%8A%A5%E9%81%93%E7%96%AB%E6%83%85%E8%80%8C%E8%BA%AB%E9%99%B7%E5%9B%B9%E5%9C%84%E7%9A%84%E5%85%AC%E6%B0%91%E8%AE%B0%E8%80%85%E5%BC%A0%E5%B1%95%E8%8E%B7%E8%A8%80%E8%AE%BA%E8%87%AA%E7%94%B1%E8%8D%A3%E8%AA%89%E5%A5%96)
+
+![因报道武汉疫情而被判重刑的公民记者张展](https://s.rfi.fr/media/display/bb37e488-4a95-11eb-80d4-005056a964fe/w:980/p:16x9/56074752_404.webp)
+
+
+> 评论：因报道有关武汉疫情的真实情况而被中共当局判处四年监禁的中国公民记者张展则获得了比利时自由大学颁布的言论自由荣誉奖。张展的故事就是不惜一切寻求真理、讲出真相的故事。数十载以来，中国人民一直遭受中共人为造成的灾难，如大饥荒、六四屠杀、新疆集中营。即便是自然灾难，中共掩盖事实导致不必要的恐慌、无谓的伤亡、无处诉说的悲伤，令苦难愈发惨重。张展目睹了武汉市民被迫默默承受苦痛，甚至无法哀悼逝世的亲人。人们渴望真相、正义，否则伤痛永难愈合。
+
+
+## 新唐人推文
 
 
 
-环球网5月4日转载中通快递消息，针对3日曝出的成都金牛区一中通快递站发现160余只宠物盲盒事件，中通快递集团给出对涉事网点停业整顿、相关安全负责人停职检查并罚款、全国范围内中通网点全面培训三项整改措施。
+> 【禁聞】疫情追责 美國密州向中共多部委發傳票 
+> 
+> 起源於中國武漢的 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw)（Covid-19，新冠病毒），目前已造成美國3千多萬人感染，50多萬人死亡。美國經濟也沒有從疫情造成的衰退中復甦。近期，美國的密西西比州和密蘇里州積極推進對中共的訴訟案。[https://t.co/uXJuHRlXou](https://t.co/uXJuHRlXou)
+> — 新唐人電視台 (@NTDChinese) [May 4, 2021](https://twitter.com/NTDChinese/status/1389676964663939082?ref_src=twsrc%5Etfw)
 
-5月3日接群众举报，公安、城管和动物检疫部门在成都市金牛区一快递站发现宠物盲盒达160余件。一两个月大的小猫小狗，被装入纸箱或套上麻袋，将被送至全国各地。被解救的161只（125只小狗、36只小猫，令有4只去世）猫狗被转至成都市新都区石板滩宠物城。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04214340/Screen-Shot-2021-05-04-at-9.43.18-PM.png)
-自盲盒现象在国内发酵后，从商场盲盒到购物券盲盒，再到五一机票、酒店盲盒，盲盒已经逐渐涵盖衣食住行的方方面面。虽然盲盒产品销售量创新高，动辄日销千万的机票盲盒。300亿的市场规模都揭示着盲盒的热度。但顾客购买盲盒后的落差，以及盲盒的过度“随机性”，都使得国内的盲盒经济呈现鱼龙混杂、套路满满的怪像。如深受诟病的机票盲盒，目的地随机、机票随机、返程机票需自费，再有国内盗版风、山寨风影响下的玩具、手办质量残次不齐。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04214403/Screen-Shot-2021-05-04-at-9.43.11-PM.png)
-盲盒这一潮流玩具的玩儿法，到了国内却俨然变了味道。一方面顾客食亲财黑，对盲盒趋之若鹜；另一方面则是商家降本逐利下，盲盒产品的质量越发堪忧。顾客的口味和上瘾越加深重，再加上假擀面杖子经济需要“苟活”亟待资本流通的引导下，盲盒经济非但没能走上正规化、合理化的道路，反而在金钱至上、以次充好、套路侵害下越走越远。
 
-人民侥幸又自私的羊群心理，在中共洗脑下越加膨胀。以侥幸心理牟利的盲盒经济，也终将成为又一种的“股票收割”形态。
 
-新闻来源：
 
-中通快递通报“宠物盲盒”：涉事网点暂停揽收业务，四川省管理中心寄递安全负责人停职
+> 评论：起源於中共國武漢的[中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click)（Covid-19，新冠病毒），目前已造成美國3千多萬人感染，50多萬人死亡。美國經濟也沒有從疫情造成的衰退中復甦。一旦世界联合起来追责，必是中共大厦倾倒时！
 
-[https://china.huanqiu.com/article/42zP9piig6F](https://china.huanqiu.com/article/42zP9piig6F)
 
-成都一快递站现百余“宠物盲盒”
+## 火来2号战友推文
 
-[https://finance.sina.com.cn/tech/2021-05-05/doc-ikmyaawc3435346.shtml](https://finance.sina.com.cn/tech/2021-05-05/doc-ikmyaawc3435346.shtml)
 
-日销千万的「机票盲盒」又来了，其中的套路到底有多坑？
 
-[https://www.chinaz.com/2021/0430/1244528.shtml](https://www.chinaz.com/2021/0430/1244528.shtml)
+> 塞林博士说，CCP采用二战时日本的生化武器策略，就是将生化武器研究隐藏在兽医和防疫的幌子之下。还提到长春的军事医学科学院兽医研究所距离731部队旧址相差100多公里。卧槽！ [https://t.co/T0ntn87YyK](https://t.co/T0ntn87YyK)
+> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [May 4, 2021](https://twitter.com/jsdfposjpqyuee1/status/1389649075457257472?ref_src=twsrc%5Etfw)
 
-就算五一机票盲盒扎堆，也开不出“快乐星球”？
 
-[https://finance.sina.com.cn/tech/2021-05-03/doc-ikmxzfmm0405489.shtml](https://finance.sina.com.cn/tech/2021-05-03/doc-ikmxzfmm0405489.shtml)
 
-当你购买盲盒时，你在购买什么？
 
-[http://www.xinhuanet.com/local/2021-03/02/c\_1127155498.htm](http://www.xinhuanet.com/local/2021-03/02/c_1127155498.htm)
+> 评论：Zion, a Deplorable老百姓 战友留言：这也间接印证了中共在抗日战争时期与侵华日军的长期友好合作. 中共才是真正的中华民族的千古第一罪人!
 
-2020盲盒经济洞察报告：市场规模突破300亿，泡泡玛特暂时领跑
 
-[https://www.sohu.com/a/438876768\_99975453](https://www.sohu.com/a/438876768_99975453)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-编辑/校对/发稿：正义的小新
+## 人民日报：衬衫穿18年，“抠门”教授为贫困生捐70万
 
-**更多资讯，更多关注**
+![八旬抠门教授为贫困生捐款近70万：回报式奉献，收获价值与快乐！|助学|公益_网易订阅](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F6Kd4rN79KM3IHYZHj7rNqlzEQxxAWU6LMnyQ2zmedgy1y1607672959568compressflag.jpeg&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+> 评论：任何民间个人对扶贫的贡献都不值得宣传，一个人再有贡献其可帮扶的对象也是有限的。媒体的作用是监督政府和社会，而不是帮助政权掩盖。对社会贫困阶层的改变本就是政府收税后需要投入的地方，过度宣传民间光芒会让众人遗忘掉这本该是政府的本职内的工作。
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+## 中国日报网：95后00后成红色旅游出游主力
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![五一”假期“95后”“00后”成红色旅游出游主力_游客]()![五一”假期“95后”“00后”成红色旅游出游主力_游客](https://p1.itc.cn/q_70/images03/20210504/4c229569adca4b4bb70d77d0f99b2a22.jpeg)
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
 
+> 评论：当其它思想都不被允许追逐讨论的时候，年轻人也就只能被动的被宣传机构引导着洗脑了，相信宣传机构的被洗脑着、愚弄着；不相信CCP的被压抑着，忙着娱乐着。共匪愚民无时无刻不在进行。
+
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
