@@ -1,57 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】爱尔兰出现多起CCP病毒感染胎盘导致死胎和流产的病例
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1171860/)
+## 川普总统启用自己的社交平台
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1171975/)
 
-作者：纽约香草山医疗部     Wenfei
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/T-2.jpg)[www.DonaldJTrump.com/desk](http://www.donaldjtrump.com/desk)封面截图
+《福克斯新闻》独家报道，“川普总统推出了新的社交平台，川普总统在这个空间能够发表评论、图片和视频”。
 
+文章说，川普总统被推特（Twitter）、脸书（Facebook）等禁言数月后，5月4日推出了一个社交平台，这将能使川普总统与追随者直接交流。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+平台，“来自唐纳德J.川普“，出现在[www.DonaldJTrump.com/desk](http://www.DonaldJTrump.com/desk)。
 
+这个空间将能让川普总统发表评论、图片和视频。
 
+这项技术似乎是由竞选核心（Campaign Nucleus）推动的，这个核心是由他的前竞选经理布拉德·帕斯卡尔（Brad Parscale）创建的、“为有效管理政治竞选和组织而构建的数字生态系统”。
 
-近期发表在Pathogens的论文报告了CCP病毒同时感染孕妇和胎盘的严重病例。爱尔兰的妇产科医生Keelin O’Donoghue的研究报告警示，2021年初的6例死胎，都与孕妇在流产前几周被CCP病毒感染有关，其中5个病例感染了B.1.1.7的英国突变。
+该空间能让川普总统发帖，并允许追随者将前总统的帖子分享到推特（Twitter）和脸书（Facebook）上，然而，新平台没有允许用户“回复”或参与川普总统帖子的功能。
 
-![]()![](https://imgcache.dealmoon.com/fsvr.dealmoon.com/dealmoon/acd/b87/666/4d9/0be/2bf/e7a/8a0/b16/15a/f1.jpg_1280_1280_3_4966.jpg)图源网络
+“这只是单向的交流。”一位熟悉这个平台的消息人士告诉《福克斯新闻》，“这个系统可以让川普总统与他的追随者交流。”
 
-Keelin医生说，这六个病人的胎盘都病损严重且不可置信地坏死，其胎儿也快速死亡并流产。除此以外，今年已有三例孕妇在确诊CCP病毒后早产，也伴随严重的胎盘坏死。病理检查显示，这些胎盘都极具不正常的病理表征，白色带状纤维和结节充斥了胎盘的绝大部分，这种病征在以往的临床日常检查中是非常罕见的。
+川普总统的新平台5月4日周二浮出水面，此前顾问曾对《福克斯新闻》表示，这位前总统在国会大厦骚乱，被推特、脸书、油管（YouTube）、Instagram、Snapchat等禁言后，计划“向前迈进”，创建自己的社交媒体平台。
 
-进一步检测显示，胎盘组织充斥着CCP病毒。爱尔兰医生提醒，临床医师应重视死胎现象。2020年的第一和第二波疫情中，并没有死胎的病例报告，但是自从B.1.1.7突变在2020年12月在爱尔兰开始流行后，该医院的11例感染CCP病毒的胎盘中，6例胎盘组织严重坏死。换言之，每100到200个孕妇就会有一例出现死胎。从目前的数据来看，感染新突变的CCP病毒并不是死胎的特异因素，但是突变CCP病毒明显会导致病情加重。去年的研究显示，胎盘可以屏蔽CCP病毒，保护胎儿不受感染。但是新的CCP病毒突变导致孕妇血液内的CCP病毒载量明显升高，所以CCP病毒也更容易突破胎盘屏障。
+目前还不清楚这个平台是否是这些计划的一部分，或者是否有一个单独的项目正在进行中。
 
-目前，英国和美国还没有死胎病例增加的报导，但是被CCP病毒感染的孕妇更易早产。Keelin医生说，这些胎盘感染的孕妇只表现出轻度至中度的CCP病毒感染症状，所以她们都没有在感染早期被收治入院。而且胎儿的发育没有表现出异常，胎盘的损伤则是出现在孕妇确诊CCP病毒感染后的2-3周。这一现象提醒临床医生要格外小心，需重新评估孕检结果。
+就在该平台推出前一天，（人们）还在观望脸书监督委员会，是否会就无限期停止川普总统在脸书和Instagram上的（业务）作出决定。
 
-2020年5月，Keelin医生收治了第一例胎盘感染的病人。胎心监控显示异常后，胎儿通过剖腹产存活。但是病理检查显示，胎盘被CCP病毒严重感染，尤其是作为胎盘屏障的滋养层组织，表现出细胞损伤和炎症细胞侵润，大量纤维增生，这会导致胎儿供血不足和缺氧。另外，死亡的胎儿体内也检测出CCP病毒感染。另有临床报导显示，胎儿可能在母亲感染CCP病毒后的几天内就也通过母婴垂直感染。
+今年1月，该委员会接受了脸书提交的一个审查禁令的案件，也就是，对当时的政治领导人的用户进行“暂时停用”的政策建议。
 
-与临床上较常见的免疫性胎盘炎症不同（母体免疫异常导致的流产），母体的免疫细胞虽然会攻击胎盘，但是炎症细胞局限于胎盘的绒毛间隙。CCP病毒感染导致的胎盘感染则会发生胎盘滋养层细胞坏死的状况。
+1月6日美国国会发生骚乱后，脸书采取行动“无限期”封杀川普总统，首席执行官扎克伯格（Mark Zuckerberg）表示，“他们认为，允许总统在此期间继续使用我们服务的风险实在太大。”
 
-CCP病毒高度变异后还会出现什么新的病理特征，我们都不得而知。去年临床医生积累的经验，会不会在今年的各种新突变下全部要重新改变？还有多少新突变，新病症？我们不能生活在恐惧中，历史需要找出病毒的终极真相！
+不管脸书5月5日周三的决定如何，一位推特发言人对《福克斯新闻》表示，川普总统将被推特永久禁止。
 
-参考阅读：
+脸书发言人拒绝就川普总统的新平台发表评论，推特发言人也没有立即回应《福克斯新闻》的置评请求。
 
-[Doctors Investigate Several Stillbirths Among Moms with COVID-19](https://www.the-scientist.com/news-opinion/doctors-investigate-several-stillbirths-among-moms-with-covid-19-68703)
+（原文完）
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+这些无良知的大媒体以为世界离开他们就不转了，错！
 
-编辑/校对/发稿：Irene木木
+熟知商道的川普总统对市场规则清楚得狠，那就是“需求决定业务”，8000多万粉丝，加上保守估计10:3配比的观望者群体，仅在美国就有1亿多的用户量，哪个平台不愿意争取这样的用户？
 
-**更多资讯，更多关注**
+期待川普总统早日东山再起，像文贵说的那样，作好储备，蓄势待发，2022拿下众议院，联合新中国联邦灭共，铲除恶魔！
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+原文链接：
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
+[https://www.foxnews.com/politics/trump-launches-new-communications-platform-months-after-twitter-facebook-ban](https://www.foxnews.com/politics/trump-launches-new-communications-platform-months-after-twitter-facebook-ban)
 
 0

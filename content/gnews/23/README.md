@@ -1,38 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧盟反华令 “停止对国有公司的收购”
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1171605/)
+## 【热点播报】60多个美国体育场所引入疫苗护照
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1171710/)
 
-```
-新闻来源：意大利共和国报（La repubblica）
-发表日期：2021年5月3日 
-翻译整理/简评：斩草要除根
-```
+作者：纽约香草山农场写作组  四季
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04154422/s4.jpeg)图片来源：Shutterstock
 
-欧盟委员会向各国政府提出一项法规，以保护企业免受北京掠夺者的侵害，是为捍卫欧盟公司而设立的欧洲盾牌。是抵制中共国在欧洲大陆收购的合法隔离墙。实际上，5月04日，布鲁塞尔委员会将批准一项提案，该提案将有效地开启与北京的新一轮经济关系。
+零对冲5月4日报道，美国60多个体育场馆和其他场所正在为夏天部署疫苗护照（或通行证或证书），以使经济“恢复正常”。
 
-这个想法是要引入一种反对中（共）国在欧洲扩张主义的黄金法则，竞争事务专员丹麦玛格丽特·韦斯特格（*Margrethe Vestager*）正在研究的法规将不会是简单的禁令。布鲁塞尔的基本思想是确保公平的竞争环境。因为从北京政府或主权财富基金那里获得巨额资金的公司肯定不会在公平竞争中走动。从本质上讲，这正在为欧盟公司辩护而建立监管渠道，而欧盟公司常常受到北京政府资助的中（共）国人的侵略。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04162840/0-2021-05-03_06-38-06-1.png)图片来源：[ZeroHedge](https://www.zerohedge.com/covid-19/vaccine-passports-coming-sports-venues)
 
-该规则将涉及所有“第三国”，而不仅是中共国，但是目标包含了一个明确的政治维度：它关注龙的扩张主义。正是从这样的观察中得到了提示：与东方巨人的商业关系既具有战略意义又具有竞争性。简而言之，在短短几个月内，中西关系领域发生了革命性变化。在美国总统的一百天里，与北京的关系遭受了真正的宣泄。试想一下美国国务卿托尼·布林肯（*Tony Blinken*）昨天所说的话：“我们不能让自己面对北京没有奢望。”
+美国职业棒球大联盟的旧金山巨人队和纽约大都会队是第一批要求球迷出示疫苗接种证明或通过一个名为Clear的应用程序验证其COVID-19近期阴性测试的一些球队中的一员。这些球队将接受医疗文件作为证明，但他们鼓励所有体育迷下载Clear应用程序以获得便利。
 
-昨天在欧洲，除了韦斯特格（*Vestager*）制定的新“法规”之外，对习近平领导的中共国又采取了两个步骤，这绝非偶然。德国外交部草拟了一份严格的反对中（共）国霸权主义的机密文件。他认为北京的目的是开辟一条新的丝绸之路，以扩大“全球政治影响力，根据自己的想法制定全球标准和规范，并特别是通过促进私有公司的发展来推进其产业政策”。
+Clear已通过将所有旅行文件固定在一个应用程序中，简化了旅客经由机场旅行的过程。现在，Clear正在机场以外的60多个美国体育场馆和其他场所应用。截至4月，Clear约有14.2万次下载。
 
-简而言之，与北京的“冷战”现在已经开始。我们不是用枪击而是用规则来战斗。如果中国到目前为止已经部署了工具，那么现在欧盟也在与华盛顿达成协议。中国共产党领导人在意大利受到欢迎（2019年春季）签署「一带一路」倡议（新丝绸之路）备忘录的时代似乎已经很遥远。
+随着疫苗护照的使用从机场向体育场馆滚滚而来，人们对该应用程序的潜在范围和影响的担忧正在增加。隐私组织电子前沿基金会担心Clear会持有用户的敏感医疗数据，并将其转化为消费者追踪器。但Clear表示，用户可以控制他们的健康记录。
 
-#### 简评：
+目前，美国的几个州已经表现出反对疫苗护照的决心。其中包括目前的德克萨斯州、田纳西州、佛罗里达州、密西西比州。我们猜想还会有更多的州跟进。
 
-** 这应该是前段时间美国总统拜上任后，首访欧洲为国际战略定调后释放出来的官宣了，看来欧洲已经选择和美国在对华问题上已经形成了统一战线。在面对中共咄咄逼人的架势之下，欧美能顾全大局的携手共同应对挑战，无疑是对习近平领导的权力扩张最有力的打击措施。而这一措施，仅只是在经济领域的抵御措施，相信其它方面的提案也会相继而出，我们拭目以待。**
-（本文仅代表译者个人观点，跟GNEWS平台无关。）
+中共病毒的灾难历经一年多的时间都没有被追究病毒的真相，反而政府却企图通过集权主义控制人们最基本的日常生活。难道以后所有的公共场所都将需要护照了吗？
 
-**新闻原文链接：**
-🔗[Scudo Ue anti Cina: “Stop alle scalate delle aziende di Stato”](https://rep.repubblica.it/pwa/generale/2021/05/03/news/scudo_ue_anti_cina_stop_alle_scalate_delle_aziende_di_stato_-299285514/?ref=RHTP-VS-I270681069-P15-S2-F)
+原文链接：
 
-* * *
+[Vaccine Passports Are Coming To Sports Venues | ZeroHedge](https://www.zerohedge.com/covid-19/vaccine-passports-coming-sports-venues)
 
-***编辑整理/校对: **Ting Guo*
 
-+1
+
+编辑/校对/发稿：小鹿
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+
+
+
+0

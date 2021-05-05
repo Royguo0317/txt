@@ -1,43 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印度的疫情蔓延到亚洲 泰国和老挝感染病例激增
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1171806/)
+## 【热点播报】爱尔兰出现多起CCP病毒感染胎盘导致死胎和流产的病例
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1171860/)
 
-#### 作者：坐看云起时
+作者：纽约香草山医疗部     Wenfei
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04171124/042721indiahelp_960x540.jpg)
 
-《零对冲》5月4日报道，印度恐怖的疫情已经蔓延过边境，使中共病毒感染病例在整个地区上升，从邻国不丹和尼泊尔非相邻的老挝和泰国，感染病例都在急剧攀升。
 
-据彭博社报道，该地区的加速传播的主要原因是更具传染性的变异株，如首次在印度发现的B-1617变异株，现在已在其边界之外被发现。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-世卫组织发布了一份它正在密切关注的10个变异菌株的名单。随着病毒的不断演变，每天都会发现新的毒株，但只有少数毒株进入世卫组织的官方观察名单，成为 “关注变种 “或更严重的 “关注变种”，后者通常被定义为传染性更强、更致命、对现有疫苗和治疗方法更有抵抗力的变异毒株。
 
-与印度一样，激增的病例数使老挝和其他地方的卫生保健系统不堪重负。老挝卫生部长上周寻求医疗设备和用品，因为病例在一个月内激增了200倍。尼泊尔的医院迅速被填满，而且与印度一样，它的氧气供应已经用完。泰国的卫生设施面临压力，那里98%的新病例来自传染性更强的变异菌株，而太平洋上的一些岛国正面临第一波的中共病毒疫情。
 
-按照新记录的感染者比上个月的变化排名，老挝以22,000%的增长位居第一，其次是尼泊尔和泰国，这两个国家的新病例数量都比上个月猛增了1000%以上。
+近期发表在Pathogens的论文报告了CCP病毒同时感染孕妇和胎盘的严重病例。爱尔兰的妇产科医生Keelin O’Donoghue的研究报告警示，2021年初的6例死胎，都与孕妇在流产前几周被CCP病毒感染有关，其中5个病例感染了B.1.1.7的英国突变。
 
-![](https://lh3.googleusercontent.com/-564WYu90E_GGZBZXayfksRHk4V9vy1vA9YBhl7OQTaUoNi1BkQ8vCK2nud3Qk7YGgIDnpNrzK5DsqQR-bcgFu-TiLDewypEoRbXJunHNiXPKaIsWHiFRp1P1jropTc2YBn5APId)图片来源：bloomberg
+![]()![](https://imgcache.dealmoon.com/fsvr.dealmoon.com/dealmoon/acd/b87/666/4d9/0be/2bf/e7a/8a0/b16/15a/f1.jpg_1280_1280_3_4966.jpg)图源网络
 
-老挝疫情的突然爆发，显示了一些内陆国家面临的挑战。尽管政策有所限制，但无法打击到非法入境。
+Keelin医生说，这六个病人的胎盘都病损严重且不可置信地坏死，其胎儿也快速死亡并流产。除此以外，今年已有三例孕妇在确诊CCP病毒后早产，也伴随严重的胎盘坏死。病理检查显示，这些胎盘都极具不正常的病理表征，白色带状纤维和结节充斥了胎盘的绝大部分，这种病征在以往的临床日常检查中是非常罕见的。
 
-虽然与印度的人口或爆发的范围相差甚远，但这些国家中的大多数国家所报告的峰值都要大得多，这表明不受控制的传播存在着潜在的危险。疫情的重新爆发，以及在一些去年基本避免了这一祸害的地方的首次爆发，使向较贫穷、影响力较小的国家提供疫苗供应和避免长期大流行的紧迫性得到了加强。
+进一步检测显示，胎盘组织充斥着CCP病毒。爱尔兰医生提醒，临床医师应重视死胎现象。2020年的第一和第二波疫情中，并没有死胎的病例报告，但是自从B.1.1.7突变在2020年12月在爱尔兰开始流行后，该医院的11例感染CCP病毒的胎盘中，6例胎盘组织严重坏死。换言之，每100到200个孕妇就会有一例出现死胎。从目前的数据来看，感染新突变的CCP病毒并不是死胎的特异因素，但是突变CCP病毒明显会导致病情加重。去年的研究显示，胎盘可以屏蔽CCP病毒，保护胎儿不受感染。但是新的CCP病毒突变导致孕妇血液内的CCP病毒载量明显升高，所以CCP病毒也更容易突破胎盘屏障。
 
-世界卫生组织欧洲区域主任汉斯-克鲁格（Hans Kluge）在上周的一次简报会上说：”认识到印度的情况可能发生在任何地方，这一点非常重要。“
+目前，英国和美国还没有死胎病例增加的报导，但是被CCP病毒感染的孕妇更易早产。Keelin医生说，这些胎盘感染的孕妇只表现出轻度至中度的CCP病毒感染症状，所以她们都没有在感染早期被收治入院。而且胎儿的发育没有表现出异常，胎盘的损伤则是出现在孕妇确诊CCP病毒感染后的2-3周。这一现象提醒临床医生要格外小心，需重新评估孕检结果。
 
-为了抗击疫情，老挝共产党已下令封锁其首都万象，并禁止在首都和各省之间旅行。卫生部长向越南等邻国求援，但目前还不清楚是否能得到什么援助。
+2020年5月，Keelin医生收治了第一例胎盘感染的病人。胎心监控显示异常后，胎儿通过剖腹产存活。但是病理检查显示，胎盘被CCP病毒严重感染，尤其是作为胎盘屏障的滋养层组织，表现出细胞损伤和炎症细胞侵润，大量纤维增生，这会导致胎儿供血不足和缺氧。另外，死亡的胎儿体内也检测出CCP病毒感染。另有临床报导显示，胎儿可能在母亲感染CCP病毒后的几天内就也通过母婴垂直感染。
 
-即使是东南亚感染人数最少的越南，在报告4月份新病例激增131%之后，也在对公共集会进行限制。随着上周自2月以来每日病例首次超过3K，马来西亚将于5月6日至5月17日在该国最富有的雪兰莪州的六个地区加强限制。
+与临床上较常见的免疫性胎盘炎症不同（母体免疫异常导致的流产），母体的免疫细胞虽然会攻击胎盘，但是炎症细胞局限于胎盘的绒毛间隙。CCP病毒感染导致的胎盘感染则会发生胎盘滋养层细胞坏死的状况。
 
-但迄今为止，最受关注的国家是泰国，由于该国的公共卫生系统面临压力，当局正试图建立野战医院，以容纳大量的COVID患病患者。据朱拉隆功大学（Chulalongkorn University）临床病毒学卓越中心主任Yong Poovorawan称，根据500人的样本，泰国首次确定约98%的病例是与英国变异 “肯特株 “有关的变种。
+CCP病毒高度变异后还会出现什么新的病理特征，我们都不得而知。去年临床医生积累的经验，会不会在今年的各种新突变下全部要重新改变？还有多少新突变，新病症？我们不能生活在恐惧中，历史需要找出病毒的终极真相！
 
-泰国已于周二启动了一项广泛的疫苗接种活动，试图控制第三波疫情。
+参考阅读：
 
-原文链接：[Thailand, Laos Report Surging COVID Cases As India’s Outbreaks Spreads Across Asia](https://www.zerohedge.com/covid-19/thailand-laos-report-surging-covid-cases-indias-outbreaks-spreads-across-asia?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+[Doctors Investigate Several Stillbirths Among Moms with COVID-19](https://www.the-scientist.com/news-opinion/doctors-investigate-several-stillbirths-among-moms-with-covid-19-68703)
 
-* * *
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
 
-*排版发布：日本东京方舟农场 文柯Miles*
+编辑/校对/发稿：Irene木木
 
-+1
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
+0

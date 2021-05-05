@@ -1,41 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本告诉中共&nbsp; 你再跟我扯淡&nbsp; 我第一个跟你脱钩
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1171811/)
+## 印度狗火葬场啪啪打脸中共
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1172066/)
 
-**摘要：在2021年4月30日的盖特视频中，郭先生披露了中共被日本羞辱的细节。在美日峰会后中共一直让王毅打电话骚扰日本外务省，日本则直接告诉中共：“你敢在这个事儿上再跟我扯淡，经济上我第一个跟你脱钩！”他说欧洲最后也必然会和美国合作。**
+撰稿：两万五，爆大料
 
-**日本告诉中共****  ****你再跟我扯淡****  ****我第一个跟你脱钩**
+4月28日，《印度时报》报道，印度德里地区新冠死亡病例激增，当地一狗用火葬场将改为人用火葬场。4月29日开始墙内各大新闻媒体开始大肆报道。那这则消息背后透露中共国媒体宣传的何种目的，为何这则新闻又啪啪打脸了中共呢？下面本文重点分析。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04195439/16201719291.png)（图片来自网络）
+4月29日开始墙内网易新闻、腾讯网、环球网等各大媒体以标题【火葬场严重短缺印度德里将一狗用火葬场改为人用】对印度这则新闻进行洗脑式报道，通过百度搜索**，以“印度”、“ 火葬场狗用”为关键词进行搜索，竟然找到高达11,700,000个结果。**那百分之一百可以肯定，中国在通过集体的媒体宣传向老百姓传达信息：现在印度疫情严重，人死了都没地方烧。同时以配图中国火神山的一张建筑图（见下）作为对比，暗示中共抗疫的伟大。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04195448/16201719401.png)（图片来自网络）
+战友们，先仔细看看中共的报道措词，会发现很多有趣之处，文章指出“印度德里地区因新冠死亡病例激增”，后面引用印度市政公司的说法“当地每天火葬数量增长了15%-20%”。15%-20%不算是一个巨大的增幅数据，中共国却用“激增”这个扎眼睛的词来讽刺印度的疫情。这哪是负责任的大国？简直是隔岸观火的小人！通过查阅历史，2020年4月17日武汉市对外发布订正通报，通报指出死亡病例核增1290例，累计死亡数订正为3869例。那本文要问，死亡病例订正后数据都增幅到50%了，为何不用“激增”一词呢？
 
-**Japan Asks the CCP to Shut Up Otherwise It Will Decouple**
+下面在谈谈，这则新闻如何反向打脸中共。中共将狗火葬场作为新闻热点，引起墙内百姓的好奇。意思是：“你看，印度目前火葬场不够用了，只能用低人一等的狗火葬场”。这里中共的逻辑就是，印度人不如狗，连死都没尊严。本文要反问中共，你有狗火葬场吗？中共国的狗有火葬的机会吗？你连狗都不尊重，何谈尊重人呢。武汉2020年爆发疫情的时候，人死了都只能用移动焚化炉烧，连骨灰都没的领，更别提狗火葬场了。
+（文章内容仅代表作者观点）
 
-就连现在大家看到的美国[和]日本的合作，共产党敢放个屁吗？它敢放屁吗？它敢说话吗？据我所最掌握的情报来讲，日本第一次告诉中共：你敢在这个事儿上再跟我扯淡，经济上我第一个跟你脱钩。不是共产党威胁日本要脱钩，是日本告诉共产党，“我第一个就跟你共产党丫挺的脱钩。”听说王毅在电话上傻了。
+审稿&编辑：五饼二鱼
 
-Now everyone can see the cooperation between the United States and Japan. Does the CCP dare to say a word? Does it dare to say a word? According to the intelligence that I have got, Japan told the CCP for the first time: Do you dare to talk shit to me on this matter, I will be the first one to decouple with you economically. It was not the CCP that threatened Japan to decouple, rather it was Japan who told the CCP: “I will be the first to decouple with you, the CCP bastard!” I heard that Wang Yi was shocked on the phone.
-
-日本人是不开玩笑的，说干就干。共产党你能硬的起来吗？[共产党一旦]没钱了，它连个屁都不是。日本一个脱钩把[共产党]吓的。美日峰会后共产党一再威胁[日本]，王毅打电话，打[电话给]日本的外务省[进行威胁]。人家说明确告诉[王毅]：你敢在这事儿上再给我做文章 — 我日本早晚要走今天的，好不容易美国佬现在答应我了– 你敢再给我折腾，我就给你脱钩。闭嘴！”[这是]什么力量？Money，Money！[这是]钱的力量，战友们。
-
-The Japanese were not joking. They mean it when they say it. Can the CCP still be tough? Once the CCP has no money, it will be nothing. Japan’s decoupling has really scared the CCP. After the US-Japan summit, the CCP repeatedly threatened Japan, by having Wang Yi to call Japan’s Ministry of Foreign Affairs. This time they made it clear to Wang Yi: Do you dare to make a fuss about this matter, I will decouple with you. I (Japan) has already gone as far as this and the Yankee has finally promised me. So you’d better shut up!” This shows the power of money, right? Money, money, the power of money, my fellow fighters!
-
-第二，欧洲[的]德国、法国不就是因为钱磕头了共产党吗？但是这次美国到欧洲去要给更多的钱。[所以]，最后的法国、德国一定跪倒在最不喜欢的美国人脚底下，一定这结局的。这就是资本主义社会和资本主义的今天[在]21世纪必然的结局。
-
-Second, didn’t Germany and France in Europe just kowtow to the CCP because of money? But this time the U.S. goes to Europe to give them more money. So, eventually France and Germany will definitely kneel under the feet of Americans who they dislike the most. It must end this way. This is what the capitalist society and capitalism inevitably lead to in the 21st century today.
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/608c20af4486aa0bb231afcf](https://gtv.org/getter/608c20af4486aa0bb231afcf) (1:40-3:28)
-鸣谢：感谢Antsee-GTV、TING GUO 提供中文文本于 [https://www.gnews.org/zh-hans/1159871/](https://www.gnews.org/zh-hans/1159871/)
-
-* * *
-
-字幕：【Rock小哥】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-翻译 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
-+1
+相关新闻：
+[火葬场严重短缺印度德里将一狗用火葬场改为人用](https://www.baidu.com/link?url=xscZNfm-wB4fkaE-Ls2n1qUsxhG65Cp7_En7qsbMFZ6JfrIxMCoJ-dQ1YvX0QtsIZcOl3ci_WxiH9jYGN_lcewKPSBTUVQ-_VAFuf-d0EHS&amp;wd=&amp;eqid=8329e7300018c37200000004609115f1)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04002827/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
+0
