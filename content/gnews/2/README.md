@@ -1,18 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 特别翻译：劳伦斯.塞林博士关于美国的病毒研究计划遭到中国人民解放军大规模渗透的声明
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1176758/)
+## 新冠疫苗 辉瑞将销售上调70%
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1176734/)
 
-劳伦斯·塞林(Lawrence Sellin)博士关于美国的病毒研究计划遭到中国人民解放军大规模渗透的声明
-
-
-
-> A statement by Dr. Lawrence Sellin about the massive infiltration of U.S. virus research programs by China's People's Liberation Army[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaPandemic](https://twitter.com/hashtag/CoronaPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/LjxKERAdEp](https://t.co/LjxKERAdEp)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 5, 2021](https://twitter.com/LawrenceSellin/status/1389861364190093315?ref_src=twsrc%5Etfw)
-
+```
+新闻来源：意大利共和国报（La repubblica）  
+发表日期：2021年5月4日   
+翻译整理/简评：斩草要除根
+```
 
 
-我是劳伦斯·塞林博士。 在过去的30年中，中国人民解放军PLA已经深深地渗透了美国的病毒研究计划。 媒体已大量报道了有关皮特·打杂客(Peter Daschak) 的生态健康联盟(EcoHealth Alliance)将多达3百万美元的资金，从美国国家卫生研究院(NIH)转移到武汉病毒研究所(WIV)。 而那只是冰山一角。 数十亿美元 (注意是B打头, Billions)，数十亿美国纳税人的钱，以知识、技能、和资金的形式，直接或间接地为中共解放军PLA的病毒研究计划做出了贡献，最终导向了新冠病毒COVID-19。 其中大部分资金来自于美国过敏和传染病研究所(NIAID)的安东尼·蝠奇(Anthony Fauci)博士。 但是美国国防部也提供了大量的资金。 我将以一名解放军军方科学家为例来说明它是如何发生的。 我称之为科学链迁移。 姜世勃毕业于解放军军医大学。 他于1990年代来到美国，在纽约洛克菲勒大学进行了关于艾滋病病毒HIV的研究，该项目是由蝠奇(Fauci)的研究所资助的。 姜世勃最终在附近的纽约血液中心林德斯利 F·金博尔(Lindsley F.Kimball) 研究所获得了永久性职位。 在接下来的20年中，其他的解放军PLA科学家、或与解放军相关联的科学家们，源源不断地流向他的实验室来工作，而该实验室获得了超过1700万美元的美国研究资金的助金。 其中大部分资金来自蝠奇(Fauci)的研究所。 同时，蒋世勃还直接与在中国境内的人民解放军科学家们合作，并与他们一起发表了许多科学出版物。 更重要的是，他与美国领先的病毒研究实验室建立了广泛的连接网络，其中一些实验室在进行「功能增强」性研究，从而为解放军建立了接触最先进技术的附加链接。 直到今天，姜世博带到美国的一位科学家，杜兰英 – 她是位居高职的解放军训练有素的科学家(周育森)的妻子 – (她)仍然在林德斯利·金博尔研究所工作，并且由安东尼·蝠奇(Anthony Fauci) 资助。 将世勃深入地参与了2002年至2004年间第一次萨斯SARS大流行的冠状病毒研究。自从他回到中国以来，作为上海复旦大学上海的教授，他一直是新冠病毒COVID-19研究的关键人物。 2013年，是姜世勃与描述了福林霉切位点插入技术的中国科学家们在合作，而这种结构现已被许多人认为是新冠病毒COVID-19起源于实验室的(间接)确凿证据。 实际上，已经有成百上千的姜世勃们在美国的病毒研究实验室里工作，而这些实验室是由美国纳税人资助的。 许多人至今仍然在那里。 他们中的许多人无疑为中共解放军的生物战计划做出了贡献。 对美国人民来说，现在是时候该结束对我们的知识、技能和研究经费的抢劫了！ 对美国人来说，现在是时候该与中国人民站在一起，来结束 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 了！
+抗新冠疫苗的淘金热继续创下新高，辉瑞公司今天已上调了与*Biontech*合作开发的该药物的所有销售额的估计。升级令人印象深刻：在今年年初，预测显示这家美国巨人的收益总额约为100亿。早在3月，这一数字就被上调至150亿。如今，标准已提高到260亿。辉瑞已经成功地大幅提高了产量（到12月，我们正在谈论约25亿剂），欧洲，加拿大和以色列在某些情况下签署了新的合同，价格均上调了。结果显示，该集团三分之一的收入将从年底上市的最新产品中获得。
+
+凭借基于*M-RNA*技术的抗共生药物的成功，辉瑞，*Biontech*和*Moderna*成为当今治愈大流行病的主要受益者，无论是在收入方面还是在股票市场方面，仅在2021年，预计将产生超过650亿美元的营业额，是最初预测的两倍。*Biontech*不久将上调100亿美元的预期收入，而莫德纳（*Moderna* 去年的收入为几亿美元）将以184亿美元的收入结束资产负债表。强生公司（*Johnson and Jonson*）「与阿斯利康（*AstraZeneca*）一样，现在以成本价出售」的目标是100亿美元。
+
+迄今为止，在股票交易所，辉瑞制药公司今天上涨了约1％，接近其历史最高水平。莫德纳*（Moderna*）的价值在一年内从6亿增至700亿。*Biontech*的股价在8到42之间。*Curevac*已将其价值提高了一倍。如今，数十个组织和州（由印度和南非领导）正在敦促世界贸易组织（*WTO*）要求暂停专利以便将疫苗能分发给所有人。
+
+#### 简评：
+
+在中共病毒大流行的一年后，凭借着疫苗的制药公司和华尔街，可谓是赚的盆满钵满，收益是成倍的往上涨。全世界都缺疫苗，而几家制药公司牢牢的把控着专利权这棵摇钱树。短时间研发出来的疫苗到底有多少副作用，到底真实的有效率我们是无法得知的，但是他们巨额盈利的事实却有目共睹。俗话说得好：“人为财死，鸟为食亡”，利益至上永远是这些制药企业不变的信条。
+（本文仅代表y者个人观点，跟GNEWS平台无关。）
+
+**新闻原文链接：**
+🔗[Vaccini anti-Covid, piove oro su Big Pharma: Pfizer rivede al rialzo le vendite del 70%](https://www.repubblica.it/economia/2021/05/04/news/vaccini_anti-covid_piove_oro_su_big_pharma_pfizer_rivede_al_rialzo_le_vendite_del_70_-299386627/?ref=RHTP-VS-I270681073-P11-S3-T1)
+
+* * *
+
+***编辑整理/校对: **Ting Guo*
 
 0

@@ -1,121 +1,82 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（十五）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1176019/)
+## 【史海金钩】浅谈名画(二) 新古典主义杰出代表——安格尔
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1171613/)
 
-作者：纽约香草山信息部 6zero4
+作者：纽约香草山信息部 公平
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
 
 
-5月3日塞林博士的4连推：
 
-第1推，转发“Montreal Himalaya蒙特利尔”战友响应塞林博士面向全球征集CCP病毒信息的推文：AMMS在2020年9月15日发布的专利报告中承认羟氯喹(HCQ)可以抑制针对SARS-CoV-2病毒基因组的感染和复制，不公开发明人是什么意思？并贴上该专利报告的截图。这让每个人无比愤怒：（1）PLA试图控制HCQ并从中获利；（2）福奇、科学家们、科学杂志和媒体对HCQ针对COVID-19的早期使用轻描淡写，可能已经导致多大10万人的死亡。
+![]()![](https://gnews.org/wp-content/uploads/2021/05/安格尔主题图片.png)安格尔大画家 VS 深圳大芬油画村
+图片来源：维基百科，www.hk01.com
+今天和战友们一起分享法国新古典主义大师让·奥古斯特·多米尼克·安格尔[1]（Jean-Auguste-Dominique Ingres，1780—1867）的几幅经典作品。希望通过对安格尔画作的管中窥豹可以了解新古典主义的唯美和优雅，对绘画艺术史有更多一点的了解。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04155200/%E5%A4%A7%E5%AE%AB%E5%A5%B3.jpeg)《大宫女》（*“La Grande Odalisque”）*，图片来源：维基百科
 
+这幅作品相信大家都不陌生，这幅《大宫女》[2]是安格尔早期代表作品。它是画家应拿破仑的妹妹，即那不勒斯王国的王妃卡洛琳·摩拉的订购而创作的。描绘的是土耳其宫中宫女闺房生活的情景，具有浓郁的东方情调。它所追求的是以女性裸体来表现女性身上一切可能出现的形态美。画中全裸的大宫女斜倚着靠垫横贯画面，在华丽的帷幕和褥单的衬托下，显得典雅迷人。画家很强调女性身躯的优美曲线，为了表示这种美，他刻意拉长宫女的手臂和躯干。当时曾有批评家犀利指出安格尔在《大宫女》背部多加了“三节脊椎骨”。但正是这种“没有骨头”的变体增强了裸体特有的妩媚感。宫女的手臂也不符合解剖构造原理，粗细一致的拉长，与脊柱、腰身相互呼应，减轻了立体感。饱满润泽的乳房、扭曲的脚……所有的一切形成了一种韵律感，人们的视线全被吸引到宫女柔软优美的背部，营造出一种神秘的气氛。与抽象的人体不同，画面的背景采用了写实主义手法。这种真实的情境的描绘，增加了画面的说服力，使人们产生似梦非梦的幻觉。整个画面的色彩非常大胆，背景上很强的蓝色和裸体肌肤的黄色，以及人体的明暗和粉红色调极不协调，似是却有其自身的节奏感。这幅画中，安格尔为了营造出宫女整体曲线的美感与节奏感，对形体进行了抽象变形，而且这种对美的迫求不仅没有减弱画面整体的真实感，反而在画面上创造出一种神秘、典雅和抒情诗般的意境。宫女像花瓣一般细润的肢体加了一层明亮、丰富的色调和肌理，显得气韵生动，诗意盎然。宫女的体态优雅静穆，可精神面貌冷漠妖娆。
 
-> This should make everyone very angry (1) PLA tried to control and profit from the use of hydroxychloroquine (HCQ) for [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) (2) U.S. government officials like Fauci, scientists, scientific journals & media downplayed the early use of HCQ, likely causing the deaths of 100,000s. [https://t.co/GoWH0bYtVR](https://t.co/GoWH0bYtVR)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 3, 2021](https://twitter.com/LawrenceSellin/status/1389088181270851585?ref_src=twsrc%5Etfw)
+这幅作品完美地体现出安格尔对古希腊雕刻那种“静穆的伟大”的美学追求，安格尔为追求作品的唯美性进行了大胆的“形变”，这种风格却难以被同时代的审美接受。《大宫女》一经问世，就遭到了当时很多评论家的批评。他们讽刺说：“安格尔先生画活人，就像几何学家画固体一样。他把人体的各个局部忽而放大，忽而缩小。有时他感到沮丧，便不再加强这种可诅咒的立体感，开始使轮廓完善。这就叫舍本求末，用刀鞘代替宝剑来决斗。”然而安格尔的学生、曾为其老师作传记的阿莫里·杜瓦尔说得就比较中肯：“他可能是对的，可是这又怎么样呢？也许正因为这段修长的腰部才使她如此柔和，能一下子慑服住观者。假如她的身体比例绝对的准确，那就很可能不这样诱人了。”《大宫女》现珍藏于法国卢浮宫中，  后世评论它也是19世纪裸体艺术的最杰出代表作之一。
 
+勇气无论在哪个时代，哪个领域都是难能可贵的。创新是必须需要勇敢的尝试的。绘画艺术是需要不断探索发现新的风格、技巧、流派和形式等等与众不同的美好的，艺术的生命力就在于对传统学习基础上不断追求新的风格和尝试新的突破，带来新的体验。所以艺术需要勇气，没有勇气就无法突破传统的约束，就无法面对被所谓的“主流”批评和否定。没有勇气无法迈出“另辟蹊径”的一步，从而导致固步自封、索然无味，而当艺术索然无趣之时也就是它生命力枯竭之时。勇气是所有优秀品质里最该被推崇的品质，对艺术家也不例外。在对美的追求中，形与美往往会产生冲突。面对这种两难的境地，安格尔没有裹足不前，而是显示出探索精神，而恰恰也正是这一点使安格尔迥然独立于同时代的画家中。
 
+1780年，安格尔生于一个世代绘画的美术学院院士家庭，并从小受到良好的艺术熏陶。9岁的小安格尔在素描上显露出惊人的天分，寥寥数笔就能传神地画下家里客人们的肖像，父亲于是送他到几位名师处深造，因此打下了坚实的绘画功底。
 
-第2推，闫博士是绝对正确的，混合使用多种药物对COVID-19的早期治疗本可以挽救数以千计人类的生命，并减少疫情传播的规模，但有钱有势的人却在疫苗中赚钱，并贴上爆料革命关于闫博士对HCQ等早期用药治疗建议的图片。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04155749/Achilles-Receiving-the-Envoys-of-Agamemnon.jpeg)《阿喀流斯接待阿伽门农的使者》*(“The Ambassadors of Agamemnon in the tent of Achilles*“)，图片来源：维基百科
 
+安格尔17岁时来到巴黎，在这里遇到了影响他一生艺术道路的老师大卫。刚开始大卫对这个日后的得意门生并不感兴趣，原因是安格尔平淡谦和的画风难入这位以英雄主义为信条的导师的法眼。安格尔异常聪明，他没有急于改变风格，而是在此之外加进了老师的某些元素，21岁时的《阿喀流斯接待阿伽门农的使者》[3]（《伊利亚特》中的一幕：希腊统帅阿伽门农向英雄阿喀流斯道歉，送上美女财礼并请他参战）令大卫对他刮目相看，并获得了赴罗马学习的机会，但实际上他26岁才奔赴意大利求学。求学期间，他不断将作品寄回国内在沙龙上展出，大卫惊喜地看到学生越发接近古典主义了，并为找到接班人兴奋不已。44岁，当安格尔回到巴黎时，他已是公认的古典派大将了。
 
+安格尔一生向往古典主义，追求古典理想化的平静肃穆的美，并以此作为他艺术的最高追求。实际上，安格尔的师承与其说出自大卫，不如说出自另外两个人——拉斐尔、提香，尤其是拉斐尔，他是安格尔终生的偶像。他说：“拉斐尔打开了我艺术的眼界，使我顿开茅塞，这个印象决定了我一生的命运。”在意大利古典主义的宝库中，他对拉斐尔遗留画作和提香人体艺术进行了近乎发狂的研习揣摩，依照拉斐尔《雅典学派》创作了《荷马的礼赞》。
 
-> Dr. Limeng Yan [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) is absolutely correct. Early treatment of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) with a combination of drugs could have saved thousands of lives and decreased the pandemic's effects, but rich and powerful people were making too much money from vaccines.[#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/4CYAm3Z847](https://t.co/4CYAm3Z847)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 3, 2021](https://twitter.com/LawrenceSellin/status/1389105853362544640?ref_src=twsrc%5Etfw)
+安格尔学习拉斐尔真正的成绩是对女性裸体的传神描绘，他本人也是首屈一指的素描大师，因而对造型的把握上显示出异常的得心应手。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04160237/%E6%B3%89.jpeg)《泉》(“*The Source**“***)，图片来源：维基百科
 
+安格尔的另外一幅登峰之作《泉》[4]，则更加诠释了安格尔对于女性裸体描绘之精妙和他对古典主义的崇尚。它描绘了一个手持瓦罐的裸体少女，人物正面呈现，给人强烈的视觉冲击。《泉》，裸体却不色情，甚至蕴含一种至高无上的典雅之美。画中少女左肩持罐，为保持平衡，右腿微曲右脚点地，身体拗成一个S型的曲线，给人平衡的舒适感。整体色调柔和，以暗黄色为主调，背景简单，营造了一种静穆典雅的氛围。瓦罐里的水穿过少女的手指，缓缓流向地面。水流与少女清纯、恬静的面庞相得益彰，而少女的青春活力就像源源不断的泉水，在安格尔的笔下实现了永恒。《泉》这幅画中可以捕捉到画中人物身体边缘线条的流畅感、纤柔感和韵律感，因为安格尔在处理轮廓边线时始终本着虚实相间的原则，从最高的右肘至下面的右脚，人物的轮廓和阴影有强弱强弱的处理，虚实得当。画家安排了一条泉水平衡了整个构图，一曲一直、一动一静，恰好符合美学原则中变化和统一的规律，也使观赏者的视觉获得极大的满足。 这幅画作是安格尔在76岁高龄时完成的，历时26年之久。于1820年在意大利期间作为习作开始的，1856年才在巴黎完稿，据说原名是《维纳斯》，但画家经过数十年的世俗漂泊，修改了少女脚边的小天使，把整理秀发改为倒倾水瓶，使之成为一幅具有古典主义象征意义的名作。真正的经典之作“精工”是一种必须，现今有多少人会花26年去打磨一幅画，尤其在中共国这样浮华环境里，艺术已经被商业化、利益化，中共国只能出来“深圳大芬村“ 这种批发商品，很难出真正被世界认可的艺术大师。
 
-第3推，PLA兽医公开通过实验室改造(连续传代)将感染人类的流感病毒变得更危险，长春兽医研究所及其相关的研究中心似乎是CCP生物战计划的核心要素，并贴上夏咸柱的照片及其相关论文的截图。
+《泉》展出后，也引起了不少人的质疑：有人提出少女的右臂及躯干被拉长扭曲，不符合人体真实比例。尽管受到争议，《泉》传递出的女性的绝对之美却令世人疯狂，先后经历了被私人收藏、被赠予卢浮宫成为镇馆之宝，到如今被藏于法国奥赛美术馆。这幅女性人体的巅峰之作，其艺术地位至今无人超越。与追求个性自由、主观意愿的“浪漫主义”完全相反，安格尔始终坚守“新古典主义”的大旗，恪守美的典范，又不完全被其条条框框所束缚。“完美无瑕”的人生信条使安格尔毕生都在追求他的“理想之美”。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04160823/%E3%80%8A%E5%B8%83%E7%BD%97%E6%A0%BC%E5%88%A9%E5%85%AC%E4%B8%BB%E3%80%8B.jpeg)《布罗格利公主》(“*The Princesse de Broglie”*
+)，图片来源：维基百科
 
+晚年的作品尤其体现这种追求完美的风格。《布罗格利公主》[5]是安格尔73岁时候创作的人物肖像作品。布罗格利公主身着漂亮蓝色绸裙，神态自如地靠在椅背边。画家以熟练的古典精致写实画法，将这位公爵夫人恬淡的性格，十分含蓄而又抒情地表现出来：她神情专注，嘴角微露笑意，圆润的脖颈上配戴着十字花纹的金项链，洁润如玉的双臂，纤柔的手腕上饰有晶莹闪烁的珠翠珍宝，以及透明花边都被细腻极致地描绘如真，不同织物的质感展现在观众前面，笔触细腻，视觉真实，衣服的质感和华美仿佛触手可及。人物的高贵通过配饰和衣物的华美立刻清晰展示出来。这就是安格尔对女性之美的一种追求和理解。女性在他的笔下雍容华贵、唯美动人、无可挑剔。
 
-> People's Liberation Army veterinarians openly making a human influenza virus more dangerous by laboratory manipulation (serial passage). The Military Veterinary Research Institute, Changchun and linked research centers appear to be core elements of the CCP's biowarfare program. [pic.twitter.com/uVt0cc5N4h](https://t.co/uVt0cc5N4h)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 3, 2021](https://twitter.com/LawrenceSellin/status/1389160702997315586?ref_src=twsrc%5Etfw)
+艺术家一定要有对美好的无限热爱和追求，只有近乎疯狂的苛求与热爱，对艺术的孜孜不倦的坚持，对美好敏感而坚持，才具备成为优秀艺术家的条件。而大师则更要在坚持和热爱之上更有灵气与天赋。
 
+浅谈名画，走进大师，浅尝艺术的魅力，感受艺术之美，净化我们的心灵，这或许就是我执笔浅谈名画系列的一点点小心愿吧。
 
+参考阅读：
 
-第4推，长春兽医研究所的夏咸柱和北京动物研究实验室的秦川，联手通过实验室连续传代将H1N1流感病毒变得更具毒性，与其相关的研究中心似乎是CCP生物战计划的核心要素，并贴上夏咸柱及其相关论文的截图，线索：部分地了解了COVID-19是如何制造出来的！并贴上夏咸柱和秦川的照片及其相关论文的截图。
+1. [Jean-Auguste-Dominique Ingres](https://en.wikipedia.org/wiki/Jean-Auguste-Dominique_Ingres)
+2. [*La Grande Odalisque* (1814), the Louvre](https://en.wikipedia.org/wiki/Jean-Auguste-Dominique_Ingres#/media/File:Jean_Auguste_Dominique_Ingres_-_The_Grand_Odalisque_-_WGA11841.jpg)
+3. [*The Envoys of Agamemnon*, 1801, oil on canvas, École des Beaux Arts, Paris](https://en.wikipedia.org/wiki/Jean-Auguste-Dominique_Ingres#/media/File:The_Envoys_of_Agamemnon_by_Ingres.jpg)
+4. *[T](https://en.wikipedia.org/wiki/The_Source_%28Ingres%29)*[*he Source* (1856), Musée d’Orsay, Paris](https://en.wikipedia.org/wiki/Jean-Auguste-Dominique_Ingres#/media/File:Jean_Auguste_Dominique_Ingres_-_The_Spring_-_Google_Art_Project_2.jpg)
+5. [*The Princesse de Broglie*, née Joséphine-Eléonore-Marie-Pauline de Galard de Brassac de Béarn, 1853, Metropolitan Museum of Art, New York](https://en.wikipedia.org/wiki/Jean-Auguste-Dominique_Ingres#/media/File:Ingres_Princess_Albert_de_Broglie.jpg)
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
 
-> Xianzhu Xia of the Military Veterinary Research Institute, Changchun & Chuan Qin of the Institute of Laboratory Animal Sciences, Beijing team up to make the 2009 pandemic H1N1 influenza virus more virulent by laboratory serial passage. Hint: partly how [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) was made[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/N9syMLaDrD](https://t.co/N9syMLaDrD)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 3, 2021](https://twitter.com/LawrenceSellin/status/1389196440619077635?ref_src=twsrc%5Etfw)
-
-
-
-5月4日塞林博士的5连推：
-
-第1推，转发“MosTrans”战友回应自己5月3日第4推的推文：夏、秦和金三人之间的紧密关系，并贴出了他们之间过去联合发表科学论文的搜索结果截图。赞扬了COVID-19侦探Devon Y战友运用病毒研究网络分析的有效性，CCP生物战计划的核心要素就是军事兽医，以及研究了什么并与谁有关。
-
-
-
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@No3Mos](https://twitter.com/No3Mos?ref_src=twsrc%5Etfw) shows the effectiveness of virus research network analysis. A core element of the Chinese Communist Party biowarfare program is the military veterinarians, what research they did and to whom they were linked. [https://t.co/A4fSWvsjFa](https://t.co/A4fSWvsjFa)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389425795723153409?ref_src=twsrc%5Etfw)
-
-
-
-第2推，转发“Devon Y”战友回应自己5月3日第3推的中文推：夏咸柱通过小鼠的传代实验，经过9代之后，用MDCK细胞扩繁病毒，得到了JN-P9-2-M1毒株，该毒株比原病毒毒性提高了至少1000倍，对小鼠致病能力得到初步提高，并贴上其实验室团队对此的研究分析报告截图。认可COVID-19侦探MosTrans战友对CCP军事兽医经常使用实验室操纵的连续传代使病毒变得更加危险的揭露，军事兽医是CCP生物战计划的关键部分。
-
-
-
-> In several Tweets [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@devonJ32130301](https://twitter.com/devonJ32130301?ref_src=twsrc%5Etfw) shows that Chinese Communist Party military veterinarians were routinely using the laboratory manipulation of serial passage to make viruses more dangerous. Military veterinarians are a key part of the CCP's biowarfare program. [https://t.co/N2HY2BL17j](https://t.co/N2HY2BL17j)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389428627809443841?ref_src=twsrc%5Etfw)
-
-
-
-第3推，塞林博士的中文推：致所有COVID-19侦探。请搜索：ZC45和ZXC21发生了什么？ZC45和ZXC21于2018年在第三军医大学进行了研究，然后消失了，他们去了哪些实验室？长春军事兽医研究所？并贴上闫博士有关CCP病毒骨架ZC45和ZXC21及其神经毒性观点的图片。
-
-
-
-> 致所有COVID-19侦探。 请搜索。 
-> ZC45和ZXC21发生了什么？ 
-> ZC45和ZXC21于2018年在第三军医大学进行了研究，然后消失了。 
-> 他们去了哪些其他实验室？ 长春军事兽医研究所？ [pic.twitter.com/d10SY6wIJt](https://t.co/d10SY6wIJt)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389442615960129538?ref_src=twsrc%5Etfw)
-
-
-
-第4推，转发“Devon Y”战友回应自己上一推的中午推：通过蝙蝠病毒的进一步研究，成功提取出了两株新的SARS病毒，新毒株SL-CoVsZC45在蝙蝠组织上感染乳鼠，来自PLA陆军军医大学，2019年，并贴上该研究报告网页截图。塞林博士回应中文推：致所有COVID-19侦探。资金：军事后勤研究项目（编号AWS16J020，AWS16J021，AWS16J023等）通常意味着与长春军事兽医研究所的何彪从蝙蝠身上收集了ZC45和ZXC21，跟着资金挖，并贴上自己4月22日关于何彪的推文链接。
-
-
-
-> 致所有COVID-19侦探。 资金：军事后勤研究项目（编号AWS161020，AWS161021，AWS16102）通常意味着与长春军事兽医研究所的链接。 (Biao He) 军事兽医研究所的何彪从蝙蝠身上收集了ZX45和ZXC21。 跟着钱。 [https://t.co/87Kuj5goOY](https://t.co/87Kuj5goOY) [https://t.co/b90GEp9zQ7](https://t.co/b90GEp9zQ7)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389461628744306690?ref_src=twsrc%5Etfw)
-
-
-
-第5推，是的，RaTG13是最接近COVID-19的亲戚，因为它也是实验室改造出来的，是一个通向COVID-19的中间过渡病毒，CCP及一些有影响力并亲共的西方科学家撰写了数百篇有关假病毒的文章，欺骗了其他科学家，并贴上闫博士有关RaTG13观点的爆料革命宣传图片。
-
-
-
-> Yes, RaTG13 is the closest relative to [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) because it is also a laboratory construct, an intermediate, drawing board virus on the way to COVID-19. The CCP & some influential CCP-friendly Western scientists fooled other scientists to write 100s of articles about a fake virus. [pic.twitter.com/3w9oM4JRwT](https://t.co/3w9oM4JRwT)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389488592926486528?ref_src=twsrc%5Etfw)
-
-
-
-CCP生物战计划的核心要素就是PLA军事兽医系统，长春兽医研究所及其相关的研究中心，北京动物研究实验室，第三军医大学（PLA陆军军医大学）进入COVID-19病毒溯源的聚光灯下。战友们继续跟着CCP-PLA-AMMS项目资金挖，挖到了长春兽医研究所的夏咸柱和北京动物研究实验室的秦川，联手通过实验室连续传代将H1N1流感病毒变得更具毒性的证据。塞林博士继续抛砖引玉、穿针引线，抛出2018年在第三军医大学（现PLA陆军军医大学）研究的，具神经毒性的ZC45和ZXC21消失后，去了哪些实验室的线索让战友们继续深挖。幽默地戏谑了RaTG13是最接近COVID-19的亲戚的说法，准确说是实验室内的亲戚关系，因为RaTG13是实验室改造出来以过渡到COVID-19的中间体，是CCP及其收买的西方科学家以假病毒RaTG13为道具，以大搞文章、浑水摸鱼、混淆视听，从而隐瞒真相、制造假象、欺骗世界！
-
-AMMS在2020年9月15日发布的专利报告中承认羟氯喹(HCQ)可以抑制针对SARS-CoV-2病毒基因组的感染和复制，应证了闫博士对HCQ在COVID病毒预防和早期治疗有效的科学论断，但科学界、媒体和疫苗公司等有钱有势的权贵和资本家却竭力否定HCQ，一门心思在疫苗中赚大钱，这可能已经导致多大10万美国人的死亡，创造了人类灾难中赚黑心钱、赚死人钱的世界纪录！
-
-校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+编辑/校对/发稿：Delilah小胖
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-0
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
+
+
+
+
+
++1

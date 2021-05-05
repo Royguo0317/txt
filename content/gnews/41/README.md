@@ -1,107 +1,121 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙内404】动辄向国际社会索取公开感谢，到底咋想的？
-` 牆內心聲` [轉載自GNews](https://gnews.org/zh-hans/1175872/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（十五）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1176019/)
 
-***（以下内容由发布者个人引用自互联网，以供读者自行品读思考，其中观点不代表G-News平台意见。）***
+作者：纽约香草山信息部 6zero4
 
-**作者/发表时间：濠江客V（澳门商报评论员 头条文章作者）/2021年05月03日**
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05090854/02-4.jpg)
 
-闲言碎语：前天的一篇关于中国社交媒体不当评论印度严重疫情的文章《大国民的体面还是要有的，否则说三千年文明也好意思？》被下线了。
 
-严重的是，濠哥在文章引用的另外两篇网友质疑文章《中国点火VS印度点火：人类命运共同体？》和《向印度人民道歉》，昨天发现也都被删除了。显见的这一波清除质疑的力度也是蛮大的。
+5月3日塞林博士的4连推：
 
-这两天在朋友圈，又看到了一些同题且观点相近的新质疑文章，不知道这些文章能存活多久。
+第1推，转发“Montreal Himalaya蒙特利尔”战友响应塞林博士面向全球征集CCP病毒信息的推文：AMMS在2020年9月15日发布的专利报告中承认羟氯喹(HCQ)可以抑制针对SARS-CoV-2病毒基因组的感染和复制，不公开发明人是什么意思？并贴上该专利报告的截图。这让每个人无比愤怒：（1）PLA试图控制HCQ并从中获利；（2）福奇、科学家们、科学杂志和媒体对HCQ针对COVID-19的早期使用轻描淡写，可能已经导致多大10万人的死亡。
 
-同时，今天的推送文章从昨天一起到今天，反复发送了几次都没有成功。不知何故。
 
-濠哥在前天的那篇下线文章中最后表达了一个观点：不希望再次看见一张“负能量”的外国照片与一张“正能量”的中国照片放在一起，进行对比或对照，这样没有技术含量的赤裸裸地低级红“黑板报”，太不体面了。中国网友应该大胆地说：我们不吃这一套！
 
-网友们可能也注意到了，对于印度最近两周来爆发的严重疫情，中方高层主动表示了提供援助的态度并致电慰问，既有善意也有耐心，但是印度方面的回应显得滞后和淡定。证明两国关系的冷淡并非一日可解。
+> This should make everyone very angry (1) PLA tried to control and profit from the use of hydroxychloroquine (HCQ) for [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) (2) U.S. government officials like Fauci, scientists, scientific journals & media downplayed the early use of HCQ, likely causing the deaths of 100,000s. [https://t.co/GoWH0bYtVR](https://t.co/GoWH0bYtVR)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 3, 2021](https://twitter.com/LawrenceSellin/status/1389088181270851585?ref_src=twsrc%5Etfw)
 
-就此而言，如果没有平时的相互尊重与平等相待，遭难时的高调援助也会被感觉是沽名钓誉。好比你家正遭遇难堪，平时就互不待见的邻居突然上门慰问，你什么感觉？
 
-去年1月20日武汉疫情公开及23日武汉封城之后，国际社会曾经向中国进行过一波涉及国家和地区非常广泛的援助，一度全世界的口罩都来到了中国。
 
-这些向中国及时援助的国家，既有俄罗斯、伊朗这样的利益一致国，也美国、欧盟、日本与韩国这样的西方体系国家，其中关于来自美国的援助到底是美国企业捐助还是特朗普政府捐助的，还曾经引发过一波争议潮。
+第2推，闫博士是绝对正确的，混合使用多种药物对COVID-19的早期治疗本可以挽救数以千计人类的生命，并减少疫情传播的规模，但有钱有势的人却在疫苗中赚钱，并贴上爆料革命关于闫博士对HCQ等早期用药治疗建议的图片。
 
-按说国际社会援助中国抗疫，这是一件非常正能量的国际交往事件，中国应该向那些及时向中国伸手援手的国家表示感谢，但不知道中间是怎么神操作的，中国媒体通过世界卫生组织一位访华官员的嘴说出了“世界欠中国一个感谢”的标准答案。
 
-似乎有一个开关转换了方向，将中国与国际社会的关系调了个头：从中国感谢世界，变成了：世界感谢中国！
 
-至于为什么世界欠中国一个感谢，当然是我们采取了非常严厉的封锁措施，老百姓又积极配合隔离措施（包括堵路封村等），阻止了疫情或病毒向世界的传播，武汉以及湖北人民承受了这一波本来应该由全世界承担的生命损失，难道世界不应该向中国表示感谢么。
+> Dr. Limeng Yan [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) is absolutely correct. Early treatment of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) with a combination of drugs could have saved thousands of lives and decreased the pandemic's effects, but rich and powerful people were making too much money from vaccines.[#COVID19Vaccine](https://twitter.com/hashtag/COVID19Vaccine?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/4CYAm3Z847](https://t.co/4CYAm3Z847)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 3, 2021](https://twitter.com/LawrenceSellin/status/1389105853362544640?ref_src=twsrc%5Etfw)
 
-到了去年4月，武汉疫情基本上稳定下来之后，舆论操作又变成了“世界抄中国作业”的主题。
 
-不得不说，这些神操作的议题设置能力是非常强大的。于是关于去年的第一波疫情，先是世界要感谢中国，后来是世界向中国学习。
 
-当然，从国际社会的反应看，感谢中国的，除了世界卫生组织的那位访华官员，其他人看到的不多；抄中国防疫作业的，更是很难看到。因为中国的作业，是特色作业，那些外国人想抄也是抄不走的。
+第3推，PLA兽医公开通过实验室改造(连续传代)将感染人类的流感病毒变得更危险，长春兽医研究所及其相关的研究中心似乎是CCP生物战计划的核心要素，并贴上夏咸柱的照片及其相关论文的截图。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05090836/03-4.jpg)
 
-后来，去年4月至5月之后，主题又变成了中国援助世界——由于疫情控制较好、经济开始恢复，而其他包括欧洲和美国在内的地区，进入疫情高发期，从而纷纷关闭经济和社会，此时来自中国的口罩、防护服、病毒检测试剂盒、呼吸机等防疫产品，开始大量出口，主题仍然是：世界应该继续感谢中国。
 
-今年初以来，在防范新冠疫情的问题上，最大的一个看点是中国企业生产的疫苗开始向其他国家出口。当然这些来自科兴或国药集团的疫苗，在媒体上，几乎统统被称为“中国疫苗”。包括最近几天由印度方面向中国企业采购的制氧机等，也一概被称为“中国制氧机”。
+> People's Liberation Army veterinarians openly making a human influenza virus more dangerous by laboratory manipulation (serial passage). The Military Veterinary Research Institute, Changchun and linked research centers appear to be core elements of the CCP's biowarfare program. [pic.twitter.com/uVt0cc5N4h](https://t.co/uVt0cc5N4h)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 3, 2021](https://twitter.com/LawrenceSellin/status/1389160702997315586?ref_src=twsrc%5Etfw)
 
-企业的名称不重要，国家的大名才重要。正常的贸易往来或供需采购不重要，世界天天感谢中国才重要。好像那些疫苗、制氧机等是中国特产，其他国家都生产不了，全世界都在羡慕和感谢中国的强大与“及时雨”般救命的供应。
 
-这与中国媒体动辄指责外国企业向中国出口产品“吃中国的饭、砸中国的锅”完全反了一个方向。
 
-在当下的官方媒体与社交媒体平台上，最受欢迎的报道是世界感谢中国、世界称赞中国，除此之外，就是那些对中国不友好的国家在遭受厄运、在遭受制裁，过得水深火热、民不聊生。是啊，谁让你们不感谢中国、不赞颂中国呢？活该！
+第4推，长春兽医研究所的夏咸柱和北京动物研究实验室的秦川，联手通过实验室连续传代将H1N1流感病毒变得更具毒性，与其相关的研究中心似乎是CCP生物战计划的核心要素，并贴上夏咸柱及其相关论文的截图，线索：部分地了解了COVID-19是如何制造出来的！并贴上夏咸柱和秦川的照片及其相关论文的截图。
 
-最近，国际社会的关注焦点，是十万火急的印度疫情。这不仅衬托了同样是人口大国——中国防控疫情作业的高度完美，还显示了由于对华不友好，印度人正在遭遇什么。
 
-现在，中国向印度主动表达了援助的意愿，还致电慰问了莫迪，同时向印度提供了中国防疫产品，接下来，印度该感谢中国、称赞中国了吧？
 
-坐等！
+> Xianzhu Xia of the Military Veterinary Research Institute, Changchun & Chuan Qin of the Institute of Laboratory Animal Sciences, Beijing team up to make the 2009 pandemic H1N1 influenza virus more virulent by laboratory serial passage. Hint: partly how [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) was made[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/N9syMLaDrD](https://t.co/N9syMLaDrD)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 3, 2021](https://twitter.com/LawrenceSellin/status/1389196440619077635?ref_src=twsrc%5Etfw)
 
-但，印度人的表现似乎不太让人满意。
 
-昨天，环球时报胡总在他的微信公号“胡锡进观察”撰文《中国的紧急帮助没换来印度的公开感谢，我们帮错了吗？》，文章说：
 
-印度新冠疫情持续高热，中国成为印度制氧机、呼吸机等关键抗疫物资的最大提供国，迄今至少已有2万多台制氧机和5000多台呼吸机从中国输往印度，接下来印度还向中国企业递交了至少4万台制氧机的订单。
+5月4日塞林博士的5连推：
 
-不过印度舆论没有对中国的紧急供货表达谢意，或者说这样的声音很微弱，反而有不少声音强调中国的供货不是援助，指中国“趁机赚钱”，宣扬中国对印输出这些物资“有地缘政治图谋”等等。印度的这些舆论和他们高调宣扬美国和西方的对印支持形成鲜明对比，中国人看了肯定不舒服。
+第1推，转发“MosTrans”战友回应自己5月3日第4推的推文：夏、秦和金三人之间的紧密关系，并贴出了他们之间过去联合发表科学论文的搜索结果截图。赞扬了COVID-19侦探Devon Y战友运用病毒研究网络分析的有效性，CCP生物战计划的核心要素就是军事兽医，以及研究了什么并与谁有关。
 
-5月1日，印度单日新增确诊病例首次超过40万例，连续10天保持在日增30万例以上，刷新全球单日单个国家新增病例数的纪录。
 
-环球胡总认为，中国为印度眼下紧急抗疫做出最大贡献，中国的支持和帮助不是象征性的，而是非常实质的，但是印度方面没有公开对中国表达感谢的氛围，他们对中国的战略敌意犹在，而且很要面子。印度斯坦时报4月28日还登出一个图表，详细列出世界各国为印度紧急提供了哪些抗疫物资，很多小国都被列入了进去，但中国成了空白，给故意漏掉了。
 
-濠哥对胡总写文章左右互博、东一榔头西一棒槌，把各种似是而非的事实与结论、逻辑上互不证明的内容杂糅在一起的能力实在佩服。
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@No3Mos](https://twitter.com/No3Mos?ref_src=twsrc%5Etfw) shows the effectiveness of virus research network analysis. A core element of the Chinese Communist Party biowarfare program is the military veterinarians, what research they did and to whom they were linked. [https://t.co/A4fSWvsjFa](https://t.co/A4fSWvsjFa)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389425795723153409?ref_src=twsrc%5Etfw)
 
-濠哥认为，除非我们是在捐赠或免费向印度提供防疫物资，否则，正常的贸易采购、好买好卖，干吗老是惦记着让人家感谢中国呢？
 
-如果特斯拉说中国消费者应该感谢特斯拉给中国带去了最先进的智能汽车技术与生产线，美国《中央日报》（如果有的话）期待中国消费者感谢所谓“美国汽车”，他们能得到吗？恐怕被“关门打狗”的可能性更大吧。
 
-另外，胡总说，“中国为印度眼下紧急抗疫做出最大贡献”。这样的结论，不知道从哪儿得来的。尤其这“最大贡献”被印度媒体只字不提。
+第2推，转发“Devon Y”战友回应自己5月3日第3推的中文推：夏咸柱通过小鼠的传代实验，经过9代之后，用MDCK细胞扩繁病毒，得到了JN-P9-2-M1毒株，该毒株比原病毒毒性提高了至少1000倍，对小鼠致病能力得到初步提高，并贴上其实验室团队对此的研究分析报告截图。认可COVID-19侦探MosTrans战友对CCP军事兽医经常使用实验室操纵的连续传代使病毒变得更加危险的揭露，军事兽医是CCP生物战计划的关键部分。
 
-值得肯定的是，胡总对“中国某个官方机构标签很突出的社交媒体账号或者其他有影响的力量此时嘲讽印度”，认为不合适。
 
-但胡总这么说的理由是：
 
-我们的舆论，特别是主流舆论，作为一个整体有必要跟上政府的表态和行动，形成同情、支持印度抗疫的主基调。这是中国国家形象不可缺少的一环。
+> In several Tweets [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@devonJ32130301](https://twitter.com/devonJ32130301?ref_src=twsrc%5Etfw) shows that Chinese Communist Party military veterinarians were routinely using the laboratory manipulation of serial passage to make viruses more dangerous. Military veterinarians are a key part of the CCP's biowarfare program. [https://t.co/N2HY2BL17j](https://t.co/N2HY2BL17j)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389428627809443841?ref_src=twsrc%5Etfw)
 
-在作出“中国为印度抗疫做出最大贡献”的结论之后，胡总还肯定地认为：“印度的确做了一些对不起中国的事情，直到今天它落难了，中国伸出援手，它仍耿耿于怀，明显小心眼了。”
 
-看看，你都落难了，我伸出援手，你还不知道说一声感谢。真真是该打了。
 
-胡总最后说：中国是大国，且文明悠久，我们不能忽视“以德服人”的重要性。对中国这样的国家来说，德不是虚伪，它是我们的尊严，并且本身就是力量，是我们国际动员力的基石之一。
+第3推，塞林博士的中文推：致所有COVID-19侦探。请搜索：ZC45和ZXC21发生了什么？ZC45和ZXC21于2018年在第三军医大学进行了研究，然后消失了，他们去了哪些实验室？长春军事兽医研究所？并贴上闫博士有关CCP病毒骨架ZC45和ZXC21及其神经毒性观点的图片。
 
-坦白地说，在最近几年发生了那么多的事件之后，还说什么“以德服人” ，濠哥是断断没有这个道德勇气或心理素质的。
 
-濠哥认为，如果我们本着一颗善良的心做事做人，别人是不是感谢我们、称赞我们，有什么好介意的呢。
 
-至于为国家、为领导要感谢，为胡总宜，老百姓不宜。
+> 致所有COVID-19侦探。 请搜索。 
+> ZC45和ZXC21发生了什么？ 
+> ZC45和ZXC21于2018年在第三军医大学进行了研究，然后消失了。 
+> 他们去了哪些其他实验室？ 长春军事兽医研究所？ [pic.twitter.com/d10SY6wIJt](https://t.co/d10SY6wIJt)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389442615960129538?ref_src=twsrc%5Etfw)
 
-俗语说，强扭的瓜不甜。
 
-* * *
 
-***新闻线索/采集：Peter wong
-编辑/校对：Peter wong
-发布：墙内心声***
+第4推，转发“Devon Y”战友回应自己上一推的中午推：通过蝙蝠病毒的进一步研究，成功提取出了两株新的SARS病毒，新毒株SL-CoVsZC45在蝙蝠组织上感染乳鼠，来自PLA陆军军医大学，2019年，并贴上该研究报告网页截图。塞林博士回应中文推：致所有COVID-19侦探。资金：军事后勤研究项目（编号AWS16J020，AWS16J021，AWS16J023等）通常意味着与长春军事兽医研究所的何彪从蝙蝠身上收集了ZC45和ZXC21，跟着资金挖，并贴上自己4月22日关于何彪的推文链接。
 
-+1
+
+
+> 致所有COVID-19侦探。 资金：军事后勤研究项目（编号AWS161020，AWS161021，AWS16102）通常意味着与长春军事兽医研究所的链接。 (Biao He) 军事兽医研究所的何彪从蝙蝠身上收集了ZX45和ZXC21。 跟着钱。 [https://t.co/87Kuj5goOY](https://t.co/87Kuj5goOY) [https://t.co/b90GEp9zQ7](https://t.co/b90GEp9zQ7)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389461628744306690?ref_src=twsrc%5Etfw)
+
+
+
+第5推，是的，RaTG13是最接近COVID-19的亲戚，因为它也是实验室改造出来的，是一个通向COVID-19的中间过渡病毒，CCP及一些有影响力并亲共的西方科学家撰写了数百篇有关假病毒的文章，欺骗了其他科学家，并贴上闫博士有关RaTG13观点的爆料革命宣传图片。
+
+
+
+> Yes, RaTG13 is the closest relative to [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) because it is also a laboratory construct, an intermediate, drawing board virus on the way to COVID-19. The CCP & some influential CCP-friendly Western scientists fooled other scientists to write 100s of articles about a fake virus. [pic.twitter.com/3w9oM4JRwT](https://t.co/3w9oM4JRwT)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389488592926486528?ref_src=twsrc%5Etfw)
+
+
+
+CCP生物战计划的核心要素就是PLA军事兽医系统，长春兽医研究所及其相关的研究中心，北京动物研究实验室，第三军医大学（PLA陆军军医大学）进入COVID-19病毒溯源的聚光灯下。战友们继续跟着CCP-PLA-AMMS项目资金挖，挖到了长春兽医研究所的夏咸柱和北京动物研究实验室的秦川，联手通过实验室连续传代将H1N1流感病毒变得更具毒性的证据。塞林博士继续抛砖引玉、穿针引线，抛出2018年在第三军医大学（现PLA陆军军医大学）研究的，具神经毒性的ZC45和ZXC21消失后，去了哪些实验室的线索让战友们继续深挖。幽默地戏谑了RaTG13是最接近COVID-19的亲戚的说法，准确说是实验室内的亲戚关系，因为RaTG13是实验室改造出来以过渡到COVID-19的中间体，是CCP及其收买的西方科学家以假病毒RaTG13为道具，以大搞文章、浑水摸鱼、混淆视听，从而隐瞒真相、制造假象、欺骗世界！
+
+AMMS在2020年9月15日发布的专利报告中承认羟氯喹(HCQ)可以抑制针对SARS-CoV-2病毒基因组的感染和复制，应证了闫博士对HCQ在COVID病毒预防和早期治疗有效的科学论断，但科学界、媒体和疫苗公司等有钱有势的权贵和资本家却竭力否定HCQ，一门心思在疫苗中赚大钱，这可能已经导致多大10万美国人的死亡，创造了人类灾难中赚黑心钱、赚死人钱的世界纪录！
+
+校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
