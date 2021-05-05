@@ -1,25 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 快递一哥亏损后的自救？
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1172045/)
+## 5月4日美国政要和政评家推特精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1172232/)
 
-**撰稿：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04192339/256.jpg)
-据路透香港报道，由顺丰控股分拆的顺丰房地产投资信托基金周二宣布，将在香港首次公开发售（IPO）集资高至26.83亿港元；预测2021年度年化每基金单位分派收益率5.3%至5.9%。
+国务卿安东尼·布林肯： 在G7峰会与德国外长Heiko Maas举行了很棒的会议，讨论了中共国，俄罗斯，伊朗和其他问题。德国是面对共同挑战和促进我们共同议程的必不可少的伙伴。
 
-顺丰房托将于周三（5日）起招股，发售5.2亿个基金单位，每基金单位发售价介乎4.68至5.16港元，5月10日中午截止认购，5月17日挂牌，上市编号为“2191”。
 
-顺丰房托聚焦大中华区物流地产，其上市资产包括三项分别位于香港青衣、广东佛山及安徽芜湖市的物流物业资产，合共估值61亿港元。
 
-顺丰集团继一季度巨亏9亿，而一下子引起广泛热议，顺丰的掌门人王卫也是站在了聚光灯下。对于这样一家原本顶着“优质、稳定”的企业，一季度的财报表现，可谓出乎意料，让人大跌眼镜。其股价也在财报公布后的第二天，直接跌停。顺丰自成立以来，就在该领域走高端路线，其布局国际市场，也是开中共国内所有快递企业的先河，但面对日益萎缩的经济，对快递行业的冲击，内部竞争越来越激烈。因此，面对日益激烈的竞争局面，一方面顺丰将市场下沉，走下神坛拥抱低端市场，以获得更多的市场份额，另一方面，也寻求更多的融资融资通道，缓解集团的资金压力。
+> Great meeting with [@HeikoMaas](https://twitter.com/HeikoMaas?ref_src=twsrc%5Etfw) at [#G7](https://twitter.com/hashtag/G7?src=hash&amp;ref_src=twsrc%5Etfw) to discuss China, Russia, Iran, and other issues. Germany is an indispensable partner for facing common challenges and promoting our shared agenda. [pic.twitter.com/v4yOCx78Dt](https://t.co/v4yOCx78Dt)
+> — Secretary Antony Blinken (@SecBlinken) [May 4, 2021](https://twitter.com/SecBlinken/status/1389614318497456135?ref_src=twsrc%5Etfw)
 
-但中共国面对岌岌可危的国际地位，一旦经济与西方世界脱钩，其危险程度无疑是核弹级别的，那么最近中资背景的公司频繁去美国和香港上市，究竟是自救，还是捆绑世界资本收割最后一波韭菜呢？
 
-（本文只代表作者观点，与Gnews平台无关。）
 
-**新闻来源**：[顺丰房托香港IPO筹资高至26.8亿港元 料今年年化收益率5.3-5.9%](https://cn.reuters.com/article/sf-rea-trust-ipo-hk-0504-idCNKBS2CL0SL?il=0)
+参议员瑞克·斯科特： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 强迫维族人从事奴工，以在新疆采摘棉花。然而，NBA正在出售由一家 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 公司生产的鞋，该公司从那里采购棉花。 只要这种情况持续下去，NBA就会成为中共令人恶心的侵犯人权行为的同谋。 【转freebecon推文：NBA网店销售的鞋是由一家使用新疆棉花的中共国公司生产】
 
-***校对发布**：文顾*
+
+
+> Communist China forces Uyghurs into slave labor to pick cotton in Xinjiang – yet, the [@NBA](https://twitter.com/NBA?ref_src=twsrc%5Etfw) is selling shoes made by a Chinese company that sources its cotton from there.
+> 
+> As long as this continues, the NBA is complicit in Communist China's disgusting human rights abuses. [https://t.co/sfQ5SQ6Vbf](https://t.co/sfQ5SQ6Vbf)
+> — Rick Scott (@SenRickScott) [May 4, 2021](https://twitter.com/SenRickScott/status/1389643878173716492?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： 亚当·西尔弗(Adam Silver)通过声称与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的交易是“净收益” 而为自己辩解。帮助支持 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 没有任何积极意义。 对于那些应该对玩弄游戏了解很多之人，你在被人耍弄，西尔弗。 【转布赖特巴特新闻网：NBA总裁亚当·西尔弗将NBA与中共国的交易称为“ 净收益”】
+
+
+
+> Adam Silver is justifying his deals with China by claiming they’re a ‘net plus’. There’s nothing positive about helping support the Chinese Communist Party. 
+> 
+> For someone who should know a lot about plays, you’re being played, Silver.[https://t.co/RlmldwuwHz](https://t.co/RlmldwuwHz)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 4, 2021](https://twitter.com/MarshaBlackburn/status/1389644034495373314?ref_src=twsrc%5Etfw)
+
+
+
+众议员保罗·戈萨尔： 需要对这些与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 相关联的公司进行法医式审计，这些公司收取了(本应)供美国纳税人使用的PPP(薪资保护计划)资金。 【附大纪元文章链接：与中共有关联的公司可能已收到超过4亿美元的病毒救济贷款】
+
+
+
+> There needs to be a forensic audit these [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) linked firms who received PPP money meant for American taxpayers. [https://t.co/UH3XdNx1z0](https://t.co/UH3XdNx1z0) via [@news\_ntd](https://twitter.com/news_ntd?ref_src=twsrc%5Etfw)
+> — Rep. Paul Gosar, DDS (@RepGosar) [May 4, 2021](https://twitter.com/RepGosar/status/1389649821376602112?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬佩奥： 如果你提高了能源花费，让投资美国的企业们增加负担，减少了小微企业尝试风险的能力，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 就会支配我们。我们需要强力的领导来面对这些威胁，而不是自由派的心愿清单Quote Tweet
+
+
+
+> If you raise energy costs, burden companies that invest in America, and reduce the ability for small businesses to take risks, then China will dominate us. We need strong leadership to confront these threats, NOT a liberal wishlist.
+> — Mike Pompeo (@mikepompeo) [May 4, 2021](https://twitter.com/mikepompeo/status/1389573653768151043?ref_src=twsrc%5Etfw)
+
+
+
+比尔·戈茨： 美国国防情报局局长披露，中国最高领导人习近平采用了“舵手”头衔，它在毛泽东的个人崇拜和大屠杀统治期间是最后一个用过的称号。【转推华盛顿时报，习近平采用了毛泽东的“舵手”称呼】
+
+
+
+> DIA director reveals Chinese supreme leader Xi Jinping has adopted the title “helmsman” last used by Mao during his personality cult and reign of mass murder [https://t.co/7ZQgDm4W6X](https://t.co/7ZQgDm4W6X)
+> — Bill Gertz (@BillGertz) [May 4, 2021](https://twitter.com/BillGertz/status/1389553880820862977?ref_src=twsrc%5Etfw)
+
+
 
 0

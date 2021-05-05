@@ -1,53 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】60多个美国体育场所引入疫苗护照
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1171710/)
+## 匈牙利 成为中共国通往欧洲的门户
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1171883/)
 
-作者：纽约香草山农场写作组  四季
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
-
-
-
-零对冲5月4日报道，美国60多个体育场馆和其他场所正在为夏天部署疫苗护照（或通行证或证书），以使经济“恢复正常”。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04162840/0-2021-05-03_06-38-06-1.png)图片来源：[ZeroHedge](https://www.zerohedge.com/covid-19/vaccine-passports-coming-sports-venues)
-
-美国职业棒球大联盟的旧金山巨人队和纽约大都会队是第一批要求球迷出示疫苗接种证明或通过一个名为Clear的应用程序验证其COVID-19近期阴性测试的一些球队中的一员。这些球队将接受医疗文件作为证明，但他们鼓励所有体育迷下载Clear应用程序以获得便利。
-
-Clear已通过将所有旅行文件固定在一个应用程序中，简化了旅客经由机场旅行的过程。现在，Clear正在机场以外的60多个美国体育场馆和其他场所应用。截至4月，Clear约有14.2万次下载。
-
-随着疫苗护照的使用从机场向体育场馆滚滚而来，人们对该应用程序的潜在范围和影响的担忧正在增加。隐私组织电子前沿基金会担心Clear会持有用户的敏感医疗数据，并将其转化为消费者追踪器。但Clear表示，用户可以控制他们的健康记录。
-
-目前，美国的几个州已经表现出反对疫苗护照的决心。其中包括目前的德克萨斯州、田纳西州、佛罗里达州、密西西比州。我们猜想还会有更多的州跟进。
-
-中共病毒的灾难历经一年多的时间都没有被追究病毒的真相，反而政府却企图通过集权主义控制人们最基本的日常生活。难道以后所有的公共场所都将需要护照了吗？
-
-原文链接：
-
-[Vaccine Passports Are Coming To Sports Venues | ZeroHedge](https://www.zerohedge.com/covid-19/vaccine-passports-coming-sports-venues)
+```
+新闻来源：德国世界报网络版  
+记者：菲利普·弗里茨（Philipp Fritz）
+         马克西米利安·卡霍夫（Maximilian Kalkhof）
+发布时间：2021年5月4日
+```
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04181816/8925c6d4be1a30bfe27be8ea1fe8e839.jpg-1.png)图片来源：亿忆网站
 
-编辑/校对/发稿：小鹿
+匈牙利总理奥尔班为中共国提供了建立大学的场所。这只是争执中的最新篇章，正在成为欧盟和北约的风险。布达佩斯正在发展成为中共国通往欧洲的门户。在所有事情中，匈牙利都不惧怕真正的危险。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+按照总理维克多·奥尔班（*ViktorOrbán*）的意愿，到2024年将在上海建立上海复旦大学的一所分支机构。但是现在还没有开始建立。 这对布达佩斯市议会在其市长格格利·卡拉奇尼（*Gergely Karácsony*）的领导下是一个打击。实际上，应该在匈牙利首都大贸易博览会（*Nagyvásártelep*）的大市场广场上建造学生宿舍，该市场长期闲置。但是现在什么也没有了。
 
-**更多资讯，更多关注**
+卡拉奇尼市长说，为了使匈牙利能够为中国在欧洲的影响力提供服务，“给我们的孩子们留下了超过5,000亿福林的债务。”市长的抗议可能毫无用处。因为匈牙利和中国之间的关系要重要得多。欧盟和北约应该密切注意的事情。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+#### **简评：**
 
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+**匈牙利是从前东欧社会主义阵营的成员，今年也是唯一一个违背欧盟规定，引进中共疫苗的国家。现在又成为了中共国进入欧洲的门户。真的还想回到从前吗？这里面的各种交易我们也是无从而知，好在这篇文章的最后一句话，已经提醒了，要让欧盟和北约密切关注这个时间的继续进展。**
+（本文只代表作者观点， 与 Gnews平台无关。 ）** **
 
-[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
+**新闻原文链接：**🔗[Chinas Einfallstor nach Europa](https://www.welt.de/politik/ausland/plus230840525/Ungarn-Chinas-Einfallstor-nach-Europa.html)
 
-[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
+* * *
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
-
-
+***翻译整理/ 简评：** Shuizhuyu* **编辑整理/校对:***** **Ting Guo*
 
 0
