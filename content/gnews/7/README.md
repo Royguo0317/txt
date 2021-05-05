@@ -1,15 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210505
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1177016/)
+## 印度5G试验将华为及中兴拒之门外
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1177122/)
 
-- 制图：透明的遮羞布
-- 编辑：神奇四侠
+俄罗斯莫斯科喀秋莎农场  银河
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172614/01-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172638/02-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172704/03-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172725/04-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172744/05-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172804/06-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172823/07-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172842/08-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172903/09-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172925/10-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172953/11-7.jpg)
-以上文字图片仅代表作者个人观点，与GNEWS无关
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/I-2.jpg)news18.com
+路透社5月4日报道，印度政府表示，印度将允许移动运营商与爱立信、诺基亚和三星的网络部门等设备制造商进行5G试验，中共的华为、中兴未进入名单。
 
-发稿：神奇四侠
+华为拒绝置评，而中兴通讯和印度商务部没有立即回应就涉及公司名单置评的请求。
+
+尽管印度没有点名中共企业参加为期6个月的试验，该试验旨在不同环境下测试5G设备和技术，但印度没有禁止中共国企业向运营商提供5G设备。
+
+不过，两名政府官员3月曾透露，根据将于6月生效的采购规定，印度政府可能会禁止移动运营商使用华为制造的电信设备。
+
+按手机用户数量计算，印度是世界第二大市场。政府消息人士此前曾表示，出于安全方面的考虑，以及帮助本土电信设备制造商的愿望，有关部门对向中共企业授予新技术业务持谨慎态度。
+
+印度当局电信部门今年3月表示，6月15日后，运营商只能从政府批准的“可信来源”购买某些类型的设备，并表示印度政府还可能制定一份“禁止采购”供应商名单，华为和中兴很可能在这份禁令名单上。
+
+参考链接：
+
+[https://www.reuters.com/article/india-telecoms-idCNL1N2MR0TX](https://www.reuters.com/article/india-telecoms-idCNL1N2MR0TX)
 
 0

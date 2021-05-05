@@ -1,51 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】欧洲危机四：灭“白”计划（欧洲）
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1176637/)
+## 特别翻译：劳伦斯•塞林博士关于新冠病毒是中共生物战项目结构的声明
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1176736/)
 
-作者：纽约香草山写作组：文尊
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04221555/s2-2.jpg)
+劳伦斯•塞林博士关于新冠病毒 [#Covid19](https://twitter.com/hashtag/Covid19?src=hashtag_click) 和 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 生物战项目结构的声明 （附油管视频：[http://youtube.com/watch?v=qFSQih](https://t.co/fE4hlgWHVG?amp=1)…）
 
 
 
-郭文贵先生在一次直播中借印度电影《白虎》揭露了中共的“灭白计划“。 中共发动的病毒生化武器超限战是消灭白人即”灭白“的开始，也是13579计划的核心。同时也是潘多拉魔盒最黑暗的目标。本文在这里将话题拓展，通过讲欧洲的危机来揭露另一个黑暗势力阴险计划。本文中的“白”指欧洲血统的白人（文中提到的穆斯林的灭“白”主要指穆斯林的高出生率，文化、宗教渗入和极端穆斯林的恐怖活动）。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05134540/%E5%9B%BE%E7%89%8717-1.png)*图源网络*
-
-《荆轲刺秦》中讲到的剑法之最高境界：手中无剑，心中亦无剑。《孙子兵法》讲兵家之最高境界：不战而屈人之兵。两者都蕴含着大胸怀。这样的道法被善人运用是福，被恶人利用便是祸。战争最强大的毁坏力并非摧毁对方的武力，而是磨灭对方的意志（反之亦然，最强大的力量并非武器，而是人们的意志），这就是我们说的超限战。现代化的超限战来自共产主义，也来自极端伊斯兰的穆斯林。欧洲正面临着前所未有的危机，而这场危机的终极目标即是摧毁人的意志，即，灭“白“计划。
-
-欧洲面临着内外夹击：外有大规模的穆斯林移民涌入，内有逐年递减的出生率。 这是一个很可怕的现状。 相对每天几千人的难民涌入量，欧洲的平均生育率还不到1.2（正常是2.1），而欧洲的穆斯林生育率却高达3.5。欧洲对穆斯林文化表现出的软弱，以至连“穆斯林”这三个字在公共场合都变得如此敏感。更有因担忧英国的十字国旗会让穆斯林想到十字军而被迫取消悬挂国旗的文化妥协，还有因在穆斯林区的非穆斯林女性要戴面巾以示尊重穆斯林文化的文化同化。欧洲人的担忧：欧洲正在被穆斯林化。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05134912/%E5%9B%BE%E7%89%8718-1.png)图源网络：欢迎来到“巴黎斯坦”
-
-权力家族控制的组织散布的数据和末世预言，让爱阅读的知识份子不愿生育，而文化层次低的人群却努力生育。 欧盟15岁以下人口的比例大致是15%, 但是沙特、巴基斯坦等阿拉伯国家比例却在40%甚至以上。目前世界上出生率最高的国家包括：尼日尔（7.46），马里（7.42），索马里（6.76）， 阿富汗（6.69），也门（6.58）。人口的入侵，让穆斯林轻松地在欧洲实现了“不战而屈人之兵”，而接下来的文化认同将很快成为欧洲的多元文化的主流。这是非常危险的信号。据英国一项调查显示：26%的英国穆斯林表示他们不会忠于英国；40%支持用伊斯兰教法取代英国法律；更有13%支持恐怖活动。全球加入“伊斯兰议会”的穆斯林人口就高达10亿人以上。新世纪的超限战，除了中共运用的如火纯青，其次就是穆斯林了。
-
-全球最大的13个利益家族和精英集团（见[香草解评：【世事解评】共产主义蚕食世界（四）——精英集团 – GNEWS](https://gnews.org/zh-hans/879575/)）掌控着无数的委员会、俱乐部、协会、慈善组织、基金会、国际组织等。每年他们会释放大量的信息和数据，有心的人便会发现，这些信息大多和世界性的危机有关，如能源、气候等。而最终他们是将解决的方式推向大政府。
-
-美国拥有世界上最强大和先进的军事力量，而高额的军事支出同时也使世界上的高福利国家节省了军费去支付社会福利，但是讽刺的是欧洲人憎恨美国人的数量却在增加。欧洲人民对政府的依赖越来越强，欧洲血统的出生率越来越低，老龄化越来越严重。 再过20年，养老金的支出就会让欧洲国家政府面临崩溃。高福利的社会体系将会让后代子孙的生活举步维艰，随着养老基金的崩溃，福利社会体系也将随之坍塌。
-
-穆斯林移民的增加, 人口结构比例改变， 文化、宗教的渗入， 将直接影响到政治格局的变化。如果欧洲发生内战，谁将会是赢者？其实内战一直都在进行，看看欧洲与日俱增的暴乱，再加上中共病毒的助攻，人民、国家正在崩溃的边缘。《VOCAL Europe》曾经报道：“欧盟原本是想建成一个家，但是走进却发现一切都在崩溃。” 这就是大政府，欧盟结构的权力非民主集中化，正在摧毁着欧洲的“自然生态”。
-
-看啊，欧洲，你将巴比伦请到家里，你将宝座为魔鬼预留，你在新罗马建邦。你可看到， 天启四骑士正在登场。
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
+> A statement by Dr. Lawrence Sellin about the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) and the structure of the Chinese Communist Party's biowarfare program[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/tcPupWMGH1](https://t.co/tcPupWMGH1)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389641506240225284?ref_src=twsrc%5Etfw)
 
 
 
-**更多资讯，更多关注**
+以下为YOUTUDE视频中文翻译
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+我是赛琳博士，此信息是给还在试图掩盖 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 真相的那些政客们，媒体们尤其是科学界的学者们，不管你们是出于个人利益还是政治目的，你们在虚假宣传 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 源于自然界。它根本不是源于自然的。 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 是一个大范围的“功能增益型”病毒研究，所制造出的产品，这些研究是来自 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 科学家们利用的军民融合等项目。也就是说 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 来自实验室。 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 有太多不寻常的的特征，这些特征根本不能用自然进化论解释。[#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 具有的福林酶切位点，在任何蝙蝠病毒中都找不到。这个特征表明它直接与人造 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 有关。福林酶切位点可增强病毒传染性和致病性。而 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 科学家们知道如何人工干预插入它们。唯一的遗留问题是 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 是出自哪里并如何制造的，以及病毒的释放是泄露的还是故意的。在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 统治的中国，军方病毒研究机构和民企病毒研究机构没实质区别，它们其实是捆绑在一起的。 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 2016年公布的5年计划中明确声明是计划的一个目标。自2020年底，随着大量 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的科研信息被披露，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) ，西方国家政府部门和媒体开始审查封杀此类信息 。我于是决定改变我的分析策略。 你们很多人可能知道，二战时德国有个密码机器叫Enigma, 艾伦•图灵（Alan Turing）因破解Enigma而闻名。但其实还有个鲜为人知的天才起了重要作用。他是戈登•韦尔奇曼(Gordon Welchman)。在Enigma 被破解之前，戈登•韦尔奇曼采用了一套技术叫做“通信分析”系统，来判断破解，比如说，德国军队的调遣以及德国发出的指挥命令等。他的那套理论叫做Hut Six. 现在我和一位 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 侦探已经改进了戈登•韦尔奇曼的通信分析法，来用于对中共病毒战计划的整个网络进行分析。下面这些是我们目前发现的：中共生物战项目分为3个级别，秘密军事计划是核心，并建立在民间研究所和大学研究项目之上。这种层次结构为病毒研究提供了必要的手段，通过与国际病毒研究机构的互动从而获取相关知识和研究成果。所有这些收获最后都流向了中共的生物战核心项目。中共生物战项目的起源和传统核心并非出于医药目的，而是兽医学还有部分农业学。在二战期间，日本帝国军队在满洲里有个生化武器研究所，叫731部队。它的官方名字叫：“防疫和水净化部门”。其实还有第二个研究中心–100部队，官方称为“关东军战马疾病预防所”。当 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 军队在1949年夺取中国政权后，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 沿袭了日本人的方式，将生物战研究纳入兽医研究，在北京，成都，广州，南京和云南建立了“战马健康研究中心”以及类似的研究机构。基本上，这些机构部门都隶属于中共战区军队的管辖。 1953年，5所中共解放军兽医大学被并入长春的一所大学。该位置就在原日军731部队研究所以南140公里左右。而武汉，尤其是武毒所，成为了这次病毒大流行的中心，备受关注。有关 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的研究工作在多个军方控制的设施中完成，涵盖病原体培养及相关疫苗开发。由长春军事兽医研究所带头，在国内及国际上展开了大量的收集病毒的工作。 就是那个病毒收集项目为#中共病毒 提供了蝙蝠冠状病毒的骨架,以及创建了像RaTG-13这样的中介病毒，并被错误且广泛的宣传为目前流行的冠状病毒的鼻祖。在北京军事医学科学院的监督带领下，他们把最感兴趣的病毒都收集并分发给不同的实验室。武毒所，武汉大学病毒实验室以及武汉军医院都是这个项目的核心参与部门。在下一集的视频中，我会详细介绍 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 如何利用全球的关系网来壮大他的生物战项目。特别是 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 如何深层次渗透美国的病毒研究项目。
 
 0
