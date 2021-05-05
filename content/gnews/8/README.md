@@ -1,46 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】新版中共简史篡改历史
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1172678/)
+## 欧盟中止了中欧投资协议
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1172795/)
 
-配音：香草山录音组 熊井（文兰）
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/E-3.jpg)neewss.com
+《华盛顿观察》发表文章，题目为“欧中协议以默克尔被‘击倒’的方式而‘中止’”。
 
+全文如下：
 
+欧盟官员“中止”了那个有争议的、与中共国签署的投资协议，他们曾试图批准这个协议，这表明德国总理默克尔（Angela Merkel）的影响力正在减弱，以及跨大西洋（联盟）对北京侵犯人权的行为越来越感到愤怒。
 
+“我们现在从某种意义上来说已经中止了……从欧盟委员会方面的政治外联活动。” 欧盟执行副主席瓦尔迪斯·多姆布罗夫斯基（Valdis Dombrovskis）对法新社（Agence France-Presse）说。
 
+这一事态发展标志着默克尔受挫，默克尔带头要求在12月结束有关投资全面协议的谈判，尽管当时即将上任的拜登总统的团队敦促欧洲官员推迟谈判。默克尔和欧盟内的主要人物继续向前，但随后决定与美国一道制裁一些对维吾尔族穆斯林暴行负有责任的中国共产党官员和个人，这在布鲁塞尔（Brussels）和北京之间出现了新的裂痕——默克尔就在上周试图弥合这一裂痕。
 
+德国的莱因哈德·布伊特科弗（Reinhard Buetikofer），也是欧洲议会与中共国关系代表团团长，说：“上周，德国与中共国政府举行磋商，（默克尔）曾推动早日批准（中共国投资协议），这等于是当之无愧的一记重击。”5月4日他在推特上说,“ 她应该再想想，只要她还活着，她是如何定位德国的。”
 
+正如中共国官方媒体所说，布埃蒂科弗是“中共国制裁名单上的头号人物”，当时北京针对10名个人和4个实体反制裁，代表长期受苦的维吾尔人报复西方制裁。
 
-2021年新版《中国共产党简史》，在中共建党100周年前夕推出。与2011年的旧版简史相比，新版简史做了哪些修改？笔者认为，比较大的改变，包括三个方面。
+多姆布罗夫斯基说：“很明显，在欧盟对中共国实施制裁，中共国采取反制裁措施，包括针对欧洲议会成员的反制裁措施的当前形势下，这样的环境不利于批准协议。”
 
-首先，对于1949年以前的历史，新版简史加重描写了长征，突出了毛泽东在长征中的作用。旧版对长征的描述相对简短，点到为止。新版则详细描述了遵义会议在党史中的重要地位，以及自遵义会议以后，毛泽东指挥中央红军“根据实际情况的变化，灵活变换作战方向”，四渡赤水，南渡乌江，佯攻贵阳，渡过金沙江，成功“摆脱了国民党反动军事力量的围追堵截”。强调这一切“充分显示了毛泽东高超的军事指挥艺术”。称其”在最危急关头挽救了党、挽救了红军、挽救了中国革命”。
+拜登正试图组建一个“民主国家联盟”，以应对中国共产党的威胁——这一举措是建立在前国务卿蓬佩奥（Mike Pompeo）努力“建立一个联盟”的基础上。
 
+“在贸易和商业方面，我们希望看到向上的竞争，而不是在基本投资标准方面，在确保我们关注的环境方面，在确保我们保护工人权利方面，向下的竞争。” 美国国务卿布林肯（Antony Blinken）5月4日对英国《金融时报》（Financial Times）表示，“当我们保护知识产权和技术不被盗窃时，当各国齐心协力的时候，中共国更有可能不得不遵守这些规则，而不是它武断制定的规则，这些规则被证明是一场向下而不是向上的竞争。”
 
+布埃蒂科弗则对这一挫折感到欣喜，不仅对中共国如此，默克尔也对这一挫折感到高兴，默克尔在支持有争议的俄德管道“北溪2号”（Nord Stream 2）的问题上与美国也存在分歧。
 
-**文字版原文：[【世事解评】新版中共简史篡改历史](https://gnews.org/zh-hans/1163216/)**
+“很少有德国总理在欧洲如此孤立！” 他在推特上说，“对于所有希望在9月选举后有一个新开端的人来说，这是个好消息。”
 
-作者：纽约香草山美食部 蓝天大海
+（原文完）
 
+这是世界在认知邪共的进程中又向前迈了一步，默克尔凭你的智商和认知能力能看不清中共的邪恶？是什么力量促使着你要“加快谈判程序，与中共国早日签约”？小心这个从小接受共产主义教育的异类！否则她哪有那么大的魔力捍卫邪恶的中共？
 
+原文链接：
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://www.washingtonexaminer.com/policy/defense-national-security/eu-china-deal-suspended-slap-down-angela-merkel](https://www.washingtonexaminer.com/policy/defense-national-security/eu-china-deal-suspended-slap-down-angela-merkel)
 
 0

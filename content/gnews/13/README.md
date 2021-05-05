@@ -1,224 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 战友展览板【5/4】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1172078/)
+## 2017年5月19日报平安直播 感恩推友关心 呼吁推友冷静
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1172022/)
 
-**西班牙巴塞罗那喜悦农场 **wenwu
+**出品：****Gnews****编辑部郭先生直播资料库整理工作组**
 
-【以毒灭共】推文。如下
+我绝不会妥协，也不会天真，我知道你们要我闭嘴想灭了我，所有人对你们的怀疑和不信任，所有人开始认清你们的本质就是我爆料的价值所在。日本的某个媒体现在被日本政府要求，每天要向他们报告所有关于我的新信息，用来和政府情报部门提供的信息进行比对。现在N个国家，因为我的爆料成立了专门的翻译小组。
 
+——郭文贵
 
+**要点一：****国家的体制出了问题，管理者就变成了控制者和压迫者。**
 
-> “If you remove replicating capabilities of ([#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)) virus, it still has a major damaging effect on vascular cells, simply by virtue of its ability to bind to ACE2 receptor”
-> To layman: Spike protein can induce vascular damage (e.g. blood clots) itself.[https://t.co/b21SrdbkvJ](https://t.co/b21SrdbkvJ)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 3, 2021](https://twitter.com/DrLiMengYAN1/status/1389243443097001986?ref_src=twsrc%5Etfw)
+很多推友发私信，让我看今天的新闻联播，5月18号傅振华又上主席台了。中央电视台现在很戏剧、很滑稽。从昨天上一次直播之后，又录制了两个中英文版的关于出现突发事件联络人的视频，引起了强烈的反响。我必须保持乐观，绝不能被他们吓到。如果国家的管理者他本身的管理能力和体制、制度出了问题，社会矛盾加深的时候，他就从管理者变成了控制者。控制者和管理者之间的差距相当大，管理者是以人民认可的一个被管理的关系，是互动关系。当互动逐渐消失，缺乏信任的时候，管理者就变成了控制者，控制社会和谐、社会矛盾，人民和政府间的关系就变成了单方被管理的不和谐关系。当一个国家的管理者转变为国家的压迫者的时候，这个国家一定会出问题。所以现在的社会不会和谐，各种社会矛盾层出不穷，奇怪的事情也层出不穷。
 
+**要点二：感谢各界朋友的关心，呼吁推友们做两件事情**
 
-1. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1389243443097001986?s=20)**：
-*“如果你去除（#COVID19）病毒的复制能力，它仍然对血管细胞有重大的破坏作用，仅仅是凭借它与ACE2受体结合的能力”
-对外行来说：[突刺蛋白本身就能诱发血管损伤（如血凝块）](https://www.salk.edu/news-release/the-novel-coronavirus-spike-protein-plays-additional-key-role-in-illness/)*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04201849/E0e9vDEVkAAMJzk.jpeg)2. **[公民记者推特](https://twitter.com/NFSC_007/status/1389290816057663490)**：
-*为了方便更多的战友参与到挖料中来，总结了一些简单的方法和思路的教程。用以解决战友们无从下手的问题。 挖料行动，没你不行*
+昨天收到了两个退伍军人和老人家一起，在一个房间里面为我唱歌的视频，我看哭了。他们一家三代都是军人，孙子孙女现在还在部队，老人家和儿子一起向我祝福，表达对我的担心，然后说我也是他们的儿子，非常感动。这个社会需要真相，如果连相对的真相都没有，那就是绝对的假象，绝对的假象就意味着绝对的控制。易租宝还有泛亚的朋友，为了表达对我的担心和关心，要捐钱甚至要卖房子，然后说只要我一声呼唤，大家愿意不惜一切代价去自焚、点汽车。这是令人担心的，大家是被压迫以后反弹的力量，借着我的事件成了一个情绪发泄的理由，这也是社会矛盾的具体表现。我再次呼吁，任何人不要有任何冲动的行动，否则就是给我们的敌人——盗国贼借口。我呼吁推友们做两件事情：第一，杨建利已经呼吁向白宫十万签名，我不反对，如果提前跟我商量我一定不同意。但是已经开始了我们就不能丢人，不能连十万人都没有，所以我强烈呼吁把十万签名的事情完成。第二，感美节大家出创意，我强烈要求推友们在方便的情况下可以参与的事情，除此之外什么都不能做。我们需要的是国家继续繁荣和稳定，在这个基础上争取国家宪法赋予我们的基本权利、应有的尊重和我们的利益。一旦脱离这个主题，就会像八九六四事件一样，会让很多人流血牺牲，会让很多人的家庭妻离子散、家破人亡。
 
+**要点三：自媒体时代已经到来，文贵先生的推特、****YouTube****以及英文版震撼了全世界。**
 
-> Yes, RaTG13 is the closest relative to [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) because it is also a laboratory construct, an intermediate, drawing board virus on the way to COVID-19. The CCP & some influential CCP-friendly Western scientists fooled other scientists to write 100s of articles about a fake virus. [pic.twitter.com/3w9oM4JRwT](https://t.co/3w9oM4JRwT)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389488592926486528?ref_src=twsrc%5Etfw)
+这几天在欧洲和日本有几个大的学术研讨会，讨论的都是自媒体时代的到来。我认为人类很快将没有平面和传统媒体，未来一定是自媒体的天下。以我的推特为例，一天两千多万的转发量，每天国外十亿的点击量，这是任何媒体都做不到的。我Youtube的订阅量，从前两天的一万多已经突破了四万，超过了明镜，收发量已经超过了美国之音。我们的英文版推出之后引起了世界的震撼，现在在中东、非洲很多地方都形成了地方语言的版本，影响巨大。
 
+**要点四：香港存在执法黑屋**
 
-3. **[Sellin博士推特](https://twitter.com/lawrencesellin/status/1389488592926486528?s=21)**：
-*是的，RaTG13是与 #新冠病毒 最接近的亲属，因为它也是一个实验室构建的病毒，是通往新冠病毒的中间产物、画板病毒。中共和一些对中共友好又有影响力的西方科学家愚弄了其他科学家，写了100多篇关于一种误导性的病毒文章*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04203011/E0hKm3KWEAA5nyl.jpeg)4. **[Sellin博士推特](https://twitter.com/lawrencesellin/status/1389442615960129538?s=21)**： 
-*致所有COVID-19侦探。 请搜索。 
-（舟山蝙蝠）ZC45和ZXC21发生了什么？ 
-ZC45和ZXC21于2018年在第三军医大学进行了研究，然后消失了。 他们去了哪些其他实验室？ 长春军事兽医研究所？*
+香港存在执法黑屋，过去几年来，在香港有几千个警察在华润大厦、在铜锣湾常驻办黑案，在火炭也有执法黑屋。马健副部长在香港太古城的房子，肖建华在香港的家都是他们去搜查的，已经有人把视频给我了。过去几年的反腐运动有将近三万人都在香港有房子、有家，他们的房子都是谁去搜查的？马建副部长在没有被双规前，他的下属就专门负责在香港做这种事情，香港的警察完全视而不见。老百姓还相信一国两制，基本法根本就是骗人的。
 
+**要点五：今天的局面是盗国贼造成的，人民和正义的力量不可小觑**
 
-> 致所有COVID-19侦探。 资金：军事后勤研究项目（编号AWS161020，AWS161021，AWS16102）通常意味着与长春军事兽医研究所的链接。 (Biao He) 军事兽医研究所的何彪从蝙蝠身上收集了ZX45和ZXC21。 跟着钱。 [https://t.co/87Kuj5goOY](https://t.co/87Kuj5goOY) [https://t.co/b90GEp9zQ7](https://t.co/b90GEp9zQ7)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389461628744306690?ref_src=twsrc%5Etfw)
+老领导原来不喜欢唐柏桥，但看了唐柏桥先生的文章后，刮目相看。他原以为赵岩就是搞维稳的，最近赵岩的眼泪让他们感动。他们给我提供信息说《博讯》的韦石非常坏，本名叫孟维参是河北的，有两个弟弟孟维松和孟维康，就是负责删帖的，而且跟各个部门有联系。现在通过我的爆料，大陆很多内部的朋友去核实soho潘石屹的事情，发现我说的完全准确，有些事比想象的还夸张。还收到了很多有黄艳签字的文件。这就是人民的力量，正义的力量。我希望盗国贼们想想是谁造成今天我说一句话就达到十亿关注量，十几亿转发量的局面，因为大家不相信你们了！盗国贼绑架了国家机器，绑架了习主席，绑架了政府，形成了与人民的对抗。
 
+**要点六：文贵先生谈爆料的价值所在**
 
-5. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1389461628744306690?s=20)**：
-***（Doven Y)**通过蝙蝠病毒的进一步研究，成功提取出了两株新的SARS病毒,新毒株SL-CoVsZC45在蝙蝠组织上感染乳鼠。来自中国人民解放军陆军军医大学，2019年。(从文献上暂时只看到2018年以后出现在这所大学）
+傅政华又坐到了主席台上，我广东的朋友打说在你我的事情发生之后已经绝对不相信反腐了。傅政华和中央领导人坐在一起，是傅政华绑架了中央还是中央在利用他宣示，只要管用、敢干、符合我的利益，就没有反腐的问题。2014年底抓我的儿子，2015年1月10号抓我的家人，抓马建副部长，胡舒立造谣我是权力的猎手，访问我家祖坟说我是草根，说我和令计划有关系。现在又查明了，我跟令计划、张越、周永康、马建没关系，而且我是给国家立大功的人。老领导说这不是反腐，也不是以贪反贪，是绑架国家机器。我绝不会妥协，也不会天真，我知道你们要我闭嘴想灭了我，所有人对你们的怀疑和不信任，所有人开始认清你们的本质就是我爆料的价值所在。日本的某个媒体现在被日本政府要求，每天要向他们报告所有关于我的新信息，用来和政府情报部门提供的信息进行比对。现在N个国家，因为我的爆料成立了专门的翻译小组。
 
-**（Sellin)**致所有COVID-19侦探。 资金：军事后勤研究项目（编号AWS161020，AWS161021，AWS16102）通常意味着与长春军事兽医研究所的链接。 (Biao He) 军事兽医研究所的**何彪**从（舟山）蝙蝠身上收集了ZX45和ZXC21。 跟着钱*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04203650/E0dcJsgVoAEqgTR.jpeg)6. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1389428627809443841?s=20)**：
-***（Devon Y)**夏咸柱通过小鼠的传代实验，经过9代以后，用MDCK细胞扩繁病毒，得到了JN-P9-2-M1毒株，该毒株比原病毒毒性提高了至少1000倍，对小鼠致病能力得到初步提高
+**要点七：文贵先生解释****“****三不反****”****的原因**
 
-**(Sellin)**中国人民解放军的兽医们公开通过实验室操作（传代过程中）使一种人类流感病毒变得更加危险。长春军事兽医研究所和相关研究中心似乎是中共生物战计划的核心要素*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04204230/E0ge3nTXoAAZkZV.jpeg)7. **[Sellin博士推特](https://twitter.com/lawrencesellin/status/1389425795723153409?s=21)**：
-***（MosTrans)**夏，秦，金三人之间的密切联系
+到现在为止，我掌握的所有资料现实超过百分之八十的人认为中国的希望是习主席。马建副部长在十八大快结束的时候曾经到盘古来，我问他希望习主席怎么做，他毫不犹豫地说，如果习主席马上推动中国的司法改革会死无葬身之地。这些人已经把国家司法机器牢牢地控制在手中，中国最大的危险是军队腐败，如果不解决腐败问题，早晚军队会造反，一分钟之内中国就结束了。他说习主席必须抓军队反腐，抓司法改革，最后他可能推宪政民主，在三四年内必须集权，否则就成了九龙治水的局面，这国家就没希望了。习主席是现在唯一的希望，是千年不出的圣人，此时此刻的中国人还得韬光养晦，绝对不能折腾，不能乱，我真的听进去了。我不相信国家希望中国出现这样的假反腐、以贪反贪的事件，这不符合国家的利益，也不符合政权，是体制出了问题。假、大、空、傲慢、权力的集中、没有监督，导致了社会的乱象。现在是精神自由的时代，自媒体时代，也叫新闻信息时代。一个iphone手机就是600万数据源，任何力量都管不住。
 
-**（Sellin）**COVID19 侦探 （MosTrans)
-显示了病毒研究网络分析的有效性。中共生物战计划的一个核心要素是军事兽医，他们做了什么研究，与谁有联系。*
+**要点八：要用感美节把五百万的美国华侨团结在一起展现新时代华人的形象。**
 
+在美国搞感美节一旦成功，能把五百万的美国的华侨华人们团结在一起，这是对美国社会一个最好的沟通。一旦有了感美节，感法节、感英节、感日节、感港节都可以有。我已经跟杨建利发了信息，我可以提供财务支持，但是我有三条要求：第一，要在国庆节前完成；第二，我提供财务支持，但需要推友做监督；第三，通过这个事件，向西方证明新时代的华人和盗国贼们说的不一样。
 
-> 为了最终形成完整的证据链，现在需要大家想办法确认最后生成成品病毒的实验室。主要线索：
-> 1、ZC45和ZXC2骨架在18年后的去向；
-> 2、军事后勤科研计划项目；
-> 3、项目资金的流向；
-> 因为已经触及到核心机密，所以痕迹会很少，也肯定被清理过了，所以需要更多人参与才有可能挖出有价值的信息。 [https://t.co/agA9xL8kZ1](https://t.co/agA9xL8kZ1)
-> — Devon Y (@devonJ32130301) [May 4, 2021](https://twitter.com/devonJ32130301/status/1389650806312292353?ref_src=twsrc%5Etfw)
+**要点九：年轻一代要思考自己的未来，通过爆料革命这个巨大的信息平台找到自己的方向**
 
+这么多年轻孩子的参与让我非常感动，我认为这是埋下了未来的一个火种，一个美好的希望，让你们通过我这个事件来思考你们的未来。一定要抓住这次机会，把自己的追求和人生价值观正确的通过这些信息找寻到你们的方向。这是个巨大的资源平台，每天有10亿、20亿人在看，这种影响力和信息的沟通对任何人都是巨大的财富。我没有任何政治目的和金钱目的，他们的恐惧就是我们的武器，他们的恐惧就是我们的胜利。我这几天正在研究全球发“不”会，希望能把信息全面的传递到没有防火墙的国内去。教育是我们的未来，我们的教育部背叛了民族，叫卖族部，外交部是典型的叛国部。
 
-8. **[Devon Y推特](https://twitter.com/devonJ32130301/status/1389650806312292353?s=20)**：
-***（Sellin）**关于 #新冠病毒 的起源和中共的生物战计划结构的声明
-[https://www.youtube.com/watch?v=qFSQihHAjdE](https://www.youtube.com/watch?v=qFSQihHAjdE)
-CCPVirus #UnrestrictedBioweapon #UnrestrictedBiowarfare #OriginOfCOVID19
+**要点十：文贵先生会继续爆料，追求自己的理想和目标**
 
-**(Devon Y)**Sellin博士在声明中确定了该病毒为生物武器，并且是由全国各个院校机构参与，甚至美国的防疫机构也参与其中。现在最需要确定的就是病毒最终的生产实验室，还有是故意还是人为泄漏。因为已经触及到核心机密，网上资料少之又少，所以请大家一起瞄准靶心，找到最后的成品病毒实验室；
-为了最终形成完整的证据链，现在需要大家想办法确认最后生成成品病毒的实验室。主要线索： 1、ZC45和ZXC2骨架在18年后的去向； 2、军事后勤科研计划项目； 3、项目资金的流向； 因为已经触及到核心机密，所以痕迹会很少，也肯定被清理过了，所以需要更多人参与才有可能挖出有价值的信息*
+傅政华、黄艳、朱善璐、王恩哥，我承诺的不爆料时间快到了，如果你们还是没有行动，那我就开始爆料了。我兄弟的鲜血、我全家和员工的自由，再次让我坚定地去追求我的理想和目标。我的爆料，全世界都知道是真的，你们的骇客，推特很多人被自动取消关注，很多人被警察打电话威胁，你们这种比黑社会还黑社会的统治能长久吗？！如果想让我闭嘴，那就让中国人知道真相，依法惩罚那些盗国贼和贪污份子，把人民存在银行里的看病、保命的钱还给他们。这种红色恐怖，即便我闭了嘴也会有下一个郭文贵。如果用我的死换来一场革命，换来国家的繁荣昌盛，真正实现依法治国，那我就不白来人世间一回，是我的荣幸。
 
+**要点十一：文贵先生爆料和香港有重大关系的人****——****刘特佐**
 
-> 塞林博士说，CCP采用二战时日本的生化武器策略，就是将生化武器研究隐藏在兽医和防疫的幌子之下。还提到长春的军事医学科学院兽医研究所距离731部队旧址相差100多公里。卧槽！ [https://t.co/T0ntn87YyK](https://t.co/T0ntn87YyK)
-> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [May 4, 2021](https://twitter.com/jsdfposjpqyuee1/status/1389649075457257472?ref_src=twsrc%5Etfw)
+马来西亚政府有个最大的丑闻，叫1MDB，老板叫Jho Low，他买下了我隔壁的Park Lane Hotel，还拍了《华尔街之狼》。他干爹叫纳吉布,搞了马来西亚几次革命。这个人跟香港政府很多政府官员有交易，跟香港的很多明星有买春的丑闻，还被黑社会给打了。在美国政府爆出1MDB的事情以后，他长期在被关在上海不让出来，美国政府在全力抓他。这个人在过去的三四年拼了命地折腾我，因为他欠了100多亿美元，他洗钱的地方就在香港，而且他在华盛顿的公关公司游说川普总统遣返我，企图瓜分我的资产。
 
+**要点十二：文贵爆料第二季第一集将爆香港政府、警察、司法和议会**
 
-8. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1389649075457257472?s=21)**：
-***（Sellin）**关于 #新冠病毒 的起源和中共的生物战计划结构的声明
-[https://www.youtube.com/watch?v=qFSQihHAjdE](https://www.youtube.com/watch?v=qFSQihHAjdE)
-CCPVirus #UnrestrictedBioweapon #UnrestrictedBiowarfare #OriginOfCOVID19*
+我接下来的爆料就是香港政府、警察、司法、议会，是如何被绑架的。任何人提供香港的建制派议员，超过100万的受贿证据，我给100万现金；一个性爱录像，我给500万现金。所有建制派那天在会上说我坏话的，我一定跟你算老账。你们用黑社会手段对我，我不怕你这一套。铜锣湾事件就说明了，香港必须不能允许任何来自大陆的司法机关执法，否则香港没有安全。香港的核心就是香港人民的国际化，香港不国际化就会被这些盗国贼们盗国化，将死无葬身之地。香港应该打出口号，爱国就要维护基本法，爱国就要反贪，反威胁，反以黑治港，反以贪治港，我一定会跟你们站在一起。香港如果不开始做，将成为人类最可怕的地方，香港将成为空港和臭港。
 
-***（火来)**塞林博士说，CCP采用二战时日本的生化武器策略，就是将生化武器研究隐藏在兽医和防疫的幌子之下。还提到长春的军事医学科学院兽医研究所距离731部队旧址相差100多公里。卧槽*
+致谢：
+听写校对：首尔喜韩农场  文佑(荆棘不鸟) 
+要点选取：纽约香草山农场 理想喜国
+要点编辑：纽约香草山农场  Karen（海啸）
+要点编辑校对：纽约香草山农场 GForever(文紫)
+发布整理：休斯顿星光农场 文顺
+发布：日本樱花团 二丫
 
+视频链接： [https://youtu.be/bZ1wPp-iliw](https://youtu.be/bZ1wPp-iliw) **（****1****小时****23****分****32****秒）**
 
-> It looks like we were just hit by a [#Chinese](https://twitter.com/hashtag/Chinese?src=hash&amp;ref_src=twsrc%5Etfw) biological weapon. 3.2 million dead, and the toll is rising fast. Why are we only learning about this study now? [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wl15Zt43IC](https://t.co/wl15Zt43IC)
-> — Gordon G. Chang (@GordonGChang) [May 4, 2021](https://twitter.com/GordonGChang/status/1389382278489513984?ref_src=twsrc%5Etfw)
-
-
-9. **[章家敦推特](https://twitter.com/GordonGChang/status/1389382278489513984?s=20)**：
-***（Josh Rogin)**劳伦斯·利弗莫尔国家实验室对SARS-CoV-2的起源进行的一项分类研究得出结论，目前大流行病核心的新型冠状病毒可能起源于中共国的一个实验室*
-*[https://wjla.com/news/nation-world/exclusive-classified-study-found-covid-19-could-have-originated-in-chinese-lab](https://wjla.com/news/nation-world/exclusive-classified-study-found-covid-19-could-have-originated-in-chinese-lab)
-
-**（章家敦）**看起来我们刚刚被 #中共国 的生物武器攻击。320万人死亡，而且死亡人数正在快速上升。为什么我们现在才知道这项研究？*
-
-
-> Francis Collins, director of NIH, a physician-geneticist, admitted the necessary of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) lab-origin investigation. 
-> Last Mar, he posted a blog “Genomic Study Points to Natural Origin of COVID-19” to deny lab-origin and deliberately released. Good move![https://t.co/mOuvkCrdaN](https://t.co/mOuvkCrdaN)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 3, 2021](https://twitter.com/DrLiMengYAN1/status/1389356708082880519?ref_src=twsrc%5Etfw)
-
-
-10. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1389356708082880519?s=20)**：
-*美国国立卫生研究院院长弗朗西斯·柯林斯，一位内科遗传学家，承认 #新冠病毒 实验室起源调查的必要性。去年3月，他发表了一篇博客 “基因组研究表明COVID-19的自然起源”，否认实验室起源，并故意发布。这招不错
-[https://republicans-energycommerce.house.gov/news/nih-director-collins-confirms-to-leader-rodgers-the-need-for-further-investigation-into-covid-19s-origins/](https://republicans-energycommerce.house.gov/news/nih-director-collins-confirms-to-leader-rodgers-the-need-for-further-investigation-into-covid-19s-origins/)
-这里是柯林斯博士的博客：
-根据著名的《自然医学》论文 “SARS-CoV-2的近端起源”（自然-起源），他在2020年3月认为 “这项研究没有留下什么空间来驳斥COVID-19的自然起源” #超限科学误导[https://directorsblog.nih.gov/2020/03/26/genomic-research-points-to-natural-origin-of-covid-19/](https://directorsblog.nih.gov/2020/03/26/genomic-research-points-to-natural-origin-of-covid-19/)*
-
-
-> The covid-detectives are filling the gap, the chain of evidence will seal the fact:
-> CCP made the virus and unleashed it as bioweapon!
-> CCP gonna KILL EVERYONE if we don't face the truth!
-> 
-> ➡️Retweet this video, save lives![@LawrenceSellin](https://twitter.com/LawrenceSellin?ref_src=twsrc%5Etfw) [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) [@dezying](https://twitter.com/dezying?ref_src=twsrc%5Etfw) [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) [pic.twitter.com/A6bZ7wL3Ts](https://t.co/A6bZ7wL3Ts)
-> — DCR (@DCR78405411) [May 4, 2021](https://twitter.com/DCR78405411/status/1389503176391331846?ref_src=twsrc%5Etfw)
-
-
-11. **[DCR推特](https://twitter.com/DCR78405411/status/1389503176391331846?s=20)**：
-*新冠-侦探正在填补这个空白，证据链将证实这一事实：
-中共制造了病毒，并将其作为生物武器释放出来！如果我们不面对真相，中共将杀死所有的人。
-如果我们不面对事实，中共将杀死所有人！。
-转发此视频，拯救生命*
-
-
-> Clip, by Valuetainment, 23 Sep, 2020
-> – The truth of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) I revealed in Yan Reports is based on the facts, intelligence and experiences I have
-> – More info will be exposed when available
-> – My ex-boss prof. Malik Peiris in HKU is critical in CCP’s [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) project [https://t.co/qLtIbcioor](https://t.co/qLtIbcioor)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 4, 2021](https://twitter.com/DrLiMengYAN1/status/1389566774224564227?ref_src=twsrc%5Etfw)
-
-
-12. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1389566774224564227?s=20)**：
-***（Andy5)**20200923闫博士接受Valuetainment访谈精华4
-》闫博士能言之凿凿地说病毒来自实验室，是因为真相只有一个、并且掌握证据和信心
-》港大Malik是冠状病毒的顶尖专家
-
-**（闫）**在Valuetainment的访谈, 23 Sep, 2020
-我在闫报告中披露的 #新冠病毒 的真相是基于我所掌握的事实、情报和经验。
-更多的信息将在获得时曝光
-我的前老板香港大学教授 香港大学的Malik Peiris在中共的
-#超限生物武器 项目中至关重要*
-
-
-> 美国务院发布《2021年军控遵约报告》，生化武器部分：
-> – 中共的军事医学院校一直在进行“双重应用”的研究（武器化的恶意科学研究），违反《生物武器公约》第一条
-> – 中共在2020年以“技术问题”为借口，拒绝接受《生物武器公约》要求的例行年度检查。
-> 
-> 中共专家是老熟人：杨瑞馥[https://t.co/ZlPuB3kblx](https://t.co/ZlPuB3kblx) [pic.twitter.com/8rFa5UrldC](https://t.co/8rFa5UrldC)
-> — 德意志之鹰 (@dezying) [May 4, 2021](https://twitter.com/dezying/status/1389392719848542210?ref_src=twsrc%5Etfw)
-
-
-13. **[德意志之鹰推特](https://twitter.com/dezying/status/1389392719848542210?s=20)**：
-*美国务院发布[《2021年军控遵约报告》](https://www.state.gov/2021-adherence-to-and-compliance-with-arms-control-nonproliferation-and-disarmament-agreements-and-commitments/)，生化武器部分： – 中共的军事医学院校一直在进行“双重应用”的研究（武器化的恶意科学研究），违反《生物武器公约》第一条 – 中共在2020年以“技术问题”为借口，拒绝接受《生物武器公约》要求的例行年度检查。 中共专家是老熟人：杨瑞馥*
-
-
-> As smoking guns go, this study is high-caliber. [@UCSanDiego](https://twitter.com/UCSanDiego?ref_src=twsrc%5Etfw) and Chinese researchers showed that the [#SARSCoV2](https://twitter.com/hashtag/SARSCoV2?src=hash&amp;ref_src=twsrc%5Etfw) spike protein – the one the vaccines make you produce – can all by itself cause major damage to the walls of blood vessels. [pic.twitter.com/Fk5DNZugzH](https://t.co/Fk5DNZugzH)
-> — Alex Berenson (@AlexBerenson) [May 2, 2021](https://twitter.com/AlexBerenson/status/1388836304918614027?ref_src=twsrc%5Etfw)
-
-
-14. **[Alex推特](https://twitter.com/AlexBerenson/status/1388836304918614027?s=20)**：
-*从证据确凿的信息出发，这项研究是高水准的。加州大学圣地亚哥分校 和中共国研究人员表明，#SARSCoV2突刺蛋白–疫苗能让你产生的产品–本身就能对血管壁造成重大损害
-[https://www.biorxiv.org/content/biorxiv/early/2020/12/04/2020.12.04.409144.full.pdf](https://www.biorxiv.org/content/biorxiv/early/2020/12/04/2020.12.04.409144.full.pdf)*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04213657/E0jy2guVoAAXHy9.jpeg)15. **[火来推特](https://www.biorxiv.org/content/biorxiv/early/2020/12/04/2020.12.04.409144.full.pdf)**：
-*涉及到这些基金的都是由军队支持的研究项目，看看多少与病毒有关。以下只是部分基金。 军队后勤科研重大项目： AWS15J006 AWS16J020 AWS16J021 AWS16J023 
-军队后勤科研重点项目： BWS14C051 BWS14J025 
-军队科技计划项目： CWS12J075 13BJYZ37 A12005*
-
-
-> 黄灿平
-> 导师：高福
-> 1，研究中发现可能能够促进病毒在细胞与细胞之间转移的p10基因；
-> 2，进行跨越种间屏障的潜在可能性进行研究；
-> 3，进行HKU9-RBD与ACE2和CD26结合用以研究跨种传播潜力。
-> 关键词：跨种传播、ACE2[@LawrenceSellin](https://twitter.com/LawrenceSellin?ref_src=twsrc%5Etfw) [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) [@dezying](https://twitter.com/dezying?ref_src=twsrc%5Etfw) [@ZionaEmanuel](https://twitter.com/ZionaEmanuel?ref_src=twsrc%5Etfw) [@2020Gladiator](https://twitter.com/2020Gladiator?ref_src=twsrc%5Etfw) 
-> 下附链接 [pic.twitter.com/JWuREjlYTZ](https://t.co/JWuREjlYTZ)
-> — 公民 – SEVEN (@NFSC\_007) [May 4, 2021](https://twitter.com/NFSC_007/status/1389494434396467203?ref_src=twsrc%5Etfw)
-
-
-16. **[公民记者推特](https://twitter.com/NFSC_007/status/1389494434396467203?s=20)**：
-*黄灿平 导师：高福 1，研究中发现可能能够促进病毒在细胞与细胞之间转移的p10基因； 2，进行跨越种间屏障的潜在可能性进行研究； 3，进行HKU9-RBD与ACE2和CD26结合用以研究跨种传播潜力。 关键词：跨种传播、ACE2
-🔗[https://xueshu.baidu.com/usercenter/paper/show?paperid=0e8c137304c1cb424f2c524d767aed6b&site=xueshu\_se](https://xueshu.baidu.com/usercenter/paper/show?paperid=0e8c137304c1cb424f2c524d767aed6b&amp;site=xueshu_se)
-🔗[https://www.ixueshu.com/document/cc89624feb8e36abefd79223e6069f8d318947a18e7f9386.html](https://www.ixueshu.com/document/cc89624feb8e36abefd79223e6069f8d318947a18e7f9386.html)*
-【灭共时代】
-
-
-
-> 20210503Jack Keane將軍接受FOX採訪1/2
-> 1.習超越了毛澤東，它更具侵略性、更有野心
-> 2.習比毛更具有國際視野，它想取代美國在世界的力量，想支配整個印太
-> 3.拜登入主白宮後，習的侵略性更加擴大
-> 4.習向美國的盟友傳達信號：拜登政府也保護不了你們
-> 5.作為最先從疫情中恢復的，中共國軍力在印太比美國強 [pic.twitter.com/B4tbbJwUng](https://t.co/B4tbbJwUng)
-> — Andy5 (@andy5\_123) [May 4, 2021](https://twitter.com/andy5_123/status/1389531897051566080?ref_src=twsrc%5Etfw)
-
-
-**[Andy5推特](https://twitter.com/andy5_123/status/1389531897051566080?s=20)**：
-*20210503Jack Keane将军接受FOX採访
-1.习超越了毛泽东，它更具侵略性、更有野心
-2.习比毛更具有国际视野，它想取代美国在世界的力量，想支配整个印太
-3.拜登入主白宫后，习的侵略性更加扩大
-4.习向美国的盟友传达信号：拜登政府也保护不了你们
-5.作為最先从疫情中恢復的，中共国军力在印太比美国强
-台湾最可能是擦枪走火的地方
-7.美国需要建立有效的军事狙击力：其一，具有让敌人知道美国会胜利的力量；其二，让敌人明白美国会用这种力量
-8.需要在那个地区集结美国的实力
-9.需要加装更先进的武器抗衡中共国的科技优势
-郭叔说过CCP的炮灰们会被美国先进武器⋯*
-
-
-> [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hash&amp;ref_src=twsrc%5Etfw) 的 [#北斗](https://twitter.com/hashtag/%E5%8C%97%E6%96%97?src=hash&amp;ref_src=twsrc%5Etfw) 導航系統。卡車司機停車休息一個多小時了，北斗不斷報警提示：請注意，已經超時駕駛，停車休息。客車司機拍視頻留作證據。 [#大紀元新聞網](https://twitter.com/hashtag/%E5%A4%A7%E7%B4%80%E5%85%83%E6%96%B0%E8%81%9E%E7%B6%B2?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/7J5tGvMHdg](https://t.co/7J5tGvMHdg)
-> — 大纪元新闻网 (@dajiyuan) [May 4, 2021](https://twitter.com/dajiyuan/status/1389552944102662145?ref_src=twsrc%5Etfw)
-
-
-**[大纪元推特](https://twitter.com/dajiyuan/status/1389552944102662145?s=20)**：
-*中共 的 #北斗 导航系统。卡车司机停车休息一个多小时了，北斗不断报警提示：请注意，已经超时驾驶，停车休息。客车司机拍视频留作证据*
-
-
-> Communist China forces Uyghurs into slave labor to pick cotton in Xinjiang – yet, the [@NBA](https://twitter.com/NBA?ref_src=twsrc%5Etfw) is selling shoes made by a Chinese company that sources its cotton from there.
-> 
-> As long as this continues, the NBA is complicit in Communist China's disgusting human rights abuses. [https://t.co/sfQ5SQ6Vbf](https://t.co/sfQ5SQ6Vbf)
-> — Rick Scott (@SenRickScott) [May 4, 2021](https://twitter.com/SenRickScott/status/1389643878173716492?ref_src=twsrc%5Etfw)
-
-
-**[瑞克·史考特推特](https://twitter.com/SenRickScott/status/1389643878173716492?s=20)**：
-***（[自由灯塔](https://freebeacon.com/national-security/nba-sells-sneakers-from-chinese-company-suspected-of-using-uyghur-forced-labor/)）**美国国家篮球协会(NBA)在其网上商店销售的运动鞋是来自一家使用在新疆生产的棉花的中共国公司，该地区是中国胁迫维吾尔族穆斯林从事强迫劳动的地方
-
-**（史考特）**中国共产党强迫维吾尔族人变成奴隶后，在新疆采摘棉花- 接着@NBA正在销售由一家中国公司生产的鞋子，该公司的棉花来自那里。
-只要这种情况继续下去，NBA就是共产党中国令人作呕的侵犯人权行为的同谋*
-
-
-+1
+0
