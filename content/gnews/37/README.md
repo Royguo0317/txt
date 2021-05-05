@@ -1,43 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美国的台湾政策不应模糊不清
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1175473/)
+## 【各抒己见】银行是我家
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1175961/)
 
-**作者：纽约香草山美食部 蓝天大海**
+作者：喜马拉雅东京樱花团 /孤独的麻雀
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02191345/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
+![](https://lh4.googleusercontent.com/waiczeXkMMqoRLDygxFVaSFpsTmtS8JGbGM5FkUPC_BmEjY6k7V6GJYh_eJ3FqX9CEzYp6IFfjqxXmBmRAng6AiH7rpqi4XD-QuGFgigLneOuw8GxHs7_3N3_goHumuTBos4-CTf)
+[图片来源](https://twitter.com/HK0wmLRKZq44H85/status/1373167185665781766?s=19)
+
+货不流通成废物，钱不流通成纸钱，快买喜币！
+
+银行是我家
+你的钱别乱花
+生病养老没国家
+存到银行我的家
+利息安全两手抓
+“幸福”千万家
+
+想投资？不好意思～
+除了赵家都是骗子
+美国法律是白痴？
+问到这里就口吃
+
+SEC也装傻
+美国信用在下滑
+助纣为虐资本家
+喜币一出都害怕
+隔空取钱非神话
+从此银行过家家
+特别是我大赵家
+
+想贷款?真大胆
+没车没房没财产
+他说百无一用不换金
+你说年华才华金不换
+
+想取钱？先交钱～
+不然跟你讲明天
+讲明天要清廉
+我们一起来攻艰
+过去树皮也新鲜
+现在咸菜甜不甜
+别看我贷亿亿千
+银行票据乱翻天
+后宫佳丽养三千
+生产就是搞繁衍
+要问贷款何时还
+红色江山代代传
+
+此行是我开
+此楼是我盖
+此处是赵家
+此法我能改
+要说是你财
+何跑我手来
+想说行行好
+备好财换财
+
+千言万语一句话
+银行是我家
+赚钱靠大家
+待到破产时
+我已移民啦
+
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+
+*校对：喜马拉雅东京樱花团 / 待命（文晓）*
+*责任编辑：喜马拉雅东京樱花团 / 文小白*
+*发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01183841/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
 
 
-
-5月4日，美国海军陆战队高级研究员马修·克劳奇（Matthew R. Crouch）在《国防新闻》（Defense News）上撰文，“美国的台湾政策不应模糊不清，否则有可能破坏美国在该地区的可信度”。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04225705/image0-5-2.jpg)
-
-文章指出，美国目前在台湾问题上态度模糊不清，在南中国海放弃立场，在香港失去自由时又持有失败的政策，使越来越多的人认為，美国在印太地区失去了影响力和对中共国的威慑力，这助长了中共国妄图吞并台湾的野心。
-
-文章认為，确保台湾主权，应该是美国在印太地区的首要任务。為了加强威慑力，美国应该考虑採取明确的步骤来展示其对抗中共国的能力和意愿，并在台湾防务上採取行动。首先，美国应该加强对台防御的支持，增加军售。第二，美国可以正式放弃“一个中国”政策，与尽可能多的盟友共同承认台湾是一个主权国家。第三，考虑以双边安全协议取代台湾关系法。最后，美台之间应该建立正式的军事关系，最终可能需要在台湾驻军。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04225644/image0-4-2.jpg)
-
-文章表明，美国只有这样做，才能赢得盟友的信任，消除歧见，实现美国在印太地区的战略目标，以确保台湾的安全。
-
-面对国际上日益增长的对病毒源头调查和追责的压力，中共国的经济面临崩盘，百姓怨声载道，高层内斗日趋激烈。為了释放压力，以习近平的赌徒心态，很可能武力攻台。马修研究员说的对，美国此刻在台湾问题上应该态度明确，放弃模糊战略，给中共国划定红线。同时，联合世界上的盟友，协同作战，以实力威慑中共国的野心。只有这样，才能维护印太和台湾地区的和平、安全与稳定。
-
-编辑：遍地开花 发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01143151/M5.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++2
