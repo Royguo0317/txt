@@ -1,51 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统启用自己的社交平台
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1171975/)
+## 日本告诉中共&nbsp; 你再跟我扯淡&nbsp; 我第一个跟你脱钩
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1171811/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**摘要：在2021年4月30日的盖特视频中，郭先生披露了中共被日本羞辱的细节。在美日峰会后中共一直让王毅打电话骚扰日本外务省，日本则直接告诉中共：“你敢在这个事儿上再跟我扯淡，经济上我第一个跟你脱钩！”他说欧洲最后也必然会和美国合作。**
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/05/T-2.jpg)[www.DonaldJTrump.com/desk](http://www.donaldjtrump.com/desk)封面截图
-《福克斯新闻》独家报道，“川普总统推出了新的社交平台，川普总统在这个空间能够发表评论、图片和视频”。
+**日本告诉中共****  ****你再跟我扯淡****  ****我第一个跟你脱钩**
 
-文章说，川普总统被推特（Twitter）、脸书（Facebook）等禁言数月后，5月4日推出了一个社交平台，这将能使川普总统与追随者直接交流。
+**Japan Asks the CCP to Shut Up Otherwise It Will Decouple**
 
-平台，“来自唐纳德J.川普“，出现在[www.DonaldJTrump.com/desk](http://www.DonaldJTrump.com/desk)。
+就连现在大家看到的美国[和]日本的合作，共产党敢放个屁吗？它敢放屁吗？它敢说话吗？据我所最掌握的情报来讲，日本第一次告诉中共：你敢在这个事儿上再跟我扯淡，经济上我第一个跟你脱钩。不是共产党威胁日本要脱钩，是日本告诉共产党，“我第一个就跟你共产党丫挺的脱钩。”听说王毅在电话上傻了。
 
-这个空间将能让川普总统发表评论、图片和视频。
+Now everyone can see the cooperation between the United States and Japan. Does the CCP dare to say a word? Does it dare to say a word? According to the intelligence that I have got, Japan told the CCP for the first time: Do you dare to talk shit to me on this matter, I will be the first one to decouple with you economically. It was not the CCP that threatened Japan to decouple, rather it was Japan who told the CCP: “I will be the first to decouple with you, the CCP bastard!” I heard that Wang Yi was shocked on the phone.
 
-这项技术似乎是由竞选核心（Campaign Nucleus）推动的，这个核心是由他的前竞选经理布拉德·帕斯卡尔（Brad Parscale）创建的、“为有效管理政治竞选和组织而构建的数字生态系统”。
+日本人是不开玩笑的，说干就干。共产党你能硬的起来吗？[共产党一旦]没钱了，它连个屁都不是。日本一个脱钩把[共产党]吓的。美日峰会后共产党一再威胁[日本]，王毅打电话，打[电话给]日本的外务省[进行威胁]。人家说明确告诉[王毅]：你敢在这事儿上再给我做文章 — 我日本早晚要走今天的，好不容易美国佬现在答应我了– 你敢再给我折腾，我就给你脱钩。闭嘴！”[这是]什么力量？Money，Money！[这是]钱的力量，战友们。
 
-该空间能让川普总统发帖，并允许追随者将前总统的帖子分享到推特（Twitter）和脸书（Facebook）上，然而，新平台没有允许用户“回复”或参与川普总统帖子的功能。
+The Japanese were not joking. They mean it when they say it. Can the CCP still be tough? Once the CCP has no money, it will be nothing. Japan’s decoupling has really scared the CCP. After the US-Japan summit, the CCP repeatedly threatened Japan, by having Wang Yi to call Japan’s Ministry of Foreign Affairs. This time they made it clear to Wang Yi: Do you dare to make a fuss about this matter, I will decouple with you. I (Japan) has already gone as far as this and the Yankee has finally promised me. So you’d better shut up!” This shows the power of money, right? Money, money, the power of money, my fellow fighters!
 
-“这只是单向的交流。”一位熟悉这个平台的消息人士告诉《福克斯新闻》，“这个系统可以让川普总统与他的追随者交流。”
+第二，欧洲[的]德国、法国不就是因为钱磕头了共产党吗？但是这次美国到欧洲去要给更多的钱。[所以]，最后的法国、德国一定跪倒在最不喜欢的美国人脚底下，一定这结局的。这就是资本主义社会和资本主义的今天[在]21世纪必然的结局。
 
-川普总统的新平台5月4日周二浮出水面，此前顾问曾对《福克斯新闻》表示，这位前总统在国会大厦骚乱，被推特、脸书、油管（YouTube）、Instagram、Snapchat等禁言后，计划“向前迈进”，创建自己的社交媒体平台。
+Second, didn’t Germany and France in Europe just kowtow to the CCP because of money? But this time the U.S. goes to Europe to give them more money. So, eventually France and Germany will definitely kneel under the feet of Americans who they dislike the most. It must end this way. This is what the capitalist society and capitalism inevitably lead to in the 21st century today.
 
-目前还不清楚这个平台是否是这些计划的一部分，或者是否有一个单独的项目正在进行中。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/608c20af4486aa0bb231afcf](https://gtv.org/getter/608c20af4486aa0bb231afcf) (1:40-3:28)
+鸣谢：感谢Antsee-GTV、TING GUO 提供中文文本于 [https://www.gnews.org/zh-hans/1159871/](https://www.gnews.org/zh-hans/1159871/)
 
-就在该平台推出前一天，（人们）还在观望脸书监督委员会，是否会就无限期停止川普总统在脸书和Instagram上的（业务）作出决定。
+* * *
 
-今年1月，该委员会接受了脸书提交的一个审查禁令的案件，也就是，对当时的政治领导人的用户进行“暂时停用”的政策建议。
+字幕：【Rock小哥】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+翻译 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-1月6日美国国会发生骚乱后，脸书采取行动“无限期”封杀川普总统，首席执行官扎克伯格（Mark Zuckerberg）表示，“他们认为，允许总统在此期间继续使用我们服务的风险实在太大。”
-
-不管脸书5月5日周三的决定如何，一位推特发言人对《福克斯新闻》表示，川普总统将被推特永久禁止。
-
-脸书发言人拒绝就川普总统的新平台发表评论，推特发言人也没有立即回应《福克斯新闻》的置评请求。
-
-（原文完）
-
-这些无良知的大媒体以为世界离开他们就不转了，错！
-
-熟知商道的川普总统对市场规则清楚得狠，那就是“需求决定业务”，8000多万粉丝，加上保守估计10:3配比的观望者群体，仅在美国就有1亿多的用户量，哪个平台不愿意争取这样的用户？
-
-期待川普总统早日东山再起，像文贵说的那样，作好储备，蓄势待发，2022拿下众议院，联合新中国联邦灭共，铲除恶魔！
-
-原文链接：
-
-[https://www.foxnews.com/politics/trump-launches-new-communications-platform-months-after-twitter-facebook-ban](https://www.foxnews.com/politics/trump-launches-new-communications-platform-months-after-twitter-facebook-ban)
-
-0
++1

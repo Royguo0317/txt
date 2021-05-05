@@ -1,59 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【圣城传声筒】香港良心节目主持人惨遭政治清洗
-` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1171960/)
+## 川普总统启用自己的社交平台
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1171975/)
 
-荐评：纽约香草山香港部写作组
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/T-2.jpg)[www.DonaldJTrump.com/desk](http://www.donaldjtrump.com/desk)封面截图
+《福克斯新闻》独家报道，“川普总统推出了新的社交平台，川普总统在这个空间能够发表评论、图片和视频”。
 
+文章说，川普总统被推特（Twitter）、脸书（Facebook）等禁言数月后，5月4日推出了一个社交平台，这将能使川普总统与追随者直接交流。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
+平台，“来自唐纳德J.川普“，出现在[www.DonaldJTrump.com/desk](http://www.DonaldJTrump.com/desk)。
 
+这个空间将能让川普总统发表评论、图片和视频。
 
+这项技术似乎是由竞选核心（Campaign Nucleus）推动的，这个核心是由他的前竞选经理布拉德·帕斯卡尔（Brad Parscale）创建的、“为有效管理政治竞选和组织而构建的数字生态系统”。
 
-原文来源：立场新闻网页
+该空间能让川普总统发帖，并允许追随者将前总统的帖子分享到推特（Twitter）和脸书（Facebook）上，然而，新平台没有允许用户“回复”或参与川普总统帖子的功能。
 
-原文链接：[【整治港台】利君雅不获续约　未能正式成为公务员　五月底离港台](https://www.thestandnews.com/politics/%E6%95%B4%E6%B2%BB%E6%B8%AF%E5%8F%B0-%E5%88%A9%E5%90%9B%E9%9B%85%E4%B8%8D%E7%8D%B2%E7%BA%8C%E7%B4%84-%E6%9C%AA%E8%83%BD%E6%AD%A3%E5%BC%8F%E6%88%90%E7%82%BA%E5%85%AC%E5%8B%99%E5%93%A1-%E4%BA%94%E6%9C%88%E5%BA%95%E9%9B%A2%E6%B8%AF%E5%8F%B0/)
+“这只是单向的交流。”一位熟悉这个平台的消息人士告诉《福克斯新闻》，“这个系统可以让川普总统与他的追随者交流。”
 
-* * *
+川普总统的新平台5月4日周二浮出水面，此前顾问曾对《福克斯新闻》表示，这位前总统在国会大厦骚乱，被推特、脸书、油管（YouTube）、Instagram、Snapchat等禁言后，计划“向前迈进”，创建自己的社交媒体平台。
 
-* * *
+目前还不清楚这个平台是否是这些计划的一部分，或者是否有一个单独的项目正在进行中。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04181738/image-53.png)图源网路
+就在该平台推出前一天，（人们）还在观望脸书监督委员会，是否会就无限期停止川普总统在脸书和Instagram上的（业务）作出决定。
 
-据立场新闻报道，香港电台节目制作人员工会获确认，电视部员工利君雅不获续约，未能正式成为公务员。工会指，利君雅早前两度被延长试用期，第二次试用期限为本月 30 日，意味她将于月底离任。
+今年1月，该委员会接受了脸书提交的一个审查禁令的案件，也就是，对当时的政治领导人的用户进行“暂时停用”的政策建议。
 
-利君雅在2017 年加入港台电视部，任助理节目主任，原本在 3 年试用期后，可转为公务员合约，但在今年 1 月中，港台管理层终止其公务员试用期合约。港台工会当时表示，管方以未完成调查为由，向她另开一份为期 120 日的聘用合约，利君雅当时亦有签署合约。新的试用期合约原订将于本月 30 日届满，而港台早前已通知利君雅，新试用期合约后，她要离开港台。
+1月6日美国国会发生骚乱后，脸书采取行动“无限期”封杀川普总统，首席执行官扎克伯格（Mark Zuckerberg）表示，“他们认为，允许总统在此期间继续使用我们服务的风险实在太大。”
 
-对此事香港电台回复指，香港电台作为政府部门，按既定机制和程序（包括公务员事务局的既定指引和《公务员事务规例》）处理员工的聘任安排，不会评论个别个案。
+不管脸书5月5日周三的决定如何，一位推特发言人对《福克斯新闻》表示，川普总统将被推特永久禁止。
 
-* * *
+脸书发言人拒绝就川普总统的新平台发表评论，推特发言人也没有立即回应《福克斯新闻》的置评请求。
 
-评论：
+（原文完）
 
-利君雅为巴基斯坦裔，从小在香港长大。自 2017年加入港台之后，一直以敢言着称。尤其在2019年反修例运动期间，多次在警方或港共政府举行的新闻发布会上对其种种不合理之处提出尖锐问题，获得香港市民一片喝彩声。但同时，她的这些举动也让港共政府和背后的中共政权极为难堪，一直对她颇有不满。中共对内宣传更对她进行丑化抹黑，诟病其造谣伤港。今次港台对利君雅的辞退，明显只是为了配合中共彻底干预香港司法独立以及言论自由，对所有抗争者代表以及知名良心媒体人的秋后算账而已。
+这些无良知的大媒体以为世界离开他们就不转了，错！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205738/M5-1.jpg)
+熟知商道的川普总统对市场规则清楚得狠，那就是“需求决定业务”，8000多万粉丝，加上保守估计10:3配比的观望者群体，仅在美国就有1亿多的用户量，哪个平台不愿意争取这样的用户？
 
-校对/发稿：Irene木木
+期待川普总统早日东山再起，像文贵说的那样，作好储备，蓄势待发，2022拿下众议院，联合新中国联邦灭共，铲除恶魔！
 
-**更多资讯，更多关注**
+原文链接：
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[https://www.foxnews.com/politics/trump-launches-new-communications-platform-months-after-twitter-facebook-ban](https://www.foxnews.com/politics/trump-launches-new-communications-platform-months-after-twitter-facebook-ban)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
-
-
-
-+1
+0

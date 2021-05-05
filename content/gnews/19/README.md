@@ -1,31 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 丹麦阻止强生疫苗
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1171657/)
+## 【热点播报】60多个美国体育场所引入疫苗护照
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1171710/)
 
-```
-新闻来源：意大利安莎通讯社（ANSA）
-发表日期：2021年5月3日 
-翻译整理/简评：斩草要除根
-```
+作者：纽约香草山农场写作组  四季
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04161710/57193799_403.jpg)图片来源：德国之声中文网站
 
-世卫组织和欧洲药品管理局（*EMA*）均已批准了强生疫苗，但是丹麦已决定将该疫苗从新冠疫苗接种计划中排除。丹麦对与血凝块形成有关的严重副作用的担忧证明了这一决定的合理性。丹麦卫生局在一份声明中强调说：“丹麦卫生局得出的结论是，使用强生公司的新冠疫苗的好处并未超过对接种疫苗的人造成潜在不良影响的风险。”
+零对冲5月4日报道，美国60多个体育场馆和其他场所正在为夏天部署疫苗护照（或通行证或证书），以使经济“恢复正常”。
 
-同时，英国却继续使用强生疫苗并在为此欧洲展开竞争，突破了5000万剂的里程碑，官方数据证明了这一点，而鲍里斯·约翰逊（*Boris Johnson*）总理和他的政府为这一新的“里程碑”感到高兴，并确认了到7月31日保证覆盖居住在该国的所有18岁以上成年人至少注射一剂。同时鲍里斯·约翰逊（*Boris Johnson*）为了阻止从英国恢复海外游客的旅行，确认有意从5月17日开始开放但要谨慎行事并严格限制，以免增加与该病毒变种相关的风险以及从国外再次进口新冠（Covid）病例的可能性。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04162840/0-2021-05-03_06-38-06-1.png)图片来源：[ZeroHedge](https://www.zerohedge.com/covid-19/vaccine-passports-coming-sports-venues)
 
-#### 简评：
+美国职业棒球大联盟的旧金山巨人队和纽约大都会队是第一批要求球迷出示疫苗接种证明或通过一个名为Clear的应用程序验证其COVID-19近期阴性测试的一些球队中的一员。这些球队将接受医疗文件作为证明，但他们鼓励所有体育迷下载Clear应用程序以获得便利。
 
-**尽管世卫组织和欧洲都已经给强生疫苗开了绿灯，但是丹麦在继禁用阿斯利康新冠疫苗以后，现在又将强生公司研发的新冠疫苗从该国疫苗接种计划中剔除，两款疫苗都是同样的原因被丹麦政府果断的中止，可见疫苗所带来的危害不是其它新闻报道中的那么简单。英国游离于矛盾之间，一方面，对自己大范围的疫苗接种得意洋洋；另一方面，却对待开放感到忧心忡忡。但愿丹麦政府的正确做法，能对其它欧洲国家正如火如荼进行的愚蠢的疫苗接种运动起到一点警示作用。**
-（本文仅代表译者个人观点，跟GNEWS平台无关。）
+Clear已通过将所有旅行文件固定在一个应用程序中，简化了旅客经由机场旅行的过程。现在，Clear正在机场以外的60多个美国体育场馆和其他场所应用。截至4月，Clear约有14.2万次下载。
 
-**新闻原文链接：**🔗[Vaccini, la Danimarca blocca Johnson & Johnson](https://www.ansa.it/sito/notizie/mondo/2021/05/03/vaccini-la-danimarca-blocca-johnson-johnson_b4341d43-7310-4bdf-b0ea-51f3f4097286.html)
+随着疫苗护照的使用从机场向体育场馆滚滚而来，人们对该应用程序的潜在范围和影响的担忧正在增加。隐私组织电子前沿基金会担心Clear会持有用户的敏感医疗数据，并将其转化为消费者追踪器。但Clear表示，用户可以控制他们的健康记录。
 
-* * *
+目前，美国的几个州已经表现出反对疫苗护照的决心。其中包括目前的德克萨斯州、田纳西州、佛罗里达州、密西西比州。我们猜想还会有更多的州跟进。
 
-***编辑整理/校对: **Ting Guo*
+中共病毒的灾难历经一年多的时间都没有被追究病毒的真相，反而政府却企图通过集权主义控制人们最基本的日常生活。难道以后所有的公共场所都将需要护照了吗？
+
+原文链接：
+
+[Vaccine Passports Are Coming To Sports Venues | ZeroHedge](https://www.zerohedge.com/covid-19/vaccine-passports-coming-sports-venues)
+
+
+
+编辑/校对/发稿：小鹿
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+
+
 
 0
