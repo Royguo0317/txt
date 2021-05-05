@@ -1,43 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美国的台湾政策不应模糊不清
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1175473/)
+## 【新闻宅急便】驻印度日本女性感染中共病毒死亡
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1175902/)
 
-**作者：纽约香草山美食部 蓝天大海**
+作者：喜马拉雅东京樱花团 / 待命（文晓）
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02191345/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
+![](https://lh3.googleusercontent.com/hsWwpiBfBLvsaal-Wq0hnQzGmsVr2Kpj8-9WSr29ZwpMzwAcrZlETfLA-hwFeYohScpdvC08UFS7LnK8jqA-Zm9c6M68j7iN2iSsXdK2ZOgse6VJFPxIVnwiROFmTmahug1uJ0vs)
 
+日本雅虎网在5月4日发表了TBS新闻的一篇署名【インド在住日本人女性 コロナ感染で死亡、外務省一時帰国呼びかけ】的文章。大意为，住在印度的日本女性，因感染中共病毒死亡，日本外务省呼吁住在印度的日本国民临时回国。
 
+文章中说：据日本驻印度大使馆3日的采访得知，一名居住在印度首都新德里一名40多岁的日本妇女感染了中共病毒，且已死亡。据悉，这是第一次有日本国民在印度被证实因感染中共病毒而死亡。
 
-5月4日，美国海军陆战队高级研究员马修·克劳奇（Matthew R. Crouch）在《国防新闻》（Defense News）上撰文，“美国的台湾政策不应模糊不清，否则有可能破坏美国在该地区的可信度”。
+在印度，已有100多名日本人被证实感染中共病毒。感染突然迅速蔓延，政府3日公布的每天新感染人数为368147人，已连续12天超过30万人/日，医院床位和医用氧气的短缺现象正变得越来越严重。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04225705/image0-5-2.jpg)
+日本外务省已于2日向在印度的日本国民发布了当地的视频信息，呼吁他（她）们考虑包括临时返回日本的防护措施，因为当地无法获得正常医疗服务的风险正在增加。
 
-文章指出，美国目前在台湾问题上态度模糊不清，在南中国海放弃立场，在香港失去自由时又持有失败的政策，使越来越多的人认為，美国在印太地区失去了影响力和对中共国的威慑力，这助长了中共国妄图吞并台湾的野心。
+[信息及图片来源](https://news.yahoo.co.jp/articles/fc78df2a4749ca23688c4ca12f172352b342efe1)
 
-文章认為，确保台湾主权，应该是美国在印太地区的首要任务。為了加强威慑力，美国应该考虑採取明确的步骤来展示其对抗中共国的能力和意愿，并在台湾防务上採取行动。首先，美国应该加强对台防御的支持，增加军售。第二，美国可以正式放弃“一个中国”政策，与尽可能多的盟友共同承认台湾是一个主权国家。第三，考虑以双边安全协议取代台湾关系法。最后，美台之间应该建立正式的军事关系，最终可能需要在台湾驻军。
+*免责申明：本文只代表作者观点，与GNews网站无关。*
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04225644/image0-4-2.jpg)
-
-文章表明，美国只有这样做，才能赢得盟友的信任，消除歧见，实现美国在印太地区的战略目标，以确保台湾的安全。
-
-面对国际上日益增长的对病毒源头调查和追责的压力，中共国的经济面临崩盘，百姓怨声载道，高层内斗日趋激烈。為了释放压力，以习近平的赌徒心态，很可能武力攻台。马修研究员说的对，美国此刻在台湾问题上应该态度明确，放弃模糊战略，给中共国划定红线。同时，联合世界上的盟友，协同作战，以实力威慑中共国的野心。只有这样，才能维护印太和台湾地区的和平、安全与稳定。
-
-编辑：遍地开花 发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01143151/M5.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
+*校对：喜马拉雅东京樱花团 / 東洋武士*
+*责任编辑：喜马拉雅东京樱花团 / 文小白*
+*发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01183841/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
++5
