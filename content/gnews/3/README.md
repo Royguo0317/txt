@@ -1,15 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210505
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1177016/)
+## 印度参加七国集团G7代表团成员测试呈阳性后隔离
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1177069/)
 
-- 制图：透明的遮羞布
-- 编辑：神奇四侠
+```
+新闻来源：德国世界报 网络版
+发表时间：2021年5月5日
+翻译整理/ 评论： Shuizhuyu
+```
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172614/01-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172638/02-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172704/03-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172725/04-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172744/05-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172804/06-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172823/07-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172842/08-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172903/09-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172925/10-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172953/11-7.jpg)
-以上文字图片仅代表作者个人观点，与GNEWS无关
 
-发稿：神奇四侠
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05180432/IMG_20210506_000332.jpg)图片来源：新西兰联合报
+
+病毒大流行后能再次亲临会议， 而不仅仅是数字化：七国集团国家的外交部长周二在伦敦举行会议。 仅仅一天后，印度代表团不得不进行检疫。
+
+由于发生了两次阳性的病毒测试， 整个印度代表团在伦敦举行的七国集团外长会议上被隔离。 英国政府宣布了这一点。 天空电台的一位记者报道说，印度现在将以虚拟方式参加会议。
+
+印度不是七国集团成员之一（美国，德国，英国，法国，意大利，日本和加拿大），但也受到英国，澳大利亚和韩国的邀请，这也是中（共）国在全球的另一个制衡力量。
+
+七国集团（G7）各国外交部长周二开会，举行了两年多的首次面对面，非虚拟会议。 伦敦的高级外交官除其他外，讨论了缅甸的军事政变以及他们是否应该对付或指向越来越强势的中（共）国。
+
+#### **简评：**
+
+**经过将近两年的以后， G7外长终于可以坐在一起，举行会议。遗憾的是，印度代表团发现了两例检测呈阳性的感染病例，不得不回到虚拟参会的方式。全体代表团成员都被隔离。这些国家的外长们，这回亲自体验了，病毒就在身边，并不遥远。请你们先发下其他的议题，病毒追责和病毒真相才是最最重要的议题。人类从来没有遇到过这样的毁灭性的灾难，人类都没有了，再谈什么气候问题，还有用吗？各国的领导人们，请你们读读闫博士的报告，去看看塞林博士的油管视频。你们就知道你们该干些什么了！ **
+（本文只代表译者观点，与Gnews平台无关。）
+
+**新闻原文链接：🔗**[Indische G-7-Delegation nach Positiv-Fällen in Quarantäne](https://www.welt.de/politik/ausland/article230887461/Corona-Indische-G7-Delegation-nach-Positiv-Faellen-in-Quarantaene.html)
+
+* * *
+
+***编辑整理/校对:** Ting Guo*
 
 0

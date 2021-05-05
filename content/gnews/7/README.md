@@ -1,26 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港的中国大陆移民”珍惜”快速消失的自由
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1176969/)
+## 慧眼看世界20210505
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1177016/)
 
-- 作者：Boxinglady
+- 制图：透明的遮羞布
+- 编辑：神奇四侠
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172614/01-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172638/02-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172704/03-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172725/04-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172744/05-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172804/06-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172823/07-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172842/08-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172903/09-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172925/10-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172953/11-7.jpg)
+以上文字图片仅代表作者个人观点，与GNEWS无关
 
-那些因为香港提供了比大陆中共国其他任何地方更多的自由而移居香港的人，对未来的担忧日益增加。
-
-对于大多数香港出生的居民而言，香港的国安法消弱了他们长期以来在“一国两制”下长期享受的理所当然的自由。
-
-1997年中共国向回归的香港人民许下了“高度自治”至少50年不变的承诺。在过去一年北京干预之前，香港居民可以自由抗议当局，并组织政党参加选举。对于以天安门为标志的几代中国大陆自由主义者来说，香港的守夜活动像是希望的灯塔，因为大陆中共国没有任何地方可以纪念1989年的镇压。
-
-但是去年，香港政​​ 府有史以来首次以COVID-19风险为由禁止年度警戒。组织者以及违反该禁令的数千人中的一些人现在面临起诉。
-
-简评：香港人民自去年以来捍卫民主的不屈不挠的精神感动天地感动世界；拥有共同民主价值观的西方国家对中共国在香港镇压和践踏民主所作出的一系列的制裁对策与态度将是决定今后世界秩序的关键；正如郭先生所言，圣城香港是我们中华民族的耶路撒冷，是中共灭亡的第一道大门！
-
-自由和法治就像空气，当它在那里时，您不会感到那么多，只有在它被带走之后，您才能感受到它。愿真正的自由民主之火早日回到香港，并从香港燃遍中华大地。
-
-新闻来源：[ALJAZEERA](https://www.aljazeera.com/news/2021/5/4/china-mainlanders-find-narrowing-of-freedoms-in-hong-kong)
-
-**本文只代表个人观点，不代表GNews 平台**
+发稿：神奇四侠
 
 0
