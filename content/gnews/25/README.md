@@ -1,15 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210505
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1177016/)
+## 2020年有近2000万人遭受粮食危机
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1177070/)
 
-- 制图：透明的遮羞布
-- 编辑：神奇四侠
+俄罗斯莫斯科喀秋莎农场   银河
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172614/01-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172638/02-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172704/03-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172725/04-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172744/05-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172804/06-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172823/07-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172842/08-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172903/09-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172925/10-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172953/11-7.jpg)
-以上文字图片仅代表作者个人观点，与GNEWS无关
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/H.jpg)the-future-of-commerce.com
+路透社5月5日新闻报道，全球抗击粮食危机网络(Global Network Against Food Crises)的一份报告显示，去年有近2000万人因武装冲突、中共病毒大流行和极端天气而面临粮食危机，今年的前景将更加严峻。
 
-发稿：神奇四侠
+这个由欧盟和联合国于2016年成立的人道主义机构还警告称，自2017年以来，严重的粮食不安全状态持续恶化，2017年是该机构关于粮食危机的年度报告的第一年。
+
+“我们必须尽一切努力结束这种恶性循环，让21世纪没有饥荒和饥饿的地方。”联合国秘书长安东尼奥·古特雷斯说。他补充说，冲突和饥饿需要共同解决，因为它们相互促进。
+
+严重的粮食不安全被定义为威胁生命、生计或两者同时存在的粮食短缺，去年影响了至少1.55亿人，是该报告五年来最高的数字。
+
+世卫组织警告称，今年的形势不会好转，首要原因是冲突，中共病毒大流行相关的防控措施更是一个令形势恶化的因素。
+
+去年受粮食危机影响的人口中，有三分之二在非洲，但世界其他地区也未能幸免，也门、阿富汗、叙利亚和海地都在受影响最严重的10个地区之列。
+
+欧盟、联合国粮农组织、联合国世界粮食计划署和美国国际开发署在一份联合声明中表示，“中共病毒大流行揭示了全球粮食系统的脆弱性，以及建立更公平、可持续和适应力更强系统的必要性。”
+
+声明中提到，“我们的农业食品系统需要一个彻底的转变。”“如果目前的趋势不得到扭转，粮食危机将会更加频繁和严重。”
+
+报告显示，在布基纳法索、南苏丹和也门，去年有13.3万人处于粮食不安全的最严重或“灾难”阶段，需要采取紧急行动来避免大范围的死亡和生计的全面崩溃。至少还有2800万人处于粮食危机的”紧急”阶段，这意味着他们离饥饿只有一步之遥，需要采取紧急行动拯救生命和生计，防止饥荒。
+
+中共国经济溃像已现，中共当局全力掩盖的粮食危机也即将显现。作为14亿人口的粮食进口大国，中共当局瞒报虚报实际粮食产量，当经济脆断无力进口粮食补充缺口之时，中共百姓将迎来可怕的人道灾难。
+
+参考链接：
+
+[https://www.newsmax.com/newsfront/20-million-more-155-million-food-crisis/2021/05/05/id/1020176/](https://www.newsmax.com/newsfront/20-million-more-155-million-food-crisis/2021/05/05/id/1020176/)
 
 0

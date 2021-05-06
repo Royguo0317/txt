@@ -1,37 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 习近平公布了控制全球互联网的计划
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1177345/)
+## 在Facebook禁令维持不变后，川普抨击科技巨头
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1177401/)
 
-翻译：康州盘古农场 – WH
+整理撰稿：蓝精灵
 
-校对：康州盘古农场 – Mike Li
+周三，一个独立的监督委员会维持了Facebook禁止他退出该平台的决定后，前任川普总统指责科技巨头扼杀了言论自由。
 
-编辑：康州盘古农场 – 心照
+“ Facebook，Twitter和Google所做的一切，完全是对我们国家的耻辱和尴尬。由于激进左翼激进分子害怕真相，言论自由已从美国总统手中夺走，但无论如何，真相将变得比以往任何时候都更大，更强大。”
 
-发布：康州盘古农场 – 彩虹 Rainbow
+“我们国家的人民将不支持它！这些腐败的社交媒体公司必须付出政治上的代价，并且绝不能再被允许破坏和削弱我们的选举程序。”他继续说。
 
-**据《大纪元时报》2021年5月2日报道**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05191618/hohorqq.jpg)习近平于2021年3月4日出席在北京举行的政协会议（CPPCC）开幕式。 （法新社）
-根据《大纪元时报》最近获得的（中共国）政府内部文件，中共领导人习近平亲自指示共产党政权集中精力控制全球互联网，以取代美国的影响力。
+该[监督委员会周三裁定](https://thehill.com/policy/technology/551804-facebook-to-continue-trumps-account-ban)维持Facebook的决定，继国会在1月6日攻击事件后从平台暂停川普的账号。
 
-习近平在2017年1月的演讲中表示，“控制互联网的力量”已成为“ [中共国]全球战略竞争的新焦点”，并把美国列为阻碍其发展的“竞争力量”的野心。
+它在一份声明中写道：“董事会发现，在维持上毫无根据的选举舞弊言论和持续采取行动的呼吁后，川普创造了一个可能存在严重暴力风险的环境。”
 
-共产党的最终目标是控制全球互联网上的所有内容，以此该政权可以在世界舞台的交流和讨论中运用习近平所说的“话语权”。
+同时，该小组认为无限期封锁账号是不合适的，并在接下来的六个月中要求Facebook审查该决定并制定“与该平台其他用户所适用的规则相称的适当回应。
 
-习近平提出了“利用技术统治互联网”的愿景，以实现对在线生态系统各个部分的全面控制，包括应用程序、内容、质量、资金和人力。
+Facebook高管尼克·克莱格（Nick Clegg）在随后的博客文章中写道，川普的帐户将继续被停止，公司将“考虑董事会的决定，并同时确定一项明确且相称的行动。”
 
-网络安全专家，《网络防御》杂志出版商加里·米利夫斯基（Gary Miliefsky）告诉《大纪元时报》，如果中共政权要获得对更多根服务器的控制权，他们便可以将流量重新导向到所需的任何地方。
+根据其于1月6日前后发表的帖子在平台上发布内容的能力，Facebook无限期地限制了川普。当时他的支持者席卷了国会大厦，这是他的虚假主张助长了他的支持者，他声称自己赢得了2020年大选。这次袭击使五人死亡。
 
-例如，如果用户想浏览有关北京认为敏感主题的新闻文章，则该政权的DNS服务器可以将用户引导至伪造页面，误导该文章不再在线。
+推特同样禁止川普在平台上发帖，但该停止是永久性的。
 
-他说：“控制根服务器的那一刻，您就可以欺骗或伪造任何东西。”“您可以控制人们看到什么，看不到什么。”
+此举削弱了前总统直接与支持者和公众对话的能力，川普周三发表了书面声明，称推特是一家摇摇欲坠的科技公司。
 
-原文链接: [https://www.theepochtimes.com/chinese-leader-xi-jinping-lays-out-plan-to-control-the-global-internet-leaked-documents\_3791944.html](https://www.theepochtimes.com/chinese-leader-xi-jinping-lays-out-plan-to-control-the-global-internet-leaked-documents_3791944.html)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+(以上仅代表作者观点，不代表Gnews平台)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+参考链接：
+
+[https://thehill.com/policy/technology/551918-trump-slams-tech-giants-after-facebook-ban-upheld](https://thehill.com/policy/technology/551918-trump-slams-tech-giants-after-facebook-ban-upheld)
+
+校对发布：Penny
 
 0

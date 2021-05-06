@@ -1,33 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 儿童疫苗来了
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1176643/)
+## 特别翻译：劳伦斯•塞林博士关于新冠病毒是中共生物战项目结构的声明
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1176736/)
 
-```
-新闻来源：意大利共和国报（La repubblica） 
-发表日期：2021年5月3日  
-翻译整理/简评：斩草要除根
-```
+劳伦斯•塞林博士关于新冠病毒 [#Covid19](https://twitter.com/hashtag/Covid19?src=hashtag_click) 和 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 生物战项目结构的声明 （附油管视频：[http://youtube.com/watch?v=qFSQih](https://t.co/fE4hlgWHVG?amp=1)…）
 
 
-第一个针定于6月：它将标志着针对青少年的疫苗的到来。一开始的年龄段为12至16岁。欧洲药品管理局（*EMA*）刚刚开始检查辉瑞和*BioNTech*的数据，后者*RNA*疫苗已被批准用于16岁及以上的。美国食品和药品管理局（*FDA*）在美国也做同样的事情，也许最早在下周就可以批准了。预计其他实验的结果将在秋季之前进行，包括对6岁以下的幼儿进行试验。但是，未满12岁的至少要等到9月。
 
-除辉瑞外，莫德纳（*Moderna* 已经在成人中批准的第二种RNA疫苗）也正在对儿童进行测试。在为12至17岁的儿童进行免疫工作中，有*Novavax*（一种使用传统重组蛋白方法的美国疫苗，将在未来几个月内获得批准）。相反，在一些成年人血栓形成病例之后，阿斯利康和强生公司暂停了对儿童和青少年的研究（阿斯利康为6岁以下）。
+> A statement by Dr. Lawrence Sellin about the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) and the structure of the Chinese Communist Party's biowarfare program[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/tcPupWMGH1](https://t.co/tcPupWMGH1)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389641506240225284?ref_src=twsrc%5Etfw)
 
-辉瑞公司在3月下旬发布了其第三阶段研究的数据，该数据涉及2260名12至16岁的男孩。结果很好：该疫苗比16-25岁组产生了更多的抗体。年轻的志愿者分为两个队列：一个接受安慰剂，另一个接受疫苗。接受安慰剂的有18例感染，而免疫接种者没有感染。因此，有效率达到100％，而在成年人中则为95％。
 
-但是，志愿者没有定期进行拭子检查。因此，不知道接种者之间是否无症状感染。但是这却是了解注射是否只能预防疾病甚至传染病，以及因此预防接种的儿童是否可能成为冠状病毒传播者的重要信息。
 
-#### **简评：**
+以下为YOUTUDE视频中文翻译
 
-新冠疫苗针对成人的副作用都还没有解决，这可怕的疫苗接种马上要对小孩子下手了。这真的是在利益面前丧尽了良知。到目前为止，儿童本来就是无症状感染的最大群体，辉瑞公司在志愿者没有定期进行拭子检测的情况下，用2260人的实验就可以证明其疫苗的有效性达到100%，这是何等的荒唐之举。疫苗运动加速再加速，看来不把人类逼到绝境是绝不罢休了。
-（本文仅代表译者个人观点，跟GNEWS平台无关。）
-
-**新闻原文链接：**🔗[Arriva il vaccino dei ragazzi. Pfizer pronta già a giugno](https://rep.repubblica.it/pwa/generale/2021/05/04/news/arriva_il_vaccino_dei_ragazzi_pfizer_pronta_gia_a_giugno-299417694/?ref=RHTP-BH-I297139005-P2-S2-T1)
-
-* * *
-
-***编辑整理/校对: **Ting Guo*
+我是赛琳博士，此信息是给还在试图掩盖 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 真相的那些政客们，媒体们尤其是科学界的学者们，不管你们是出于个人利益还是政治目的，你们在虚假宣传 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 源于自然界。它根本不是源于自然的。 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 是一个大范围的“功能增益型”病毒研究，所制造出的产品，这些研究是来自 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 科学家们利用的军民融合等项目。也就是说 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 来自实验室。 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 有太多不寻常的的特征，这些特征根本不能用自然进化论解释。[#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 具有的福林酶切位点，在任何蝙蝠病毒中都找不到。这个特征表明它直接与人造 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 有关。福林酶切位点可增强病毒传染性和致病性。而 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 科学家们知道如何人工干预插入它们。唯一的遗留问题是 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 是出自哪里并如何制造的，以及病毒的释放是泄露的还是故意的。在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 统治的中国，军方病毒研究机构和民企病毒研究机构没实质区别，它们其实是捆绑在一起的。 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 2016年公布的5年计划中明确声明是计划的一个目标。自2020年底，随着大量 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的科研信息被披露，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) ，西方国家政府部门和媒体开始审查封杀此类信息 。我于是决定改变我的分析策略。 你们很多人可能知道，二战时德国有个密码机器叫Enigma, 艾伦•图灵（Alan Turing）因破解Enigma而闻名。但其实还有个鲜为人知的天才起了重要作用。他是戈登•韦尔奇曼(Gordon Welchman)。在Enigma 被破解之前，戈登•韦尔奇曼采用了一套技术叫做“通信分析”系统，来判断破解，比如说，德国军队的调遣以及德国发出的指挥命令等。他的那套理论叫做Hut Six. 现在我和一位 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 侦探已经改进了戈登•韦尔奇曼的通信分析法，来用于对中共病毒战计划的整个网络进行分析。下面这些是我们目前发现的：中共生物战项目分为3个级别，秘密军事计划是核心，并建立在民间研究所和大学研究项目之上。这种层次结构为病毒研究提供了必要的手段，通过与国际病毒研究机构的互动从而获取相关知识和研究成果。所有这些收获最后都流向了中共的生物战核心项目。中共生物战项目的起源和传统核心并非出于医药目的，而是兽医学还有部分农业学。在二战期间，日本帝国军队在满洲里有个生化武器研究所，叫731部队。它的官方名字叫：“防疫和水净化部门”。其实还有第二个研究中心–100部队，官方称为“关东军战马疾病预防所”。当 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 军队在1949年夺取中国政权后，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 沿袭了日本人的方式，将生物战研究纳入兽医研究，在北京，成都，广州，南京和云南建立了“战马健康研究中心”以及类似的研究机构。基本上，这些机构部门都隶属于中共战区军队的管辖。 1953年，5所中共解放军兽医大学被并入长春的一所大学。该位置就在原日军731部队研究所以南140公里左右。而武汉，尤其是武毒所，成为了这次病毒大流行的中心，备受关注。有关 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的研究工作在多个军方控制的设施中完成，涵盖病原体培养及相关疫苗开发。由长春军事兽医研究所带头，在国内及国际上展开了大量的收集病毒的工作。 就是那个病毒收集项目为#中共病毒 提供了蝙蝠冠状病毒的骨架,以及创建了像RaTG-13这样的中介病毒，并被错误且广泛的宣传为目前流行的冠状病毒的鼻祖。在北京军事医学科学院的监督带领下，他们把最感兴趣的病毒都收集并分发给不同的实验室。武毒所，武汉大学病毒实验室以及武汉军医院都是这个项目的核心参与部门。在下一集的视频中，我会详细介绍 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 如何利用全球的关系网来壮大他的生物战项目。特别是 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 如何深层次渗透美国的病毒研究项目。
 
 0

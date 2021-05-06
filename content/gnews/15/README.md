@@ -1,29 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美商务部向台湾施压以应对芯片短缺
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1177177/)
+## 欧盟将出台针对中共企业的“侵入性”规定
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1177217/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+俄罗斯莫斯科喀秋莎农场 银河
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/05/A-5.jpg)topics.ancham.com.tw
-路透社5月5日报道，美国商务部长吉娜·雷蒙多 (Gina Raimondo)周二表示，美国商务部正敦促台湾积体电路制造有限公司(Taiwan Semiconductor Manufacturing Co )和其他台湾企业优先考虑美国汽车制造商的需求，以缓解近期内的芯片短缺。
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/E-4.jpg)blog.moneygurn.in
+彭博社5月4日报道，欧盟(EU)竞争专员警告称，欧盟(EU)需要制定“侵入性”规则，以防止中共等外国国有企业“压低欧盟竞争对手的价格”。
 
-雷蒙多在美洲理事会的一次会议上表示，长期而言，需要增加投资以在美国生产更多的半导体，其他关键供应链需要回流，包括转到盟国。
+欧盟(EU)竞争专员玛格瑞特·维斯塔格 (Margrethe Vestager))在旨在遏制潜在不公平竞争的提案发表前一天表示，这些措施需要有“足够的威慑效果”，才能达到目的。
 
-自今年2月以来，美国总统拜登(Joe Biden)的政府一直在这个问题上敦促台湾，但汽车制造商没有报告说芯片供应有所增加。据了解此事的官员说，美国商务部计划下周就这一问题与汽车制造商举行一次高层会议。美国商务部发言人拒绝置评。
+维斯塔格5月4 日在《华尔街日报》(Wall StreetJournal)首席执行官理事会(CEO Council)在线会议上表示，“我们看到了一些并购的例子，在大型招标程序中，企业必须依靠自己的力量来证明自己的商业理由，而那些从外国政府获得补贴的企业则以低价收购。”
 
-美国汽车工人联合会立法主任乔希·纳萨尔周三在美国众议院听证会上发表书面证词称，芯片短缺导致“数万名工人失业”，“我们需要加强国内汽车级半导体的生产。”
+欧盟执行机构欧盟委员会(European Commission)周三将提出措施，以阻止获得不公平补贴的交易，甚至对企业处以罚款。尽管提案草案中特别没有提到中共国，但此举是源于欧洲企业对无法与中共企业进行公平竞争的投诉。
 
-上周，福特汽车公司(F.N)警告称，芯片短缺可能导致第二季度产量减少一半，导致该公司损失约25亿美元，2021年将减产约110万辆。通用汽车周五表示，由于供应短缺，将延长几家北美工厂的停产时间。
+维斯塔格表示，中共“对我们来说也是一个系统性竞争对手”，欧盟也在寻求衡量其对某些全球供应商的依赖程度。她说，“希望确保我们不会最终陷入依赖某人的境地。我们与某人在系统上是透明的。”
 
-4月12日，拜登召集半导体和汽车行业高管讨论芯片危机的解决方案。他支持500亿美元来支持美国的芯片制造和研究。
+根据欧盟的新规草案，过去三年在欧洲产生至少5亿欧元(合6亿美元)营收、并从外国获得逾5,000万欧元支持的企业，此后的交易必须获得欧盟的批准。该草案将于周三敲定。
 
-台湾的战略地位及芯片产业，已经成为各国目光聚焦点。中共蠢蠢欲动一统台湾之心，牵动了世界各国的神经。
+欧盟还希望，如果发现某家公司不公平地从外国补贴中获益，包括以低于欧洲竞争对手的价格获得无限的国家担保或信用额度，则可以对该公司处以相当于其年收入10%的罚款。
+
+欧盟在草案中警告说，它可以取消政府授予那些从此类补贴中获得不公平优势的公司的合同。
 
 参考链接：
 
-[https://www.reuters.com/technology/us-commerce-dept-pressing-taiwan-supply-more-chips-us-automakers-2021-05-04/](https://www.reuters.com/technology/us-commerce-dept-pressing-taiwan-supply-more-chips-us-automakers-2021-05-04/)
+[https://www.bloomberg.com/news/articles/2021-05-04/vestager-backs-intrusive-rules-as-eu-targets-chinese-firms](https://www.bloomberg.com/news/articles/2021-05-04/vestager-backs-intrusive-rules-as-eu-targets-chinese-firms)
 
 0
