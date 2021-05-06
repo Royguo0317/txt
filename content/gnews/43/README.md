@@ -1,53 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美国顶级教育机构与中共合作 社会主义瘴气恐吹向美国儿童
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1179808/)
+## 「疫情下的西班牙」“女川普”赢得马德里地区选举，西班牙将向右转
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1180037/)
 
-作者：纽约香草山信息部 sisyphus(天元）
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+- 作者：gokuabuela
 
 
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06104419/MOS2643-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E7%BE%8E%E5%9B%BD%E9%A1%B6%E7%BA%A7%E6%95%99%E8%82%B2%E6%9C%BA%E6%9E%84%E4%B8%8E%E4%B8%AD%E5%85%B1%E5%90%88%E4%BD%9C-%E7%A4%BE%E4%BC%9A%E4%B8%BB%E4%B9%89%E7%98%B4%E6%B0%94%E6%81%90%E5%B0%86%E5%90%B9%E5%90%91%E7%BE%8E%E5%9B%BD%E5%84%BF%E7%AB%A5.jpg)图片来源：CPDC
+**西班牙2021年5月6日电/西喜社——**
 
-据[当前危机委员会](https://presentdangerchina.org/top-u-s-teacher-training-org-is-partnered-with-a-chinese-communist-group-promoting-socialist-nursery-rhymes/)（CPDC）5月4日报道，美国埃里克森研究所在2017年就与中共国儿童新闻出版集团（China Children’s Press & Publication Group，CCPPG）签署了合作协议。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06114511/image0-1-2.jpg)
 
-埃里克森研究所是美国一家顶尖的培训教师和影响课堂课程的研究机构。其为教育和社会工作者提供学术课程和学位，那些影响着儿童早期政策，并为儿童和家庭创建项目的个人，包括政府官员、项目管理者、倡导者和资助基金会官员都依赖该团体的研究。其服务主要在儿童早期护理和教育计划，整体健康，家庭弹性以及为儿童教育者和提供者提供途径和支持。关注侧重点为8岁以下的儿童。在美国，每年约有400万儿童受益于该机构的研究人员和教师的教育指导。
+有着“西班牙政治火车头”之称的马德里大区的选举已经结束，右翼的人民党(PP)大获全胜，席位从2019年的30席增加到65席，超过所有左翼党派的总和，占州议会的45%，接下来，将可能和极右翼的VOX组成联合自治区政府。人民党参选人阿尤索如愿再次当选马德里大区区长。
 
-CCPPG是共青团中央的一个分支机构，该机构以出版儿童报纸和杂志为主题，并且还经营者中共国少先队中央新闻网站。出版和推送过《像伟大的思想一样思考—卡尔·马克思青少年读物》《少年马克思》和以《习近平讲故事》的内容为基础的育儿系列书。该机构贯彻了政府操纵的传播和维护马克思，列宁，毛泽东和，邓小平，以及习近平学说的目标。发行了100首核心价值观童谣，自称是体现社会主义核心价值观的励志童谣集。
+该次选举在疫情的背景下，而且投票日为工作日，共有76.25%的选民参加了投票，创下了参与人数的高记录。
 
-埃里克森研究所还曾派教育工作者到中国参加由国营华东师范大学主办的教育会议。在与中共合作的同时，埃里克森研究所加倍强调其对社会正义教义的 “承诺”，承诺用其资源 “拆除体制和系统性的种族主义结构”。
+左翼的社民党（PSOE）遭遇惨败，从2019年的多数党成为少数党，丢失了马德里大区的政治控制权。对桑切斯政府打击甚大。
 
-科学研究发现，学龄前儿童主要通过对环境的感知来理解世界并做出行动，而不是基于逻辑。在这个阶段，孩子们正在发展接收大量信息，并将其保存在头脑中的能力。这是发展抽象与逻辑思维的一个重要步骤，决定着孩子未来的发展，最需要精心培养。而这种与社会主义思想有关的文章和故事普遍缺乏逻辑性，经不起推敲和考证，只是用一种主观的情绪来替代对事物本质的理解。比如通过塑造领导者完美形象，满足人们对偶像的渴望与幻想；或者给人们造成一种自视渺小，缺乏自信的消极情绪。而情绪会对我们的思考、决定、和解决问题的方式产生重大影响。实验表明，情绪积极和消极者都不如情绪表现中性者的事务处理能力优秀。参考中国的大跃进和文革，人民缺乏逻辑，以主观情绪行事，被政治操纵。这一点我们新中国联邦人最能感同身受。
+极左翼的“我们能够”党（PODEMOS）的前领导人伊格莱西亚斯遭受重挫，声称将退出政坛。
 
-埃里克森研究所和中共合作的主要原因是中共输送的“资源”，根据中共“一带一路”的外交政策可以判断出，该资源无疑是金钱。中共表面通过孔子学院之类的军民融合项目，向国际社会输出社会主义价值观和思想，实际暗度陈仓，以商业形式影响西方民主国家的教育体系，使得西方无法从行政层面剔除中共的渗透，最终达到一系列政治目的。
+**简评：**
 
-没有什么目标比保护下一代还重要。全世界必将联合灭共！
+**此次的选举胜利可以说是伊萨贝尔-迪亚斯-阿尤索（ISABEL-DIAZ-AYUSO）个人魅力的胜利。她的竞选口号是“要共产主义还是要自由”，她反对疫情期间的限制令，主张给人民更多的自由，降低税收等。她的胜利，可能会在欧洲引起连锁反应，让那些因为疫情而被深受限制的其他国家选民受到鼓舞，她甚至被人称为“西班牙的唐纳德-川普”。**
 
-参考资料：
+**她的绝对优势当选，不仅是影响了马德里地区的政治气候，还可能对整个西班牙的政治局势产生影响，她的选举口号直接针对中央政府执政的社会主义者们，有媒体认为“她的胜利不在于如何关注疫情带来的社交和经济问题，而是因为直接挑战了中央政府”， 并认为“桑切斯领导的社会主义者们已进入下课的倒计时”。**
 
-[How emotions affect logical reasoning: evidence from experiments with mood-manipulated participants, spider phobics, and people with exam anxiety](https://www.frontiersin.org/articles/10.3389/fpsyg.2014.00570/full)
+**2023年到期的桑切斯政府面临着提前下课的可能，对此，桑切斯并没有表现得太担心，因为他正在申请欧洲复苏基金的过程中，如果在他的任期内，能获得最多1400亿的欧洲复苏基金，那么，在任期结束前，他因为掌握着钱袋子，而会高枕无忧，甚至可以用这笔钱为继续执政铺平道路。**
 
-[Babies Think Logically Before They Can Talk](https://www.scientificamerican.com/article/babies-think-logically-before-they-can-talk/)
+**而目前正值欧盟审计西班牙的申请计划的关键时刻，政局的更迭有可能为资金的发放带来不可预测的变化。为了达到欧盟要求的“优化财政赤字的结构”，桑切斯政府采取的办法是：提高所有公司的所得税，所有高速公路全部收费，提高领取养老金的年限等措施。而阿尤索对这些政策持完全反对的态度。**
 
-[Ages & Stages: Helping Children Develop Logic & Reasoning Skills](https://www.scholastic.com/teachers/articles/teaching-content/ages-stages-helping-children-develop-logic-reasoning-skills/)
+**从我们的角度来说，桑切斯的左翼在疫情中的一系列做法更像共产党，他也被人称为“桑切斯主义”，用来对标委内瑞拉的“查韦斯主义”。对双方来说，最大的挑战还是疫情，只要疫情不能完全消除，桑切斯政府即使握有复苏基金的支配权，也于事无补。谁能领导人民跟紧灭共的大势，消灭中共，解决疫情的威胁，才能真正成为西班牙的领导人。 阿尤索的右翼政府是否会成为西班牙参与全球联合灭共的领导者，让我们拭目以待。**
 
-编辑/校对/发稿：雪梨
+**但欧洲集体右转的趋势已经越来越明显。江山代有人才出，我们希望新生代的欧洲领导人能顺应民意，联合灭共，一切都已经开始。**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+审核：蚂蚁兄弟；校对：阿伯塔； 发稿 : 信心的选择
 
-**更多资讯，更多关注**
+**新闻来源：**[ABC新闻](https://www.abc.es/elecciones/madrid/resultados/)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[西班牙巴塞罗那喜悦农场：疫情下的西班牙专栏](https://gnews.org/zh-hans/993776/)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
 
 +1

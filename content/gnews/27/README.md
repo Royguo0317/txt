@@ -1,13 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210506
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1180070/)
+## 吉尔吉斯斯坦总统抵达发生冲突的边境
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1180299/)
 
-- 制图：透明的遮羞布
-- 编辑：神奇四侠
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115627/01-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115652/02-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115725/03-7.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115822/04-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115846/05-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115910/06-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115933/07-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115957/08-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120024/09-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120057/10-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120131/11-10.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120205/12-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120231/13-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120254/14-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120318/15-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120345/16-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120401/17-1-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120422/17-2-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120442/17-3-1.jpg)
-以上文字图片仅代表作者个人观点，与GNEWS无关
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/C-4.jpg)ilkha.com
+05月06日，吉尔吉斯斯坦总统萨德尔·贾帕罗夫（Sadyr Japarov）已抵达与塔吉克斯坦接壤的巴特肯地区。这在共和国总统的网站上报道的。
+
+声明说，“国家元首将访问最近在国家边界吉尔吉斯-塔吉克段发生的事件所影响的村庄，并与当地居民举行会议。”
+
+吉尔吉斯斯坦和塔吉克斯坦边境的冲突发生在4月28日。当时，塔吉克军事人员在“Golovnoy”配水点附近的一根杆子上安装了监控摄像头。当地人要求拆除摄像机，但军方拒绝这样做。一场战斗爆发了，双方开始互相投掷石头。此后，吉尔吉斯斯坦巴特肯地区的阿克赛、阿克塔提尔和萨马尔坎德克农村地区被宣布进入紧急状态。
+
+第二天，吉尔吉斯和塔吉克军方对该事件进行了干预。双方开始交火。到4月29日晚，双方同意停火。5月3日，双方撤回了各自的部队。
+
+4月29日，吉尔吉斯检察院对该事件进行了刑事调查，认为这是一起破坏和平的犯罪。5月3日，塔吉克执法机构对吉尔吉斯军队进行了立案调查。
+
+吉尔吉斯斯坦共和国卫生部表示，有180多名吉尔吉斯斯坦公民在冲突中受伤，34人死亡。塔吉克斯坦没有提供关于冲突受害者的官方数据。
+
+参考链接：
+
+[https://www.rbc.ru/rbcfreenews/609396b09a794711b3166c33](https://www.rbc.ru/rbcfreenews/609396b09a794711b3166c33)
 
 0
