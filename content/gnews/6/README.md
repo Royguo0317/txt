@@ -1,35 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国 停止与澳大利亚的经济对话
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1180799/)
+## 2021年5月6日 文贵先生盖特 1
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1181010/)
 
-```
-新闻来源：意大利共和国报（La repubblica）  
-发表时间：2021年5月5日  
-翻译整理/简评：斩草要除根
-```
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
+5月6号：四个自信的中共．主动和澳大利亚脱钩．Facebook主动和川普总统脱钩．谁是最终的受益者呢？【[https://www.news.com.au/finance/economy/australian-economy/china-indefinitely-suspends-all-activities-under-the-chinaaustralia-strategic-economic-dialogue/news-story/28f3127a544a3caff409ab9fe0d90533](https://www.news.com.au/finance/economy/australian-economy/china-indefinitely-suspends-all-activities-under-the-chinaaustralia-strategic-economic-dialogue/news-story/28f3127a544a3caff409ab9fe0d90533) 中国“无限期暂停”中澳战略经济对话的所有活动】
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06152718/%E4%B8%AD%E6%BE%B3%E5%85%B3%E7%B3%BB_gaitubao_1280x720.jpg)
+[【2021年5月6日】文贵先生盖特原文](https://gtv.org/getter/6093f97f37f7f73984c88da3)
 
-中共国和澳大利亚之间的关系日益僵化。北京已无限期暂停与堪培拉进行“经济对话”有关的所有联合活动，加剧了双边危机。中共国主要的经济计划者国家发展和改革委员会表示，该决定是“根据澳大利亚目前的态度”作出的，澳大利亚官员是“意识形态歧视”。
-
-上个月，澳大利亚出于“国家安全原因”取消了“一带一路”倡议中包括的维多利亚州的两项协议，并正在考虑取消将达尔文港租用99年的协议，这是北方最重要的沿海和最接近亚洲，以及美国海军陆战队的基地。
-
-消息公布后，澳元下跌了0.6％。澳大利亚要求对冠状病毒大流行的起源进行独立调查，并要求电信巨头华为停止接入5G网络建设。
-
-中共国是澳大利亚最大的贸易伙伴，但已经对十多个关键行业征收关税，影响到葡萄酒，大麦和煤炭。
-
-#### 简评：
-
-**澳大利亚已经清楚的意识到，所谓的“新丝绸之路”看似是中共国改善与欧亚国家贸易联系的一项战略举措。但实际上，现在美国、澳大利亚以及越来越多的欧洲国家将其视为试图在两大洲的地缘政治层面上北京实力的扩张。流氓中共一副全世界离了它就不能活的架势，让西方国家在看清了它的本质之后，到了即使断臂割腕也要和中共划清界限的地步。此时，中共国主动要求和脱钩，以为这是澳大利亚最不愿意看到的，来作为一种威胁手段，此番行为对到底是谁搬起石头砸自己的脚呢？我们只能拭目以待了**！
-（本文仅代表译者个人观点，跟GNEWS平台无关。）
-
-**新闻原文链接：**🔗[Cina, stop al dialogo economico con l’Australia](https://www.repubblica.it/esteri/2021/05/06/news/cina_stop_al_dialogo_economico_con_l_australia-299638507/)
-
-* * *
-
-***编辑整理/校对: **Ting Guo*
+**喜联盟Gnews编辑部**
 
 0

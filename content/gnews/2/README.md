@@ -1,36 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧盟希望重启与印度讨论自由贸易协定
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1180958/)
+## 【圣城传声筒】一位香港手足妈妈的心声
+` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1181063/)
 
-```
-新闻来源：德国经济周刊 网络版 
-发布时间：2021年5月3日
-翻译整理/ 简评： Shuizhuyu
-```
+作者：香草山香港部 HK02
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06163054/image0-26-scaled.jpg)图片链接：PRP频道
 
-欧盟委员会希望恢复与印度之间的自由贸易协定的谈判，该协定自2013年以来已中止。正如经济周刊（*WirtschaftsWoche*）报道的那样，该话题在欧盟圈子中表示：“该主题已在周六举行的欧盟，印度峰会上提上日程”。欧盟委员会主席乌尔苏拉·冯·德·莱恩周一上午致电印度总理纳伦德拉·莫迪。莫迪随后在推特上写道：“我相信我们的会议将为我们的战略伙伴关系带来新的动力。”
+她的儿子是2019年香港反送中运动一名前线勇武抗争者。
 
-通过谈判，欧盟委员会主席乌尔苏拉·冯·德·莱恩希望向中共国发出一个明确的信号，即欧洲正在寻找亚洲的其他战略伙伴。印度也想遏制中共国的影响。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06165532/%E5%9B%BE%E7%89%871-16.png)图源网路
 
-专家们认为谈判将非常困难，因为双方进入谈判的想法都大相径庭。布鲁塞尔智库欧洲国际政治经济中心（*ECIPE*）负责人霍萨克·李·马基亚马（*Hosuk Lee-Makiyama*）说：“作为第一步，欧盟委员会希望达成一项与中国谈判达成的类似投资协议。” “与此同时，印度人最初希望欧洲人降低关税，以便以后更深入地参与谈判。”
+她的儿子已于2020年香港国安法通过后不久，和她悄然话别离开香港，并成功地平安抵达海外。
 
-由于病毒大流行，莫迪将不会按计划前往波尔图，跟安格拉·默克尔一样将通过视频参加会议。
+当妈妈得知儿子已平安抵达目的地后，她没有放声痛哭，只是情不自禁流下坚毅的眼泪。她知道香港这个曾经的文明社会已经被邪恶野蛮的共产党政权摧毁。东方之珠已经失去惜日灿烂的光辉。
 
-#### **简评：**
+但她和众香港妈妈们有着同样坚定的信念，就是中国共产党一定会被消灭，正义一定会战胜邪恶，港共政府最终也一定会受到清算，香港一定会光复，恢复昔日荣光。
 
-**欧盟已经明确表示对于与中共国的贸易协定，「有待批准」, 实际上是搁置了，搁浅了。欧盟已经把伙伴关系转向了印度，自2013年开始，欧盟就没有和印度讨论过自由贸易协定。这次，就是要给中共国发出一个信号，中共的扩张已经引起了欧盟的反感，中共总是觉得用诺大的市场可以征服世界，中共的算盘这回是彻底的落空。反而，欧盟找到了亚洲的新伙伴，成为了制衡中共的利剑。 **
-（本文仅代表译者个人观点，跟GNEWS平台无关。）
+她寄望儿子在海外一定要继续参与反共抗争活动，不要丧失善良，正义和勇敢的精神。
 
-**新闻原文链接：**
-🔗[EU will mit Indien wieder über Abkommen zum Freihandel beraten](https://www.wiwo.de/politik/europa/als-gegengewicht-zu-china-eu-will-mit-indien-wieder-ueber-abkommen-zum-freihandel-beraten/27155328.html)
+她告知儿子，妈妈会怀揣信念坚强地活着，尽管现在仔仔被迫离港，离开妈妈，但这只是暂时的，相信仔仔心系香港心系妈妈。
 
-* * *
+妈妈坚信共产党一定会被消灭，这一天一定会到来，我们见到香港光复，妈妈会等待你重回香港的那一天。
 
-***编辑整理/校对: **Ting Guo*
+仔仔，我们一起加油！
+
+
+
+编辑/校对/发稿：小鹿
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205738/M5-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场****Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场****Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
+
+
 
 0
