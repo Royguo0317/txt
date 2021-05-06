@@ -1,43 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Starship原型SN15顺利着陆
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1177346/)
+## MI6局长支持武汉实验室泄漏 理论
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1177423/)
 
-整理撰稿：蓝精灵
+翻译：康州盘古农场 – Freeearth
 
-埃隆·马斯克（Elon Musk）的SpaceX在星期三进行了第五次高空试飞，然后星舰火箭的最新原型机进行了安全降落。
+校对：康州盘古农场 – Mike Li
 
-星际飞船的原型火箭序列号15（或SN15）飞行了10公里（约33,000英尺）。
+编辑：康州盘古农场 – 心照
 
-SN15标志着第一个在高空试飞后并未销毁的星际飞船原型机。 着陆后，火箭底部爆发了一阵小火，但几分钟后就出现了大火。
+发布：康州盘古农场 – 彩虹 Rainbow
 
-SN15的飞行类似于SpaceX在过去六个月中进行的飞行，并进行了原型SN8，SN9，SN10和SN11的测试飞行。 尽管每个先前的火箭都成功发射并完成了多个开发目标，但所有四个原型都遭到爆炸性破坏。
+**据《国家脉动》作者：娜塔莉·温特斯 (Natalie Winters)，2021年5月2日发**
 
-编者简评：
+英国秘密情报局的一位前负责人坚称，中共病毒从中共实验室泄漏出来的可能性比来自自然界的可能性“大得多”，并指出中共国利用其“重大影响力”阻止对病毒起源的公开辩论。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05191508/coco3.jpg)
+理查德.迪尔若夫爵士(Sr. Richard Dearlove)在1999年至2004年间在该机构（军情六局）担任负责人。他补充说，该病毒在各个方面“都指明了在某种程度上是被量身定制的”。迪尔洛夫（Dearlove）还抨击中共对相关数据的掩盖，以及最近世界卫生组织（对中共病毒）的调查是一场“闹剧”。
 
-网上有人贴出了spaceX的SN系列的每次试验的进步：
+迪尔洛夫断言：“我认为可能性是均衡的。 显然，如果它不能被证明，我认为不可能，因为可能以一种或另一种方式证明，由于中共的销毁证据已经被破坏了。 ”
 
-迭代开发
+虽然他承认病毒“有可能”从自然界传染给人类，但这位前情报局长认为“如果你是科学家的话，合成这种病毒的可能性很大。”
 
-这是SpaceX的方式
+他在要求就中共病毒的起源进行“公开辩论”时补充：“我认为中共有责任证明它是人畜共患病毒，因为，证据强烈地向我和许多著名科学家暗示，它（病毒）更有可能是从实验室逃脱的。” 他还强调说：“我认为中共国在这一特定领域具有重大影响力，并且中共国在确保金融影响力方面一直非常努力，以确保其话语权具有支配地位。 ”
 
-星舰SN8：爆炸式着陆 –
+原文链接:[https://thenationalpulse.com/breaking/m16-chief-blasts-wuhan-lab-theory/](https://thenationalpulse.com/breaking/m16-chief-blasts-wuhan-lab-theory/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-星舰SN9：爆炸式着陆 –
-
-星舰SN10：硬着陆，飞行后爆炸 –
-
-星舰SN11：爆炸式启动 –
-
-星舰SN15：顺利着落
-
-(以上仅代表作者观点，不代表Gnews平台)
-
-参考链接：
-
-[https://www.cnbc.com/2021/05/05/spacex-starship-sn15-livestream-watch-prototype-rocket-test-flight.html](https://www.cnbc.com/2021/05/05/spacex-starship-sn15-livestream-watch-prototype-rocket-test-flight.html)
-
-校对/发布：Penny
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

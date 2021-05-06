@@ -1,43 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 前乌克兰检察官说，他因未应朱利安尼和川普的要求调查亨特·拜登而被解雇
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1177241/)
+## 习近平公布了控制全球互联网的计划
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1177345/)
 
-整理撰稿：蓝精灵
+翻译：康州盘古农场 – WH
 
-乌克兰前检察长里亚博沙普卡（Ryaboshapka）在接受BuzzFeed新闻采访时说，朱利安尼（Giuliani）和乌克兰总统沃拉迪米尔·泽伦斯基（Volodymyr Zelensky）的参谋长安德烈·耶尔马克（Andriy Yermak）之间最近的通话记录显示，他因政治原因被解雇了。
+校对：康州盘古农场 – Mike Li
 
-“它揭示了一个重要的细节，” Ryaboshapka告诉BuzzFeed。“叶尔马克答应朱利安尼（Giuliani）对亨特·拜登（Hunter Biden）进行调查。
+编辑：康州盘古农场 – 心照
 
-“我不知道这次电话会议的实质。我不知道耶尔马克答应帮助朱利安尼，”他补充说。
+发布：康州盘古农场 – 彩虹 Rainbow
 
-2月，《时代》杂志 获得了朱利安尼和耶尔马克之间的电话通话记录，其中朱利安尼要求展开调查，以帮助特朗普赢得第二任期。
+**据《大纪元时报》2021年5月2日报道**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05191618/hohorqq.jpg)习近平于2021年3月4日出席在北京举行的政协会议（CPPCC）开幕式。 （法新社）
+根据《大纪元时报》最近获得的（中共国）政府内部文件，中共领导人习近平亲自指示共产党政权集中精力控制全球互联网，以取代美国的影响力。
 
-朱利安尼对叶尔马克说：“让这些调查继续进行。请有人调查。”
+习近平在2017年1月的演讲中表示，“控制互联网的力量”已成为“ [中共国]全球战略竞争的新焦点”，并把美国列为阻碍其发展的“竞争力量”的野心。
 
-“我不知道这次电话会议的实质。我不知道耶尔马克答应帮助朱利安尼，”他补充说。
+共产党的最终目标是控制全球互联网上的所有内容，以此该政权可以在世界舞台的交流和讨论中运用习近平所说的“话语权”。
 
-亚博沙普卡说：“泽伦斯基曾多次问我此案，我们研究了15或16例病例。我们审查了所有这些内容，没有发现任何可能违反法律的内容。”
+习近平提出了“利用技术统治互联网”的愿景，以实现对在线生态系统各个部分的全面控制，包括应用程序、内容、质量、资金和人力。
 
-泽伦斯基的办公室在回应前检察官的话时对BuzzFeed说：“里亚博沙普卡先生的言论可能是乌克兰内部的政治局势引起的，与国家的外交政策无关。” “总统办公室有兴趣在乌克兰建立一个强大的独立执法机构系统。”
+网络安全专家，《网络防御》杂志出版商加里·米利夫斯基（Gary Miliefsky）告诉《大纪元时报》，如果中共政权要获得对更多根服务器的控制权，他们便可以将流量重新导向到所需的任何地方。
 
-上周，联邦当局突袭了朱利安尼的公寓，这是对朱利安尼与乌克兰打交道的调查的一部分，并通过代表乌克兰游说特朗普政府来确定他是否未能注册为外国特工。
+例如，如果用户想浏览有关北京认为敏感主题的新闻文章，则该政权的DNS服务器可以将用户引导至伪造页面，误导该文章不再在线。
 
-据报道，部分调查与前美国驻乌克兰大使被解雇有关玛丽·约瓦诺维奇（Marie Yovanovitch），是奥巴马任命的人，但泽伦斯基不喜欢他。
+他说：“控制根服务器的那一刻，您就可以欺骗或伪造任何东西。”“您可以控制人们看到什么，看不到什么。”
 
-朱利安尼周一声称，联邦检察官正试图利用《外国特工注册法》对他进行“陷害”。
+原文链接: [https://www.theepochtimes.com/chinese-leader-xi-jinping-lays-out-plan-to-control-the-global-internet-leaked-documents\_3791944.html](https://www.theepochtimes.com/chinese-leader-xi-jinping-lays-out-plan-to-control-the-global-internet-leaked-documents_3791944.html)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-朱利安尼对福克斯新闻说：“他们正试图陷害我。” “他们正在努力寻找可以使自己犯罪的东西，一些技术违规行为，以及我犯的一些错误。”
-
-星期三，司法部要求一名联邦法官任命一名外部律师，以审查在朱利安尼的公寓中寻找到的文件。
-
-(以上仅代表作者观点，不代表Gnews平台)
-
-参考链接：
-
-[https://thehill.com/policy/international/552022-former-ukrainian-prosecutor-says-he-was-fired-for-not-investigating](https://thehill.com/policy/international/552022-former-ukrainian-prosecutor-says-he-was-fired-for-not-investigating)
-
-校对/发布：Penny
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
