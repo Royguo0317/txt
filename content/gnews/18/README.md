@@ -1,34 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疲苦的五一假期和活不起的中共
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1180749/)
+## 活出人样
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1180773/)
 
-作者：Xiaopan | 校对：X-Wing飞得更高 | 审核：宁缺 | Page：我是球大哥
-[!\[\]()!\[\](https://spark.adobe.com/page/SIYBT3eV2toWs/images/b8372595-c853-49b3-8d88-fda434244e0d.jpg?asset_id=103e64ac-5c02-4bb6-80fc-5fe93cf1a494&amp;img_etag=%2287707643de2d7be34b9404c4d1b32f10%22&amp;size=1024)](https://spark.adobe.com/page/SIYBT3eV2toWs/images/b8372595-c853-49b3-8d88-fda434244e0d.jpg?asset_id=103e64ac-5c02-4bb6-80fc-5fe93cf1a494&amp;img_etag=%2287707643de2d7be34b9404c4d1b32f10%22&amp;size=1024)
-墙内所谓的劳动节小长假，终于结束了。但是这个假期的调休，还没有结束，5月8日，星期六，仍然需要上班。加上4月25日多上的一天班，再减去假期中本来就该休息的周六周天。这个所谓的小长假，实际只放了一天假。人民是多么幸福，时刻被中共算计的幸福。
+作者：Filon| 翻译：Filon|校对：文意、X-Wing| 审核：宁缺| Page：小六月
 
-五一劳动节加五四青年节，双节合璧，只放假一天。一个政府，到了什么样活不起的地步，才这么吝啬的安排法定节假日？以至于在所谓长假的基础上，发明了一个叫“小长假”的新词。无耻者，自有一套无耻的好听名词。回头看那些偶尔被拿出来讨论的每周四天半工作制，是多么可笑，纯属逗你玩。
+[!\[\]()!\[\](https://spark.adobe.com/page/lJjwPqq9PPKqP/images/bacb22d2-d41c-4aea-a149-4359184897ac.jpg?asset_id=36c10ec6-2859-4e42-a488-18032180a505&amp;img_etag=%22d08aa6fb25c6e7f57645ea48f64fea14%22&amp;size=1024)](https://spark.adobe.com/page/lJjwPqq9PPKqP/images/bacb22d2-d41c-4aea-a149-4359184897ac.jpg?asset_id=36c10ec6-2859-4e42-a488-18032180a505&amp;img_etag=%22d08aa6fb25c6e7f57645ea48f64fea14%22&amp;size=1024)
 
-被支配的人民，像羊群一样冲向各类景区，去参与和体会人口密度的极限。无论是被引导还是纯自发，最终的结论就是一顿咒骂与后悔。旅游观光，看得最多的不是密密麻麻的人头就是拥挤在身边的屁股。每年如此疲惫，来年却继续蜂拥。
+想到赵婷导演，首先映入我眼帘的是她14岁年纪离开中共国去往英国和美国生活的这段经历。离开了中共国往往就代表离开了思想的束缚和所谓人云亦云社会标准，在自由的世界里活成了一个拥有独立人格的人。
 
-是同一波人持续不长记性，还是每次都换了一茬新人扎堆出行，这可能是个无解的问题。但我们清晰地看到，当高速路开始限时免费的时候，不收费的景区便提前立起牌子，亮出收费标准。原先收费的景区，开始加价，景区的停车、餐饮、住宿都开始为多赚钱忙碌起来。他们期盼的羊群来了，“移动的韭菜”来了，剪刀和镰刀都得磨出亮光，宰出半年的利润。
+[!\[\]()!\[\](https://spark.adobe.com/page/lJjwPqq9PPKqP/images/67147a6e-89da-4350-8d13-b0040ba36490.jpg?asset_id=cd69d2aa-dd07-4562-b300-f66bd7722f72&amp;img_etag=%22a4fa7882ca9bd0e99b131ed0731fbff2%22&amp;size=1024)](https://spark.adobe.com/page/lJjwPqq9PPKqP/images/67147a6e-89da-4350-8d13-b0040ba36490.jpg?asset_id=cd69d2aa-dd07-4562-b300-f66bd7722f72&amp;img_etag=%22a4fa7882ca9bd0e99b131ed0731fbff2%22&amp;size=1024)
 
-旅途中更有被堵在路上几十小时的状况，煎熬的等待，也是被宰的好时机。今年青藏线四川段大堵车，一瓶水、一个鸡蛋的价格都飞涨到几十块钱，且爱买不买，不买饿着，回来就涨价。这便是，上层精英都热衷于盗国、发国难财的时候，底层民众肯定不会放弃任何发民难财的机会。
+在中共营造的愚民社会环境中，中共喜欢给人营造统一的标准，统一的脸谱，让所有人按照一个模版活成一个模样。
 
-当人们拖着疲惫的身躯和空空的钱包回到家，等在前面还有一个被阉割的周末。出门游玩时的好心情，在叹息中荡然无存。更没有好心情的，还是很多政府及国企的底层职员，按照各种不同的规定，他们都是需要被安排在节假日值班的。与民生相关的治安、交通、医疗等相关部门倒是可以理解。但是为了不犯错，几乎所有部门和国企，无论有无生产活动，都得安排人值班，喝一天茶也得有人在。
+对于孩子们从小的教育，其目的不是为了如何引导发散他们的思维，而是按照教条学习死背知识点应付考试；是研究如何消磨掉他们的奇思妙想，学会老老实实按照老师家长要求好好考试。
 
-体会社会主义的优越性之一，就是即使本该轻松愉快的假期，也一定会搞得人民痛苦不堪。同时为了压榨百姓所有的生产价值剩余价值，哪怕多半天的休息日都是不会给的。只有穷疯了，才什么钱都想抢。只有活不起了，才如此赶时间。
+中共是不喜欢拥有独立思考能力的人大量存在的，对于中共来说，百姓胡思乱想对于他们想要维护的统治来说是十分危险的。
 
-（文章仅代表个人观点）
+在中共眼里喜爱西方就是崇洋媚外，喜欢西方就是不尊重自己民族。
+
+可是大部分中国人喜欢西方的理由是西方文明世界所拥有的人权、自由和平等。每一个人是能够被尊重的个体。
+
+只要不危害到他人，任何人都应该是可以按照自己喜好过着自己想要的生活的，没有绝对应该的生活模式。
+
+这才是所谓西方世界吸引人的地方，也是中共不愿让每一个中国人所拥有的。
+
+赵婷导演能拍出引发美国思考的电影正是因为她25年在西方世界的生活，对生活自由的思考。
+
+可以断言，在中共国她绝对拍不出这样有深度的电影。在中共国拍电影的她，第一条思考准则将是政治上这样是否可行，所表达的艺术能不能被广电总局给审核通过，她的一切艺术创作将都无法离开政治要求的框架。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/lJjwPqq9PPKqP/images/376f83d6-ed3a-46ab-ad13-f46528ecf6f8.jpg?asset_id=df4cc98c-a2a1-41a6-81e5-bc5ae6955cbe&amp;img_etag=%223476c82d1bb43dc6d71e9907ecf75ea1%22&amp;size=1024)](https://spark.adobe.com/page/lJjwPqq9PPKqP/images/376f83d6-ed3a-46ab-ad13-f46528ecf6f8.jpg?asset_id=df4cc98c-a2a1-41a6-81e5-bc5ae6955cbe&amp;img_etag=%223476c82d1bb43dc6d71e9907ecf75ea1%22&amp;size=1024)
+
+被政治捆绑的创作就不能称之为艺术，那叫政治宣传。任何个体的见识都有其片面性和局限性，所谓的广电总局几十个领导何德何能可以审核十四亿中国人的思想，审核一切艺术创作。
+
+艺术好坏自有整个市场给予反馈。
+
+赵婷导演的成功使所有中国人都应该受到鼓舞的。
+
+在西方文明世界活着的中国人赵婷导演，活的像一个人，能自由独立思考、成为一个向往美好的人，不是一个没有思维的人肉机器。
+
+同样这也是咱们新中国联邦的愿景，营造出一个可以让每一个中国人有尊严、体面的活着，有勇气有胆量，活出不同人生的自由世界。
+
+活得明明白白，懂得为什么而活，为自己而活，活出一个人样。
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/SIYBT3eV2toWs/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/SIYBT3eV2toWs/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/lJjwPqq9PPKqP/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/lJjwPqq9PPKqP/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
