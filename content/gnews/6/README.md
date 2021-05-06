@@ -1,32 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 对病毒“解药”及“以共灭共”之我见
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1180681/)
+## 【英国】寻找冠状病毒变异的更多信息 为最高机密的Porton Down实验室提供新资金
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1180495/)
 
-作者：凉白开| 校对：X-Wing| 审核：宁缺| Page：小六月
+```
+新闻来源：意大利共和国报（La repubblica） 
+发表时间：2021年5月5日 
+翻译整理/简评：斩草要除根
+```
 
-[!\[\]()!\[\](https://spark.adobe.com/page/x5hF2jmN9045y/images/e468e0f5-1a55-4e32-a0b0-df5ab84dcb14.jpg?asset_id=62238f81-3849-41b2-b40b-45dafec329c2&amp;img_etag=%22a738d4bb24436718ad4e95d5c543d933%22&amp;size=1024)](https://spark.adobe.com/page/x5hF2jmN9045y/images/e468e0f5-1a55-4e32-a0b0-df5ab84dcb14.jpg?asset_id=62238f81-3849-41b2-b40b-45dafec329c2&amp;img_etag=%22a738d4bb24436718ad4e95d5c543d933%22&amp;size=1024)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06143942/v2-22c02d49d60d1441f72742c4b6ae0ffe_720w.jpg)图片来源：网络
+【**伦敦**】在针对新冠病毒的疫苗接种运动中击败欧洲所有国家之后，英国也将自己定位在应对最近几个月出现的以及未来可能出现的冠状病毒变异的最前沿。英国《金融时报》报道称，英国政府已额外拨款3000万英镑，用于资助对生化武器的最高机密军事研究室波顿唐（*Porton Down*）进行的研究，该实验室已从*2000*年初的投资中受益。
 
-**1.** CCP有解药。
+政府担心，针对大流行的进展将被冠状病毒的新变种所阻碍，而迄今为止，使用的疫苗对这种变种仍然无效。因此，卫生部长马特·汉考克（*Matt Hancock*）在首相鲍里斯·约翰逊（*Boris Johnson*）的批准下决定加倍努力，首先是为战斗并可能赢得未来战斗所必需的资金，并且选择了波顿唐军事实验室，这是一家由国防部管理的非常秘密的科学研究所。
 
-CCP有解药，这对党内未能拿到解药的人的内心的冲击是巨大的，尤其是实权在握的候补中央委员以上的封疆大吏，举足轻重的军头等。因为这些人以为自己在党内很有地位，绝没有想到自己居然会面临和普通老百姓一样的命运（原来自己的生死在最高层眼里并不重要，原来自己也只是作为最高层的统治工具而已）。可以说，这个情报的爆出，使得这些人不再因为是ccp体制的既得利益者而对ccp体制进行坚决的维护。某种程度上，这些人一旦掌握机会便会想方设法地将最高层置于死地。这是ccp党内离心离德的真正开始。这不仅对于ccp的倒台有推波助澜的作用，也一定程度上消除了ccp倒台后重建工作面临的障碍。
+迄今为止，在确定的四个变体中，即所谓的肯特变体，巴西，南非和印度变体中，前两个已经由英国波顿唐（*Porton Down*）科学家进行了研究，《城市报》写道，并且有信心到目前为止使用的疫苗至少足以有效避免住院。南非变种仍在研究中，印度变种似乎并不构成更具侵略性的威胁。但教训是，英国考虑了未来：对新冠病毒的挑战是一项长期事业，为了赢得一场战斗或一场战争，其他国家可能会再次出现。但是在伦敦已经做好准备来应对。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/x5hF2jmN9045y/images/901d1e44-a46d-46e7-95b4-c15b766acda1.jpg?asset_id=caab59a6-ea5b-40bf-9291-fb011db9fcbe&amp;img_etag=%22cdd42a9df826e0d0fbd1775d8ef4a7c1%22&amp;size=1024)](https://spark.adobe.com/page/x5hF2jmN9045y/images/901d1e44-a46d-46e7-95b4-c15b766acda1.jpg?asset_id=caab59a6-ea5b-40bf-9291-fb011db9fcbe&amp;img_etag=%22cdd42a9df826e0d0fbd1775d8ef4a7c1%22&amp;size=1024)
+#### 简评：
 
-**2.** 5月2日，文贵先生直播提到的：曾韩王发现美国要出手时，他们会出来以共灭共。危难时期振臂一呼，先得民心（可以解释为什么网易在国内会独树一帜的存在却没事，是早已布下的局。这和江派王派推出来的反对专制、打着民主幌子的潘石屹、张欣、任志强、周孝正等是一脉相承的路数），一定会再次承诺要民主要法治，喊得比西方还响。
+**由此我们不难看出，英国政府对已这个新冠病毒引起足够的重视。首先，使用的是对生化武器的最高机密军事研究室。这也就可以变相的理解为，新冠病毒属于生化武器的范围之内。另外，他们已把新冠病毒当成是一场战争来对待，这其中奥妙就不言而喻了。很高兴看到，从一个国家层面能付出这样的行动，也很期待更多关于新冠病毒的真相，能被更有权威的科学领域解读出来。**
+（本文仅代表译者个人观点，跟GNEWS平台无关。）
 
-我们希望CCP出现一家独大的局面，而不是如今江，曾，王，朱，习多足鼎立的态势。显然，生性豪横绝不不妥协的习神的胜出是我们最愿意看到的。由于江，曾，王，朱等具有绝对的实力操弄中国的政治，我们必须借助于习神之手首先将这些党羽众多，树大根深的几个家族的势力彻底铲除。这样，在未来我们新中国联邦才可以发动隐藏在党内的正义力量灭习并且能够掌控住局势，否则在江曾王朱被消灭之前，我们的胜利果实将瞬间被其完全碾碎并窃取。而这个情报的爆出，将使得江曾王朱等着美国出手之前将习神干掉的策略落空，并且迫使习神不得不抓紧时间主动出击将威胁其统治地位的人彻底一网打尽。这是一场不是你死就是我活，先下手为强后下手遭殃的较量。
+**新闻原文链接：**
+🔗[Coronavirus, il Regno Unito dà la caccia alle varianti: nuovi fondi al laboratorio top secret di Porton Down](https://www.repubblica.it/esteri/2021/05/05/news/coronavirus_il_regno_unito_da_la_caccia_alle_varianti_nuovi_fondi_al_laboratorio_top_secret_di_porton_down-299568044/)
 
-这些情报的推出，将瓦解ccp的凝聚力以及加速其内斗，并且向着我们希望的方向进行。
+* * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/x5hF2jmN9045y/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/x5hF2jmN9045y/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+***编辑整理/校对: **Ting Guo*
 
 0

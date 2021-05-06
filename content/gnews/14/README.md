@@ -1,80 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 他山之石，可以攻玉——英国（二）
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1180566/)
+## 无冕记
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1180655/)
 
-作者：兴国 | 编辑：海阔天空 | 审核：海阔天空 | Page：青山
+作者：X-Wing| 校对：仙女儿-文善| 审核：宁缺| Page：小六月
 
-[!\[\]()!\[\](https://spark.adobe.com/page/qvJZHmszISg0i/images/0b28fc6b-db92-42d2-839f-5ece72bd13e2.jpg?asset_id=e0ad405b-01af-4e96-80cd-9d313a3b1777&amp;img_etag=%2221e40bed6258573ef1564d9c7aff26d6%22&amp;size=1024)](https://spark.adobe.com/page/qvJZHmszISg0i/images/0b28fc6b-db92-42d2-839f-5ece72bd13e2.jpg?asset_id=e0ad405b-01af-4e96-80cd-9d313a3b1777&amp;img_etag=%2221e40bed6258573ef1564d9c7aff26d6%22&amp;size=1024)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06141841/1-23-7.jpeg)
 
-**他山之石，可以攻玉——英国（二）**
+无冕之王指没有权威的名义而影响、作用极大的人。西方世界现多称记者为“无冕之王”，因为记者什么都敢写，有法律保障的言论自由，有很大的权力和影响力。新闻界最有影响力的奖项无疑是普利策新闻奖。
 
-**《大宪章》对英国和世界的影响**
+学生时代曾经读过普利策的传记，对记者这一职业充满向往。它需要敏锐的视角和反应，律师一般严密的思路和犀利的语言或笔触，有时候还需要非凡的勇气敢于挑战权威、维护正义、坚持信念、不贪图金钱。
 
-上一专题我们提到英国人早在800年前就形成自己的特质：制度精神。这是**英国崛起的真正秘密。**
+在真正享有新闻自由的地方，通常不限制记者的学历或年龄，你无需是新闻专业毕业，也无需记者证。印象中，欧美很多新闻播音员和老牌专题访谈节目主持人都是老年人和中年人居多，不少是记者出身。记者们通过贡献自己的专业知识、脑力和体力，甚至鲜血，让世人了解事实和真相，无愧于“无冕之王”称号。
 
-英国这种制度精神是怎么形成的？
+5月3日，是一个特别的日子——世界新闻自由日（World Press Freedom Day）。
 
-英国人把1215年的《大宪章》作为其制度精神的源头。
+在这一天，美国驻华使馆声明：
 
-《大宪章》在英国历史上的地位可以说至高无上，虽然那只是800年前英国国王和其他贵族签订的一个契约，把几十条封建权利和义务都作了规定。如果去看它的原文，会发现它实际是一个内容非常琐碎的文件，包括税收、监护、继承，甚至寡妇改嫁等等。
+在世界新闻自由日（World Press Freedom Day），美国重申我们对于表达自由以及有机会获取独立媒体提供的属实准确信息的承诺。自由的媒体是繁荣且有复原力的民主社会的基础。
 
-英国人为什么说这样一份契约是其制度精神的源头呢？
+在德国，报纸再次全版刊出部分新疆维族受迫害记者肖像。40位受迫害中国媒体人肖像中，25位是维族人，都曾是官媒记者。
 
-有两个主要原因：
+[!\[\]()!\[\](https://spark.adobe.com/page/XNBkZQCFw0dg2/images/120add46-34c8-4ba1-a448-02354ba21590.png?asset_id=dda01be7-11e9-4282-aca7-5c60fe9afedf&amp;img_etag=%22467828e82bd9c402922b1055947794f7%22&amp;size=1024)](https://spark.adobe.com/page/XNBkZQCFw0dg2/images/120add46-34c8-4ba1-a448-02354ba21590.png?asset_id=dda01be7-11e9-4282-aca7-5c60fe9afedf&amp;img_etag=%22467828e82bd9c402922b1055947794f7%22&amp;size=1024)
 
-第一， 《大宪章》产生的过程就是一个舍“王权特权”一时诱惑，择“法律制度”世代惠泽的过程，就是一次制度精神的体现。
+德语文章题目为：受威胁，迫害，仍在拘留中
 
-第二，《大宪章》包含了一些对后世非常重要的原则，尤其“王在法下原则”，就是再高地位的人也在法律之下的原则。
+在“无国界记者组织”发布的世界新闻自由指数中，中共国仍维持全球倒数第四。该组织新近公布的数据显示，中国在押判刑记者有114人，真实数字可能更多。
 
-但是《大宪章》包含的原则再重要，后人从国王到民众不真正认可，不能履行的话，它也只是一张废纸。
+在这一天，中国公民记者张展，获Difference Day“言论自由荣誉奖”。张展是一名律师，她到武汉疫区寻求真相，践行公民言论自由权利，为报道武汉疫情真相，唤醒民众挽救生命的危机意识而付出了巨大代价。张展在被捕后绝食抗争超过半年，遭强制鼻饲等酷刑，一度健康恶化，生命危殆，最后被重判四年，目前仍在狱中，罪名是“寻衅滋事。
 
-实际上，《大宪章》的真正意义，是它给了后人一个发力点，使全社会找到一个通过把权力关进制度笼子，超越丛林法则，可行的，无需暴力的方法。
+[!\[\]()!\[\](https://spark.adobe.com/page/XNBkZQCFw0dg2/images/1b7fa121-4d53-43a8-97bc-3583bc6d77d6.png?asset_id=4d620d9e-bd99-47ff-8c1a-09f149f04452&amp;img_etag=%2223f250e9a802be89edce901383bb4362%22&amp;size=2633)](https://spark.adobe.com/page/XNBkZQCFw0dg2/images/1b7fa121-4d53-43a8-97bc-3583bc6d77d6.png?asset_id=4d620d9e-bd99-47ff-8c1a-09f149f04452&amp;img_etag=%2223f250e9a802be89edce901383bb4362%22&amp;size=1024)
 
-《大宪章》具体如何发力呢又如何影响英国人呢？
+张展语录：
 
-约翰王以后，英格兰国王承认《大宪章》就成为贵族承认国王的一个条件。在整个中世纪，英格兰国王实际上是在不断地确认《大宪章》。
+“当然应该寻求真理，不计成本地寻求。”
 
-据统计有32次，也有人说是45次的确认。每一次坚持和确认，《大宪章》的地位就得到一次加强，习惯法的力量就这样累积起来。
+“真理一直是这个世界最昂贵的东西，它就是我们的生命。”
 
-中世纪结束以后，特别是从16世纪开始，很多英国人就开始系统地发掘《大宪章》的意义，并且让《大宪章》的原则为现实政治服务。
+“没有真相，这个世界毫无意义。”
 
-这个过程持续了200多年。这里包括一些特别重要的对历史进程有重大影响的人物：
+“不要让中国退回到朝鲜”
 
-比如英国革命前的首席大法官爱德华·柯克，他在普通法的发展史上的地位非常重要，同时他也是当时挑战王权的第一理论家，没有爱德华·柯克就没有《权利请愿书》，也没有后来的《权利法案》。他和王权斗争的主要办法，就是不断引用和解释《大宪章》。
+[!\[\]()!\[\](https://spark.adobe.com/page/XNBkZQCFw0dg2/images/00dcbbbb-4be7-4b6c-9c02-ca801f4b59b2.png?asset_id=c58fff86-c2ec-4013-bfe6-b8a26aaac4ea&amp;img_etag=%22e6bbf1d14cef14831900f7e81fb6622d%22&amp;size=2560)](https://spark.adobe.com/page/XNBkZQCFw0dg2/images/00dcbbbb-4be7-4b6c-9c02-ca801f4b59b2.png?asset_id=c58fff86-c2ec-4013-bfe6-b8a26aaac4ea&amp;img_etag=%22e6bbf1d14cef14831900f7e81fb6622d%22&amp;size=1024)
 
-再比如英国政治学家洛克，后来西方政治理论的很多重要概念，例如政治契约等等，都来自洛克。洛克核心观点也来自《大宪章》。可以说，洛克的学说本身就是对《大宪章》的一次阐释和重点强调。
+张展已被中共强行噤声，另外一名公民记者方斌至今下落不明。我们没有忘记吹哨人李文亮，我们也没有忘记陈秋实律师，我们还不应忘记前央视CCTV-7台记者李泽华，还有王全璋律师，709律师。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/qvJZHmszISg0i/images/723e8295-1bb9-4adc-baed-d57e0ef1911e.jpg?asset_id=cd396892-512d-46b1-ad83-fd8a9de68ee7&amp;img_etag=%22ccbf673b01b2c746f1425f35f38fe9f0%22&amp;size=2560)](https://spark.adobe.com/page/qvJZHmszISg0i/images/723e8295-1bb9-4adc-baed-d57e0ef1911e.jpg?asset_id=cd396892-512d-46b1-ad83-fd8a9de68ee7&amp;img_etag=%22ccbf673b01b2c746f1425f35f38fe9f0%22&amp;size=1024)
+所谓“公民记者”，是指在新闻事件的报道和传播中发挥记者作用，却非专业新闻传播者的普通民众。作为一名勇敢的公民记者，身在狱中的张展获得言论自由荣誉奖，重过普利策奖，是真正的“无冕之王”。
 
-还有很多英国历史学家非常重视《大宪章》，承认它至高无上的历史地位。
+每个人都可以成为无冕之王，轮到我们爆料革命的每位战友追求、传播真相了。
 
-在后来几百年的时间里，人们不断强调、不断运用《大宪章》，最后《大宪章》被神圣化，成为一种坚固的精神象征，形成英国人的底层精神逻辑。
-
-从英国制度建立，制度精神形成的角度和过程可见，与其说《大宪章》本身有多重要，不如说此后几百年无数英国人持续的、不间断的努力才是真正重要的。
-
-我们可以看到：一种好的精神，不可能一蹴而就，既需要智勇双全之人的振臂高呼，无数有识之士的启蒙推进，也需要尽可能多的人达成共识后的坚持运用和不断强化。
-
-英国人通过几代人持之以恒的努力向世人证明了“制度精神”的力量。这也是后来同样学习英国实行自由民主政治制度，为什么有些国家可以发挥出制度优势，民富国安，而有些国家却停滞倒退，反复集权暴政，民不聊生的一个重要原因。
-
-不同国家民众是否拥有广泛深厚的制度精神是该国百姓是否能享有真正自由民主法治生活的底层逻辑。
-
-这个道理对今天的我们更具有启示警醒作用。未来国家的走向，不是要等着强人帮我们安排好一切，而是取决于我们每一个人的观念和行动。制度精神是我们首要的观念。
-
-为什么英国民众能拥有这样深厚的底层制度精神？
-
-下一讲关于宗教，我们可以看到宗教对于英国人的重要影响。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/qvJZHmszISg0i/images/fcd3cc09-73ce-4f7e-996c-24abcf8e90c8.jpg?asset_id=f635a97a-4950-4fa5-bdd6-ba4cb4578ee7&amp;img_etag=%227a5eef935410a084afe17b150badb493%22&amp;size=2560)](https://spark.adobe.com/page/qvJZHmszISg0i/images/fcd3cc09-73ce-4f7e-996c-24abcf8e90c8.jpg?asset_id=f635a97a-4950-4fa5-bdd6-ba4cb4578ee7&amp;img_etag=%227a5eef935410a084afe17b150badb493%22&amp;size=1024)
+（文章仅代表作者个人观点）
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/qvJZHmszISg0i/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/qvJZHmszISg0i/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/XNBkZQCFw0dg2/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/XNBkZQCFw0dg2/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

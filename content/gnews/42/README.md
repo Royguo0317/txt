@@ -1,61 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登亚洲区负责人表示，中共国的军事危机战略需要重新思考
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1179871/)
+## 慧眼看世界20210506
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1180070/)
 
-#### 翻译：Víctor Torres
+- 制图：透明的遮羞布
+- 编辑：神奇四侠
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115231/2500.jpg)拜登的亚洲政策负责人坎特·坎贝尔说，中国一直不愿为降低风险和建立相互信任而作出努力。
-照片：Jason Lee /法新社/盖蒂图片社
-
-据卫报5月6日 报道，拜登政府的最高亚洲官员警告说，在台湾和南海军事紧张局势加剧之际，美中之间缺乏危机沟通渠道。
-
-在中美关系充满争议的历史上，军事和领导层热线曾在不同时期建立，但负责协调整个政府政策的白宫亚洲 “沙皇 “库尔特-坎贝尔说，中共国政府没有表现出使用这些热线的兴趣，因为他们更喜欢不确定性。他说，这条热线只是在 “空房间 “里响起。
-
-中共领导人习近平继续试探台湾及其盟友的神经，加紧用其战机入侵该岛国的领空，并在越来越靠近该领土的地方举行战斗演习。
-
-南中国海的摩擦也居高不下，美国用军舰在北京单方面声称的领海进行自由航行巡逻。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115527/3989.jpg)坎特·坎贝尔说：“我相信中国目前的战略普遍担心计算失误，发生事故和事故。” 
-照片：托马斯·彼得/路透社
-
-白宫印太地区协调员坎贝尔告诉《卫报》：“我相信人们普遍担心误判，以及事件和事故，我不认为与中共国有有效的程序来阻止这些。”
-
-“中共国通常抵制任何有效的建立信任、危机管理程序的努力。在过去，已经设立的热线电话只是在空荡荡的房间里无休止地响着。因此，中共国选择不朝这个方向走。”
-
-坎贝尔说：“与此同时，他们在美国和盟国部队附近加强这些军事活动，他们这样做没有任何形式的预防或保证机制。”
-
-军方和文职领导层之间的热线电话是冷战期间美国和苏联之间竞争的一个安全特征。但是，随着中共国的军事力量相对于俄罗斯的军事力量的上升，在华盛顿和北京之间建立持久的危机通信线路的努力已经失败。
-
-比尔-克林顿和江泽民在1997年同意建立一条热线，但它从未被适当使用，甚至在1999年北约意外轰炸中共国驻贝尔格莱德大使馆时也是如此。
-
-2014年，巴拉克-奥巴马和习近平就海上和空中相遇的行为规则达成谅解备忘录。在次年该协议的一个附件中，两国表示他们将建立一个 “军事危机通报机制”，用于音频和视频防御联系，”以减少风险，促进互信，并增加开放性”。
-
-但坎贝尔说，北京并没有利用这一渠道。
-
-出于一系列原因，中共一直不愿意深入参与这些努力。他在一次电话采访中说：“中共国对正确处理军民关系有不同的盘算。他们担心，通过建立这些机制，他们给美国在其边界附近的军事演习和行动以可信性和合法性，他们不想这样做。”
-
-“即使在冷战时期，我们在美国和苏联之间也有更有效的危机沟通，”他说。”随着中共国能力的大幅增长，他们在全球范围内运作——他们现在是一个近乎同等的军事大国——我认为他们需要重新思考他们以前对其中一些机制的矛盾心理。这是我们在前进过程中想与他们探讨的一个领域。”
-
-乔治敦大学外交学院副教授凯特琳-塔尔马奇（Caitlin Talmadge）说，坎贝尔对缺乏与一个自信的、正在崛起的军事强国的持续沟通感到担忧是正确的。
-
-塔尔马奇说：“我同意库尔特的观点，缺乏有效的危机沟通渠道，以及更广泛地缺乏深入的定期战略对话，是美中关系中的一个严重问题。它提高了误判和升级的几率，特别是在台湾问题上。双方都需要了解对方的红线，并将从建立危机或战争情况下的脱身机制中受益。”
-
-坎贝尔本周早些时候证实，新政府不会改变美国在台湾问题上的 “战略模糊 “政策，这意味着华盛顿不会明确表示是否以及在什么情况下会防卫台湾。
-
-自1979年与北京建立外交关系以来，美国的官方政策是只有 “一个中国”，尽管台湾作为一个完全独立的国家运作。与共产党领导层的交易是，只要维持这一协议，和平统一在理论上是可能的，入侵是不必要的。
-
-然而，拜登政府正在追随其前任的步伐，稳步提升对台湾的支持。拜登邀请台湾的特使参加他的就职典礼，这是40多年来第一位这样做的美国总统。4月，华盛顿取消了对与台湾官员接触的更多限制。
-
-坎贝尔表示，政府准备采取下一步措施，推动台湾在世界舞台上得到承认，支持其在全球机构中的代表权，如世界卫生组织的管理机构——世界卫生机构（WHA）。
-
-“我认为台湾有机会在适当的指导方针下享有更大的国际空间，”他说。”鉴于台湾在处理中共病毒方面取得的巨大成功，我们将支持台湾更多地参与一些场所，包括参与WHA。他们有很多价值可以与他人分享。”
-
-原文链接：[Hotlines ‘ring out’: China’s military crisis strategy needs rethink, says Biden Asia chief](https://amp.theguardian.com/world/2021/may/06/hotlines-ring-out-chinas-military-crisis-strategy-needs-rethink-says-biden-asia-chief-kurt-campbell)
-
-* * *
-
-*排版发布：日本东京方舟农场 文柯Miles*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115627/01-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115652/02-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115725/03-7.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115822/04-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115846/05-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115910/06-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115933/07-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115957/08-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120024/09-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120057/10-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120131/11-10.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120205/12-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120231/13-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120254/14-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120318/15-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120345/16-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120401/17-1-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120422/17-2-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120442/17-3-1.jpg)
+以上文字图片仅代表作者个人观点，与GNEWS无关
 
 0

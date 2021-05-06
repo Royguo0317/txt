@@ -1,53 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## G7外长会议公报涉及中共国部分摘译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1180685/)
+## 活出人样
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1180773/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：Filon| 翻译：Filon|校对：文意、X-Wing| 审核：宁缺| Page：小六月
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/05/GF.jpg)miragenews.com
-七国集团外长和发展部长会议：公报
+[!\[\]()!\[\](https://spark.adobe.com/page/lJjwPqq9PPKqP/images/bacb22d2-d41c-4aea-a149-4359184897ac.jpg?asset_id=36c10ec6-2859-4e42-a488-18032180a505&amp;img_etag=%22d08aa6fb25c6e7f57645ea48f64fea14%22&amp;size=1024)](https://spark.adobe.com/page/lJjwPqq9PPKqP/images/bacb22d2-d41c-4aea-a149-4359184897ac.jpg?asset_id=36c10ec6-2859-4e42-a488-18032180a505&amp;img_etag=%22d08aa6fb25c6e7f57645ea48f64fea14%22&amp;size=1024)
 
-伦敦，2021年5月5日
+想到赵婷导演，首先映入我眼帘的是她14岁年纪离开中共国去往英国和美国生活的这段经历。离开了中共国往往就代表离开了思想的束缚和所谓人云亦云社会标准，在自由的世界里活成了一个拥有独立人格的人。
 
-……
+[!\[\]()!\[\](https://spark.adobe.com/page/lJjwPqq9PPKqP/images/67147a6e-89da-4350-8d13-b0040ba36490.jpg?asset_id=cd69d2aa-dd07-4562-b300-f66bd7722f72&amp;img_etag=%22a4fa7882ca9bd0e99b131ed0731fbff2%22&amp;size=1024)](https://spark.adobe.com/page/lJjwPqq9PPKqP/images/67147a6e-89da-4350-8d13-b0040ba36490.jpg?asset_id=cd69d2aa-dd07-4562-b300-f66bd7722f72&amp;img_etag=%22a4fa7882ca9bd0e99b131ed0731fbff2%22&amp;size=1024)
 
-II. 外交与安全政策
+在中共营造的愚民社会环境中，中共喜欢给人营造统一的标准，统一的脸谱，让所有人按照一个模版活成一个模样。
 
-……
+对于孩子们从小的教育，其目的不是为了如何引导发散他们的思维，而是按照教条学习死背知识点应付考试；是研究如何消磨掉他们的奇思妙想，学会老老实实按照老师家长要求好好考试。
 
-中共国
+中共是不喜欢拥有独立思考能力的人大量存在的，对于中共来说，百姓胡思乱想对于他们想要维护的统治来说是十分危险的。
 
-13、我们鼓励中共国作为一个拥有先进技术能力的大国和经济大国，建设性地参与以规则为基础的国际秩序，采取行动应对包括气候变化和生物多样性消失在内的全球挑战，促进经济从中共病毒中复苏，支持抗击当前的疫情，以及预防未来的疫情，这将符合我们所有人的利益，包括中共国的利益。我们期待着与中共国一道促进地区和全球和平、安全与繁荣的机会。
+在中共眼里喜爱西方就是崇洋媚外，喜欢西方就是不尊重自己民族。
 
-14、根据国际法和国内法规定的义务，我们呼吁中共国尊重人权和基本自由，我们继续深切关注新疆和西藏的侵犯和践踏人权行为，特别是针对维吾尔人、其他少数民族和宗教群体成员的行为，存在大规模“政治再教育”营地网，以及有关强迫劳动制度和强迫绝育的报道。我们同意必须通过我们自己现有的国内手段，包括通过提高认识和向我们的企业界提供咨询和支持，处理强迫劳动的问题。我们坚决支持独立、不受限制地进入新疆实地调查情况。因此，我们继续呼吁联合国人权事务高级专员能够这样做。
+可是大部分中国人喜欢西方的理由是西方文明世界所拥有的人权、自由和平等。每一个人是能够被尊重的个体。
 
-15、我们回顾我们3月12日的声明，仍然严重关注中共国的决定，从根本上削弱香港选举制度的民主因素。我们呼吁中共国根据其国际承诺及其法律义务，包括《中英联合声明》和《基本法》所承诺的法律义务，尊重香港的高度自治权赋予的权利和自由。我们呼吁中共国和香港当局结束针对捍卫权利、自由和民主价值的人为目标的行为，维护司法系统的独立性，确保案件不转移到大陆。
+只要不危害到他人，任何人都应该是可以按照自己喜好过着自己想要的生活的，没有绝对应该的生活模式。
 
-16、作为支持开放社会、以及在透明和可预测的国际规则和标准体系内进行自由和公平贸易的国家，我们一致关注破坏这种自由与公平的经济体系的做法，包括在贸易、投资和发展融资方面的破坏做法。面对武断、胁迫性的经济政策和做法，我们将共同努力，培养全球经济的弹性。我们敦促中共国承担和履行与其全球经济作用相称的义务和责任。
+这才是所谓西方世界吸引人的地方，也是中共不愿让每一个中国人所拥有的。
 
-17、我们鼓励中共国信守承诺，在网络空间采取负责任的行动，包括不进行或不支持利用网络进行的知识产权盗窃。
+赵婷导演能拍出引发美国思考的电影正是因为她25年在西方世界的生活，对生活自由的思考。
 
-18、我们认为，为了在所有人都关心的问题上加强全球合作，确保国际组织的包容进程至关重要，我们支持台湾有意义地参与世界卫生组织论坛和世界卫生大会，国际社会应该能够从所有伙伴的经验中获益，包括台湾在应对中共病毒疫情方面的成功贡献。【1】
+可以断言，在中共国她绝对拍不出这样有深度的电影。在中共国拍电影的她，第一条思考准则将是政治上这样是否可行，所表达的艺术能不能被广电总局给审核通过，她的一切艺术创作将都无法离开政治要求的框架。
 
-（中共国部分完）
+[!\[\]()!\[\](https://spark.adobe.com/page/lJjwPqq9PPKqP/images/376f83d6-ed3a-46ab-ad13-f46528ecf6f8.jpg?asset_id=df4cc98c-a2a1-41a6-81e5-bc5ae6955cbe&amp;img_etag=%223476c82d1bb43dc6d71e9907ecf75ea1%22&amp;size=1024)](https://spark.adobe.com/page/lJjwPqq9PPKqP/images/376f83d6-ed3a-46ab-ad13-f46528ecf6f8.jpg?asset_id=df4cc98c-a2a1-41a6-81e5-bc5ae6955cbe&amp;img_etag=%223476c82d1bb43dc6d71e9907ecf75ea1%22&amp;size=1024)
 
-以上就是G7部长级公报涉及中共国的全部，隔靴搔痒，喊一喊他们认为该喊的口号，令人大失所望，大跌眼镜！
+被政治捆绑的创作就不能称之为艺术，那叫政治宣传。任何个体的见识都有其片面性和局限性，所谓的广电总局几十个领导何德何能可以审核十四亿中国人的思想，审核一切艺术创作。
 
-或许战友能解读出令人振奋的信息，但本人觉得远远达不到“战略竞争法”对邪共的认知水平。病毒溯源都不敢提，更甭说追责、超限生物战了。
+艺术好坏自有整个市场给予反馈。
 
-看看中共的报道，就知道他们怎样乐呵了：“关键时刻，默克尔再挺中国”，“长安街知事注意到，默克尔曾在公开场合多次力挺中国，今年年初她曾表示，支持中国提倡的多边主义，反对在中美间站队。”【2】
+赵婷导演的成功使所有中国人都应该受到鼓舞的。
 
-看来欧洲已经陷落，是怎样解救、解放的问题，有新中国联邦，美国都能被解救出来，还有哪里解救不了的吗？
+在西方文明世界活着的中国人赵婷导演，活的像一个人，能自由独立思考、成为一个向往美好的人，不是一个没有思维的人肉机器。
 
-相关链接：
+同样这也是咱们新中国联邦的愿景，营造出一个可以让每一个中国人有尊严、体面的活着，有勇气有胆量，活出不同人生的自由世界。
 
-【1】[https://www.gov.uk/government/publications/g7-foreign-and-development-ministers-meeting-may-2021-communique/g7-foreign-and-development-ministers-meeting-communique-london-5-may-2021](https://www.gov.uk/government/publications/g7-foreign-and-development-ministers-meeting-may-2021-communique/g7-foreign-and-development-ministers-meeting-communique-london-5-may-2021)
+活得明明白白，懂得为什么而活，为自己而活，活出一个人样。
 
-【2】
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
-[https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news\_10504765376460254608%22%7D&n\_type=0&p\_from=1](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_10504765376460254608%22%7D&amp;n_type=0&amp;p_from=1)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/lJjwPqq9PPKqP/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/lJjwPqq9PPKqP/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
