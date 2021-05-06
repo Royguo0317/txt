@@ -1,56 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 无冕记
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1180655/)
+## 对病毒“解药”及“以共灭共”之我见
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1180681/)
 
-作者：X-Wing| 校对：仙女儿-文善| 审核：宁缺| Page：小六月
+作者：凉白开| 校对：X-Wing| 审核：宁缺| Page：小六月
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06141841/1-23-7.jpeg)
+[!\[\]()!\[\](https://spark.adobe.com/page/x5hF2jmN9045y/images/e468e0f5-1a55-4e32-a0b0-df5ab84dcb14.jpg?asset_id=62238f81-3849-41b2-b40b-45dafec329c2&amp;img_etag=%22a738d4bb24436718ad4e95d5c543d933%22&amp;size=1024)](https://spark.adobe.com/page/x5hF2jmN9045y/images/e468e0f5-1a55-4e32-a0b0-df5ab84dcb14.jpg?asset_id=62238f81-3849-41b2-b40b-45dafec329c2&amp;img_etag=%22a738d4bb24436718ad4e95d5c543d933%22&amp;size=1024)
 
-无冕之王指没有权威的名义而影响、作用极大的人。西方世界现多称记者为“无冕之王”，因为记者什么都敢写，有法律保障的言论自由，有很大的权力和影响力。新闻界最有影响力的奖项无疑是普利策新闻奖。
+**1.** CCP有解药。
 
-学生时代曾经读过普利策的传记，对记者这一职业充满向往。它需要敏锐的视角和反应，律师一般严密的思路和犀利的语言或笔触，有时候还需要非凡的勇气敢于挑战权威、维护正义、坚持信念、不贪图金钱。
+CCP有解药，这对党内未能拿到解药的人的内心的冲击是巨大的，尤其是实权在握的候补中央委员以上的封疆大吏，举足轻重的军头等。因为这些人以为自己在党内很有地位，绝没有想到自己居然会面临和普通老百姓一样的命运（原来自己的生死在最高层眼里并不重要，原来自己也只是作为最高层的统治工具而已）。可以说，这个情报的爆出，使得这些人不再因为是ccp体制的既得利益者而对ccp体制进行坚决的维护。某种程度上，这些人一旦掌握机会便会想方设法地将最高层置于死地。这是ccp党内离心离德的真正开始。这不仅对于ccp的倒台有推波助澜的作用，也一定程度上消除了ccp倒台后重建工作面临的障碍。
 
-在真正享有新闻自由的地方，通常不限制记者的学历或年龄，你无需是新闻专业毕业，也无需记者证。印象中，欧美很多新闻播音员和老牌专题访谈节目主持人都是老年人和中年人居多，不少是记者出身。记者们通过贡献自己的专业知识、脑力和体力，甚至鲜血，让世人了解事实和真相，无愧于“无冕之王”称号。
+[!\[\]()!\[\](https://spark.adobe.com/page/x5hF2jmN9045y/images/901d1e44-a46d-46e7-95b4-c15b766acda1.jpg?asset_id=caab59a6-ea5b-40bf-9291-fb011db9fcbe&amp;img_etag=%22cdd42a9df826e0d0fbd1775d8ef4a7c1%22&amp;size=1024)](https://spark.adobe.com/page/x5hF2jmN9045y/images/901d1e44-a46d-46e7-95b4-c15b766acda1.jpg?asset_id=caab59a6-ea5b-40bf-9291-fb011db9fcbe&amp;img_etag=%22cdd42a9df826e0d0fbd1775d8ef4a7c1%22&amp;size=1024)
 
-5月3日，是一个特别的日子——世界新闻自由日（World Press Freedom Day）。
+**2.** 5月2日，文贵先生直播提到的：曾韩王发现美国要出手时，他们会出来以共灭共。危难时期振臂一呼，先得民心（可以解释为什么网易在国内会独树一帜的存在却没事，是早已布下的局。这和江派王派推出来的反对专制、打着民主幌子的潘石屹、张欣、任志强、周孝正等是一脉相承的路数），一定会再次承诺要民主要法治，喊得比西方还响。
 
-在这一天，美国驻华使馆声明：
+我们希望CCP出现一家独大的局面，而不是如今江，曾，王，朱，习多足鼎立的态势。显然，生性豪横绝不不妥协的习神的胜出是我们最愿意看到的。由于江，曾，王，朱等具有绝对的实力操弄中国的政治，我们必须借助于习神之手首先将这些党羽众多，树大根深的几个家族的势力彻底铲除。这样，在未来我们新中国联邦才可以发动隐藏在党内的正义力量灭习并且能够掌控住局势，否则在江曾王朱被消灭之前，我们的胜利果实将瞬间被其完全碾碎并窃取。而这个情报的爆出，将使得江曾王朱等着美国出手之前将习神干掉的策略落空，并且迫使习神不得不抓紧时间主动出击将威胁其统治地位的人彻底一网打尽。这是一场不是你死就是我活，先下手为强后下手遭殃的较量。
 
-在世界新闻自由日（World Press Freedom Day），美国重申我们对于表达自由以及有机会获取独立媒体提供的属实准确信息的承诺。自由的媒体是繁荣且有复原力的民主社会的基础。
-
-在德国，报纸再次全版刊出部分新疆维族受迫害记者肖像。40位受迫害中国媒体人肖像中，25位是维族人，都曾是官媒记者。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/XNBkZQCFw0dg2/images/120add46-34c8-4ba1-a448-02354ba21590.png?asset_id=dda01be7-11e9-4282-aca7-5c60fe9afedf&amp;img_etag=%22467828e82bd9c402922b1055947794f7%22&amp;size=1024)](https://spark.adobe.com/page/XNBkZQCFw0dg2/images/120add46-34c8-4ba1-a448-02354ba21590.png?asset_id=dda01be7-11e9-4282-aca7-5c60fe9afedf&amp;img_etag=%22467828e82bd9c402922b1055947794f7%22&amp;size=1024)
-
-德语文章题目为：受威胁，迫害，仍在拘留中
-
-在“无国界记者组织”发布的世界新闻自由指数中，中共国仍维持全球倒数第四。该组织新近公布的数据显示，中国在押判刑记者有114人，真实数字可能更多。
-
-在这一天，中国公民记者张展，获Difference Day“言论自由荣誉奖”。张展是一名律师，她到武汉疫区寻求真相，践行公民言论自由权利，为报道武汉疫情真相，唤醒民众挽救生命的危机意识而付出了巨大代价。张展在被捕后绝食抗争超过半年，遭强制鼻饲等酷刑，一度健康恶化，生命危殆，最后被重判四年，目前仍在狱中，罪名是“寻衅滋事。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/XNBkZQCFw0dg2/images/1b7fa121-4d53-43a8-97bc-3583bc6d77d6.png?asset_id=4d620d9e-bd99-47ff-8c1a-09f149f04452&amp;img_etag=%2223f250e9a802be89edce901383bb4362%22&amp;size=2633)](https://spark.adobe.com/page/XNBkZQCFw0dg2/images/1b7fa121-4d53-43a8-97bc-3583bc6d77d6.png?asset_id=4d620d9e-bd99-47ff-8c1a-09f149f04452&amp;img_etag=%2223f250e9a802be89edce901383bb4362%22&amp;size=1024)
-
-张展语录：
-
-“当然应该寻求真理，不计成本地寻求。”
-
-“真理一直是这个世界最昂贵的东西，它就是我们的生命。”
-
-“没有真相，这个世界毫无意义。”
-
-“不要让中国退回到朝鲜”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/XNBkZQCFw0dg2/images/00dcbbbb-4be7-4b6c-9c02-ca801f4b59b2.png?asset_id=c58fff86-c2ec-4013-bfe6-b8a26aaac4ea&amp;img_etag=%22e6bbf1d14cef14831900f7e81fb6622d%22&amp;size=2560)](https://spark.adobe.com/page/XNBkZQCFw0dg2/images/00dcbbbb-4be7-4b6c-9c02-ca801f4b59b2.png?asset_id=c58fff86-c2ec-4013-bfe6-b8a26aaac4ea&amp;img_etag=%22e6bbf1d14cef14831900f7e81fb6622d%22&amp;size=1024)
-
-张展已被中共强行噤声，另外一名公民记者方斌至今下落不明。我们没有忘记吹哨人李文亮，我们也没有忘记陈秋实律师，我们还不应忘记前央视CCTV-7台记者李泽华，还有王全璋律师，709律师。
-
-所谓“公民记者”，是指在新闻事件的报道和传播中发挥记者作用，却非专业新闻传播者的普通民众。作为一名勇敢的公民记者，身在狱中的张展获得言论自由荣誉奖，重过普利策奖，是真正的“无冕之王”。
-
-每个人都可以成为无冕之王，轮到我们爆料革命的每位战友追求、传播真相了。
-
-（文章仅代表作者个人观点）
+这些情报的推出，将瓦解ccp的凝聚力以及加速其内斗，并且向着我们希望的方向进行。
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -59,6 +27,6 @@
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/XNBkZQCFw0dg2/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/XNBkZQCFw0dg2/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/x5hF2jmN9045y/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/x5hF2jmN9045y/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

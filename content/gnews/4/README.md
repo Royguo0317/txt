@@ -1,35 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国 停止与澳大利亚的经济对话
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1180799/)
+## 【热点播报】岛国塞舌尔: 疫苗接种全球第一，病例激增，继续封锁
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1180822/)
 
-```
-新闻来源：意大利共和国报（La repubblica）  
-发表时间：2021年5月5日  
-翻译整理/简评：斩草要除根
-```
+作者：纽约香草山农场  四季
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06152718/%E4%B8%AD%E6%BE%B3%E5%85%B3%E7%B3%BB_gaitubao_1280x720.jpg)
 
-中共国和澳大利亚之间的关系日益僵化。北京已无限期暂停与堪培拉进行“经济对话”有关的所有联合活动，加剧了双边危机。中共国主要的经济计划者国家发展和改革委员会表示，该决定是“根据澳大利亚目前的态度”作出的，澳大利亚官员是“意识形态歧视”。
+零对冲5月6日报道， 世界上疫苗接种率最高的国家不是以色列，而是印度洋岛国塞舌尔，其62%以上的成年人口已经完成了对疫苗的“完全接种”，然而，尽管这个岛国正在接近群体免疫的门槛，但由于COVID-19病例激增，该国本周被迫重新实施封锁。
 
-上个月，澳大利亚出于“国家安全原因”取消了“一带一路”倡议中包括的维多利亚州的两项协议，并正在考虑取消将达尔文港租用99年的协议，这是北方最重要的沿海和最接近亚洲，以及美国海军陆战队的基地。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06152517/1-seychelles-1.jpg)图片来源：[ZeroHedge](https://www.zerohedge.com/covid-19/country-worlds-highest-vaccination-rate-orders-new-lockdown-covid-cases-surge)
 
-消息公布后，澳元下跌了0.6％。澳大利亚要求对冠状病毒大流行的起源进行独立调查，并要求电信巨头华为停止接入5G网络建设。
+塞舌尔全国所有学校都已经关闭，体育活动也被取消两周。 措施还包括禁止家庭之间的互动和某些类型的个人聚会，以及提早关闭商店、酒吧和赌场。非必要的工人也被鼓励在家工作，同时当地时间23点的宵禁也被恢复了。
 
-中共国是澳大利亚最大的贸易伙伴，但已经对十多个关键行业征收关税，影响到葡萄酒，大麦和煤炭。
+目前，塞舌尔有107万个活跃的Covid病例，其中三分之一是在注射了两剂阿斯利康或中（共）国国药集团的疫苗的人中发现的。
 
-#### 简评：
+塞舌尔于今年1月就迅速展开了疫苗接种计划，使用了阿联酋捐赠的中（共）国国药集团的疫苗。它还收到了来自印度的阿斯利康疫苗。根据塞舌尔卫生部的数据，当该国总统韦尔-拉姆卡拉万（Wavel Ramkalawan）首次宣布该国的疫苗接种活动时，塞舌尔总共只记录了531个冠状病毒病例和一个死亡病例。但在接种疫苗的四个月的时间里，这个数字已经上升了10倍多，达到6373例，共有146人死亡。而塞舌尔并不孤单，智利是另一个严重依赖中共疫苗的国家，尽管它的接种活动很成功，但其病例也在增加。
 
-**澳大利亚已经清楚的意识到，所谓的“新丝绸之路”看似是中共国改善与欧亚国家贸易联系的一项战略举措。但实际上，现在美国、澳大利亚以及越来越多的欧洲国家将其视为试图在两大洲的地缘政治层面上北京实力的扩张。流氓中共一副全世界离了它就不能活的架势，让西方国家在看清了它的本质之后，到了即使断臂割腕也要和中共划清界限的地步。此时，中共国主动要求和脱钩，以为这是澳大利亚最不愿意看到的，来作为一种威胁手段，此番行为对到底是谁搬起石头砸自己的脚呢？我们只能拭目以待了**！
-（本文仅代表译者个人观点，跟GNEWS平台无关。）
+测试已经检测到南非的变异株在岛屿上传播。科学家们认为，这种变异毒株可以逃避免疫，并使注射的疫苗在预防感染方面减弱30%。匈牙利在中共疫苗尚未得到欧盟批准前就使用了该疫苗，其Covid 19 的死亡率位居世界第一。为什么大规模的疫苗接种不但没有阻止病毒传播，还使其感染率和死亡率大幅上升？事实证明了中共的疫苗是靠不住的。
 
-**新闻原文链接：**🔗[Cina, stop al dialogo economico con l’Australia](https://www.repubblica.it/esteri/2021/05/06/news/cina_stop_al_dialogo_economico_con_l_australia-299638507/)
+原文链接：
 
-* * *
+[Country With World’s Highest Vaccination Rate Orders New Lockdown As COVID Cases Surge | ZeroHedge](https://www.zerohedge.com/covid-19/country-worlds-highest-vaccination-rate-orders-new-lockdown-covid-cases-surge)
 
-***编辑整理/校对: **Ting Guo*
 
-0
+
+编辑/校对/发稿：小鹿
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+
+
+
++1

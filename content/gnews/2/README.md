@@ -1,51 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】岛国塞舌尔: 疫苗接种全球第一，病例激增，继续封锁
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1180822/)
+## 欧盟希望重启与印度讨论自由贸易协定
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1180958/)
 
-作者：纽约香草山农场  四季
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
-
-
-
-零对冲5月6日报道， 世界上疫苗接种率最高的国家不是以色列，而是印度洋岛国塞舌尔，其62%以上的成年人口已经完成了对疫苗的“完全接种”，然而，尽管这个岛国正在接近群体免疫的门槛，但由于COVID-19病例激增，该国本周被迫重新实施封锁。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06152517/1-seychelles-1.jpg)图片来源：[ZeroHedge](https://www.zerohedge.com/covid-19/country-worlds-highest-vaccination-rate-orders-new-lockdown-covid-cases-surge)
-
-塞舌尔全国所有学校都已经关闭，体育活动也被取消两周。 措施还包括禁止家庭之间的互动和某些类型的个人聚会，以及提早关闭商店、酒吧和赌场。非必要的工人也被鼓励在家工作，同时当地时间23点的宵禁也被恢复了。
-
-目前，塞舌尔有107万个活跃的Covid病例，其中三分之一是在注射了两剂阿斯利康或中（共）国国药集团的疫苗的人中发现的。
-
-塞舌尔于今年1月就迅速展开了疫苗接种计划，使用了阿联酋捐赠的中（共）国国药集团的疫苗。它还收到了来自印度的阿斯利康疫苗。根据塞舌尔卫生部的数据，当该国总统韦尔-拉姆卡拉万（Wavel Ramkalawan）首次宣布该国的疫苗接种活动时，塞舌尔总共只记录了531个冠状病毒病例和一个死亡病例。但在接种疫苗的四个月的时间里，这个数字已经上升了10倍多，达到6373例，共有146人死亡。而塞舌尔并不孤单，智利是另一个严重依赖中共疫苗的国家，尽管它的接种活动很成功，但其病例也在增加。
-
-测试已经检测到南非的变异株在岛屿上传播。科学家们认为，这种变异毒株可以逃避免疫，并使注射的疫苗在预防感染方面减弱30%。匈牙利在中共疫苗尚未得到欧盟批准前就使用了该疫苗，其Covid 19 的死亡率位居世界第一。为什么大规模的疫苗接种不但没有阻止病毒传播，还使其感染率和死亡率大幅上升？事实证明了中共的疫苗是靠不住的。
-
-原文链接：
-
-[Country With World’s Highest Vaccination Rate Orders New Lockdown As COVID Cases Surge | ZeroHedge](https://www.zerohedge.com/covid-19/country-worlds-highest-vaccination-rate-orders-new-lockdown-covid-cases-surge)
+```
+新闻来源：德国经济周刊 网络版 
+发布时间：2021年5月3日
+翻译整理/ 简评： Shuizhuyu
+```
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06163054/image0-26-scaled.jpg)图片链接：PRP频道
 
-编辑/校对/发稿：小鹿
+欧盟委员会希望恢复与印度之间的自由贸易协定的谈判，该协定自2013年以来已中止。正如经济周刊（*WirtschaftsWoche*）报道的那样，该话题在欧盟圈子中表示：“该主题已在周六举行的欧盟，印度峰会上提上日程”。欧盟委员会主席乌尔苏拉·冯·德·莱恩周一上午致电印度总理纳伦德拉·莫迪。莫迪随后在推特上写道：“我相信我们的会议将为我们的战略伙伴关系带来新的动力。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
+通过谈判，欧盟委员会主席乌尔苏拉·冯·德·莱恩希望向中共国发出一个明确的信号，即欧洲正在寻找亚洲的其他战略伙伴。印度也想遏制中共国的影响。
 
-**更多资讯，更多关注**
+专家们认为谈判将非常困难，因为双方进入谈判的想法都大相径庭。布鲁塞尔智库欧洲国际政治经济中心（*ECIPE*）负责人霍萨克·李·马基亚马（*Hosuk Lee-Makiyama*）说：“作为第一步，欧盟委员会希望达成一项与中国谈判达成的类似投资协议。” “与此同时，印度人最初希望欧洲人降低关税，以便以后更深入地参与谈判。”
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+由于病毒大流行，莫迪将不会按计划前往波尔图，跟安格拉·默克尔一样将通过视频参加会议。
 
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+#### **简评：**
 
-[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
+**欧盟已经明确表示对于与中共国的贸易协定，「有待批准」, 实际上是搁置了，搁浅了。欧盟已经把伙伴关系转向了印度，自2013年开始，欧盟就没有和印度讨论过自由贸易协定。这次，就是要给中共国发出一个信号，中共的扩张已经引起了欧盟的反感，中共总是觉得用诺大的市场可以征服世界，中共的算盘这回是彻底的落空。反而，欧盟找到了亚洲的新伙伴，成为了制衡中共的利剑。 **
+（本文仅代表译者个人观点，跟GNEWS平台无关。）
 
-[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
+**新闻原文链接：**
+🔗[EU will mit Indien wieder über Abkommen zum Freihandel beraten](https://www.wiwo.de/politik/europa/als-gegengewicht-zu-china-eu-will-mit-indien-wieder-ueber-abkommen-zum-freihandel-beraten/27155328.html)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+* * *
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+***编辑整理/校对: **Ting Guo*
 
-
-
-+1
+0
