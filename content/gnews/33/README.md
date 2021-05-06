@@ -1,37 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国的温室气体排放量已超过发达国家排放量的总和
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1179161/)
+## 【每日快讯】05/05/2021：郭先生直播联盟委员会需完善更多独立农场会建立起来新中国联邦急需和欢迎各类人才
+` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1179417/)
 
-#### 作者:【默凡】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06083025/S1-KB048_CINDCL_OR_20210422065348.jpg)
-据《华盛顿邮报》最新报道称：荣鼎咨询研究公司(Rhodium Group)周四（4月6日）发布一份分析报告显示，2019年中共国的温室气体排放量超过了美国和发达国家的总和。
+**制作：Cantonese工作室**
 
-中共国温室气体排放已经占全球排放总量的27%，而美国仍是第二大排放国，排放量为11%。报告发现，印度的份额为6.6%，位居第三，超过了欧盟27个国家，后者占6.4%。
 
-中共国、印度和其他发展中共国家此前就指出，在过去的一个世纪里，美国和欧洲在发展经济的同时产生大量温室气体，现在却要求发展中共国家取缔高排放工业，这是不公平的。发达国家试图让中共国、印度和其他发展中共国家限制温室气体排放，这包括六种关键气体，以及森林砍伐和土地使用造成的变化。
 
-在上月组织的气候峰会上，中共国习近平表示，中共国将限制以煤炭为基础的排放，习近平还重申承诺，到2060年中共国将实现零排放。
+**播报：【文依】资料整理：【Elaine】【文依】【An】海报制作：【米线】视频制作：【KEN】上传：【星星】【向阳6768】**
 
-白宫气候特使克里上个月访问了中共国，与中共国同行会面，美国和中共国发表了一份声明，誓言要“以紧迫和严肃的态度”共同应对气候变化。根据巴黎协议，世界各国承诺将全球变暖控制在比工业化前水平“远低于”2摄氏度(3.6华氏度)的范围内，并有可能控制在1.5摄氏度以内。迄今为止，世界仍远未达到达到这些目标所需的轨道。
+摘要：
 
-根据Rhodium的分析计算，中共国的排放量在2019年达到了141亿吨二氧化碳当量，是1990年水平的三倍多，在过去十年中增加了25%。按人均计算，中共国的温室气体排放量也大幅增加。中共国人口超过14亿，人均年排放量达到了10.1吨，在过去20年里增长了近两倍。
+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06094037/image0-22.jpg)
+2
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06094222/image1-10.jpg)
+3
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06094317/image2-4.jpg)
+4
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06094714/image3-1.jpg)
+5
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06094838/image4-3.jpg)
+6
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06094937/image5-2.jpg)
+7
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06095050/image6-1.jpg)
+8
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06095136/image7-1.jpg)
+9
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06095224/image8-1.jpg)
+10
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06095359/image9-2.jpg)
+11
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06095452/image011-2.jpg)![1.    全球财富要避险，只有选择喜系列，方便使用、绝对安全、无借款。
+2.    羟氯喹早前就被中共列为战略物资。一定要吃此药。轮换着吃。
+3.    摩根先生的书，阐述中国人民的美好。这本书意义深远。
+4.    郭先生购地计划：希望在大国例如美国某个州，允许范围内享有独立司法管辖权和防卫权，希望在多个国家都拥有地方。
+5.    比尔盖茨离婚核心原因是身体和财富的安全问题。
+]()![1.    全球财富要避险，只有选择喜系列，方便使用、绝对安全、无借款。
+2.    羟氯喹早前就被中共列为战略物资。一定要吃此药。轮换着吃。
+3.    摩根先生的书，阐述中国人民的美好。这本书意义深远。
+4.    郭先生购地计划：希望在大国例如美国某个州，允许范围内享有独立司法管辖权和防卫权，希望在多个国家都拥有地方。
+5.    比尔盖茨离婚核心原因是身体和财富的安全问题。
+](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01093124/image0%E9%9D%A2.jpg)
 
-Rhodium公司早些时候的一项分析估计，面对大流行，2020年中共国的排放量增加了1.7%。这远远低于中共国过去十年3.3%的平均增速，但对于一个致力于减缓地球变暖的世界来说，这仍然是错误的方向。Rhodium估计，中共国的排放量相当于全球近180个排放最低国家的排放量之和。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06085219/BB1ceANL.jpg)
-简评：
 
-该份调查报告提及中共国温室气体排放已经占全球排放总量的27%，是排名第二的美国的两倍多。中共国将美国拉入《巴黎气候协议》，美国为遵守该协议增加对高排放企业的投入，甚至还关闭了数家高排放企业。反观中共国不但没有遵守协议中的减排要求，还对这些高排放企业提供政府补贴。并以低廉的价格冲击美国和欧盟的产业经济。
 
-随着美国重新回归巴黎协议，美国肯定会联合其他成员国监督中共国达到节能减排的目标。如果中共国不遵守协议，欧美各国不仅会将中共国踢出该协议，还会禁用中共国的产品，这无疑将对中共国的外贸出口造成沉重打击。
 
-本文仅代表作者本人观点，不代表Gnews平台
-
-参考文章：
-
-[https://www.washingtonpost.com/climate-environment/2021/05/06/china-greenhouse-emissions/](https://www.washingtonpost.com/climate-environment/2021/05/06/china-greenhouse-emissions/)
-
-校对/发稿：文婷
-
-0
++1

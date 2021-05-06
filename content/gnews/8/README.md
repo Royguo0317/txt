@@ -1,31 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印度疫情二次爆发与13579计划的关系
-` 恩典农场` [轉載自GNews](https://gnews.org/zh-hans/1179732/)
+## 慧眼看世界20210506
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1180070/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/gnews抬头图片.png)
-作者：武汉生化病毒   编辑校对：追着曙光跑  封面：麦田67号
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06103903/%E7%97%85%E6%AF%923.png)
-**摘要：**印度卫生部4月30日公布的数据显示，该国较前一日新增新冠确诊病例386452例，累计确诊18762976例；新增死亡病例3498例，累计死亡208330例。印度单日新增确诊病例已连续9天超过30万例。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06104550/%E7%97%85%E6%AF%922.png)
-疫情愈演愈烈，印度富豪此前上演大逃亡。上周，多名印度超级富豪赶在英国针对印度的入境禁令前乘坐私人飞机飞往英国。据媒体报道，已有多个国家或地区取消了疫情高危地区的航班。其中中国香港取消了来自印度、巴基斯坦和菲律宾的14架航班；新加坡禁止了来自印度和印尼的游客；英国将印度加入了旅行禁令区；加拿大禁止了印度和巴基斯坦的航班；阿联酋、科威特和澳大利亚也禁止了来自印度的航班。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06104639/%E7%97%85%E6%AF%921.png)
-这次疫情大流行的元凶是中共病毒，中共病毒是来自中共武汉实验室，由舟山蝙蝠病毒为骨架，在中共控制的实验室自造出来。
-中共的13579计划
-“1”=制造一个生化武器；
-“3”=自2017起的三年内使得生物武器可用；
-“5”=病毒释放后保持5年内有效；
-“7”=瘫痪7国（五眼联盟五国加日本印度）；
-“9”=9个月内释出疫苗勒索全世界。中共正制造两种疫苗。
-2020年1月19日在中共还在和世卫组织勾结，隐瞒、否认武汉病毒人传人的时候，路德社最早爆料武汉病毒会人传人，强感染，大爆发，军方在舟山蝙蝠病毒基础上人工制造。
+- 制图：透明的遮羞布
+- 编辑：神奇四侠
 
-13579计划都在全面的实施中，由于7国的没有瘫痪，中共第二轮放毒。印度是最容易被投毒的目标，可以从下面五个方面来分析：第一，人口众多，医疗体系差；第二，政府和群众麻痹大意 ；第三，投毒效果好 ； 第四，中共可以卖疫苗赚钱； 第五，恫吓美国日本，让其不敢动中共。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115627/01-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115652/02-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115725/03-7.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115822/04-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115846/05-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115910/06-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115933/07-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115957/08-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120024/09-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120057/10-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120131/11-10.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120205/12-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120231/13-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120254/14-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120318/15-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120345/16-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120401/17-1-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120422/17-2-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120442/17-3-1.jpg)
+以上文字图片仅代表作者个人观点，与GNEWS无关
 
-中共投毒是按照计划在印度实施的。在中共国国内大势宣传印度疫情，其目的不仅对中国人洗脑，又可以体现中共国的疫情少。依此来向投资者表明中国疫情很少，从而达到以吸引投资手段来圈钱，用毫无人性的宣传来洗脑墙内的14亿普通人。因此，中共用国家体系对印度进行超限生化战争是13579计划中的一环。
-
-（本文仅代表作者观点）
-
-
-
-+1
+0
