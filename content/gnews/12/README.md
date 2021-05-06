@@ -1,34 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 与中国达成协议？欧盟认为有待批准
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1180890/)
+## 2021年5月6日 文贵先生盖特 1
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1181010/)
 
-```
-新闻来源：德国经济周刊 网络版 
-发布时间：2021年5月5日
-翻译整理/ 简评： Shuizhuyu
-```
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
+5月6号：四个自信的中共．主动和澳大利亚脱钩．Facebook主动和川普总统脱钩．谁是最终的受益者呢？【[https://www.news.com.au/finance/economy/australian-economy/china-indefinitely-suspends-all-activities-under-the-chinaaustralia-strategic-economic-dialogue/news-story/28f3127a544a3caff409ab9fe0d90533](https://www.news.com.au/finance/economy/australian-economy/china-indefinitely-suspends-all-activities-under-the-chinaaustralia-strategic-economic-dialogue/news-story/28f3127a544a3caff409ab9fe0d90533) 中国“无限期暂停”中澳战略经济对话的所有活动】
 
-由于中国对欧洲议会议员的制裁，欧盟委员会认为未来批准与北京的投资协议存在困难。德国新闻机构布鲁塞尔当局的一位发言人说，批准书离不开欧盟与中国之间更广泛的关系。在这种情况下，中国对欧盟议会议员和整个议会委员会的制裁是无法接受和令人遗憾的。
+[【2021年5月6日】文贵先生盖特原文](https://gtv.org/getter/6093f97f37f7f73984c88da3)
 
-旨在使欧洲公司更容易在中国开展业务的这项交易的批准前景取决于形势的发展。但是，该发言人明确表示甚至还没有开始批准。该协议目前正在接受法律审查和翻译。
-
-欧盟和中国在去年12月原则上就投资协议达成协议。 3月，欧盟对制裁新疆地区维吾尔族穆斯林的人实施了制裁。作为回应，北京政府立即宣布对绿色环保部和中国专家莱因哈德·比蒂科弗（*Reinhard Bütikofer*）和基民盟环保部等采取反制裁措施。
-
-与此同时，七国集团（*G7*）成员国宣布，他们希望更加紧密地合作，以遏制中国在世界上日益增长的影响力。 西方经济大国的外交部长周二在伦敦举行的会议上一致同意转变到更加活跃，特别是在非洲，拉丁美洲和东南欧等结构薄弱的地区。 德国外交部长海科·马斯（*Heiko Maas*）在审议时说：“我们希望更加深入地处理中共国在多大程度上利用其经济实力扩大其地缘战略影响力。” “我们想对此进行反击。”会议上对此达成了很大的共识。
-
-#### **简评：**
-
-**非常欣喜的看到了这篇报道，欧盟现在已经第一步意识到了中共国在全世界的扩张，日益增大的地缘政治影响力。欧盟已经意识到了中共国的威胁，也意识到了，中共国利用经济市场，利用14亿韭菜威胁全世界。同时，周二，七国外长的会议，也就这个议题达成了共识。中共，你还有赢的机会吗？ **
-（本文仅代表译者个人观点，跟GNEWS平台无关。）
-
-**新闻原文链接：**
-🔗[Abkommen mit China: EU sieht Probleme für Ratifizierung](https://www.wiwo.de/politik/europa/investitionsabkommen-abkommen-mit-china-eu-sieht-probleme-fuer-ratifizierung/27160040.html)
-
-* * *
-
-***编辑整理/校对: **Ting Guo*
+**喜联盟Gnews编辑部**
 
 0
