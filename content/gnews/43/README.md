@@ -1,20 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 特别翻译：劳伦斯•塞林博士关于新冠病毒是中共生物战项目结构的声明
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1176736/)
+## 【战友观点】CCP文化聖人—-魯迅的真面孔
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1176885/)
 
-劳伦斯•塞林博士关于新冠病毒 [#Covid19](https://twitter.com/hashtag/Covid19?src=hashtag_click) 和 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 生物战项目结构的声明 （附油管视频：[http://youtube.com/watch?v=qFSQih](https://t.co/fE4hlgWHVG?amp=1)…）
+作者：休斯顿星光农场 老顽童
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-03-25-230524-1.jpg)
+一个CCP赞为新文化运动领袖，中国现代文学的奠基人和开山巨匠的鲁迅，到底是什么样的人，让我们通过其言行来判断。下面我将其真实写照展现给大家，可能要颠复大家的认知，但事实永远是不能被强奸的，纵使颠复世人的认知，我们也要还原历史真相，这也是新中国联邦人的责任。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05162504/Screenshot-2021-05-05-152425.jpg)
+*图片来源：网络*
+
+《毛泽东论鲁迅》曾言：“鲁迅并不是共产党的组织上的一人，然而他的思想、行动、着作，都是马克思主义化的。”毛泽东还论述了鲁迅的三大特点，即政治远见、斗争精神和牺牲精神，并号召共产党人和革命者学习伟大的“鲁迅精神”，同时捧“鲁迅是中国文化革命的主将。他不但是伟大的文学家，而且还是伟大的思想家和革命家。鲁迅的骨头是最硬的，他没有丝毫的奴颜和媚骨。这是殖民地、半殖民地人民最宝贵的性格。鲁迅在文化战线上，代表全民族的大多数，是向着敌人冲锋陷阵的最正确、最勇敢、最坚决、最忠实、最热忱的、空前的民族英雄。鲁迅的方向，就是中华民族新文化的方向，就是新生命的方向。”
+
+鲁迅一直与CCP交往频繁，并充当CCP与日本人内山完造的联系人。在三十年代初，CCP高层领导人与鲁迅交往密切，或求助，或避难，或借钱，或利用鲁迅的家召开秘密会议，或经鲁迅牵线，通过日本人开的内山书店周转材料物资。鲁迅的寓所成了中共领导人暂避风浪的港湾，瞿秋白、陈赓、陈云和冯雪峰等人均与鲁迅有过甚密交接，瞿秋白三次在鲁迅家避难，方志敏狱中也委托其转交遗书及资料。
+
+鲁迅非常重视苏联文学及苏共的宣传，其藏书中有很多俄罗斯文献，大约有600种之多。他着力翻译过不少作品，许广平曾说：“翻译和介绍苏联文学（包括俄罗斯文学）在鲁迅毕生的革命活动中是极为重要的一部分。在他将近600万字的着作中，苏联文学的翻译和介绍就有160多万字的数量，约佔他全部着作量的四分之一以上（全部翻译量的一半以上）。
+
+鲁迅仇视普通中国人，否定中华传统文化。其笔下塑造的人物充满缺点，如阿Ｑ、华老栓、祥林嫂、孔乙己等，成了中国人是自私、无知、盲从、自欺、麻木、懦弱的代名词。其文字也充满愤懑、鄙视和丑化人性，鲁迅曾言：“能杀才能生，能憎才能爱，能憎与能爱才能文”。他宣扬的暴力才能生爱，正与CCP之斗争哲学想吻合。CCP为了打压民众、奴役大众而力捧鲁迅。
+
+鲁迅是反道德、反礼教的异类，与CCP臭味相投。鲁迅所有的文学作品的中心内容就是反传统、反道德、反礼教，其笔下没有好人，这正符合CCP要毁灭人类的计划。CCP也是通过从反中国传统文化、反传统道德，将中国人的根给拨掉。于是鲁迅成了中共臭味相投的好战友、好夥伴了，即便他死后也是中共利用的一个好棋子了。
+
+鲁迅是反人类的急先锋。鲁迅有言：“凡是愚弱的国民，即使体格如何健全，如何茁壮，也只能做毫无意义的示众的材料和看客，病死多少是不必以为不幸的”。照其所言“愚弱的国民，病死多少是不必以为不幸的”，鲁迅就是CCP的生化武器的理论鼻祖。天赋人权，生命无贵贱之分，“愚弱之人”同样有其生命的价值。
+
+鲁迅喜欢“骂”人，他的个性中也有着强烈的攻击倾向。“我要以眼还眼、以牙还牙，或者以半牙，以两牙还一牙，因为我是人，难于上帝似的铢两悉称。如果我没有做，那是我的无力，并非我大度，宽恕了加害于我的敌人。”“让他们怨恨去，我也一个都不宽恕”。此处更清楚鲁迅其“斗争”、“不宽恕”与“战斗”的本质，其斗争哲学与毛泽东的“与人斗其乐无穷”真是异曲同工！就是在这个思想指导下，把一个文明的中国搞成了“人人害我，我害人人”的恶魔世界。
+
+鲁迅曾坚决提倡废除汉字、阴历，主张改用外国的拼音文字。其曾言：“汉字和大众，是势不两立的。”1936年在抗日民族危亡之际，鲁迅对上海《救亡情报》的记者说：“汉字不灭，中国必亡”。其对中国文化恨之入骨，一心想要灭绝中国文化，用心之恶路人皆知。
+
+1961年毛泽东为纪念他特为其写了两首七绝《七绝二首·纪念鲁迅八十寿辰》
+
+其一
+
+博大胆识铁石坚，刀光剑影任翔旋。
+
+龙华喋血不眠夜，犹制小诗赋管弦。
+
+其二
+
+鑑湖越台名士乡，忧忡为国痛断肠。
+
+剑南歌接秋风吟，一例氤氲入诗囊。
+
+物以类聚，人以群分。毛泽东这样评价鲁迅，其用心就是想利用鲁迅这个文化流氓来愚弄中国百姓，并起到了一定作用。很多人都以为鲁迅是一个新文化先驱，通过上述引用他们自己的原着，正本清源，让我们看清鲁迅（周树人）的邪恶之心。
+
+本章节剖析了中国害人文化人周树人，下一个章节我会给大家分析另一个中国害人政治人周恩来，剖开二周见真相，唤醒民众灭共党！欢迎大家围观。
+
+（文章仅代表作者个人观点）
+
+校对：文信 发稿：Helen
+
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
 
 
 
-> A statement by Dr. Lawrence Sellin about the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) and the structure of the Chinese Communist Party's biowarfare program[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/tcPupWMGH1](https://t.co/tcPupWMGH1)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389641506240225284?ref_src=twsrc%5Etfw)
-
-
-
-以下为YOUTUDE视频中文翻译
-
-我是赛琳博士，此信息是给还在试图掩盖 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 真相的那些政客们，媒体们尤其是科学界的学者们，不管你们是出于个人利益还是政治目的，你们在虚假宣传 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 源于自然界。它根本不是源于自然的。 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 是一个大范围的“功能增益型”病毒研究，所制造出的产品，这些研究是来自 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 科学家们利用的军民融合等项目。也就是说 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 来自实验室。 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 有太多不寻常的的特征，这些特征根本不能用自然进化论解释。[#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 具有的福林酶切位点，在任何蝙蝠病毒中都找不到。这个特征表明它直接与人造 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 有关。福林酶切位点可增强病毒传染性和致病性。而 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 科学家们知道如何人工干预插入它们。唯一的遗留问题是 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 是出自哪里并如何制造的，以及病毒的释放是泄露的还是故意的。在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 统治的中国，军方病毒研究机构和民企病毒研究机构没实质区别，它们其实是捆绑在一起的。 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 2016年公布的5年计划中明确声明是计划的一个目标。自2020年底，随着大量 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的科研信息被披露，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) ，西方国家政府部门和媒体开始审查封杀此类信息 。我于是决定改变我的分析策略。 你们很多人可能知道，二战时德国有个密码机器叫Enigma, 艾伦•图灵（Alan Turing）因破解Enigma而闻名。但其实还有个鲜为人知的天才起了重要作用。他是戈登•韦尔奇曼(Gordon Welchman)。在Enigma 被破解之前，戈登•韦尔奇曼采用了一套技术叫做“通信分析”系统，来判断破解，比如说，德国军队的调遣以及德国发出的指挥命令等。他的那套理论叫做Hut Six. 现在我和一位 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 侦探已经改进了戈登•韦尔奇曼的通信分析法，来用于对中共病毒战计划的整个网络进行分析。下面这些是我们目前发现的：中共生物战项目分为3个级别，秘密军事计划是核心，并建立在民间研究所和大学研究项目之上。这种层次结构为病毒研究提供了必要的手段，通过与国际病毒研究机构的互动从而获取相关知识和研究成果。所有这些收获最后都流向了中共的生物战核心项目。中共生物战项目的起源和传统核心并非出于医药目的，而是兽医学还有部分农业学。在二战期间，日本帝国军队在满洲里有个生化武器研究所，叫731部队。它的官方名字叫：“防疫和水净化部门”。其实还有第二个研究中心–100部队，官方称为“关东军战马疾病预防所”。当 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 军队在1949年夺取中国政权后，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 沿袭了日本人的方式，将生物战研究纳入兽医研究，在北京，成都，广州，南京和云南建立了“战马健康研究中心”以及类似的研究机构。基本上，这些机构部门都隶属于中共战区军队的管辖。 1953年，5所中共解放军兽医大学被并入长春的一所大学。该位置就在原日军731部队研究所以南140公里左右。而武汉，尤其是武毒所，成为了这次病毒大流行的中心，备受关注。有关 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的研究工作在多个军方控制的设施中完成，涵盖病原体培养及相关疫苗开发。由长春军事兽医研究所带头，在国内及国际上展开了大量的收集病毒的工作。 就是那个病毒收集项目为#中共病毒 提供了蝙蝠冠状病毒的骨架,以及创建了像RaTG-13这样的中介病毒，并被错误且广泛的宣传为目前流行的冠状病毒的鼻祖。在北京军事医学科学院的监督带领下，他们把最感兴趣的病毒都收集并分发给不同的实验室。武毒所，武汉大学病毒实验室以及武汉军医院都是这个项目的核心参与部门。在下一集的视频中，我会详细介绍 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 如何利用全球的关系网来壮大他的生物战项目。特别是 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 如何深层次渗透美国的病毒研究项目。
 
 0

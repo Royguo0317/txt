@@ -1,18 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 特别翻译：劳伦斯.塞林博士关于美国的病毒研究计划遭到中国人民解放军大规模渗透的声明
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1176758/)
+## 加拿大时政生活杂谈 （第十一期）2021.05.03
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1176957/)
 
-劳伦斯·塞林(Lawrence Sellin)博士关于美国的病毒研究计划遭到中国人民解放军大规模渗透的声明
+蒙特利尔皇家山战友团
+作者: 平民正道
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05164218/%E6%97%B6%E6%94%BF.jpg)
+**一、 一周新闻简报**
+全世界疫情共一亿五千四百万，过去四天新增将近三百万，死亡人数四万五千。
+美国感染人数持续走高，已经超过三千三百万。过去的四天，新增了十五万五千，死亡人数过去四天平均每天五百人。
+加拿大过去四天新增了感染人数两万九千七百九十四人，死亡人数过去四天增加了一百五十三。安省过去四天新增两万三千八百零一。安省过去四天死了一百七十五个人。全省已经有超过八千人死亡。
+过去十天印度每天新增感染人数近三十万，昨天接近四十万。仅昨天一天死亡人数超过三千。印度感染总是已经两千二百多万，死亡人数超过了二十万。印度医疗资源接近崩溃。印度疫情主要是双重突变和三重突变。
+魁省总人数累计三十五万两千六百七十八人，死亡人数已经达到了一万零九百四十四人。到现在为止，已经有百分之三十七点二的人接种了疫苗。从五月中旬开始蒙特利尔的特鲁多机场将为在车里的人提供接种疫苗服务。被接种者不需下车，只要伸出胳膊即可接种。预计每天将有四千人接种。
 
+**二、 疫苗知识简答**
+甲状腺患者，癌症，心脏病，高血压等慢性病在疾病控制期内理论上都是可以打疫苗的。但是目前中共国的新冠疫苗也好，国外各个疫苗厂家生产的新冠疫苗也好三期临床试验都排除了以上慢性病患者。所有新冠疫苗是否对慢性病患者有用，需要时间的检验，患者打疫苗之前应有充分的心理准备。
+接受了心脏移植手术的患者如果打新冠疫苗的话目前没有数据证明疫苗对此类患者是安全的。患者要打疫苗的话，需要自己承担风险。
+过敏体质如海鲜过敏、花粉过敏者建议不打疫苗。
+无论有基础病的还是身体非常健康的人，只要感染新冠病毒，都会搞弱搞残细胞功能，可能留下后遗症。
 
+一般的疫苗只需打一针是因为病毒具有稳定性，例如天花，乙肝病毒。新冠疫苗需要2针甚至更多次数因为新冠疫苗具有变异性。即使感染后注射疫苗抗体也只能维持3个月。3个月之后必须再次注射疫苗。
+检验疫苗好坏不是使用半衰期。疫苗要么刺激机体产生抗体，要么不刺激机体产生抗体。衡量疫苗的好坏是抗体的低度和抗体低度持续的时间。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05164204/%E8%AE%B0%E5%8F%B7%E8%AE%B0%E5%8F%B7%E8%AE%B0%E5%8F%B7%E3%80%81.jpg)
+**三、 时政杂谈**
+加拿大移民局新增9万人基础工作和留学生移民项目。法语移民项目不限量申请。5月6号网上开始申请，资料准备多多益善，申请采取先到先得的顺序。
+土共通过千人计划偷盗西方国家的知识产权带回国。
 
-> A statement by Dr. Lawrence Sellin about the massive infiltration of U.S. virus research programs by China's People's Liberation Army[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaPandemic](https://twitter.com/hashtag/CoronaPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/LjxKERAdEp](https://t.co/LjxKERAdEp)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 5, 2021](https://twitter.com/LawrenceSellin/status/1389861364190093315?ref_src=twsrc%5Etfw)
+[视频连接](https://gtv.org/video/id=6090810d6c00a14130e6e4f5)
 
+* * *
 
-
-我是劳伦斯·塞林博士。 在过去的30年中，中国人民解放军PLA已经深深地渗透了美国的病毒研究计划。 媒体已大量报道了有关皮特·打杂客(Peter Daschak) 的生态健康联盟(EcoHealth Alliance)将多达3百万美元的资金，从美国国家卫生研究院(NIH)转移到武汉病毒研究所(WIV)。 而那只是冰山一角。 数十亿美元 (注意是B打头, Billions)，数十亿美国纳税人的钱，以知识、技能、和资金的形式，直接或间接地为中共解放军PLA的病毒研究计划做出了贡献，最终导向了新冠病毒COVID-19。 其中大部分资金来自于美国过敏和传染病研究所(NIAID)的安东尼·蝠奇(Anthony Fauci)博士。 但是美国国防部也提供了大量的资金。 我将以一名解放军军方科学家为例来说明它是如何发生的。 我称之为科学链迁移。 姜世勃毕业于解放军军医大学。 他于1990年代来到美国，在纽约洛克菲勒大学进行了关于艾滋病病毒HIV的研究，该项目是由蝠奇(Fauci)的研究所资助的。 姜世勃最终在附近的纽约血液中心林德斯利 F·金博尔(Lindsley F.Kimball) 研究所获得了永久性职位。 在接下来的20年中，其他的解放军PLA科学家、或与解放军相关联的科学家们，源源不断地流向他的实验室来工作，而该实验室获得了超过1700万美元的美国研究资金的助金。 其中大部分资金来自蝠奇(Fauci)的研究所。 同时，蒋世勃还直接与在中国境内的人民解放军科学家们合作，并与他们一起发表了许多科学出版物。 更重要的是，他与美国领先的病毒研究实验室建立了广泛的连接网络，其中一些实验室在进行「功能增强」性研究，从而为解放军建立了接触最先进技术的附加链接。 直到今天，姜世博带到美国的一位科学家，杜兰英 – 她是位居高职的解放军训练有素的科学家(周育森)的妻子 – (她)仍然在林德斯利·金博尔研究所工作，并且由安东尼·蝠奇(Anthony Fauci) 资助。 将世勃深入地参与了2002年至2004年间第一次萨斯SARS大流行的冠状病毒研究。自从他回到中国以来，作为上海复旦大学上海的教授，他一直是新冠病毒COVID-19研究的关键人物。 2013年，是姜世勃与描述了福林霉切位点插入技术的中国科学家们在合作，而这种结构现已被许多人认为是新冠病毒COVID-19起源于实验室的(间接)确凿证据。 实际上，已经有成百上千的姜世勃们在美国的病毒研究实验室里工作，而这些实验室是由美国纳税人资助的。 许多人至今仍然在那里。 他们中的许多人无疑为中共解放军的生物战计划做出了贡献。 对美国人民来说，现在是时候该结束对我们的知识、技能和研究经费的抢劫了！ 对美国人来说，现在是时候该与中国人民站在一起，来结束 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 了！
+*编辑、发稿 文锦*
 
 0

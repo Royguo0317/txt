@@ -1,29 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧盟冻结与中共国的投资协议
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1176897/)
+## 慧眼看世界20210505
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1177016/)
 
-```
-新闻来源：意大利安莎通讯社（ANSA）
-发表日期：2021年5月4日    
-翻译整理/简评：斩草要除根
-```
+- 制图：透明的遮羞布
+- 编辑：神奇四侠
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172614/01-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172638/02-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172704/03-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172725/04-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172744/05-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172804/06-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172823/07-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172842/08-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172903/09-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172925/10-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172953/11-7.jpg)
+以上文字图片仅代表作者个人观点，与GNEWS无关
 
-布鲁塞尔，5月4日—-欧盟“中止”了其批准去年12月与中（共）国签署的投资协议的努力。欧盟委员会副主席瓦尔迪斯·多姆布罗夫斯基斯（*Valdis Dombrovskis*）在接受法国记者采访时宣布了这一消息。
-
-多姆布罗夫斯基斯解释说，鉴于布鲁塞尔和北京之间最近的外交关系日益紧缩，欧洲委员会已暂停其努力，要求成员国和议会批准与中国在2020年底达成的投资协议。“目前，我们暂停了委员会提高政治意识的努力，因为很明显，在当前形势下，随着欧盟对中国的制裁和中国的反制裁，包括对欧洲议会议员的制裁，这不利于该协议的批准”，委员会副主席说。
-
-#### 简评：
-
-**这显然是在相互制裁后，中欧之间外交关系恶化的表现。在巨大的经济利益面前，欧盟能忍痛割肉的下此决心，把经过长达7年的谈判叫停。当时，特别是德国的推动，才让此协议于去年12月达成，现在可以看出来作为欧盟之首的德国已经选择好与英国、美国采取统一步调了，真实可喜可贺！**
-（本文仅代表译者个人观点，跟GNEWS平台无关。）
-
-**新闻原文链接：**🔗[L’Ue congela l’accordo sugli investimenti con la Cina](https://www.ansa.it/sito/notizie/topnews/2021/05/04/lue-congela-laccordo-sugli-investimenti-con-la-cina_837a1406-f194-4634-bedb-9d4f7defe2ca.html)
-
-* * *
-
-***编辑整理/校对: **Ting Guo*
+发稿：神奇四侠
 
 0
