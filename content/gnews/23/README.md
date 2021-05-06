@@ -1,51 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 伦理与道德——科学家利用堕胎婴儿的头皮制造“人性化的小鼠”
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1177687/)
+## 【每日快讯】05/05/2021：郭先生直播联盟委员会需完善更多独立农场会建立起来新中国联邦急需和欢迎各类人才
+` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1179417/)
 
-整理撰稿：蓝精灵
+**制作：Cantonese工作室**
 
-医学进展中心的新录像带展示了匹兹堡大学一项艰巨的实验，该实验涉及对五个月流产的婴儿进行剥皮，并将其头皮植入啮齿动物。
 
-现在，宾夕法尼亚州的领导人要求进行调查，并敦促大学停止使用流产的婴儿身体部位进行实验。医学进展中心在一份声明中说：“公开可用的信息表明，皮特开展了一些对流产的人类婴儿进行的最野蛮的实验，包括剥去5个月大的流产胎儿以缝合到实验大鼠上，”医学进展中心在一份声明中说。
 
-信息来自匹兹堡大学研究人员于2020年9月在《科学报告》杂志上发表的一项研究。它描述了科学家如何使用流产婴儿的头皮来制造“人性化”的小鼠和大鼠，以研究人类的免疫系统。在进行这项研究的同时，研究人员还发布了他们的实验照片-可怕的图像，显​​示出了啮齿动物身上生长着一簇簇婴儿的头发。
+**播报：【文依】资料整理：【Elaine】【文依】【An】海报制作：【米线】视频制作：【KEN】上传：【星星】【向阳6768】**
 
-医疗进步中心的录像带引起了人们对大学不道德和潜在违法行为的更多关注，其中包括可能因流产而活着出生，被杀死然后被器官解剖的婴儿。这也表明，匹兹堡大学和当地生育计划会（该计划会提供婴儿流产的婴儿身体部位）可能会参与“非法交易”。
+摘要：
 
-调查发现：“西宾夕法尼亚州的当地计划计划服务提供者提供了流产的胎儿，而皮特则赞助了当地生育计划服务。”
+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06094037/image0-22.jpg)
+2
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06094222/image1-10.jpg)
+3
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06094317/image2-4.jpg)
+4
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06094714/image3-1.jpg)
+5
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06094838/image4-3.jpg)
+6
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06094937/image5-2.jpg)
+7
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06095050/image6-1.jpg)
+8
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06095136/image7-1.jpg)
+9
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06095224/image8-1.jpg)
+10
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06095359/image9-2.jpg)
+11
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06095452/image011-2.jpg)![1.    全球财富要避险，只有选择喜系列，方便使用、绝对安全、无借款。
+2.    羟氯喹早前就被中共列为战略物资。一定要吃此药。轮换着吃。
+3.    摩根先生的书，阐述中国人民的美好。这本书意义深远。
+4.    郭先生购地计划：希望在大国例如美国某个州，允许范围内享有独立司法管辖权和防卫权，希望在多个国家都拥有地方。
+5.    比尔盖茨离婚核心原因是身体和财富的安全问题。
+]()![1.    全球财富要避险，只有选择喜系列，方便使用、绝对安全、无借款。
+2.    羟氯喹早前就被中共列为战略物资。一定要吃此药。轮换着吃。
+3.    摩根先生的书，阐述中国人民的美好。这本书意义深远。
+4.    郭先生购地计划：希望在大国例如美国某个州，允许范围内享有独立司法管辖权和防卫权，希望在多个国家都拥有地方。
+5.    比尔盖茨离婚核心原因是身体和财富的安全问题。
+](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01093124/image0%E9%9D%A2.jpg)
 
-更重要的是，大学中许多使用流产的婴儿身体部位进行的实验是由美国纳税人通过美国国立卫生研究院资助的，尤其是CMP的Anthony Fauci博士的美国国立过敏与传染病研究所办公室提供了资助。 。
 
-该大学的反堕胎的学生对此消息感到震惊。
 
-“美国大学生命俱乐部”皮特学生生命协会主席安娜·谢内说：“得知我们在校园里走来走去，并经过生育计划会提供的流产婴儿进行研究的建筑物，真是太恐怖了。” 匹兹堡大学不应该适应生育计划会。尤其是作为一所公立大学，将纳税人的钱用于道德和伦理上有问题的研究真是令人恶心。”
 
-州主要立法者和宾夕法尼亚家庭研究所还敦促该大学以公开信形式结束其不道德的研究，以回应调查。
-
-众议院议长布莱恩·卡特勒（Bryan Cutler），参议院主席Pro Tempore Jake Corman和其他国家领导人写道：“我们呼吁匹兹堡大学停止所有关于流产婴儿的试验，以及停止将其皮肤和身体部位移植到啮齿动物上的不人道的做法。”
-
-他们敦促州议会对大学，生育计划会和其他参与实验的团体进行全面调查。
-
-他们写道：“这个可怕的发现是皮特使用流产婴儿进行非人道研究的系统性实践的产物。” “由国家卫生研究院资助的一个项目的一部分，皮特参与了数百个流产婴儿的胎儿肾脏和其他器官的研究工作。皮特还让科学家从通过引产分娩的胎儿体内获取了胎儿肝脏。”
-
-视频中的信息来自公共文档，包括在科学期刊和美国国立卫生研究院网站上发表的研究。
-
-行动： 签署公开信，呼吁匹兹堡大学终止对流产婴儿的实验，并支持宾夕法尼亚大会的全面调查。
-
-编者简评：
-
-科学超越了道德伦理的底线，恶魔从此横行人间。
-
-\*以上仅代表作者观点，不代表Gnews平台\*
-
-参考链接：
-
-[https://www.lifenews.com/2021/05/04/scientists-use-scalps-from-aborted-babies-to-create-humanized-mice-and-fauci-is-funding-it/](https://www.lifenews.com/2021/05/04/scientists-use-scalps-from-aborted-babies-to-create-humanized-mice-and-fauci-is-funding-it/)
-
-图片来源：lifenews
-
-校对发布：Penny
-
-0
++1
