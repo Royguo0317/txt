@@ -1,53 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】辉瑞公司期待疫苗将成为“持久的收入来源”
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1177232/)
+## 习近平公布了控制全球互联网的计划
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1177345/)
 
-作者：纽约香草山农场  四季
+翻译：康州盘古农场 – WH
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+校对：康州盘古农场 – Mike Li
 
+编辑：康州盘古农场 – 心照
 
+发布：康州盘古农场 – 彩虹 Rainbow
 
-据零对冲5月5日的报道，辉瑞公司发布了一份强劲的收益报告，超过了华尔街的预期。预计到今年年底其冠状病毒疫苗的销售额将达到260亿美元，这一里程碑将使该疫苗成为该公司最畅销的医药产品。随着辉瑞将其COVID-19疫苗部门发展成为一个主要且永久性的业务部门，这将惠及辉瑞的营收。
+**据《大纪元时报》2021年5月2日报道**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05191618/hohorqq.jpg)习近平于2021年3月4日出席在北京举行的政协会议（CPPCC）开幕式。 （法新社）
+根据《大纪元时报》最近获得的（中共国）政府内部文件，中共领导人习近平亲自指示共产党政权集中精力控制全球互联网，以取代美国的影响力。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05190826/1-pfizer2.jpg)图片来源：[ZeroHedge](https://www.zerohedge.com/covid-19/pfizer-expects-covid-jab-will-be-durable-revenue-stream-approval-12-15-year-olds-looms)
+习近平在2017年1月的演讲中表示，“控制互联网的力量”已成为“ [中共国]全球战略竞争的新焦点”，并把美国列为阻碍其发展的“竞争力量”的野心。
 
-尽管世卫组织负责人泰德罗斯-阿达诺姆-格布雷耶苏斯谴责了“全球疫苗分配令人震惊的不平衡”，并呼吁作出更多努力，加强世卫组织的“2019冠状病毒病疫苗实施计划”（Covax），加快向贫困国家提供疫苗，但辉瑞公司似乎更专注于建立其最新的利润来源。
+共产党的最终目标是控制全球互联网上的所有内容，以此该政权可以在世界舞台的交流和讨论中运用习近平所说的“话语权”。
 
-辉瑞正在寻求获得美国监管部门批准12至15岁的未成年人接种冠状病毒疫苗。根据最近的媒体报道，辉瑞公司还在寻求批准该疫苗在美国和欧洲用于2岁和11岁的儿童，并预计将在9月获得授权。这将掀起另一波对疫苗的需求。
+习近平提出了“利用技术统治互联网”的愿景，以实现对在线生态系统各个部分的全面控制，包括应用程序、内容、质量、资金和人力。
 
-首席执行官阿尔伯特·波拉（Albert Bourla）透露，辉瑞公司正在与“基本上世界所有的政府”就2024年之前提供疫苗和加强疫苗进行谈判。他期待对冠状病毒疫苗产生类似于流感疫苗的“持久需求”。波拉已经开始让公众期待在注射了疫苗第二针后的一年内至少再注射一针，同时还向世界预告可能需要每年注射一次加强疫苗。
+网络安全专家，《网络防御》杂志出版商加里·米利夫斯基（Gary Miliefsky）告诉《大纪元时报》，如果中共政权要获得对更多根服务器的控制权，他们便可以将流量重新导向到所需的任何地方。
 
-此外，辉瑞公司还表示，它打算将其支撑COVID-19疫苗的mRNA技术用于其他疗法和疫苗。例如，该公司正致力于使用相同的RNA脂质纳米颗粒技术制造季节性流感疫苗。
+例如，如果用户想浏览有关北京认为敏感主题的新闻文章，则该政权的DNS服务器可以将用户引导至伪造页面，误导该文章不再在线。
 
-中共病毒已肆虐一年有余，疫情却并未因疫苗有丝毫的缓解。因为疫苗，政府赢得了政绩，商家赚得满盆钵，但是疫苗接种后的副作用却屡见报端。时间会证明一切，但留给人类的时间不多了。
+他说：“控制根服务器的那一刻，您就可以欺骗或伪造任何东西。”“您可以控制人们看到什么，看不到什么。”
 
-原文链接：
+原文链接: [https://www.theepochtimes.com/chinese-leader-xi-jinping-lays-out-plan-to-control-the-global-internet-leaked-documents\_3791944.html](https://www.theepochtimes.com/chinese-leader-xi-jinping-lays-out-plan-to-control-the-global-internet-leaked-documents_3791944.html)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-[Pfizer Expects Vaccine Will Be “Durable Revenue Stream” As It Seeks Approval For Children 2 To 11 | ZeroHedge](https://www.zerohedge.com/covid-19/pfizer-expects-covid-jab-will-be-durable-revenue-stream-approval-12-15-year-olds-looms)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-
-
-编辑/校对/发稿：小鹿
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
-
-
-
-+1
+0

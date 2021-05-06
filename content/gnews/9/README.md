@@ -1,46 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】中共国“五一”之殇
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1177769/)
+## 美国联邦航空管理局（FAA）计划对不戴口罩的乘客处以高额罚款
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1177822/)
 
-配音：香草山录音组 蒙古鸿雁
+整理撰稿：蓝精灵
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+美国联邦航空管理局（FAA）计划对两名被指控在不同航班上殴打空姐不戴口罩的乘客处以高额罚款。
 
+正如美国有线电视新闻网周三报道的那样，其中一名乘客被指控在二月份的一次飞行中殴打两名空姐，并面临32,750美元的罚款。另一人被指控用手提包打他的服务员，并面临16 500美元的罚款。
 
+据美国有线电视新闻网报道，这两位都是拒绝了戴口罩的要求，然后和空乘人员发生肢体冲突的不当行为。美国联邦航空局发言人告诉美国有线电视新闻网，该机构在过去三个月内收到的1,300例乘客不当行为报告中，周三共处以四次罚款。发言人指出，此类事件曾经非常罕见，以至于美国联邦航空局没有将其计算在内。
 
+以前，FAA每隔几天会收到一份报告，但CNN报告说，该机构现在每天都会收到多份报告。出口处指出，由于旅客数量仍低于大流行前水平，因此报告的旅客不当行为急剧增加。
 
+编者简评：
 
+大流行改变了人们的日常行动和心态，当被强制性要求某种行为的时候，往往会激发冲突。这种改变会趋于平缓，人们都接受以后带着口罩出门吗？一个病毒传染病打击人的自尊，改动摇社会的稳定，唯一解决的办法就是找到病毒起源，彻底灭掉病毒制造者中共。
 
+\*以上仅代表作者观点，不代表Gnews平台\*
 
-尽管病毒还在肆虐，中共仍然鼓励人们在5月1号劳动节出行旅游。
+参考链接：
 
-为期五天的共产假期，即“五一”，从上周六开始。中共国为此鼓励老百姓，多在国内旅行。也是因此，成千上万，甚至数百万人拥堵了诸如长城之类的旅游景点，并在各大主要城市中形成了拥挤的人群。
+[https://thehill.com/policy/transportation/552041-faa-to-fine-maskless-unruly-passengers-for-allegedly-assaulting-flight](https://thehill.com/policy/transportation/552041-faa-to-fine-maskless-unruly-passengers-for-allegedly-assaulting-flight)
 
-
-
-**文字版原文：[【战友心声】中共国“五一”之殇](https://gnews.org/zh-hans/1172961/)**
-
-作者：纽约香草山福音部  繁星
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+校对发布：Penny
 
 0

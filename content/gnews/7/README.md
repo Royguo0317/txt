@@ -1,46 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】60多个美国体育场所引入疫苗护照
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1177783/)
+## 中共人口下降和压制民主将重挫生产力增长
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1177826/)
 
-配音：香草山录音组 蒙古鸿雁
+俄罗斯莫斯科喀秋莎农场   银河
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/E-5.jpg)freedomandsafety.com
+美国企业研究所 (American Enterprise Institute)5月4日社评指出，人口的萎缩和老龄化，如劳动力人口下降，通常被认为不利于创新和驱动经济增长。《金融时报》报道称，“中共国将报告自大跃进以来的首次人口下降。大跃进是毛泽东在上世纪50年代末灾难性的经济政策，导致数千万人死亡。”
 
+英国《金融时报》专栏作家吉迪恩·拉赫曼(Gideon Rachman)在谈到有关中共国人口增长的报告时写道，尽管日本人口到2100年可能会减少一半，但日本人仍坚持社会同质性，而不是大规模移民。中共国人执着于对种族公民身份的认可，可能会做出类似的选择。相比之下，尽管目前美国和欧盟在移民问题上存在政治分歧，但西方国家对移民保持相对开放的态度，西方社会将因此获得经济活力。
 
+经济学家泰勒·考恩(Tyler Cowen)在最近一次美国企业研究所(AEI)活动中提出对比，除了中共国人的移民选择，还要考虑中共的政策影响。他说到，“有多少真正聪明的移民想去中共国生活?”一个专制集权，一个可以让富有的企业家突然消失的中共国，是否比一个自由民主，为创业创新和富有想象力的企业家提供平台的国家更有吸引力？这个问题的答案揭示了中共国现状。
 
+尽管中共国的技术进步引发了地缘政治和国家安全方面的担忧，但中共国的中央集权计划和产业政策阻碍了生产率增长。
 
+国际货币基金组织(International Monetary Fund)的一份新报告显示，这放大了世界第二大经济体生产率(即每名工人的产出和单位资本的产出)增长下降的趋势。报告显示，按衡量整体经济效率的行业平均生产率衡量，中共国经济的生产率仅相当于美国、日本或德国等全球表现最好的经济体的30%。
 
+国际货币基金组织(IMF)估计，2012年至2017年期间的年均生产率增长仅为0.6%，大大低于此前5年3.5%的平均水平。国际货币基金组织表示，随着中共国经济增长进一步放缓，这种下降趋势可能还会继续。最近，政府还加大力度控制私营企业，尤其是科技行业的私营企业。分析人士表示，此举可能进一步抑制生产率增长。
 
+中共从意识形态对抗，种族灭绝的人权侵害，生物武器病毒，日益低迷的人口出生率，大幅下降的国内生产率，对环境毁灭性破坏，经济末路等，种种迹象表明中共已是苟延残喘，后继无力。
 
-零对冲5月4日报道，美国60多个体育场馆和其他场所正在为夏天部署疫苗护照（或通行证或证书），以使经济“恢复正常”。
+参考链接：
 
-美国职业棒球大联盟的旧金山巨人队和纽约大都会队是第一批要求球迷出示疫苗接种证明或通过一个名为Clear的应用程序验证其COVID-19近期阴性测试的一些球队中的一员。这些球队将接受医疗文件作为证明，但他们鼓励所有体育迷下载Clear应用程序以获得便利。
-
-
-
-**文字版原文：[【热点播报】60多个美国体育场所引入疫苗护照](https://gnews.org/zh-hans/1171710/)**
-
-作者：纽约香草山写作组  四季
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://www.aei.org/economics/chinas-new-model-of-economic-growth-has-a-big-productivity-problem/](https://www.aei.org/economics/chinas-new-model-of-economic-growth-has-a-big-productivity-problem/)
 
 0

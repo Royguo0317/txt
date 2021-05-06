@@ -1,37 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 马斯克说，Starlink卫星互联网服务获得了500,000笔预订
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1177382/)
+## 新闻快递——张向晨出任WTO副总干事 美中继续角力国际组织
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1177507/)
 
 整理撰稿：蓝精灵
 
-创始人埃隆·马斯克（Elon Musk）周二表示，SpaceX的Starlink卫星互联网服务已经收到了超过50万笔预订单，并且预计不会有技术问题，满足需求。
+世界贸易组织（WTO）任命中国商务部副部长张向晨为副总干事，这也是这个组织自2013年以来任命的第二位中国籍副总干事。在四位新任副总干事中，还有美国籍的艾拉德（Angela Ellard），美中各占一人，也反映双方在国际组织中的持续角力。而中国融入国际体系，是更好的维护了规则的运行，还是让国际组织变得中国化？这是国际社会最大的担忧。
 
-马斯克在推特上说： “唯一的限制是市区的高密度用户。”马斯克在接受CNBC记者访问时说，为这项服务支付的99美元订金是可以全额退款的，SpaceX并不保证服务。
+一场新冠肺炎疫情让许多联合国机构不少议事日程都慢了下来，但中国确保WTO像其它国际组织一样有自己人的努力一刻都没放松过。
 
-马斯克说：“当我们进入数百万用户范围时，将面临更大的挑战。”
+张向晨是继前WTO副总干事易小准之后第二位中国籍的WTO高管，两人都是中国长年在国际经贸体系与谈判中培养出的官员。
 
-SpaceX尚未确定Starlink服务的发布日期，但商业服务不太可能像以前计划的那样在2020年提供。
+**张向晨其人**
 
-该公司计划最终总共部署12,000颗卫星，并表示Starlink星座将耗资约100亿美元。
+2018年，美国对中国制产品祭出关税而启动美中贸易战；美中在国际组织上的角力，也因美国拒绝WTO上诉机构（Appellate Body）的法官任命，习达难和张向晨在日内瓦曾激烈交锋。
 
-建设和发送火箭到太空是一个资本密集型业务，是两个世界上最富有的人，亚马逊（AMZN.O）创始人杰夫·贝索斯和马斯克，也是特斯拉汽车公司的首席（TSLA.O） 近年来投资了数十亿美元以打入这个市场。
+张向晨1992年就参与中国入世谈判，在当时的中国首席谈判代表龙永图带领下，深度参与谈判工作。
 
-马斯克和贝索斯已经公开争夺卫星计划。
+**举世无双** **   UN****机构领导班子的众多中国面孔**
 
-美国联邦通信委员会（FCC）上个月批准了SpaceX的计划，即在比计划的更低的地球轨道上部署一些Starlink卫星，但其中包括一些确保计划安全的条件。
+美国国会辖下的美中经济与安全审查委员会在2020年度报告中就整理出，在联合国现有的十五个专门机构与组织中，有四个是由中国籍的代表担任机构的最高领导职务，其他各国公民担任联合国辖下机构要职的数量，都只有一个。
 
-编者简评：
+目前由中国人担任最高主管职务的联合国辖下机构包括了国际电信联盟（ITU）的总干事赵厚麟、国际民航组织（ICAO）总干事柳芳、联合国工业发展组织（UNIDO）总干事李勇以及联合国粮农组织（FAO）总干事屈冬玉。
 
-太空时代已经来临，是否人类以后要站在火星角度来看待生命，人性，种族，经济和政治。人类美好的文明从这里开始。
-
-(以上仅代表作者观点，不代表Gnews平台)
+尽管中国是世界第二大经济体，但作为所谓“发展中国家”，中国缴纳的联合国会费远远低于美国。根据联合国资料，2018年，中国向联合国系统出资十三亿美元，远低于美国每年承诺提供的一百亿美元。
 
 参考链接：
 
-[https://www.reuters.com/technology/starlink-satellite-internet-service-gets-500000-preorders-musk-says-2021-05-05/?taid=6091f77a2ffb0700014f3958&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/technology/starlink-satellite-internet-service-gets-500000-preorders-musk-says-2021-05-05/?taid=6091f77a2ffb0700014f3958&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+[https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/rc-05052021100604.html](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/rc-05052021100604.html)
 
-校对/发布：Penny
+校对发布：Penny
+
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0
