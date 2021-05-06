@@ -1,39 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0505V中共极权下市场经济问题汇总到中央最终脆断
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1180013/)
+## 慧眼看世界20210506
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1180070/)
 
-编辑整理：
+- 制图：透明的遮羞布
+- 编辑：神奇四侠
 
-新加坡狮城农场：沉默大妈；日本东京方舟农场：山川异域
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06113955/%E5%B0%81%E9%9D%A2-20.jpg)
-据[2021-05-05 文贵直播：回答战友们目前关心的问题](https://gtv.org/video/id=60929c03db13300ca5491b6d)时间点1：13：56——
-
-给大家现在可以讲一下，什么样的情况下，为啥说共产党它一定完蛋、崩塌。大家看着，西方的在一个独立的法治保护下的自由市场经济，它有个前提，自由市场经济任何一个经济出现了问题，像Lehman Brother莱曼兄弟它出现危机的时候都可能导致整个市场崩塌，就一个点它就可能导致市场崩塌，它崩塌以后什么结果呢？倒下来了，市场不会动乱，因为管理它的人和运行它的人是自由市场的规则和某些人不按规则玩了，或者发展到一定时候它必然是一个公期、是一个规律性的一个调整，它哇（比划上升到顶点然后下降的手势）啪，倒下来了，泡沫。重新修复，又开始了，它有这个基础性、规律性的，它跟社会的动荡和政治上没有绝对的关系，它完全是经济泡沫和某一个点出了问题。
-
-而独裁国家完全不是的，当独裁国家经济出问题的时候，你发现不了，民生银行倒了，共产党不会倒；平安银行倒了，共产党不会倒；包头银行倒了，共产党不会倒；哈尔滨银行、（共产党）不会倒；盛京银行倒了，（共产党）不会倒；许家印倒了，也不会倒；它就一个一个的往上积累，它是三角形的。
-
-所有这些问题都会导致两个核心的问题，一个银行烂账增加。银行的烂账增加怎么办呢？在西方你一下子就垮了、就完蛋了，但是高度的政治绝对集中、高度的市场绝对垄断，它不允许你发生，它就掩盖住，掩盖住这所有市场经济的危机性往上堆积、往上冲，往金字塔上冲，下边是问题，问题、问题、问题、问题、问题，往上冲，把问题往上推，都聚集到中央，银行烂账增加，这是集权经济倒下的根本原因，银行烂账增加、金融系统崩溃，你看到中共现在已经开始了。
-
-第二，由于银行的烂账和呆账、坏账的增加，中国已经百分之四十几、百分之五十几了，一定是这个数字。流通性没了、没有货币流通了，这个时候出现什么问题呢，中小企业没有流通性就没有现金、没有贷款。无钱可贷、无钱可用，社会上存着大量的大额的资产——房地产、矿产，还有世界富豪啊，但是全是死钱、全是死产。这个国家一下子就到了集核性的，就是集核心性的灾难经济体的那一面去了，中国的房地产、中国的虚假金融业导致的中小型企业无钱可贷、无钱可用、没有流通性。这种情况下银行又烂账增加，所有的问题往上集中。
-
-集中到最上面的时候是什么呢？啪~是崩溃式、崩塌式脆断，像突尼斯的政治效应，它那个不是突尼斯的小贩阿瓦里，不是阿瓦里事件是整个社会的所有的问题都集中到上面去了，阿瓦里一碰，啪叽掉下来了。没有阿瓦里，有阿比比，还有阿瓦里，没有阿瓦里有阿比比。穆罕穆德.斯瓦利他女婿只是一个导火点，社交媒体起到了推动作用，这就是整个的集权政治经济下的市场，经济的问题最后全到了中共中央，最后是啪叽倒下，一秒钟啊。
-
-西方的市场资本主义经济，它任何一个事儿，你像高盛要出事儿，咵~这市场就完了，大家看到上周耶伦财政部长就讲一句话，现在有点通货膨胀的苗头啊，哗~这个市场就往下跌，抛股票就往下跌，吓得——欸，没有，没有，没有，没有，我绝对是百分之百的支持美联储的，我百分之百支持着是绝对的美国的联储主义的。我绝对支持、没有膨胀，有膨胀我们也能解决，吓成这个样子，为什么？一句话市场经济就倒下来。
-
-这就是西方的文明，资本的市场，法律保护下的市场，决定权在个人手里。在集权的政府和没有法律的资本市场里，集权就在中南坑、习一坑一个人的手里。最后的所有的问题到习一坑手里，习一坑搂不住了，倒下。
-
-接上文——
-
-[郭文贵先生2021年5月5日直播开始前播放视频文字汇总](https://gnews.org/zh-hans/1177897/)
-
-[郭先生0505I与战友们互动回答战友们提出的问题汇总1](https://gnews.org/zh-hans/1179745/)
-
-[郭先生0505II在清朝中美人民交往极好中共毁了中国人的形象](https://gnews.org/zh-hans/1179837/)
-
-[郭先生0505III新中国联邦不会有军队,没有一个军队敢碰我们](https://gnews.org/zh-hans/1179930/)
-
-[郭先生0505IV中共要干掉Elon Musk的事让西方认清其本质](https://gnews.org/zh-hans/1179969/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115627/01-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115652/02-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115725/03-7.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115822/04-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115846/05-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115910/06-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115933/07-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115957/08-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120024/09-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120057/10-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120131/11-10.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120205/12-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120231/13-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120254/14-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120318/15-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120345/16-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120401/17-1-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120422/17-2-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120442/17-3-1.jpg)
+以上文字图片仅代表作者个人观点，与GNEWS无关
 
 0
