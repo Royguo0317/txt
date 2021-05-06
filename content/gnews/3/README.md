@@ -1,42 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 前乌克兰检察官说，他因未应朱利安尼和川普的要求调查亨特·拜登而被解雇
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1177241/)
+## Starship原型SN15顺利着陆
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1177346/)
 
 整理撰稿：蓝精灵
 
-乌克兰前检察长里亚博沙普卡（Ryaboshapka）在接受BuzzFeed新闻采访时说，朱利安尼（Giuliani）和乌克兰总统沃拉迪米尔·泽伦斯基（Volodymyr Zelensky）的参谋长安德烈·耶尔马克（Andriy Yermak）之间最近的通话记录显示，他因政治原因被解雇了。
+埃隆·马斯克（Elon Musk）的SpaceX在星期三进行了第五次高空试飞，然后星舰火箭的最新原型机进行了安全降落。
 
-“它揭示了一个重要的细节，” Ryaboshapka告诉BuzzFeed。“叶尔马克答应朱利安尼（Giuliani）对亨特·拜登（Hunter Biden）进行调查。
+星际飞船的原型火箭序列号15（或SN15）飞行了10公里（约33,000英尺）。
 
-“我不知道这次电话会议的实质。我不知道耶尔马克答应帮助朱利安尼，”他补充说。
+SN15标志着第一个在高空试飞后并未销毁的星际飞船原型机。 着陆后，火箭底部爆发了一阵小火，但几分钟后就出现了大火。
 
-2月，《时代》杂志 获得了朱利安尼和耶尔马克之间的电话通话记录，其中朱利安尼要求展开调查，以帮助特朗普赢得第二任期。
+SN15的飞行类似于SpaceX在过去六个月中进行的飞行，并进行了原型SN8，SN9，SN10和SN11的测试飞行。 尽管每个先前的火箭都成功发射并完成了多个开发目标，但所有四个原型都遭到爆炸性破坏。
 
-朱利安尼对叶尔马克说：“让这些调查继续进行。请有人调查。”
+编者简评：
 
-“我不知道这次电话会议的实质。我不知道耶尔马克答应帮助朱利安尼，”他补充说。
+网上有人贴出了spaceX的SN系列的每次试验的进步：
 
-亚博沙普卡说：“泽伦斯基曾多次问我此案，我们研究了15或16例病例。我们审查了所有这些内容，没有发现任何可能违反法律的内容。”
+迭代开发
 
-泽伦斯基的办公室在回应前检察官的话时对BuzzFeed说：“里亚博沙普卡先生的言论可能是乌克兰内部的政治局势引起的，与国家的外交政策无关。” “总统办公室有兴趣在乌克兰建立一个强大的独立执法机构系统。”
+这是SpaceX的方式
 
-上周，联邦当局突袭了朱利安尼的公寓，这是对朱利安尼与乌克兰打交道的调查的一部分，并通过代表乌克兰游说特朗普政府来确定他是否未能注册为外国特工。
+星舰SN8：爆炸式着陆 –
 
-据报道，部分调查与前美国驻乌克兰大使被解雇有关玛丽·约瓦诺维奇（Marie Yovanovitch），是奥巴马任命的人，但泽伦斯基不喜欢他。
+星舰SN9：爆炸式着陆 –
 
-朱利安尼周一声称，联邦检察官正试图利用《外国特工注册法》对他进行“陷害”。
+星舰SN10：硬着陆，飞行后爆炸 –
 
-朱利安尼对福克斯新闻说：“他们正试图陷害我。” “他们正在努力寻找可以使自己犯罪的东西，一些技术违规行为，以及我犯的一些错误。”
+星舰SN11：爆炸式启动 –
 
-星期三，司法部要求一名联邦法官任命一名外部律师，以审查在朱利安尼的公寓中寻找到的文件。
+星舰SN15：顺利着落
 
 (以上仅代表作者观点，不代表Gnews平台)
 
 参考链接：
 
-[https://thehill.com/policy/international/552022-former-ukrainian-prosecutor-says-he-was-fired-for-not-investigating](https://thehill.com/policy/international/552022-former-ukrainian-prosecutor-says-he-was-fired-for-not-investigating)
+[https://www.cnbc.com/2021/05/05/spacex-starship-sn15-livestream-watch-prototype-rocket-test-flight.html](https://www.cnbc.com/2021/05/05/spacex-starship-sn15-livestream-watch-prototype-rocket-test-flight.html)
 
 校对/发布：Penny
 

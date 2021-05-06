@@ -1,95 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【信仰之声】CCP病毒，CCP军事实验室制造的大麻疯
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1176662/)
+## 特别翻译：劳伦斯•塞林博士关于新冠病毒是中共生物战项目结构的声明
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1176736/)
 
-作者：纽约香草山福音部 JingleChenge
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02191345/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
+劳伦斯•塞林博士关于新冠病毒 [#Covid19](https://twitter.com/hashtag/Covid19?src=hashtag_click) 和 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 生物战项目结构的声明 （附油管视频：[http://youtube.com/watch?v=qFSQih](https://t.co/fE4hlgWHVG?amp=1)…）
 
 
 
-《圣经》在摩西五经中记载了一种皮肤病，就是在四五千年前就在人群中流行的大麻疯。
+> A statement by Dr. Lawrence Sellin about the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) and the structure of the Chinese Communist Party's biowarfare program[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/tcPupWMGH1](https://t.co/tcPupWMGH1)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389641506240225284?ref_src=twsrc%5Etfw)
 
-大麻疯是一种无药可治的病，是由麻风杆菌与弥漫型麻疯分枝杆菌引起的一种慢性传染病，会在患者的神经系统、呼吸道、皮肤与眼部长出肉芽肿。这些肉芽肿使患处失去痛觉感知，从而导致得这种病的人不知道保护自己不受火热、利器、打击、跌倒的伤害，以至于全身会因各种伤害没有及时医治而严重溃烂（疼痛是天父上帝赐予人的礼物，时刻提醒我们危险所在。可能我们对此不以为然，甚至厌恶疼痛，只有等到哪一天我们身体上某个部位没有感觉的时候，我们才知道对疼痛的珍贵。失去之后才知道曾经拥有过的贵重）。
 
-大麻疯主要经由飞沫传染，但传染性并不强。感染初期不会出现症状，潜伏期可达5～20年。大家都不敢靠近长麻疯的人，因为怕被传染。《圣经》中许多著名的人物都曾为此病所苦，包括神人摩西（出4：6-7）、摩西的姊姊米利暗（民12：10）、亚兰的常胜将军乃缦（王下5）和犹大王乌西雅（代下26：19-21）。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05141119/%E5%9B%BE%E7%89%8719-1.png)
+以下为YOUTUDE视频中文翻译
 
-CCP病毒与这大麻疯的致病效果很相似。首先来看大麻疯的致病效果：
-
-1、飞沫传播
-
-2、潜伏期可长达达5至20年
-
-3、失去知觉
-
-4、祭司鉴定是不是大麻疯
-
-5、用手遮口
-
-6、见到人就喊叫：不洁净了，不洁净了
-
-7、人人躲避
-
-8、是否痊愈，由祭司鉴定
-
-9、承受被人弃逐的心灵痛苦
-
-再来看CCP病毒的致病效果：
-
-1、飞沫传播
-
-2、潜伏期可长达达14至28天
-
-3、失去味觉、嗅觉
-
-4、CCP病毒检测中心检测是不是感染了
-
-5、戴口罩
-
-6、通知周围人群：阳性了，阳性了
-
-7、人人躲避
-
-8、是否转阴，由CCP病毒检测中心说了算
-
-9、承受被人嫌弃的心灵痛苦
-
-但这两者也有不同点。
-
-大麻疯是外在的，肉眼可见的，人一看就知道躲避，传染性也不强，要不然全人类早死光了。
-
-而CCP病毒是内在的，隐蔽的，肉眼看不见就不知躲避，而且传染性超强。迄今为止短短一年之内，CCP病毒感染了全世界154,371,149人，使3,227,968人失去生命。更可怕的是，这个病毒并无衰减的迹象，人类正等待一个未知的结局，除非神迹出现！
-
-《圣经》新约记载耶稣治愈了许多人的大麻疯（太8：2-4；可1：40-45；路5：12-15；腓三17：7-9），甚至有一次一下就治好了十位大麻疯患者（路17：11-19）。
-
-证明这事的说，是了。我必快来。阿们。（启22:20）
-
-主耶稣阿，我愿你来。
-
-1. 统计数字截至2021年5月5日上午 11:08:06
-
-[https://news.google.com/covid19/map?hl=enUS&mid=%2Fm%2F02j71&gl=US&ceid=US%3Aen](https://news.google.com/covid19/map?hl=enUS&amp;mid=%2Fm%2F02j71&amp;gl=US&amp;ceid=US%3Aen)
-
-2. [https://zh.wikipedia.org/wiki/%E9%BA%BB%E9%A3%8E%E7%97%85](https://zh.wikipedia.org/wiki/%E9%BA%BB%E9%A3%8E%E7%97%85)
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01143151/M5.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+我是赛琳博士，此信息是给还在试图掩盖 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 真相的那些政客们，媒体们尤其是科学界的学者们，不管你们是出于个人利益还是政治目的，你们在虚假宣传 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 源于自然界。它根本不是源于自然的。 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 是一个大范围的“功能增益型”病毒研究，所制造出的产品，这些研究是来自 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 科学家们利用的军民融合等项目。也就是说 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 来自实验室。 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 有太多不寻常的的特征，这些特征根本不能用自然进化论解释。[#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 具有的福林酶切位点，在任何蝙蝠病毒中都找不到。这个特征表明它直接与人造 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 有关。福林酶切位点可增强病毒传染性和致病性。而 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 科学家们知道如何人工干预插入它们。唯一的遗留问题是 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 是出自哪里并如何制造的，以及病毒的释放是泄露的还是故意的。在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 统治的中国，军方病毒研究机构和民企病毒研究机构没实质区别，它们其实是捆绑在一起的。 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 2016年公布的5年计划中明确声明是计划的一个目标。自2020年底，随着大量 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的科研信息被披露，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) ，西方国家政府部门和媒体开始审查封杀此类信息 。我于是决定改变我的分析策略。 你们很多人可能知道，二战时德国有个密码机器叫Enigma, 艾伦•图灵（Alan Turing）因破解Enigma而闻名。但其实还有个鲜为人知的天才起了重要作用。他是戈登•韦尔奇曼(Gordon Welchman)。在Enigma 被破解之前，戈登•韦尔奇曼采用了一套技术叫做“通信分析”系统，来判断破解，比如说，德国军队的调遣以及德国发出的指挥命令等。他的那套理论叫做Hut Six. 现在我和一位 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 侦探已经改进了戈登•韦尔奇曼的通信分析法，来用于对中共病毒战计划的整个网络进行分析。下面这些是我们目前发现的：中共生物战项目分为3个级别，秘密军事计划是核心，并建立在民间研究所和大学研究项目之上。这种层次结构为病毒研究提供了必要的手段，通过与国际病毒研究机构的互动从而获取相关知识和研究成果。所有这些收获最后都流向了中共的生物战核心项目。中共生物战项目的起源和传统核心并非出于医药目的，而是兽医学还有部分农业学。在二战期间，日本帝国军队在满洲里有个生化武器研究所，叫731部队。它的官方名字叫：“防疫和水净化部门”。其实还有第二个研究中心–100部队，官方称为“关东军战马疾病预防所”。当 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 军队在1949年夺取中国政权后，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 沿袭了日本人的方式，将生物战研究纳入兽医研究，在北京，成都，广州，南京和云南建立了“战马健康研究中心”以及类似的研究机构。基本上，这些机构部门都隶属于中共战区军队的管辖。 1953年，5所中共解放军兽医大学被并入长春的一所大学。该位置就在原日军731部队研究所以南140公里左右。而武汉，尤其是武毒所，成为了这次病毒大流行的中心，备受关注。有关 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的研究工作在多个军方控制的设施中完成，涵盖病原体培养及相关疫苗开发。由长春军事兽医研究所带头，在国内及国际上展开了大量的收集病毒的工作。 就是那个病毒收集项目为#中共病毒 提供了蝙蝠冠状病毒的骨架,以及创建了像RaTG-13这样的中介病毒，并被错误且广泛的宣传为目前流行的冠状病毒的鼻祖。在北京军事医学科学院的监督带领下，他们把最感兴趣的病毒都收集并分发给不同的实验室。武毒所，武汉大学病毒实验室以及武汉军医院都是这个项目的核心参与部门。在下一集的视频中，我会详细介绍 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 如何利用全球的关系网来壮大他的生物战项目。特别是 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 如何深层次渗透美国的病毒研究项目。
 
 0

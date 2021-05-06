@@ -1,40 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 全球对病毒危机管理的满意度急剧下降
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1177191/)
+## 马斯克说，Starlink卫星互联网服务获得了500,000笔预订
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1177382/)
 
-```
-新闻来源：德国世界报 网络版  
-发布时间：2021年5月5日
-翻译整理/ 简评： Shuizhuyu
-```
+整理撰稿：蓝精灵
 
+创始人埃隆·马斯克（Elon Musk）周二表示，SpaceX的Starlink卫星互联网服务已经收到了超过50万笔预订单，并且预计不会有技术问题，满足需求。
 
+马斯克在推特上说： “唯一的限制是市区的高密度用户。”马斯克在接受CNBC记者访问时说，为这项服务支付的99美元订金是可以全额退款的，SpaceX并不保证服务。
 
+马斯克说：“当我们进入数百万用户范围时，将面临更大的挑战。”
 
+SpaceX尚未确定Starlink服务的发布日期，但商业服务不太可能像以前计划的那样在2020年提供。
 
+该公司计划最终总共部署12,000颗卫星，并表示Starlink星座将耗资约100亿美元。
 
+建设和发送火箭到太空是一个资本密集型业务，是两个世界上最富有的人，亚马逊（AMZN.O）创始人杰夫·贝索斯和马斯克，也是特斯拉汽车公司的首席（TSLA.O） 近年来投资了数十亿美元以打入这个市场。
 
+马斯克和贝索斯已经公开争夺卫星计划。
 
-在世界各地，人们为对抗这种流行病而采取的措施越来越不满意。在德国，几乎有一半的受访者认为限制过于广泛。威权国家在所有地方都达到最高的认可等级。
+美国联邦通信委员会（FCC）上个月批准了SpaceX的计划，即在比计划的更低的地球轨道上部署一些Starlink卫星，但其中包括一些确保计划安全的条件。
 
-根据一项国际调查，德国在病毒大流行中的危机管理的满意度已极度下降。到2020年春季，有71％的德国受访者认为德国对这一大流行病反应良好，而现在只有48％的德国受访者对此有反应。这是北约民主联盟前秘书长，民主联盟联盟的民主组织于星期三在哥本哈根宣布的。下降与欧洲的总体趋势相对应，但明显大于全球平均水平。
+编者简评：
 
-据此，几乎一半的德国人（48％）认为，联邦政府在大流行病中限制了公民的自由。另一方面，在德国接受调查的受访者中有31％认为这些限制是适当的。这些数字与欧洲平均值一致。根据调查，欧洲最不满意的公民是波兰，法国和意大利。结果，拉丁美洲尤其是巴西和秘鲁的不满也特别高。
+太空时代已经来临，是否人类以后要站在火星角度来看待生命，人性，种族，经济和政治。人类美好的文明从这里开始。
 
-总体而言，许多公民对其政府的病毒管理的满意度大大降低了。如报告所示，平均58％的国际受访者认可其政府对这种大流行病的反应。一年前是70％，在越南和中国等亚洲国家，满意度尤其高。
+(以上仅代表作者观点，不代表Gnews平台)
 
-#### **简评：**
+参考链接：
 
-**这个调查非常的有趣。很多的民主国家，在病毒大流行期间采取的各种限制措施，导致了很多的民众慢慢的失去耐心。满意度不到一半。反倒是，中共国的满意度很高。多么的滑稽。越是没有自由的地方，越是感受不到不道自己的权力被剥夺，也越没有意识去争取自由。他们对政府的各种限制措施还感到满意。真是无奈**。
-（本文只代表译者观点， 与 Gnews平台无关。）
+[https://www.reuters.com/technology/starlink-satellite-internet-service-gets-500000-preorders-musk-says-2021-05-05/?taid=6091f77a2ffb0700014f3958&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/technology/starlink-satellite-internet-service-gets-500000-preorders-musk-says-2021-05-05/?taid=6091f77a2ffb0700014f3958&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-**新闻原文链接：**
-🔗[Zufriedenheit mit Corona-Krisenmanagement nimmt weltweit stark ab](https://www.welt.de/politik/deutschland/article230891539/Corona-Massnahmen-Wachsender-Unmut-bei-Corona-Bekaempfung.html)
+校对/发布：Penny
 
-* * *
-
-***编辑整理/校对: **Ting Guo*
-
-+1
+0

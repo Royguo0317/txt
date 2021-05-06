@@ -1,23 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 匈牙利执意接种中共国疫苗 亲中共的结果是匈牙利死亡率全球第一
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1176947/)
+## 慧眼看世界20210505
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1177016/)
 
-- 作者：ThreeColors
 - 制图：透明的遮羞布
+- 编辑：神奇四侠
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05164021/virus12.jpg)
-欧盟国家中，匈牙利是最早接种疫苗的国家之一。迄今为止，已经有百万的匈牙利国民接种了中共国国药集团生产的疫苗。据最新的数据显示，匈牙利已经成为全球死亡率最高的国家。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172614/01-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172638/02-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172704/03-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172725/04-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172744/05-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172804/06-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172823/07-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172842/08-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172903/09-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172925/10-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05172953/11-7.jpg)
+以上文字图片仅代表作者个人观点，与GNEWS无关
 
-每十万人就有两百八十五人染中共病毒身亡的匈牙利近年来越来越亲近中共国。匈牙利曾经不同意欧盟因香港事件谴责中共。截止五月二日，匈牙利接种了至少一剂疫苗的人数已接近四百一十万人，占总人口的百分之四十一点七。完全接种的人数接近一百六十万人。其中接种中共国疫苗的人数近百万。匈牙利总统曾说过中共国的国药疫苗最值得信赖。
+发稿：神奇四侠
 
-全世界各国政府为了尽快缓解疫情都在扩大接种疫苗的规模。以色列、英国、美国等主要接种英美所研发的疫苗的国家今日单日新增人数都比以往明显下降。但是，接种中共国疫苗的智利、土耳其和巴西，新增确诊病例不减反增。巴西总统曾要推羟氯喹的治疗方案，最终未能成功反搁浅。
-
-简评：中共病毒爆发初期，最先染疫的也大都跟中共国关系很亲密。如今，死亡率最高的国家也是亲中共国、执意接种中共国疫苗的国家。不得不说，亲中共的结果就是一个死字。为不幸感染病毒的各国患者祈福，希望世界尽快开始服用有效药物控制疫情再度升级
-
-新闻来源：[Medicalpress](https://medicalxpress.com/news/2021-03-variant-hungary-world-high-weekly-covid.html)
-
-本文观点属于作者，与G-NEWS无关
-
-+2
+0
