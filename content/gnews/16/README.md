@@ -1,58 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【郭先生直播经典回顾】2017年5月21日第二次视频直播再试
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1177435/)
+## 5月5日美国政要和政评家反共推特精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1177634/)
 
-**出品：Gnews编辑部郭先生直播资料库整理工作组**
+国务卿布林肯： 在本周的会议上，我看到了一定程度的参与和承诺，这清楚地表明了 七国@ G7 决心致力于解决我们面临的一些最大的全球挑战。我们为6月的领导人峰会奠定了坚实的基础。
 
-别看傅政华在主席台上得瑟，他会死的很惨。他要不死天下没公平了，十几亿人民不会答应的，九千万党员有几个不恨他，都想弄死他。他镇压的是九千万党员，绑架的是两百多万公安干警的力量，必死无疑！
 
-——郭文贵
 
-**要点一：聊聊三把冲锋枪的故事**
+> In meetings this week, I saw a level of engagement and commitment that made it clear that the [@G7](https://twitter.com/G7?ref_src=twsrc%5Etfw) is committed to addressing some of our biggest global challenges. We have established a strong base to build towards the Leaders’ Summit in June. [pic.twitter.com/Iyth2Bv1tP](https://t.co/Iyth2Bv1tP)
+> — Secretary Antony Blinken (@SecBlinken) [May 5, 2021](https://twitter.com/SecBlinken/status/1390014682950508546?ref_src=twsrc%5Etfw)
 
-台湾老流氓刘家昌帮助台湾的黑社会和菲律宾的总统，想把我灭了。通过一个经济纠纷，他们写信叫朱镕基把我抓起来，没得逞，就约我在香港的香格里拉酒店吃饭。我去了才知道一桌子一二十个人，向华强和他的夫人也来了。在香港这就是黑社会的“摆台子”，后来刘家昌说：“这事儿要是不行那就弄死你。”我一听就发火了，找了三个警察拿着冲锋枪保护我，只要他们动手全给他们灭了。结果那天他们一再挑衅，没动手，黑社会都怕死，不怕死当什么黑社会，什么样的黑社会在共产党面前都是小蚂蚁。向华强跟我没瓜葛，就那天一次。我相信他是完全不了解怎么回事，被刘家昌利用了，向华强夫妇特讲义气，当年他在台湾避难的时候，刘家昌帮过他，就摆台子吓唬我去了。
 
-**要点二：台湾早就沦陷给了盗国贼，香港正在沦陷中**
 
-台湾早就成了盗国恶贼的道行，早就沦陷了，香港正在沦陷中。黑社会刘家昌那个老流氓，在那儿摆个台子吓唬那些没种的，到处骗吃骗喝，还帮人家去要数、拿百分之五十的佣金，结果他遇到我了。这种人就是混子。
+卢比奥参议员新闻办公室： 卢比奥参议员＆Leahy参议员发了一封信给国务卿布林肯 赞扬他从年度人权报告中删除了美国政策里关于西藏与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 关系的无用语言。【附该信全文: “我们不应该让中共来定义我们与他们或与人民的互动事项，我们也不应不加批判地接受中共对过去或现在事实的定性”“中共扭曲了历史，在某些情况下，它完全改写了历史，以适应其政治目标。经验告诉我们，中共坚持要别人必须接受的对历史的“正确”理解在重要点上是不完整或不正确的。”】
 
-**要点三：潘石屹就是个伪君子**
 
-潘石屹曾经想抢走我的项目，他不是个笑面虎，而是个伪君子。他不配用“虎”字，如果要用“虎”字，就是那个“马马虎虎”。
 
-**要点四：几个医生尸检雷洋的时候，北京刑一组的人威胁他们闭嘴别说话**
+> Senator Rubio & [@SenatorLeahy](https://twitter.com/SenatorLeahy?ref_src=twsrc%5Etfw) sent a letter to [@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) applauding the removal of gratuitous language regarding U.S. policy on Tibet’s relationship to the People’s Republic of China from the annual Human Rights Report. [https://t.co/efUIKRqDt9](https://t.co/efUIKRqDt9)
+> — Senator Rubio Press (@SenRubioPress) [May 5, 2021](https://twitter.com/SenRubioPress/status/1389960922639347713?ref_src=twsrc%5Etfw)
 
-雷洋在验尸的时候十几个医生。一开始去了五、六个警察在那里骂人，让大家都闭嘴，否则让你们全家完蛋。这不是警察，根本就是流氓。后来一个相当有影响力的、原中央元首的家人看不下去了，他是个专业医生，说“你们不要对我说话那么粗鲁，不要嘴里带着脏字。”外号“屠夫”的北京刑一组的人继续骂：“闭嘴，小心点儿，别想我弄死你丫挺的，不行我把你全家灭了。”很多黑社会是受人尊敬的、是讲规则的。社会上最烂的叫“痞子”，倒数第二叫“流氓”，第三个叫“黑社会”。黑社会是有級别的，他们不配叫黑社会，欺负一个死去的人！ 雷洋就是一个无辜的孩子，天天喊着爱党、爱国的孩子，结果死成那样。
 
-**要点五：谁也别想指挥文贵先生**
 
-有人说我背后是贾庆林，他当时把我的楼都收走了，我这点钱还不够他喝瓶酒的，怎么会是他。还有人说我背后是李克强，那我就彻底完了。我从小到大，没人能指挥我，有人说是曾庆红、江泽民，对不起，我不配，他也别想，这辈子谁也别想指挥我。
+参议员瑞克·斯科特： 如果世卫WHO不是 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的木偶，很久以前我们就已经有了对COVID-19的答案和问责。我们需要通过我的《世界卫生组织问责法》，要求对世卫为他们的失败负责： 【附福克斯新闻报道：世卫组织顾问称，如果中共国发布所有数据，冠状病毒的起源可能会在数月内揭晓】
 
-**要点六：傅政华必死无疑**
 
-别看傅政华在主席台上得瑟，他会死的很惨。他要不死天下没公平了，十几亿人民不会答应的，九千万党员有几个不恨他，都想弄死他。他镇压的是九千万党员，绑架的是两百多万公安干警的力量，必死无疑！
 
-**要点七：放弃幻想，要敢于行动**
+> If the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) wasn’t a puppet for Communist China, we would have had answers & accountability for COVID-19 a long time ago. We need to pass my WHO Accountability Act to hold the WHO accountable for their failures: [https://t.co/CWOwp4Eeys](https://t.co/CWOwp4Eeys)
+> — Rick Scott (@SenRickScott) [May 5, 2021](https://twitter.com/SenRickScott/status/1390067986350870543?ref_src=twsrc%5Etfw)
 
-刘芳菲老公被弄死了，很可怜。推友们，千万别觉得你们现在挺安全，未来这事儿不会发生在你们身上。一定记住我的话，我的今天就有可能是你们的明天，不要幻想。今天社会上所有的事情都和我们有关，我们做的孽会在社会上发酵，又会回到我们的子孙身上。千万别玩儿嘴皮子，要敢于行动。
 
-**要点八：每天都有港人被抓被边控，没人敢说话，小明星被老板献给了大陆警察**
 
-香港七百万人的小地方，那些人到那办案、搜家、查账号、敲诈勒。哪一天香港人不被边控、不被抓呀？为什么就没人敢说话，这就是一个灾难！香港的小明星跟警察睡觉以后，警察还得拍照，然后威胁她：敢惹我，就让你进大陆、让你消失。
+参议员汤姆·科顿： 从美国公司窃取医疗技术，再转给 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 绝不会产生更多的疫苗。 但这绝对会危及对未来流行病毒的疫苗开发工作。【转推来自美国贸易代表，称将加强保护美国关于 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 疫苗的知识产权】参议员汤姆·科顿： （接上）[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 已经在庆祝拜登总统送的大礼了。（贴图中，China Daily的陈卫华称全球施压策略已经开始奏效）
 
-**致谢：**
 
-听写校对：华盛顿DC农场 文顾
-要点原文：纽约香草山农场 月野兔
-要点编辑：纽约香草山农场 369文驹
-要点编辑校对：纽约香草山农场 GForever(文紫)
-发布整理：休斯顿星光农场 文顺
-发布：日本樱花团 二丫
 
-视频链接：[https://www.youtube.com/watch?v=3oda61nt2v0&feature=youtu.be](https://www.youtube.com/watch?v=3oda61nt2v0&amp;feature=youtu.be)
+> The Chinese Communist Party is already celebrating this gift from President Biden. [pic.twitter.com/IsQfBmsjsc](https://t.co/IsQfBmsjsc)
+> — Tom Cotton (@TomCottonAR) [May 6, 2021](https://twitter.com/TomCottonAR/status/1390100639016005636?ref_src=twsrc%5Etfw)
 
-（视频时长：16分钟）
+
+
+比尔·戈茨（中国问题专家）： 这篇文章清楚地表明，有更多的证据佐证 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 是在武汉实验室制造并泄露的，而不是 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 收买的那些科学家和自由媒体们的毫无证据的“源于自然”的说法。推荐必读。 【链接文章来自[http://medium.com](https://t.co/Uce9Ku1sSI?amp=1)，标题是：[#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 起源之线索追踪】
+
+
+
+> This article makes clear there is more evidence the Covid virus was manipulated and leaked from a Wuhan lab than the evidence-free narrative of pro-China virologists and liberal media that say it emerged naturally. Must read [https://t.co/amFoIooG6d](https://t.co/amFoIooG6d)
+> — Bill Gertz (@BillGertz) [May 5, 2021](https://twitter.com/BillGertz/status/1390055939542245383?ref_src=twsrc%5Etfw)
+
+
 
 0

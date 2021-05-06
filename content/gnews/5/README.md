@@ -1,52 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月5日美国政要和政评家反共推特精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1177634/)
+## 病毒侦探——COVID的起源：谁在武汉打开了潘多拉魔盒？
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1177766/)
 
-国务卿布林肯： 在本周的会议上，我看到了一定程度的参与和承诺，这清楚地表明了 七国@ G7 决心致力于解决我们面临的一些最大的全球挑战。我们为6月的领导人峰会奠定了坚实的基础。
+整理撰稿：蓝精灵
 
+编者简评：
 
+这篇关于病毒溯源的长文章，已经被多份严肃媒体转载，这里截取其中的两小段，有兴趣的朋友可以下载原文链接，仔细阅读。在这份报告中，其中大量的引用的闫丽梦博士的报告内容，闫丽梦博士是香港大学的病毒和医学科学家， 于一年前前往美国， 揭露此次Covid-19世界大流行，实质上是中共计划长久的现在超限生物战，而病毒是超限生物武器。
 
-> In meetings this week, I saw a level of engagement and commitment that made it clear that the [@G7](https://twitter.com/G7?ref_src=twsrc%5Etfw) is committed to addressing some of our biggest global challenges. We have established a strong base to build towards the Leaders’ Summit in June. [pic.twitter.com/Iyth2Bv1tP](https://t.co/Iyth2Bv1tP)
-> — Secretary Antony Blinken (@SecBlinken) [May 5, 2021](https://twitter.com/SecBlinken/status/1390014682950508546?ref_src=twsrc%5Etfw)
+摘录部分如下：
 
+为什么会有人想制造一种能够引起大流行的新型病毒？自从病毒学家获得了操纵病毒基因的工具以来，他们就一直认为通过探索某种动物病毒与人类的距离有多近，他们就可以领先于潜在的大流行。病毒学家的言论证明了进行实验室实验，以增强危险动物病毒感染人类的​​能力。
 
+以此为依据，他们重建了1918年流感病毒，展示了如何从已出版的DNA序列合成几乎灭绝的脊髓灰质炎病毒，并将天花基因引入相关病毒。
 
-卢比奥参议员新闻办公室： 卢比奥参议员＆Leahy参议员发了一封信给国务卿布林肯 赞扬他从年度人权报告中删除了美国政策里关于西藏与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 关系的无用语言。【附该信全文: “我们不应该让中共来定义我们与他们或与人民的互动事项，我们也不应不加批判地接受中共对过去或现在事实的定性”“中共扭曲了历史，在某些情况下，它完全改写了历史，以适应其政治目标。经验告诉我们，中共坚持要别人必须接受的对历史的“正确”理解在重要点上是不完整或不正确的。”】
+病毒功能的这些增强被俗称为功能获得实验。对于冠状病毒，刺突蛋白尤其令人感兴趣，刺突蛋白会在病毒的球形表面周围突出，并几乎确定了它将靶向的动物种类。例如，在2000年，荷兰研究人员通过对小鼠冠状病毒的刺突蛋白进行基因改造，使其只攻击猫，从而感染了啮齿动物，获得了新的病毒序列。
 
+在事实证明蝙蝠冠状病毒是SARS1和MERS流行的来源之后，病毒学家开始认真研究它们。特别是，研究人员希望了解蝙蝠病毒的刺突蛋白在感染人之前需要发生哪些变化。由中国蝙蝠病毒研究专家“蝙蝠夫人”石正丽领导的武汉病毒研究所的研究人员，频繁地考察了中国南方云南的蝙蝠出没的洞穴，并收集了约一百种不同的蝙蝠冠状病毒。
 
+然后，石与北卡罗来纳大学著名的冠状病毒研究人员巴瑞克（音）（Ralph S. Baric）合作。他们的工作重点是增强蝙蝠病毒攻击人类的能力，以便“检查循环蝙蝠冠状病毒（冠状病毒）的出现潜力（即感染人类的​​潜力）”。为了实现这一目标，他们于2015年11月通过感染SARS1病毒的骨架并用蝙蝠病毒（称为SHC014-CoV）中的一种取代了其刺突蛋白，从而创建了一种新型病毒。至少在针对此类细胞的实验室培养进行测试时，这种制造的病毒能够感染人呼吸道的细胞。
 
-> Senator Rubio & [@SenatorLeahy](https://twitter.com/SenatorLeahy?ref_src=twsrc%5Etfw) sent a letter to [@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) applauding the removal of gratuitous language regarding U.S. policy on Tibet’s relationship to the People’s Republic of China from the annual Human Rights Report. [https://t.co/efUIKRqDt9](https://t.co/efUIKRqDt9)
-> — Senator Rubio Press (@SenRubioPress) [May 5, 2021](https://twitter.com/SenRubioPress/status/1389960922639347713?ref_src=twsrc%5Etfw)
+**综上所述。**如果SARS2起源于实验室的情况如此严重，那为什么不广为人知呢？现在可能显而易见的是，有很多人有理由不谈论它。这份名单当然是由中共国当局领导的。但是，美国和欧洲的病毒学家对引发关于他们的社区多年来一直在追求的功能获得性实验的公开辩论并没有太大的兴趣。
 
+其他科学家也没有上前提出这个问题。政府的研究经费是根据大学聘请的科学专家委员会的建议分配的。任何因提出棘手的政治问题而摇摆不定的人都面临着这样的风险，即他们的资助将不会被延长，其研究生涯将被终止。良好的行为可能会因分配系统周围的许多津贴而得到奖励。
 
+如果您认为安徒生和达扎克在游击队袭击实验室逃脱方案后可能已经抹去了他们在科学客观性方面的声誉，那么请查看该名单上的第二名和第三名，这些名单是由美国国家过敏和传染病研究所在2020年8月宣布的8,200万美元拨款出示的。
 
-参议员瑞克·斯科特： 如果世卫WHO不是 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的木偶，很久以前我们就已经有了对COVID-19的答案和问责。我们需要通过我的《世界卫生组织问责法》，要求对世卫为他们的失败负责： 【附福克斯新闻报道：世卫组织顾问称，如果中共国发布所有数据，冠状病毒的起源可能会在数月内揭晓】
+美国政府与中共国当局有着共同的利益：双方都不热衷于关注石的冠状病毒研究工作是由美国国立卫生研究院资助的这一事实。可以想像中共国政府在幕后的谈话中说：“如果这项研究如此危险，您为什么要资助它，还在我们的领土上？” 美方对此可能会回答：“看起来是你的人让它逃脱了，但是我们真的需要公开讨论吗？”
 
+福奇（Fauci）是一位长期的公务员，在特朗普总统的领导下忠实服务，并已在拜登政府中恢复领导，以处理COVID-19流行病。毫无疑问，可以理解的是，国会对武汉的职能获取研究资金投入显然缺乏判断力，因此没有足够的动力来吸引他。
 
+在这些喧嚣的沉默墙中，必须加上主流媒体的沉默墙。据我所知，尚无主要的报纸或电视网络向读者提供有关实验室逃生情况的深入新闻报道，例如您刚刚阅读的新闻，尽管有些人发表了简短的社论或观点文章。
 
-> If the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) wasn’t a puppet for Communist China, we would have had answers & accountability for COVID-19 a long time ago. We need to pass my WHO Accountability Act to hold the WHO accountable for their failures: [https://t.co/CWOwp4Eeys](https://t.co/CWOwp4Eeys)
-> — Rick Scott (@SenRickScott) [May 5, 2021](https://twitter.com/SenRickScott/status/1390067986350870543?ref_src=twsrc%5Etfw)
+可能有人认为，任何可能造成300万人死亡的病毒起源都应进行认真的调查。或者，不管病毒的来源如何，继续进行功能获得研究的智慧都值得探索。或者说，美国国立卫生研究院（NIH）和美国国家国际开发署（NIAID）在暂停此类研究的过程中为这项研究提供的资金将受到调查。是什么导致媒体明显缺乏好奇心？
 
+病毒学家的“ *omertà”（意大利语，指黑手党的一种做法，指对犯罪行为保持沉默，并拒绝向当局提供证据）*是原因之一。与政治记者不同，科学记者对消息来源的动机几乎没有天生的怀疑。大多数人将其作用主要看作是向未受洗的群众传达了科学家的智慧。因此，当他们的消息来源无济于事时，这些记者无所适从。
 
+\*以上仅代表作者观点，不代表Gnews平台\*
 
-参议员汤姆·科顿： 从美国公司窃取医疗技术，再转给 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 绝不会产生更多的疫苗。 但这绝对会危及对未来流行病毒的疫苗开发工作。【转推来自美国贸易代表，称将加强保护美国关于 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 疫苗的知识产权】参议员汤姆·科顿： （接上）[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 已经在庆祝拜登总统送的大礼了。（贴图中，China Daily的陈卫华称全球施压策略已经开始奏效）
+参考链接：
 
+[https://thebulletin.org/2021/05/the-origin-of-covid-did-people-or-nature-open-pandoras-box-at-wuhan/](https://thebulletin.org/2021/05/the-origin-of-covid-did-people-or-nature-open-pandoras-box-at-wuhan/)
 
-
-> The Chinese Communist Party is already celebrating this gift from President Biden. [pic.twitter.com/IsQfBmsjsc](https://t.co/IsQfBmsjsc)
-> — Tom Cotton (@TomCottonAR) [May 6, 2021](https://twitter.com/TomCottonAR/status/1390100639016005636?ref_src=twsrc%5Etfw)
-
-
-
-比尔·戈茨（中国问题专家）： 这篇文章清楚地表明，有更多的证据佐证 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 是在武汉实验室制造并泄露的，而不是 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 收买的那些科学家和自由媒体们的毫无证据的“源于自然”的说法。推荐必读。 【链接文章来自[http://medium.com](https://t.co/Uce9Ku1sSI?amp=1)，标题是：[#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 起源之线索追踪】
-
-
-
-> This article makes clear there is more evidence the Covid virus was manipulated and leaked from a Wuhan lab than the evidence-free narrative of pro-China virologists and liberal media that say it emerged naturally. Must read [https://t.co/amFoIooG6d](https://t.co/amFoIooG6d)
-> — Bill Gertz (@BillGertz) [May 5, 2021](https://twitter.com/BillGertz/status/1390055939542245383?ref_src=twsrc%5Etfw)
-
-
+校对发布：Penny
 
 0

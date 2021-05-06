@@ -1,53 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】辉瑞公司期待疫苗将成为“持久的收入来源”
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1177232/)
+## 印度为何在大规模中共病毒疫苗接种后疫情爆发
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1177409/)
 
-作者：纽约香草山农场  四季
+MyWay
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05204121/saumya-khandelwal-india-crematorium-covid-1.jpg)People cremate their family members and relatives at a crematorium in New Delhi, India, April 27, 2021. Saumya Khandelwal for TIME
+印度中共病毒(COVID-19)疫情在2021年的突然爆发，已经成为武汉2020年疫情的翻版。无论各路专家和政府如何洗白，也无法把所有的死亡案例归咎于病毒，在此本文主要讨论一下和疫情爆发有关的因素—-疫苗注射。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+众所周知，印度在加入大规模疫苗接种的行列方面相当晚，在整个2020年，由于低成本治疗方案的有效性，其中共病毒的死亡率在全球标准中属于中等水平。从2020年3月起，羟氯喹（HCQ）被批准用于早期治疗，而几个月后，印度人口最多的北方邦（人口2.31亿）用伊维菌素（一种抗寄生虫药物）取代了HCQ。到2020年底印度北邦免费发放伊维菌素用于家庭护理的地区死亡率为每10万居民0.26人，是印度第二低的死亡率。只有拥有1.28亿居民的比哈尔邦更低，这些地区都在使用政府推荐的的伊维菌素。
 
+尽管疫情得到了控制，但印度政府仍受到来自各种国际游说团体及其当地代理人的巨大压力，要求其开展大规模疫苗接种活动。印度最初的大规模疫苗接种计划于1月16日启动，但由于疫苗供货不足等原因直到2月底才有效启动。《纽约时报》当时以不可思议的时机称赞印度是一个 “无与伦比的疫苗制造国”，可以在疫苗外交领域对抗中共国。
 
+然而，随着到2021年8月为3亿人接种疫苗的目标接近中点，中共病毒病例的数量也相应激增。从下图可以看出，随着疫苗接种数量的增加，感染人数也急剧攀升，二者的相关性非常高。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05203922/kgjfa.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05203913/fdsaj.jpg)
+由此可以疫苗接种和疫情爆发之间是否存在某种关联，这并不是第一次由疫苗接种制造出新变种病毒了，世界卫生组织（WHO）最近承认，比尔及梅林达-盖茨基金会（BMGF）支持的疫苗项目对非洲新的脊髓灰质炎爆发负有责任。 在巴基斯坦和阿富汗，疫苗接种和脊髓灰质炎激增也有密切的关系。
 
-据零对冲5月5日的报道，辉瑞公司发布了一份强劲的收益报告，超过了华尔街的预期。预计到今年年底其冠状病毒疫苗的销售额将达到260亿美元，这一里程碑将使该疫苗成为该公司最畅销的医药产品。随着辉瑞将其COVID-19疫苗部门发展成为一个主要且永久性的业务部门，这将惠及辉瑞的营收。
+本来疫苗是用来对抗疫情的，现在疫苗导致了疫情的爆发，也是这个时代的必然。因为现在大科技公司和大医药公司组成的邪恶联盟掌控着人类的一切，在疫苗接种程中出现了新的变异毒株或 “疫苗衍生病毒”，这就需要研发更强的疫苗，如此往复循环，为大科技公司带来更大的利润和全球控制的权力，印度成为大科技公司大重启计划的第一个亚洲受害者。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05190826/1-pfizer2.jpg)图片来源：[ZeroHedge](https://www.zerohedge.com/covid-19/pfizer-expects-covid-jab-will-be-durable-revenue-stream-approval-12-15-year-olds-looms)
+特拉维夫大学最近的一项研究表面，接种过辉瑞生物技术公司疫苗的人感染中共病毒的南非新变种的可能性比未接种的人高8倍。在印度使用的Covishield（牛津大学-阿斯利康）和Covaxin（巴拉特生物技术公司）疫苗可有也类似的结果。耶鲁大学流行病学教授Harvey Risch博士估计，在所有新的中共病毒病例中，超过60%似乎发生在 “接种疫苗 “的人群中。辉瑞公司前副总裁兼首席科学官迈克尔-耶顿博士担心会出现更令人震惊的结果，其中包括 “大规模的人口减少 “的可能性。
 
-尽管世卫组织负责人泰德罗斯-阿达诺姆-格布雷耶苏斯谴责了“全球疫苗分配令人震惊的不平衡”，并呼吁作出更多努力，加强世卫组织的“2019冠状病毒病疫苗实施计划”（Covax），加快向贫困国家提供疫苗，但辉瑞公司似乎更专注于建立其最新的利润来源。
+从某种程度上讲，疫苗比病毒本身更糟糕，由于人体的免疫系统是一个非常复杂的系统，可能会对其最底层（或基因）层面的干扰做出不可预测的反应，基于基因的疫苗将会打开一个新的潘多拉的盒子，这也是我们在全世界范围内都看到了突变的病毒株与不可预见的副作用一起出现的原因。
 
-辉瑞正在寻求获得美国监管部门批准12至15岁的未成年人接种冠状病毒疫苗。根据最近的媒体报道，辉瑞公司还在寻求批准该疫苗在美国和欧洲用于2岁和11岁的儿童，并预计将在9月获得授权。这将掀起另一波对疫苗的需求。
+迄今为止的报告表明，南非尽管出现了变种病毒，但非洲没有受到严重影响，疫情也没有大规模爆发，印度和这些国家唯一不同的就是开始大规模疫苗接种。一直抵制大规模疫苗接种和/或强制性口罩的美国各州，普遍比那些执行严厉中共病毒管制的州要好一些。就在德克萨斯州取消其公共口罩规定的几周后–在酒吧、餐馆和音乐会上人潮汹涌，但中共病毒病例以及住院人数下降到2020年10月以来的最低水平。
 
-首席执行官阿尔伯特·波拉（Albert Bourla）透露，辉瑞公司正在与“基本上世界所有的政府”就2024年之前提供疫苗和加强疫苗进行谈判。他期待对冠状病毒疫苗产生类似于流感疫苗的“持久需求”。波拉已经开始让公众期待在注射了疫苗第二针后的一年内至少再注射一针，同时还向世界预告可能需要每年注射一次加强疫苗。
+另外一点让人感到愤怒的是，疫情爆发后，谷歌、微软和苹果等公司的首席执行官已承诺向印度提供衷心的援助。但与此同时，印度人却不能在Twitter、Facebook或YouTube上发布疫情真实信息，否则马上就会被销号或审查。
 
-此外，辉瑞公司还表示，它打算将其支撑COVID-19疫苗的mRNA技术用于其他疗法和疫苗。例如，该公司正致力于使用相同的RNA脂质纳米颗粒技术制造季节性流感疫苗。
+在没有搞清楚病毒来源的情况下，有效的疫苗是不可能开发出来的，所有的制药公司都明白这一点，但为了谋取巨大的经济利益和加强对人们的控制，各国政府不去向中共要病毒真相，而是采用各种手段联合大科技公司和制药企业为自己谋求利益，中共不灭，人们还会在病毒的阴霾中煎熬好久好久。
 
-中共病毒已肆虐一年有余，疫情却并未因疫苗有丝毫的缓解。因为疫苗，政府赢得了政绩，商家赚得满盆钵，但是疫苗接种后的副作用却屡见报端。时间会证明一切，但留给人类的时间不多了。
+[原文链接](https://dailyexpose.co.uk/2021/05/05/we-cant-ignore-the-link-between-the-covid-vaccine-roll-out-and-rising-covid-deaths-any-longer-india-is-one-coincidence-too-far/)
 
-原文链接：
+* * *
 
-[Pfizer Expects Vaccine Will Be “Durable Revenue Stream” As It Seeks Approval For Children 2 To 11 | ZeroHedge](https://www.zerohedge.com/covid-19/pfizer-expects-covid-jab-will-be-durable-revenue-stream-approval-12-15-year-olds-looms)
+*编辑、发稿**文锦*
 
-
-
-编辑/校对/发稿：小鹿
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
-
-
-
-+1
+0

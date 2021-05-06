@@ -1,37 +1,74 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 习近平公布了控制全球互联网的计划
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1177345/)
+## 【各抒己见】一带一路弥天大谎
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1177586/)
 
-翻译：康州盘古农场 – WH
+作者：喜马拉雅东京樱花团 /待命（文晓）
 
-校对：康州盘古农场 – Mike Li
+![](https://lh6.googleusercontent.com/MB5TrSGA95QEJM5mYoo9afg4SLbDt26RvIWvjH-LbpeV8QVvQNvZWOhU1Y8aw7tu8sg-Mxmkp92XZjqP557w7pCkw4d_Zag-ASj8zq1MncB4fYvu-B6DI0bXYgLJ9ehBMoREpIzx)
+[图片来源](https://cn.dreamstime.com/%E5%85%8D%E7%89%88%E7%A8%8E%E5%BA%93%E5%AD%98%E5%9B%BE%E7%89%87-%E5%9C%B0%E7%8B%B1%E4%B9%8B%E8%B7%AF-%E9%80%9A%E5%BE%80%E5%9C%B0%E7%8B%B1%E7%9A%84%E8%B7%AF%E6%98%AF%E7%94%A8%E5%96%84%E6%84%8F%E9%93%BA%E6%88%90%E7%9A%84-image28284799)
 
-编辑：康州盘古农场 – 心照
+中共推出的一带一路，是不怀好意的，有计划、有步骤地以全世界为对象的侵略行为。中共病毒带给人类的灾难，这个巨大的代价，换来了世界的初醒。可已经上路的国家，就像已经进入了高速公路口，上路容易下路难。作为一介百姓，可能起不了什么作用，但我们应该为之发声・・・・・・
 
-发布：康州盘古农场 – 彩虹 Rainbow
+**【一带一路弥天大谎】　………【天路】改编**
 
-**据《大纪元时报》2021年5月2日报道**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/05191618/hohorqq.jpg)习近平于2021年3月4日出席在北京举行的政协会议（CPPCC）开幕式。 （法新社）
-根据《大纪元时报》最近获得的（中共国）政府内部文件，中共领导人习近平亲自指示共产党政权集中精力控制全球互联网，以取代美国的影响力。
+歌词改编：待命（文晓）
 
-习近平在2017年1月的演讲中表示，“控制互联网的力量”已成为“ [中共国]全球战略竞争的新焦点”，并把美国列为阻碍其发展的“竞争力量”的野心。
+多少国家首相被骗上当
 
-共产党的最终目标是控制全球互联网上的所有内容，以此该政权可以在世界舞台的交流和讨论中运用习近平所说的“话语权”。
+一带一路纯弥天大谎
 
-习近平提出了“利用技术统治互联网”的愿景，以实现对在线生态系统各个部分的全面控制，包括应用程序、内容、质量、资金和人力。
+像一闪幽灵漂洋过海
 
-网络安全专家，《网络防御》杂志出版商加里·米利夫斯基（Gary Miliefsky）告诉《大纪元时报》，如果中共政权要获得对更多根服务器的控制权，他们便可以将流量重新导向到所需的任何地方。
+假扮慈善为耍鬼名堂
 
-例如，如果用户想浏览有关北京认为敏感主题的新闻文章，则该政权的DNS服务器可以将用户引导至伪造页面，误导该文章不再在线。
+盗用我中华人民的脸庞
 
-他说：“控制根服务器的那一刻，您就可以欺骗或伪造任何东西。”“您可以控制人们看到什么，看不到什么。”
+行骗世界毁民族形象
 
-原文链接: [https://www.theepochtimes.com/chinese-leader-xi-jinping-lays-out-plan-to-control-the-global-internet-leaked-documents\_3791944.html](https://www.theepochtimes.com/chinese-leader-xi-jinping-lays-out-plan-to-control-the-global-internet-leaked-documents_3791944.html)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+像毒蛇条条翻山越岭
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+所到之处难免遭祸殃
 
+那是一个天大的骗局
+
+中共无德无信流氓
+
+天下因此无太平少见阳光
+
+各国进退两难抓狂
+
+一带一路上路难转向
+
+单项通行是魔鬼所望
+
+想上路容易想下路难
+
+一路顺风走向家破国亡
+
+那是一条亡国的险路
+
+回头是岸屈服悔断肠
+
+快醒来亚非拉醒来吧欧盟
+
+真相传递唯我新中国联邦
+
+那是裹着毒汁的蜜糖
+
+人面兽心直捣心脏
+
+爆料革命是救世的偏方
+
+全球灭共歌声寰宇回荡
+
+全球灭共歌声寰宇回荡
+
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+
+*校对：喜马拉雅东京樱花团 / 文小白*
+*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
+*发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01183841/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
 0

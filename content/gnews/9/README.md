@@ -1,74 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【各抒己见】一带一路弥天大谎
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1177586/)
+## 【有声读物】中共国“五一”之殇
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1177769/)
 
-作者：喜马拉雅东京樱花团 /待命（文晓）
+配音：香草山录音组 蒙古鸿雁
 
-![](https://lh6.googleusercontent.com/MB5TrSGA95QEJM5mYoo9afg4SLbDt26RvIWvjH-LbpeV8QVvQNvZWOhU1Y8aw7tu8sg-Mxmkp92XZjqP557w7pCkw4d_Zag-ASj8zq1MncB4fYvu-B6DI0bXYgLJ9ehBMoREpIzx)
-[图片来源](https://cn.dreamstime.com/%E5%85%8D%E7%89%88%E7%A8%8E%E5%BA%93%E5%AD%98%E5%9B%BE%E7%89%87-%E5%9C%B0%E7%8B%B1%E4%B9%8B%E8%B7%AF-%E9%80%9A%E5%BE%80%E5%9C%B0%E7%8B%B1%E7%9A%84%E8%B7%AF%E6%98%AF%E7%94%A8%E5%96%84%E6%84%8F%E9%93%BA%E6%88%90%E7%9A%84-image28284799)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-中共推出的一带一路，是不怀好意的，有计划、有步骤地以全世界为对象的侵略行为。中共病毒带给人类的灾难，这个巨大的代价，换来了世界的初醒。可已经上路的国家，就像已经进入了高速公路口，上路容易下路难。作为一介百姓，可能起不了什么作用，但我们应该为之发声・・・・・・
 
-**【一带一路弥天大谎】　………【天路】改编**
 
-歌词改编：待命（文晓）
 
-多少国家首相被骗上当
 
-一带一路纯弥天大谎
 
-像一闪幽灵漂洋过海
 
-假扮慈善为耍鬼名堂
+尽管病毒还在肆虐，中共仍然鼓励人们在5月1号劳动节出行旅游。
 
-盗用我中华人民的脸庞
+为期五天的共产假期，即“五一”，从上周六开始。中共国为此鼓励老百姓，多在国内旅行。也是因此，成千上万，甚至数百万人拥堵了诸如长城之类的旅游景点，并在各大主要城市中形成了拥挤的人群。
 
-行骗世界毁民族形象
 
-像毒蛇条条翻山越岭
 
-所到之处难免遭祸殃
+**文字版原文：[【战友心声】中共国“五一”之殇](https://gnews.org/zh-hans/1172961/)**
 
-那是一个天大的骗局
+作者：纽约香草山福音部  繁星
 
-中共无德无信流氓
 
-天下因此无太平少见阳光
 
-各国进退两难抓狂
+音频处理：喜山必胜Maverick
+发稿：雪梨
 
-一带一路上路难转向
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-单项通行是魔鬼所望
+**更多资讯，更多关注**
 
-想上路容易想下路难
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-一路顺风走向家破国亡
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-那是一条亡国的险路
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-回头是岸屈服悔断肠
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-快醒来亚非拉醒来吧欧盟
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-真相传递唯我新中国联邦
-
-那是裹着毒汁的蜜糖
-
-人面兽心直捣心脏
-
-爆料革命是救世的偏方
-
-全球灭共歌声寰宇回荡
-
-全球灭共歌声寰宇回荡
-
-*免责申明：本文只代表作者观点，与GNews网站无关。*
-
-*校对：喜马拉雅东京樱花团 / 文小白*
-*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01183841/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
 0
