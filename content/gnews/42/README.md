@@ -1,13 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210506
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1180070/)
+## 郭先生0505IX一系列政治滑稽事件后美会出病毒白皮书最终版
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1180220/)
 
-- 制图：透明的遮羞布
-- 编辑：神奇四侠
+编辑整理：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115627/01-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115652/02-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115725/03-7.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115822/04-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115846/05-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115910/06-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115933/07-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06115957/08-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120024/09-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120057/10-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120131/11-10.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120205/12-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120231/13-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120254/14-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120318/15-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120345/16-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120401/17-1-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120422/17-2-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06120442/17-3-1.jpg)
-以上文字图片仅代表作者个人观点，与GNEWS无关
+旧金山金喜农场：黑郁金香（文郁）；日本东京方舟农场：山川异域
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06123437/%E5%B0%81%E9%9D%A2-22.jpg)
+据[2021-05-05 文贵直播：回答战友们目前关心的问题](https://gtv.org/video/id=60929c03db13300ca5491b6d)时间点1：54：21——
+
+乌鸦：病毒白皮书什么时候出？
+
+说到这的时候我给大家可以聊一下，现在据我所知美国（病毒）白皮书已经准备好了，美国出来白皮书的后果是什么呢？跟共产党脱钩和开战或开战，所以呢现在共产党也知道正在拉拢那些穷兄弟、姐妹们在联合国上要和美国较量。
+
+所以这个白皮书什么时候出来？我觉得很有可能白皮书出现了一个所谓的初级版本，先不说那么严重。但是我觉得美国的现在这个较量、现在大选的这个情况，我说过，你记住战友们，2022年就是明年，美国的大选的结果和造成的美国社会的动荡它最终会出来，美国不可能让这次大选这事就这么拉倒了，是不可能的，一定会有一方倒下，滑稽的结果大家都看到了，两个副总统都不是省油的灯，大家也都看到了。
+
+接下来美国总统大选的这个事情的影响它会超出所有人的想象，美国这个国家你可千万别小看，这个国家太伟大了，你不管看到有多荒谬的事情发生都是其他国家难望其项背的，这个国家不是完美的。但是美国不仅是修复能力，美国这个国家最重要的事情它是真真正正的与时俱进，它在创造中、灾难中、错误中甚至是挫折中它一次一次的强大，恢复到一个本质来说，美国这个国家是一个在一次一次的错误当中成长壮大的。
+
+那么这个白皮书的结果会是被谁利用呢？一定记住美国总统大选这个事情完后，一定是美国最后出现一系列的政治滑稽事件之后，这个白皮书最终会推出最终版本，最终的版本。
+
+接上文——
+
+[郭文贵先生2021年5月5日直播开始前播放视频文字汇总](https://gnews.org/zh-hans/1177897/)
+
+[郭先生0505I与战友们互动回答战友们提出的问题汇总1](https://gnews.org/zh-hans/1179745/)
+
+[郭先生0505II在清朝中美人民交往极好中共毁了中国人的形象](https://gnews.org/zh-hans/1179837/)
+
+[郭先生0505III新中国联邦不会有军队,没有一个军队敢碰我们](https://gnews.org/zh-hans/1179930/)
+
+[郭先生0505IV中共要干掉Elon Musk的事让西方认清其本质](https://gnews.org/zh-hans/1179969/)
+
+[郭先生0505V中共极权下市场经济问题汇总到中央最终脆断](https://gnews.org/zh-hans/1180013/)
+
+[郭先生0505VI美元贬值和世界滥印等导致喜美元成唯一避险地](https://gnews.org/zh-hans/1180047/)
+
+[郭先生0505VII与战友们互动回答战友们提出的问题汇总2](https://gnews.org/zh-hans/1180129/)
+
+[郭先生0505VIII喜支付完全无界化已彻底跟着你的生命灵魂化](https://gnews.org/zh-hans/1180193/)
 
 0
