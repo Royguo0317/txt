@@ -1,22 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法国参议院压倒性全面支持台湾参与国际组织
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1184235/)
+## 印度禁止进口中共国制造的无线电子设备
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1184344/)
 
-台湾宝岛农场
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07094746/%E6%93%B7%E5%8F%9657-4.jpg)
-[自由时报新闻](https://news.ltn.com.tw/news/politics/breakingnews/3523881)报导，法国参议院周四晚上以304票无异议通过了支持台湾参与国际组织活动决议文。国际组织包括WHO、国际民航组织（ICAO）、联合国气候变化纲要公约（UNFCCC）与国际刑警组织（INTERPOL）等各领域国际组织。
+- 翻译：坐看云起时
 
-法国参议院全面性通过挺台决议，是继G7外长公报后，是协助台湾外交空间拓展的实际行动。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07094807/%E6%93%B7%E5%8F%9657-5.jpg)图片皆取自驻法代表处脸书
-摘╱zhong
-发布╱小刘
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07110940/keyboard-141297_1920-1.jpg)
+半岛电视台（Al Jazeera）5月7日报道，业内人士告诉路透社，印度已将从中共国进口含有wifi模块的成品电子设备–如蓝牙音箱、无线耳机、智能手机、智能手表和笔记本电脑wifi模块的审批搁置了数月。
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+据消息人士称，印度通信部的无线规划和协调部门(WPC)从去年11月起就开始搁置审批中共国电子设备的进口申请，来自美国，中共国和韩国公司的80多份此类申请一直在等待批准，甚至一些从中共国引进成品的印度公司的申请也在等待批准 。
 
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+印度对中共国进口的强硬立场是在总理纳伦德拉-莫迪(Narendra Modi)呼吁加强经济自力更生的情况下做出的。
 
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+印度的市场和出口潜力已使其成为世界第二大移动设备制造商，但技术分析师和业内人士表示，印度还不具备公司大量投资制造IT产品和智能可穿戴设备的规模和条件。印度此前允许公司自行申报无线设备，此举使进口更容易，但2019年3月的新规则规定公司必须寻求政府批准。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07110700/business-3058333_1920.jpg)
+**对中共国科技的警惕**
 
-+1
+WPC审批的长期拖延凸显了印度削减中共国在其科技经济中的影响力的战略，特别是在去年与中共发生边界冲突之后，尽管此后紧张局势有所缓解。
+
+莫迪政府本周将中共国电子制造商华为从其5G移动通信试验的参与者名单中删除，但欧洲和韩国的竞争对手则被允许。
+
+路透社此前报道，一旦5G在印度开始部署，新德里将可能阻止移动运营商使用华为的电信设备。
+
+去年印度与中共国的边境局势紧张之时，因为印度港口阻止从中共国进口产品，美国公司苹果、思科和戴尔也因此而被卷入。
+
+另一个例子是路透社去年年底报道的，印度对来自中共国的电子产品质量许可的严格控制减缓了苹果iPhone机型的进口。
+
+在目前的情况下，无法获得WPC批准，是印度从中共国进口电子设备的主要障碍。
+
+本文只代表作者观点，与GNEWS网站无关
+
+新闻来源：[ALJAZEERA](https://www.aljazeera.com/economy/2021/5/7/india-blocks-china-made-wireless-device-imports-report)
+
+0

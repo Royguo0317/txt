@@ -1,32 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 全球海运需求因疫情供不应求
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1184250/)
+## [圣城传声筒]《致香港》
+` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1182816/)
 
-台湾宝岛农场
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07095859/%E6%93%B7%E5%8F%9657-0-1.jpg)图：路透
-**印度疫情恶化冲击国际海运**
+作者：纽约香草山农场香港部 南风草木香
 
-印度病毒肆虐加剧，经[联合报新闻](https://udn.com/news/story/6811/5439524)报导，新加坡、阿拉伯联合大公国等港口都禁止曾有印度籍船员工作过的船舶入港，直接性冲击海运业，疫情爆发下海运业运能本就吃紧，多国针对印度籍船员的禁止入港措施，使运能更加吃紧。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
 
-印度每日确诊数量逾41.2万人，医疗能量已经崩溃。经郭文贵先生直播，印度实际感染人口远超过该数字。依印度生活环境、卫生习惯与防疫观念普遍落后的事实基础上，不难知道印度实际染疫数量绝对远超新闻报导。
 
-**韩国釜山港大塞港海运费用暴增直接冲击贸易业**
 
-南韩经济日报3日报导，现代釜山新港码头（Hyundai Pusan New Port Terminal，HPNT）是釜山最大的码头之一，当地一望无际的卸货场，通常只有3层高货柜层层相叠。不过如今船只大塞港，堆叠货柜高度一口气变成6层，尽管如此，起重机仍旧快找不到空地安放货柜。
 
-因货柜储存问题，导致塞港结果发生，直接冲击物流业，也因物流业的不顺畅，直接性影响到韩国贸易出口。
 
-而韩国塞港的其中一原因，许多外国船运商和中共国业者签订短期现货合约，为了运送更高价的商品，直接跳过釜山港，让南韩船只短缺更为严重。 (详细内容阅读[科技新报](https://technews.tw/2021/05/04/there-is-almost-no-place-to-put-containers-in-busan-dasai-port/)报导)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07011645/%E9%A6%99%E6%B8%AF%E5%9B%BE%E7%89%87-%E7%BA%BD%E6%97%B6.jpeg)图片来源：《纽约时报》
 
-文╱zhong
-发布╱小刘
+去年香港最危急的时候
 
-**[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)**
+曾经问一位同事，你怕那些警察吗?
 
-**[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)**
+她说不怕，怎么会怕呢?警察是保护市⺠的
 
-**[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)**
+我无言以对
 
-0
+难道她看不到警察用枪指住手无寸铁的市⺠??
+
+后来又听到一位同事说
+
+以后还是想去大陆生活，始终是自己国家
+
+我暗自冷笑，那是你的国家吗?
+
+你拥有一寸自己的土地吗?你敢对政府说个不字吗??
+
+曾经，香港，是一个多么令人骄傲的名字和象征
+
+这里，有⺠主和自由，有繁荣的经济，是最安全的城市
+
+现在，拿什么来骄傲
+
+无能的政府，被窒息的⺠声
+
+现在，凭什么去竞争
+
+撤走的外国公司，萧条的市场
+
+香港人不甘心，怎能让黑暗一直笼罩东方之珠
+
+香港人在抗争，尽管隧道很⻑暂时看不到曙光
+
+情怀依旧，热血永在
+
+为了我们的圣城，香港人煲底见!
+
+图片引用来源：
+
+[https://cn.nytimes.com/china/20141001/c01protesters/](https://cn.nytimes.com/china/20141001/c01protesters/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205738/M5-1.jpg)
+编辑/校对/发稿：Delilah小胖
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
+
+
+
+
+
++1
