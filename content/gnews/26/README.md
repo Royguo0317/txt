@@ -1,21 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】05/06/2021：中共恃强凌弱战狼外交整个社会处于疯狂状态随着房地产金融系统经济崩塌14亿中共统治下的奴隶会灾难重重对抗中共应该是美国跨党派的共识
-` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1183313/)
+## 2021/05/05 班农专访(1)： 闫博士在推动病毒真相上取得了巨大的成效
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1183409/)
 
-**制作：Cantonese工作室**
+视频字幕：云岭 | 听写/翻译：Wade | 校对：Roberts | 简评/文字整理/编辑：胖丁
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/Impact-of-global-Covid-19-lockdowns-on-study-abroad-4.jpg)
+
+**简评：**
+
+闫博士在推动病毒真相上取得了巨大的成效。她在美国拥有大量的支持者并且在专业领域学识渊博的赛林博士强力支持闫博士的观点。华盛顿所有的官员和媒体都相信病毒来自武汉实验室。大多数人已经转换观念，相信中共制造了病毒并且故意释放到全世界。
+
+**YouTube视频链接：**
 
 
 
-**播报:【文依】资料整理:【陆柒陆捌】【Ruby三鑫】【michelle喜乐】PPT制作:【米线】视频制作:【KEN】上传：【星星】【向阳6768】**
+**GTV视频链接：**[https://gtv.org/video/id=6094971937f7f73984c8b7ff](https://gtv.org/video/id=6094971937f7f73984c8b7ff)
 
-摘要：
+**视频字幕：**
 
-1
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07044030/image7.1-1-1.png)
-2
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07044108/image7.2-1.png)
-3
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07044142/image7.3-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01093124/image0%E9%9D%A2.jpg)
-0
+**主持人：**上周我们看到了劳伦斯·赛林博士的重磅声明，指控中共制造并向世界释放了病毒，造成了当前的全球危机。班农先生对此有自己的看法。事实上中共这项统治世界的计划可以追溯到90年代甚至更早以前。
+
+班农先生，请分享一下你所了解的情况。
+
+**Bannon: **我认为赛林上校是个备受尊敬的职业军官。他非常受尊重，并且在这个领域有丰富的知识。他在美国有大量的拥护者，我对他非常敬重。他进一步强调了闫丽梦博士的观点。闫博士通过法治基金、法治社会，还有其他一些非政府组织和非营利组织逃离香港来到美国之后，深受美国人民喜爱。赛林博士所说的非常有力，我们也将请他到战斗室作客。
+
+我认为正在收看节目的观众需要理解的一个信号是：人们正在转变观念，（开始）相信病毒来自武汉实验室。并且我认为大多数人都相信中共故意释放了病毒。无论它源于意外泄漏或者故意释放，我们都会找出真相。
+
+战斗室昨天邀请了《The World Turned Upside Down》一书的作者Clyde Prestowitz。节目之后我和拉希姆聊到了，华盛顿所有的官员、所有的媒体，在幕后，无论是餐会或者酒会的非正式场合。没有任何人不相信病毒来自武汉实验室。
+
+这里的观众要明白，我不在乎那些科学家如何在电视上掩盖真相。在华盛顿，没有一个人不相信病毒来自武汉实验室。
+
+所以这里的观众要明白，闫博士2020年4月抵达美国之后，在推动病毒真相上取得了巨大的成效。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
++1
