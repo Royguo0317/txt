@@ -1,64 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 无冕记
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1180655/)
+## G7外长会议公报涉及中共国部分摘译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1180685/)
 
-作者：X-Wing| 校对：仙女儿-文善| 审核：宁缺| Page：小六月
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06141841/1-23-7.jpeg)
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/GF.jpg)miragenews.com
+七国集团外长和发展部长会议：公报
 
-无冕之王指没有权威的名义而影响、作用极大的人。西方世界现多称记者为“无冕之王”，因为记者什么都敢写，有法律保障的言论自由，有很大的权力和影响力。新闻界最有影响力的奖项无疑是普利策新闻奖。
+伦敦，2021年5月5日
 
-学生时代曾经读过普利策的传记，对记者这一职业充满向往。它需要敏锐的视角和反应，律师一般严密的思路和犀利的语言或笔触，有时候还需要非凡的勇气敢于挑战权威、维护正义、坚持信念、不贪图金钱。
+……
 
-在真正享有新闻自由的地方，通常不限制记者的学历或年龄，你无需是新闻专业毕业，也无需记者证。印象中，欧美很多新闻播音员和老牌专题访谈节目主持人都是老年人和中年人居多，不少是记者出身。记者们通过贡献自己的专业知识、脑力和体力，甚至鲜血，让世人了解事实和真相，无愧于“无冕之王”称号。
+II. 外交与安全政策
 
-5月3日，是一个特别的日子——世界新闻自由日（World Press Freedom Day）。
+……
 
-在这一天，美国驻华使馆声明：
+中共国
 
-在世界新闻自由日（World Press Freedom Day），美国重申我们对于表达自由以及有机会获取独立媒体提供的属实准确信息的承诺。自由的媒体是繁荣且有复原力的民主社会的基础。
+13、我们鼓励中共国作为一个拥有先进技术能力的大国和经济大国，建设性地参与以规则为基础的国际秩序，采取行动应对包括气候变化和生物多样性消失在内的全球挑战，促进经济从中共病毒中复苏，支持抗击当前的疫情，以及预防未来的疫情，这将符合我们所有人的利益，包括中共国的利益。我们期待着与中共国一道促进地区和全球和平、安全与繁荣的机会。
 
-在德国，报纸再次全版刊出部分新疆维族受迫害记者肖像。40位受迫害中国媒体人肖像中，25位是维族人，都曾是官媒记者。
+14、根据国际法和国内法规定的义务，我们呼吁中共国尊重人权和基本自由，我们继续深切关注新疆和西藏的侵犯和践踏人权行为，特别是针对维吾尔人、其他少数民族和宗教群体成员的行为，存在大规模“政治再教育”营地网，以及有关强迫劳动制度和强迫绝育的报道。我们同意必须通过我们自己现有的国内手段，包括通过提高认识和向我们的企业界提供咨询和支持，处理强迫劳动的问题。我们坚决支持独立、不受限制地进入新疆实地调查情况。因此，我们继续呼吁联合国人权事务高级专员能够这样做。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/XNBkZQCFw0dg2/images/120add46-34c8-4ba1-a448-02354ba21590.png?asset_id=dda01be7-11e9-4282-aca7-5c60fe9afedf&amp;img_etag=%22467828e82bd9c402922b1055947794f7%22&amp;size=1024)](https://spark.adobe.com/page/XNBkZQCFw0dg2/images/120add46-34c8-4ba1-a448-02354ba21590.png?asset_id=dda01be7-11e9-4282-aca7-5c60fe9afedf&amp;img_etag=%22467828e82bd9c402922b1055947794f7%22&amp;size=1024)
+15、我们回顾我们3月12日的声明，仍然严重关注中共国的决定，从根本上削弱香港选举制度的民主因素。我们呼吁中共国根据其国际承诺及其法律义务，包括《中英联合声明》和《基本法》所承诺的法律义务，尊重香港的高度自治权赋予的权利和自由。我们呼吁中共国和香港当局结束针对捍卫权利、自由和民主价值的人为目标的行为，维护司法系统的独立性，确保案件不转移到大陆。
 
-德语文章题目为：受威胁，迫害，仍在拘留中
+16、作为支持开放社会、以及在透明和可预测的国际规则和标准体系内进行自由和公平贸易的国家，我们一致关注破坏这种自由与公平的经济体系的做法，包括在贸易、投资和发展融资方面的破坏做法。面对武断、胁迫性的经济政策和做法，我们将共同努力，培养全球经济的弹性。我们敦促中共国承担和履行与其全球经济作用相称的义务和责任。
 
-在“无国界记者组织”发布的世界新闻自由指数中，中共国仍维持全球倒数第四。该组织新近公布的数据显示，中国在押判刑记者有114人，真实数字可能更多。
+17、我们鼓励中共国信守承诺，在网络空间采取负责任的行动，包括不进行或不支持利用网络进行的知识产权盗窃。
 
-在这一天，中国公民记者张展，获Difference Day“言论自由荣誉奖”。张展是一名律师，她到武汉疫区寻求真相，践行公民言论自由权利，为报道武汉疫情真相，唤醒民众挽救生命的危机意识而付出了巨大代价。张展在被捕后绝食抗争超过半年，遭强制鼻饲等酷刑，一度健康恶化，生命危殆，最后被重判四年，目前仍在狱中，罪名是“寻衅滋事。
+18、我们认为，为了在所有人都关心的问题上加强全球合作，确保国际组织的包容进程至关重要，我们支持台湾有意义地参与世界卫生组织论坛和世界卫生大会，国际社会应该能够从所有伙伴的经验中获益，包括台湾在应对中共病毒疫情方面的成功贡献。【1】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/XNBkZQCFw0dg2/images/1b7fa121-4d53-43a8-97bc-3583bc6d77d6.png?asset_id=4d620d9e-bd99-47ff-8c1a-09f149f04452&amp;img_etag=%2223f250e9a802be89edce901383bb4362%22&amp;size=2633)](https://spark.adobe.com/page/XNBkZQCFw0dg2/images/1b7fa121-4d53-43a8-97bc-3583bc6d77d6.png?asset_id=4d620d9e-bd99-47ff-8c1a-09f149f04452&amp;img_etag=%2223f250e9a802be89edce901383bb4362%22&amp;size=1024)
+（中共国部分完）
 
-张展语录：
+以上就是G7部长级公报涉及中共国的全部，隔靴搔痒，喊一喊他们认为该喊的口号，令人大失所望，大跌眼镜！
 
-“当然应该寻求真理，不计成本地寻求。”
+或许战友能解读出令人振奋的信息，但本人觉得远远达不到“战略竞争法”对邪共的认知水平。病毒溯源都不敢提，更甭说追责、超限生物战了。
 
-“真理一直是这个世界最昂贵的东西，它就是我们的生命。”
+看看中共的报道，就知道他们怎样乐呵了：“关键时刻，默克尔再挺中国”，“长安街知事注意到，默克尔曾在公开场合多次力挺中国，今年年初她曾表示，支持中国提倡的多边主义，反对在中美间站队。”【2】
 
-“没有真相，这个世界毫无意义。”
+看来欧洲已经陷落，是怎样解救、解放的问题，有新中国联邦，美国都能被解救出来，还有哪里解救不了的吗？
 
-“不要让中国退回到朝鲜”
+相关链接：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/XNBkZQCFw0dg2/images/00dcbbbb-4be7-4b6c-9c02-ca801f4b59b2.png?asset_id=c58fff86-c2ec-4013-bfe6-b8a26aaac4ea&amp;img_etag=%22e6bbf1d14cef14831900f7e81fb6622d%22&amp;size=2560)](https://spark.adobe.com/page/XNBkZQCFw0dg2/images/00dcbbbb-4be7-4b6c-9c02-ca801f4b59b2.png?asset_id=c58fff86-c2ec-4013-bfe6-b8a26aaac4ea&amp;img_etag=%22e6bbf1d14cef14831900f7e81fb6622d%22&amp;size=1024)
+【1】[https://www.gov.uk/government/publications/g7-foreign-and-development-ministers-meeting-may-2021-communique/g7-foreign-and-development-ministers-meeting-communique-london-5-may-2021](https://www.gov.uk/government/publications/g7-foreign-and-development-ministers-meeting-may-2021-communique/g7-foreign-and-development-ministers-meeting-communique-london-5-may-2021)
 
-张展已被中共强行噤声，另外一名公民记者方斌至今下落不明。我们没有忘记吹哨人李文亮，我们也没有忘记陈秋实律师，我们还不应忘记前央视CCTV-7台记者李泽华，还有王全璋律师，709律师。
+【2】
 
-所谓“公民记者”，是指在新闻事件的报道和传播中发挥记者作用，却非专业新闻传播者的普通民众。作为一名勇敢的公民记者，身在狱中的张展获得言论自由荣誉奖，重过普利策奖，是真正的“无冕之王”。
-
-每个人都可以成为无冕之王，轮到我们爆料革命的每位战友追求、传播真相了。
-
-（文章仅代表作者个人观点）
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/XNBkZQCFw0dg2/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/XNBkZQCFw0dg2/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news\_10504765376460254608%22%7D&n\_type=0&p\_from=1](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_10504765376460254608%22%7D&amp;n_type=0&amp;p_from=1)
 
 0
