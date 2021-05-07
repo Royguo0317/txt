@@ -1,79 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [圣城传声筒]《致香港》
-` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1182816/)
+## 【热点播报】法国参议院通过法案支持台湾重回国际组织
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1184361/)
 
-作者：纽约香草山农场香港部 南风草木香
+作者：纽约香草山健身部 Ivy001
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
-
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07011645/%E9%A6%99%E6%B8%AF%E5%9B%BE%E7%89%87-%E7%BA%BD%E6%97%B6.jpeg)图片来源：《纽约时报》
+法新社报道，法国参议院周四以压倒性多数通过“台湾参与国际组织工作法案”。
 
-去年香港最危急的时候
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07111547/%E5%9B%BE%E7%89%8733-1.png)
 
-曾经问一位同事，你怕那些警察吗?
+法新社报道，以右翼反对派占多数的法国参议院，周四以304票赞成，19票弃权，0票反对，通过了“台湾参与国际组织工作法案”，这项法案支持台湾参与多个国际组织的工作。国际组织包括世界卫生组织（WHO）、国际民用航空组织、《联合国气候变化公约》，甚至国际刑警组织等多个国际组织。
 
-她说不怕，怎么会怕呢?警察是保护市⺠的
+尽管这项法案不具约束性，但是，对法国政府的外交政策具有指向性的法律依据，为法国政府支持台湾重回国际组织的推动，提供了坚实的法理基础。
 
-我无言以对
+在捷克参议院全票通过挺台湾参加WHA之后，这是西方民主国家的又一个国家站出来表态，“支持台湾参与国际组织”。
 
-难道她看不到警察用枪指住手无寸铁的市⺠??
+而且，这项法案通过的时机，真是耐人寻味。之前，日媒高调传出G7外长联合声明拟将载明支持台湾参与国际组织，言犹在耳，法国参议院就以压倒性多数通过了这项法案。这是一个非常强烈的信号，显示出G7外长联合会议确实在中共国的问题上，达成了一定的共识，必须结盟抗共！而在联盟抗共的前提下，台湾重回国际组织，重新参与到国际事务中来，就是必然的结果。
 
-后来又听到一位同事说
+虽然在参议院表决前，中共国动作不断，仍然无法撼动法国多党派议员的决心，0票反对，这表明在反共灭共是主流的形势下，没有一个议员敢在明面上支持中共国。
 
-以后还是想去大陆生活，始终是自己国家
+中共国在西方民主国家的影响力越来越趋向微弱，路也越走越窄，可以操作的空间也越来越小。中共国，你的末日即将到来啦。一切已经开始！
 
-我暗自冷笑，那是你的国家吗?
+参考阅读：
 
-你拥有一寸自己的土地吗?你敢对政府说个不字吗??
+https://www.rfi.fr/cn/中国/20210506-法国参议院压倒性多数通过支持台湾参与国际组织法案
 
-曾经，香港，是一个多么令人骄傲的名字和象征
+校对/发稿：飞虹
 
-这里，有⺠主和自由，有繁荣的经济，是最安全的城市
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
 
-现在，拿什么来骄傲
 
-无能的政府，被窒息的⺠声
-
-现在，凭什么去竞争
-
-撤走的外国公司，萧条的市场
-
-香港人不甘心，怎能让黑暗一直笼罩东方之珠
-
-香港人在抗争，尽管隧道很⻑暂时看不到曙光
-
-情怀依旧，热血永在
-
-为了我们的圣城，香港人煲底见!
-
-图片引用来源：
-
-[https://cn.nytimes.com/china/20141001/c01protesters/](https://cn.nytimes.com/china/20141001/c01protesters/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205738/M5-1.jpg)
-编辑/校对/发稿：Delilah小胖
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
-
-
-
-
-
-+1
+0
