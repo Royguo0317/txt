@@ -1,51 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】IBM实验室实现2纳米芯片技术重大突破性进展
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1181811/)
+## 郭先生0505XV中共绝不会承认有解药但会以某种方式建议用药
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1181926/)
 
-作者：纽约香草山健身部     文真
+编辑整理：
 
+纽约香草山农场：酸酸乳(文少)；日本东京方舟农场：山川异域
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06215044/%E5%B0%81%E9%9D%A2-28.jpg)
+据[2021-05-05 文贵直播：回答战友们目前关心的问题](https://gtv.org/video/id=60929c03db13300ca5491b6d)时间点2：26：39——
 
+沉默中的爆发：七哥墙内的战友等你解放大家呢。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+这话不准确，我解放不了大家，解放大家的前提是大家把自己解放了，你最起码有看待事情真假善恶的能力，你就解放了。
 
+阿尔法，阿尔法：七哥，共匪在什么情况下会交出解药？
 
+我认为它会分两步走，它会逐渐地让大家知道吃什么管用，它吃什么药管用，就是说公开一些解药的一些办法，例如羟氯喹现在就很快，大家又让人知道羟氯喹了，那么羟氯喹会成为一种办法，还有更多、还有其他应该有更好的吃了管用的药。
 
-目前科技水平下，2纳米硅基芯片是可制造的最小尺寸芯片。IBM近日公布，其基于2纳米芯片流程在试验阶段已实现重大突破。据称，相较于7纳米商业用芯片，IBM最新试验的2纳米芯片可提升45%的性能。在同性能运行条件下，2纳米芯片则可节省75%的耗能。
+然后呢，它逐渐的它不会正式地交出解药，它会在认为是完全失控的情况下、对它已经完全失控了，可能在这种情况下曾庆红包括王岐山、韩正和江家，你一定记住我的话，他们会促使中共，这些是我最恨的人——王岐山可能就是他要提出来要赶快把药拿出来吧。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06213655/image-91.png)图片来源：IBM
+这帮人是投机主义者，我觉得是有可能的，甚至他们主动动手把习一坑给灭了，都是有可能的，然后把药给找个理由出去，它绝对永远不可能说这是我的解药，永远不可能，共产党承认自己是冠状病毒的元凶、超限武器，永远不可能。
 
-IBM宣称，其2纳米流程可在“指尖大小”的芯片上容纳5百万个晶体管——突破其2017年实现的基于5纳米流程的3百万个晶体管的记录。当今高端计算机采用的7纳米芯片也是IBM最早于2015宣布成功实现的。IBM研究主管Peter Rudden称，IBM这项重大芯片技术突破将应用在人工智能科技领域，例如具有超强功能的显卡。芯片功率效率的提升有助于提高个人电子设备和超级数据中心的各项性能。
+接上文——
 
-由于COVID-19疫情和南海局势紧张，世界各国如今均处于芯片短缺的焦虑中，芯片大战正在如火如荼地展开：缺乏电子部件导致汽车制造商纷纷被迫停产；智能手机生产商在不断地警告新产品发布将受影响；高端电子部件——比如显卡——更是一件难求，导致价格节节攀升。对此，美国总统Biden因芯片短缺而召开行业特别峰会；英国政府亦是干预了科技巨头英伟达（Nvidia）对于芯片设计商ARM的收购。如今，IBM在国际性芯片短缺之际宣布芯片技术领域的重大突破性进展，恰逢时机地展示出芯片制造脱离中共国和台湾的势头。
+[郭文贵先生2021年5月5日直播开始前播放视频文字汇总](https://gnews.org/zh-hans/1177897/)
 
-正如Peter Rudden所言，“IBM仍旧是硬件研发的发电厂”。从图灵机到第一台电子计算机，再到量子计算机，IBM凭借一流的科技创新实力不断地刷新尖端科技记录。IBM在2纳米芯片技术的重大突破必将给IT行业再一次带来颠覆性的进展。
+[郭先生0505I与战友们互动回答战友们提出的问题汇总1](https://gnews.org/zh-hans/1179745/)
 
-参考阅读：
+[郭先生0505II在清朝中美人民交往极好中共毁了中国人的形象](https://gnews.org/zh-hans/1179837/)
 
-[IBM 2nm chip breakthrough claims more power with less energy](https://www.bbc.com/news/technology-57009930)
+[郭先生0505III新中国联邦不会有军队,没有一个军队敢碰我们](https://gnews.org/zh-hans/1179930/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+[郭先生0505IV中共要干掉Elon Musk的事让西方认清其本质](https://gnews.org/zh-hans/1179969/)
 
-编辑/校对/发稿：Irene木木
+[郭先生0505V中共极权下市场经济问题汇总到中央最终脆断](https://gnews.org/zh-hans/1180013/)
 
-**更多资讯，更多关注**
+[郭先生0505VI美元贬值和世界滥印等导致喜美元成唯一避险地](https://gnews.org/zh-hans/1180047/)
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[郭先生0505VII与战友们互动回答战友们提出的问题汇总2](https://gnews.org/zh-hans/1180129/)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[郭先生0505VIII喜支付完全无界化已彻底跟着你的生命灵魂化](https://gnews.org/zh-hans/1180193/)
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+[郭先生0505IX一系列政治滑稽事件后美会出病毒白皮书最终版](https://gnews.org/zh-hans/1180220/)
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[郭先生0505X新中国联邦和爆料革命是美走向强大的最强中坚](https://gnews.org/zh-hans/1180275/)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[郭先生0505XI中共内忧外患辛丑年底会很难明年绝对过不了](https://gnews.org/zh-hans/1180310/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+[郭先生0505XII美国钟摆变双剑,中共倒台后世界会出第二个帝国](https://gnews.org/zh-hans/1180347/)
 
+[郭先生0505XIII联盟委员会和农场都需要成长的过程要互相帮衬](https://gnews.org/zh-hans/1180406/)
 
-
-
+[郭先生0505XIV缅甸只有中共灭了才可能好昂山素姬很快会被灭](https://gnews.org/zh-hans/1181855/)
 
 0

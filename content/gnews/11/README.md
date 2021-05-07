@@ -1,48 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【时事解析】接近群体免疫的塞舌尔感染率激增而重新实施限制
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1182217/)
+## 【圣城传声筒】向不义之法说不
+` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1182034/)
 
-作者：休斯顿星光农场 写作部 H.B
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-03-25-230524-1.jpg)
-据多家媒体报道，太平洋岛国塞舌尔尽管已有超过60%成年人接种了两剂新冠病毒疫苗，但感染率依然激增，现在该国被迫重新实施限制。
+作者：纽约香草山农场 香港部写作组
 
-该限制包括关闭所有学校，体育活动也取消了两周。同时禁止家庭间的互动往来和某些类型的个人聚会，以及提前关闭商店、酒吧和赌场。非必需的工作也被鼓励在家进行，当地时间23点重新实行宵禁。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06230024/Screenshot-2021-05-06-215935.jpg)
-*图片来源：zerohedge.com*
-
-塞舌尔自今年1月开始接种疫苗以来，在短短四个月的时间里，从531个感染病例和1例死亡，达到目前6373个病例，死亡人数为146人，感染率上升了10倍以上，死亡率更加夸张。国家卫生部长Peggy Vidot在周二的新闻发布会上说：“尽管我们正在做出各种特殊的努力，但我国的Covid-19情况现在很严重，上周每天都有许多病例报告 “。
-
-目前虽然还很难判断是什么原因导致的塞舌尔病例激增，但是达特茅斯大学盖瑟尔医学院的临床医学教授丹尼尔-卢西在一篇博文中说，在2月份的检测中发现了中共病毒南非变异株B.1.351。对于南非变异株，科学家们一致认为，它可以逃避免疫，并使注射疫苗在预防感染方面减弱30%。
-
-截至4月12日，塞舌尔59%的国民接种的是中共国药集团生产的疫苗，其余的是阿斯利康公司在印度授权生产的Covishield疫苗。路透社称，最近见到的一份文件显示，对于中国国药集团所提供的关于其中共病毒疫苗导致部分病患出现严重副作用风险的数据，令世界卫生组织(WHO)专家的“信心非常低”，但对其预防新冠疾病的能力总体上有信心。在看到塞舌尔的这组数据之后，不知世卫专家的信心还会剩下多少？
-
-据独立报报道，欧盟药品监管机构周二宣布，他们已经开始对中共国药集团的一款疫苗——科兴疫苗（Sinovac）进行滚动审查，以评估其有效性和安全性，为在27国集团的使用做第一步准备工作。到目前为止，EMA已经批准了四种冠状病毒疫苗，并还在对其他三种疫苗进行滚动审查：德国生物技术公司CureVac开发的疫苗、美国开发的Novavax和俄罗斯的Sputnik V。
-
-在最近的一个视频圆桌会议中，5位被认为有资格发声的医学博士表态，他们每一个人都认为这些疫苗不是疫苗，而是旨在杀死人类的生物武器。这些高素质的医生不仅讨论了正在发生的问题的原因，还在最后给出了实用的建议，即我们现在可以做什么来保护自己，从而阻止全球主义者试图减少世界人口对人类发动这种攻击。
-
-资料来源：
-
-[https://cn.reuters.com/article/who-sinopharm-0505-wedn-idCNKBS2CN02E](https://cn.reuters.com/article/who-sinopharm-0505-wedn-idCNKBS2CN02E)
-
-[https://www.zerohedge.com/covid-19/country-worlds-highest-vaccination-rate-orders-new-lockdown-covid-cases-surge](https://www.zerohedge.com/covid-19/country-worlds-highest-vaccination-rate-orders-new-lockdown-covid-cases-surge)
-
-[https://www.bloombergquint.com/politics/world-s-most-vaccinated-nation-reintroduces-curbs-as-cases-surge](https://www.bloombergquint.com/politics/world-s-most-vaccinated-nation-reintroduces-curbs-as-cases-surge)
-
-[https://rumble.com/vg3drt-urgent-5-doctors-agree-that-covid-19-injections-are-bioweapons-and-discuss-.html](https://rumble.com/vg3drt-urgent-5-doctors-agree-that-covid-19-injections-are-bioweapons-and-discuss-.html)
-
-[https://www.independent.co.uk/news/eu-regulators-start-review-of-chinas-sinovac-vaccine-european-medicines-agency-china-sinovac-netherlands-brazil-b1841785.html](https://www.independent.co.uk/news/eu-regulators-start-review-of-chinas-sinovac-vaccine-european-medicines-agency-china-sinovac-netherlands-brazil-b1841785.html)
-
-编辑：文顺 校对/发稿：Helen
-
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
-
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
 
 
 
 
-0
+
+因“7.21查册案”被定罪的知名传媒人蔡玉玲，5日在Facebook上表示：我今日已委讬律师就“7.21查册案”进行上诉。
+
+记得当日判决罪成立我踏出法庭，一个我每次上庭都来声援的前辈，上前拥抱已哭得双眼通红的我，劝我“要自私点，多替自己想想……”朋友和家人心痛我的遭遇，为我背负上沉重的责任而难过，令我更不能自已。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06214342/Picture1-14.png)
+有挣扎过，是否要自私一点，放下案件、放过自己，“爱怎样就怎样吧”；但悲伤的情绪过后，反复思量，我知道此刻若放弃追求公义，必定令我悔恨终生、夜不能寐。
+
+我实在没有乐观的理由，剧变的政治气候、急速紧缩的言论空间，愈来愈多声音被消失，香港人似乎开始习惯不敢言、不能言。所谓“假新闻”立法来势汹汹，在世界新闻自由日，业界对新闻自由评分跌至新低。香港电台开始清洗历史纪录、开除正直称职的记者。
+
+选择踏上这条路不是草率的决定，无论赢或输，案件最终或须上移至终审法院，我已有一定的心理准备。身为传媒人，我一直以报道事实、说真话为职业，在香港沦陷之时，我期许自己“活在真实中”，真诚、善良、正直地活着。
+
+#我不会放弃#大家一起斗争
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06211944/2-4.png)
+本栏小编想起了在香港立法会大楼正面门廊顶端伫立的正义女神泰美斯（Themis）的雕像。女神右手握天秤，左手持剑，分别代表公正和权力。法律面前人人平等，所以来自希腊神话的泰美斯也铁面无私地蒙住双眼，象征法庭并不会因为涉案者的身份或地位而另眼相看。但《国安法》在香港实施后，权大于法的准则已令香港失去公平、公正以及公义。无论涉案者身份或地位，只要涉及动摇独裁政权的利益，一切公正、公义都将被视为儿戏。还何来所谓公平的法治？但香港不同于中共国内地，内地百姓是从来未感受或经历过真正的民主法治，而香港人民是曾经拥有过民主式的法治的，在各区议会选举中就已经充分体现。因此相信港人一定不会轻易向不义之法治低头。
+
+引用来源：
+
+[https://m.facebook.com/story.php?story\_fbid=10157821915147021&id=684887020](https://m.facebook.com/story.php?story_fbid=10157821915147021&amp;id=684887020)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205738/M5-1.jpg)
+编辑/校对/发稿：Delilah小胖
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
+
+
+
+
+
++1

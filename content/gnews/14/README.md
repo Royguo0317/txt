@@ -1,57 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【聚焦】盖茨基金会资助华大基因，病毒测试“采集”美国人DNA数据
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1182242/)
+## 【时事解析】接近群体免疫的塞舌尔感染率激增而重新实施限制
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1182217/)
 
-#### **翻译：小红帽**
+作者：休斯顿星光农场 写作部 H.B
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-03-25-230524-1.jpg)
+据多家媒体报道，太平洋岛国塞舌尔尽管已有超过60%成年人接种了两剂新冠病毒疫苗，但感染率依然激增，现在该国被迫重新实施限制。
 
-#### **校对：文泓**
+该限制包括关闭所有学校，体育活动也取消了两周。同时禁止家庭间的互动往来和某些类型的个人聚会，以及提前关闭商店、酒吧和赌场。非必需的工作也被鼓励在家进行，当地时间23点重新实行宵禁。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06230024/Screenshot-2021-05-06-215935.jpg)
+*图片来源：zerohedge.com*
 
-#### **编辑/译评：枳实**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06230112/7761156b8fb86807.png)
-图片来源：墨尔本雅典娜农场设计组（精灵蓝）
+塞舌尔自今年1月开始接种疫苗以来，在短短四个月的时间里，从531个感染病例和1例死亡，达到目前6373个病例，死亡人数为146人，感染率上升了10倍以上，死亡率更加夸张。国家卫生部长Peggy Vidot在周二的新闻发布会上说：“尽管我们正在做出各种特殊的努力，但我国的Covid-19情况现在很严重，上周每天都有许多病例报告 “。
 
-**译评：**
+目前虽然还很难判断是什么原因导致的塞舌尔病例激增，但是达特茅斯大学盖瑟尔医学院的临床医学教授丹尼尔-卢西在一篇博文中说，在2月份的检测中发现了中共病毒南非变异株B.1.351。对于南非变异株，科学家们一致认为，它可以逃避免疫，并使注射疫苗在预防感染方面减弱30%。
 
-闫博士一年多前就揭露中共病毒来源于中共军方实验室，到今天才有一位大国元首[巴西总统站出来把这个问题提上台面](https://twitter.com/AFP/status/1390260059083403264?s=20)，在配备手语翻译的正式新闻发布会场合提出这个病毒是否是生物武器的问题，而且由美联社第一时间报道了出来。而本文揭露的中共大规模盗取美国人基因信息与中共生物武器项目相联系，正是对应了郭先生之前所揭露的中共“灭白计划”，也与正式之前曝光的[迟浩田内部讲话](https://gnews.org/zh-hans/982105/)互相印证。“灭白计划”比中共病毒来源于中共军方更加邪恶，而且令人难以置信，然而它和后者一样已经越来越成为屋子里的大象，或者说没穿衣服的皇帝，人们终于开始注意到它越来越难以忽视的存在，唯一的障碍只是全世界的民意和决心而已。
+截至4月12日，塞舌尔59%的国民接种的是中共国药集团生产的疫苗，其余的是阿斯利康公司在印度授权生产的Covishield疫苗。路透社称，最近见到的一份文件显示，对于中国国药集团所提供的关于其中共病毒疫苗导致部分病患出现严重副作用风险的数据，令世界卫生组织(WHO)专家的“信心非常低”，但对其预防新冠疾病的能力总体上有信心。在看到塞舌尔的这组数据之后，不知世卫专家的信心还会剩下多少？
 
-**译文：**
+据独立报报道，欧盟药品监管机构周二宣布，他们已经开始对中共国药集团的一款疫苗——科兴疫苗（Sinovac）进行滚动审查，以评估其有效性和安全性，为在27国集团的使用做第一步准备工作。到目前为止，EMA已经批准了四种冠状病毒疫苗，并还在对其他三种疫苗进行滚动审查：德国生物技术公司CureVac开发的疫苗、美国开发的Novavax和俄罗斯的Sputnik V。
 
-据《国家脉搏》披露，华大基因——这家与中共有联系的基因组学公司被美国官员标记为“采集”美国人的DNA——华大集团已经与比尔和梅林达-盖茨基金会进行了广泛的合作。
+在最近的一个视频圆桌会议中，5位被认为有资格发声的医学博士表态，他们每一个人都认为这些疫苗不是疫苗，而是旨在杀死人类的生物武器。这些高素质的医生不仅讨论了正在发生的问题的原因，还在最后给出了实用的建议，即我们现在可以做什么来保护自己，从而阻止全球主义者试图减少世界人口对人类发动这种攻击。
 
-据美国前情报官员称，在《六十分钟》栏目曝光了华大基因利用中共病毒测试“收集、储存和利用”美国公民的生物识别信息后，该公司最近受到了抨击。更重要的是，路透社最近的一篇文章将该公司与中国共产党的军队联系起来。
+资料来源：
 
-除了奥巴马政府帮助华大基因能够在美国站稳脚跟外，比尔和梅林达-盖茨基金会在华大集团的美国扩张中也发挥了关键作用。
+[https://cn.reuters.com/article/who-sinopharm-0505-wedn-idCNKBS2CN02E](https://cn.reuters.com/article/who-sinopharm-0505-wedn-idCNKBS2CN02E)
 
-2012年9月，这位微软创始人（比尔.盖茨）的基金会（与华大基因）签署了一份《谅解备忘录》——就全球健康和农业发展方面达成合作，目标是实现健康和农业发展的共同目标”。
+[https://www.zerohedge.com/covid-19/country-worlds-highest-vaccination-rate-orders-new-lockdown-covid-cases-surge](https://www.zerohedge.com/covid-19/country-worlds-highest-vaccination-rate-orders-new-lockdown-covid-cases-surge)
 
-华大基因的联合创始人赞扬了这项协议，庆祝即将到来的“人类、植物和动物基因组学领域的科学突破”。他还透露，合作的重点是对基因组进行测序——这正是《六十分钟》栏目中标明的国家安全威胁的活动。
+[https://www.bloombergquint.com/politics/world-s-most-vaccinated-nation-reintroduces-curbs-as-cases-surge](https://www.bloombergquint.com/politics/world-s-most-vaccinated-nation-reintroduces-curbs-as-cases-surge)
 
-“我们为人类基因组计划以及许多关键动植物物种和人类疾病的基因组测序做出了贡献，包括水稻基因组的初步测序，以及我们参与的水稻万个基因组计划、千种动植物基因组计划。华大基因期待着与比尔及梅林达-盖茨基金会进行此次重要合作，应用基因组学研究用来造福全球人类健康。”
+[https://rumble.com/vg3drt-urgent-5-doctors-agree-that-covid-19-injections-are-bioweapons-and-discuss-.html](https://rumble.com/vg3drt-urgent-5-doctors-agree-that-covid-19-injections-are-bioweapons-and-discuss-.html)
 
-这份备忘录（出台）早于盖茨2010年对华大集团中国总部的访问。当时盖茨在那里目睹了《金融时报》所描述的华大集团的基因测序操作情况。
+[https://www.independent.co.uk/news/eu-regulators-start-review-of-chinas-sinovac-vaccine-european-medicines-agency-china-sinovac-netherlands-brazil-b1841785.html](https://www.independent.co.uk/news/eu-regulators-start-review-of-chinas-sinovac-vaccine-european-medicines-agency-china-sinovac-netherlands-brazil-b1841785.html)
 
-2010年，比尔-盖茨参观了中国深圳郊区的一个工业区里的一栋不起眼的建筑。建筑里面有一排排高科技机器器嗡嗡作响。这很容易被误认为是一个匿名的数据仓库，但是，盖茨先生和盖茨基金会中国业务负责人叶雷(**Ray Yip**)那天看到的却是另一番景象。当他们参观华大基因总部时，这两个人被这家生物技术公司的科学家的雄心壮志所震惊。华大基因总部里面有150多台最先进的基因测序机，每天分析相当于数千个人类基因组。该公司正在朝着建立一个基于数百万人DNA的巨大图书馆的目标迈进。华大基因的高管们认为这不是最终目标，而是新药发现、先进基因研究和公共卫生政策转型的跳板。
+编辑：文顺 校对/发稿：Helen
 
-叶雷(**Ray Yip**)称赞这项工作就是“打破常规”，“开放”和“自由”：
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
 
-“我们也感到吃惊，我们从未想过会找到这样一种创新的方法。华大基因属于自己的联盟—开放和自由。 大多数人只将华大基因视为DNA分析的服务提供商，华大基因正在建立的数据库将使它们变得无比强大。”
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
 
-盖茨基金会还与中共科学技术部和农业科学院等机构一起，资助了与基因组测序有关的华大基因项目。
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
 
-同样，比尔和梅琳达·盖茨基金会全球卫生计划的前总裁Tadataka Yamada博士，也是华大基因科学顾问委员会主席。
 
-2016年，华大基因在美国华盛顿州（微软和比尔及梅琳达·盖茨基金会总部所在地）成立了一家美国办事处。
 
-华大基因与华盛顿州的关系（密切），似乎也影响了华大基因决定，将中共病毒测试套件放在华盛顿州。这是华大基因“采集”美国人基因数据的计划的一部分。
-
-“去年三月初，华盛顿州是美国首次严重的冠状病毒爆发地。由于新冠病毒发生率和检测需求激增，全球最大的生物技术公司华大集团（总部位于中国的全球巨头）向华盛顿州提供诱人的建议。华大集团在给州长的一封引人注目的私人信件中，提议建立并帮助运营最先进的新冠病毒测试实验室。” 六十分钟栏目总结道。
-
-但在国家情报局局长办公室的干预下，华盛顿州官员们最终拒绝了这个提议，因为华大基因与中国政府有关联。
-
-**原文链接：**
-
-[EXC: Bill Gates Foundation Funded Genomics Firm ‘Mining’ DNA Data Through COVID Tests. (thenationalpulse.com)](https://thenationalpulse.com/exclusive/bgi-genomics-gates-foundation-collab/)
 
 0

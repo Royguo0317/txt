@@ -1,40 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 一场婆媳战引发的暗黑思考
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1181625/)
+## 5月6日美国政要和政评家反共推特精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1181651/)
 
-**作者：加拿大多伦多枫叶农场 Dingding**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06201702/55-1.jpg)
-去年，28岁的江西人姚策因从小携带乙肝病毒而致肝癌，需要接受肝移植手术。他在上海一家医院和自己父母及姥姥进行配型体检时，才发现自己并非父母亲生。姚策的这一经历，牵出了28年前河南开封淮河医院错抱孩子一案。
+参议员瑞克·斯科特： 我赞扬七国集团（G7）的外交部长反对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的过度扩张和严重的侵犯人权行为，并加入美国支持我们的民主盟友台湾。我们都必须团结起来反对中共国的种族灭绝和压迫.我敦促参议院的同事们支持我的《世卫组织问责法》的即时通过。我们必须让世卫WHO为帮助中共国掩盖COVID-19的信息负责，并确保在台湾成为会员国之前，美国不会再给它一毛钱。
 
-于是，通过公安机关和各路媒体，姚家找到了自己的亲生儿子，姚策也寻回了自己的亲生父母郭氏一家。本来这事到此算是有个较好的结果，但姚策与养母许敏之间因钱财问题就此有了一些隔阂，以至俩人28年的母子情骤然降温。
 
-今年3月23日，姚策去世。按说，姚策母子的纠葛到此应该告一段落了，没想到姚策妻子熊磊与婆婆许敏在媒体上也杠上了。5月3日，熊磊通过媒体发文，讲述姚策与许敏的纠葛。这本是一出人间闹剧里再寻常不过的一些个人恩怨，但熊磊的发文却无意间透露出中共国器官移植行业的影影绰绰。
 
-姚策当初得知自己病情严重不能手术时，情绪非常低落。他的医生一樊姓院士告诉他，先做几个疗程的保守治疗，待时机成熟时再择机进行肝移植手术，“并明确表示肝源是充足的，不需要担心”。
+> I applaud the G7 foreign ministers for taking a stand against Communist China’s overreach & horrific human rights abuses & joining the U.S. in supporting our democratic ally Taiwan. We must all stand united against Communist China’s genocide & oppression: [https://t.co/KRKNXyqttf](https://t.co/KRKNXyqttf)
+> — Rick Scott (@SenRickScott) [May 6, 2021](https://twitter.com/SenRickScott/status/1390421334379929609?ref_src=twsrc%5Etfw)
 
-说者无意，听者有心。熊磊引用的樊院士的话让人不寒而栗。每个人体器官都属于每个个体所有，需依存于个体活着的身体，“肝源充足”一说何来之有？难道又是“中国特色”之独有？
 
-即便有人去世后捐出其器官，也得有与之配型成功的受捐者，捐出的器官才用得上。况且，由于供体器官离开人体后不能长久保存，通常供体和受体双方还会受到距离的限制。因此，由去世的供体提供的肝源恐怕称不上“充足”吧？
 
-据美国肝脏基金会网站介绍，人体内脏器官里唯一可以再生的器官是肝脏，肝脏被切除50%后还可继续生长，肝脏移植的供体也可以来自活体。但这也得有配型适合的供体愿意在活着时割肝救人才能实现。这样的活体供体机率恐怕也不能称之为“充足”吧？
+众议员Mike Gallagher’s: 越来越清晰的是，实验室泄漏假说根本不能被排除，无论 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 对此有何看法，我们都需要答案。 【[http://medium.com](https://t.co/c8i5z8Dyvh?amp=1)文章：新冠病毒起源-追循线索】
 
-来自中研网的信息显示，“截止2020年6月30日，通过各途径进行器官捐献志愿登记人数达2146086人。”登记的这两百多万人供姚策做移植配型，其机率倒是可以表现出“充足”来。可这两百多万人都还活着，姚策的病情恐怕也等不到适合的供体死亡之时。况且， 中共国每年有约30万终末期肝病患者需要肝移植，但能开展的移植手术不超过1万例。这说明肝源紧缺而不是“充足”。
 
-综合供、受体配型，排队等候和供、受体距离等因素来看，“肝源充足”的情况在正常开展器官移植手术的国家里几乎是不存在的。那么，樊院士明确表示的“肝源充足”从何而来？这里面是否藏有不能见光的秘密？
 
-(文章仅代作者观点，与GNEWS网站无关)
+> It’s becoming increasingly clear that the lab leak hypothesis cannot be dismissed out of hand. We need answers, regardless of how the Chinese Communist Party feels about it. [https://t.co/DLWEXf56CK](https://t.co/DLWEXf56CK)
+> — Rep. Mike Gallagher (@RepGallagher) [May 6, 2021](https://twitter.com/RepGallagher/status/1390418220734103553?ref_src=twsrc%5Etfw)
 
-**新闻来源：**
-[1] [姚策妻子再发文：割肝救子不属实，都是人设，姚策是配合表演](https://www.sohu.com/a/464311675_612784?spm=smpc.home.top-news4.5.1620006759006pcqxFqq&amp;_f=index_news_16)
-[2][“错换人生”内幕：姚策把养母许敏拉黑！母子关系已崩塌！](https://3g.163.com/dy/article_cambrian/G3ROH4LP0537A693.html)
-[3] [肝移植](https://liverfoundation.org/zh-CN/for-patients/about-the-liver/liver-transplant/#what-happens-when-a-donor-liver-becomes-available)
-[4][2020年中国器官捐献人员数量、人员分布及管理机构情况分析：器官捐献志愿登记人数不断增加\[图\]](https://www.chyxx.com/industry/202101/921433.html)
-[5] [中国器官移植发展报告(2019) 未来中国器官移植市场需求庞大](https://www.chinairn.com/hyzx/20201221/155643871.shtml)
 
-***责任编辑**：日本东京方舟农场 老蚂蚁666
-**编辑／校对**：韩国首尔喜韩农场 文迹～见证神迹
-**发布**：华盛顿DC农场 文顾*
+
+参议员霍利新闻办公室： 参议员乔什·霍利再次呼吁对大科技垄断企业采取反托拉斯行动，特别是对脸书FB继续封禁川普总统而大声疾呼。 霍利说：“现在，脸书拥有一切权力。” “消费者的权利却为零。” 【转福克斯新闻：霍利：脸书Facebook董事会对川普的禁令，证明了是时候该认真对待反托拉斯行动了】
+
+
+
+> Sen. Josh Hawley renewed his call for antitrust action against Big Tech monopolies, specifically calling out Facebook's continued ban of Former President Trump.
+> 
+> "Right now, Facebook has all the power," Hawley said. "Consumers have zero power." [https://t.co/N4DMIZecse](https://t.co/N4DMIZecse)
+> — Senator Hawley Press Office (@SenHawleyPress) [May 6, 2021](https://twitter.com/SenHawleyPress/status/1390353374571343875?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特: [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 是世界上最糟糕的污染国，我们不能相信它会做出任何改变。 解决我们的气候变化需要切实的解决方案，但我们不能假装与像中共国 这样的巨型污染者达成无用的协议能为推进这项工作做任何事。 【转推文：最新：据分析,2019年中国的温室气体排放量,超过美国和发达国家的总和】
+
+
+
+> Communist China is the world’s worst polluter & we can't trust it will do anything to change course.
+> 
+> Addressing our changing climate requires real solutions, but we can't pretend toothless agreements with mega-polluters like Communist China will do anything to advance that work. [https://t.co/RJcsuBBi38](https://t.co/RJcsuBBi38)
+> — Rick Scott (@SenRickScott) [May 6, 2021](https://twitter.com/SenRickScott/status/1390376959687933966?ref_src=twsrc%5Etfw)
+
+
+
+参议员卢比奥新闻办公室： [#印度](https://twitter.com/hashtag/%E5%8D%B0%E5%BA%A6?src=hashtag_click) 正确地将象华为[@Huawei](https://twitter.com/Huawei)和中兴[@ZTEdevice](https://twitter.com/ZTEDevice)这样的中国国有企业排除在了他们的5G试验之外。 [#华为](https://twitter.com/hashtag/%E5%8D%8E%E4%B8%BA?src=hashtag_click) 和其他中国公司带来的安全风险实在是太高了，更多的国家应该效仿印度。 【转路透社印度的推文及文章：印度并未将华为列为5G试验参与者】
+
+
+
+> [#India](https://twitter.com/hashtag/India?src=hash&amp;ref_src=twsrc%5Etfw) has rightfully excluded Chinese state-directed companies like [@Huawei](https://twitter.com/Huawei?ref_src=twsrc%5Etfw) & [@ZTEdevice](https://twitter.com/ZTEDevice?ref_src=twsrc%5Etfw) from participating in their 5G trials. 
+>  
+> The security risk posed by Huawei & other Chinese companies are simply too high and more nations should follow India. [https://t.co/dRx9yuyuKY](https://t.co/dRx9yuyuKY)
+> — Senator Rubio Press (@SenRubioPress) [May 6, 2021](https://twitter.com/SenRubioPress/status/1390291790880772098?ref_src=twsrc%5Etfw)
+
+
 
 0
