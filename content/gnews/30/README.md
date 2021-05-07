@@ -1,61 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/04/30 围炉夜话第二十二期
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1183256/)
+## 欧中关系恶化 欧盟暂停批准投资协议
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1183275/)
 
-整理：桂花酒 | 素材制作：bobby，健身健心 | 校对：X-Wing飞得更高 | 审核：万人往 | Page：Daoiii
+新闻来源：《香港自由新闻》| 作者：AFP | 发布时间：2021年5月4日
+翻译/简评：新街口 | 校对/审核：万人往 | Page：Daoiii
 
-### [G-TV直播视频链接](https://gtv.org/video/id=608c06d36c00a14130e3498d)
+[!\[\]()!\[\](https://spark.adobe.com/page/ke22X8nkGtR18/images/1c5327f8-726d-4a33-978b-b58572145935.png?asset_id=0bb6636c-18a9-4120-9d29-1155844286e2&amp;img_etag=%22e122e958e753b909e764d4b10df4fd4c%22&amp;size=1024)](https://spark.adobe.com/page/ke22X8nkGtR18/images/1c5327f8-726d-4a33-978b-b58572145935.png?asset_id=0bb6636c-18a9-4120-9d29-1155844286e2&amp;img_etag=%22e122e958e753b909e764d4b10df4fd4c%22&amp;size=1024)资料照片：欧盟委员会副主席杜姆布罗夫斯基斯
 
-[!\[\]()!\[\](https://spark.adobe.com/page/etHtvugGljQ5s/images/dfd9652c-8a67-405b-a25b-ba299c90f69e.jpg?asset_id=509b2c05-fa7f-4359-a56e-5d5c3a0c421a&amp;img_etag=%22436f04e238c13b7c0157f9846f9159de%22&amp;size=1024)](https://spark.adobe.com/page/etHtvugGljQ5s/images/dfd9652c-8a67-405b-a25b-ba299c90f69e.jpg?asset_id=509b2c05-fa7f-4359-a56e-5d5c3a0c421a&amp;img_etag=%22436f04e238c13b7c0157f9846f9159de%22&amp;size=1024)
+**简评：**
 
-#### 封杀、抹黑、还有…..中共折腾三件事
+**本文介绍了因新疆种族灭绝问题，导致了欧盟与中共的相互制裁，在外交关系急剧恶化的情况下，欧盟终止了与中共国达成大规模投资协议的努力。**
 
-本期我们从印度病毒爆发、国内特斯拉遭遇维权、清华校庆艳舞、赵婷被“辱华”等话题，讨论中共如何漠视一切生命。
-![新冠疫情：印度死亡人数新纪录政府与时间赛跑运送氧气巴西游行支持总统“委任”]()![新冠疫情：印度死亡人数新纪录政府与时间赛跑运送氧气巴西游行支持总统“委任”](https://chinese.aljazeera.net/wp-content/uploads/2021/05/1315456370.jpg?resize=770%2C513)
-4月18印度疫情突然爆发，单日新增确诊高达26万，累计病例1500万。首都新德里不得不封锁应对。当印度疫情使得国家陷于瘫痪之时，世界的焦点再次转向病毒。印度遍地哀鸿生灵涂炭，成为人间地狱反而让中共幸灾乐祸。一幅中共政法委微博“印度点火vs中国点火”的图片遭到网友炮轰后，中共慌忙删帖掩藏罪证。口头许诺的救援物资尚未就位，外交部却公然索要“感谢”。去年武汉疫情爆发，印度军机2月26日援助武汉15吨抗疫物资，中共此时停飞货运航班落井下石。不怕虎生三个口，只怕人生两样心。邪恶至此，怎不让印度庆幸参与美国发起的四国会谈联合抗共？同样是华人的台湾政府雪中送炭，印度怎不由衷感谢？两两对比，“中共援助”是来者不善。
-![特斯拉维权事件，比亚迪是幕后推手？比亚迪巴不得特斯拉热卖才对|电动汽车|马斯克_网易订阅](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0428%2Faa4d9279j00qsa390004kc000xc00k0m.jpg&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
-和被抹黑的印度总理莫迪相比，特斯拉的马斯克几年前在中国可谓风光无限了。有道是树大招风，马斯克也成了洋韭菜。马斯克充耳不闻中共嘴边的前世不忘后世之师，仍与虎谋皮，忘了韩国乐天的遭遇，等来结局只能被关门打狗。能发射卫星看清世界，却不能看透中共，人性贪婪怎能不付出代价？
+**最近几年，中共战狼外交四处出击，尤其是在中共病毒起源和新疆种族灭绝问题上，不断地用威胁和恐吓的方式回应西方国家对中共提出的合理外交要求。**
 
-![清华大学女生校庆舞惹议](https://s.rfi.fr/media/display/1e0b4fb8-a61d-11eb-ae06-005056bf87d6/w:1280/p:16x9/c3e9a51d313ef8e5a7f25205ff342e6c.webp)
+**例如从2020年开始，澳大利亚因为要求调查中共病毒起源，不但受到了中共国内媒体和外交部战狼的言语攻击，还受到了持续的贸易制裁；而在3月的阿拉斯加中美会谈中，杨洁篪16分钟谩骂式的发言则把中共的丑恶战狼外交表演推上了一个高潮。**
 
-校训自强不息、厚德载物的清华大学，校庆本来是件好事。清华与华清不过顺序颠倒，却在现实中让人分不清。百年树人的教育与媚俗的艳舞让人不禁要问，高达317亿经费换来搔首弄姿？人们所见是基本道德与价值观的坍塌。
+[!\[\]()!\[\](https://spark.adobe.com/page/ke22X8nkGtR18/images/b091c458-56b2-4d74-887f-8f5c99a8153b.jpg?asset_id=8659edf2-7fdb-4dce-a848-bf58305e9e23&amp;img_etag=%22af8499fe22c7118807d24abf934f48bd%22&amp;size=1024)](https://spark.adobe.com/page/ke22X8nkGtR18/images/b091c458-56b2-4d74-887f-8f5c99a8153b.jpg?asset_id=8659edf2-7fdb-4dce-a848-bf58305e9e23&amp;img_etag=%22af8499fe22c7118807d24abf934f48bd%22&amp;size=1024)
 
-![中国封杀奥斯卡赵婷变成“那个女孩” | 德国之声来自德国介绍德国| DW | 27.04.2021]()![中国封杀奥斯卡赵婷变成“那个女孩” | 德国之声来自德国介绍德国| DW | 27.04.2021](https://static.dw.com/image/57332299_303.jpg)
+**但中共的这些威胁和恐吓并未让西方国家屈服，反而遭到了全世界民主国家团结一致地围堵。新近形成的美、日、印、澳四国联盟已经对中共国形成了战略包围；本月召开的G7会议邀请了亚太地区除中共国之外的所有重要国家：澳大利亚、印度、日本、韩国、和东盟组织，而新疆种族灭绝和中共病毒则是此次会议的重要议题之一。**
 
-曾经是华人骄傲的导演赵婷，因为获奖而成了反面教材，只为说了句中国充满了谎言揭了中共的底，和刘晓波一样成中共眼中钉。和平奖、奥斯卡都不能让“党”丢人，刘晓波被灭口了，赵婷被泼脏水时，人格分裂、唯党是瞻的奴才们要登台表演了。
+**中共的战狼外交实质是理屈词穷的一种表现，也是用来欺骗、忽悠国内百姓的一种手段。而真实情况是，战狼外交在国际社会中早已四处碰壁。如郭先生4月10日盖特所说：“共产党的战狼外交已经迅速地变成了疯狗外交……人人喊打。”**
 
-认清中共本质为何要不断以无辜百姓的生命为代价？印度政府并未封杀疫情报道和中共容不得半点批评反差强烈。无论是10亿大国，还是区区草民，只要违逆中共，就会睚眦必报。信息高墙不倒，民智难开。中共毁灭一切的模式，还能存在多久？
+[!\[\]()!\[\](https://spark.adobe.com/page/ke22X8nkGtR18/images/9bba3021-8a47-49ae-a682-a030f750b1c9.jpg?asset_id=3244cb94-11b7-46dc-9f29-7d44fce4ddc8&amp;img_etag=%2230ab00c43a40024ca662521b242e836b%22&amp;size=1024)](https://spark.adobe.com/page/ke22X8nkGtR18/images/9bba3021-8a47-49ae-a682-a030f750b1c9.jpg?asset_id=3244cb94-11b7-46dc-9f29-7d44fce4ddc8&amp;img_etag=%2230ab00c43a40024ca662521b242e836b%22&amp;size=1024)
 
-正是：
+**原文翻译：**
 
-印度疫情知冷暖，
-斯拉载狼船已翻。
-清华华清舞难辨，
-赵婷载誉谁难堪？
+## 外交关系恶化，欧盟暂停批准中共国投资协议的努力
 
-[!\[\]()!\[\](https://spark.adobe.com/page/etHtvugGljQ5s/images/466dc55b-a741-4d9a-9813-73a533a677f6.png?asset_id=dc54f96d-283a-4c71-8c13-d1fff554f884&amp;img_etag=%22b39c7f7583f648ed517d4e8c6ecf1f80%22&amp;size=1024)](https://spark.adobe.com/page/etHtvugGljQ5s/images/466dc55b-a741-4d9a-9813-73a533a677f6.png?asset_id=dc54f96d-283a-4c71-8c13-d1fff554f884&amp;img_etag=%22b39c7f7583f648ed517d4e8c6ecf1f80%22&amp;size=1024)
+**欧盟最高贸易官员周二表示，鉴于双方在针锋相对的相互制裁后，外交关系急剧恶化，欧盟已暂停与中共国达成大规模投资协议的努力。**
 
-围炉夜话从政治经济角度、历史与现实对照，传真相、反洗脑，将持续为您带来墙内最新事件并分享我们观点。
+[!\[\]()!\[\](https://spark.adobe.com/page/ke22X8nkGtR18/images/8bc05f3a-df6c-4847-abb7-fa1e7c52624f.png?asset_id=1f320fad-9cf2-42ad-8772-450e698cc809&amp;img_etag=%22b3ac26cbaf42e6e3109505b3909683bb%22&amp;size=1024)](https://spark.adobe.com/page/ke22X8nkGtR18/images/8bc05f3a-df6c-4847-abb7-fa1e7c52624f.png?asset_id=1f320fad-9cf2-42ad-8772-450e698cc809&amp;img_etag=%22b3ac26cbaf42e6e3109505b3909683bb%22&amp;size=1024)档案照片：欧盟
 
-每周六GTV-UK-2号台定时直播
+欧盟执行副总裁Valdis Dombrovskis在接受法新社采访时说：“从某种意义上说，我们现在已经暂停了……来自欧盟委员会方面的政治外联活动。”
 
-- 英国时间：12.00-14.00
-- 美东时间：7.00-9.00
-- 盘古时间：20.00-22.00
+Dombrovskis说：“很显然，在目前的情况下，欧盟实施了针对中共国的制裁，中共国也实施了包括针对欧洲议会议员在内的反制裁，这不利于批准该协议。”
+
+他补充说，试图批准该协议“将真正取决于更广泛的中欧关系将如何发展”。
+
+令许多人感到惊讶的是，在德国的最终推动下，欧盟和中共国在12月底批准了一项重大投资协定，从而结束了长达7年艰苦的谈判。
+
+这项协议一直被认为是欧洲公司向中共国长期封闭的经济开放的必要举措，但它肯定会在27个成员国以及欧洲议会中面临艰难的批准。
+
+拉脱维亚前总理Dombrovskis负责牵头欧盟的批准程序，但该协议已经受到了关键欧洲议会议员的反对。
+
+3月份，四名中共国官员因涉嫌在中国偏远的西部新疆地区侵犯人权，受到了欧盟的制裁。
+
+作为回应，中共国也对欧洲的政客、学者和研究团体实施了制裁。
+
+🔗[原文链接](https://hongkongfp.com/2021/05/04/breaking-eu-suspends-efforts-to-ratify-china-investment-deal-as-diplomatic-relations-sour/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
-欢迎关注英国伦敦喜庄园艺术组《缪斯殿堂》节目
+编辑：【英国伦敦喜庄园编辑部】Edited by：【Himalaya London Club UK】
 
-- 请订阅 [英国伦敦喜庄园GTV-UK-1号台](https://gtv.org/user/5ee680a45bd6f123dd104807)
-- 请订阅 [英国伦敦喜庄园GTV-UK-2号台](https://gtv.org/user/5fb02ac8bd0d464fad04dfdb)
-- 请订阅 [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://podcasts.apple.com/hk/podcast/%E8%8B%B1%E5%96%9C%E6%97%B6%E4%BA%8B%E6%92%AD%E6%8A%A5/id1547012414?uo=4&amp;itscg=30200&amp;itsct=podcast_box)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/etHtvugGljQ5s/images/97c21993-b74c-4e0f-8c68-799e4003aab0.jpg?asset_id=ec565f89-2d44-4c08-b4da-0cdc6fcfcb61&amp;img_etag=%22040ad02c644aa76a0feff8cb44b5b33b%22&amp;size=1024)](https://spark.adobe.com/page/etHtvugGljQ5s/images/97c21993-b74c-4e0f-8c68-799e4003aab0.jpg?asset_id=ec565f89-2d44-4c08-b4da-0cdc6fcfcb61&amp;img_etag=%22040ad02c644aa76a0feff8cb44b5b33b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/ke22X8nkGtR18/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/ke22X8nkGtR18/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
 
 

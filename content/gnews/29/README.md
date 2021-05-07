@@ -1,64 +1,96 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧中关系恶化 欧盟暂停批准投资协议
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1183275/)
+## 认不清共产主义本质 遏制中共的说法都是纸上谈兵
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1183284/)
 
-新闻来源：《香港自由新闻》| 作者：AFP | 发布时间：2021年5月4日
-翻译/简评：新街口 | 校对/审核：万人往 | Page：Daoiii
+新闻来源：《美国国防部网站》| 作者：DAVID VERGUN | 发布时间： 2021年4月30日
+翻译/简评：叶知秋（文义）| 校对/审核：万人往 | Page：Daoiii
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ke22X8nkGtR18/images/1c5327f8-726d-4a33-978b-b58572145935.png?asset_id=0bb6636c-18a9-4120-9d29-1155844286e2&amp;img_etag=%22e122e958e753b909e764d4b10df4fd4c%22&amp;size=1024)](https://spark.adobe.com/page/ke22X8nkGtR18/images/1c5327f8-726d-4a33-978b-b58572145935.png?asset_id=0bb6636c-18a9-4120-9d29-1155844286e2&amp;img_etag=%22e122e958e753b909e764d4b10df4fd4c%22&amp;size=1024)资料照片：欧盟委员会副主席杜姆布罗夫斯基斯
+[!\[\]()!\[\](https://spark.adobe.com/page/2up80Gy00c85F/images/ce6d900f-7ebf-4d69-945e-beb6052edac1.jpg?asset_id=2675c765-a862-4cc4-ac1b-34c5419874ce&amp;img_etag=%22de6e6ccdd259adcbfe3186aa669cbd3e%22&amp;size=1024)](https://spark.adobe.com/page/2up80Gy00c85F/images/ce6d900f-7ebf-4d69-945e-beb6052edac1.jpg?asset_id=2675c765-a862-4cc4-ac1b-34c5419874ce&amp;img_etag=%22de6e6ccdd259adcbfe3186aa669cbd3e%22&amp;size=1024)
 
 **简评：**
 
-**本文介绍了因新疆种族灭绝问题，导致了欧盟与中共的相互制裁，在外交关系急剧恶化的情况下，欧盟终止了与中共国达成大规模投资协议的努力。**
+是否愿意参与积极灭共，这取决于美国国家利益以及美国在全球的话语权是否受到了挑战。
 
-**最近几年，中共战狼外交四处出击，尤其是在中共病毒起源和新疆种族灭绝问题上，不断地用威胁和恐吓的方式回应西方国家对中共提出的合理外交要求。**
+作为多少年来的世界老大，如果其全球话语权遭到挑战，美国势必要做出反击，而作为民选政府，国家利益从某种程度上也可以说是美国的核心。
 
-**例如从2020年开始，澳大利亚因为要求调查中共病毒起源，不但受到了中共国内媒体和外交部战狼的言语攻击，还受到了持续的贸易制裁；而在3月的阿拉斯加中美会谈中，杨洁篪16分钟谩骂式的发言则把中共的丑恶战狼外交表演推上了一个高潮。**
+这一方面，中共国与之有根本的不同。在中共政权的发展蓝图里存在全球话语权，但是不存在国家利益，而中共国的全球话语权，是为维护其党派利益、家族利益以及个人利益，习近平提出的所谓民族振兴、中国梦，从根本上来说是为以上所列服务的。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ke22X8nkGtR18/images/b091c458-56b2-4d74-887f-8f5c99a8153b.jpg?asset_id=8659edf2-7fdb-4dce-a848-bf58305e9e23&amp;img_etag=%22af8499fe22c7118807d24abf934f48bd%22&amp;size=1024)](https://spark.adobe.com/page/ke22X8nkGtR18/images/b091c458-56b2-4d74-887f-8f5c99a8153b.jpg?asset_id=8659edf2-7fdb-4dce-a848-bf58305e9e23&amp;img_etag=%22af8499fe22c7118807d24abf934f48bd%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/2up80Gy00c85F/images/a5312818-6210-41b6-a56e-d59139cf5271.jpg?asset_id=759514c9-430e-43e3-8eee-58d779b6bbff&amp;img_etag=%2231ac2d729a26c3fbc2e40a0c241ee767%22&amp;size=1024)](https://spark.adobe.com/page/2up80Gy00c85F/images/a5312818-6210-41b6-a56e-d59139cf5271.jpg?asset_id=759514c9-430e-43e3-8eee-58d779b6bbff&amp;img_etag=%2231ac2d729a26c3fbc2e40a0c241ee767%22&amp;size=1024)
 
-**但中共的这些威胁和恐吓并未让西方国家屈服，反而遭到了全世界民主国家团结一致地围堵。新近形成的美、日、印、澳四国联盟已经对中共国形成了战略包围；本月召开的G7会议邀请了亚太地区除中共国之外的所有重要国家：澳大利亚、印度、日本、韩国、和东盟组织，而新疆种族灭绝和中共病毒则是此次会议的重要议题之一。**
+习近平被称为“包子”，但是，他不是傻子，从毛时代到邓时代再到江时代，习不会不清楚，每一个现代皇权时代的代表，结果都不是千秋万代的，这是极权的特征，它不会允许存在两种或以上的不同声音。
 
-**中共的战狼外交实质是理屈词穷的一种表现，也是用来欺骗、忽悠国内百姓的一种手段。而真实情况是，战狼外交在国际社会中早已四处碰壁。如郭先生4月10日盖特所说：“共产党的战狼外交已经迅速地变成了疯狗外交……人人喊打。”**
+美国大力宣传中共国威胁论，很重要的一方面是为了形成一种舆论效应，使其军事利益集团为从国会可以获得必要的发展军备的资助。而是否会从行动上反共灭共，则取决于中共对其构成的威胁是否是现实紧迫的，或者说沼泽地从中共获得的利益是否是持续的。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ke22X8nkGtR18/images/9bba3021-8a47-49ae-a682-a030f750b1c9.jpg?asset_id=3244cb94-11b7-46dc-9f29-7d44fce4ddc8&amp;img_etag=%2230ab00c43a40024ca662521b242e836b%22&amp;size=1024)](https://spark.adobe.com/page/ke22X8nkGtR18/images/9bba3021-8a47-49ae-a682-a030f750b1c9.jpg?asset_id=3244cb94-11b7-46dc-9f29-7d44fce4ddc8&amp;img_etag=%2230ab00c43a40024ca662521b242e836b%22&amp;size=1024)
+中共对美国及世界的攻击是多方面的，而所谓灰色地带战争模式，现在看来，中共在这方面要算是全球领先了。蓝金黄手段、3F计划（郭文贵先生于2017年10月5日在华盛顿召开的新闻发布会上爆料内容）都属于灰色地带战争模式。媒体宣传战争、网络战争方面，中共更是占据了主动。现如今中共利用新冠病毒这一超限生化武器，杀死了世界各国接近300万人，仍然可以堂而皇之地出现在世界舞台，这足见中共对于灰色地带战争模式的使用已经远远超出其他国家。
+
+
+
+而中共可以如此放肆地作恶，更是离不开全球利益集团的精英统治理论，包括美国。处于经济全球化的今天，世界各国之间利益交错，不分彼此，没有绝对的独立经济体的存在。经济利益的分配亦是全球化的，中共国改革开放40多年成就斐然，而改革开放的利益都去了哪里？国家发展？民族振兴？人民富足？都不是。看一看郭文贵先生2017年开始爆料所提到的在王岐山控制下的海航的发展史就可见一斑了。再看看王岐山家族的海外资产，看看中共国李鹏、江泽民、温家宝、习近平等各大家族富可敌国的个人资产就可见所谓的改革红利去了哪里。
+
+而这些也都不是根本的，因为中共的极权统治离不开国际资本力量的支持。从与中共勾兑深厚的美国现任总统拜登家族的例子可以看出，全球财富和利益分配并不限于一国一地，而是全球精英集团共享。
+
+中共国极权统治的最大优势就是统治集团可以自由分配国家财富，而社会财富的创造者，中共国的老百姓，没有财富分配话语权。这一点，全球精英阶层很清楚。但是，有可得利益，中共国的国家利益、民族利益、人民福祉又与他们有什么关系呢？
+
+郭文贵先生在2017年就警告全世界，黑夜即将到来。但是那时候的美国人以及可以与中共抗衡的全球力量并不在乎，他们只关心从中共国流出来的让他们垂涎欲滴的财富是否能进入他们的腰包，却并没有关注中共国的极权统治模式也会在某一天危及到他们自身的安全。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/2up80Gy00c85F/images/8e2c12d8-242a-4d24-8971-c4b855572139.png?asset_id=74a3bafe-7367-4f48-80f8-0cbec27d5c29&amp;img_etag=%221e5d1868a95b0c4422cbc7f066eb7d38%22&amp;size=1024)](https://spark.adobe.com/page/2up80Gy00c85F/images/8e2c12d8-242a-4d24-8971-c4b855572139.png?asset_id=74a3bafe-7367-4f48-80f8-0cbec27d5c29&amp;img_etag=%221e5d1868a95b0c4422cbc7f066eb7d38%22&amp;size=1024)
+
+这些所谓的精英们喜闻乐见中共国老百姓被中共压榨多少年，因为他们可以从中分取巨额利益。他们并没有意识到，共产主义极权的最终目的是要压榨全世界，是要共全世界的产。而当极权政权的实力被无限扩大之后，也将有能力控制这个世界。
+
+全世界的正义力量尤其是我们爆料革命，正走在坚决反共灭共的路上。让我们拭目以待，全世界的资本力量是否能够及时认清共产主义的本质，参与进来，集体灭共。
 
 **原文翻译：**
 
-## 外交关系恶化，欧盟暂停批准中共国投资协议的努力
+## 国防部副部长说与中共国的冲突并非不可避免
 
-**欧盟最高贸易官员周二表示，鉴于双方在针锋相对的相互制裁后，外交关系急剧恶化，欧盟已暂停与中共国达成大规模投资协议的努力。**
+中共国对美国构成的挑战为美国的大多数国防需求设定了目标。国防部副部长凯瑟琳·希克斯(Kathleen H. Hicks)今天表示，尽管存在担忧，但是外交很重要，与中共国的冲突既不可取，也不是不可避免的。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ke22X8nkGtR18/images/8bc05f3a-df6c-4847-abb7-fa1e7c52624f.png?asset_id=1f320fad-9cf2-42ad-8772-450e698cc809&amp;img_etag=%22b3ac26cbaf42e6e3109505b3909683bb%22&amp;size=1024)](https://spark.adobe.com/page/ke22X8nkGtR18/images/8bc05f3a-df6c-4847-abb7-fa1e7c52624f.png?asset_id=1f320fad-9cf2-42ad-8772-450e698cc809&amp;img_etag=%22b3ac26cbaf42e6e3109505b3909683bb%22&amp;size=1024)档案照片：欧盟
+**希克斯在阿斯彭安全论坛的虚拟演讲中谈到了国防部与中共国的竞争，以及国防部为应对这一挑战所做的工作，特别是在军事创新和军事现代化方面。**
 
-欧盟执行副总裁Valdis Dombrovskis在接受法新社采访时说：“从某种意义上说，我们现在已经暂停了……来自欧盟委员会方面的政治外联活动。”
+[!\[\]()!\[\](https://spark.adobe.com/page/2up80Gy00c85F/images/e0f9a8e8-8680-489c-a21b-0515fd89f205.png?asset_id=a0cf4f87-7cfa-4967-a760-4772bd28a1a6&amp;img_etag=%22a21476f22bc312e635d9c5e1939ec9f8%22&amp;size=2560)](https://spark.adobe.com/page/2up80Gy00c85F/images/e0f9a8e8-8680-489c-a21b-0515fd89f205.png?asset_id=a0cf4f87-7cfa-4967-a760-4772bd28a1a6&amp;img_etag=%22a21476f22bc312e635d9c5e1939ec9f8%22&amp;size=1024)
 
-Dombrovskis说：“很显然，在目前的情况下，欧盟实施了针对中共国的制裁，中共国也实施了包括针对欧洲议会议员在内的反制裁，这不利于批准该协议。”
+希克斯说：“中共国具有经济、军事和技术能力来挑战国际体系以及美国在国际体系中的利益。这伴随着持续的冲突在不断发生——从常规的通过使用尖端武器或海上灰色地带战术进行国家管理，到持续的作战行动能力和（拥有）一个扩张的有核能力的企业。”
 
-他补充说，试图批准该协议“将真正取决于更广泛的中欧关系将如何发展”。
+她说，例如北京当局持续利用其海上民兵力量推进其在南中国海提出的非法主张。
 
-令许多人感到惊讶的是，在德国的最终推动下，欧盟和中共国在12月底批准了一项重大投资协定，从而结束了长达7年艰苦的谈判。
+[!\[\]()!\[\](https://spark.adobe.com/page/2up80Gy00c85F/images/e1356009-7ea0-4d41-98d8-2c3595f67e30.png?asset_id=2f782725-1e89-4291-b43c-24219a77cf6e&amp;img_etag=%227e402b1bb05a3d8f72beded814b98f16%22&amp;size=2560)](https://spark.adobe.com/page/2up80Gy00c85F/images/e1356009-7ea0-4d41-98d8-2c3595f67e30.png?asset_id=2f782725-1e89-4291-b43c-24219a77cf6e&amp;img_etag=%227e402b1bb05a3d8f72beded814b98f16%22&amp;size=1024)
 
-这项协议一直被认为是欧洲公司向中共国长期封闭的经济开放的必要举措，但它肯定会在27个成员国以及欧洲议会中面临艰难的批准。
+她说，中共国的军事能力在许多领域都在迅速发展。他们通过加强其实施联合作战的能力持续取得进展，并部署了越来越复杂的常规作战系统，例如远程精确制导和综合防空体系。
 
-拉脱维亚前总理Dombrovskis负责牵头欧盟的批准程序，但该协议已经受到了关键欧洲议会议员的反对。
+希克斯说，中共国也在发展其太空和网络能力，并补充说，中共国构成了多产且有效的网络间谍威胁，并拥有强大的网络攻击能力。
 
-3月份，四名中共国官员因涉嫌在中国偏远的西部新疆地区侵犯人权，受到了欧盟的制裁。
+[!\[\]()!\[\](https://spark.adobe.com/page/2up80Gy00c85F/images/8f4fcac9-4b1a-423a-ae11-3ae6850b85f4.png?asset_id=228a8f45-9e4e-457a-8edd-62dacc2b28f0&amp;img_etag=%229b7168ae72beeaf0f1689fe642dea267%22&amp;size=2560)](https://spark.adobe.com/page/2up80Gy00c85F/images/8f4fcac9-4b1a-423a-ae11-3ae6850b85f4.png?asset_id=228a8f45-9e4e-457a-8edd-62dacc2b28f0&amp;img_etag=%229b7168ae72beeaf0f1689fe642dea267%22&amp;size=1024)
 
-作为回应，中共国也对欧洲的政客、学者和研究团体实施了制裁。
+希克斯说，尽管人们越来越担心这些问题，但与中共国保持开放的沟通渠道和外交关系仍然很重要。
 
-🔗[原文链接](https://hongkongfp.com/2021/05/04/breaking-eu-suspends-efforts-to-ratify-china-investment-deal-as-diplomatic-relations-sour/)
+她说：“我们预期，美国军方未来将经常充当外交、经济和其他各个方面的配角。”
+
+她说，在制止中共国的不良行为方面，国防部的核心价值是要展示可信地威慑中共国侵略的角色和能力。“这将最有利于我们避免冲突。”
+
+希克斯说，盟国和伙伴对遏制中共国的侵略至关重要。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/2up80Gy00c85F/images/992b65a8-c6fd-4d20-bc09-f3203b9fe75c.png?asset_id=597e796e-d487-4fa4-8d2c-4b1c183ad7dc&amp;img_etag=%221089593dbf9528d23c8e98ed72d2bec4%22&amp;size=2560)](https://spark.adobe.com/page/2up80Gy00c85F/images/992b65a8-c6fd-4d20-bc09-f3203b9fe75c.png?asset_id=597e796e-d487-4fa4-8d2c-4b1c183ad7dc&amp;img_etag=%221089593dbf9528d23c8e98ed72d2bec4%22&amp;size=1024)
+
+此外，她说，国防部的预算和研究投资将重点关注威胁，包括核现代化、网络安全、远程射击、自主权、人工智能、造船和微电子技术。
+
+她说，激励创新、减少繁文缛节以及与私营部门和其他政府机构密切合作也很重要。“这意味着能够分享针对最重要的国家安全挑战方面的最佳实践和关键发现。”
+
+她说，与国会的合作对于确保国防部获得制止中共国侵略所需的资助也至关重要。
+
+她强调：“毫无疑问，中共国为我们提出了一个真实且持久的挑战。”
+
+🔗[原文链接](https://www.defense.gov/Explore/News/Article/Article/2591598/deputy-defense-secretary-says-conflict-with-china-is-not-inevitable/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
 - [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
-编辑：【英国伦敦喜庄园编辑部】Edited by：【Himalaya London Club UK】
+编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ke22X8nkGtR18/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/ke22X8nkGtR18/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/2up80Gy00c85F/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/2up80Gy00c85F/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
 
 
