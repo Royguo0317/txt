@@ -1,75 +1,140 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】任性“采脸”、违规收集个人信息，个人隐私泄露愈加猖狂
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1181335/)
+## 战友展览板【5/6】
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1181416/)
 
-作者：香草山写作组  鹰(文言)
+**西班牙巴塞罗那喜悦农场** wenwu
 
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04221555/s2-2.jpg)
+【以毒灭共】推文。如下
 
 
 
-环球网5月6日转载工人日报消息，随着人脸识别应用场所、环境的更加普遍，敏感个人信息的采集与使用亟待规范和监管。
-
-2020年随着CCP病毒的肆虐，健康码应运而生。在防疫的大旗下，包含个人身份、定位、银行流水、就医等敏感信息均被“合法”采集互联。同时，在健康码背后大数据网络的帮助下，中共定点隔离密接者变得更加精准有效。因新冠疫情的传播特性，非接触式支付、查验、入门等刷脸方式变得日渐火爆。社区、商场、校园、写字楼以维护公共安全的名义，设立刷脸门禁，虽然标榜仅限内部使用。人脸ID这一个人信息敏感层级较高，加上近年来发生的个人数据泄露事件，都表明个人信息保护存在巨大隐患。即便如银行、大型商业酒店、快递龙头等大型企业都不能杜绝个人信息的泄露，更可况小区、学校等“小作坊”了。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06182446/Screen-Shot-2021-05-06-at-6.23.09-PM.png)
-除了人脸信息的“不问询”采集外，手机APP的违规、手机个人信息现象的泛滥，也揭示着在个人信息保护上，不但缺乏正规法律的“从严监管”更有“顶风作案”之嫌。2018年曝出的5亿条酒店开放信息被泄露、2020年11月曝出的圆通速递贩卖40万个人用户信息（包括姓名、联系电话、家庭住址等）、2021年初6亿个人信息被贩卖……这些引发社会担忧的事件，都反映着中共政府加强个人信息保护、立法执法的空乏和浮于形式，也揭示着互联网红利日渐减少、“获取客源”需求加剧的大趋势。消费者的个人信息仍是灰色地带的“唐僧肉”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06182410/Screen-Shot-2021-05-06-at-6.23.15-PM.png)
-在2020年6月，中共出台含《网络安全法》《最高人民法院、最高人民检察院关于办理侵犯公民个人信息刑事案件适用法律若干问题的解释》在内的一些列法规，用以压制采集个人信息获利的现象。然而近一年来，非但“刷脸门禁”现象只增不减，就连屡次清剿下的非法手机APP也是依旧残存。过度收集个人信息的企业也牵扯到军方背景的腾讯、百度。可以说在保护个人信息上，无论是政府职能，还是企业信誉均是“全军覆没”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06182346/Screen-Shot-2021-05-06-at-6.23.19-PM.png)
-结合中共长期以来对民众思想的愚弄和民意的操纵，近年来监控摄像头的泛滥，以华为手机为首的各种监控后门，再有明为抗疫实为大数据采集的健康码互通互联，以及维稳经费的只增不减、防暴演练的再度热炒……这都揭示着中共正将全民监管付之实践，其行径更多的是维护政权统治地位下的铲除异己和压榨民众。
-
-中共的敛财无度，催生了各种以民牟利的灰色产业。在既得利益者的有意放纵下，各行各业都在进行信息采集和大数据分析，这才有了接连不断的个人隐私遭窃取遭泄露事件上演。
-
-新闻来源：
-
-“采脸”不该太“任性” 任意、无序采集人脸需严管
-
-[https://china.huanqiu.com/article/430aG7M7tk5](https://china.huanqiu.com/article/430aG7M7tk5)
-
-“遍地开花”的人脸识别技术：默认同意 风险几何
-
-[http://www.chinanews.com/cj/2021/04-30/9467786.shtml](http://www.chinanews.com/cj/2021/04-30/9467786.shtml)
-
-健康码能否升级“全能码”：疫情过后，健康码信息是销毁还是保留
-
-[https://finance.sina.com.cn/wm/2020-06-06/doc-iircuyvi7085638.shtml](https://finance.sina.com.cn/wm/2020-06-06/doc-iircuyvi7085638.shtml)
-
-33款App因违规收集个人信息被点名通报 保护个人隐私的重灾区该如何重建？
-
-[https://www.sohu.com/a/464223719\_362042?scm=1004.759737839519989760.0.0.0](https://www.sohu.com/a/464223719_362042?scm=1004.759737839519989760.0.0.0)
-
-30人贩卖6亿个人信息获利800万 受害者遍布全国数十个省市
-
-[https://finance.sina.com.cn/tech/2021-01-25/doc-ikftpnny1683565.shtml](https://finance.sina.com.cn/tech/2021-01-25/doc-ikftpnny1683565.shtml)
-
-贩卖个人信息 该重罚了！
-
-[http://jiangsu.sina.com.cn/news/s/2020-11-23/detail-iiznctke2769494.shtml](http://jiangsu.sina.com.cn/news/s/2020-11-23/detail-iiznctke2769494.shtml)
-
-5亿条酒店开房记录被泄露！涉及十几家酒店…有你吗？
-
-[https://www.sohu.com/a/250882267\_114844](https://www.sohu.com/a/250882267_114844)
-
-编辑/校对/发稿：正义的小新
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+> The context for my analysis was that I had been challenged as mistaken in identifying the first case cluster by Kumar. I was correct. [https://t.co/ldzb4gPb1t](https://t.co/ldzb4gPb1t)
+> — DrQuay (@quay\_dr) [May 5, 2021](https://twitter.com/quay_dr/status/1389816722417360897?ref_src=twsrc%5Etfw)
 
 
+1. **[奎伊博士推特](https://twitter.com/quay_dr/status/1389816722417360897?s=20)**：
+*我用这个算法重新计算了我在武汉的解放军医院发现的基因簇，结果是一样的。
+中国人民解放军拥有最早的SARS-CoV-2的基因集群。
+这是一个月前与本文作者分享的;
+我分析的背景是，我曾被质疑在确定库马尔（Kumar)的第一个案例群时犯了错误。我是正确的*
 
-0
+
+> 🔥塞林博士发布第二个视频声明，揭露中共军方渗透美国科研机构，通过福奇等人从美国国家卫生院和国防部获取技术和数十亿美元的资金，制造生物武器，祸害全人类
+> 
+> 塞林博士向全体美国人民发出号召：是时候与中国人民站在一起，彻底消灭中国共产党！
+> 
+> 僖战薪号 欢迎关注 [pic.twitter.com/abHMaGpsOn](https://t.co/abHMaGpsOn)
+> — 珠穆朗玛 (@ZanXixi) [May 5, 2021](https://twitter.com/ZanXixi/status/1390074315677192194?ref_src=twsrc%5Etfw)
+
+
+2. **[喜站推特](https://twitter.com/ZanXixi/status/1390074315677192194?s=20)**：
+*塞林博士发布第二个视频声明，揭露中共军方渗透美国科研机构，通过福奇等人从美国国家卫生院和国防部获取技术和数十亿美元的资金，制造生物武器，祸害全人类 塞林博士向全体美国人民发出号召：是时候与中国人民站在一起，彻底消灭中国共产党！ 僖战薪号 欢迎关注*
+
+
+> 闫博士第一篇论文中文版[https://t.co/7uYYg0WZoq](https://t.co/7uYYg0WZoq)
+> — The last straw (@starstuded11) [May 5, 2021](https://twitter.com/starstuded11/status/1390067705852616707?ref_src=twsrc%5Etfw)
+
+
+3. **[最后一根稻草推特](https://twitter.com/starstuded11/status/1390067705852616707?s=20)**：
+[*闫博士第一篇论文中文版*](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15214028/闫丽梦博士第一份报告【新型冠状病毒非源于自然】中文全文翻译.pdf)
+
+
+> This article makes clear there is more evidence the Covid virus was manipulated and leaked from a Wuhan lab than the evidence-free narrative of pro-China virologists and liberal media that say it emerged naturally. Must read [https://t.co/amFoIooG6d](https://t.co/amFoIooG6d)
+> — Bill Gertz (@BillGertz) [May 5, 2021](https://twitter.com/BillGertz/status/1390055939542245383?ref_src=twsrc%5Etfw)
+
+
+4.**[比尔·格茨推特](https://twitter.com/BillGertz/status/1390055939542245383?s=20)**：
+*这篇文章明确指出，与亲中共的病毒科学家和自由派媒体的无证据叙述相比，有更多证据表明新冠病毒是由武汉实验室操纵和泄露的，亲共的说这是自然出现的。[必须阅读](https://nicholaswade.medium.com/origin-of-covid-following-the-clues-6f03564c038)*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06191647/E0rtCPcWEAAMVY1.png)5. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1390184163572174852)**：
+*所有COVID-19侦探：马利克·佩里斯（Malik Peiris）是个坏人。 请搜索他与北京军事医学科学院，长春军事兽医研究所和人民解放军的联系。
+CCPVirus #UnrestrictedBioweapon #UnrestrictedBiowarfare #OriginOfCOVID19 #coronavirus #Corona #CoronaPandemic #COVID19*
+
+
+> Important – [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detectives [@ZionaEmanuel](https://twitter.com/ZionaEmanuel?ref_src=twsrc%5Etfw) [@dezying](https://twitter.com/dezying?ref_src=twsrc%5Etfw) [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) expertly show how PLA scientist Shibo Jiang, who inserted furin cleavage sites already in 2013 proving its laboratory origin, leverages the PLA international network that advances the CCP biowarfare program. [https://t.co/5EOJ1ojgXv](https://t.co/5EOJ1ojgXv)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 6, 2021](https://twitter.com/LawrenceSellin/status/1390147246612693001?ref_src=twsrc%5Etfw)
+
+
+6. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1390147246612693001?s=20)**：
+***（老百姓）**1, 姜世勃的一个研究实现了将多肽RIRR（一种呋喃酶的底物）插入表达载体中。
+2, 姜世勃和这么多 “老朋友 “的一份出版物显示了MERS-CoV中蝙蝠对人传播的关键
+
+**（Sellin)**敲黑板– #COVID19 侦探(老百姓、德意志之鹰、火来）
+专业地展示了解放军科学家姜世勃如何在2013年已经插入弗林酶切位点，并证明其是实验室来源，利用解放军的国际网络推进中共生物战计划*
+
+
+> 作者：Malik Peiris
+> 文章：2016年至2017年人感染高致病禽流感A（H7N9)病毒流行学
+> 发表时间：2017年
+> 合作作者单位：国家呼吸系统疾病临床医学中心（全国59个分中心873个网络成员，分中心分布在全国29个省市直辖市），广东疾控中心[https://t.co/tAq6s5eEfM](https://t.co/tAq6s5eEfM)[@LawrenceSellin](https://twitter.com/LawrenceSellin?ref_src=twsrc%5Etfw)[@NFSC\_007](https://twitter.com/NFSC_007?ref_src=twsrc%5Etfw) [pic.twitter.com/JskTPscxAy](https://t.co/JskTPscxAy)
+> — Devon Y (@devonJ32130301) [May 6, 2021](https://twitter.com/devonJ32130301/status/1390285901557747715?ref_src=twsrc%5Etfw)
+
+
+7. **[Devon Y推特](https://twitter.com/devonJ32130301/status/1390285901557747715?s=20)**：
+*作者：Malik Peiris 文章：[2016年至2017年人感染高致病禽流感A（H7N9)病毒流行学](https://schlr.cnki.net/zn/Detail/index/WWMERGEJLAST/SQFAB6C623BE4C0ECAE05BD7E094502B8EC9) 发表时间：2017年 合作作者单位：国家呼吸系统疾病临床医学中心（全国59个分中心873个网络成员，分中心分布在全国29个省市直辖市），广东疾控中心*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06193342/E0sBkqAVIAcfPnW.jpeg)8. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1390207165286080514?s=21)**：
+***(Sellin)**所有COVID-19侦探：马利克·佩里斯（Malik Peiris）是个坏人。 请搜索他与北京军事医学科学院，长春军事兽医研究所和人民解放军的联系
+
+**（火来）**德意志之鹰提供线索——陈志伟是中间人*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06193706/E0rhIE1VoAEYcxz.png)9. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1390171132968398851?s=21)**：
+*胡丹就是发现ZC45/ZXC21文章的第一作者，她把这个发现写进了博士论文里*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06194110/E0rUQLnVUAAEEUD.png)10. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1390158685444345856)**：
+*2015年6月10日，杜兰英，姜世勃，石正丽，Ralph Baric，李放发刚刚表文章证实mers感染人的关键是福林酶切位点；7月，王长军就在舟山地区搜寻到了45份蝙蝠样本，其中第21号样本就是舟山蝙蝠冠状病毒ZXC21。时间上衔接如此紧密，是巧合吗？？？王长军用的是hotmail，他的邮件里会有大秘密吗？？？*
+
+
+> SARS-CoV-2 is causing myocarditis, Vaccines are causing myocarditis
+> SARS-CoV 2 is causing paralysis, Vaccines are causing paralysis
+> SARS-CoV-2 is causing herpes zoster, Vaccines are causing herpes zoster
+> SARS-CoV-2 is causing clotting, Vaccines are causing clotting
+> — Ass. Prof. Konstantinos Poulas (@konstantinospo7) [May 6, 2021](https://twitter.com/konstantinospo7/status/1390188137360539649?ref_src=twsrc%5Etfw)
+
+
+11. **[Konstantinos Psulas推特](https://twitter.com/konstantinospo7/status/1390188137360539649?s=20)**：
+*SARS-CoV-2正在引起心肌炎，疫苗正在引起心肌炎
+SARS-CoV-2导致瘫痪，疫苗会导致瘫痪
+SARS-CoV-2引起带状疱疹，疫苗会引起带状疱疹
+SARS-CoV-2引起凝血，疫苗引起凝血
+SARS-CoV-2引起无嗅症，疫苗引起无嗅症
+SARS-CoV-2引起病变，疫苗引起病变
+SARS-CoV-2引起高血压，疫苗引起高血压
+是刺突蛋白起作用吗？*
+
+
+> 还有几个人记得闫博士告诉路德的，Malik还有一个秘密的存放病毒的地方😱 [pic.twitter.com/xKgDhVtFom](https://t.co/xKgDhVtFom)
+> — The last straw (@starstuded11) [May 6, 2021](https://twitter.com/starstuded11/status/1390326123284807680?ref_src=twsrc%5Etfw)
+
+
+12. **[最后一根稻草推特](https://twitter.com/starstuded11/status/1390326123284807680?s=20)**：
+*还有几个人记得闫博士告诉路德的，Malik还有一个秘密的存放病毒的地方*
+
+
+> Recently,🦇woman Zhengli Shi “speculations include [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) is a man-made bioweapon…& unintentionally introduced by scientists during field work…Scientific community strongly dismisses them & generally accepts natural origin” What is field work here?![https://t.co/VLNgYMbYfI](https://t.co/VLNgYMbYfI)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 6, 2021](https://twitter.com/DrLiMengYAN1/status/1390426677768073218?ref_src=twsrc%5Etfw)
+
+
+13. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1390426677768073218?s=20)**：
+*最近，蝙蝠女石正丽”猜测包括 #新冠病毒 是人造生物武器……是科学家在野外工作中无意中引入的……科学界强烈反对他们，普遍接受自然来源说 “这里的野外工作是什么？
+[https://journals.lww.com/idi/Fulltext/2021/04000/Origins\_of\_SARS\_CoV\_2\_\_Focusing\_on\_Science.2.aspx#JCL-P-3](https://journals.lww.com/idi/Fulltext/2021/04000/Origins_of_SARS_CoV_2__Focusing_on_Science.2.aspx#JCL-P-3)*
+【灭共时代】
+
+
+
+> 20210505蓬佩奧國務卿接受Pat Robertson採訪
+> 1. 中國共產黨是美國最大的敵對勢力
+> 2.CCP跟蘇聯的不同是有14億百姓、龐大軍隊、巨大經濟體量
+> 3.美國對台灣的支持或許會讓習再掂量掂量
+> 4.過去20年中對抗恐怖主義是正確的，但現在面對的是具有超級實力的軍事勢力（CCP）
+> 5.這是跨黨派的共識而不關兩黨政治 [pic.twitter.com/ZJ9wXOUrXZ](https://t.co/ZJ9wXOUrXZ)
+> — Andy5 (@andy5\_123) [May 6, 2021](https://twitter.com/andy5_123/status/1390243750794829826?ref_src=twsrc%5Etfw)
+
+
+**[Andy5推特](https://twitter.com/andy5_123/status/1390245732150439942)**：
+*20210505蓬佩奥国务卿接受Pat Robertson採访
+中国共产党是美国最大的敌对势力
+2.CCP跟苏联的不同是有14亿百姓、庞大军队、巨大经济体量
+3.美国对台湾的支持或许会让习再掂量掂量
+4.过去20年中对抗恐怖主义是正确的，但现在面对的是具有超级实力的军事势力（CCP）
+5.这是跨党派的共识而不关两党政治
+重点1，蓬佩奥国务卿称中国共產党是最大的敌对势力
+重点2，将CCP类比苏联
+重点3，肯定前20年对抗恐怖主义是正确的，但接下来要面对的是具有超级实力的军事势力（也就是CCP已经超越了恐怖主义的实力）*
+
+
++1

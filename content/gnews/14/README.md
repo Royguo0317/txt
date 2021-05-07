@@ -1,58 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月6日美国政要和政评家反共推特精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1181651/)
+## 郭先生0505XIV缅甸只有中共灭了才可能好昂山素姬很快会被灭
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1181855/)
 
-参议员瑞克·斯科特： 我赞扬七国集团（G7）的外交部长反对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的过度扩张和严重的侵犯人权行为，并加入美国支持我们的民主盟友台湾。我们都必须团结起来反对中共国的种族灭绝和压迫.我敦促参议院的同事们支持我的《世卫组织问责法》的即时通过。我们必须让世卫WHO为帮助中共国掩盖COVID-19的信息负责，并确保在台湾成为会员国之前，美国不会再给它一毛钱。
+编辑整理：
 
+纽约香草山农场：酸酸乳(文少)；日本东京方舟农场：山川异域
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06213849/%E5%B0%81%E9%9D%A2-27.jpg)
+据[2021-05-05 文贵直播：回答战友们目前关心的问题](https://gtv.org/video/id=60929c03db13300ca5491b6d)时间点2：24：41——
 
+好，哎呀，什么时间了，哎呦我的妈呀，这12点了，我的天呐该结束了。我看到谁那儿了，文迪，麻烦七哥深入谈谈缅甸和近期长期的……情况如何保证安全。
 
-> I applaud the G7 foreign ministers for taking a stand against Communist China’s overreach & horrific human rights abuses & joining the U.S. in supporting our democratic ally Taiwan. We must all stand united against Communist China’s genocide & oppression: [https://t.co/KRKNXyqttf](https://t.co/KRKNXyqttf)
-> — Rick Scott (@SenRickScott) [May 6, 2021](https://twitter.com/SenRickScott/status/1390421334379929609?ref_src=twsrc%5Etfw)
+你应该在缅甸吧，缅甸的事情好不到哪儿去，好不到哪儿去，就像那黑山共和国似的天天反美，美国都不搭理它，美国认为你根本就不配当我的敌人，你滚一边去，一脚踢一边去，玩去吧。
 
+缅甸是什么？美国就不想管。美国就是有时候喊喊呐，杀人啊，灭火啊，不对呀，它不会管的，缅甸的动荡，只有灭了共产党缅甸才可能好，我觉得昂山素季很快会被消灭掉，昂山素季派很快被消灭掉，我说句实在话，昂山素季此人不值得所谓我们人，这个人我是在过去偶然的机会跟他身边的几个人还有她见过面，当时我是见You Holiness达赖喇嘛之前跟她接触，而且共产党和昂山素季这联络人我也跟他们这个私下聊过，她是政治家，她是个政治家。
 
+缅甸人民是伟大的，缅甸跟共产党之间的较量，不是跟缅甸和共产党的较量，是真正的是缅甸内部的共产党的长期的蓝金黄派，缅甸在短期内恢复好的可能性没有，没有。只有灭了共产党，没有任何可能。
 
-众议员Mike Gallagher’s: 越来越清晰的是，实验室泄漏假说根本不能被排除，无论 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 对此有何看法，我们都需要答案。 【[http://medium.com](https://t.co/c8i5z8Dyvh?amp=1)文章：新冠病毒起源-追循线索】
+接上文——
 
+[郭文贵先生2021年5月5日直播开始前播放视频文字汇总](https://gnews.org/zh-hans/1177897/)
 
+[郭先生0505I与战友们互动回答战友们提出的问题汇总1](https://gnews.org/zh-hans/1179745/)
 
-> It’s becoming increasingly clear that the lab leak hypothesis cannot be dismissed out of hand. We need answers, regardless of how the Chinese Communist Party feels about it. [https://t.co/DLWEXf56CK](https://t.co/DLWEXf56CK)
-> — Rep. Mike Gallagher (@RepGallagher) [May 6, 2021](https://twitter.com/RepGallagher/status/1390418220734103553?ref_src=twsrc%5Etfw)
+[郭先生0505II在清朝中美人民交往极好中共毁了中国人的形象](https://gnews.org/zh-hans/1179837/)
 
+[郭先生0505III新中国联邦不会有军队,没有一个军队敢碰我们](https://gnews.org/zh-hans/1179930/)
 
+[郭先生0505IV中共要干掉Elon Musk的事让西方认清其本质](https://gnews.org/zh-hans/1179969/)
 
-参议员霍利新闻办公室： 参议员乔什·霍利再次呼吁对大科技垄断企业采取反托拉斯行动，特别是对脸书FB继续封禁川普总统而大声疾呼。 霍利说：“现在，脸书拥有一切权力。” “消费者的权利却为零。” 【转福克斯新闻：霍利：脸书Facebook董事会对川普的禁令，证明了是时候该认真对待反托拉斯行动了】
+[郭先生0505V中共极权下市场经济问题汇总到中央最终脆断](https://gnews.org/zh-hans/1180013/)
 
+[郭先生0505VI美元贬值和世界滥印等导致喜美元成唯一避险地](https://gnews.org/zh-hans/1180047/)
 
+[郭先生0505VII与战友们互动回答战友们提出的问题汇总2](https://gnews.org/zh-hans/1180129/)
 
-> Sen. Josh Hawley renewed his call for antitrust action against Big Tech monopolies, specifically calling out Facebook's continued ban of Former President Trump.
-> 
-> "Right now, Facebook has all the power," Hawley said. "Consumers have zero power." [https://t.co/N4DMIZecse](https://t.co/N4DMIZecse)
-> — Senator Hawley Press Office (@SenHawleyPress) [May 6, 2021](https://twitter.com/SenHawleyPress/status/1390353374571343875?ref_src=twsrc%5Etfw)
+[郭先生0505VIII喜支付完全无界化已彻底跟着你的生命灵魂化](https://gnews.org/zh-hans/1180193/)
 
+[郭先生0505IX一系列政治滑稽事件后美会出病毒白皮书最终版](https://gnews.org/zh-hans/1180220/)
 
+[郭先生0505X新中国联邦和爆料革命是美走向强大的最强中坚](https://gnews.org/zh-hans/1180275/)
 
-参议员瑞克·斯科特: [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 是世界上最糟糕的污染国，我们不能相信它会做出任何改变。 解决我们的气候变化需要切实的解决方案，但我们不能假装与像中共国 这样的巨型污染者达成无用的协议能为推进这项工作做任何事。 【转推文：最新：据分析,2019年中国的温室气体排放量,超过美国和发达国家的总和】
+[郭先生0505XI中共内忧外患辛丑年底会很难明年绝对过不了](https://gnews.org/zh-hans/1180310/)
 
+[郭先生0505XII美国钟摆变双剑,中共倒台后世界会出第二个帝国](https://gnews.org/zh-hans/1180347/)
 
-
-> Communist China is the world’s worst polluter & we can't trust it will do anything to change course.
-> 
-> Addressing our changing climate requires real solutions, but we can't pretend toothless agreements with mega-polluters like Communist China will do anything to advance that work. [https://t.co/RJcsuBBi38](https://t.co/RJcsuBBi38)
-> — Rick Scott (@SenRickScott) [May 6, 2021](https://twitter.com/SenRickScott/status/1390376959687933966?ref_src=twsrc%5Etfw)
-
-
-
-参议员卢比奥新闻办公室： [#印度](https://twitter.com/hashtag/%E5%8D%B0%E5%BA%A6?src=hashtag_click) 正确地将象华为[@Huawei](https://twitter.com/Huawei)和中兴[@ZTEdevice](https://twitter.com/ZTEDevice)这样的中国国有企业排除在了他们的5G试验之外。 [#华为](https://twitter.com/hashtag/%E5%8D%8E%E4%B8%BA?src=hashtag_click) 和其他中国公司带来的安全风险实在是太高了，更多的国家应该效仿印度。 【转路透社印度的推文及文章：印度并未将华为列为5G试验参与者】
-
-
-
-> [#India](https://twitter.com/hashtag/India?src=hash&amp;ref_src=twsrc%5Etfw) has rightfully excluded Chinese state-directed companies like [@Huawei](https://twitter.com/Huawei?ref_src=twsrc%5Etfw) & [@ZTEdevice](https://twitter.com/ZTEDevice?ref_src=twsrc%5Etfw) from participating in their 5G trials. 
->  
-> The security risk posed by Huawei & other Chinese companies are simply too high and more nations should follow India. [https://t.co/dRx9yuyuKY](https://t.co/dRx9yuyuKY)
-> — Senator Rubio Press (@SenRubioPress) [May 6, 2021](https://twitter.com/SenRubioPress/status/1390291790880772098?ref_src=twsrc%5Etfw)
-
-
+[郭先生0505XIII联盟委员会和农场都需要成长的过程要互相帮衬](https://gnews.org/zh-hans/1180406/)
 
 0
