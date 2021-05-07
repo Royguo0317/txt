@@ -1,65 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【聚焦】巴西总统认为中共病毒导致的大流行与“生化战”有关
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1184129/)
+## 澳洲明确中共武力犯台将协同盟友直接介入
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1184268/)
 
-#### 翻译：小红帽
+台湾宝岛农场
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07100656/%E6%93%B7%E5%8F%9657-1.jpg)[图取自](https://facebook.com/scottmorrison4cook)
+经[中央社](https://www.cna.com.tw/news/firstnews/202105070030.aspx)新闻报导，澳洲金融时报（Australian Financial Review）6日刊登台湾外交部长吴钊燮的专访报导，标题为「澳洲须慬防台湾海峡战争」。
 
-#### 校对/编辑：文泓
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07092415/%E5%B7%B4%E8%A5%BF0.jpg)
-图片来源：BBC
+台湾外交部长吴钊燮于专访中表示，台湾不会受到立即性中共的武力侵犯，但军事对峙确实存在。并希望澳洲可以支持台湾。
 
-**译文：**
+澳洲总理莫里森则在澳洲媒体采访过程中隔空回应台外交长，表示「我们（澳洲）一直履行支援美国及印太地区盟友的协议」。
 
-（巴西）总统贾伊尔-博尔索纳罗（Jair Bolsonaro）周三表示，中共病毒可能是在实验室里制造的，用于发动“生化战”，他的这番最新言论可能使巴西与中共国关系紧张。
+澳洲总理于采访过程中的回覆，可以推知美国以及盟友、澳洲，已经确定了中共武力犯台的支援计画，民主阵营对维护印太和平、协防台湾是必然，已经不在是可能。
 
-“这是一种新病毒，没有人知道它是在实验室里诞生的，还是因为人类吃了一些他们不应该吃的动物。”这位极右翼领导人说。
+近日澳洲获得多项美国军售案的许可，1. MQ-9B无人机、M1A2战车、CH-47契努克运输直升机的军售案，价格分别为16.85亿美元（约新台币470亿元）和2.59亿美元（约新台币72亿元）。
 
-“但军方对化学、生物和放射性战争应该了如指掌，我们会不会在打一场新的战争？我想知道，哪个国家的GDP增长最多？”
+澳仍积极希望取得29辆M1150突击车、18辆M1074联合突击架桥甲车、6辆M88A2装甲救济车，以及122台AGT1500引擎、通用低姿态遥控武器站（乘员在车内即可操控机枪塔杀伤接近的敌军）、驾驶员视觉增强器、车体零件以及后勤协助等服务。
 
-他没有提到中共国的名字，自去年中共病毒大流行开始时，中共国是G20经济体中去年唯一增长的国家，实现了GDP2.3%的增长。
+此外，澳洲更大举升级军事基地，为扩大美澳军事互动做准备：澳洲总理莫里森28日宣布一项价值近7.5亿澳币的防卫套装方案，将作为升级澳洲北部四座军事基地、未来十年澳洲北部军事基础建设支出的一部分。基地升级包括加长跑到，供更大型飞机起降、提供防卫人员及美军陆战队使用的训练设施，一切都为扩大与美国军演规模而筹备。
 
-博尔索纳罗（Bolsonaro）和他的核心圈子有对中共国发表煽动性言论的历史，有时会对巴西最大贸易伙伴（中共国）的关系造成不利。
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-今年三月，总统用职业外交官卡洛斯-弗朗卡（Carlos Franca）替换了前外交部长埃内斯托-阿劳霍（Ernesto Araujo）。埃内斯托-阿劳霍（Ernesto Araujo）曾谴责“毛的共产主义中国”及其“统治世界”的计划。
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
-此举被广泛认为是为了（与中共国）修补关系。
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
-中共病毒出现在武汉市的一个病毒学实验室的理论，对中共国来说是一个敏感的话题——但却是博尔索纳罗（Bolsonaro）和他的政治榜样——美国前总统唐纳德-特朗普的强硬派支持者的最爱。
+文章审核：zhong
 
-中共国强烈否认这一理论。
-
-今年三月，世界卫生组织的一份报告得出结论，中共病毒病毒“极不可能”来自于实验室。
-
-然而，世卫组织专家说，他们在访问武汉时，获取原始数据时遇到了困难。
-
-博尔索纳罗（Bolsonaro）因其对中共病毒的回应而面临批评，甚至是参议院的调查。而中共病毒已在巴西造成40多万人死亡。
-
-周三，博尔索纳罗（Bolsonaro）加大了对地方当局，为控制中共病毒而采取的留守措施（封锁）的抨击力度，威胁要发布一项法令，保护人们的 “出入自由权”。
-
-关于要求采取国家限制性措施（举国封锁）的呼吁，博尔索纳罗（Bolsonaro）与专家进行了斗争，博尔索纳罗（Bolsonaro）认为经济损失将比病毒本身更严重。
-
-但巴西最高法院赋予各州和市镇实施此类政策的权利。
-
-“我希望上帝保佑，我不会被迫发布这一法令。但如果我这样做，我将用我的部长们所拥有的所有力量来执行，”博尔索纳罗（Bolsonaro）说。
-
-“最好没有人敢挑战它。”
-
-原文链接：[Brazil COVID: 15,009,023 Cases and 417,176 Deaths – Worldometer (worldometers.info)](https://www.worldometers.info/coronavirus/country/brazil/)
-
-附：巴西最新中共病毒案例统计数字（更新至5/7/2021，02:42 GMT）
-
-图一：感染中共病毒活跃案例：1,000,512例
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07092646/%E5%B7%B4%E8%A5%BF1.png)
-图二：感染中共病毒结案案例：14,0008,511例
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07092744/%E5%B7%B4%E8%A5%BF2.png)
-图三：巴西中共病毒感染总人数统计图
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07092800/%E5%B7%B4%E8%A5%BF3.png)
-图四：巴西感染中共病毒死亡总人数统计图
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07092811/%E5%B7%B4%E8%A5%BF4.png)
-图五：巴西感染中共病毒每日新增死亡人数统计图
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07092843/%E5%B7%B4%E8%A5%BF5-1.png)
-资料链接：[Brazil’s Bolsonaro links pandemic to ‘germ warfare’ – France 24](https://www.france24.com/en/live-news/20210505-brazil-s-bolsonaro-links-pandemic-to-germ-warfare)
+文章发布：Little Liu
 
 0

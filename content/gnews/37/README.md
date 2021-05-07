@@ -1,22 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法国参议院压倒性全面支持台湾参与国际组织
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1184235/)
+## 【热点播报】法国参议院通过法案支持台湾重回国际组织
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1184361/)
 
-台湾宝岛农场
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07094746/%E6%93%B7%E5%8F%9657-4.jpg)
-[自由时报新闻](https://news.ltn.com.tw/news/politics/breakingnews/3523881)报导，法国参议院周四晚上以304票无异议通过了支持台湾参与国际组织活动决议文。国际组织包括WHO、国际民航组织（ICAO）、联合国气候变化纲要公约（UNFCCC）与国际刑警组织（INTERPOL）等各领域国际组织。
+作者：纽约香草山健身部 Ivy001
 
-法国参议院全面性通过挺台决议，是继G7外长公报后，是协助台湾外交空间拓展的实际行动。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07094807/%E6%93%B7%E5%8F%9657-5.jpg)图片皆取自驻法代表处脸书
-摘╱zhong
-发布╱小刘
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+法新社报道，法国参议院周四以压倒性多数通过“台湾参与国际组织工作法案”。
 
-+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07111547/%E5%9B%BE%E7%89%8733-1.png)
+
+法新社报道，以右翼反对派占多数的法国参议院，周四以304票赞成，19票弃权，0票反对，通过了“台湾参与国际组织工作法案”，这项法案支持台湾参与多个国际组织的工作。国际组织包括世界卫生组织（WHO）、国际民用航空组织、《联合国气候变化公约》，甚至国际刑警组织等多个国际组织。
+
+尽管这项法案不具约束性，但是，对法国政府的外交政策具有指向性的法律依据，为法国政府支持台湾重回国际组织的推动，提供了坚实的法理基础。
+
+在捷克参议院全票通过挺台湾参加WHA之后，这是西方民主国家的又一个国家站出来表态，“支持台湾参与国际组织”。
+
+而且，这项法案通过的时机，真是耐人寻味。之前，日媒高调传出G7外长联合声明拟将载明支持台湾参与国际组织，言犹在耳，法国参议院就以压倒性多数通过了这项法案。这是一个非常强烈的信号，显示出G7外长联合会议确实在中共国的问题上，达成了一定的共识，必须结盟抗共！而在联盟抗共的前提下，台湾重回国际组织，重新参与到国际事务中来，就是必然的结果。
+
+虽然在参议院表决前，中共国动作不断，仍然无法撼动法国多党派议员的决心，0票反对，这表明在反共灭共是主流的形势下，没有一个议员敢在明面上支持中共国。
+
+中共国在西方民主国家的影响力越来越趋向微弱，路也越走越窄，可以操作的空间也越来越小。中共国，你的末日即将到来啦。一切已经开始！
+
+参考阅读：
+
+https://www.rfi.fr/cn/中国/20210506-法国参议院压倒性多数通过支持台湾参与国际组织法案
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
