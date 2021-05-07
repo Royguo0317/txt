@@ -1,36 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印度禁止进口中共国制造的无线电子设备
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1184344/)
+## [圣城传声筒]《致香港》
+` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1182816/)
 
-- 翻译：坐看云起时
+作者：纽约香草山农场香港部 南风草木香
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07110940/keyboard-141297_1920-1.jpg)
-半岛电视台（Al Jazeera）5月7日报道，业内人士告诉路透社，印度已将从中共国进口含有wifi模块的成品电子设备–如蓝牙音箱、无线耳机、智能手机、智能手表和笔记本电脑wifi模块的审批搁置了数月。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
 
-据消息人士称，印度通信部的无线规划和协调部门(WPC)从去年11月起就开始搁置审批中共国电子设备的进口申请，来自美国，中共国和韩国公司的80多份此类申请一直在等待批准，甚至一些从中共国引进成品的印度公司的申请也在等待批准 。
 
-印度对中共国进口的强硬立场是在总理纳伦德拉-莫迪(Narendra Modi)呼吁加强经济自力更生的情况下做出的。
 
-印度的市场和出口潜力已使其成为世界第二大移动设备制造商，但技术分析师和业内人士表示，印度还不具备公司大量投资制造IT产品和智能可穿戴设备的规模和条件。印度此前允许公司自行申报无线设备，此举使进口更容易，但2019年3月的新规则规定公司必须寻求政府批准。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07110700/business-3058333_1920.jpg)
-**对中共国科技的警惕**
 
-WPC审批的长期拖延凸显了印度削减中共国在其科技经济中的影响力的战略，特别是在去年与中共发生边界冲突之后，尽管此后紧张局势有所缓解。
 
-莫迪政府本周将中共国电子制造商华为从其5G移动通信试验的参与者名单中删除，但欧洲和韩国的竞争对手则被允许。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07011645/%E9%A6%99%E6%B8%AF%E5%9B%BE%E7%89%87-%E7%BA%BD%E6%97%B6.jpeg)图片来源：《纽约时报》
 
-路透社此前报道，一旦5G在印度开始部署，新德里将可能阻止移动运营商使用华为的电信设备。
+去年香港最危急的时候
 
-去年印度与中共国的边境局势紧张之时，因为印度港口阻止从中共国进口产品，美国公司苹果、思科和戴尔也因此而被卷入。
+曾经问一位同事，你怕那些警察吗?
 
-另一个例子是路透社去年年底报道的，印度对来自中共国的电子产品质量许可的严格控制减缓了苹果iPhone机型的进口。
+她说不怕，怎么会怕呢?警察是保护市⺠的
 
-在目前的情况下，无法获得WPC批准，是印度从中共国进口电子设备的主要障碍。
+我无言以对
 
-本文只代表作者观点，与GNEWS网站无关
+难道她看不到警察用枪指住手无寸铁的市⺠??
 
-新闻来源：[ALJAZEERA](https://www.aljazeera.com/economy/2021/5/7/india-blocks-china-made-wireless-device-imports-report)
+后来又听到一位同事说
 
-0
+以后还是想去大陆生活，始终是自己国家
+
+我暗自冷笑，那是你的国家吗?
+
+你拥有一寸自己的土地吗?你敢对政府说个不字吗??
+
+曾经，香港，是一个多么令人骄傲的名字和象征
+
+这里，有⺠主和自由，有繁荣的经济，是最安全的城市
+
+现在，拿什么来骄傲
+
+无能的政府，被窒息的⺠声
+
+现在，凭什么去竞争
+
+撤走的外国公司，萧条的市场
+
+香港人不甘心，怎能让黑暗一直笼罩东方之珠
+
+香港人在抗争，尽管隧道很⻑暂时看不到曙光
+
+情怀依旧，热血永在
+
+为了我们的圣城，香港人煲底见!
+
+图片引用来源：
+
+[https://cn.nytimes.com/china/20141001/c01protesters/](https://cn.nytimes.com/china/20141001/c01protesters/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205738/M5-1.jpg)
+编辑/校对/发稿：Delilah小胖
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
+
+
+
+
+
++1
