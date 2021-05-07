@@ -1,24 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 对病毒“解药”及“以共灭共”之我见
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1180681/)
+## 活出人样
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1180773/)
 
-作者：凉白开| 校对：X-Wing| 审核：宁缺| Page：小六月
+作者：Filon| 翻译：Filon|校对：文意、X-Wing| 审核：宁缺| Page：小六月
 
-[!\[\]()!\[\](https://spark.adobe.com/page/x5hF2jmN9045y/images/e468e0f5-1a55-4e32-a0b0-df5ab84dcb14.jpg?asset_id=62238f81-3849-41b2-b40b-45dafec329c2&amp;img_etag=%22a738d4bb24436718ad4e95d5c543d933%22&amp;size=1024)](https://spark.adobe.com/page/x5hF2jmN9045y/images/e468e0f5-1a55-4e32-a0b0-df5ab84dcb14.jpg?asset_id=62238f81-3849-41b2-b40b-45dafec329c2&amp;img_etag=%22a738d4bb24436718ad4e95d5c543d933%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/lJjwPqq9PPKqP/images/bacb22d2-d41c-4aea-a149-4359184897ac.jpg?asset_id=36c10ec6-2859-4e42-a488-18032180a505&amp;img_etag=%22d08aa6fb25c6e7f57645ea48f64fea14%22&amp;size=1024)](https://spark.adobe.com/page/lJjwPqq9PPKqP/images/bacb22d2-d41c-4aea-a149-4359184897ac.jpg?asset_id=36c10ec6-2859-4e42-a488-18032180a505&amp;img_etag=%22d08aa6fb25c6e7f57645ea48f64fea14%22&amp;size=1024)
 
-**1.** CCP有解药。
+想到赵婷导演，首先映入我眼帘的是她14岁年纪离开中共国去往英国和美国生活的这段经历。离开了中共国往往就代表离开了思想的束缚和所谓人云亦云社会标准，在自由的世界里活成了一个拥有独立人格的人。
 
-CCP有解药，这对党内未能拿到解药的人的内心的冲击是巨大的，尤其是实权在握的候补中央委员以上的封疆大吏，举足轻重的军头等。因为这些人以为自己在党内很有地位，绝没有想到自己居然会面临和普通老百姓一样的命运（原来自己的生死在最高层眼里并不重要，原来自己也只是作为最高层的统治工具而已）。可以说，这个情报的爆出，使得这些人不再因为是ccp体制的既得利益者而对ccp体制进行坚决的维护。某种程度上，这些人一旦掌握机会便会想方设法地将最高层置于死地。这是ccp党内离心离德的真正开始。这不仅对于ccp的倒台有推波助澜的作用，也一定程度上消除了ccp倒台后重建工作面临的障碍。
+[!\[\]()!\[\](https://spark.adobe.com/page/lJjwPqq9PPKqP/images/67147a6e-89da-4350-8d13-b0040ba36490.jpg?asset_id=cd69d2aa-dd07-4562-b300-f66bd7722f72&amp;img_etag=%22a4fa7882ca9bd0e99b131ed0731fbff2%22&amp;size=1024)](https://spark.adobe.com/page/lJjwPqq9PPKqP/images/67147a6e-89da-4350-8d13-b0040ba36490.jpg?asset_id=cd69d2aa-dd07-4562-b300-f66bd7722f72&amp;img_etag=%22a4fa7882ca9bd0e99b131ed0731fbff2%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/x5hF2jmN9045y/images/901d1e44-a46d-46e7-95b4-c15b766acda1.jpg?asset_id=caab59a6-ea5b-40bf-9291-fb011db9fcbe&amp;img_etag=%22cdd42a9df826e0d0fbd1775d8ef4a7c1%22&amp;size=1024)](https://spark.adobe.com/page/x5hF2jmN9045y/images/901d1e44-a46d-46e7-95b4-c15b766acda1.jpg?asset_id=caab59a6-ea5b-40bf-9291-fb011db9fcbe&amp;img_etag=%22cdd42a9df826e0d0fbd1775d8ef4a7c1%22&amp;size=1024)
+在中共营造的愚民社会环境中，中共喜欢给人营造统一的标准，统一的脸谱，让所有人按照一个模版活成一个模样。
 
-**2.** 5月2日，文贵先生直播提到的：曾韩王发现美国要出手时，他们会出来以共灭共。危难时期振臂一呼，先得民心（可以解释为什么网易在国内会独树一帜的存在却没事，是早已布下的局。这和江派王派推出来的反对专制、打着民主幌子的潘石屹、张欣、任志强、周孝正等是一脉相承的路数），一定会再次承诺要民主要法治，喊得比西方还响。
+对于孩子们从小的教育，其目的不是为了如何引导发散他们的思维，而是按照教条学习死背知识点应付考试；是研究如何消磨掉他们的奇思妙想，学会老老实实按照老师家长要求好好考试。
 
-我们希望CCP出现一家独大的局面，而不是如今江，曾，王，朱，习多足鼎立的态势。显然，生性豪横绝不不妥协的习神的胜出是我们最愿意看到的。由于江，曾，王，朱等具有绝对的实力操弄中国的政治，我们必须借助于习神之手首先将这些党羽众多，树大根深的几个家族的势力彻底铲除。这样，在未来我们新中国联邦才可以发动隐藏在党内的正义力量灭习并且能够掌控住局势，否则在江曾王朱被消灭之前，我们的胜利果实将瞬间被其完全碾碎并窃取。而这个情报的爆出，将使得江曾王朱等着美国出手之前将习神干掉的策略落空，并且迫使习神不得不抓紧时间主动出击将威胁其统治地位的人彻底一网打尽。这是一场不是你死就是我活，先下手为强后下手遭殃的较量。
+中共是不喜欢拥有独立思考能力的人大量存在的，对于中共来说，百姓胡思乱想对于他们想要维护的统治来说是十分危险的。
 
-这些情报的推出，将瓦解ccp的凝聚力以及加速其内斗，并且向着我们希望的方向进行。
+在中共眼里喜爱西方就是崇洋媚外，喜欢西方就是不尊重自己民族。
+
+可是大部分中国人喜欢西方的理由是西方文明世界所拥有的人权、自由和平等。每一个人是能够被尊重的个体。
+
+只要不危害到他人，任何人都应该是可以按照自己喜好过着自己想要的生活的，没有绝对应该的生活模式。
+
+这才是所谓西方世界吸引人的地方，也是中共不愿让每一个中国人所拥有的。
+
+赵婷导演能拍出引发美国思考的电影正是因为她25年在西方世界的生活，对生活自由的思考。
+
+可以断言，在中共国她绝对拍不出这样有深度的电影。在中共国拍电影的她，第一条思考准则将是政治上这样是否可行，所表达的艺术能不能被广电总局给审核通过，她的一切艺术创作将都无法离开政治要求的框架。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/lJjwPqq9PPKqP/images/376f83d6-ed3a-46ab-ad13-f46528ecf6f8.jpg?asset_id=df4cc98c-a2a1-41a6-81e5-bc5ae6955cbe&amp;img_etag=%223476c82d1bb43dc6d71e9907ecf75ea1%22&amp;size=1024)](https://spark.adobe.com/page/lJjwPqq9PPKqP/images/376f83d6-ed3a-46ab-ad13-f46528ecf6f8.jpg?asset_id=df4cc98c-a2a1-41a6-81e5-bc5ae6955cbe&amp;img_etag=%223476c82d1bb43dc6d71e9907ecf75ea1%22&amp;size=1024)
+
+被政治捆绑的创作就不能称之为艺术，那叫政治宣传。任何个体的见识都有其片面性和局限性，所谓的广电总局几十个领导何德何能可以审核十四亿中国人的思想，审核一切艺术创作。
+
+艺术好坏自有整个市场给予反馈。
+
+赵婷导演的成功使所有中国人都应该受到鼓舞的。
+
+在西方文明世界活着的中国人赵婷导演，活的像一个人，能自由独立思考、成为一个向往美好的人，不是一个没有思维的人肉机器。
+
+同样这也是咱们新中国联邦的愿景，营造出一个可以让每一个中国人有尊严、体面的活着，有勇气有胆量，活出不同人生的自由世界。
+
+活得明明白白，懂得为什么而活，为自己而活，活出一个人样。
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -27,6 +51,6 @@ CCP有解药，这对党内未能拿到解药的人的内心的冲击是巨大�
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/x5hF2jmN9045y/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/x5hF2jmN9045y/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/lJjwPqq9PPKqP/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/lJjwPqq9PPKqP/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

@@ -1,34 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疲苦的五一假期和活不起的中共
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1180749/)
+## 【热点播报】岛国塞舌尔: 疫苗接种全球第一，病例激增，继续封锁
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1180822/)
 
-作者：Xiaopan | 校对：X-Wing飞得更高 | 审核：宁缺 | Page：我是球大哥
-[!\[\]()!\[\](https://spark.adobe.com/page/SIYBT3eV2toWs/images/b8372595-c853-49b3-8d88-fda434244e0d.jpg?asset_id=103e64ac-5c02-4bb6-80fc-5fe93cf1a494&amp;img_etag=%2287707643de2d7be34b9404c4d1b32f10%22&amp;size=1024)](https://spark.adobe.com/page/SIYBT3eV2toWs/images/b8372595-c853-49b3-8d88-fda434244e0d.jpg?asset_id=103e64ac-5c02-4bb6-80fc-5fe93cf1a494&amp;img_etag=%2287707643de2d7be34b9404c4d1b32f10%22&amp;size=1024)
-墙内所谓的劳动节小长假，终于结束了。但是这个假期的调休，还没有结束，5月8日，星期六，仍然需要上班。加上4月25日多上的一天班，再减去假期中本来就该休息的周六周天。这个所谓的小长假，实际只放了一天假。人民是多么幸福，时刻被中共算计的幸福。
+作者：纽约香草山农场  四季
 
-五一劳动节加五四青年节，双节合璧，只放假一天。一个政府，到了什么样活不起的地步，才这么吝啬的安排法定节假日？以至于在所谓长假的基础上，发明了一个叫“小长假”的新词。无耻者，自有一套无耻的好听名词。回头看那些偶尔被拿出来讨论的每周四天半工作制，是多么可笑，纯属逗你玩。
-
-被支配的人民，像羊群一样冲向各类景区，去参与和体会人口密度的极限。无论是被引导还是纯自发，最终的结论就是一顿咒骂与后悔。旅游观光，看得最多的不是密密麻麻的人头就是拥挤在身边的屁股。每年如此疲惫，来年却继续蜂拥。
-
-是同一波人持续不长记性，还是每次都换了一茬新人扎堆出行，这可能是个无解的问题。但我们清晰地看到，当高速路开始限时免费的时候，不收费的景区便提前立起牌子，亮出收费标准。原先收费的景区，开始加价，景区的停车、餐饮、住宿都开始为多赚钱忙碌起来。他们期盼的羊群来了，“移动的韭菜”来了，剪刀和镰刀都得磨出亮光，宰出半年的利润。
-
-旅途中更有被堵在路上几十小时的状况，煎熬的等待，也是被宰的好时机。今年青藏线四川段大堵车，一瓶水、一个鸡蛋的价格都飞涨到几十块钱，且爱买不买，不买饿着，回来就涨价。这便是，上层精英都热衷于盗国、发国难财的时候，底层民众肯定不会放弃任何发民难财的机会。
-
-当人们拖着疲惫的身躯和空空的钱包回到家，等在前面还有一个被阉割的周末。出门游玩时的好心情，在叹息中荡然无存。更没有好心情的，还是很多政府及国企的底层职员，按照各种不同的规定，他们都是需要被安排在节假日值班的。与民生相关的治安、交通、医疗等相关部门倒是可以理解。但是为了不犯错，几乎所有部门和国企，无论有无生产活动，都得安排人值班，喝一天茶也得有人在。
-
-体会社会主义的优越性之一，就是即使本该轻松愉快的假期，也一定会搞得人民痛苦不堪。同时为了压榨百姓所有的生产价值剩余价值，哪怕多半天的休息日都是不会给的。只有穷疯了，才什么钱都想抢。只有活不起了，才如此赶时间。
-
-（文章仅代表个人观点）
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/SIYBT3eV2toWs/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/SIYBT3eV2toWs/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+零对冲5月6日报道， 世界上疫苗接种率最高的国家不是以色列，而是印度洋岛国塞舌尔，其62%以上的成年人口已经完成了对疫苗的“完全接种”，然而，尽管这个岛国正在接近群体免疫的门槛，但由于COVID-19病例激增，该国本周被迫重新实施封锁。
 
-0
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06152517/1-seychelles-1.jpg)图片来源：[ZeroHedge](https://www.zerohedge.com/covid-19/country-worlds-highest-vaccination-rate-orders-new-lockdown-covid-cases-surge)
+
+塞舌尔全国所有学校都已经关闭，体育活动也被取消两周。 措施还包括禁止家庭之间的互动和某些类型的个人聚会，以及提早关闭商店、酒吧和赌场。非必要的工人也被鼓励在家工作，同时当地时间23点的宵禁也被恢复了。
+
+目前，塞舌尔有107万个活跃的Covid病例，其中三分之一是在注射了两剂阿斯利康或中（共）国国药集团的疫苗的人中发现的。
+
+塞舌尔于今年1月就迅速展开了疫苗接种计划，使用了阿联酋捐赠的中（共）国国药集团的疫苗。它还收到了来自印度的阿斯利康疫苗。根据塞舌尔卫生部的数据，当该国总统韦尔-拉姆卡拉万（Wavel Ramkalawan）首次宣布该国的疫苗接种活动时，塞舌尔总共只记录了531个冠状病毒病例和一个死亡病例。但在接种疫苗的四个月的时间里，这个数字已经上升了10倍多，达到6373例，共有146人死亡。而塞舌尔并不孤单，智利是另一个严重依赖中共疫苗的国家，尽管它的接种活动很成功，但其病例也在增加。
+
+测试已经检测到南非的变异株在岛屿上传播。科学家们认为，这种变异毒株可以逃避免疫，并使注射的疫苗在预防感染方面减弱30%。匈牙利在中共疫苗尚未得到欧盟批准前就使用了该疫苗，其Covid 19 的死亡率位居世界第一。为什么大规模的疫苗接种不但没有阻止病毒传播，还使其感染率和死亡率大幅上升？事实证明了中共的疫苗是靠不住的。
+
+原文链接：
+
+[Country With World’s Highest Vaccination Rate Orders New Lockdown As COVID Cases Surge | ZeroHedge](https://www.zerohedge.com/covid-19/country-worlds-highest-vaccination-rate-orders-new-lockdown-covid-cases-surge)
+
+
+
+编辑/校对/发稿：小鹿
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+
+
+
++1
