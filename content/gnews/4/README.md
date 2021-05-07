@@ -1,30 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 又一轮瓜分蛋糕，还是仅仅为空头支票
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1182399/)
+## 【有声读物】来自台湾满满的爱
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1182771/)
 
-**撰稿：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06234414/570.jpg)
-据路透布鲁塞尔5月6日报道，峰会草案结论显示，二十国集团(G20)国家的领导人将首次承诺为世界卫生组织(WHO)向穷国配发新冠疫苗和药物的计划提供全额资金，此举将释出近200亿美元。
+配音：香草山录音组 蒙古鸿雁
 
-在5月21日即将于罗马举行的全球卫生峰会之前，该文件仍有可能变动。根据草案，各国领袖将首次明确承诺为“获取抗击新冠病毒工具加速计划”(ACT-A)提供公平且充份的资金。ACT-A是WHO为世上每个人生产新冠疫苗、药物及检测的计划。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-该计划于2020年4月推出，目前资金仍严重不足。缺口在190亿美元。
 
-G20领导人在此前的声明中表示，他们将解决全球融资需求，但没有做出任何具体的财政承诺。而在周三G7会议上，各国的外交部长重申，他们愿意对该计划提供财政支持，但也没有说他们将充分满足财政需求。为G20峰会做准备的外交人士和专家周四将开会讨论该草案。
 
-将近200亿的资金释出，不是一个小数目，在全球经济遭受疫情重挫之后，各国财政纷纷不堪重负，那么这200亿的缺口如何分配，恐怕不仅仅是一个棘手的问题，更牵涉到背后的利益。
 
-现在全世界的疫苗主要集中在美中两国的竞争。中共的两款现用疫苗还没有通过WHO的官方审议通过，欧盟对其的审批也在过程之中。在中共疫苗保护率低下、副作用未知、效果未知的前提下，是否能通过各方的审批，就是一个博弈环节。一旦通过了之后，那么WHO采购疫苗给贫穷地区的计划中，就涉及到美中疫苗的采购方案这块巨大的蛋糕如何切割的问题了。
 
-这块蛋糕着实诱人，因此我相信各国政府绝对有动力去推动此事，一旦利益谈妥，那么为此买单的又都是全世界的人民百姓，这种打着人道主义的幌子，来割各国人民的韭菜，会否得偿所愿，还是空欢喜一场？
 
-（本文只代表作者观点，与Gnews平台无关。）
 
-**新闻来源：**
-[G20承诺全额资助WHO购买新冠疫苗及药物的计划–草案 | 路透 (reuters.com)](https://cn.reuters.com/article/g20-draft-who-funding-0506-thur-idCNKBS2CO067?il=0)
+5月2日台湾外交部推文：一批代表台湾爱心的制氧机及氧气瓶，空运至印度，并在当日下午5时抵达印度。
 
-***校对发布**：文顾*
+自三月下旬以来，印度新冠疫情又出现了大规模爆发，每日确诊病例和死亡病例数量不断攀升。5月1日，单日确诊超过40万例，累计确诊已超过2028万例，累计死亡则已超过22万例。
 
-0
+
+
+**文字版原文：[【热点播报】来自台湾满满的爱](https://gnews.org/zh-hans/1173502/)**
+
+作者：纽约香草山健身部 阿年
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++1

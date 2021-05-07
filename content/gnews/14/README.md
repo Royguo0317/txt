@@ -1,47 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【时事解析】接近群体免疫的塞舌尔感染率激增而重新实施限制
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1182217/)
+## 【热点播报】冷风微雨不减决心 GTV投资者抗议继续进行时
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1182232/)
 
-作者：休斯顿星光农场 写作部 H.B
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-03-25-230524-1.jpg)
-据多家媒体报道，太平洋岛国塞舌尔尽管已有超过60%成年人接种了两剂新冠病毒疫苗，但感染率依然激增，现在该国被迫重新实施限制。
+```
+出品：联盟GNews记者站
+前方记者：纽约香草山农场 – Kathy（文艺）
+后方撰稿：纽约香草山农场 –文阳
+```
 
-该限制包括关闭所有学校，体育活动也取消了两周。同时禁止家庭间的互动往来和某些类型的个人聚会，以及提前关闭商店、酒吧和赌场。非必需的工作也被鼓励在家进行，当地时间23点重新实行宵禁。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06230024/Screenshot-2021-05-06-215935.jpg)
-*图片来源：zerohedge.com*
 
-塞舌尔自今年1月开始接种疫苗以来，在短短四个月的时间里，从531个感染病例和1例死亡，达到目前6373个病例，死亡人数为146人，感染率上升了10倍以上，死亡率更加夸张。国家卫生部长Peggy Vidot在周二的新闻发布会上说：“尽管我们正在做出各种特殊的努力，但我国的Covid-19情况现在很严重，上周每天都有许多病例报告 “。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-目前虽然还很难判断是什么原因导致的塞舌尔病例激增，但是达特茅斯大学盖瑟尔医学院的临床医学教授丹尼尔-卢西在一篇博文中说，在2月份的检测中发现了中共病毒南非变异株B.1.351。对于南非变异株，科学家们一致认为，它可以逃避免疫，并使注射疫苗在预防感染方面减弱30%。
 
-截至4月12日，塞舌尔59%的国民接种的是中共国药集团生产的疫苗，其余的是阿斯利康公司在印度授权生产的Covishield疫苗。路透社称，最近见到的一份文件显示，对于中国国药集团所提供的关于其中共病毒疫苗导致部分病患出现严重副作用风险的数据，令世界卫生组织(WHO)专家的“信心非常低”，但对其预防新冠疾病的能力总体上有信心。在看到塞舌尔的这组数据之后，不知世卫专家的信心还会剩下多少？
 
-据独立报报道，欧盟药品监管机构周二宣布，他们已经开始对中共国药集团的一款疫苗——科兴疫苗（Sinovac）进行滚动审查，以评估其有效性和安全性，为在27国集团的使用做第一步准备工作。到目前为止，EMA已经批准了四种冠状病毒疫苗，并还在对其他三种疫苗进行滚动审查：德国生物技术公司CureVac开发的疫苗、美国开发的Novavax和俄罗斯的Sputnik V。
 
-在最近的一个视频圆桌会议中，5位被认为有资格发声的医学博士表态，他们每一个人都认为这些疫苗不是疫苗，而是旨在杀死人类的生物武器。这些高素质的医生不仅讨论了正在发生的问题的原因，还在最后给出了实用的建议，即我们现在可以做什么来保护自己，从而阻止全球主义者试图减少世界人口对人类发动这种攻击。
+前方记者：Kathy（文艺）
+2021年5月5日，纽约SEC门前抗议的第19天。
 
-资料来源：
+天空乌云密布，一早就下起了零星的小雨，估计今天白天都会下雨。现场附近高楼林立，穿梭于楼宇之间的风势有点大，令人感觉微冷。因为看了天气预报，到场的战友们都有备而来，有的穿着风衣，有的穿着雨衣，还有的打着伞。根据天气预报，今天的气温大概摄氏十几度，但由于位置靠近河边，温度比天气预报显示的更低。
 
-[https://cn.reuters.com/article/who-sinopharm-0505-wedn-idCNKBS2CN02E](https://cn.reuters.com/article/who-sinopharm-0505-wedn-idCNKBS2CN02E)
+今天有些战友是从长岛方向自驾而来，全程开车大概要花两个小时，非常辛苦。途中无论是高速还是隧道，车辆均遇到不同程度拥堵，行至曼哈顿更是举“步”维艰。战友们为了拿到停车优惠，大都来得早早的，九点前就到了。
 
-[https://www.zerohedge.com/covid-19/country-worlds-highest-vaccination-rate-orders-new-lockdown-covid-cases-surge](https://www.zerohedge.com/covid-19/country-worlds-highest-vaccination-rate-orders-new-lockdown-covid-cases-surge)
+今天来的战友大概有二十人左右，我们会进行香草山农场的GTV现场直播。战友们秩序井然，排着整齐的队伍，站好队形，高举旗帜。示威活动在各个方面都有着严格的规定，比如：示威队伍前方的自行车道和附近的草坪，均不能被占用、踩踏和用来放置物品；不能将旗帜和标语牌绑在公共设施上，如有违反会受到责备和询问。此外，现场附近还有便衣警察和警车巡逻。所以示威战友必须时刻注意对现场环境的维护，否则警察和大楼的管理人员会随时进行干预质疑，并要求马上改正。比如昨天就有个战友在附近停车片刻后，被巡逻警车发现，警察劝诫说如不将车尽快开走停至适当的位置，车主将会面临被拖车，吃罚单，自付拖车费用的后果。幸好这一切被我们现场一位发传单的战友看到，方有惊无险。
 
-[https://www.bloombergquint.com/politics/world-s-most-vaccinated-nation-reintroduces-curbs-as-cases-surge](https://www.bloombergquint.com/politics/world-s-most-vaccinated-nation-reintroduces-curbs-as-cases-surge)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06232111/2-image_2021_05_06T21_07_17_000Z.png)
 
-[https://rumble.com/vg3drt-urgent-5-doctors-agree-that-covid-19-injections-are-bioweapons-and-discuss-.html](https://rumble.com/vg3drt-urgent-5-doctors-agree-that-covid-19-injections-are-bioweapons-and-discuss-.html)
+昨天5月4日，是国内的“五四”青年节，是为了纪念1919年发生在中国历史上的那场伟大的民主自由的启蒙运动，那场运动是为了掀开近代中国历史上黑暗的方方面面，令中国人得以接触西方文明。这样的一场运动，是以以胡适先生为主笔的《新青年》杂志为标志。陈独秀曾言：杂志要当成公司来办，我们是精神上的入股，这是舆论宣传的团体。我们今天为GTV、Gnews这样的平台而来，从本质上来讲，我们战友们信仰的加盟、精神的加盟，就是我们今天在现场抗议的意义。这种信仰和当初的“五四”启蒙运动有着同样的意义，同样会在我们中华文明的历史上写下重重的一笔。
 
-[https://www.independent.co.uk/news/eu-regulators-start-review-of-chinas-sinovac-vaccine-european-medicines-agency-china-sinovac-netherlands-brazil-b1841785.html](https://www.independent.co.uk/news/eu-regulators-start-review-of-chinas-sinovac-vaccine-european-medicines-agency-china-sinovac-netherlands-brazil-b1841785.html)
+如果我们没有这样一个平台，我们中国人将永远活在黑暗中。在中共“一言堂”的专制统治下，中国人无处说真话，无处能发声。老百姓别无选择，只有被洗脑、被蒙蔽。我们的GTV是一个划时代、说真话，能够真正让老百姓发声的平台。我们中国人何其有幸，尤其是我们这一批早早觉醒的人。对于GTV，我们要维护它，建设它，还要投资它。这就是我们今天站在这里，能和“五四”运动真正产生联系的深刻意义。我们GTV的创立，就和当年的《新青年》杂志一样，能在历史上起到划时代的意义。相信GTV的创立，其意义将有可能超越“五四”运动的精神，超越“五四”运动曾在中华文明历史上留下的启蒙的，深刻的意义。
 
-编辑：文顺 校对/发稿：Helen
+我们说，没有财力，什么都免谈。后来的《新青年》杂志也正是因为各种原因被中共利用，成为一个左派媒体、左倾的工具而日渐沦落。昨天是“五四”运动102周年，“五四”运动的发源地——北京大学（前身叫燕京大学）成立于1898年五月四日。因此，“五四”青年节也是北大的生日，然而我们想问，在今日的北大，“五四”精神还有多少留存？当下的中国正面临着另一场变局：到底是向西方敞开怀抱接纳西方文明，还是抱残守缺闭关锁国？以上这些一次次地拷问着每一个中华儿女的良心和胆识。这个时刻，我们GTV投资者、拥护者又一次站在了最前面，又是站在了和“五四”运动《新青年》杂志一样、甚至比它更高的高度。站在今日问过往，当时中国人曾追求的德先生、赛先生的精神今日可还在？而我们GTV平台正在追求的是更高的正道主义，更高的自由民主，是甚至超越美国民主自由体系的高度的文明。而这一切能否让我们这一代看到，正是要靠我们GTV的投资者、正道主义的信仰者。上天正看着我们每一个喜欢、爱护、默默维护GTV的新中国联邦儿女。相信这也是我们现场GTV投资者以及他们所代表的千千万万GTV投资者的心声。我们不只是为了财富的自由，更是为了追求民主与自由的真正解放，让普世价值在中华大地真正得以实现。这样的时刻由我们这一代来实现、来开启，由我们这一代来做启蒙者和先驱者，我们责无旁贷。
 
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06232115/3-image_2021_05_06T21_07_07_963Z.png)
 
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+刚站了十几分钟，天空下起了雨。昨天刚好是五四运动102周年纪念日，记者战友感慨良多。虽然没有经历过五四运动，但曾经历过六四，经历过五四运动发源地——北京大学的洗礼，正是因为那种精神的洗礼，记者战友每年都要庆祝它的生日，庆祝五四运动和其发源地北京大学的周年庆。我们要提醒我们的国人，无论是官员还是知识分子或者精英阶层，都不要忘记：真正的自由民主离我们中华民族还很遥远，还远未达到启蒙开智的地步。胡适先生当初提出的怎样学习西方文化和政治体制等的各种建议，直到今天还是一个问题，一个问号，没有真正被谈透，被国人所接受。所以一百多年后，人们或许仍会面临着同样的问题。所以今天的我们要在开启国人民智、心智的道路上勇敢坚定地走下去，这是我们的肩负的使命和责任。
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
 
+
+编辑/校对/发稿：小鹿
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场****Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场****Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01211000/gnews-logo-3.jpeg)
 
 
 

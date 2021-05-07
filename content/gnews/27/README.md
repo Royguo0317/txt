@@ -1,57 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0505XV中共绝不会承认有解药但会以某种方式建议用药
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1181926/)
+## 【香草诗词汇】中共疫苗
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1182224/)
 
-编辑整理：
+作者：纽约香草山媒体部  蚊子
 
-纽约香草山农场：酸酸乳(文少)；日本东京方舟农场：山川异域
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06215044/%E5%B0%81%E9%9D%A2-28.jpg)
-据[2021-05-05 文贵直播：回答战友们目前关心的问题](https://gtv.org/video/id=60929c03db13300ca5491b6d)时间点2：26：39——
 
-沉默中的爆发：七哥墙内的战友等你解放大家呢。
 
-这话不准确，我解放不了大家，解放大家的前提是大家把自己解放了，你最起码有看待事情真假善恶的能力，你就解放了。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
-阿尔法，阿尔法：七哥，共匪在什么情况下会交出解药？
 
-我认为它会分两步走，它会逐渐地让大家知道吃什么管用，它吃什么药管用，就是说公开一些解药的一些办法，例如羟氯喹现在就很快，大家又让人知道羟氯喹了，那么羟氯喹会成为一种办法，还有更多、还有其他应该有更好的吃了管用的药。
 
-然后呢，它逐渐的它不会正式地交出解药，它会在认为是完全失控的情况下、对它已经完全失控了，可能在这种情况下曾庆红包括王岐山、韩正和江家，你一定记住我的话，他们会促使中共，这些是我最恨的人——王岐山可能就是他要提出来要赶快把药拿出来吧。
+![]()![](https://media.discordapp.net/attachments/801458362239156274/840056309108703252/image0.jpg?width=943&amp;height=609)
 
-这帮人是投机主义者，我觉得是有可能的，甚至他们主动动手把习一坑给灭了，都是有可能的，然后把药给找个理由出去，它绝对永远不可能说这是我的解药，永远不可能，共产党承认自己是冠状病毒的元凶、超限武器，永远不可能。
+起初，我祈祷疫苗就像保健品，预防冠状病毒，不求有用但求无害。
 
-接上文——
+接着，我发现疫苗是精神毒品，麻痹大众痛苦，掩盖中共投毒事实。
 
-[郭文贵先生2021年5月5日直播开始前播放视频文字汇总](https://gnews.org/zh-hans/1177897/)
+后来，我确认疫苗等同于病毒，加剧全球蔓延，导致人民痛苦死去。
 
-[郭先生0505I与战友们互动回答战友们提出的问题汇总1](https://gnews.org/zh-hans/1179745/)
+今天，我希望能大声唤醒世界，停止注射疫苗，怒向中共索取解药！
 
-[郭先生0505II在清朝中美人民交往极好中共毁了中国人的形象](https://gnews.org/zh-hans/1179837/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
 
-[郭先生0505III新中国联邦不会有军队,没有一个军队敢碰我们](https://gnews.org/zh-hans/1179930/)
+校对/发稿：Irene木木
 
-[郭先生0505IV中共要干掉Elon Musk的事让西方认清其本质](https://gnews.org/zh-hans/1179969/)
+**更多资讯，更多关注**
 
-[郭先生0505V中共极权下市场经济问题汇总到中央最终脆断](https://gnews.org/zh-hans/1180013/)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[郭先生0505VI美元贬值和世界滥印等导致喜美元成唯一避险地](https://gnews.org/zh-hans/1180047/)
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[郭先生0505VII与战友们互动回答战友们提出的问题汇总2](https://gnews.org/zh-hans/1180129/)
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-[郭先生0505VIII喜支付完全无界化已彻底跟着你的生命灵魂化](https://gnews.org/zh-hans/1180193/)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[郭先生0505IX一系列政治滑稽事件后美会出病毒白皮书最终版](https://gnews.org/zh-hans/1180220/)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[郭先生0505X新中国联邦和爆料革命是美走向强大的最强中坚](https://gnews.org/zh-hans/1180275/)
 
-[郭先生0505XI中共内忧外患辛丑年底会很难明年绝对过不了](https://gnews.org/zh-hans/1180310/)
 
-[郭先生0505XII美国钟摆变双剑,中共倒台后世界会出第二个帝国](https://gnews.org/zh-hans/1180347/)
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
 
-[郭先生0505XIII联盟委员会和农场都需要成长的过程要互相帮衬](https://gnews.org/zh-hans/1180406/)
 
-[郭先生0505XIV缅甸只有中共灭了才可能好昂山素姬很快会被灭](https://gnews.org/zh-hans/1181855/)
 
 0

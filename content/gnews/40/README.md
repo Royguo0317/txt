@@ -1,58 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月6日美国政要和政评家反共推特精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1181651/)
+## 【热点解读】全球疫苗接种率最高国塞舌尔疫情再度抬头
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1181816/)
 
-参议员瑞克·斯科特： 我赞扬七国集团（G7）的外交部长反对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的过度扩张和严重的侵犯人权行为，并加入美国支持我们的民主盟友台湾。我们都必须团结起来反对中共国的种族灭绝和压迫.我敦促参议院的同事们支持我的《世卫组织问责法》的即时通过。我们必须让世卫WHO为帮助中共国掩盖COVID-19的信息负责，并确保在台湾成为会员国之前，美国不会再给它一毛钱。
+撰稿：两万五，爆大料
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06212245/701-2.png)图片来自网络
+近日一则彭博社消息引起了不小的轰动。彭博社称塞舌尔60%的成年人已接种了两剂疫苗，但疫情仍无法控制。数据显示感染者中已完成疫苗接种者的比例为35%。那塞舌尔成年人接种的是何种疫苗？为何疫苗接种率达60%的国家在近期又爆发疫情？本文围绕上述两个问题进行分析。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06212359/702.jpg)岛国塞舌尔的美丽风光
+让我们先了解下塞舌尔这个国家，*塞舌尔*是在印度洋上的一个群岛国家，*人口数量约有9万多，人口*年龄结构中，15岁以下人口的占比为22%，15至64岁人口占比71%，65岁以上人口占比7.2%，主要资源是*旅游*业。从上述资料中看出塞舌尔是一个人口稀少的小国，人口结构以中青年为主。那为何一个岛屿小国遭到如此严重的疫情？七哥在直播中曾表示：“目前印度疫情严重，很多印度有钱人都逃往塞舌尔”。再看一下印度卫生部5月5日公布的数据：“过去24小时新增新冠确诊病例382315例，单日新增确诊病例已连续两周超过30万例”。这里可以断定，塞舌尔的疫情是外来输入造成的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06212531/703-2.png)图片来自网络
+在得知这一新闻后，本文作者立刻与一位常住塞舌尔的本地居民进行沟通，该居民说：“塞舌尔18岁~60岁的大部分接种人群使用的是中国国药公司的疫苗，也有一部分注射阿斯利康疫苗，60岁以上接种的是英国阿斯利康公司疫苗”。
 
+从该居民透露的信息中可以了解到，大部分塞舌尔人接种的是中国疫苗。中共喉舌钟南山院士曾表示“中国疫苗安全、有效，7个月到8个月后抗体还能维持90%的水平。”看来钟南山这次又在妥妥地忽悠了。从塞舌尔疫情事件来看，可以得出两点：第一，中共疫苗对病毒没有一点防护力。第二，中共疫苗安全性差，竟然都不敢给60岁以上人群接种。这就是塞舌尔疫情再度抬头的原因！
 
+（文章内容仅代表作者观点）
 
-> I applaud the G7 foreign ministers for taking a stand against Communist China’s overreach & horrific human rights abuses & joining the U.S. in supporting our democratic ally Taiwan. We must all stand united against Communist China’s genocide & oppression: [https://t.co/KRKNXyqttf](https://t.co/KRKNXyqttf)
-> — Rick Scott (@SenRickScott) [May 6, 2021](https://twitter.com/SenRickScott/status/1390421334379929609?ref_src=twsrc%5Etfw)
+*初审：**2号电梯*
 
+*审稿：光耀华夏*
 
-
-众议员Mike Gallagher’s: 越来越清晰的是，实验室泄漏假说根本不能被排除，无论 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 对此有何看法，我们都需要答案。 【[http://medium.com](https://t.co/c8i5z8Dyvh?amp=1)文章：新冠病毒起源-追循线索】
-
-
-
-> It’s becoming increasingly clear that the lab leak hypothesis cannot be dismissed out of hand. We need answers, regardless of how the Chinese Communist Party feels about it. [https://t.co/DLWEXf56CK](https://t.co/DLWEXf56CK)
-> — Rep. Mike Gallagher (@RepGallagher) [May 6, 2021](https://twitter.com/RepGallagher/status/1390418220734103553?ref_src=twsrc%5Etfw)
-
-
-
-参议员霍利新闻办公室： 参议员乔什·霍利再次呼吁对大科技垄断企业采取反托拉斯行动，特别是对脸书FB继续封禁川普总统而大声疾呼。 霍利说：“现在，脸书拥有一切权力。” “消费者的权利却为零。” 【转福克斯新闻：霍利：脸书Facebook董事会对川普的禁令，证明了是时候该认真对待反托拉斯行动了】
-
-
-
-> Sen. Josh Hawley renewed his call for antitrust action against Big Tech monopolies, specifically calling out Facebook's continued ban of Former President Trump.
-> 
-> "Right now, Facebook has all the power," Hawley said. "Consumers have zero power." [https://t.co/N4DMIZecse](https://t.co/N4DMIZecse)
-> — Senator Hawley Press Office (@SenHawleyPress) [May 6, 2021](https://twitter.com/SenHawleyPress/status/1390353374571343875?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特: [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 是世界上最糟糕的污染国，我们不能相信它会做出任何改变。 解决我们的气候变化需要切实的解决方案，但我们不能假装与像中共国 这样的巨型污染者达成无用的协议能为推进这项工作做任何事。 【转推文：最新：据分析,2019年中国的温室气体排放量,超过美国和发达国家的总和】
-
-
-
-> Communist China is the world’s worst polluter & we can't trust it will do anything to change course.
-> 
-> Addressing our changing climate requires real solutions, but we can't pretend toothless agreements with mega-polluters like Communist China will do anything to advance that work. [https://t.co/RJcsuBBi38](https://t.co/RJcsuBBi38)
-> — Rick Scott (@SenRickScott) [May 6, 2021](https://twitter.com/SenRickScott/status/1390376959687933966?ref_src=twsrc%5Etfw)
-
-
-
-参议员卢比奥新闻办公室： [#印度](https://twitter.com/hashtag/%E5%8D%B0%E5%BA%A6?src=hashtag_click) 正确地将象华为[@Huawei](https://twitter.com/Huawei)和中兴[@ZTEdevice](https://twitter.com/ZTEDevice)这样的中国国有企业排除在了他们的5G试验之外。 [#华为](https://twitter.com/hashtag/%E5%8D%8E%E4%B8%BA?src=hashtag_click) 和其他中国公司带来的安全风险实在是太高了，更多的国家应该效仿印度。 【转路透社印度的推文及文章：印度并未将华为列为5G试验参与者】
-
-
-
-> [#India](https://twitter.com/hashtag/India?src=hash&amp;ref_src=twsrc%5Etfw) has rightfully excluded Chinese state-directed companies like [@Huawei](https://twitter.com/Huawei?ref_src=twsrc%5Etfw) & [@ZTEdevice](https://twitter.com/ZTEDevice?ref_src=twsrc%5Etfw) from participating in their 5G trials. 
->  
-> The security risk posed by Huawei & other Chinese companies are simply too high and more nations should follow India. [https://t.co/dRx9yuyuKY](https://t.co/dRx9yuyuKY)
-> — Senator Rubio Press (@SenRubioPress) [May 6, 2021](https://twitter.com/SenRubioPress/status/1390291790880772098?ref_src=twsrc%5Etfw)
-
-
-
+*编辑：**MG1*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04002827/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
 0
