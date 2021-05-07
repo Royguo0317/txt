@@ -1,49 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亚利桑那州选举更多腐败和可疑问题被曝光
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1184895/)
+## 世卫组织紧急批准中共疫苗
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1185053/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
-
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/05/E-6.jpg)oliverwrights.com
-干扰还在继续，审计仍在进行中，5月7日早晨《门道专家》作了最新报道，“在司法审计开始之前，有三个事态发让马里科帕（Maricopa）郡的2020年大选无效，并将监事会成员置于法律受审的境地”。
-
-文章起始附上了马里科帕郡监事会成员的照片：
-![]()![](https://www.gnews.org/wp-content/uploads/2021/05/图1.png)
-文章说，随着马里科帕郡法庭审计的继续进行，本周披露了三个爆炸性的事态发展，这将使该郡（负责2020大选事务的）监事会成员处于法律受审的境地，甚至在法庭审计的结果完成之前，也应使欺诈性的选举无效。
-
-马里科帕郡选举管理团队，以及（投票设备）供应商的更多腐败和可疑行为被曝光。
-
-1、亚利桑那州共和党主席凯利·沃德（Kelli Ward）博士5月5日在推特上说，选举期间马里科帕郡保存数据的部件每晚都被偷偷地带到异地，现在还不清楚是谁带走了他们！
-
-这违反了监管链的规定，非常可疑。
-
-2、马里科帕郡选举管理团队本周承认，他们没有进入该郡投票机的“管理”权限。
-
-说出真情？那是谁呢？他们为什么要把这个“权限”让给多米尼（the Dominion）投票机公司？这怎么合法？
-
-3、马里科帕郡官员拒绝将路由器或路由器图像交给选举审计员，他们违抗法官的命令。
-
-他们害怕什么？他们在隐瞒什么？
-
-任何一个这样的疑点都可能使马里科帕郡的监事会成员陷入困境。
-
-而且，任何一项都可能使该郡2020年的选举无效。
-
-当然，法庭审计的结果还有待公布！
-
-（原文完）
-
-期待亚利桑那州的重新计票审计顶住压力、排除干扰，还原真相，完成“美国审计”、“历史性审计”，向美国人民作出交代。通过这次审计，开启拒绝欺诈舞弊、拒绝邪恶之路，认清真正的幕后黑手，还文明世界以安宁。
-
-原文链接：
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07160950/Vaccination-against-coronavirus-disease-in-Stip.jpg)
 
 
+图片来源： 路透社
 
-> [Three Developments That Should Nullify Maricopa County 2020 Election and Put Supervisors in Legal Jeopardy — BEFORE THE FORENSIC AUDIT EVEN STARTED](https://www.thegatewaypundit.com/2021/05/three-developments-nullify-maricopa-county-2020-election-put-supervisors-legal-jeopardy-forensic-audit-even-started/)
+信息来源：世界报网络版 
+发布时间：2021年5月7日
+翻译 /整理/ 简评： Shuizhuyu
 
+世界卫生组织已批准了首个中国日冕疫苗。 如果中共国按照承诺向国际疫苗接种计划交付Covax，那可能意味着全球疫苗接种运动将迎来高潮。
 
+世界卫生组织（WHO）已紧急批准了中共国制造商国药控股的病毒疫苗。 世卫组织总干事特德罗斯·谭德赛周五说，该组织的决定是根据一个咨询小组的意见。
+
+这意味着该疫苗可在未来几周或几个月内纳入联合国支持的Covax计划。 是为了确保较贫穷的国家也获得数百万份病毒疫苗。 中共国已经在二月份承诺向该国际计划提供一千万剂。
+
+国药控股几乎没有发布有关其疫苗的信息。 世卫组织另一个疫苗咨询小组表示，“国药”疫苗能够保护18至59岁的人们，对此“非常有信心”。 她对该疫苗在60岁以上人群中的有效性“信心不足”，并且现有数据对该年龄组严重副作用 “信心不足”。 效率为79％。 世卫组织总干事谭德赛说，要完全预防接种，需要两剂。
+
+对于欧盟，美国和其他具有疫苗的国家，世卫组织的紧急批准没有任何意义。您自己检查活性成分并决定是否批准。但是，没有能力进行自己的科学测试的国家使用世卫组织的质量测试作为自己批准的基础。
+
+**简评：**** ****又是这个谭德赛，**** ****这次是他亲自批准了中共国的疫苗。**** ****主要是供应给世界上相对贫穷的国家。**** ****中共国的疫苗在巴西的实验难道还不够吗？**** ****连巴西的总统现在都公开指责中共病毒**** ****，**** ****这还不够，**** ****还要提供给这些贫穷国家这个可怕的疫苗。**** ****中共的这些恶毒还要持续到什么时候呀？**** **
+
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+
+发表： Shuizhuyu
+
+🔗[Sinopharm-WHO-Notfallzulassung-fuer-chinesischen-Corona-Impfstoff.html](https://www.welt.de/politik/ausland/article230967969/Sinopharm-WHO-Notfallzulassung-fuer-chinesischen-Corona-Impfstoff.html)
 
 0
