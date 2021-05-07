@@ -1,47 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】中共疫苗
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1182224/)
+## 【GNews纽约记者站】哈德逊河边的一道别样风景线—SEC纽约抗议现场花絮小集
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1181730/)
 
-作者：纽约香草山媒体部  蚊子
+*前方报道：纽约香草山记者站—Kathy（文艺）
+后方撰稿：GNews记者总站/加拿大枫叶农场-向往真理*
 
+纽约美国证券交易所（SEC）的官员们恐怕从未想过会有这样一群投资者，不畏权威，与他们死磕到底。快一个月过去了，无论是在凌厉的寒风中，还是初夏难得的阳光下，这群抗议者们已经成为了纽约哈德逊河边，SEC办公大楼前一道别样的风景线。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06230820/sec4.png)
+东方华人的面孔，整齐划一的秩序，他们展现了新中国联盟人特有的正义和坚韧。继上次的报道后，我们再次集结了GTV投资者们在抗议现场的一些花絮，展示这些平凡人的不平凡故事。
 
+**浅显易懂的抗议口号**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
+每天，经由纽约SEC大楼的过往人流车辆，不会留意不到SEC门前的标语和不时传出的饱满有力、掷地有声的抗议声。
 
+SEC, shame on you！
+SEC, you must pay！
+SEC, corruption！
+SEC, meet in court！
+SEC loves CCP！
+Take down CCP！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06214842/image-92.png)
+这些口号短小精悍且浅显易懂，体现了抗议者们对官僚黑幕的深刻洞见和对自身合法权益不可侵犯的正义诉求。“我们要的就是这个效果”，抗议者们说：“横幅一拉，口号一喊，人们就知道我们是谁，是来干什么的。”
 
+**自己的事情自己报道**
 
-![]()![](https://media.discordapp.net/attachments/801458362239156274/840056309108703252/image0.jpg?width=943&amp;height=609)
+除了GTV平台记者外，几乎没有一家美国当地媒体现身采访或者报道，但这群投资者们毫不在意。他们从不指望别人来为自己宣传，因为他们有自己的媒体平台——GTV和GNnews，既可以做现场直播，又可以进行文字报道。GTV和GNnews像两个孪生兄弟，即宣扬公义，又为他们加油打气，让他们内心始终感到温暖而有底气，同时看到了投资GTV的价值。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06215151/sec2.jpg)
+纽约香草山农场记者站的Kathy（文艺），身兼数职，既做天气播报、现场采访、口述点评、又做视频拍摄。她的风格细腻、义正词严、铿锵有力，极富现场感，也很能鼓舞士气。每天，她都会随时传回现场的图片、视频，体现了G媒体独特的真实性。
 
-起初，我祈祷疫苗就像保健品，预防冠状病毒，不求有用但求无害。
+通过她的报道，我们才得以知晓，前线的抗议者们每天除了需要战胜身体的疲惫，也同时面临战胜心理压力的挑战。他们是一群在风雨和春寒中意志坚定的新中国联邦人，只为揭露真相，呼唤正义，让SEC停止与CCP的非法勾结和对合法投资者的打压。
 
-接着，我发现疫苗是精神毒品，麻痹大众痛苦，掩盖中共投毒事实。
+**一边抗议一边捡拾垃圾**
 
-后来，我确认疫苗等同于病毒，加剧全球蔓延，导致人民痛苦死去。
+另一位投资人金牛，每次来参加现场抗议行动，都会自带捡拾垃圾的工具和垃圾袋，一边抗议一边不忘清理现场角角落落的每一片垃圾，哪怕不是战友们留下的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06215207/sec3.jpg)
+他的话简单而朴实，“这个城市需要每一个人来维护。作为一个纽约市民，我有责任和义务维护这里的环境。不管是谁留下的垃圾，我都要把它捡起来”。他说，“我爱纽约，我爱世界，我们需要干净的环境。不仅不制造垃圾，还应该清理环境”。
 
-今天，我希望能大声唤醒世界，停止注射疫苗，怒向中共索取解药！
+在金牛看来，抗议者绝不是一群乌合之众，更不是去SEC围攻和捣乱的。他们代表的新中国联邦人，做任何事都应该有头有尾。他相信，只要坚持下去，胜利最终会属于我们。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+**分发传单就是播撒种子**
 
-校对/发稿：Irene木木
+现场还有抗议者兼战友负责向过往行人分发单张，目前已经分发出几万张。他们一边揭露SEC阻扰对GTV的投资并与CCP勾结的真相，另一方面介绍阎丽梦博士有关CCP病毒的真相。他们相信每一次对真相的揭露，都如在西方自由世界种下的一颗种子，它们会发芽生长，会在更多的人群中生根，并会很快成长、壮大！
 
-**更多资讯，更多关注**
+SEC的抗议仍在进行中。面对G媒体记者的采访，投资者代表用了一句言简意赅的话表达了他们的坚决态度：CCP不灭，此生不得安宁。我们义无反顾，责无旁贷。
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+相关链接：[【热点播报】【GNews 纽约记者站】春寒料峭中坚守的勇士——SEC 纽约抗议现场综合报道](https://gnews.org/zh-hans/1150990/)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+* * *
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+编辑 发稿 云起时
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-
-
-0
++2
