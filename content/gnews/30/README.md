@@ -1,21 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】05/06/2021：中共恃强凌弱战狼外交整个社会处于疯狂状态随着房地产金融系统经济崩塌14亿中共统治下的奴隶会灾难重重对抗中共应该是美国跨党派的共识
-` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1183313/)
+## 2021年5月06日秘翻快报【头条新闻】
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1183503/)
 
-**制作：Cantonese工作室**
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07051047/IMAGE-2021-05-07-154601.jpg)](https://gtv.org/video/id=6094f1f6db13300ca54b7c83)
+**新闻总结：**
 
+1.    中共媒体：印度变异病毒进入中国
 
+2.    中共国消费者指出5G的五大骗局
 
-**播报:【文依】资料整理:【陆柒陆捌】【Ruby三鑫】【michelle喜乐】PPT制作:【米线】视频制作:【KEN】上传：【星星】【向阳6768】**
+3.    塞林博士发布第二个视频揭露中共渗透美国科研机构
 
-摘要：
+4.    网络视频爆出：与接种疫苗的人有接触的女性易流产或不孕
 
-1
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07044030/image7.1-1-1.png)
-2
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07044108/image7.2-1.png)
-3
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07044142/image7.3-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01093124/image0%E9%9D%A2.jpg)
+5.    中共利用生物武器给世界造成巨大伤害的同时，也在武器化债务协议进行侵略和剥削
+
+**By:秘翻快报组**
+
+**GTV 链接:**[https://gtv.org/video/id=6094f1f6db13300ca54b7c83](https://gtv.org/video/id=6094f1f6db13300ca54b7c83)
+
 0

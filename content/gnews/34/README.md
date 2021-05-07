@@ -1,65 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧中关系恶化 欧盟暂停批准投资协议
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1183275/)
+## 2021/05/05 班农采访（4）： 中共已到灭亡的时刻，习近平会是中共最后的皇帝
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1183462/)
 
-新闻来源：《香港自由新闻》| 作者：AFP | 发布时间：2021年5月4日
-翻译/简评：新街口 | 校对/审核：万人往 | Page：Daoiii
+视频字幕：云岭 | 听写/翻译：Wade | 校对：Clau | 简评/文字整理/编辑：胖丁
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ke22X8nkGtR18/images/1c5327f8-726d-4a33-978b-b58572145935.png?asset_id=0bb6636c-18a9-4120-9d29-1155844286e2&amp;img_etag=%22e122e958e753b909e764d4b10df4fd4c%22&amp;size=1024)](https://spark.adobe.com/page/ke22X8nkGtR18/images/1c5327f8-726d-4a33-978b-b58572145935.png?asset_id=0bb6636c-18a9-4120-9d29-1155844286e2&amp;img_etag=%22e122e958e753b909e764d4b10df4fd4c%22&amp;size=1024)资料照片：欧盟委员会副主席杜姆布罗夫斯基斯
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/top.jpg)
 
 **简评：**
 
-**本文介绍了因新疆种族灭绝问题，导致了欧盟与中共的相互制裁，在外交关系急剧恶化的情况下，欧盟终止了与中共国达成大规模投资协议的努力。**
+八九六四天安门事件之后，由于老布什插手，本应该被消灭的中共得以存活。并且在西方政府和资本家，尤其是华尔街、伦敦金融城、跨国公司的资助下做强做大，其腐败和邪恶对整个世界构成了致命的威胁。中国人民被奴役了几十年，最终必定会解救自己，推翻中共，获得自由。习近平会是中共最后一任皇帝。
 
-**最近几年，中共战狼外交四处出击，尤其是在中共病毒起源和新疆种族灭绝问题上，不断地用威胁和恐吓的方式回应西方国家对中共提出的合理外交要求。**
+**YouTube视频链接：**
 
-**例如从2020年开始，澳大利亚因为要求调查中共病毒起源，不但受到了中共国内媒体和外交部战狼的言语攻击，还受到了持续的贸易制裁；而在3月的阿拉斯加中美会谈中，杨洁篪16分钟谩骂式的发言则把中共的丑恶战狼外交表演推上了一个高潮。**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ke22X8nkGtR18/images/b091c458-56b2-4d74-887f-8f5c99a8153b.jpg?asset_id=8659edf2-7fdb-4dce-a848-bf58305e9e23&amp;img_etag=%22af8499fe22c7118807d24abf934f48bd%22&amp;size=1024)](https://spark.adobe.com/page/ke22X8nkGtR18/images/b091c458-56b2-4d74-887f-8f5c99a8153b.jpg?asset_id=8659edf2-7fdb-4dce-a848-bf58305e9e23&amp;img_etag=%22af8499fe22c7118807d24abf934f48bd%22&amp;size=1024)
 
-**但中共的这些威胁和恐吓并未让西方国家屈服，反而遭到了全世界民主国家团结一致地围堵。新近形成的美、日、印、澳四国联盟已经对中共国形成了战略包围；本月召开的G7会议邀请了亚太地区除中共国之外的所有重要国家：澳大利亚、印度、日本、韩国、和东盟组织，而新疆种族灭绝和中共病毒则是此次会议的重要议题之一。**
+**GTV视频链接：**[https://gtv.org/video/id=609498c137f7f73984c8b83b](https://gtv.org/video/id=609498c137f7f73984c8b83b)
 
-**中共的战狼外交实质是理屈词穷的一种表现，也是用来欺骗、忽悠国内百姓的一种手段。而真实情况是，战狼外交在国际社会中早已四处碰壁。如郭先生4月10日盖特所说：“共产党的战狼外交已经迅速地变成了疯狗外交……人人喊打。”**
+**视频字幕：**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ke22X8nkGtR18/images/9bba3021-8a47-49ae-a682-a030f750b1c9.jpg?asset_id=3244cb94-11b7-46dc-9f29-7d44fce4ddc8&amp;img_etag=%2230ab00c43a40024ca662521b242e836b%22&amp;size=1024)](https://spark.adobe.com/page/ke22X8nkGtR18/images/9bba3021-8a47-49ae-a682-a030f750b1c9.jpg?asset_id=3244cb94-11b7-46dc-9f29-7d44fce4ddc8&amp;img_etag=%2230ab00c43a40024ca662521b242e836b%22&amp;size=1024)
+我希望你们可以看看昨天的战斗室，因为Clydesdale Prestowitz的书。这本书讲述的最重要的一件事，西方，尤其是美国，在1989年64天安门事件之后本可以消灭中共，如果不是老布什作梗，他曾经担任驻华大使和中情局局长。
 
-**原文翻译：**
+如果不是老布什在64事件两三周之后，派遣布伦特·斯考罗夫特将军去见邓小平。中共那时候可能会被那些当时二十多岁、出生于文革时期的年轻人推翻。我认为这是具有象征意义的。是西方政府和西方资本家保障了中共的权利，让它们在今天做强做大。华尔街、伦敦金融城、跨国公司是中共的同伙。
 
-## 外交关系恶化，欧盟暂停批准中共国投资协议的努力
+我们必须面对这个可悲的现实，这也是我成为平民主义者的原因。这就是我为什么是一个强烈反抗这些机构的激进平民主义者，因为他们与世界上最腐败的、散播邪恶的犯罪集团勾结。这就是我们面对的使命，是我们要完成的事业。
 
-**欧盟最高贸易官员周二表示，鉴于双方在针锋相对的相互制裁后，外交关系急剧恶化，欧盟已暂停与中共国达成大规模投资协议的努力。**
+大部分西方世界是中共犯罪集团的同伙。这已经持续了几十年，这必须被终结，也必将被终结。中国人民会获得自由，会记得谁与他们并肩作战。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ke22X8nkGtR18/images/8bc05f3a-df6c-4847-abb7-fa1e7c52624f.png?asset_id=1f320fad-9cf2-42ad-8772-450e698cc809&amp;img_etag=%22b3ac26cbaf42e6e3109505b3909683bb%22&amp;size=1024)](https://spark.adobe.com/page/ke22X8nkGtR18/images/8bc05f3a-df6c-4847-abb7-fa1e7c52624f.png?asset_id=1f320fad-9cf2-42ad-8772-450e698cc809&amp;img_etag=%22b3ac26cbaf42e6e3109505b3909683bb%22&amp;size=1024)档案照片：欧盟
+**主持人: **是你与我们并肩战斗。
 
-欧盟执行副总裁Valdis Dombrovskis在接受法新社采访时说：“从某种意义上说，我们现在已经暂停了……来自欧盟委员会方面的政治外联活动。”
+**Bannon: **要知道，这里没有救世主，没人能够给中国人自由，中国人民会解救自己。中国人被压迫。他们有伟大的文明，中国人是伟大的，他们很温良，注重家庭，他们被压迫太久了。这不会继续下去。习近平将是最后的皇帝，这个犯罪集团最后的帝王会被中国人民推翻。
 
-Dombrovskis说：“很显然，在目前的情况下，欧盟实施了针对中共国的制裁，中共国也实施了包括针对欧洲议会议员在内的反制裁，这不利于批准该协议。”
+我非常自豪，能在这之中作为小小的一份子，帮助中国人民争取自由，因为这是当今世界的主题。中国人民的自由，是所有问题的核心。他们正在打破数千年的奴隶枷锁。
 
-他补充说，试图批准该协议“将真正取决于更广泛的中欧关系将如何发展”。
-
-令许多人感到惊讶的是，在德国的最终推动下，欧盟和中共国在12月底批准了一项重大投资协定，从而结束了长达7年艰苦的谈判。
-
-这项协议一直被认为是欧洲公司向中共国长期封闭的经济开放的必要举措，但它肯定会在27个成员国以及欧洲议会中面临艰难的批准。
-
-拉脱维亚前总理Dombrovskis负责牵头欧盟的批准程序，但该协议已经受到了关键欧洲议会议员的反对。
-
-3月份，四名中共国官员因涉嫌在中国偏远的西部新疆地区侵犯人权，受到了欧盟的制裁。
-
-作为回应，中共国也对欧洲的政客、学者和研究团体实施了制裁。
-
-🔗[原文链接](https://hongkongfp.com/2021/05/04/breaking-eu-suspends-efforts-to-ratify-china-investment-deal-as-diplomatic-relations-sour/)
+不再受到中共这个超级现代化的杀人犯罪集团通过各种先进科技实施的，坦白讲就是，超人类主义的压迫。
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
-编辑：【英国伦敦喜庄园编辑部】Edited by：【Himalaya London Club UK】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/ke22X8nkGtR18/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/ke22X8nkGtR18/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
-
-
-
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

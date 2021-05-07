@@ -1,11 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 肯·贝尔金：脸书、推特等正变成国家对话的仲裁
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1182981/)
+## 【路德简报】5/6/2021早：蓬佩奥称美国最大敌对势力就是中共！这是跨党派共识，无关两党政治
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1183338/)
 
-5/6/2021 宪法及民权律师肯·贝尔金接受Newsmax TV采访时说道，社交媒体正变成国家对话的仲裁，我们必须审视这种状况如何影响到第一修正案并有可能据此扩大第一修正案的保护范畴。
+**编辑：华盛顿DC农场 路德简报项目组**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07043754/V2.6.6_AM_CN-2-scaled.jpg)
 
-By： 【秘密翻译组 G-Translators】
+
+> 2021 年5月6日 路德时评 早
+> 
+> 1. 蓬佩奥：美国最大敌对势力就是中共！这是跨党派共识 无关两党政治
+> 
+> 2.汪文斌叫嚣美国霸权，欲否定二战后 联合国制定的国际规则 [pic.twitter.com/If84nX6Fak](https://t.co/If84nX6Fak)
+> — 平民爆料 (@WM18320321) [May 7, 2021](https://twitter.com/WM18320321/status/1390506626839371779?ref_src=twsrc%5Etfw)
+
+
 
 0
