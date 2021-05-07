@@ -1,48 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【时事解析】接近群体免疫的塞舌尔感染率激增而重新实施限制
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1182217/)
+## 【时事解析】巴西总统暗示中共发起“化学细菌战”
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1182390/)
 
-作者：休斯顿星光农场 写作部 H.B
+作者：休斯顿星光农场 写作部 文顺
 ![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-03-25-230524-1.jpg)
-据多家媒体报道，太平洋岛国塞舌尔尽管已有超过60%成年人接种了两剂新冠病毒疫苗，但感染率依然激增，现在该国被迫重新实施限制。
+**据法广网报道，巴西总统贾尔·博尔索纳罗周三在巴西利亚的一个官方正式仪式中暗示中共国在“实验室”里制造了Covid-19病毒，以进行“化学细菌战”。这是自中共病毒爆发以来首位谈论病毒是生化战争的总统。**
 
-该限制包括关闭所有学校，体育活动也取消了两周。同时禁止家庭间的互动往来和某些类型的个人聚会，以及提前关闭商店、酒吧和赌场。非必需的工作也被鼓励在家进行，当地时间23点重新实行宵禁。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06230024/Screenshot-2021-05-06-215935.jpg)
-*图片来源：zerohedge.com*
+巴西总统贾尔·博尔索纳罗说：“这是一种新病毒，没有人知道它是在实验室里产生的，还是因为人类摄入了不应该摄入的动物而产生。”他还说：“军方知道什么是化学细菌战争。我们现在难道不是在参加新的战争吗？哪个国家的国内生产总值增长得最快？”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06232944/Screenshot-2021-05-06-222850.jpg)
+*图片来源：法广中文网*
 
-塞舌尔自今年1月开始接种疫苗以来，在短短四个月的时间里，从531个感染病例和1例死亡，达到目前6373个病例，死亡人数为146人，感染率上升了10倍以上，死亡率更加夸张。国家卫生部长Peggy Vidot在周二的新闻发布会上说：“尽管我们正在做出各种特殊的努力，但我国的Covid-19情况现在很严重，上周每天都有许多病例报告 “。
+尽管他的发言中并没有提到中共，但中共国是20国集团中唯一一个在2020年实现经济增长的（增长2.3％）国家。
 
-目前虽然还很难判断是什么原因导致的塞舌尔病例激增，但是达特茅斯大学盖瑟尔医学院的临床医学教授丹尼尔-卢西在一篇博文中说，在2月份的检测中发现了中共病毒南非变异株B.1.351。对于南非变异株，科学家们一致认为，它可以逃避免疫，并使注射疫苗在预防感染方面减弱30%。
+现任国会议员爱德华多·博尔索纳罗（Eduardo Bolsonaro）也曾有类似的言论。他在2020年3月指责中共“隐瞒”了有关该病毒的信息，并将其与当初掩盖1986年切尔诺贝利核灾难规模的“苏联专政”相提并论，此番言论当时引起了中共当局的强烈反对。
 
-截至4月12日，塞舌尔59%的国民接种的是中共国药集团生产的疫苗，其余的是阿斯利康公司在印度授权生产的Covishield疫苗。路透社称，最近见到的一份文件显示，对于中国国药集团所提供的关于其中共病毒疫苗导致部分病患出现严重副作用风险的数据，令世界卫生组织(WHO)专家的“信心非常低”，但对其预防新冠疾病的能力总体上有信心。在看到塞舌尔的这组数据之后，不知世卫专家的信心还会剩下多少？
+4月底，巴西经济部长格德斯（Paulo Guedes）在不知道自己正在被拍摄的情况下透露，中共制造了这个病毒。
 
-据独立报报道，欧盟药品监管机构周二宣布，他们已经开始对中共国药集团的一款疫苗——科兴疫苗（Sinovac）进行滚动审查，以评估其有效性和安全性，为在27国集团的使用做第一步准备工作。到目前为止，EMA已经批准了四种冠状病毒疫苗，并还在对其他三种疫苗进行滚动审查：德国生物技术公司CureVac开发的疫苗、美国开发的Novavax和俄罗斯的Sputnik V。
+据星光社4月底报道，郭文贵先生在盖特视频中爆料：中共在研制武汉病毒的过程中已经研制出了解药，这也是中南坑里的几个重要高官及他们的家人无一人感染病毒的秘密。郭先生强调：“我拿我的生命向你们保证，你们想活下去，就找共产党要解药，而不是要疫苗！”，“我得到了100%准确的情报，共产党有解药！共产党有解药”！
 
-在最近的一个视频圆桌会议中，5位被认为有资格发声的医学博士表态，他们每一个人都认为这些疫苗不是疫苗，而是旨在杀死人类的生物武器。这些高素质的医生不仅讨论了正在发生的问题的原因，还在最后给出了实用的建议，即我们现在可以做什么来保护自己，从而阻止全球主义者试图减少世界人口对人类发动这种攻击。
+目前，新冠疫情已经造成巴西411,000多人死亡。博尔索纳罗本人也曾与去年七月确诊染疫。
 
-资料来源：
+[难道巴西总统暗示中国制造疫情打“化学战”？ (rfi.fr)](https://www.rfi.fr/cn/%E7%BE%8E%E6%B4%B2/20210506-%E9%9A%BE%E9%81%93%E5%B7%B4%E8%A5%BF%E6%80%BB%E7%BB%9F%E6%9A%97%E7%A4%BA%E4%B8%AD%E5%9B%BD%E5%88%B6%E9%80%A0%E7%96%AB%E6%83%85%E5%8F%91%E5%8A%A8-%E5%8C%96%E5%AD%A6%E6%88%98)
 
-[https://cn.reuters.com/article/who-sinopharm-0505-wedn-idCNKBS2CN02E](https://cn.reuters.com/article/who-sinopharm-0505-wedn-idCNKBS2CN02E)
+[巴西生产新冠疫苗所需的活性成分遇到供应问题，巴西政府一再批评中国难逃其咎 (rfi.fr)](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20210506-%E5%B7%B4%E8%A5%BF%E7%94%9F%E4%BA%A7%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E6%89%80%E9%9C%80%E7%9A%84%E6%B4%BB%E6%80%A7%E6%88%90%E5%88%86%E9%81%87%E5%88%B0%E4%BE%9B%E5%BA%94%E9%97%AE%E9%A2%98%EF%BC%8C%E5%B7%B4%E8%A5%BF%E6%94%BF%E5%BA%9C%E4%B8%80%E5%86%8D%E6%89%B9%E8%AF%84%E4%B8%AD%E5%9B%BD%E9%9A%BE%E9%80%83%E5%85%B6%E5%92%8E)
 
-[https://www.zerohedge.com/covid-19/country-worlds-highest-vaccination-rate-orders-new-lockdown-covid-cases-surge](https://www.zerohedge.com/covid-19/country-worlds-highest-vaccination-rate-orders-new-lockdown-covid-cases-surge)
+[【时事分析】辉瑞疫苗致痴呆，向中共要解药！ – GNEWS](https://gnews.org/zh-hans/1135432/)
 
-[https://www.bloombergquint.com/politics/world-s-most-vaccinated-nation-reintroduces-curbs-as-cases-surge](https://www.bloombergquint.com/politics/world-s-most-vaccinated-nation-reintroduces-curbs-as-cases-surge)
-
-[https://rumble.com/vg3drt-urgent-5-doctors-agree-that-covid-19-injections-are-bioweapons-and-discuss-.html](https://rumble.com/vg3drt-urgent-5-doctors-agree-that-covid-19-injections-are-bioweapons-and-discuss-.html)
-
-[https://www.independent.co.uk/news/eu-regulators-start-review-of-chinas-sinovac-vaccine-european-medicines-agency-china-sinovac-netherlands-brazil-b1841785.html](https://www.independent.co.uk/news/eu-regulators-start-review-of-chinas-sinovac-vaccine-european-medicines-agency-china-sinovac-netherlands-brazil-b1841785.html)
-
-编辑：文顺 校对/发稿：Helen
+编辑/校对/发稿：Helen
 
 更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
 
 更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
 
 - ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
-
-
 
 
 0

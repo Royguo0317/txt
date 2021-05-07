@@ -1,58 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月6日美国政要和政评家反共推特精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1181651/)
+## 伤敌八百 自损一千 —中共发改委无限期暂停中澳经济战略机制
+` 喜韩Gnews中文` [轉載自GNews](https://gnews.org/zh-hans/1181788/)
 
-参议员瑞克·斯科特： 我赞扬七国集团（G7）的外交部长反对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的过度扩张和严重的侵犯人权行为，并加入美国支持我们的民主盟友台湾。我们都必须团结起来反对中共国的种族灭绝和压迫.我敦促参议院的同事们支持我的《世卫组织问责法》的即时通过。我们必须让世卫WHO为帮助中共国掩盖COVID-19的信息负责，并确保在台湾成为会员国之前，美国不会再给它一毛钱。
+#####   作者：웬샤밍
 
+近日，中共国家发展改革委，也就是我们常说的国家发改委发布了一条重磅消息——无限期暂停中澳战略经济对话机制下的一切活动。附声明原文如下 ：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06211706/%E5%BE%AE%E4%BF%A1%E6%88%AA%E5%9B%BE_20210507082347.png)
+国家相关部委发文用词都是很小心谨慎的，这短短的一句话中，能够透露出很多信息。中共土匪一向都是通过自残式的制裁来威胁对方。那么停止了澳大利亚的经济战略后就真的停止了铁矿石的进口吗？其实不然，中共对于这个形势早已经指定了如下的连环拳。
 
+**第一：****以次品代替正品-****加大铁矿石替代品的进口。**
 
-> I applaud the G7 foreign ministers for taking a stand against Communist China’s overreach & horrific human rights abuses & joining the U.S. in supporting our democratic ally Taiwan. We must all stand united against Communist China’s genocide & oppression: [https://t.co/KRKNXyqttf](https://t.co/KRKNXyqttf)
-> — Rick Scott (@SenRickScott) [May 6, 2021](https://twitter.com/SenRickScott/status/1390421334379929609?ref_src=twsrc%5Etfw)
+今年以来，唐山市境内多家钢铁企业及涉钢企业立足抓超低排放、寻低碳路径，充分利用国家今年1月1日实施的《再生钢铁原料》进口标准及相关政策，陆续从韩国、日本进口再生钢铁原料。
+截至4月底，首钢京唐、中国五矿等公司从曹妃甸口岸进口再生钢铁合计1.1万吨，德龙集团、敬业集团、中国船舶重工集团3家企业从京唐港口岸进口再生钢铁1.2万吨。另从海关部门获悉，随着5月1日起部分钢铁产品关税调整的政策实施，预计5月份两个港区还将进口4船、约1.2万吨左右再生钢铁。
 
+中共政府几个月之内囤积如此多的钢材，是否是另一种囤积战略物资的形式呢？
 
+**第二：共匪的传统-发国难财。国内钢材疯狂涨价，国内企业财富又一波的被收割！**
 
-众议员Mike Gallagher’s: 越来越清晰的是，实验室泄漏假说根本不能被排除，无论 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 对此有何看法，我们都需要答案。 【[http://medium.com](https://t.co/c8i5z8Dyvh?amp=1)文章：新冠病毒起源-追循线索】
+    铁矿石疯狂涨价模式带来的危害不可小看，一是高矿价压力传导到钢厂，将严重影响下游钢铁制造业的利润，钢材提价或导致国内通胀压力上升；二是高矿价不利于国内产业链、供应链的稳定，侵蚀了钢铁行业供给侧改革成果；三是高矿价浪费了大量外汇储备资源，可能影响人民币稳定。
 
+5月6日铁矿石上涨超6%  螺纹钢上涨4%  部分钢厂按照小时涨价。5月6日，铁矿石期货主力合约上破1185元/吨，涨幅6.90%，螺纹主力收5665元/吨，涨幅4.56%，创合约历史新高，有望升破200美元/吨。
 
+    沙钢自2021年5月7日起废钢价格上调100元/吨，高炉废钢一含税3880元/吨，具体废钢价格以2021-F10价格为准。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06211725/%E5%BE%AE%E4%BF%A1%E6%88%AA%E5%9B%BE_20210507082507.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06211716/%E5%BE%AE%E4%BF%A1%E6%88%AA%E5%9B%BE_20210507082442.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06211736/%E5%BE%AE%E4%BF%A1%E6%88%AA%E5%9B%BE_20210507082531.png)
+**第三：实行一毛不拔政策-钢材进口关税调整为零，出口关税实行25%的税率。**
 
-> It’s becoming increasingly clear that the lab leak hypothesis cannot be dismissed out of hand. We need answers, regardless of how the Chinese Communist Party feels about it. [https://t.co/DLWEXf56CK](https://t.co/DLWEXf56CK)
-> — Rep. Mike Gallagher (@RepGallagher) [May 6, 2021](https://twitter.com/RepGallagher/status/1390418220734103553?ref_src=twsrc%5Etfw)
+财政部4月28日消息，为更好保障钢铁资源供应，推动钢铁行业高质量发展，国务院关税税则委员会决定，自2021年5月1日起，调整部分钢铁产品关税。其中，对生铁、粗钢、再生钢铁原料、铬铁等产品实行零进口暂定税率；适当提高硅铁、铬铁、高纯生铁等产品的出口关税，调整后分别实行25％出口税率、20％出口暂定税率、15％出口暂定税率。在此次调整之前，享受出口退税待遇的钢铁类代码为166个，此次调整取消了146个，上述调整措施，有利于降低进口成本，疯狂扩大钢铁资源进口。囤积物资的动向彰显无疑。
+财政部网站同日消息，财政部、税务总局发布《关于取消部分钢铁产品出口退税的公告》明确，自2021年5月1日起，取消部分钢铁产品出口退税。具体执行时间，以出口货物报关单上注明的出口日期界定。
 
+为了弥补国内粗钢产量下滑带来的供给缺口，国家取消部分钢材品种的出口退税政策。中国国内一年出口6000-7000万吨钢材，取消出口退税，将导致一大半钢材回流国内，或给钢材市场降温。
 
+**第五：发挥共匪公务猿的扫荡功能-关闭各种不符合规则的钢厂**
 
-参议员霍利新闻办公室： 参议员乔什·霍利再次呼吁对大科技垄断企业采取反托拉斯行动，特别是对脸书FB继续封禁川普总统而大声疾呼。 霍利说：“现在，脸书拥有一切权力。” “消费者的权利却为零。” 【转福克斯新闻：霍利：脸书Facebook董事会对川普的禁令，证明了是时候该认真对待反托拉斯行动了】
+## **头条新闻：****天津：10月底前​关停全部钢铁落后产能！**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06211745/%E5%BE%AE%E4%BF%A1%E6%88%AA%E5%9B%BE_20210507082803.png)
+根据中共的能耗政策、环保政策、安全政策、技术指标等等各种故意留下的漏洞政策，率先在天津市推出**天津市****2020年利用综合标准依法依规推动落后产能退出的工作方案****，**以钢铁、水泥、电解铝、平板玻璃、造纸等行业为重点严格按照综合标准依法依规有序推进，促使一批能耗、环保、安全、质量、技术达不到标准和生产不合格产品或淘汰类产能依法依规关停退出，严防所谓的“地条钢”死灰复燃，打着促进“环境质量”持续改善，产业结构持续优化的口号，按中共内部需求有条件的关闭它们认为的“产能落后”的企业。
 
+五套连环拳的组合动作打出，中共瞬间像是打了鸡血一般，犹如修炼了七伤拳一般，伤敌八百，自损一千。可怜苦了墙内的老百姓，任人宰割！
 
+【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-> Sen. Josh Hawley renewed his call for antitrust action against Big Tech monopolies, specifically calling out Facebook's continued ban of Former President Trump.
-> 
-> "Right now, Facebook has all the power," Hawley said. "Consumers have zero power." [https://t.co/N4DMIZecse](https://t.co/N4DMIZecse)
-> — Senator Hawley Press Office (@SenHawleyPress) [May 6, 2021](https://twitter.com/SenHawleyPress/status/1390353374571343875?ref_src=twsrc%5Etfw)
+【**责任编辑**】：韩国首尔喜韩农场Gnews中文小组
 
+### **欢迎战友加入韩国首尔喜韩农场**
 
+[韩国首尔农场 **GTV**](https://gtv.org/user/5ec1f79982e098349fd799ad)
 
-参议员瑞克·斯科特: [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 是世界上最糟糕的污染国，我们不能相信它会做出任何改变。 解决我们的气候变化需要切实的解决方案，但我们不能假装与像中共国 这样的巨型污染者达成无用的协议能为推进这项工作做任何事。 【转推文：最新：据分析,2019年中国的温室气体排放量,超过美国和发达国家的总和】
+[韩国首尔喜韩农场 **Discord**](https://discord.gg/Z8jENsM)
 
+[韩国首尔喜韩农场 **Youtube**](https://www.youtube.com/channel/UCdxCALFQp1y1fo29gR1rEQQ)
 
-
-> Communist China is the world’s worst polluter & we can't trust it will do anything to change course.
-> 
-> Addressing our changing climate requires real solutions, but we can't pretend toothless agreements with mega-polluters like Communist China will do anything to advance that work. [https://t.co/RJcsuBBi38](https://t.co/RJcsuBBi38)
-> — Rick Scott (@SenRickScott) [May 6, 2021](https://twitter.com/SenRickScott/status/1390376959687933966?ref_src=twsrc%5Etfw)
-
-
-
-参议员卢比奥新闻办公室： [#印度](https://twitter.com/hashtag/%E5%8D%B0%E5%BA%A6?src=hashtag_click) 正确地将象华为[@Huawei](https://twitter.com/Huawei)和中兴[@ZTEdevice](https://twitter.com/ZTEDevice)这样的中国国有企业排除在了他们的5G试验之外。 [#华为](https://twitter.com/hashtag/%E5%8D%8E%E4%B8%BA?src=hashtag_click) 和其他中国公司带来的安全风险实在是太高了，更多的国家应该效仿印度。 【转路透社印度的推文及文章：印度并未将华为列为5G试验参与者】
-
-
-
-> [#India](https://twitter.com/hashtag/India?src=hash&amp;ref_src=twsrc%5Etfw) has rightfully excluded Chinese state-directed companies like [@Huawei](https://twitter.com/Huawei?ref_src=twsrc%5Etfw) & [@ZTEdevice](https://twitter.com/ZTEDevice?ref_src=twsrc%5Etfw) from participating in their 5G trials. 
->  
-> The security risk posed by Huawei & other Chinese companies are simply too high and more nations should follow India. [https://t.co/dRx9yuyuKY](https://t.co/dRx9yuyuKY)
-> — Senator Rubio Press (@SenRubioPress) [May 6, 2021](https://twitter.com/SenRubioPress/status/1390291790880772098?ref_src=twsrc%5Etfw)
-
-
-
-0
++1

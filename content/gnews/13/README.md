@@ -1,60 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共产党的经济崩盘将给西方带来经济大风暴
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1182180/)
+## 【战友心声】民不聊生，无依之地
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1182108/)
 
-**摘要：在2021年5月3日的盖特视频中，郭先生说共产党的经济崩盘会给世界带来长远且广泛的影响，比如经济灾难、政治混乱和社会动荡。中共拥有像北朝鲜一样的独裁思维，因此当世界对抗它时，超限战是它的一个必然选择。这是一场资本主义与共产主义/社会主义的战争。中共可能会跟日本、美国和北约发动代理人战争。最终，中共的魔鬼行为会带来世界的重建。但是，在这个过程中，我们不想让中共毁掉中国人和中国文化。在接下来的几周内，你们会明白西方世界的精英们和英雄们与我们同行，一起对抗中共。 **
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06223638/Miles_20210503-getter1.srt.txt)
-**共产党的经济崩盘将给西方带来经济大风暴**
+作者：香草山教育部 平地升凌霄
 
-**T****he Upcoming Economic Storm that the CCP Brings to the World**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
-所以说这几天，很多西方国家都在问我：“Miles，共产党的经济崩盘会对我们国家造成更多的影响我们是明白的。你想一想给我们「些」建议，都会有什么影响？”我告诉他们：“绝非是你想象中的三五年「的」经济衰退，或者短暂的金融市场的停滞，或者说你这个市场上各种股市跌下来，绝不那么简单。”
 
-These days, many Western countries ask me: “Miles, we understand that the collapse of the CCP’s economy will have a big impact on our country. Could you please give us more advice on what the impact will be?” I told them: “It is not going to be a three- or five-year recession that you imagine, or a brief financial market stagnation, or a typical stock market decline that you hope for. It will not be that simple.”
 
-“对「西方国家」社会造成的影响是广泛的，甚至在「未来」五年、十年、二十年都无法恢复。”所以我给他们讲：“「你们」一定要意识到，这种威胁对任何一个国家来讲，都是可能造成的经济灾难，「从而」导致政治社会的动乱，甚至引发一系列的社会被掩盖的各种宗教、种族、贫富悬殊「问题」，最后可能导致政权更迭甚至社会动乱。”
 
-“The impact on Western societies will be so profound that five, ten, or even twenty years won’t be enough for a recovery,” I told them, “so you must realize that for any country this threat will not only cause economic disasters, but will also lead to political and social unrests. It will be like stepping on a landmine of a series of socially concealed problems of religion, race, and wealth disparity. It may eventually lead to a regime change or even full chaos in society.”
 
-这就是共产党早就搞清楚了，如果有一天你们不让我当老大，「我就」让你们谁也过不成 — 这就是共产党的流氓心理。在前苏联，在所有的社会主义国家，「例如」委内瑞拉，都能看的清清楚楚。北朝鲜是只要不让老子当皇帝，你们谁也甭活；如果谁敢影响我，你们都别。共产党就认为这招是灵的，特别他们崇拜北朝鲜，让老百姓都“心甘情愿”地，情愿不情愿不知道，看上去好像是「情愿」地，心甘情愿地做奴隶，做牛做马。「共产党」觉得这个方式就是「对」中国人，统治中国人最好的方式：北朝鲜模式。
+电影《无依之地》是中国导演赵婷的作品，荣获奥斯卡最佳导演、最佳影片以及最佳女主角等奖项。大家耳熟能详的奥斯卡获奖影片有《辛德勒名单》、《泰坦尼克号》、《末代皇帝溥仪》等。即便《末代皇帝溥仪》这样的中国题材，也是外国导演拍的。彼时的泱泱大国，十万万往上的华夏儿女中，没有一个能拍出足够问鼎奥斯卡的影片。是怎样的问题和原因导致如此的结果？或许我们可以从赵婷导演的作品中得到些许启示。
 
-“he CCP has been very clear about this since very early: “if the world doesn’t let me be the boss, then I will make it impossible for anyone to live.” What a rogue mentality of the CCP! You can see the former Soviet Union and all socialist countries, for instance, Venezuela, have similar attitudes. In North Korea, whoever tries to overthrow the Kim family will not be allowed to stay alive. In the Kim family’s minds, if anybody wants to challenge their power, no one will be alive. The CCP agrees with this mentality and admires how North Korea managed to make the people “willing” to become slaves. The North Koreans have showed that they are willing to be enslaved and sacrifice everything, even their lives. Therefore, the CCP treats this as the best way to rule the Chinese people: the North Korean system.
+片中女主角Fern费恩，受经济危机的冲击，失去了工作、家园和挚爱的伴侣。收拾好东西，拿着父亲的盘子、爱人的衣服，准备上路。与友人离别前的拥抱，就像一个句号，强行终止了以前熟悉的生活，并开启了充满未知的新路。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06223911/%E5%9B%BE%E7%89%87-1.png)
+和故土的离别从来不是开心的。失去的一切，抽空了费恩所有依靠，孤独的生命坚强地前行在漫无目的路上。
 
-那么「共产党」要管理这个世界。如果不听它的，它就让这个世界变成北朝鲜；如果不听话，就弄死你，从政治、经济、军事，包括超限战、生化武器。
+这部影片不免让人感到压抑，看得人眉头微皱。看似轻缓的节奏，传递出的却是透不过气的孤独，冬天的残冰吞噬着费恩不屈的生机。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06223920/%E5%9B%BE%E7%89%87-2.png)
+后来费恩去了亚马逊公司做零工，“城市森林”中的亚马逊有着冰冷的机器和看似为了安全的规则。拥挤热闹的食堂餐桌上，工头介绍着自己的纹身，唯有讲到“家”的时候，费恩重重的点着头说，“我喜欢这句”。
 
-The CCP wants to run the world. If the world doesn’t operate the way it likes, the CCP will make the world like North Korea. Whoever does not obey CCP’s order will be eliminated by political, economic, and military means, including through unrestricted biological warfare.
+家是什么，在绝大多数人眼中，家是父亲母亲孩子共有的温暖港湾，是能共同承担、共同前行的依靠，是无论时光流逝都不会彼此抛弃的幸福之源。但是，在中共国，家被洗脑成国下面的细胞，是可以被随意牺牲丢弃的不重要的东西，所谓“爹亲娘亲不如党亲”，“有国才有家”。就是靠着这样的洗脑，中共一点一点摧毁了中国人传统的家庭观念，也摧毁了华夏文明的根基。
 
-所以说，共产党的邪恶和它的凶险，绝对是西方很多国家「不清楚的」。人类很悲哀，他们认识不清楚，因为他们过的好日子太长。人类上从没像二战以后这么长时间的和平日子，人类上自然灾害和局部战争死亡人数那么少，人的寿命那么长，「在历史」上从来没有过，人类「历史」从来没有过。这是二战以后，这七八十年最长的，一切人类自然灾害和人道灾害最少的一个战争灾害「时期」。所以人过的好日子太长了，「有了」贪婪，全部都是私心、利己。资本主义所有的劣根性，所有的缺点，都「被」无限放大。它的优越性，优点逐渐在缩小。这就是人类上需要一个正道主义的时候，光资本主义是不行的。那么共产主义想代替资本主义，它绝对是邪恶的。不管资本主义「有」多大的毛病，社会主义都是魔鬼。
+国的概念，自古以来，都是保护家的存在。是有家才有国，若是连小家都没有，组成国的的民众都溃不成家，连自己更亲近的小家都没法保护，何谈卫国。想让大树枝繁叶茂却不照顾好根，可笑可恨，“有国才有家”不过是卫党的洗脑骗术罢了。
 
-Since the evil and sinister nature of the CCP has not been clear to many countries in the West, humanity will face tragedy. The world is not clearly aware of this because it has enjoyed peace and comfort for too long. Never before has humankind had such a long period of peace, with so few deaths from natural disasters and local wars, and with such a long-life span. The seventy to eighty years of period after WWII is the longest in human history with the fewest natural or humanity disasters. Because human have enjoyed the good days for too long, they become greedy and full of selfishness and egocentric ideas. All the disadvantages and shortcomings of capitalism have been magnified infinitely. The superiority of capitalism and its advantages have gradually diminished. This is precisely the time when humankind needs justice, which capitalism alone cannot achieve. Communism wants to take over capitalism, but communism and socialism are evil, regardless of how many faults capitalism has.
+但是费恩的生活还得继续，找到了琳达作为朋友的费恩，介绍起房车里她最爱的部分，丈夫的钓鱼箱改成的储物箱台面。而且着重又说把好东西都放在里面了。那是父亲的盘子，是家的寄托和延续。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06223928/%E5%9B%BE%E7%89%87-3.png)
+后来费恩听从朋友的建议，来到一个互助的房车营地。听着大家的故事，看似能够开心吃着、唱着、跳着，享受所谓自然的欢乐，但是欢聚之后的派对，终究是剩下了荒无人烟的戈壁、戈壁、戈壁。因为费恩知道，这里也不是家，只是同友人短暂的欢聚。
 
-那么鉴于此，西方国家对共产党即将带来的经济大风暴和共产党现在每天跃跃欲试在台湾要发起的战争，甚至在南海主动挑起事端，甚至跟日本跟美国，跟北约打一个代理人战争在台湾 – 它想试试。它试的结果这个世界会重建，它试的结果，这个世界就会无限的美好。
+资本主义社会下的金融危机，或许只是时代变动中的一粒尘埃，对每一个受危机影响的家庭来说，却可能是一座山，压得人动弹不得。费恩的车坏了，承载着她的家的车不能再陪他前行了，修理的费用足够换台新车了，但是费恩留恋的不是车，更不是她口中所说的时间和花费，而是面对小朋友说“妈妈说你无家可归了”时，那份执拗的反驳。对家的思念和精神上的寄托，都在那个小小破破的车里面了。“我只是没有房子而已”，有父亲和爱人的“陪伴”那就是家了。
 
-With that being said, the West has to face the upcoming economic storm that the CCP brings to the world. The West has to face the CCP’s daily provocations in Taiwan. It must oppose the CCP’s efforts to stir up troubles in the South China Sea. It must face the CCP’s plan to fight a proxy war with Japan, the US, and NATO. If the CCP made these attempts, the world would prevail, rebuild, and enjoy an infinitely beautiful renaissance.
+为了不割舍这份寄托，费恩找到自己的妹妹。妹妹其实也是希望姐姐来和自己一起住的，贴心地递上一个饱满的信封，姐姐说着“我会还你的”，妹妹心疼的眼神中，有关心也有责备。据妹妹说，费恩是最懂妹妹的，只是对于费恩来说心灵的归属，家的寄托不能依靠在已经有自己小家的妹妹身上。这是她的倔强和坚强，也是姐姐对妹妹无声的爱。
 
-我们唯一的希望就是它不要用它的疯狂带走更多善良的中国人的子女；更不要用它的疯狂毁掉这么多中国人用土地、空气换来的这一丁点的财富；更不能让中华民族这个文化，被共产党强奸以后最后砸碎它。让文化大革命变成一个现代版的中国文化大灭绝，决不允许共产党把它变成中华民族的种族大灭绝、文化大灭绝，最后中国人成了全世界最仇恨的民族。这是我们现在最要做的。“共产党，你完了！”你完「也」不能带走中华民族的任何东西。这就是我们在做的。看看我们未来几周的行动吧，兄弟姐妹们。很多西方各领域的英雄们，有良知的人们，有信仰的人们，看清楚共产主义本质的人们，智慧的人们，将「会」和我们一起战斗。
+家的可贵，墙内人也感同身受。疯涨的房价，让拥有属于自己的家成了无数人可望而不可即的未来。也让无数人倾三代人之血汗，为自己套上房奴的枷锁。如此买到的已经不是家了。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06223933/%E5%9B%BE%E7%89%87-4.png)
+赵婷导演拍着美国人的故事，说着她自己的成长感悟，“想到我成长时期的中共国，当时到处都是谎言（It goes back to when I was teenager in China，being in a place where there are lies everywhere）”。中共怕了，干脆把赵婷和她的电影封杀了。愚蠢的战狗嚷嚷着，“只有中国人才有资格说中国的事情”。然而，你们的中共国民已经民不聊生，哪还有心情“聊电影”。在华夏大地上猖獗了70多年的共匪，已经走进末路的疯狂，向全世界放毒，不顾国人死活。尔等狗彘之辈早已到了无依之地，很快就完蛋了，一切都已经开始……
 
-We only hope that it will not cost too many lives of the kids of good Chinese people, or the meager wealth that so many Chinese people have traded their land and air for, as a result of the CCP’s madness. We also cannot afford the Chinese culture being destroyed after so many years of being raped by the CCP. We must not allow the past Cultural Revolution to happen again. A modern version of actual and cultural genocide, making the Chinese people the most hated people in the world. These are the things that we must do now. “The CCP, you are finished!” You are not allowed to take anything with you from the Chinese when you are gone. That’s what we’re doing. Brothers and sisters, watch over our actions in the coming weeks. Many Western heroes in all fields, people with conscience, people of faith, people who are not deceived by communism, people with wisdom, are all fighting against the CCP with us.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01143151/M5.jpg)
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/608ff8c14486aa0bb232bcdf](https://gtv.org/getter/608ff8c14486aa0bb232bcdf)  (04:23-4:53, 5:20-09:32)
-鸣谢：
-[1] 感谢盘古小蚂蚁、Antsee-GTV、TING GUO 提供中文文本于[https://www.gnews.org/zh-hans/1168477/](https://www.gnews.org/zh-hans/1168477/)
-[2] 感谢Antsee-GTV、Liberte 提供英文翻译于[https://gnews.org/1175584/](https://gnews.org/1175584/)
+编辑/校对/发稿：人间世
 
-* * *
+**更多资讯，更多关注**
 
-**整理校对 & 新闻撰写：【7PawBear（纽约香草山农场）】
-字幕：【JennyL】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-+2
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
+
+
+
+
+
+
+
+0

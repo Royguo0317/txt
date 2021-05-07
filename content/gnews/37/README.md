@@ -1,34 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 舆论已准备就绪，粮食危机即将开启
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1181588/)
+## 5月6日美国政要和政评家反共推特精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1181651/)
 
-**撰稿：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06195858/574-e1620345578699.jpg)
-据中新网北京5月6日报道，全球应对粮食危机网络当地时间5日发布的《2021年全球粮食危机报告》显示，在受粮食危机困扰的国家中，面临突发性粮食不安全状况的人数在2020年达到过去五年的最高水平。这些人的生命和生计岌岌可危，急需救援和帮助。
+参议员瑞克·斯科特： 我赞扬七国集团（G7）的外交部长反对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的过度扩张和严重的侵犯人权行为，并加入美国支持我们的民主盟友台湾。我们都必须团结起来反对中共国的种族灭绝和压迫.我敦促参议院的同事们支持我的《世卫组织问责法》的即时通过。我们必须让世卫WHO为帮助中共国掩盖COVID-19的信息负责，并确保在台湾成为会员国之前，美国不会再给它一毛钱。
 
-突发粮食不安全是指人们因无法摄入足够的食物而使生命或生计面临直接危险的状况。
 
-报告显示，2020年在55个国家/地区内至少有1.55亿人陷入“危机”级别或更为严重的突发粮食不安全状况，比上一年增加约2000万人。报告警告，自2017年报告首次发布以来，突发粮食不安全问题一直在加剧，丝毫没有停息，这一趋势令人忧虑。
 
-2020年突发粮食不安全状况恶化的主要原因是：冲突、经济冲击(以新冠疫情为主的各种原因对经济造成严重冲击)和极端天气。
+> I applaud the G7 foreign ministers for taking a stand against Communist China’s overreach & horrific human rights abuses & joining the U.S. in supporting our democratic ally Taiwan. We must all stand united against Communist China’s genocide & oppression: [https://t.co/KRKNXyqttf](https://t.co/KRKNXyqttf)
+> — Rick Scott (@SenRickScott) [May 6, 2021](https://twitter.com/SenRickScott/status/1390421334379929609?ref_src=twsrc%5Etfw)
 
-粮食作为中共国的一个长期隐患，随着2020年的疫情、极端天气以及中共国在国际上日益孤立的地位，都将成为未来演变为“危机”的潜在原因。结合中共国的几方面新闻一起来看，这种危机发生的概率非常大。
 
-首先，中共国的粮仓问题于2020年持续暴露。中共国多个粮仓莫名着火，甚至有内部人员发视频透露粮仓的虚假情况，曾经一度引发热议。粮仓的储备粮食究竟去了哪里，为何粮仓内是发霉变质的粮食，这些粮食的流向有无交代背后资金的动向，这其中的幕后黑手是谁？都是中共没有向公众交代的暗角，但粮仓接连出问题，就将直接影响粮食安全供应的民生问题。
 
-其次，中共国仓促出台“反食品浪费法”，也从侧面体现粮食危机。2020年8月，习近平公开谈论食品浪费的问题，仅仅不到一年，“反食品浪费法”就已经拟定并审核通过后立即执行。再到近些天，南京针对食品浪费开出第一张罚单，全国开启”食品浪费“的整风运动。中共急需一部法律来为以后发生的粮食危机脱罪，所有因粮食危机导致的人道灾难，都与中共国无关，而是人民百姓的浪费直接造成的。
+众议员Mike Gallagher’s: 越来越清晰的是，实验室泄漏假说根本不能被排除，无论 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 对此有何看法，我们都需要答案。 【[http://medium.com](https://t.co/c8i5z8Dyvh?amp=1)文章：新冠病毒起源-追循线索】
 
-再到近阶段，中共党媒不断鼓吹“粮食危机“的到来，国内舆论和法律环境已做好充足的准备，希望所谓的“三年自然灾害”的悲剧不要再次重演。希望爆料革命一直在倡导的“存粮”，能帮助更多无辜的人。
 
-（本文只代表作者观点，与Gnews平台无关。）
 
-**新闻来源：**
-1、[《2021年全球粮食危机报告》：突发性粮食不安全状况飙升至五年来最高水平-中新网 (chinanews.com)](https://www.chinanews.com/gj/2021/05-06/9471404.shtml)
+> It’s becoming increasingly clear that the lab leak hypothesis cannot be dismissed out of hand. We need answers, regardless of how the Chinese Communist Party feels about it. [https://t.co/DLWEXf56CK](https://t.co/DLWEXf56CK)
+> — Rep. Mike Gallagher (@RepGallagher) [May 6, 2021](https://twitter.com/RepGallagher/status/1390418220734103553?ref_src=twsrc%5Etfw)
 
-2、 [反食品浪费法实施，南京一面包店报废“不好看”的面包被约谈*中国政库*澎湃新闻-The Paper](https://www.thepaper.cn/newsDetail_forward_12541545)
 
-***校对发布**：文顾*
+
+参议员霍利新闻办公室： 参议员乔什·霍利再次呼吁对大科技垄断企业采取反托拉斯行动，特别是对脸书FB继续封禁川普总统而大声疾呼。 霍利说：“现在，脸书拥有一切权力。” “消费者的权利却为零。” 【转福克斯新闻：霍利：脸书Facebook董事会对川普的禁令，证明了是时候该认真对待反托拉斯行动了】
+
+
+
+> Sen. Josh Hawley renewed his call for antitrust action against Big Tech monopolies, specifically calling out Facebook's continued ban of Former President Trump.
+> 
+> "Right now, Facebook has all the power," Hawley said. "Consumers have zero power." [https://t.co/N4DMIZecse](https://t.co/N4DMIZecse)
+> — Senator Hawley Press Office (@SenHawleyPress) [May 6, 2021](https://twitter.com/SenHawleyPress/status/1390353374571343875?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特: [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 是世界上最糟糕的污染国，我们不能相信它会做出任何改变。 解决我们的气候变化需要切实的解决方案，但我们不能假装与像中共国 这样的巨型污染者达成无用的协议能为推进这项工作做任何事。 【转推文：最新：据分析,2019年中国的温室气体排放量,超过美国和发达国家的总和】
+
+
+
+> Communist China is the world’s worst polluter & we can't trust it will do anything to change course.
+> 
+> Addressing our changing climate requires real solutions, but we can't pretend toothless agreements with mega-polluters like Communist China will do anything to advance that work. [https://t.co/RJcsuBBi38](https://t.co/RJcsuBBi38)
+> — Rick Scott (@SenRickScott) [May 6, 2021](https://twitter.com/SenRickScott/status/1390376959687933966?ref_src=twsrc%5Etfw)
+
+
+
+参议员卢比奥新闻办公室： [#印度](https://twitter.com/hashtag/%E5%8D%B0%E5%BA%A6?src=hashtag_click) 正确地将象华为[@Huawei](https://twitter.com/Huawei)和中兴[@ZTEdevice](https://twitter.com/ZTEDevice)这样的中国国有企业排除在了他们的5G试验之外。 [#华为](https://twitter.com/hashtag/%E5%8D%8E%E4%B8%BA?src=hashtag_click) 和其他中国公司带来的安全风险实在是太高了，更多的国家应该效仿印度。 【转路透社印度的推文及文章：印度并未将华为列为5G试验参与者】
+
+
+
+> [#India](https://twitter.com/hashtag/India?src=hash&amp;ref_src=twsrc%5Etfw) has rightfully excluded Chinese state-directed companies like [@Huawei](https://twitter.com/Huawei?ref_src=twsrc%5Etfw) & [@ZTEdevice](https://twitter.com/ZTEDevice?ref_src=twsrc%5Etfw) from participating in their 5G trials. 
+>  
+> The security risk posed by Huawei & other Chinese companies are simply too high and more nations should follow India. [https://t.co/dRx9yuyuKY](https://t.co/dRx9yuyuKY)
+> — Senator Rubio Press (@SenRubioPress) [May 6, 2021](https://twitter.com/SenRubioPress/status/1390291790880772098?ref_src=twsrc%5Etfw)
+
+
 
 0

@@ -1,37 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧盟贸易负责人表示，已“暂停”批准中共国贸易协议
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1181819/)
+## 【热点播报】布林肯表示对中共国投资要谨慎评估
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1181986/)
 
-翻译：康州盘古农场 – 柯镇恶
+作者：纽约香草山健身部     Ivy001
 
-校对：康州盘古农场 – Mike Li
 
-编辑：康州盘古农场 – 傻小子
 
-发布：康州盘古农场 – 彩虹 Rainbow
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-**据《www.politico.eu》作者：STUART LAU 2021年5月4日报道：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06211404/fofon22.jpg)
-欧盟贸易专员瓦尔迪斯·多姆布罗夫斯基斯（Valdis Dombrovskis）。照片由Johanna Geron / EFE通过EPA拍摄。
 
-欧盟贸易专员瓦尔迪斯·多姆布罗夫斯基斯（Valdis Dombrovskis）周二对法新社说，欧盟委员会暂时搁置了与中共国签署投资协议的努力。
 
-“我们……目前暂时中止了委员会提高政治意识的努力，因为很明显，在当前形势下，欧盟对中共国实施制裁，同时中共国对包括欧洲议会成员在内实施反制裁，环境不利于该协议的批准。”多姆布罗夫斯基斯对法国新闻社说。
+5月6日路透社伦敦消息，美国国务卿布林肯（Antony Blinken）表示，欧美国家必须要非常注意中共国在西方经济体中投资的确切性质，特别是要详细评估中共国对于战略资产的投资。
 
-这笔交易已经被冻结了。由于北京对欧洲官员和学者的制裁，欧洲议会议员誓言永不批准它。欧盟委员会一直以来对该协议高度维护，该协议于去年年底原则上达成一致，但多姆布罗夫斯基斯的言论是迄今为止最明确的迹象，表明行政机构现在还活在过去四个月来迅速恶化的政治气氛中，尽管承受着来自德国的巨大压力，但委员会还是中止了协议签署进程。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06220545/image-94.png)图片来源：路透社
 
-当被问及这项交易是否还会继续进行时，他的女发言人说，法律审查等技术方面仍在进行中，但就政治批准而言，她说：“我们还没有到那一步。”
+原本，欧美国家是将中共国视为有利的投资资金来源，比如说，美国公债的投资。但由于中共国“一带一路”的推行，对世界各国港口的租用，对各国能源产业的垄断，对矿产资源（尤其是战略性和能源性）的投资……都让欧美国家忧心忡忡。
 
-她说：“该协议现在需要经过法律审查和翻译，才能提交通过和批准。但是，[投资协议]的批准过程不能与中欧关系的发展动态分开。”
+与此同时，中共国对全球进行霸权扩张，严重影响台海地区、亚太地区、印太地区的安全，已经开始对欧美国家产生了实质性的威胁。布林肯对西方国家忠告：“我们必须要非常注意这种投资的本质究竟是什么。如果是投资于战略性产业、战略性资产，那么各国就需要非常谨慎了。”
 
-她说：“在这种情况下，中共国针对欧洲议会议员和整个议会委员会的报复性制裁是令人无法接受和令人遗憾的。[协议]批准的前景将取决于局势的发展。”
+这是布林肯首次明确地指出，中共国对西方国家战略性产业和战略性资产的企图心。这表明，中共国在美国的投资将会被慎重详细的重新评估。中共国想假借投资之名，实际想染指美国战略性产业，或战略性资源，进而实施垄断的企图，必然会落空。
 
-原文链接：[https://www.politico.eu/article/eu-trade-chief-says-efforts-to-ratify-china-deal-suspended/](https://www.politico.eu/article/eu-trade-chief-says-efforts-to-ratify-china-deal-suspended/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+中共国利用“蓝金黄”，在西方国家钻出的漏洞，慢慢地一个又一个地被补上了。中共国可以操作的空间越来越小了，离全世界合围中共国的时间点越来越近了。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+参考阅读：
+
+[美国国务卿布林肯称必须要“非常注意”中（共）国投资的确切性质](https://cn.reuters.com/article/blinken-china-usa-0506-thur-idCNKBS2CN0QD)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
 
 0
