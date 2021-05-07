@@ -1,61 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（十六）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1184124/)
+## 《路德社》主题专栏：因向中共国出口F-22，F-35等敏感信息，霍尼韦尔受罚上百万美元
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1184273/)
 
-作者：纽约香草山信息部 6zero4
+《路德社》精主题专栏组出品
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+美国政府与国防承包商“霍尼韦尔”，就后者涉嫌违反《武器出口管制法》（EACA）和《国际武器贸易条例》（ITAR）已经达成解决方案。当前的首要问题是，霍尼韦尔涉嫌未经授权出口几十份技术部件图纸，到包括中共国在内的多个国家，这些图纸涉及美军各种飞机，导弹和坦克，其中包括：F-35联合攻击战斗机，F-22猛禽隐形战斗机，B-1B轰炸机，战斧巡航导弹，M1A1艾布拉姆斯坦克。对已被披露的某些部分，美国政府官员认为已伤害到美国国家安全，但霍尼韦尔并不承认。
 
+美国国务院宣布了赔偿**，“**霍尼韦尔”也已表示接受。这笔赔偿包括1300万美元的民事罚款，其中500万美元可以豁免，条件是被告将这笔资金用于“合规整改”。此外，基于被告主动揭露自身的违法出口，美国政府决定不采取更严肃的行动，国务院继续将此作为和解的结果。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/image001-8.png)
+美国国务院在一份新闻说：“这份和解协议，显示国务院阻止了，包括技术数据在内的美国国防原产品被未经授权出口，展示了国务院在加强美国工业中的作用”。“该和解协议还强调了，通过获取国务院适当许可后，再出口受控物品的重要性。”
 
+和解协议提到：“霍尼韦尔主动向美国国务院披露了涉嫌违规的行为，该违规行为由和解协议解决。霍尼韦尔承认了涉嫌违规行为的严重性，并与美国国务院合作，还在审查的过程中制定了许多合规整改计划。出于这些原因，美国国务院已确定目前不适合对霍尼韦尔进行行政禁止”。
 
-5月5日塞林博士的3连推：
+美国国务院国防贸易控制局公布的本案指控文件显示，2016年“霍尼韦尔”在它自己披露的一份信息中说到：“霍尼韦尔最终确定了71份受《国际武器贸易条例》限制的图纸，这些图纸在2011年7月至2015年10月之间未经授权被出口”。两年之后，该公司又承认了另外一批未经批准的出口，此批出口与第一批一样属于违法。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/image003-3.png)![]()![](https://www.gnews.org/wp-content/uploads/2021/05/image005-3.png)
+所有这些涉嫌违法的出口全都属于技术图纸，其中的工程图纸描述了，航空军用电子设备和燃气涡轮发动机的，模具和成品制造所需的布局，尺寸和几何形状，其涵盖各种飞机和地面车辆。这些文件是通过DEXcenter来发送的，DEXcenter是一个“文件交换平台”，“霍尼韦尔”员工通常用它来“将图纸交付给供应商”。
 
-第1推，贴上自己昨天关于“COVID-19病毒来源以及CCP生物武器计划”的视频声明，内容摘要：以下信息是给所有政府官员、媒体以及科学界人士，他们处于个人政治或财务原因，继续宣传CCP病毒来源于自然的错误观点。CCP病毒是由中共科学家在军民融合项目中进行功能增强性研究计划的产物，是在实验室将福林酶切位点插入蝙蝠冠状病毒而制造出来的，唯一的问题是如何制造和在哪里制造？是意外泄露还是故意释放？在CCP治下军用与民用研究毫无区别，这是“十三五”计划提出的目标之一。目前我和其他研究员运用类似二战时艾伦 . 图灵等密码破解天才使用的SIXTA类似并改进后的一种流量分析工具，对CCP病毒战的病毒研究网络进行分析，我们的发现是：CCP生物战有三个层次，即秘密军事研究所、民用研究所和大学，CCP利用后面两层关系与国际病毒研究项目建立交流手段和渠道，以获取技术与资金，一切都是为CCP病毒计划服务。CCP生物战的源头和核心并非医学，而是兽医学并涉及部分农业研究所。二战时日本在满洲设立的生物战研究中心731部队，官方名称是“关东军防疫给水部”；还有第二个研究中心100部队，官方名称是“关东军军马防疫给水部”。1949年CCP接管中国时沿用了日本的做法，将生物战纳入兽医研究，在北京、成都、广州、南京和云南等地建立了“军马卫生研究所”或类似的研究中心，并受命于驻地军事指挥部。1953年PLA的5所兽医大学合并为长春军事兽医研究所，其位于原731部队驻地以南仅140英里。WIV作为疫情爆发中心受到最多关注，但引发疫情大爆发的研究是在一系列军事管制设施中完成的，冠以“病原体开发疫苗生产联合计划”之类的名义。在长春军事兽医研究所的领导下，CCP在国内和国外进行了大规模的病毒采集工作，其中包含CCP 病毒的蝙蝠冠状病毒骨架，并人为制造出了RaTG13这种中间病毒构建体，并被广泛引述为CCP病毒的天然祖先以混淆视听。在北京的AMMS监管下，有前景的病毒被筛选出来并分发到不同的实验室作进一步研究，WIV、武汉大学的相关实验室以及武汉的军队医院都参与了该研究计划。在之后的声明中，我将描述CCP如何利用国际交流来发展其生物战项目，尤其是通过对美国病毒研究项目进行广泛渗透这一方式。
+以下列出了受影响的平台（但请注意，这些只是示例，并不是完整列表）：
 
-
-
-> A statement by Dr. Lawrence Sellin about the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) and the structure of the Chinese Communist Party's biowarfare program[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/tcPupWMGH1](https://t.co/tcPupWMGH1)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 4, 2021](https://twitter.com/LawrenceSellin/status/1389641506240225284?ref_src=twsrc%5Etfw)
-
-
-
-第2推，转发“公民 – SEVEN”战友的中文推：这张图拼出来了！祝战友们挖料愉快！并贴上了8位来自军事科学院院士和贺福初“畅谈十九大精神”的报道及其工作照，他们是：李松、夏咸柱、沈倍奋、秦伯益、孙曼霁、吴祖泽、贺福初、金宁一与张学敏。赞扬了COVID-19侦探“公民 – SEVEN”的出色挖掘，如果你想知道COVID-19的起源真相，其实与图片里面的这些人不远。（李松、沈倍奋、秦伯益、孙曼霁、吴祖泽、贺福初和张学敏真容浮出水面）
-
-
-
-> Excellent work by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@NFSC\_007](https://twitter.com/NFSC_007?ref_src=twsrc%5Etfw)
-> If you want to know the origin of [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) you need not look much farther than the individuals in the photographs.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaPandemic](https://twitter.com/hashtag/CoronaPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/8CnOctl2He](https://t.co/8CnOctl2He)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 5, 2021](https://twitter.com/LawrenceSellin/status/1389827468434067458?ref_src=twsrc%5Etfw)
-
-
-
-第3推，贴上自己今天关于“PLA对美国病毒研究项目的大规模渗透”的视频声明。内容摘要： 过去30年中，PLA已深度渗透美国病毒研究机构。媒体上已有生态健康联盟的彼得 . 达扎克的报道，其从NIH将多达300万美元资金转移到WIV，这只是冰山一角，数十亿美元以技术和资金的方式直接或间接地投入到PLA的病毒研究项目中，最终产生了COVID-19，而这全是美国纳税人的钱。其中大部分资金来自福奇领导的NIAID，同时美国国防部也提供了大量资金。我将以一名PLA科学家为例来说明这是如何发生的，我称之为“科学链迁移”。姜世勃毕业于PLA军事医科大学，于1990年代来到美国，在纽约洛克菲勒大学进行HIV病毒HIV相关的研究，该项目由福奇的研究所提供资助。姜后来在附近的纽约血液中心获得了永久性职位。在接下来的20年里，其他PLA科学家及与之相关联的科学家也来到美国并在这个实验室工作，该实验室获得1700万美元的美国研究资助，其中大部分资金来自福奇的研究所。与此同时，姜世勃直接与PLA的科学家合作进行病毒功能性研究，并一起发表了许多科学论文。更主要的是，他与美国领先的病毒研究实验室建立了广泛的联系网络，从而为PLA建立了运应最先进技术的渠道。即使在今天，姜世勃带到美国的其中一位科学家杜兰英（杜是另一位受过PLA高度训练的科学家周育森的妻子），现仍然在纽约血液中心工作，并由福奇资助。在2002-20024年间的SARS流行期间，姜就已经深入研究冠状病毒。周自以复旦大学教授的身份回到中共国之后，一直是COVID-19研究的关键人物，2013年向与其合作的中共科学家介绍了插入福林酶切位点的技术，许多人认为这是COVID-19实验室起源最间接的证据。事实上在美国的病毒研究实验室里潜伏着数百个类似姜世勃这样的CCP-PLA科学家。美国人民现在是时候必须结束PLA对我们的知识、技术和资金的掠夺了！是美国人民与中国人民站在一起彻底消灭CCP的时候到了!
+- F-35联合攻击战斗机
+- B-1B“长矛”远程战略轰炸机
+- F-22战斗机
+- C-130军用运输机
+- A-7H海盗飞机
+- A-10飞机
+- 阿帕奇长弓直升机
+- M1A1艾布拉姆斯坦克
+- 战术战斧导弹
+- T55涡轴发动机
 
 
+值得指出的是，A-7H是专门为希腊空军研制的A-7E的变种；海盗II系列作为一个整体，已经从美军退服几十年了。希腊于2014年正式退役了最后一批A-7。
 
-> A statement by Dr. Lawrence Sellin about the massive infiltration of U.S. virus research programs by China's People's Liberation Army[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaPandemic](https://twitter.com/hashtag/CoronaPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/LjxKERAdEp](https://t.co/LjxKERAdEp)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 5, 2021](https://twitter.com/LawrenceSellin/status/1389861364190093315?ref_src=twsrc%5Etfw)
+多年来，T55涡轮轴发动机的变型已在各种平台上使用，最著名的是CH-47奇努克系列直升机。目前正在接受美军测试的，波音西科斯基“SB-1挑战者”先进复合直升机也使用了T55版本。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/image007-1.png)
+美国政府审查了71份图纸的副本，并确定，出口和转让到中共国的零部件图纸，涉及F-35联合打击战斗机、B-1B“长矛”远程战略轰炸机、F-22战斗机的发动机平台，损害了美国国家安全。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/image009-4.png)
+之前清单中未列出的“CTS800发动机”，最初是为RAH-66A科曼奇隐形直升机所设计，如今，已列装于英国皇家海军的莱昂纳多AW159野猫直升机，以及土耳其T129 ATAK攻击直升机。
+
+涉嫌未经授权的图纸，有部分出口到了加拿大、墨西哥、爱尔兰、和台湾。但是，根据指控文件，美国政府并没有评估这部分出口对美国国家安全的影响。
+
+“霍尼韦尔”对这些技术转让所涉及的国家安全问题提出了异议，该公司于2018年首次向美国政府披露了这些转让。
+
+“霍尼韦尔”在一份声明中说：“霍尼韦尔披露的出口中所涉及的技术，未被评估为对国家安全有影响，并且在全世界都可以买到”。还有“详细专业的制造和工程知识并未包括在出口内”。
+
+值得额外注意的是，《武器出口管制法》和《国际武器贸易条例》的规定极其严格，甚至对看似无害的物品的对外出口进行严厉的处罚，例如，包括可以由美国公民自由买卖的，非机密技术手册等。
+
+与此同时，即使有关核心技术细节在国际上可以免费获得，但出口在F-35、F-22、B-1、“战斧”巡航导弹等，敏感平台上使用的技术，似乎也很难不引起关注。
+
+中共国政府从事工业间谍活动的历史悠久，其目的是获取各种军事和商业技术，尤其是在航空相关领域，特别关注于飞机发动机。2018年，美国和比利时当局就曾合作逮捕过一名中共国间谍，指控他窃取包括通用电气在内的多家美国公司的航空航天信息。中共国情报部门已经获得了，包括F-35和F-22在内的美国各种现代武器系统的，更敏感信息。
+
+上周，2021年4月28日，在国会联席会议上，拜登总统提到中共习近平主席时说：“在我与习主席的讨论中，我对他说，我们欢迎竞争。我们不是在找冲突。但我明确表示，我们将全面捍卫美国的利益。美国将勇敢面对那些削弱美国工人、美国工业、以及国营企业补贴的不公平贸易行为，勇敢面对盗窃美国技术和知识产权的行为。”
+
+鉴于案件已经被公开，现在极有可能会出现更多的具体情况，以及所带来的安全问题。但不管是哪种情况，鉴于中共当局非法获取类似信息的时间之长，这些违法出口必定都将令人不安。
+
+更新，美国东部时间上午11:40：
+
+这篇报道发表后，霍尼韦尔向外回应，称最初发出的公司声明中有错误，并提供了一份更新的声明，声明内容如下：
+
+*霍尼韦尔完全致力于遵守所有适用的出口管制法律，包括《国际武器贸易条例》。几年前，我们在两次主动披露，并告知美国国务院国防贸易管制合规部，霍尼韦尔的设计在正常的商业讨论中被无意泄露。*
+
+*霍尼韦尔报告的问题，涉及到被评估为对国家安全有影响的技术，尽管这些技术在全世界都有商业用途。详细的制造或工程专业知识并没有被泄露。*
+
+*根据与国务院达成的解决协议，霍尼韦尔将支付罚款，聘请外部合规官监督协议执行至少**18**个月，并将组织外部审计来审核整改结果。由于动披露违规行为，为确保此类事件不再发生，我们已经采取了几项行动，包括：加强出口安全、增加合规人员、加强合规培训。*
+
+评论：
+
+“霍尼韦尔”事件显示出，美国对曾经模糊不清、或默许的对共技术出口，已经完全禁止。对案件细节与和解协议的公布，也暗示出美国政府在向类似违法对共技术出口的公司进行示警，并告知他们“主动上报，自愿整改”可以和解。这标志着中共通过“蓝金黄”在美国科技企业中打开的后门已经关闭。
+
+译者根据自己的经历猜测，类似的企业可能还有很多，例如：GE、IBM，Oracle、Intel、Qualcomm、Dell、Broadcom等。同胞们欢迎加入爆料革命，举报此类非法对共技术出口，堵截中共在西方科技公司的后门，减小中共恶党对世界的侵害。
 
 
 
-塞林博士这两个声明，语气平和，平铺直叙，看似风平浪静，实则酝酿着惊涛骇浪！这是代表美国军情界对COVID-19起源真相揭示至今的阶段性总结，代表美国军方核心力量对那些参与了CCP病毒制造和真相掩盖的政府、媒体以及科学界人士的最后通牒：你们要么站出来，做污点证人以争取国际法庭的减刑或原谅，要么与CCP同罪，接受国际审判！可以预见，这是国际社会正义联盟对于CCP主动发起的这场COVID-19生物战进行反击和清算的一个重大转折点，接下来的日子我们将会看到越来越多的国家政府、媒体和科学界人士响应塞林博士的呼吁和劝诫，进入“以毒灭共”的实质性行动层面，让我们拭目以待！
+[原文链接](https://www.thedrive.com/the-war-zone/40436/honeywell-fined-millions-over-exporting-sensitive-info-on-f-22-f-35-and-more-to-china)
 
-校对/发稿：雪梨
 
-![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-**更多资讯，更多关注**
+【文章仅代表作者个人观点】
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+本文作者：红胡子
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+翻译：红胡子
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+审核校对：鲁邦五世
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+上传排版：糊糊文婴
 
 0
