@@ -1,21 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评粤语快报】05.05： 深入解读Sellin博士声明与G7峰会的关联 G7发表联合公报矛头对准中共
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1184197/)
+## 法国参议院压倒性全面支持台湾参与国际组织
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1184235/)
 
-制作团队：【喜马拉雅-粤语组】天灭中共、一帘幽梦、麻辣烫
+台湾宝岛农场
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07094746/%E6%93%B7%E5%8F%9657-4.jpg)
+[自由时报新闻](https://news.ltn.com.tw/news/politics/breakingnews/3523881)报导，法国参议院周四晚上以304票无异议通过了支持台湾参与国际组织活动决议文。国际组织包括WHO、国际民航组织（ICAO）、联合国气候变化纲要公约（UNFCCC）与国际刑警组织（INTERPOL）等各领域国际组织。
 
+法国参议院全面性通过挺台决议，是继G7外长公报后，是协助台湾外交空间拓展的实际行动。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07094807/%E6%93%B7%E5%8F%9657-5.jpg)图片皆取自驻法代表处脸书
+摘╱zhong
+发布╱小刘
 
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-主要内容
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
-1、深入解读Sellin博士声明与G7峰会的关联
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
-2、G7发表联合公报，矛头对准中共。
-
-【路德时评】[原视频链接1](https://youtu.be/ygDXavGWWz4)   [原视频链接2](https://youtu.be/IuVc-WFZVV8)
-
-上传：流光飞舞
-
-0
++1
