@@ -1,48 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【时事解析】接近群体免疫的塞舌尔感染率激增而重新实施限制
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1182217/)
+## 中共为什么大肆宣传“五一”“爆炸式增长”和“史上最火”黄金周
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1182366/)
 
-作者：休斯顿星光农场 写作部 H.B
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-03-25-230524-1.jpg)
-据多家媒体报道，太平洋岛国塞舌尔尽管已有超过60%成年人接种了两剂新冠病毒疫苗，但感染率依然激增，现在该国被迫重新实施限制。
+撰稿：喜妈
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06232014/IMG_9006.jpg)
+日前，中共官媒上大肆宣传，今年”五一“假期，出现了令人惊喜的“爆炸式增长”。这个所谓的爆炸式增长是指：机票、酒店、民宿、门票、租车等都大面积刷新历史最高位。根据中共官媒报道，各项指标如门票与同期相比涨幅达420%，酒店预定与同期相比涨幅超200%，租车达到以往同期的10倍等。就是因为这些惊人的数据，今年的五一假期被墙内的舆论评为“史上最火”的黄金周。为啥这个现象值得中共和举国上下热血沸腾呢，就是因为在世界疫情让各国各地区经济都萎靡不振的大势下，独独只有中共靠内循环可以独树一帜，这个可是令中共和墙内的粉红们无比欢欣的啊。可是，事实是这样吗？笔者来简单讨论下。
 
-该限制包括关闭所有学校，体育活动也取消了两周。同时禁止家庭间的互动往来和某些类型的个人聚会，以及提前关闭商店、酒吧和赌场。非必需的工作也被鼓励在家进行，当地时间23点重新实行宵禁。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06230024/Screenshot-2021-05-06-215935.jpg)
-*图片来源：zerohedge.com*
+据中共官方数据统计，今年“五一”假期国内游客总计2.3亿人次，实现旅游收入1132亿元。各地连带的上下左右市场都是活力十足。舆论甚至大力鼓励和推送亲子游的高消费，亲子游家庭平均1.2万到2万元幅度，还引导用游客自己的话说，“这个花销不算高”；并加上众人观点一年才一两次这样的消费，“已经很便宜了”。众所周知，现在中共国的经济状况：作为给中共挣回大量外汇的支柱产业随着中共病毒疫情发展，各国一方面出于疫情防控增加各种地域性分隔，另外一方面，在对中共邪恶行径的了解中所形成的合作叫停潮，都让中共的真金白银获取变得越加困难，因此他们想方设法也要在鸟腿上刮出大油来。平时没时间出门，也没有理由出门，那么黄金周就是一个最好的刺激机会。一个最好体现中共所称的内循环的方式。
 
-塞舌尔自今年1月开始接种疫苗以来，在短短四个月的时间里，从531个感染病例和1例死亡，达到目前6373个病例，死亡人数为146人，感染率上升了10倍以上，死亡率更加夸张。国家卫生部长Peggy Vidot在周二的新闻发布会上说：“尽管我们正在做出各种特殊的努力，但我国的Covid-19情况现在很严重，上周每天都有许多病例报告 “。
+中共所谓的内循环，其实也是处于一个萎缩的圈子。首先，能够被纳入内循环主体的依然还是少数人，是少数之前有经济基础和钱财储备的人。这个道理很简单，因为农民工作为低端人口，早就被各地清退回去，那些作为中共国巨大人口基数的金字塔底座的人们，守在乡里，不会想要旅游，也没法旅游。他们的外出都是为了生存，为了赚钱，不是为了消费为了娱乐。从各地萎缩低迷的经济形势，人们哪里来钱旅游。
 
-目前虽然还很难判断是什么原因导致的塞舌尔病例激增，但是达特茅斯大学盖瑟尔医学院的临床医学教授丹尼尔-卢西在一篇博文中说，在2月份的检测中发现了中共病毒南非变异株B.1.351。对于南非变异株，科学家们一致认为，它可以逃避免疫，并使注射疫苗在预防感染方面减弱30%。
+其次，内循环是一个死圈。这个循环没有外部经济的参与，内部的经济热点又狭小单一。就算是开始还有点被政策和舆论共同作用的刺激、促进，无法达到可持续发展。内循环其实是内滞涨。为什么呢？这个被刺激出来的消费，不是真实的消费，不是真实的经济表征。一个是人们手上的余留并不多，人们手上的钱早已经被不断兑水，含金量不断减少，票子从数据来说是显得多，可是如果看看坊间网友的评论，几千块钱没干个啥就用出去了。从普遍形成的购买力，就可以看出，那些光鲜的数字都是唬人和骗人的东西，没有啥实在的内容。
 
-截至4月12日，塞舌尔59%的国民接种的是中共国药集团生产的疫苗，其余的是阿斯利康公司在印度授权生产的Covishield疫苗。路透社称，最近见到的一份文件显示，对于中国国药集团所提供的关于其中共病毒疫苗导致部分病患出现严重副作用风险的数据，令世界卫生组织(WHO)专家的“信心非常低”，但对其预防新冠疾病的能力总体上有信心。在看到塞舌尔的这组数据之后，不知世卫专家的信心还会剩下多少？
+此外，所谓的旅游，只是民众一个被约束了很久的心理需求的释放，也不是可以持续下去的态势。疫情一上来，就收紧流动；一缓和，就放羊上山。关键问题是，这个疫情从头到尾都是个作假，都是个骗字为核心。最后，等到疫情靠数字骗不到人，就是全面的崩溃。笔者发现，与此同时，官方还通过其喉舌表示此次暴涨的消费，原因有三，旅游是国人“刚需”、疫情后旅游消费恢复、中共疫情防控重大胜利。笔者认为这里才凸显了另外一个中共宣传的关键，要以中共墙内的经济飞涨态势，让西方人眼红艳羡，让西方社会正在兴起中的与中共“脱钩”意向有所遏制。
 
-据独立报报道，欧盟药品监管机构周二宣布，他们已经开始对中共国药集团的一款疫苗——科兴疫苗（Sinovac）进行滚动审查，以评估其有效性和安全性，为在27国集团的使用做第一步准备工作。到目前为止，EMA已经批准了四种冠状病毒疫苗，并还在对其他三种疫苗进行滚动审查：德国生物技术公司CureVac开发的疫苗、美国开发的Novavax和俄罗斯的Sputnik V。
+当然，中共的这一套“爆炸式增长”和“史上最火”的报道及舆论，红火的只是墙国人眼睛，兴奋的只是粉红们的脸。对于真正知道中共经济的行内人和明眼人来说，都是空洞，都是冠冕堂皇的营造繁荣。真正当世界都在深思，都是探究，都还在为了控制疫情而百般焦虑的时候，中共国的这些反向的造势，也许短期内会让西方让全世界都有一些迷糊，可是最终大家都会被导向富有逻辑性，更加明确的方向。说不通的是骗局，说得通的是真相。这就是最简单的分析和认识。
 
-在最近的一个视频圆桌会议中，5位被认为有资格发声的医学博士表态，他们每一个人都认为这些疫苗不是疫苗，而是旨在杀死人类的生物武器。这些高素质的医生不仅讨论了正在发生的问题的原因，还在最后给出了实用的建议，即我们现在可以做什么来保护自己，从而阻止全球主义者试图减少世界人口对人类发动这种攻击。
+最金灿灿的有购买力的钱，早已经进了杂毛们的腰包和他们私生子女们的腰包；而且他们骄奢淫逸的生活至今还是继续要草根们来买单。最没有购买力的只是纸上印有符号的币，一直攥在老百姓的手里。人们应该多想想，很简单的道理，有钱花的人，你的钱的购买力可以说明很多问题；而没钱花的人，你的生活是别人的高消费可以代表的吗？有钱没钱的实质都是被中共玩耍的人群。你要相信巨大国经济腾飞和充满活力，就等着你没钱的口袋永远瘪着，就等着你有钱有铜板的口袋被彻底掏空吧。跟着共产党，跑步进入火葬场！
 
-资料来源：
+本文纯属个人观点
 
-[https://cn.reuters.com/article/who-sinopharm-0505-wedn-idCNKBS2CN02E](https://cn.reuters.com/article/who-sinopharm-0505-wedn-idCNKBS2CN02E)
+参考资料：
 
-[https://www.zerohedge.com/covid-19/country-worlds-highest-vaccination-rate-orders-new-lockdown-covid-cases-surge](https://www.zerohedge.com/covid-19/country-worlds-highest-vaccination-rate-orders-new-lockdown-covid-cases-surge)
+[http://124.133.228.83/articleContent/2241\_867389.html](http://124.133.228.83/articleContent/2241_867389.html)
 
-[https://www.bloombergquint.com/politics/world-s-most-vaccinated-nation-reintroduces-curbs-as-cases-surge](https://www.bloombergquint.com/politics/world-s-most-vaccinated-nation-reintroduces-curbs-as-cases-surge)
+[https://fengcx.com/news/detail/54145900.shtml](https://fengcx.com/news/detail/54145900.shtml)
 
-[https://rumble.com/vg3drt-urgent-5-doctors-agree-that-covid-19-injections-are-bioweapons-and-discuss-.html](https://rumble.com/vg3drt-urgent-5-doctors-agree-that-covid-19-injections-are-bioweapons-and-discuss-.html)
+[https://www.sohu.com/a/464934027\_115362](https://www.sohu.com/a/464934027_115362)
 
-[https://www.independent.co.uk/news/eu-regulators-start-review-of-chinas-sinovac-vaccine-european-medicines-agency-china-sinovac-netherlands-brazil-b1841785.html](https://www.independent.co.uk/news/eu-regulators-start-review-of-chinas-sinovac-vaccine-european-medicines-agency-china-sinovac-netherlands-brazil-b1841785.html)
+初审：2号电梯
 
-编辑：文顺 校对/发稿：Helen
+审核&发稿：Jenny
 
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
-
-
-
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04002827/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
 0

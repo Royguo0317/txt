@@ -1,47 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美国佛罗里达州新投票法正式生效
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1182884/)
+## 喜币Himalay Coin喜美元Himalay Dollar无国介化财富紧紧跟随
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1182944/)
 
-**作者：纽约香草山健身部 文真**
+台湾宝岛农场 Amitofu
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
-
-
-
-5月6日，美国佛罗里达州州长Ron DeSantis正式签署上周州立法机构投票通过的新投票法案，该法案即日起生效，正式成为佛罗里达州法律。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07015134/%E5%9B%BE%E7%89%8729.png)图片来源：politico
-
-这一法律正式生效后，佛罗里达州现有选举法会有多项变更，包括投票箱的位置和数量，对投票人的规定，投票箱开启使用时须受人监督，以及监票员的新权益。州长DeSantis坚称该法案将成功地维护选举的诚信和透明，并使佛罗里达州在此处于领先地位。他在接受福克斯新闻独家专访时称： “今后我们会做得更好，我们对现有成绩感到骄傲，但不会止步于此。” 该法案的及时生效亦会影响即将到来的州内选举，包括众议员、参议员和州长选举。
-
-多日以来，该法案遭到民主党派和活动家的持续抵制。他们称该法案会妨碍 “在佛罗里达州进行的选举的每个过程”。佛罗里达州女性投票人联盟主席Patricia Brigham攻击 “该法律在故意破坏老年人、残疾人、学生和有色族裔的投票比例”，是“一党立法机构决定的谁能投票与否的卑劣手段”，是 “不民主的，违宪的，反美国精神的”。目前已有多个民间组织针对该项新法案在多地联邦法院提交法律诉讼。
-
-尽管在三月份佐治亚州通过类似选举法案的时候遭遇到来自民主党和活动家的强大压力，但佛罗里达州议会和州长并未因此畏惧。据悉，得克萨斯州正在推进新的选举法案。虽然主流媒体仍旧否认2020年总统大选舞弊，攻击Trump前总统是因输掉竞选连任而编造大选舞弊的谎言，但绝大多数美国人具有独立的思考和判断力。面对社交媒体铺天盖地的舞弊视频和大选后的抗议集会，美国民众不得不重新重视大选的真实性。立法机构必须尊重民意，加强选举立法以杜绝今后选举中可能出现的作弊行为。
-
-参考阅读：
-
-[https://www.nbcnews.com/politics/elections/gop-gov-desantis-signs-restrictive-new-voting-florida-dems-fear-n1266415](https://www.nbcnews.com/politics/elections/gop-gov-desantis-signs-restrictive-new-voting-florida-dems-fear-n1266415)
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+Himalay exchage、Himalay Coin、Himalay Dollar、Himalay pay是革命性的金融经济生态，由文贵先生用毕生的政治、经济、金融的实务经验和大型基金公司对文贵先生的信用积累而成，其所设计的无介化喜金融生态圈，更得到美联储FED主要股东摩根先生的支持，同时摩根先生也是长期支持着G系列的各项发展，使喜金融生态圈具有美元、黄金、实体的特性，是将来全人类财富的诺亚方舟。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07021309/quorum-1-400x225.png)
+- Himalay Federal Reserve System喜联储拥有定价权、货币权和流通权，将来可发行相对应的喜英镑、喜加币、喜澳币、喜法郎、喜日圆、喜欧元…
+- Himalay Coin根据市场需求有浮动的功能，Himalay Coin的锚定物为百分之二十的黄金备付，是所有虚拟加密货币所不能相比的价值
+- 1 Himalay Dollar都能够兑换为1美元; Himalay Coin最终目成为CBDC央行货币
 
 
+**喜金融生态圈拥有原创者文贵先生所重视的特性**
 
-**更多资讯，更多关注**
+1. 无介化交易金融生态圈，在世界各地随时随地瞬间转移财富，每周7天24小时交易服务，更重要的是不再被政府剪羊毛垄断财富
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+2. 全世界最干净合法安全可靠的金融生态圈
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+3. 庞大不断投入的研发团队（J.P. Morgan世界级金融团队）
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+4.越来越严密的区块链加密技术 ( ConsenSys Quorum架构 )
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+**方便快速支付和财富紧紧跟随持有人(财富丢失保证)**
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+当QE大量印制美元在未来产生20万亿的债务时、美国经济崩盘时、2022年美国政治权力转移时、共产党被灭时、区域发生局部战争等事件发生时，在世界各地的财富将寻找最安全可靠不被剥夺财富的HCoin、HDollar，财富不仅能紧密跟随持有人，更能在世界各地瞬间移转财富，合法保障财富，方便快速支付和财富紧紧跟随持有人。
 
-https://www.politico.com/states/florida/story/2021/05/06/desantis-gives-fox-exclusive-of-him-signing-election-bill-1380665
+**庞大不断投入的研发团队和越来越严密的区块链加密技术**
 
-0
+喜金融生态圈拥有庞大不断投入的研发团队和越来越严密的区块链加密技术，以太坊Ethereum领域的金融和区块链开发软件领导者ConsenSys，ConsenSys加速分布式金融（DeFi）和Web3应用程序在以太坊上与企业区块链基础设施的融合。投资者包含全球金融服务公司摩根大通（J.P. Morgan）、万事达（Mastercard）、瑞银集团（UBS AG）、Protocol Labs、Maker 基金会、分布式资本、The LAO、Alameda Research、CMT Digital 以及大湾区共同家园发展基金（Greater Bay Area Homeland Development Fund）、Quotidian Ventures和Liberty City Ventures。同时ConsenSys与摩根大通（J.P. Morgan）Quorum合作，加深其对企业协议生态系统的承诺和竞争地位。Quorum提供支持公有链及私有链的网络，并支持第2层以太坊网络促进IPFS，Filecoin等互补协议。(以太坊Ethereum为基础对ERC-20标准具有相后兼容性的ERC-1404代币)
+
+笔者认为文贵先生用一生信用和人脉所的设计的喜金融生态圈Himalay exchage、Himalay Coin、Himalay Dollar、Himalay pay是集合中央银行、金融机构、(VISA、MASTER等)支付服务商和Paypal钱包服务等加总的基本架构，同时具有全世界最安全可靠、不断提升的区块链加密技术，并对客户Himalay Coin、Himalay Dollar有信用积分，大大降低银行的风险和不确定性，随时随地方便快速的支付和财富紧紧跟随持有人，不仅仅是新中国联邦战友的诺亚方舟，更重要的是喜金融生态圈是全世界正道主义和有坚定信仰者在政治经济上力量结合的新型生态圈，全人类财富最佳去处。本文仅代表个人立场
+
+感谢文贵先生和摩根先生团队让新中国联邦战友们站在巨人的肩膀
+
+資料來源:文贵先生直播
+
+[ConsenSys Raises $65 Million to Accelerate Convergence Of Traditional And Decentralized Finance](https://consensys.net/blog/press-release/consensys-raises-65-million-to-accelerate-convergence-of-traditional-and-decentralized-finance/)
+
+[ConsenSys Acquires J.P. Morgan’s Quorum to Advance Enterprise Blockchain Adoption](https://consensys.net/blog/news/consensys-acquires-jpm-quorum/)
+
+审核:Athena雅典娜 发布:Amitofu
+
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+
++1

@@ -1,36 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印度政府发出危机警告 中共生物武器第三轮攻击
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1181992/)
+## 【香草诗词汇】中共疫苗
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1182224/)
 
-翻译&评论：Hong
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06220206/701-2-1.png)德国感恩农场文宣
-当地时间5月5日，印度政府发出危机警告，中共超限生物武器病毒在印度第三阶段爆发是“不可避免的”，虽然尚不清楚中共何时会发起第三轮变异病毒的攻击，但政府必须就此做好准备。中共对印度第三轮变异病毒的攻击可能比目前遭遇的更加凶猛，攻击的残酷程度更令人难以想象。中共病毒的攻击似乎毫无止境，印度必须为不确定的未来做好准备，做更坏的打算。
+作者：纽约香草山媒体部  蚊子
 
-印度官方报告显示，印度上周新增确诊感染中共病毒病例占全球新增病例的46％，新增死于中共病毒的人数占全球死亡人数的四分之一。
 
-与前一周相比，印度国内新增确诊感染中共病毒病例增加了20％，目前疫情持续恶化，单日新增确诊感染病例已连续两周超过30万例。
 
-印度政府首席科学顾问维杰·拉格万（K Vijay Raghavan）说：“印度目前仍然约有350万（中共）病毒的活跃病例，昨天有3780人死于病毒（中共病毒），这是到目前为止单日最高的死亡人数记录，印度的疫情何去何从？印度将遭受第三轮的攻击是不可避免的。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
-维杰·拉格万强调，（中共生物武器）变异病毒第三轮的攻击即将到来，因为变异病毒在印度的传播性极强，随着病毒在传播过程中不断地发生突变，不同版本的病毒变体也会越来越多，这让病毒得以肆虐，让病毒有机会繁殖扩散，所以，接下来印度还会遭到变异病毒的第三次轰击，我们必须做最坏打算。
 
-维杰·拉格万指出说，人们要警惕这种病毒的突变，这对未来遏制变异病毒带来了挑战，病毒在传播过程中一直在变异，我们将看到五花八门传染性变强或变弱的病毒的变异体，印度需要标记研究这些病毒的变体。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06220354/702-1.jpg)德国感恩农场文宣
-中共生物武器变异病毒使印度举国失控，中共给印度投毒的残酷程度超出了全世界的想象，中共病毒在印度变异的恐怖性是前所未见的，眼下中共生物武器病毒把印度推向了死亡的边缘。印度不可预测的悲剧再次印证了一个道理。郭先生早在2021年4月22日就提到“没疫苗，永远不会有疫苗，因为它是生化武器！”“解药就是以毒灭共。”
 
-全球灭共的号角已吹响，是集结灭共的时候了！
+![]()![](https://media.discordapp.net/attachments/801458362239156274/840056309108703252/image0.jpg?width=943&amp;height=609)
 
-（文章仅代表作者本人观点）
+起初，我祈祷疫苗就像保健品，预防冠状病毒，不求有用但求无害。
 
-*初审：**2号电梯*
+接着，我发现疫苗是精神毒品，麻痹大众痛苦，掩盖中共投毒事实。
 
-*审稿：光耀华夏*
+后来，我确认疫苗等同于病毒，加剧全球蔓延，导致人民痛苦死去。
 
-*编辑：MG1*
+今天，我希望能大声唤醒世界，停止注射疫苗，怒向中共索取解药！
 
-新闻参考来源：
-[https://www.youtube.com/watch?v=9aOjrb8hOfk](https://www.youtube.com/watch?v=9aOjrb8hOfk)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04002827/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+
+校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+
+
 0

@@ -1,46 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】来自台湾满满的爱
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1182771/)
+## 【新闻速递】法国参议院以压倒性票数通过支持台湾参与国际组织法案
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1182775/)
 
-配音：香草山录音组 蒙古鸿雁
+作者：休斯顿星光农场 写作部 文顺
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-03-25-230524-1.jpg)
+**5****月****6****日，法国参议院以压倒性票数通过****“****台湾参与国际组织工作法案****“****，支持台湾参与多个国际组织。尽管该表决结果可能会****“****激怒****“****北京。**
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+据法广网报道，法国参议院周四以304票赞成、19票弃权的结果，通过”台湾参与国际组织工作法案”，这项跨党派议案支持台湾参与多个国际组织的工作。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07012538/Screenshot-2021-05-07-002449.jpg)
+*图片来源：网易*
+
+有关的法案在参议院和台湾之间的信息交流小组的RDPI主席艾伦·理查德（Alain Richard）和独立人士乔·盖尔（Joël Guerriau）的支持下，由多方参议员共同签署。这项不具约束性的法案希望法国继续为台湾参加世界卫生大会、国际民用航空组织大会、《联合国气候变化公约》甚至国际刑警组织等多个国际组织做出努力。
+
+曾经担任法国国防部长的阿兰·理查德表示：“为了有利于多边主义和这些机构可以更好地运作，以及台湾可以为国际社会提供的服务，台湾最好能够更多地参与。”
+
+参议院多数发言者都强调，在新冠病毒大流行的背景下台湾参与世卫组织工作的重要性。议员勒莫因表示：“台湾做出的贡献和经验分享对整个国际社会至关重要。”生态学家冈塔德（Guillaume Gontard）也表示，”自从新冠病毒蔓延以来，在台湾2300万人中仅有12例死亡，台湾在控制疫情上树立了一个榜样”。
+
+据中央社报道，行政院长苏贞昌接受媒体时表示，对于国际的肯定很感谢也会更努力，希望世界能够让台湾就所做的成绩提出贡献，让世界更好。行政院发言人罗秉成稍早接受中央社记者访问时说，非常感谢欧美各主要国家长年以来对台湾的坚定支持，也感谢驻法代表处的努力，这不仅代表台湾的医疗体系、防疫作为及表现深受各国肯定，也代表台湾在各领域发展的国际能见度已有显著提升。
+
+罗秉成表示，中共无视台湾主权独立，不断透过各种手段不当干预、侵扰台湾参与国际组织，意图孤立台湾。但事实证明，台湾不论在自由民主法治的发展，或是在科学技术、公共卫生、绿色能源，以及司法刑事等领域的能力与成绩，都已被国际看见，才能获得法国跨党派参议员无异议通过。
+
+至截稿，中共未发表任何官方声明。
+
+信息来源：
+
+[法国参议院压倒性多数通过支持台湾参与国际组织法案 (rfi.fr)](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210506-%E6%B3%95%E5%9B%BD%E5%8F%82%E8%AE%AE%E9%99%A2%E5%8E%8B%E5%80%92%E6%80%A7%E5%A4%9A%E6%95%B0%E9%80%9A%E8%BF%87%E6%94%AF%E6%8C%81%E5%8F%B0%E6%B9%BE%E5%8F%82%E4%B8%8E%E5%9B%BD%E9%99%85%E7%BB%84%E7%BB%87%E6%B3%95%E6%A1%88)
+
+[法參議院挺台參與國際 蘇貞昌：很感謝也會更努力 | 政治 | 中央社 CNA](https://www.cna.com.tw/news/aipl/202105070080.aspx)
+
+编辑/校对/发稿：Helen
+
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
 
 
-
-
-
-
-
-5月2日台湾外交部推文：一批代表台湾爱心的制氧机及氧气瓶，空运至印度，并在当日下午5时抵达印度。
-
-自三月下旬以来，印度新冠疫情又出现了大规模爆发，每日确诊病例和死亡病例数量不断攀升。5月1日，单日确诊超过40万例，累计确诊已超过2028万例，累计死亡则已超过22万例。
-
-
-
-**文字版原文：[【热点播报】来自台湾满满的爱](https://gnews.org/zh-hans/1173502/)**
-
-作者：纽约香草山健身部 阿年
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-+1
+0
