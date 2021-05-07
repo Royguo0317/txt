@@ -1,24 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 感染率秒杀印度，印度洋岛国告诉我们中共疫苗到底有没有效！
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1182291/)
+## 【热点播报】美国佛罗里达州新投票法正式生效
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1182884/)
 
-作者：Stephen文文
+**作者：纽约香草山健身部 文真**
 
-近日印度疫情高企，吸引了全球所以关注疫情的目光，希望印度能尽快控制疫情传播，避免更大的人道灾难。但是，从每百万人口的感染率来看，印度并不是全球疫情最严重的地区。而印度洋小国塞舌尔才是全球疫情最高发的地区！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06231730/050705.jpg)图1
 
-目前印度每日新增感染人数约40万人，以其庞大的人口基数（13亿）来算，每日新增约300人/百万人。而塞舌尔每日新增感染人数约为300-500人，但塞舌尔人口仅为10万，核算下来每日新增感染人数为3000-5000人/百万人。以新增感染率计算超过印度10倍！从下图（图1）陡增的感染率曲线来看，其疫情严重程度远超印度。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06231748/050706.jpg)图2
+5月6日，美国佛罗里达州州长Ron DeSantis正式签署上周州立法机构投票通过的新投票法案，该法案即日起生效，正式成为佛罗里达州法律。
 
-而塞舌尔堪称全球疫苗接种率最高的国家，其疫苗接种率甚至超过以色列。到目前为止，完成2针疫苗注射的人口比例超过60%，再加上约5%感染康复的患者，该国已经接近所谓70%的“群体免疫”门槛。但是依然无法阻止疫情的高峰态势，并且疫情尚未出现减缓的趋势（图2）。可见，塞舌尔的高疫苗接种根本无法缓解疫情。大家一定怀疑塞舌尔是不是打了“假疫苗”，没错，塞舌尔接种的就是中共提供的“国药集团”疫苗！就在今年的1月11日，塞舌尔总统还亲自为中共国药疫苗站台，首先接种了中共国提供的疫苗。中共国提供的无效，甚至是“毒”疫苗坑害了塞舌尔民众，不但没有控制住疫情，反而导致塞舌尔放松疫情防控，进而导致了全球的最高感染率。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07015134/%E5%9B%BE%E7%89%8729.png)图片来源：politico
 
-[援引原文](https://xw.qq.com/cmsid/20210111A09LAT00?f=newdc)
+这一法律正式生效后，佛罗里达州现有选举法会有多项变更，包括投票箱的位置和数量，对投票人的规定，投票箱开启使用时须受人监督，以及监票员的新权益。州长DeSantis坚称该法案将成功地维护选举的诚信和透明，并使佛罗里达州在此处于领先地位。他在接受福克斯新闻独家专访时称： “今后我们会做得更好，我们对现有成绩感到骄傲，但不会止步于此。” 该法案的及时生效亦会影响即将到来的州内选举，包括众议员、参议员和州长选举。
 
-审核校对：鲁邦五世
-上传排版：糖果儿
+多日以来，该法案遭到民主党派和活动家的持续抵制。他们称该法案会妨碍 “在佛罗里达州进行的选举的每个过程”。佛罗里达州女性投票人联盟主席Patricia Brigham攻击 “该法律在故意破坏老年人、残疾人、学生和有色族裔的投票比例”，是“一党立法机构决定的谁能投票与否的卑劣手段”，是 “不民主的，违宪的，反美国精神的”。目前已有多个民间组织针对该项新法案在多地联邦法院提交法律诉讼。
 
-+2
+尽管在三月份佐治亚州通过类似选举法案的时候遭遇到来自民主党和活动家的强大压力，但佛罗里达州议会和州长并未因此畏惧。据悉，得克萨斯州正在推进新的选举法案。虽然主流媒体仍旧否认2020年总统大选舞弊，攻击Trump前总统是因输掉竞选连任而编造大选舞弊的谎言，但绝大多数美国人具有独立的思考和判断力。面对社交媒体铺天盖地的舞弊视频和大选后的抗议集会，美国民众不得不重新重视大选的真实性。立法机构必须尊重民意，加强选举立法以杜绝今后选举中可能出现的作弊行为。
+
+参考阅读：
+
+[https://www.nbcnews.com/politics/elections/gop-gov-desantis-signs-restrictive-new-voting-florida-dems-fear-n1266415](https://www.nbcnews.com/politics/elections/gop-gov-desantis-signs-restrictive-new-voting-florida-dems-fear-n1266415)
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+https://www.politico.com/states/florida/story/2021/05/06/desantis-gives-fox-exclusive-of-him-signing-election-bill-1380665
+
+0
