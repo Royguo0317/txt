@@ -1,140 +1,97 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 战友展览板【5/6】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1181416/)
+## 【信仰之声】信心的力量和历史的见证（一）
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1181554/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
-
-【以毒灭共】推文。如下
+作者：纽约香草山福音部  文一论道
 
 
 
-> The context for my analysis was that I had been challenged as mistaken in identifying the first case cluster by Kumar. I was correct. [https://t.co/ldzb4gPb1t](https://t.co/ldzb4gPb1t)
-> — DrQuay (@quay\_dr) [May 5, 2021](https://twitter.com/quay_dr/status/1389816722417360897?ref_src=twsrc%5Etfw)
-
-
-1. **[奎伊博士推特](https://twitter.com/quay_dr/status/1389816722417360897?s=20)**：
-*我用这个算法重新计算了我在武汉的解放军医院发现的基因簇，结果是一样的。
-中国人民解放军拥有最早的SARS-CoV-2的基因集群。
-这是一个月前与本文作者分享的;
-我分析的背景是，我曾被质疑在确定库马尔（Kumar)的第一个案例群时犯了错误。我是正确的*
-
-
-> 🔥塞林博士发布第二个视频声明，揭露中共军方渗透美国科研机构，通过福奇等人从美国国家卫生院和国防部获取技术和数十亿美元的资金，制造生物武器，祸害全人类
-> 
-> 塞林博士向全体美国人民发出号召：是时候与中国人民站在一起，彻底消灭中国共产党！
-> 
-> 僖战薪号 欢迎关注 [pic.twitter.com/abHMaGpsOn](https://t.co/abHMaGpsOn)
-> — 珠穆朗玛 (@ZanXixi) [May 5, 2021](https://twitter.com/ZanXixi/status/1390074315677192194?ref_src=twsrc%5Etfw)
-
-
-2. **[喜站推特](https://twitter.com/ZanXixi/status/1390074315677192194?s=20)**：
-*塞林博士发布第二个视频声明，揭露中共军方渗透美国科研机构，通过福奇等人从美国国家卫生院和国防部获取技术和数十亿美元的资金，制造生物武器，祸害全人类 塞林博士向全体美国人民发出号召：是时候与中国人民站在一起，彻底消灭中国共产党！ 僖战薪号 欢迎关注*
-
-
-> 闫博士第一篇论文中文版[https://t.co/7uYYg0WZoq](https://t.co/7uYYg0WZoq)
-> — The last straw (@starstuded11) [May 5, 2021](https://twitter.com/starstuded11/status/1390067705852616707?ref_src=twsrc%5Etfw)
-
-
-3. **[最后一根稻草推特](https://twitter.com/starstuded11/status/1390067705852616707?s=20)**：
-[*闫博士第一篇论文中文版*](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15214028/闫丽梦博士第一份报告【新型冠状病毒非源于自然】中文全文翻译.pdf)
-
-
-> This article makes clear there is more evidence the Covid virus was manipulated and leaked from a Wuhan lab than the evidence-free narrative of pro-China virologists and liberal media that say it emerged naturally. Must read [https://t.co/amFoIooG6d](https://t.co/amFoIooG6d)
-> — Bill Gertz (@BillGertz) [May 5, 2021](https://twitter.com/BillGertz/status/1390055939542245383?ref_src=twsrc%5Etfw)
-
-
-4.**[比尔·格茨推特](https://twitter.com/BillGertz/status/1390055939542245383?s=20)**：
-*这篇文章明确指出，与亲中共的病毒科学家和自由派媒体的无证据叙述相比，有更多证据表明新冠病毒是由武汉实验室操纵和泄露的，亲共的说这是自然出现的。[必须阅读](https://nicholaswade.medium.com/origin-of-covid-following-the-clues-6f03564c038)*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06191647/E0rtCPcWEAAMVY1.png)5. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1390184163572174852)**：
-*所有COVID-19侦探：马利克·佩里斯（Malik Peiris）是个坏人。 请搜索他与北京军事医学科学院，长春军事兽医研究所和人民解放军的联系。
-CCPVirus #UnrestrictedBioweapon #UnrestrictedBiowarfare #OriginOfCOVID19 #coronavirus #Corona #CoronaPandemic #COVID19*
-
-
-> Important – [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detectives [@ZionaEmanuel](https://twitter.com/ZionaEmanuel?ref_src=twsrc%5Etfw) [@dezying](https://twitter.com/dezying?ref_src=twsrc%5Etfw) [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) expertly show how PLA scientist Shibo Jiang, who inserted furin cleavage sites already in 2013 proving its laboratory origin, leverages the PLA international network that advances the CCP biowarfare program. [https://t.co/5EOJ1ojgXv](https://t.co/5EOJ1ojgXv)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 6, 2021](https://twitter.com/LawrenceSellin/status/1390147246612693001?ref_src=twsrc%5Etfw)
-
-
-6. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1390147246612693001?s=20)**：
-***（老百姓）**1, 姜世勃的一个研究实现了将多肽RIRR（一种呋喃酶的底物）插入表达载体中。
-2, 姜世勃和这么多 “老朋友 “的一份出版物显示了MERS-CoV中蝙蝠对人传播的关键
-
-**（Sellin)**敲黑板– #COVID19 侦探(老百姓、德意志之鹰、火来）
-专业地展示了解放军科学家姜世勃如何在2013年已经插入弗林酶切位点，并证明其是实验室来源，利用解放军的国际网络推进中共生物战计划*
-
-
-> 作者：Malik Peiris
-> 文章：2016年至2017年人感染高致病禽流感A（H7N9)病毒流行学
-> 发表时间：2017年
-> 合作作者单位：国家呼吸系统疾病临床医学中心（全国59个分中心873个网络成员，分中心分布在全国29个省市直辖市），广东疾控中心[https://t.co/tAq6s5eEfM](https://t.co/tAq6s5eEfM)[@LawrenceSellin](https://twitter.com/LawrenceSellin?ref_src=twsrc%5Etfw)[@NFSC\_007](https://twitter.com/NFSC_007?ref_src=twsrc%5Etfw) [pic.twitter.com/JskTPscxAy](https://t.co/JskTPscxAy)
-> — Devon Y (@devonJ32130301) [May 6, 2021](https://twitter.com/devonJ32130301/status/1390285901557747715?ref_src=twsrc%5Etfw)
-
-
-7. **[Devon Y推特](https://twitter.com/devonJ32130301/status/1390285901557747715?s=20)**：
-*作者：Malik Peiris 文章：[2016年至2017年人感染高致病禽流感A（H7N9)病毒流行学](https://schlr.cnki.net/zn/Detail/index/WWMERGEJLAST/SQFAB6C623BE4C0ECAE05BD7E094502B8EC9) 发表时间：2017年 合作作者单位：国家呼吸系统疾病临床医学中心（全国59个分中心873个网络成员，分中心分布在全国29个省市直辖市），广东疾控中心*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06193342/E0sBkqAVIAcfPnW.jpeg)8. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1390207165286080514?s=21)**：
-***(Sellin)**所有COVID-19侦探：马利克·佩里斯（Malik Peiris）是个坏人。 请搜索他与北京军事医学科学院，长春军事兽医研究所和人民解放军的联系
-
-**（火来）**德意志之鹰提供线索——陈志伟是中间人*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06193706/E0rhIE1VoAEYcxz.png)9. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1390171132968398851?s=21)**：
-*胡丹就是发现ZC45/ZXC21文章的第一作者，她把这个发现写进了博士论文里*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06194110/E0rUQLnVUAAEEUD.png)10. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1390158685444345856)**：
-*2015年6月10日，杜兰英，姜世勃，石正丽，Ralph Baric，李放发刚刚表文章证实mers感染人的关键是福林酶切位点；7月，王长军就在舟山地区搜寻到了45份蝙蝠样本，其中第21号样本就是舟山蝙蝠冠状病毒ZXC21。时间上衔接如此紧密，是巧合吗？？？王长军用的是hotmail，他的邮件里会有大秘密吗？？？*
-
-
-> SARS-CoV-2 is causing myocarditis, Vaccines are causing myocarditis
-> SARS-CoV 2 is causing paralysis, Vaccines are causing paralysis
-> SARS-CoV-2 is causing herpes zoster, Vaccines are causing herpes zoster
-> SARS-CoV-2 is causing clotting, Vaccines are causing clotting
-> — Ass. Prof. Konstantinos Poulas (@konstantinospo7) [May 6, 2021](https://twitter.com/konstantinospo7/status/1390188137360539649?ref_src=twsrc%5Etfw)
-
-
-11. **[Konstantinos Psulas推特](https://twitter.com/konstantinospo7/status/1390188137360539649?s=20)**：
-*SARS-CoV-2正在引起心肌炎，疫苗正在引起心肌炎
-SARS-CoV-2导致瘫痪，疫苗会导致瘫痪
-SARS-CoV-2引起带状疱疹，疫苗会引起带状疱疹
-SARS-CoV-2引起凝血，疫苗引起凝血
-SARS-CoV-2引起无嗅症，疫苗引起无嗅症
-SARS-CoV-2引起病变，疫苗引起病变
-SARS-CoV-2引起高血压，疫苗引起高血压
-是刺突蛋白起作用吗？*
-
-
-> 还有几个人记得闫博士告诉路德的，Malik还有一个秘密的存放病毒的地方😱 [pic.twitter.com/xKgDhVtFom](https://t.co/xKgDhVtFom)
-> — The last straw (@starstuded11) [May 6, 2021](https://twitter.com/starstuded11/status/1390326123284807680?ref_src=twsrc%5Etfw)
-
-
-12. **[最后一根稻草推特](https://twitter.com/starstuded11/status/1390326123284807680?s=20)**：
-*还有几个人记得闫博士告诉路德的，Malik还有一个秘密的存放病毒的地方*
-
-
-> Recently,🦇woman Zhengli Shi “speculations include [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) is a man-made bioweapon…& unintentionally introduced by scientists during field work…Scientific community strongly dismisses them & generally accepts natural origin” What is field work here?![https://t.co/VLNgYMbYfI](https://t.co/VLNgYMbYfI)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 6, 2021](https://twitter.com/DrLiMengYAN1/status/1390426677768073218?ref_src=twsrc%5Etfw)
-
-
-13. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1390426677768073218?s=20)**：
-*最近，蝙蝠女石正丽”猜测包括 #新冠病毒 是人造生物武器……是科学家在野外工作中无意中引入的……科学界强烈反对他们，普遍接受自然来源说 “这里的野外工作是什么？
-[https://journals.lww.com/idi/Fulltext/2021/04000/Origins\_of\_SARS\_CoV\_2\_\_Focusing\_on\_Science.2.aspx#JCL-P-3](https://journals.lww.com/idi/Fulltext/2021/04000/Origins_of_SARS_CoV_2__Focusing_on_Science.2.aspx#JCL-P-3)*
-【灭共时代】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
 
 
-> 20210505蓬佩奧國務卿接受Pat Robertson採訪
-> 1. 中國共產黨是美國最大的敵對勢力
-> 2.CCP跟蘇聯的不同是有14億百姓、龐大軍隊、巨大經濟體量
-> 3.美國對台灣的支持或許會讓習再掂量掂量
-> 4.過去20年中對抗恐怖主義是正確的，但現在面對的是具有超級實力的軍事勢力（CCP）
-> 5.這是跨黨派的共識而不關兩黨政治 [pic.twitter.com/ZJ9wXOUrXZ](https://t.co/ZJ9wXOUrXZ)
-> — Andy5 (@andy5\_123) [May 6, 2021](https://twitter.com/andy5_123/status/1390243750794829826?ref_src=twsrc%5Etfw)
+为什么说人类的历史是“祂的故事”：His – story=history？为什么福音所到之处就必开启现代的文明？为什么两千年（2021）的西方文明仅仅证明，一个国家、一个民族蒙福的根基和文明的持续，都是从基督信仰开启？让我们通过《罗马书》第五章的这几节经文来分享因信称义的大能：
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06200513/image-89.png)图源网络
+
+一、借着基督，消除天怒人怨的咒诅
 
 
-**[Andy5推特](https://twitter.com/andy5_123/status/1390245732150439942)**：
-*20210505蓬佩奥国务卿接受Pat Robertson採访
-中国共产党是美国最大的敌对势力
-2.CCP跟苏联的不同是有14亿百姓、庞大军队、巨大经济体量
-3.美国对台湾的支持或许会让习再掂量掂量
-4.过去20年中对抗恐怖主义是正确的，但现在面对的是具有超级实力的军事势力（CCP）
-5.这是跨党派的共识而不关两党政治
-重点1，蓬佩奥国务卿称中国共產党是最大的敌对势力
-重点2，将CCP类比苏联
-重点3，肯定前20年对抗恐怖主义是正确的，但接下来要面对的是具有超级实力的军事势力（也就是CCP已经超越了恐怖主义的实力）*
+> 5:1 *我们既因信称义，就藉着我们的主耶稣基督得与神相和。 Therefore, since we have been justified by faith, we have peace with God through our Lord Jesus Christ.*
 
 
-+1
+自从始祖被赶出伊甸园之后，神与亚当夏娃的后裔之间就产生了不可逾越的“罪”的鸿沟。在旧约时代，神的选民以色列人是通过不断的牛羊献祭和认罪悔改来恢复与造物主之间短暂的和平。但是，无论是人类悖逆的罪性，还是以色列几千年的历史都证明，人类无法也不能通过守律法来达到与神的和平。因此，无法消除神人之间的隔离和上天的愤怒。
+
+这种状况自从耶稣基督在两千年之前来到世界之后，一切都改变了。他自己被钉上十字架，做了无瑕疵的羔羊献祭，一次性地解决了始祖所犯下的罪的问题，使得所有接受他为救主的人都能借着他与造物主达到和平。这是划时代的——所以从元年零年开始，这个时代就叫新约的恩典时代。这是自始祖被赶出伊甸园之后，一个颠覆的时代，恢复的时代，与神和好的时代。那么，与神恢复和平是什么意义呢？这对于一个信徒，意味着他的灵魂有了安息的家园，神可以随时管教他、祝福他；对于他所处的家庭、环境和社区，造物主都开始恢复他起初的旨意和祝福。神人之间“天怒人怨”的万代咒诅都会慢慢地，因着越来越多人的悔改，而被渐渐消除。所以，这一切恢复的是上天与人类的和谐，不单单是因着信徒，更是那些代祷的人。因此， “以耶和华为神的，那国是有福的！他所拣选为自己产业的，那民是有福的！”（诗篇33:12）
+
+二、借着基督，站定恩典荣耀的地位
+
+
+> 5:2 *我们又藉着他，因信得进入现在所站的这恩典中，并且欢欢喜喜盼望　神的荣耀。 Through him we have also obtained access by faith into this grace in which we stand, and we rejoice in hope of the glory of God.*
+
+
+什么是荣耀？《罗马书》（3:23）告诉我们，“因为世人都犯了罪，亏缺了神的荣耀”。人类失去了造物主的形象和性情，这是人类历史上一切灾难、苦难和死亡的缘由。人的尊严和根基是从神而来，失去与上天交通的渠道，人类便无法认识自己的尊严，更无法恢复自己的尊严。 在红色无神政权的蹂躏之下，大众的“韭菜”心理，就是缺乏自我尊严和认知的逼真写照。
+
+然而，福音所到之处，信徒的灵魂在耶稣基督信仰的恩典里，开始像小孩子回到父母怀抱一样，得着父母的慈爱和关怀。因此，人类受伤的心灵得着完全地医治，他们的尊严也得着恢复。这样的生命不会因为强权而畏惧，更不会对于边缘群体而高傲，相反，因为看到每个灵魂都有造物主的尊严而自然生发公义和怜悯之心。在这样的社区和群体里面，弱肉强食的丛林文化必定没有生存的空间，而民主和自由的氛围也必定生发成型。更为奇妙的是，那些重生得救的信徒，虽然在社会各个领域活出天国的尊严和德行，但是他们的目标却是永生国度的盼望——因为那里才是神的荣耀和完美的人性变为现实的地方。
+
+三、借着基督，塑造得胜忍耐的品格
+
+
+> 5:3-4 3*不但如此，就是在患难中也是欢欢喜喜的；因为知道患难生忍耐，4忍耐生老练，老练生盼望*。3*Not only that, but we rejoice in our sufferings, knowing that suffering produces endurance,* 4*and endurance produces character, and character produces hope*.
+
+
+有一种信仰是一开始就保证你会经历患难的信仰，有一种信心是一开始就保证你经历火的试炼的信心——这就是基督信仰——因为他自己经历十字架的窄路和死里复活的大能，他也保证他的门徒，只有背起自己的十字架，才能够进入他所应许的流奶与蜜的迦南美地。但是，信徒外面的患难与里面的喜乐是两个世界：一个因着外面变幻万千的世界，一个是因着里面不可震动的属天国度。所以，信徒的感受也许会因为外部世界而受到影响，也正是这样的影响，会使得门徒的信心恰似扎根磐石裂缝中的松柏大树，在严酷逼迫的环境之下，一样能笑傲炎寒。这是因为患难能够操练信徒的忍耐，因为恩典能够加添信徒的能力，更因为荣耀的盼望能让信徒在忍耐中也能欢欢喜喜。
+
+人类文明的进步多是建立在少数人经历苦难和信心的试炼后而得胜的见证上。历代的信徒效法耶稣基督，不断地扩展神的国度：他们舍去舒适的生活环境，把天国的救恩传递到那些常人无法触及的族群和地域。而那些野蛮落后的弱势文明，一旦被基督的信仰所感化，都开启了诚实、守约、和平、尊严和包容的现代文明体系。这就是两千年来，基督信仰持续改变野蛮的欧美大陆文化的写照。直到今天，美国仍被公认是信仰的山巅之城和当代文明体系的巅峰。而今，尽管北美舍弃神的极左思潮慢慢地舍去了他们祖辈的信仰，美国遍地的基督教会仍然像末后混乱世代的灯塔，持守呼唤着这块大地上的人们：要悔改归向造物主所派来的耶稣基督。
+
+四、借着基督，见证造物主的大爱
+
+
+> 5:5 *盼望不至于羞耻，因为所赐给我们的圣灵将神的爱浇灌在我们心里。And hope does not put us to shame, because God’s love has been poured into our hearts through the Holy Spirit who has been given to us.*
+
+
+天国是什么？为什么自从耶稣来到世界开始，直到今日，被呼召的人类都要争先恐后的进入天国？难道天国是毫无根据的海市蜃楼吗？绝不是的！因为与信徒同在的圣灵，把神的大爱如江河一样倾到在他们的心里：这不但把眼睛所看不到的神呈现为真实，更让信徒活在真实的被造物主所引导祝福的生命之中。《圣经》清楚地告诉我们：“神就是爱；住在爱里面的，就是住在神里面，神也住在他里面。”（约翰一书4:16）所以，天国就是爱的国度，就是公义、圣洁和荣耀的国度。天国虽然还没有在这个世界实现，但是在信徒中间应该成型出来，在一个属于基督的教会里应该成型出来——当耶稣基督再来的时候，他会在全地把天国成型出来。
+
+天国是怎样在信徒的心里成型的呢？首先，圣灵带领罪人悔改；然后，圣灵洁净信徒的灵魂，缩短信徒与神的距离，苏醒信徒的灵魂，经历神的大爱；乃至最后，圣灵让信徒的灵魂侵入他大爱的海洋。这种经历和见证不是在物质世界里能够找到的，也不是世界的荣华富贵能够换来的。但是，得着这样生命的信徒，必定反过来影响并改变他周围的世界——这就是光和盐的果效，越是黑暗的地方越显出光亮，越是腐烂的地方越显出盐味。这种果效就是他们会自觉地“行公义，好怜悯，存谦卑的心与神同行”。这恰恰是现代文明社会的标志性品格，也是为什么基督信仰至终成为改变一个社区，一个族群，乃至一个国家的源动力了。
+
+各位战友，各位弟兄姐妹，新中国联邦的道德根基在哪里？我们有什么理由舍去五千年来耶和华神的历史见证和两千多年来西方文明的卓越实践，来重新建造我们的信仰吗？四千年之前，耶和华神应许亚伯拉罕和他的后裔，他们必将承受这个世界（地球）。凡是因着信靠耶稣基督的人都是亚伯拉罕的后裔，这个应许已经在世界四大洲成为现实，现在轮到了中华大地和华夏民族，新中国联邦能够成为承受这个应许的领军团队吗？
+
+（本文仅代表作者观点）
+
+相关阅读：
+
+[【信仰之声】从四川三星堆文物解读华夏文明之渊源（三）](https://gnews.org/zh-hans/1101940/)
+
+[【信仰之声】从四川三星堆文物解读华夏文明之渊源（二）](https://gnews.org/zh-hans/1070601/)
+
+[【信仰之声】从四川三星堆文物解读华夏文明之渊源（一）](https://gnews.org/zh-hans/1050054/)
+
+[【战友心声】小蚂蚁过海与大浪淘沙](https://gnews.org/zh-hans/1025837/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+
+编辑：灵性探索
+
+校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+
+
+0

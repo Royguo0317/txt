@@ -1,37 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 霍尼韦尔国际公司向中共国出口美国军事工程版图被处罚
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1180895/)
+## 2021年5月6日 文贵先生盖特 1
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1181010/)
 
-#### 作者：ThreeColors
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06154435/Honeywell-International-1.png)图片来源于网络
+5月6号：四个自信的中共．主动和澳大利亚脱钩．Facebook主动和川普总统脱钩．谁是最终的受益者呢？【[https://www.news.com.au/finance/economy/australian-economy/china-indefinitely-suspends-all-activities-under-the-chinaaustralia-strategic-economic-dialogue/news-story/28f3127a544a3caff409ab9fe0d90533](https://www.news.com.au/finance/economy/australian-economy/china-indefinitely-suspends-all-activities-under-the-chinaaustralia-strategic-economic-dialogue/news-story/28f3127a544a3caff409ab9fe0d90533) 中国“无限期暂停”中澳战略经济对话的所有活动】
 
-《国家脉动》（The National Pulse》5月6日报道，美国国务院刚刚与霍尼韦尔国际公司（Honeywell International, Inc）达成一项 “涉嫌违反出口规定 “的和解，因为霍尼韦尔公司与包括中共国在内的几个国家分享了与美国军事技术有关的工程版图。
+[【2021年5月6日】文贵先生盖特原文](https://gtv.org/getter/6093f97f37f7f73984c88da3)
 
-根据国务院的官方声明，霍尼韦尔将支付1300万美元的 “民事罚款”，并聘请一名 “特别督察员”，负责监督 “36个月的同意协议”。  后者将要求实施额外的 “合规措施”，并对该公司的 “合规计划 “进行外部审计。
-
-声明说，该协议是国务院通过保护 “原产于美国的国防物品，包括技术数据，免遭未经授权的出口 “来加强美国工业的一个实例。
-
-国务院声明全文如下。
-
-美国国务院已经与北卡罗来纳州夏洛特市的霍尼韦尔国际公司（Honeywell International, Inc）达成了一项行政和解。霍尼韦尔公司位于北卡罗来纳州夏洛特市，该公司被指控违反了《武器出口管制法》（AECA）（22 U.S.C. § 2751 et seq.）和《国际武器贩运条例》（ITAR）（22 C.F.R. Parts 120-130）。
-
-国务院和霍尼韦尔公司在国务院政治军事事务局国防贸易管制合规办公室进行广泛的合规性审查后达成了这项和解。 国务院和霍尼韦尔公司已根据《国际贸易法》第128.11条达成协议，以解决涉嫌向加拿大、爱尔兰、墨西哥、中共国和台湾未经授权出口和转让受《国际武器贩运条例》（ITAR）控制的技术数据，其中包括显示用于制造飞机、燃气涡轮发动机和军用电子产品的铸件和成品部件的尺寸、几何形状和布局的工程图。
-
-该解决方案表明，美国商务部通过保护原产于美国的国防物品，包括技术数据，使其免遭未经授权的出口，在加强美国工业方面发挥了作用。  该解决方案还强调了从该部获得适当授权以出口受控物品的重要性。
-
-根据36个月的同意协议条款，霍尼韦尔将支付1300万美元的民事罚款。  该部已同意暂停支付其中的500万美元，条件是这些资金将用于该部批准的同意协议补救性合规措施，以加强霍尼韦尔的合规计划。  此外，在最初的至少18个月内，霍尼韦尔将聘请一名外部特别合规官来监督同意协议，该协议还要求该公司在协议期内对其合规计划进行一次外部审计，并实施额外的合规措施。
-
-霍尼韦尔公司自愿向该局披露了根据该和解协议解决的涉嫌违规行为。  霍尼韦尔公司也承认被指控的违规行为的严重性，并配合该局的审查，在该局的审查过程中实施了一些合规计划的改进。  基于这些原因，决定目前不对霍尼韦尔公司进行行政禁制。
-
-评：从美国国务院的举措可以看出，美国政府正在把各项规范落到实处来针对中共国无孔不入的偷盗与渗透。美国的体系，是一个虽不完美但却有强大修复力的体系，美国政府的这种种运作值得未来的新中国联邦参考并学习。
-
-原文链接：[Honeywell International Exported US Military Engineering Prints To China](https://thenationalpulse.com/breaking/honeywell-international-exported-us-military-engineering-prints-to-china/)
-
-* * *
-
-*排版发布：日本东京方舟农场 文柯Miles*
+**喜联盟Gnews编辑部**
 
 0

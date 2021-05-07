@@ -1,57 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月6日美国政要和政评家反共推特精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1181651/)
+## 【战友心声】佛法无边，回头是岸——读余少镭小说《谋杀预审》后的思考
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1181670/)
 
-参议员瑞克·斯科特： 我赞扬七国集团（G7）的外交部长反对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的过度扩张和严重的侵犯人权行为，并加入美国支持我们的民主盟友台湾。我们都必须团结起来反对中共国的种族灭绝和压迫.我敦促参议院的同事们支持我的《世卫组织问责法》的即时通过。我们必须让世卫WHO为帮助中共国掩盖COVID-19的信息负责，并确保在台湾成为会员国之前，美国不会再给它一毛钱。
-
-
-
-> I applaud the G7 foreign ministers for taking a stand against Communist China’s overreach & horrific human rights abuses & joining the U.S. in supporting our democratic ally Taiwan. We must all stand united against Communist China’s genocide & oppression: [https://t.co/KRKNXyqttf](https://t.co/KRKNXyqttf)
-> — Rick Scott (@SenRickScott) [May 6, 2021](https://twitter.com/SenRickScott/status/1390421334379929609?ref_src=twsrc%5Etfw)
+作者：纽约香草山农场  乱谈秦
 
 
 
-众议员Mike Gallagher’s: 越来越清晰的是，实验室泄漏假说根本不能被排除，无论 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 对此有何看法，我们都需要答案。 【[http://medium.com](https://t.co/c8i5z8Dyvh?amp=1)文章：新冠病毒起源-追循线索】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
 
 
-> It’s becoming increasingly clear that the lab leak hypothesis cannot be dismissed out of hand. We need answers, regardless of how the Chinese Communist Party feels about it. [https://t.co/DLWEXf56CK](https://t.co/DLWEXf56CK)
-> — Rep. Mike Gallagher (@RepGallagher) [May 6, 2021](https://twitter.com/RepGallagher/status/1390418220734103553?ref_src=twsrc%5Etfw)
+医疗黑幕和张煜医生成为中共国近半个月的热门话题。事情仍在发展中，但基于邪恶中共的存在，笔者认为结果不会乐观（参见文章《[张煜医生再发文 希望与卫健委公开辩论](https://gnews.org/zh-hans/1180256/)》）。说笔者天真也罢，还是希望每个人都能以自己的方式推波助澜，推醒那些不知情或者装睡的民众。
+
+这不，今日偶见墙内前媒体人余少镭在其微信个人公众号刚发了一篇小说——《谋杀预审》。余少镭其人谦虚自白，“肿瘤医院水有多深，我只敢这么说”。
+
+该小说八千余字，不长却也要花几分钟来读。作者文字很朴素，把中共国独有的、荒唐的、却真实存在的一些事情和情节串起来，描写了某肿瘤医院老板与情人生死纠纷的过程。据作者称，（部分情节）也来源于他的一些真实经历。这个笔者可以作证，某些情节在中共国太常见了，甚至也听相关当事人说过一些。笔者唯一有一点请问作者，在菜刀都需实名购买的中共国，不记名的手机卡现在还能买到吗？此类细节作者没有交待清楚。（某宝有海外卡，跟作者开个玩笑！）
+
+作者的期望是，“希望它（小说）能有一丁点社会价值。”笔者也强烈建议，大家有时间去读一读这个小说：你不懂中共国社会，看完就懂了；你懂中共国社会，检验下你是不是真的懂。可以这么说，该小说即新闻，即纪实报道。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06204956/image-90.png)余少镭截自电影《预审》海报（图源网络）
+
+小说的主人公原本是善是恶无从考证，反正他如今在中共国的逆淘汰体制下肯定变成了恶人。他作恶多端，不择手段，成功致富；他泯灭人性，策划周密，成功杀人。然而，跟中共及其机器相比，他的恶就是小儿科，被人笑话。他就是个中共染缸里的小鬼和白手套，岂是大鬼和魔头的对手？说到底，那些自以为聪明、自以为得势得利，与中共党棍们混在一起的人，能有好下场吗？他们性命没了，挣得钱还带不走，老婆、女儿也是别人的，甚至早就是别人的了。
+
+任何中共治下或者与中共打交道的人，如果不保有基本的良知和人性，如果不能存善去恶，不管你多聪明，都会走上歪门邪道，都会被中共这个恶魔利用，被它同化，最终跟随中共及其党棍们进入地狱。天道好轮回，苍天绕过谁？
+
+中共国有多少这样的人呢？面临竞争苦苦挣扎、面临抢劫担惊受怕的中共国商人们，你是不是？体制内没有背景艰难往上爬、看着盗国贼黄金堆成山自己却没有一块的公务员们，你是不是？被洗脑成为不明真相的中共工具、为一日三餐996还被“割韭菜”的小粉红们，你是不是？如果你是，请不要在通往地狱的邪恶小道上越行越远，回头是岸！
+
+最后，借《红楼梦》中的一段话送给未醒人：“机关算尽太聪明，反误了卿卿性命。生前心已碎，死后性空灵。家富人宁，终有个家亡人散各奔腾。枉费了，意悬悬半世心，好一似，荡悠悠三更梦，忽喇喇似大厦倾，昏惨惨似灯将尽。呀！一场欢喜忽悲辛。叹人世，终难定！”
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+[谋杀预审](https://mp.weixin.qq.com/s/o75ZXO4wEQHYwTgpbnUURw)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 
 
-参议员霍利新闻办公室： 参议员乔什·霍利再次呼吁对大科技垄断企业采取反托拉斯行动，特别是对脸书FB继续封禁川普总统而大声疾呼。 霍利说：“现在，脸书拥有一切权力。” “消费者的权利却为零。” 【转福克斯新闻：霍利：脸书Facebook董事会对川普的禁令，证明了是时候该认真对待反托拉斯行动了】
-
-
-
-> Sen. Josh Hawley renewed his call for antitrust action against Big Tech monopolies, specifically calling out Facebook's continued ban of Former President Trump.
-> 
-> "Right now, Facebook has all the power," Hawley said. "Consumers have zero power." [https://t.co/N4DMIZecse](https://t.co/N4DMIZecse)
-> — Senator Hawley Press Office (@SenHawleyPress) [May 6, 2021](https://twitter.com/SenHawleyPress/status/1390353374571343875?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特: [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 是世界上最糟糕的污染国，我们不能相信它会做出任何改变。 解决我们的气候变化需要切实的解决方案，但我们不能假装与像中共国 这样的巨型污染者达成无用的协议能为推进这项工作做任何事。 【转推文：最新：据分析,2019年中国的温室气体排放量,超过美国和发达国家的总和】
-
-
-
-> Communist China is the world’s worst polluter & we can't trust it will do anything to change course.
-> 
-> Addressing our changing climate requires real solutions, but we can't pretend toothless agreements with mega-polluters like Communist China will do anything to advance that work. [https://t.co/RJcsuBBi38](https://t.co/RJcsuBBi38)
-> — Rick Scott (@SenRickScott) [May 6, 2021](https://twitter.com/SenRickScott/status/1390376959687933966?ref_src=twsrc%5Etfw)
-
-
-
-参议员卢比奥新闻办公室： [#印度](https://twitter.com/hashtag/%E5%8D%B0%E5%BA%A6?src=hashtag_click) 正确地将象华为[@Huawei](https://twitter.com/Huawei)和中兴[@ZTEdevice](https://twitter.com/ZTEDevice)这样的中国国有企业排除在了他们的5G试验之外。 [#华为](https://twitter.com/hashtag/%E5%8D%8E%E4%B8%BA?src=hashtag_click) 和其他中国公司带来的安全风险实在是太高了，更多的国家应该效仿印度。 【转路透社印度的推文及文章：印度并未将华为列为5G试验参与者】
-
-
-
-> [#India](https://twitter.com/hashtag/India?src=hash&amp;ref_src=twsrc%5Etfw) has rightfully excluded Chinese state-directed companies like [@Huawei](https://twitter.com/Huawei?ref_src=twsrc%5Etfw) & [@ZTEdevice](https://twitter.com/ZTEDevice?ref_src=twsrc%5Etfw) from participating in their 5G trials. 
->  
-> The security risk posed by Huawei & other Chinese companies are simply too high and more nations should follow India. [https://t.co/dRx9yuyuKY](https://t.co/dRx9yuyuKY)
-> — Senator Rubio Press (@SenRubioPress) [May 6, 2021](https://twitter.com/SenRubioPress/status/1390291790880772098?ref_src=twsrc%5Etfw)
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
 
 
 
