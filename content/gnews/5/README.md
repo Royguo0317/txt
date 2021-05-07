@@ -1,36 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印度政府发出危机警告 中共生物武器第三轮攻击
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1181992/)
+## 【时事解析】接近群体免疫的塞舌尔感染率激增而重新实施限制
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1182217/)
 
-翻译&评论：Hong
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06220206/701-2-1.png)德国感恩农场文宣
-当地时间5月5日，印度政府发出危机警告，中共超限生物武器病毒在印度第三阶段爆发是“不可避免的”，虽然尚不清楚中共何时会发起第三轮变异病毒的攻击，但政府必须就此做好准备。中共对印度第三轮变异病毒的攻击可能比目前遭遇的更加凶猛，攻击的残酷程度更令人难以想象。中共病毒的攻击似乎毫无止境，印度必须为不确定的未来做好准备，做更坏的打算。
+作者：休斯顿星光农场 写作部 H.B
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-03-25-230524-1.jpg)
+据多家媒体报道，太平洋岛国塞舌尔尽管已有超过60%成年人接种了两剂新冠病毒疫苗，但感染率依然激增，现在该国被迫重新实施限制。
 
-印度官方报告显示，印度上周新增确诊感染中共病毒病例占全球新增病例的46％，新增死于中共病毒的人数占全球死亡人数的四分之一。
+该限制包括关闭所有学校，体育活动也取消了两周。同时禁止家庭间的互动往来和某些类型的个人聚会，以及提前关闭商店、酒吧和赌场。非必需的工作也被鼓励在家进行，当地时间23点重新实行宵禁。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06230024/Screenshot-2021-05-06-215935.jpg)
+*图片来源：zerohedge.com*
 
-与前一周相比，印度国内新增确诊感染中共病毒病例增加了20％，目前疫情持续恶化，单日新增确诊感染病例已连续两周超过30万例。
+塞舌尔自今年1月开始接种疫苗以来，在短短四个月的时间里，从531个感染病例和1例死亡，达到目前6373个病例，死亡人数为146人，感染率上升了10倍以上，死亡率更加夸张。国家卫生部长Peggy Vidot在周二的新闻发布会上说：“尽管我们正在做出各种特殊的努力，但我国的Covid-19情况现在很严重，上周每天都有许多病例报告 “。
 
-印度政府首席科学顾问维杰·拉格万（K Vijay Raghavan）说：“印度目前仍然约有350万（中共）病毒的活跃病例，昨天有3780人死于病毒（中共病毒），这是到目前为止单日最高的死亡人数记录，印度的疫情何去何从？印度将遭受第三轮的攻击是不可避免的。”
+目前虽然还很难判断是什么原因导致的塞舌尔病例激增，但是达特茅斯大学盖瑟尔医学院的临床医学教授丹尼尔-卢西在一篇博文中说，在2月份的检测中发现了中共病毒南非变异株B.1.351。对于南非变异株，科学家们一致认为，它可以逃避免疫，并使注射疫苗在预防感染方面减弱30%。
 
-维杰·拉格万强调，（中共生物武器）变异病毒第三轮的攻击即将到来，因为变异病毒在印度的传播性极强，随着病毒在传播过程中不断地发生突变，不同版本的病毒变体也会越来越多，这让病毒得以肆虐，让病毒有机会繁殖扩散，所以，接下来印度还会遭到变异病毒的第三次轰击，我们必须做最坏打算。
+截至4月12日，塞舌尔59%的国民接种的是中共国药集团生产的疫苗，其余的是阿斯利康公司在印度授权生产的Covishield疫苗。路透社称，最近见到的一份文件显示，对于中国国药集团所提供的关于其中共病毒疫苗导致部分病患出现严重副作用风险的数据，令世界卫生组织(WHO)专家的“信心非常低”，但对其预防新冠疾病的能力总体上有信心。在看到塞舌尔的这组数据之后，不知世卫专家的信心还会剩下多少？
 
-维杰·拉格万指出说，人们要警惕这种病毒的突变，这对未来遏制变异病毒带来了挑战，病毒在传播过程中一直在变异，我们将看到五花八门传染性变强或变弱的病毒的变异体，印度需要标记研究这些病毒的变体。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06220354/702-1.jpg)德国感恩农场文宣
-中共生物武器变异病毒使印度举国失控，中共给印度投毒的残酷程度超出了全世界的想象，中共病毒在印度变异的恐怖性是前所未见的，眼下中共生物武器病毒把印度推向了死亡的边缘。印度不可预测的悲剧再次印证了一个道理。郭先生早在2021年4月22日就提到“没疫苗，永远不会有疫苗，因为它是生化武器！”“解药就是以毒灭共。”
+据独立报报道，欧盟药品监管机构周二宣布，他们已经开始对中共国药集团的一款疫苗——科兴疫苗（Sinovac）进行滚动审查，以评估其有效性和安全性，为在27国集团的使用做第一步准备工作。到目前为止，EMA已经批准了四种冠状病毒疫苗，并还在对其他三种疫苗进行滚动审查：德国生物技术公司CureVac开发的疫苗、美国开发的Novavax和俄罗斯的Sputnik V。
 
-全球灭共的号角已吹响，是集结灭共的时候了！
+在最近的一个视频圆桌会议中，5位被认为有资格发声的医学博士表态，他们每一个人都认为这些疫苗不是疫苗，而是旨在杀死人类的生物武器。这些高素质的医生不仅讨论了正在发生的问题的原因，还在最后给出了实用的建议，即我们现在可以做什么来保护自己，从而阻止全球主义者试图减少世界人口对人类发动这种攻击。
 
-（文章仅代表作者本人观点）
+资料来源：
 
-*初审：**2号电梯*
+[https://cn.reuters.com/article/who-sinopharm-0505-wedn-idCNKBS2CN02E](https://cn.reuters.com/article/who-sinopharm-0505-wedn-idCNKBS2CN02E)
 
-*审稿：光耀华夏*
+[https://www.zerohedge.com/covid-19/country-worlds-highest-vaccination-rate-orders-new-lockdown-covid-cases-surge](https://www.zerohedge.com/covid-19/country-worlds-highest-vaccination-rate-orders-new-lockdown-covid-cases-surge)
 
-*编辑：MG1*
+[https://www.bloombergquint.com/politics/world-s-most-vaccinated-nation-reintroduces-curbs-as-cases-surge](https://www.bloombergquint.com/politics/world-s-most-vaccinated-nation-reintroduces-curbs-as-cases-surge)
 
-新闻参考来源：
-[https://www.youtube.com/watch?v=9aOjrb8hOfk](https://www.youtube.com/watch?v=9aOjrb8hOfk)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04002827/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
+[https://rumble.com/vg3drt-urgent-5-doctors-agree-that-covid-19-injections-are-bioweapons-and-discuss-.html](https://rumble.com/vg3drt-urgent-5-doctors-agree-that-covid-19-injections-are-bioweapons-and-discuss-.html)
+
+[https://www.independent.co.uk/news/eu-regulators-start-review-of-chinas-sinovac-vaccine-european-medicines-agency-china-sinovac-netherlands-brazil-b1841785.html](https://www.independent.co.uk/news/eu-regulators-start-review-of-chinas-sinovac-vaccine-european-medicines-agency-china-sinovac-netherlands-brazil-b1841785.html)
+
+编辑：文顺 校对/发稿：Helen
+
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
+
+
+
+
 0

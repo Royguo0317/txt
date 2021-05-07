@@ -1,28 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 抵制新疆棉引发的国际品牌销量骤减
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1181499/)
+## 5月6日美国政要和政评家反共推特精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1181651/)
 
-**撰稿：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06192134/572.jpg)
-根据美国投资研究和基金评级权威机构“晨星”公司(Morningstar)的分析，中共国最大网购平台天猫的阿迪达斯品牌4月同比暴跌78%，耐克骤降59%，服饰品牌优衣库跌幅超过20%。
+参议员瑞克·斯科特： 我赞扬七国集团（G7）的外交部长反对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的过度扩张和严重的侵犯人权行为，并加入美国支持我们的民主盟友台湾。我们都必须团结起来反对中共国的种族灭绝和压迫.我敦促参议院的同事们支持我的《世卫组织问责法》的即时通过。我们必须让世卫WHO为帮助中共国掩盖COVID-19的信息负责，并确保在台湾成为会员国之前，美国不会再给它一毛钱。
 
-而这几家公司因曾公开表示不再使用新疆棉花而受到中共国消费者的抵制。
 
-天猫作为中共消费者的首选购物平台，也是最大的销售渠道，被认为是衡量商品是否受欢迎的重要标准之一，仅该网站的销量就占体育用品品牌公司全中共国收入的10%以上。
 
-中共庞大的消费基数决定了对于任何品牌来说都是十分重要的消费市场，仅美国耐克公司一家的财报显示，近20%的收入来自于大中华地区。此前因为新疆人权问题，BCG下的各个品牌都纷纷站出来公开声明拒绝使用新疆棉花，这一举动被中共党媒大肆宣传和利用，将本应聚焦的“新疆种族灭绝反人类罪行”“成功”引导到了品牌商的歧视对待，从而引发国内小粉红的抵制洋货运动。
+> I applaud the G7 foreign ministers for taking a stand against Communist China’s overreach & horrific human rights abuses & joining the U.S. in supporting our democratic ally Taiwan. We must all stand united against Communist China’s genocide & oppression: [https://t.co/KRKNXyqttf](https://t.co/KRKNXyqttf)
+> — Rick Scott (@SenRickScott) [May 6, 2021](https://twitter.com/SenRickScott/status/1390421334379929609?ref_src=twsrc%5Etfw)
 
-在抵制外国品牌的同时，中共国消费者转向购买坚决支持使用新疆棉花的中共国国内知名品牌李宁和安踏的商品。在这一波抵制外国货、支持国货的民族主义浪潮中，李宁品牌商品4月份在天猫上的销量猛增了800%。
 
-但是，无论销售业绩是否遭遇断崖式的下跌，各大品牌也没有撤回对于“抵制新疆棉花”的声明。相反，国际上对于中共在新疆问题上犯下的“反人类种族灭绝”的罪行，越来越重视，抵制声也越来越一致。中共长期以来敢于挑战国际秩序，背后最大的动力就是捆绑14亿中国人，用这块巨大的市场作为威胁各国经济的利器。但随着中共国经济陷入危机，中共市场的活力和有效性也将逐步减弱，而且越来越多的西方国家认识到中共在价值观上对于西方文明的挑战是极其具有伤害性的。因此权衡利弊，只会迫使西方各国加速与中共的划清界限甚至“经济脱钩”。
 
-（本文只代表作者观点，与Gnews平台无关。）
+众议员Mike Gallagher’s: 越来越清晰的是，实验室泄漏假说根本不能被排除，无论 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 对此有何看法，我们都需要答案。 【[http://medium.com](https://t.co/c8i5z8Dyvh?amp=1)文章：新冠病毒起源-追循线索】
 
-**新闻来源：**
-[因拒绝使用新疆棉花 耐克阿迪网购遭抵制销量骤减 (voachinese.com)](https://www.voachinese.com/a/Adidas-Nike-web-sales-plunge-in-China-amid-Xinjiang-boycott-20210506/5880798.html?withmediaplayer=1)
 
-***校对发布**：文顾*
+
+> It’s becoming increasingly clear that the lab leak hypothesis cannot be dismissed out of hand. We need answers, regardless of how the Chinese Communist Party feels about it. [https://t.co/DLWEXf56CK](https://t.co/DLWEXf56CK)
+> — Rep. Mike Gallagher (@RepGallagher) [May 6, 2021](https://twitter.com/RepGallagher/status/1390418220734103553?ref_src=twsrc%5Etfw)
+
+
+
+参议员霍利新闻办公室： 参议员乔什·霍利再次呼吁对大科技垄断企业采取反托拉斯行动，特别是对脸书FB继续封禁川普总统而大声疾呼。 霍利说：“现在，脸书拥有一切权力。” “消费者的权利却为零。” 【转福克斯新闻：霍利：脸书Facebook董事会对川普的禁令，证明了是时候该认真对待反托拉斯行动了】
+
+
+
+> Sen. Josh Hawley renewed his call for antitrust action against Big Tech monopolies, specifically calling out Facebook's continued ban of Former President Trump.
+> 
+> "Right now, Facebook has all the power," Hawley said. "Consumers have zero power." [https://t.co/N4DMIZecse](https://t.co/N4DMIZecse)
+> — Senator Hawley Press Office (@SenHawleyPress) [May 6, 2021](https://twitter.com/SenHawleyPress/status/1390353374571343875?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特: [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 是世界上最糟糕的污染国，我们不能相信它会做出任何改变。 解决我们的气候变化需要切实的解决方案，但我们不能假装与像中共国 这样的巨型污染者达成无用的协议能为推进这项工作做任何事。 【转推文：最新：据分析,2019年中国的温室气体排放量,超过美国和发达国家的总和】
+
+
+
+> Communist China is the world’s worst polluter & we can't trust it will do anything to change course.
+> 
+> Addressing our changing climate requires real solutions, but we can't pretend toothless agreements with mega-polluters like Communist China will do anything to advance that work. [https://t.co/RJcsuBBi38](https://t.co/RJcsuBBi38)
+> — Rick Scott (@SenRickScott) [May 6, 2021](https://twitter.com/SenRickScott/status/1390376959687933966?ref_src=twsrc%5Etfw)
+
+
+
+参议员卢比奥新闻办公室： [#印度](https://twitter.com/hashtag/%E5%8D%B0%E5%BA%A6?src=hashtag_click) 正确地将象华为[@Huawei](https://twitter.com/Huawei)和中兴[@ZTEdevice](https://twitter.com/ZTEDevice)这样的中国国有企业排除在了他们的5G试验之外。 [#华为](https://twitter.com/hashtag/%E5%8D%8E%E4%B8%BA?src=hashtag_click) 和其他中国公司带来的安全风险实在是太高了，更多的国家应该效仿印度。 【转路透社印度的推文及文章：印度并未将华为列为5G试验参与者】
+
+
+
+> [#India](https://twitter.com/hashtag/India?src=hash&amp;ref_src=twsrc%5Etfw) has rightfully excluded Chinese state-directed companies like [@Huawei](https://twitter.com/Huawei?ref_src=twsrc%5Etfw) & [@ZTEdevice](https://twitter.com/ZTEDevice?ref_src=twsrc%5Etfw) from participating in their 5G trials. 
+>  
+> The security risk posed by Huawei & other Chinese companies are simply too high and more nations should follow India. [https://t.co/dRx9yuyuKY](https://t.co/dRx9yuyuKY)
+> — Senator Rubio Press (@SenRubioPress) [May 6, 2021](https://twitter.com/SenRubioPress/status/1390291790880772098?ref_src=twsrc%5Etfw)
+
+
 
 0
