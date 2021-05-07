@@ -1,35 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共和党新要员称要为追责中共而奋斗
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1185037/)
+## 【热点播报】统计显示：美国经济远远未达到预期
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1185084/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：纽约香草山农场  四季
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/05/L.jpg)auburnpub.com
-呼声很高的切尼替代者，众议员伊丽丝·斯特凡尼克（Elise Stefanik）作客班农作战室表示，“全世界都应该向中共国讨要答案。我自豪地加盟了众议院《中共国问题特别工作组》（China Task Force），并将继续为追责中国共产党而奋斗。”【1】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-5月5日笔者发文报道了川普总统力挺伊丽丝·斯特凡尼克接替利兹·切尼（Liz Cheney），担任共和党众议院的领导职务”【2】。切尼目前担任共和党众议院会议主席，这是继少数党领袖众议员凯文·麦卡锡（Kevin McCarthy）和少数党党鞭史蒂夫·斯卡利斯（Steve Scalise）之后的第三高职位。
 
-这里顺便介绍一下众议院的《中共国问题特别工作组》，以及特别工作组发布的报告。
 
-该工作组在川普总统执政时期的2020年5月首次向美国众议院宣布成立的，工作组由15名共和党议员组成。2020年9月，特别工作组公布了400多项针对美国的对华政策建议，建议关注中共国的人权，中共病毒疫情，以及中共国在世界上日益增长的影响力。该工作组由德克萨斯州共和党人麦克考尔（Mike McCaul）领导，他是众议院外交委员会的资深成员【3】。这个报告应该是《2021战略竞争法》的前身，众议院共和党领袖麦卡锡主导起草了这份报告。
+Washington Examiner 5月7日报道，根据美国劳工统计局周五的报告，4月份的新增就业岗位远远低于预期，仅有26.6万个，失业率小幅升至6.1%。就业数据表明，从大流行病中的复苏并没有像人们希望的那样快速进行。 而之前预测者曾预计，经济将增加近100万个非农就业岗位，失业率将从3月份的6%下降到5.8%。
 
-报告悉数了“中国共产党的世代威胁”，指出，自40多年前与中共国建立外交关系以来，美国一直寻求将中共国作为一个负责任的利益相关者纳入国际社会。美国领导人奉行的接触战略是基于这样的假设，即扩大与中共国的双边经济关系来促进美国的国家利益，引导中国共产党进行改变。这种接触策略常常对中共的侵犯人权、经济方面不法行为、扩张主义侵略和空洞的承诺等视而不见，也对中国共产党对反共产主义意识形态的渗透行为视而不见，正是这种意识形态导致了这些恶意行为。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07162200/0-blog-20210507-226k.png)图片来源：5 Numbers from April’s Employment Situation Report (thepoliticianspost.com)
 
-仅在过去一年，中共就违反了国际条约，废除了香港的公民自由权；继续压迫维吾尔族、藏族等少数民族；加强军事建设，进行日益激烈的挑衅，侵犯他国海上主权；参与致命的小规模冲突，在印度边境抢夺土地，并对不丹提出新的领土要求。此外，通过压制医生的声音和压制来自世界各地的医学质疑，中共让一场病毒的局部爆发演变成了全球疫情，迄今已造成近100万人死亡，并摧毁了全球经济。这场流行病暴露了美国供应链的各种弱点、美国过度依赖中共国的危险和需求……【4】
+Indeed招聘实验室的北美经济研究负责人尼克-邦克表示，“这可能是有史以来最令人失望的就业报告之一。劳动力市场需要获得820万个工作岗位，才能使我们回到大流行病前的状态，这还没有考虑到如果大流行病从未发生，本来会创造的工作岗位。如果每个月的就业增长不加快，都会使我们进一步落后”。
 
-期待斯特凡尼克议员在《中共国问题特别工作组》有更出色的发挥，希望唤醒更多美国要员，及早认清邪恶的中共，及早出手歼灭恶魔，全力以赴避免出现像印度、巴西遭受的疫情苦难，让世界回归安宁。
+而上个月底发布的新数据发现，2021年第一季度（1月1日至3月31日）出现了历史性的经济扩张。根据经济分析局的数据，美国国内生产总值在2021年第一季度的年增长率为6.4%。
 
-参考链接：
+尽管有积极的增长和乐观的预测，美联储仍坚持反对把利率从接近零的水平上调的立场。美联储主席杰罗姆-鲍威尔表示，在出现持续2%的通货膨胀和充分就业之前，不会加息。
 
-【1】[https://twitter.com/EliseStefanik/status/1390688191678660610](https://twitter.com/EliseStefanik/status/1390688191678660610)
+然而，曾在克林顿总统时期担任财政部长，在奥巴马总统时期担任国家经济委员会主任的拉里-萨默斯最近表示，“所有的迹象都表明通货膨胀开始爆发了”。
 
-【2】[https://www.gnews.org/zh-hans/1177258/](https://www.gnews.org/zh-hans/1177258/)
+财政部长珍妮特-耶伦 (Janet Yellen) 本周也表示，美联储可能需要提高利率以防止经济过热。她后来略微收回了这些言论，并表示，虽然她不认为会有通货膨胀问题，但如果有的话，可以指望美联储。
 
-【3】[https://en.wikipedia.org/wiki/United\_States\_Department\_of\_Defense\_China\_Task\_Force](https://en.wikipedia.org/wiki/United_States_Department_of_Defense_China_Task_Force)
+股票市场在提高利率言论出现后的大跌，说明在中共病毒的侵害下市场已成惊弓之鸟。中共病毒对经济的破坏是长期的，深远的。
 
-【4】[https://gop-foreignaffairs.house.gov/wp-content/uploads/2020/09/CHINA-TASK-FORCE-REPORT-FINAL-9.30.20.pdf](https://gop-foreignaffairs.house.gov/wp-content/uploads/2020/09/CHINA-TASK-FORCE-REPORT-FINAL-9.30.20.pdf)
+原文链接：
+
+[Economy falls far short of expectations with just 266,000 jobs in April, unemployment rate rises to 6.1% | Washington Examiner](https://www.washingtonexaminer.com/news/economy-short-expectations-april)
+
+
+
+编辑/校对/发稿：小鹿
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+
+
 
 0

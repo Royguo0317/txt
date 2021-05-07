@@ -1,55 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】统计显示：美国经济远远未达到预期
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1185084/)
+## 拜登政府支持放弃疫苗知识产权保护遭批评
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1185210/)
 
-作者：纽约香草山农场  四季
+俄罗斯莫斯科喀秋莎农场   银河
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/K.jpg)share.america.gov
+Newsmax 5月7日报道，前众议院议长纽特·金里奇 (Newt Gingrich)周四表示，中共将对拜登政府宣布支持在中共病毒疫苗问题上放弃知识产权保护感到“兴奋”。
 
+“这是给中国共产党人的一份巨大的礼物，他们拥有最大的生产设施。” 金里奇指出，“现在他们不用去偷了。”
 
+贸易代表戴琪 (Katherine Tai)在周三的一份声明中表示，做出这一决定是因为全球健康危机，以及“中共病毒疫情的特殊情况需要采取非常措施。”她表示，拜登政府坚信保护知识产权，但“为了结束这场疫情，支持放弃对中共病毒疫苗的这些保护。”
 
-Washington Examiner 5月7日报道，根据美国劳工统计局周五的报告，4月份的新增就业岗位远远低于预期，仅有26.6万个，失业率小幅升至6.1%。就业数据表明，从大流行病中的复苏并没有像人们希望的那样快速进行。 而之前预测者曾预计，经济将增加近100万个非农就业岗位，失业率将从3月份的6%下降到5.8%。
+戴琪指出，政府将继续通过私营部门和所有可能的合作伙伴加大努力，扩大疫苗的生产和分销，同时努力增加生产疫苗所需的原材料。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07162200/0-blog-20210507-226k.png)图片来源：5 Numbers from April’s Employment Situation Report (thepoliticianspost.com)
+金里奇认为此决定对中共这种盗取他国技术的流氓行为开了绿灯。他批评称，窃取技术是“典型的社会主义行为”，这就是为什么古巴和委内瑞拉等国家迅速衰落的原因。
 
-Indeed招聘实验室的北美经济研究负责人尼克-邦克表示，“这可能是有史以来最令人失望的就业报告之一。劳动力市场需要获得820万个工作岗位，才能使我们回到大流行病前的状态，这还没有考虑到如果大流行病从未发生，本来会创造的工作岗位。如果每个月的就业增长不加快，都会使我们进一步落后”。
+金里奇说，“当你从所有有生产力的人那里偷东西时，他们要么就不再有生产力，要么就搬走。”政府在疫苗专利上的举动也将削弱全球对新药的投资，并将“付出生命的代价。”他说，“在未来10年或20年里，人们将得不到他们需要的药物，因为他们决定窃取投资者和公司的资金。”
 
-而上个月底发布的新数据发现，2021年第一季度（1月1日至3月31日）出现了历史性的经济扩张。根据经济分析局的数据，美国国内生产总值在2021年第一季度的年增长率为6.4%。
+这位前发言人还公开反对脸书监督委员会支持该社交媒体网站对前总统唐纳德·川普媒体平台禁令的决定，称这一行动很“疯狂”。
 
-尽管有积极的增长和乐观的预测，美联储仍坚持反对把利率从接近零的水平上调的立场。美联储主席杰罗姆-鲍威尔表示，在出现持续2%的通货膨胀和充分就业之前，不会加息。
+巴西总统已经公开指出病毒为生物武器，剑指中共。现在国际社会摆脱疫情困境的唯一方法是向中共追责讨解药。疫苗无效，纠结于疫苗及所谓的疫苗知识产权只是政治欺骗和资本博弈的结果。
 
-然而，曾在克林顿总统时期担任财政部长，在奥巴马总统时期担任国家经济委员会主任的拉里-萨默斯最近表示，“所有的迹象都表明通货膨胀开始爆发了”。
+参考链接：
 
-财政部长珍妮特-耶伦 (Janet Yellen) 本周也表示，美联储可能需要提高利率以防止经济过热。她后来略微收回了这些言论，并表示，虽然她不认为会有通货膨胀问题，但如果有的话，可以指望美联储。
-
-股票市场在提高利率言论出现后的大跌，说明在中共病毒的侵害下市场已成惊弓之鸟。中共病毒对经济的破坏是长期的，深远的。
-
-原文链接：
-
-[Economy falls far short of expectations with just 266,000 jobs in April, unemployment rate rises to 6.1% | Washington Examiner](https://www.washingtonexaminer.com/news/economy-short-expectations-april)
-
-
-
-编辑/校对/发稿：小鹿
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
-
-
+[https://www.newsmax.com/newsfront/covid-19-technology-intellectual-property-theft/2021/05/06/id/1020394/](https://www.newsmax.com/newsfront/covid-19-technology-intellectual-property-theft/2021/05/06/id/1020394/)
 
 0

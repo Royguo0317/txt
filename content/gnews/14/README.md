@@ -1,45 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧盟批准欧中投资协议的努力在制裁后被搁置
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1185001/)
+## 美国要求台湾重返世界卫生组织大会
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1185066/)
 
-**原文: AFP**
-
-**编译: 越野小兔** **审核: pv0 **
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07155020/00123-1.jpeg)**图片: Johanna Geron/EFE via EPA**
-
-
-
-欧盟最高级别贸易官员周二表示，鉴于双方在针锋相对的制裁后外交关系恶化，欧盟已暂停与中国敲定大规模投资协议的努力。
-
-欧盟委员会副主席瓦尔迪斯**· **东布洛夫斯基斯（**Valdis Dombrovskis**）在接受法新社采访时表示，**“**从某种意义上说，我们现在已经暂停了欧盟委员会与该协议相关的政治外联活动。**”**
-
-他指出，**“**欧盟对中（共）国实施制裁，而中（共）国对欧盟包括对欧洲议会成员实施反制裁，很明显，当前形势不利于批准该协议。
-
-他补充道，该协议是否能得到批准** “**取决于欧中关系的大背景将如何发展**“**。
-
-令许多人出乎意料的是，得益于德国的最终推动，欧盟和中（共）国在去年**12**月底批准了一项重要的投资协定，结束了长达**7**年的艰苦谈判。
-
-该协定可以说是欧洲企业急需的对中国长期封闭经济的开放，但在**27**个成员国和欧洲议会中肯定会面临批准的困难。
-
-拉脱维亚前总理东布洛夫斯基斯负责牵头欧盟就该协议的审批程序，而此程序已遭到欧洲议会关键议员的反对。
-
-在三月份，欧盟以涉嫌在中国西部新疆地区侵犯人权为名，制裁了四名中（共）国官员。
-
-中（共）国随即回应，对欧洲政界人士、学者和研究机构实施了制裁。
+```
+新闻来源：今日新闻 意大利（today.it）
+发表日期：2021年5月7日
+翻译整理/简评：斩草要除根
+```
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07162339/oms-640_medium_medium.png)图片来源：网络图片
 
-**新闻来源: **
+【华盛顿】5月7日，美国要求恢复台湾在世界卫生大会（世卫组织立法机构，将于5月24日举行会议）上的存在。此举可能引发中国的反应。
 
-[EU efforts to ratify China investment deal on ice after sanctions](https://hongkongfp.com/2021/05/04/breaking-eu-suspends-efforts-to-ratify-china-investment-deal-as-diplomatic-relations-sour/)
+安东尼·布林肯（*Antony Blinken*）的发言人说：“没有合理的理由继续将台湾排除在这个论坛之外，美国要求世界卫生组织总干事像往年一样邀请台湾作为观察员参加”。
 
+#### 简评：
 
+**尽管台湾在新冠疫情种的表现得到了公共卫生专家的认可，但台湾仍然未能如愿加入世界卫生组织，这主要是来自中共国的阻力。北京一直向世卫组织施压，让台湾丧失了以观察员身份参与世界卫生大会的资格。现在美国公开支持和台湾的抗疫成果，再加上国际上对中共国态度的急转直下，相信此次台湾能否再次回归，我们应该保持积极的看法。**
+（本文仅代表译者个人观点，跟GNEWS平台无关。）
+
+**新闻原文链接：**🔗[Usa chiedono il ritorno di Taiwan nell’assemblea dell’Oms](https://www.ansa.it/sito/notizie/topnews/2021/05/07/usa-chiedono-il-ritorno-di-taiwan-nellassemblea-delloms_aae6d9db-fb26-412b-bcbe-95ff635b23d2.html)
 
 * * *
 
-**发布: 法国巴黎七星编辑组**
+***编辑整理/校对: **Ting Guo*
 
 0

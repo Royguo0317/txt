@@ -1,31 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国要求台湾重返世界卫生组织大会
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1185066/)
+## 鲍里斯•约翰逊（Boris Johnson）在第一次大考验中轻松获得成功
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1185205/)
 
-```
-新闻来源：今日新闻 意大利（today.it）
-发表日期：2021年5月7日
-翻译整理/简评：斩草要除根
-```
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07164956/Premierminister-Johnson-bei-Wahlkampfauftritt.jpg)
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07162339/oms-640_medium_medium.png)图片来源：网络图片
+资料来源：图片联盟/ dpa / PA Wire / Lindsey Parnaby
 
-【华盛顿】5月7日，美国要求恢复台湾在世界卫生大会（世卫组织立法机构，将于5月24日举行会议）上的存在。此举可能引发中国的反应。
+信息来源：世界报网络版 
+记者：斯蒂芬妮-博尔森（[**Stefanie Bolzen**](https://www.welt.de/autor/stefanie-bolzen/)）
+发布时间：2021年5月7日
+翻译 /整理/ 简评： Shuizhuyu
 
-安东尼·布林肯（*Antony Blinken*）的发言人说：“没有合理的理由继续将台湾排除在这个论坛之外，美国要求世界卫生组织总干事像往年一样邀请台湾作为观察员参加”。
 
-#### 简评：
 
-**尽管台湾在新冠疫情种的表现得到了公共卫生专家的认可，但台湾仍然未能如愿加入世界卫生组织，这主要是来自中共国的阻力。北京一直向世卫组织施压，让台湾丧失了以观察员身份参与世界卫生大会的资格。现在美国公开支持和台湾的抗疫成果，再加上国际上对中共国态度的急转直下，相信此次台湾能否再次回归，我们应该保持积极的看法。**
-（本文仅代表译者个人观点，跟GNEWS平台无关。）
+当地时间星期五早上七点后不久，时间到了。在英格兰东北部一个荒凉的沿海城市哈特尔普，选举委员会的负责人走在镜头前。她必须宣布的数字对工党在大厅里的代表是一记耳光，也是鲍里斯·约翰逊及其保守党的胜利。
 
-**新闻原文链接：**🔗[Usa chiedono il ritorno di Taiwan nell’assemblea dell’Oms](https://www.ansa.it/sito/notizie/topnews/2021/05/07/usa-chiedono-il-ritorno-di-taiwan-nellassemblea-delloms_aae6d9db-fb26-412b-bcbe-95ff635b23d2.html)
+经过57年不间断的工党统治，保守党候选人吉尔·莫蒂默（Jill Mortimer）以几乎是工党竞争对手两倍的选票赢得了议会席位。对于后者而言，更痛苦的是，保守党从原工党夺得增加16％的选票。
 
-* * *
+同时，“超级星期四”在英格兰和威尔士举行的地方选举的第一批结果也得出了。自从约翰逊总理在2019年12月大选中获胜和病毒大流行以来，这被视为对总理约翰逊的首次重大考验。从初步结果来看，约翰逊出色地通过了这次考验。
 
-***编辑整理/校对: **Ting Guo*
+到星期五下午，保守党有了许多新任务。约翰逊说：“作为政府，我们一直非常关注人民的重中之重-从大流行中恢复过来。”约翰逊星期五下午急忙前往哈特尔普（Hartlepool），他在竞选期间已经去过三次。 “我们做了英国脱欧，现在我们将要做我们打算要做的所有其他事情。”
+
+与2019年一样，约翰逊（Johnson）的“让我们完成任务”的信息再次在英国选民中流行。特别是因为他的政府成功地购买了针对冠状病毒的疫苗，并在创纪录的时间内将疫苗接种到了全国。不列颠所有英国人中有一半以上已经接种过疫苗，两者都超过了四分之一。每天新感染的数量仅是德国的十分之一。
+
+**简评：**** ****英国首相约翰逊经过了这次考验，**** ****让他可能能够取得中期选举的胜利。**** ****在英格兰这个小镇上的成功，给了他极大的信息。**** ****而他的成功却要归功于他及时的采购了疫苗，**** ****是英国的一半人口都接种了疫苗，**** ****也使感染人数显著下降。**** ****我们都知道病毒的真相，我们也知道疫苗的作用。**** ****而约翰逊却还是因为这个荒唐的疫苗得到了可能的继续执政的机会。**** ****极具滑稽意义。**** **
+
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+
+发表： Shuizhuyu
+
+🔗 [Grossbritannien-Boris-Johnson-gelingt-der-erste-grosse-Test](https://www.welt.de/politik/ausland/article230964697/Grossbritannien-Boris-Johnson-gelingt-der-erste-grosse-Test.html)
 
 0
