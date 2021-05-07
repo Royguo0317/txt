@@ -1,32 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【时事解析】似曾相识，底特律向说服别人接种疫苗者奖励50美元
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1182638/)
+## 【热点播报】G7共同声明，拟将载明支持台湾参与国际
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1182800/)
 
-作者：休斯顿星光农场 写作部 文顺
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-03-25-230524-1.jpg)
-底特律市市长迈克·杜根（Mike Duggan）周三表示，上周推出的 “好邻居 “计划将有助于提高本市的疫苗接种率。他认为，如果他们的朋友告诉他们去打疫苗，而不是专家告诉他们去打，人们就会更愿意去做。”他早些时候说：”没有人愿意听福奇（Fauci）博士、我或惠特默（Whitmer）州长再告诉他们一次，要接种疫苗。但他们会听从他们的邻居。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07004954/Screenshot-2021-05-06-233412.jpg)
-*图片来源：网络*
+作者：纽约香草山健身部 Ivy001
 
-“好邻居”计划细节显示，奖励金以预付万事达卡的形式发放，并且对被说服的打针人数没有限制。但如果收入超过600美元，则必须在纳税时填写W-9表格。另外，说服者需要为朋友或邻居预约首剂，并且每次预约行程不得超过三人。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
-目前，该市有30.7%的人至少打了一针，比该州落后约20%。此计划正在使用补助金进行扩展。
 
-“好邻居”计划与中共的“网格化管理“同出一辙，在利益的驱使下，促使亲友、邻里之间相互监督，形成利益共同体。该计划是否会导致邻里矛盾犹未可知，但疫苗的安全问题尚且存疑已是不争的事实。
 
-信息来源：
+美国国务院高官表示，G7外长会议联合声明将会明文记载，强力支持台湾参与世界卫生组织（WHO）等国际组织。因为台湾不仅有权利参与WHO等国际组织，还因为台湾所拥有的COVID—19的防疫经验，可对全世界做出贡献，“排除台湾参与是自取灭亡”。
 
-[https://www.google.ca/amp/s/www.fox2detroit.com/news/detroit-now-paying-50-to-anyone-who-convinces-someone-to-get-a-vaccine.amp](https://www.google.ca/amp/s/www.fox2detroit.com/news/detroit-now-paying-50-to-anyone-who-convinces-someone-to-get-a-vaccine.amp)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07011824/%E5%9B%BE%E7%89%8728-1.png)
 
-编辑/校对/发稿：Helen
+之前，台湾也曾经诉求以观察员身份参与世界卫生大会（WHA），日本和美国也表态支持，但因为中共国的强烈反对而无法参与。
 
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+这次，参加G7外长会议的国家有美国、英国、加拿大、法国、德国、意大利和日本，7个国家发的联合声明，当然更有效果。同时，这是让台湾参与到世界卫生组织（WHO）等国际组织，而不是之前的仅仅是以观察员身份参加世界卫生大会，这完全是前进了一大步。打个比方来说，以观察员身份参与，就是等于客人的身份去开个会；现在的参与到国际组织，就等于是已经在主人的位置中，有了一席之地。这对台湾来说，是一个重大的利好消息。
 
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+这表明了什么？这表明了七大工业国想要扶持台湾重返国际的态度，也表明了在台海问题上支持台湾的决心。同时，这也是对中共国在台海地区破坏区域和平、霸权扩张的一个警告。
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
+这释放出一个信号，美国和西方民主国家必须要成立联合阵线，共同应对中共国越来越猖狂的霸权行为。
 
+对中共国的合围已经开始形成，一切都已经开始。
+
+参考阅读：
+
+[https://www.cna.com.tw/news/firstnews/202105050153.aspx](https://www.cna.com.tw/news/firstnews/202105050153.aspx)
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -1,44 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 此地无银三百两——看民生银行回应监管
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1182220/)
+## 【时事解析】接近群体免疫的塞舌尔感染率激增而重新实施限制
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1182217/)
 
-**撰稿：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06225537/579.jpeg)
-据路透北京5月6日报道，中国民生银行周四晚间发布《中国民生银行关于上海证券交易所监管工作函的回复公告》，对监管工作函包含的三大类问题：信贷资产问题、金融投资资产问题和经营业绩问题进行了一一回应。
+作者：休斯顿星光农场 写作部 H.B
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-03-25-230524-1.jpg)
+据多家媒体报道，太平洋岛国塞舌尔尽管已有超过60%成年人接种了两剂新冠病毒疫苗，但感染率依然激增，现在该国被迫重新实施限制。
 
-上月曾有传言称，民生银行股份有限公司出现严重信用风险被监管部门接管。对此民生银行发布公告称，网传该行有关不实信息，郑重声明相关信息为恶意造谣，已经向公安机关报案并将追究相关主体的法律责任。
+该限制包括关闭所有学校，体育活动也取消了两周。同时禁止家庭间的互动往来和某些类型的个人聚会，以及提前关闭商店、酒吧和赌场。非必需的工作也被鼓励在家进行，当地时间23点重新实行宵禁。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06230024/Screenshot-2021-05-06-215935.jpg)
+*图片来源：zerohedge.com*
 
-1、 针对不良贷款率明显上升民生银行的解释是不存在单一客户的信贷资产信用减值损失达到最近一期经审计净利润的10%的情况。
+塞舌尔自今年1月开始接种疫苗以来，在短短四个月的时间里，从531个感染病例和1例死亡，达到目前6373个病例，死亡人数为146人，感染率上升了10倍以上，死亡率更加夸张。国家卫生部长Peggy Vidot在周二的新闻发布会上说：“尽管我们正在做出各种特殊的努力，但我国的Covid-19情况现在很严重，上周每天都有许多病例报告 “。
 
-2、 针对金融投资资产大额减值损失，民生银行的解释是2020年该行按规定对部分理财产品等表外资产进行了回表，并对其中的不良资产进行了严格风险分类，导致整体不良资产增加较多。
+目前虽然还很难判断是什么原因导致的塞舌尔病例激增，但是达特茅斯大学盖瑟尔医学院的临床医学教授丹尼尔-卢西在一篇博文中说，在2月份的检测中发现了中共病毒南非变异株B.1.351。对于南非变异株，科学家们一致认为，它可以逃避免疫，并使注射疫苗在预防感染方面减弱30%。
 
-3 、针对2020年该行理财产品等表外债权资产回表的不良资产达到123.8亿元人民币的问题，民生银行承认了由于受疫情及复杂经济形势影响，不良资产信用风险加速暴露，相应减值损失计提大幅增加。这句话的言中之意，就是为了将来信用债违约造成理财产品打破刚性兑付埋下伏笔。
+截至4月12日，塞舌尔59%的国民接种的是中共国药集团生产的疫苗，其余的是阿斯利康公司在印度授权生产的Covishield疫苗。路透社称，最近见到的一份文件显示，对于中国国药集团所提供的关于其中共病毒疫苗导致部分病患出现严重副作用风险的数据，令世界卫生组织(WHO)专家的“信心非常低”，但对其预防新冠疾病的能力总体上有信心。在看到塞舌尔的这组数据之后，不知世卫专家的信心还会剩下多少？
 
-4 、针对营收和业绩的大幅下滑，民生银行的解释和应对是降费让利支持实体经济和加大不良资产处置力度。而净利大幅下滑则因采取前瞻性的措施，加大了资产减值损失计提和不良资产处置力度，对利润产生一定的冲击。
+据独立报报道，欧盟药品监管机构周二宣布，他们已经开始对中共国药集团的一款疫苗——科兴疫苗（Sinovac）进行滚动审查，以评估其有效性和安全性，为在27国集团的使用做第一步准备工作。到目前为止，EMA已经批准了四种冠状病毒疫苗，并还在对其他三种疫苗进行滚动审查：德国生物技术公司CureVac开发的疫苗、美国开发的Novavax和俄罗斯的Sputnik V。
 
-面对未来的补救措施，民生银行的官方解释真的很官方： “2021年，该行将继续深入推进经营模式转变，促进业务经营回归本源，努力培育客户基础，大力发展基础业务，持续优化资产负债结构，业务转型成效将逐步显现，在稳健、合规的轨道上进一步实现健康、可持续发展。”
+在最近的一个视频圆桌会议中，5位被认为有资格发声的医学博士表态，他们每一个人都认为这些疫苗不是疫苗，而是旨在杀死人类的生物武器。这些高素质的医生不仅讨论了正在发生的问题的原因，还在最后给出了实用的建议，即我们现在可以做什么来保护自己，从而阻止全球主义者试图减少世界人口对人类发动这种攻击。
 
-通篇全文，民生银行给的解释基本等于没有解释，而从字里行间，恐怕民生银行真的遇到大问题了。针对四方面的核心原因给出的解释，背后共同的逻辑都是找借口、找理由，同时给隐藏的雷暴风险埋下伏笔。我们同时联系上个月的另一则新闻，看看其中的联系。
+资料来源：
 
-4月15日，墙内一则新闻引起关注：民生信托、民生财富接连暴雷，泛海卢志强能否脱困？
+[https://cn.reuters.com/article/who-sinopharm-0505-wedn-idCNKBS2CN02E](https://cn.reuters.com/article/who-sinopharm-0505-wedn-idCNKBS2CN02E)
 
-卢志强，曾任泛海控股股份有限公司董事长 ，现任中国民生银行副董事长。卢志强在业内有“资本猎手”之称。除集团房地产主业外，民生银行、民生证券、海通证券等金融机构这些年来都成为了卢志强的“猎物”，卢志强也因此近些年来在金融投资领域取得了丰硕的成果。但作为其创始的泛海集团，卢志强于2020年5月宣布退出董事会，这是否与今年关于泛海和卢志强本人的种种事件有高度关联。
+[https://www.zerohedge.com/covid-19/country-worlds-highest-vaccination-rate-orders-new-lockdown-covid-cases-surge](https://www.zerohedge.com/covid-19/country-worlds-highest-vaccination-rate-orders-new-lockdown-covid-cases-surge)
 
-为了转移公众对于泛海、民生和卢志强的焦点，网上自媒体立刻撇清发生债务违约的民生财富和民生信托，与民生银行没有关联。但唯一却不可否认的关联，就是卢志强所在的泛海集团，既是民生银行的股东，又是民生信托的股东，而卢志强本人，在退出泛海的董事会之后，还继续担任民生银行的副董事长。那么，通过民生银行，究竟有多少贷款或者理财资金进入到民生信托和民生财富下的项目中，这些债务违约的项目又有多少比例的资金来自于民生银行的支持？顺着资金的走向，恐怕再辟谣说没有关联，就太为牵强了。
+[https://www.bloombergquint.com/politics/world-s-most-vaccinated-nation-reintroduces-curbs-as-cases-surge](https://www.bloombergquint.com/politics/world-s-most-vaccinated-nation-reintroduces-curbs-as-cases-surge)
 
-文贵先生曾在直播中提到，民生银行正在遭遇可能会动摇中共金融体系的集中风险，而且民生银行的高管以及骨干人员有几千人被限制出境，这些情报都验证了最近关于民生系的风波。卢志强的背后是曾庆红，这些又都牵扯回目前中共高层的激烈内斗，而内斗首要的就是将对手的钱袋子拿下，习一尊手握兵权和绝对最高权力，只要他敢，就能名正言顺地以任何理由，查任何公司、办任何人。
+[https://rumble.com/vg3drt-urgent-5-doctors-agree-that-covid-19-injections-are-bioweapons-and-discuss-.html](https://rumble.com/vg3drt-urgent-5-doctors-agree-that-covid-19-injections-are-bioweapons-and-discuss-.html)
 
-相信民生所引发的风暴，会成为摧毁中共经济的第一块敲门砖。
+[https://www.independent.co.uk/news/eu-regulators-start-review-of-chinas-sinovac-vaccine-european-medicines-agency-china-sinovac-netherlands-brazil-b1841785.html](https://www.independent.co.uk/news/eu-regulators-start-review-of-chinas-sinovac-vaccine-european-medicines-agency-china-sinovac-netherlands-brazil-b1841785.html)
 
-（本文只代表作者观点，与Gnews平台无关。）
+编辑：文顺 校对/发稿：Helen
 
-**新闻来源：**
-1、[中国民生银行回应上交所监管函 详解信贷资产、金融投资和净利下降原因 | 路透 (reuters.com)](https://cn.reuters.com/article/mingsheng-bank-0506-thur-idCNKBS2CO01V?il=0)
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
 
-2、[民生信托、民生财富接连暴雷，泛海卢志强能否脱困？|泛海控股\_网易订阅 (163.com)](https://www.163.com/dy/article/G74T0DR70535O9M4.html)
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
 
-***校对发布**：文顾*
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
+
+
+
 
 0
