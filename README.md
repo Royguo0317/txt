@@ -12,138 +12,138 @@
 
 ---
 
-### [研究报告显示：CCP病毒死亡人数已接近690万](/content/gnews/1/README.md)
+### [【战友寄语】港共公安恶法后患无穷](/content/gnews/1/README.md)
+ ` 喜馬拉雅-粵語組`
+
+### [中共军机飞入台湾防空识别区的架次较以往增加了一倍](/content/gnews/2/README.md)
  ` 曹操`
 
-### [视频路德时评简讯（视频版）:深度解析塞林博士重磅声明(2021.5.4晚间路德社简讯之路博艾冠谈)](/content/gnews/2/README.md)
+### [【路德简报】5/6/2021晚：巴西总统博尔纳罗暗指新冠病毒就是中共的生物武器！](/content/gnews/3/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [【墙内热搜】大陆良知医生张煜 知乎挑战中共官僚](/content/gnews/4/README.md)
+ ` 纽约香草山MOS02`
+
+### [SEC主席发表评论后，数字货币应声下跌](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [全球疫苗接种率最高的国家由于中共病毒病例激增而再次下令封城](/content/gnews/6/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [【热点播报】巴西总统：新冠病毒可能是中共国发起的“生物战”](/content/gnews/7/README.md)
+ ` 纽约香草山MOS02`
+
+### [5/7/2021 财经快讯：拜登可能延续川普对中共投资禁令；中共谴责七国集团支持台湾的声明](/content/gnews/8/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [研究报告显示：CCP病毒死亡人数已接近690万](/content/gnews/9/README.md)
+ ` 曹操`
+
+### [视频路德时评简讯（视频版）:深度解析塞林博士重磅声明(2021.5.4晚间路德社简讯之路博艾冠谈)](/content/gnews/10/README.md)
  ` 路德社`
 
-### [英国监管机构证据证实女性的阿斯利康凝块风险高于男性](/content/gnews/3/README.md)
+### [英国监管机构证据证实女性的阿斯利康凝块风险高于男性](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [视频巴西总统博尔索纳将中共病毒疫情比作生物战](/content/gnews/4/README.md)
+### [视频巴西总统博尔索纳将中共病毒疫情比作生物战](/content/gnews/12/README.md)
  ` 秘密翻译组G-Translators`
 
-### [著名主持人塔克·卡尔森(Tucker Carlson)称美国每天30人在接种新冠疫苗后死亡](/content/gnews/5/README.md)
+### [著名主持人塔克·卡尔森(Tucker Carlson)称美国每天30人在接种新冠疫苗后死亡](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [德国卫生部长：豁免专利无助于解决疫苗问题](/content/gnews/6/README.md)
+### [德国卫生部长：豁免专利无助于解决疫苗问题](/content/gnews/14/README.md)
  ` 曹操`
 
-### [“掀锅盖”系列：20210503未来几周西方将有更多有良知的人们站出来联手灭共](/content/gnews/7/README.md)
+### [“掀锅盖”系列：20210503未来几周西方将有更多有良知的人们站出来联手灭共](/content/gnews/15/README.md)
  ` 《爆料贵语--掀郭盖》NZ`
 
-### [中共新冠状病毒核弹投向印度造成人间地狱-要求中共交出解药](/content/gnews/8/README.md)
+### [中共新冠状病毒核弹投向印度造成人间地狱-要求中共交出解药](/content/gnews/16/README.md)
  ` G-NEWS TAIWAN`
 
-### [【班农战斗室】926-927-928期简讯](/content/gnews/9/README.md)
+### [【班农战斗室】926-927-928期简讯](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [暂时豁免CCP病毒疫苗专利就能拯救世界吗？](/content/gnews/10/README.md)
+### [暂时豁免CCP病毒疫苗专利就能拯救世界吗？](/content/gnews/18/README.md)
  ` 曹操`
 
-### [视频埃莉斯·斯特法尼克：必须让中共付出代价，对世卫组织追责](/content/gnews/11/README.md)
+### [视频埃莉斯·斯特法尼克：必须让中共付出代价，对世卫组织追责](/content/gnews/19/README.md)
  ` 秘密翻译组G-Translators`
 
-### [中共军方金宁一团队的专利文献显示以开发病毒疫苗进行病毒功能性研究？](/content/gnews/12/README.md)
+### [中共军方金宁一团队的专利文献显示以开发病毒疫苗进行病毒功能性研究？](/content/gnews/20/README.md)
  ` JPHIMALAYA`
 
-### [巴西总统博尔索纳罗表示实验室制造的冠状病毒是用以发动生物战：报道&#8212;&#8211;博尔索纳罗经常淡化新冠肺炎大流行的严重程度](/content/gnews/13/README.md)
+### [巴西总统博尔索纳罗表示实验室制造的冠状病毒是用以发动生物战：报道&#8212;&#8211;博尔索纳罗经常淡化新冠肺炎大流行的严重程度](/content/gnews/21/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [2021年4月28日-5月1日郭先生盖特内容整理](/content/gnews/14/README.md)
+### [2021年4月28日-5月1日郭先生盖特内容整理](/content/gnews/22/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [菲律宾总统就接种国药疫苗进行道歉](/content/gnews/15/README.md)
+### [菲律宾总统就接种国药疫苗进行道歉](/content/gnews/23/README.md)
  ` 曹操`
 
-### [文贵先生5月5日直播答战友问精选](/content/gnews/16/README.md)
+### [文贵先生5月5日直播答战友问精选](/content/gnews/24/README.md)
  ` 澳喜农场`
 
-### [潘烈文接续掩盖病毒真相，对中共疫苗发表无关痛痒的言论](/content/gnews/17/README.md)
+### [潘烈文接续掩盖病毒真相，对中共疫苗发表无关痛痒的言论](/content/gnews/25/README.md)
  ` 曹操`
 
-### [尽管拍马屁，CCP的反应很糟糕](/content/gnews/18/README.md)
+### [尽管拍马屁，CCP的反应很糟糕](/content/gnews/26/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [“熊大”被揍 喜大普奔](/content/gnews/19/README.md)
+### [“熊大”被揍 喜大普奔](/content/gnews/27/README.md)
  ` 曹操`
 
-### [马斯克的星舰SN15测试成功后中共媒体嘲讽依旧](/content/gnews/20/README.md)
+### [马斯克的星舰SN15测试成功后中共媒体嘲讽依旧](/content/gnews/28/README.md)
  ` 澳喜农场`
 
-### [美国军方暗示，可能与中共发生军事冲突](/content/gnews/21/README.md)
+### [美国军方暗示，可能与中共发生军事冲突](/content/gnews/29/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【美国】宣传新冠疫苗接种的方式 游乐 啤酒甚至大麻](/content/gnews/22/README.md)
+### [【美国】宣传新冠疫苗接种的方式 游乐 啤酒甚至大麻](/content/gnews/30/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [澳洲将于月底前在印度完成撤侨](/content/gnews/23/README.md)
+### [澳洲将于月底前在印度完成撤侨](/content/gnews/31/README.md)
  ` 曹操`
 
-### [【新闻简评】这是天意吗?](/content/gnews/24/README.md)
+### [【新闻简评】这是天意吗?](/content/gnews/32/README.md)
  ` 日本东京樱花团`
 
-### [地球上大多数接种疫苗的国家，35%的新增病例仍来自完全接种疫苗的](/content/gnews/25/README.md)
+### [地球上大多数接种疫苗的国家，35%的新增病例仍来自完全接种疫苗的](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [法国参议院史无前例地一致通过支持台湾参与国际组织法案](/content/gnews/26/README.md)
+### [法国参议院史无前例地一致通过支持台湾参与国际组织法案](/content/gnews/34/README.md)
  ` JPHIMALAYA`
 
-### [【墙内新闻浅析】北京广电局责令爱奇艺暂停《青春有你3》后续节目录制](/content/gnews/27/README.md)
+### [【墙内新闻浅析】北京广电局责令爱奇艺暂停《青春有你3》后续节目录制](/content/gnews/35/README.md)
  ` Ru Wei`
 
-### [缅甸反军方抗争持续 非法抓捕不断](/content/gnews/28/README.md)
+### [缅甸反军方抗争持续 非法抓捕不断](/content/gnews/36/README.md)
  ` 曹操`
 
-### [【币圈】-数字货币动态-2021.5.07](/content/gnews/29/README.md)
+### [【币圈】-数字货币动态-2021.5.07](/content/gnews/37/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2021年5月06日秘翻快报【头条新闻】](/content/gnews/30/README.md)
+### [2021年5月06日秘翻快报【头条新闻】](/content/gnews/38/README.md)
  ` 秘密翻译组G-Translators`
 
-### [中共几十年的极权主义统治适得其反，现在它正处于不可逆转的衰落边缘](/content/gnews/31/README.md)
+### [中共几十年的极权主义统治适得其反，现在它正处于不可逆转的衰落边缘](/content/gnews/39/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【DC大中华时事】蔡玉玲 利君雅《铿锵集》“721谁主真相“获国际特赦组织人权新闻奖 2021.05.07](/content/gnews/32/README.md)
+### [【DC大中华时事】蔡玉玲 利君雅《铿锵集》“721谁主真相“获国际特赦组织人权新闻奖 2021.05.07](/content/gnews/40/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【各抒己见】小妹妹](/content/gnews/33/README.md)
+### [【各抒己见】小妹妹](/content/gnews/41/README.md)
  ` 日本东京樱花团`
 
-### [2021/05/05 班农采访（4）： 中共已到灭亡的时刻，习近平会是中共最后的皇帝](/content/gnews/34/README.md)
+### [2021/05/05 班农采访（4）： 中共已到灭亡的时刻，习近平会是中共最后的皇帝](/content/gnews/42/README.md)
  ` 倫敦英喜莊園 Himalaya UK`
 
-### [【各抒己见】疫情中日本人和中国人的态度](/content/gnews/35/README.md)
+### [【各抒己见】疫情中日本人和中国人的态度](/content/gnews/43/README.md)
  ` 日本东京樱花团`
 
-### [在法院下令后，埃尔姆赫斯特医院表示，它允许新冠病毒患者接受有争议的药物伊维菌素](/content/gnews/36/README.md)
+### [在法院下令后，埃尔姆赫斯特医院表示，它允许新冠病毒患者接受有争议的药物伊维菌素](/content/gnews/44/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美大学评估：全球因中共病毒死亡人数至少是官方数字的两倍](/content/gnews/37/README.md)
+### [美大学评估：全球因中共病毒死亡人数至少是官方数字的两倍](/content/gnews/45/README.md)
  ` JPHIMALAYA`
-
-### [【每日快报】巴西总统博索纳罗暗指冠状病毒由生物实验室制造，用以发动 &#8220;生物战&#8221; 2021.05.07](/content/gnews/38/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [2021/05/05 班农专访(1)： 闫博士在推动病毒真相上取得了巨大的成效](/content/gnews/39/README.md)
- ` 倫敦英喜莊園 Himalaya UK`
-
-### [【意大利】从5月10日开始接受预约为50岁以上老人接种疫苗](/content/gnews/40/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [日本决定将第三次紧急状态延长至5月31日，L452R突变对日本人更具威胁性](/content/gnews/41/README.md)
- ` JPHIMALAYA`
-
-### [【诗歌2篇】记录心旅](/content/gnews/42/README.md)
- ` 日本东京樱花团`
-
-### [视频【每日快讯】05/06/2021：中共恃强凌弱战狼外交整个社会处于疯狂状态随着房地产金融系统经济崩塌14亿中共统治下的奴隶会灾难重重对抗中共应该是美国跨党派的共识](/content/gnews/43/README.md)
- ` CANTONESE工作室`
-
-### [视频【音频】 中共生物超限战之印度变种病毒](/content/gnews/44/README.md)
- ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
-
-### [【路德简报】5/6/2021早：蓬佩奥称美国最大敌对势力就是中共！这是跨党派共识，无关两党政治](/content/gnews/45/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 

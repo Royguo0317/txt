@@ -1,21 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】05/06/2021：中共恃强凌弱战狼外交整个社会处于疯狂状态随着房地产金融系统经济崩塌14亿中共统治下的奴隶会灾难重重对抗中共应该是美国跨党派的共识
-` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1183313/)
+## 【各抒己见】疫情中日本人和中国人的态度
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1183464/)
 
-**制作：Cantonese工作室**
+作者：喜马拉雅东京樱花团 / 小小星
+
+![](https://lh3.googleusercontent.com/BhRIVX4-iKvqT-KP9FLGwpIpWX48PrJhqOD2ZoOzu6GL6cLcjwxB6EnV8AaTXjDo868IN4GdwNZdcQZEZQ7IZykvXaFirSa_YA17vhAoN41GAO2jovQVRXX2PUmIS2xIKbHqte4A)
+“爱睡觉的小狮子”战友制作
+
+我们都在全球泛滥的疫情中，艰难地面对着。已经一年多的时间了，疫情不但没有停止，这里那里还都有突然泛滥变异的出现。现在特别是印度每天几十万的感染和几千人死亡。日本在4月末也出现了又一波高潮，多地被迫陆续再次进入紧急状态，首都圈和大阪府的每日CCP病毒确诊数并无减少的迹象，日本民众生活得人心惶惶。
+
+爆料革命的战友紧紧跟随郭文贵先生，每天在向世界宣传病毒的真相。我们的闫丽梦博士三篇论文的发表，淋漓尽致地向世人阐述了冠状病毒的来源。就是CCP制造的，来自于CCP军方控制的研究室的产品。无奈世界各大媒体的选择性、回避性报道，使大多数世界各国人民还是不知道病毒来源的真相。
+
+在国内一旦谁感染了病毒，这个人就成了周围人攻击的对象。因为去集合了，又因为去商场了，为何不好好在家呆着……把一切怨恨都加给了这个可怜的人。在日本我周围的大家都很有爱，大家都知道一个道理，一旦不幸感染了病毒，你是受害者，是需要被关爱和帮助的，而不是阶级仇民族恨的。即使感染了病毒，患者也能以安静平和的心态去对待，没有墙内国人那种恐慌情绪。
+
+这种现象难到是我们国人的错吗？是我们国人有问题吗？当然不是。这是CCP七十年来从各个方面洗脑教育我们的结果。国人分不清事实真相是什么，到底是谁的责任。CCP就喜欢我们国人之间产生矛盾，互相仇恨。从共产党出生到大饥荒年到文化大革命到现在，CCP最擅长愚民教育的手段，充分利用人民之间的矛盾与仇恨来掩盖他们自己的罪恶事实。一切灾难都来自于CCP，这个靠人们的血肉来支撑自己的罪恶统治集团。我们新中国联邦人要站出来，告诉世人真相。消灭CCP！
 
 
 
-**播报:【文依】资料整理:【陆柒陆捌】【Ruby三鑫】【michelle喜乐】PPT制作:【米线】视频制作:【KEN】上传：【星星】【向阳6768】**
+*免责申明：本文只代表作者观点，与GNews网站无关。*
 
-摘要：
-
-1
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07044030/image7.1-1-1.png)
-2
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07044108/image7.2-1.png)
-3
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07044142/image7.3-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01093124/image0%E9%9D%A2.jpg)
-0
+*校对：喜马拉雅东京樱花团 / 東洋武士*
+*责任编辑：喜马拉雅东京樱花团 / 文小白*
+*发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01183841/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
++1
