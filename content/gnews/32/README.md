@@ -1,15 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年5月6日 文贵先生盖特 1
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1181010/)
+## 【以色列】内塔尼亚胡未能组建新联合政府
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1181112/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+```
+新闻来源：德国世界报 网络版
+发布时间：2021年5月5日
+翻译整理/ 简评： Shuizhuyu
+```
 
-5月6号：四个自信的中共．主动和澳大利亚脱钩．Facebook主动和川普总统脱钩．谁是最终的受益者呢？【[https://www.news.com.au/finance/economy/australian-economy/china-indefinitely-suspends-all-activities-under-the-chinaaustralia-strategic-economic-dialogue/news-story/28f3127a544a3caff409ab9fe0d90533](https://www.news.com.au/finance/economy/australian-economy/china-indefinitely-suspends-all-activities-under-the-chinaaustralia-strategic-economic-dialogue/news-story/28f3127a544a3caff409ab9fe0d90533) 中国“无限期暂停”中澳战略经济对话的所有活动】
 
-[【2021年5月6日】文贵先生盖特原文](https://gtv.org/getter/6093f97f37f7f73984c88da3)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06174708/1608680366.jpeg)图片来源：TAL SHAHAR / POOL
 
-**喜联盟Gnews编辑部**
+以色列总理本杰明·内塔尼亚胡未能组建新的联合政府。相应的截止日期在星期二午夜到期。现在，鲁汶·里夫林总统必须决定如何进行。
 
-0
+以色列右翼保守派总理本杰明·内塔尼亚胡（*Benjamin Netanyahu*）在第四届议会选举后的两年内未能组建政府。相应的期限在星期三晚上的午夜（当地时间）到期。
+
+这意味着内塔尼亚胡的对手有机会终结这位71岁球员的时代。他们是否会成功仍然是完全开放的。同时，以色列仍处于政治危机中。内塔尼亚胡最初将继续担任过渡政府首脑。
+
+内塔尼亚胡已经任职十二年，是该国历史上任期最长的总理。正在对他进行腐败程序。他拒绝了其中的指控。
+
+预计鲁汶·里夫林总统可以任命反对派领导人贾尔·拉皮德（*Jair Lapid*）于周三组建政府。 他未来的政党属于政治中心。 但是，据观察家说，对他来说，组建联盟也不容易。 不排除第五次新的选举。 如果这样的话，内塔尼亚胡也可能有机会再次当总理。
+
+#### **简评：**
+
+**以色列的政坛可能要有变化了，内塔尼亚胡未能组建政府，所以不得不放弃总理职务了。以色列的内政危机已经持续了一段时间了。执政12年也确实在民主国家是太长了。执政时间长了，不免有腐败嫌疑。现在就要看在野党是否能够在规定时间内组建政府，否则就要重新进行大选，那么也许这位 71岁的球员还有机会。我们会持续关注以色列的政坛变化。最重要的是要观察，新组建政府对中共的态度。 **
+（本文仅代表译者个人观点，跟GNEWS平台无关。）
+
+**新闻原文链接：**🔗[Israel: Netanjahu scheitert mit Regierungsbildung](https://www.welt.de/newsticker/dpa_nt/infoline_nt/brennpunkte_nt/article230883501/Israel-Netanjahu-scheitert-mit-Regierungsbildung.html)
+
+* * *
+
+***编辑整理/校对: **Ting Guo*
+
++1

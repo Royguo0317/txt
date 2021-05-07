@@ -1,32 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【英国】寻找冠状病毒变异的更多信息 为最高机密的Porton Down实验室提供新资金
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1180495/)
+## 【热点播报】岛国塞舌尔: 疫苗接种全球第一，病例激增，继续封锁
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1180822/)
 
-```
-新闻来源：意大利共和国报（La repubblica） 
-发表时间：2021年5月5日 
-翻译整理/简评：斩草要除根
-```
+作者：纽约香草山农场  四季
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06143942/v2-22c02d49d60d1441f72742c4b6ae0ffe_720w.jpg)图片来源：网络
-【**伦敦**】在针对新冠病毒的疫苗接种运动中击败欧洲所有国家之后，英国也将自己定位在应对最近几个月出现的以及未来可能出现的冠状病毒变异的最前沿。英国《金融时报》报道称，英国政府已额外拨款3000万英镑，用于资助对生化武器的最高机密军事研究室波顿唐（*Porton Down*）进行的研究，该实验室已从*2000*年初的投资中受益。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-政府担心，针对大流行的进展将被冠状病毒的新变种所阻碍，而迄今为止，使用的疫苗对这种变种仍然无效。因此，卫生部长马特·汉考克（*Matt Hancock*）在首相鲍里斯·约翰逊（*Boris Johnson*）的批准下决定加倍努力，首先是为战斗并可能赢得未来战斗所必需的资金，并且选择了波顿唐军事实验室，这是一家由国防部管理的非常秘密的科学研究所。
 
-迄今为止，在确定的四个变体中，即所谓的肯特变体，巴西，南非和印度变体中，前两个已经由英国波顿唐（*Porton Down*）科学家进行了研究，《城市报》写道，并且有信心到目前为止使用的疫苗至少足以有效避免住院。南非变种仍在研究中，印度变种似乎并不构成更具侵略性的威胁。但教训是，英国考虑了未来：对新冠病毒的挑战是一项长期事业，为了赢得一场战斗或一场战争，其他国家可能会再次出现。但是在伦敦已经做好准备来应对。
 
-#### 简评：
+零对冲5月6日报道， 世界上疫苗接种率最高的国家不是以色列，而是印度洋岛国塞舌尔，其62%以上的成年人口已经完成了对疫苗的“完全接种”，然而，尽管这个岛国正在接近群体免疫的门槛，但由于COVID-19病例激增，该国本周被迫重新实施封锁。
 
-**由此我们不难看出，英国政府对已这个新冠病毒引起足够的重视。首先，使用的是对生化武器的最高机密军事研究室。这也就可以变相的理解为，新冠病毒属于生化武器的范围之内。另外，他们已把新冠病毒当成是一场战争来对待，这其中奥妙就不言而喻了。很高兴看到，从一个国家层面能付出这样的行动，也很期待更多关于新冠病毒的真相，能被更有权威的科学领域解读出来。**
-（本文仅代表译者个人观点，跟GNEWS平台无关。）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06152517/1-seychelles-1.jpg)图片来源：[ZeroHedge](https://www.zerohedge.com/covid-19/country-worlds-highest-vaccination-rate-orders-new-lockdown-covid-cases-surge)
 
-**新闻原文链接：**
-🔗[Coronavirus, il Regno Unito dà la caccia alle varianti: nuovi fondi al laboratorio top secret di Porton Down](https://www.repubblica.it/esteri/2021/05/05/news/coronavirus_il_regno_unito_da_la_caccia_alle_varianti_nuovi_fondi_al_laboratorio_top_secret_di_porton_down-299568044/)
+塞舌尔全国所有学校都已经关闭，体育活动也被取消两周。 措施还包括禁止家庭之间的互动和某些类型的个人聚会，以及提早关闭商店、酒吧和赌场。非必要的工人也被鼓励在家工作，同时当地时间23点的宵禁也被恢复了。
 
-* * *
+目前，塞舌尔有107万个活跃的Covid病例，其中三分之一是在注射了两剂阿斯利康或中（共）国国药集团的疫苗的人中发现的。
 
-***编辑整理/校对: **Ting Guo*
+塞舌尔于今年1月就迅速展开了疫苗接种计划，使用了阿联酋捐赠的中（共）国国药集团的疫苗。它还收到了来自印度的阿斯利康疫苗。根据塞舌尔卫生部的数据，当该国总统韦尔-拉姆卡拉万（Wavel Ramkalawan）首次宣布该国的疫苗接种活动时，塞舌尔总共只记录了531个冠状病毒病例和一个死亡病例。但在接种疫苗的四个月的时间里，这个数字已经上升了10倍多，达到6373例，共有146人死亡。而塞舌尔并不孤单，智利是另一个严重依赖中共疫苗的国家，尽管它的接种活动很成功，但其病例也在增加。
 
-0
+测试已经检测到南非的变异株在岛屿上传播。科学家们认为，这种变异毒株可以逃避免疫，并使注射的疫苗在预防感染方面减弱30%。匈牙利在中共疫苗尚未得到欧盟批准前就使用了该疫苗，其Covid 19 的死亡率位居世界第一。为什么大规模的疫苗接种不但没有阻止病毒传播，还使其感染率和死亡率大幅上升？事实证明了中共的疫苗是靠不住的。
+
+原文链接：
+
+[Country With World’s Highest Vaccination Rate Orders New Lockdown As COVID Cases Surge | ZeroHedge](https://www.zerohedge.com/covid-19/country-worlds-highest-vaccination-rate-orders-new-lockdown-covid-cases-surge)
+
+
+
+编辑/校对/发稿：小鹿
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+
+
+
++1
