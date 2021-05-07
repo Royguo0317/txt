@@ -1,37 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 鲍里斯•约翰逊（Boris Johnson）在第一次大考验中轻松获得成功
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1185205/)
+## 国务卿安东尼·布林肯谈中（共）国带来的威胁
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1185361/)
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07164956/Premierminister-Johnson-bei-Wahlkampfauftritt.jpg)
+**翻译&字幕: 舒凡**
 
-
-资料来源：图片联盟/ dpa / PA Wire / Lindsey Parnaby
-
-信息来源：世界报网络版 
-记者：斯蒂芬妮-博尔森（[**Stefanie Bolzen**](https://www.welt.de/autor/stefanie-bolzen/)）
-发布时间：2021年5月7日
-翻译 /整理/ 简评： Shuizhuyu
+**校对: pv0**
 
 
+**视频来源: CBS News**
 
-当地时间星期五早上七点后不久，时间到了。在英格兰东北部一个荒凉的沿海城市哈特尔普，选举委员会的负责人走在镜头前。她必须宣布的数字对工党在大厅里的代表是一记耳光，也是鲍里斯·约翰逊及其保守党的胜利。
 
-经过57年不间断的工党统治，保守党候选人吉尔·莫蒂默（Jill Mortimer）以几乎是工党竞争对手两倍的选票赢得了议会席位。对于后者而言，更痛苦的是，保守党从原工党夺得增加16％的选票。
+《 CBS晚间新闻》的主播兼主编诺拉·奥唐奈（Norah O’Donnell）在《 60分钟》节目中对国务卿安东尼·布林肯进行了一次话题涉及比较广泛的采访。这次的采访内容主要涉及了中（共）国近期的频繁军事扰台、香港以及新疆集中营等问题。
 
-同时，“超级星期四”在英格兰和威尔士举行的地方选举的第一批结果也得出了。自从约翰逊总理在2019年12月大选中获胜和病毒大流行以来，这被视为对总理约翰逊的首次重大考验。从初步结果来看，约翰逊出色地通过了这次考验。
 
-到星期五下午，保守党有了许多新任务。约翰逊说：“作为政府，我们一直非常关注人民的重中之重-从大流行中恢复过来。”约翰逊星期五下午急忙前往哈特尔普（Hartlepool），他在竞选期间已经去过三次。 “我们做了英国脱欧，现在我们将要做我们打算要做的所有其他事情。”
 
-与2019年一样，约翰逊（Johnson）的“让我们完成任务”的信息再次在英国选民中流行。特别是因为他的政府成功地购买了针对冠状病毒的疫苗，并在创纪录的时间内将疫苗接种到了全国。不列颠所有英国人中有一半以上已经接种过疫苗，两者都超过了四分之一。每天新感染的数量仅是德国的十分之一。
+**新闻来源: **
 
-**简评：**** ****英国首相约翰逊经过了这次考验，**** ****让他可能能够取得中期选举的胜利。**** ****在英格兰这个小镇上的成功，给了他极大的信息。**** ****而他的成功却要归功于他及时的采购了疫苗，**** ****是英国的一半人口都接种了疫苗，**** ****也使感染人数显著下降。**** ****我们都知道病毒的真相，我们也知道疫苗的作用。**** ****而约翰逊却还是因为这个荒唐的疫苗得到了可能的继续执政的机会。**** ****极具滑稽意义。**** **
+[Secretary of State Antony Blinken on the threat posed by China](https://www.cbsnews.com/news/antony-blinken-60-minutes-2021-05-02/)
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
 
-发表： Shuizhuyu
 
-🔗 [Grossbritannien-Boris-Johnson-gelingt-der-erste-grosse-Test](https://www.welt.de/politik/ausland/article230964697/Grossbritannien-Boris-Johnson-gelingt-der-erste-grosse-Test.html)
+
+
+* * *
+
+**发布: 法国巴黎七星编辑组**
 
 0
