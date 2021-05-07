@@ -1,42 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻速递】法国参议院以压倒性票数通过支持台湾参与国际组织法案
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1182775/)
+## 喜币Himalay Coin喜美元Himalay Dollar无国介化财富紧紧跟随
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1182944/)
 
-作者：休斯顿星光农场 写作部 文顺
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-03-25-230524-1.jpg)
-**5****月****6****日，法国参议院以压倒性票数通过****“****台湾参与国际组织工作法案****“****，支持台湾参与多个国际组织。尽管该表决结果可能会****“****激怒****“****北京。**
+台湾宝岛农场 Amitofu
 
-据法广网报道，法国参议院周四以304票赞成、19票弃权的结果，通过”台湾参与国际组织工作法案”，这项跨党派议案支持台湾参与多个国际组织的工作。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07012538/Screenshot-2021-05-07-002449.jpg)
-*图片来源：网易*
-
-有关的法案在参议院和台湾之间的信息交流小组的RDPI主席艾伦·理查德（Alain Richard）和独立人士乔·盖尔（Joël Guerriau）的支持下，由多方参议员共同签署。这项不具约束性的法案希望法国继续为台湾参加世界卫生大会、国际民用航空组织大会、《联合国气候变化公约》甚至国际刑警组织等多个国际组织做出努力。
-
-曾经担任法国国防部长的阿兰·理查德表示：“为了有利于多边主义和这些机构可以更好地运作，以及台湾可以为国际社会提供的服务，台湾最好能够更多地参与。”
-
-参议院多数发言者都强调，在新冠病毒大流行的背景下台湾参与世卫组织工作的重要性。议员勒莫因表示：“台湾做出的贡献和经验分享对整个国际社会至关重要。”生态学家冈塔德（Guillaume Gontard）也表示，”自从新冠病毒蔓延以来，在台湾2300万人中仅有12例死亡，台湾在控制疫情上树立了一个榜样”。
-
-据中央社报道，行政院长苏贞昌接受媒体时表示，对于国际的肯定很感谢也会更努力，希望世界能够让台湾就所做的成绩提出贡献，让世界更好。行政院发言人罗秉成稍早接受中央社记者访问时说，非常感谢欧美各主要国家长年以来对台湾的坚定支持，也感谢驻法代表处的努力，这不仅代表台湾的医疗体系、防疫作为及表现深受各国肯定，也代表台湾在各领域发展的国际能见度已有显著提升。
-
-罗秉成表示，中共无视台湾主权独立，不断透过各种手段不当干预、侵扰台湾参与国际组织，意图孤立台湾。但事实证明，台湾不论在自由民主法治的发展，或是在科学技术、公共卫生、绿色能源，以及司法刑事等领域的能力与成绩，都已被国际看见，才能获得法国跨党派参议员无异议通过。
-
-至截稿，中共未发表任何官方声明。
-
-信息来源：
-
-[法国参议院压倒性多数通过支持台湾参与国际组织法案 (rfi.fr)](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210506-%E6%B3%95%E5%9B%BD%E5%8F%82%E8%AE%AE%E9%99%A2%E5%8E%8B%E5%80%92%E6%80%A7%E5%A4%9A%E6%95%B0%E9%80%9A%E8%BF%87%E6%94%AF%E6%8C%81%E5%8F%B0%E6%B9%BE%E5%8F%82%E4%B8%8E%E5%9B%BD%E9%99%85%E7%BB%84%E7%BB%87%E6%B3%95%E6%A1%88)
-
-[法參議院挺台參與國際 蘇貞昌：很感謝也會更努力 | 政治 | 中央社 CNA](https://www.cna.com.tw/news/aipl/202105070080.aspx)
-
-编辑/校对/发稿：Helen
-
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
-
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
+Himalay exchage、Himalay Coin、Himalay Dollar、Himalay pay是革命性的金融经济生态，由文贵先生用毕生的政治、经济、金融的实务经验和大型基金公司对文贵先生的信用积累而成，其所设计的无介化喜金融生态圈，更得到美联储FED主要股东摩根先生的支持，同时摩根先生也是长期支持着G系列的各项发展，使喜金融生态圈具有美元、黄金、实体的特性，是将来全人类财富的诺亚方舟。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07021309/quorum-1-400x225.png)
+- Himalay Federal Reserve System喜联储拥有定价权、货币权和流通权，将来可发行相对应的喜英镑、喜加币、喜澳币、喜法郎、喜日圆、喜欧元…
+- Himalay Coin根据市场需求有浮动的功能，Himalay Coin的锚定物为百分之二十的黄金备付，是所有虚拟加密货币所不能相比的价值
+- 1 Himalay Dollar都能够兑换为1美元; Himalay Coin最终目成为CBDC央行货币
 
 
-0
+**喜金融生态圈拥有原创者文贵先生所重视的特性**
+
+1. 无介化交易金融生态圈，在世界各地随时随地瞬间转移财富，每周7天24小时交易服务，更重要的是不再被政府剪羊毛垄断财富
+
+2. 全世界最干净合法安全可靠的金融生态圈
+
+3. 庞大不断投入的研发团队（J.P. Morgan世界级金融团队）
+
+4.越来越严密的区块链加密技术 ( ConsenSys Quorum架构 )
+
+**方便快速支付和财富紧紧跟随持有人(财富丢失保证)**
+
+当QE大量印制美元在未来产生20万亿的债务时、美国经济崩盘时、2022年美国政治权力转移时、共产党被灭时、区域发生局部战争等事件发生时，在世界各地的财富将寻找最安全可靠不被剥夺财富的HCoin、HDollar，财富不仅能紧密跟随持有人，更能在世界各地瞬间移转财富，合法保障财富，方便快速支付和财富紧紧跟随持有人。
+
+**庞大不断投入的研发团队和越来越严密的区块链加密技术**
+
+喜金融生态圈拥有庞大不断投入的研发团队和越来越严密的区块链加密技术，以太坊Ethereum领域的金融和区块链开发软件领导者ConsenSys，ConsenSys加速分布式金融（DeFi）和Web3应用程序在以太坊上与企业区块链基础设施的融合。投资者包含全球金融服务公司摩根大通（J.P. Morgan）、万事达（Mastercard）、瑞银集团（UBS AG）、Protocol Labs、Maker 基金会、分布式资本、The LAO、Alameda Research、CMT Digital 以及大湾区共同家园发展基金（Greater Bay Area Homeland Development Fund）、Quotidian Ventures和Liberty City Ventures。同时ConsenSys与摩根大通（J.P. Morgan）Quorum合作，加深其对企业协议生态系统的承诺和竞争地位。Quorum提供支持公有链及私有链的网络，并支持第2层以太坊网络促进IPFS，Filecoin等互补协议。(以太坊Ethereum为基础对ERC-20标准具有相后兼容性的ERC-1404代币)
+
+笔者认为文贵先生用一生信用和人脉所的设计的喜金融生态圈Himalay exchage、Himalay Coin、Himalay Dollar、Himalay pay是集合中央银行、金融机构、(VISA、MASTER等)支付服务商和Paypal钱包服务等加总的基本架构，同时具有全世界最安全可靠、不断提升的区块链加密技术，并对客户Himalay Coin、Himalay Dollar有信用积分，大大降低银行的风险和不确定性，随时随地方便快速的支付和财富紧紧跟随持有人，不仅仅是新中国联邦战友的诺亚方舟，更重要的是喜金融生态圈是全世界正道主义和有坚定信仰者在政治经济上力量结合的新型生态圈，全人类财富最佳去处。本文仅代表个人立场
+
+感谢文贵先生和摩根先生团队让新中国联邦战友们站在巨人的肩膀
+
+資料來源:文贵先生直播
+
+[ConsenSys Raises $65 Million to Accelerate Convergence Of Traditional And Decentralized Finance](https://consensys.net/blog/press-release/consensys-raises-65-million-to-accelerate-convergence-of-traditional-and-decentralized-finance/)
+
+[ConsenSys Acquires J.P. Morgan’s Quorum to Advance Enterprise Blockchain Adoption](https://consensys.net/blog/news/consensys-acquires-jpm-quorum/)
+
+审核:Athena雅典娜 发布:Amitofu
+
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+
++1
