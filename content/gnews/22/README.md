@@ -1,65 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧中关系恶化 欧盟暂停批准投资协议
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1183275/)
+## 【意大利】从5月10日开始接受预约为50岁以上老人接种疫苗
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1183094/)
 
-新闻来源：《香港自由新闻》| 作者：AFP | 发布时间：2021年5月4日
-翻译/简评：新街口 | 校对/审核：万人往 | Page：Daoiii
+```
+新闻来源：今日新闻 意大利（today.it）
+发表时间：2021年5月6日
+翻译整理：Tito
+```
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ke22X8nkGtR18/images/1c5327f8-726d-4a33-978b-b58572145935.png?asset_id=0bb6636c-18a9-4120-9d29-1155844286e2&amp;img_etag=%22e122e958e753b909e764d4b10df4fd4c%22&amp;size=1024)](https://spark.adobe.com/page/ke22X8nkGtR18/images/1c5327f8-726d-4a33-978b-b58572145935.png?asset_id=0bb6636c-18a9-4120-9d29-1155844286e2&amp;img_etag=%22e122e958e753b909e764d4b10df4fd4c%22&amp;size=1024)资料照片：欧盟委员会副主席杜姆布罗夫斯基斯
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07044843/x5943127_1629_vaccino.jpg.pagespeed.ic_.HcpBkXEz-z.jpg)图片来源：ilmessaggero
+从5月10日星期一开始，将在整个意大利开放50岁以上人群的疫苗接种预约。这是负责紧急情况的专员弗朗切斯科·保罗·菲格洛罗（*Francesco Paolo Figliuolo*）宣布的指令，他下令开始为所有1971年以前出生的人预约注射新冠（*Covid-19*）疫苗。
 
-**简评：**
+一些地区已经开始行动起来。正如今天所宣布的，在拉齐奥，56岁以上的人已经可以预订，而从5月8日星期六午夜开始，将开始为55-54岁年龄组（即1966年和1967年出生的人）预订。拉齐奥地区卫生委员阿莱西奥·达马托（*Alessio D’Amato*）在*Rai Uno*（意大利的一个电视频道）的《Oggi è un altro giorno》节目中说：”我们将在7月前为30岁的人接种疫苗，8月前将完成80%的目标人群。
 
-**本文介绍了因新疆种族灭绝问题，导致了欧盟与中共的相互制裁，在外交关系急剧恶化的情况下，欧盟终止了与中共国达成大规模投资协议的努力。**
+在西西里岛，根据大区主席内洛·穆斯梅奇（*Nello Musumeci*）下午签署的命令，50-59岁的人（1962年至1971年出生）要进行预订：同样为50岁以上、没有疾病的人提供阿斯利康（*AstraZeneca*）疫苗。
 
-**最近几年，中共战狼外交四处出击，尤其是在中共病毒起源和新疆种族灭绝问题上，不断地用威胁和恐吓的方式回应西方国家对中共提出的合理外交要求。**
+伦巴第今天上午宣布，5月10日（星期一）开始为50-59岁的公民范围预订疫苗。
 
-**例如从2020年开始，澳大利亚因为要求调查中共病毒起源，不但受到了中共国内媒体和外交部战狼的言语攻击，还受到了持续的贸易制裁；而在3月的阿拉斯加中美会谈中，杨洁篪16分钟谩骂式的发言则把中共的丑恶战狼外交表演推上了一个高潮。**
+威尼托大区也准备在未来几天为50至59岁的人群接种疫苗，正如卫生专员曼努埃拉·兰萨林（*Manuela Lanzarin*）所宣布的。60-69岁的人现在正被关注中，其中30%的人已经注射了至少一剂。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ke22X8nkGtR18/images/b091c458-56b2-4d74-887f-8f5c99a8153b.jpg?asset_id=8659edf2-7fdb-4dce-a848-bf58305e9e23&amp;img_etag=%22af8499fe22c7118807d24abf934f48bd%22&amp;size=1024)](https://spark.adobe.com/page/ke22X8nkGtR18/images/b091c458-56b2-4d74-887f-8f5c99a8153b.jpg?asset_id=8659edf2-7fdb-4dce-a848-bf58305e9e23&amp;img_etag=%22af8499fe22c7118807d24abf934f48bd%22&amp;size=1024)
+#### 简评：
 
-**但中共的这些威胁和恐吓并未让西方国家屈服，反而遭到了全世界民主国家团结一致地围堵。新近形成的美、日、印、澳四国联盟已经对中共国形成了战略包围；本月召开的G7会议邀请了亚太地区除中共国之外的所有重要国家：澳大利亚、印度、日本、韩国、和东盟组织，而新疆种族灭绝和中共病毒则是此次会议的重要议题之一。**
+**意大利全国性疫苗的推广，让意大利人忘记了追查病毒的来源。意大利政府本身也并没有打算为死去的国民追责，政治的无耻再一次展露无遗。政客心里是没有国家这个概念的，他们心中有的无非就是利益。不同国家的政客，通过互相出卖自己国家的国民，换取自己的政治势力和利益。而对于国民，病毒疫苗已经成为一种精神麻药。大量的民众目前的希望，是幻想注射疫苗后，可以恢复到往日的平静。不过注射疫苗后依然需要带口罩，和不断的疫苗事故，让注射疫苗的人们对未来又产生了一丝阴影。**
 
-**中共的战狼外交实质是理屈词穷的一种表现，也是用来欺骗、忽悠国内百姓的一种手段。而真实情况是，战狼外交在国际社会中早已四处碰壁。如郭先生4月10日盖特所说：“共产党的战狼外交已经迅速地变成了疯狗外交……人人喊打。”**
+**政客一直在欺骗，民众一直在幻想，现实很残酷，不经过这一段疫苗的推广，和注射疫苗后的无效，人们是不会觉醒的。觉醒，需要代价，意大利，还能承受多久。**
+（本文仅代表译者个人观点，跟GNEWS平台无关。）
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ke22X8nkGtR18/images/9bba3021-8a47-49ae-a682-a030f750b1c9.jpg?asset_id=3244cb94-11b7-46dc-9f29-7d44fce4ddc8&amp;img_etag=%2230ab00c43a40024ca662521b242e836b%22&amp;size=1024)](https://spark.adobe.com/page/ke22X8nkGtR18/images/9bba3021-8a47-49ae-a682-a030f750b1c9.jpg?asset_id=3244cb94-11b7-46dc-9f29-7d44fce4ddc8&amp;img_etag=%2230ab00c43a40024ca662521b242e836b%22&amp;size=1024)
+**新闻原文链接：**
+🔗[Vaccini per gli over 50, l’Italia apre le prenotazioni dal 10 maggio](https://www.today.it/attualita/vaccino-over-50-prenotazioni-10-maggio.html)
 
-**原文翻译：**
+* * *
 
-## 外交关系恶化，欧盟暂停批准中共国投资协议的努力
-
-**欧盟最高贸易官员周二表示，鉴于双方在针锋相对的相互制裁后，外交关系急剧恶化，欧盟已暂停与中共国达成大规模投资协议的努力。**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/ke22X8nkGtR18/images/8bc05f3a-df6c-4847-abb7-fa1e7c52624f.png?asset_id=1f320fad-9cf2-42ad-8772-450e698cc809&amp;img_etag=%22b3ac26cbaf42e6e3109505b3909683bb%22&amp;size=1024)](https://spark.adobe.com/page/ke22X8nkGtR18/images/8bc05f3a-df6c-4847-abb7-fa1e7c52624f.png?asset_id=1f320fad-9cf2-42ad-8772-450e698cc809&amp;img_etag=%22b3ac26cbaf42e6e3109505b3909683bb%22&amp;size=1024)档案照片：欧盟
-
-欧盟执行副总裁Valdis Dombrovskis在接受法新社采访时说：“从某种意义上说，我们现在已经暂停了……来自欧盟委员会方面的政治外联活动。”
-
-Dombrovskis说：“很显然，在目前的情况下，欧盟实施了针对中共国的制裁，中共国也实施了包括针对欧洲议会议员在内的反制裁，这不利于批准该协议。”
-
-他补充说，试图批准该协议“将真正取决于更广泛的中欧关系将如何发展”。
-
-令许多人感到惊讶的是，在德国的最终推动下，欧盟和中共国在12月底批准了一项重大投资协定，从而结束了长达7年艰苦的谈判。
-
-这项协议一直被认为是欧洲公司向中共国长期封闭的经济开放的必要举措，但它肯定会在27个成员国以及欧洲议会中面临艰难的批准。
-
-拉脱维亚前总理Dombrovskis负责牵头欧盟的批准程序，但该协议已经受到了关键欧洲议会议员的反对。
-
-3月份，四名中共国官员因涉嫌在中国偏远的西部新疆地区侵犯人权，受到了欧盟的制裁。
-
-作为回应，中共国也对欧洲的政客、学者和研究团体实施了制裁。
-
-🔗[原文链接](https://hongkongfp.com/2021/05/04/breaking-eu-suspends-efforts-to-ratify-china-investment-deal-as-diplomatic-relations-sour/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】Edited by：【Himalaya London Club UK】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/ke22X8nkGtR18/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/ke22X8nkGtR18/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
-
-
+***编辑整理/校对: **Ting Guo*
 
 0
