@@ -1,33 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疫苗专利保护议题 是政治表演而没有实质
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1185497/)
+## 疫情前线-墨西哥可能在6月生产俄罗斯人造卫星疫苗
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1185582/)
 
-```
-新闻来源：德国世界报 网络版
-记者：克莱门斯·维尔金（Clemens Wergin）
-发表时间：2021年5月7日
-```
+**整理撰稿：蓝精灵**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07182524/581.jpg)
+墨西哥卫生部周五表示，随着政府审查其紧急使用授权，俄罗斯的人造卫星V- COVID-19疫苗很可能在6月的最后一周开始在墨西哥生产。
 
+卫生部在一份声明中说，来自卫生安全机构Cofepris的专家将前往莫斯科，星期五收到了参观制造人造卫星V疫苗的俄罗斯Gamaleya研究所的邀请。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07180734/57455535_101.jpg)图片来源：德国之声
+俄罗斯开发的疫苗的最终包装将在墨西哥Birmex国家生物实验室进行，本周早些时候对该实验室进行了检查，验证了实验室的健康和安全状况。
 
-美国是第一个支持病毒疫苗专利保护开放的领先工业国。这使欧盟面临采取行动的压力。但是，从宏伟的道德姿态后面看，发展中国家几乎不会受益。另一方面，潜在的损害是巨大的。
+Cofepris期望在获得紧急使用授权之前，于5月下旬对疫苗进行必要的测试。
 
-去年10月，印度和南非提出了一项在世界范围内暂停病毒疫苗专利权的提案。现在，有了美国，第一个主要的工业国家就跃上了潮流。拜登政府已宣布将支持专利保护的放开。迄今为止，许多公司已经开发出疫苗的国家都拒绝了这一步骤。为了保护自己的行业。
+如果获得预期批准，Sputnik V将成为继中国的CanSino（康希诺）和英国的阿斯利康疫苗之后在墨西哥大规模生产的第三种COVID-19疫苗。
 
-但是，既然美国已经建立了相当大的道德压力并承担了领导角色，其他国家则面临采取行动的压力。欧盟委员会主席乌尔苏拉·冯·德·莱恩（Ursula von der Leyen）已经宣布，包括一些疫苗生产商在内的国家协会也愿意对欧洲公司的专利权进行干预。
+声明补充说，Cofepris还将评估一剂Sputnik Light疫苗，包括初步的三期试验。
 
-#### **简评：**
+**编者简评：**
+小资料补充：2020年11月7日，中国康希诺疫苗宣布启动在墨西哥开发重组疫苗的第三期临床试验。墨西哥政府于10月就批准了这项研究。很多康希诺自己发布的消息中都显示类似这样的语句：“康希诺生物科技有限公司与军事科学院生物技术研究所合作，计划在。。。。。。”
 
-**美国白宫拜登政府是第一个提出对疫苗专利保护开放的国家。当然会引起很多具有专利国家的明显拒绝，德国总理默克尔周四晚间就拒绝了放开专利保护的建议。但是迫于压力，周五也不得已和有专利的公司进行沟通。对于是否正确我们不多做评论。因为这不过是一场政治秀，是夺得民意的把戏。我们爆料革命的战友都知道，这不过是伪命题，因为疫苗根本不能从根本上遏制病毒，根本就是一场从头到尾的政治需要。 **
-（本文仅代表译者个人观点，跟GNEWS平台无关。）
+*以上仅代表作者观点，不代表Gnews平台*
 
-**新闻原文链接：**🔗[„Mehr politisches Theater als Substanz“](https://www.welt.de/politik/ausland/article230922717/Patentfreigabe-Mehr-politisches-Theater-als-Substanz-ALT-Die-wichtigsten-Huerden-sind-nicht-die-Patente.html)
+**参考链接：**
+[https://www.reuters.com/world/americas/mexican-production-sputnik-v-vaccine-likely-by-late-june-health-ministry-2021-05-07/?taid=6095b60d4492f900010b8bf7&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/americas/mexican-production-sputnik-v-vaccine-likely-by-late-june-health-ministry-2021-05-07/?taid=6095b60d4492f900010b8bf7&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-* * *
-
-***翻译整理/ 简评：** Shuizhuyu* ***编辑整理/校对: **Ting Guo*
+***校对发布**：文顾*
 
 0
