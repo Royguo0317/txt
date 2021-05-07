@@ -1,33 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共攻台之心不死 挑衅台防空识别区次数翻倍
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1184004/)
+## 法国参议院压倒性全面支持台湾参与国际组织
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1184235/)
 
-#### 撰稿：默凡
-![]()![](https://gnews.org/wp-content/uploads/2021/05/台湾-2.jpg)图片来源：网络截图
-据台湾国防部发布最新数据，与前两个月相比，中共国军机4月通过台湾防空识别区（ADIZ）的飞行次数翻了一番，而此时正值美国在该地区的军事活动增加。
+台湾宝岛农场
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07094746/%E6%93%B7%E5%8F%9657-4.jpg)
+[自由时报新闻](https://news.ltn.com.tw/news/politics/breakingnews/3523881)报导，法国参议院周四晚上以304票无异议通过了支持台湾参与国际组织活动决议文。国际组织包括WHO、国际民航组织（ICAO）、联合国气候变化纲要公约（UNFCCC）与国际刑警组织（INTERPOL）等各领域国际组织。
 
-台湾国防部说，4月份中共国大陆战机飞越台湾防空识别区的事件共117起，是2月份和3月份总数的两倍多。此前的最高记录出现在1月份，为81架次，2月降至40架次，3月则降至54架次。
+法国参议院全面性通过挺台决议，是继G7外长公报后，是协助台湾外交空间拓展的实际行动。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07094807/%E6%93%B7%E5%8F%9657-5.jpg)图片皆取自驻法代表处脸书
+摘╱zhong
+发布╱小刘
 
-由于中共国军机几乎总是在防空识别区的西南方向飞行，它们很可能是前往或从南海演习返回时飞往防空识别区。近年来，美国在南海的军事行动明显增加，拜登总统进一步加强了对该地区的控制权。中共国则表示，自从拜登总统上任以来，美国军舰的行动较以往增加了20%以上，军机行动增加了40%。美国还在继续加强美台间的外交来往，以此来反制中共国。
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-今年4月，拜登政府还宣布了一项“鼓励”美台官员接触的新政策，彻底为美台官员来往松绑。上周五，美国和台湾最高外交官在法国举行了一次公开午餐会议，这引发北京方面的强烈谴责。
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
-简评：
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
-习神早在数年前就已经制定好“双龙计划”，该计划的目标就是要拿下香港和台湾，由于美国对中共单方面撕毁《中英联合声明》的举动没有及时采取措施进行制止，导致香港彻底沦为死港，气势正盛的习神已经将目标对准台湾。
-
-自从习神当权以来，他一直希望自己能超过毛贼东成为中共国史上最伟大的领袖，由于他小学都没有毕业，缺乏能力和远见，执政十年仍未有任何建树，急于在2022年延续皇位的习神肯定会铤而走险，试图通过拿下台湾来为自己赚取连任的资本，他还可以借攻打台湾消灭党内的敌对势力，可谓是一箭双雕。
-
-爆料革命文贵先生很早就揭露习神拿下台湾的野心，美国也已经意识到台湾对于印太地区的战略重要性，所以拜登政府上台后推动建立美日同盟和印太同盟来共同保护台湾，以此威慑中共国。
-
-一向喜欢装腔作势的中共国也不甘示弱，大规模派遣军机飞入防空识别区进行挑衅，中共国只有叫嚣的能力却没有实战能力，所以美军丝毫不畏惧中共国的挑衅，继续推动美台外交来往。只要中共国对台湾发起军事打击，美军及其盟友势必会采取行动保护台湾安全，中共行动之日，就是其政权灭亡之时，接下来就看习神何时为自己架好绞刑架。
-
-参考文章：[Chinese Flights Through Taiwan’s Air Defense Zone Have Doubled](https://www.zerohedge.com/geopolitical/chinese-flights-through-taiwans-air-defense-zone-double-us-steps-military-presence?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
-
-（本文仅代表作者本人观点）
-
-校对/发布：萌萌的朋克
-
-0
++1

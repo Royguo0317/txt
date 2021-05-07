@@ -1,38 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5/7/2021 财经快讯：拜登可能延续川普对中共投资禁令；中共谴责七国集团支持台湾的声明
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1183987/)
+## 【聚焦】巴西总统认为中共病毒导致的大流行与“生化战”有关
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1184129/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07084529/Picture1-21.png)[图片来源](https://www.dw.com/)
-**1****.拜登团队可能继续执行川普****对****中****共****投资禁令**
+#### 翻译：小红帽
 
-[佛罗里达共和党参议员马可·卢比奥在一封电子邮件声明中说：“通常不应该让美元流向中国共产党军方附近的实体，后者正在制造旨在杀死美国军人的武器和力量。” 黑名单不仅是中共的痛点，也是华尔街的痛点。据四位业内人士透露，金融业已敦促拜登政府彻底撤销投资禁令。至少，银行希望财政部外国资产控制办公室(OFAC)能就遵守禁令给出明确的指导。为了澄清这一点，努钦的财政部在1月发表了一份声明，将中共国移动有限公司，中共国电信公司和中共国联通香港有限公司指定为必须退市的公司。](https://finance.yahoo.com/news/biden-team-likely-proceed-trump-185416315.html)
+#### 校对/编辑：文泓
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07092415/%E5%B7%B4%E8%A5%BF0.jpg)
+图片来源：BBC
 
-**2.中**共**谴责七国集团支持台湾的声明**
+**译文：**
 
-[中共周四谴责七国集团（G7）外交部长的联合声明，该声明表达了对中共宣称拥有主权的台湾的支持，并将中共描述为一个恶霸，称这是对中共国内政的粗暴干涉。七国集团外交部长在伦敦峰会后的公报中说，中共犯有侵犯人权和使用“强制性经济政策”的罪行，七国集团将共同努力制止这些行为。七国集团还采取了一个不寻常的举措，他们支持台湾参加世界卫生组织(World Health Organization)论坛和世界卫生大会(World Health Assembly)，并对台湾海峡“任何可能加剧紧张局势的单方面行动”表示关注。](https://www.reuters.com/world/china-condemns-g7-statement-censuring-beijing-2021-05-06/)
+（巴西）总统贾伊尔-博尔索纳罗（Jair Bolsonaro）周三表示，中共病毒可能是在实验室里制造的，用于发动“生化战”，他的这番最新言论可能使巴西与中共国关系紧张。
 
-**3.特斯拉开发平台允许中****共****国车主访问数据**
+“这是一种新病毒，没有人知道它是在实验室里诞生的，还是因为人类吃了一些他们不应该吃的动物。”这位极右翼领导人说。
 
-[美国电动汽车制造商特斯拉公司周四表示，它正在为中共国车主开发一个平台，该平台将允许他们访问其车辆产生的数据。特斯拉在一份声明中表示计划今年推出该数据平台；特斯拉在上海工厂生产Model 3轿车和Model Y运动型多功能车。这是汽车制造商首次宣布计划允许客户访问全球最大汽车市场中共国的汽车数据。在过去的几年中，汽车制造商一直在为更多的汽车配备摄像头和传感器，以捕获汽车周围环境的图像。对这些图像的使用，发送和存储进行控制，对于整个行业和全球监管机构来说都是一个新兴的挑战。](https://www.reuters.com/technology/tesla-developing-data-platform-car-owners-china-2021-05-06/)
+“但军方对化学、生物和放射性战争应该了如指掌，我们会不会在打一场新的战争？我想知道，哪个国家的GDP增长最多？”
 
-**4.中****共****暂停与澳大利亚的经济对话，关系破裂**
+他没有提到中共国的名字，自去年中共病毒大流行开始时，中共国是G20经济体中去年唯一增长的国家，实现了GDP2.3%的增长。
 
-[中共国国家经济计划者说，中共周四“无限期”中止了中澳战略经济对话下的所有活动，这是两国关系紧张的最新挫折。中共国国家发展和改革委员会在一份简短的声明中说：“最近，澳大利亚联邦政府的一些官员出于冷战思维和意识形态歧视的目的，采取了一系列措施来破坏中澳之间的正常交流与合作。” 该委员会在声明中没有说哪些具体措施致使他们采取行动。](https://www.voachinese.com/a/china-suspends-economic-dialogue-with-australia-as-relations-curdle/5880391.html)
+博尔索纳罗（Bolsonaro）和他的核心圈子有对中共国发表煽动性言论的历史，有时会对巴西最大贸易伙伴（中共国）的关系造成不利。
 
-[2018年，澳大利亚成为第一个公开禁止中共国科技巨头华为参与其5G网络的国家，导致双边关系紧张。去年，当澳大利亚呼吁对中共病毒的起源进行独立调查时，两国关系恶化，促使中共进行贸易报复。 澳大利亚贸易部长丹·特汉（Dan Tehan）说，中共的决定令人“失望”，因为经济对话是“澳大利亚和中共解决与我们的经济伙伴关系有关的重要论坛。](https://www.voachinese.com/a/china-suspends-economic-dialogue-with-australia-as-relations-curdle/5880391.html)
+今年三月，总统用职业外交官卡洛斯-弗朗卡（Carlos Franca）替换了前外交部长埃内斯托-阿劳霍（Ernesto Araujo）。埃内斯托-阿劳霍（Ernesto Araujo）曾谴责“毛的共产主义中国”及其“统治世界”的计划。
 
-**5****.美国法官作出决定后，纳斯达克撤回对箩筐技术公司的上市禁令**
+此举被广泛认为是为了（与中共国）修补关系。
 
-[华盛顿（路透社）- 纳斯达克撤回了将箩筐技术公司的股票除牌的决定，这是一家中共国地图技术公司，美国法官暂停了前特朗普政府即将实施的投资禁令。该裁决和上市消息使该公司股价上涨了近20％。 箩筐技术公司在周四的新闻发布中表示，纳斯达克已通知该公司撤回其退市函，股票将继续在市场上交易，不会在5月7日停牌。在美国的一份中共军事公司的投资禁令名单上，箩筐技术公司是第二家赢得初步禁令、停止被列入该名单的公司。](https://www.reuters.com/article/us-usa-china-luokung-tech/nasdaq-withdraws-listing-ban-on-luokung-after-u-s-judges-decision-idUSKBN2CN24O)
+中共病毒出现在武汉市的一个病毒学实验室的理论，对中共国来说是一个敏感的话题——但却是博尔索纳罗（Bolsonaro）和他的政治榜样——美国前总统唐纳德-特朗普的强硬派支持者的最爱。
 
-**6.价格上涨，“90后”纷纷买黄金**
+中共国强烈否认这一理论。
 
-[由于国际疫情的好转以及世界经济向好的预期加大，黄金避险的情绪减弱，国际金价由去年的每盎司2089美元一路调整到今年3月初的每盎司1678.9美元，调整幅度接近20%，随后展开了一波反弹，4月21日冲高到每盎司1798美元。除了婚庆类黄金饰品需求以外，礼品类黄金饰品的关注度逐渐提升，消费者以“90后”居多。投资类金条的销售占比是最多的，因为投资金条单件买的会比较多，买一两公斤、两三公斤的顾客还是挺多的，单单投资金条可能会占到百分之七十左右。](https://ishare.ifeng.com/c/s/v006Um-_pER--eD-_NxQDEWT7WS6PT84EpqPQouqOi7mzEDV9KDfIyvfk0WfJlosjdpBiqUFtFnHIQ02ZsANcaq-_jc5cw____?spss=np&amp;aman=1cb40fhc677ef8j49bE4b6gd74tc6fO4187e01j305)
+今年三月，世界卫生组织的一份报告得出结论，中共病毒病毒“极不可能”来自于实验室。
 
-By 【金融组 – 小海星】
-素材搜集：文罡
-校对：Tracy
+然而，世卫组织专家说，他们在访问武汉时，获取原始数据时遇到了困难。
 
-+1
+博尔索纳罗（Bolsonaro）因其对中共病毒的回应而面临批评，甚至是参议院的调查。而中共病毒已在巴西造成40多万人死亡。
+
+周三，博尔索纳罗（Bolsonaro）加大了对地方当局，为控制中共病毒而采取的留守措施（封锁）的抨击力度，威胁要发布一项法令，保护人们的 “出入自由权”。
+
+关于要求采取国家限制性措施（举国封锁）的呼吁，博尔索纳罗（Bolsonaro）与专家进行了斗争，博尔索纳罗（Bolsonaro）认为经济损失将比病毒本身更严重。
+
+但巴西最高法院赋予各州和市镇实施此类政策的权利。
+
+“我希望上帝保佑，我不会被迫发布这一法令。但如果我这样做，我将用我的部长们所拥有的所有力量来执行，”博尔索纳罗（Bolsonaro）说。
+
+“最好没有人敢挑战它。”
+
+原文链接：[Brazil COVID: 15,009,023 Cases and 417,176 Deaths – Worldometer (worldometers.info)](https://www.worldometers.info/coronavirus/country/brazil/)
+
+附：巴西最新中共病毒案例统计数字（更新至5/7/2021，02:42 GMT）
+
+图一：感染中共病毒活跃案例：1,000,512例
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07092646/%E5%B7%B4%E8%A5%BF1.png)
+图二：感染中共病毒结案案例：14,0008,511例
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07092744/%E5%B7%B4%E8%A5%BF2.png)
+图三：巴西中共病毒感染总人数统计图
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07092800/%E5%B7%B4%E8%A5%BF3.png)
+图四：巴西感染中共病毒死亡总人数统计图
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07092811/%E5%B7%B4%E8%A5%BF4.png)
+图五：巴西感染中共病毒每日新增死亡人数统计图
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07092843/%E5%B7%B4%E8%A5%BF5-1.png)
+资料链接：[Brazil’s Bolsonaro links pandemic to ‘germ warfare’ – France 24](https://www.france24.com/en/live-news/20210505-brazil-s-bolsonaro-links-pandemic-to-germ-warfare)
+
+0
