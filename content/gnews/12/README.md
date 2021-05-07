@@ -1,48 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 喜币Himalay Coin喜美元Himalay Dollar无国介化财富紧紧跟随
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1182944/)
+## 【热评】：墙国内卷卷的是什么
+` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1182950/)
 
-台湾宝岛农场 Amitofu
+**作者： 【文林- Evita ujara】 审核：【向阳6768】发布：【陸柒陸捌】**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07031244/image0.png57.jpg)
+从2020年下半年开始，中共国网络上开始流行“内卷”一次。根据墙内百度百科的定义，内卷是“本意是指人类社会在一个发展阶段达到某种确定的形式后，停滞不前或无法转化为另一种高级模式的现象。当社会资源无法满足所有人的需求时，人们通过竞争来获取更多资源。现指同行间竞相付出更多努力以争夺有限资源，从而导致个体“收益努力比”下降的现象。可以看作是努力的‘通货膨胀’。”说白了，就是边际效益的递减，单位时间内付出得更多，却没有产出、获得更多，一旦不继续加码投入，则连目前能赚取的都保不住。
 
-Himalay exchage、Himalay Coin、Himalay Dollar、Himalay pay是革命性的金融经济生态，由文贵先生用毕生的政治、经济、金融的实务经验和大型基金公司对文贵先生的信用积累而成，其所设计的无介化喜金融生态圈，更得到美联储FED主要股东摩根先生的支持，同时摩根先生也是长期支持着G系列的各项发展，使喜金融生态圈具有美元、黄金、实体的特性，是将来全人类财富的诺亚方舟。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07021309/quorum-1-400x225.png)
-- Himalay Federal Reserve System喜联储拥有定价权、货币权和流通权，将来可发行相对应的喜英镑、喜加币、喜澳币、喜法郎、喜日圆、喜欧元…
-- Himalay Coin根据市场需求有浮动的功能，Himalay Coin的锚定物为百分之二十的黄金备付，是所有虚拟加密货币所不能相比的价值
-- 1 Himalay Dollar都能够兑换为1美元; Himalay Coin最终目成为CBDC央行货币
+那么，目前中共国的内卷又是怎么一回事呢。简单地说，目前中共国的内卷，其实就是CCP越来越收紧的权力和资源的集中垄断所造成的。拿大家耳熟能详的“做蛋糕、切蛋糕”来比喻，中国人过去四、五十年通过血汗工厂，廉价代工商品等赚取得少得可怜的一点点外汇，已经不够贪得无厌的中共国内几大家族势力和他们豢养的爪牙分割了。蛋糕就只有那么点大，而少数几个家族、庞大烦冗的统治集团，凭借自己的垄断和特权，把本来该属于14亿中国人的份额切了90%以上。剩下不到10%的残羹冷炙，还要通过教育、医疗、养老、住房等各种方式再从老百姓身上搜刮一遍。14亿人起早贪黑，”996”的工作强度，却还不足以养家糊口。
+
+比如墙内各大持牌金融机构的内卷，则表现在开始让员工跳一些性暗示极强的舞蹈来吸引眼球，目前BILIBILI网站上面的视频，很多银行、券商的员工被迫抛头露面，只为吸引流量，完成指标。金融机构本来应是以严谨高效来吸引客户，现在却只能靠一些和本业风马牛不相及的小动作来招揽生意。教育领域内卷更是突出，一线城市即使在公立学校，学生已经无法通过学校正常的教学安排获得升学机会，而是要通过各类补习社、辅导班，从周一到周日的高强度训练来实现。当学生资质相当时，甚至通过要比拼家长、甚至祖辈的教育水平和职业高度。种种社会乱象、层出不穷，令人更叹为观止的是，连订“娃娃亲”这样的现象，也因“内卷”而复活——众多家长担心孩子未来阶级向下流动无法成家，开始从小为孩子“物色”对象，只为能通过“联姻”而增强双方家庭的抗风险能力。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07033051/image1.png571-1.jpg)
+笔者认为，上述所有墙内光怪陆离的景象，还是中共国的制度造成的必然。不参与“做蛋糕”的CCP政权掌握着14亿人生死与夺的权力，霸占了多数人的“蛋糕”，让资源无法正常进行再生产、再分配。从而导致蛋糕越来越小，为了能勉强吃上一剩饭剩菜，所有人都不得不使尽浑身解数，通过各种手段勉强维持。好比一艘大船，明明是结构出现问题导致漏水，已经半截船身入水，船上的工作人员不是查漏补缺，却要求穿上乘客考虑节食减肥来阻止沉船。真是又荒唐又可悲！
 
 
-**喜金融生态圈拥有原创者文贵先生所重视的特性**
 
-1. 无介化交易金融生态圈，在世界各地随时随地瞬间转移财富，每周7天24小时交易服务，更重要的是不再被政府剪羊毛垄断财富
+**制作：Cantonese工作室**
 
-2. 全世界最干净合法安全可靠的金融生态圈
 
-3. 庞大不断投入的研发团队（J.P. Morgan世界级金融团队）
 
-4.越来越严密的区块链加密技术 ( ConsenSys Quorum架构 )
 
-**方便快速支付和财富紧紧跟随持有人(财富丢失保证)**
 
-当QE大量印制美元在未来产生20万亿的债务时、美国经济崩盘时、2022年美国政治权力转移时、共产党被灭时、区域发生局部战争等事件发生时，在世界各地的财富将寻找最安全可靠不被剥夺财富的HCoin、HDollar，财富不仅能紧密跟随持有人，更能在世界各地瞬间移转财富，合法保障财富，方便快速支付和财富紧紧跟随持有人。
 
-**庞大不断投入的研发团队和越来越严密的区块链加密技术**
 
-喜金融生态圈拥有庞大不断投入的研发团队和越来越严密的区块链加密技术，以太坊Ethereum领域的金融和区块链开发软件领导者ConsenSys，ConsenSys加速分布式金融（DeFi）和Web3应用程序在以太坊上与企业区块链基础设施的融合。投资者包含全球金融服务公司摩根大通（J.P. Morgan）、万事达（Mastercard）、瑞银集团（UBS AG）、Protocol Labs、Maker 基金会、分布式资本、The LAO、Alameda Research、CMT Digital 以及大湾区共同家园发展基金（Greater Bay Area Homeland Development Fund）、Quotidian Ventures和Liberty City Ventures。同时ConsenSys与摩根大通（J.P. Morgan）Quorum合作，加深其对企业协议生态系统的承诺和竞争地位。Quorum提供支持公有链及私有链的网络，并支持第2层以太坊网络促进IPFS，Filecoin等互补协议。(以太坊Ethereum为基础对ERC-20标准具有相后兼容性的ERC-1404代币)
 
-笔者认为文贵先生用一生信用和人脉所的设计的喜金融生态圈Himalay exchage、Himalay Coin、Himalay Dollar、Himalay pay是集合中央银行、金融机构、(VISA、MASTER等)支付服务商和Paypal钱包服务等加总的基本架构，同时具有全世界最安全可靠、不断提升的区块链加密技术，并对客户Himalay Coin、Himalay Dollar有信用积分，大大降低银行的风险和不确定性，随时随地方便快速的支付和财富紧紧跟随持有人，不仅仅是新中国联邦战友的诺亚方舟，更重要的是喜金融生态圈是全世界正道主义和有坚定信仰者在政治经济上力量结合的新型生态圈，全人类财富最佳去处。本文仅代表个人立场
 
-感谢文贵先生和摩根先生团队让新中国联邦战友们站在巨人的肩膀
 
-資料來源:文贵先生直播
 
-[ConsenSys Raises $65 Million to Accelerate Convergence Of Traditional And Decentralized Finance](https://consensys.net/blog/press-release/consensys-raises-65-million-to-accelerate-convergence-of-traditional-and-decentralized-finance/)
-
-[ConsenSys Acquires J.P. Morgan’s Quorum to Advance Enterprise Blockchain Adoption](https://consensys.net/blog/news/consensys-acquires-jpm-quorum/)
-
-审核:Athena雅典娜 发布:Amitofu
-
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-
-+1
+0
