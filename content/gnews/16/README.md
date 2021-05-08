@@ -1,103 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 雨啼遥歌
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1189971/)
+## 老人莫名成“网逃”，临死前一天被释放
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1190029/)
 
-作者：Xiaopan| 校对：X-Wing |审核：Beicy-数学老师 |Page：小雨
+字幕听译： 乐禧禧 | 字幕PR： yyshere | 字幕： 雨中漫步 | 评论： CharlesS | 评评论翻译: CharlesS | 翻译PR: Marialu| 审核:Charles S|Page: 小雨
 
+![]()![](https://gnews.org/wp-content/uploads/2021/05/1-23-18.jpg)
 
-```
-又有南风吹起
- 你听见柳叶的欢快笑声吗
- 北国的晚春开始发芽
- 仿佛忘却了
- 去年寒冬里悲凉的枯骨
- 
-是滴雨儿借风而起
- 跨域垂直的时空
- 泛黄的大地被染成了灰色
- 你听见滴答的回响吗
- 
-像是戚戚的诉说
- 她曾在无数河流中游荡
- 从清澈见底的小溪
- 到肮脏不堪的大河
- 在涌进的滚滚污水里
- 鱼儿呼喊着逃离
- 直到变成一具浮尸
- 盛上了
- 人类的餐桌
- 
-当她是一滴水
- 当它是一条鱼
- 她是它全部的生命
- 它是她存在的气息
- 当她被染变了颜色
- 便是它逃不了的墓地
- 
-她曾想安逸地飘荡在大海
- 那是每一滴雨的梦想
- 可蔚蓝的天海之间
- 早已是扑杀的猎场
- 泛红的血水
- 流满冰冷的船舱
- 无数垃圾冲刷着海岸线
- 遗弃的碎屑铺满沙滩
- 纷乱如逃亡的牧场
-```
+**老人莫名成“网逃”，临死前一天被释放，家属不知道他所犯何罪就被抓，报道的新闻被全网“404”……**
 
+[视频资料](https://mega.nz/folder/mhlzRQDa#Kdt_KmjJHoBJSn4kDYhu3w)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/949ca50c-b37f-403e-8057-31fdb7650635.jpg?asset_id=210f3726-0b3e-4a42-8cfc-629e5dfecb95&amp;img_etag=%22841ebbd3d4b418355481dac437695ff3%22&amp;size=2560)](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/949ca50c-b37f-403e-8057-31fdb7650635.jpg?asset_id=210f3726-0b3e-4a42-8cfc-629e5dfecb95&amp;img_etag=%22841ebbd3d4b418355481dac437695ff3%22&amp;size=1024)
+2019年9月补办身份证，被告知自己是逃犯，当日被拘，通知书却落款6月。家属“往返看守所十余次，从来见不到人，也未被告知实情”。2020年8月6日23时，家属获知这位老人被送入ICU，逐赶往医院。7日当地看守所和公安局对这位老人决定暂予监外执行。8日早老人被宣告死亡。医院记录及医生口诉可知老人入院时已呼吸心跳停止。10月家属才查到老人的“判决书”：扰乱社会秩序的共犯。家属回忆称老人曾在那起案件当日拉过客人去现场，有人闹事看了一会热闹。“主犯的案件中没有提及我父亲…更何况我们家一直住在那，也不是逃犯，为什么要等补办身份证时才抓我父亲？”老人的儿子称。
 
+详细刊登了事件经过、法律文书的新闻文章也已被下线。
 
-```
-太阳聆听了她的祈祷
- 于是变成了一只隐形的飞鸟
- 在长空里飞翔
- 云间穿梭
-
- 于是
- 她闻到了空气的味道
- 没有传说中的清香
- 是浓烈而肮脏
-
- 于是
- 她看见了高山
- 残缺的断崖
- 砍伐的林木
- 成片的大地满目疮痍
- 机械的声响无处可藏
- 却仍掩不住
- 冲天的争吵与厮杀
- 
-团团浓烟冲天而起
- 飘飘散散
- 遮住了阳光
- 和飞鸟的双眼
- 
-她的心开始抽泣
- 身体开始变冷
- 她不要做无力的蒸汽
- 要化成雨
- 化成更多的雨
- 去冲刷 去洗涤
- 或者
- 去消逝
- 
-仿佛又有风起
- 带着同样的故事
- 和远方的残歌
- 你相信吗
- 要变天了
- 
-她开始颤抖
-```
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/beaba45e-1b04-4528-9748-4518e9fa3f61.jpg?asset_id=8d9e6d1c-4a24-4333-9fae-5bee74b7dbca&amp;img_etag=%22730ea1d1527f7db4b62cf2c268e5828e%22&amp;size=2560)](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/beaba45e-1b04-4528-9748-4518e9fa3f61.jpg?asset_id=8d9e6d1c-4a24-4333-9fae-5bee74b7dbca&amp;img_etag=%22730ea1d1527f7db4b62cf2c268e5828e%22&amp;size=1024)
-
-*文章仅代表个人观点*
+轻而易举被下线的新闻，轻而易举被抓捕的平民，轻而易举被逝去的生命。这就是中共国的“法制“现状。
 
 编辑：【英国伦敦喜庄园编辑部】
 
@@ -105,5 +24,7 @@
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 - [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
+
 [!\[\]()!\[\](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
-0
+
++1
