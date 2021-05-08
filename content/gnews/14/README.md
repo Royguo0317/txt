@@ -1,57 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【信仰之声】论天国的仇敌——神要将中共敌基督政权从民中除灭
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1186192/)
+## 2021/05/05 班农采访(3) 中共是没有得到过人民授权的非法政府
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1189018/)
 
-作者：纽约香草山福音部 捆绑CCP一千年
+视频字幕：雨中漫步 | 听写/翻译：Wade| 翻译校正：Roberts |简评/文字整理/编辑：胖丁|Page：小雨
 
+**简评：**
 
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
-
-
-
-“你出兵攻打仇敌，就要远避诸恶。”（申23:9）
-
-以色列人奋起夺取迦南地的征途是一系列的战争，与他们沿途的仇敌作斗争是耶和华神应许的公义之战，所有参战的士兵都将是耶和华神的战士。正如老约翰所言，“小子们哪，你们要自守，远避偶像！”（约壹5:21）这是警告人，不可乘着战乱染指偶像和一切败坏污秽的事情。历史恍若昨日，上帝对中共政权的审判即将到来，所有参与“消灭中共”的勇士们不可在中共垮塌之时染指中共的邪恶，将你的钱财和亲人献给那敌基督者——中共政权。因为，我们正在经历这场超限生物基因战，我们经历了挫折、眼泪、彷徨与胆怯。但如今，我们选择信心，因为上帝与我们同在。
-
-![]()![](https://media.discordapp.net/attachments/721544615953432698/840080319696863252/image3.jpg?width=1083&amp;height=609)
-
-正是在这样的历史节点，美国原陆军上校伦斯-塞林博士在艰辛地COVID-19起源侦探中获得结论后，分别于5月5日和6日果敢地向世界宣布说：“我是劳伦斯-塞林博士，我要将以下信息传递给所有政府官员和媒体，尤其是科学届人士。他们为了个人政治和经济目的，还继续鼓吹COVID-19自然来源的谎言。”塞林博士善意地忠告那些人，是时候停止这样的游戏了，不可在仇敌即将被消灭之际沾染污秽。因为正义之师将出兵攻打中共敌基督政权，人们当“远避诸恶”。塞林博士说：“COVID-19是中共广泛的病毒增强研究的产物，来自中共军民融合项目。”塞林博士继续强调，COVID-19有着不同寻常的非自然特征，都是自然进化无法解释的——弗林酶切位点——这是自然界蝙蝠病毒里不可能存在的。因为弗林酶切位点是增强毒性和传播性的主要产物，中共科学家在原始病毒中插入了它。无论是故意释放，还是实验室泄露，中共都同样难逃罪责——这个项目是中共2016年“十三五计划”的目标之一[1]。这些为中共定罪的重要确据被美国军方提出，也是对闫丽梦博士2020年1月19日至今所发出警告的确认。为此，塞林博士强调，“美国国家过敏和传染病研究所和美国国防部、美国人民是时候与中国人站在一起，彻底消灭中国共产党！”[2]
-
-这场爆料革命超限战，自2017年郭文贵先生华盛顿新闻发布会打响第一枪以来[3]，直到近日，吸引着亿万万爱好真理的战士的追随。爆料革命的战士们见证着上帝的公义——就像以色列人在一次次的争战之中经历着信心的高山和低谷一样。然而，我们在奔走天国之路上何尝不是如此：有许多的危险和争战，时刻伴随着我们的脚踪，无论是有形还是无形的。我们要勇当耶和华神的精兵，持守圣洁、唯真不破，才是确保这场争战最终胜利的根基。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-1. [喜站](https://www.youtube.com/watch?v=L5CeyaosqrY&amp;feature=youtu.be)
-2. [新中国国联邦](https://www.youtube.com/watch?v=ITA86zNMW7U&amp;feature=youtu.be)
-3. [天圆地方](https://www.youtube.com/watch?v=FDHwbJ8waIQ)
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-
-编辑：灵性探索
-
-校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+从美国独立战争开始，人民授权就是最根本的理念。独立宣言里阐明：任何没有得到人民授权的政府都不可能长久存在。中共从来就没有得到过人民的授权，它不爱人民，不得民心。它是一个非法政府，是一个跨国的犯罪组织，与二战时期的纳粹、前苏联、墨索里尼、东条英机等无异。
 
 
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+[GTV 视频链接](https://gtv.org/video/id=6095144837f7f73984c8d6a0)
+
+**视频字幕：**
+
+**班农：**我们每天都在揭露的重要真相就是：**中共不是一个得到人民授权的政府，也不是一个爱民的政府。**
+
+记住，从美国脱离英国殖民统治的独立革命开始，所有文件里记载的最重要的概念——人民的授权。
+
+中共是否得到了中国人民的授权呢？
+
+**没有。****《独立宣言》**里阐述了：**任何没有得到人民授权的政府都不可能长久存在**。尤其是21世纪的今天。
+
+这就是问题的核心，中国人民没有给中共授权，没有授权。他们被压迫，很大程度上被西方金融世界、跨国企业和那些给中共下跪的精英所奴役。
+
+**中共是跨国犯罪集团，与纳粹无异**。与墨索里尼的法西斯意大利无异，与东条英机领导管理的日本帝国军政府没有区别。与苏联布尔什维克无异，与柬埔寨的波尔布特无异。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/A3ZVnxOlB9wcK/images/27261013-575d-4db1-ac0e-2dc9726c1062.jpg?asset_id=c42726d6-ada1-475d-b4cb-4b18f6aeac6f&amp;img_etag=%22bf2dd55632db5fc814438839f7c41f1d%22&amp;size=1024)](https://spark.adobe.com/page/A3ZVnxOlB9wcK/images/27261013-575d-4db1-ac0e-2dc9726c1062.jpg?asset_id=c42726d6-ada1-475d-b4cb-4b18f6aeac6f&amp;img_etag=%22bf2dd55632db5fc814438839f7c41f1d%22&amp;size=1024)
+
+他们不是政府。他们没有获得人民的授权。中共不得民心。习近平是个伪皇帝。他是跨国犯罪集团的黑帮老大，这一点每天都更加清晰。
+
+这也是为什么赛林上校的声明非常有力，会让中共难以反抗，难以继续它的谎言。
+
+这也是我们每天为什么要这么努力。
+
+**[完整访谈视频](https://gtv.org/video/id=6092949adb13300ca5490f40)**
+
+**主播：**Mikehua，Angela，Daniel，Mike，TCC，和Winston
+
+- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
+- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
+
+
+***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三伦敦时间14:00 （美东时间09：00）直播***
+
+编辑：【英国伦敦喜庄园编辑部】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/A3ZVnxOlB9wcK/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/A3ZVnxOlB9wcK/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 
 

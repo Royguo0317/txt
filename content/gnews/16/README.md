@@ -1,31 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9岁孩子被老师虐待至皮骨分离，中共秘密保护“教育系统”
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1185831/)
+## 【每日快讯】05/07/2021：财富最安全的地方是喜联储喜币
+` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1188982/)
 
-作者：庚子
+**制作：Cantonese工作室**
 
-编辑：Summer
 
-2021年3月5日，平顶山卫东区新华路小学三年级的苑同学，因为上课讲话被教信息课的常姓教师揪头发拎到讲台罚站，事后被查处头皮与头骨分离，经历7次穿刺，出血量达到1000毫升。可以想象将头皮与头骨拽至分离，这是相当恐怖的一种暴力。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07201114/%E5%84%BF%E7%AB%A5%E5%A4%B4%E7%9A%AE1.jpg)
-事发后的第二天，3月7日孩子母亲带其去医院做CT检查，发现伤势的严重性并果断报警，然而警方却没有任何动作，该常姓教师一直在学校继续授课20天。4月12日，孩子的伤情鉴定结果出来，显示构成轻伤二级，此时该区警方依然没有任何动作，直到5月1日才将鉴定结果通知常某而后刑拘。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07201129/%E5%84%BF%E7%AB%A5%E5%A4%B4%E7%9A%AE2-1.jpg)
-看到孩子被虐待的伤情，不仅当事人的母亲，相信全天下的母亲都会为之颤抖，所有有人性的人都会为之颤抖，而类似这种有悖人性的教师暴力在中共国比比皆是。同时我们也可以看到中共的军警特宪在有意的保护这种暴力的教育系统。
 
-一个基本的常识，在中共国仅仅是“社会人员”的打架斗殴，当警方接到报警后，双方都会被押解到当地警局进行询问拘押，然而该孩子母亲报警近两个月后当地警方才通知常某而后刑拘，很明显教育系统已经在“中共的法律”之外了，或者说在保护这种系统。
+**播报：【海媚】资料整理：【Elaine】【郁金香】【极寒将至】海报制作：【侬民】视频制作：【Ken】上传：【向阳6768】【星星**】
 
-中共的教育系统本质是洗脑工具，将学生训练成听话、不做反抗的群体，9岁的孩子只是因为课堂讲话就被如此虐待，这不就是中共如何统治14亿人的一个缩影吗？这种教育系统完全符合中共统治的要求，通过暴力屠杀维持自己的“权威”，香港不就是很好的例子吗？
+摘要：
 
-如果不是因为网络暴露出该事件，也许常某会“完美”的逍遥法外，因为中共需要维护这个系统。
-
-而更重要的是，在整个事件中，无论学校、老师、还是学生，都几乎没有法律意识。中共长期毒害下的国人对法律和法律保护已经没有了知觉，这才是最可悲的。
-
-【参考来源】
-
-[9岁小学生被老师揪头发致皮骨分离，涉事老师被刑拘 – 今日头条](https://m.toutiao.com/is/eDhJjKP/)
-
-（本文仅代表个人观点）
-![]()![](https://gnews.org/wp-content/uploads/2021/04/QRcode_GGB_v2.jpg)
+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08104129/210508-__2-1-1.jpg)
+2
+![]()![](https://gnews.org/wp-content/uploads/2021/05/210508-__3-2.jpg)
+3
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08102547/210508-__4-1.jpg)
+4
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08102651/210508-__5-1.jpg)
+5
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08102746/210508-__6-1.jpg)
+6
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08102818/210508-__7.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01093124/image0%E9%9D%A2.jpg)
 0

@@ -1,70 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月7日美国政要和政评家反共推特精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1186256/)
+## 保护言论自由，圣地亚哥大学教授不会因言获罪
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1188921/)
 
-众议员迈克·加拉格尔： 功能增强性研究是危险的实验，涉及对天然存在的病毒进行基因修饰。事实证明，它的长期倡导者之一是福奇博士。我们必须知道纳税人的钱是否支持了武汉的这种研究。 【附福克斯电视台采访加拉格尔议员的视频：共和党人要求白宫和福奇就病毒实验室泄漏起源说给出答案】
+新闻来源：《布赖特巴特》| 作者：ALANA MASTRANGELO | 发布时间：2021年5月5日
+翻译/简评：葡萄树 | 校对：SilverSpurs7 | 审核：万人往 | Page：我是球大哥
 
+[!\[\]()!\[\](https://spark.adobe.com/page/XVb4QnNxrBPOk/images/ced726e5-69da-49ac-b7ee-e888d2d1eeed.jpg?asset_id=a95f7e6b-df26-4900-9684-6273c05207a6&amp;img_etag=%22baf461654b38f88257ec426eafa86558%22&amp;size=1024)](https://spark.adobe.com/page/XVb4QnNxrBPOk/images/ced726e5-69da-49ac-b7ee-e888d2d1eeed.jpg?asset_id=a95f7e6b-df26-4900-9684-6273c05207a6&amp;img_etag=%22baf461654b38f88257ec426eafa86558%22&amp;size=1024)
 
+今年3月，圣地亚哥的一位法学终身教授在自己的部落格里发表关于新冠病毒起源的言论，他说到：“如果你相信冠状病毒不是从武汉实验室泄漏，你至少要考虑你是一个白痴，正全盘吞下大量中共国的粪便。”由于有人认为教授的语言带有种族歧视，圣地亚哥大学决定对他展开调查。然而教授自己澄清说，当他说Chinese的时候，他指的是中共国政府，而不是一个种族。在“教育个人权利基金会”的敦促下，学校最后裁定，教授受到大学对言论自由和学术自由承诺的保护，不会对他采取惩罚。
 
-> Gain of function research is a dangerous practice that involves genetically modifying naturally occurring viruses. It turns out that one of its long-standing advocates is Dr. Fauci. We must know if taxpayer dollars supported this kind of research in Wuhan. [pic.twitter.com/nzkMkbDeD1](https://t.co/nzkMkbDeD1)
-> — Rep. Mike Gallagher (@RepGallagher) [May 7, 2021](https://twitter.com/RepGallagher/status/1390793963012042754?ref_src=twsrc%5Etfw)
+虽然在有良知、有理性、正常的美国人民的抗争下，史密斯教授最终没有受到惩罚，似乎是一个美好的结局，然而这件事却带给人们更多的思考，美国到底怎么了？未来还会有多少同样的事件发生？就像文中所说的，它已经在学校师生中产生了寒蝉效应。为什么种族歧视的争论总是高于一切？在此次事件中，人们不去讨论冠状病毒是否是人造的或自然的，是否是人为或无意泄漏，却去讨论种族歧视、言论自由。跟随了郭文贵先生领导的爆料革命的战友们，都一眼能看明白其中的套路。被中共蓝金黄的大学，对凡是认同新冠病毒来源于武汉实验室的个人，都会进行污名化攻击，一是为恐吓其他人，二是为转移焦点。
 
+经过两个月的审理，史密斯教授最终胜利了，也带给人们希望：在塞林博士明确说新冠病毒是实验室制造、巴西总统指责中共发动生物战的今天，与中共有利益合作的个人、机构都不得不选边站了。若他们仍然选择站在中共一边，未来必定受到全世界的审判。
 
+最后，我想对史密斯教授说，我非常理解你，我是一名女性，但是当我从路德社了解到是中共释放了新冠病毒，并有意谋杀众多无辜的武汉市民时，我在心里也用各种肮脏的词汇咒骂中共，因为只有这样的词汇才能最好地描述中共。欢迎你加入爆料革命，在这里你会找到无数个像你一样心中充满正义的战友。
 
-众议员肯·巴克： 我很自豪能够与我的共和党研究委员会[@RepublicanStudy](https://twitter.com/RepublicanStudy)的同事们一起提出立法，就中共政府盗窃美国的知识产权以及对 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click)[#Taiwan](https://twitter.com/hashtag/Taiwan?src=hashtag_click) 的危险威胁，对其追责。 【转国家评论网：独家新闻：保守党严厉打击中共的政治影响与科技(盗窃)】
+**原文翻译：**
 
+## 圣地亚哥大学将不惩罚批评中共国政府的教授
 
+[!\[\]()!\[\](https://spark.adobe.com/page/XVb4QnNxrBPOk/images/b9f6d27e-b284-49da-a0e9-0495b791c0cf.png?asset_id=2d693883-9bc1-41ae-8de5-f58bb2236bc5&amp;img_etag=%22858be5790065c772db6d6faf18583045%22&amp;size=2560)](https://spark.adobe.com/page/XVb4QnNxrBPOk/images/b9f6d27e-b284-49da-a0e9-0495b791c0cf.png?asset_id=2d693883-9bc1-41ae-8de5-f58bb2236bc5&amp;img_etag=%22858be5790065c772db6d6faf18583045%22&amp;size=1024)
 
-> I’m proud to join my [@RepublicanStudy](https://twitter.com/RepublicanStudy?ref_src=twsrc%5Etfw) colleagues in introducing legislation to hold the Chinese government accountable for its theft of Americans’ intellectual property and dangerous threats against [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw).[https://t.co/U3h90mWXR5](https://t.co/U3h90mWXR5)
-> — Congressman Ken Buck (@RepKenBuck) [May 7, 2021](https://twitter.com/RepKenBuck/status/1390721367478255617?ref_src=twsrc%5Etfw)
+**圣地亚哥大学（USD）已经结束了对一位在博文中批评中共国政府的教授的调查。校园言论自由组织FIRE评论说：“尽管圣地亚哥大学对史密斯的调查一开始就不应该进行，但FIRE赞扬了大学能结束调查并得出正确的结论：不能因为有些人可能会被冒犯，就对教师受保护的言论进行惩罚。”**
 
+根据“教育个人权利基金会”（FIRE）的一份新闻稿，该大学决定不能因托马斯•史密斯教授的个人博客文章而对其进行惩罚。今年3月，USD开始对史密斯进行调查，因为他在一篇博文中提到中共国政府的宣传时，使用了“冒犯性”语言。
 
+“如果你相信冠状病毒不是从武汉实验室泄漏，你至少要考虑你是一个白痴，正全盘吞下大量中共国的粪便。”这位教授当时写道。
 
-国务院发言人内德·普赖斯: 没有合理的理由继续将 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 排除在世界卫生大会之外。 美国呼吁世卫组织[@WHO](https://twitter.com/WHO)邀请台湾作为观察员参加这个论坛。 【转美国务院官网发文：恢复台湾在世界卫生大会上的适当地位】
+在大学开始调查后，FIRE写信给USD，敦促学校结束对史密斯言论的调查，称其受到大学对言论自由和学术自由承诺的保护。
 
+该组织还说，上个月，该大学回应说，他们将继续审查此事。
 
+周二，美国大学副校长兼教务长盖尔•贝克(Gail Baker)发表了一份声明，解释说史密斯的言论受到学校学术自由政策的保护。
 
-> There is no reasonable justification for Taiwan’s continued exclusion from the World Health Assembly. The United States calls upon the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) to invite Taiwan to participate as an observer in this forum. [https://t.co/PpmrPZxUeX](https://t.co/PpmrPZxUeX)
-> — Ned Price (@StateDeptSpox) [May 7, 2021](https://twitter.com/StateDeptSpox/status/1390694290674888709?ref_src=twsrc%5Etfw)
+“学术自由是圣地亚哥大学使命的核心。同时，我们致力于提供一个尊重每个人尊严的教育环境。这两个承诺可以而且必须共存。”贝克说。
 
+“重要的是，大学社区的成员以负责任的方式行使他们的自由，他们的观点虽受保护，但要留意它所造成的影响，并对社区的所有成员保持敏感，特别是那些可能感到脆弱、被边缘化或担心他们不受欢迎的人，”贝克补充说，“大学社区的成员可能觉得有义务，当然他们也有自由，批评他们认为贬低了他人尊严的意见。”
 
+FIRE说，虽然它赞赏USD的结论，“但大学决定在史密斯不知情的情况下，对他明确受保护的言论进行调查，这是不允许的。这几乎肯定对希望表达自己观点的大学师生造成了寒蝉效应。”
 
-众议员吉姆·班克斯： 保守派正处于制定对抗 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 政策意见的最前沿。请在国家评论[@NRO](https://twitter.com/NRO)阅读更多详细报道：共和党研究委员会[@RepublicanStudy](https://twitter.com/RepublicanStudy)的委员们 介绍了十几个相关提案。 [@james\_t\_quinn](https://twitter.com/james_t_quinn) 【附国家评论特别报道：保守派严厉打击中共国的政治影响力和科技】
+“尽管USD对史密斯的调查一开始就不应该进行，但FIRE赞扬了USD能结束调查并得出正确的结论：不能因为有些人可能会被冒犯，就对教师受保护的言论进行惩罚.”该组织补充说。
 
+[原文链接](https://www.breitbart.com/tech/2021/05/05/u-of-san-diego-will-not-punish-prof-who-criticized-chinese-government/)
 
-
-> Conservatives are on the cutting edge of developing policy ideas to confront the Chinese Communist Party. Read more below [@NRO](https://twitter.com/NRO?ref_src=twsrc%5Etfw) on a dozen bills [@RepublicanStudy](https://twitter.com/RepublicanStudy?ref_src=twsrc%5Etfw) members are introducing today. [@james\_t\_quinn](https://twitter.com/james_t_quinn?ref_src=twsrc%5Etfw) [https://t.co/8oHp6FMB7O](https://t.co/8oHp6FMB7O)
-> — Jim Banks (@RepJimBanks) [May 7, 2021](https://twitter.com/RepJimBanks/status/1390677137833840643?ref_src=twsrc%5Etfw)
-
-
-
-众议员布莱恩·马斯特： 如果不解决世界上最大的气候变化罪魁祸首，我们就无法应对气候变化。必须追责 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)！ 【附CNBC新闻报道：中共国温室气体排放量超过美国和发展中国家的总和】
-
-
-
-> We cannot tackle climate change without tackling the biggest culprit of climate change in the world. China must be held accountable![https://t.co/8AflTtpZEc](https://t.co/8AflTtpZEc)
-> — Rep. Brian Mast (@RepBrianMast) [May 7, 2021](https://twitter.com/RepBrianMast/status/1390686610744758273?ref_src=twsrc%5Etfw)
-
-
-
-前白宫贸易顾问彼得·纳瓦罗）： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 利用（当年）日本​​帝国主义的游戏计划来使我们屈服。 亚历克斯·格雷的发现。 【附格雷在外交杂志发表的文章：美国如何保护太平洋最小岛屿的主权。】
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-> Communist China channeling Imperial Japan's gameplan to bring us to our knees. Alex Gray spot on.[https://t.co/pxQe2BEl97](https://t.co/pxQe2BEl97)
-> — Peter Navarro (@RealPNavarro) [May 7, 2021](https://twitter.com/RealPNavarro/status/1390761602400542724?ref_src=twsrc%5Etfw)
+[!\[\]()!\[\](https://spark.adobe.com/page/XVb4QnNxrBPOk/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/XVb4QnNxrBPOk/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 
 
-章家敦（中国问题专家）： 保护我们免受 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) “病毒战”的唯一方法是切断与该国的所有联系。如果您认为那是极端的话，您还愿意接受多少死亡？[#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hashtag_click) 【转Jack Hazlewood推文：文件表明中共军方科学家在新冠大流行五年前就在讨论SARs冠状病毒的武器化】
-
-
-
-> The only way to protect ourselves from [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s “virus warfare” is to cut all links with that country. If you think that’s extreme, how many more deaths are you willing to accept?[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/lOFI4UMET2](https://t.co/lOFI4UMET2)
-> — Gordon G. Chang (@GordonGChang) [May 7, 2021](https://twitter.com/GordonGChang/status/1390693388370972674?ref_src=twsrc%5Etfw)
-
-
-
-0
++1

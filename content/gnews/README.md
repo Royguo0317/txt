@@ -12,138 +12,132 @@
 
 ---
 
-### [视频澳媒口风突变 报道中共五年前阴谋将冠状病毒武器化](/content/gnews/1/README.md)
- ` 澳喜农场`
-
-### [【突发】国务卿布林肯呼吁台湾加入世卫组织](/content/gnews/2/README.md)
- ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
-
-### [1953年出版的《火星计划》，提到“埃隆”将带领人类登上火星](/content/gnews/3/README.md)
- ` 闪电侠`
-
-### [布林肯在联合国谴责中共人权问题和领土入侵](/content/gnews/4/README.md)
+### [喀秋莎新闻参考 &#8211; 2021年5月7日(星期五)](/content/gnews/1/README.md)
  ` HimalayaRussia`
 
-### [拜登贸易总监说，美中即将评估 第一阶段贸易协议执行情况](/content/gnews/5/README.md)
- ` 康州盘古农场 Himalaya CT Pangu`
+### [当委会建议美国联合盟国保卫台湾](/content/gnews/2/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
 
-### [美敦促世卫邀请台湾出席世界卫生大会](/content/gnews/6/README.md)
- ` HimalayaRussia`
-
-### [【世事解评】楼市“假”降温，房地产市场还将继续冷落？](/content/gnews/7/README.md)
+### [【医疗前沿世界】福奇 &#8211; 美国中共病毒疫情沙皇 (三)](/content/gnews/3/README.md)
  ` 纽约香草山MOS01`
 
-### [失控的中共国火箭可能会在周六跌落到地球](/content/gnews/8/README.md)
- ` 闪电侠`
-
-### [视频【字幕】5/7/2021文贵盖特2：加密货币的最重要的价值是什么？](/content/gnews/9/README.md)
+### [视频【字幕】5/7/2021文贵盖特3：加密货币，如果被枪顶着脑袋支付给非官方的第三方意味着什么？](/content/gnews/4/README.md)
  ` 纽约香草山MOS01`
 
-### [贺福初的人类蛋白质组计划和埃博拉研究是杀人还是救人](/content/gnews/10/README.md)
- ` NewFOC`
+### [印度暂停批准进口中共国WIFI设备](/content/gnews/5/README.md)
+ ` JPHIMALAYA`
 
-### [台湾股市热钱 现在适合投资吗？](/content/gnews/11/README.md)
+### [加拿大生活美谈第七期 2021.05.06](/content/gnews/6/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [视频2021/05/05 班农采访(3) 拜登政府强制接种疫苗，承认群体免疫不可能](/content/gnews/7/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [澳大利亚开始审查达尔文港向中国公司出租的租约](/content/gnews/8/README.md)
+ ` 喜马拉雅德国慕尼黑感恩农场`
+
+### [俄罗斯太平洋舰队数艘主力水面舰艇前往东海方向集结](/content/gnews/9/README.md)
  ` G-NEWS TAIWAN`
 
-### [新西兰议会谴责中共在新疆侵犯人权](/content/gnews/12/README.md)
- ` 康州盘古农场 Himalaya CT Pangu`
+### [视频2021/05/05 班农采访(1) 中国人民的自由是当今世界的核心问题](/content/gnews/10/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
 
-### [【世事解评】红火蚁扩散17年终防治，又现“亡羊补牢”？](/content/gnews/13/README.md)
- ` 纽约香草山MOS01`
+### [《路德社》精选主题专栏：中共出恶法与民争食](/content/gnews/11/README.md)
+ ` 路德社精选`
 
-### [【信仰之声】论天国的仇敌——神要将中共敌基督政权从民中除灭](/content/gnews/14/README.md)
+### [2021/05/05 班农采访 (5) 中共正实现科技融合，新中国联邦是中国人未来的选择](/content/gnews/12/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [知名科学家团队力排众议 严谨论证中共病毒可融入人体DNA](/content/gnews/13/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [2021/05/05 班农采访(3) 中共是没有得到过人民授权的非法政府](/content/gnews/14/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [刘晓波：中共权贵的暴发户心态](/content/gnews/15/README.md)
+ ` 公民之聲`
+
+### [视频【每日快讯】05/07/2021：财富最安全的地方是喜联储喜币](/content/gnews/16/README.md)
+ ` CANTONESE工作室`
+
+### [【战友心声】 心霾](/content/gnews/17/README.md)
  ` 纽约香草山MOS03`
 
-### [国内媒体吹风 二季度人民币或存极端贬值可能](/content/gnews/15/README.md)
- ` 闪电侠`
+### [BULLY记](/content/gnews/18/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
 
-### [9岁孩子被老师虐待至皮骨分离，中共秘密保护“教育系统”](/content/gnews/16/README.md)
- ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
+### [【墙内404】苏联大举援助亚非拉，靠的却是从本国人民身上压榨真金白银](/content/gnews/19/README.md)
+ ` 公民之聲`
 
-### [比利时担忧阿里巴巴可能配合从事间谍活动](/content/gnews/17/README.md)
- ` 闪电侠`
+### [保护言论自由，圣地亚哥大学教授不会因言获罪](/content/gnews/20/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
 
-### [中共太平川空军专用靶场遭窃，多个重型装甲靶标不翼而飞](/content/gnews/18/README.md)
+### [郭爆料串珠（244）八弟，你哥我和你嫂子没有一天不想念你！](/content/gnews/21/README.md)
+ ` 喜马拉雅德国慕尼黑感恩农场`
+
+### [中澳战略经济对话无限期暂停，中共加速与世界脱钩](/content/gnews/22/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [【路德简报】5/7/2021晚：澳洲记者Sharri Markson称《非典非自然起源》是中共制造生物武器的教科书](/content/gnews/23/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [【路德简报】5/7/2021早：法国参议院压倒性通过台湾参与世卫组织 并支持台湾参与更多国际组织](/content/gnews/24/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [时事点评:九二共识?](/content/gnews/25/README.md)
  ` G-NEWS TAIWAN`
 
-### [美参议院中共国法案将研究创建“首席制造”职位](/content/gnews/19/README.md)
- ` 闪电侠`
+### [郭爆料串珠(243)从“六四”看中共如何掺沙子，诱敌犯罪、栽赃陷害](/content/gnews/26/README.md)
+ ` 喜马拉雅德国慕尼黑感恩农场`
 
-### [5月7日美国政要和政评家反共推特精选](/content/gnews/20/README.md)
- ` 美国政要等...直译推`
+### [【每日快报】布林肯在联合国会议上与中共国和俄罗斯较量 2021.05.08](/content/gnews/27/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [【世事解评】新冠防疫流于形式、“毒”疫苗强制接种，动物防疫又如何行之有效？](/content/gnews/21/README.md)
- ` 纽约香草山MOS01`
-
-### [白宫新闻秘书透露一年后离职](/content/gnews/22/README.md)
- ` HimalayaRussia`
-
-### [视频美国能制造所有关键芯片，并拥有完整的芯片供应](/content/gnews/23/README.md)
- ` 秘密翻译组G-Translators`
-
-### [中共的病毒“解药”紧急上市？](/content/gnews/24/README.md)
- ` 丁过`
-
-### [2021年05月07日澳喜要闻（每日更新）](/content/gnews/25/README.md)
+### [在中共国的外资企业可能下一波的韭菜](/content/gnews/28/README.md)
  ` 澳喜农场`
 
-### [闫丽梦博士展示“中共生物战预测” 的突破性文件](/content/gnews/26/README.md)
- ` 闪电侠`
-
-### [英格兰历史之根基 （十五） 大宪章（下）](/content/gnews/27/README.md)
- ` HimalayaRussia`
-
-### [视频当委会弗兰克·加夫尼分析台湾半导体芯片产业和中共野心](/content/gnews/28/README.md)
+### [【粤语配音】习近平似「孤家寡人」、中南坑假「捷报」频传中共的DCEP数字货币遭世界封杀、经济一塌糊涂](/content/gnews/29/README.md)
  ` 秘密翻译组G-Translators`
 
-### [闫博士5月8日推文中的贺福初和法匹拉韦是怎么回事](/content/gnews/29/README.md)
- ` NewFOC`
+### [澳洲政坛高层有关人士对台言论说明了什么](/content/gnews/30/README.md)
+ ` 澳喜农场`
 
-### [英格兰历史之根基 （十五） 大宪章（中）](/content/gnews/30/README.md)
- ` HimalayaRussia`
+### [在这里，中共国在创纪录的时间内为埃及建造新首都](/content/gnews/31/README.md)
+ ` Shuizhuyu`
 
-### [豁免中共病毒疫苗知识产权 谁是最大受益者？](/content/gnews/31/README.md)
- ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
+### [“五一”旅游创收了啥？](/content/gnews/32/README.md)
+ ` 曹操`
 
-### [基里巴斯议员称中共国计划重启太平洋战略飞机跑道](/content/gnews/32/README.md)
- ` 康州盘古农场 Himalaya CT Pangu`
-
-### [英格兰历史之根基 （十五） 大宪章（上）](/content/gnews/33/README.md)
- ` HimalayaRussia`
-
-### [【世事解评】交通监控不断升级，所为行驶安全还是加重罚款？](/content/gnews/34/README.md)
- ` 纽约香草山MOS01`
-
-### [《路德时评》重磅解读法参议院通过台湾参与国际组织法案](/content/gnews/35/README.md)
- ` 香柏树`
-
-### [巴勒斯坦信徒与以色列警察发生冲突，130多人受伤](/content/gnews/36/README.md)
- ` 闪电侠`
-
-### [【战友心声】中共在末路上狂奔](/content/gnews/37/README.md)
- ` 纽约香草山MOS03`
-
-### [视频【字幕】5/7/2021文贵盖特 1：中国共产党这个流氓政府，为什么要在全国封杀购买比特币和加密货币？](/content/gnews/38/README.md)
- ` 纽约香草山MOS01`
-
-### [视频5/5/2021 郭先生直播（一）：全世界政府都在推销疫苗，意味着什么？](/content/gnews/39/README.md)
+### [5/8/2021 财经快讯：美就业数据远逊预期，印度暂停批准进口中共国制Wi-Fi设备](/content/gnews/33/README.md)
  ` 秘密翻译组G-Translators`
 
-### [战友展览板【5/7】](/content/gnews/40/README.md)
- ` wenwu`
+### [《文贵说》| 图片连载（八十一）](/content/gnews/34/README.md)
+ ` 文贵说｜Words From Miles`
 
-### [财经速递-三家中国电信公司将被纽交所退市](/content/gnews/41/README.md)
- ` 闪电侠`
+### [FACEBOOK“反川普”监督委员会的外国委员占四分之三](/content/gnews/35/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
 
-### [G7外长伦敦会议，俄罗斯中共国 成为首要议题](/content/gnews/42/README.md)
- ` 康州盘古农场 Himalaya CT Pangu`
+### [【热点播报】雪上加霜 中共国经济可能出现了滞胀](/content/gnews/36/README.md)
+ ` 纽约香草山MOS02`
 
-### [“一石三鸟”- 拜登呼吁开放CCP病毒疫苗专利对世界的影响](/content/gnews/43/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [2021/05/08 英喜时事速递](/content/gnews/37/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
 
-### [科技前沿- 星链SpaceX Starlink Internet服务在法国现在可用](/content/gnews/44/README.md)
- ` 闪电侠`
+### [CNN因川普总统卸任导致收视率下降25%](/content/gnews/38/README.md)
+ ` 曹操`
 
-### [美CDC高官将辞职，曾警告疫情大流行](/content/gnews/45/README.md)
- ` 闪电侠`
+### [2021年5月7日 文贵先生盖特 8](/content/gnews/39/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+
+### [重磅！巴西总统暗示中共病毒是来自实验室的生物武器](/content/gnews/40/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [2021年5月7日 文贵先生盖特 7](/content/gnews/41/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+
+### [2021年5月7日 文贵先生盖特 6](/content/gnews/42/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+
+### [美参院新设“白宫首席制造官”一职来应对中共国竞争](/content/gnews/43/README.md)
+ ` 曹操`
 
