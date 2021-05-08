@@ -1,45 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧盟批准欧中投资协议的努力在制裁后被搁置
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1185001/)
+## 川普力荐斯特凡尼克任众议院共和党大会主席
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1185131/)
 
-**原文: AFP**
+#### 译评：Kal  | 责编：沙拉猫
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07162851/capture-3.jpg)图片来源： The DC Patriot
+据布莱特巴特（Breitbart）新闻5月5日报道，前总统川普近日宣布支持众议员埃莉斯·斯特凡尼克（Elise Stefanik）取代利兹·切尼（Liz Cheney）担任共和党大会主席一职。
 
-**编译: 越野小兔** **审核: pv0 **
+报道指出，川普总统在一份对媒体的公开声明中称，切尼是一个“好战的傻瓜”，称她不该属于众议院共和党的领导层，而斯特凡尼克是共和党大会主席更好的人选，同时希望国会山的共和党议员们支持“让美国再次伟大”（MAGA）运动，推行“美国优先”的价值观。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07155020/00123-1.jpeg)**图片: Johanna Geron/EFE via EPA**
+据悉，众议院共和党人将在5月12日举行会议，就切尼的领导权地位进行投票，需要三分之二的不信任票才能将她赶下台。
 
+针对川普在共和党中的作用，以及川普反复质疑2020年总统大选结果，切尼多次发表声明攻击，这已表明她已不想继续留在这个领导职位。
 
+报道还指出，众议院少数党领袖凯文·麦卡锡（Kevin McCarthy）和众议院共和党党鞭史蒂夫·斯卡利斯（Steve Scalise）都支持斯特凡尼克接替切尼。斯卡利斯的女发言人对此次会议还做了进一步澄清，即众议院共和党人当下只需专注于在2022年夺回众议院，并对抗议长佩洛西和总统拜登的激进社会主义议案，而斯特凡尼克被认为能坚定地履行这一使命。
 
-欧盟最高级别贸易官员周二表示，鉴于双方在针锋相对的制裁后外交关系恶化，欧盟已暂停与中国敲定大规模投资协议的努力。
-
-欧盟委员会副主席瓦尔迪斯**· **东布洛夫斯基斯（**Valdis Dombrovskis**）在接受法新社采访时表示，**“**从某种意义上说，我们现在已经暂停了欧盟委员会与该协议相关的政治外联活动。**”**
-
-他指出，**“**欧盟对中（共）国实施制裁，而中（共）国对欧盟包括对欧洲议会成员实施反制裁，很明显，当前形势不利于批准该协议。
-
-他补充道，该协议是否能得到批准** “**取决于欧中关系的大背景将如何发展**“**。
-
-令许多人出乎意料的是，得益于德国的最终推动，欧盟和中（共）国在去年**12**月底批准了一项重要的投资协定，结束了长达**7**年的艰苦谈判。
-
-该协定可以说是欧洲企业急需的对中国长期封闭经济的开放，但在**27**个成员国和欧洲议会中肯定会面临批准的困难。
-
-拉脱维亚前总理东布洛夫斯基斯负责牵头欧盟就该协议的审批程序，而此程序已遭到欧洲议会关键议员的反对。
-
-在三月份，欧盟以涉嫌在中国西部新疆地区侵犯人权为名，制裁了四名中（共）国官员。
-
-中（共）国随即回应，对欧洲政界人士、学者和研究机构实施了制裁。
-
-
-
-**新闻来源: **
-
-[EU efforts to ratify China investment deal on ice after sanctions](https://hongkongfp.com/2021/05/04/breaking-eu-suspends-efforts-to-ratify-china-investment-deal-as-diplomatic-relations-sour/)
-
-
+面对川普总统的力挺，斯特凡尼克5月5日发推回应称, 她会团结共和党人，炒掉佩洛西，赢取2022年美国总统大选。
 
 * * *
 
-**发布: 法国巴黎七星编辑组**
+**评：**共和党众议员斯特凡尼克女士是坚定的灭共者。在2020年3月她就与霍利参议员共同提出两院制决议案，直指CCP病毒大流行是中共精心策划的，要求中共对放毒行为负责。同时她一直在推动立法工作，封堵中共对美国的各种渗透活动，如推行法案阻止那些与中共在美代理机构合作的美国高等教育机构获得联邦资金。
+
+共和党为了在2022年中期选举赢回众议院多数席位，急需要做的就是要团结党内力量。切尼作为现任众议院共和党大会主席，是支持投票弹劾川普总统的少数共和党人之一，其行为正在制造党内内耗与分裂，另找人选取而代之，已成为共和党党内的普遍共识。在这种情况下，36岁的斯特凡尼克年轻、能力出众，并且一直坚定地执行共和党的策略，是共和党人里的佼佼者，自然获得党内大佬的认可和推荐。在取代切尼问题上，斯特凡尼克同时获得了川普、众议院少数派领袖和党鞭等党内大佬的强势背书。斯特凡尼克已成为共和党内“冉冉上升”的政治新星，将发挥更加强大的灭共力量。
+
+&gt;&gt;原报道链接&gt;&gt; [Donald Trump Endorses Elise Stefanik to Replace Liz Cheney in Leadership Post](https://www.breitbart.com/politics/2021/05/05/donald-trump-endorses-elise-stefanik-replace-liz-cheney-leadership-post/)
+
+&gt;&gt;原报道链接&gt;&gt;[Stefanik, Hawley Introduce Bicameral Resolution to Hold China Accountable for Coronavirus Coverup](https://stefanik.house.gov/media-center/press-releases/stefanik-hawley-introduce-bicameral-resolution-hold-china-accountable)
+
+
 
 0

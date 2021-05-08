@@ -1,55 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【圣城传声筒】林郑涉嫌危害国家安全 理应判囚
-` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1185474/)
+## 疫情前线-墨西哥可能在6月生产俄罗斯人造卫星疫苗
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1185582/)
 
-作者：香草山香港部写作组
+**整理撰稿：蓝精灵**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07182524/581.jpg)
+墨西哥卫生部周五表示，随着政府审查其紧急使用授权，俄罗斯的人造卫星V- COVID-19疫苗很可能在6月的最后一周开始在墨西哥生产。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
+卫生部在一份声明中说，来自卫生安全机构Cofepris的专家将前往莫斯科，星期五收到了参观制造人造卫星V疫苗的俄罗斯Gamaleya研究所的邀请。
 
+俄罗斯开发的疫苗的最终包装将在墨西哥Birmex国家生物实验室进行，本周早些时候对该实验室进行了检查，验证了实验室的健康和安全状况。
 
+Cofepris期望在获得紧急使用授权之前，于5月下旬对疫苗进行必要的测试。
 
-继6日判决的2020.6.4和平烛光集会案，黄之锋、袁嘉蔚、梁凯晴、岑敖晖全部罪名成立之后，已经面目全非的香港司法继续上演着一个又一个荒谬绝伦的判决。
+如果获得预期批准，Sputnik V将成为继中国的CanSino（康希诺）和英国的阿斯利康疫苗之后在墨西哥大规模生产的第三种COVID-19疫苗。
 
-去年 5 月 24 日，大批市民在港岛游行，抗议《国歌法》及《国安法》。五旬前汕头大学文学院副教授，因为在马路举「五一」手势，高呼「五大要求」，被控在公众地方作出扰乱秩序行为罪。他早前认罪，还押至今（7日）在东区裁判法院判刑。主任裁判官罗德泉判刑时明言「坐监绝对恰当」，指当日的集结中有人破坏和纵火，人群情绪已经高涨，被告在如此恶劣的情况下，进一步推动他人情绪，后果可以一发不可收拾，最终判监3个月。
+声明补充说，Cofepris还将评估一剂Sputnik Light疫苗，包括初步的三期试验。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07173810/%E5%9B%BE%E7%89%871.jpg)(图片引自[立场新闻](https://www.thestandnews.com/court/%E8%AA%8D%E9%A6%AC%E8%B7%AF%E8%88%89-%E4%BA%94%E4%B8%80-%E6%89%8B%E5%8B%A2-%E5%89%8D%E5%A4%A7%E5%AD%B8%E6%95%99%E6%8E%88%E5%88%A4%E7%9B%A3-3-%E5%80%8B%E6%9C%88-%E5%AE%98-%E5%9D%90%E7%9B%A3%E7%B5%95%E5%B0%8D%E6%81%B0%E7%95%B6/))
+**编者简评：**
+小资料补充：2020年11月7日，中国康希诺疫苗宣布启动在墨西哥开发重组疫苗的第三期临床试验。墨西哥政府于10月就批准了这项研究。很多康希诺自己发布的消息中都显示类似这样的语句：“康希诺生物科技有限公司与军事科学院生物技术研究所合作，计划在。。。。。。”
 
-50 岁被告郭伟文早前自行求情称，他在香港长大及接受教育，在香港念大学，拥有硕士及博士学位，曾在大专院校任教，2010 至 2017 年在内地大学任教。他指自己在大学任教批判思考及哲学，自己行径亦偏向理想主义。
+*以上仅代表作者观点，不代表Gnews平台*
 
-郭伟文称自己热心参与公益事务，如捐血 30 多次。他亦一直奉公守法、支持法治，强调法治是「尊重人的法治」及「真法治」。因社会有很多不公义，其行为是为社会争取公义及发声。郭伟文呈上信件，解释举手势原因，「我唔清楚求情界线，我想讲我点解想做呢件事」。
+**参考链接：**
+[https://www.reuters.com/world/americas/mexican-production-sputnik-v-vaccine-likely-by-late-june-health-ministry-2021-05-07/?taid=6095b60d4492f900010b8bf7&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/americas/mexican-production-sputnik-v-vaccine-likely-by-late-june-health-ministry-2021-05-07/?taid=6095b60d4492f900010b8bf7&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-一个个在过往几十年中品行记录良好的香港市民，都不约而同地在港版《国安法》实施前后短短两年间由于政府为了强行通过一个不义之法而成为暴徒，试问当今文明世界还有比这更骇人听闻的事情吗？一个真正的文明社会是导人向善，倘若相反令到好人都成为暴徒，那这个社会不是野蛮社会是什么？
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07173822/%E5%9B%BE%E7%89%872.jpg)(图片引自自由亚洲电台)
-
-另外，港人因为对港共政府的彻底失望或者极度厌恶而用脚投票，近期移民潮已创回归后新高。然而港共政府特首林郑月娥竟然于近日形容有关港人移民的报导“夸大失实”，更笑言“所有离开的都是逃犯，我们不在乎”。按郭伟文案法官的逻辑，目前香港市民的移民情绪已经高涨，社会气氛已非常不安，而身为行政长官的林郑，竟然发表如此恶毒的言论，必定更加激起市民的反感，进一步推高他人厌恶情绪，引发更大的移民潮和走资潮，无疑会严重危及香港经济甚至国家安全。罪行如此严重，理应判囚！
-
-参考阅读：
-
-[认马路举「五一」手势 前大学教授判监3个月 官：坐监绝对恰当|立场报道|立场新闻 (thestandnews.com)](https://www.thestandnews.com/court/%E8%AA%8D%E9%A6%AC%E8%B7%AF%E8%88%89-%E4%BA%94%E4%B8%80-%E6%89%8B%E5%8B%A2-%E5%89%8D%E5%A4%A7%E5%AD%B8%E6%95%99%E6%8E%88%E5%88%A4%E7%9B%A3-3-%E5%80%8B%E6%9C%88-%E5%AE%98-%E5%9D%90%E7%9B%A3%E7%B5%95%E5%B0%8D%E6%81%B0%E7%95%B6/)
-
-
-
-编辑/校对/发稿：小鹿
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205738/M5-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
-
-
+***校对发布**：文顾*
 
 0

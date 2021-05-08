@@ -1,34 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共南海非法主权扩张还源于争夺稀土资源
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1185499/)
+## 科技新闻-美国太空编辑揭示中共国国家火箭公司一开始就追踪SpaceX
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1185660/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+**整理撰稿：蓝精灵**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07185054/chinese-starship-800x455-1.jpg)
+在南京的第六届“国家太空日里，中共国有火箭制造商中国运载火箭技术研究院展示了亚轨道点对点运输的潜力。它的概念是车辆从地球发射，飞入亚轨道空间，然后在不到一个小时的时间内降落到地球的另一边位置。
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/05/S-4.jpg)motherboard.vice.com
-外交学者杂志 (The Diplomat)5月6日社评揭露了中共声称对南海拥有主权的深海动机。在这片有争议的海域的底部，蕴藏着对中共科技雄心至关重要的稀土资源。
+[在中共国社交网络上](https://m.weibo.cn/status/4629935237105404)捕获的促销视频展示了从现在起，大约二十年内实现亚轨道旅客飞行的两种不同概念。该视频的有趣之处在于，第一个概念非常类似于SpaceX的Starship运载工具。它显示了能够垂直起飞和垂直降落的大型车辆。
 
-今年3月，200多艘中共国海警船在南沙群岛圣灵礁集结，他们的出现预示着中共有意染指南中国海“九段线”周围大片区域的领土主权。菲律宾政府拉响了警报，重申2016年国际仲裁庭的裁决，该裁决否认了中共以前主张的合法性。中共政府拒绝接受裁决且继续在南中国海加强有争议的区域的军事建设。此举加剧南中国海的紧张局势，已有多位美国专家对中美之间的战争风险发出了警告。
+这个概念不仅在Starship的外观上很显着（车辆的外观像Starship的不锈钢结构一样有光泽，而且第一和第二级同样是无缝的），但在功能上也是如此。尽管星际飞船主要是作为将人类带到月球和火星的工具而得到推广的，但SpaceX还开发了点对点的概念。
 
-南中国海的水域为国际关键贸易路线，由此局势带来的自由和不受限制地进入及穿行这些水域的风险，已经引起了世界各国的关注。中共在该地区的海军存在达到了创纪录的水平，并计划进一步增长。美国也加强了在该地区的海军部署，美国总统拜登(Joe Biden)表示，他有意在印度洋-太平洋地区保持强大的影响力。欧洲联盟发布了期待已久的印度洋-太平洋战略，该战略再次强调自由开放国际水域和贸易路线的必要性。联合国正在向该地区派遣一支军舰舰队，这是自1982年马尔维纳斯/福克兰群岛战争以来其部署的最大舰队。考虑到所有这些强化部署，已引发广泛的有关战争前兆的担忧。
+SpaceX于2017年9月首次公开了这种“地球”概念。[当时发布](https://www.youtube.com/watch?v=zqE-ultsWt0)的[视频](https://www.youtube.com/watch?v=zqE-ultsWt0)显示，星际飞船从纽约市到上海的亚轨道飞行时间仅为39分钟，并宣传了“地球上任何地方的飞行时间不到1小时。”
 
-然而，在南中国海爆发战争的可能性不大。对中共来说，中共将继续利用蚕食的“灰色地带”策略，扩大其在南中共海的势力范围， 进而避免直接的武力冲突。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07184753/CALT-video-0-23-screenshot.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07184823/CALT-video-0-27-screenshot.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07184920/CALT-video-0-29-screenshot.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07184938/CALT-video-0-30-screenshot.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07185004/CALT-video-0-42-screenshot.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07185025/CALT-video-0-48-screenshot-1.png)
 
-中共正在积极地与全球其他大国竞争，力求在化石燃料的清洁替代品市场占据主导地位，这一竞争正在成为21世纪的重大经济竞赛。中共毫不掩饰想成为电池生产领域的世界领导者，与此同时，中共的目标是成为全球领先的先进电子产品制造商。随着“中共国制造2025”作为习的重要经济平台，中共力图在半导体、航空航天技术、机器人等重点制造业领域取得扩大和创新。
 
-这些电池和先进的电子设备依赖于稀土元素的提取和提炼。中共的一个核心战略目标是保持其在稀土市场的市场主导力量。在过去30年里，中共国主导了稀土生产和出口市场，其稀土产量远远超过世界消费量的90%。为了应对稀土需求保持稀土市场的主导地位，中共已开始在海外寻找增加稀土供应的途径。南中国海的海床含有丰富的被称为多金属结核的小块矿物。中共已经发展了世界上最先进的深海开采技术，其捕获多金属结核和其中的稀土的能力是无与伦比的。随着国际海底管理局出台新的采矿法规，中共确保继续获取这些海底矿产和海上稀土供应的最佳方式是将这些水域视为主权领土。
+中文视频中的第二个点对点概念显示了一种水平起飞，水平着陆的车辆，它使用了某种电磁弹射器，这两个系统都是中共国[先前宣布的](https://www.chinadaily.com.cn/china/2017-11/17/content_34653486.htm)到2045年发展全球点对点运输[计划的](https://www.chinadaily.com.cn/china/2017-11/17/content_34653486.htm)一部分。根据该国的长期规划目标，中共国工业将在2035年开始通过亚轨道飞行在全球范围内运送货物，并在2045年之前开始在全球运送旅客。 。
 
-如果中共国的目标是控制至少未来25年的稀土供应和价格，那么打一场战争将适得其反。事实上，中共国非常清楚自己目前在稀土市场上的影响力。2010年，一艘中共国拖网渔船在东海尖阁列岛(钓鱼岛)附近受撞后被日本海上保安厅扣押。由此引发的争端震动了该地区，中共禁止对日本出口稀土，并对世界其他地区实行稀土出口配额，随之而来的是高达200%的价格暴涨，显示了中共对稀土行业的控制力。
+这不是中共国航天计划第一次从SpaceX那里汲取灵感。
 
-价格的飙升和供应的下降吸引了新的参与者进入稀土开采业务。美国国防部就其对中共矿产资源的依赖展开了调查，数十家私营企业也进入了这个市场。在被称为“2010-2012年稀土危机”的事件中，中共认识到，限制供应或过度提高价格将削弱其自身的市场地位。到2014年，中共国取消了配额，恢复了对日本的出口，价格也下降了。稀土市场的新进入者逐渐消失，但它们重新崛起的威胁挥之不去。
+该国从一开始就跟踪SpaceX，尤其是对SpaceX计划重复使用火箭的第一阶段感兴趣。正如《[*Liftoff*](https://www.harpercollins.com/products/liftoff-eric-berger?variant=32126620205090&amp;utm_source=Eric+Berger&amp;utm_medium=athrtwttr&amp;utm_campaign=Liftoff+Announcement)》一书中报道的那样，在该公司于2006年首次发射时，一艘中共国间谍船就在那片小小的海洋中。
 
-从这一教训中，中共国的目标不再是利用其市场力量侵蚀全球稀土供应。相反，其目标转向确保稳定的稀土供应，以满足不断扩大的国内需求，同时继续主导全球市场。如果中共国能够保证其生产所需的充足且低成本的稀土资源，那么在未来几年中共国将处于有利地位。
+最近，在2019年中共国长征2C火箭对“格栅鳍”进行了测试，就像猎鹰9火箭第一阶段使用的那样，以便在再入过程中引导自己穿越大气层。中共国打算像“猎鹰9”助推器那样，将“长征8月8日”火箭开发到[海上平台上](https://spacenews.com/china-rolls-out-long-march-8-rocket-for-weekend-test-flight/)，而像[LinkSpace](https://phys.org/news/2017-09-footsteps-spacexa-chinese-company-eyes.html) 和 [Galactic Energy](http://www.galactic-energy.cn/index.php/En/List/cid/15)这样的半私有中共国公司 似乎在模仿SpaceX的发射技术。
 
-因此，国际社会需要认真对待中共逐步扩大其海上势力范围，重申其在南中国海主权主张的动机。任何针对这些反复出现的领土争端提出解决方案，如果忽视中共稀土市场力量的经济必要性，都有可能会失败。
+尚不清楚中共国是否还会开发类似星际飞船的行星际运输工具。目前，该国计划开发一种更传统的超重型起重器， [称为“长征9月9日”火箭](https://arstechnica.com/science/2021/02/china-officially-plans-to-move-ahead-with-super-heavy-long-march-9-rocket/)，以及类似于SpaceX的Falcon Heavy火箭的三核助推器。
 
-参考链接：
-[https://thediplomat.com/2021/05/chinas-deep-sea-motivation-for-claiming-sovereignty-over-the-south-china-sea/](https://thediplomat.com/2021/05/chinas-deep-sea-motivation-for-claiming-sovereignty-over-the-south-china-sea/)
+**编者简评：**
+
+本文作者：埃里克·贝尔格（Eric Berger）是Ars Technica的高级太空编辑，涵盖从天文学到私人太空再到美国国家航空航天局的所有内容，并且是有关SpaceX崛起的书[Liftoff的](https://www.harpercollins.com/products/liftoff-eric-berger?variant=32126620205090)作者。
+
+他还录制了视频放在Youtube上，就中共国的火箭公司抄袭SpaceX的概念进行了说明和对比。特斯拉一直在被抄袭，在网上有很多很有趣的故事，例如有一张图片显示的一个时间点：
+
+- 2014年6月12日马斯克宣布免费公开特斯拉所有专利
+- 2014年6月21日特斯拉全球公布271项专利，其中发明专利263项，外观专利8项
+- 2014年7月23日乐视汽车成立
+- 2014年11月蔚来汽车成立
+- 2015年1月9日小鹏汽车成立
+- 2015年7月理想汽车成立。
+
+
+\*以上仅代表作者观点，不代表Gnews平台\*
+
+**参考链接：**
+
+[https://arstechnica.com/science/2021/04/chinas-state-rocket-company-unveils-rendering-of-a-starship-look-alike/](https://arstechnica.com/science/2021/04/chinas-state-rocket-company-unveils-rendering-of-a-starship-look-alike/)
+
+***校对发布**：文顾*
 
 0

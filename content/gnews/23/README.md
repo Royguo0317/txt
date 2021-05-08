@@ -1,53 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】菲律宾总统杜特尔特将退回中国疫苗
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1184822/)
+## 病毒危机 导致营业税暴跌
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1185573/)
 
-作者：纽约香草山佛教部    Nancy（孤独的战友）
+```
+新闻来源：德国时代报 网络版
+发表时间：2021年5月7日
+翻译整理/ 简评： Shuizhuyu
+```
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/493bfb0d70a451aff59c927ce8239413.jpg)网络图片
+由于病毒危机，巴登、符腾堡州的市政在2020年失去了贸易税收入。正如国家统计局周五在斯图加特宣布的那样，这一数字下降了19％，为64亿欧元。扣除贸易税分配后，他们可动用的资金为58亿欧元，比2019年减少7.34亿欧元。减少了11.1％。经济在2019年已经疲软。
 
+在各个农村和城市地区，贸易税收的发展存在明显差异。有些地区的贸易税净收入有所增加，例如弗莱堡（增加1.3％），或者内卡-奥登瓦尔德-克雷斯（Neckar-Odenwald-Kreis）地区（增加7.3％）或海登海姆地区（增加7.0％）。路德维希堡（负30.5％）和埃斯林根（负25.0％）地区的降幅最高。在城市地区，贸易税的净收入显着下降，特别是在斯图加特（负21.4％），卡尔斯鲁厄（负20.4％）和海尔布隆（负19.2％）。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+#### **简评：**
 
+**一条简短的新闻，病毒危机的后续损失，正在计算中。一年多的封锁，各种商业和服务业的关门停业。造成营业税的减少是必然的。但是造成的减少如此之多，这个数字的统计还只是一个联邦州的损失。这个损失的背后是多少人的失业的结果。经济受到重创是必然的。这个损失的补救可能需要老百姓几年或者几十年的努力才能偿还。多少人会因此放弃已经支付了一半的房产，老百姓很悲催。**
+（本文仅代表译者个人观点，跟GNEWS平台无关。）** **
 
+**新闻原文链接：🔗**[Corona-Krise sorgt für Einbruch bei Gewerbesteuer](https://www.zeit.de/news/2021-05/07/corona-krise-sorgt-fuer-einbruch-bei-gewerbesteuer)
 
-据德国明镜周刊2021年5月7日清晨报道，中（共）国曾向菲律宾捐赠了一千剂量的国药集团疫苗（Sinopharm），而菲律宾国家元首杜特尔特也已经接种了这种疫苗。其后，该疫苗受到菲律宾国内的批评，杜特尔特现在决定将疫苗退还中（共）国。
+* * *
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07165343/image-104.png)图源网络：菲律宾总统杜特尔特在接受国药集团疫苗接种时的情景
-
-据报道，菲律宾总统罗德里戈-杜特尔特（Rodrigo Duterte）本周接种了中（共）国制造的疫苗Sinopharm，医生为他接种疫苗的过程也在电视上进行了直播。其目的是，为了鼓励人们仿效他去打疫苗，以对抗冠状病毒的危害。不料，杜特尔特为此受到了严厉的批评——因为他选择了一种尚未被该国监管机构批准的疫苗（Sinopharm）。
-
-杜特尔特随后在周三要求中（共）国收回捐赠给菲律宾的一千剂国药集团疫苗——这是明镜周刊引述CNN的消息。根据该报告，有关部门批评杜特尔特接受未经授权的疫苗针剂。为此，杜特尔特向公众表示道歉。据报道，杜特尔特通知中（共）国大使停止再向菲律宾发送国药集团疫苗（Sinopharm）。据当地媒体报道，杜特尔特表示：”我们仍可继续使用Sinovac疫苗。”这种疫苗（Sinovac）是今年2月份在菲律宾的一次紧急情况中使用的另一种中（共）国疫苗。
-
-**作者评论：**
-
-中共国内以各种手段诱惑百姓打疫苗：送油、鸡蛋，甚至送钱。更离奇的是，打疫苗还和工作分配、子女就学等等联系起来。中共为了推进疫苗注射工作，各种稀奇古怪的招数都有。但百姓不是傻子，心里都有数，谁也不想当他们的小白鼠。所以，民众想尽一切办法进行抵制。如今，菲律宾总统对中（共）国疫苗也表示了不信任。今后疫苗的趋势如何，我们可以拭目以待。
-
-参考阅读：
-
-[Philippinen: Rodrigo Duterte schickt Impfstoff nach China zurück – DER SPIEGEL](https://www.spiegel.de/ausland/philippinen-rodrigo-duterte-schickt-impfstoff-nach-china-zurueck-a-f0510ff3-966d-4214-b939-6311bce6e5f8)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
+***编辑整理/校对:** Ting Guo*
 
 0
