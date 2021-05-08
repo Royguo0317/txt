@@ -1,150 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 战友展览板【5/7】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1185715/)
+## 英格兰历史之根基 （十五） 大宪章（中）
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1186073/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
+俄罗斯莫斯科喀秋莎农场   和风
 
-【以毒灭共】推文。如下
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07191812/E0tHCa5WYAIxnIN.jpeg)1. **[最后一根稻草推特](https://twitter.com/starstuded11/status/1390283025485864961)**：
-*全球前五十名冠状病毒科学家*
+编辑   银河 星河   上传   银河
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07211950/Snipaste_2021-05-08_04-19-29.jpg)[livelaw.in](https://www.livelaw.in/the-legacy-of-the-magna-carta/)
 
+**第一卷  根基**
 
-> The cause of this pandemic is the most important question facing the world. This week, I wrote to Dr. Fauci demanding answers to questions we cannot ignore about Covid’s potential lab origins, the role of US funding for Chinese labs, and his support for this reckless research. [https://t.co/XvYqL89PUK](https://t.co/XvYqL89PUK)
-> — Rep. Mike Gallagher (@RepGallagher) [May 7, 2021](https://twitter.com/RepGallagher/status/1390479982389080065?ref_src=twsrc%5Etfw)
+**英格兰历史：从原始时期至都铎王朝**
 
+**第十五章  大宪章（中）**
 
-2. **[众议员RepGallagner推特](https://twitter.com/repgallagher/status/1390479982389080065?s=21)**：
-***（Josh Rogin)**新闻：**[国会终于开始调查实验室意外事件，即新冠病毒实验室起源论](https://www.washingtonpost.com/gdpr-consent/?next_url=https%3a%2f%2fwww.washingtonpost.com%2fopinions%2fglobal-opinions%2fcongress-is-finally-investigating-the-lab-accident-covid-19-origin-theory%2f2021%2f05%2f06%2fd7bfb0e4-aeaf-11eb-b476-c3b287e52a01_story.html)**
+之后就剩一个人了。亨利二世最小的儿子约翰幸存下来。他是英国历史上最有趣的一个国王，主要因为他有臭名昭著的名声。在被认为英国最“邪恶”的国王中，他与理查德三世有一比。事实上，理查德和约翰相对于许多其他受人赞美的君主来说，他们不是最恶毒最狡猾的。然而，在选择写他们编年史的作家手下，他们或许是不幸的。约翰统治时的两个僧侣编年史作家，先后有文多弗（Wendover）的罗杰和马修·巴黎（Matthew Paris），两个人始终是敌对的。当然，莎士比亚不像任何其他人，他为后代定义了约翰的形象。其定义完全是戏剧化的，但相当地夸张，事件的不同说法都被关联了起来。走进约翰国王，随舞台的火焰跳动吧。
 
-**（众议员）**这种流行病出现的原因是世界面临的最重要问题。这周，我给福奇博士写了信要求回答，我们不能忽视的关于新冠病毒潜在实验室起源、美国资助中国实验室的作用以及他对这项鲁莽研究的支持的问题*
+我们已经瞥见了约翰的早期生活，他对自己的父亲和哥哥都不忠诚。然而，他仍然是金雀花王朝的一员，家族的血统是不可改变的。亨利二世任命他为“爱尔兰领主”，但他证明自己不能胜任这个工作。他的年轻气盛和愚蠢使自己与那个国家的当地领导人疏远了。后来，他得到整个安茹帝国（Angevin Empire）的庄园和城堡，并且还掌管着六个县，这些县把税收直接交给他的金库。当理查德一世离世后，他在英格兰和诺曼底分别建造了自己的宫廷，更狡猾、更有雄心的富豪们加入了他。他是正在崛起的一个王子。
 
+然而，他不是王位的唯一继承人。理查德一世曾提名布列塔尼的亚瑟做他的继承人，就像我们看到的那样，十二岁的侄子是约翰继位的真正威胁。安茹的男爵们是安茹帝国的一个组成部分，他们已经在支持这个男孩了。阿基坦省处于举足轻重的地位。英国和诺曼底的富豪带着谨慎和狐疑支持约翰。尽管人们认为他不是英国人，但他至少比布雷顿·亚瑟（Breton Arthur）有更多的英国血统。听到他哥哥去世的消息后，约翰急忙赶到诺曼底，在鲁昂大教堂，他被封为公爵，然后，他乘船前往英格兰。1199年春天，在威斯敏斯特，约翰被加冕为国王。他只花了一个月的时间来索取自己的权力。
 
-> “Significance: An unresolved issue of SARS-CoV-2 is patients often remain positive for viral RNA as detected by PCR many weeks after initial infection lack of evidence for viral replication…(The data)help to explain why patients can continue to produce viral RNA after recovery” [https://t.co/vGwipwsA90](https://t.co/vGwipwsA90)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 7, 2021](https://twitter.com/DrLiMengYAN1/status/1390509833653215233?ref_src=twsrc%5Etfw)
+他比理查德矮大约12英寸（30公分），一直与哥哥和父亲进行暗自较量。他真正生长在充满争斗和怀疑的宫廷里，一个哥哥陷害另一个，兄弟们合起来反对父亲，他感受的痛苦远比普通人，所以他给人留下谨慎而多疑的印象并不奇怪。他日常生活中佩戴着武器，身边还有一个保镖。
 
+他不是没有幽默感，尽管常常是反常的幽默。当他带着自己的马在诺森伯兰郡阿尼克（Alnwick）附近一片湿地上转悠时，他设计了一套对该镇不维护道路人的惩罚办法，他命令：在圣马可节（St Mark’s Day）这一天，每个新来的居民都要步行走过那片湿地。十九世纪初，人们仍然能看到这个习俗。当教皇把英国驱逐出教会后，这位国王命令：把所有牧师的情妇关押起来，等着牧师情人把她们赎回。这是一个有趣的惩罚。他统治时，还留下了另一个有趣的回忆。在法律卷宗中，出现了一些前所未有的数字，其中一个是：“休·德·内维尔（Hugh de Neville）的妻子与丈夫睡一晚上，就要送给这位霸道的国王两百只鸡。”它的暗含不清楚，但可能意味着，这位妇人是国王的一个情妇，她现在要求短暂地回到自己的婚床上。这三个事件从侧面揭示了中世纪的生活，这是焦虑和残酷并存的年月。
 
-3. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1390509833653215233)**：
-*（上）[“他们与美国国家癌症研究所的斯蒂芬·休斯合作，后者提出了一个实验，以澄清整合是真实的还是噪音……结果支持原来的假设，休斯说，”这种分析已经变成了重要的”](https://www.sciencemag.org/news/2021/05/further-evidence-offered-claim-genes-pandemic-coronavirus-can-integrate-human-dna)
+约翰国王（King John）能发脾气，就像金雀花王朝的前辈一样。当法弗沙姆（Faversham）的僧侣占领了自己的教堂，以阻止国王挑选的上司时，国王命令把这座修道院统统烧掉。没有人服从国王，他服软了。君主们不论男女，总是有坏脾气，这是他们权力的一个方面。
 
-（中）[“在极少数情况下，人类细胞中的一种酶可能将病毒序列复制到DNA中，并将其滑入我们的染色体中……。在正常情况下，可用的反转录机器很少……最初提交的期刊如何？他们拒绝了它”](https://www.pnas.org/content/118/21/e2105968118)
+在他统治的最初几年，一个残酷或无情的因素显现了。布列塔尼的亚瑟已经逃到法国国王的宫廷，目的是远离叔叔的视线。然而在1202年，约翰找到了他。他们俩都在法国参加争夺金雀花王朝土地的军事行动。法国国王把这些土地分配给了亚瑟，但约翰认为它们是自己应有的遗产。亚瑟现年十五岁，正在围攻古老的米雷博（Mirebeau）城堡，它坐落在法国中西部的普瓦捷（Poitiers）附近，他奶奶阿基坦的埃莉诺（Eleanor of Aquitaine）住在城堡里。孙子威胁奶奶的场景进一步揭示了金雀花王朝的特性。
 
-（下）”意义重大。SARS-CoV-2的一个悬而未决的问题是，患者在初次感染后许多星期，通过PCR检测到的病毒RNA仍然是阳性的，缺乏病毒复制的证据……（这些数据）有助于解释为什么患者在康复后能继续产生病毒RNA”*
+约翰接到围攻的消息后，带着他的部分军队日夜兼程，48个小时走了80英里（130公里）。亚瑟和其军队出其不意地被包围了。这个男孩被约翰监禁起来，关入诺曼底的一个地牢里。在与叔叔的一次交谈中，他表现得目中无人。他索要英格兰以及理查德传给他的所有土地，似乎还说：约翰死前，他不会给约翰一刻的安宁。这或许是不明智的。他被转移到自己公国首府鲁昂的一个地牢里，从此再没有人见过他。
 
+这个故事还有更生动的描述：约翰带着金雀花王朝的愤怒，挥起一把剑捅死了他侄子，然后把他扔进塞纳河（Seine）。或者是约翰雇用了一个刺客。没有人非常清楚。然而，确凿的事实是，亚瑟在一两个月后就死了。1203年春天之前，人们普遍相信，国王与杀害他侄子的事件必有牵连。人们常常把该事件与另一事件相提并论，即：理查德三世在塔楼里杀死了两个侄儿王子，但这两个事件没有真正的可比性。有人说，教皇英诺森三世（Pope Innocent III）说过，亚瑟“被关在米雷博，他反叛君主，并叛逆了曾经宣誓尊敬和效忠的叔叔，他被判为死罪是不需要裁决的，即使是最可耻地死去”。一个十五岁的孩子被当作成年人了。
 
-> 👍🏻👍🏻👍🏻
-> Btw, don’t trust [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) vaccines developed by CCP! They never had any successful vaccines development in the history. [#CCPLiedPeopleDied](https://twitter.com/hashtag/CCPLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw)[#UnrestrictedScientificMisinformation](https://twitter.com/hashtag/UnrestrictedScientificMisinformation?src=hash&amp;ref_src=twsrc%5Etfw)[#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/uGqyZYGXxq](https://t.co/uGqyZYGXxq)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 7, 2021](https://twitter.com/DrLiMengYAN1/status/1390466724290519046?ref_src=twsrc%5Etfw)
+虽然亚瑟的死是约翰必须和不可避免的反应，但却有助于离间约翰在诺曼底和其他地方的固有支持者。人们甚至对他发起了更严厉的指责。有人批评他在对抗法国国王的战争中无动于衷或者懒惰。他的行为不像一个国王。一位编年史作家声称：约翰呆滞，而他哥哥证明自己是有活力和有能力的。他被称为“软剑约翰”（John Softsword）。据说，他被有巫术的妻子伊莎贝拉（Isabella）附魔了。他更像是迷恋于王权的力量和威严，拒绝相信更坏的事情。但更坏的事情发生了。国王菲利普越来越逼近诺曼底，该公国的大部分男爵背叛了约翰。他们不再相信英国国王有足够的能力维持王室的统治。不久，只剩下很少的人在法国为约翰打仗。当他四周的安茹帝国崩溃时，他乘船返回英格兰。1204年6月，菲利普占领了诺曼底。该公国里约翰曾经拥有的所有地盘都成为海峡群岛（Channel Islands）。安茹帝国本身，只有加斯科涅（Gascony）保留了下来。这是约翰整个统治期所遭遇的最大的单个打击。
 
+在联盟150年后，英格兰脱离了诺曼底，人们认为这是自然和不可避免的发展，由此，法国人清醒地意识到自己的民族特性。一种国家意识建立起来，这是由卡佩王朝（Capetian）开创的。然而在那个年代，对英格兰国王来说，这个脱离不算什么，比不上一场灾难。他失去了来自于诺曼底、安茹和缅因的大量税收收入，当然，更严重的是，他丧失了自己的威望。其他后果接踵而至。盎格鲁-诺曼的贵族失去了自己的半个身份。他们一旦失去了诺曼底的土地，显然就会把精力集中在近处，即现在是他们“家”的地方。他们逐渐变得更像英国人了。就像十世纪那样，英吉利海峡变成了边界，约翰国王开始建设海军以保卫英国海岸线。这位国王不再拥有诺曼底，导致他对英格兰付出了更多的关注。
 
-4. **[闫丽梦博士推特](https://twitter.com/drlimengyan1/status/1390466724290519046?s=21)**：
-***（法新社）**视频：总统贾伊尔·博尔索纳罗在最新评论中表示，新型冠状病毒可能是在实验室制造的，以发动“生物战”，这可能会给巴西与中国的关系带来压力
+他保留了前朝的行政人员，非常明白政府机关依赖他们。比如，我们能够查找到十三世纪初的广泛使用的文字记录，这些记录是国家的法律文件。从事进出口必须使用执照，贸易规则必须要落实到文字上，税收系统也被标准化了。必须以严格的标准维护货币和信用。所有这些都依靠墨水而不是依靠习俗或者口头传授。国王宫廷的不同部门开始了创造业绩的习惯。信件开始送达到全国各地，各地的回复被限制在令状的范围内。每天记录的财政支出日记被保留下来。新颖而快速的手写形式得到了发展，修道院书法让位给所谓的“草书”体，草书这个词来源于拉丁语“流畅”。世界的发展变快了。
 
-**（闫）**顺便提一下，千万别相信任何中共新冠疫苗！ 他们在历史上从未成功开发过任何疫苗。
-#中共撒谎人类死亡
-#超限生物武器
-#超限科学误导
-#超限生物战*![将继续存在]()![将继续存在](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07195146/E0wxgxVWQAIZOOh-2.jpeg)5. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1390541434390994945?s=20)**：
-*随着我们开始解决 #新冠病毒 的真正起源，一个重要的区别将继续存在-道德清晰度@hkakeya
-但是
-@Ayjchan
-她年轻和缺乏经验是可以原谅的。中国共产党的有罪科学家和美国科学家都必须承担责任*
+同一时期，战争以及准备战争的费用都要从国家财政中收取。约翰国王仍然希望赢回安茹帝国，但为此，他需要金钱。他或许比不上哥哥和父亲严厉，但却是比较巧妙的。他发现了获取收入的新办法，1207年，所有阶层的人，其收入和动产的十三分之一都要拿去交税。这是征收综合税前的第一个行动。抗议的声音是那样地强，使得他从未实施这个行动。
 
+十年来，他为了找钱，走遍了他的王国。他不知疲倦，总是匆匆忙忙，通常住在任何一个地方都不会超过两三天。1205年，他在伦敦和威斯敏斯特只住了二十四天，剩下的时间都花在路上了。在一个寒冷冬季结束时，他走到了遥远的北方。他让约克郡和纽卡斯尔（Newcastle）交罚金，因为他没有受到适当的大型招待。他到处去找钱。在走访诺森伯兰郡赫克瑟姆（Hexham）时，有人告诉他，罗马的金银财宝被埋在科布里奇（Corbridge）附近，他便命令军人去挖掘，但地下什么都没有。
 
-> In [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw), the military doesn’t just talk. There are no indications that its biological weapons experts and researchers work under ethical or legal restrictions. [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/lOFI4UMET2](https://t.co/lOFI4UMET2)
-> — Gordon G. Chang (@GordonGChang) [May 7, 2021](https://twitter.com/GordonGChang/status/1390687957976338433?ref_src=twsrc%5Etfw)
+在匆忙的旅行中，他经常一天走30英里（48公里），在给臣民伸张正义上，他表现出特殊的兴趣，主要是因为他希望得到税收。约翰的家庭教师是雷纳夫·德·格兰维尔（Randolph de Glanville），我们已经提到过他的法律论文，约翰的行为或许和老师存在某些关联。约翰曾经声称：“我们的和平应该受到不可侵犯地维护，即使对一条狗也如此”。
 
+所以，约翰在政府管理和司法制度细节上花了许多精力，与哥哥的漫不经心相比，他是相当勤奋的。如果他是多疑的，那么他也是谨慎和好奇的。大多数人以前从未见过他们的国王。然而现在，他穿着公务长袍在提问、要价和评判。他的声音就是法律的声音。他喜欢好的宝石，看到珍宝就兴奋。他定期和经常洗澡，十三世纪之前的人几乎没有这个习惯。国王的身体——肉体和血液——都是神圣的。这是中世纪统治的本质。
 
-6. **[章家敦推特](https://twitter.com/GordonGChang/status/1390687957976338433?s=20)**：
-***（苹果日报Jack Hazlewood)**爆炸性新闻:[文件显示，在美国新冠病毒大流行的五年前，中共国军方科学家就讨论过将SARS冠状病毒武器化](https://www.theaustralian.com.au/subscribe/news/1/?sourceCode=TAWEB_WRE170_a_TWT&amp;dest=https%3A%2F%2Fwww.theaustralian.com.au%2Fnation%2Fpolitics%2Fchinese-military-scientists-discussed-weaponising-sars-coronaviruses%2Fnews-story%2F850ae2d2e2681549cb9d21162c52d4c0&amp;memtype=anonymous&amp;mode=premium&amp;nk=6c8f37f8c55ab5bb21bd573a234477d4-1620432140)
-@国务院
-消息人士证实，他们在2020年5月获得了这些文件
+这也是价格高涨的年月。人口的快速增加意味着生活的共同资源更供不应求更昂贵了。我们能从财政和人口两方面发现原因。从东德（eastern Germany）银矿进口的银子增加了货币的流通，结果在十二世纪末的二十年里，价格上升了100-200%。这是观察大规模叛乱以及《大宪章》(《Magna Carta》)形成的合适背景。连续的“通货膨胀”，使用这个现代词来描述，对国王、贵族和老百姓产生了同样的影响。尤其是，战争变得更加费钱了。为了给国王的军事抱负提供钱财，国王越来越多地从流通中取钱，从而造成经济衰退，打仗成本变高与经济衰退纠缠在一起了。因此，国王在每个方面都受到限制，似乎有自然力量在阻止他。
 
-**（章）**在 #中共国，军方并不只是说说而已。没有迹象表明其生物武器专家和研究人员在道德或法律限制下工作*
+安茹帝国在1204年崩溃后，约翰国王开始在英国的海岛上维护自己的权威。他在威尔士、苏格兰和爱尔兰发动了战争。在爱尔兰，他想方设法对愤怒的盎格鲁-诺曼男爵们施加王室管制，这些人在爱尔兰的南部和东部已经划分了统治地盘。约翰也获得了讲盖尔语（Gaelic）国王们的支持，他们已经认可了他的王权。1209年，他发动了一次攻打苏格兰的战争，强迫该国国王承认他是霸主。他暂时征服了威尔士的几个公国，换句话说，他用武力来威胁他们。在战争行动开始之前，他在诺丁汉绞死了大约二十八个威尔士男孩子，他们是已经投降做人质的一些酋长的儿子。这不是约翰残忍行为最小的或者最后一个。但国王们的残忍起作用了。在这些战争结束时，一位编年史作家声称 “现在在爱尔兰、苏格兰和威尔士，没有人不服从英格兰国王的命令。众所周知，他的成功超过了他的所有前辈” 。
 
+然而，他在控制富人方面却遇到了困难。这些人对通过战争来恢复安茹帝国不热情，并对国王给他们施加的多重勒索感到愤怒。在遗产权的授予，或者通过婚姻出让富有女继承人财产方面，国王索要了大量酬金。他偶尔去索求富有人家长期拥有的一些地产。“兵役免除税” 是所谓避免服役要交的税。约翰在十六年里征收了十一次。实物支付也被实行了。一个名叫威廉·德·布劳斯（William de Braose）的富人，为了一项请愿得到批准，交付了300头母牛，30头公牛和10匹马。进一步的曲解使得布劳斯家族似乎对国王越来越仇恨了。威廉再也付不起贷款了，导致他被强行驱逐。但另一种命运降临到他妻子和儿子身上。玛蒂尔达·德·布劳斯（Matilda de Braose）是知道九年前亚瑟王子情况的极少数人之一，似乎她说的太多了。约翰命令逮捕她和她儿子。母亲和儿子在监狱里饿死了。
 
-> The mentioned breaking document to “predict World War III as biological war” is the PLA’s novel bioweapon textbook (by General Dezhong Xi, 2015) I’m translating into English with our Chinese volunteers! The brief introduction is in the 3rd Yan Report👇🏻 [https://t.co/BxE22sQOuN](https://t.co/BxE22sQOuN) [pic.twitter.com/qkx7cLKclt](https://t.co/qkx7cLKclt)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 7, 2021](https://twitter.com/DrLiMengYAN1/status/1390752779229147145?ref_src=twsrc%5Etfw)
+据说，这位国王对几位妻子和女儿们贪得无厌，就像他对金钱一样。当约翰走访她们的城堡时，她们就不安全了。然而，在很大程度上，安茹君主制的整体势力与强势贵族的封建特权是相对立的。由于从自己臣民身上挣钱，所以中央官僚政府的发展削弱了自己的力量。例如，商业从本地领主的控制领域转移到王室控制，导致本地领主失去了钱财。历史学家以赞赏的态度回顾了“王室政府”的不断增长和复杂性。在那个时期，所有事情都涉及到了王室的压榨。雇佣军的出现也限制了富人担任国家军事指挥官。许多富人仍然有源于侠义传奇的骑士形象。他们是聚集在国王周围的圆桌（Round Table）骑士，而国王像一个发言人。然而，约翰国王不是亚瑟国王（King Arthur），他唯一在意的圣杯（Holy Grail）就是金子。
 
+总的来说，约翰对神圣事务麻木不仁。1205年，当坎特伯雷大主教的职位空缺时，这位国王拒绝填补它。他要求把这个富有教区的钱转移到自己的金库里，之前，他与其他主教都使用过这种手段。教皇英诺森三世闪烁其词，理解国王的感觉，但他的耐心是有限的。1207年，教皇任命斯蒂芬·朗顿（Stephen Langton）填补那个空缺。朗顿不是一个较好的选择，他是英国人，来自林肯郡，是巴黎大学资深的神学教授，也是罗马圣克里索古努斯（St Chrysogonus）基督教堂的红衣主教，约克大教堂（York Minster）的牧师会成员。
 
-7. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1390752779229147145?s=20)**：
-***（SKY新闻莎莉·马克森）**独家报道：[中国军事科学家在美国新冠病毒大流行前五年讨论了将SARS冠状病毒武器化，该文件还预测第三次世界大战将使用生物武器](https://www.theaustralian.com.au/subscribe/news/1/?sourceCode=TAWEB_WRE170_a_TWT&amp;dest=https%3A%2F%2Fwww.theaustralian.com.au%2Fnation%2Fpolitics%2Fchinese-military-scientists-discussed-weaponising-sars-coronaviruses%2Fnews-story%2F850ae2d2e2681549cb9d21162c52d4c0&amp;memtype=anonymous&amp;mode=premium)
-哈珀·柯林斯即将出版的关于新冠病毒起源的调查书[《武汉到底发生了什么》](https://www.booktopia.com.au/what-really-happened-in-wuhan-sharri-markson/book/9781460760925.html?irclickid=11TXUVRcxxyLWxW0W2SX%3Awd2UkBxNyXltTuwW40&amp;irgwc=1&amp;utm_campaign=HarperCollins%20Publishers%20Australia&amp;utm_medium=affiliate&amp;utm_source=Impact)中，揭示了这一点。
+约翰明显地陷入了精心策划的愤怒中。教皇对该王国的事务要做什么哪？约翰可能会像前任那样任命自以为忠诚的主教和大主教。他不允许教皇未经王室同意而任命坎特伯雷大主教。他把教皇任命的坎特伯雷的几个僧侣驱逐出英格兰。他控制了所有被意大利主教掌管的英国办公室。他拒绝让任何教皇特使进入英国。1208年春天，教皇对英国发出了正式禁令，除了对新生儿洗礼以及对临死之人豁免外，不能有任何的圣事，禁止任何教会举行宗教仪式。马修·巴黎在对这个禁令的叙述中，用钟绳挂起来的一幅画来做说明。圣事被暂停了。
 
-**（闫）**提到的“将第三次世界大战预测为生物战争”的破译文件是解放军的新型生物武器教科书（作者：习神的德忠将军，2015年），我正在和我们的中国志愿者一起翻译成英语！简要介绍在《第三份闫报告》中*
-- ![]()![](https://gnews.org/wp-content/uploads/2021/05/E00Y8zYXIAcPo0a.jpeg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07201544/E00aHvJWYAAjw_F-1.jpeg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07201531/E00aHvsWEAUnCXq.jpeg)
-- ![]()![](https://gnews.org/wp-content/uploads/2021/05/E00aM_nWUAAOr_o.jpeg)
-- ![]()![](https://gnews.org/wp-content/uploads/2021/05/E00Zwg9XIAAklxG-1.jpeg)
+国王通过没收所有的教堂和教会的土地给予报复，其原则是：无用的教会不需要财产。1209年，约翰被正式开除教籍，在理论上，这意味着：他的神职管理人员不再服务或者服从他了。有些神职人员逃离了宫廷，到海外去旅行，但却有足够多的教会律师和管理者来确保教会和政府机构的稳定。据估计，禁令期间，大部分主教住在英格兰。英国由于教皇的不满而保持了相对稳定，它从未对罗马主教教区（see of Peter）的法令投入大量精力，它重要的连续性以及民族的世俗习惯都没有被破坏。当然，接下来便发生了英国宫廷和罗马主教教区的长期谈判。最终，国王似乎愿意按照清楚而既定的协议接受斯蒂芬·朗顿进入他的王国，但该协议是一个先例，之前没有过。没有王室同意，教皇今后不允许任命坎特伯雷大主教，而教皇坚持要求更好的条件。这就是战争。
 
-8. **[闫丽梦博士推特](https://twitter.com/drlimengyan1/status/1390796713192001539?s=21)**：
-*（图片）*
+据说，其他国王纷纷表示担心，黑暗的天空招来了又一轮风暴。国内第一个骚乱的信号出现在1209年，当时一些北方的男爵由于法国可能发动入侵，正在和法国国王进行交涉。这一年，约翰为了吓住苏格兰的威廉国王，对北方发动了军事远征，这不是巧合的事情。他也注重在北方领土上树立权威。骚乱逐渐消失了。三年后，这位国王感觉必须要重新加固自己的城堡，特别是在边境地区的，这些地方的富豪总是更加独立。有谣言传来：男爵们正计划罢免国王。反过来，约翰命令把他们中间较顽固的人扣为人质。1213年，约翰把罗伯特·菲茨沃尔特（Robert Fitzwalter）的城堡夷为平地，据说此人正在计划领导一次叛乱，最终，他们恢复了脆弱的和平。
 
-
-> 重要长推‼️
-> 更多邪恶的专利： 鼠用病原体呼出飞沫传播实验装置（CN208692002U）
-> 逆向分析，这是根据气溶胶实验的提高准确性需求来设计的专利。
-> 气溶胶研究➡️飞沫传播研究➡️排泄物研究➡️高等级生物研究➡️人社区实验➡️扩散
-> 1/5[@LawrenceSellin](https://twitter.com/LawrenceSellin?ref_src=twsrc%5Etfw) [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) [@dezying](https://twitter.com/dezying?ref_src=twsrc%5Etfw) [@4RxMbPD3YbeN1fS](https://twitter.com/4RxMbPD3YbeN1fS?ref_src=twsrc%5Etfw) [@andy5\_123](https://twitter.com/andy5_123?ref_src=twsrc%5Etfw) [https://t.co/ehgd6rqo92](https://t.co/ehgd6rqo92) [pic.twitter.com/iVCkhSbapU](https://t.co/iVCkhSbapU)
-> — 公民 – SEVEN (@NFSC\_007) [May 7, 2021](https://twitter.com/NFSC_007/status/1390617493115334659?ref_src=twsrc%5Etfw)
-
-
-9. **[公民记者推特](https://twitter.com/NFSC_007/status/1390617493115334659?s=20)**：
-*重要长推
-（1/5）更多邪恶的专利： 鼠用病原体呼出飞沫传播实验装置（CN208692002U） 逆向分析，这是根据气溶胶实验的提高准确性需求来设计的专利。 气溶胶研究/飞沫传播研究/排泄物研究/高等级生物研究/人社区实验/扩散
-（2/5）具有代谢收集功能的鼠用病原体呼出飞沫传播实验装置 公开号:CN208354293U 这些都是实用型的发明，反向分析，此种病毒研究好了，接下来研究传播方面的变量。谁会信疫苗研究需要研究这些？！
-（3/5）高等级生物安全防护式中大动物病原体空气传播实验装置 公开号:CN209435980U 可对体积较大的动物，如猴，进行飞沫传播实验。 这些专利申请日期接近，几乎在2018年，说明他们做了大量的气溶胶、飞沫传播等研究，是否说明潘多拉魔盒接近尾声？
-（4/5）根据 @DrLiMengYAN1 @[email protected]\_spalding和媒体披露的信息：当时武汉市长周先旺向上级申请停止举行百步亭万人宴，但被上级否定了。闫博士披露他们进行了社区实验，再结合19年9月份的防疫演习。是否意味着他们按计划，动物实验都做完了拿人来试验？
-效果好就此打开潘多拉魔盒
-（5/5）按照这个时间线进行合理分析：各种实验的进行、专利的申请、武汉防疫演习、和疫情爆发在一个时间线上，且相隔不久，这是否同属一个计划？是否按计划进行？ @jsdfposjpqyuee1
-三个专利的链接：🔗[https://www.patentguru.com/CN208692002U](https://www.patentguru.com/CN208692002U)🔗[https://www.patentguru.com/CN208354293U](https://www.patentguru.com/CN208354293U)🔗[https://www.patentguru.com/CN209435980U](https://www.patentguru.com/CN209435980U)
-CN111011228A 负压隔离器式病原体空气传播实验装置 一种负压隔离器式病原体空气传播实验装置，可用于如大鼠、小鼠、貂、兔等中小动物飞沫传播实验。位置可动，健康动物和带菌动物间的距离可调，可观察不同距离的感染程度。 病毒传播距离就是生物武器的有效射程！ [https://patentguru.com/CN111011228A](https://t.co/KXVwIfInZk?amp=1)*
-
-
-> 掛谷准教授：
-> 如果您因為這個原因而赦免中共國病毒學家，那麼同理我們就該赦免Eichmann（屠殺猶太人的納粹劊子手），因為它在納粹政權下也毫無選擇。
-> 而在全球化的今天，一個人完全可以選擇離開中共國（而不是幫著作惡），從這個角度來說，中共國的病毒學家比Eichmann更加罪惡滔天 [https://t.co/BzzIh1WGIJ](https://t.co/BzzIh1WGIJ)
-> — Andy5 (@andy5\_123) [May 7, 2021](https://twitter.com/andy5_123/status/1390456780988182530?ref_src=twsrc%5Etfw)
-
-
-10. **[Andy5推特](https://twitter.com/andy5_123/status/1390456780988182530?s=20)**：
-*掛谷准教授：
-如果您因为这个原因而赦免中共国病毒学家，那么同理我们就该赦免Eichmann（屠杀犹太人的纳粹刽子手），因為它在纳粹政权下也毫无选择。
-而在全球化的今天，一个人完全可以选择离开中共国（而不是帮著作恶），从这个角度来说，中共国的病毒学家比Eichmann更加罪恶滔天*
-
-
-> cr: [@G\_Translators6](https://twitter.com/G_Translators6?ref_src=twsrc%5Etfw)
-> 
-> 辛克莱广播集团记者詹姆斯·罗森在“国家事务”节目中，独家报道了在去年5月27日加州劳伦斯利弗莫尔国家实验室的科学家们制作了一份最高机密的报告。该报告评估新冠病毒起源于中共国实验室的理论是可信的，并且多位美国高层情报官员都知晓该报告内容。 [pic.twitter.com/kF46X8hMMh](https://t.co/kF46X8hMMh)
-> — 李昂纳多 (@RealLiAngNaDuo) [May 7, 2021](https://twitter.com/RealLiAngNaDuo/status/1390506193974616064?ref_src=twsrc%5Etfw)
-
-
-11. **[李昂纳多推特](https://twitter.com/RealLiAngNaDuo/status/1390506193974616064?s=20)**：
-*辛克莱广播集团记者詹姆斯·罗森在“国家事务”节目中，独家报道了在去年5月27日加州劳伦斯利弗莫尔国家实验室的科学家们制作了一份最高机密的报告。该报告评估新冠病毒起源于中共国实验室的理论是可信的，并且多位美国高层情报官员都知晓该报告内容*
-【灭共时代】
-
-
-
-> 上诉失败 纽交所将下架中国三大电信公司 [#中国](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 三大电信运营商上诉失败，预计纽约证券交易所（NYSE）将很快遵守前总统川普（特朗普）的投资禁令以及现任总统拜登的最新审核下架这三家公司。[#纽约交易所](https://twitter.com/hashtag/%E7%BA%BD%E7%BA%A6%E4%BA%A4%E6%98%93%E6%89%80?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/glUkAtxVEt](https://t.co/glUkAtxVEt)
-> — 大纪元新闻网 (@dajiyuan) [May 7, 2021](https://twitter.com/dajiyuan/status/1390770918729912324?ref_src=twsrc%5Etfw)
-
-
-**[大纪元推特](https://twitter.com/dajiyuan/status/1390770918729912324)**
-*上诉失败 纽交所将下架中国三大电信公司 #中国 三大电信运营商上诉失败，预计纽约证券交易所（NYSE）将很快遵守前总统川普（特朗普）的投资禁令以及现任总统拜登的最新审核下架这三家公司。#纽约交易所*
-
-
-> 众议院外交委员会召开中共种族灭绝听证会
-> 共和党议员夏波说，中共在新疆的种族灭绝惨绝人寰，而且极力掩盖真相。我们一定要让中共犯罪分子对此负责
-> 极左派民主党议员奥玛尔说，中共的种族灭绝是真实的，正在发生，我们再也不能视而不见了
-> 
-> 连极左都跳出来灭共了！本站从未料到有一天会做奥玛尔的视频 [pic.twitter.com/cTI2b8cHHj](https://t.co/cTI2b8cHHj)
-> — 珠穆朗玛 (@ZanXixi) [May 6, 2021](https://twitter.com/ZanXixi/status/1390446670899384324?ref_src=twsrc%5Etfw)
-
-
-**[喜站推特](https://twitter.com/ZanXixi/status/1390446670899384324?s=20)**：
-*众议院外交委员会召开中共种族灭绝听证会 共和党议员夏波说，中共在新疆的种族灭绝惨绝人寰，而且极力掩盖真相。我们一定要让中共犯罪分子对此负责 极左派民主党议员奥玛尔说，中共的种族灭绝是真实的，正在发生，我们再也不能视而不见了 连极左都跳出来灭共了！本站从未料到有一天会做奥玛尔的视频*
-
-
-+1
+0

@@ -1,66 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英格兰历史之根基 （十五） 大宪章（中）
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1186073/)
+## 5月7日美国政要和政评家反共推特精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1186256/)
 
-俄罗斯莫斯科喀秋莎农场   和风
+众议员迈克·加拉格尔： 功能增强性研究是危险的实验，涉及对天然存在的病毒进行基因修饰。事实证明，它的长期倡导者之一是福奇博士。我们必须知道纳税人的钱是否支持了武汉的这种研究。 【附福克斯电视台采访加拉格尔议员的视频：共和党人要求白宫和福奇就病毒实验室泄漏起源说给出答案】
 
-编辑   银河 星河   上传   银河
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07211950/Snipaste_2021-05-08_04-19-29.jpg)[livelaw.in](https://www.livelaw.in/the-legacy-of-the-magna-carta/)
 
-**第一卷  根基**
 
-**英格兰历史：从原始时期至都铎王朝**
+> Gain of function research is a dangerous practice that involves genetically modifying naturally occurring viruses. It turns out that one of its long-standing advocates is Dr. Fauci. We must know if taxpayer dollars supported this kind of research in Wuhan. [pic.twitter.com/nzkMkbDeD1](https://t.co/nzkMkbDeD1)
+> — Rep. Mike Gallagher (@RepGallagher) [May 7, 2021](https://twitter.com/RepGallagher/status/1390793963012042754?ref_src=twsrc%5Etfw)
 
-**第十五章  大宪章（中）**
 
-之后就剩一个人了。亨利二世最小的儿子约翰幸存下来。他是英国历史上最有趣的一个国王，主要因为他有臭名昭著的名声。在被认为英国最“邪恶”的国王中，他与理查德三世有一比。事实上，理查德和约翰相对于许多其他受人赞美的君主来说，他们不是最恶毒最狡猾的。然而，在选择写他们编年史的作家手下，他们或许是不幸的。约翰统治时的两个僧侣编年史作家，先后有文多弗（Wendover）的罗杰和马修·巴黎（Matthew Paris），两个人始终是敌对的。当然，莎士比亚不像任何其他人，他为后代定义了约翰的形象。其定义完全是戏剧化的，但相当地夸张，事件的不同说法都被关联了起来。走进约翰国王，随舞台的火焰跳动吧。
 
-我们已经瞥见了约翰的早期生活，他对自己的父亲和哥哥都不忠诚。然而，他仍然是金雀花王朝的一员，家族的血统是不可改变的。亨利二世任命他为“爱尔兰领主”，但他证明自己不能胜任这个工作。他的年轻气盛和愚蠢使自己与那个国家的当地领导人疏远了。后来，他得到整个安茹帝国（Angevin Empire）的庄园和城堡，并且还掌管着六个县，这些县把税收直接交给他的金库。当理查德一世离世后，他在英格兰和诺曼底分别建造了自己的宫廷，更狡猾、更有雄心的富豪们加入了他。他是正在崛起的一个王子。
+众议员肯·巴克： 我很自豪能够与我的共和党研究委员会[@RepublicanStudy](https://twitter.com/RepublicanStudy)的同事们一起提出立法，就中共政府盗窃美国的知识产权以及对 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click)[#Taiwan](https://twitter.com/hashtag/Taiwan?src=hashtag_click) 的危险威胁，对其追责。 【转国家评论网：独家新闻：保守党严厉打击中共的政治影响与科技(盗窃)】
 
-然而，他不是王位的唯一继承人。理查德一世曾提名布列塔尼的亚瑟做他的继承人，就像我们看到的那样，十二岁的侄子是约翰继位的真正威胁。安茹的男爵们是安茹帝国的一个组成部分，他们已经在支持这个男孩了。阿基坦省处于举足轻重的地位。英国和诺曼底的富豪带着谨慎和狐疑支持约翰。尽管人们认为他不是英国人，但他至少比布雷顿·亚瑟（Breton Arthur）有更多的英国血统。听到他哥哥去世的消息后，约翰急忙赶到诺曼底，在鲁昂大教堂，他被封为公爵，然后，他乘船前往英格兰。1199年春天，在威斯敏斯特，约翰被加冕为国王。他只花了一个月的时间来索取自己的权力。
 
-他比理查德矮大约12英寸（30公分），一直与哥哥和父亲进行暗自较量。他真正生长在充满争斗和怀疑的宫廷里，一个哥哥陷害另一个，兄弟们合起来反对父亲，他感受的痛苦远比普通人，所以他给人留下谨慎而多疑的印象并不奇怪。他日常生活中佩戴着武器，身边还有一个保镖。
 
-他不是没有幽默感，尽管常常是反常的幽默。当他带着自己的马在诺森伯兰郡阿尼克（Alnwick）附近一片湿地上转悠时，他设计了一套对该镇不维护道路人的惩罚办法，他命令：在圣马可节（St Mark’s Day）这一天，每个新来的居民都要步行走过那片湿地。十九世纪初，人们仍然能看到这个习俗。当教皇把英国驱逐出教会后，这位国王命令：把所有牧师的情妇关押起来，等着牧师情人把她们赎回。这是一个有趣的惩罚。他统治时，还留下了另一个有趣的回忆。在法律卷宗中，出现了一些前所未有的数字，其中一个是：“休·德·内维尔（Hugh de Neville）的妻子与丈夫睡一晚上，就要送给这位霸道的国王两百只鸡。”它的暗含不清楚，但可能意味着，这位妇人是国王的一个情妇，她现在要求短暂地回到自己的婚床上。这三个事件从侧面揭示了中世纪的生活，这是焦虑和残酷并存的年月。
+> I’m proud to join my [@RepublicanStudy](https://twitter.com/RepublicanStudy?ref_src=twsrc%5Etfw) colleagues in introducing legislation to hold the Chinese government accountable for its theft of Americans’ intellectual property and dangerous threats against [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw).[https://t.co/U3h90mWXR5](https://t.co/U3h90mWXR5)
+> — Congressman Ken Buck (@RepKenBuck) [May 7, 2021](https://twitter.com/RepKenBuck/status/1390721367478255617?ref_src=twsrc%5Etfw)
 
-约翰国王（King John）能发脾气，就像金雀花王朝的前辈一样。当法弗沙姆（Faversham）的僧侣占领了自己的教堂，以阻止国王挑选的上司时，国王命令把这座修道院统统烧掉。没有人服从国王，他服软了。君主们不论男女，总是有坏脾气，这是他们权力的一个方面。
 
-在他统治的最初几年，一个残酷或无情的因素显现了。布列塔尼的亚瑟已经逃到法国国王的宫廷，目的是远离叔叔的视线。然而在1202年，约翰找到了他。他们俩都在法国参加争夺金雀花王朝土地的军事行动。法国国王把这些土地分配给了亚瑟，但约翰认为它们是自己应有的遗产。亚瑟现年十五岁，正在围攻古老的米雷博（Mirebeau）城堡，它坐落在法国中西部的普瓦捷（Poitiers）附近，他奶奶阿基坦的埃莉诺（Eleanor of Aquitaine）住在城堡里。孙子威胁奶奶的场景进一步揭示了金雀花王朝的特性。
 
-约翰接到围攻的消息后，带着他的部分军队日夜兼程，48个小时走了80英里（130公里）。亚瑟和其军队出其不意地被包围了。这个男孩被约翰监禁起来，关入诺曼底的一个地牢里。在与叔叔的一次交谈中，他表现得目中无人。他索要英格兰以及理查德传给他的所有土地，似乎还说：约翰死前，他不会给约翰一刻的安宁。这或许是不明智的。他被转移到自己公国首府鲁昂的一个地牢里，从此再没有人见过他。
+国务院发言人内德·普赖斯: 没有合理的理由继续将 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 排除在世界卫生大会之外。 美国呼吁世卫组织[@WHO](https://twitter.com/WHO)邀请台湾作为观察员参加这个论坛。 【转美国务院官网发文：恢复台湾在世界卫生大会上的适当地位】
 
-这个故事还有更生动的描述：约翰带着金雀花王朝的愤怒，挥起一把剑捅死了他侄子，然后把他扔进塞纳河（Seine）。或者是约翰雇用了一个刺客。没有人非常清楚。然而，确凿的事实是，亚瑟在一两个月后就死了。1203年春天之前，人们普遍相信，国王与杀害他侄子的事件必有牵连。人们常常把该事件与另一事件相提并论，即：理查德三世在塔楼里杀死了两个侄儿王子，但这两个事件没有真正的可比性。有人说，教皇英诺森三世（Pope Innocent III）说过，亚瑟“被关在米雷博，他反叛君主，并叛逆了曾经宣誓尊敬和效忠的叔叔，他被判为死罪是不需要裁决的，即使是最可耻地死去”。一个十五岁的孩子被当作成年人了。
 
-虽然亚瑟的死是约翰必须和不可避免的反应，但却有助于离间约翰在诺曼底和其他地方的固有支持者。人们甚至对他发起了更严厉的指责。有人批评他在对抗法国国王的战争中无动于衷或者懒惰。他的行为不像一个国王。一位编年史作家声称：约翰呆滞，而他哥哥证明自己是有活力和有能力的。他被称为“软剑约翰”（John Softsword）。据说，他被有巫术的妻子伊莎贝拉（Isabella）附魔了。他更像是迷恋于王权的力量和威严，拒绝相信更坏的事情。但更坏的事情发生了。国王菲利普越来越逼近诺曼底，该公国的大部分男爵背叛了约翰。他们不再相信英国国王有足够的能力维持王室的统治。不久，只剩下很少的人在法国为约翰打仗。当他四周的安茹帝国崩溃时，他乘船返回英格兰。1204年6月，菲利普占领了诺曼底。该公国里约翰曾经拥有的所有地盘都成为海峡群岛（Channel Islands）。安茹帝国本身，只有加斯科涅（Gascony）保留了下来。这是约翰整个统治期所遭遇的最大的单个打击。
 
-在联盟150年后，英格兰脱离了诺曼底，人们认为这是自然和不可避免的发展，由此，法国人清醒地意识到自己的民族特性。一种国家意识建立起来，这是由卡佩王朝（Capetian）开创的。然而在那个年代，对英格兰国王来说，这个脱离不算什么，比不上一场灾难。他失去了来自于诺曼底、安茹和缅因的大量税收收入，当然，更严重的是，他丧失了自己的威望。其他后果接踵而至。盎格鲁-诺曼的贵族失去了自己的半个身份。他们一旦失去了诺曼底的土地，显然就会把精力集中在近处，即现在是他们“家”的地方。他们逐渐变得更像英国人了。就像十世纪那样，英吉利海峡变成了边界，约翰国王开始建设海军以保卫英国海岸线。这位国王不再拥有诺曼底，导致他对英格兰付出了更多的关注。
+> There is no reasonable justification for Taiwan’s continued exclusion from the World Health Assembly. The United States calls upon the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) to invite Taiwan to participate as an observer in this forum. [https://t.co/PpmrPZxUeX](https://t.co/PpmrPZxUeX)
+> — Ned Price (@StateDeptSpox) [May 7, 2021](https://twitter.com/StateDeptSpox/status/1390694290674888709?ref_src=twsrc%5Etfw)
 
-他保留了前朝的行政人员，非常明白政府机关依赖他们。比如，我们能够查找到十三世纪初的广泛使用的文字记录，这些记录是国家的法律文件。从事进出口必须使用执照，贸易规则必须要落实到文字上，税收系统也被标准化了。必须以严格的标准维护货币和信用。所有这些都依靠墨水而不是依靠习俗或者口头传授。国王宫廷的不同部门开始了创造业绩的习惯。信件开始送达到全国各地，各地的回复被限制在令状的范围内。每天记录的财政支出日记被保留下来。新颖而快速的手写形式得到了发展，修道院书法让位给所谓的“草书”体，草书这个词来源于拉丁语“流畅”。世界的发展变快了。
 
-同一时期，战争以及准备战争的费用都要从国家财政中收取。约翰国王仍然希望赢回安茹帝国，但为此，他需要金钱。他或许比不上哥哥和父亲严厉，但却是比较巧妙的。他发现了获取收入的新办法，1207年，所有阶层的人，其收入和动产的十三分之一都要拿去交税。这是征收综合税前的第一个行动。抗议的声音是那样地强，使得他从未实施这个行动。
 
-十年来，他为了找钱，走遍了他的王国。他不知疲倦，总是匆匆忙忙，通常住在任何一个地方都不会超过两三天。1205年，他在伦敦和威斯敏斯特只住了二十四天，剩下的时间都花在路上了。在一个寒冷冬季结束时，他走到了遥远的北方。他让约克郡和纽卡斯尔（Newcastle）交罚金，因为他没有受到适当的大型招待。他到处去找钱。在走访诺森伯兰郡赫克瑟姆（Hexham）时，有人告诉他，罗马的金银财宝被埋在科布里奇（Corbridge）附近，他便命令军人去挖掘，但地下什么都没有。
+众议员吉姆·班克斯： 保守派正处于制定对抗 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 政策意见的最前沿。请在国家评论[@NRO](https://twitter.com/NRO)阅读更多详细报道：共和党研究委员会[@RepublicanStudy](https://twitter.com/RepublicanStudy)的委员们 介绍了十几个相关提案。 [@james\_t\_quinn](https://twitter.com/james_t_quinn) 【附国家评论特别报道：保守派严厉打击中共国的政治影响力和科技】
 
-在匆忙的旅行中，他经常一天走30英里（48公里），在给臣民伸张正义上，他表现出特殊的兴趣，主要是因为他希望得到税收。约翰的家庭教师是雷纳夫·德·格兰维尔（Randolph de Glanville），我们已经提到过他的法律论文，约翰的行为或许和老师存在某些关联。约翰曾经声称：“我们的和平应该受到不可侵犯地维护，即使对一条狗也如此”。
 
-所以，约翰在政府管理和司法制度细节上花了许多精力，与哥哥的漫不经心相比，他是相当勤奋的。如果他是多疑的，那么他也是谨慎和好奇的。大多数人以前从未见过他们的国王。然而现在，他穿着公务长袍在提问、要价和评判。他的声音就是法律的声音。他喜欢好的宝石，看到珍宝就兴奋。他定期和经常洗澡，十三世纪之前的人几乎没有这个习惯。国王的身体——肉体和血液——都是神圣的。这是中世纪统治的本质。
 
-这也是价格高涨的年月。人口的快速增加意味着生活的共同资源更供不应求更昂贵了。我们能从财政和人口两方面发现原因。从东德（eastern Germany）银矿进口的银子增加了货币的流通，结果在十二世纪末的二十年里，价格上升了100-200%。这是观察大规模叛乱以及《大宪章》(《Magna Carta》)形成的合适背景。连续的“通货膨胀”，使用这个现代词来描述，对国王、贵族和老百姓产生了同样的影响。尤其是，战争变得更加费钱了。为了给国王的军事抱负提供钱财，国王越来越多地从流通中取钱，从而造成经济衰退，打仗成本变高与经济衰退纠缠在一起了。因此，国王在每个方面都受到限制，似乎有自然力量在阻止他。
+> Conservatives are on the cutting edge of developing policy ideas to confront the Chinese Communist Party. Read more below [@NRO](https://twitter.com/NRO?ref_src=twsrc%5Etfw) on a dozen bills [@RepublicanStudy](https://twitter.com/RepublicanStudy?ref_src=twsrc%5Etfw) members are introducing today. [@james\_t\_quinn](https://twitter.com/james_t_quinn?ref_src=twsrc%5Etfw) [https://t.co/8oHp6FMB7O](https://t.co/8oHp6FMB7O)
+> — Jim Banks (@RepJimBanks) [May 7, 2021](https://twitter.com/RepJimBanks/status/1390677137833840643?ref_src=twsrc%5Etfw)
 
-安茹帝国在1204年崩溃后，约翰国王开始在英国的海岛上维护自己的权威。他在威尔士、苏格兰和爱尔兰发动了战争。在爱尔兰，他想方设法对愤怒的盎格鲁-诺曼男爵们施加王室管制，这些人在爱尔兰的南部和东部已经划分了统治地盘。约翰也获得了讲盖尔语（Gaelic）国王们的支持，他们已经认可了他的王权。1209年，他发动了一次攻打苏格兰的战争，强迫该国国王承认他是霸主。他暂时征服了威尔士的几个公国，换句话说，他用武力来威胁他们。在战争行动开始之前，他在诺丁汉绞死了大约二十八个威尔士男孩子，他们是已经投降做人质的一些酋长的儿子。这不是约翰残忍行为最小的或者最后一个。但国王们的残忍起作用了。在这些战争结束时，一位编年史作家声称 “现在在爱尔兰、苏格兰和威尔士，没有人不服从英格兰国王的命令。众所周知，他的成功超过了他的所有前辈” 。
 
-然而，他在控制富人方面却遇到了困难。这些人对通过战争来恢复安茹帝国不热情，并对国王给他们施加的多重勒索感到愤怒。在遗产权的授予，或者通过婚姻出让富有女继承人财产方面，国王索要了大量酬金。他偶尔去索求富有人家长期拥有的一些地产。“兵役免除税” 是所谓避免服役要交的税。约翰在十六年里征收了十一次。实物支付也被实行了。一个名叫威廉·德·布劳斯（William de Braose）的富人，为了一项请愿得到批准，交付了300头母牛，30头公牛和10匹马。进一步的曲解使得布劳斯家族似乎对国王越来越仇恨了。威廉再也付不起贷款了，导致他被强行驱逐。但另一种命运降临到他妻子和儿子身上。玛蒂尔达·德·布劳斯（Matilda de Braose）是知道九年前亚瑟王子情况的极少数人之一，似乎她说的太多了。约翰命令逮捕她和她儿子。母亲和儿子在监狱里饿死了。
 
-据说，这位国王对几位妻子和女儿们贪得无厌，就像他对金钱一样。当约翰走访她们的城堡时，她们就不安全了。然而，在很大程度上，安茹君主制的整体势力与强势贵族的封建特权是相对立的。由于从自己臣民身上挣钱，所以中央官僚政府的发展削弱了自己的力量。例如，商业从本地领主的控制领域转移到王室控制，导致本地领主失去了钱财。历史学家以赞赏的态度回顾了“王室政府”的不断增长和复杂性。在那个时期，所有事情都涉及到了王室的压榨。雇佣军的出现也限制了富人担任国家军事指挥官。许多富人仍然有源于侠义传奇的骑士形象。他们是聚集在国王周围的圆桌（Round Table）骑士，而国王像一个发言人。然而，约翰国王不是亚瑟国王（King Arthur），他唯一在意的圣杯（Holy Grail）就是金子。
+众议员布莱恩·马斯特： 如果不解决世界上最大的气候变化罪魁祸首，我们就无法应对气候变化。必须追责 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)！ 【附CNBC新闻报道：中共国温室气体排放量超过美国和发展中国家的总和】
 
-总的来说，约翰对神圣事务麻木不仁。1205年，当坎特伯雷大主教的职位空缺时，这位国王拒绝填补它。他要求把这个富有教区的钱转移到自己的金库里，之前，他与其他主教都使用过这种手段。教皇英诺森三世闪烁其词，理解国王的感觉，但他的耐心是有限的。1207年，教皇任命斯蒂芬·朗顿（Stephen Langton）填补那个空缺。朗顿不是一个较好的选择，他是英国人，来自林肯郡，是巴黎大学资深的神学教授，也是罗马圣克里索古努斯（St Chrysogonus）基督教堂的红衣主教，约克大教堂（York Minster）的牧师会成员。
 
-约翰明显地陷入了精心策划的愤怒中。教皇对该王国的事务要做什么哪？约翰可能会像前任那样任命自以为忠诚的主教和大主教。他不允许教皇未经王室同意而任命坎特伯雷大主教。他把教皇任命的坎特伯雷的几个僧侣驱逐出英格兰。他控制了所有被意大利主教掌管的英国办公室。他拒绝让任何教皇特使进入英国。1208年春天，教皇对英国发出了正式禁令，除了对新生儿洗礼以及对临死之人豁免外，不能有任何的圣事，禁止任何教会举行宗教仪式。马修·巴黎在对这个禁令的叙述中，用钟绳挂起来的一幅画来做说明。圣事被暂停了。
 
-国王通过没收所有的教堂和教会的土地给予报复，其原则是：无用的教会不需要财产。1209年，约翰被正式开除教籍，在理论上，这意味着：他的神职管理人员不再服务或者服从他了。有些神职人员逃离了宫廷，到海外去旅行，但却有足够多的教会律师和管理者来确保教会和政府机构的稳定。据估计，禁令期间，大部分主教住在英格兰。英国由于教皇的不满而保持了相对稳定，它从未对罗马主教教区（see of Peter）的法令投入大量精力，它重要的连续性以及民族的世俗习惯都没有被破坏。当然，接下来便发生了英国宫廷和罗马主教教区的长期谈判。最终，国王似乎愿意按照清楚而既定的协议接受斯蒂芬·朗顿进入他的王国，但该协议是一个先例，之前没有过。没有王室同意，教皇今后不允许任命坎特伯雷大主教，而教皇坚持要求更好的条件。这就是战争。
+> We cannot tackle climate change without tackling the biggest culprit of climate change in the world. China must be held accountable![https://t.co/8AflTtpZEc](https://t.co/8AflTtpZEc)
+> — Rep. Brian Mast (@RepBrianMast) [May 7, 2021](https://twitter.com/RepBrianMast/status/1390686610744758273?ref_src=twsrc%5Etfw)
 
-据说，其他国王纷纷表示担心，黑暗的天空招来了又一轮风暴。国内第一个骚乱的信号出现在1209年，当时一些北方的男爵由于法国可能发动入侵，正在和法国国王进行交涉。这一年，约翰为了吓住苏格兰的威廉国王，对北方发动了军事远征，这不是巧合的事情。他也注重在北方领土上树立权威。骚乱逐渐消失了。三年后，这位国王感觉必须要重新加固自己的城堡，特别是在边境地区的，这些地方的富豪总是更加独立。有谣言传来：男爵们正计划罢免国王。反过来，约翰命令把他们中间较顽固的人扣为人质。1213年，约翰把罗伯特·菲茨沃尔特（Robert Fitzwalter）的城堡夷为平地，据说此人正在计划领导一次叛乱，最终，他们恢复了脆弱的和平。
+
+
+前白宫贸易顾问彼得·纳瓦罗）： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 利用（当年）日本​​帝国主义的游戏计划来使我们屈服。 亚历克斯·格雷的发现。 【附格雷在外交杂志发表的文章：美国如何保护太平洋最小岛屿的主权。】
+
+
+
+> Communist China channeling Imperial Japan's gameplan to bring us to our knees. Alex Gray spot on.[https://t.co/pxQe2BEl97](https://t.co/pxQe2BEl97)
+> — Peter Navarro (@RealPNavarro) [May 7, 2021](https://twitter.com/RealPNavarro/status/1390761602400542724?ref_src=twsrc%5Etfw)
+
+
+
+章家敦（中国问题专家）： 保护我们免受 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) “病毒战”的唯一方法是切断与该国的所有联系。如果您认为那是极端的话，您还愿意接受多少死亡？[#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hashtag_click) 【转Jack Hazlewood推文：文件表明中共军方科学家在新冠大流行五年前就在讨论SARs冠状病毒的武器化】
+
+
+
+> The only way to protect ourselves from [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s “virus warfare” is to cut all links with that country. If you think that’s extreme, how many more deaths are you willing to accept?[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/lOFI4UMET2](https://t.co/lOFI4UMET2)
+> — Gordon G. Chang (@GordonGChang) [May 7, 2021](https://twitter.com/GordonGChang/status/1390693388370972674?ref_src=twsrc%5Etfw)
+
+
 
 0

@@ -1,36 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士5月8日推文中的贺福初和法匹拉韦是怎么回事
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1186092/)
+## 美参议院中共国法案将研究创建“首席制造”职位
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1186316/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07212934/%E5%B0%81%E9%9D%A20000000.png)
-据[Dr. Li-Meng \[email protected\]](https://twitter.com/DrLiMengYAN1)于[上午6:32 · 2021年5月8日](https://twitter.com/DrLiMengYAN1/status/1390796713192001539)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
+**整理撰稿：蓝精灵**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07220006/581-1.jpg)
+参议院商务委员会主席玛丽亚·坎特威尔（Maria Cantwell）和该委员会最高的共和党人罗杰·威克尔（Roger Wicker）的修订法案，将在周三由委员会进行辩论。
 
+两党提出的“无尽边界”法案将授权在五年内投入950亿美元的大部分资金，用于基础技术，高级研究，商业化以及关键技术领域的教育和培训计划，这些领域包括人工智能，半导体，量子计算，先进技术。通讯，生物技术和先进能源。
 
+该措施由民主党人、参议院多数党领袖查克·舒默、共和党参议员托德·杨等人发起，还授权另外100亿美元指定至少10个地区技术中心，并建立供应链危机应对计划，以解决短缺等问题。
 
-> [https://t.co/GJSID1KVNU](https://t.co/GJSID1KVNU) [pic.twitter.com/dXWOd9AYEQ](https://t.co/dXWOd9AYEQ)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 7, 2021](https://twitter.com/DrLiMengYAN1/status/1390796713192001539?ref_src=twsrc%5Etfw)
+修订后的版本还将创建新的由参议院确认的首席制造官，他将在总统执行办公室任职，并将领导新的制造业和工业创新政策办公室。
 
+它还将指示商务部建立“供应链弹性和危机应对计划”，其中包括“供应链在大流行和生物威胁，网络攻击，极端天气事件，恐怖分子等冲击下抵抗和恢复的能力。以及地缘政治袭击，大国冲突和其他威胁。”
 
+该法案还旨在促进基础研究，以加快创新速度，从而推进关键矿产开采策略和技术的发展，从而消除“国家对矿物和矿物材料的依赖，而矿物和矿物材料可能会受到供应中断的影响”。
 
-下面我们从图片二开始逐图进行剖析，图片二——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07211833/2-30.jpg)
-对于这幅图片已经在前文[中共病毒挖掘小分队要挖掘的中共党卫军病毒院士清单](https://www.gnews.org/zh-hans/1172640/)作了挖掘——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04223234/%E5%B0%81%E9%9D%A2-4.png)
-对于图片三与图片二进行比对，应该确认就是贺福初——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07211715/3-19.jpg)
-对于图片四——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07211622/4-10.jpg)
-这幅图片的原始出处是新华社责任编辑乔楠楠于2020-03-02 20:21发布的[习近平在北京考察新冠肺炎防控科研攻关工作时强调　协同推进新冠肺炎防控科研攻关　为打赢疫情防控阻击战提供科技支撑](http://www.mod.gov.cn/big5/topnews/2020-03/02/content_4861432.htm)，那么习近平在3月2日的这张照片里在看得是什么呢？关于这一点在前文[说说3月10日习近平视察现场的磷酸氯喹和强调寻找中间宿主](https://gnews.org/zh-hans/424128/)中已经做了挖掘——
+该法案草案还将阻止中共国公司参加美国制造业计划。该计划是政府和公司主导的努力，旨在提高工业竞争力，减少能源消耗，并加强美国的国家安全
 
-习近平在看的是磷酸氯喹，但是在上一次的挖掘中并未注意到法匹拉韦——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07211547/5_%E5%89%AF%E6%9C%AC-1.jpg)
-据[百度百科——法匹拉韦](https://baike.baidu.com/item/%E6%B3%95%E5%8C%B9%E6%8B%89%E9%9F%A6/24440264?fr=aladdin)：［法匹拉韦片，英文名称Favipiravir Tablets [1] ，本品主要成份为:法维拉韦，化学名称：6-氟-3-羟基吡嗪-2-甲酰胺 ，主要用于治疗成人新型或再次流行的流感(仅限于其它抗流感病毒药品治疗无效或效果不佳时使用）。当发生新型或再次流行的流感且其他抗流感药品无效或效果不佳时，应根据国家相 关部门推荐使用，并随时根据最新的监测结果进行调整。本品对细菌感染无效。没有儿童使用经验。］
+（以上仅代表作者观点，不代表Gnews平台）
 
-贺福初是谁？法匹拉韦片是不是中共病毒的解药？这些闫丽梦博士并没有在推文中进行说明，也许这也是中共病毒拼图的一部分，关于贺福初的信息目前在网上可搜集的内容并不是很多，接下来关于贺福初的真相、关于法匹拉韦的真相会日益浮出水面，让我们拭目以待，我们可以做的事情就是要么去挖掘真相，要么去传播真相，要么两者兼具。
+**编者简评：**
+美国对应中共国的经济策略，很明显是经济脱钩、制造业回归、资金回流，并对中共国封锁高科技出口。而且欧洲和其他美国同盟国家会随后跟进。这样看起来，中共国经济崩溃已经无可阻挡。
 
-（文章内容仅代表作者个人观点）
+**参考链接：**
+[https://www.reuters.com/technology/us-senate-draft-bill-would-provide-110-billion-tech-research-2021-05-07/?taid=6095dcbe1f36dc0001b94303&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/technology/us-senate-draft-bill-would-provide-110-billion-tech-research-2021-05-07/?taid=6095dcbe1f36dc0001b94303&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+
+***校对发布**：文顾*
 
 0

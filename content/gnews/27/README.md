@@ -1,43 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 财经评论-失望的就业报告后科技股上涨的原因
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1185723/)
+## 财经速递-三家中国电信公司将被纽交所退市
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1185902/)
 
 **整理撰稿：蓝精灵**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07192330/584.jpg)
-福布斯乔纳森·庞恰诺今天发表了一篇文章，分析了一下为何糟糕数据的就业报告出台后科技股仍旧上涨。他的观点是，科技股在周五早上上涨，向投资者暗示了政府刺激措施的信号，可能会持续比预期更长的时间，并有助于推高股票。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07203006/588.jpg)
+路透社最新报道：三家中国电信公司周五表示，将根据美国对去年的投资限制，将被纽约证券交易所除牌。
 
-**关键事实**
-尽管仍较4月份的高点下跌了约3％，但技术含量高的纳斯达克指数在美国劳工统计局（Bureau of Labor Statistics）透露美国经济上月仅增加了266,000个工作岗位后立即飙升超过1.5％，约占100万个工作岗位的四分之一。
+中国移动(0941.HK)、中国联通(0762.HK)和中国电信(0728.HK)周五早些时候分别发布公告称，在这些公司上诉未果的情况下，他们预计纽交所将通知监管机构他们被摘牌。
 
-Oanda高级市场分析师爱德华·莫亚（Edward Moya）表示，“华尔街震惊了，但纳斯达克却感到兴奋。”报告称，就业增长“非常令人失望”，并指出股市动荡。
+纽约证券交易所发言人拒绝置评。
 
-对经济低迷更加敏感的道琼斯工业平均指数和标准普尔500指数均在盘前交易中下跌，随后分别反弹0.3％和0.5％。
+退市源于美国前总统川普针对中国科技公司实施的投资限制。在世界两个最大经济体之间持续的紧张关系中，尽管有企业反对，但美国总统拜登还是保留了这些规定。
 
-分析师们将纳斯达克的出色表现寄托在新的希望上，认为疲软的劳动力市场将为政府的刺激措施和宽松的货币政策提供弹药，这两者都有助于将市场，特别是科技股提升到大流行期间的高点。
-
-莫亚指出，反映出经济的不确定性和科技股的增长，十年期美国国债的收益率在报告后的几分钟内暴跌了近10个基点。
-
-大西洋理事会的乔什·利普斯基（Josh Lipsky）在周五的一份报告中说：“美国经济复苏还有很长的路要走。”他还补充说，就业报告表明美联储接近零利率的政策以及国会的推动，大型基础设施和就业计划将在未来几个月内继续进行。
-
-**重要报价**
-莫亚说：“这份就业报告改变了投资者的局面……这是美联储谨慎态度的一个大惊喜。”他引用劳动力市场的预期“过于自信”，并发表了一系列评论，抨击美联储继续提供前所未有的货币支持（包括尽管人们担心将更多的资金注入经济可能引发问题性的通货膨胀，但历史上的低利率和每月购买1200亿美元债券有过先例）。
-
-**关键背景**
-今年以来，股票已飙升至新高，但去年引领市场大规模反弹的高科技公司已不再上涨。这主要是因为10年期美国国债收益率今年已经上涨了60个基点以上，从而吸引了投资者进入无风险资产类别，而远离了飙升至创纪录高价的科技股。同时，随着企业重新开业，旅行回升以及经济复苏，投资者已蜂拥而至，受到大流行打击的行业中的股票，例如能源和金融业。纳斯达克指数今年已上涨近9％，分别低于标普和道琼斯指数的14％和15％。
-
-**要注意什么**
-在6月16日美联储开会之前，还有另外一份就业报告，以决定何时应该撤回其经济支持。Vital Knowledge Media创始人Adam Crisafulli表示，在6月的会议上暗示逐渐缩减可能在11月或12月开始是“完全适当的”，如果市场的近期反应表明有这种迹象，那么这种迹象可能会打击股市。
+两家公司表示，他们的退市将在交易所向美国证券交易委员会提交25号表格后的10天内生效。
 
 **编者简评：**
-在新冠疫情没有彻底控制，溯源问题没有彻底解决之前，都是市场的虚假繁荣。资本市场的点荡起伏，是在进行资本的重新分配而已。但是我们从中可以看到，媒体还是未来增长的主要方向，但是它需要一个更加好的透明公开的环境。
+很早的时候， Miles郭就曾经预言中共国的三大电讯公司会被美国股票市场退市。还有在美国上市的中概股，也会被退市。
 
-（*以上仅代表作者观点，不代表Gnews平台*）
+（以上仅代表作者观点，不代表Gnews平台）
 
 **参考链接：**
-[https://www.forbes.com/sites/jonathanponciano/2021/05/07/heres-why-tech-stocks-are-rallying-after-massively-disappointing-jobs-report/?sh=2f617342199c&utm\_campaign=socialflowForbesMainTwitter&utm\_medium=social&utm\_source=ForbesMainTwitter](https://www.forbes.com/sites/jonathanponciano/2021/05/07/heres-why-tech-stocks-are-rallying-after-massively-disappointing-jobs-report/?sh=2f617342199c&amp;utm_campaign=socialflowForbesMainTwitter&amp;utm_medium=social&amp;utm_source=ForbesMainTwitter)
+[https://www.reuters.com/business/media-telecom/three-chinese-telecom-companies-be-delisted-by-nyse-2021-05-07/?taid=6095cd811f36dc0001b942c4&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/business/media-telecom/three-chinese-telecom-companies-be-delisted-by-nyse-2021-05-07/?taid=6095cd811f36dc0001b942c4&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
 ***校对发布**：文顾*
 
-0
++1

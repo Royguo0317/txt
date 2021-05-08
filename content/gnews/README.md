@@ -12,138 +12,138 @@
 
 ---
 
-### [2021年05月07日澳喜要闻（每日更新）](/content/gnews/1/README.md)
+### [【突发】国务卿布林肯呼吁台湾加入世卫组织](/content/gnews/1/README.md)
+ ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
+
+### [9岁孩子被老师虐待至皮骨分离，中共秘密保护“教育系统”](/content/gnews/2/README.md)
+ ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
+
+### [比利时担忧阿里巴巴可能配合从事间谍活动](/content/gnews/3/README.md)
+ ` 闪电侠`
+
+### [中共太平川空军专用靶场遭窃，多个重型装甲靶标不翼而飞](/content/gnews/4/README.md)
+ ` G-NEWS TAIWAN`
+
+### [美参议院中共国法案将研究创建“首席制造”职位](/content/gnews/5/README.md)
+ ` 闪电侠`
+
+### [5月7日美国政要和政评家反共推特精选](/content/gnews/6/README.md)
+ ` 美国政要等...直译推`
+
+### [【世事解评】新冠防疫流于形式、“毒”疫苗强制接种，动物防疫又如何行之有效？](/content/gnews/7/README.md)
+ ` 纽约香草山MOS01`
+
+### [白宫新闻秘书透露一年后离职](/content/gnews/8/README.md)
+ ` HimalayaRussia`
+
+### [视频美国能制造所有关键芯片，并拥有完整的芯片供应](/content/gnews/9/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [中共的病毒“解药”紧急上市？](/content/gnews/10/README.md)
+ ` 丁过`
+
+### [2021年05月07日澳喜要闻（每日更新）](/content/gnews/11/README.md)
  ` 澳喜农场`
 
-### [闫丽梦博士展示“中共生物战预测” 的突破性文件](/content/gnews/2/README.md)
+### [闫丽梦博士展示“中共生物战预测” 的突破性文件](/content/gnews/12/README.md)
  ` 闪电侠`
 
-### [英格兰历史之根基 （十五） 大宪章（下）](/content/gnews/3/README.md)
+### [英格兰历史之根基 （十五） 大宪章（下）](/content/gnews/13/README.md)
  ` HimalayaRussia`
 
-### [视频当委会弗兰克·加夫尼分析台湾半导体芯片产业和中共野心](/content/gnews/4/README.md)
+### [视频当委会弗兰克·加夫尼分析台湾半导体芯片产业和中共野心](/content/gnews/14/README.md)
  ` 秘密翻译组G-Translators`
 
-### [闫博士5月8日推文中的贺福初和法匹拉韦是怎么回事](/content/gnews/5/README.md)
+### [闫博士5月8日推文中的贺福初和法匹拉韦是怎么回事](/content/gnews/15/README.md)
  ` NewFOC`
 
-### [英格兰历史之根基 （十五） 大宪章（中）](/content/gnews/6/README.md)
+### [英格兰历史之根基 （十五） 大宪章（中）](/content/gnews/16/README.md)
  ` HimalayaRussia`
 
-### [豁免中共病毒疫苗知识产权 谁是最大受益者？](/content/gnews/7/README.md)
+### [豁免中共病毒疫苗知识产权 谁是最大受益者？](/content/gnews/17/README.md)
  ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
 
-### [基里巴斯议员称中共国计划重启太平洋战略飞机跑道](/content/gnews/8/README.md)
+### [基里巴斯议员称中共国计划重启太平洋战略飞机跑道](/content/gnews/18/README.md)
  ` 康州盘古农场 Himalaya CT Pangu`
 
-### [英格兰历史之根基 （十五） 大宪章（上）](/content/gnews/9/README.md)
+### [英格兰历史之根基 （十五） 大宪章（上）](/content/gnews/19/README.md)
  ` HimalayaRussia`
 
-### [【世事解评】交通监控不断升级，所为行驶安全还是加重罚款？](/content/gnews/10/README.md)
+### [【世事解评】交通监控不断升级，所为行驶安全还是加重罚款？](/content/gnews/20/README.md)
  ` 纽约香草山MOS01`
 
-### [《路德时评》重磅解读法参议院通过台湾参与国际组织法案](/content/gnews/11/README.md)
+### [《路德时评》重磅解读法参议院通过台湾参与国际组织法案](/content/gnews/21/README.md)
  ` 香柏树`
 
-### [巴勒斯坦信徒与以色列警察发生冲突，130多人受伤](/content/gnews/12/README.md)
+### [巴勒斯坦信徒与以色列警察发生冲突，130多人受伤](/content/gnews/22/README.md)
  ` 闪电侠`
 
-### [【战友心声】中共在末路上狂奔](/content/gnews/13/README.md)
+### [【战友心声】中共在末路上狂奔](/content/gnews/23/README.md)
  ` 纽约香草山MOS03`
 
-### [视频【字幕】5/7/2021文贵盖特 1：中国共产党这个流氓政府，为什么要在全国封杀购买比特币和加密货币？](/content/gnews/14/README.md)
+### [视频【字幕】5/7/2021文贵盖特 1：中国共产党这个流氓政府，为什么要在全国封杀购买比特币和加密货币？](/content/gnews/24/README.md)
  ` 纽约香草山MOS01`
 
-### [视频5/5/2021 郭先生直播（一）：全世界政府都在推销疫苗，意味着什么？](/content/gnews/15/README.md)
+### [视频5/5/2021 郭先生直播（一）：全世界政府都在推销疫苗，意味着什么？](/content/gnews/25/README.md)
  ` 秘密翻译组G-Translators`
 
-### [战友展览板【5/7】](/content/gnews/16/README.md)
+### [战友展览板【5/7】](/content/gnews/26/README.md)
  ` wenwu`
 
-### [财经速递-三家中国电信公司将被纽交所退市](/content/gnews/17/README.md)
+### [财经速递-三家中国电信公司将被纽交所退市](/content/gnews/27/README.md)
  ` 闪电侠`
 
-### [G7外长伦敦会议，俄罗斯中共国 成为首要议题](/content/gnews/18/README.md)
+### [G7外长伦敦会议，俄罗斯中共国 成为首要议题](/content/gnews/28/README.md)
  ` 康州盘古农场 Himalaya CT Pangu`
 
-### [“一石三鸟”- 拜登呼吁开放CCP病毒疫苗专利对世界的影响](/content/gnews/19/README.md)
+### [“一石三鸟”- 拜登呼吁开放CCP病毒疫苗专利对世界的影响](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [科技前沿- 星链SpaceX Starlink Internet服务在法国现在可用](/content/gnews/20/README.md)
+### [科技前沿- 星链SpaceX Starlink Internet服务在法国现在可用](/content/gnews/30/README.md)
  ` 闪电侠`
 
-### [美CDC高官将辞职，曾警告疫情大流行](/content/gnews/21/README.md)
+### [美CDC高官将辞职，曾警告疫情大流行](/content/gnews/31/README.md)
  ` 闪电侠`
 
-### [政府是如何不断用其公民做实验：从思想控制到病毒](/content/gnews/22/README.md)
+### [政府是如何不断用其公民做实验：从思想控制到病毒](/content/gnews/32/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [拜登上任后 就业热潮仍然是海市蜃楼](/content/gnews/23/README.md)
+### [拜登上任后 就业热潮仍然是海市蜃楼](/content/gnews/33/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [失控的中共的火箭可能于5月8日坠落地球](/content/gnews/24/README.md)
+### [失控的中共的火箭可能于5月8日坠落地球](/content/gnews/34/README.md)
  ` 康州盘古农场 Himalaya CT Pangu`
 
-### [周末间谍战&#8211;台湾前国安高官叛逃大陆？疑携带机密名单文件](/content/gnews/25/README.md)
+### [周末间谍战&#8211;台湾前国安高官叛逃大陆？疑携带机密名单文件](/content/gnews/35/README.md)
  ` 闪电侠`
 
-### [福克斯蹭热度称实验室泄露说成共和党关注焦点](/content/gnews/26/README.md)
+### [福克斯蹭热度称实验室泄露说成共和党关注焦点](/content/gnews/36/README.md)
  ` HimalayaRussia`
 
-### [财经评论-失望的就业报告后科技股上涨的原因](/content/gnews/27/README.md)
+### [财经评论-失望的就业报告后科技股上涨的原因](/content/gnews/37/README.md)
  ` 闪电侠`
 
-### [疫情专栏-世界上疫苗接种率最高的国家 封锁了](/content/gnews/28/README.md)
+### [疫情专栏-世界上疫苗接种率最高的国家 封锁了](/content/gnews/38/README.md)
  ` 闪电侠`
 
-### [长征5B助推火箭 失控掉向地球](/content/gnews/29/README.md)
+### [长征5B助推火箭 失控掉向地球](/content/gnews/39/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [科技新闻-美国太空编辑揭示中共国国家火箭公司一开始就追踪SpaceX](/content/gnews/30/README.md)
+### [科技新闻-美国太空编辑揭示中共国国家火箭公司一开始就追踪SpaceX](/content/gnews/40/README.md)
  ` 闪电侠`
 
-### [共和党对病毒起源进行全面调查 要求解密文件](/content/gnews/31/README.md)
+### [共和党对病毒起源进行全面调查 要求解密文件](/content/gnews/41/README.md)
  ` 索尼克`
 
-### [病毒危机 导致营业税暴跌](/content/gnews/32/README.md)
+### [病毒危机 导致营业税暴跌](/content/gnews/42/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [疫情前线-墨西哥可能在6月生产俄罗斯人造卫星疫苗](/content/gnews/33/README.md)
+### [疫情前线-墨西哥可能在6月生产俄罗斯人造卫星疫苗](/content/gnews/43/README.md)
  ` 闪电侠`
 
-### [中共假擀麵杖硬起來了，不翻白眼了？](/content/gnews/34/README.md)
+### [中共假擀麵杖硬起來了，不翻白眼了？](/content/gnews/44/README.md)
  ` HML vancouver sailing`
 
-### [日本公司密切关注供应链中的人权问题](/content/gnews/35/README.md)
+### [日本公司密切关注供应链中的人权问题](/content/gnews/45/README.md)
  ` HimalayaRussia`
-
-### [中共假擀面杖硬起来了，不翻白眼了？](/content/gnews/36/README.md)
- ` HML vancouver sailing`
-
-### [疫苗专利保护议题 是政治表演而没有实质](/content/gnews/37/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [中共南海非法主权扩张还源于争夺稀土资源](/content/gnews/38/README.md)
- ` HimalayaRussia`
-
-### [DNA、疫苗和超人类主义－2021-2030大重置计划](/content/gnews/39/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [【热点播报】菲律宾总统杜特尔特将退回中国疫苗](/content/gnews/40/README.md)
- ` 纽约香草山MOS02`
-
-### [【圣城传声筒】林郑涉嫌危害国家安全 理应判囚](/content/gnews/41/README.md)
- ` MOShongkong`
-
-### [默克尔与生物科技（Biontech）老板谈到了专利批准问题](/content/gnews/42/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [国务卿安东尼·布林肯谈中（共）国带来的威胁](/content/gnews/43/README.md)
- ` 喜马拉雅巴黎七星农场`
-
-### [印度称因缺氧令染疫者死亡等同于种族灭绝罪](/content/gnews/44/README.md)
- ` HimalayaRussia`
-
-### [德国对教皇的不服从行动](/content/gnews/45/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
 
