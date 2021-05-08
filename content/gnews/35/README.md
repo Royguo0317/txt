@@ -1,60 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/05/05 班农采访(3) 中共是没有得到过人民授权的非法政府
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1189018/)
+## 澳大利亚开始审查达尔文港向中国公司出租的租约
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1189137/)
 
-视频字幕：雨中漫步 | 听写/翻译：Wade| 翻译校正：Roberts |简评/文字整理/编辑：胖丁|Page：小雨
+编撰：PEACEMAN 
+复核：七角星
 
-**简评：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08112320/%E4%B8%8B%E8%BD%BD-1.jpg)
 
-从美国独立战争开始，人民授权就是最根本的理念。独立宣言里阐明：任何没有得到人民授权的政府都不可能长久存在。中共从来就没有得到过人民的授权，它不爱人民，不得民心。它是一个非法政府，是一个跨国的犯罪组织，与二战时期的纳粹、前苏联、墨索里尼、东条英机等无异。
+一名澳政府消息人士本周一表示，澳大利亚正在审查将该国北部的一个商业和军事港口租给一家中国公司的99年租约，此举可能进一步激化北京和堪培拉之间的紧张关系。去年年底，澳大利亚全面改革了其外国投资法，赋予政府追溯权力，以施加新条件，甚至迫使已批准的交易撤资。
 
+消息人士告诉路透社，国防官员正在研究是否应该以国家安全为由强迫路桥集团（Landbridge Group）被迫放弃其对达尔文港的所有权。
 
+根据媒体报道，与中国军方有密切联系的路桥集团（Landbridge）在2015年赢得了竞标，以价值5.06亿澳元（合3.9亿美元）的价格运营该港口。
 
-[GTV 视频链接](https://gtv.org/video/id=6095144837f7f73984c8d6a0)
+一位政府人士说：”已经就港口问题征求了意见，并将在适当的时候提交给国家安全委员会。该消息人士拒绝透露姓名，因为他未被授权就这一问题与媒体交谈。最先报道这一审查的《悉尼先驱晨报》援引国防部长彼得-达顿的话说，政府将 “在这之后研究符合我们国家利益的选项”。
 
-**视频字幕：**
+达尔文被誉为澳大利亚通往亚洲市场的前门，也是资源和农业出口的潜在枢纽，是澳大利亚政府开发其北部偏远地区计划的核心。此次审查正值澳中关系的低谷期，多年来两国关系一直起伏不定。去年，在堪培拉要求对COVID-19大流行病的起源进行国际调查后，两国关系再次恶化，引发了中国政府的贸易报复。
 
-**班农：**我们每天都在揭露的重要真相就是：**中共不是一个得到人民授权的政府，也不是一个爱民的政府。**
+编者点评：迄今为止，政府已使用新法律取消了四项交易，其中两项是维多利亚州与中国政府达成的“一带一路”倡议。澳大利亚作为五眼联盟国家之一，在逐渐认清中共的邪恶面目后，已越来越紧密地与灭共的力量站在了一起，只有灭共，澳大利亚才能摆脱中共的胁迫。
 
-记住，从美国脱离英国殖民统治的独立革命开始，所有文件里记载的最重要的概念——人民的授权。
+参考链接：[Australia reviewing lease of Darwin port to Chinese firm – source](https://www.reuters.com/world/asia-pacific/australia-review-lease-port-chinese-firm-media-report-2021-05-02/)
 
-中共是否得到了中国人民的授权呢？
-
-**没有。****《独立宣言》**里阐述了：**任何没有得到人民授权的政府都不可能长久存在**。尤其是21世纪的今天。
-
-这就是问题的核心，中国人民没有给中共授权，没有授权。他们被压迫，很大程度上被西方金融世界、跨国企业和那些给中共下跪的精英所奴役。
-
-**中共是跨国犯罪集团，与纳粹无异**。与墨索里尼的法西斯意大利无异，与东条英机领导管理的日本帝国军政府没有区别。与苏联布尔什维克无异，与柬埔寨的波尔布特无异。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/A3ZVnxOlB9wcK/images/27261013-575d-4db1-ac0e-2dc9726c1062.jpg?asset_id=c42726d6-ada1-475d-b4cb-4b18f6aeac6f&amp;img_etag=%22bf2dd55632db5fc814438839f7c41f1d%22&amp;size=1024)](https://spark.adobe.com/page/A3ZVnxOlB9wcK/images/27261013-575d-4db1-ac0e-2dc9726c1062.jpg?asset_id=c42726d6-ada1-475d-b4cb-4b18f6aeac6f&amp;img_etag=%22bf2dd55632db5fc814438839f7c41f1d%22&amp;size=1024)
-
-他们不是政府。他们没有获得人民的授权。中共不得民心。习近平是个伪皇帝。他是跨国犯罪集团的黑帮老大，这一点每天都更加清晰。
-
-这也是为什么赛林上校的声明非常有力，会让中共难以反抗，难以继续它的谎言。
-
-这也是我们每天为什么要这么努力。
-
-**[完整访谈视频](https://gtv.org/video/id=6092949adb13300ca5490f40)**
-
-**主播：**Mikehua，Angela，Daniel，Mike，TCC，和Winston
-
-- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
-- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
-
-
-***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三伦敦时间14:00 （美东时间09：00）直播***
-
-编辑：【英国伦敦喜庄园编辑部】
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/A3ZVnxOlB9wcK/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/A3ZVnxOlB9wcK/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
-
-
+（文章只代表编者观点，与GENEWS平台无关）
 
 0

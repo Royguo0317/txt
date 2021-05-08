@@ -1,59 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 保护言论自由，圣地亚哥大学教授不会因言获罪
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1188921/)
+## 2021/05/05 班农采访(3) 中共是没有得到过人民授权的非法政府
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1189018/)
 
-新闻来源：《布赖特巴特》| 作者：ALANA MASTRANGELO | 发布时间：2021年5月5日
-翻译/简评：葡萄树 | 校对：SilverSpurs7 | 审核：万人往 | Page：我是球大哥
+视频字幕：雨中漫步 | 听写/翻译：Wade| 翻译校正：Roberts |简评/文字整理/编辑：胖丁|Page：小雨
 
-[!\[\]()!\[\](https://spark.adobe.com/page/XVb4QnNxrBPOk/images/ced726e5-69da-49ac-b7ee-e888d2d1eeed.jpg?asset_id=a95f7e6b-df26-4900-9684-6273c05207a6&amp;img_etag=%22baf461654b38f88257ec426eafa86558%22&amp;size=1024)](https://spark.adobe.com/page/XVb4QnNxrBPOk/images/ced726e5-69da-49ac-b7ee-e888d2d1eeed.jpg?asset_id=a95f7e6b-df26-4900-9684-6273c05207a6&amp;img_etag=%22baf461654b38f88257ec426eafa86558%22&amp;size=1024)
+**简评：**
 
-今年3月，圣地亚哥的一位法学终身教授在自己的部落格里发表关于新冠病毒起源的言论，他说到：“如果你相信冠状病毒不是从武汉实验室泄漏，你至少要考虑你是一个白痴，正全盘吞下大量中共国的粪便。”由于有人认为教授的语言带有种族歧视，圣地亚哥大学决定对他展开调查。然而教授自己澄清说，当他说Chinese的时候，他指的是中共国政府，而不是一个种族。在“教育个人权利基金会”的敦促下，学校最后裁定，教授受到大学对言论自由和学术自由承诺的保护，不会对他采取惩罚。
+从美国独立战争开始，人民授权就是最根本的理念。独立宣言里阐明：任何没有得到人民授权的政府都不可能长久存在。中共从来就没有得到过人民的授权，它不爱人民，不得民心。它是一个非法政府，是一个跨国的犯罪组织，与二战时期的纳粹、前苏联、墨索里尼、东条英机等无异。
 
-虽然在有良知、有理性、正常的美国人民的抗争下，史密斯教授最终没有受到惩罚，似乎是一个美好的结局，然而这件事却带给人们更多的思考，美国到底怎么了？未来还会有多少同样的事件发生？就像文中所说的，它已经在学校师生中产生了寒蝉效应。为什么种族歧视的争论总是高于一切？在此次事件中，人们不去讨论冠状病毒是否是人造的或自然的，是否是人为或无意泄漏，却去讨论种族歧视、言论自由。跟随了郭文贵先生领导的爆料革命的战友们，都一眼能看明白其中的套路。被中共蓝金黄的大学，对凡是认同新冠病毒来源于武汉实验室的个人，都会进行污名化攻击，一是为恐吓其他人，二是为转移焦点。
 
-经过两个月的审理，史密斯教授最终胜利了，也带给人们希望：在塞林博士明确说新冠病毒是实验室制造、巴西总统指责中共发动生物战的今天，与中共有利益合作的个人、机构都不得不选边站了。若他们仍然选择站在中共一边，未来必定受到全世界的审判。
 
-最后，我想对史密斯教授说，我非常理解你，我是一名女性，但是当我从路德社了解到是中共释放了新冠病毒，并有意谋杀众多无辜的武汉市民时，我在心里也用各种肮脏的词汇咒骂中共，因为只有这样的词汇才能最好地描述中共。欢迎你加入爆料革命，在这里你会找到无数个像你一样心中充满正义的战友。
+[GTV 视频链接](https://gtv.org/video/id=6095144837f7f73984c8d6a0)
 
-**原文翻译：**
+**视频字幕：**
 
-## 圣地亚哥大学将不惩罚批评中共国政府的教授
+**班农：**我们每天都在揭露的重要真相就是：**中共不是一个得到人民授权的政府，也不是一个爱民的政府。**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/XVb4QnNxrBPOk/images/b9f6d27e-b284-49da-a0e9-0495b791c0cf.png?asset_id=2d693883-9bc1-41ae-8de5-f58bb2236bc5&amp;img_etag=%22858be5790065c772db6d6faf18583045%22&amp;size=2560)](https://spark.adobe.com/page/XVb4QnNxrBPOk/images/b9f6d27e-b284-49da-a0e9-0495b791c0cf.png?asset_id=2d693883-9bc1-41ae-8de5-f58bb2236bc5&amp;img_etag=%22858be5790065c772db6d6faf18583045%22&amp;size=1024)
+记住，从美国脱离英国殖民统治的独立革命开始，所有文件里记载的最重要的概念——人民的授权。
 
-**圣地亚哥大学（USD）已经结束了对一位在博文中批评中共国政府的教授的调查。校园言论自由组织FIRE评论说：“尽管圣地亚哥大学对史密斯的调查一开始就不应该进行，但FIRE赞扬了大学能结束调查并得出正确的结论：不能因为有些人可能会被冒犯，就对教师受保护的言论进行惩罚。”**
+中共是否得到了中国人民的授权呢？
 
-根据“教育个人权利基金会”（FIRE）的一份新闻稿，该大学决定不能因托马斯•史密斯教授的个人博客文章而对其进行惩罚。今年3月，USD开始对史密斯进行调查，因为他在一篇博文中提到中共国政府的宣传时，使用了“冒犯性”语言。
+**没有。****《独立宣言》**里阐述了：**任何没有得到人民授权的政府都不可能长久存在**。尤其是21世纪的今天。
 
-“如果你相信冠状病毒不是从武汉实验室泄漏，你至少要考虑你是一个白痴，正全盘吞下大量中共国的粪便。”这位教授当时写道。
+这就是问题的核心，中国人民没有给中共授权，没有授权。他们被压迫，很大程度上被西方金融世界、跨国企业和那些给中共下跪的精英所奴役。
 
-在大学开始调查后，FIRE写信给USD，敦促学校结束对史密斯言论的调查，称其受到大学对言论自由和学术自由承诺的保护。
+**中共是跨国犯罪集团，与纳粹无异**。与墨索里尼的法西斯意大利无异，与东条英机领导管理的日本帝国军政府没有区别。与苏联布尔什维克无异，与柬埔寨的波尔布特无异。
 
-该组织还说，上个月，该大学回应说，他们将继续审查此事。
+[!\[\]()!\[\](https://spark.adobe.com/page/A3ZVnxOlB9wcK/images/27261013-575d-4db1-ac0e-2dc9726c1062.jpg?asset_id=c42726d6-ada1-475d-b4cb-4b18f6aeac6f&amp;img_etag=%22bf2dd55632db5fc814438839f7c41f1d%22&amp;size=1024)](https://spark.adobe.com/page/A3ZVnxOlB9wcK/images/27261013-575d-4db1-ac0e-2dc9726c1062.jpg?asset_id=c42726d6-ada1-475d-b4cb-4b18f6aeac6f&amp;img_etag=%22bf2dd55632db5fc814438839f7c41f1d%22&amp;size=1024)
 
-周二，美国大学副校长兼教务长盖尔•贝克(Gail Baker)发表了一份声明，解释说史密斯的言论受到学校学术自由政策的保护。
+他们不是政府。他们没有获得人民的授权。中共不得民心。习近平是个伪皇帝。他是跨国犯罪集团的黑帮老大，这一点每天都更加清晰。
 
-“学术自由是圣地亚哥大学使命的核心。同时，我们致力于提供一个尊重每个人尊严的教育环境。这两个承诺可以而且必须共存。”贝克说。
+这也是为什么赛林上校的声明非常有力，会让中共难以反抗，难以继续它的谎言。
 
-“重要的是，大学社区的成员以负责任的方式行使他们的自由，他们的观点虽受保护，但要留意它所造成的影响，并对社区的所有成员保持敏感，特别是那些可能感到脆弱、被边缘化或担心他们不受欢迎的人，”贝克补充说，“大学社区的成员可能觉得有义务，当然他们也有自由，批评他们认为贬低了他人尊严的意见。”
+这也是我们每天为什么要这么努力。
 
-FIRE说，虽然它赞赏USD的结论，“但大学决定在史密斯不知情的情况下，对他明确受保护的言论进行调查，这是不允许的。这几乎肯定对希望表达自己观点的大学师生造成了寒蝉效应。”
+**[完整访谈视频](https://gtv.org/video/id=6092949adb13300ca5490f40)**
 
-“尽管USD对史密斯的调查一开始就不应该进行，但FIRE赞扬了USD能结束调查并得出正确的结论：不能因为有些人可能会被冒犯，就对教师受保护的言论进行惩罚.”该组织补充说。
+**主播：**Mikehua，Angela，Daniel，Mike，TCC，和Winston
 
-[原文链接](https://www.breitbart.com/tech/2021/05/05/u-of-san-diego-will-not-punish-prof-who-criticized-chinese-government/)
+- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
+- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
+***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三伦敦时间14:00 （美东时间09：00）直播***
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/XVb4QnNxrBPOk/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/XVb4QnNxrBPOk/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/A3ZVnxOlB9wcK/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/A3ZVnxOlB9wcK/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 
 
-+1
+0
