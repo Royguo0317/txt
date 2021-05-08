@@ -1,40 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 默克尔与生物科技（Biontech）老板谈到了专利批准问题
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1185393/)
+## 疫情前线-墨西哥可能在6月生产俄罗斯人造卫星疫苗
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1185582/)
 
-```
-新闻来源：德国世界报 网络版
-发表时间：2021年5月7日
-翻译整理/ 简评： Shuizhuyu
-```
+**整理撰稿：蓝精灵**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07182524/581.jpg)
+墨西哥卫生部周五表示，随着政府审查其紧急使用授权，俄罗斯的人造卫星V- COVID-19疫苗很可能在6月的最后一周开始在墨西哥生产。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07174932/131027025809_cn_angela_merkel_phone_464x261_gettyimages.jpg)图片来源：BBC
-在美国出乎意料的举动之后，正在讨论撤销病毒疫苗的专利保护。安吉拉·默克尔（*Angela Merkel*）对此提出了批评。但是，据媒体报道，总理与生物科技（*Biontech*）的创始人进行了私下交谈。
+卫生部在一份声明中说，来自卫生安全机构Cofepris的专家将前往莫斯科，星期五收到了参观制造人造卫星V疫苗的俄罗斯Gamaleya研究所的邀请。
 
-总理安格拉·默克尔（*CDU*）显然在星期四给病毒疫苗生产商生物科技（Biontech）的老板乌尔·萨欣（*UğurŞahin*）打电话。这是由“ *Spiegel*”报道的。因此，打来的电话是关于病毒疫苗可能的专利发布以及为贫穷国家更好地提供疫苗的可能步骤。目标不是短期的帮助，而是可持续的疫苗供应，也用于未来的大流行。
+俄罗斯开发的疫苗的最终包装将在墨西哥Birmex国家生物实验室进行，本周早些时候对该实验室进行了检查，验证了实验室的健康和安全状况。
 
-根据该报告，尚不清楚沙辛是否加强了总理对可能的专利发布的批评立场。据政府界人士称，坚持专利保护长期以来一直是默克尔的立场。
+Cofepris期望在获得紧急使用授权之前，于5月下旬对疫苗进行必要的测试。
 
-在美国出乎意料的举动之后，目前正在讨论撤销病毒疫苗的专利保护。美国政府提议制药公司应暂时失去其病毒疫苗的专利保护。这样，世界各地的制造商就可以生产疫苗，而无需向开发代理商的公司支付特许权使用费。欧盟也在周四对此开放。制药公司拒绝了这一提议。
+如果获得预期批准，Sputnik V将成为继中国的CanSino（康希诺）和英国的阿斯利康疫苗之后在墨西哥大规模生产的第三种COVID-19疫苗。
 
-星期四，柏林发出了不同的信号。柏林政府发言人说：“疫苗生产的限制因素是生产能力和高质量标准，而不是专利。”这位发言人说，联邦政府正在以多种方式努力“如何提高德国和欧盟内部以及世界范围内的生产能力，有关公司也正在这样做”。同时，她强调了专利保护的必要性：“知识产权保护是创新的源泉，将来必须保持如此。”
+声明补充说，Cofepris还将评估一剂Sputnik Light疫苗，包括初步的三期试验。
 
-卫生部长詹斯·斯潘（*Jens Spahn*）最初仍然含糊。他说：“向全世界提供疫苗是摆脱这种大流行的唯一可持续方式。”首先，决定性的是生产设施的进一步扩大和生产国的更多出口。相比之下，外交大臣海科·马斯（*Heiko Maas*）更愿意削弱专利保护。社民党政治家说：“如果这样可以帮助更多人更快地获得疫苗，那这就是我们必须问自己的问题。”
+**编者简评：**
+小资料补充：2020年11月7日，中国康希诺疫苗宣布启动在墨西哥开发重组疫苗的第三期临床试验。墨西哥政府于10月就批准了这项研究。很多康希诺自己发布的消息中都显示类似这样的语句：“康希诺生物科技有限公司与军事科学院生物技术研究所合作，计划在。。。。。。”
 
-#### **简评：**
+*以上仅代表作者观点，不代表Gnews平台*
 
-**周四美国白宫和欧盟都发出了要求暂时撤销疫苗专利保护的倡议。晚间，德国总理默克尔对此表示了反对意见。周五早上，默克尔显然是不能顶住反对的声音，与生物科技**（**Biontech）的发明人，沙辛通电话。柏林对此也表示了不同的声音。赞同反对都有。现在在德国的形式还是不太明朗，相信后续也会有各种意见的发出。**
+**参考链接：**
+[https://www.reuters.com/world/americas/mexican-production-sputnik-v-vaccine-likely-by-late-june-health-ministry-2021-05-07/?taid=6095b60d4492f900010b8bf7&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/americas/mexican-production-sputnik-v-vaccine-likely-by-late-june-health-ministry-2021-05-07/?taid=6095b60d4492f900010b8bf7&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-**欧盟也好，美国也好，唯一的遏制病毒大流行的手段现在就只有疫苗，谁都知道，只要世界上还有一个国家不能遏制病毒，就不可能有真正的自由。但是，他们没有想过，疫苗真的管用吗？病毒是怎么来的，怎么就越变异越强大，西方的病毒学家们，你们先把这个问题回答了，才能说，疫苗是不是真的有用。无奈，病毒真相的揭露还需要时间。这个世界有点悲哀。 **
-（本文仅代表译者个人观点，跟GNEWS平台无关。）
-
-**新闻原文链接：**
-**🔗**[Merkel sprach offenbar mit Biontech-Chef über Patentfreigabe](https://www.welt.de/politik/deutschland/article230937985/Patentfreigabe-Impfstoffe-Merkel-telefonierte-mit-Biontech-Chef-Sahin.html)
-
-* * *
-
-***编辑整理/校对:** Ting Guo*
+***校对发布**：文顾*
 
 0

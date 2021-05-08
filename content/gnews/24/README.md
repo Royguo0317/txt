@@ -1,31 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疫情前线-墨西哥可能在6月生产俄罗斯人造卫星疫苗
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1185582/)
+## 失控的中共的火箭可能于5月8日坠落地球
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1185701/)
 
-**整理撰稿：蓝精灵**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07182524/581.jpg)
-墨西哥卫生部周五表示，随着政府审查其紧急使用授权，俄罗斯的人造卫星V- COVID-19疫苗很可能在6月的最后一周开始在墨西哥生产。
+翻译:康州盘古农场 – Layka
 
-卫生部在一份声明中说，来自卫生安全机构Cofepris的专家将前往莫斯科，星期五收到了参观制造人造卫星V疫苗的俄罗斯Gamaleya研究所的邀请。
+校对:康州盘古农场 – 格格巫
 
-俄罗斯开发的疫苗的最终包装将在墨西哥Birmex国家生物实验室进行，本周早些时候对该实验室进行了检查，验证了实验室的健康和安全状况。
+编辑:康州盘古农场 – 心照
 
-Cofepris期望在获得紧急使用授权之前，于5月下旬对疫苗进行必要的测试。
+康州盘古农场 – 彩虹 Rainbow
 
-如果获得预期批准，Sputnik V将成为继中国的CanSino（康希诺）和英国的阿斯利康疫苗之后在墨西哥大规模生产的第三种COVID-19疫苗。
+**据《www.foxnews.com》作者：埃德蒙·德马什（Edmund DeMarche）2021年5月5日报道**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07190641/koko888.png)
+巨大的中国火箭可能会返回地球坠毁
 
-声明补充说，Cofepris还将评估一剂Sputnik Light疫苗，包括初步的三期试验。
+福克斯新闻的菲尔·基廷(Phil Keating)报告说，不会在大气层中燃烧的飞船只可能会掉入海洋或在居民区坠落。
 
-**编者简评：**
-小资料补充：2020年11月7日，中国康希诺疫苗宣布启动在墨西哥开发重组疫苗的第三期临床试验。墨西哥政府于10月就批准了这项研究。很多康希诺自己发布的消息中都显示类似这样的语句：“康希诺生物科技有限公司与军事科学院生物技术研究所合作，计划在。。。。。。”
+一份报告说，上周发射的中共国火箭的巨大核心部分，预计在空间站的第一站发射中将于在5月8日坠入地球。
 
-*以上仅代表作者观点，不代表Gnews平台*
+《 太空新闻》(SpaceNews)引用了早期的跟踪预测，星期二报道说，美国国防部发言人说他们知道这枚火箭，并正在追踪它的位置，“但要等到5月8日左右进入地球的几个小时之内，才能确定它进入地球大气层的确切入口。”
 
-**参考链接：**
-[https://www.reuters.com/world/americas/mexican-production-sputnik-v-vaccine-likely-by-late-june-health-ministry-2021-05-07/?taid=6095b60d4492f900010b8bf7&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/americas/mexican-production-sputnik-v-vaccine-likely-by-late-june-health-ministry-2021-05-07/?taid=6095b60d4492f900010b8bf7&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+声明说，该部门将继续提供最新消息。
 
-***校对发布**：文顾*
+《 太空新闻》早些时候曾报道说，长征5B的核心将在下周的某个时候重归地球，这是“航天器不受控制的重返的最大实例之一，并有可能降落在有人居住的地区”。
+
+太空观察员乔纳森·麦克道威尔（Jonathan McDowell）在网站上说，自1990年以来，没有任何超过10吨的航天器“故意离开轨道重新进入不受控制的状态”。
+
+该网站估计，大约每100英尺高的物体每90分钟绕地球一周，并飞越纽约，北京以北和新西兰以南。
+
+该报告说，尽管存在威胁，但它最有可能掉入世界某一海洋或偏远地区。该报告称，火箭的核心级空载时的质量约为21公吨。 （你可以在此处跟踪火箭。）
+
+《卫报》说：“这可能不好，” 麦克道威尔说。 “上一次他们发射了长征5B火箭，结果以巨大的长条金属棒在天空中飞扬，并损坏了科特迪瓦海岸的几座建筑物。”
+
+原文链接：[https://www.foxnews.com/science/chinese-rocket-likely-to-make-uncontrolled-reentry-on-may-6-report-says](https://www.foxnews.com/science/chinese-rocket-likely-to-make-uncontrolled-reentry-on-may-6-report-says)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

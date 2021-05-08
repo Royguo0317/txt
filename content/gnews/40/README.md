@@ -1,31 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登政府支持放弃疫苗知识产权保护遭批评
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1185210/)
+## 【热点播报】菲律宾总统杜特尔特将退回中国疫苗
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1184822/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：纽约香草山佛教部    Nancy（孤独的战友）
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/05/K.jpg)share.america.gov
-Newsmax 5月7日报道，前众议院议长纽特·金里奇 (Newt Gingrich)周四表示，中共将对拜登政府宣布支持在中共病毒疫苗问题上放弃知识产权保护感到“兴奋”。
 
-“这是给中国共产党人的一份巨大的礼物，他们拥有最大的生产设施。” 金里奇指出，“现在他们不用去偷了。”
 
-贸易代表戴琪 (Katherine Tai)在周三的一份声明中表示，做出这一决定是因为全球健康危机，以及“中共病毒疫情的特殊情况需要采取非常措施。”她表示，拜登政府坚信保护知识产权，但“为了结束这场疫情，支持放弃对中共病毒疫苗的这些保护。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-戴琪指出，政府将继续通过私营部门和所有可能的合作伙伴加大努力，扩大疫苗的生产和分销，同时努力增加生产疫苗所需的原材料。
 
-金里奇认为此决定对中共这种盗取他国技术的流氓行为开了绿灯。他批评称，窃取技术是“典型的社会主义行为”，这就是为什么古巴和委内瑞拉等国家迅速衰落的原因。
 
-金里奇说，“当你从所有有生产力的人那里偷东西时，他们要么就不再有生产力，要么就搬走。”政府在疫苗专利上的举动也将削弱全球对新药的投资，并将“付出生命的代价。”他说，“在未来10年或20年里，人们将得不到他们需要的药物，因为他们决定窃取投资者和公司的资金。”
+据德国明镜周刊2021年5月7日清晨报道，中（共）国曾向菲律宾捐赠了一千剂量的国药集团疫苗（Sinopharm），而菲律宾国家元首杜特尔特也已经接种了这种疫苗。其后，该疫苗受到菲律宾国内的批评，杜特尔特现在决定将疫苗退还中（共）国。
 
-这位前发言人还公开反对脸书监督委员会支持该社交媒体网站对前总统唐纳德·川普媒体平台禁令的决定，称这一行动很“疯狂”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07165343/image-104.png)图源网络：菲律宾总统杜特尔特在接受国药集团疫苗接种时的情景
 
-巴西总统已经公开指出病毒为生物武器，剑指中共。现在国际社会摆脱疫情困境的唯一方法是向中共追责讨解药。疫苗无效，纠结于疫苗及所谓的疫苗知识产权只是政治欺骗和资本博弈的结果。
+据报道，菲律宾总统罗德里戈-杜特尔特（Rodrigo Duterte）本周接种了中（共）国制造的疫苗Sinopharm，医生为他接种疫苗的过程也在电视上进行了直播。其目的是，为了鼓励人们仿效他去打疫苗，以对抗冠状病毒的危害。不料，杜特尔特为此受到了严厉的批评——因为他选择了一种尚未被该国监管机构批准的疫苗（Sinopharm）。
 
-参考链接：
+杜特尔特随后在周三要求中（共）国收回捐赠给菲律宾的一千剂国药集团疫苗——这是明镜周刊引述CNN的消息。根据该报告，有关部门批评杜特尔特接受未经授权的疫苗针剂。为此，杜特尔特向公众表示道歉。据报道，杜特尔特通知中（共）国大使停止再向菲律宾发送国药集团疫苗（Sinopharm）。据当地媒体报道，杜特尔特表示：”我们仍可继续使用Sinovac疫苗。”这种疫苗（Sinovac）是今年2月份在菲律宾的一次紧急情况中使用的另一种中（共）国疫苗。
 
-[https://www.newsmax.com/newsfront/covid-19-technology-intellectual-property-theft/2021/05/06/id/1020394/](https://www.newsmax.com/newsfront/covid-19-technology-intellectual-property-theft/2021/05/06/id/1020394/)
+**作者评论：**
+
+中共国内以各种手段诱惑百姓打疫苗：送油、鸡蛋，甚至送钱。更离奇的是，打疫苗还和工作分配、子女就学等等联系起来。中共为了推进疫苗注射工作，各种稀奇古怪的招数都有。但百姓不是傻子，心里都有数，谁也不想当他们的小白鼠。所以，民众想尽一切办法进行抵制。如今，菲律宾总统对中（共）国疫苗也表示了不信任。今后疫苗的趋势如何，我们可以拭目以待。
+
+参考阅读：
+
+[Philippinen: Rodrigo Duterte schickt Impfstoff nach China zurück – DER SPIEGEL](https://www.spiegel.de/ausland/philippinen-rodrigo-duterte-schickt-impfstoff-nach-china-zurueck-a-f0510ff3-966d-4214-b939-6311bce6e5f8)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
 
 0

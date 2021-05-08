@@ -1,29 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 财经速递-三家中国电信公司将被纽交所退市
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1185902/)
+## 基里巴斯议员称中共国计划重启太平洋战略飞机跑道
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1185937/)
 
-**整理撰稿：蓝精灵**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07203006/588.jpg)
-路透社最新报道：三家中国电信公司周五表示，将根据美国对去年的投资限制，将被纽约证券交易所除牌。
+翻译:康州盘古农场 – Mike Li
 
-中国移动(0941.HK)、中国联通(0762.HK)和中国电信(0728.HK)周五早些时候分别发布公告称，在这些公司上诉未果的情况下，他们预计纽交所将通知监管机构他们被摘牌。
+校对:康州盘古农场 – 格格巫
 
-纽约证券交易所发言人拒绝置评。
+编辑:康州盘古农场 – 心照
 
-退市源于美国前总统川普针对中国科技公司实施的投资限制。在世界两个最大经济体之间持续的紧张关系中，尽管有企业反对，但美国总统拜登还是保留了这些规定。
+康州盘古农场 – 彩虹 Rainbow
 
-两家公司表示，他们的退市将在交易所向美国证券交易委员会提交25号表格后的10天内生效。
+**据《路透社》 作者：Jonathan Barrett，2021年5月5日报道**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07204000/china-44-1.jpg)
+2020年1月6日，中共国外交大臣王毅和基里巴斯总统塔内·马毛在中国人民大会堂的签字仪式上握手。 《路透社》
 
-**编者简评：**
-很早的时候， Miles郭就曾经预言中共国的三大电讯公司会被美国股票市场退市。还有在美国上市的中概股，也会被退市。
+（基里巴斯）议员告诉路透社，中共已制定计划，对夏威夷西南约3000公里的基里巴斯一个偏远岛屿上的飞机跑道和桥梁进行升级，恢复启用这个在第二次世界大战期间曾接待过军用飞机的中转站。
 
-（以上仅代表作者观点，不代表Gnews平台）
+这些计划尚未公开，涉及到在坎顿（Canton）小岛上的建设，这个珊瑚环礁位于亚洲和美洲之间的战略位置。
 
-**参考链接：**
-[https://www.reuters.com/business/media-telecom/three-chinese-telecom-companies-be-delisted-by-nyse-2021-05-07/?taid=6095cd811f36dc0001b942c4&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/business/media-telecom/three-chinese-telecom-companies-be-delisted-by-nyse-2021-05-07/?taid=6095cd811f36dc0001b942c4&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+基里巴斯反对派议员Tessie Lambourne告诉路透社，她对该项目感到担忧，并想知道它是否是中共“一带一路”倡议的一部分。
 
-***校对发布**：文顾*
+Lambourne告诉路透社：“政府没有分享成本和其他细节，只说这是一个修复跑道和桥梁的可行性研究。”反对派将在适当的时候向政府寻求更多信息。 “
 
-+1
+基里巴斯总统Taneti Maamau办公室没有对该问题作出回应。
+
+中共国外交部也没有立即对此问题作出回应。
+
+尽管基里巴斯很小，但这个拥有12万居民的国家却控制着世界上最大的专属经济区之一，覆盖了太平洋350多万平方公里的区域。
+
+坎顿岛位于夏威夷和美国军事基地西南3000公里（1864英里）处，任何在坎顿岛的重大集结都将为中共提供一个军事立足点，深入到自第二次世界大战以来一直坚定地与美国及其盟国结盟的领土。
+
+太平洋政府的一位顾问说：“该岛将是一艘固定的航空母舰，”由于该项目的敏感性，他不愿透露姓名。
+
+美国海军第七舰队和美国国务院东亚和太平洋事务局没有立即回应评论请求。
+
+基里巴斯（读作Kiribas）近年来一直处于中共国与美国及其太平洋盟友之间争斗的中心。
+
+2019年底，基里巴斯与台湾断绝了外交关系，转而支持中共国，这一决定由马茂监督，他在亲中共的平台上赢得了一场激烈的选举。
+
+台湾将美国视为重要的国际支持者和武器供应商。
+
+原文链接：[https://www.reuters.com/article/us-china-kiribati-exclusive-idUSKBN2CM0IZ](https://www.reuters.com/article/us-china-kiribati-exclusive-idUSKBN2CM0IZ)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

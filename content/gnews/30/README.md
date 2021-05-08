@@ -1,31 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## DNA、疫苗和超人类主义－2021-2030大重置计划
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1185522/)
+## 科技新闻-美国太空编辑揭示中共国国家火箭公司一开始就追踪SpaceX
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1185660/)
 
-蒙特利尔皇家山战友团 Spirit
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07175959/fdsfa.jpg)图片来源: Author Doug Felton
-据VAXXTER 2020年8月31日报道，超人类主义是一个未来主义的概念，人与技术融合，进化出一个新的人类物种。被称为 “后人类时代的人类改善”，超人类主义者认为人类会被技术提升。在一个后人类的世界里，我们所知的人类将被淘汰。
+**整理撰稿：蓝精灵**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07185054/chinese-starship-800x455-1.jpg)
+在南京的第六届“国家太空日里，中共国有火箭制造商中国运载火箭技术研究院展示了亚轨道点对点运输的潜力。它的概念是车辆从地球发射，飞入亚轨道空间，然后在不到一个小时的时间内降落到地球的另一边位置。
 
-2012年人工智能先驱雷-库兹韦尔成为谷歌的工程总监和首席未来学家。库兹韦尔预测，到2030年，技术进步将允许微小的纳米机器人通过注射方式进入血液，穿过血脑屏障，并融入大脑。然后人脑可以连接 “云”，生物人将成为 “非生物实体”。在他的书《奇点临近》讲道“在未来当人类超越生物学时，人类和机器之间将没有区别，物理和虚拟现实之间也没有区别”。
+[在中共国社交网络上](https://m.weibo.cn/status/4629935237105404)捕获的促销视频展示了从现在起，大约二十年内实现亚轨道旅客飞行的两种不同概念。该视频的有趣之处在于，第一个概念非常类似于SpaceX的Starship运载工具。它显示了能够垂直起飞和垂直降落的大型车辆。
 
-但是，如果我们的大脑可以向上接入云，那么云中的东西就可以向下推入我们的大脑，那么，谁来控制被允许进入大脑的具体信息？
+这个概念不仅在Starship的外观上很显着（车辆的外观像Starship的不锈钢结构一样有光泽，而且第一和第二级同样是无缝的），但在功能上也是如此。尽管星际飞船主要是作为将人类带到月球和火星的工具而得到推广的，但SpaceX还开发了点对点的概念。
 
-在前总统奥巴马2013年的国情咨文中，他宣布了投资大脑绘图技术的计划。同年4月，启动一项1亿多美元的计划，名为BRAIN，即通过推进创新神经技术进行大脑研究。多个公私合作机构得到了资助，包括艾伦脑科学研究所、霍华德-休斯医学研究所、索尔克生物研究所以及卡夫利基金会和研究所。还有政府的拨款，也就是我们的税款也资助了这个项目。
+SpaceX于2017年9月首次公开了这种“地球”概念。[当时发布](https://www.youtube.com/watch?v=zqE-ultsWt0)的[视频](https://www.youtube.com/watch?v=zqE-ultsWt0)显示，星际飞船从纽约市到上海的亚轨道飞行时间仅为39分钟，并宣传了“地球上任何地方的飞行时间不到1小时。”
 
-给国家科学基金会2000万美元，用于研究如何利用大数据来了解大脑产生思想、情感和记忆的能力。向美国国家卫生研究院（NIH）拨款4000万美元，用于开发培训工具和资源，以支持BRAIN计划；以及向国防高级研究计划局（DARPA）提供5000万美元，用于开发捕捉和处理动态神经和突触活动的工具。利用这些以及更多的资金，DARPA在2016年宣布它将开发神经工程系统设计（NESD）项目。NESD系统被誉为下一代脑机接口（BCI），旨在将大脑活动转化为二进制代码，使人类可以通过简单的思考与机器进行无线接触。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07184753/CALT-video-0-23-screenshot.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07184823/CALT-video-0-27-screenshot.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07184920/CALT-video-0-29-screenshot.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07184938/CALT-video-0-30-screenshot.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07185004/CALT-video-0-42-screenshot.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07185025/CALT-video-0-48-screenshot-1.png)
 
-**创造仿生人的动力会是经济效率、文化改造和军事统治吗？**人类将活得更长，成为全球公民。所有这些都在联合国和全球可持续发展议程的统治之下。这可以消除全球主义者对地球人口过剩的担忧。可以在工厂里制造不需要福利，不需要假期，而且可以全天候工作的奴隶。
 
-另一个担忧是在生产动物食品时使用DNA疫苗，进入人类的食品供应中。这种基因操纵使DNA疫苗成为超人类主义者的梦想工具。随着许多公司在研究生物人的身体部位，设计DNA疫苗以增强人类的DNA只是一步之遥。事实上，美国的Editas Medicine公司在2015年11月宣布，对第一批人类进行DNA基因改造的试验正在顺利进行中。
+中文视频中的第二个点对点概念显示了一种水平起飞，水平着陆的车辆，它使用了某种电磁弹射器，这两个系统都是中共国[先前宣布的](https://www.chinadaily.com.cn/china/2017-11/17/content_34653486.htm)到2045年发展全球点对点运输[计划的](https://www.chinadaily.com.cn/china/2017-11/17/content_34653486.htm)一部分。根据该国的长期规划目标，中共国工业将在2035年开始通过亚轨道飞行在全球范围内运送货物，并在2045年之前开始在全球运送旅客。 。
 
-利用人工智能、纳米技术和DNA疫苗的结合，改变人类的基因和人类的特征，不再只是电影中的情节。在什么时候，人类不再是人类了？随着疫苗建议成为强制性规定，现在所有国家的政府和媒体都在推动强制性疫苗，你能拒绝吗？你有保留你做生物人的权利吗？这些接种中共病毒疫苗的人将来会怎样？也许我们2-3年后甚至更长时间才能看到结果，也许到2030年人口断崖式下降时我们悔之已晚？也许将来人类将来只分成两种，打疫苗和没打疫苗的，转基因的和非转基因的。太可怕了，我们必须加快传播速度，尽快停止这些疯子要毁灭人类的疯狂行径。
+这不是中共国航天计划第一次从SpaceX那里汲取灵感。
 
-[原文链接](https://vaxxter.com/dna_vaccines_transhumanism/)
+该国从一开始就跟踪SpaceX，尤其是对SpaceX计划重复使用火箭的第一阶段感兴趣。正如《[*Liftoff*](https://www.harpercollins.com/products/liftoff-eric-berger?variant=32126620205090&amp;utm_source=Eric+Berger&amp;utm_medium=athrtwttr&amp;utm_campaign=Liftoff+Announcement)》一书中报道的那样，在该公司于2006年首次发射时，一艘中共国间谍船就在那片小小的海洋中。
 
-* * *
+最近，在2019年中共国长征2C火箭对“格栅鳍”进行了测试，就像猎鹰9火箭第一阶段使用的那样，以便在再入过程中引导自己穿越大气层。中共国打算像“猎鹰9”助推器那样，将“长征8月8日”火箭开发到[海上平台上](https://spacenews.com/china-rolls-out-long-march-8-rocket-for-weekend-test-flight/)，而像[LinkSpace](https://phys.org/news/2017-09-footsteps-spacexa-chinese-company-eyes.html) 和 [Galactic Energy](http://www.galactic-energy.cn/index.php/En/List/cid/15)这样的半私有中共国公司 似乎在模仿SpaceX的发射技术。
 
-*编辑、发稿 文锦*
+尚不清楚中共国是否还会开发类似星际飞船的行星际运输工具。目前，该国计划开发一种更传统的超重型起重器， [称为“长征9月9日”火箭](https://arstechnica.com/science/2021/02/china-officially-plans-to-move-ahead-with-super-heavy-long-march-9-rocket/)，以及类似于SpaceX的Falcon Heavy火箭的三核助推器。
+
+**编者简评：**
+
+本文作者：埃里克·贝尔格（Eric Berger）是Ars Technica的高级太空编辑，涵盖从天文学到私人太空再到美国国家航空航天局的所有内容，并且是有关SpaceX崛起的书[Liftoff的](https://www.harpercollins.com/products/liftoff-eric-berger?variant=32126620205090)作者。
+
+他还录制了视频放在Youtube上，就中共国的火箭公司抄袭SpaceX的概念进行了说明和对比。特斯拉一直在被抄袭，在网上有很多很有趣的故事，例如有一张图片显示的一个时间点：
+
+- 2014年6月12日马斯克宣布免费公开特斯拉所有专利
+- 2014年6月21日特斯拉全球公布271项专利，其中发明专利263项，外观专利8项
+- 2014年7月23日乐视汽车成立
+- 2014年11月蔚来汽车成立
+- 2015年1月9日小鹏汽车成立
+- 2015年7月理想汽车成立。
+
+
+\*以上仅代表作者观点，不代表Gnews平台\*
+
+**参考链接：**
+
+[https://arstechnica.com/science/2021/04/chinas-state-rocket-company-unveils-rendering-of-a-starship-look-alike/](https://arstechnica.com/science/2021/04/chinas-state-rocket-company-unveils-rendering-of-a-starship-look-alike/)
+
+***校对发布**：文顾*
 
 0
