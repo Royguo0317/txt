@@ -1,35 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共假擀麵杖硬起來了，不翻白眼了？
-` HML vancouver sailing` [轉載自GNews](https://gnews.org/zh-hans/1185558/)
+## 科技新闻-美国太空编辑揭示中共国国家火箭公司一开始就追踪SpaceX
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1185660/)
 
-作者：Michael.Tonny
+**整理撰稿：蓝精灵**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07185054/chinese-starship-800x455-1.jpg)
+在南京的第六届“国家太空日里，中共国有火箭制造商中国运载火箭技术研究院展示了亚轨道点对点运输的潜力。它的概念是车辆从地球发射，飞入亚轨道空间，然后在不到一个小时的时间内降落到地球的另一边位置。
 
-2021年5月6日，中共偽政權國家發展改革委用中英文雙語發布《關於無限期暫停中澳戰略經濟對話機制下一切活動的聲明》。聲明稱，“中共偽政權國家發展改革委決定自即日起，無限期暫停中共偽政權國家發展改革委與澳聯邦政府相關部門共同牽頭的中澳戰略經濟對話機制下一切活動”。對此，不明就裡的中共國小粉紅一時興奮異常，牆國各種CCP喉舌藉此機會開始新一輪戰狗教育。那麼，中共假擀麵杖真的硬起來了，中共國真就不被卡脖子了，中共從此可以吹牛逼，不用翻白眼了？本文對此進行簡單分析。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07175823/31641937_1910659575891778_8483575443516030976_o.jpg)
-首先，中共這一次所謂無限期暫停中澳戰略經濟對話機制下一切活動的聲明，不應當是小粉紅理解的就此和澳洲就脫勾了，不再向澳洲“輸血”了，中共要判澳洲死刑了，而是基於三方面的原因。
+[在中共国社交网络上](https://m.weibo.cn/status/4629935237105404)捕获的促销视频展示了从现在起，大约二十年内实现亚轨道旅客飞行的两种不同概念。该视频的有趣之处在于，第一个概念非常类似于SpaceX的Starship运载工具。它显示了能够垂直起飞和垂直降落的大型车辆。
 
-2020年4月21日，澳大利亞聯邦政府取消了維多利亞州分別於2018年10月與中共國簽署的“一帶一路”合作諒解備忘錄，以及於2019年10月與中共國簽署的“一帶一路”合作框架協議。最近，澳大利亞出於國家安全考慮，澳大利亞防長達頓確認要重新審查達爾文港協議，並考慮要強行讓中企放棄，達爾文港口無論是在經濟領域還是在軍事戰略地位都有非常重要的意義，中共可以說是垂誕已久。還有就是澳大利亞對中共病毒追責的堅定態度。
+这个概念不仅在Starship的外观上很显着（车辆的外观像Starship的不锈钢结构一样有光泽，而且第一和第二级同样是无缝的），但在功能上也是如此。尽管星际飞船主要是作为将人类带到月球和火星的工具而得到推广的，但SpaceX还开发了点对点的概念。
 
-其次，中共國吹完牛逼，讓戰狗們高潮一把之後，假擀麵杖的本質還得現原形，只能翻白眼。除了農產品如奶粉等對澳洲的依賴，中共要續命，維持軍警特憲，各種幫凶、戰狗的繼續運轉，就必須依賴鐵公基，尤其是房地產，就必須維持比較高的鋼鐵產量，最重要的還是對澳洲鐵礦石的高度依賴。
+SpaceX于2017年9月首次公开了这种“地球”概念。[当时发布](https://www.youtube.com/watch?v=zqE-ultsWt0)的[视频](https://www.youtube.com/watch?v=zqE-ultsWt0)显示，星际飞船从纽约市到上海的亚轨道飞行时间仅为39分钟，并宣传了“地球上任何地方的飞行时间不到1小时。”
 
-在中共國的經濟結構中，鐵公基一直是賴以維持中共續命，割韭菜的關鍵。如2020年，在中共國101.6萬億元的GDP中，房地產業增加值貢獻了近69632億元，占比7.3%。這個數字超過建築業，交通運輸、倉儲和郵政業，住宿和餐飲業，租賃和商務服務業等多個行業。更不要說，因此衍生的下游產業，如建築、建材、金融… …等等。在2020年1-11月的財政收入中，土地出讓收入占比26.88%，即土地出讓為政府帶來超過1/4的財政收入。這些收入又被用於建設道路、橋梁、學校、醫院等基建和公建項目。2020年，中共國光建築用鋼消費量就達到5.8億噸。不久前，拜登派特使到中共國，希望中共CCP能在氣候問題上跟老朋友拜登一個面子，中共都沒有答應，繼續要保持每年增加3%的碳排放，也是情非得已。盡管中共國的鋼鐵質量低劣，出口價格很低，甚至主要出口產品和機械設備原料用鋼必須依靠進口，但中共要續命，就必須維持低質鋼的產量。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07184753/CALT-video-0-23-screenshot.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07184823/CALT-video-0-27-screenshot.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07184920/CALT-video-0-29-screenshot.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07184938/CALT-video-0-30-screenshot.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07185004/CALT-video-0-42-screenshot.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07185025/CALT-video-0-48-screenshot-1.png)
 
-鐵礦石作為一種自然產品，無可替代。根據中共國的統計數據，中共國鐵礦石對外依存度高達85%。中共國2020年進口鐵礦石比重占全球鐵礦石貿易的73%。中共國在國際鐵礦石市場上完全缺乏定價權。中共國對澳洲鐵礦石的依賴度尤其高。2019年，中共國海外鐵礦石進口分佈中，澳大利亞占67%，巴西占19%，其它如南非、馬來西亞、秘魯、印度、烏克蘭等加起來也就14%左右。盡管中共國最近一年來一直在力圖擺脫能澳洲鐵礦石的依賴，但從印度、烏克蘭等的進口增長依然很少，依然絕對依賴從澳大利亞進口。
 
-盡管目前中共病肆虐全球，全球經濟持續低迷，國際市場鐵礦石價格卻從去年最低價格79.8美元/噸左右，上漲到現在的188美元/噸左右，主要原因就是都知道怎麼卡中共的脖子。
-中共國試圖開拓巴西、西非、印度等，逐步稀釋澳洲鐵礦石占比。中共國利用一帶一路，於去年12月，已經成功騙得幾內亞西芒鐵礦25年開採權。該礦山原來屬於澳大利亞聖丹斯資源公司（Sundance Resources）、赤道資源公司（Equatorial Resources）、核心（Core）公司等三家礦業巨頭的採礦許可。然而，中共戰狗們千萬別得意。根據另一些資料顯示，盡管中共控制的企業計劃投資150億美元進行基礎建設，幾內亞鐵礦的真正量產最少需要到2025年以後。
-總之，不要被假象所迷惑，中共戰狗這次所謂無限期暫停中澳戰略經濟對話機制下一切活動，不過是被澳洲政府4月份以來，關於中共病毒追責、取消一帶一路和重新審視具有經濟和軍事戰略意義的達爾文港口協議而不得不出來狂吠幾聲而已，中共CCP還得依賴澳洲優質天然資源才能續命！
+中文视频中的第二个点对点概念显示了一种水平起飞，水平着陆的车辆，它使用了某种电磁弹射器，这两个系统都是中共国[先前宣布的](https://www.chinadaily.com.cn/china/2017-11/17/content_34653486.htm)到2045年发展全球点对点运输[计划的](https://www.chinadaily.com.cn/china/2017-11/17/content_34653486.htm)一部分。根据该国的长期规划目标，中共国工业将在2035年开始通过亚轨道飞行在全球范围内运送货物，并在2045年之前开始在全球运送旅客。 。
 
-參考資料：
-[關於無限期暫停中澳戰略經濟對話機制下一切活動的聲明](https://www.ndrc.gov.cn/xwdt/xwfb/202105/t20210506_1279171.html) 
-[環球深觀察丨撕毀“一帶一路”合作協議 澳方政治把戲自毀形象](https://kd.youth.cn/a/30kjmgLQNq84dXx)
-[鐵礦石連續7月漲價！澳大利亞順利回血，前3月出口中國大增近20%](https://www.sohu.com/a/460662116_334198)
-[寶武牽頭，1000億開發非洲巨型鐵礦，幾內亞成中國礦業海外新基地](http://www.ymcall.com/artinfo/262626482131918854.html)
-[這才是中國突然判澳洲死刑的真相，果然不簡單](http://shizheng.xilu.com/20210507/1000010001173428.html)
-（免責聲明：本文的簡評只代表作者觀點，跟GNEWS平臺無關）
+这不是中共国航天计划第一次从SpaceX那里汲取灵感。
 
-编审：文敏
+该国从一开始就跟踪SpaceX，尤其是对SpaceX计划重复使用火箭的第一阶段感兴趣。正如《[*Liftoff*](https://www.harpercollins.com/products/liftoff-eric-berger?variant=32126620205090&amp;utm_source=Eric+Berger&amp;utm_medium=athrtwttr&amp;utm_campaign=Liftoff+Announcement)》一书中报道的那样，在该公司于2006年首次发射时，一艘中共国间谍船就在那片小小的海洋中。
+
+最近，在2019年中共国长征2C火箭对“格栅鳍”进行了测试，就像猎鹰9火箭第一阶段使用的那样，以便在再入过程中引导自己穿越大气层。中共国打算像“猎鹰9”助推器那样，将“长征8月8日”火箭开发到[海上平台上](https://spacenews.com/china-rolls-out-long-march-8-rocket-for-weekend-test-flight/)，而像[LinkSpace](https://phys.org/news/2017-09-footsteps-spacexa-chinese-company-eyes.html) 和 [Galactic Energy](http://www.galactic-energy.cn/index.php/En/List/cid/15)这样的半私有中共国公司 似乎在模仿SpaceX的发射技术。
+
+尚不清楚中共国是否还会开发类似星际飞船的行星际运输工具。目前，该国计划开发一种更传统的超重型起重器， [称为“长征9月9日”火箭](https://arstechnica.com/science/2021/02/china-officially-plans-to-move-ahead-with-super-heavy-long-march-9-rocket/)，以及类似于SpaceX的Falcon Heavy火箭的三核助推器。
+
+**编者简评：**
+
+本文作者：埃里克·贝尔格（Eric Berger）是Ars Technica的高级太空编辑，涵盖从天文学到私人太空再到美国国家航空航天局的所有内容，并且是有关SpaceX崛起的书[Liftoff的](https://www.harpercollins.com/products/liftoff-eric-berger?variant=32126620205090)作者。
+
+他还录制了视频放在Youtube上，就中共国的火箭公司抄袭SpaceX的概念进行了说明和对比。特斯拉一直在被抄袭，在网上有很多很有趣的故事，例如有一张图片显示的一个时间点：
+
+- 2014年6月12日马斯克宣布免费公开特斯拉所有专利
+- 2014年6月21日特斯拉全球公布271项专利，其中发明专利263项，外观专利8项
+- 2014年7月23日乐视汽车成立
+- 2014年11月蔚来汽车成立
+- 2015年1月9日小鹏汽车成立
+- 2015年7月理想汽车成立。
+
+
+\*以上仅代表作者观点，不代表Gnews平台\*
+
+**参考链接：**
+
+[https://arstechnica.com/science/2021/04/chinas-state-rocket-company-unveils-rendering-of-a-starship-look-alike/](https://arstechnica.com/science/2021/04/chinas-state-rocket-company-unveils-rendering-of-a-starship-look-alike/)
+
+***校对发布**：文顾*
 
 0

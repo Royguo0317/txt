@@ -1,43 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 失控的中共的火箭可能于5月8日坠落地球
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1185701/)
+## 科技前沿- 星链SpaceX Starlink Internet服务在法国现在可用
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1185828/)
 
-翻译:康州盘古农场 – Layka
+**整理撰稿：蓝精灵**
 
-校对:康州盘古农场 – 格格巫
+伊夫琳·阿雷瓦洛（Evelyn Arevalo）2021年5月7日报道：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07201003/587.jpg)
+SpaceX于2月初开始通过Starlink.com以“先到先得”的方式接受其Starlink互联网服务的预订。SpaceX表示，已经有超过500,000名预订该服务的客户。“到目前为止，已有超过50万人为Starlink下订单或支付了定金，” SpaceX运营工程师Siva Bharadvaj在5月4日最近一次Starlink发射的直播中说。他说：“随着每一次发布，我们都将更紧密地联系世界各地的更多人。” 目前，这家航空航天公司的卫星星座中有约1,560颗卫星，有超过4,400颗卫星将为全球提供高速互联网。迄今为止，SpaceX正在向全球10,000多家客户提供Starlink“无所不能Beta”服务。其中一些位于美国，加拿大，英国，德国，新西兰，澳大利亚以及其他地区。随着越来越多的卫星部署到轨道上，Starlink将能够扩展宽带覆盖范围。
 
-编辑:康州盘古农场 – 心照
+SpaceX本周向通过Starlink.com进行注册的欧洲潜在客户发送了电子邮件。–“ Starlink现在在法国限量供应！” SpaceX宣布，随着我们增强Starlink系统，用户有望在未来几个月内看到数据速度从50Mb / s到150Mb / s [兆比特/秒]不等。该公司在电子邮件中写道，还将有短暂的无法连接的时间，“随着我们发射更多的卫星，安装更多的地面站并改善我们的网络软件，数据速度、延迟和正常运行时间将大大改善。”
 
-康州盘古农场 – 彩虹 Rainbow
+SpaceX创始人埃隆·马斯克（Elon Musk）表示，“最有可能的是，最初的所有500,000 [Starlink beta版用户]都将获得服务，”当我们进入数百万用户范围时，这将是一个更大的挑战。” 他还表示，互联网速度“将在今年晚些时候翻倍，达到约300Mb / s，延迟将下降至约20ms（毫秒）”。关于服务定价，马斯克表示，全球范围内的定价相同。Starlink套件包括一个技术先进的相控天线，Wi-Fi路由器和安装/电源设备，售价为499美元。每月互联网服务费为99美元。SpaceX总裁格温·肖特韦尔（Gwynne Shotwell）表示，该公司没有计划施加限制性数据上限，也没有为Starlink互联网服务设置不同的价格数据计划。–“我认为我们不会对消费者进行分层定价。
 
-**据《www.foxnews.com》作者：埃德蒙·德马什（Edmund DeMarche）2021年5月5日报道**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07190641/koko888.png)
-巨大的中国火箭可能会返回地球坠毁
+\**以上仅代表作者观点，不代表Gnews平台*\*
 
-福克斯新闻的菲尔·基廷(Phil Keating)报告说，不会在大气层中燃烧的飞船只可能会掉入海洋或在居民区坠落。
+**参考链接：**
+[https://www.tesmanian.com/blogs/tesmanian-blog/starlink-france-2](https://www.tesmanian.com/blogs/tesmanian-blog/starlink-france-2)
 
-一份报告说，上周发射的中共国火箭的巨大核心部分，预计在空间站的第一站发射中将于在5月8日坠入地球。
-
-《 太空新闻》(SpaceNews)引用了早期的跟踪预测，星期二报道说，美国国防部发言人说他们知道这枚火箭，并正在追踪它的位置，“但要等到5月8日左右进入地球的几个小时之内，才能确定它进入地球大气层的确切入口。”
-
-声明说，该部门将继续提供最新消息。
-
-《 太空新闻》早些时候曾报道说，长征5B的核心将在下周的某个时候重归地球，这是“航天器不受控制的重返的最大实例之一，并有可能降落在有人居住的地区”。
-
-太空观察员乔纳森·麦克道威尔（Jonathan McDowell）在网站上说，自1990年以来，没有任何超过10吨的航天器“故意离开轨道重新进入不受控制的状态”。
-
-该网站估计，大约每100英尺高的物体每90分钟绕地球一周，并飞越纽约，北京以北和新西兰以南。
-
-该报告说，尽管存在威胁，但它最有可能掉入世界某一海洋或偏远地区。该报告称，火箭的核心级空载时的质量约为21公吨。 （你可以在此处跟踪火箭。）
-
-《卫报》说：“这可能不好，” 麦克道威尔说。 “上一次他们发射了长征5B火箭，结果以巨大的长条金属棒在天空中飞扬，并损坏了科特迪瓦海岸的几座建筑物。”
-
-原文链接：[https://www.foxnews.com/science/chinese-rocket-likely-to-make-uncontrolled-reentry-on-may-6-report-says](https://www.foxnews.com/science/chinese-rocket-likely-to-make-uncontrolled-reentry-on-may-6-report-says)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+***校对发布**：文顾*
 
 0

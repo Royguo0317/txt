@@ -1,57 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 科技新闻-美国太空编辑揭示中共国国家火箭公司一开始就追踪SpaceX
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1185660/)
+## 福克斯蹭热度称实验室泄露说成共和党关注焦点
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1185724/)
 
-**整理撰稿：蓝精灵**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07185054/chinese-starship-800x455-1.jpg)
-在南京的第六届“国家太空日里，中共国有火箭制造商中国运载火箭技术研究院展示了亚轨道点对点运输的潜力。它的概念是车辆从地球发射，飞入亚轨道空间，然后在不到一个小时的时间内降落到地球的另一边位置。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-[在中共国社交网络上](https://m.weibo.cn/status/4629935237105404)捕获的促销视频展示了从现在起，大约二十年内实现亚轨道旅客飞行的两种不同概念。该视频的有趣之处在于，第一个概念非常类似于SpaceX的Starship运载工具。它显示了能够垂直起飞和垂直降落的大型车辆。
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/C-7.jpg)俄罗斯莫斯科喀秋莎农场原创
+继首位总统级要人巴西总统博尔索纳罗（Jair Bolsonaro）直指中共的“生物武器”邪恶后，消沉了一段时间的《福克斯新闻》又有高调复出的举动，不得不令人怀疑它在蹭热度。但不管怎样，揭露中共、认清邪恶不分先后，越早越好，越坚决越好！
 
-这个概念不仅在Starship的外观上很显着（车辆的外观像Starship的不锈钢结构一样有光泽，而且第一和第二级同样是无缝的），但在功能上也是如此。尽管星际飞船主要是作为将人类带到月球和火星的工具而得到推广的，但SpaceX还开发了点对点的概念。
+《福克斯新闻》发表文章，“中共病毒武汉‘实验室泄露’理论成为众院共和党人要求答案的焦点”。
 
-SpaceX于2017年9月首次公开了这种“地球”概念。[当时发布](https://www.youtube.com/watch?v=zqE-ultsWt0)的[视频](https://www.youtube.com/watch?v=zqE-ultsWt0)显示，星际飞船从纽约市到上海的亚轨道飞行时间仅为39分钟，并宣传了“地球上任何地方的飞行时间不到1小时。”
+全文如下：
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07184753/CALT-video-0-23-screenshot.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07184823/CALT-video-0-27-screenshot.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07184920/CALT-video-0-29-screenshot.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07184938/CALT-video-0-30-screenshot.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07185004/CALT-video-0-42-screenshot.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07185025/CALT-video-0-48-screenshot-1.png)
+国会共和党人正在领导对中共病毒溯源的“全面”调查，包括武汉实验室“意外”泄漏的可能性。
 
+众议院能源和商务委员会（Energy and Commerce Committee）的共和党高层，华盛顿州众议员凯西·麦克莫里斯·罗杰斯（Cathy McMorris Rogers）本周写信给美国国务卿安东尼·布林肯（Antony Blinken），要求提交文件，以“协助”他们调查中共病毒的起源。
 
-中文视频中的第二个点对点概念显示了一种水平起飞，水平着陆的车辆，它使用了某种电磁弹射器，这两个系统都是中共国[先前宣布的](https://www.chinadaily.com.cn/china/2017-11/17/content_34653486.htm)到2045年发展全球点对点运输[计划的](https://www.chinadaily.com.cn/china/2017-11/17/content_34653486.htm)一部分。根据该国的长期规划目标，中共国工业将在2035年开始通过亚轨道飞行在全球范围内运送货物，并在2045年之前开始在全球运送旅客。 。
+麦克莫里斯、布雷特·格思里议员（Brett Guthrie）、霍华德·摩根·格里菲斯（Howard Morgan Griffith）议员联名写道，“作为对公共卫生有管辖权的国会委员会的领导人，我们强烈支持全面调查中共病毒疫情的起源，包括实验室意外泄漏的可能性。”
 
-这不是中共国航天计划第一次从SpaceX那里汲取灵感。
+共和党人要求布林肯公布“非机密文件，并酌情解密其他公开发布的文件，这些文件与该部2021年1月15日的情况说明书中，声称的中共国武汉病毒研究所（WIV）与中共国军方合作进行机密研究有关，包括动物实验。”
 
-该国从一开始就跟踪SpaceX，尤其是对SpaceX计划重复使用火箭的第一阶段感兴趣。正如《[*Liftoff*](https://www.harpercollins.com/products/liftoff-eric-berger?variant=32126620205090&amp;utm_source=Eric+Berger&amp;utm_medium=athrtwttr&amp;utm_campaign=Liftoff+Announcement)》一书中报道的那样，在该公司于2006年首次发射时，一艘中共国间谍船就在那片小小的海洋中。
+川普总统执政期间发布的情况说明书声称，武汉病毒研究所与中共国军方合作进行“秘密项目”，并声称“尽管武汉病毒研究所自称是一个民间机构，美国认定，武汉病毒研究所“至少从2017年起”就在中共国军方内部合作出版以及进行秘密项目。
 
-最近，在2019年中共国长征2C火箭对“格栅鳍”进行了测试，就像猎鹰9火箭第一阶段使用的那样，以便在再入过程中引导自己穿越大气层。中共国打算像“猎鹰9”助推器那样，将“长征8月8日”火箭开发到[海上平台上](https://spacenews.com/china-rolls-out-long-march-8-rocket-for-weekend-test-flight/)，而像[LinkSpace](https://phys.org/news/2017-09-footsteps-spacexa-chinese-company-eyes.html) 和 [Galactic Energy](http://www.galactic-energy.cn/index.php/En/List/cid/15)这样的半私有中共国公司 似乎在模仿SpaceX的发射技术。
+共和党人指出，武汉病毒研究所是美国政府和世界卫生组织研究中共病毒来源的“主要焦点”。
 
-尚不清楚中共国是否还会开发类似星际飞船的行星际运输工具。目前，该国计划开发一种更传统的超重型起重器， [称为“长征9月9日”火箭](https://arstechnica.com/science/2021/02/china-officially-plans-to-move-ahead-with-super-heavy-long-march-9-rocket/)，以及类似于SpaceX的Falcon Heavy火箭的三核助推器。
+他们写道：“国务院公布这些文件，可能有助于驳斥有关武汉病毒研究所实验室泄漏可能性的自相矛盾的说法。”
 
-**编者简评：**
+共和党人指的是武汉病毒研究所“急性传染病中心”（the Center of Emerging Infectious Diseases）主任石正丽的言辞，她在3月份罗格斯大学（Rutgers University）的一次研讨会上声称，“我们所有的研究工作都是公开的，是透明的。”
 
-本文作者：埃里克·贝尔格（Eric Berger）是Ars Technica的高级太空编辑，涵盖从天文学到私人太空再到美国国家航空航天局的所有内容，并且是有关SpaceX崛起的书[Liftoff的](https://www.harpercollins.com/products/liftoff-eric-berger?variant=32126620205090)作者。
+当时，石正丽称武汉实验室造成了中共病毒泄漏的说法“不正确”。
 
-他还录制了视频放在Youtube上，就中共国的火箭公司抄袭SpaceX的概念进行了说明和对比。特斯拉一直在被抄袭，在网上有很多很有趣的故事，例如有一张图片显示的一个时间点：
+布林肯上个月说，由于中共国的原因，中共病毒“失控得更快”，他说北京在疫情的早期阶段“没有做它需要做的事情”。
 
-- 2014年6月12日马斯克宣布免费公开特斯拉所有专利
-- 2014年6月21日特斯拉全球公布271项专利，其中发明专利263项，外观专利8项
-- 2014年7月23日乐视汽车成立
-- 2014年11月蔚来汽车成立
-- 2015年1月9日小鹏汽车成立
-- 2015年7月理想汽车成立。
+布林肯说：“我认为中共国知道，在中共病毒疫情的早期阶段，它没有做它需要做的事情，那就是实时地让国际专家接触，实时地分享信息，实时地提供真正的透明度。”
 
+与此同时，在另一项调查中，威斯康星州众议员迈克·加拉赫（Mike Gallagher）写信给美国国家过敏和传染病研究所（NIAID）主任福奇，要求进一步了解疫情的“原因”。
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+加拉赫在5月5日给福奇的一封信中说：“了解这场流行病的起因，并确保这种情况不再发生，是当今世界面临的最重要的问题。”考虑到利害关系，我们不能满足于对这一可怕疾病的起源有一个有限的、盲目的或政治化的理解。”
 
-**参考链接：**
+而在国会大厦的另一边，共和党参议员霍利（Josh Hawley）和布劳恩（Mike Braun）提出了一项法案，将迫使拜登政府解密与中共病毒起源有关的情报。
 
-[https://arstechnica.com/science/2021/04/chinas-state-rocket-company-unveils-rendering-of-a-starship-look-alike/](https://arstechnica.com/science/2021/04/chinas-state-rocket-company-unveils-rendering-of-a-starship-look-alike/)
+“一年多来，任何对武汉病毒研究所提出质疑的人都被冠以阴谋论者的称号。” 霍利上个月在一份声明中说，“全世界都需要知道，这场疫情是否是武汉实验室疏忽大意的产物，但中共已经尽一切努力阻止了可信的调查。”
 
-***校对发布**：文顾*
+他补充说，“拜登政府必须解密它所知道的关于武汉实验室和北京试图掩盖疫情起源的信息。”
+
+布劳恩同样表示，确定中共病毒的来源“对于预防未来的疫情至关重要，随着对病毒来源调查和研究的继续，拜登政府应该解密有关的情报，这些情报涉及武汉实验室的生物研究与中共国、中共病毒疫情之间任何潜在的联系。“
+
+在要求提供更多信息之前，白宫上个月曾表示，作为与世界卫生组织合作撰写的一份报告的一部分，它认为中共国在公布有关中共病毒起源的调查结果时“不够透明”。
+
+该报告驳斥了有关中共病毒从武汉一个实验室泄露的说法，并声称人畜共患病传播理论，即从动物传染给人类“很有可能”。
+
+白宫表示，世卫组织的中共国报告缺乏关键信息，仅提供了病毒起源的“部分、不完整的图示”。
+
+白宫新闻秘书詹·普萨基（Jen Psaki）上月呼吁中共国和世卫组织允许国际专家“不受限制地获取”数据，并允许他们提问疫情爆发时的当地民众。普萨基说，美国医学专家仍在审查这份报告，但白宫认为这份报告“目前还没有出台”。
+
+该报告称，病毒可能从动物宿主传播到动物宿主，随后在中间宿主内传播，然后传播到人类，这种可能性“非常可能”。报告称，病毒从武汉病毒研究所泄漏的想法“极不可能”。该报告呼吁除实验室泄漏假说外，对所有领域进行进一步调查。
+
+就连世卫组织总干事谭德塞也表示，研究小组对中共病毒是否因实验室事件进入人群的评估“不够广泛”。
+
+拜登总统上个月还没有和中共国的习近平谈过中共病毒的起源。
+
+（原文完）
+
+这是继参议院两位议员霍利和布劳恩要求拜登政府解密与中共病毒起源有关的情报后，众议院的议员麦克莫里斯、布雷特·格思里、霍华德·摩根·格里菲斯发出的呼吁，5月5日加拉赫众议员也写信对福奇提出了质疑。是的，作为美国最高立法者，应该强烈支持全面调查中共病毒疫情的起源，必须呼吁公布有关文件，捍卫民众的知情权。
+
+新中国联邦在看着你们，天使闫博士揭露中共病毒已经一年多，在全世界已经付出了高昂代价的今天，美国的政客们仍然处在“认知”阶段，真是令人心痛。但现实就是如此，只有一步步地踏实地向前推进，不放弃，才能到恶魔被铲除的那一天！
+
+原文链接：
+
+[https://www.foxnews.com/politics/wuhan-lab-leak-coronavirus-theory-in-focus-as-house-republicans-demand-answers](https://www.foxnews.com/politics/wuhan-lab-leak-coronavirus-theory-in-focus-as-house-republicans-demand-answers)
 
 0

@@ -1,33 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普力荐斯特凡尼克任众议院共和党大会主席
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1185131/)
+## 鲍里斯•约翰逊（Boris Johnson）在第一次大考验中轻松获得成功
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1185205/)
 
-#### 译评：Kal  | 责编：沙拉猫
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07162851/capture-3.jpg)图片来源： The DC Patriot
-据布莱特巴特（Breitbart）新闻5月5日报道，前总统川普近日宣布支持众议员埃莉斯·斯特凡尼克（Elise Stefanik）取代利兹·切尼（Liz Cheney）担任共和党大会主席一职。
-
-报道指出，川普总统在一份对媒体的公开声明中称，切尼是一个“好战的傻瓜”，称她不该属于众议院共和党的领导层，而斯特凡尼克是共和党大会主席更好的人选，同时希望国会山的共和党议员们支持“让美国再次伟大”（MAGA）运动，推行“美国优先”的价值观。
-
-据悉，众议院共和党人将在5月12日举行会议，就切尼的领导权地位进行投票，需要三分之二的不信任票才能将她赶下台。
-
-针对川普在共和党中的作用，以及川普反复质疑2020年总统大选结果，切尼多次发表声明攻击，这已表明她已不想继续留在这个领导职位。
-
-报道还指出，众议院少数党领袖凯文·麦卡锡（Kevin McCarthy）和众议院共和党党鞭史蒂夫·斯卡利斯（Steve Scalise）都支持斯特凡尼克接替切尼。斯卡利斯的女发言人对此次会议还做了进一步澄清，即众议院共和党人当下只需专注于在2022年夺回众议院，并对抗议长佩洛西和总统拜登的激进社会主义议案，而斯特凡尼克被认为能坚定地履行这一使命。
-
-面对川普总统的力挺，斯特凡尼克5月5日发推回应称, 她会团结共和党人，炒掉佩洛西，赢取2022年美国总统大选。
-
-* * *
-
-**评：**共和党众议员斯特凡尼克女士是坚定的灭共者。在2020年3月她就与霍利参议员共同提出两院制决议案，直指CCP病毒大流行是中共精心策划的，要求中共对放毒行为负责。同时她一直在推动立法工作，封堵中共对美国的各种渗透活动，如推行法案阻止那些与中共在美代理机构合作的美国高等教育机构获得联邦资金。
-
-共和党为了在2022年中期选举赢回众议院多数席位，急需要做的就是要团结党内力量。切尼作为现任众议院共和党大会主席，是支持投票弹劾川普总统的少数共和党人之一，其行为正在制造党内内耗与分裂，另找人选取而代之，已成为共和党党内的普遍共识。在这种情况下，36岁的斯特凡尼克年轻、能力出众，并且一直坚定地执行共和党的策略，是共和党人里的佼佼者，自然获得党内大佬的认可和推荐。在取代切尼问题上，斯特凡尼克同时获得了川普、众议院少数派领袖和党鞭等党内大佬的强势背书。斯特凡尼克已成为共和党内“冉冉上升”的政治新星，将发挥更加强大的灭共力量。
-
-&gt;&gt;原报道链接&gt;&gt; [Donald Trump Endorses Elise Stefanik to Replace Liz Cheney in Leadership Post](https://www.breitbart.com/politics/2021/05/05/donald-trump-endorses-elise-stefanik-replace-liz-cheney-leadership-post/)
-
-&gt;&gt;原报道链接&gt;&gt;[Stefanik, Hawley Introduce Bicameral Resolution to Hold China Accountable for Coronavirus Coverup](https://stefanik.house.gov/media-center/press-releases/stefanik-hawley-introduce-bicameral-resolution-hold-china-accountable)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07164956/Premierminister-Johnson-bei-Wahlkampfauftritt.jpg)
 
 
+资料来源：图片联盟/ dpa / PA Wire / Lindsey Parnaby
+
+信息来源：世界报网络版 
+记者：斯蒂芬妮-博尔森（[**Stefanie Bolzen**](https://www.welt.de/autor/stefanie-bolzen/)）
+发布时间：2021年5月7日
+翻译 /整理/ 简评： Shuizhuyu
+
+
+
+当地时间星期五早上七点后不久，时间到了。在英格兰东北部一个荒凉的沿海城市哈特尔普，选举委员会的负责人走在镜头前。她必须宣布的数字对工党在大厅里的代表是一记耳光，也是鲍里斯·约翰逊及其保守党的胜利。
+
+经过57年不间断的工党统治，保守党候选人吉尔·莫蒂默（Jill Mortimer）以几乎是工党竞争对手两倍的选票赢得了议会席位。对于后者而言，更痛苦的是，保守党从原工党夺得增加16％的选票。
+
+同时，“超级星期四”在英格兰和威尔士举行的地方选举的第一批结果也得出了。自从约翰逊总理在2019年12月大选中获胜和病毒大流行以来，这被视为对总理约翰逊的首次重大考验。从初步结果来看，约翰逊出色地通过了这次考验。
+
+到星期五下午，保守党有了许多新任务。约翰逊说：“作为政府，我们一直非常关注人民的重中之重-从大流行中恢复过来。”约翰逊星期五下午急忙前往哈特尔普（Hartlepool），他在竞选期间已经去过三次。 “我们做了英国脱欧，现在我们将要做我们打算要做的所有其他事情。”
+
+与2019年一样，约翰逊（Johnson）的“让我们完成任务”的信息再次在英国选民中流行。特别是因为他的政府成功地购买了针对冠状病毒的疫苗，并在创纪录的时间内将疫苗接种到了全国。不列颠所有英国人中有一半以上已经接种过疫苗，两者都超过了四分之一。每天新感染的数量仅是德国的十分之一。
+
+**简评：**** ****英国首相约翰逊经过了这次考验，**** ****让他可能能够取得中期选举的胜利。**** ****在英格兰这个小镇上的成功，给了他极大的信息。**** ****而他的成功却要归功于他及时的采购了疫苗，**** ****是英国的一半人口都接种了疫苗，**** ****也使感染人数显著下降。**** ****我们都知道病毒的真相，我们也知道疫苗的作用。**** ****而约翰逊却还是因为这个荒唐的疫苗得到了可能的继续执政的机会。**** ****极具滑稽意义。**** **
+
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+
+发表： Shuizhuyu
+
+🔗 [Grossbritannien-Boris-Johnson-gelingt-der-erste-grosse-Test](https://www.welt.de/politik/ausland/article230964697/Grossbritannien-Boris-Johnson-gelingt-der-erste-grosse-Test.html)
 
 0
