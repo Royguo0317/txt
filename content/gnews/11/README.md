@@ -1,25 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 意大利总理称未能实现“欧洲梦”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1189956/)
+## 在中共国，提供选择最终会意味着没法选择
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1190104/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+字幕听译：乐禧禧 | 字幕PR： yyshere | 字幕： 雨中漫步 | 评论：Filon |评论翻译: 许先生 | 翻译PR: yyshere | 审核:Charles S| Page: Rain
 
-编辑上传   银河
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08150750/Snipaste_2021-05-08_22-06-51-4.jpg)[ilnuovotribuno.it](http://www.ilnuovotribuno.it/mario-draghi-e-lalternativa-del-diavolo/)
-05月08日，意大利总理马里奥·德拉吉（Mario Draghi）表示，欧盟的社会不平等正在加剧，这不符合“欧洲梦”。
+![]()![](https://spark.adobe.com/page/d4ku8jXZWgLwg/images/a6984344-428b-4be0-823d-5fbe312cf55a.jpg?asset_id=d4ca1502-56cb-4bbc-9e2f-1c7f6b9f48d1&amp;img_etag=%221a183e9f0131daf61a2ebcfeacdd7f3b%22&amp;size=2560)
 
-“欧洲的梦想是确保没有人被落下。然而在中共冠状病毒大流行之前，我们的社会和劳动力市场就已经支离破碎，存在着跨时代、跨性别和跨地区的不平等现象。这不应该是意大利的错误，也不应该是欧洲的错误。”德拉吉说。
+[视频资源](https://mega.nz/folder/mhlzRQDa#Kdt_KmjJHoBJSn4kDYhu3w)
 
-总理还指出了“双重市场”制度的不公平性，他认为这种制度会危及年轻人和妇女等弱势群体。
+2021年5月2日，五一假期哈尔滨庞先生与家人和朋友一起带着孩子在国内融创主题公园游玩。节假日期间景区游客密集，区域内手机信号接收拥堵，庞先生在给女儿购买发卡时选择使用现金支付，却被商家告知园区规定不能使用现金，只能扫码支付。庞先生不忿拍视频[This was not in the original news]与商家争论，但最终无果悻悻而归。
 
-德拉吉补充说：“这种制度是非常不公平的，阻碍了我们的发展和创新的能力。”
+哈尔滨园区事件看似个案，在国内却是经常发生的现象。自从移动手机支付在国内普及，人们在方便使用手机支付方式的同时，现金支付却经常遇到不能使用的尴尬场景。由小见大，可以预见的是，如今中共意图在国内强推数字货币DCEP，当普及到一定程度，中共必然会随时出一纸行政命令，让国内百姓没法选择，只会被允许使用DCEP数字货币的支付方式。
 
-2月12日，欧洲中央银行行长马里奥·德拉吉接管了意大利政府。在他之前，该职位由朱塞佩·孔特（Giuseppe Conte）担任。孔特于1月26日辞职，其原因是意大利在中共冠状病毒感染大流行期间引发的政治危机。
+中共DCEP数字货币的本质就是上世纪50年代CCP在大陆执政后推行的居民供应票证的数字化形式。在物质无法充足供应的前苏联也同样实行过此模式。居民供应票证是计划经济体制下的产物，出现在市场无法充足供给居民自由购买生活物资的国家。中共在国内执政已70年，GDP号称世界第二。中国百姓却依然无限轮回着将走进生活物资都无法被充足供应的生活模式下。钱到底去了哪里？没人可以问，也没人有能力问。但这却可以证明中共执政能力肯定是不足的，中共是没有能力代表和领导中国人民的，他们一直代表的是他们独裁的自己，靠欺骗着世界来奴役着中国人民。
 
-参考链接：
+编辑：【英国伦敦喜庄园编辑部】
 
-[https://www.rbc.ru/rbcfreenews/6095c49a9a79471bb03cd5e9](https://www.rbc.ru/rbcfreenews/6095c49a9a79471bb03cd5e9)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

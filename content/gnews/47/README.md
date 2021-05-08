@@ -1,27 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】05/07/2021：财富最安全的地方是喜联储喜币
-` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1188982/)
+## 2021/05/05 班农采访 (5) 中共正实现科技融合，新中国联邦是中国人未来的选择
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1189037/)
 
-**制作：Cantonese工作室**
+视频字幕：雨中漫步 | 听写/翻译：Wade| 校对：Roberts |简评/文字整理/编辑：胖丁|Page：小雨
+
+**简评：**
+
+中国人口出生率负增长，但是中共并不担心，因为它们不在乎中国人民是否存在。中共在制定《中国制造2025》计划时把高端芯片研发、机器人、人工智能和生物科技列为重点项目，妄图通过基因编辑与上述科技相结合，把上帝创造的男人和女人用现代元素所取代。必须彻底铲除中共才能制止这种超越人伦的行为。
+
+新中国联邦必定推翻中共。在自由、民主和法制的西方国家，中国人创造的繁荣兴旺和取得的辉煌成就有目共睹。新中国联邦必将是中华文明和优秀人才的聚集地。
 
 
 
-**播报：【海媚】资料整理：【Elaine】【郁金香】【极寒将至】海报制作：【侬民】视频制作：【Ken】上传：【向阳6768】【星星**】
+[GTV视频链接](https://gtv.org/video/id=609514cf37f7f73984c8d6c4)
 
-摘要：
+**视频字幕：**
 
-1
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08104129/210508-__2-1-1.jpg)
-2
-![]()![](https://gnews.org/wp-content/uploads/2021/05/210508-__3-2.jpg)
-3
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08102547/210508-__4-1.jpg)
-4
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08102651/210508-__5-1.jpg)
-5
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08102746/210508-__6-1.jpg)
-6
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08102818/210508-__7.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01093124/image0%E9%9D%A2.jpg)
-0
+**班农：**今天的战斗室非常重要，我们有一位超人类主义的专家，联邦党人的Joe Allen写了一篇出色的文章——崩塌的中国出生率。
+
+中共没有因此恐惧。原因是他们正在向超越智人发展。它们从未考虑过中国百姓的生计，从未考虑中国人民对幸福的追求，从未把中国人当人对待，只把他们当作可以奴役和使用的对象。中共现在甚至不在乎中国人是否存在。
+
+他们（中共）正在实现科技的融合，尤其是《中国制造2025》。千万别忘了，习近平在制定《中国制造2025》计划的时候，它们列出了想要主导的10项工业。
+
+所有人都要记得，中共最重视的四个项目就是：**高端芯片研发、机器人、人工智能和生物科技；尤其是基因编辑。**这四个领域的融合会实现稀有性和超人类主义，也就是中共能够（用科技）取代中国人的驱动力。
+
+当说到取代理论，这不只是取代白人。这在西欧和美国都是荒唐的，这是要取代上帝创造的人类：男人和女人。用某些拼装在一起的元素取代人类，这是超越人伦的，也就是所谓的强化人类。
+
+这就是我们所处的错误道路，也是我们必须要制止的。要制止这一切，就要将中共斩草除根。
+
+**主持人Mike：**谢谢班农先生。我们的Daniel，89年就在天安门。所以中国人已经宣告了，中共没有获得我们的授权。我们再次强调，我们不指望外国力量给我们建立一个附属国家，我们将自己推翻中共。非常高兴获得了班农先生的帮助。
+
+**班农:** 这就是新中国联邦的力量，还有一直疯狂工作的文贵，还有爆料革命、法治社会、法治基金和很多新生力量。
+
+但**真正的力量，真正的话语权，我认为是在新中国联邦**。我觉得这就是为什么人们拥护新中国联邦，将新中国联邦视为中国人的一个选择。
+
+看看台湾和香港，还有加拿大、美国的华人所创造的繁荣。如果给中国人法治、集会自由、言论自由、宗教自由，无论是藏传佛教、法轮功、基督教、伊斯兰教，任何取决于个人选择的宗教信仰。一旦拥有了这些自由，中国人会无与伦比地兴旺。这将非常壮观。所以我认为**新中国联邦是一个可行的选项，是最优秀的中华文明和中国人的聚集地**。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/UUTdCMdlVi8m0/images/409cf9aa-c90b-4f8b-b611-c559ce1f1300.png?asset_id=aed8bc6a-e3d1-4ca5-b060-1e66c7d44255&amp;img_etag=%2237630a9c52468a43936f168ad0a5228f%22&amp;size=1024)](https://spark.adobe.com/page/UUTdCMdlVi8m0/images/409cf9aa-c90b-4f8b-b611-c559ce1f1300.png?asset_id=aed8bc6a-e3d1-4ca5-b060-1e66c7d44255&amp;img_etag=%2237630a9c52468a43936f168ad0a5228f%22&amp;size=1024)
+
+**[完整访谈视频](https://gtv.org/video/id=6092949adb13300ca5490f40)**
+
+**主播：**Mikehua，Angela，Daniel，Mike，TCC，和Winston
+
+- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
+- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
+
+
+***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三伦敦时间14:00 （美东时间09：00）直播***
+
+编辑：【英国伦敦喜庄园编辑部】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/UUTdCMdlVi8m0/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/UUTdCMdlVi8m0/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+
+
+
++1

@@ -1,90 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## BULLY记
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1188970/)
+## 2021/05/05 班农采访(3) 中共是没有得到过人民授权的非法政府
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1189018/)
 
-作者：X-Wing飞得更高 | 校对：西川Stanly | 审核：B万人往 | Page：我是球大哥
+视频字幕：雨中漫步 | 听写/翻译：Wade| 翻译校正：Roberts |简评/文字整理/编辑：胖丁|Page：小雨
 
-[!\[\]()!\[\](https://spark.adobe.com/page/oLoDjCFZgpX4N/images/6145a6e6-63e9-4a14-9493-202906d04b16.jpg?asset_id=9fd77d35-c280-4836-a2db-6d835d9ee830&amp;img_etag=%223dc578263c4b8a4e898b26c9fba3c24d%22&amp;size=1024)](https://spark.adobe.com/page/oLoDjCFZgpX4N/images/6145a6e6-63e9-4a14-9493-202906d04b16.jpg?asset_id=9fd77d35-c280-4836-a2db-6d835d9ee830&amp;img_etag=%223dc578263c4b8a4e898b26c9fba3c24d%22&amp;size=1024)
+**简评：**
 
-英文Bully通常译作“欺凌”或“霸凌”，恃强凌弱，是一个很不好的词。
+从美国独立战争开始，人民授权就是最根本的理念。独立宣言里阐明：任何没有得到人民授权的政府都不可能长久存在。中共从来就没有得到过人民的授权，它不爱人民，不得民心。它是一个非法政府，是一个跨国的犯罪组织，与二战时期的纳粹、前苏联、墨索里尼、东条英机等无异。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/oLoDjCFZgpX4N/images/f7702bd3-a313-4b45-81cc-4c7bc72b06a3.png?asset_id=cb881871-bb5e-4335-815f-7a84dc3deddc&amp;img_etag=%225f77042242f0efad93cd6479c365b5a4%22&amp;size=2560)](https://spark.adobe.com/page/oLoDjCFZgpX4N/images/f7702bd3-a313-4b45-81cc-4c7bc72b06a3.png?asset_id=cb881871-bb5e-4335-815f-7a84dc3deddc&amp;img_etag=%225f77042242f0efad93cd6479c365b5a4%22&amp;size=1024)
 
-比如一名年龄较小的亚裔学生去到英国或美国留学，刚开始可能语言不通或口语不佳，理解不到老师全部的讲话，和同学们交流也有困难，就可能遭到同学的嘲笑甚至欺凌。如果这位同学身材不高，身体瘦弱或略微肥胖，不喜欢运动，甚至只是因为有不同的发型或长了两颗虎牙，就可能遭遇嘲笑、排挤和霸凌。近些年来许多欧美私校管理严格，Bully现象比较少见，但种族歧视和欺凌现象难以根绝。
 
-最近推特上看到两个欺凌视频，都发生在中共国：一名女生遭遇一群女生的攻击，轮流扇耳光揪头发，不敢还手；还有一个视频是一名女中学生遭老师狂扇耳光加脚踹和恶骂，也是过于暴力，令人发指，看不下去。若我是受欺负孩子的父亲，恐怕会让那些霸凌者付出一辈子忘不掉的惨重代价！
+[GTV 视频链接](https://gtv.org/video/id=6095144837f7f73984c8d6a0)
 
-职场上也存在Bully，利用职权，恃强凌弱甚至潜规则下属。
+**视频字幕：**
 
-Bully究其原因，除了天生恶人，我想部分原因可能是由于霸凌者小时候遭父母亲戚家庭暴力或遇到他人的Bully，心理上残留阴影，自己长大了变强了有权了就变着法子Bully其他弱者，享受心理变态快感。
+**班农：**我们每天都在揭露的重要真相就是：**中共不是一个得到人民授权的政府，也不是一个爱民的政府。**
 
-今天的G7七国集团外长发布了一份联合声明，比较有意思，主要内容指责中俄两个国家：一个“恃强凌弱”，一个“恶贯满盈”。
+记住，从美国脱离英国殖民统治的独立革命开始，所有文件里记载的最重要的概念——人民的授权。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/oLoDjCFZgpX4N/images/5d59daf0-c342-4721-a696-8e1a650374c2.png?asset_id=4c86d25b-f04f-4595-a2b8-1e9f90b9e8da&amp;img_etag=%2296e9b7f64cc17fc32d184319727acf65%22&amp;size=1024)](https://spark.adobe.com/page/oLoDjCFZgpX4N/images/5d59daf0-c342-4721-a696-8e1a650374c2.png?asset_id=4c86d25b-f04f-4595-a2b8-1e9f90b9e8da&amp;img_etag=%2296e9b7f64cc17fc32d184319727acf65%22&amp;size=1024)
+中共是否得到了中国人民的授权呢？
 
-这份联合声明长达12400余字，对中国的新疆、西藏、香港、台湾等问题均有提及，声明内容不仅指责中共国“犯有侵犯人权的罪行”，同时还宣称中共国“利用经济影响力欺凌别国”，而G7则需要加强合作，以阻止中方的“胁迫性经济政策”（coercive economic policies）。此外声明还对台湾参加国际卫生组织和国际卫生大会表示支持。
+**没有。****《独立宣言》**里阐述了：**任何没有得到人民授权的政府都不可能长久存在**。尤其是21世纪的今天。
 
-除了声明措辞强硬，作为本次G7外长会议的东道主，英国外交大臣多米尼克·拉布（Dominic Raab）对着采访镜头，更是说出了“中共国应该照照镜子，顾及更多声音”的言论。
+这就是问题的核心，中国人民没有给中共授权，没有授权。他们被压迫，很大程度上被西方金融世界、跨国企业和那些给中共下跪的精英所奴役。
 
-除了中共国，G7外长声明还重点谈及俄罗斯，指责俄方“试图破坏民主”，“胁迫”乌克兰，不断开展“恶意的网络攻击活动”以及“散播各种虚假信息”等。
+**中共是跨国犯罪集团，与纳粹无异**。与墨索里尼的法西斯意大利无异，与东条英机领导管理的日本帝国军政府没有区别。与苏联布尔什维克无异，与柬埔寨的波尔布特无异。
 
-路透社归纳指出，这份G7外长声明将俄罗斯称之为是“恶贯满盈”（malicious），而将中共国则形容为是一个“恃强凌弱者”（bully）。
+[!\[\]()!\[\](https://spark.adobe.com/page/A3ZVnxOlB9wcK/images/27261013-575d-4db1-ac0e-2dc9726c1062.jpg?asset_id=c42726d6-ada1-475d-b4cb-4b18f6aeac6f&amp;img_etag=%22bf2dd55632db5fc814438839f7c41f1d%22&amp;size=1024)](https://spark.adobe.com/page/A3ZVnxOlB9wcK/images/27261013-575d-4db1-ac0e-2dc9726c1062.jpg?asset_id=c42726d6-ada1-475d-b4cb-4b18f6aeac6f&amp;img_etag=%22bf2dd55632db5fc814438839f7c41f1d%22&amp;size=1024)
 
-有感，顺口溜一段Bully歌：
+他们不是政府。他们没有获得人民的授权。中共不得民心。习近平是个伪皇帝。他是跨国犯罪集团的黑帮老大，这一点每天都更加清晰。
 
-肚圆能撑船，心小如芝麻。
-但我Face大，一颗玻璃Heart。
-犯我中华者，虽远必口伐。
-战狼纷出闸，粉红内外掐。
+这也是为什么赛林上校的声明非常有力，会让中共难以反抗，难以继续它的谎言。
 
-立坚意疯发，胡编骂声大。
-邀功急先锋，骑墙不扭胯。
-跨境书商抓，香江国安法。
-南海岛礁建，Bully东南亚。
+这也是我们每天为什么要这么努力。
 
-航海自由权？台海红线划。
-命运共同体，真神在我家。
-撒币亚非拉，发财有密码。
-台湾中国省，新疆好棉花。
+**[完整访谈视频](https://gtv.org/video/id=6092949adb13300ca5490f40)**
 
-Disagree的请举手，No Cloth是你眼瞎。
+**主播：**Mikehua，Angela，Daniel，Mike，TCC，和Winston
 
-加速真好手，倒车顶呱呱。
-维尼见你躲，Baozi也封杀。
-胆大敢乳滑？小鞋穿不下。
-印度烧烤架，米国废警察。
+- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
+- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
 
-日核巨涛下，欧盟乱抓瞎。
-英国手太长，地球容不下。
 
-新冠病毒真相寻？看看下场Australia!
-
-左揽PPE，右手疫苗抓。
-腰间供应链，我的比你大。
-
-小国滚一边，大国少废话。
-三胖太阳神？让路靠边呀。
-擀面杖子假，枪头却是腊。
-无计可施时，石头砸脚丫。
-
-谁言不称霸？Bully一把刷。
-恶贯满盈爹，恃强凌弱丫。
-请照照镜子，嘴脸丑到家。
-
-Bully不接受，Stop it, China!
-
-**文章仅代表个人观点**
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
+***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三伦敦时间14:00 （美东时间09：00）直播***
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/oLoDjCFZgpX4N/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/oLoDjCFZgpX4N/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/A3ZVnxOlB9wcK/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/A3ZVnxOlB9wcK/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 
 
