@@ -1,43 +1,109 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中国离婚申请的30天“冷静期”引发争议
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1189958/)
+## 雨啼遥歌
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1189971/)
 
-#### 作者：文复
+作者：Xiaopan| 校对：X-Wing |审核：Beicy-数学老师 |Page：小雨
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08151103/874317c6238902c10dbc4d5498bda2c1.jpg)
 
-申请离婚，反吃“冷静期”闭门羹。
+```
+又有南风吹起
+ 你听见柳叶的欢快笑声吗
+ 北国的晚春开始发芽
+ 仿佛忘却了
+ 去年寒冬里悲凉的枯骨
+ 
+是滴雨儿借风而起
+ 跨域垂直的时空
+ 泛黄的大地被染成了灰色
+ 你听见滴答的回响吗
+ 
+像是戚戚的诉说
+ 她曾在无数河流中游荡
+ 从清澈见底的小溪
+ 到肮脏不堪的大河
+ 在涌进的滚滚污水里
+ 鱼儿呼喊着逃离
+ 直到变成一具浮尸
+ 盛上了
+ 人类的餐桌
+ 
+当她是一滴水
+ 当它是一条鱼
+ 她是它全部的生命
+ 它是她存在的气息
+ 当她被染变了颜色
+ 便是它逃不了的墓地
+ 
+她曾想安逸地飘荡在大海
+ 那是每一滴雨的梦想
+ 可蔚蓝的天海之间
+ 早已是扑杀的猎场
+ 泛红的血水
+ 流满冰冷的船舱
+ 无数垃圾冲刷着海岸线
+ 遗弃的碎屑铺满沙滩
+ 纷乱如逃亡的牧场
+```
 
-中国一名男子上周在得知“自己儿子”实乃妻子与另一男子所生忿而提出离婚后，被当地法院要求“冷静一下”。
 
-法院的裁决是贯彻今年年初提出的备受争议的新的离婚申请30天“冷静期”而做出的，这引发了全国范围内激烈的在线辩论。
+[!\[\]()!\[\](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/949ca50c-b37f-403e-8057-31fdb7650635.jpg?asset_id=210f3726-0b3e-4a42-8cfc-629e5dfecb95&amp;img_etag=%22841ebbd3d4b418355481dac437695ff3%22&amp;size=2560)](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/949ca50c-b37f-403e-8057-31fdb7650635.jpg?asset_id=210f3726-0b3e-4a42-8cfc-629e5dfecb95&amp;img_etag=%22841ebbd3d4b418355481dac437695ff3%22&amp;size=1024)
 
-据报道，这名唐姓男子于1月份在湖南省提出离婚申请，原因是DNA测试显示他的3岁女儿并不是他的亲生孩子。
 
-孩子的母亲为自己的不忠行为辩护，告诉法院说，在与丈夫怀孕失败的情况下，是丈夫恳求她“借种生字”。
+```
+太阳聆听了她的祈祷
+ 于是变成了一只隐形的飞鸟
+ 在长空里飞翔
+ 云间穿梭
 
-法院说，冷静期可以“给彼此一些时间来恢复他们的关系，这对于社会稳定和家庭和谐是更好的选择”。
+ 于是
+ 她闻到了空气的味道
+ 没有传说中的清香
+ 是浓烈而肮脏
 
-中国设立了离婚冷静期，以应对离婚率上升的情况，让夫妻重新考虑自己的决定。该国在2020年报告有惊人的860万人离婚。
+ 于是
+ 她看见了高山
+ 残缺的断崖
+ 砍伐的林木
+ 成片的大地满目疮痍
+ 机械的声响无处可藏
+ 却仍掩不住
+ 冲天的争吵与厮杀
+ 
+团团浓烟冲天而起
+ 飘飘散散
+ 遮住了阳光
+ 和飞鸟的双眼
+ 
+她的心开始抽泣
+ 身体开始变冷
+ 她不要做无力的蒸汽
+ 要化成雨
+ 化成更多的雨
+ 去冲刷 去洗涤
+ 或者
+ 去消逝
+ 
+仿佛又有风起
+ 带着同样的故事
+ 和远方的残歌
+ 你相信吗
+ 要变天了
+ 
+她开始颤抖
+```
 
-报道说，在30天的期限之后，这对夫妻必须返回民政部门以完成离婚。
 
-新的冷静期在中共国是争议的源头。
+[!\[\]()!\[\](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/beaba45e-1b04-4528-9748-4518e9fa3f61.jpg?asset_id=8d9e6d1c-4a24-4333-9fae-5bee74b7dbca&amp;img_etag=%22730ea1d1527f7db4b62cf2c268e5828e%22&amp;size=2560)](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/beaba45e-1b04-4528-9748-4518e9fa3f61.jpg?asset_id=8d9e6d1c-4a24-4333-9fae-5bee74b7dbca&amp;img_etag=%22730ea1d1527f7db4b62cf2c268e5828e%22&amp;size=1024)
 
-广州律师吴洁珍（音）对当地媒体说：“实际上，在这个冷静期，人们并没有改变分手的想法，但改变了如何分割财产和抚养子女的想法。”
+*文章仅代表个人观点*
 
-**评论：**
+编辑：【英国伦敦喜庄园编辑部】
 
-**中共当局权力的荒唐无处不在，染指着老百姓生活的方方面面。从几十年前惨无人道的强制堕胎、“计划生育”，到如今强令申请离婚的夫妻“冷静”，中共要么把老百姓当猪狗，蹂躏其天赋人权，要么把老百姓当长不大的孩子，一生都必须生活在政权的“荫蔽”之下，得不到一个成年人应受的尊重和自主选择权。**
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
-**结婚、离婚、生育，都是公民的天赋人权，政府无权干涉，文明社会的政府的社会价值，就是全力为民众的福祉提供公共服务，为生活其中的人怎么样得到最大的尊重、健康和幸福提供社会型产品。中共国对老百姓的所作所为，除了体现其权力的霸道，就只剩下无知和愚蠢。**
-
-**文章来源：[30-day ‘cooling off’ period for divorce applications in China causes controversy – New York Post](http://seekmacro.com/30-day-cooling-off-period-for-divorce-applications-in-china-causes-controversy-new-york-post-3541.html)**
-
-* * *
-
-排版发布：日本东京方舟农场 文柯Miles
-
+[!\[\]()!\[\](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 0
