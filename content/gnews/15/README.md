@@ -1,25 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 意大利总理称未能实现“欧洲梦”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1189956/)
+## 老人莫名成“网逃”，临死前一天被释放
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1190029/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+字幕听译： 乐禧禧 | 字幕PR： yyshere | 字幕： 雨中漫步 | 评论： CharlesS | 评评论翻译: CharlesS | 翻译PR: Marialu| 审核:Charles S|Page: 小雨
 
-编辑上传   银河
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08150750/Snipaste_2021-05-08_22-06-51-4.jpg)[ilnuovotribuno.it](http://www.ilnuovotribuno.it/mario-draghi-e-lalternativa-del-diavolo/)
-05月08日，意大利总理马里奥·德拉吉（Mario Draghi）表示，欧盟的社会不平等正在加剧，这不符合“欧洲梦”。
+![]()![](https://gnews.org/wp-content/uploads/2021/05/1-23-18.jpg)
 
-“欧洲的梦想是确保没有人被落下。然而在中共冠状病毒大流行之前，我们的社会和劳动力市场就已经支离破碎，存在着跨时代、跨性别和跨地区的不平等现象。这不应该是意大利的错误，也不应该是欧洲的错误。”德拉吉说。
+**老人莫名成“网逃”，临死前一天被释放，家属不知道他所犯何罪就被抓，报道的新闻被全网“404”……**
 
-总理还指出了“双重市场”制度的不公平性，他认为这种制度会危及年轻人和妇女等弱势群体。
+[视频资料](https://mega.nz/folder/mhlzRQDa#Kdt_KmjJHoBJSn4kDYhu3w)
 
-德拉吉补充说：“这种制度是非常不公平的，阻碍了我们的发展和创新的能力。”
+2019年9月补办身份证，被告知自己是逃犯，当日被拘，通知书却落款6月。家属“往返看守所十余次，从来见不到人，也未被告知实情”。2020年8月6日23时，家属获知这位老人被送入ICU，逐赶往医院。7日当地看守所和公安局对这位老人决定暂予监外执行。8日早老人被宣告死亡。医院记录及医生口诉可知老人入院时已呼吸心跳停止。10月家属才查到老人的“判决书”：扰乱社会秩序的共犯。家属回忆称老人曾在那起案件当日拉过客人去现场，有人闹事看了一会热闹。“主犯的案件中没有提及我父亲…更何况我们家一直住在那，也不是逃犯，为什么要等补办身份证时才抓我父亲？”老人的儿子称。
 
-2月12日，欧洲中央银行行长马里奥·德拉吉接管了意大利政府。在他之前，该职位由朱塞佩·孔特（Giuseppe Conte）担任。孔特于1月26日辞职，其原因是意大利在中共冠状病毒感染大流行期间引发的政治危机。
+详细刊登了事件经过、法律文书的新闻文章也已被下线。
 
-参考链接：
+轻而易举被下线的新闻，轻而易举被抓捕的平民，轻而易举被逝去的生命。这就是中共国的“法制“现状。
 
-[https://www.rbc.ru/rbcfreenews/6095c49a9a79471bb03cd5e9](https://www.rbc.ru/rbcfreenews/6095c49a9a79471bb03cd5e9)
+编辑：【英国伦敦喜庄园编辑部】
 
-0
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+
++1
