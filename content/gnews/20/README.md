@@ -1,77 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【医疗前沿世界】福奇 &#8211; 美国中共病毒疫情沙皇 (三)
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1186615/)
+## 当委会建议美国联合盟国保卫台湾
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1189214/)
 
-香草山医疗部  圣母院钟声
+新闻来源：《应对当前中共国危机委员会》| 发布时间：2021年4月27日
+翻译/简评：随波逐流 | 校对：村民彼得潘 | 审核：万人往 | Page：我是球大哥
+
+[!\[\]()!\[\](https://spark.adobe.com/page/SRjtVfo8QYmUp/images/31cfb8d4-5fbc-49b0-903d-2e2dd509ca5e.jpg?asset_id=ac6d8855-9781-4de8-8ddf-767abf793f85&amp;img_etag=%228c78567a0d580fc761275819d975f40d%22&amp;size=1024)](https://spark.adobe.com/page/SRjtVfo8QYmUp/images/31cfb8d4-5fbc-49b0-903d-2e2dd509ca5e.jpg?asset_id=ac6d8855-9781-4de8-8ddf-767abf793f85&amp;img_etag=%228c78567a0d580fc761275819d975f40d%22&amp;size=1024)
+
+最近几个月来，中共对台湾不断升级的口头威胁，以及它在台湾附近带有侵略性的军事演习和在福建地区修建的军用机场等各种为战争做的准备工作，这些行动已赤裸裸地暴露出中共想要入侵台湾的决心。台湾目前已成为世界的焦点，令各国倍感担忧。鉴于目前台湾地区的紧张局势，美国“应对当前中共国危机委员会”发布了一份白皮书，提出了可能有助于阻止此类袭击及其潜在的灾难性后果的一系列近期行动的建议。白皮书建议，美国必须取消“战略模糊”政策，这种政策可导致对台湾局势的错误估计和可能避免的冲突。从现在开始，华盛顿应明确宣布，根据《台湾关系法》，如有必要，美国和盟国将会采取军事行动，以压倒性的优势保卫台湾。
+
+台湾局势为什么会引发全世界，尤其是美国的强烈担忧？而美国又为什么必须要保护台湾呢？这不仅是出于人道主义的考虑，而是《台湾关系法》所承载的美国对台湾的防御义务。
+
+首先，台湾海峡和整个南中国海地区是世界贸易的主要航道，中共在此地区的军事霸权行为和它推出的新海事法已威胁到南中国海正常来往商船的安全。因此，保护台湾是维护印太地区的和平稳定、促进该地区乃至世界各国经济长足发展的需要。
+
+其次，台湾现在是美国半导体芯片的主要来源地，这对双方的经济和国家安全都至关重要。美国一定不想让供应链落到中共这个敌人的手中，成为它日后牵制自己的棋子。
+
+最后，保护台湾，不仅可缓解中共对日本、越南、菲律宾等太平洋周边邻国的军事威胁，还能在近处部署防御网，将中共的军事进攻控制在第一岛链之内，让中共的洲际导弹等无法从台湾海峡地区顺利发射出去，以免威胁到美国、澳大利亚、欧洲等国的领土安全。这也解释了为什么西方国家最近纷纷在南中国海地区加快军事部署，以及美国和北约从阿富汗的一致撤军行动，都是为了将军事重心转移到印度-太平洋地区，以抗击中共的海上军事扩张。
+
+**原文翻译：**
+
+## 发布：必须阻止中共入侵台湾；应对当前中共国危机委员会建议的几点做法
+[!\[\]()!\[\](https://spark.adobe.com/page/SRjtVfo8QYmUp/images/69c65df3-0ee5-4e5b-a83a-34d95b3263d5.jpg?asset_id=eededb23-8c11-47ab-acc5-26ce7833cf82&amp;img_etag=%22324aff5ee0dcacc8fecfc5e7888cef64%22&amp;size=1024)](https://spark.adobe.com/page/SRjtVfo8QYmUp/images/69c65df3-0ee5-4e5b-a83a-34d95b3263d5.jpg?asset_id=eededb23-8c11-47ab-acc5-26ce7833cf82&amp;img_etag=%22324aff5ee0dcacc8fecfc5e7888cef64%22&amp;size=1024)
+**中共入侵台湾的行径必须被阻止；应对当前中共国危机委员会对此提出了几点建议**
+
+**确切的防卫，而不是“战略模糊”；实施《台湾关系法》**
+
+华盛顿特区——近几个月来，中国共产党（CCP）连续不停地逐步加大了对台湾的口头威胁，在靠近该岛的地方进行侵略性军事演习，并为入侵主权民主的台湾做着明显的准备，中共坚称台湾实际上是中共国的一部分。“**应对当前中共国危机委员会**”（CPDC）认为局势令人十分担忧，因此于今日发布了一份白皮书，提出了可能有助于阻止此类袭击及其潜在的灾难性后果的一系列近期行动的建议。
+
+首先，该白皮书宣称：
+
+*“**美国必须取消战略模糊政策，这种政策可导致对台湾局势的错误估计和可能避免的冲突。从现在开始，华盛顿应明确宣布，根据《台湾关系法》（TRA），如有必要，美国和盟国将会采取压倒性的军事行动，保卫台湾，**抵御来自包括中华人民共和国在内的任何国家的任何侵略或胁迫。”（重点已添加。）*
+
+根据《台湾关系法》，“应对当前中共国危机委员会”的白皮书着手确定了美国可以而且应该采取的**15项在近期切实可行的行动，以提高美军和盟军的战备能力，从而应对中共国对台湾日益增长的威胁。**这些行动包括：加强在该地区的特种作战部队和其他部队的部署，将他们用在与台湾对口部队进行的训练和演习中；有关防御性战争计划的高级双边军事协商；以及增强美国在太平洋的基地、人员和后勤能力的战备力。
+
+白皮书还列举了**35种具体方式，以助美军迅速而可衡量地帮助台湾成为中共国策划者的较难目标，**并显著增加其入侵台湾的相关成本。这些建议包括：提供多种特定类型的弹药、导弹、防空系统、其他军械和辅助物资；借出一个M-1A2 / 3主战坦克营，直到台湾订购的该种坦克交付并投入使用为止；向该地区部署远程导弹；以及为台湾瑞士风格的国土防卫部队提供培训和其他援助。
+
+白皮书的主要作者，前美国陆军特种部队作战官**约翰·米尔斯**（John Mills）上校（退役）强调了该白皮书的关键段落之一：
+
+*“美国必须明确地表达其对台湾的承诺——不仅是出于人道主义考虑，而且是对爱好自由的民主伙伴的声援，甚至是帮助确保《台湾关系法》所载的对台湾的防卫义务。**台湾现在是美国半导体芯片的主要来源地，这对我们双方的经济和国家安全都至关重要。那条供应链一定不能落入敌人的手中。同样至关重要的是，**台湾不仅能抵制**中共威胁西太平洋盟国的能力，而且还可以避免中共有能力危及到美国**在关岛、北马里亚纳群岛、美属萨摩亚和实际上属于美国的州，例如夏威夷、阿拉斯加以及美国本土的48个州的**领土主权**。”*
+
+[原文链接](https://presentdangerchina.org/release-the-c-c-p-must-be-deterred-from-invading-taiwan-present-danger-china-committee-recommends-ways-to-do-it/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04221555/s2-2.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/SRjtVfo8QYmUp/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/SRjtVfo8QYmUp/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 
-
-安东尼.福奇博士（Dr. Anthony Fauci）在中共病毒大流行期间，以美国防疫最高政府官员的身份，成功利用了他的话语权和对疫情政策制定的影响力，控制CCP病毒的感染人数和死亡率，以制造人为恐慌。能量健康研究所（the Energetic Health Institute）发起人亨利.伊利博士（Dr.Henry Ealy）和他的团队自2020年3月开始密切观察并核实CDC公布的新冠感染及死亡率数。他们发现，从3月中旬，CDC开始严重夸张所报数据，很多原本因为其他健康原因去世的死者，其死因都被改为新冠感染致死。至2020年8月23日，CDC公布的161,392例因新冠感染死亡的人数，如按照被长期沿用的美国死亡申报系统规则，应为9,684例。当时的病毒疫情，由此不实数据得出的结论，被人为扩大了十余倍。
-
-健康指标和评估研究所（IHME，the Institute for Health Metrics and Evaluation）的疫情预测系统由比尔-梅林达·盖茨基金会（Bill-Melinda Gates Foundation）资助。IHME的数据预测模型，被盖茨基金会领导委员会的主要成员-福奇博士所采纳，许多民主党州政府的对抗疫情政策，也根据此模型而修改。在2020年4月1日和2日的两次新闻发布会上，纽约州州长库莫（Andrew Cuomo）明确表示，他关闭纽约州政策的决定是基于这个IHME模型；在4月9日简报会上，密歇根州州长格雷琴·惠特默（Gretchen Whitmer）提到基于IHME模型的数据，她必须关闭密歇根州。加州和宾夕法尼亚州州政府的情况也是如此。之后全美国开始实施大规模隔离，直接导致世界历史上最大的经济引擎完全关闭：数十万人死亡，数百万人失业，数万亿美元经济损失，数千万学龄儿童无法去学校接受正常教育，数千万选民在2020年美国大选中不得不使用原不被认可的邮寄选票投票……美国的2020乱象由此开始。
-
-2020年12月11日美国食品及药物管理局（FDA）向辉瑞公司(Pfizer)发放了第一个“疫苗紧急使用授权”(EUA,Emergency-Dependent Authorization)。随后，生产与辉瑞同类 mRNA 疫苗的莫丹纳公司(Moderna)，和生产腺病毒为载体的蛋白质重组疫苗的强生公司(Johnson&Johnson)也分别得到“紧急使用授权”。除强生疫苗接种在实施5周半后，因其严重深静脉血栓副反应而暂时叫停。其它两种疫苗尽管致死副反应报道不断，却仍在美国各州广泛注射。
-
-此时作为拜登政府白宫疫情顾问的福奇，非但无视大量疫苗接种后严重副反应的出现，反而利用所有媒体，大力推广全民新冠疫苗接种的宣传。福奇声称“只有3/4以上人口接受了疫苗接种，才可能达到实际的群体免疫（herd immunity）。” 他误导使人认为FDA是在经历广泛安全研究和长期试验后”批准了”这些疫苗，缺只字不提这些都是“试验性疫苗”。
-
-用于这些疫苗的mRNA技术，原本只限于癌症基因治疗。NIH早已证实该疗法，可以引起“严重健康危害：如毒性、炎症及致癌反应”。mRNA输入人体后，实际上是劫持了人体细胞，并编程使之产生非人类蛋白质。mRNA疫苗则使人体产生CCP病毒表面的棘突蛋白（S-蛋白）。目前人类对这种人体“生物黑客”的长期影响还完全未知，但是可以预知的抗体依赖增强效应（Antibody-Dependent Enhancement, ADE）的疫苗接种中期风险却已显现。
-
-爆料革命英雄病毒学家闫丽梦博士，早在一年前就通过各种媒体警示世界：在接种疫苗后，当人体再次暴露于病原体时，可能会导致由抗体依赖增强效应（ADE, Antibody-Dependent Enhancement）介导的过度促炎因子分泌引发的细胞因子风暴。这种人体自身过度免疫反应导致的组织损伤，可使感染者迅速出现多系统器官衰竭，并导致死亡。闫博士一再强调，“新冠病毒在实验室里被恶意增强功能，所以，依照自然来源理论去寻找解决之道，是得不到终结大流行的有效疫苗或方法的。”随着世界各国广泛接种疫苗，全球已经有许多因接种各种疫苗后的死亡案例及严重副反应报道。多数案例的官方调查结果都是与疫苗接种无直接关连。因为即便通过法医尸检，不能确定死因与疫苗直接相关已成美国法医界不成文的惯例。
-
-至5月2日，美国已有超过1亿人接受了至少一剂疫苗注射。但至少有9245人在完成两剂注射后，还是被CCP病毒感染了，即所谓“突破性案例”。其中132人已经死亡。有专家认为，这个来自46个州的突破性案例数据被严重低估，因为疾病预防控制中心的检测系统是被动的，依赖于州卫生部门的自愿报告。此外，由于缺乏测试，并非所有突破案例都会被识别。
-
-对于目前在全世界广泛施打疫苗后的种种令人忧心现象，疫苗专家，辉瑞公司前副总裁兼首席科学官迈克尔·耶顿博士（Dr. Michael Yeadon）作为世界生物医药研发市场内幕的知情人，向世界发出了最强烈警告。耶顿博士于3月24日接受“美国前线医生联盟（AFLDS）”的采访中说：大药商们似乎在其背后势力驱动下，向全世界人群广泛接种“实验性新冠疫苗”。不仅贪婪，简直就是疯狂及邪恶的举动，可能有大规模减少人口的意图。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08114612/Picture1-32.png)
-笔者观察到的福奇博士，作为美国政府官员最高受薪的医疗管理官员（甚至高于总统），不仅无视美国民众的健康福祉，造假谎报，误导疫情，似乎一心要完成某种计划或达到某种目标。
-
-福奇作为美国政府疫情控制政策制定的专业顾问，在疫情中的种种非专业表现，遭到乔治亚州共和党众议员玛乔瑞.泰勒.格林女士（Rep. Marjorie Taylor Greene）的棒喝。2021年4月1日，格林众议员向国会提出了两项法案：取消安东尼·福奇博士的工资（2019年薪$417,608），并禁止他倡导的疫苗护照的实施。不管法案是否会在国会通过，美国选民的代表已清晰表达了民众的意愿和态度。就如中国民俗所说：为官不为民做主，不如回家种红薯。
-![]()![](https://gnews.org/wp-content/uploads/2021/05/Picture2-9.png)图片来源：COVID-19 Dossier By Jose Hermosa
-近日，美国军方生化武器专家，病毒学家及资深情报专家劳伦斯.赛林博士（Dr. Lawrence Sellin） 通过油管视频，公开喊话那些仍在为政治及经济目的 , 不顾事实的人：中共病毒是有计划的生物武器，是实验室人工增强功能改造的产品。在这场由中共主动发起的，针对美国及西方文明国家的，以病毒为生物武器的超限战中，福奇扮演了一个什么角色？是有意无意中，充当了中共的帮凶或同谋？还是主动布局，借用中共的全球控野心达到借刀杀人的目的，实现深层政府“世界大重置”的人口控制？
-
-作为美国政府官员的他，检察官可以罗列的罪名很多，“渎职罪”，“欺骗国会罪”， “蓄意谋杀罪”，甚至“叛国罪“……这些都会出现在他冗长的审判书上。随着越来越多不为人知的机密信息的披露，审判定罪的证据在累积，正义终有彰显的一天！
-
-参考文献：
-
-[https://articles.mercola.com/sites/articles/archive/2021/05/02/cdc-violated-law-to-inflate-covid-cases-and-fatalities.aspx](https://articles.mercola.com/sites/articles/archive/2021/05/02/cdc-violated-law-to-inflate-covid-cases-and-fatalities.aspx)
-
-[https://mobile.twitter.com/Jersey1712/status/1389765364079382529](https://mobile.twitter.com/Jersey1712/status/1389765364079382529)
-
-[https://thehill.com/homenews/house/545992-marjorie-taylor-greene-offers-bills-to-fire-fauci-ban-vaccine-passports](https://thehill.com/homenews/house/545992-marjorie-taylor-greene-offers-bills-to-fire-fauci-ban-vaccine-passports)
-
-[【医疗前沿世界】大药商敲门金砖得手记 – GNEWS](https://gnews.org/zh-hans/1130349/)
-
-[https://www.theepochtimes.com/mkt\_breakingnews/at-least-9245-americans-tested-positive-for-covid-19-after-vaccination-132-dead\_3798410.html](https://www.theepochtimes.com/mkt_breakingnews/at-least-9245-americans-tested-positive-for-covid-19-after-vaccination-132-dead_3798410.html)
-
-[https://covid.cdc.gov/covid-data-tracker/](https://covid.cdc.gov/covid-data-tracker/)
-
-[Exclusive: Former Pfizer VP to AFLDS: ‘Entirely possible this will be used for massive-scale depopulation’ – Frontline News (americasfrontlinedoctors.org)](https://www.americasfrontlinedoctors.org/frontline-news/exclusive-former-pfizer-vp-to-aflds-entirely-possible-this-will-be-used-for-massive-scale-depopulation)
-
-[Dr. Fauci is guilty of hundreds of thousands of deaths for interfering with hydroxychloroquine use, says medical expert – Foreign Affairs Intelligence Council (wordpress.com)](https://foreignaffairsintelligencecouncil.wordpress.com/2021/04/25/dr-fauci-is-guilty-of-hundreds-of-thousands-of-deaths-for-interfering-with-hydroxychloroquine-use-says-medical-expert/comment-page-1/)
-
-[#路德社简报](https://twitter.com/No3Mos/status/1389767394709622789)
-
-[Experts sound the alarm about risks of mass vaccination](https://focusmalaysia.my/opinion/experts-sound-the-alarm-about-risks-of-mass-vaccination/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 0

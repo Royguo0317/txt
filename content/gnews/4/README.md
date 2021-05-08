@@ -1,59 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】加装电梯进行时，电梯隐患难清除，形象工程寓意何为？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1189473/)
+## 只要不是福奇博士
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1189586/)
 
-作者：香草山写作组  鹰(文言)
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04221555/s2-2.jpg)
+- 作者：Jenny Ball
 
 
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-澎湃网5月7日转载中国新闻网消息，5月3日福建福州一13岁男孩，因电梯故障自救过程中意外坠亡引发热议。
+**西班牙2021年5月8日电/西喜社——**
 
-当天18时26分，男孩乘坐电梯过程中，电梯不降反升至6层7层之间，男孩在按警铃、拍打电梯门、按报警按钮无果后，自行用雨伞敲开电梯门自救，但在钻出轿厢的过程中意外坠落身亡。事后小区保安称，两部电梯在1号、3号轮流发生故障，事发电梯是从2005年投入使用，设备老旧、报警按钮早已失效，而救助按钮需重力按压才有反应，从电梯故障到自救身亡时间过短（7分50秒）无法施救。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08123522/Screen-Shot-2021-05-08-at-12.35.04-PM.png)
-2019年6月，陕西咸阳某大厦老电梯故障致一老人身亡；2020年12月合肥蜀山区“电梯冲顶”导致女子骨折；2021年海口怡和湖城大境小区多栋电梯1月至4月发生约20次故障，再有5月3日的自救身亡事件，5月7日遂宁记者走访发现个别小区电梯紧急呼叫按钮，仍无人回应处于失效状态……以上均能反映出老旧电梯的维修和日常维护工作的形同虚设。虽然北京曾在2001年发布《关于加强北京市住宅电梯报废管理有关问题的通知》，基本将电梯报废年限确定为15年，但当前国内仍无电梯整体报废使用年限的规定。虽然电梯主要部件报废标准于2016年实施，但老旧电梯的报废仍沿用“具体情况具体分析”的处置方式。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08123538/Screen-Shot-2021-05-08-at-12.34.59-PM.png)
-老旧电梯的维护保养问题仍未得到解决，但老旧小区假装电梯的步伐却越来越快，“加装电梯”连续三年写入中共政府的工作报告。老旧小区加装电梯后虽方便了群众上下楼和出行，但噪声加大、24小时“运作”、运维管理无人问津等“后患”仍被诟病为形象工程。一方面是老旧电梯超额超时运作，没有定期的报废渠道，另一方面好坏参半的老旧小区加装电梯工程如火如荼，“旧疾难除”下电梯市场依旧火爆，背后的驱动力究竟是便民还是牟利？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08123555/Screen-Shot-2021-05-08-at-12.34.54-PM.png)
-根据中共住建部数据，2000年前建成小区近17万个，超4200万户，加装电梯数量达250-300万部，市场空间达5万亿元，可见中共利用住户的资本改造老旧小区的利益驱动是广阔的市场效益，无论是盘活经济还是塑造伟光正形象都好处良多，但政府集中采购中的“暗箱操作”问题，再有电梯安装后的低维护少管理以及老旧设施的更迭难题都揭示着加装电梯这一项目背后的利益勾连，而随着老旧电梯故障的多发、新装电梯后遗症的发酵、事故后物业“不作为”影响的扩大，加装电梯这一形象工程也将成为透支中共政府信用的助力。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08122910/image0-2-5.jpg)
 
-新闻来源：
+一个焦点小组开撕福奇后，MSNBC主持人极尽所能对福奇阿谀奉承。
 
-男孩被困电梯自救坠亡：失控的电梯，“出路”在哪里？https://www.thepaper.cn/newsDetail\_forward\_12564905
+周三，MSNBC主持人斯蒂芬妮·鲁尔（Stephanie Ruhle）对安东尼.福奇(Anthony Fauci)博士极尽阿谀奉承。福奇是一个对激烈的批评并不陌生的人，他们在讨论周末的一则新闻：一个焦点小组认为福奇是政治人物，因此不值得信任。
 
-福州13岁男孩被困电梯自救坠亡：为何钻出电梯却坠入电梯井https://www.thepaper.cn/newsDetail\_forward\_12539617
+根据上周末民意测验专家弗兰克·伦茨（Frank Luntz）在Zoom上聚焦小组的说法，对于许多不愿接种冠状病毒疫苗的人来说，福奇的名字是有毒政治的代名词。 《华盛顿邮报》报道了一个由17人组成的小组，他们报告了“对疫苗犹豫不决的川普选民”得出的结论是，福奇是一个政治人物，而不是无党派的公共卫生专家。
 
-业主亲述6层旧楼加装电梯后悔了！小区加装电梯麻烦无穷https://www.163.com/dy/article/FTD4FL7505209GRT.html
+“被聚焦在焦点小组上的一个人物是：安东尼·福奇……每个参与者都说，他们宁可听信政治也不去相信那个专家。因为他的冠状病毒警告，已经被保守媒体嘲笑了几个月了。” 《邮报》报道。
 
-北京老旧小区加装电梯不需要100%同意 但盈利模式仍待解http://www.eeo.com.cn/2020/0531/385405.shtml
+有关福奇的文章开头是疫苗储备和大流行政治，《邮报》得出结论，疫苗的支持者需要新的信息和新的信息传递者。
 
-“出事了都没人处理！”因电梯故障，福建13岁男孩自救失败坠亡https://www.163.com/dy/article/G97RS83N0550OAE4.html
+“停止谈论冠状病毒加强注射的可能性。不要欺负那些不接种疫苗的人。如果想让对疫苗持怀疑态度的人相信，就请让任何人来告诉我们，只要不是福奇博士”。该媒体报道了焦点小组的调查结果。
 
-电梯紧急按钮“罢工”？记者调查：遂宁个别小区电梯“救命键”形同虚设http://www.snxw.com/xwzx/bwzj/202105/t20210507\_723094.html
+**评论：一年多来病毒肆虐和疫苗灾难，如果美国顶尖CDC****专家真正名副其实，美国何致于到上千万人感染，五十多万人死亡这等地步？这才让人们看清了福奇的真面目，并对其憎恨至此。**
 
-“一个人不敢坐电梯了！” “电梯冲顶”事件中女孩骨折 事发电梯仍停运https://new.qq.com/omn/20201218/20201218A029CV00.html
+**那么，福奇用美国纳税人的钱资助中共搞冠状病毒功能增强试验，并制造出毁灭全球的冠状病毒。这个真相，从爆料革命2020年初揭示，到现在已经逐渐被美国军情界和世界其他国家政要公开揭露。“真相掀怒潮”，世界人民看到真相后的怒火，必将把中共和福奇这样的邪恶“科学家”烧成灰烬！**
 
-4个月23次！小区电梯下坠困人事件频发 业主：像坐过山车、跳楼机https://www.163.com/dy/article/G7CFINHF0514EGPO.html
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
-编辑/校对/发稿：正义的小新
+素材整理：Jenny Ball；审核： the world；校对：信心满满； 发稿 : 信心的选择
 
-**更多资讯，更多关注**
+**新闻来源：**[www.westernjournal.com](https://www.westernjournal.com/msnbc-anchor-piles-flattery-fauci-focus-group-rips/?utm_source=spotim&amp;utm_medium=spotim_recirculation&amp;utm_campaign=dailypm&amp;utm_content=western-journal&amp;spot_im_redirect_source=pitc&amp;spot_im_comment_id=sp_MHM5Sp76_2598433_c_1sBijU5LupjWHctQgjndjHueEFB&amp;spot_im_highlight_immediate=true)
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-0
++1

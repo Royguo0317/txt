@@ -1,38 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 只要不是福奇博士
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1189586/)
+## 【世事解评】低保金发放数据存疑，“伟光正”戏码再难掩盖奴役人民之实
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1189602/)
 
-- 作者：Jenny Ball
+作者：香草山写作组  鹰(文言)
 
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-**西班牙2021年5月8日电/西喜社——**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04221555/s2-2.jpg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08122910/image0-2-5.jpg)
 
-一个焦点小组开撕福奇后，MSNBC主持人极尽所能对福奇阿谀奉承。
 
-周三，MSNBC主持人斯蒂芬妮·鲁尔（Stephanie Ruhle）对安东尼.福奇(Anthony Fauci)博士极尽阿谀奉承。福奇是一个对激烈的批评并不陌生的人，他们在讨论周末的一则新闻：一个焦点小组认为福奇是政治人物，因此不值得信任。
+澎湃网5月8日转载央视新闻报道，中共民政部公布2021年一季度低保工作数据并推出新修订的《特困人员认定办法》。
 
-根据上周末民意测验专家弗兰克·伦茨（Frank Luntz）在Zoom上聚焦小组的说法，对于许多不愿接种冠状病毒疫苗的人来说，福奇的名字是有毒政治的代名词。 《华盛顿邮报》报道了一个由17人组成的小组，他们报告了“对疫苗犹豫不决的川普选民”得出的结论是，福奇是一个政治人物，而不是无党派的公共卫生专家。
+截至2021年3月底，全国共有城乡低保4391.3万人（其中城市低保793.9万人，农村低保3597.4万人），且城市低保平均标准为每人每月684.1元、农村低保平均标准为每人每年6045.4元（即每人每月503.78元）。根据以上数据计算，4391.3万人在2021年一季度共需发放低保金约7066215万。然而，中共民政部数据中1-3月全国累计支出低保资金约461.9亿元，约占“需求”的65.4%。即要么官宣的城乡低保标准过高，实际补贴水准仅为六七成，要么就是低保金发放“被滞后”，才有了如今数据不相符的荒唐局面。
+![]()![](https://gnews.org/wp-content/uploads/2021/05/Screen-Shot-2021-05-08-at-12.43.38-PM.png)
+根据以上数据，以官宣的城乡低保标准，人均不到700元的补助，仍不及2020年5月曝出的“6亿人口月薪不足1000元”薪金收入层次。如此大规模的低保人口，需救济的现状，仍未能阻拦中共政府和媒体层面对“全面脱贫”巨大胜利的吹捧。中共对脱贫的“重新”定义，根本无关人民生活水平的高低和低保救助规模的增减。
 
-“被聚焦在焦点小组上的一个人物是：安东尼·福奇……每个参与者都说，他们宁可听信政治也不去相信那个专家。因为他的冠状病毒警告，已经被保守媒体嘲笑了几个月了。” 《邮报》报道。
+从民众生活角度来看，即便有每月几百元的低保金入账，子女上学、衣食住行的生活开支，以及应急的就医花销，再加上物价的普遍上涨，其生活水平仍在温饱线上下浮动，远未达到中共近年来吹嘘的小康水准。在“救助”低保户塑造光鲜形象的同时，中共继续加大对底层群众的搜刮和掠夺力度。无论是以宅基地法侵占农民土地并赚取自建房利益，以及农厕改造、自来水、煤气村村通等变相增加生活开支，再加上以城镇化赶农进城的步伐并未停止，在中共的授意下教育、医疗、社保等民生成本急剧加大，苛捐杂税在各种如规范化、标准化的吹风中悄然上演。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08124359/Screen-Shot-2021-05-08-at-12.43.43-PM.png)
+综上，城乡低保医疗的官宣数据都能存在数据“不自洽”的情况。即便新修订的《特困人员认定办法》覆盖面再加大，生活保障标准再提高，都只是中共取之于民无度、用之于民甚少的戏码。政权的寡头化、独裁化根源不解决，人民的被奴役地位就不可能有丝毫改变， “爹亲娘亲不如党亲”的洗脑宣传也将继续蔓延。
 
-有关福奇的文章开头是疫苗储备和大流行政治，《邮报》得出结论，疫苗的支持者需要新的信息和新的信息传递者。
+新闻来源：
 
-“停止谈论冠状病毒加强注射的可能性。不要欺负那些不接种疫苗的人。如果想让对疫苗持怀疑态度的人相信，就请让任何人来告诉我们，只要不是福奇博士”。该媒体报道了焦点小组的调查结果。
+民政部：特困未成年人可享救助供养待遇至18周岁https://www.thepaper.cn/newsDetail\_forward\_12574018
 
-**评论：一年多来病毒肆虐和疫苗灾难，如果美国顶尖CDC****专家真正名副其实，美国何致于到上千万人感染，五十多万人死亡这等地步？这才让人们看清了福奇的真面目，并对其憎恨至此。**
+民政部：一季度城乡低保同比分别增长7.7%和9.9%https://www.thepaper.cn/newsDetail\_forward\_12573632
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
+编辑/校对/发稿：正义的小新
 
-**那么，福奇用美国纳税人的钱资助中共搞冠状病毒功能增强试验，并制造出毁灭全球的冠状病毒。这个真相，从爆料革命2020年初揭示，到现在已经逐渐被美国军情界和世界其他国家政要公开揭露。“真相掀怒潮”，世界人民看到真相后的怒火，必将把中共和福奇这样的邪恶“科学家”烧成灰烬！**
+**更多资讯，更多关注**
 
-素材整理：Jenny Ball；审核： the world；校对：信心满满； 发稿 : 信心的选择
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**新闻来源：**[www.westernjournal.com](https://www.westernjournal.com/msnbc-anchor-piles-flattery-fauci-focus-group-rips/?utm_source=spotim&amp;utm_medium=spotim_recirculation&amp;utm_campaign=dailypm&amp;utm_content=western-journal&amp;spot_im_redirect_source=pitc&amp;spot_im_comment_id=sp_MHM5Sp76_2598433_c_1sBijU5LupjWHctQgjndjHueEFB&amp;spot_im_highlight_immediate=true)
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-+1
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+0
