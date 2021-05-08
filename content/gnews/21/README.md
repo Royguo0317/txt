@@ -1,77 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【医疗前沿世界】福奇 &#8211; 美国中共病毒疫情沙皇 (三)
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1186615/)
+## 喀秋莎新闻参考 &#8211; 2021年5月7日(星期五)
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1189256/)
 
-香草山医疗部  圣母院钟声
+俄罗斯莫斯科喀秋莎农场土星
 
+编辑上传 水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/封面K-1-400x225-3-400x225-1.jpeg)
+**一、新中国联邦新闻**
 
+1. “路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=AwDNfQ12pG4)、[晚间](https://www.youtube.com/watch?v=JKUCwPw4-LQ)）:
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04221555/s2-2.jpg)
+Ⅰ. 中共媒体今天报道称：人民币中间价下调223个基点，中（共）国外汇投资研究院独立经济学家谭雅玲撰文称，预计二季度外汇市场美元升贬各异，未必偏向升值行情。人民币将以修复行情为主，偏贬值倾向，其升值风险集中于美元走势以及突发事件影响。二季度的人民币异常升值的概率较小，或存在极端贬值的可能，国际关系和地缘政治是主导行情的背景与重要因素。
 
+Ⅱ. 澳洲天空电视记者称：中共国军事科学家在中共病毒大流行之前五年就讨论了将SARS冠状病毒武器化问题，《非典非自然起源和人制人新种病毒基因武器》还预测第三次世界大战将以生物武器形式出现。
 
+Ⅲ. 法新社5月6日报道，法国参议院周四以304票赞成，19票弃权的结果，通过“台湾参与国际组织工作法案”，法国参院的表决结果可能会“激怒”北京。
 
-安东尼.福奇博士（Dr. Anthony Fauci）在中共病毒大流行期间，以美国防疫最高政府官员的身份，成功利用了他的话语权和对疫情政策制定的影响力，控制CCP病毒的感染人数和死亡率，以制造人为恐慌。能量健康研究所（the Energetic Health Institute）发起人亨利.伊利博士（Dr.Henry Ealy）和他的团队自2020年3月开始密切观察并核实CDC公布的新冠感染及死亡率数。他们发现，从3月中旬，CDC开始严重夸张所报数据，很多原本因为其他健康原因去世的死者，其死因都被改为新冠感染致死。至2020年8月23日，CDC公布的161,392例因新冠感染死亡的人数，如按照被长期沿用的美国死亡申报系统规则，应为9,684例。当时的病毒疫情，由此不实数据得出的结论，被人为扩大了十余倍。
+2. 共和党人希望得到关于中共病毒起源的答案，并表示有必要对中共国实验室泄漏的可能性进行进一步调查。威斯康星州众议员迈克·加拉格尔5月5日在给美国国家过敏和传染病研究所（NIAID）所长安东尼·福奇（Anthony S. Fauci）的一封信中，要求提供美国纳税人的钱在资助武汉病毒研究所的研究中发挥了什么作用。他还质疑福奇是否同意世界卫生组织总干事谭德赛关于需要对武汉病毒研究所进行进一步调查的观点。
 
-健康指标和评估研究所（IHME，the Institute for Health Metrics and Evaluation）的疫情预测系统由比尔-梅林达·盖茨基金会（Bill-Melinda Gates Foundation）资助。IHME的数据预测模型，被盖茨基金会领导委员会的主要成员-福奇博士所采纳，许多民主党州政府的对抗疫情政策，也根据此模型而修改。在2020年4月1日和2日的两次新闻发布会上，纽约州州长库莫（Andrew Cuomo）明确表示，他关闭纽约州政策的决定是基于这个IHME模型；在4月9日简报会上，密歇根州州长格雷琴·惠特默（Gretchen Whitmer）提到基于IHME模型的数据，她必须关闭密歇根州。加州和宾夕法尼亚州州政府的情况也是如此。之后全美国开始实施大规模隔离，直接导致世界历史上最大的经济引擎完全关闭：数十万人死亡，数百万人失业，数万亿美元经济损失，数千万学龄儿童无法去学校接受正常教育，数千万选民在2020年美国大选中不得不使用原不被认可的邮寄选票投票……美国的2020乱象由此开始。
+3. 根据美国调查人员获得的一份文件，中共科学家在过去六年里一直在为用包括冠状病毒在内的生物和基因武器进行的第三次世界大战做准备。
 
-2020年12月11日美国食品及药物管理局（FDA）向辉瑞公司(Pfizer)发放了第一个“疫苗紧急使用授权”(EUA,Emergency-Dependent Authorization)。随后，生产与辉瑞同类 mRNA 疫苗的莫丹纳公司(Moderna)，和生产腺病毒为载体的蛋白质重组疫苗的强生公司(Johnson&Johnson)也分别得到“紧急使用授权”。除强生疫苗接种在实施5周半后，因其严重深静脉血栓副反应而暂时叫停。其它两种疫苗尽管致死副反应报道不断，却仍在美国各州广泛注射。
+4. 美国国务卿安东尼·布林肯利用在联合国发表的关于多边主义的演讲，对中共国在从人权到领土争端等方面的行为进行了不太隐晦的斥责。
 
-此时作为拜登政府白宫疫情顾问的福奇，非但无视大量疫苗接种后严重副反应的出现，反而利用所有媒体，大力推广全民新冠疫苗接种的宣传。福奇声称“只有3/4以上人口接受了疫苗接种，才可能达到实际的群体免疫（herd immunity）。” 他误导使人认为FDA是在经历广泛安全研究和长期试验后”批准了”这些疫苗，缺只字不提这些都是“试验性疫苗”。
+5. 美国政府周五呼吁邀请台湾作为观察员参加即将召开的世界卫生大会，中共国对此表示反对。国务卿安东尼·布林肯在一份声明中说：“没有任何合理的理由将台湾继续排除在这个论坛之外。”
 
-用于这些疫苗的mRNA技术，原本只限于癌症基因治疗。NIH早已证实该疗法，可以引起“严重健康危害：如毒性、炎症及致癌反应”。mRNA输入人体后，实际上是劫持了人体细胞，并编程使之产生非人类蛋白质。mRNA疫苗则使人体产生CCP病毒表面的棘突蛋白（S-蛋白）。目前人类对这种人体“生物黑客”的长期影响还完全未知，但是可以预知的抗体依赖增强效应（Antibody-Dependent Enhancement, ADE）的疫苗接种中期风险却已显现。
+6. 由于中共政府对该地区伊斯兰教的镇压，中共国西部新疆的维吾尔族穆斯林在过去一个月里基本上没有参加与伊斯兰教斋月节日有关的传统宗教活动，如从黎明到黄昏的禁食和增加祈祷。
 
-爆料革命英雄病毒学家闫丽梦博士，早在一年前就通过各种媒体警示世界：在接种疫苗后，当人体再次暴露于病原体时，可能会导致由抗体依赖增强效应（ADE, Antibody-Dependent Enhancement）介导的过度促炎因子分泌引发的细胞因子风暴。这种人体自身过度免疫反应导致的组织损伤，可使感染者迅速出现多系统器官衰竭，并导致死亡。闫博士一再强调，“新冠病毒在实验室里被恶意增强功能，所以，依照自然来源理论去寻找解决之道，是得不到终结大流行的有效疫苗或方法的。”随着世界各国广泛接种疫苗，全球已经有许多因接种各种疫苗后的死亡案例及严重副反应报道。多数案例的官方调查结果都是与疫苗接种无直接关连。因为即便通过法医尸检，不能确定死因与疫苗直接相关已成美国法医界不成文的惯例。
+7. 来自美国南亚和中亚事务局的高级顾问埃尔文·马辛格5月7日说，在过去的一周里，有六批重要的援助物资空运到了印度，印度正在与第二波中共病毒疫情作斗争。美国国务院的一位高级官员说，美国政府正在尽一切努力在这个危机时刻帮助印度。
 
-至5月2日，美国已有超过1亿人接受了至少一剂疫苗注射。但至少有9245人在完成两剂注射后，还是被CCP病毒感染了，即所谓“突破性案例”。其中132人已经死亡。有专家认为，这个来自46个州的突破性案例数据被严重低估，因为疾病预防控制中心的检测系统是被动的，依赖于州卫生部门的自愿报告。此外，由于缺乏测试，并非所有突破案例都会被识别。
+8. 根据路透社5月7日看到的一份文件，中共敦促联合国成员国不要参加德国、美国和英国计划在下周举行的关于新疆维吾尔族穆斯林和其他少数民族受压迫的活动。
 
-对于目前在全世界广泛施打疫苗后的种种令人忧心现象，疫苗专家，辉瑞公司前副总裁兼首席科学官迈克尔·耶顿博士（Dr. Michael Yeadon）作为世界生物医药研发市场内幕的知情人，向世界发出了最强烈警告。耶顿博士于3月24日接受“美国前线医生联盟（AFLDS）”的采访中说：大药商们似乎在其背后势力驱动下，向全世界人群广泛接种“实验性新冠疫苗”。不仅贪婪，简直就是疯狂及邪恶的举动，可能有大规模减少人口的意图。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08114612/Picture1-32.png)
-笔者观察到的福奇博士，作为美国政府官员最高受薪的医疗管理官员（甚至高于总统），不仅无视美国民众的健康福祉，造假谎报，误导疫情，似乎一心要完成某种计划或达到某种目标。
+9. 根据路透社5月7日看到的一份131页的立法草案副本，美国参议院委员会领导人已经起草了一份1100亿美元的妥协措施，用于五年内的基础和先进技术研究和科学，并设立一个白宫首席制造官，以应对来自中共国不断上升的竞争压力。
 
-福奇作为美国政府疫情控制政策制定的专业顾问，在疫情中的种种非专业表现，遭到乔治亚州共和党众议员玛乔瑞.泰勒.格林女士（Rep. Marjorie Taylor Greene）的棒喝。2021年4月1日，格林众议员向国会提出了两项法案：取消安东尼·福奇博士的工资（2019年薪$417,608），并禁止他倡导的疫苗护照的实施。不管法案是否会在国会通过，美国选民的代表已清晰表达了民众的意愿和态度。就如中国民俗所说：为官不为民做主，不如回家种红薯。
-![]()![](https://gnews.org/wp-content/uploads/2021/05/Picture2-9.png)图片来源：COVID-19 Dossier By Jose Hermosa
-近日，美国军方生化武器专家，病毒学家及资深情报专家劳伦斯.赛林博士（Dr. Lawrence Sellin） 通过油管视频，公开喊话那些仍在为政治及经济目的 , 不顾事实的人：中共病毒是有计划的生物武器，是实验室人工增强功能改造的产品。在这场由中共主动发起的，针对美国及西方文明国家的，以病毒为生物武器的超限战中，福奇扮演了一个什么角色？是有意无意中，充当了中共的帮凶或同谋？还是主动布局，借用中共的全球控野心达到借刀杀人的目的，实现深层政府“世界大重置”的人口控制？
+10. 中共国的证券监管机构正在权衡对寻求在香港或海外上市的公司实行更严格的规则规定，此举可能会打击已经从几个月的钳制中清醒过来的科技公司。这些人士表示，证监会正在考虑一些建议，要求在中共国大陆以外寻求首次公开募股（IPO）的公司提交上市文件，以确保它们符合当地法律和法规的规定。
 
-作为美国政府官员的他，检察官可以罗列的罪名很多，“渎职罪”，“欺骗国会罪”， “蓄意谋杀罪”，甚至“叛国罪“……这些都会出现在他冗长的审判书上。随着越来越多不为人知的机密信息的披露，审判定罪的证据在累积，正义终有彰显的一天！
+11. 英国国家统计局（ONS）5月5日公布的数字显示，在1月27日和3月7日之间，英国16岁以上的人（ONS称之为“成年人”）有21%“经历过某种形式的抑郁症”，这是在中共病毒大流行之前观察到的“两倍多”，当时在2019年7月和2020年3月之间，这个数字是10%。
 
-参考文献：
+12. 国际能源署（IEA）警告说，拜登的政策正在加强中共国对全球关键矿物供应的控制。
 
-[https://articles.mercola.com/sites/articles/archive/2021/05/02/cdc-violated-law-to-inflate-covid-cases-and-fatalities.aspx](https://articles.mercola.com/sites/articles/archive/2021/05/02/cdc-violated-law-to-inflate-covid-cases-and-fatalities.aspx)
+13. 5月7日，中国工商银行发布《关于清理长期不动个人银行账户的通告》表示，今年7月起将对用户长期不用的个人银行账户（借记卡和活期存折）开展清理工作。除了此前建行、农行、邮储等国有大行外，近期，包括光大、中信、平安、兴业、广发等股份行的清理行动也在进一步展开。
 
-[https://mobile.twitter.com/Jersey1712/status/1389765364079382529](https://mobile.twitter.com/Jersey1712/status/1389765364079382529)
+14. 中国移动，中国联通和中国电信三家中共国电信公司5月7日表示，根据美国去年的投资限制，它们将被纽约证券交易所除名。
 
-[https://thehill.com/homenews/house/545992-marjorie-taylor-greene-offers-bills-to-fire-fauci-ban-vaccine-passports](https://thehill.com/homenews/house/545992-marjorie-taylor-greene-offers-bills-to-fire-fauci-ban-vaccine-passports)
+**二、世界新闻**
 
-[【医疗前沿世界】大药商敲门金砖得手记 – GNEWS](https://gnews.org/zh-hans/1130349/)
+1. 根据华盛顿大学卫生计量与评估研究所（IHME）进行的一项研究，美国的中共病毒死亡人数被低估了30多万人。虽然美国已经报告了大约574,000例因冠状病毒导致的死亡，但研究发现，总数实际上约为905,000。该研究还得出结论，全世界的Covid-19死亡人数接近700万–是报告的324万数字的两倍多。
 
-[https://www.theepochtimes.com/mkt\_breakingnews/at-least-9245-americans-tested-positive-for-covid-19-after-vaccination-132-dead\_3798410.html](https://www.theepochtimes.com/mkt_breakingnews/at-least-9245-americans-tested-positive-for-covid-19-after-vaccination-132-dead_3798410.html)
-
-[https://covid.cdc.gov/covid-data-tracker/](https://covid.cdc.gov/covid-data-tracker/)
-
-[Exclusive: Former Pfizer VP to AFLDS: ‘Entirely possible this will be used for massive-scale depopulation’ – Frontline News (americasfrontlinedoctors.org)](https://www.americasfrontlinedoctors.org/frontline-news/exclusive-former-pfizer-vp-to-aflds-entirely-possible-this-will-be-used-for-massive-scale-depopulation)
-
-[Dr. Fauci is guilty of hundreds of thousands of deaths for interfering with hydroxychloroquine use, says medical expert – Foreign Affairs Intelligence Council (wordpress.com)](https://foreignaffairsintelligencecouncil.wordpress.com/2021/04/25/dr-fauci-is-guilty-of-hundreds-of-thousands-of-deaths-for-interfering-with-hydroxychloroquine-use-says-medical-expert/comment-page-1/)
-
-[#路德社简报](https://twitter.com/No3Mos/status/1389767394709622789)
-
-[Experts sound the alarm about risks of mass vaccination](https://focusmalaysia.my/opinion/experts-sound-the-alarm-about-risks-of-mass-vaccination/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+2. 美国疾病控制和预防中心的最高呼吸道疾病官员南希·梅松尼耶博士正从该机构辞职，她是最早警告美国公众这次疫情将给日常生活带来很大变化的人之一。
 
 0
