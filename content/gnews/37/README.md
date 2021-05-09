@@ -1,49 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月8日美国政要和政评家反共推特精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1191291/)
+## “澳洲与中共国的战争可能性几乎难以避免”一文分析
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1191600/)
 
-众议员迈克·加拉格尔：明天，主持人查克·托德[@chucktodd](https://twitter.com/chucktodd)和喬治·斯蒂芬諾伯羅斯[@Gstephanopoulos](https://twitter.com/Gstephanopoulos)将在他们的周日秀节目中邀请福奇(Fauci)博士。 他们需要利用这个机会向福奇博士追问重要且长期未解决的问题。 大流行病已持续近一年半了，该是得到答案的时候了。
+撰稿、翻译&字幕：喜妈
+原视频来自[news.com.au](https://www.news.com.au/world/asia/china-advised-to-bomb-australian-soil/news-story/de4d171dd712250401d6b828a0543e34)
+澳洲新闻集团报道，根据前国防部长克里斯-佩恩观点，“澳洲与中共之间的战争可能性增加”。该报道结合多方角度的评说，对于了解澳洲目前对中共国的舆论动态很有帮助。具体内容如下：根据前国防部长克里斯-佩恩观点，澳洲与中共之间的战争可能性增加不是网络战争，而是真正的会死人、会摧毁军事平台的、有进攻者和防御者各方参与的战争。这不是修辞，是你和我在未来5到10年间，都要好好地并不得不面对的事情。
 
-问题1：福奇他是否同意谭德赛(Tedros)博士的观点，认为对实验室泄漏的可能性“需要进一步的调查”，包括2019年秋季在武汉实验室发生的任何疫情爆发？ 问题2：**USG向武汉病毒所(WIV)提供了多少资金**，其中有多少支持了危险的「功能增强」性研究？ 问题3：鉴于有关大流行病起源的未解之谜，他(福奇)是否仍然支持开展「功能增强」性研究，特别是在像中共国这样透明度很差的国家进行？ 在什么时候这种风险太大了？ **这不是阴谋论之说。事实是没有人 – 除了中共之外 – 有明确的答案。 不提出正确的问题，不仅会使我们无法理解为什么有60万美国人死了，而且同样重要的是，我们如何才能防止这种情况再次发生。**
+佩恩先生的评价来自该地区一个紧张增加中的时期。美国官员和他们的同盟正在打开对台湾的视角，台湾是下一个争斗的燃爆点。（台湾发言人）我们会战斗，（如果）我们需要战斗，如果我们需要，你知道，去捍卫我们自己到最后一天，我们就将捍卫我们自己到最后关头。这些评论跟随在中共国继续以柔性方式显示武力：派送战斗机和军事航拍机到台湾领空。这种做法叫做灰色地带处理。他们并没有形成国际法下的宪法侵犯，他们并没有做战争行为，但是他们挑起社会恐惧，因为他们提醒整个国家存在着中共国威胁，而中共会要侵略。如果台湾不告诉人民这个威胁是真实存在，台湾的斗争将让澳洲很困难地站出来（帮助）同时确保导致美国的干预。中共国发展军事工厂就是为了引起紧张，（中共）国家没有任何迹象放慢其发展海军舰队、空军和导弹存量。本世纪初，他们（中共国）4倍（增强）他们的核能力，他们在这个10年至少（增强）2倍核能力。
 
+对于这个来自澳洲主流媒体澳大利亚新闻集团报道，引用前美国国防部长的观点称：“澳洲与中共国的战争可能性几乎难以避免”。笔者认为，这是一个非常令人震撼的消息。虽然笔者身在澳洲，对澳洲和中共国近年在诸多方面的角力、各种领域的斗争都很有体会了，可是今年之后，特别是近期，明确感受澳洲各界对中共国威胁特别是战争威胁的觉醒日益明显。
 
+早在刚过去不久的澳新军团日纪念活动中，内政部常务副部长迈克-佩苏略就表示，澳洲“应为和平而努力”，并“不应以我们来之不易的自由作为代价”。据说他的发言以一个会在稍后接任澳洲国防部常务副部长职位的角度，颇有深意。同时，当任的国防部长彼得-达顿就直接表示“不能排除与中共国就台湾问题爆发战争的可能性”。这二位的发言，相信对大家理解本视频的观点是很好的辅助。
 
-> THREAD ➡️ Tomorrow, [@chucktodd](https://twitter.com/chucktodd?ref_src=twsrc%5Etfw) and [@Gstephanopoulos](https://twitter.com/GStephanopoulos?ref_src=twsrc%5Etfw) will have Dr. Fauci on their Sunday shows. They need to use the opportunity to press Dr. Fauci on important and long overdue questions. Almost a year and a half into the pandemic, it is time for answers.
-> — Rep. Mike Gallagher (@RepGallagher) [May 8, 2021](https://twitter.com/RepGallagher/status/1391060071522648065?ref_src=twsrc%5Etfw)
+笔者认为，我们可以这样理解，澳洲的国防力量已经从高层，觉察到中共国预备将台湾作为自己称霸世界野心计划的一个重要环节。他们不仅觉察到，并有深度的认识，还有战略部署和国防准备。而且，从这里可以看到澳大利亚作为一个在亚太地区有着自己的价值观和国家利益为出发的负责任的国家，对目前在台湾问题上，中共国的所作所为十分清楚。他们知道，牵一发而动全身，台湾的安定直接影响整个亚太地区国家和人民的利益与发展。台湾和澳大利亚也是有唇齿相依的关系，中共国拿下台湾，其他不闻不问的国家就可能是下一个。
 
+澳新军团日上，佩苏略就引用了美国将军的话，称澳大利亚准备“再次派遣我们的将士奔赴战场”。用这些早先的澳洲国防高层和相关人士的发言，我们可以知道，从本视频上所了解到的澳洲与中共国的“战争可能性”就是如此切近和真实。笔者认为，这不仅应该让台湾人民，澳洲人民都清楚，还要让大陆人民也要清楚。如果澳媒主流都在不断地挖掘这个话题，那么就说明，一切都是“箭在弦上”的节奏。
 
+没有人想要战争，没有人想要面对死亡和伤害，可是这就是中共的邪恶，他们故意让天下大乱，他们不仅人为投放中共病毒，让世界处于黑暗，他们还要发起热战，让世界不得安宁。那么，也很简单，必须对邪恶不软手，必须要用人民的正义和世界的正义来消灭这些中南坑的杂毛疯子。从这些动态，每个人都可以清楚看到，中共的狐狸尾巴藏不住了，它的骗局已经演不下去了，世界都联合起来，开始做好准备。我们也借此机会奉劝那些头脑不清醒的体制内的民众，不要做中共国的炮灰。请分清正邪善恶，选对站位。我们拭目以待，一切都是刚刚开始。
 
-参议员玛莎·布莱克本： 拜登的税收政策：对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 有利， 对美国中产阶级不利。
+（本文纯属个人观点）
 
+参考资料：
 
-
-> Biden’s tax plan: good for China, bad for middle class Americans.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 8, 2021](https://twitter.com/MarshaBlackburn/status/1391063900100169729?ref_src=twsrc%5Etfw)
-
-
-
-前白宫顾问皮特·纳瓦罗： 2020年3月我在玛丽亚 [@MariaBartiromo](https://twitter.com/MariaBartiromo) 的节目上说病毒是来自 [#武汉](https://twitter.com/hashtag/%E6%AD%A6%E6%B1%89?src=hashtag_click) 实验室的。如果是真的，福奇就是病毒他爸。这片出色的文章为以上两件事提供了可信度。 [@cnn](https://twitter.com/cnn)[@nyt](https://twitter.com/nyt) 你们该起来报道了。白宫新闻秘书珍·莎琪（Psaki ）正在进行掩盖。【转推Medium博客网站，新冠起源——线索追踪，梳理了对新冠起源的核查】
-
-
-
-> In March 2020 on ⁦[@MariaBartiromo](https://twitter.com/MariaBartiromo?ref_src=twsrc%5Etfw)⁩ I said virus from Wuhan Lab. If true, Fauci is father of virus. This BRILLIANT article lends credence to both. [@cnn](https://twitter.com/CNN?ref_src=twsrc%5Etfw) [@nyt](https://twitter.com/NYT?ref_src=twsrc%5Etfw) man up and cover this.
-> 
-> Psaki coverup under way [https://t.co/6D0suKGLqh](https://t.co/6D0suKGLqh)
-> — Peter Navarro (@RealPNavarro) [May 8, 2021](https://twitter.com/RealPNavarro/status/1391033755398180880?ref_src=twsrc%5Etfw)
+1. [abc.net.au相关报道](https://www.abc.net.au/chinese/2021-04-27/mike-pezzullo-home-affairs-war-defence-force/100097312)
+2. [news.com.au相关报道](https://www.news.com.au/world/asia/china-advised-to-bomb-australian-soil/news-story/de4d171dd712250401d6b828a0543e34)
 
 
+* * *
 
-章家敦 (中国问题专家)： 希拉里·克林顿[@HillaryClinton](https://twitter.com/HillaryClinton)是正确的：我们必须将制造业从 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 撤回。我们不能任由一个无情的政权摆布。CommunistChina [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click)[#在岸](https://twitter.com/hashtag/%E5%9C%A8%E5%B2%B8?src=hashtag_click)[#近岸](https://twitter.com/hashtag/%E8%BF%91%E5%B2%B8?src=hashtag_click)[#邻近制造](https://twitter.com/hashtag/%E9%82%BB%E8%BF%91%E5%88%B6%E9%80%A0?src=hashtag_click) 【转Chatham House推文： ‘我们不能依赖中国市场。 这不仅对我们的经济不利，对我们的地缘政治战略利益也很糟糕。” “除非您收回生产资料，否则你将永远不会与他们竞争并赢得胜利。” 希拉里·克林顿[@HillaryClinton](https://twitter.com/HillaryClinton)星期二在皇家国际事务研究所[@CH\_Events](https://twitter.com/CH_Events) 的发言】
+*审**稿**、编辑：光耀华**夏*
 
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-
-> .[@HillaryClinton](https://twitter.com/HillaryClinton?ref_src=twsrc%5Etfw) is correct: We must move manufacturing back from [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw). We cannot leave ourselves at the mercy of a merciless regime. [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#onshoring](https://twitter.com/hashtag/onshoring?src=hash&amp;ref_src=twsrc%5Etfw) [#nearshoring](https://twitter.com/hashtag/nearshoring?src=hash&amp;ref_src=twsrc%5Etfw) [#ProximityManufacturing](https://twitter.com/hashtag/ProximityManufacturing?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/jP9qOX3uOG](https://t.co/jP9qOX3uOG)
-> — Gordon G. Chang (@GordonGChang) [May 7, 2021](https://twitter.com/GordonGChang/status/1390755562187640832?ref_src=twsrc%5Etfw)
-
-
-
-
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08091511/1-%E6%BE%B3%E5%96%9CLogo-1.jpeg)
 0

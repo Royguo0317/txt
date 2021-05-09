@@ -1,47 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【健身健心】核心力量训练（一）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1191363/)
+## 卢比奥称中共已被美大公司代理
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1191612/)
 
-作者：纽约香草山健身部 Ivy001
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/A-11.jpg)scmp.com
+面对利益的诱惑，大公司仍然对邪恶的中共不敢说“不”字，参议员卢比奥批评了苹果、脸书（Facebook）对中共唯唯诺诺的作法。
 
+《布雷特巴特》发表文章，“卢比奥：中共国已授权美国企业成它的代理人以推动对中共国的友好政策，而苹果公司的库克（Apple’s Cook）不能自由地谈论中共国”。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+文章介绍，5月7日在“休·休伊特秀”（Hugh Hewitt Show）节目上，参议员卢比奥说，中共国已被美国大公司“代理”，来推动有助于中共国的政策，并表示他不认为苹果首席执行官蒂姆·库克（Tim Cook）可以自由地谈论他对中共国的看法，（同样）脸书的首席执行官马克·扎克伯格（Mark Zuckerberg）也不想站在中共国的对立面。
 
+卢比奥说，中共国授权“美国大公司及其领导人成它的代理人，在美国推动和呼吁有利于中共国利益的政策”。
 
+他补充说，这些美国企业希望能够在中共国开展业务和生产产品。
 
-上期小教练讲解了什么是核心肌群和核心力量，以及它们对身体活动的重要性。这期就来讲解核心力量的训练吧。
+主持人休·休伊特（Hugh Hewitt）接着问道：“你认为苹果首席执行官蒂姆·库克能够畅所欲言地谈论中共国吗？”
 
-说到核心力量的训练，近期最火的平板支撑，就是经典的核心力量的训练。平板支撑动作如图所示。要点就是：不能塌腰，也不能拱臀，要平直收腹，呼吸协调，不要憋气。平板支撑不仅对图示的肌肉部分有训练，其实，它对肩部，背部，胳膊和小腿也有一定的作用。唯一缺点就是，训练特别单调乏味，小教练就特别不喜欢做这样的练习，硬撑着一动不动的，实在是太闷了，完全坚持不了。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08223354/Picture1-39.png)图片来源：网络
-今天推荐大家一个小教练最爱的动作之一，腿部浅打水。如图所示：平躺在垫子上，上背部略抬起，用下背部和臀部维持平衡，手要悬空，不要压在垫子上借力，左右腿交替做浅打水动作。交替一次，算一个动作，小教练是
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08223208/Picture2-14.png)图片来源：网络
-20个一组。注意收腹，抬高上背部时一定不要伸脖子，双腿要绷直，打水动作不要太快，用臀部和大腿发力，抬高放下都不要利用惯性。你能感到腹部肌肉和大腿肌肉的紧张感。
+卢比奥回答说：“不，绝对不会。”
 
-腿部浅打水的动作，主要训练腹部肌肉和大腿的股直肌，也能给臀部和背肌一定的训练。这个动作很简单，就算是健身小白也能轻松完成，但是，长期坚持下去，收腹美腿的效果杠杠的。
+休伊特随后询问扎克伯格的情况，卢比奥回答说，“脸书虽然不在中共国，但我认为，他们越来越担心中共国在世界其他国家日益增长的电信影响力。所以他们不想在其他地方遇到问题，中共的人去某个国家说，嘿，你应该摆脱脸书，用我们版本的脸书取代它。我想他们一定很担心这个，我认为他仍然梦想并希望有一天，他们能够进入中共国。”
 
-今天你健身了吗？传播爆料革命了吗？传播香港危机、病毒真相了吗？传播疫苗的危害了吗？
+贪图眼前利益、无节操的大公司，无视中共的邪恶，至今不愿与中共脱钩、划清界限，还抱有幻想，心怀期待，当你被中共驯服的时候，你们差不多就该被“共产”了。
 
-紧跟文贵先生的脚步，快乐健身，健康生活，努力灭共！
+奉劝大公司们，接受卢比奥参议员的劝告，要勇于对邪恶说“不”！
 
-编辑/审核/发稿：正义的小新
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
-**更多资讯，更多关注**
+原文链接：
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
+[https://www.breitbart.com/politics/2021/05/08/rubio-china-has-deputized-american-businesses-to-push-for-china-friendly-policies-apples-cook-cant-speak-freely-about-china/](https://www.breitbart.com/politics/2021/05/08/rubio-china-has-deputized-american-businesses-to-push-for-china-friendly-policies-apples-cook-cant-speak-freely-about-china/)
 
 +1

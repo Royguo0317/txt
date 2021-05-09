@@ -1,151 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国六年前就在准备用生物武器包括冠状病毒发动第三次世界大战
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1191100/)
+## 5月8日美国政要和政评家反共推特精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1191291/)
 
-翻译：烟波浩淼|校对：雨山溪桥客|审核：断播
+众议员迈克·加拉格尔：明天，主持人查克·托德[@chucktodd](https://twitter.com/chucktodd)和喬治·斯蒂芬諾伯羅斯[@Gstephanopoulos](https://twitter.com/Gstephanopoulos)将在他们的周日秀节目中邀请福奇(Fauci)博士。 他们需要利用这个机会向福奇博士追问重要且长期未解决的问题。 大流行病已持续近一年半了，该是得到答案的时候了。
 
-**据中国人民解放军2015****年撰写，美国国务院披露的档案，中共国六年前就在准备用生物武器，包括冠状病毒，发动第三次世界大战**
+问题1：福奇他是否同意谭德赛(Tedros)博士的观点，认为对实验室泄漏的可能性“需要进一步的调查”，包括2019年秋季在武汉实验室发生的任何疫情爆发？ 问题2：**USG向武汉病毒所(WIV)提供了多少资金**，其中有多少支持了危险的「功能增强」性研究？ 问题3：鉴于有关大流行病起源的未解之谜，他(福奇)是否仍然支持开展「功能增强」性研究，特别是在像中共国这样透明度很差的国家进行？ 在什么时候这种风险太大了？ **这不是阴谋论之说。事实是没有人 – 除了中共之外 – 有明确的答案。 不提出正确的问题，不仅会使我们无法理解为什么有60万美国人死了，而且同样重要的是，我们如何才能防止这种情况再次发生。**
 
-- **自2015年以来，中共一直在考虑SARS冠状病毒的军事潜力**
-- **美国国务院调查人员查阅了这份重磅文件**
-- **科学家们以“前所未有的方式”研究了对疾病的操纵**
-- **外交事务委员会的汤姆图根达特（Tom Tugendhat）说，证据是一个“主要担忧”**
 
 
-根据美国调查人员获得的一份文件，中共国科学家在过去六年里一直在用包括冠状病毒在内的生物和基因武器进行的第三次世界大战做准备。
+> THREAD ➡️ Tomorrow, [@chucktodd](https://twitter.com/chucktodd?ref_src=twsrc%5Etfw) and [@Gstephanopoulos](https://twitter.com/GStephanopoulos?ref_src=twsrc%5Etfw) will have Dr. Fauci on their Sunday shows. They need to use the opportunity to press Dr. Fauci on important and long overdue questions. Almost a year and a half into the pandemic, it is time for answers.
+> — Rep. Mike Gallagher (@RepGallagher) [May 8, 2021](https://twitter.com/RepGallagher/status/1391060071522648065?ref_src=twsrc%5Etfw)
 
-美国国务院获得的这份重磅文件中坚称，在这样的冲突中，生物武器将是“取得胜利的核心武器”，甚至概述了释放生物武器的最佳条件，并记录了它将对 “敌人的医疗系统 “产生的影响。
 
-这个最新的证据表明，中共早在2015年就考虑了SARS冠状病毒的军事潜力，这也引发了人们对中共病毒致病原因的新担忧，一些官员仍然认为病毒可能从中共国的一个实验室泄漏的。
 
-这中国人民解放军科学家和卫生官员的档案，其详细内容在《澳大利亚时报》上有报道，研究了操纵疾病以“前所未有的方式”制造武器的情况。
+参议员玛莎·布莱克本： 拜登的税收政策：对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 有利， 对美国中产阶级不利。
 
-政府高层人士说，在人们对中共国对其实验室活动缺乏监管的担忧日益增加的情况下，该文件对那些接近中国国家主席习近平的人的意图 “提出了严重担忧”。。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08214631/image002-9.jpg)在过去的六年中，中共国科学家一直在为第三次世界大战做准备，这些战争是使用包括冠状病毒在内的生物和遗传武器进行的，该文件的作者坚持认为，第三次世界大战“将是生物的”，不同于前两次分别被描述为化学和核战争。法新社|盖蒂图片![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08214958/image004-1.jpg)最新的证据表明，中共早在2015年就考虑过SARS冠状病毒的军事潜力，这也引起了人们对中共病毒病因的新恐惧，一些官员仍认为该病毒可能已经从中共国实验室中逃逸了。法新社|盖蒂图片
-该文件的作者坚持认为，第三次世界大战“将是生物的”，不同于前两次分别被描述为化学和核战争。
 
-有研究表明，投在日本的两颗原子弹迫使他们投降，并导致了二战的结束，他们声称生物武器将是第三次世界大战“胜利的核心武器”。
 
-该文件还概述了释放生物武器并造成最大伤害的理想条件。
+> Biden’s tax plan: good for China, bad for middle class Americans.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 8, 2021](https://twitter.com/MarshaBlackburn/status/1391063900100169729?ref_src=twsrc%5Etfw)
 
-科学家们说，这种攻击不应该在晴天进行，因为强烈的阳光会损害病原体，而雨或雪会影响气溶胶粒子。
 
-相反，它应该在夜间释放，或在黎明、黄昏或多云天气下释放，并且“稳定的风向……以便气溶胶能够漂浮到目标区域”。
 
-同时，研究还指出，这样的袭击会导致需要住院治疗的病人激增，从而“可能导致敌人的医疗系统崩溃”。
+前白宫顾问皮特·纳瓦罗： 2020年3月我在玛丽亚 [@MariaBartiromo](https://twitter.com/MariaBartiromo) 的节目上说病毒是来自 [#武汉](https://twitter.com/hashtag/%E6%AD%A6%E6%B1%89?src=hashtag_click) 实验室的。如果是真的，福奇就是病毒他爸。这片出色的文章为以上两件事提供了可信度。 [@cnn](https://twitter.com/cnn)[@nyt](https://twitter.com/nyt) 你们该起来报道了。白宫新闻秘书珍·莎琪（Psaki ）正在进行掩盖。【转推Medium博客网站，新冠起源——线索追踪，梳理了对新冠起源的核查】
 
-其他担忧还包括中共国在武汉病毒研究所的“功能增强”研究，该研究所靠近首次发现冠状病毒爆发的地方，在那里病毒学家正在制造新的病毒，据说这种病毒传播性更强，杀伤力更强。
 
-外交事务委员会主席、国会议员汤姆图根达特（Tom Tugendhat）说，这份文件引起了人们对一些为党的最高领导层提供建议的人的野心的严重担忧。即使在最严格的控制下，这些武器也是危险的
 
-化学武器专家哈米什·德·布雷顿·戈登（Hamish de Bretton Gordon）说：“中共国挫败了所有监管和监督其可能进行过此类实验的实验室的努力。”
+> In March 2020 on ⁦[@MariaBartiromo](https://twitter.com/MariaBartiromo?ref_src=twsrc%5Etfw)⁩ I said virus from Wuhan Lab. If true, Fauci is father of virus. This BRILLIANT article lends credence to both. [@cnn](https://twitter.com/CNN?ref_src=twsrc%5Etfw) [@nyt](https://twitter.com/NYT?ref_src=twsrc%5Etfw) man up and cover this.
+> 
+> Psaki coverup under way [https://t.co/6D0suKGLqh](https://t.co/6D0suKGLqh)
+> — Peter Navarro (@RealPNavarro) [May 8, 2021](https://twitter.com/RealPNavarro/status/1391033755398180880?ref_src=twsrc%5Etfw)
 
-昨天报道了《武汉到底发生了什么》一书中的这一启示。
 
-这份名为“《作为遗传生物武器的人造病毒新品种》的文件说：“随着其他科学领域的发展，在生物制剂的投放方面也取得了重大进展。
 
-例如，新发现的冷冻干微生物的能力，使得储存生物制剂和在攻击将其气溶胶化成为可能。
+章家敦 (中国问题专家)： 希拉里·克林顿[@HillaryClinton](https://twitter.com/HillaryClinton)是正确的：我们必须将制造业从 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 撤回。我们不能任由一个无情的政权摆布。CommunistChina [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click)[#在岸](https://twitter.com/hashtag/%E5%9C%A8%E5%B2%B8?src=hashtag_click)[#近岸](https://twitter.com/hashtag/%E8%BF%91%E5%B2%B8?src=hashtag_click)[#邻近制造](https://twitter.com/hashtag/%E9%82%BB%E8%BF%91%E5%88%B6%E9%80%A0?src=hashtag_click) 【转Chatham House推文： ‘我们不能依赖中国市场。 这不仅对我们的经济不利，对我们的地缘政治战略利益也很糟糕。” “除非您收回生产资料，否则你将永远不会与他们竞争并赢得胜利。” 希拉里·克林顿[@HillaryClinton](https://twitter.com/HillaryClinton)星期二在皇家国际事务研究所[@CH\_Events](https://twitter.com/CH_Events) 的发言】
 
-分析人士说，该书有18位作者曾在“高风险”实验室工作。
 
-澳大利亚战略政策研究所执行主任彼得詹宁斯（Peter Jennings）也对中共国对冠状病毒的生物学研究可能在未来被武器化提出了担忧。
 
-他说：“研究能力并没有明显的区别，因为进攻性还是防御性使用并不是这些科学家的决定。”
+> .[@HillaryClinton](https://twitter.com/HillaryClinton?ref_src=twsrc%5Etfw) is correct: We must move manufacturing back from [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw). We cannot leave ourselves at the mercy of a merciless regime. [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#onshoring](https://twitter.com/hashtag/onshoring?src=hash&amp;ref_src=twsrc%5Etfw) [#nearshoring](https://twitter.com/hashtag/nearshoring?src=hash&amp;ref_src=twsrc%5Etfw) [#ProximityManufacturing](https://twitter.com/hashtag/ProximityManufacturing?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/jP9qOX3uOG](https://t.co/jP9qOX3uOG)
+> — Gordon G. Chang (@GordonGChang) [May 7, 2021](https://twitter.com/GordonGChang/status/1390755562187640832?ref_src=twsrc%5Etfw)
 
-如果你表面上是在培养技能来保护你的军队免受生物攻击，那么你同时也在赋予你的军队使用这些武器的能力­进攻性的。你不能把两者分开。
 
-情报机构怀疑中共病毒可能是武汉实验室意外泄漏的结果。但到目前为止，还没有证据表明这是故意释放的。
 
-就在本周，巴西总统博尔索纳罗（Jair Bolsonaro）似乎强烈批评中共国，指责中共国制造中共病毒以引发化学“战争”
 
-这番言论是在周三的一次记者招待会上发表的，当时这位强硬派领导人试图进一步远离日益增多的袭击事件，因为他在国内处理一场已造成世界第二高死亡人数的流行病。
 
-“这是一种新病毒。博尔索纳罗说，没人知道它是来源于在实验室，还是因为人类吃了不该吃的动物。
-
-‘但它就在那里。军队知道什么是化学战、细菌战和放射性战。我们不是面临一场新的战争吗？哪个国家的GDP增长最多？我不会告诉你’。
-
-虽然博尔索纳罗在讲话中没有点名中国，但经济合作与发展组织（OECD）的数据显示，中共国是20国集团（G20）中唯一一个GDP在2020年大流行期间出现增长的成员国，增幅为2.3%。
-![]()![](https://gnews.org/wp-content/uploads/2021/05/image006-6.jpg)中国人民解放军科学家和卫生官员的档案显示，他们研究了以前所未有方式操纵疾病制造武器
-而世界卫生组织负责人最近在3月表示，在阅读了世卫组织-中共国的研究报告后，关于中共病毒起源的所有理论仍然没有定论。尽管该报告声称，病毒从实验室中泄漏的说法是“极其不可能的”。
-
-泰德罗斯·阿达诺姆·盖布雷耶苏斯（Tedros Adhanom Ghebreyesus）说：“在阅读了国际专家团赴武汉的报告之后，所有的假设都 “摆在桌面上”，需要进一步调查。
-
-但就在他发表上述评论的几个小时前，有消息称，该报告驳斥了实验室泄漏理论，并称最有可能的情况是病毒通过另一种动物从蝙蝠传播给人类。
-
-该报告的发布被一再推迟，引起了人们对中方是否试图歪曲结论，以防止把疫情归咎于中共国。
-
-包括前总统川普在内的批评人士指责世卫组织自疫情首次向世界宣布以来，一直在模仿中共国对该病毒的宣传。
-
-在特德罗斯博士发表评论之前，纽约共和党议员李泽尔丁抨击中共国“向世界掩盖了大流行病的起源”，而世卫组织“一次又一次地配合”。
-
-与此同时，拜登总统的首席医学顾问安东尼·福奇（Anthony Faucia）博士透露，他对世卫组织有争议的事实调查团感到”担忧”。
-
-报告的发布一再推迟，令人怀疑中共国方面是否试图歪曲其结论。
-
-美国国务卿布林肯（Antony Blinken）最近在接受美国有线电视新闻网（CNN）采访时说，我们对这份报告的撰写方法和过程感到真正的担忧，其中包括中共政府显然帮助撰写了这份报告的事实。
-
-中共国拒绝了这一批评，并指责美国对事实调查团专家“施加政治压力”。
-
-他说，美国一直在就这份报告表态。外交部发言人赵立坚问道：“美国这样做，难道不是想对世卫组织专家组成员施加政治压力吗？”。
-
-**伊恩•伯雷尔（IAN BIRRELL****）写道：令人担忧的是，关于冠状病毒起源的新线索：武汉实验室的科学家是如何帮助中共国军方在秘密项目中发现动物病毒的**
-
-在武汉的中共国最高安全实验室研究蝙蝠疾病的科学家们与军方主要官员一起参与了一项大规模的调查动物病毒的项目，尽管他们否认任何此类联系。
-
-英国《每日邮报》周日获得的文件显示，一个由一个主要国家机构指导的全国性计划在9年前启动，旨在发现新的病毒，并探测与传播疾病有关的生物“暗物质”。
-
-一位中共国著名科学家在去年1月发表了第一个中共病毒的基因序列，仅在项目的前三年就发现了143种新的疾病。
-
-这种病毒检测项目由文职和军事科学家共同领导，这一事实似乎证实了美国有关武汉病毒研究所（WIV）与中共国210万军队合作的煽动性说法。
-
-该计划的五个小组负责人包括被昵称为“蝙蝠女”的武汉病毒研究所病毒学家石正丽和高级军官、政府生物恐怖主义顾问曹务春。
-
-石教授上个月否认了美国的指控，她说：”我不知道武汉病毒研究所有任何军事工作。这一信息是错误的。”
-![]()![](https://gnews.org/wp-content/uploads/2021/05/image008-5.jpg)问题：武汉病毒研究所顾问曹务春上校，右一，中共国最高的生物防御专家陈薇少将
-然而，曹上校在项目报告中被列为中国人民解放军军事医学科学院的研究员，与其他军事科学家密切合作，并且是军事生物安全专家委员会的主任。
-
-曹曾在剑桥大学学习的流行病学家，甚至是武汉病毒研究所咨询委员会的成员。他是国家最高生物防御专家陈薇少将领导的军事小组的第二把手，该小组被派往武汉市应对中共病毒爆发并开发疫苗。
-
-美国国务院也对武汉实验室操纵冠状病毒的风险性“功能增益”实验提出了关切，并表示研究人员在中共国城市更广泛地爆发疫情的几周前就出现了类似中共病毒感染的症状。
-
-上个月，英国、美国和其他12个国家批评中共拒绝分享关键数据和样本，因为世界卫生组织和中共国对该大流行病的起源进行的联合研究认为实验室泄漏是“极不可能的”。
-
-伦敦国王学院的生物安全专家菲利帕·伦佐斯（Filippa Lentzos）说，最新的披露符合来自中共的“不一致的模式”。
-
-她说：”他们对我们仍然不透明。我们没有关于大流行病起源的硬数据，不管它是来自动物的自然溢出还是某种与研究有关的意外泄漏，但我们无法得到直接的答案，这根本不能激发人们的信心。
-
-英国《每日邮报》周日获得的文件详述了一个名为“发现野生动物携带的动物传播病原体”的重大项目，该项目旨在寻找可能感染人类的生物，并研究其进化。
-
-该项目于2012年启动，由中共国国家自然科学基金资助。由徐建国领导，他在2019年的一次会议上吹嘘说：“传染病预防和控制的庞大网络正在形成“。
-
-这位教授还领导了第一个调查中共病毒在武汉的出现的专家组。尽管有来自医院的证据，他最初否认人传人，然后在1月中旬坚称“这一流行病是有限的，如果下周没有新病例，疫情将结束”。
-
-一篇关于他的病毒搜寻项目的评论承认“已经发现了大量的新病毒，引起了国际病毒学界的极大关注”。
-
-报告还说，如果病原体扩散到人和牲畜身上，可能会引发新的传染病，“对人类健康和生命安全构成巨大威胁，并可能造成重大经济损失，甚至影响社会稳定”。
-
-2018年的一份最新报告称，这些科研团队在国际期刊上发表了许多研究成果，他们发现了4种新病原体和10种新细菌，同时“利用宏基因组技术发现了1640多种新病毒”。这项研究是基于从中共国南方洞穴网络中采集的蝙蝠粪便和血液样本中提取的遗传物质。
-
-如此广泛的取样导致石教授去年迅速发现了RaTG13，这是已知的最接近于引起中共病毒的新病毒株。
-
-它存放在武汉实验室，这是亚洲最大的蝙蝠冠状病毒库。
-![]()![](https://gnews.org/wp-content/uploads/2021/05/image010-2.jpg)图为：湖北省中部的武汉市武汉病毒研究所，世界卫生组织（WHO）小组成员在访问中调查了中共冠状病毒的起源
-后来发现，她把它的名字改成了先前一篇论文中发现的另一种病毒，从而掩盖了它与三名矿工的联系，这三名矿工死于一种奇怪的呼吸道疾病，他们是在清理蝙蝠粪便时感染的。
-
-石教授还承认，在矿洞中还收集了8种未经鉴定的非典型肺炎病毒。就在武汉爆发中共病毒病例的前几周，该研究所于2019年9月将病毒样本数据库下线。
-
-曹上校发表了一篇关于致命蜱虫叮咬的论文后，社交媒体发表评论说，他和史教授“总能找到一种从未在人类身上发现的病毒”，并补充说：“我怀疑这是实验室里进行的另一项所谓的‘科学研究’。”
-
-近年来，中共国军方雇用了更多的科学家，习近平主席说这是国家走向全球霸权的关键因素。
-
-许多人多年来一直在与西方研究机构合作，窃取我们的技术秘密，但在疫情已造成300多万人死亡一年后，中共国仍然拒绝分享关键信息
-
-负责美国国务院调查中共病毒起源的生物、化学和核扩散问题专家大卫·阿舍（David Asher）说，中共国人已经明确表示，他们将生物技术视为未来混合战争的重要组成部分。最大的问题是他们在这些领域的工作是进攻性的还是防御性的。
-
-原文作者：汤姆·皮曼（Tom Pyman）
-发布时间：美东2021年5月8日02:47
-原文链接：[https://www.dailymail.co.uk/news/article-9556415/China-preparing-WW3-biological-weapons-six-years-investigators-say.html](https://www.dailymail.co.uk/news/article-9556415/China-preparing-WW3-biological-weapons-six-years-investigators-say.html)
-
-+1
+0
