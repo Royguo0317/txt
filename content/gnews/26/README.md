@@ -1,57 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】众议院共和党人要求解密“实验室意外泄漏”文件
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1190063/)
+## 《我们的七芒星》第十五期选手介绍 &#8211; 美东周六5月8日晚8点
+` GMusic` [轉載自GNews](https://gnews.org/zh-hans/1190136/)
 
-作者：纽约香草山农场     四季
+我们的七芒星文宣组 May，山上的城，Q大哥整理
 
+由GTV空中唱响团队和纽约香草山农场文艺部倾心打造的新中国联邦首档全民灭共大型知识竞猜节目《我们的七芒星》第十五期节目，也是本季《我们的七芒星》最后一期初赛，将于美东时间5月8日周六晚8点，暨北京时间5月9日周日早8点，在GTV正式火热开播。 届时将有一位”主持人”选手，和来自全球的八位”挑战者”和两位候补“挑战者”参赛。
 
+本期主持人选手是来自美国休斯敦星光农场的文清！
+![]()![](https://gnews.org/wp-content/uploads/2021/05/文清.jpeg)
+“挑战者”选手分别是：文兴，高频，自由之翼，华夏的文丽，克莉亜，就爱七哥，追随者，路易，帕丁顿，Gugu Wen。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+**文兴 意大利罗马达芬奇农场**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08163946/%E6%96%87%E5%85%B4.jpg)
+2017年开始持续关注爆料革命。 再随着诸如海航、王健、委内瑞拉、香港等事件以及G系列的成功，更加坚定了对爆料革命的信仰。
 
+* * *
 
+**高频 新西兰伊甸农场**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08164638/%E9%AB%98%E9%A2%91-2.jpeg)
+带着对黑帮共产党的极度失望以及对于亲身参与的8964悲惨结果的愤懑，技术移民来到新西兰。 2018年9月开始关注郭先生，凭着人性的共鸣，很自然的跟随了爆料革命。
 
-美国保守派新闻和政治网站The Western Journal于5月7日报道，众议院共和党人要求拜登政府就冠状病毒的起源问题直言不讳，对据称的中（共）国“实验室意外泄漏”事件做出答复。
+* * *
 
-![]()![](https://gnews.org/wp-content/uploads/2021/05/image-126.png)图为位于中（共）国中部湖北省武汉市的武汉病毒研究所的P4实验楼。(Hector Retamal – AFP / Getty Images)
+**自由之翼  新西兰伊甸农场**
+![]()![](https://gnews.org/wp-content/uploads/2021/05/自由之翼-2-3.jpg)
+2019年在香港亲身经历并感受到香港反送中大游行的震撼，于是毅然加入爆料革命，曾多次参加农场组织的反共大游行，并参与农场的GTV直播。 “伊甸滅共行，利他兴联邦”
 
-福克斯新闻也报道，三名来自华盛顿的共和党众议员凯西-麦克莫里斯-罗杰斯，肯塔基州的议员布雷特-古思里和弗吉尼亚州的议员摩根-格里菲斯已经致信国务卿布林肯，要求国务院提供证据，支持1月15日的论断，即“武汉病毒研究所与中（共）国军方合作进行机密研究，包括实验室动物实验”。信中说，武汉病毒研究所“一直是美国政府和世界卫生组织在研究COVID-19的来源以及实验室泄漏的可能性方面的一个主要焦点，对COVID-19起源的任何可信调查必须包括对实验室泄漏假说的审查。世卫组织总干事泰德罗斯-阿达诺姆-格布雷耶苏斯已经表示，他支持对所有COVID-19起源假说的进一步调查，包括实验室泄漏假说”。
+* * *
 
-信中说，“我们希望你（布林肯）关于查清这一流行病的根源的声明会包括寻找所有可能的原因，包括实验室意外泄漏的可能性。此外，披露非机密文件和解密任何有关中（共）国军方和武汉病毒研究所之间联系的文件，将有助于推进对COVID-19起源的全面调查，从而使此事透明化，并提高公众对这一问题的兴趣和理解”。
+**华夏的文丽 新西兰伊甸农场**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08164400/%E6%96%87%E4%B8%BD-1.jpeg)
+因CCP病毒知道了爆料革命· 并明白中国人不等于中国共产党。 成为新中国联邦人，是一生的幸福。 希望墙内同胞多看GTV Gnews，认清共产党的丑恶。
 
-关于冠状病毒起源的辩论已被证明是一个热门的地缘政治问题。中共当局坚持认为，该病毒是从一个动物物种自然传播给人类的。但是，越来越多的科学家、记者和政府官员质疑中共的说法，认为中共官员对病毒的来源缺乏透明度。
+* * *
 
-中共当局拒绝让世卫组织的调查人员完全接触到有关该病毒早期病例的数据，且中共政府官员还监督了调查人员与武汉实验室科学家的所有访谈。
+**克莉亜  银河系**
+![]()![](https://gnews.org/wp-content/uploads/2021/05/keliya.jpeg)
+自2017年接触到爆料革命，明白了爱国不等于爱党，中国共产党不等于中国人民的概念。积极宣传爆料革命和病毒真相。 只有灭共才能还原真相，相信2021年灭共必胜！
 
-随着巴西总统暗示，中共病毒是来自实验室的生物武器，越来越多的媒体开始揭露中共病毒的来源。相信真相不久将大白于天下。
+* * *
 
-参考阅读：
+**就爱七哥 德国慕尼黑感恩农场**
 
-[House Republicans Demand Answers on Alleged Chinese ‘Accidental Laboratory Leak’](https://www.westernjournal.com/house-republicans-demand-answers-alleged-chinese-accidental-laboratory-leak/)
+曾穿着“民主 民权 六四”体恤衫去上课，老师在课堂上公然无耻谎称8964开枪照片是PS的。爆料革命给善良的中国人带来了希望，生死看淡，不服就干，就爱七哥，爱咋咋地。
 
-[Classified State Dept. Docs Could Connect Coronavirus to Chinese Lab, House Republicans Say](https://freebeacon.com/coronavirus/classified-state-dept-docs-could-connect-coronavirus-to-chinese-lab-house-republicans-say/)
+* * *
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+**追随者 意大利罗马达芬奇农场**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08164620/%E8%BF%BD%E9%9A%8F%E8%80%85-1.jpeg)
+自2017年坚定追随7哥和爆料革命，意农初建时战友之一，自加入意农积极参加农场线上线下各种活动。为消灭邪恶的流氓共产党，让中国人民早日走上民主出一份自己的力量。
 
-编辑/校对/发稿：Irene木木
+* * *
 
-**更多资讯，更多关注**
+**路易 意大利罗马达芬奇农场**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08164604/%E8%B7%AF%E6%98%93-2.jpeg)
+2017年参加爆料革命，每次看到郭先生直播，都更加坚定铲除CCP和建设新中国联邦是我们海外华人应尽的义务和责任。
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+* * *
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+**帕丁顿 意大利罗马达芬奇农场**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08164339/%E5%B8%95%E4%B8%81%E9%A1%BF-1.jpeg)
+2017年有人在微信里发了文贵先生戴阿拉伯头巾，写”中国总统郭文贵”的照片，随后在youtube开始看爆料视频，步步紧跟至今，坚定不移！
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+* * *
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
+**Gugu Wen  意大利罗马达芬奇农场**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08164258/guguwen-1-2.jpeg)
+参赛第12期《我们的七芒星》主持人，发现“勇敢”的上镜是会上瘾的！ 希望能带动更多年轻人站出来，把一把把利剑，射向CCP的心脏。Take Down CCP。
 
 0
