@@ -1,11 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇博士所提供大量科研资金流向了中共国的实验室
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1192936/)
+## 慧眼看世界20210508（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1190705/)
 
-5/8/2021 揭露“中共病毒疫情”的本质系超限生物战的爆料人闫丽梦博士说，美国国家过敏和传染病研究院的安东尼·福奇博士为全球范围内的人畜共患新兴传染病的调研提供了资金。如闫博士所言，这些资金大部分流向了中国的实验室，包括武汉病毒研究所和她所在的香港大学的实验室。该实验室是由世界顶级冠状病毒专家裴伟士 (Malik Peiris) 教授所领导的世卫组织参比实验室。
+- 制图：透明遮羞布
+- 编辑：神奇四侠
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-0
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08195545/01-11.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08195715/02-19.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08200003/03-12.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08200119/04-8.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08200418/05-12.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08201452/06-22.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08201720/07-11.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08204119/08-21.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08204208/09-8.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08204432/10-19.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09055253/11-29.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/05/12-14.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09072921/13-13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/05/14-9.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/05/15-9.jpg)
+发稿：信心的选择
+
++1
