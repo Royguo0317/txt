@@ -1,37 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210508（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1190705/)
+## 【时事解析】中共火箭残骸坠落，结束世界数日担忧
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1192911/)
 
-- 制图：透明遮羞布
-- 编辑：神奇四侠
+作者：休斯顿星光农场 写作部 文信
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-03-25-230524-1.jpg)
+**5月9日，中共最大的火箭残骸坠入印度洋，终于结束了数天来关于碎片将击中何处的猜测和担忧。**
+
+据路透社消息，中共官媒引用中共国载人航天工程办公室的坐标，称北京时间5月9日上午10点24分（格林尼治标准时间02：24），“长征5B”型运载火箭残骸在重新进入大气层后，坠入坐标为东经72.47度和北纬2.65度的位置的马尔代夫群岛以西的海洋中。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09082140/Screenshot-2021-05-09-060720-7.jpg)
+*图片来源：DW*
+
+美国太空司令部证实了“长征5B”型运载火箭在阿拉伯半岛上空重返，但表示目前还不清楚这些碎片是否撞击了陆地或水域。美国太空司令部在其网站上发表声明说：“撞击的确切位置和碎片的跨度目前还不得而知。”
+
+自4月29日“长征5B”火箭从中共国海南岛发射升空以来，其碎片去向的不确定性令世界担忧。中共载人航天工程办公室则表示，大部分碎片将在再入大气层过程中被烧毁。但是，由于火箭轨道衰变的不确定性，以及中共在重返轨道前未能发出更有力的保证，加剧了人们的焦虑。
+
+本次发射是中共“长征5B”火箭自2020年5月首次飞行以来的第二次部署。就在去年，第一次“长征5B”的碎片坠落在科特迪瓦（象牙海岸），损坏了几座建筑物。没有受伤的报告。
+
+美国宇航局局长比尔·纳尔逊（Bill Nelson）在重返太空后发表声明说：“航天国家必须尽量减少重新进入太空物体对地球上人员和财产的风险，并最大限度地提高这些行动的透明度。很明显，中（共）国在空间碎片方面没有达到负责任的标准。”
+
+哈佛大学的天体物理学家乔纳森·麦克道尔说，自从1979年7月美国国家航空航天局(NASA)的空间站Skylab的部分碎片失控落入澳大利亚之后，多数国家设计宇宙飞船时都设法避免大型碎片不受控制地重新进入大气层。
+
+他说：”这让中（共）国火箭设计师看起来很懒，因为他们没有解决这个问题，并告诉纽约时报，在过去30年里，只有中共国任由多级火箭的残骸随意坠落回地球，“据信火箭的主级核心部分重约21吨，可能分解成大量碎片，相当于一架小型飞机失事。”
+
+信息来源：
+
+[https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E8%BF%90%E8%BD%BD%E7%81%AB%E7%AE%AD%E6%AE%8B%E9%AA%B8%E5%9D%A0%E5%85%A5%E5%8D%B0%E5%BA%A6%E6%B4%8B/a-57474440](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E8%BF%90%E8%BD%BD%E7%81%AB%E7%AE%AD%E6%AE%8B%E9%AA%B8%E5%9D%A0%E5%85%A5%E5%8D%B0%E5%BA%A6%E6%B4%8B/a-57474440)
+
+[https://cn.reuters.com/article/us-china-space-rocket-0506-idCNKBS2CN09J](https://cn.reuters.com/article/us-china-space-rocket-0506-idCNKBS2CN09J)
+
+[https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210508-%E4%B8%AD%E5%9B%BD%E7%81%AB%E7%AE%AD%E6%AE%8B%E9%AA%B8%E5%8D%B3%E5%B0%86%E5%9D%A0%E8%90%BD-%E5%A4%B1%E6%8E%A7%E6%8B%85%E5%BF%A7%E5%BC%95%E7%A7%91%E6%8A%80%E7%95%8C-%E6%94%BF%E7%95%8C%E7%97%9B%E6%89%B9-%E4%B8%8D%E8%B4%9F%E8%B4%A3%E4%BB%BB](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210508-%E4%B8%AD%E5%9B%BD%E7%81%AB%E7%AE%AD%E6%AE%8B%E9%AA%B8%E5%8D%B3%E5%B0%86%E5%9D%A0%E8%90%BD-%E5%A4%B1%E6%8E%A7%E6%8B%85%E5%BF%A7%E5%BC%95%E7%A7%91%E6%8A%80%E7%95%8C-%E6%94%BF%E7%95%8C%E7%97%9B%E6%89%B9-%E4%B8%8D%E8%B4%9F%E8%B4%A3%E4%BB%BB)
+
+编辑/ 校对/发稿：Helen
+
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08195545/01-11.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08195715/02-19.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08200003/03-12.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08200119/04-8.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08200418/05-12.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08201452/06-22.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08201720/07-11.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08204119/08-21.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08204208/09-8.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08204432/10-19.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09055253/11-29.jpg)
-![]()![](https://gnews.org/wp-content/uploads/2021/05/12-14.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09072921/13-13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/05/14-9.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/05/15-9.jpg)
-发稿：信心的选择
-
-+1
++2
