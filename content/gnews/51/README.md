@@ -1,44 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】大胡子泽连科医生被提名诺贝尔和平奖
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1191256/)
+## 病毒人造证据“堆积如山”，美议员呼吁调查确认
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1191257/)
 
-配音：香草山录音组 蒙古鸿雁
+加拿大多伦多枫叶农场 军迷Wilson
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+据布莱巴特新闻网5 月 8 日报道，美国众议员迈克·加拉格尔（Mike Gallagher）在本周五的福克斯访谈节目中声称，当前全世界几乎所有的研究证据及科学发现都指向CCP病毒来自实验室而非自然进化，议员作为美国最高权力机构的主要成员，“应该知道”病毒到底从哪里来。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08222213/gannett-cdn.com-2-1.jpg)*图片来源：gannett-cdn.com*
+迈克进一步表示，病毒来自实验室的证据已经“堆积如山”，我们为什么迟迟不作深入的探究，有一个最终的、确定的结论呢？从迈克的话中，可以感受到病毒来自中共武汉实验室的真相已经呼之欲出。
 
+现任美国传染病研究所所长兼总统首席医疗顾问福奇和世卫顾问达扎克，利用美国纳税人的钱长期资助武汉病毒研究所，其中达扎克的生态健康联盟，对武毒所的资助计划要在4年后才结束。早有耳闻的迈克强调，我们还要调查美国的资金是否参与了（中共）该项损害美国的实验室病毒增强改造研究。
 
+俄罗斯国家杜马（议会下院）主席沃洛金 2月27日宣称，CCP病毒可能从位于中共国的一家美国生物实验室泄漏，美国应该对疫情后果负责。沃洛金所指实验室就是武毒所，福奇和达扎克都是使用美国政府的拨款资助了武毒所，美国政府要完全撇清和中共以及武毒所的关系并不容易。因此美国只有积极追究达扎克等人的责任，尽快发布确定中共发动超限生物战的白皮书，才是最明智的做法。
 
+[原文链接](https://www.breitbart.com/clips/2021/05/08/gop-rep-gallagher-evidence-stacking-up-supporting-lab-leak-theory-on-covid/)
 
+* * *
 
-
-
-据美国一线医生网站报道，弗拉基米尔·泽连科医生，俗称“大胡子医生”，日前因其在应对冠状病毒大流行中所发挥的作用而被列入诺贝尔和平奖提名的候选名单中。今年的被提名者名单包括43名候选人。泽连科医生是纽约州门罗市的一名家庭医生，出生于1973年，是一位乌克兰裔美国家庭医生。他在纽约州立大学水牛城分校的医学和生物医学科学学院获得医学博士学位，因推广羟氯喹、锌和阿奇霉素三种药物鸡尾酒疗法作为COVID-19实验性门诊治疗的一部分而闻名，该疗法被称为泽连科方案。2020年3月23日，泽伦科发表了一封致美国前总统川普的公开信，他称自己已经成功地治疗了数百名COVID-19患者，他采用的是5天的羟氯喹、阿奇霉素和硫酸锌疗法。
-
-
-
-**文字版原文：[【热点播报】大胡子泽连科医生被提名诺贝尔和平奖](https://gnews.org/zh-hans/1166732/)**
-
-作者：纽约香草山教育组  新生
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑 发稿 云起时
 
 0
