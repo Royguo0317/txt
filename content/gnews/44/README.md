@@ -1,49 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月8日美国政要和政评家反共推特精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1191291/)
+## 病毒人造证据“堆积如山”，美议员呼吁调查确认
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1191257/)
 
-众议员迈克·加拉格尔：明天，主持人查克·托德[@chucktodd](https://twitter.com/chucktodd)和喬治·斯蒂芬諾伯羅斯[@Gstephanopoulos](https://twitter.com/Gstephanopoulos)将在他们的周日秀节目中邀请福奇(Fauci)博士。 他们需要利用这个机会向福奇博士追问重要且长期未解决的问题。 大流行病已持续近一年半了，该是得到答案的时候了。
+加拿大多伦多枫叶农场 军迷Wilson
 
-问题1：福奇他是否同意谭德赛(Tedros)博士的观点，认为对实验室泄漏的可能性“需要进一步的调查”，包括2019年秋季在武汉实验室发生的任何疫情爆发？ 问题2：**USG向武汉病毒所(WIV)提供了多少资金**，其中有多少支持了危险的「功能增强」性研究？ 问题3：鉴于有关大流行病起源的未解之谜，他(福奇)是否仍然支持开展「功能增强」性研究，特别是在像中共国这样透明度很差的国家进行？ 在什么时候这种风险太大了？ **这不是阴谋论之说。事实是没有人 – 除了中共之外 – 有明确的答案。 不提出正确的问题，不仅会使我们无法理解为什么有60万美国人死了，而且同样重要的是，我们如何才能防止这种情况再次发生。**
+据布莱巴特新闻网5 月 8 日报道，美国众议员迈克·加拉格尔（Mike Gallagher）在本周五的福克斯访谈节目中声称，当前全世界几乎所有的研究证据及科学发现都指向CCP病毒来自实验室而非自然进化，议员作为美国最高权力机构的主要成员，“应该知道”病毒到底从哪里来。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08222213/gannett-cdn.com-2-1.jpg)*图片来源：gannett-cdn.com*
+迈克进一步表示，病毒来自实验室的证据已经“堆积如山”，我们为什么迟迟不作深入的探究，有一个最终的、确定的结论呢？从迈克的话中，可以感受到病毒来自中共武汉实验室的真相已经呼之欲出。
 
+现任美国传染病研究所所长兼总统首席医疗顾问福奇和世卫顾问达扎克，利用美国纳税人的钱长期资助武汉病毒研究所，其中达扎克的生态健康联盟，对武毒所的资助计划要在4年后才结束。早有耳闻的迈克强调，我们还要调查美国的资金是否参与了（中共）该项损害美国的实验室病毒增强改造研究。
 
+俄罗斯国家杜马（议会下院）主席沃洛金 2月27日宣称，CCP病毒可能从位于中共国的一家美国生物实验室泄漏，美国应该对疫情后果负责。沃洛金所指实验室就是武毒所，福奇和达扎克都是使用美国政府的拨款资助了武毒所，美国政府要完全撇清和中共以及武毒所的关系并不容易。因此美国只有积极追究达扎克等人的责任，尽快发布确定中共发动超限生物战的白皮书，才是最明智的做法。
 
-> THREAD ➡️ Tomorrow, [@chucktodd](https://twitter.com/chucktodd?ref_src=twsrc%5Etfw) and [@Gstephanopoulos](https://twitter.com/GStephanopoulos?ref_src=twsrc%5Etfw) will have Dr. Fauci on their Sunday shows. They need to use the opportunity to press Dr. Fauci on important and long overdue questions. Almost a year and a half into the pandemic, it is time for answers.
-> — Rep. Mike Gallagher (@RepGallagher) [May 8, 2021](https://twitter.com/RepGallagher/status/1391060071522648065?ref_src=twsrc%5Etfw)
+[原文链接](https://www.breitbart.com/clips/2021/05/08/gop-rep-gallagher-evidence-stacking-up-supporting-lab-leak-theory-on-covid/)
 
+* * *
 
-
-参议员玛莎·布莱克本： 拜登的税收政策：对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 有利， 对美国中产阶级不利。
-
-
-
-> Biden’s tax plan: good for China, bad for middle class Americans.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 8, 2021](https://twitter.com/MarshaBlackburn/status/1391063900100169729?ref_src=twsrc%5Etfw)
-
-
-
-前白宫顾问皮特·纳瓦罗： 2020年3月我在玛丽亚 [@MariaBartiromo](https://twitter.com/MariaBartiromo) 的节目上说病毒是来自 [#武汉](https://twitter.com/hashtag/%E6%AD%A6%E6%B1%89?src=hashtag_click) 实验室的。如果是真的，福奇就是病毒他爸。这片出色的文章为以上两件事提供了可信度。 [@cnn](https://twitter.com/cnn)[@nyt](https://twitter.com/nyt) 你们该起来报道了。白宫新闻秘书珍·莎琪（Psaki ）正在进行掩盖。【转推Medium博客网站，新冠起源——线索追踪，梳理了对新冠起源的核查】
-
-
-
-> In March 2020 on ⁦[@MariaBartiromo](https://twitter.com/MariaBartiromo?ref_src=twsrc%5Etfw)⁩ I said virus from Wuhan Lab. If true, Fauci is father of virus. This BRILLIANT article lends credence to both. [@cnn](https://twitter.com/CNN?ref_src=twsrc%5Etfw) [@nyt](https://twitter.com/NYT?ref_src=twsrc%5Etfw) man up and cover this.
-> 
-> Psaki coverup under way [https://t.co/6D0suKGLqh](https://t.co/6D0suKGLqh)
-> — Peter Navarro (@RealPNavarro) [May 8, 2021](https://twitter.com/RealPNavarro/status/1391033755398180880?ref_src=twsrc%5Etfw)
-
-
-
-章家敦 (中国问题专家)： 希拉里·克林顿[@HillaryClinton](https://twitter.com/HillaryClinton)是正确的：我们必须将制造业从 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 撤回。我们不能任由一个无情的政权摆布。CommunistChina [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click)[#在岸](https://twitter.com/hashtag/%E5%9C%A8%E5%B2%B8?src=hashtag_click)[#近岸](https://twitter.com/hashtag/%E8%BF%91%E5%B2%B8?src=hashtag_click)[#邻近制造](https://twitter.com/hashtag/%E9%82%BB%E8%BF%91%E5%88%B6%E9%80%A0?src=hashtag_click) 【转Chatham House推文： ‘我们不能依赖中国市场。 这不仅对我们的经济不利，对我们的地缘政治战略利益也很糟糕。” “除非您收回生产资料，否则你将永远不会与他们竞争并赢得胜利。” 希拉里·克林顿[@HillaryClinton](https://twitter.com/HillaryClinton)星期二在皇家国际事务研究所[@CH\_Events](https://twitter.com/CH_Events) 的发言】
-
-
-
-> .[@HillaryClinton](https://twitter.com/HillaryClinton?ref_src=twsrc%5Etfw) is correct: We must move manufacturing back from [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw). We cannot leave ourselves at the mercy of a merciless regime. [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#onshoring](https://twitter.com/hashtag/onshoring?src=hash&amp;ref_src=twsrc%5Etfw) [#nearshoring](https://twitter.com/hashtag/nearshoring?src=hash&amp;ref_src=twsrc%5Etfw) [#ProximityManufacturing](https://twitter.com/hashtag/ProximityManufacturing?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/jP9qOX3uOG](https://t.co/jP9qOX3uOG)
-> — Gordon G. Chang (@GordonGChang) [May 7, 2021](https://twitter.com/GordonGChang/status/1390755562187640832?ref_src=twsrc%5Etfw)
-
-
-
-
+编辑 发稿 云起时
 
 0
