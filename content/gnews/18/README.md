@@ -1,69 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共在非洲的军事基地恐威胁美国安全
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1192806/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（十七）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1193205/)
 
-新闻来源：《布赖特巴特》BREITBART | 作者：约翰•海沃德（JOHN HAYWARD）| 发布时间：2021年5月7日
-翻译/简评：随波逐流|校对/审核：万人往|Page：小雨
+作者：纽约香草山信息部 6zero4
 
-[!\[\]()!\[\](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/fcb19e17-767f-4f46-acda-5c17e1ced4b3.jpg?asset_id=258e6ed2-db3a-4f0f-bac8-b72fbda43760&amp;img_etag=%221633375f2a8f09f072fda9cfa63371eb%22&amp;size=2560)](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/fcb19e17-767f-4f46-acda-5c17e1ced4b3.jpg?asset_id=258e6ed2-db3a-4f0f-bac8-b72fbda43760&amp;img_etag=%221633375f2a8f09f072fda9cfa63371eb%22&amp;size=1024)
-
-**简评：**
-
-近年来，中共借推广“一带一路”战略的机会，陆续在各大洲参与的国家中投资建设了一些具有重要战略意义的港口，拿下了许多重要海上航线的咽喉要道，诸如巴基斯坦的瓜达尔港、澳大利亚的达尔文港和非洲的吉布提港。这些港口连在一起，可打通多条连接各大洲的海上通道，在经济上，有助于海上贸易运输，节省运输成本。但很明显，中共更看上的是这些港口的军事意义。在这些港口建立军事基地，部署军队、武器和各种补给设施，以便帮助中共实现称霸世界的野心，才是中共的真正目的。此举现已引起了美国的关注和警惕，美国担心中共将在非洲大西洋沿岸修建更多这样的军事基地，因为这里离美国更近些，直接威胁到美国的领土和国家安全。
-
-中共最近几年在东海和台湾海峡进行了几次大规模的军演，频频向世界秀肌肉，以显示自己是一个军事强国，呈现给世界的是一个挑衅的姿态和不服来战的态度，看似下定决心要与美国一较高下。在亚洲，中共不顾国际海洋公约的规定和美国及全世界的谴责，对南中国海周边岛屿和台湾蛮横无理地宣示主权，派出军舰到这些岛屿附近进行骚扰，并发布了新的海事法，赋予海岸警卫队可对过往船只开火的权力，挑战全世界的底线。中共的恶劣行径已严重侵犯了台湾和东南亚周边邻国的领土主权并威胁到这些国家的安全，给这一地区正常的海上贸易运输也埋下了安全隐患。
-
-现在，中共又要在非洲、美洲及欧洲建立更多的军事基地，把军事力量推进到更远的地方。在非洲的吉布提海军基地以及美洲的委内瑞拉，中共都暗中部署了解放军、核潜艇、航空母舰和各种武器装备。这些位置已经非常接近美国本土和欧洲大陆，等于到了别人的家门口驻军，这已经严重威胁到大西洋沿岸欧洲国家和美国的国家安全，中共已完全走上了二战期间，德国和日本所走过的军国主义不归路。
-
-纵观历史，靠穷兵黩武征服世界的国家都给人类带来了巨大的灾难，像纳粹德国对犹太人的大屠杀，日本当年在远东地区的军事入侵，造成了中国和东南亚国家的无数平民伤亡。他们的野蛮行径最后都遭遇了多国联军的集体讨伐，最终导致他们被彻底消灭。中共今天的嚣张做法和它向世界发动的“病毒战”给世界带来的伤害已远远超越了当年的纳粹德国和日本。以古为鉴，可知兴替，中共一定逃不过被灭的命运，全球灭共联军定会以数倍于当年二战的力量，对中共发起强烈反击！
-
-**原文翻译：**
-
-## 美军司令警告要在非洲建立潜艇和航空母舰基地的中共国
-
-[!\[\]()!\[\](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/ce9ddaf4-6366-4009-b46e-75b426e48d63.jpg?asset_id=bcd612b4-66d2-42e5-8497-0f64897ddcf3&amp;img_etag=%227f4018388f66bac9681be4b9e200f39f%22&amp;size=2560)](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/ce9ddaf4-6366-4009-b46e-75b426e48d63.jpg?asset_id=bcd612b4-66d2-42e5-8497-0f64897ddcf3&amp;img_etag=%227f4018388f66bac9681be4b9e200f39f%22&amp;size=1024)AFP/Getty Images 法新社/盖蒂图片社
-
-**美军非洲司令部（AFRICOM）总司令史蒂芬•汤森德（Stephen Townsend）上将周四（5月6日）警告说，中共国正在积极寻求在非洲建立一个大西洋海军基地，为潜艇和航空母舰提供服务。**
-
-汤森德告诉美联社（AP）：“他们正在寻找一个可以重新装备和修理军舰的地方。这在冲突中可以发挥军事作用。他们在吉布提建立的基地还有很长的路要走。现在，他们将目光投向了大西洋沿岸，并希望在那里建立一个这样的基地。”
-
-他说：“在选定的某些非洲国家，中国人在策略上胜过了美国。港口项目、经济努力、基础设施以及他们的协议和合同将为未来赢得更多的机会。他们正在两面下注，并在非洲下大赌注。”
-
-汤森德指出，中共国在吉布提的基地于2016年开始建设，并于2017年8月正式开放，那一天刚好是中国人民解放军（PLA）诞辰90周年。
-
-[![](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/fe4915ba-2747-49b2-996a-5ea0c77bb989?asset_id=52c22116-8971-4e72-844c-7f86b8ce959d&amp;img_etag=%2206e4c16223296841ac3f96adb06363e3%22&amp;size=2560)](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/fe4915ba-2747-49b2-996a-5ea0c77bb989?asset_id=52c22116-8971-4e72-844c-7f86b8ce959d&amp;img_etag=%2206e4c16223296841ac3f96adb06363e3%22&amp;size=1024)2017年8月1日，中共军队举行进驻吉布提基地营区的仪式。AFP法新社图
-
-该基地位于印度洋，是中国人民解放军的第一个海外海军基地。中共一直在稳步扩大这个基地，包括设防和扩建码头，以容纳更大的船只，例如航空母舰和核潜艇。即使在冠状病毒大流行期间，中国人民解放军仍继续在其吉布提港口进行赶工扩建工作。
-
-汤森德说，吉布提基地“肯定有武器和弹药”，包括“装甲战车”，而且不久将装备军用直升机。他指出，中共国正在推动在坦桑尼亚开设另一个基地，但他最担心解放军在非洲的大西洋沿岸获取更多的阵地，并指出，这样的基地将比中共国的任何设施都更接近美国的领土。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/37b78e0f-5296-4b9a-8490-f65c1821cc28.jpg?asset_id=6f16f1c8-85e0-4696-981d-359c013f1868&amp;img_etag=%220e18c139885afc89443be357eef5115f%22&amp;size=2560)](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/37b78e0f-5296-4b9a-8490-f65c1821cc28.jpg?asset_id=6f16f1c8-85e0-4696-981d-359c013f1868&amp;img_etag=%220e18c139885afc89443be357eef5115f%22&amp;size=1024)训练中的坦桑尼亚国防部队
-
-中共在坦桑尼亚拥有一个耗资3000万美元的军事训练中心，表面上专注于训练坦桑尼亚人民国防军（TPDF），并且已向坦桑尼亚人民国防军提供了大量的硬件——一直到战斗机——但北京当局急于将与坦桑尼亚军方的紧密关系提升到新的水平。
-
-在它的“一带一路”倡议的主导下，中共国希望在巴加莫约（Bagamoyo）建一个非洲最大的深水港，巴加莫约是坦桑尼亚最大城市以北的一个小镇，也是达累斯萨拉姆（Dar es Salaam）最大但不堪重负的港口。经过六年的准备和计划，坦桑尼亚于2019年6月暂停了该项目，这显然是由于人们越来越怀疑，大型的“一带一路”项目对中共国很可能比对其发展中国家的合作伙伴更有益。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-[!\[\]()!\[\](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/0887dd32-529d-4565-aa78-aebd095aa840.jpg?asset_id=e6f21f60-96d5-4852-b100-aef21af5bf90&amp;img_etag=%22485746edb5fecf91a440d2c01b798f05%22&amp;size=2560)](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/0887dd32-529d-4565-aa78-aebd095aa840.jpg?asset_id=e6f21f60-96d5-4852-b100-aef21af5bf90&amp;img_etag=%22485746edb5fecf91a440d2c01b798f05%22&amp;size=1024)巴加莫约港口蓝图
+5月6日塞林博士的2连推：
 
-中共国试图在2021年1月启动巴加莫约港项目，声称坦桑尼亚人对此想法越来越热情。坦桑尼亚官员在4月表示，重新谈判正在进行中，如果中共国同意一些关键要求，这个耗资数十亿美元的项目可能会继续进行。
-
-美联社不祥地指出：“美国在全球各地的军事指挥官，包括可能失去部队和资源以支持太平洋地区发展的几名军事指挥官，都警告说，中共国日益增长的自信心不仅仅着眼于亚洲。而且他们辩称，北京当局正在积极主张对非洲、南美和中东国家施加经济影响力，并正在那里寻求基地和立足点。”
-
-[🔗原文链接](https://www.breitbart.com/national-security/2021/05/07/u-s-commander-warns-china-wants-sub-carrier-base-africa/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+第1推，转发“Zion, a Deplorable老百姓”战友响应塞林博士第二个声明的推文：1）姜世勃的一项研究实现了将福林蛋白酶底物类RIPP肽插入表达载体中；2）姜世勃及其许多“老朋友”的出版物显示了在MERS-CoV病毒中蝙蝠向人类转播的关键，并贴出了姜世勃、杜兰英、石正丽、李放、Baric和Perlman等中美病毒科学家联合发表论文的截图。重要：COVID-19侦探“Zion, a Deplorable老百姓”、“德意志之鹰”和“火来2号”专业地揭示了PLA科学家姜世勃在2013年就插入了福林酶切位点，这恰好证明了其实验室起源，并利用PLA的国际病毒研究资源的网络推动CCP的生物武器战计划。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+> Important – [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detectives [@ZionaEmanuel](https://twitter.com/ZionaEmanuel?ref_src=twsrc%5Etfw) [@dezying](https://twitter.com/dezying?ref_src=twsrc%5Etfw) [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) expertly show how PLA scientist Shibo Jiang, who inserted furin cleavage sites already in 2013 proving its laboratory origin, leverages the PLA international network that advances the CCP biowarfare program. [https://t.co/5EOJ1ojgXv](https://t.co/5EOJ1ojgXv)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 6, 2021](https://twitter.com/LawrenceSellin/status/1390147246612693001?ref_src=twsrc%5Etfw)
 
 
+
+第2推，是一中文推，所有COVID-19侦探：马利克 . 佩里斯(Malik Perlis)是个坏人，请搜索他与AMMS、长春军事兽医研究所和PLA的关系，并贴上马利克的照片。
+
+
+
+> 所有COVID-19侦探：马利克·佩里斯（Malik Peiris）是个坏人。 请搜索他与北京军事医学科学院，长春军事兽医研究所和人民解放军的联系。[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaPandemic](https://twitter.com/hashtag/CoronaPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/WlhvrIHPiD](https://t.co/WlhvrIHPiD)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 6, 2021](https://twitter.com/LawrenceSellin/status/1390184163572174852?ref_src=twsrc%5Etfw)
+
+
+
+5月7日塞林博士的推文，转贴一位推友“Hideki Kakeya, Dr. Eng.” 转推另一位推友“Alina Chan”的推文：如果你可以因此原谅中共国的病毒学家，那么我们也必须原谅阿道夫 . 艾希曼的暴行，因为他在纳粹统治下没有选择，而在全球化的今天，你可以选择离开中共国，这样来说，中共国的病毒学家比艾希曼罪孽更深。这是我们向前推进COVID-19起源真相揭示过程中定性的一个重要区别，“Hideki Kakeya, Dr. Eng.”伦理道德标准清晰，但“Alina Chan”因为年轻和阅历不够可以得到谅解，罪恶的中共国和美国科学家都必将为此负责。
+
+
+
+> An important distinction going forward as we begin to address the true origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) – Moral clarity by [@hkakeya](https://twitter.com/hkakeya?ref_src=twsrc%5Etfw) 
+> But [@Ayjchan](https://twitter.com/Ayjchan?ref_src=twsrc%5Etfw) can be forgiven for her youth and inexperience. Both culpable Chinese Communist Party scientists and U.S. scientists must be held accountable. [pic.twitter.com/Jo8LNGDpT5](https://t.co/Jo8LNGDpT5)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 7, 2021](https://twitter.com/LawrenceSellin/status/1390541434390994945?ref_src=twsrc%5Etfw)
+
+
+
+5月8日塞林博士2连推：
+
+第1推，转贴一位叫“风云九霄-文萧” 战友的中文推：杜兰英感觉有问题啊，参与度很深，而且拿了很多美国NIH的经费，难道福奇能不知道？她老公好像是病毒专家周育森，去年突然去世，并附上杜的研究合作人脉网络图片。COVID-19侦探“风云九霄-文萧”的出色工作，呈现出了COVID-19病毒研究的部分网络。
+
+
+
+> Great work by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@Dr\_Water2020](https://twitter.com/Dr_Water2020?ref_src=twsrc%5Etfw)
+> showing the COVID-19 network.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaPandemic](https://twitter.com/hashtag/CoronaPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/nNCIDg78rZ](https://t.co/nNCIDg78rZ)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 8, 2021](https://twitter.com/LawrenceSellin/status/1391050716844802057?ref_src=twsrc%5Etfw)
+
+
+
+第2推，是一中英混合推，COVID-19侦探“Sweet Journey”呈现了在WIV工作的CCP科学家王林发曾与PLA科学家合作，并贴上王林发与在长春军事兽医研究所工作的PLA科学家涂长春等合作的相关信息的图片。
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@SweetJourney1](https://twitter.com/SweetJourney1?ref_src=twsrc%5Etfw) shows that Chinese Communist Party scientist Linfa Wang has worked with the People's Liberation Army
+> COVID19 侦探@ SweetJourney1显示中国共产党科学家王琳法曾与中国人民解放军合作[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/HKIbF1K8xS](https://t.co/HKIbF1K8xS)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 9, 2021](https://twitter.com/LawrenceSellin/status/1391236844214423554?ref_src=twsrc%5Etfw)
+
+
+
+COVID-19病毒研究网络涉及全球病毒研究行业，尤其是中美两国该行业的几乎所有资源，包括两国军方、政府、生物和病毒科研机构及其实验室、卫生防疫机构、大学、科学家和媒体，其深度和广度都史无前例、空前绝后。
+
+现在，COVID-19疫情的背景和轮廓基本上已经比较清晰地呈现在世界的面前了：这是一场CCP苦心策划、精心准备的以COVID-19病毒为武器的超限生物战，始作俑者，总魔头就是CCP，野心启发于二战日本关东军在东北的731和100部队，总司令是PLA，总参是AMMS，长春军事兽医研究所及其关联的科研机构是生物武器冠状病毒“产学研”一体化的全产业链，WIV只是CCP发起战争的一支先头精锐部队。
+
+超限生物武器COVID-19病毒在实验室得以人工制造的理论基础，来自被PLA广泛而深度渗透的美国病毒研究的成果。由CCP的冠状病毒技术总监、世界毒王马利克主导，对冠状病毒基因系列人工改造和优化，将其生物武器化。国际分工合作，国内实验制造。
+
+COVID-19病毒得以实现的几个关键转折点是：王长军发现舟山蝙蝠冠状病毒ZC45和ZXC21是其基础骨架，姜世勃将福临酶切位点插入病毒骨架基因系列的技术是制造该病毒的技术突破和保障，法国援建的武汉P4实验室是CCP在国内广建病毒实验室的技术基础，成为CCP-PLA研究和制造COVID-19病毒的军工厂，美国提供的资金成为CCP生物战财力的重要补充。关键手段是BGY，渗透和绑架天敌美国，建立病毒研究国际网络，姜世勃、周育森与杜兰英夫妇等成为联结这个网络上中美科学家的连接节点，夏咸柱等8位来自AMMS的两院院士是COVID-19病毒“产学研”甚至投放一体化技术执行的总工程师。
+
+将CCP病毒科学家与纳粹德国在犹太人大屠杀中的“最终方案”的决策者，人称“死刑执行者”的阿道夫 . 艾希曼相提并论是不恰当的，艾希曼当时有别无选择的因素，而当今全球化下的CCP科学家有选择离开中共国的机会，所以对罪恶更加深重的CCP科学家的追责和清算也更加坚决和彻底！
+
+校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

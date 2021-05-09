@@ -1,91 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（十七）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1193205/)
+## 【币圈】-数字货币动态-2021.05.09
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1193713/)
 
-作者：纽约香草山信息部 6zero4
+*喜马拉雅华盛顿DC 编辑：aQ*
+![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image5.jpg)
+### 币圈的一天，从“感恩母亲”开始。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+## **每日一问**
 
+*币圈频繁的爆拉爆跌，如何从操作层面规避风险？*
 
+## **喜马拉雅Coin要闻**
 
-5月6日塞林博士的2连推：
-
-第1推，转发“Zion, a Deplorable老百姓”战友响应塞林博士第二个声明的推文：1）姜世勃的一项研究实现了将福林蛋白酶底物类RIPP肽插入表达载体中；2）姜世勃及其许多“老朋友”的出版物显示了在MERS-CoV病毒中蝙蝠向人类转播的关键，并贴出了姜世勃、杜兰英、石正丽、李放、Baric和Perlman等中美病毒科学家联合发表论文的截图。重要：COVID-19侦探“Zion, a Deplorable老百姓”、“德意志之鹰”和“火来2号”专业地揭示了PLA科学家姜世勃在2013年就插入了福林酶切位点，这恰好证明了其实验室起源，并利用PLA的国际病毒研究资源的网络推动CCP的生物武器战计划。
-
-
-
-> Important – [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detectives [@ZionaEmanuel](https://twitter.com/ZionaEmanuel?ref_src=twsrc%5Etfw) [@dezying](https://twitter.com/dezying?ref_src=twsrc%5Etfw) [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) expertly show how PLA scientist Shibo Jiang, who inserted furin cleavage sites already in 2013 proving its laboratory origin, leverages the PLA international network that advances the CCP biowarfare program. [https://t.co/5EOJ1ojgXv](https://t.co/5EOJ1ojgXv)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 6, 2021](https://twitter.com/LawrenceSellin/status/1390147246612693001?ref_src=twsrc%5Etfw)
+- 为保证战友都完成认证，KYC可能延期至6月底。
+- 投资G系列的借款截止日延至7月4日。
 
 
+## **新闻动态**
 
-第2推，是一中文推，所有COVID-19侦探：马利克 . 佩里斯(Malik Perlis)是个坏人，请搜索他与AMMS、长春军事兽医研究所和PLA的关系，并贴上马利克的照片。
-
-
-
-> 所有COVID-19侦探：马利克·佩里斯（Malik Peiris）是个坏人。 请搜索他与北京军事医学科学院，长春军事兽医研究所和人民解放军的联系。[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaPandemic](https://twitter.com/hashtag/CoronaPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/WlhvrIHPiD](https://t.co/WlhvrIHPiD)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 6, 2021](https://twitter.com/LawrenceSellin/status/1390184163572174852?ref_src=twsrc%5Etfw)
-
-
-
-5月7日塞林博士的推文，转贴一位推友“Hideki Kakeya, Dr. Eng.” 转推另一位推友“Alina Chan”的推文：如果你可以因此原谅中共国的病毒学家，那么我们也必须原谅阿道夫 . 艾希曼的暴行，因为他在纳粹统治下没有选择，而在全球化的今天，你可以选择离开中共国，这样来说，中共国的病毒学家比艾希曼罪孽更深。这是我们向前推进COVID-19起源真相揭示过程中定性的一个重要区别，“Hideki Kakeya, Dr. Eng.”伦理道德标准清晰，但“Alina Chan”因为年轻和阅历不够可以得到谅解，罪恶的中共国和美国科学家都必将为此负责。
-
-
-
-> An important distinction going forward as we begin to address the true origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) – Moral clarity by [@hkakeya](https://twitter.com/hkakeya?ref_src=twsrc%5Etfw) 
-> But [@Ayjchan](https://twitter.com/Ayjchan?ref_src=twsrc%5Etfw) can be forgiven for her youth and inexperience. Both culpable Chinese Communist Party scientists and U.S. scientists must be held accountable. [pic.twitter.com/Jo8LNGDpT5](https://t.co/Jo8LNGDpT5)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 7, 2021](https://twitter.com/LawrenceSellin/status/1390541434390994945?ref_src=twsrc%5Etfw)
-
-
-
-5月8日塞林博士2连推：
-
-第1推，转贴一位叫“风云九霄-文萧” 战友的中文推：杜兰英感觉有问题啊，参与度很深，而且拿了很多美国NIH的经费，难道福奇能不知道？她老公好像是病毒专家周育森，去年突然去世，并附上杜的研究合作人脉网络图片。COVID-19侦探“风云九霄-文萧”的出色工作，呈现出了COVID-19病毒研究的部分网络。
+1. Asset Dash数据显示，以太坊价格持续创新高，市值排名升至全球资产第15位，目前约为4440.22亿美元，已超越强生。
+2. Asset Dash数据显示，目前狗狗币市值达到913.12亿美元，与知名公司股票市值相比，排名升至第135位，超越Uber和Airbnb。
+3. 谷歌趋势数据显示，关键字“以太坊”从5月3日至8日在全球范围内搜索热度突破了2018年年初水平，创历史新高。搜索趋势热度达到100。
+4. 波卡生态跨链DEX协议Zenlink与SakeSwap以及Bondly达成战略合作，以进行ZenlinkNFT在BSC上的创世发行，创世发行中的另一部分在Bondly上完成，届时用户将能够通过SakeSwap以及Bondly平台完成NFT的申领。
+5. 欧科云链OKLink数据显示，截至美东时间5月8日，灰度投资已发行的13支单一资产信托基金总价值为510.49亿美元。同期灰度增持1.67万枚Mana，766枚Lpt，195枚FIL以及515枚Link。GBTC和ETHE负溢价率收窄至-12.62%和-1.57%。
+6. Cryptobriefing报道，非营利组织美国癌症协会（ACS）正在接受狗狗币（Dogecoin）捐赠。ACS的目标是通过其加密癌症基金筹集100万美元。此前ACS已接受BTC、BCH、ETH等15种加密货币的捐赠。
+7. News bitcoin报道，韩国国家警察署最近发布禁令，将禁止特定官员购买更多的加密货币。对未披露加密货币持有情况的国家警察署官员，将进行处罚。据《朝鲜日报》报道，韩国共有200多家加密货币交易所。
+8. 由Blockstream开发的闪电网络客户端c-lightning已在比特币主网上开通了首个「双重资金」闪电网络通道（Dual-Funded Lightning Channel）。据Blockstream介绍，当一个闪电节点打开一个通道时，只有启动该通道的节点可以添加资金，之后可能会产生通道资金不平衡的问题，而双重资金通道是指在打开闪电通道时，两个节点都可以为通道提供资金。双重资金通道可以降低向闪电网络部署资金的成本。
+9. Tokenview数据，Tether四月USDT新印钞109亿枚，新销毁1.71万枚。其中以太坊上印钞数量约35亿，波场链上印钞约74亿，新增印钞共计流入8家交易所，共计27.2亿，按流入量排名分别为Bitfinex-19.33亿枚、Binance-5.02亿枚、Nexo-1.48亿枚。当前USDT总市值已超过556亿美元。
+10. Yearn.finance发推表示，总锁仓量（TVL）突破40亿美元。earn Finance的总锁仓量从10亿美元到20亿美元，花了226天。但从20亿美元到40亿美元只花了32天。
+11. 欧科云链OKLink数据显示，截至昨日17时，以太坊上的BTC锚定币流通量为22.3万枚。其中WBTC的流通量为170166枚，占比76.25%，市值达100.5亿美元。
+12. Newsbitcoin报道，本周五，币安登上了委内瑞拉Twitter的热门话题，相关推文数超过20万条。据悉，币安自2017年推出以来，一直允许委内瑞拉人在其平台上进行交易，没有任何限制。
+13. Cryptonews5月8日消息，日本央行（BoJ）近日发布报告指出，DeFi潜在的优势包括：1.使金融领域竞争加剧；2.创建新的金融服务；3.改善金融产品和服务的可及性。此外，报告还指出一些潜在的风险：1.缺乏监管，在杠杆协议的情况下可能会出现问题；2.智能合约有出现故障的风险；3.因缺少集中的审计机构，保护用户存在复杂性。
+14. Cryptonews报道，日本东京市议员伊藤悠(Yuu Ito)认为拥抱加密资产可以帮助东京与伦敦和香港相提并论，并提议在“创建一个特区”将东京转变为加密金融中心的计划，让人们可以在免税的环境中使用比特币。
+15. Decrypt5月8日消息，美国迈阿密市长Francis Suarez在以太坊全球峰会上表示，今天的比特币与2014年Uber的地位类似。许多政府当时无法监管Uber，同样比特币已经超出了监管的范围。
+16. 5月7日，针对美SEC主席Gary Gensler周四在其首次公开听证会上发表的讲话，加密货币交易所Coinbase首席法律官Paul Grewal在推特上表示，Coinbase欢迎诸如此类的关于如何正确进行加密监管的对话。
+17. Crypto Quant首席执行官Ki Young Ju发推称，似乎在推高山寨币价格之前，巨鲸们会将其代币从中心化交易所转移到其他钱包。图片是AAVE、SUSHI、LINK、UNI、BAT和SNX代币所有交易所的平均流出量。
+18. Crypto Quant首席执行官Ki Young Ju表示，一旦美国SEC批准比特币ETF，韩国等美国追随者将批准比特币ETF，将引发全球BTC购买狂潮，更多的全球金融服务将推出比特币基金。
 
 
-
-> Great work by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@Dr\_Water2020](https://twitter.com/Dr_Water2020?ref_src=twsrc%5Etfw)
-> showing the COVID-19 network.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaPandemic](https://twitter.com/hashtag/CoronaPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/nNCIDg78rZ](https://t.co/nNCIDg78rZ)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 8, 2021](https://twitter.com/LawrenceSellin/status/1391050716844802057?ref_src=twsrc%5Etfw)
+*编辑：aQ*
+*发布：文顾*
 
 
-
-第2推，是一中英混合推，COVID-19侦探“Sweet Journey”呈现了在WIV工作的CCP科学家王林发曾与PLA科学家合作，并贴上王林发与在长春军事兽医研究所工作的PLA科学家涂长春等合作的相关信息的图片。
-
-
-
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@SweetJourney1](https://twitter.com/SweetJourney1?ref_src=twsrc%5Etfw) shows that Chinese Communist Party scientist Linfa Wang has worked with the People's Liberation Army
-> COVID19 侦探@ SweetJourney1显示中国共产党科学家王琳法曾与中国人民解放军合作[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/HKIbF1K8xS](https://t.co/HKIbF1K8xS)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 9, 2021](https://twitter.com/LawrenceSellin/status/1391236844214423554?ref_src=twsrc%5Etfw)
-
-
-
-COVID-19病毒研究网络涉及全球病毒研究行业，尤其是中美两国该行业的几乎所有资源，包括两国军方、政府、生物和病毒科研机构及其实验室、卫生防疫机构、大学、科学家和媒体，其深度和广度都史无前例、空前绝后。
-
-现在，COVID-19疫情的背景和轮廓基本上已经比较清晰地呈现在世界的面前了：这是一场CCP苦心策划、精心准备的以COVID-19病毒为武器的超限生物战，始作俑者，总魔头就是CCP，野心启发于二战日本关东军在东北的731和100部队，总司令是PLA，总参是AMMS，长春军事兽医研究所及其关联的科研机构是生物武器冠状病毒“产学研”一体化的全产业链，WIV只是CCP发起战争的一支先头精锐部队。
-
-超限生物武器COVID-19病毒在实验室得以人工制造的理论基础，来自被PLA广泛而深度渗透的美国病毒研究的成果。由CCP的冠状病毒技术总监、世界毒王马利克主导，对冠状病毒基因系列人工改造和优化，将其生物武器化。国际分工合作，国内实验制造。
-
-COVID-19病毒得以实现的几个关键转折点是：王长军发现舟山蝙蝠冠状病毒ZC45和ZXC21是其基础骨架，姜世勃将福临酶切位点插入病毒骨架基因系列的技术是制造该病毒的技术突破和保障，法国援建的武汉P4实验室是CCP在国内广建病毒实验室的技术基础，成为CCP-PLA研究和制造COVID-19病毒的军工厂，美国提供的资金成为CCP生物战财力的重要补充。关键手段是BGY，渗透和绑架天敌美国，建立病毒研究国际网络，姜世勃、周育森与杜兰英夫妇等成为联结这个网络上中美科学家的连接节点，夏咸柱等8位来自AMMS的两院院士是COVID-19病毒“产学研”甚至投放一体化技术执行的总工程师。
-
-将CCP病毒科学家与纳粹德国在犹太人大屠杀中的“最终方案”的决策者，人称“死刑执行者”的阿道夫 . 艾希曼相提并论是不恰当的，艾希曼当时有别无选择的因素，而当今全球化下的CCP科学家有选择离开中共国的机会，所以对罪恶更加深重的CCP科学家的追责和清算也更加坚决和彻底！
-
-校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+ 
 0
