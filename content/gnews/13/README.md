@@ -1,35 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 阿富汗首都一学校爆炸，塔利班贼喊捉贼
-` HML vancouver sailing` [轉載自GNews](https://gnews.org/zh-hans/1195214/)
+## 中共国电池公司 新的亿万富翁孵化器
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1196169/)
 
-作者：温和华扬帆农场  Meilen美伦
+整理撰稿：蓝精灵
 
-北京时间2021年05月09日新唐人电台报道，阿富汗首都喀布尔的一所中学门口，周六发生了多起汽车爆炸事件，造成至少55人死亡，155人受伤。
+对于CALT这家仅仅拥有十年历史的公司来说，公司高管九个人的财富总值达720亿美元，
 
-据当时的目击者表示，爆炸发生时正好是放学时间，受害者大多是准备回家的女学生。阿富汗的官员后续也确认了这一信息，表示爆炸发生地是一所联合高中，但因是女生上课时间，死者多数是女学生。
+随着中国越来越重视发展清洁能源产业，CATL得到了政府的帮助。从2015年开始，中国政府保留了推荐电池供应商的清单，其中包括50多家国内公司，而LG和Samsung等外国重量级公司则被排除在外。将推荐电池供应商用于其电动汽车的汽车制造商有资格获得政府补贴，从而为CATL等公司的崛起铺平了道路。CATL在深圳证券交易所首次亮相一年后，该名单于2019年被取消。CATL的代表在一份声明中说，该公司的成功归功于其“战略方向，对研发​​的持续投资，可靠的产品和服务以及整合产业链的能力”。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09183802/46-1-1.jpg)
+CATL计划于2020年初成为特斯拉上海超级工厂的供应商，该公司计划于今年晚些时候在德国开设其第一家海外工厂。随着在欧洲向汽车制造商的电池销售量的增加，中国开始向欧洲出口配备了CATL的电动汽车，这使其在欧洲的业务不断增长。CATL代表说：“从长远来看，CATL的目标将是实现固定和移动能源系统中化石燃料替代的目标，该系统将通过先进的电池和可再生能源产生高效的电力系统。”
 
-爆炸发生在喀布尔西部，是什叶派穆斯林的居住区，经常遭到伊斯兰国激进分子的袭击。虽然阿富汗总统阿什拉夫·加尼谴责塔利班制造了这起爆炸事件，但塔利班发言人对此表示否认，并谴责事故肇事者。
+编者简评：
 
-简评：
+目前尚未有媒体报道这家低调的电池公司的真实背景，有一点可能是中共家族很早就开始布局清洁能源市场，在中共，从天而降的富翁太多，很少看到真实的亿万富翁的奋斗史，而这种早早进行布局的商业机会，和庞大的初期创业补贴，这种权力也是集中在少数人手中。这是新一代的马云马化腾们吗？
 
-虽然塔利班恐怖组织否认并谴责这一罪行，但恐怕是此地无银三百两，贼喊捉贼。试想，一般平民百姓怎会拥有如此巨量的火力来进行有组织的爆炸活动？更何况，此次事故造成死伤如此惨重，且是专门针对弱势群体的学生，这不就是塔利班的惯常行为吗？专挑弱势群体下手，邪恶至极！
+\*以上仅代表作者观点，不代表Gnews平台\*
 
-数年来，阿富汗饱受恐怖主义的威胁，美军一旦撤离，这个国家恐将成为恐怖组织的天堂。再加上塔利班还被最邪恶的轴心国之首CCP支持，这也是阿富汗人民处于暗无天日之中的根源。世界要和平，唯有灭共才能安宁。
+参考链接：
 
-所幸的是，有新中国联邦在联合世界正义力量，全力推动灭共，CCP的末日也不远了。只要CCP一灭，世界上仅剩的几大邪恶独裁政权和恐怖组织就失去了粮草（经济）支持，届时，这些组织也必将土崩瓦解。和平定会回归阿富汗，这些恐怖组织也必定会受到人民的审判。
+[https://www.forbes.com/sites/jenniferwang/2021/05/03/this-chinese-battery-company-has-produced-more-billionaires-than-google-or-facebook/?sh=155ba34b67e7&utm\_source=ForbesMainTwitter&utm\_medium=social&utm\_campaign=socialflowForbesMainTwitter](https://www.forbes.com/sites/jenniferwang/2021/05/03/this-chinese-battery-company-has-produced-more-billionaires-than-google-or-facebook/?sh=155ba34b67e7&amp;utm_source=ForbesMainTwitter&amp;utm_medium=social&amp;utm_campaign=socialflowForbesMainTwitter)
 
-（本文仅代表作者观点）
+图片来源：
 
-参考阅读：
+[https://www.forbes.com](https://www.forbes.com/sites/jenniferwang/2021/05/03/this-chinese-battery-company-has-produced-more-billionaires-than-google-or-facebook/?sh=155ba34b67e7&amp;utm_source=ForbesMainTwitter&amp;utm_medium=social&amp;utm_campaign=socialflowForbesMainTwitter)
 
-[阿富汗首都一所学校爆炸 55死近两百伤](http://cn.ntdtv.com/gb/2021/05/08/a103113923.html)
+校对发布：Penny
 
-编审：温和华扬帆农场 Shuang
 
-校对/发稿：纽约香草山农场 Irene木木
 
 0

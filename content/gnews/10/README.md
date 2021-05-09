@@ -1,33 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国电池公司 新的亿万富翁孵化器
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1196169/)
+## 香港救生艇计划实施
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1195982/)
 
-整理撰稿：蓝精灵
+作者：Tang0426 | 校对：文明明 | 审核：Beicy-数学老师 | Page：我是球大哥
 
-对于CALT这家仅仅拥有十年历史的公司来说，公司高管九个人的财富总值达720亿美元，
+[!\[\]()!\[\](https://spark.adobe.com/page/bRbc898TvndRb/images/d268b9fc-3114-45dd-8ba6-ffe65d10e591.jpg?asset_id=0ec3d352-3b27-4397-ad31-651d6f173c88&amp;img_etag=%22ea69677bd43ca46640bf2439810a81f5%22&amp;size=1024)](https://spark.adobe.com/page/bRbc898TvndRb/images/d268b9fc-3114-45dd-8ba6-ffe65d10e591.jpg?asset_id=0ec3d352-3b27-4397-ad31-651d6f173c88&amp;img_etag=%22ea69677bd43ca46640bf2439810a81f5%22&amp;size=1024)
 
-随着中国越来越重视发展清洁能源产业，CATL得到了政府的帮助。从2015年开始，中国政府保留了推荐电池供应商的清单，其中包括50多家国内公司，而LG和Samsung等外国重量级公司则被排除在外。将推荐电池供应商用于其电动汽车的汽车制造商有资格获得政府补贴，从而为CATL等公司的崛起铺平了道路。CATL在深圳证券交易所首次亮相一年后，该名单于2019年被取消。CATL的代表在一份声明中说，该公司的成功归功于其“战略方向，对研发​​的持续投资，可靠的产品和服务以及整合产业链的能力”。
+[🔗视频链接](https://www.gtv.org/video/id=608d8a0a6c00a14130e4859c)
 
-CATL计划于2020年初成为特斯拉上海超级工厂的供应商，该公司计划于今年晚些时候在德国开设其第一家海外工厂。随着在欧洲向汽车制造商的电池销售量的增加，中国开始向欧洲出口配备了CATL的电动汽车，这使其在欧洲的业务不断增长。CATL代表说：“从长远来看，CATL的目标将是实现固定和移动能源系统中化石燃料替代的目标，该系统将通过先进的电池和可再生能源产生高效的电力系统。”
+从视频可以得知，欲逃离香港的手足通过简便的手续便可以获取赴英国定居若干年的签证，并在签证期满后，可申请长期签证定居, 定居一年后可申请加入英国籍。
 
-编者简评：
+我对此挺羡慕的。几十年来，墙内的先不说，单说海外的华裔同胞，群体性遭受过多次凌辱、迫害。自称代表人民利益的中共执政者，从来都是不管不顾，更不会伸手援助。
 
-目前尚未有媒体报道这家低调的电池公司的真实背景，有一点可能是中共家族很早就开始布局清洁能源市场，在中共，从天而降的富翁太多，很少看到真实的亿万富翁的奋斗史，而这种早早进行布局的商业机会，和庞大的初期创业补贴，这种权力也是集中在少数人手中。这是新一代的马云马化腾们吗？
+但是今天，当中共政权悍然撕毁联合国公认的“中英联合申明”，“50年不变”的承诺期未过一半，便出于独裁者的偏执、狭隘和傲慢，以“国安法”的名义，破坏、打压香港的法治和政治结构。
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+香港的手足，呼吸过自由的空气，经受过法治公平、正义的熏陶，看似不关心政治的群体，以世人惊叹的身姿站立出来。
 
-参考链接：
+一年来不屈不饶的抗争，虽被武装到牙齿的军警围堵、抓捕甚至奸污、杀害，但是，依然有来自各行各业的市民、学生达百万之众走上大街。他们以文明的举止，恪守非暴力纪律，流血流泪，但绝不跪下的骨气赢得了世界的敬重，为中华民族树立伟大的丰碑！
 
-[https://www.forbes.com/sites/jenniferwang/2021/05/03/this-chinese-battery-company-has-produced-more-billionaires-than-google-or-facebook/?sh=155ba34b67e7&utm\_source=ForbesMainTwitter&utm\_medium=social&utm\_campaign=socialflowForbesMainTwitter](https://www.forbes.com/sites/jenniferwang/2021/05/03/this-chinese-battery-company-has-produced-more-billionaires-than-google-or-facebook/?sh=155ba34b67e7&amp;utm_source=ForbesMainTwitter&amp;utm_medium=social&amp;utm_campaign=socialflowForbesMainTwitter)
+但现在，香港已沦陷在白色恐怖中，数以万计的抗争者被囚禁、被残害。他们理应得到救助。
 
-图片来源：
+英国政府是有道义和责任担当的，此次推出BNO签证，有一个很暖心的名字“香港救生艇”，将使几百万受困中的香港手足脱离险境。。
 
-[https://www.forbes.com](https://www.forbes.com/sites/jenniferwang/2021/05/03/this-chinese-battery-company-has-produced-more-billionaires-than-google-or-facebook/?sh=155ba34b67e7&amp;utm_source=ForbesMainTwitter&amp;utm_medium=social&amp;utm_campaign=socialflowForbesMainTwitter)
+英国政府是富于智慧的。香港拥有众多的各种人才，引进这么一优秀群体，无论哪个国家，都是一笔巨大的财富。
 
-校对发布：Penny
+**文章仅代表个人观点**
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/bRbc898TvndRb/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/bRbc898TvndRb/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
