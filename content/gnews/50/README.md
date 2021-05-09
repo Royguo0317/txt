@@ -1,35 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 警惕中共国在非洲的军事野心
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1191446/)
+## 中国女性的勇气与承担祝全天下的战友们母亲节快乐!
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1191719/)
 
-翻译：康州盘古农场 – 格格巫
+台湾宝岛农场斗阵来拼
 
-校对：康州盘古农场 – Mike Li
+综观台湾有纪载的400年历史,从统治者荷兰，明朝郑成功，经历大清帝国，再将台湾割让给日本，之后日本战败，国民政府光复台湾至今，台湾女性坚忍不拔的精神，一直支撑着，养育着这个历经几此番摧残的台湾土地，我相信，这些感人故事也会一定会一直一直地…流传下去。
 
-编辑：康州盘古农场 – 心照
+郭先生事母至孝，无时无刻为已经在西方极乐世界，他的母亲上香祈福，从郭先生多次直播阐述自己母亲坚强的信念及勇气，拉拔大郭先生的经过，不管多少次，听到郭先生回忆起他的母亲为他们家的种种付出，无时无刻为郭先生担忧的种种状态…，真是使人热泪盈眶。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08230540/%E6%93%B7%E5%8F%9659-4-1.jpg)图片来源:郭先生盖特
+因为在郭先生的引领及爆料下，笔者才深切的认识到，中国苦难的14亿同胞，真正的情况，是无时无刻都正受到中国共产党CCP的摧残、生活在防火墙的洗脑，并非如中共国的大外宣媒体所报导的那么繁荣与兴旺，所有的一切都是谎言堆积出来的经济数据，真正的面貌，其实是无数个苦难的家庭都在受罪，但这每一个家庭，一定都有一位伟大且勇敢的女性母亲默默的支撑着他们。
 
-发布：康州盘古农场 – 彩虹 Rainbow
+我们的天使科学家阎丽梦博士，更是中国伟大女性的代表，她已经是中共国积极培养的顶级科学及生物医学专家，前途一片大好，但是她却在知道病毒真相的第一时间，毫不犹豫地站出来，跟世界说出真相；挺身站出来的她，拯救无数个家庭的背后，阎丽梦博士在接受福克斯节目主持人Tucker Carlson的采访时，谈论到她的母亲，阎丽梦博士强忍住泪水，也要义无反顾地揭露病毒真相，这是需要多么强大的勇气和情操才能办得到的啊…,那一幕，让人鼻酸到无法言语。然而，阎丽梦博士的背后也是一位坚强伟大的母亲支撑着她，她的善良与勇气，一定都是传承于她伟大的母亲。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08225717/%E6%93%B7%E5%8F%9659-1-5.jpg)图片来源:盖特
+中国女性的勇气与承担，在时代的巨轮下，无时无刻都在编织着伟大感人的故事；中国伟大的母亲养育了郭先生，阎丽梦博士，及每一位为爆料革命无私无悔奉献的战友们。五月份的第二个星期日是母亲节，除了感念母亲的养育之恩，也在此祝福千千万万在世界各地的战友们，母亲节快乐!
 
-**据《南华早报》作者：杰文斯·尼亚比亚吉 （Jevans Nyabiage）， 2021年5月5日发布**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08195115/bugg44.png)中共国于2017年8月在吉布提正式启动了首个海外军事基地。 YouTube / CGTN
-美国在非洲的最高指挥官最近表示，中共国在吉布提的新海军码头可以为一艘航空母舰提供支持。
+(本文只是笔者观点，不代表G NEWS立场)
 
-中共国在非洲的维和部署被视为在非洲大陆建立军事力量的潜在借口。
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-中共国已正式在吉布提启动了（军事）支持和物流的基地。周二300多人参加了开幕式。
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
-非洲之角的吉布提人口不足一百万，是非洲大陆上最小的国家之一，但是，它在规模上的不足，却以其战略位置弥补了这一点，可以俯瞰曼德海峡，这是红海和亚丁湾之间的一个咽喉。
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
-正是这个位置使它成为了外国军队的枢纽。 2017年之前，美国、法国、日本和意大利在该国建立了自己的军事基地。然后中共国到达，建立了所谓的后勤设施，向中共国船只提供维和人员和人道主义任务的补给。
+文章审核：zhong
 
-根据相关报道，该设施可容纳1,000至2,000名中共国海军人员。距离约12公里之外的美国莱姆尼尔军事基地，可容纳3400名人员。
-
-原文链接：[https://www.businessinsider.com/the-us-is-wary-of-chinas-military-plans-in-africa-2021-5？ utm\_source=feedburner&utm\_medium=feed&utm\_campaign=Feed%3A+businessinsider+%28Business+Insider%29](https://www.businessinsider.com/the-us-is-wary-of-chinas-military-plans-in-africa-2021-5？%20utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+businessinsider+%28Business+Insider%29)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+文章发布：Little Liu
 
 0
