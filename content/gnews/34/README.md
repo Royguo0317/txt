@@ -1,109 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 雨啼遥歌
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1189971/)
+## 《我们的七芒星》第十五期选手介绍 &#8211; 美东周六5月8日晚8点
+` GMusic` [轉載自GNews](https://gnews.org/zh-hans/1190136/)
 
-作者：Xiaopan| 校对：X-Wing |审核：Beicy-数学老师 |Page：小雨
+我们的七芒星文宣组 May，山上的城，Q大哥整理
 
+由GTV空中唱响团队和纽约香草山农场文艺部倾心打造的新中国联邦首档全民灭共大型知识竞猜节目《我们的七芒星》第十五期节目，也是本季《我们的七芒星》最后一期初赛，将于美东时间5月8日周六晚8点，暨北京时间5月9日周日早8点，在GTV正式火热开播。 届时将有一位”主持人”选手，和来自全球的八位”挑战者”和两位候补“挑战者”参赛。
 
-```
-又有南风吹起
- 你听见柳叶的欢快笑声吗
- 北国的晚春开始发芽
- 仿佛忘却了
- 去年寒冬里悲凉的枯骨
- 
-是滴雨儿借风而起
- 跨域垂直的时空
- 泛黄的大地被染成了灰色
- 你听见滴答的回响吗
- 
-像是戚戚的诉说
- 她曾在无数河流中游荡
- 从清澈见底的小溪
- 到肮脏不堪的大河
- 在涌进的滚滚污水里
- 鱼儿呼喊着逃离
- 直到变成一具浮尸
- 盛上了
- 人类的餐桌
- 
-当她是一滴水
- 当它是一条鱼
- 她是它全部的生命
- 它是她存在的气息
- 当她被染变了颜色
- 便是它逃不了的墓地
- 
-她曾想安逸地飘荡在大海
- 那是每一滴雨的梦想
- 可蔚蓝的天海之间
- 早已是扑杀的猎场
- 泛红的血水
- 流满冰冷的船舱
- 无数垃圾冲刷着海岸线
- 遗弃的碎屑铺满沙滩
- 纷乱如逃亡的牧场
-```
+本期主持人选手是来自美国休斯敦星光农场的文清！
+![]()![](https://gnews.org/wp-content/uploads/2021/05/文清.jpeg)
+“挑战者”选手分别是：文兴，高频，自由之翼，华夏的文丽，克莉亜，就爱七哥，追随者，路易，帕丁顿，Gugu Wen。
 
+**文兴 意大利罗马达芬奇农场**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08163946/%E6%96%87%E5%85%B4.jpg)
+2017年开始持续关注爆料革命。 再随着诸如海航、王健、委内瑞拉、香港等事件以及G系列的成功，更加坚定了对爆料革命的信仰。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/949ca50c-b37f-403e-8057-31fdb7650635.jpg?asset_id=210f3726-0b3e-4a42-8cfc-629e5dfecb95&amp;img_etag=%22841ebbd3d4b418355481dac437695ff3%22&amp;size=2560)](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/949ca50c-b37f-403e-8057-31fdb7650635.jpg?asset_id=210f3726-0b3e-4a42-8cfc-629e5dfecb95&amp;img_etag=%22841ebbd3d4b418355481dac437695ff3%22&amp;size=1024)
+* * *
 
+**高频 新西兰伊甸农场**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08164638/%E9%AB%98%E9%A2%91-2.jpeg)
+带着对黑帮共产党的极度失望以及对于亲身参与的8964悲惨结果的愤懑，技术移民来到新西兰。 2018年9月开始关注郭先生，凭着人性的共鸣，很自然的跟随了爆料革命。
 
-```
-太阳聆听了她的祈祷
- 于是变成了一只隐形的飞鸟
- 在长空里飞翔
- 云间穿梭
+* * *
 
- 于是
- 她闻到了空气的味道
- 没有传说中的清香
- 是浓烈而肮脏
+**自由之翼  新西兰伊甸农场**
+![]()![](https://gnews.org/wp-content/uploads/2021/05/自由之翼-2-3.jpg)
+2019年在香港亲身经历并感受到香港反送中大游行的震撼，于是毅然加入爆料革命，曾多次参加农场组织的反共大游行，并参与农场的GTV直播。 “伊甸滅共行，利他兴联邦”
 
- 于是
- 她看见了高山
- 残缺的断崖
- 砍伐的林木
- 成片的大地满目疮痍
- 机械的声响无处可藏
- 却仍掩不住
- 冲天的争吵与厮杀
- 
-团团浓烟冲天而起
- 飘飘散散
- 遮住了阳光
- 和飞鸟的双眼
- 
-她的心开始抽泣
- 身体开始变冷
- 她不要做无力的蒸汽
- 要化成雨
- 化成更多的雨
- 去冲刷 去洗涤
- 或者
- 去消逝
- 
-仿佛又有风起
- 带着同样的故事
- 和远方的残歌
- 你相信吗
- 要变天了
- 
-她开始颤抖
-```
+* * *
 
+**华夏的文丽 新西兰伊甸农场**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08164400/%E6%96%87%E4%B8%BD-1.jpeg)
+因CCP病毒知道了爆料革命· 并明白中国人不等于中国共产党。 成为新中国联邦人，是一生的幸福。 希望墙内同胞多看GTV Gnews，认清共产党的丑恶。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/beaba45e-1b04-4528-9748-4518e9fa3f61.jpg?asset_id=8d9e6d1c-4a24-4333-9fae-5bee74b7dbca&amp;img_etag=%22730ea1d1527f7db4b62cf2c268e5828e%22&amp;size=2560)](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/beaba45e-1b04-4528-9748-4518e9fa3f61.jpg?asset_id=8d9e6d1c-4a24-4333-9fae-5bee74b7dbca&amp;img_etag=%22730ea1d1527f7db4b62cf2c268e5828e%22&amp;size=1024)
+* * *
 
-*文章仅代表个人观点*
+**克莉亜  银河系**
+![]()![](https://gnews.org/wp-content/uploads/2021/05/keliya.jpeg)
+自2017年接触到爆料革命，明白了爱国不等于爱党，中国共产党不等于中国人民的概念。积极宣传爆料革命和病毒真相。 只有灭共才能还原真相，相信2021年灭共必胜！
 
-编辑：【英国伦敦喜庄园编辑部】
+* * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+**就爱七哥 德国慕尼黑感恩农场**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+曾穿着“民主 民权 六四”体恤衫去上课，老师在课堂上公然无耻谎称8964开枪照片是PS的。爆料革命给善良的中国人带来了希望，生死看淡，不服就干，就爱七哥，爱咋咋地。
+
+* * *
+
+**追随者 意大利罗马达芬奇农场**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08164620/%E8%BF%BD%E9%9A%8F%E8%80%85-1.jpeg)
+自2017年坚定追随7哥和爆料革命，意农初建时战友之一，自加入意农积极参加农场线上线下各种活动。为消灭邪恶的流氓共产党，让中国人民早日走上民主出一份自己的力量。
+
+* * *
+
+**路易 意大利罗马达芬奇农场**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08164604/%E8%B7%AF%E6%98%93-2.jpeg)
+2017年参加爆料革命，每次看到郭先生直播，都更加坚定铲除CCP和建设新中国联邦是我们海外华人应尽的义务和责任。
+
+* * *
+
+**帕丁顿 意大利罗马达芬奇农场**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08164339/%E5%B8%95%E4%B8%81%E9%A1%BF-1.jpeg)
+2017年有人在微信里发了文贵先生戴阿拉伯头巾，写”中国总统郭文贵”的照片，随后在youtube开始看爆料视频，步步紧跟至今，坚定不移！
+
+* * *
+
+**Gugu Wen  意大利罗马达芬奇农场**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08164258/guguwen-1-2.jpeg)
+参赛第12期《我们的七芒星》主持人，发现“勇敢”的上镜是会上瘾的！ 希望能带动更多年轻人站出来，把一把把利剑，射向CCP的心脏。Take Down CCP。
+
 0

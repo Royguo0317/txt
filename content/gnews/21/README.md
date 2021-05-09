@@ -1,93 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 对中共病毒来源的认知可将美政界分为五类
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1190600/)
+## 如何理解外媒称“政治干预”成为中共国经济的“风险逻辑”
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1190926/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+撰稿：喜妈
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08201115/2021-05-09_Task2_Cover.jpg)（网络截图）
+据路透社最新报道，他们观察到中共“正在收紧国家对商业的管理”。中共政府官媒“警告耐克和联合航空这样的跨国公司，对新疆和台湾海峡的局势保持沉默，否则有被赶出市场的风险”。同时，中共的官员们正向自己“成功的私营公司施压，要求它们允许中共党委进行管理，并迫使他们服从北京的绝对命令”。文章指出，中共已经从之前的经济改革和市场开放，进入“国家资本主义的新时代”。
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/05/O-4.jpg)news.yahoo.com
-笔者将美国要员对中共病毒的认知分成以下几类：
+文章以去年中国监管机构突然停止“蚂蚁集团在上海和香港进行的370亿美元IPO”，同时其母公司阿里巴巴的创始人马云被勒令“不能离开中共国”并在此后“遭到28亿美元的反垄断罚款”。这可是中共“有史以来最大的罚款”，据称“马云有可能被迫出售其在蚂蚁金服的股份，可能会出售给一家中共国有公司”。
 
-完全彻底的认知，即中共病毒是超限生物武器，如纳瓦罗、班农、塞林博士、巴西总统等；
+文章指出中共的表现是“朝着实现其最重要的野心迈出的合理步骤”，目的是“将中共国建设成一个以共产党为首，不容任何对其反对的世界强国和富裕国家”。文章进一步指出，虽然这个“国家干预”、“内向型”，“自力更生的经济”在2001年进入世贸组织时就开始了，也即中共所称的“双流通”战略。文章进一步指出，早在2006年，中共官员们力推“本土创新”，而这个政策最终在习近平于2012年成为中共国最高领导人之后，得以真正的实施。
 
-清醒的认知，即中共病毒是实验室人造产物，如罗伯特·雷德菲尔德博士（Robert Redfield）、CNN首席医学记者桑杰·古普塔（Sanjay Gupta）等；
+文章谈到习近平对他所领导的中共金融和经济委员会说：“我们必须在高铁，电力设备，新能源和通信设备等部门的整个生产链中维持和增强我们的优势，并提高工业质量。” “而且我们必须加强国际生产链对中共国的依赖，在人为地切断对外国人的供应的基础上，形成强有力的对策和威慑能力。”
 
-肤浅的认知，即中共病毒有可能是，或不排除是实验室产物，如题目所述，情报总监艾薇儿·海恩斯（Avril Haines）、CIA主任威廉·约瑟夫·伯恩斯（William Joseph Burns）、NIH主任弗朗西斯·科林斯（Francis S. Collins）；
+文章同时阐述，为了达到一个“强大中国的官方表述”，“一个强大的中共国根深蒂固，不可挑战”。因此，“他们不能容忍任何人，包括国际商业代表，批评该党国的侵犯人权行为或将其断然地推向其预设边界”。文章还引用美国前副国家安全顾问马特·波廷格（Matt Pottinger）于3月在蒙大拿州曼斯菲尔德中心的一次讲话：“中共越来越多地要求你选择” ，“你要么遵守我们的规则和规范，要么就不要想进入中共国市场，而这意味着你对新疆的种族灭绝，与台湾的战争威胁，香港的法治和民主破坏等事情闭口不谈。”
 
-糊涂的认知，即中共病毒来自自然，认为实验室等说法者是阴谋论者，或受惠于中共人士；
+文章认为“私营企业，与中共国的国有企业相比较来说，既重要又有更大威胁”。文章还谈到“习近平的经济顾问刘鹤喜欢用‘56789’一词来指代私营部门”。即是指“私营企业产生总税收的50％，国内生产总值（GDP）的60％，所有创新的70％，城市80％的工作以及所有注册公司中发挥90％的重要作用”。可是，文章又指出“中共国官员认为，私营企业积累了太多的权力”。文章以阿里巴巴作为此项下的一个典型代表。”
 
-除此之外，还有类似老贼福奇、及其爪牙达扎克，为魔共遮掩、辩护之流。
+文章同时用任志强和孙大午作为进一步的典型代表，他们是在“习近平严厉地提醒企业家，他们应该‘热爱共产党’”而入狱的商人。同时文章沿用芝加哥的马克波罗智库表示，中共国所实行的“混合所有权”是一项“备受争议的政策”。这个政策让中共国下的“国有企业在私有企业中持有股份，反之亦然”。“从2015年到2018年，国有企业持有私有股份的比例增加了24％”。此外，习近平领导的“旨在扩大中共在商业作用运动的结果”，使“拥有内部党委的私营企业所占比例从2012年的35.6％增长到2018年的48.3％”。同时，“在中共国500强私营企业中，超过90％都有党委存在”。
 
-5月7日的白宫新闻发布会，通过记者与白宫发言人普萨基（Psaki）的问答得知，拜登受老贼福奇等的影响，是拜登政府对中共病毒溯源及追责进展缓慢的原因之一，也了解到一些对中共病毒肤浅认知的要员。
+文章指出中共国的所有一切难以让人理解的政策和操作，存在一种风险，即“商业上的政治干预将加剧中国经济本来已经很低的生产力”。文章得出结论，在中共国，“生产率的提高在很大程度上已经消失了”。文章引用行业人士的话“政策选择和中共国家明显可见的影响力可能是普遍生产率下降的核心”，“政治干预对于中共国来说看来是个坏消息”。
 
-记者问：关于中共病毒，福奇和国家健康研究院（NIH）资助武汉病毒实验室的功能增强实验是一个公开的记录，既然那个实验室有问题，为什么福奇和美国要资助中共国实验室的那种实验，那种研究？
+笔者认为，这是西方少有的对中共国的经济和政治的关系看得非常透彻的一篇文章，而且非常客观、实在，符合中共国的现实。它对中共国“国家资本主义”的强化、中共国市场利诱形成对国际社会的意识压制、政治对经济不合理的干预和过度指挥都一针见血地予以到位的揭示。这是非常可贵的，也是非常有意义的。如果说西方人对共产主义还有雾里看花的认识，不明就里；那么，就一个政府是否有能力管理国家和经济来说，本文就是一个极好的诠释。本文在笔者看来，中心就是中共已经成为整个中国的生产力低下和效率性发展的阻力，是落后和腐朽的，是必须要被抛弃和更换的。而且，中共国的低迷必将对整个世界产生影响，它的不按照市场规律和国际规则的运作，也必将导致整个产业链的阻滞和负面反馈。这也就是本文所指出的“政治干预”是一种中共国经济的“风险逻辑”。
 
-普萨基女士：对不起，我听不太清楚，你的-你提的问题的开始部分是什么？
+笔者觉得，都说西方人不了解中共国，不明白中共墙内的经济生态和政治体系，其实不然。还是有明眼人，还是有人可以站在中共体制外做到鞭辟入里，认识到位。这个对处于爆料革命中希望西方社会的主流媒体看清CCP的真面目和CCP完全不是从治理国家、服务人民的角度的政策取向，对这个邪恶政党的一切反常和反人类的政策导向都可以更加清晰和逐渐明了。我们需要这样的文章帮助西方民众看清楚邪魔共党的实质，我们需要让更多的西方人在清醒而理性的资讯分享下和我们爆料革命坚定地站在一起，灭共必将成为世界人民共同的选择。
 
-问：我说国家健康研究院和福奇为武汉病毒实验室提供了资金，当我们谈论实验室泄漏理论时，这就是问题所在。既然功能增强研究是不确定的，为什么美国会给中共国资金呢？为什么福奇会这样？
+（本文纯属个人观点）
 
-普萨基女士：我很愿意把你的问题转给国家健康研究院，他们会向你介绍他们资助项目的更多细节。
+参考资料： [美国智库Atlantic Council原文](https://www.atlanticcouncil.org/blogs/new-atlanticist/the-risky-logic-behind-chinas-economic-strategy-politics-in-command/)
 
-问：现在，我还有一个后续的问题-
+* * *
 
-普萨基女士：好的。
+*审稿、编辑：光耀华夏*
 
-问：因为总统还没有真正参与进来，福奇是拒绝相信实验室泄露理论的声音之一，但现在拜登政府中有更多的官员——比如国家情报局局长、中情局局长，现在还有国家卫生研究院院长——说不能排除这种可能性，有人呼吁对其进一步调查。
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-总统同意谁的观点？福奇的，还是其他官员的？他认为这是实验室泄漏吗？
-
-普萨基女士：总统说过，我在这里也说过很多次，需要通过世界卫生组织进行可信的、独立的调查，而这个调查依赖于数据，依赖于中共国和其他可能掌握信息的国家的参与。这当然是每个人都呼吁的，我们期待着这种情况的发生。
-
-问：为什么总统还没有和习主席谈中共病毒起源？他说，就在几周前，他还没有。
-
-普萨基女士：我想我们已经读过了他们的通话，总统还认为，应该有一个由卫生专家领导的独立调查，一个提供他们数据的调查——这些数据对我们美国的医学和科学专家是透明的，我们期待着重新审查这些。
-
-我们得继续，下一个，我很抱歉。
-
-问：如果那是实验室泄漏，总统会……（听不见）-
-
-普萨基女士：对不起，埃默洛尔德（Emerald），我想你今天问了很长时间了。
-
-……
-
-（完）
-
-由此可以了解拜登在公开场合对中共病毒的态度，没有明确表达，而且普萨基代他吞吞吐吐。可喜的是，像记者埃默洛尔德女士对中共病毒认知程度至少是“清醒级别”的越来越多，他们正在唤醒着美国民众，也在督促着美国政府推进追责。
-
-白宫记者招待会有关中共国部分的文字整理：
-
-Q：And then on the coronavirus: It’s a matter of public record that Dr. Fauci and the NIH funded gain-of-function experimentation, research at the Wuhan Lab of Virology.  And given the questions about that lab, why would Dr. Fauci and the U.S. fund that kind of experiments, that kind of research at a Chinese lab?
-
-MS. PSAKI:  The — I’m sorry.  I can’t hear you super well.  What was the beginning part of your comment — of your thing — of your question?
-
-Q：I said that the NIH and Dr. Fauci had provided funding to the Wuhan Lab of Virology.  That’s the lab in question when we talk about the lab-leak theory.  And given that gain-of-function research is dicey, why would the U.S. fund that in China?  Why would Dr. Fauci?
-
-MS. PSAKI:  I’m happy to send you to the NIH about more specifics of what program they funded and more details of that.
-
-Q：Now, I do have one more follow-up on that —
-
-MS. PSAKI:  Okay.
-
-Q：because the President hasn’t really weighed in.  Dr. Fauci is one of the voices who discredit the lab-leak theory, but now there is more officials in the Biden administration — like the Director of National Intelligence, the CIA Director, and now also the NIH Director — who say that this cannot be ruled out, and there is calls for more investigation into it.
-
-Who does the President agree with — Dr. Fauci or the other officials?  Does he think this — it was a lab leak?
-
-MS. PSAKI: Well, the President has said, and I’ve said from here many times, that there needs to be a credible, independent investigation through the World Health Organization, and tha- — one that relies on data, relies on participation from China and other countries that may have information.  That’s certainly something everybody has called for, and we look forward to that happening.
-
-Q：Why hasn’t the President spoken with President Xi about the origins of the coronavirus yet?  He said, just a few weeks ago, he hadn’t yet.
-
-MS. PSAKI: I think we have given a readout of his call. And also that the President believes there should be an independent investigation led by health experts, and one where their data is provided — that’s provided transparently to our medical and science experts here in the United States. And we look forward to reviewing that.
-
-We’re going to have to go on.  Go ahead.  I’m sorry.
-
-Q：If that was a lab leak, will the President be committed to (inaudible) —
-
-MS. PSAKI: I’m sorry, Emerald. I think you’ve had plenty of time today.
-
-有关链接：
-
-[https://www.whitehouse.gov/briefing-room/press-briefings/2021/05/07/press-briefing-by-press-secretary-jen-psaki-and-secretary-of-the-treasury-janet-yellen-may-7-2021/](https://www.whitehouse.gov/briefing-room/press-briefings/2021/05/07/press-briefing-by-press-secretary-jen-psaki-and-secretary-of-the-treasury-janet-yellen-may-7-2021/)
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08091511/1-%E6%BE%B3%E5%96%9CLogo-1.jpeg)
 0

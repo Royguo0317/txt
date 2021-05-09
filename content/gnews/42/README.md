@@ -1,33 +1,109 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英美情报机构就打击“俄罗斯黑客”提出建议
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1189829/)
+## 雨啼遥歌
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1189971/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+作者：Xiaopan| 校对：X-Wing |审核：Beicy-数学老师 |Page：小雨
 
-编辑上传   银河
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08143032/Snipaste_2021-05-08_21-29-06-1-3.jpg)[nextgov.com](https://www.nextgov.com/cybersecurity/2017/03/how-russian-hackers-will-attack-us-next/136428/)
-05月08日，英国和美国情报机构发布了一份建议清单，该清单措施旨在减少来自俄罗斯对外情报局（SVR）支持的黑客攻击的威胁。
 
-“SVR继续利用众所周知的漏洞。由于美国及其盟友的网络不断被来自俄罗斯国家支持的网络‘黑客’研究和攻击，解决这些漏洞仍然至关重要。”美国国家安全局（NSA）在一份声明中说。
+```
+又有南风吹起
+ 你听见柳叶的欢快笑声吗
+ 北国的晚春开始发芽
+ 仿佛忘却了
+ 去年寒冬里悲凉的枯骨
+ 
+是滴雨儿借风而起
+ 跨域垂直的时空
+ 泛黄的大地被染成了灰色
+ 你听见滴答的回响吗
+ 
+像是戚戚的诉说
+ 她曾在无数河流中游荡
+ 从清澈见底的小溪
+ 到肮脏不堪的大河
+ 在涌进的滚滚污水里
+ 鱼儿呼喊着逃离
+ 直到变成一具浮尸
+ 盛上了
+ 人类的餐桌
+ 
+当她是一滴水
+ 当它是一条鱼
+ 她是它全部的生命
+ 它是她存在的气息
+ 当她被染变了颜色
+ 便是它逃不了的墓地
+ 
+她曾想安逸地飘荡在大海
+ 那是每一滴雨的梦想
+ 可蔚蓝的天海之间
+ 早已是扑杀的猎场
+ 泛红的血水
+ 流满冰冷的船舱
+ 无数垃圾冲刷着海岸线
+ 遗弃的碎屑铺满沙滩
+ 纷乱如逃亡的牧场
+```
 
-来自英国国家网络安全中心（NCSC）、联邦调查局（FBI）和美国基础设施和网络安全局（CISA）的专家也对该文件做出了贡献。
 
-这份题为“SVR网络战术所使用的战术、技术和程序细节”的报告指出，黑客们采纳了美国和英国情报机构此前给其潜在受害者的建议，改变了他们的方法。特别是，他们正试图利用开源工具Silver来提供对被入侵网络的访问，以及攻击微软Exchange的漏洞。
+[!\[\]()!\[\](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/949ca50c-b37f-403e-8057-31fdb7650635.jpg?asset_id=210f3726-0b3e-4a42-8cfc-629e5dfecb95&amp;img_etag=%22841ebbd3d4b418355481dac437695ff3%22&amp;size=2560)](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/949ca50c-b37f-403e-8057-31fdb7650635.jpg?asset_id=210f3726-0b3e-4a42-8cfc-629e5dfecb95&amp;img_etag=%22841ebbd3d4b418355481dac437695ff3%22&amp;size=1024)
 
-该文件的作者起草了一份提示清单，如果遵循这些提示，应使企业和组织的计算机网络更难受到攻击。在这种情况下，专家建议要特别注意及时更新软件和使用多因素识别，并对工作人员进行培训。
 
-早些时候，英国电子情报部门–政府通信中心（GCHQ的子部门NCSC）负责人杰里米·弗莱明（Jeremy Fleming）说，俄罗斯在网络安全方面构成最严重的威胁。
+```
+太阳聆听了她的祈祷
+ 于是变成了一只隐形的飞鸟
+ 在长空里飞翔
+ 云间穿梭
 
-弗莱明说：“俄罗斯在世界各地行为的敌对性质–在网络空间的侵略、对选举的干涉、其情报部门的侵略性行动，这表明它仍然是对国家和集体安全的最严重威胁。”他特别指出，据称俄罗斯参与了对IT公司SolarWinds的网络攻击。正如彭博社所写，SolarWinds软件黑客事件影响了全球几百个组织，以及美国政府机构。美国认为黑客组织APT29，即Cozy Bear，据称为俄罗斯对外情报局工作，是这些行动的幕后黑手。
+ 于是
+ 她闻到了空气的味道
+ 没有传说中的清香
+ 是浓烈而肮脏
 
-4月15日，美国总统乔·拜登就针对美国主权和利益的行动对俄罗斯实施新的制裁。特别是六家在高科技领域运营的俄罗斯公司，以及据华盛顿方面称支持俄罗斯情报部门的“恶意网络活动”的公司受到了限制。
+ 于是
+ 她看见了高山
+ 残缺的断崖
+ 砍伐的林木
+ 成片的大地满目疮痍
+ 机械的声响无处可藏
+ 却仍掩不住
+ 冲天的争吵与厮杀
+ 
+团团浓烟冲天而起
+ 飘飘散散
+ 遮住了阳光
+ 和飞鸟的双眼
+ 
+她的心开始抽泣
+ 身体开始变冷
+ 她不要做无力的蒸汽
+ 要化成雨
+ 化成更多的雨
+ 去冲刷 去洗涤
+ 或者
+ 去消逝
+ 
+仿佛又有风起
+ 带着同样的故事
+ 和远方的残歌
+ 你相信吗
+ 要变天了
+ 
+她开始颤抖
+```
 
-俄罗斯总统发言人德米特里·佩斯科夫说，莫斯科与黑客攻击美国无关。此外，俄罗斯一再否认去年11月干预美国总统选举的指控。俄罗斯外交部长谢尔盖·拉夫罗夫表示，没有证据支持这一点。
 
-参考链接：
+[!\[\]()!\[\](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/beaba45e-1b04-4528-9748-4518e9fa3f61.jpg?asset_id=8d9e6d1c-4a24-4333-9fae-5bee74b7dbca&amp;img_etag=%22730ea1d1527f7db4b62cf2c268e5828e%22&amp;size=2560)](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/beaba45e-1b04-4528-9748-4518e9fa3f61.jpg?asset_id=8d9e6d1c-4a24-4333-9fae-5bee74b7dbca&amp;img_etag=%22730ea1d1527f7db4b62cf2c268e5828e%22&amp;size=1024)
 
-[https://www.rbc.ru/politics/08/05/2021/60962d919a79473230ffbe60](https://www.rbc.ru/politics/08/05/2021/60962d919a79473230ffbe60)
+*文章仅代表个人观点*
 
+编辑：【英国伦敦喜庄园编辑部】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 0

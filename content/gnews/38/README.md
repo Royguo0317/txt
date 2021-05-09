@@ -1,25 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美共和党人对中共病毒起因发起调查
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1189928/)
+## 【热点播报】众议院共和党人要求解密“实验室意外泄漏”文件
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1190063/)
 
-俄罗斯莫斯科喀秋莎农场    洛夫斯基灭CCP
+作者：纽约香草山农场     四季
 
-编辑上传    银河
-![]()![](https://cdn.discordapp.com/attachments/820270844600909864/839560419987423272/bio-weapon.jpg)俄罗斯莫斯科喀秋莎农场 女农
-《华盛顿邮报》5月7日报道，美国众议院共和党人正在对导致中共病毒在世界范围内传播的原因展开调查。
 
-国会议员坚持认为，必须对据称从中共国武汉病毒研究所泄露的中共冠状病毒版本进行彻底调查。议员们要求美国联邦政府公开其掌握的所有数据。共和党人向美国国家过敏和传染病研究所、国务院以及与中共国研究所合作的非政府组织“生态健康联盟”（EcoHealth Alliance）发出信函，要求提供相关信息。
 
-中共国外交部发言人华春莹在3月底说，世界卫生组织（WHO）应该调查来自美国德特里克堡军事实验室和其他国家类似机构的冠状病毒泄漏版本。她强调，中共国政府准备与世卫组织进一步合作，调查冠状病毒的来源。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-1月至2月前往中共国调查COVID-19来源的世界卫生组织国际专家团的报告已于3月公布，并没有得出病毒来源的明确结论。
 
-报告发表后，美国以及澳大利亚、加拿大、捷克共和国、丹麦、爱沙尼亚、以色列、日本、拉脱维亚、立陶宛、挪威、斯洛文尼亚、韩国和英国立即表示“对世卫组织最近在中共国的研究感到担忧”。这14个国家没有直接批评这些调查结果，但指出专家们的工作是在“相当拖延的情况下”进行的，没有获得完整的信息和样本。白宫对报告发表评论称，该报告没有包含“关键”数据，没有提供对问题的全面了解。
 
-参考链接：
+美国保守派新闻和政治网站The Western Journal于5月7日报道，众议院共和党人要求拜登政府就冠状病毒的起源问题直言不讳，对据称的中（共）国“实验室意外泄漏”事件做出答复。
 
-https://tass.ru/obschestvo/11324211?utm\_source=twitter.com&utm\_medium=social&utm\_campaign=smm\_social\_share
+![]()![](https://gnews.org/wp-content/uploads/2021/05/image-126.png)图为位于中（共）国中部湖北省武汉市的武汉病毒研究所的P4实验楼。(Hector Retamal – AFP / Getty Images)
+
+福克斯新闻也报道，三名来自华盛顿的共和党众议员凯西-麦克莫里斯-罗杰斯，肯塔基州的议员布雷特-古思里和弗吉尼亚州的议员摩根-格里菲斯已经致信国务卿布林肯，要求国务院提供证据，支持1月15日的论断，即“武汉病毒研究所与中（共）国军方合作进行机密研究，包括实验室动物实验”。信中说，武汉病毒研究所“一直是美国政府和世界卫生组织在研究COVID-19的来源以及实验室泄漏的可能性方面的一个主要焦点，对COVID-19起源的任何可信调查必须包括对实验室泄漏假说的审查。世卫组织总干事泰德罗斯-阿达诺姆-格布雷耶苏斯已经表示，他支持对所有COVID-19起源假说的进一步调查，包括实验室泄漏假说”。
+
+信中说，“我们希望你（布林肯）关于查清这一流行病的根源的声明会包括寻找所有可能的原因，包括实验室意外泄漏的可能性。此外，披露非机密文件和解密任何有关中（共）国军方和武汉病毒研究所之间联系的文件，将有助于推进对COVID-19起源的全面调查，从而使此事透明化，并提高公众对这一问题的兴趣和理解”。
+
+关于冠状病毒起源的辩论已被证明是一个热门的地缘政治问题。中共当局坚持认为，该病毒是从一个动物物种自然传播给人类的。但是，越来越多的科学家、记者和政府官员质疑中共的说法，认为中共官员对病毒的来源缺乏透明度。
+
+中共当局拒绝让世卫组织的调查人员完全接触到有关该病毒早期病例的数据，且中共政府官员还监督了调查人员与武汉实验室科学家的所有访谈。
+
+随着巴西总统暗示，中共病毒是来自实验室的生物武器，越来越多的媒体开始揭露中共病毒的来源。相信真相不久将大白于天下。
+
+参考阅读：
+
+[House Republicans Demand Answers on Alleged Chinese ‘Accidental Laboratory Leak’](https://www.westernjournal.com/house-republicans-demand-answers-alleged-chinese-accidental-laboratory-leak/)
+
+[Classified State Dept. Docs Could Connect Coronavirus to Chinese Lab, House Republicans Say](https://freebeacon.com/coronavirus/classified-state-dept-docs-could-connect-coronavirus-to-chinese-lab-house-republicans-say/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
 
 0
