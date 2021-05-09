@@ -1,27 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Covid-19是中国（中共）的新武器？ 取得“第三次世界大战使用生物武器”的军事文件
-` yanyan123` [轉載自GNews](https://gnews.org/zh-hans/1194090/)
+## 【香草诗词汇】于无声处惊雷电
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1194374/)
 
-翻译： 靓丽
+作者：纽约香草山健身部 回响
 
-校对： 皓铭
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
-编辑：嫣嫣123
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09104154/6DDC5686-8A40-454D-8B3D-79DB134B2B1A-1.jpeg)
-据报道，美国国务院已获得一份文件，该文件表明了在中国已研究了对冠状病毒进行武器化改造的方法。
 
-美国国务院正在集中精力获取一份文件，该文件指出， 美国国务院已经研究了在中国武器化Corona 19（COVID-19）病毒的方法。 生物武器是运用生物媒介（包括疾病媒介）杀死和伤害生物的武器。
 
-当地时间7日（英国时间），英国媒体《太阳报》和《澳大利亚人》综合进行了报道，美国国务院最近在对COVID-19的起源进行调查时获得了具有这些细节的中国（中共）军事文件。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09121401/%E5%9B%BE%E7%89%872-18.png)
 
-该文件指出，（中共）人民解放军（PLA）的科学家讨论了SARS冠状病毒的武器化，因为他们预计在2015年第三次世界大战时将使用生物武器进行战斗。
+夜，似乎越来越黑 越来越暗
+路，似乎越走越累 越走越远
+看不清两岸
+看不清对面
+仅有的灯
+竟然也忽隐忽现
 
-科学家将SARS冠状病毒描述为“预示着遗传武器的新时代”。
+知道有海
+知道有山
+知道世界本来就是靓丽风景线
+然而 黑暗 暗黑
+吞噬一切 笼罩万物
+窒息中，几乎每一步
+都会坠入
+深渊
+万劫不复
+——多少
+一声长叹
+四顾茫然
+哪里是生天
 
-关于这份文件英国国会议员汤姆·图根哈特（Tom Tugenhart）和澳大利亚政客詹姆斯·帕特森（James Patterson）表示：“这使中国对COVID-19起源的透明度产生了怀疑。” 国会议员图根哈特（Tugenhart）警告说：“中国对生物武器的兴趣非常令人担忧。无论多么严格地控制，这都是非常危险的。”
+那风来，如龙卷
+地覆天翻
+才知道孕育了28年；
+那雷声，震翻云帘
+才知道 何谓狮吼怒冲冠
+那闪亮，照孽障 曝真相
+霹雳惊心一瞬间
 
-去年早些时候，自从去年的 COVID-19大流行爆发以来，中国（中共）就一直被指控隐瞒，歪曲或减轻疫情形势。尤其是今年年初，随着世界卫生组织（WHO）对位于中国武汉的 COVID-19发源地进行了调查，人们对此的怀疑有所增加。
+千万别以为
+正义从此无颜
+良知永远低头
+善注定被恶强奸
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -1,37 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210508（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1190705/)
+## 家庭反洗脑序列：第六篇 “厉害了,我的国”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1193221/)
 
-- 制图：透明遮羞布
-- 编辑：神奇四侠
+- 作者：随风61
+- 制图：七白石
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08195545/01-11.jpg)
+**西班牙2021年5月9日电/西喜社——**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08195715/02-19.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09090857/image0-1-14.jpg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08200003/03-12.jpg)
+背景：最近一个小视频题为《我国五大战区大揭秘！一个比一个厉害！》，着实让军事发烧友和墙内外小粉红高潮了一把！大概内容是：我国已经是世界最强军事国之一，拥有大量的先进武器，然后一一列举（自然包括核武器）。再讲五大战区单独作战和协同作战能力……
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08200119/04-8.jpg)
+评论：假如一个人整天跟你说他有多厉害，十八般武艺天天给你显摆，每天不停歇地秀美图，秀恩爱，还一个劲地表现自己不差钱……先不说这个人的事情你信不信，就说这种人有谁会喜欢？
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08200418/05-12.jpg)
+同理，一个国家呢！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08201452/06-22.jpg)
+义和团宣称刀枪不入，开始慈禧也不信，可亲王给她演戏呀，给太后把脉还要搭个线。这种伤人的把戏更是离着八丈远，居然就满满的自信起来。主动跟八国联军（也就是八个国家实际是十二个国家）同时宣战。你自己咋意淫都没人管你，可你自己当真了，真的以为刀枪不入了，结果肯定是被枪打死，被刀砍死喽！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08201720/07-11.jpg)
+这就是作死的节奏进行时。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08204119/08-21.jpg)
+“厉害了我的国”把自己的假擀面杖子一股脑的抖搂出来，以此来要挟恐慌整个世界，可悲的是他真的以为自己做到了。正所谓：上天让其亡，必先让其疯狂。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08204208/09-8.jpg)
+审核： 蚂蚁兄弟；校对：信心满满； 发稿 : 信心的选择
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08204432/10-19.jpg)
+**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09055253/11-29.jpg)
-![]()![](https://gnews.org/wp-content/uploads/2021/05/12-14.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09072921/13-13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/05/14-9.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/05/15-9.jpg)
-发稿：信心的选择
-
-+1
++3

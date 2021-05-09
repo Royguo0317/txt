@@ -1,27 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 巴基斯坦全国实施封城 抵御CCP病毒疫情
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1192889/)
+## 慧眼看世界20210508（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1190705/)
 
-#### 撰稿：yyshere
-![]()![](https://gnews.org/wp-content/uploads/2021/05/VaticanNews-1-4.jpeg)图片来源：VaticanNews
-当地时间5月9号起，巴基斯坦在全国范围内实施封城，以此抵御日益严重的CCP病毒疫情。
+- 制图：透明遮羞布
+- 编辑：神奇四侠
 
-通常现在正是巴基斯坦民众为5月下旬的开斋节做准备的时间，是各商家的生意旺季。然而CCP疫情的持续蔓延，终结了他们的生意，影响了他们的生计。民众尤其对政府之前不合理的防疫措施怨声载道，指责政府在疫情仍在扩散时依然允许所有的宗教聚集和游行。
 
-5月8号当天，巴基斯坦新增了4105例CCP病毒确诊病例和120例死亡。巴基斯坦政府表示，这次的第三轮疫情较前两轮疫情更严重。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-援引中共官媒新华社的报道，巴基斯坦是中共军事科学院军事医学研究院和康希诺公司联合研发的腺病毒载体疫苗的第三期临床试验基地。巴基斯坦负责国家卫生服务的总理特别助理费萨尔·苏丹曾公开表示，康希诺疫苗在当地的三期临床试验中期分析结果显示，单针接种28天后，对CCP病毒感染重症的保护效力为100%，总体保护效力为78.8%，未发生任何疫苗相关的严重不良反映。而今年3月30号，巴基斯坦政府采购的第一批康希诺CCP病毒疫苗已运抵伊斯兰堡。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08195545/01-11.jpg)
 
-此外，巴基斯坦政府在4月9号批准了中共国科兴公司CCP病毒疫苗的紧急使用授权，允许18岁及以上的民众紧急接种。此前，巴基斯坦当局已经批准了中国国药集团的CCP病毒疫苗和康希诺CCP病毒疫苗共计两种中共研发疫苗的紧急使用授权。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08195715/02-19.jpg)
 
-然而，三种中共国疫苗并未使巴基斯坦的疫情出现好转，截至5月9号，巴基斯坦已确诊了854240例CCP病毒感染病例，其中18,797例死亡。这一组数据与3月30号的数据相比，确诊感染病例增加了191040例，死亡病例增加了4443人。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08200003/03-12.jpg)
 
-消息来源：巴基斯坦政府新闻 新华社
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08200119/04-8.jpg)
 
-（本文系作者个人观点）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08200418/05-12.jpg)
 
-校对/发布：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08201452/06-22.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08201720/07-11.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08204119/08-21.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08204208/09-8.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08204432/10-19.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09055253/11-29.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/05/12-14.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09072921/13-13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/05/14-9.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/05/15-9.jpg)
+发稿：信心的选择
 
 +1
