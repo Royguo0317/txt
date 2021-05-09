@@ -1,35 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 警惕中共国在非洲的军事野心
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1191446/)
+## 卢比奥称中共已被美大公司代理
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1191612/)
 
-翻译：康州盘古农场 – 格格巫
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-校对：康州盘古农场 – Mike Li
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/A-11.jpg)scmp.com
+面对利益的诱惑，大公司仍然对邪恶的中共不敢说“不”字，参议员卢比奥批评了苹果、脸书（Facebook）对中共唯唯诺诺的作法。
 
-编辑：康州盘古农场 – 心照
+《布雷特巴特》发表文章，“卢比奥：中共国已授权美国企业成它的代理人以推动对中共国的友好政策，而苹果公司的库克（Apple’s Cook）不能自由地谈论中共国”。
 
-发布：康州盘古农场 – 彩虹 Rainbow
+文章介绍，5月7日在“休·休伊特秀”（Hugh Hewitt Show）节目上，参议员卢比奥说，中共国已被美国大公司“代理”，来推动有助于中共国的政策，并表示他不认为苹果首席执行官蒂姆·库克（Tim Cook）可以自由地谈论他对中共国的看法，（同样）脸书的首席执行官马克·扎克伯格（Mark Zuckerberg）也不想站在中共国的对立面。
 
-**据《南华早报》作者：杰文斯·尼亚比亚吉 （Jevans Nyabiage）， 2021年5月5日发布**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08195115/bugg44.png)中共国于2017年8月在吉布提正式启动了首个海外军事基地。 YouTube / CGTN
-美国在非洲的最高指挥官最近表示，中共国在吉布提的新海军码头可以为一艘航空母舰提供支持。
+卢比奥说，中共国授权“美国大公司及其领导人成它的代理人，在美国推动和呼吁有利于中共国利益的政策”。
 
-中共国在非洲的维和部署被视为在非洲大陆建立军事力量的潜在借口。
+他补充说，这些美国企业希望能够在中共国开展业务和生产产品。
 
-中共国已正式在吉布提启动了（军事）支持和物流的基地。周二300多人参加了开幕式。
+主持人休·休伊特（Hugh Hewitt）接着问道：“你认为苹果首席执行官蒂姆·库克能够畅所欲言地谈论中共国吗？”
 
-非洲之角的吉布提人口不足一百万，是非洲大陆上最小的国家之一，但是，它在规模上的不足，却以其战略位置弥补了这一点，可以俯瞰曼德海峡，这是红海和亚丁湾之间的一个咽喉。
+卢比奥回答说：“不，绝对不会。”
 
-正是这个位置使它成为了外国军队的枢纽。 2017年之前，美国、法国、日本和意大利在该国建立了自己的军事基地。然后中共国到达，建立了所谓的后勤设施，向中共国船只提供维和人员和人道主义任务的补给。
+休伊特随后询问扎克伯格的情况，卢比奥回答说，“脸书虽然不在中共国，但我认为，他们越来越担心中共国在世界其他国家日益增长的电信影响力。所以他们不想在其他地方遇到问题，中共的人去某个国家说，嘿，你应该摆脱脸书，用我们版本的脸书取代它。我想他们一定很担心这个，我认为他仍然梦想并希望有一天，他们能够进入中共国。”
 
-根据相关报道，该设施可容纳1,000至2,000名中共国海军人员。距离约12公里之外的美国莱姆尼尔军事基地，可容纳3400名人员。
+贪图眼前利益、无节操的大公司，无视中共的邪恶，至今不愿与中共脱钩、划清界限，还抱有幻想，心怀期待，当你被中共驯服的时候，你们差不多就该被“共产”了。
 
-原文链接：[https://www.businessinsider.com/the-us-is-wary-of-chinas-military-plans-in-africa-2021-5？ utm\_source=feedburner&utm\_medium=feed&utm\_campaign=Feed%3A+businessinsider+%28Business+Insider%29](https://www.businessinsider.com/the-us-is-wary-of-chinas-military-plans-in-africa-2021-5？%20utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+businessinsider+%28Business+Insider%29)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+奉劝大公司们，接受卢比奥参议员的劝告，要勇于对邪恶说“不”！
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+原文链接：
 
-0
+[https://www.breitbart.com/politics/2021/05/08/rubio-china-has-deputized-american-businesses-to-push-for-china-friendly-policies-apples-cook-cant-speak-freely-about-china/](https://www.breitbart.com/politics/2021/05/08/rubio-china-has-deputized-american-businesses-to-push-for-china-friendly-policies-apples-cook-cant-speak-freely-about-china/)
+
++1

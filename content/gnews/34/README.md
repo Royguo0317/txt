@@ -1,46 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月8日美国政要和政评家反共推特精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1191291/)
+## 【热点播报】香港现实版的《图书馆战争》
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1191385/)
 
-众议员迈克·加拉格尔：明天，主持人查克·托德[@chucktodd](https://twitter.com/chucktodd)和喬治·斯蒂芬諾伯羅斯[@Gstephanopoulos](https://twitter.com/Gstephanopoulos)将在他们的周日秀节目中邀请福奇(Fauci)博士。 他们需要利用这个机会向福奇博士追问重要且长期未解决的问题。 大流行病已持续近一年半了，该是得到答案的时候了。
-
-问题1：福奇他是否同意谭德赛(Tedros)博士的观点，认为对实验室泄漏的可能性“需要进一步的调查”，包括2019年秋季在武汉实验室发生的任何疫情爆发？ 问题2：**USG向武汉病毒所(WIV)提供了多少资金**，其中有多少支持了危险的「功能增强」性研究？ 问题3：鉴于有关大流行病起源的未解之谜，他(福奇)是否仍然支持开展「功能增强」性研究，特别是在像中共国这样透明度很差的国家进行？ 在什么时候这种风险太大了？ **这不是阴谋论之说。事实是没有人 – 除了中共之外 – 有明确的答案。 不提出正确的问题，不仅会使我们无法理解为什么有60万美国人死了，而且同样重要的是，我们如何才能防止这种情况再次发生。**
+作者：纽约香草山健身部     Ivy001
 
 
 
-> THREAD ➡️ Tomorrow, [@chucktodd](https://twitter.com/chucktodd?ref_src=twsrc%5Etfw) and [@Gstephanopoulos](https://twitter.com/GStephanopoulos?ref_src=twsrc%5Etfw) will have Dr. Fauci on their Sunday shows. They need to use the opportunity to press Dr. Fauci on important and long overdue questions. Almost a year and a half into the pandemic, it is time for answers.
-> — Rep. Mike Gallagher (@RepGallagher) [May 8, 2021](https://twitter.com/RepGallagher/status/1391060071522648065?ref_src=twsrc%5Etfw)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
 
-参议员玛莎·布莱克本： 拜登的税收政策：对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 有利， 对美国中产阶级不利。
+5月8日，立场新闻用《图书馆战争》做标题，报道港共政府康文署，以“避免违反国安法”为由，将九本书籍从香港公共图书馆下架。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08223939/image-138.png)新闻截图
 
+这是继去年7月康文署引用所谓“国安法”，将黄之锋、陈淑庄等多本著作下架之后，康文署再次以同样的理由，强迫香港公共图书馆下架书籍。这九本书籍分别是：
 
-> Biden’s tax plan: good for China, bad for middle class Americans.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 8, 2021](https://twitter.com/MarshaBlackburn/status/1391063900100169729?ref_src=twsrc%5Etfw)
+港大学苑 《香港民族论》
 
+何俊仁     《我向霸权宣战》
 
+陈淑庄     《陈淑庄敏感地带》
 
-前白宫顾问皮特·纳瓦罗： 2020年3月我在玛丽亚 [@MariaBartiromo](https://twitter.com/MariaBartiromo) 的节目上说病毒是来自 [#武汉](https://twitter.com/hashtag/%E6%AD%A6%E6%B1%89?src=hashtag_click) 实验室的。如果是真的，福奇就是病毒他爸。这片出色的文章为以上两件事提供了可信度。 [@cnn](https://twitter.com/cnn)[@nyt](https://twitter.com/nyt) 你们该起来报道了。白宫新闻秘书珍·莎琪（Psaki ）正在进行掩盖。【转推Medium博客网站，新冠起源——线索追踪，梳理了对新冠起源的核查】
+余杰         《卑贱的中国人》
 
+余杰         《纳粹中国》
 
+林匡正《香港公民抗争运动史—挫败的三十年剖析》
 
-> In March 2020 on ⁦[@MariaBartiromo](https://twitter.com/MariaBartiromo?ref_src=twsrc%5Etfw)⁩ I said virus from Wuhan Lab. If true, Fauci is father of virus. This BRILLIANT article lends credence to both. [@cnn](https://twitter.com/CNN?ref_src=twsrc%5Etfw) [@nyt](https://twitter.com/NYT?ref_src=twsrc%5Etfw) man up and cover this.
-> 
-> Psaki coverup under way [https://t.co/6D0suKGLqh](https://t.co/6D0suKGLqh)
-> — Peter Navarro (@RealPNavarro) [May 8, 2021](https://twitter.com/RealPNavarro/status/1391033755398180880?ref_src=twsrc%5Etfw)
+林匡正  《香港公民抗争运动史2 中港对决》
 
+林匡正  《激进：香港进步民主运动史》
 
+廖亦武  《这个帝国必须分裂》
 
-章家敦 (中国问题专家)： 希拉里·克林顿[@HillaryClinton](https://twitter.com/HillaryClinton)是正确的：我们必须将制造业从 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 撤回。我们不能任由一个无情的政权摆布。CommunistChina [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click)[#在岸](https://twitter.com/hashtag/%E5%9C%A8%E5%B2%B8?src=hashtag_click)[#近岸](https://twitter.com/hashtag/%E8%BF%91%E5%B2%B8?src=hashtag_click)[#邻近制造](https://twitter.com/hashtag/%E9%82%BB%E8%BF%91%E5%88%B6%E9%80%A0?src=hashtag_click) 【转Chatham House推文： ‘我们不能依赖中国市场。 这不仅对我们的经济不利，对我们的地缘政治战略利益也很糟糕。” “除非您收回生产资料，否则你将永远不会与他们竞争并赢得胜利。” 希拉里·克林顿[@HillaryClinton](https://twitter.com/HillaryClinton)星期二在皇家国际事务研究所[@CH\_Events](https://twitter.com/CH_Events) 的发言】
+这个情况，就像中世纪教廷到处禁书、烧书一样，也和发动二战侵略前的希特勒政府到处号召人们烧书一样。为了什么？就是为了禁锢人民的思想！
 
+报道题目的“图书馆战争”，是引用日本作家有川浩的作品——《图书馆战争》。该书的背景是正化年间，日本政府为了清除泛滥于媒体上的糟粕而颁布了“媒体良化法”。然而，为了捍卫“求知的权利”和“言论自由”，一群勇敢的人组成了自卫组织，与手持枪械的国家机器展开连番抗争。“读书的自由，喜欢一个人的自由，以及保护心仪之人的自由，这些重要的自由，最终汇聚成这部交织着梦想与爱情的作品。伴随着炮火与抗争，让我们见证着图书队员们梦想地实现。”
 
+立场新闻用这部文艺小说，影射香港失去民主自由，被港共政府赤色专制的现状，亦表达了香港人不屈服、不放弃的精神。
 
-> .[@HillaryClinton](https://twitter.com/HillaryClinton?ref_src=twsrc%5Etfw) is correct: We must move manufacturing back from [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw). We cannot leave ourselves at the mercy of a merciless regime. [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#onshoring](https://twitter.com/hashtag/onshoring?src=hash&amp;ref_src=twsrc%5Etfw) [#nearshoring](https://twitter.com/hashtag/nearshoring?src=hash&amp;ref_src=twsrc%5Etfw) [#ProximityManufacturing](https://twitter.com/hashtag/ProximityManufacturing?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/jP9qOX3uOG](https://t.co/jP9qOX3uOG)
-> — Gordon G. Chang (@GordonGChang) [May 7, 2021](https://twitter.com/GordonGChang/status/1390755562187640832?ref_src=twsrc%5Etfw)
+中共国和港共政府正在联手残害香港人，香港正在沦陷：香港不仅仅是急速中共国化，更严峻的是，香港正在急速新疆化。我们必须广泛传播香港危机，让香港人获得更多的国际关注，获得更多国家的帮助。 勿忘手足，光复香港！
+
+参考阅读：
+
+[【圖書館戰爭】康文署命圖書館下架 9 書　指涉違國安法　包括《香港民族論》](https://www.thestandnews.com/politics/%E5%9C%96%E6%9B%B8%E9%A4%A8%E6%88%B0%E7%88%AD-%E5%BA%B7%E6%96%87%E7%BD%B2%E5%91%BD%E5%85%AC%E5%85%B1%E5%9C%96%E6%9B%B8%E9%A4%A8%E4%B8%8B%E6%9E%B6-9-%E6%9C%AC%E6%9B%B8-%E6%8C%87%E6%B6%89%E9%81%95%E5%9C%8B%E5%AE%89%E6%B3%95-%E5%8C%85%E6%8B%AC-%E9%A6%99%E6%B8%AF%E6%B0%91%E6%97%8F%E8%AB%96/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
 
