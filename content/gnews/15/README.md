@@ -1,76 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国战略司令部：中、俄的核威胁日益加剧
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1192751/)
+## 中共在非洲的军事基地恐威胁美国安全
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1192806/)
 
-新闻来源：《美国国防部》| 作者：David Vergun| 发布时间：2021年5月7日
-翻译/简评：大和凯多| 校对/审核：万人往| Page：Daoiii
+新闻来源：《布赖特巴特》BREITBART | 作者：约翰•海沃德（JOHN HAYWARD）| 发布时间：2021年5月7日
+翻译/简评：随波逐流|校对/审核：万人往|Page：小雨
 
-[!\[\]()!\[\](https://spark.adobe.com/page/iq4W8iYLdDpE0/images/88a8589c-482e-45f8-b9cd-a1e7f6a140a2.png?asset_id=f5e0c77c-062b-47b0-8896-5a81d58b48d4&amp;img_etag=%228f713a3e6757640b36ce8b48ac921c61%22&amp;size=2560)](https://spark.adobe.com/page/iq4W8iYLdDpE0/images/88a8589c-482e-45f8-b9cd-a1e7f6a140a2.png?asset_id=f5e0c77c-062b-47b0-8896-5a81d58b48d4&amp;img_etag=%228f713a3e6757640b36ce8b48ac921c61%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/fcb19e17-767f-4f46-acda-5c17e1ced4b3.jpg?asset_id=258e6ed2-db3a-4f0f-bac8-b72fbda43760&amp;img_etag=%221633375f2a8f09f072fda9cfa63371eb%22&amp;size=2560)](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/fcb19e17-767f-4f46-acda-5c17e1ced4b3.jpg?asset_id=258e6ed2-db3a-4f0f-bac8-b72fbda43760&amp;img_etag=%221633375f2a8f09f072fda9cfa63371eb%22&amp;size=1024)
 
 **简评：**
 
-**美国国防部战略司令部司令官近日在布鲁金斯研究所表示，来自中共和俄罗斯的核威慑日益严重。他希望美国与中共国和俄罗斯能够像冷战时期一样保持交流，并希望向他们伸出橄榄枝。同时他表示，战略司令部也会继续努力以保护美国和盟友。**
+近年来，中共借推广“一带一路”战略的机会，陆续在各大洲参与的国家中投资建设了一些具有重要战略意义的港口，拿下了许多重要海上航线的咽喉要道，诸如巴基斯坦的瓜达尔港、澳大利亚的达尔文港和非洲的吉布提港。这些港口连在一起，可打通多条连接各大洲的海上通道，在经济上，有助于海上贸易运输，节省运输成本。但很明显，中共更看上的是这些港口的军事意义。在这些港口建立军事基地，部署军队、武器和各种补给设施，以便帮助中共实现称霸世界的野心，才是中共的真正目的。此举现已引起了美国的关注和警惕，美国担心中共将在非洲大西洋沿岸修建更多这样的军事基地，因为这里离美国更近些，直接威胁到美国的领土和国家安全。
 
-**我们都知道，就像上个世纪美苏冷战一样，现在这个世界正处于一场没有硝烟的战争之中。比冷战更恶劣的是，每一天都有无辜的人失去鲜活的生命。为了称霸全球、与美国对抗、奴役全世界，中共视生命如草芥，投放了病毒，将所有人的生命置于危险之中，搅乱世界经济，强迫全球进入疫苗经济，并且不断扩大军事装备，以核武器威胁全世界。中共这个魔鬼已经走上了不归的单行道，这些种种疯狂的行为势必让全世界与之为敌。**
+中共最近几年在东海和台湾海峡进行了几次大规模的军演，频频向世界秀肌肉，以显示自己是一个军事强国，呈现给世界的是一个挑衅的姿态和不服来战的态度，看似下定决心要与美国一较高下。在亚洲，中共不顾国际海洋公约的规定和美国及全世界的谴责，对南中国海周边岛屿和台湾蛮横无理地宣示主权，派出军舰到这些岛屿附近进行骚扰，并发布了新的海事法，赋予海岸警卫队可对过往船只开火的权力，挑战全世界的底线。中共的恶劣行径已严重侵犯了台湾和东南亚周边邻国的领土主权并威胁到这些国家的安全，给这一地区正常的海上贸易运输也埋下了安全隐患。
+
+现在，中共又要在非洲、美洲及欧洲建立更多的军事基地，把军事力量推进到更远的地方。在非洲的吉布提海军基地以及美洲的委内瑞拉，中共都暗中部署了解放军、核潜艇、航空母舰和各种武器装备。这些位置已经非常接近美国本土和欧洲大陆，等于到了别人的家门口驻军，这已经严重威胁到大西洋沿岸欧洲国家和美国的国家安全，中共已完全走上了二战期间，德国和日本所走过的军国主义不归路。
+
+纵观历史，靠穷兵黩武征服世界的国家都给人类带来了巨大的灾难，像纳粹德国对犹太人的大屠杀，日本当年在远东地区的军事入侵，造成了中国和东南亚国家的无数平民伤亡。他们的野蛮行径最后都遭遇了多国联军的集体讨伐，最终导致他们被彻底消灭。中共今天的嚣张做法和它向世界发动的“病毒战”给世界带来的伤害已远远超越了当年的纳粹德国和日本。以古为鉴，可知兴替，中共一定逃不过被灭的命运，全球灭共联军定会以数倍于当年二战的力量，对中共发起强烈反击！
 
 **原文翻译：**
 
-## 美国战略司令部负责人表示，来自中共国和俄罗斯的核威慑日益严重
+## 美军司令警告要在非洲建立潜艇和航空母舰基地的中共国
 
-美国及其盟国面临着来自中共国、俄罗斯和北韩等潜在对手的越来越多的威胁。美国战略司令部的任务是通过一系列战略部署来遏制这些威胁，其中包括核潜艇、轰炸机和洲际弹道导弹。
+[!\[\]()!\[\](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/ce9ddaf4-6366-4009-b46e-75b426e48d63.jpg?asset_id=bcd612b4-66d2-42e5-8497-0f64897ddcf3&amp;img_etag=%227f4018388f66bac9681be4b9e200f39f%22&amp;size=2560)](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/ce9ddaf4-6366-4009-b46e-75b426e48d63.jpg?asset_id=bcd612b4-66d2-42e5-8497-0f64897ddcf3&amp;img_etag=%227f4018388f66bac9681be4b9e200f39f%22&amp;size=1024)AFP/Getty Images 法新社/盖蒂图片社
 
-[!\[\]()!\[\](https://spark.adobe.com/page/iq4W8iYLdDpE0/images/95a1ff27-d688-448b-ae0f-de35f07c8cd5.png?asset_id=1aeaa22d-be3b-4025-881a-91b954202072&amp;img_etag=%22c560cf7b42c24133166fbd2123464363%22&amp;size=2560)](https://spark.adobe.com/page/iq4W8iYLdDpE0/images/95a1ff27-d688-448b-ae0f-de35f07c8cd5.png?asset_id=1aeaa22d-be3b-4025-881a-91b954202072&amp;img_etag=%22c560cf7b42c24133166fbd2123464363%22&amp;size=1024)
+**美军非洲司令部（AFRICOM）总司令史蒂芬•汤森德（Stephen Townsend）上将周四（5月6日）警告说，中共国正在积极寻求在非洲建立一个大西洋海军基地，为潜艇和航空母舰提供服务。**
 
-2021年4月17日，一架来自路易斯安那州巴克斯代尔空军基地的B-52H同温层堡垒轰炸机。位于关岛安德森空军基地的跑道上，为美国战略司令部的轰炸机特遣部队提供支持。
+汤森德告诉美联社（AP）：“他们正在寻找一个可以重新装备和修理军舰的地方。这在冲突中可以发挥军事作用。他们在吉布提建立的基地还有很长的路要走。现在，他们将目光投向了大西洋沿岸，并希望在那里建立一个这样的基地。”
 
-美国战略司令部司令官、海军上将查尔斯·A·理查德（Charles A. Richard）今天在布鲁金斯研究所基本上谈了他的命令如何阻止这些威胁。
+他说：“在选定的某些非洲国家，中国人在策略上胜过了美国。港口项目、经济努力、基础设施以及他们的协议和合同将为未来赢得更多的机会。他们正在两面下注，并在非洲下大赌注。”
 
-他说：“战略威慑是国防部最重要的任务。这是我们的头等大事。”
+汤森德指出，中共国在吉布提的基地于2016年开始建设，并于2017年8月正式开放，那一天刚好是中国人民解放军（PLA）诞辰90周年。
 
-他说，这是历史上第一次，美国同时面对两个具有核能力的战略竞争对手。
+[![](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/fe4915ba-2747-49b2-996a-5ea0c77bb989?asset_id=52c22116-8971-4e72-844c-7f86b8ce959d&amp;img_etag=%2206e4c16223296841ac3f96adb06363e3%22&amp;size=2560)](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/fe4915ba-2747-49b2-996a-5ea0c77bb989?asset_id=52c22116-8971-4e72-844c-7f86b8ce959d&amp;img_etag=%2206e4c16223296841ac3f96adb06363e3%22&amp;size=1024)2017年8月1日，中共军队举行进驻吉布提基地营区的仪式。AFP法新社图
 
-理查德说，他希望看到美国、俄罗斯和中共国减少核武器的作用，并希望向它们伸出橄榄枝。
+该基地位于印度洋，是中国人民解放军的第一个海外海军基地。中共一直在稳步扩大这个基地，包括设防和扩建码头，以容纳更大的船只，例如航空母舰和核潜艇。即使在冠状病毒大流行期间，中国人民解放军仍继续在其吉布提港口进行赶工扩建工作。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/iq4W8iYLdDpE0/images/c5be0fd0-c447-484b-bff6-4c6c12535f59.png?asset_id=3d51c19a-167b-4bd5-b4da-c5a9cf3ef8cf&amp;img_etag=%2291e8ac0d5e574ceedd08f182144097ae%22&amp;size=2560)](https://spark.adobe.com/page/iq4W8iYLdDpE0/images/c5be0fd0-c447-484b-bff6-4c6c12535f59.png?asset_id=3d51c19a-167b-4bd5-b4da-c5a9cf3ef8cf&amp;img_etag=%2291e8ac0d5e574ceedd08f182144097ae%22&amp;size=1024)
+汤森德说，吉布提基地“肯定有武器和弹药”，包括“装甲战车”，而且不久将装备军用直升机。他指出，中共国正在推动在坦桑尼亚开设另一个基地，但他最担心解放军在非洲的大西洋沿岸获取更多的阵地，并指出，这样的基地将比中共国的任何设施都更接近美国的领土。
 
-在蒙大拿州马姆斯特罗姆空军基地的导弹处理设施进行导弹滚转时，民兵III洲际弹道导弹的助推器从一辆运输架设车滚转到另一辆车上。2021年4月20日。在飞机库的导弹维修技术人员对其进行维修后，这些传输将洲际弹道导弹送回导弹场。
+[!\[\]()!\[\](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/37b78e0f-5296-4b9a-8490-f65c1821cc28.jpg?asset_id=6f16f1c8-85e0-4696-981d-359c013f1868&amp;img_etag=%220e18c139885afc89443be357eef5115f%22&amp;size=2560)](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/37b78e0f-5296-4b9a-8490-f65c1821cc28.jpg?asset_id=6f16f1c8-85e0-4696-981d-359c013f1868&amp;img_etag=%220e18c139885afc89443be357eef5115f%22&amp;size=1024)训练中的坦桑尼亚国防部队
 
-他说：“我希望有一天我可以报告，我们不再需要美国战略司令部。”因为政治协议已经确认达成。
+中共在坦桑尼亚拥有一个耗资3000万美元的军事训练中心，表面上专注于训练坦桑尼亚人民国防军（TPDF），并且已向坦桑尼亚人民国防军提供了大量的硬件——一直到战斗机——但北京当局急于将与坦桑尼亚军方的紧密关系提升到新的水平。
 
-他说，与俄罗斯就其不受条约约束的武器展开对话，将是削减核武器的一个良好起点。与中共国的对话也会极大有益。
+在它的“一带一路”倡议的主导下，中共国希望在巴加莫约（Bagamoyo）建一个非洲最大的深水港，巴加莫约是坦桑尼亚最大城市以北的一个小镇，也是达累斯萨拉姆（Dar es Salaam）最大但不堪重负的港口。经过六年的准备和计划，坦桑尼亚于2019年6月暂停了该项目，这显然是由于人们越来越怀疑，大型的“一带一路”项目对中共国很可能比对其发展中国家的合作伙伴更有益。
 
-他说：“关于美国和俄罗斯，甚至在冷战期间某些时候很紧张的时候，有一件事可以确定的是，我们双方一直在保持交流，这样做具有很大的价值。”他补充道，开放的交流肯定可以使威胁程度降低到对双方都有好处。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/iq4W8iYLdDpE0/images/ff2452b7-4aa3-44a8-b262-a806ede70f87.png?asset_id=e433404c-f48a-426d-ab16-91d9418f77eb&amp;img_etag=%223976d925903c538841bac61e6eaa159d%22&amp;size=2560)](https://spark.adobe.com/page/iq4W8iYLdDpE0/images/ff2452b7-4aa3-44a8-b262-a806ede70f87.png?asset_id=e433404c-f48a-426d-ab16-91d9418f77eb&amp;img_etag=%223976d925903c538841bac61e6eaa159d%22&amp;size=1024)
 
-2020年9月2日，美国加州范登堡空军基地，美国空军全球打击司令部的一枚非武装民兵III型洲际弹道导弹在作战测试中发射。
+[!\[\]()!\[\](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/0887dd32-529d-4565-aa78-aebd095aa840.jpg?asset_id=e6f21f60-96d5-4852-b100-aef21af5bf90&amp;img_etag=%22485746edb5fecf91a440d2c01b798f05%22&amp;size=2560)](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/0887dd32-529d-4565-aa78-aebd095aa840.jpg?asset_id=e6f21f60-96d5-4852-b100-aef21af5bf90&amp;img_etag=%22485746edb5fecf91a440d2c01b798f05%22&amp;size=1024)巴加莫约港口蓝图
 
-他说，与此同时，战略司令部致力于为实现安全、可靠和有效可依赖的核威慑而努力，并补充道，核威慑不仅是为了保护美国，也是为了保护盟友。
+中共国试图在2021年1月启动巴加莫约港项目，声称坦桑尼亚人对此想法越来越热情。坦桑尼亚官员在4月表示，重新谈判正在进行中，如果中共国同意一些关键要求，这个耗资数十亿美元的项目可能会继续进行。
 
-他说，中共国正在成为一个日益严重的威胁。他们的战略力量和常规力量在所有领域都在迅速扩大。
+美联社不祥地指出：“美国在全球各地的军事指挥官，包括可能失去部队和资源以支持太平洋地区发展的几名军事指挥官，都警告说，中共国日益增长的自信心不仅仅着眼于亚洲。而且他们辩称，北京当局正在积极主张对非洲、南美和中东国家施加经济影响力，并正在那里寻求基地和立足点。”
 
-他补充道，俄罗斯也在进行一个大规模的现代化核项目。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/iq4W8iYLdDpE0/images/420f1b66-6747-4b59-8aa9-8698518b69c7.png?asset_id=b32e7b21-8727-483a-84a8-2dee49bc08e2&amp;img_etag=%228f713a3e6757640b36ce8b48ac921c61%22&amp;size=2560)](https://spark.adobe.com/page/iq4W8iYLdDpE0/images/420f1b66-6747-4b59-8aa9-8698518b69c7.png?asset_id=b32e7b21-8727-483a-84a8-2dee49bc08e2&amp;img_etag=%228f713a3e6757640b36ce8b48ac921c61%22&amp;size=1024)
-
-2021年2月9日，在太平洋上的俄亥俄州级导弹潜艇“俄亥俄号”上，海军陆战队第3陆战队远征军第1侦察连的海军陆战队成员在一次定期演习中组装了一艘战斗橡胶突袭艇。
-
-他说，由于来自中共国和俄罗斯的威胁越来越大，所以将美国的核能力三位一体现代化至关重要。（译者注：三位一体指同时具有陆上洲际弹道导弹、潜射弹道导弹和战略轰炸机三种核武器打击能力。）
-
-理查德还强调了对于拥有一支高度熟练和积极进取的工作人员来操作和维护核三位一体的重要性。这些人员将包括科学家、软件开发人员、工程师和技术人员。
-
-🔗[原文链接](https://www.defense.gov/Explore/News/Article/Article/2600122/stratcom-leader-describes-growing-threat-from-nuclear-armed-china-and-russia/)
+[🔗原文链接](https://www.breitbart.com/national-security/2021/05/07/u-s-commander-warns-china-wants-sub-carrier-base-africa/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/iq4W8iYLdDpE0/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/iq4W8iYLdDpE0/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 
 
