@@ -1,41 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 阿里巴巴已将中国间谍渗透到了列日(Liège)机场吗？
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1195215/)
+## 金里奇称切尼应该辞职
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1195581/)
 
-#### 翻译：仰望中央公园  审核：Ikonic
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-[原文链接](https://www.lecho.be/economie-politique/belgique/general/alibaba-a-t-il-fait-entrer-des-agents-du-renseignement-chinois-a-l-aeroport-de-liege/10304069.html)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09152823/view-1.jpg)En février dernier, le collectif Stop Alibaba & co a déployé une bâche sur le futur entrepôt de Cainiao, la filiale logistique d’Alibaba qui se construit à côté de l’aéroport de Liège. ©doc
-比利时 « 回声日报 » 记者 : 尼古拉·凯西（NICOLAS KESZEI）
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/G-4.jpg)ncr-iran.org
+反川斗士切尼兑现了她的承诺，要天天指责川普总统，要继续称“大选舞弊欺诈”是谎言。对切尼荒唐的举动，有战友挖出切尼的丈夫在中共有关联的律师事务所工作【1】，前众议院议长纽特·金里奇（Newt Gingrich）也发声，批评指责了切尼【2】。
 
-通过阿里巴巴在列日的分公司，中国情报人员完全有可能打入到机场的敏感区和禁区。在接受国会司法委员会议员塞缪尔·科戈拉蒂（Samuel Cogolati）的质询时，司法部长直截了当地给出了答复。是的，国家安全局确认列日机场对中国具有非常重要的战略意义。像阿里巴巴这样的企业必须把一些职位留给中国的情报人员，司法部长进一步指出。
+《门道专家》（the gateway pundit）发表文章，纽特·金里奇（Newt Gingrich）对利兹·切尼（Liz Cheney）说：“从道义上讲”，她应该辞职——她是在“利用议会给她的权力”削弱众议院的共和党人。
 
-然而情况还不只这些。2017年通过的国家情报法规定企业有义务与中国的情报机构合作。这一法律义务不仅对中国的阿里巴巴有效，对比利时的也一样有效。
+文章说，前众议院议长纽特·金里奇5月9日作客玛丽亚·巴蒂罗莫（Maria Bartiromo）的《周日早间未来》（Sunday Morning Futures）。
 
-“这表明阿里巴巴在列日的分公司（…）中国的情报人员有可能打入机场的敏感区和禁区”。司法部长在回答塞缪尔·科戈拉蒂（Samuel Cogolati）议员质询时如此表示。
+在他们的谈话中，纽特议长谈到了利兹·切尼与众议院共和党人和川普总统支持者之间的争斗。
 
-**个人隐私有可能被盗走**
+纽特·金里奇议长说，作为一独立个体，她完全有权说和做任何她想说和做的事，但作为议会主席，她无权利用议会赋予她的权力和威望，以及借此破坏分裂议会。会议以200票对10票反对她，她是210票中的10票之一，这时你要么反思一下自己的行为，说“好的，我就是代表议会。”要么，从道义上讲，你就应该辞职，因为你在使用他们赋予你的权力……如果川普被提名，看到她作为独立总统候选人出现我一点儿都不会奇怪……她在道义上几乎有义务支持民主党。
 
-根据金融时报最新的调查报告，考虑到阿里巴巴在中国的所作所为，议员希望知道列日的阿里巴巴是否会把它在比利时收集到的个人信息传回中国。对此司法部长表示国家安全部门没有足够的资讯对此问题给出准确无疑的答案。部长补充说“个人信息被传回中国是非常有可能发出的事情。
+（原文完）
 
-中国2016年立法要求中国企业必须将资料库存放在国内的服务器上，并授权中国安全部门可以查阅服务器的资料。
+看来这个切尼快到了“人人喊打”的地步，好在民主党人一直在赞扬她，为她叫好鼓劲，因为她在替民主党掩盖，谁知道切尼背后的力量是谁？虽然有过反共的言论，但行动上一直在扮演民主党、中共女婿麦康奈尔打手的角色。
 
-司法部长还表明“如果中国安全部门提出要查看阿里巴巴在列日收集的敏感商业和个人信息的话，阿里巴巴也必须服从中国安全部门”。
+文贵先生说过，人生在世，就怕爱错了人、恨错了人，希望没有冤枉这个切尼！
 
-**甄别的必要**
+参考链接：
 
-今天我们要问的是比利时当局当时是否过于天真，把列日机场的大门向中国人开放，该机场现在是欧洲第9大物流机场。根据塞缪尔·科戈拉蒂（Samuel Cogolati）议员的说法，解决的办法就是要对外国投资进行甄别。
+【1】[https://www.gnews.org/zh-hans/1194326/](https://www.gnews.org/zh-hans/1194326/)
 
-对此，我们注意到一项对欧盟的外国直接投资进行甄别的欧洲法规已于2020年10月生效。然而，比利时还没有建立这样的甄别机制。“比利时似乎没有对阿里巴巴的投资有过鉴别”，议员解释说，“我们必须对比利时的外国投资进行民主和公开的审查”。司法部长在接受议会质询时明确表示，财政部长已经在比利时着手建立这样的机制。
-
-**阿里巴巴装聋作哑**
-
-塞缪尔·科戈拉蒂（Samuel Cogolati）议员对我们说：“我们不能接受列日成为中国经济扩张战略的走卒”。他向国防和外交部长以及负责数字化和隐私保护的国务秘书发送了其他问题。议员认为对比利时人的权利和隐私来说，“阿里巴巴模式是一种威胁“。他总结说：“我们不会在电子商务的祭坛上牺牲掉我们的基本自由。”当天晚上联系阿里巴巴，它对我们的问题不予回复。
-
-* * *
-
-*发布：法国巴黎七星农场编辑组*
+【2】[https://www.thegatewaypundit.com/2021/05/newt-gingrich-liz-cheney-morally-resign-using-power-conference-loaned-undermine-house-republicans-video/](https://www.thegatewaypundit.com/2021/05/newt-gingrich-liz-cheney-morally-resign-using-power-conference-loaned-undermine-house-republicans-video/)
 
 0

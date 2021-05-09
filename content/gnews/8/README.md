@@ -1,32 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 对于接受过抗皱治疗的人 辉瑞疫苗接种后可能会面部肿胀
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1195509/)
+## 科技前沿——SpaceX接受狗狗币付款，用于明年发射月球任务
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1196237/)
 
-```
-新闻来源：意大利今日欧洲（europa.today.it）
-发表时间：2021年5月8日
-翻译整理/简评：斩草要除根
-```
+整理撰稿：蓝精灵
 
+SpaceX将于明年第一季度发射“ DOGE-1登月任务”，埃隆·马斯克（Elon Musk）的商业火箭公司将接受加密货币狗狗币作为付款。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/05/w980-p16x9-2020-11-09T164812Z_97960992_RC2SZJ956QPO_RTRMADP_3_HEALTH-CORONAVIRUS-VACCINE-MARKETS.jpg)图片来源：路透社
+Geometric Energy Corporation在周日宣布了由狗狗币资助的任务，但声明并未透露任务的财务价值。
 
-欧洲药品管理局（*EMA*）的药物警戒委员会在审查了所有可用证据后，包括向欧洲数据库报告的可疑副作用和科学文献数据报告的病例之后，认为至少有一种合理的可能性，辉瑞公司的抗冠状疫苗和有皮肤填充剂注射史的人面部肿胀的报道病例之间存在因果关系。因此，专家小组得出结论，“具有皮肤填充剂注射史的人的面部肿胀应作为副作用纳入产品特性摘要（*SmPC*）的第4.8节和患者包装说明书的第4节（*GDP* ）。
+“我们很高兴将DOGE-1发射到月球上！”，SpaceX商业销售副总裁Tom Ochinero引用了Geometric Energy发布的声明。“该任务将证明加密货币在地球轨道之外的应用，并为行星际贸易奠定基础”。
 
-该机构还在评估 *mRna* 抗冠状病毒疫苗后的“心肌炎病例报告”。该报告中写道：“ 欧洲药品管理局（*EMA*）知道心肌炎的病例”，即心肌发炎，“和心包炎”，心脏周围膜发炎，“主要是在接种了康美奈德疫苗后接种的”。但目前该机构指出还没有迹象表明这些病例是由于冠状疫苗引起的”。此外，欧洲药品管理局（*EMA*）的专家小组要求莫德纳（*Moderna*）提供其*mRna* 疫苗，以“监视其产品中的相似病例。
+马斯克今年的推文将曾经一度晦涩难懂的数字货币（最初是社交媒体的笑话）变成了投机者的梦想。
 
-#### 简评：
+编者简评：
 
-**新冠疫苗的副作用由原来只被提到的引起血栓问题，现在其他的问题也在慢慢的越来越多的被报道出来。人们在为求一针保平安的同时，很容易将这些副作用抛之脑后，当后果真正发生在自己身上时已经后悔莫及，人们最终是要为自己的无知付出代价。**
-（本文仅代表译者个人观点，跟GNEWS平台无关。）
+基于自由流通的，不受限制的数字货币是主流，是未来。随着星链网络的闭合，天才马斯克貌似正在测试如何把数字货币变成太空币，星链网络是太空数字币的必要条件，这一过程就是一个去中心化的过程，也是重塑世界金融政治格局的过程。
 
-**新闻原文链接：**
-🔗[“Possibile viso gonfio dopo il vaccino Pfizer per chi ha fatto trattamento antirughe”](https://europa.today.it/attualita/pfizer-viso-gonfio-filler-vaccino.html)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
-* * *
+参考链接：
 
-***编辑整理/校对:** Ting Guo*
+[https://www.reuters.com/business/finance/spacex-accepts-dogecoin-payment-launch-lunar-mission-next-year-2021-05-09/?taid=609861454492f900010b98f0&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/business/finance/spacex-accepts-dogecoin-payment-launch-lunar-mission-next-year-2021-05-09/?taid=609861454492f900010b98f0&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+
+图片来源：[https://www.reuters.com](https://www.reuters.com/business/finance/spacex-accepts-dogecoin-payment-launch-lunar-mission-next-year-2021-05-09/?taid=609861454492f900010b98f0&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+
+校对发布：Penny
 
 0

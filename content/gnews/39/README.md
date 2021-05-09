@@ -1,55 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美国越来越多的大学要求学生接种中共病毒疫苗
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1195050/)
+## 【战友心声】母亲的爱——永恒之爱
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1195060/)
 
-作者： 纽约香草山美食部   为真不破20
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
+作者：纽约香草山美食部 雨过天晴Rainbow
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09141446/%E5%9B%BE%E7%89%875-9.png)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
-继4月28日由华盛顿州立大学首个提出要求学生接种疫苗的公告后，在短短的一周左右的时间里，美国越来越多的大学已经加入到要求学生以及所有教职员工接种中共病毒疫苗的队列当中。
 
-位于麻省的哈佛大学在5月6日提出 “为了达到保护我们社区所需要的高水平疫苗接种，哈佛大学将要求今年秋天在校的所有学生进行冠状病毒疫苗接种”。 根据声明，仅出于医疗或宗教原因才允许例外。这个和之前华盛顿州立大学的公告类似！
 
-哈佛大学要求所有计划在校园里的学生在即将到来的秋季学期开学之前的两周应接种第二剂量疫苗！这些疫苗包括被美国食品药品监督管理局或世界卫生组织批准的辉瑞、Moderna或强生公司的疫苗！
+今年五月的第二个星期天是5月9日——母亲节。这个节日其实发源于美国：美国国会于1914年通过了法案，并由总统威尔逊签字生效，规定每年5月的第二个周日为母亲节。威尔逊总统还下令，在母亲节这一天，所有的政府建筑物都要悬挂国旗，表示庆祝。母亲节最初的推动创立者是一对母女——母亲安-贾维斯（Ann Maria Reeves Jarvis）与女儿安娜-贾维斯（Anna Marie Jarvis）。从母亲的模糊设想到女儿将其变为现实，前后经历了近半个世纪，而女儿安娜也因此被称为“母亲节之母”。
 
-在秋季到来之前，那些国际学生和其他无法获得接种被授权的中共病毒疫苗的人将在抵达大学时进行疫苗接种。 但是，这些学生可能还要遵守其他要求，例如更频繁地进行测试，直到他们被疫苗完全保护为止。
+人们常说，最伟大的爱是母爱，其包含着从古至今所有的情和爱，无私的付出与善良的期待。何尝不是呢？
 
-同时，哈佛大学还希望在校园工作的教职员工和研究人员竭尽全力接种针对COVID-19中共病毒的疫苗。
+![]()![](https://n.sinaimg.cn/sinakd20200512ac/368/w700h468/20200512/e74c-itmiwrz1880961.jpg)图源网络
 
-此前，其他名校如耶鲁大学、哥伦比亚大学和普林斯顿大学等其他常春藤盟校已经引入了此类疫苗接种要求。
+儿时，我常伏在妈妈的怀里，听着她朗读我最喜欢的中英文童话故事——《The Adventures of Pinocchio》（木偶奇遇记）。妈妈的声音很甜，每每读到Pinocchio不诚实的行为时都会停下来问我，“小木偶为什么要这样做？他错在哪里？”然后，她微笑着，细心地聆听我的回答。
 
-除了名校外，美国各州当地的很多大学、社区院校以及私人院校也提出了类似的要求。
+妈妈也有一双灵巧的手。在物质贫乏和被下放农村的那些日子里，芋头炖白菜、鸡蛋蒸虾米、猪油红豆糯米饭、酸菜黄豆，还有五香花生，这些都是妈妈的拿手好菜。她每天变换着菜式，让我吃得津津有味。逢年过节，我看着妈妈将几张旧报纸连接起来，铺在木板床上，拿起笔、尺和剪刀，照着服装设计书上的裁剪公式，在为我和妹妹设计新衣服的样板。当我们穿上新装时，耳边也响起妈妈耐人寻味地教诲，每个人不能只学会花钱，还要学会创造财富。这句话可谓刻骨铭心，亦让我们终身受用！
 
-这些大学都要求学生们在返回校园之前，必须完成食品和药物管理局（FDA）或者世界卫生组织（WHO）批准的疫苗接种！
+妈妈是位高级知识女性，善良、包容的母亲信奉上帝。从小在教会学校念书的她多才多艺，对子女言传身教，开明教育且从不训斥；对工作实事求是，兢兢业业；对同事朋友，诚恳包容，乐于帮助。从不自傲和虚心好学是妈妈最难能可贵的闪光魅力。
 
-可见，这种疫苗经济的泛滥已经开始！接下来，各大中小学校是不是也会和大学一样的要求呢？
+四年来的爆料革命同样也震撼了妈妈。文贵先生的直播她听不完整，我和妹妹时常充当起她的翻译。每次我们之间的讨论她都非常感慨，并且以亲身感受述说着中共经久犯下的恶行，字字句句充满了对中共的极度憎恨。她对文贵先生的评价是：“我不管他的过去，不想知道他的钱财从哪里来，只知道前无古人，（终于）出来了（他这样）一个敢说敢干的人。（虽然）我的英文比他好很多，但是几十年了，我们只能苟且偷生⋯⋯他是一个叻人（很厉害）！”一天我告诉妈妈，我把您一部分的退休金（美国工作报酬）积蓄投资到了G系列，她开心一笑，说：“我也没有多少钱帮他了。”
 
-参考链接：
+这就是我人生的榜样——亲爱的妈妈！
 
-https://www.scmp.com/news/world/united-states-canada/article/3132516/harvard-university-requires-coronavirus-vaccination
+借此母亲节之际，祝愿全天下最伟大的母亲节日快乐！我爱你们！
 
-https://www.msn.com/en-us/news/us/another-mass-university-requires-covid-19-vaccination-for-students/ar-BB1goAmn
+（本文仅代表作者观点）
 
-校对/发稿：飞虹
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
 
+编辑/校对/发稿：Irene木木
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+
 
 0
