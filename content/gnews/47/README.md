@@ -1,91 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（十七）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1193205/)
+## 【灭共有我】P2P网贷受害者的经历
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1193511/)
 
-作者：纽约香草山信息部 6zero4
+#### 作者：小红帽
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+#### 编辑：翼族
+![]()![](https://gnews.org/wp-content/uploads/2021/05/巴西5-1-2.png)
+图片来源：阿波罗网
 
+【前言：本文是笔者一位好朋友阿美（化名）投资P2P的亲身经历。因为投资广东当时最大的一家网贷平台，结果遇上共产党的定向爆雷，损失了血汗钱。同时，她因为报案还受到共产党当地政府和警察的严密监控，无法上街发声。】
 
+**中共狂发****P2P牌照，吸引韭菜投资**
 
-5月6日塞林博士的2连推：
+2017年，很多P2P平台炒得火热，各种不同高利息网贷的投资方案，吸引很多老百姓把血汗钱投到不同的P2P平台上。阿美分别找了几家排名前十的P2P投资，这些平台都有政府批准的资质，她认为有国家背书，肯定会更安全。没想到最后没有一个网贷平台能逃得过共产党的定向爆雷。
 
-第1推，转发“Zion, a Deplorable老百姓”战友响应塞林博士第二个声明的推文：1）姜世勃的一项研究实现了将福林蛋白酶底物类RIPP肽插入表达载体中；2）姜世勃及其许多“老朋友”的出版物显示了在MERS-CoV病毒中蝙蝠向人类转播的关键，并贴出了姜世勃、杜兰英、石正丽、李放、Baric和Perlman等中美病毒科学家联合发表论文的截图。重要：COVID-19侦探“Zion, a Deplorable老百姓”、“德意志之鹰”和“火来2号”专业地揭示了PLA科学家姜世勃在2013年就插入了福林酶切位点，这恰好证明了其实验室起源，并利用PLA的国际病毒研究资源的网络推动CCP的生物武器战计划。
+**中共定向戳破网贷平台，建立微信报警链接，****24小时监控受害者**
 
+2018年，阿美收到消息，广东最大一个P2P平台的老板跑路了，而公安局在第一时间通报了该网贷平台老板跑路的信息，并同时公布了微信报警链接。于是受害人都通过微信报案链接登记备案，只是当时受害人还不知道，报警链接是陷阱，是为了方便警察收集受害人的信息并对其实施监控，而不是为了帮受害者破案，追回其投资的损失。
 
+阿美在微信报案链接登记之后，她工作所在地的民警第一时间打电话给她，让她去警务室录口供。等她到了警务室却遭到民警的取笑：这么高的利息都敢去投资，怎么这么笨？民警对于阿美除了嘲讽，还叮嘱她不要跑去生事（意思是不要去上访）。
 
-> Important – [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detectives [@ZionaEmanuel](https://twitter.com/ZionaEmanuel?ref_src=twsrc%5Etfw) [@dezying](https://twitter.com/dezying?ref_src=twsrc%5Etfw) [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) expertly show how PLA scientist Shibo Jiang, who inserted furin cleavage sites already in 2013 proving its laboratory origin, leverages the PLA international network that advances the CCP biowarfare program. [https://t.co/5EOJ1ojgXv](https://t.co/5EOJ1ojgXv)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 6, 2021](https://twitter.com/LawrenceSellin/status/1390147246612693001?ref_src=twsrc%5Etfw)
+**政府胁迫受害人所在公司对受害人进行监控**
 
+在警务室登记完信息后，阿美发现24小时的监控噩梦才刚刚开始。很快，阿美公司接到当地民警电话，让公司每日监控她的出勤情况，如果她请假没上班的话必须第一时间上报给社区民警。后来阿美发现，公司还有其他的P2P受害者，也同样被民警要求公司进行监控考勤。
 
+从报案以来，阿美几乎每两天就会接到民警和村委工作人员的电话，不断试探她的想法，让她不要去生事，不要上街。虽然阿美表示家有老小，不会去生事，但她还是隔几天就会接到一通政府的电话“询问”其心理状况。
 
-第2推，是一中文推，所有COVID-19侦探：马利克 . 佩里斯(Malik Perlis)是个坏人，请搜索他与AMMS、长春军事兽医研究所和PLA的关系，并贴上马利克的照片。
+**受害人所在公司不配合监控受害人，被以查消防为由骚扰**
 
+一天，阿美公司的另外一个受害者大明（化名）参加了一个P2P爆雷的示威游行。社区民警通过定位大明的手机信号（他的手机在微信报警链接上已经登记），发现大明在示威点附近，于是民警要求公司打电话给大明，询问其所在位置，以及询问他在干什么事(确认他是否在参加示威)。公司以不能在假期询问员工私事，侵犯员工私人隐私为由，拒绝配合打电话。而民警在与公司电话沟通时进行了录音，作为该公司不配合民警工作的证据。
 
+翌日，民警和村委将该公司的领导约到警务室去“喝茶”。“喝茶”期间，政府人员和民警威胁公司领导，如果不配合民警监控P2P受害者，政府会安排人到公司查消防设施，这是共产党以黑治国的惯用手法，一般来讲消防设施是每个企业的死穴，没有安全问题都能找出问题，并令其停业整顿。政府人员还要求与大明面谈，给他做思想教育。当时公司领导认为这属于员工的私人行为，婉拒了安排政府人员与员工大明面谈的要求。
 
-> 所有COVID-19侦探：马利克·佩里斯（Malik Peiris）是个坏人。 请搜索他与北京军事医学科学院，长春军事兽医研究所和人民解放军的联系。[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaPandemic](https://twitter.com/hashtag/CoronaPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/WlhvrIHPiD](https://t.co/WlhvrIHPiD)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 6, 2021](https://twitter.com/LawrenceSellin/status/1390184163572174852?ref_src=twsrc%5Etfw)
+因为公司的不配合，当天政府就派了几个人到公司查消防设施作为威胁。之后的每个星期，都有人到公司查消防。最后这件事情一直到大明向民警做出了书面保证，保证今后再也不上街游行才得到平息。
 
+半年过去，阿美告诉我，她投资的其它几个P2P平台（都是当时排名前五的平台）陆续爆雷，投资的钱全都拿不回来。她认为这是共产党在恶意让这些平台爆雷。共产党割韭菜，韭菜只能忍气吞声。考虑到自己和家人的安全，她不敢上街抗议，最后财富被共产党收割，只能自认倒霉。
 
+自她报警之后，警察并没有帮她追回任何一分钱的投资损失，唯一得到的就是让自己变成了一个被实时监控的人物。
 
-5月7日塞林博士的推文，转贴一位推友“Hideki Kakeya, Dr. Eng.” 转推另一位推友“Alina Chan”的推文：如果你可以因此原谅中共国的病毒学家，那么我们也必须原谅阿道夫 . 艾希曼的暴行，因为他在纳粹统治下没有选择，而在全球化的今天，你可以选择离开中共国，这样来说，中共国的病毒学家比艾希曼罪孽更深。这是我们向前推进COVID-19起源真相揭示过程中定性的一个重要区别，“Hideki Kakeya, Dr. Eng.”伦理道德标准清晰，但“Alina Chan”因为年轻和阅历不够可以得到谅解，罪恶的中共国和美国科学家都必将为此负责。
+**“韭菜”的钱就是共产党的钱 **
 
+在共产党的领导下，老百姓的钱就是中共的钱，而且中共割“韭菜”的时候，百姓们不但不能抗议还得喊“高潮”，还得感谢党。共产党不灭，我们每天辛苦挣来的钱，某天都会被共产党以各种理由“收割”，最后化为乌有。感恩郭文贵先生和爆料革命，让中国人们有机会灭掉共产党，迎来新中国联邦。在新中国联邦，再也没有“韭菜”！
 
-
-> An important distinction going forward as we begin to address the true origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) – Moral clarity by [@hkakeya](https://twitter.com/hkakeya?ref_src=twsrc%5Etfw) 
-> But [@Ayjchan](https://twitter.com/Ayjchan?ref_src=twsrc%5Etfw) can be forgiven for her youth and inexperience. Both culpable Chinese Communist Party scientists and U.S. scientists must be held accountable. [pic.twitter.com/Jo8LNGDpT5](https://t.co/Jo8LNGDpT5)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 7, 2021](https://twitter.com/LawrenceSellin/status/1390541434390994945?ref_src=twsrc%5Etfw)
-
-
-
-5月8日塞林博士2连推：
-
-第1推，转贴一位叫“风云九霄-文萧” 战友的中文推：杜兰英感觉有问题啊，参与度很深，而且拿了很多美国NIH的经费，难道福奇能不知道？她老公好像是病毒专家周育森，去年突然去世，并附上杜的研究合作人脉网络图片。COVID-19侦探“风云九霄-文萧”的出色工作，呈现出了COVID-19病毒研究的部分网络。
-
-
-
-> Great work by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@Dr\_Water2020](https://twitter.com/Dr_Water2020?ref_src=twsrc%5Etfw)
-> showing the COVID-19 network.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaPandemic](https://twitter.com/hashtag/CoronaPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/nNCIDg78rZ](https://t.co/nNCIDg78rZ)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 8, 2021](https://twitter.com/LawrenceSellin/status/1391050716844802057?ref_src=twsrc%5Etfw)
-
-
-
-第2推，是一中英混合推，COVID-19侦探“Sweet Journey”呈现了在WIV工作的CCP科学家王林发曾与PLA科学家合作，并贴上王林发与在长春军事兽医研究所工作的PLA科学家涂长春等合作的相关信息的图片。
-
-
-
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@SweetJourney1](https://twitter.com/SweetJourney1?ref_src=twsrc%5Etfw) shows that Chinese Communist Party scientist Linfa Wang has worked with the People's Liberation Army
-> COVID19 侦探@ SweetJourney1显示中国共产党科学家王琳法曾与中国人民解放军合作[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/HKIbF1K8xS](https://t.co/HKIbF1K8xS)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 9, 2021](https://twitter.com/LawrenceSellin/status/1391236844214423554?ref_src=twsrc%5Etfw)
-
-
-
-COVID-19病毒研究网络涉及全球病毒研究行业，尤其是中美两国该行业的几乎所有资源，包括两国军方、政府、生物和病毒科研机构及其实验室、卫生防疫机构、大学、科学家和媒体，其深度和广度都史无前例、空前绝后。
-
-现在，COVID-19疫情的背景和轮廓基本上已经比较清晰地呈现在世界的面前了：这是一场CCP苦心策划、精心准备的以COVID-19病毒为武器的超限生物战，始作俑者，总魔头就是CCP，野心启发于二战日本关东军在东北的731和100部队，总司令是PLA，总参是AMMS，长春军事兽医研究所及其关联的科研机构是生物武器冠状病毒“产学研”一体化的全产业链，WIV只是CCP发起战争的一支先头精锐部队。
-
-超限生物武器COVID-19病毒在实验室得以人工制造的理论基础，来自被PLA广泛而深度渗透的美国病毒研究的成果。由CCP的冠状病毒技术总监、世界毒王马利克主导，对冠状病毒基因系列人工改造和优化，将其生物武器化。国际分工合作，国内实验制造。
-
-COVID-19病毒得以实现的几个关键转折点是：王长军发现舟山蝙蝠冠状病毒ZC45和ZXC21是其基础骨架，姜世勃将福临酶切位点插入病毒骨架基因系列的技术是制造该病毒的技术突破和保障，法国援建的武汉P4实验室是CCP在国内广建病毒实验室的技术基础，成为CCP-PLA研究和制造COVID-19病毒的军工厂，美国提供的资金成为CCP生物战财力的重要补充。关键手段是BGY，渗透和绑架天敌美国，建立病毒研究国际网络，姜世勃、周育森与杜兰英夫妇等成为联结这个网络上中美科学家的连接节点，夏咸柱等8位来自AMMS的两院院士是COVID-19病毒“产学研”甚至投放一体化技术执行的总工程师。
-
-将CCP病毒科学家与纳粹德国在犹太人大屠杀中的“最终方案”的决策者，人称“死刑执行者”的阿道夫 . 艾希曼相提并论是不恰当的，艾希曼当时有别无选择的因素，而当今全球化下的CCP科学家有选择离开中共国的机会，所以对罪恶更加深重的CCP科学家的追责和清算也更加坚决和彻底！
-
-校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+（文章内容仅代表作者观点）
 
 0
