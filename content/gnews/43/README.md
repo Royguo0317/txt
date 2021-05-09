@@ -1,28 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Twitter允许其用户向自己喜欢的用户“打赏”
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1194186/)
+## 【香草诗词汇】我要为自己而灭共
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1194344/)
 
-- 作者： Boxinglady
+作者：纽约香草山媒体部 蚊子
 
-![]()![](https://gnews.org/wp-content/uploads/2021/05/smartphone-586944_1920.jpg)
-新的“打赏”旨在帮助受欢迎的用户从他们的工作中赚钱，但因公开一些用户的地址而受到批评。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02191345/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
 
-Twitter用户现在可以通过数字“小费罐”直接向他们最喜欢的网红，慈善机构和新闻工作者汇款。
 
-该社交网络表示，它希望为用户提供一种新的方式来从其服务中赚钱，而不必依赖短暂的赞和转发。但是，该系统也可能使Twitter的虚假信息问题恶化，或者使它更容易遭受欺诈。
 
-但是，研究该系统的安全专家发现，通过Paypal支付小费有时会将打赏人的完整地址暴露给接收者，从而引发安全隐患。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09112442/image0-51.jpg)
 
-测试客户网络漏洞的黑客雷切尔·托巴克（Rachel Tobac）表示：“ PayPal必须明确向收款人提供哪些数据，并停止共享该数据》
+为了拿回选择权利，我必须消灭共产党；
+为了财产不被抢夺，我必须消灭共产党；
+为了吃上安全食品，我必须消灭共产党；
+为了呼吸无霾空气，我必须消灭共产党；
+为了看到真实新闻，我必须消灭共产党；
+为了躲过新冠投毒，我必须消灭共产党；
+为了活得安全幸福，我必须消灭共产党；
+为了我自己的一切，我必须消灭共产党！
 
-**简评：众所周知前任美国总统川普在推特上有超过8千万的粉丝，自从禁止川普总统在推特上发声后，很多川粉们集体弃用推特转向其他自媒体平台，造成推特丢失大量用户与利润大减。现在推特不得不挖空心思使用新的手段吸引客户**。
+校对/发稿：飞虹
 
-**平台打赏的方法并不是一个新概念，在油管等其他自媒体已经普遍使用，而目前均是通过第三方平台如 Paypal 进行打赏支付，这种有泄露个人信息的隐患引来争议与担忧。而郭文贵先生打造的G系列平台上的打赏功能开启后，将以喜币方式进行打赏，将是一个无与伦比的保护个人隐私的完美安全的G商圈。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01143151/M5.jpg)
 
-本文只代表个人观点，不代表 Gnews 平台
 
-新闻来源：[NEWS WEBSITE OF THE YEAR](https://www.telegraph.co.uk/technology/2021/05/06/twitter-users-send-cash-tips-favourite-users/)
 
-+1
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
