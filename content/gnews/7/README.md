@@ -1,58 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【独立观点】香港的苦路
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1194887/)
+## 【热点播报】中共与土耳其的疫苗外交
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1194831/)
 
-作者：纽约香草山健身部 Ivy001
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
+作者：纽约香草山写作四组     静水流深
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09133649/%E5%9B%BE%E7%89%873-15.png)图片来源：纽约香草山圣城香港🇭🇰
-
-踏上斑驳石阶
-耳边响起
-Via Dolorosa
-忍着痛
-走过每一步
-多崎岖 心煎熬
-漫漫长 苦路
-走上Via Dolorosa
-每一级阶梯
-都是通往自由的方向
-踏出每一步
-都带着你我的向往
-香港的Via Dolorosa
-为你 为我
-救赎的苦路
-受苦之路
-Via Dolorosa
-香港的Via Dolorosa
-
-注：Via Dolorosa 是一首著名的圣诗歌，译作苦路，也有译作哭路的。同时，它也是在耶路撒冷一段小路，指：耶稣基督最后背着十字架，戴着荆棘冠，为世人受苦所走的最后一段路。耶稣说，“若有人要跟随我，就当舍己，背起他的十字架来跟随我。”
-
-每次看到这张香港的照片，我都是泪目。在这里用这个耶路撒冷的苦路，Via Dolorosa 来借代香港的这条路。香港，是我们的圣城。
-
-香港，加油！
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
+
+法新网（rfi）2021年5月7日刊文“土耳其首度证实，批评维吾尔族议题不利于采购中共国疫苗”。
+
+![中国与土耳其关系报道图片](https://s.rfi.fr/media/display/a563942a-af0f-11eb-8646-005056a9b1a7/w:980/p:16x9/ztgxtn.webp)图源网络
+
+文章来源于中央社的报道，称土耳其卫生部长扎克日前首度含蓄地证实，在野党就中（共）国迫害维吾尔人予以谴责，可能已经对土耳其向中（共）国采购新冠肺炎疫苗造成了不利的影响。土耳其已于1月14日如火如荼地展开了大规模的疫苗接种工作，其疫苗接种数据一度居全球第6，但却因缺乏进一步地疫苗供应而后继无力。据土耳其官方说，依照既有合约，土耳其共有2亿4000万剂科兴、辉瑞（Pfizer）、俄罗斯卫星-V（Sputnik-V）疫苗，官方强调，这数字是土耳其人口的3倍。
+
+中共又一次用疫苗外交，用它的“战狼”外交风格对土耳其进行了施压。尽管土耳其在野的民族主义政党好党（lyi Party）党魁阿克谢纳尔（Maral Aksener）表示：“维吾尔突厥人在中共国已经成为一场真正的种族灭绝的目标……克扎真可耻，突厥穆斯林妇女遭到强暴、蒙受种族灭绝，他却假装那是个我们不应该去挑起的敏感议题。”
+
+中共真的是可恶至极：先制造病毒，再向世界投毒，然后又用疫苗来作为交换手段，掐住他国的命脉。而土耳其，明知中共的恶，越又不得不因为疫苗而向中共低头。
+
+目前，全球已经有很多个国家因为接种中共国的疫苗而使感染病例继续上升，南美国家智利就是一个很悲惨的案例。2021年2月，智利接种疫苗活动的成功让整个世界感到惊讶，但3个月后，智利出现了第二次破坏性的浪潮——全国95%的重症监护病床被占用，医院严重拥挤。智利大学的研究人员于4月6日发表的一项研究认为，中共的疫苗在第二次接种的两周后对预防COVID-19感染的效果为56.5%，单次接种几乎不提供任何保护，其有效性仅为3%。
+
+智利在用生命的代价为中共疫苗做小白鼠，还让中共获得了巨大的经济利益和政治利益。而土耳其当局却还在担心，对中共种族灭绝行为的谴责会不利于采购中共国疫苗。中共的疫苗非但保护率不高，还会带来灾难。这是什么世道啊！作恶的人无视生命的可贵，继续肆无忌惮地作恶，并以恶来威胁人民、威胁其他国家。而手无寸铁的人民、对中共严重依赖的其他国家却仍然看不清事实的真相，还在继续向中共求饶。
+
+醒醒吧，中共恶魔当道，没有人能够幸免。
+
+参考阅读：
+
+[土耳其首度证实：批评维吾尔议题不利采购中（共）国疫苗](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210507-%E5%9C%9F%E8%80%B3%E5%85%B6%E9%A6%96%E5%BA%A6%E8%AF%81%E5%AE%9E-%E6%89%B9%E8%AF%84%E7%BB%B4%E5%90%BE%E5%B0%94%E8%AE%AE%E9%A2%98%E4%B8%8D%E5%88%A9%E9%87%87%E8%B4%AD%E4%B8%AD%E5%9B%BD%E7%96%AB%E8%8B%97)
+
+[这个国家向人们展示： 疫苗不是结束中共病毒的有效手段](https://gnews.org/zh-hans/1148091/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
+
 
 0
