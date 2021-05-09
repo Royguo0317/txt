@@ -1,67 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】于无声处惊雷电
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1194374/)
+## 【尼泊尔】对感染高峰期表示警觉 危机可能会比印度严重
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1194406/)
 
-作者：纽约香草山健身部 回响
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09121401/%E5%9B%BE%E7%89%872-18.png)
-
-夜，似乎越来越黑 越来越暗
-路，似乎越走越累 越走越远
-看不清两岸
-看不清对面
-仅有的灯
-竟然也忽隐忽现
-
-知道有海
-知道有山
-知道世界本来就是靓丽风景线
-然而 黑暗 暗黑
-吞噬一切 笼罩万物
-窒息中，几乎每一步
-都会坠入
-深渊
-万劫不复
-——多少
-一声长叹
-四顾茫然
-哪里是生天
-
-那风来，如龙卷
-地覆天翻
-才知道孕育了28年；
-那雷声，震翻云帘
-才知道 何谓狮吼怒冲冠
-那闪亮，照孽障 曝真相
-霹雳惊心一瞬间
-
-千万别以为
-正义从此无颜
-良知永远低头
-善注定被恶强奸
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+```
+新闻来源：意大利晚邮报（Corriere Della Sera）
+发表时间：2021年5月7日
+翻译整理/简评：斩草要除根
+```
 
 
+![]()![](https://gnews.org/wp-content/uploads/2021/05/nepal-covid-1200-690x362-7.jpg)图片来源：ilfattoquotidiano.it
 
-**更多资讯，更多关注**
+尼泊尔正努力应对冠状病毒感染的激增之势，人们担心一场比印度还要严重的灾难。自本月初以来，病例的增加势不可挡。大流行开始以来，该国已记录了近36万例感染和3,475人死亡的记录。现在，每10万人每天约有20例感染，这与两周前印度在亚洲巨人的情况开始恶化时的百分比相同。
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+该国是世界上最贫穷的国家之一，该国还面临着医疗设备差的强大压力，以应对令人震惊的新冠病例增加，人们认为，印度人的感染是导致感染增加的主要原因，因为许多尼泊尔人都在印度的公司工作，每天越境。此外，尼泊尔有一个大型的印度教徒社区，最近几周的大型宗教聚会，如“邻居”所发生的那样，增加了该病毒传播的风险。为了制止这种浪潮，尼泊尔总理卡德·普拉萨德·沙尔玛·奥利（*Khadga Prasad Sharma Oli*）暂停了所有国内和国际航班，直到5月14日，并对该国各个地区，包括加德满都谷地，实施了禁运。
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+亚太红十字会主席亚历山大·马休（*Alexander Matheou*）告诉《卫报》：“我们必须立即采取行动，以期遏制这种人类灾难。” 由于感染开始每5天增加一倍，政府承认这种情况“可能会失控”。但众多的跨境商业活动，跨境交通流量仍然很高。此外，许多印度人已逃往尼泊尔，希望找到更好的医疗保健。医院陷入困境，那些被迫在地板上或院子里医治病人的医院将这种情况描述为“战区”。
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+#### 简评：
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+**新冠疫情大流行对贫困国家的冲击无疑是巨大的，不仅极大威胁了人民的生命安全，同时也遭受着严重的经济损失，更多的人将陷入贫穷和食物危机。和其它国家相比，最贫穷的国家面临的逆境要严峻得多，他们的应对能力和修复能力是极其脆弱的。很多国家必定会被这场大灾难打击得遍体鳞伤，这也是非常残忍的现实：贫瘠的医疗系统需要与疫情进行艰难的抗争，数以百万计的生计被摧毁，而我们却无计可施。**
+（本文仅代表译者个人观点，跟GNEWS平台无关。）
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**新闻原文链接：**
+🔗[Nepal, allarme per il picco di contagi Si rischia una crisi peggiore dell’India](https://www.corriere.it/esteri/21_maggio_07/nepal-allarme-il-picco-contagi-si-rischia-crisi-peggiore-dell-india-5b784e5c-af1c-11eb-88d7-96131257b1d6.shtml)
+
+* * *
+
+***编辑整理/校对: **Ting Guo*
 
 0
