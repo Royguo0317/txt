@@ -1,23 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 病毒人造证据“堆积如山”，美议员呼吁调查确认
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1191257/)
+## 卢比奥称中共已被美大公司代理
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1191612/)
 
-加拿大多伦多枫叶农场 军迷Wilson
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-据布莱巴特新闻网5 月 8 日报道，美国众议员迈克·加拉格尔（Mike Gallagher）在本周五的福克斯访谈节目中声称，当前全世界几乎所有的研究证据及科学发现都指向CCP病毒来自实验室而非自然进化，议员作为美国最高权力机构的主要成员，“应该知道”病毒到底从哪里来。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08222213/gannett-cdn.com-2-1.jpg)*图片来源：gannett-cdn.com*
-迈克进一步表示，病毒来自实验室的证据已经“堆积如山”，我们为什么迟迟不作深入的探究，有一个最终的、确定的结论呢？从迈克的话中，可以感受到病毒来自中共武汉实验室的真相已经呼之欲出。
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/A-11.jpg)scmp.com
+面对利益的诱惑，大公司仍然对邪恶的中共不敢说“不”字，参议员卢比奥批评了苹果、脸书（Facebook）对中共唯唯诺诺的作法。
 
-现任美国传染病研究所所长兼总统首席医疗顾问福奇和世卫顾问达扎克，利用美国纳税人的钱长期资助武汉病毒研究所，其中达扎克的生态健康联盟，对武毒所的资助计划要在4年后才结束。早有耳闻的迈克强调，我们还要调查美国的资金是否参与了（中共）该项损害美国的实验室病毒增强改造研究。
+《布雷特巴特》发表文章，“卢比奥：中共国已授权美国企业成它的代理人以推动对中共国的友好政策，而苹果公司的库克（Apple’s Cook）不能自由地谈论中共国”。
 
-俄罗斯国家杜马（议会下院）主席沃洛金 2月27日宣称，CCP病毒可能从位于中共国的一家美国生物实验室泄漏，美国应该对疫情后果负责。沃洛金所指实验室就是武毒所，福奇和达扎克都是使用美国政府的拨款资助了武毒所，美国政府要完全撇清和中共以及武毒所的关系并不容易。因此美国只有积极追究达扎克等人的责任，尽快发布确定中共发动超限生物战的白皮书，才是最明智的做法。
+文章介绍，5月7日在“休·休伊特秀”（Hugh Hewitt Show）节目上，参议员卢比奥说，中共国已被美国大公司“代理”，来推动有助于中共国的政策，并表示他不认为苹果首席执行官蒂姆·库克（Tim Cook）可以自由地谈论他对中共国的看法，（同样）脸书的首席执行官马克·扎克伯格（Mark Zuckerberg）也不想站在中共国的对立面。
 
-[原文链接](https://www.breitbart.com/clips/2021/05/08/gop-rep-gallagher-evidence-stacking-up-supporting-lab-leak-theory-on-covid/)
+卢比奥说，中共国授权“美国大公司及其领导人成它的代理人，在美国推动和呼吁有利于中共国利益的政策”。
 
-* * *
+他补充说，这些美国企业希望能够在中共国开展业务和生产产品。
 
-编辑 发稿 云起时
+主持人休·休伊特（Hugh Hewitt）接着问道：“你认为苹果首席执行官蒂姆·库克能够畅所欲言地谈论中共国吗？”
 
-0
+卢比奥回答说：“不，绝对不会。”
+
+休伊特随后询问扎克伯格的情况，卢比奥回答说，“脸书虽然不在中共国，但我认为，他们越来越担心中共国在世界其他国家日益增长的电信影响力。所以他们不想在其他地方遇到问题，中共的人去某个国家说，嘿，你应该摆脱脸书，用我们版本的脸书取代它。我想他们一定很担心这个，我认为他仍然梦想并希望有一天，他们能够进入中共国。”
+
+贪图眼前利益、无节操的大公司，无视中共的邪恶，至今不愿与中共脱钩、划清界限，还抱有幻想，心怀期待，当你被中共驯服的时候，你们差不多就该被“共产”了。
+
+奉劝大公司们，接受卢比奥参议员的劝告，要勇于对邪恶说“不”！
+
+原文链接：
+
+[https://www.breitbart.com/politics/2021/05/08/rubio-china-has-deputized-american-businesses-to-push-for-china-friendly-policies-apples-cook-cant-speak-freely-about-china/](https://www.breitbart.com/politics/2021/05/08/rubio-china-has-deputized-american-businesses-to-push-for-china-friendly-policies-apples-cook-cant-speak-freely-about-china/)
+
++1

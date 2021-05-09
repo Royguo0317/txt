@@ -1,43 +1,93 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日邮报：证据表明中共多年来在为三战准备基因武器
-` 坐看云起时` [轉載自GNews](https://gnews.org/zh-hans/1190405/)
+## 对中共病毒来源的认知可将美政界分为五类
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1190600/)
 
-加拿大多伦多枫叶农场 云起时
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-《每日邮报》（Daily Mail)5月7日发表了重磅长篇报道，指出美国国务院获得的重要文件表明，在过去的六年里，中共一直在为用包括冠状病毒在内的生物基因武器进行的第三次世界大战做准备。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08175433/prepareforchange.net-2.jpg)*图片来源：prepareforchange.net*
-政府高层人士表示，在人们对中共实验室活动缺乏监管的担忧日益增加的情况下，这份文件使人们对中共高层的真实意图 “提出了重大关切”。
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/O-4.jpg)news.yahoo.com
+笔者将美国要员对中共病毒的认知分成以下几类：
 
-根据美国调查人员获得的一份文件，在过去的六年里，中共国科学家一直在为用包括冠状病毒在内的生物和基因武器进行的第三次世界大战做准备。
+完全彻底的认知，即中共病毒是超限生物武器，如纳瓦罗、班农、塞林博士、巴西总统等；
 
-美国国务院获得的这份爆炸性文件中认为生物和基因武器将是冲突中 “胜利的核心武器”，甚至概述了释放生物武器的完美条件，并记录了它将对 “敌人的医疗系统 “产生的影响。
+清醒的认知，即中共病毒是实验室人造产物，如罗伯特·雷德菲尔德博士（Robert Redfield）、CNN首席医学记者桑杰·古普塔（Sanjay Gupta）等；
 
-这个最新的证据表明，中共早在2015年就考虑了SARS冠状病毒的军事潜力，这也引起了人们对中共病毒起源的新的担忧，一些官员坚持认为病毒是来自于中共国的实验室。
+肤浅的认知，即中共病毒有可能是，或不排除是实验室产物，如题目所述，情报总监艾薇儿·海恩斯（Avril Haines）、CIA主任威廉·约瑟夫·伯恩斯（William Joseph Burns）、NIH主任弗朗西斯·科林斯（Francis S. Collins）；
 
-中共文件的作者认为，与前两次战争不同，第三次世界大战’将是生物战争’。在文中，前两次战争分别被描述为化学和核战争。 他们声称生物武器将是第三次世界大战中 “胜利的核心武器”。
+糊涂的认知，即中共病毒来自自然，认为实验室等说法者是阴谋论者，或受惠于中共人士；
 
-该教材文件还概述了释放生物武器并造成最大破坏的理想条件。 教材中的科学家们说，这种攻击不应该在晴天中进行，因为强烈的阳光会破坏病原体，而雨或雪会影响气溶胶颗粒。相反，它应该在夜间，或在黎明、黄昏或多云天气下释放，’风向稳定……以便气溶胶能够飘到目标区域’。   同时，研究还指出，这种攻击将导致需要医院治疗的病人激增，然后’可能导致敌人的医疗系统崩溃’。
+除此之外，还有类似老贼福奇、及其爪牙达扎克，为魔共遮掩、辩护之流。
 
-外交事务委员会主席汤姆-图根哈特（Tom Tugendhat）议员说：”这份文件引起了人们对一些为党的最高领导层提供建议的人的野心的重大关切。即使在最严格的控制下，这些武器也是危险的。 ”
+5月7日的白宫新闻发布会，通过记者与白宫发言人普萨基（Psaki）的问答得知，拜登受老贼福奇等的影响，是拜登政府对中共病毒溯源及追责进展缓慢的原因之一，也了解到一些对中共病毒肤浅认知的要员。
 
-化学武器专家哈米什-德-布雷顿-戈登说（Hamish de Bretton-Gordon）：”中共国挫败了所有监管和监督其可能进行过此类实验的实验室的努力。”
+记者问：关于中共病毒，福奇和国家健康研究院（NIH）资助武汉病毒实验室的功能增强实验是一个公开的记录，既然那个实验室有问题，为什么福奇和美国要资助中共国实验室的那种实验，那种研究？
 
-在这名为《非典非自然起源和人制人新种病毒基因武器》的教材文件中说道：’随着其他科学领域的发展，生物制剂的投放也有了重大进展。 例如，新发现的冻干微生物的能力使储存生物制剂和在攻击时将其气溶胶化成为可能。”
-![]()![](https://gnews.org/wp-content/uploads/2021/05/基因武器.jpg)
-分析人士说，该书有18名作者曾在 “高风险 “实验室工作。
+普萨基女士：对不起，我听不太清楚，你的-你提的问题的开始部分是什么？
 
-《澳大利亚人报》（The Australian）报道了中共军方科学家和卫生官员的档案，并详细地报道了以”前所未有的方式”操纵疾病以制造武器的研究方式。
+问：我说国家健康研究院和福奇为武汉病毒实验室提供了资金，当我们谈论实验室泄漏理论时，这就是问题所在。既然功能增强研究是不确定的，为什么美国会给中共国资金呢？为什么福奇会这样？
 
-澳大利亚战略政策研究所执行主任彼得-詹宁斯（Peter Jennings）也对中共对冠状病毒的生物研究可能被武器化表示担忧。 他说：”对研究能力没有明确的区分，因为它是用于进攻还是防御，不是这些科学家会做出的决定。 如果你表面上是为了保护你的军队免受生物攻击而培养技能，那么你同时也在给你的军队提供使用这些武器的能力。你不能把这两者分开。“
+普萨基女士：我很愿意把你的问题转给国家健康研究院，他们会向你介绍他们资助项目的更多细节。
 
-就在本周，巴西总统贾伊尔-博尔索纳罗（Jair Bolsonaro）在周三的新闻发布会上似乎强烈批评中共国，指责中共国制造中共病毒以引发一场化学细菌放射 “战争”。
+问：现在，我还有一个后续的问题-
 
-“没有人知道它是在实验室中诞生的，还是因为人类吃了一些他们不应该吃的动物，”博尔索纳罗说。“但它就在那里。军队知道什么是化学战、细菌战和放射性战。我们不是面临一场新的战争吗？哪个国家的GDP增长最多？我不会告诉你”。
+普萨基女士：好的。
 
-虽然博尔索纳罗在演讲中没有提到中共国，但经济合作与发展组织的数据显示，中共国是唯一一个在2020年大流行期间国内生产总值出现增长的20国集团成员，扩大了2.3%。
+问：因为总统还没有真正参与进来，福奇是拒绝相信实验室泄露理论的声音之一，但现在拜登政府中有更多的官员——比如国家情报局局长、中情局局长，现在还有国家卫生研究院院长——说不能排除这种可能性，有人呼吁对其进一步调查。
 
-[原文链接](https://www.dailymail.co.uk/news/article-9556415/China-preparing-WW3-biological-weapons-six-years-investigators-say.html)
+总统同意谁的观点？福奇的，还是其他官员的？他认为这是实验室泄漏吗？
+
+普萨基女士：总统说过，我在这里也说过很多次，需要通过世界卫生组织进行可信的、独立的调查，而这个调查依赖于数据，依赖于中共国和其他可能掌握信息的国家的参与。这当然是每个人都呼吁的，我们期待着这种情况的发生。
+
+问：为什么总统还没有和习主席谈中共病毒起源？他说，就在几周前，他还没有。
+
+普萨基女士：我想我们已经读过了他们的通话，总统还认为，应该有一个由卫生专家领导的独立调查，一个提供他们数据的调查——这些数据对我们美国的医学和科学专家是透明的，我们期待着重新审查这些。
+
+我们得继续，下一个，我很抱歉。
+
+问：如果那是实验室泄漏，总统会……（听不见）-
+
+普萨基女士：对不起，埃默洛尔德（Emerald），我想你今天问了很长时间了。
+
+……
+
+（完）
+
+由此可以了解拜登在公开场合对中共病毒的态度，没有明确表达，而且普萨基代他吞吞吐吐。可喜的是，像记者埃默洛尔德女士对中共病毒认知程度至少是“清醒级别”的越来越多，他们正在唤醒着美国民众，也在督促着美国政府推进追责。
+
+白宫记者招待会有关中共国部分的文字整理：
+
+Q：And then on the coronavirus: It’s a matter of public record that Dr. Fauci and the NIH funded gain-of-function experimentation, research at the Wuhan Lab of Virology.  And given the questions about that lab, why would Dr. Fauci and the U.S. fund that kind of experiments, that kind of research at a Chinese lab?
+
+MS. PSAKI:  The — I’m sorry.  I can’t hear you super well.  What was the beginning part of your comment — of your thing — of your question?
+
+Q：I said that the NIH and Dr. Fauci had provided funding to the Wuhan Lab of Virology.  That’s the lab in question when we talk about the lab-leak theory.  And given that gain-of-function research is dicey, why would the U.S. fund that in China?  Why would Dr. Fauci?
+
+MS. PSAKI:  I’m happy to send you to the NIH about more specifics of what program they funded and more details of that.
+
+Q：Now, I do have one more follow-up on that —
+
+MS. PSAKI:  Okay.
+
+Q：because the President hasn’t really weighed in.  Dr. Fauci is one of the voices who discredit the lab-leak theory, but now there is more officials in the Biden administration — like the Director of National Intelligence, the CIA Director, and now also the NIH Director — who say that this cannot be ruled out, and there is calls for more investigation into it.
+
+Who does the President agree with — Dr. Fauci or the other officials?  Does he think this — it was a lab leak?
+
+MS. PSAKI: Well, the President has said, and I’ve said from here many times, that there needs to be a credible, independent investigation through the World Health Organization, and tha- — one that relies on data, relies on participation from China and other countries that may have information.  That’s certainly something everybody has called for, and we look forward to that happening.
+
+Q：Why hasn’t the President spoken with President Xi about the origins of the coronavirus yet?  He said, just a few weeks ago, he hadn’t yet.
+
+MS. PSAKI: I think we have given a readout of his call. And also that the President believes there should be an independent investigation led by health experts, and one where their data is provided — that’s provided transparently to our medical and science experts here in the United States. And we look forward to reviewing that.
+
+We’re going to have to go on.  Go ahead.  I’m sorry.
+
+Q：If that was a lab leak, will the President be committed to (inaudible) —
+
+MS. PSAKI: I’m sorry, Emerald. I think you’ve had plenty of time today.
+
+有关链接：
+
+[https://www.whitehouse.gov/briefing-room/press-briefings/2021/05/07/press-briefing-by-press-secretary-jen-psaki-and-secretary-of-the-treasury-janet-yellen-may-7-2021/](https://www.whitehouse.gov/briefing-room/press-briefings/2021/05/07/press-briefing-by-press-secretary-jen-psaki-and-secretary-of-the-treasury-janet-yellen-may-7-2021/)
 
 0
