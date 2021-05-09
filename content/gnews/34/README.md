@@ -1,66 +1,151 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 习近平要让美国出来给病毒背书&nbsp; 然后私下承诺什么都可以谈&nbsp; 否则…
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1191123/)
+## 中共国六年前就在准备用生物武器包括冠状病毒发动第三次世界大战
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1191100/)
 
-**摘要：在2021年5月1日的盖特视频中，郭先生揭露了目前中共党内政治斗争目前非常激烈；中共想要做的是让美国为病毒的泄露说或自然来源说背书，然后私下承诺什么都可以谈，否则将要发动台湾战争来转移大众视线，将焦点由病毒转移至战争；同时，以战争来要挟世界上的其他国家，如印度、日本和澳大利亚，让他们对病毒真相保持沉默。**
+翻译：烟波浩淼|校对：雨山溪桥客|审核：断播
 
-**习近平现在是中南海的“光杆司令”，党内没人敢讲国内经济形势以及世界政治形势的真话。一旦发动了台海战争，习愿意牺牲成百上万的军人！他认为，当战争中的死亡人数达到一定程度时，美国会变心软而不愿再战。中共的底线是，只要不打北京，死多少人都可以。战争胜利后，习将专心清理王岐山、曾庆红、江泽民等政敌。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08220011/Miles_20210501-getter1.srt.txt)
-**习近平要让美国出来给病毒背书****  ****然后私下承诺什么都可以谈****  ****否则****…**
+**据中国人民解放军2015****年撰写，美国国务院披露的档案，中共国六年前就在准备用生物武器，包括冠状病毒，发动第三次世界大战**
 
-**Xi Is Willing to C****ompromise Anything Economically If the U.S. Endorses the CCP, Otherwise…**
+- **自2015年以来，中共一直在考虑SARS冠状病毒的军事潜力**
+- **美国国务院调查人员查阅了这份重磅文件**
+- **科学家们以“前所未有的方式”研究了对疾病的操纵**
+- **外交事务委员会的汤姆图根达特（Tom Tugendhat）说，证据是一个“主要担忧”**
 
-现在国内形势非常紧张，大家都看到了现在党内都知道曾、王、习大战已经到了中期段落了。作为姥姥家是福建的曾庆红、山东人的儿子王岐山和河南人的儿子长在陕西的习大神，这一波较量到了最关键的时刻。
 
-Currently, the domestic situation in China is very tense. You all have seen it. Everybody in the CCP knows that the battle between Zeng (Qinghong), Wang (Qishan), and Xi (Jinping) has reached the mid-stage. Zeng Qinghong’s grandmother is from Fujian. Wang Qishan is a son of Shandong. The great god Xi (Xi Jinping) is a son of Henan, and grew up in Shanxi. This wave of competition between them has reached the most critical moment.
+根据美国调查人员获得的一份文件，中共国科学家在过去六年里一直在用包括冠状病毒在内的生物和基因武器进行的第三次世界大战做准备。
 
-而且最近共产党内部已经明确了，非常清楚的一定要打好冠状病毒这一仗。打好冠状病毒仗是什么呢？就是让美国必须站出来为共产党背书，让美国说这是武汉实验室泄露或来自自然，跟共产党没有关系。让美国出来背书，然后私下承诺什么都可以谈，经济上怎么都可以谈，同时做好「准备」如果美国不这么做就打台湾。「在」台湾、南海跟美国干一场，做好牺牲50万所谓的共产党人民解放军战狼的准备，把美国这届政府打垮，把美国的经济打垮，让全世界的注意力全注意到台湾和南海之战上去，不再谈管状病毒。这说明了什么兄弟姐妹们？说明了共产党知道冠状病毒会要它的命。
+美国国务院获得的这份重磅文件中坚称，在这样的冲突中，生物武器将是“取得胜利的核心武器”，甚至概述了释放生物武器的最佳条件，并记录了它将对 “敌人的医疗系统 “产生的影响。
 
-It has recently been made clear within the CCP that they must fight this coronavirus battle cleverly. How to fight the coronavirus battle? By making the United States endorse the CCP, make the U.S. say that the coronavirus is either leaked from the Wuhan lab, or that it came from nature and it has nothing to do with the CCP. If the U.S. endorses the CCP, the CCP can privately talk with the U.S., promise everything, and compromise anything economically. At the same time, the CCP is prepared to attack Taiwan if the U.S. does not do as it wants. They are prepared to go to a war with the U.S. in Taiwan and in the South China Sea and to sacrifice 500,000 wolf-warrior soldiers from the People’s Liberation Army (PLA) of the CCP, to bring down the current U.S. administration and knock down the U.S. economy. The CCP wants to distract world’s attention from the coronavirus pandemic to the war in Taiwan and the South China Sea. What does this mean, brothers and sisters? It shows that the CCP knows that the truth about the coronavirus will end its life.
+这个最新的证据表明，中共早在2015年就考虑了SARS冠状病毒的军事潜力，这也引发了人们对中共病毒致病原因的新担忧，一些官员仍然认为病毒可能从中共国的一个实验室泄漏的。
 
-同时要让印度彻底服软；要让日本感到恐惧；澳大利亚感到恐惧；要让美国人感到病毒的事情绝对不能去追究共产党的责任，绝对不能查真相，更不可能给你解药。当然这个战略一出来，习大神孤家一人了。中南坑改成习一坑了，因为只有习近平一个在城坑里边了，所有的常委的人都跑出去了，找各种理由溜出去就「是」不在中南坑里待着了，给你习一个人的，叫习一坑，习一坑。就现在给你吧。就像我告诉大家的一样：整个中南坑现在就俩人跟着，就习相信的 — 杨娘娘、王公公。
+这中国人民解放军科学家和卫生官员的档案，其详细内容在《澳大利亚时报》上有报道，研究了操纵疾病以“前所未有的方式”制造武器的情况。
 
-Meanwhile, the CCP wants to completely subdue India, to terrify Japan, to frighten Australia, and to make the U.S. abandon the idea of holding them accountable for the coronavirus pandemic. The truth about the virus must not be investigated, and there is absolutely no possibility for them to give out the antidote. Of course, as soon as this strategy was revealed, the great god Xi became a one-person captain. The Zhongnan pit became Xi’s one-person pit because only Xi Jinping was left in this pit. All the CCP’s Standing Committee members have ran away. They found all kinds of excuses to slip out and do not stay in the Zhongnan pit anymore. “Here you are. This place is all yours, for you Xi Jinping alone. Let’s call it Xi’s one-man-pit. We give it to you now.” As I mentioned earlier, there are only two people standing with Xi in the entire Zhongna pit. Only two people whom Xi still trusts – Sissy Yang (Yang Jiechi) and Eunuch Wang (Wang Yi).
+政府高层人士说，在人们对中共国对其实验室活动缺乏监管的担忧日益增加的情况下，该文件对那些接近中国国家主席习近平的人的意图 “提出了严重担忧”。。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08214631/image002-9.jpg)在过去的六年中，中共国科学家一直在为第三次世界大战做准备，这些战争是使用包括冠状病毒在内的生物和遗传武器进行的，该文件的作者坚持认为，第三次世界大战“将是生物的”，不同于前两次分别被描述为化学和核战争。法新社|盖蒂图片![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08214958/image004-1.jpg)最新的证据表明，中共早在2015年就考虑过SARS冠状病毒的军事潜力，这也引起了人们对中共病毒病因的新恐惧，一些官员仍认为该病毒可能已经从中共国实验室中逃逸了。法新社|盖蒂图片
+该文件的作者坚持认为，第三次世界大战“将是生物的”，不同于前两次分别被描述为化学和核战争。
 
-现在所有的外交部还有中国金融系统给习作报告「的时候」，像4月份这个经济报告，大家说一定不能说实话，不能把民生的事说出来，不能把许家印的恒大说出来，更不能把招商银行「说」出来，也不能把平安的事情说出来，也不能特别是「把」现在香港的经济形势说出「来」，「只能编」各种瞎话的骗人。现在来自于中东的捷报频传和非洲司的外交部的捷报频传掩盖了世界上向中共讨要冠状病毒真相，和全世界都在加剧憎恨共产党同时，怪罪亚洲人的真相。一切都被盖住了，一切都被盖住了。所以说现在习大神叫习一坑，「他」活得很滋润，叫打好冠状病毒这一场「仗」，让印度彻底跪下来，让日本感到恐惧。「如果」你不恐惧，下个就是你。让澳大利亚彻底害怕，不行就给你来一剂猛「药」。让全世界看：看到没有？给我对抗的结果就是这个，这是真正的「他们的想法」。
+有研究表明，投在日本的两颗原子弹迫使他们投降，并导致了二战的结束，他们声称生物武器将是第三次世界大战“胜利的核心武器”。
 
-Currently, when the Ministry of Foreign Affairs and Ministry of Finance make presentations to Xi (e.g. the economic outlook report published in April), everybody says that you must not tell the truth. You cannot tell the truth about Minsheng Bank, about Xu Jiayin and his Hengda Group, definitely not mention the troubles at China Merchant Bank, at Ping An Insurance, and particularly don’t mention the current economic situation in Hong Kong. Just make up all kinds of nonsense to deceive him. Now there is triumphant news coming out of the Middle East, and good news keeps pouring in from the Department of African Affairs at the Ministry of Foreign Affairs. This helps to cover up the truth that the world is asking the CCP for the truth about coronavirus, and that the hatred towards the CCP is intensifying around the world. At the same time, Asians are being blamed for the pandemic. Everything is covered up. That’s why the great god Xi is called “one-person Xi” now. His life is pretty good. He demanded that the CCP has to win beautifully in the battle of the coronavirus. The strategy is to make India kneel down and then make Japan feel terrified. Because if you [Japan] do not back off, you will be the next target. Secondly, to make Australia completely terrified, otherwise Australia will get a dose of “strong medicine” [meaning virus] from the CCP. Make the world pay attention: “Have you seen what we (the CCP) can do? This is your destiny if you dare to confront us.” This is the CCP’s real plan.
+该文件还概述了释放生物武器并造成最大伤害的理想条件。
 
-党内现在大家都已经清楚了：曾、王挑战习一定会有一方倒下或者全倒下。现在曾庆红每天都活在他姥姥家 — 福建，邓六金的老家。「他」那是有想法的。
+科学家们说，这种攻击不应该在晴天进行，因为强烈的阳光会损害病原体，而雨或雪会影响气溶胶粒子。
 
-It is now clear to everyone that within the CCP, Zeng and Wang are challenging Xi and in the end one side will fall, or all sides will fall. Zeng Qinghong is currently living in his grandma Deng Liujin’s hometown in Fujian. He has ideas.
+相反，它应该在夜间释放，或在黎明、黄昏或多云天气下释放，并且“稳定的风向……以便气溶胶能够漂浮到目标区域”。
 
-习现在就两「张」牌了：我手里有合法的控制国家的武器 — 军队，第二，不行我就打台湾。但是这种事情在任何时候都是双利剑，「一旦」军队不听指挥咋办？你打台湾你咋知道美国不打你北京城啊？但习的内心世界绝对相信美国只能会打代理人战争绝不会直面冲突，所以他觉得「如果」牺牲到50万大军美国人一定退。就是我让血流成河让你美国人害怕，就是你杀了我的人，我拿「些」孩子「让」你杀到手软，最后你就把我放过了。
+同时，研究还指出，这样的袭击会导致需要住院治疗的病人激增，从而“可能导致敌人的医疗系统崩溃”。
 
-Xi has two cards left now: first he has the army, a legal weapon, with which he can control the country. Secondly, if this doesn’t work, he will attack Taiwan. But this is always a double-edged sword. What if the army does not obey him? How can he be sure that the U.S. won’t attack Beijing when he attacks Taiwan? But Xi deeply believes that the U.S. can only fight proxy wars and will never engage in head-on confrontations. Therefore, he feels that Americans definitely will retreat if the CCP sacrifices 500,000 Chinese soldiers. That is, the CCP thinks they can scare the Americans when they see the battlefield flowing with rivers of blood. The Americans will be allowed to kill Chinese soldiers. The CCP is willing to sacrifice Chinese kids until the Americans become soft-hearted and lose their stomach for the fight. Then the U.S. will let the CCP have their way in the end.
+其他担忧还包括中共国在武汉病毒研究所的“功能增强”研究，该研究所靠近首次发现冠状病毒爆发的地方，在那里病毒学家正在制造新的病毒，据说这种病毒传播性更强，杀伤力更强。
 
-这都是流氓、黑帮、贩毒分子的事：生几十个孩子，把孩子扔出几个去让警察杀，杀到你自己不敢杀了，你把我「就」放过了。就是让台湾死伤个百八十万人，让所谓的共产党的人民军队也就是共产党的党卫军死伤了四五十万人，把那辽宁什么伯格宁号「你美国人」也干掉它，把南海机场「让」你炸毁它，不行把海南几个基地让给你，把大连青岛几个基地让给你，你炸毁「不」就完了呗？你别打我北京城。但是这个一但「实现」了，那习就「有」优势了，拿出手来就把王和曾「派势力」通通的抹「平」了，江家就更不在话下「了」。
+外交事务委员会主席、国会议员汤姆图根达特（Tom Tugendhat）说，这份文件引起了人们对一些为党的最高领导层提供建议的人的野心的严重担忧。即使在最严格的控制下，这些武器也是危险的
 
-This is the behavior of gangsters, mafia, and drug dealers: giving birth to dozens of children, then throwing out a few of them to be killed by the police until the police themselves get sick of killing and give you a break. They are okay with hundreds of thousands or a million casualties in Taiwan, sacrificing half a million PLA soldiers, i.e., the CCP’s Schutzstaffel, and letting the Americans destroy the Chinese aircraft carrier Liaoning (Varyag) and blow up Nanhai Airport. If that’s not enough, the CCP will let the Americans blow up bases in Hainan, Dalian, and Qingdao, okay? Just don’t strike us here in Beijing. Once this goal is achieved, Xi will have the upper hand. He can be spared to eliminate Wang and Zeng’s rival forces and take down Jiang’s (Jiang Zemin) family without any problem.
+化学武器专家哈米什·德·布雷顿·戈登（Hamish de Bretton Gordon）说：“中共国挫败了所有监管和监督其可能进行过此类实验的实验室的努力。”
 
-所以习现在：对内捞经济，能拿谁拿谁的，准备好最坏的时刻到来，要打好这个半场的战争就是要让印度跪下来，让日本害怕，让澳大利亚害怕，然后让美国哆嗦，就是一个它「共产党」最想要的结局。然后「一旦外部」没事了，或者打台湾或者内部解决。这就是习要坚持住的，这今年「是中国传统的」辛丑年真不容易。现在变成“习一坑”了，这真的对他来讲「也」很危险，「成了」孤家寡人了。
+昨天报道了《武汉到底发生了什么》一书中的这一启示。
 
-So, Xi’s current plan is to control the domestic economy, take whatever he can from whomever he can, and prepare for the worst moment to come. To put up a good fight of this “half-time” war he plans to make India kneel down, frighten Japan and Australia, and make the U.S. tremble. This is what the CCP wants most. Once everything is okay externally, the CCP will either attack Taiwan or solve its problems internally. This is what Xi is counting on. This year is the traditional Chinese year of Xin Chou (38th year of the 60-year cycle). It is really not an easy year. Now it [the CCP] has become Xi’s one-person pit, which is extremely dangerous to him. He is all isolated, being cut off from others.
+这份名为“《作为遗传生物武器的人造病毒新品种》的文件说：“随着其他科学领域的发展，在生物制剂的投放方面也取得了重大进展。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/608d69874486aa0bb231f904](https://gtv.org/getter/608d69874486aa0bb231f904) (00:10-06:21)
-鸣谢：
-[1] 感谢Antsee-GTV、TING GUO提供中文文本于[https://www.gnews.org/zh-hans/1163156/](https://www.gnews.org/zh-hans/1163156/)
-[2] 感谢YY、Liberte提供英文翻译于 [https://gnews.org/1167999/](https://gnews.org/1167999/)
+例如，新发现的冷冻干微生物的能力，使得储存生物制剂和在攻击将其气溶胶化成为可能。
 
-* * *
+分析人士说，该书有18位作者曾在“高风险”实验室工作。
 
-**整理校对 & 新闻撰写：【7PawBear（纽约香草山农场）】
-字幕：【Rock小哥】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+澳大利亚战略政策研究所执行主任彼得詹宁斯（Peter Jennings）也对中共国对冠状病毒的生物学研究可能在未来被武器化提出了担忧。
 
-+2
+他说：“研究能力并没有明显的区别，因为进攻性还是防御性使用并不是这些科学家的决定。”
+
+如果你表面上是在培养技能来保护你的军队免受生物攻击，那么你同时也在赋予你的军队使用这些武器的能力­进攻性的。你不能把两者分开。
+
+情报机构怀疑中共病毒可能是武汉实验室意外泄漏的结果。但到目前为止，还没有证据表明这是故意释放的。
+
+就在本周，巴西总统博尔索纳罗（Jair Bolsonaro）似乎强烈批评中共国，指责中共国制造中共病毒以引发化学“战争”
+
+这番言论是在周三的一次记者招待会上发表的，当时这位强硬派领导人试图进一步远离日益增多的袭击事件，因为他在国内处理一场已造成世界第二高死亡人数的流行病。
+
+“这是一种新病毒。博尔索纳罗说，没人知道它是来源于在实验室，还是因为人类吃了不该吃的动物。
+
+‘但它就在那里。军队知道什么是化学战、细菌战和放射性战。我们不是面临一场新的战争吗？哪个国家的GDP增长最多？我不会告诉你’。
+
+虽然博尔索纳罗在讲话中没有点名中国，但经济合作与发展组织（OECD）的数据显示，中共国是20国集团（G20）中唯一一个GDP在2020年大流行期间出现增长的成员国，增幅为2.3%。
+![]()![](https://gnews.org/wp-content/uploads/2021/05/image006-6.jpg)中国人民解放军科学家和卫生官员的档案显示，他们研究了以前所未有方式操纵疾病制造武器
+而世界卫生组织负责人最近在3月表示，在阅读了世卫组织-中共国的研究报告后，关于中共病毒起源的所有理论仍然没有定论。尽管该报告声称，病毒从实验室中泄漏的说法是“极其不可能的”。
+
+泰德罗斯·阿达诺姆·盖布雷耶苏斯（Tedros Adhanom Ghebreyesus）说：“在阅读了国际专家团赴武汉的报告之后，所有的假设都 “摆在桌面上”，需要进一步调查。
+
+但就在他发表上述评论的几个小时前，有消息称，该报告驳斥了实验室泄漏理论，并称最有可能的情况是病毒通过另一种动物从蝙蝠传播给人类。
+
+该报告的发布被一再推迟，引起了人们对中方是否试图歪曲结论，以防止把疫情归咎于中共国。
+
+包括前总统川普在内的批评人士指责世卫组织自疫情首次向世界宣布以来，一直在模仿中共国对该病毒的宣传。
+
+在特德罗斯博士发表评论之前，纽约共和党议员李泽尔丁抨击中共国“向世界掩盖了大流行病的起源”，而世卫组织“一次又一次地配合”。
+
+与此同时，拜登总统的首席医学顾问安东尼·福奇（Anthony Faucia）博士透露，他对世卫组织有争议的事实调查团感到”担忧”。
+
+报告的发布一再推迟，令人怀疑中共国方面是否试图歪曲其结论。
+
+美国国务卿布林肯（Antony Blinken）最近在接受美国有线电视新闻网（CNN）采访时说，我们对这份报告的撰写方法和过程感到真正的担忧，其中包括中共政府显然帮助撰写了这份报告的事实。
+
+中共国拒绝了这一批评，并指责美国对事实调查团专家“施加政治压力”。
+
+他说，美国一直在就这份报告表态。外交部发言人赵立坚问道：“美国这样做，难道不是想对世卫组织专家组成员施加政治压力吗？”。
+
+**伊恩•伯雷尔（IAN BIRRELL****）写道：令人担忧的是，关于冠状病毒起源的新线索：武汉实验室的科学家是如何帮助中共国军方在秘密项目中发现动物病毒的**
+
+在武汉的中共国最高安全实验室研究蝙蝠疾病的科学家们与军方主要官员一起参与了一项大规模的调查动物病毒的项目，尽管他们否认任何此类联系。
+
+英国《每日邮报》周日获得的文件显示，一个由一个主要国家机构指导的全国性计划在9年前启动，旨在发现新的病毒，并探测与传播疾病有关的生物“暗物质”。
+
+一位中共国著名科学家在去年1月发表了第一个中共病毒的基因序列，仅在项目的前三年就发现了143种新的疾病。
+
+这种病毒检测项目由文职和军事科学家共同领导，这一事实似乎证实了美国有关武汉病毒研究所（WIV）与中共国210万军队合作的煽动性说法。
+
+该计划的五个小组负责人包括被昵称为“蝙蝠女”的武汉病毒研究所病毒学家石正丽和高级军官、政府生物恐怖主义顾问曹务春。
+
+石教授上个月否认了美国的指控，她说：”我不知道武汉病毒研究所有任何军事工作。这一信息是错误的。”
+![]()![](https://gnews.org/wp-content/uploads/2021/05/image008-5.jpg)问题：武汉病毒研究所顾问曹务春上校，右一，中共国最高的生物防御专家陈薇少将
+然而，曹上校在项目报告中被列为中国人民解放军军事医学科学院的研究员，与其他军事科学家密切合作，并且是军事生物安全专家委员会的主任。
+
+曹曾在剑桥大学学习的流行病学家，甚至是武汉病毒研究所咨询委员会的成员。他是国家最高生物防御专家陈薇少将领导的军事小组的第二把手，该小组被派往武汉市应对中共病毒爆发并开发疫苗。
+
+美国国务院也对武汉实验室操纵冠状病毒的风险性“功能增益”实验提出了关切，并表示研究人员在中共国城市更广泛地爆发疫情的几周前就出现了类似中共病毒感染的症状。
+
+上个月，英国、美国和其他12个国家批评中共拒绝分享关键数据和样本，因为世界卫生组织和中共国对该大流行病的起源进行的联合研究认为实验室泄漏是“极不可能的”。
+
+伦敦国王学院的生物安全专家菲利帕·伦佐斯（Filippa Lentzos）说，最新的披露符合来自中共的“不一致的模式”。
+
+她说：”他们对我们仍然不透明。我们没有关于大流行病起源的硬数据，不管它是来自动物的自然溢出还是某种与研究有关的意外泄漏，但我们无法得到直接的答案，这根本不能激发人们的信心。
+
+英国《每日邮报》周日获得的文件详述了一个名为“发现野生动物携带的动物传播病原体”的重大项目，该项目旨在寻找可能感染人类的生物，并研究其进化。
+
+该项目于2012年启动，由中共国国家自然科学基金资助。由徐建国领导，他在2019年的一次会议上吹嘘说：“传染病预防和控制的庞大网络正在形成“。
+
+这位教授还领导了第一个调查中共病毒在武汉的出现的专家组。尽管有来自医院的证据，他最初否认人传人，然后在1月中旬坚称“这一流行病是有限的，如果下周没有新病例，疫情将结束”。
+
+一篇关于他的病毒搜寻项目的评论承认“已经发现了大量的新病毒，引起了国际病毒学界的极大关注”。
+
+报告还说，如果病原体扩散到人和牲畜身上，可能会引发新的传染病，“对人类健康和生命安全构成巨大威胁，并可能造成重大经济损失，甚至影响社会稳定”。
+
+2018年的一份最新报告称，这些科研团队在国际期刊上发表了许多研究成果，他们发现了4种新病原体和10种新细菌，同时“利用宏基因组技术发现了1640多种新病毒”。这项研究是基于从中共国南方洞穴网络中采集的蝙蝠粪便和血液样本中提取的遗传物质。
+
+如此广泛的取样导致石教授去年迅速发现了RaTG13，这是已知的最接近于引起中共病毒的新病毒株。
+
+它存放在武汉实验室，这是亚洲最大的蝙蝠冠状病毒库。
+![]()![](https://gnews.org/wp-content/uploads/2021/05/image010-2.jpg)图为：湖北省中部的武汉市武汉病毒研究所，世界卫生组织（WHO）小组成员在访问中调查了中共冠状病毒的起源
+后来发现，她把它的名字改成了先前一篇论文中发现的另一种病毒，从而掩盖了它与三名矿工的联系，这三名矿工死于一种奇怪的呼吸道疾病，他们是在清理蝙蝠粪便时感染的。
+
+石教授还承认，在矿洞中还收集了8种未经鉴定的非典型肺炎病毒。就在武汉爆发中共病毒病例的前几周，该研究所于2019年9月将病毒样本数据库下线。
+
+曹上校发表了一篇关于致命蜱虫叮咬的论文后，社交媒体发表评论说，他和史教授“总能找到一种从未在人类身上发现的病毒”，并补充说：“我怀疑这是实验室里进行的另一项所谓的‘科学研究’。”
+
+近年来，中共国军方雇用了更多的科学家，习近平主席说这是国家走向全球霸权的关键因素。
+
+许多人多年来一直在与西方研究机构合作，窃取我们的技术秘密，但在疫情已造成300多万人死亡一年后，中共国仍然拒绝分享关键信息
+
+负责美国国务院调查中共病毒起源的生物、化学和核扩散问题专家大卫·阿舍（David Asher）说，中共国人已经明确表示，他们将生物技术视为未来混合战争的重要组成部分。最大的问题是他们在这些领域的工作是进攻性的还是防御性的。
+
+原文作者：汤姆·皮曼（Tom Pyman）
+发布时间：美东2021年5月8日02:47
+原文链接：[https://www.dailymail.co.uk/news/article-9556415/China-preparing-WW3-biological-weapons-six-years-investigators-say.html](https://www.dailymail.co.uk/news/article-9556415/China-preparing-WW3-biological-weapons-six-years-investigators-say.html)
+
++1

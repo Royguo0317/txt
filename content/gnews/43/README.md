@@ -1,73 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】纽约时代广场突发枪击案 枪手仍然在逃
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1190675/)
+## 俄能源巨头放弃南中国海的项目仅为中共压力吗？
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1190968/)
 
-作者：纽约香草山教育部     新生
+撰稿：脐橙君
 
+据美国之音报道，罗斯石油公司决定撤出南中国海。这家俄罗斯能源巨头与越南在那里的油气合作项目位于中国所划定的所谓九段线内。但这一举动并不意味意味俄罗斯想完全放弃在当地利益。有分析认为，接手的另一家俄罗斯国有能源企业可能将继续面临中国压力。
 
+据俄罗斯主要媒体文传电讯社5月4日引述罗斯石油公司代表的话说，这家俄罗斯能源巨头决定从南中国海地区撤走。这些合作项目的股权会在6月末之前出售给另一家俄罗斯国有能源企业“海外石油公司”。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+罗斯石油公司越南合作开采南中国海地区油气资源项目多年前就开始了。双方的合作项目中的06-1区块恰好位于中国所划定和声称的所谓九段线内。05-3/11区块与06-1区块相邻，部分也位于九段线内。有俄罗斯能源媒体报道，此举遭致中共的激烈抗议和反对。
 
+中共多年前就对俄罗斯能源企业在南中国海有争议地区帮越南开采油气资源公开表达过不满。但罗斯石油公司并不是从南中国海撤走的唯一一家能源巨头。4年前，西班牙国家石油公司也同样从南中国海撤走，放弃了与越南在南中国海有争议地区的油气合作项目。
 
+我们先来看罗斯石油公司的背景，它是目前俄罗斯最大能源企业，这家公司的总裁谢钦更被认为是与普京关系最为紧密的亲信之一。如此硬的背景和实力，外加俄罗斯的强硬国际地位，会因为中共的不满和没有任何国际法法理依据支撑的情况下，就放弃巨额的利益？笔者看，原因并不尽然。
 
-5月8日下午，昵称为*@RockyJuniorJon4*的网友在[推特](https://twitter.com/RockyJuniorJon4/status/1391155451975372804)上发布了一条消息：“时代广场发生枪击事件”和一条视频——画面是时代广场繁华地带的监控视频。视频中前三秒，在一片车水马龙、人头熙攘的场景中，突然有三声枪响，第十秒钟左右，远处的人群开始尖叫，往摄像头的方向奔跑。第42秒钟似乎又有一声枪响。到第54秒左右，两辆警车抵达现场，警察们往远处跑去。
+再来看这次接手罗斯石油公司在南中国海项目的俄罗斯“海外石油公司”。这家公司百分之一百完全由俄罗斯国家控股，与中国没有联系。但越南却是“海外石油公司”最为重要的国外市场。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/05/image-132.png)推特视频截图：视频下载[链接](https://video.twimg.com/ext_tw_video/1391155390117777408/pu/vid/624x352/wo_IDjtWEoI9ZRxt.mp4?tag=12)
+俄罗斯能源界的一些分析认为，目前俄中两国表面上联手对抗美国西方，此次罗斯石油公司从南中国海撤走，说明俄罗斯为了照顾俄中关系，对中国让步。但接受的“海外石油公司”依然是俄罗斯的国有企业，也同样面临中共的压力，这个说法似乎逻辑上说不通。
 
-警方消息人士告诉《纽约邮报》，一位母亲和她3岁的女儿于5月8日星期六的晚上在时代广场遭到枪击。枪声是在美东时间下午5点前在西44街和第七大道交界处爆发的。消息人士表示，受害者之间没有关系。执法部门的消息人士说，这名妇女的腿部被击中，孩子的上半身被击中。消息人士还透露，这两人被紧急送往贝尔维尤医院救治，目前情况稳定，两人都有望活下来。在混乱的事故后，时代广场周围的街道被封锁。
+笔者认为，罗斯的掌门人作为普京总统的亲信，不可能不掌握相关情报，根据中共目前在国际地位上的渐渐被孤立，中共病毒也越来越成为国际各国聚焦的重点核心，俄罗斯完全没有必要在南中国海这个本来就有许多争议的领域对中共示弱，唯一的可能是未来南中国海军事冲突的不确定性，会影响到在此开发项目的利益方，而这利益与某些高层个人有直接关系。罗斯退出，“海外石油”进入，就显示俄罗斯根本没有任何对中共示弱的打算，只是用了一招，撤回了与自身利益有关的一方，至于此举在外交上给中共的面子究竟让中共付出多大代价，只有中俄两方你知我知。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/05/image-133.png)（警方封锁了现场）图片来源：[James Keivom](https://nypost.com/2021/05/08/4-year-old-mother-among-https:/nypost.com/2021/05/08/4-year-old-mother-among-multiple-people-shot-in-times-square/multiple-people-shot-in-times-square/)
+无论何种原因，罗斯的主动撤出，给足了中共外交上的谈资，但俄罗斯从来不会做赔本的生意，通吃才是它惯用的伎俩。
 
-萨科-卡迪姆描述说，听到了两声枪响，看到一个孩子流了很多血。“警察抱紧了孩子，把他送上了救护车，”卡迪姆说。“母亲在哭，她说‘我很好’，”然后她用大拇指向警察示意。当时在麦当劳的基罗-洛瓦说，他听到了三声枪响，然后看到一个看起来20多岁的女人倒在地上，他说：“她在哭喊着寻求帮助。”杰西-辛格则表示，他当时正试图在一家店面附近送披萨，听到了尖叫声，但没有听到枪声，然后人们开始奔跑。
+本文仅代表作者本人观点，不代表Gnews平台
 
-![]()![](https://nypost.com/wp-content/uploads/sites/2/2021/05/times-square-shooter-1.jpg?quality=90&amp;strip=all&amp;w=1024)
+新闻来源：
 
-纽约警方随后发布了这张与时代广场枪击案有关的嫌疑人的图片，但目前警方还未公布更多的消息。
+[中国压力下俄能源巨头放弃南中国海与越南合作项目 (voachinese.com)](https://www.voachinese.com/a/russian-energy-giant-withdraws-projects-with-vietnam-in-south-china-sea-under-pressure-from-china-20210508/5883259.html)
 
-针对这起事件，有位网友约翰-卡迪罗在推特评论，“纽约市长白思豪已经把纽约市倒退到了谋杀横行的80年代，并把流氓恶棍请进了这座城市。”根据纽约警察局公布的2021年4月全市犯罪案件数据，2021年4月，纽约市的整体犯罪案件数量与去年同期相比上升了30.4%（详见下表）。其中，大盗窃案增加了66%，重罪攻击增加了35.6%；与2020年4月相比，抢劫案增加了28.6%，而枪击事件增加了166.1%；入室盗窃是唯一出现下降的指数犯罪——与前一年相比，2021年4月下降了26%。由此可见，纽约市的治安状况的确堪忧！
+图片来源：
 
+[中国压力下俄能源巨头放弃南中国海与越南合作项目 (voachinese.com)](https://www.voachinese.com/a/russian-energy-giant-withdraws-projects-with-vietnam-in-south-china-sea-under-pressure-from-china-20210508/5883259.html)
 
-| **                             ****时间** **案件** | **2021****年4****月** | **2020****年4****月** | **变化幅度** |
-| --- | --- | --- | --- |
-| 大盗窃案 | 2,659起 | 1,601起 | +66% |
-| 重罪攻击 | 1,630起 | 1,202 | +35.6% |
-| 抢劫案 | 885起 | 688起 | +28.6% |
-| 枪击事件 | 149起 | 56起 | +166.1% |
-| 入室盗窃 | 855起 | 1155起 | -26% |
-
-
-参考阅读：
-
-[Active shooter in Times Square](https://twitter.com/RockyJuniorJon4/status/1391155451975372804)
-
-[Innocent bystanders shot during argument in Times Square: police](https://nypost.com/2021/05/08/4-year-old-mother-among-multiple-people-shot-in-times-square/)
-
-[NYPD Announces Citywide Crime Statistics for April 2021](https://www1.nyc.gov/site/nypd/news/pr0505/nypd-citywide-crime-statistics-april-2021)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
-
+校对/发稿: Penny
 
 0
