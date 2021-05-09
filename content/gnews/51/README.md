@@ -1,51 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】印度发现3532种变异病毒，第三波疫情一触即发 印度最新疫情
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1189700/)
+## 老人莫名成“网逃”，临死前一天被释放
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1190029/)
 
-作者：纽约香草山写作一组 乱谈秦
+字幕听译： 乐禧禧 | 字幕PR： yyshere | 字幕： 雨中漫步 | 评论： CharlesS | 评评论翻译: CharlesS | 翻译PR: Marialu| 审核:Charles S|Page: 小雨
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+![]()![](https://gnews.org/wp-content/uploads/2021/05/1-23-18.jpg)
 
+**老人莫名成“网逃”，临死前一天被释放，家属不知道他所犯何罪就被抓，报道的新闻被全网“404”……**
 
+[视频资料](https://mega.nz/folder/mhlzRQDa#Kdt_KmjJHoBJSn4kDYhu3w)
 
+2019年9月补办身份证，被告知自己是逃犯，当日被拘，通知书却落款6月。家属“往返看守所十余次，从来见不到人，也未被告知实情”。2020年8月6日23时，家属获知这位老人被送入ICU，逐赶往医院。7日当地看守所和公安局对这位老人决定暂予监外执行。8日早老人被宣告死亡。医院记录及医生口诉可知老人入院时已呼吸心跳停止。10月家属才查到老人的“判决书”：扰乱社会秩序的共犯。家属回忆称老人曾在那起案件当日拉过客人去现场，有人闹事看了一会热闹。“主犯的案件中没有提及我父亲…更何况我们家一直住在那，也不是逃犯，为什么要等补办身份证时才抓我父亲？”老人的儿子称。
 
+详细刊登了事件经过、法律文书的新闻文章也已被下线。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08134221/image-125.png)图源：华尔街日报
+轻而易举被下线的新闻，轻而易举被抓捕的平民，轻而易举被逝去的生命。这就是中共国的“法制“现状。
 
-据《印度教徒报》5月6日报道，印度政府当地时间周三宣布，印度在27个邦共发现3532种令人担忧的新冠变异病毒，并补充说，鉴于目前感染病例激增，第三波疫情不可避免。
+编辑：【英国伦敦喜庄园编辑部】
 
-研究人员发现，英国变异病毒（B.1.1.7）在印度的传染性正在下降，而双突变体变异病毒（B.1.617）正在增加。另据媒体报道，印度国家疾病控制中心官员称，3月份发现的2019年冠状病毒病（COVID-19）变种病毒B.1.617可能是当前第二波疫情大爆发的元凶。
-
-印度政府最主要的科学顾问维贾伊·拉加万说：“鉴于传播中的病毒很多，第三阶段是不可避免的，但目前尚不清楚第三阶段会在什么时候发生，希望是逐渐发生。以前的感染和疫苗会对病毒造成适应性压力，迫使其发生那种试图逃避的新变异，我们必须做好科学准备应对这种情况。”
-
-印度卫生部5月6日公布的疫情数据显示，该国新增新冠确诊病例数和新增死亡病例数均再次打破此前纪录，疫情持续恶化。数据显示，该国新增确诊病例412262例，累计确诊达21077410例；新增死亡3980例，累计死亡230168例。印度单日新增确诊病例数5月1日首次超过40万例，截至6日，这一数字已连续15天超过30万例。
-
-印度卫生部5月7日公布，此前一天新确诊病例达414188例，连续两日超单日40万水平， 单日死亡人数达3915，比5月5日所创新高轻微回落。迄今印度累计有2149万余人感染新冠病毒，超过23万人死亡。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08134238/Picture1-34.png)图源：德国之声
-5月5日，世卫组织发布新冠肺炎每周流行病学报告。有迹象表明，印度疫情正在蔓延到邻国：尼泊尔上周的病例增加了137％；老挝一个月内新冠确诊增加200多倍；巴基斯坦和孟加拉国的医院重症监护室已达到或接近满员；泰国国内约98%的新增病例来自变异病毒；斯里兰卡的新冠疫情也在加剧。而病毒还在向更远处传播。
-
-世卫数据显示，上周全球新增新冠病例570万例，已连续9周上升，其中印度占46％（近260万例）。上周全球新增死亡人数9.3万余例，印度占四分之一。上周东南亚区域新增确诊病例和死亡病例均显著增加，90%以上来自印度。
-
-新闻来源：
-
-[印度政府:已发现3532种新冠变异病毒](https://www.wenweipo.com/a/202105/08/AP6095e37de4b0476859bab5bb.html)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-
-编辑/发稿：悟空
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
 
+[!\[\]()!\[\](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
-0
++1

@@ -1,33 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英美情报机构就打击“俄罗斯黑客”提出建议
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1189829/)
+## 在中共国，提供选择最终会意味着没法选择
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1190104/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+字幕听译：乐禧禧 | 字幕PR： yyshere | 字幕： 雨中漫步 | 评论：Filon |评论翻译: 许先生 | 翻译PR: yyshere | 审核:Charles S| Page: Rain
 
-编辑上传   银河
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08143032/Snipaste_2021-05-08_21-29-06-1-3.jpg)[nextgov.com](https://www.nextgov.com/cybersecurity/2017/03/how-russian-hackers-will-attack-us-next/136428/)
-05月08日，英国和美国情报机构发布了一份建议清单，该清单措施旨在减少来自俄罗斯对外情报局（SVR）支持的黑客攻击的威胁。
+![]()![](https://spark.adobe.com/page/d4ku8jXZWgLwg/images/a6984344-428b-4be0-823d-5fbe312cf55a.jpg?asset_id=d4ca1502-56cb-4bbc-9e2f-1c7f6b9f48d1&amp;img_etag=%221a183e9f0131daf61a2ebcfeacdd7f3b%22&amp;size=2560)
 
-“SVR继续利用众所周知的漏洞。由于美国及其盟友的网络不断被来自俄罗斯国家支持的网络‘黑客’研究和攻击，解决这些漏洞仍然至关重要。”美国国家安全局（NSA）在一份声明中说。
+[视频资源](https://mega.nz/folder/mhlzRQDa#Kdt_KmjJHoBJSn4kDYhu3w)
 
-来自英国国家网络安全中心（NCSC）、联邦调查局（FBI）和美国基础设施和网络安全局（CISA）的专家也对该文件做出了贡献。
+2021年5月2日，五一假期哈尔滨庞先生与家人和朋友一起带着孩子在国内融创主题公园游玩。节假日期间景区游客密集，区域内手机信号接收拥堵，庞先生在给女儿购买发卡时选择使用现金支付，却被商家告知园区规定不能使用现金，只能扫码支付。庞先生不忿拍视频[This was not in the original news]与商家争论，但最终无果悻悻而归。
 
-这份题为“SVR网络战术所使用的战术、技术和程序细节”的报告指出，黑客们采纳了美国和英国情报机构此前给其潜在受害者的建议，改变了他们的方法。特别是，他们正试图利用开源工具Silver来提供对被入侵网络的访问，以及攻击微软Exchange的漏洞。
+哈尔滨园区事件看似个案，在国内却是经常发生的现象。自从移动手机支付在国内普及，人们在方便使用手机支付方式的同时，现金支付却经常遇到不能使用的尴尬场景。由小见大，可以预见的是，如今中共意图在国内强推数字货币DCEP，当普及到一定程度，中共必然会随时出一纸行政命令，让国内百姓没法选择，只会被允许使用DCEP数字货币的支付方式。
 
-该文件的作者起草了一份提示清单，如果遵循这些提示，应使企业和组织的计算机网络更难受到攻击。在这种情况下，专家建议要特别注意及时更新软件和使用多因素识别，并对工作人员进行培训。
+中共DCEP数字货币的本质就是上世纪50年代CCP在大陆执政后推行的居民供应票证的数字化形式。在物质无法充足供应的前苏联也同样实行过此模式。居民供应票证是计划经济体制下的产物，出现在市场无法充足供给居民自由购买生活物资的国家。中共在国内执政已70年，GDP号称世界第二。中国百姓却依然无限轮回着将走进生活物资都无法被充足供应的生活模式下。钱到底去了哪里？没人可以问，也没人有能力问。但这却可以证明中共执政能力肯定是不足的，中共是没有能力代表和领导中国人民的，他们一直代表的是他们独裁的自己，靠欺骗着世界来奴役着中国人民。
 
-早些时候，英国电子情报部门–政府通信中心（GCHQ的子部门NCSC）负责人杰里米·弗莱明（Jeremy Fleming）说，俄罗斯在网络安全方面构成最严重的威胁。
+编辑：【英国伦敦喜庄园编辑部】
 
-弗莱明说：“俄罗斯在世界各地行为的敌对性质–在网络空间的侵略、对选举的干涉、其情报部门的侵略性行动，这表明它仍然是对国家和集体安全的最严重威胁。”他特别指出，据称俄罗斯参与了对IT公司SolarWinds的网络攻击。正如彭博社所写，SolarWinds软件黑客事件影响了全球几百个组织，以及美国政府机构。美国认为黑客组织APT29，即Cozy Bear，据称为俄罗斯对外情报局工作，是这些行动的幕后黑手。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
-4月15日，美国总统乔·拜登就针对美国主权和利益的行动对俄罗斯实施新的制裁。特别是六家在高科技领域运营的俄罗斯公司，以及据华盛顿方面称支持俄罗斯情报部门的“恶意网络活动”的公司受到了限制。
 
-俄罗斯总统发言人德米特里·佩斯科夫说，莫斯科与黑客攻击美国无关。此外，俄罗斯一再否认去年11月干预美国总统选举的指控。俄罗斯外交部长谢尔盖·拉夫罗夫表示，没有证据支持这一点。
-
-参考链接：
-
-[https://www.rbc.ru/politics/08/05/2021/60962d919a79473230ffbe60](https://www.rbc.ru/politics/08/05/2021/60962d919a79473230ffbe60)
+[!\[\]()!\[\](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

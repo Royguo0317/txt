@@ -1,93 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 对中共病毒来源的认知可将美政界分为五类
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1190600/)
+## 天上掉下个铁皮桶
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1191044/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+撰稿：何处是我家
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08211325/2021-05-09_Task4_Cover.jpg)图片来源网络
+最近几天全球人们翘首仰望天上即将掉下来的铁皮桶，CCP的烂尾火箭给了世界一个惊喜，也是警示所有人：我不但会让病毒像空气一样飘荡在你的周围，随时威胁你的生命，让你的日子生不如死，我还能往天上扔个铁皮桶，以不受控的方式砸向你。天知道将会“桶”落谁家呢？CCP更不知道。我想各国的元首们今天是不是都在地下掩体里，富人们也躲到安全的地下室里。
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/05/O-4.jpg)news.yahoo.com
-笔者将美国要员对中共病毒的认知分成以下几类：
+假如有事情必须出去，我是不是该戴个头盔。我还在想我住的房子能不能接得住这个铁皮桶。今天我挺纠结的，可能是最近我说了几声中共国的丑事，他就这样吓唬我。
 
-完全彻底的认知，即中共病毒是超限生物武器，如纳瓦罗、班农、塞林博士、巴西总统等；
+CCP这帮比土匪流氓还无耻的渣滓们，越来越露出无赖的嘴脸，他们只会给世界带来危险和不安感。每一个人都是受害者无一幸免。突然记起小时候奶奶总是说我：站着那儿干嘛？等着天上掉馅饼啊？今天我想告诉我奶奶，我等来了，天上掉下一个铁皮桶。
 
-清醒的认知，即中共病毒是实验室人造产物，如罗伯特·雷德菲尔德博士（Robert Redfield）、CNN首席医学记者桑杰·古普塔（Sanjay Gupta）等；
+这件事同时告诉我们一个真相：CCP的火箭发射技术有多差，就像所有的行业只是追求“大干快上”，至于质量、安全、标准、成本和价值中共国从来不考虑。比如楼房盖的世界最多最高最豪华，而质量是最差，居住最危险，价格最贵。中共国的高铁（其实是盗取加购买的日本新干线，德国西门子和法国的技术）也是世界公里数最长，行驶速度最快，沿途桥梁涵洞最多的国家。同时也是事故最多，运行营收亏损最严重，产生的腐败官员最多的工程，铁道部部长刘志军先生也应声落马。
 
-肤浅的认知，即中共病毒有可能是，或不排除是实验室产物，如题目所述，情报总监艾薇儿·海恩斯（Avril Haines）、CIA主任威廉·约瑟夫·伯恩斯（William Joseph Burns）、NIH主任弗朗西斯·科林斯（Francis S. Collins）；
+CCP的一切都是纸糊的，包括政治、经济、科技、军事、文化（马列主义，毛思想）。没有原创，没有发明。有的只是偷窃，模仿，购买和抄袭。中国的火箭是自己发明的？人们都知道航天领域最前沿的是美国，俄罗斯，还有欧洲航天局。这所有的技术似乎都来自同一个方向。有一部纪录片《回形针行动》，讲述第二次世界大战末期在纳粹的境内，美国和前苏联抢夺火箭技术，图纸和科学家的真实故事。里面几乎出现了所有火箭科学家及核技术科学家的名字。最后美国得到了大多数。很巧合的是里面也有钱学森的名字，当时他是美国方面参与搜寻的人员。
 
-糊涂的认知，即中共病毒来自自然，认为实验室等说法者是阴谋论者，或受惠于中共人士；
+钱学森无疑是中国航天领域的第一人，是他带回来有限的火箭及核技术，致使中国的火箭发射技术还停留在上世纪美国五六十年代的水平，所以才造成今天的火箭只能射出去，至于残骸就失控了，落到谁家谁就中头彩。我们看到听到的长征火箭家族里，什么长征火箭1，2，3——11型。我认为都是换汤不换药，不过是外形不同和多捆绑了几根火箭而已。里面的核心并没有变。
 
-除此之外，还有类似老贼福奇、及其爪牙达扎克，为魔共遮掩、辩护之流。
+CCP造假，撒谎，愚弄遍布在各个领域各个行业，上到天上飞的，下到水里游的和地上跑的，以及人们手里拎的。因此我从未把他宣传的什么核导弹，什么洲际导弹放在心上，都是用来吓唬老百姓和统治十四亿人的。
 
-5月7日的白宫新闻发布会，通过记者与白宫发言人普萨基（Psaki）的问答得知，拜登受老贼福奇等的影响，是拜登政府对中共病毒溯源及追责进展缓慢的原因之一，也了解到一些对中共病毒肤浅认知的要员。
+CCP就是一个你永远也不要相信的怪物，它没有一点可以值得信赖的，更不值得去理解和宽容。今天地球生灵的劫难，CCP病毒每分每秒躲去人们的生命，和在天上即将掉下得火箭残骸就是最好证据，这是美国和世界各国政治家精英们相信中国共产党和无数次宽容中共的结果。假如还不能彻底抛弃CCP，保不齐明天他又会做出什么出格的蠢事，给每个人带来灭顶之灾。
 
-记者问：关于中共病毒，福奇和国家健康研究院（NIH）资助武汉病毒实验室的功能增强实验是一个公开的记录，既然那个实验室有问题，为什么福奇和美国要资助中共国实验室的那种实验，那种研究？
+可喜的是，世界各国在一连串的噩梦中醒来，表现出统一灭共的意愿和实际行动。比如即将被美国强制退市的中国三大电信运营商；G7峰会后对中共的一系列表态；巴西总统讲出病毒来自中共的事实。这些都是围剿中共的积极信号。
 
-普萨基女士：对不起，我听不太清楚，你的-你提的问题的开始部分是什么？
+今天路德先生讲的习核心在慌不择路中给难兄难弟打电话，包括刚果金，乌兹别克斯坦，古巴，和塞拉利昂。就因为澳洲和巴西已经站在灭共的阵营，CCP想保住重要能源，铁矿石的供应，这只是虚张声势而已。习核心的水平和村干部是一个级别的。我想起前同事一个东北家乡的笑话：村里放电影时突然停电，顿时一片混乱，这是村长站了起来大声喊道，吵吵什么，一听村长声音现场马上静了下来。村长继续喊道，停电怕什么，点蜡烛继续放电影。习核心的村子有点太大。他没准哪天要点蜡烛放火箭呢！
 
-问：我说国家健康研究院和福奇为武汉病毒实验室提供了资金，当我们谈论实验室泄漏理论时，这就是问题所在。既然功能增强研究是不确定的，为什么美国会给中共国资金呢？为什么福奇会这样？
+疯了！CCP真疯了！
 
-普萨基女士：我很愿意把你的问题转给国家健康研究院，他们会向你介绍他们资助项目的更多细节。
+无论是因为受到CCP的威胁要保命，还是怕天上掉下的破铁桶砸着自己，还是其他的原因。都让我们看到世界汇集的剿共的力量是核弹级的。这也正是郭先生爆料革命在这四年拼搏，辛勤努力和不畏付出生命的结果。CCP正在消失的过程中。幸福的是，我们是参与人，见证人。
 
-问：现在，我还有一个后续的问题-
+郭先生说的很好：我就是来灭共的，别的都是瞎扯。破铁桶落谁家谁就去找CCP！
 
-普萨基女士：好的。
+(本文仅代表作者个人观点)
 
-问：因为总统还没有真正参与进来，福奇是拒绝相信实验室泄露理论的声音之一，但现在拜登政府中有更多的官员——比如国家情报局局长、中情局局长，现在还有国家卫生研究院院长——说不能排除这种可能性，有人呼吁对其进一步调查。
+* * *
 
-总统同意谁的观点？福奇的，还是其他官员的？他认为这是实验室泄漏吗？
+*审**稿**、**编辑**：光耀**华**夏*
 
-普萨基女士：总统说过，我在这里也说过很多次，需要通过世界卫生组织进行可信的、独立的调查，而这个调查依赖于数据，依赖于中共国和其他可能掌握信息的国家的参与。这当然是每个人都呼吁的，我们期待着这种情况的发生。
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-问：为什么总统还没有和习主席谈中共病毒起源？他说，就在几周前，他还没有。
-
-普萨基女士：我想我们已经读过了他们的通话，总统还认为，应该有一个由卫生专家领导的独立调查，一个提供他们数据的调查——这些数据对我们美国的医学和科学专家是透明的，我们期待着重新审查这些。
-
-我们得继续，下一个，我很抱歉。
-
-问：如果那是实验室泄漏，总统会……（听不见）-
-
-普萨基女士：对不起，埃默洛尔德（Emerald），我想你今天问了很长时间了。
-
-……
-
-（完）
-
-由此可以了解拜登在公开场合对中共病毒的态度，没有明确表达，而且普萨基代他吞吞吐吐。可喜的是，像记者埃默洛尔德女士对中共病毒认知程度至少是“清醒级别”的越来越多，他们正在唤醒着美国民众，也在督促着美国政府推进追责。
-
-白宫记者招待会有关中共国部分的文字整理：
-
-Q：And then on the coronavirus: It’s a matter of public record that Dr. Fauci and the NIH funded gain-of-function experimentation, research at the Wuhan Lab of Virology.  And given the questions about that lab, why would Dr. Fauci and the U.S. fund that kind of experiments, that kind of research at a Chinese lab?
-
-MS. PSAKI:  The — I’m sorry.  I can’t hear you super well.  What was the beginning part of your comment — of your thing — of your question?
-
-Q：I said that the NIH and Dr. Fauci had provided funding to the Wuhan Lab of Virology.  That’s the lab in question when we talk about the lab-leak theory.  And given that gain-of-function research is dicey, why would the U.S. fund that in China?  Why would Dr. Fauci?
-
-MS. PSAKI:  I’m happy to send you to the NIH about more specifics of what program they funded and more details of that.
-
-Q：Now, I do have one more follow-up on that —
-
-MS. PSAKI:  Okay.
-
-Q：because the President hasn’t really weighed in.  Dr. Fauci is one of the voices who discredit the lab-leak theory, but now there is more officials in the Biden administration — like the Director of National Intelligence, the CIA Director, and now also the NIH Director — who say that this cannot be ruled out, and there is calls for more investigation into it.
-
-Who does the President agree with — Dr. Fauci or the other officials?  Does he think this — it was a lab leak?
-
-MS. PSAKI: Well, the President has said, and I’ve said from here many times, that there needs to be a credible, independent investigation through the World Health Organization, and tha- — one that relies on data, relies on participation from China and other countries that may have information.  That’s certainly something everybody has called for, and we look forward to that happening.
-
-Q：Why hasn’t the President spoken with President Xi about the origins of the coronavirus yet?  He said, just a few weeks ago, he hadn’t yet.
-
-MS. PSAKI: I think we have given a readout of his call. And also that the President believes there should be an independent investigation led by health experts, and one where their data is provided — that’s provided transparently to our medical and science experts here in the United States. And we look forward to reviewing that.
-
-We’re going to have to go on.  Go ahead.  I’m sorry.
-
-Q：If that was a lab leak, will the President be committed to (inaudible) —
-
-MS. PSAKI: I’m sorry, Emerald. I think you’ve had plenty of time today.
-
-有关链接：
-
-[https://www.whitehouse.gov/briefing-room/press-briefings/2021/05/07/press-briefing-by-press-secretary-jen-psaki-and-secretary-of-the-treasury-janet-yellen-may-7-2021/](https://www.whitehouse.gov/briefing-room/press-briefings/2021/05/07/press-briefing-by-press-secretary-jen-psaki-and-secretary-of-the-treasury-janet-yellen-may-7-2021/)
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08091511/1-%E6%BE%B3%E5%96%9CLogo-1.jpeg)
 0
