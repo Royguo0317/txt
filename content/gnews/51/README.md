@@ -1,60 +1,111 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 摆脱不了虚伪逐利的本质, 中共所谓的节能减排都是谎言
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1193896/)
+## 扒一扒闫博士5月9日转推塞林博士推文中秦成峰的图片来源
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1194155/)
 
-新闻来源：《布莱特巴特新闻网》| 作者：约翰•海沃德(John Hayward)| 发布时间：06 May ,2021 /2021年5月6日
-
-翻译/简评：helloworld| 校对：叶知秋（文义）|审核：万人往 | Page：小六月
-
-[!\[\]()!\[\](https://spark.adobe.com/page/CCmo3fDndYgbn/images/b2c7ea23-1bc7-46c4-8dbd-a745d165240d.jpg?asset_id=a353790e-298b-4c28-9bd0-2e733f2ca9f7&amp;img_etag=%22f2f29bccba803c3780049bebab4c7a39%22&amp;size=1024)](https://spark.adobe.com/page/CCmo3fDndYgbn/images/b2c7ea23-1bc7-46c4-8dbd-a745d165240d.jpg?asset_id=a353790e-298b-4c28-9bd0-2e733f2ca9f7&amp;img_etag=%22f2f29bccba803c3780049bebab4c7a39%22&amp;size=1024)
-
-**简评：**
-
-中共国温室气体排放量正在增加。根据荣鼎集团周四的报告，中共国的温室气体排放量2019年已超过整个发达国家总和。其排放量高达520亿吨，单独贡献了排放量的27%以上，远超贡献11%位居第二的美国。这些排放大部分来源于燃煤电厂。在冠状病毒流行期间，中共国的排放量仍增加了1.7%。虽然报告用人均排放量辩护，但这种说法在灾害面前无足轻重。由于中共国对于缩减工业活动兴趣不大，其对未来的承诺无法让人感到宽慰。
-
-中共国通过垄断和权力寻租，不计一切代价发展经济，这导致企业仅有最快速度赚取利润的动力，而根本没有改善能效、降低污染的压力。在权力的淫威下，中共国甚至出现了针对抗议环境问题人士的打压，以及对于小企业不分青红皂白的一刀切。这不仅无法限制真正的排污者，甚至反而会刺激小企业用更简陋的方式生产，来降低因政策打击带来的损失，从而使环保问题更加恶化。
-
-但在冠状病毒的昏招面前，就连中共用污染经济博得的西方好感也在快速损失殆尽。由于病毒真相已经渐渐明晰，西方政客开始认清与中共合作的真正代价，并不再信任中共国的承诺。尽管中共国的廉价商品十分诱人，但西方社会仍然稳步走向与中共国脱钩。而在中共国经济面临消费停滞困难的当下，若离开了外贸需求，这压榨环境带来的庞大产能只会导致过剩库存，以及随之而来的信贷危机，从而使国内经济受到再次冲击。届时，中共也将自食压榨百姓所引发的反噬恶果。
-
-**原文翻译：**
-
-## 报告：中共国的温室气体排放量超过了所有其他发达国家的总和
-
-[!\[\]()!\[\](https://spark.adobe.com/page/CCmo3fDndYgbn/images/dc7437cd-2e02-4599-b998-b2f9f81e04b2.png?asset_id=f1892a9f-0cc6-4a90-97a8-ea1c3ad1cdfb&amp;img_etag=%222b8b933b7035101f050e05469cbf394f%22&amp;size=2560)](https://spark.adobe.com/page/CCmo3fDndYgbn/images/dc7437cd-2e02-4599-b998-b2f9f81e04b2.png?asset_id=f1892a9f-0cc6-4a90-97a8-ea1c3ad1cdfb&amp;img_etag=%222b8b933b7035101f050e05469cbf394f%22&amp;size=1024)2015年11月27日，在中共国北京郊区的一家燃煤电厂旁边的房子前，男孩们看着他们的智能手机。中共国政府已将2030年定为该国达到二氧化碳排放峰值的最后期限，科学家们认为2030年将是中共国二氧化碳排放的高峰。凯文·弗雷耶(Kevin Frayer)/盖蒂图片社
-
-总部位于纽约的气候研究组织荣鼎集团(Rhodium Group)周四报告称，中共国的温室气体排放量现已超过整个发达国家的总和。
-
-根据荣鼎集团的报告，中共国在2019年就突破了这一门槛。2019年是这些复杂的数据可被汇总的最近的年份。该集团汇编了1997年《京都议定书》中被命名的有关气候变化的六种温室气体的数据，包括二氧化碳、甲烷和一氧化二氮。这六种气体被统称为“京都篮子”。
-
-荣鼎集团报告称：“中共国一国就贡献了全球排放量的27%以上，远远超过贡献了11%的第二大排放国美国。印度首次超过EU-27（即欧盟27个成员国）而位居第三，占全球排放量的6.6%。”
-
-报告发现，中共国高达520亿吨的温室气体排放量比欧盟和经济合作与发展组织(OECD)的37个成员国（包括美国、英国、以色列、日本和澳大利亚）的总和高出约3600万吨。
-
-荣鼎集团试图缓和指责口吻，指出中共国“是一个拥有超过14亿人口的大国”，因此其人均排放量“迄今为止仍大大低于发达国家水平”。
-
-但根据气候变化理论，这种说法并不会减轻其对地球大气层产生的影响。一旦有事件发生，人均的事实很快就变得不重要了，因为荣鼎集团预测，当2020年的数据编制完成时，中共国的人均排放量将超过经济合作与发展组织(OECD)的平均水平，部分原因是冠状病毒大流行使气体排放的工业活动大大减少。但尽管去年因为冠状病毒减少了几乎所有其他国家的排放量，中共国的排放量仍增加了1.7%。
-
-该报告补充道：
-
-尽管中共国的年排放量超过了所有发达国家的总和，并在2019年非常接近人均排放量，但与发达国家相比，中共国作为主要排放国的历史相对较短，而其中许多发达国家都拥有超过一个世纪的领先优势。
-
-但鉴于中共国的发展轨迹，以及令人不安的事实——中共国对于缩减工业活动的兴趣不大，尽管其乐于谈论在未来的某个时候这样做——这也不能让人感到安慰。
-
-正如荣鼎集团所观察到的，中共国的人均排放量在过去20年里几乎增加了两倍。1990年，中共国的排放量仅为发达国家总量的四分之一，但今天中共国的温室气体排放量超过了所有其他发达国家的总和。
-
-全国广播电视商业频道(CNBC)指出，中共国的大部分排放量来自于燃煤电厂，这些电厂如今占中共国国内能源生产的一半以上。中共国正在建造更多的燃煤电厂，并粗暴地拒绝了减少使用煤电的请求。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09111534/%E5%B0%81%E9%9D%A2-11.png)
+据[Dr. Li-Meng \[email protected\]](https://twitter.com/DrLiMengYAN1)于[下午9:30 · 2021年5月9日](https://twitter.com/DrLiMengYAN1/status/1391384979381407746)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CCmo3fDndYgbn/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/CCmo3fDndYgbn/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+> Examples of CCP’s military-civil fusion programs:
+> 1. Virologist Dr. Chengfeng Qin in Beijing Institute of Microbiology and Epidemiology (Academy of Military Medical Science)
+> 2. Qin’s collaboration network involves China CDC, HKU, Institute Pasteur France…with overseas fundings [https://t.co/YqMAOJRgzx](https://t.co/YqMAOJRgzx) [pic.twitter.com/zqlzNaDMvF](https://t.co/zqlzNaDMvF)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 9, 2021](https://twitter.com/DrLiMengYAN1/status/1391384979381407746?ref_src=twsrc%5Etfw)
 
 
+
+［Examples of CCP’s military-civil fusion programs: 1. Virologist Dr. Chengfeng Qin in Beijing Institute of Microbiology and Epidemiology (Academy of Military Medical Science) 2. Qin’s collaboration network involves China CDC, HKU, Institute Pasteur France…with overseas fundings］
+
+中文大意：［中共军民融合计划的例子：1.北京微生物与流行病学研究所（军事医学科学院）病毒学家秦成峰博士2.秦的合作网络包括中国疾病预防控制中心，香港大学，法国巴斯德研究所…以及海外资金］
+
+推文附图一：
+![]()![](https://gnews.org/wp-content/uploads/2021/05/10-20.jpg)
+这是一篇军科院秦成峰与香港大学、法国巴斯德研究所军事融合合作的论文。推文附图二——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09111212/11-30.jpg)
+我们用该图片进行历史消息检索后找到的连接之一是[军事科学院首次阐明”寨卡病毒”毒力增强分子机制](http://military.china.com.cn/2017-10/11/content_41716015.htm)（发布时间： 2017-10-11 15:25:27    来源： [央广军事](http://military.cnr.cn/kx/20171010/t20171010_523981143.html)    作者： 庄颖娜 陈冬    责任编辑： 康壮） （连接全文附后），根据这篇文章内容：［据了解，“寨卡病毒”是一种古老的虫媒病毒，最早于1947年分离于乌干达的Zika森林故而得名。在随后的数十年中，由于“寨卡病毒”感染患者的临床症状均较为轻微，没有引起广泛关注。从2007年开始，“寨卡病毒”在东南亚地区和太平洋岛国不断出现较大规模暴发流行。2015年进入美洲以后，“寨卡病毒”感染导致的神经系统疾病，尤其是新生儿小头畸形的发病率急剧上升，引发全世界的高度关注，被世界卫生组织宣布为“全球关注的突发公共卫生事件”。］，考虑到Lawrence Sellin博士的推文和闫丽梦博士的转推，基本可以判断秦成峰和他的团队完成了寨卡病毒的武器化和对全球范围内某些固定区域的病毒施放。
+
+推文附图三——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09111618/E08wSygWEAAMwc8.jpg)
+用该图进行历史消息检索后可以得到连接之一[我国首个新冠mRNA疫苗获批临床，也是国内首个mRNA疫苗](https://www.163.com/dy/article/FFVEPUHM053296CT.html)（2020-06-25 12:05:21　来源: 生物世界） （注：连接全文附后），根据这篇文章内容：［新冠肺炎疫情暴发以来，军事科学院军事医学研究院紧前部署应急科研攻关，同时推进多条技术路线的新冠疫苗研发。国产**新冠mRNA疫苗**是该院继**重组新型冠状病毒疫苗**（腺病毒载体）后，研制成功获批临床试验的又一高技术疫苗品种。
+
+研究表明，这一新冠mRNA疫苗**不仅可在小鼠和食蟹猴体内诱导产生高水平中和抗体，还可诱导保护性的T细胞免疫反应**。食蟹猴攻毒实验表明，疫苗免疫的动物可耐受高滴度新冠病毒攻击，有效阻止病毒复制和肺病理进展，显示出良好的保护效果。
+
+**mRNA疫苗**是近年来新兴的一种疫苗形式，其基本原理是通过特定的递送系统将表达抗原靶标的mRNA导入体内，在体内表达出蛋白并刺激机体产生特异性免疫学反应，从而使机体获得免疫保护。mRNA疫苗研发存在较高的技术门槛，目前仅有美国和德国研发的少数几个mRNA疫苗品种进入临床研究阶段，**我国此前从未批准过mRNA疫苗进入临床。**］，这款疫苗作为中共超限生物武器到底藏着什么样的秘密，我们不得而知，我们再转到闫博士转推的Lawrence Sellin博士的推文上——
+
+[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午8:29 · 2021年5月9日](https://twitter.com/LawrenceSellin/status/1391369730599104523)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文
+
+
+
+> These Chinese Communist Party-Military scientists are linked regarding the brain and nervous system effects of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) e.g. the envelope protein, Axl, fusion loops.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/d4EcFNSwei](https://t.co/d4EcFNSwei)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 9, 2021](https://twitter.com/LawrenceSellin/status/1391369730599104523?ref_src=twsrc%5Etfw)
+
+
+
+These Chinese Communist Party-Military scientists are linked regarding the brain and nervous system effects of [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) e.g. the envelope protein, Axl, fusion loops. [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click) [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hashtag_click) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hashtag_click) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hashtag_click) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click)
+
+中文大意：这些中共军方科学家与＃COVID19对大脑和神经系统的影响有关，例如 包膜蛋白Axl融合环。[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click) [#超限生物武器](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click) [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hashtag_click) [#超限生物武器](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hashtag_click) [#冠状病毒大流行](https://twitter.com/hashtag/CoronavirusPandemic?src=hashtag_click) [#冠状病毒](https://twitter.com/hashtag/coronavirus?src=hashtag_click)
+
+Lawrence Sellin博士的推文附图是——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09111041/13-14.jpg)
+我们要知道屠夫是不会做济世悬壶的良医的，作为中共病毒超限武器脑部和神经部位的病毒武器专家，可以想见的是中共病毒对于脑部和神经攻击的部分应该出自秦成峰之手，现在既然秦成峰已经上了Lawrence Sellin博士的中共病毒专家榜，既然闫丽梦博士已经转推了Lawrence Sellin博士的这同推文，并且给出了更多的信息，那么我们必须要记下这些，以下为闫丽梦博士推文中两张照片的消息连接原文——
+
+\*\*\*\*\*\*\*闫博士推文附图二连接原文\*\*\*\*\*\*\*
+
+[军事科学院首次阐明”寨卡病毒”毒力增强分子机制](http://military.china.com.cn/2017-10/11/content_41716015.htm)（发布时间： 2017-10-11 15:25:27    来源： [央广军事](http://military.cnr.cn/kx/20171010/t20171010_523981143.html)    作者： 庄颖娜 陈冬    责任编辑： 康壮）全文——
+
+**国科学家揭示“寨卡病毒”感染导致小头症分子机制**
+
+**单个氨基酸突变导致“寨卡病毒”更加致命**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09110952/14-15.jpg)
+军事医学研究院秦成峰与中科院遗传所许执恒(左）。（资料图）
+
+日前，军事科学院军事医学研究院秦成峰科研团队，在国际上首次阐明“寨卡病毒”毒力增强的分子机制。
+
+据了解，“寨卡病毒”是一种古老的虫媒病毒，最早于1947年分离于乌干达的Zika森林故而得名。在随后的数十年中，由于“寨卡病毒”感染患者的临床症状均较为轻微，没有引起广泛关注。从2007年开始，“寨卡病毒”在东南亚地区和太平洋岛国不断出现较大规模暴发流行。2015年进入美洲以后，“寨卡病毒”感染导致的神经系统疾病，尤其是新生儿小头畸形的发病率急剧上升，引发全世界的高度关注，被世界卫生组织宣布为“全球关注的突发公共卫生事件”。
+
+近年来，秦成峰团队联合中科院遗传发育所等单位科研人员协同攻关，在“寨卡病毒”致病机制研究中取得重要进展。他们发现了一个位于“寨卡病毒”prM蛋白中的关键位点，单个氨基酸突变即可显著增强“寨卡病毒”的神经毒力，从病毒层面揭示了“寨卡病毒”感染导致小头畸形的分子机制。该研究成果，还在国际著名的学术期刊《科学》上发表。
+
+据悉，小头畸形即小头症，是一种严重的神经发育障碍疾病，患者脑部发育不全，智力低下，终身不能生活自理，给患者、家庭和社会带来沉重负担。2016年以来，世界各国科学家围绕寨卡病毒的生物学特征、致病机制以及疫苗、药物等开展了一系列研究，并取得了重要进展。然而，“寨卡病毒”究竟如何从一个无人关注的“普通”病毒，演变为可导致小头畸形的致命病毒，科学界一直缺乏合理的解释。
+
+2016年“寨卡病毒”输入我国后，军事医学研究院病原微生物生物安全国家重点实验室秦成峰团队立即开展科研攻关，先后从我国输入性病例体内分离获得了一系列不同来源的“寨卡病毒”，并通过与中科院遗传所许执恒课题组合作，成功建立了“寨卡病毒”的胎鼠动物模型，证实了“寨卡病毒
+
+为了进一步确定导致不同“寨卡病毒”流行株致病力差异的决定位点，研究人员对全部“寨卡病毒”株基因组全序列进行了深入的生物信息学分析。结果发现与2010年柬埔寨分离株相比，当前“寨卡病毒”流行株发生了一系列氨基酸突变，其中7个氨基酸位点保守性较高且稳定存在于当前流行株中。因此，研究人员将上述7个突变位点分别引入寨卡病毒的感染性克隆中，利用反向遗传学技术获得了相应的突变病毒。进一步的动物实验发现，携带S139N突变的“寨卡病毒”对乳鼠的致病力显著提高；如果在当前流行株中反向引入N139S突变则显著降低了病毒的神经毒力。
+
+同时，S139N突变病毒在E13.5胎鼠模型中也表现出更强的颅内复制能力和致小头畸形能力；而且，在人神经前体细胞中S139N突变病毒也表现出更强的感染能力，导致更为严重的细胞死亡。进一步溯源分析发现，S139N突变最早出现于2013年5月的法属波利尼西亚流行株，而且该突变稳定存在于几乎所有2013年以后太平洋诸岛和美洲分离株中，与寨卡疫情大暴发过程中大量新生儿小头急性病例的出现高度吻合。上述结果充分表明，“寨卡病毒”中S139N单氨基酸位点突变即可显著增强其对神经前体细胞的嗜性，进而导致更为严重的小头畸形。
+
+该研究首次发现了决定“寨卡病毒”神经毒力的关键位点，揭示了“寨卡病毒”靶向神经前体细胞导致小头畸形的分子机制。相关发现为近期寨卡疫情中小头畸形病例的突然出现提供了合理解释，为“寨卡病毒”的快速演化之谜提供了直接证据。尤其是S139N突变位点的发现为今后寨卡病毒的病原监测和风险预测提供了重要靶标，对于“寨卡病毒“致病机制研究，以及疫苗和药物的研发亦具有重要指导意义。
+
+军事科学院杨学军院长、方向政委亲自致信祝贺，他指出，当前，军事科学院刚刚组建，正处于转型重塑、升级跨越的崭新历史起点，团队取得的原创性、突破性成果，为全院科研人员树立了卓越典范。
+
+\*\*\*\*\*闫博士推文附图三的消息连接全文\*\*\*\*\*\*
+
+[我国首个新冠mRNA疫苗获批临床，也是国内首个mRNA疫苗](https://www.163.com/dy/article/FFVEPUHM053296CT.html)（2020-06-25 12:05:21　来源: 生物世界）
+![]()![](https://gnews.org/wp-content/uploads/2021/05/15-16.jpg)
+据悉，由**军事科学院军事医学研究院**与地方企业共同研究，开发形成的**新型冠状病毒mRNA候选疫苗**（ARCoV）已于6月19日正式通过国家药品监督管理局临床试验批准。这是**国内首个获批开展临床试验的mRNA疫苗**。
+
+新冠肺炎疫情暴发以来，军事科学院军事医学研究院紧前部署应急科研攻关，同时推进多条技术路线的新冠疫苗研发。国产**新冠mRNA疫苗**是该院继**重组新型冠状病毒疫苗**（腺病毒载体）后，研制成功获批临床试验的又一高技术疫苗品种。
+
+研究表明，这一新冠mRNA疫苗**不仅可在小鼠和食蟹猴体内诱导产生高水平中和抗体，还可诱导保护性的T细胞免疫反应**。食蟹猴攻毒实验表明，疫苗免疫的动物可耐受高滴度新冠病毒攻击，有效阻止病毒复制和肺病理进展，显示出良好的保护效果。
+
+**mRNA疫苗**是近年来新兴的一种疫苗形式，其基本原理是通过特定的递送系统将表达抗原靶标的mRNA导入体内，在体内表达出蛋白并刺激机体产生特异性免疫学反应，从而使机体获得免疫保护。mRNA疫苗研发存在较高的技术门槛，目前仅有美国和德国研发的少数几个mRNA疫苗品种进入临床研究阶段，**我国此前从未批准过mRNA疫苗进入临床。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09110607/16-12.jpg)
+秦成峰（左），高福（右）
+
+项目负责人秦成峰**研究员**表示，国产新冠mRNA疫苗具有**三大优势：**
+
+一是疫苗抗原靶标选择更为精确，诱导产生的中和抗体特异性高，疫苗安全性更好；
+
+二是核心原料和设备全部实现了国产化，可实现产能迅速放大；
+
+三是采用单人份预充针剂型，可在室温保存一周或4℃长期保存，冷链成本低，容易实现人群大规模接种。
+
+目前，该新冠mRNA疫苗已经按照临床试验要求完成了多批次生产，将于近期在**树兰**（杭州）**医院**正式启动I期临床试验。
+
+\*\*\*\*\*\*\*图片连接原文引用完毕\*\*\*\*\*\*\*
+
+（文章内容仅代表作者个人观点）
 
 0
