@@ -1,73 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】香港现实版的《图书馆战争》
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1191385/)
+## 卢比奥称中共已被美大公司代理
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1191612/)
 
-作者：纽约香草山健身部     Ivy001
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/A-11.jpg)scmp.com
+面对利益的诱惑，大公司仍然对邪恶的中共不敢说“不”字，参议员卢比奥批评了苹果、脸书（Facebook）对中共唯唯诺诺的作法。
 
+《布雷特巴特》发表文章，“卢比奥：中共国已授权美国企业成它的代理人以推动对中共国的友好政策，而苹果公司的库克（Apple’s Cook）不能自由地谈论中共国”。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+文章介绍，5月7日在“休·休伊特秀”（Hugh Hewitt Show）节目上，参议员卢比奥说，中共国已被美国大公司“代理”，来推动有助于中共国的政策，并表示他不认为苹果首席执行官蒂姆·库克（Tim Cook）可以自由地谈论他对中共国的看法，（同样）脸书的首席执行官马克·扎克伯格（Mark Zuckerberg）也不想站在中共国的对立面。
 
+卢比奥说，中共国授权“美国大公司及其领导人成它的代理人，在美国推动和呼吁有利于中共国利益的政策”。
 
+他补充说，这些美国企业希望能够在中共国开展业务和生产产品。
 
-5月8日，立场新闻用《图书馆战争》做标题，报道港共政府康文署，以“避免违反国安法”为由，将九本书籍从香港公共图书馆下架。
+主持人休·休伊特（Hugh Hewitt）接着问道：“你认为苹果首席执行官蒂姆·库克能够畅所欲言地谈论中共国吗？”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08223939/image-138.png)新闻截图
+卢比奥回答说：“不，绝对不会。”
 
-这是继去年7月康文署引用所谓“国安法”，将黄之锋、陈淑庄等多本著作下架之后，康文署再次以同样的理由，强迫香港公共图书馆下架书籍。这九本书籍分别是：
+休伊特随后询问扎克伯格的情况，卢比奥回答说，“脸书虽然不在中共国，但我认为，他们越来越担心中共国在世界其他国家日益增长的电信影响力。所以他们不想在其他地方遇到问题，中共的人去某个国家说，嘿，你应该摆脱脸书，用我们版本的脸书取代它。我想他们一定很担心这个，我认为他仍然梦想并希望有一天，他们能够进入中共国。”
 
-港大学苑 《香港民族论》
+贪图眼前利益、无节操的大公司，无视中共的邪恶，至今不愿与中共脱钩、划清界限，还抱有幻想，心怀期待，当你被中共驯服的时候，你们差不多就该被“共产”了。
 
-何俊仁     《我向霸权宣战》
+奉劝大公司们，接受卢比奥参议员的劝告，要勇于对邪恶说“不”！
 
-陈淑庄     《陈淑庄敏感地带》
+原文链接：
 
-余杰         《卑贱的中国人》
+[https://www.breitbart.com/politics/2021/05/08/rubio-china-has-deputized-american-businesses-to-push-for-china-friendly-policies-apples-cook-cant-speak-freely-about-china/](https://www.breitbart.com/politics/2021/05/08/rubio-china-has-deputized-american-businesses-to-push-for-china-friendly-policies-apples-cook-cant-speak-freely-about-china/)
 
-余杰         《纳粹中国》
-
-林匡正《香港公民抗争运动史—挫败的三十年剖析》
-
-林匡正  《香港公民抗争运动史2 中港对决》
-
-林匡正  《激进：香港进步民主运动史》
-
-廖亦武  《这个帝国必须分裂》
-
-这个情况，就像中世纪教廷到处禁书、烧书一样，也和发动二战侵略前的希特勒政府到处号召人们烧书一样。为了什么？就是为了禁锢人民的思想！
-
-报道题目的“图书馆战争”，是引用日本作家有川浩的作品——《图书馆战争》。该书的背景是正化年间，日本政府为了清除泛滥于媒体上的糟粕而颁布了“媒体良化法”。然而，为了捍卫“求知的权利”和“言论自由”，一群勇敢的人组成了自卫组织，与手持枪械的国家机器展开连番抗争。“读书的自由，喜欢一个人的自由，以及保护心仪之人的自由，这些重要的自由，最终汇聚成这部交织着梦想与爱情的作品。伴随着炮火与抗争，让我们见证着图书队员们梦想地实现。”
-
-立场新闻用这部文艺小说，影射香港失去民主自由，被港共政府赤色专制的现状，亦表达了香港人不屈服、不放弃的精神。
-
-中共国和港共政府正在联手残害香港人，香港正在沦陷：香港不仅仅是急速中共国化，更严峻的是，香港正在急速新疆化。我们必须广泛传播香港危机，让香港人获得更多的国际关注，获得更多国家的帮助。 勿忘手足，光复香港！
-
-参考阅读：
-
-[【圖書館戰爭】康文署命圖書館下架 9 書　指涉違國安法　包括《香港民族論》](https://www.thestandnews.com/politics/%E5%9C%96%E6%9B%B8%E9%A4%A8%E6%88%B0%E7%88%AD-%E5%BA%B7%E6%96%87%E7%BD%B2%E5%91%BD%E5%85%AC%E5%85%B1%E5%9C%96%E6%9B%B8%E9%A4%A8%E4%B8%8B%E6%9E%B6-9-%E6%9C%AC%E6%9B%B8-%E6%8C%87%E6%B6%89%E9%81%95%E5%9C%8B%E5%AE%89%E6%B3%95-%E5%8C%85%E6%8B%AC-%E9%A6%99%E6%B8%AF%E6%B0%91%E6%97%8F%E8%AB%96/)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
-0
++1

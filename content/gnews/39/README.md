@@ -1,66 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 习近平要让美国出来给病毒背书&nbsp; 然后私下承诺什么都可以谈&nbsp; 否则…
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1191123/)
+## 贺福初2019/07/09吹响的生物疆场集结号意味着什么
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1191281/)
 
-**摘要：在2021年5月1日的盖特视频中，郭先生揭露了目前中共党内政治斗争目前非常激烈；中共想要做的是让美国为病毒的泄露说或自然来源说背书，然后私下承诺什么都可以谈，否则将要发动台湾战争来转移大众视线，将焦点由病毒转移至战争；同时，以战争来要挟世界上的其他国家，如印度、日本和澳大利亚，让他们对病毒真相保持沉默。**
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08221244/%E5%B0%81%E9%9D%A2-9.png)
+贺福初在2016年5月27日光明日报发表的署名文章[贺福初：解放创造力](http://www.cas.cn/zjs/201605/t20160527_4558799.shtml)中提到：
 
-**习近平现在是中南海的“光杆司令”，党内没人敢讲国内经济形势以及世界政治形势的真话。一旦发动了台海战争，习愿意牺牲成百上万的军人！他认为，当战争中的死亡人数达到一定程度时，美国会变心软而不愿再战。中共的底线是，只要不打北京，死多少人都可以。战争胜利后，习将专心清理王岐山、曾庆红、江泽民等政敌。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08220011/Miles_20210501-getter1.srt.txt)
-**习近平要让美国出来给病毒背书****  ****然后私下承诺什么都可以谈****  ****否则****…**
+［凡是过去，皆为序曲。理性的哲学，感性的艺术，均是现代科学的前奏。人类灵性的创造力，经数千年历练，终于驰骋于最佳的疆场——自然科学。］
 
-**Xi Is Willing to C****ompromise Anything Economically If the U.S. Endorses the CCP, Otherwise…**
+［在漫长的人类历史中，创造力曾是“至高无上”的所谓“神”的特权。在人类文明混沌未开的蛮荒时期，全世界的宗教都很类似：一个或多个神创造了天、地和水，同时还创造了男人和女人。只有在文艺复兴时期，尤其是紧随其后的近代科技登上历史舞台后，情况才发生逆转。现在，人类是创造者，而神仅是人类臆想出来的事物。我们的未来正日益紧密地与人类的创造力联系在一起。当今世界与人类未来需要发出“解放创造力”的呐喊。这将是人类理性与灵性最后、最彻底的解放，将释放人间最伟大的力——智力，释放世间最伟大的能——智能。人类的历史，属于创造力！人类的未来，更在于创造力！］
 
-现在国内形势非常紧张，大家都看到了现在党内都知道曾、王、习大战已经到了中期段落了。作为姥姥家是福建的曾庆红、山东人的儿子王岐山和河南人的儿子长在陕西的习大神，这一波较量到了最关键的时刻。
+也就是说在贺福初看来，当代社会已经进入人类是创造者的时代，人类作为创造者可以创造什么呢？贺福初隐而未发，但是既然在他看来神是人类臆造出来的事物，那么人类应该可以创造神可以创造的一切东西，这一切东西里边也包括男人和女人，而人类灵性的创造力所驰骋的场地是自然科学的疆场。
 
-Currently, the domestic situation in China is very tense. You all have seen it. Everybody in the CCP knows that the battle between Zeng (Qinghong), Wang (Qishan), and Xi (Jinping) has reached the mid-stage. Zeng Qinghong’s grandmother is from Fujian. Wang Qishan is a son of Shandong. The great god Xi (Xi Jinping) is a son of Henan, and grew up in Shanxi. This wave of competition between them has reached the most critical moment.
+那么什么是疆场呢？为了避免因才学疏浅而屈解词意，故特意到百度上查证，据[百度百科——疆场](https://baike.baidu.com/item/%E7%96%86%E5%9C%BA/7148720?fr=aladdin)［疆场，汉语词语，拼音是jiāng chǎng，意思是战场。］，也就是说在贺福初院士看来，在人类的智能创造力上，他身处疆场之中，在理解了这一点之后，我们就可以非常透彻的理解[*贺福初*院士在*清华*生科院2019年毕业典礼寄语](https://v.youku.com/v_show/id_XNDI2NzIyMTgwNA==)（来源：优酷 发布时间：2019-07-09）所蕴含着的意义了。
 
-而且最近共产党内部已经明确了，非常清楚的一定要打好冠状病毒这一仗。打好冠状病毒仗是什么呢？就是让美国必须站出来为共产党背书，让美国说这是武汉实验室泄露或来自自然，跟共产党没有关系。让美国出来背书，然后私下承诺什么都可以谈，经济上怎么都可以谈，同时做好「准备」如果美国不这么做就打台湾。「在」台湾、南海跟美国干一场，做好牺牲50万所谓的共产党人民解放军战狼的准备，把美国这届政府打垮，把美国的经济打垮，让全世界的注意力全注意到台湾和南海之战上去，不再谈管状病毒。这说明了什么兄弟姐妹们？说明了共产党知道冠状病毒会要它的命。
+贺福初在这次演讲中提到了他发现的与牛顿第一定律比肩的一个重要“规律”——［第一定律，发现牛顿第一定律放之四海而皆准，对于社会运动、社会的演进也是一样的，呈惯性定律，我看到这个定律之后，当时非常吃惊，然后觉得这个戏剧性的现象肯定为前人所发觉，所以我请教了军委科技委的副主任转任的军科的副院长，那边有一批的历史学家，然后我问他们，我说这个规律知道不知道，历史学家们从来不知道这个现象，然后更不知道这个本质，然后更没有总结到这个规律，后来发现牛顿第一定律是被牛顿发现的，社会的第一定律是被我发现的。］
 
-It has recently been made clear within the CCP that they must fight this coronavirus battle cleverly. How to fight the coronavirus battle? By making the United States endorse the CCP, make the U.S. say that the coronavirus is either leaked from the Wuhan lab, or that it came from nature and it has nothing to do with the CCP. If the U.S. endorses the CCP, the CCP can privately talk with the U.S., promise everything, and compromise anything economically. At the same time, the CCP is prepared to attack Taiwan if the U.S. does not do as it wants. They are prepared to go to a war with the U.S. in Taiwan and in the South China Sea and to sacrifice 500,000 wolf-warrior soldiers from the People’s Liberation Army (PLA) of the CCP, to bring down the current U.S. administration and knock down the U.S. economy. The CCP wants to distract world’s attention from the coronavirus pandemic to the war in Taiwan and the South China Sea. What does this mean, brothers and sisters? It shows that the CCP knows that the truth about the coronavirus will end its life.
+贺福初发现的所谓社会运动、社会的演进呈惯性定律是什么呢？［前一文明发祥地往往因为其强大惯性无一例外地未能发端新的文明，新的文明则无一例外地发端于前一文明落后甚至匮乏的国度和大陆！古往今来的所有文明无一例外。］
 
-同时要让印度彻底服软；要让日本感到恐惧；澳大利亚感到恐惧；要让美国人感到病毒的事情绝对不能去追究共产党的责任，绝对不能查真相，更不可能给你解药。当然这个战略一出来，习大神孤家一人了。中南坑改成习一坑了，因为只有习近平一个在城坑里边了，所有的常委的人都跑出去了，找各种理由溜出去就「是」不在中南坑里待着了，给你习一个人的，叫习一坑，习一坑。就现在给你吧。就像我告诉大家的一样：整个中南坑现在就俩人跟着，就习相信的 — 杨娘娘、王公公。
+贺福初对于他的这一所谓发现推导出什么样的结论呢？［第一这个规律有没有例外，至今我没有发现例外，所以说如果你们能提出例外，这个是对我的极大帮助，有没有例外，第二个如果是古往今来没有例外，你们跟我说一说，美国何以可以例外！］，这意味着什么呢？接下来在生物疆场上的较量美国必定不会是赢家！
 
-Meanwhile, the CCP wants to completely subdue India, to terrify Japan, to frighten Australia, and to make the U.S. abandon the idea of holding them accountable for the coronavirus pandemic. The truth about the virus must not be investigated, and there is absolutely no possibility for them to give out the antidote. Of course, as soon as this strategy was revealed, the great god Xi became a one-person captain. The Zhongnan pit became Xi’s one-person pit because only Xi Jinping was left in this pit. All the CCP’s Standing Committee members have ran away. They found all kinds of excuses to slip out and do not stay in the Zhongnan pit anymore. “Here you are. This place is all yours, for you Xi Jinping alone. Let’s call it Xi’s one-man-pit. We give it to you now.” As I mentioned earlier, there are only two people standing with Xi in the entire Zhongna pit. Only two people whom Xi still trusts – Sissy Yang (Yang Jiechi) and Eunuch Wang (Wang Yi).
+既然贺福初认为生物科技的角逐是疆场，既然贺福初认为接下来的王者一定不是前一文明的创造者的美国，那么接下来在贺福初认为的生物疆场的王者会是谁呢，这一点贺福初说，［我们说知识文明之后是一个智慧时代，而这个时代理论上来说，理论的预测如果是对的，它不应该在美国出现，然后在哪里出现？这是我们的一个重大的运气。］，也就是说这是贺福初们的一个重大的运气，既然贺福初认为生物科技的竞争是疆场，既然贺福初认为这是我们的一个重大的运气，那么贺福初对在座的2019年清华生科院学子们发出了战斗的号角也就水到渠成了——
 
-现在所有的外交部还有中国金融系统给习作报告「的时候」，像4月份这个经济报告，大家说一定不能说实话，不能把民生的事说出来，不能把许家印的恒大说出来，更不能把招商银行「说」出来，也不能把平安的事情说出来，也不能特别是「把」现在香港的经济形势说出「来」，「只能编」各种瞎话的骗人。现在来自于中东的捷报频传和非洲司的外交部的捷报频传掩盖了世界上向中共讨要冠状病毒真相，和全世界都在加剧憎恨共产党同时，怪罪亚洲人的真相。一切都被盖住了，一切都被盖住了。所以说现在习大神叫习一坑，「他」活得很滋润，叫打好冠状病毒这一场「仗」，让印度彻底跪下来，让日本感到恐惧。「如果」你不恐惧，下个就是你。让澳大利亚彻底害怕，不行就给你来一剂猛「药」。让全世界看：看到没有？给我对抗的结果就是这个，这是真正的「他们的想法」。
+［**抗日军政大学毕业生他们在抗日战争中叫响了“从这里走向战场”！以此类推，我呼吁“清华生物“的学子们在中国由大到强、在中美战略博弈进入热战期的时候可否叫响”从这里走向“生物化的疆场”？！**］
 
-Currently, when the Ministry of Foreign Affairs and Ministry of Finance make presentations to Xi (e.g. the economic outlook report published in April), everybody says that you must not tell the truth. You cannot tell the truth about Minsheng Bank, about Xu Jiayin and his Hengda Group, definitely not mention the troubles at China Merchant Bank, at Ping An Insurance, and particularly don’t mention the current economic situation in Hong Kong. Just make up all kinds of nonsense to deceive him. Now there is triumphant news coming out of the Middle East, and good news keeps pouring in from the Department of African Affairs at the Ministry of Foreign Affairs. This helps to cover up the truth that the world is asking the CCP for the truth about coronavirus, and that the hatred towards the CCP is intensifying around the world. At the same time, Asians are being blamed for the pandemic. Everything is covered up. That’s why the great god Xi is called “one-person Xi” now. His life is pretty good. He demanded that the CCP has to win beautifully in the battle of the coronavirus. The strategy is to make India kneel down and then make Japan feel terrified. Because if you [Japan] do not back off, you will be the next target. Secondly, to make Australia completely terrified, otherwise Australia will get a dose of “strong medicine” [meaning virus] from the CCP. Make the world pay attention: “Have you seen what we (the CCP) can do? This is your destiny if you dare to confront us.” This is the CCP’s real plan.
+既然目标是美国，既然是疆场，既然中美战略博弈进入热战期，那么作为一个战争狂人不管怎么对病毒改造和以病毒作超级武器让敌人跪下就都顺理成章了，这一场战争始于何时？我想对于贺福初来说至少自1994年起就已经是这场战争的一员了——据据[百度百科——贺福初](https://baike.baidu.com/item/%E8%B4%BA%E7%A6%8F%E5%88%9D/4313734?fr=aladdin)［贺福初于1982年从[复旦大学](https://baike.baidu.com/item/%E5%A4%8D%E6%97%A6%E5%A4%A7%E5%AD%A6/111790)毕业；1994年获得军事医学科学院放射医学研究所博士学位，之后留所工作 [17]  ，先后担任军事医学科学院实习研究员、助理研究员、副研究员、研究员、副所长、所长，副院长，院长；1996年获得[国家杰出青年科学基金](https://baike.baidu.com/item/%E5%9B%BD%E5%AE%B6%E6%9D%B0%E5%87%BA%E9%9D%92%E5%B9%B4%E7%A7%91%E5%AD%A6%E5%9F%BA%E9%87%91/5838391)资助；2001年当选为中国科学院院士；2002年被授予专业技术少将军衔；同年[国际人类肝脏蛋白质组计划](https://baike.baidu.com/item/%E5%9B%BD%E9%99%85%E4%BA%BA%E7%B1%BB%E8%82%9D%E8%84%8F%E8%9B%8B%E7%99%BD%E8%B4%A8%E7%BB%84%E8%AE%A1%E5%88%92/13825551)启动，贺福初担任人类肝脏蛋白质组计划负责人；2003年担任人类肝脏蛋白质组计划主席；2004年创立了[复旦大学生物医学研究院](https://baike.baidu.com/item/%E5%A4%8D%E6%97%A6%E5%A4%A7%E5%AD%A6%E7%94%9F%E7%89%A9%E5%8C%BB%E5%AD%A6%E7%A0%94%E7%A9%B6%E9%99%A2/3805370) [16]  ；2005年当选发展中国家科学院院士；2009年担任中国人民解放军军事医学科学院院长；2014年领导启动“[中国人类蛋白质组计划](https://baike.baidu.com/item/%E4%B8%AD%E5%9B%BD%E4%BA%BA%E7%B1%BB%E8%9B%8B%E7%99%BD%E8%B4%A8%E7%BB%84%E8%AE%A1%E5%88%92/14434840)”；2016年担任中央军委科技委员会副主任；2017年担任军事科学院副院长 [3]  。］
 
-党内现在大家都已经清楚了：曾、王挑战习一定会有一方倒下或者全倒下。现在曾庆红每天都活在他姥姥家 — 福建，邓六金的老家。「他」那是有想法的。
+（文章内容仅代表作者个人观点）
 
-It is now clear to everyone that within the CCP, Zeng and Wang are challenging Xi and in the end one side will fall, or all sides will fall. Zeng Qinghong is currently living in his grandma Deng Liujin’s hometown in Fujian. He has ideas.
+注：以下为[*贺福初*院士在*清华*生科院2019年毕业典礼寄语](https://v.youku.com/v_show/id_XNDI2NzIyMTgwNA==)（来源：优酷 发布时间：2019-07-09）全文字纪要——
 
-习现在就两「张」牌了：我手里有合法的控制国家的武器 — 军队，第二，不行我就打台湾。但是这种事情在任何时候都是双利剑，「一旦」军队不听指挥咋办？你打台湾你咋知道美国不打你北京城啊？但习的内心世界绝对相信美国只能会打代理人战争绝不会直面冲突，所以他觉得「如果」牺牲到50万大军美国人一定退。就是我让血流成河让你美国人害怕，就是你杀了我的人，我拿「些」孩子「让」你杀到手软，最后你就把我放过了。
+清华大学生命科学学院2019级毕业生，一年一度秋收季，春华飞舞心花怒放，这是秋实更是春华，谨向同学们表示热烈祝贺！清华老校长梅贻琦先生有句名言：所谓大学者，非谓有大楼之谓也，有大师之谓也。三天前清华现任校长邱勇院士在“吴冠中绘画艺术作品捐赠仪式”上讲到：于大学而言，大师的意义在于其推动人类文明进步的学术造诣，并要求“让大师风范在校园永驻”!
 
-Xi has two cards left now: first he has the army, a legal weapon, with which he can control the country. Secondly, if this doesn’t work, he will attack Taiwan. But this is always a double-edged sword. What if the army does not obey him? How can he be sure that the U.S. won’t attack Beijing when he attacks Taiwan? But Xi deeply believes that the U.S. can only fight proxy wars and will never engage in head-on confrontations. Therefore, he feels that Americans definitely will retreat if the CCP sacrifices 500,000 Chinese soldiers. That is, the CCP thinks they can scare the Americans when they see the battlefield flowing with rivers of blood. The Americans will be allowed to kill Chinese soldiers. The CCP is willing to sacrifice Chinese kids until the Americans become soft-hearted and lose their stomach for the fight. Then the U.S. will let the CCP have their way in the end.
+大师必然生逢大时代！大师必须开创大时代！历史一再表明，每个不曾起舞的年代，都是对时代的辜负，而在历史长河中这种荒芜的年代却占绝对的多数，可见大时代总是可遇不可求!不过今天我想明确告诉你们的是：人类正迎来生物化大时代！你们正好c位出道！中国，要开创生物大时代！你们，我确认过眼神！因此，今日我给诸位的临别赠言是：“开创生物化时代”！
 
-这都是流氓、黑帮、贩毒分子的事：生几十个孩子，把孩子扔出几个去让警察杀，杀到你自己不敢杀了，你把我「就」放过了。就是让台湾死伤个百八十万人，让所谓的共产党的人民军队也就是共产党的党卫军死伤了四五十万人，把那辽宁什么伯格宁号「你美国人」也干掉它，把南海机场「让」你炸毁它，不行把海南几个基地让给你，把大连青岛几个基地让给你，你炸毁「不」就完了呗？你别打我北京城。但是这个一但「实现」了，那习就「有」优势了，拿出手来就把王和曾「派势力」通通的抹「平」了，江家就更不在话下「了」。
+自然界最伟大的地方，是进化力，宇宙万物均源于进化，自然界历经一百多亿年的进化才产生了生物世界，生物世界是物质世界的演进之极——这个极致的极，生物界在近38亿年的进化才产生现代人类，人类历史是物质运动的玄妙之致——极致的致，2014年3月26日美国达卡局长普拉巴特尔在去国会听证报告中指出，生物是大自然的终极创新者，任何指望创新的机构如果不从这位系统复杂的大师身上寻找灵感与解决方案，那将是愚蠢的！四天以后，美国国会不那么愚蠢了，然后批准了达卡设立生物技术办公室，旨在改变游戏规则、创造游戏规则、进一步巩固美国在全球国防科技领域风向标的领先优势，下面我从三点来讲生化物时代的有关问题。
 
-This is the behavior of gangsters, mafia, and drug dealers: giving birth to dozens of children, then throwing out a few of them to be killed by the police until the police themselves get sick of killing and give you a break. They are okay with hundreds of thousands or a million casualties in Taiwan, sacrificing half a million PLA soldiers, i.e., the CCP’s Schutzstaffel, and letting the Americans destroy the Chinese aircraft carrier Liaoning (Varyag) and blow up Nanhai Airport. If that’s not enough, the CCP will let the Americans blow up bases in Hainan, Dalian, and Qingdao, okay? Just don’t strike us here in Beijing. Once this goal is achieved, Xi will have the upper hand. He can be spared to eliminate Wang and Zeng’s rival forces and take down Jiang’s (Jiang Zemin) family without any problem.
+一、“生物化时代”何来之有？
 
-所以习现在：对内捞经济，能拿谁拿谁的，准备好最坏的时刻到来，要打好这个半场的战争就是要让印度跪下来，让日本害怕，让澳大利亚害怕，然后让美国哆嗦，就是一个它「共产党」最想要的结局。然后「一旦外部」没事了，或者打台湾或者内部解决。这就是习要坚持住的，这今年「是中国传统的」辛丑年真不容易。现在变成“习一坑”了，这真的对他来讲「也」很危险，「成了」孤家寡人了。
+近代以来，科技逐步成为人类社会文明进步的原动力。二十世纪，生物科技异军突起，1953年，DNA双螺旋模型提出，开启分子生物学时代；1972年，DNA体外重组技术建立，现代生物技术诞生；1997年，多利羊诞生，克隆时代到来；2003年，完成人类基因组计划并启动人类蛋白质组计划，“生命天书”面世并迅即开始破译此“天书”；2007年，干细胞技术突破，人造器官成为可能；2010年，“人造支原体”诞生，人类进入创造生命时代；2013年，欧美新一轮脑科学计划启动，于是人类开始进军自然科学“终极疆域”。人类科技史上、乃至整个人类文明史上，很少有过如此这样的在一个领域里大科学计划接踵而至、重大发现与技术突破连续不断，并且理论与技术齐鸣、宏观与微观并发的、而且持续长达60余年的大发现、大爆发时代！
 
-So, Xi’s current plan is to control the domestic economy, take whatever he can from whomever he can, and prepare for the worst moment to come. To put up a good fight of this “half-time” war he plans to make India kneel down, frighten Japan and Australia, and make the U.S. tremble. This is what the CCP wants most. Once everything is okay externally, the CCP will either attack Taiwan or solve its problems internally. This is what Xi is counting on. This year is the traditional Chinese year of Xin Chou (38th year of the 60-year cycle). It is really not an easy year. Now it [the CCP] has become Xi’s one-person pit, which is extremely dangerous to him. He is all isolated, being cut off from others.
+与此相应，后起的现代生物科技在短期内已经发展成为21世纪的龙头领域。我们从二十世纪过来的人都知道，在世纪之交的时候曾经有一个预测说，二十一世纪将是生物科技的世纪，生物科技将逐步成为引领领域，不想在十年之内这一个历史性的使命已经完成，我们可以从以下几点就可以看出，来证明这个结论是可信的。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/608d69874486aa0bb231f904](https://gtv.org/getter/608d69874486aa0bb231f904) (00:10-06:21)
-鸣谢：
-[1] 感谢Antsee-GTV、TING GUO提供中文文本于[https://www.gnews.org/zh-hans/1163156/](https://www.gnews.org/zh-hans/1163156/)
-[2] 感谢YY、Liberte提供英文翻译于 [https://gnews.org/1167999/](https://gnews.org/1167999/)
+从文献计量看，生物科技已经是研究最活跃的方向，SCI数据库中生物科技文献独占50.29%,这是数量指标；而被引频次则高达65.9%，接近所有科技文献的三分之二，这是质量指标，而这一标准、这一指标不仅明显高于数量指标，同时还说明生物科技文献至少有15%被其它领域的文献引用，从而表明生物科技对其它领域的辐射和带动作用。而从重大成果看，《Nature》评出的2000-2013年间重大突破总数为164项，生物科技82项，独占一半；《Science》评出的2000-2014年重大突破总数为150项，其中生物科技88项超过一半；《Science》评出的2000-2014年度重大突破总数为150项，其中生物科技88项，超过一半；最近10年，两刊评选出的重大突破中，生物科技已占到60%,呈现进一步扩大之势。从科学大数据产出看，生命组学产生的信息量其倍增时间为12个月，明显快于“摩尔定律”的18个月。简言之，生物科技的产出已独占人类所有科技领域的半壁江山！科技的生物时代无疑已经到来！
 
-* * *
+诺贝尔说过：“生命，那是自然付给人类去雕琢的宝石”。2018年，诺贝尔奖三大科技奖项全部与生物相关，从另一维度很好诠释了科技的生物化时代的到来！
 
-**整理校对 & 新闻撰写：【7PawBear（纽约香草山农场）】
-字幕：【Rock小哥】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+二、“生物化时代”功力何往？
 
-+2
+时代之功，在乾坤、在社稷。回望科技开始引领人类文明进步以来的全球现代化发展史，不难发现，它既是一部科技革命、产业革命、社会革命的裂变史，又是一部技术创新与制度创新的聚变史，这里我借用了两个核物理的词儿，一个是原子弹的核能的核裂变，一个是氢弹的核能的核聚变，所以这里面有科技革命、产业革命、社会革命的裂变史，有技术创新与制度创新的聚变史，但归根结底，是一部以科技为原动力，扭转乾坤、鼎新文明的历史。
+
+比尔.盖茨曾预测，下一个世界首富必将出自生物技术领域。世界经合组织预计2020年生物经济将达到15万亿美元，超过信息经济成为世界上最强大的经济力量。近来，全球生物经济总量每5年翻一番，年增长率为25-30%，是世界经济增长量的10倍。当前，生物医药科技正推动第四次医学革命，有效防治重大传染病和慢性疾病，提高人类健康水平、延长寿命；农业生物科技正推动第六次农业革命、第二次绿色革命，是解决世界粮食危机的根本途径；工业生物科技正推进第三次化学工业革命，加速绿色制造业的发展。人们普遍预期，生物科技是解决全球性重大危机的突破口。
+
+生物技术还将作为主构性的技术，来汇聚信息、纳米、认知等其它先锋技术，塑造集大成的技术群和技术矩阵。这里我仅举一例，人工智能也就是硅基智能。它是源自生物智能（也叫碳基智能）的机械化与工程化。人类虽已开始迈入初阶智能时代，但是我们必须清醒地认识到：智能时代在达到顶阶智能之前的相当长时间内，将始终是碳基（生物）智能为源、硅基（人工）智能为流的时代！也就是说，智能时代归根结底是“生物时代”！因此，为有源头活水来，碳基智能工作者必须身先士卒、一马当先，做智能时代的先锋！
+
+三、开创“生物化时代”！
+
+人类起源于非洲，继而走向全球。在亚洲，通过解放“物之力”，创造了首个人类文明，即农业文明。在欧洲，通过解放“能之力”，创造了工业文明。在美洲，通过解放初阶“智之力”（计算智能），创造了知识文明。从中不难看出，人类文明的潮头从未停止过行进，但地域上却总是喜新厌旧！这一史实，地球人都知道！但是这一史实明显违反了人们的常识，这一点过去地球人都不知道。
+
+这一常识是什么呢？就是前一世代的王者，往往更有可能成为下一世代的王者！这也正是全球各国人才选拔的基本原理，当然也是我们在座各位能进入清华的逻辑前提！我们小学成绩好、中学成绩好、大学成绩好，是吧？中学成绩好然后我们才能进入清华，然后大学成绩好，然后考研究生成绩好，然后我们才能作为清华的研究生，所以古往今来各界人才的选拔几乎都遵循了这样的原理和逻辑前提，但是文明的演进何以一而再、再而三直至全部地违反人们的常识呢？
+
+我们再复习一下，人类起源于非洲，非洲没有起源文明，第一个文明起源于远离非洲的亚洲，这就是农业文化，但是到此为止，由于我们的下一个文明又是远离亚洲的欧洲，又到此为止，然后下一个文明是在大西洋彼岸的美洲，所以每一个时代的前一个时代的王者，一个没有成为下一个时代的王者，所以人们的这个常识在历史演进过程当中全是错的，为什么会错呢？而且是全错呢？
+
+2017年我出于好奇，开展了系统深入的文明演进规律研究，发现文明演进如同物体运动，处于任一文明形态的国家乃至大陆总是趋向于保持原有的文明形态不变，文明也存在其固有的抵抗改变的惯性定律，所以回到了物体运动的牛顿第一定律，发现牛顿第一定律放之四海而皆准，对于社会运动、社会的演进也是一样的，呈惯性定律，我看到这个定律之后，当时非常吃惊，然后觉得这个戏剧性的现象肯定为前人所发觉，所以我请教了军委科技委的副主任转任的军科的副院长，那边有一批的历史学家，然后我问他们，我说这个规律知道不知道，历史学家们从来不知道这个现象，然后更不知道这个本质，然后更没有总结到这个规律，后来发现牛顿第一定律是被牛顿发现的，社会的第一定律是被我发现的。同时还发现：前一文明发祥地往往因为其强大惯性无一例外地未能发端新的文明，新的文明则无一例外地发端于前一文明落后甚至匮乏的国度和大陆！古往今来的所有文明无一例外。
+
+人类理性对自然、对自我的探究，无不经历数据、信息、知识与智慧四大递进阶段。自上个世界80年代以来，知识经济时代、信息时代、大数据时代相继到来。显然这个顺序与“从数据到信息、到知识、到智慧”的理性演进顺序截然相反，但恰恰是其实用性的大小顺序。因此，这一自然出现且井然有序的历史，预示着人类社会正走向集大成的更伟大时代，这就是“知识为源、智慧为流的智慧时代”！
+
+而根据文明演变的惯性规律推测，发端了知识文明的美国甚至美洲不会再发端智慧文明，这一新生文明将发端于远离美洲的其他大陆，我是2017的8月14号发现这个规律，然后10月份带着中国的智库代表团访问美国，第一站是到国会，然后第二站五角大楼，第三站是访问了很多美国的智库，然后经过中国和美国同时审查包括了两个东西，一个是军事科技演进规律，等下次有时间我再跟清华的师生们汇报，另外一个就是文明演进的规律，而且将这一推断在国会山两个委员会一个是外交委员会一个是军事委员会进行交流，另外向大西洋的智库还有几个基辛格的基金会的智库也进行了交流，然后将这一推测就转告了美国总统，引起了极大的反弹，当场我就跟他们说，我说你们可以跟我说，第一这个规律有没有例外，至今我没有发现例外，所以说如果你们能提出例外，这个是对我的极大帮助，有没有例外，第二个如果是古往今来没有例外，你们跟我说一说，美国何以可以例外！当然这个是就没有回答。所以我们刚才所谈的就是根据这样一个文明演进的规律和自然理性的演进的规律，我们说知识文明之后是一个智慧时代，而这个时代理论上来说，理论的预测如果是对的，它不应该在美国出现，然后在哪里出现？这是我们的一个重大的运气。
+
+历史上的强国均曾开创新的时代，英国开创了工业时代，美国开创了知识经济时代。我们要想成为新的强国，就必须开创新的时代！周虽旧邦，其命维新。环顾全球，智慧时代，舍我其谁？这个问题我想我们清华的学友可以去回答，**在最后结束之前，我想提醒大家复习一个事实，就是在抗日军政大学毕业生他们在抗日战争中叫响了“从这里走向战场”！以此类推，我呼吁“清华生物“的学子们在中国由大到强、在中美战略博弈进入热战期的时候可否叫响”从这里走向“生物化的疆场”？！**谢谢大家！
+
+\*\*\*\*\*\*\*全文字纪要摘录完毕\*\*\*\*\*\*\*
+
+0

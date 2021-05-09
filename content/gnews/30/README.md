@@ -1,46 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】意料之中，港支联会“六四”烛光晚会及游行申请被拒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1191407/)
+## 病毒人造证据“堆积如山”，美议员呼吁调查确认
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1191257/)
 
-配音：香草山录音组 蒙古鸿雁
+加拿大多伦多枫叶农场 军迷Wilson
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+据布莱巴特新闻网5 月 8 日报道，美国众议员迈克·加拉格尔（Mike Gallagher）在本周五的福克斯访谈节目中声称，当前全世界几乎所有的研究证据及科学发现都指向CCP病毒来自实验室而非自然进化，议员作为美国最高权力机构的主要成员，“应该知道”病毒到底从哪里来。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08222213/gannett-cdn.com-2-1.jpg)*图片来源：gannett-cdn.com*
+迈克进一步表示，病毒来自实验室的证据已经“堆积如山”，我们为什么迟迟不作深入的探究，有一个最终的、确定的结论呢？从迈克的话中，可以感受到病毒来自中共武汉实验室的真相已经呼之欲出。
 
+现任美国传染病研究所所长兼总统首席医疗顾问福奇和世卫顾问达扎克，利用美国纳税人的钱长期资助武汉病毒研究所，其中达扎克的生态健康联盟，对武毒所的资助计划要在4年后才结束。早有耳闻的迈克强调，我们还要调查美国的资金是否参与了（中共）该项损害美国的实验室病毒增强改造研究。
 
+俄罗斯国家杜马（议会下院）主席沃洛金 2月27日宣称，CCP病毒可能从位于中共国的一家美国生物实验室泄漏，美国应该对疫情后果负责。沃洛金所指实验室就是武毒所，福奇和达扎克都是使用美国政府的拨款资助了武毒所，美国政府要完全撇清和中共以及武毒所的关系并不容易。因此美国只有积极追究达扎克等人的责任，尽快发布确定中共发动超限生物战的白皮书，才是最明智的做法。
 
+[原文链接](https://www.breitbart.com/clips/2021/05/08/gop-rep-gallagher-evidence-stacking-up-supporting-lab-leak-theory-on-covid/)
 
+* * *
 
-
-
-4月27日下午，香港支联会就举办纪念“六四事件”的烛光晚会及其他活动，向警方申请不反对通知书并申请借用场地，但港府康文署借故以中共病毒疫情为由，不处理有关申请。中共撕毁“一国两制”，疯狂打压民主活动，这次港共政府拒绝“六四”活动申请，也是意料之中。
-
-2019年6月4日，香港支联会组织举办了纪念“六四”的烛光晚会，参加者超过18万之众。当年6月9日，香港爆发了震惊中外、旷日持久的“反送中”运动。在一年多里，香港的民主勇士们组织了多次的超过百万人的游行，而中、小型游行更是常态性举行。香港人为了争取保持原有的民主自由，不畏港共政府黑警的疯狂打压、屠杀，坚持了一年多的民主抗争运动。2020年的“六四”前夕，香港支联会如常申请举行“六四”烛光晚会，警方以中共病毒疫情和“限聚令”为由，向支联会发出反对通知书，为31年来首次。但支联会主席李卓人、副主席何俊仁等人仍手持烛光，进入维园悼念，当时超过万名香港市民响应。然而晚会后，部分发起人遭港共秋后算账。
-
-
-
-**文字版原文：[【世事解评】意料之中，港支联会“六四”烛光晚会及游行申请被拒](https://gnews.org/zh-hans/1165860/)**
-
-作者：纽约香草山健身部    Jack Li文阳
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑 发稿 云起时
 
 0

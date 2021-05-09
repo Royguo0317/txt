@@ -1,49 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月8日美国政要和政评家反共推特精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1191291/)
+## 警惕中共国在非洲的军事野心
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1191446/)
 
-众议员迈克·加拉格尔：明天，主持人查克·托德[@chucktodd](https://twitter.com/chucktodd)和喬治·斯蒂芬諾伯羅斯[@Gstephanopoulos](https://twitter.com/Gstephanopoulos)将在他们的周日秀节目中邀请福奇(Fauci)博士。 他们需要利用这个机会向福奇博士追问重要且长期未解决的问题。 大流行病已持续近一年半了，该是得到答案的时候了。
+翻译：康州盘古农场 – 格格巫
 
-问题1：福奇他是否同意谭德赛(Tedros)博士的观点，认为对实验室泄漏的可能性“需要进一步的调查”，包括2019年秋季在武汉实验室发生的任何疫情爆发？ 问题2：**USG向武汉病毒所(WIV)提供了多少资金**，其中有多少支持了危险的「功能增强」性研究？ 问题3：鉴于有关大流行病起源的未解之谜，他(福奇)是否仍然支持开展「功能增强」性研究，特别是在像中共国这样透明度很差的国家进行？ 在什么时候这种风险太大了？ **这不是阴谋论之说。事实是没有人 – 除了中共之外 – 有明确的答案。 不提出正确的问题，不仅会使我们无法理解为什么有60万美国人死了，而且同样重要的是，我们如何才能防止这种情况再次发生。**
+校对：康州盘古农场 – Mike Li
 
+编辑：康州盘古农场 – 心照
 
+发布：康州盘古农场 – 彩虹 Rainbow
 
-> THREAD ➡️ Tomorrow, [@chucktodd](https://twitter.com/chucktodd?ref_src=twsrc%5Etfw) and [@Gstephanopoulos](https://twitter.com/GStephanopoulos?ref_src=twsrc%5Etfw) will have Dr. Fauci on their Sunday shows. They need to use the opportunity to press Dr. Fauci on important and long overdue questions. Almost a year and a half into the pandemic, it is time for answers.
-> — Rep. Mike Gallagher (@RepGallagher) [May 8, 2021](https://twitter.com/RepGallagher/status/1391060071522648065?ref_src=twsrc%5Etfw)
+**据《南华早报》作者：杰文斯·尼亚比亚吉 （Jevans Nyabiage）， 2021年5月5日发布**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08195115/bugg44.png)中共国于2017年8月在吉布提正式启动了首个海外军事基地。 YouTube / CGTN
+美国在非洲的最高指挥官最近表示，中共国在吉布提的新海军码头可以为一艘航空母舰提供支持。
 
+中共国在非洲的维和部署被视为在非洲大陆建立军事力量的潜在借口。
 
+中共国已正式在吉布提启动了（军事）支持和物流的基地。周二300多人参加了开幕式。
 
-参议员玛莎·布莱克本： 拜登的税收政策：对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 有利， 对美国中产阶级不利。
+非洲之角的吉布提人口不足一百万，是非洲大陆上最小的国家之一，但是，它在规模上的不足，却以其战略位置弥补了这一点，可以俯瞰曼德海峡，这是红海和亚丁湾之间的一个咽喉。
 
+正是这个位置使它成为了外国军队的枢纽。 2017年之前，美国、法国、日本和意大利在该国建立了自己的军事基地。然后中共国到达，建立了所谓的后勤设施，向中共国船只提供维和人员和人道主义任务的补给。
 
+根据相关报道，该设施可容纳1,000至2,000名中共国海军人员。距离约12公里之外的美国莱姆尼尔军事基地，可容纳3400名人员。
 
-> Biden’s tax plan: good for China, bad for middle class Americans.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 8, 2021](https://twitter.com/MarshaBlackburn/status/1391063900100169729?ref_src=twsrc%5Etfw)
+原文链接：[https://www.businessinsider.com/the-us-is-wary-of-chinas-military-plans-in-africa-2021-5？ utm\_source=feedburner&utm\_medium=feed&utm\_campaign=Feed%3A+businessinsider+%28Business+Insider%29](https://www.businessinsider.com/the-us-is-wary-of-chinas-military-plans-in-africa-2021-5？%20utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+businessinsider+%28Business+Insider%29)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-
-
-前白宫顾问皮特·纳瓦罗： 2020年3月我在玛丽亚 [@MariaBartiromo](https://twitter.com/MariaBartiromo) 的节目上说病毒是来自 [#武汉](https://twitter.com/hashtag/%E6%AD%A6%E6%B1%89?src=hashtag_click) 实验室的。如果是真的，福奇就是病毒他爸。这片出色的文章为以上两件事提供了可信度。 [@cnn](https://twitter.com/cnn)[@nyt](https://twitter.com/nyt) 你们该起来报道了。白宫新闻秘书珍·莎琪（Psaki ）正在进行掩盖。【转推Medium博客网站，新冠起源——线索追踪，梳理了对新冠起源的核查】
-
-
-
-> In March 2020 on ⁦[@MariaBartiromo](https://twitter.com/MariaBartiromo?ref_src=twsrc%5Etfw)⁩ I said virus from Wuhan Lab. If true, Fauci is father of virus. This BRILLIANT article lends credence to both. [@cnn](https://twitter.com/CNN?ref_src=twsrc%5Etfw) [@nyt](https://twitter.com/NYT?ref_src=twsrc%5Etfw) man up and cover this.
-> 
-> Psaki coverup under way [https://t.co/6D0suKGLqh](https://t.co/6D0suKGLqh)
-> — Peter Navarro (@RealPNavarro) [May 8, 2021](https://twitter.com/RealPNavarro/status/1391033755398180880?ref_src=twsrc%5Etfw)
-
-
-
-章家敦 (中国问题专家)： 希拉里·克林顿[@HillaryClinton](https://twitter.com/HillaryClinton)是正确的：我们必须将制造业从 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 撤回。我们不能任由一个无情的政权摆布。CommunistChina [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click)[#在岸](https://twitter.com/hashtag/%E5%9C%A8%E5%B2%B8?src=hashtag_click)[#近岸](https://twitter.com/hashtag/%E8%BF%91%E5%B2%B8?src=hashtag_click)[#邻近制造](https://twitter.com/hashtag/%E9%82%BB%E8%BF%91%E5%88%B6%E9%80%A0?src=hashtag_click) 【转Chatham House推文： ‘我们不能依赖中国市场。 这不仅对我们的经济不利，对我们的地缘政治战略利益也很糟糕。” “除非您收回生产资料，否则你将永远不会与他们竞争并赢得胜利。” 希拉里·克林顿[@HillaryClinton](https://twitter.com/HillaryClinton)星期二在皇家国际事务研究所[@CH\_Events](https://twitter.com/CH_Events) 的发言】
-
-
-
-> .[@HillaryClinton](https://twitter.com/HillaryClinton?ref_src=twsrc%5Etfw) is correct: We must move manufacturing back from [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw). We cannot leave ourselves at the mercy of a merciless regime. [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#onshoring](https://twitter.com/hashtag/onshoring?src=hash&amp;ref_src=twsrc%5Etfw) [#nearshoring](https://twitter.com/hashtag/nearshoring?src=hash&amp;ref_src=twsrc%5Etfw) [#ProximityManufacturing](https://twitter.com/hashtag/ProximityManufacturing?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/jP9qOX3uOG](https://t.co/jP9qOX3uOG)
-> — Gordon G. Chang (@GordonGChang) [May 7, 2021](https://twitter.com/GordonGChang/status/1390755562187640832?ref_src=twsrc%5Etfw)
-
-
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
