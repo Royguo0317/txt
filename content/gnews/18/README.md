@@ -1,11 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 从2020年12月底开始，大约有4000人因接种新冠疫苗而死亡
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1193752/)
+## 【路德简报】5/8/2021：长征5号火箭残骸即将失控坠落 科技界、政界痛批中共“不负责任”
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1193806/)
 
-05/06/2021 周三晚上塔克在他的节目中揭示，根据官方统计系统-疫苗不良反应案例”的汇报系统VAERS的数据，从2020年12月底以来，已经有接近4000人接种新冠疫苗后死亡。他还以流感疫苗为例，阐释了新冠疫苗的潜在风险相比往常的疫苗极为巨大和不正常。
+**编辑：华盛顿DC农场 路德简报项目组**
+![]()![](https://gnews.org/wp-content/uploads/2021/05/20210508-1.jpg)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-+2
+> 2021 年5月8日 路德时评 晚 
+> 
+> 1.长征5号残骸即将失控坠落 科技界、政界痛批中共不负责任 
+> 
+> 2.绕开联合国安理会的单边行动 让中共担忧
+> 
+> 3.习近平G7之后的电话外交 足见其已经乱了方寸 [pic.twitter.com/VKaNPpLVz9](https://t.co/VKaNPpLVz9)
+> — 平民爆料 (@WM18320321) [May 9, 2021](https://twitter.com/WM18320321/status/1391395968185163782?ref_src=twsrc%5Etfw)
+
+
+
+0

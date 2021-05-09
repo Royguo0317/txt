@@ -1,37 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210508（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1190705/)
+## 红色旅游——借30年代之名，行60年代之实
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1193392/)
 
-- 制图：透明遮羞布
-- 编辑：神奇四侠
+台湾宝岛农场 Y.M.O
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+> **那天是你用一块红布 蒙住我双眼也蒙住了天**
+> 
+> **你问我看见了什么 我说我看见了幸福**
+> **——崔健《一块红布》**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08195545/01-11.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/05/image0-38.jpg)
+近日从友人那边看到一则视频，视频内容为河南省南阳市文化广电和旅游局策划推出的“红二十五军长征体验行”活动。视频中参加活动的南阳市文广旅局系统职工分别扮演红二十五军战士以及敌军，奋力厮杀，再现了战斗场面。而我看到的其中比较触目惊心的部分是活动当中真的在玩火，真的在冒烟，真的把人撂倒了。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08195715/02-19.jpg)
+像这种红色活动其实年年都有，只是今年特别多，学校组织红色长跑，公司组织红色团建。当然今年作为中共百年也是原因之一，不过即使今年不是一百周年，我想在如今的世界形势下作为收紧意识形态的手段中共也会让红色活动大幅度增加。而通过对原始报道的搜寻，对于这次南阳市组织的活动也能从中看到更多墙内社会宣传的现状。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08200003/03-12.jpg)
+中共一个作为极权组织，上面一旦要收紧意识形态，那全国都必须要跟着做。既然这种转向是全国性的，那为了讨好上级要怎么做才能显示自己搞的活动有特点呢。根据南阳市电视台5月6日的南阳新闻联播的报道，本次活动将单一的“参观游“升级为“沉浸式体验游”，全员穿红军服、走红军路、唱红军歌、吃红军餐，一路情景演出，并运用了声、光、电等现代手段。也许这么做上级那边是能交差，但能骗得过清醒的民众吗？
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08200119/04-8.jpg)
+就这几个视频而言，先不说内容，从技术手段上就已经是一个笑话了。通稿的文字叙述看上去非常华丽，但视频中体现的其实就是抗日神剧的爆炸戏加上类似文工团的拙劣表演。都2021年了，所谓声光电等现代手段还是这些么，投入的成本完全不符合自己吹出去的牛皮。不过有一点让人笑不出来，现代手段虽然没有，但沉浸式体验还是可以完成的，那就是让参与的普通民众真正被洗脑成那个情景里的角色，这比恐怖片要恐怖多了。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08200418/05-12.jpg)
+接着再来看看南阳市文化广电旅游局党组书记局长郑文明的采访，采访中说为了进一步引爆拉动南阳的旅游，现在的文旅发展，不仅仅是有自然的生态，更重要的是要有文化、要有主题、要有体验。表面上编排得还可以，这条红军体验行的新闻前一条就是介绍五一旅游的相关新闻。不过看看视频中的采访，语句的贫乏程度非常具有年代感。幸福生活不是革命先烈的鲜血换来的，而是一块红布蒙住眼睛之后得到的，这就是我从采访中得出的结论。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08201452/06-22.jpg)
+郑书记有一点说得不错，这样的旅游确实有主题、有体验，但不是红军的体验，所有人演出同一个场景这恰恰是60年代样板戏的体验。也辛苦郑书记在采访最后还得提习神的不忘初心牢记使命，人民就是江山江山就是人民。不过看你这一身红军服的样子虽然作为党组书记但最先作为棋子炮灰的可不就是这种党组书记么。希望墙内的民众对这些举措一定要有个清醒的认识，而对于党内的普通党员来说这就是现实，你再怎么讨好上级，还是得穿着30年代的红军服，做60年代的炮灰，身在2021年的你们愿意接受这个结局么？
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08201720/07-11.jpg)
+新闻链接
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08204119/08-21.jpg)
+文字通稿╱[重走长征路传承红色情\_南阳](http://www.nytv.com.cn/ny/2021-5-7/1620351563473.shtml)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08204208/09-8.jpg)
+视频通稿╱[南阳新闻联播2021.5.6-南阳新闻联播](http://www.nytv.com.cn/aj/a/content_video_197622.shtml)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08204432/10-19.jpg)
+文章审核：zhong
+文章发布：Little Liu
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09055253/11-29.jpg)
-![]()![](https://gnews.org/wp-content/uploads/2021/05/12-14.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09072921/13-13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/05/14-9.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/05/15-9.jpg)
-发稿：信心的选择
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
 +1

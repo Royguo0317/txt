@@ -1,69 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共在非洲的军事基地恐威胁美国安全
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1192806/)
+## 当前的加密货币投资者会赔掉所有钱
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1192762/)
 
-新闻来源：《布赖特巴特》BREITBART | 作者：约翰•海沃德（JOHN HAYWARD）| 发布时间：2021年5月7日
-翻译/简评：随波逐流|校对/审核：万人往|Page：小雨
+撰稿：Runaway
+From GTV
+目前面对世界各国为应对新冠疫情造成的经济困境而采取的财政灌水政策，数字货币遭遇了连番不断的暴涨行情，似乎成为了避险资金的蓄水池。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/fcb19e17-767f-4f46-acda-5c17e1ced4b3.jpg?asset_id=258e6ed2-db3a-4f0f-bac8-b72fbda43760&amp;img_etag=%221633375f2a8f09f072fda9cfa63371eb%22&amp;size=2560)](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/fcb19e17-767f-4f46-acda-5c17e1ced4b3.jpg?asset_id=258e6ed2-db3a-4f0f-bac8-b72fbda43760&amp;img_etag=%221633375f2a8f09f072fda9cfa63371eb%22&amp;size=1024)
+但是正如郭先生所说，目前的这些数字货币未来一定不会存在。它们有致命的缺陷，它们没有和任何实体链接的设计，也没有任何的储备，只是部分人财富流通的工具而不是财富。它们没有信用，不能流通，不稳定，完全就是投机。比特币1.4%的股东控制者96%的比特币，绝大多数用于暗网，它就是犯罪工具。
 
-**简评：**
+此前英格兰银行行长安德鲁·贝利（Andrew Bailey）表示，数字货币“没有内在价值”。 他警告说，投资加密货币的人应该准备失去所有钱。英国金融行为监管局（FCA）也发出了类似警告。
 
-近年来，中共借推广“一带一路”战略的机会，陆续在各大洲参与的国家中投资建设了一些具有重要战略意义的港口，拿下了许多重要海上航线的咽喉要道，诸如巴基斯坦的瓜达尔港、澳大利亚的达尔文港和非洲的吉布提港。这些港口连在一起，可打通多条连接各大洲的海上通道，在经济上，有助于海上贸易运输，节省运输成本。但很明显，中共更看上的是这些港口的军事意义。在这些港口建立军事基地，部署军队、武器和各种补给设施，以便帮助中共实现称霸世界的野心，才是中共的真正目的。此举现已引起了美国的关注和警惕，美国担心中共将在非洲大西洋沿岸修建更多这样的军事基地，因为这里离美国更近些，直接威胁到美国的领土和国家安全。
+上个月同期，英格兰银行表示将与英国财政部合作开发中央银行数字货币或CBDC。 预计该工作组将研究用例，机会和潜在数字英磅风险。
 
-中共最近几年在东海和台湾海峡进行了几次大规模的军演，频频向世界秀肌肉，以显示自己是一个军事强国，呈现给世界的是一个挑衅的姿态和不服来战的态度，看似下定决心要与美国一较高下。在亚洲，中共不顾国际海洋公约的规定和美国及全世界的谴责，对南中国海周边岛屿和台湾蛮横无理地宣示主权，派出军舰到这些岛屿附近进行骚扰，并发布了新的海事法，赋予海岸警卫队可对过往船只开火的权力，挑战全世界的底线。中共的恶劣行径已严重侵犯了台湾和东南亚周边邻国的领土主权并威胁到这些国家的安全，给这一地区正常的海上贸易运输也埋下了安全隐患。
+数字货币已经成为未来金融领域实力比拼的风向标，大势所趋，西方发达国家也纷纷开始研究和开发数字货币。而新中国联邦先人一步建立了具有主权功能的货币流通体系，喜美元、喜支付、喜联储是有信用、有储备、有法律、有中心，不可能由任何人控制的、最干净和最安全的资金应用和避险平台，前景无限。
 
-现在，中共又要在非洲、美洲及欧洲建立更多的军事基地，把军事力量推进到更远的地方。在非洲的吉布提海军基地以及美洲的委内瑞拉，中共都暗中部署了解放军、核潜艇、航空母舰和各种武器装备。这些位置已经非常接近美国本土和欧洲大陆，等于到了别人的家门口驻军，这已经严重威胁到大西洋沿岸欧洲国家和美国的国家安全，中共已完全走上了二战期间，德国和日本所走过的军国主义不归路。
+文中观点仅代表作者本人
 
-纵观历史，靠穷兵黩武征服世界的国家都给人类带来了巨大的灾难，像纳粹德国对犹太人的大屠杀，日本当年在远东地区的军事入侵，造成了中国和东南亚国家的无数平民伤亡。他们的野蛮行径最后都遭遇了多国联军的集体讨伐，最终导致他们被彻底消灭。中共今天的嚣张做法和它向世界发动的“病毒战”给世界带来的伤害已远远超越了当年的纳粹德国和日本。以古为鉴，可知兴替，中共一定逃不过被灭的命运，全球灭共联军定会以数倍于当年二战的力量，对中共发起强烈反击！
+*审核&编辑&视频：Runaway*
 
-**原文翻译：**
+参考链接：
 
-## 美军司令警告要在非洲建立潜艇和航空母舰基地的中共国
+[Cryptocurrency investors should be prepared to lose all their money – Bank of England](https://www.rt.com/business/523166-crypto-investors-lose-money/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=RSS)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/ce9ddaf4-6366-4009-b46e-75b426e48d63.jpg?asset_id=bcd612b4-66d2-42e5-8497-0f64897ddcf3&amp;img_etag=%227f4018388f66bac9681be4b9e200f39f%22&amp;size=2560)](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/ce9ddaf4-6366-4009-b46e-75b426e48d63.jpg?asset_id=bcd612b4-66d2-42e5-8497-0f64897ddcf3&amp;img_etag=%227f4018388f66bac9681be4b9e200f39f%22&amp;size=1024)AFP/Getty Images 法新社/盖蒂图片社
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-**美军非洲司令部（AFRICOM）总司令史蒂芬•汤森德（Stephen Townsend）上将周四（5月6日）警告说，中共国正在积极寻求在非洲建立一个大西洋海军基地，为潜艇和航空母舰提供服务。**
-
-汤森德告诉美联社（AP）：“他们正在寻找一个可以重新装备和修理军舰的地方。这在冲突中可以发挥军事作用。他们在吉布提建立的基地还有很长的路要走。现在，他们将目光投向了大西洋沿岸，并希望在那里建立一个这样的基地。”
-
-他说：“在选定的某些非洲国家，中国人在策略上胜过了美国。港口项目、经济努力、基础设施以及他们的协议和合同将为未来赢得更多的机会。他们正在两面下注，并在非洲下大赌注。”
-
-汤森德指出，中共国在吉布提的基地于2016年开始建设，并于2017年8月正式开放，那一天刚好是中国人民解放军（PLA）诞辰90周年。
-
-[![](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/fe4915ba-2747-49b2-996a-5ea0c77bb989?asset_id=52c22116-8971-4e72-844c-7f86b8ce959d&amp;img_etag=%2206e4c16223296841ac3f96adb06363e3%22&amp;size=2560)](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/fe4915ba-2747-49b2-996a-5ea0c77bb989?asset_id=52c22116-8971-4e72-844c-7f86b8ce959d&amp;img_etag=%2206e4c16223296841ac3f96adb06363e3%22&amp;size=1024)2017年8月1日，中共军队举行进驻吉布提基地营区的仪式。AFP法新社图
-
-该基地位于印度洋，是中国人民解放军的第一个海外海军基地。中共一直在稳步扩大这个基地，包括设防和扩建码头，以容纳更大的船只，例如航空母舰和核潜艇。即使在冠状病毒大流行期间，中国人民解放军仍继续在其吉布提港口进行赶工扩建工作。
-
-汤森德说，吉布提基地“肯定有武器和弹药”，包括“装甲战车”，而且不久将装备军用直升机。他指出，中共国正在推动在坦桑尼亚开设另一个基地，但他最担心解放军在非洲的大西洋沿岸获取更多的阵地，并指出，这样的基地将比中共国的任何设施都更接近美国的领土。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/37b78e0f-5296-4b9a-8490-f65c1821cc28.jpg?asset_id=6f16f1c8-85e0-4696-981d-359c013f1868&amp;img_etag=%220e18c139885afc89443be357eef5115f%22&amp;size=2560)](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/37b78e0f-5296-4b9a-8490-f65c1821cc28.jpg?asset_id=6f16f1c8-85e0-4696-981d-359c013f1868&amp;img_etag=%220e18c139885afc89443be357eef5115f%22&amp;size=1024)训练中的坦桑尼亚国防部队
-
-中共在坦桑尼亚拥有一个耗资3000万美元的军事训练中心，表面上专注于训练坦桑尼亚人民国防军（TPDF），并且已向坦桑尼亚人民国防军提供了大量的硬件——一直到战斗机——但北京当局急于将与坦桑尼亚军方的紧密关系提升到新的水平。
-
-在它的“一带一路”倡议的主导下，中共国希望在巴加莫约（Bagamoyo）建一个非洲最大的深水港，巴加莫约是坦桑尼亚最大城市以北的一个小镇，也是达累斯萨拉姆（Dar es Salaam）最大但不堪重负的港口。经过六年的准备和计划，坦桑尼亚于2019年6月暂停了该项目，这显然是由于人们越来越怀疑，大型的“一带一路”项目对中共国很可能比对其发展中国家的合作伙伴更有益。
-
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/0887dd32-529d-4565-aa78-aebd095aa840.jpg?asset_id=e6f21f60-96d5-4852-b100-aef21af5bf90&amp;img_etag=%22485746edb5fecf91a440d2c01b798f05%22&amp;size=2560)](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/0887dd32-529d-4565-aa78-aebd095aa840.jpg?asset_id=e6f21f60-96d5-4852-b100-aef21af5bf90&amp;img_etag=%22485746edb5fecf91a440d2c01b798f05%22&amp;size=1024)巴加莫约港口蓝图
-
-中共国试图在2021年1月启动巴加莫约港项目，声称坦桑尼亚人对此想法越来越热情。坦桑尼亚官员在4月表示，重新谈判正在进行中，如果中共国同意一些关键要求，这个耗资数十亿美元的项目可能会继续进行。
-
-美联社不祥地指出：“美国在全球各地的军事指挥官，包括可能失去部队和资源以支持太平洋地区发展的几名军事指挥官，都警告说，中共国日益增长的自信心不仅仅着眼于亚洲。而且他们辩称，北京当局正在积极主张对非洲、南美和中东国家施加经济影响力，并正在那里寻求基地和立足点。”
-
-[🔗原文链接](https://www.breitbart.com/national-security/2021/05/07/u-s-commander-warns-china-wants-sub-carrier-base-africa/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/fCj4PIFpCzJGg/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
-
-
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08091511/1-%E6%BE%B3%E5%96%9CLogo-1.jpeg)
 0
