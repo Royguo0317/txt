@@ -1,29 +1,93 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 网约车收费乱象实为中共治下的监管空白
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1190553/)
+## 对中共病毒来源的认知可将美政界分为五类
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1190600/)
 
-撰稿：脐橙君
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-据路透之前报道，中国网约车巨头滴滴出行已经委托高盛和摩根士丹利安排纽约首次公开发行(IPO)。而最近，滴滴出行在微信公众号上透露，去年乘客应付总额中有3.1%为网约车业务净利润，司机收入平均占乘客应付总额的79.1%。除此之外，其中10.9%为乘客补贴优惠，6.9%为企业经营成本及纳税和支付手续费。这是该公司首次公布2020年网约车服务的收入结构细节。
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/O-4.jpg)news.yahoo.com
+笔者将美国要员对中共病毒的认知分成以下几类：
 
-根据不同的城市，不同的距离，每一笔单的收费结构都是不相同的，这种收费不透明的标准，已经造成了司机不同的困扰，但你有没有想过，同一个城市，同一个距离，只是不同的乘客，收费也是不同的。
+完全彻底的认知，即中共病毒是超限生物武器，如纳瓦罗、班农、塞林博士、巴西总统等；
 
-此前复旦大学的孙金云教授因带队考察北京、上海、深圳、成都、重庆等5个城市，专门实地调研，花5万多元打车800多次，形成的一份报告，就在业内引起了不小的波澜。报告结论显示：使用的手机不同，就算同一距离同一城市，打车的价格却完全不同，手机价格越贵，打车收费越高。这一结论，让大家十分意外，由此，滴滴平台利用海量的用户数据，分析用户消费习惯、薪资、喜好等个人属性后，会判断出单一乘客有多大意愿支付多少钱去做什么事，然后会呈现一个“个性化”的专属价格，以此赚取更多的利润。
+清醒的认知，即中共病毒是实验室人造产物，如罗伯特·雷德菲尔德博士（Robert Redfield）、CNN首席医学记者桑杰·古普塔（Sanjay Gupta）等；
 
-这一现象背后本质的揭露，让滴滴一下子站在风口浪尖，滴滴CTO也出来澄清，从未有过利用大数据杀熟的做法，这些仅为谣言。但孙教授也公开表达，做出此报告之后承受了非常大的舆论压力，但同时，有多名乘客用实际数据来支撑了这个结果的真实性。为此，滴滴出行的CEO柳青则解释到，滴滴会根据动态情况预测估价，即便起点终点一致，预估价也会存在差异。这里，很明显地打了一个“预估价”和“实际支付价格”的擦边球，柳青一再否认利用大数据定制化每个人的用车收费，但决口不提事实验证，这一收费差异，的确真实存在。
+肤浅的认知，即中共病毒有可能是，或不排除是实验室产物，如题目所述，情报总监艾薇儿·海恩斯（Avril Haines）、CIA主任威廉·约瑟夫·伯恩斯（William Joseph Burns）、NIH主任弗朗西斯·科林斯（Francis S. Collins）；
 
-自从中共国的网约车通过一番价格厮杀，成功形成该行业巨头，坐拥庞大市场之后，一些问题就集中地暴露出来了，2020年四季度，仅上海受理的网约车平台的各类投诉就达3800起，其中关于“多收费”就占567起，占比高达21%，投诉理由种“同样行程不同收费”的情况就不在少数。网约车的收费结构不透明反映出来的行业普遍的监管不力，网约车这个市场已经出现了将近十年的时间，到目前都没有一部完整的针对网约车平台的有约束力的文件出台，那么平台乱象造成的客户损失，究竟有没有人有权利去评判？这些缺乏行业监管的地带，用什么来保证平台和消费者的公正透明，出了问题，永远就是平台和消费者两方承担，那么有关部门监管不力又是否需要承担责任？中共治下，永远是用灰色地带给足双方钻空子的机会，当大家都在庆幸自己的侥幸能带来更多的利益的时候，不想却给了中共一个最好的“秋后算账”的机会，他们可以利用任何动机和理由，火速出台一个最符合他们利益的规则或规定，从而达到中共的目的。
+糊涂的认知，即中共病毒来自自然，认为实验室等说法者是阴谋论者，或受惠于中共人士；
 
-最后，让我们看看滴滴出行的投资者有谁，你就能明白这些乱象能合理存在的理由：阿里巴巴、腾讯。
+除此之外，还有类似老贼福奇、及其爪牙达扎克，为魔共遮掩、辩护之流。
 
-本文仅代表作者本人观点，不代表Gnews平台
+5月7日的白宫新闻发布会，通过记者与白宫发言人普萨基（Psaki）的问答得知，拜登受老贼福奇等的影响，是拜登政府对中共病毒溯源及追责进展缓慢的原因之一，也了解到一些对中共病毒肤浅认知的要员。
 
-新闻来源：
+记者问：关于中共病毒，福奇和国家健康研究院（NIH）资助武汉病毒实验室的功能增强实验是一个公开的记录，既然那个实验室有问题，为什么福奇和美国要资助中共国实验室的那种实验，那种研究？
 
-[滴滴回应抽成问题：网约车司机收入平均占乘客应付总额的79.1% | 路透 (reuters.com)](https://cn.reuters.com/article/didi-chuxing-passenger-fee-0508-idCNKBS2CP01C?il=0)
+普萨基女士：对不起，我听不太清楚，你的-你提的问题的开始部分是什么？
 
-校对/发稿: Penny
+问：我说国家健康研究院和福奇为武汉病毒实验室提供了资金，当我们谈论实验室泄漏理论时，这就是问题所在。既然功能增强研究是不确定的，为什么美国会给中共国资金呢？为什么福奇会这样？
+
+普萨基女士：我很愿意把你的问题转给国家健康研究院，他们会向你介绍他们资助项目的更多细节。
+
+问：现在，我还有一个后续的问题-
+
+普萨基女士：好的。
+
+问：因为总统还没有真正参与进来，福奇是拒绝相信实验室泄露理论的声音之一，但现在拜登政府中有更多的官员——比如国家情报局局长、中情局局长，现在还有国家卫生研究院院长——说不能排除这种可能性，有人呼吁对其进一步调查。
+
+总统同意谁的观点？福奇的，还是其他官员的？他认为这是实验室泄漏吗？
+
+普萨基女士：总统说过，我在这里也说过很多次，需要通过世界卫生组织进行可信的、独立的调查，而这个调查依赖于数据，依赖于中共国和其他可能掌握信息的国家的参与。这当然是每个人都呼吁的，我们期待着这种情况的发生。
+
+问：为什么总统还没有和习主席谈中共病毒起源？他说，就在几周前，他还没有。
+
+普萨基女士：我想我们已经读过了他们的通话，总统还认为，应该有一个由卫生专家领导的独立调查，一个提供他们数据的调查——这些数据对我们美国的医学和科学专家是透明的，我们期待着重新审查这些。
+
+我们得继续，下一个，我很抱歉。
+
+问：如果那是实验室泄漏，总统会……（听不见）-
+
+普萨基女士：对不起，埃默洛尔德（Emerald），我想你今天问了很长时间了。
+
+……
+
+（完）
+
+由此可以了解拜登在公开场合对中共病毒的态度，没有明确表达，而且普萨基代他吞吞吐吐。可喜的是，像记者埃默洛尔德女士对中共病毒认知程度至少是“清醒级别”的越来越多，他们正在唤醒着美国民众，也在督促着美国政府推进追责。
+
+白宫记者招待会有关中共国部分的文字整理：
+
+Q：And then on the coronavirus: It’s a matter of public record that Dr. Fauci and the NIH funded gain-of-function experimentation, research at the Wuhan Lab of Virology.  And given the questions about that lab, why would Dr. Fauci and the U.S. fund that kind of experiments, that kind of research at a Chinese lab?
+
+MS. PSAKI:  The — I’m sorry.  I can’t hear you super well.  What was the beginning part of your comment — of your thing — of your question?
+
+Q：I said that the NIH and Dr. Fauci had provided funding to the Wuhan Lab of Virology.  That’s the lab in question when we talk about the lab-leak theory.  And given that gain-of-function research is dicey, why would the U.S. fund that in China?  Why would Dr. Fauci?
+
+MS. PSAKI:  I’m happy to send you to the NIH about more specifics of what program they funded and more details of that.
+
+Q：Now, I do have one more follow-up on that —
+
+MS. PSAKI:  Okay.
+
+Q：because the President hasn’t really weighed in.  Dr. Fauci is one of the voices who discredit the lab-leak theory, but now there is more officials in the Biden administration — like the Director of National Intelligence, the CIA Director, and now also the NIH Director — who say that this cannot be ruled out, and there is calls for more investigation into it.
+
+Who does the President agree with — Dr. Fauci or the other officials?  Does he think this — it was a lab leak?
+
+MS. PSAKI: Well, the President has said, and I’ve said from here many times, that there needs to be a credible, independent investigation through the World Health Organization, and tha- — one that relies on data, relies on participation from China and other countries that may have information.  That’s certainly something everybody has called for, and we look forward to that happening.
+
+Q：Why hasn’t the President spoken with President Xi about the origins of the coronavirus yet?  He said, just a few weeks ago, he hadn’t yet.
+
+MS. PSAKI: I think we have given a readout of his call. And also that the President believes there should be an independent investigation led by health experts, and one where their data is provided — that’s provided transparently to our medical and science experts here in the United States. And we look forward to reviewing that.
+
+We’re going to have to go on.  Go ahead.  I’m sorry.
+
+Q：If that was a lab leak, will the President be committed to (inaudible) —
+
+MS. PSAKI: I’m sorry, Emerald. I think you’ve had plenty of time today.
+
+有关链接：
+
+[https://www.whitehouse.gov/briefing-room/press-briefings/2021/05/07/press-briefing-by-press-secretary-jen-psaki-and-secretary-of-the-treasury-janet-yellen-may-7-2021/](https://www.whitehouse.gov/briefing-room/press-briefings/2021/05/07/press-briefing-by-press-secretary-jen-psaki-and-secretary-of-the-treasury-janet-yellen-may-7-2021/)
 
 0
