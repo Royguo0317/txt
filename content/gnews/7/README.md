@@ -1,93 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 对中共病毒来源的认知可将美政界分为五类
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1190600/)
+## 最新动态：美国军方预测中共国的火箭残骸即将落地及分析
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1190804/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+撰稿：喜妈
+图片来自网络
+最新动态，根据澳洲主流媒体引用美国军方发言人的如上采访，文字内容如下：最新的预计，依我看就是大概在8号到9号之间，你知道，专家还在计算中，此刻，我们没有计划把（中共国）火箭射下，我们希望它安全降落在一个平和的地方，希望是海洋或类似的地方，我只是陈述一个航空领域所要求的，必须要求的，以安全和努力为大家着想的模式，以确保我们把一切考虑在内，如我所指出我们的操作。你们有能力把那个射下来吗？ 就你所知，我们有能力做很多事情，但是如我所谈到的，我们没有计划把它射落下来。
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/05/O-4.jpg)news.yahoo.com
-笔者将美国要员对中共病毒的认知分成以下几类：
+这段采访，非常精彩，也让人深思。笔者认为，首先，中共国的“强大梦”被粉碎得一点不剩：那个刚刚被巨大国的粉红们在中共媒体造势下膨胀起来的热情，马上就被浇上了一桶冰水。不过，这个最新的动态，中共国引以为傲的火箭坠落的消息，一定是会被牢牢锁死，不会传到墙内。可是，再密闭的锁定，再高的防火墙，还不是被无数向往真相的人民突破。估计这个消息可是会好好地把老杂毛们的脸“啪啪”地打响，打肿了。
 
-完全彻底的认知，即中共病毒是超限生物武器，如纳瓦罗、班农、塞林博士、巴西总统等；
+其次，看看美国的科技，先进到什么程度，号称国家机密的火箭升空，火箭发射，火箭故障，火箭坠落，全程都被美国的科技力量和军方掌控，跟进，并预测判断。这个就是实力，这个就是不可超越的领先。不得不承认，从这里，中共国的墙民们都要好好思考。同时，那些被奴才们围绕的中南坑的老杂毛们也要认真想想，你们到底有多厉害？你们领导下的科技力量和军事力量到底有多厉害？你们如果知道真相，真的会被吓到尿裤子的。因为，如果美国动真格的，估计你们自己也知道只有瓮中捉鳖的结局。
 
-清醒的认知，即中共病毒是实验室人造产物，如罗伯特·雷德菲尔德博士（Robert Redfield）、CNN首席医学记者桑杰·古普塔（Sanjay Gupta）等；
+第三，看看一个西方宪政制度下和人性为本的技术操作与策略选择。那个发言人所说的“安全”并“努力为大家着想的模式”，这个是只有在一个视生命为唯一和首要的国度，才有可能发生。这才是一个真正以人为本的社会，这是一个有人权的社会。
 
-肤浅的认知，即中共病毒有可能是，或不排除是实验室产物，如题目所述，情报总监艾薇儿·海恩斯（Avril Haines）、CIA主任威廉·约瑟夫·伯恩斯（William Joseph Burns）、NIH主任弗朗西斯·科林斯（Francis S. Collins）；
+第四，从这个简短的采访中，笔者看到美国军方可以“做到很多”却并没有贸然干预。这是一种尊重，是一种观望中的守候，是一种克制，也是一种修养。美国多年来并没有把CCP太当成一回事，因为确实它的科技和军事力量太超前，太领先。他们都不屑于和CCP计较。可是CCP自不量力，到处树敌，到处招摇，想当世界第一，想要世界的霸权。这次的中共病毒，已经让无数人在惨痛的损失，惨重的生命代价认清了CCP的邪恶。
 
-糊涂的认知，即中共病毒来自自然，认为实验室等说法者是阴谋论者，或受惠于中共人士；
+笔者想分享这段视频，目的是让读者看到，只有在一个有法律规范体系，在人权尊重为根基的社会中，才能真正从民众利益出发，从国家大局为重而思考，才能形成真正的有序和彼此的尊重。技术实力是基本的国家利益和人民利益的保障。那个把火箭发到地上去的中共国，绝对保护不了它治下的人民和国家，这就是简单的事实。
 
-除此之外，还有类似老贼福奇、及其爪牙达扎克，为魔共遮掩、辩护之流。
+（本文纯属个人观点）
 
-5月7日的白宫新闻发布会，通过记者与白宫发言人普萨基（Psaki）的问答得知，拜登受老贼福奇等的影响，是拜登政府对中共病毒溯源及追责进展缓慢的原因之一，也了解到一些对中共病毒肤浅认知的要员。
+参考资料：[new.com.au原新闻报道](https://www.news.com.au/technology/science/space/debris-from-chinese-rocket-set-to-collide-with-earth/news-story/201dcc046f87a65d03b73aa2c2bfc639)
 
-记者问：关于中共病毒，福奇和国家健康研究院（NIH）资助武汉病毒实验室的功能增强实验是一个公开的记录，既然那个实验室有问题，为什么福奇和美国要资助中共国实验室的那种实验，那种研究？
+* * *
 
-普萨基女士：对不起，我听不太清楚，你的-你提的问题的开始部分是什么？
+*审稿、编辑：光耀华夏*
 
-问：我说国家健康研究院和福奇为武汉病毒实验室提供了资金，当我们谈论实验室泄漏理论时，这就是问题所在。既然功能增强研究是不确定的，为什么美国会给中共国资金呢？为什么福奇会这样？
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-普萨基女士：我很愿意把你的问题转给国家健康研究院，他们会向你介绍他们资助项目的更多细节。
-
-问：现在，我还有一个后续的问题-
-
-普萨基女士：好的。
-
-问：因为总统还没有真正参与进来，福奇是拒绝相信实验室泄露理论的声音之一，但现在拜登政府中有更多的官员——比如国家情报局局长、中情局局长，现在还有国家卫生研究院院长——说不能排除这种可能性，有人呼吁对其进一步调查。
-
-总统同意谁的观点？福奇的，还是其他官员的？他认为这是实验室泄漏吗？
-
-普萨基女士：总统说过，我在这里也说过很多次，需要通过世界卫生组织进行可信的、独立的调查，而这个调查依赖于数据，依赖于中共国和其他可能掌握信息的国家的参与。这当然是每个人都呼吁的，我们期待着这种情况的发生。
-
-问：为什么总统还没有和习主席谈中共病毒起源？他说，就在几周前，他还没有。
-
-普萨基女士：我想我们已经读过了他们的通话，总统还认为，应该有一个由卫生专家领导的独立调查，一个提供他们数据的调查——这些数据对我们美国的医学和科学专家是透明的，我们期待着重新审查这些。
-
-我们得继续，下一个，我很抱歉。
-
-问：如果那是实验室泄漏，总统会……（听不见）-
-
-普萨基女士：对不起，埃默洛尔德（Emerald），我想你今天问了很长时间了。
-
-……
-
-（完）
-
-由此可以了解拜登在公开场合对中共病毒的态度，没有明确表达，而且普萨基代他吞吞吐吐。可喜的是，像记者埃默洛尔德女士对中共病毒认知程度至少是“清醒级别”的越来越多，他们正在唤醒着美国民众，也在督促着美国政府推进追责。
-
-白宫记者招待会有关中共国部分的文字整理：
-
-Q：And then on the coronavirus: It’s a matter of public record that Dr. Fauci and the NIH funded gain-of-function experimentation, research at the Wuhan Lab of Virology.  And given the questions about that lab, why would Dr. Fauci and the U.S. fund that kind of experiments, that kind of research at a Chinese lab?
-
-MS. PSAKI:  The — I’m sorry.  I can’t hear you super well.  What was the beginning part of your comment — of your thing — of your question?
-
-Q：I said that the NIH and Dr. Fauci had provided funding to the Wuhan Lab of Virology.  That’s the lab in question when we talk about the lab-leak theory.  And given that gain-of-function research is dicey, why would the U.S. fund that in China?  Why would Dr. Fauci?
-
-MS. PSAKI:  I’m happy to send you to the NIH about more specifics of what program they funded and more details of that.
-
-Q：Now, I do have one more follow-up on that —
-
-MS. PSAKI:  Okay.
-
-Q：because the President hasn’t really weighed in.  Dr. Fauci is one of the voices who discredit the lab-leak theory, but now there is more officials in the Biden administration — like the Director of National Intelligence, the CIA Director, and now also the NIH Director — who say that this cannot be ruled out, and there is calls for more investigation into it.
-
-Who does the President agree with — Dr. Fauci or the other officials?  Does he think this — it was a lab leak?
-
-MS. PSAKI: Well, the President has said, and I’ve said from here many times, that there needs to be a credible, independent investigation through the World Health Organization, and tha- — one that relies on data, relies on participation from China and other countries that may have information.  That’s certainly something everybody has called for, and we look forward to that happening.
-
-Q：Why hasn’t the President spoken with President Xi about the origins of the coronavirus yet?  He said, just a few weeks ago, he hadn’t yet.
-
-MS. PSAKI: I think we have given a readout of his call. And also that the President believes there should be an independent investigation led by health experts, and one where their data is provided — that’s provided transparently to our medical and science experts here in the United States. And we look forward to reviewing that.
-
-We’re going to have to go on.  Go ahead.  I’m sorry.
-
-Q：If that was a lab leak, will the President be committed to (inaudible) —
-
-MS. PSAKI: I’m sorry, Emerald. I think you’ve had plenty of time today.
-
-有关链接：
-
-[https://www.whitehouse.gov/briefing-room/press-briefings/2021/05/07/press-briefing-by-press-secretary-jen-psaki-and-secretary-of-the-treasury-janet-yellen-may-7-2021/](https://www.whitehouse.gov/briefing-room/press-briefings/2021/05/07/press-briefing-by-press-secretary-jen-psaki-and-secretary-of-the-treasury-janet-yellen-may-7-2021/)
-
-0
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08091511/1-%E6%BE%B3%E5%96%9CLogo-1.jpeg)
++1
