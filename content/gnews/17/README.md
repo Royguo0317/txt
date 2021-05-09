@@ -1,23 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 病毒人造证据“堆积如山”，美议员呼吁调查确认
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1191257/)
+## 警惕中共国在非洲的军事野心
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1191446/)
 
-加拿大多伦多枫叶农场 军迷Wilson
+翻译：康州盘古农场 – 格格巫
 
-据布莱巴特新闻网5 月 8 日报道，美国众议员迈克·加拉格尔（Mike Gallagher）在本周五的福克斯访谈节目中声称，当前全世界几乎所有的研究证据及科学发现都指向CCP病毒来自实验室而非自然进化，议员作为美国最高权力机构的主要成员，“应该知道”病毒到底从哪里来。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08222213/gannett-cdn.com-2-1.jpg)*图片来源：gannett-cdn.com*
-迈克进一步表示，病毒来自实验室的证据已经“堆积如山”，我们为什么迟迟不作深入的探究，有一个最终的、确定的结论呢？从迈克的话中，可以感受到病毒来自中共武汉实验室的真相已经呼之欲出。
+校对：康州盘古农场 – Mike Li
 
-现任美国传染病研究所所长兼总统首席医疗顾问福奇和世卫顾问达扎克，利用美国纳税人的钱长期资助武汉病毒研究所，其中达扎克的生态健康联盟，对武毒所的资助计划要在4年后才结束。早有耳闻的迈克强调，我们还要调查美国的资金是否参与了（中共）该项损害美国的实验室病毒增强改造研究。
+编辑：康州盘古农场 – 心照
 
-俄罗斯国家杜马（议会下院）主席沃洛金 2月27日宣称，CCP病毒可能从位于中共国的一家美国生物实验室泄漏，美国应该对疫情后果负责。沃洛金所指实验室就是武毒所，福奇和达扎克都是使用美国政府的拨款资助了武毒所，美国政府要完全撇清和中共以及武毒所的关系并不容易。因此美国只有积极追究达扎克等人的责任，尽快发布确定中共发动超限生物战的白皮书，才是最明智的做法。
+发布：康州盘古农场 – 彩虹 Rainbow
 
-[原文链接](https://www.breitbart.com/clips/2021/05/08/gop-rep-gallagher-evidence-stacking-up-supporting-lab-leak-theory-on-covid/)
+**据《南华早报》作者：杰文斯·尼亚比亚吉 （Jevans Nyabiage）， 2021年5月5日发布**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08195115/bugg44.png)中共国于2017年8月在吉布提正式启动了首个海外军事基地。 YouTube / CGTN
+美国在非洲的最高指挥官最近表示，中共国在吉布提的新海军码头可以为一艘航空母舰提供支持。
 
-* * *
+中共国在非洲的维和部署被视为在非洲大陆建立军事力量的潜在借口。
 
-编辑 发稿 云起时
+中共国已正式在吉布提启动了（军事）支持和物流的基地。周二300多人参加了开幕式。
+
+非洲之角的吉布提人口不足一百万，是非洲大陆上最小的国家之一，但是，它在规模上的不足，却以其战略位置弥补了这一点，可以俯瞰曼德海峡，这是红海和亚丁湾之间的一个咽喉。
+
+正是这个位置使它成为了外国军队的枢纽。 2017年之前，美国、法国、日本和意大利在该国建立了自己的军事基地。然后中共国到达，建立了所谓的后勤设施，向中共国船只提供维和人员和人道主义任务的补给。
+
+根据相关报道，该设施可容纳1,000至2,000名中共国海军人员。距离约12公里之外的美国莱姆尼尔军事基地，可容纳3400名人员。
+
+原文链接：[https://www.businessinsider.com/the-us-is-wary-of-chinas-military-plans-in-africa-2021-5？ utm\_source=feedburner&utm\_medium=feed&utm\_campaign=Feed%3A+businessinsider+%28Business+Insider%29](https://www.businessinsider.com/the-us-is-wary-of-chinas-military-plans-in-africa-2021-5？%20utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+businessinsider+%28Business+Insider%29)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
