@@ -1,28 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在中共国，提供选择最终会意味着没法选择
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1190104/)
+## 《我们的七芒星》第十五期选手介绍 &#8211; 美东周六5月8日晚8点
+` GMusic` [轉載自GNews](https://gnews.org/zh-hans/1190136/)
 
-字幕听译：乐禧禧 | 字幕PR： yyshere | 字幕： 雨中漫步 | 评论：Filon |评论翻译: 许先生 | 翻译PR: yyshere | 审核:Charles S| Page: Rain
+我们的七芒星文宣组 May，山上的城，Q大哥整理
 
-![]()![](https://spark.adobe.com/page/d4ku8jXZWgLwg/images/a6984344-428b-4be0-823d-5fbe312cf55a.jpg?asset_id=d4ca1502-56cb-4bbc-9e2f-1c7f6b9f48d1&amp;img_etag=%221a183e9f0131daf61a2ebcfeacdd7f3b%22&amp;size=2560)
+由GTV空中唱响团队和纽约香草山农场文艺部倾心打造的新中国联邦首档全民灭共大型知识竞猜节目《我们的七芒星》第十五期节目，也是本季《我们的七芒星》最后一期初赛，将于美东时间5月8日周六晚8点，暨北京时间5月9日周日早8点，在GTV正式火热开播。 届时将有一位”主持人”选手，和来自全球的八位”挑战者”和两位候补“挑战者”参赛。
 
-[视频资源](https://mega.nz/folder/mhlzRQDa#Kdt_KmjJHoBJSn4kDYhu3w)
+本期主持人选手是来自美国休斯敦星光农场的文清！
+![]()![](https://gnews.org/wp-content/uploads/2021/05/文清.jpeg)
+“挑战者”选手分别是：文兴，高频，自由之翼，华夏的文丽，克莉亜，就爱七哥，追随者，路易，帕丁顿，Gugu Wen。
 
-2021年5月2日，五一假期哈尔滨庞先生与家人和朋友一起带着孩子在国内融创主题公园游玩。节假日期间景区游客密集，区域内手机信号接收拥堵，庞先生在给女儿购买发卡时选择使用现金支付，却被商家告知园区规定不能使用现金，只能扫码支付。庞先生不忿拍视频[This was not in the original news]与商家争论，但最终无果悻悻而归。
+**文兴 意大利罗马达芬奇农场**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08163946/%E6%96%87%E5%85%B4.jpg)
+2017年开始持续关注爆料革命。 再随着诸如海航、王健、委内瑞拉、香港等事件以及G系列的成功，更加坚定了对爆料革命的信仰。
 
-哈尔滨园区事件看似个案，在国内却是经常发生的现象。自从移动手机支付在国内普及，人们在方便使用手机支付方式的同时，现金支付却经常遇到不能使用的尴尬场景。由小见大，可以预见的是，如今中共意图在国内强推数字货币DCEP，当普及到一定程度，中共必然会随时出一纸行政命令，让国内百姓没法选择，只会被允许使用DCEP数字货币的支付方式。
+* * *
 
-中共DCEP数字货币的本质就是上世纪50年代CCP在大陆执政后推行的居民供应票证的数字化形式。在物质无法充足供应的前苏联也同样实行过此模式。居民供应票证是计划经济体制下的产物，出现在市场无法充足供给居民自由购买生活物资的国家。中共在国内执政已70年，GDP号称世界第二。中国百姓却依然无限轮回着将走进生活物资都无法被充足供应的生活模式下。钱到底去了哪里？没人可以问，也没人有能力问。但这却可以证明中共执政能力肯定是不足的，中共是没有能力代表和领导中国人民的，他们一直代表的是他们独裁的自己，靠欺骗着世界来奴役着中国人民。
+**高频 新西兰伊甸农场**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08164638/%E9%AB%98%E9%A2%91-2.jpeg)
+带着对黑帮共产党的极度失望以及对于亲身参与的8964悲惨结果的愤懑，技术移民来到新西兰。 2018年9月开始关注郭先生，凭着人性的共鸣，很自然的跟随了爆料革命。
 
-编辑：【英国伦敦喜庄园编辑部】
+* * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+**自由之翼  新西兰伊甸农场**
+![]()![](https://gnews.org/wp-content/uploads/2021/05/自由之翼-2-3.jpg)
+2019年在香港亲身经历并感受到香港反送中大游行的震撼，于是毅然加入爆料革命，曾多次参加农场组织的反共大游行，并参与农场的GTV直播。 “伊甸滅共行，利他兴联邦”
 
+* * *
 
-[!\[\]()!\[\](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/zQVsbFAXmw9o8/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+**华夏的文丽 新西兰伊甸农场**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08164400/%E6%96%87%E4%B8%BD-1.jpeg)
+因CCP病毒知道了爆料革命· 并明白中国人不等于中国共产党。 成为新中国联邦人，是一生的幸福。 希望墙内同胞多看GTV Gnews，认清共产党的丑恶。
+
+* * *
+
+**克莉亜  银河系**
+![]()![](https://gnews.org/wp-content/uploads/2021/05/keliya.jpeg)
+自2017年接触到爆料革命，明白了爱国不等于爱党，中国共产党不等于中国人民的概念。积极宣传爆料革命和病毒真相。 只有灭共才能还原真相，相信2021年灭共必胜！
+
+* * *
+
+**就爱七哥 德国慕尼黑感恩农场**
+
+曾穿着“民主 民权 六四”体恤衫去上课，老师在课堂上公然无耻谎称8964开枪照片是PS的。爆料革命给善良的中国人带来了希望，生死看淡，不服就干，就爱七哥，爱咋咋地。
+
+* * *
+
+**追随者 意大利罗马达芬奇农场**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08164620/%E8%BF%BD%E9%9A%8F%E8%80%85-1.jpeg)
+自2017年坚定追随7哥和爆料革命，意农初建时战友之一，自加入意农积极参加农场线上线下各种活动。为消灭邪恶的流氓共产党，让中国人民早日走上民主出一份自己的力量。
+
+* * *
+
+**路易 意大利罗马达芬奇农场**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08164604/%E8%B7%AF%E6%98%93-2.jpeg)
+2017年参加爆料革命，每次看到郭先生直播，都更加坚定铲除CCP和建设新中国联邦是我们海外华人应尽的义务和责任。
+
+* * *
+
+**帕丁顿 意大利罗马达芬奇农场**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08164339/%E5%B8%95%E4%B8%81%E9%A1%BF-1.jpeg)
+2017年有人在微信里发了文贵先生戴阿拉伯头巾，写”中国总统郭文贵”的照片，随后在youtube开始看爆料视频，步步紧跟至今，坚定不移！
+
+* * *
+
+**Gugu Wen  意大利罗马达芬奇农场**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08164258/guguwen-1-2.jpeg)
+参赛第12期《我们的七芒星》主持人，发现“勇敢”的上镜是会上瘾的！ 希望能带动更多年轻人站出来，把一把把利剑，射向CCP的心脏。Take Down CCP。
 
 0
