@@ -1,27 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印首都首席部长宣布将第三次延长“封城”时间
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1199756/)
+## 为掩盖国内粮荒，中共谎称杂交水稻亩产创新高
+` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1200105/)
 
 #### 作者:【默凡】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10052928/D437F4DA-B92D-4472-A3D2-C8F3C92020F4-1.jpeg)
+中共官媒最新报道称：5月9日上午，在三亚国家水稻公园示范点，“超优千号”超级杂交水稻开始测产。专家组选取3个地块同时进行收割、打谷，汇总后按照高产创建产量公式计算，最终测产结果为平均亩产1004.83公斤。杂交水稻双季亩产3000斤示范项目成功后，将刷新海南省水稻亩产量最高纪录。
 
-5月9日，印度首都新德里首席部长凯杰里瓦尔正式宣布，将目前的“封城”措施再延长一周至17日。这也是新德里第三次延长“封城”措施。
-![]()![](https://gnews.org/wp-content/uploads/2021/05/198F70A6-A3C0-484E-AC27-C9B7F5BCF2D2-1.jpeg)
-据印度卫生部9日公布的数据显示，印度较前一日新增确诊病例403738例，累计确诊22296414例；新增死亡4092例，累计死亡242362例。截至9日，印度单日新增确诊病例连续18天超过30万例，连续4天超过40万例，死亡病例连续2天超过4000例。由于疫情不断恶化, 印度多地收紧疫情防控措施。新德里自4月19日开始实施全城封锁，此后分别在4月25日和5月1日宣布延长封锁。
+袁隆平院士为首席科学家的项目攻关领导小组成立全国杂交水稻双季亩产3000斤项目启动会，试图完成杂交水稻双季亩产3000斤（早造晚造合计1500公斤）攻关目标。据悉，袁隆平院士团队研发的“超优千号”是高品质软米，属于第五期超级杂交稻，此次试种经受住了去冬今春海南低温寡照带来的不利影响，该品种在三亚试种以来连续几年亩产量不断攀升。
 
-新德里中共病毒检测阳性率已从4月下旬的约35%降至目前的约23%，虽然新德里中共病毒新增病例有所下降，但仍不可掉以轻心。专家认为，23%的数字仍然很高，必须要切断病毒传播链。所以延长“封城”措施就是为了确保感染率继续下降。
+简评：
+
+中共深知国内将面临粮食危机带来的严重的人道灾难，为安抚墙内老百姓，中共不仅要宣传粮食大丰收，还要宣传袁隆平院士研发的“杂交水稻”产量不断创新高，这又回到文革时期宣传“亩产万斤粮”的时代，可见国内老百姓的灾难即将来临。
+
+袁隆平院士曾在采访中表示，如果中共国无法从其他国家进口粮食，国内肯定会面临缺粮的情况，甚至还会饿死人。按中共的思路，若在全国大力推广杂交水稻，中共国早就不需要从世界各地进口粮食。事实却恰恰相反，据笔者所知，因为杂交水稻粗糙的口感，使得它在墙内非常困难推广，墙内老百姓平常买到的大米并非是杂交水稻，而是籼稻。即使国际粮价节节攀升，中共国的粮食进口量却不降反增，足可以看出中共国内粮食的缺口非常大。
 
 本文仅代表作者本人观点，不代表Gnews平台
 
 参考文章：
 
-[1][https://www.thepaper.cn/newsDetail\_forward\_12599380](https://www.thepaper.cn/newsDetail_forward_12599380)
-
-[2][https://www.google.com.hk/search?q=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&newwindow=1&safe=strict&hl=zh-CN&source=hp&ei=JtyYYL6fNtyW4-EPhOSfkAk&iflsig=AINFCbYAAAAAYJjqNmYCmpxFSZ690lYT90Me-lJO5CXF&oq=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&gs\_lcp=Cgdnd3Mtd2l6EAMyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAw6AggAUPEPWPkmYNIoaAJwAHgBgAG-A4gBiCuSAQYzLTE1LjGYAQCgAQGqAQdnd3Mtd2l6sAEA&sclient=gws-wiz&ved=0ahUKEwi-yoGqx77wAhVcyzgGHQTyB5IQ4dUDCAc&uact=5](https://www.google.com.hk/search?q=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&amp;newwindow=1&amp;safe=strict&amp;hl=zh-CN&amp;source=hp&amp;ei=JtyYYL6fNtyW4-EPhOSfkAk&amp;iflsig=AINFCbYAAAAAYJjqNmYCmpxFSZ690lYT90Me-lJO5CXF&amp;oq=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&amp;gs_lcp=Cgdnd3Mtd2l6EAMyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAw6AggAUPEPWPkmYNIoaAJwAHgBgAG-A4gBiCuSAQYzLTE1LjGYAQCgAQGqAQdnd3Mtd2l6sAEA&amp;sclient=gws-wiz&amp;ved=0ahUKEwi-yoGqx77wAhVcyzgGHQTyB5IQ4dUDCAc&amp;uact=5)
+[1][http://www.xhby.net/index/202105/t20210510\_7079](http://www.xhby.net/index/202105/t20210510_7079)371.shtml
 
 校对/发稿：文婷
-
-
 
 0

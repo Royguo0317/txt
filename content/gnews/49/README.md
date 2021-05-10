@@ -1,47 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【聚焦】指责中共国隐瞒病毒数据，世卫组织欲追溯病毒起源
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1199395/)
+## 印首都首席部长宣布将第三次延长“封城”时间
+` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1199756/)
 
-#### 翻译：小红帽
+#### 作者:【默凡】
 
-#### 校对/编辑：文泓
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10032415/%E6%AD%A6%E6%B1%89-1.jpg)
-图片来源：NBCNEWS
+5月9日，印度首都新德里首席部长凯杰里瓦尔正式宣布，将目前的“封城”措施再延长一周至17日。这也是新德里第三次延长“封城”措施。
+![]()![](https://gnews.org/wp-content/uploads/2021/05/198F70A6-A3C0-484E-AC27-C9B7F5BCF2D2-1.jpeg)
+据印度卫生部9日公布的数据显示，印度较前一日新增确诊病例403738例，累计确诊22296414例；新增死亡4092例，累计死亡242362例。截至9日，印度单日新增确诊病例连续18天超过30万例，连续4天超过40万例，死亡病例连续2天超过4000例。由于疫情不断恶化, 印度多地收紧疫情防控措施。新德里自4月19日开始实施全城封锁，此后分别在4月25日和5月1日宣布延长封锁。
 
-**译评：**
+新德里中共病毒检测阳性率已从4月下旬的约35%降至目前的约23%，虽然新德里中共病毒新增病例有所下降，但仍不可掉以轻心。专家认为，23%的数字仍然很高，必须要切断病毒传播链。所以延长“封城”措施就是为了确保感染率继续下降。
 
-外媒此篇报道，读来令人五味杂陈。2020年初世卫总干事谭德赛迎合中共的“病毒自然起源说”，对中共国的抗疫“赞誉有加”；然而当病毒肆虐给全球造成重大伤害，2021年1月世卫组织迫于国际社会压力，完成了一次武汉现场调查，调查组的结论是“病毒来自武毒所的可能性微乎其微”；当美国重新加入世卫组织后，迫于美国的影响力，谋求连任的谭德赛马上改弦更张，今年3月他罕见地批评中共国未提供调查组专家团队部分领域的原始数据，并称专家团队对武汉病毒实验室的调查不足，无法排除病毒从实验室泄漏的可能。以上便是三缄其口的世卫组织。
+本文仅代表作者本人观点，不代表Gnews平台
 
-如此盘点一下，相信读者在阅读时对此会有一个清醒的认识，当然，中共制造了生化病毒已是板上钉钉。无论拜登竞选上台过程多么不堪，然而其政治手腕却是川普总统难望其项背。七哥早就断言，拜登总统一样灭共。或许世卫组织在我们眼里成了变色龙，但只要有利于灭共我们一样欢迎。我们期待台湾加入世卫组织，国际社会将中共国彻底踢出各种国际组织，而世卫组织将中共的罪恶彻底暴露全世界面前。
+参考文章：
 
-**译文：**
+[1][https://www.thepaper.cn/newsDetail\_forward\_12599380](https://www.thepaper.cn/newsDetail_forward_12599380)
 
-世界卫生组织（WHO）咨询委员会成员杰米·梅茨尔（Jamie Metzl）告诉福克斯新闻，如果中共国允许调查人员充分获得资源和数据，以便对中共病毒进行彻底调查。那么，专家就可以在短短几个月内知道中共病毒的真正来源。
+[2][https://www.google.com.hk/search?q=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&newwindow=1&safe=strict&hl=zh-CN&source=hp&ei=JtyYYL6fNtyW4-EPhOSfkAk&iflsig=AINFCbYAAAAAYJjqNmYCmpxFSZ690lYT90Me-lJO5CXF&oq=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&gs\_lcp=Cgdnd3Mtd2l6EAMyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAw6AggAUPEPWPkmYNIoaAJwAHgBgAG-A4gBiCuSAQYzLTE1LjGYAQCgAQGqAQdnd3Mtd2l6sAEA&sclient=gws-wiz&ved=0ahUKEwi-yoGqx77wAhVcyzgGHQTyB5IQ4dUDCAc&uact=5](https://www.google.com.hk/search?q=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&amp;newwindow=1&amp;safe=strict&amp;hl=zh-CN&amp;source=hp&amp;ei=JtyYYL6fNtyW4-EPhOSfkAk&amp;iflsig=AINFCbYAAAAAYJjqNmYCmpxFSZ690lYT90Me-lJO5CXF&amp;oq=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&amp;gs_lcp=Cgdnd3Mtd2l6EAMyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAw6AggAUPEPWPkmYNIoaAJwAHgBgAG-A4gBiCuSAQYzLTE1LjGYAQCgAQGqAQdnd3Mtd2l6sAEA&amp;sclient=gws-wiz&amp;ved=0ahUKEwi-yoGqx77wAhVcyzgGHQTyB5IQ4dUDCAc&amp;uact=5)
 
-梅茨尔在最近的一次采访中说：“从疫情爆发后的最初几天，中国政府当局一直在系统地销毁生物样本，隐藏数据库和其他记录，监禁公民记者，并严格执行禁言令；禁止中共国科学家，在未经政府事先批准的情况下，撰写或发表任何有关大流行病起源的言论。”他补充说，“如果我们现在能够完全不受限制地接触到中共国境内的所有相关记录、样本和关键人员，我相信我们确实有可能在短短几个月内确定大流行病的来源。”
+校对/发稿：文婷
 
-梅茨是4月30日发表的一封致世卫组织执行委员会公开信的主要起草者和共同组织者，这封公开信出自世界各地的专家。该信支持世卫组织总干事德罗斯·阿德诺姆·盖布里亚索斯（Tedros Adhanom Ghebreyesus）博士的呼吁，即全面调查所有中共病毒的起源假设，包括与实验室有关的事件。
 
-梅茨尔说，世界卫生大会去年的一项决议有一个“致命的错误”，即呼吁对病毒的人畜共患病起源进行研究，而不是对该大流行病的起源进行全面调查。
 
-“中国人比其他人更了解这种语言的含义”，他说：“源于该决议的整个过程并不是为了弄清大流行病是如何开始的，而是为了试图证明一个方便的假设（人畜共患病的起源）。自那以后，致命（方向性）错误已经在国际上引起了许多反响。如果我们想对新冠病毒的起源进行全面调查，我们必须要求进行调查。”
-
-梅茨尔表示，尽管尚未向公众公布计划，世界卫生组织正在进行相关深入研究的幕后工作，世卫组织发言人塔里克·贾萨里维奇（Tarik Jašarević）拒绝了福克斯新闻的采访请求。
-
-（2021年）1月中旬至2月中旬，世卫组织召集的国际专家小组在首次爆发中共病毒疫情的中共国城市武汉进行研究后，于3月底发布了一份联合报告。
-
-由世卫组织召集的独立专家委员会及其中共国对口单位联合发表的研究结果尚无定论。联合研究小组认为通过中间宿主引入，随后通过人畜共患病传播，这“很可能”是最初传播的根源，而“极不可能”通过实验室事件引入。
-
-特德罗斯接着说，“所有的假设都还在讨论中”，病毒的来源还没有被确定。
-
-“就世卫组织而言，所有的假设都还在讨论之中”，特德罗斯此前说：“这份报告是一个非常重要的开端，但它并不是终点。我们还没有找到病毒的来源，我们必须继续关注科学，并在工作中不遗余力。找到病毒的源头需要时间，我们有责任为世界找到源头，以便我们能够共同采取措施，减少这种情况再次发生的风险。没有一次研究之旅可以提供所有的答案。”
-
-越来越多的人对世卫组织三月份报告抱有怀疑态度，白宫新闻秘书珍-普萨基（Jen Psaki）表达了相同的态度，白宫认为世卫组织报告是在中共国隐瞒了各种信息基础上出台的。
-
-普萨基说，医学专家和全球社会“都应该有更大的透明度”。她说，该报告缺乏关键信息，并提供了关于病毒来源的“部分、不完整的信息”。她呼吁中共国和世卫组织允许国际专家“不受限制地获取”数据，并允许他们向疫情爆发时在当地的人提问（咨询）。普萨基说，白宫认为这份报告 “没有满足这个条件”。
-
-原文链接：[Coronavirus origin could be revealed within months if China released all data, WHO adviser says | Fox News](https://www.foxnews.com/health/origin-coronavirus-months-china-released-data-who-metzl)
-
-+1
+0
