@@ -1,25 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## G系列是黑暗中发光的明灯
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1198904/)
+## 中共关于病毒的军事教材在澳洲媒体发酵
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1193947/)
 
-撰稿：澳喜战友
-![]()![](https://gnews.org/wp-content/uploads/2021/05/pexels-ahmed-aqtai-2233416-3.jpg)图片来源于Pexels免费照片素材库；作者：Ahmed Aqtai
-笔者认为投资最应该关心的，是风险与收益这两大主题。没错，事实上在金融界许多评估投资表现的模型和方法，都是以上述二者为基础。G系列在中共疯狂打压之下艰难行走并逐渐越做越大，其生命力之顽强令人惊叹。这种严酷的打压或许曾经对于G系列是一种不安定的因素，然而现在却似乎更加验证了G系列的价值所在。
+#### 翻译报道：James Zhen
 
-要知道如若防火墙倒塌国门一旦倒塌，长期浸泡在虚假信息及壕无人性的党文化中的普通百姓便会如饥似渴地寻找真相，体会自由、真实的新鲜空气。这时以为真不破作为基本理念的G系列便将是他们最需要的精神食粮以及可靠的情报来源。如此一来，那些想通过信息不对称欺骗误导百姓的阴谋者们将无法实现他们不怀好意的企图。
+#### 责编：白夜
+![]()![](https://gnews.org/wp-content/uploads/2021/05/1-24.png)图片来自[https://gnews.org/zh-hans/902170/](https://gnews.org/zh-hans/902170/)
+美国政府获得的一本书中讨论到中共国军方的科学家将SARS冠状病毒武器化的问题，内容显示，中共有使用生物武器赢得第三次世界大战的想法。
 
-投资不单单看公司的发展前景还要关心背后的团队，文贵先生是G系列引领者。他在直播中曾提到，当国内公司被中共打压之际，员工被威胁，辞职还是被囚禁之间只能二选一，结果却竟然仅一位选择了辞职。这说明文贵先生的超强领导力和凝聚力，有他带领如果不是已经成功一半，那至少在未来也将是事半功倍。作为他的战友，笔者关注他四年，已无法用言语描述这位超乎常人品质的领袖，况且还有背后无数战友在支持。
+《澳大利亚周末》（The Weekend Australian）独家报道： “该教材由解放军科学家和中共国高级公共卫生官员于2015年撰写，是美国国务院对COVID-19的起源进行调查时获得的。” “这篇论文将SARS冠状病毒描述为“基因武器的新时代”，并说可以将SARS“人为改造成一种可导致人生病的新型病毒，然后以前所未有的方式作为武器定向投放。”
 
-投资G系列就是投资未来的希望，而共产党却想消灭作为人所渴望拥有的希望。国内生活在如电影《楚门的世界》描述的虚假环境里，而人的一生仅仅是为了生存而活，被囚禁在一统的思想之中。G系列承载着未来新中国联邦的希望，作为战友是无法拒绝这一次机会，这一份恩赐。
+生物武器研究的一个重要关注领域涉及所谓的“功能获得”Gain of Function研究，中共科学家在创造和改变病毒，使它们对人类更具传染性和致命性。该书着重强调了生物战如何“导致敌人的医疗系统崩溃”。
 
-（本文仅代表笔者个人观点）
+澳大利亚战略政策研究所（the Australian Strategic Policy Institute (ASPI)）执行董事彼得·詹宁斯（Peter Jennings）说，该书是我们所掌握的间接证据（“冒烟的枪管”smoking gun)。“我认为这很重要，因为它清楚地表明，中共国科学家正在考虑将冠状病毒的不同株系应用于军事用途，并研究部署这种冠状病毒可靠方法。”
 
-*审稿：Gradient Boost*
+他还说，该书解释了中共当局为什么如此不愿对COVID-19起源的调查进行合作。该书的真实性通过了数字取证专家罗伯特·波廷格（Robert Pottinger）的验证。罗伯特曾供职于情报机构“五眼”联盟（美澳加英新）中的三个政府。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08091455/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
+
+#### 评论：
+
+此书由闫丽梦博士经路德社自[2/9/2021路德时评（路博艾冠谈嘉宾闫博士）](https://youtu.be/UmoUdW5r5fU)推出。历经三个月终于在五眼联盟之一的澳洲媒体发酵，作为中共制毒放毒的间接证据。但是毕竟往前拱了一卒， 基于香港违约，新疆种族灭绝和放毒世界，三大事实已经可以肯定，中共必亡，只是早晚和哪种死法的问题。
+
+原文链接：[1](https://www.news.com.au/world/coronavirus/leaked-chinese-document-reveals-a-sinister-plan-to-unleash-coronaviruses/news-story/53674e8108ad5a655e07e990daa85465) [2](https://www.dailywire.com/news/chinese-military-scientists-discussed-weaponizing-sars-coronaviruses-in-document-obtained-by-u-s-government-australian-media)
+
+
+
 0

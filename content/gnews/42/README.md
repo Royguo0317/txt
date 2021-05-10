@@ -1,55 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】灭共状—— 写给直起腰板的你我！
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1198511/)
+## 我们不仅要了解病毒起源，大规模虚假信息也是中共超限生物武器战的一部分
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1198830/)
 
-作者：纽约香草山健身部 澄道
+5/8/2021 闫丽梦博士：越来越多的证据表明那不仅是功能增强，也是非常规生物武器，我定义为“超限生物武器”。我们应该了解不仅是（疫情）起源，大规模的虚假信息也很重要，因为所有这些都是中共超限生物武器战的一部分。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02191345/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09112442/image0-51.jpg)
-
-邪共百年
-
-几辈遭殃
-
-屠杀黎民
-
-卖我土疆
-
-
-
-断祖断承
-
-天下癲狂
-
-不灭邪共
-
-我等无望
-
-
-
-朋友您还想着继续生吗？
-
-战友们您今天灭共了吗？
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01143151/M5.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
 0
