@@ -1,33 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 匈牙利公开挺台加入WHO
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1201067/)
+## 中共宣称美国在全球超过200个军事实验室30个曝光
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1201360/)
 
-台湾宝岛农场
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10065918/%E6%93%B7%E5%8F%96510-1-3.jpg)
-匈牙利首都，布达佩斯市的市长卡拉松尼（Gergely Karacsony）于推特公开支持台湾加入WHO。
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+![]()![](https://gnews.org/wp-content/uploads/2021/05/封面-12.png)
+据[**新浪军事**](https://weibo.com/milnews?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2021年5月10日19：30](https://weibo.com/1499104401/KeQCu8ntm?ref=home&amp;rid=9_0_8_6667928936098282197_0_0_0) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d) 已编辑
 
-依[自由时报](https://news.ltn.com.tw/news/politics/breakingnews/3526026)新闻报导，布达佩斯市长卡拉松尼是G7、法国参议院、美国务卿布林肯力挺台湾参与国际组织后公开支持台湾的具体行动。
+【全球紧急大搜寻！[#美军200多家生物实验室藏在哪儿#](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%86%9B200%E5%A4%9A%E5%AE%B6%E7%94%9F%E7%89%A9%E5%AE%9E%E9%AA%8C%E5%AE%A4%E8%97%8F%E5%9C%A8%E5%93%AA%E5%84%BF%23&amp;from=default)？！】[#华春莹再问美方为何满世界建生物实验室#](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E6%98%A5%E8%8E%B9%E5%86%8D%E9%97%AE%E7%BE%8E%E6%96%B9%E4%B8%BA%E4%BD%95%E6%BB%A1%E4%B8%96%E7%95%8C%E5%BB%BA%E7%94%9F%E7%89%A9%E5%AE%9E%E9%AA%8C%E5%AE%A4%23&amp;from=default) 美国在全球部署了超过200个军事生物实验室，已经有30多个被曝光，还有大量实验室的藏身地不为人知。它们，可能就在你的身边！[L现代快报快快看视频的微博视频](http://t.cn/A62vzxEA) [@现代快报快快看](https://weibo.com/n/%E7%8E%B0%E4%BB%A3%E5%BF%AB%E6%8A%A5%E5%BF%AB%E5%BF%AB%E7%9C%8B?from=feed&amp;loc=at)  ​​​​
 
-卡拉松尼表示，人们面临着「疫情大流行、气候变迁、空气污染」，健康显然已经变成关键的政策议题。卡拉松尼最后还加上「#LetTaiwanHelp」的标签，这是美国国会在全球社群平台发起的「让台湾帮忙」活动，旨在让台湾参与世界卫生大会（WHA）。
+在全球以毒灭共日拱一卒之下，在Lawrence Sellin博士的中共病毒拼图日渐清晰之际，[**新浪军事**](https://weibo.com/milnews?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)的微博账号发出这样的视频究竟意味着什么呢？作为美国该如何面对中共这样的诬蔑，对于受中共蛊惑的人来说，或者再进一步如果敌视美国的力量以此作为攻击美国的理由，那么美国该如何面对，中共该如何面对？
 
-经灭共自媒体「[路德社](https://www.youtube.com/channel/UCm3Ysfy0iXhGbIDTNNwLqbQ)」直播内容，本次G7会议主题围绕在「病毒真相（疫情真相）、气候问题、科技问题、人权问题（香港、新疆）」。布达佩斯市长卡拉松尼发表的言论，更凸显了世界已经开始重视疫情的真相、病毒究竟从何而来、疫苗真相等。 （[中共病毒疫苗真相](https://gnews.org/zh-hans/1143961/)短影片）
+既然这是一场中共发起的超限生物战，既然中共现在并没有被彻底打跪下，而且中共绝对不会束手就擒，那么在这样的时刻中共抛出这样的视频意味着什么呢？这个问题或许应该美国的相关部门来回答了，要不要向中共说明所谓的全球部署超过200多家生物实验室以及所谓的已经有30多个被曝光的生物实验室呢？
 
-疫情、病毒真相部分，台湾因为过去的防疫成功，在世界努力追寻病毒真相的同时，可以成为国际针对中共、灭共的一道大门。
-
-人权争议部分，中共过去数十年来的践踏、洗脑以及操弄，玩弄新疆、西藏人民，迫害少数民族的作为，被川普政府定义为犯「灭绝种族罪、反人类罪」，随后拜登政府承认川普政府定义的「灭绝种族罪、反人类罪」，并且多国陆续表态支持中共犯下灭绝种族罪、反人类罪。
-
-其中最关键、持续努力不懈的「香港」，就是人权部分，世界灭共的另一道大门。
-
-文╱zhong
-
-发布╱小刘
-
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+（文章内容仅代表作者个人观点）
 
 0
