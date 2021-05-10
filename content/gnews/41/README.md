@@ -1,15 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕】5/9/2021文贵盖特：祝天下所有的母亲，母亲节快乐！
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1196060/)
+## 中共国电池公司 新的亿万富翁孵化器
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1196169/)
 
-制作： 【彩虹桥】
+整理撰稿：蓝精灵
 
-兄弟姐妹好，今天早上直播的时候，我就忘了说母亲节快乐，在下意识里面就屏蔽了，就是说真的不想说母亲节快乐。
+对于CALT这家仅仅拥有十年历史的公司来说，公司高管九个人的财富总值达720亿美元，
 
-我实际上昨天晚上很多人给我发，母亲节快乐的时候，我心里面真是…一到这个时候…母亲节的时候，我觉得是最伤心的时候，但是它还得是啊，它毕竟这一天还存在呀，愿天下有母亲的人，真心的去疼爱自己的母亲，不是买点衣服，买点吃的，是你给她时间，给她爱，就像母亲当年有耐心，用时间陪伴你一样，我觉得这才是对母亲真正的爱，而不是装模作样地问候几句，心不在焉，就像母亲对待自己的孩子一样，那份真诚，那份耐心，那份承担，那种爱和不惜一切，把孩子置于生命之上。如果孩子能像对待母亲对待自己的亿分之一，你就是一个伟大的人了。
+随着中国越来越重视发展清洁能源产业，CATL得到了政府的帮助。从2015年开始，中国政府保留了推荐电池供应商的清单，其中包括50多家国内公司，而LG和Samsung等外国重量级公司则被排除在外。将推荐电池供应商用于其电动汽车的汽车制造商有资格获得政府补贴，从而为CATL等公司的崛起铺平了道路。CATL在深圳证券交易所首次亮相一年后，该名单于2019年被取消。CATL的代表在一份声明中说，该公司的成功归功于其“战略方向，对研发​​的持续投资，可靠的产品和服务以及整合产业链的能力”。
 
-可是世界悲哀的事情，绝大多数人都做不到，我也没做到，所以说我觉得我是个不孝之子，在任何情况下，兄弟姐妹们，都应该记住母亲是最伟大的，你要付出耐心，付出真诚的，衷心的祝愿所有的天下母亲，母亲节快乐！所有天下的母亲都是文贵尊重的人，都是文贵爱的人，阿弥陀佛！谢谢！
+CATL计划于2020年初成为特斯拉上海超级工厂的供应商，该公司计划于今年晚些时候在德国开设其第一家海外工厂。随着在欧洲向汽车制造商的电池销售量的增加，中国开始向欧洲出口配备了CATL的电动汽车，这使其在欧洲的业务不断增长。CATL代表说：“从长远来看，CATL的目标将是实现固定和移动能源系统中化石燃料替代的目标，该系统将通过先进的电池和可再生能源产生高效的电力系统。”
+
+编者简评：
+
+目前尚未有媒体报道这家低调的电池公司的真实背景，有一点可能是中共家族很早就开始布局清洁能源市场，在中共，从天而降的富翁太多，很少看到真实的亿万富翁的奋斗史，而这种早早进行布局的商业机会，和庞大的初期创业补贴，这种权力也是集中在少数人手中。这是新一代的马云马化腾们吗？
+
+\*以上仅代表作者观点，不代表Gnews平台\*
+
+参考链接：
+
+[https://www.forbes.com/sites/jenniferwang/2021/05/03/this-chinese-battery-company-has-produced-more-billionaires-than-google-or-facebook/?sh=155ba34b67e7&utm\_source=ForbesMainTwitter&utm\_medium=social&utm\_campaign=socialflowForbesMainTwitter](https://www.forbes.com/sites/jenniferwang/2021/05/03/this-chinese-battery-company-has-produced-more-billionaires-than-google-or-facebook/?sh=155ba34b67e7&amp;utm_source=ForbesMainTwitter&amp;utm_medium=social&amp;utm_campaign=socialflowForbesMainTwitter)
+
+图片来源：
+
+[https://www.forbes.com](https://www.forbes.com/sites/jenniferwang/2021/05/03/this-chinese-battery-company-has-produced-more-billionaires-than-google-or-facebook/?sh=155ba34b67e7&amp;utm_source=ForbesMainTwitter&amp;utm_medium=social&amp;utm_campaign=socialflowForbesMainTwitter)
+
+校对发布：Penny
+
+
 
 0

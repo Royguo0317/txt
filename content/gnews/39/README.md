@@ -1,35 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 阿富汗首都一学校爆炸，塔利班贼喊捉贼
-` HML vancouver sailing` [轉載自GNews](https://gnews.org/zh-hans/1195214/)
+## 科技前沿——SpaceX接受狗狗币付款，用于明年发射月球任务
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1196237/)
 
-作者：温和华扬帆农场  Meilen美伦
+整理撰稿：蓝精灵
 
-北京时间2021年05月09日新唐人电台报道，阿富汗首都喀布尔的一所中学门口，周六发生了多起汽车爆炸事件，造成至少55人死亡，155人受伤。
+SpaceX将于明年第一季度发射“ DOGE-1登月任务”，埃隆·马斯克（Elon Musk）的商业火箭公司将接受加密货币狗狗币作为付款。
 
-据当时的目击者表示，爆炸发生时正好是放学时间，受害者大多是准备回家的女学生。阿富汗的官员后续也确认了这一信息，表示爆炸发生地是一所联合高中，但因是女生上课时间，死者多数是女学生。
+Geometric Energy Corporation在周日宣布了由狗狗币资助的任务，但声明并未透露任务的财务价值。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09183802/46-1-1.jpg)
+“我们很高兴将DOGE-1发射到月球上！”，SpaceX商业销售副总裁Tom Ochinero引用了Geometric Energy发布的声明。“该任务将证明加密货币在地球轨道之外的应用，并为行星际贸易奠定基础”。
 
-爆炸发生在喀布尔西部，是什叶派穆斯林的居住区，经常遭到伊斯兰国激进分子的袭击。虽然阿富汗总统阿什拉夫·加尼谴责塔利班制造了这起爆炸事件，但塔利班发言人对此表示否认，并谴责事故肇事者。
+马斯克今年的推文将曾经一度晦涩难懂的数字货币（最初是社交媒体的笑话）变成了投机者的梦想。
 
-简评：
+编者简评：
 
-虽然塔利班恐怖组织否认并谴责这一罪行，但恐怕是此地无银三百两，贼喊捉贼。试想，一般平民百姓怎会拥有如此巨量的火力来进行有组织的爆炸活动？更何况，此次事故造成死伤如此惨重，且是专门针对弱势群体的学生，这不就是塔利班的惯常行为吗？专挑弱势群体下手，邪恶至极！
+基于自由流通的，不受限制的数字货币是主流，是未来。随着星链网络的闭合，天才马斯克貌似正在测试如何把数字货币变成太空币，星链网络是太空数字币的必要条件，这一过程就是一个去中心化的过程，也是重塑世界金融政治格局的过程。
 
-数年来，阿富汗饱受恐怖主义的威胁，美军一旦撤离，这个国家恐将成为恐怖组织的天堂。再加上塔利班还被最邪恶的轴心国之首CCP支持，这也是阿富汗人民处于暗无天日之中的根源。世界要和平，唯有灭共才能安宁。
+\*以上仅代表作者观点，不代表Gnews平台\*
 
-所幸的是，有新中国联邦在联合世界正义力量，全力推动灭共，CCP的末日也不远了。只要CCP一灭，世界上仅剩的几大邪恶独裁政权和恐怖组织就失去了粮草（经济）支持，届时，这些组织也必将土崩瓦解。和平定会回归阿富汗，这些恐怖组织也必定会受到人民的审判。
+参考链接：
 
-（本文仅代表作者观点）
+[https://www.reuters.com/business/finance/spacex-accepts-dogecoin-payment-launch-lunar-mission-next-year-2021-05-09/?taid=609861454492f900010b98f0&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/business/finance/spacex-accepts-dogecoin-payment-launch-lunar-mission-next-year-2021-05-09/?taid=609861454492f900010b98f0&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-参考阅读：
+图片来源：[https://www.reuters.com](https://www.reuters.com/business/finance/spacex-accepts-dogecoin-payment-launch-lunar-mission-next-year-2021-05-09/?taid=609861454492f900010b98f0&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-[阿富汗首都一所学校爆炸 55死近两百伤](http://cn.ntdtv.com/gb/2021/05/08/a103113923.html)
-
-编审：温和华扬帆农场 Shuang
-
-校对/发稿：纽约香草山农场 Irene木木
+校对发布：Penny
 
 0

@@ -1,46 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】乱世里的母亲节——2021
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1197310/)
+## 《柳叶刀》称印度染疫死亡人数8月可能达百万
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1197272/)
 
-配音：香草山录音组 蒙古鸿雁
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/I-4.jpg)newsindianexpress.com
+《法兰西24》5月9日报道，医学杂志《柳叶刀》(the Lancet)的一篇社论援引华盛顿大学(University of Washington)独立全球卫生研究中心健康指标与评估研究所(Institute for Health Metrics and Evaluation)的一项估计称，到今年8月1日，印度中共毒病死亡人数可能达到“惊人的”100万。
 
+印度卫生部周日公布，过去24小时内死亡人数为4092人，死亡总人数达到24.2万人。新病例增至40.4万例，略低于历史纪录，使疫情开始以来的总病例数达到2230万例。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/05/GNEW-GTV-MOS-LOGO-2-2-1-2.jpeg)
+新德里一直在努力控制疫情，其医疗体系已经不堪重负。许多专家怀疑，官方的死亡和病例数字比实际是严重低估了的。
 
+本月早些时候，路透社(Reuters)报道称，一个由政府设立的科学顾问论坛在3月初警告印度官员，一种传染性更强的新型冠状病毒正在该国蔓延。四名科学家告诉路透社，尽管他们发出了警告，但联邦政府并不打算实施重大限制来阻止病毒的传播。
 
+政府允许数百万人参加印度教宗教节日，而莫迪总理、执政党领导人印度人民党(BJP)和反对派政客为地区选举组织了政治集会。专家称，这些事件被证明是“超级传播者”。
 
-妈妈是海洋，爸爸是大山……
+这篇社论呼吁印度政府采取“双管齐下”的策略，通过在全国范围内加强疫苗接种和减少这种致命病毒的传播来应对这种流行病，并批评到，“这一努力的成功将取决于政府认识到自己的错误，负责任的领导和透明度，以及实施以科学为核心的公共卫生应对措施。”
 
-电影《妈妈再爱我一次》，是一部抱着纸巾才能看得完的电影，里面感人肺腑的歌曲唱得人心碎，泪如雨下：世上只有妈妈好，有妈的孩子像块宝，世上只有妈妈好，没妈的孩子像棵草……
+该医学杂志称，莫迪扼杀批评的企图是“不可原谅的”，莫迪政府为此承担了巨大的压力，这也进一步促进各国政府需要努力寻求病毒来源的真相来维系国家稳定平息民愤。
 
-2019至今，无数位寻找孩子的香港母亲都一样，孩子永远是妈妈的宝贝，母爱无边。
+各国呼吁调查中共病毒的呼声越来越高，甚至已经直指病毒为生物武器。国际社会因各国不断增加的死亡人数和经济困境及国民积累的愤怒，促使各国政府别无选择去寻找病毒真相，找到罪魁祸首为此买单。
 
-自古至今，关於妈妈的故事，例如，孟母三迁、聂树斌的妈妈、杨改兰的悲剧事件、太伏中学赵鑫的妈妈、无钱為孩子看病而在医院门口為孩子跪下的年轻妈妈，连曾经地位高贵的吴小晖的妈妈都在街上举着牌子为儿子喊冤，每一个妈妈背后都有著说不完的故事……
+中共病毒是中共实验室制造的超限生物武器已经是无可抵赖的事实。这将是压垮该残暴政权的最后一根稻草。
 
-**文字版原文：[【圣城传声筒】乱世里的母亲节——2021](https://gnews.org/zh-hans/1189920/)**
+参考链接：
 
-作者：纽约香草山香港部 小雯
-
-音频处理：喜山必胜Maverick
-发稿：正义的小新
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09224244/GNEW-GTV-MOS-LOGO-2-2-1-4.jpeg)
-
-
+[https://www.fr24news.com/a/2021/05/india-covid-19-deaths-could-reach-1-million-by-august-lancet.html](https://www.fr24news.com/a/2021/05/india-covid-19-deaths-could-reach-1-million-by-august-lancet.html)
 
 0
