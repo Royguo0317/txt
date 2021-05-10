@@ -1,32 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Sellin博士科学溯源证实中共长期制造生物病毒
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1198545/)
+## 缅甸军方杀害诗人拿走他的内脏
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1198490/)
 
-台湾宝岛农场 Amitofu
+加拿大多伦多枫叶农场 向真
 
-从Sellin博士近日连续发推，证实美国FDA和国家传染病研究院NIH的安东尼·福奇和他NIH同事柯林斯与香港大学P3实验室顶级冠状病毒专家马里克裴伟士 Malik Peiris有一个重要的合同，**马里克团队能增强E蛋白中SARS病毒极大毒性**，可直接伤害脑部和神经系统并具高传染能力特性，也就是生化病毒的功能增强，中共透过马里克新冠状病毒的专业与解放军合作，以舟山蝙蝠病毒ZC45/ZXC21为骨架，通过人为的基因改造技术在刺突蛋白中引入弗林酶切位点，功能增强S蛋白、E蛋白毒性，**100%被复制于SARS-COV-2病毒中**，使病毒更具强变异性和传染性。
+本周六刚刚被缅甸军政府杀害的诗人叫卡齐，他今年44岁，2012年之前是一名工程师。由于喜欢诗歌创作，他辞去了工程师的职务，平时依靠制作和销售冰淇淋、蛋糕来维持生活。卡齐是今年2月1日缅甸政变以来被军政府杀害的第四名诗人。卡齐称自己是一名吉他手和诗人，在我们身边，不乏和卡齐一样的人，他们内心平和心地善良，但在坚持正义方面单纯又固执。
+![]()![](https://gnews.org/wp-content/uploads/2021/05/theguardian.com_.jpg)*图片来源：Theguardian.com*
+让我们来看看诗人的心路历程：缅甸军方发动政变后两个星期，诗人试图克制自己的情绪，但已经无法平静，来自内心深处的正义感煎熬着他的灵魂，他写道，“我不想成为英雄，我不想成为烈士，我不想成为弱者，我不想成为傻瓜，我不想支持不公正。如果我只有一分钟的生命，我希望我的良心在那一分钟保持干净”，最后，诗人为了灵魂的“干净”，走出了矛盾的怪圈，走上了和军政府对抗的最前线，诗人究竟感知到了什么，然后毅然以命相搏？
 
+3月3日，缅甸军方用冲锋枪扫射手无寸铁的游行民众，当天致死38人，更加激发了缅甸民众的反抗意志，但也招致了军政府更疯狂的镇压。诗人卡齐忍无可忍，他认为必须以暴制暴，因此他写道：“我的人民被枪杀，我只能用诗歌来反击，但当你确定自己的声音不够有力时，你需要仔细选择枪支，我会开枪的！”。浪漫的诗人是否有机会开枪？我们不知道，但他死了，他死在军政府的屠刀之下，并且诗人的内藏器官全部被拿走了。
+![]()![](https://gnews.org/wp-content/uploads/2021/05/trthaber.com_-4.jpg)*图片来源：trthaber.com*
+缅甸社会出现经济衰落及文明倒退，是从被日本占领、缅甸出现共产组织和1948年缅甸独立开始的。1936年，缅甸（当时属于英属印度）GDP超过120亿美元，同期亚洲强国日本的GDP不过60亿美元。即缅甸人均GDP约776美元，美国662美元、日本125美元。82年后的2018年，缅甸人均GDP为1418美元，排名在有统计数据的156个国家中的第152名，倒数第五。美国人均6.2万美元，日本人均4万美元，另外有46个国家因统一数据不全被排除在统计排名之外。
 
+缅甸于1824年至1941年一直作为英国海外殖民地，1941年日本占领缅甸时，共产国际趁乱在缅甸成立了缅共组织，缅共与同时期的中共一样不断坐大。1948年缅甸正式独立时，缅甸合法政府全面进攻缅共，直到1960年缅共失去最后一块根据地时，缅共骨干全部转入中共各地的军政机关挂职学习和培训，比如有一批先到“北京国际马列主义学院”学习，后分配到第54野战军挂职，地方挂职地则主要安排在与缅甸地理环境相似的西南各省。毫无疑问，中共从未放弃控制缅甸的野心（这一段来自维基）。
 
-> These Chinese Communist Party-Military scientists are linked regarding the brain and nervous system effects of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) e.g. the envelope protein, Axl, fusion loops.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/d4EcFNSwei](https://t.co/d4EcFNSwei)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 9, 2021](https://twitter.com/LawrenceSellin/status/1391369730599104523?ref_src=twsrc%5Etfw)
+缅共近80年来一直是中共的代理人，上世纪九十年代缅共在中共的支持下加强了对缅甸政府军的渗透及暴力运动，其中的一次军队暴动失败后，60 多名政府军军官被逮捕，大部分缅共成员逃入中共国。今年2月军方发动的政变，背后的罪魁祸首无疑就是中共。
 
+缅甸的战略地位非常重要，有丰富的油气等自然资源，这是中共极力控制缅甸的原因。由于能源高度依赖进口，能源安全一直是中共的心头大患，从缅甸孟加拉湾港口直达昆明的油气管道，可以避开由美国控制的马六甲海峡，是中共的主要生命线。控制缅甸后，中共沿滇缅公路可以快速将军事力量投射到印度洋，除了能够保护这条延伸到中东、非洲的能源运输线，还可以制衡印度，破坏美国的印太战略，在川普制定的印太战略中，印度被称为“基石”。
 
+缅甸是一个有136个民族的国家，其中缅族占68%，当前的缅甸推行强制同化少数民族的大缅族主义，有不少少数民族竟然不是“法定少数民族”，比如有50万世代生活在缅甸的罗兴亚人没有选举权，这成为中共操控的缅甸军方据以否定本次选举合法性的理由之一。显而易见，中共试图通过制造和利用缅甸复杂的民族关系，扶植一个唯命是从的傀儡政权，将红色革命输入到缅甸。诗人卡齐这样的缅甸精英当然明白，如果不站出来阻止中共和军政府，今天的香港就是明天的缅甸。自由和民主是只属于勇士的战利品，卡齐39岁的诗人朋友凯提留下“他们向头部开枪，但他们不知道革命在心里”后慷慨奔死，可以想象，卡齐也是骄傲、体面地赴死的。
 
-Sellin博士团队从NIH科学溯源，证实石正丽造假的RaTG13与云南矿洞说，到技术指证舟山蝙蝠病毒ZC45/ZXC21骨架，港大P3实验室马里克、潘烈文、管轶的E蛋白的功能增强试验，更深入指向**中共病毒超限武器脑部和神经部位攻击的病毒专家秦成峰**，秦成峰团队参与**神经部位攻击**、军事医学研究院病原微生物安全研究的**「寨卡病毒prM蛋白中的关键位点，单个氨基酸突变即可显著增强“寨卡病毒”的神经毒力」**，加上非典非自然起源和人制人新种病毒基因武器书籍，更透漏中共长期制造生化病毒的事实。在巴西总统扎伊尔·博尔索纳鲁批评中共病毒的危害后，英国太阳报和澳洲人报报导，来自美国国务院官员在2020年5月，调查新冠肺炎疫情起源的过程中取得的文件，由18名解放军科学家和中共国高级公卫官员2015年合作撰写，**「透漏SARS冠状病毒是新时代的基因武器，中共可以操纵病毒毒性成为人类疾病新病毒，然后增强成生物武器」**，随着西方媒体的不断曝光，都显示着美国军情界、科学界、生物界已经完成验证新型冠状病毒的毒性变异，透过科学溯源一路推向武汉病毒研究所WIV从事秘密生物武器研究工作。
+参考链接：
+[1] [Myanmar poet dies after being detained, his family says](https://www.reuters.com/world/asia-pacific/myanmar-poet-dies-after-being-detained-his-family-says-2021-05-09/)
+[2].[缅甸军方动用冲锋枪开火！大量平民喋血惊动联合国，中方态度鲜明](https://www.gnews.cc/other/753838666w.html)
+[3][缅甸为何从世界富裕国家沦落为亚洲穷国？](https://zhuanlan.zhihu.com/p/348798837)
 
-这一年来文贵先生与新中国联邦战友唯真不破努力的传播，让西方了解中共长期制造生化病毒的事实，新冠病毒是中共发动的生化超限战，目前已经造成1.6亿人确诊、330万人死亡，祈求万佛万神早日有解药能挽救无数的生命，感谢英雄闫丽梦博士发表至今无人能辩驳的三份科学报告。本文仅代表个人立场  共产党你完了!  X3
+* * *
 
-祈祷万佛万神加持文贵先生与新中国联邦每位战友
-
-資料來源:文贵先生、班农战斗室、路德社、闫丽梦博士、博士军团、新中国联邦
-
-[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)
-
-审核:Athena 发布:Amitofu
-
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+编辑 发稿 云起时
 
 0

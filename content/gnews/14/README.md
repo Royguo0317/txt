@@ -1,55 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】灭共状—— 写给直起腰板的你我！
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1198511/)
+## 中共对老人的智能监控推广用意何在
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1198836/)
 
-作者：纽约香草山健身部 澄道
+撰稿：自由战士
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10021906/20210510_t6-3.jpg)（图片来自网络）
+日前，丰台区南苑街道红房子社区的25户独居老人免费用上了可自动报警的智能水表。如果12小时内水表的读数低于1升，信息会反馈自动报警，另外还增加了智能床垫，实时监控老人整体状况，美其名曰是为照顾老人所安排的。但是我们大家细思后面的用意就感觉到我们自己的生活方式在逐渐的进入监狱模式了。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02191345/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
+首先，我们在可以回顾一下，这个模式在路德的节目上就有说过，在新疆对每个家庭的管控到什么程度，就是用这个所谓的智能水表，如果用水量发生异常来判断家里的人员变化，然后进行控制。我们可以看到新疆的兵团日报，里面很早也有免费给居民进行安装智能水表的新闻报道。可见中共的险恶用心已久。
 
+其次，现在墙内的高压下，中共为了更好的控制百姓，必须要掌控每个家庭的详细信息和随机变动的情况，因此新疆模式要在全国开始推广，首先尝试性的在独居老人的住处进行安装，然后逐渐扩展到全国各地，每个家庭。这样就顺理成章的把每个家庭变成了监狱监控模式。
 
+最后，针对已经到来的文革2.0时刻，加上目前中共的全方位监控模式的推广，如果对异己人员进行批斗，谁都无法躲藏，户外是360度的监控摄像头监视，户内是这些类似智能水表的监控产品，你的自由从此完全丧失。裸奔的时代已经到来。中共这个大炼狱无论你是什么人，不分职位高低身份贵贱，都会被拉入屠杀模式。中共不亡，对于任何人都不安全，消灭中共是自保的唯一方式，奉劝墙内的权贵们尽快苏醒，不要跟魔鬼同流合污。文革2.0的疯狂肯定是首先在权贵阶层开始的。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09112442/image0-51.jpg)
+（文中观点只代表个人观点）
 
-邪共百年
+*审稿：永遠の小学生文筝 编辑：8 Mile*
 
-几辈遭殃
-
-屠杀黎民
-
-卖我土疆
-
-
-
-断祖断承
-
-天下癲狂
-
-不灭邪共
-
-我等无望
-
-
-
-朋友您还想着继续生吗？
-
-战友们您今天灭共了吗？
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01143151/M5.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
+【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08091455/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 0

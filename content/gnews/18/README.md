@@ -1,52 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙文推荐】车闹特斯拉，墙内明白人怎么看
-` Basil4` [轉載自GNews](https://gnews.org/zh-hans/1198350/)
+## Sellin博士科学溯源证实中共长期制造生物病毒
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1198545/)
 
-推荐人：纽约香草山农场 善良的城君
-本文来自今日头条用户：赤潮席卷全球
+台湾宝岛农场 Amitofu
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02142543/s2-1.jpg)
-
-
-
-推荐者语：女子大闹特斯拉事件搞得沸沸扬扬，战友们都明白这无外乎是中共自摆乌龙，欲借机打压、折腾，甚至挤跑特斯拉，好为自己的“亲儿子”赢得一点点喘息的空间。其实墙内也多有明白者，且看“赤潮席卷全球”对此事的看法。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10004609/Unknown-1.jpg)
-
-* * *
-
-这次车闹搞特斯拉，实在是符合太多人利益了。如果我是汽车行业相关从业人员，别说给我钱了，让我倒给钱我也要黑特斯拉。
-
-model3三月销量比雅阁迈腾雷凌还高，所有车企都如临大敌。特斯拉本来还想上海开第二个厂，照这个扩张速度，五年内能把中国市场全吃光了——特斯拉的产能规划是到2030年三千万辆。现在车企利润五个点都算高的了，国产特斯拉毛利能到25个点，上海厂两年内还完银行贷款还有剩的。这种盈利能力你在哪个车企见过?这样搞下去其它车企还玩屁啊。十年来苹果占据了手机市场绝大部分利润，剩下的安卓机只有三星有少许利润。特斯拉是要把汽车行业的利润也吃得像苹果那么多，而且剩下的市场比安卓机还小得多。
-
-无论你是合资还是国产车厂里的人，无论你是高管还是基层技术人员，你会喜欢特斯拉吗？你肯定恨死特斯拉了。
-
-如果你学了一辈子的机械，特斯拉一来这些知识全废了，什么变速箱离合器，什么发动机热效率，电动车不讲机械只讲电池和电机。你是学机械的碰上特斯拉你不得抓狂。
-
-你看那些车评人，本来测燃油车的，市场上每年上千个新车型历史上几千个旧车型足够他们生存，特斯拉一来噼里啪啦一下子把这些车型都扔垃圾桶了，他们评啥去?评特斯拉那几款车连公关费都不愿给。所以你是车评人你会喜欢特斯拉?哪怕没人给一分钱公关费，恐怕你都要自发熬夜赶稿搞死特斯拉。
-
-以前燃油车配套行业的，比如汽修行业，卖机油火花塞换三元催化，光是去积碳都是一门大生意，电动车一来全嗝屁了。电动车车保养只剩下换玻璃水雨刮器和轮胎，街边的那些摊子以后只能给电动车洗洗车打个腊。以后你家楼下的修车店十有八九都要关门，全国本来几百万相关从业人员大部分都要下岗，这不是一场汽车革命，这是一轮经济危机，其猛烈程度可以称得上低配版的98年下岗潮。
-
-所以你看这轮黑潮就很有意思，特斯拉车主满意度是很高的，反倒是一批批黑子涌进来和车主说特斯拉这不好那不好，车闹本人都不发声了他们还跟教父似的教育众人特斯拉是洪水猛兽。我是很理解这些黑子的苦衷，毕竟特斯拉动了他们蛋糕了，而且很有可能把他们的蛋糕吃一干净，连渣都不会剩下。
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02021137/5_May-3.jpg)
+从Sellin博士近日连续发推，证实美国FDA和国家传染病研究院NIH的安东尼·福奇和他NIH同事柯林斯与香港大学P3实验室顶级冠状病毒专家马里克裴伟士 Malik Peiris有一个重要的合同，**马里克团队能增强E蛋白中SARS病毒极大毒性**，可直接伤害脑部和神经系统并具高传染能力特性，也就是生化病毒的功能增强，中共透过马里克新冠状病毒的专业与解放军合作，以舟山蝙蝠病毒ZC45/ZXC21为骨架，通过人为的基因改造技术在刺突蛋白中引入弗林酶切位点，功能增强S蛋白、E蛋白毒性，**100%被复制于SARS-COV-2病毒中**，使病毒更具强变异性和传染性。
 
 
 
-**更多资讯，更多关注**
+> These Chinese Communist Party-Military scientists are linked regarding the brain and nervous system effects of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) e.g. the envelope protein, Axl, fusion loops.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/d4EcFNSwei](https://t.co/d4EcFNSwei)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 9, 2021](https://twitter.com/LawrenceSellin/status/1391369730599104523?ref_src=twsrc%5Etfw)
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+Sellin博士团队从NIH科学溯源，证实石正丽造假的RaTG13与云南矿洞说，到技术指证舟山蝙蝠病毒ZC45/ZXC21骨架，港大P3实验室马里克、潘烈文、管轶的E蛋白的功能增强试验，更深入指向**中共病毒超限武器脑部和神经部位攻击的病毒专家秦成峰**，秦成峰团队参与**神经部位攻击**、军事医学研究院病原微生物安全研究的**「寨卡病毒prM蛋白中的关键位点，单个氨基酸突变即可显著增强“寨卡病毒”的神经毒力」**，加上非典非自然起源和人制人新种病毒基因武器书籍，更透漏中共长期制造生化病毒的事实。在巴西总统扎伊尔·博尔索纳鲁批评中共病毒的危害后，英国太阳报和澳洲人报报导，来自美国国务院官员在2020年5月，调查新冠肺炎疫情起源的过程中取得的文件，由18名解放军科学家和中共国高级公卫官员2015年合作撰写，**「透漏SARS冠状病毒是新时代的基因武器，中共可以操纵病毒毒性成为人类疾病新病毒，然后增强成生物武器」**，随着西方媒体的不断曝光，都显示着美国军情界、科学界、生物界已经完成验证新型冠状病毒的毒性变异，透过科学溯源一路推向武汉病毒研究所WIV从事秘密生物武器研究工作。
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+这一年来文贵先生与新中国联邦战友唯真不破努力的传播，让西方了解中共长期制造生化病毒的事实，新冠病毒是中共发动的生化超限战，目前已经造成1.6亿人确诊、330万人死亡，祈求万佛万神早日有解药能挽救无数的生命，感谢英雄闫丽梦博士发表至今无人能辩驳的三份科学报告。本文仅代表个人立场  共产党你完了!  X3
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+祈祷万佛万神加持文贵先生与新中国联邦每位战友
+
+資料來源:文贵先生、班农战斗室、路德社、闫丽梦博士、博士军团、新中国联邦
+
+[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)
+
+审核:Athena 发布:Amitofu
+
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
 0
