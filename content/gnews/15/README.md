@@ -1,51 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】美国宣布紧急豁免令 应对输油管道网络骇客
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1199608/)
+## 印首都首席部长宣布将第三次延长“封城”时间
+` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1199756/)
 
-**作者：纽约香草山健身部 文真**
+#### 作者:【默凡】
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
+5月9日，印度首都新德里首席部长凯杰里瓦尔正式宣布，将目前的“封城”措施再延长一周至17日。这也是新德里第三次延长“封城”措施。
+![]()![](https://gnews.org/wp-content/uploads/2021/05/198F70A6-A3C0-484E-AC27-C9B7F5BCF2D2-1.jpeg)
+据印度卫生部9日公布的数据显示，印度较前一日新增确诊病例403738例，累计确诊22296414例；新增死亡4092例，累计死亡242362例。截至9日，印度单日新增确诊病例连续18天超过30万例，连续4天超过40万例，死亡病例连续2天超过4000例。由于疫情不断恶化, 印度多地收紧疫情防控措施。新德里自4月19日开始实施全城封锁，此后分别在4月25日和5月1日宣布延长封锁。
 
+新德里中共病毒检测阳性率已从4月下旬的约35%降至目前的约23%，虽然新德里中共病毒新增病例有所下降，但仍不可掉以轻心。专家认为，23%的数字仍然很高，必须要切断病毒传播链。所以延长“封城”措施就是为了确保感染率继续下降。
 
+本文仅代表作者本人观点，不代表Gnews平台
 
-![]()![](https://gnews.org/wp-content/uploads/2021/05/图片1-51.png)
+参考文章：
 
-美国最大输油管道网络 Colonial Pipeline 总长5500英里，连接墨西哥湾至美国东南部各州，每天运输量达二百五十万桶，占美国东部柴油、汽油和航空用油总量的45%。上周五Colonial Pipeline因遭受网络骇客攻击被迫关停。周日，美国交通部实施紧急法案应对东部各州即将面临的汽油短缺。
+[1][https://www.thepaper.cn/newsDetail\_forward\_12599380](https://www.thepaper.cn/newsDetail_forward_12599380)
 
-该紧急法案允许十八个州（包括阿拉巴马、阿肯色、华盛顿特区、特拉华、佛罗里达、佐治亚、肯塔基、路易斯安那、马里兰、密苏里、新泽西、纽约、北卡罗莱纳、宾夕法尼亚、南卡罗莱纳、田纳西、得克萨斯和维吉尼亚）经由公路运输柴油、汽油和航空用油。美国能源部正在密切关注可能导致的能源供给不足。截至周日晚间，Colonial Pipeline部分支线恢复运行，四条主管道仍处在关闭中。据专家分析，公路运输量难以及时满足多个州油气需求，如果周二未能恢复输油管道运行，则麻烦将至。对能源供给不足的担忧会导致能源金融交易市场价格的强烈波动。
+[2][https://www.google.com.hk/search?q=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&newwindow=1&safe=strict&hl=zh-CN&source=hp&ei=JtyYYL6fNtyW4-EPhOSfkAk&iflsig=AINFCbYAAAAAYJjqNmYCmpxFSZ690lYT90Me-lJO5CXF&oq=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&gs\_lcp=Cgdnd3Mtd2l6EAMyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAw6AggAUPEPWPkmYNIoaAJwAHgBgAG-A4gBiCuSAQYzLTE1LjGYAQCgAQGqAQdnd3Mtd2l6sAEA&sclient=gws-wiz&ved=0ahUKEwi-yoGqx77wAhVcyzgGHQTyB5IQ4dUDCAc&uact=5](https://www.google.com.hk/search?q=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&amp;newwindow=1&amp;safe=strict&amp;hl=zh-CN&amp;source=hp&amp;ei=JtyYYL6fNtyW4-EPhOSfkAk&amp;iflsig=AINFCbYAAAAAYJjqNmYCmpxFSZ690lYT90Me-lJO5CXF&amp;oq=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&amp;gs_lcp=Cgdnd3Mtd2l6EAMyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAw6AggAUPEPWPkmYNIoaAJwAHgBgAG-A4gBiCuSAQYzLTE1LjGYAQCgAQGqAQdnd3Mtd2l6sAEA&amp;sclient=gws-wiz&amp;ved=0ahUKEwi-yoGqx77wAhVcyzgGHQTyB5IQ4dUDCAc&amp;uact=5)
 
-目前美国政府、FBI和多家网络安全机构已介入骇客事项调查。有消息称此次网络骇客攻击是网络犯罪集团 DarkSide 通过 “勒索软件” 攻击方式所致。“勒索软件”骇客通常复制和加密被攻击网络和服务器数据，导致服务器瘫痪和数据丢失，从而向受攻击方勒索赎金。上周四骇客发起攻击两个小时内即盗取100GB数据。Colonial Pipeline IT管理部门采取主动关停网络服务器的措施避免数据损失继续扩大。
-
-美国各大高校、政府机构和科技企业是骇客攻击的主要目标。无独有偶，美国著名高校伦斯勒理工大学 Rensselaer Polytechnic Institute (RPI) 上周五同样遭到骇客攻击。该校拥有最先进的IBM超级计算机，排名全美高校之最，拥有与军方和各大科技企业的长期合作项目。Covid19大流行病在美国蔓延之初，该校最早和NIH合作，利用超级计算机处理分析病毒数据。
-
-网络犯罪集团DarkSide 据称是俄罗斯犯罪团伙，曾多次在苏联解体后的国家利用“勒索软件”发动骇客攻击，盗取数据，敲诈勒索。苏联解体后，共产国际的各种地下组织由中共接管。在俄罗斯境内发起的针对美国的骇客攻击背后多由中共PLA指挥。上周接连发生的骇客攻击案说明这又是一次有预谋的扰乱美国秩序和盗窃知识产权的网络超限战。
-
-参考阅读：
-
-https://www.reuters.com/technology/colonial-pipeline-halts-all-pipeline-operations-after-cybersecurity-attack-2021-05-08/
-
-https://www.bbc.com/news/business-57050690
-
-https://www.timesunion.com/news/article/Cyber-attack-knocks-out-RPI-computer-systems-16162678.php
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
+校对/发稿：文婷
 
 
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

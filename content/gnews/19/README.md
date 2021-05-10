@@ -1,33 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## WHO驻中共代表高力为“国药疫苗”站台
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1199022/)
+## 中共关于病毒的军事教材在澳洲媒体发酵
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1193947/)
 
-#### 作者:【默凡】
+#### 翻译报道：James Zhen
 
-5月7日，WHO正式宣布由中共国医药集团北京生物制品研究所研发的中共病毒灭活疫苗正式通过WHO紧急使用认证。对此，WHO驻中共国代表高力先生认为：这是一项里程碑式的成就。
-![]()![](https://gnews.org/wp-content/uploads/2021/05/600_phpV9D27g-1.jpg)
-高丽先生说：“我们期待着未来更多中共国生产的疫苗，且不仅仅是新冠病毒疫苗，都可以得到这样的认可。”他还说，这标志着中共国以其研发能力和生产能力，以及对全球卫生事业作出巨大贡献的承诺，在全球公共卫生产品供应中的作用翻开了新的篇章。中共国的疫苗的质量有保证而且使用安全，符合世卫组织的功效要求，并将成为抗击全球大流行疫情的重要工具。
+#### 责编：白夜
+![]()![](https://gnews.org/wp-content/uploads/2021/05/1-24.png)图片来自[https://gnews.org/zh-hans/902170/](https://gnews.org/zh-hans/902170/)
+美国政府获得的一本书中讨论到中共国军方的科学家将SARS冠状病毒武器化的问题，内容显示，中共有使用生物武器赢得第三次世界大战的想法。
 
-据报道称：截至5月1日，全球接种中共病毒疫苗累计已超过10亿剂。然而大多数都发生在高收入国家，但是广大中低收入国家仍面临着疫苗短缺的困扰。
+《澳大利亚周末》（The Weekend Australian）独家报道： “该教材由解放军科学家和中共国高级公共卫生官员于2015年撰写，是美国国务院对COVID-19的起源进行调查时获得的。” “这篇论文将SARS冠状病毒描述为“基因武器的新时代”，并说可以将SARS“人为改造成一种可导致人生病的新型病毒，然后以前所未有的方式作为武器定向投放。”
 
-中共国务院联防机制在2020年12月31日记者会曾说：“2020年4月2日，全球第一个新冠疫苗获批开展Ⅰ、Ⅱ期临床试验。到6月23日，全球第一个启动Ⅲ期临床试验。再到6月24日，经过严格的程序依法依规审批开展紧急使用。再到7月份以来，多个疫苗陆续到境外去开展Ⅲ期临床试验。再到今天第一个疫苗附条件上市，我国的疫苗研发工作始终处于全球第一方阵。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10030059/0c9151d4771c0a4a095af6c81d3bcc04%401200x1200-2.jpg)
-简评：
+生物武器研究的一个重要关注领域涉及所谓的“功能获得”Gain of Function研究，中共科学家在创造和改变病毒，使它们对人类更具传染性和致命性。该书着重强调了生物战如何“导致敌人的医疗系统崩溃”。
 
-按照中共国务院联防机制的发言，中共国应该是全球首个研发并且开始使用中共病毒疫苗的国家。但是辉瑞等外国制药企业推广的疫苗率先通过WHO紧急使用认证，且外国制药企业研制的mRNA疫苗还是人类首次给健康人接种mRNA疫苗。从这点就可以看出WHO官员对中共疫苗研发能力的不信任。
+澳大利亚战略政策研究所（the Australian Strategic Policy Institute (ASPI)）执行董事彼得·詹宁斯（Peter Jennings）说，该书是我们所掌握的间接证据（“冒烟的枪管”smoking gun)。“我认为这很重要，因为它清楚地表明，中共国科学家正在考虑将冠状病毒的不同株系应用于军事用途，并研究部署这种冠状病毒可靠方法。”
 
-中共病毒从2019年底爆发以来，以谭德塞为总干事的WHO一直在帮助中共国掩盖疫情真相。中共公布的疫情数据、病毒信息和实验数据完全是在造假，以假骗偷著称的中共根本不值得信赖。WHO此次给国药疫苗紧急使用认证的背后肯定是中共蓝金黄计划的结果。
+他还说，该书解释了中共当局为什么如此不愿对COVID-19起源的调查进行合作。该书的真实性通过了数字取证专家罗伯特·波廷格（Robert Pottinger）的验证。罗伯特曾供职于情报机构“五眼”联盟（美澳加英新）中的三个政府。
 
-本文仅代表作者本人观点，不代表Gnews平台
 
-参考文章：
 
-[1][https://finance.sina.com.cn/tech/2021-05-09/doc-ikmxzfmm1440118.shtml](https://finance.sina.com.cn/tech/2021-05-09/doc-ikmxzfmm1440118.shtml)
+#### 评论：
 
-[2][http://www.gov.cn/xinwen/gwylflkjz143/index.htm](http://www.gov.cn/xinwen/gwylflkjz143/index.htm)
+此书由闫丽梦博士经路德社自[2/9/2021路德时评（路博艾冠谈嘉宾闫博士）](https://youtu.be/UmoUdW5r5fU)推出。历经三个月终于在五眼联盟之一的澳洲媒体发酵，作为中共制毒放毒的间接证据。但是毕竟往前拱了一卒， 基于香港违约，新疆种族灭绝和放毒世界，三大事实已经可以肯定，中共必亡，只是早晚和哪种死法的问题。
 
-校对/发稿：文婷
+原文链接：[1](https://www.news.com.au/world/coronavirus/leaked-chinese-document-reveals-a-sinister-plan-to-unleash-coronaviruses/news-story/53674e8108ad5a655e07e990daa85465) [2](https://www.dailywire.com/news/chinese-military-scientists-discussed-weaponizing-sars-coronaviruses-in-document-obtained-by-u-s-government-australian-media)
+
+
 
 0
