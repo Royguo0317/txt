@@ -1,32 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Sellin博士科学溯源证实中共长期制造生物病毒
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1198545/)
+## 题目：【世事解评】中共大肆虚假宣传“美国进入紧急状态”意欲何为
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1198428/)
 
-台湾宝岛农场 Amitofu
+作者：纽约香草山佛教部    369文驹
 
-从Sellin博士近日连续发推，证实美国FDA和国家传染病研究院NIH的安东尼·福奇和他NIH同事柯林斯与香港大学P3实验室顶级冠状病毒专家马里克裴伟士 Malik Peiris有一个重要的合同，**马里克团队能增强E蛋白中SARS病毒极大毒性**，可直接伤害脑部和神经系统并具高传染能力特性，也就是生化病毒的功能增强，中共透过马里克新冠状病毒的专业与解放军合作，以舟山蝙蝠病毒ZC45/ZXC21为骨架，通过人为的基因改造技术在刺突蛋白中引入弗林酶切位点，功能增强S蛋白、E蛋白毒性，**100%被复制于SARS-COV-2病毒中**，使病毒更具强变异性和传染性。
-
-
-
-> These Chinese Communist Party-Military scientists are linked regarding the brain and nervous system effects of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) e.g. the envelope protein, Axl, fusion loops.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/d4EcFNSwei](https://t.co/d4EcFNSwei)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 9, 2021](https://twitter.com/LawrenceSellin/status/1391369730599104523?ref_src=twsrc%5Etfw)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04221555/s2-2.jpg)
 
 
 
-Sellin博士团队从NIH科学溯源，证实石正丽造假的RaTG13与云南矿洞说，到技术指证舟山蝙蝠病毒ZC45/ZXC21骨架，港大P3实验室马里克、潘烈文、管轶的E蛋白的功能增强试验，更深入指向**中共病毒超限武器脑部和神经部位攻击的病毒专家秦成峰**，秦成峰团队参与**神经部位攻击**、军事医学研究院病原微生物安全研究的**「寨卡病毒prM蛋白中的关键位点，单个氨基酸突变即可显著增强“寨卡病毒”的神经毒力」**，加上非典非自然起源和人制人新种病毒基因武器书籍，更透漏中共长期制造生化病毒的事实。在巴西总统扎伊尔·博尔索纳鲁批评中共病毒的危害后，英国太阳报和澳洲人报报导，来自美国国务院官员在2020年5月，调查新冠肺炎疫情起源的过程中取得的文件，由18名解放军科学家和中共国高级公卫官员2015年合作撰写，**「透漏SARS冠状病毒是新时代的基因武器，中共可以操纵病毒毒性成为人类疾病新病毒，然后增强成生物武器」**，随着西方媒体的不断曝光，都显示着美国军情界、科学界、生物界已经完成验证新型冠状病毒的毒性变异，透过科学溯源一路推向武汉病毒研究所WIV从事秘密生物武器研究工作。
+5月10日，中共多家媒体几乎同时大肆宣传“美国进入紧急状态”，大外宣CGTN发布，大内宣转载，几乎霸屏，好不热闹。见下图：
 
-这一年来文贵先生与新中国联邦战友唯真不破努力的传播，让西方了解中共长期制造生化病毒的事实，新冠病毒是中共发动的生化超限战，目前已经造成1.6亿人确诊、330万人死亡，祈求万佛万神早日有解药能挽救无数的生命，感谢英雄闫丽梦博士发表至今无人能辩驳的三份科学报告。本文仅代表个人立场  共产党你完了!  X3
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10012403/w1-1-1.jpg)图源：新浪
 
-祈祷万佛万神加持文贵先生与新中国联邦每位战友
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10012531/w2-3.jpg)图源：经济观察网
 
-資料來源:文贵先生、班农战斗室、路德社、闫丽梦博士、博士军团、新中国联邦
 
-[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)
 
-审核:Athena 发布:Amitofu
+根据上图内容，界面新闻所谓引用的是BBC的消息来源，还提出是拜登宣布的美国紧急状态，笔者并没有找到美国媒体报道的所谓拜登宣布紧急状态，在白宫网站也没查询到拜登宣布美国进入紧急状态。笔者找到了BBC报道了消息原文，地址为：https://www.bbc.co.uk/news/business-57050690，该报道清楚写明的是“在美国最大的燃料管道遭到勒索软件网络攻击后，美国政府周日发布了紧急立法“，其中没有涉及拜登，也没有美国进入国家紧急状态。中共在明目张胆的歪曲新闻原意，利用控制的媒体大肆炒作。
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+中共这么做的意图是什么呢？笔者认为，在中共被全球正义联盟围堵，以铁矿石为首的基础原料面临来源枯竭，成本即将大幅攀升之际，叠加全球通货膨胀，国内经济面临崩盘、人民币二季度即将极端贬值的情况下，中共此举是提前释放石油作为战略物资即将枯竭和管制，石化工业面临灭顶之灾的信号。石油化工产业是工业的基础行业，该行业出现大问题，下游产业跟着就会崩溃，如同多米诺骨牌的效应。但是中共不想承担自己作恶带来的后果，要将锅甩给西方社会，特别是美国。所以不惜编造假新闻给国内民众洗脑，转嫁矛盾焦点，绑架老百姓去仇恨美国等西方世界。
+
+中共连毁灭人类的中共病毒都可以嫁祸给美国，按照中共不要脸的无下限逻辑，还有啥不能嫁祸给美国的呢？中共炒作该事件的后续如何发展，我们拭目以待。
+
+
+
+（本文仅代表作者观点）
+
+
+
+参考阅读：
+[US passes emergency waiver over fuel pipeline cyber-attack](https://www.bbc.co.uk/news/business-57050690)
+
+发稿：有莫举名
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04221555/s2-2.jpg)
+
+
 
 0

@@ -1,30 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美军巡逻阿拉伯海拦截帆船查获大批非法中俄式武器
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1197749/)
+## 三家中国电信公司将被纽交所除名
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1197711/)
 
-【日本东京方舟农场】 撰稿：青衣    校对：文小律
+翻译：康州盘古农场 – TrueSky
 
-美国海军第五舰队周六（5月8日）发表声明称，5月6日至7日，“蒙特雷号”导弹巡洋舰在北阿拉伯海国际水域一艘无国籍独桅帆船上，查获大批非法的中共国式和俄罗斯式武器。
+校对：康州盘古农场 – 格格巫
 
-据《法新社》报道，总部设在巴林的美国海军第五舰队（Fifth Fleet）称，其导弹巡洋舰“蒙特雷号”（USS Monterey）及其搭载的美国海岸警卫队高级拦截队（AIT）依据国际法，在国际水域对一艘无国籍帆船进行例行登船检查，期间发现了这批非法武器。
+编辑：康州盘古农场 – 傻小子
 
-![]()![](https://gnews.org/wp-content/uploads/2021/05/7703DF5C-647B-4D45-8770-FF54FE7965B0-5.jpeg)
+发布：康州盘古农场 – 彩虹 Rainbow
 
-第五舰队在声明中称，“这批武器包括数十枚先进的俄制反坦克导弹；数千支中（共）国制56式突击步枪，以及数百支PKM机枪、狙击步枪和火箭推进榴弹发射器；其它武器部件还包括先进的光学瞄准器。”
+**据《路透社》, 2021年5月8日报道：**
+![]()![](https://gnews.org/wp-content/uploads/2021/05/chinaa44y-2-2.png)
+FIEL照片。 2021年1月8日，在中国上海爆发冠状病毒疾病（COVID-19）期间，在一条街道上可以看到中国联通的标志。路透社/Aly Song
 
-声明中提到，美国军方在搬除所有非法武器后，评估了这艘单桅帆船的适航性，而船员在接受盘问后已被释放。武器现由美方保管，目前美国军方正在继续调查武器来源及走私去向。
+三家中共国电信公司周五表示，根据美国去年的投资限制，它们将被纽约证券交易所除名。
 
-美军第五舰队表示，美国海军在该地区进行例行巡逻，以确保合法贸易的自由流动，阻断往往为恐怖主义和非法活动提供资金的非法货物运输，并维护基于规则的国际秩序。
+周五早些时候，中国移动(0941.HK)、中国联通(0762.HK)和中国电信(0728.HK)分别发布公告称，在这些公司上诉未果的情况下，他们预计纽约证券交易所将通知监管机构将它们摘牌。
 
-注：本文仅代表作者观点
+纽约证券交易所的一位发言人拒绝对此发表评论。
 
-参考链接：
+除名源于美国前总统唐纳德-川普针对中国科技公司实施的投资限制。在两个世界最大经济体之间持续的紧张关系中，尽管有企业反对，但美国总统乔-拜登还是保留了这些规则。
 
-1. [https://twitter.com/aboluowang/status/1391498230622351363](https://twitter.com/aboluowang/status/1391498230622351363)
-2. [https://twitter.com/dajiyuan/status/1391470533875798024](https://twitter.com/dajiyuan/status/1391470533875798024)
-3. [https://twitter.com/TimednewsC/status/1391532402820882434](https://twitter.com/TimednewsC/status/1391532402820882434)
+这些公司表示，他们的退市申请将在交易所向美国证券交易委员会提交25号表格后10天内生效。
 
+原文链接：[https://www.reuters.com/business/media-telecom/three-chinese-telecom-companies-be-delisted-by-nyse-2021-05-07/](https://www.reuters.com/business/media-telecom/three-chinese-telecom-companies-be-delisted-by-nyse-2021-05-07/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-+2
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
++1

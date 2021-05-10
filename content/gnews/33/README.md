@@ -1,18 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 韩国恩典农场线下宣传中共病毒真相活动六
-` 恩典农场` [轉載自GNews](https://gnews.org/zh-hans/1197467/)
+## 【有声读物】美国的台湾政策不应模糊不清
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1197932/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/gnews抬头图片.png)
-作者：韩国恩典农场  追着曙光跑  校对：瑞沃路森    封面：麦田67号
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09231957/5%E6%9C%888%E6%97%A5%E9%9B%86%E4%BD%93%E7%85%A7-4.jpeg)
-摘要：BBC于5月8日的报道：“印度本周累计新冠病毒确诊人数突破2100万，5月6日、7日单日新确诊人数高踞于40万之上，单日死亡人数迫近4000，民众要为活着的亲友奔波找医院床位，甚至只是一口氧气，还要为逝世的亲友寻找一小块用来火葬的空地。”印度的疫情依然严重，全球的感染人数也是不断上升，疫情依然令人担忧。韩国恩典农场线下宣传新中国联邦和中共病毒的真相活动每周六如期举行。
+配音：香草山录音组 熊井（文兰）
 
-到今天北京时间5月10日11点52分为止，为止全世界感染人数超过1.57亿（157,946,278)人次，死亡人数超过320万（3,288,638)例。韩国时间5月8日下午1点至3点恩典农场线下战友们在首尔光华门广场宣传新中国联邦和中共病毒的真相活动。
-![]()![](https://gnews.org/wp-content/uploads/2021/05/5月8日小红豆-2.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09232055/5%E6%9C%888%E6%97%A5%E5%A5%B3%E6%88%98%E5%8F%8B-5.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/05/5月8日男战友3-3.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09232559/5%E6%9C%888%E6%97%A5%E7%94%B7%E6%88%98%E5%8F%8B4.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09232128/5%E6%9C%888%E6%97%A5%E5%A5%B3%E6%88%98%E5%8F%8B1-1.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/05/5月8日两男战友-9.jpeg)
-小红豆战友称：“在光华们广场每周线下都有宣传中共病毒真相活动，我们没有在群里说集会战友们已经达成了默契。越来越多的人认识到中共病毒的真相，也越来越多的人宣传我们新中国联邦，逐渐地也认识到了新中国联邦。我们要加大力度翻译视频，上传并转发到韩国人圈子。我们会坚持下去，线上线下一起共同努力宣传，我们一定取得成功!”韩国恩典农场一直在行动！
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-如有韩国境内的战友想参加宣传活动，韩国恩典农场义工报名电话：010-7591-5041，欢迎韩国境内的战友们踊跃参加。
+
+
+
+
+
+
+5月4日，美国海军陆战队高级研究员马修·克劳奇（Matthew R. Crouch）在《国防新闻》（Defense News）上撰文，“美国的台湾政策不应模糊不清，否则有可能破坏美国在该地区的可信度”。
+
+文章指出，美国目前在台湾问题上态度模糊不清，在南中国海放弃立场，在香港失去自由时又持有失败的政策，使越来越多的人认為，美国在印太地区失去了影响力和对中共国的威慑力，这助长了中共国妄图吞并台湾的野心。
+
+
+
+**文字版原文：[【热点播报】美国的台湾政策不应模糊不清](https://gnews.org/zh-hans/1175473/)**
+
+作者：纽约香草山美食部 蓝天大海
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

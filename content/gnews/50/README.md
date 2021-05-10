@@ -1,27 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国际奥委会主席巴赫将安排6月访问日本
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1197768/)
+## 从不会认错的中共政权
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1197804/)
 
-整理撰稿：蓝精灵
+字幕听译：乐禧禧 | 字幕PR：yyshere | 字幕：雨中漫步 | 评论： Filon | 评论翻译: Phoenix | 翻译PR: CharlesS | Page：青山
 
-富士新闻网周一援引多个身份不明的消息来源报道称，国际奥委会主席托马斯·巴赫（Thomas Bach）将对日本进行访问。
+![]()![](https://spark.adobe.com/page/6jlCXxaQfWK4q/images/bfc47ea9-eb40-42bd-9fbd-b2d26b719ffa.jpg?asset_id=04770d43-57ca-4258-9560-2d78fc957c13&amp;img_etag=%22e8001ce6eb1fa2b257b1f45f88b32049%22&amp;size=2560)
 
-日本媒体报道说，巴赫原定于将于5月17日参加在广岛市举行的火炬传递活动，但2020年东京奥运会的组织者表示，此次访问尚未得到证实。
+[视频链接](https://mega.nz/folder/iw1W0QaR#7lzhEg9T4zqxKS8uV7GxaA)
 
-富士说，他访问的前提是解除为应对冠状病毒扩散而采取的任何紧急状态。
+借助着全国开展的所谓非法摩托联合整治行动，上个月25日广州番禺石楼镇政府组织公安等部门的执法人员到广州番禺的石楼群星村莲花山码头开展专项整治行动。执法人员执法过程中手段粗暴蛮横 ，在没有任何通知村民的情行下，直接将村民停放在码头和家门口的摩托车进行没收。这导致当地村民情绪激动纷纷上前抢夺回被收缴的摩托车并开走。
 
-日本最新的紧急状态已于上周五延长至5月31日，促使东京方面在新闻发布会上说巴赫的访问“可能很困难”。
+所有人都会疑惑为何中共治下会经常以各种名义开展专项整治行动。为何不可以依照法律来治理社会，中共法律如此缺漏不堪吗？既然社会的动乱、交通的混乱来自摩托车和电动车，那又是谁从一开始就允许摩托车被大量销售出市场的呢？这一切现象的背后不过是各级政府打着专项行政命令的由头收割着百姓的财富。中共这种高高在上永远将民众当作罪犯看待的态度，让百姓的怒气深埋心底已久。把戏久玩，百姓也早已明白了其中的道道。随着当今政权的疯狂、放肆与肆无忌惮，从不会认错的中共，必将一头栽进其永远“政治正确”的深渊里再无法爬上来。
 
-参考链接：
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-[https://www.reuters.com/world/asia-pacific/ioc-chief-bach-visit-japan-being-arranged-june-fnn-2021-05-10/?taid=6098a8ba12982200014dc670&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/asia-pacific/ioc-chief-bach-visit-japan-being-arranged-june-fnn-2021-05-10/?taid=6098a8ba12982200014dc670&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-图片来源：[https://www.reuters.com](https://www.reuters.com)
+编辑：【英国伦敦喜庄园编辑部】
 
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
+[!\[\]()!\[\](https://spark.adobe.com/page/6jlCXxaQfWK4q/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/6jlCXxaQfWK4q/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
 0

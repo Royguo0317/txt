@@ -1,58 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 题目：【世事解评】中共大肆虚假宣传“美国进入紧急状态”意欲何为
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1198428/)
+## 【健身健心】练出强壮的手臂，锻炼肱二头肌
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1198833/)
 
-作者：纽约香草山佛教部    369文驹
+纽约香草山健身部Jack Li文阳
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04221555/s2-2.jpg)
-
-
-
-5月10日，中共多家媒体几乎同时大肆宣传“美国进入紧急状态”，大外宣CGTN发布，大内宣转载，几乎霸屏，好不热闹。见下图：
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10012403/w1-1-1.jpg)图源：新浪
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10012531/w2-3.jpg)图源：经济观察网
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02191345/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
 
 
 
-根据上图内容，界面新闻所谓引用的是BBC的消息来源，还提出是拜登宣布的美国紧急状态，笔者并没有找到美国媒体报道的所谓拜登宣布紧急状态，在白宫网站也没查询到拜登宣布美国进入紧急状态。笔者找到了BBC报道了消息原文，地址为：https://www.bbc.co.uk/news/business-57050690，该报道清楚写明的是“在美国最大的燃料管道遭到勒索软件网络攻击后，美国政府周日发布了紧急立法“，其中没有涉及拜登，也没有美国进入国家紧急状态。中共在明目张胆的歪曲新闻原意，利用控制的媒体大肆炒作。
+很多人不满意自己手臂瘦弱无力、肌肉松弛？想要迅速练出精瘦结实的手臂肌肉？虽然肌肉不可能短时间增长，但只要肯付出努力并采取正确的运动策略，短时间内就能看到效果，下面介绍几种锻炼的方法。
 
-中共这么做的意图是什么呢？笔者认为，在中共被全球正义联盟围堵，以铁矿石为首的基础原料面临来源枯竭，成本即将大幅攀升之际，叠加全球通货膨胀，国内经济面临崩盘、人民币二季度即将极端贬值的情况下，中共此举是提前释放石油作为战略物资即将枯竭和管制，石化工业面临灭顶之灾的信号。石油化工产业是工业的基础行业，该行业出现大问题，下游产业跟着就会崩溃，如同多米诺骨牌的效应。但是中共不想承担自己作恶带来的后果，要将锅甩给西方社会，特别是美国。所以不惜编造假新闻给国内民众洗脑，转嫁矛盾焦点，绑架老百姓去仇恨美国等西方世界。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10020702/%E5%9B%BE%E7%89%876-9.png)
 
-中共连毁灭人类的中共病毒都可以嫁祸给美国，按照中共不要脸的无下限逻辑，还有啥不能嫁祸给美国的呢？中共炒作该事件的后续如何发展，我们拭目以待。
+1.做哑铃集中弯举练习
+
+坐在椅子上，双腿稍微张开，手持一个哑铃。身体前倾，便于持哑铃手的肘部能够触碰到同一边的膝盖上。向下摆动手臂，然后再朝肩膀方向举起，每组做10次，两只手交换，重复做这个动作。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10020456/%E5%9B%BE%E7%89%877-6.png)
+
+2.做划船式哑铃上提练习
+
+垂直站立，每只手各提一个哑铃，将哑铃提到大腿前方，与大腿平行。肘部向外弯曲，上提哑铃至胸部位置，并保持平行（做划船动作）。然后再慢慢地将哑铃放低到大腿前方，重复10次。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/05/图片8-5.png)
+
+3.做屈臂弹力带练习
+
+身体直立，双脚打开与肩同宽，脚下踩着弹力带，双手分别握住弹力带到两端，并放在身体侧，然后慢慢地抬起手臂，直到肩膀高度，然后慢慢放下手臂，放松弹力带的拉力，回到身体两侧。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10020912/%E5%9B%BE%E7%89%879-3.png)
+
+4.做锤式哑铃臂弯曲练习
+
+身体垂直站立，双手像抓住锤子一样抓住哑铃，双手各持一个哑铃。弯曲手臂，向肩膀方向推高哑铃，哑铃两端直上直下，慢慢的弯曲手臂，将哑铃方向（象拿铁锤钉钉子一样），然后再将哑铃朝肩膀方向举起来，重复做，每组10个。
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
 
 
-
-（本文仅代表作者观点）
-
-
-
-参考阅读：
-[US passes emergency waiver over fuel pipeline cyber-attack](https://www.bbc.co.uk/news/business-57050690)
-
-发稿：有莫举名
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
 [**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04221555/s2-2.jpg)
-
-
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

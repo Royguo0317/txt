@@ -1,55 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】灭共状—— 写给直起腰板的你我！
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1198511/)
+## 华为和中兴被排除在印度的5G试验之外
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1198333/)
 
-作者：纽约香草山健身部 澄道
+翻译：康州盘古农场–格格巫
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02191345/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
+校对：康州盘古农场–Mike Li
 
+编辑：康州盘古农场–傻小子
 
+发布：康州盘古农场 – 彩虹 Rainbow
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09112442/image0-51.jpg)
+**印度电信部已将中共国设备制造商华为和中兴从5G试验中剔除，成为将这些公司拒之门外的最新国家。**
+![]()![](https://gnews.org/wp-content/uploads/2021/05/india-9-2-5.png)
+该部批准了包括爱立信、诺基亚和三星网络部门在内的十几家公司进行为期6个月的5G技术试验。
 
-邪共百年
+尽管未命名华为和中兴，但并未禁止它们向运营商提供5G设备。
 
-几辈遭殃
+按电话用户人数计算，印度是世界第二大市场。
 
-屠杀黎民
+主要运营商Reliance Industries的Jio Infocomm，Bharti Airtel和Vodafone Idea将与国有MTNL一起进行试验。
 
-卖我土疆
+印度政府新闻信息局的一份声明说，每家公司“除了城市环境外，还必须在农村和城郊环境下进行试验，以使5G技术的好处在全国范围内扩散，而不仅限于城市地区。 ”
 
+德里尚未对中共国公司实施任何形式的官方禁令，目前中共国公司向印度的移动服务提供商供应大量设备。
 
+但是，政府已发出信号，对中共国的网络采取更严格、更面向安全的方法，人们普遍认为这将对中共国公司不利。
 
-断祖断承
+政府在12月表示，它将确定其运营商可以在其网络中使用的“可信任的”电信设备来源，作为该行业新安全指令的一部分。
 
-天下癲狂
+这些新的采购规则预计将于6月份生效，这将限制印度网络提供商从“受信任的来源”购买某些类型的设备。
 
-不灭邪共
+它还可能包括禁止供应商的列表。
 
-我等无望
+**全球安全问题**
 
+华为已被排除在包括英国在内的许多其他国家的5G发展之外。
 
+该公司目前在美国商务部的“实体黑名单”上，从而限制了其使用美国技术和软件生产的商品的访问权限。
 
-朋友您还想着继续生吗？
+美国表示，华为可能会通过其5G设备将其用于中共从事间谍活动，而且美国联邦通信委员会（FCC）甚至下令某些美国电信公司从其网络中删除华为设备。
 
-战友们您今天灭共了吗？
+华为长期以来一直否认对国家安全构成任何威胁的说法。
 
-校对/发稿：飞虹
+许多国家/地区的移动运营商已警告说，将华为排除在网络外可能会增加成本并降低部署速度。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01143151/M5.jpg)
+5G-第五代无线技术-比其前代产品快得多，并且可以同时连接更多设备。它在需要更多容量的高频下运行。
 
-**更多资讯，更多关注**
+原文链接：[https://www.bbc.com/news/business-56990236](https://www.bbc.com/news/business-56990236)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

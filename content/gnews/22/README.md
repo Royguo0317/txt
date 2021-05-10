@@ -1,37 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 投桃报李不应该吗？
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1198626/)
+## Sellin博士科学溯源证实中共长期制造生物病毒
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1198545/)
 
-作者：老蚂蚁666
+台湾宝岛农场 Amitofu
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10014837/106-1.jpg)
+从Sellin博士近日连续发推，证实美国FDA和国家传染病研究院NIH的安东尼·福奇和他NIH同事柯林斯与香港大学P3实验室顶级冠状病毒专家马里克裴伟士 Malik Peiris有一个重要的合同，**马里克团队能增强E蛋白中SARS病毒极大毒性**，可直接伤害脑部和神经系统并具高传染能力特性，也就是生化病毒的功能增强，中共透过马里克新冠状病毒的专业与解放军合作，以舟山蝙蝠病毒ZC45/ZXC21为骨架，通过人为的基因改造技术在刺突蛋白中引入弗林酶切位点，功能增强S蛋白、E蛋白毒性，**100%被复制于SARS-COV-2病毒中**，使病毒更具强变异性和传染性。
 
-（图片来源：关于生鲜365）
 
-据5月9日搜狐网引用新华社消息称，中共国红十字会与红新月会国际联合向印度提供100万美元现金，和100台制氧机、20台无创呼吸机和20台有创呼吸机的物资援助。
 
-在网上一搜铺天盖地都是这则消息。俗语说好事不出门，坏事传千里。这条社会传统习俗规律到中共这就不灵了。因为中共最喜欢伟光正，只要做点芝麻大好事，就到处大肆传播，生怕全世界不知道它的好似的。归根到底，还是其心虚没底气。病毒来源的追溯在全世界如火如荼、越演越烈。如电影桥段，混迹少年当发现平时对己如亲生子的老大竟是杀父仇人，他心里会怎么想？是不是你对我的好，并非出自本心；而是你内心的愧疚和对曾经犯下错的弥补；你的关爱是理所当然，是在赎罪请求原谅宽恕的表现。看看此刻印度犹如烈火的地狱，这个情它会领吗？
+> These Chinese Communist Party-Military scientists are linked regarding the brain and nervous system effects of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) e.g. the envelope protein, Axl, fusion loops.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/d4EcFNSwei](https://t.co/d4EcFNSwei)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 9, 2021](https://twitter.com/LawrenceSellin/status/1391369730599104523?ref_src=twsrc%5Etfw)
 
-再看去年2月26号印度向武汉捐赠了15吨物质，直到3月9号网易的相关报道才姗姗来迟。对比上述新闻中共刚做好事，立马当天就出报道，是不是很讽刺。是因为中共国新闻媒体有严格的舆论审查管控机制使然；还是对他国的善行打心底不“感冒”，造成报道延迟我们只能猜。但有一点可以肯定的，中共不想让国人认识到他国的好，只有这样才能对党的好感恩戴德。
 
-当代表印度政府和人民满满的爱心救济防疫物资送达武汉时，在场的中方人员没有任何感谢表示，只选择了沉默。仅仅因为在捐赠仪式上，印度人打出了祝福标语“A gift from the people and  Government of India to the people and Government of China in  this  hour  of  need”下方的中文翻译错了。就让对方的100分友爱，变成了“不及格”。弱弱问一句，上面的英语可是世界通用语言，在接收单位里难道就没有一个有国际视野的文化人吗？还是政治正确的党让他闭嘴了。“in  this  hour  of  need”翻译过来就是危机、紧急时刻。
 
-可能很多人也不知道去年武汉疫情，日本政府给中共捐了很多防疫物质吧；也不知道日本民众在大雪纷飞天，雪地里写出“武汉加油、中日友好”等暖心话吧；只知道当后来日本疫情也变严重时，北方某粥店打出“因日本新冠吃饭打折优惠”等横幅雷人标语。投桃报李是中华民族的传统美德。中国和世界上其他国家之间的民间有着最淳朴和善良友爱交流，这份发自内心的真情被谁给屏蔽呢？中共国的“长城防火墙”仅仅是党建立的千千万万的虚拟墙之一，它无情的阻碍了中国人民和世界人民直接的轻松交流。
+Sellin博士团队从NIH科学溯源，证实石正丽造假的RaTG13与云南矿洞说，到技术指证舟山蝙蝠病毒ZC45/ZXC21骨架，港大P3实验室马里克、潘烈文、管轶的E蛋白的功能增强试验，更深入指向**中共病毒超限武器脑部和神经部位攻击的病毒专家秦成峰**，秦成峰团队参与**神经部位攻击**、军事医学研究院病原微生物安全研究的**「寨卡病毒prM蛋白中的关键位点，单个氨基酸突变即可显著增强“寨卡病毒”的神经毒力」**，加上非典非自然起源和人制人新种病毒基因武器书籍，更透漏中共长期制造生化病毒的事实。在巴西总统扎伊尔·博尔索纳鲁批评中共病毒的危害后，英国太阳报和澳洲人报报导，来自美国国务院官员在2020年5月，调查新冠肺炎疫情起源的过程中取得的文件，由18名解放军科学家和中共国高级公卫官员2015年合作撰写，**「透漏SARS冠状病毒是新时代的基因武器，中共可以操纵病毒毒性成为人类疾病新病毒，然后增强成生物武器」**，随着西方媒体的不断曝光，都显示着美国军情界、科学界、生物界已经完成验证新型冠状病毒的毒性变异，透过科学溯源一路推向武汉病毒研究所WIV从事秘密生物武器研究工作。
 
-当然传统中国文化和现代传统文明之间也有个中共隔离墙。中共不倒，党不点头投桃报李就不应该，也做不到。
+这一年来文贵先生与新中国联邦战友唯真不破努力的传播，让西方了解中共长期制造生化病毒的事实，新冠病毒是中共发动的生化超限战，目前已经造成1.6亿人确诊、330万人死亡，祈求万佛万神早日有解药能挽救无数的生命，感谢英雄闫丽梦博士发表至今无人能辩驳的三份科学报告。本文仅代表个人立场  共产党你完了!  X3
 
-（本文只代表作者观点，与Gnews平台无关。）
+祈祷万佛万神加持文贵先生与新中国联邦每位战友
 
-新闻来源：
+資料來源:文贵先生、班农战斗室、路德社、闫丽梦博士、博士军团、新中国联邦
 
-[1] [中国红十字会向印度提供人道主义支持](https://www.sohu.com/a/465494215_267106)
+[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)
 
-[2] [令人困惑！印度运输机送来15吨物资，中方看到中文标语敢无人吭声](https://www.163.com/dy/article/F79485IH05159TSH.html)
+审核:Athena 发布:Amitofu
 
-[3][A gift from the people and  Government of India to the people and Government of China in  this  hour  of  need实际谷歌“机翻”结果](https://translate.google.cn/?sl=auto&amp;tl=zh-CN&amp;text=A%20gift%20from%20the%20people%20and%20%20Government%20of%20India%20to%20the%20people%20and%20Government%20of%20China%20in%20%20this%20%20hour%20%20of%20%20need&amp;op=translate)
-
-校对发布：Penny
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
 0
