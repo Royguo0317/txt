@@ -1,34 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Sellin博士新推揭露军科院病毒室主任秦成峰
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1200718/)
+## 拜登呼吁开放疫苗专利 供疫情严重国家使用
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1201395/)
 
-#### 作者:【默凡】
+台湾宝岛农场 zhong
+![]()![](https://gnews.org/wp-content/uploads/2021/05/擷取510-3-14-3.jpg)
+经[钜亨新闻](https://news.cnyes.com/news/id/4641042)网报导，美国政府支持豁免新冠肺炎疫苗专利，以扩大疫苗全球发放。拜登政府周三表示，支持研发出新冠肺炎疫苗的药厂应有限度放弃智慧财产权，以将疫苗分配扩大到目前仍受疫情冲击的中低收入国家。
 
-Sellin博士5月9日发推：中共病毒侦探@2020Gladiator（推特号）提供了明确的证据，证实秦成峰与中共军方高层有联系，其中就包括中共生物战项目负责人陈薇少将。
+**病毒本质为「生物武器」非自然界病毒疫苗无用**
 
+[中共病毒疫苗真相为何](https://gnews.org/zh-hans/1143961/)，请点击观看简短影片。
 
+疫情肆虐日益严重，直至目前各国政府仍不愿接纳本次病毒为中共人为制造，恶意促成扩散的事实。世界卫生组织及许多国际研究机构，配合中共宣传病毒为自然界演变而成。
 
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@2020Gladiator](https://twitter.com/2020Gladiator?ref_src=twsrc%5Etfw) provides clear evidence of Chengfeng Qin's high level military links including to Major General Wei Chen, believed to be the head of the CCP's biowarfare program.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/2sA1rSPuHw](https://t.co/2sA1rSPuHw)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 9, 2021](https://twitter.com/LawrenceSellin/status/1391415117183660033?ref_src=twsrc%5Etfw)
+但经阎丽梦博士持续的研究结果指出，中共病毒具有快速变异特性，中共病毒需要上万年的时间才可能自然演变而生，若不了解到病毒本身为生物武器，中共有意使病毒在全球范围内扩散，一昧的以「疫苗」最为主要防疫手段，将会导致自身受到更为严重的伤害。 （阎丽梦博士有多篇针对中共病毒的学术研究被各国政府看重[点击阅读更多](https://twitter.com/DrLiMengYAN1/status/1314191600571031557)）
 
+疫苗若是自然界而生，依照冠状病毒的特性，于夏天疫情将会和缓，甚至直接消失。但举印度为例，印度近日的染疫、死亡人数节节攀升，在炙热的天气下，自然产生的「新冠状病毒」是如何继续存在的呢？
 
+又在严寒的高山上，圣母峰基地，04月底发生多例群聚感染案，于高山上染疫救援困难。 （[详细新闻点击阅读](https://buzzorange.com/2021/05/07/everest-covid-19/)）
 
-秦成峰，博士学位，中国人民解放军军事医学研究院微生物流行病研究所病毒室主任。2020年10月15日，荣获第十六届中国青年科技奖。2021年4月，荣获第十三届“谈家桢生命科学创新奖”。
-![]()![](https://gnews.org/wp-content/uploads/2021/05/76022442-5715-48C7-A1FD-AB7DC1C4DE9F.png)
-目前，秦成峰博士承担着国家重点研发计划、国家自然科学基金国际合作项目等重点课题，围绕着登革热、寨卡、埃博拉等严重威胁国家生物安全的重要新突发传染病开展深入研究，先后获得牛顿高级学者、基金委优秀青年基金、埃博拉出血热疫情防控先进个人、总后勤部科技新星等荣誉。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10062802/06E301C8-8DAA-4653-A1BD-DBBC6A3EABC2-3.jpeg)
-本文仅代表作者本人观点，不代表Gnews平台
+自然产生的「新冠状病毒」不仅耐热，还耐寒。
 
-参考文章：
+结论：各国政府还有台湾防疫机关，请醒醒！
 
-[http://\[1\]https://twitter.com/LawrenceSellin/status/1391415117183660033](http://[1]https://twitter.com/LawrenceSellin/status/1391415117183660033)
+**疫苗厂、利益集团恶意打压羟氯奎 **
 
-[http://\[2\]https://baike.baidu.com/item/%E7%A7%A6%E6%88%90%E5%B3%B0/23652176?fr=aladdin](http://[2]https://baike.baidu.com/item/%E7%A7%A6%E6%88%90%E5%B3%B0/23652176?fr=aladdin)
+羟氯奎为免疫力调节剂，非一昧的抑制免疫力，在免疫力过低的情形也可予以调节，使免疫力处于适当的反应状态。中共病毒会在体内快速增生，并且促使巨噬细胞过度反应，释放细胞素，而产生「细胞因子风暴」（即免疫力失控）。
 
-[http://\[3http://www.js7tv.cn/news/201712\_122932.html\]](http://[3http://www.js7tv.cn/news/201712_122932.html])
+巨噬细胞失控后，释放过多的细胞素，该细胞素会使肺纤维化、产生黏液，最后因缺氧死亡。 （这也是为何感染中共病毒需要纯氧治疗的原因）
 
-校对/发布：文婷
+又人类疫苗开发，过去从来不短于十年。疫苗是透过减毒程序，通过疫苗人体可以产生相应抗体，与以抵抗特定病毒。但疫苗研发、检验、测试等，需要数十年时间。本次中共病毒大流行，全球数家疫苗厂商在短短一年的时间，便完成开发、人体试验并且贩售。因此，疫苗实在令人难以信任。
+
+又疫苗研发除了耗时外，更耗费大量资金。相对的，羟氯奎成本极低，经阎丽梦博士自身经验，羟氯奎有效抑制病毒在体内快速增生，配合锌锭、固定周期的服药，可以有效的预防中共病毒。
+
+但世界卫生组织，以及许多国际机构频频针对羟氯奎，污名化羟氯奎无法有效预防中共病毒，目的只为捍卫疫苗厂利益。
+
+**拜登呼吁豁免疫苗专利**
+
+疫苗开发耗费大量资金，拜登政府若豁免疫苗专利，使有能力的厂商皆可制造疫苗，将会直接导致已经研发成功的疫苗厂损失。
+
+此外，病毒本质为生物武器，疫苗本就无用，还附带许多副作用。若他国政府信任疫苗，于大量施打后解封，将会导致更严重的伤亡产生。目前为止，许多国家进行疫苗接种后，确诊率不降反升。
+
+[中共病毒疫苗真相为何](https://gnews.org/zh-hans/1143961/)，请点击观看简短影片。
+
+（羟氯奎为药品，使用前应衡量身体健康及咨询专业人士后自行承担风险。本文主要目的在于推广病毒、疫苗真相）
+
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+
+文章审核：zhong
+
+文章发布：Little Liu
 
 0

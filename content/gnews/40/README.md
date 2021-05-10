@@ -1,31 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧盟27国与印度签署历史性协议 共同对抗中共
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1199591/)
+## 印首都首席部长宣布将第三次延长“封城”时间
+` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1199756/)
 
-【日本东京方舟农场】 撰稿：青衣   校对：文小律
+#### 作者:【默凡】
 
-在中共国与欧盟签署的《中欧投资协定》被“搁置”的消息传出后，欧盟27个成员国领导人与印度总理莫迪（Narendra Modi）举行视频会议，双方签署的一份重启自由贸易协定磋商的历史性协议，引发舆论关注。
+5月9日，印度首都新德里首席部长凯杰里瓦尔正式宣布，将目前的“封城”措施再延长一周至17日。这也是新德里第三次延长“封城”措施。
+![]()![](https://gnews.org/wp-content/uploads/2021/05/198F70A6-A3C0-484E-AC27-C9B7F5BCF2D2-1.jpeg)
+据印度卫生部9日公布的数据显示，印度较前一日新增确诊病例403738例，累计确诊22296414例；新增死亡4092例，累计死亡242362例。截至9日，印度单日新增确诊病例连续18天超过30万例，连续4天超过40万例，死亡病例连续2天超过4000例。由于疫情不断恶化, 印度多地收紧疫情防控措施。新德里自4月19日开始实施全城封锁，此后分别在4月25日和5月1日宣布延长封锁。
 
-德国电视一台5月9日以“共同对抗中国（中共国）”为题报道称，欧盟27个成员国领导人5月8日与印度总理莫迪举行视频会议，双方同意恢复自2013年起搁置的自由贸易协定磋商。据悉，莫迪本计划亲自赴葡萄牙出席此次峰会，但由于印度的中共病毒疫情持续恶化，双方决定将峰会转至线上举行。
+新德里中共病毒检测阳性率已从4月下旬的约35%降至目前的约23%，虽然新德里中共病毒新增病例有所下降，但仍不可掉以轻心。专家认为，23%的数字仍然很高，必须要切断病毒传播链。所以延长“封城”措施就是为了确保感染率继续下降。
 
-欧盟与印度在“对抗中共国”上存在共同利益，对于中共国的“影响力扩张”，布鲁塞尔和新德里不能“袖手旁观”。为此，欧盟与印度同意重启磋商，以达成一项全面互利的贸易协定。欧盟委员会主席冯德莱恩（Ursula von der Leyen）会后表示，此次欧盟-印度峰会是双方关系的“里程碑”。欧盟与印度有着密切的关系，但仍有很多潜力有待开发，其中最大的潜力在贸易和投资领域。
+本文仅代表作者本人观点，不代表Gnews平台
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10041833/8350D76F-B346-4FC3-A344-DCE6E851700A-2.jpeg)
+参考文章：
 
-美国《彭博社》称，欧盟与印度此时高调宣布重启自由贸易协定谈判，正值欧盟与中（共）国关系遇冷之际，欧盟与中（共）国之间的《中欧投资协定》目前存在被“搁置”的可能。在此背景下，尽管欧盟与印度在诸多经贸问题上仍存在分歧，但双方都乐意达成这项协定。
+[1][https://www.thepaper.cn/newsDetail\_forward\_12599380](https://www.thepaper.cn/newsDetail_forward_12599380)
 
-英国《路透社》则称，当中共国从与欧盟国家的“良性贸易伙伴”关系，演变成“不断强大的竞争对手”，欧盟开始将合作的目光转向印度。
+[2][https://www.google.com.hk/search?q=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&newwindow=1&safe=strict&hl=zh-CN&source=hp&ei=JtyYYL6fNtyW4-EPhOSfkAk&iflsig=AINFCbYAAAAAYJjqNmYCmpxFSZ690lYT90Me-lJO5CXF&oq=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&gs\_lcp=Cgdnd3Mtd2l6EAMyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAw6AggAUPEPWPkmYNIoaAJwAHgBgAG-A4gBiCuSAQYzLTE1LjGYAQCgAQGqAQdnd3Mtd2l6sAEA&sclient=gws-wiz&ved=0ahUKEwi-yoGqx77wAhVcyzgGHQTyB5IQ4dUDCAc&uact=5](https://www.google.com.hk/search?q=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&amp;newwindow=1&amp;safe=strict&amp;hl=zh-CN&amp;source=hp&amp;ei=JtyYYL6fNtyW4-EPhOSfkAk&amp;iflsig=AINFCbYAAAAAYJjqNmYCmpxFSZ690lYT90Me-lJO5CXF&amp;oq=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&amp;gs_lcp=Cgdnd3Mtd2l6EAMyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAw6AggAUPEPWPkmYNIoaAJwAHgBgAG-A4gBiCuSAQYzLTE1LjGYAQCgAQGqAQdnd3Mtd2l6sAEA&amp;sclient=gws-wiz&amp;ved=0ahUKEwi-yoGqx77wAhVcyzgGHQTyB5IQ4dUDCAc&amp;uact=5)
 
-值得一提的是，根据印度外交部发布的新闻稿，双方还签署了一项全面互联互通伙伴关系计划，增强双方在数字、能源、运输等领域的连通性。新闻稿特别强调，该伙伴关系将以社会、经济、财政等方面的可持续发展为原则，以国际法和相关协定为基础，强化协同效应，支持印太等地区国家的互联互通计划。
+校对/发稿：文婷
 
-印度《经济时报》评论称，这项互联互通计划，未来将向印度、非洲、中亚国家等提供中共国“一带一路”倡议的“替代方案”，相当于“将了中（共）国一军”。德国《法兰克福汇报》也称上述计划意在应对中（共）国的“一带一路”倡议。
 
-注：本文仅代表作者观点
-
-参考链接：
-
-[https://ucpnz.co.nz/2021/05/10/%E6%AC%A7%E7%9B%9F27%E5%9B%BD%E4%B8%8E%E5%8D%B0%E5%BA%A6%E7%AD%BE%E5%8E%86%E5%8F%B2%E6%80%A7%E5%8D%8F%E8%AE%AE%E3%80%80%E6%98%AF%E5%90%A6%E6%9B%BF%E4%BB%A3%E4%B8%AD%E5%9B%BD%E5%BC%95%E7%83%AD%E8%AE%AE/](https://ucpnz.co.nz/2021/05/10/%E6%AC%A7%E7%9B%9F27%E5%9B%BD%E4%B8%8E%E5%8D%B0%E5%BA%A6%E7%AD%BE%E5%8E%86%E5%8F%B2%E6%80%A7%E5%8D%8F%E8%AE%AE%E3%80%80%E6%98%AF%E5%90%A6%E6%9B%BF%E4%BB%A3%E4%B8%AD%E5%9B%BD%E5%BC%95%E7%83%AD%E8%AE%AE/)
 
 0
