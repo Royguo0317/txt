@@ -1,19 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共宣称美国在全球超过200个军事实验室30个曝光
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1201360/)
+## 5/10/2021 财经快讯：网络攻击迫使美国一家主要管道运营商停运;汽车行业敦促美国会为其计算机芯片需求提供资金
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1201732/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
-![]()![](https://gnews.org/wp-content/uploads/2021/05/封面-12.png)
-据[**新浪军事**](https://weibo.com/milnews?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2021年5月10日19：30](https://weibo.com/1499104401/KeQCu8ntm?ref=home&amp;rid=9_0_8_6667928936098282197_0_0_0) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d) 已编辑
+![]()![](https://gnews.org/wp-content/uploads/2021/05/Picture1-28.jpg)
+[图片来源](https://www.Reuters.com/)
 
-【全球紧急大搜寻！[#美军200多家生物实验室藏在哪儿#](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%86%9B200%E5%A4%9A%E5%AE%B6%E7%94%9F%E7%89%A9%E5%AE%9E%E9%AA%8C%E5%AE%A4%E8%97%8F%E5%9C%A8%E5%93%AA%E5%84%BF%23&amp;from=default)？！】[#华春莹再问美方为何满世界建生物实验室#](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E6%98%A5%E8%8E%B9%E5%86%8D%E9%97%AE%E7%BE%8E%E6%96%B9%E4%B8%BA%E4%BD%95%E6%BB%A1%E4%B8%96%E7%95%8C%E5%BB%BA%E7%94%9F%E7%89%A9%E5%AE%9E%E9%AA%8C%E5%AE%A4%23&amp;from=default) 美国在全球部署了超过200个军事生物实验室，已经有30多个被曝光，还有大量实验室的藏身地不为人知。它们，可能就在你的身边！[L现代快报快快看视频的微博视频](http://t.cn/A62vzxEA) [@现代快报快快看](https://weibo.com/n/%E7%8E%B0%E4%BB%A3%E5%BF%AB%E6%8A%A5%E5%BF%AB%E5%BF%AB%E7%9C%8B?from=feed&amp;loc=at)  ​​​​
+**1.汽车行业敦促美国会为其计算机芯片需求提供资金**
 
-在全球以毒灭共日拱一卒之下，在Lawrence Sellin博士的中共病毒拼图日渐清晰之际，[**新浪军事**](https://weibo.com/milnews?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)的微博账号发出这样的视频究竟意味着什么呢？作为美国该如何面对中共这样的诬蔑，对于受中共蛊惑的人来说，或者再进一步如果敌视美国的力量以此作为攻击美国的理由，那么美国该如何面对，中共该如何面对？
+华盛顿（路透社）–美国汽车行业和联合汽车工人工会周五敦促国会将上百亿美元的政府资金用于促进半导体生产，以帮助满足因芯片短缺而被迫削减产量的汽车制造商的需求。美国汽车政策委员会、汽车及设备制造商协会和美国工会周五在一份联合声明中说， “国会应该优先考虑在美国本土组装汽车所需的半导体生产。这将确保汽车制造商有公平份额的芯片来满足消费者的需求，”。
+科技公司和其他行业一再敦促政府不要挑选 “赢家和输家”，或对解决芯片短缺的资金附加条件。根据劳工统计局的数据，美国机动车和零部件行业4月份损失了27,000个工作岗位。
 
-既然这是一场中共发起的超限生物战，既然中共现在并没有被彻底打跪下，而且中共绝对不会束手就擒，那么在这样的时刻中共抛出这样的视频意味着什么呢？这个问题或许应该美国的相关部门来回答了，要不要向中共说明所谓的全球部署超过200多家生物实验室以及所谓的已经有30多个被曝光的生物实验室呢？
 
-（文章内容仅代表作者个人观点）
+
+> [Auto sector urges U.S. Congress to help fund its computer chip needs](https://www.oann.com/auto-sector-urges-u-s-congress-to-help-fund-its-computer-chip-needs/)
+
+
+
+**2.网络攻击迫使美国一家主要管道运营商停运**
+
+[Colonial Pipeline一份声明称，周五晚关闭了其从德克萨斯州到纽约，将精制汽油和喷气燃料运往东海岸的5500英里的管道。](https://www.breitbart.com/politics/2021/05/08/cyberattack-forces-a-shutdown-of-a-major-u-s-pipeline-operator/)
+
+[据《纽约时报》报道，网络攻击迫使管道关闭，此次攻击似乎是为破坏脆弱的能源基础设施而进行的一次重大尝试。《泰晤士报》报道，该管道运送东海岸45%的燃料供应，相当于每天250万桶。为了控制计算机的网络漏洞，运营商关闭了该系统。据报道，周五早些时候，管道沿线出现了中断，但目前还不清楚是否因受到攻击导致。](https://www.breitbart.com/politics/2021/05/08/cyberattack-forces-a-shutdown-of-a-major-u-s-pipeline-operator/)
+
+**3.美航2021年下注扩张南美市场，但内乱和中共病毒病例激增正威胁着该地区业务成功**
+
+[美国航空公司南美扩张战略正经历着似乎永无止境的障碍。今年早些时候，该航空公司宣布了飞往智利、哥伦比亚和巴西等城市的新航班，以吸引休闲旅客，同时等待商务旅行的恢复。尽管大陆扩张航线一开始似乎很受欢迎，但在南美做生意很快就被证实有问题。当智利在4月份关闭边境时，飞往智利圣地亚哥的航班成为首批受到影响的航班之一。在哥伦比亚，美国人面临着一个新的挑战：当地内乱。航空公司在南美的成功仍然具有挑战性，这些新的和意外的障碍是航空公司所无法控制的。](https://www.businessinsider.com/american-airlines-civil-unrest-covid-threatening-south-america-success-2021-5)
+
+**4.许多大公司正计划使用“混合工作“模式，可能“梦游般“地陷入歧视**
+
+[随着中共病毒疫情限制的放松，世界各地的公司开始重新开放他们的办公室，欢迎员工回来工作，一些公司已经决定采用与疫情大流行前不同的工作文化。一些公司会让员工灵活地在办公室、在家里或其他地方工作，也就是“混合工作“。但专家说，这种看似更具包容性的混合工作方式，会”梦游般“地陷入歧视。每周在办公室工作五天的员工在相互联系、发展和适应方面具有不公平的优势，他们可以接触到老板，有更好的社交，有更多有趣的工作要做，并更有可能比那些经常在家工作的人更早获得晋升。](https://www.businessinsider.com/big-companies-firms-hybrid-working-model-return-work-risks-discrimination-2021-5)
+
+**5.泄露文件显示，迪士尼要求员工完成 “白人特权清单”**
+
+[根据被泄露的最新员工培训材料，迪士尼公司的 “娱乐、信息和激励人们 “的使命将包括有关种族和白人特权的讲座。根据被描述为 “多样性和包容性计划 “的 “重塑明天 “材料，迪士尼公司正在教导其员工，美国是建立在 “系统性种族主义 “之上的，并鼓励新员工 “主动教育自己，了解结构性反黑人种族主义”。](https://www.washingtonexaminer.com/news/disney-america-founded-systemic-racism-white-privilege-checklist-new-employee-training)
+
+**6.民生银行股价“跌跌不休”，市场发问“还有救吗”？**
+
+[去年下半年以来，民生银行股价一直不见起色，近期随着该行2020年年报和2021年一季报的发布，股价更是开启了新一轮的“跌跌不休”，不少网友甚至公开跟民生银行股票“说拜拜”。事实上，除了在去年年报发布后被市场质疑业绩“大洗澡”之外，一季度民生银行更是成为唯一一家营收、净利润同时大降的上市股份行。上交所也对此有所关注，向民生银行“投递”了一封监管工作函。除此之外，民生银行的重要股东也宣布即将“解绑”并拟对民生银行股份进行清仓。](http://finance.sina.com.cn/jinrong/yh/2021-05-07/doc-ikmyaawc3959602.shtml)
+
+评论：引述郭文贵先生的话：“共产党的银行倒闭之前一定会找一些人替它顶雷，在这个时候你还买民生的金融产品，那不是傻了，那是活的不自在了，那没办法了”。
+
+By 【金融组 – Opal】
+
+素材搜集: Totoro
+
+校对：Apple
 
 0
