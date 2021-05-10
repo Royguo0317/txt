@@ -1,33 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## TikTok任命中共军方公司董事为首席执行官
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1198756/)
+## G系列是黑暗中发光的明灯
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1198904/)
 
-翻译：康州盘古农场 – 格格巫
+撰稿：澳喜战友
+![]()![](https://gnews.org/wp-content/uploads/2021/05/pexels-ahmed-aqtai-2233416-3.jpg)图片来源于Pexels免费照片素材库；作者：Ahmed Aqtai
+笔者认为投资最应该关心的，是风险与收益这两大主题。没错，事实上在金融界许多评估投资表现的模型和方法，都是以上述二者为基础。G系列在中共疯狂打压之下艰难行走并逐渐越做越大，其生命力之顽强令人惊叹。这种严酷的打压或许曾经对于G系列是一种不安定的因素，然而现在却似乎更加验证了G系列的价值所在。
 
-校对：康州盘古农场 – Mike Li
+要知道如若防火墙倒塌国门一旦倒塌，长期浸泡在虚假信息及壕无人性的党文化中的普通百姓便会如饥似渴地寻找真相，体会自由、真实的新鲜空气。这时以为真不破作为基本理念的G系列便将是他们最需要的精神食粮以及可靠的情报来源。如此一来，那些想通过信息不对称欺骗误导百姓的阴谋者们将无法实现他们不怀好意的企图。
 
-编辑：康州盘古农场 – 心照
+投资不单单看公司的发展前景还要关心背后的团队，文贵先生是G系列引领者。他在直播中曾提到，当国内公司被中共打压之际，员工被威胁，辞职还是被囚禁之间只能二选一，结果却竟然仅一位选择了辞职。这说明文贵先生的超强领导力和凝聚力，有他带领如果不是已经成功一半，那至少在未来也将是事半功倍。作为他的战友，笔者关注他四年，已无法用言语描述这位超乎常人品质的领袖，况且还有背后无数战友在支持。
 
-发布：康州盘古农场 – 彩虹 Rainbow
+投资G系列就是投资未来的希望，而共产党却想消灭作为人所渴望拥有的希望。国内生活在如电影《楚门的世界》描述的虚假环境里，而人的一生仅仅是为了生存而活，被囚禁在一统的思想之中。G系列承载着未来新中国联邦的希望，作为战友是无法拒绝这一次机会，这一份恩赐。
 
-**据娜塔莉·温特斯（NATALIE WINTERS）2021年5月4日发布**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09233100/lleast-2.png)
-TikTok（抖音海外版）的新任首席执行官是川普政府黑名单中一家与中共军事相关的科技公司的前高管
+（本文仅代表笔者个人观点）
 
-在获得最近的晋升之前，周寿子曾担任字节跳动（TikTok的母公司，誓言“促进社会主义核心价值观”）的首席财务官职位。在为字节跳动工作之前，他曾担任小米公司的首席财务官，小米公司是一家关联人民解放军而被列入黑名单的智能手机巨头。
+*审稿：Gradient Boost*
 
-此项任命是对字节跳动公司参与中共推翻美国技术至上地位的回应，该公司首席执行官在2019年获得了工业和信息化部颁发的“中国特色社会主义杰出建设者”奖。
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-《华盛顿考察者》还指出，“他在3月之前还是总部位于中国首都的金山云的董事会成员，该公司的一款软件应用在1月被列入“国家安全”威胁的黑名单，还被涉嫌对中共镇压的维吾尔族穆斯林人口进行监控。”
-
-原文链接：
-
-[https:thenationalpulse.com/ breaking/ tiktok-taps-military-techie-as-ceo/](https:thenationalpulse.com/%20breaking/%20tiktok-taps-military-techie-as-ceo/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08091455/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 0

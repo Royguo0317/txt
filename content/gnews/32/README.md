@@ -1,27 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印首都首席部长宣布将第三次延长“封城”时间
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1199756/)
+## 干掉CCP是你活下去的唯一选择,否则子孙后代没有未来
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1199902/)
 
-#### 作者:【默凡】
+撰稿: 何处是我家
+![]()![](https://gnews.org/wp-content/uploads/2021/05/20210510_T7-3-2.png)图片来源网络
+生存是生物延续的不二法则，如何“活下去”就变得尤为重要。基因深入每个生物的机体里和血液里，使自我和后代们可以持续的生生不息。
 
-5月9日，印度首都新德里首席部长凯杰里瓦尔正式宣布，将目前的“封城”措施再延长一周至17日。这也是新德里第三次延长“封城”措施。
-![]()![](https://gnews.org/wp-content/uploads/2021/05/198F70A6-A3C0-484E-AC27-C9B7F5BCF2D2-1.jpeg)
-据印度卫生部9日公布的数据显示，印度较前一日新增确诊病例403738例，累计确诊22296414例；新增死亡4092例，累计死亡242362例。截至9日，印度单日新增确诊病例连续18天超过30万例，连续4天超过40万例，死亡病例连续2天超过4000例。由于疫情不断恶化, 印度多地收紧疫情防控措施。新德里自4月19日开始实施全城封锁，此后分别在4月25日和5月1日宣布延长封锁。
+我们看过动物世界，都知道非洲大草原上的角马，斑马和羚羊等食草的动物，靠强大的繁殖能力来维持种群的存在。反过来看狮子、猎豹和鬣狗们则依靠着残酷的厮杀来繁衍后代。
 
-新德里中共病毒检测阳性率已从4月下旬的约35%降至目前的约23%，虽然新德里中共病毒新增病例有所下降，但仍不可掉以轻心。专家认为，23%的数字仍然很高，必须要切断病毒传播链。所以延长“封城”措施就是为了确保感染率继续下降。
+那么，再看看人类为了生存，为了活下去，背井离乡，漂洋过海，举家搬迁。前有非洲的难民潮，冲垮了欧洲的社会稳定；现有南美绵延千里的移民大军直逼美墨边境，吓得前美国总统川普筑起了美墨边境墙。世界步入荒诞不堪，甚至不可理喻的地步！为什么没有太多人和更多的声音关注难民的产生？为什么会有难民？谁是这些难民的幕后凶手？为什么说直接解决这些独裁的专制统治，就可以解决难民的问题？可是遗憾的是到今天为止，难民越来越多。反而，以CCP为首的独裁者、专制者活得越来越滋润、越舒服！CCP疯了，可这世界也疯了！
 
-本文仅代表作者本人观点，不代表Gnews平台
+生活在中共国境内的14亿同胞，怎么才能像正常人一样的活下去，想起这个问题，我就快要窒息。人的“吃、住、行”是活着的三个基本要素。中共国有毒大米，毒奶粉，毒豆芽，添加过多的增白剂的面粉，有农药残留物的蔬菜，假白酒，假啤酒，重金属污染的饮用水，吃的喝的是有毒的。住的是随时要命，随时会倒塌的楼脆脆。而在中共国出行，由于社会失去应有的秩序，已经变得极度危险，可能早晨出去晚上就回不来了。又由于长期无节制的对大自然的破坏，造成近二十年来空气也有毒了，使人无法呼吸。亲爱的同胞和各个民族的兄弟姐妹们，你们知道自己是活在朝不保夕的状态中吗？如果哪怕像个动物一样，直面你的处境，你也能做出抉择！
 
-参考文章：
+最使我迷惑不解的是大自然的动物都会在长期恶劣的生活中，选择生存环境。为什么中共国的大多数人就像没事人似的岁月静好？是国人们相信CCP会治理好中国？抑或CCP会改变他的凶残本性？或者CCP只会戕害那些历次运动中丢掉性命的人，那些反对他的人，那些威胁到他们政权的人，那些贪污和有钱的人，或者他们认为有问题的人！太多已经发生的事实、铁证，展示给所有的无辜善良天真的人们，你们太可怜太可悲了。我都不想再举例讲述CCP对中国人的历次的屠杀和戕害，太血腥残忍，作为同胞的我感到心灵剧痛。
 
-[1][https://www.thepaper.cn/newsDetail\_forward\_12599380](https://www.thepaper.cn/newsDetail_forward_12599380)
+CCP在历史上有一次运动是对动物的，叫做除“四害”运动。起先是苍蝇、蚊子、麻雀、老鼠。后来改成苍蝇、蚊子、老鼠、蟑螂。可怜的生活在中国大地上的麻雀，一夜间变成了阶级敌人，成为被毛泽东这个魔鬼鼓噪起来的无辜可怜虫似的亿万的老百姓的敌人。整个中华大地都在颤抖，空气在燃烧，所有疯癫的人们走出家门，他们有的从家里拿了铅桶，铁桶、面盆当锣鼓敲，有的爬到屋顶挥动红旗竹竿，目的就是不让麻雀有停下来喘息的机会。在大家齐心协力下，麻雀有的被打死，有的没地方停留而活活的累死，纷纷掉落地上。麻雀几乎遭到灭族之灾！可否有生物学家去研究，麻雀有没有留下这莫名灾难的记忆留给后代！基因里是否标记这片土地是有危险的！
 
-[2][https://www.google.com.hk/search?q=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&newwindow=1&safe=strict&hl=zh-CN&source=hp&ei=JtyYYL6fNtyW4-EPhOSfkAk&iflsig=AINFCbYAAAAAYJjqNmYCmpxFSZ690lYT90Me-lJO5CXF&oq=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&gs\_lcp=Cgdnd3Mtd2l6EAMyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAw6AggAUPEPWPkmYNIoaAJwAHgBgAG-A4gBiCuSAQYzLTE1LjGYAQCgAQGqAQdnd3Mtd2l6sAEA&sclient=gws-wiz&ved=0ahUKEwi-yoGqx77wAhVcyzgGHQTyB5IQ4dUDCAc&uact=5](https://www.google.com.hk/search?q=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&amp;newwindow=1&amp;safe=strict&amp;hl=zh-CN&amp;source=hp&amp;ei=JtyYYL6fNtyW4-EPhOSfkAk&amp;iflsig=AINFCbYAAAAAYJjqNmYCmpxFSZ690lYT90Me-lJO5CXF&amp;oq=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&amp;gs_lcp=Cgdnd3Mtd2l6EAMyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAw6AggAUPEPWPkmYNIoaAJwAHgBgAG-A4gBiCuSAQYzLTE1LjGYAQCgAQGqAQdnd3Mtd2l6sAEA&amp;sclient=gws-wiz&amp;ved=0ahUKEwi-yoGqx77wAhVcyzgGHQTyB5IQ4dUDCAc&amp;uact=5)
+曾经有一段时间，我往来于中俄边境。在几个小时的边境等待中，成群的鸽子在天空中飞来飞去吸引了我。奇怪的是他们只是飞到三不管的上空，然后盘旋，从不进入中国境内，也不敢飞入中国境内。当地人都知道，是因为中国人吃鸽子肉（而俄罗斯人风俗里不吃鸽子肉），飞到中国境内的鸽子活下来的算是命大的。我想，基因是动物可以繁衍生息下去的重要元素，鸽子肯定是在基因里留下了痕迹，提醒子孙后代飞入那片土地是危险的！
 
-校对/发稿：文婷
+战友们，我们是否应该像有灵性的鸽子一样，在自己的记忆里留下痕迹，即共产党是邪恶的、极度危险的、不可理喻的、时时刻刻会威胁到我们生命的，必须除之或者远离。我们更要告诉和提醒亲人、同胞和所有的人类，CCP的凶恶真面目，CCP是我们人类的敌人，CCP已经夺走我们以及子孙后代的未来。
 
+CCP统治下的这片土地是危险的，这里所有的生物都没有未来和希望。郭文贵先生，爆料革命这四年来振聋发聩地呐喊，已经叫醒了许许多多墙内的人。请允许我再重复一遍：郭先生绝不是单单来灭共，干掉CCP的，他是来拯救我们生活在CCP魔爪下的所有人，还给我们原有的未来、人的尊严和自由！
 
+希望我们的血液里，基因里留下痕迹，一种是记住共产党的极度邪恶；另一种是爆料革命、新中国联邦给予我们的真诚、美好和希望！
 
-0
+(本文仅代表作者个人观点)
+
+*审稿：MG1   编辑：8 Mile*
+
+【[澳喜文章](https://gnews.org/zh-hans/author/aujenny/)[1](https://gnews.org/zh-hans/author/aujenny/)】
+
+【[澳喜文章](https://gnews.org/zh-hans/author/himalaya-australia/)[2](https://gnews.org/zh-hans/author/himalaya-australia/)】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08091511/1-%E6%BE%B3%E5%96%9CLogo-1.jpeg)
++1

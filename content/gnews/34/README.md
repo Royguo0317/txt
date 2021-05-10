@@ -1,21 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9千万共产党员财富的最佳去处-喜币Himalaya Coin喜美元
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1199586/)
+## 印首都首席部长宣布将第三次延长“封城”时间
+` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1199756/)
 
-台湾宝岛农场 Amitofu
+#### 作者:【默凡】
 
-自从习近平上台后假藉反贪腐为名，以贪反贪以黑反黑，密集的对党内铲除异己的运动，中央纪委包括周永康、薄熙来、郭伯雄、徐才厚、孙政才、令计划等，加上2015年开始进行大规模军事改革，被反腐条例被惩处超过170万官员，被惩处超过170万党部官员的私人财富进了中南坑的口袋，根据香港成报老板谷卓恒表示习近平家族涉及巨额转移资产达几兆美元，涉及的公司多达数千间，遍布中港、欧美及中东等地，光是在香港就设立3千多家空壳公司，2016年巴拿马文件更揭露习家族以各种迂回方式在海外投资房产，无论是海外国企或者央企背后都是习近平家族控制的，习近平姊夫邓家贵有两家离岸公司、刘云山儿媳妇贾丽青有1家离岸公司，张高丽女婿李圣泼有3家离岸公司，李鹏女儿李小琳有1家离岸公司，贾庆林外孙女李紫丹拥有1家离岸公司，曾庆红胞弟曾庆淮有1家离岸公司，胡耀邦三儿子胡德华有1家离岸公司，这还是2017年泄露的文件，拥有离岸公司在并不能显示贪污的金额，但这些高官口口声声要人民爱党、爱国家，自己却隐匿海外巨额财富，中共国领导人海外账户上存放着大量的资金，突显中共国的巨额财富集中在几个家族身上，只要发生经济危机共产党就是向9千万党员和14亿人民割韭菜。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10042421/ccpcoin-4-2-400x225.png)
-只准州官放火不准百姓点灯，今天中共国内部民生银行、中信银行、招商银行等阻止人民购买比特币等虚拟货币，在中共国经济即将崩盘，金融、房地产、爆量违约的债劵和所有的经济问题爆发时，首当其冲的就是9000万党员干部的家庭财产，被强迫进行清查整顿，而9千万党员合法财富最安全的地方，就是最安全可靠不被剥夺财富的喜币、喜美元、喜联储，不仅拥有庞大不断投入的研发团队（J.P. Morgan世界级金融团队）和越来越严密的区块链加密技术 ( ConsenSys Quorum架构 )，安全方便快速支付和财富紧紧跟随持有人的财富丢失保证，更重要的是不再被中共政府剪羊毛垄断财富，没有任何人可以拿走你的钱。本文仅代表个人立场
+5月9日，印度首都新德里首席部长凯杰里瓦尔正式宣布，将目前的“封城”措施再延长一周至17日。这也是新德里第三次延长“封城”措施。
+![]()![](https://gnews.org/wp-content/uploads/2021/05/198F70A6-A3C0-484E-AC27-C9B7F5BCF2D2-1.jpeg)
+据印度卫生部9日公布的数据显示，印度较前一日新增确诊病例403738例，累计确诊22296414例；新增死亡4092例，累计死亡242362例。截至9日，印度单日新增确诊病例连续18天超过30万例，连续4天超过40万例，死亡病例连续2天超过4000例。由于疫情不断恶化, 印度多地收紧疫情防控措施。新德里自4月19日开始实施全城封锁，此后分别在4月25日和5月1日宣布延长封锁。
 
-[财富紧紧跟随持有人Himalaya exchage财富丢失保证](https://himalaya.exchange/?lang=zh-CHS)
+新德里中共病毒检测阳性率已从4月下旬的约35%降至目前的约23%，虽然新德里中共病毒新增病例有所下降，但仍不可掉以轻心。专家认为，23%的数字仍然很高，必须要切断病毒传播链。所以延长“封城”措施就是为了确保感染率继续下降。
 
-資料來源:文贵先生、路德社、博士军团、新中国联邦
+本文仅代表作者本人观点，不代表Gnews平台
 
-审核:Athena雅典娜 发布:Amitofu
+参考文章：
 
-[喜币Himalaya Coin喜美元Himalaya Dollar无国界化财富紧紧跟随](https://gnews.org/zh-hans/1182944/)
+[1][https://www.thepaper.cn/newsDetail\_forward\_12599380](https://www.thepaper.cn/newsDetail_forward_12599380)
 
-+1
+[2][https://www.google.com.hk/search?q=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&newwindow=1&safe=strict&hl=zh-CN&source=hp&ei=JtyYYL6fNtyW4-EPhOSfkAk&iflsig=AINFCbYAAAAAYJjqNmYCmpxFSZ690lYT90Me-lJO5CXF&oq=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&gs\_lcp=Cgdnd3Mtd2l6EAMyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAw6AggAUPEPWPkmYNIoaAJwAHgBgAG-A4gBiCuSAQYzLTE1LjGYAQCgAQGqAQdnd3Mtd2l6sAEA&sclient=gws-wiz&ved=0ahUKEwi-yoGqx77wAhVcyzgGHQTyB5IQ4dUDCAc&uact=5](https://www.google.com.hk/search?q=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&amp;newwindow=1&amp;safe=strict&amp;hl=zh-CN&amp;source=hp&amp;ei=JtyYYL6fNtyW4-EPhOSfkAk&amp;iflsig=AINFCbYAAAAAYJjqNmYCmpxFSZ690lYT90Me-lJO5CXF&amp;oq=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&amp;gs_lcp=Cgdnd3Mtd2l6EAMyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAw6AggAUPEPWPkmYNIoaAJwAHgBgAG-A4gBiCuSAQYzLTE1LjGYAQCgAQGqAQdnd3Mtd2l6sAEA&amp;sclient=gws-wiz&amp;ved=0ahUKEwi-yoGqx77wAhVcyzgGHQTyB5IQ4dUDCAc&amp;uact=5)
+
+校对/发稿：文婷
+
+
+
+0
