@@ -1,27 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 港府颁布优惠政策吸引外地医生
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1201718/)
+## 【香草诗词汇】我愿——一股清流的自白
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1202018/)
 
-#### 作者:【默凡】
+作者：纽约香草山健身部 澄道
 
-香港电台网站5月10日报道称：港府早前表明本月内会向立法会提交有关《医生注册条例》的修订，以引入更多合资格非本地医生来港执业。当局早前的建议主要包括，引入非本地培训医生必须为香港永久性居民；另外又建议成立一个委员会，拣选认可大约100间非本地医学院的毕业生，并已在当地获取医生注册资格或专科医生资格；所有获批申请人要先获公营医疗机构录取，并在取得专科医生资格后，于有关公营医疗机构工作一段较长时间，之后应可免试正式注册。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
-负责与业界进行游说的行政会议成员林正财接受本台查询，指医生组织关注医管局如何挽留本港医生及公私营失衡问题，各持份者皆认同本地医生比例较其他先进地区少，相信即将公布的方案可以拿揑平衡，一方面解决医生不足的问题，另一方面确保整体在香港执业医生的质素。
 
-评论：
+![]()![](https://gnews.org/wp-content/uploads/2021/05/未命名的设计-14-1.png)
+山之高不止泉涌
+我愿奉献甘甜与清澈
+No you can’t
+同流合污
 
-随着中共国在香港颁布实施《国安法》和《选举法》，香港已经彻底丧失了自治权，成为中共国一个省份，以美国为首的西方国家相继对香港实施制裁。随着中共逐渐收紧对香港的控制权，越来越多香港有识之士选择离开香港前往其他国家定居，香港政府也已经意识到人才的缺失将对香港造成严重的威胁。
+天再括任翱苍鹰
+我愿展现无畏与探索
+No you can’t
+八纮一宇
 
-因此，港府不得不制定各种措施吸引非本地人才前往香港发展，港府颁布政策吸引外地医生前往香港工作只是香港没落的一个缩影，未来美国还将继续加码制裁香港，海外投资全面退出香港。港币和美元脱钩，香港股市崩盘……只能寄希望仍然留守在香港的居民提前做好应对措施，暴风骤雨随时来临。
+清流涌淌千年
+阻止於肆意敬地
+雄鹰翱翔万里
+折翅於妄為敬天
 
-本文仅代表作者本人观点，不代表Gnews平台
+只要泉我任流
+我愿意
+No you can‘t
+泉枯水止
 
-参考文章：
+只要天我任飞
+我愿意
+No you can’t
+满天雾霾
 
-[https://gbcode.rthk.hk/TuniS/news.rthk.hk/rthk/ch/component/k2/1590150-20210510.htm?spTabChangeable=0](https://gbcode.rthk.hk/TuniS/news.rthk.hk/rthk/ch/component/k2/1590150-20210510.htm?spTabChangeable=0)
+注：
+邪共泉枯水止
+心霾雾霾满天
 
-校对/发布：文婷
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
