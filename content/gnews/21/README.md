@@ -1,33 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》新闻快讯（视频版）: 2020505章家敦先生接受Maria采访
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1195951/)
+## 科技前沿——SpaceX接受狗狗币付款，用于明年发射月球任务
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1196237/)
 
-《路德社》出品
+整理撰稿：蓝精灵
 
-以下视频是详细内容：
+SpaceX将于明年第一季度发射“ DOGE-1登月任务”，埃隆·马斯克（Elon Musk）的商业火箭公司将接受加密货币狗狗币作为付款。
 
-主要内容：
+Geometric Energy Corporation在周日宣布了由狗狗币资助的任务，但声明并未透露任务的财务价值。
 
-1.中共国是以破坏美国主权、颠覆美国社会、摧毁民主制度，推翻现有国际系统向全世界建立它那一套概念
+“我们很高兴将DOGE-1发射到月球上！”，SpaceX商业销售副总裁Tom Ochinero引用了Geometric Energy发布的声明。“该任务将证明加密货币在地球轨道之外的应用，并为行星际贸易奠定基础”。
 
-2.Maria直接说知道CCP做了什么还在做什么，病毒很可能来自武汉的实验室
+马斯克今年的推文将曾经一度晦涩难懂的数字货币（最初是社交媒体的笑话）变成了投机者的梦想。
 
-3.章家敦先生将病毒模拟芬太尼，都是中共国生产由共产党有意图地输给美国，造成美国人死亡
+编者简评：
 
-4.Maria注意到习总加速神接受了毛腊肉以来无人敢带的「舵手」这个称谓
+基于自由流通的，不受限制的数字货币是主流，是未来。随着星链网络的闭合，天才马斯克貌似正在测试如何把数字货币变成太空币，星链网络是太空数字币的必要条件，这一过程就是一个去中心化的过程，也是重塑世界金融政治格局的过程。
 
-5.习就是要比肩毛甚至比毛有过之无不及
+\*以上仅代表作者观点，不代表Gnews平台\*
 
+参考链接：
 
+[https://www.reuters.com/business/finance/spacex-accepts-dogecoin-payment-launch-lunar-mission-next-year-2021-05-09/?taid=609861454492f900010b98f0&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/business/finance/spacex-accepts-dogecoin-payment-launch-lunar-mission-next-year-2021-05-09/?taid=609861454492f900010b98f0&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-翻译：路德社翻译组
+图片来源：[https://www.reuters.com](https://www.reuters.com/business/finance/spacex-accepts-dogecoin-payment-launch-lunar-mission-next-year-2021-05-09/?taid=609861454492f900010b98f0&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-制作：路德社视频组
-
-审核校对：玫瑰新闻组
-
-上传排版：玫瑰新闻组
+校对发布：Penny
 
 0

@@ -1,36 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 病毒侦探——中共军事教材中描述“生物战剂的施放方法”
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1196343/)
+## 日本财经简讯 2021/05/08
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1196452/)
 
-整理撰稿：蓝精灵
+By Tokyo Sakura Finance Group
 
-有人在“非典非自然起源”这本书中，找到了下面这一段话：
+（Translation: Orange文橘        Manuscript: Totoro）
 
-生物战剂的施放方式：
+![](https://lh3.googleusercontent.com/JUdkv-qkFLBxMBYI3776hPbjoHy-KnF1mBHvg-GwR7x-OhEZzoiSkyxjiVBkPC06dChT7YeqDv7ySMVDij7Y7iPgbOFXUCocwn-x4Wym4QqOgoJwT2YChs9IJAdNv0MXQgG-t7Fh)
+The picture was designed by “唯真不破小蜜蜂”
 
-生物战剂可以以湿态或者干态状态施放。如上述，干燥施放比较理想，但战剂的干燥需要复杂的技术。战剂的施放可以通过喷雾装置，爆炸装置，人为污染食物和水源，施放感染媒介生物等方式进行。最常见的方式是气溶胶施放。
+⭐️Uniqlo’s domestic sales in Japan in April increased by 84.5% compared with the same period in 2020. Under the influence of the CCP virus, up to 83 branches were temporarily closed.
 
-如前述，将喷雾装置安装在交通工具上，进行气溶胶施放是较好的手段。其施放路径会形成一条线状污染带，称之为线源（line source）施放。这种手段一般逆风行驶施放，感染下风向一定范围内的人群。污染范围取决于风速，风向，气象条件，地形和植被及战剂自身特性等因素。稳定的战剂（如炭疽）可以污染下风向20KM的范围。
+优衣库四月份日本国内的销售额比去年同期增加了84.5%，在中共病毒的影响下，最多曾有83家分店临时停业。
 
-编者简评：
+⭐️Under the influence of the tight supply of semiconductors in the world, the Nintendo game console-Nintendo Switch’s production in March 2022 is expected to be 25.5 million units, 11.5% less than the previous period. The sales and profits are expected to decrease by 9% and 22% accordingly.
 
-这是网上的病毒侦探们发出的信息。我们听到很多熟悉的名词如气溶胶，对比一下疫情开始以后， 中共采取的一系列防疫措施和防疫指导，是否和上文中所述有着不可分割的自然的联系？
+在世界半导体供给紧张的影响下，任天堂游戏机-任天堂Switch的2022年3月预计生产量为2550万台比前期减少11.5%，预计销售额及利润也可能相应减少9%和22%。
 
-参考链接：
+⭐️A Japanese recruitment company found out through a questionnaire on May 8, that among 1,040 people more than 60% of Japanese believed that the CCP virus was related to their changing jobs, and more than 30% showed their concern about their company’s business strategy and directions.
 
+日本猎头公司Recruit通过一个1040人参加的调查问卷（5月8日）发现，6成以上的日本人认为中共病毒与他们换工作的行为有关，3成以上的人表示对其公司的经营策略与方向感到不安。
 
+⭐️Honda and Toyota’s vehicle sales in China increased by 31.7% and 12.2% over the same period last year and reached the highest sales in history. Nissan vehicle sales also increased by 4.4%.
 
-> 这是徐德忠在“非典非自然起源”这本书中描写的“生物战剂的施放方法“，说白了就是投毒方法
-> 
-> 天啊，我觉得这样投毒永远也查不出来👇 [pic.twitter.com/Bm6YZbAcyz](https://t.co/Bm6YZbAcyz)
-> — Roberts (@Roberts59064781) [May 8, 2021](https://twitter.com/Roberts59064781/status/1390863062274609153?ref_src=twsrc%5Etfw)
+本田与丰田在中共国的汽车销售量比去年同期增加了31.7%和12.2%并达到了历史最高销售量，日产也增加了4.4%。
 
-
-
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
-
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
+*发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01183841/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
 0

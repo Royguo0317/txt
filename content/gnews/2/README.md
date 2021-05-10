@@ -1,34 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本财经简讯 2021/05/08
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1196452/)
+## 福西（Anthony Fauci）开研讨会，唯一赞助商是计划生育组织
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1196593/)
 
-By Tokyo Sakura Finance Group
+整理撰稿：蓝精灵
 
-（Translation: Orange文橘        Manuscript: Totoro）
+乔·拜登总统的首席医学顾问安东尼·福西（Anthony Fauci）周三参加了美国最大的堕胎链计划生育组织的医疗保健活动。
 
-![](https://lh3.googleusercontent.com/JUdkv-qkFLBxMBYI3776hPbjoHy-KnF1mBHvg-GwR7x-OhEZzoiSkyxjiVBkPC06dChT7YeqDv7ySMVDij7Y7iPgbOFXUCocwn-x4Wym4QqOgoJwT2YChs9IJAdNv0MXQgG-t7Fh)
-The picture was designed by “唯真不破小蜜蜂”
+实况新闻报道 ，希尔与福奇（Fauci）以及许多著名的医疗人物和政客一起主持了“医疗的未来：健康大胆”的网络研讨会。
 
-⭐️Uniqlo’s domestic sales in Japan in April increased by 84.5% compared with the same period in 2020. Under the influence of the CCP virus, up to 83 branches were temporarily closed.
+有趣的是，该活动的唯一赞助商是计划生育组织。数十亿美元的堕胎链将在选择性堕胎中杀死未出生的婴儿描述为“医疗保健”。它在美国造成了大约40％的堕胎
 
-优衣库四月份日本国内的销售额比去年同期增加了84.5%，在中共病毒的影响下，最多曾有83家分店临时停业。
+列出的其他发言人包括美国外科医生，食品和药物管理局代理专员珍妮特·伍德科克（Dr. Janet Woodcock），Vivek Murthy博士以及密歇根州支持堕胎的民主党参议员Debbie Stabenow。他们讨论了“如何在限制成本上升的同时，推动科学前沿并依靠创新，”希尔说。
 
-⭐️Under the influence of the tight supply of semiconductors in the world, the Nintendo game console-Nintendo Switch’s production in March 2022 is expected to be 25.5 million units, 11.5% less than the previous period. The sales and profits are expected to decrease by 9% and 22% accordingly.
+Live Action评论了堕胎链与美国顶尖医疗领导者之间令人不安的联系：
 
-在世界半导体供给紧张的影响下，任天堂游戏机-任天堂Switch的2022年3月预计生产量为2550万台比前期减少11.5%，预计销售额及利润也可能相应减少9%和22%。
+计划生育组织似乎是本次活动的唯一赞助商，而决策者和为政府工作的医生则似乎构成了严重的利益冲突。在过去的十年中，“计划生育”已实施了330万例堕胎，并已从美国纳税人那里收到近60亿美元的收入。该组织的政治部门向政治人物的竞选活动捐赠了数百万美元。参议员Stabenow被称为“计划生育坚定的拥护者”。
 
-⭐️A Japanese recruitment company found out through a questionnaire on May 8, that among 1,040 people more than 60% of Japanese believed that the CCP virus was related to their changing jobs, and more than 30% showed their concern about their company’s business strategy and directions.
+Fauci还与堕胎和纳税人资金有关。本周早些时候，LifeNews写了一篇关于他的联邦机构如何 提供40万美元来支持一项艰巨的实验的研究，该实验涉及对流产中期的流产婴儿 进行剥皮，然后将其皮肤植入啮齿动物。
 
-日本猎头公司Recruit通过一个1040人参加的调查问卷（5月8日）发现，6成以上的日本人认为中共病毒与他们换工作的行为有关，3成以上的人表示对其公司的经营策略与方向感到不安。
+计划生育组织主要是堕胎倡导小组和堕胎提供者，而不是医疗保健小组，他自己的年度报告也提供了证明。去年它报告了创纪录的收入，包括纳税人的资金。
 
-⭐️Honda and Toyota’s vehicle sales in China increased by 31.7% and 12.2% over the same period last year and reached the highest sales in history. Nissan vehicle sales also increased by 4.4%.
+参考链接：
 
-本田与丰田在中共国的汽车销售量比去年同期增加了31.7%和12.2%并达到了历史最高销售量，日产也增加了4.4%。
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
-*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01183841/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+
+> [Anthony Fauci Partners With Planned Parenthood Abortion Biz for Health Care Webinar](https://www.lifenews.com/2021/05/07/anthony-fauci-partners-with-planned-parenthood-abortion-biz-for-health-care-webinar/)
+
+
+
+图片来源：[www.lifenews.com](http://www.lifenews.com)
+
+校对发布：Penny
+
+\*以上仅代表作者观点，不代表Gnews平台\*
+
 0

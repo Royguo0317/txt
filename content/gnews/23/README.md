@@ -1,39 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普推出了新的类似社交媒体的网站，名为“源于川普的办公桌上”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1195941/)
+## 中共国电池公司 新的亿万富翁孵化器
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1196169/)
 
-- 作者： the world
-- 制图：七白石
+整理撰稿：蓝精灵
+
+对于CALT这家仅仅拥有十年历史的公司来说，公司高管九个人的财富总值达720亿美元，
+
+随着中国越来越重视发展清洁能源产业，CATL得到了政府的帮助。从2015年开始，中国政府保留了推荐电池供应商的清单，其中包括50多家国内公司，而LG和Samsung等外国重量级公司则被排除在外。将推荐电池供应商用于其电动汽车的汽车制造商有资格获得政府补贴，从而为CATL等公司的崛起铺平了道路。CATL在深圳证券交易所首次亮相一年后，该名单于2019年被取消。CATL的代表在一份声明中说，该公司的成功归功于其“战略方向，对研发​​的持续投资，可靠的产品和服务以及整合产业链的能力”。
+
+CATL计划于2020年初成为特斯拉上海超级工厂的供应商，该公司计划于今年晚些时候在德国开设其第一家海外工厂。随着在欧洲向汽车制造商的电池销售量的增加，中国开始向欧洲出口配备了CATL的电动汽车，这使其在欧洲的业务不断增长。CATL代表说：“从长远来看，CATL的目标将是实现固定和移动能源系统中化石燃料替代的目标，该系统将通过先进的电池和可再生能源产生高效的电力系统。”
+
+编者简评：
+
+目前尚未有媒体报道这家低调的电池公司的真实背景，有一点可能是中共家族很早就开始布局清洁能源市场，在中共，从天而降的富翁太多，很少看到真实的亿万富翁的奋斗史，而这种早早进行布局的商业机会，和庞大的初期创业补贴，这种权力也是集中在少数人手中。这是新一代的马云马化腾们吗？
+
+\*以上仅代表作者观点，不代表Gnews平台\*
+
+参考链接：
+
+[https://www.forbes.com/sites/jenniferwang/2021/05/03/this-chinese-battery-company-has-produced-more-billionaires-than-google-or-facebook/?sh=155ba34b67e7&utm\_source=ForbesMainTwitter&utm\_medium=social&utm\_campaign=socialflowForbesMainTwitter](https://www.forbes.com/sites/jenniferwang/2021/05/03/this-chinese-battery-company-has-produced-more-billionaires-than-google-or-facebook/?sh=155ba34b67e7&amp;utm_source=ForbesMainTwitter&amp;utm_medium=social&amp;utm_campaign=socialflowForbesMainTwitter)
+
+图片来源：
+
+[https://www.forbes.com](https://www.forbes.com/sites/jenniferwang/2021/05/03/this-chinese-battery-company-has-produced-more-billionaires-than-google-or-facebook/?sh=155ba34b67e7&amp;utm_source=ForbesMainTwitter&amp;utm_medium=social&amp;utm_campaign=socialflowForbesMainTwitter)
+
+校对发布：Penny
 
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-**西班牙2021年5月9日电/西喜社——**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09183531/15_20201104203619_mh1604494242867-scaled-2.jpg)
-前总统唐纳德·川普（Donald Trump）被驱逐出各大社交媒体平台的几个月后，开设了一个新的类似社交媒体的网站，名为“源于川普的办公桌上”。
-
-新的网站将使川普能够直接向美国人传达他的“美国人优先”的信息，而无需受到Twitter，Facebook，Instagram或Snapchat等大型科技平台的审查。
-
-川普在网站上的一份声明中说：“过去四年，我的政府空前的为所有背景的美国人提供了服务。” “拯救美国就是在这些成就的基础上，支持勇敢的保守派，他们将定义美国的未来，共和党的未来以及我们心爱的国家的未来。”
-
-总统弘扬他的“美国优先”议程，并解释说，我们将持续为美国价值观，选举和法治而战。“拯救美国还意味着确保我们在外交和国内政策中始终保持美国第一、美国优先。我们将对我们的国家感到自豪，我们将传授有关美国历史的真相，我们将庆祝我们丰富的文化遗产和民族传统，当然，我们一定会尊重我们伟大的美国国旗”。
-
-该网站列出了川普总统的“美国优先”议程的优先事项，首先是捍卫无辜生命并维护“我们的立国之本——基督教价值观”。
-
-该网站写道：“我们坚信《独立宣言》的承诺，我们所有人都被创造者平等对待，而且在法律面前必须做到人人平等。” “我们知道，我们的权利不是来自政府，我们的权利是来自上帝，而且世上没有任何力量可以剥夺这些权利。其中包括宗教自由权和保留携带武器的权利。”
-
-“我们相信，要重建美国的军队，并结束我们过去失败的政客几十年来让我们陷入的无休止的战争。我们拥护自由思想，欢迎自由的辩论，而且我们不惧怕顶住“政治正确”的压迫。我们知道法治是我们自由的最终保障，我们将确保《宪法》的含义恰如其名。
-
-“我们支持公平贸易，低税率和更少的扼杀就业的法规，而且我们知道，美国必须始终拥有地球上最强大的军事力量。我们相信法律和秩序，我们相信执法人员是英雄，并且应该得到我们的绝对支持。我们相信自由演讲和公平选举。我们必须确保今后进行公正，诚实，透明和安全的选举——因为每一个公平合法的选票都至关重要。”
-
-**评论：希望川普能成功建立一个新的社交媒体平台。因为极端左派势力的恐吓，科技行业高层的垄断和取缔，还有来自于中共的黑客和贿赂。人们一直活在科技巨头言论控制之下。希望川普的新平台能和GTV一样取得成功。**
-
-素材：the world；审核：Ranting；校对：阿伯塔； 发稿 : 信心的选择
-
-**新闻来源：**[www.infowars.com](https://www.infowars.com/posts/breaking-trump-launches-new-social-media-like-website-called-from-the-desk-of-donald-j-trump/)
-
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
-
-+1
+0
