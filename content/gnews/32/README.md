@@ -1,46 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【币圈】-数字货币动态-2021.05.10
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1199659/)
+## 印首都首席部长宣布将第三次延长“封城”时间
+` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1199756/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
-![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image5.jpg)
-### 币圈的一天，从“花前一爽，月下一东”开始。
+#### 作者:【默凡】
 
-## **每日一问**
+5月9日，印度首都新德里首席部长凯杰里瓦尔正式宣布，将目前的“封城”措施再延长一周至17日。这也是新德里第三次延长“封城”措施。
+![]()![](https://gnews.org/wp-content/uploads/2021/05/198F70A6-A3C0-484E-AC27-C9B7F5BCF2D2-1.jpeg)
+据印度卫生部9日公布的数据显示，印度较前一日新增确诊病例403738例，累计确诊22296414例；新增死亡4092例，累计死亡242362例。截至9日，印度单日新增确诊病例连续18天超过30万例，连续4天超过40万例，死亡病例连续2天超过4000例。由于疫情不断恶化, 印度多地收紧疫情防控措施。新德里自4月19日开始实施全城封锁，此后分别在4月25日和5月1日宣布延长封锁。
 
-*虚拟交易币们的单位，你可知否？*
+新德里中共病毒检测阳性率已从4月下旬的约35%降至目前的约23%，虽然新德里中共病毒新增病例有所下降，但仍不可掉以轻心。专家认为，23%的数字仍然很高，必须要切断病毒传播链。所以延长“封城”措施就是为了确保感染率继续下降。
 
-## **喜马拉雅Coin要闻**
+本文仅代表作者本人观点，不代表Gnews平台
 
-- 为保证战友都完成认证，KYC可能延期至6月底。
-- 投资G系列的借款截止日延至7月4日。
+参考文章：
 
+[1][https://www.thepaper.cn/newsDetail\_forward\_12599380](https://www.thepaper.cn/newsDetail_forward_12599380)
 
-## **新闻动态**
+[2][https://www.google.com.hk/search?q=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&newwindow=1&safe=strict&hl=zh-CN&source=hp&ei=JtyYYL6fNtyW4-EPhOSfkAk&iflsig=AINFCbYAAAAAYJjqNmYCmpxFSZ690lYT90Me-lJO5CXF&oq=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&gs\_lcp=Cgdnd3Mtd2l6EAMyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAw6AggAUPEPWPkmYNIoaAJwAHgBgAG-A4gBiCuSAQYzLTE1LjGYAQCgAQGqAQdnd3Mtd2l6sAEA&sclient=gws-wiz&ved=0ahUKEwi-yoGqx77wAhVcyzgGHQTyB5IQ4dUDCAc&uact=5](https://www.google.com.hk/search?q=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&amp;newwindow=1&amp;safe=strict&amp;hl=zh-CN&amp;source=hp&amp;ei=JtyYYL6fNtyW4-EPhOSfkAk&amp;iflsig=AINFCbYAAAAAYJjqNmYCmpxFSZ690lYT90Me-lJO5CXF&amp;oq=%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%95%B0%E6%8D%AE&amp;gs_lcp=Cgdnd3Mtd2l6EAMyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAwyBAgAEAw6AggAUPEPWPkmYNIoaAJwAHgBgAG-A4gBiCuSAQYzLTE1LjGYAQCgAQGqAQdnd3Mtd2l6sAEA&amp;sclient=gws-wiz&amp;ved=0ahUKEwi-yoGqx77wAhVcyzgGHQTyB5IQ4dUDCAc&amp;uact=5)
 
-1. 以太币（ETH）在美东时间9日23:13正式突破4000美元，再创历史新高点。目前仍在持续刷新纪录。
-2. Galaxy Digital创办人Mike Novogratz表示，比特币58,000标价太贵了，他希望币安、FTX、Coinbase和Gemini四间交易所的执行长，应将以SAT交易比特币。（小知识：1SAT=0.00000001颗比特币）
-3. 美国第二大交易所Kraken总裁Jesse Powell表示，修改虚拟币交易单位必须要考虑到使用者经验的问题。因为99%的新用户进到交易所，都会想找到bitcoin或BTC，如果改用Satoshi或是SAT会产生混淆。
-4. 虽然以太坊价格超过4K美元，柴犬币（SHIB）依旧抢走了狗狗币的风头。SHIB持续疯狂上涨，24小时已超过500%。
-5. Uniswap V3虽然仅在北京时间5月6日凌晨正式上线，但其资金池几乎以每日1亿美金的速度成长，今天已来到5.4亿美元，24小时交易量也达到6亿美元。
-6. Mercurial Finance是在Solana上构建的第一个用于DeFi稳定资产的动态文档库，为用户提供技术工具，方便用户存放、交换和铸造稳定资产。MER代币将在透过手续费、流动性挖矿的佣金以及作为保证金而合成的如mUSD等来实现增值。
-7. 目前以太坊手续费又奔上高点，在Uniswap兑币要价230美元以上手续费。Uniswap v2与v3的流动性池，最高交易量皆为ETH/SHIB，v2流动性提供者年化利率已超过1,000% (等于每日可以收益是3.45%)，代表流动性提供者可大幅收取手续费。
-8. DeFi平台Rari Capital遭攻击。Alpha团队表示，因Rari Capital错误使用其Homora Bank合约导致的。资安公司Peck Shield表示Alpha Homora的资金安全无虑，已开始协助处理。 Rari Governance Token(RGT)已下跌超过40%。
-9. Crypto Punks新项目Meebits铸币合约惊传黑客攻击，116万美元NFT遭盗印。NFT交易平台OpenSea数据指出，该创作被巨鲸收藏家Pranksy以200ETH购得，后来又以300ETH（折合现值116万美元）价格转卖给AB61CC。
-10. 马斯克坐上主播台参与SNL首秀前，以太坊和狗狗币创下新高。他刚结束演出，灰度母公司、DCG集团创办人Barry Silbert就发推表示，要用一百万美金做空狗狗币。
-11. SpaceX火箭明年发射“DOGE-1卫星登月”，全用DogeCoin支付。Elon Musk也发推证实了这个消息，搭配着“狗狗币之歌”短片，他写道，“SpaceX明年要将卫星Doge-1发射到月球”。
-12. 方舟旗下基金自二月以来已有近30%的跌幅，创办人Cathie Wood受访时仍认为这是个很好的开场，并建议逢低买进的策略将进一步降低持仓成本，从而使平均年回报达到25至30%。
-13. 花旗全球外汇业务主管Itay Tuchman向《金融时报》表示，自去年8月以来，花旗银行发现对比特币有兴趣的大型客户正以非常快的速度提升，但直到今年年三月才发布名为《比特币：正在主流应用爆发的边缘》的报告。
-14. 尽管Vitalik认为NFT仍有投机成分，但也具有为“从未具备商业模式者”提供全新商业模式的潜力，这些群众可能包含创作者、艺术家、慈善事业等。
+校对/发稿：文婷
 
 
 
-
-*编辑：aQ
-发布：文顾*
-
-
- 
 0
