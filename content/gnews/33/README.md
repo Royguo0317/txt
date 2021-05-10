@@ -1,26 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “法力”无边的中共城管执法者
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1197673/)
+## 美军巡逻阿拉伯海拦截帆船查获大批非法中俄式武器
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1197749/)
 
-字幕听译：乐禧禧 | 字幕PR： yyshere | 字幕： 雨中漫步 | 评论： Filon | 评论翻译: wmorpho | 翻译PR: CharlesS | Page：青山
+【日本东京方舟农场】 撰稿：青衣    校对：文小律
 
-![]()![](https://spark.adobe.com/page/7fkg4ySfor9IU/images/54cdcab7-942c-417e-8dfe-d96727c2aee1.jpg?asset_id=74a713ec-1021-4939-8d4c-345a2d507d76&amp;img_etag=%22dd6b6a824b4ab601fe0fcdb495e994e6%22&amp;size=2560)
+美国海军第五舰队周六（5月8日）发表声明称，5月6日至7日，“蒙特雷号”导弹巡洋舰在北阿拉伯海国际水域一艘无国籍独桅帆船上，查获大批非法的中共国式和俄罗斯式武器。
 
-[视频链接](https://mega.nz/folder/iw1W0QaR#7lzhEg9T4zqxKS8uV7GxaA)
+据《法新社》报道，总部设在巴林的美国海军第五舰队（Fifth Fleet）称，其导弹巡洋舰“蒙特雷号”（USS Monterey）及其搭载的美国海岸警卫队高级拦截队（AIT）依据国际法，在国际水域对一艘无国籍帆船进行例行登船检查，期间发现了这批非法武器。
 
-近日，山西一则城管撕扯街道商户春联的视频引发网上激烈讨论。视频中，城管执法人员将街道商户和小区的春联撕下，装上执法车带走。城管执法的理由是破损的(也许并没有)春联影响市容市貌。但撕扯春联的行为又涉及到当地一些风俗习惯，按照传统当地只有家里人死去了才会扯掉对联，随意撕掉春联被群众认为是非常晦气的，这从而引发了周边群众对城管蛮横执法的不满。
+![]()![](https://gnews.org/wp-content/uploads/2021/05/7703DF5C-647B-4D45-8770-FF54FE7965B0-5.jpeg)
 
-根据中共所谓物权法的规定，街道商户在其自己铺面上贴的春联，在管辖权上城管也是无权处理的。但习惯性凭借市容市貌条例横扫街道一切的城管部门似乎没有这个法律意识。中共的《城市管理执法办法》是依据法律制定给行政部门执行的行政法规，其法律效力应该是低于法律的。但由于这部法规边界的界限极其模糊，模糊到执法人员随时随手都能用，街道上的一切似乎都能被适用于这部行政法规。这就导致了中共国的城管队伍依靠着这部界限模糊但“法力”无边的武器在中共国街道上成为了“神”一般的队伍，拥有着管理、治理、处罚、没收街道上一切事物的无上权力。
+第五舰队在声明中称，“这批武器包括数十枚先进的俄制反坦克导弹；数千支中（共）国制56式突击步枪，以及数百支PKM机枪、狙击步枪和火箭推进榴弹发射器；其它武器部件还包括先进的光学瞄准器。”
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+声明中提到，美国军方在搬除所有非法武器后，评估了这艘单桅帆船的适航性，而船员在接受盘问后已被释放。武器现由美方保管，目前美国军方正在继续调查武器来源及走私去向。
+
+美军第五舰队表示，美国海军在该地区进行例行巡逻，以确保合法贸易的自由流动，阻断往往为恐怖主义和非法活动提供资金的非法货物运输，并维护基于规则的国际秩序。
+
+注：本文仅代表作者观点
+
+参考链接：
+
+1. [https://twitter.com/aboluowang/status/1391498230622351363](https://twitter.com/aboluowang/status/1391498230622351363)
+2. [https://twitter.com/dajiyuan/status/1391470533875798024](https://twitter.com/dajiyuan/status/1391470533875798024)
+3. [https://twitter.com/TimednewsC/status/1391532402820882434](https://twitter.com/TimednewsC/status/1391532402820882434)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/7fkg4ySfor9IU/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/7fkg4ySfor9IU/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
-
-+1
++2

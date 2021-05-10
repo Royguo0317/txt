@@ -1,51 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】为天堂的妈妈献上一束鲜花
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1196958/)
+## 喜联储、喜币、喜美元自由人生的开始
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1196999/)
 
-作者：纽约香草山健身部 幸福鸟
+撰稿人：冰沙奶茶
+![]()![](https://gnews.org/wp-content/uploads/2021/05/101-2-3.png)图片选自网络
+5月2日七哥在直播中说：咱们的喜联储、喜币、喜美元就是一场对人类的政治版局、政治版图和军事力量、经济力量、人类文明的一次大的变革前夜必然诞生的东西，而且它的诞生的力量，就是我说的是金融界的孙悟空，真实的孙悟空，大家没有意识到。
 
+孙悟空，降妖捉怪，嫉恶如仇，上天入地，神通广大。七哥用孙悟空来寓意我们的新中国联邦的金融系统着实让人耳目一新。喜联储、喜币、喜美元如孙悟空般的横空出世，将横扫一切牛鬼蛇神还世界一个朗朗乾坤。
 
+七哥在5月5的直播中进一步解释到：喜币、喜美元、喜联储最核心的是定价权不在任何人手里，定价权在拥有这个稳定币的人手里。只要你拥有一部智能手机，在任何情况下，喜美元可以变成喜日元、喜镑，一秒钟就可以转给任何人，摆脱了财务和银行的控制。只要是合法的钱，就没有国界限制，无任何人、任何系统可以调查。就算有人知道了，没有你的授权，也拿不走。不仅实现了财富支付、安全、使用的无界化，还财富和拥有者的灵魂融为一体，无人可以左右，唯一要注意的是支付出去就无法收回。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
+在强国，上至权贵下到百姓都被财富绑架成了奴隶，权贵们不敢随意支配手里的钱，因为来路不明，而百姓因为生活压力缩手缩脚。今天在你口袋里的钱，明天会怎样谁也不知道。每个人都提心吊胆拽着手里的钱，存在银行怕贬值，做理财怕爆雷，换点外汇又有额度限制。而喜联储、喜币、喜美元的到来，意味着我们中的每一个人从此拥有了真正安全、可靠、便捷、灵活、能自由支配的财务系统，它打破你身上的枷锁，给你松绑，让你有权自由地支配你手上财富，让财富为你服务，成为财富真正的主人。
 
+财富的自由会带来身体的自由、思想的自由、人生的自由，一个自由的灵魂带着激情将会创造愈发美好的世界。感恩七哥，感恩爆料革命，让我们草根战友提前进入前所未有的财富新天地。
 
+（本文纯属个人观点）
 
-又是一年五月天，又是一年母亲节。今年的母亲节却是我第一个没有妈妈的母亲节！以往每逢母亲节，我都会给远在北京的妈妈送去一束美丽的鲜花，可现在再也没有机会了！
-
-![orange petaled flowers](https://images.unsplash.com/photo-1490750967868-88aa4486c946?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&amp;ixlib=rb-1.2.1&amp;auto=format&amp;fit=crop&amp;w=1000&amp;q=80)Photo by [Sergey Shmidt](https://unsplash.com/@monstercritic?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/flower?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
-
-去年五月二十七日，我亲爱的妈妈，在北京家的床上于睡梦中安祥地走了……
-
-由于万恶的中共病毒，在妈妈生命垂危之际，作为妈妈最爱的小女儿，我却不能前往相伴；在妈妈升天之后，也没能回去送妈妈一程，道声永别！中共病毒不知害得多少人命丧黄泉，家破人亡，或落下终身遗憾！
-
-多亏有七哥开启的爆料革命，自从妈妈离开人间以来，我只痛苦了一天，而且还是因为那一天与已离开人世的妈妈在灵性层联系不上而造成的痛苦。后来，联系建立之后，上天让我继续作为幸福鸟为在苦难中挣扎的、迷失的灵魂带去欢乐和喜悦……小小的幸福鸟在天有天使团（我妈妈也在其中）的庇护，在人间有先生做我的保护神，同时还有七哥的爆料革命以及无数志同道合的战友们。幸福鸟才能够化悲痛为力量，继续灭共的旅程！
-
-在第一个没有妈妈的母亲节的今天，我想为天堂的妈妈献上一束美丽的鲜花。 我仰望蓝天，寄托对妈妈无尽的哀思与怀念！我低头双手合十，祝福远在天堂的妈妈一切安好。祈求上天保佑我们能够早日灭共，让世界早日恢复平静与安宁，保佑我们新中国联邦繁荣昌盛！
-
-（本文仅代表作者观点）
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-
-
+*审稿&编辑：MG1*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08091455/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 0

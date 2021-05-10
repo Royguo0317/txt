@@ -1,58 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月8日美国政要和政评家反共推特精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1197286/)
+## 郭先生0509III除牌电信公司让国人的钱和东西与世界彻底脱钩
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1197691/)
 
-众议员迈克·加拉格尔： 福奇博士(Fauci)刚刚见了媒体，主持人[@chucktodd](https://twitter.com/chucktodd)没问他任何一个关于新冠病毒COVID-19的起源，以及纳税人的钱是否流向了武汉的「功能增强」性研究的问题。 这是世界面临的最重要的问题，但却几乎没有媒体去问。
+编辑整理：
 
+纽约香草山农场：兰草（文泉）；华盛顿DC农场：YIMING（文鸣）；
 
+悉尼澳喜农场：Bruce(文远)；日本东京方舟农场：山川异域
+![]()![](https://gnews.org/wp-content/uploads/2021/05/封面-37.jpg)
+据[2021-05-09 文贵直播](https://gtv.org/video/id=6097cb44db13300ca54df234)时间点20：17——
 
-> Dr. Fauci was just on Meet the Press and [@chucktodd](https://twitter.com/chucktodd?ref_src=twsrc%5Etfw) didn’t ask him a single question about the origin of COVID-19 and whether taxpayer dollars went to gain of function research in Wuhan. 
-> 
-> This is the most important question facing the world, yet few in the media are asking it. [pic.twitter.com/IjYcWnUc1j](https://t.co/IjYcWnUc1j)
-> — Rep. Mike Gallagher (@RepGallagher) [May 9, 2021](https://twitter.com/RepGallagher/status/1391406095470678017?ref_src=twsrc%5Etfw)
+七哥还有这两天战友们都说，昨天说七哥要给战友们弄两个看不着、摸不着然后呢你们都想要的东西，大家猜啥的都有，猜得没有一个猜对的，大家现在已经是过了这四年的灭共日子了，一说有什么好事儿——共产党灭亡！呵呵，都往共产党灭亡上，没那么简单灭亡，七哥说过了跟那没关系。
 
+第二个就是什么有大的某国什么重大决定，战友们，我可以告诉大家，为什么七哥敢一周以前给你们发出信息去，说未来的两周是灭共的当中的一个小风暴期，纽约对三家企业的除牌你知道什么概念吗兄弟姐妹们？咱们战友们现在好消息太多了，已经习惯了，不把什么好消息，除了共产党灭亡什么好消息都不算好消息了，这个意义之大、内部之较量、对中美之间经济之影响，相当于九指妖断修魏当时正式给路德打电话、给我发信息说，啊~我要凤凰农场我不干啦，你弄走吧！就耍流氓地威胁呢，就这时候就这意思，就这时候你觉得断修魏九指妖还能回到爆料革命吗？还能和好吗？她给1万个亿、她把她另外九个手指都剁了也不可能跟她和好，对吧？就这么简单的道理，那不是开玩笑的，而且是这个是没有任何的回头箭的。
 
+而且呢我看到了咱们路波切解释三大电信，三大电信除了经济上跟军方上、政府上还有各种金融衍生产品上的合作被断掉之外，还有两个是最核心的、大家没有看明白的——共产党最怕的是什么？所有三个电信在全世界会被封杀，共产党给中国人建了一个防火墙全靠的这三个供应商，还有华为——硬件供应商完蛋了吧，那全世界都要封掉你，所有的三大供应商就中国人出来手机不管用了，最大赢家是谁知道吗战友们？最大赢家是谁？你说说。
 
-众议员迈克·加拉格尔： 另一个星期天的节目(ABC的节目)，另一个错失的问询蝠奇博士(Fauci)这个简单问题的机会：美国纳税人的钱是否支持了武汉的「功能增强」性研究？（转推其自己之前的推文）
+文伟、罗斯福、吉米(战友名):”新中国联邦”，我知道你会说， “GTV”(战友回答)，错了！”G系列”(战友回答)，错了！都错了！今天你们答错了！一不听七哥直播智商直线下降。
 
+最大的影响——星链、太空计划、Elon Musk，他干掉了Elon Musk的中国汽车，它对这个世界的生产厂家之影响，我告诉你们，昨天上午苹果公司内部，昨天是星期六，大家可以问问去，苹果公司内部有一个非常好的战友，一个美国朋友说苹果正在严肃地、认真地把所有苹果生产线撤离出中共，最大诱因就是Elon Musk。记住我今天说的话，记住兄弟姐妹们我今天说的话，最大诱因就是Elon Musk。
 
+然后整个纽交所把三家电信商彻底除名，最可怕的事情——欧洲、日本、全世界都会跟随，澳大利亚、加拿大跟随，这三家通信商，那中国人所有买的手机，所有你买的苹果——别忘了共产党为了制止中国人上网、有信仰自由、获得真相，所有的手机都是中国版，到了外国也不管用。这是一个核心的意义，意义有多大？星空链、SpaceX、天空WiFi将是最大的赢家。大家说需要硬体是吗？记住啊，硬体是暂时的，最后是不需要硬体的，不需要硬体的。有一堆的办法能解决，这是秘密，以后再说，你们会看到的。
 
-> Another Sunday show, and another missed opportunity to ask Dr. Fauci this simple question: did US taxpayer dollars support gain of function research in Wuhan? [https://t.co/To3ICBawUW](https://t.co/To3ICBawUW) [pic.twitter.com/9IaAdQwua8](https://t.co/9IaAdQwua8)
-> — Rep. Mike Gallagher (@RepGallagher) [May 9, 2021](https://twitter.com/RepGallagher/status/1391475688104988673?ref_src=twsrc%5Etfw)
+另外一个，三大供应商做了这件事情，大家还有什么意义知道吗？第二个啊，看谁能蒙对啊？谁猜对了？谁猜对了？”明智康一”(战友名)，还有啥？还有谁？”天亮造福人类”(战友名):”防火墙倒塌”，”中概股下市”(战友回答)，只有七哥告诉你们中概股都得下市。这是，”防火墙倒塌”(战友回答)，全说错了，没有一个答对的。
 
+只要是中国电信商倒下在海外不能用，所有中国海外的金融系统一切不能用！记住，你必须使用海外的通信商，所有什么支付宝了、什么海外的中共的金融系统了，还有中国在海外的金融机构了，所有的这些外面一切不能用！中国共产党在国际上金融战友们记住，你有任何钱、你在使用中国的金融机构的钱，在海外你-就-不-安-全！而且谁都有权利获得，因为你属于外国——美国制裁国，对你的任何金融信息、任何财富信息、任何网络安全不在保护范围内。这叫做国与国之间，叫非保——国家对等国保护项下的项目。言外之意，你有的比特币、你有的虚拟币、你有的银行信息谁都可以偷。
 
+聪明的人，比如说美国人他不在美国偷，他找一个旁边波罗黎哥、找个巴哈马把你所有的信息都给你拿走、把你的钱全给你拿走你一点辙都没有。只要你拿中国通信商的手机，金融系统交易的项下项目都可以搞你，走着看。而且吧一说都有理，上哪去投诉没人搭理你，就这么严重！
 
-众议员吉姆·班克斯转推： 外国游说报道：[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的国有新闻机构 [#新华网](https://twitter.com/hashtag/%E6%96%B0%E5%8D%8E%E7%BD%91?src=hashtag_click)[#Xinhua](https://twitter.com/hashtag/Xinhua?src=hashtag_click) 在外国代理人登记法（[#FARA](https://twitter.com/hashtag/FARA?src=hashtag_click)）终于注册为外国代理人机构，卢比奥，参议员 [@SenatorLeahy](https://twitter.com/SenatorLeahy)[@RepJimBanks](https://twitter.com/RepJimBanks) 等人迫使司法部 [@TheJusticeDept](https://twitter.com/TheJusticeDept) 采取了这一行动。【转推这一新闻，新华网在司法部的要求三年后的今天才注册】
+还有一个战友们我再最后给大家个机会啊，今天大家回答的问题都不行啊！三大供应商倒下去，将对中国的国有企业和私人企业还有一个致命的影响，大家说一说，大家说说还有啥？
 
+我今天不是生日啊，阳历5月10号我不怎么过啊，5月10号才是我的生日呢。郝海东先生兄弟生日快乐！钊颖妹妹生日快乐！我们路波切生日快乐！呵呵呵，路德生日快乐！
 
+还有什么？”全停的资金链断了”、”闭关锁国了”、”数据”、”间谍”、”通讯”、”比特币”(战友回答) “哏屁、哏屁、SWIFT”（战友们的回答）, 没有一个人，“没法付钱”（战友们的回答），我刚才也说了开始脱钩，“房地产”（战友们的回答）都不是，战友们记得有个什么最核心吗？我们所有私人企业，中国的私人企业还有所有的中国国有企业，只要走到国外来，金融系统你离不开中国通信公司，中国金融系统你离不开通信公司，像中国的各种信用支付、各种卡你离不开，你必须使用外地供应商，这都可怕极了。
 
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)'s state-run news agency [#Xinhua](https://twitter.com/hashtag/Xinhua?src=hash&amp;ref_src=twsrc%5Etfw) finally registers as foreign agent under [#FARA](https://twitter.com/hashtag/FARA?src=hash&amp;ref_src=twsrc%5Etfw) after [@marcorubio](https://twitter.com/marcorubio?ref_src=twsrc%5Etfw) [@SenatorLeahy](https://twitter.com/SenatorLeahy?ref_src=twsrc%5Etfw) [@RepJimBanks](https://twitter.com/RepJimBanks?ref_src=twsrc%5Etfw) and others pressed [@TheJusticeDept](https://twitter.com/TheJusticeDept?ref_src=twsrc%5Etfw) to take action[https://t.co/7ghOj1UP7I](https://t.co/7ghOj1UP7I)
-> — Foreign Lobby Report (@foreign\_lobby) [May 9, 2021](https://twitter.com/foreign_lobby/status/1391334872455729153?ref_src=twsrc%5Etfw)
+第三件事情我们企业还要用什么？大家记住我们做企业、中上型企业、各种企业的所有跟海外联系的，还有什么兄弟姐妹吗？就是我们所有的企业都得加入外国的，比如说酒店集团，我们酒店用的Fidelio软件系统，Fidelio是酒店里的70%的最好的软件系统，就是五星酒店，Fidelio酒店系统还能用吗？北朝鲜的任何酒店系统，能让你跟海外酒店并网吗？
 
+你拿谁的并网？你在中国拿中国通信外国不让你并，那你上外国网站它翻墙不让你并，你用不用了？所有的五星级四星级饭店几乎百分之七八十都用Fidelio，你用不用？
 
+好，那么现在我们所有的贸易供应商、所有的对外贸易平台我们用的什么交易系统，大家去想想，Shopify, Shopify系统还让你上网吗？不让你上网了、不让你连了，那你怎么做贸易呢？那你是不是得VPN得跨墙呢？这样的系统你上翻墙是翻不了。那你怎么对外交易呢？那么这是在国内的。
 
-前纽约市长朱利安尼： 为什么“白人至上”被用作共产党的宣传 在Apple Podcast上收听「鲁迪·朱利安尼的常识」节目最新一集，或在此处获得完整的视频体验：[http://youtu.be/agTOM7p3LT8](https://t.co/JSuW3y9gxD?amp=1)
+那在海外的呢？那你从海外的机构你进到你的中国的Fidelio他也进不去呀，所有国内的酒店系统接的都是当地的光纤网络，它也接不上啊。你往外接你你就要翻墙，你往内接也叫翻墙，这个软件平台不接受你。
 
+贸易酒店所有服务，七哥是经营那么多年的，下一步就是这个双方互相排斥，就是真的到北朝鲜了，我们到了北朝鲜最大的感受是什么？当地网出不去、外地网进不来，就这么简单，它影响之深远，这是为什么马斯克太牛了，为啥苹果公司牛？苹果公司将出的新手机未来将排除中共的网络可能都。
 
+你不拆开防火墙你的网络就排除，而且美国议员正在一堆人在研究任何向苹果公司所谓的按照中共的法律设定的中国制式，还有像苹果商店、还有像各种所谓平台给中共国尊重中国法律不让上的东西，一概不准中国卖！一定是这结局的。它的防火墙从硬件上，从思科、从微软软件上到苹果，它将彻底完蛋。
 
-> WHY "White Supremacy" Is Being Used As COMMUNIST Propaganda
-> 
-> Listen to the latest episode of Rudy Giuliani's Common Sense on Apple Podcasts or get the full video experience here: [https://t.co/xzICw1K9iA](https://t.co/xzICw1K9iA) [pic.twitter.com/7crvTC41eE](https://t.co/7crvTC41eE)
-> — Rudy W. Giuliani (@RudyGiuliani) [May 9, 2021](https://twitter.com/RudyGiuliani/status/1391409158625370112?ref_src=twsrc%5Etfw)
+另外最后我们路波切时间快到了，还有十几分钟，我们大家要看到一个更加核心的问题。随着排除中概股和所有中概股以及最后倒霉的是什么？所有中国企业股——不光是国企的，所有私人企业的，然后导向的是什么战友们？——金融系统，所有在美国的基金都将倒霉，对吧兄弟姐妹们？所有的七哥在2018年说的，美国的养老基金、退休基金以及美国的各个部门领域的退休基金和计划，还有教育基金都将撤出中共国。
 
+所以，8：45是吧，好，我还有时间,我得把时间（定好）8：45，还有十分钟，我设置个时间我赶快干完，好好好好，所以说兄弟姐妹我说到这的时候，大家会想到什么，接下来对我们的影响是什么概念呢兄弟姐妹们？**你中国人的钱和中国人的东西逐渐跟世界彻底脱钩。**
 
+接上文——
 
-章家敦 (中国问题专家)： 到目前为止，已有581,607名美国人命丧中共病毒 [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 。 我们的政府为什么不对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 故意将此疾病传播至其境外而采取任何行动？ [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#冠状病毒大流行](https://twitter.com/hashtag/%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92%E5%A4%A7%E6%B5%81%E8%A1%8C?src=hashtag_click)
+[郭先生0509I如果这时还买民生的金融产品那已经不是傻了](https://gnews.org/zh-hans/1194910/)
 
-
-
-> As of this moment, 581,607 [#Americans](https://twitter.com/hashtag/Americans?src=hash&amp;ref_src=twsrc%5Etfw) have succumbed to [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw). Why isn’t our government doing anything about [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s deliberate spread of this disease beyond its borders? [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#Biden](https://twitter.com/hashtag/Biden?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Gordon G. Chang (@GordonGChang) [May 9, 2021](https://twitter.com/GordonGChang/status/1391473413605236747?ref_src=twsrc%5Etfw)
-
-
-
-
+[郭先生0509II战友投资汇款关门时间由5月17号改成7月7号](https://gnews.org/zh-hans/1194994/)
 
 0

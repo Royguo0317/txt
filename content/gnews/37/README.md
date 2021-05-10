@@ -1,31 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫宣布进入紧急状态，因网络攻击致油气管道关闭
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1197366/)
+## 从不会认错的中共政权
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1197804/)
 
-整理撰稿：蓝精灵
+字幕听译：乐禧禧 | 字幕PR：yyshere | 字幕：雨中漫步 | 评论： Filon | 评论翻译: Phoenix | 翻译PR: CharlesS | Page：青山
 
-为了关闭美国最大的管道之一，白宫周日宣布在17个州和哥伦比亚特区进入紧急状态，这条管道供应了美国东海岸约45％的燃料。
+![]()![](https://spark.adobe.com/page/6jlCXxaQfWK4q/images/bfc47ea9-eb40-42bd-9fbd-b2d26b719ffa.jpg?asset_id=04770d43-57ca-4258-9560-2d78fc957c13&amp;img_etag=%22e8001ce6eb1fa2b257b1f45f88b32049%22&amp;size=2560)
 
-美国运输部紧急声明，取消了关闭管道之后向“汽油，柴油，喷气燃料和其他精炼石油产品”短缺的地区提供援助的机动车和驾驶员的限制。
+[视频链接](https://mega.nz/folder/iw1W0QaR#7lzhEg9T4zqxKS8uV7GxaA)
 
-区域紧急声明影响以下地区：亚拉巴马州，阿肯色州，哥伦比亚特区，特拉华州，佛罗里达州，乔治亚州，肯塔基州，路易斯安那州，马里兰州，密西西比州，新泽西州，纽约州，北卡罗来纳州，宾夕法尼亚州，南卡罗来纳州，田纳西州，田纳西州，德克萨斯州和弗吉尼亚州。
+借助着全国开展的所谓非法摩托联合整治行动，上个月25日广州番禺石楼镇政府组织公安等部门的执法人员到广州番禺的石楼群星村莲花山码头开展专项整治行动。执法人员执法过程中手段粗暴蛮横 ，在没有任何通知村民的情行下，直接将村民停放在码头和家门口的摩托车进行没收。这导致当地村民情绪激动纷纷上前抢夺回被收缴的摩托车并开走。
 
-紧急声明将一直有效，直到紧急情况结束或2021年6月8日美国东部时间晚上11:59。
+所有人都会疑惑为何中共治下会经常以各种名义开展专项整治行动。为何不可以依照法律来治理社会，中共法律如此缺漏不堪吗？既然社会的动乱、交通的混乱来自摩托车和电动车，那又是谁从一开始就允许摩托车被大量销售出市场的呢？这一切现象的背后不过是各级政府打着专项行政命令的由头收割着百姓的财富。中共这种高高在上永远将民众当作罪犯看待的态度，让百姓的怒气深埋心底已久。把戏久玩，百姓也早已明白了其中的道道。随着当今政权的疯狂、放肆与肆无忌惮，从不会认错的中共，必将一头栽进其永远“政治正确”的深渊里再无法爬上来。
 
-Colonial Pipeline周五表示，在勒索软件对其系统进行了攻击之后，它正在关闭5,000多英里的管道。专家警告说，如果管道在未来几天内无法运行，天然气价格可能会开始上涨。截至周日，管道已停运三天。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-周日据报道，对关闭管道的网络攻击的调查与一个名为“黑马”的犯罪勒索软件团伙有关。
 
-参考链接：
+编辑：【英国伦敦喜庄园编辑部】
 
-[https://thehill.com/homenews/administration/552564-white-house-declares-state-of-emergency-over-cyberattack-that-shut](https://thehill.com/homenews/administration/552564-white-house-declares-state-of-emergency-over-cyberattack-that-shut)
-
-图片来源：[thehill.com](https://thehill.com)
-
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
+[!\[\]()!\[\](https://spark.adobe.com/page/6jlCXxaQfWK4q/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/6jlCXxaQfWK4q/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
 0
