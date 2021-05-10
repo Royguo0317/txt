@@ -1,11 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】莫德纳疫苗是基因型疫苗，将引发血栓
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1201862/)
+## 【香草诗词汇】我愿——一股清流的自白
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1202018/)
 
-4/16/2021 巴克迪博士：莫德纳疫苗是基因型疫苗；病毒刺突蛋白能激活能引发血栓的血小板，淋巴细胞努力杀掉胆敢复制病毒的细胞。而你的血管内壁细胞，捕获了这些病毒基因并复制，这样它们就会受到你自己的免疫系统攻击、破坏，这就是形成血栓的原因，反应强度取决于免疫增强反应的程度。
+作者：纽约香草山健身部 澄道
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/05/未命名的设计-14-1.png)
+山之高不止泉涌
+我愿奉献甘甜与清澈
+No you can’t
+同流合污
+
+天再括任翱苍鹰
+我愿展现无畏与探索
+No you can’t
+八纮一宇
+
+清流涌淌千年
+阻止於肆意敬地
+雄鹰翱翔万里
+折翅於妄為敬天
+
+只要泉我任流
+我愿意
+No you can‘t
+泉枯水止
+
+只要天我任飞
+我愿意
+No you can’t
+满天雾霾
+
+注：
+邪共泉枯水止
+心霾雾霾满天
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

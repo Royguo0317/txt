@@ -1,51 +1,86 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5/10/2021 财经快讯：网络攻击迫使美国一家主要管道运营商停运;汽车行业敦促美国会为其计算机芯片需求提供资金
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1201732/)
+## 川普总统最后悔的是没有把冠状病毒的事儿给整明白
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1201890/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/05/Picture1-28.jpg)
-[图片来源](https://www.Reuters.com/)
-
-**1.汽车行业敦促美国会为其计算机芯片需求提供资金**
-
-华盛顿（路透社）–美国汽车行业和联合汽车工人工会周五敦促国会将上百亿美元的政府资金用于促进半导体生产，以帮助满足因芯片短缺而被迫削减产量的汽车制造商的需求。美国汽车政策委员会、汽车及设备制造商协会和美国工会周五在一份联合声明中说， “国会应该优先考虑在美国本土组装汽车所需的半导体生产。这将确保汽车制造商有公平份额的芯片来满足消费者的需求，”。
-科技公司和其他行业一再敦促政府不要挑选 “赢家和输家”，或对解决芯片短缺的资金附加条件。根据劳工统计局的数据，美国机动车和零部件行业4月份损失了27,000个工作岗位。
+**摘要：在2021年4月25日的直播中，郭先生说川普总统现在最后悔的是“没有把冠状病毒事儿给整明白”；他错过了很多可以对中共采取实质行动的时机，当时任何一件事如果采取了行动，这个世界的命运就改变了；但是他执政后期发现了共产党确实像爆料革命和新中国联邦所说的一样，是有组织有计划地搞弱美国、搞乱美国、搞死美国（3F计划），而且操纵种族仇恨、进行灭白计划。他评价川普总统最大的政治遗产之一是支持彭佩奥国务卿定性新疆种族大屠杀。**
 
 
 
-> [Auto sector urges U.S. Congress to help fund its computer chip needs](https://www.oann.com/auto-sector-urges-u-s-congress-to-help-fund-its-computer-chip-needs/)
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10085441/Miles_20210425_p1.srt-1.txt)
 
+**川普总统最后悔的是没有把冠状病毒的事儿给整明白**
 
+**Miles Talks About What President Trump Is Regretting Now**
 
-**2.网络攻击迫使美国一家主要管道运营商停运**
+我们很喜欢川普总统，但是你必须尊重事实，他从来没有说内心里说下决心或想象过：我一刀把共产党干掉、我把这共产党政权我给你灭亡，没有。什么时候才开始的？真正让他开始的是在他快下台半年前，不超过10个月客观地说，“这个共产党这家伙有问题”。
 
-[Colonial Pipeline一份声明称，周五晚关闭了其从德克萨斯州到纽约，将精制汽油和喷气燃料运往东海岸的5500英里的管道。](https://www.breitbart.com/politics/2021/05/08/cyberattack-forces-a-shutdown-of-a-major-u-s-pipeline-operator/)
+We like President Trump very much. Yet, we must respect the fact that he never made up his mind to take down the CCP or to annihilate the communist regime. Never. When did he start to consider that? It was approximately half a year before the end of his administration, to be precise, less than 10 months before, when he realized, “The CCP is problematic.”
 
-[据《纽约时报》报道，网络攻击迫使管道关闭，此次攻击似乎是为破坏脆弱的能源基础设施而进行的一次重大尝试。《泰晤士报》报道，该管道运送东海岸45%的燃料供应，相当于每天250万桶。为了控制计算机的网络漏洞，运营商关闭了该系统。据报道，周五早些时候，管道沿线出现了中断，但目前还不清楚是否因受到攻击导致。](https://www.breitbart.com/politics/2021/05/08/cyberattack-forces-a-shutdown-of-a-major-u-s-pipeline-operator/)
+原来他在想什么？——先把共产党给弄弱，给弄得别那么牛叉，他没想把它给推翻，他也没想说把他的政权更迭。他就这10个月犹犹豫豫，也就冠状病毒开始后、大流行后他开始犹豫，特别是我们的科学家闫丽梦博士还有《路德访谈》119，这些事情对他触动非常大。我说这话都是经得起可以去验证去啊。
 
-**3.美航2021年下注扩张南美市场，但内乱和中共病毒病例激增正威胁着该地区业务成功**
+So what did he think before that? To weaken the CCP first and then make it less powerful. He never thought about overturning it or changing the regime. He was hesitating though during those 10 months. He started to hesitate after the breakout of coronavirus, the pandemic, especially after he watched our scientist Dr. Li-Meng Yan, as well as Lude’s Jan 19th (2020) show, which greatly touched him. What I said here can be verified.
 
-[美国航空公司南美扩张战略正经历着似乎永无止境的障碍。今年早些时候，该航空公司宣布了飞往智利、哥伦比亚和巴西等城市的新航班，以吸引休闲旅客，同时等待商务旅行的恢复。尽管大陆扩张航线一开始似乎很受欢迎，但在南美做生意很快就被证实有问题。当智利在4月份关闭边境时，飞往智利圣地亚哥的航班成为首批受到影响的航班之一。在哥伦比亚，美国人面临着一个新的挑战：当地内乱。航空公司在南美的成功仍然具有挑战性，这些新的和意外的障碍是航空公司所无法控制的。](https://www.businessinsider.com/american-airlines-civil-unrest-covid-threatening-south-america-success-2021-5)
+千万别小看1/19，别小看了我们博士军团，别小看了我们科学家。这就是为什么说媒体的力量有这么大。就是科学家的整个论文证据这几个报告出来以后，把《路德访谈》东西让他看过，据我所知，你们在班农先生的战斗室节目也能感受得到，他身边所有人都看过N遍，也都在论证，美国的这些生化科学家也对科学家的这个报告进行认真研究，包括这个1/19访谈。
 
-**4.许多大公司正计划使用“混合工作“模式，可能“梦游般“地陷入歧视**
+Don’t under-estimate the value of the January 19th show, our PhD Group, and our scientist Dr. Yan. This is why we say the media is very powerful. After the publication of Dr. Yan’s reports, we let him know the content covered by the Lude Media. As far as I know, and you can also sense from Mr. Bannon’s War Room Pandemic shows that: everyone around President Trump had reviewed those information multiple times and were verifying it. American biochemistry scientists were seriously looking into Dr. Yan’s reports, including the Lude show on January 19th.
 
-[随着中共病毒疫情限制的放松，世界各地的公司开始重新开放他们的办公室，欢迎员工回来工作，一些公司已经决定采用与疫情大流行前不同的工作文化。一些公司会让员工灵活地在办公室、在家里或其他地方工作，也就是“混合工作“。但专家说，这种看似更具包容性的混合工作方式，会”梦游般“地陷入歧视。每周在办公室工作五天的员工在相互联系、发展和适应方面具有不公平的优势，他们可以接触到老板，有更好的社交，有更多有趣的工作要做，并更有可能比那些经常在家工作的人更早获得晋升。](https://www.businessinsider.com/big-companies-firms-hybrid-working-model-return-work-risks-discrimination-2021-5)
+那么再一个就是由于我们爆料革命过去积累这四年的经验，我们博士军团、《路德访谈》、科学家报告，包括整个羟氯喹，包括整个后来的整个病情的发展，无一样不在我们的预告和警告之中。他这是一个国家体制，人家想弄明白很容易，是吧？他们获得的各种情报，他们都证明了我们说的是对的。
 
-**5.泄露文件显示，迪士尼要求员工完成 “白人特权清单”**
+In addition, because of the experiences that our Whistleblower Movement has accumulated in the past four years, everything that was predicted or warned by our PhD Group, Lude Interview, and Dr. Yan’s reports, including [the effect of] Hydroxychloroquine and the development of the pandemic afterwards, has all been confirmed. Note that it is very easy for a national intelligence system to figure out something, isn’t it? Based on the various intelligence that they obtained, they have proved what we said.
 
-[根据被泄露的最新员工培训材料，迪士尼公司的 “娱乐、信息和激励人们 “的使命将包括有关种族和白人特权的讲座。根据被描述为 “多样性和包容性计划 “的 “重塑明天 “材料，迪士尼公司正在教导其员工，美国是建立在 “系统性种族主义 “之上的，并鼓励新员工 “主动教育自己，了解结构性反黑人种族主义”。](https://www.washingtonexaminer.com/news/disney-america-founded-systemic-racism-white-privilege-checklist-new-employee-training)
+在这种情况下任何人他没有选择，不要说川普就是拜登就是亨特.拜登当上总统，亨特.拜登就坐到白宫的椅子上把他爹踢一边去，他也得选择想办法这共产党我得找你算账的事儿。
 
-**6.民生银行股价“跌跌不休”，市场发问“还有救吗”？**
+Under this circumstance, nobody would have other choices. Let alone Trump. Even if it were Biden or his son Hunter Biden to be the president, sitting in the chair of the White House, he would still have to figure out a way to hold the CCP accountable.
 
-[去年下半年以来，民生银行股价一直不见起色，近期随着该行2020年年报和2021年一季报的发布，股价更是开启了新一轮的“跌跌不休”，不少网友甚至公开跟民生银行股票“说拜拜”。事实上，除了在去年年报发布后被市场质疑业绩“大洗澡”之外，一季度民生银行更是成为唯一一家营收、净利润同时大降的上市股份行。上交所也对此有所关注，向民生银行“投递”了一封监管工作函。除此之外，民生银行的重要股东也宣布即将“解绑”并拟对民生银行股份进行清仓。](http://finance.sina.com.cn/jinrong/yh/2021-05-07/doc-ikmyaawc3959602.shtml)
+这时候找共产党算账的时候你能不能算得了帐，你算得了帐吗？你算得起吗？你有这能力吗？这个时候拜登的战略是什么？他是要联合盟友完了对付共产党，川普总统就认为我就拿经济我来弄死你。
 
-评论：引述郭文贵先生的话：“共产党的银行倒闭之前一定会找一些人替它顶雷，在这个时候你还买民生的金融产品，那不是傻了，那是活的不自在了，那没办法了”。
+[The problem is] whether you have the ability to hold the CCP accountable when you are ready to do so. Do you have the ability? Are you prepared for the consequence? So what is Biden’s strategy now? He wants to unite allies to go against the CCP together, while President Trump’s thought was to kill it by economic means.
 
-By 【金融组 – Opal】
+比如说，当时川普总统是真的摆在桌案子上，绝对是当时就是他本人[的]“空军1号”准备飞到台湾岛，本人的“空军1号”啊。我今天说这绝对是论证过的。川普总统最后就说：“这不就成世界大战了吗？这直接开战得了，算球了。”原话就是：“那你就搞这个就得了，就直接第三次世界大战开始吧。”这是川普总统。
 
-素材搜集: Totoro
+For instance, at that time President Trump put the plan on his desk, and he was absolutely ready to take his Air Force One to fly to Taiwan in person. What I said today has been verified. In the end President Trump said: this would become a world war, wouldn’t it, so let’s do it. His original words are: “So you can go ahead with this plan, and let’s go directly to the third world war.” So this is President Trump.
 
-校对：Apple
+所以最后我给他的幕僚给他说：“算了吧”。他没去。当时是他本人去呀。这是我告诉大家，他要飞去了台湾平稳地降落在那儿，他平稳降落在那儿干嘛啊？他们所说的就是对共产党竖手指头去了，台湾现在是世界一部分了。台湾的任何有一点脑子的有一点信息都知道，这是川普总统要去的，而且台湾那边都知道，吓得半死。最后川普总统没去，但后来川普总统他后悔，包括最后他的副国务卿，包括驻联合国大使都准备着都飞到和他在一起驻联合国大使啊，Kelly Craft就飞到这个台湾去，最后在空中给叫回来。
+
+In the end, I told him via his staff, “Let’s forget about it.” He didn’t end up going. At that time, he planed to go there in person. What I am telling you is that if he flied to Taiwan and landed there smoothly, what would that mean? To give the CCP his middle finger and tell the CCP that Taiwan is now part of the world. Anyone in Taiwan with a brain and the intelligence knew that President Trump wanted to be there, but they were scared to death after knowing this. President Trump didn’t end up going, but he regretted afterwards. People were ready to fly with him, including his Deputy Secretary of State and the ambassador to the United Nations, Kelly Craft. They were all called back in the air.
+
+现在看来，这个当时任何一件事如果他行动了，这个世界的命运就改变了。那么现在最后悔的是什么啊？就是所说的他没有把冠状病毒事儿给整明白，他后悔得现在天天肠子都青了。他很无聊啊，天天打高尔夫，是不是？你去想想天天打高尔夫的人多无聊啊？很无聊的。一个有世界当过世界上大统领的人，经历过世界上最巅峰的人，被人家一脚踢出去了，而且不是自动滑落或者自动地离开，然后呢有这么多机会没把握住，对他是个痛苦。
+
+Now looking back, if he made any of those things into action, the world’s fate would have already changed. What does he regret the most now? It is that he didn’t figure out the truth of the coronavirus. He is regretting to death everyday now. He feels so bored with playing golf everyday, doesn’t he? Think about how boring it would be for someone to play golf everyday. Very boring. A person who used to be the ultimate leader of the world and reached the peak of the world is now kicked out by others. Moreover, he didn’t leave voluntarily. And there had been so many opportunities but he didn’t seize them.  This is a pain to him.
+
+那么现在大家看到了，各种情报……你别忘了啊，川普总统像奥巴马总统这些人，人家是有享受着美国还可以看美国最顶级秘密的权力的，随便儿说句实在话，随便儿人家得到的信息都比咱们强多少亿倍啊，那人家还是享受国家最高元首的待遇的。
+
+Now everyone has seen it, all kinds of intelligence… Don’t forget that people like President Trump and Obama still enjoy the access to the top secrets of America. To be honest, the information that they can easily get is billions of times more than ours. They still enjoy the privileges of the supreme head of the nation.
+
+他现在看到世界上的各种病毒和世界上科学家都站出来，和世界上现在各种经济学家告诉他，就让他知道，美国对未来的下一段时间的经济整个的预测。他现在越来越后悔，就是他所有做的这一锅饭在掀锅的时候叫人家给踢出去了，换了个厨师，饭他只能闻也不能吃，而且这个饭能让人吃好、配好菜只有他，这是很痛苦的。
+
+He now sees all kinds of viruses spreading in the world and all scientists in the world standing up. All kinds of economists in the world tell him their prediction about the U.S. economy for the next period of time. He feels more and more regretful now. It is like that he had made a full pot of rice and then was kicked out of the kitchen when it was about the time to eat. The chef has been changed, so he can only smell the food but cannot eat it. Moreover, he was the only person who could make the rice tasteful and find good dishes to go with it. What a pain.
+
+不但如此，他看到了这个病毒的事情他没整明白，[对]福奇优柔寡断他不换是不是？而且几个大案子他不做，而且能有的权力他没用。包括对特别是中共这一块，他现在突然发现他当时对中共小看了，中共不仅仅是所谓的对他想象中的是美国的经济、偷盗、科技、整个就业的问题的核心和欺骗和耍弄，玩弄美国的政治钟摆效应，四年一次、八年一次操纵美国大选。
+
+Not only that, now he realized that he failed to figure out the truth of the virus, and he wasn’t decisive enough to fire Fauci, didn’t he? And there were also several big cases that he didn’t put into any actions and he didn’t use his power when he still had them, in particular the power that he had in dealing with the CCP. All of a sudden, he realized that he underestimated the CCP at that time, and the CCP was not just targeting the U.S. economy, stealing technology and jobs in the U.S., not just cheating Americans and playing with the political pendulum effect in the U.S., and manipulating the U.S. election every four or eight years, as what he had imagined.
+
+他更发现了共产党确实像我们爆料革命新中国联邦所说的一样，是有组织有计划的是要搞弱美国、搞乱美国、搞死美国，而且绝对是在操纵着世界上的种族仇恨，而且是有灭白的迹象，甚至越来越相信这灭白计划是真的有。而且在新疆大屠杀的事情他做得是很坚决的，支持了彭佩奥，他发现这个是他最大的政治遗产之一。
+
+He did figure out that the CCP was indeed like what our Whistleblower Movement and New Federal State of China said – it’s aiming at weakening, messing up, and destroying the U.S. with organized and careful plans, and that the CCP was absolutely manipulating the racial hatred in the world, with the sign of wiping out the white population. He was even more and more convinced that the plan of wiping out white people did indeed exist, so he was very decisive in acknowledging the Xinjiang massacre and supporting Pompeo on this matter. Later he found that this became one of his greatest political legacies.
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=608571df8aa4fd003f365a28](https://gtv.org/video/id=608571df8aa4fd003f365a28) (19:32-26:33)
+鸣谢：感谢黎明之前提供中文文本于 [https://www.gnews.org/zh-hans/1139908/](https://www.gnews.org/zh-hans/1139908/)
+
+* * *
+
+**翻译：【7PawBear（纽约香草山农场）】**
+**字幕：【Rock小哥】**
+**视频解码：【恒久忍耐】**
+**自媒体推广：【V%】【TINALS】**
+**校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0
