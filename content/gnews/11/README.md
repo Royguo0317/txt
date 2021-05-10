@@ -1,28 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫宣布进入紧急状态，因网络攻击致油气管道关闭
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1197366/)
+## 国际奥委会主席巴赫将安排6月访问日本
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1197768/)
 
 整理撰稿：蓝精灵
 
-为了关闭美国最大的管道之一，白宫周日宣布在17个州和哥伦比亚特区进入紧急状态，这条管道供应了美国东海岸约45％的燃料。
+富士新闻网周一援引多个身份不明的消息来源报道称，国际奥委会主席托马斯·巴赫（Thomas Bach）将对日本进行访问。
 
-美国运输部紧急声明，取消了关闭管道之后向“汽油，柴油，喷气燃料和其他精炼石油产品”短缺的地区提供援助的机动车和驾驶员的限制。
+日本媒体报道说，巴赫原定于将于5月17日参加在广岛市举行的火炬传递活动，但2020年东京奥运会的组织者表示，此次访问尚未得到证实。
 
-区域紧急声明影响以下地区：亚拉巴马州，阿肯色州，哥伦比亚特区，特拉华州，佛罗里达州，乔治亚州，肯塔基州，路易斯安那州，马里兰州，密西西比州，新泽西州，纽约州，北卡罗来纳州，宾夕法尼亚州，南卡罗来纳州，田纳西州，田纳西州，德克萨斯州和弗吉尼亚州。
+富士说，他访问的前提是解除为应对冠状病毒扩散而采取的任何紧急状态。
 
-紧急声明将一直有效，直到紧急情况结束或2021年6月8日美国东部时间晚上11:59。
-
-Colonial Pipeline周五表示，在勒索软件对其系统进行了攻击之后，它正在关闭5,000多英里的管道。专家警告说，如果管道在未来几天内无法运行，天然气价格可能会开始上涨。截至周日，管道已停运三天。
-
-周日据报道，对关闭管道的网络攻击的调查与一个名为“黑马”的犯罪勒索软件团伙有关。
+日本最新的紧急状态已于上周五延长至5月31日，促使东京方面在新闻发布会上说巴赫的访问“可能很困难”。
 
 参考链接：
 
-[https://thehill.com/homenews/administration/552564-white-house-declares-state-of-emergency-over-cyberattack-that-shut](https://thehill.com/homenews/administration/552564-white-house-declares-state-of-emergency-over-cyberattack-that-shut)
+[https://www.reuters.com/world/asia-pacific/ioc-chief-bach-visit-japan-being-arranged-june-fnn-2021-05-10/?taid=6098a8ba12982200014dc670&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/asia-pacific/ioc-chief-bach-visit-japan-being-arranged-june-fnn-2021-05-10/?taid=6098a8ba12982200014dc670&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-图片来源：[thehill.com](https://thehill.com)
+图片来源：[https://www.reuters.com](https://www.reuters.com)
 
 校对发布：Penny
 

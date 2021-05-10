@@ -1,51 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】一元店在美国的流行证明中共病毒摧毁经济
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1196746/)
+## 【有声读物】乱世里的母亲节——2021
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1197310/)
 
-作者：纽约香草山农场    四季
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+配音：香草山录音组 蒙古鸿雁
 
 
 
-零对冲5月8日报道，一元店在美国零售开业店中占据了主导地位。今年美国大型连锁店开张的3597家店铺中，约45%来自Dollar General、Dollar Tree和Family Dollar。
+![]()![](https://gnews.org/wp-content/uploads/2021/05/GNEW-GTV-MOS-LOGO-2-2-1-2.jpeg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/05/image-145.png)数据来源网络
 
-自2020年初病毒大流行以来，美国的经济复苏极不平衡，达到了危险的不平等水平。对工作中的穷人而言，大部分仍处在持续的经济困境中。工作岗位比COVID前的水平少了数百万个，还有数百万人继续领取刺激性支票。美国企业找到了一种方法，通过在全国各地开设大量的一元店来利用日益增长的在职贫穷的美国人群体。
 
-这场大流行导致数以百万计的美国人立即陷入贫困，并将继续留在那里——因为经济领域比COVID前的水平缺少了800万个工作岗位。这意味着，在COVID-19之前的世界里，数百万在中产阶级和上层阶级商店购物的人再也负担不起这类消费，为了生存，他们已经转到为低收入人群服务的一元店消费。美国公司正在利用这一趋势，以极快的速度扩大这些商店。
+妈妈是海洋，爸爸是大山……
 
-最近全国各地新的一元店的激增表明，经济复苏并不强劲，而是极其不平衡，少数人受益，多数人受损，留下了可能会持续一代人的深重伤痕。
+电影《妈妈再爱我一次》，是一部抱着纸巾才能看得完的电影，里面感人肺腑的歌曲唱得人心碎，泪如雨下：世上只有妈妈好，有妈的孩子像块宝，世上只有妈妈好，没妈的孩子像棵草……
 
-参考阅读：
+2019至今，无数位寻找孩子的香港母亲都一样，孩子永远是妈妈的宝贝，母爱无边。
 
-[Dollar Stores Dominate US Retail Store Openings](https://www.zerohedge.com/markets/dollar-stores-dominate-us-retail-store-openings)
+自古至今，关於妈妈的故事，例如，孟母三迁、聂树斌的妈妈、杨改兰的悲剧事件、太伏中学赵鑫的妈妈、无钱為孩子看病而在医院门口為孩子跪下的年轻妈妈，连曾经地位高贵的吴小晖的妈妈都在街上举着牌子为儿子喊冤，每一个妈妈背后都有著说不完的故事……
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+**文字版原文：[【圣城传声筒】乱世里的母亲节——2021](https://gnews.org/zh-hans/1189920/)**
 
-编辑/校对/发稿：Irene木木
+作者：纽约香草山香港部 小雯
 
+音频处理：喜山必胜Maverick
+发稿：正义的小新
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 **[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09224244/GNEW-GTV-MOS-LOGO-2-2-1-4.jpeg)
 
 
 
-
-
-+1
+0

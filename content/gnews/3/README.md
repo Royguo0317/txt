@@ -1,33 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《柳叶刀》称印度染疫死亡人数8月可能达百万
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1197272/)
+## 从不会认错的中共政权
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1197804/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+字幕听译：乐禧禧 | 字幕PR：yyshere | 字幕：雨中漫步 | 评论： Filon | 评论翻译: Phoenix | 翻译PR: CharlesS | Page：青山
 
-编辑上传   水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/05/I-4.jpg)newsindianexpress.com
-《法兰西24》5月9日报道，医学杂志《柳叶刀》(the Lancet)的一篇社论援引华盛顿大学(University of Washington)独立全球卫生研究中心健康指标与评估研究所(Institute for Health Metrics and Evaluation)的一项估计称，到今年8月1日，印度中共毒病死亡人数可能达到“惊人的”100万。
+![]()![](https://spark.adobe.com/page/6jlCXxaQfWK4q/images/bfc47ea9-eb40-42bd-9fbd-b2d26b719ffa.jpg?asset_id=04770d43-57ca-4258-9560-2d78fc957c13&amp;img_etag=%22e8001ce6eb1fa2b257b1f45f88b32049%22&amp;size=2560)
 
-印度卫生部周日公布，过去24小时内死亡人数为4092人，死亡总人数达到24.2万人。新病例增至40.4万例，略低于历史纪录，使疫情开始以来的总病例数达到2230万例。
+[视频链接](https://mega.nz/folder/iw1W0QaR#7lzhEg9T4zqxKS8uV7GxaA)
 
-新德里一直在努力控制疫情，其医疗体系已经不堪重负。许多专家怀疑，官方的死亡和病例数字比实际是严重低估了的。
+借助着全国开展的所谓非法摩托联合整治行动，上个月25日广州番禺石楼镇政府组织公安等部门的执法人员到广州番禺的石楼群星村莲花山码头开展专项整治行动。执法人员执法过程中手段粗暴蛮横 ，在没有任何通知村民的情行下，直接将村民停放在码头和家门口的摩托车进行没收。这导致当地村民情绪激动纷纷上前抢夺回被收缴的摩托车并开走。
 
-本月早些时候，路透社(Reuters)报道称，一个由政府设立的科学顾问论坛在3月初警告印度官员，一种传染性更强的新型冠状病毒正在该国蔓延。四名科学家告诉路透社，尽管他们发出了警告，但联邦政府并不打算实施重大限制来阻止病毒的传播。
+所有人都会疑惑为何中共治下会经常以各种名义开展专项整治行动。为何不可以依照法律来治理社会，中共法律如此缺漏不堪吗？既然社会的动乱、交通的混乱来自摩托车和电动车，那又是谁从一开始就允许摩托车被大量销售出市场的呢？这一切现象的背后不过是各级政府打着专项行政命令的由头收割着百姓的财富。中共这种高高在上永远将民众当作罪犯看待的态度，让百姓的怒气深埋心底已久。把戏久玩，百姓也早已明白了其中的道道。随着当今政权的疯狂、放肆与肆无忌惮，从不会认错的中共，必将一头栽进其永远“政治正确”的深渊里再无法爬上来。
 
-政府允许数百万人参加印度教宗教节日，而莫迪总理、执政党领导人印度人民党(BJP)和反对派政客为地区选举组织了政治集会。专家称，这些事件被证明是“超级传播者”。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-这篇社论呼吁印度政府采取“双管齐下”的策略，通过在全国范围内加强疫苗接种和减少这种致命病毒的传播来应对这种流行病，并批评到，“这一努力的成功将取决于政府认识到自己的错误，负责任的领导和透明度，以及实施以科学为核心的公共卫生应对措施。”
 
-该医学杂志称，莫迪扼杀批评的企图是“不可原谅的”，莫迪政府为此承担了巨大的压力，这也进一步促进各国政府需要努力寻求病毒来源的真相来维系国家稳定平息民愤。
+编辑：【英国伦敦喜庄园编辑部】
 
-各国呼吁调查中共病毒的呼声越来越高，甚至已经直指病毒为生物武器。国际社会因各国不断增加的死亡人数和经济困境及国民积累的愤怒，促使各国政府别无选择去寻找病毒真相，找到罪魁祸首为此买单。
-
-中共病毒是中共实验室制造的超限生物武器已经是无可抵赖的事实。这将是压垮该残暴政权的最后一根稻草。
-
-参考链接：
-
-[https://www.fr24news.com/a/2021/05/india-covid-19-deaths-could-reach-1-million-by-august-lancet.html](https://www.fr24news.com/a/2021/05/india-covid-19-deaths-could-reach-1-million-by-august-lancet.html)
+[!\[\]()!\[\](https://spark.adobe.com/page/6jlCXxaQfWK4q/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/6jlCXxaQfWK4q/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
 0
