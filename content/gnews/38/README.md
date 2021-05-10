@@ -1,9 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 书法作品：感恩七哥 生日快乐
-` LovingNew` [轉載自GNews](https://gnews.org/zh-hans/1201812/)
+## 没有人讨论如何治疗新冠病毒，这很蹊跷&#8230;
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1202277/)
 
-作者：防弹青年
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10093539/IMG_7133-13.jpg)
-+1
+5/7/2021 彼得•麦卡洛医生发现，如果我们能够尽早消除病毒的作用，治疗病人的免疫系统失调，然后再处理好血液凝结的问题。我们就可以让病人战胜这个病毒。然而，彼得•麦卡洛医生发现没有人讨论新冠病毒的治疗。所有的目光都只放在新冠疫苗上。当彼得•麦卡洛医生把他的发现做成视频上传到油管上时，他的视频竟然被油管强行下架了。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+0
