@@ -1,57 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【健身健心】练出强壮的手臂，锻炼肱二头肌
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1198833/)
+## TikTok任命中共军方公司董事为首席执行官
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1198756/)
 
-纽约香草山健身部Jack Li文阳
+翻译：康州盘古农场 – 格格巫
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02191345/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
+校对：康州盘古农场 – Mike Li
 
+编辑：康州盘古农场 – 心照
 
+发布：康州盘古农场 – 彩虹 Rainbow
 
-很多人不满意自己手臂瘦弱无力、肌肉松弛？想要迅速练出精瘦结实的手臂肌肉？虽然肌肉不可能短时间增长，但只要肯付出努力并采取正确的运动策略，短时间内就能看到效果，下面介绍几种锻炼的方法。
+**据娜塔莉·温特斯（NATALIE WINTERS）2021年5月4日发布**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09233100/lleast-2.png)
+TikTok（抖音海外版）的新任首席执行官是川普政府黑名单中一家与中共军事相关的科技公司的前高管
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10020702/%E5%9B%BE%E7%89%876-9.png)
+在获得最近的晋升之前，周寿子曾担任字节跳动（TikTok的母公司，誓言“促进社会主义核心价值观”）的首席财务官职位。在为字节跳动工作之前，他曾担任小米公司的首席财务官，小米公司是一家关联人民解放军而被列入黑名单的智能手机巨头。
 
-1.做哑铃集中弯举练习
+此项任命是对字节跳动公司参与中共推翻美国技术至上地位的回应，该公司首席执行官在2019年获得了工业和信息化部颁发的“中国特色社会主义杰出建设者”奖。
 
-坐在椅子上，双腿稍微张开，手持一个哑铃。身体前倾，便于持哑铃手的肘部能够触碰到同一边的膝盖上。向下摆动手臂，然后再朝肩膀方向举起，每组做10次，两只手交换，重复做这个动作。
+《华盛顿考察者》还指出，“他在3月之前还是总部位于中国首都的金山云的董事会成员，该公司的一款软件应用在1月被列入“国家安全”威胁的黑名单，还被涉嫌对中共镇压的维吾尔族穆斯林人口进行监控。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10020456/%E5%9B%BE%E7%89%877-6.png)
+原文链接：
 
-2.做划船式哑铃上提练习
+[https:thenationalpulse.com/ breaking/ tiktok-taps-military-techie-as-ceo/](https:thenationalpulse.com/%20breaking/%20tiktok-taps-military-techie-as-ceo/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-垂直站立，每只手各提一个哑铃，将哑铃提到大腿前方，与大腿平行。肘部向外弯曲，上提哑铃至胸部位置，并保持平行（做划船动作）。然后再慢慢地将哑铃放低到大腿前方，重复10次。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/05/图片8-5.png)
-
-3.做屈臂弹力带练习
-
-身体直立，双脚打开与肩同宽，脚下踩着弹力带，双手分别握住弹力带到两端，并放在身体侧，然后慢慢地抬起手臂，直到肩膀高度，然后慢慢放下手臂，放松弹力带的拉力，回到身体两侧。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10020912/%E5%9B%BE%E7%89%879-3.png)
-
-4.做锤式哑铃臂弯曲练习
-
-身体垂直站立，双手像抓住锤子一样抓住哑铃，双手各持一个哑铃。弯曲手臂，向肩膀方向推高哑铃，哑铃两端直上直下，慢慢的弯曲手臂，将哑铃方向（象拿铁锤钉钉子一样），然后再将哑铃朝肩膀方向举起来，重复做，每组10个。
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
