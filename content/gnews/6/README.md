@@ -1,11 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】劳伦斯·塞林博士：时辰已到，美中人民，携手并肩，消灭中共
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1201940/)
+## 2021年5月6日密翻快报[粤语版]塞林博士发布第二个视频揭露中共渗透美科研机构
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1202053/)
 
-5/5/2021 劳伦斯·塞林博士发布视频声明，以中共军方科学家姜世勃和杜兰英为例，揭露中共军方对美国病毒研究项目的长期深入渗透；塞林博士呼吁美国人与中国人站在一起消灭中国共产党。
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07051047/IMAGE-2021-05-07-154601.jpg)](https://gtv.org/video/id=609818e2db13300ca54e50c8)
+[点击图片观看视频](https://gtv.org/video/id=609818e2db13300ca54e50c8)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+新闻总结：
 
-0
+1. 中共媒体：印度变异病毒进入中国
+2. 中共国消费者指出5G的五大骗局
+3. 塞林博士发布第二个视频揭露中共渗透美国科研机构
+4. 网络视频爆出：与接种疫苗的人有接触的女性易流产或不孕
+5. 中共利用生物武器给世界造成巨大伤害的同时，也在武器化债务协议进行侵略和剥削
+
+
+
+
++1
