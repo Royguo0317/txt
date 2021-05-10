@@ -1,31 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 科技前沿——SpaceX接受狗狗币付款，用于明年发射月球任务
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1196237/)
+## 日本财经简讯 2021/05/08
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1196452/)
 
-整理撰稿：蓝精灵
+By Tokyo Sakura Finance Group
 
-SpaceX将于明年第一季度发射“ DOGE-1登月任务”，埃隆·马斯克（Elon Musk）的商业火箭公司将接受加密货币狗狗币作为付款。
+（Translation: Orange文橘        Manuscript: Totoro）
 
-Geometric Energy Corporation在周日宣布了由狗狗币资助的任务，但声明并未透露任务的财务价值。
+![](https://lh3.googleusercontent.com/JUdkv-qkFLBxMBYI3776hPbjoHy-KnF1mBHvg-GwR7x-OhEZzoiSkyxjiVBkPC06dChT7YeqDv7ySMVDij7Y7iPgbOFXUCocwn-x4Wym4QqOgoJwT2YChs9IJAdNv0MXQgG-t7Fh)
+The picture was designed by “唯真不破小蜜蜂”
 
-“我们很高兴将DOGE-1发射到月球上！”，SpaceX商业销售副总裁Tom Ochinero引用了Geometric Energy发布的声明。“该任务将证明加密货币在地球轨道之外的应用，并为行星际贸易奠定基础”。
+⭐️Uniqlo’s domestic sales in Japan in April increased by 84.5% compared with the same period in 2020. Under the influence of the CCP virus, up to 83 branches were temporarily closed.
 
-马斯克今年的推文将曾经一度晦涩难懂的数字货币（最初是社交媒体的笑话）变成了投机者的梦想。
+优衣库四月份日本国内的销售额比去年同期增加了84.5%，在中共病毒的影响下，最多曾有83家分店临时停业。
 
-编者简评：
+⭐️Under the influence of the tight supply of semiconductors in the world, the Nintendo game console-Nintendo Switch’s production in March 2022 is expected to be 25.5 million units, 11.5% less than the previous period. The sales and profits are expected to decrease by 9% and 22% accordingly.
 
-基于自由流通的，不受限制的数字货币是主流，是未来。随着星链网络的闭合，天才马斯克貌似正在测试如何把数字货币变成太空币，星链网络是太空数字币的必要条件，这一过程就是一个去中心化的过程，也是重塑世界金融政治格局的过程。
+在世界半导体供给紧张的影响下，任天堂游戏机-任天堂Switch的2022年3月预计生产量为2550万台比前期减少11.5%，预计销售额及利润也可能相应减少9%和22%。
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+⭐️A Japanese recruitment company found out through a questionnaire on May 8, that among 1,040 people more than 60% of Japanese believed that the CCP virus was related to their changing jobs, and more than 30% showed their concern about their company’s business strategy and directions.
 
-参考链接：
+日本猎头公司Recruit通过一个1040人参加的调查问卷（5月8日）发现，6成以上的日本人认为中共病毒与他们换工作的行为有关，3成以上的人表示对其公司的经营策略与方向感到不安。
 
-[https://www.reuters.com/business/finance/spacex-accepts-dogecoin-payment-launch-lunar-mission-next-year-2021-05-09/?taid=609861454492f900010b98f0&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/business/finance/spacex-accepts-dogecoin-payment-launch-lunar-mission-next-year-2021-05-09/?taid=609861454492f900010b98f0&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+⭐️Honda and Toyota’s vehicle sales in China increased by 31.7% and 12.2% over the same period last year and reached the highest sales in history. Nissan vehicle sales also increased by 4.4%.
 
-图片来源：[https://www.reuters.com](https://www.reuters.com/business/finance/spacex-accepts-dogecoin-payment-launch-lunar-mission-next-year-2021-05-09/?taid=609861454492f900010b98f0&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+本田与丰田在中共国的汽车销售量比去年同期增加了31.7%和12.2%并达到了历史最高销售量，日产也增加了4.4%。
 
-校对发布：Penny
-
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
+*发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01183841/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
 0

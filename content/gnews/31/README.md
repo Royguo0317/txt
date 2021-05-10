@@ -1,51 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》新闻快讯（视频版）: 20210508闫博士参加战斗室节目
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1196688/)
+## 【战友心声】为天堂的妈妈献上一束鲜花
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1196958/)
 
-《路德社》出品
-
-以下视频是详细内容：
-
-主要内容：
-
-1.过去72小时内很多人站出来说闫博士一开始站出来呼吁病毒来自实验室是对的
-
-2.闫：很多证据表明这个病毒不止来自于功能增强实验
-
-3.接下来需要验证究竟是意外泄漏还是故意投放
-
-4.还要调查PLA以及哪些海外研究者参与了
-
-5.要对CCP、参与的科学家追责
-
-6.不除掉CCP,在其控制下的实验室是查不到真相的
-
-7.但可以调查宣传自然起源的科学家们，看看它们的资金学术纪录以及是谁让它们宣扬自然起源
-
-8.病毒起源、虚假宣传都是超限生物战争的部分
-
-9.福奇资助资金最大的流向是港大和北京CDC武毒所
-
-10.还有其他证据左证福奇有勾连
-
-11.西方反应不够快是因为人太善良了，而这一点在徐德忠的书里也写明了
-
-12.需要人们明白CCP的邪恶，明白CCP的思考逻辑和行为方式
-
-13. 政府需要出台有力政策甚至新法短期内对CCP追责
-
-14.还该问福奇和CDC的头头为什么不让人们理解廉价安全的药物反而只推高速开发的疫苗
+作者：纽约香草山健身部 幸福鸟
 
 
 
-翻译：路德社翻译组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
-制作：路德社视频组
 
-审核校对：玫瑰新闻组
 
-上传排版：玫瑰新闻组
+又是一年五月天，又是一年母亲节。今年的母亲节却是我第一个没有妈妈的母亲节！以往每逢母亲节，我都会给远在北京的妈妈送去一束美丽的鲜花，可现在再也没有机会了！
+
+![orange petaled flowers](https://images.unsplash.com/photo-1490750967868-88aa4486c946?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&amp;ixlib=rb-1.2.1&amp;auto=format&amp;fit=crop&amp;w=1000&amp;q=80)Photo by [Sergey Shmidt](https://unsplash.com/@monstercritic?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/flower?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
+
+去年五月二十七日，我亲爱的妈妈，在北京家的床上于睡梦中安祥地走了……
+
+由于万恶的中共病毒，在妈妈生命垂危之际，作为妈妈最爱的小女儿，我却不能前往相伴；在妈妈升天之后，也没能回去送妈妈一程，道声永别！中共病毒不知害得多少人命丧黄泉，家破人亡，或落下终身遗憾！
+
+多亏有七哥开启的爆料革命，自从妈妈离开人间以来，我只痛苦了一天，而且还是因为那一天与已离开人世的妈妈在灵性层联系不上而造成的痛苦。后来，联系建立之后，上天让我继续作为幸福鸟为在苦难中挣扎的、迷失的灵魂带去欢乐和喜悦……小小的幸福鸟在天有天使团（我妈妈也在其中）的庇护，在人间有先生做我的保护神，同时还有七哥的爆料革命以及无数志同道合的战友们。幸福鸟才能够化悲痛为力量，继续灭共的旅程！
+
+在第一个没有妈妈的母亲节的今天，我想为天堂的妈妈献上一束美丽的鲜花。 我仰望蓝天，寄托对妈妈无尽的哀思与怀念！我低头双手合十，祝福远在天堂的妈妈一切安好。祈求上天保佑我们能够早日灭共，让世界早日恢复平静与安宁，保佑我们新中国联邦繁荣昌盛！
+
+（本文仅代表作者观点）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+
 
 0

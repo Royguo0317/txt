@@ -1,29 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 随意扔垃圾的国家如何做负责任的大国
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1196822/)
+## 5月8日美国政要和政评家反共推特精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1197286/)
 
-撰稿人：Microkevin
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09210250/101-2.jpg)图片来自网络
-今天网易有一则新闻说中共国的长征五号,即将有20多吨重的太空垃圾,随机坠落地面，还说美国等国家,没有权力为保护地面人类安全而击落垃圾残骸。我真的好想问问CCP的喉舌们，你们只是说30多年没砸到过人，通篇文章也没说一声自己有控制坠落地点的能力，并且也不敢保证砸不到人，那你还不让别人为了自保而击落残骸？你是什么意思？眼瞅着被砸？你是不是想说砸到人了你包赔，真砸到人了你会不会抵赖呢？你这30年来每次玩的“随机坠落”和TMD一个乡野流氓随地大小便有什么区别？你还TMD有脸吹嘘自己是有礼有节，负责任的大国？
+众议员迈克·加拉格尔： 福奇博士(Fauci)刚刚见了媒体，主持人[@chucktodd](https://twitter.com/chucktodd)没问他任何一个关于新冠病毒COVID-19的起源，以及纳税人的钱是否流向了武汉的「功能增强」性研究的问题。 这是世界面临的最重要的问题，但却几乎没有媒体去问。
 
-我认为美国是有权利去击落，对地球任何国家的人，有人道主义威胁的类似这种太空垃圾的。因为美国毕竟被联合国委托为“世界警察”，也是北约、亚约成员国里最有实力的国家。只是美国愿不愿意去做而已，需不需要利用此次事件达到对邪恶势力的更大的战略打击。
 
-另外，我很赞同路德社的看法，这个事件如果造成了大的人道灾难，将会是除病毒和种族大灭绝之外的另一个直插CCP心脏的尖刀。
 
-不管这个无法控制落点的太空垃圾，还是病毒抑或是种族大灭绝，都恰恰证明了CCP这个组织完全是反人类的。完全不把任何人命放在眼里。CCP这些年,无论对内还是对外都将中共国最烂的哲学“厚黑学“发挥到了极致，用尽一切无底线的手段只为自己攫取利益，对世间任何事物毫无怜悯之心。纵观CCP近百年的历史，对人类社会的发展没有一丁点的贡献，只有不断的制造一个又一个令人瞠目结舌的人道大灾难，比如三年大饥荒，计划生育强制堕胎，文革，8964，哪一个不是世界级的人道大灾难。2012年提出的人类命运共同体已经明确了CCP的目的就是利用一切手段奴役全人类，为几个家族服务。
+> Dr. Fauci was just on Meet the Press and [@chucktodd](https://twitter.com/chucktodd?ref_src=twsrc%5Etfw) didn’t ask him a single question about the origin of COVID-19 and whether taxpayer dollars went to gain of function research in Wuhan. 
+> 
+> This is the most important question facing the world, yet few in the media are asking it. [pic.twitter.com/IjYcWnUc1j](https://t.co/IjYcWnUc1j)
+> — Rep. Mike Gallagher (@RepGallagher) [May 9, 2021](https://twitter.com/RepGallagher/status/1391406095470678017?ref_src=twsrc%5Etfw)
 
-我希望所有国家能够尽快认清CCP的本来面目，为全人类的福祉尽快采取有效行动和新中国联邦一起Take down the CCP。
 
-(本文纯属个人观点)
 
-*审稿**&编辑：MG1*
+众议员迈克·加拉格尔： 另一个星期天的节目(ABC的节目)，另一个错失的问询蝠奇博士(Fauci)这个简单问题的机会：美国纳税人的钱是否支持了武汉的「功能增强」性研究？（转推其自己之前的推文）
 
-参考文献
 
-**[美军如果击落长征5号火箭残骸，将开创一个危险的先例](https://www.163.com/dy/article/G9HLPMCP0515DJ1P.html)**
 
-[5/8/2021 路德时评（路博艾谈）：长征5号火箭残骸坠落为什么引起美媒担忧？王毅说担心什么样的单边行动对准中共国？布林肯联合国警告王毅常任理事国违反国际法一样会被追责！](https://www.youtube.com/watch?v=e31Nons6gbA)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08091455/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
+> Another Sunday show, and another missed opportunity to ask Dr. Fauci this simple question: did US taxpayer dollars support gain of function research in Wuhan? [https://t.co/To3ICBawUW](https://t.co/To3ICBawUW) [pic.twitter.com/9IaAdQwua8](https://t.co/9IaAdQwua8)
+> — Rep. Mike Gallagher (@RepGallagher) [May 9, 2021](https://twitter.com/RepGallagher/status/1391475688104988673?ref_src=twsrc%5Etfw)
+
+
+
+众议员吉姆·班克斯转推： 外国游说报道：[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的国有新闻机构 [#新华网](https://twitter.com/hashtag/%E6%96%B0%E5%8D%8E%E7%BD%91?src=hashtag_click)[#Xinhua](https://twitter.com/hashtag/Xinhua?src=hashtag_click) 在外国代理人登记法（[#FARA](https://twitter.com/hashtag/FARA?src=hashtag_click)）终于注册为外国代理人机构，卢比奥，参议员 [@SenatorLeahy](https://twitter.com/SenatorLeahy)[@RepJimBanks](https://twitter.com/RepJimBanks) 等人迫使司法部 [@TheJusticeDept](https://twitter.com/TheJusticeDept) 采取了这一行动。【转推这一新闻，新华网在司法部的要求三年后的今天才注册】
+
+
+
+> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)'s state-run news agency [#Xinhua](https://twitter.com/hashtag/Xinhua?src=hash&amp;ref_src=twsrc%5Etfw) finally registers as foreign agent under [#FARA](https://twitter.com/hashtag/FARA?src=hash&amp;ref_src=twsrc%5Etfw) after [@marcorubio](https://twitter.com/marcorubio?ref_src=twsrc%5Etfw) [@SenatorLeahy](https://twitter.com/SenatorLeahy?ref_src=twsrc%5Etfw) [@RepJimBanks](https://twitter.com/RepJimBanks?ref_src=twsrc%5Etfw) and others pressed [@TheJusticeDept](https://twitter.com/TheJusticeDept?ref_src=twsrc%5Etfw) to take action[https://t.co/7ghOj1UP7I](https://t.co/7ghOj1UP7I)
+> — Foreign Lobby Report (@foreign\_lobby) [May 9, 2021](https://twitter.com/foreign_lobby/status/1391334872455729153?ref_src=twsrc%5Etfw)
+
+
+
+前纽约市长朱利安尼： 为什么“白人至上”被用作共产党的宣传 在Apple Podcast上收听「鲁迪·朱利安尼的常识」节目最新一集，或在此处获得完整的视频体验：[http://youtu.be/agTOM7p3LT8](https://t.co/JSuW3y9gxD?amp=1)
+
+
+
+> WHY "White Supremacy" Is Being Used As COMMUNIST Propaganda
+> 
+> Listen to the latest episode of Rudy Giuliani's Common Sense on Apple Podcasts or get the full video experience here: [https://t.co/xzICw1K9iA](https://t.co/xzICw1K9iA) [pic.twitter.com/7crvTC41eE](https://t.co/7crvTC41eE)
+> — Rudy W. Giuliani (@RudyGiuliani) [May 9, 2021](https://twitter.com/RudyGiuliani/status/1391409158625370112?ref_src=twsrc%5Etfw)
+
+
+
+章家敦 (中国问题专家)： 到目前为止，已有581,607名美国人命丧中共病毒 [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 。 我们的政府为什么不对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 故意将此疾病传播至其境外而采取任何行动？ [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#冠状病毒大流行](https://twitter.com/hashtag/%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92%E5%A4%A7%E6%B5%81%E8%A1%8C?src=hashtag_click)
+
+
+
+> As of this moment, 581,607 [#Americans](https://twitter.com/hashtag/Americans?src=hash&amp;ref_src=twsrc%5Etfw) have succumbed to [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw). Why isn’t our government doing anything about [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s deliberate spread of this disease beyond its borders? [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#Biden](https://twitter.com/hashtag/Biden?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Gordon G. Chang (@GordonGChang) [May 9, 2021](https://twitter.com/GordonGChang/status/1391473413605236747?ref_src=twsrc%5Etfw)
+
+
+
+
+
 0

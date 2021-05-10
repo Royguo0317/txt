@@ -1,34 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本财经简讯 2021/05/08
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1196452/)
+## 加拿大开放留学4万名额25小时抢完
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1196713/)
 
-By Tokyo Sakura Finance Group
+整理撰稿：蓝精灵
 
-（Translation: Orange文橘        Manuscript: Totoro）
+大纪元报道：联邦移民部5月6日开始接受9万名临时工及留学生申请永久居留，留学生的名额有4万个，在开放申请25小时后就已经满额，移民部以先来先得的处理原则，但没能提交申请的留学生们也不要失去希望，移民部很可能会开放补充名额。
 
-![](https://lh3.googleusercontent.com/JUdkv-qkFLBxMBYI3776hPbjoHy-KnF1mBHvg-GwR7x-OhEZzoiSkyxjiVBkPC06dChT7YeqDv7ySMVDij7Y7iPgbOFXUCocwn-x4Wym4QqOgoJwT2YChs9IJAdNv0MXQgG-t7Fh)
-The picture was designed by “唯真不破小蜜蜂”
+移民部（IRCC）表示，留学生毕业生的配额已于美国东部标准时间5月7日下午1:01分达到。移民部于5月6日下午 12:00左右，开放针对基本外国临时工人和国际毕业生的六类移民项目。
 
-⭐️Uniqlo’s domestic sales in Japan in April increased by 84.5% compared with the same period in 2020. Under the influence of the CCP virus, up to 83 branches were temporarily closed.
+移民部表示预计今年将处理这40,000份留学生移民申请。该部门的目标是在2021年使401,000名新移民入境。
 
-优衣库四月份日本国内的销售额比去年同期增加了84.5%，在中共病毒的影响下，最多曾有83家分店临时停业。
+参考链接：
 
-⭐️Under the influence of the tight supply of semiconductors in the world, the Nintendo game console-Nintendo Switch’s production in March 2022 is expected to be 25.5 million units, 11.5% less than the previous period. The sales and profits are expected to decrease by 9% and 22% accordingly.
+[https://www.epochtimes.com/gb/21/5/9/n12935312.htm](https://www.epochtimes.com/gb/21/5/9/n12935312.htm)
 
-在世界半导体供给紧张的影响下，任天堂游戏机-任天堂Switch的2022年3月预计生产量为2550万台比前期减少11.5%，预计销售额及利润也可能相应减少9%和22%。
+校对发布：Penny
 
-⭐️A Japanese recruitment company found out through a questionnaire on May 8, that among 1,040 people more than 60% of Japanese believed that the CCP virus was related to their changing jobs, and more than 30% showed their concern about their company’s business strategy and directions.
+\*以上仅代表作者观点，不代表Gnews平台\*
 
-日本猎头公司Recruit通过一个1040人参加的调查问卷（5月8日）发现，6成以上的日本人认为中共病毒与他们换工作的行为有关，3成以上的人表示对其公司的经营策略与方向感到不安。
-
-⭐️Honda and Toyota’s vehicle sales in China increased by 31.7% and 12.2% over the same period last year and reached the highest sales in history. Nissan vehicle sales also increased by 4.4%.
-
-本田与丰田在中共国的汽车销售量比去年同期增加了31.7%和12.2%并达到了历史最高销售量，日产也增加了4.4%。
-
-*免责申明：本文只代表作者观点，与GNews网站无关。*
-*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01183841/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
 0
