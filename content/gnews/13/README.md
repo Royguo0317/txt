@@ -1,35 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 三家中国电信公司将被纽交所除名
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1197711/)
+## 【有声读物】美国的台湾政策不应模糊不清
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1197932/)
 
-翻译：康州盘古农场 – TrueSky
+配音：香草山录音组 熊井（文兰）
 
-校对：康州盘古农场 – 格格巫
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-编辑：康州盘古农场 – 傻小子
 
-发布：康州盘古农场 – 彩虹 Rainbow
 
-**据《路透社》, 2021年5月8日报道：**
-![]()![](https://gnews.org/wp-content/uploads/2021/05/chinaa44y-2-2.png)
-FIEL照片。 2021年1月8日，在中国上海爆发冠状病毒疾病（COVID-19）期间，在一条街道上可以看到中国联通的标志。路透社/Aly Song
 
-三家中共国电信公司周五表示，根据美国去年的投资限制，它们将被纽约证券交易所除名。
 
-周五早些时候，中国移动(0941.HK)、中国联通(0762.HK)和中国电信(0728.HK)分别发布公告称，在这些公司上诉未果的情况下，他们预计纽约证券交易所将通知监管机构将它们摘牌。
 
-纽约证券交易所的一位发言人拒绝对此发表评论。
 
-除名源于美国前总统唐纳德-川普针对中国科技公司实施的投资限制。在两个世界最大经济体之间持续的紧张关系中，尽管有企业反对，但美国总统乔-拜登还是保留了这些规则。
+5月4日，美国海军陆战队高级研究员马修·克劳奇（Matthew R. Crouch）在《国防新闻》（Defense News）上撰文，“美国的台湾政策不应模糊不清，否则有可能破坏美国在该地区的可信度”。
 
-这些公司表示，他们的退市申请将在交易所向美国证券交易委员会提交25号表格后10天内生效。
+文章指出，美国目前在台湾问题上态度模糊不清，在南中国海放弃立场，在香港失去自由时又持有失败的政策，使越来越多的人认為，美国在印太地区失去了影响力和对中共国的威慑力，这助长了中共国妄图吞并台湾的野心。
 
-原文链接：[https://www.reuters.com/business/media-telecom/three-chinese-telecom-companies-be-delisted-by-nyse-2021-05-07/](https://www.reuters.com/business/media-telecom/three-chinese-telecom-companies-be-delisted-by-nyse-2021-05-07/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-+1
+**文字版原文：[【热点播报】美国的台湾政策不应模糊不清](https://gnews.org/zh-hans/1175473/)**
+
+作者：纽约香草山美食部 蓝天大海
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

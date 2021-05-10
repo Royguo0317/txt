@@ -1,58 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月8日美国政要和政评家反共推特精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1197286/)
+## 关于面向墙内民众的灭共宣传之我见
+` HML vancouver sailing` [轉載自GNews](https://gnews.org/zh-hans/1197274/)
 
-众议员迈克·加拉格尔： 福奇博士(Fauci)刚刚见了媒体，主持人[@chucktodd](https://twitter.com/chucktodd)没问他任何一个关于新冠病毒COVID-19的起源，以及纳税人的钱是否流向了武汉的「功能增强」性研究的问题。 这是世界面临的最重要的问题，但却几乎没有媒体去问。
+作者：温和华扬帆农场  陌冰仙
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10000500/%E6%9C%AA%E5%91%BD%E5%90%8D%E7%9A%84%E8%AE%BE%E8%AE%A1-3-3.jpg)
+中共通过官媒、喉舌控制舆论，对老百姓进行潜移默化的洗脑，让老百姓认为中共是维护“国家统一”、“社会稳定”的“伟大”存在，使得包括一些会翻墙的网民在内的广大老百姓被蒙在鼓里，无法认识到中共专制独裁、极权主义的本质，也无法分清楚政党、政府和国家之间的区别。
 
+新中国联邦，虽然有GNEWS和GTV这样的宣传平台，但因为还有很多不翻墙的老百姓，无法快速让大量民众觉醒。
 
+那么，我们应该如何扩大墙内，让更多人看到我们的宣传呢？
 
-> Dr. Fauci was just on Meet the Press and [@chucktodd](https://twitter.com/chucktodd?ref_src=twsrc%5Etfw) didn’t ask him a single question about the origin of COVID-19 and whether taxpayer dollars went to gain of function research in Wuhan. 
-> 
-> This is the most important question facing the world, yet few in the media are asking it. [pic.twitter.com/IjYcWnUc1j](https://t.co/IjYcWnUc1j)
-> — Rep. Mike Gallagher (@RepGallagher) [May 9, 2021](https://twitter.com/RepGallagher/status/1391406095470678017?ref_src=twsrc%5Etfw)
+我个人认为，可以从以下三点入手：
 
+**一、渗透墙内新闻媒体和社交平台**
 
+我们可以在QQ等平台，含沙射影地说一些可能引起墙内民众思考的言论。比如笔者就曾经在一个群里和群主辩论过香港反送中运动的合理性，虽然说没能说服对方放弃做一个粉红，但是至少让很多人知道了相关的信息，并且我还找到了一个反共的志同道合的网友。另外，由于笔者知道群主和管理员并没有随意举报他人的习惯，因此这次行动我认为很成功。
 
-众议员迈克·加拉格尔： 另一个星期天的节目(ABC的节目)，另一个错失的问询蝠奇博士(Fauci)这个简单问题的机会：美国纳税人的钱是否支持了武汉的「功能增强」性研究？（转推其自己之前的推文）
+笔者还有一位朋友在微博，也和一些粉红辩论了关于反送中运动的事情。虽然粉红们集体“义正言辞”地反怼，他同样无法说服这些粉红，但是微博毕竟是一个浏览量很大的平台，这些言论说不定就会让一些墙内民众看到后就会思考。
 
+**二、在墙内公共场所宣传**
 
+在墙内公共场所留下关于爆料革命的信息，引导路过的民众去观看GNEWS和GTV的文章和视频。
 
-> Another Sunday show, and another missed opportunity to ask Dr. Fauci this simple question: did US taxpayer dollars support gain of function research in Wuhan? [https://t.co/To3ICBawUW](https://t.co/To3ICBawUW) [pic.twitter.com/9IaAdQwua8](https://t.co/9IaAdQwua8)
-> — Rep. Mike Gallagher (@RepGallagher) [May 9, 2021](https://twitter.com/RepGallagher/status/1391475688104988673?ref_src=twsrc%5Etfw)
+这个方法虽然笔者没有尝试过，但是听战友们讲起过，在一些相对偏僻的地方写下GTV的网址，在纸币上写下爆料革命宣传语，都是很好的宣传方法，当然风险也是有的。
 
+为了保证自身安全，最好在晚上进行，并且在贴纸条、放传单的时候在诸如卫生间、更衣室等没有监控摄像头的环境下进行，保管、携带的时候一定要放在隐蔽的地方。
 
+**三、在未被中共屏蔽的海外网站传播**
 
-众议员吉姆·班克斯转推： 外国游说报道：[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的国有新闻机构 [#新华网](https://twitter.com/hashtag/%E6%96%B0%E5%8D%8E%E7%BD%91?src=hashtag_click)[#Xinhua](https://twitter.com/hashtag/Xinhua?src=hashtag_click) 在外国代理人登记法（[#FARA](https://twitter.com/hashtag/FARA?src=hashtag_click)）终于注册为外国代理人机构，卢比奥，参议员 [@SenatorLeahy](https://twitter.com/SenatorLeahy)[@RepJimBanks](https://twitter.com/RepJimBanks) 等人迫使司法部 [@TheJusticeDept](https://twitter.com/TheJusticeDept) 采取了这一行动。【转推这一新闻，新华网在司法部的要求三年后的今天才注册】
+在一些知名的没有被中共防火墙屏蔽的海外网站上，或者这些网站的帐号下进行留言，引导一些民众来关注自己。
 
+一旦完成这一步，你可以通过自己的海外匿名账户（比如某个mastodon实例的账户）来发布一些揭露中共邪恶、传播民主思想的文章，帮助一些网民真正具备对政治、社会问题的独立思考能力。笔者最初也是通过关注了一个技术社团的mastodon帐号，然后找到并关注了一些其他的人，看到了许多中共做的坏事，才慢慢明白中共的邪恶本性。
 
+那么，我们完全可以用这个方法来引导更多的墙内老百姓觉醒，并且由于mastodon服务器程序是自由（开源）软件，有许多站点实例，支持跨站关注和查看嘟文，中共根本不可能全部屏蔽。
 
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)'s state-run news agency [#Xinhua](https://twitter.com/hashtag/Xinhua?src=hash&amp;ref_src=twsrc%5Etfw) finally registers as foreign agent under [#FARA](https://twitter.com/hashtag/FARA?src=hash&amp;ref_src=twsrc%5Etfw) after [@marcorubio](https://twitter.com/marcorubio?ref_src=twsrc%5Etfw) [@SenatorLeahy](https://twitter.com/SenatorLeahy?ref_src=twsrc%5Etfw) [@RepJimBanks](https://twitter.com/RepJimBanks?ref_src=twsrc%5Etfw) and others pressed [@TheJusticeDept](https://twitter.com/TheJusticeDept?ref_src=twsrc%5Etfw) to take action[https://t.co/7ghOj1UP7I](https://t.co/7ghOj1UP7I)
-> — Foreign Lobby Report (@foreign\_lobby) [May 9, 2021](https://twitter.com/foreign_lobby/status/1391334872455729153?ref_src=twsrc%5Etfw)
+**小结**
 
+如果有条件，战友们可以尽量去实施上述方法，让更多民众觉醒，成为加速中共灭亡的一份子。同时，郭文贵先生提到爆料革命是以美灭共，以共灭共，并要求墙内的战友在保证安全的情况下去传播爆料革命，所以实施时务必采取确保安全的手段。
 
+我们坚信中共必亡，坚信正义终将胜利，也坚信民主与自由的光辉总有一天能够沐浴在中国民众的身上！TAKE DOWN THE CCP！
 
-前纽约市长朱利安尼： 为什么“白人至上”被用作共产党的宣传 在Apple Podcast上收听「鲁迪·朱利安尼的常识」节目最新一集，或在此处获得完整的视频体验：[http://youtu.be/agTOM7p3LT8](https://t.co/JSuW3y9gxD?amp=1)
-
-
-
-> WHY "White Supremacy" Is Being Used As COMMUNIST Propaganda
-> 
-> Listen to the latest episode of Rudy Giuliani's Common Sense on Apple Podcasts or get the full video experience here: [https://t.co/xzICw1K9iA](https://t.co/xzICw1K9iA) [pic.twitter.com/7crvTC41eE](https://t.co/7crvTC41eE)
-> — Rudy W. Giuliani (@RudyGiuliani) [May 9, 2021](https://twitter.com/RudyGiuliani/status/1391409158625370112?ref_src=twsrc%5Etfw)
-
-
-
-章家敦 (中国问题专家)： 到目前为止，已有581,607名美国人命丧中共病毒 [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 。 我们的政府为什么不对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 故意将此疾病传播至其境外而采取任何行动？ [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#冠状病毒大流行](https://twitter.com/hashtag/%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92%E5%A4%A7%E6%B5%81%E8%A1%8C?src=hashtag_click)
+编辑：七里香 发稿 ：木木 图片： 悟空
 
 
 
-> As of this moment, 581,607 [#Americans](https://twitter.com/hashtag/Americans?src=hash&amp;ref_src=twsrc%5Etfw) have succumbed to [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw). Why isn’t our government doing anything about [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s deliberate spread of this disease beyond its borders? [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#Biden](https://twitter.com/hashtag/Biden?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Gordon G. Chang (@GordonGChang) [May 9, 2021](https://twitter.com/GordonGChang/status/1391473413605236747?ref_src=twsrc%5Etfw)
-
-
-
-
-
-0
++1

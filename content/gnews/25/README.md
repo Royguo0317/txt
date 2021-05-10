@@ -1,31 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫宣布进入紧急状态，因网络攻击致油气管道关闭
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1197366/)
+## 三家中国电信公司将被纽交所除名
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1197711/)
 
-整理撰稿：蓝精灵
+翻译：康州盘古农场 – TrueSky
 
-为了关闭美国最大的管道之一，白宫周日宣布在17个州和哥伦比亚特区进入紧急状态，这条管道供应了美国东海岸约45％的燃料。
+校对：康州盘古农场 – 格格巫
 
-美国运输部紧急声明，取消了关闭管道之后向“汽油，柴油，喷气燃料和其他精炼石油产品”短缺的地区提供援助的机动车和驾驶员的限制。
+编辑：康州盘古农场 – 傻小子
 
-区域紧急声明影响以下地区：亚拉巴马州，阿肯色州，哥伦比亚特区，特拉华州，佛罗里达州，乔治亚州，肯塔基州，路易斯安那州，马里兰州，密西西比州，新泽西州，纽约州，北卡罗来纳州，宾夕法尼亚州，南卡罗来纳州，田纳西州，田纳西州，德克萨斯州和弗吉尼亚州。
+发布：康州盘古农场 – 彩虹 Rainbow
 
-紧急声明将一直有效，直到紧急情况结束或2021年6月8日美国东部时间晚上11:59。
+**据《路透社》, 2021年5月8日报道：**
+![]()![](https://gnews.org/wp-content/uploads/2021/05/chinaa44y-2-2.png)
+FIEL照片。 2021年1月8日，在中国上海爆发冠状病毒疾病（COVID-19）期间，在一条街道上可以看到中国联通的标志。路透社/Aly Song
 
-Colonial Pipeline周五表示，在勒索软件对其系统进行了攻击之后，它正在关闭5,000多英里的管道。专家警告说，如果管道在未来几天内无法运行，天然气价格可能会开始上涨。截至周日，管道已停运三天。
+三家中共国电信公司周五表示，根据美国去年的投资限制，它们将被纽约证券交易所除名。
 
-周日据报道，对关闭管道的网络攻击的调查与一个名为“黑马”的犯罪勒索软件团伙有关。
+周五早些时候，中国移动(0941.HK)、中国联通(0762.HK)和中国电信(0728.HK)分别发布公告称，在这些公司上诉未果的情况下，他们预计纽约证券交易所将通知监管机构将它们摘牌。
 
-参考链接：
+纽约证券交易所的一位发言人拒绝对此发表评论。
 
-[https://thehill.com/homenews/administration/552564-white-house-declares-state-of-emergency-over-cyberattack-that-shut](https://thehill.com/homenews/administration/552564-white-house-declares-state-of-emergency-over-cyberattack-that-shut)
+除名源于美国前总统唐纳德-川普针对中国科技公司实施的投资限制。在两个世界最大经济体之间持续的紧张关系中，尽管有企业反对，但美国总统乔-拜登还是保留了这些规则。
 
-图片来源：[thehill.com](https://thehill.com)
+这些公司表示，他们的退市申请将在交易所向美国证券交易委员会提交25号表格后10天内生效。
 
-校对发布：Penny
+原文链接：[https://www.reuters.com/business/media-telecom/three-chinese-telecom-companies-be-delisted-by-nyse-2021-05-07/](https://www.reuters.com/business/media-telecom/three-chinese-telecom-companies-be-delisted-by-nyse-2021-05-07/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-0
++1
