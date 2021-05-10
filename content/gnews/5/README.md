@@ -1,29 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 随意扔垃圾的国家如何做负责任的大国
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1196822/)
+## 【战友心声】为天堂的妈妈献上一束鲜花
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1196958/)
 
-撰稿人：Microkevin
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09210250/101-2.jpg)图片来自网络
-今天网易有一则新闻说中共国的长征五号,即将有20多吨重的太空垃圾,随机坠落地面，还说美国等国家,没有权力为保护地面人类安全而击落垃圾残骸。我真的好想问问CCP的喉舌们，你们只是说30多年没砸到过人，通篇文章也没说一声自己有控制坠落地点的能力，并且也不敢保证砸不到人，那你还不让别人为了自保而击落残骸？你是什么意思？眼瞅着被砸？你是不是想说砸到人了你包赔，真砸到人了你会不会抵赖呢？你这30年来每次玩的“随机坠落”和TMD一个乡野流氓随地大小便有什么区别？你还TMD有脸吹嘘自己是有礼有节，负责任的大国？
+作者：纽约香草山健身部 幸福鸟
 
-我认为美国是有权利去击落，对地球任何国家的人，有人道主义威胁的类似这种太空垃圾的。因为美国毕竟被联合国委托为“世界警察”，也是北约、亚约成员国里最有实力的国家。只是美国愿不愿意去做而已，需不需要利用此次事件达到对邪恶势力的更大的战略打击。
 
-另外，我很赞同路德社的看法，这个事件如果造成了大的人道灾难，将会是除病毒和种族大灭绝之外的另一个直插CCP心脏的尖刀。
 
-不管这个无法控制落点的太空垃圾，还是病毒抑或是种族大灭绝，都恰恰证明了CCP这个组织完全是反人类的。完全不把任何人命放在眼里。CCP这些年,无论对内还是对外都将中共国最烂的哲学“厚黑学“发挥到了极致，用尽一切无底线的手段只为自己攫取利益，对世间任何事物毫无怜悯之心。纵观CCP近百年的历史，对人类社会的发展没有一丁点的贡献，只有不断的制造一个又一个令人瞠目结舌的人道大灾难，比如三年大饥荒，计划生育强制堕胎，文革，8964，哪一个不是世界级的人道大灾难。2012年提出的人类命运共同体已经明确了CCP的目的就是利用一切手段奴役全人类，为几个家族服务。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
-我希望所有国家能够尽快认清CCP的本来面目，为全人类的福祉尽快采取有效行动和新中国联邦一起Take down the CCP。
 
-(本文纯属个人观点)
 
-*审稿**&编辑：MG1*
+又是一年五月天，又是一年母亲节。今年的母亲节却是我第一个没有妈妈的母亲节！以往每逢母亲节，我都会给远在北京的妈妈送去一束美丽的鲜花，可现在再也没有机会了！
 
-参考文献
+![orange petaled flowers](https://images.unsplash.com/photo-1490750967868-88aa4486c946?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&amp;ixlib=rb-1.2.1&amp;auto=format&amp;fit=crop&amp;w=1000&amp;q=80)Photo by [Sergey Shmidt](https://unsplash.com/@monstercritic?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/flower?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
 
-**[美军如果击落长征5号火箭残骸，将开创一个危险的先例](https://www.163.com/dy/article/G9HLPMCP0515DJ1P.html)**
+去年五月二十七日，我亲爱的妈妈，在北京家的床上于睡梦中安祥地走了……
 
-[5/8/2021 路德时评（路博艾谈）：长征5号火箭残骸坠落为什么引起美媒担忧？王毅说担心什么样的单边行动对准中共国？布林肯联合国警告王毅常任理事国违反国际法一样会被追责！](https://www.youtube.com/watch?v=e31Nons6gbA)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08091455/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
+由于万恶的中共病毒，在妈妈生命垂危之际，作为妈妈最爱的小女儿，我却不能前往相伴；在妈妈升天之后，也没能回去送妈妈一程，道声永别！中共病毒不知害得多少人命丧黄泉，家破人亡，或落下终身遗憾！
+
+多亏有七哥开启的爆料革命，自从妈妈离开人间以来，我只痛苦了一天，而且还是因为那一天与已离开人世的妈妈在灵性层联系不上而造成的痛苦。后来，联系建立之后，上天让我继续作为幸福鸟为在苦难中挣扎的、迷失的灵魂带去欢乐和喜悦……小小的幸福鸟在天有天使团（我妈妈也在其中）的庇护，在人间有先生做我的保护神，同时还有七哥的爆料革命以及无数志同道合的战友们。幸福鸟才能够化悲痛为力量，继续灭共的旅程！
+
+在第一个没有妈妈的母亲节的今天，我想为天堂的妈妈献上一束美丽的鲜花。 我仰望蓝天，寄托对妈妈无尽的哀思与怀念！我低头双手合十，祝福远在天堂的妈妈一切安好。祈求上天保佑我们能够早日灭共，让世界早日恢复平静与安宁，保佑我们新中国联邦繁荣昌盛！
+
+（本文仅代表作者观点）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+
+
 0

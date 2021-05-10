@@ -1,50 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】为天堂的妈妈献上一束鲜花
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1196958/)
+## 5月8日美国政要和政评家反共推特精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1197286/)
 
-作者：纽约香草山健身部 幸福鸟
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
+众议员迈克·加拉格尔： 福奇博士(Fauci)刚刚见了媒体，主持人[@chucktodd](https://twitter.com/chucktodd)没问他任何一个关于新冠病毒COVID-19的起源，以及纳税人的钱是否流向了武汉的「功能增强」性研究的问题。 这是世界面临的最重要的问题，但却几乎没有媒体去问。
 
 
 
-又是一年五月天，又是一年母亲节。今年的母亲节却是我第一个没有妈妈的母亲节！以往每逢母亲节，我都会给远在北京的妈妈送去一束美丽的鲜花，可现在再也没有机会了！
-
-![orange petaled flowers](https://images.unsplash.com/photo-1490750967868-88aa4486c946?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&amp;ixlib=rb-1.2.1&amp;auto=format&amp;fit=crop&amp;w=1000&amp;q=80)Photo by [Sergey Shmidt](https://unsplash.com/@monstercritic?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/flower?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
-
-去年五月二十七日，我亲爱的妈妈，在北京家的床上于睡梦中安祥地走了……
-
-由于万恶的中共病毒，在妈妈生命垂危之际，作为妈妈最爱的小女儿，我却不能前往相伴；在妈妈升天之后，也没能回去送妈妈一程，道声永别！中共病毒不知害得多少人命丧黄泉，家破人亡，或落下终身遗憾！
-
-多亏有七哥开启的爆料革命，自从妈妈离开人间以来，我只痛苦了一天，而且还是因为那一天与已离开人世的妈妈在灵性层联系不上而造成的痛苦。后来，联系建立之后，上天让我继续作为幸福鸟为在苦难中挣扎的、迷失的灵魂带去欢乐和喜悦……小小的幸福鸟在天有天使团（我妈妈也在其中）的庇护，在人间有先生做我的保护神，同时还有七哥的爆料革命以及无数志同道合的战友们。幸福鸟才能够化悲痛为力量，继续灭共的旅程！
-
-在第一个没有妈妈的母亲节的今天，我想为天堂的妈妈献上一束美丽的鲜花。 我仰望蓝天，寄托对妈妈无尽的哀思与怀念！我低头双手合十，祝福远在天堂的妈妈一切安好。祈求上天保佑我们能够早日灭共，让世界早日恢复平静与安宁，保佑我们新中国联邦繁荣昌盛！
-
-（本文仅代表作者观点）
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+> Dr. Fauci was just on Meet the Press and [@chucktodd](https://twitter.com/chucktodd?ref_src=twsrc%5Etfw) didn’t ask him a single question about the origin of COVID-19 and whether taxpayer dollars went to gain of function research in Wuhan. 
+> 
+> This is the most important question facing the world, yet few in the media are asking it. [pic.twitter.com/IjYcWnUc1j](https://t.co/IjYcWnUc1j)
+> — Rep. Mike Gallagher (@RepGallagher) [May 9, 2021](https://twitter.com/RepGallagher/status/1391406095470678017?ref_src=twsrc%5Etfw)
 
 
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+众议员迈克·加拉格尔： 另一个星期天的节目(ABC的节目)，另一个错失的问询蝠奇博士(Fauci)这个简单问题的机会：美国纳税人的钱是否支持了武汉的「功能增强」性研究？（转推其自己之前的推文）
+
+
+
+> Another Sunday show, and another missed opportunity to ask Dr. Fauci this simple question: did US taxpayer dollars support gain of function research in Wuhan? [https://t.co/To3ICBawUW](https://t.co/To3ICBawUW) [pic.twitter.com/9IaAdQwua8](https://t.co/9IaAdQwua8)
+> — Rep. Mike Gallagher (@RepGallagher) [May 9, 2021](https://twitter.com/RepGallagher/status/1391475688104988673?ref_src=twsrc%5Etfw)
+
+
+
+众议员吉姆·班克斯转推： 外国游说报道：[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的国有新闻机构 [#新华网](https://twitter.com/hashtag/%E6%96%B0%E5%8D%8E%E7%BD%91?src=hashtag_click)[#Xinhua](https://twitter.com/hashtag/Xinhua?src=hashtag_click) 在外国代理人登记法（[#FARA](https://twitter.com/hashtag/FARA?src=hashtag_click)）终于注册为外国代理人机构，卢比奥，参议员 [@SenatorLeahy](https://twitter.com/SenatorLeahy)[@RepJimBanks](https://twitter.com/RepJimBanks) 等人迫使司法部 [@TheJusticeDept](https://twitter.com/TheJusticeDept) 采取了这一行动。【转推这一新闻，新华网在司法部的要求三年后的今天才注册】
+
+
+
+> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)'s state-run news agency [#Xinhua](https://twitter.com/hashtag/Xinhua?src=hash&amp;ref_src=twsrc%5Etfw) finally registers as foreign agent under [#FARA](https://twitter.com/hashtag/FARA?src=hash&amp;ref_src=twsrc%5Etfw) after [@marcorubio](https://twitter.com/marcorubio?ref_src=twsrc%5Etfw) [@SenatorLeahy](https://twitter.com/SenatorLeahy?ref_src=twsrc%5Etfw) [@RepJimBanks](https://twitter.com/RepJimBanks?ref_src=twsrc%5Etfw) and others pressed [@TheJusticeDept](https://twitter.com/TheJusticeDept?ref_src=twsrc%5Etfw) to take action[https://t.co/7ghOj1UP7I](https://t.co/7ghOj1UP7I)
+> — Foreign Lobby Report (@foreign\_lobby) [May 9, 2021](https://twitter.com/foreign_lobby/status/1391334872455729153?ref_src=twsrc%5Etfw)
+
+
+
+前纽约市长朱利安尼： 为什么“白人至上”被用作共产党的宣传 在Apple Podcast上收听「鲁迪·朱利安尼的常识」节目最新一集，或在此处获得完整的视频体验：[http://youtu.be/agTOM7p3LT8](https://t.co/JSuW3y9gxD?amp=1)
+
+
+
+> WHY "White Supremacy" Is Being Used As COMMUNIST Propaganda
+> 
+> Listen to the latest episode of Rudy Giuliani's Common Sense on Apple Podcasts or get the full video experience here: [https://t.co/xzICw1K9iA](https://t.co/xzICw1K9iA) [pic.twitter.com/7crvTC41eE](https://t.co/7crvTC41eE)
+> — Rudy W. Giuliani (@RudyGiuliani) [May 9, 2021](https://twitter.com/RudyGiuliani/status/1391409158625370112?ref_src=twsrc%5Etfw)
+
+
+
+章家敦 (中国问题专家)： 到目前为止，已有581,607名美国人命丧中共病毒 [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 。 我们的政府为什么不对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 故意将此疾病传播至其境外而采取任何行动？ [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#冠状病毒大流行](https://twitter.com/hashtag/%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92%E5%A4%A7%E6%B5%81%E8%A1%8C?src=hashtag_click)
+
+
+
+> As of this moment, 581,607 [#Americans](https://twitter.com/hashtag/Americans?src=hash&amp;ref_src=twsrc%5Etfw) have succumbed to [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw). Why isn’t our government doing anything about [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s deliberate spread of this disease beyond its borders? [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#Biden](https://twitter.com/hashtag/Biden?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Gordon G. Chang (@GordonGChang) [May 9, 2021](https://twitter.com/GordonGChang/status/1391473413605236747?ref_src=twsrc%5Etfw)
+
+
 
 
 
