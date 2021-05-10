@@ -1,34 +1,84 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本财经简讯 2021/05/08
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1196452/)
+## 废弃疫苗提供给自愿接种的丹麦人：“这非常非常成问题”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1196565/)
 
-By Tokyo Sakura Finance Group
+- 作者：里奇
 
-（Translation: Orange文橘        Manuscript: Totoro）
 
-![](https://lh3.googleusercontent.com/JUdkv-qkFLBxMBYI3776hPbjoHy-KnF1mBHvg-GwR7x-OhEZzoiSkyxjiVBkPC06dChT7YeqDv7ySMVDij7Y7iPgbOFXUCocwn-x4Wym4QqOgoJwT2YChs9IJAdNv0MXQgG-t7Fh)
-The picture was designed by “唯真不破小蜜蜂”
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-⭐️Uniqlo’s domestic sales in Japan in April increased by 84.5% compared with the same period in 2020. Under the influence of the CCP virus, up to 83 branches were temporarily closed.
+**西班牙2021年5月9日电/西喜社——**
 
-优衣库四月份日本国内的销售额比去年同期增加了84.5%，在中共病毒的影响下，最多曾有83家分店临时停业。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08175139/vaccinationer-1.jpg)
 
-⭐️Under the influence of the tight supply of semiconductors in the world, the Nintendo game console-Nintendo Switch’s production in March 2022 is expected to be 25.5 million units, 11.5% less than the previous period. The sales and profits are expected to decrease by 9% and 22% accordingly.
+丹麦政府旨在确保丹麦人更快地接种covid-19疫苗的一项计划受到批评，批评称社会和政治家正在逃避他们的责任。
 
-在世界半导体供给紧张的影响下，任天堂游戏机-任天堂Switch的2022年3月预计生产量为2550万台比前期减少11.5%，预计销售额及利润也可能相应减少9%和22%。
+有些负责接种疫苗的人非常不情愿执行政府的此项计划，将废弃的covid-19疫苗推销给自愿接种的丹麦人。
 
-⭐️A Japanese recruitment company found out through a questionnaire on May 8, that among 1,040 people more than 60% of Japanese believed that the CCP virus was related to their changing jobs, and more than 30% showed their concern about their company’s business strategy and directions.
+周一，由于严重的副作用，卫生当局从疫苗接种计划中撤出了另一种疫苗后，政治家们大多数达成了一项自愿接种计划的决定。
 
-日本猎头公司Recruit通过一个1040人参加的调查问卷（5月8日）发现，6成以上的日本人认为中共病毒与他们换工作的行为有关，3成以上的人表示对其公司的经营策略与方向感到不安。
+丹麦全科医学会主席安德斯·贝希(Anders Beich)说，从某种意义上讲，可以说我们需要为抵御不耐烦而接种疫苗。
 
-⭐️Honda and Toyota’s vehicle sales in China increased by 31.7% and 12.2% over the same period last year and reached the highest sales in history. Nissan vehicle sales also increased by 4.4%.
+全科医生组织拒绝代表成员就自愿疫苗达成财务协议，丹麦全科医学协会主席安德斯·贝希（Anders Beich）认为许多医生都不愿参加：
 
-本田与丰田在中共国的汽车销售量比去年同期增加了31.7%和12.2%并达到了历史最高销售量，日产也增加了4.4%。
+“在目前的情况下，与Covid-19感染相比，接种疫苗的风险更大，并且始终令人担忧的是治疗效果比应该预防的要差。我们还有其他更安全的疫苗，但是您必须等待几周，所以某种意义上来说，我们必须接种防治急躁的疫苗”，安德斯·贝希（Anders Beich）说。
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
-*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01183841/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
-0
+国家卫生委员会不会使用这些疫苗，因为与花费几周时间等待更安全的疫苗相比，血液凝块的风险更大。
+
+这是因为目前感染的压力很低，而且当局已经为最老弱的人群接种了疫苗。
+
+首席医师卡斯滕·沙德·拉森（Carsten Schade Larsen）说，丹麦医生疫苗接种服务机构（DLVS）现已成为丹麦最大的疫苗接种提供者，但不会提供阿斯利康或强生公司生产的covid-19疫苗：
+
+“我们有医疗承诺，这意味着您不得伤害他人。如果我开了疫苗，我就承担着年轻女子死亡的风险”，他说。
+
+该计划必须是免费的，但与大规模疫苗接种不同，医生必须依据医生的个人意见开具废弃的阿斯利康和强生公司疫苗。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/virus13.jpg)
+
+**遵医嘱**
+
+普拉克提奥(Practio)公司通常提供旅行疫苗，在这里，与DLVS不同的是，他们准备提供丹麦卫生和药品管理局不推荐的疫苗。
+
+普拉克提奥公司的医生兼联合创始人乔纳斯·尼尔森(Jonas Nilsen)表示，普拉克提奥公司的医生信守医生的诺言不亚于其他人。但他认为，在某些情况下，加快疫苗接种的速度很有意义。例如，一个只剩几年生命时间的人希望在他/她身体状况还允许的时候去旅行。
+
+乔纳斯·尼尔森（Jonas Nilsen）说：“也许还有其他一些特殊原因，但这取决于具体的评估，我们将不得不拭目以待，看看有多少相关的情形”。
+
+医生的诊治必须通过电话进行，乔纳斯·尼尔森（Jonas Nilsen）说，这种诊治的结果还可能是医生不想开具疫苗处方或患者后悔了。
+
+普拉克提奥公司强调，只有在财务上有联系时，它才可以执行任务，因此，他预计公司将采用一定的收费模式，无论顾客最终是否进行疫苗接种都必须向公司缴费。
+
+但是，如果您开具了疫苗导致一名年轻女子随后死亡，您会感觉如何？
+
+“我会如同开具避孕药处方一样看待它。避孕药也会导致血凝块。作为一名医生，我有义务评估其优缺点并告知他们，并且公民自身也参与决策”
+
+**“****有道德问题****”**
+
+安娜·玛丽亚·盖德思(Anne-Marie Gerdes)是国家医院的首席医师，也是丹麦伦理委员会主席。
+
+理事会尚未讨论此事，但她个人认为，政治家无视卫生当局的专业评估在“道德上是有问题的”：
+
+“如果出了错怎么办？然后应该责怪进行疫苗接种的公司、政客或者这究竟是谁的责任？我们至少可以确定一件事: 如果出了问题，必须由公共部门来处理和收拾残局”，她说。
+
+国家血清研究所的前任主任尼尔斯·斯特兰德贝格·佩德森（Nils Strandberg Pedersen）表示同意，他批评政客们几乎破坏了卫生当局关于不使用这两种疫苗的决定：
+
+“我想看看如果一对不开心的父母有一天挺身而出，说出他们的女儿在医生给她开了疫苗后死了的事实，那会在政坛上引发什么？是的，她是自己选择的，但当局不建议这样做。我认为这是非常非常有问题的。”
+
+议会的绝大多数代表决定了该方案，其中包括了保守党。公共卫生发言人佩尔·拉尔森（Per Larsen）用疫苗计划自一月份以来就一再下滑的事实证明了他的立场。
+
+“这些都是获得批准的疫苗，它们在世界各地被广泛使用。在我看来，我们正处于非常适度的风险之中，我感觉人们有对它的需求”，佩尔·拉尔森说。
+
+“很多事情都有风险。如果您查看用药单子，可能很多药物都有副作用。在交通道路中四处走动也有危险，因此您必须保持适度”，他说。
+
+卫生部已经开始准备自愿计划，该计划有望在5月到位。
+
+**点评:** **随着时间的推移，人们对待疫苗的不同态度逐渐可以摆脱政治正确的困局。医学专业人士大胆说出他们的专业意见，甚至公开批评政府的外行、冒进和欠缺责任的行政决定。希望疫苗的安全性和有效性方面能很快调查清楚，及时防范潜藏的灾难。此次病毒危机充分展现了一个残酷的现实，各个国家政府的无知无为，甚或有些政府无耻懦弱贪婪。未来的国家政府是否需要一次大变革？或者人们不再需要只会发号施令、禁锢国民言行、危急关头却不敢追责凶手的滥权政府？**
+
+素材：里奇；审核：Ranting；校对：阿伯塔； 发稿 : 信心的选择
+
+**新闻来源:** [日德兰邮报](https://jyllands-posten.dk/indland/ECE12951443/kasserede-vacciner-til-frivillige-danskere-det-er-meget-meget-problematisk/)
+
+**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+
++1

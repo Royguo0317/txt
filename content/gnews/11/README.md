@@ -1,32 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 科技前沿——比尔·盖茨资助的公司在美国释放转基因的蚊子
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1196540/)
+## 福西（Anthony Fauci）开研讨会，唯一赞助商是计划生育组织
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1196593/)
 
 整理撰稿：蓝精灵
 
-由比尔和梅琳达·盖茨基金会资助的英国生物技术公司Oxitec表示，它在门罗县佛罗里达群岛的六个地点释放了蚊子，该公司表示，这是努力应对传播疾病的侵入性蚊子种群（埃及伊蚊）的一部分，“伊蚊”实际上是“向人类传播的所有蚊媒疾病”。
+乔·拜登总统的首席医学顾问安东尼·福西（Anthony Fauci）周三参加了美国最大的堕胎链计划生育组织的医疗保健活动。
 
-这些蚊子约占基斯群岛蚊子总数的4％，并向宠物和其他动物传播登革热，寨卡病毒，黄热病和其他人类疾病以及心丝虫和其他可能致命的疾病。
+实况新闻报道 ，希尔与福奇（Fauci）以及许多著名的医疗人物和政客一起主持了“医疗的未来：健康大胆”的网络研讨会。
 
-该实验是与佛罗里达礁蚊控制区（FKMCD）合作进行的，并得到了美国环境保护署（EPA），佛罗里达农业和消费者服务部（FDACS），美国疾病控制与预防中心的批准，和一个独立的咨询委员会。
+有趣的是，该活动的唯一赞助商是计划生育组织。数十亿美元的堕胎链将在选择性堕胎中杀死未出生的婴儿描述为“医疗保健”。它在美国造成了大约40％的堕胎
 
-在接下来的12周中，预计在大约12周的时间内，每周将出现少于12,000的蚊子。未经处理的比较点将通过Key Colony海滩，Little Torch Key和Summerland Key上的诱蚊器进行监控。如果成功，今年晚些时候将再释放约2000万只转基因蚊子。
+列出的其他发言人包括美国外科医生，食品和药物管理局代理专员珍妮特·伍德科克（Dr. Janet Woodcock），Vivek Murthy博士以及密歇根州支持堕胎的民主党参议员Debbie Stabenow。他们讨论了“如何在限制成本上升的同时，推动科学前沿并依靠创新，”希尔说。
 
-FKMCD执行董事安德里亚·利尔（Andrea Leal）在一次视频新闻发布会上说：“我们真的是在十年前才开始研究这种情况，因为我们正处于佛罗里达群岛（Florida Keys）的登革热疫情之中。” “因此，我们很高兴能与Oxitec和社区成员合作，继续这一合作伙伴关系。”
+Live Action评论了堕胎链与美国顶尖医疗领导者之间令人不安的联系：
 
-这家生物技术公司释放的昆虫都是雄性的，所以它们不会咬人。预计它们会与当地叮咬的雌性蚊子交配，并且这样做，它们将传递致命的基因，以确保其雌性后代在成熟之前死亡。
+计划生育组织似乎是本次活动的唯一赞助商，而决策者和为政府工作的医生则似乎构成了严重的利益冲突。在过去的十年中，“计划生育”已实施了330万例堕胎，并已从美国纳税人那里收到近60亿美元的收入。该组织的政治部门向政治人物的竞选活动捐赠了数百万美元。参议员Stabenow被称为“计划生育坚定的拥护者”。
 
-据Quartz称，包括马来西亚，巴西，开曼群岛和巴拿马在内的一些地区已经进行了类似的实验，这些地区的蚊子数量下降了90％。
+Fauci还与堕胎和纳税人资金有关。本周早些时候，LifeNews写了一篇关于他的联邦机构如何 提供40万美元来支持一项艰巨的实验的研究，该实验涉及对流产中期的流产婴儿 进行剥皮，然后将其皮肤植入啮齿动物。
 
-该项目遭到了居民的强烈反对，他们说没有为试验寻求他们的同意。
+计划生育组织主要是堕胎倡导小组和堕胎提供者，而不是医疗保健小组，他自己的年度报告也提供了证明。去年它报告了创纪录的收入，包括纳税人的资金。
 
 参考链接：
 
-[https://www.zerohedge.com/technology/bill-gates-funded-company-releases-genetically-modified-mosquitoes-us](https://www.zerohedge.com/technology/bill-gates-funded-company-releases-genetically-modified-mosquitoes-us)
 
-图片来源：[https://www.zerohedge.com](https://www.zerohedge.com/technology/bill-gates-funded-company-releases-genetically-modified-mosquitoes-us)
+
+> [Anthony Fauci Partners With Planned Parenthood Abortion Biz for Health Care Webinar](https://www.lifenews.com/2021/05/07/anthony-fauci-partners-with-planned-parenthood-abortion-biz-for-health-care-webinar/)
+
+
+
+图片来源：[www.lifenews.com](http://www.lifenews.com)
 
 校对发布：Penny
 
