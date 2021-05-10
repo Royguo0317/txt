@@ -1,49 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共在不丹修建村庄及军事设施
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1196271/)
+## 日本财经简讯 2021/05/08
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1196452/)
 
-整理撰稿：蓝精灵
+By Tokyo Sakura Finance Group
 
-自2015年以来，中国在不丹一个山谷深处，修建了一条以前未被人注意的道路、建筑物和军事哨所。
+（Translation: Orange文橘        Manuscript: Totoro）
 
-美国外交政策杂志5月7日发表的文章指出，2015年10月，中国宣布在西藏自治区（TAR）南部建立了一个新村庄，一个藏语叫Gyalaphug的地方。 2020年4月，西藏自治区党委书记吴英杰探访新村，他告诉居民，他们都是藏族人，“把像格桑花这样的根扎在白雪皑皑的边境地区”，并“把明亮的五星红旗高高举起”。访问影片在当地电视台播放，并贴在藏族报纸的头版上，这个村似乎与其它新建的村庄没有什么不同。
+![](https://lh3.googleusercontent.com/JUdkv-qkFLBxMBYI3776hPbjoHy-KnF1mBHvg-GwR7x-OhEZzoiSkyxjiVBkPC06dChT7YeqDv7ySMVDij7Y7iPgbOFXUCocwn-x4Wym4QqOgoJwT2YChs9IJAdNv0MXQgG-t7Fh)
+The picture was designed by “唯真不破小蜜蜂”
 
-但Gyalaphug与众不同：它在不丹。自1980年代初以来，它就处于中国宣称拥有232平方英里的区域，但国际上将其视为不丹北部Lhuntse区的一部分。中国官员来访是为了庆祝他们在国际上和历史上被理解为不丹人领土上的定居，以及军事基础设施的建设，但这一举动并未引起世界的注意。
+⭐️Uniqlo’s domestic sales in Japan in April increased by 84.5% compared with the same period in 2020. Under the influence of the CCP virus, up to 83 branches were temporarily closed.
 
-这项新建设是中国国家主席习近平为巩固西藏边疆所作的重大努力的一部分，也是中国长期为超越印度所做努力的升级。在这种情况下，中国希望北京在其与新德里的斗争中增加军事优势。
+优衣库四月份日本国内的销售额比去年同期增加了84.5%，在中共病毒的影响下，最多曾有83家分店临时停业。
 
-Gyalaphug现在有新的道路，一个小型水力发电站，两个共产党行政中心，一个通讯基地，一个救灾仓库，五个军事或警察哨所等等。
+⭐️Under the influence of the tight supply of semiconductors in the world, the Nintendo game console-Nintendo Switch’s production in March 2022 is expected to be 25.5 million units, 11.5% less than the previous period. The sales and profits are expected to decrease by 9% and 22% accordingly.
 
-这比过去中国在边界所做的任何事情更具挑衅性，公然违反​​了中国与不丹缔结条约的条款。中国在喜马拉雅山的行动反映了其在南中国海使用的挑衅性策略
+在世界半导体供给紧张的影响下，任天堂游戏机-任天堂Switch的2022年3月预计生产量为2550万台比前期减少11.5%，预计销售额及利润也可能相应减少9%和22%。
 
-文章指出，面对中国，不丹似乎选择维持现状。不丹政治评论员丹增·拉姆桑（Tenzing Lamsang）说，作为一个“陷入两个巨人之间的小国”，不丹的战略是“避免不必要地与任何一方抗衡”。
+⭐️A Japanese recruitment company found out through a questionnaire on May 8, that among 1,040 people more than 60% of Japanese believed that the CCP virus was related to their changing jobs, and more than 30% showed their concern about their company’s business strategy and directions.
 
-1998年12月，中国与不丹签署了正式协议，这是两国之间的第一个也是迄今为止唯一的条约。在这份文件中，中国承认不丹的主权和领土完整，并同意“不采取单方面行动改变边界现状”。而 Beyul和Menchuma山谷内的道路，居民区和建筑物的建设显然违反了该协议。
+日本猎头公司Recruit通过一个1040人参加的调查问卷（5月8日）发现，6成以上的日本人认为中共病毒与他们换工作的行为有关，3成以上的人表示对其公司的经营策略与方向感到不安。
 
-2012年，中国派出了一个小组，对Beyul的土地和资源进行了首次调查。测量人员在调查报告中写道：“自古以来，没人知道它的资源状况；它笼罩在一个神秘的面纱中。”一周后，调查结束，他们宣布Beyul“不再是一个神秘的地方”。 Beyul的定居即将开始。
+⭐️Honda and Toyota’s vehicle sales in China increased by 31.7% and 12.2% over the same period last year and reached the highest sales in history. Nissan vehicle sales also increased by 4.4%.
 
-2015年10月，来自西藏和中国部分地区的工人开始修建这条道路，也是进入Beyul的第一条道路。这条公路穿过一条称为Namgung La的15700英尺高的山口，进入不丹。公路耗时两年完成，耗资9800万。
+本田与丰田在中共国的汽车销售量比去年同期增加了31.7%和12.2%并达到了历史最高销售量，日产也增加了4.4%。
 
-在2018年10月，该村庄正式开放，有四名新居民抵达，使总数达到20名。到2021年1月，又建造了四个街区，每个街区包含五套相同的房屋，每户家庭1200平方英尺。到2020年，有24户家庭搬进来。
-
-自2015年以来，中国在Beyul和Menchuma山谷建立了3个村庄，7条道路和至少5个军事或警察哨所。这些都记录在官方的报告和视频中。
-
-文章指出，Gyalaphug是中国加快推进“西藏边境小康村建设”建立的新村庄之一，官方要求其居民“把每个村庄当作要塞，每个家庭作为守望台”，并称其居民为“不穿制服的士兵”，他们的主要任务是保卫中国的边界。卫星图像和媒体照片显示，Gyalaphug 有两个行政大楼，其中大的一栋是专门用于共产党的会议和村民大会。
-
-编者简评：
-
-镇压西藏人民，抢夺西藏资源，长期封锁西藏。中共一直在西藏实行军事化管理。从上文中看出， 有计划的通过西藏，控制周边泥泊尔，不丹等小国家，抑制印度，一直是中共的长期计划。
-
-\*以上仅代表作者观点，不代表Gnews平台\*
-
-参考链接：
-
-[https://www.rfa.org/mandarin/Xinwen/10-05082021165028.html](https://www.rfa.org/mandarin/Xinwen/10-05082021165028.html)
-
-校对发布：Penny
-
-
-
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
+*发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01183841/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
 0

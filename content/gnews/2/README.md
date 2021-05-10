@@ -1,32 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 大流行一年中的上班族女性
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1196144/)
+## 日本财经简讯 2021/05/08
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1196452/)
 
-```
-新闻来源：意大利安莎通讯社（ANSA）
-发表时间：2021年5月9日
-翻译整理/简评：斩草要除根
-```
+By Tokyo Sakura Finance Group
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09191702/IMG_20210510_011415.jpg)图片来源：旗书网站
-5月9日（星期日）的“母亲节”是一个讨论的机会。麦肯锡（*McKinsey*）与*LeanIn.Org*共同撰写的：“2020年职场女性报告”显示了令人惊讶的统计数据：北美四分之一的职业女性表示，她正在考虑改变职业或完全离开劳动力队伍。麦肯锡于2021年5月上旬发布的研究，集中在过去的一年，该研究表明流行病严重影响了在职母亲。他们面临着“双重转变”。“家庭责任，心理健康问题，更困难的远程工作经验以及对未来和失业率上升的担忧，特别是在黑人母亲和单身母亲中。
+（Translation: Orange文橘        Manuscript: Totoro）
 
-研究表明，在大流行之前，职业母亲的职业抱负与一般职业妇女相似，但是这种大流行改变了这个方程式：自从冠状病毒危机开始以来，工作和家庭的额外负担促使大约33％的在职母亲考虑改变职业或完全辞职。
+![](https://lh3.googleusercontent.com/JUdkv-qkFLBxMBYI3776hPbjoHy-KnF1mBHvg-GwR7x-OhEZzoiSkyxjiVBkPC06dChT7YeqDv7ySMVDij7Y7iPgbOFXUCocwn-x4Wym4QqOgoJwT2YChs9IJAdNv0MXQgG-t7Fh)
+The picture was designed by “唯真不破小蜜蜂”
 
-在大流行期间，对心理健康和职业倦怠的挑战已成为所有工人面临的重大问题。凯撒家庭基金会（*Kaiser Family Foundation*）于2020年进行的一项调查发现，有45％的美国人认为冠状病毒危机正在损害他们的心理健康。在全球范围内，尤其对妇女的影响是令人惊讶的：调查显示，在发达国家和发展中国家，母亲（75％）比父亲（69％）更有可能在家中遭受精神健康问题。另外根据麦肯锡的研究，冠状病毒大流行性损害影响数百万妇女及其家庭提供了直接的经济安全。
+⭐️Uniqlo’s domestic sales in Japan in April increased by 84.5% compared with the same period in 2020. Under the influence of the CCP virus, up to 83 branches were temporarily closed.
 
-#### 简评：
+优衣库四月份日本国内的销售额比去年同期增加了84.5%，在中共病毒的影响下，最多曾有83家分店临时停业。
 
-**新冠疫情对社会和职场的全部影响，可能在若干年后才会全部显现。但是可以肯定的是，这场疫情对职场母亲所造成的冲击是巨大的，这无形中加剧了这个社会本来就存在着职场性别不平等，还有疫情对女性造成的长期社会和经济后果，以及身心健康的损害也是不容忽视的。**
-（本文仅代表译者个人观点，跟GNEWS平台无关。）
+⭐️Under the influence of the tight supply of semiconductors in the world, the Nintendo game console-Nintendo Switch’s production in March 2022 is expected to be 25.5 million units, 11.5% less than the previous period. The sales and profits are expected to decrease by 9% and 22% accordingly.
 
-**新闻原文链接：**
-🔗[L’ANNO ORRIBILE DELLE MAMME LAVORATRICI, C’È ALLARME REGRESSIONE](https://www.ansa.it/canale_lifestyle/notizie/societa_diritti/2021/05/07/lanno-orribile-delle-mamme-lavoratrici-ce-allarme-regressione_95751fbc-dbf3-4f83-8c82-80966666670f.html)
+在世界半导体供给紧张的影响下，任天堂游戏机-任天堂Switch的2022年3月预计生产量为2550万台比前期减少11.5%，预计销售额及利润也可能相应减少9%和22%。
 
-* * *
+⭐️A Japanese recruitment company found out through a questionnaire on May 8, that among 1,040 people more than 60% of Japanese believed that the CCP virus was related to their changing jobs, and more than 30% showed their concern about their company’s business strategy and directions.
 
-***编辑整理/校对: **Ting Guo*
+日本猎头公司Recruit通过一个1040人参加的调查问卷（5月8日）发现，6成以上的日本人认为中共病毒与他们换工作的行为有关，3成以上的人表示对其公司的经营策略与方向感到不安。
 
+⭐️Honda and Toyota’s vehicle sales in China increased by 31.7% and 12.2% over the same period last year and reached the highest sales in history. Nissan vehicle sales also increased by 4.4%.
+
+本田与丰田在中共国的汽车销售量比去年同期增加了31.7%和12.2%并达到了历史最高销售量，日产也增加了4.4%。
+
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
+*发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01183841/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
 0

@@ -1,31 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 科技前沿——SpaceX接受狗狗币付款，用于明年发射月球任务
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1196237/)
+## 美国务卿要求被监禁的天安门守夜活动人士获得自由
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1196304/)
 
-整理撰稿：蓝精灵
+作者：Loris 翻译：Tom
 
-SpaceX将于明年第一季度发射“ DOGE-1登月任务”，埃隆·马斯克（Elon Musk）的商业火箭公司将接受加密货币狗狗币作为付款。
+![]()![](https://gnews.org/wp-content/uploads/2021/05/051001-2.jpg)在中国大陆，“六四”一直是禁忌话题。但30年来，香港的维多利亚公园都会举行“六四”纪念晚会，不论风雨，烛光依旧。
 
-Geometric Energy Corporation在周日宣布了由狗狗币资助的任务，但声明并未透露任务的财务价值。
+周五，美国国务卿安东尼·布林肯发推反对逮捕和判刑四名香港民主活动人士，他们参与了纪念1989年被中共杀害的天安门广场抗议者的守夜活动。
 
-“我们很高兴将DOGE-1发射到月球上！”，SpaceX商业销售副总裁Tom Ochinero引用了Geometric Energy发布的声明。“该任务将证明加密货币在地球轨道之外的应用，并为行星际贸易奠定基础”。
+布林肯在推特上写道：“美国与香港人民站在一起，拒绝接受对参加天安门纪念活动人士的判刑。”
 
-马斯克今年的推文将曾经一度晦涩难懂的数字货币（最初是社交媒体的笑话）变成了投机者的梦想。
+“所有因保障自由的非暴力行动而被监禁的人都应该立即释放。”
 
-编者简评：
+过去三十年来，香港一直为天安门广场遇难者举行烛光守夜活动。然而，这个活动去年被叫停，其原因就是香港全岛抵制了北京对其民主的攻击。
 
-基于自由流通的，不受限制的数字货币是主流，是未来。随着星链网络的闭合，天才马斯克貌似正在测试如何把数字货币变成太空币，星链网络是太空数字币的必要条件，这一过程就是一个去中心化的过程，也是重塑世界金融政治格局的过程。
+然而，2020年6月4日，成千上万的香港人无视这项禁令，参加了在香港维多利亚公园传统地点举行的守夜活动。中国共产党控制的香港警方，利用covid-19大流行和2020年民主抗议活动造成的安全威胁，为他们镇压守夜活动辩护。
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+参加守夜活动的20多名著名的民主活动人士被起诉。其中四名被指控的活动人士黄（Joshua Wong）、沈（Lester Shum）、袁（Tiffany Yuen）和梁（Janelle Leung）因参与天安门守夜活动被判入狱。
 
-参考链接：
+香港最著名的民主活动人士之一黄（Joshua Wong）因参与2019年的示威活动获两项定罪，将入狱17.5个月。他又收到因新的判决而被监禁额外10个月的处罚。中共判处沈（Lester Shum）6个月监禁，并将判处袁（Tiffany Yuen）和梁（Janelle Leung）入狱4个月。
 
-[https://www.reuters.com/business/finance/spacex-accepts-dogecoin-payment-launch-lunar-mission-next-year-2021-05-09/?taid=609861454492f900010b98f0&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/business/finance/spacex-accepts-dogecoin-payment-launch-lunar-mission-next-year-2021-05-09/?taid=609861454492f900010b98f0&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+此外，黄、沈和袁是根据北京2020年新颁布的国家安全法受到指控。如果罪名成立，这三名活动人士有可能会面临终身监禁。
 
-图片来源：[https://www.reuters.com](https://www.reuters.com/business/finance/spacex-accepts-dogecoin-payment-launch-lunar-mission-next-year-2021-05-09/?taid=609861454492f900010b98f0&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+希望布林肯的声明能引发国际社会对北京的进一步抵制，以帮助释放香港无辜的活动人士。
 
-校对发布：Penny
+美国国务卿还要求世界卫生组织（世卫组织）将台湾纳入即将到来的年度大会。由于中共的反对，台湾自2017年就被排除在世卫组织大会之外了。
+
+[援引原文](https://www.newsmax.com/world/globaltalk/anthony-blinken-tiananmen-square-jailed/2021/05/07/id/1020478/)
+
+审核校对：玫瑰天空
+上传排版：糖果儿
 
 0
