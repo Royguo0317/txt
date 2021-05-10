@@ -1,24 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国际奥委会主席巴赫将安排6月访问日本
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1197768/)
+## 大本营发现病例 珠穆拉玛峰设立隔离线
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1197870/)
 
 整理撰稿：蓝精灵
 
-富士新闻网周一援引多个身份不明的消息来源报道称，国际奥委会主席托马斯·巴赫（Thomas Bach）将对日本进行访问。
+据官方媒体报道，继数十名登山者在山顶大本营生病之后，中国将在珠穆朗玛峰的山顶设立一条“隔离线”，以避免受到病毒感染的尼泊尔登山者传播。
 
-日本媒体报道说，巴赫原定于将于5月17日参加在广岛市举行的火炬传递活动，但2020年东京奥运会的组织者表示，此次访问尚未得到证实。
+尽管该病毒于2019年底首次在中国出现，但通过一系列严格的封锁和边境封锁，该病毒已在很大程度上得到控制。
 
-富士说，他访问的前提是解除为应对冠状病毒扩散而采取的任何紧急状态。
+最近几周，由于尼泊尔面临致命的第二波袭击，有30多名生病的登山者从世界最高峰尼泊尔一侧的大本营撤离，人们担心这种病毒可能毁坏丰盛的攀登季节。
 
-日本最新的紧急状态已于上周五延长至5月31日，促使东京方面在新闻发布会上说巴赫的访问“可能很困难”。
+珠穆朗玛峰横跨中尼边界，北坡属于中国。
+
+中共的新华社周日报道，西藏当局在新闻发布会上告诉记者，他们将采取“最严格的防疫措施”，以避免南北斜坡或顶部的登山者之间的接触。
+
+据新华社援引西藏登山协会负责人的话说，在允许登山者开始艰苦的攀登之前，登山向导将在山顶上设置分界线。该官员没有提供有关分隔线的详细信息。
+
+这位官员补充说，自从4月初以来在西藏隔离后，今年有21名中国登山者被批准攀登珠穆朗玛峰的顶峰。
+
+中方还将在该山北侧的中国大本营加强病毒控制措施，禁止在珠穆朗玛峰风景区的非攀登者进入。
+
+自去年以来，由于该病毒的爆发，中国禁止外国人攀登珠穆朗玛峰。
+
+但是今年，尼泊尔的旅游业在大流行之前至2020年遭受了毁灭性打击，因此尼泊尔颁发了创纪录数量的攀登许可证，以试图增加游客。
+
+仅从尼泊尔获得的珠穆朗玛峰许可证就需要11,000美元，登山者要支付40,000美元以上才能进行探险。
+
+通常，任何时候都会有超过一千人驻扎在尼泊尔一侧珠穆朗玛峰脚下的帐篷城市，其中包括外国登山者和护送他们前往山顶的尼泊尔向导团队。
+
+在过去的三周中，尼泊尔的每日病例猛增，五分之二的受测者现在恢复了阳性，因为感染从邻国印度致命的第二波袭击中蔓延开来。
+
+编者简评：
+
+病毒在哪里出现， 在什么时候出现，出现后将要采取什么措施， 均为超限生物武器战争中的设计环节，这篇报道很明确的透露了以下信息：1-病毒是从泥泊尔过来的，2-泥泊尔不在病毒问题上合作，会拒绝你签发的登山者上山 3-西藏作为西部边境，此时需要军事布控。这一措施都是在胁迫南亚的小国家站队在中共方面。
 
 参考链接：
 
-[https://www.reuters.com/world/asia-pacific/ioc-chief-bach-visit-japan-being-arranged-june-fnn-2021-05-10/?taid=6098a8ba12982200014dc670&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/asia-pacific/ioc-chief-bach-visit-japan-being-arranged-june-fnn-2021-05-10/?taid=6098a8ba12982200014dc670&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+[https://www.24matins.uk/topnews/int/china-to-set-up-separation-line-on-mount-everest-over-covid-19-fears-282566](https://www.24matins.uk/topnews/int/china-to-set-up-separation-line-on-mount-everest-over-covid-19-fears-282566)
 
-图片来源：[https://www.reuters.com](https://www.reuters.com)
+图片来源：[https://www.24matins.uk](https://www.24matins.uk/topnews/int/china-to-set-up-separation-line-on-mount-everest-over-covid-19-fears-282566)
 
 校对发布：Penny
 

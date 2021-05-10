@@ -1,128 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭文贵先生近期盖特精要汇总——21年5月6日-5月8日
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1197474/)
+## 国际奥委会主席巴赫将安排6月访问日本
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1197768/)
 
-听写：乐禧禧 | 校对/审核：CharlesS | Page：青山
+整理撰稿：蓝精灵
 
-![]()![](https://spark.adobe.com/page/mTRUSZdaSkDOv/images/de38a6df-143e-41b3-bd96-357cb0a76b1e.jpg?asset_id=f1619500-97c4-4ed1-85e8-80e5e3e236ed&amp;img_etag=%2247338e0eedfcb1c36df46a95410dd2fa%22&amp;size=1024)
+富士新闻网周一援引多个身份不明的消息来源报道称，国际奥委会主席托马斯·巴赫（Thomas Bach）将对日本进行访问。
 
-**郭文贵先生盖特精要-20210506-001**[盖特链接](https://gtv.org/getter/609403eb37f7f73984c89298)
+日本媒体报道说，巴赫原定于将于5月17日参加在广岛市举行的火炬传递活动，但2020年东京奥运会的组织者表示，此次访问尚未得到证实。
 
-1、美国多个重量级议员、前官员有筹款活动，要求彻查中共病毒真相，追究中共责任，以毒灭共不只是说，得要行动、智慧和团队落实。
+富士说，他访问的前提是解除为应对冠状病毒扩散而采取的任何紧急状态。
 
-2、中共威胁要与澳洲脱钩，没有澳洲的资源，铁石、铝和大量金属产品价格都会上涨，中共国能活吗？
+日本最新的紧急状态已于上周五延长至5月31日，促使东京方面在新闻发布会上说巴赫的访问“可能很困难”。
 
-3、中共靠差价坑14亿奴隶，还威胁澳洲、印度、香港、台湾、日本、欧洲。一个国家的经济实力还不如一个Elon Mask创造的经济技术和生产力、对社会文明贡献。
+参考链接：
 
-4、科威特王子说现在中共国和三年前完全不同了，他不再亲共，从上海广州深圳到大连的资金几乎全部撤回，中共国从世界巅峰一下子就下来了，以前跟他投资联络的人都被捉了。跟他交谈的外交官员一副斥责威胁口气，“中共要领导全人类，美国要完了。”中共把14亿奴隶带入疯狂境界，对国内家人要耐心，不求结果，只求心安。
+[https://www.reuters.com/world/asia-pacific/ioc-chief-bach-visit-japan-being-arranged-june-fnn-2021-05-10/?taid=6098a8ba12982200014dc670&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/asia-pacific/ioc-chief-bach-visit-japan-being-arranged-june-fnn-2021-05-10/?taid=6098a8ba12982200014dc670&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-**郭文贵先生盖特精要-20210506-002**[盖特链接](https://gtv.org/getter/60940ac437f7f73984c895b2)
+图片来源：[https://www.reuters.com](https://www.reuters.com)
 
-听写：Lee diamon | 校对：乐禧禧
+校对发布：Penny
 
-[!\[\]()!\[\](https://spark.adobe.com/page/mTRUSZdaSkDOv/images/4a262340-1a84-4d01-bdd1-75e5d5bdc6ef.jpg?asset_id=df98b736-7490-4924-8ff5-58a9691d28cc&amp;img_etag=%2235e252f7ee9b7e82f1281ab06958556d%22&amp;size=1024)](https://spark.adobe.com/page/mTRUSZdaSkDOv/images/4a262340-1a84-4d01-bdd1-75e5d5bdc6ef.jpg?asset_id=df98b736-7490-4924-8ff5-58a9691d28cc&amp;img_etag=%2235e252f7ee9b7e82f1281ab06958556d%22&amp;size=1024)
-
-1、中共国会将金融系统、房地产行业的所有问题在爆发时都推到14亿奴隶身上。
-
-2、大陆消息灵通人士正在寻求将大额存款到境外银行，购买黄金在海外银行存放、美国大公司股票寻求银行代持，这些现象说明中共内部对于党员干部家庭财产的清查已经在进行中，并且为没收做准备。
-
-3、共党非常清楚金融即将崩盘，并希望在崩盘前尽可能拿走更多；
-
-4、有人拿中共国内上市公司股票到中东的皇家银行按照5-10%进行抵押，也说明经济和金融已经到了崩溃边缘。
-
-5、共党的银行在东欧做的金融票据，很多已经违约；国开行、邮储银行、农业银行都要出事情。
-
-6、这些问题积累到中央，金融系统和房地产市场会瞬间崩塌。
-
-**郭文贵先生盖特精要-20210507-001**[盖特链接](https://gtv.org/getter/6095408937f7f73984c8e133)
-
-听写：Lee diamon | 校对：乐禧禧
-
-[!\[\]()!\[\](https://spark.adobe.com/page/mTRUSZdaSkDOv/images/34541c92-9956-41b0-ab18-59ff127247d7.jpg?asset_id=3fb98f0d-4ebe-447b-8a9f-2d6ece2d03a2&amp;img_etag=%22c896cc19931ccd4fe7853e1f6787822c%22&amp;size=1024)](https://spark.adobe.com/page/mTRUSZdaSkDOv/images/34541c92-9956-41b0-ab18-59ff127247d7.jpg?asset_id=3fb98f0d-4ebe-447b-8a9f-2d6ece2d03a2&amp;img_etag=%22c896cc19931ccd4fe7853e1f6787822c%22&amp;size=1024)
-
-1、巴西总统艾森保罗基本指明病毒为中共生物武器，国家级元首多米诺骨牌即将显现。
-
-2、美国著名大学哈佛、斯坦佛、MIT等都在开会讨论病毒来源。
-
-3、中共国民生、招商、中信等银行都在利用封账号等手段阻止大陆资金购买虚拟货币。
-
-4、真正加密货币的属性就是安全以及独立存在，不受威胁。
-
-5、日本大量财富进入加密货币领域，经济危在旦夕。
-
-6、美国、瑞士、英国以及中共国都将打击加密货币，美、英、瑞、欧洲是阻止加密货币挑战本国信用货币地位；中共国是为了阻止财富外流。
-
-7、几个月时间加密货币市场达到了2.5万亿美元，当其市场到达10万亿美元时，其不仅仅是货币，而是世界上不可忽视的影响人类科技文明、贸易金融的绝对不可推翻的力量。
-
-8、现在的以比特币为首的加密货币最终会消失，新的有锚定的加密货币会出现，只有区块链货币是安全的，任何其他货币都会被政治、权力控制。加密货币改变了人类的贸易以及生活方式
-
-9、亚洲、香港很多用做经营生产的资金进入了加密货币领域，人们都意识到中共即将灭亡；随着中共的灭亡，其贪墨的资金如果有2-3万亿美元进入加密货币市场，将带来4-50万亿美元的边际效应，那时的加密货币不可估量。
-
-**郭文贵先生盖特精要-20210507-002**[盖特链接](https://gtv.org/getter/609553a237f7f73984c8e942)
-
-听写：乐禧禧 | 校对：CharlesS
-
-[!\[\]()!\[\](https://spark.adobe.com/page/mTRUSZdaSkDOv/images/42e6db24-e322-4049-9b78-db9778f4f9f4.jpg?asset_id=1a4284cb-1eb2-4e91-ab20-6b63cb555969&amp;img_etag=%221675e3e19e4daa97d593559e56c6e826%22&amp;size=1024)](https://spark.adobe.com/page/mTRUSZdaSkDOv/images/42e6db24-e322-4049-9b78-db9778f4f9f4.jpg?asset_id=1a4284cb-1eb2-4e91-ab20-6b63cb555969&amp;img_etag=%221675e3e19e4daa97d593559e56c6e826%22&amp;size=1024)
-
-1、过去各国的出租车都是垄断的，一个牌照要几万或几十万，有了Uber后就不用出租公司了，每个人都轻而易举获得牌照。
-
-2、当初的Airbnb没人看好，現在Airbnb是传统酒店多少倍营业额？当每个人的手机和计算机可以处理账务，有信用约束，为什么还要通过银行和酒店服务公司呢？
-
-3、加密虚拟货币是任何国家政权都不能垄断你的财富，不可以强迫征收不公平的税收，国家的剥夺权没了，财富自由就是身体自由，也就是言论自由。
-
-3、当钱只能在自己国家花，那只是某区域的兑换券；当钱可以在全球流通成为全球交易那才是货币，以后的全球数字交易系统，电子加密虚拟货币没人可挡，不会再有币。
-
-4、战友讲解加密区块链货币的意义要讲清楚：安全、全球化、隐私、绝不可剥夺这些特点。
-
-5、当9千万党员知道存钱最安全地方是喜币、喜美元、喜联储、与美元挂钩，没有任何人可以拿走你的钱时，他们都会跟着喜联储走，这就是隔空取钱。
-
-**郭文贵先生盖特精要-20210507-003**[盖特链接](https://gtv.org/getter/6095bf5737f7f73984c90370)
-
-听写：逍遥自在 | 校对：乐禧禧
-
-[!\[\]()!\[\](https://spark.adobe.com/page/mTRUSZdaSkDOv/images/cb9c92fb-29a7-4470-9e08-b68427112a46.jpg?asset_id=1b9f1efb-b501-451a-b6f7-0e1a000497f4&amp;img_etag=%222b296a00f54f55d3b5a73000d7fa80ef%22&amp;size=1024)](https://spark.adobe.com/page/mTRUSZdaSkDOv/images/cb9c92fb-29a7-4470-9e08-b68427112a46.jpg?asset_id=1b9f1efb-b501-451a-b6f7-0e1a000497f4&amp;img_etag=%222b296a00f54f55d3b5a73000d7fa80ef%22&amp;size=1024)
-
-1、关于喜币安全的问题。国内所谓封杀加密货币，其根本目的就是封杀喜币。
-
-2、加密区块链的安全性是任何纸币和所有传统的金融系统所比不上的。
-
-3、喜币有追索功能，即使战友们的钱被强迫或者非法转移，都是可以追索回来，不管这笔钱在哪都 不可被销毁，不可被篡改，同样也不可能造假。
-
-4、区块链加密货币的安全性流通性和可追索性，更重要的是不需要“中间人”。
-
-5、区块链:不能丢，不可能丢;不能抢，不可能抢。
-
-6、中共开始新的“文革”：着手准备杀富豪，杀有钱人，杀名人。
-
-**郭文贵先生盖特精要-20210508-001**[盖特链接](https://gtv.org/getter/60968e7637f7f73984c93a90)
-
-听写：Lee diamon | 校对：乐禧禧
-
-[!\[\]()!\[\](https://spark.adobe.com/page/mTRUSZdaSkDOv/images/c64f70cc-3e9b-4bed-8e8f-e5f06f262a94.jpg?asset_id=c3c69170-63a5-4b13-87ca-6835013ec013&amp;img_etag=%22bbd731c1e683ee49e6f5ab81d5d76c4e%22&amp;size=1024)](https://spark.adobe.com/page/mTRUSZdaSkDOv/images/c64f70cc-3e9b-4bed-8e8f-e5f06f262a94.jpg?asset_id=c3c69170-63a5-4b13-87ca-6835013ec013&amp;img_etag=%22bbd731c1e683ee49e6f5ab81d5d76c4e%22&amp;size=1024)
-
-1、今天要出去见几个人，搞几个小风暴，给战友们在6月4日一周年的时候献礼。
-
-2、墙内战友在民生银行的大额存款现在取不出来。民生银行出事，墙内三分之一的企业会被波及。接下来张宏伟与国开行的上百亿美元腐败会爆出；民生和国开行出事后，各地的商业银行会成片倒下，半数的国内私人企业家都会倒掉。上百万人会牵扯其中，金融、房地产崩盘。
-
-3、爆料革命救了很多人，很多当时没有选择相信的至今都后悔了。
-
-4、邮储银行表面上看起来不错，但实际上资金已经被中南坑几个常委家族洗劫一空，它一定会倒。肖建华、许家印金融票据都搞了几万亿。
-
-5、国内人都是被揪羊毛的羊，民生的钱抓紧时间转到中行、建行等目前安全的银行。
-
-6、美国欧洲日本都在查找共产党的资产。三大电信整个被除牌给美国、全世界下一步脱钩建立了一个标准，以后凡是共产党的企业以及参与过新疆、香港、西藏大屠杀的企业都会被干掉。
-
-7、中共的钱属于人民，不能让西方贪婪的金融大鳄抢走，所以我们要隔空取钱。所有共产党的钱只有一个合法的去处就是喜联储，喜美元，喜币，投资GTV股票，盖特，GNEWS，GCLUB。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/mTRUSZdaSkDOv/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/mTRUSZdaSkDOv/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

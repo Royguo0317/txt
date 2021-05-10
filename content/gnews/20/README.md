@@ -1,26 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共火箭残骸险砸马尔代夫，距岛40余公里
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1197144/)
+## 题目：【世事解评】中共大肆虚假宣传“美国进入紧急状态”意欲何为
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1198428/)
 
 作者：纽约香草山佛教部    369文驹
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01211000/gnews-logo-3.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04221555/s2-2.jpg)
 
 
 
-据中共国载人航天工程办公室消息，长征五号B遥二运载火箭末级残骸周日10时24分已再入大气层，其落区位于东经72.47°，北纬2.65°周边海域。坐标显示该区域位于马尔代夫群岛以西的印度洋海域。
+5月10日，中共多家媒体几乎同时大肆宣传“美国进入紧急状态”，大外宣CGTN发布，大内宣转载，几乎霸屏，好不热闹。见下图：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09221505/2021.05.10f-3.jpg)图源：HK01
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10012403/w1-1-1.jpg)图源：新浪
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10012531/w2-3.jpg)图源：经济观察网
 
 
 
-去年首个长征五号B遥二运载火箭碎片坠落在科特迪瓦的象牙海岸，毁坏了若干建筑物，而今年也是该型号火箭残骸，而且是重达21吨的庞然大物不受控的坠落下来，据大纪元报道，长征五号B遥二火箭残骸坠落的海面，距离最近的有人岛礁加迪福里（Gadifuri）岛仅约42公里，而当地就是供度假饭店专用的岛礁。
+根据上图内容，界面新闻所谓引用的是BBC的消息来源，还提出是拜登宣布的美国紧急状态，笔者并没有找到美国媒体报道的所谓拜登宣布紧急状态，在白宫网站也没查询到拜登宣布美国进入紧急状态。笔者找到了BBC报道了消息原文，地址为：https://www.bbc.co.uk/news/business-57050690，该报道清楚写明的是“在美国最大的燃料管道遭到勒索软件网络攻击后，美国政府周日发布了紧急立法“，其中没有涉及拜登，也没有美国进入国家紧急状态。中共在明目张胆的歪曲新闻原意，利用控制的媒体大肆炒作。
 
-同时，加迪福里岛距离达卢环礁的最大岛、有常住居民且唯一拥有机场供观光客进出的库达胡瓦杜（Kudahuvadhoo）岛，距离不到5公里；而库达胡瓦杜岛距离残骸坠落海面，也只有近46公里。
+中共这么做的意图是什么呢？笔者认为，在中共被全球正义联盟围堵，以铁矿石为首的基础原料面临来源枯竭，成本即将大幅攀升之际，叠加全球通货膨胀，国内经济面临崩盘、人民币二季度即将极端贬值的情况下，中共此举是提前释放石油作为战略物资即将枯竭和管制，石化工业面临灭顶之灾的信号。石油化工产业是工业的基础行业，该行业出现大问题，下游产业跟着就会崩溃，如同多米诺骨牌的效应。但是中共不想承担自己作恶带来的后果，要将锅甩给西方社会，特别是美国。所以不惜编造假新闻给国内民众洗脑，转嫁矛盾焦点，绑架老百姓去仇恨美国等西方世界。
 
-中共居然还恬不知耻说这是西方媒体的炒作，意思是这种不受控的火箭残骸坠落是理所当然的，且不说美国已经实现火箭回收和重复利用，仅仅是这种言论就体现出了中共没有把老百姓的生命当回事儿，这种霸道的行径背后是中共一贯的思维逻辑，对待国内人民更是如此，漠视人权，亵渎生命。
+中共连毁灭人类的中共病毒都可以嫁祸给美国，按照中共不要脸的无下限逻辑，还有啥不能嫁祸给美国的呢？中共炒作该事件的后续如何发展，我们拭目以待。
 
 
 
@@ -29,14 +31,13 @@
 
 
 参考阅读：
-
-1. [长征火箭残骸重返大气层“落区点”近马尔代夫绝大部分已销毁](https://www.hk01.com/%E5%8D%B3%E6%99%82%E4%B8%AD%E5%9C%8B/622718/%E9%95%B7%E5%BE%81%E7%81%AB%E7%AE%AD%E6%AE%98%E9%AA%B8%E9%87%8D%E8%BF%94%E5%A4%A7%E6%B0%A3%E5%B1%A4-%E8%90%BD%E5%8D%80%E9%BB%9E-%E8%BF%91%E9%A6%AC%E7%88%BE%E4%BB%A3%E5%A4%AB-%E7%B5%95%E5%A4%A7%E9%83%A8%E5%88%86%E5%B7%B2%E9%8A%B7%E6%AF%80)
-2. 长征5号火箭残骸坠落 险砸马尔代夫旅游岛屿 （https://www.epochtimes.com/gb/21/5/9/n12935008.htm）
-
+[US passes emergency waiver over fuel pipeline cyber-attack](https://www.bbc.co.uk/news/business-57050690)
 
 发稿：有莫举名
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
 
 **更多资讯，更多关注**
 
@@ -48,10 +49,10 @@
 
 [**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04221555/s2-2.jpg)
 
 
 
-+1
+0

@@ -1,37 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 投桃报李不应该吗？
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1198626/)
+## 【健身健心】练出强壮的手臂，锻炼肱二头肌
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1198833/)
 
-作者：老蚂蚁666
+纽约香草山健身部Jack Li文阳
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10014837/106-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02191345/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
 
-（图片来源：关于生鲜365）
 
-据5月9日搜狐网引用新华社消息称，中共国红十字会与红新月会国际联合向印度提供100万美元现金，和100台制氧机、20台无创呼吸机和20台有创呼吸机的物资援助。
 
-在网上一搜铺天盖地都是这则消息。俗语说好事不出门，坏事传千里。这条社会传统习俗规律到中共这就不灵了。因为中共最喜欢伟光正，只要做点芝麻大好事，就到处大肆传播，生怕全世界不知道它的好似的。归根到底，还是其心虚没底气。病毒来源的追溯在全世界如火如荼、越演越烈。如电影桥段，混迹少年当发现平时对己如亲生子的老大竟是杀父仇人，他心里会怎么想？是不是你对我的好，并非出自本心；而是你内心的愧疚和对曾经犯下错的弥补；你的关爱是理所当然，是在赎罪请求原谅宽恕的表现。看看此刻印度犹如烈火的地狱，这个情它会领吗？
+很多人不满意自己手臂瘦弱无力、肌肉松弛？想要迅速练出精瘦结实的手臂肌肉？虽然肌肉不可能短时间增长，但只要肯付出努力并采取正确的运动策略，短时间内就能看到效果，下面介绍几种锻炼的方法。
 
-再看去年2月26号印度向武汉捐赠了15吨物质，直到3月9号网易的相关报道才姗姗来迟。对比上述新闻中共刚做好事，立马当天就出报道，是不是很讽刺。是因为中共国新闻媒体有严格的舆论审查管控机制使然；还是对他国的善行打心底不“感冒”，造成报道延迟我们只能猜。但有一点可以肯定的，中共不想让国人认识到他国的好，只有这样才能对党的好感恩戴德。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10020702/%E5%9B%BE%E7%89%876-9.png)
 
-当代表印度政府和人民满满的爱心救济防疫物资送达武汉时，在场的中方人员没有任何感谢表示，只选择了沉默。仅仅因为在捐赠仪式上，印度人打出了祝福标语“A gift from the people and  Government of India to the people and Government of China in  this  hour  of  need”下方的中文翻译错了。就让对方的100分友爱，变成了“不及格”。弱弱问一句，上面的英语可是世界通用语言，在接收单位里难道就没有一个有国际视野的文化人吗？还是政治正确的党让他闭嘴了。“in  this  hour  of  need”翻译过来就是危机、紧急时刻。
+1.做哑铃集中弯举练习
 
-可能很多人也不知道去年武汉疫情，日本政府给中共捐了很多防疫物质吧；也不知道日本民众在大雪纷飞天，雪地里写出“武汉加油、中日友好”等暖心话吧；只知道当后来日本疫情也变严重时，北方某粥店打出“因日本新冠吃饭打折优惠”等横幅雷人标语。投桃报李是中华民族的传统美德。中国和世界上其他国家之间的民间有着最淳朴和善良友爱交流，这份发自内心的真情被谁给屏蔽呢？中共国的“长城防火墙”仅仅是党建立的千千万万的虚拟墙之一，它无情的阻碍了中国人民和世界人民直接的轻松交流。
+坐在椅子上，双腿稍微张开，手持一个哑铃。身体前倾，便于持哑铃手的肘部能够触碰到同一边的膝盖上。向下摆动手臂，然后再朝肩膀方向举起，每组做10次，两只手交换，重复做这个动作。
 
-当然传统中国文化和现代传统文明之间也有个中共隔离墙。中共不倒，党不点头投桃报李就不应该，也做不到。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10020456/%E5%9B%BE%E7%89%877-6.png)
 
-（本文只代表作者观点，与Gnews平台无关。）
+2.做划船式哑铃上提练习
 
-新闻来源：
+垂直站立，每只手各提一个哑铃，将哑铃提到大腿前方，与大腿平行。肘部向外弯曲，上提哑铃至胸部位置，并保持平行（做划船动作）。然后再慢慢地将哑铃放低到大腿前方，重复10次。
 
-[1] [中国红十字会向印度提供人道主义支持](https://www.sohu.com/a/465494215_267106)
+![]()![](https://gnews.org/wp-content/uploads/2021/05/图片8-5.png)
 
-[2] [令人困惑！印度运输机送来15吨物资，中方看到中文标语敢无人吭声](https://www.163.com/dy/article/F79485IH05159TSH.html)
+3.做屈臂弹力带练习
 
-[3][A gift from the people and  Government of India to the people and Government of China in  this  hour  of  need实际谷歌“机翻”结果](https://translate.google.cn/?sl=auto&amp;tl=zh-CN&amp;text=A%20gift%20from%20the%20people%20and%20%20Government%20of%20India%20to%20the%20people%20and%20Government%20of%20China%20in%20%20this%20%20hour%20%20of%20%20need&amp;op=translate)
+身体直立，双脚打开与肩同宽，脚下踩着弹力带，双手分别握住弹力带到两端，并放在身体侧，然后慢慢地抬起手臂，直到肩膀高度，然后慢慢放下手臂，放松弹力带的拉力，回到身体两侧。
 
-校对发布：Penny
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10020912/%E5%9B%BE%E7%89%879-3.png)
+
+4.做锤式哑铃臂弯曲练习
+
+身体垂直站立，双手像抓住锤子一样抓住哑铃，双手各持一个哑铃。弯曲手臂，向肩膀方向推高哑铃，哑铃两端直上直下，慢慢的弯曲手臂，将哑铃方向（象拿铁锤钉钉子一样），然后再将哑铃朝肩膀方向举起来，重复做，每组10个。
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
