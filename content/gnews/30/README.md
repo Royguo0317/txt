@@ -1,11 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】莫德纳疫苗是基因型疫苗，将引发血栓
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1201862/)
+## 书法作品：感恩七哥 生日快乐
+` LovingNew` [轉載自GNews](https://gnews.org/zh-hans/1201812/)
 
-4/16/2021 巴克迪博士：莫德纳疫苗是基因型疫苗；病毒刺突蛋白能激活能引发血栓的血小板，淋巴细胞努力杀掉胆敢复制病毒的细胞。而你的血管内壁细胞，捕获了这些病毒基因并复制，这样它们就会受到你自己的免疫系统攻击、破坏，这就是形成血栓的原因，反应强度取决于免疫增强反应的程度。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
-0
+作者：防弹青年
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10093539/IMG_7133-13.jpg)
++1

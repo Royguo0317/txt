@@ -1,34 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Sellin博士新推揭露军科院病毒室主任秦成峰
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1200718/)
+## 黑客袭击了美国最大石油管道 石油上涨 东海岸天然气用尽
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1201237/)
 
-#### 作者:【默凡】
-
-Sellin博士5月9日发推：中共病毒侦探@2020Gladiator（推特号）提供了明确的证据，证实秦成峰与中共军方高层有联系，其中就包括中共生物战项目负责人陈薇少将。
-
-
-
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@2020Gladiator](https://twitter.com/2020Gladiator?ref_src=twsrc%5Etfw) provides clear evidence of Chengfeng Qin's high level military links including to Major General Wei Chen, believed to be the head of the CCP's biowarfare program.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/2sA1rSPuHw](https://t.co/2sA1rSPuHw)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 9, 2021](https://twitter.com/LawrenceSellin/status/1391415117183660033?ref_src=twsrc%5Etfw)
+```
+新闻来源：意大利共和国报（La repubblica）
+发表时间：2021年5月10日
+翻译整理/简评：斩草要除根
+```
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10080243/IMG_20210510_140203.jpg)图片来源：图虫
 
-秦成峰，博士学位，中国人民解放军军事医学研究院微生物流行病研究所病毒室主任。2020年10月15日，荣获第十六届中国青年科技奖。2021年4月，荣获第十三届“谈家桢生命科学创新奖”。
-![]()![](https://gnews.org/wp-content/uploads/2021/05/76022442-5715-48C7-A1FD-AB7DC1C4DE9F.png)
-目前，秦成峰博士承担着国家重点研发计划、国家自然科学基金国际合作项目等重点课题，围绕着登革热、寨卡、埃博拉等严重威胁国家生物安全的重要新突发传染病开展深入研究，先后获得牛顿高级学者、基金委优秀青年基金、埃博拉出血热疫情防控先进个人、总后勤部科技新星等荣誉。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10062802/06E301C8-8DAA-4653-A1BD-DBBC6A3EABC2-3.jpeg)
-本文仅代表作者本人观点，不代表Gnews平台
+黑客攻击关闭了运营商*Colonial pipeline*公司的石油管道（该管道将美国东海岸使用的50％的燃料从德克萨斯州运输到新泽西州）的水龙头，并使世界石油市场陷入混乱。该警报于上周六响起，使管理8000公里基础设施的公司的操作系统陷入混乱，被网络海盗袭击瘫痪，据称这些海盗从网络中“抢走”了大约100 GB的数据，并要求赎金。该公司立即致电网络安全专家，试图解决这一问题，白宫下令所有联邦机构伸出援助之手，尽快恢复正常运行。现在还没有 太成功：今天早上，全美最大的成品油输送管道*Colonial pipeline*（向世界上最繁忙的亚特兰大机场提供燃料）仍然停了下来。受制止的石油价格上涨了约1％。由于哈维飓风，这条巨大的管道曾在2017年被封锁了两周，那时美国东海岸的水泵汽油价格上涨了25％。
 
-参考文章：
+专家说，周六的袭击极为复杂，并证实了在 *Solar Wind* 案中已经钻探的一些战略性美国基础设施的极端脆弱性，这使神秘的黑客可以在一段时间内进入美国商务部的财政部和部门服务器。美国*tam-tam*表示，这是一个网络犯罪团伙，自称是网络罗宾汉（*Robin Hood*）的是罪魁祸首。
 
-[http://\[1\]https://twitter.com/LawrenceSellin/status/1391415117183660033](http://[1]https://twitter.com/LawrenceSellin/status/1391415117183660033)
+管道瘫痪的后果将与关闭时间长短成正比：今天早晨，东海岸的汽油价格上涨了几美分，而且没有迹象表明加油站的运行不受控制。从理论上讲，该州为这些紧急情况提供了物资，白宫已经下达了向北升级德克萨斯州油罐车服务的任务。但是，如果关闭时间延长，即使这段时间的燃油消耗低于大流行的正常原因，情况也可能变得复杂：从欧洲运抵新的供应将需要时间。乔·拜登（*Joe Biden*）可能被迫中止《琼斯法案》。
 
-[http://\[2\]https://baike.baidu.com/item/%E7%A7%A6%E6%88%90%E5%B3%B0/23652176?fr=aladdin](http://[2]https://baike.baidu.com/item/%E7%A7%A6%E6%88%90%E5%B3%B0/23652176?fr=aladdin)
+#### 简评：
 
-[http://\[3http://www.js7tv.cn/news/201712\_122932.html\]](http://[3http://www.js7tv.cn/news/201712_122932.html])
+**我们可以大胆的猜测，这是否与中共有着千丝万缕的关系呢？ 去年12月份的太阳风（*solar wind*）黑客袭击和刚刚发生的台湾巨轮“长赐号”搁浅苏伊士运河，卡死石油重要航道都是中共在背后所操控的。那这一次黑客袭击美国石油管道事件是否有中共的影子，我们只能待以观察了**。
+（本文仅代表译者个人观点，跟GNEWS平台无关。）
 
-校对/发布：文婷
+**新闻原文链接：**
+🔗[Attacco hacker al maxi-oleodotto Usa. Sale il petrolio, l’East Coast a corto di benzina](https://www.repubblica.it/economia/2021/05/10/news/attacco_hacker_al_maxi-oleodotto_usa_sale_il_petrolio_l_east_coast_a_corto_di_benzina-300260878/?ref=RHTP-VS-I270681073-P11-S1-F)
 
-0
+* * *
+
+***编辑整理/校对:** Ting Guo*
+
++2
