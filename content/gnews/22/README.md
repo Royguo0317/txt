@@ -1,40 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港救生艇计划实施
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1195982/)
+## 日本财经简讯 2021/05/08
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1196452/)
 
-作者：Tang0426 | 校对：文明明 | 审核：Beicy-数学老师 | Page：我是球大哥
+By Tokyo Sakura Finance Group
 
-[!\[\]()!\[\](https://spark.adobe.com/page/bRbc898TvndRb/images/d268b9fc-3114-45dd-8ba6-ffe65d10e591.jpg?asset_id=0ec3d352-3b27-4397-ad31-651d6f173c88&amp;img_etag=%22ea69677bd43ca46640bf2439810a81f5%22&amp;size=1024)](https://spark.adobe.com/page/bRbc898TvndRb/images/d268b9fc-3114-45dd-8ba6-ffe65d10e591.jpg?asset_id=0ec3d352-3b27-4397-ad31-651d6f173c88&amp;img_etag=%22ea69677bd43ca46640bf2439810a81f5%22&amp;size=1024)
+（Translation: Orange文橘        Manuscript: Totoro）
 
-[🔗视频链接](https://www.gtv.org/video/id=608d8a0a6c00a14130e4859c)
+![](https://lh3.googleusercontent.com/JUdkv-qkFLBxMBYI3776hPbjoHy-KnF1mBHvg-GwR7x-OhEZzoiSkyxjiVBkPC06dChT7YeqDv7ySMVDij7Y7iPgbOFXUCocwn-x4Wym4QqOgoJwT2YChs9IJAdNv0MXQgG-t7Fh)
+The picture was designed by “唯真不破小蜜蜂”
 
-从视频可以得知，欲逃离香港的手足通过简便的手续便可以获取赴英国定居若干年的签证，并在签证期满后，可申请长期签证定居, 定居一年后可申请加入英国籍。
+⭐️Uniqlo’s domestic sales in Japan in April increased by 84.5% compared with the same period in 2020. Under the influence of the CCP virus, up to 83 branches were temporarily closed.
 
-我对此挺羡慕的。几十年来，墙内的先不说，单说海外的华裔同胞，群体性遭受过多次凌辱、迫害。自称代表人民利益的中共执政者，从来都是不管不顾，更不会伸手援助。
+优衣库四月份日本国内的销售额比去年同期增加了84.5%，在中共病毒的影响下，最多曾有83家分店临时停业。
 
-但是今天，当中共政权悍然撕毁联合国公认的“中英联合申明”，“50年不变”的承诺期未过一半，便出于独裁者的偏执、狭隘和傲慢，以“国安法”的名义，破坏、打压香港的法治和政治结构。
+⭐️Under the influence of the tight supply of semiconductors in the world, the Nintendo game console-Nintendo Switch’s production in March 2022 is expected to be 25.5 million units, 11.5% less than the previous period. The sales and profits are expected to decrease by 9% and 22% accordingly.
 
-香港的手足，呼吸过自由的空气，经受过法治公平、正义的熏陶，看似不关心政治的群体，以世人惊叹的身姿站立出来。
+在世界半导体供给紧张的影响下，任天堂游戏机-任天堂Switch的2022年3月预计生产量为2550万台比前期减少11.5%，预计销售额及利润也可能相应减少9%和22%。
 
-一年来不屈不饶的抗争，虽被武装到牙齿的军警围堵、抓捕甚至奸污、杀害，但是，依然有来自各行各业的市民、学生达百万之众走上大街。他们以文明的举止，恪守非暴力纪律，流血流泪，但绝不跪下的骨气赢得了世界的敬重，为中华民族树立伟大的丰碑！
+⭐️A Japanese recruitment company found out through a questionnaire on May 8, that among 1,040 people more than 60% of Japanese believed that the CCP virus was related to their changing jobs, and more than 30% showed their concern about their company’s business strategy and directions.
 
-但现在，香港已沦陷在白色恐怖中，数以万计的抗争者被囚禁、被残害。他们理应得到救助。
+日本猎头公司Recruit通过一个1040人参加的调查问卷（5月8日）发现，6成以上的日本人认为中共病毒与他们换工作的行为有关，3成以上的人表示对其公司的经营策略与方向感到不安。
 
-英国政府是有道义和责任担当的，此次推出BNO签证，有一个很暖心的名字“香港救生艇”，将使几百万受困中的香港手足脱离险境。。
+⭐️Honda and Toyota’s vehicle sales in China increased by 31.7% and 12.2% over the same period last year and reached the highest sales in history. Nissan vehicle sales also increased by 4.4%.
 
-英国政府是富于智慧的。香港拥有众多的各种人才，引进这么一优秀群体，无论哪个国家，都是一笔巨大的财富。
+本田与丰田在中共国的汽车销售量比去年同期增加了31.7%和12.2%并达到了历史最高销售量，日产也增加了4.4%。
 
-**文章仅代表个人观点**
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/bRbc898TvndRb/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/bRbc898TvndRb/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
+*发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01183841/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
 0

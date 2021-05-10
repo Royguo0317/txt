@@ -1,243 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 战友展览板【5/9】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1196013/)
+## 中共国军方曾于2015年讨论将新型冠状病毒武器化“以使敌人医疗系统崩溃”
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1196508/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
+翻译评论：文虓Bobby
 
-【以毒灭共】推文。如下
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09201647/051002.png)
 
+2015年，即新型冠状病毒在中共国武汉出现大流行的前五年，中共国军事科学家讨论了如何将SARS冠状病毒武器化，——中国共产党科学家在那里与美国资助的非政府组织合作进行所谓的“功能增强”研究，使蝙蝠冠状病毒更容易感染人类。
 
+这份263页的文件由中共国人民解放军科学家和中共国公共卫生高级官员撰写，美国国务院在调查新型冠状病毒源头时获得了这份文件。据澳大利亚周末报(新闻集团的子公司)报道，解放军科学家注意到，在生物武器袭击期间，需要住院治疗的病人突然激增，“可能会导致敌人的医疗系统崩溃”。
 
-> [https://t.co/XwYAkoK1He](https://t.co/XwYAkoK1He)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 9, 2021](https://twitter.com/DrLiMengYAN1/status/1391469886547841024?ref_src=twsrc%5Etfw)
+报告指出，SARS冠状病毒可能预示着一个“基因武器的新时代”，并指出，它们可以“被人为操纵成一种新型人类疾病病毒，然后被制成武器，并以一种前所未有的方式释放出来。”
 
+英国和澳大利亚外交事务和情报委员会主席汤姆-图根哈特 (Tom  Tugenhat)和詹姆斯·帕特森 (James Paterson)表示，这份文件引发了人们对中共国在新冠冠状病毒起源问题上缺乏透明度的严重担忧。
 
-1. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1391469886547841024?s=20)**：
-[*中共国在疫情爆发前讨论了冠状病毒生物武器，并预测了使用生物武器是第三次世界大战的形式*](https://www.republicworld.com/world-news/china/china-discussed-weaponising-coronaviruses-before-pandemic-predicted-ww3-with-bio-weapons.html)
+这篇题为《非典的非自然起源与人造病毒作为遗传生物武器的新物种》的论文概述了中共国在生物战争研究领域的进展。
 
+“随着其他科学领域的发展，生物制剂的交付已经取得了重大进展，”它说。
 
-> 流感病毒NS1蛋白以及SARS冠状病毒N蛋白参与的免疫逃逸机制研究
-> The Immune Escape Mechanism of Influenza Virus NS1 Protein and SARS Coronavirus N Protein
-> 内容很干货！大量的引用和被引用证实中国人民解放军军事学院的军民融合。[@LawrenceSellin](https://twitter.com/LawrenceSellin?ref_src=twsrc%5Etfw) [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) [@dezying](https://twitter.com/dezying?ref_src=twsrc%5Etfw) 
-> 1/2👇 [pic.twitter.com/JxkKr54kZW](https://t.co/JxkKr54kZW)
-> — 公民 – SEVEN (@NFSC\_007) [May 9, 2021](https://twitter.com/NFSC_007/status/1391449765238349827?ref_src=twsrc%5Etfw)
+“例如，冻干微生物的新发现使储存生物制剂和在袭击时将其雾化成为可能。”
 
+根据澳大利亚战略政策研究所的“国防大学跟踪”，该研究的10位作者是隶属于西安空军医科大学的科学家和武器专家，该大学的国防研究水平，包括医学和心理科学的工作，被评为“极高风险”。
 
-2. **[公民记者推特](https://twitter.com/NFSC_007/status/1391449765238349827?s=20)**：
-*（上）流感病毒NS1蛋白以及SARS冠状病毒N蛋白参与的免疫逃逸机制研究 The Immune Escape Mechanism of Influenza Virus NS1 Protein and SARS Coronavirus N Protein 内容很干货！大量的引用和被引用证实中国人民解放军军事学院的军民融合。
-（下）致谢挖料战友@GeorgeZ44231116
-提供线索 挖料战友请注意：马利克·佩里斯发表学术用名是： Peiris, Joseph Sriyal Malik
-🔗[流感病毒NS1蛋白以及SARS冠状病毒N蛋白参与的免疫逃逸机制研究](http://gb.oversea.cnki.net/KCMS/detail/detailall.aspx?filename=1017230405.nh&amp;dbcode=CDFD&amp;dbname=CDFDREF)（知网）
-🔗[流感病毒NS1蛋白以及SARS冠状病毒N蛋白参与的免疫逃逸机制研究](https://d.wanfangdata.com.cn/thesis/ChJUaGVzaXNOZXdTMjAyMTAzMDISCUQwMTIzMTQ2MBoIM3ZzdzFlbWo%3D)（万方）*
+2017年，在习近平主席的军事改革中，空军医科大学(又称第四医科大学)被划归人民解放军指挥。《人民日报》总编徐德忠的网上个人简介显示，2003年非典期间，他向中共国军委和卫生部的最高领导层作了汇报，汇报了24次，准备了3份报告。——澳大利亚
 
+该报告称，曾为美国、澳大利亚和加拿大政府工作的数字取证专家罗伯特•波特(Robert Potter)表示:“我们能够验证它的真实性，这是一份由特定解放军研究人员和科学家撰写的文件。”波特此前曾分析过泄露的中共国政府文件。“我们在中共国互联网上找到了它的起源。”
 
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) connects the dots from the Third Military Medical University, discoverers of Zhoushan bat coronaviruses ZC45 & ZXC21, to Jing An, the envelope (E) protein, Zika & dengue viruses & [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) 's nervous system effects.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/jq2v2qGADT](https://t.co/jq2v2qGADT)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 9, 2021](https://twitter.com/LawrenceSellin/status/1391444757948387331?ref_src=twsrc%5Etfw)
+美国前国务卿蓬佩奥(Mike Pompeo)和他的首席中国事务顾问余茂春(Miles Yu)在2月份《华尔街日报》的一篇专栏文章中引用了这份文件，写道:“2015年解放军的一项研究将2003年SARS冠状病毒爆发视为外国军队发动的‘当代基因武器’。”
 
+澳大利亚战略政策研究所执行主任彼得·詹宁斯（Peter Jennings）表示，“研究能力没有明确的区别，因为它是用于进攻性还是防御性并不是这些科学家会做出的决定，”（继续）补充说:“如果你的技能表面上是为了保护你的军队免受生物攻击，你同时也给了你的军队使用这些武器的能力——进攻性的。你不能把这两者分开。””
 
-3. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1391444757948387331?s=20)**：
-***（火来）**[安静](http://www.zoores.ac.cn/cn/article/doi/10.24272/j.issn.2095-8137.2020.016?viewType=HTML)的合作者之一是谭伟龙，他在2018年与王长军一起发现了（舟山病毒）ZC45/ZXC21。静安筛选了来自登革热病毒E蛋白的肽，以阻止病毒进入，其中一种具有FG环路
+该研究还研究了释放生物武器的最佳条件。“生物武器攻击最好在黎明、黄昏、夜晚或阴天进行，因为强烈的阳光会破坏病原体，”报告称。“在干燥的天气里应该释放生物制剂。雨或雪可以导致气溶胶颗粒沉淀。
 
-**（Sellin)** #COVID19侦探（火来）
-将舟山蝙蝠冠状病毒ZC45和ZXC21的发现者安静，第三军医大学与包膜（E）蛋白、寨卡和登革热病毒以及 #COVID 的神经系统效应联系起来。#CCPVirus #coronavirus*
+“一个稳定的风向是理想的，这样气溶胶就可以飘到目标区域。”
 
+这些军事科学家最离奇的说法是，他们认为引发2003年非典疫情的SARS-CoV-1病毒是“恐怖分子”故意向中共国释放的人造生物武器。——澳大利亚
 
-> As [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@dezying](https://twitter.com/dezying?ref_src=twsrc%5Etfw) correctly notes, CCP military scientist Wenjie Tan is a key figure in the laboratory creation and perhaps the release of [#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/p2zgMyKUj2](https://t.co/p2zgMyKUj2)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 9, 2021](https://twitter.com/LawrenceSellin/status/1391451416435339266?ref_src=twsrc%5Etfw)
+此前，5月3日有报道称，武汉病毒学研究所(WIV)正与中共国政府组成一个由5名军事和民间专家组成的团队，“他们在武汉病毒学研究所(WIV)实验室、军事实验室、以及其他民用实验室导致了“在野生动物中发现动物病原体(导致疾病的生物制剂)”，据《大纪元时报》报道。
 
+正如我们在3月份所指出的，由安东尼·福奇博士(Anthony Fauci)领导的美国国立卫生研究院(NIH)“已经资助了一些有武汉病毒学研究所(WIV)科学家参与的项目，包括武汉实验室研究蝙蝠冠状病毒的大部分工作。”
 
-4. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1391451416435339266?s=20)**：
-***（德意志之鹰）**更多关于谭文杰和他的中共赞助的五年计划。
-动物源性新发和再发人畜共患病的跨种感染和传播机制研究（2016YFD0500300）。
-解放军中部战区总医院
+据《每日通话》(Daily Caller)报道，2017年，福奇博士(Dr.Fauci)的机构在没有获得政府监督机构批准的情况下，恢复了一项有争议的拨款，用于中共国武汉的转基因蝙蝠冠状病毒。2014年，奥巴马政府暂停了对蝙蝠冠状病毒功能增强性研究的联邦资助。在做出这一决定的四个月前，NIH通过向彼得·达扎克（Peter Daszak领导的非营利组织生态健康联盟(EcoHealth Alliance)拨款，有效地将这项研究转移到了武汉病毒学研究所(WIV)。
 
-**（Sellin）**作为 #COVID19 的侦探 （德意志之鹰）
-正确地指出，中共军事科学家谭文杰是实验室创造和可能发布 #COVID-19 的一个关键人物。
-CCPVirus #Unrestricted Bioweapon #Unrestricted Biowarfare #OriginOfCOVID19 #coronavirus*
+NIH在2014年6月支付了生态健康370万美元拨款的第一批666,442美元，在“了解蝙蝠冠状病毒出现的风险”项目下，截至2019年5月的类似年度拨款。
 
+据《华盛顿邮报》的乔希·罗金(Josh Rogin)报道，值得注意的是，WIV在“蝙蝠女”石正丽博士(Batwoman Shi Zhengli)的领导下，多年来“公开参与功能增强研究”，与美国大学和研究机构合作。
 
-> A deep involvement of Malik Peiris to PLA institutes and scientists through Wenjie Tan and Zhiwei Chen[https://t.co/4bdNwSYnW9](https://t.co/4bdNwSYnW9)
-> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [May 9, 2021](https://twitter.com/jsdfposjpqyuee1/status/1391454220751040524?ref_src=twsrc%5Etfw)
+现在我们有了一份2015年中共国军方的文件，称将COVID – 19作为生物武器——在2019冠状病毒病大流行爆发的4年前，距离中共国一家致力于让蝙蝠冠状病毒更容易传染给人类的实验室仅几英里，如果你认为他们可能有关联，那么你就是一个兜售“被揭穿的谎言”的阴谋论者。
 
+对于那些说“COVID-19不可能是人为的，因为实验室制造的病毒会有被操纵的明显迹象”的人来说，情况恰恰相反。正如尼古拉斯·韦德（Nicholas Wade）三天前在《原子科学家公报》上指出的那样，“新的方法，被称为“无缝”方法，不会留下任何（人为）定义的痕迹。其他操纵病毒的方法，如连续传代，即将病毒从一种细胞培养物重复转移到另一种细胞培养物中，也不适用。如果病毒被操纵了，无论是通过无缝方法还是通过串行传代，都没有办法知道情况是否如此。”
 
-5. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1391454220751040524?s=20)**：
-*（上）病毒研制网络的一小部分 a small portion of COVID-19 manufacture network 
-#CCPVirus #UnrestrictedBioweapon #UnrestrictedBiowarfare
-（下）马利克·佩里斯通过谭文杰和陈志伟对解放军的研究所和科学家的深度参与*
+似乎这个痛苦而明显的答案就在我们面前，却被亲中共国的政客、大型科技公司和新闻媒体的宣传所掩盖，掩盖着这个星球上最简单的串连游戏。幸运的是，由于《原子科学家公报》本周早些时候敢于打开武汉病毒“潘多拉的盒子”，一年前还被视为禁忌的事情很快就将公之于众……
 
+继巴西总统公开演讲说COVID-19病毒可能是来自去年GDP增长最快国家（暗指即中共国）的生物武器之后，澳大利亚报纸刚发完报纸头条，英国太阳报头条新闻报道了COVID-19病毒的来源:
 
-> A very important point made by [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) , one which we must always remember. There is no difference between the CCP's military and civilian virus research programs. They are completely integrated.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/Wx6OoWAAUp](https://t.co/Wx6OoWAAUp)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 9, 2021](https://twitter.com/LawrenceSellin/status/1391417318694133764?ref_src=twsrc%5Etfw)
+“令人震惊的文件显示，COVID-19病毒疫情之前的五年中共国便对武器化冠状病毒进行了研究。美国国务院获得的文件显示人民解放军PLA指挥官预测，第三次世界大战将使用生物武器进行!而中文军事文件《非典的非自然起源》中则概述了中共国军队的这一计划。”
 
+正如文贵先生说的那样，这两周会有一个“以毒灭共”小风暴，由此可以看到，多米诺骨牌效应已经开始……CCP灭亡的日子越来越近了！
 
-6. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1391417318694133764?s=20)**：
-***（闫）**CCP的军民融合项目的例子。
-北京微生物与流行病学研究所（军事医学科学院）的[病毒学专家秦成峰博士](http://klv.whu.edu.cn/index.php/View/1814.html)，
-秦成峰的合作网络涉及中国CDC、香港大学、法国巴斯德研究所……并有海外资金支持。
+[援引原文](https://www.zerohedge.com/covid-19/chinese-military-discussed-weaponizing-covid-2015-cause-enemys-medical-system-collapse)
 
-**(Sellin)**闫丽梦博士的一个非常重要的观点是：
-我们必须永远记住这一点。中共的军民融合病毒研究项目之间没有任何区别。它们是完全一体化的。
-CCPVirus #COVID19 #CoronavirusPandemic #UnrestrictedBioweapon #coronavirus*
+审核校对：鲁邦五世
+上传排版：糖果儿
 
-
-> 闫丽梦博士：福奇博士资助了全球范围内有关人畜共患新兴传染病的调研，中共国的实验室从中得到大笔经费。
-> Dr. Li-Meng Yan: Dr. Fauci granted money for global investigations on zoonotic emerging infectious disease, from which Chinese labs earned a lot. [pic.twitter.com/7pwUc0Uzzx](https://t.co/7pwUc0Uzzx)
-> — 秘密翻译组 (@G\_Translators6) [May 9, 2021](https://twitter.com/G_Translators6/status/1391318708845355013?ref_src=twsrc%5Etfw)
-
-
-7. **[秘密翻译组推特](https://twitter.com/G_Translators6/status/1391318708845355013?s=20)**：
-*闫丽梦博士：福奇博士资助了全球范围内有关人畜共患新兴传染病的调研，中共国的实验室从中得到大笔经费*
-
-
-> Important – [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@TorontoFarmEN](https://twitter.com/TorontoFarmEN?ref_src=twsrc%5Etfw) shows how closely CCP scientists Malik Peiris and Linfa Wang work with the People's Liberation Army and its notorious Military Veterinary Research Institute virus collector Changchun Tu.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/6NK9P4gq5j](https://t.co/6NK9P4gq5j)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 9, 2021](https://twitter.com/LawrenceSellin/status/1391261793687941120?ref_src=twsrc%5Etfw)
-
-
-8. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1391261793687941120?s=20)**：
-***（枫叶农场）**2020年1月31日，举行了一次ZOOM视频会议。#MalikPeiris（香港大学），#ChangchunTu（涂长春，中国人民解放军长春兽医研究所），#LinfaWang（王林发，新加坡杜克大学），#Zhengzengren（郑增忍，中国动物卫生与流行病学中心）出席了会议
-
-**（Sellin)**重要信息 – #COVID19 侦探（枫叶农场）
-展示了中共科学家马利克·佩里斯和王林发与中国人民解放军及其臭名昭著的军事兽医研究所病毒收集者涂长春的密切合作。
-CCPVirus #UnrestrictedBioweapon #coronavirus*
-
-
-> Although the research records of Bojian Zheng are oddly expunged from the internet, some clues remain:
-> 
-> ❗️As guest professor in AMMS, PLA since 2006
-> ❗️Active research with Xuetao Cao 2020
-> ❗️SARS antiviral therapy, Yusen Zhou, Shibo Jiang
-> ❗️Model animal experiments with Chuan Qin [https://t.co/Cz3Jgi2klI](https://t.co/Cz3Jgi2klI) [pic.twitter.com/yLJILHLNgI](https://t.co/yLJILHLNgI)
-> — 慕尼黑感恩 (@himalaya\_de) [May 9, 2021](https://twitter.com/himalaya_de/status/1391245743651004422?ref_src=twsrc%5Etfw)
-
-
-9. **[感恩农场推特](https://twitter.com/himalaya_de/status/1391245743651004422?s=20)**：
-*尽管郑伯建的研究记录被奇怪地从互联网上删除了，但仍有一些线索。
-——自2006年起担任解放军军事科学院客座教授——
-——与曹雪涛一起从事研究 2020年——
-——周育森、姜世勃的SARS抗病毒疗法——
-——秦川的动物模型实验——*
-
-
-> These Chinese Communist Party-Military scientists are linked regarding the brain and nervous system effects of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) e.g. the envelope protein, Axl, fusion loops.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/d4EcFNSwei](https://t.co/d4EcFNSwei)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 9, 2021](https://twitter.com/LawrenceSellin/status/1391369730599104523?ref_src=twsrc%5Etfw)
-
-
-10. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1391369730599104523?s=20)**：
-*这些中国共产党与军方科学家关于 #COVID19 的大脑和神经系统的影响，例如包膜蛋白，Axl，融合环，都有联系。（秦成峰、[张波](http://www.whiov.cas.cn/sourcedb_whiov_cas/yw/rck/201004/t20100427_2833071.html)、安静）
-CCPVirus #Unrestricted Bioweapon #Covid\_19 #Unrestricted Biowarfare #CoronavirusPandemic #coronavirus*
-
-
-> Clip 1 [#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw), 8 May 2021
-> – Good progress worldwide. Evidences show that [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) is [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw)
-> – The next is to focus on “lab-accident Vs intentional release”
-> – Must investigate the role of PLA
-> – Must hold CCP & academic misinformation campaign accountable [https://t.co/D8oFBZn3b3](https://t.co/D8oFBZn3b3)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 9, 2021](https://twitter.com/DrLiMengYAN1/status/1391358073491673089?ref_src=twsrc%5Etfw)
-
-
-11. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1391358073491673089?s=20)**：
-***（Andy5)**20210508闫博士参加战斗室节目1/3
-1.过去72小时内很多人站出来说闫博士一开始站出来呼吁病毒来自实验室是对的
-2.闫：很多证据表明这个病毒不止来自于功能增强实验
-3.接下来需要验证究竟是意外洩漏还是故意投放
-4.还要调查PLA以及哪些海外研究者参与了
-5.要对CCP、参与的科学家追责
-
-**（闫）**世界范围内病毒真相的良好进展。证据显示 #COVID19 是 #超限生物武器
-接下来要关注 “实验室意外事故VS故意释放 “的问题
-必须调查解放军的作用
-必须追究中共和学术界误导运动的责任*
-
-
-> Clip 2, 8 May 2021
-> -No way to thoroughly investigate CCP’s labs if CCP exists
-> -But Western scientists in CCP’s misinformation campaign(e. g [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) from nature or stop efficient management) can be investigated first by following money/academic records
-> -Dr. Fauci is closed to CCP [https://t.co/GPcIMxsHXC](https://t.co/GPcIMxsHXC)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 9, 2021](https://twitter.com/DrLiMengYAN1/status/1391360732646756352?ref_src=twsrc%5Etfw)
-
-
-12. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1391360732646756352?s=20)**：
-***（Andy5)**20210508闫博士参加战斗室节目2/3
-6.不除掉CCP,在其控制下的实验室是查不到真相的
-7.但可以调查宣传自然起源的科学家们，看看它们的资金学术纪录以及是谁让它们宣扬自然起源
-8.病毒起源、虚假宣传都是超限生物战争的部分
-9.福奇资助资金最大的流向是港大和北京CDC武毒所
-10.还有其他证据佐证福奇有勾连
-
-**（闫）**-如果中共存在，就没有办法彻底调查中共的实验室
--但西方科学家参与了中共的误导运动中的（如#COVID19来自自然界或停止有效的管理疫情）可以首先通过跟踪金钱/学术记录进行调查
--福气博士是跟中共走的很近*
-
-
-> Clip 3, 8 May 2021
-> -As described in PLA bioweapon textbook, The West can’t response quickly cos they are too kind
-> -Gov/media must reveal evilness of CCP (thinking/behaviors)
-> -Need efficient policies/laws to quickly hold CCP accountable
-> -Promote effective management of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/WB9zVWPeuT](https://t.co/WB9zVWPeuT)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 9, 2021](https://twitter.com/DrLiMengYAN1/status/1391366786281578499?ref_src=twsrc%5Etfw)
-
-
-13. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1391366786281578499?s=20)**：
-***（Andy5)**20210508闫博士参加战斗室节目3/3
-11.西方反应不够快是因為人太善良了，而这一点在徐德忠的书里也写明了
-12.需要人们明白CCP的邪恶，明白CCP的思考逻辑和行为方式
-政府需要出台有力政策甚至新法短期内对CCP追责
-14.还该问福奇和CDC的头头为什么不让人们理解廉价安全的药物反而只推高速开发的疫苗
-
-**（闫）**-正如解放军生物武器教科书所描述的那样，西方国家无法迅速做出反应，因为他们太善良了
--政府/媒体必须揭露中共的邪恶（思想/行为）。
--需要有效的政策/法律来迅速追究中共的责任
--促进有效管理新冠病毒*
-
-
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@devonJ32130301](https://twitter.com/devonJ32130301?ref_src=twsrc%5Etfw) linked CCP Malik Peiris to Wenjie Tan, a member of the Central Theater of the PLA & may be linked to the [#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw) release in Wuhan.
-> 马利克·佩里斯（Malik Peiris）与解放军中央剧院成员谭文杰（Wenjie Tan）合作，他可能与武汉的COVID-19泄漏有关。 [pic.twitter.com/CfiuU32B4k](https://t.co/CfiuU32B4k)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 9, 2021](https://twitter.com/LawrenceSellin/status/1391257773376163842?ref_src=twsrc%5Etfw)
-
-
-14.**[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1391257773376163842?s=20)**：
-*马利克·佩里斯（Malik Peiris）与解放军中央剧院成员谭文杰（Wenjie Tan）合作，他可能与武汉的COVID-19泄漏有关。[来自新冠病毒侦探Devon Y](https://twitter.com/devonJ32130301/status/1391367650995965952?s=20)*
-
-
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@SweetJourney1](https://twitter.com/SweetJourney1?ref_src=twsrc%5Etfw) shows that Chinese Communist Party scientist Linfa Wang has worked with the People's Liberation Army
-> COVID19 侦探@ SweetJourney1显示中国共产党科学家王琳法曾与中国人民解放军合作[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/HKIbF1K8xS](https://t.co/HKIbF1K8xS)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 9, 2021](https://twitter.com/LawrenceSellin/status/1391236844214423554?ref_src=twsrc%5Etfw)
-
-
-15. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1391236844214423554?s=20)**：
-*COVID19 侦探@ SweetJourney1显示中国共产党科学家王林发曾与中国人民解放军（涂长春）合作 #CCPVirus #UnrestrictedBioweapon #UnrestrictedBiowarfare #coronavirus*
-
-
-> 🔥闫丽梦博士接受班农先生战斗室采访时说：
-> 要彻查中共实验室，只有先灭中共
-> 但是还有其他办法，就是从美国科学家入手，跟着钱的流向走，跟着他们的学术印记走
-> 福奇医生牵涉其中，他在全球范围内资助了包括中共实验室在内的多个病毒实验室 [pic.twitter.com/lFsEvu1xdm](https://t.co/lFsEvu1xdm)
-> — 珠穆朗玛 (@ZanXixi) [May 9, 2021](https://twitter.com/ZanXixi/status/1391189583316934658?ref_src=twsrc%5Etfw)
-
-
-16. **[喜站推特](https://twitter.com/ZanXixi/status/1391189583316934658?s=20)**：
-*闫丽梦博士接受班农先生战斗室采访时说： 要彻查中共实验室，只有先灭中共 但是还有其他办法，就是从美国科学家入手，跟着钱的流向走，跟着他们的学术印记走 福奇医生牵涉其中，他在全球范围内资助了包括中共实验室在内的多个病毒实验室*
-【灭共时代】
-
-
-
-> 天降垃圾！ [pic.twitter.com/XaIC4HuZPQ](https://t.co/XaIC4HuZPQ)
-> — 安红橘绛轩 (@maryann\_3040) [May 9, 2021](https://twitter.com/maryann_3040/status/1391367652094799875?ref_src=twsrc%5Etfw)
-
-
-**[安红推特](https://twitter.com/maryann_3040/status/1391367652094799875?s=20)**：
-*天降垃圾！（中共5B长征🚀掉入印度洋，能量如同1/143的广岛核弹威力）*
-
-
-> 2021.5.8. 秘翻快报 路德时评
-> 习近平两天内6次与六国进行外交沟通，电话外交显露中共已慌不择路。 [pic.twitter.com/R2kLnoIjit](https://t.co/R2kLnoIjit)
-> — 秘密翻译组 (@G\_Translators6) [May 9, 2021](https://twitter.com/G_Translators6/status/1391330770959040513?ref_src=twsrc%5Etfw)
-
-
-**[秘密翻译组推特](https://twitter.com/G_Translators6/status/1391330770959040513?s=20)**：
-*2021.5.8. 秘翻快报 路德时评 习近平两天内6次与六国进行外交沟通，电话外交显露中共已慌不择路*
-
-
-+1
+0

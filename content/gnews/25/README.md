@@ -1,33 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国电池公司 新的亿万富翁孵化器
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1196169/)
+## 美国务卿要求被监禁的天安门守夜活动人士获得自由
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1196304/)
 
-整理撰稿：蓝精灵
+作者：Loris 翻译：Tom
 
-对于CALT这家仅仅拥有十年历史的公司来说，公司高管九个人的财富总值达720亿美元，
+![]()![](https://gnews.org/wp-content/uploads/2021/05/051001-2.jpg)在中国大陆，“六四”一直是禁忌话题。但30年来，香港的维多利亚公园都会举行“六四”纪念晚会，不论风雨，烛光依旧。
 
-随着中国越来越重视发展清洁能源产业，CATL得到了政府的帮助。从2015年开始，中国政府保留了推荐电池供应商的清单，其中包括50多家国内公司，而LG和Samsung等外国重量级公司则被排除在外。将推荐电池供应商用于其电动汽车的汽车制造商有资格获得政府补贴，从而为CATL等公司的崛起铺平了道路。CATL在深圳证券交易所首次亮相一年后，该名单于2019年被取消。CATL的代表在一份声明中说，该公司的成功归功于其“战略方向，对研发​​的持续投资，可靠的产品和服务以及整合产业链的能力”。
+周五，美国国务卿安东尼·布林肯发推反对逮捕和判刑四名香港民主活动人士，他们参与了纪念1989年被中共杀害的天安门广场抗议者的守夜活动。
 
-CATL计划于2020年初成为特斯拉上海超级工厂的供应商，该公司计划于今年晚些时候在德国开设其第一家海外工厂。随着在欧洲向汽车制造商的电池销售量的增加，中国开始向欧洲出口配备了CATL的电动汽车，这使其在欧洲的业务不断增长。CATL代表说：“从长远来看，CATL的目标将是实现固定和移动能源系统中化石燃料替代的目标，该系统将通过先进的电池和可再生能源产生高效的电力系统。”
+布林肯在推特上写道：“美国与香港人民站在一起，拒绝接受对参加天安门纪念活动人士的判刑。”
 
-编者简评：
+“所有因保障自由的非暴力行动而被监禁的人都应该立即释放。”
 
-目前尚未有媒体报道这家低调的电池公司的真实背景，有一点可能是中共家族很早就开始布局清洁能源市场，在中共，从天而降的富翁太多，很少看到真实的亿万富翁的奋斗史，而这种早早进行布局的商业机会，和庞大的初期创业补贴，这种权力也是集中在少数人手中。这是新一代的马云马化腾们吗？
+过去三十年来，香港一直为天安门广场遇难者举行烛光守夜活动。然而，这个活动去年被叫停，其原因就是香港全岛抵制了北京对其民主的攻击。
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+然而，2020年6月4日，成千上万的香港人无视这项禁令，参加了在香港维多利亚公园传统地点举行的守夜活动。中国共产党控制的香港警方，利用covid-19大流行和2020年民主抗议活动造成的安全威胁，为他们镇压守夜活动辩护。
 
-参考链接：
+参加守夜活动的20多名著名的民主活动人士被起诉。其中四名被指控的活动人士黄（Joshua Wong）、沈（Lester Shum）、袁（Tiffany Yuen）和梁（Janelle Leung）因参与天安门守夜活动被判入狱。
 
-[https://www.forbes.com/sites/jenniferwang/2021/05/03/this-chinese-battery-company-has-produced-more-billionaires-than-google-or-facebook/?sh=155ba34b67e7&utm\_source=ForbesMainTwitter&utm\_medium=social&utm\_campaign=socialflowForbesMainTwitter](https://www.forbes.com/sites/jenniferwang/2021/05/03/this-chinese-battery-company-has-produced-more-billionaires-than-google-or-facebook/?sh=155ba34b67e7&amp;utm_source=ForbesMainTwitter&amp;utm_medium=social&amp;utm_campaign=socialflowForbesMainTwitter)
+香港最著名的民主活动人士之一黄（Joshua Wong）因参与2019年的示威活动获两项定罪，将入狱17.5个月。他又收到因新的判决而被监禁额外10个月的处罚。中共判处沈（Lester Shum）6个月监禁，并将判处袁（Tiffany Yuen）和梁（Janelle Leung）入狱4个月。
 
-图片来源：
+此外，黄、沈和袁是根据北京2020年新颁布的国家安全法受到指控。如果罪名成立，这三名活动人士有可能会面临终身监禁。
 
-[https://www.forbes.com](https://www.forbes.com/sites/jenniferwang/2021/05/03/this-chinese-battery-company-has-produced-more-billionaires-than-google-or-facebook/?sh=155ba34b67e7&amp;utm_source=ForbesMainTwitter&amp;utm_medium=social&amp;utm_campaign=socialflowForbesMainTwitter)
+希望布林肯的声明能引发国际社会对北京的进一步抵制，以帮助释放香港无辜的活动人士。
 
-校对发布：Penny
+美国国务卿还要求世界卫生组织（世卫组织）将台湾纳入即将到来的年度大会。由于中共的反对，台湾自2017年就被排除在世卫组织大会之外了。
 
+[援引原文](https://www.newsmax.com/world/globaltalk/anthony-blinken-tiananmen-square-jailed/2021/05/07/id/1020478/)
 
+审核校对：玫瑰天空
+上传排版：糖果儿
 
 0

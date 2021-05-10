@@ -1,34 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本财经简讯 2021/05/08
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1196452/)
+## 【郭先生直播经典回顾】2017年5月23日报平安直播视频
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1196692/)
 
-By Tokyo Sakura Finance Group
+**出品：****Gnews****编辑部郭先生直播资料库整理工作组**
 
-（Translation: Orange文橘        Manuscript: Totoro）
+现在所有人都恨不得把我灭口，我已经做好了一切的准备，既不会上当也不会害怕。这几天香港各派跟我说情的、威胁我的很多，一切只有一个结果——真相！对我的家人、员工所受到的欺辱和折磨，必须讨个说法，咱们拭目以待！
 
-![](https://lh3.googleusercontent.com/JUdkv-qkFLBxMBYI3776hPbjoHy-KnF1mBHvg-GwR7x-OhEZzoiSkyxjiVBkPC06dChT7YeqDv7ySMVDij7Y7iPgbOFXUCocwn-x4Wym4QqOgoJwT2YChs9IJAdNv0MXQgG-t7Fh)
-The picture was designed by “唯真不破小蜜蜂”
+——郭文贵
 
-⭐️Uniqlo’s domestic sales in Japan in April increased by 84.5% compared with the same period in 2020. Under the influence of the CCP virus, up to 83 branches were temporarily closed.
+**要点一：文贵先生收到燕先生关于傅老三收钱不办事的信息**
 
-优衣库四月份日本国内的销售额比去年同期增加了84.5%，在中共病毒的影响下，最多曾有83家分店临时停业。
+昨天收到一位燕姓朋友发来的重要信息，虽然没有留下真实姓名，但我相信他跟傅政华先生有很深的关系，其中特别谈到给傅政华六百万让他去北京市经侦做副大队长，最后是傅老三收钱不办事，我想告诉燕先生，所发信息都不能公开，虽然很重要但对目前案情还不是时机，非常抱歉！
 
-⭐️Under the influence of the tight supply of semiconductors in the world, the Nintendo game console-Nintendo Switch’s production in March 2022 is expected to be 25.5 million units, 11.5% less than the previous period. The sales and profits are expected to decrease by 9% and 22% accordingly.
+**要点二：傅政华处于正在被调查状态**
 
-在世界半导体供给紧张的影响下，任天堂游戏机-任天堂Switch的2022年3月预计生产量为2550万台比前期减少11.5%，预计销售额及利润也可能相应减少9%和22%。
+傅政华最近的确是在被调查状态，这是今天视频的重点。傅政华先生过去所有的腐败、敲诈勒索以及在北京市公安局期间，由他弟弟及其情人以提拔所有公安干警为许诺，特别是在经侦办私案收取大量现金和贿赂，目前已在被调查中。我可以负责任的说，为傅政华先生安排的外访、考察将被取消，想逃跑是不可能的。 傅老三的名字叫——傅卫华！他的哥哥就是傅政华，傅卫华持有中国、香港和新加坡三个国家的护照，未来还会公布其他国家的护照。由于他海外大量的资产都藏匿于他本人的名下，所以我们不能打草惊蛇，最近两天有了突破性进展。我不相信任何有良知的官员、国家和政府能看着傅政华及他的弟弟、家人这样的祸害老百姓，残害自己的同胞，以贪反贪、以警反贪、以警反腐、以警治国在傅政华身上体现的淋漓尽致。傅政华给所有干警留下一个印象就是他的老板是习近平，到处招摇撞骗，必须得到惩罚。
 
-⭐️A Japanese recruitment company found out through a questionnaire on May 8, that among 1,040 people more than 60% of Japanese believed that the CCP virus was related to their changing jobs, and more than 30% showed their concern about their company’s business strategy and directions.
+**要点三：中央常委公报私仇抓人，利用文贵想将责任推给习近平**
 
-日本猎头公司Recruit通过一个1040人参加的调查问卷（5月8日）发现，6成以上的日本人认为中共病毒与他们换工作的行为有关，3成以上的人表示对其公司的经营策略与方向感到不安。
+昨天收到一位“郭文贵案”内部知情人士的信息，我知道是中纪委的朋友有意发给我的，说当初是中央常委为了掩盖事实和报私仇而下令抓捕的孟会青、马建、张越等人。我想说这些都是真的，但是最重要的是在利用我，想把这个责任全部推给习近平。昨天一位朋友在与我通话中讲了傅政华和傅卫华让人跟踪我的哥哥，准备灭口。
 
-⭐️Honda and Toyota’s vehicle sales in China increased by 31.7% and 12.2% over the same period last year and reached the highest sales in history. Nissan vehicle sales also increased by 4.4%.
+**要点四：文贵先生已经获得傅卫华收李友钱并篡改卷宗的相关证据**
 
-本田与丰田在中共国的汽车销售量比去年同期增加了31.7%和12.2%并达到了历史最高销售量，日产也增加了4.4%。
+我们查出具体证据能证明傅老三拿了李友的钱，李友在关押期间与警察同吃同住，李友案在审判前一个月，全部卷宗被篡改，非常感谢大连有良心的公安发给我的这份资料。再次重申两百多万绝大多数公安干警都是好人，极少数是坏人，利益熏心、权钱交换、权色交换、以黑治警、以黑治国，任何一个人想瞒天过海都是痴人说梦！
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
-*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01183841/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+**要点五：盗国贼以国家和组织的名义欺骗人民警察，沉默已到最后时刻**
+
+无法想象在国内由于我的爆料达到了什么样的效果，大家的沉默到了最后时刻。为什么要弄死我们全家？为什么要保护傅政华、傅卫华？为什么不立案调查？盗国贼在那儿玩女人的时候，警察没贪上便宜，连录像都没看着；大把捞钱的时候，这些兄弟姐妹们没跟你们捞到钱，不过都是傻瓜而已，以国家、组织的名义被欺骗。一位干警给我留言说：“希望我千万不要妥协，出卖良知。”我在感动之余还获得了动力和力量，我一定会战斗到底。现在所有人都恨不得把我灭口，我已经做好了一切的准备，既不会上当也不会害怕。这几天香港各派跟我说情的、威胁我的很多，一切只有一个结果——真相！对我的家人、员工所受到的欺辱和折磨，必须讨个说法，咱们拭目以待！
+
+**要点六：郭七条是文贵先生的理想和人生目标**
+
+郭七条就是我所有的理想和人生目标，我太太、我女儿经常吓得突然半夜跑到我在的沙发上睡，只有我知道这种痛苦，任何人忽视我亲人、员工的痛苦就是我的敌人。请推友们一定要有时间多关心陪伴爱人和家人。我母亲的眼睛已经哭失明了，做完手术还是哭，父亲的身体一天比一天差，几个哥哥关押一年多，身体都非常差。这种痛苦，我不希望发生在任何中国同胞的身上，如果你们继续懦弱和忍受，那我的昨天和今天就是你们的明天。所以希望大家团结起来，看清这个社会，看清以黑治国、以贪反贪、以警治国的事实和真相，只有这样我们才能有自由、有尊严。
+
+致谢：
+听写校对：纽约香草山农场shangshang 
+要点原文：纽约香草山农场 月野兔
+要点编辑：纽约香草山农场 Dolores
+要点编辑校对：纽约香草山农场 GForever(文紫)
+发布整理：休斯顿星光农场 文顺
+发布：日本樱花团 二丫
+视频链接： [https://www.youtube.com/watch?v=WwrBT5tncdo&feature=youtu.be](https://www.youtube.com/watch?v=WwrBT5tncdo&amp;feature=youtu.be)  （时长16分钟）
+
 0

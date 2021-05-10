@@ -1,39 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福西（Anthony Fauci）开研讨会，唯一赞助商是计划生育组织
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1196593/)
+## 【热点播报】一元店在美国的流行证明中共病毒摧毁经济
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1196746/)
 
-整理撰稿：蓝精灵
-
-乔·拜登总统的首席医学顾问安东尼·福西（Anthony Fauci）周三参加了美国最大的堕胎链计划生育组织的医疗保健活动。
-
-实况新闻报道 ，希尔与福奇（Fauci）以及许多著名的医疗人物和政客一起主持了“医疗的未来：健康大胆”的网络研讨会。
-
-有趣的是，该活动的唯一赞助商是计划生育组织。数十亿美元的堕胎链将在选择性堕胎中杀死未出生的婴儿描述为“医疗保健”。它在美国造成了大约40％的堕胎
-
-列出的其他发言人包括美国外科医生，食品和药物管理局代理专员珍妮特·伍德科克（Dr. Janet Woodcock），Vivek Murthy博士以及密歇根州支持堕胎的民主党参议员Debbie Stabenow。他们讨论了“如何在限制成本上升的同时，推动科学前沿并依靠创新，”希尔说。
-
-Live Action评论了堕胎链与美国顶尖医疗领导者之间令人不安的联系：
-
-计划生育组织似乎是本次活动的唯一赞助商，而决策者和为政府工作的医生则似乎构成了严重的利益冲突。在过去的十年中，“计划生育”已实施了330万例堕胎，并已从美国纳税人那里收到近60亿美元的收入。该组织的政治部门向政治人物的竞选活动捐赠了数百万美元。参议员Stabenow被称为“计划生育坚定的拥护者”。
-
-Fauci还与堕胎和纳税人资金有关。本周早些时候，LifeNews写了一篇关于他的联邦机构如何 提供40万美元来支持一项艰巨的实验的研究，该实验涉及对流产中期的流产婴儿 进行剥皮，然后将其皮肤植入啮齿动物。
-
-计划生育组织主要是堕胎倡导小组和堕胎提供者，而不是医疗保健小组，他自己的年度报告也提供了证明。去年它报告了创纪录的收入，包括纳税人的资金。
-
-参考链接：
+作者：纽约香草山农场    四季
 
 
 
-> [Anthony Fauci Partners With Planned Parenthood Abortion Biz for Health Care Webinar](https://www.lifenews.com/2021/05/07/anthony-fauci-partners-with-planned-parenthood-abortion-biz-for-health-care-webinar/)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
 
-图片来源：[www.lifenews.com](http://www.lifenews.com)
+零对冲5月8日报道，一元店在美国零售开业店中占据了主导地位。今年美国大型连锁店开张的3597家店铺中，约45%来自Dollar General、Dollar Tree和Family Dollar。
 
-校对发布：Penny
+![]()![](https://gnews.org/wp-content/uploads/2021/05/image-145.png)数据来源网络
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+自2020年初病毒大流行以来，美国的经济复苏极不平衡，达到了危险的不平等水平。对工作中的穷人而言，大部分仍处在持续的经济困境中。工作岗位比COVID前的水平少了数百万个，还有数百万人继续领取刺激性支票。美国企业找到了一种方法，通过在全国各地开设大量的一元店来利用日益增长的在职贫穷的美国人群体。
 
-0
+这场大流行导致数以百万计的美国人立即陷入贫困，并将继续留在那里——因为经济领域比COVID前的水平缺少了800万个工作岗位。这意味着，在COVID-19之前的世界里，数百万在中产阶级和上层阶级商店购物的人再也负担不起这类消费，为了生存，他们已经转到为低收入人群服务的一元店消费。美国公司正在利用这一趋势，以极快的速度扩大这些商店。
+
+最近全国各地新的一元店的激增表明，经济复苏并不强劲，而是极其不平衡，少数人受益，多数人受损，留下了可能会持续一代人的深重伤痕。
+
+参考阅读：
+
+[Dollar Stores Dominate US Retail Store Openings](https://www.zerohedge.com/markets/dollar-stores-dominate-us-retail-store-openings)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
++1
