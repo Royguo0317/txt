@@ -1,60 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】我愿——一股清流的自白
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1202018/)
+## 没有人讨论如何治疗新冠病毒，这很蹊跷&#8230;
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1202277/)
 
-作者：纽约香草山健身部 澄道
+5/7/2021 彼得•麦卡洛医生发现，如果我们能够尽早消除病毒的作用，治疗病人的免疫系统失调，然后再处理好血液凝结的问题。我们就可以让病人战胜这个病毒。然而，彼得•麦卡洛医生发现没有人讨论新冠病毒的治疗。所有的目光都只放在新冠疫苗上。当彼得•麦卡洛医生把他的发现做成视频上传到油管上时，他的视频竟然被油管强行下架了。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/05/未命名的设计-14-1.png)
-山之高不止泉涌
-我愿奉献甘甜与清澈
-No you can’t
-同流合污
-
-天再括任翱苍鹰
-我愿展现无畏与探索
-No you can’t
-八纮一宇
-
-清流涌淌千年
-阻止於肆意敬地
-雄鹰翱翔万里
-折翅於妄為敬天
-
-只要泉我任流
-我愿意
-No you can‘t
-泉枯水止
-
-只要天我任飞
-我愿意
-No you can’t
-满天雾霾
-
-注：
-邪共泉枯水止
-心霾雾霾满天
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
 0

@@ -1,21 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年5月6日密翻快报[粤语版]塞林博士发布第二个视频揭露中共渗透美科研机构
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1202053/)
+## 【香草诗词汇】我愿——一股清流的自白
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1202018/)
 
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07051047/IMAGE-2021-05-07-154601.jpg)](https://gtv.org/video/id=609818e2db13300ca54e50c8)
-[点击图片观看视频](https://gtv.org/video/id=609818e2db13300ca54e50c8)
+作者：纽约香草山健身部 澄道
 
-新闻总结：
-
-1. 中共媒体：印度变异病毒进入中国
-2. 中共国消费者指出5G的五大骗局
-3. 塞林博士发布第二个视频揭露中共渗透美国科研机构
-4. 网络视频爆出：与接种疫苗的人有接触的女性易流产或不孕
-5. 中共利用生物武器给世界造成巨大伤害的同时，也在武器化债务协议进行侵略和剥削
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
 
+![]()![](https://gnews.org/wp-content/uploads/2021/05/未命名的设计-14-1.png)
+山之高不止泉涌
+我愿奉献甘甜与清澈
+No you can’t
+同流合污
+
+天再括任翱苍鹰
+我愿展现无畏与探索
+No you can’t
+八纮一宇
+
+清流涌淌千年
+阻止於肆意敬地
+雄鹰翱翔万里
+折翅於妄為敬天
+
+只要泉我任流
+我愿意
+No you can‘t
+泉枯水止
+
+只要天我任飞
+我愿意
+No you can’t
+满天雾霾
+
+注：
+邪共泉枯水止
+心霾雾霾满天
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
 
 
-+1
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

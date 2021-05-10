@@ -1,34 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 黑客袭击了美国最大石油管道 石油上涨 东海岸天然气用尽
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1201237/)
+## 中共宣称美国在全球超过200个军事实验室30个曝光
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1201360/)
 
-```
-新闻来源：意大利共和国报（La repubblica）
-发表时间：2021年5月10日
-翻译整理/简评：斩草要除根
-```
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+![]()![](https://gnews.org/wp-content/uploads/2021/05/封面-12.png)
+据[**新浪军事**](https://weibo.com/milnews?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2021年5月10日19：30](https://weibo.com/1499104401/KeQCu8ntm?ref=home&amp;rid=9_0_8_6667928936098282197_0_0_0) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d) 已编辑
 
+【全球紧急大搜寻！[#美军200多家生物实验室藏在哪儿#](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%86%9B200%E5%A4%9A%E5%AE%B6%E7%94%9F%E7%89%A9%E5%AE%9E%E9%AA%8C%E5%AE%A4%E8%97%8F%E5%9C%A8%E5%93%AA%E5%84%BF%23&amp;from=default)？！】[#华春莹再问美方为何满世界建生物实验室#](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E6%98%A5%E8%8E%B9%E5%86%8D%E9%97%AE%E7%BE%8E%E6%96%B9%E4%B8%BA%E4%BD%95%E6%BB%A1%E4%B8%96%E7%95%8C%E5%BB%BA%E7%94%9F%E7%89%A9%E5%AE%9E%E9%AA%8C%E5%AE%A4%23&amp;from=default) 美国在全球部署了超过200个军事生物实验室，已经有30多个被曝光，还有大量实验室的藏身地不为人知。它们，可能就在你的身边！[L现代快报快快看视频的微博视频](http://t.cn/A62vzxEA) [@现代快报快快看](https://weibo.com/n/%E7%8E%B0%E4%BB%A3%E5%BF%AB%E6%8A%A5%E5%BF%AB%E5%BF%AB%E7%9C%8B?from=feed&amp;loc=at)  ​​​​
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10080243/IMG_20210510_140203.jpg)图片来源：图虫
+在全球以毒灭共日拱一卒之下，在Lawrence Sellin博士的中共病毒拼图日渐清晰之际，[**新浪军事**](https://weibo.com/milnews?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)的微博账号发出这样的视频究竟意味着什么呢？作为美国该如何面对中共这样的诬蔑，对于受中共蛊惑的人来说，或者再进一步如果敌视美国的力量以此作为攻击美国的理由，那么美国该如何面对，中共该如何面对？
 
-黑客攻击关闭了运营商*Colonial pipeline*公司的石油管道（该管道将美国东海岸使用的50％的燃料从德克萨斯州运输到新泽西州）的水龙头，并使世界石油市场陷入混乱。该警报于上周六响起，使管理8000公里基础设施的公司的操作系统陷入混乱，被网络海盗袭击瘫痪，据称这些海盗从网络中“抢走”了大约100 GB的数据，并要求赎金。该公司立即致电网络安全专家，试图解决这一问题，白宫下令所有联邦机构伸出援助之手，尽快恢复正常运行。现在还没有 太成功：今天早上，全美最大的成品油输送管道*Colonial pipeline*（向世界上最繁忙的亚特兰大机场提供燃料）仍然停了下来。受制止的石油价格上涨了约1％。由于哈维飓风，这条巨大的管道曾在2017年被封锁了两周，那时美国东海岸的水泵汽油价格上涨了25％。
+既然这是一场中共发起的超限生物战，既然中共现在并没有被彻底打跪下，而且中共绝对不会束手就擒，那么在这样的时刻中共抛出这样的视频意味着什么呢？这个问题或许应该美国的相关部门来回答了，要不要向中共说明所谓的全球部署超过200多家生物实验室以及所谓的已经有30多个被曝光的生物实验室呢？
 
-专家说，周六的袭击极为复杂，并证实了在 *Solar Wind* 案中已经钻探的一些战略性美国基础设施的极端脆弱性，这使神秘的黑客可以在一段时间内进入美国商务部的财政部和部门服务器。美国*tam-tam*表示，这是一个网络犯罪团伙，自称是网络罗宾汉（*Robin Hood*）的是罪魁祸首。
+（文章内容仅代表作者个人观点）
 
-管道瘫痪的后果将与关闭时间长短成正比：今天早晨，东海岸的汽油价格上涨了几美分，而且没有迹象表明加油站的运行不受控制。从理论上讲，该州为这些紧急情况提供了物资，白宫已经下达了向北升级德克萨斯州油罐车服务的任务。但是，如果关闭时间延长，即使这段时间的燃油消耗低于大流行的正常原因，情况也可能变得复杂：从欧洲运抵新的供应将需要时间。乔·拜登（*Joe Biden*）可能被迫中止《琼斯法案》。
-
-#### 简评：
-
-**我们可以大胆的猜测，这是否与中共有着千丝万缕的关系呢？ 去年12月份的太阳风（*solar wind*）黑客袭击和刚刚发生的台湾巨轮“长赐号”搁浅苏伊士运河，卡死石油重要航道都是中共在背后所操控的。那这一次黑客袭击美国石油管道事件是否有中共的影子，我们只能待以观察了**。
-（本文仅代表译者个人观点，跟GNEWS平台无关。）
-
-**新闻原文链接：**
-🔗[Attacco hacker al maxi-oleodotto Usa. Sale il petrolio, l’East Coast a corto di benzina](https://www.repubblica.it/economia/2021/05/10/news/attacco_hacker_al_maxi-oleodotto_usa_sale_il_petrolio_l_east_coast_a_corto_di_benzina-300260878/?ref=RHTP-VS-I270681073-P11-S1-F)
-
-* * *
-
-***编辑整理/校对:** Ting Guo*
-
-+2
+0
