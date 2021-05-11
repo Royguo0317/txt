@@ -1,105 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】洗礼
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1204996/)
+## 中共反诬美国进行了“生物战和生物恐怖主义”
+` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1205503/)
 
-作者：纽约香草山健身部 澄道
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/11004039/A65D1674-DFAD-43D8-91D2-F64A11E9D7E5-4.jpeg)**图片来源：**https://www.breitbart.com
+#### **加拿大多伦多枫叶农场****  ****丁过**
 
+在全球瞩目的CCP病毒来源问题上，经过一年多时间的证据釆集及科学研究，当前几乎所有国家的情报部门和科学机构，对病毒来自实验室而非自然进化的观点正在趋于一致，中共军方故意释放病毒的真相终于浮出水面。惶惶不可终日的中共近日通过其外交部及《环球时报》再次造谣，企图通过将病毒来源嫁祸于美国，欺骗国内民众，转移囯际社会的注意力。
 
+中共国外交部发言人华春莹，本周一在新闻发布会上回应外媒报道中共2015年将病毒武器化时，秉持其母狼风格，先入为主给美国扣上放毒的锅盖：“美国正在用生物武器威胁世界”，然后指美国在25个国家建立了200多个生物实验室，其中“一些生物实验室的所在地爆发了大规模传染病”，华的意思就是CCP病毒来自美国的实验室，美国应对病毒泄露负责。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
+华春莹还臆测美国的德特里克堡生物实验室和“下一代生物武器”的研究有关，她认为“美国欠国际社会一个诚实、透明和负责任的答案”。近一年以来，华春莹这些反诬美国的相同谎言已经重复了好多遍，她所指的马里兰州德特里克堡生物实验室附近集中爆发的“大规模传染病”并不真实存在，而是吸电子烟引起的普通呼吸道损伤，而且马里兰州的诊断率没有比其他地方更高。死要面子的中共竟然连造谣也敷衍了事，可见其气数将尽。
 
+中共喉舌《环球时报》当天立即声援华春莹，称美国正在“利用基因工程技术进行生物战和生物恐怖主义”，进一步把放毒的罪责强加给美国，但《环球时报》和华春莹一样也拿不出任何有价值的证据证明美国释放了病毒，如此拙劣的诬陷表明中共已经黔驴技穷，行将覆灭。
 
+**参考来源：**
 
-– 写给战斗在汇款前线的战友们
-
-– 写给那些默默无闻24小时在线Q&A的农场义工们
-
-– 写给新中国联邦政权雏形的首批践行者们
-
-![喜马拉雅山脉- 维基百科，自由的百科全书]()![喜马拉雅山脉- 维基百科，自由的百科全书](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f0/Everest_North_Face_toward_Base_Camp_Tibet_Luca_Galuzzi_2006_edit_1.jpg/256px-Everest_North_Face_toward_Base_Camp_Tibet_Luca_Galuzzi_2006_edit_1.jpg)图片来源：维基百科
-
-每完成一次对帐
-
-就是你的信用评估增值一分
-
-更是一次灭共战役的洗礼
-
-每一次细心叮咛
-
-大多是增填了战友间的互信
-
-更是一次传达七哥的祝福
-
-“领号”的等待
-
-不要忘记是午夜时分
-
-写清MA编号
-
-千万要注意不要忘记
-
-每一次成功填好的喜悦
-
-不亚于几十年前初中
-
-优胜大通考
-
-每一次学会上传完成认证
-
-开心就像是儿时的记忆
-
-通关魂斗罗
-
-什么word文档
-
-什么pdf 模式
-
-我谁啊！
-
-这几多月来！
-
-我经历了什么！
-
-若无有七哥神一样的直播！
-
-若无有战友的耐心帮助！
-
-哪里来进步！
-
-如此迅猛！
-
-我人活至此
-
-不就是
-
-一场今生
-
-难忘洗礼！
-
-（本文仅代表作者观点）
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-
+**[中国：美国“进行生物战和生物恐怖主义”](https://www.breitbart.com/asia/2021/05/10/china-u-s-conducting-biological-warfare-bioterrorism/)**
 
 0

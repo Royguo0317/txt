@@ -1,138 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【德教专栏】认清伪史《古本竹书纪年》与《今本竹书纪年》的区别
-` 德教云书院官方频道 The Humane Way` [轉載自GNews](https://gnews.org/zh-hans/1198927/)
+## 【有声读物】我要为自己而灭共
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1206266/)
 
-![]()![](https://media.discordapp.net/attachments/723203467002511400/841230694305890304/unknown.png?width=1024&amp;height=577)
-#### 【作者】：德先生德教云书院
+配音：香草山录音组 Gtv abeilles（蜜蜂）
 
-最近几年，#[竹书纪年](https://zh.wikipedia.org/wiki/%E7%AB%B9%E6%9B%B8%E7%B4%80%E5%B9%B4)毁三观#的话题闹的很凶，无数网友对[儒家](https://www.yidianzixun.com/channel/w/%E5%84%92%E5%AE%B6)思想、尤其是孔子和[司马迁](https://www.yidianzixun.com/channel/w/%E5%8F%B8%E9%A9%AC%E8%BF%81)等人的极尽嘲讽，《尚书》《[春秋](https://www.yidianzixun.com/channel/w/%E6%98%A5%E7%A7%8B)》（三传）与《[史记](https://www.yidianzixun.com/channel/w/%E5%8F%B2%E8%AE%B0)》被一面倒的斥为“伪史”
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-这三本书籍，是我国先秦史的一切，要是没有它们，我们将直接失去2000年的国家记忆！
 
-网络是好的：为知识传播提供了开放的平台。但是，网络也是极不好的：在知识的领域，它往往更容易造成“无知者无畏”和“庸众的狂欢”，而不是理性与「真相」。
 
-✔反智主义的土壤得天独厚。
 
-所谓#竹书纪年毁三观#，就是一件典型——据那些自称被毁三观的人说，这本古文献揭穿了「禅让」是[儒家](https://www.yidianzixun.com/channel/w/%E5%84%92%E5%AE%B6)编造的谎言，“真相”是：
 
-“舜杀尧、禹杀舜、启杀益。伊尹杀商王太甲”众口云云。
 
-其实，这些所谓的“真相”，大多数并非出自《[古本](https://www.yidianzixun.com/channel/w/%E5%8F%A4%E6%9C%AC)》，而是《[今本](https://www.yidianzixun.com/channel/w/%E4%BB%8A%E6%9C%AC)》，有些甚至是“历史发明”！
 
-那么，古、今本到底有哪些不同？
+为了拿回选择权利，我必须消灭共产党；
+为了财产不被抢夺，我必须消灭共产党；
+为了吃上安全食品，我必须消灭共产党；
+为了呼吸无霾空气，我必须消灭共产党；
 
-现在就来理清来龙去脉：
 
-（1）《竹书纪年》又称《[汲冢纪年](https://www.yidianzixun.com/channel/w/%E6%B1%B2%E5%86%A2%E7%BA%AA%E5%B9%B4)》，因晋代汲郡盗墓者盗发战国魏襄王墓而出土。
 
-（2）又因为它是魏国与晋国史官写的编年史，所以叫《纪年》，《竹书》，是指竹简。
+**文字版原文：[【香草诗词汇】我要为自己而灭共](https://gnews.org/zh-hans/1194344/)**
 
-（3）是次出土的，除了《纪年》，还有《易经》《[国语](https://www.yidianzixun.com/channel/w/%E5%9B%BD%E8%AF%AD)》《[穆天子传](https://www.yidianzixun.com/channel/w/%E7%A9%86%E5%A4%A9%E5%AD%90%E4%BC%A0)》《周书》《琐语》（迄今中国最早的志怪书）等一共15类书。
+作者：纽约香草山媒体部 蚊子
 
-**▲这个《竹书纪年》就是真正的「原版」。**
 
-然而，很可惜的是，宋代以后它却佚失了。
 
-☞到明万历年间，时著名藏书家范钦的藏书阁里，出来了一本《竹书纪年》——这个就是《今本》，记住！
+音频处理/发稿：雪梨
 
-此版本里，就有上述所谓的“真相”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-正是因为它洞骇莫名得过份，所以有人忍不住和它较真——清道光进士朱右曾，把自晋以降、明以前的诸古史典册中，凡索引过《古本竹书纪年》的内容都蒐集了出来，发现和《今本》不一样，于是编撰成了一本书，叫《[汲冢纪年](https://www.yidianzixun.com/channel/w/%E6%B1%B2%E5%86%A2%E7%BA%AA%E5%B9%B4)存真》。
+**更多资讯，更多关注**
 
-**▲这是“复活后”的《古本竹书纪年》，俗称《存真》。**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-✔后来，[王国维](https://www.yidianzixun.com/channel/w/%E7%8E%8B%E5%9B%BD%E7%BB%B4)对此书注解，写成《[古本竹书纪年辑校](https://www.yidianzixun.com/channel/w/%E5%8F%A4%E6%9C%AC%E7%AB%B9%E4%B9%A6%E7%BA%AA%E5%B9%B4%E8%BE%91%E6%A0%A1)》，简称《辑校》。
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-此后，两书合并统称《古本竹书纪年》。
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-**从此，《古本》为正，《今本》为“伪”。**
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-▲但是，由于《今本》也不完全是伪书，里面有不少内容与明以前的索引也一致，因此，1981年，内地学者方诗龄与王修龄又在《[古本竹书纪年辑校](https://www.yidianzixun.com/channel/w/%E5%8F%A4%E6%9C%AC%E7%AB%B9%E4%B9%A6%E7%BA%AA%E5%B9%B4%E8%BE%91%E6%A0%A1)》的基础上编撰出版了《[古本竹书纪年辑证](https://www.yidianzixun.com/channel/w/%E5%8F%A4%E6%9C%AC%E7%AB%B9%E4%B9%A6%E7%BA%AA%E5%B9%B4%E8%BE%91%E8%AF%81)》，简称**《辑证》**。
-
-☞这个版本是目前流传最广的。
-![竹书纪年》的猛料：尧舜禹并没有禅让_史书]()![竹书纪年》的猛料：尧舜禹并没有禅让_史书](http://5b0988e595225.cdn.sohucs.com/images/20190323/fb53b07c38c4497e92f973b6dee7e9e0.jpeg)
-✔然而，不得不吐槽的是，由于方、王两位翻阅方家杂史，仅凭清嘉庆进士雷学淇的一句“余曾看过元（朝）本（《竹书纪年》）”，并就此认定明代范钦的《今本》在元代就出现了，于是，他们编撰《辑证》时，试图“《古》《今》合一”。
-
-也所以，《辑证》是诸版本里最乱的，比如连《琐语》（又称《[汲冢琐语](https://www.yidianzixun.com/channel/w/%E6%B1%B2%E5%86%A2%E7%90%90%E8%AF%AD)》或《古文琐语》）这本原版（晋代版）《竹书纪年》的作者之一 ——时[晋朝](https://www.yidianzixun.com/channel/w/%E6%99%8B%E6%9C%9D)尚书郎「束皙」称之为“诸国卜梦妖怪相书”的内容也收录了进去。
-
-这就造成了后世不必要的误会。
-
-✔同时，也可见此版本的可信度。
-
-那么，说了那么多，《[古本](https://www.yidianzixun.com/channel/w/%E5%8F%A4%E6%9C%AC)》
-
-与《[今本](https://www.yidianzixun.com/channel/w/%E4%BB%8A%E6%9C%AC)》到底有什么不同？
-
-▼不如让原作者来说，更加权威？
-
-《[晋书](https://www.yidianzixun.com/channel/w/%E6%99%8B%E4%B9%A6)·束皙传》：
-
-“太康二年，汲郡人‘不准’盗发魏襄王墓，得竹书数十车。其《纪年》十三篇………盖魏国之史书，大略与《春秋》皆多相应。其中经传大异，则云夏年多殷；益干启位，启杀之；太甲杀伊尹；文丁杀季历；自周受命，至穆王百年，非穆王寿百岁也；幽王既亡，有共伯和者摄行天子事，非二相共和也”。
-
-★★★
-
-束皙说得清清楚楚，《[竹书纪年](https://www.yidianzixun.com/channel/w/%E7%AB%B9%E4%B9%A6%E7%BA%AA%E5%B9%B4)》和《[春秋](https://www.yidianzixun.com/channel/w/%E6%98%A5%E7%A7%8B)》大致相同，不同的是：
-
-①夏国祚比殷商长。
-
-②禹禅让给益，启篡位，后益因干政被杀。
-
-③太甲被开商功臣伊尹篡位，太甲杀之。
-
-④周穆王没有一百岁。
-
-⑤周幽王被杀后，「共国」诸侯「和」代行周天子政。
-
-先不理上面的“大异”，就问：
-
-✔说好的舜杀尧、禹杀舜了？？？
-
-答：“《[汲冢琐语](https://www.yidianzixun.com/channel/w/%E6%B1%B2%E5%86%A2%E7%90%90%E8%AF%AD)》云：‘ 舜放尧於平阳 。’ 而书云某地有城以囚 尧 为号”——唐代《史通·疑古》。
-
-✔“妖怪之书”能当信史吗？？
-
-要是可信，束皙早写了，何必还留给后世？？
-
-★★★★★答案揭晓：
-
-**无论《古》《今》本，压根就没有尧舜禹互杀的故事，《古本竹书纪年·五帝纪》记载的就是禅让，和《尚书》《史记》基本一致。**
-
-至于另两件涉及禅让的“启杀益”和“太甲杀伊尹”的记载，我们又来看看「真相」：
-
-■启杀益
-
-《尚书》未提及益禅让给启，《[史记](https://www.yidianzixun.com/channel/w/%E5%8F%B2%E8%AE%B0)》有。
-
-■伊尹篡权，太甲杀伊尹
-
-直接上干货——。
-
-✔目前发现的11条有“伊尹”名字的甲骨卜辞，全部显示伊尹地位极高，与「商汤」及商高祖「上甲微」享受同等级别的祭祀。
-
-除此以外，还有大概数十条刻有「黄尹」字眼的甲骨卜辞，被专家一致认为：
-
-✔“黄尹”就是“伊尹”，因为他是“黄族”的首领，[商朝](https://www.yidianzixun.com/channel/w/%E5%95%86%E6%9C%9D)开国皇帝商汤的亲家——同样备享极荣！
-
-没错，**《[古本竹书纪年](https://www.yidianzixun.com/channel/w/%E5%8F%A4%E6%9C%AC%E7%AB%B9%E4%B9%A6%E7%BA%AA%E5%B9%B4)》是写了伊尹篡权，可是[甲骨文](https://www.yidianzixun.com/channel/w/%E7%94%B2%E9%AA%A8%E6%96%87)又反证他极享殷商尊荣，不似曾为弑君者。**
-
-So,到底信哪个好？
-
-你们自己决定吧。
-
-就一句：再信舜杀尧，禹杀舜，就是智障。
-
-#### **德教反驳观点：**
-
-1. 真正的竹书纪年在宋朝已经佚失了，而后来汇编的**古本竹书纪年无舜杀尧，禹杀舜**的内容，这纯属杜撰。只有在明朝才出现的今本竹书纪年里面才有这些内容。
-
-2. 《竹书纪年》的内容大体与史记和尚书等接近，唯独尧舜禹的内容惊世骇俗，非常可疑。引起怀疑的主要原因是这是**魏国的史书**，而魏国的来历原是**三家分晋的大夫造反**，所以很有可能是自己篡改历史，污蔑前代的尧舜禹，这样他们就可以说自己篡位是合理的。
-
-3. 另外一个很重要的原因就是**孤证不立**，没有其他任何典籍可以支持竹书纪年里面的关于尧舜禹这些观点。唯一可以佐证的就是韩非子的内容，可是韩非子的来历是韩国的公子，而韩国也是三家分晋里的造反的大夫之一，很有可能韩国也合谋篡改了前面的历史以证明他们造反是合理的。而且从时间上来看，**韩非子比竹书纪年的时间晚**，很有可能是他看了魏国伪造的竹书纪年得出的结论，这个不足为凭。最后，韩非子的观点就是人性本恶，他举这些例子就是想要证明人性就是恶的，他已经有政治的偏向性了，所以他的这种说法不能作为旁证来支持竹书纪年，所以就还是孤证不立了。
-
-
-![]()![](https://media.discordapp.net/attachments/723203467002511400/841273458859966464/unknown.png?width=1023&amp;height=577)
-![This image has an empty alt attribute; its file name is QRcode_GGB_v2.jpg](https://lh6.googleusercontent.com/bhvF0_d0Y5Kyd1JFW1TH5uniu-X-d8KKj7lnYTboRucDXTlBhKwCQfjnAgg8of-Da2qRRdH9QXW_14zni9qXzhl1susmmLqokmAOuGHmsZsHbIir2x31L_rYRHDTCo1CzoT4hlqN)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
