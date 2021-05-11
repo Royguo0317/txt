@@ -1,31 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 当前中共危机委员会要求中情局局长威廉•伯恩斯辞职
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1203837/)
+## 5月10日美国政要和政评家反共推特精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1203892/)
 
-翻译：烟波浩淼|校对：雨山溪桥客|审核：断播
+参议员瑞克·斯科特： 就在昨天白宫庆祝母亲节之时，在新疆，共产中国（Communist China）阻止妇女生孩子的权利，并在集中营里因生育“众多”而折磨母亲。总统需要认识到，与犯种族灭绝罪行的政权，没有合作的空间。（转发纽约时报的报道：中国正在使用侵害性的生育，强化对新疆穆斯林少数民族的压迫）
 
-**华盛顿特区——由国家安全和军队老兵组成的“当前中共危机委员会”要求拜登最近确认的中情局局长威廉·伯恩斯（William Burns）辞职，此前该委员会就伯恩斯与中国共产党的关系向美国参议院公开撒谎。**
 
-这封信是在《国家脉搏》调查之后发出的，调查重点是伯恩斯（他曾担任卡内基国际和平基金会主席）在任职期间如何与包括中美交流基金会（CUSEF）在内的中共影响力团体合作。
 
-《国家脉搏》最近披露，尽管这位前智库主任在参议院的确认听证会上坚称他与这个有争议的影响团体切断了联系，但这种关系一直持续到2021年。
+> While the U.S. celebrated Mother’s Day yesterday, in Xinjiang, Communist China prevents women from having children & tortures mothers in concentration camps for having “too many” kids. [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) needs to realize there's no room for cooperation with a regime guilty of genocide. [https://t.co/yFAe8yHMQq](https://t.co/yFAe8yHMQq)
+> — Rick Scott (@SenRickScott) [May 10, 2021](https://twitter.com/SenRickScott/status/1391792072873631746?ref_src=twsrc%5Etfw)
 
-“在我们看来，这些关系本应阻止一个人持有哪怕是基本的安全许可证，更不用说作为美国卓越情报组织的领导人担任如此敏感的职务。此外，我们最近了解到，伯恩斯先生在向美国参议院宣誓作证时，严重歪曲了他与中共有关人士和组织交往的性质和时间。
 
-当前中共危机委员会的信包括20多位高层签署人，还强调了伯恩斯是如何允许与统一战线努力有联系的中共成员进入该组织的董事会的，统一战线试图 “收编和削弱 “潜在的反政权的来源。
 
-*伯恩斯先生的证词也被一个事实所掩盖，那就是他在**2016**年欢迎张懿宸加入卡内基基金会的董事会。张先生是中信资本控股有限公司（**CITIC Capital Holdings**）的首席执行官。中信资本控股是一家国有投资企业，隶属于中信集团（**CITIC Group**）。近年来，他已向该基金会捐赠了**100**多万美元。他还与中共国影响力的两个行动联系在一起：中国人民政治协商会议和中共国与全球化中心。中共国大使馆网站将中国人民政协描述为“中国共产党领导下的统一战线组织”，即“积极开展对外交流，以加强与外国人民的友谊，积极开展对外交流。”中共国与全球化中心是“一个设在北京的智囊团，也与共产党的机构有关系。”*
+参议院布莱克本： 美国必须保护美国的创造者和发明人免于 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)[#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hashtag_click) 的知识产权盗窃。我和科顿以及图贝维尔参议员一同提出“保护校园法案”，以确保美国的研究惠及美国人，而不是北京。 [@FoxBusiness](https://twitter.com/FoxBusiness)[@MariaBartiromo](https://twitter.com/MariaBartiromo)
 
-在要求伯恩辞职前，信中指出：“伯恩先生的记录与他担心中共国影响力的行动的证词相矛盾，表明他忽视了与他们合作的风险，同时也表明他对中国的贸易手段和判断力缺乏认识，这可能是中央情报局的严重国家安全风险。”
 
-*基于所有这些原因，我们敦促你们立即要求威廉·伯恩斯辞去中央情报局局长的职务。*
 
-在发现伯恩斯与中共的关系之前，《国家脉搏》杂志曾强调拜登白宫中存在类似的纰漏，包括内阁秘书、情报官员、各机构的顾问，甚至是总统的儿子。
+> The U.S. must protect American creators and innovators from the [#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hash&amp;ref_src=twsrc%5Etfw)’s intellectual property theft.
+> I introduced the SECURE CAMPUS Act with [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) & [@SenTuberville](https://twitter.com/SenTuberville?ref_src=twsrc%5Etfw) to ensure American research benefits Americans, not Beijing .[@FoxBusiness](https://twitter.com/FoxBusiness?ref_src=twsrc%5Etfw) [@MariaBartiromo](https://twitter.com/MariaBartiromo?ref_src=twsrc%5Etfw) [pic.twitter.com/iC8u8MzTMe](https://t.co/iC8u8MzTMe)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 10, 2021](https://twitter.com/MarshaBlackburn/status/1391764477805309964?ref_src=twsrc%5Etfw)
 
-原文作者：娜塔莉·温特丝（Natalie Winters）
-发布时间：2021年5月10日
-原文链接：[https://thenationalpulse.com/exclusive/cpdc-letter-demands-cia-director-resignation/](https://thenationalpulse.com/exclusive/cpdc-letter-demands-cia-director-resignation/)
+
+
+参议员汤姆·科顿： 苹果公司需要花更多的时间来解决其被控对维吾尔族奴工的依赖，花少些时间向共和党人讲授选举诚信。 【附保守派智库政策总监推文：202012月，苹果公司发言人声称他们的供应商没有一个使用维族奴工。今天 [@theinformation](https://twitter.com/theinformation)报告显示，他们的供应商有七个使用维族奴工】
+
+
+
+> Apple needs to spend more time addressing its alleged reliance on Uighur slave labor and less time lecturing Republicans about election integrity. [https://t.co/VVRZk3ghtJ](https://t.co/VVRZk3ghtJ)
+> — Tom Cotton (@TomCottonAR) [May 10, 2021](https://twitter.com/TomCottonAR/status/1391854153421492226?ref_src=twsrc%5Etfw)
+
+
+
+前白宫贸易顾问彼得·纳瓦罗: 能有这样的强烈批评，我一定是在目标之上了。事实：福奇(Fauci)资助了武汉实验室。事实：蝠奇批准了在武汉进行使病毒武器化的「功能增强」性试验的能力。笛卡尔逻辑：如果象(美前疾控中心主任)雷德菲尔德博士所说的那样，病毒来自实验室，那么福奇就是病毒之父。证明完毕【附mediaite网文章，说彼得·纳瓦罗推动疯狂阴谋论，指责福奇博士 “杀死了数百万美国人”】
+
+
+
+> 前白宫贸易顾问彼得·纳瓦罗:
+> 能有这样的强烈批评，我一定是在目标之上了。事实：蝠奇(Fauci)资助了武汉实验室。事实：蝠奇批准了在武汉进行使病毒武器化的「功能增强」性试验的能力。笛卡尔逻辑：如果象(美前疾控中心主任)雷德菲尔德博士所说的那样，病毒来自实验室，那么蝠奇就是病毒之父。证明完毕 [https://t.co/BncAJJCVUo](https://t.co/BncAJJCVUo)
+> — 美国政要等…直译推 (@zhiyitw33) [May 10, 2021](https://twitter.com/zhiyitw33/status/1391868520980439043?ref_src=twsrc%5Etfw)
+
+
+
+蓬佩奥（前国务卿）： 在我们的学校里施行1619项目（由纽约时报于2019年，第一批黑奴抵达美国400年，所发起的重塑美国历史的系列评论）和批判种族理论，是极左势力，将社会主义注入到我们生活的各个方面，并灌输给美国年轻一代的又一企图。
+
+
+
+> Implementing the 1619 project and critical race theory in our schools is another attempt by the radical Left to inject socialism into every aspect of our lives and indoctrinate the next generation of America’s youth.
+> — Mike Pompeo (@mikepompeo) [May 10, 2021](https://twitter.com/mikepompeo/status/1391762199375396865?ref_src=twsrc%5Etfw)
+
+
+
+章家敦（中国问题专家）： 拜登政府已经宣布了它的北韩政策。看上去又是一个在不解决中共国（China）问题的情形下，试图解决我们北韩问题的企图。然而，中共国（China）恰是问题所在。 参见： 新闻周刊的观点文章，“北韩是中国的武器”。
+
+
+
+> The [#BidenAdministration](https://twitter.com/hashtag/BidenAdministration?src=hash&amp;ref_src=twsrc%5Etfw) has announced its [#NorthKorea](https://twitter.com/hashtag/NorthKorea?src=hash&amp;ref_src=twsrc%5Etfw) policy. It looks like another attempt to solve our [#KimJongUn](https://twitter.com/hashtag/KimJongUn?src=hash&amp;ref_src=twsrc%5Etfw) problem without solving our [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) one. China, however, is the problem. See: [https://t.co/uBYI9B2TI2](https://t.co/uBYI9B2TI2). [@josh\_hammer](https://twitter.com/josh_hammer?ref_src=twsrc%5Etfw) [@NewsweekOpinion](https://twitter.com/NewsweekOpinion?ref_src=twsrc%5Etfw)
+> — Gordon G. Chang (@GordonGChang) [May 10, 2021](https://twitter.com/GordonGChang/status/1391789511886184455?ref_src=twsrc%5Etfw)
+
+
 
 0
