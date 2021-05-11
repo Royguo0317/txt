@@ -1,31 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【塞舌尔】世界接种疫苗人数最多的国家而感染率上升
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1203230/)
+## 【有声读物】母亲的爱——永恒之爱
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1206071/)
 
-消息来源：《今日》([today.it](http://today.it/))
-发布时间：2021年5月10日
-翻译整理：斩草要除根
+配音：香草山录音组 蒙古鸿雁
 
-中共病毒感染人数增多，塞舌尔必须采取新的限制性措施。从许多方面来看，这是令人惊讶的消息。因为在东非沿岸印度洋的115个岛屿群岛中，已经有超过66％的人口进行了疫苗接种。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-而在5月初，3天之内就报告有500例新感染，比当地标准高出很多。与其它国家相比，这一数字非常低。自从病毒大流行开始以来，只有6,373例病例，数10人死亡，但是这个事件必须仔细研究。
 
-该国新闻社报道，三分之一的病例涉及接受两剂疫苗后的人，而其它病例仅注射一剂或没有注射疫苗。当地学校关闭，体育活动已取消数周，并已指示酒吧和商店尽早关闭。塞舌尔卫生部长佩吉·维多特（Peggy Vidot）表示，“尽管我们做出了所有出色的努力，但目前我们国家的新冠疫情形势仍然非常严峻，上周每天都有许多新增病例报道，感染案例中有80％来自塞舌尔，其余来自外国人。”
 
-塞舌尔的旅游业十分繁荣，从1月初开始，他们开始使用中共国国药疫苗进行疫苗接种。该疫苗是由阿拉伯联合酋长国捐赠的，阿拉伯联合酋长国将该疫苗的疗效评定率为86％，而在中共国，疗效率评定为79％。除国药集团疫苗外，其余使用的疫苗还包括Covishield，这是在印度许可生产的阿斯利康Plc注射剂的一种。虽然尚无4月份感染的基因测序数据，但去年2月在塞舌尔发现了变异B.1.351，该变异于去年年底在南非首次发现。 在一项研究中，阿斯利康的疫苗似乎对这种变体无效。
 
-简评：
 
-在绝大多数媒体只报道疫苗接种的积极性和有效性的当下，我们通过塞舌尔可以真实的看到，疫苗接种并没有有效防止住感染人数的增加。中共国大肆宣扬的国药疫苗的有效率也是值得怀疑的。更重要的是，我们都知道指望疫苗来阻止病毒的传播是荒谬的，可能会有越来越多的国家的出现像塞舌尔这样的情况。
 
-（本文仅代表个人观点）
 
-参考新闻🔗[《今日》](https://www.today.it/mondo/covid-seychelles.html)
+今年五月的第二个星期天是5月9日——母亲节。这个节日其实发源于美国：美国国会于1914年通过了法案，并由总统威尔逊签字生效，规定每年5月的第二个周日为母亲节。威尔逊总统还下令，在母亲节这一天，所有的政府建筑物都要悬挂国旗，表示庆祝。母亲节最初的推动创立者是一对母女——母亲安-贾维斯（Ann Maria Reeves Jarvis）与女儿安娜-贾维斯（Anna Marie Jarvis）。从母亲的模糊设想到女儿将其变为现实，前后经历了近半个世纪，而女儿安娜也因此被称为“母亲节之母”。
 
-* * *
 
-校对/上传：阿娜
+
+**文字版原文：[【战友心声】母亲的爱——永恒之爱](https://gnews.org/zh-hans/1195060/)**
+
+作者：纽约香草山美食部 雨过天晴Rainbow
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
