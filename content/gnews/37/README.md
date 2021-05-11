@@ -1,30 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印度的巨大潜力没有得到开发
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1203301/)
+## 【有声读物】中共病毒新变种表现出新的主要症状
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1205572/)
 
-新闻来源：德语经济周刊网络版
-记者：本尼迪克特·贝克尔（Benedikt Becker）
-发表时间：2021年5月8日
-翻译/ 整理/ 评论： Shuizhuyu
+配音：香草山录音组 蒙古鸿雁
 
-亚历山大·格拉夫·兰姆斯多夫（Alexander Graf Lambsdorff）是德国自由民主党议会集团副主席。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-德国自由民主党的外国政治家亚历山大·格拉夫·兰姆斯多夫（Alexander Graf Lambsdorff）呼吁迅速为遭受病毒困扰的印度提供帮助，德国联邦国防军在现场设有应急小组，以帮助生产氧气并提供通风设备。我们对此表示欢迎。此外，德国应与欧盟合作，为印度医院的注册系统和疫苗接种提供网络技术解决方案方面的帮助。不幸的是，其中有很多麻烦。
 
-欧盟应向印度施加压力，以改善投资环境和贸易关系。印度是欧洲公司的重要市场。相反，这同样适用于欧洲的印度公司，例如钢铁巨头塔塔钢铁公司（Tata Steel）。欧盟应坚持恢复有关计划中的自由贸易协定的谈判。
 
-简评 ：
 
-我们都知道， 欧洲大部分国家都是多党制民主国家， 执政党的很多政策， 都是从在野党的呼吁和推动有极大的关系的。 那么， 德国自由民主党的这位议员的言论， 必定是代表了很多人的意愿。 欧盟应该尽快帮助印度度过难关， 重启贸易谈判。 印度是重要的在亚洲的伙伴。倘若印度得到欧洲以德国为主的支持和合作， 中共， 你还有机会吗？ 你还蛮横吗？ 中共注定大势已去，距离死亡线不远了。
 
-免责声明：本文只代表作者观点， 与Gnews平台无关。
 
-参考新闻链接：[德语经济周刊](https://www.wiwo.de/politik/ausland/eu-indien-gipfel-das-riesige-potenzial-indiens-wird-nicht-gehoben/27171130.html)
 
-* * *
+中共病毒产生新变种，可能出现二到三种基因变异，并发现有与之前不一样的主要表现症状 ，印度的Souradipta Chandra医师在4月22日报告了此种新发现。
 
-校对/上传：阿娜
+新的变种病毒较常见到的症状包括：腹泻、腹痛、红疹、结膜炎、意识不清、脑雾、手脚趾发青、鼻子与喉咙出血等。此不同于目前所知道的常见症状，例如：喉咙痛、身体痠痛、发烧、嗅觉味觉丧失等。
+
+
+
+**文字版原文：[【医疗前沿世界】中共病毒新变种表现出新的主要症状](https://gnews.org/zh-hans/1140254/)**
+
+作者：纽约香草山医疗部  云豹
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
