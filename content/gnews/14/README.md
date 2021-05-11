@@ -1,62 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月10日美国政要和政评家反共推特精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1203892/)
+## 【鹰眼墙国】长期缺箱、缺舱，为何外贸出口贸易“依旧”强劲增长？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1203882/)
 
-参议员瑞克·斯科特： 就在昨天白宫庆祝母亲节之时，在新疆，共产中国（Communist China）阻止妇女生孩子的权利，并在集中营里因生育“众多”而折磨母亲。总统需要认识到，与犯种族灭绝罪行的政权，没有合作的空间。（转发纽约时报的报道：中国正在使用侵害性的生育，强化对新疆穆斯林少数民族的压迫）
-
-
-
-> While the U.S. celebrated Mother’s Day yesterday, in Xinjiang, Communist China prevents women from having children & tortures mothers in concentration camps for having “too many” kids. [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) needs to realize there's no room for cooperation with a regime guilty of genocide. [https://t.co/yFAe8yHMQq](https://t.co/yFAe8yHMQq)
-> — Rick Scott (@SenRickScott) [May 10, 2021](https://twitter.com/SenRickScott/status/1391792072873631746?ref_src=twsrc%5Etfw)
+作者：纽约香草山农场    鹰（文言）
 
 
 
-参议院布莱克本： 美国必须保护美国的创造者和发明人免于 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)[#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hashtag_click) 的知识产权盗窃。我和科顿以及图贝维尔参议员一同提出“保护校园法案”，以确保美国的研究惠及美国人，而不是北京。 [@FoxBusiness](https://twitter.com/FoxBusiness)[@MariaBartiromo](https://twitter.com/MariaBartiromo)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
 
-> The U.S. must protect American creators and innovators from the [#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hash&amp;ref_src=twsrc%5Etfw)’s intellectual property theft.
-> I introduced the SECURE CAMPUS Act with [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) & [@SenTuberville](https://twitter.com/SenTuberville?ref_src=twsrc%5Etfw) to ensure American research benefits Americans, not Beijing .[@FoxBusiness](https://twitter.com/FoxBusiness?ref_src=twsrc%5Etfw) [@MariaBartiromo](https://twitter.com/MariaBartiromo?ref_src=twsrc%5Etfw) [pic.twitter.com/iC8u8MzTMe](https://t.co/iC8u8MzTMe)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 10, 2021](https://twitter.com/MarshaBlackburn/status/1391764477805309964?ref_src=twsrc%5Etfw)
+环球网5月9日转载央视财经消息，根据宁波航运交易所数据，宁波出口集装箱运价指数再创历史新高，达2597.4点，全球21条航线中，仅有5条航线运价指数下跌。但国内出口面临的缺舱、缺箱现状，依旧未得到缓解。
+
+2020年下半年，由于全球新冠疫情蔓延，变种毒株在多国出现，中共塑造的“经济转正”造成出口多、进口少的局面。疫情蔓延极大的降低了海外港口、口岸的装卸效率，检验、检疫作业导致运营周期加长，打乱了正常的航程，导致集装箱滞留海外。为保证及时交货，外贸企业不计成本的抢船和抢箱，使得运价3至5倍飙升，但即便如此，集装箱依旧是“一舱难求”。
+
+进入2021年后，集装箱稀少的情况并未得到缓解，运价继续走高，欧洲航线高柜运价破9000美元，美东、美西航线的运价分别达到5600、4400美元水平。在运价长期攀高的同时，航线运力不足的状况依旧未得到缓解。以国内外贸企业的状况（宁波某外贸企业疫情前每天集装箱30个以上，今天只有9个；浙江慈溪某外贸行业欧美订单排到8月份，每天发货不到10个集装箱）粗算，集装箱出口相较疫情前也是效率折半，即中共国成为全球“经济增长”唯一实体局面下，外贸出口依旧“缺箱、缺舱”。参照2020年底的海运困境，可见自2020年下半年因疫情导致的海运价格上涨和集装箱供需失衡现状延续至今。
+
+结合中共海关数据，2021年前4个月贸易货物进出口总值11.62万亿元，比2019年同期增长21.8%。虽然其中有东盟等国进口量加大的因素，但半年以上的“缺箱、缺舱”和航运成本的加大都无法匹配“超19年同期2成”的这一外贸数据，所以中共进出口数据的真实性十分存疑。
+
+再者，2021年前4个月进口数据攀升，无论是美元计价的进口同比增长43.1%，还是原油、铁矿石等大宗商品价格的上涨，都反映出外汇支出的显著加大。一方面外贸企业成本加大、利益削减，另一方面则是中共政府外汇支出导致赚取外汇驱动加强，必然导致外汇与人民币折算过程中的抽成加大，外贸行业的寒冬仍将持久。即便篡改后的数据如何“强劲”，中共利用货币兑换环节剥削外贸行业的力度都在加大，外贸行业的盈利空间也被急剧缩小，进出口贸易完全脱离了真实的市场经济状态，成为单纯的“纸上文字”。
+
+参考阅读：
+
+缺箱！缺舱！有外贸企业大量产品积压！订单暴增，但发货难！怎么了？\_https://china.huanqiu.com/article/433WkUx1x8U
+
+缺舱！缺箱！海运难题何解？\_https://www.sohu.com/a/440132306\_162758
+
+运价还在涨，出口企业挺难的！\_https://m.gmw.cn/2020-12/03/content\_1301898333.htm
+
+外贸维持高景气度 4月出口数据超预期\_https://finance.huanqiu.com/article/432GOycWWoj
+
+海外积极评价中国进出口贸易保持强劲增长\_http://www.xinhuanet.com/fortune/2021-05/09/c\_1127424385.htm
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 
 
-参议员汤姆·科顿： 苹果公司需要花更多的时间来解决其被控对维吾尔族奴工的依赖，花少些时间向共和党人讲授选举诚信。 【附保守派智库政策总监推文：202012月，苹果公司发言人声称他们的供应商没有一个使用维族奴工。今天 [@theinformation](https://twitter.com/theinformation)报告显示，他们的供应商有七个使用维族奴工】
-
-
-
-> Apple needs to spend more time addressing its alleged reliance on Uighur slave labor and less time lecturing Republicans about election integrity. [https://t.co/VVRZk3ghtJ](https://t.co/VVRZk3ghtJ)
-> — Tom Cotton (@TomCottonAR) [May 10, 2021](https://twitter.com/TomCottonAR/status/1391854153421492226?ref_src=twsrc%5Etfw)
-
-
-
-前白宫贸易顾问彼得·纳瓦罗: 能有这样的强烈批评，我一定是在目标之上了。事实：福奇(Fauci)资助了武汉实验室。事实：蝠奇批准了在武汉进行使病毒武器化的「功能增强」性试验的能力。笛卡尔逻辑：如果象(美前疾控中心主任)雷德菲尔德博士所说的那样，病毒来自实验室，那么福奇就是病毒之父。证明完毕【附mediaite网文章，说彼得·纳瓦罗推动疯狂阴谋论，指责福奇博士 “杀死了数百万美国人”】
-
-
-
-> 前白宫贸易顾问彼得·纳瓦罗:
-> 能有这样的强烈批评，我一定是在目标之上了。事实：蝠奇(Fauci)资助了武汉实验室。事实：蝠奇批准了在武汉进行使病毒武器化的「功能增强」性试验的能力。笛卡尔逻辑：如果象(美前疾控中心主任)雷德菲尔德博士所说的那样，病毒来自实验室，那么蝠奇就是病毒之父。证明完毕 [https://t.co/BncAJJCVUo](https://t.co/BncAJJCVUo)
-> — 美国政要等…直译推 (@zhiyitw33) [May 10, 2021](https://twitter.com/zhiyitw33/status/1391868520980439043?ref_src=twsrc%5Etfw)
-
-
-
-蓬佩奥（前国务卿）： 在我们的学校里施行1619项目（由纽约时报于2019年，第一批黑奴抵达美国400年，所发起的重塑美国历史的系列评论）和批判种族理论，是极左势力，将社会主义注入到我们生活的各个方面，并灌输给美国年轻一代的又一企图。
-
-
-
-> Implementing the 1619 project and critical race theory in our schools is another attempt by the radical Left to inject socialism into every aspect of our lives and indoctrinate the next generation of America’s youth.
-> — Mike Pompeo (@mikepompeo) [May 10, 2021](https://twitter.com/mikepompeo/status/1391762199375396865?ref_src=twsrc%5Etfw)
-
-
-
-章家敦（中国问题专家）： 拜登政府已经宣布了它的北韩政策。看上去又是一个在不解决中共国（China）问题的情形下，试图解决我们北韩问题的企图。然而，中共国（China）恰是问题所在。 参见： 新闻周刊的观点文章，“北韩是中国的武器”。
-
-
-
-> The [#BidenAdministration](https://twitter.com/hashtag/BidenAdministration?src=hash&amp;ref_src=twsrc%5Etfw) has announced its [#NorthKorea](https://twitter.com/hashtag/NorthKorea?src=hash&amp;ref_src=twsrc%5Etfw) policy. It looks like another attempt to solve our [#KimJongUn](https://twitter.com/hashtag/KimJongUn?src=hash&amp;ref_src=twsrc%5Etfw) problem without solving our [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) one. China, however, is the problem. See: [https://t.co/uBYI9B2TI2](https://t.co/uBYI9B2TI2). [@josh\_hammer](https://twitter.com/josh_hammer?ref_src=twsrc%5Etfw) [@NewsweekOpinion](https://twitter.com/NewsweekOpinion?ref_src=twsrc%5Etfw)
-> — Gordon G. Chang (@GordonGChang) [May 10, 2021](https://twitter.com/GordonGChang/status/1391789511886184455?ref_src=twsrc%5Etfw)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
 

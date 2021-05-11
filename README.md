@@ -12,135 +12,135 @@
 
 ---
 
-### [【商见你我他】谁是印度病毒灾难背后的推手？](/content/gnews/1/README.md)
+### [印度的巨大潜力没有得到开发](/content/gnews/1/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [视频2/09/2021 路德社直播(嘉宾闫博士) (节选二): 首次揭露中共超限生物武器计划教材！](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [【商见你我他】谁是印度病毒灾难背后的推手？](/content/gnews/3/README.md)
  ` 波士顿五月花农场`
 
-### [伊朗在霍尔木兹海峡挑衅 美舰警告射击驱离](/content/gnews/2/README.md)
+### [伊朗在霍尔木兹海峡挑衅 美舰警告射击驱离](/content/gnews/4/README.md)
  ` 闪电侠`
 
-### [美国批准为未成年人接种辉瑞新冠疫苗](/content/gnews/3/README.md)
+### [美国批准为未成年人接种辉瑞新冠疫苗](/content/gnews/5/README.md)
  ` 闪电侠`
 
-### [福克斯揭疫情爆发前五年中共已将病毒武器化](/content/gnews/4/README.md)
+### [福克斯揭疫情爆发前五年中共已将病毒武器化](/content/gnews/6/README.md)
  ` HimalayaRussia`
 
-### [【战友心声】洗礼](/content/gnews/5/README.md)
+### [【战友心声】洗礼](/content/gnews/7/README.md)
  ` 纽约香草山MOS03`
 
-### [【健身健心】核心力量训练（三）](/content/gnews/6/README.md)
+### [【健身健心】核心力量训练（三）](/content/gnews/8/README.md)
  ` 纽约香草山MOS03`
 
-### [神龙见首不见尾的马云露面了](/content/gnews/7/README.md)
+### [神龙见首不见尾的马云露面了](/content/gnews/9/README.md)
  ` 闪电侠`
 
-### [【热点播报】南亚和东南亚国家疫情再度爆发](/content/gnews/8/README.md)
+### [【热点播报】南亚和东南亚国家疫情再度爆发](/content/gnews/10/README.md)
  ` 纽约香草山MOS02`
 
-### [【热点播报】欧盟27国与印度签订协议，共同对抗中共国](/content/gnews/9/README.md)
+### [【热点播报】欧盟27国与印度签订协议，共同对抗中共国](/content/gnews/11/README.md)
  ` 纽约香草山MOS02`
 
-### [【鹰眼墙国】驾驶证“改革”，交管服务“便利化”，意欲何为？](/content/gnews/10/README.md)
+### [【鹰眼墙国】驾驶证“改革”，交管服务“便利化”，意欲何为？](/content/gnews/12/README.md)
  ` 纽约香草山MOS02`
 
-### [2021年05月10日澳喜要闻（每日更新）](/content/gnews/11/README.md)
+### [2021年05月10日澳喜要闻（每日更新）](/content/gnews/13/README.md)
  ` 澳喜农场`
 
-### [【鹰眼墙国】长期缺箱、缺舱，为何外贸出口贸易“依旧”强劲增长？](/content/gnews/12/README.md)
+### [【鹰眼墙国】长期缺箱、缺舱，为何外贸出口贸易“依旧”强劲增长？](/content/gnews/14/README.md)
  ` 纽约香草山MOS02`
 
-### [世卫未发邀请函 台湾将奋战到最后一刻](/content/gnews/13/README.md)
+### [世卫未发邀请函 台湾将奋战到最后一刻](/content/gnews/15/README.md)
  ` 闪电侠`
 
-### [5月10日美国政要和政评家反共推特精选](/content/gnews/14/README.md)
+### [5月10日美国政要和政评家反共推特精选](/content/gnews/16/README.md)
  ` 美国政要等...直译推`
 
-### [【鹰眼墙国】公共自行车“退役”，“共享”单车前路几何？](/content/gnews/15/README.md)
+### [【鹰眼墙国】公共自行车“退役”，“共享”单车前路几何？](/content/gnews/17/README.md)
  ` 纽约香草山MOS02`
 
-### [红色朝拜能让江山稳固吗](/content/gnews/16/README.md)
+### [红色朝拜能让江山稳固吗](/content/gnews/18/README.md)
  ` 闪电侠`
 
-### [当前中共危机委员会要求中情局局长威廉•伯恩斯辞职](/content/gnews/17/README.md)
+### [当前中共危机委员会要求中情局局长威廉•伯恩斯辞职](/content/gnews/19/README.md)
  ` 美国洛杉矶天使农场 - LA Himalaya Angels`
 
-### [维园纪念六四，是对香港精神最好的诠释](/content/gnews/18/README.md)
+### [维园纪念六四，是对香港精神最好的诠释](/content/gnews/20/README.md)
  ` 闪电侠`
 
-### [结束大流行的是疫苗](/content/gnews/19/README.md)
+### [结束大流行的是疫苗](/content/gnews/21/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [王兴祸从口出，剑指“一尊”](/content/gnews/20/README.md)
+### [王兴祸从口出，剑指“一尊”](/content/gnews/22/README.md)
  ` 闪电侠`
 
-### [中共国就各地对维吾尔人事件的关注表示不满](/content/gnews/21/README.md)
+### [中共国就各地对维吾尔人事件的关注表示不满](/content/gnews/23/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [【热点播报】塞浦路斯将实行疫苗护照系统](/content/gnews/22/README.md)
+### [【热点播报】塞浦路斯将实行疫苗护照系统](/content/gnews/24/README.md)
  ` 纽约香草山MOS02`
 
-### [2021年5月10日郭文贵先生生日G-TV直播——小飞象速记版](/content/gnews/23/README.md)
+### [2021年5月10日郭文贵先生生日G-TV直播——小飞象速记版](/content/gnews/25/README.md)
  ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
 
-### [加拿大“候鸟”回国受虐记 &#8211;疫期入境加拿大指南](/content/gnews/24/README.md)
+### [加拿大“候鸟”回国受虐记 &#8211;疫期入境加拿大指南](/content/gnews/26/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [“4.19断播” 一个里程碑式历史事件](/content/gnews/25/README.md)
+### [“4.19断播” 一个里程碑式历史事件](/content/gnews/27/README.md)
  ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
 
-### [保守派批评《无尽疆域法案》对中共不够严厉](/content/gnews/26/README.md)
+### [保守派批评《无尽疆域法案》对中共不够严厉](/content/gnews/28/README.md)
  ` 索尼克`
 
-### [欧盟和印度同意重启贸易谈判](/content/gnews/27/README.md)
+### [欧盟和印度同意重启贸易谈判](/content/gnews/29/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [美元下跌导致科技股下跌 大宗商品崩盘 加密货币上涨](/content/gnews/28/README.md)
+### [美元下跌导致科技股下跌 大宗商品崩盘 加密货币上涨](/content/gnews/30/README.md)
  ` 索尼克`
 
-### [伊朗快船侵略性靠近美国船只 海岸警卫队鸣枪警告](/content/gnews/29/README.md)
+### [伊朗快船侵略性靠近美国船只 海岸警卫队鸣枪警告](/content/gnews/31/README.md)
  ` 索尼克`
 
-### [以色列报复加沙火箭弹攻击造成致命伤亡](/content/gnews/30/README.md)
+### [以色列报复加沙火箭弹攻击造成致命伤亡](/content/gnews/32/README.md)
  ` 索尼克`
 
-### [以色列发动了空袭回应加沙地带火箭弹袭击耶路撒冷](/content/gnews/31/README.md)
+### [以色列发动了空袭回应加沙地带火箭弹袭击耶路撒冷](/content/gnews/33/README.md)
  ` 索尼克`
 
-### [报告显示，中共国7家苹果供应商与强迫劳动项目有关](/content/gnews/32/README.md)
+### [报告显示，中共国7家苹果供应商与强迫劳动项目有关](/content/gnews/34/README.md)
  ` 索尼克`
 
-### [美国撤离阿富汗引发中共势力进驻担忧](/content/gnews/33/README.md)
+### [美国撤离阿富汗引发中共势力进驻担忧](/content/gnews/35/README.md)
  ` 索尼克`
 
-### [内 蒙 有 感](/content/gnews/34/README.md)
+### [内 蒙 有 感](/content/gnews/36/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [喜时事新闻简报—病毒篇](/content/gnews/35/README.md)
+### [喜时事新闻简报—病毒篇](/content/gnews/37/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [印度能替代中共国成为欧盟的贸易伙伴吗？](/content/gnews/36/README.md)
+### [印度能替代中共国成为欧盟的贸易伙伴吗？](/content/gnews/38/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [美管道运营商受攻击与俄黑客有关](/content/gnews/37/README.md)
+### [美管道运营商受攻击与俄黑客有关](/content/gnews/39/README.md)
  ` HimalayaRussia`
 
-### [只有中共国才能成为德国政党基金会的最高领导人吗？](/content/gnews/38/README.md)
+### [只有中共国才能成为德国政党基金会的最高领导人吗？](/content/gnews/40/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [【香港快讯】 5月10日 加国驻港领事离任前专访：最忧虑港区国安法　担心参与政治集会被起诉成趋势](/content/gnews/39/README.md)
+### [【香港快讯】 5月10日 加国驻港领事离任前专访：最忧虑港区国安法　担心参与政治集会被起诉成趋势](/content/gnews/41/README.md)
  ` 喜馬拉雅-粵語組`
 
-### [【路德简报】5/9/2021晚：继澳、英媒体后 美国主流媒体福克斯主播玛丽亚再谈《非典非自然起源》一书](/content/gnews/40/README.md)
+### [【路德简报】5/9/2021晚：继澳、英媒体后 美国主流媒体福克斯主播玛丽亚再谈《非典非自然起源》一书](/content/gnews/42/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美军从阿富汗撤军后将迁往俄罗斯附近](/content/gnews/41/README.md)
+### [美军从阿富汗撤军后将迁往俄罗斯附近](/content/gnews/43/README.md)
  ` HimalayaRussia`
 
-### [病毒大流行对青少年的伤害](/content/gnews/42/README.md)
+### [病毒大流行对青少年的伤害](/content/gnews/44/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [CIA报告警告中共威胁及未来“混乱”的国际新秩序](/content/gnews/43/README.md)
- ` 索尼克`
-
-### [【路德简报】5/9/2021早：习险恶用心， 称要趁世界乱局把握机遇](/content/gnews/44/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
