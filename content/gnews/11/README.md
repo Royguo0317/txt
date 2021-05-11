@@ -1,63 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月10日美国政要和政评家反共推特精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1203892/)
+## 王兴祸从口出，剑指“一尊”
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1203703/)
 
-参议员瑞克·斯科特： 就在昨天白宫庆祝母亲节之时，在新疆，共产中国（Communist China）阻止妇女生孩子的权利，并在集中营里因生育“众多”而折磨母亲。总统需要认识到，与犯种族灭绝罪行的政权，没有合作的空间。（转发纽约时报的报道：中国正在使用侵害性的生育，强化对新疆穆斯林少数民族的压迫）
+**撰稿：脐橙君**
+![]()![](https://gnews.org/wp-content/uploads/2021/05/11-39.jpg)
+英国金融时报被指报道，中国食物外卖应用程式“美团”创办人王兴于社群媒体上贴文唐朝古诗“焚书坑”，诗文为：“竹帛烟销帝业虚，关河空锁祖龙居。坑灰未冷山东乱，刘项原来不读书。”被外界解读为批评中国国家主席习近平，10日股价一度重挫9.8％，美团高层同日也被上海市消保委约谈。
 
+据该报道，王兴之后删除贴文，并解释说，“前两天1首唐诗令我颇感慨：秦国警惕书生，但后来灭秦的刘项却不读书，这给我提了个醒，最危险的对手往往都不是预料中的那些。这些年阿里一直盯着京东，最后却是拼多多斜刺里杀出来。同理，美团外卖最大的对手看起来是“饿了么”，但更可能颠覆外卖的，却是我们还没有关注到的公司和模式”。
 
+与马云外滩金融峰会上的一番对监管的炮轰演讲有异曲同工之妙，王兴的这种做法，既然没有指名道姓地公开发表言论让中共高层难堪，又怎么会给自己惹了“杀身“之祸呢？
 
-> While the U.S. celebrated Mother’s Day yesterday, in Xinjiang, Communist China prevents women from having children & tortures mothers in concentration camps for having “too many” kids. [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) needs to realize there's no room for cooperation with a regime guilty of genocide. [https://t.co/yFAe8yHMQq](https://t.co/yFAe8yHMQq)
-> — Rick Scott (@SenRickScott) [May 10, 2021](https://twitter.com/SenRickScott/status/1391792072873631746?ref_src=twsrc%5Etfw)
+习一尊自从变为“习一坑“之后，已经无法停止内心的多疑和恐惧，从《反间谍法》的推出，以及各个新规中，对于”举报“的鼓励态度，中共已经处在文革2.0的阶段了。不然，王兴在自己的社交网站上贴一篇古诗文，又怎么会传到习一坑那里，并且解读为对他的暗讽呢？一旦”举报揭发“的风气形成，那将是致命的可怕。也就是，每个人的言论都会带来隐患，更可怕的是，将你的言论暴露出去的人可能是你身边最亲近和信任的人。
 
+当然，美团的被罚，应该不仅仅是王兴个人这种“含沙射影“的行为导致的，将民营企业收编，将个人资产剥夺，才是这一轮大规模约谈的背后目的。中共已经公布了一张”约谈“名单，上了名单的企业所有者，应该现在每天都忙于公关，希望自己能幸免于难，但他们不知这一切忙碌都是徒劳，因为中共为了续命和控制人民，早已做好牺牲经济保政权的准备，那么这些曾经风光一时的民营企业家最终的命运，也只是如蝼蚁一般，没有任何可以挣扎的空间
 
+（本文只代表作者观点，与Gnews平台无关。）
 
-参议院布莱克本： 美国必须保护美国的创造者和发明人免于 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)[#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hashtag_click) 的知识产权盗窃。我和科顿以及图贝维尔参议员一同提出“保护校园法案”，以确保美国的研究惠及美国人，而不是北京。 [@FoxBusiness](https://twitter.com/FoxBusiness)[@MariaBartiromo](https://twitter.com/MariaBartiromo)
+**新闻来源：**
+[外媒称中国美团王兴抄诗“刘项原来不读书”遭指暗喻国家主席不读书？股价大跌还有约谈 (rfi.fr)](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210510-%E5%A4%96%E5%AA%92%E7%A7%B0%E4%B8%AD%E5%9B%BD%E7%BE%8E%E5%9B%A2%E7%8E%8B%E5%85%B4%E6%8A%84%E8%AF%97-%E5%88%98%E9%A1%B9%E5%8E%9F%E6%9D%A5%E4%B8%8D%E8%AF%BB%E4%B9%A6-%E9%81%AD%E6%8C%87%E6%9A%97%E5%96%BB%E5%9B%BD%E5%AE%B6%E4%B8%BB%E5%B8%AD%E4%B8%8D%E8%AF%BB%E4%B9%A6-%E8%82%A1%E4%BB%B7%E5%A4%A7%E8%B7%8C%E8%BF%98%E6%9C%89%E7%BA%A6%E8%B0%88)
 
+***校对发布**：文顾*
 
-
-> The U.S. must protect American creators and innovators from the [#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hash&amp;ref_src=twsrc%5Etfw)’s intellectual property theft.
-> I introduced the SECURE CAMPUS Act with [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) & [@SenTuberville](https://twitter.com/SenTuberville?ref_src=twsrc%5Etfw) to ensure American research benefits Americans, not Beijing .[@FoxBusiness](https://twitter.com/FoxBusiness?ref_src=twsrc%5Etfw) [@MariaBartiromo](https://twitter.com/MariaBartiromo?ref_src=twsrc%5Etfw) [pic.twitter.com/iC8u8MzTMe](https://t.co/iC8u8MzTMe)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 10, 2021](https://twitter.com/MarshaBlackburn/status/1391764477805309964?ref_src=twsrc%5Etfw)
-
-
-
-参议员汤姆·科顿： 苹果公司需要花更多的时间来解决其被控对维吾尔族奴工的依赖，花少些时间向共和党人讲授选举诚信。 【附保守派智库政策总监推文：202012月，苹果公司发言人声称他们的供应商没有一个使用维族奴工。今天 [@theinformation](https://twitter.com/theinformation)报告显示，他们的供应商有七个使用维族奴工】
-
-
-
-> Apple needs to spend more time addressing its alleged reliance on Uighur slave labor and less time lecturing Republicans about election integrity. [https://t.co/VVRZk3ghtJ](https://t.co/VVRZk3ghtJ)
-> — Tom Cotton (@TomCottonAR) [May 10, 2021](https://twitter.com/TomCottonAR/status/1391854153421492226?ref_src=twsrc%5Etfw)
-
-
-
-前白宫贸易顾问彼得·纳瓦罗: 能有这样的强烈批评，我一定是在目标之上了。事实：福奇(Fauci)资助了武汉实验室。事实：蝠奇批准了在武汉进行使病毒武器化的「功能增强」性试验的能力。笛卡尔逻辑：如果象(美前疾控中心主任)雷德菲尔德博士所说的那样，病毒来自实验室，那么福奇就是病毒之父。证明完毕【附mediaite网文章，说彼得·纳瓦罗推动疯狂阴谋论，指责福奇博士 “杀死了数百万美国人”】
-
-
-
-> 前白宫贸易顾问彼得·纳瓦罗:
-> 能有这样的强烈批评，我一定是在目标之上了。事实：蝠奇(Fauci)资助了武汉实验室。事实：蝠奇批准了在武汉进行使病毒武器化的「功能增强」性试验的能力。笛卡尔逻辑：如果象(美前疾控中心主任)雷德菲尔德博士所说的那样，病毒来自实验室，那么蝠奇就是病毒之父。证明完毕 [https://t.co/BncAJJCVUo](https://t.co/BncAJJCVUo)
-> — 美国政要等…直译推 (@zhiyitw33) [May 10, 2021](https://twitter.com/zhiyitw33/status/1391868520980439043?ref_src=twsrc%5Etfw)
-
-
-
-蓬佩奥（前国务卿）： 在我们的学校里施行1619项目（由纽约时报于2019年，第一批黑奴抵达美国400年，所发起的重塑美国历史的系列评论）和批判种族理论，是极左势力，将社会主义注入到我们生活的各个方面，并灌输给美国年轻一代的又一企图。
-
-
-
-> Implementing the 1619 project and critical race theory in our schools is another attempt by the radical Left to inject socialism into every aspect of our lives and indoctrinate the next generation of America’s youth.
-> — Mike Pompeo (@mikepompeo) [May 10, 2021](https://twitter.com/mikepompeo/status/1391762199375396865?ref_src=twsrc%5Etfw)
-
-
-
-章家敦（中国问题专家）： 拜登政府已经宣布了它的北韩政策。看上去又是一个在不解决中共国（China）问题的情形下，试图解决我们北韩问题的企图。然而，中共国（China）恰是问题所在。 参见： 新闻周刊的观点文章，“北韩是中国的武器”。
-
-
-
-> The [#BidenAdministration](https://twitter.com/hashtag/BidenAdministration?src=hash&amp;ref_src=twsrc%5Etfw) has announced its [#NorthKorea](https://twitter.com/hashtag/NorthKorea?src=hash&amp;ref_src=twsrc%5Etfw) policy. It looks like another attempt to solve our [#KimJongUn](https://twitter.com/hashtag/KimJongUn?src=hash&amp;ref_src=twsrc%5Etfw) problem without solving our [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) one. China, however, is the problem. See: [https://t.co/uBYI9B2TI2](https://t.co/uBYI9B2TI2). [@josh\_hammer](https://twitter.com/josh_hammer?ref_src=twsrc%5Etfw) [@NewsweekOpinion](https://twitter.com/NewsweekOpinion?ref_src=twsrc%5Etfw)
-> — Gordon G. Chang (@GordonGChang) [May 10, 2021](https://twitter.com/GordonGChang/status/1391789511886184455?ref_src=twsrc%5Etfw)
-
-
-
-0
++1
