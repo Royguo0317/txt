@@ -1,46 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】我要为自己而灭共
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1206266/)
+## 台东沙群岛附近空域，突现数架PLA军用型直升机
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1206378/)
 
-配音：香草山录音组 Gtv abeilles（蜜蜂）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/11021343/%E6%93%B7%E5%8F%96511-14.jpg)
+作者：台湾宝岛农场 快慢机
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+**数架隶属于PLA的军用型直升机，从大陆深圳起飞，径直侵入台东沙群岛附近空域。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/11021141/%E6%93%B7%E5%8F%96511-1-3-2.jpg)
+2021年5月10日，三架隶属于PLA的军用型直升机，从大陆深圳起飞后，径直分别侵入台湾东沙群岛西南及西北两个方向空域。 这三架直升机的机型分别为： “西科斯基S-92”中型通用直升机，以及空客的“H-225”与”EC-225LP”等重型通用直升机。两者基本属于各自领域内的代表性产品。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/11021424/%E6%93%B7%E5%8F%96511-2-11.jpg)
+**这是自4月份，中共大陆无人机被发现侵入东沙群岛附近上空，对其进行绕岛侦查搜索飞行以来，该区域首次出现PLA军用直升机的诡异情况。**
 
+东沙群岛目前除由台海巡署常态化驻守外，其岛上还有隶属于台海军陆战队九九师的防御力量被派驻实施警戒。自上次中共无人机对东沙群岛展开绕岛侦查性飞行动作后，台国防部随即便强硬公开表示，日后如若再次发现中共无人机侵入东沙群岛附近空域，进行侦查性飞行活动，不排除将动用防空力量予以击落。
 
+对此，中共战狼外交部与南部战区发言人，随后相继再次“老调重弹”的“强硬表态了一番”。未曾料想，一月有余，中共再次派出军机侵入东沙群岛附近空域。只不过，这次所派出的，并非台方所威胁已经发现便予以击落的“无人机”。而是两架中型与重型的军用直升机。
 
+二次派出无人机前往东沙群岛附近空域进行侦搜行动，极有可能出现“擦枪走火”被台军防空力量所击落的一幕。但若从此偃旗息鼓，那面子上实在是过不去。因此只能派出相对目标较大，航速不高的中大型军用直升机，前往继续进行抵近侦查。一方面有效规避了无人机被台军击落的风险；另一方在保住了颜面的同时，也完成了二次侦搜的任务。
 
+此一举两得之余，也顺带进一步试探台军的反应。毕竟动用防空力量击落中大型军用直升机所产生的后果，与击落中小型无人机的后果，必然是“大相径庭”之别！
 
+**中共近期对台的袭扰动作大有全面开花的军民融合之势。空军对台西南防空识别区的侵扰几乎已成常态化。不久前又相继爆出，一周内连续2次的单人渡海偷渡事件，这又首次诡异派出军用直升机进入东沙群岛附近区域。**
 
+**中共向来谙熟于心计，事出反常必有妖！中共绝不会毫无缘由的作出，上述表面看似并无多少实质性关联的动作。其背后必定有着某种不可告人的险恶目的与用心！**
 
-为了拿回选择权利，我必须消灭共产党；
-为了财产不被抢夺，我必须消灭共产党；
-为了吃上安全食品，我必须消灭共产党；
-为了呼吸无霾空气，我必须消灭共产党；
+本文仅代表笔者个人观点！
 
+[新闻链接](https://twitter.com/CCCDSLR/status/1391645872983732225?s=20)
 
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-**文字版原文：[【香草诗词汇】我要为自己而灭共](https://gnews.org/zh-hans/1194344/)**
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
-作者：纽约香草山媒体部 蚊子
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
+文章审核：zhong
 
+文章发布：Little Liu
 
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1

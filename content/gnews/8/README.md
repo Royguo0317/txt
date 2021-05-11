@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】CCP科技大跃进2.0
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1205955/)
+## 【有声读物】我要为自己而灭共
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1206266/)
 
-配音：香草山录音组 蒙古鸿雁
+配音：香草山录音组 Gtv abeilles（蜜蜂）
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -14,20 +14,20 @@
 
 
 
-2019年，美国开始对中兴、华为采取实质性的制裁，限制芯片供应。美国的这一制裁真的卡住了CCP的咽喉，使中共国在高科技领域 “繁花似锦”的假象迅速被戳破，习一尊的科技强国之梦瞬间惊醒，小小的一颗芯片成了中共国的噩梦。
-
-缺芯问题对中共国各个领域发展的限制开始逐渐凸显，很多相关企业由于芯片断供，开始出现停产等状况。如果这一问题不能得到缓解，在不远的将来，CCP对人民庞大的监控网络将因为硬件无法升级而使效率逐渐降低。CCP的党卫军也将因为武器装备、通信系统等无法更新换代而逐渐落后，变得更加不堪一击。因此缺芯问题成了CCP无法承受之重。
-
-
-
-**文字版原文：[【世事解评】CCP科技大跃进2.0](https://gnews.org/zh-hans/1144250/)**
-
-作者：纽约香草山写作组 妖刀
+为了拿回选择权利，我必须消灭共产党；
+为了财产不被抢夺，我必须消灭共产党；
+为了吃上安全食品，我必须消灭共产党；
+为了呼吸无霾空气，我必须消灭共产党；
 
 
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+**文字版原文：[【香草诗词汇】我要为自己而灭共](https://gnews.org/zh-hans/1194344/)**
+
+作者：纽约香草山媒体部 蚊子
+
+
+
+音频处理/发稿：雪梨
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 

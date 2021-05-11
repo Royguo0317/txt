@@ -1,46 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】美国越来越多的大学要求学生接种中共病毒疫苗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1205997/)
+## 中共国的碳年排放量超过了所有发达国家的总和
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1205875/)
 
-配音：香草山录音组 蒙古鸿雁
+翻译:康州盘古农场 – Mike Li
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+校对:康州盘古农场 – TrueSky
 
+编辑:康州盘古农场 – 傻小子
 
+发布：康州盘古农场 – 彩虹 Rainbow
 
+**据《CNN》 作者：Laura Smith-Spark and Ivana Kottasová，2021年5月7日报道：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/11012357/pic11d-1.png)
+(CNN)根据Rhodium Group的一份新报告，2019年中共国的碳年排放量超过了所有发达国家的总和，这是自国家温室气体排放被测量以来第一次出现这种情况。
 
+中共国国家主席习近平发誓要在2060年之前使他的国家实现碳中和，而气候政策被视为美国和中共国之间的一个主要合作领域–甚至是竞争。
 
+但新的报告显示了减少中共国对气候的影响可能是多么困难。
 
+据研究人员称，2019年全球排放量达到52千兆吨二氧化碳当量，比过去十年增加了11.4%。而中共国的份额正在快速增长。
 
-继4月28日由华盛顿州立大学首个提出要求学生接种疫苗的公告后，在短短的一周左右的时间里，美国越来越多的大学已经加入到要求学生以及所有教职员工接种中共病毒疫苗的队列当中。
+报告说，虽然1990年中共国的碳排放量还不到发达国家排放量的四分之一，但在过去三十年里，中共国的排放量已经增加了两倍多。 2019年，它们首次超过了14千兆吨的二氧化碳当量。
 
-位于麻省的哈佛大学在5月6日提出 “为了达到保护我们社区所需要的高水平疫苗接种，哈佛大学将要求今年秋天在校的所有学生进行冠状病毒疫苗接种”。 根据声明，仅出于医疗或宗教原因才允许例外。这个和之前华盛顿州立大学的公告类似！
+根据我们对2019年最新的估计，2019年全球碳排放量达到52千兆吨二氧化碳当量，比过去十年增加了11.4%。仅中共国就贡献了全球总排放量的27%，而美国–第二大排放国–贡献了11%。 1/5 pic.twitter.com/GXQbAg5Qew
 
+**– rhodium group（@rhodium\_group）2021年5月6日**
 
+报告说：“仅中共国就贡献了全球总排放量的27%以上，远远超过美国–第二大排放国–贡献了全球总排放量的11%。”印度首次超过欧盟27国而位居第三，占全球排放量的6.6%。 “
 
-**文字版原文：[【热点播报】美国越来越多的大学要求学生接种中共病毒疫苗](https://gnews.org/zh-hans/1195050/)**
+研究人员指出，中共国是一个拥有14亿人口的大国，到目前为止，其人均碳排放量虽然大大低于发达国家的排放量。但是，这也正在迅速改变。
 
-作者：纽约香草山美食部   为真不破20
+报告说，“2019年，中国的人均排放量达到10.1吨，在过去20年里几乎增加了两倍，”报告说。
 
+虽然他们在2019年仍然低于美国–—每人17.6吨–但报告预测，当2020年的全部数据公布时，中国的人均碳排放量将超过经合组织的平均水平10.5吨，即使“在Covid-19大流行之后，几乎所有其他国家的排放量都急剧下降的情况。”
 
+在下面这张2017年6月的档案照片中，可以看到中国淮南的一家国有燃煤电厂。
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+温室气体像毯子一样在大气中积累，捕获本来会逃到太空的辐射。这导致地球的温度上升，这与更极端的天气、冰雪融化和海平面上升有关。而且，排放到大气中的碳越多，地球就越温暖。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+文章来源:[https://www.cnn.com/2021/05/07/world/climate-emissions-china-developed-nations-intl/index.html](https://www.cnn.com/2021/05/07/world/climate-emissions-china-developed-nations-intl/index.html)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

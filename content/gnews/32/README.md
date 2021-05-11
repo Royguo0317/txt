@@ -1,62 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月10日美国政要和政评家反共推特精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1203892/)
+## 【鹰眼墙国】驾驶证“改革”，交管服务“便利化”，意欲何为？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1203997/)
 
-参议员瑞克·斯科特： 就在昨天白宫庆祝母亲节之时，在新疆，共产中国（Communist China）阻止妇女生孩子的权利，并在集中营里因生育“众多”而折磨母亲。总统需要认识到，与犯种族灭绝罪行的政权，没有合作的空间。（转发纽约时报的报道：中国正在使用侵害性的生育，强化对新疆穆斯林少数民族的压迫）
-
-
-
-> While the U.S. celebrated Mother’s Day yesterday, in Xinjiang, Communist China prevents women from having children & tortures mothers in concentration camps for having “too many” kids. [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) needs to realize there's no room for cooperation with a regime guilty of genocide. [https://t.co/yFAe8yHMQq](https://t.co/yFAe8yHMQq)
-> — Rick Scott (@SenRickScott) [May 10, 2021](https://twitter.com/SenRickScott/status/1391792072873631746?ref_src=twsrc%5Etfw)
+作者：纽约香草山农场    鹰（文言）
 
 
 
-参议院布莱克本： 美国必须保护美国的创造者和发明人免于 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)[#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hashtag_click) 的知识产权盗窃。我和科顿以及图贝维尔参议员一同提出“保护校园法案”，以确保美国的研究惠及美国人，而不是北京。 [@FoxBusiness](https://twitter.com/FoxBusiness)[@MariaBartiromo](https://twitter.com/MariaBartiromo)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
 
-> The U.S. must protect American creators and innovators from the [#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hash&amp;ref_src=twsrc%5Etfw)’s intellectual property theft.
-> I introduced the SECURE CAMPUS Act with [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) & [@SenTuberville](https://twitter.com/SenTuberville?ref_src=twsrc%5Etfw) to ensure American research benefits Americans, not Beijing .[@FoxBusiness](https://twitter.com/FoxBusiness?ref_src=twsrc%5Etfw) [@MariaBartiromo](https://twitter.com/MariaBartiromo?ref_src=twsrc%5Etfw) [pic.twitter.com/iC8u8MzTMe](https://t.co/iC8u8MzTMe)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 10, 2021](https://twitter.com/MarshaBlackburn/status/1391764477805309964?ref_src=twsrc%5Etfw)
+环球网5月10日转载央视客户端消息，中共公安部发布12项措施，包括自6月1日起在天津、成都、苏州试点机动车驾驶证电子化，以及60岁以上老人可由亲友代办车牌证、驾驶证等业务。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/05/58.jpg)
+
+机动车驾驶证电子化虽然可以避免忘带驾照受罚现象的发生，但结合2020年全面推行数字健康码背后是身份证号、姓名、银行流水、银联消费等个人隐私被纳入监管，驾驶证电子化更大的优势在于，相较于以往的摄像头排查车辆再索引驾驶员身份信息这一手续环节的冗杂，电子化的驾驶证可被直接扫描，以及国产手机后门“依法”盗取用户信息的协助，中共政府可轻松对当事人进行定位和监控。再者，电子化的驾驶证实时显示计分、扣分情况，通过大数据处理可排查出超12分未重新考取的“规避”现象，无论是考证缴费，还是违规罚款，都可以做到“不漏一人”。所以，中共官方才会如此迫切地推行驾驶证电子化。
+
+虽然12项措施取消了小型自动挡汽车科目二中的“坡道定点停车和起步”，并缩短了约考时间间隔，但一则国家政策上在逐步削减燃油汽车数量，二则受经济停滞和芯片制约，汽车行业售出的数量和规模都大不如前，电动汽车和自动挡驾照的普及都使得此举所带来的“便利”效果十分细微。再者，在历经2020年破产倒闭潮后，物价上涨、开支加大，虽然考取驾照的时间缩短了，但费用相对提高了，所谓便民也只是停留在办理环节上的快捷而非成本。
+
+中共公安部规定，自6月1日起，60岁以上老人可由亲友网上代办驾驶证、机动车牌证等业务。一则60岁以上老年人精力有限，考取驾照难度较大，二则无论是驾驶证和车牌证的方便办理，会变相刺激以上老年人群的“买车”诉求。此项措施更像是配合延迟退休政策，压榨老年人剩余价值的“补充方案”。同时结合前期电动三轮车整治、电动自行车全面上牌、“一盔一带”等行动施行中各地出现的乱罚款现象（为此中共公安部4月13日专门强调要规范处罚，严禁过度执法、逐利执法），“代办老人交管服务”有为后期电动代步车考证、上牌照提前预演之嫌。综上，12项便利措施俱是些中看不中用的“表面文章”，保护人民利益为虚，巧立名目“合法抢钱”为实。
+
+参考阅读：
+
+试点推行驾驶证电子化、科目二减项……公安部推出12项交管改革新措施\_https://china.huanqiu.com/article/433xMqsi8IZ
+
+公安部通知！“一盔一带”，即将严查！\_https://new.qq.com/omn/20200504/20200504A03HKQ00.html
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 
 
-参议员汤姆·科顿： 苹果公司需要花更多的时间来解决其被控对维吾尔族奴工的依赖，花少些时间向共和党人讲授选举诚信。 【附保守派智库政策总监推文：202012月，苹果公司发言人声称他们的供应商没有一个使用维族奴工。今天 [@theinformation](https://twitter.com/theinformation)报告显示，他们的供应商有七个使用维族奴工】
-
-
-
-> Apple needs to spend more time addressing its alleged reliance on Uighur slave labor and less time lecturing Republicans about election integrity. [https://t.co/VVRZk3ghtJ](https://t.co/VVRZk3ghtJ)
-> — Tom Cotton (@TomCottonAR) [May 10, 2021](https://twitter.com/TomCottonAR/status/1391854153421492226?ref_src=twsrc%5Etfw)
-
-
-
-前白宫贸易顾问彼得·纳瓦罗: 能有这样的强烈批评，我一定是在目标之上了。事实：福奇(Fauci)资助了武汉实验室。事实：蝠奇批准了在武汉进行使病毒武器化的「功能增强」性试验的能力。笛卡尔逻辑：如果象(美前疾控中心主任)雷德菲尔德博士所说的那样，病毒来自实验室，那么福奇就是病毒之父。证明完毕【附mediaite网文章，说彼得·纳瓦罗推动疯狂阴谋论，指责福奇博士 “杀死了数百万美国人”】
-
-
-
-> 前白宫贸易顾问彼得·纳瓦罗:
-> 能有这样的强烈批评，我一定是在目标之上了。事实：蝠奇(Fauci)资助了武汉实验室。事实：蝠奇批准了在武汉进行使病毒武器化的「功能增强」性试验的能力。笛卡尔逻辑：如果象(美前疾控中心主任)雷德菲尔德博士所说的那样，病毒来自实验室，那么蝠奇就是病毒之父。证明完毕 [https://t.co/BncAJJCVUo](https://t.co/BncAJJCVUo)
-> — 美国政要等…直译推 (@zhiyitw33) [May 10, 2021](https://twitter.com/zhiyitw33/status/1391868520980439043?ref_src=twsrc%5Etfw)
-
-
-
-蓬佩奥（前国务卿）： 在我们的学校里施行1619项目（由纽约时报于2019年，第一批黑奴抵达美国400年，所发起的重塑美国历史的系列评论）和批判种族理论，是极左势力，将社会主义注入到我们生活的各个方面，并灌输给美国年轻一代的又一企图。
-
-
-
-> Implementing the 1619 project and critical race theory in our schools is another attempt by the radical Left to inject socialism into every aspect of our lives and indoctrinate the next generation of America’s youth.
-> — Mike Pompeo (@mikepompeo) [May 10, 2021](https://twitter.com/mikepompeo/status/1391762199375396865?ref_src=twsrc%5Etfw)
-
-
-
-章家敦（中国问题专家）： 拜登政府已经宣布了它的北韩政策。看上去又是一个在不解决中共国（China）问题的情形下，试图解决我们北韩问题的企图。然而，中共国（China）恰是问题所在。 参见： 新闻周刊的观点文章，“北韩是中国的武器”。
-
-
-
-> The [#BidenAdministration](https://twitter.com/hashtag/BidenAdministration?src=hash&amp;ref_src=twsrc%5Etfw) has announced its [#NorthKorea](https://twitter.com/hashtag/NorthKorea?src=hash&amp;ref_src=twsrc%5Etfw) policy. It looks like another attempt to solve our [#KimJongUn](https://twitter.com/hashtag/KimJongUn?src=hash&amp;ref_src=twsrc%5Etfw) problem without solving our [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) one. China, however, is the problem. See: [https://t.co/uBYI9B2TI2](https://t.co/uBYI9B2TI2). [@josh\_hammer](https://twitter.com/josh_hammer?ref_src=twsrc%5Etfw) [@NewsweekOpinion](https://twitter.com/NewsweekOpinion?ref_src=twsrc%5Etfw)
-> — Gordon G. Chang (@GordonGChang) [May 10, 2021](https://twitter.com/GordonGChang/status/1391789511886184455?ref_src=twsrc%5Etfw)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
 

@@ -1,32 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 维园纪念六四，是对香港精神最好的诠释
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1203770/)
+## 5月10日美国政要和政评家反共推特精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1203892/)
 
-**撰稿：脐橙君**
-![]()![](https://gnews.org/wp-content/uploads/2021/05/12-38.jpg)
-今年六四32周年纪念日将是香港国安法实施后的首次，香港支联会数名成员周日(5月9日)母亲节之际，在旺角摆街站，收集六四悼念册市民签名并派发蜡烛，呼吁市民毋忘悼念六四，并作两手准备：如果六四当日未能举办大型集会，可以将悼念烛光遍地开花，上载照片到社交网站。
+参议员瑞克·斯科特： 就在昨天白宫庆祝母亲节之时，在新疆，共产中国（Communist China）阻止妇女生孩子的权利，并在集中营里因生育“众多”而折磨母亲。总统需要认识到，与犯种族灭绝罪行的政权，没有合作的空间。（转发纽约时报的报道：中国正在使用侵害性的生育，强化对新疆穆斯林少数民族的压迫）
 
-北京六四屠城事件32周年即将来临，香港支联会以“为自由、共命运、同抗争”为今年的悼念主题。《港区国安法》实施后的首次六四纪念日，支联会能否继续超过30年的传统，在维园举办六四烛光集会成为各界关注焦点。
 
-文贵先生一再说：香港是我们的圣城。体现在香港人民身上，就是骨子里那种打不趴的贵族精神。中共对香港实施暴行从反送中游行开始，已经2年了，在这短短的2年，香港经历了从一个国际化的城市变为了被中共的一个“省份“，香港的繁华也因此只是过往云烟。但即便如此，香港在经历家园被毁、民主被剥夺、自由被亵渎的最坏的时代，这片土地的人民并没有遗忘他们内心深处所追求的信仰。
 
-8964是象征着人民对民主法治的渴望，虽然那是一场失败的运动，但其意义却远大于一切。人民满怀热切，希望用行动感召政府，寻求像西方一样的民主法治，但最终却因为中共害怕自己非法政权的倒塌，不计后果地用武力镇压。
+> While the U.S. celebrated Mother’s Day yesterday, in Xinjiang, Communist China prevents women from having children & tortures mothers in concentration camps for having “too many” kids. [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) needs to realize there's no room for cooperation with a regime guilty of genocide. [https://t.co/yFAe8yHMQq](https://t.co/yFAe8yHMQq)
+> — Rick Scott (@SenRickScott) [May 10, 2021](https://twitter.com/SenRickScott/status/1391792072873631746?ref_src=twsrc%5Etfw)
 
-墙内的人民被暴力所威慑，但香港的人民却从来没有忘记这个历史时刻，30年，每一年的64，都会有自发组织的维园纪念，不忘对因争取民主自由而牺牲的斗士，在《国安法》肆虐的今天，这种纪念，更是多了更深一层的意义。
 
-据美国之音报道：香港支联会表示，就算警方反对六四烛光集会，但不能阻止市民在街上手持烛光，支联会对六四死难者及天安门母亲的承诺并不是“轻飘飘”的承诺，不会因受压而轻易放弃。
 
-支联会副主席邹幸彤在街站发言表示，支联会已经根据法例向警方申请6月4日晚在维园举行六四32周年烛光悼念集会，在警方未反对集会之前，支联会仍然会呼吁市民当晚到维园参加烛光集会。无论到时的情况如何，警方会不会突然反对集会，支联会都会坚持六四当晚在维园、在香港有悼念六四死难者的烛光，支联会亦会在六四纪念日前预先摆街站向市民派发蜡烛，呼吁市民两手准备，6月4日晚上8点，无论身在何处点起烛光，将悼念的烛光遍地开花，上载照片到社交网站。只要六四一日未平反，我们都会继续去坚持这个悼念，无论是在线上、在线下，我们要让大家见得到，悼念的烛光不会因为政治的打压而断绝。”
+参议院布莱克本： 美国必须保护美国的创造者和发明人免于 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)[#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hashtag_click) 的知识产权盗窃。我和科顿以及图贝维尔参议员一同提出“保护校园法案”，以确保美国的研究惠及美国人，而不是北京。 [@FoxBusiness](https://twitter.com/FoxBusiness)[@MariaBartiromo](https://twitter.com/MariaBartiromo)
 
-这不仅是对64的纪念，更是对这两年，为了保护香港的民主法治而被牺牲的同胞手足的悼念，香港的精神不死，就一定会有再次繁荣的一天。
 
-（本文只代表作者观点，与Gnews平台无关。）
 
-**新闻来源：**
-[六四32周年纪念：香港支联会呼吁港人两手准备让六四烛光遍地开花 (rfi.fr)](https://www.rfi.fr/cn/%E6%B8%AF%E6%BE%B3%E5%8F%B0/20210510-%E5%85%AD%E5%9B%9B32%E5%91%A8%E5%B9%B4%E7%BA%AA%E5%BF%B5-%E9%A6%99%E6%B8%AF%E6%94%AF%E8%81%94%E4%BC%9A%E5%91%BC%E5%90%81%E6%B8%AF%E4%BA%BA%E4%B8%A4%E6%89%8B%E5%87%86%E5%A4%87%E8%AE%A9%E5%85%AD%E5%9B%9B%E7%83%9B%E5%85%89%E9%81%8D%E5%9C%B0%E5%BC%80%E8%8A%B1)
+> The U.S. must protect American creators and innovators from the [#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hash&amp;ref_src=twsrc%5Etfw)’s intellectual property theft.
+> I introduced the SECURE CAMPUS Act with [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) & [@SenTuberville](https://twitter.com/SenTuberville?ref_src=twsrc%5Etfw) to ensure American research benefits Americans, not Beijing .[@FoxBusiness](https://twitter.com/FoxBusiness?ref_src=twsrc%5Etfw) [@MariaBartiromo](https://twitter.com/MariaBartiromo?ref_src=twsrc%5Etfw) [pic.twitter.com/iC8u8MzTMe](https://t.co/iC8u8MzTMe)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 10, 2021](https://twitter.com/MarshaBlackburn/status/1391764477805309964?ref_src=twsrc%5Etfw)
 
-***校对发布**：文顾*
+
+
+参议员汤姆·科顿： 苹果公司需要花更多的时间来解决其被控对维吾尔族奴工的依赖，花少些时间向共和党人讲授选举诚信。 【附保守派智库政策总监推文：202012月，苹果公司发言人声称他们的供应商没有一个使用维族奴工。今天 [@theinformation](https://twitter.com/theinformation)报告显示，他们的供应商有七个使用维族奴工】
+
+
+
+> Apple needs to spend more time addressing its alleged reliance on Uighur slave labor and less time lecturing Republicans about election integrity. [https://t.co/VVRZk3ghtJ](https://t.co/VVRZk3ghtJ)
+> — Tom Cotton (@TomCottonAR) [May 10, 2021](https://twitter.com/TomCottonAR/status/1391854153421492226?ref_src=twsrc%5Etfw)
+
+
+
+前白宫贸易顾问彼得·纳瓦罗: 能有这样的强烈批评，我一定是在目标之上了。事实：福奇(Fauci)资助了武汉实验室。事实：蝠奇批准了在武汉进行使病毒武器化的「功能增强」性试验的能力。笛卡尔逻辑：如果象(美前疾控中心主任)雷德菲尔德博士所说的那样，病毒来自实验室，那么福奇就是病毒之父。证明完毕【附mediaite网文章，说彼得·纳瓦罗推动疯狂阴谋论，指责福奇博士 “杀死了数百万美国人”】
+
+
+
+> 前白宫贸易顾问彼得·纳瓦罗:
+> 能有这样的强烈批评，我一定是在目标之上了。事实：蝠奇(Fauci)资助了武汉实验室。事实：蝠奇批准了在武汉进行使病毒武器化的「功能增强」性试验的能力。笛卡尔逻辑：如果象(美前疾控中心主任)雷德菲尔德博士所说的那样，病毒来自实验室，那么蝠奇就是病毒之父。证明完毕 [https://t.co/BncAJJCVUo](https://t.co/BncAJJCVUo)
+> — 美国政要等…直译推 (@zhiyitw33) [May 10, 2021](https://twitter.com/zhiyitw33/status/1391868520980439043?ref_src=twsrc%5Etfw)
+
+
+
+蓬佩奥（前国务卿）： 在我们的学校里施行1619项目（由纽约时报于2019年，第一批黑奴抵达美国400年，所发起的重塑美国历史的系列评论）和批判种族理论，是极左势力，将社会主义注入到我们生活的各个方面，并灌输给美国年轻一代的又一企图。
+
+
+
+> Implementing the 1619 project and critical race theory in our schools is another attempt by the radical Left to inject socialism into every aspect of our lives and indoctrinate the next generation of America’s youth.
+> — Mike Pompeo (@mikepompeo) [May 10, 2021](https://twitter.com/mikepompeo/status/1391762199375396865?ref_src=twsrc%5Etfw)
+
+
+
+章家敦（中国问题专家）： 拜登政府已经宣布了它的北韩政策。看上去又是一个在不解决中共国（China）问题的情形下，试图解决我们北韩问题的企图。然而，中共国（China）恰是问题所在。 参见： 新闻周刊的观点文章，“北韩是中国的武器”。
+
+
+
+> The [#BidenAdministration](https://twitter.com/hashtag/BidenAdministration?src=hash&amp;ref_src=twsrc%5Etfw) has announced its [#NorthKorea](https://twitter.com/hashtag/NorthKorea?src=hash&amp;ref_src=twsrc%5Etfw) policy. It looks like another attempt to solve our [#KimJongUn](https://twitter.com/hashtag/KimJongUn?src=hash&amp;ref_src=twsrc%5Etfw) problem without solving our [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) one. China, however, is the problem. See: [https://t.co/uBYI9B2TI2](https://t.co/uBYI9B2TI2). [@josh\_hammer](https://twitter.com/josh_hammer?ref_src=twsrc%5Etfw) [@NewsweekOpinion](https://twitter.com/NewsweekOpinion?ref_src=twsrc%5Etfw)
+> — Gordon G. Chang (@GordonGChang) [May 10, 2021](https://twitter.com/GordonGChang/status/1391789511886184455?ref_src=twsrc%5Etfw)
+
+
 
 0
