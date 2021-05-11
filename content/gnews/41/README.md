@@ -1,53 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 泄露文件显示了中共对冠状病毒的险恶意图
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1205398/)
+## 【有声读物】母亲的爱——永恒之爱
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1206071/)
 
-翻译：康州盘古农场 – 柯镇恶
+配音：香草山录音组 蒙古鸿雁
 
-校对：康州盘古农场 – TrueSky
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-编辑：康州盘古农场 – 心照
 
-发布：康州盘古农场 – 彩虹 Rainbow
 
-**据《新闻大全》作者：Nick Koutsobinas， 2021年5月8日报道：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/11000228/pof3-2.jpg)
-由中共国科学家和中共国公共卫生官员于2015年撰写的题为《 非典非自然起源和人制人新种病毒基因武器》的文件，讨论了SARS冠状病毒的武器化问题。它设想了第三次世界大战时使用生物武器作战的情景。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/11001554/pof22-3-1.png)图片：闫博士报告（三）
-据《news.com.au》报道，此文将冠状病毒描述为“基因武器的新时代” ，并详细介绍了如何将冠状病毒“人为地操纵为新兴的人类疾病病毒，然后以前所未有的方式进行武器化和释放”。
 
-根据《Politico》 3月发表的文章，一位美国官员曾说：“如果有（关于新冠病毒）的铁证，中共会将它和敢于谈论它的人一起埋葬；……我们也许永远无法证明这一点，这一直是北京的目标。”
 
-但据澳大利亚战略政策研究所执行董事彼得·詹宁斯（Peter Jennings）称，这份新近发现的文件可能与我们拥有的证据一样接近“铁证”。
 
-詹宁斯说：“我认为这很重要，因为该文清楚地表明，中共国科学家正在考虑将冠状病毒的不同株系用于军事应用，并思考如何部署它们。”
 
-詹宁斯补充说：“这坐实了我们所掌握的一种可能性，即这是偶然释放出一种用于军事用途的病原体。”
+今年五月的第二个星期天是5月9日——母亲节。这个节日其实发源于美国：美国国会于1914年通过了法案，并由总统威尔逊签字生效，规定每年5月的第二个周日为母亲节。威尔逊总统还下令，在母亲节这一天，所有的政府建筑物都要悬挂国旗，表示庆祝。母亲节最初的推动创立者是一对母女——母亲安-贾维斯（Ann Maria Reeves Jarvis）与女儿安娜-贾维斯（Anna Marie Jarvis）。从母亲的模糊设想到女儿将其变为现实，前后经历了近半个世纪，而女儿安娜也因此被称为“母亲节之母”。
 
-该文件还将解释为什么中共国不愿合作调查这种病毒的起源。
 
-“如果病毒是从海鲜市场传播出来的，那么配合调查是符合中共国利益的。看到的事实却恰恰相反（中共不愿意配合调查）。”
 
-负责分析中共国政府的网络安全专家的罗伯特·波特（Robert Potter）表示，该文件绝对不是伪造的。
+**文字版原文：[【战友心声】母亲的爱——永恒之爱](https://gnews.org/zh-hans/1195060/)**
 
-波特说：“我们得出的结论是真实的，这是高度可信的，不是假的，但有赖于其他人来解释它的严重性。”
+作者：纽约香草山美食部 雨过天晴Rainbow
 
-波特说，这种病毒不太可能从实验室中泄露。
 
-“它在几年前就已经出现了既然已经被曝光了，他们（中共）几乎可以肯定会尝试将其删除，。”
 
-根据世界卫生组织的说法，COVID-19最有可能是动物起源的，其横跨人类和蝙蝠。代表世界卫生组织的公共卫生病理学总监多米尼克·德威尔（Dominic Dwyer）去了武汉的海鲜市场，一种理论认为这是病毒起源的地方。但是他说，海鲜市场可能不是该病毒的来源。
+音频处理：喜山必胜Maverick
+发稿：雪梨
 
-德威尔说：“最终，武汉市场更多的是放大事件，而不是真正的起源地。因此，我们需要在其他地方寻找病毒源。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-美国高级行政官员的主要忧虑之一是：“这只是整个（生物武器研究）活动的幕后一瞥，其中包括北京和武汉的实验室和军事实验室在不安全的实验室中操弄着ACE2小鼠的冠状病毒……这表明我们正在窥视西方所不了解、甚至在这里都没有先例的活动。”
+**更多资讯，更多关注**
 
-[https://www.newsmax.com/t/newsmax/article/1020638?section=newsfront&keywords=covid19-leaked-origin&year=2021&month=05&date=08&id=1020638](https://www.newsmax.com/t/newsmax/article/1020638?section=newsfront&amp;keywords=covid19-leaked-origin&amp;year=2021&amp;month=05&amp;date=08&amp;id=1020638)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
