@@ -1,32 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 红色朝拜能让江山稳固吗
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1203833/)
+## 5月10日美国政要和政评家反共推特精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1203892/)
 
-**撰稿：脐橙君**
+参议员瑞克·斯科特： 就在昨天白宫庆祝母亲节之时，在新疆，共产中国（Communist China）阻止妇女生孩子的权利，并在集中营里因生育“众多”而折磨母亲。总统需要认识到，与犯种族灭绝罪行的政权，没有合作的空间。（转发纽约时报的报道：中国正在使用侵害性的生育，强化对新疆穆斯林少数民族的压迫）
 
-为纪念中国共产党成立一百周年，法新社等外国媒体受邀前往红色“圣地”延安参观访问。法新社周一发自延安的报道指出，成千上万的游客前来中国共产主义的避难地延安，提前庆祝中国共产党成立一百周年。
 
-报道指出，习近平政权将在7月1日庆祝中国共产党成立100周年，届时将借助媒体和电影院进行大肆宣传。
 
-在延安，是成群的游客来到延安参观被正规军追捕的红军在1935年经过数千公里的长征之后避难的地方。在毛泽东曾经居住过的山洞中，一位游客在前中国领导人毛泽东的床上坐下来拍照，另一位游客则在欣赏毛泽东和其第四任妻子江青的照片。
+> While the U.S. celebrated Mother’s Day yesterday, in Xinjiang, Communist China prevents women from having children & tortures mothers in concentration camps for having “too many” kids. [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) needs to realize there's no room for cooperation with a regime guilty of genocide. [https://t.co/yFAe8yHMQq](https://t.co/yFAe8yHMQq)
+> — Rick Scott (@SenRickScott) [May 10, 2021](https://twitter.com/SenRickScott/status/1391792072873631746?ref_src=twsrc%5Etfw)
 
-法新社的报道还指出，受到当局邀请的包括法新社在内的外国媒体，除了参观，还听了一个报告，介绍中共政权在当地所取得的基础设施成就，以及在消除贫困方面所取得的成就。
 
-今年的7月1日，是中共这个非法组织成立100周年，作为中共本身，为了进一步洗白历史，当然不能放过这一个最好不过的进行自我美化和宣传的契机，因此上到各个党政机关，下到设有党支部的民营企业，都“自发“组织前往革命圣地进行“洗脑教育”。
 
-自从文革之后，中共有意粉饰历史，摧毁中华文化，现在基础教育课本中的历史，究竟还有多少是真实的，我们从中共一味用强权镇压的手段，就能知道，我们被看到听到的，都是他们想让我们看到听到的。
+参议院布莱克本： 美国必须保护美国的创造者和发明人免于 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)[#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hashtag_click) 的知识产权盗窃。我和科顿以及图贝维尔参议员一同提出“保护校园法案”，以确保美国的研究惠及美国人，而不是北京。 [@FoxBusiness](https://twitter.com/FoxBusiness)[@MariaBartiromo](https://twitter.com/MariaBartiromo)
 
-更有甚者，是习一尊对于文革的定性，将人类文明历史上最惨绝人寰的这段经历，居然轻描淡写地予以肯定，那些历史对人民百姓造成的无法愈合的伤，却自动屏蔽、也不允许任何人加以声讨。
 
-一个如此害怕舆论的政权，靠这种持续高压的统治，就已经预示着走向死亡边缘，中共将自己的疯狂带到了整个世界，企图让共产主义暴行取代西方民主法治的国际规则，是不会得逞的。这段在华夏土地上最黑暗的70年，终将让时间证明其荒谬、邪恶和残暴，而清醒的人，正在用自身的努力来唤醒沉睡的同胞，这种力量将会成为压垮中共的一根稻草。
 
-（本文只代表作者观点，与Gnews平台无关。）
+> The U.S. must protect American creators and innovators from the [#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hash&amp;ref_src=twsrc%5Etfw)’s intellectual property theft.
+> I introduced the SECURE CAMPUS Act with [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) & [@SenTuberville](https://twitter.com/SenTuberville?ref_src=twsrc%5Etfw) to ensure American research benefits Americans, not Beijing .[@FoxBusiness](https://twitter.com/FoxBusiness?ref_src=twsrc%5Etfw) [@MariaBartiromo](https://twitter.com/MariaBartiromo?ref_src=twsrc%5Etfw) [pic.twitter.com/iC8u8MzTMe](https://t.co/iC8u8MzTMe)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 10, 2021](https://twitter.com/MarshaBlackburn/status/1391764477805309964?ref_src=twsrc%5Etfw)
 
-**新闻来源：**
-[成千上万的游客前往红色“圣地”延安朝圣，提前庆祝中共成立一百周年 (rfi.fr)](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210510-%E6%88%90%E5%8D%83%E4%B8%8A%E4%B8%87%E7%9A%84%E6%B8%B8%E5%AE%A2%E5%89%8D%E5%BE%80%E7%BA%A2%E8%89%B2-%E5%9C%A3%E5%9C%B0-%E5%BB%B6%E5%AE%89%E6%9C%9D%E5%9C%A3%EF%BC%8C%E6%8F%90%E5%89%8D%E5%BA%86%E7%A5%9D%E4%B8%AD%E5%85%B1%E6%88%90%E7%AB%8B%E4%B8%80%E7%99%BE%E5%91%A8%E5%B9%B4)
 
-***校对发布**：文顾*
+
+参议员汤姆·科顿： 苹果公司需要花更多的时间来解决其被控对维吾尔族奴工的依赖，花少些时间向共和党人讲授选举诚信。 【附保守派智库政策总监推文：202012月，苹果公司发言人声称他们的供应商没有一个使用维族奴工。今天 [@theinformation](https://twitter.com/theinformation)报告显示，他们的供应商有七个使用维族奴工】
+
+
+
+> Apple needs to spend more time addressing its alleged reliance on Uighur slave labor and less time lecturing Republicans about election integrity. [https://t.co/VVRZk3ghtJ](https://t.co/VVRZk3ghtJ)
+> — Tom Cotton (@TomCottonAR) [May 10, 2021](https://twitter.com/TomCottonAR/status/1391854153421492226?ref_src=twsrc%5Etfw)
+
+
+
+前白宫贸易顾问彼得·纳瓦罗: 能有这样的强烈批评，我一定是在目标之上了。事实：福奇(Fauci)资助了武汉实验室。事实：蝠奇批准了在武汉进行使病毒武器化的「功能增强」性试验的能力。笛卡尔逻辑：如果象(美前疾控中心主任)雷德菲尔德博士所说的那样，病毒来自实验室，那么福奇就是病毒之父。证明完毕【附mediaite网文章，说彼得·纳瓦罗推动疯狂阴谋论，指责福奇博士 “杀死了数百万美国人”】
+
+
+
+> 前白宫贸易顾问彼得·纳瓦罗:
+> 能有这样的强烈批评，我一定是在目标之上了。事实：蝠奇(Fauci)资助了武汉实验室。事实：蝠奇批准了在武汉进行使病毒武器化的「功能增强」性试验的能力。笛卡尔逻辑：如果象(美前疾控中心主任)雷德菲尔德博士所说的那样，病毒来自实验室，那么蝠奇就是病毒之父。证明完毕 [https://t.co/BncAJJCVUo](https://t.co/BncAJJCVUo)
+> — 美国政要等…直译推 (@zhiyitw33) [May 10, 2021](https://twitter.com/zhiyitw33/status/1391868520980439043?ref_src=twsrc%5Etfw)
+
+
+
+蓬佩奥（前国务卿）： 在我们的学校里施行1619项目（由纽约时报于2019年，第一批黑奴抵达美国400年，所发起的重塑美国历史的系列评论）和批判种族理论，是极左势力，将社会主义注入到我们生活的各个方面，并灌输给美国年轻一代的又一企图。
+
+
+
+> Implementing the 1619 project and critical race theory in our schools is another attempt by the radical Left to inject socialism into every aspect of our lives and indoctrinate the next generation of America’s youth.
+> — Mike Pompeo (@mikepompeo) [May 10, 2021](https://twitter.com/mikepompeo/status/1391762199375396865?ref_src=twsrc%5Etfw)
+
+
+
+章家敦（中国问题专家）： 拜登政府已经宣布了它的北韩政策。看上去又是一个在不解决中共国（China）问题的情形下，试图解决我们北韩问题的企图。然而，中共国（China）恰是问题所在。 参见： 新闻周刊的观点文章，“北韩是中国的武器”。
+
+
+
+> The [#BidenAdministration](https://twitter.com/hashtag/BidenAdministration?src=hash&amp;ref_src=twsrc%5Etfw) has announced its [#NorthKorea](https://twitter.com/hashtag/NorthKorea?src=hash&amp;ref_src=twsrc%5Etfw) policy. It looks like another attempt to solve our [#KimJongUn](https://twitter.com/hashtag/KimJongUn?src=hash&amp;ref_src=twsrc%5Etfw) problem without solving our [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) one. China, however, is the problem. See: [https://t.co/uBYI9B2TI2](https://t.co/uBYI9B2TI2). [@josh\_hammer](https://twitter.com/josh_hammer?ref_src=twsrc%5Etfw) [@NewsweekOpinion](https://twitter.com/NewsweekOpinion?ref_src=twsrc%5Etfw)
+> — Gordon G. Chang (@GordonGChang) [May 10, 2021](https://twitter.com/GordonGChang/status/1391789511886184455?ref_src=twsrc%5Etfw)
+
+
 
 0
