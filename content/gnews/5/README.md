@@ -1,63 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月10日美国政要和政评家反共推特精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1203892/)
+## 世卫未发邀请函 台湾将奋战到最后一刻
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1203894/)
 
-参议员瑞克·斯科特： 就在昨天白宫庆祝母亲节之时，在新疆，共产中国（Communist China）阻止妇女生孩子的权利，并在集中营里因生育“众多”而折磨母亲。总统需要认识到，与犯种族灭绝罪行的政权，没有合作的空间。（转发纽约时报的报道：中国正在使用侵害性的生育，强化对新疆穆斯林少数民族的压迫）
+**撰稿：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/10211923/14-23.jpg)
+世界卫生组织将于5 月 24 召开第七十四届世界卫生大会，尽管此前，由西方数十个国家的数百位议员组成的“对华政策跨国议会联盟”(IPAC）曾呼吁世卫组织恢复2016年之前的惯例，接受台湾作为观察员参与世卫组织年会。但直至当地下午5时，世卫仍未向台湾发出邀请，是自2017年以来连续第5年未邀请台湾。
 
+世卫的官员表示，台湾参与问题将由194会员国决定，另避谈G7及美国支持台湾参与，仅说世卫在技术层面上仍与台湾合作。
 
+近期七大工业国集团（G7）外长发表公报表明支持台湾有意义地参与世卫论坛及WHA，另美国国务卿布林肯（Antony Blinken）5月7日发表声明，呼吁恢复台湾在WHA适当地位，表示没有排除台湾与会的合理理由。但尽管如此，世卫仍然站在了中共的一边，无视国际声音，将台湾依然拒之门外。
 
-> While the U.S. celebrated Mother’s Day yesterday, in Xinjiang, Communist China prevents women from having children & tortures mothers in concentration camps for having “too many” kids. [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) needs to realize there's no room for cooperation with a regime guilty of genocide. [https://t.co/yFAe8yHMQq](https://t.co/yFAe8yHMQq)
-> — Rick Scott (@SenRickScott) [May 10, 2021](https://twitter.com/SenRickScott/status/1391792072873631746?ref_src=twsrc%5Etfw)
+但台湾外交部门表示不放弃在大会开始前持续争取，外交部次长田中光今天稍早在立法院表示，“我们奋战到最后一刻”。
 
+中共国外交部发言人华春莹今天表示，世界上只有“一个中国”，“台湾地区参与国际组织包括世卫组织活动，必须按照一个中国原则处理”。这就是中共流氓的行径。世界从未否认一个中国，但这个中国是否是由中共代表，并没有明确的定论，华春莹此举，就是将中共等同于中国，不仅绑架了国家信用，还将14亿中国百姓一起牢牢绑架住。
 
+台湾在本次疫情之间的表现可以说是让全世界学习的典范，况且台湾在2017年以前一直是以观察员的身份参与世卫大会。中共利用对国际组织的渗透，不仅让中共的人成为了各大国际组织的领导人物，更是将未来的人选布局也纳入规划中，以确保自己能够牢牢抓住这个国际组织为自己所用。
 
-参议院布莱克本： 美国必须保护美国的创造者和发明人免于 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)[#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hashtag_click) 的知识产权盗窃。我和科顿以及图贝维尔参议员一同提出“保护校园法案”，以确保美国的研究惠及美国人，而不是北京。 [@FoxBusiness](https://twitter.com/FoxBusiness)[@MariaBartiromo](https://twitter.com/MariaBartiromo)
+但以美国为首的西方世界已经认清了其中的猫腻，川普总统时期，就因斥责WHO的名存实亡为中共卖命，而让美国退出，但拜登政府则是用相反的方法，希望重新获得对世卫的话语权。因此他用盟友的关系和影响，给世卫施压，同时中共也没有放弃角力，始终通过各种方法，给国际组织施压。
 
+但中共的罪行是无法掩盖和洗脱的，面对种种罪行的暴露，这些国际组织也无法继续与之沆瀣一气，现在美国为首的西方国家要做的，就是将中共的罪行揭露，从而在国际社会上孤立并与之各领域脱钩，但同时，又加强与台湾的合作和沟通，这样的战略下，中共由于自身经济的败絮其中，必然会自爆马脚，最终走向灭亡。
 
+（本文只代表作者观点，与Gnews平台无关。）
 
-> The U.S. must protect American creators and innovators from the [#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hash&amp;ref_src=twsrc%5Etfw)’s intellectual property theft.
-> I introduced the SECURE CAMPUS Act with [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) & [@SenTuberville](https://twitter.com/SenTuberville?ref_src=twsrc%5Etfw) to ensure American research benefits Americans, not Beijing .[@FoxBusiness](https://twitter.com/FoxBusiness?ref_src=twsrc%5Etfw) [@MariaBartiromo](https://twitter.com/MariaBartiromo?ref_src=twsrc%5Etfw) [pic.twitter.com/iC8u8MzTMe](https://t.co/iC8u8MzTMe)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 10, 2021](https://twitter.com/MarshaBlackburn/status/1391764477805309964?ref_src=twsrc%5Etfw)
+**新闻来源：**
+[欧洲下班时间到：世卫未发邀请台湾函 称由194个会员国考虑和决定 (rfi.fr)](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210510-%E6%AC%A7%E6%B4%B2%E4%B8%8B%E7%8F%AD%E6%97%B6%E9%97%B4%E5%88%B0-%E4%B8%96%E5%8D%AB%E6%9C%AA%E5%8F%91%E9%82%80%E8%AF%B7%E5%8F%B0%E6%B9%BE%E5%87%BD-%E7%A7%B0%E7%94%B1194%E4%B8%AA%E4%BC%9A%E5%91%98%E5%9B%BD%E8%80%83%E8%99%91%E5%92%8C%E5%86%B3%E5%AE%9A)
 
-
-
-参议员汤姆·科顿： 苹果公司需要花更多的时间来解决其被控对维吾尔族奴工的依赖，花少些时间向共和党人讲授选举诚信。 【附保守派智库政策总监推文：202012月，苹果公司发言人声称他们的供应商没有一个使用维族奴工。今天 [@theinformation](https://twitter.com/theinformation)报告显示，他们的供应商有七个使用维族奴工】
-
-
-
-> Apple needs to spend more time addressing its alleged reliance on Uighur slave labor and less time lecturing Republicans about election integrity. [https://t.co/VVRZk3ghtJ](https://t.co/VVRZk3ghtJ)
-> — Tom Cotton (@TomCottonAR) [May 10, 2021](https://twitter.com/TomCottonAR/status/1391854153421492226?ref_src=twsrc%5Etfw)
-
-
-
-前白宫贸易顾问彼得·纳瓦罗: 能有这样的强烈批评，我一定是在目标之上了。事实：福奇(Fauci)资助了武汉实验室。事实：蝠奇批准了在武汉进行使病毒武器化的「功能增强」性试验的能力。笛卡尔逻辑：如果象(美前疾控中心主任)雷德菲尔德博士所说的那样，病毒来自实验室，那么福奇就是病毒之父。证明完毕【附mediaite网文章，说彼得·纳瓦罗推动疯狂阴谋论，指责福奇博士 “杀死了数百万美国人”】
-
-
-
-> 前白宫贸易顾问彼得·纳瓦罗:
-> 能有这样的强烈批评，我一定是在目标之上了。事实：蝠奇(Fauci)资助了武汉实验室。事实：蝠奇批准了在武汉进行使病毒武器化的「功能增强」性试验的能力。笛卡尔逻辑：如果象(美前疾控中心主任)雷德菲尔德博士所说的那样，病毒来自实验室，那么蝠奇就是病毒之父。证明完毕 [https://t.co/BncAJJCVUo](https://t.co/BncAJJCVUo)
-> — 美国政要等…直译推 (@zhiyitw33) [May 10, 2021](https://twitter.com/zhiyitw33/status/1391868520980439043?ref_src=twsrc%5Etfw)
-
-
-
-蓬佩奥（前国务卿）： 在我们的学校里施行1619项目（由纽约时报于2019年，第一批黑奴抵达美国400年，所发起的重塑美国历史的系列评论）和批判种族理论，是极左势力，将社会主义注入到我们生活的各个方面，并灌输给美国年轻一代的又一企图。
-
-
-
-> Implementing the 1619 project and critical race theory in our schools is another attempt by the radical Left to inject socialism into every aspect of our lives and indoctrinate the next generation of America’s youth.
-> — Mike Pompeo (@mikepompeo) [May 10, 2021](https://twitter.com/mikepompeo/status/1391762199375396865?ref_src=twsrc%5Etfw)
-
-
-
-章家敦（中国问题专家）： 拜登政府已经宣布了它的北韩政策。看上去又是一个在不解决中共国（China）问题的情形下，试图解决我们北韩问题的企图。然而，中共国（China）恰是问题所在。 参见： 新闻周刊的观点文章，“北韩是中国的武器”。
-
-
-
-> The [#BidenAdministration](https://twitter.com/hashtag/BidenAdministration?src=hash&amp;ref_src=twsrc%5Etfw) has announced its [#NorthKorea](https://twitter.com/hashtag/NorthKorea?src=hash&amp;ref_src=twsrc%5Etfw) policy. It looks like another attempt to solve our [#KimJongUn](https://twitter.com/hashtag/KimJongUn?src=hash&amp;ref_src=twsrc%5Etfw) problem without solving our [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) one. China, however, is the problem. See: [https://t.co/uBYI9B2TI2](https://t.co/uBYI9B2TI2). [@josh\_hammer](https://twitter.com/josh_hammer?ref_src=twsrc%5Etfw) [@NewsweekOpinion](https://twitter.com/NewsweekOpinion?ref_src=twsrc%5Etfw)
-> — Gordon G. Chang (@GordonGChang) [May 10, 2021](https://twitter.com/GordonGChang/status/1391789511886184455?ref_src=twsrc%5Etfw)
-
-
+***校对发布**：文顾*
 
 0
