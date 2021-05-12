@@ -1,65 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月11日美国政要和政评家反共推特精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1224712/)
+## 六四母亲和香港妈妈
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1225025/)
 
-霍利参议员新闻办公室： 霍利参议员关于禁止美国政府设备上使用TikTok的法案——由卢比奥、瑞克·斯科特、汤姆·科顿联署——将于明天在国土安全和政府事务委员会提交投票。 霍利的立法在早前的国会中，获得参议院一致通过。
+撰稿：wen hua
 
+六四马上就到了，母亲和妈妈都是一样的、只是称呼的地区不同、她们都有伟大的儿女、都是伟大的母亲！今天看了关于六四妈妈的记录片，看到她们那斑白的头发和多年对子女思念那种痛苦、和那种对政权的失望和无奈。我想看到的有良知的各界人士，都会问下自己。我们是被洗脑洗残的4567一代。没有知道过真相，进入社会通过网络和一些有良知的人发声，才知道了事情的真相。在现在的生活环境下，扪心自问要是当初我能做到吗？这个政权还有什么理由继续执政？假、骗、恶的手段对清醒的人是免疫了。共产党你玩完了！六四母亲希望儿女早日沉冤的雪的那天也快到来了。您们多保重！
 
+香港妈妈也是世界上最伟大的，她们的子女也是世界上最优秀的。勤劳，智慧、有良知、有正义感等…。改革开放以来多少技术人才、管理人才、金融人才都是香港妈妈培养出来的，他们为中国做出了巨大贡献。这两年邪恶的共匪对港人做的却是恩将仇报，杀鸡取卵。香港人最清楚共匪的邪恶，誓死捍卫香港一年多、很多香港妈妈失去了优秀的仔女，痛入骨髓。现在举世闻名的圣城，抗争从没停止过。香港人让世界看到了黄皮肤人应有的风骨。圣城妈妈现在也和六四母亲一样生活在痛苦的煎熬中，希望这邪恶的政权早点结束。能给她们的仔女沉冤得雪，给她们的仔女一个呼吸自由空气和生存空间。
+![]()![](https://gnews.org/wp-content/uploads/2021/05/2021-05-12_Task2_cover.jpg)网络图片
+六四～维园……对我来讲六四就是维园、很小的时候爸妈会带我们去逛的公园就是维园，那时候他会讲很多关于维园的历史故事。九零年的六四老爸和我们说今天一定要去逛维多利亚公园。说对你们改变将来的人生会有很大的意义，当然这要靠你们自己去选择和理解。
 
-> Senator Hawley's bill banning TikTok on U.S. government devices — cosponsored by [@marcorubio](https://twitter.com/marcorubio?ref_src=twsrc%5Etfw), [@SenRickScott](https://twitter.com/SenRickScott?ref_src=twsrc%5Etfw), & [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) — comes up for a vote in HSGAC tomorrow.
-> 
-> Hawley's legislation passed the Senate unanimously in the previous Congress. [https://t.co/e2NMj33K0P](https://t.co/e2NMj33K0P)
-> — Senator Hawley Press Office (@SenHawleyPress) [May 11, 2021](https://twitter.com/SenHawleyPress/status/1392127645521952769?ref_src=twsrc%5Etfw)
+那天到了公园、里面的人山如海，有些智人的演讲人生第一次听到，对当时的我来讲，觉得这世界怎会有如此的人和世界怎会这么的残暴。在我心中默默的烙下斑痕，我决定以后每年六四都要来见见这些智者、来听听他们说说话也好，我也没出息、也只是捧个蜡烛在那听一会坐一会就回去了。后来打压的厉害，六四我们也会捧蜡烛去那走一圈。今年六四就到了，疫情还有很多不明朗的原因，估计去的时候不知道会是怎样结果。
 
+长大以后六四对我说就是理想，良知、正义的象征。所以我们的新中国六四也一样。我们现在很幸运有七哥带领下的爆料革命，还有很多智者带着我们这些小蚂蚁来推翻这邪恶的政权。把中南坑那帮恶狗送到人民的审判台。感谢七哥、感谢战友们！让我们做到每天添一根稻草！
 
+(文章内容仅代表作者观点)
 
-参议员马可·卢比奥： 关于 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) ，我们没有时间来签署一个象征性的法案 在为时太晚之前，我们现在必须采取全面、果断和迅速的行动。 【附卢比奥参议员关于应对中共威胁的演讲视频】
+*审稿：**Rosa*
 
+*发稿：光耀华夏*
 
+* * *
 
-> We don’t have time for a symbolic bill on [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)
-> 
-> We need to act comprehensively, decisively and swiftly now before it is too late[pic.twitter.com/zc2gOa8AxJ](https://t.co/zc2gOa8AxJ)
-> — Marco Rubio (@marcorubio) [May 11, 2021](https://twitter.com/marcorubio/status/1392229351916195841?ref_src=twsrc%5Etfw)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-
-
-参议员兰德·保罗： “美国政府已评估武毒所正在以某种形式进行功能增强研究，记者乔什·罗金已于三月在政治报Politico中指出。基因编辑专家杰米·梅茨也注意到武毒所进行了功能增强研究。 【附“国际观察”报道：兰德·保罗敦促福奇放弃功能增强研究，并指出可能发生的新冠病毒实验室泄漏】
-
-
-
-> "The U.S. gov has assessed that the WIV was conducting gain-of-function research in some form reporter Josh Rogin noted in Politico in March. Jamie Metzl, an expert on gene editing…has also noted that the WIV performed gain-of-function…"[https://t.co/vykP5nHSqJ](https://t.co/vykP5nHSqJ)
-> — Senator Rand Paul (@RandPaul) [May 11, 2021](https://twitter.com/RandPaul/status/1392158526387200004?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·加拉格尔 拜登政府有能力立即对围绕实验室泄漏假说的所有情报进行解密。他们需要这样做，以便我们深入了解并确保再也不会发生这种情况。 【附迈克议员接受福克斯塔克节目采访视频称：武毒所在大流行前曾进行蝙蝠病毒实验，福奇博士的部门帮助该所的危险实验，国立研究所则长期资助了他们】
-
-
-
-> The Biden Administration has the ability to immediately declassify all intelligence surrounding the lab leak hypothesis. They need to do so we can get to the bottom of this and make sure it never happens again. [pic.twitter.com/LBC5INE7eR](https://t.co/LBC5INE7eR)
-> — Rep. Mike Gallagher (@RepGallagher) [May 11, 2021](https://twitter.com/RepGallagher/status/1392160865743482886?ref_src=twsrc%5Etfw)
-
-
-
-比尔·格茨（中国问题专家） 推特客服注意：推特何时才能中止 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的宣传和虚假信息？解决方案：封锁所有与政府相关联的中国帐户，直到北京提供与其社交媒体的对等访问权限。 【附美联社推文：美联社和[@OxDemTech](https://twitter.com/OxDemTech)发现，大量假账户转发了外交官和官方媒体的帖子，推动了中共国在推特上的崛起】
-
-
-
-> Attn: [@TwitterSupport](https://twitter.com/TwitterSupport?ref_src=twsrc%5Etfw) When will Twitter halt Chinese Communist Party propaganda and disinformation? Solution: Block all Chinese government-linked accounts until Beijing provides reciprocal access to its social media [https://t.co/z9XvzCCCGp](https://t.co/z9XvzCCCGp)
-> — Bill Gertz (@BillGertz) [May 11, 2021](https://twitter.com/BillGertz/status/1392170658709315586?ref_src=twsrc%5Etfw)
-
-
-
-章家敦（中国问题专家）： 美国的机制正被中共政权所压制。为了拯救我们的共和制度，我们必须立即与那个国家断绝一切联系，直到我们确认我们可以应付。 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click)
-
-
-
-> [#America](https://twitter.com/hashtag/America?src=hash&amp;ref_src=twsrc%5Etfw)’s institutions are being overwhelmed by [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s regime. To save our republic, we have to immediately cut the links with that country until we are sure we can manage. [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/5j4xiG1cwW](https://t.co/5j4xiG1cwW)
-> — Gordon G. Chang (@GordonGChang) [May 11, 2021](https://twitter.com/GordonGChang/status/1392120208362557442?ref_src=twsrc%5Etfw)
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews.org/wp-content/uploads/2021/05/1-澳喜Logo-2.jpeg)
 
 
 0
