@@ -1,24 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德简报】5/11/2021早：重磅！川普顾问纳瓦罗称赞闫博士为大师级科学家
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1225566/)
+## 世卫准入问题上台湾谴责中共“无耻的谎言”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1226152/)
 
-**编辑：华盛顿DC农场 路德简报项目组**
-![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/05/20210511-scaled.jpg)
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/T.jpg)
+路透社5月11日报道，在北京阻止台湾加入世界卫生组织(WHO)的不断升级的争端中，台湾外交部长批评了中共“无耻的谎言”，称中共无视台湾人民利益。
 
-> 2021 年5月11日 路德时评 早 
-> 
-> 1.重磅！川普顾问纳瓦罗称赞闫丽梦博士为大师级科学家 
-> 
-> 2.纳瓦罗接受班农采访：谈追究病毒真相的责任和步骤
-> 
-> 3.印度媒体采访闫丽梦博士 ：冠状病毒被武器化的概念在英文世界继续发酵
-> 
-> 4.中共极力掩盖病毒死亡人数 人口普查假数据出炉 [pic.twitter.com/Emyc2Woks2](https://t.co/Emyc2Woks2)
-> — 平民爆料 (@WM18320321) [May 12, 2021](https://twitter.com/WM18320321/status/1392323272583401473?ref_src=twsrc%5Etfw)
+美国和七国集团(G7)呼吁中共宣称拥有主权但民主统治的台湾加入世界卫生组织的决策机构，并参加将于5月24日召开的世界卫生大会。
 
+由于中共的反对，台湾被排除在世界卫生组织(WHO)等多数全球组织之外。
 
+中共外交部5月10日表示，已经为台湾参与全球卫生事务做出了“适当安排”，没有人比中共政府更关心台湾人民。
+
+台湾外交部长吴钊燮在推特指责中共“无耻的谎言!这只能说明中共不会说真话。”
+
+“在北京对新疆、西藏和香港所做的事情之后，没有一个理智的人会相信它能满足台湾的卫生需求或其他需求。”吴表示，中共不能代表台湾说话，因为它从来没有统治过台湾，只有台湾的民主选举政府才能代表台湾人民。
+
+世卫组织首席法务官史蒂夫·所罗门5月10日表示，世卫组织与台湾技术专家合作应对中共病毒，但是否邀请台湾参加世卫组织会议取决于成员国的决议。
+
+参考链接：
+
+[https://www.reuters.com/world/asia-pacific/taiwan-says-china-is-maliciously-blocking-it-who-2021-05-11/](https://www.reuters.com/world/asia-pacific/taiwan-says-china-is-maliciously-blocking-it-who-2021-05-11/)
 
 0
