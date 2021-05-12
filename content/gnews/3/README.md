@@ -1,112 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（十九）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1229641/)
+## 【聚焦东南亚】一周新闻回顾（2021年5月4日-5月10日）
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1230279/)
 
-作者：纽约香草山信息部 6zero4
+**菲律宾方面：（1） 杜特尔特要丢弃南海仲裁协定**
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+菲律宾总统杜特尔特5月5日表示， 2016年的海牙国际法庭关于南中国海仲裁案，即确认菲律宾专属经济区主权的国际仲裁只是一纸空文，应该可以丢进垃圾桶。杜特尔特指出，任何要求他将当前发生在南中国海的冲突升级到联合国， 都是在浪费时间。 并且这些举动将会破坏菲律宾与中共之间的友好关系。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12080247/duterte-xi-philippines-china-1-5.jpg)
+从今年3月份开始， 中共国派出大量民兵船以渔民躲避风浪的理由，长时间地停泊在南中国海与菲律宾存在争议的牛轭礁。中共的企图是利用中共病毒肆虐菲律宾之际，菲律宾政府无暇顾及南中国海问题， 乘机复制1995年利用民兵船霸占美济礁的方式，将牛轭礁控制在自己手中。 但是中共没有意料到菲律宾乃至美国都作出了强烈的反应，迫使中共撤出一部分民兵船以缓和事态。
 
+菲律宾国内舆论和政坛对与中共在南中国海挑起事端掀起了一轮轮对杜特尔特政府的批评。 近期已退休的最高法院助理大法官卡皮奥抨击德特尔特总统在2016年大选中在南中国海问题上对菲律宾民众作出了虚假的许诺。 菲律宾总统府发言人立即对卡皮罗的言论作出了猛烈回击。 发言人认为卡皮罗作为上届政府的官员，应该对失去黄岩岛负有责任，而不应该指责现任政府。上周菲律宾参议院少数党领袖德龙表示政府应该继续采用扩音器外交， 将中共利用民兵船占领争议岛礁，欺负并驱赶菲律宾的渔民的种种恶行，曝光给全世界。
 
+但是杜特尔特奉行务实的政治主张。 在他来看与中共保持良好的关系可以获得大量的资金的支持，这要比为了几个岛礁与中共闹翻能得到更多的实惠。  从过往来看， 杜特尔特对于中共的态度总是反复。不知过一段时间，杜特尔特是否又推翻此前的言论，对中共采取强硬的态度。2022年菲律宾将面临下一届总统大选， 目前来看杜特尔特不会竞选下一届总统， 小编觉得现在杜特尔特的政策不会太多关注选民的态度， 而是更加体现他的务实的风格。
 
-5月11日塞林博士的8连推：
+**菲律宾方面：（2）杜特尔特要求退掉捐赠的中共国药疫苗**
 
-第1推，转发“George \_Anti CCP姜子牙”战友的中文推：谭文杰的项目2016YFD0500300非常大，参加的医院和研究所特别多，金宁一、管轶都参加了，Malik Peiris与谭文杰有联系说明也是项目中的。并贴上在CDC病毒性疾病预防控制所网站上发布的，关于此项目在2018年举行中期检查，以及在2019年举行项目推进会议的报道之网页截图。COVID-19侦探“George \_Anti CCP姜子牙”提供了更多证据，表明了CCP科学家和斯里兰卡籍的马利克，都与PLA生物战计划关联的科学家关系密切。
+5月3日，菲律宾卫生部长杜克亲自为总统杜特尔特接种中共国的国药集团的疫苗。 杜特尔特在接种疫苗后对媒体说，他感觉不错，他很早就期待这个疫苗了。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12080534/PH2-3.jpg)
+杜特尔特接种的疫苗是来自中共国捐赠的1000剂国药疫苗，但是国药疫苗并没有经过菲律宾FDA的紧急授权使用。 因此杜特尔特公开接种国药疫苗的举动在菲律宾引发了很多批评，认为他的行为有可能违法菲律宾的相关法律。 面对国内舆论的批评， 杜特尔特5月5日被迫作出表态。 他已经要求中共国驻菲律宾的大使收回捐赠的1000剂国药疫苗，理由是这些疫苗尚未得到菲律宾FDA的授权批准。他同时告诉中共国驻菲律宾大使在这个疫苗没有通过菲律宾FDA的审批前，不要再给菲律宾提供国药疫苗。
 
+小编了解到，其实中共国大使在安排这个1000剂国药疫苗之外，还计划提供10000剂国药疫苗，给杜特尔特的安全人员接种。因此菲律宾国内也有一种舆论说杜特尔特利用总统之便，享受某些疫苗特权。 杜特尔特虽然为自己接种国药疫苗行为道歉， 但是他仍然辩解称这是他的医生的决定， 随后总统府发言人说，杜特尔特总统将继续接种第二剂国药疫苗。
 
+中国有句老话： 吃人嘴短，拿人手短。  中共不会提供免费的午餐， 任何来自中共国的特供，都是要有代价的。杜总统，当您享受中共的特供时，中共国大使正在给您准备账单了。
 
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@GeorgeZ44231116](https://twitter.com/GeorgeZ44231116?ref_src=twsrc%5Etfw) provides more evidence that Chinese Communist Party scientist and Sri Lankan national Malik Peiris has close connections with People's Liberation Army scientists linked to a biowarfare program.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#CovidIndia](https://twitter.com/hashtag/CovidIndia?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/lnPGeQ7ig3](https://t.co/lnPGeQ7ig3)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 11, 2021](https://twitter.com/LawrenceSellin/status/1391974766878371843?ref_src=twsrc%5Etfw)
+**新加坡方面： （1）耶鲁-国大关于病毒“谣言”的调查**
 
+新加坡本地新闻报道，耶鲁-国大的相关研究团队在2020年3月至7月份之间， 对1237名新加坡居民进行调查，询问他们是否知晓五个与ccp 病毒有关的’谣言’，结果显示参与调查的人平均听过超过三个谣言，其中84.6%的人听过病毒是因为人类喝蝙蝠羹引起的。此外有11.4%的人相信喝水能够免疫，7.1%的人转发有关蝙蝠羹的传闻。 调查中还发现一个有趣的事情就是对于病毒由美国实验室流出的谣言，承认转发过这则谣言的受访者都不相信这是真的。
 
+新加坡的这条新闻，让我们看到中共在新加坡的媒体的渗透，尤其是华文的媒体。 很多揭露中共的真相不能通过主流媒体传递给公众。 新加坡很多的公众只能通过社交媒体来获取更多信息。我们爆料革命的媒体平台在东南亚承担着重要的使命，将会把更多有关中共和病毒的真相传递给新加坡以及东南亚的民众。
+![]()![](https://gnews.org/wp-content/uploads/2021/05/SG1.jpg)
+**新加坡方面: （2） 卫生当局仍然在评估中共国科兴疫苗**
 
-第2推，转推印度观看人数最多的英语新闻频道TIMES NOW的推文，中共国早在2015年就已经密谋将COVID-19武器化，美国有关报告也暗示了这一点，这是中国病毒学家闫博士不得不说出的，看似耸人听闻的CCP计划，并贴上闫博士刚刚接受TIMES NOW媒体采访时阐述这一情况的视频。这是每个人都必须回看的闫博士接受的访谈，当下最重要的是，对COVID-19病毒起源进行有意而邪恶地掩盖的，不仅有CCP和WHO，也有各国政府和广大媒体，尤其是美籍科学家，闫博士称他们都是同伙，统称为“CCP科学家”。
+5月11日，新加坡卫生部长回答了国会议员关于中共科兴疫苗评估进展和新加坡与中共疫苗采购合同是否继续有效的问题。 他说目前中共国的科兴疫苗仍然在评估当中。卫生部长解释说当时为了保证新加坡能够获得足够的疫苗，因此政府决定提前和这些疫苗厂商签订采购合同，这其中包括辉瑞，莫多纳 和科兴疫苗。 科兴疫苗是按照合同的安排将疫苗运送到新加坡，但是包括科兴疫苗在内的其他几个疫苗，仍然在卫生当局进行严谨的评估流程。未来如果有任何进展，也会随时给公众公布。
 
+小编在获得其他多个国家接种中共科兴疫苗的实际情况却是另外一番境况。南美洲智利全国1300万人口中逾三分之一接种疫苗（绝大部分为中共科兴疫苗）， 但又出现疫情再度爆发的情况。难道这就是为什么新加坡政府迟迟不敢批准科兴疫苗的原因吗？印尼是中共在一带一路中深度兰金黄的东南亚国家。目前印尼政府和中共的政治经济关系非常紧密，印尼卫生部长这个时候站出来为科兴疫苗背书可能会为科兴疫苗通过世卫组织的认证加分。 如果世卫都通过了对科兴疫苗的认证，新加坡政府如何还不批准科兴疫苗， 是不是就太不给中共面子了？
 
+**缅甸方面：民族团结政府被军政府认定为恐怖组织**
 
-> This is a "must listen to" interview of [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw)
-> Most important now is the deliberate & evil cover-up of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) 's origin, not just by the CCP & WHO, but by governments, media & especially U.S. scientists. She names the complicit. Label them all "CCP scientists" [https://t.co/rbfQQXwlmB](https://t.co/rbfQQXwlmB)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 11, 2021](https://twitter.com/LawrenceSellin/status/1391980438781140994?ref_src=twsrc%5Etfw)
+缅甸军政府通过国家广播电台，对外宣布缅甸民族团结政府在多地发动恐怖袭击，包括炸弹，纵火和杀戮行为，因此认定缅甸民族团结政府为恐怖组织。缅甸军政府的这一宣布也就意味着之前东盟领导人在雅加达与缅甸军方领导人达成的关于解决缅甸问题的五点共识已经失败。
 
+民族团结政府在上周宣布已经组建了一支人民防卫部队，以保护支持者免受政府军警的暴力攻击。这一举动也代表反军方的民族团结政府放弃之前的和平抗议示威，而是采取武力来对抗军警暴力镇压。这也预示着缅甸内部的冲突进一步升级。
 
+缅甸局势进一步恶化，持续引起国际社会关注。 5月11日，联合国人权机构呼吁东盟迅速就缅甸局势采取行动，要敦促缅甸军政府遵守之前达成的五点共识，并且要追究军方违背承诺的责任。坦白地说，小编认为人权组织的发言不会有任何作用。 缅甸的问题其实就是中共的问题， 文贵先生之前直播已经说过多次，中共就是缅甸军政府背后的支持者，只有将中共的问题解决了，缅甸的问题才能彻底解决。
 
-第3推，这是一个有“CCP科学家”嫌疑的初步名单，他们要么助力开发了COVID-19病毒，要么帮助掩盖了其起源的真相，调查已经开始，欢迎添加与此有关的不同线索，并贴上这些疑似“CCP科学家”的照片集，他们是：Antony Fauci、Peter Daszak、Trevor  Bedford、Kristian Anderson 、Ralph Baric、Ian Lipkin、Stanley Perlman、Aravinda Chakravarti、Rita Colwell、Linda Saif、Marion Koopmans、Fang Li、Linfa Wang、Edward Holmes和Malik Peiris。（Ian Lipkin、Marion Koopmans和Edward Holmes真容浮出水面）
+**区域方面：东南亚多国疫情出现第三波 **
+![]()![](https://gnews.org/wp-content/uploads/2021/05/3rd-3.jpeg)
+进入4月份东南亚的疫情随着印度疫情的失控也迅速恶化。泰国自4月份出现又一波疫情后，已经有超过500名医护人员确诊中共病毒。 5月9日当天泰国新增2101例确诊病例，新增17名死亡病例。 有最新的民调显示，泰国超过80%的民众对该国目前所面临的疫情感到沮丧。
 
+马来西亚政府5月7日宣布开始第三次实施行动管制令。当天马来西亚新增确诊病例达到4498起，这是自今年2月份以来第一次单日新增病例超过4000起。 相关的医疗专家表示，若按照目前的情况发展，不久马来西亚当日确诊的病例就会超过1万起。 马来西亚的医院加护病房的床位已经爆满，非加护病房的床位也被用来放置呼吸辅助器。卫生总监诺希山下令即使不是冠病收治医院，也须准备接收更多冠病患者 随着马来西亚新增的病例不断增加，原定于5月25日至30日在马来西亚举办的马来西亚羽毛球公开赛也将展期举行。
 
+新加坡在4月底开始也陆续出现多例本地社区的新增病例，并且又继续向社区蔓延的风险。 因此新加坡政府上周开始收紧管控措施由原来相对宽松的phase 3 调为严格的phase 2政策。 将于本月26日开通的香港和新加坡之间泡泡游航线也将面临着再次延期的风险。
 
-> A preliminary list of suspected international "Chinese Communist Party scientists" who may have either helped in the development of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) or in the cover-up of its true origin. The investigation begins. Please add your suspects.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/ewtQ8WeTLw](https://t.co/ewtQ8WeTLw)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 11, 2021](https://twitter.com/LawrenceSellin/status/1392001303753150469?ref_src=twsrc%5Etfw)
+视线让我们再次回到印度。 上周日5月9日，印度卫生部发布通报，印度在过去24小时内新增4029例因ccp病毒而死亡的案例。 这是连续两日新增死亡病例超过4000起。 据路透社报道， 印度5月9日当天新增40万多起确诊ccp 病毒病例， 累计已经超过223万， 死亡病例累计超过24万。
 
+多个国家因为疫情不断往复，经济出现严重问题。 民众的日常生活受到严重影响。越是这个时候，民众更应该获得病毒真相。 本周开始闫博士接受了多家印度当地媒体的电视采访， 闫博士用她自己的学识和经历，告诉印度的观众，病毒是来自中共实验室的人造病毒，并不是来自自然。 中共将病毒释放出来，这个计划早在多年以前中共就已经设计了。希望闫博士采访能够唤醒更多的印度民众和政府。  小编认为解决疫情的根本方法就是向中共要解药，向中共追责。
 
+整理：雨人，真相
 
-第4推，转推“火来2号”战友的中英混合推：这是病毒研制网络的一小部分，并贴出CCP病毒科学家秦川、陈志伟(AMMS) 、袁国勇、马利克、谭文杰等人的照片，以及他们联合发表相关论文的关联图片。 来自“火来2号”的更多关于COVID-19的杰出侦探成果，它是在实验室制造的，现在我们需要明确认定涉案人员。（陈志伟真容浮出水面）
-
-
-
-> More excellent [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective work by [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw)
-> It was made in a laboratory. We now need to specifically identify those involved.
->  [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/Ql62glhGQz](https://t.co/Ql62glhGQz)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 11, 2021](https://twitter.com/LawrenceSellin/status/1392005186152013825?ref_src=twsrc%5Etfw)
-
-
-
-第5推，转推“Honey Badger”战友的推文：早在2012年，徐德忠就有PPT介绍“当代基因武器”之理论，这些PPT是做什么用的？2012年出席的人员有哪些？他们正在准备什么项目？并贴出当时介绍“当代基因武器”的PPT页面截图。一个来自COVID-19侦探“Honey Badger”关于CCP-PLA生物战计划的爆炸性披露。（徐德忠线索浮出水面）
-
-
-
-> An explosive revelation regarding the Chinese Communist Party – People's Liberation Army's biowarfare program uncovered by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@baobaoxiaoliao](https://twitter.com/baobaoxiaoliao?ref_src=twsrc%5Etfw)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusIndia](https://twitter.com/hashtag/CoronavirusIndia?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/mTiDLBNN2m](https://t.co/mTiDLBNN2m)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 11, 2021](https://twitter.com/LawrenceSellin/status/1392007273552220162?ref_src=twsrc%5Etfw)
-
-
-
-第6推是一个中文推：加入塞林上校的COVID-19侦探部队，为自由的中国而战，消灭中国共产党，并贴上自己前不久曾经贴出的一张，4位美国军人在新中国联邦国旗下的图片，4位美国军人是：二战时期的史迪威、陈纳德和杜利特尔3为将军，以及塞林大校自己。
-
-
-
-> 加入Colonel Sellin's COVID-19侦探部队。 为自由的中国而战。 消灭中国共产党。 [pic.twitter.com/RgHZ6oBmZ7](https://t.co/RgHZ6oBmZ7)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 11, 2021](https://twitter.com/LawrenceSellin/status/1392033086922166273?ref_src=twsrc%5Etfw)
-
-
-
-第7推，转发Joe Hoft今天刚刚发表在Gateway Pundit上的文章“独家报道：中共军方对美国病毒研究的广泛渗透”。令人震惊的报道：长春PLA军事兽医研究所的金宁一将军，成功渗透到美国国防部投资的一个关键的P4实验室。
-
-
-
-> SHOCK REPORT: General Ningyi Jin of the PLA Military Veterinary Research Institute, Changchun has successfully infiltrated a critical U.S. Department of Defense-funded virus research center with a biosafety level 4 containment facility.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/vGSSQxbgKO](https://t.co/vGSSQxbgKO)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 11, 2021](https://twitter.com/LawrenceSellin/status/1392132721762349058?ref_src=twsrc%5Etfw)
-
-
-
-第8推，转推“火来2号”战友的推文：各位，这是一个严肃的问题，同时@“德意志之鹰”、“MyWay”和“Zion, a Deplorable老百姓”3位战友，并将美国NIH总监Francis S. Collins在2015年6月25日，发推“很高兴与中国医学科学院(CAMS)免疫治疗中心主任曹雪涛商讨在NIH 与CAMS之间进行多方面合作”的截图，截图上有他们两人的合影，同时将曹雪涛穿着少将军装的工作照也贴出来了。COVID-19侦探“火来2号”呈现了，NIH现任总监Francis S. Collins及其好友Antony Fauci都有自己在PLA的朋友。（Francis S. Collins和曹雪涛真容浮出水面）
-
-
-
-> As [#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) shows, Francis Collins, Director of the National Institutes of Health and good friend of Anthony Fauci, also has his own friends in the People's Liberation Army.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/66foDFbhF0](https://t.co/66foDFbhF0)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 11, 2021](https://twitter.com/LawrenceSellin/status/1392190637584289799?ref_src=twsrc%5Etfw)
-
-
-
-从时间轴来看，CCP-PLA-AMMS的COVID-19生物战计划之概念成形、密谋策划、规划分工、实验执行，以及如何按部就班地渗透、拉拢、绑架美国，以加入此计划的脉络逐渐清晰起来：早在2012年，徐德忠和李峰主编的«非典非自然起源和人制人新种病毒基因武器»一书为“当代基因武器”奠定理论基础；2015年，中共就已经密谋如何将COVID-19武器化，当年6月25日，美国NIH时任总监Francis S. Collins与中国医学科学院(CAMS)免疫治疗中心主任曹雪涛少将，就如何在NIH 与CAMS之间进行多方面合作进行商讨；2016年，COVID-19生物战计划的关键项目，谭文杰挂帅的2016YFD0500300正式立项，金宁一、管轶和Malik Peiris等一众中共国乃至全世界顶级病毒学家，均有意无意、直接间接地参与了此项目，闫博士称他们都是同伙，统称为“CCP科学家”。
-
-CCP-PLA对世界尤其是美国各界的渗透触目惊心、惨不忍睹，涵盖各国政府、军方、国会、大学、科研机构和媒体等各行各业，尤其是美籍科学家。美国这个科学界的灯塔，在CCP的BGY和3F手段下尊严顿失、威信扫地，他们要么助力CCP开发了COVID-19病毒，要么帮助CCP掩盖了其起源的真相。其中尤为令人震惊的是，美国国防部投资的一个关键的P4实验室(UTMB)，已经被PLA军事兽医研究所的金宁一将军及其团队彻底渗透，此时此刻还正在紧锣密鼓地与CCP-PLA-AMMS在病毒研究上合作！
-
-痛定思痛，当下最重要的事情是，必须尽快明确认定CCP之COVID-19生物战的涉案人员，为这个史无前例的惊天大案的收网结案和国际审判做准备，因此塞林博士以军人上校的身份再次向全世界发出英雄帖，征募广大战友成军COVID-19侦探部队，消灭CCP，拯救全世界！
-
-校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-+1
+0
