@@ -1,41 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】新概念诞生：白宫“首席制造官”
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1232557/)
+## 以色列因骚乱在洛德市实行紧急状态
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1232817/)
 
-**作者：纽约香草山健身部****童谣**
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
+编辑上传 水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12143056/I-9.jpg)israelhayo,.com
+05月12日，由于大规模的骚乱，以色列洛德市已经宣布进入紧急状态（state of emergency）。这是总理本雅明·内塔尼亚胡（Benjamin Netanyahu）推特上宣布的。
 
+“我们立即宣布洛德进入紧急状态。来自朱迪亚和萨马里亚的边境营将抵达。”总理在信息中说。
 
+此外，内塔尼亚胡还呼吁地方当局恢复洛德以及全国各地的和平与秩序。
 
-从川普政府开始，美国经济与中共脱钩的重点，一部分就在于全面产业链的撤回。参议院委员会领导人已经就5年内为科学研究起草了1,110亿美元的折衷法案。据路透社报道，法案中包括任命一名白宫首席制造官，以应对来自中共国的日益激烈的竞争压力。
+早些时候，洛德市市长亚尔·雷维沃（Yair Revivo）说，由于动乱，当局已经完全失去了对该市的控制。据市长说，5月11日晚，洛德的犹太人和阿拉伯人之间爆发了冲突。“所有的以色列人都应该知道，这是一个完全失去控制的过程。这是不可想象的。犹太教堂在燃烧，数百辆汽车被放火烧毁。数百名阿拉伯暴徒在街上游荡。每分钟都有一辆汽车、一座犹太教堂或一所学校着火。我们的新市政厅被人闯入并放火烧毁。洛德已经爆发了一场内战。他要求内塔尼亚胡在该市部署以色列国防军部队，实行宵禁并宣布紧急状态。”市长向总理报告说。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12131507/63d1a88d1d19fbd261a5b800ea15de89.png)
+5月初，当地居民在东耶路撒冷与警察发生冲突。冲突的原因是以色列法院下令开始将阿拉伯家庭从城市的这一部分驱逐出去，这部分地区在法律上属于巴勒斯坦。巴勒斯坦人和以色列警察之间长达一周的冲突造成了近300人的伤亡。
 
-该法案一旦通过，参议院确认的首席制造官就会在总统的执行办公室任职，并将领导一个新的制造和工业创新政策办公室。同时作为美国总统的贴身幕僚人员，会直接对总统负责，并向总统汇报。
+作为对以色列当局行动的回应，哈马斯武装分子开始炮击以色列领土。5月11日晚，该国国防部报告说发射了200枚火箭弹，其中一些被防空系统击落。以色列对加沙地带的哈马斯目标发动了大规模打击。
 
-可见，不管是全球气候问题中的工业新能源转型，还是疫情纾困法案中的基础设施更迭，都离不开“美国制造业”这个话题。这里参议院拟设的首席制造官职位，会直接负责拜登新政府重推政策的表现和效果。而该职位的产生，也是拜登在疫情压力、中共威胁压力下，将重担进行转移的一种方式。
+参考链接：
 
-素材来源：
-
-https://cn.reuters.com/article/us-senate-chief-manufacturing-post-0508-idCNKBS2CP009
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://www.rbc.ru/rbcfreenews/609b18fa9a794761d6f35d09](https://www.rbc.ru/rbcfreenews/609b18fa9a794761d6f35d09)
 
 0
