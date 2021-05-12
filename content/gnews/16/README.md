@@ -1,24 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 特斯拉叫停了上海土地收购
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1225639/)
+## 世卫准入问题上台湾谴责中共“无耻的谎言”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1226152/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑上传  水星
-![]()![](https://cdn.flipboard.com/caixin.com/a376857ec6ae6da9d4de6760de6efe6ac6be45ac/original.jpg)flipboard.com
-路透社5月11日报道，据知情人士透露，由于中美关系紧张带来的不确定性，美国电动汽车制造商特斯拉(Tesla Inc .)已停止在上海购买土地，放弃扩大其工厂规模成为全球出口中心的计划。
+编辑上传   水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/05/T.jpg)
+路透社5月11日报道，在北京阻止台湾加入世界卫生组织(WHO)的不断升级的争端中，台湾外交部长批评了中共“无耻的谎言”，称中共无视台湾人民利益。
 
-在美国前总统川普 (Donald Trump)任期内对中共国进口电动汽车征收25%关税的基础上，特斯拉现在打算限制中共国产量在其全球产量中的比例。
+美国和七国集团(G7)呼吁中共宣称拥有主权但民主统治的台湾加入世界卫生组织的决策机构，并参加将于5月24日召开的世界卫生大会。
 
-消息人士对路透社表示，特斯拉此前曾考虑扩大在中共国生产的入门级Model 3的出口产量，向包括美国在内的更多市场出口，这一计划此前从未被报道过。
+由于中共的反对，台湾被排除在世界卫生组织(WHO)等多数全球组织之外。
 
-周四早些时候，特斯拉的股价一度下跌5.3%。中共国乘用车协会(China Passenger Car Association)的数据显示，4月份特斯拉在中共国和海外售出了25,845辆中共国产汽车，低于3月份的35,478辆。特斯拉上海工厂的设计目标是每年生产50万辆汽车，Model 3和Model Y的年产能总计为45万辆。
+中共外交部5月10日表示，已经为台湾参与全球卫生事务做出了“适当安排”，没有人比中共政府更关心台湾人民。
 
-3月，特斯拉没有竞标这家工厂对面的一块土地，因为它不再打算大幅提高在中共国的产能，至少目前是这样。三位不愿具名的知情人士表示，因为讨论是私下进行的。特斯拉在给路透社的一份声明中表示，其上海工厂正在“按计划发展”。
+台湾外交部长吴钊燮在推特指责中共“无耻的谎言!这只能说明中共不会说真话。”
+
+“在北京对新疆、西藏和香港所做的事情之后，没有一个理智的人会相信它能满足台湾的卫生需求或其他需求。”吴表示，中共不能代表台湾说话，因为它从来没有统治过台湾，只有台湾的民主选举政府才能代表台湾人民。
+
+世卫组织首席法务官史蒂夫·所罗门5月10日表示，世卫组织与台湾技术专家合作应对中共病毒，但是否邀请台湾参加世卫组织会议取决于成员国的决议。
 
 参考链接：
-[https://www.reuters.com/business/autos-transportation/exclusive-tesla-puts-brake-shanghai-land-buy-us-china-tensions-weigh-sources-2021-05-11/](https://www.reuters.com/business/autos-transportation/exclusive-tesla-puts-brake-shanghai-land-buy-us-china-tensions-weigh-sources-2021-05-11/)
+
+[https://www.reuters.com/world/asia-pacific/taiwan-says-china-is-maliciously-blocking-it-who-2021-05-11/](https://www.reuters.com/world/asia-pacific/taiwan-says-china-is-maliciously-blocking-it-who-2021-05-11/)
 
 0
