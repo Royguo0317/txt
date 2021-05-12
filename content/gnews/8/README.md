@@ -1,46 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 麦卡锡呼吁：取消230条款对社交媒体巨头的诉讼豁免
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1219791/)
+## 5月11日美国政要和政评家反共推特精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1224712/)
 
-新闻来源：《布赖特巴特》| 作者：特伦·贝克 | 发布时间：2021年5月9日
-翻译/简评：随波逐流 | 校对：SilverSpurs7 | 审核：万人往 | Page：我是球大哥
-
-[!\[\]()!\[\](https://spark.adobe.com/page/wt8HNaovpe8JG/images/b3f9b97c-5c8c-4bed-a4d0-571d902221d4.jpg?asset_id=c708d7bf-f1d9-4a38-888b-1a20b2c3a2b2&amp;img_etag=%22b291ab6315883c4e40949cee41d2e5fc%22&amp;size=1024)](https://spark.adobe.com/page/wt8HNaovpe8JG/images/b3f9b97c-5c8c-4bed-a4d0-571d902221d4.jpg?asset_id=c708d7bf-f1d9-4a38-888b-1a20b2c3a2b2&amp;img_etag=%22b291ab6315883c4e40949cee41d2e5fc%22&amp;size=1024)
-
-长久以来，因为美国对科技的重视和投入，以及各种优惠政策的倾斜，使得像谷歌、脸书和推特之类的大型科技公司得以顺利蓬勃发展，并逐渐形成市场垄断之势。正因为它们的垄断地位和在世界范围的影响力，使它们有了更多与华盛顿核心圈政客打交道和非法政治勾兑的机会。它们以捐赠大量政治献金、巨额贿赂和利用其平台的号召力为手段，帮助政客们拿下选举，因此深受某些政客和各部门权威人士的喜爱，而他们的意见也影响着政府政策和法规的制定。
-
-长此以往，这些大科技公司就像是被家长过分溺爱的孩子，对政府提出各种要求，使政府制定出更多对自己有利的政策，甚至像《通信规范法》230条那样，可保护自己的法规。230条款赋予了大型社交媒体平台诉讼豁免权，在此保护下，像脸书、推特等公司可以大规模审查其平台用户，凭喜好选择使用其平台的人和他们说的话以及发布的内容。他们可以决定在一个平台上什么话可以说，并且选择谁可以留在自己的平台上，甚至连美国前总统川普都可以被脸书的独立审查委员会永久移出平台。
-
-不只是美国人，全世界使用这些平台的用户都对他们的这种做法感到不安，感觉自己完全没有隐私权和安全感。因，此众议院少数党领袖凯文·麦卡锡在星期日接受纽约市WABC770电台上午节目“猫圆桌会议”采访时，告诉主持人约翰·卡西米蒂斯，像脸书和推特等平台的权力不应超越《宪法》，在230条款的保护下，社交媒体巨头已经被赋予了太多权力，230条款必须取消。
-
-美国有一部电影叫《大到不能倒》，描述了华尔街一些大公司因贪婪无度而推出了许多不可能达成的冒险方案，造成了在金融危机中引发的全球金融崩溃的骨牌效应，许多关健公司面临破产倒闭，最后美联储和各国政府不得不采取措施，用国家资金救助，买单的却是全体纳税人，损害的是全体国民的利益。而像脸书等公司因为利益和中共这样的独裁政权互相勾结，它们进行“政治审查”，限制言论自由，压制真相，在全网大面积传播中共的虚假消息，推行共产主义理念和社会主义政治模式，这种长期洗脑会使年轻人形成畸形的价值观和人生观，对下一代乃至未来几代人造成的思想毒害，以及对国家今后走向的影响，又岂是一个金融危机可比。
-
-这种由中共和大科技公司的经济寡头、各国的政治寡头所控制的跨国统治集团，不仅帮助中共掩盖“病毒战”真相，还为其犯罪行为辩护，使全世界不明真相的人深受其害而不自知，至今已夺走了多少无辜的生命？中共和脸书独立审查委员会的索罗斯以及来自世界不同国家的多名左翼成员，秘密在美煽动暴乱、发动黑命贵革命、干涉选举，正是他们的助纣为虐使得中共的各类“超限战”得以顺利进行。一定要取消230条款对这些社交媒体巨头的特殊保护，让它们为自己非法的“政治审查”行为付出法律代价，才能让它们有所顾忌，不再敢胡作非为。
-
-**原文翻译：**
-
-## 麦卡锡：“脸书和推特的权力不应超越宪法”
-
-在周日接受纽约市WABC 770AM电台访谈节目“猫圆桌会议”的过程中，众议院少数党领袖凯文·麦卡锡（Kevin McCarthy，共和党-加利福尼亚）继续推动取消《通信规范法》第230条所规定的，对社交媒体巨头的特殊保护。
-
-麦卡锡指出，像脸书和推特等平台的权力“不应超越宪法”。他告诉主持人约翰·卡西米蒂斯（John Catsimatidis），在230条款的保护下，社交媒体巨头已经“被赋予了太多权力”，第230条款“必须停止”。
-
-麦卡锡强调：“脸书和推特的权力不应超越宪法。而且他们所做的事情应该已经给在这里的每个人一个信号，就是他们（已经被）授予了太大的权力，以至于他们认为自己可以控制别人所说的话。如果是这种情况，那么他们不应被第230条赋予其豁免权保护而免于起诉。如果他们想要挑选一个平台上人们可以说的话，并且选择谁可以留在自己的平台上——移除美国前总统——第230条应该被取消。”
-
-他继续说道：“如果你拥有一个谷歌之类的垄断企业，那么任何人到网上搜索，90% 的人都会流向谷歌——他们控制着看到的内容和人们说的话——而他们拒绝像《纽约邮报》那样的文章被张贴时，是因为他们不喜欢文章中所说的内容……这将使每个美国人感到不安，无论你信奉哪个政党。如果你相信这部宪法，这种情况就必须被停止。”
-
-[原文链接](https://www.breitbart.com/clips/2021/05/09/mccarthy-facebook-and-twitter-are-not-bigger-than-the-constitution/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+霍利参议员新闻办公室： 霍利参议员关于禁止美国政府设备上使用TikTok的法案——由卢比奥、瑞克·斯科特、汤姆·科顿联署——将于明天在国土安全和政府事务委员会提交投票。 霍利的立法在早前的国会中，获得参议院一致通过。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/wt8HNaovpe8JG/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/wt8HNaovpe8JG/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+> Senator Hawley's bill banning TikTok on U.S. government devices — cosponsored by [@marcorubio](https://twitter.com/marcorubio?ref_src=twsrc%5Etfw), [@SenRickScott](https://twitter.com/SenRickScott?ref_src=twsrc%5Etfw), & [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) — comes up for a vote in HSGAC tomorrow.
+> 
+> Hawley's legislation passed the Senate unanimously in the previous Congress. [https://t.co/e2NMj33K0P](https://t.co/e2NMj33K0P)
+> — Senator Hawley Press Office (@SenHawleyPress) [May 11, 2021](https://twitter.com/SenHawleyPress/status/1392127645521952769?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可·卢比奥： 关于 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) ，我们没有时间来签署一个象征性的法案 在为时太晚之前，我们现在必须采取全面、果断和迅速的行动。 【附卢比奥参议员关于应对中共威胁的演讲视频】
+
+
+
+> We don’t have time for a symbolic bill on [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)
+> 
+> We need to act comprehensively, decisively and swiftly now before it is too late[pic.twitter.com/zc2gOa8AxJ](https://t.co/zc2gOa8AxJ)
+> — Marco Rubio (@marcorubio) [May 11, 2021](https://twitter.com/marcorubio/status/1392229351916195841?ref_src=twsrc%5Etfw)
+
+
+
+参议员兰德·保罗： “美国政府已评估武毒所正在以某种形式进行功能增强研究，记者乔什·罗金已于三月在政治报Politico中指出。基因编辑专家杰米·梅茨也注意到武毒所进行了功能增强研究。 【附“国际观察”报道：兰德·保罗敦促福奇放弃功能增强研究，并指出可能发生的新冠病毒实验室泄漏】
+
+
+
+> "The U.S. gov has assessed that the WIV was conducting gain-of-function research in some form reporter Josh Rogin noted in Politico in March. Jamie Metzl, an expert on gene editing…has also noted that the WIV performed gain-of-function…"[https://t.co/vykP5nHSqJ](https://t.co/vykP5nHSqJ)
+> — Senator Rand Paul (@RandPaul) [May 11, 2021](https://twitter.com/RandPaul/status/1392158526387200004?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·加拉格尔 拜登政府有能力立即对围绕实验室泄漏假说的所有情报进行解密。他们需要这样做，以便我们深入了解并确保再也不会发生这种情况。 【附迈克议员接受福克斯塔克节目采访视频称：武毒所在大流行前曾进行蝙蝠病毒实验，福奇博士的部门帮助该所的危险实验，国立研究所则长期资助了他们】
+
+
+
+> The Biden Administration has the ability to immediately declassify all intelligence surrounding the lab leak hypothesis. They need to do so we can get to the bottom of this and make sure it never happens again. [pic.twitter.com/LBC5INE7eR](https://t.co/LBC5INE7eR)
+> — Rep. Mike Gallagher (@RepGallagher) [May 11, 2021](https://twitter.com/RepGallagher/status/1392160865743482886?ref_src=twsrc%5Etfw)
+
+
+
+比尔·格茨（中国问题专家） 推特客服注意：推特何时才能中止 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的宣传和虚假信息？解决方案：封锁所有与政府相关联的中国帐户，直到北京提供与其社交媒体的对等访问权限。 【附美联社推文：美联社和[@OxDemTech](https://twitter.com/OxDemTech)发现，大量假账户转发了外交官和官方媒体的帖子，推动了中共国在推特上的崛起】
+
+
+
+> Attn: [@TwitterSupport](https://twitter.com/TwitterSupport?ref_src=twsrc%5Etfw) When will Twitter halt Chinese Communist Party propaganda and disinformation? Solution: Block all Chinese government-linked accounts until Beijing provides reciprocal access to its social media [https://t.co/z9XvzCCCGp](https://t.co/z9XvzCCCGp)
+> — Bill Gertz (@BillGertz) [May 11, 2021](https://twitter.com/BillGertz/status/1392170658709315586?ref_src=twsrc%5Etfw)
+
+
+
+章家敦（中国问题专家）： 美国的机制正被中共政权所压制。为了拯救我们的共和制度，我们必须立即与那个国家断绝一切联系，直到我们确认我们可以应付。 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click)
+
+
+
+> [#America](https://twitter.com/hashtag/America?src=hash&amp;ref_src=twsrc%5Etfw)’s institutions are being overwhelmed by [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s regime. To save our republic, we have to immediately cut the links with that country until we are sure we can manage. [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/5j4xiG1cwW](https://t.co/5j4xiG1cwW)
+> — Gordon G. Chang (@GordonGChang) [May 11, 2021](https://twitter.com/GordonGChang/status/1392120208362557442?ref_src=twsrc%5Etfw)
 
 
 

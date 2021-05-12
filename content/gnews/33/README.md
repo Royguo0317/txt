@@ -1,56 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [疫情下的西班牙]西班牙似乎进入了“无疫情时代”？——西班牙解除国家紧急状态后
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1203152/)
+## 【热点播报】怀俄明州禁止使用疫苗护照
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1221697/)
 
-- 翻译：gokuabuela
+作者：纽约香草山农场  四季
 
-
-**  *更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
-
-**西班牙2021年5月11日电/西喜社——**
-
-西班牙自5月9日起，开始解除因为疫情而实施了1年之久的国家紧急状态。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/11065848/unknown-20.png)
-
-卡斯蒂利亚-拉曼恰自治区的主席埃米利亚诺-加西亚-帕吉（Emiliano García-Page）今天在梵蒂冈受到了教皇方济各的接见。在教皇迎接西班牙代表团的画面中，可以看到他们都没有佩戴口罩，尽管他们握手亲切地问候对方。
-
-来自卡斯蒂利亚-拉曼恰的代表团还包括托莱多大主教和西班牙大主教弗朗西斯科-塞罗-查维斯，也参加了问候仪式。几天前，这位男爵对受到罗马主教的接见表示感谢–“这是我一生中最大的荣誉之一，”他说，并希望在移民或人权问题上，”我希望得到教皇更多关注”。这个画面充满了争议，因为在场的人没有一个人穿戴着防护装置–恰好是在西班牙解除国家紧急状态后的第一个工作日。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/11065943/unknown-1-2.png)
-
-5月8日，各地的年轻人就通过社交媒体相约在他们城市的广场上庆祝。5月9日0时，当紧急状态正式解除后，他们尖叫、跳跃、互相拥抱，互相泼酒。他们高呼着，”自由！”，”疫情结束了！”。
-
-在马德里，就在8日晚上11点前的几分钟，宵禁仍然有效，一条狭窄的鹅卵石街道上发生了混乱。一百多人跳着、唱着、举着酒瓶和酒杯，为 “自由 “干杯。
-
-在巴塞罗那，第一个没有宵禁的夜晚，以海滩上和广场上的啤酒杯、即兴的大型派对和超过6,5000人被驱逐出他们的游乐场而告终。晚上12点，第一声鞭炮响起，几分钟后，人们开始欢聚，手里拿着啤酒，下巴上戴着口罩，警察试图让人们尊重仍然有效的限制，但没有取得多大成功。
-
-**简评：**
-
-**西班牙的疫情结束了吗？让我们看看数据：**
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/11070107/unknown-2-2.png)
-
-**5月4日，日确诊的感染人数仍然有2450例。疫情并没有结束。**
-
-**现在出现的这种混乱，不能怪责民众的“不负责任的行动”， 而更多的是西班牙政党之间的一场“斗争”的结果。早在几周前，尽管各地区提出要求，而政府却拒绝延长国家紧急状态。现在西班牙各大区正在陆续进行地方选举，疫情就是打击政敌最好的武器。解除紧急状态后，限制的权力交给了大区，同时也把争执传递给了各自治区，无论是否支持宵禁，都是被对手攻击的理由。而许多党派的领导人则已准备好把矛头指向桑切斯政府，一旦疫情反复（肯定会反复），就指责桑切斯的失责，因为他解除了紧急状态而没有后续措施。**
-
-**如果我们站在战争的角度来看，西班牙的这种混乱就是中共设计的超限战希望达到的效果，搞乱你的社会，搞乱你的秩序，挑动政党内斗，最后中共来“浑水摸鱼”。**
-
-**西班牙如今的乱局，让我们管中窥豹，在其他的民主国家中共也是这种模式在运作，只是细节上有所差别。参与到爆料革命，就会认识到表象背后的实质。爆料革命要推进的就是，民主国家内不同的政治党派联合起来，共同灭共，才能真正把国家从混乱状态中解脱出来。**
-
-素材：gokuabuela；审核：Aries的星；校对：信心满满； 发稿 : 信心的选择
-
-新闻来源：[机密报](https://www.elconfidencial.com/espana/2021-05-10/papa-francisco-recibe-page-vaticano-ninguno-lleva-mascarilla_3072776/)|[ABC新闻](https://www.abc.es/sociedad/abci-caos-llega-noche-tras-negativa-gobierno-alargar-estado-alarma-202105100135_noticia.html)
-
-[西班牙巴塞罗那喜悦农场：疫情下的西班牙专栏](https://gnews.org/zh-hans/993776/)
-
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01210231/gnews-logo.jpeg)
 
 
 
+据INFOWARS网站报道，怀俄明州州长共和党人马克-戈登已经禁止了疫苗护照在该州实行。他发布了一项指令，指出任何人都不应该因为他们的疫苗接种情况而被拒绝进入任何地方或接受任何服务。戈登的指令鼓励怀俄明州的市、镇、县和私营企业提供充分的场所和服务，无论一个人的疫苗接种状况如何。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/11154621/1-3Screenshot-2021-05-11-153730-3.png)[Twitter截图](https://twitter.com/EpochTimes/status/1391874441160925191?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1391874441160925191%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.infowars.com%2Fposts%2Fvaccine-passports-banned-in-wyoming%2F)
+
+戈登的指令概述说：“疫苗护照计划有可能使一个不应该被政治化的决定政治化。它们会在这个需要团结一致抗击病毒、至关重要的时候，分裂我们的公民，并伤害那些在医学上无法接种疫苗的人”。他还呼吁，接种疫苗“是一个基于个人情况的个人选择”。
+
+怀俄明州加入了包括阿拉巴马州、明尼苏达州、南卡罗来纳州、阿肯色州、亚利桑那州、佛罗里达州、爱达荷州、蒙大拿州、德克萨斯州和南达科他州在内的其他州，这些州都已经通过立法或发布命令来阻止强制性疫苗接种或疫苗护照计划。
+
+美国宪法第一修正案于1791年12月15日获得通过，成为构成《权利法案》的十项修正案之一。第一修正案规定，政府不得制定规范宗教建制、禁止宗教自由活动，或限制言论自由、新闻自由、和平集会的权利或向政府请愿以伸冤的权利的法律。
+
+原文链接：
+
+[Vaccine Passports BANNED In Wyoming (infowars.com)](https://www.infowars.com/posts/vaccine-passports-banned-in-wyoming/)
 
 
-0
+
+编辑/校对/发稿：小鹿
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01211000/gnews-logo-3.jpeg)
+
+
+
++1
