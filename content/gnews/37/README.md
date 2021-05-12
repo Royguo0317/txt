@@ -1,26 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## News Express 苹果七家中国供应商疑涉新疆奴工产品
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1225076/)
+## News Express Miles郭在新媒体上说中共统计局的主要业务是卖数据
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1225509/)
+
+在几个小时前，Miles郭在新媒体GTV上就中共国统计局发表视频说，中共国的统计局的最大一项业务是向西方的媒体及研究机构，金融机构，贩卖中共国的经济，人口，等等相关的大数据，每年有巨额收入。
+
+另外还说中共国的DCEP（数字货币）测试了21次全部失败。
+
+参考链接：
+
+[https://gtv.org/getter/609a981537f7f73984ca8ce3](https://gtv.org/getter/609a981537f7f73984ca8ce3)
 
 整理撰稿：蓝精灵
 
-【大纪元2021年05月12日讯】（大纪元记者王祥编译报导）《信息报》（The Information）週一（5月10日）发表一份调查报告说，美国高科技公司苹果至少使用七家新疆涉奴工生产供应商，这些供应商有像监狱一样的工厂，甚至包括警卫塔
-
-报告中提到的7家供应商包括：连展科技（Advanced-Connectek）、康舒科技（AcBel Polytech）、鹏鼎控股（Avary Holding）、中南创发（CN Innovations）、立讯精工（Luxshare Precision Industry）、深圳得润电子（Shenzhen Deren Electronic Co）和苏州东山精密製造股份有限公司（Suzhou Dongshan Precision Manufacturing Co）。
-
-除苹果外，与这七家被确认参与强迫劳动计划的供应商合作的西方公司还包括：谷歌、三星、亚马逊、特斯拉、戴尔、联想、宝马、思科和惠普等等。
-
-报告说，这些公司声称，参与中共当局的扶贫项目，他们为苹果生产零部件、涂料，并提供组装服务。
-
-参考链接：
-[https://www.epochtimes.com/b5/21/5/11/n12940649.htm](https://www.epochtimes.com/b5/21/5/11/n12940649.htm)
-
-图片来源：[https://www.epochtimes.com](https://www.epochtimes.com/b5/21/5/11/n12940649.htm)
-
 校对发布：Penny
 
-*以上仅代表作者观点，不代表Gnews平台*
+\*以上仅代表作者观点，不代表Gnews平台\*
 
-0
++1

@@ -1,25 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## News Express 中共外交部：新华社驻美国记者已被迫于5月1日回国
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1226414/)
+## 【战友心声】风吹草动
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1226881/)
 
-2018年以来，美方无限期拖延甚至拒签20多名中共国记者的签证，将中共国驻美媒体注册为“外国代理人”、列为“外国使团”，去年3月驱逐60名中国驻美记者，还将所有中国驻美记者签证停留期削减至不超过90天。这意味着每三个月就得重新申请一次签证延期，而且每次还要交额外的490美元签证费。
+作者： 纽约香草山健身部 澄道
 
-新华社和人民网驻美国记者去年11月初提交的签证延期申请尚未获批，按照美方规定，他们自2月初起就被迫停止工作，其中新华社记者已被迫于5月1日回国。还有很多其他中方记者往往是好不容易等来了审批的签证延期，但已经必须立即再申请下一轮的签证申请。所以中共国驻美媒体记者在美国处于极大不确定状态
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
 
-参考链接：
 
-[https://news.sina.com.cn/o/2021-05-11/doc-ikmyaawc4730983.shtml](https://news.sina.com.cn/o/2021-05-11/doc-ikmyaawc4730983.shtml)
+![]()![](https://gnews.org/wp-content/uploads/2021/05/图片4-27.png)图片来源：123rf.com
+春风春雨
+润泽厚土 青青绿草
+秋风秋雨
+落叶归根 化泥参天
 
-图片来源：[http://enewstree.com/](http://enewstree.com/)
+小草大树
+指日可待
 
-新闻采编：Peter Wong
+线上集结 唉醒中国人
+揭露真相 让更多人知中共病毒
+不分墙内墙外
+灭共风起
 
-整理撰稿：蓝精灵
+线下出击 唤醒加国人
+派发折页 深入扩大社区影响力
+划灭共线路图
+揭真草动
 
-校对发布：Penny
+揭露真相常态化
+灭共惩贼两不误
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+＂风吹草动＂
+晓劲风
+＂行动不止＂
+知马力
+
+
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01143151/M5.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

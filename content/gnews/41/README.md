@@ -1,65 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月11日美国政要和政评家反共推特精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1224712/)
+## 浅谈喜币的无界化
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1225180/)
 
-霍利参议员新闻办公室： 霍利参议员关于禁止美国政府设备上使用TikTok的法案——由卢比奥、瑞克·斯科特、汤姆·科顿联署——将于明天在国土安全和政府事务委员会提交投票。 霍利的立法在早前的国会中，获得参议院一致通过。
+撰稿人：freeman
+![]()![](https://gnews.org/wp-content/uploads/2021/05/2021-05-12_Task3_cover.jpg)图片来自网络
+要理解无界化，我们得先明白什么是界。以目前人类的生活来区分，就是虚拟和实体，虚拟大致就是以网络为主的各种衍生产品和服务，例如网上商店、网上银行以及一些网上教育和信息服务；实体就是能接触到的现实世界，衣食住行等方方面面。之前的微信支付或者支付宝在国内很大程度上实现了虚拟与现实的连通，但在国际上差远了，因为这两家公司无论是背景、公司的结构还是代码的能力都不被发达国家所信任，并且金融服务涉及到各国的根本利益，就像郭先生说的各国政府控制了本国印钞权和定价权后，就可以对本国人民征不合理的税收，而且还合法。
 
+过去由于交通的不便和信息传输的限制，人类的社交及贸易是有局限性的。随着科技的发展，各国人民已经成为互相融合的共同体，但是我们毕竟生活在现实社会里，衣食住行都需要用到钱，也就是如果你没有基本的财富你不可能融入世界。但有了基本财富后你会发现手里的钱好像只能在本国使用，而且使用过程中还处处受限并被剪羊毛，手里的钱想随时在任意一个国家使用更是难上加难。对于没经历过这些的朋友可能还无法理解，未来你总会经历，到时你自然就懂。
 
+人类从最原始的易货贸易过渡到纸币，纸币从最初的黄金背书到石油背书，然后到了国家信用背书。但现在全世界都看到了各国无论什么原因都在超发货币，对人民的财富疯狂掠夺，并且各国政府凭借着所谓的合法性地位推出各种法案限制人们财富的自由（例如反洗钱法），其本质无非就是控制人们的财富，更严重的甚至是控制本国人民的财富无法自由的在世界上流动。因为一旦控制了人们的财富就控制了人们的言行举止，控制了言行举止也就控制了政权或者巩固了政权。财富的管制以及财富的泡沫化让全世界金融秩序处于崩溃的边缘，再加上中国共产党向世界释放了冠状病毒更加剧了世界金融走向崩溃，世界再一次走到了十字路口，只有加密货币这一条路了。前几年很多加密货币都在铺路，但他们如论是在信用、资金、代码能力、团队、实用性、时机的任何一方面都没有可能做成全世界接受的加密货币。
 
-> Senator Hawley's bill banning TikTok on U.S. government devices — cosponsored by [@marcorubio](https://twitter.com/marcorubio?ref_src=twsrc%5Etfw), [@SenRickScott](https://twitter.com/SenRickScott?ref_src=twsrc%5Etfw), & [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) — comes up for a vote in HSGAC tomorrow.
-> 
-> Hawley's legislation passed the Senate unanimously in the previous Congress. [https://t.co/e2NMj33K0P](https://t.co/e2NMj33K0P)
-> — Senator Hawley Press Office (@SenHawleyPress) [May 11, 2021](https://twitter.com/SenHawleyPress/status/1392127645521952769?ref_src=twsrc%5Etfw)
+喜币就在这时顺势而生：
 
-
-
-参议员马可·卢比奥： 关于 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) ，我们没有时间来签署一个象征性的法案 在为时太晚之前，我们现在必须采取全面、果断和迅速的行动。 【附卢比奥参议员关于应对中共威胁的演讲视频】
-
-
-
-> We don’t have time for a symbolic bill on [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)
-> 
-> We need to act comprehensively, decisively and swiftly now before it is too late[pic.twitter.com/zc2gOa8AxJ](https://t.co/zc2gOa8AxJ)
-> — Marco Rubio (@marcorubio) [May 11, 2021](https://twitter.com/marcorubio/status/1392229351916195841?ref_src=twsrc%5Etfw)
+- 信用——14亿中国人不会忘记爆料革命在消灭中国共产党的过程中所做的功绩。全世界人民不会忘记是爆料革命最早揭露了中国共产党对全世界的渗透，不会忘记爆料革命对香港的支持，更不会忘记是爆料革命最早向世界揭露了中国共产党向世界主动释放了冠状病毒
+- 资金——全世界最有钱的组织站在我们身后，并且有黄金作为储备
+- 代码能力——摩根的加密技术，全世界最安全的加密技术
+- 团队——无穷无尽的资金支撑着庞大团队保障喜币的安全和稳定
+- 实用性——喜币可以自由转换成各国货币，并且未来直接在喜联储手机app上就能完成转换，而且手续费极地，让人实现财富真正无国界。随着G系列的发展，喜币可以直接在社会的各个领域直接使用，达到使用无边界
+- 时机——全世界各国的经济都到了崩盘的边缘，全世界的财富都在寻找财富避险的港湾，仿佛全世界在燃烧自己点燃加密货币（喜币）
 
 
+G系列的各项服务的核心是延伸喜币的使用范围：
 
-参议员兰德·保罗： “美国政府已评估武毒所正在以某种形式进行功能增强研究，记者乔什·罗金已于三月在政治报Politico中指出。基因编辑专家杰米·梅茨也注意到武毒所进行了功能增强研究。 【附“国际观察”报道：兰德·保罗敦促福奇放弃功能增强研究，并指出可能发生的新冠病毒实验室泄漏】
-
-
-
-> "The U.S. gov has assessed that the WIV was conducting gain-of-function research in some form reporter Josh Rogin noted in Politico in March. Jamie Metzl, an expert on gene editing…has also noted that the WIV performed gain-of-function…"[https://t.co/vykP5nHSqJ](https://t.co/vykP5nHSqJ)
-> — Senator Rand Paul (@RandPaul) [May 11, 2021](https://twitter.com/RandPaul/status/1392158526387200004?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·加拉格尔 拜登政府有能力立即对围绕实验室泄漏假说的所有情报进行解密。他们需要这样做，以便我们深入了解并确保再也不会发生这种情况。 【附迈克议员接受福克斯塔克节目采访视频称：武毒所在大流行前曾进行蝙蝠病毒实验，福奇博士的部门帮助该所的危险实验，国立研究所则长期资助了他们】
+- GTV——未来全球最大视频社区，单单14亿人的中国市场就是全世界最大的商机，关联者必然接受喜币
+- G-Clubs——身份认证，连通所有G系列及线下各个实体（衣食住行），关联者必然接受喜币
+- G-Fashion——重新定义时尚，并拥有定价权。在定价权的加持下高端消费领域必然接受喜币
+- G-News——全球唯一情报交易和唯一让世界和中国互相看到真实情况的平台，使用者必须接受喜币
+- G-Mall——扩大版的亚马逊，包含了全世界绝大多数生产领域的上游和下游以及最多的客户，关联者必然接受喜币
+- G-Getome——扩大版的推特，而且是不需要向金钱低头的媒体，关联者必然接受喜币
+- G-Message——未来最安全的加密通讯软件，郭先生说过以色列准备把天天打仗使用的加密技术拿出来合作，那就不仅仅是过时的军用技术民用化，是实实在在的最顶尖军用技术直接运用到民用层面
 
 
+我简单画了张图，大家可以看下:
+![]()![](https://gnews.org/wp-content/uploads/2021/05/2021-05-12_Task3a.jpg)作者个人绘制
+（文章内容仅代表作者观点）
 
-> The Biden Administration has the ability to immediately declassify all intelligence surrounding the lab leak hypothesis. They need to do so we can get to the bottom of this and make sure it never happens again. [pic.twitter.com/LBC5INE7eR](https://t.co/LBC5INE7eR)
-> — Rep. Mike Gallagher (@RepGallagher) [May 11, 2021](https://twitter.com/RepGallagher/status/1392160865743482886?ref_src=twsrc%5Etfw)
+*审稿：**Rosa*
 
+*发稿：光耀华夏*
 
+* * *
 
-比尔·格茨（中国问题专家） 推特客服注意：推特何时才能中止 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的宣传和虚假信息？解决方案：封锁所有与政府相关联的中国帐户，直到北京提供与其社交媒体的对等访问权限。 【附美联社推文：美联社和[@OxDemTech](https://twitter.com/OxDemTech)发现，大量假账户转发了外交官和官方媒体的帖子，推动了中共国在推特上的崛起】
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-
-
-> Attn: [@TwitterSupport](https://twitter.com/TwitterSupport?ref_src=twsrc%5Etfw) When will Twitter halt Chinese Communist Party propaganda and disinformation? Solution: Block all Chinese government-linked accounts until Beijing provides reciprocal access to its social media [https://t.co/z9XvzCCCGp](https://t.co/z9XvzCCCGp)
-> — Bill Gertz (@BillGertz) [May 11, 2021](https://twitter.com/BillGertz/status/1392170658709315586?ref_src=twsrc%5Etfw)
-
-
-
-章家敦（中国问题专家）： 美国的机制正被中共政权所压制。为了拯救我们的共和制度，我们必须立即与那个国家断绝一切联系，直到我们确认我们可以应付。 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click)
-
-
-
-> [#America](https://twitter.com/hashtag/America?src=hash&amp;ref_src=twsrc%5Etfw)’s institutions are being overwhelmed by [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s regime. To save our republic, we have to immediately cut the links with that country until we are sure we can manage. [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/5j4xiG1cwW](https://t.co/5j4xiG1cwW)
-> — Gordon G. Chang (@GordonGChang) [May 11, 2021](https://twitter.com/GordonGChang/status/1392120208362557442?ref_src=twsrc%5Etfw)
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews.org/wp-content/uploads/2021/05/1-澳喜Logo-2.jpeg)
 
 
 0
