@@ -1,60 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## FACEBOOK监督委员会是中共统战的组织吗？
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1231824/)
+## 价值观记（1）
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1232036/)
 
-新闻来源：《国家脉动（TheNationalPulse）》| 作者：娜塔丽·温特斯（NatalieWinters）| 发布时间：2021年5月10日
-翻译/简评：随波逐流 | 校对/审核：万人往| Page：Daoiii
+作者：X-Wing飞得更高| 校对：仙女儿-文善| 审核：宁缺| Page：小六月
 
-[!\[\]()!\[\](https://spark.adobe.com/page/OYAvFD6LNpkEE/images/2c86e2dd-147c-4c57-b1ac-864e798b8c15.jpg?asset_id=0556ebba-b88a-4be5-bb4c-5dd58a2298ae&amp;img_etag=%222c4d60a31cbeabb8182d065e58633520%22&amp;size=2560)](https://spark.adobe.com/page/OYAvFD6LNpkEE/images/2c86e2dd-147c-4c57-b1ac-864e798b8c15.jpg?asset_id=0556ebba-b88a-4be5-bb4c-5dd58a2298ae&amp;img_etag=%222c4d60a31cbeabb8182d065e58633520%22&amp;size=1024)图片来源网络
+[!\[\]()!\[\](https://spark.adobe.com/page/UOaRtGLscZKRV/images/e088f783-9902-4f07-81f6-d4a772bd593a.png?asset_id=e6edabf2-c18e-4360-b6fd-eba9318a5091&amp;img_etag=%22647d1c28ade4aadb652879e958989b6f%22&amp;size=1024)](https://spark.adobe.com/page/UOaRtGLscZKRV/images/e088f783-9902-4f07-81f6-d4a772bd593a.png?asset_id=e6edabf2-c18e-4360-b6fd-eba9318a5091&amp;img_etag=%22647d1c28ade4aadb652879e958989b6f%22&amp;size=1024)
 
-**简评：**
+有没有注意到，在英国政治人物针对国际事务的发言中，时常听到他们提到一个词：Fundamental British Values——英国核心价值观。
 
-**作为中共国主要的影响力和宣传组织，统一战线在帮助中共夺取政权的过程中发挥了至关重要的作用。现在，统一战线又把工作重心转移到了国际上，主要职能就是寻求“选择并消除潜在的反对执政的中国共产党政策和权威的来源”，并胁迫美国领导人“采取行动或采取支持中共偏爱政策的立场”。这些年来，中国和平统一促进会、中国人民对外友好协会、美中交流基金会等中共有名的统战组织日益活跃在美中交往的各个层面，这已引起了美国政府经济与安全审查委员会的警觉。其中，中国人民对外友好协会已受到了美国政府的特别关注，美国国务院已将该组织描述为试图“直接且恶意地影响”美国各州和地方领导人。**
+英国前首相托尼·布莱尔（Tony Blair）曾讲过：“英国是一个多族群、多种族、多文化、多宗教、多信仰的国家，英国的历史和国情决定了我们必须珍视自由、宽容、开放、公正、公平、团结、权利义务相结合、重视家庭和社会群体等英国的核心价值观。”英国教育大臣尼基·摩根（Nicky Morgan）曾强调说，正是英国核心价值，使英国在上世纪和本世纪成为最伟大的国家之一。
 
-**今天中共的统一战线就是将不同国家、民族、政党、阶层和大科技公司的金融寡头们结合到一起，为了共同的目标、共同的利益而组成的跨国政治联盟，其中最大的受益者就是中共。为了拉拢美国各个领域的权威人士，他们以各种名义组织了美国和世界各地名人与中共政府和高层领导间的多次交流活动，丹麦前首相、Facebook监督委员会联席主席赫勒·托宁-施密特就因参加了中国人民对外友好协会的活动而上了新闻头条。这就不难理解为什么Facebook的独立监督委员决定永久禁止令中共感到棘手的反对者、美国前总统川普了。**
+最近的G7七国集团外长会议，英美两国外长发言中也提到要“坚守价值”，并形成更广泛的联盟，应对那些破坏以规则(Rules)为基础的国际秩序的国家。我特意去搜索调查了一番，英国人说的“核心价值观”到底是什么。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/OYAvFD6LNpkEE/images/5ee27d18-c6ae-49f6-bd95-f081d271ae47.jpg?asset_id=febf028c-0cea-4010-aa02-b90be555867b&amp;img_etag=%22f6244a99cc741d0b3467a40417daa147%22&amp;size=1024)](https://spark.adobe.com/page/OYAvFD6LNpkEE/images/5ee27d18-c6ae-49f6-bd95-f081d271ae47.jpg?asset_id=febf028c-0cea-4010-aa02-b90be555867b&amp;img_etag=%22f6244a99cc741d0b3467a40417daa147%22&amp;size=1024)
+在英国，“民主、法治、个人自由，以及与持不同信仰和信念的人们（包括无信仰人士）之间的相互尊重和宽容”，是官方对“英国核心价值观”(Fundamental British Values)的一种相对规范的界定。
 
-**Facebook的监督委员会代表中共利益，对平台用户进行“政治审查”，删除反共言论和封禁账户，帮助中共掩盖“病毒战”真相，传递虚假信息蒙骗世人，其行为方式已经越来越有中共风格，事实上已经成为中共在美国大科技公司中安插的末端统战小组了。而在政府、媒体、学校及学术等其它领域，又隐藏了多少这样的中共海外统战小组为其服务呢？中共不灭，它的统战宣传工作一定会继续下去，全世界惟有联合灭共，打掉在这个看不见战线背后操控的黑手，人类才有真正安全的未来。**
+英国四大核心价值观：
 
-**原文翻译：**
+民主；法治；个人自由；尊重与包容。
 
-## Facebook监督委员会联席主席因参加中国共产党最高影响力小组会议而上了新闻头条
+画表也许更直观一些：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/OYAvFD6LNpkEE/images/fec4592c-f90f-4adc-ae8a-4e18fd826bc4.jpg?asset_id=b1536759-7839-4a1e-8e7c-77ffa40a228b&amp;img_etag=%22bfc327be6d8712e3fd7ab7c1285f0487%22&amp;size=2560)](https://spark.adobe.com/page/OYAvFD6LNpkEE/images/fec4592c-f90f-4adc-ae8a-4e18fd826bc4.jpg?asset_id=b1536759-7839-4a1e-8e7c-77ffa40a228b&amp;img_etag=%22bfc327be6d8712e3fd7ab7c1285f0487%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/UOaRtGLscZKRV/images/d2ba6eca-40ca-4176-99cd-127c20664324.png?asset_id=3e3ca29a-6d63-49fa-9532-3bd0889fa543&amp;img_etag=%22a145e93596317096b6c9365d6650d4c4%22&amp;size=3755)](https://spark.adobe.com/page/UOaRtGLscZKRV/images/d2ba6eca-40ca-4176-99cd-127c20664324.png?asset_id=3e3ca29a-6d63-49fa-9532-3bd0889fa543&amp;img_etag=%22a145e93596317096b6c9365d6650d4c4%22&amp;size=1024)
 
-**Facebook监督委员会联席主席赫勒·托宁-施密特（Helle Thorning-Schmidt）因参加了由中共一个高层影响力组织的“代表人物”主持的活动而上了新闻头条，该组织因努力“选择并消除”对中共政权的反对被美国政府标记。**
+英国的核心价值观只归结为以上4条，是不是相当简单通俗？
 
-董事会的四位联合主席之一是丹麦前首相赫勒·托宁-施密特，她与中国共产党统战部（UFWD）有联系。
+如果要广而推之，英国价值观至少还可以包括另外几条：“王在议会，王在法下”；私有财产保护；制度和规范；历史与家庭价值，以及以固执、坚忍与好打抱不平为特征的“英国性格”，等等。这里面“法治”(Rule of Law)是非常重要的基础，郭先生倡导的“法治基金”正是Rule of Law Foundation。没有法治，没有真正的依法治国，无疑是沙上建巴别塔。
 
-统一战线作为中共国主要的影响力和宣传组织，已引起了美国政府的经济与安全审查委员会的警觉。它寻求“选择并消除潜在的反对执政的中国共产党政策和权威的来源”，并胁迫美国领导人“采取行动或采取支持北京当局偏爱政策的立场”。
+可能不少人会觉得英国“爱管闲事”，但无论是911恐怖袭击，非洲瘟疫和自然灾害，叙利亚人道危机，红色高棉或卢旺达大屠杀，还是俄罗斯挑衅乌克兰，缅甸军事政变，香港民主自由大倒退，新疆种族灭绝等等，这些事情在英国人眼中绝非闲事。他们不会像国人那样“只扫自家门前雪，哪管他人瓦上霜”，也不会因为“非我族类”所以与我无关。坚持自由、公正、公义、民主、法治、规则这些基本核心价值观，是英国人血液里的DNA，也是让英国曾经伟大，今天在全球仍不可被忽视的重要原因。
 
-包含绝大多数与乔治·索罗斯（George Soros）有关的左翼激进分子的Facebook监督委员会最近支持该平台禁止前总统唐纳德·川普的决定——唐纳德·川普是中国共产党的强烈反对者。
+曾经辉煌的日不落帝国，鼎盛时期殖民面积达到3400万平方公里，约占世界陆地总面积的1/4，遍及包括南极洲在内的七大洲、四大洋，地球上的24个时区均有大英帝国的领土。贸易和殖民当然伴随着商船、剥削、炮舰、流血和奴役，但是非常奇怪的是，曾经被英国殖民的国家和地区，除了某国之外，几乎没有哪一个不对英国感恩戴德。
 
-施密特因参加由中国人民对外友好协会（CPAFFC）主办的活动而上了新闻头条，该协会由中共前最高领导人的女儿领导，她被视为统一战线的“代表人物”，而且该组织在职能上“显然是党国的一个分支机构”。此外，美国国务院已将该组织描述为试图“直接且恶意地影响”美国各州和地方领导人。
+[!\[\]()!\[\](https://spark.adobe.com/page/UOaRtGLscZKRV/images/c0aa9bd2-9401-4794-8bb2-f8506625762a.png?asset_id=efed1912-761c-489e-8169-32d973fd6eb1&amp;img_etag=%22db7ddd67d75b4f05cebd7a194e1727e6%22&amp;size=2560)](https://spark.adobe.com/page/UOaRtGLscZKRV/images/c0aa9bd2-9401-4794-8bb2-f8506625762a.png?asset_id=efed1912-761c-489e-8169-32d973fd6eb1&amp;img_etag=%22db7ddd67d75b4f05cebd7a194e1727e6%22&amp;size=1024)
 
-施密特在该组织2017年的“为了儿童更健康的未来”大会上发表了讲话，该活动是一个位于北京的对话活动，重点讨论了“联合国每个妇女每个儿童中国合作伙伴网络”（EWECCPN）的工作努力。除施密特外，中国人民对外友好协会副会长谢元也在会上发表了讲话。
+最典型如印度，被英国殖民两百多年，但英国用“以印治印”的殖民方式把印度变成一个国土统一、语言统一、体制完善的国家。印度从铁路公路网等完善的基础设施，到工业化、全民英语教育，到国民最喜爱的板球运动，以及留给印度进入西方市场的“入场券”，无不留下深刻的英国烙印。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/OYAvFD6LNpkEE/images/3c5f28c0-2738-471e-82f0-237c025b2a85.png?asset_id=5723ba7a-b2f3-4d5d-9b24-7bdce2e7db93&amp;img_etag=%22c122d5f4081f2c5f72ef2b075ffd8fe3%22&amp;size=2560)](https://spark.adobe.com/page/OYAvFD6LNpkEE/images/3c5f28c0-2738-471e-82f0-237c025b2a85.png?asset_id=5723ba7a-b2f3-4d5d-9b24-7bdce2e7db93&amp;img_etag=%22c122d5f4081f2c5f72ef2b075ffd8fe3%22&amp;size=1024)施密特在讲话
+“东方明珠”香港；非洲大陆最先进和文明的国家南非；新加坡的法治和城市治理富得流油的东南亚小国文莱的司法体系；塞浦路斯、塞舌尔、萨摩亚这样的人间天堂旅游胜地；国土面积和人口都很小而英式橄榄球水平居世界一流的斐济；沿用英国君主立宪制的加勒比海岛国巴哈马；以及美、加、澳、新这些发达国家、五眼联盟，这些国家的法律、政治、民主、教育体系体制的基础，全都是英国殖民留下的正面“遗产”。
 
-此外，中国人民对外友好协会呼吁与会者“积极支持由大会及其联合国赞助者设计的行动计划”。其中要求包括“鼓励和协调成员和其他中国力量在‘一带一路’战略框架下，参与更多的改善妇女和儿童健康的国际合作，形成更大的多层次平台，与世界分享中国的经验和成就，以及树立起中国尽责的伟大国家形象。”
+说到这里特别要提一下“英联邦”（Commonwealth of Nations）这一国际组织，成员大多为前英国殖民地（自愿加入英联邦的主权国家）或保护地（尚未实现完全自治的附属国），目前由53个独立主权国家或属地组成。英联邦国家的总人口23亿约占世界30%左右，领土面积约占世界20%，GDP占世界17%左右，可以说英联邦在极大程度上也是大英帝国的延续。
 
-《中国人民对外友好协会摘要》概述了当时担任救助儿童基金会首席执行官的施密特发表的讲话：
+[!\[\]()!\[\](https://spark.adobe.com/page/UOaRtGLscZKRV/images/ddf030ba-0c88-42ba-a4d4-f280f7b2a2be.png?asset_id=8685f839-cee5-475d-9474-143a699f6897&amp;img_etag=%227a04ab727ed6d6ad1a4f5f1ba64e210b%22&amp;size=2560)](https://spark.adobe.com/page/UOaRtGLscZKRV/images/ddf030ba-0c88-42ba-a4d4-f280f7b2a2be.png?asset_id=8685f839-cee5-475d-9474-143a699f6897&amp;img_etag=%227a04ab727ed6d6ad1a4f5f1ba64e210b%22&amp;size=1024)英联邦旗帜
 
-“首席执行官托宁-施密特在讲话中说，‘救助儿童会’承诺在2020年之前向全球捐赠20亿美元，用于健康和营养，以确保最贫困和最需要的妇女、儿童及其社区有平等的机会获得营养和卫生的优质服务。在中国，‘拯救儿童基金会’与相关政府和机构已经合作多年，将最先进的医疗技术带入中国，为促进妇女和儿童健康，特别是边远贫困地区和少数民族地区的妇女和儿童健康做出了积极贡献。‘救助儿童会’和‘中国人民对外友好协会’都是‘每个妇女每个儿童’（EWEC）高级别指导小组的成员。这两个组织将在儿童健康、降低儿童死亡率、帮助儿童获得平等的教育机会、儿童保护等方面进行更多合作。”
-[!\[\]()!\[\](https://spark.adobe.com/page/OYAvFD6LNpkEE/images/70230e73-55dd-4ddd-84ff-dd3fc959888c.png?asset_id=5e57abb1-a25d-4371-a4df-994d3c9539cd&amp;img_etag=%22c803b02d6c4d3689f4dc614550e08b3b%22&amp;size=2560)](https://spark.adobe.com/page/OYAvFD6LNpkEE/images/70230e73-55dd-4ddd-84ff-dd3fc959888c.png?asset_id=5e57abb1-a25d-4371-a4df-994d3c9539cd&amp;img_etag=%22c803b02d6c4d3689f4dc614550e08b3b%22&amp;size=1024)与会者
-🔗[原文链接](https://thenationalpulse.com/breaking/fb-oversight-board-chair-headlined-ccp-conference/)
+[!\[\]()!\[\](https://spark.adobe.com/page/UOaRtGLscZKRV/images/246767e1-b7d2-4028-b5a0-31ecc6976958.png?asset_id=af13da46-ad9b-4c78-a7c4-9f463b09a48d&amp;img_etag=%224603ce67c92657470743f42b532edfbe%22&amp;size=1024)](https://spark.adobe.com/page/UOaRtGLscZKRV/images/246767e1-b7d2-4028-b5a0-31ecc6976958.png?asset_id=af13da46-ad9b-4c78-a7c4-9f463b09a48d&amp;img_etag=%224603ce67c92657470743f42b532edfbe%22&amp;size=1024)英联邦会徽
+
+英联邦有共同的官方语言——英语，还拥有共同的价值观、政治传统、军事结构，至今仍有16个英联邦国家的国家元首是英国女王伊丽莎白二世。更重要的是，英联邦的共同原则是“民主、善政和人权”，以及对共同价值观的遵守，并主张在英联邦范围内实现自由贸易和自由投资。这里的“共同价值观”，归根到底还是英国的四个核心价值观！
+
+此外，被英国殖民的国家和地区，也明显优于被法国、西班牙殖民的国家或地区。有学者比较过，英国殖民地在教育方面保护本土语言和文化，着重培育有本地社区责任感的公民，并且给很多殖民地留下较适应本土习俗的普通法法系，使得这些地区能够更好地保护产权，从而为长期繁荣奠定了基础。
+
+笔者并非为殖民歌功颂德，只是希望引发读者一点思考。殖民和统治世界只靠武力是不够的，小小阿富汗就可以成为“大国坟场”，杀光当地人实现殖民也不可能。船坚炮利固然重要，而软实力、得民心、安民心才是长久之计。看大不列颠，曾经的殖民扩张甚至覆盖了全球各个角落，而今天的伙伴和朋友却依然遍及各大洋大洲。殖民地对英国非但没有仇恨，反而感激英国留下的宝贵物质和精神财富，例如法治、教育和基建等。对比中共国“一带一路”倡议对所在国的资源和经济的掠夺性压榨和欺骗胁迫，全世界几乎没有朋友的尴尬局面，是不是值得深思呢？
+
+CCP对真正的力量一无所知。自己国民以及其他国家民众心中真正认可和奉行的“价值观”，才是滴水穿石的软实力和真正可怕的长久力量，而不是靠所谓经济实力和武力，动辄掐别人脖子，欺凌弱小。被广为接受和欢迎的核心价值观，是一个国家最好的通行证，是真正的实力名片，也将决定这个国家为这个世界留下什么。看看英国为全世界留下的“遗产”，中共还好意思说英国不过是二流国家？先拿自己照照镜子罢！
+
+文章仅代表作者个人观点
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 - [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/OYAvFD6LNpkEE/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/OYAvFD6LNpkEE/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/UOaRtGLscZKRV/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/UOaRtGLscZKRV/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 
 
