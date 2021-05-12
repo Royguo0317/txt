@@ -1,65 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月11日美国政要和政评家反共推特精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1224712/)
+## 【鹰眼墙国】居民消费价格指数虽环比下降，“菜篮子”价格较疫情前显著上涨
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1225160/)
 
-霍利参议员新闻办公室： 霍利参议员关于禁止美国政府设备上使用TikTok的法案——由卢比奥、瑞克·斯科特、汤姆·科顿联署——将于明天在国土安全和政府事务委员会提交投票。 霍利的立法在早前的国会中，获得参议院一致通过。
+作者：香草山写作组  鹰(文言)
 
+中国新闻网5月11日报道，中共统计局公布4月份居民消费价格指数，与2020年同比下降0.9%；其中食品烟酒类价格环比下降1.5%，畜肉类价格下降6.1%。
 
+根据中工农业农村部数据，2021年5月10日的全国猪肉平均批发价格为30元/公斤，牛肉76.20元/公斤、羊肉75.75元/公斤。重点监测的28种蔬菜平均价格为4.34元/公斤。虽然猪肉、28种蔬菜价格相较于春节期间的45.39元/公斤、6.41元/公斤各有33.9%、32.3%的降幅，但牛羊肉的价格（依次为78.45元、76.73元/公斤）降幅不及3%。“农产品批发价格200指数”中其他类别价格均上涨，如重点监测6种水果价格从6.4涨至6.82元/公斤、鲫鱼18.03涨至22.49元/公斤（涨幅24.7%）、鲤鱼13.27涨至17.92元/公斤（涨幅35%）、白鲢鱼从9.01涨至10.62元/公斤（涨17.8%）。“菜篮子”价格并非全面下跌。
+![查看源图像]()![查看源图像](https://gnews.org/wp-content/uploads/2021/05/Screen-Shot-2021-05-11-at-10.42.26-PM.png)
+2019年5月10日“农产品批发价格200指数”中猪、牛、羊平均批发价格依次为20.59元/公斤、60.45元/公斤、60.27元/公斤。2020年第19周（5月4日—10日）对应价格为42.70、70.80、66.91元/公斤，虽然2021年5月猪肉价格有所回落，但较疫情前同期仍有45.7%的涨幅。牛羊肉价格比2020年同期涨幅达7.6%、13.2%，比2019年上涨26%和25.7%。
+![查看源图像]()![查看源图像](https://gnews.org/wp-content/uploads/2021/05/Screen-Shot-2021-05-11-at-10.42.31-PM.png)
+2020年由于CCP病毒爆发导致全球经济停滞，国内经济更几近崩溃，各大企业纷纷倒闭破产，失业人数激增。100万亿GDP数字的背后是以核酸检测试剂、疫苗为主的疫情经济。社会资金流通缓慢，各种赋税增加，人民工资并未显著上涨，但开支急剧加大。2020年更确切的是敛夺民财的一年。根据以上数据可见在2020年国内经济如此惨淡下，“菜篮子”价格并未下跌以“利民”，反而各自上涨。2021年5月菜篮子价格虽相较春节期间有所回落，但较疫情前涨幅仍近三成。人民收入被滥发货币导致“贬值”的前提下，食品开支依旧远超以往。
 
-> Senator Hawley's bill banning TikTok on U.S. government devices — cosponsored by [@marcorubio](https://twitter.com/marcorubio?ref_src=twsrc%5Etfw), [@SenRickScott](https://twitter.com/SenRickScott?ref_src=twsrc%5Etfw), & [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) — comes up for a vote in HSGAC tomorrow.
-> 
-> Hawley's legislation passed the Senate unanimously in the previous Congress. [https://t.co/e2NMj33K0P](https://t.co/e2NMj33K0P)
-> — Senator Hawley Press Office (@SenHawleyPress) [May 11, 2021](https://twitter.com/SenHawleyPress/status/1392127645521952769?ref_src=twsrc%5Etfw)
+综上，中共的“菜篮子”价格管控也是“温水煮青蛙”式的渐进涨价，根本无视经济内循环紧张和人民的收支不平衡现状。中共使用诸如“环比”、“同比”、“影响比重”等词汇也是为了蒙蔽和忽悠消费者，以转移其对价格上涨这一事实的关注度，借此达到“鱼肉百姓”的目的。
 
+新闻来源：
 
+统计局：4月居民消费价格同比上涨0.9% 环比下降0.3%http://www.chinanews.com/cj/2021/05-11/9474535.shtml
 
-参议员马可·卢比奥： 关于 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) ，我们没有时间来签署一个象征性的法案 在为时太晚之前，我们现在必须采取全面、果断和迅速的行动。 【附卢比奥参议员关于应对中共威胁的演讲视频】
+5月10日：“农产品批发价格200指数”比昨天上升0.07个点http://www.moa.gov.cn/xw/zxfb/201905/t20190510\_6301180.htm
 
+2020年第19周国内外农产品市场动态http://www.moa.gov.cn/ztzl/nybrl/rlxx/202005/t20200513\_6343755.htm
 
+5月10日：“农产品批发价格200指数”比上周六下降0.62个点http://www.moa.gov.cn/xw/zxfb/202105/t20210510\_6367467.htm
 
-> We don’t have time for a symbolic bill on [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)
-> 
-> We need to act comprehensively, decisively and swiftly now before it is too late[pic.twitter.com/zc2gOa8AxJ](https://t.co/zc2gOa8AxJ)
-> — Marco Rubio (@marcorubio) [May 11, 2021](https://twitter.com/marcorubio/status/1392229351916195841?ref_src=twsrc%5Etfw)
+1月23日:“农产品批发价格200指数”比昨天上升0.55个点http://www.moa.gov.cn/xw/zxfb/202001/t20200123\_6336479.htm
 
+2月10日：“农产品批发价格200指数”比昨天上升1.14个点http://www.moa.gov.cn/ztzl/wcbgclz/fxrb/202102/t20210210\_6361654.htm
 
+猪肉价格下跌连降12周 上市猪企新希望、正邦科技业绩重挫原因几何？https://finance.sina.com.cn/stock/s/2021-04-21/doc-ikmyaawc0843257.shtml
 
-参议员兰德·保罗： “美国政府已评估武毒所正在以某种形式进行功能增强研究，记者乔什·罗金已于三月在政治报Politico中指出。基因编辑专家杰米·梅茨也注意到武毒所进行了功能增强研究。 【附“国际观察”报道：兰德·保罗敦促福奇放弃功能增强研究，并指出可能发生的新冠病毒实验室泄漏】
+编辑/校对/发表:正义的小新
 
+**更多资讯，更多关注**
 
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-> "The U.S. gov has assessed that the WIV was conducting gain-of-function research in some form reporter Josh Rogin noted in Politico in March. Jamie Metzl, an expert on gene editing…has also noted that the WIV performed gain-of-function…"[https://t.co/vykP5nHSqJ](https://t.co/vykP5nHSqJ)
-> — Senator Rand Paul (@RandPaul) [May 11, 2021](https://twitter.com/RandPaul/status/1392158526387200004?ref_src=twsrc%5Etfw)
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-众议员迈克·加拉格尔 拜登政府有能力立即对围绕实验室泄漏假说的所有情报进行解密。他们需要这样做，以便我们深入了解并确保再也不会发生这种情况。 【附迈克议员接受福克斯塔克节目采访视频称：武毒所在大流行前曾进行蝙蝠病毒实验，福奇博士的部门帮助该所的危险实验，国立研究所则长期资助了他们】
-
-
-
-> The Biden Administration has the ability to immediately declassify all intelligence surrounding the lab leak hypothesis. They need to do so we can get to the bottom of this and make sure it never happens again. [pic.twitter.com/LBC5INE7eR](https://t.co/LBC5INE7eR)
-> — Rep. Mike Gallagher (@RepGallagher) [May 11, 2021](https://twitter.com/RepGallagher/status/1392160865743482886?ref_src=twsrc%5Etfw)
-
-
-
-比尔·格茨（中国问题专家） 推特客服注意：推特何时才能中止 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的宣传和虚假信息？解决方案：封锁所有与政府相关联的中国帐户，直到北京提供与其社交媒体的对等访问权限。 【附美联社推文：美联社和[@OxDemTech](https://twitter.com/OxDemTech)发现，大量假账户转发了外交官和官方媒体的帖子，推动了中共国在推特上的崛起】
-
-
-
-> Attn: [@TwitterSupport](https://twitter.com/TwitterSupport?ref_src=twsrc%5Etfw) When will Twitter halt Chinese Communist Party propaganda and disinformation? Solution: Block all Chinese government-linked accounts until Beijing provides reciprocal access to its social media [https://t.co/z9XvzCCCGp](https://t.co/z9XvzCCCGp)
-> — Bill Gertz (@BillGertz) [May 11, 2021](https://twitter.com/BillGertz/status/1392170658709315586?ref_src=twsrc%5Etfw)
-
-
-
-章家敦（中国问题专家）： 美国的机制正被中共政权所压制。为了拯救我们的共和制度，我们必须立即与那个国家断绝一切联系，直到我们确认我们可以应付。 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click)
-
-
-
-> [#America](https://twitter.com/hashtag/America?src=hash&amp;ref_src=twsrc%5Etfw)’s institutions are being overwhelmed by [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s regime. To save our republic, we have to immediately cut the links with that country until we are sure we can manage. [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/5j4xiG1cwW](https://t.co/5j4xiG1cwW)
-> — Gordon G. Chang (@GordonGChang) [May 11, 2021](https://twitter.com/GordonGChang/status/1392120208362557442?ref_src=twsrc%5Etfw)
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

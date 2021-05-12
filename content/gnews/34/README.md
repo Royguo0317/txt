@@ -1,20 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德简报】5/10/2021早：全球媒体曝光中共生物武器教科书《非典非自然起源》 中共外交部苍白回应
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1222764/)
+## News Express 紧跟钱的流向 追寻病毒真相
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1223687/)
 
-**编辑：华盛顿DC农场 路德简报项目组**
-![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/05/2021-5-10-scaled.jpg)
+整理撰稿：蓝精灵
 
+石正丽最近五年的科研经费来源，被放在互联网上， Covid-19的侦探们说，跟住这些钱的脚步，就会解开病毒真相。
 
-> 2021 年5月10日 路德时评 早
-> 
-> 1.全球媒体曝光中共生物武器教科书《非典非自然起源》 中共外交部苍白回应
-> 
-> 2.美国情报委员会：中共要让世界秩序混乱！ [pic.twitter.com/AHuNCgXjkw](https://t.co/AHuNCgXjkw)
-> — 平民爆料 (@WM18320321) [May 11, 2021](https://twitter.com/WM18320321/status/1392091226292301827?ref_src=twsrc%5Etfw)
+其中国家自然科学基金网站上，可以看到有高福的名字。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/11210359/%E7%9F%B3%E6%AD%A3%E4%B8%BD%E7%A0%94%E7%A9%B6%E7%BB%8F%E8%B4%B9%E4%B8%AD%E6%96%87-1.png)
 
+参考链接：
 
-+2
+[http://www.nsfc.gov.cn/publish/portal0/jgsz/03/](http://www.nsfc.gov.cn/publish/portal0/jgsz/03/)
+
+校对发布：Penny
+
+\*以上仅代表作者观点，不代表Gnews平台\*
+
++1

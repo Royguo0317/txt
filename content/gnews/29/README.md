@@ -1,20 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## News Express 紧跟钱的流向 追寻病毒真相
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1223687/)
+## News Express 生物战专家发论文 武汉的调查未解决基本关键问题
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1224376/)
 
 整理撰稿：蓝精灵
 
-石正丽最近五年的科研经费来源，被放在互联网上， Covid-19的侦探们说，跟住这些钱的脚步，就会解开病毒真相。
+微生物学家，中东化学和生物战专家丹尼·肖汉姆（Dany Shoham）博士是Begin-Sadat战略研究中心的高级研究员，IDF和以色列国防部的前高级情报分析师。5月11日发表科学论文报告，论证了世卫武汉调查报告的不科学，及提出了以下几个重点：
 
-其中国家自然科学基金网站上，可以看到有高福的名字。
+在宣布武汉首次爆发之前，WIV工人于2019年秋季患上了类似于SARS的疾病;
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/11210359/%E7%9F%B3%E6%AD%A3%E4%B8%BD%E7%A0%94%E7%A9%B6%E7%BB%8F%E8%B4%B9%E4%B8%AD%E6%96%87-1.png)
+随后在2019年12月之前在武汉市发生了COVID-19病例;
+
+一名声称为零号病人的WIV工人失踪；
+
+WIV蝙蝠病毒清单中重要数据库的消失；
+
+在WIV中存在一种蝙蝠冠状病毒，该冠状病毒是在2012年从患病的矿工中分离出来的（后来被改变了）；
+
+WIV中携带的冠状病毒意外泄漏引发了最初的COVID-19爆发。
+
+中国对这些关键问题的解释不力，所有这些问题都还没有完全解决。
+
+丹尼·肖汉姆（Dany Shoham）撰文写道：
+
+中国的武汉调查基本上是由世界卫生组织精心策划的一项调查，调查了除最可能的岩石以外的所有岩石。
 
 参考链接：
 
-[http://www.nsfc.gov.cn/publish/portal0/jgsz/03/](http://www.nsfc.gov.cn/publish/portal0/jgsz/03/)
+[https://besacenter.org/the-china-led-who-report-on-coronavirus-is-deeply-suspect/](https://besacenter.org/the-china-led-who-report-on-coronavirus-is-deeply-suspect/)
+
+图片来源：*Jernej Furman via Flickr CC*
 
 校对发布：Penny
 
