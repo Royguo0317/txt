@@ -1,22 +1,72 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年5月11日 秘翻快报 闫丽梦博士讲述中共生物超限战运作
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1231999/)
+## 【香草诗词汇】得胜的生命象什么？
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1232129/)
 
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12120210/IMAGE-2021-05-12-171856.jpg)](https://gtv.org/video/id=609b9f75db13300ca551a34d)
-**新闻总结：**
+作者：纽约香草山福音部 文一论道
 
-1.    中共共青团称 西方国家四个不自信
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
 
-2.    闫丽梦博士讲述中共生物超限战运作
 
-3.    欧盟27国与印度签历史性协议
 
-4.    福克斯报道关于中共病毒生物武器教材
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12120951/%E5%9B%BE%E7%89%8717-2.png)
 
-**By:秘翻快报组**
+基督里的生命如美酒
+虽然你不明白缘由
+喜乐常环绕在心头
+ 
+基督里的生命如溪流
+即使你不知道前途
+欢快伴随着轻柔
+ 
+基督里的生命如翱翔
+一旦你认识了真理
+重轭全脱落
+里外皆释放
 
-**GTV链接**:[https://gtv.org/video/id=609b9f75db13300ca551a34d](https://gtv.org/video/id=609b9f75db13300ca551a34d)
+基督里的生命如海洋
+恰似你融化入大爱
+小而无内
+大而无疆
+
+基督里的生命如冰释
+蒙蒙眬胧透皎洁
+洒洒脱脱溢尊芳
+ 
+基督里的生命如熔浆
+激荡涌流向前方
+凡靠近者染馨香
+ 
+基督里的生命是基督
+他本是生命的源头
+智慧照出创世光
+
+朋友，
+凡口渴的，都来，
+都可白白的
+畅饮生命之水
+
+在基督里，一切都更新了。
+
+（作者旧文新改）
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01143151/M5.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
