@@ -1,24 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 特斯拉叫停了上海土地收购
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1225639/)
+## 美亿万富翁德鲁肯米勒警告：美联储正在危及美元储备状态
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1229553/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+根据Zero Hedge作者 Tyler Durden于2021年5月11日发布的文章报道
 
-编辑上传  水星
-![]()![](https://cdn.flipboard.com/caixin.com/a376857ec6ae6da9d4de6760de6efe6ac6be45ac/original.jpg)flipboard.com
-路透社5月11日报道，据知情人士透露，由于中美关系紧张带来的不确定性，美国电动汽车制造商特斯拉(Tesla Inc .)已停止在上海购买土地，放弃扩大其工厂规模成为全球出口中心的计划。
+翻译整理：加拿大温哥圆成农场 木千
+![]()![](https://gnews.org/wp-content/uploads/2020/12/WX20201228-134452@2x.png)图片来源：网络
+由于美联储持续的慷慨解囊，亿万富翁斯坦·德鲁肯米勒（Stan Druckenmiller）今天上午在CNBC Squawk Box的直播采访中说：“当今货币和财政政策与经济大环境的不同步史无前例。” 尽管复苏速度创下纪录，但他依旧质疑美联储广泛干预经济的行为。
 
-在美国前总统川普 (Donald Trump)任期内对中共国进口电动汽车征收25%关税的基础上，特斯拉现在打算限制中共国产量在其全球产量中的比例。
+他警告说，“美联储的政策正在危及美元的储备地位”，他在早些时候的《华尔街日报》专栏中指出，“相比于以小数位之差错失通胀目标，在紧急情况过去后仍然保持紧急状态对美联储来说风险更高，是时候改变了。”
 
-消息人士对路透社表示，特斯拉此前曾考虑扩大在中共国生产的入门级Model 3的出口产量，向包括美国在内的更多市场出口，这一计划此前从未被报道过。
+“三分之二的救济金是在疫苗证明有效以及经济加速恢复后发出的，投机主义的政客们并没有让疫情白白浪费。特别是在特朗普政府之后，国会决定满足其一长串先前未满足的欲望。”
 
-周四早些时候，特斯拉的股价一度下跌5.3%。中共国乘用车协会(China Passenger Car Association)的数据显示，4月份特斯拉在中共国和海外售出了25,845辆中共国产汽车，低于3月份的35,478辆。特斯拉上海工厂的设计目标是每年生产50万辆汽车，Model 3和Model Y的年产能总计为45万辆。
+讽刺的是，美联储的独立性原本应该抵消这些政治异想天开。“美国的严重分歧也使央行的独立性至关重要。对社会不平等和全球变暖的抗议与美联储的核心使命相去甚远。”他警告，这些风险不再是假设的，因为美联储的政策导致金融市场过度放纵，处于狂热之中。“央行应该平衡而不是刺激资产价格。”资产泡沫和财政主导地位的长期风险远高于约束2022年经济增长将带来的短期风险。
 
-3月，特斯拉没有竞标这家工厂对面的一块土地，因为它不再打算大幅提高在中共国的产能，至少目前是这样。三位不愿具名的知情人士表示，因为讨论是私下进行的。特斯拉在给路透社的一份声明中表示，其上海工厂正在“按计划发展”。
+“如果他们想做这一切，并冒着我们的储备货币地位的风险，冒资产泡沫破裂的风险，那就去吧。但我认为我们至少应该就此进行对话。”德鲁肯米勒说，“如果我们要将债务货币化，并且将实现越来越多的支出，那么我便开始担心在15年内，我们将失去储备货币地位，以及所有连带积累的无法预估的利益。”可以明确的是，中央银行一直是人们对美元稳定缺乏信心的根源。
 
-参考链接：
-[https://www.reuters.com/business/autos-transportation/exclusive-tesla-puts-brake-shanghai-land-buy-us-china-tensions-weigh-sources-2021-05-11/](https://www.reuters.com/business/autos-transportation/exclusive-tesla-puts-brake-shanghai-land-buy-us-china-tensions-weigh-sources-2021-05-11/)
+最后，德鲁肯米勒似乎接受了加密货币作为可能的出路，他指出终极解决方案可能会是一种全新且未知的“总账系统”。储备货币必须满足某些标准，鲁肯米勒认为法定货币没有其他替代。他补充道，欧元是“灾难”而且“谁会信任中共国”。因此，他认为加密货币可能是唯一的解决方案。
 
-0
+完整采访请见原文
+
+[https://www.zerohedge.com/markets/were-raging-mania-druckenmiller-warns-fed-endangering-dollar-reserve-status](https://www.zerohedge.com/markets/were-raging-mania-druckenmiller-warns-fed-endangering-dollar-reserve-status)
+
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+
+编辑/发布：比卡丘
+
+20210512
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+
+
++5
