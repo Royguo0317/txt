@@ -1,35 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美亿万富翁德鲁肯米勒警告：美联储正在危及美元储备状态
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1229553/)
+## 与澳洲脱钩的代价初现：两家加工企业因不可抗力停止接单
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1230711/)
 
-根据Zero Hedge作者 Tyler Durden于2021年5月11日发布的文章报道
-
-翻译整理：加拿大温哥圆成农场 木千
-![]()![](https://gnews.org/wp-content/uploads/2020/12/WX20201228-134452@2x.png)图片来源：网络
-由于美联储持续的慷慨解囊，亿万富翁斯坦·德鲁肯米勒（Stan Druckenmiller）今天上午在CNBC Squawk Box的直播采访中说：“当今货币和财政政策与经济大环境的不同步史无前例。” 尽管复苏速度创下纪录，但他依旧质疑美联储广泛干预经济的行为。
-
-他警告说，“美联储的政策正在危及美元的储备地位”，他在早些时候的《华尔街日报》专栏中指出，“相比于以小数位之差错失通胀目标，在紧急情况过去后仍然保持紧急状态对美联储来说风险更高，是时候改变了。”
-
-“三分之二的救济金是在疫苗证明有效以及经济加速恢复后发出的，投机主义的政客们并没有让疫情白白浪费。特别是在特朗普政府之后，国会决定满足其一长串先前未满足的欲望。”
-
-讽刺的是，美联储的独立性原本应该抵消这些政治异想天开。“美国的严重分歧也使央行的独立性至关重要。对社会不平等和全球变暖的抗议与美联储的核心使命相去甚远。”他警告，这些风险不再是假设的，因为美联储的政策导致金融市场过度放纵，处于狂热之中。“央行应该平衡而不是刺激资产价格。”资产泡沫和财政主导地位的长期风险远高于约束2022年经济增长将带来的短期风险。
-
-“如果他们想做这一切，并冒着我们的储备货币地位的风险，冒资产泡沫破裂的风险，那就去吧。但我认为我们至少应该就此进行对话。”德鲁肯米勒说，“如果我们要将债务货币化，并且将实现越来越多的支出，那么我便开始担心在15年内，我们将失去储备货币地位，以及所有连带积累的无法预估的利益。”可以明确的是，中央银行一直是人们对美元稳定缺乏信心的根源。
-
-最后，德鲁肯米勒似乎接受了加密货币作为可能的出路，他指出终极解决方案可能会是一种全新且未知的“总账系统”。储备货币必须满足某些标准，鲁肯米勒认为法定货币没有其他替代。他补充道，欧元是“灾难”而且“谁会信任中共国”。因此，他认为加密货币可能是唯一的解决方案。
-
-完整采访请见原文
-
-[https://www.zerohedge.com/markets/were-raging-mania-druckenmiller-warns-fed-endangering-dollar-reserve-status](https://www.zerohedge.com/markets/were-raging-mania-druckenmiller-warns-fed-endangering-dollar-reserve-status)
-
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
-
-编辑/发布：比卡丘
-
-20210512
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+![]()![](https://gnews.org/wp-content/uploads/2021/05/封面-75.jpg)
+据[珊珊來遲@AILNG120](https://twitter.com/AILNG120)于[下午6:04 · 2021年5月12日](https://twitter.com/AILNG120/status/1392420368174911489)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文
 
 
-+5
+
+> 出來混總是要還的！ [pic.twitter.com/FOsCOmTkIw](https://t.co/FOsCOmTkIw)
+> — 珊珊來遲 (@AILNG120) [May 12, 2021](https://twitter.com/AILNG120/status/1392420368174911489?ref_src=twsrc%5Etfw)
+
+
+
+另据[老司机@h5LPyKL7TP6jjop](https://twitter.com/h5LPyKL7TP6jjop)于[下午6:37 · 2021年5月10日](https://twitter.com/h5LPyKL7TP6jjop/status/1391704057161605121)·[Twitter for iPad](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文
+
+
+
+> 澳洲铁矿的成本基本在14美元一吨左右，到岸价也就15-30美元一吨。
+> 今日市场价格市场5月10日消息，新加坡铁矿石指数期货主力合约日内涨10.13%，现报225.95美元/吨。
+> 中国经济制裁澳洲？别说龙虾，红酒，水果，就是包括煤矿在内全部都不及铁矿石涨价的零头！
+> 2020年10月价格才113美元一吨！
+> 哈哈哈😄😄😄
+> — 老司机 (@h5LPyKL7TP6jjop) [May 10, 2021](https://twitter.com/h5LPyKL7TP6jjop/status/1391704057161605121?ref_src=twsrc%5Etfw)
+
+
+
+［澳洲铁矿的成本基本在14美元一吨左右，到岸价也就15-30美元一吨。 今日市场价格市场5月10日消息，新加坡铁矿石指数期货主力合约日内涨10.13%，现报225.95美元/吨。 中国经济制裁澳洲？别说龙虾，红酒，水果，就是包括煤矿在内全部都不及铁矿石涨价的零头！ 2020年10月价格才113美元一吨！ 哈哈哈］
+
+我们不是经济专家，也不是外交专家，但是中共与澳大利亚脱钩和战狼外交四处点火的代价正在显现，结合[珊珊來遲@AILNG120](https://twitter.com/AILNG120)的推文分析，对于[珊珊來遲@AILNG120](https://twitter.com/AILNG120)推文中提到的广东现代铸造有限公司来说
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12090737/E1Le8MYVgAIrr_A.jpg)
+对于[珊珊來遲@AILNG120](https://twitter.com/AILNG120)推文中提到的中山市吸力王电器有限公司来说，
+![]()![](https://gnews.org/wp-content/uploads/2021/05/E1Le8MXVkAM_SI6.jpg)
+对于更多我们无法得知名字但也同样采取停产待产措施的中国加工企业来说，原材料的涨价、芯片的断供、美元的贬值以及全世界正在进行中的与中共国的脱钩，暂停生产和供货以及暂缓接单才是刚刚开始，这是我们每一个草根都不愿看到的一面，因为这意味着更多加工制造企业的破产倒闭，这意味着更多草根失去生计，何以解困，唯有灭共！
+
+（文章内容仅代表作者个人观点）
+
+0
