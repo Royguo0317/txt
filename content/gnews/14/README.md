@@ -1,90 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【老江观点】—“抄底摸顶”作不同颜色的马
-` Laojiang` [轉載自GNews](https://gnews.org/zh-hans/1222462/)
+## 5月11日美国政要和政评家反共推特精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1224712/)
 
-几乎所有的金融投机教科书，都对金融市场的“抄底摸顶”操作理念进行警告和批判，认为只有“顺势而为”的操作策略才是制胜宝典。 对此我很赞同，其实在个人投机交易过程中，我最最重视也是顺势交易，能够带来巨大收益的，也往往是顺势交易的操作，可以参考我此前多次直播对“神奇的红线”顺势交易的解读。
-
-几乎所有的操盘教科书对于“抄底摸顶” 的批判理由大致有以下几点依据：
-
-1. 由于惯性原理，尝试“抄底摸顶”能真正把握到行情拐点的几率小至又小；
-
-
-1. 由于假设的顶底往往没有极限价格参照，无法设置合理的止损防范风险；
-
-
-1. 抄底就像“伸手去接空中落下的刀子”，非常容易受伤。
-
-
-等等的谏言其实很有道理，但是我本人除了主要采用顺势操作的交易策略之外，也经常性的“抄底摸顶”，当然，是有严格而严密的操作纪律做保障的。
-
-以美元兑加元当前的走势为例，抄底的依据如下：
-
-1. 月线中，美元兑加元下跌到长线支撑2017年9月份的低点1.20615重要支撑位置；
-
-![]()![](https://gnews.org/wp-content/uploads/2021/05/Cad-M-7-2.png)
-1. 4小时图的波浪走势显示本阶段第五浪结束；
-
-
-1. 小时图指标严重底背离，下跌动能减弱；
-
-![]()![](https://gnews.org/wp-content/uploads/2021/05/Cad-H-4-4.png)
-1. 15分钟和5分钟微观走势图显示形成“W”底形态；
-
-![]()![](https://gnews.org/wp-content/uploads/2021/05/Cad-5-17.png)
-1. 1.20775的本阶段最低点可以清晰的作为止损参照点，即，根据“道氏理论”，跌破新低，应看作是弱势的延续；
-
-
-1. 如果本次抄底尝试失败（正如所有操盘交易指导书里所说，失败概率还是很大的），损失几百美元，在风险承受范围内，而一旦成功得手，潜在的风险报偿比合理；
-
-
-1. 如果本次尝试失败，在接下来的连续底背离中，将继续根据上述入场原则尝试把握新的抄底时机。
-
-
-总结一下：金融投机市场的交易，不管是顺势的趋势性交易，还是区间的顶底震荡交易，亦或比较冒险的抄底摸顶拐点预测交易，都有固定的原则和纪律做保障，真正的胜败取决于入场前制定的针对各种可能发生的状况的对策，以及能否严格的执行制定的作战计划。“抄底摸顶”入场交易必须严格执行的标准：
-
-1. 一定是接近于一个历史上重要的支撑和压力位置，从而很容易在此位置折返；
-
-
-1. 一定有指标的顶底背离，证明当前位置继续延续此前趋势已经阻力重重；
-
-
-1. 一定是清晰的波浪（波段）结尾末期；
-
-
-1. 一定是在更小的周期已经能够看到反转的形态或者K线组合；
-
-
-1. 一定严格的设定窄幅的止损，防止看错行情带来不愿面对的超额损失
-
-
-1. 一定集中精力关注细微的拐点变化，有时进场时机就是眨眼之间，一旦符合进场条件，敢于果断“扣动扳机”。
-
-
-对“抄底摸顶”操作策略可行的几点辩护：
-
-1. 顺势交易的原则，也是在趋势形成后的回调过程中寻找短周期的顶或底进场，和理论中抄底摸顶是一样的原则和入场依据；
-
-
-1. 平仓通常是判断一段趋势的结束或即将结束，实际也是在寻找行情的最佳反向拐点出场；
-
-
-1. 所列举的抄底摸顶入场的依据，同样被人工输入AI操盘计算机里，目前90%的二级市场交易是由计算机自动操作完成的，当顶底预先出现种种迹象的时候，计算机也将按照人工输入的操作代码进行自动平仓原趋势持仓单，进而极有推动行情反向运行形成拐点。
-
-
-以下是近期的几笔操作
-
-黄金日线图的“神奇红线”翻头向上，确立顺势交易方向，图中尝试两次超短线顺势做多，小幅盈利出场。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/11212005/gold-10.png)
-阿里巴巴股票突破了短期底部支撑，“神奇红线”继续向下，进场做空并设好止损持有中。
-![]()![](https://gnews.org/wp-content/uploads/2021/05/阿里.png)
-美元加元的“抄底摸顶”持仓单以及预设止损。
-![]()![](https://gnews.org/wp-content/uploads/2021/05/positions-1-11.png)
-这个世界，不会有任何一本书，或一个人，能教会我们如何赚钱或者成功，绝大多数人按照巴菲特的权威理念去炒股，按照各种“炒股秘籍”去交易，结果只有不到5%的人在二级市场能够赚钱生存，所以，勇敢的作“不同颜色的马”, 通过自己亲身的努力学习和实践，学会独立思考分辨真假善恶，不盲从于任何权威或媒体，不为”障眼法“的利益诱惑而改变操守放弃信仰和原则，探索出真正属于自己的生存方式，才有可能站在95%的对立面，您读懂了吗？
+霍利参议员新闻办公室： 霍利参议员关于禁止美国政府设备上使用TikTok的法案——由卢比奥、瑞克·斯科特、汤姆·科顿联署——将于明天在国土安全和政府事务委员会提交投票。 霍利的立法在早前的国会中，获得参议院一致通过。
 
 
 
-以上所有观点仅供学术研究使用，据此进场操作造成损失概不负责
+> Senator Hawley's bill banning TikTok on U.S. government devices — cosponsored by [@marcorubio](https://twitter.com/marcorubio?ref_src=twsrc%5Etfw), [@SenRickScott](https://twitter.com/SenRickScott?ref_src=twsrc%5Etfw), & [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) — comes up for a vote in HSGAC tomorrow.
+> 
+> Hawley's legislation passed the Senate unanimously in the previous Congress. [https://t.co/e2NMj33K0P](https://t.co/e2NMj33K0P)
+> — Senator Hawley Press Office (@SenHawleyPress) [May 11, 2021](https://twitter.com/SenHawleyPress/status/1392127645521952769?ref_src=twsrc%5Etfw)
 
-+1
+
+
+参议员马可·卢比奥： 关于 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) ，我们没有时间来签署一个象征性的法案 在为时太晚之前，我们现在必须采取全面、果断和迅速的行动。 【附卢比奥参议员关于应对中共威胁的演讲视频】
+
+
+
+> We don’t have time for a symbolic bill on [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)
+> 
+> We need to act comprehensively, decisively and swiftly now before it is too late[pic.twitter.com/zc2gOa8AxJ](https://t.co/zc2gOa8AxJ)
+> — Marco Rubio (@marcorubio) [May 11, 2021](https://twitter.com/marcorubio/status/1392229351916195841?ref_src=twsrc%5Etfw)
+
+
+
+参议员兰德·保罗： “美国政府已评估武毒所正在以某种形式进行功能增强研究，记者乔什·罗金已于三月在政治报Politico中指出。基因编辑专家杰米·梅茨也注意到武毒所进行了功能增强研究。 【附“国际观察”报道：兰德·保罗敦促福奇放弃功能增强研究，并指出可能发生的新冠病毒实验室泄漏】
+
+
+
+> "The U.S. gov has assessed that the WIV was conducting gain-of-function research in some form reporter Josh Rogin noted in Politico in March. Jamie Metzl, an expert on gene editing…has also noted that the WIV performed gain-of-function…"[https://t.co/vykP5nHSqJ](https://t.co/vykP5nHSqJ)
+> — Senator Rand Paul (@RandPaul) [May 11, 2021](https://twitter.com/RandPaul/status/1392158526387200004?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·加拉格尔 拜登政府有能力立即对围绕实验室泄漏假说的所有情报进行解密。他们需要这样做，以便我们深入了解并确保再也不会发生这种情况。 【附迈克议员接受福克斯塔克节目采访视频称：武毒所在大流行前曾进行蝙蝠病毒实验，福奇博士的部门帮助该所的危险实验，国立研究所则长期资助了他们】
+
+
+
+> The Biden Administration has the ability to immediately declassify all intelligence surrounding the lab leak hypothesis. They need to do so we can get to the bottom of this and make sure it never happens again. [pic.twitter.com/LBC5INE7eR](https://t.co/LBC5INE7eR)
+> — Rep. Mike Gallagher (@RepGallagher) [May 11, 2021](https://twitter.com/RepGallagher/status/1392160865743482886?ref_src=twsrc%5Etfw)
+
+
+
+比尔·格茨（中国问题专家） 推特客服注意：推特何时才能中止 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的宣传和虚假信息？解决方案：封锁所有与政府相关联的中国帐户，直到北京提供与其社交媒体的对等访问权限。 【附美联社推文：美联社和[@OxDemTech](https://twitter.com/OxDemTech)发现，大量假账户转发了外交官和官方媒体的帖子，推动了中共国在推特上的崛起】
+
+
+
+> Attn: [@TwitterSupport](https://twitter.com/TwitterSupport?ref_src=twsrc%5Etfw) When will Twitter halt Chinese Communist Party propaganda and disinformation? Solution: Block all Chinese government-linked accounts until Beijing provides reciprocal access to its social media [https://t.co/z9XvzCCCGp](https://t.co/z9XvzCCCGp)
+> — Bill Gertz (@BillGertz) [May 11, 2021](https://twitter.com/BillGertz/status/1392170658709315586?ref_src=twsrc%5Etfw)
+
+
+
+章家敦（中国问题专家）： 美国的机制正被中共政权所压制。为了拯救我们的共和制度，我们必须立即与那个国家断绝一切联系，直到我们确认我们可以应付。 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click)
+
+
+
+> [#America](https://twitter.com/hashtag/America?src=hash&amp;ref_src=twsrc%5Etfw)’s institutions are being overwhelmed by [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s regime. To save our republic, we have to immediately cut the links with that country until we are sure we can manage. [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/5j4xiG1cwW](https://t.co/5j4xiG1cwW)
+> — Gordon G. Chang (@GordonGChang) [May 11, 2021](https://twitter.com/GordonGChang/status/1392120208362557442?ref_src=twsrc%5Etfw)
+
+
+
+0

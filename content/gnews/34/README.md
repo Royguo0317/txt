@@ -1,37 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 塞林博士：中共军方大规模渗透美国病毒研究
-` Revelation119熙攘` [轉載自GNews](https://gnews.org/zh-hans/1221619/)
+## 中国强迫穆斯林女性节育以降低出生率
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1222381/)
 
-[加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf](https://gnews.org/zh-hans/author/gnewscanada/)
-![]()![](https://www.gnews.org/wp-content/uploads/2021/05/CCPCOVID-4.jpg)
-下面的故事是更大的问题的其中的一个例子。它不仅仅与所述的这一个机构有关，更是牵涉到整个美国价值约数十亿美元的被输入到中共国病毒研究实验室的知识、技能和研究拨款。毫无疑问，这些知识、技能和研究拨款的一部分被用于中共的生物战计划。
+编译： Boxinglady
 
-位于加尔维斯顿的德克萨斯大学医学部（UTMB）是一个重点病毒研究中心，由美国国家卫生研究院，特别是安东尼·福奇博士（Anthony Fauci）的国家过敏和传染病研究所大量资助。
+在中国的大部分地区，随着官员们试图避免因出生率下降而引发人口危机，当局正在[鼓励女性多生孩子](https://cn.nytimes.com/china/20180813/china-one-child-policy-birthrate/)。但在遥远的西部新疆地区，随着他们加强对穆斯林少数民族的控制，当局正迫使这里的人少生孩子。
 
-2020年8月，UTMB被安东尼·福奇博士指定为十个新发传染病研究中心其中之一，最近得到国家过敏和传染病研究所总额为8200万美元的资助。也许并非巧合的是，福奇还指定彼得·达扎克（Peter Daszak）的生态健康联盟——一个与武汉病毒学研究所（WIV）长期合作的机构——为另一个新发传染病研究中心，并向其拨款750万美元。
+这是一场巨大的压制性社会工程的一部分，中共决意以这场运动来消除任何所谓对其统治可能构成挑战的东西，在新疆，这种挑战是民族分裂主义。过去几年里，中共在最高领导人习近平的领导下，声势浩大地镇压新疆的维吾尔族和其他中亚少数民族，将数十万人关进[拘禁营](https://www.nytimes.com/interactive/2019/11/16/world/asia/china-xinjiang-documents.html)和[监狱](https://cn.nytimes.com/china/20190904/xinjiang-china-uighurs-prisons/)。当局已将该地区置于[严密监视](https://cn.nytimes.com/china/20190523/china-surveillance-xinjiang/)之下，把居民送进[工厂干活](https://cn.nytimes.com/china/20181217/xinjiang-china-forced-labor-camps-uighurs/)，将儿童送进[寄宿学校](https://cn.nytimes.com/china/20191230/china-xinjiang-children-boarding-schools/)。
 
-UTMB也是国防部资助的生物防御和新发传染病中心的所在地。同时，UTMB拥有为数不多的生物安全4级设施，用于控制和进行对世界上最危险的病毒进行研究。
+当局正在更进一步，把穆斯林女性作为目标，试图策划一个将影响几代人的人口结构变化。随着侵入式节育手术的使用增多，该地区的出生率近年来已经大幅下降，研究人员郑国恩(Adrian Zenz)与[美联社](https://apnews.com/269b3de1af34e17c1941a514f78d764c)合作已对这一发现[进行了记录](https://jamestown.org/wp-content/uploads/2020/06/Zenz-Internment-Sterilizations-and-IUDs-UPDATED-July-21-Rev2.pdf?x72568)。
 
-人们很容易就可以发现，UTMB已经被中国人民解放军的科学家渗透，而其中有些人则被发现与中共的生物战计划有关。这是现在正在发生的事情。
+尽管当局表示，这些手术是自愿的，但对十几名来自新疆的维吾尔族、哈萨克族和其他穆斯林男女的采访，以及对官方统计数据、政府通知和官方媒体报道的审阅，描述了中共对这些少数民族社区生育权的强行控制。
 
-以2021年1月20日发表的一篇有关中共病毒疫情的科学论文为例。 《中共病毒SARS-CoV-2的泛化素ORF7a促进干扰素反应的拮抗作用》的作者是曹增国、夏红杰、里卡多·拉杰斯鲍姆（Ricardo Rajsbaum）、夏贤珠、王华磊和施培勇。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/05/Picture1-34.jpg)
-高级作者史培勇在中共国接受培训，现在是UTMB的生物化学和分子生物学系的教授。自2007年以来，他一直是武汉病毒学研究所的荣誉教授。
+如果超生或拒绝避孕手术，她们将面临高额罚款，甚至被关进拘禁营。在这些拘禁营中，这些女性面临遭受更多虐待的危险。一些曾被关进拘禁营的人说，她们被迫服药以终止月经周期。一名女性称，她在一个拘禁营中被强奸。
 
-第一作者曹增国，是史培勇在UTMB的同事，与中共的另一个单位有关——即中共国长春市吉林大学兽医学院人畜共患病研究教育部重点实验室。曹增国隐藏了他在中国人民解放军军事兽医研究所工作的事实。
+对于维权人士和西方官员而言，中国政府在新疆的镇压行动无异于[危害人类罪](https://www.hrw.org/news/2021/04/19/china-crimes-against-humanity-xinjiang)和[种族灭绝罪](https://www.reuters.com/world/uk/uk-parliament-declares-genocide-chinas-xinjiang-raises-pressure-johnson-2021-04-22/)，这些罪行在很大程度上是为了遏制穆斯林人口的增长而采取的措施。1月，特朗普政府成为第一个[宣布镇压行为是种族灭绝](https://cn.nytimes.com/usa/20210120/trump-china-xinjiang/)的政府，其中生殖压迫是主要原因。拜登政府在3月确认了这一说法。
 
-第二作者夏宏杰，也是史培勇在UTMB的同事，在武汉大学工作时与中共的军事科学家合作过。
+《[卫报](https://www.theguardian.com/world/2020/sep/04/muslim-minority-teacher-50-tells-of-forced-sterilisation-in-xinjiang-china)》等媒体报道了赛迪克的经历，这为美国政府做出这一决定奠定了基础。“这是我们拥有的最详尽、最引人注目的亲身叙述，”参与政府相关讨论的前美国大使凯利·E·柯里(Kelley E. Currie)说。“它让我们看到这个恐怖的统计数据背后的面孔。”
 
-第四和第五位作者夏先柱和王华磊都与中国人民解放军军事兽医研究所有关。 值得注意的是，由兽医金宁一将军领导的中国人民解放军军事兽医研究所被认为是中共生物战计划的一个重要组成部分。在金宁一将军手下工作的解放军科学家何飚是该团队的核心成员。该团队分离了被吹哨人闫丽梦博士称由实验室制造的中共病毒的骨架的蝙蝠冠状病毒ZC45和ZXC21，并确定这两种病毒的特性。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/05/Picture2-13.jpg)
-而上文所述也只是中共军方大规模渗透美国病毒研究项目的一小部分而已。
+北京指责其批评者在推动反华议程。
 
-注：本文是由劳伦斯塞林上校和中共病毒侦探Anna陈在[www.thegatewaypundit.com](http://www.thegatewaypundit.com) 上于5月11日共同发表。请参考以下原文链接。
+简评：不管中共外交口舌们再如何指责和狡辩，其在新疆犯下的危害人类罪和种族灭迹罪的罪行已被美国和西方多国政府牢牢做实。人类文明发展到今天，怎可能继续容忍这个反人类的中共政权在这个地球上继续存在，怎可能容忍这样罪恶的政权去实现称霸世界，掌控人类命运的野心！不灭中共，人类将永无宁日！
 
-[原文链接](https://www.thegatewaypundit.com/2021/05/massive-infiltration-u-s-virus-research-chinas-military/)
+新闻来源：[纽约时报](https://cn.nytimes.com/china/20210511/china-xinjiang-women-births/)
 
-**免责声明: 文章仅代表作者观点。**
-
-+3
+0

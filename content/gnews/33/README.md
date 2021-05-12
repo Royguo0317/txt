@@ -1,49 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】怀俄明州禁止使用疫苗护照
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1221697/)
+## 【热点播报】一个简单例子揭露中共国第七次人口普查数据造假
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1222047/)
 
-作者：纽约香草山农场  四季
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01210231/gnews-logo.jpeg)
+作者：纽约香草山健身部 文真
 
 
 
-据INFOWARS网站报道，怀俄明州州长共和党人马克-戈登已经禁止了疫苗护照在该州实行。他发布了一项指令，指出任何人都不应该因为他们的疫苗接种情况而被拒绝进入任何地方或接受任何服务。戈登的指令鼓励怀俄明州的市、镇、县和私营企业提供充分的场所和服务，无论一个人的疫苗接种状况如何。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/11154621/1-3Screenshot-2021-05-11-153730-3.png)[Twitter截图](https://twitter.com/EpochTimes/status/1391874441160925191?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1391874441160925191%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.infowars.com%2Fposts%2Fvaccine-passports-banned-in-wyoming%2F)
-
-戈登的指令概述说：“疫苗护照计划有可能使一个不应该被政治化的决定政治化。它们会在这个需要团结一致抗击病毒、至关重要的时候，分裂我们的公民，并伤害那些在医学上无法接种疫苗的人”。他还呼吁，接种疫苗“是一个基于个人情况的个人选择”。
-
-怀俄明州加入了包括阿拉巴马州、明尼苏达州、南卡罗来纳州、阿肯色州、亚利桑那州、佛罗里达州、爱达荷州、蒙大拿州、德克萨斯州和南达科他州在内的其他州，这些州都已经通过立法或发布命令来阻止强制性疫苗接种或疫苗护照计划。
-
-美国宪法第一修正案于1791年12月15日获得通过，成为构成《权利法案》的十项修正案之一。第一修正案规定，政府不得制定规范宗教建制、禁止宗教自由活动，或限制言论自由、新闻自由、和平集会的权利或向政府请愿以伸冤的权利的法律。
-
-原文链接：
-
-[Vaccine Passports BANNED In Wyoming (infowars.com)](https://www.infowars.com/posts/vaccine-passports-banned-in-wyoming/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 
 
-编辑/校对/发稿：小鹿
+中共国今日公布的第七次全国人口普查数据显示，全国总人口共计14.4350亿人。这次人口普查的对象包括中共国境内的自然人以及在境外但未定居的中国公民，但不包括境内短期停留的外籍人员。然而，在造假成风、撒谎成性的中共国体制内，这些人口普查数据是否可信？不管你信不信，我是不信！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
+![]()![](https://gnews.org/wp-content/uploads/2021/05/67-7.jpg)图片来源：rfa.org
+
+我们用一个简单的例子，综合网上记录的0至14岁的人口数据，用以分析中共国第七次人口普查数据是否在造假。
+
+中文维基百科上记录了此次人口普查的年龄构成，“中（共）国大陆31个省、自治区、直辖市和现役军人的人口中，0 — 14岁人口为253,383,938人，占17.95%”。如果这一数据真实可信，那么去除儿童死亡率等统计误差，它应大致相当于2010年第六次人口普查0 — 4岁的人数加上最近十年的出生人口。知乎上记录了从2011年至2018年的出生人口数分别是，1600万（2011年）、1635万（2012年）、1640万（2013年）、1687万（2014年）、1655万（2015年）、1786万（2016年）、1723万（2017年）、1523万（2018年），总共合计13249万人。据公安部统计数据，2019年和2020年出生人口数分别为1004万和1179万。以上数据相加得出，2011年至2020年的总出生人口数为15432万人。据中文维基百科第六次人口普查数据，2020年0 — 4岁的人口总数是75,532,610，约合7553万。综上，基于网络数据调研得到，2021年0 — 14岁人口约为22985万人。这一数字与中共国官方公布数据相差至少2353万人！
+
+这一数字相当于中共国两年的出生人口数，误差近10%的巨大数据差异，绝不可能是统计误差造成的。即使是中共遍地播种、红旗插遍世界的“建筑艺术项目”在十年内也制造不出2000多万新生儿。这一简单的例子足以质疑中共国第七次人口普查数据的真实性。
+
+参考阅读：
+
+[中华人民共和国第七次全国人口普查](https://zh.wikipedia.org/wiki/%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD%E7%AC%AC%E4%B8%83%E6%AC%A1%E5%85%A8%E5%9B%BD%E4%BA%BA%E5%8F%A3%E6%99%AE%E6%9F%A5)
+
+[中华人民共和国第六次全国人口普查](https://zh.wikipedia.org/wiki/%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD%E7%AC%AC%E5%85%AD%E6%AC%A1%E5%85%A8%E5%9B%BD%E4%BA%BA%E5%8F%A3%E6%99%AE%E6%9F%A5#%E5%B9%B4%E9%BE%84%E6%9E%84%E6%88%90)
+
+中国历年出生人口（1949-2019）\_https://zhuanlan.zhihu.com/p/95551948
+
+[2020中（共）国出生人口下降15% 破1949年以来纪录](https://www.rfa.org/mandarin/yataibaodao/shehui/hcm-02102021023132.html)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01211000/gnews-logo-3.jpeg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 
 
-+1
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
++6

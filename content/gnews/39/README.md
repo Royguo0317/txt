@@ -1,36 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【意大利】前总理贝卢斯科尼 因病毒后遗症再次入院
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1221001/)
+## 【热点播报】怀俄明州禁止使用疫苗护照
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1221697/)
 
-```
-新闻来源：意大利Stol 新闻社 
-发表时间：2021年5月11日
-翻译整理/ 评论： Shuizhuyu
-```
+作者：纽约香草山农场  四季
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01210231/gnews-logo.jpeg)
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/05/IMG_20210511_200642.jpg)图片来源：欧洲时报
 
-意大利前政府首脑西尔维奥·贝卢斯科尼（*Silvio Berlusconi*）自周二以来已重返医院。 贝卢斯科尼的员工周二说，这名84岁的老人正遭受以前病毒感染的后果，正在接受适当的治疗。 去年秋天，执政党意大利总统扎瓦（*Forza Italia*）感染了病毒。
+据INFOWARS网站报道，怀俄明州州长共和党人马克-戈登已经禁止了疫苗护照在该州实行。他发布了一项指令，指出任何人都不应该因为他们的疫苗接种情况而被拒绝进入任何地方或接受任何服务。戈登的指令鼓励怀俄明州的市、镇、县和私营企业提供充分的场所和服务，无论一个人的疫苗接种状况如何。
 
-这位84岁的老人在过去几个月中已经去过几次医院。由于健康问题，贝卢斯科尼将无法在下周五参加在锡耶纳举行的有计划的法庭听证会。该电视企业家因涉嫌与米兰的所谓“红宝石”事件有关的贿赂证人而受到审判。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/11154621/1-3Screenshot-2021-05-11-153730-3.png)[Twitter截图](https://twitter.com/EpochTimes/status/1391874441160925191?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1391874441160925191%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.infowars.com%2Fposts%2Fvaccine-passports-banned-in-wyoming%2F)
 
-前政府首脑被指控支付证人在较早的审判中提供虚假的证词。这是关于贝卢斯科尼别墅中的性爱派对。在对当事方进行法律审查期间，主要问题是贝卢斯科尼是否知道摩洛哥舞者卡莉玛·艾尔-玛罗格 (*Karima el-Mahroug*)（别名偷心人露比「*Ruby*」）当时不合法。贝卢斯科尼（*Berlusconi*）被指控支付露比（*Ruby*）做爱。
+戈登的指令概述说：“疫苗护照计划有可能使一个不应该被政治化的决定政治化。它们会在这个需要团结一致抗击病毒、至关重要的时候，分裂我们的公民，并伤害那些在医学上无法接种疫苗的人”。他还呼吁，接种疫苗“是一个基于个人情况的个人选择”。
 
-贝卢斯科尼（*Berlusconi*）最初在2013年被判犯有性行为，但在2015年的上诉程序中被无罪释放。法院以有利于贝卢斯科尼的假设为由，当时贝卢斯科尼不知道露比只有17岁。但是，贝卢斯科尼（*Berlusconi*）被指控带走了几名证人提供金钱，珠宝甚至价值数百万美元的物品，以使双方对法庭保持沉默。
+怀俄明州加入了包括阿拉巴马州、明尼苏达州、南卡罗来纳州、阿肯色州、亚利桑那州、佛罗里达州、爱达荷州、蒙大拿州、德克萨斯州和南达科他州在内的其他州，这些州都已经通过立法或发布命令来阻止强制性疫苗接种或疫苗护照计划。
 
-#### **简评：**
+美国宪法第一修正案于1791年12月15日获得通过，成为构成《权利法案》的十项修正案之一。第一修正案规定，政府不得制定规范宗教建制、禁止宗教自由活动，或限制言论自由、新闻自由、和平集会的权利或向政府请愿以伸冤的权利的法律。
 
-**对于意大利的前政要贝卢斯科尼的私人生活，我没有兴趣做任何的评论，孰是孰非，有法庭，希望意大利的法庭能够秉持公正。这里要表达的是，这位84岁的前政要感染了中共病毒后，虽然康复，但是有很多的后遗症状。但是，现在因为这些后遗症，再次入院。不管他为人如何，执政如何，希望他能安好。由此看出，中共病毒可能让人在康复之后都生不如死。**
-（本文只代表作者观点，与Gnews平台无关。 ）
+原文链接：
 
-**新闻原文链接：**
-🔗[Berlusconi erneut im Krankenhaus wegen Post-Covid-Beschwerden](https://www.stol.it/artikel/politik/berlusconi-erneut-im-krankenhaus-wegen-post-covid-beschwerden)
+[Vaccine Passports BANNED In Wyoming (infowars.com)](https://www.infowars.com/posts/vaccine-passports-banned-in-wyoming/)
 
-* * *
 
-***编辑整理/校对: **Ting Guo*
 
-+3
+编辑/校对/发稿：小鹿
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01211000/gnews-logo-3.jpeg)
+
+
+
++1
