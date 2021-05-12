@@ -1,28 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## News Express 福奇博士说国立卫生研究院从未给武毒所提供资金
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1225457/)
+## 【路德简报】5/11/2021早：重磅！川普顾问纳瓦罗称赞闫博士为大师级科学家
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1225566/)
 
-福西博士：“保罗参议员，在所有应得的尊重下，您完全和完全不正确，因为国立卫生研究院从未而且现在也没有为武汉研究所的功能研究提供资金。“
-
-这一段视频显示福西博士正在国会接受质询的回复。
-
-编者看完是这样想的，当然，可能不是直接， 资金有很多时候也是需要中间宿主的，就像你们编造的病毒自然起源论一样， 尽管Covid-19的中间宿主到现在还是谜之自信。
-
-参考链接：
+**编辑：华盛顿DC农场 路德简报项目组**
+![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/05/20210511-scaled.jpg)
 
 
+> 2021 年5月11日 路德时评 早 
+> 
+> 1.重磅！川普顾问纳瓦罗称赞闫丽梦博士为大师级科学家 
+> 
+> 2.纳瓦罗接受班农采访：谈追究病毒真相的责任和步骤
+> 
+> 3.印度媒体采访闫丽梦博士 ：冠状病毒被武器化的概念在英文世界继续发酵
+> 
+> 4.中共极力掩盖病毒死亡人数 人口普查假数据出炉 [pic.twitter.com/Emyc2Woks2](https://t.co/Emyc2Woks2)
+> — 平民爆料 (@WM18320321) [May 12, 2021](https://twitter.com/WM18320321/status/1392323272583401473?ref_src=twsrc%5Etfw)
 
-> Dr. Fauci: "Senator Paul, with all due respect, you are entirely and completely incorrect that the NIH has not ever and does not now fund gain of function research in the Wuhan Institute." [pic.twitter.com/QnynDI559F](https://t.co/QnynDI559F)
-> — The Hill (@thehill) [May 11, 2021](https://twitter.com/thehill/status/1392260984400605190?ref_src=twsrc%5Etfw)
 
-
-
-整理撰稿：蓝精灵
-
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
 
 0
