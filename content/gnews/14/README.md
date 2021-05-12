@@ -1,41 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】新概念诞生：白宫“首席制造官”
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1232557/)
+## 英指责俄窝藏国际犯罪分子
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1232725/)
 
-**作者：纽约香草山健身部****童谣**
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
+编辑上传 水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12141027/s-6.jpg)sputniknews.com
+05月12日，俄罗斯在打击违反国际法的行为方面做得不够，甚至在其领土上窝藏犯罪分子。据国际文传电讯社报道，英国外交大臣多米尼克·拉布（Dominic Raab）将于5月12日在国家网络安全中心的会议上发表讲话，其论文中这样写道。
 
+据拉布说，敌对的犯罪集团，包括那些由外国政府支持的犯罪集团，威胁着英国社会和民主。
 
+声明说，“让我们明确一点，当像俄罗斯这样的国家有罪犯在其境内活动时，当局有义务起诉他们，而不是庇护他们。”
 
-从川普政府开始，美国经济与中共脱钩的重点，一部分就在于全面产业链的撤回。参议院委员会领导人已经就5年内为科学研究起草了1,110亿美元的折衷法案。据路透社报道，法案中包括任命一名白宫首席制造官，以应对来自中共国的日益激烈的竞争压力。
+在外交部发表的一份声明中，拉布说，它将邀请合作伙伴创建一个开放和安全的网络空间。这将需要一个广泛的国际协议，阐明应对个别国家的恶意网络攻击的规则。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12131507/63d1a88d1d19fbd261a5b800ea15de89.png)
+4月底，英国电子情报部门–政府通信中心（GCHQ）负责人杰里米·弗莱明（Jeremy Fleming）表示，俄罗斯对英国构成了最严重的网络安全威胁。
 
-该法案一旦通过，参议院确认的首席制造官就会在总统的执行办公室任职，并将领导一个新的制造和工业创新政策办公室。同时作为美国总统的贴身幕僚人员，会直接对总统负责，并向总统汇报。
+他指出，莫斯科在网络空间开展激进的特殊行动，并干预其他国家的选举。弗莱明指责俄罗斯参与了对IT公司太阳风（SolarWinds）的网络攻击，导致美国政府网络被黑。
 
-可见，不管是全球气候问题中的工业新能源转型，还是疫情纾困法案中的基础设施更迭，都离不开“美国制造业”这个话题。这里参议院拟设的首席制造官职位，会直接负责拜登新政府重推政策的表现和效果。而该职位的产生，也是拜登在疫情压力、中共威胁压力下，将重担进行转移的一种方式。
+5月，拉布呼吁七国集团国家建立一个统一的机制，对俄罗斯的宣传和虚假信息作出快速反应。欧洲外交事务负责人何塞普·博雷尔（Josep Borrell）也称莫斯科是假新闻的来源，是“危险的邻居”。
 
-素材来源：
+俄罗斯一再否认对西方政客在宣传活动、选举干预和网络攻击方面的指控。外交部发言人玛丽亚·扎哈罗娃（Maria Zakharova）说，假新闻主要产生于欧洲，将俄罗斯媒体妖魔化。
 
-https://cn.reuters.com/article/us-senate-chief-manufacturing-post-0508-idCNKBS2CP009
+参考链接：
 
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105547/WhatsApp-Image-2021-04-16-at-10.26.12-AM-1.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://www.rbc.ru/politics/12/05/2021/609b2d669a7947674e4087f7](https://www.rbc.ru/politics/12/05/2021/609b2d669a7947674e4087f7)
 
 0

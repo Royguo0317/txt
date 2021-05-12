@@ -1,35 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 成都49中学生坠亡事件展现中共集权的冷血和漠视生命
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1231954/)
+## 价值观记（1）
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1232036/)
 
-作者：文呈 | 校对：仙女儿-文善 | 审核：宁缺 | Page：我是球大哥
+作者：X-Wing飞得更高| 校对：仙女儿-文善| 审核：宁缺| Page：小六月
 
-[!\[\]()!\[\](https://spark.adobe.com/page/2mtZ9nOemHyji/images/c8532b60-926e-441a-b56f-2485589a3bea.jpg?asset_id=c7687042-f48a-46a8-bffc-ebd4a97c209a&amp;img_etag=%22034f283ee1d02f3b1c32473e7537aa00%22&amp;size=1024)](https://spark.adobe.com/page/2mtZ9nOemHyji/images/c8532b60-926e-441a-b56f-2485589a3bea.jpg?asset_id=c7687042-f48a-46a8-bffc-ebd4a97c209a&amp;img_etag=%22034f283ee1d02f3b1c32473e7537aa00%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/UOaRtGLscZKRV/images/e088f783-9902-4f07-81f6-d4a772bd593a.png?asset_id=e6edabf2-c18e-4360-b6fd-eba9318a5091&amp;img_etag=%22647d1c28ade4aadb652879e958989b6f%22&amp;size=1024)](https://spark.adobe.com/page/UOaRtGLscZKRV/images/e088f783-9902-4f07-81f6-d4a772bd593a.png?asset_id=e6edabf2-c18e-4360-b6fd-eba9318a5091&amp;img_etag=%22647d1c28ade4aadb652879e958989b6f%22&amp;size=1024)
 
-成都49中高中生的离奇死亡，虽然中共媒体不予播报，甚至在知乎、微博上删除相关话题，但足智多谋的网友还是在网络上留下线索，让我们能够一窥学校、媒体和警察一直遮掩的真相。一名准备高考的孩子，在中共校园里这样离奇的死亡，没有监控，没有证人，甚至都没有等待家长的同意便草草火化，我想这样的结果没有人能够接受。如果我们再推算这名准备高考孩子的年龄，就可以知道这个家庭同样是中共所谓计划生育政策下的受害者。优秀的独子，作为一家人的希望，就这样不清不楚的消失在人间，更让人难以接受。
+有没有注意到，在英国政治人物针对国际事务的发言中，时常听到他们提到一个词：Fundamental British Values——英国核心价值观。
 
-中共一直吹嘘的中国人权在哪里？2002年中共便发布报告称中国人权状况全面改善，却在2021依然出现这样的事情，学校、警察团伙撒谎，媒体被噤声。如果19年后的今天，如此这般的人权状况能够被叫做“全面改善”，那么笔者很难想象2002年中共是用什么样的立场来维护联合国宪章的。
+英国前首相托尼·布莱尔（Tony Blair）曾讲过：“英国是一个多族群、多种族、多文化、多宗教、多信仰的国家，英国的历史和国情决定了我们必须珍视自由、宽容、开放、公正、公平、团结、权利义务相结合、重视家庭和社会群体等英国的核心价值观。”英国教育大臣尼基·摩根（Nicky Morgan）曾强调说，正是英国核心价值，使英国在上世纪和本世纪成为最伟大的国家之一。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/2mtZ9nOemHyji/images/7d8b2fdc-c09c-487c-a7fa-b30b36f51713.png?asset_id=c36e27c5-ca69-451f-893b-a04a627017ad&amp;img_etag=%22581f046decd0ab9e0d12774e87c83aed%22&amp;size=1024)](https://spark.adobe.com/page/2mtZ9nOemHyji/images/7d8b2fdc-c09c-487c-a7fa-b30b36f51713.png?asset_id=c36e27c5-ca69-451f-893b-a04a627017ad&amp;img_etag=%22581f046decd0ab9e0d12774e87c83aed%22&amp;size=1024)
+最近的G7七国集团外长会议，英美两国外长发言中也提到要“坚守价值”，并形成更广泛的联盟，应对那些破坏以规则(Rules)为基础的国际秩序的国家。我特意去搜索调查了一番，英国人说的“核心价值观”到底是什么。
 
-[图片来源](https://www.fmprc.gov.cn/web/ziliao_674904/zt_674979/ywzt_675099/wzzt_675579/2296_675789/t10548.shtml)：中共外交部于2002年发表的《关于中国人权事业的进展》
+在英国，“民主、法治、个人自由，以及与持不同信仰和信念的人们（包括无信仰人士）之间的相互尊重和宽容”，是官方对“英国核心价值观”(Fundamental British Values)的一种相对规范的界定。
 
-从小的高压教育，到高考的独木桥，没让笔者看到中共控制下的社会对于“人”和“权”的尊重。孩子失去了该有的笑容，学的都是洗脑的内容。而计划生育给中国人带来的影响也远不止“人”和“性”。每一个独生子女都成为了家族唯一的希望，学校、社会甚至是家庭的压力也一点点改变本应纯真开朗的少年。
+英国四大核心价值观：
 
-当学校成为洗脑的集中营和利益勾兑的温床；当警察忙着撒谎却不顾百姓的死活；当自己生育的权利被堂而皇之的剥夺，却还要大肆宣传中共政策之优良，“人权问题”、“人性问题”，这些中共口中外国势力干涉内政的词汇，就一件件真实的发生在我们每个人眼前。我最亲爱的读者们，该醒了。
+民主；法治；个人自由；尊重与包容。
 
-**文章仅代表个人观点**
+画表也许更直观一些：
+
+[!\[\]()!\[\](https://spark.adobe.com/page/UOaRtGLscZKRV/images/d2ba6eca-40ca-4176-99cd-127c20664324.png?asset_id=3e3ca29a-6d63-49fa-9532-3bd0889fa543&amp;img_etag=%22a145e93596317096b6c9365d6650d4c4%22&amp;size=3755)](https://spark.adobe.com/page/UOaRtGLscZKRV/images/d2ba6eca-40ca-4176-99cd-127c20664324.png?asset_id=3e3ca29a-6d63-49fa-9532-3bd0889fa543&amp;img_etag=%22a145e93596317096b6c9365d6650d4c4%22&amp;size=1024)
+
+英国的核心价值观只归结为以上4条，是不是相当简单通俗？
+
+如果要广而推之，英国价值观至少还可以包括另外几条：“王在议会，王在法下”；私有财产保护；制度和规范；历史与家庭价值，以及以固执、坚忍与好打抱不平为特征的“英国性格”，等等。这里面“法治”(Rule of Law)是非常重要的基础，郭先生倡导的“法治基金”正是Rule of Law Foundation。没有法治，没有真正的依法治国，无疑是沙上建巴别塔。
+
+可能不少人会觉得英国“爱管闲事”，但无论是911恐怖袭击，非洲瘟疫和自然灾害，叙利亚人道危机，红色高棉或卢旺达大屠杀，还是俄罗斯挑衅乌克兰，缅甸军事政变，香港民主自由大倒退，新疆种族灭绝等等，这些事情在英国人眼中绝非闲事。他们不会像国人那样“只扫自家门前雪，哪管他人瓦上霜”，也不会因为“非我族类”所以与我无关。坚持自由、公正、公义、民主、法治、规则这些基本核心价值观，是英国人血液里的DNA，也是让英国曾经伟大，今天在全球仍不可被忽视的重要原因。
+
+曾经辉煌的日不落帝国，鼎盛时期殖民面积达到3400万平方公里，约占世界陆地总面积的1/4，遍及包括南极洲在内的七大洲、四大洋，地球上的24个时区均有大英帝国的领土。贸易和殖民当然伴随着商船、剥削、炮舰、流血和奴役，但是非常奇怪的是，曾经被英国殖民的国家和地区，除了某国之外，几乎没有哪一个不对英国感恩戴德。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/UOaRtGLscZKRV/images/c0aa9bd2-9401-4794-8bb2-f8506625762a.png?asset_id=efed1912-761c-489e-8169-32d973fd6eb1&amp;img_etag=%22db7ddd67d75b4f05cebd7a194e1727e6%22&amp;size=2560)](https://spark.adobe.com/page/UOaRtGLscZKRV/images/c0aa9bd2-9401-4794-8bb2-f8506625762a.png?asset_id=efed1912-761c-489e-8169-32d973fd6eb1&amp;img_etag=%22db7ddd67d75b4f05cebd7a194e1727e6%22&amp;size=1024)
+
+最典型如印度，被英国殖民两百多年，但英国用“以印治印”的殖民方式把印度变成一个国土统一、语言统一、体制完善的国家。印度从铁路公路网等完善的基础设施，到工业化、全民英语教育，到国民最喜爱的板球运动，以及留给印度进入西方市场的“入场券”，无不留下深刻的英国烙印。
+
+“东方明珠”香港；非洲大陆最先进和文明的国家南非；新加坡的法治和城市治理富得流油的东南亚小国文莱的司法体系；塞浦路斯、塞舌尔、萨摩亚这样的人间天堂旅游胜地；国土面积和人口都很小而英式橄榄球水平居世界一流的斐济；沿用英国君主立宪制的加勒比海岛国巴哈马；以及美、加、澳、新这些发达国家、五眼联盟，这些国家的法律、政治、民主、教育体系体制的基础，全都是英国殖民留下的正面“遗产”。
+
+说到这里特别要提一下“英联邦”（Commonwealth of Nations）这一国际组织，成员大多为前英国殖民地（自愿加入英联邦的主权国家）或保护地（尚未实现完全自治的附属国），目前由53个独立主权国家或属地组成。英联邦国家的总人口23亿约占世界30%左右，领土面积约占世界20%，GDP占世界17%左右，可以说英联邦在极大程度上也是大英帝国的延续。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/UOaRtGLscZKRV/images/ddf030ba-0c88-42ba-a4d4-f280f7b2a2be.png?asset_id=8685f839-cee5-475d-9474-143a699f6897&amp;img_etag=%227a04ab727ed6d6ad1a4f5f1ba64e210b%22&amp;size=2560)](https://spark.adobe.com/page/UOaRtGLscZKRV/images/ddf030ba-0c88-42ba-a4d4-f280f7b2a2be.png?asset_id=8685f839-cee5-475d-9474-143a699f6897&amp;img_etag=%227a04ab727ed6d6ad1a4f5f1ba64e210b%22&amp;size=1024)英联邦旗帜
+
+[!\[\]()!\[\](https://spark.adobe.com/page/UOaRtGLscZKRV/images/246767e1-b7d2-4028-b5a0-31ecc6976958.png?asset_id=af13da46-ad9b-4c78-a7c4-9f463b09a48d&amp;img_etag=%224603ce67c92657470743f42b532edfbe%22&amp;size=1024)](https://spark.adobe.com/page/UOaRtGLscZKRV/images/246767e1-b7d2-4028-b5a0-31ecc6976958.png?asset_id=af13da46-ad9b-4c78-a7c4-9f463b09a48d&amp;img_etag=%224603ce67c92657470743f42b532edfbe%22&amp;size=1024)英联邦会徽
+
+英联邦有共同的官方语言——英语，还拥有共同的价值观、政治传统、军事结构，至今仍有16个英联邦国家的国家元首是英国女王伊丽莎白二世。更重要的是，英联邦的共同原则是“民主、善政和人权”，以及对共同价值观的遵守，并主张在英联邦范围内实现自由贸易和自由投资。这里的“共同价值观”，归根到底还是英国的四个核心价值观！
+
+此外，被英国殖民的国家和地区，也明显优于被法国、西班牙殖民的国家或地区。有学者比较过，英国殖民地在教育方面保护本土语言和文化，着重培育有本地社区责任感的公民，并且给很多殖民地留下较适应本土习俗的普通法法系，使得这些地区能够更好地保护产权，从而为长期繁荣奠定了基础。
+
+笔者并非为殖民歌功颂德，只是希望引发读者一点思考。殖民和统治世界只靠武力是不够的，小小阿富汗就可以成为“大国坟场”，杀光当地人实现殖民也不可能。船坚炮利固然重要，而软实力、得民心、安民心才是长久之计。看大不列颠，曾经的殖民扩张甚至覆盖了全球各个角落，而今天的伙伴和朋友却依然遍及各大洋大洲。殖民地对英国非但没有仇恨，反而感激英国留下的宝贵物质和精神财富，例如法治、教育和基建等。对比中共国“一带一路”倡议对所在国的资源和经济的掠夺性压榨和欺骗胁迫，全世界几乎没有朋友的尴尬局面，是不是值得深思呢？
+
+CCP对真正的力量一无所知。自己国民以及其他国家民众心中真正认可和奉行的“价值观”，才是滴水穿石的软实力和真正可怕的长久力量，而不是靠所谓经济实力和武力，动辄掐别人脖子，欺凌弱小。被广为接受和欢迎的核心价值观，是一个国家最好的通行证，是真正的实力名片，也将决定这个国家为这个世界留下什么。看看英国为全世界留下的“遗产”，中共还好意思说英国不过是二流国家？先拿自己照照镜子罢！
+
+文章仅代表作者个人观点
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/2mtZ9nOemHyji/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/2mtZ9nOemHyji/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/UOaRtGLscZKRV/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/UOaRtGLscZKRV/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 
 
