@@ -1,43 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》新闻快讯（视频版）: 20210511闫博士接受Newsmax采访
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1238150/)
+## 【有声读物】力与量
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1238325/)
 
-《路德社》出品
+配音：香草山福音部 Daxia
 
-以下视频是详细内容：
-
-主要内容：
-
-1.狡猾的福奇否认NIH资助武汉实验室
-
-2.闫：福奇头换了概念
-
-3.CCP管控的实验室不会在申请NIH资金的时候写用于功能增强
-
-4.福奇没说没资助武毒所而是说没有资助功能增强实验
-
-5.这背后是一张巨大的学术网络，包括了中国军事医学院以及港大实验室
-
-6.需要彻底全面的调查
-
-7.Newsmax也提到徐德忠的那本书
-
-8.中共国将病毒武器化，其突出成果就是这个肆虐全球的病毒
-
-9.超限生物武器 #UnrestrictedBiowarfare
-
-10.这本书介绍了如何用SARS1以及相关冠状病毒，制造致命性不需太高但足以摧毁敌国社会秩序（经济和医疗系统）的生物武器
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-翻译：路德社翻译组
 
-制作：路德社视频组
 
-审核校对：玫瑰新闻组
 
-上传排版：玫瑰新闻组
+
+一颗水滴
+
+坚持，便可石穿
+
+一片大海
+
+永恒，便容纳千河百川
+
+
+
+**文字版原文：[【香草诗词汇】力与量](https://gnews.org/zh-hans/587016/)**
+
+作者：纽约香草山福音部 Daxia
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

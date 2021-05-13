@@ -1,37 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 专家组调查报告 &#8211; 中共及WHO犯严重错误
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1238592/)
+## 【热点播报】普京：纳粹意识正在重新抬头
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1238840/)
 
-翻译/评论： Hong
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13121008/WHO%E6%8A%A5%E5%91%8A.png)（图片来自战友）
-国际调查专家小组5月12日公布了一份对中共病毒大流行的一项独立调查评估报告,报告指出, 中共病毒大流行本是“可预防的灾难”，如果中共及时公布真相，如果WHO及时宣布全球进入紧急状态，就能挽救340万人的生命，报告总结说，中共病毒全球大爆发是由于大量的应对失误、数据漏洞和延误对外发布时间造所成的。
+作者：纽约香草山健身部 童谣
 
-专家小组说，世界卫生组织本应在2020年1月30日之前就宣布全球进入紧急状况，并建议限制旅行，以防止中共病毒大流行病的爆发。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191310/s2-7.jpg)
 
-报告还发现，由于各国未能及时采取强有力措施阻止中共病毒的传播，把去年二月份最佳应对病毒的时间白白浪费了。
 
-在本月12日公布的报告题为《新冠肺炎：让它成为最后一次大流行病》（[**COVID-19**](https://news.sky.com/topic/covid-19-8518): Make it the Last Pandemic）。约翰逊·瑟利夫（Ellen Johnson Sirleaf）表示，“我们今天的处境原本是可以避免的，我们现在的遭遇是由于在准备和应对病毒措施方面有大量的失误、（防疫措施）漏洞百出，和时间延误所致。”
 
-专家们在报告中呼吁必须对世卫组织进行大刀阔斧的改革，并改革国际大流行病防疫体系统，以防将来再次出现（中共）“有毒混合物”。
+从七国峰会开始，美国政府就不断在多种场合捆绑点名俄罗斯与中共，且在越来越多国家与美国站到统一阵线之后，俄罗斯几乎被国际社会共同认作和纳粹中共“一伙儿”。
 
-该报告补充说，2019年底SARS-CoV-2中共病毒在中国中部市武汉市出现，很快就演变为一场“灾难性大流行，” （中共）病毒已经杀死超过340万人，并摧毁了世界经济。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13131431/0c6d6c90-b6fa-4360-9304-6ace858cc591_w1023_r1_s.jpg)图片来源：美联社
 
-专家们说，中共内陆医生于2019年12月就报告了异常肺炎病例并通知了中共当局，而世卫组织却是从台湾疾病控制中心和其他机构那里获得了相关的信息。
+但就在纪念苏联在第二次世界大战中战胜纳粹德国76周年的莫斯科红场阅兵式上，普京发表讲话时做出史无前例的警告称，纳粹意识正在重新抬头。但没有做进一步的具体阐述。
 
-报告指出，世卫组织的紧急委员会在2020年1月22日第一次开会时就应该宣布新冠肺炎（中共病毒）为国际关注的突发公共卫生事件，而不是等到1月30日才宣布。此外，该委员会并没有建议因突发事件限制旅行，专家们认为《国际卫生条例》有待修改。
+众所周知，在疫情灾难与灭共潮流下，国际局势发生着翻天覆地得变化。美国不断加强号召民主社会国家联合统一战线，拉夫罗夫甚至抱怨美国有意集结同盟“加深分裂”，可见俄罗斯虽然想赚中共的钱，但在原则问题上，并不希望同世界政坛主流真的“分裂”。
 
-中共作恶毫无底线，残害生命毫不愧疚。早在2020年2月8日郭文贵先生在揭露中共病毒真相时就说武汉冠状病毒是中共人工制造的一种生物武器，从此开启了不可逆转的以毒灭共的大门，唤醒了全世界。中共势必因发动生物武器病毒战争被全世界追责！
+当前普京在一系列权衡之下，终于在纪念二战胜利的背景下，顺水推舟喊出“纳粹意识正在抬头”，同时为了不彻底与中共撕破脸只是点到为止，便不再做任何解释。但此举将为俄罗斯真正与纳粹中共割席埋下了完美的伏笔。
 
-（文章仅代表作者本人观点,与GNews无关）
+**素材来源：**
 
-*审稿：童媚*
+https://cn.reuters.com/article/russia-parade-victory-day-0509-sun-idCNKBS2CR078
 
-*发稿：MG5*
+校对/发稿：飞虹
 
-新闻参考来源：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13130410/5_May-1-1.jpg)
 
-[https://news.sky.com/story/covid-19-world-health-organisation-should-have-declared-global-emergency-earlier-to-prevent-outbreak-of-pandemic-report-finds-12304277](https://news.sky.com/story/covid-19-world-health-organisation-should-have-declared-global-emergency-earlier-to-prevent-outbreak-of-pandemic-report-finds-12304277)
-![]()![](https://gnews.org/wp-content/uploads/2021/05/1-澳喜Logo-2.jpeg)
+**六四文宣大赛，****欢迎大家踊跃投票****：**[**https://gnews.org/poll/poll-article\_1/**](https://gnews.org/poll/poll-article_1/)
+
+**投票注意****事项****：****第一，比如投票视频，一个账号需要同时选中要投的三个视频作品，方可以投票；第二，因为视频比较大，所以需要大家静待一两分钟，然后进入视频投稿界面。第三，投票的战友也有机会获幸运参与奖啊。**
+
+**简体**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 0

@@ -1,11 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 高中生坠楼，因为教导主任的孩子要抢占出国的名额
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1238165/)
+## 【每日快訊】05/12/2021：美国重兵布局东南亚石油通道；以毒灭共带动知识界、文化界共同灭共
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1238352/)
 
-5/10/2021 高二学生林唯麒坠楼身亡，因为教导主任的孩子想占用他出国留学的名额。林的父母认为是伪装成坠楼的谋杀。校方阻挠家长要求调查。
+**制作：Cantonese工作室**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+
+**播报：【文依】资料整理：【Elaine】、【文依】、【An】海报制作：【侬民】、【Penny】视频制作：【Ken】粤语翻译校对：【文雀】**
+
+
+
+## 摘要：
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13103058/1-128.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13103131/2-136.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13101655/3-83.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13101511/4-45.jpg)
+
 
 0

@@ -1,48 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】口罩殇
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1238358/)
+## News Express：五角大楼从以色列撤出120名美军和平民
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1238570/)
 
-配音：香草山福音部 Daxia
+编译：坐看云起时
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+Disclose tv 报道，美国五角大楼从以色列撤出120名美军和平民。
 
 
 
-
-
-它
-一个密不透风的布墙
-挂在耳朵
-耷拉在脸上
-套着口鼻
-阻隔着空气、声音与光
+> JUST IN – Pentagon withdraws 120 US military and civilians from Israel.
+> — Disclose.tv 🚨 (@disclosetv) [May 13, 2021](https://twitter.com/disclosetv/status/1392861888413904898?ref_src=twsrc%5Etfw)
 
 
 
-**文字版原文：[【香草诗词汇】口罩殇](https://gnews.org/zh-hans/660376/)**
+以色列和巴勒斯坦目前局势急剧升温，在以色列军方对加沙的目标进行空袭后，以色列城市在周三遭到了新一轮火箭弹袭击。据德国之声报道，目前加沙至少有65人死亡，以色列有7人死亡。
 
-作者：纽约香草山福音部 Daxia
+哈马斯把攻击以色列的导弹车直接停放在住宅区内，用平民当成自己躲避以色列还击的盾牌。
 
 
 
-音频处理/发稿：雪梨
+> 真相：哈马斯的导弹车被直接停放在一条住宅区的街道上。
+> 
+> 网评：一个用自己平民当盾牌的组织，已经没有存在的必要了！！！ [pic.twitter.com/NudalSqtkT](https://t.co/NudalSqtkT)
+> — 沉默的力量The power of reticence (@2mmbPkM00IJwIUV) [May 13, 2021](https://twitter.com/2mmbPkM00IJwIUV/status/1392752813982195715?ref_src=twsrc%5Etfw)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+自4月中旬进入穆斯林斋月以来，以巴冲突不断升级，现在则达到了数年来最激烈程度，而这期间也正是世界对中共病毒追责步步紧逼的时刻，最近世界处处腥风血雨，背后中共煽风点火的黑手隐然若现。
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+新闻来源：[DW](https://www.dw.com/zh/%E4%B8%AD%E4%B8%9C%E6%9A%B4%E5%8A%9B%E5%8D%87%E7%BA%A7-%E4%BB%A5%E5%B7%B4%E5%86%B2%E7%AA%81%E6%89%A9%E5%A4%A7/a-57504978)
 
 0
