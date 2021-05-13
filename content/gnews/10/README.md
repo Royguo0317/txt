@@ -1,15 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《6.4征文大赛参赛作品》昨天-今天-明天
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1227633/)
+## 汤姆·科顿：托尼·福奇和他的机构必须向美国人民作出回答
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1237705/)
 
-新西兰伊甸农场-小姐姐
+5/12/2021 汤姆·科顿：安东尼·福奇博士或弗朗西斯·柯林斯博士，或两者共同援引了奥巴马政府暂停功能增强实验规定中的脚注来确保对武汉实验室的拨款不中断；托尼·福奇和他的机构必须向美国人民作出回答，他们在资助这些实验室的研究中究竟扮演了什么角色。
 
-
-![]()![](https://gnews.org/wp-content/uploads/2021/05/Picture1-64.png)![]()![](https://gnews.org/wp-content/uploads/2021/05/Picture2-18.png)![]()![](https://gnews.org/wp-content/uploads/2021/05/Picture111.png)
-创作理念：中国人在邪魔恶党-CCP70年的高压统治下，从未失去对自由、民主、法制、信仰的追求，从8964的血洗天安门广场，到香港义士们的不屈不挠，到新中国联邦人对真相的揭露。此次海报创作特意选自每一个历史的伟大时刻，记录中国人的抗争之路。
-
-未来是正道主义，未来是人类的再次伟大，未来是属于我们每一个新中国联邦人！！！
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
 0

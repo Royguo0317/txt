@@ -1,11 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共2015年教科书验证了中共病毒就是超限生物武器
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1237417/)
+## 俄罗斯莫斯科喀秋莎农场 六四文宣图作品（四）
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1237798/)
 
-5/10/2021 闫博士在接受印度共和国电视台参访时表示，2015年由中共解放军生物武器专家徐德忠出版的教科书，是一个非常好的证据来支持闫博士的三份报告，并验证中共病毒实际上就是中共的超限生物武器。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
-+1
+俄罗斯莫斯科喀秋莎农场 4GS
+![]()![](https://cdn.discordapp.com/attachments/795746853945081947/840215288888426546/image0.jpg)
+0
