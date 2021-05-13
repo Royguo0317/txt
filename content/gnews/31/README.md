@@ -1,67 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】有话说（一）
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1239093/)
+## 【病毒专题】COVID-19溯源新进展：美国NIH变相支持中共关于ZIKV “功能增强”研究
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1239326/)
 
-作者：纽约香草山健身部 澄道
+作者：休斯顿星光农场 写作部 文顺
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-03-25-230524-1.jpg)
+5月12日，据推友深度侦察，美国国家卫生研究院（NIH）和疾病预防控制中心（CDC）支持并资助了中共培养的史培勇的寨卡病毒（ZIKV）功能增强研究。
+推友“Zion, a Deplorable老百姓”在推文中深入分析了史培勇与中共的关系。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13171335/Screenshot-2021-05-13-161202.jpg)
 
+*图片来源：网络推特*
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
+该分析显示，美国国家卫生研究院（NIH ）和疾病预防控制中心（CDC）准予并资助了史培勇的ZIKV功能增强研究，中共军事医学科学院（AMMS-PLA）秦成峰教授和武汉病毒所（WIV）裴荣娟参与了该研究。
 
+该研究的专利由史培勇和秦成峰共同拥有，但秦成峰隐瞒了其AMMS背景。塞林博士转发该推文并表示，美国国家卫生研究院（NIH）和疾病预防控制中心（CDC）支持和资助了另一项“功能增强”研究，但研究专利由中共人民解放军获得。
 
+此外，塞林博士在上一条推文中说：“中共培养的史裴勇，现在是五角大楼资助的德克萨斯大学医学分校病毒研究中心的教授，看来这与中共武汉病毒学研究所有关。”
 
-秋风吹过无垠的荒野！
+寨卡病毒(Zika virus,ZIKV)是一种经由蚊媒传播的致畸性黄病毒,与新生儿的先天脑缺陷和成人的格林·巴利综合征有关,这种病毒也可以通过性传播。
 
-那是风儿对草儿的有话说！
+信息来源：
 
-你不给我一个说法啊！
+[https://twitter.com/lawrencesellin/status/1392477332816990208?s=12](https://twitter.com/lawrencesellin/status/1392477332816990208?s=12)
 
-我就给你一个做法！
+编辑/校对/发稿：Helen
 
-那是一个孤胆英雄的有话说！
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
 
-阵雨袭过园中的郁金香！
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
 
-那是雨儿对花儿的有话说！
-
-你强给了我一个七十年的荒唐啊！
-
-我就还你一个take down the CCP!
-
-这是一个自由灵魂的有话说！
-
-![]()![](https://media.discordapp.net/attachments/721544615953432698/836437597524983858/image1.jpg?width=1083&amp;height=609)
-
-Take down the CCP
-
-Take down the CCP
-
-Take down the CCP
-
-（本文仅代表作者观点）
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
 
 
 0
