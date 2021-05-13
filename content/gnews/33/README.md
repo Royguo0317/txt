@@ -1,15 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 视频 – 曙光 The Dawn
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1207983/)
+## 生物武器同时会导致精神疾病
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1238074/)
 
-旧金山金喜农场 – 德先生德教云书院
+5/9/2021 中共生物战教科书中提到，在生物武器袭击期间，需要住院治疗的病人人数突然激增的情况可能会导致敌人的医疗系统崩溃。生物武器不仅会造成广泛的发病率和大规模伤亡，还会造成巨大的心理压力，从而影响战斗力。换句话说，使用生物武器的袭击会导致急性和慢性的心理和精神疾病，比如急性应激反应。
 
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-
-[https://mega.nz/folder/8YJ1DCoK#78g0KlCWgB5Hv73l\_pQd\_w](https://mega.nz/folder/8YJ1DCoK#78g0KlCWgB5Hv73l_pQd_w)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/11043710/%E6%9B%99%E5%85%89%E8%A7%86%E9%A2%91%E5%B0%81%E9%9D%A2.png)
-
-![]()![](https://media.discordapp.net/attachments/723203467002511400/841273458859966464/unknown.png?width=1094&amp;height=617)![This image has an empty alt attribute; its file name is QRcode_GGB_v2.jpg](https://lh4.googleusercontent.com/2Yll3_o8WAewPEle23Re7GrfelivsUtAIPhs7GcD2ESgJg-VONopi2L8w6Ef9y-CnG3MTBoGrEkNhjRYNhpTPx9lEG1pFbewOMFft3CRiJPB4qAMXXonTW_6kfK8FYZElptGfnds)
-+2
++1

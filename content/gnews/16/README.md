@@ -1,49 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】力与量
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1238325/)
+## 美国通货膨胀惊人地急剧上升至2008年以来的最高水平
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1238369/)
 
-配音：香草山福音部 Daxia
+信息来源：德国经济周刊网络版  
+发布时间：2021年5月12日
+翻译 /整理/ 简评： Shuizhuyu
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+美国的通货膨胀率达到了自2008年以来的最高水平。 特别是能源价格急剧上涨。 这些数字也使美国总统乔·拜登的大规模投资计划受到质疑。
 
+美国4月份的通货膨胀惊人地强劲。劳工部周三在华盛顿宣布，与去年同月相比，生活成本上升了4.2％。这是自2008年9月以来的最高水平。3月，该比率低得多，为2.6％。分析师此前预期会有所增长，但不会达到这种程度。平均而言，预期比率为3.6％。
 
+不仅是全年，而且与前一个月相比，居民消费价格均大幅上涨了0.8％。这一增长是分析师预期的四倍。与上月相比，二手车和卡车的价格上涨尤为明显。
 
+与去年同期相比，能源价格上涨幅度特别大。这也是大约一年前他们在第一次病毒波期间严重坍塌的结果。不包括能源和食品的核心通胀率为3.0％。
 
+尽管明显超过了美联储2％的目标通货膨胀率，但美联储已经表示将不会对价格上涨做出反应。她认为发展是一种过渡现象。鉴于原材料价格的急剧上涨以及国际供应链中的众多问题，这种观点正日益受到人们的严厉质疑。
 
+财政部长珍妮特·耶伦（Janet Yellen）上周发挥了更高的利率作用，以防止美国经济在总统拜登（Joe Biden）实施大规模投资计划后过热。耶伦在《大西洋》杂志在线活动的记录中说：“可能有必要提高利率，以确保我们的经济不会过热。”
 
+她谈到利率 “非常适度的增长”。但是，美国经济需要投资才能具有竞争力和生产力。她说：“我认为它们将使我们的经济增长更快。”批评者一再警告称，由于拜登提供了数万亿美元的援助，通货膨胀迅速上升。
 
-一颗水滴
+简评：病毒大流行之后，大好的美国经济，受到极大的挫折，现在通货膨找也达到了自**2008**年以来的最高峰。不光是老百姓的生活会受到巨大的影响，生产原材料的增长才是美国经济的致命伤害。要想走出低谷，增加竞争力和生产力，而拜登政府的数万亿美元的援助计划，成为了通货膨胀的助推器。希望美国能够尽快度过难关。这是美国，相信全球的通货膨胀也已经在路上。** **
 
-坚持，便可石穿
+【免责声明， 本文只代表作者观点， 与 Gnews平台无关。】
 
-一片大海
+信息来源🔗[德国经济周刊](https://www.wiwo.de/politik/ausland/ueberhitzung-der-us-wirtschaft-us-inflation-steigt-ueberraschend-stark-auf-hoechsten-stand-seit-2008/27185132.html)
 
-永恒，便容纳千河百川
+* * *
 
+发布：阿娜
 
-
-**文字版原文：[【香草诗词汇】力与量](https://gnews.org/zh-hans/587016/)**
-
-作者：纽约香草山福音部 Daxia
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++2
