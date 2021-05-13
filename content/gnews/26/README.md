@@ -1,74 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共产外宣玩调包 瑞士雪山落中国
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1236864/)
+## 【各抒己见】就职难辞职也难
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1236927/)
 
-新闻来源：《布赖特巴特》| 作者：Kurt Zindulka | 发布时间：2021年5月11日
-翻译/简评：原乡人 | 校对：SilverSpurs7 | 审核：万人往 | Page：我是球大哥
+作者：喜马拉雅东京樱花团 神的带领
 
-[!\[\]()!\[\](https://spark.adobe.com/page/b8FA99fZxLCJG/images/24197bde-4e28-4a4e-b76c-191f19f22d03.jpg?asset_id=ad6dc90e-85a5-4ed6-b397-d0d55fb1ea3f&amp;img_etag=%2263b0b58585eae8202f894c8d73658ac4%22&amp;size=1024)](https://spark.adobe.com/page/b8FA99fZxLCJG/images/24197bde-4e28-4a4e-b76c-191f19f22d03.jpg?asset_id=ad6dc90e-85a5-4ed6-b397-d0d55fb1ea3f&amp;img_etag=%2263b0b58585eae8202f894c8d73658ac4%22&amp;size=1024)
+![](https://lh6.googleusercontent.com/vAeaKeQYzyXF0JUIqzjgbm22YUGnFAiWKyRWexRzwnFCD-7I4WdP0bT2BvkgmbT-RVo51S2_kH2VQUSfYRQoCkzJvmjLC7C0slR4S6drnxz96CF7zPf0WkSaScKMncNuHPRYx0Vi)
+[图片来源](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Finf.news%2Fzh-hans%2Fcareer%2F90c43a2b8abd77b21b9ae4e342778f4c.html&amp;psig=AOvVaw13i_ARbbUM_uDjpKL_884p&amp;ust=1620664043387000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCLjCmJiCvfACFQAAAAAdAAAAABAX)
 
-2021年5月11日，布赖特巴特新闻网发出中共国大外宣《中国日报》视频造假被举报的新闻。《中国日报》硬是把瑞士摄影家的一段瑞士雪山脚下村里遛狗的视频，标上#GlamorChina“魅力中国”的主题标签，让人误以为这是中共国境内的一个旅游地。今天上推特去看，已经被删除，但是推友的截屏和嘲讽依然还在。
+在中共病毒肆虐之前，人们去找工作会挑挑拣拣，可以提条件，然后干几年也可以跳槽，去寻找工资待遇和环境条件更可心的工作。然而随着中共病毒不断的扩散，人们已经迷失了自己……
 
-中宣部直属的《中国日报》的小编估计在中共国“假骗偷”他人视频早就习以为常，稍作修改就成自己的作品，根本没当一回事，没想到这次碰上了认真的瑞士人，去推特、脸书举报。想起年初在一个“路德时评”的节目中，博士军团戏弄人民网造假习近平照片的插曲，说照相的时间数据与习总参会的时间不符，直播当中，小编居然与“节目互动”，当场修改数据，令人捧腹。
+目前的经济状况下是到处都找不到工作，把自己的条件一降再降也还是找不到工作。 昨天和一朋友聊天说起工作的事，他说以前自己只上半天班，现在要上一整天，若是半天工作公司就不请你了，所以只得上8小时以上。而且要跑步干活的，稍微怠慢一点老板就会炒鱿鱼，而且什么都得干，要是这不行那不行的就只能回家了。所以危机感已经到了无法想象的地步。
 
-党国官媒外宣的代表，一个个如此弱智，以为全世界人都是傻瓜，看不透他们低劣的伎俩。只能说在“伟光正”政党的治下，永远只会劣币淘汰良币。设想被招入如此重要机关的年轻人，一个个被政审层层过关，剩下的估计只有党性和奴性，没有了悟性和人性。常人眼里的Commen Sense（常识）都要他们来指出和矫正，如此体制下培养出的中共的接班人，最后只能是中共的掘墓人。
+而我自己却是辞工难！以前中共病毒之前想辞工就辞了，因为公司进进出出不缺人，但是现在公司却不愿你辞工，毕竟这个工作需要的技术含量挺大的，培养个新人怎么也要半年才能上岗，最快两年才能出徒。每个辞工的人都是经过多年磨练，对业务都是熟手。而高压力的工作又招不到人，所以公司进入两难境地。从提出辞职公司就一拖再拖，甚至和你探讨偶尔上一下班，只要完成任务就好；或者给你放一个月假都可以。一方面员工辞职也是铁了心的。因为疫情限制了我们出行，限制了促销。最可怕的是你不知道你所接触的人是否已经感染病毒了。每天惶惶恐恐，自己稍微累一点都怀疑是不是得了中共病毒，而为了业绩每天又不得不奔波在人群中。
 
-**原文翻译：**
-
-## 独家新闻：共产官媒玩调包，瑞士雪山落中国
-
-[!\[\]()!\[\](https://spark.adobe.com/page/b8FA99fZxLCJG/images/82948d7a-f3b5-477e-b127-55e8f248b4ba.jpg?asset_id=a0133f8c-a71b-48f3-abdd-9931e99dc7d3&amp;img_etag=%22fca995954819bfff2212e65c6c206a22%22&amp;size=2560)](https://spark.adobe.com/page/b8FA99fZxLCJG/images/82948d7a-f3b5-477e-b127-55e8f248b4ba.jpg?asset_id=a0133f8c-a71b-48f3-abdd-9931e99dc7d3&amp;img_etag=%22fca995954819bfff2212e65c6c206a22%22&amp;size=1024)图片来源：Afbeelding van Viola via Pixabay
-
-**《中国日报》是一家官办外宣报纸，周日发布了一段“魅力”视频，一只狗在“中国”雪山脚下的一个村庄里嬉戏，而事实上，该视频拍摄的是瑞士的山脉。**
-
-中国共产党宣传部（中宣部）下属的《中国日报》在推特上发布了这段视频，截至笔者发稿，该视频仍在网上。
-
-随者视频的播放，该报问道：“你难道不想参观这个宁静的度假胜地，在依山傍水的小镇上与你的狗享受玩耍的时光吗？”旁边还有#GlamorChina（#魅力中国）的主题标签。
+人是有极限的，很多人已经疲惫，为了自由出行，为了生活，已不把中共病毒放在眼里，可一旦周围出现了确诊病例就又会突然神经大条，害怕得不得了，这种反反复复在精神上是一种折磨。如今每天犹犹豫豫，每日不断喷洒酒精以防病毒，稍微有点风吹草动就吓得魂不附体，严重得简直就会崩溃。共产党制造的病毒（生物武器）害惨了全世界的人，我们一定要坚持传播真相，让更多的人知道事实，知道只有消灭共产党才能摘口罩。只有消灭共产党才有长久安宁。
 
 
 
-> Why exactly is this tagged as [#GlamorChina](https://twitter.com/hashtag/GlamorChina?src=hash&amp;ref_src=twsrc%5Etfw) ? If I flip the video horizontally it matches 100% with Brienz Switzerland. [#chabuduo](https://twitter.com/hashtag/chabuduo?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/x2yrknRmat](https://t.co/x2yrknRmat)
-> — toxonaut (@CryptoBasel) [May 10, 2021](https://twitter.com/CryptoBasel/status/1391657364034670598?ref_src=twsrc%5Etfw)
-
-
-
-推文翻译：
-
-#GlamorChina 你不想参观这个宁静的度假胜地，在依山傍水的小镇上与你的狗享受玩耍的时光吗？pic.twitter.com/Md83RH23Nd
-
--《中国日报》（@ChinaDaily）2021年5月10日
-
-一些中共实体例如中共国驻欧盟代表团、中共国驻荷兰、匈牙利和奥地利的大使馆——都使用了相同的#GlamorChina标签来宣传中共国境内的各旅游目的地。
-
-其他视频看起来的确是去中共国旅游目的实地拍摄的，但《中国日报》周日分享的遛狗视频却是在瑞士的布里恩茨Brienz拍摄的，位于艾门塔尔阿尔卑斯山区。
-
-瑞士摄影师和摄像师西尔维娅·米歇尔（Sylvia Michel）是著名的索尼世界摄影奖、2018年瑞士国家奖得主，她在3月拍摄了这段原始视频。
-
-米歇尔在接受布赖特巴特伦敦社（Breitbart London）的采访时证实：“这段视频是我在瑞士布里恩茨晨练时拍摄的。”她补充道，此后她向脸书和推特举报这家中共国宣传机构公然盗用她的录像资料，而根据推特和脸书的知识产权规定，这是禁止的。
-
-中共宣传版本的视频被稍作编辑，包括将图像水平翻转，将色彩稍作修正，似乎还让狗嘴里咬上一根棍子。
-
-事件发生后，这位摄影师将其视频的标题更新为：“豪华4K的真正含义（这是瑞士的布里恩茨…不是中国）。”
-
-
-
-社交媒体用户纷纷嘲弄《中国日报》账户的帖子，一位用户写道：“这地方可是瑞士，不，我不会把我的狗带到中共国来遛的，想得美，哈哈。”
-
-另一个人开玩笑说：“瑞士要感谢中共国政府为这个美丽的国家做广告，帮助促进那里的旅游业#GlamourSwitzerland（#魅力瑞士）。”
-
-[原文链接](https://www.breitbart.com/europe/2021/05/11/exclusive-chinese-propaganda-paper-tries-to-pass-off-swiss-alps-as-china/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/b8FA99fZxLCJG/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/b8FA99fZxLCJG/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-
-
-+1
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+*校对：喜马拉雅东京樱花团 / 東洋武士*
+*责任编辑：喜马拉雅东京樱花团 / 文小白*
+*发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13031339/%E4%BA%8C%E7%BB%B4%E7%A0%81-1.jpg)
++4

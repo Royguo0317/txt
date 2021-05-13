@@ -1,11 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士解读福奇否认资助武毒所及解放军2015教科书
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1236831/)
+## 新中国联邦建国一周年
+` 喜韩Gnews中文` [轉載自GNews](https://gnews.org/zh-hans/1236863/)
 
-5/10/2021 闫博士解释了福奇并未否认曾同意国立卫生研究院向武汉病毒所拨款；她建议彻底调查所有中共控制的和新冠病毒相关的实验室；她还谈到解放军2015年教科书描述了将冠状病毒开发成更好的生物武器，目标不是高死亡率，而是摧垮敌方经济和医疗体系；闫博士将其定义为超限生物武器。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
-+1
+作者：闪闪
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13040315/%E5%BB%BA%E5%9B%BD%E4%B8%80%E5%91%A8%E5%B9%B4-2021.05.12-%E9%97%AA%E9%97%AA-%E5%96%9C%E9%9F%A9%E5%86%9C%E5%9C%BA.jpg)
++5

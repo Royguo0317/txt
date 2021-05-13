@@ -1,49 +1,74 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】印度孟买的平民英雄：男子为病人和有需要的人提供免费乘车服务
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1236874/)
+## 共产外宣玩调包 瑞士雪山落中国
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1236864/)
 
-作者：纽约香草山教育组 新生
+新闻来源：《布赖特巴特》| 作者：Kurt Zindulka | 发布时间：2021年5月11日
+翻译/简评：原乡人 | 校对：SilverSpurs7 | 审核：万人往 | Page：我是球大哥
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/b8FA99fZxLCJG/images/24197bde-4e28-4a4e-b76c-191f19f22d03.jpg?asset_id=ad6dc90e-85a5-4ed6-b397-d0d55fb1ea3f&amp;img_etag=%2263b0b58585eae8202f894c8d73658ac4%22&amp;size=1024)](https://spark.adobe.com/page/b8FA99fZxLCJG/images/24197bde-4e28-4a4e-b76c-191f19f22d03.jpg?asset_id=ad6dc90e-85a5-4ed6-b397-d0d55fb1ea3f&amp;img_etag=%2263b0b58585eae8202f894c8d73658ac4%22&amp;size=1024)
 
+2021年5月11日，布赖特巴特新闻网发出中共国大外宣《中国日报》视频造假被举报的新闻。《中国日报》硬是把瑞士摄影家的一段瑞士雪山脚下村里遛狗的视频，标上#GlamorChina“魅力中国”的主题标签，让人误以为这是中共国境内的一个旅游地。今天上推特去看，已经被删除，但是推友的截屏和嘲讽依然还在。
 
+中宣部直属的《中国日报》的小编估计在中共国“假骗偷”他人视频早就习以为常，稍作修改就成自己的作品，根本没当一回事，没想到这次碰上了认真的瑞士人，去推特、脸书举报。想起年初在一个“路德时评”的节目中，博士军团戏弄人民网造假习近平照片的插曲，说照相的时间数据与习总参会的时间不符，直播当中，小编居然与“节目互动”，当场修改数据，令人捧腹。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13040918/%E5%9B%BE%E7%89%872-70.png)图片来源：今日印度
+党国官媒外宣的代表，一个个如此弱智，以为全世界人都是傻瓜，看不透他们低劣的伎俩。只能说在“伟光正”政党的治下，永远只会劣币淘汰良币。设想被招入如此重要机关的年轻人，一个个被政审层层过关，剩下的估计只有党性和奴性，没有了悟性和人性。常人眼里的Commen Sense（常识）都要他们来指出和矫正，如此体制下培养出的中共的接班人，最后只能是中共的掘墓人。
 
-郭先生此前曾提到印度电影《白虎》，我看过之后感慨很深，片中生动地刻画了印度的种姓制度对各个阶层人的影响。上等人肤色较白，或经商、或从政，通常都有国外留学经历，掌握大量的社会资源，下等人肤色较黑，教育程度有限，通常从事的都是服务类的工作。片中的主人公在高潮处因为妒忌生恨，在一个雨夜，痛下狠手，击杀了他的主人，并且抢走了巨款，逃到一个陌生城市，开始新生活。因为跟着主人，耳濡目染，主人公学会了贿赂、走上了官商 “合作”之路，实现了人生的“逆袭”。
+**原文翻译：**
 
-根据约翰霍普金斯大学的疫情数据，截至5月12日，印度的总病例数为2370万，死亡人数达25.8万，新增病例36.2万人。疫情之下，印度的人民生活状况如何？本文在此分享今日印度网站报道的一个关于印度平民的故事，帮助大家了解印度的情况。今日印度 （英语：India Today）是一个使用印度英语的印度新闻杂志和新闻电视频道。《今日印度》由印度企业家魏迪亚·维拉斯·皮尤里（Vidya Vilas Purie）创建于1975年，他的女儿担任编辑，他的儿子担任出版商。主要报道其国内及全球最新的政治、经济新闻等。
+## 独家新闻：共产官媒玩调包，瑞士雪山落中国
 
-谚语说，对人的服务就是对上帝的服务。孟买居民达塔特雷·萨万特 (Dattatray Sawant)对此深信不疑，他的三轮车上的标语牌也显示了这一信息。随着第二波疫情肆虐整个印度，特别是马哈拉施特拉邦，萨万特已经成为他所在的嘉达可帕（Ghatkopar）地区居民的“救世主”。
+[!\[\]()!\[\](https://spark.adobe.com/page/b8FA99fZxLCJG/images/82948d7a-f3b5-477e-b127-55e8f248b4ba.jpg?asset_id=a0133f8c-a71b-48f3-abdd-9931e99dc7d3&amp;img_etag=%22fca995954819bfff2212e65c6c206a22%22&amp;size=2560)](https://spark.adobe.com/page/b8FA99fZxLCJG/images/82948d7a-f3b5-477e-b127-55e8f248b4ba.jpg?asset_id=a0133f8c-a71b-48f3-abdd-9931e99dc7d3&amp;img_etag=%22fca995954819bfff2212e65c6c206a22%22&amp;size=1024)图片来源：Afbeelding van Viola via Pixabay
 
-在孟买的疫情危机中，萨万特一直为病人和有需要的人提供免费的汽车搭乘服务。萨万特出生于浦那的博卡里村，在该市完成学业后，于2000年搬到孟买，获得教育学学士学位。目前是加特科帕尔的居民，萨万特是一名教师，放学后开三轮车。在疫情中，萨万特一直为有需要的人以及患者和老年公民提供免费的接送服务。
+**《中国日报》是一家官办外宣报纸，周日发布了一段“魅力”视频，一只狗在“中国”雪山脚下的一个村庄里嬉戏，而事实上，该视频拍摄的是瑞士的山脉。**
 
-“我在教8、9和10年级的学生英语。三年前，我贷款买了一辆车，放学后开始驾驶兼职开车”。达萨万特告诉今日印度的记者。由于学校在疫情后停课，萨万特现在整天都在开车。“我早上7点离开家，下午回家休息一个小时左右，然后吃午饭。下午4点左右，我再次离开家，一直开到晚上9点左右，”他补充说，“经常有病人和老年公民找到我，要求我把他们送到医院或护理中心。我让他们免费乘坐汽车。大多数时候，我也会为老人提供免费乘车服务，让他们去疫苗接种中心或满足医疗需求，我住在加特科帕尔的一个贫民窟里。大多数居民的状况都很糟糕，因为他们是按日计酬的工人。如果他们要求我用我的汽车载他们一程，我就免费带他们去医院或护理中心。如果我不得不从我的口袋里花一些额外的钱，那又怎么样呢？毕竟，为人服务就是为神服务。我的车上也有这张海报。这是我为社会做出贡献的唯一方式。”萨万特说。
+中国共产党宣传部（中宣部）下属的《中国日报》在推特上发布了这段视频，截至笔者发稿，该视频仍在网上。
 
-马哈拉施特拉邦政府有可能将该邦正在进行的类似于封锁的限制措施延长到5月31日，尽管昨始报告了近37,000个冠状病毒病例，是41天以来的最低峰值。根据印度卫生部的数据，到目前为止，该州已经报告了5,138,973例冠状病毒确诊病例和76,398例死亡病例，自该大流行病开始以来。就病例和死亡人数而言，它是印度受影响最严重的州。让我们为印度人民祈福，希望疫情的情况能有所缓解！
-
-参考阅读：
-
-https://www.indiatoday.in/lifestyle/people/story/covid-hero-of-the-day-from-mumbai-man-provides-free-auto-rides-to-patients-and-the-needy-1801328-2021-05-11
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
+随者视频的播放，该报问道：“你难道不想参观这个宁静的度假胜地，在依山傍水的小镇上与你的狗享受玩耍的时光吗？”旁边还有#GlamorChina（#魅力中国）的主题标签。
 
 
 
-**更多资讯，更多关注**
+> Why exactly is this tagged as [#GlamorChina](https://twitter.com/hashtag/GlamorChina?src=hash&amp;ref_src=twsrc%5Etfw) ? If I flip the video horizontally it matches 100% with Brienz Switzerland. [#chabuduo](https://twitter.com/hashtag/chabuduo?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/x2yrknRmat](https://t.co/x2yrknRmat)
+> — toxonaut (@CryptoBasel) [May 10, 2021](https://twitter.com/CryptoBasel/status/1391657364034670598?ref_src=twsrc%5Etfw)
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+推文翻译：
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+#GlamorChina 你不想参观这个宁静的度假胜地，在依山傍水的小镇上与你的狗享受玩耍的时光吗？pic.twitter.com/Md83RH23Nd
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+-《中国日报》（@ChinaDaily）2021年5月10日
 
-0
+一些中共实体例如中共国驻欧盟代表团、中共国驻荷兰、匈牙利和奥地利的大使馆——都使用了相同的#GlamorChina标签来宣传中共国境内的各旅游目的地。
+
+其他视频看起来的确是去中共国旅游目的实地拍摄的，但《中国日报》周日分享的遛狗视频却是在瑞士的布里恩茨Brienz拍摄的，位于艾门塔尔阿尔卑斯山区。
+
+瑞士摄影师和摄像师西尔维娅·米歇尔（Sylvia Michel）是著名的索尼世界摄影奖、2018年瑞士国家奖得主，她在3月拍摄了这段原始视频。
+
+米歇尔在接受布赖特巴特伦敦社（Breitbart London）的采访时证实：“这段视频是我在瑞士布里恩茨晨练时拍摄的。”她补充道，此后她向脸书和推特举报这家中共国宣传机构公然盗用她的录像资料，而根据推特和脸书的知识产权规定，这是禁止的。
+
+中共宣传版本的视频被稍作编辑，包括将图像水平翻转，将色彩稍作修正，似乎还让狗嘴里咬上一根棍子。
+
+事件发生后，这位摄影师将其视频的标题更新为：“豪华4K的真正含义（这是瑞士的布里恩茨…不是中国）。”
+
+
+
+社交媒体用户纷纷嘲弄《中国日报》账户的帖子，一位用户写道：“这地方可是瑞士，不，我不会把我的狗带到中共国来遛的，想得美，哈哈。”
+
+另一个人开玩笑说：“瑞士要感谢中共国政府为这个美丽的国家做广告，帮助促进那里的旅游业#GlamourSwitzerland（#魅力瑞士）。”
+
+[原文链接](https://www.breitbart.com/europe/2021/05/11/exclusive-chinese-propaganda-paper-tries-to-pass-off-swiss-alps-as-china/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/b8FA99fZxLCJG/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/b8FA99fZxLCJG/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+
+
++1

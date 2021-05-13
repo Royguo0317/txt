@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## G系列重建现代金融
-` developer001` [轉載自GNews](https://gnews.org/zh-hans/1236129/)
+## 新中国联邦一周年回顾 — 文贵说
+` developer001` [轉載自GNews](https://gnews.org/zh-hans/1236128/)
 
-G-News编辑部 作者: 文运
+GNEWS编辑部 作者: 文贵说
 
-0
++2

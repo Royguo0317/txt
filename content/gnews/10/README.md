@@ -1,81 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【班农战斗室】940-941-942期简讯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1237111/)
+## 【樱华乐章8期】人物乐章 Eric
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1237132/)
 
-#### 翻译：七彩光
+作者：喜马拉雅东京樱花团 /待命（文晓）
 
-#### 校对：小红帽
+![](https://lh6.googleusercontent.com/qzU0EHJFyMZBjl5LEh3io0Z7557Gtjpqy11PHs929jH2plgpzDc4H55buGAnDVlsjPz5mSH2VMqWfcKKXkuAQ0AkZEL_2yWBAoyAN37RuoLkoIkFW-_9C42p3hAobXe2qqrrT_k6)
+图片源自日本樱花团
 
-#### 编辑：文  泓
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13053119/940-941-942_.png)
-图片来源：墨尔本雅典娜农场设计组（精灵蓝）
+【樱华乐章】记录灭共路上的每一个旋律，本期节目邀请的是【我是音雄】的最具人气奖获奖者、爆料革命著名主持人Eric先生，以及他独具特色的歌。
 
-**主持人：史蒂夫****.班农**
+Eric先生是战友们耳熟能详的爆料革命主持人，他以特有的幽默、恰到好处的表达分寸，以及其主持语言反映出的文化底蕴，赢得了广大战友们的喜爱。以致本期【樱华乐章】的直播，收获了【樱华乐章】开播以来前所未有的欢笑声。Eric先生在直播中透露，他生活中是个沉默寡言的人，没有学过唱歌，只是爱好，是爆料革命使他操起了心爱的吉他、放开了歌喉，并坚持用原生态的、发自内心的、自创的演唱风格高歌爆料革命。多位战友留言说，Eric先生是闷骚型的人，笔者为了完成这篇GNEWS，反复看了两次重播，体会是：战友们说的Eric先生的闷骚，是对他的喜爱之表达。其实，Eric先生所展现出来的，是一种智慧的冷幽默。出其不意、忽冷忽热的冷幽默，需要天赋、需要智慧、需要扎实的文化功底、需要自嘲的勇气、需要极强的把控力。因为工作关系，笔者直播只赶上了结尾，在主持人的提示下，隔屏收获了Eric先生的飞吻。这是战友之间的，超越了凡间之爱的高尚的爱，是战友之间对爆料革命的共鸣。通过主持人的介绍，我们还知道了Eric先生的英文非常棒，其同声传译之功，也正为爆料革命发挥着重要作用。非常感谢【樱华乐章】为我们较详细的介绍了这位坚定的爆料革命的好战友！
 
-嘉宾：Matt Gaetz, AG Ken Paxton, Mike Lindell, Naomi Wolf, Raheem Kasssam, Frank Gaffney, Boris Epshteyn, Darren Beattie, Natalie Winters, Sloan Rachmuth, Daniel Turner
+本期节目介绍了Eric先生演唱的6首歌曲。
 
-#### **1、马特•盖茨披露撤销利兹•切尼（Liz Cheney）举行的闭门会议内情**
+第一首歌  追寻奇迹
 
-众议员马特•盖茨（Matt Gaetz）周三向《战斗室》详细介绍了将利兹•切尼（Liz Cheney）踢出共和党领导层的闭门会议上发生幕后细节。
+这首歌系Eric先生的原创歌曲，Eric先生把我们的喜马拉雅视为奇迹，唱出了他为之努力和他希望早日到达喜马拉雅的真切之情。
 
-【备注：** **马特·路易斯·盖茨二世（Matthew Louis Gaetz II，1982年5月7日－）是美国共和党籍政治人物，美国众议院议员，代表佛罗里达州第1选区。】
+第二首歌[《莘县阳谷县搭县》](https://drive.google.com/drive/folders/1W4n35TXpPeL_FE54VPRcuempKWxmTb32)
 
-盖茨说：“我们都知道一段时间以来，利兹•切尼是华盛顿特区建制派的领头羊。”
+这首歌系Eric先生的原创歌曲，创意源于郭文贵先生直播中常说的一句话：莘县阳谷县搭县，咱走走看。 Eric先生在直播中就这首歌，非常易懂的向战友们讲解了“莘县阳谷县搭县”的出处及其含义。
 
-盖茨说，会议开始时，切尼发表了关于“她将领导该党，使其重新回归林肯精神”的讲话。
+第三首歌[《姑娘、我沒见过你》](https://drive.google.com/drive/folders/1W4n35TXpPeL_FE54VPRcuempKWxmTb32)
 
-众议员弗吉尼亚•福克斯（Virginia Foxx）随后提出了一项罢免切尼的决议，并“提醒利兹•切尼，一个没有追随者的领导人只是一个人在散步”。
+这首歌系Eric先生的原创歌曲，他不仅倾情演唱了这首歌，还巧妙地添加了表演色彩，将人类的淳朴和真实演绎得惟妙惟肖，使得现场嘉宾们笑得好享受、好开心。
 
-【备注：弗吉尼亚•安•福克斯（Virginia Ann Foxx， 1943年6月29日）是美国北卡罗来纳州第五国会区的代表，是共和党籍，从2013年1月至2017年1月担任众议院共和党会议秘书。自2019年起，她是众议院教育和劳工委员会的排名成员，并在2017年至2019年担任该委员会主席。】
+第四首歌[《玉米地之歌》](https://drive.google.com/drive/folders/1W4n35TXpPeL_FE54VPRcuempKWxmTb32)
 
-盖茨说，罢免切尼会议主席职务的无记录投票只是正在进行的战斗中的一步棋，这场战斗不是红军对蓝军，而是 “建制派对我们其他所有人的战斗”。他强调了招募更多MAGA候选人的重要性，因为 “（落实）人员才能（执行）政策”。
+这首歌系Eric先生的原创歌曲，创意源于郭文贵先生直播中说过的玉米地的故事。爆料革命使中华大地各个角落那片片沉寂的玉米地焕发了新的生机，变得更令人憧憬。通过文贵先生在爆料革命进程中，用玉米地这个通俗的概念对人性的唤起，再加之Eric先生特色的演唱，拓展了战友们对新中国联邦这块“玉米地”的更广阔的遐想和期盼。
 
-他说：“这场战斗今天还没有结束。”
+第五首歌[《像我这样的人》](https://drive.google.com/drive/folders/1W4n35TXpPeL_FE54VPRcuempKWxmTb32)
 
-#### 2、迈克·林德尔说：亚利桑那州的选举审计是推翻乔•拜登非法选举的关键
+这是首翻唱歌曲，Eric先生节目中说，这是首他喜欢的歌。我们听了也感觉好享受哦。
 
-“我的枕头（My Pillow）”首席执行官迈克•林德尔指出，亚利桑那州的选举审计是推翻乔•拜登非法选举的关键。
+第六首歌[《战友的爱》](https://drive.google.com/drive/folders/1W4n35TXpPeL_FE54VPRcuempKWxmTb32)
 
-“我们将把这个证据提交给最高法院，”林德尔周二告诉《战斗室》。
+这首歌由【纤夫的爱】改编歌词而成，Eric和文艺两位战友的倾情演唱，赋予了这首歌爆料革命的战友情之新意，优美的歌声、默契的和音，升华了战友之情，感人至深。
 
-但首先，林德尔说，公众必须看到他在FrankSpeech.com上记录的有关拜登普遍存在的选举欺诈和操纵选票的证据。
 
-在谈及最高法院的九位法官时，林德尔说：“整个事情也是一个营销的事情，他们（法官）也是人，当他们在5-6周后看到这些证据，那么他们就会查看整个案子。”
 
-林德尔说，亚利桑那州是让真相大白的关键。
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+*校对：喜马拉雅东京樱花团 / 鸿雁*
+*责任编辑：喜马拉雅东京樱花团 / 文小白*
+*发布：喜马拉雅东京樱花团 /*煙火1095
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13031339/%E4%BA%8C%E7%BB%B4%E7%A0%81-1.jpg)
 
-“然后，你就有了一把冒烟的枪（指无争议的确凿证据），”林德尔说。
 
-林德尔说，亚利桑那州必须获得监事会目前对参议院隐藏的路由器。
-
-“甚至在开始选举前，他们就在亚利桑那州注入了选票”，林德尔说：“路由器将会证明这一点。”
-
-林德尔说，马里科帕（Maricopa）县拒绝交出路由器的原因显而易见。
-
-他说：“（因为）这些路由器将准确显示——证实（网络）攻击来自哪里，它的数据非常精确，精确到IP地址。”
-
-林德尔说：“这就是为什么他们试图阻止我们获得路由器，他们知道数据信息藏在哪里。”
-
-#### 3、120名退役的军官警告说，马克思主义（思潮）正在攻陷美国社会
-
-超过100名退役的军方官员警告说，美国社会即将被马克思主义思潮所攻陷。
-
-弗兰克•加夫尼（Frank Gaffney）报道了著名将军们发出的信件，信件敦促美国人迫切需要捍卫宪法。
-
-【备注：弗兰克•加夫尼（Frank Gaffney）是外交、国防及国家安全政策专家，目前担任“应对中共当前危机委员会” （Committee on the Present Danger:China）的副主席，并是一家电台的主持人。他曾担任里根政府时期国防部代理助理部长，也曾是《华盛顿时报》（Washington Times）的专栏作家和国家评论（National Review）网上杂志的编辑。】
-
-加夫尼说，针对美国的“马克思主义进军路线”包括民主党人通过H.R.1法案将选举偷窃制度化的追求、批判种族理论、边境不安全、拜登行政命令的独裁性质。
-
-参考资料：[维基百科](https://www.wikipedia.org/)
-
-原文链接：
-
-1.  [Matt Gaetz Reveals What Happened in Closed Door Meeting to Oust Liz Cheney](https://warroom.org/2021/05/12/matt-gaetz-reveals-what-happened-in-closed-door-meeting-to-oust-liz-cheney/)
-
-2.  [Mike Lindell Says Arizona Audit is Key in Plan to Overturn Illegitimate Biden Election](https://warroom.org/2021/05/12/mike-lindell-says-arizona-audit-is-key-in-plan-to-overturn-illegitimate-biden-election/)
-
-3.   [120 Retired Flag Officers Warn America Falling to Marxism](https://warroom.org/2021/05/12/120-retired-flag-officers-warn-america-falling-to-marxism/)
-
-+1
++3
