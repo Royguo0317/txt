@@ -1,15 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《6.4征文大赛参赛作品》昨天-今天-明天
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1227633/)
+## 中共2015年教科书验证了中共病毒就是超限生物武器
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1237417/)
 
-新西兰伊甸农场-小姐姐
+5/10/2021 闫博士在接受印度共和国电视台参访时表示，2015年由中共解放军生物武器专家徐德忠出版的教科书，是一个非常好的证据来支持闫博士的三份报告，并验证中共病毒实际上就是中共的超限生物武器。
 
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-![]()![](https://gnews.org/wp-content/uploads/2021/05/Picture1-64.png)![]()![](https://gnews.org/wp-content/uploads/2021/05/Picture2-18.png)![]()![](https://gnews.org/wp-content/uploads/2021/05/Picture111.png)
-创作理念：中国人在邪魔恶党-CCP70年的高压统治下，从未失去对自由、民主、法制、信仰的追求，从8964的血洗天安门广场，到香港义士们的不屈不挠，到新中国联邦人对真相的揭露。此次海报创作特意选自每一个历史的伟大时刻，记录中国人的抗争之路。
-
-未来是正道主义，未来是人类的再次伟大，未来是属于我们每一个新中国联邦人！！！
-
-0
++1

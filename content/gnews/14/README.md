@@ -1,111 +1,101 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读福奇听证会在美国全面发酵
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1237605/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（二十）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1237654/)
 
-直播视频：
+作者：纽约香草山信息部 6zero4
 
-
-
-《路德时评》2021年5月12日早间节目主要内容：
-
-一、中共打压特斯拉股价
-
-近日，由于中共策划了一系列抹黑特斯拉事件，它利用财经媒体在墙内大肆宣传特斯拉将放弃在中共国建厂，最终导致特斯拉股价大幅下滑，
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13080701/%E7%89%B9%E6%96%AF%E6%8B%89%E8%82%A1%E4%BB%B7.jpg)[特斯拉股价](https://www.google.com.hk/search?q=%E7%89%B9%E6%96%AF%E6%8B%89%E8%82%A1%E4%BB%B7&amp;newwindow=1&amp;safe=strict&amp;ei=M_WbYOCIKoaW4-EPy7qb6Ac&amp;oq=%E7%89%B9%E6%96%AF%E6%8B%89%E8%82%A1%E4%BB%B7&amp;gs_lcp=Cgdnd3Mtd2l6EANQmKUBWPqvAWD3sQFoAHAAeACAAYMEiAGWE5IBBTQtMy4ymAEAoAEBqgEHZ3dzLXdpesABAQ&amp;sclient=gws-wiz&amp;ved=0ahUKEwig7u_Ru8TwAhUGyzgGHUvdBn0Q4dUDCA4&amp;uact=5)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-路德社评论：
+5月12日塞林博士的7连推：
 
-1、中共借股价大跌要挟特斯拉必须与中共合作，这也让马斯克看清楚中共的邪恶。其实，特斯拉电动汽车只是特斯拉体系中的第一个环节，当特斯拉体系建立起来后，全世界几乎不可能有其他汽车生产商能超越。
-
-2、当天空WIFI建立起来后，每辆特斯拉电动车都将成为天空WIFI接收站，未来还能实现无线充电，SpaceX的操纵系统未来也有可能被使用在特斯拉汽车上。近日，特斯拉储备了大量比特币和狗币用于电子支付，他们将建立一套跨过银行的新型支付系统。除此之外，特斯拉正在准备编写新的手机操作系统，手机系统和电视未来还可以接入天空WIFI，未来，特斯拉汽车哦电池性能得到提升后还可以给为家里供电。
-
-3、中共非常害怕特斯拉，所以就必须打压特斯拉的市场和股票，马斯克的高明就在于他所有操作都跳过了华尔街，马斯克借平民经济来建立和发展市场。中共的崛起绝对离不开硅谷和华尔街的支持，他们都是大重启计划的核心力量，而特斯拉为破解大重启计划提供了技术支持，特斯拉体系不仅将拥有庞大的用户数据，其产品还解决环保问题，以及打破最后一公里的垄断。
-
-二、福奇听证会在美国全面发酵
-
-福克斯著名主持人塔克在节目中直接说：病毒几乎可以肯定来自于武汉实验室！他还说，福奇资助中共制造中共病毒，应该起诉福奇。
-
-而嘉宾则反对起诉福奇，他说，中共肯定在做「功能增强」实验，我们要把焦点放在中共身上，不能让福奇当反派。
+第1推，转发“Zion, a Deplorable老百姓”战友回复塞林博士和“火来2号”战友的推文：更为严重的是，曹雪涛与NIH的Francis S. Collins和Antony Fauci等都有频繁的接触，曹于2015至2017年间担任北京协和医学院(PUMC)院长，重点负责双方资源共享与人力资源培训，并贴上双方互访及出席研讨会的官方报道之网页截图。COVID-19侦探“Zion, a Deplorable老百姓”的帖子非常关键，因为PUMC经由CAMS和AMMS两个桥梁，与PLA有密切的关联。
 
 
 
-> 重磅！福克斯塔克直接说：病毒几乎可以肯定来自于武汉实验室！
-> 他说，福奇资助中共制造Covid-19，应该起诉福奇。
-> 而嘉宾反对起诉福奇，他说，中共肯定在做「功能增强」实验，我们要把焦点放在中共身上，不能让福奇当反派。
-> 
-> 那要让谁当反派呢？ [pic.twitter.com/xtILkSXf7t](https://t.co/xtILkSXf7t)
-> — 珠穆朗玛 (@ZanXixi) [May 12, 2021](https://twitter.com/ZanXixi/status/1392420609506766850?ref_src=twsrc%5Etfw)
+> What [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@ZionaEmanuel](https://twitter.com/ZionaEmanuel?ref_src=twsrc%5Etfw) posts is important because Peking Union Medical College has close links with the People's Liberation Army through the Chinese Academy of Medical Sciences and the Academy of Military Medical Sciences.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/nmUY8zeDYD](https://t.co/nmUY8zeDYD)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 12, 2021](https://twitter.com/LawrenceSellin/status/1392339083263979522?ref_src=twsrc%5Etfw)
 
 
 
-路德社评论：
-
-1、该访谈已经默认中共病毒来自功能增强型实验，他们讨论的重点就是福奇在为武毒所提供资金支持前是否知道武毒所正在进行功能增强型实验，接下来的焦点人物就轮到NIH资金的二级代理打杂客了，是他将NIH资金转给武毒所，全世界开始认识到功能增强型实验违反了《禁止生物武器公约》。
-
-2、福奇和打杂客都没有想到他们会被质询，他们未来还有可能面临法庭审判，这一切都是爆料革命闫博士和所有战友推动的结果。闫博士自从去年一月通过路德社揭露中共病毒真相后，她帮助美国调查部门梳理了所有脉络，加快了情报收集、分析和调查速度，现在，仍然有无数爆料革命战友在帮忙Sellin上校收集中共从事生物武器研究的证据。
-
-3、美国各界现在对中共病毒的实验室来源真相认识越来越深，从Sellin上校公开的中共生物武器计划信息来看，大量中共国军方病毒专家参与了病毒收集和功能增强型研究，这说明中共病毒战计划就是由中共军方全面主导的，是中共的国家行为。
-
-三、闫博士接受Newsmax采访评论福奇听证会
-
-闫博士接受Newsmax采访的主要内容如下：
-
-A、福奇承认资助武毒所，但他否认资助该所进行功能增强型研究，闫博士认为武毒所在向NIH申请资金时不可能写上“资金将被用于功能增强型研究”这句话，福奇就是利用这点为自己辩护；
-
-B、闫博士支持要彻查所有和中共病毒相关的实验室，这背后是一张巨大的学术网络，有中共军事医科大学、港大P3实验室等多家实验室参与，这些实验室都获得NIH资金支持，但是这些协议中都没有写明资金将被用于功能增强型研究；
-
-C、中共通过实验室将病毒武器化，并将其投放到全世界，这就是中共超限生物战计划的成果；
-
-D、闫博士第三篇报告引用了《非典非自然起源和人制人新种病毒基因武器》这本书中介绍如何运用SARS病毒或其他冠状病毒来制造超限生物武器，该武器不仅要具备高致命性特征，而且还能摧毁敌人的社会秩序（经济和医疗体系）。
+第2推，转发DCR战友的推文：中共为了维持其在生物安全领域的优势，疯狂搜寻新型致病性病毒是几十年来的一项国家计划，这有一项以军民融合形式研究动物衍生病毒及其致病性的“六年计划”的项目摘要。并贴上该项目取得重要进展的报道之网页截图，及参与到该项目的关键人物，如赵国屏、石正丽、张永振、曹务春、徐建国和梁国栋的照片，并附上一张“CCP打造了潘多拉盒子并放出了恶魔”的宣传图片。COVID-19侦探DCR的帖子，呈现出何彪与涂长春是军事兽医研究所所长金宁一将军的病毒收集人员，他们渗透了五角大楼资助的病毒研究中心德州大学医学院（UTMB）。（赵国屏、张永振、徐建国和梁国栋真容浮出水面）
 
 
 
-> 20210511閆博士接受Newsmax採訪2/2
-> 7.Newsmax也提到徐德忠的那本書
-> 8.中共國將病毒武器化，其突出成果就是這個肆虐全球的病毒
-> 9.超限生物武器 [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) 
-> 10.這本書介紹了如何用SARS1以及相關冠狀病毒，製造致命性不需太高但足以摧毀敵國社會秩序（經濟和醫療系統）的生物武器 [pic.twitter.com/V53ggbKhWQ](https://t.co/V53ggbKhWQ)
-> — Andy5 (@andy5\_123) [May 12, 2021](https://twitter.com/andy5_123/status/1392406124469440515?ref_src=twsrc%5Etfw)
+> Important post by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@DCR78405411](https://twitter.com/DCR78405411?ref_src=twsrc%5Etfw) Biao He & Changchun Tu were virus collectors for Gen. Ningyi Jin, head of the Military Veterinary Research Institute, whose personnel have infiltrated the Pentagon-funded virus research center, University of Texas Medical Branch. [https://t.co/FlzNjrFXkQ](https://t.co/FlzNjrFXkQ)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 12, 2021](https://twitter.com/LawrenceSellin/status/1392342865737625602?ref_src=twsrc%5Etfw)
 
 
 
-路德社评论：
-
-1、闫博士的发言内容非常完整，完全以事实为依据，非常可观，她还成功避开了引起美国两党矛盾的陷阱。
-
-2、中共开始利用网络水军将所有责任推给福奇，而闫博士帮助福奇梳理了脉络，福奇将来肯定会站出来反对中共。
-
-3、美国司法审判很可能会从两方面来审理福奇案件，就要确认福奇是直接参与者还是幕后操纵者，福奇虽然不是直接参与者，但是如果法庭判定福奇是幕后操纵者，同样将面临牢狱之灾，所以福奇正承受着极大的压力，他必须要配合调查，并公开支持调查中共实验室。
-
-4、如果将中共病毒定为超限生物武器，那就意味着这是中共有策划，有预谋的行动，为了给中共定罪，美国必须要挖出中共生物战计划的整个学术网络，美国这次就是要彻底结束中共体制，否则西方的高科技都会被中共用来威胁人类安全。
-
-5、班农先生在Warroom节目中回顾了川普政府去年一月份是否要禁止中共国航班这件事的争论，纳瓦罗在去年1月底就与福奇进行过激烈的争论，纳瓦罗先生支持禁飞，而福奇先生反对。班农先生是英文世界第一个向全世界揭露中共病毒真相的政治家，他为西方世界做出了巨大的贡献，班农先生此前还成功运作了川普总统大选和英国脱欧。
+第3推，再次转发DCR战友的推文：这些PLA将领是什么身份？病毒学家？医生？他们是中共生物安全与生物防御部门的负责人，中共超限生物战的执行者COVID-19疫情的肇事者，中共营造这种全球恐怖主义。并贴上这些部门负责人作为导师在2017年秋博士后研究人员招收简章的网页截图，及这些导师专业特长的介绍及其照片，他们是：周育森、王升启、贺福初、夏咸柱和金宁一。COVID-19侦探DCR再次出手不凡，呈现出了关键位置的PLA将军之部分细节，让我们揭露他们的全部罪恶，尤其是在CCP生物战计划中的角色以及他们与国际科学家的关联，让全世界知道他们！（王升启真容浮出水面）
 
 
 
-> 20210511納瓦羅先生參加戰鬥室開場
-> 1.Rand Paul參議員在國會山跟「蝠」奇針鋒相對
-> 2.MSNBC的Nicole Wallace也說功能增強就是將病毒武器化
-> 3.納瓦羅先生：鐘的國會聽證，是歷史時刻，福奇完蛋了
-> 4.福奇的狡辯就像在說土豆不是馬鈴薯一樣
-> 5.納瓦羅先生簡要梳理7分鐘視頻時間軸[@lude\_media](https://twitter.com/lude_media?ref_src=twsrc%5Etfw) [pic.twitter.com/Kllf7l7LL2](https://t.co/Kllf7l7LL2)
-> — Andy5 (@andy5\_123) [May 12, 2021](https://twitter.com/andy5_123/status/1392427196992479232?ref_src=twsrc%5Etfw)
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@DCR78405411](https://twitter.com/DCR78405411?ref_src=twsrc%5Etfw) strikes gold again providing details of key People's Liberation Army generals. Let's expose them all, their roles in the Chinese Communist Party's biowarfare program and their connections with international scientists. Make them all famous.[#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/B5Jmoavu5C](https://t.co/B5Jmoavu5C)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 12, 2021](https://twitter.com/LawrenceSellin/status/1392346667677016066?ref_src=twsrc%5Etfw)
 
 
 
-6、纳瓦罗在班农先生节目中揭露巴里克和打杂客是NIH拨款武毒所的实际操作人，爆料革命闫博士还是第一个揭露巴里克与中共勾兑的美国病毒家。巴里克和打杂客发表的研究论文就足以证明他们参与了功能增强型研究，但是福奇为自己辩护说他不知道这些事情。从福奇在听证会上的表现可以判断，福奇心里非常恐惧。
+第4推，转发“德意志之鹰” 战友的中文推：连续传代(Serial Passage)其实是技术含量很低的操作，只需要大量的实验动物，人力物力，秦川领衔建立了世界上最大的动物资源库，并匹配上了，并附上已故的周育森等人发表在自己的AMMS网站的科学论文之链接，以及提到北京华阜康生物科技股份有限公司，又一个军民融合的案例，同时附上之前挖掘到的关于它的推特链接，并贴上他们与有关机构合作并发表科研论文的网页截图，以及姜世勃、秦成峰、周育森和秦川的照片。重要：COVID-19侦探“德意志之鹰”在COVID-19产生的网络里连接上了更多的节点，如与PLA关联的姜世勃、周育森，以及动物建模专家秦成峰和秦川，姜世勃和秦成峰是对美国病毒研究计划进行渗透的关键人物。
 
-7、现在，美国科学界已经完全认可闫博士，认可她的三份报告，病毒真相大反攻正式开始。
 
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
 
-文章撰写：【迦密】  编辑：【西奈】
+> Important – [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@dezying](https://twitter.com/dezying?ref_src=twsrc%5Etfw) connects more dots in the creation of the [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw). PLA-linked Shibo Jiang, Yusen Zhou, animal modeler Chuan Qin & Cheng-Feng Qin. Shibo Jiang & Cheng-Feng Qin are key infiltrator of U.S. virus research programs. [https://t.co/zpPgjdHUjf](https://t.co/zpPgjdHUjf)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 12, 2021](https://twitter.com/LawrenceSellin/status/1392357897598902272?ref_src=twsrc%5Etfw)
 
-本文仅代表作者个人观点
 
-+2
+
+第5推，中共国培养的石培勇，现任五角大楼注资的UTMB病毒研究中心的教授，似乎与PLA和WIV（单超）有关联。并贴上单超、秦成峰和石培勇等“CCP科学家”的照片及其联合发表科研论文的网页截图。（石培勇和单超线索浮出水面）
+
+
+
+> People's Republic of China-trained Pei-Yong Shi, who is now a professor at the major Pentagon-funded University of Texas Medical Branch virus research center appears to be a link to the People's Liberation Army & the Wuhan Institute of Virology (Chao Shan).[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/yCDkzOCQ1F](https://t.co/yCDkzOCQ1F)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 12, 2021](https://twitter.com/LawrenceSellin/status/1392359634242097152?ref_src=twsrc%5Etfw)
+
+
+
+第6推，转发“Zion, a Deplorable老百姓”战友回复塞林博士的推文：石培勇与CCP的更多联系，1）NIH/CDC经费被资助到石的寨卡病毒之功能获得研究，并涉及到PLA-AMMS的秦成峰和WIV的裴荣娟；2）石培勇与秦成峰共享一个专利，虽然秦隐藏了其AMMS身份；3）许执恒（研究员、博导，中科院(CAS)遗传与发育生物学研究所）也介入。并贴上裴荣娟、秦成峰、石培勇和许执恒等的照片及其共同发表科研论文的网页截图。请到处转推这个来自COVID-19侦探“Zion, a Deplorable老百姓”的令人震惊的信息，另外一系列由NIH和CDC资助的功能获得研究，其资金支持和专利则流向了PLA。（裴荣娟和许执恒真容浮出水面）
+
+
+
+> Retweet this BLOCKBUSTER information EVERYWHERE from [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@ZionaEmanuel](https://twitter.com/ZionaEmanuel?ref_src=twsrc%5Etfw) The other series of "gain of function" research funded by the National Institutes of Health & the U.S. CDC, support & patents going to the People's Liberation Army. [https://t.co/SCLdhvAlqL](https://t.co/SCLdhvAlqL)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 12, 2021](https://twitter.com/LawrenceSellin/status/1392477332816990208?ref_src=twsrc%5Etfw)
+
+
+
+第7推，转发Joe Hoft今天刚刚发表在Gateway Pundit上的文章“独家：Fauci资助PLA用于生物战之病毒研究的更多证据（增加爆炸性更新）”，Antony Fauci与五角大楼联合资助的UTMB病毒研究计划，就像是是PLA的培训机构一样，似乎在为亲中共的UTMB教授提供便利，“Zion, a Deplorable老百姓”战友的战绩已经被记录并知会。
+
+
+
+> The Anthony Fauci-Pentagon-funded University of Texas Medical Branch (UTMB) virus research program appears to be a training facility for the PLA, seemingly facilitated by CCP-friendly UTMB professors. [@ZionaEmanuel](https://twitter.com/ZionaEmanuel?ref_src=twsrc%5Etfw)'s work has been added and acknowledged.
+>  [https://t.co/MpOR1fpOeH](https://t.co/MpOR1fpOeH)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 12, 2021](https://twitter.com/LawrenceSellin/status/1392498447870214146?ref_src=twsrc%5Etfw)
+
+
+
+中共为了打造其在生物安全领域的霸权地位，完成最终控制和统治世界的野心，潜心寻找新型致病性病毒，并进行基因系列人工编辑和改造，以达成功能性获得与增强的生物武器级别的病毒，是自前中共军头迟浩田挂帅执行的生物战计划以来，以军民融合为基本形式而苦心经营了几十年的一项国家战略计划。
+
+贺福初、夏咸柱和金宁一等这些PLA将领，分管生物战计划的不同功能部门，主导渗透了NIH/CDC与五角大楼联合资助的UTMB病毒研究计划等美国病毒研究机构，他们是中共超限生物战的执行者，是COVID-19全球疫情的肇事者。秦川领衔建立了世界上最大的动物资源库，为CCP生物战计划的实施提供了取之不尽用之不竭的病毒素材与骨架，曹雪涛、石培勇、姜世勃和秦成峰等是对美国病毒研究计划进行渗透的关键人物。
+
+渗透并绑架国际社会，尤其是美国，是CCP实现这一目标过程中最巧妙、最阴险、最狠毒的手段，基解决了棘手的技术和资金问题，也模糊和混淆了伦理和法律界限，一箭多雕、借鸡生蛋、借刀杀人！在做坏事的水平上，不得不叹服CCP的聪明和高明。CCP营造了这次全球恐怖主义，打造了COVID-19新冠病毒这个潘多拉盒子，并放出了这个肆虐全球的恶魔！
+
+校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

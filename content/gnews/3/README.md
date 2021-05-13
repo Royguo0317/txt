@@ -1,9 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄罗斯莫斯科喀秋莎农场 六四文宣图作品（四）
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1237798/)
+## 章家敦：中共的火箭太空计划显出其对整个太阳系的野心
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1237977/)
 
-俄罗斯莫斯科喀秋莎农场 4GS
-![]()![](https://cdn.discordapp.com/attachments/795746853945081947/840215288888426546/image0.jpg)
+5/9/2021 章家敦认为中共不仅在南海等问题上显示出对全球的野心，它的火箭太空计划显示出其对整个太阳系的野心。美国如果与中共进行太空合作只会让中共更加强大。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
 0
