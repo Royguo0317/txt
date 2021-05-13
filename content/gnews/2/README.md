@@ -1,48 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】口罩殇
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1238358/)
+## 成都学生坠楼 党媒辟谣洗脑
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1238445/)
 
-配音：香草山福音部 Daxia
+撰稿：无名
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13112124/012.png)网络图片
+针对5月9日就读成都49中的一名16岁学生坠楼身亡事件，党媒“红星新闻”5月13日凌晨03:44发稿进行了责任推脱，洗脑辟谣。其在百度上的标题是《成都中学生坠亡 跳楼前疑数次割腕》，故意吸引眼球，引导读者接受该跳楼的孩子有心理问题，并在百度热榜上位于第一。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+但打开网页后的标题为《成都49中学生坠亡事件调查》，“跳楼前疑数次割腕”并不是事件的重点，且发布时间为5月13日凌晨3点44分，可谓胡编理由，费尽心思。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13112133/013.png)网络图片
+该文的主要观点有以下几方面：
 
+（1）小林性格内向，朋友不多，经常用刀割腕，想突出孩子的心理问题是死亡主因。
 
+（2）小林父亲与律师已经查看了学校全部监控视频，监控漏掉的关键10分钟是因为楼层平台有落差，监控没法覆盖，而且平时没人经过。
 
+（3）小林面部毁容不是被泼硫酸，而是“高空坠落，面部毁坏较大”，考虑到“学校的秩序，”所以直接将孩子拉到殡仪管交与其父母。
 
+（4）小林遗体完好，并不存在被擅自火化。
 
+（5）49中没有所谓的出国留学名额，万姓老师很无辜。
 
+妥妥的，中共又把理由推脱得一干二净。笔者猜测，因为此事件发生的大背景是中共统计局第七次人口数据的发布，其数据荒谬至极，经不起半点推敲。成都坠楼事件可以起到很好的分流作用，转移大家的注意力。中共每天都在上演草菅人命的事情，多入牛毛，反正牛毛可以被风吹走，老百姓一两个礼拜就会忘却。深深的唉叹，世道浇漓，人心日下，国将不国！
 
-它
-一个密不透风的布墙
-挂在耳朵
-耷拉在脸上
-套着口鼻
-阻隔着空气、声音与光
+再一次回想起文贵先生的呐喊：媒体是武器，媒体是武器啊！每一个人都是爹娘的孩子，每一个人也会成为父母，怎么能够对我们的孩子这样残忍。他们被毒奶粉摧残，他们被性侵，他们被枉死，所谓的媒体人，你们的胡乱报道对得起自己的良心吗？
 
+此时，内心已无法平静，希望为了我们下一代，有更多勇敢的人站出来，发出正义之声，推翻这个邪恶的政权，改变这个黑暗的时代。
 
+文章内容仅代表作者个人观点
 
-**文字版原文：[【香草诗词汇】口罩殇](https://gnews.org/zh-hans/660376/)**
+*审稿：童媚*
 
-作者：纽约香草山福音部 Daxia
+新闻来源：[https://baijiahao.baidu.com/s?id=1699583133652704284](https://baijiahao.baidu.com/s?id=1699583133652704284)
 
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews.org/wp-content/uploads/2021/05/1-澳喜Logo-2.jpeg)
++2

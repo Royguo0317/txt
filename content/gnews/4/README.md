@@ -1,31 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Journey of an NFSC Whistleblower
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1233575/)
+## 我的这三年
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1238385/)
 
-#### **Himalaya Toronto Maple Leaf Farm – Liberte**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12135049/endgame.jpg)
-In January, 2020 my mother died. Her health had been declining but there was nothing immediately life-threatening. She decided that it was time. Her quality of life was on the wane. She knew it. She decided she wanted to choose “assisted death” while she could still qualify to make the decision herself. My mother was a very strong, principled woman. She truly was my idol, my rock, my model for how to lead my life. Never wanting to be a burden. She was also very aware of what was going on in the World. She did not like what she saw. She was very worried about the bullying by the CCP. This was only about two weeks before the CCP-virus became a headline issue. She did not know about the virus. Her judgement of the CCP was based on what she knew of recent Chinese history and their belligerent behavior.
+五月花写作组 ｜作者：骑着蜗牛等天明 | 编辑：文合、spring文曼 | 发布：吐纳
 
-I am not looking for sympathy. My observation is simply how coincidental, prophetic, or fateful her decision to end her life at that exact time was. She escaped the indignity of being quarantined and isolated from her family in her assisted living home. I miss her every day but when she asked me if I understood and accepted her decision I replied: “of course I understand your decision to end life on your terms, but I will miss you like mad until the end of mine”.
+2018年一个偶然的机会，我学会了翻墙，翻出去后就一发不可收拾，仿佛爬行的蜗牛变成了脱缰的野马，驰骋在大草原上，那样的自由自在！东看看、西瞅瞅，漫无目的的畅游在墻外的信息海洋里。我慢慢开始怀疑大国形象，CCP并非是他们自己宣传的那样无所不能，且永远伟大光荣正确。
 
-The world has descended into a surreal abyss since then, and yet I have been able to transcend this crippling event, which might have otherwise dragged me into depression, by devoting myself to the Whistleblower Movement and the NFSC, imagined by Miles Guo. As Alexander Graham Bell said: “when one door closes, another opens”. I have passed through the door and it has been transformative.
+了解爆料革命是从七哥的视频开始的，感觉太亲切了。接着看了断播门，美国之音是我童年时期的一个梦，怎么就会断播呢？原来CCP到处蓝金黄。一路走到现在，每一天都在验证爆料革命的真善狠，每一天都在目睹CCP的垂死挣扎。
 
-What propels somebody to want to participate in a Rebellion, a Revolution? The answer is different for different people. In my case, the clues began at a young age. Living next door to the Soviet Union during the cold war meant special drills in school in case of a nuclear attack, leaflets dropped in our mailbox telling us what to do in case of attack, reports of Soviet submarines in our waters, bellicose language and regular threats from the Soviets.
+最初看七哥的报平安直播，还有政事小哥、大卫、江财神、面具先生等战友，分析CCP的一举一动，有理有据，深入刨析。看法治基金感人的捐款留言，我彻底被征服了，坚定了灭共的信心，于是跟着视频一步一步学如何捐款，我也要为消灭CCP加一根稻草。
 
-Freedom was something that you learned to cherish from an early age – it was in your genes. Even as a youngster I asked myself what I would do if confronted with a situation like WWII? Would I be a follower and accept the Genocide around me, or would I try my best to be part of the resistance? I told myself I would never accept just being a bootlicker, a sheep. Standing aside to let evil reign supreme was not an option.
+2020年6月4日，新中国联邦成立了，郭先生在自由女神下和班农先生一起，誓言消灭CCP!
 
-When my family began following Miles Guo in 2017 they still believed that Xi Jinping was going to be a positive influence on China. I told them that it would be highly improbable that any leader with that concentration of power, particularly in a country like China, would be a benign force, governing for the benefit of the people. Miles changed their thinking. He washed away the years of indoctrination, and replaced it with facts, wisdom, goodness, truth and faith. What he said rang true. It was incontrovertible. Once in a lifetime, a magnanimous leader comes along who has a mission rooted in love, freedom and faith. He does not like being deified, but he must be acknowledged. He is our general.
+2021年，新冠病毒席卷全球一年有余，新中国联邦人闫丽梦和路德社带领的博士军团，不断地向世界人民勇敢揭露病毒真相。郭先生宣布今年以毒灭共、以钱灭共，G系列将灭共事业推向新的高潮！
 
-No need to go over the decades of evidence that the CCP is an evil terrorist organization again. By now the evidence is myriad. However, plugging into Miles’ webcasts in the early days opened up a new world for us. His knowledge and contacts. The insider information. The passion and faith. The generosity. The realization that this was the struggle of our time, and now was the moment to test the vows I had made in my youth to stand up and resist. We stepped into a world of devotion to the cause. We stepped away from our previous lives. Away from many friends and family – although not by choice. Rare was the person who shared our concerns, or our passion to do anything about it. We have learned to accept that. We are not fighting for comfort, praise, fame or ego. Our most common phrase now is: “I don’t give a shit”!
+世界各国政府和人民不断清醒过来，不断推出新的政策、新的法案，目标剑指CCP。美国政府更是定义中共是反人类犯罪组织，对新疆少数民族犯下了种族灭绝罪，貌似强大的CCP摇摇欲坠、即将崩塌。
 
-For me, it was like finding new meaning in life. The evil of the CCP is an unfortunate unifying event, however the coalescing of the Whistleblower Movement has been a beautiful thing. Something that I believe will stand the test of history and time. My late father used to quote a Swedish saying: “mycket tål han skrattas åt, men mera hedras ändå”. Roughly translated that means “he endures much derision, but should be honored more instead”. This has been the experience of our Whistleblower Movement. Much derided and long ignored. Miles, and his movement, have nonetheless risen above the fray and proved themselves worthy of the World’s gratitude and admiration. Charity, selflessness, sacrifice, transcending greed, the examples of heroes – like our own Dr Li-Meng Yan.
+跟随爆料革命一路到现在，心中只有感恩，让我学会了太多做人的道理。正如郝海东先生所说，做一个真实的好人。
 
-This is a David and Goliath story, but the power of righteousness and truth shall prevail. What a feeling that is – savour it! Being on the side of truth and goodness and to know that it will triumph. That is the definition of faith. We all hold onto that feeling. Evil will not reign. The enemy is a paper tiger. A cheap suit ready to fold on exposure to the disinfecting sun of truth. We are building a better suit. A “bespoke” suit. Handmade and tailored to the Chinese people – with justice, faith and freedom for all. Our common cause envelopes the Chinese people. It embraces them. It recognizes their generational struggle. It hears their mute cries. It secerns their shackled conflict.
+我这三年的成长是三十多年来前所未有的，在我的影响下，我们一家人都成了灭共战友，身边也有不少朋友加入爆料革命。平时我们会聚在一起聊七哥直播，聊路德访谈，畅想未来，这样的生活状态特别真实和充实。
 
-We shall never bend. We will not compromise, negotiate or abandon our principles. The CCP must be defeated. Removed. The will of the Whistleblower Movement will be done. Righteousness will prevail. Tremble at our determination. Fear the cleansing wave of our truth. Bow before the Revolution. It is inevitable.
+我们每一个人都是渺小的个体，但大量正义的个体联合起来就是一股势不可挡的力量！
 
-My Mother’s strength, determination and principles live in me, and they will not be vanquished.
+三年来的跟随让我看清真相，坚定的信念让我继续行动灭共，真战友必胜，新中国联邦必胜！
+
+（本文仅代表作者个人观点）
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
 0

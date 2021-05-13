@@ -1,15 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 视频 – 曙光 The Dawn
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1207983/)
+## 《路德社》新闻快讯（视频版）: 20210511纳瓦罗先生参加战斗室评论部分
+` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1238138/)
 
-旧金山金喜农场 – 德先生德教云书院
+《路德社》出品
+
+以下视频是详细内容：
+
+主要內容：
+
+1.班农先生：福奇知道武汉进行功能增强实验，却在1月23日说没什么大不了，厚颜无耻地向全美国撒谎
+
+2.纳瓦罗先生：Paul参议员非常好的解释了Barric和石正丽的关系，戳穿了福奇的谎言
+
+3.福奇如果敢出来接受那些会提一大堆尖锐问题的媒体，它就完蛋了
 
 
 
-[https://mega.nz/folder/8YJ1DCoK#78g0KlCWgB5Hv73l\_pQd\_w](https://mega.nz/folder/8YJ1DCoK#78g0KlCWgB5Hv73l_pQd_w)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/11043710/%E6%9B%99%E5%85%89%E8%A7%86%E9%A2%91%E5%B0%81%E9%9D%A2.png)
+翻译：路德社翻译组
 
-![]()![](https://media.discordapp.net/attachments/723203467002511400/841273458859966464/unknown.png?width=1094&amp;height=617)![This image has an empty alt attribute; its file name is QRcode_GGB_v2.jpg](https://lh4.googleusercontent.com/2Yll3_o8WAewPEle23Re7GrfelivsUtAIPhs7GcD2ESgJg-VONopi2L8w6Ef9y-CnG3MTBoGrEkNhjRYNhpTPx9lEG1pFbewOMFft3CRiJPB4qAMXXonTW_6kfK8FYZElptGfnds)
-+2
+制作：路德社视频组
+
+审核校对：玫瑰新闻组
+
+上传排版：玫瑰新闻组
+
+0
