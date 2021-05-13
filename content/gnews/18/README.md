@@ -1,67 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共金融系统崩溃一触即发&nbsp; 所有灾难都会推到14亿“奴隶”身上
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1239114/)
+## 美国最大远征移动基地舰服役意味着什么
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1239447/)
 
-**摘要：在2021年5月6日的盖特视频中，郭先生从一位皇室友人的口中得知中共在想尽办法资金外逃，国家开发银行、邮政银行、农业银行有大量违约票据，崩溃在即。他让大家记住：“共产党一定到最后把金融崩溃、房地产崩溃所有的这些最灾难的东西全推到14亿“奴隶”身上。”**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13141636/Miles_20210506_getter2.srt.txt)
-**中共金融系统崩溃一触即发****  ****所有灾难都会推到****14****亿****“****奴隶****”****身上**
+撰稿：三只松鼠
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13180534/20200514-1.jpg)网络截图
+据报道，全球最大常规动力舰艇、美国海军排水量9万吨的远征移动基地舰“米格尔基思号”（USNS Miguel Keith，T-ESB-5）于5月8日举行了服役仪式。该舰将于今夏启程前往西太平洋地区执行任务。美国南方司令部、海军上将法勒（Craig Faller）指出，“米格尔基思号”或将派往南海，对抗“中国威胁”！
 
-**CCP’s Economy Is Collapsing, 1.4B Slaves Will Bear the Consequences**
+另据报道称，“米格尔基思号”远征移动基地舰的建造花费了大约2年时间，排水量9万吨，仅次于美军“福特级”和“尼米兹级”航空母舰，而且已经超过其他国家所有航舰的单舰排水量。该舰将永久部署在海外，它的首个作战基地将设在塞班岛。该舰将搭载约100名海军士兵和44名平民舰员，巨大舰体使其能够部署一个宽阔的飞行甲板，可以容纳美国海军最大的重型直升机MH-53直升机以及陆战队的F- 35B战机。
 
-就是目前共产党在国内这种经济内部所有的问题积累到房地产市场的时候，还有最终所有的问题都在金融系统爆发的时候，大家一定要记住：共产党一定到最后把金融崩溃、房地产崩溃所有的这些最灾难的东西全推到14亿“奴隶”身上。
+远征移动基地舰的发展可以追溯到冷战结束后，许多国家要求美国撤出在本国的军事基地，美军在海外的军事基地规模和数量都不断缩小。在2005年，美国国防部首次提出了“海上基地”的概念：在联合作战地区没有陆上基地的情况下，为联合远征部队持续提供兵力、物资投送和装备维护，具备快速部署、装配海上联合作战的能力。
 
-At this moment when all the problems of the CCP’s domestic economy accumulate in the real estate market, and finally when all the problems erupt in the financial system, everyone must remember this: in the end, the CCP will definitely let the 1.4 billion “slaves” bear the most catastrophic consequences of the financial and real estate crashes.
+在两栖远征作战中，以远征移动基地舰为核心与各类舰艇进行对接，实现远征部队由海到陆无缝、安全的对接。避免了登陆作战早期重型装备投送能力不足和运输舰在战区面临的安全威胁。并且基地舰的费用比航母费用要低得多。
 
-为什么这么说？昨天，就「前面提到的」那位朋友告诉我说他的家族银行最近受到最多的是国内过去打交道的国有企业的这些人介绍关系大额存款，包括和他商量购买黄金，在海外存放的事情，甚至有些人跟他商量拥有的一些美国大的公司像特斯拉，苹果，这些大公司的股票能否让他的银行代持？
+“米格尔·基思”号，首个作战基地将设在塞班岛，作为一种特殊的军舰，隶属美国海军所管辖，目前形势下服役将被派遣到热点海域尤其是南海，灵活地执行多种任务，在军事行动中或将发挥出其他美国海军舰艇所不具备的作用。有着其它舰艇所不具备的“战力倍增器”和“规则改变者”的作用。
 
-Why do I say that? Yesterday, the friend that I mentioned earlier told me that his family bank recently received many referrals from acquaintances he had dealt with in the past in state-owned enterprises in China. These people want to make large deposits in his bank, including negotiating with him to buy gold and deposit them overseas. In fact, some people who own stocks of large American companies such as Tesla and Apple even discussed with him to see if his bank could hold their stocks of these companies.
+目前中共国也妄想要建造四艘这样一种排水量高达9万吨的077海上基地舰，但是他们自己根本没有核心技术能力。中共国自己也承认：中美海上远征作战能力还是有质的差距的。中国还是由陆到陆的思想，即使是在岛上开辟登陆作战场之后，终究还是需要码头进行大型滚装船的装卸作业，这其中的安全风险就很大了。而美军可以直接在远离敌方海岸线至少一百海里的地方进行作业，极大提高了安全性。
 
-种种现象都说明共产党内部对共产党员的每个人的个人家人的资产查清、查处和没收正在准备着，「所以」内部人有知道的就要想一切办法把东西弄到外面儿去。同时也证明了共产党非常清楚：中国的金融要崩盘！在崩盘前能拿走多少，拿走多少，跟当年的国民党一样，「情况」比那还坏。
+以上消息正好印证了文贵先生今天的盖特说的：现在美国在干什么？伊拉克战争前夕，当时整个中东都不相信美国会打伊拉克，当时在中东附近大量部署兵力，美国所有商会、大型企业从中东撤走。美国目前商会、企业正在从香港、中共国快速撤人撤钱撤技术。美国在印度周围岛上、马六甲海峡、霍尔木兹海峡附近将部署重兵武器。美国这些行动绝不是要与共产党打持久战,任何情况下保证军队整个后勤供给，某几个地区做好打两场的准备….这将对中共国形成大型设备封杀、技术封杀,（中共国）将比伊朗还惨….
 
-All kinds of indications show that the CCP is preparing to investigate and confiscate personal assets of each CCP member and their families. Therefore, insiders who know about it are trying to do everything possible to move their assets out. It also proves that the CCP knows very well that China’s financial collapse is coming. The CCP wants to grab as much as it can before the collapse, which is the same as the KMT’s situation back then, or even worse.
+另外法勒海军上将表示，“米格尔基思号”可以在服役期间前往世界各地，比如加勒比海、南海和霍尔木兹海峡。他还宣称，该舰的官兵将前往全球冲突最前线，对抗美国面临的威胁，尤其是中国。无恶不作的CCP你们颤抖吧！等待你们的将是全世界正义力量的铁拳，你们的死期快到了！
 
-更夸张的，现在竟然有人拿国内的上市公司的股票到海外进行融资，这过去是不可能的，但在中东的这些皇家银行是可以做得到。抵押率5%，10%。别说30%了，「也就」5%，10%。这就说明了国内的经济和金融到了崩溃的边缘。
+本文纯属个人观点
 
-What is even more unbelievable is that some people now use the stocks of China’s domestic listed companies to raise funds overseas. This was impossible in the past, but those royal banks in the Middle East can do it. The mortgage rate is 5%, 10%. Don’t even think about a 30% mortgage rate, only 5% to 10%. This shows that China’s domestic economy and finances are on the verge of collapse.
+参考资料：
 
-还有他也发现一个很大的问题：他这家银行 — 皇家这家银行曾经帮助共产党的企业在乌克兰，在阿塞拜疆，在东欧的某些国家所做的一些金融票据很多现在都是违约的，但是他们不怕因为是有这个中共国家作为担保的，国家银行「担保」。
+- [美媒：美最新远征海上基地舰入役](https://k.sina.com.cn/article_2375086267_8d90f0bb020019m9d.html)
+- [简述美国海军远征移动基地舰ESB，“海上基地”现实版](https://www.163.com/dy/article/DVRT7D5O05352GZ5.html)
 
-And he also found a big problem. Many financial instruments made by his bank, a royal bank, for the CCP’s companies in Ukraine, Azerbaijan, and some countries in Eastern Europe are now in default.  But they don’t worry about that because they have the CCP’s state guarantee, guaranteed by the CCP’s national bank.
 
-「但」像国家开发银行很多很多事情都没法兑现，而且他也跟国开行的人见面「后说」国开行整个全行的人都在等待着最后一个：就是国开行的创始人都被抓起来。国开行几乎这几波人全抓完了。
+*审核&编辑：Runaway*
 
-But now, the China Development Bank cannot deliver on many commitments it previously made. After he met with people from the China Development Bank, he said that the whole bank was waiting for the other shoe to drop, that is, the arrest of all the founders of China Development Bank. Several waves of arrests have detained almost everybody from the bank.
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-再一个就是邮政银行。他们这个家族皇家银行当年参与了投资中国邮政邮储银行上市，它属于机构投资者，那么现在也要查这个事情 — 说明邮储银行出事儿了；当年农业银行上市的事儿也在查 — 说明农业银行也要出事儿了；招商银行吴小晖的事儿查完了；民生的事儿肯定完了……这就是一系列的现象都会出来。
-
-The other problem is about the Postal Bank. Their royal family bank participated in the listing of the Postal Savings Bank of China in the past. They are an institutional investor. The CCP’s investigation into this matter now indicates that something is wrong with the Postal Savings Bank. The listing of the Agricultural Bank of China back then is also being probed. It means that something will happen to the Agricultural Bank. The investigation of Wu Xiaohui of China Merchants Bank is completed. The investigation of China Minsheng Bank must have finished. A series of developments will soon be revealed.
-
-共产党会把所有的问题都积累到，像昨天我说的，积累到中共中央去，但到最后一定是瞬间的崩塌。兄弟姐妹们，「大家」可多保重啊！把这消息告诉 — 不过咱们战友们也没有那么多有钱的，是吧？也不需要这么多担心。
-
-The CCP will accumulate all the problems, as I said yesterday, to the Central Committee of the Communist Party of China. But in the end, there must be an instant collapse. Brothers and sisters, take care of yourself. Tell the news to our rich fellow fighters… but we don’t have many of them, right? Then there is no need to worry too much.
-
-但是战友们要知道共产党的金融系统要崩溃了，房地产市场要崩溃了，没人能幸免。基本过去几十年白打工了，染了一身病，累了一身病，但是你白干了！
-
-But our fellow fighters should know that when the CCP’s financial system collapses and when the real estate market collapses, no one can be spared. Basically, in the past few decades, you have worked for nothing. You got diseases all over your body, you worked yourself into exhaustion and became sick, but you have endured it all for nothing.
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60940ac437f7f73984c895b2](https://gtv.org/getter/60940ac437f7f73984c895b2) (00:22-4:40)
-鸣谢：
-[1] 感谢 Antsee-GTV、TING GUO、文惜 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)提供中文文本于[https://gnews.org/zh-hans/1181099/](https://gnews.org/zh-hans/1181099/)
-[2] 感谢 YY、Liberte 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)提供英文翻译于 [https://gnews.org/1190057/](https://gnews.org/1190057/)
-
-* * *
-
-字幕：【JennyL】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】【Rock小哥】
-校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews.org/wp-content/uploads/2021/05/1-%E6%BE%B3%E5%96%9CLogo-2.jpeg)
 0

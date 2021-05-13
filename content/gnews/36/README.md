@@ -1,25 +1,83 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳专家回应《环球时报》导弹威胁：关闭中共国大使馆
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1238740/)
+## 【战友心声】雅典娜视角
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1238989/)
 
-#### 作者:【默凡】 新闻采集：Peter Wong
+作者：纽约香草山健身部 澄道
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13125251/Snipaste_2021-05-14_00-52-03.png)
 
-澳大利亚天空新闻(Sky News Australia)5月10日报道称，近日，中共官媒《环球时报》发表一篇文章，中共国聊城大学太平洋岛国研究中心首席研究员于镭在文章中威胁称，如果澳大利亚敢介入台海问题，将面临灭顶报复，会向澳大利亚领土发动导弹袭击。
 
-澳洲总理莫里森公开表示，澳洲政府已意印太局势的不确定性，为应对这种形势，所以才制定相关安全防卫协议，一旦台海爆发战争，澳州将支援美国及印太地区盟友。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
-澳大利亚科廷大学(Curtin University)教授乔·西拉库萨(Joe Siracusa)就《环球时报》这篇报道发表自己的看法，他认为这样的威胁是中共国非常严重的外交错误，澳大利亚政府应召见中共国大使进行质询，要求大使否认这些说法，如果大使拒绝，就应该关闭中共国大使馆。
 
-参考文章：[澳洲专家：《环球时报》发出导弹袭击威胁 澳应“关闭中国大使馆”](https://www.rfi.fr/cn/%E4%BA%9A%E6%B4%B2/20210511-%E6%BE%B3%E6%B4%B2%E4%B8%93%E5%AE%B6-%E7%8E%AF%E7%90%83%E6%97%B6%E6%8A%A5-%E5%8F%91%E5%87%BA%E5%AF%BC%E5%BC%B9%E8%A2%AD%E5%87%BB%E5%A8%81%E8%83%81-%E6%BE%B3%E5%BA%94-%E5%85%B3%E9%97%AD%E4%B8%AD%E5%9B%BD%E5%A4%A7%E4%BD%BF%E9%A6%86)
 
-本文仅代表作者本人观点，不代表Gnews平台
+– 般若 晨兮 澄道来了 –
 
-* * *
+– 喜玛拉雅墨尔本雅典娜农场之声 –
 
-*排版发布：日本东京方舟农场 文柯Miles*
+– 献给七哥51岁生日礼物 –
 
-0
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13141302/6-17.jpg)
+
+一道文化的大餐
+
+菜品即人品
+
+一场历史的复盘
+
+唯真即实真
+
+洞知智慧雅典娜
+
+灼见正道真视角
+
+改变劣币驱逐良币的陋习
+
+从改变巨婴纠缠开始
+
+有家庭是幸福的人
+
+建立优胜劣尊的社会风俗
+
+靠激活人格独立平等为天
+
+有战友是完整的人
+
+雅典娜视角：
+
+是一档有角度
+
+有深度
+
+有速度
+
+有温度栏目
+
+是一档“四度灭共”用心节目
+
+（本文仅代表作者观点）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+
+
++1
