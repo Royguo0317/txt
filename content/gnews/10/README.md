@@ -1,22 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德简报】5/12/2021早：福克斯塔克主播称 病毒几乎肯定来自武汉实验室
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1237852/)
+## 徐德忠、李锋等2015年教科书：SARS冠状病毒开创“基因武器新时代”
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1238044/)
 
-**编辑：华盛顿DC农场 路德简报项目组**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13084242/2021-05-12-scaled.jpg)
+2021年5月9日，澳大利亚《天空新闻》夏里·马克森继续爆料中共军方2015年出版的教科书《非典非自然起源和人制人新种病毒基因武器》最新细节。书中显示，中共军方科学家们早在中共病毒爆发五年前就在研究将SARS冠状病毒武器化。该书的揭露，让人们难得一见地洞察中共军方科学界是如何看待生物研究的。
 
-
-> 2021 年5月12日 路德时评 早 
-> 
-> 1.福克斯塔克主播称 病毒几乎肯定来自武汉实验室 
-> 
-> 2. 闫博士接受Newsmax采访表示 NIH肯定资助了武汉实验室
-> 
-> 3. 美联社：中共靠大量水军在推特上散布假消息 扩大影响 [pic.twitter.com/eVjGSeJVwa](https://t.co/eVjGSeJVwa)
-> — 平民爆料 (@WM18320321) [May 13, 2021](https://twitter.com/WM18320321/status/1392814044021657603?ref_src=twsrc%5Etfw)
-
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
 0

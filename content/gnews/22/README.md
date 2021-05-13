@@ -1,11 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士：中共2015年教科书验证了中共病毒就是超限生物武器
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1237585/)
+## 【路德简报】5/12/2021早：福克斯塔克主播称 病毒几乎肯定来自武汉实验室
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1237852/)
 
-5/10/2021 闫博士在接受印度优先电视台采访时表示，2015年由中共解放军生物武器专家徐德忠出版的教科书，是一个非常好的证据来支持闫博士的三份报告，并验证中共病毒实际上就是中共的超限生物武器。
+**编辑：华盛顿DC农场 路德简报项目组**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13084242/2021-05-12-scaled.jpg)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-+1
+> 2021 年5月12日 路德时评 早 
+> 
+> 1.福克斯塔克主播称 病毒几乎肯定来自武汉实验室 
+> 
+> 2. 闫博士接受Newsmax采访表示 NIH肯定资助了武汉实验室
+> 
+> 3. 美联社：中共靠大量水军在推特上散布假消息 扩大影响 [pic.twitter.com/eVjGSeJVwa](https://t.co/eVjGSeJVwa)
+> — 平民爆料 (@WM18320321) [May 13, 2021](https://twitter.com/WM18320321/status/1392814044021657603?ref_src=twsrc%5Etfw)
+
+
+
+0
