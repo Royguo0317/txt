@@ -1,83 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】雅典娜视角
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1238989/)
+## 诺鲁或将成为全球首个疫苗死亡人数超过病毒死亡人数的国家
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1239054/)
 
-作者：纽约香草山健身部 澄道
+#### 作者:【默凡】
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13142103/%E4%B8%8B%E8%BD%BD-21.jpg)
 
+法新社5月12日报道称：截至目前，太平洋岛国诺鲁所有成年人都已完成第一剂中共疫苗接种，该国接种的是阿斯利康疫苗，该岛国是全球少数没有出现确诊病例的国家之一，该国经过四周就完成第一剂疫苗接种，已有7392人施打第一剂疫苗，占估计成年人口的108%，这项数据还包含外国人在内。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
+诺鲁政府发表声明庆祝接种工作所创下的「世界纪录」，感谢诺鲁每个人尽自己的本分，让诺鲁保持零确诊，维护国家的安全。诺鲁将持续进行筛检，确保诺鲁维持零确诊。
 
+评论：
 
+阿斯利康疫苗在使用过程中出现数十起因血栓问题而导致死亡的病例，目前，已经有二十多个国家暂停使用阿斯利康疫苗。诺鲁至今未出现一例确诊病例，该国成年人却已经完成第一剂疫苗接种，堪称奇葩。其实，诺鲁政府只要加强出入境人员的隔离和核酸检测就可以继续保持零感染，完全没必要接种不但无效还有害的疫苗，或许诺鲁还将创造另外一项世界纪录，就是成为全球第一个疫苗死亡人数超过病毒死亡人数的国家，
 
-– 般若 晨兮 澄道来了 –
+参考文章：[太平洋岛国诺鲁所有成人完成首剂疫苗接种 宣称创世界纪录](https://www.rfi.fr//cn/%E5%A4%AA%E5%B9%B3%E6%B4%8B%E5%B2%9B%E5%9B%BD%E8%AF%BA%E9%B2%81%E6%89%80%E6%9C%89%E6%88%90%E4%BA%BA%E5%AE%8C%E6%88%90%E9%A6%96%E5%89%82%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A7%8D-%E5%AE%A3%E7%A7%B0%E5%88%9B%E4%B8%96%E7%95%8C%E7%BA%AA%E5%BD%95)
 
-– 喜玛拉雅墨尔本雅典娜农场之声 –
+本文仅代表作者本人观点，不代表Gnews平台
 
-– 献给七哥51岁生日礼物 –
+* * *
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13141302/6-17.jpg)
+*排版发布：日本东京方舟农场 文柯Miles*
 
-一道文化的大餐
-
-菜品即人品
-
-一场历史的复盘
-
-唯真即实真
-
-洞知智慧雅典娜
-
-灼见正道真视角
-
-改变劣币驱逐良币的陋习
-
-从改变巨婴纠缠开始
-
-有家庭是幸福的人
-
-建立优胜劣尊的社会风俗
-
-靠激活人格独立平等为天
-
-有战友是完整的人
-
-雅典娜视角：
-
-是一档有角度
-
-有深度
-
-有速度
-
-有温度栏目
-
-是一档“四度灭共”用心节目
-
-（本文仅代表作者观点）
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-
-
-+1
+0

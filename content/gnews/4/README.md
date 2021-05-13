@@ -1,67 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】有话说（一）
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1239093/)
+## 不要害怕通货膨胀和债务！
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1239199/)
 
-作者：纽约香草山健身部 澄道
+```
+新闻来源：德国经济周刊 网络版  
+客座记者：马塞尔·弗雷茨彻（Marcel Fratzscher）
+发布时间：2021年5月10日
+翻译整理/ 简评： Shuizhuyu
+```
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13151938/virus-euro2-08af5f86ec14b6d6.png)图片来源：TELEPOLIS
+ 
+#### 人们对货币贬值和征收的恐惧一遍又一遍地被唤起，尤其是在德国。
 
+在德国，人们对通货膨胀的担忧再次蔓延。几十年来，它一直是政治和商业领域某些人最喜欢的运动，它使人们担心货币贬值的幽灵，货币贬值会剥夺人民的利益并损害经济。他们目前正在呼吁欧洲中央银行（*ECB*）改变路线。财务政策也不应再为公司和个人提供太多支持。相反，它必须尽快恢复盈利。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
+但是，就经济政策而言，这将是政客在这场深重危机中可能犯的最大错误。病毒大流行中的关注点不应该是价格上涨或国家债务，而应该是更严格的货币和金融政策所造成的无法弥补的损害：它将导致许多破产和失业。然而，最重要的是，无法确保德国长期竞争力的投资。
 
+#### **简评：**
 
+**经过了一年多的病毒大流行，各种补贴和各种措施，都不是白来的，都是用经济做支撑的。经济一向强大的德国也开始了对于通货膨胀和债务的担忧。货币贬值的忧虑是十分强烈的。实际上，有些物价的上涨已经是悄悄的进行中，在消费者不知不觉中，已经在路上。最可怕的还不只是物价上涨，同时可能会导致一些企业的破产引起的失业潮。一方面物价高，另一方面没有收入，很多人将会受到两面的夹击。困难的日子可能是刚刚开始。  **
+（本文只代表译者观点，与Gnews平台无关。）
 
-秋风吹过无垠的荒野！
+**新闻原文链接：**🔗[Fürchtet euch nicht vor Inflation und Verschuldung!](https://www.wiwo.de/my/politik/konjunktur/denkfabrik-fuerchtet-euch-nicht-vor-inflation-und-verschuldung/27164262.html)
 
-那是风儿对草儿的有话说！
+* * *
 
-你不给我一个说法啊！
+***编辑整理/校对: **Ting Guo*
 
-我就给你一个做法！
-
-那是一个孤胆英雄的有话说！
-
-阵雨袭过园中的郁金香！
-
-那是雨儿对花儿的有话说！
-
-你强给了我一个七十年的荒唐啊！
-
-我就还你一个take down the CCP!
-
-这是一个自由灵魂的有话说！
-
-![]()![](https://media.discordapp.net/attachments/721544615953432698/836437597524983858/image1.jpg?width=1083&amp;height=609)
-
-Take down the CCP
-
-Take down the CCP
-
-Take down the CCP
-
-（本文仅代表作者观点）
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-
-
-0
++1

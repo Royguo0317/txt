@@ -1,55 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 124位退役将领公开呼吁：拯救美国！
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1239012/)
+## 中共金融系统崩溃一触即发&nbsp; 所有灾难都会推到14亿“奴隶”身上
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1239114/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**摘要：在2021年5月6日的盖特视频中，郭先生从一位皇室友人的口中得知中共在想尽办法资金外逃，国家开发银行、邮政银行、农业银行有大量违约票据，崩溃在即。他让大家记住：“共产党一定到最后把金融崩溃、房地产崩溃所有的这些最灾难的东西全推到14亿“奴隶”身上。”**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13141636/Miles_20210506_getter2.srt.txt)
+**中共金融系统崩溃一触即发****  ****所有灾难都会推到****14****亿****“****奴隶****”****身上**
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13140817/A-13.jpg)christianaction.org
-退役将领的公开信
+**CCP’s Economy Is Collapsing, 1.4B Slaves Will Bear the Consequences**
 
-我们的国家危在旦夕，自1776年建国以来，我们从未像现在这样为一个宪政共和国的生存而战，这场冲突是社会主义和马克思主义的支持者与宪法赋予的个人内在自由和应遵从的社会自由的支持者之间的冲突。
+就是目前共产党在国内这种经济内部所有的问题积累到房地产市场的时候，还有最终所有的问题都在金融系统爆发的时候，大家一定要记住：共产党一定到最后把金融崩溃、房地产崩溃所有的这些最灾难的东西全推到14亿“奴隶”身上。
 
-在2020年选举期间，317名退役将领签署了一封“高级军事领导人的公开信”，信中说，2020年的选举可能是我们建国以来最重要的选举了。“由于民主党欢迎社会主义和马克思主义，我们历史传统的生活方式岌岌可危。”不幸的是，这一说法的真相很快就被揭示出来，首先是选举过程本身。
+At this moment when all the problems of the CCP’s domestic economy accumulate in the real estate market, and finally when all the problems erupt in the financial system, everyone must remember this: in the end, the CCP will definitely let the 1.4 billion “slaves” bear the most catastrophic consequences of the financial and real estate crashes.
 
-没有公平公正、准确反映“民意”的选举，我们的宪政共和国就会消失。选举的完整性要求确保每个人有一张合法的公民选票，合法投票由州议会批准的、控制使用的、政府颁发的身份识别证明，今天，许多人把这种常识性的控制称为“种族主义”，企图以此来阻止避免举行公正和诚信的选举。使用种族歧视的术语来压制资格验证，本身就是一种歧视残暴的恐吓战术。此外，我们的选举必须加强“法治”，确保完整性的过程。联邦调查局和最高法院必须在选举违规时迅速采取行动，而不是像2020年那样忽视它们。最后，H.R.1和S.1（《为人民法案》）（如果通过）将破坏选举公平，违反我们的宪法，结束我们选举制的共和国，而让民主党永远执政。
+为什么这么说？昨天，就「前面提到的」那位朋友告诉我说他的家族银行最近受到最多的是国内过去打交道的国有企业的这些人介绍关系大额存款，包括和他商量购买黄金，在海外存放的事情，甚至有些人跟他商量拥有的一些美国大的公司像特斯拉，苹果，这些大公司的股票能否让他的银行代持？
 
-除了选举之外，本届政府还绕过国会，以独裁的方式对我们的宪法权利发起了全面的攻击，共有50多个行政命令被快速签署，其中许多推翻了上届政府的有效政策和条例。
+Why do I say that? Yesterday, the friend that I mentioned earlier told me that his family bank recently received many referrals from acquaintances he had dealt with in the past in state-owned enterprises in China. These people want to make large deposits in his bank, including negotiating with him to buy gold and deposit them overseas. In fact, some people who own stocks of large American companies such as Tesla and Apple even discussed with him to see if his bank could hold their stocks of these companies.
 
-此外，对人民的控制行为，如过度封锁，学校和企业关闭，以及最令人震惊的是，对书面和口头表达的审查，都是对我们基本权利的直接侵犯。我们必须支持和力挺那些反对社会主义、马克思主义和激进主义的政治家，支持我们的宪政共和，坚持以全体美国人为中心，实行财政责任的治国政策，尤其是（保护）中产阶级的利益，而不是特殊利益集团或极端组织，那些把我们分成敌对派别的组织。
+种种现象都说明共产党内部对共产党员的每个人的个人家人的资产查清、查处和没收正在准备着，「所以」内部人有知道的就要想一切办法把东西弄到外面儿去。同时也证明了共产党非常清楚：中国的金融要崩盘！在崩盘前能拿走多少，拿走多少，跟当年的国民党一样，「情况」比那还坏。
 
-其他国家安全问题和行为：
+All kinds of indications show that the CCP is preparing to investigate and confiscate personal assets of each CCP member and their families. Therefore, insiders who know about it are trying to do everything possible to move their assets out. It also proves that the CCP knows very well that China’s financial collapse is coming. The CCP wants to grab as much as it can before the collapse, which is the same as the KMT’s situation back then, or even worse.
 
-• 开放边界，随着贩卖人口、贩毒集团、恐怖分子入境、中共病毒引发健康危险的增加，以及人道主义危机，严重损害了国家安全。非法移民涌入我国，带来了高昂的经济成本、犯罪、降低工资以及一些州的非法投票。我们必须重建边境管制，继续修建隔离墙，同时支持我们的专职边境管制人员。主权国家必须控制边界。
+更夸张的，现在竟然有人拿国内的上市公司的股票到海外进行融资，这过去是不可能的，但在中东的这些皇家银行是可以做得到。抵押率5%，10%。别说30%了，「也就」5%，10%。这就说明了国内的经济和金融到了崩溃的边缘。
 
-• 中共国是对美国最大的外部威胁，与中国共产党建立合作关系就是在鼓励他们，使他们在军事上、经济上、政治上和技术上，向统治世界的方向继续发展，我们必须阻止他们统治世界的目标，保护美国的利益。
+What is even more unbelievable is that some people now use the stocks of China’s domestic listed companies to raise funds overseas. This was impossible in the past, but those royal banks in the Middle East can do it. The mortgage rate is 5%, 10%. Don’t even think about a 30% mortgage rate, only 5% to 10%. This shows that China’s domestic economy and finances are on the verge of collapse.
 
-• 信息的自由流通对我们共和国的安全至关重要，我国宪法第一修正案中的言论和新闻自由就是明证，审查言论和表达、歪曲言论、散布政府官员、私人实体和媒体的虚假信息，是压制信息自由流动的一种手段，是封闭社会中使用的一种专制手段，我们必须在所有战线上予以反击，首先对大科技公司撤除230保护法。
+还有他也发现一个很大的问题：他这家银行 — 皇家这家银行曾经帮助共产党的企业在乌克兰，在阿塞拜疆，在东欧的某些国家所做的一些金融票据很多现在都是违约的，但是他们不怕因为是有这个中共国家作为担保的，国家银行「担保」。
 
-• 重新参与有缺陷的伊朗核协议将导致伊朗获得核武器及其运载工具，从而扰乱中东和平倡议，并帮助了一个口号和目标为“美国去死”和“以色列去死”的恐怖主义国家。我们必须抵制中共国和伊朗达成新协议，不支持伊朗核协议。此外，继续执行中东和平倡议、“亚伯拉罕协定”，并支持以色列。
+And he also found a big problem. Many financial instruments made by his bank, a royal bank, for the CCP’s companies in Ukraine, Azerbaijan, and some countries in Eastern Europe are now in default.  But they don’t worry about that because they have the CCP’s state guarantee, guaranteed by the CCP’s national bank.
 
-• 停止基石管道（Keystone Pipeline）将消除我们最近建立的能源独立性，并导致我们依赖于对我们不友好的国家的能源，同时消除美国宝贵的就业机会，出于国家安全和经济原因，我们必须开放基石管道项目，恢复能源独立。
+「但」像国家开发银行很多很多事情都没法兑现，而且他也跟国开行的人见面「后说」国开行整个全行的人都在等待着最后一个：就是国开行的创始人都被抓起来。国开行几乎这几波人全抓完了。
 
-• 利用美国军人作为政治棋子，在国会大厦周围部署数千名士兵，通过巡逻和围栏来防御不存在的威胁。除此之外，牺牲战争使命为代价，将诸如分裂的种族理论等政治正确的政策强加于军队，严重降低了我国战争的战斗力和取胜能力，造成了重大的国家安全问题。我们必须支持我们的军队和退伍军人，以打仗为重点，消除政治正确对我军士气和战斗凝聚力的腐蚀性灌输。
+But now, the China Development Bank cannot deliver on many commitments it previously made. After he met with people from the China Development Bank, he said that the whole bank was waiting for the other shoe to drop, that is, the arrest of all the founders of China Development Bank. Several waves of arrests have detained almost everybody from the bank.
 
-• “法治”对我们的共和国和安全至关重要，某些城市的无政府状态是不能容忍的，我们必须支持我们的执法人员，并坚持地方检察官（DA，District Attorney）、我们的法院和司法部对所有人平等、公正和始终如一地执法。
+再一个就是邮政银行。他们这个家族皇家银行当年参与了投资中国邮政邮储银行上市，它属于机构投资者，那么现在也要查这个事情 — 说明邮储银行出事儿了；当年农业银行上市的事儿也在查 — 说明农业银行也要出事儿了；招商银行吴小晖的事儿查完了；民生的事儿肯定完了……这就是一系列的现象都会出来。
 
-• 总司令的精神和身体状况不容忽视，（在任何条件下）他必须能够迅速做出准确的国家安全决定，包括生命危险中的情况，无论在白天或晚上。最近民主党领导层对核代码程序的调查向拥有核武器的对手发出了危险的国家安全信号，引发了谁负责的质询，我们必须始终有一个毫无疑问的指挥系统。
+The other problem is about the Postal Bank. Their royal family bank participated in the listing of the Postal Savings Bank of China in the past. They are an institutional investor. The CCP’s investigation into this matter now indicates that something is wrong with the Postal Savings Bank. The listing of the Agricultural Bank of China back then is also being probed. It means that something will happen to the Agricultural Bank. The investigation of Wu Xiaohui of China Merchants Bank is completed. The investigation of China Minsheng Bank must have finished. A series of developments will soon be revealed.
 
-在民主党的国会和现政府的领导下，我们国家已向社会主义和马克思主义形式的专制政府艰难地左转，现在必须通过国会选举和总统候选人来阻击，这些人将始终采取行动捍卫我们的宪政共和国。（要充分认识到）我们国家的生存，及其所珍视的内在自由、外部构建的自由和历史价值受到了威胁。
+共产党会把所有的问题都积累到，像昨天我说的，积累到中共中央去，但到最后一定是瞬间的崩塌。兄弟姐妹们，「大家」可多保重啊！把这消息告诉 — 不过咱们战友们也没有那么多有钱的，是吧？也不需要这么多担心。
 
-我们敦促所有公民投入到目前在本地区、州和/或国家一级的政治代表的选举中，这些代表将采取行动拯救美国、拯救我们的宪政共和国，追究现任官员的责任。“人民的意愿”必须得到听取和遵循。
+The CCP will accumulate all the problems, as I said yesterday, to the Central Committee of the Communist Party of China. But in the end, there must be an instant collapse. Brothers and sisters, take care of yourself. Tell the news to our rich fellow fighters… but we don’t have many of them, right? Then there is no need to worry too much.
 
-（公开信全文完）
+但是战友们要知道共产党的金融系统要崩溃了，房地产市场要崩溃了，没人能幸免。基本过去几十年白打工了，染了一身病，累了一身病，但是你白干了！
 
-这封公开信发布时间是5月12日。美国是要“向社会主义、共产主义”目标前进，还是继续崇尚内在的个人自由和社会构建的外部自由（freedom and liberty，汉字解释都是“自由”，在传统文化中，很少强调前者，过多宣扬的是统治阶级“解放了你”，“给你了自由”）？有信仰，追求公平、公正、正义的人自然是要选择后者，而美国的现状则是“在民主党的国会和现政府的领导下，向社会主义和马克思主义形式的专制政府转变”，这就是124位将领发出公开呼吁的背景，美国危在旦夕！
+But our fellow fighters should know that when the CCP’s financial system collapses and when the real estate market collapses, no one can be spared. Basically, in the past few decades, you have worked for nothing. You got diseases all over your body, you worked yourself into exhaustion and became sick, but you have endured it all for nothing.
 
-总统大选遭欺诈舞弊，媒体禁声，执法机构不作为，法院，包括最高法院置若罔闻，面对众多铁一般的事实，舆论则用“阴谋论”导向……这就是当下的美国。没有文贵先生，引发不了美国的警惕，还沉湎于歌舞升平之中，直到美国全面民主党化，民主党全面共产党化，共产党全面邪共化，那时候的美国真是“完了”！
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60940ac437f7f73984c895b2](https://gtv.org/getter/60940ac437f7f73984c895b2) (00:22-4:40)
+鸣谢：
+[1] 感谢 Antsee-GTV、TING GUO、文惜 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)提供中文文本于[https://gnews.org/zh-hans/1181099/](https://gnews.org/zh-hans/1181099/)
+[2] 感谢 YY、Liberte 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)提供英文翻译于 [https://gnews.org/1190057/](https://gnews.org/1190057/)
 
-参考链接：
+* * *
 
-[https://img1.wsimg.com/blobby/go/fb7c7bd8-097d-4e2f-8f12-3442d151b57d/downloads/2021%20Open%20Letter%20from%20Retired%20Generals%20and%20Adm.pdf?ver=1620909565500](https://img1.wsimg.com/blobby/go/fb7c7bd8-097d-4e2f-8f12-3442d151b57d/downloads/2021%20Open%20Letter%20from%20Retired%20Generals%20and%20Adm.pdf?ver=1620909565500)
+字幕：【JennyL】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】【Rock小哥】
+校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0
