@@ -1,9 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 梦中七哥哥
-` developer001` [轉載自GNews](https://gnews.org/zh-hans/1236130/)
+## 这个世界由我们改变
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/1236682/)
 
-G-News编辑部 作者: 文运
+作者所属农场：韩国首尔喜韩农场
+
+作者：主安
+
+配音：理想国
 
 +1

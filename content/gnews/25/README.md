@@ -1,9 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 除灭暗愚
-` 喜韩Gnews中文` [轉載自GNews](https://gnews.org/zh-hans/1236872/)
+## 福奇博士否认他本人及NIH资助武病毒所的功能增强研究
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1236892/)
 
-作者：闪闪
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13040302/%E9%99%A4%E7%81%AD%E6%9A%97%E6%84%9A-2021.05.12-%E9%97%AA%E9%97%AA.jpg)
+5/11/2021 参议员兰德·保罗：福奇博士在国家电视台公然否认他及其领导的美国国家卫生研究院从未也没有资助武汉(病毒)研究所的功能增强研究，罔顾蝙蝠女石正丽数年前发表的一篇关于功能增强研究的论文中将福奇本人和美国国家卫生研究院列为该研究资助者的事实。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
 +1
