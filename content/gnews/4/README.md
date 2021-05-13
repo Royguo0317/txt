@@ -1,29 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在印度，数百具尸体从恒河中浮出
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1238116/)
+## Journey of an NFSC Whistleblower
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1233575/)
 
-消息来源：today.it
-发布时间：2021.05.12
-翻译整理：斩草要除根
+#### **Himalaya Toronto Maple Leaf Farm – Liberte**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12135049/endgame.jpg)
+In January, 2020 my mother died. Her health had been declining but there was nothing immediately life-threatening. She decided that it was time. Her quality of life was on the wane. She knew it. She decided she wanted to choose “assisted death” while she could still qualify to make the decision herself. My mother was a very strong, principled woman. She truly was my idol, my rock, my model for how to lead my life. Never wanting to be a burden. She was also very aware of what was going on in the World. She did not like what she saw. She was very worried about the bullying by the CCP. This was only about two weeks before the CCP-virus became a headline issue. She did not know about the virus. Her judgement of the CCP was based on what she knew of recent Chinese history and their belligerent behavior.
 
-在中共病毒肆虐的印度，尸体从恒河中冒出，人们怀疑中共病毒的死亡本来应该是火化的；相反，不知什么原因有尸体落入了恒河中。
+I am not looking for sympathy. My observation is simply how coincidental, prophetic, or fateful her decision to end her life at that exact time was. She escaped the indignity of being quarantined and isolated from her family in her assisted living home. I miss her every day but when she asked me if I understood and accepted her decision I replied: “of course I understand your decision to end life on your terms, but I will miss you like mad until the end of mine”.
 
-昨天，在印度北方邦加马（Gahma）村以南约50公里处，发现了五十具尸体。然后在北方邦的巴里亚（Ballia）和噶兹普洱（Ghazipur）地区也有同样的发现。在周一，印度当地媒体谈到了至少一百具漂浮在河中的半燃烧的尸体。他们极有可能是死于中共病毒，且应该是在街道上的火葬尸体，但无法以合适的方式被埋葬的人。这些事情特别发生在印度的最贫穷，最落后的地区。
+The world has descended into a surreal abyss since then, and yet I have been able to transcend this crippling event, which might have otherwise dragged me into depression, by devoting myself to the Whistleblower Movement and the NFSC, imagined by Miles Guo. As Alexander Graham Bell said: “when one door closes, another opens”. I have passed through the door and it has been transformative.
 
-根据印度一些居民的证词，他们说尸体在进行火葬仪式的码头上堆放。在该地区闻到强烈腐烂气味的人提出了抗议。一些地方当局已经展开调查，以试图弄清这些尸体为何最终落入水中，无论是意外事故还是那些想摆脱烧焦尸体的人的故意做法。据称肯定已经将至少100具尸体在死于中共病毒后被扔到了恒河中。
+What propels somebody to want to participate in a Rebellion, a Revolution? The answer is different for different people. In my case, the clues began at a young age. Living next door to the Soviet Union during the cold war meant special drills in school in case of a nuclear attack, leaflets dropped in our mailbox telling us what to do in case of attack, reports of Soviet submarines in our waters, bellicose language and regular threats from the Soviets.
 
-同时，今天在印度有新的感染记录，印度卫生部的报告说，有34万8421例新的感染中共病毒的人和4205人死亡，是迄今为止记录的最高数字。世卫组织一直将印度变种归类为“令人担忧”的一种病毒种类。
+Freedom was something that you learned to cherish from an early age – it was in your genes. Even as a youngster I asked myself what I would do if confronted with a situation like WWII? Would I be a follower and accept the Genocide around me, or would I try my best to be part of the resistance? I told myself I would never accept just being a bootlicker, a sheep. Standing aside to let evil reign supreme was not an option.
 
-简评： 我们绝对相信印度的死亡人数比实际报道的要多得多。一方面印度面对艰难的救治工作，另一方面还要面对巨大的尸体处理问题，在无法及时处理好这些尸体的处境下，尸体所带来的灾难和隐患也是巨大的。在此时世界的那一个角落，人间地狱在印度。
+When my family began following Miles Guo in 2017 they still believed that Xi Jinping was going to be a positive influence on China. I told them that it would be highly improbable that any leader with that concentration of power, particularly in a country like China, would be a benign force, governing for the benefit of the people. Miles changed their thinking. He washed away the years of indoctrination, and replaced it with facts, wisdom, goodness, truth and faith. What he said rang true. It was incontrovertible. Once in a lifetime, a magnanimous leader comes along who has a mission rooted in love, freedom and faith. He does not like being deified, but he must be acknowledged. He is our general.
 
-（本文仅代表个人观点。）
+No need to go over the decades of evidence that the CCP is an evil terrorist organization again. By now the evidence is myriad. However, plugging into Miles’ webcasts in the early days opened up a new world for us. His knowledge and contacts. The insider information. The passion and faith. The generosity. The realization that this was the struggle of our time, and now was the moment to test the vows I had made in my youth to stand up and resist. We stepped into a world of devotion to the cause. We stepped away from our previous lives. Away from many friends and family – although not by choice. Rare was the person who shared our concerns, or our passion to do anything about it. We have learned to accept that. We are not fighting for comfort, praise, fame or ego. Our most common phrase now is: “I don’t give a shit”!
 
-消息来源🔗：[today.it](https://www.today.it/mondo/india-covid-gange.html)
+For me, it was like finding new meaning in life. The evil of the CCP is an unfortunate unifying event, however the coalescing of the Whistleblower Movement has been a beautiful thing. Something that I believe will stand the test of history and time. My late father used to quote a Swedish saying: “mycket tål han skrattas åt, men mera hedras ändå”. Roughly translated that means “he endures much derision, but should be honored more instead”. This has been the experience of our Whistleblower Movement. Much derided and long ignored. Miles, and his movement, have nonetheless risen above the fray and proved themselves worthy of the World’s gratitude and admiration. Charity, selflessness, sacrifice, transcending greed, the examples of heroes – like our own Dr Li-Meng Yan.
 
-* * *
+This is a David and Goliath story, but the power of righteousness and truth shall prevail. What a feeling that is – savour it! Being on the side of truth and goodness and to know that it will triumph. That is the definition of faith. We all hold onto that feeling. Evil will not reign. The enemy is a paper tiger. A cheap suit ready to fold on exposure to the disinfecting sun of truth. We are building a better suit. A “bespoke” suit. Handmade and tailored to the Chinese people – with justice, faith and freedom for all. Our common cause envelopes the Chinese people. It embraces them. It recognizes their generational struggle. It hears their mute cries. It secerns their shackled conflict.
 
-校对/发布：阿娜
+We shall never bend. We will not compromise, negotiate or abandon our principles. The CCP must be defeated. Removed. The will of the Whistleblower Movement will be done. Righteousness will prevail. Tremble at our determination. Fear the cleansing wave of our truth. Bow before the Revolution. It is inevitable.
+
+My Mother’s strength, determination and principles live in me, and they will not be vanquished.
 
 0

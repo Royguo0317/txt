@@ -1,15 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 视频 – 曙光 The Dawn
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1207983/)
+## 中共疫苗糊弄人！塞舌尔疫情大爆发
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1238236/)
 
-旧金山金喜农场 – 德先生德教云书院
+路仁
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13101226/gettyimages-1215811867-640x640-1.jpg)
+最近位于印度洋上一个岛国塞舌尔，由于疫情大爆发引起了世界媒体的关注。而疫情大爆发的后面，是这个人口只有10万的小岛国，却是世界上疫苗接种率最高的国家。根据[路透社的数据](https://graphics.reuters.com/world-coronavirus-tracker-and-maps/countries-and-territories/seychelles/)，截至目前，塞舌尔共计获得疫苗128,919剂，按照平均每人注射2剂计算，该国的疫苗注射率应该为66%。如果考虑儿童以及过敏不能注射的人群，这个比例应该更高。
 
+然而，连续几天的病例到达了该国历史上的最高，7日平均值每天257例，总计8172例活跃病例。（以人口比例换算成美国的话每天新增84.3万）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13101132/sai.jpg)
+塞舌尔自从1月10日接收了中共提供的第一批国药疫苗以来，根据[CTV引用WHO的数据](https://www.ctvnews.ca/health/coronavirus/who-reviewing-seychelles-covid-19-data-after-fully-vaccinated-people-test-positive-1.5422799)，该国近60%的居民接受了两针疫苗。这么高的疫苗注射比例，按说疫情应该能稳住了，至少不会大爆发了吧。然而，最近7天的平均感染病例激增到平均每天257例。这其中，37%的病例接种过两剂疫苗。而所有接种疫苗里面，57%接种的是来自中共国药集团的灭活疫苗，43%接种是印度产的阿斯利康疫苗。塞舌尔卫生部并没有指出，这超过1/3的已经接种两剂疫苗的复染患者，是接种的哪种疫苗。
 
+尽管中共国自今年初就向56个国家捐赠了1330万剂国药疫苗，绝大多数都是贫穷落后的第三世界国家。并且声称其疫苗有效率78.1%，而根据WHO一直在监督多个疫苗试验的澳大利亚墨尔本默多克儿童研究所的儿科医生Kim Mulholland博士的观察，塞舌尔的最初报告显示疫苗有效率仅为[50％左右](https://www.eddiba.com/%E5%A1%9E%E8%88%8C%E5%B0%94%E5%B0%BD%E7%AE%A1%E6%8E%A5%E7%A7%8D%E4%BA%86%E7%96%AB%E8%8B%97%EF%BC%8C%E4%BD%86%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92%E7%97%85%E4%BE%8B%E6%9C%89%E6%89%80%E5%A2%9E%E5%8A%A0/)。
 
-[https://mega.nz/folder/8YJ1DCoK#78g0KlCWgB5Hv73l\_pQd\_w](https://mega.nz/folder/8YJ1DCoK#78g0KlCWgB5Hv73l_pQd_w)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/11043710/%E6%9B%99%E5%85%89%E8%A7%86%E9%A2%91%E5%B0%81%E9%9D%A2.png)
+从近期印度的疫情大爆发，到这几天塞舌尔的疫情大爆发，中共病毒犹如挥之不去的噩梦，在考验着人类的耐受力。印度是眼见着就看到了战胜病毒的曙光，没想到却迎来了更大的劫难。而塞舌尔，在接种疫苗之前，该国的疫情就一直很稀少，本以为疫苗能给喜欢舞蹈唱歌的岛国居民正常的生活，没想到换来的却是疫情大爆发。是这里的人民本来就放松？还是疫苗使得人民放松了警惕？
 
-![]()![](https://media.discordapp.net/attachments/723203467002511400/841273458859966464/unknown.png?width=1094&amp;height=617)![This image has an empty alt attribute; its file name is QRcode_GGB_v2.jpg](https://lh4.googleusercontent.com/2Yll3_o8WAewPEle23Re7GrfelivsUtAIPhs7GcD2ESgJg-VONopi2L8w6Ef9y-CnG3MTBoGrEkNhjRYNhpTPx9lEG1pFbewOMFft3CRiJPB4qAMXXonTW_6kfK8FYZElptGfnds)
+我们不仅要问，塞舌尔的疫情爆发，是疫苗接种的比例不高吗？（接种比例世界第一）还是中共疫苗或者阿斯利康疫苗效率低下，达不到免疫的效果？还是作为中共实验室制造的病毒，根本不是疫苗能够防止了的？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13101120/share.jpg)
+塞舌尔的疫情，给众多寄希望于中共疫苗的第三世界国家，无疑是当头一棒。不管中共国外交部战狼怎么样的狡辩，说外媒是“涉华必黑”的不健康 心态，都否认不了该国疫情大爆发的事实。
+
+中共疫苗不可靠，其他的疫苗就可靠吗？最近由于产生血栓的副作用，强生疫苗和阿斯利康疫苗在美国和一些其他国家接连被停止注射。而在病毒变种的面前，即便是主流的辉瑞疫苗和莫当纳疫苗，也出现了[效率下降](https://www.singtao.ca/4876539/2021-04-12/post-%e5%8d%97%e9%9d%9e%e8%ae%8a%e7%a8%ae%e7%97%85%e6%af%92-%e8%83%bd%e7%a0%b4%e8%bc%9d%e7%91%9e%e3%80%8c%e9%98%b2%e8%ad%b7%e7%b6%b2%e3%80%8d/?variant=zh-cn)的情况，以至于不得不开始[研发针对新型变种病毒的新疫苗。](http://www.takungpao.com/news/232111/2021/0430/580309.html)
+
+正如闫丽梦博士讲的那样：“留给人类的时间不多了！”。在病毒面前，作为地球大家园的每一个成员，都不可能独自安全。只有查清病毒来源，搞清病毒的设计原理，人类才有可能找出对付病毒的终极办法。否则，在这场病毒与疫苗的猫捉老鼠游戏中，疫苗永远赶不上病毒的速度。更不要说中共国的疫苗，会不会又是给世界挖的另一个坑呢？
+
+* * *
+
+*编辑、发稿 文锦*
+
 +2

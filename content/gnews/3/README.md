@@ -1,43 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》新闻快讯（视频版）: 20210511闫博士接受Newsmax采访
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1238150/)
+## 【每日快訊】05/12/2021：美国重兵布局东南亚石油通道；以毒灭共带动知识界、文化界共同灭共
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1238352/)
 
-《路德社》出品
-
-以下视频是详细内容：
-
-主要内容：
-
-1.狡猾的福奇否认NIH资助武汉实验室
-
-2.闫：福奇头换了概念
-
-3.CCP管控的实验室不会在申请NIH资金的时候写用于功能增强
-
-4.福奇没说没资助武毒所而是说没有资助功能增强实验
-
-5.这背后是一张巨大的学术网络，包括了中国军事医学院以及港大实验室
-
-6.需要彻底全面的调查
-
-7.Newsmax也提到徐德忠的那本书
-
-8.中共国将病毒武器化，其突出成果就是这个肆虐全球的病毒
-
-9.超限生物武器 #UnrestrictedBiowarfare
-
-10.这本书介绍了如何用SARS1以及相关冠状病毒，制造致命性不需太高但足以摧毁敌国社会秩序（经济和医疗系统）的生物武器
+**制作：Cantonese工作室**
 
 
 
-翻译：路德社翻译组
+**播报：【文依】资料整理：【Elaine】、【文依】、【An】海报制作：【侬民】、【Penny】视频制作：【Ken】粤语翻译校对：【文雀】**
 
-制作：路德社视频组
 
-审核校对：玫瑰新闻组
 
-上传排版：玫瑰新闻组
+## 摘要：
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13103058/1-128.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13103131/2-136.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13101655/3-83.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13101511/4-45.jpg)
+
 
 0
