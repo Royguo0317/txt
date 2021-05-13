@@ -1,43 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】法军舰进佐世保港
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1237300/)
+## 西喜时事新闻简报—病毒福奇篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1237482/)
 
-作者：纽约香草山健身部 童谣
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191310/s2-7.jpg)
+- 作者：wenwu
 
 
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-美国在钓鱼岛的伞兵演习刚落下帷幕，紧接传出法国舰艇即将驶入日本佐世保港口的消息。那么美日法三国联合将会激荡出何种火花？佐世保地区在其中到底扮演何种角色？随着进一步探究，事情逐渐明了。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13070405/%E5%9B%BE%E7%89%878-37.png)
-据法广新闻报道，日本自卫队、美军、法军预定11日至17日在日本九州举行联合军事演习，这是法军首度参与日本境内的联合军演。
+**西班牙2021年5月13日电/西喜社——**
 
-法国海军的两栖攻击舰9日上午进入九州长崎县的佐世保港。从19世纪80年代末起，佐世保港就是日本的重要军港。其在地理位置上濒临印度洋和南中国海，成为西日本的防御重心，且一度作为日军对亚洲大陆的出兵据地。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-207.png)
 
-佐世保港本身设有美国海军舰队基地和日本海上自卫队基地，为美国太平洋舰队在东亚的前线部署单位或来访舰艇提供后勤支援等服务。但也因这种位置，佐世保基地也面临着中共方面的军事威胁和挑战，此次法国舰队进入佐世保港开展三国联合军演，正是一场在军事超限战上直指中共的威慑与反击。
+您若想了解全文报导内容，请点击标题链接
 
-在政治上一度软弱亲共的法国总理马克龙，也在英国伊丽莎白航母进入印太地区巡航之后，终于跟随美国进入亚洲边缘地区。据悉参加三国联合军演的法国速科夫号全长约200公尺，最多可搭载18架直升机，是扮演水陆两栖作战核心角色的战舰。如此规模重要的演习也意味着法国终于参与表态，用脚投票，支持同盟国抗共统一战线。
+**1.[独家：中共国军队对美国病毒研究的大规模渗透](https://www.thegatewaypundit.com/2021/05/massive-infiltration-u-s-virus-research-chinas-military/)**
 
-素材来源：
+据《门扉网》5月11日电，2020年8月，已被中共渗透的德克萨斯大学医学分部被安东尼·福奇指定为新兴传染病十大研究中心之一，并由福奇名下的国家过敏和传染病研究所赠款资助，总额为8200万美元。与武汉病毒研究所亲密的彼得·达扎克的生态健康联盟，为另一个新兴传染病研究中心，获得750万美元。
 
-https://www.rfi.fr/cn/%E6%B3%95%E5%9B%BD/20210509%E7%BE%8E%E6%97%A5%E6%B3%9511%E6%97%A5%E8%B5%B7%E8%81%94%E5%90%88%E5%86%9B%E6%BC%94%E6%B3%95%E5%86%9B%E8%88%B0%E8%BF%9B%E4%BD%90%E4%B8%96%E4%BF%9D%E6%B8%AF
+**2.[观察：参议员保罗因 “功能增强 “资金问题而抨击福奇](https://www.zerohedge.com/political/watch-sen-paul-rips-fauci-over-gain-function-funding)**
 
-校对/发稿：飞虹
+据《零对冲》5月11日电，（10日）安东尼·福奇与参议院兰德·保罗就福奇批准资助新冠病毒研究的追责，在国会举行了听证会。福奇声称，中共用自己名下机构批准的资金去做什么，并没有反馈给他；美国国立卫生研究院与新冠病毒的起源无关。但援引《华盛顿邮报》的报道，武毒所向美国大学和机构公开了“功能增强”研究。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191415/M5-2.jpg)
+**3.[福奇资助的研究人员在武汉实验室的“功能增强”会议后 做了头条新闻](https://thenationalpulse.com/exclusive/fauci-researchers-headlined-wuhan-gain-of-function-event/)**
 
-**更多资讯，更多关注**
+据《国家脉动》5月12日电，2017年5月的活动“由美国共同组织。美国国家科学院、中国科学院、武汉病毒研究所、中国科学院和湖北省微生物学会组成。”参与会议活动的有中美两国的科学家，他们谈论了生物武器项目——“获得功能研究、基因编辑、靶向和传递以及其他新型生物技术”，福奇也批准了授予资助。
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**4.[独家：更多证据表明福奇博士正在资助中国人民解放军进行用于生物战的病毒研究（突发更新）](https://www.thegatewaypundit.com/2021/05/exclusive-evidence-dr-fauci-funding-chinas-peoples-liberation-army-virus-research-used-biological-warfare/)**
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+据《门扉网》5月12日电，中共解放军第二军事医科大学的共斌渗透到德克萨斯大学医学分部，为用美国人的钱来共同制造生物武器作了铺垫。中共也利用寨卡病毒“功能获取”，成功发动了超限生物战。该报道显示，安东尼·福奇就此次生物武器研究批准了资金770多万美金。
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+**5.[塔克·卡尔森（Tucker Carlson）：福奇对新冠病毒大流行的责任 在美国人排第一](https://childrenshealthdefense.org/defender/tucker-carlson-fauci-more-responsible-covid-pandemic-than-any-american/)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+据《捍卫者》5月12日电，卡尔森引用了尼古拉斯·韦德的一篇文章，在这篇文章中，这位科学作家和前《纽约时报》记者阐述了新冠病毒起源于—武汉病毒研究所，即是实验室泄露理论背后的证据。另外，福奇批准了美国纳税人的钱资助了研究“功能增强”的武汉病毒研究所。
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+审核： 蚂蚁兄弟；校对：信心满满； 发稿 : 信心的选择
+
+**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
 
 +1

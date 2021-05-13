@@ -1,74 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共产外宣玩调包 瑞士雪山落中国
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1236864/)
+## 【各抒己见】中共国道德法制课老师残暴虐童
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1236963/)
 
-新闻来源：《布赖特巴特》| 作者：Kurt Zindulka | 发布时间：2021年5月11日
-翻译/简评：原乡人 | 校对：SilverSpurs7 | 审核：万人往 | Page：我是球大哥
+作者：喜马拉雅东京樱花团 / Peter wong
 
-[!\[\]()!\[\](https://spark.adobe.com/page/b8FA99fZxLCJG/images/24197bde-4e28-4a4e-b76c-191f19f22d03.jpg?asset_id=ad6dc90e-85a5-4ed6-b397-d0d55fb1ea3f&amp;img_etag=%2263b0b58585eae8202f894c8d73658ac4%22&amp;size=1024)](https://spark.adobe.com/page/b8FA99fZxLCJG/images/24197bde-4e28-4a4e-b76c-191f19f22d03.jpg?asset_id=ad6dc90e-85a5-4ed6-b397-d0d55fb1ea3f&amp;img_etag=%2263b0b58585eae8202f894c8d73658ac4%22&amp;size=1024)
+![](https://lh3.googleusercontent.com/kCptace_DTbqv0M-zQ04eUyY17qDip6QSl_OlYRTl1erjCCzWYmigMqeF1Rh4Ge6CQUlsGdSLeXR3wQ2fgwb5_91jHyLouMHxyT09qJuagnL6fnW63acnJnjFWxoPgzS7oWAZKsI)
+图片来自网络
 
-2021年5月11日，布赖特巴特新闻网发出中共国大外宣《中国日报》视频造假被举报的新闻。《中国日报》硬是把瑞士摄影家的一段瑞士雪山脚下村里遛狗的视频，标上#GlamorChina“魅力中国”的主题标签，让人误以为这是中共国境内的一个旅游地。今天上推特去看，已经被删除，但是推友的截屏和嘲讽依然还在。
+近日，安徽淮南潘集区某小学家长反映，孩子右脚被道法课老师泼开水烫伤，十多名学生有同样遭遇。多名学生反映，在学校期间遭该教师虐待，掐脖子、按到桌子下踩脸、按头等。5月4日，针对潘集四小鲁某体罚学生的行为，区教育局给予其记过处分，调离原岗从事教辅工作，校长黄某党内警告处分。
 
-中宣部直属的《中国日报》的小编估计在中共国“假骗偷”他人视频早就习以为常，稍作修改就成自己的作品，根本没当一回事，没想到这次碰上了认真的瑞士人，去推特、脸书举报。想起年初在一个“路德时评”的节目中，博士军团戏弄人民网造假习近平照片的插曲，说照相的时间数据与习总参会的时间不符，直播当中，小编居然与“节目互动”，当场修改数据，令人捧腹。
+中共国的道德法制课前身是政治课，它在不同阶段有不同的叫法，小学叫“品德与生活”，初中叫“思想品德”，高中叫“思想政治”。中共教育部于2016年发布《关于2016年中小学教学用书有关事项的通知》2016年起，义务教育阶段小学和初中起始年级的“品德与生活”“思想品德”教材名称将统一更改为“道德与法治”。这是中共1949年建政以来“法治” 首次出现在义务教育阶段的政治课程名称之中。
 
-党国官媒外宣的代表，一个个如此弱智，以为全世界人都是傻瓜，看不透他们低劣的伎俩。只能说在“伟光正”政党的治下，永远只会劣币淘汰良币。设想被招入如此重要机关的年轻人，一个个被政审层层过关，剩下的估计只有党性和奴性，没有了悟性和人性。常人眼里的Commen Sense（常识）都要他们来指出和矫正，如此体制下培养出的中共的接班人，最后只能是中共的掘墓人。
+这门课程的内容不是宣扬民主法治和普世价值，虽然相较过去加大了法律相关课程的比重，但是内在主题还是禁锢自由思想的社会主义洗脑教育，从小学到大学作为一门课程，用考试的方式强迫洗脑，让学生认同“中国特色社会主义制度的优越性”，将有明显政治倾向的课程作为必修的义务教育课程，在正常的国家都是犯罪的行为。
 
-**原文翻译：**
+中共国每位老师从业前都要经过教师职业道德考试，想必新闻中的这位道德法制课老师也不例外，照理说他应该是全校对法制理解最透彻的老师了，这是他的专业，但是他用虐待儿童的方式给学生们展示了，共产主义极端邪恶暴力的本质，正如中共如今表面上宣讲的是道德与法制，骨子还是将“枪杆子出政权”奉为圭臬。
 
-## 独家新闻：共产官媒玩调包，瑞士雪山落中国
+老师用泼开水、脚踩脸的方式体罚学生，就算在审讯犯人的过程中都是禁止的，人们不禁要问这明显是虐待儿童，是刑事犯罪了，对于涉事校长和教师的处罚为什么如此之轻？因为中共国刑法没有“虐童罪”这一罪名，而刑法中的“虐待罪”指虐待家庭成员，儿童不属于教师的家庭成员；“故意伤害罪”则需受害人伤势达到轻伤以上结果，多么荒唐可笑，这就是中共虚假法制的最好证明。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/b8FA99fZxLCJG/images/82948d7a-f3b5-477e-b127-55e8f248b4ba.jpg?asset_id=a0133f8c-a71b-48f3-abdd-9931e99dc7d3&amp;img_etag=%22fca995954819bfff2212e65c6c206a22%22&amp;size=2560)](https://spark.adobe.com/page/b8FA99fZxLCJG/images/82948d7a-f3b5-477e-b127-55e8f248b4ba.jpg?asset_id=a0133f8c-a71b-48f3-abdd-9931e99dc7d3&amp;img_etag=%22fca995954819bfff2212e65c6c206a22%22&amp;size=1024)图片来源：Afbeelding van Viola via Pixabay
+参考文章：
 
-**《中国日报》是一家官办外宣报纸，周日发布了一段“魅力”视频，一只狗在“中国”雪山脚下的一个村庄里嬉戏，而事实上，该视频拍摄的是瑞士的山脉。**
+[澎湃网](https://www.thepaper.cn/newsDetail_forward_12539979)
 
-中国共产党宣传部（中宣部）下属的《中国日报》在推特上发布了这段视频，截至笔者发稿，该视频仍在网上。
-
-随者视频的播放，该报问道：“你难道不想参观这个宁静的度假胜地，在依山傍水的小镇上与你的狗享受玩耍的时光吗？”旁边还有#GlamorChina（#魅力中国）的主题标签。
-
-
-
-> Why exactly is this tagged as [#GlamorChina](https://twitter.com/hashtag/GlamorChina?src=hash&amp;ref_src=twsrc%5Etfw) ? If I flip the video horizontally it matches 100% with Brienz Switzerland. [#chabuduo](https://twitter.com/hashtag/chabuduo?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/x2yrknRmat](https://t.co/x2yrknRmat)
-> — toxonaut (@CryptoBasel) [May 10, 2021](https://twitter.com/CryptoBasel/status/1391657364034670598?ref_src=twsrc%5Etfw)
-
-
-
-推文翻译：
-
-#GlamorChina 你不想参观这个宁静的度假胜地，在依山傍水的小镇上与你的狗享受玩耍的时光吗？pic.twitter.com/Md83RH23Nd
-
--《中国日报》（@ChinaDaily）2021年5月10日
-
-一些中共实体例如中共国驻欧盟代表团、中共国驻荷兰、匈牙利和奥地利的大使馆——都使用了相同的#GlamorChina标签来宣传中共国境内的各旅游目的地。
-
-其他视频看起来的确是去中共国旅游目的实地拍摄的，但《中国日报》周日分享的遛狗视频却是在瑞士的布里恩茨Brienz拍摄的，位于艾门塔尔阿尔卑斯山区。
-
-瑞士摄影师和摄像师西尔维娅·米歇尔（Sylvia Michel）是著名的索尼世界摄影奖、2018年瑞士国家奖得主，她在3月拍摄了这段原始视频。
-
-米歇尔在接受布赖特巴特伦敦社（Breitbart London）的采访时证实：“这段视频是我在瑞士布里恩茨晨练时拍摄的。”她补充道，此后她向脸书和推特举报这家中共国宣传机构公然盗用她的录像资料，而根据推特和脸书的知识产权规定，这是禁止的。
-
-中共宣传版本的视频被稍作编辑，包括将图像水平翻转，将色彩稍作修正，似乎还让狗嘴里咬上一根棍子。
-
-事件发生后，这位摄影师将其视频的标题更新为：“豪华4K的真正含义（这是瑞士的布里恩茨…不是中国）。”
-
-
-
-社交媒体用户纷纷嘲弄《中国日报》账户的帖子，一位用户写道：“这地方可是瑞士，不，我不会把我的狗带到中共国来遛的，想得美，哈哈。”
-
-另一个人开玩笑说：“瑞士要感谢中共国政府为这个美丽的国家做广告，帮助促进那里的旅游业#GlamourSwitzerland（#魅力瑞士）。”
-
-[原文链接](https://www.breitbart.com/europe/2021/05/11/exclusive-chinese-propaganda-paper-tries-to-pass-off-swiss-alps-as-china/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/b8FA99fZxLCJG/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/b8FA99fZxLCJG/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-
-
-+1
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+*校对：喜马拉雅东京樱花团 / 東洋武士*
+*责任编辑：喜马拉雅东京樱花团 / 文小白*
+*发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13031339/%E4%BA%8C%E7%BB%B4%E7%A0%81-1.jpg)
++3
