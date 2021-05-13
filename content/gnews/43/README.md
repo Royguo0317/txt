@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】天亮时分
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1238275/)
+## 【有声读物】力与量
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1238325/)
 
 配音：香草山福音部 Daxia
 
@@ -14,21 +14,19 @@
 
 
 
-撒担魔爪遮挡
+一颗水滴
 
-天空灰蒙蒙一片
+坚持，便可石穿
 
-大地塌陷
+一片大海
 
-到处弥漫着刺鼻的烧焦味
-
-死灰俱寂
+永恒，便容纳千河百川
 
 
 
-**文字版原文：[【香草诗词汇】天亮时分](https://gnews.org/zh-hans/604188/)**
+**文字版原文：[【香草诗词汇】力与量](https://gnews.org/zh-hans/587016/)**
 
-作者：纽约香草山写作组 Daxia
+作者：纽约香草山福音部 Daxia
 
 
 

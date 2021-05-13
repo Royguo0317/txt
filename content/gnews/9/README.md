@@ -1,64 +1,83 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】祝贺64
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1239002/)
+## 【战友心声】雅典娜视角
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1238989/)
 
-作者：香草山美食部 新世界的一员
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+作者：纽约香草山健身部 澄道
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13135914/image0-6.png)
-
-蓝旗迎风飘
-国歌威力冲云宵
-同庆64新中国
-回顾四载爆料
-
-天使临 英豪聚
-誓将善勇灭共妖
-一声七哥
-炎黄子孙挺直腰
-
-驱幽灵 歼恶魔
-生物战中真相活
-世人悟 世界醒
-自由女神展蹙额
-
-万众一心有信仰
-普世价值在人间
-红色种恶因
-蓝色扬善念
-
-唯真不破溃红妖
-传统文化换新颜
-有爱有情又有义
-万世不朽后世传！
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12223539/5%E6%9C%88.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
 
 
-**六四文宣大赛，****欢迎大家踊跃投票****：**[**https://gnews.org/poll/poll-article\_1/**](https://gnews.org/poll/poll-article_1/)
+– 般若 晨兮 澄道来了 –
 
-**投票注意****事项****：****第一，比如投票视频，一个账号需要同时选中要投的三个视频作品，方可以投票；第二，因为视频比较大，所以需要大家静待一两分钟，然后进入视频投稿界面。第三，投票的战友也有机会获幸运参与奖啊。**
+– 喜玛拉雅墨尔本雅典娜农场之声 –
 
-**简体**
+– 献给七哥51岁生日礼物 –
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13141302/6-17.jpg)
+
+一道文化的大餐
+
+菜品即人品
+
+一场历史的复盘
+
+唯真即实真
+
+洞知智慧雅典娜
+
+灼见正道真视角
+
+改变劣币驱逐良币的陋习
+
+从改变巨婴纠缠开始
+
+有家庭是幸福的人
+
+建立优胜劣尊的社会风俗
+
+靠激活人格独立平等为天
+
+有战友是完整的人
+
+雅典娜视角：
+
+是一档有角度
+
+有深度
+
+有速度
+
+有温度栏目
+
+是一档“四度灭共”用心节目
+
+（本文仅代表作者观点）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+
+编辑/校对/发稿：Irene木木
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-0
+
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+
+
++1

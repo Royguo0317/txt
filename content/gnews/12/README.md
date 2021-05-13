@@ -1,29 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美俄外交负责人同意5月份在雷克雅未克会晤
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1238902/)
+## 【香草诗词汇】祝贺64
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1239002/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+作者：香草山美食部 新世界的一员
 
-编辑上传 水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13133957/U-4.jpg)english.alarabiya.net
-05月12日，俄罗斯和美国外交的负责人谢尔盖·拉夫罗夫（Sergei Lavrov）和安东尼·布林肯（Anthony Blinken）进行了电话交谈，期间他们同意在雷克雅未克举行的北极理事会（AC）“休会期间”会晤。这是俄罗斯外交部网站上的报道。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-该部表示，在谈话中，双方讨论了在北极理事会（AC）中的互动，包括该组织主席职位向俄罗斯的过渡，这将在5月20日的雷克雅未克部长级会议上举行。声明说，“拉夫罗夫和布林肯同意在本届会议的‘间隙’举行一次单独会议，讨论双边关系和国际议程的关键问题。”
 
-拉夫罗夫和布林肯还讨论了“未来一段时间的其他美俄接触的时间表，包括华盛顿提出的组织美俄峰会”。
 
-该部门说，双方还就处理朝鲜半岛核问题的方法和延长关于《伊朗核计划的联合全面行动计划》交换了意见。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13135914/image0-6.png)
 
-根据国务院发言人内德·普莱斯（Ned Price）的评论，在谈话中，布林肯“重申了乔·拜登总统坚决捍卫美国利益以应对俄罗斯损害他们及其盟友的行动的决心”。
+蓝旗迎风飘
+国歌威力冲云宵
+同庆64新中国
+回顾四载爆料
 
-早些时候，俄罗斯副外长谢尔盖·里亚布科夫（Sergei Ryabkov）说，拉夫罗夫和布林肯可能在雷克雅未克的北极理事会会议期间单独举行会议。“我承认，这将符合时间表，但它首先要求我国领导人和美国国务卿之间有这样的谅解。”里亚布科夫说。
+天使临 英豪聚
+誓将善勇灭共妖
+一声七哥
+炎黄子孙挺直腰
 
-北极理事会由八个环北极国家组成：加拿大、丹麦、芬兰、冰岛、挪威、俄罗斯、瑞典和美国。今年5月，北极理事会的主席职位传递给了俄罗斯，任期至2023年。
+驱幽灵 歼恶魔
+生物战中真相活
+世人悟 世界醒
+自由女神展蹙额
 
-参考链接：
+万众一心有信仰
+普世价值在人间
+红色种恶因
+蓝色扬善念
 
-[https://www.rbc.ru/politics/12/05/2021/609c03609a79472e5f765c66](https://www.rbc.ru/politics/12/05/2021/609c03609a79472e5f765c66)
+唯真不破溃红妖
+传统文化换新颜
+有爱有情又有义
+万世不朽后世传！
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12223539/5%E6%9C%88.jpg)
+
+
+
+**六四文宣大赛，****欢迎大家踊跃投票****：**[**https://gnews.org/poll/poll-article\_1/**](https://gnews.org/poll/poll-article_1/)
+
+**投票注意****事项****：****第一，比如投票视频，一个账号需要同时选中要投的三个视频作品，方可以投票；第二，因为视频比较大，所以需要大家静待一两分钟，然后进入视频投稿界面。第三，投票的战友也有机会获幸运参与奖啊。**
+
+**简体**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
