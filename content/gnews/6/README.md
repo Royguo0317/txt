@@ -1,49 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】得胜的生命象什么？
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1238370/)
+## 对通货膨胀的担忧导致世界股市下跌
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1238470/)
 
-配音：香草山福音部 Daxia
+编译：坐看云起时
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+路透社5月13日消息，由于债券市场对美国通胀率上升幅度高过预期的担忧，以及前一段时间极其火热的金属、农作物和加密货币价格都突然下滑，周四世界股市正朝着最糟糕的一周飞速下跌。
 
+继华尔街之后，亚洲股市遭受重创，伦敦富时指数在中午前下跌了2%，债券、商品和美国期货市场均下跌，埃隆-马斯克（Elon Musk）和特斯拉宣布不再接受比特币。
 
+市场最主要的担忧是美国通胀压力的上升可能会迫使美联储开始停止量化宽松政策。
 
+Unigestion的投资经理Jeremy Gatto说：”通胀压力将会上升，而且它们不会是暂时的，”。”这意味着什么？实际上就是（利率）将上升。”
 
+包括50个国家在内的MSCI世界股票指数下跌了0.6%，并有可能继续下跌。一周下跌近4%，这将是自去年10月以来最糟糕的一次。
 
+基础资源、石油和天然气行业是最近因商品价格飙升而涨幅最大的行业，但由于油价在六周以来最糟糕的一天中下滑了近2.5%，这些行业下跌了2%以上。华尔街期货下跌0.4%。
 
+此前周三，数据显示美国4月份消费者价格创下近12年来的最大涨幅。该涨幅主要是由于大流行病导致机票、二手车和住宿费用的大幅增加，而这些可能被证明是过渡性的。
 
-基督里的生命如美酒
-虽然你不明白缘由
-喜乐常环绕在心头
+这一跳升引发了标准普尔500指数自2月份以来最严重的单日下跌。
 
-基督里的生命如溪流
-即使你不知道前途
-欢快伴随着轻柔
+美联储官员迅速淡化了一个月数据的影响，副主席理查德-克拉里达（Richard Clarida）说，”一段时间”内仍然需要刺激措施，但交易商并不完全相信。
 
+摩根大通资产管理公司的全球市场策略师休-金伯（Hugh Gimber）说：”目前最大的问题不是通胀率将飙升多少，而是通胀率将飙升多久。” 他指出全球市场的下滑缘于市场对美联储何时会采取行动没有信心。
 
+随着主要经济体从对中共病毒流行的封锁中更全面地重新开放，许多投资者预计更高的通胀水平将在今年激起股票市场的波动。
 
-**文字版原文：[【香草诗词汇】得胜的生命象什么？](https://gnews.org/zh-hans/1232129/)**
+德意志银行分析师写道：”今年将是一场大战役，一方面是对大规模重新开放/刺激政策的看好，另一方面是对通胀后果的担忧。”预计会出现定期的波动。”
 
-作者：纽约香草山福音部 文一论道
+投资者现在已经将美联储最早在明年12月加息的可能性定为80%，因为美元正面临着美国预算和贸易赤字迅速扩大的压力。
 
+当埃隆-马斯克(Elon Musk)在推特上说特斯拉公司已暂停使用比特币购买其车辆时，比特币在下跌了13%，之后稳定在50,830美元，世界第二大加密货币以太币下跌了2.3%，至3735美元。金属和农作物也在萎靡不振。曾于本周创下历史新高的铜下跌1.6%，而玉米、小麦、糖的跌幅在1%-2%之间。
 
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+新闻来源：[路透社](https://www.reuters.com/article/us-global-markets/inflation-angst-bruises-world-stocks-idUSKBN2CU01D)
 
 0

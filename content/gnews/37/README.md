@@ -1,25 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 挪威放弃阿斯利康疫苗
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1237879/)
+## 2021年5月10日秘翻快报[粤语版]香港两人接种复必泰病毒疫苗后死亡
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1237932/)
 
-消息来源：ansa.it
-发布时间：2021年5月12日
-翻译整理：斩草要除根
+[!\[\]()!\[\](https://images-ext-1.discordapp.net/external/bAjllvOz5zlBMr0uHzPxp7CXzDBZJ3pl_rOca-Obkc4/https/gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12113649/IMAGE-2021-05-12-233607.jpg?width=1201&amp;height=676)](https://gtv.org/video/id=609c2dc4db13300ca55231b7)
+**[点击图片观看视频：](https://gtv.org/video/id=609c2dc4db13300ca55231b7)**
 
-挪威已决定放弃由阿斯利康生产的新冠疫苗，并且终止强生公司的疫苗。挪威总理埃尔纳·索尔伯格（Erna Solberg）宣布了这一消息。 政府宣布，挪威将在其抗新冠疫苗接种计划中彻底放弃阿斯利康疫苗，并将强生疫苗仅保留给志愿者。
+新闻总结：
 
-总理厄尔纳·索尔伯格（Erna Solberg）认为疫苗接种后遇到的极为罕见的严重并发症证明了这些措施的合理性，这些疫苗使用了与腺病毒相同的技术，而邻国丹麦已经完全放弃了。但是欧洲药品管理局（EMA）和世界卫生组织（WHO）仍建议继续使用它们，因为他们认为疫苗的益处大于风险。挪威于3月11日暂停使用阿斯利康疫苗，并开始怀疑偶尔会引起类似副作用的美国强生公司。
+1. 香港两人接种复必泰病毒疫苗后死亡
+2. 中共反腐AI系统查出8721名贪污公务员
+3. 中共国成为世界过劳死第一大国
+4. 闫丽梦博士：中共实验室通过福奇获取了大笔经费
+5. 美国海军考虑在印太地区重新打造第一舰队
+6. 中共一带一路遭60万韩国民众抗议 相关项目面临全面取消
 
-简评: 之前就有报道称挪威专家呼吁放弃阿斯利康和强生这两款疫苗,这应该是研究风险的专家组做出的决定,先有丹麦,现有挪威从政府方面正式宣布出啦来,这足以证明疫苗的副作用是很严肃的问题,需要更严谨的科学态度去对待.
-
-（本文仅代表个人观点。）
-
-消息来源🔗：[ansa.it](https://www.ansa.it/sito/notizie/mondo/2021/05/12/covid-ecdc-la-variante-indiana-si-sta-diffondendo-in-europa_743772f4-9bd6-4760-a7c5-6eee86f3a851.html)
-
-* * *
-
-校对/发布：阿娜
 
 0

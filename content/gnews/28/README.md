@@ -1,15 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 视频 – 曙光 The Dawn
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1207983/)
+## 闫博士接受《今日印度》采访：冠状病毒是中共故意释放的
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1238072/)
 
-旧金山金喜农场 – 德先生德教云书院
+新闻来源：《今日印度》INDIA TODAY| 作者：India Today Web Desk| 发布时间：2021年5月11日
+翻译/简评：新街口|校对/审核：万人往|Page：小雨
+
+[!\[\]()!\[\](https://spark.adobe.com/page/9Zhy2mKs3a8GQ/images/08dec42c-0842-4719-b211-87dbb42f433a.jpg?asset_id=ff9bb1b9-8049-49b5-8a11-f62ffe5061c7&amp;img_etag=%2222b9106435efabb9272ee07880da8b38%22&amp;size=2560)](https://spark.adobe.com/page/9Zhy2mKs3a8GQ/images/08dec42c-0842-4719-b211-87dbb42f433a.jpg?asset_id=ff9bb1b9-8049-49b5-8a11-f62ffe5061c7&amp;img_etag=%2222b9106435efabb9272ee07880da8b38%22&amp;size=1024)
+
+**简评：**
+
+虽然中共病毒从去年1月开始爆发，在中国、欧洲和美国都造成了巨大的伤害；但是由于中共全力掩盖武汉受灾后的惨状，以及西方国家的社会医疗体系较为完善，承受住了第一波病毒的袭击，医疗体系并未崩溃，再加上西方主要媒体并未对病毒的真实情况进行深入的报道，最终导致了全世界并未对中共病毒的破坏性有真正的了解。
+
+印度由于本身医疗体系和生活水平与西方国家还有一定的差距，本次在中共投放的加强型变异病毒的袭击下，医疗系统全面崩溃，损失惨重。在媒体方面，由于印度自身媒体的开放性和自由度很高，另外还没有受到中共的影响和渗透，印度被中共病毒袭击后触目惊心的惨状被原封未动地报道了出来，并且震撼了世界，使全世界对中共病毒有了一个完全不同的认识和警醒。
+
+印度是世界上最大的移民输出国家，印度人遍布世界各个国家的各个阶层。四家印度主要媒体一天内爆炸性地连续采访闫丽梦博士，无疑让闫博士把中共制造、散播病毒的真相进行了一次世界范围的传播。因此，闫丽梦博士此次接受《今日印度》和其他三家媒体的采访意义非凡。
+
+首先，印度这次疫情大爆发是在印度刚刚和美、日、澳组成了四国同盟，共同对抗中共在南海的扩张后即刻发生的。因此，在印度媒体对闫博士的采访后，大家都会判断出，背后的黑手一定是中共。中共故意投毒，对印度搞生化战，其他反共联盟国家肯定会尽早对中共的生化武器战做出高级别的预警和防范。
+
+其次，这次的疫情在极短时间内就在印度大规模地爆发，每天多达40万人被感染。印度的现状充分验证了闫博士的报告以及2015解放军军事医学出版社出版的书籍：中共病毒是一个高传染率、低死亡率，目的是造成敌对国家医疗系统崩溃的超限生物武器。2015军事医学出版社的书籍、闫博士的报告和亲身经历，再加上印度今天的惨状，三者形成了一个完整的逻辑链来证明了中共制造和投放了新冠病毒，新冠病毒就是中共的一个超限生物武器。
+
+最后，闫博士自2020年一月开始匿名通过路德节目向世界揭露中共病毒真相以来，编写了3份科学报告，频繁在各种媒体接受采访来唤醒世界，独自一人挑战邪恶中共和与中共狼狈为奸的病毒科学界。这次四家印度重要媒体对闫博士的采访意味着闫博士将不再孤独，国家级别的力量已经开始加入了她的阵营来共同查找病毒真相、向中共追责。
+
+**原文翻译：**
+
+## 闫丽梦博士访谈: 冠状病毒是故意释放的，中共国政府主导了错误的信息运动
+
+**中国病毒学家闫丽梦博士在接受《今日印度》采访时指出，冠状病毒来自病毒实验室，而且是中共国政府有意释放的。**
+
+[![](https://spark.adobe.com/page/9Zhy2mKs3a8GQ/images/79f1a008-8710-46e0-9baa-6a57910098cc?asset_id=d3e26604-a8aa-4f8e-b713-822000676abf&amp;img_etag=%22fca3172fe40a920ccad10f024f04b0a4%22&amp;size=2560)](https://spark.adobe.com/page/9Zhy2mKs3a8GQ/images/79f1a008-8710-46e0-9baa-6a57910098cc?asset_id=d3e26604-a8aa-4f8e-b713-822000676abf&amp;img_etag=%22fca3172fe40a920ccad10f024f04b0a4%22&amp;size=1024)
+
+许多媒体报道引用了美国国务院获得的文件，文件指控中共国军事科学家在新冠肺炎大流行五年前就已经开始冠状病毒的武器化研究，并预言了第三次世界大战可能使用生物武器。在此背景下，《今日印度》的主持人Gaurav Sawant与中国病毒学家闫丽梦博士对此进行了探讨。
+
+**您如何看待这份报告？这是确凿的证据吗？**
+
+**闫博士：**是的，该文件是可以证明中共国拥有长期的、非传统生物武器计划的确凿证据之一，并且[中共国计划]用它来征服全世界。您提到的文件以及我3月份发表的报告都谈到了中共如何开发非传统生物武器，并且还介绍了当人们意识到病毒来自实验室时，中共的目标是否认并使用错误信息误导世界。
+
+**您认为该病毒并非来自武汉海鲜市场，而是来自中共国军事实验室。是否有证据支持这一主张？**
+
+**闫博士：**我从去年1月开始通过YouTube匿名告诉人们，这种病毒来自解放军实验室，他们经过大量的投入才发现了冠状病毒。他们最终得到了可以感染人类的病毒，并有意释放了该病毒。另外，中共国政府知道这些，这就是为什么他们立即在几个小时后做出了回应。
+
+**您说它是“有意”释放的，而不是“意外”泄露的。正如报告所言，这是否是故意释放了生物武器，导致敌人的医疗系统崩溃？**
+
+**闫博士：**是的，医疗系统是这些超限生物武器的目标领域之一。
+
+因此，基本上，在该报告中，高级官员五年前曾提到过这种生物武器，指出这不应该是死亡率很高的武器。次要用途是破坏敌人的医疗系统以及整个社会体系。去年在武汉进行的一次社区实验中，武汉被新冠病毒搞得一团糟。
+
+**中共国媒体说，这份报告没有事实，太牵强。**
+
+**闫博士：**中共国政府的此次应对也应该被编入了教科书中，这是一个故意误导民众的宣传活动。中共国政府在报告中清楚地写道，要证明该病毒是否来自自然，也就是说该病毒是否与进化史的性质相符。
+
+另一方面，我提供了足够的可靠科学证据以及中共国无法否认的情报证据，但是他们唯一能做的就是散布错误的信息，包括让美国国立卫生研究院、世卫组织、《自然》杂志等屏蔽了这份报告。
+
+**中共国科学家和解放军指挥官可能在2015年谈到了病毒的基因工程。这份2015年的报告是否与2020-21年冠状病毒的传播有直接的关系？**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/9Zhy2mKs3a8GQ/images/b3a5a54f-943f-424b-aaa2-a8c77428e8af.jpg?asset_id=8a9d5c36-aeab-4e35-ba70-8aa0592f10ed&amp;img_etag=%2286a16eaa4d8a3fd7b66cff7020a8fbab%22&amp;size=1024)](https://spark.adobe.com/page/9Zhy2mKs3a8GQ/images/b3a5a54f-943f-424b-aaa2-a8c77428e8af.jpg?asset_id=8a9d5c36-aeab-4e35-ba70-8aa0592f10ed&amp;img_etag=%2286a16eaa4d8a3fd7b66cff7020a8fbab%22&amp;size=1024)
+
+**闫博士：**该报告由军事医学出版社出版，是针对军校大学生的。这本书的序言清楚地提到了这一点，必须加以强调，这不是他们研究当代生物武器的开始。这只是我们现有证据来证明他们的生物武器研究的一步。
+
+但是在那之后，他们也进行了很多修改，并且在民用实验室和国际实验室的掩护下招募了许多实验室，并与军队合作开发了它。因此，他们在五六年后拥有了更多的知识和经验，这就是新冠肺炎成为现实的原因。
+
+[🔗原文链接](https://www.indiatoday.in/coronavirus-outbreak/story/coronavirus-intentionally-released-chinese-govt-misinformation-campaign-dr-le-meng-yan-1801107-2021-05-11)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/9Zhy2mKs3a8GQ/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/9Zhy2mKs3a8GQ/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 
 
-[https://mega.nz/folder/8YJ1DCoK#78g0KlCWgB5Hv73l\_pQd\_w](https://mega.nz/folder/8YJ1DCoK#78g0KlCWgB5Hv73l_pQd_w)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/11043710/%E6%9B%99%E5%85%89%E8%A7%86%E9%A2%91%E5%B0%81%E9%9D%A2.png)
-
-![]()![](https://media.discordapp.net/attachments/723203467002511400/841273458859966464/unknown.png?width=1094&amp;height=617)![This image has an empty alt attribute; its file name is QRcode_GGB_v2.jpg](https://lh4.googleusercontent.com/2Yll3_o8WAewPEle23Re7GrfelivsUtAIPhs7GcD2ESgJg-VONopi2L8w6Ef9y-CnG3MTBoGrEkNhjRYNhpTPx9lEG1pFbewOMFft3CRiJPB4qAMXXonTW_6kfK8FYZElptGfnds)
-+2
+0

@@ -1,20 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年5月10日秘翻快报[粤语版]香港两人接种复必泰病毒疫苗后死亡
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1237932/)
+## 徐德忠、李锋等2015年教科书：SARS冠状病毒开创“基因武器新时代”
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1238044/)
 
-[!\[\]()!\[\](https://images-ext-1.discordapp.net/external/bAjllvOz5zlBMr0uHzPxp7CXzDBZJ3pl_rOca-Obkc4/https/gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12113649/IMAGE-2021-05-12-233607.jpg?width=1201&amp;height=676)](https://gtv.org/video/id=609c2dc4db13300ca55231b7)
-**[点击图片观看视频：](https://gtv.org/video/id=609c2dc4db13300ca55231b7)**
+2021年5月9日，澳大利亚《天空新闻》夏里·马克森继续爆料中共军方2015年出版的教科书《非典非自然起源和人制人新种病毒基因武器》最新细节。书中显示，中共军方科学家们早在中共病毒爆发五年前就在研究将SARS冠状病毒武器化。该书的揭露，让人们难得一见地洞察中共军方科学界是如何看待生物研究的。
 
-新闻总结：
-
-1. 香港两人接种复必泰病毒疫苗后死亡
-2. 中共反腐AI系统查出8721名贪污公务员
-3. 中共国成为世界过劳死第一大国
-4. 闫丽梦博士：中共实验室通过福奇获取了大笔经费
-5. 美国海军考虑在印太地区重新打造第一舰队
-6. 中共一带一路遭60万韩国民众抗议 相关项目面临全面取消
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
 0
