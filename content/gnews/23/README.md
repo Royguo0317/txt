@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】天亮时分
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1238275/)
+## 【有声读物】口罩殇
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1238358/)
 
 配音：香草山福音部 Daxia
 
@@ -14,21 +14,18 @@
 
 
 
-撒担魔爪遮挡
-
-天空灰蒙蒙一片
-
-大地塌陷
-
-到处弥漫着刺鼻的烧焦味
-
-死灰俱寂
+它
+一个密不透风的布墙
+挂在耳朵
+耷拉在脸上
+套着口鼻
+阻隔着空气、声音与光
 
 
 
-**文字版原文：[【香草诗词汇】天亮时分](https://gnews.org/zh-hans/604188/)**
+**文字版原文：[【香草诗词汇】口罩殇](https://gnews.org/zh-hans/660376/)**
 
-作者：纽约香草山写作组 Daxia
+作者：纽约香草山福音部 Daxia
 
 
 
