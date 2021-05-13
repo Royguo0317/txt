@@ -1,48 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】口罩殇
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1238358/)
+## 我的这三年
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1238385/)
 
-配音：香草山福音部 Daxia
+五月花写作组 ｜作者：骑着蜗牛等天明 | 编辑：文合、spring文曼 | 发布：吐纳
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+2018年一个偶然的机会，我学会了翻墙，翻出去后就一发不可收拾，仿佛爬行的蜗牛变成了脱缰的野马，驰骋在大草原上，那样的自由自在！东看看、西瞅瞅，漫无目的的畅游在墻外的信息海洋里。我慢慢开始怀疑大国形象，CCP并非是他们自己宣传的那样无所不能，且永远伟大光荣正确。
 
+了解爆料革命是从七哥的视频开始的，感觉太亲切了。接着看了断播门，美国之音是我童年时期的一个梦，怎么就会断播呢？原来CCP到处蓝金黄。一路走到现在，每一天都在验证爆料革命的真善狠，每一天都在目睹CCP的垂死挣扎。
 
+最初看七哥的报平安直播，还有政事小哥、大卫、江财神、面具先生等战友，分析CCP的一举一动，有理有据，深入刨析。看法治基金感人的捐款留言，我彻底被征服了，坚定了灭共的信心，于是跟着视频一步一步学如何捐款，我也要为消灭CCP加一根稻草。
 
+2020年6月4日，新中国联邦成立了，郭先生在自由女神下和班农先生一起，誓言消灭CCP!
 
+2021年，新冠病毒席卷全球一年有余，新中国联邦人闫丽梦和路德社带领的博士军团，不断地向世界人民勇敢揭露病毒真相。郭先生宣布今年以毒灭共、以钱灭共，G系列将灭共事业推向新的高潮！
 
+世界各国政府和人民不断清醒过来，不断推出新的政策、新的法案，目标剑指CCP。美国政府更是定义中共是反人类犯罪组织，对新疆少数民族犯下了种族灭绝罪，貌似强大的CCP摇摇欲坠、即将崩塌。
 
+跟随爆料革命一路到现在，心中只有感恩，让我学会了太多做人的道理。正如郝海东先生所说，做一个真实的好人。
 
-它
-一个密不透风的布墙
-挂在耳朵
-耷拉在脸上
-套着口鼻
-阻隔着空气、声音与光
+我这三年的成长是三十多年来前所未有的，在我的影响下，我们一家人都成了灭共战友，身边也有不少朋友加入爆料革命。平时我们会聚在一起聊七哥直播，聊路德访谈，畅想未来，这样的生活状态特别真实和充实。
 
+我们每一个人都是渺小的个体，但大量正义的个体联合起来就是一股势不可挡的力量！
 
+三年来的跟随让我看清真相，坚定的信念让我继续行动灭共，真战友必胜，新中国联邦必胜！
 
-**文字版原文：[【香草诗词汇】口罩殇](https://gnews.org/zh-hans/660376/)**
+（本文仅代表作者个人观点）
 
-作者：纽约香草山福音部 Daxia
+* * *
 
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
 
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
 
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
 0

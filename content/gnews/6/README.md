@@ -1,67 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】有话说（一）
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1239093/)
+## 哈马斯如何利用自己的人民作为防护盾牌
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1239330/)
 
-作者：纽约香草山健身部 澄道
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
-
-
-
-秋风吹过无垠的荒野！
-
-那是风儿对草儿的有话说！
-
-你不给我一个说法啊！
-
-我就给你一个做法！
-
-那是一个孤胆英雄的有话说！
-
-阵雨袭过园中的郁金香！
-
-那是雨儿对花儿的有话说！
-
-你强给了我一个七十年的荒唐啊！
-
-我就还你一个take down the CCP!
-
-这是一个自由灵魂的有话说！
-
-![]()![](https://media.discordapp.net/attachments/721544615953432698/836437597524983858/image1.jpg?width=1083&amp;height=609)
-
-Take down the CCP
-
-Take down the CCP
-
-Take down the CCP
-
-（本文仅代表作者观点）
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+```
+新闻来源：德国世界报 网络版  
+发布时间：2021年5月13日
+翻译整理/ 简评： Shuizhuyu
+```
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13165357/IMG_20210513_225316.jpg)图片来源：华尔街日报
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+通常，军队应该保护自己的公民。在加沙地带则相反：哈马斯武装分子躲在当地居民的后面，甚至在学校和医院里。以色列以特殊策略对此作出反应。
 
+以色列和哈马斯之间的打击交流中最大的问题是所谓的手段和意图的不对称。哈马斯将组织所拥有的一切投入这场斗争，并瞄准居民区，以在以色列平民中散布最大程度的恐怖。这样做，恐怖民兵有系统地违反了国际戒严法。
 
+另一方面，以色列感到有义务遵守国际战争准则，因此必须用双手绑起来进行战斗，这在一定程度上破坏了以色列的伟大技术领先地位。因为以色列如果不想在加沙发生屠杀并引起国际社会的强烈抗议，就只能使用其火力的一小部分。
+
+哈马斯正在利用以色列的这一困境。
+
+#### **简评：**
+
+**看到了这篇文章的题目，第一个反应就是恐怖组织使用的都是同一个伎俩。哈马斯是恐怖组织，几天来一直都向以色列不停的发射火箭弹。而自己却躲藏在自己的百姓中，把百姓当成了自己的挡箭牌，以此要挟以色列不能使用自己的强大的军事力量，大力消弱以色列的军事打击力度。**
+
+**而这一点，和中共又有什么区别能。战狼赵立坚声称中国人民就是中国共产党的铜墙铁壁，就是让14亿的中国人民成为挡在共党前的人质。绑架无辜的老百姓。所以，郭先生引领的爆料革命，新中国联邦把中国人和共产党分开，就是打破了战狼所谓的铜墙铁壁。共产党请你自己走向地狱，不要带上无辜的老百姓。 **
+（本文只代表译者观点，与Gnews平台无关。）
+
+**新闻原文链接：**
+🔗[Wie die Hamas die eigene Bevölkerung als Schutzschild missbraucht](https://www.welt.de/politik/ausland/plus231096121/Wie-Hamas-die-eigene-Bevoelkerung-als-Schutzschild-missbraucht.html)
+
+* * *
+
+***编辑整理/校对: **Ting Guo*
 
 0
