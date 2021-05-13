@@ -1,78 +1,83 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共四处威胁别国&nbsp; 实则外强中干&nbsp; 生产力一国不敌一人
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1234078/)
+## 【墙内新闻浅析】中共国国际消费品博览会｜ 中共国消费大市场，每一秒都不容错过！
+` Ru Wei` [轉載自GNews](https://gnews.org/zh-hans/1237004/)
 
-**摘要：在2021年5月6日的盖特视频中，郭先生透露纽约正在进行筹款活动，发动官方和议会“以毒灭共”。他还揶揄中共四处出击，威胁澳大利亚、印度、香港、台湾、日本、英国、法国、德国，可是自己外强中干，无技术、无原材料，只会奴役14亿中国老百姓，中共一国的生产力还不如 Elon Musk 一人创造的生产力。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12194218/Miles_20210506-g1.srt.txt)
-**中共四处威胁别国  实则外强中干  生产力一国不敌一人**
+#### 作者：Ru Wei
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13051600/%E4%B8%80%E7%A7%92%E9%92%9F.jpeg)封面来源：新华网
+你能感受到的一秒钟，是什么样的？
 
-**Miles on How the CCP Threatens Australia, India, HK, Taiwan, Japan & Europe**
+滴答1次
 
-这两天你看到美国多个重量级的议员，还有前官员以及现政府官员都在联名、署名。今天晚上就在这儿，就在这儿对面Plaza酒店 — 过去川普总统「的」酒店，离婚后送给了前妻「也就是」伊万卡的娘。「还有」对面咱们开1120「会议」的皮埃尔（Pierre）酒店（当年爱迪生在这发布，摩根这些人在这儿干事儿的地方），是吧？这个「街」角叫Diamond Corner，在这儿有两个大的所谓的筹款「活动」以及发动「通过」官方「和」到「美国」议会要求对共产党病毒「要」查找真相，并且要求追究共产党的责任。 所以说，战友们，“以毒灭共”「的战略」不是说「嘴上」说出来的。
+心跳1次，有时候2次
 
-In the last two days, you have seen several major US Congressmen and former officials, as well as current administration officials, co-signing something. They are right here in the Plaza Hotel across the street tonight. It used to be owned by President Trump and was given to his ex-wife, Ivanka’s mother, after their divorce. The Pierre Hotel is across the street, where we had the 1120 (Nov. 20th, 2019) conference, and where Edison made the press release, and also where Morgan and other folks used to do his business. Right? This block corner is called Diamond Corner, where tonight, there will be two big fundraisers, aiming to encourage the government and the congress to find out the truth about the CCP virus and hold the CCP accountable. So, my fellow fighters, you should know that destroying the CCP with the truth about the virus is not a verbal strategy.
+博尔特觉得一秒钟很长，百米赛道他可以完成十分之一
 
-那么现在大家看到「对于」澳洲，老共为何「与」澳洲要脱钩，「在」威胁澳洲。
+你觉得一秒钟很短，“秒杀”时你总是差一步
 
-Now we have seen that the CCP is threatening Australia to decouple with them.
+……
 
-现在你「们」能看得出来就共产党玩儿的一招儿啥？
-“我不跟你澳大利亚玩儿了！” – 你家生铁矿吗？
-“我不跟你澳大利亚做生意了！” – 你家有农业吗？
-“我不跟你一起搞军事了！” – 人家用的着你吗？
+这些都是你能感受到的一秒钟
 
-Now can you see the CCP’s tactics? 
-“No more playing with Australia!” 
-But, CCP, can you produce iron ore yourself?
-“No more business with Australia!” 
-But, CCP, do you have enough agriculture of your own?
-“No more military cooperation with Australia!”
-But, CCP, does Australia need to cooperate with you militarily?
+但，一秒钟，绝不止这些
 
-「澳大利亚」又不去南海跟你打仗去，人家不去中国南海，「不」去亚洲，「澳大利亚仍然」活得好好的，活得更好；而你「共产党」不需要让澳大利亚的资源你能活得好吗？你的物价会上涨，铁石「的价格会」上涨，铁原料上涨，铝上涨，大量的金属物品上涨……你受得了吗？你是靠再加工的，人家原材料涨了你活得了吗？
+一秒钟，中共国餐饮收入约13.6万元
 
-Australia is not going to fight with you, CCP, in the South China Sea. Even if Australia does not get involved in the South China Sea or in any Asian affairs, it will still survive very well, maybe even better. But, CCP, can you survive if you don’t rely on Australia’s resources? Your prices will go up, the cost of iron ore will increase, the price of iron raw materials will rise, the price of aluminum and many metal items will go up. Can you handle it? CCP, your economy is a reprocessing economy. If raw material prices go up, can you live with that?
+一秒钟，中共国电影票房收入约2143元
 
-澳大利亚的农业几乎是无成本的，到「中国」是多少钱？你「共产党」全靠那「些在」坑着中国老百姓，坑着中国14亿“奴才”呢，是不是啊？把中国人当“奴隶”养那么多年，你咋坑「他们」的啊？所以说共产党就是撒泼，不要脸！
+一秒钟，实物商品网上零售额约31万元
 
-Australian agriculture almost has no cost. Once its product is imported to China, how much do you charge ordinary people? You have been cheating and enslaving 1.4 billion Chinese people, haven’t you? You have been treating Lao Bai Xing as “slaves” for so many years. How have you been ripping them off? The CCP are scoundrels, shameless!
+一秒钟，全国寄出快递约2636件
 
-现在，印度死人，「共产党」要跟人家说：“我点火啊。”
-然后「对」澳大利亚：“跟你经济脱钩。”
-「对」香港：“把你变成臭港。”
-「对」台湾：“让你天天睡不着觉。”
-然后「对」日本：“不听话？不听话小心点啊！用核武器把你「日本」荡平，手撕掉你日本。”
-「对」欧洲、英国：“英国已经老掉「牙」了；法国离了我更不行；德国不卖汽车，活得了吗？”
+一秒钟，化妆品零售额约1.2万元
 
-Now the Indians are dying, but the CCP mocked them, “We lighting a fire [versus India lighting a fire].”
-The CCP threatened Australia: “I am decoupling with you economically.”
-To Hong Kong: “I will turn you into a dead port.”
-To Taiwan: “I won’t allow you have one night of sound sleep.”
-Then to Japan: “Do you listen to me? You’d better be careful. I can use nuclear weapons to destroy you, and tear you into pieces with bear hands.”
-To Europe and Britain: “You Britain is becoming obsolete. France is doing even worse without me. Can Germany live without selling me cars?”
+一秒钟，服装鞋帽、针纺织品类零售额约4.4万元
 
-「然而」你「共产党」加在一起，一个国家的经济、技术实力都不如一个人：伊隆·马斯克！你都不「如」一个人创造「的」经济和技术和给社会的文明贡献和生产力 — 真正的生产力。
+一秒钟，中共国进口消费品约4.97万元
 
-But, CCP, the economic and technological strength of your whole country together is not as good as one Elon Musk, not as good as the economy, the technology, the contribution to civilization, and the productivity created by one man, which is real productivity!
+一秒钟，海南免税店卖出商品1038元
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/609403eb37f7f73984c89298](https://gtv.org/getter/609403eb37f7f73984c89298) (00:12-1:13, 2:38-2:45, 3:24-4:27, 5:17-5:57)
-鸣谢：
-[1] 感谢 Antsee-GTV、TING GUO、文惜 和 [喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)提供中文文本于[https://www.gnews.org/zh-hans/1181044/](https://www.gnews.org/zh-hans/1181044/)
-[2] 感谢 Antsee-GTV、Liberte 和 [喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文翻译于 [https://gnews.org/1190020/](https://gnews.org/1190020/)
+……
 
-* * *
+一秒又一秒不断叠加
 
-字幕：【Rock小哥】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+叠加出中共国人一年约40万亿元的消费量
 
-+2
+2021年5月7日至10日
+
+在首届中共国国际消费品博览会上
+
+各个场馆人潮涌动 新品新展接连亮相 这
+
+里的热度 印证了中共国经济的活力和潜力
+
+这就是中共国
+
+一个14亿人的超大市场
+
+每一秒
+
+我们奋斗不息、发展不懈、开放不止
+
+我们期待更丰富、更满足、更便捷、更美好的生活
+
+[新华社国际传播融合平台出品]
+
+**浅析：**
+
+**末路狂奔的中共急了。世界同中共国脱钩已经不仅限“口炮”，中共三大电信运营商被美国纽交所摘牌，发射出全球弱共、灭共的响亮一枪，其后续的发酵和影响可以尽情发挥你的想象。**
+
+**软件、硬件全部被脱钩，“世界进不去、墙内出不来”将是中共国的真实写照。“第二个北朝鲜”的新鲜出炉也是如今“习神”追求，文革2.0的持续推进和发酵就是其做的“后手拳”。至今还蒙在鼓里的墙内老百姓将比北朝鲜还惨多倍，拥有过和从未有过的区别大家都能体会。**
+
+**“一秒钟”的炮制会让多少中共国内“老中小粉红”嗨到高潮，世界选择同我们中共国脱钩你是你们的损失，是我们中共国养活了世界各大企业；“一秒钟”中共国的顺口溜，是在赤裸裸向世界拍卖中共国14亿老百姓的今天和明天；“感受一秒钟”很长的博尔特也被中共病毒感染，还被拿来做中共鼓吹的标本，不知博尔特现在对“一秒钟”的感受还如当初吗？**
+
+**中共国消费大市场，每一秒都不容错过！ 一秒又一秒不断叠加，叠加出中共国人一年约40万亿元的消费量。餐饮、电影业、快递、化妆品、服装、纺织，这是中共在全球买、买、买，中共国出去的老百姓走出国门的主要活动也是买、买、买，除了买好像什么都不会。**
+
+**买的让自己认为自己是世界上最聪明的、买的让自己认为自己是最富有的、买的让自己都不知道自己是谁了、买的让世界人民瞧不起自己，也让自己瞧不起自己。**
+
+（本文仅代表作者个人观点，与GNEWS平台无关。）
+
+参考信息链接：🔗[中共国国际消费品博览会｜ 中共国消费大市场，每一秒都不容错过！](http://www.xinhuanet.com/video/2021-05/09/c_1211147677.htm)
+
++1

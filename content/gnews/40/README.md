@@ -1,11 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5/09/2021 郭先生直播：中共三大电信运营商被纽交所强行下市意义深远
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1233383/)
+## G系列重建现代金融
+` developer001` [轉載自GNews](https://gnews.org/zh-hans/1236129/)
 
-民生银行的“还旧贷新”就是在找傻瓜替行长、副行长顶雷；中共三家电信公司被纽交所除牌后会遭全球封杀，其影响包括中国制式手机无法在海外使用、中共的金融和制造业将逐渐和世界彻底脱钩
-
-By: 【秘密翻译组G-Translators】
+G-News编辑部 作者: 文运
 
 0
