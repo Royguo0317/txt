@@ -1,46 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## EXC：Fauci资助的研究人员在武汉实验室“功能获得”会议上成为主题
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1233542/)
+## 【热点播报】美国十几个市县拒绝执行封锁措施
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1233952/)
 
-#### 翻译编辑：文复
+作者：纽约香草山农场  四季
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172620/35A672BE-214C-48FA-877D-CC3924F052F5.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01210350/gnews-logo-2.jpeg)
 
-5/11/2021在参议院的听证会上，参议员保罗向福奇发问（图片来自网络)
-武汉病毒学研究所的新闻稿（被许多人认为是COVID-19的出处）记述了“第二届中美关于新兴感染、实验室安全和全球卫生安全挑战讲习班”。
 
-2017年5月的活动是由美国国家科学院，中国科学院（CAS），武汉病毒研究所（WIV），中国科学院和湖北微生物学会共同组织的。
 
-根据武汉实验室的说法，该活动有五次学术会议，第一场是“获得性功能研究、基因编辑、靶向和投放及其他新兴生物技术。”
+自然新闻报5月11日报道，目前，美国有十几个城市和县正在通过指定自己支持自由的“避难所”或直接拒绝执行紧急命令来对抗COVID-19封锁措施。
 
-作为特别嘉宾出席的美国人包括Linda Saif教授，James LeDuc教授和David Relman教授。这三位教授在一起获得了美国国立卫生研究院（NIH）近200笔赠款，其中75笔来自福奇的国家过敏与传染病研究所（NIAID）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191443/1-Lockdown-Business-Sign-Closed-Covid-19.jpg)图片来源：[URL](https://www.naturalnews.com/2021-05-11-cities-counties-profreedom-sanctuaries-against-covid-measures.html)
 
-根据美国国立卫生研究院（NIH）注册机构的资料，最早可以追溯到2006年，LeDuc教授已从NIAID获得了32笔拨款。他负责加尔维斯顿国家实验室，该实验室“由NIAID / NIH授予的赠款建造”。
+这些县主要位于高度监管的州，如密歇根州和加利福尼亚州。在数月的企业关闭和强制口罩令执行期间，这些州遭受了灾难性的经济和精神健康影响。
 
-赛义夫（Saif）自1985年以来就一直从NIAID筹集资金，目前已从美国国立卫生研究院（NIH）获得了56笔赠款，其中43笔是来自福奇（Fauci）的NIAID。
+去年年底，弗吉尼亚州坎贝尔县的县长们通过了一项“第一修正案避难所”决议，宣布“坎贝尔县的任何资金都不会被用来限制第一修正案”，任何资金“都不得用于帮助联邦或州政府机构限制上述权利”。 该县的一位地区代表说，“我们不会利用县里的资源来执行州长的命令，我们不打算协助弗吉尼亚州卫生部关闭我们的企业”。
 
-自1996年以来一直由国立卫生研究院（NIH）资助的雷尔曼（Relman）已从国立卫生研究院（NIH）获得了90笔赠款。他还获得了美国国立卫生研究院的先锋奖和变革性研究奖。
+至少还有9个城市和县通过了类似的“避难所”决议，这些市县包括罗得岛州的伯里维尔，密歇根州的德尔塔县，印第安纳州的科丘佐科县、卡罗尔县和摩尔斯维尔市，以及加利福尼亚州和德克萨斯州的多个司法管辖区。
 
-此次发布会是在福奇与Rand Paul参议员之间进行激烈的交流之后进行的，这位NIAID主任（福奇）否认了向武汉病毒研究所提供资金进行功能性研究的消息。
+在密歇根州的巴拉加县，该县警长和其他官员表示，我们无意参与对我们公民的经济安全和自由的违宪性破坏，我们进一步宣布，我们不打算采取任何行动来推动这一可怕的误导性议程。
 
-然而，美国国立卫生研究院的拨款记录显示，寄给总部位于纽约的生态健康联盟的资金被用于了武汉病毒研究所进行的研究。
+希望越来越多的国家能捍卫自己的立国之本宪法，团结一致揭露中共病毒真相，还世界和平。
 
-活动的官方网页上显示：
+原文链接：
 
-开幕式由武汉国家生物安全四级（P4）实验室主任袁志明教授主持。 WIV总干事陈新文教授致开幕词，他指出，这次研讨会作为一项合格的学术交流活动，必将为新兴病毒性疾病控制、生物安全实验室和全球健康安全研究提出新思路。该研讨会分为五个学术会议，其中包括：（1）功能性获得研究，基因编辑，靶向和投放以及其他新兴生物技术； （2）对突发事件和问题的公共卫生应对；（3）新兴传染病和全球卫生安全； （4）高级别生物安全实验室的建设，调试和维护，（5）生物安全和生物伦理。专家们在研讨会上发表了23篇演讲，主要讨论了应对新兴传染病的政策。俄亥俄州立大学的Linda Saif教授（院士），斯坦福大学的David Relman教授（院士），加尔维斯顿国家实验室主任James LeDuc教授以及微生物研究所的George F. Gao教授，中国科学院作为特邀嘉宾参加了研讨会。
+[Over a dozen U.S. cities and counties are now pro-freedom ‘sanctuaries’ against COVID measures – NaturalNews.com](https://www.naturalnews.com/2021-05-11-cities-counties-profreedom-sanctuaries-against-covid-measures.html)
 
-评论：
 
-路德节目披露，近日举行的参议院福奇听证会在美全面发酵。听证会溯源中共病毒，福奇被全面质疑将美国的国家资金用于资助中共国的病毒研发。历时一年多，病毒的真相正在被层层剥开，西方主流媒体也逐渐由协助遮掩转向揭露。闫博士引领的病毒真相揭秘，其影响力得到了越来越深刻的认同和广泛的传递，不仅有三部沉甸甸的科学报告力证中共病毒的“超限生物武器”，在近日接受美国NEWSMAX直播节目中更是言简意赅地回驳了福奇的狡辩，同时又用客观科学的表述将福奇从中共设立的险恶的圈套中解脱出来，从而有了获得污点证人站在正义的一边揭露中共更多丑恶的可能。
 
-文章来源：
+编辑/校对/发稿：小鹿
 
-[http://seekmacro.com/exc-fauci-funded-researchers-headlined-wuhan-lab-gain-of-function-conference-4171.html](http://seekmacro.com/exc-fauci-funded-researchers-headlined-wuhan-lab-gain-of-function-conference-4171.html)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191415/M5-2.jpg)
 
-**文章仅代表作者个人观点**
+**更多资讯，更多关注**
 
-发布：紫橄榄
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01210350/gnews-logo-2.jpeg)
+
+
 
 0

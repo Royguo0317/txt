@@ -1,39 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 〈无依之地〉&#8212; 献给勇敢在路上的人
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1233631/)
+## 5月12日美国政要和政评家反共推文精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1234173/)
 
-- 作者： 葛大饼
+参议员霍利新闻办公室： 在两党的支持下，参议员乔什·霍利（Josh Hawley）的《关于政府设备禁止抖音法》获得国土安全和政府事务委员会的通过。 霍利称这家社交媒体巨头为“直接的安全威胁”。 【附华盛顿观察者报道：参议院专家组提出法案，禁止在所有联邦政府设备上使用抖音】
 
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-**西班牙2021年5月12日电/西喜社——**
+> Sen. Josh Hawley's No TikTok on Government Devices Act passed through the Homeland Security and Gov. Affairs Committee with support from both parties.
+> 
+> Hawley called the social media giant "an immediate security threat."
+>  [https://t.co/ZbWfwuhOq5](https://t.co/ZbWfwuhOq5)
+> — Senator Hawley Press Office (@SenHawleyPress) [May 12, 2021](https://twitter.com/SenHawleyPress/status/1392565037974401027?ref_src=twsrc%5Etfw)
 
-青葱岁月的时候，自己也曾做过一阵子“在路上的人”。那时候就是想要看看这个世界，不想安定，想要躲避这一切让我讨厌的环境。于是隔三岔五的背包去旅行，也就是人们口中的穷游一族。路上大多是和我类似的人，有那些还在读的学生们，休学一年，边打工边旅行；有那些工作没多久便已被社会压的透不过气来的年轻“韭菜们”……我们平时省吃俭用，一切为了路上的开销。买廉价的机票，往往是深夜到机场，地铁也已停运，又不舍得花钱打的，我们就躺在机场的椅子上，或者干脆趴在地上，兴奋的睡不着就和边上的人聊天到天亮。我们住青年旅舍，为了省钱我们还做过“沙发客”。背着一个比自己上半身还大的背包，在大街小巷中暴走，脚底磨得都是泡。可是，你问我累吗？苦吗？我可以肯定的回答，“不，我很开心”。在路上的我们从不孤独；在路上，我们也永远不会有永别，说不定下一站我们又遇到彼此；我们讲诉自己的故事，也聆听别人的故事。那是一个没有任何顾虑和担心的年代。因为年轻，我们不怕失去也没什么可以失去。
 
-而电影 **〈无依之地〉** 中的那个流浪群体和当时的我们是不一样的。他们是被生活所伤害的一群人，他们曾经拥有过安定的生活，然而生活的突变让他们又一无所有，失去了伴侣、失去了孩子、失去了健康，生活的痛让他们觉得“或许我可以换个生活方式”。因为痛过，所以更能体会彼此。
 
-身患癌症的史旺奇决定在生命的最后日子宁可在路上留下最美好的回忆，也不要躺在医院的病床上等死；曾经绝望要自杀的琳达战胜了自己，看到她和营友们在酒吧里开心的聊天，这个可爱的老太太头上还戴着朵粉红色小花，真为她高兴；而我们的女主角芬恩，六十多岁失去了丈夫，工作大半辈子的企业破产导致失业，在生活的暴击之下，她决定开始四海为家的“游牧生活”。
+国务卿安东尼·布林肯： 今天，美国点名一名 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 官员，因为他参与了任意拘留法轮功学员的活动。我们将继续促进对全世界侵犯宗教自由者的追责。
 
-芬恩其实有选择，她的妹妹试图劝说她留下。从妹妹的言语中得知，芬恩从小便是一个勇敢、有主见的姑娘，和丈夫一见钟情便一直厮守到生命最后一刻。路上的风景虽美，也有累的时刻，你得活的不仅要像个女人，更要像个男人。你要学会换轮胎，你要学会在路途上的各种生存技能。哪个女人不想被呵护，有安全感呢？营地里认识的大卫邀请芬恩去他家做客，他们一家人都很欢迎芬恩的到来，希望她留下。那个深夜，芬恩溜回自己的房车，她想明白了，让她安心的不是因为累的时候要找人依靠，不是因为每晚睡觉前能泡热水澡，不是因为一张柔软宽敞的床。虽然躺在冷冰冰、硬梆梆的房车里，但她的内心却是无比的踏实。她最终道别了大卫。当她闭上双眼走在海边，感受着一阵阵自由的海风吹拂着脸庞的时候，她的脸上洋溢起了幸福的微笑。
 
-坚持并勇敢做自己的女人最美丽。
 
-其实年纪渐长后，我便发现自己越来越胆小。翻看以前自己一个人背着包游走的照片，现在的我其实没有勇气再继续那样的生活。而像芬恩这样年纪的女人，更是需要内心无比的强大才能拒绝那些原本可以让她安定生活的诱惑。找个老伴安安稳稳过日子不好吗？住在大房子里一起种种花，养养草，周末和孩子们聚会，烤烤蛋糕，和闺蜜们八卦、逛街打发日子，这样的生活不是很好吗？
+> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) discusses the situation in Israel and the West Bank and Gaza: “We will continue to engage with Israelis, Palestinians, and other regional partners to urge deescalation and to bring calm.” [pic.twitter.com/EwtVIugGae](https://t.co/EwtVIugGae)
+> — Department of State (@StateDept) [May 12, 2021](https://twitter.com/StateDept/status/1392524998108192774?ref_src=twsrc%5Etfw)
 
-那只是普罗大众眼里的好，对于芬恩却不是。所以她毫不留情的怼了在妹妹家庭聚会上的朋友，“你们为什么要鼓动大家花光一辈子的积蓄，背负贷款去购买一幢消费不起的房子？”
 
-你们觉得我居无定所，风餐露宿，而我觉得你们只是花钱把自己给圈了起来。
 
-影片最后，她和鲍勃分享彼此的故事，她说，“如果我离开这里，波（前夫）就好像从未在这个世界上出现过.” 她说：“我这辈子就顾着回忆他了。” 这是一个多么深情的女子。营地里的每个人都有一个悲伤的故事，但在整部影片中，每个人的身上散发出的却都是美好。那种美好是在面对生活暴击、人生低谷之时坚持去做自己的勇气。若是某天失去了生命中重要的那个人，我们纪念他们的方式不仅仅是眼泪和悲伤。犹如营地发起人鲍勃说，“我们可以通过帮助他人的方式来纪念逝去的亲人”。芬恩最终决心变卖了自己的所有家当，继续了她的人生旅途。
+参议员泰德·克鲁兹： （犹太人视角的新闻媒体）[@J\_Insider](https://twitter.com/J_Insider)：克鲁兹提出反BDS的修正案，以反击 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的科技进步。【转推犹太内幕文章，克鲁兹计划在周三对一项两党法案提出一项反BDS修正案，旨在通过联邦对技术发展的投资来反击中国。】
 
-“我好想好想飞，逃离这个疯狂世界，那么多痛苦，那么多累，那么多莫名的泪水，我好想好想飞，逃离这个疯狂世界，如果是你发现了我，也别将我挽回。”— 五月天的〈疯狂世界〉献给勇敢在路上的人。
 
-审核：Aries的星； 校稿：信心满满； 发稿：Nuevo唐人
 
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+> .[@J\_Insider](https://twitter.com/J_Insider?ref_src=twsrc%5Etfw): Cruz to introduce anti-BDS amendment to bill countering Chinese tech advancement [https://t.co/VzhHEvnjJM](https://t.co/VzhHEvnjJM)
+> — Senator Ted Cruz (@SenTedCruz) [May 12, 2021](https://twitter.com/SenTedCruz/status/1392494832040431617?ref_src=twsrc%5Etfw)
+
+
+
+参议员霍利新闻办： 委员会一致通过！霍利参议员禁止 [#抖音](https://twitter.com/hashtag/%E6%8A%96%E9%9F%B3?src=hashtag_click) 在政府设备上使用的立法现在来到了参议院。很多联邦机构都已经认识到，抖音 [@tiktok\_us](https://twitter.com/tiktok_us) 是个主要的安全风险，在联邦设备中没有它的位置。
+
+
+
+> PASSED UNANIMOUSLY OUT OF COMMITTEE
+> 
+> Sen. Hawley's legislation to ban TikTok on government devices will now make its way to the Senate floor.
+> 
+> As many federal agencies have already recognized, [@tiktok\_us](https://twitter.com/tiktok_us?ref_src=twsrc%5Etfw) is a major security risk and has no place on federal devices
+> — Senator Hawley Press Office (@SenHawleyPress) [May 12, 2021](https://twitter.com/SenHawleyPress/status/1392481074530373634?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： 乌拉圭是全世界仅有的15个愿意直面 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的霸凌，并与 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 维持外交关系的国家之一 。美国期待与这两个国家合作，扩大多边合作。（转推国务院，美国，乌拉圭和台湾在可再生能源应用中确定并创造合作机会的公告）
+
+
+
+> Paraguay is one of just 15 countries worldwide that is willing to stand up to China’s bullying and maintain diplomatic relations with Taiwan. The U.S. looks forward to working together with these two nations to expand multilateral cooperation.[https://t.co/8hwAW9MvOU](https://t.co/8hwAW9MvOU)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 12, 2021](https://twitter.com/MarshaBlackburn/status/1392466709450301440?ref_src=twsrc%5Etfw)
+
+
+
+章家敦（中国问题专家）： 如果联合演习不是像 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 的环球时报告诉我们的那样，是威慑 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的，那么我们需要一个更加强有力的回应，我们还在等什么呢？【环球时报说，日美法澳的联合演习只是个象征性的几乎没有军事意义】
+
+
+
+> If the drill does not deter [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) as the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)’s Global Times tells us, then we need a far more robust response. What are we waiting for? [#Japan](https://twitter.com/hashtag/Japan?src=hash&amp;ref_src=twsrc%5Etfw) [#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw) [#France](https://twitter.com/hashtag/France?src=hash&amp;ref_src=twsrc%5Etfw) [#Australia](https://twitter.com/hashtag/Australia?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/aK4ioVjlXO](https://t.co/aK4ioVjlXO)
+> — Gordon G. Chang (@GordonGChang) [May 12, 2021](https://twitter.com/GordonGChang/status/1392463067464839172?ref_src=twsrc%5Etfw)
 
 
 

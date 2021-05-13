@@ -1,28 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 逾越雷池：加拿大驻以色列大使馆将迁至耶路撒冷！？
-` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1233728/)
+## 参议员兰德·保罗：石正丽对蝙蝠冠状病毒进行“功能性增强”研究
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1234203/)
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12181306/%E5%8A%A0%E6%8B%BF%E5%A4%A7%E4%BD%BF%E9%A6%86%E8%BF%81-edited.jpg)图片来源:TRUENORTH
+参议员兰德·保罗： “从公开文件中得知，石(正丽)博士在对蝙蝠冠状病毒进行“功能性增强”研究，该研究涉及修改其基因组以赋予病毒新的特性，例如感染新宿主物种或传播的能力。” 【附华盛顿邮报专栏：我们还是没有这场瘟疫起源的故事，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 正藏着掖着。中国研究所一定要打开接受调查】
 
 
-加拿大知名独立媒体《真北方》（TRUENORTH）于5月12日刊登时事文章，对该国全球事务部正在筹划将加拿大驻以色列大使馆搬迁至耶路撒冷一事进行了独家报道。由于该内阁保密信息还未对外公开，因此公众对此时搬迁大使馆的原因和目的及具体细节尚不得而知。特别是在目前以色列和巴勒斯坦哈马斯剑拔弩张的对战之际传出如此敏感的消息，其中原委我们只能静观其变，拭目以待了！全文编译如下：
 
-《真北方》刚刚获悉，加拿大全球事务部正在准备将加拿大驻以色列大使馆从特拉维夫迁移至耶路撒冷。
+> “It is known from public documents that Dr. Shi was conducting “gain of function” research on bat coronaviruses, which involves modifying their genomes to give the viruses new properties, such as the ability to infect a new host species or transmit…” [https://t.co/HJEqlcJ6LX](https://t.co/HJEqlcJ6LX)
+> — Senator Rand Paul (@RandPaul) [May 11, 2021](https://twitter.com/RandPaul/status/1392189419113811969?ref_src=twsrc%5Etfw)
 
-为了回应有关获取此举进一步信息的请求，加拿大全球事务部官员对本媒记者表示，确实存在相关搬迁事宜，但由于该内容受到内阁机密性的保护而暂时不能对外公开。对此该官员解释道：“我仔细审阅了从各自计划领域收到的有关搬迁决定的信息文件，尽管全球事务部实际上确实在为大使馆可能迁往耶路撒冷做准备，但目前还尚未有具体行动。”
 
-我们知道，在各种公开场合之下，特鲁多政府都从未偏离加拿大始终秉承的“只要耶路撒冷受到以色列和巴勒斯坦的争夺，该国使馆就应该保持在特拉维夫”这一历来的官方立场。
 
-目前驻在以色列的90个外国使馆中，只有3个位于耶路撒冷，其中包括美国，危地马拉和科索沃等。此前在川普政府的强力推动之下，美国驻耶路撒冷大使馆于2018年5月正式对外办公。而加拿大在随后的针对谴责美国使馆搬迁举动的联合国投票中选择了弃权。
+参议员兰德·保罗： “美国政府已评估武毒所正在以某种形式进行功能增强研究，记者乔什·罗金已于三月在政治报Politico中指出。基因编辑专家杰米·梅茨也注意到武毒所进行了功能增强研究。 【附“国际观察”报道：兰德·保罗敦促福奇放弃功能增强研究，并指出可能发生的新冠病毒实验室泄漏】
 
-在2019年加拿大大选中，前保守党领袖安德鲁·谢尔（Andrew Scheer）曾誓言如果他能成为总理，必将把大使馆迁至耶路撒冷，并且其继任者艾琳·奥图尔（Erin O’Toole）不久后也做出了同样的承诺。
 
-自从1967年的六日战争结束，东西耶路撒冷统一以来，该地区就完全处于以色列的控制之下。近二十多年以来，尽管巴勒斯坦人始终声称耶路撒冷为其所拥有，但实际上它一直都是以色列的首都。
 
-[原文链接](https://tnc.news/2021/05/11/global-affairs-prepared-for-possible-move-of-canadian-embassy-in-israel-to-jerusalem/)
+> "The U.S. gov has assessed that the WIV was conducting gain-of-function research in some form reporter Josh Rogin noted in Politico in March. Jamie Metzl, an expert on gene editing…has also noted that the WIV performed gain-of-function…"[https://t.co/vykP5nHSqJ](https://t.co/vykP5nHSqJ)
+> — Senator Rand Paul (@RandPaul) [May 11, 2021](https://twitter.com/RandPaul/status/1392158526387200004?ref_src=twsrc%5Etfw)
 
-以上新闻为媒体报道，不代表任何GNEWS之立场。
+
+
+参议员兰德·保罗：福奇(Fauci)博士掩饰或试图隐藏他对“功能增强”性研究的长期支持，这项研究创造了从动物跃至人类的超级病毒。 美国有11个实验室在美国制造这些超级病毒，并且其中一个与武汉病毒研究所合作 – 福奇为所有这些实验室提供了NIH资金支持！请观看在今天的听证会上，我和福奇(唇枪舌剑)的质询和辩论。 【附油管视频：参议员保罗医生就有关武汉实验室的问题，对福奇进行质询】
+
+
+
+> Watch my exchange with Dr. Fauci in today's HELP Hearing. [https://t.co/2oeDvD3bz1](https://t.co/2oeDvD3bz1)
+> — Senator Rand Paul (@RandPaul) [May 11, 2021](https://twitter.com/RandPaul/status/1392147896754180108?ref_src=twsrc%5Etfw)
+
+
+
+参议员兰德·保罗：“而且我们需要停止在野外寻找新的外来疾病，将其运回实验室，并热连接其基因组，以证明它们可能对人类生命有多么危险。” 【转[http://nymag.com](https://t.co/OyUUIbWtGB?amp=1) 文章：实验室泄漏假说】巴黎巴斯德研究所病毒学家西蒙·韦恩·霍布森(Simon Wain-Hobson)说：“如果病毒逃脱了，没人能预测其发展轨迹。” 【转[http://medium.com](https://t.co/c8i5z8lXDJ?amp=1) 文章：新冠病毒Covid的起源 – 跟随线索 是人类还是自然界在武汉打开了潘多拉魔盒？】
+
+
+
+> “If the virus escaped, nobody could predict the trajectory,” said Simon Wain-Hobson, a virologist at the Pasteur Institute in Paris. [https://t.co/AfwIKqMNbi](https://t.co/AfwIKqMNbi)
+> — Senator Rand Paul (@RandPaul) [May 11, 2021](https://twitter.com/RandPaul/status/1392155672507265031?ref_src=twsrc%5Etfw)
+
+
+
+
 
 0

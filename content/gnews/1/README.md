@@ -1,37 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 哈马斯发射了1,000多枚火箭 以色列报告死亡人数
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1233746/)
+## 【新闻速递】德州迈出加密货币合法化第一步，正式承认法律地位
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1233796/)
 
-**新闻来源：**德国世界报 网络版
-**发布时间：**2021年5月12日
-**翻译整理/ 简评：** Shuizhuyu
+作者：休斯顿星光农场 写作部 文顺
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-03-25-230524-1.jpg)
+5月11日，据亚历克斯·多夫布尼亚（Alex Dovbnya）披露，德克萨斯州众议院一致通过了加密货币合法地位的 “虚拟货币法案 “。此举在加密货币的发展中具有里程碑意义。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12183055/Screenshot-2021-05-12-172916.jpg)
+*图片来源：U\*TODAY*
+
+据多夫布尼亚在U.TODAY的报道，该州目前正在努力突破参议院的障碍，以将该法案形成法律，并有可能将 “孤星州 “与怀俄明州一起建成一个主要的加密货币中心。
+
+该法案旨在将 “虚拟货币 “一词纳入规范该州商业交易的《统一商法典》。如果变成法律，它将为获得对加密货币的控制权提供一个法律框架。
+
+该法案允许购买者与他人分享 “权力”，从而使金融机构有可能从事加密货币的保管工作。
+
+德州州长格雷格·艾伯特（Greg Abbott）已经亲自出面支持这项具有里程碑意义的加密货币法案。
+
+**关于作者**：
+**亚历克斯·多夫布尼亚**
+Alex Dovbnya（又名亚历克斯莫里斯）是一位加密货币专家、交易员和记者，在报道与这个新兴行业有关的一切方面有着丰富的经验——从价格分析到区块链的中断。Alex为U.Today、CryptoComes和其他金融科技媒体撰写了1000多篇报道。他对塑造数字资产的未来的全球监管趋势特别感兴趣。
+
+信息来源：
+
+[https://u.today/texas-house-passes-bill-that-officially-recognizes-legal-status-of-cryptocurrencies?amp](https://u.today/texas-house-passes-bill-that-officially-recognizes-legal-status-of-cryptocurrencies?amp)
+
+编辑/校对/发稿：Helen
+
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
 
 
-
-
-
-
-
-自星期二晚上以来，以色列大都会特拉维夫一直受到加沙地带的火箭弹袭击。至少有三人死亡。在罗德，阿拉伯人放火烧犹太教堂和汽车。这个城市处于紧急状态。
-
-星期三清晨再次触发了火箭警报。以色列军方表示，这座城市再次遭到大火袭击。陆军的推特页面说：“家庭被唤醒，急忙被带到庇护所。”
-
-据以色列军队说，加沙地带的好战巴勒斯坦人迄今已向以色列发射了1000多枚火箭。军事发言人乔纳森·孔里克斯（*Jonathan Conricus*）周三说，以色列境内约有850枚火箭被拦截或坠落，加沙地带又有200枚坠落。据他说，到目前为止，已有五人在以色列死于火箭弹袭击。另有200多人受伤。
-
-星期二晚上，在特拉维夫市中心听到几次爆炸声。空袭警报器在整个城市中哭泣，以色列的防空系统被激活。由于袭击，特拉维夫附近的本古里安国际机场已经关闭，无法起降。航班被转移到塞浦路斯。交通当局宣布，此步骤“对于保护陆地上空的天空必要的”。
-
-#### **简评：**
-
-**哈马斯是全球公认的恐怖组织，几天来对以色列的攻击引起了全球的关注，欧盟和美国都谴责了哈马斯的行动。今天，哈马斯从加沙地带再次对以色列的首都特拉维夫进行了攻击。虽然以色列进行了拦截，但是还是有些火箭弹击中了目标，导致了5人死亡，和200多人受伤。哈马斯以军事手段消除以色列国和建立伊斯兰国为目标。哈马斯的政府就设在加沙地带。这些火箭弹也是从加沙发出的。 **
-（本文只代表译者观点，与Gnews平台无关。）
-
-**新闻原文链接：**
-🔗[Israels Präsident Rivlin spricht nach Ausschreitungen von „Pogrom“](https://www.welt.de/politik/ausland/article231074325/Israel-Tel-Aviv-unter-Beschuss-Praesident-Rivlin-spricht-von-Pogrom.html)
-
-* * *
-
-***编辑整理/校对: **Ting Guo*
-
-0
++3
