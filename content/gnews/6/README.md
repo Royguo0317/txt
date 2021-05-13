@@ -1,29 +1,83 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美俄外交负责人同意5月份在雷克雅未克会晤
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1238902/)
+## 【战友心声】雅典娜视角
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1238989/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+作者：纽约香草山健身部 澄道
 
-编辑上传 水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13133957/U-4.jpg)english.alarabiya.net
-05月12日，俄罗斯和美国外交的负责人谢尔盖·拉夫罗夫（Sergei Lavrov）和安东尼·布林肯（Anthony Blinken）进行了电话交谈，期间他们同意在雷克雅未克举行的北极理事会（AC）“休会期间”会晤。这是俄罗斯外交部网站上的报道。
 
-该部表示，在谈话中，双方讨论了在北极理事会（AC）中的互动，包括该组织主席职位向俄罗斯的过渡，这将在5月20日的雷克雅未克部长级会议上举行。声明说，“拉夫罗夫和布林肯同意在本届会议的‘间隙’举行一次单独会议，讨论双边关系和国际议程的关键问题。”
 
-拉夫罗夫和布林肯还讨论了“未来一段时间的其他美俄接触的时间表，包括华盛顿提出的组织美俄峰会”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
-该部门说，双方还就处理朝鲜半岛核问题的方法和延长关于《伊朗核计划的联合全面行动计划》交换了意见。
 
-根据国务院发言人内德·普莱斯（Ned Price）的评论，在谈话中，布林肯“重申了乔·拜登总统坚决捍卫美国利益以应对俄罗斯损害他们及其盟友的行动的决心”。
 
-早些时候，俄罗斯副外长谢尔盖·里亚布科夫（Sergei Ryabkov）说，拉夫罗夫和布林肯可能在雷克雅未克的北极理事会会议期间单独举行会议。“我承认，这将符合时间表，但它首先要求我国领导人和美国国务卿之间有这样的谅解。”里亚布科夫说。
+– 般若 晨兮 澄道来了 –
 
-北极理事会由八个环北极国家组成：加拿大、丹麦、芬兰、冰岛、挪威、俄罗斯、瑞典和美国。今年5月，北极理事会的主席职位传递给了俄罗斯，任期至2023年。
+– 喜玛拉雅墨尔本雅典娜农场之声 –
 
-参考链接：
+– 献给七哥51岁生日礼物 –
 
-[https://www.rbc.ru/politics/12/05/2021/609c03609a79472e5f765c66](https://www.rbc.ru/politics/12/05/2021/609c03609a79472e5f765c66)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13141302/6-17.jpg)
 
-0
+一道文化的大餐
+
+菜品即人品
+
+一场历史的复盘
+
+唯真即实真
+
+洞知智慧雅典娜
+
+灼见正道真视角
+
+改变劣币驱逐良币的陋习
+
+从改变巨婴纠缠开始
+
+有家庭是幸福的人
+
+建立优胜劣尊的社会风俗
+
+靠激活人格独立平等为天
+
+有战友是完整的人
+
+雅典娜视角：
+
+是一档有角度
+
+有深度
+
+有速度
+
+有温度栏目
+
+是一档“四度灭共”用心节目
+
+（本文仅代表作者观点）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+
+
++1

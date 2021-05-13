@@ -1,25 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登希望早一点结束巴以冲突
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1238860/)
+## 【香草诗词汇】祝贺64
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1239002/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+作者：香草山美食部 新世界的一员
 
-编辑上传 水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13132656/I-11.jpg)newsweek.com
-05月12日，据路透社报道，美国总统拜登表示，他与以色列总理本雅明·内塔尼亚胡举行了电话会谈。美国领导人说，美国希望早日结束巴以冲突。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-拜登说：“我希望它结束，而且最好是‘早一点’而不是‘晚一点’发生。”他还补充说，在目前的情况下，以色列“有权自卫”。
 
-在以色列当局开始驱逐东耶路撒冷的数个阿拉伯家庭之后，巴以冲突再次升级。抗议和骚乱随之而来，造成了数百人的伤亡。
 
-5月10日开始了相互的火箭攻击。5月12日，哈马斯声称在三天内向以色列发射了1000多枚火箭弹。以色列以对加沙的轰炸作为回应。据巴勒斯坦当局称，自冲突开始以来，已有56名当地居民成为轰炸的受害者，约300人受伤。以色列国防军报告说，这些袭击的目标是哈马斯指挥所所在的建筑物。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13135914/image0-6.png)
 
-内塔尼亚胡谴责哈马斯和其他巴勒斯坦团体的行动，并表示他们将为对以色列的火箭袭击付出高昂的代价。哈马斯领导人伊斯梅尔·哈尼耶（Ismail Haniya）则表示，如果以色列不放弃升级，该组织将进行激烈的抵抗。
+蓝旗迎风飘
+国歌威力冲云宵
+同庆64新中国
+回顾四载爆料
 
-参考链接：
+天使临 英豪聚
+誓将善勇灭共妖
+一声七哥
+炎黄子孙挺直腰
 
-[https://www.rbc.ru/politics/12/05/2021/609c3b1d9a79473bbdc829dd](https://www.rbc.ru/politics/12/05/2021/609c3b1d9a79473bbdc829dd)
+驱幽灵 歼恶魔
+生物战中真相活
+世人悟 世界醒
+自由女神展蹙额
+
+万众一心有信仰
+普世价值在人间
+红色种恶因
+蓝色扬善念
+
+唯真不破溃红妖
+传统文化换新颜
+有爱有情又有义
+万世不朽后世传！
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12223539/5%E6%9C%88.jpg)
+
+
+
+**六四文宣大赛，****欢迎大家踊跃投票****：**[**https://gnews.org/poll/poll-article\_1/**](https://gnews.org/poll/poll-article_1/)
+
+**投票注意****事项****：****第一，比如投票视频，一个账号需要同时选中要投的三个视频作品，方可以投票；第二，因为视频比较大，所以需要大家静待一两分钟，然后进入视频投稿界面。第三，投票的战友也有机会获幸运参与奖啊。**
+
+**简体**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
