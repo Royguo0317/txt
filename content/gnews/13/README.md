@@ -1,64 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】祝贺64
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1239002/)
+## 德国BioNTech将与上海复星医药合作生产病毒疫苗
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1238992/)
 
-作者：香草山美食部 新世界的一员
+#### 作者:【默凡】
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13140408/Snipaste_2021-05-14_02-03-30.png)
 
+法新社5月11日报道称：总部位于德国美因茨的BioNTech近日与中共国上海复星医药集团达成一些合作协议，双方将共同投入2亿美元各自持股50%，在中共国成立合资企业，在中共国生产BioNTech病毒疫苗，预计每年可生产10亿剂。
 
+上海复星医药集团将全权代理BionTech在中共国、香港、台湾和澳门的疫苗销售。截至目前，BionTech疫苗还未获得中共当局许可。据媒体报道说，中共当局很可能在7月正式批准BionTech疫苗进入中共国市场。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13135914/image0-6.png)
+据德国《商报》报道，欧盟又增加BioNTech疫苗订单，BionTech也已经开始在新加坡生产疫苗。BionTech本周一将2021年度的疫苗销售额上调至124亿欧元。
 
-蓝旗迎风飘
-国歌威力冲云宵
-同庆64新中国
-回顾四载爆料
+评论：
 
-天使临 英豪聚
-誓将善勇灭共妖
-一声七哥
-炎黄子孙挺直腰
+随着以美国为首的西方国家对病毒真相调查的深入，中共超限生物战计划即将浮出水面，接下来等待中共的就是西方国家与中共国全面脱钩，以及全球联合围剿中共国。上海复星医药背后的控股方是上海帮江家的孙子江志成，德国BioNTech公司在如此严峻的国际政治环境之下，依然想借江家在中共国的影响力从中共疫苗市场分一杯羹，最后肯定是竹篮打水一场空。未来，只有敢于与中共脱钩，敢于拒绝中共要挟的国际企业才能存活。
 
-驱幽灵 歼恶魔
-生物战中真相活
-世人悟 世界醒
-自由女神展蹙额
+参考文章：[德国BioNTech将在中国建立合资企业生产疫苗](https://www.rfi.fr//cn/%E4%B8%AD%E5%9B%BD/20210511-%E5%BE%B7%E5%9B%BDbiontech%E5%B0%86%E5%9C%A8%E4%B8%AD%E5%9B%BD%E5%BB%BA%E7%AB%8B%E5%90%88%E8%B5%84%E4%BC%81%E4%B8%9A%E7%94%9F%E4%BA%A7%E7%96%AB%E8%8B%97)
 
-万众一心有信仰
-普世价值在人间
-红色种恶因
-蓝色扬善念
+本文仅代表作者本人观点，不代表Gnews平台
 
-唯真不破溃红妖
-传统文化换新颜
-有爱有情又有义
-万世不朽后世传！
+* * *
 
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12223539/5%E6%9C%88.jpg)
-
-
-
-**六四文宣大赛，****欢迎大家踊跃投票****：**[**https://gnews.org/poll/poll-article\_1/**](https://gnews.org/poll/poll-article_1/)
-
-**投票注意****事项****：****第一，比如投票视频，一个账号需要同时选中要投的三个视频作品，方可以投票；第二，因为视频比较大，所以需要大家静待一两分钟，然后进入视频投稿界面。第三，投票的战友也有机会获幸运参与奖啊。**
-
-**简体**
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*排版发布：日本东京方舟农场 文柯Miles*
 
 0

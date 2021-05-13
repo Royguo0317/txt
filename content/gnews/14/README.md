@@ -1,27 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 巴西出现首例因接种阿斯利康疫苗死亡的孕妇
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1238759/)
+## 【香草诗词汇】祝贺64
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1239002/)
 
-#### 作者:【默凡】
+作者：香草山美食部 新世界的一员
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13135346/%E4%B8%8B%E8%BD%BD-19.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-法新社最新报道称：5月12日，巴西卫生部长奎洛加（Marcelo Queiroga）在记者会上说，一名里约热内卢孕妇在接种阿斯利康中共病毒疫苗后死亡，这是巴西首次出现孕妇接种病毒疫苗后的死亡案例。
 
-巴西国家卫生监督局（Anvisa）10日晚建议，在卫生部查明该名孕妇死因前，「立即暂停」为孕妇接种阿斯利康病毒疫苗，以配合「持续监控巴西中共病毒疫苗的不良事件」。
 
-随后，圣保罗、里约热内卢与其他州今天开始执行巴西国家卫生监督局建议，暂停给孕妇接种阿斯利康病毒疫苗。全国疫苗接种计划协调员弗兰基纳托（Franciele Francinato）说，已接种第1剂阿斯利康病毒疫苗的孕妇，应等到卫生部发布新指引后，再打第2剂。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13135914/image0-6.png)
 
-根据Worldometer网站最新统计数据显示，巴西累计确诊患者已达15，285，048例，死亡人数已突破425，000例，仅次于美国的59万例。
+蓝旗迎风飘
+国歌威力冲云宵
+同庆64新中国
+回顾四载爆料
 
-参考文章：[一女打AZ疫苗后不治 巴西数州暂停向孕妇施打](https://www.rfi.fr//cn/%E4%B8%80%E5%A5%B3%E6%89%93az%E7%96%AB%E8%8B%97%E5%90%8E%E4%B8%8D%E6%B2%BB-%E5%B7%B4%E8%A5%BF%E6%95%B0%E5%B7%9E%E6%9A%82%E5%81%9C%E5%90%91%E5%AD%95%E5%A6%87%E6%96%BD%E6%89%93)
+天使临 英豪聚
+誓将善勇灭共妖
+一声七哥
+炎黄子孙挺直腰
 
-本文仅代表作者本人观点，不代表Gnews平台
+驱幽灵 歼恶魔
+生物战中真相活
+世人悟 世界醒
+自由女神展蹙额
 
-* * *
+万众一心有信仰
+普世价值在人间
+红色种恶因
+蓝色扬善念
 
-*排版发布：日本东京方舟农场 文柯Miles*
+唯真不破溃红妖
+传统文化换新颜
+有爱有情又有义
+万世不朽后世传！
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12223539/5%E6%9C%88.jpg)
+
+
+
+**六四文宣大赛，****欢迎大家踊跃投票****：**[**https://gnews.org/poll/poll-article\_1/**](https://gnews.org/poll/poll-article_1/)
+
+**投票注意****事项****：****第一，比如投票视频，一个账号需要同时选中要投的三个视频作品，方可以投票；第二，因为视频比较大，所以需要大家静待一两分钟，然后进入视频投稿界面。第三，投票的战友也有机会获幸运参与奖啊。**
+
+**简体**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

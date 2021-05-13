@@ -1,25 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒自然论是犯罪集团的阴谋
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1239144/)
+## 【香草诗词汇】有话说（一）
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1239093/)
 
-翻译：武松(Sam)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13142925/%E5%9B%BE%E7%89%87114563.png)图片来源：网络
-2020年2月19日，一众病毒学家在《柳叶刀》上发表论文，向全世界宣称中共病毒是自然界产生的，是由冠状病毒的野生株引起的，起源于野生动植物，并强烈谴责那些认为中共病毒并非起源于自然而是人工合成的是阴谋论。
+作者：纽约香草山健身部 澄道
 
-通过各种信息渠道我们得知，美国国家过敏和传染病研究所的Anthony Fauci博士利用手中的权力和资源，一直动工国家科研经费对功能冠状病毒研究进行拨款资助，这些资金分配给纽约生态健康联盟的Peter Daszak博士，然后再分期支付给中共国相关研究机构和研究人员，这些研究人员定期向Anthony Fauci博士和Peter Daszak博士汇报研究进度及成果。此外，美国的大学与武汉病毒研究所的“蝙蝠女”石正丽博士合作，收集并分离出约一百种不同的蝙蝠冠状病毒，并增强了蝙蝠病毒攻击人类细胞的能力。经过多次实验，最终中共国科学家最终找到了一种工程化冠状病毒刺突蛋白的方法，以利用人肺细胞中的ACE2受体。 2020年6月，中共国研究人员发布了一种用于研究中共病毒的新模型，该模型使用CRISPR基因编辑工具来改变小鼠肺细胞。科学家为小鼠配备了人类肺细胞中的ACE2受体，这与他们学习如何使用编辑后的冠状病毒进行开发的受体相同。中共邪恶的统治阶层及科学家将冠状病毒转化为易于部署的生物武器，可以被雾化以攻击呼吸系统和心血管系统。为了使刺突蛋白与人肺细胞的ACE2受体结合，病毒学家使用串行传代技术对其他病毒的刺突蛋白基因进行剪接，每次转移病毒基因时，自然选择过程就会启动，从而产生可以与人体细胞结合的最合适的基因。
 
-众所周知，Peter Daszak博士了解并掌握这一切研究计划及进度，因为他在2019年的一次采访中称赞了带有可轻松利用人源化小鼠的刺突蛋白的嵌合冠状病毒的开发技术。他曾经表示，经过6到7年的努力，已经发现有100多种新的与SARS相关的冠状病毒，非常接近SARS，一些进入实验室的人类细胞中，其中一些会在人源化的小鼠模型中引起SARS疾病，并且无法用治疗性单克隆抗体治疗，因此无法通过疫苗来阻止它们。事实证明，中共病毒从一开始就已经具备了攻击人类肺细胞的能力，在2003年的SARS流行期间，研究人员能够记录这种病毒面对自然选择时刺突蛋白的变化，目前的中共病毒不必经历这些进化变化即可成为危险的病原体。
 
-**评：**中共病毒是在中共最高层直接指挥、参与下，由中共军方、病毒实验室及其他国家邪恶势力一起研发的超限战生物武器。中共利用蓝金黄等手段利诱、威胁、胁迫科学家、各大新闻媒体、各大知名期刊杂志为其站台，承认中共病毒自然学说理论。但是纸是包不住火的，爆料革命闫丽梦博士等正义人士用事实、科学证据揭露中共病毒是来自实验室，是人工制造的超限战生物武器。在感染数千万人，数百万人死亡的情况下，又通过疫苗生物武器再次对全世界人类进行掠夺和杀害。全世界正义的人民只有联合起来推翻中共政权，才有希望拿到解药，才能恢复往日安宁的生活。只要中共及其邪恶势力存在一天，人类随时都有可能存在被毁灭的危险。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
-[https://www.naturalnews.com/2021-05-12-nothing-natural-sars-cov2-circumstances-covid-scandal-wreak-criminal-intent.html#](https://www.naturalnews.com/2021-05-12-nothing-natural-sars-cov2-circumstances-covid-scandal-wreak-criminal-intent.html#)
 
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
 
-编辑/发布：比卡丘
+秋风吹过无垠的荒野！
 
-20210513
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+那是风儿对草儿的有话说！
+
+你不给我一个说法啊！
+
+我就给你一个做法！
+
+那是一个孤胆英雄的有话说！
+
+阵雨袭过园中的郁金香！
+
+那是雨儿对花儿的有话说！
+
+你强给了我一个七十年的荒唐啊！
+
+我就还你一个take down the CCP!
+
+这是一个自由灵魂的有话说！
+
+![]()![](https://media.discordapp.net/attachments/721544615953432698/836437597524983858/image1.jpg?width=1083&amp;height=609)
+
+Take down the CCP
+
+Take down the CCP
+
+Take down the CCP
+
+（本文仅代表作者观点）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+
+
 0
