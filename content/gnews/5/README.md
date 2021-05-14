@@ -1,39 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## NEWS EXPRESS】亚利桑那州爆整个选举数据被删除 主管召集紧急会议
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1240050/)
+## 【战友心声】难忘之“好”
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1240111/)
 
-突发：吉姆·霍夫特（Jim Hoft）报道：
-
-Maricopa县级主管发布爆炸性信息揭露了从投票机中删除的数据库，召开了紧急会议
-
-上周，Gateway Pundit报道了马里科帕县监事会召集的紧急会议，据报道该县无法向执行该县2020年选举结果审核的审核员提供密码。他们也没有提供对审计中要求的路由器的访问。
-
-在星期三下午，发现2020年大选的“整个数据库”已删除，其中显示了“结果统计和报告”！
-
-亚利桑那州参议院主席卡伦·范恩（Karen Fann）向设备供应商主席致信，要求在周三晚上回答。马里科帕郡选举官员从投票机中删除了整个数据库-包括主数据库中的“所有选举信息”-带有参议院信函的副本。
-
-这是一个爆炸性的发展。
-
-参议员卡伦·范恩（Karen Fann）叫马里科帕县监督员来亚利桑那州参议院，并解释了选举数据库在移交给参议院法务审计团队前10天如何从投票机中删除！
-
-周四下午，Maricopa县监督员宣布，今天下午亚利桑那时间下午4点召开紧急会议。
-
-参考链接：
+作者：纽约香草山媒体部 7bends
 
 
 
-> [BREAKING: AZ Supervisors Call Emergency Meeting](https://populist.press/breaking-az-supervisors-call-emergency-meeting/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
 
 
-图片来源：[https://populist.press](https://populist.press)
+2017年公开直播打响灭共战，好勇气
 
-整理撰稿：蓝精灵
+真假拥趸 真伪民运 一拥而上，好壮观
 
-校对发布：Penny
+断直播 断演讲 断油管 封推特，好疯狂
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+共匪抓亲人 抓员工 收财产，好惨烈
+
+伪类五毛 九层妖塔 纷纷现行，好复杂
+
+![]()![](https://media.discordapp.net/attachments/721544615953432698/824133855023202344/image0.jpg?width=1081&amp;height=609)
+
+真善狠 灭共匪，好痛快
+
+广推共产党不等于中国人，好感动
+
+拯救十四亿人不放弃，好侠义
+
+11.20 法制基金 法制社会，好及时
+
+GTV GNEWS GFASHION GCLUBS，好强大
+
+喜农场 喜联储 喜美元 H-COIN，好未来
+
+（本文仅代表作者观点）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+
+
+
 
 0

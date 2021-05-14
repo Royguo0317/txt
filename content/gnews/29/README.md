@@ -1,27 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NEWS EXPRESS】以色列准备开辟地面战线
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1239624/)
+## 2021年5月12日 秘翻快报: 欧盟27国与印度签署历史性协议 共同对抗中共
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1239654/)
 
-以色列星期四说，在这两个痛苦的敌人陷入全面战争前，正在加沙边境集结部队并召集9000名预备役人员，可能对哈马斯统治的领土进行地面入侵。埃及调解员赶赴以色列进行停火努力，但没有任何进展的迹象。
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13193416/IMAGE-2021-05-14-053538.jpg)](https://gtv.org/video/id=609da8eedb13300ca5538183)
+**新闻总结：**
 
-为期四天的暴力爆发将以色列推向了未知的领域-处理与哈马斯有史以来最激烈的战斗，同时应对了数十年来以色列境内最严重的犹太阿拉伯冲突。
+1.    香港《国安法》实施后，能否纪念64成疑
 
-星期四晚，以色列国防部长本尼·甘茨（Benny Gantz）下令动员另外9000名预备役人员。
+2.    一带一路充满中共国劳工的血与泪
 
-首席军事发言人布里格。希代·齐尔伯曼（Hidai Zilberman）将军说，部队正在沿加沙边界集结，以便进行地面行动。他说，坦克，装甲车和大炮正在“随时准备动员”。
+3.    澳《天空新闻》:中共军方于五年前开始研制病毒
 
-参考链接：
+4.    欧盟27国与印度签署历史性协议 共同对抗中共
 
-[https://apnews.com/article/israel-palestinians-conflict-violence-spreads-1ad9613de6ad16c4d248da9934cf0412?utm\_campaign=SocialFlow&utm\_medium=AP&utm\_source=Twitter](https://apnews.com/article/israel-palestinians-conflict-violence-spreads-1ad9613de6ad16c4d248da9934cf0412?utm_campaign=SocialFlow&amp;utm_medium=AP&amp;utm_source=Twitter)
+5.    美司法部标记两家中共媒体为代理人
 
-图片来源：[https://apnews.com](https://apnews.com/article/israel-palestinians-conflict-violence-spreads-1ad9613de6ad16c4d248da9934cf0412?utm_campaign=SocialFlow&amp;utm_medium=AP&amp;utm_source=Twitter)
+**By:秘翻快报组**
 
-整理撰稿：蓝精灵
+**GTV链接**:[https://gtv.org/video/id=609da8eedb13300ca5538183](https://gtv.org/video/id=609da8eedb13300ca5538183)
 
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
-
-+1
+0

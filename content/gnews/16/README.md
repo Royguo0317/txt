@@ -1,67 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共军方大规模渗透美国病毒研究中心
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1239653/)
+## 美国给中共三大电信公司除牌意味着什么
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1239940/)
 
-作者：纽约香草山翻译部 文明世界
+**摘要：郭先生在2021年5月8日的盖特视频中说，中共三大电信企业被除牌给美国以及全世界开启了一个除牌的标准，以便下一步的全球脱钩和查封共产党的资产。世界正在睁开眼睛看清中共的本质。当时机到来之时，全世界包括贪婪的金融大亨们都会抢中共的资产，但是，中共的钱属于中国人民。最终，中共及其党员没有别的选择，只能将钱及资产投入到喜联储、喜美元和喜币。这也是G-TV、盖特、G-News和G-Clubs等投资的意义所在。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13201255/Miles_20210508-getter1.srt.txt)
+**美国给中共三大电信公司除牌意味着****什么**
 
+**The Implication of the Delisting of the CCP’s Three Major Telecommunications Companies in the US**
 
+另外，现在看到美国、欧洲、日本现在在干什么嘛，兄弟姐妹们有人知道吗？欧洲和美国都在查找属于共产党的资产。昨天三大电信企业，我看了《路德访谈》节目了，「我当时」在那儿泡着澡听着节目，讲的特别好，但是比这还严重。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+Have you seen what the United States, Europe, and Japan are doing now? Does anyone know, brothers and sisters? Both Europe and the US are searching for the CCP’s assets. Yesterday I watched Lude’s interview about the three major Chinese telecommunications companies. I listened to his program while having a hot bath. They explained this very well, but the actual situation is more serious than what they said.
 
+三大电信的整个被除牌给美国开启一个除牌的标准，给全世界有了个除牌的标准，给下一步的脱钩和查封共产党的资产最重要的建立「了」一个标准和开「了」一个口子。以此往后类推，凡是共产党和军方有企业参加新疆大屠杀、香港大迫害「的」都会被干掉。那你告诉我哪个国有企业不掺和这个？那都是比它惨的。这种情况下在海外的共产党所有的资金和企业，欧洲、「包括」日本、美国的西方的这些盟国都在查找中。这就是最近7哥比较忙「的原因」。太多人问我这个企业是干嘛，那个企业干嘛的？
 
+The delisting of the three major telecommunications companies has set a standard for the United States and the world. It has set a standard, and an opening for decoupling and seizing CCP’s assets. Similarly, in the future, all companies owned by the CCP and PLA which were involved in the Xinjiang genocide and the great persecution in Hong Kong will be taken down. Then tell me, which state-owned enterprise was not involved in these affairs? They will suffer even worse than the three telecommunications companies. Under this situation, the overseas funds and enterprises owned by the CCP in Europe, Japan and the other Western allies of the US are all being investigated. This is why Brother Miles is so busy recently. Too many people are asking me what this company does, and what that company does.
 
-5月11日，塞林博士（Dr. Sellin）发推写道：“震惊报道：中（共）国人民解放军长春军事兽医研究所的金宁一将军成功地渗透了美国国防部资助的一个重要的病毒研究中心，该中心具备生物安全四级隔离设施。”
+所以说现在，兄弟姐妹们，面临「是」个什么时刻？全世界正在睁开眼睛在了解中共啥样，咋回事啊？
 
-该推文附带的链接指向一篇由塞林本人（*Lawrence Sellin*）和陈安娜（Anna Chen）联合撰写的文章。该文章于5月11日由美国媒体网站《门户专家》（The  Gateway Pundit）创始人的孪生兄弟乔-霍夫特（Joe Hoft）发表，标题为《独家报道：中（共）国军队对美国病毒研究的大规模渗透》。文章重点指出了在德克萨斯学医学部（UTMB）工作的华人科学家史佩勇（Pei-Yong  Shi）教授与中共军方的关联。
+So now, brothers and sisters, what situation are we facing? The whole world is opening its eyes to understand what the CCP is truly like and what’s going on. So?
 
-![]()![](https://media.discordapp.net/attachments/830167012663754773/842196517220909106/Pei-Yong-Shi_2.jpg?width=788&amp;height=609)图片来源：门户专家
+人家大嘴巴都扇过来了，是吧？然后还想：“哎呀，「是不是」搞误会了吧？还有这些人，「例如」巴西，现在说：“哇噻你打我脸了。”巴西总统还有种说：“这家伙可能是坏蛋。”「也只说了」可能是坏蛋，还「没」敢「太」确定。然后美国还有很多「心存」侥幸者。 在这种情况下只要开始动钱，美国人「是」有钱就睁眼睛，就抓住冲上去了，「叫嚷着」“我也要弄！”。最后开始查钱，「从」查清楚钱，到全世界找共产党钱，到全世界抢共产党的钱……这就七哥当初说的，为什么我说隔空取钱？「因为」共产党的钱「是」属于人民的钱，不能让西方这些贪婪的所谓的金融大鳄们给抢走，还依法抢走，那是不行的。这就是大家要明白的：最后共产党和共产党员在没有选择「的情况下」你「的」钱只有合法一个去处：喜联储，喜美元，喜币。不信走着瞧！最抢手的：G-TV股票 — 最抢手的！然后是盖特投资，G-News投资，G-Club！就这么简单，是吧？
 
-德克萨斯大学医学部（UTMB）位于德克萨斯州的加尔维斯顿（Galveston），是美国一个主要的病毒研究中心，也是国防部资助的生物防御和新发传染病中心的所在地。2020年8月，UTMB被福奇（Anthony Fauci）指定为十个新发传染病研究中心之一，并新近获得了美国国家过敏和传染病研究所（NIAID）总额为8200万美元的资助。UTMB是拥有为数不多的生物安全四级设施之一，研究世界上最危险的病毒。
+The CCP has given the world a big slap in its face. And they are still thinking: “Isn’t it just a misunderstanding?” There are also people, for example in Brazil, who are now saying: “Wow, you slapped me in the face.” The Brazilian president had the guts to say, “This guy may be a bad guy.” He only said that the CCP might be a bad guy, he didn’t yet dare say: “For sure.” But still, many people in the US want to believe and take a chance with the CCP. When their allies begin to investigate and seize the CCP’s money, the Americans, as is always the case when they are faced with potential profit, will open their eyes, rush forward and grab the money, yelling: “I want the money too!” Finally, they will also begin to investigate the money, digging out the CCP’s money around the world and seizing it. That’s what Brother Miles said at the beginning. Why did I say “withdraw money from air”? This is because the CCP’s money belongs to the people. We cannot let those greedy financial crocodiles in the West snatch it away from us. And they can even snatch it away legally. We cannot allow this to happen. Everyone must understand: In the end, the CCP and CCP members will have no other choice. There is only one legal place for their money – the Himalaya Reserve, the Himalaya Dollar, and the Himalaya Coin. Don’t believe me? Just wait and see. The most sought-after assets will be G-TV stocks, followed by Getter investment, G-News Investment, and G-Clubs. It’s that simple, isn’t it?
 
-然而，人们并不难发现UTMB已经被中（共）国人民解放军的科学家渗透——他们其中的一些人被认为与中（共）国的生物战计划有关。并且，这种情况正在进行之中。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60968e7637f7f73984c93a90](https://gtv.org/getter/60968e7637f7f73984c93a90) (06:28-07:40, 07:52-08:02, 08:08-09:08)
+鸣谢：
+[1] 感谢Antsee-GTV、TING GUO、文惜和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)提供中文文本于[https://gnews.org/zh-hans/1199933/](https://gnews.org/zh-hans/1199933/)
+[2] 感谢YY、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)提供英文发翻译于[https://gnews.org/1222014/](https://gnews.org/1222014/)
 
-以2021年1月20日发表的一篇COVID-19的科学文章为例。“SARS-CoV-2 ORF7a的泛素化促进干扰素反应的拮抗作用”一文的作者是曹增国、夏红杰、里卡多·拉杰斯鲍姆（Ricardo Rajsbaum）、夏咸柱、王华磊和史佩勇。
+* * *
 
-资深作者【史佩勇】，在中华人民共和国接受培训，目前是UTMB的生物化学和分子生物学系教授。自2007年以来，他一直担任武汉病毒学研究所的荣誉教授。
+整理校对 & 新闻撰写：【7PawBear（纽约香草山农场）】
+字幕：【JennyL】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】【Rock小哥】
+校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-第一作者【曹增国】与史佩勇同在UTMB工作，他列出另一个隶属机构，是位于中国长春市的吉林大学兽医学院人畜共患病研究教育部重点实验室。但曹增国隐藏了他在中（共）国人民解放军军事兽医研究所工作的事实。
-
-第二作者【夏红杰】，也是史佩勇在UTMB的同事，在武汉大学工作时与中（共）国军事科学家合作过。
-
-第四和第五作者【夏咸柱】和【王华磊】都与中（共）国人民解放军军事兽医研究所有关。
-
-值得注意的是，中（共）国人民解放军军事兽医研究所被认为是中（共）国生物战计划的一个重要组成部分，由兽医【金宁一】将军领导。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13200821/11-41.jpg)图片来源：门户专家
-
-最近，《门户专家》（TGP）网站连续推出跟中共病毒有关的重磅信息文章，直指病毒背后与中共军方的密切关系。作者认为，以上只是中（共）国军方大规模渗透美国病毒研究项目的一小部分。不仅仅是这个机构，而是在整个美国，涉及数十亿纳税人的知识、技能和研究拨款被输入中（共）国的病毒研究实验室，毫无疑问，有些被用于了中共国的生物战计划。
-
-参考阅读：
-
-[EXCLUSIVE: The Massive Infiltration of U.S. Virus Research by China’s Military](https://www.thegatewaypundit.com/2021/05/massive-infiltration-u-s-virus-research-chinas-military/#post-comments)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-0
++1

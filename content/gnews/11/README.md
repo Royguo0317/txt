@@ -1,48 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国给中共三大电信公司除牌意味着什么
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1239940/)
+## 【一线新闻】不达诉求决不放弃-采访SEC抗议指挥苍天先生 （2021年5月）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1239837/)
 
-**摘要：郭先生在2021年5月8日的盖特视频中说，中共三大电信企业被除牌给美国以及全世界开启了一个除牌的标准，以便下一步的全球脱钩和查封共产党的资产。世界正在睁开眼睛看清中共的本质。当时机到来之时，全世界包括贪婪的金融大亨们都会抢中共的资产，但是，中共的钱属于中国人民。最终，中共及其党员没有别的选择，只能将钱及资产投入到喜联储、喜美元和喜币。这也是G-TV、盖特、G-News和G-Clubs等投资的意义所在。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13201255/Miles_20210508-getter1.srt.txt)
-**美国给中共三大电信公司除牌意味着****什么**
+**前方记者：纽约香草山记者站**** Kathy ****（文艺）**
 
-**The Implication of the Delisting of the CCP’s Three Major Telecommunications Companies in the US**
+**记录/校对：纽约香草山记者站 熊井（文兰）**
 
-另外，现在看到美国、欧洲、日本现在在干什么嘛，兄弟姐妹们有人知道吗？欧洲和美国都在查找属于共产党的资产。昨天三大电信企业，我看了《路德访谈》节目了，「我当时」在那儿泡着澡听着节目，讲的特别好，但是比这还严重。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191310/s2-7.jpg)
 
-Have you seen what the United States, Europe, and Japan are doing now? Does anyone know, brothers and sisters? Both Europe and the US are searching for the CCP’s assets. Yesterday I watched Lude’s interview about the three major Chinese telecommunications companies. I listened to his program while having a hot bath. They explained this very well, but the actual situation is more serious than what they said.
 
-三大电信的整个被除牌给美国开启一个除牌的标准，给全世界有了个除牌的标准，给下一步的脱钩和查封共产党的资产最重要的建立「了」一个标准和开「了」一个口子。以此往后类推，凡是共产党和军方有企业参加新疆大屠杀、香港大迫害「的」都会被干掉。那你告诉我哪个国有企业不掺和这个？那都是比它惨的。这种情况下在海外的共产党所有的资金和企业，欧洲、「包括」日本、美国的西方的这些盟国都在查找中。这就是最近7哥比较忙「的原因」。太多人问我这个企业是干嘛，那个企业干嘛的？
 
-The delisting of the three major telecommunications companies has set a standard for the United States and the world. It has set a standard, and an opening for decoupling and seizing CCP’s assets. Similarly, in the future, all companies owned by the CCP and PLA which were involved in the Xinjiang genocide and the great persecution in Hong Kong will be taken down. Then tell me, which state-owned enterprise was not involved in these affairs? They will suffer even worse than the three telecommunications companies. Under this situation, the overseas funds and enterprises owned by the CCP in Europe, Japan and the other Western allies of the US are all being investigated. This is why Brother Miles is so busy recently. Too many people are asking me what this company does, and what that company does.
 
-所以说现在，兄弟姐妹们，面临「是」个什么时刻？全世界正在睁开眼睛在了解中共啥样，咋回事啊？
 
-So now, brothers and sisters, what situation are we facing? The whole world is opening its eyes to understand what the CCP is truly like and what’s going on. So?
+我的左侧是SEC大门，这座大厦就叫American Express Tower. 此刻天空乌云密布,大厦左侧是哈德逊河。现在抗议队伍从大门移到了交叉路口的右侧,右侧位置有一条自行车道，后面是一系列大型名牌购物商店。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13202308/image_2021_05_13T20_48_00_678Z.png)
+今天天气阴凉，风速不大，但感觉还是比较阴冷。24位GTV的投资者整齐地站在自行车道边上，为了安全起见不能来回走动，避免影响来来回回骑车的人们，后面有个水泥的台阶，累的时候可以稍休息片刻，缓解一下长时间的站立。看，前面有辆骑自行车的从队伍前经过，车流经过的频率还是比较高的。同时还有跑步的人群在此经过。
 
-人家大嘴巴都扇过来了，是吧？然后还想：“哎呀，「是不是」搞误会了吧？还有这些人，「例如」巴西，现在说：“哇噻你打我脸了。”巴西总统还有种说：“这家伙可能是坏蛋。”「也只说了」可能是坏蛋，还「没」敢「太」确定。然后美国还有很多「心存」侥幸者。 在这种情况下只要开始动钱，美国人「是」有钱就睁眼睛，就抓住冲上去了，「叫嚷着」“我也要弄！”。最后开始查钱，「从」查清楚钱，到全世界找共产党钱，到全世界抢共产党的钱……这就七哥当初说的，为什么我说隔空取钱？「因为」共产党的钱「是」属于人民的钱，不能让西方这些贪婪的所谓的金融大鳄们给抢走，还依法抢走，那是不行的。这就是大家要明白的：最后共产党和共产党员在没有选择「的情况下」你「的」钱只有合法一个去处：喜联储，喜美元，喜币。不信走着瞧！最抢手的：G-TV股票 — 最抢手的！然后是盖特投资，G-News投资，G-Club！就这么简单，是吧？
+这二天，抗议者还是安静地按照要求合法地站立在SEC大厦门前，警察也没有来过，前方的主干道车水马龙，比较繁忙。鸣笛的、噪音非常大，前方还有几座比较高的大楼，对面是原世贸大厦原址，又建立一座高高的新世贸大厦。天空都是乌云，遮住了太阳，没有一丝阳光。示威队伍左边是一个交叉路口，现在的的车流量比疫情前少了很多，但依然还是很繁忙。SEC的对面也是几座高楼。
 
-The CCP has given the world a big slap in its face. And they are still thinking: “Isn’t it just a misunderstanding?” There are also people, for example in Brazil, who are now saying: “Wow, you slapped me in the face.” The Brazilian president had the guts to say, “This guy may be a bad guy.” He only said that the CCP might be a bad guy, he didn’t yet dare say: “For sure.” But still, many people in the US want to believe and take a chance with the CCP. When their allies begin to investigate and seize the CCP’s money, the Americans, as is always the case when they are faced with potential profit, will open their eyes, rush forward and grab the money, yelling: “I want the money too!” Finally, they will also begin to investigate the money, digging out the CCP’s money around the world and seizing it. That’s what Brother Miles said at the beginning. Why did I say “withdraw money from air”? This is because the CCP’s money belongs to the people. We cannot let those greedy financial crocodiles in the West snatch it away from us. And they can even snatch it away legally. We cannot allow this to happen. Everyone must understand: In the end, the CCP and CCP members will have no other choice. There is only one legal place for their money – the Himalaya Reserve, the Himalaya Dollar, and the Himalaya Coin. Don’t believe me? Just wait and see. The most sought-after assets will be G-TV stocks, followed by Getter investment, G-News Investment, and G-Clubs. It’s that simple, isn’t it?
+记者：今天终于等到了苍天先生，让苍天先生总结一下这段时间我们在SEC门前，从华盛顿DC开始到纽约SEC门前的抗议活动，为所有GTV投资者及观众们总结一下，谢谢！
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60968e7637f7f73984c93a90](https://gtv.org/getter/60968e7637f7f73984c93a90) (06:28-07:40, 07:52-08:02, 08:08-09:08)
-鸣谢：
-[1] 感谢Antsee-GTV、TING GUO、文惜和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)提供中文文本于[https://gnews.org/zh-hans/1199933/](https://gnews.org/zh-hans/1199933/)
-[2] 感谢YY、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)提供英文发翻译于[https://gnews.org/1222014/](https://gnews.org/1222014/)
+苍天先生：战友们好，自第一天华盛顿DC在SEC门前抗议活动，延续到纽约SEC门前抗议，GTV投资者已经坚持25天了，
 
-* * *
+这期间GTV投资者经历了天气像过山车一般，一会儿狂风骤雨、一会儿烈日炎炎，但是作为GTV的投资者，虽然在这恶劣的环境下，所有投资者坚定一个信念，从SEC那里找到我们的公道，找到我们所付出的所应得的回报，让SEC知道，我们GTV投资者维护正义、维护真理的勇气。
 
-整理校对 & 新闻撰写：【7PawBear（纽约香草山农场）】
-字幕：【JennyL】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】【Rock小哥】
-校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13202857/image_2021_05_13T20_47_44_835Z-1.png)
 
-+1
+
+
+
+
+我们的口号已表达了我们的诉求，披露SEC与中共政府的所有通讯往来；全额赔偿GTV投资者的全部损失；立即停止与中共的密谋；停止对投资者的歧视和迫害；立即停止渎职和官僚行为，上法庭解决问题。
+
+虽然我们抗议SEC暂时告一段落，可是我想告诉SEC的负责人，GTV投资者的抗争和诉求远远没有结束，他们一天不答应我们的要求，我们就不会结束。现在暂缓一段时间，随时我们会回来，只要SEC不答应，我们会坚持到底，直到最后SEC答应我们提出的诉求，还GTV投资者一个公道！
+
+记者：公道的答复就在等待当中，苍天先生的讲话代表了所有投资者的心声，千万GTV投资者就在背后，正在等待着前线的捷报频传，谢谢苍天先生，看见他在所有现场冲锋在前，健壮的体魄 ，中国男儿的形象，像一位保护神一样，保护着现场的投资者，谢谢他今天代表所有GTV投资者向SEC平静地表述了心声，谢谢！
+
+审核/发稿：悟空
+
+**更多资讯，更多关注**
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+
+
+
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

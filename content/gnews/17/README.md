@@ -1,57 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】灵活就业“补贴”陷阱来袭，揭社保基金告急？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1239710/)
+## 【NEWS EXPRESS】顶尖研究人员呼吁对covid-19的起源进行真正的调查
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1239848/)
 
-香草山写作组 鹰(文言)
+罗恩·雅各布森（Rowan Jacobsen）5月13日报道：
 
+一群著名的生物学家说，需要一个“安全空间”来询问冠状病毒是否来自实验室。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04221555/s2-2.jpg)
+现在，在《科学》杂志的一封信中，包括世界上最重要的冠状病毒研究人员在内的18位著名生物学家，正努力呼吁对这种病毒的所有可能来源进行新的调查，并呼吁中国实验室和机构“开放他们的实验室”。对记录进行独立分析。
 
+这封信是由斯坦福大学微生物学家戴维·雷尔曼（David Relman）和华盛顿大学病毒学家杰西·布鲁姆（Jesse Bloom）共同组织的。
 
-环球网5月13日转载中共人力资源和社会保障部消息，就业困难人员、毕业离校两年内未就业的高校生均可申领社会保险补贴。
+著名的哈佛大学流行病学家马克·利普西奇（Marc Lipsitch）是这封信的签字人之一。他说，直到最近他才对病毒的起源发表过看法，关于实验室理论的争论变得如此有争议。他说：“我之所以离开，是因为我忙于应对大流行的结果而不是起源。” “ 但是，当世界卫生组织发表一份报告，对一个重要主题提出似是而非的主张时……值得大声疾呼。”
 
-2020年8月中共推出“4050社保补贴新政”，针对2020年12月31日前符合4050标准的（年满45周岁女性、满55周岁的男性）灵活就业者，可获得一定数额的社会保险补贴。申领时间暂定为3年。就业补贴标准为“按灵活就业后缴纳的社会保险费，给予不超过2/3的补贴”，最低缴纳标准1000元/月（与职工养老保险和职工医疗保险缴纳标准较为类似）。根据2021年政府工作报告，灵活就业人数有近2亿人。就此估算，一年时间，即可为社保金注入2.4万亿资金。
-![https://inews.gtimg.com/newsapp_bt/0/12179327029/1000]()![https://inews.gtimg.com/newsapp_bt/0/12179327029/1000](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13200504/Screen-Shot-2021-05-13-at-8.04.21-PM.png)
-2017年，中共国务院印发《划转部分国有资本充实社保基金实施方案》统一划转企业国有股权的10%用以充实社保基金。截至2020年末，共有93家央企和金融机构共划转1.68万亿资金“入账”。虽然划转力度超前，资金规模巨大，但2021年3月“两会”期间中共社科院郑秉文在报告《关于向“资产型”养老金制度过渡的提案》中却提及，“目前全国社保基金只够支付全国5个月的养老金，规模太小”。
+过去，在签署这封信的人中，包括Lipsitch和Relman在内，都要求对“功能获得”研究进行更严格的审查，在这种研究中，对病毒进行了基因改造，使其更具感染力或毒性。在中国领先的蝙蝠病毒研究机构SARS-CoV-2的武汉病毒学研究所，正在进行病原体工程实验。有人认为，covid-19最初出现在实验室所在城市的事实，可以间接证明实验室事故可能是罪魁祸首。
 
-根据上述灵活就业人员的“补贴标准”，只有在缴纳社会保险后，才可申领其中2/3的款项，即其余的1/3相当于“充公”。，两亿人的灵活就业群体，可以每年为中共提供至少0.8万亿的“活资”。相较于三年1.68万亿国有资本，灵活就业人员补贴无论是规模上还是调度灵活性上，无疑更适合填补漏洞。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13200656/Screen-Shot-2021-05-13-at-8.04.17-PM.png)
-综上，中共以发放补贴为名义进行的社保缴费，实质是征收1/3的缴费，以避免社保基金的脱节和爆雷。这一“以新抵旧”的庞氏骗局，是对人民财富的再掠夺。政府基本职能缺失，还变本加厉的剥削底层民众。中共奴役人民、愚弄百姓的本质，并未随着国际追责形势的加剧及国内经济下行、社会矛盾多发有丝毫改变。墙内民众为了享有“天赋人权”和保命保财保利益，唯有彻底铲除中共政权。
+这封信呼应了一些早先呼吁进行调查的担忧，该呼吁是由26位政策分析师和科学家在《华尔街日报》上发表的，他们要求对武汉实验室进行更多审查，并指出“ [WHO]团队应该在没有被授权情况下，独立或必要的访问权”以进行全面且不受限制的调查。
 
-新闻来源：
+但是该团体主要由局外人组成，一些知名的病毒学家以其签署者缺乏适当专业知识为由而驳回了这封信。斯克里普斯研究所的免疫学家和病毒专家克里斯蒂安·安德森（Kristian Andersen）在推特中说： “很难找到有相关经验的人签名。”
 
-灵活就业人员如何领取社保补贴？看了这篇就明白https://china.huanqiu.com/article/436Wbr1RzuC
+这封新信签署人包括耶鲁大学免疫学家岩崎明子（Akiko Iwasaki），他率领了有关免疫系统对SARS-CoV-2应答的研究，以及北卡罗来纳大学病毒学家拉尔夫·巴里奇（Ralph Baric）。世界上最重要的冠状病毒权威，并且他率先对这些病毒进行了基因操纵技术，这成为武汉病毒学研究所的主要研究方向。
 
-2020年4050社保补贴新政策https://new.qq.com/omn/20200827/20200827A0HOPN00.html?pc
+参考链接：
 
-2021年灵活就业人员社保补贴来啦！2个时间点很关键，给力！https://new.qq.com/omn/20210418/20210418A00CCN00.html
+[https://www.technologyreview.com/2021/05/13/1024866/investigation-covid-origin-wuhan-china-lab-biologists-letter/](https://www.technologyreview.com/2021/05/13/1024866/investigation-covid-origin-wuhan-china-lab-biologists-letter/)
 
-中央层面划转部分国资充实社保基金完成 共划转国有资本总额1.68万亿元http://www.gov.cn/xinwen/2021-01/13/content\_5579333.htm
+图片来源：[https://www.technologyreview.com](https://www.technologyreview.com/2021/05/13/1024866/investigation-covid-origin-wuhan-china-lab-biologists-letter/)
 
-养老金制度将收不抵支 委员这样建议https://news.sina.com.cn/c/2021-03-06/doc-ikknscsh8738981.shtml
+整理撰稿：蓝精灵
 
-关乎你我的养老与社保问题！两会上人大代表提出了这些保险提案https://new.qq.com/omn/20210312/20210312A0E7SO00.html
+校对发布：Penny
 
-社保将迎来6项新调整！政策出台时间表明确http://finance.cnr.cn/gundong/20210327/t20210327\_525447298.shtml
-
-编辑/审核/发稿：正义的小新
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0
