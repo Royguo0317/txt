@@ -1,165 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “中共病毒起源法”全文翻译
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1242664/)
+## 喜美元账户-一个无界的全球银行账户
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1242742/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+【日本东京方舟农场】  作者：MIMI  校对：miumiu law
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14125629/W-1.jpg)activistpost.com
-昨天（5月13日）笔者发文，报道了众议员加拉赫（Gallagher）等14位众议员提出议案，迫使拜登解密中共病毒的情报”【1】，该议案名称为“中共病毒起源法”（COVID-19 Origin Act）【2】，现将提案原稿翻译，供战友参考分享。
+这几天讨论最多的话题就是KYC了。真是几家欢乐几家愁，有的战友短短一周不到的时间不仅通过了KYC,而且还汇了款，重要的是汇的款已经入账HDO。真是有一种人生赢家的气势。当然这样的战友还是少数的，绝大部分的战友还是处于“pending”状态，大家还等待着审核。所以现阶段“pending”状态还是普遍现象，随着时间往后推移，相信大部分战友都会逐步转为“已批准状态”。现在处于“pending”状态的战友千万不要着急，该吃吃该喝喝，时间到了就会过了。哪怕到了截至时间，还有联盟代购代持方案兜底，不会有什么损失的。
 
-议案
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14133935/22C76F56-9184-457B-BEE2-5ED4428DC2D8.jpeg)
 
-要求国家情报委员会总监解密与中共病毒（COVID–19）起源的有关情报，以及用于其他目的。要由美国的参议院和众议院在国会通过。
+这个是个题外话，今天的重点是喜美元账户。
 
-第1节 简称
+**Transferwise**
 
-本法案可被称为“2021年中共病毒（COVID–19）起源法”。
+讲喜美元账户之前，我先介绍一下TransferWise（以下简称“Wise”）。Wise是一家专做全球跨境转账的金融公司。他的最大特点是全球汇款费用低廉、手续非常方便。另外可以在全球各地开设当地的账户用来收款及汇款（不同国家的用户根据当地法律允许开设的账户会有不同）。
 
-第2节 调查结论
+说到全球汇款，我们大部分投资G系列都是通过当地银行电汇来完成的，银行电汇费用昂贵、很多银行还需要你好好的对这笔汇款进行说明、如果不是美元账户，还存在着不小的汇率差问题、更严重者还有被账户冻结、关户的情况，咋们投资G系列的战友们这都是亲身经历的。所以每次有G系列投资方面需要汇款，很多战友都是抱着去战斗的心情去操作的，随时准备牺牲掉自己的帐号，特别是墙内的战友，每个境外帐号都是来之不易的。
 
-国会得出以下结论：
+这钱是我们合法所得，怎么支配应该是我自己说的算，银行只是我们暂时存放钱的地方。现在却本末倒置了，这个钱变成银行说了算，他以为你账户安全着想为由，掌握着你资金的进出。我们转账自己的钱还要和他们做各种解释，实在太令人费解了。
 
-（1）国务院于2021年1月15日发布了一份关于武汉病毒研究所（WIV）的情况介绍，内容如下：
-（A） “美国政府有理由相信，在疫情爆发的第一个确诊病例之前，武汉病毒研究所内的几名研究人员在2019年秋季发病，症状与中共病毒和常见季节性疾病一致。”
-（B） “武汉病毒研究所研究人员进行了涉及RaTG13的实验，RaTG13是武汉病毒研究所在2020年1月发现的最接近中共病毒（SARS-CoV-2）的蝙蝠冠状病毒。”
-（C） “尽管武汉病毒研究所自称是一个民间机构，但美国已经认定武汉病毒研究所与中共军方在出版物和秘密项目等方面进行了合作。”
+其实不仅是我们投资G系列，很多人或多或少也会有银行汇款费用过高、跨境电汇过于繁琐及不自由等诸多问题，在这样的背景下Wise应运而生，解决了很多人这样的困惑。现在很多年轻人跨境电汇会优先选择Wise。它跨境电汇的费用比传统银行的费用便宜80%左右，而且操作相当方便。另外由于它本身的运营机制关系，它各国货币的转换汇率是根据网络银行汇率，这样的汇率比传统银行要好很多，也减少很多汇率差，从而降低了我们跨境转账的成本。
 
-（2）疾病预防控制中心（CDC）前主任罗伯特·雷德菲尔德（Robert Redfield）在2021年3月表示，“武汉的病原体最有可能来自实验室”，并指出，“实验室里（出现）呼吸道病原体感染实验室工作人员的情况并不罕见。”
+这些都是Wise的各种优点，虽说Wise的公司的属性是金融公司，其实从本质来看Wise公司相当于就是一家银行了。我们在Wise中开设的账户其实就等同于银行账户。迄今为止，Wise的业务内容为国际转账，各国开设当地银行账户，还在某几个国家发行了他们和万事达合作的Debitcard等。
 
-（3）世界卫生组织总干事谭德塞在2021年3月承认，2019年中共毒病（COVID–19）可能起源于实验室，并表示这一假设“需要进一步调查，可能需要专家参与额外的任务。”
+**喜美元账户**
 
-第3节 国会意识
+纵观Wise，来看我们的喜美元账户。我觉得现有Wise有的功能，我们喜美元账户都会有，当然我们的喜美元账户以后还会有更多很多Wise所没有的功能。
 
-国会认为—
+通过之前介绍的Wise，我确信KYC后的喜美元账户就等于一个无界的全球银行账户，这个账户里面会有对应全球各种货币的账户，比如喜英镑、喜日币、喜澳元等。Wise是从跨境汇款起家的，它手续费便宜、汇率价格好的重要原因是把全球有换汇需求的人聚集在这个平台中，然后把这些外汇按照不同人的需求，做配对组合。这样减去了当中很多费用。
 
-（1） 确定2019年中共病毒疫情（COVID–19）的起源对于防止未来发生类似的疫情至关重要；
+Wise是以各国法定货币的基础上做各种业务，虽说我们在账户中叫喜美元、喜英镑、喜日元，大家注意，这些前面都加了个“喜”字，也就是说是我们喜系列的货币，根据不同国家货币的汇率，设置对应不同汇率的代币。我们面向的是全球的用户，如果仅用美元作为计价汇率，会产生很多问题。因此根据各国的汇率对应各自的代币，这样的设计让每个国家的人都能无缝隙更直观的使用，而且在后续换相应法定货币的时候也更方便。这样的代币在整个系统内有足够的自由度，只要不换成额各国法币，就不需要受限于各国的法律及限制。
 
-（2） 有理由相信中共病毒疫情可能起源于武汉病毒研究所；以及
+由于Wise的客户大多数是跨境转账居多，所以客户普遍不会把大额资金存入里面。我们的喜美元账户则不同，后续全方位联动各种投资、gfashion、gclub、gmall、gpay，生活中的衣食住行都涉及全面了。这样我们就会更愿意把资金放在喜美元账户里，因为资金在里面不但囊括了生活全方面的需要，且还有增值项目。另外如果增值的资金换成法定货币，还会产生不小的税收。
 
-（3） 国家情报委员会总监应该解密并向公众提供尽可能多的关于中共病毒起源的信息，以便美国和有相同想法的国家能够—
-（A） 尽快确定中共病毒的来源，以及
-（B） 利用这些信息采取一切适当措施，防止类似疫情的再次发生。
+因为大家都是在一个系统里，所以系统里转账几乎是无费用的秒速进行。对于外部的银行账户的话，可以换成法定货币后，转账至任何指定账户。
 
-第4节 解密与中共病毒起源相关的信息
+**喜币、喜****pay****、喜交易所**
 
-国家情报委员会总监应在本法颁布之日后90天内—
+喜币因为是数字货币，没有内部和外部之分了，只要对方有数字货币钱包，都可以随时随地的划转过去。我在想会不会以后的喜美元也可以加入数字钱包的一个分类，那么也不需要传统的银行电汇，直接把喜美元像喜币那样转到数字货币钱包里，可以通过和万事达合作，根据和美元1：1结算，直接消费了。这样下去，银行的转账业务、纸质货币都会消失。以后的货币转账速度就是秒到每个人的电子钱包，费用也是极低的。
 
-（1）解密任何与武汉病毒研究所和2019年中共病毒起源之间有潜在联系的相关信息，包括-
-（A）武汉病毒研究所与中共军队或代表中共军队开展的活动；
-（B）在中共病毒爆发之前，在武汉病毒研究所进行的中共病毒研究或其他相关活动；以及
-（C）武汉病毒学研究所2019年秋季患病的研究人员，包括任何此类研究人员—
-（i）研究人员姓名；
-（ii）研究人员的症状；
-（iii）研究人员出现症状的日期；
-（iv）研究人员在武汉病毒研究所的作用；
-（v）研究人员是否参与或接触过武汉病毒研究所的中共病毒研究；
-（vi）研究人员患病期间是否到医院就诊；以及
-（vii）研究人员采取的任何其他行动的说明，可能表明他们当时正在经历严重疾病；以及
+然后咱们的喜pay就是电子钱包，装着咱们的资产，喜美元、喜英镑、喜日元、喜币等等，可以用来消费。
 
-（2）向国会提交一份非机密报告，包含-
-（A）第（1）款所述的所有信息；以及
-（B）只有情报总监认为有必要的修订，以保护资料来源和途径，而不能以任何方式更改或模糊第款（1）所述的信息。
+喜交易所app就是咱们随身携带全方位服务企业，搭载着各式各样的功能。具体可能有哪些我们后续探讨。
 
-记住这些众议员，全部来自共和党：
-法案起草人，威斯康星州众议员迈克·加拉赫（Mike Gallagher）
-法案共同签署人：
-宾夕法尼亚州众议员盖·雷申塔勒（Guy Reschenthaler）；
-北卡莱罗纳州众议员丹·毕晓普（Dan Bishop）；
-密苏里州众议员杰森·史密斯（Jason Smith）；
-南达科他州众议员达斯蒂·约翰逊（Dusty Johnson）；
-加利福尼亚州众议员斯科特·佩里（Scott Perry）；
-南卡莱罗纳州众议员汤姆·赖斯（Tom Rice）；
-德克萨斯州众议员布莱恩·巴宾（Brian Babin）；
-佛罗里达州众议员约翰·卢瑟福（John Rutherford）；
-亚利桑那州众议员保罗·戈萨（Paul Gosar）；
-俄亥俄州众议员鲍勃·吉布斯（Bob Gibbs）；
-佛罗里达州众议员丹尼尔·韦伯斯特（Daniel Webster）；
-北卡莱罗纳州众议员麦迪逊·卡顿（Madison Cawthorn）；
-佐治亚州众议员乔迪·希斯（Jody Hice）
+随着喜美元、喜币的上市，我们会跟随这个数字时代的脚步，见证历史上这翻天覆地的变化！！！
 
-有关链接：
-
-【1】https://gnews.org/zh-hans/1240192/
-
-【2】
-
-          (function() { var scribd = document.createElement("script"); scribd.type = "text/javascript"; scribd.async = true; scribd.src = "https://www.scribd.com/javascripts/embed\_code/inject.js"; var s = document.getElementsByTagName("script")[0]; s.parentNode.insertBefore(scribd, s); })()        
-
-文字整理：
-
-A BILL
-
-To require the Director of National Intelligence to declassify information relating to the origin of COVID–19, and for other purposes.
-
-Be it enacted by the Senate and House of Representatives of the United States of America in Congress assembled,
-
-SECTION 1. SHORT TITLE.
-
-This Act may be cited as the ‘‘COVID–19 Origin Act of 2021’’.
-
-SEC. 2. FINDINGS.
-
-Congress makes the following findings:
-
-(1) The Department of State released a fact sheet on January 15, 2021, about the Wuhan Institute of Virology (WIV) which stated the following:
-
-(A) ‘‘The U.S. government has reason to believe that several researchers inside the WIV became sick in autumn 2019, before the first identified case of the outbreak, with symptoms consistent with both COVID–19 and common seasonal illnesses.’’.
-
-(B) ‘‘WIV researchers conducted experiments involving RaTG13, the bat coronavirus identified by the WIV in January 2020 as its closest sample to SARS-CoV-2.’’.
-
-(C) ‘‘Despite the WIV presenting itself as a civilian institution, the United States has determined that the WIV has collaborated on publications and secret projects with China’s military.’’.
-
-(2) Former Director of the Centers for Disease Control and Prevention, Robert Redfield, stated in March 2021 that, ‘‘the most likely etiology of this pathogen in Wuhan was from a laboratory’’ and noted that, ‘‘[i]t is not unusual for respiratory pathogens that are being worked on in a laboratory to infect the laboratory worker.’’.
-
-(3) Director-General of the World Health Organization Tedros Adhanom Ghebreyesus acknowledged in March 2021 that the Coronavirus Disease 2019 (COVID–19) may have originated in a laboratory and said this hypothesis ‘‘requires further investigation, potentially with additional missions involving specialist experts.’’.
-
-SEC. 3. SENSE OF CONGRESS.
-
-It is the sense of Congress that—
-
-(1) identifying the origin of Coronavirus Disease 2019 (COVID–19) is critical for preventing a similar pandemic from occurring in the future;
-
-(2) there is reason to believe the COVID–19 pandemic may have originated at the Wuhan Institute of Virology; and
-
-(3) the Director of National Intelligence should declassify and make available to the public as much information as possible about the origin of COVID–19 so the United States and like-minded countries can—
-
-(A) identify the origin of COVID–19 as expeditiously as possible, and
-
-(B) use that information to take all appropriate measures to prevent a similar pandemic from occurring again.
-
-SEC. 4. DECLASSIFICATION OF INFORMATION RELATED TO THE ORIGIN OF COVID–19.
-
-Not later than 90 days after the date of the enactment of this Act, the Director of National Intelligence shall—
-
-(1) declassify any and all information relating to potential links between the Wuhan Institute of Virology and the origin of the Coronavirus Disease 2019 (COVID–19), including—
-
-(A) activities performed by the Wuhan Institute of Virology with or on behalf of the People’s Liberation Army;
-
-(B) coronavirus research or other related activities performed at the Wuhan Institute of Virology prior to the outbreak of COVID–19; and
-
-(C) researchers at the Wuhan Institute of Virology who fell ill in autumn 2019, including for any such researcher—
-
-(i) the researcher’s name;
-
-(ii) the researcher’s symptoms;
-
-(iii) the date of the onset of the researcher’s symptoms;
-
-(iv) the researcher’s role at the Wuhan Institute of Virology;
-
-(v) whether the researcher was involved with or exposed to coronavirus research at the Wuhan Institute of Virology;
-
-(vi) whether the researcher visited a hospital while they were ill; and
-
-(vii) a description of any other actions taken by the researcher that may suggest they were experiencing a serious illness at the time; and
-
-(2) submit to Congress an unclassified report that contains—
-
-(A) all of the information described under paragraph (1); and
-
-(B) only such redactions as the Director determines necessary to protect sources and methods without altering or obscuring in any way the information described under paragraph (1).
+注：文章仅代表作者观点
 
 0

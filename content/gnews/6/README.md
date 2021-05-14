@@ -1,33 +1,165 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕】5/14/2021文贵盖特：呼吁所有的买G-Club的战友以最快的时间到你的农场对账
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1242637/)
+## “中共病毒起源法”全文翻译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1242664/)
 
-制作： 【彩虹桥】
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14125629/W-1.jpg)activistpost.com
+昨天（5月13日）笔者发文，报道了众议员加拉赫（Gallagher）等14位众议员提出议案，迫使拜登解密中共病毒的情报”【1】，该议案名称为“中共病毒起源法”（COVID-19 Origin Act）【2】，现将提案原稿翻译，供战友参考分享。
 
+议案
 
-5月14号，兄弟姐妹们，真快啊，真快啊，过去这几天大家看到了这个世界的变化，昨天下午的时候，大陆的凌晨的时候，我和一个老朋友通电话，很难过，闺女留学呢，说你看这闺女留学，闺女的男朋友在日本留学，没去美国，已经是到了日本入境了，被日本给撵回来了，无理由，他说日本以前也没公布啊，不欢迎咱们体制内的孩子去呀，就给你撵回来了，结果是他女婿回来，就是女儿的男朋友说，不是一个两个，是很多个都拒绝入境，无理由给撵来了，这是很生气，看来日本在默默的干这个事儿，跟着美国。
+要求国家情报委员会总监解密与中共病毒（COVID–19）起源的有关情报，以及用于其他目的。要由美国的参议院和众议院在国会通过。
 
-闺女就更惨了，是吧，她必须签证，一签证到那以后，就是你爸爸是公安，离开，给我说的时候很难受，老伴儿心脏病也犯了，是吧，说我们也没干坏事儿，我们就是吃碗饭，干工作，我就给他说，我跟你认识那么多年，也没让你做过什么，就是帮过几个我们的战友被抓了以后，你就是善待了一下，我们都把你当恩人，多长时间了，直播中我们都说，对吧，不要让你的孩子回国了，你把学上完，有必要的情况下，你也做一点妥善的准备，都是侥幸心理，傲慢的心理吧，觉得共产党没人敢惹，没人敢拒绝，结果是什么？那没办法，天老爷也帮不了你。
+第1节 简称
 
-这样的事情这几天发生太多了，我就是告诉所有的国内战友们，不要抱有任何侥幸心里，不要抱有任何侥幸心理。我曾经的一个中东的好哥们儿，我在两年前我告诉过他，将近三年了，这是2018年的时候，我说如果你惹了美国，我说美国就可以在任何地点，任何时间，用他喜欢的方式，就像切在砧板上的肉一样，说切你左腿，不切你右腿，说切你前面，不切你后面，他不相信那，最后他看到了在伊拉克的伊朗的首领，巴勒斯坦…他看到，他懵了，我说你跟世界上谁作对，不要跟美国人作对，这是全人类都知道道理，他是全人类精英和技术，包括杀手云集的地方，你想干啥了，是吧？
+本法案可被称为“2021年中共病毒（COVID–19）起源法”。
 
-那么我昨天我告诉国内那个战友，我说你信不信，你看到的，你担心的事情会发生在你们身上，他半天不语，他说：我信，我说我没有任何心情，没有任何欲望，想让你害怕，我没有必要。我说过有一天，我说共产党作到时候，到那个点的时候，，我说美国人和联军对付你们，就像现在中东和在伊拉克，一模一样，比这还夸张。我在这之前，在华盛顿见过一个军方的人士，我问他，如果有一天你们在中共国…中共国打台湾了，或中共国对你们造成了实质的威胁，开战的时候，你们会做什么？他毫不犹豫的说，第一个斩首。他说：我们第一个就斩首。谁在我们的前方，我们就斩谁，就斩首。
+第2节 调查结论
 
-然后这个斩首行动一定是在北京，上海，以及而在中共的几大军区开始，这是他原话，他说：我们的斩首绝对不会像你们看到的，现在所知道的，那时候还没有伊拉克这个事情。他说：是超出你想象，我在英国曾经见过以色列的，这些马赛得军方技术人员，我也曾经到了就看过他们那些演示，多年前他都有比这更高的技术了，例如我给大家说一个，就大家都说的那个苍蝇一样，像蚊子一样的那个炸弹，那都没用，事实上比那夸张的多得多，他们要想使坏招儿，要像共产党那么没底线，那可比这厉害太多了。
+国会得出以下结论：
 
-我想说什么？我昨天告诉国内的那位战友，你在国内打非工，共产党的99%都是好人，但别作恶，像最近几天我们很多战友被抓捕，原因是什么？所有的VOG的汇款者，几乎百分之百抓的都是VOG的汇款者，在现场把战友给按住，打一顿，威胁一顿，包括绑架了战友在国内的孩子，还有老人，威胁。在过去这两天，美国的Chase bank，还有一些打官司的公司,做了一系列的恶事，非法的提供的战友的信息，而且很多战友用信息之后，这些战友的家人迅速的被抓，被威胁，造成了重大的伤害，而且咱们战友给我发信息说，哭声一片，这是VOG，还有断修魏，九指妖做的恶，在美国的法律框架内一定会给她清算的。
+（1）国务院于2021年1月15日发布了一份关于武汉病毒研究所（WIV）的情况介绍，内容如下：
+（A） “美国政府有理由相信，在疫情爆发的第一个确诊病例之前，武汉病毒研究所内的几名研究人员在2019年秋季发病，症状与中共病毒和常见季节性疾病一致。”
+（B） “武汉病毒研究所研究人员进行了涉及RaTG13的实验，RaTG13是武汉病毒研究所在2020年1月发现的最接近中共病毒（SARS-CoV-2）的蝙蝠冠状病毒。”
+（C） “尽管武汉病毒研究所自称是一个民间机构，但美国已经认定武汉病毒研究所与中共军方在出版物和秘密项目等方面进行了合作。”
 
-不但如此，学生未来上学，我在2017年年底，2018年年底，七哥最早说出来，这些体制内的孩子是无辜的，我完全反对美国对这些人孩子的作为，我完全反对。这几天很多美国朋友问我，我说：这些做法跟共产党没什么两样的，我非常发对他，这些孩子是无辜的，我说：你有本事，让孩子变为一个爱好民主自由的人，甚至你给他一个选择，是吧？你在美国你去读书，但是你必须反共产党，反共产主义。你这叫聪明，我们正在努力，我希望我们所有的战友，不要幸灾乐祸，这些在共产党体制内人的孩子，他们是无辜的，他们就是家人…他爹他妈选择什么，不是孩子的选择，他还在肚子里的时候，甚至还没有到人间的时候，他爸妈已经敢那份工作了，他是无辜的，为什么这样？
+（2）疾病预防控制中心（CDC）前主任罗伯特·雷德菲尔德（Robert Redfield）在2021年3月表示，“武汉的病原体最有可能来自实验室”，并指出，“实验室里（出现）呼吸道病原体感染实验室工作人员的情况并不罕见。”
 
-我们任何人都不能广泛的所谓宣传共产党的公安、公检法、纪委的孩子被被拒绝，这不是好事儿。我们必须有这个胸怀，容得下这9000万党员所有人的孩子和家人，如果容不下的话，你不叫新中国联邦，你叫新中国流氓帮。这就是为什么我这两天一再告诉所有战友们，一定要包容，看到我们的孩子哭泣的时候，他们的孩子哭泣也是无辜的。如果有罪应该在法庭上说，而不是全面的无差别的打击，这是不对的。就像现在新型的武器，为什么定点打击呀？因为只打那个坏的，不要打那个坐后面的，这是现代的科技和文明。你现在不能把共产党全部拉入这样，这绝对是错误的，不要伤害无辜，何况那是我们的血肉，我们的同胞呢？
+（3）世界卫生组织总干事谭德塞在2021年3月承认，2019年中共毒病（COVID–19）可能起源于实验室，并表示这一假设“需要进一步调查，可能需要专家参与额外的任务。”
 
-再一个另外我想说经济领域。现在国内的很多战友听了话的把钱转出来了，你牛了，你懂啥意思。现在你不听话的，你想转出来，可能吗？你转出来你家人将被抓。过去是，你转出来就转出来了，就无所谓了。现在是听说有大钱转，要抓家人，共产党这种流氓手段，咱要对付的是共产党这个流氓体制。
+第3节 国会意识
 
-包括这几天战友们买G-Club的，所有买G-Club的战友们，我求求你们以最快的时间，跟各农场联系汇款的问题。我们有几千万上亿的钱，找不着汇款的人。6月4号有重大活动，有重大决定，7月4号有重大礼物送给大家。如果你不把这个账对完，你将失去，绝对失去所有得到这个重大礼物和重大机会的机会。我求求兄弟姐妹们了，一定要跟各农场联系，不要失去你这个重大的机会，所有买G-Club的会员的利益，是应该得到保障的。你不去对账怎么给你卡？你不对到卡，你怎么能有利益呢？拜托了，争分夺秒，兄弟姐妹们。七哥有些话现在不能说，你们都懂的，赶快和各农场联系。
+国会认为—
 
-还有国内的战友不要再抱任何侥幸心理，国外的战友，不要把国内的这些孩子无辜的孩子所谓拒签，幸灾乐祸，更不能有这种丑恶的阴暗心理，把所有的中国人都当为敌人。像那个欺民贼，伪类，恨所有的中国人，这是无知、loser、懦弱无知、邪恶的表现。更重要的兄弟姐妹们，我们要强大，我们强大是对付敌人最好的办法，而不是天天看着别人倒下来。不能有这种病态的心理，好吧，兄弟姐妹们？谢谢！谢谢！快快对账，快快对账！
+（1） 确定2019年中共病毒疫情（COVID–19）的起源对于防止未来发生类似的疫情至关重要；
+
+（2） 有理由相信中共病毒疫情可能起源于武汉病毒研究所；以及
+
+（3） 国家情报委员会总监应该解密并向公众提供尽可能多的关于中共病毒起源的信息，以便美国和有相同想法的国家能够—
+（A） 尽快确定中共病毒的来源，以及
+（B） 利用这些信息采取一切适当措施，防止类似疫情的再次发生。
+
+第4节 解密与中共病毒起源相关的信息
+
+国家情报委员会总监应在本法颁布之日后90天内—
+
+（1）解密任何与武汉病毒研究所和2019年中共病毒起源之间有潜在联系的相关信息，包括-
+（A）武汉病毒研究所与中共军队或代表中共军队开展的活动；
+（B）在中共病毒爆发之前，在武汉病毒研究所进行的中共病毒研究或其他相关活动；以及
+（C）武汉病毒学研究所2019年秋季患病的研究人员，包括任何此类研究人员—
+（i）研究人员姓名；
+（ii）研究人员的症状；
+（iii）研究人员出现症状的日期；
+（iv）研究人员在武汉病毒研究所的作用；
+（v）研究人员是否参与或接触过武汉病毒研究所的中共病毒研究；
+（vi）研究人员患病期间是否到医院就诊；以及
+（vii）研究人员采取的任何其他行动的说明，可能表明他们当时正在经历严重疾病；以及
+
+（2）向国会提交一份非机密报告，包含-
+（A）第（1）款所述的所有信息；以及
+（B）只有情报总监认为有必要的修订，以保护资料来源和途径，而不能以任何方式更改或模糊第款（1）所述的信息。
+
+记住这些众议员，全部来自共和党：
+法案起草人，威斯康星州众议员迈克·加拉赫（Mike Gallagher）
+法案共同签署人：
+宾夕法尼亚州众议员盖·雷申塔勒（Guy Reschenthaler）；
+北卡莱罗纳州众议员丹·毕晓普（Dan Bishop）；
+密苏里州众议员杰森·史密斯（Jason Smith）；
+南达科他州众议员达斯蒂·约翰逊（Dusty Johnson）；
+加利福尼亚州众议员斯科特·佩里（Scott Perry）；
+南卡莱罗纳州众议员汤姆·赖斯（Tom Rice）；
+德克萨斯州众议员布莱恩·巴宾（Brian Babin）；
+佛罗里达州众议员约翰·卢瑟福（John Rutherford）；
+亚利桑那州众议员保罗·戈萨（Paul Gosar）；
+俄亥俄州众议员鲍勃·吉布斯（Bob Gibbs）；
+佛罗里达州众议员丹尼尔·韦伯斯特（Daniel Webster）；
+北卡莱罗纳州众议员麦迪逊·卡顿（Madison Cawthorn）；
+佐治亚州众议员乔迪·希斯（Jody Hice）
+
+有关链接：
+
+【1】https://gnews.org/zh-hans/1240192/
+
+【2】
+
+          (function() { var scribd = document.createElement("script"); scribd.type = "text/javascript"; scribd.async = true; scribd.src = "https://www.scribd.com/javascripts/embed\_code/inject.js"; var s = document.getElementsByTagName("script")[0]; s.parentNode.insertBefore(scribd, s); })()        
+
+文字整理：
+
+A BILL
+
+To require the Director of National Intelligence to declassify information relating to the origin of COVID–19, and for other purposes.
+
+Be it enacted by the Senate and House of Representatives of the United States of America in Congress assembled,
+
+SECTION 1. SHORT TITLE.
+
+This Act may be cited as the ‘‘COVID–19 Origin Act of 2021’’.
+
+SEC. 2. FINDINGS.
+
+Congress makes the following findings:
+
+(1) The Department of State released a fact sheet on January 15, 2021, about the Wuhan Institute of Virology (WIV) which stated the following:
+
+(A) ‘‘The U.S. government has reason to believe that several researchers inside the WIV became sick in autumn 2019, before the first identified case of the outbreak, with symptoms consistent with both COVID–19 and common seasonal illnesses.’’.
+
+(B) ‘‘WIV researchers conducted experiments involving RaTG13, the bat coronavirus identified by the WIV in January 2020 as its closest sample to SARS-CoV-2.’’.
+
+(C) ‘‘Despite the WIV presenting itself as a civilian institution, the United States has determined that the WIV has collaborated on publications and secret projects with China’s military.’’.
+
+(2) Former Director of the Centers for Disease Control and Prevention, Robert Redfield, stated in March 2021 that, ‘‘the most likely etiology of this pathogen in Wuhan was from a laboratory’’ and noted that, ‘‘[i]t is not unusual for respiratory pathogens that are being worked on in a laboratory to infect the laboratory worker.’’.
+
+(3) Director-General of the World Health Organization Tedros Adhanom Ghebreyesus acknowledged in March 2021 that the Coronavirus Disease 2019 (COVID–19) may have originated in a laboratory and said this hypothesis ‘‘requires further investigation, potentially with additional missions involving specialist experts.’’.
+
+SEC. 3. SENSE OF CONGRESS.
+
+It is the sense of Congress that—
+
+(1) identifying the origin of Coronavirus Disease 2019 (COVID–19) is critical for preventing a similar pandemic from occurring in the future;
+
+(2) there is reason to believe the COVID–19 pandemic may have originated at the Wuhan Institute of Virology; and
+
+(3) the Director of National Intelligence should declassify and make available to the public as much information as possible about the origin of COVID–19 so the United States and like-minded countries can—
+
+(A) identify the origin of COVID–19 as expeditiously as possible, and
+
+(B) use that information to take all appropriate measures to prevent a similar pandemic from occurring again.
+
+SEC. 4. DECLASSIFICATION OF INFORMATION RELATED TO THE ORIGIN OF COVID–19.
+
+Not later than 90 days after the date of the enactment of this Act, the Director of National Intelligence shall—
+
+(1) declassify any and all information relating to potential links between the Wuhan Institute of Virology and the origin of the Coronavirus Disease 2019 (COVID–19), including—
+
+(A) activities performed by the Wuhan Institute of Virology with or on behalf of the People’s Liberation Army;
+
+(B) coronavirus research or other related activities performed at the Wuhan Institute of Virology prior to the outbreak of COVID–19; and
+
+(C) researchers at the Wuhan Institute of Virology who fell ill in autumn 2019, including for any such researcher—
+
+(i) the researcher’s name;
+
+(ii) the researcher’s symptoms;
+
+(iii) the date of the onset of the researcher’s symptoms;
+
+(iv) the researcher’s role at the Wuhan Institute of Virology;
+
+(v) whether the researcher was involved with or exposed to coronavirus research at the Wuhan Institute of Virology;
+
+(vi) whether the researcher visited a hospital while they were ill; and
+
+(vii) a description of any other actions taken by the researcher that may suggest they were experiencing a serious illness at the time; and
+
+(2) submit to Congress an unclassified report that contains—
+
+(A) all of the information described under paragraph (1); and
+
+(B) only such redactions as the Director determines necessary to protect sources and methods without altering or obscuring in any way the information described under paragraph (1).
 
 0
