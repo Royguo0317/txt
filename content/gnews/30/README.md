@@ -1,19 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 图片三
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1230314/)
+## 《澳喜伐共檄》
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1240729/)
 
-澳洲墨尔本雅典娜农场 – 姐夫说说
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12090526/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E4%B8%80%E5%91%A8%E5%B9%B4-1-scaled.jpg)
-#### 新中国联邦成立一周年（1）
+澳喜农场 – 像我们这样的人
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12090717/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E4%B8%80%E5%91%A8%E5%B9%B42-3-scaled.jpg)
-#### 新中国联邦成立一周年（2）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13232400/111-17.jpg)图片来自网络
+“亲爱的兄弟姐妹们，你们健身了吗？你们传播香港危机、CCP病毒真相了吗？”
 
+共产邪灵生欧陆，共产共妻无私物。
 
+俄奸列宁践暴力，五千马克灭皇戚。
 
+创建邪恶共产党，无视生命与伦常。
+
+银行劫匪斯大林，肃反屠夫无神论。
+
+党国体制干大事，清洗残暴遮月日。
+
+古今狂魔毛贼东，始皇纳粹与俄共。
+
+长征坐大假抗日，窃国愚民“新中国”。
+
+反复运动大革命，饿殍遍野无人应。
+
+小平猫论趟过河，权贵资本巧豪夺。
+
+六四民主血腥杀，一国两制骗天涯。
+
+新疆西藏法轮功，种族灭绝熟能容？！
+
+弯道快车超限战，中共病毒虐人间。
+
+霹雳一声 1 1 9 ，天使下凡救地球。
+
+战神文贵一声吼，全球战友齐抖擞！
+
+喜马拉雅特战旅，社交媒体争话语。
+
+口诛笔伐醒世人，奔走呼号天下闻。
+
+联美联欧联日印，全球灭共一条心。
+
+日拱一卒背靠背，驱邪逐恶卫人类！
+
+行动！行动！行动！
+
+CCP 你完啦！
+
+参考文献：《德教云书院》
+
+(作品仅代表个人观点)
+
+*审稿：白雪  发稿：MG1*
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews.org/wp-content/uploads/2021/05/1-澳喜Logo-2.jpeg)
 0
