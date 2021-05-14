@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 展望喜马拉雅自由之巅
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/1241875/)
+## 新中国联邦的历史意义和未来规划——唯真不破
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/1241940/)
 
-作者：猫头鹰
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14075413/%E5%B1%95%E6%9C%9B%E8%87%AA%E7%94%B1%E4%B9%8B%E5%B7%85-2021.05.12-%E7%8C%AB%E5%A4%B4%E9%B9%B0-%E5%96%9C%E9%9F%A9%E5%86%9C%E5%9C%BA-1.png)
-0
+作者：紫真
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13001316/31CD185E-9ED9-494C-AC5F-AE2D9E77BB6A.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13001401/07CB6E88-3510-47A1-9A7B-4F7D918AC7AF.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13001453/F2A6F8CA-003E-42F8-B2AB-879B684969EC.jpeg)
++1

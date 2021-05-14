@@ -1,91 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（二十一）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1241968/)
+## 牛人马斯克败走麦城
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1242113/)
 
-作者：纽约香草山信息部 6zero4
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+**作者：加拿大多伦多枫叶农场 – 军迷wilson**
 
 
 
-5月13日塞林博士的6连推：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14100406/MSK.jpg)
 
-第1推，明确的证据表明，截至2020年，Antony Fauci的NIAID一直对与PLA关联的WIV的一项完全独立的寨卡病毒“功能获得”研究计划保持资助。并贴上他们之间合作研究联合发表科研论文的网页截图，尤其是NIH/NIAID/CDC科研经费拨款编号的证据揭示。
+图片来源： https://www.globaltimes.cn
 
+据来自中共国的内部人士透露，马斯克的特斯拉上海公司已停止新的土地购买计划，特斯拉早前购买的一块土地原定用于增加新的生产线，但现在也改作停车场，马斯克还提前清偿了在中共国的经营债务，表明马斯克已放弃扩建其上海工厂，对中共不再抱任何幻想。
 
+值得注意的是，上海特斯拉的产值仅今年第一季度就达到**30**亿美元，是去年第一季度产值的两倍多，上海特斯拉凭借领先的电池技术和数据优势，从开工到现在仅两年就获得巨大成功，但特斯拉却在业绩无比亮丽的时候筹划退出中共国市场，说明放荡不羁的马斯克总算看清了中共的愚昧无知和邪恶无下限本质。
 
-> Unequivocal evidence that Anthony Fauci's NIAID, as of 2020, has been funding an entirely separate "gain of function" Zika virus research program with the Wuhan Institute of Virology and linked to the People's Liberation Army. [pic.twitter.com/5KSWjTUoAv](https://t.co/5KSWjTUoAv)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 12, 2021](https://twitter.com/LawrenceSellin/status/1392514545764155392?ref_src=twsrc%5Etfw)
+中共国的大块用地特别是工业用地，拍卖条件往往是为某个特定企业量身定制的，特斯拉于今年**3**月份放弃竞拍其工厂对面一块**1200**亩的工业用地，实际上是马斯克用行动对中共表达了不再信任的态度。**3**年前马斯克不顾川普对产自中共国的电动汽车征收**25%**的关税壁垒，成为唯一一个在中共国享有外资独资资格的汽车企业，在中共国享尽殊荣，而今风云突变，特斯拉在中共国究竟遇到了什么样的问题呢？
 
+在今年**4**月**19**日的上海车展上，一名女子身着写有“刹车失灵”的白色T恤，爬上特斯拉的展车后高喊“刹车失灵”。** **4月22日，特斯拉公布了这名女车主车辆发生事故前一分钟的数据，并公开了事故前30分钟的车辆驾驶状况，详细数据则用邮件发给了这名女车主。随后特斯拉全球副总裁陶琳接受媒体采访时表达了自己的观点：“我觉得她也很专业，背后应该是有（人）的，特斯拉不会妥协。”
 
+陶琳一开始就嗅着了不寻常的味道，但对形势的判断发生了错误，轻视了这位女车主的来头，试想能在戎备森严死要形象的中共大型车展上站上车顶闹事，如果没有高层的授意能行吗？果不其然，在中共“官方”的高压之下，特斯拉当天紧急撒销了陶琳的媒体访谈，并连夜声明表示“深深的悔意”，并进行“道歉与自我检讨”。到第二天，特斯拉已经“在配合监管部门的调查”，此时新华社出现了，新华社火上浇油地指责特斯拉的道歉“缺乏诚意”，要求撤换“有问题的高管”。这样的大事环球时报当然不能缺席，该报称“特斯拉这次的错误给中国的外企上了一课”。相对于其它汽车厂商出现的安全问题，特斯拉这次事故可以称为鸡毛蒜皮，但却招致中共战狼媒体前所未有的围攻。
 
-第2推，转推“xiaomayi”战友回应塞林博士上一推的推文，是一张“第八届新生病毒性疾病控制学术研讨会”与会人员的集体照，并标注出来一些关键人员，诸如：周鹏、Ralph Baric、Peter Daszak、王林发、石培勇、姜世勃、石正丽、李放、程功(清华大学，虫媒病毒研究员) 、邱香果(加拿大华裔病毒学家) 、蓝柯、陈新文(前WIV所长，现CAS研究员) 、王延轶、肖根福(井冈山大学)等。这是COVID-19侦探“xiaomayi”的出色工作成果。（程功 、邱香果、陈新文和肖根福真容浮出水面）
+马斯克三年前做梦也未必想到，今天上海特斯拉会受到中共严格控制的媒体和五毛们的集体发难，事实上上海特斯拉的危机早就开始。**3**月份中共军队以特斯拉汽车的摄像头涉及安全为由被禁止进入军事区和家属院。几天后，马斯克马上声明，特斯拉汽车不会在任何地方从事间谍活动，否则公司将被关闭，另外马斯克为了摆脱嫌疑而大量使用中国人，但特斯拉在中共国的麻烦仍然越来越大。
 
+**4.19**事件之后，中共的“媒体”集体质疑特斯拉所提供数据的客观性，要求交出行车数据，估计马斯克此时才大梦方醒一一中共要关门打狗了。马斯克靠领先的技术研发起家，中共看中的正是这一点，中共撕下当初诱惑马斯克投资时友善的面孔，要向特斯拉的核心技术和数据资源下手了，但这是马斯克的核心价值，堪比身家性命，岂能拱手相让？中共于是巧取不成就豪夺，因此就发生了以上一连串匪夷所思的事件。中共连本国的企业家都要赶尽杀绝，怎么会信任马斯克呢？何况利润最终要转回美国。在外汇储备下降严重及财政陷入危机的当下，中共不可能遵守承诺，继续允许特斯拉既不交出专利技术又舒服地赚大钱，何况特斯拉釆取直营直销的方式大幅拉低汽车售价，减少了中共的分肥，不仅在销售环节上不能层层收税，相关官员的个人利益及地方利益所得也很少，这也是特斯拉遭忌恨和被群殴的原因之一。
 
+权力向哪里集中，财富就向哪里集中。中共实行一党专制，一党又由极少数盗国贼掌控，在这样的环境里，几乎所有人都攀附权力、利用权力寻租，马斯克要在这种倒退、肮脏和邪恶的环境中合法经营是不可能的。习近平、王歧山等人富可敌国，为了维护自身的安全及既得利益，他们必须不惜一切代价去维护这个给他们带来无限好处的等级社会，必须实行高税收来维持庞大的国家机器，这必然导致绝大多数人陷于赤贫，成为纯粹意义上的统计学人口，能允许这样的人口为特斯拉持续赚钱吗？当然不能，因此马斯克的中国投资将是一次麦城之战。最后特斯拉如何退出中共国市场留待以后观察，塞翁失马焉知非福，可以预期的是，马斯克大概率将成为新中国联邦坚定的盟友，并携手开创一个大时代。
 
-> Excellent work by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@xiaomayi7](https://twitter.com/xiaomayi7?ref_src=twsrc%5Etfw)
-> putting names to faces. [https://t.co/ymCfJzRhrq](https://t.co/ymCfJzRhrq)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 13, 2021](https://twitter.com/LawrenceSellin/status/1392727169105907712?ref_src=twsrc%5Etfw)
+***(本文仅代表作者观点，与GNEWS无关)***
 
+**参考链接：**
+[随着美中紧张局势的加剧，特斯拉对上海土地购买进行了刹车 – 来源 | 路透社](https://www.reuters.com/business/autos-transportation/exclusive-tesla-puts-brake-shanghai-land-buy-us-china-tensions-weigh-sources-2021-05-11/)
+[分析：特斯拉在中国经历的糟糕一周 其实酝酿了好几个月](https://cn.reuters.com/article/tesla-china-pr0422-thur-idCNKBS2CA0AT)
 
+* * *
 
-第3推，转推“xiaomayi”战友回应塞林博士今天第一推的另一个推文，是上一推集体照最前排的近距离清晰照片，从左到右分别是：肖根福、王延轶、陈新文、Ralph Baric、Peter Daszak、王林发、石培勇、姜世勃、石正丽、胡志红(武汉大学病毒学研究员) 、蓝柯和邱香果。这是COVID-19侦探“xiaomayi”的更多出色工作，将名字依次标出，不出所料，来自UTMB的石培勇就在这里前排，他正与WIV 和PLA合作。（胡志红真容浮出水面）
+***责任编辑：韩国首尔喜韩农场 文迹～见证神迹
+编辑/校对：美国纽约香草山农场 七哩香
+发布：华盛顿DC农场 YIMING（文鸣）***
 
-
-
-> More excellent work by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@xiaomayi7](https://twitter.com/xiaomayi7?ref_src=twsrc%5Etfw) putting names to faces. No surprise Pei-Yong Shi from the University of Texas Medical Branch, Galveston is right there in the front. He works with the Wuhan Institute of Virology and the People's Liberation Army. [https://t.co/yAvQkncMOW](https://t.co/yAvQkncMOW)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 13, 2021](https://twitter.com/LawrenceSellin/status/1392728539527622657?ref_src=twsrc%5Etfw)
-
-
-
-第4推，转发“德意志之鹰” 战友的中英混合推：第九届新生病毒性疾病控制学术研讨会，这阵容我实在是不知道说啥了，都是亮点……，分别亮出他们的照片及简介，特邀嘉宾：饶子和(CAS院士，清华大学) 、蒋华良(CAS院士，上海药物研究所) 、董晨(CAS院士，清华大学) 、王林发、Linda Saif 、Peter Daszak。报告嘉宾：陈宇(武汉大学教授) 、Luis Enjuanes(西班牙国家生物技术中心教授) 、龚鹏(WIV研究员) 、龚睿(WIV研究员) 、Bart Haagmans(荷兰Erasmus医学中心)、姜世勃、Vincent J. Munster(NIAID教授) 、彭珂(WIV研究员) 、Stanley Perlman、Stefan Pohlmann(德国灵长类动物研究中心教授) 、Leo Poon(港大P3实验室) 、Lijun Rong(荣立军，伊利诺伊大学芝加哥分校医学院微生物学和免疫学终身教授) 、石培勇、史卫峰(山东第一医科大学教授)  、王曼丽(WIV研究员) 、危宏平 、徐可(武汉大学教授) 、袁志明(WIV研究员) 、张永振(上海公共卫生临床中心教授) 、Jie Zhou(香港大学助理教授)  、周鹏和周溪(WIV研究员) 。塞林博士完全认同COVID-19侦探“德意志之鹰”的观点：这是侦探们挖掘SARS-CoV-2背后科研网络的一种思路。（饶子和 、蒋华良、董晨、陈宇、Luis Enjuanes 、龚鹏、龚睿、Bart Haagmans、Vincent J. Munster、彭珂、Stefan Pohlmann、Leo Poon、Lijun Rong、史卫峰、王曼丽、徐可、袁志明、张永振、Jie Zhou和周溪真容浮出水面）
-
-
-
-> I agree with [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@dezying](https://twitter.com/dezying?ref_src=twsrc%5Etfw)
-> "A guideline for Covid-detectives to decipher the research network behind SARS-CoV-2." [https://t.co/DqdDt5boNH](https://t.co/DqdDt5boNH)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 13, 2021](https://twitter.com/LawrenceSellin/status/1392733041425068032?ref_src=twsrc%5Etfw)
-
-
-
-第5推，转发“李昂纳多”战友的推文：WIV的张波与UTMB的石培勇，早在2008年两人一起在纽约的Wadsworth研究中心共事时，就已经开始了西尼罗河病毒的研究，现在仍然一起合作研究病毒，包括西尼罗河病毒疫苗的开发，并贴上两人合作发表科研论文的网页截图。COVID-19侦探“李昂纳多”发掘的石培勇与WIV之间的更多关联。（张波真容浮出水面）
-
-
-
-> More links uncovered between Pei-Yong Shi and the Wuhan Institute of Virology by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@RealLiAngNaDuo](https://twitter.com/RealLiAngNaDuo?ref_src=twsrc%5Etfw) [https://t.co/x1ff5iSI9d](https://t.co/x1ff5iSI9d)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 13, 2021](https://twitter.com/LawrenceSellin/status/1392735339442286593?ref_src=twsrc%5Etfw)
-
-
-
-第6推，转发“火来2号” 战友的中文推：国家生物医学分析中心(NCBA)，全名叫AMMS国家生物医学分析中心，地址就在海定区太平路27号，跟AMMS同一地址。石培勇不仅跟秦成峰合作，还有满江红，同样来自AMMS，从那张病毒朋友圈的合照座次就能看出，石培勇的地位很高，并贴上AMMS国家生物医学分析中心的官网截图，以及他们合作发表论文的网页截图及其照片。COVID-19侦探“火来2号”的杰出工作，呈现了石培勇是PLA渗透美国的主要纽带。（满江红真容浮出水面）
-
-
-
-> Outstanding work by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) Pei-Yong Shi is showing up as a major link with the People's Liberation Army. [https://t.co/BUpfEycs9g](https://t.co/BUpfEycs9g)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 13, 2021](https://twitter.com/LawrenceSellin/status/1392735774811070466?ref_src=twsrc%5Etfw)
-
-
-
-CCP-PLA-AMMS对美国病毒研究网络，如寨卡病毒、西尼罗河病毒等研究领域全方位渗透的证据，有无数中美科学家联合发表相关病毒研究相关的论文，尤其是“功能获得”研究相关的论文，以及NIH/NIAID/CDC科研经费对与PLA关联的WIV拨款编号的呈现，证据确凿地让Antony Fauci前天在接受参议院质询时，否定资助WIV“功能获得”研究的狡辩无处遁形。Antony Fauci是美国病毒研究领域教父级别的人物，是CCP渗透美国病毒届最最核心的人物；UTMB的华裔病毒学家石培勇已经与PLA的AMMS及其下属单位WIV合作多年，其在CCP-PLA-AMMS生物战计划里面的地位很高，是PLA渗透美国病毒科研界的主要突破口和关键人物。
-
-“新生病毒性疾病控制学术研讨会”每两年在武汉召开一次，由WIV主办。第八届于2018年10月20至22日召开，第九届于2020年11月26至28日召开，以此可以推断出，首届研讨会于2004年举办。该研讨会集结了全世界病毒研究领域顶级科学家，涉及美国、加拿大、西班牙、荷兰、德国、香港等国家和地区，是CCP-PLA-AMMS成功BGY全世界病毒界精英，以WIV为其生物战核心基地的盛会。可见CCP处心积虑、借鸡生蛋为其超限生物战在时间、空间上的准备是近乎“完美”的，全世界也几乎被CCP“完美”地控制甚至消灭了！
-
-校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-+3
+0

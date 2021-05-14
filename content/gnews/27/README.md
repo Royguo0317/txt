@@ -1,9 +1,12 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 骄傲一路有你
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/1241850/)
+## 【粤语配音】中国人的钱和中国人的东西逐渐跟世界彻底脱钩
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1241938/)
 
-作者：闪闪
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14075316/%E9%AA%84%E5%82%B2%E4%B8%80%E8%B7%AF%E6%9C%89%E4%BD%A0-2021.05.12-%E9%97%AA%E9%97%AA-%E5%96%9C%E9%9F%A9%E5%86%9C%E5%9C%BA-scaled-1.jpg)
+By: 【秘密翻译组G-Translators】
+
+郭文贵
+2021年5月9日
+
 +1
