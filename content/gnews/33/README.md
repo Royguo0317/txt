@@ -1,12 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】美国病毒白皮书将在何时推出最终版？
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1241878/)
+## 64参赛系列
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1242363/)
 
-By: 【秘密翻译组G-Translators】
+纽约香草山农场 乱谈秦
 
-郭文贵
-2021年5月5日
 
-+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14120210/54823ef7b3ebcbe5.jpg)![](https://gnews.org/2c48ce68-2a9c-4576-a422-0718fdcf41b9)
+0

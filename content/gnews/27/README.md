@@ -1,9 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中国联邦的历史意义和未来规划——唯真不破
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/1241940/)
+## 图片五
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1230669/)
 
-作者：紫真
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13001316/31CD185E-9ED9-494C-AC5F-AE2D9E77BB6A.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13001401/07CB6E88-3510-47A1-9A7B-4F7D918AC7AF.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13001453/F2A6F8CA-003E-42F8-B2AB-879B684969EC.jpeg)
-+1
+澳洲墨尔本雅典娜农场 – 文康
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12091632/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E4%B8%80%E5%91%A8%E5%B9%B4.png)
+新中国联邦一周年（1）
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12091655/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E4%B8%80%E5%91%A8%E5%B9%B42.png)
+新中国联邦一周年（2）
+
+0
