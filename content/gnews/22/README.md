@@ -1,48 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国给中共三大电信公司除牌意味着什么
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1239940/)
+## 郭先生0513II不信爆料革命打疫苗致死致残者令人伤心欲绝
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1240214/)
 
-**摘要：郭先生在2021年5月8日的盖特视频中说，中共三大电信企业被除牌给美国以及全世界开启了一个除牌的标准，以便下一步的全球脱钩和查封共产党的资产。世界正在睁开眼睛看清中共的本质。当时机到来之时，全世界包括贪婪的金融大亨们都会抢中共的资产，但是，中共的钱属于中国人民。最终，中共及其党员没有别的选择，只能将钱及资产投入到喜联储、喜美元和喜币。这也是G-TV、盖特、G-News和G-Clubs等投资的意义所在。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13201255/Miles_20210508-getter1.srt.txt)
-**美国给中共三大电信公司除牌意味着****什么**
+编辑整理：
 
-**The Implication of the Delisting of the CCP’s Three Major Telecommunications Companies in the US**
+伦敦喜庄园：杯酒渐浓；华盛顿DC农场：YIMING（文鸣）；日本东京方舟农场：山川异域
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13214122/%E5%B0%81%E9%9D%A2-91.jpg)
+据[2021-05-13 文贵直播：以毒灭共，喜币打疼了中共，中共对文贵开始新一轮打压；秦刚女婿大使来美的首要任务；虚拟币在美国合法化的重大意义；我们已经有了喜银行](https://gtv.org/video/id=609d2fc3db13300ca553126c)时间点6：48——
 
-另外，现在看到美国、欧洲、日本现在在干什么嘛，兄弟姐妹们有人知道吗？欧洲和美国都在查找属于共产党的资产。昨天三大电信企业，我看了《路德访谈》节目了，「我当时」在那儿泡着澡听着节目，讲的特别好，但是比这还严重。
+第二个就是灭共的代价、伤心，这个是前天的晚上一个咱们战友给我伤心欲绝、哭得嚎啕大哭，说是她老爸，她老爸本来就是非常非常支持爆料革命——73岁，特别支持这个闺女，成天说自己被压迫呀、一生白活呀，说闺女你走的是伟大的路，但是在疫苗这个问题上突然就跟女儿翻脸了，他要打疫苗闺女不让他打，他说你的爆料革命是骗子，你们都是骗子，你不让我打疫苗、疫苗行，各种逻辑要说服咱们这个女战友他闺女，说咱们因为她闺女不让打疫苗他就觉得是骗子。
 
-Have you seen what the United States, Europe, and Japan are doing now? Does anyone know, brothers and sisters? Both Europe and the US are searching for the CCP’s assets. Yesterday I watched Lude’s interview about the three major Chinese telecommunications companies. I listened to his program while having a hot bath. They explained this very well, but the actual situation is more serious than what they said.
+最后是把疫苗打了，打了疫苗不到第二天是第三天了老人家走了——死了，临打疫苗的时候还高喊郭文贵和爆料咱们是骗子、疫苗是好用。结果打完不到70小时就走了老人家，这战友伤心欲绝，七哥听了是，我昨天我告诉你，我真的是听着我伤心至极呀！我伤心至极！我真的是伤心至极，听了几年爆料革命的人，70多岁还很年轻呢，然后就因为怕死！无知！最后打了疫苗把小命、反这个命给送了，他走了，给她闺女、给她闺女女婿带来了巨大的痛苦。
 
-三大电信的整个被除牌给美国开启一个除牌的标准，给全世界有了个除牌的标准，给下一步的脱钩和查封共产党的资产最重要的建立「了」一个标准和开「了」一个口子。以此往后类推，凡是共产党和军方有企业参加新疆大屠杀、香港大迫害「的」都会被干掉。那你告诉我哪个国有企业不掺和这个？那都是比它惨的。这种情况下在海外的共产党所有的资金和企业，欧洲、「包括」日本、美国的西方的这些盟国都在查找中。这就是最近7哥比较忙「的原因」。太多人问我这个企业是干嘛，那个企业干嘛的？
+身在某国的闺女不差钱儿，家里边儿也有个几千万欧元的资产，在某欧洲国家过得相当富裕，对爹妈极为孝敬，老娘早不在了，这个老爹就要打疫苗，结果把自己给打死，带来的阴影就是对闺女和家人的伤害，所以说人吧你不孝敬，别人骂你是怎么样怎么样又是天诛又是地灭的，是不是？但是你孝敬了，你看看就遇到这样的老人了是吧，这也是个问题，所以孝敬呐不能愚孝，我告诉这位战友你尽力了，这是他的命，你没有办法，你不要再痛苦，你比那不孝敬人强太多了。
 
-The delisting of the three major telecommunications companies has set a standard for the United States and the world. It has set a standard, and an opening for decoupling and seizing CCP’s assets. Similarly, in the future, all companies owned by the CCP and PLA which were involved in the Xinjiang genocide and the great persecution in Hong Kong will be taken down. Then tell me, which state-owned enterprise was not involved in these affairs? They will suffer even worse than the three telecommunications companies. Under this situation, the overseas funds and enterprises owned by the CCP in Europe, Japan and the other Western allies of the US are all being investigated. This is why Brother Miles is so busy recently. Too many people are asking me what this company does, and what that company does.
+话又说回来，我告诉她一个最简单的例子，七哥所遭遇的事情，战友们放到谁身上你们都受不了，任何一点儿放谁身上都受不了，比如说我告诉那位战友，我说我山东阳谷县，就我老说莘县阳谷县搭县，阳谷县当年我大概在83年84年的时候帮过我忙的一个恩人一直保持着来往，一直我很感激他，两口子都是原来阳谷县税务局的，我爱吃羊肉，当年到阳谷去赊的到处是羊肉，都没人赊给我羊肉吃了，是饿得我呀跟那饿狗似的大街转悠，没办法就是再找人家，说还得你帮帮忙赊点羊肉吃。就是人家两口子咬着、皱着眉头没说过不字，就凭这，后来我也在阳谷给他弄了两套房子，还在聊城给他弄一套房子，还买过两台车送给他。
 
-所以说现在，兄弟姐妹们，面临「是」个什么时刻？全世界正在睁开眼睛在了解中共啥样，咋回事啊？
+就这么一个人，年龄都很大了，而且我说啥都信啥，我在他家里边儿就像个神一样，是吧？头几天，全家都打了疫苗，我说你怎么会打疫苗呢？他说文贵呀你不知道，他说不是我打，是咱的孩子，咱的孩子呢开了个店，这个店要是都打了疫苗了共产党就给你贴个绿签儿，不打疫苗给你贴红签儿。他说俺老两口还过去，因为他年龄大得多，比我大二三十岁，他说俺老两口还过去经常帮帮他忙，是吧，我们这不打呢不好，就去打啦。
 
-So now, brothers and sisters, what situation are we facing? The whole world is opening its eyes to understand what the CCP is truly like and what’s going on. So?
+哎哟，我难受哇，我就觉得，我说这太危险，他说旁边也没听说人家出啥事，我说那你知道以后不出事儿咋办呢，是吧，结果好嘛，老人家老伴走了，这位就是他的这个夫人走了，孩子哭死啦，就给七哥说的时候那种伤心到不行啦，我们后悔啦，七哥如何如何的，我不知道该说啥好，这么亲、这么近的人、这么相信七哥的人，到最后毁在了这种愚昧无知，我就跟他说一回我说你相信我这一回千万别打疫苗，就是共产党贴那个绿标签儿结果把她给贴死了，他的女婿现在出了个什么症状呢，腿抖腿发抖，一只腿抖，左腿发抖，哒哒哒~左腿发抖，一家人家死一个半残一个，可怕不？
 
-人家大嘴巴都扇过来了，是吧？然后还想：“哎呀，「是不是」搞误会了吧？还有这些人，「例如」巴西，现在说：“哇噻你打我脸了。”巴西总统还有种说：“这家伙可能是坏蛋。”「也只说了」可能是坏蛋，还「没」敢「太」确定。然后美国还有很多「心存」侥幸者。 在这种情况下只要开始动钱，美国人「是」有钱就睁眼睛，就抓住冲上去了，「叫嚷着」“我也要弄！”。最后开始查钱，「从」查清楚钱，到全世界找共产党钱，到全世界抢共产党的钱……这就七哥当初说的，为什么我说隔空取钱？「因为」共产党的钱「是」属于人民的钱，不能让西方这些贪婪的所谓的金融大鳄们给抢走，还依法抢走，那是不行的。这就是大家要明白的：最后共产党和共产党员在没有选择「的情况下」你「的」钱只有合法一个去处：喜联储，喜美元，喜币。不信走着瞧！最抢手的：G-TV股票 — 最抢手的！然后是盖特投资，G-News投资，G-Club！就这么简单，是吧？
+说到这儿的时候我再给大家说说疫苗，疫苗现在你看看，有200多个科学家联名说千万不要打疫苗，以色列这样的重科技的国家那么严肃的国家说，无论是疫苗还是强生什么疫苗对带来的伤害没办法知道、没办法制止。我再次请求大家，如果你们相信爆料革命，哪怕你不灭共都行、你不支持爆料革命都行，你能不能就是说这个打疫苗上要慎重，这不是我们说说，是全世界在说。
 
-The CCP has given the world a big slap in its face. And they are still thinking: “Isn’t it just a misunderstanding?” There are also people, for example in Brazil, who are now saying: “Wow, you slapped me in the face.” The Brazilian president had the guts to say, “This guy may be a bad guy.” He only said that the CCP might be a bad guy, he didn’t yet dare say: “For sure.” But still, many people in the US want to believe and take a chance with the CCP. When their allies begin to investigate and seize the CCP’s money, the Americans, as is always the case when they are faced with potential profit, will open their eyes, rush forward and grab the money, yelling: “I want the money too!” Finally, they will also begin to investigate the money, digging out the CCP’s money around the world and seizing it. That’s what Brother Miles said at the beginning. Why did I say “withdraw money from air”? This is because the CCP’s money belongs to the people. We cannot let those greedy financial crocodiles in the West snatch it away from us. And they can even snatch it away legally. We cannot allow this to happen. Everyone must understand: In the end, the CCP and CCP members will have no other choice. There is only one legal place for their money – the Himalaya Reserve, the Himalaya Dollar, and the Himalaya Coin. Don’t believe me? Just wait and see. The most sought-after assets will be G-TV stocks, followed by Getter investment, G-News Investment, and G-Clubs. It’s that simple, isn’t it?
+接上文——
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60968e7637f7f73984c93a90](https://gtv.org/getter/60968e7637f7f73984c93a90) (06:28-07:40, 07:52-08:02, 08:08-09:08)
-鸣谢：
-[1] 感谢Antsee-GTV、TING GUO、文惜和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)提供中文文本于[https://gnews.org/zh-hans/1199933/](https://gnews.org/zh-hans/1199933/)
-[2] 感谢YY、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)提供英文发翻译于[https://gnews.org/1222014/](https://gnews.org/1222014/)
+[郭先生0513I国安加大七哥所用的手机的辐射以图伤害七哥](https://gnews.org/zh-hans/1240176/)
 
-* * *
-
-整理校对 & 新闻撰写：【7PawBear（纽约香草山农场）】
-字幕：【JennyL】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】【Rock小哥】
-校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
-+1
+0

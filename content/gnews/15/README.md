@@ -1,53 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】外交部发言人的嘴脸
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1240025/)
+## 【有声读物】打击中共知识盗窃 “千人入狱”惨剧或将重演
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1240367/)
 
-作者：纽约香草山媒体部 蜜蜂
+配音：香草山录音组 蒙古鸿雁
 
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-**5**月**7**日中新社记者：据报道，近几日，尼泊尔新冠肺炎疫情迅速恶化，确诊病例数连创新高。中方对此有何评论？是否将向尼提供抗疫援助？
 
-汪文斌：尼泊尔是中（共）国的友好邻邦和战略合作伙伴。新冠肺炎疫情发生后，两国守望相助、携手同行，谱写了中尼友谊的新篇章。中方注意到，近期尼泊尔疫情形势严峻，对尼泊尔遭受的疫情挑战感同身受，将继续尽己所能向尼方提供支持。在前不久召开的中阿巴尼斯孟六国外长合作应对新冠肺炎疫情视频会议上，王毅国务委员兼外长宣布中方将向尼泊尔提供新一批抗疫物资援助。目前，这批抗疫物资已基本筹措完毕，将尽快送到尼泊尔朋友手中。此外，中（共）国地方政府和社会各界也正在积极向尼方捐赠急需的医疗物资。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13204453/14-27.jpg)图源网络
 
-听到汪之流的为共党卖命的“战狼”“战狗”外交辞令，笔者先是觉得恶心，同时也清楚地知道，他们狗嘴里吐不出象牙。汪的所谓“合作伙伴、携手同行、谱写中尼友谊的新篇章”的言外之意就是，只要你们听我党的话，别像印度政府那样叛逆，老大哥就放你们一条生路。你想活着就要替大哥两肋插刀，一起对付那些不听话的。敢同大哥较劲的，我让他们死无葬身之地。
 
-另外，4月26日彭博社记者：中（共）国驻斯里兰卡使馆今天发推特称，第一批800个制氧机今天将从中（共）国香港运往德里，第二批10000个制氧机也将在一周内运抵。你能否证实？
+据美国之音报道，一位共和党众议员推出法案，希望联邦调查局提供资源打击中共在美国大学里的“间谍”和“盗窃”活动。据悉“该法案将设立56个新的联邦调查局特工职位，专门调查中共国在教育领域的间谍活动”。
 
-汪文斌：我刚才已经阐明中方愿为印方抗击新一轮疫情提供必要支持和帮助。中方愿意根据印方具体需求提供力所能及的支持和帮助。
+提出该法案的巴尔议员在推文中说，“中国共产党的’千人计划’从美国各地的高等教育机构窃取联邦资助的研究。中共无法与我们一流的机构竞争，所以他们就盗窃。”
 
-汪这一回答不但答非所问，而且他那不屑一顾的表情流露出内心旁白：印方那是自作自受，与我方为敌就给你点颜色看看。新一轮疫情伺候着，让你有口难言，喘不上气来——制氧机不应该有。
 
-而今，共匪内部斗争激烈，为转移内困，中共不忘自己披着狼皮的羊的本色，做着黔驴技穷的勾当。大家不能放松警惕性，不能被假狼咬痛。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+**文字版原文：[【世事解评】打击中共知识盗窃 “千人入狱”惨剧或将重演](https://gnews.org/zh-hans/1232793/)**
 
-编辑/校对/发稿：Irene木木
+作者：纽约香草山健身部 童谣
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 **[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
 
 0

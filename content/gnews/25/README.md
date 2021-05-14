@@ -1,29 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NEWS EXPRESS】以太坊的联合创始人捐赠加密货币助力印度抗疫
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1239751/)
+## 【战友心声】难忘之“好”
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1240111/)
 
-加密网络以太坊的联合创始人维塔利克·布特林（Vitalik Buterin）周三向救济基金捐赠了超过10亿美元，援助印度抗击Covid-19传播。他捐赠的是一种鲜为人知的加密货币，捐赠时价值10亿美元，在捐赠消息传开后，其价值一落千丈。
+作者：纽约香草山媒体部 7bends
 
-捐款在公开的交易记录中浮出水面，该记录显示，与布特林先生关联的帐户向与印度Covid-Crypto救济基金关联的帐户发送了约50.7万亿柴犬硬币。
 
-根据交易记录，他还向同一基金发送了200万美元的以太坊网络内部货币以太币
 
-27岁的布特林先生是早期的比特币助手。2013年，他将以太坊网络构想为受比特币启发的托管应用程序平台。该平台于2014年筹集资金，并于2015年启动了该平台。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
-简评：
 
-大瘟疫的流行，世界格局即将发生变化，安全，流通，私密，疫情彻底转变了未来世界货币的格局，电子货币成为可期的替代方案。在数字货币替代传统货币的过程中， 正在进行洗牌，看不见的货币战场正在展开。关注喜马拉雅，关注喜币。
 
-参考链接：
+2017年公开直播打响灭共战，好勇气
 
-[https://www.wsj.com/articles/ethereum-luminary-makes-1-billion-covid-19-donationin-shiba-inu-coin-11620862550?mod=e2tw](https://www.wsj.com/articles/ethereum-luminary-makes-1-billion-covid-19-donationin-shiba-inu-coin-11620862550?mod=e2tw)
+真假拥趸 真伪民运 一拥而上，好壮观
 
-整理撰稿：蓝精灵
+断直播 断演讲 断油管 封推特，好疯狂
 
-校对发布：Penny
+共匪抓亲人 抓员工 收财产，好惨烈
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+伪类五毛 九层妖塔 纷纷现行，好复杂
+
+![]()![](https://media.discordapp.net/attachments/721544615953432698/824133855023202344/image0.jpg?width=1081&amp;height=609)
+
+真善狠 灭共匪，好痛快
+
+广推共产党不等于中国人，好感动
+
+拯救十四亿人不放弃，好侠义
+
+11.20 法制基金 法制社会，好及时
+
+GTV GNEWS GFASHION GCLUBS，好强大
+
+喜农场 喜联储 喜美元 H-COIN，好未来
+
+（本文仅代表作者观点）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+
+
+
 
 0

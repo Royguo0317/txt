@@ -1,64 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月13日美国政要反共推文精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1239834/)
+## 郭先生0513I国安加大七哥所用的手机的辐射以图伤害七哥
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1240176/)
 
-美国国务院： 国务卿安东尼·布林肯举了很多例子，说明在56个国家（涵盖世界上绝大多数的人民）还存在对宗教自由的高度的，严酷的打压限制。[#IRFReport2020](https://twitter.com/hashtag/IRFReport2020?src=hashtag_click) 【视频来里布林肯在最后提到：[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对新疆人及宗教人事犯下了并且还在采取诸如种族灭绝和反人类罪等活动】
+编辑整理：
 
+新加坡狮城农场：沉默大妈；伦敦喜庄园：杯酒渐浓；日本东京方舟农场：山川异域
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13212907/%E5%B0%81%E9%9D%A2-87.jpg)
+据[2021-05-13 文贵直播：以毒灭共，喜币打疼了中共，中共对文贵开始新一轮打压；秦刚女婿大使来美的首要任务；虚拟币在美国合法化的重大意义；我们已经有了喜银行](https://gtv.org/video/id=609d2fc3db13300ca553126c)时间点00：00——
 
+好使了吗？开始了吗？有点亮啊，有声音了吗，有声音了吗？来啦、来啦、来啦、来啦！来啦！来啦！小七儿来啦！
 
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) provides examples of some of the high or severe restrictions on religious freedom that have been observed in 56 countries – encompassing a significant majority of the world’s people. [#IRFReport2020](https://twitter.com/hashtag/IRFReport2020?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/yiJxSlnNm5](https://t.co/yiJxSlnNm5)
-> — Department of State (@StateDept) [May 13, 2021](https://twitter.com/StateDept/status/1392977959464493057?ref_src=twsrc%5Etfw)
+尊敬的战友们好，非常非常抱歉，今天的声音突然出问题了，约翰哥哥三天不整事儿，这就不拉倒啊，但是今天不怨约翰哥哥，昨天是跟好莱坞的音乐团队开会的时候我把摄像机啊什么的都调了，所以出这问题，所以说是我的问题。抱歉、抱歉，兄弟姐妹们！浪费了那么多时间，你说这家伙半小时，我得把这时间调一下。
 
+好，兄弟姐妹们，咱今天先简单地说一下这个，请兄弟姐妹认真听，七哥这是都是亲身经历的事情才给大家说。例如说咱们现在爆料革命用的是媒体平台，而且大量的电子设备，每天抱着手机在这发信息。我现在告诉大家，我已经说过好多次了，一定要相信七哥说的话，手机对人的伤害极为重要，极为重要！特别第一个防的直接是眼睛，就你看我这个眼睛，我让你们看一下，你看我这眼睛现在红的，你看看、你看看，所以说弄个墨镜装酷，在这块装啊、在这装啊、在这块盖住啊。就是这个眼睛痒到不行，当然是花粉的问题，同时，我必须得戴眼镜，就这个光这现在弄的照得那么厉害，眼睛就干。
 
+最重要的事情，我没给大家讲呢，我哪天开讲这个手机的时候，我相信你们很多人把手机都扔一边儿去啊。那么为什么，在1997年的时候，当时都不是数字手机的时候，全部都是摩托罗拉的时候，我亲自看到了模拟手机加大手机的辐射怎么伤害对方，当时这共匪干的事儿，共匪干的事儿。
 
-参议员兰德·保罗： 主流媒体没有就中国实验室、病毒研究……向福奇提正确的问题。
+那个时候监听手机简直是易如反掌，像一个对讲机似的，放在那儿，周围的对讲机啦、手机都能听到。唧唧嘎嘎，绝大多数都是谈恋爱的，都是在那块儿、从那个你听完那个系统以后你知道人与人之间说句实在话，我不相信什么有绝对的忠诚。因为你听过那个，因为当时就是看到过这个东西，就是那当时那所谓国安的人在那块弄来弄去的，哇塞！我说还有这个！吓得我都不敢用手机了。
 
+后来大家知道都有了数字手机。当时你知道国家安全部就在那个盘古地下室，我进去过、我看过。那个听大家的手机，不管你是一万五千里的美国还是任何地方那跟玩儿似的。但是他们说，苹果手机新款的他听不了，就是说如果一旦有新款的了，老款就能听得了。那么我问过安全部的，什么样的手机、电脑最安全？他说除了苹果电脑、苹果手机外，任何一款电脑、任何一个手机随便听。
 
+后来你们知道他们进口那个ZERO SPIT还有那个ZERO HATCH就是那个“零”的黑客软件，那个软件以色列发明的，这个软件值多少钱呢？当时要大概三千万到五千万，国家安全部买回去以后就把那个东西开始复制，现在连派出所都有，就是苹果手机原来还给你发信息你要点击才能听你的，他现在想听谁听谁的，但唯一的是新款手机和新款电脑比较难，不太稳定，特别是远在美国就不太稳定了。在国内就完全可以。所以呢，国安的人说你想安全呐你就买个苹果手机用吧，经常换换。
 
-> The mainstream media is not asking Fauci the right questions about China lab, virus research… [https://t.co/giix0YywRp](https://t.co/giix0YywRp) [#FoxNews](https://twitter.com/hashtag/FoxNews?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Senator Rand Paul (@RandPaul) [May 13, 2021](https://twitter.com/RandPaul/status/1392876875626815488?ref_src=twsrc%5Etfw)
+但是最重要的最后一句，他说手机我们是可以控制通过手机的辐射控制辐射伤害你的身体，让你得癌症、甚至让你变瞎子。我当时我以为那吹牛，后来这个哥们儿认真跟我说了，他说你看我们手机都是放在一个反屏蔽的袋子里面去。
 
+那么头一段时间有一个莫名其妙的人突然就给我打一电话，上面显示一显示号儿我知道是国内来的，我就接了，一接说，他因为他懂，他说，七哥我叫你个名字你就知道我是哪儿人了，一叫我这个名字，一叫我说欸文贵七哥大兴什么——原来我有国内的身份证是大兴的，我说你啥意思？七哥，你的手机要注意，现在我们有一个部门专门控制你所有的手机，就是加大辐射对你的伤害。
 
-
-参议员瑞克·斯科特： 美国总统继续对共产中国惊人的人权虐待保持沉默，并拒绝与我会面商谈将2022年冬奥会移出共产中国，而到一个尊重人权的国家。很可耻，但我会继续为自由而战：[http://bit.ly/2RRSD2p](https://t.co/xXx4yokjQ3?amp=1)
-
-
-
-> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) continues to stay silent on Communist China’s horrific human rights abuses & refuses to meet with me on moving the 2022 Olympics out of Communist China & to a nation that respects human rights. It’s shameful, but I’ll continue fighting for freedom: [https://t.co/68lvDPdBvf](https://t.co/68lvDPdBvf)
-> — Rick Scott (@SenRickScott) [May 13, 2021](https://twitter.com/SenRickScott/status/1392919828814499844?ref_src=twsrc%5Etfw)
-
-
-
-众议员麦克·加拉格尔： 对实验室泄漏假说进行调查不仅仅是个好主意——也是完全必要的。我们需要完全的透明度来弄清新冠病毒是如何起源的真相。（转推说18名杰出的生物学家要求对新冠起源的所有可能性进行调查）
-
-
-
-> An investigation into the lab leak hypothesis isn't just a good idea — it's fully warranted. We need full transparency to get to the bottom of how COVID-19 originated. [https://t.co/0OS7aMxwD0](https://t.co/0OS7aMxwD0)
-> — Rep. Mike Gallagher (@RepGallagher) [May 13, 2021](https://twitter.com/RepGallagher/status/1392950279746854920?ref_src=twsrc%5Etfw)
-
-
-
-众议员麦克·加拉格尔： 今天我将提出一项法案，要求拜登政府解密所有围绕武毒所和新冠病毒的所有情报。 很清楚中国共产党只会继续阻碍这些调查。假如我们想要答案，这也许是唯一获得的途径。
-
-
-
-> Today I'm introducing a bill that would require the Biden Admin to declassify all intelligence surrounding WIV and COVID-19.
-> 
-> It's clear the CCP will only continue to stonewall these investigations. If we want answers, this may be the only way to get them. [https://t.co/kF1CN5ZTr0](https://t.co/kF1CN5ZTr0)
-> — Rep. Mike Gallagher (@RepGallagher) [May 13, 2021](https://twitter.com/RepGallagher/status/1392901115113578502?ref_src=twsrc%5Etfw)
-
-
-
-众议员吉姆·班克斯： 约翰·克里在上周已经两次公开淡化维吾尔种族灭绝事件了，以免在气候谈判之前惹恼中国共产党 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 约翰·克里，降低多少磅的二氧化碳的释放等价于送一个维吾尔人进集中营？
-
-
-
-> John Kerry has downplayed the Uyghur genocide publicly TWO TIMES in the last week so as not to upset the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) before climate talks. 
->  [@JohnKerry](https://twitter.com/JohnKerry?ref_src=twsrc%5Etfw), how many pounds of C02 emission reductions are worth sending 1 Uyghur to a concentration camp? [https://t.co/61e7T4kMTL](https://t.co/61e7T4kMTL)
-> — Jim Banks (@RepJimBanks) [May 13, 2021](https://twitter.com/RepJimBanks/status/1392945817531686921?ref_src=twsrc%5Etfw)
-
-
+我现在手机只要对着我近一点鼻涕一把泪一把噼里啪啦就下来了，大家你们想想只要你晚上白天你试试，你把手机对着你的脸以后你又很快你就鼻涕一把泪一把，电手机的本身辐射就是问题，加大了辐射对你身体和眼睛是巨大的伤害，所以今天我建议大家：1、一定要在高辐射眼镜，2、跟手机保持距离，3、尽量使用电脑少使用手机，4、能换新款换新款。这是今天的第一个建议，这个说完了。
 
 0

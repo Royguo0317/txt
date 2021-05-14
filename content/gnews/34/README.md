@@ -1,55 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】拦截诈骗电话“显”成效，个人信息泄露依旧无解
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1239635/)
+## 【热点播报】更多证据指向福奇资助中共军方用于生物战的病毒研究
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1239827/)
 
-香草山写作组  鹰(文言)
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04221555/s2-2.jpg)
+作者：纽约香草山翻译部 文明世界
 
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 
-环球网5月13日转载中国新闻网消息，中共工信部2020年累积拦截涉诈电话7.3亿次，处置涉诈号码1865万余个。
 
-2020年1月15日中共工信部公布19年防范电信网络诈骗情况：全年累计拦截诈骗电话10.8亿次，关停重点地区诈骗号码88.8万个。虽然2020年拦截电话次数减少32.4%，但涉诈骗电话的数量却是翻了21倍。仅从数据上看，反诈力度的加强却反而激发了诈骗电话产业。
-![https://inews.gtimg.com/newsapp_bt/0/11878395814/1000]()![https://inews.gtimg.com/newsapp_bt/0/11878395814/1000](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13193823/Screen-Shot-2021-05-13-at-7.37.45-PM.png)
-电信诈骗整个环节中的初始环节是获取目标任务的个人信息（包括电话号码、身份信息、工作、家庭情况等），之后诈骗犯再进行点对点的专攻。在骗取受害人信任后，诈骗犯会要求对方转账。虽然中共工信部通告诈骗的拦截工作“卓有成效”，但个人信息泄露的规模和影响却并没有随着大数据筛查的应用而递减，反而愈演愈烈。
+5月12日，继昨天曝光中共军方对美国病毒研究的大规模渗透之后，塞林博士（Dr. Sellin）今天继续发推， 进一步揭露德克萨斯大学医学部（UTMB）跟中共军方的关系。塞林博士推特中称，该校的病毒研究项目好比是一个解放军的培训基地， 该项目由安东尼-福奇——五角大楼资助，由跟中共友好的UTMB教授们推动。
 
-2020年上半年，先有中信银行泄露演员王越池的个人信息，又有建行员工贩卖客户个人信息被捕。除上述国有企业的个人信息保护缺失外，售楼处、装修、家电等企业更常现“互通”客户信息的现象。在网络上贩卖个人信息的黑色产业链也是层出不穷。可见警方和三大运营公司的查处力度再严，黑色产业链的藏身之所也是难以根除。
-![https://inews.gtimg.com/newsapp_bt/0/13303143432/1000]()![https://inews.gtimg.com/newsapp_bt/0/13303143432/1000](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13193925/Screen-Shot-2021-05-13-at-7.37.41-PM.png)
-除此之外，各大商家企业崇尚“用户数据ID”贼心不死。违法收集使用个人信息APP的通报，层出不穷的电话“定向”骚扰屡屡频现，层出不穷。电话实名制度的普及并没有遏制个人信息泄露的态势，反而使不法分子更易获取更多的数据信息。防诈骗完全沦为“马后炮”式的拦截手段。
+推文附带的链接指向一篇由塞林本人（*Lawrence Sellin*）和陈安娜（Anna Chen）联合撰写的文章。该文章于5月12日在美国媒体网站《门户专家》（The  Gateway Pundit ）由乔-霍夫特（Joe Hoft）发表，标题为《独家：更多证据表明福奇博士正在资助中国人民解放军进行用于生物战的病毒研究（突发更新）》。今天的文章提到另一位在德克萨斯学医学部（UTMB）工作、与中共军方有关联的华人科学家、病理学副教授龚斌（音译）（Bin Gong）。（文章声明，我们看到的情况令人震惊，但如果我们错了，请予纠正。）
 
-在全民监管、大数据排查、健康码互联个人信息全面共享全面被监控的大形势下，究竟是“谁”偷走了个人信息并以此牟利？事后的找替罪羊顶锅和“罚酒三杯”行径，都能反映出行政干预的懈怠和失职。中共警察部门、三大运营企业究竟是无意监管，有意纵容，还是“养鱼截收”式的获取业绩和利益？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13202120/12-49.jpg)图片来源：门户专家
 
-新闻来源：
+文章称，我们在4月初报告说，COVID-19是中共的一次生物攻击（发表于4月1日《门户网站》），我们还曾报道说，有明确的证据表明，COVID-19是由中（共）国军队制造的（发表于2020年9月15日《门户网站》），昨天我们报道了中（共）国军方对美国病毒研究的渗透。今天我们有更多信息。
 
-工信部：2020年拦截涉诈电话7.3亿次https://china.huanqiu.com/article/436XjTIT5Nk
+文章提及一个新名字，龚斌（音译），一位在加尔维斯顿（Galveston）的德克萨斯大学医学部（UTMB）的病理学副教授。
 
-一个月拦截骚扰诈骗电话2900万次，贵州“断卡”行动显成效https://new.qq.com/omn/20201227/20201227A0AAUY00.html
+大家可能已经知道，UTMB是一个主要的病毒研究中心，是少数拥有生物安全4级的研究设施，由美国国家卫生研究院NIH，特别是安东尼-福奇博士（Dr. Fauci）的国家过敏和传染病研究所（NIAID）大量资助。该中心也是美国国防部资助的生物防御和新发传染病中心的所在地，用于控制和开展世界上最危险的病毒研究。
 
-骚扰电话频繁，我们怎么办？个人信息是如何被泄露出去的？https://new.qq.com/omn/20210318/20210318A0AJEZ00.html
+文章介绍，龚斌（音译）是在中国上海的中（共）国人民解放军第二军医大学获得医学博士和博士学位。1988年还在第二军医大学时，龚斌就在中共解放军的《军事情报》杂志发表了一篇文章。据他2019到2020年的论文发表记录，龚斌似乎从未真正离开过解放军第二军医大学，他只是将UTMB作为解放军科学家的培训基地。
 
-刚刚买房就接到装修公司电话，购房者信息是如何被泄露的？https://new.qq.com/omn/20200604/20200604A0PZM700.html
+龚斌在UTMB带的见习生，与他合作的科学家，都隶属于上海的长海医院。通过龚斌早期发表的一篇文章就会知道，长海医院是第二军医大学的一部分，也被称为第二军医大学第一附属医院。但是，中共和解放军的科学家是不会轻易暴露他们的真实隶属关系。
 
-信息贩卖产业链：有黑客有内鬼 动辄千万条http://news.sina.com.cn/sf/news/fzrd/2017-05-04/doc-ifyexxhw2237380.shtml
+作者查证其它文献，证实在2019年和2020年与龚斌合作过的人都隶属于第二军医大学。
 
-又见黑产业链！建行员工贩卖客户信息5万多条https://www.sohu.com/a/396388016\_338398
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13203225/13-30.jpg)
 
-谁偷走了我的个人信息？揭秘信息贩卖背后灰色产业链https://news.sina.com.cn/s/2020-09-02/doc-iivhuipp2104019.shtml
+文章称，这只是UTMB与中共解放军和中共病毒研究项目有明显关联的冰山之一角。UTMB史佩勇教授似乎与中（共）国人民解放军有着更广泛的联系——他在武汉病毒研究所的活动不仅仅是荣誉性的。自2004年以来，福奇通过国家过敏和传染病研究所给予史佩勇超过500万美元的研究资助。自2016年以来，福奇的国家过敏和传染病研究所已经给予龚斌超过270万美元的研究资助。
 
-工信部2019年反诈成绩单：全国拦截诈骗呼叫10.8亿次https://new.qq.com/omn/20200115/20200115A0QWPM00.html
+由此可见，福奇将美国人民的纳税钱，用于资助美国在UTMB的顶级病毒研究， 而在其中的华裔教授们，却与中共军方及院校有着密切联系，把UTMB当成的解放军的培训基地。 福奇等于资助了中共军方用于生物战的病毒研究。美国人民该惊醒了。
 
-金融类APP违规收集使用个人信息成“顽疾”，信息安全保护受监管关注http://finance.sina.com.cn/tech/2021-05-12/doc-ikmyaawc4743419.shtml
+参考阅读：
 
-腾讯手机管家等84款App违法违规收集使用个人信息被点名通报http://www.xinhuanet.com/legal/2021-05/10/c\_1127427662.htm
+[EXCLUSIVE: More Evidence Dr. Fauci Is Funding China’s People’s Liberation Army In Virus Research Used In Biological Warfare (Breaking Update Added)](https://www.thegatewaypundit.com/2021/05/exclusive-evidence-dr-fauci-funding-chinas-peoples-liberation-army-virus-research-used-biological-warfare/)
 
-编辑/审核/发稿：正义的小新
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
 **更多资讯，更多关注**
 
 [**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -62,6 +56,10 @@
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0

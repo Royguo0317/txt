@@ -1,59 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 众议员们提案迫拜登政府解密中共病毒情报
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1240192/)
+## 美国的《病毒白皮书》什么时候出来？后果是什么？
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1240508/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**摘要：在2021年5月5日的GTV直播中，郭先生回答了战友关于《病毒白皮书》什么时候出来的问题。他说美国的白皮书已经准备好了，出来的后果就是美国跟共产党脱钩和开战。他还说“接下来美国总统大选的这个事情的影响它会超出所有人的想象”。**
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13213220/C-16.jpg)politico.eu
-《福克斯新闻》又发出重磅报道，“众议员加拉赫（Gallagher）法案将迫使拜登解密中共病毒实验室泄漏理论的情报”，指出，“包括前疾病控制中心主任罗伯特·雷德菲尔德（Robert Redfield）在内的专家表示，实验室泄漏理论是完全可能的。”
+**美国的《病毒白皮书》什么时候出来？后果是什么？**
 
-全文如下：
+**When Will the White Paper of the CCP Virus Come Out?**
 
-一组众议院共和党人星期四（5月13日）提出一项法案，迫使拜登政府解密有关中共病毒可能从中共国实验室泄漏的情报。
+乌鸦[问]病毒白皮书什么时候出。
 
-威斯康星州众议员迈克·加拉赫（Mike Gallagher）领导了这项工作，上个月，密苏里州参议员乔什·霍利（Josh Hawley）和印第安纳州参议员迈克·布劳恩（Mike Braun）在参议院提出了一项类似的法案。
+Crow (ID of a fellow fighter) asked when the white paper of the CCP virus will come out.
 
-《福克斯新闻》首次获得的众议院新法案将迫使国家情报总监“解密任何与武汉病毒研究所和2019年中共病毒起源之间有潜在联系的相关信息，包括……武汉病毒研究所与中共军队开展的活动。”
+说到这的时候我给大家可以聊一下，现在据我所知美国（病毒）白皮书已经准备好了，美国出来白皮书的后果是什么呢？跟共产党脱钩和开战或开战，所以呢现在共产党也知道正在拉拢那些穷兄弟、姐妹们在联合国上要和美国较量。
 
-加拉赫在接受《福克斯新闻》网采访时说：“现在我们也知道了一些倾向于实验室泄漏假说的事实。”他说，其中包括川普总统政府发布的信息，即武汉病毒研究所的一些工作人员在2019年秋季患病。
+I can talk a bit about this with you guys. Based on my knowledge, the U.S. white paper [on the CCP virus] is ready. What is the consequence of publishing the white paper by the U.S. then? Decouple with the CCP and/or go to a war with the CCP! So, the CCP has been aware of this and is now trying to win over those poor brothers and sisters at the U.N. to fight against the U.S. with it.
 
-“这是疾病本身的性质。” 加拉赫说，“如果它真的是人畜共患病或动物源性的，你会认为它在宿主物种（即蝙蝠）中最具传染性，在中间物种（如穿山甲）中较不具传染性，在人类中感染最少。这种疾病却以相反的方式运作。”
+所以这个白皮书什么时候出来？我觉得很有可能白皮书出现了一个所谓的初级版本，先不说那么严重。
 
-加拉赫说，这些事实表明，这种病毒有可能是“功能增强研究”的结果。
+So, when will the white paper come out? I think it is very likely that a preliminary version of it will come out first, with a less serious tone.
 
-加拉赫补充说：“无可否认，我们不知道病毒是否来自武汉实验室。我想说的是，让我们把事情搞清楚，现在世界上还有更重要的问题吗？”
+但是我觉得美国的现在这个较量、现在大选的这个情况，我说过，你记住战友们，2022年就是明年，美国的大选的结果和造成的美国社会的动荡它最终会出来，美国不可能让这次大选这事就这么拉倒了，是不可能的，一定会有一方倒下，滑稽的结果大家都看到了，两个副总统都不是省油的灯，大家也都看到了。
 
-该法案在其调查结果中包括了来自前疾病控制和预防中心主任罗伯特·雷德菲尔德（Robert Redfield）的重要评论，他在评论中说，实验室泄漏理论“最有可能”解释中共病毒是如何开始传播的。
+Regarding the current battle in the U.S. surrounding the presidential election, please remember, brothers and sisters, I have mentioned this before – the results of American presidential election and the social turmoil caused by it will eventually manifest next year in 2022. It is impossible for the U.S. to let the election go so easily. It’s just not possible. One side must fall. Everyone has seen the absurd result of the election and know that neither of the two vice presidents is easy to deal with. Everyone has seen it.
 
-今年早些时候，雷德菲尔德对CNN说：“我的观点是，我仍然认为武汉的这种病原体最有可能是从实验室泄露出来的。”科学最终会找到答案的，（出现）实验室里的呼吸道病原体感染实验室工作人员的情况并不罕见。”
+接下来美国总统大选的这个事情的影响它会超出所有人的想象，美国这个国家你可千万别小看，这个国家太伟大了，你不管看到有多荒谬的事情发生都是其他国家难望其项背的，这个国家不是完美的。但是美国不仅是修复能力，美国这个国家最重要的事情它是真真正正的与时俱进，它在创造中、灾难中、错误中甚至是挫折中它一次一次的强大，恢复到一个本质来说，美国这个国家是一个在一次一次的错误当中成长壮大的。
 
-《福克斯新闻》早在2020年4月就报道说，根据机密和开源的文件，消息人士“越来越有信心”，认为中共病毒疫情可能起源于武汉病毒研究所，不是作为一种生物武器，而是作为中共国努力证明其识别和抗击病毒的能力等于或大于美国能力的一部分。
+Next, the impact of the U.S. presidential election will go beyond everyone’s imagination. Never ever underestimate the United States of America. It is such a great country! However ridiculous things happened can never eradicate its greatness. Although this country is not perfect, no other country is a match to it, not even close. The U.S. does not only have the ability to recover itself but also has the ability to keep in pace with the era. It always becomes stronger and stronger in the process of creation, disasters, mistakes as well as frustrations. The U.S. is essentially a country that learns and grows from its own mistakes.
 
-众议员盖·雷申塔勒（Guy Reschenthaler）、丹·毕晓普（Dan Bishop）、杰森·史密斯（Jason Smith）、达斯蒂·约翰逊（Dusty Johnson）、斯科特·佩里（Scott Perry）、汤姆·赖斯（Tom Rice）、布莱恩·巴宾（Brian Babin）、约翰·卢瑟福（John Rutherford）、保罗·戈萨（Paul Gosar）、鲍勃·吉布斯（Bob Gibbs）、丹尼尔·韦伯斯特（Daniel Webster）、麦迪逊·卡顿（Madison Cawthorn）、乔迪·希斯（Jody Hice,）和加拉赫共同签署了实验室泄漏法案。
+那么这个白皮书的结果会是被谁利用呢？一定记住美国总统大选这个事情完后，一定是美国最后出现一系列的政治滑稽事件之后，这个白皮书最终会推出最终版本，最终的版本。
 
-实验室泄漏理论在2020年被许多人全盘否定后，近几周和几个月来越来越受到关注。美国有线电视新闻网（CNN）就在3月份驳斥了实验室泄漏理论，认为这是“一个没有证据的有争议的理论”，但拜登白宫在头几个月就与中共国在多个方面展开了斗争，它拒绝将这一理论从谈判桌上拿下来。世界卫生组织3月底的一份报告说，病毒从动物传染给人类，而不是从实验室泄漏的理论“很有可能”，但普萨基（Psaki）说，这份报告提供了一个“部分、不完整的情况”，中共国对调查人员“关于病毒起源”的说法“不够透明”。
+Then, who will take advantage of the results of the white paper? Please remember, the final version of the white paper will be out after the U.S. presidential election is wrapping up and must be after the occurrence of a series of absurd political incidents.
 
-她呼吁中共国和世卫组织允许国际专家“不受限制地获取”数据，并允许他们向疫情爆发时的当地民众提问。普萨基说，美国医学专家仍在审查这份报告，但白宫认为这份报告“目前还没有出台”。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=60929c03db13300ca5491b6d](https://gtv.org/video/id=60929c03db13300ca5491b6d)  (1:54:28-1:57:08)
+鸣谢：感谢黑郁金香（文郁）、山川异域和[喜联盟七哥直播组](https://gnews.org/zh-hans/author/miles-broadcast/)提供中文文本于 [https://gnews.org/zh-hans/1180220/](https://gnews.org/zh-hans/1180220/)
 
-最近，其他众议院共和党人要求国务卿安东尼·布林肯（Anthony Blinken）公布可能与实验室泄漏理论有关的文件。
+* * *
 
-加拉赫说，如果说中共是中共病毒的罪魁祸首，疫情已经导致全球330万人死亡，近60万美国人死亡，许多经济体陷入停滞，仍在肆虐印度等国，那么中国共产党就需要承担某种责任。
+翻译：【7PawBear（纽约香草山农场）】
+字幕：【Rock小哥】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】【Rock小哥】
+校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-加拉赫说：“至少，我们需要减少，如果不是完全消除他们对世界卫生组织的影响——他们阻止台湾加入世界卫生组织的方式——这将是一种最低标准。”
-
-他继续说：“关于是否可以建立一个法律体系，让中共为他们的渎职行为造成的数十亿甚至万亿美元的损失负责，还将有另一场辩论。”
-
-（原文完）
-
-又有14个众议员站出来，记住全都是共和党的，加上参议院的几位议员，已有超过20位国会要员对中共病毒问责，但至今没有发现一个民主党议员参与其中。
-
-大势所趋，谁也阻挡不住！
-
-原文链接：
-
-[https://www.foxnews.com/politics/gallagher-bill-covid-lab-leak-china-wuhan-institute-virology](https://www.foxnews.com/politics/gallagher-bill-covid-lab-leak-china-wuhan-institute-virology)
-
-0
++1
