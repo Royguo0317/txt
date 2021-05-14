@@ -1,25 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NEWS EXPRESS】苏富比在拍卖会上接受比特币
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1239922/)
+## 【热点播报】外交部发言人的嘴脸
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1240025/)
 
-苏富比在拍卖会上接受比特币作为一幅班克斯（Banksy）画作的付款形式，这件画作以1,290万美元的价格成交。
+作者：纽约香草山媒体部 蜜蜂
 
-这是大型拍卖行第一次允许加密货币作为实物艺术品的付款。
 
-简评：
 
-比特币前景不妙，玩家在将手上的比特币换成富有收藏价值的艺术品， 也许苏富比是中共窃国家族的另外一个洗钱的场所呢。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-参考链接：
 
-[https://www.dailymail.co.uk/news/article-9575133/East-Coast-fuel-supplies-two-WEEKS-return-normal-say-experts.html?ito=social-twitter\_dailymailus](https://www.dailymail.co.uk/news/article-9575133/East-Coast-fuel-supplies-two-WEEKS-return-normal-say-experts.html?ito=social-twitter_dailymailus)
 
-整理撰稿：蓝精灵
+**5**月**7**日中新社记者：据报道，近几日，尼泊尔新冠肺炎疫情迅速恶化，确诊病例数连创新高。中方对此有何评论？是否将向尼提供抗疫援助？
 
-校对发布：Penny
+汪文斌：尼泊尔是中（共）国的友好邻邦和战略合作伙伴。新冠肺炎疫情发生后，两国守望相助、携手同行，谱写了中尼友谊的新篇章。中方注意到，近期尼泊尔疫情形势严峻，对尼泊尔遭受的疫情挑战感同身受，将继续尽己所能向尼方提供支持。在前不久召开的中阿巴尼斯孟六国外长合作应对新冠肺炎疫情视频会议上，王毅国务委员兼外长宣布中方将向尼泊尔提供新一批抗疫物资援助。目前，这批抗疫物资已基本筹措完毕，将尽快送到尼泊尔朋友手中。此外，中（共）国地方政府和社会各界也正在积极向尼方捐赠急需的医疗物资。
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13204453/14-27.jpg)图源网络
+
+听到汪之流的为共党卖命的“战狼”“战狗”外交辞令，笔者先是觉得恶心，同时也清楚地知道，他们狗嘴里吐不出象牙。汪的所谓“合作伙伴、携手同行、谱写中尼友谊的新篇章”的言外之意就是，只要你们听我党的话，别像印度政府那样叛逆，老大哥就放你们一条生路。你想活着就要替大哥两肋插刀，一起对付那些不听话的。敢同大哥较劲的，我让他们死无葬身之地。
+
+另外，4月26日彭博社记者：中（共）国驻斯里兰卡使馆今天发推特称，第一批800个制氧机今天将从中（共）国香港运往德里，第二批10000个制氧机也将在一周内运抵。你能否证实？
+
+汪文斌：我刚才已经阐明中方愿为印方抗击新一轮疫情提供必要支持和帮助。中方愿意根据印方具体需求提供力所能及的支持和帮助。
+
+汪这一回答不但答非所问，而且他那不屑一顾的表情流露出内心旁白：印方那是自作自受，与我方为敌就给你点颜色看看。新一轮疫情伺候着，让你有口难言，喘不上气来——制氧机不应该有。
+
+而今，共匪内部斗争激烈，为转移内困，中共不忘自己披着狼皮的羊的本色，做着黔驴技穷的勾当。大家不能放松警惕性，不能被假狼咬痛。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0

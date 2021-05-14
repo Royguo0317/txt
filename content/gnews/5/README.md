@@ -1,65 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】难忘之“好”
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1240111/)
+## 马克龙竞争者誓言要在印太地区对抗中共
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1240268/)
 
-作者：纽约香草山媒体部 7bends
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑上传   水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13215056/F-3-2.jpg)yahoo.com
+《日经新闻》5月13日报道，法国极右翼政治家玛丽娜·勒庞 (Marine Le Pen)有望在明年春天的总统选举中与现任总统埃马纽埃尔·马克龙(Emmanuel Macron)竞争。马克龙的支持率将取决于他的政府对中共病毒疫情的处理，而勒庞正试图通过关注公共安全问题来争取选民。
 
+民族主义在过去10年左右的时间里席卷了欧洲，从英国到匈牙利，现在这些国家的领导人都挥舞着旗帜，法国可能是下一个。勒庞在采访中说，“健康危机凸显了埃马纽埃尔·马克龙(Emmanuel Macron)的所有失败。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
+在《世界报》最近的一项民调中，勒庞在首轮投票中与马克龙势均力敌。但在第二轮决选中，勒庞的得票率为43%，而现任总统的得票率为57%，这表明要成为共和国的下一任领导人，她还需要付出很多努力。
 
+“我的立场不是极端的，而是非常合理的。”她说，“埃马纽埃尔·马克龙是全球主义者的领袖，而我是国家主义者的领袖。”勒庞表示，如果当选，她领导的法国将继续反对中共在印度洋-太平洋地区日益增长的自信。“法国的机会在于证明，我们有能力成为促成和平的因素。”
 
+在被问及新疆侵犯人权的问题时，她表示，“我们必须要求尊重每个人的人权，包括维吾尔人。”但她补充称，制裁不是一个好主意。“我不相信威胁，我不相信道德教训。”
 
-2017年公开直播打响灭共战，好勇气
+尽管如此，该党的主要关注点仍然是移民、反对全球化和保护文化同质性。她仍然是欧盟的强烈反对者，也不信任北约。“俄罗斯不是一个值得动用这种结构的危险。”勒庞强调，“现在的情况是，法国必须离开北约的综合指挥权。”
 
-真假拥趸 真伪民运 一拥而上，好壮观
+参考链接：
 
-断直播 断演讲 断油管 封推特，好疯狂
-
-共匪抓亲人 抓员工 收财产，好惨烈
-
-伪类五毛 九层妖塔 纷纷现行，好复杂
-
-![]()![](https://media.discordapp.net/attachments/721544615953432698/824133855023202344/image0.jpg?width=1081&amp;height=609)
-
-真善狠 灭共匪，好痛快
-
-广推共产党不等于中国人，好感动
-
-拯救十四亿人不放弃，好侠义
-
-11.20 法制基金 法制社会，好及时
-
-GTV GNEWS GFASHION GCLUBS，好强大
-
-喜农场 喜联储 喜美元 H-COIN，好未来
-
-（本文仅代表作者观点）
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-
-
-
+[https://asia.nikkei.com/Editor-s-Picks/Interview/France-s-Le-Pen-vows-to-stand-up-against-China-in-Indo-Pacific](https://asia.nikkei.com/Editor-s-Picks/Interview/France-s-Le-Pen-vows-to-stand-up-against-China-in-Indo-Pacific)
 
 0

@@ -1,57 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】灵活就业“补贴”陷阱来袭，揭社保基金告急？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1239710/)
+## 美国给中共三大电信公司除牌意味着什么
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1239940/)
 
-香草山写作组 鹰(文言)
+**摘要：郭先生在2021年5月8日的盖特视频中说，中共三大电信企业被除牌给美国以及全世界开启了一个除牌的标准，以便下一步的全球脱钩和查封共产党的资产。世界正在睁开眼睛看清中共的本质。当时机到来之时，全世界包括贪婪的金融大亨们都会抢中共的资产，但是，中共的钱属于中国人民。最终，中共及其党员没有别的选择，只能将钱及资产投入到喜联储、喜美元和喜币。这也是G-TV、盖特、G-News和G-Clubs等投资的意义所在。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13201255/Miles_20210508-getter1.srt.txt)
+**美国给中共三大电信公司除牌意味着****什么**
 
+**The Implication of the Delisting of the CCP’s Three Major Telecommunications Companies in the US**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04221555/s2-2.jpg)
+另外，现在看到美国、欧洲、日本现在在干什么嘛，兄弟姐妹们有人知道吗？欧洲和美国都在查找属于共产党的资产。昨天三大电信企业，我看了《路德访谈》节目了，「我当时」在那儿泡着澡听着节目，讲的特别好，但是比这还严重。
 
+Have you seen what the United States, Europe, and Japan are doing now? Does anyone know, brothers and sisters? Both Europe and the US are searching for the CCP’s assets. Yesterday I watched Lude’s interview about the three major Chinese telecommunications companies. I listened to his program while having a hot bath. They explained this very well, but the actual situation is more serious than what they said.
 
-环球网5月13日转载中共人力资源和社会保障部消息，就业困难人员、毕业离校两年内未就业的高校生均可申领社会保险补贴。
+三大电信的整个被除牌给美国开启一个除牌的标准，给全世界有了个除牌的标准，给下一步的脱钩和查封共产党的资产最重要的建立「了」一个标准和开「了」一个口子。以此往后类推，凡是共产党和军方有企业参加新疆大屠杀、香港大迫害「的」都会被干掉。那你告诉我哪个国有企业不掺和这个？那都是比它惨的。这种情况下在海外的共产党所有的资金和企业，欧洲、「包括」日本、美国的西方的这些盟国都在查找中。这就是最近7哥比较忙「的原因」。太多人问我这个企业是干嘛，那个企业干嘛的？
 
-2020年8月中共推出“4050社保补贴新政”，针对2020年12月31日前符合4050标准的（年满45周岁女性、满55周岁的男性）灵活就业者，可获得一定数额的社会保险补贴。申领时间暂定为3年。就业补贴标准为“按灵活就业后缴纳的社会保险费，给予不超过2/3的补贴”，最低缴纳标准1000元/月（与职工养老保险和职工医疗保险缴纳标准较为类似）。根据2021年政府工作报告，灵活就业人数有近2亿人。就此估算，一年时间，即可为社保金注入2.4万亿资金。
-![https://inews.gtimg.com/newsapp_bt/0/12179327029/1000]()![https://inews.gtimg.com/newsapp_bt/0/12179327029/1000](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13200504/Screen-Shot-2021-05-13-at-8.04.21-PM.png)
-2017年，中共国务院印发《划转部分国有资本充实社保基金实施方案》统一划转企业国有股权的10%用以充实社保基金。截至2020年末，共有93家央企和金融机构共划转1.68万亿资金“入账”。虽然划转力度超前，资金规模巨大，但2021年3月“两会”期间中共社科院郑秉文在报告《关于向“资产型”养老金制度过渡的提案》中却提及，“目前全国社保基金只够支付全国5个月的养老金，规模太小”。
+The delisting of the three major telecommunications companies has set a standard for the United States and the world. It has set a standard, and an opening for decoupling and seizing CCP’s assets. Similarly, in the future, all companies owned by the CCP and PLA which were involved in the Xinjiang genocide and the great persecution in Hong Kong will be taken down. Then tell me, which state-owned enterprise was not involved in these affairs? They will suffer even worse than the three telecommunications companies. Under this situation, the overseas funds and enterprises owned by the CCP in Europe, Japan and the other Western allies of the US are all being investigated. This is why Brother Miles is so busy recently. Too many people are asking me what this company does, and what that company does.
 
-根据上述灵活就业人员的“补贴标准”，只有在缴纳社会保险后，才可申领其中2/3的款项，即其余的1/3相当于“充公”。，两亿人的灵活就业群体，可以每年为中共提供至少0.8万亿的“活资”。相较于三年1.68万亿国有资本，灵活就业人员补贴无论是规模上还是调度灵活性上，无疑更适合填补漏洞。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13200656/Screen-Shot-2021-05-13-at-8.04.17-PM.png)
-综上，中共以发放补贴为名义进行的社保缴费，实质是征收1/3的缴费，以避免社保基金的脱节和爆雷。这一“以新抵旧”的庞氏骗局，是对人民财富的再掠夺。政府基本职能缺失，还变本加厉的剥削底层民众。中共奴役人民、愚弄百姓的本质，并未随着国际追责形势的加剧及国内经济下行、社会矛盾多发有丝毫改变。墙内民众为了享有“天赋人权”和保命保财保利益，唯有彻底铲除中共政权。
+所以说现在，兄弟姐妹们，面临「是」个什么时刻？全世界正在睁开眼睛在了解中共啥样，咋回事啊？
 
-新闻来源：
+So now, brothers and sisters, what situation are we facing? The whole world is opening its eyes to understand what the CCP is truly like and what’s going on. So?
 
-灵活就业人员如何领取社保补贴？看了这篇就明白https://china.huanqiu.com/article/436Wbr1RzuC
+人家大嘴巴都扇过来了，是吧？然后还想：“哎呀，「是不是」搞误会了吧？还有这些人，「例如」巴西，现在说：“哇噻你打我脸了。”巴西总统还有种说：“这家伙可能是坏蛋。”「也只说了」可能是坏蛋，还「没」敢「太」确定。然后美国还有很多「心存」侥幸者。 在这种情况下只要开始动钱，美国人「是」有钱就睁眼睛，就抓住冲上去了，「叫嚷着」“我也要弄！”。最后开始查钱，「从」查清楚钱，到全世界找共产党钱，到全世界抢共产党的钱……这就七哥当初说的，为什么我说隔空取钱？「因为」共产党的钱「是」属于人民的钱，不能让西方这些贪婪的所谓的金融大鳄们给抢走，还依法抢走，那是不行的。这就是大家要明白的：最后共产党和共产党员在没有选择「的情况下」你「的」钱只有合法一个去处：喜联储，喜美元，喜币。不信走着瞧！最抢手的：G-TV股票 — 最抢手的！然后是盖特投资，G-News投资，G-Club！就这么简单，是吧？
 
-2020年4050社保补贴新政策https://new.qq.com/omn/20200827/20200827A0HOPN00.html?pc
+The CCP has given the world a big slap in its face. And they are still thinking: “Isn’t it just a misunderstanding?” There are also people, for example in Brazil, who are now saying: “Wow, you slapped me in the face.” The Brazilian president had the guts to say, “This guy may be a bad guy.” He only said that the CCP might be a bad guy, he didn’t yet dare say: “For sure.” But still, many people in the US want to believe and take a chance with the CCP. When their allies begin to investigate and seize the CCP’s money, the Americans, as is always the case when they are faced with potential profit, will open their eyes, rush forward and grab the money, yelling: “I want the money too!” Finally, they will also begin to investigate the money, digging out the CCP’s money around the world and seizing it. That’s what Brother Miles said at the beginning. Why did I say “withdraw money from air”? This is because the CCP’s money belongs to the people. We cannot let those greedy financial crocodiles in the West snatch it away from us. And they can even snatch it away legally. We cannot allow this to happen. Everyone must understand: In the end, the CCP and CCP members will have no other choice. There is only one legal place for their money – the Himalaya Reserve, the Himalaya Dollar, and the Himalaya Coin. Don’t believe me? Just wait and see. The most sought-after assets will be G-TV stocks, followed by Getter investment, G-News Investment, and G-Clubs. It’s that simple, isn’t it?
 
-2021年灵活就业人员社保补贴来啦！2个时间点很关键，给力！https://new.qq.com/omn/20210418/20210418A00CCN00.html
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60968e7637f7f73984c93a90](https://gtv.org/getter/60968e7637f7f73984c93a90) (06:28-07:40, 07:52-08:02, 08:08-09:08)
+鸣谢：
+[1] 感谢Antsee-GTV、TING GUO、文惜和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)提供中文文本于[https://gnews.org/zh-hans/1199933/](https://gnews.org/zh-hans/1199933/)
+[2] 感谢YY、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)提供英文发翻译于[https://gnews.org/1222014/](https://gnews.org/1222014/)
 
-中央层面划转部分国资充实社保基金完成 共划转国有资本总额1.68万亿元http://www.gov.cn/xinwen/2021-01/13/content\_5579333.htm
+* * *
 
-养老金制度将收不抵支 委员这样建议https://news.sina.com.cn/c/2021-03-06/doc-ikknscsh8738981.shtml
+整理校对 & 新闻撰写：【7PawBear（纽约香草山农场）】
+字幕：【JennyL】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】【Rock小哥】
+校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-关乎你我的养老与社保问题！两会上人大代表提出了这些保险提案https://new.qq.com/omn/20210312/20210312A0E7SO00.html
-
-社保将迎来6项新调整！政策出台时间表明确http://finance.cnr.cn/gundong/20210327/t20210327\_525447298.shtml
-
-编辑/审核/发稿：正义的小新
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-
-
-0
++1
