@@ -1,29 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国在接种疫苗的口罩和间隔方面取得了突破, 而意大利呢？
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1242738/)
+## 「疫情下的西班牙」西班牙跑赢疫情了吗？
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1242709/)
 
-消息来源：today.it
-发布时间：2021.05.14
-翻译整理：斩草要除根
+- 翻译：gokuabuela
 
-美国疾病控制和预防中心主任罗谢尔·瓦伦斯基（Rochelle Walensky）不久前在白宫举行的情况通报会上宣布： 冠状病毒（中共病毒）疫苗接种的人无须戴口罩或尊重社会距离，我们都渴望这一刻，在这一刻恢复某种程度的正常状态。据Axios网站报道，乘坐飞机或公共交通工具、医疗设施、监狱和无家可归者收容所仍有佩戴口罩的要求。
 
-在最近几天，美国总统拜登的健康顾问，病毒学家安东尼·福奇（Anthony Fauci）在一系列电视采访中坚持认为 “现在是时候放宽戴口罩的义务了。” 他说：“如果您已接种疫苗并且在户外，不需要戴上口罩，几乎可以肯定的是，我们几乎总是在室内感染而不是在室外。”
+我们先关注一下西班牙截至5月13日的最新疫情通报:i
 
-在意大利呢？德拉吉政府卫生部国务卿皮尔保罗·席里里（Pierpaolo Sileri）表示，在几周内，一旦达到3000万接种疫苗的人群，户外使用口罩的规则可能会发生变化。据拉齐奥地区卫生委员会议员阿乐修 阿玛托（Alessio D’Amato）称，只要制药公司尊重疫苗接种的承诺，从7月开始我们可以避免在户外戴口罩。卫生副部长安德里亚·科斯塔（Andrea Costa）在电视节目中也谈到：“到7月底，我们将以接受疫苗接种的重要免疫率为准使我们能够去除户外口罩”。
+新增感染人数：5701例
 
-流行病学家斯特法妮 萨玛索（Stefania Salmaso）今天接受媒体 “ Corriere della Sera” 采访说，关于意大利发生的冠状病毒紧急情况，“我认为唱胜利还为时尚早”。敦促保持谨慎。他解释说，在意大利，每周的发病率仍然是每十万居民中约有100例，这是打断人们的活动水平两倍的”传播链”，病例数虽然在减少，但我们仍处于不稳定值。专家建议即使在炎热的季节也要保持谨慎，夏天有一种低估风险的趋势，当发病率的下降使我们确信我们不需要谨慎行事，然后我们发现自己像去年十月那样，正迎接新一波浪潮。
+新增死亡人数： 73例
 
-简评： 口罩就是给全世界人们带上了一个笼套，口罩不摘就不是真正的自由，很多人已经迫切希望从带口罩的生活中解脱出来，只有流行病专家能冷静的看待这个不寻常的病毒，而绝大多数人根本不会去考虑去除口罩必将带来新一波疫情重来的风险。
+14天感染率/10万人： 166例
 
-（本文简评仅为个人观点。）
+原本预计中的第四波中共病毒爆发，似乎已经过去了。每天虽然还有新增病例，但总体呈下降趋势。特别是14天感染率，最近的24小时内就下降了6例，这个数字是比较大的。
 
-消息来源🔗 [today.it](https://www.today.it/attualita/mascherine-aperto-non-obbligatorie.html)
+据报道，西班牙重症监护室(ICU)因中共病毒而产生的占用率也在今年首次降到了20%以下。
 
-* * *
+政府将这一切归功于疫苗战略。继5月份已经接种500万人后，将加快接种速度。
 
-校对/发布：阿娜
+希望达到8月底前完成70%人口接种的目标。（达到约3000万人接种）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14133241/AA.jpg)
+***（黑色部分是已接种人数，红色部分是目标人数）***
 
-0
+桑切斯政府宣布，已经准备好了大量的疫苗，仅6月份就将接受1300万支辉瑞疫苗。将保证接种的速度。
+
+各自治区也开始降低接种人群的年龄限制，部分自治区6月开始将为40-50岁这个年龄段的人接种。
+
+5月9日解除了国家紧急状态后，大部分自治区逐步放开了餐饮业和零售业的限制。民众也开始恢复到正常的生活：拥挤的酒吧，人满为患的海滩。今天开始，解除紧急状态后的第一个周末，游客数量暴涨，超过了之前的119%。
+
+政府信心满满，指出西班牙的经济复苏将进入快车道，似乎就准备宣布“抗疫成功”了。
+
+西班牙真的已经跑赢疫情了吗？
+
+根据西班牙政府、媒体、医学界、经济学家的分析，跑赢疫情的关键在于疫苗的接种速度。而我们则清楚的知道，西班牙疫情的关键在中共。
+
+在于中共的下一步战略目标是什么？
+
+一种可能，是中共暂时停止释放病毒，以表明病毒不是自己放的，减轻世界灭共的压力。同时继续和各国发展疫情经济，发展外贸经济，以挽救自己即将崩塌的经济。
+
+世界上大部分国家的“最高层”应该都知道了病毒的来源，中共也可以暂时收手。同时向各国传达这样一个意思：与我合作，我就不放病毒了，咱们谈谈投资协议，谈谈怎样不和美国合作。如果不和我合作，你们也知道病毒的威力了，哼哼，印度就是榜样。这就是所谓的“一手胡萝卜，一手大棒”。
+
+特别是对欧洲，中共还是想拉拢的，至少要分裂欧、美的联盟。
+
+当然，还有一种可能，一切都是西班牙政府一厢情愿，以为疫苗有效，以为疫情过去了。殊不知，下一波已经在来的路上了。
+
+不管怎样，病毒是在中共的手中的，什么时候想放就什么时候放，想放哪个变种就放哪个变种。如果还把疫情的主动权放在中共的手上，下一波疫情就一定会来，而且会更惨烈，更持久！
+
+素材：gokuabuela；审核：Aries的星；校对：信心满满； 发稿 :Nuevo唐人
+
+**新闻来源：**[abci-coronavirus-espana](https://www.abc.es/sociedad/abci-coronavirus-espana-incidencia-virus-baja-166-casos-202105140521_directo.html#vca=mod-lo-mas-p3&amp;vmc=leido&amp;vso=sociedad&amp;vli=noticia.foto.sociedad&amp;vtm_loMas=si) / [coronavirus-datos-sanidad](https://www.elconfidencial.com/espana/2021-05-13/coronavirus-datos-sanidad-contagios-fallecimientos-13-mayo_3079183/) / [vacunacion-objetivos-datos](https://www.elconfidencial.com/espana/2021-05-13/vacunacion-objetivos-datos-coronavirus_3079656/) / [pedro-sanchez-anuncia](https://www.elconfidencial.com/espana/2021-05-13/pedro-sanchez-anuncia-13-millones-dosis-vacuna-coronavirus-pfizer-junio_3078807/) / [abci-ocho-comunidades](https://www.abc.es/sociedad/abci-ocho-comunidades-comenzaran-vacunar-partir-junio-personas-entre-40-y-50-anos-202105140051_noticia.html#vca=mod-lo-mas-p2&amp;vmc=leido&amp;vso=sociedad&amp;vli=noticia.foto.sociedad&amp;vtm_loMas=si) / [abci-disparan-reservas](https://www.abc.es/sociedad/abci-disparan-reservas-turisticas-para-primer-semana-tras-estado-alarma-202105141415_noticia.html)
+
+[西班牙巴塞罗那喜悦农场：疫情下的西班牙专栏](https://gnews.org/zh-hans/993776/)
+
+**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+
+
+
++1
