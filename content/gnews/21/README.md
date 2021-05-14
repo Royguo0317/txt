@@ -1,65 +1,165 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港快讯】 5月14日 英国将举行 G7 峰会, 罗冠聪发起联署吁英制裁侵犯人权港官
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1242689/)
+## “中共病毒起源法”全文翻译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1242664/)
 
-搜集/整理：【喜马拉雅-粤语组】PO  / 封面合成：文粤
-![pastedGraphic.png]()![pastedGraphic.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14125244/image001-26.png)
-**6****·****12 ****英国举行**** G7 ****峰会****, ****罗冠聪发起联署吁英制裁侵犯人权港官**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-七国集团峰会 (G7) 将于 6 月 12 日在英国举行，也是反对逃犯条例修订草案占领行动 2 周年。因涉违《港区国安法》而被通缉、现流亡英国全香港众志主席罗冠聪在英国国会请愿网站发起联署签名，指英国应制裁香港的侵害人权者，以重建公众对民主制度的信任。
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14125629/W-1.jpg)activistpost.com
+昨天（5月13日）笔者发文，报道了众议员加拉赫（Gallagher）等14位众议员提出议案，迫使拜登解密中共病毒的情报”【1】，该议案名称为“中共病毒起源法”（COVID-19 Origin Act）【2】，现将提案原稿翻译，供战友参考分享。
 
-联署指，香港国安法通过后，中国再在港进行选举改革，对参选人设置审查，民主派人士多被禁竞选。联署指，大部分民主派人士正在受审、入狱或流亡，这些对香港人的迫害是公然违返中国于《中英联合声明》中对自由和自治的保证。
+议案
 
-罗冠聪于其TG“国际战线频道”中表示，中共强推《国安法》、阉割香港选举后，英国跨党派一直有强烈声音，要求制裁特首林郑月娥等，近日他亦谘询英国政界，发现有不少议员希望议会能推动制裁讨论，借此向现届政府施压，要求正视香港问题。
-![pastedGraphic_1.png]()![pastedGraphic_1.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14125323/image002-13.png)
-**涉福袋诱街坊票投郑泳舜****, ****李慧琼助理等**** 2 ****人选举舞弊罪成****, ****还押**** 5.26 ****判刑**
+要求国家情报委员会总监解密与中共病毒（COVID–19）起源的有关情报，以及用于其他目的。要由美国的参议院和众议院在国会通过。
 
-时任立法会议员李慧琼的议员助理王维霞及另一女子，2018 年九龙西立法会补选期间，以福袋诱使海丽邨居民投票予民建联郑泳舜。连同两名海丽邨居民被控共 3 项选举舞弊行为罪。暂委裁判官许肇强今（13日）在西九龙裁判法庭裁定王维霞和另一女子“串谋在选举中作出舞弊行为”罪成，两人还押至 5 月 26 日判刑。两名被指同意收取福袋的居民则罪名不成立。
+第1节 简称
 
-裁判官批评，罪成女子被捕后，即使面对铁证仍极力维护幕后人，强调选举必须公平公正，贿选属于严重罪行。
-![pastedGraphic_2.png]()![pastedGraphic_2.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14125405/image003-11.png)
-**青年遭港铁职员跪颈制服****, ****区议员批不应使用武力****, ****港铁认观感不理想**
+本法案可被称为“2021年中共病毒（COVID–19）起源法”。
 
-持残疾人士个人八达通卡、患情绪病的18岁青年，上月中于港铁杏花邨站遭职员查票期间情绪激动，遭五名港铁职员按地以膝跪颈导致颈痛疑手脚麻痺留医。事件中港铁职员处理手法引起争议，今日港铁出席油尖旺区议会遭多名议员质询，但港铁未正面回应内部的武力指引内容，仅承认当日事件观感上不理想，会上多名议员认为《港铁附例》不应容许职员使用武力制服乘客。
+第2节 调查结论
 
-港铁助理公共关系经理(对外事务)陈耀忠回应指，跪颈事件观感不理想，已即时检讨，惟警方已调查事件不便评论。他称查票是“好日常”程序，不是针对个别乘客，而是一视同仁。
+国会得出以下结论：
 
-当日有份调解冲突的注册社工兼咏春散打教练柯清泉批评，作为练武之人柯清泉指，当日多名职员将事主按于地上，已足以制服对方行动，惟职员却进一步将膝头压于青年颈上，柯直斥，港铁职员做法已远超“合理武力”，“他们不是制服，而系伤害”。对于港铁代表拒绝透露“最低武力”指引内容，柯批评港铁“狡辩”、“捩横折曲”。
-![pastedGraphic_3.png]()![pastedGraphic_3.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14125504/image004-19.png)
-**邓炳强拒交代蔡展鹏受查是否涉色情　建制群组流传信息称按摩为“舒缓腰痛”**
+（1）国务院于2021年1月15日发布了一份关于武汉病毒研究所（WIV）的情况介绍，内容如下：
+（A） “美国政府有理由相信，在疫情爆发的第一个确诊病例之前，武汉病毒研究所内的几名研究人员在2019年秋季发病，症状与中共病毒和常见季节性疾病一致。”
+（B） “武汉病毒研究所研究人员进行了涉及RaTG13的实验，RaTG13是武汉病毒研究所在2020年1月发现的最接近中共病毒（SARS-CoV-2）的蝙蝠冠状病毒。”
+（C） “尽管武汉病毒研究所自称是一个民间机构，但美国已经认定武汉病毒研究所与中共军方在出版物和秘密项目等方面进行了合作。”
 
-警务处国安处处长蔡展鹏涉光顾无牌按摩院而需要休假受查。警务处处长邓炳强昨日(12日)见记者，拒绝交代案件日期地点，以及是否涉及色情服务。不过今日(13日)有建制群组流传信息，声称蔡展鹏有严重腰痛需要按摩舒缓。有媒体亦引述消息，称蔡展鹏有长期腰痛问题。
+（2）疾病预防控制中心（CDC）前主任罗伯特·雷德菲尔德（Robert Redfield）在2021年3月表示，“武汉的病原体最有可能来自实验室”，并指出，“实验室里（出现）呼吸道病原体感染实验室工作人员的情况并不罕见。”
 
-今日多个建制群组如“蓝精灵”、“Save HK”等广泛流传一则来历不明的文章，声称蔡展鹏当日是“光明正大”到一间有“正经装修”的按摩店，岂料该店属无牌经营，“只能够话佢敏感度不足”。
-![pastedGraphic_4.png]()![pastedGraphic_4.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14125542/image005-10.png)
-**邝俊宇曾到场欲劝说梁凌杰****, ****遭警拒绝****裁判官指示警方安排明天出庭作供**
+（3）世界卫生组织总干事谭德塞在2021年3月承认，2019年中共毒病（COVID–19）可能起源于实验室，并表示这一假设“需要进一步调查，可能需要专家参与额外的任务。”
 
-前年反修例运动期间，35岁男子梁凌杰在金钟太古广场高处棚架挂上标语，其间堕楼身亡，死因研讯继续。事发当日，时任立法会议员邝俊宇及“占旺女村长”毕慧芬到达, 一度表示欲接触梁凌杰进行劝说，遭在现场维持秩序的时任总督察聂凯鹍拒绝。惟聂今作供时亦坦言，不排除当日若让邝协助游说，情况或会有良好发展。
+第3节 国会意识
 
-邝俊宇原本并非今次死因研讯的证人，惟今日散庭前，死因裁判官高伟雄透露已指示警方联络邝俊宇，将安排他明天出庭作供。邝俊宇表示：“这是我可以为凌杰做的最后一件事，我会出庭协助作证。”
-![pastedGraphic_5.png]()![pastedGraphic_5.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14125627/image006-12.png)
-**政府收回元朗粉岭**** 3 ****幅私地****, ****部分由“邓维新堂”持有****, ****成员包括**** 721 ****被捕人**
+国会认为—
 
-发展局今日（13 日）公布，将根据《收回土地条例》，收回3 组地块分别是位于粉岭新运路近黄岗山，规划作高密度房屋发展的地块入面的私人土地, 用作资助房屋用途，其中2 组地块在元朗，另外1 组在粉岭。发展局指，3 组地块涉及 12,300 平方米私人土地，连同邻近约 3,500 平方米的政府土地，预计合共可提供约 1,600 个单位。在元朗十八乡的一地段，由邓维新堂持有，司理为邓志学，是元朗 7.21 袭击被捕人之一。
+（1） 确定2019年中共病毒疫情（COVID–19）的起源对于防止未来发生类似的疫情至关重要；
 
-部份地段分别由地产商及相关公司，以及祖堂持有。例如粉岭的收地范围内，至少 3 个地段由“新保发展有限公司”持有，分别于 2005 至 2015 年以 217 万至 647 万元不等的价钱收购，面积约 1.6 万呎。 “新保发展”唯一董事兼股东为陈金荣，据《壹周刊》2007 年报道，陈曾协助恒基地产在新界收地，惟未知上述 3 幅土地是否与恒基有关。
-![pastedGraphic_6.png]()![pastedGraphic_6.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14125659/image007-6.png)
-**港府拟推下一轮催谷接种疫苗行动，机构储够人可申免费上门打针**
+（2） 有理由相信中共病毒疫情可能起源于武汉病毒研究所；以及
 
-本港的COVID-19疫苗接种仅有大约15%人口接种疫苗据了解，港府正筹划下一轮催谷接种疫苗行动，推出外展疫苗接种先导计划，只要机构或组织召集足够员工，例如约百人，便可申请安排8至10人医护人员上门打针。计划费用全免，机构可以选择接种BioNTech或科兴疫苗，有大型机构已安排员工下周打针。部份机构设“打针假”，相信选择外展服务的机构，员工也会获得同样待遇。
-![pastedGraphic_7.png]()![pastedGraphic_7.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14125753/image008-16.png)
-**衞署验出变异病毒后即收紧入境检疫****, ****食衞局向华大基因及****Prenetics****实施新合约条款**
+（3） 国家情报委员会总监应该解密并向公众提供尽可能多的关于中共病毒起源的信息，以便美国和有相同想法的国家能够—
+（A） 尽快确定中共病毒的来源，以及
+（B） 利用这些信息采取一切适当措施，防止类似疫情的再次发生。
 
-今日本港录得首宗由衞生署检疫政策揪出的L452R变异病毒株个案后，食物及衞生局晚上随即宣布，已于5月12日凌晨收紧入境检疫政策，即日起抵港者不论来自任何地区，均要在抵港的第三天接受检测；之后才按出发地区风险高低，做多一至三次检测。检疫期则维持最短7天、最长21天。而因应检疫酒店的风险仍高，要求在每一楼层安装空气净化器。而酒店也会提醒入住者，在开门或进行咽喉和鼻腔合并拭子采样之前，须关闭所有窗户。而酒店员工亦已由每隔14天进行一次检测改为每隔7天检测一次。
+第4节 解密与中共病毒起源相关的信息
 
-另外，在华大基因连番出错后，衞生署3月4日分别向华大及Prenetics，批出分别价值1.63亿元及1.61亿元的合约，购买他们的检测服务，每份合约包含96万个样本。两份合约今日均离奇“消失”于政府物流署的招标结果网页。食物及衞生局披露，已向两间检疫酒店的检测承办商（即华大基因及Prenetics），实施新的合约条款。如承办商未能符合所有要求，政府可随时终止有关合约，并禁止将来竞投同类型合约。
+国家情报委员会总监应在本法颁布之日后90天内—
 
-资料来源：[立场新闻（1）](https://www.thestandnews.com/international/6-12-%E8%8B%B1%E5%9C%8B%E8%88%89%E8%A1%8C-g7-%E5%B3%B0%E6%9C%83-%E7%BE%85%E5%86%A0%E8%81%B0%E7%99%BC%E8%B5%B7%E8%81%AF%E7%BD%B2%E7%B1%B2%E8%8B%B1%E5%88%B6%E8%A3%81%E4%BE%B5%E7%8A%AF%E4%BA%BA%E6%AC%8A%E6%B8%AF%E5%AE%98/)、[立场新闻（2）](https://www.thestandnews.com/court/%E6%B6%89%E7%A6%8F%E8%A2%8B%E8%AA%98%E7%A5%A8%E6%8A%95%E9%84%AD%E6%B3%B3%E8%88%9C-%E6%9D%8E%E6%85%A7%E7%90%BC%E5%89%8D%E5%8A%A9%E7%90%86%E7%AD%89-2-%E4%BA%BA%E9%81%B8%E8%88%89%E8%88%9E%E5%BC%8A%E7%BD%AA%E6%88%90/)、[苹果日报（3）](https://hk.appledaily.com/breaking/20210513/2TRXPPGGVFA5NEEKZBCMPDK25A/)、[立场新闻（4）](https://www.thestandnews.com/politics/%E8%94%A1%E5%B1%95%E9%B5%AC%E5%8F%97%E6%9F%A5-%E9%84%A7%E7%82%B3%E5%BC%B7%E6%8B%92%E4%BA%A4%E4%BB%A3%E6%98%AF%E5%90%A6%E6%B6%89%E8%89%B2%E6%83%85-%E5%BB%BA%E5%88%B6%E7%BE%A4%E7%B5%84%E6%B5%81%E5%82%B3%E4%BF%A1%E6%81%AF%E7%A8%B1%E6%8C%89%E6%91%A9%E7%82%BA-%E8%88%92%E7%B7%A9%E8%85%B0%E7%97%9B/)、[苹果日报（5）](https://hk.appledaily.com/local/20210513/DI6ZDJ7CZBAVJA53WYN2ZYCLB4/)、[立场新闻（6）](https://www.thestandnews.com/society/%E6%94%BF%E5%BA%9C%E6%94%B6%E5%9B%9E%E5%85%83%E6%9C%97%E7%B2%89%E5%B6%BA-3-%E5%B9%85%E7%A7%81%E5%9C%B0-%E9%83%A8%E4%BB%BD%E7%94%B1-%E9%84%A7%E7%B6%AD%E6%96%B0%E5%A0%82-%E6%8C%81%E6%9C%89-%E6%88%90%E5%93%A1%E5%8C%85%E6%8B%AC-721-%E8%A2%AB%E6%8D%95%E4%BA%BA/)、[苹果日报（7）](https://hk.appledaily.com/local/20210513/RFJJYSDQ2JB2LDLR4ERA4X7OHE/)、[苹果日报（8）](https://hk.appledaily.com/local/20210514/6JB5SE267NCLJGE3D2APMNEUO4/)
+（1）解密任何与武汉病毒研究所和2019年中共病毒起源之间有潜在联系的相关信息，包括-
+（A）武汉病毒研究所与中共军队或代表中共军队开展的活动；
+（B）在中共病毒爆发之前，在武汉病毒研究所进行的中共病毒研究或其他相关活动；以及
+（C）武汉病毒学研究所2019年秋季患病的研究人员，包括任何此类研究人员—
+（i）研究人员姓名；
+（ii）研究人员的症状；
+（iii）研究人员出现症状的日期；
+（iv）研究人员在武汉病毒研究所的作用；
+（v）研究人员是否参与或接触过武汉病毒研究所的中共病毒研究；
+（vi）研究人员患病期间是否到医院就诊；以及
+（vii）研究人员采取的任何其他行动的说明，可能表明他们当时正在经历严重疾病；以及
 
-封面素材：立场新闻
+（2）向国会提交一份非机密报告，包含-
+（A）第（1）款所述的所有信息；以及
+（B）只有情报总监认为有必要的修订，以保护资料来源和途径，而不能以任何方式更改或模糊第款（1）所述的信息。
 
-审核：文燕  / 校对：文粤 / 上传：流光飞舞
+记住这些众议员，全部来自共和党：
+法案起草人，威斯康星州众议员迈克·加拉赫（Mike Gallagher）
+法案共同签署人：
+宾夕法尼亚州众议员盖·雷申塔勒（Guy Reschenthaler）；
+北卡莱罗纳州众议员丹·毕晓普（Dan Bishop）；
+密苏里州众议员杰森·史密斯（Jason Smith）；
+南达科他州众议员达斯蒂·约翰逊（Dusty Johnson）；
+加利福尼亚州众议员斯科特·佩里（Scott Perry）；
+南卡莱罗纳州众议员汤姆·赖斯（Tom Rice）；
+德克萨斯州众议员布莱恩·巴宾（Brian Babin）；
+佛罗里达州众议员约翰·卢瑟福（John Rutherford）；
+亚利桑那州众议员保罗·戈萨（Paul Gosar）；
+俄亥俄州众议员鲍勃·吉布斯（Bob Gibbs）；
+佛罗里达州众议员丹尼尔·韦伯斯特（Daniel Webster）；
+北卡莱罗纳州众议员麦迪逊·卡顿（Madison Cawthorn）；
+佐治亚州众议员乔迪·希斯（Jody Hice）
+
+有关链接：
+
+【1】https://gnews.org/zh-hans/1240192/
+
+【2】
+
+          (function() { var scribd = document.createElement("script"); scribd.type = "text/javascript"; scribd.async = true; scribd.src = "https://www.scribd.com/javascripts/embed\_code/inject.js"; var s = document.getElementsByTagName("script")[0]; s.parentNode.insertBefore(scribd, s); })()        
+
+文字整理：
+
+A BILL
+
+To require the Director of National Intelligence to declassify information relating to the origin of COVID–19, and for other purposes.
+
+Be it enacted by the Senate and House of Representatives of the United States of America in Congress assembled,
+
+SECTION 1. SHORT TITLE.
+
+This Act may be cited as the ‘‘COVID–19 Origin Act of 2021’’.
+
+SEC. 2. FINDINGS.
+
+Congress makes the following findings:
+
+(1) The Department of State released a fact sheet on January 15, 2021, about the Wuhan Institute of Virology (WIV) which stated the following:
+
+(A) ‘‘The U.S. government has reason to believe that several researchers inside the WIV became sick in autumn 2019, before the first identified case of the outbreak, with symptoms consistent with both COVID–19 and common seasonal illnesses.’’.
+
+(B) ‘‘WIV researchers conducted experiments involving RaTG13, the bat coronavirus identified by the WIV in January 2020 as its closest sample to SARS-CoV-2.’’.
+
+(C) ‘‘Despite the WIV presenting itself as a civilian institution, the United States has determined that the WIV has collaborated on publications and secret projects with China’s military.’’.
+
+(2) Former Director of the Centers for Disease Control and Prevention, Robert Redfield, stated in March 2021 that, ‘‘the most likely etiology of this pathogen in Wuhan was from a laboratory’’ and noted that, ‘‘[i]t is not unusual for respiratory pathogens that are being worked on in a laboratory to infect the laboratory worker.’’.
+
+(3) Director-General of the World Health Organization Tedros Adhanom Ghebreyesus acknowledged in March 2021 that the Coronavirus Disease 2019 (COVID–19) may have originated in a laboratory and said this hypothesis ‘‘requires further investigation, potentially with additional missions involving specialist experts.’’.
+
+SEC. 3. SENSE OF CONGRESS.
+
+It is the sense of Congress that—
+
+(1) identifying the origin of Coronavirus Disease 2019 (COVID–19) is critical for preventing a similar pandemic from occurring in the future;
+
+(2) there is reason to believe the COVID–19 pandemic may have originated at the Wuhan Institute of Virology; and
+
+(3) the Director of National Intelligence should declassify and make available to the public as much information as possible about the origin of COVID–19 so the United States and like-minded countries can—
+
+(A) identify the origin of COVID–19 as expeditiously as possible, and
+
+(B) use that information to take all appropriate measures to prevent a similar pandemic from occurring again.
+
+SEC. 4. DECLASSIFICATION OF INFORMATION RELATED TO THE ORIGIN OF COVID–19.
+
+Not later than 90 days after the date of the enactment of this Act, the Director of National Intelligence shall—
+
+(1) declassify any and all information relating to potential links between the Wuhan Institute of Virology and the origin of the Coronavirus Disease 2019 (COVID–19), including—
+
+(A) activities performed by the Wuhan Institute of Virology with or on behalf of the People’s Liberation Army;
+
+(B) coronavirus research or other related activities performed at the Wuhan Institute of Virology prior to the outbreak of COVID–19; and
+
+(C) researchers at the Wuhan Institute of Virology who fell ill in autumn 2019, including for any such researcher—
+
+(i) the researcher’s name;
+
+(ii) the researcher’s symptoms;
+
+(iii) the date of the onset of the researcher’s symptoms;
+
+(iv) the researcher’s role at the Wuhan Institute of Virology;
+
+(v) whether the researcher was involved with or exposed to coronavirus research at the Wuhan Institute of Virology;
+
+(vi) whether the researcher visited a hospital while they were ill; and
+
+(vii) a description of any other actions taken by the researcher that may suggest they were experiencing a serious illness at the time; and
+
+(2) submit to Congress an unclassified report that contains—
+
+(A) all of the information described under paragraph (1); and
+
+(B) only such redactions as the Director determines necessary to protect sources and methods without altering or obscuring in any way the information described under paragraph (1).
 
 0
