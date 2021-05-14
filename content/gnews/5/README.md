@@ -1,21 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 百元先生要钱记
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1237383/)
+## 【热点播报】病毒来源尚不明朗，美国CDC发新规：“接种疫苗免戴口罩”，防疫前景堪忧
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1242595/)
 
-澳洲墨尔本雅典娜农场 – 贵水、翼族
+作者：纽约香草山媒体部 天下大同
 
-
-
-#### 绘图：min泽尔、文康
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191310/s2-7.jpg)
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13072543/123-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13072600/124.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13072602/125.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13072613/126.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13072624/127.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13072632/128.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13072639/129.png)
-从关注、跟随爆料革命到参与其中，一路真的是五味杂陈。只是身在墙内，我很难有什么实质性的行为。已近中年的我外号100，因口袋长期不超过100块得此号。一天，对掌管财政权的老婆要一万美刀投资G系列，还没等我把准备了几天的话说出来，老婆同意了!问其缘何答应的如此爽快?老婆撂下一句，你每天半夜对着手机哭哭笑笑已经一年多了，看的出来你是真的！我像傻瓜一样站着许久……真想给她磕一个!中国人不善于表达，现在我想对她说：“谢谢你，老婆!”
 
-郭先生不但给了我们真相、给了我们希望，还要给我们体面的生活，感恩郭先生，感谢爆料革命，最后感谢全球为灭共付出的战友，不灭不休!为了此生、余生、后代!
+2021年5月13日，美国疾病管制暨预防中心(CDC)宣布更新防疫指引，允许完整接种新型冠状病毒疫苗的人在室内外活动时，不须戴口罩或保持社交距离。美国CDC表示，任何完整接种疫苗的人，可参与室内外活动，大小规模不拘，皆不须戴口罩或保持人际距离。在美国境内，或从美国出发、从外地抵达美国的民众，在飞机、公交车、火车等各种大众运输工具和机场、车站等交通枢纽，仍须戴口罩。完整接种疫苗的国际旅客赴美，仍须在班机抵达3天内接受采检，或出示过去3个月染疫后康复的证明。
 
-（文章内容仅代表作者观点）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14121501/%E5%9B%BE%E7%89%876-17.png)
+
+美国总统拜登随后发出演讲，支持这一举措，并在其官方推特上，发布一条视频：“疫苗或口罩，二选一。”但也有人对此表示担心，除北卡罗来纳州外，洛杉矶县卫生部在周四表示，洛杉矶县和加利福尼州政府部门都将重新审核新指南后做出适当的修改。这项新指南让零售商和员工感到非常意外。梅西百货、塔吉特(Target)等零售商都表示会重新审查新指南，五金商店Home Depot表示，他们没有修改规定的计划，仍将要求员工和顾客戴口罩。联合食品和商业工人联盟在声明中称：“这份新指南让零售商和他们的员工处于一个非常困难的位置。”
+
+在疫情原因没查清，病毒来源没有查明，疫苗效果不确定，病毒感染和死亡人数不断增加的情况下，CDC更新防疫指引，取消了戴口罩这项重要的防疫举措，这势必会引起疫情的反弹。在美国的战友们，一定要再次提高警惕，关注疫情发展，保护好自己和家人的健康安全。
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191415/M5-2.jpg)
+
+
+
+**六四文宣大赛，****欢迎大家踊跃投票****：**[**https://gnews.org/poll/poll-article\_1/**](https://gnews.org/poll/poll-article_1/)
+
+**投票注意事项：第一，比如投票视频，一个账号需要同时选中要投的三个视频作品，方可以投票；第二，因为视频比较大，所以需要大家静待一两分钟，然后进入视频投稿界面。第三，投票的战友也有机会获幸运参与奖啊。**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
