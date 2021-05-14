@@ -1,25 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0513III战友们务必防范病毒：羟氯喹加锌和合格口罩
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1240253/)
+## 【有声读物】有话说（一）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1240472/)
 
-编辑整理：
+配音：香草山录音组 Gtv abeilles（蜜蜂）
 
-华盛顿DC农场：YIMING（文鸣）；日本东京方舟农场：山川异域
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13215117/%E5%B0%81%E9%9D%A2-95.jpg)
-据[2021-05-13 文贵直播：以毒灭共，喜币打疼了中共，中共对文贵开始新一轮打压；秦刚女婿大使来美的首要任务；虚拟币在美国合法化的重大意义；我们已经有了喜银行](https://gtv.org/video/id=609d2fc3db13300ca553126c)时间点12：51——
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-另外一个就是这个羟氯喹加锌，兄弟姐妹们现在不戴口罩，一定要吃羟氯喹加锌，你不能天天吃，天天吃不行，一定是按照科学的吃法吃九天羟氯喹加锌早晚一片，然后歇上三十天，要注意科学吃羟氯喹加锌。但是，兄弟姐妹们要吃真正的好羟氯喹，别吃假的，这个太重要了，这事儿拜托了啊。
 
-还有一个口罩，现在大家是逮住什么口罩全是时尚版，时尚版呐，从目前来看口罩最过关的除了正版的3M、N95认证过的，再一个就是日本口罩目前是世界上最高级的，日本的口罩目前是世界上最安全的，希望大家别不舍得花钱，买点好口罩。
 
-我最担心的事情，大家觉得夏天来啦感染率低啦，然后就不小心啦，然后呢戴口罩也不规范，然后把口罩给时尚化，然后呢觉得打了疫苗就无所谓，结果到处去转悠，这就出大事儿了，希望大家珍惜自己的生命，不要给家人和爱你的人带来你死亲人痛的这种无法挽回的损失。
 
-接上文——
 
-[郭先生0513I国安加大七哥所用的手机的辐射以图伤害七哥](https://gnews.org/zh-hans/1240176/)
 
-[郭先生0513II不信爆料革命打疫苗致死致残者令人伤心欲绝](https://gnews.org/zh-hans/1240214/)
+
+秋风吹过无垠的荒野！
+
+那是风儿对草儿的有话说！
+
+你不给我一个说法啊！
+
+我就给你一个做法！
+
+那是一个孤胆英雄的有话说！
+
+
+
+**文字版原文：[【香草诗词汇】有话说（一）](https://gnews.org/zh-hans/1239093/)**
+
+作者：纽约香草山健身部 澄道
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

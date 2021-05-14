@@ -1,48 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国给中共三大电信公司除牌意味着什么
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1239940/)
+## News Express: CCP病毒大疫情下，出现亚裔种族歧视的必然
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1240104/)
 
-**摘要：郭先生在2021年5月8日的盖特视频中说，中共三大电信企业被除牌给美国以及全世界开启了一个除牌的标准，以便下一步的全球脱钩和查封共产党的资产。世界正在睁开眼睛看清中共的本质。当时机到来之时，全世界包括贪婪的金融大亨们都会抢中共的资产，但是，中共的钱属于中国人民。最终，中共及其党员没有别的选择，只能将钱及资产投入到喜联储、喜美元和喜币。这也是G-TV、盖特、G-News和G-Clubs等投资的意义所在。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13201255/Miles_20210508-getter1.srt.txt)
-**美国给中共三大电信公司除牌意味着****什么**
+撰稿：紫橄榄
 
-**The Implication of the Delisting of the CCP’s Three Major Telecommunications Companies in the US**
+从BBC报道的新闻看到，在英国已经有众多的华裔遭受到种族歧视：被人攻击鼻青脸肿，在公共场所被人吐痰，被儿童污骂是冠状病毒……
 
-另外，现在看到美国、欧洲、日本现在在干什么嘛，兄弟姐妹们有人知道吗？欧洲和美国都在查找属于共产党的资产。昨天三大电信企业，我看了《路德访谈》节目了，「我当时」在那儿泡着澡听着节目，讲的特别好，但是比这还严重。
+中共用生物用武器在2020年1月从武汉到全球投放，引起了全球疫情大爆发，真到今天，巴西与印度已经是人间炼狱，中共把西方拖入战争状态，全球经济尽乎溃败之中。
 
-Have you seen what the United States, Europe, and Japan are doing now? Does anyone know, brothers and sisters? Both Europe and the US are searching for the CCP’s assets. Yesterday I watched Lude’s interview about the three major Chinese telecommunications companies. I listened to his program while having a hot bath. They explained this very well, but the actual situation is more serious than what they said.
+中共用最低成本的超限生物武器征服暂时“控制”了世界，他们把抽取中国人民的血汗钱用于世界扩张渗透西方国家，以抢占美国为主导的西方文明社会，用隐形的投放生物武器完成其完美犯罪。
 
-三大电信的整个被除牌给美国开启一个除牌的标准，给全世界有了个除牌的标准，给下一步的脱钩和查封共产党的资产最重要的建立「了」一个标准和开「了」一个口子。以此往后类推，凡是共产党和军方有企业参加新疆大屠杀、香港大迫害「的」都会被干掉。那你告诉我哪个国有企业不掺和这个？那都是比它惨的。这种情况下在海外的共产党所有的资金和企业，欧洲、「包括」日本、美国的西方的这些盟国都在查找中。这就是最近7哥比较忙「的原因」。太多人问我这个企业是干嘛，那个企业干嘛的？
+当西方世界在知道是中共国制造的生物武器时，他们本能的反应必是排华。他们从来会想像得出的是中国共产党的邪恶本性,而且他们把中国人等同于中国共产党。
 
-The delisting of the three major telecommunications companies has set a standard for the United States and the world. It has set a standard, and an opening for decoupling and seizing CCP’s assets. Similarly, in the future, all companies owned by the CCP and PLA which were involved in the Xinjiang genocide and the great persecution in Hong Kong will be taken down. Then tell me, which state-owned enterprise was not involved in these affairs? They will suffer even worse than the three telecommunications companies. Under this situation, the overseas funds and enterprises owned by the CCP in Europe, Japan and the other Western allies of the US are all being investigated. This is why Brother Miles is so busy recently. Too many people are asking me what this company does, and what that company does.
+殊不知，中国人民是中国共产党的奴隶,中国共产党非法执政了70年,他们从国民政府手中抢夺来的政权,中國当时只是一个临时过渡的中国政府，没有长期执政管理中国的权利，其必须在后面举行全民选举，由人民选举出来的一个党派来主建一个政府来管理国家。
 
-所以说现在，兄弟姐妹们，面临「是」个什么时刻？全世界正在睁开眼睛在了解中共啥样，咋回事啊？
+中共在成立临时中央政府的时候,并没有让中国人民从来未参与一人一票的选举，中国人民没有委托与授权任何一个政党来组建中国政府。代表这些选民组建政府管理这个国家，国家是个名词，是不会创造财富的，而是人民创造的财富纳后，交税给政府，让他们管理好国家。如果这个政权不是选出来的，就是非法， 人民就把这个非法政府赶下台，人民重新选举由另一个党派来组建政府管理国家。
 
-So now, brothers and sisters, what situation are we facing? The whole world is opening its eyes to understand what the CCP is truly like and what’s going on. So?
+这就是中共目前处于前所未有的统治危机，这是其经常用一场局部战争甚重新塑造其“形像”，用来忽悠老百姓。他们利用抽取人民的血汗钱成为他们几个家族的控制了95%的人口和财富，人民创造的财富在几大家族的“建筑艺术”藏宝图中。
 
-人家大嘴巴都扇过来了，是吧？然后还想：“哎呀，「是不是」搞误会了吧？还有这些人，「例如」巴西，现在说：“哇噻你打我脸了。”巴西总统还有种说：“这家伙可能是坏蛋。”「也只说了」可能是坏蛋，还「没」敢「太」确定。然后美国还有很多「心存」侥幸者。 在这种情况下只要开始动钱，美国人「是」有钱就睁眼睛，就抓住冲上去了，「叫嚷着」“我也要弄！”。最后开始查钱，「从」查清楚钱，到全世界找共产党钱，到全世界抢共产党的钱……这就七哥当初说的，为什么我说隔空取钱？「因为」共产党的钱「是」属于人民的钱，不能让西方这些贪婪的所谓的金融大鳄们给抢走，还依法抢走，那是不行的。这就是大家要明白的：最后共产党和共产党员在没有选择「的情况下」你「的」钱只有合法一个去处：喜联储，喜美元，喜币。不信走着瞧！最抢手的：G-TV股票 — 最抢手的！然后是盖特投资，G-News投资，G-Club！就这么简单，是吧？
+这次疫情大爆发开始到现在，西方被中共所控制的西方主流媒体做虚假宣传，还有中共大外宣在全世界渗透及操纵各种团体。西方人过开天真是其有信仰的原因，但长期被中共控制的主流媒体洗脑，当他们对亚裔面孔的人说：“你们就是个病毒”和吐唾沫时，这就是中共捆绑中国人的邪恶本性，西方世界已经被中共渗透了半个世纪，用共产国际的政治正确鸡汤一点一点地蚕食人类的自由灵魂与躯体……
 
-The CCP has given the world a big slap in its face. And they are still thinking: “Isn’t it just a misunderstanding?” There are also people, for example in Brazil, who are now saying: “Wow, you slapped me in the face.” The Brazilian president had the guts to say, “This guy may be a bad guy.” He only said that the CCP might be a bad guy, he didn’t yet dare say: “For sure.” But still, many people in the US want to believe and take a chance with the CCP. When their allies begin to investigate and seize the CCP’s money, the Americans, as is always the case when they are faced with potential profit, will open their eyes, rush forward and grab the money, yelling: “I want the money too!” Finally, they will also begin to investigate the money, digging out the CCP’s money around the world and seizing it. That’s what Brother Miles said at the beginning. Why did I say “withdraw money from air”? This is because the CCP’s money belongs to the people. We cannot let those greedy financial crocodiles in the West snatch it away from us. And they can even snatch it away legally. We cannot allow this to happen. Everyone must understand: In the end, the CCP and CCP members will have no other choice. There is only one legal place for their money – the Himalaya Reserve, the Himalaya Dollar, and the Himalaya Coin. Don’t believe me? Just wait and see. The most sought-after assets will be G-TV stocks, followed by Getter investment, G-News Investment, and G-Clubs. It’s that simple, isn’t it?
+如果没有情报爆料革命早期揭发中国共产党蚕食美国的计划，中共长期研发生物武器，如果没有严梦丽博士站来揭发是中共投放生物武器将导致人传人与大爆发，且以“一人战群魔”的勇气拯救人类。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60968e7637f7f73984c93a90](https://gtv.org/getter/60968e7637f7f73984c93a90) (06:28-07:40, 07:52-08:02, 08:08-09:08)
-鸣谢：
-[1] 感谢Antsee-GTV、TING GUO、文惜和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)提供中文文本于[https://gnews.org/zh-hans/1199933/](https://gnews.org/zh-hans/1199933/)
-[2] 感谢YY、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)提供英文发翻译于[https://gnews.org/1222014/](https://gnews.org/1222014/)
+当全世界知道真相是中共释放的生物武器导致几百万人死亡时，请问谁会喜欢那我们华裔面孔？如果没有新中国联邦的正道主义运动的情报爆料，没有给西方和美国提供了大量的情报信息，提早提醒西方国家。并且把中共不等于中国人，中共不代表中国与中国人民的脉络口口相传给西方世界。亚裔种族歧视将到何种境况？我们真的是不寒而栗！
 
-* * *
+所以我们必须站起来全球一起消灭中共，新中国联邦人全部尽全力与同胞一起，
 
-整理校对 & 新闻撰写：【7PawBear（纽约香草山农场）】
-字幕：【JennyL】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】【Rock小哥】
-校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+消灭这个邪恶的体制和犯罪组织，新中国联帮人才能与文明世界同步前行。
 
-+1
+视频来源：[https://www.bbc.com/zhongwen/simp/topics/ck2l9z0em07t](https://www.bbc.com/zhongwen/simp/topics/ck2l9z0em07t)
+
+图片来源：[https://www.bbc.com](https://www.bbc.com/zhongwen/simp/topics/ck2l9z0em07t)
+
+校对发布：Penny
+
+文章仅代表作者个人观点，与gnews平台无关
+
+0

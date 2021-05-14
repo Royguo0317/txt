@@ -1,40 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 关于资助武汉病毒学研究所实验室的问题，兰德·保罗猛烈抨击福奇博士——傲慢的福奇回击!(视频)
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1240137/)
+## 【有声读物】五一之后事故频发，安全生产也讲“阶段性”？
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1240407/)
 
-翻译评论：文虓Bobby
+配音：香草山录音组 蒙古鸿雁
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13211224/051404.jpg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-周二，参议院卫生、教育、劳工和养老金委员会就抗击COVID-19疫情举行了听证会。
 
-参议员兰德·保罗(Rand Paul，肯塔基州共和党)周二就资助武汉实验室一事猛烈抨击了福奇博士。
 
-自2020年5月以来，Gateway Pundit一直在报道安东尼·福奇博士（Dr.Anthony Fauci）可能非法资助武汉病毒学中心的冠状病毒项目。
 
-很明显，他们在实验室成功分离了冠状病毒，并积极进行了物种间传播的实验。
 
-同样重要的是，2017年，我们有可靠的情报显示，中国一个高度安全的病毒学研发中心发生了病毒泄露，导致非典病毒传播出去并致人死亡。
 
-2020年5月，TGP报道称，美国应对中国冠状病毒疫情特别工作组负责人安东尼·福奇博士（Dr.Anthony Fauci）资助并推动了武汉蝙蝠病毒工作。
 
-上个月，《华盛顿邮报》的专栏作家乔希·罗根(Josh Rogan)表示，福奇需要就他与武汉实验室的关系提供答案。
+环球网5月12日转载北京市应急管理局消息，5月7日至11日，北京多地发生施工意外事故。
 
-“福奇博士和美国国立卫生研究院（NIH）负责使用纳税人的钱进行功能增强研究，将病毒武器化，使其更具传染性和致命性。”他说。
+5月7日大兴区一项目工地，2名工人在管线开挖作业时被土方埋压致死；9日西城区一工人触电身亡；11日西城区一名工人巡检设备不幸坠落身亡，4天时间接连三起致死事故，其中两起均发生在西城区。
 
-兰德·保罗(Rand Paul)周二质问福奇:“福奇，你还支持NIH对武汉实验室的资助吗?”
 
-傲慢的福奇回击了这位肯塔基州议员:“保罗参议员，恕我直言，你完全错了，NIH从来没有、现在也不会资助武汉研究所的功能增强研究。”
 
-兰德·保罗不会让步，他真的惹怒了福奇!
+**文字版原文：[【鹰眼墙国】五一之后事故频发，安全生产也讲“阶段性”？](https://gnews.org/zh-hans/1235226/)**
 
-通过这次参议院针对福奇的问询，至少说明了以下几点：一、福奇承认了他知道武汉病毒学研究所实验室进行了病毒功能增强研究；二、福奇为了“洗白”自己，跟武汉病毒学研究所和中共做切割，并趁此机会赶紧插中共两刀，以证明自己清白！；三、尽管福奇态度依然傲慢，但是此次被问询，明显看出傲慢中透露着内心的恐惧。今天的问询已经让在美国医学界教皇级的福奇跌落神坛，所以他恐慌中才“强力回击”保罗议员的质询；四、福奇同意彻查武汉病毒研究所，并上交所有与武汉病毒学研究所来往合同和邮件。看来是以福奇为切入点和突破点，以“毒灭共的大反攻”开始了，那些背后作恶的人，会逐渐浮出水面。天网恢恢疏而不漏，中共已经难逃法网；五、病毒泄露说是曾经给中共最后的机会，没想到中共作茧自缚，当初就是连病毒泄露都坚决不承认，这个世界没有“当初”，没有后悔药，现在中共已经没有回头路了，再一次“搬起石头砸了自己的擀面杖子”，中共只能在通向死亡的路上一路狂奔！古语云：“多行不义必自毙！”。这里借用七哥一句话“共产党，你完了！”
+作者：纽约香草山写作组 鹰(文言)
 
-[援引原文](https://www.thegatewaypundit.com/2021/05/rand-paul-rips-dr-fauci-funding-wuhan-virology-institute-lab-arrogant-fauci-hits-back-video/)
 
-审核校对：玫瑰天空
-上传排版：糖果儿
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

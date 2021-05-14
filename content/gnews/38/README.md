@@ -1,64 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月13日美国政要反共推文精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1239834/)
+## 【世事解评】王兴抄诗，毁了美团千亿市值？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1240063/)
 
-美国国务院： 国务卿安东尼·布林肯举了很多例子，说明在56个国家（涵盖世界上绝大多数的人民）还存在对宗教自由的高度的，严酷的打压限制。[#IRFReport2020](https://twitter.com/hashtag/IRFReport2020?src=hashtag_click) 【视频来里布林肯在最后提到：[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对新疆人及宗教人事犯下了并且还在采取诸如种族灭绝和反人类罪等活动】
-
-
-
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) provides examples of some of the high or severe restrictions on religious freedom that have been observed in 56 countries – encompassing a significant majority of the world’s people. [#IRFReport2020](https://twitter.com/hashtag/IRFReport2020?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/yiJxSlnNm5](https://t.co/yiJxSlnNm5)
-> — Department of State (@StateDept) [May 13, 2021](https://twitter.com/StateDept/status/1392977959464493057?ref_src=twsrc%5Etfw)
+香草山写作组 草根儿老炮
 
 
 
-参议员兰德·保罗： 主流媒体没有就中国实验室、病毒研究……向福奇提正确的问题。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04221555/s2-2.jpg)
 
 
 
-> The mainstream media is not asking Fauci the right questions about China lab, virus research… [https://t.co/giix0YywRp](https://t.co/giix0YywRp) [#FoxNews](https://twitter.com/hashtag/FoxNews?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Senator Rand Paul (@RandPaul) [May 13, 2021](https://twitter.com/RandPaul/status/1392876875626815488?ref_src=twsrc%5Etfw)
+5月6日，美团CEO王兴在饭否上贴出一首唐诗《焚书坑》，以抒久积心中之块垒。然而，他万万没想到仅仅因为在网上抄了一首古诗，让自己成为新闻焦点人物，被抛上舆论的风口浪尖！王兴被迫删除该贴文，并作澄清说明。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13205610/Screen-Shot-2021-05-13-at-8.55.19-PM.png)
+更有甚者，美团随后在股市里连遭重挫。从4月28号到5月10号，美团股价已经历了九连跌— —股价下滑了44％。短短十余天市值缩水一千二百多亿港元，总市值从去年巅峰时期的二万多亿港元跌落到不足一万五干亿。美团股价在一年内过山车式的表现，的确让人感到惊心动魄！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13205556/Screen-Shot-2021-05-13-at-8.55.25-PM.png)
+美团今年的确流年不利，时运不济。4月26日，中共市场监管总局发布通知，根据举报依法对美团实施“二选一”等涉嫌垄断行为立案调查。美团成为继阿里巴巴之后第二个被反垄断调查的互联网平台大公司。另外还伴随着“外卖小哥”待遇，消费者权益保护等舆论风波，这个中共国最大的“送餐外卖”公司，境况变得如履薄冰、如临深渊！
 
+让咱们回过头仔细端详一下，王兴先生到底在饭否上抄了怎样的一首“反诗”，引起了如此轩然大波。
 
+竹帛烟销帝业虚，关河空锁祖龙居。
 
-参议员瑞克·斯科特： 美国总统继续对共产中国惊人的人权虐待保持沉默，并拒绝与我会面商谈将2022年冬奥会移出共产中国，而到一个尊重人权的国家。很可耻，但我会继续为自由而战：[http://bit.ly/2RRSD2p](https://t.co/xXx4yokjQ3?amp=1)
+坑灰未冷山东乱，刘项原来不读书。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13205622/Screen-Shot-2021-05-13-at-8.55.13-PM.png)
+唐代诗人章竭写的这首七绝，以秦始皇焚书坑儒的史实为切入点。用夸张和讽刺的笔法揭示了焚书与亡国之间的矛盾，发人深省。尤其最后一句：刘项原来不读书，更是对秦始皇焚书的荒唐行为辛辣的嘲讽！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13205635/Screen-Shot-2021-05-13-at-8.55.08-PM.png)
+在中共国内外交困之下，打压民营企业的非常时期。王兴先生抄录这首唐诗借古讽今，当然会引起众说纷纭、舆论哗然！其中有外媒更是直言不讳的报道，王兴抄诗是在嘲讽当今圣上“习一坑”不学无术、胸无点墨。那句“坑灰未冷山东乱”，更是让人浮想联翩，让中南坑心惊胆颤！
 
+因为目前风起云涌的“爆料革命”领军人物— —郭文贵先生、郝海东球王、闫丽梦博士都是山东英杰。笔者由此大胆猜测— —王兴先生平时肯定没少看“爆料革命”和郭先生视频。这位清华毕业的留美硕士，是一位有独立思想的企业家。他当然知道美团今日被残酷打压的原因何在。
 
+有网友评论“前有马云演讲，后有王兴抄诗，人生巅峰尽头已到，自然祸从口出”，倒也描述的恰如其分，生动形象；更有网友揶揄道“庆丰不识字，何必乱读书？”真是有一针见血的味道！
 
-> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) continues to stay silent on Communist China’s horrific human rights abuses & refuses to meet with me on moving the 2022 Olympics out of Communist China & to a nation that respects human rights. It’s shameful, but I’ll continue fighting for freedom: [https://t.co/68lvDPdBvf](https://t.co/68lvDPdBvf)
-> — Rick Scott (@SenRickScott) [May 13, 2021](https://twitter.com/SenRickScott/status/1392919828814499844?ref_src=twsrc%5Etfw)
+当今中共国民营企业家的命运与历史何其惊人的相似。诚如《大明王朝》中富商沈一石自焚前所言：上下挥霍无度，掠之于民，民变在即，便掠之于商。沈某今日之结局皆意料中事。然而以沈某数十年倍受盘剥所剩之家财，果能填补国库之亏空否？
 
+中共王朝末年，习政权四面楚歌、末路狂奔。一方面为钳制言论大兴“文字狱”；另一方面对民营企业进行杀鸡取卵式的疯狂抢劫。妄想以高压和残暴手段延续极权统治，肯定是一枕黄梁美梦终将破灭！
 
+参考新闻：https://baijiahao.baidu.com/s?id=1699350112038331024&wfr=spider&for=pc&searchword=%E7%BE%8E%E5%9B%A2%E8%82%A1%E4%BB%B7%E6%9A%B4%E8%B7%8C
 
-众议员麦克·加拉格尔： 对实验室泄漏假说进行调查不仅仅是个好主意——也是完全必要的。我们需要完全的透明度来弄清新冠病毒是如何起源的真相。（转推说18名杰出的生物学家要求对新冠起源的所有可能性进行调查）
+编辑/审核/发稿：正义的小新
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+**更多资讯，更多关注**
 
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-> An investigation into the lab leak hypothesis isn't just a good idea — it's fully warranted. We need full transparency to get to the bottom of how COVID-19 originated. [https://t.co/0OS7aMxwD0](https://t.co/0OS7aMxwD0)
-> — Rep. Mike Gallagher (@RepGallagher) [May 13, 2021](https://twitter.com/RepGallagher/status/1392950279746854920?ref_src=twsrc%5Etfw)
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-众议员麦克·加拉格尔： 今天我将提出一项法案，要求拜登政府解密所有围绕武毒所和新冠病毒的所有情报。 很清楚中国共产党只会继续阻碍这些调查。假如我们想要答案，这也许是唯一获得的途径。
-
-
-
-> Today I'm introducing a bill that would require the Biden Admin to declassify all intelligence surrounding WIV and COVID-19.
-> 
-> It's clear the CCP will only continue to stonewall these investigations. If we want answers, this may be the only way to get them. [https://t.co/kF1CN5ZTr0](https://t.co/kF1CN5ZTr0)
-> — Rep. Mike Gallagher (@RepGallagher) [May 13, 2021](https://twitter.com/RepGallagher/status/1392901115113578502?ref_src=twsrc%5Etfw)
-
-
-
-众议员吉姆·班克斯： 约翰·克里在上周已经两次公开淡化维吾尔种族灭绝事件了，以免在气候谈判之前惹恼中国共产党 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 约翰·克里，降低多少磅的二氧化碳的释放等价于送一个维吾尔人进集中营？
-
-
-
-> John Kerry has downplayed the Uyghur genocide publicly TWO TIMES in the last week so as not to upset the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) before climate talks. 
->  [@JohnKerry](https://twitter.com/JohnKerry?ref_src=twsrc%5Etfw), how many pounds of C02 emission reductions are worth sending 1 Uyghur to a concentration camp? [https://t.co/61e7T4kMTL](https://t.co/61e7T4kMTL)
-> — Jim Banks (@RepJimBanks) [May 13, 2021](https://twitter.com/RepJimBanks/status/1392945817531686921?ref_src=twsrc%5Etfw)
-
-
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
 
 0

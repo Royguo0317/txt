@@ -1,41 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳媒报道：G7会议口罩和社交距离下的外长们
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1240261/)
+## 美国的《病毒白皮书》什么时候出来？后果是什么？
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1240508/)
 
-撰稿：喜妈 视频制作：喜安娜
+**摘要：在2021年5月5日的GTV直播中，郭先生回答了战友关于《病毒白皮书》什么时候出来的问题。他说美国的白皮书已经准备好了，出来的后果就是美国跟共产党脱钩和开战。他还说“接下来美国总统大选的这个事情的影响它会超出所有人的想象”。**
 
-澳洲主流媒体报道本国外长玛丽丝-佩恩参加伦敦七国集团会议。玛莉丝·佩恩与来自G7国家对口官员的会面，是他们两年来首次有机会在外交部长之间进行面对面的互动。
+**美国的《病毒白皮书》什么时候出来？后果是什么？**
 
-“这是一个美丽的早晨，很高兴见到你”，除了一个明显的例外，印度外交部长在该国代表团的两名成员对COVID-19进行阳性测试后被迫实行自我隔离。他的双向谈话实际上是视频进行的，而早前与美国国务卿的会面则不是。鲍里斯（Boris）：“我认为，尽最大可能继续做一个政府可能的事情非常重要，我们与印度有着非常重要的关系。”因此事件发生而导致停顿后，鲍里斯·约翰逊（Boris Johnson）否定了关于七国集团（G7）团聚可能还为时过早的建议。
+**When Will the White Paper of the CCP Virus Come Out?**
 
-但是今年与往年的对比却是惊人的。G7的外交部长们在2017年、2018年和2019年会面时还是肩并肩的，而在2021年却不得不戴着口罩和保持距离。在隔离屏幕和全体会议上，握手被肘部触碰和拳头对击所代替。兰开斯特宫有严格的COVID安全措施，每日测试，这在某种程度上为下个月G7峰会负责人进行尝试。多一点练习不会有啥坏处。
+乌鸦[问]病毒白皮书什么时候出。
 
-这段视频说明啥呢？我们可以从中看到一些什么样的动态呢？笔者认为如下：
+Crow (ID of a fellow fighter) asked when the white paper of the CCP virus will come out.
 
-第一，外长们也深刻体会到中共病毒对他们的工作开展，有很多不便。因此，问候致意手肘触碰，戴着口罩开会、拍照保持距离。这样的日子谁想过，这样的方式谁都烦，外长们都有体会了，对中共病毒的认识更加深刻。加上印度代表团直接现身说法，哪个与会的人不会心里犯愁、担心呢？难道大家不会想到，不会讨论到一个问题：到底是谁让世界变成这个样子？难道没有人不清楚，就是CCP是始作俑者吗？当然，外长们都有自己的国家级情报机构，啥都心里清楚。这些问题根本不用问，不用说，心照不宣。带着这样的心情开碰头会，会讨论和碰撞出怎样的火花，大家就都可以想到了。笔者认为，这些在中共病毒威胁下、干扰下、冲击下的外长们，一定会从自己的切身体会发出灭共的最强音。
+说到这的时候我给大家可以聊一下，现在据我所知美国（病毒）白皮书已经准备好了，美国出来白皮书的后果是什么呢？跟共产党脱钩和开战或开战，所以呢现在共产党也知道正在拉拢那些穷兄弟、姐妹们在联合国上要和美国较量。
 
-第二，作为接待这些外长们的英国首相，鲍里斯经受中共病毒的折磨，甚至自己的家人都搭上，跟着受中共病毒连累，之前虽然受到某些政治和经济利益上权衡，只能委曲求全，不敢跟CCP明着来。但是，现在世界的各种形势都在不断的演进中，相信他的体会和观点也在变化中。因此，作为他的出发点，认为七国集团的聚集十分必要，这其实是想强调，世界已经到了必须要面对如何处理中共和它投放的中共病毒的时候了。
+I can talk a bit about this with you guys. Based on my knowledge, the U.S. white paper [on the CCP virus] is ready. What is the consequence of publishing the white paper by the U.S. then? Decouple with the CCP and/or go to a war with the CCP! So, the CCP has been aware of this and is now trying to win over those poor brothers and sisters at the U.N. to fight against the U.S. with it.
 
-第三，鲍里斯的谈话中，还表现出印度疫情问题，让大家都很关切，是一个重大的事件。既然大家都觉得印度所发生的事情极为危急，而每一个国家都有可能发生同样的事情，那么，这次聚在一起的会面，一定是要阻止整个世界不要形成印度疫情被复制和演进的状态。从这里，笔者认为，英国首相并不是单纯在表明对印度的同情和支持，而是很隐含地指出，我们有共同的利益和诉求，我们是一伙的。我们不仅要为印度讨回公道，还要为我们自己争取免除更严重疫情袭击的机会。
+所以这个白皮书什么时候出来？我觉得很有可能白皮书出现了一个所谓的初级版本，先不说那么严重。
 
-第四，鲍里斯所说政府要尽可能做应该做的事情的意思，笔者的理解就是，各国在对待中共和中共相关的这些罪恶事情上，没有积极地努力地进行回应。因此，在这次的G7会议上，会有很多的积极推动和实质性的行动。政府没有做到人民所期待和所需要的事情，说得冠冕堂皇一点，就是必须要出面解救与会各国的经济、医疗和未来长远；说得比较通俗一点，就是我们这些当政的，如果不做出点实质的政绩，都会没有饭碗，都会给选下去，这是必然。
+So, when will the white paper come out? I think it is very likely that a preliminary version of it will come out first, with a less serious tone.
 
-第五，笔者认为，这些在G7会议前的外长碰面，其实就是为G7的首脑们正式的会议进行磋商、讨论和铺垫。G7会议应该是一次合纵连横的会议。外长碰头会只是一个准备，很快实质上，真正的首脑们，就会在碰面的时候，发出一些令人震撼的强烈声音。
+但是我觉得美国的现在这个较量、现在大选的这个情况，我说过，你记住战友们，2022年就是明年，美国的大选的结果和造成的美国社会的动荡它最终会出来，美国不可能让这次大选这事就这么拉倒了，是不可能的，一定会有一方倒下，滑稽的结果大家都看到了，两个副总统都不是省油的灯，大家也都看到了。
 
-这个会议，笔者看来，犹如二战时候的雅尔塔会议和德黑兰会议等的性质，它有着一种导致整个世界的走向和形势出现转折点的意味。至于如何转折，我们无法预测，可是那种深意，那种潜藏的、酝酿着的暴风雨，可能就发生在顷刻之间。历史常常都是在某些不经意之间就发生了。世界已经被冲击到如此七零八落、满目疮痍的地步，生命每天都在离去，相信，世界正在更快地觉醒。
+Regarding the current battle in the U.S. surrounding the presidential election, please remember, brothers and sisters, I have mentioned this before – the results of American presidential election and the social turmoil caused by it will eventually manifest next year in 2022. It is impossible for the U.S. to let the election go so easily. It’s just not possible. One side must fall. Everyone has seen the absurd result of the election and know that neither of the two vice presidents is easy to deal with. Everyone has seen it.
 
-本次纯属个人观点
+接下来美国总统大选的这个事情的影响它会超出所有人的想象，美国这个国家你可千万别小看，这个国家太伟大了，你不管看到有多荒谬的事情发生都是其他国家难望其项背的，这个国家不是完美的。但是美国不仅是修复能力，美国这个国家最重要的事情它是真真正正的与时俱进，它在创造中、灾难中、错误中甚至是挫折中它一次一次的强大，恢复到一个本质来说，美国这个国家是一个在一次一次的错误当中成长壮大的。
 
-参考资料：
+Next, the impact of the U.S. presidential election will go beyond everyone’s imagination. Never ever underestimate the United States of America. It is such a great country! However ridiculous things happened can never eradicate its greatness. Although this country is not perfect, no other country is a match to it, not even close. The U.S. does not only have the ability to recover itself but also has the ability to keep in pace with the era. It always becomes stronger and stronger in the process of creation, disasters, mistakes as well as frustrations. The U.S. is essentially a country that learns and grows from its own mistakes.
 
-[Concerns China may target Australian gas exports next](https://www.9news.com.au/national/china-trade-sanctions-target-australian-gas-exports/9af52f1e-1a58-4182-aab3-dee6b0e95fb6)
+那么这个白皮书的结果会是被谁利用呢？一定记住美国总统大选这个事情完后，一定是美国最后出现一系列的政治滑稽事件之后，这个白皮书最终会推出最终版本，最终的版本。
 
-*审核&编辑：Runaway*
+Then, who will take advantage of the results of the white paper? Please remember, the final version of the white paper will be out after the U.S. presidential election is wrapping up and must be after the occurrence of a series of absurd political incidents.
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=60929c03db13300ca5491b6d](https://gtv.org/video/id=60929c03db13300ca5491b6d)  (1:54:28-1:57:08)
+鸣谢：感谢黑郁金香（文郁）、山川异域和[喜联盟七哥直播组](https://gnews.org/zh-hans/author/miles-broadcast/)提供中文文本于 [https://gnews.org/zh-hans/1180220/](https://gnews.org/zh-hans/1180220/)
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/08091455/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
+* * *
+
+翻译：【7PawBear（纽约香草山农场）】
+字幕：【Rock小哥】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】【Rock小哥】
+校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
 +1
