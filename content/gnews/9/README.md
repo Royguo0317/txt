@@ -1,38 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “一带一路”战略是中共军国主义霸权下的经济掠夺
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1239664/)
+## 【热点播报】更多证据指向福奇资助中共军方用于生物战的病毒研究
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1239827/)
 
-作者：随波逐流 | 校对：X-Wing飞得更高 | 审核：宁缺 | Page：我是球大哥
-
-[!\[\]()!\[\](https://spark.adobe.com/page/eQo5R0wgx9o1r/images/dc3e96d9-56fc-458c-9267-a5c0f250b2da.jpg?asset_id=c0250df0-79e9-4bc2-b6c9-0995b6001ae0&amp;img_etag=%22ad53c10dce62570113ce307663353d95%22&amp;size=1024)](https://spark.adobe.com/page/eQo5R0wgx9o1r/images/dc3e96d9-56fc-458c-9267-a5c0f250b2da.jpg?asset_id=c0250df0-79e9-4bc2-b6c9-0995b6001ae0&amp;img_etag=%22ad53c10dce62570113ce307663353d95%22&amp;size=1024)
-
-近些年来，中共借推广“一带一路”战略的机会，陆续在各大洲参与的国家中投资建设了一些具有重要经济意义和战略意义的港口，拿下了许多重要海上航线的咽喉要道，诸如巴基斯坦的瓜达尔港 、澳大利亚的达尔文港和非洲的吉布提港。这些港口连在一起，可打通连接太平洋、印度洋和大西洋之间的多条海上通道，使各大洲之间的海上贸易运输更为便利，大大缩短了海上航行距离，在经济上有助于节省运输成本。但很明显，中共更加看重的是这些港口的军事意义，因为中共的目标是要对外军事扩张，然后以强大的军事力量作为保障，达到对“一带一路”沿线各国的全面入侵，将这些国家的政治、经济、文化等全部纳入其军事控制之下，实现其军国主义霸权下的帝国梦。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/eQo5R0wgx9o1r/images/1e794020-a343-410b-b9ab-8b7842a0d295.png?asset_id=c74aa82a-bf3a-4483-bfa5-d5f29a736124&amp;img_etag=%22ed72837cdb333ec4a054d3372a950f7d%22&amp;size=1024)](https://spark.adobe.com/page/eQo5R0wgx9o1r/images/1e794020-a343-410b-b9ab-8b7842a0d295.png?asset_id=c74aa82a-bf3a-4483-bfa5-d5f29a736124&amp;img_etag=%22ed72837cdb333ec4a054d3372a950f7d%22&amp;size=1024)
-
-这些港口都处在海上战略通道上，拿下了一个港口等于占领了一个阵地，这样才能在战时让军队快速且无阻碍地到达目的地。中共这些年不断在这些港口建立军事基地，部署军队、武器和各种补给设施，已做好了一切战争准备。此举现已引起了美国的关注和警惕，美国担心中共在非洲大西洋沿岸修建更多这样的军事基地，因为这里离美国更近些，直接威胁到美国的领土和国家安全。
-
-中共最近几年在东海和台湾海峡进行了几次大规模的军演，频频向世界秀肌肉，以显示自己是一个军事强国，呈现给世界的是一个挑衅的姿态和不服来战的态度，看似下定决心要与美国一较高下。在亚洲，中共不顾国际海洋公约的规定和美国及全世界的谴责，对南中国海周边岛屿和台湾蛮横无理地宣示着主权，并派出军舰和飞机到这些岛屿附近进行骚扰。同时又发布了新的海事法，赋予海岸警卫队可对过往船只开火的权利，挑战全世界的底线。中共的野蛮做法已严重侵犯了台湾和东南亚周边邻国的领土主权并威胁到这些国家的安全，给这一地区正常的海上贸易运输也埋下了安全隐患。
-
-现在，中共又要在非洲、美洲及欧洲建立更多的军事基地，把军事力量推进到更远的地方。在非洲的吉布提海军基地以及美洲的委内瑞拉，中共都暗中部署了部队、核潜艇、航空母舰和各种武器装备。这些位置已经非常接近美国本土和欧洲大陆，等于到了别人的家门口驻军，这严重威胁到大西洋沿岸欧洲国家和美国的国家安全。中共已完全走上了二战期间，德国和日本所走过的军国主义的不归路。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/eQo5R0wgx9o1r/images/06a8e508-ec8f-48be-a54a-7b8dc79ea4cf.jpg?asset_id=4ba0a367-4619-4cc7-8586-0f4b381965a8&amp;img_etag=%22673013d7f8fd6c8d73713a9a9110d001%22&amp;size=1024)](https://spark.adobe.com/page/eQo5R0wgx9o1r/images/06a8e508-ec8f-48be-a54a-7b8dc79ea4cf.jpg?asset_id=4ba0a367-4619-4cc7-8586-0f4b381965a8&amp;img_etag=%22673013d7f8fd6c8d73713a9a9110d001%22&amp;size=1024)
-
-吉布提战略地位非常重要，美国、法国和日本等国在此设有军事基地。
-
-纵观历史，靠穷兵黩武征服世界的国家都给人类带来了巨大的灾难，像纳粹德国对犹太人的大屠杀，还有日本当年在远东地区的军事入侵，造成了中国和东南亚国家的无数平民伤亡。他们的残酷暴行最后都遭遇了多国联军的集体讨伐，被彻底消灭。中共今天的嚣张做法和它向世界发动的“病毒战”给世界带来的伤害已远远超越了纳粹德国和日本。以古为鉴，可知兴替，中共一定逃不过被全世界围剿的命运，全球灭共联军定会以数倍于当年二战的力量，对中共发起强烈反击！
-
-**文章仅代表个人观点**
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+作者：纽约香草山翻译部 文明世界
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/eQo5R0wgx9o1r/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/eQo5R0wgx9o1r/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+
+
+
+5月12日，继昨天曝光中共军方对美国病毒研究的大规模渗透之后，塞林博士（Dr. Sellin）今天继续发推， 进一步揭露德克萨斯大学医学部（UTMB）跟中共军方的关系。塞林博士推特中称，该校的病毒研究项目好比是一个解放军的培训基地， 该项目由安东尼-福奇——五角大楼资助，由跟中共友好的UTMB教授们推动。
+
+推文附带的链接指向一篇由塞林本人（*Lawrence Sellin*）和陈安娜（Anna Chen）联合撰写的文章。该文章于5月12日在美国媒体网站《门户专家》（The  Gateway Pundit ）由乔-霍夫特（Joe Hoft）发表，标题为《独家：更多证据表明福奇博士正在资助中国人民解放军进行用于生物战的病毒研究（突发更新）》。今天的文章提到另一位在德克萨斯学医学部（UTMB）工作、与中共军方有关联的华人科学家、病理学副教授龚斌（音译）（Bin Gong）。（文章声明，我们看到的情况令人震惊，但如果我们错了，请予纠正。）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13202120/12-49.jpg)图片来源：门户专家
+
+文章称，我们在4月初报告说，COVID-19是中共的一次生物攻击（发表于4月1日《门户网站》），我们还曾报道说，有明确的证据表明，COVID-19是由中（共）国军队制造的（发表于2020年9月15日《门户网站》），昨天我们报道了中（共）国军方对美国病毒研究的渗透。今天我们有更多信息。
+
+文章提及一个新名字，龚斌（音译），一位在加尔维斯顿（Galveston）的德克萨斯大学医学部（UTMB）的病理学副教授。
+
+大家可能已经知道，UTMB是一个主要的病毒研究中心，是少数拥有生物安全4级的研究设施，由美国国家卫生研究院NIH，特别是安东尼-福奇博士（Dr. Fauci）的国家过敏和传染病研究所（NIAID）大量资助。该中心也是美国国防部资助的生物防御和新发传染病中心的所在地，用于控制和开展世界上最危险的病毒研究。
+
+文章介绍，龚斌（音译）是在中国上海的中（共）国人民解放军第二军医大学获得医学博士和博士学位。1988年还在第二军医大学时，龚斌就在中共解放军的《军事情报》杂志发表了一篇文章。据他2019到2020年的论文发表记录，龚斌似乎从未真正离开过解放军第二军医大学，他只是将UTMB作为解放军科学家的培训基地。
+
+龚斌在UTMB带的见习生，与他合作的科学家，都隶属于上海的长海医院。通过龚斌早期发表的一篇文章就会知道，长海医院是第二军医大学的一部分，也被称为第二军医大学第一附属医院。但是，中共和解放军的科学家是不会轻易暴露他们的真实隶属关系。
+
+作者查证其它文献，证实在2019年和2020年与龚斌合作过的人都隶属于第二军医大学。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13203225/13-30.jpg)
+
+文章称，这只是UTMB与中共解放军和中共病毒研究项目有明显关联的冰山之一角。UTMB史佩勇教授似乎与中（共）国人民解放军有着更广泛的联系——他在武汉病毒研究所的活动不仅仅是荣誉性的。自2004年以来，福奇通过国家过敏和传染病研究所给予史佩勇超过500万美元的研究资助。自2016年以来，福奇的国家过敏和传染病研究所已经给予龚斌超过270万美元的研究资助。
+
+由此可见，福奇将美国人民的纳税钱，用于资助美国在UTMB的顶级病毒研究， 而在其中的华裔教授们，却与中共军方及院校有着密切联系，把UTMB当成的解放军的培训基地。 福奇等于资助了中共军方用于生物战的病毒研究。美国人民该惊醒了。
+
+参考阅读：
+
+[EXCLUSIVE: More Evidence Dr. Fauci Is Funding China’s People’s Liberation Army In Virus Research Used In Biological Warfare (Breaking Update Added)](https://www.thegatewaypundit.com/2021/05/exclusive-evidence-dr-fauci-funding-chinas-peoples-liberation-army-virus-research-used-biological-warfare/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0

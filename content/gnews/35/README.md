@@ -1,23 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共电信商被退市，美中脱钩不停歇
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1239460/)
+## 【NEWS EXPRESS】美管道运营商支付黑客500万美元加密货币
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1239586/)
 
-#### 翻译：zzballack|校对：卡拉马佐夫姐姐
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13180645/capture-9.jpg)图片来源：qz.com
-据路透社最新报道，根据去年颁布的美国投资禁令(禁止美国投资者对中共国军方拥有或控制的企业进行投资)，本周五三家中共国电信运营商将会被纽约证券交易所摘牌。
+两名熟悉交易的人士告诉彭博社，管道运营商Colonial向黑客支付了近500万美元的无法追踪的加密货币，这与早先的报道称该公司无意满足犯罪团伙勒索的要求相矛盾。
 
-周五，中国移动、中国联通和中国电信三家公司各自发布公告称上诉失败后，预计纽交所会通知公司管理者其摘牌决定。一位纽交所发言人拒绝对此发表评论。
+知情人士说，赎金是在上周袭击事件发生几小时后才还清的，但输油管又封闭了六天，引发了严重的天然气短缺，恐慌性购买和整个南部的混乱。
 
-旨在针对中共科技公司的投资禁令中的除名清单由美国前任总统川普定制。在世界最大两个经济体间的紧张局势持续加剧期间，拜登仍保留此禁令，尽管此举遭到了一些来自商业界的反对。
+一位知情人士说，黑客提供的解密密钥太慢了，公司继续使用自己的备份来帮助恢复系统。
 
-这三家公司表示会在纽交所签署完第25号表格（Form 25，即关于上市公司退市的表格）并交给美国证券交易委员会（U.S. Securities and Exchange Commission, 简称SEC）10天后，摘牌决定正式生效。
+同样，据说已有40年历史的管道维护着复杂的IT基础架构，其中包括过时的系统，这些系统多年来已经相互“融合”在一起。
 
-* * *
+DarkSide在其支付门户上向受害者承诺：“不用担心，我们是出色的解密专家。”
 
-译评：随着全球对中共邪恶本质的了解愈发深入，对其的强硬措施也接踵而至。美国最新决定将三家中共电信公司从纽交所摘牌无疑是对中共的沉重一击，除了断其财路，也在信息战上迈出重要一步。这三家公司为中共的防火墙建设提供了重要支持。防火墙阻隔了世界与中国之间的彼此了解，为中共的大内宣大外宣提供了方便。一旦防火墙的技术支持被切断，其倒塌也指日可待，当中共无法再借其混淆视听洗脑民众时，其恶行必被世人知晓。
+据《纽约时报》记者妮可·佩罗罗斯（Nicole Perlroth）称，敲诈勒索的收益是用比特币支付的。
 
-&gt;&gt;原报道链接&gt;&gt;[Three Chinese telecom companies to be delisted by NYSE](https://www.reuters.com/business/media-telecom/three-chinese-telecom-companies-be-delisted-by-nyse-2021-05-07/)
+DarkSide向受害者收取比特币付款的费用比替代货币加密货币Monero的费用高20％，后者更容易清洗，这表明Colonial大约支付了额外的830,000美元来迅速结束攻击。
+
+亿万富翁食品杂货连锁店老板兼广播电台人物约翰·卡西米蒂斯（John Catsimatidis）告诉福克斯商业网络（Fox Business Network），他听说科洛尼尔（Colonial）支付了400万美元的赎金，并将黑客称为“恐怖分子”。
+
+拜登在讲话中说，他的政府已经采取了“非常规措施”，例如放宽了卡车运输规则，这有助于装满500万辆汽车的油箱。
+
+拜登周三晚上还废除了《琼斯法案》，该法案限制了美国各港口之间向美国船只的转移，他说政府将在必要时给予额外豁免。
+
+拜登还敦促驾驶员不要获得比他们需要的更多的汽油，他说，他希望这个周末情况会有所改善，并警告加油站不要抬高价格。
+
+他说：“没有人应该利用这种情况谋取经济利益，这就是黑客们正在试图做的事情。”
+
+参考链接：
+
+[https://www.dailymail.co.uk/news/article-9575133/East-Coast-fuel-supplies-two-WEEKS-return-normal-say-experts.html?ito=social-twitter\_dailymailus](https://www.dailymail.co.uk/news/article-9575133/East-Coast-fuel-supplies-two-WEEKS-return-normal-say-experts.html?ito=social-twitter_dailymailus)
+
+整理撰稿：蓝精灵
+
+校对发布：Penny
+
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

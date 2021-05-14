@@ -1,55 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 夜 六四
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1230594/)
+## 【NEWS EXPRESS】哈萨克颁布新法 禁止向外国人出售土地
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1239687/)
 
-澳洲墨尔本雅典娜农场 – 东北上空的鹰
+哈萨克总统周四颁布禁止向外国人出售可耕地法令。
 
+刚刚颁布的这一新法使得自2016年暂停向外国人出售土地的临时措施永久化。法新社报道说，2016年以来，在反中情绪推动下，哈萨克多次爆发示威，反对政府当时提出的有关向外国投资者开放出售可耕地市场的计划。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12092212/%E8%80%81%E9%B9%B0-1.png)
-图片来源：墨尔本雅典娜农场设计组（文康）
+法新社报道称，哈萨克政府与北京保持着良好的关系，该国也是中国“一带一路”计划的重要合作国。但是哈萨克反对派人士越来越担心，作为一个燃料和矿石资源丰富的哈萨克，最终会变成中国的附庸。另外，中国在新疆地区镇压包括维吾尔与哈萨克等少数民族在内的穆斯林，也越来越引起哈萨克民众的反感。
 
-夜，枪声响起，
+当地人权人士表示，从新疆移民到该国的50多万哈萨克人，2017年起到现在无法与在新疆的家人取得联系。北京此举令哈萨克人愤怒。
 
-击碎了多少中国人民自由民主之梦。
+参考链接：
 
-夜，隆隆履带，
+[https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210513-%E6%B0%91%E9%97%B4%E5%8F%8D%E4%B8%AD%E6%83%85%E7%BB%AA%E5%8D%87%E6%B8%A9-%E5%93%88%E8%90%A8%E5%85%8B%E7%A6%81%E6%AD%A2%E5%90%91%E5%A4%96%E5%9B%BD%E4%BA%BA%E5%87%BA%E5%94%AE%E5%9C%9F%E5%9C%B0?ref=tw\_i](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210513-%E6%B0%91%E9%97%B4%E5%8F%8D%E4%B8%AD%E6%83%85%E7%BB%AA%E5%8D%87%E6%B8%A9-%E5%93%88%E8%90%A8%E5%85%8B%E7%A6%81%E6%AD%A2%E5%90%91%E5%A4%96%E5%9B%BD%E4%BA%BA%E5%87%BA%E5%94%AE%E5%9C%9F%E5%9C%B0?ref=tw_i)
 
-碾压了中国人渴望平等博爱之翼。
+图片来源：[https://www.rfi.fr/cn](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210513-%E6%B0%91%E9%97%B4%E5%8F%8D%E4%B8%AD%E6%83%85%E7%BB%AA%E5%8D%87%E6%B8%A9-%E5%93%88%E8%90%A8%E5%85%8B%E7%A6%81%E6%AD%A2%E5%90%91%E5%A4%96%E5%9B%BD%E4%BA%BA%E5%87%BA%E5%94%AE%E5%9C%9F%E5%9C%B0?ref=tw_i)
 
-那一夜如此的漫长，
+整理撰稿：蓝精灵
 
-那一夜多少中华儿女倒下，
+校对发布：Penny
 
-那一夜我们彷徨无助。
-
-CCP IS THE EVIL
-
-CCP IS THE EVIL
-
-CCP IS THE EVIL
-
-不，还有无数中国人站起来，
-
-不，倒下的只是身躯，抗争精神永不为奴！
-
-TAKE DOWN THE CCP
-
-TAKE DOWN THE CCP
-
-TAKE DOWN THE CCP
-
-​我们秉持正义，
-
-我们唯真不破，
-
-我们砥砺前行​！
-
-​TAKE DOWN THE CCP
-
-​TAKE DOWN THE CCP
-
-​TAKE DOWN THE CCP
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

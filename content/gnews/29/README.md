@@ -1,35 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## NCSC警告英国初创企业来自中国和俄罗斯黑客的威胁
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1239500/)
+## 【NEWS EXPRESS】以色列准备开辟地面战线
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1239624/)
 
-初创企业应监控员工的债务或情绪波动等数值，这可能意味着他们试图窃取信息
+以色列星期四说，在这两个痛苦的敌人陷入全面战争前，正在加沙边境集结部队并召集9000名预备役人员，可能对哈马斯统治的领土进行地面入侵。埃及调解员赶赴以色列进行停火努力，但没有任何进展的迹象。
 
-政府在在线发布的新指南中警告了英国科技初创企业中国和俄罗斯构成的黑客威胁。
+为期四天的暴力爆发将以色列推向了未知的领域-处理与哈马斯有史以来最激烈的战斗，同时应对了数十年来以色列境内最严重的犹太阿拉伯冲突。
 
-国家网络安全中心是情报机构GCHQ的一个部门，已发布了新的“安全创新”指南，该指南警告技术公司保持其网络不受外国间谍的侵害。
+星期四晚，以色列国防部长本尼·甘茨（Benny Gantz）下令动员另外9000名预备役人员。
 
-该指南警告说：“在新兴技术上取得成功的竞争可能非常激烈。”在给初创企业提供俄罗斯和中共国间谍入侵企业以窃取有价值技术的实例之前，该指南警告道。
+首席军事发言人布里格。希代·齐尔伯曼（Hidai Zilberman）将军说，部队正在沿加沙边界集结，以便进行地面行动。他说，坦克，装甲车和大炮正在“随时准备动员”。
 
-NCSC警告说，英国的初创企业应该警惕国际合作，因为它“加剧了安全风险”，并且“某些外国可能出于与英国的利益和价值观不符的原因而寻求技术进步。”
+参考链接：
 
-NCSC写道，渴望投资的新兴企业也应警惕从某些国家/地区收取资金。该指南警告说，未来的投资者可能会检查“其他投资者是否拥有与其自身相似的价值和目标”。
+[https://apnews.com/article/israel-palestinians-conflict-violence-spreads-1ad9613de6ad16c4d248da9934cf0412?utm\_campaign=SocialFlow&utm\_medium=AP&utm\_source=Twitter](https://apnews.com/article/israel-palestinians-conflict-violence-spreads-1ad9613de6ad16c4d248da9934cf0412?utm_campaign=SocialFlow&amp;utm_medium=AP&amp;utm_source=Twitter)
 
-企业应提防警告信号，以防止其员工变得“不满”，并可能试图窃取信息。任何表现出“无法解释的财富”，“攻击性行为”或“工作方式改变”的初创员工都可能试图通过窃取或出售秘密来破坏组织。
+图片来源：[https://apnews.com](https://apnews.com/article/israel-palestinians-conflict-violence-spreads-1ad9613de6ad16c4d248da9934cf0412?utm_campaign=SocialFlow&amp;utm_medium=AP&amp;utm_source=Twitter)
 
-美国当局去年透露，一个中国黑客组织于去年四月闯入一家不具名的英国人工智能企业的网络，当时他们正在寻找有前途的技术发展。
-
-两名中共国黑客被指控进行了长达十年的工业间谍活动，其中包括窃取软件源代码以及武器和其他制成品的设计。
-
-简评：多年来，从事人工智能，量子计算等突破性高技术工作的英国初创企业从与中共国有联系的投资者那里获得了丰厚的投资条件。中共通过商业间谍的方式向西方渗透和盗取技术，随着中共病毒在全球肆虐，在四年多的爆料革命的揭露下，英美等西方安全部门已觉醒并纷纷制定反中共威胁的法令法规。
-
-新闻来源：[https://www.telegraph.co.uk/technology/2021/05/12/ncsc-warns-british-start-ups-threat-chinese-russian-hackers/](https://www.telegraph.co.uk/technology/2021/05/12/ncsc-warns-british-start-ups-threat-chinese-russian-hackers/)
-
-编译： Boxinglady
+整理撰稿：蓝精灵
 
 校对发布：Penny
 
-本文只代表个人观点，不代表 Gnews 平台
+\*以上仅代表作者观点，不代表Gnews平台\*
 
-0
++1
