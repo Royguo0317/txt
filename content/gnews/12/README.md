@@ -1,62 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 「疫情下的西班牙」西班牙跑赢疫情了吗？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1242709/)
+## 美退役将领就拜登的大选及健康等发公开信
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1242804/)
 
-- 翻译：gokuabuela
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
+编辑上传 水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14141842/B-13.jpg)fox4news.com
+05月13日RBC报道，124名美国退役陆军和海军将领表示需要检查美国总统乔·拜登（Joe Biden）的身心健康，并提出了2020年总统选举的合法性问题。他们在门户网站《Flag Officers 4 America》上发表了他们的信件。该网址的描述称，这是一个由退役美国军人组成的门户网站，他们“承诺支持和捍卫美国宪法，反对一切国内外敌人”。
 
-我们先关注一下西班牙截至5月13日的最新疫情通报:i
+这封信认为，美国“危在旦夕”，美国人被迫为“一个宪政共和国的生存”而战，这是自1776年建国以来从未见过的。
 
-新增感染人数：5701例
+该文件说，2020年的选举结果可能被操纵，公民的投票存在违规行为。
 
-新增死亡人数： 73例
+军方还指出，拜登政府对美国人的宪法权利发起了“全面攻击”，并“以独裁的方式”绕过国会签署了50多项行政命令，其中许多命令推翻了前政府的规定。
 
-14天感染率/10万人： 166例
+此外，将军们还批评了“人口控制措施”，如封锁、关闭学校和企业，以及审查制度。他们称这是对美国人权利的“直接攻击”。
 
-原本预计中的第四波中共病毒爆发，似乎已经过去了。每天虽然还有新增病例，但总体呈下降趋势。特别是14天感染率，最近的24小时内就下降了6例，这个数字是比较大的。
+“总司令乔·拜登的精神和身体状况不能被忽视。他必须能够迅速做出准确的国家安全决定，不论白天或晚上在任何地方的生命和健康。”这封信在提到要采取的措施时说。
 
-据报道，西班牙重症监护室(ICU)因中共病毒而产生的占用率也在今年首次降到了20%以下。
+这封信由124名来自各军种的退役军官签署。该文件由退役的海岸警卫队少将欧内斯特·阿克林、海军陆战队少将约瑟夫·安德森、空军准将查尔斯·毕晓普等人签署。
 
-政府将这一切归功于疫苗战略。继5月份已经接种500万人后，将加快接种速度。
+美国总统选举于去年11月举行。根据投票结果，川普输给了拜登。同时，共和党人拒绝承认选举结果，并多次称过去的投票是“一场大骗局”。特别是，川普反对在选举日之后邮寄选票的计票结果，还谈到拜登的胜利是由关键州的主要城市的腐败造成的。
 
-希望达到8月底前完成70%人口接种的目标。（达到约3000万人接种）。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14133241/AA.jpg)
-***（黑色部分是已接种人数，红色部分是目标人数）***
+在就职典礼后，拜登推翻了川普的许多行政命令。特别是，他让美国重返巴黎气候协定，取消了美国退出世界卫生组织（WHO）的决定，解除了对几个穆斯林和非洲国家公民的入境禁令，并停止了在与墨西哥交界处修建边境隔离墙。
 
-桑切斯政府宣布，已经准备好了大量的疫苗，仅6月份就将接受1300万支辉瑞疫苗。将保证接种的速度。
+参考链接：
 
-各自治区也开始降低接种人群的年龄限制，部分自治区6月开始将为40-50岁这个年龄段的人接种。
+[https://www.rbc.ru/rbcfreenews/609cbddd9a7947597b744bc3](https://www.rbc.ru/rbcfreenews/609cbddd9a7947597b744bc3)
 
-5月9日解除了国家紧急状态后，大部分自治区逐步放开了餐饮业和零售业的限制。民众也开始恢复到正常的生活：拥挤的酒吧，人满为患的海滩。今天开始，解除紧急状态后的第一个周末，游客数量暴涨，超过了之前的119%。
-
-政府信心满满，指出西班牙的经济复苏将进入快车道，似乎就准备宣布“抗疫成功”了。
-
-西班牙真的已经跑赢疫情了吗？
-
-根据西班牙政府、媒体、医学界、经济学家的分析，跑赢疫情的关键在于疫苗的接种速度。而我们则清楚的知道，西班牙疫情的关键在中共。
-
-在于中共的下一步战略目标是什么？
-
-一种可能，是中共暂时停止释放病毒，以表明病毒不是自己放的，减轻世界灭共的压力。同时继续和各国发展疫情经济，发展外贸经济，以挽救自己即将崩塌的经济。
-
-世界上大部分国家的“最高层”应该都知道了病毒的来源，中共也可以暂时收手。同时向各国传达这样一个意思：与我合作，我就不放病毒了，咱们谈谈投资协议，谈谈怎样不和美国合作。如果不和我合作，你们也知道病毒的威力了，哼哼，印度就是榜样。这就是所谓的“一手胡萝卜，一手大棒”。
-
-特别是对欧洲，中共还是想拉拢的，至少要分裂欧、美的联盟。
-
-当然，还有一种可能，一切都是西班牙政府一厢情愿，以为疫苗有效，以为疫情过去了。殊不知，下一波已经在来的路上了。
-
-不管怎样，病毒是在中共的手中的，什么时候想放就什么时候放，想放哪个变种就放哪个变种。如果还把疫情的主动权放在中共的手上，下一波疫情就一定会来，而且会更惨烈，更持久！
-
-素材：gokuabuela；审核：Aries的星；校对：信心满满； 发稿 :Nuevo唐人
-
-**新闻来源：**[abci-coronavirus-espana](https://www.abc.es/sociedad/abci-coronavirus-espana-incidencia-virus-baja-166-casos-202105140521_directo.html#vca=mod-lo-mas-p3&amp;vmc=leido&amp;vso=sociedad&amp;vli=noticia.foto.sociedad&amp;vtm_loMas=si) / [coronavirus-datos-sanidad](https://www.elconfidencial.com/espana/2021-05-13/coronavirus-datos-sanidad-contagios-fallecimientos-13-mayo_3079183/) / [vacunacion-objetivos-datos](https://www.elconfidencial.com/espana/2021-05-13/vacunacion-objetivos-datos-coronavirus_3079656/) / [pedro-sanchez-anuncia](https://www.elconfidencial.com/espana/2021-05-13/pedro-sanchez-anuncia-13-millones-dosis-vacuna-coronavirus-pfizer-junio_3078807/) / [abci-ocho-comunidades](https://www.abc.es/sociedad/abci-ocho-comunidades-comenzaran-vacunar-partir-junio-personas-entre-40-y-50-anos-202105140051_noticia.html#vca=mod-lo-mas-p2&amp;vmc=leido&amp;vso=sociedad&amp;vli=noticia.foto.sociedad&amp;vtm_loMas=si) / [abci-disparan-reservas](https://www.abc.es/sociedad/abci-disparan-reservas-turisticas-para-primer-semana-tras-estado-alarma-202105141415_noticia.html)
-
-[西班牙巴塞罗那喜悦农场：疫情下的西班牙专栏](https://gnews.org/zh-hans/993776/)
-
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
-
-
-
-+1
+0
