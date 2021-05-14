@@ -1,12 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】美国病毒白皮书将在何时推出最终版？
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1241878/)
+## 心之所盼—喜马拉雅
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/1241880/)
 
-By: 【秘密翻译组G-Translators】
-
-郭文贵
-2021年5月5日
-
-+1
+作者：猫头鹰
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14075347/%E5%BF%83%E4%B9%8B%E6%89%80%E7%9B%BC-2021.05.12-%E7%8C%AB%E5%A4%B4%E9%B9%B0-%E5%96%9C%E9%9F%A9%E5%86%9C%E5%9C%BA-1.png)
+0

@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我们的职责—致敬八九六四革命先驱
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/1241738/)
+## 新中国联邦一周年庆
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/1241817/)
 
-作者：文小明
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14072802/64_02-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14072730/64_01-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14072845/64_03-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14072927/64_04-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14073010/64_05-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14073054/64_06-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14073142/64_07-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14073226/64_08-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14073313/64_09-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14073357/64_10-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14073433/64_11-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14073457/64_12-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14073529/64_13-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14073613/64_15-2.png)
-+1
+作者：春暖花开
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14075435/%E5%91%A8%E5%B9%B4%E5%BA%86-2021.05.12-jam%E6%98%A5%E6%9A%96%E8%8A%B1%E5%BC%80-%E5%96%9C%E9%9F%A9%E5%86%9C%E5%9C%BA-2.jpg)
+0

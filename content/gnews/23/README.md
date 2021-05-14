@@ -1,91 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（二十一）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1241968/)
+## 【观点】如何破局中共的商鞅驭民五术
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1241953/)
 
-作者：纽约香草山信息部 6zero4
+#### 作者：熊猫乱滚
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+#### 编辑：翼族
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14083923/%E5%95%86%E9%9E%85.jpg)
+图片来源：IC Photo
 
+关于《商君书》中包含的驭民五术：
 
+1、壹民：统一思想。
 
-5月13日塞林博士的6连推：
+2、弱民：国强民弱，治国之道，务在弱民。
 
-第1推，明确的证据表明，截至2020年，Antony Fauci的NIAID一直对与PLA关联的WIV的一项完全独立的寨卡病毒“功能获得”研究计划保持资助。并贴上他们之间合作研究联合发表科研论文的网页截图，尤其是NIH/NIAID/CDC科研经费拨款编号的证据揭示。
+3、疲民：为民寻事，疲于奔命，使民无瑕顾及他事。
 
+4、辱民：一是无自尊自信；二是唆之相互检举揭发，终日生活于恐惧氛围中。
 
+5、贫民：除了生活必须，剥夺余银余财（即通货膨胀或狂印钞票）；人穷志短。
 
-> Unequivocal evidence that Anthony Fauci's NIAID, as of 2020, has been funding an entirely separate "gain of function" Zika virus research program with the Wuhan Institute of Virology and linked to the People's Liberation Army. [pic.twitter.com/5KSWjTUoAv](https://t.co/5KSWjTUoAv)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 12, 2021](https://twitter.com/LawrenceSellin/status/1392514545764155392?ref_src=twsrc%5Etfw)
+五者若不灵，杀之。
 
+我逐一解读如下：
 
+**第一条：壹民**
 
-第2推，转推“xiaomayi”战友回应塞林博士上一推的推文，是一张“第八届新生病毒性疾病控制学术研讨会”与会人员的集体照，并标注出来一些关键人员，诸如：周鹏、Ralph Baric、Peter Daszak、王林发、石培勇、姜世勃、石正丽、李放、程功(清华大学，虫媒病毒研究员) 、邱香果(加拿大华裔病毒学家) 、蓝柯、陈新文(前WIV所长，现CAS研究员) 、王延轶、肖根福(井冈山大学)等。这是COVID-19侦探“xiaomayi”的出色工作成果。（程功 、邱香果、陈新文和肖根福真容浮出水面）
+即统一思想，让老百姓有一个统一的认识。这一点很重要，如果思想都不统一，百家争鸣，说什么的都有，人民思想自由就会冲击到统治者的权威性。这时候必须让大家有一个共同的认识，心里想的一致，没有二心，起初CCP靠最原始的横幅标语、大喇叭、报纸宣传，现在靠电视、电脑、手机宣传，且不说那些零零碎碎的宣传标语，就几代领导人最典型的理论就有毛泽东的“毛泽东思想”，邓小平的“邓小平理论”，江泽民的“三个代表”，胡锦涛的“八荣八耻，科学发展观”和习近平的“中国梦”。
 
+**第二条：弱民**
 
+就是削弱百姓的实力，如果百姓富强，富可敌国，那么百姓就可以影响政治。所以，中共要么将你消灭，要么将你纳入体制并加以监控。另外，中央为了加强经济集中制，避免地方政府做大做强形成“军阀割据”，强枝弱干，就让地方龙头企业所得的收益全部归入中央（即红色权贵家族），这样可以一直保持强干弱枝。
 
-> Excellent work by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@xiaomayi7](https://twitter.com/xiaomayi7?ref_src=twsrc%5Etfw)
-> putting names to faces. [https://t.co/ymCfJzRhrq](https://t.co/ymCfJzRhrq)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 13, 2021](https://twitter.com/LawrenceSellin/status/1392727169105907712?ref_src=twsrc%5Etfw)
+**第三条：疲民**
 
+让老百姓疲于奔命，用房价、医疗、结婚、教育和养老等，消耗人民的体力；或者，故意用别的事情拖延住对手，让百姓没有时间去思考，无法有更高的追求。
 
+**第四条：辱民**
 
-第3推，转推“xiaomayi”战友回应塞林博士今天第一推的另一个推文，是上一推集体照最前排的近距离清晰照片，从左到右分别是：肖根福、王延轶、陈新文、Ralph Baric、Peter Daszak、王林发、石培勇、姜世勃、石正丽、胡志红(武汉大学病毒学研究员) 、蓝柯和邱香果。这是COVID-19侦探“xiaomayi”的更多出色工作，将名字依次标出，不出所料，来自UTMB的石培勇就在这里前排，他正与WIV 和PLA合作。（胡志红真容浮出水面）
+让民众没有自尊，让他们互相揭发，这样的话彼此之间没有信任感。如果一群人互相猜忌，如何还能形成战斗力？不能抱团就没有威胁，连尊严都没有了，谈什么更高级的想法，可以参照文革的历史，以及南京彭宇扶老太太案、小岳岳案这些潜意识里洗脑大众的新闻事件。
 
+**第五条：贫民**
 
+不让民众有多余的财富，这个很好理解，没有钱办不成事，百姓们整天为了一点小钱奔波，生活都顾不着了，又哪有时间去想别的。
 
-> More excellent work by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@xiaomayi7](https://twitter.com/xiaomayi7?ref_src=twsrc%5Etfw) putting names to faces. No surprise Pei-Yong Shi from the University of Texas Medical Branch, Galveston is right there in the front. He works with the Wuhan Institute of Virology and the People's Liberation Army. [https://t.co/yAvQkncMOW](https://t.co/yAvQkncMOW)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 13, 2021](https://twitter.com/LawrenceSellin/status/1392728539527622657?ref_src=twsrc%5Etfw)
+最后一句“五者若不灵，杀之”，我理解为封杀和杀戮。即，不让某个人发声，想办法控制住。实在不行，就只有让他消失了。
 
+《商君书》是以商鞅为代表的历代作者共同编写的，是反映法家思想的著作。商鞅出于战国末期，他的变法基本上是对经济和社会的全面控制，是周朝下面的邦国逐渐解体、逐渐帝国化的一个体现。商鞅把对经济、社会的控制的理论搬到秦孝公统治的秦国，改革变法，使得秦国成为一个军事化集权的国家，政府占用一切社会资源，可以调动一切社会资源，相当于整个社会变成一个巨大的军营。
 
+《商君书》内容大概分为更法（变更法度墙内《民法典》）、墾令（18亿亩根底红线没保住、视察各地粮仓）、农战（开荒田）、去强（废除贵族），说白了就是废除贵族制度按照军功大小加官进爵，进行土地改革为新兴地主阶级谋利益，在国家内部采用军队式管理，也就是今天从上到下深入每个细胞的权力制度。各级官员都由上级委派，每一级都有权力分配，甚至包括学校里的班长也是这个制度的延伸。这个套路基本是军队里的上下级服从关系，用这个体系来保证内部的控制权，这就是当年秦国的战时政策，可以说是临时政策，但为什么这个临时政策却成了自公元前221年秦国统一后的长期政策呢？
 
-第4推，转发“德意志之鹰” 战友的中英混合推：第九届新生病毒性疾病控制学术研讨会，这阵容我实在是不知道说啥了，都是亮点……，分别亮出他们的照片及简介，特邀嘉宾：饶子和(CAS院士，清华大学) 、蒋华良(CAS院士，上海药物研究所) 、董晨(CAS院士，清华大学) 、王林发、Linda Saif 、Peter Daszak。报告嘉宾：陈宇(武汉大学教授) 、Luis Enjuanes(西班牙国家生物技术中心教授) 、龚鹏(WIV研究员) 、龚睿(WIV研究员) 、Bart Haagmans(荷兰Erasmus医学中心)、姜世勃、Vincent J. Munster(NIAID教授) 、彭珂(WIV研究员) 、Stanley Perlman、Stefan Pohlmann(德国灵长类动物研究中心教授) 、Leo Poon(港大P3实验室) 、Lijun Rong(荣立军，伊利诺伊大学芝加哥分校医学院微生物学和免疫学终身教授) 、石培勇、史卫峰(山东第一医科大学教授)  、王曼丽(WIV研究员) 、危宏平 、徐可(武汉大学教授) 、袁志明(WIV研究员) 、张永振(上海公共卫生临床中心教授) 、Jie Zhou(香港大学助理教授)  、周鹏和周溪(WIV研究员) 。塞林博士完全认同COVID-19侦探“德意志之鹰”的观点：这是侦探们挖掘SARS-CoV-2背后科研网络的一种思路。（饶子和 、蒋华良、董晨、陈宇、Luis Enjuanes 、龚鹏、龚睿、Bart Haagmans、Vincent J. Munster、彭珂、Stefan Pohlmann、Leo Poon、Lijun Rong、史卫峰、王曼丽、徐可、袁志明、张永振、Jie Zhou和周溪真容浮出水面）
+根据赵鼎新《东周战争与儒法国家的诞生》，春秋战国时代后期，中国在经济、军事、哲学等领域都出现了一系列突破性的进展。战争规模越来越大、战争死亡人数越来越多，这种全民战争的到来，使得各个诸侯国不得已只有尽量扩充士兵的规模，同时长距离作战的总体性战争，使得职业化军人和军事谋略家（诸子百家中的兵家）群体逐渐兴起，军事后勤及其它军事技术获得了长足改进，各个诸侯国疯狂扩充军事规模（行军从最开始的200公里到后来的800-900公里以上），所有诸侯国都变成了战争国。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14084612/%E5%95%86%E9%9E%851.jpg)
+图片来源：《东周战争与儒法国家的诞生》
 
+周朝各诸侯国的崛起伴随着周礼的崩溃，战争的原则发生了改变，变得越来越不择手段，越来越残酷（长平之战秦军坑杀40万赵军）。在古典时期（公元前5-公元前4世纪），农民没有资格打仗（因为装备配备不起铠甲和战马，和欧洲古代一样），一般冲突都是贵族之间充当保家卫国的责任，农民是贵族的资产，是被保护的对象。而到了战国时代（公元前475-公元前221年），封建宗法崩溃成为变法的开始，各国都是小的农业帝国，帝国与帝国之间必定打仗称霸才能生存，而且要彻底消灭对方，这样导致全国都是战场，兵源必须充足，于是农民转变成军力的主要来源。农民不会打仗，也不愿意打仗，为了让这些世世代代的农民参战，则需要进行法家这样的改革，而不是孔子这种儒家的复古（即仁、义、礼、智、信、恕、忠、孝、悌），战乱年代这些道德的约束自然就松懈了。
 
+农业帝国内部的目标很明确，就是如何高效管理农民，也就是“没有文化”的这部分群体，最大程度的调动社会资源打赢战争，要实现这个目的只能靠严刑峻法，棍棒皮鞭和枷锁。如果和当时的农民讲道德和道理是没用的，因为他们绝大多数都会在暴力和强权面前低头，所以中国自秦汉以来在2000多年的历史里面，很多时候都在实行法家的统治术。
 
-> I agree with [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@dezying](https://twitter.com/dezying?ref_src=twsrc%5Etfw)
-> "A guideline for Covid-detectives to decipher the research network behind SARS-CoV-2." [https://t.co/DqdDt5boNH](https://t.co/DqdDt5boNH)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 13, 2021](https://twitter.com/LawrenceSellin/status/1392733041425068032?ref_src=twsrc%5Etfw)
+到了现代社会，本来中国人民有可能跃升为世界的主流，可是媒体被CCP完全控制，使得中国人民更加的奴性、更加没有血性，各种阶级斗争层出不穷。所以，唯一的破局就是要重新掌握媒体，来影响民意。CCP利用洗脑操纵民意，从CCP这个媒体战略来看，他们确实非常重视媒体渠道。传统的报纸和电视已经攻不进墙内，但互联网技术的普及和应用给这个破局提供了技术的可能，马斯克的天空Wifi，以及美国等西方国家对CCP的最新互联网技术的阻断，都为击破CCP的防火墙创造了无限的可能。我们的GTV和GNEWS正是在这种背景下应运而生的。我相信，即使CCP断网，在今后的某一天，墙内的人民也可以轻易接触到GTV、GNEWS和盖特这些真实的媒体声音。G系列也会在全球华人圈和各国政府高层受到越来越多的关注，因为有及时和真实的信息。
 
+另外，各国在中共病毒的攻击下渐渐醒悟过来，联合起来，在金融、经济上打击CCP。近年来，区块链的技术和理论的发展并没有因为全球疫情的爆发而停下一分钟的脚步，我们的喜币刚好卡在这个关键位置。所有这些破局，最关键的还是人，而他就是郭文贵先生。
 
+最后，G系列的壮大也需要千千万万的战友全力的支持和维护，打破几千年奴隶制的魔咒就是这个时代，我相信这一天不远了。
 
-第5推，转发“李昂纳多”战友的推文：WIV的张波与UTMB的石培勇，早在2008年两人一起在纽约的Wadsworth研究中心共事时，就已经开始了西尼罗河病毒的研究，现在仍然一起合作研究病毒，包括西尼罗河病毒疫苗的开发，并贴上两人合作发表科研论文的网页截图。COVID-19侦探“李昂纳多”发掘的石培勇与WIV之间的更多关联。（张波真容浮出水面）
+（文章内容仅代表作者观点）
 
-
-
-> More links uncovered between Pei-Yong Shi and the Wuhan Institute of Virology by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@RealLiAngNaDuo](https://twitter.com/RealLiAngNaDuo?ref_src=twsrc%5Etfw) [https://t.co/x1ff5iSI9d](https://t.co/x1ff5iSI9d)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 13, 2021](https://twitter.com/LawrenceSellin/status/1392735339442286593?ref_src=twsrc%5Etfw)
-
-
-
-第6推，转发“火来2号” 战友的中文推：国家生物医学分析中心(NCBA)，全名叫AMMS国家生物医学分析中心，地址就在海定区太平路27号，跟AMMS同一地址。石培勇不仅跟秦成峰合作，还有满江红，同样来自AMMS，从那张病毒朋友圈的合照座次就能看出，石培勇的地位很高，并贴上AMMS国家生物医学分析中心的官网截图，以及他们合作发表论文的网页截图及其照片。COVID-19侦探“火来2号”的杰出工作，呈现了石培勇是PLA渗透美国的主要纽带。（满江红真容浮出水面）
-
-
-
-> Outstanding work by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) Pei-Yong Shi is showing up as a major link with the People's Liberation Army. [https://t.co/BUpfEycs9g](https://t.co/BUpfEycs9g)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 13, 2021](https://twitter.com/LawrenceSellin/status/1392735774811070466?ref_src=twsrc%5Etfw)
-
-
-
-CCP-PLA-AMMS对美国病毒研究网络，如寨卡病毒、西尼罗河病毒等研究领域全方位渗透的证据，有无数中美科学家联合发表相关病毒研究相关的论文，尤其是“功能获得”研究相关的论文，以及NIH/NIAID/CDC科研经费对与PLA关联的WIV拨款编号的呈现，证据确凿地让Antony Fauci前天在接受参议院质询时，否定资助WIV“功能获得”研究的狡辩无处遁形。Antony Fauci是美国病毒研究领域教父级别的人物，是CCP渗透美国病毒届最最核心的人物；UTMB的华裔病毒学家石培勇已经与PLA的AMMS及其下属单位WIV合作多年，其在CCP-PLA-AMMS生物战计划里面的地位很高，是PLA渗透美国病毒科研界的主要突破口和关键人物。
-
-“新生病毒性疾病控制学术研讨会”每两年在武汉召开一次，由WIV主办。第八届于2018年10月20至22日召开，第九届于2020年11月26至28日召开，以此可以推断出，首届研讨会于2004年举办。该研讨会集结了全世界病毒研究领域顶级科学家，涉及美国、加拿大、西班牙、荷兰、德国、香港等国家和地区，是CCP-PLA-AMMS成功BGY全世界病毒界精英，以WIV为其生物战核心基地的盛会。可见CCP处心积虑、借鸡生蛋为其超限生物战在时间、空间上的准备是近乎“完美”的，全世界也几乎被CCP“完美”地控制甚至消灭了！
-
-校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-+3
++5

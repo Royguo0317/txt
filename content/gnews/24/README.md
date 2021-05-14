@@ -1,35 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5/14/2021 财经快讯：美国应对中共未来威胁需要新的法律工具；Coinbase首次实现盈亏平衡
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1241949/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（二十一）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1241968/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14083922/Picture1-79.png)[图片来源](https://www.ad.nl/)
-**1.美国贸易主管：应对中****共****未来威胁所需的新法律工具**
+作者：纽约香草山信息部 6zero4
 
-[华盛顿（路透社）- 美国贸易代表凯瑟琳·泰（Katherine Tai）周四表示，美国需要新的贸易法工具来阻止中共对美国关键高科技产业的反竞争威胁，而不是一旦造成危害就做出反应。星期三，泰要求更新1962年的“第232节”国家安全贸易法规，该法规用于对钢铁和铝进口产品征收关税。泰说，审查还将包括对中共国进口的“301条款”关税中许多过期的排除条款的处理，并指出完成审查需要“时间至关重要”。](https://www.reuters.com/article/legal-us-usa-trade-china/u-s-trade-chief-new-legal-tools-needed-to-combat-future-china-threats-idUSKBN2CU2DY)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-**2.Coinbase首次实现盈亏平衡**
 
-[美国最大的加密货币交易所Coinbase（COIN）在其2021年第一季度收益报告中首次实现了盈亏平衡，超出了分析师的预期，这是该公司首次公开发行股票。Coinbase现在拥有超过5600万经过验证的用户，而去年同期为3400万，其中包括8000多家机构和134000个“生态系统合作伙伴”。Coinbase于4月份以每股381美元的价格上市，但此后交易价格一直低于此水平，周四开盘价为276.46美元。该公司的股票为寻求涉足加密货币领域的投资者提供了一种手段，而无需应对与货币本身相关的价格经常发生的剧烈波动。](https://finance.yahoo.com/news/coinbase-q1-earnings-2021-185509331.html)
 
-**3.马斯克推文，狗狗币飞跃和比特币撤退**
+5月13日塞林博士的6连推：
 
-[新加坡（路透社）- 周五，比特币被钉在接近两个多月来的最低点，并进入了自2月以来最糟糕的一周，而狗狗币则跃升了五分之一，因为特斯拉老板埃隆·马斯克（Elon Musk）发来的推文将这两种加密货币推动。狗狗币在2020年末几乎一文不值，是去年开始疯狂疯狂的加密货币市场的宠儿，该市场始于去年机构投资者宣布大量购买比特币。按市值计算，狗狗币已跃升为第四大加密货币。第二大加密货币以太币今年也飙升了400％以上。它的最后价格为3,865美元，到目前为止为止保持稳定。](https://in.finance.yahoo.com/news/dogecoin-pops-musk-tweets-promising-233117424.html)
+第1推，明确的证据表明，截至2020年，Antony Fauci的NIAID一直对与PLA关联的WIV的一项完全独立的寨卡病毒“功能获得”研究计划保持资助。并贴上他们之间合作研究联合发表科研论文的网页截图，尤其是NIH/NIAID/CDC科研经费拨款编号的证据揭示。
 
-**4.失业人数减少后，华尔街科技股反弹**
 
-[科技股帮助华尔街主要指数在连续三个交易日下跌后回升，因数据显示每周申请失业救济人数减少，美国人增强了对美国经济复苏的信心。过去三天的下跌使标准普尔500指数从上周五的纪录高点下跌了4％，而科技含量高的纳斯达克指数较4月29日的历史高点低了约8％。美国东部时间上午11:35，道琼斯工业平均指数（.DJI）上涨403.96点，或1.20％，至33,991.62，标准普尔500（.SPX）上涨44.97点，或1.11％，至4,108.01，以及纳斯达克（Nasdaq）综合指数（.IXIC）上涨99.10点，或0.76％，报13,130.78。](https://www.reuters.com/business/futures-slip-fourth-day-with-focus-inflation-data-2021-05-13/)
 
-**5.加拿大银行：加元升值可能打击出口前景，影响货币政策**
+> Unequivocal evidence that Anthony Fauci's NIAID, as of 2020, has been funding an entirely separate "gain of function" Zika virus research program with the Wuhan Institute of Virology and linked to the People's Liberation Army. [pic.twitter.com/5KSWjTUoAv](https://t.co/5KSWjTUoAv)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 12, 2021](https://twitter.com/LawrenceSellin/status/1392514545764155392?ref_src=twsrc%5Etfw)
 
-[加拿大银行行长蒂夫·麦克伦（Tiff Macklem）周四表示，如果加元继续走强，则可能对出口和商业投资构成不利影响，并影响货币政策。自从中央银行在4月份更新其预测以来，由于大宗商品价格飙升，该货币已上涨了约4％。加拿大是能源，木材，矿产和农产品的主要出口国。它在周三创下了六年来的新高。麦克伦周四重申，基准利率将保持在其当前创纪录的低点0.25％，直到通货膨胀率维持在2％的目标水平为止。他补充说，该银行将继续使用货币政策工具来支持“全面复苏”。](https://www.reuters.com/article/us-canada-cenbank/bank-of-canada-rising-c-could-hit-export-outlook-affect-monetary-policy-idUSKBN2CU1QP)
 
-**6.超40%私募亏钱**
 
-[今年以来累计收益为负值的国内股票策略私募产品数量与股票策略私募机构数量，在全行业占比均超四成。其中，多家百亿级股票私募今年前四个月亏损超10%。在455家股票私募机构中，共有269家私募在今年1至4月实现正收益，186家私募业绩出现亏损。今年以来，亏钱的股票私募机构数量占比高达40.88%。有占比67.81%的股票私募机构仓位超过8成，19.38%的股票私募机构仓位介于5至8成之间。五十亿级规模的股票私募机构平均仓位最高，为89.45%；其次是百亿股票私募，其平均仓位为87.39%。](https://ishare.ifeng.com/c/s/v006LYAgAisGYv11vp20kRR7c57JhFuK3RntuNXm6m7ba4F3j--jPvau3A7ZF7YehEpW3PaK5gvhNKMYETT8trxZbWg____?spss=np&amp;aman=1cI40fec67Lef8z49bp4b6Yd74dc6fR418ee015305)
+第2推，转推“xiaomayi”战友回应塞林博士上一推的推文，是一张“第八届新生病毒性疾病控制学术研讨会”与会人员的集体照，并标注出来一些关键人员，诸如：周鹏、Ralph Baric、Peter Daszak、王林发、石培勇、姜世勃、石正丽、李放、程功(清华大学，虫媒病毒研究员) 、邱香果(加拿大华裔病毒学家) 、蓝柯、陈新文(前WIV所长，现CAS研究员) 、王延轶、肖根福(井冈山大学)等。这是COVID-19侦探“xiaomayi”的出色工作成果。（程功 、邱香果、陈新文和肖根福真容浮出水面）
 
-By 【金融组 – 小海星】
-素材搜集：文罡
 
-+2
+
+> Excellent work by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@xiaomayi7](https://twitter.com/xiaomayi7?ref_src=twsrc%5Etfw)
+> putting names to faces. [https://t.co/ymCfJzRhrq](https://t.co/ymCfJzRhrq)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 13, 2021](https://twitter.com/LawrenceSellin/status/1392727169105907712?ref_src=twsrc%5Etfw)
+
+
+
+第3推，转推“xiaomayi”战友回应塞林博士今天第一推的另一个推文，是上一推集体照最前排的近距离清晰照片，从左到右分别是：肖根福、王延轶、陈新文、Ralph Baric、Peter Daszak、王林发、石培勇、姜世勃、石正丽、胡志红(武汉大学病毒学研究员) 、蓝柯和邱香果。这是COVID-19侦探“xiaomayi”的更多出色工作，将名字依次标出，不出所料，来自UTMB的石培勇就在这里前排，他正与WIV 和PLA合作。（胡志红真容浮出水面）
+
+
+
+> More excellent work by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@xiaomayi7](https://twitter.com/xiaomayi7?ref_src=twsrc%5Etfw) putting names to faces. No surprise Pei-Yong Shi from the University of Texas Medical Branch, Galveston is right there in the front. He works with the Wuhan Institute of Virology and the People's Liberation Army. [https://t.co/yAvQkncMOW](https://t.co/yAvQkncMOW)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 13, 2021](https://twitter.com/LawrenceSellin/status/1392728539527622657?ref_src=twsrc%5Etfw)
+
+
+
+第4推，转发“德意志之鹰” 战友的中英混合推：第九届新生病毒性疾病控制学术研讨会，这阵容我实在是不知道说啥了，都是亮点……，分别亮出他们的照片及简介，特邀嘉宾：饶子和(CAS院士，清华大学) 、蒋华良(CAS院士，上海药物研究所) 、董晨(CAS院士，清华大学) 、王林发、Linda Saif 、Peter Daszak。报告嘉宾：陈宇(武汉大学教授) 、Luis Enjuanes(西班牙国家生物技术中心教授) 、龚鹏(WIV研究员) 、龚睿(WIV研究员) 、Bart Haagmans(荷兰Erasmus医学中心)、姜世勃、Vincent J. Munster(NIAID教授) 、彭珂(WIV研究员) 、Stanley Perlman、Stefan Pohlmann(德国灵长类动物研究中心教授) 、Leo Poon(港大P3实验室) 、Lijun Rong(荣立军，伊利诺伊大学芝加哥分校医学院微生物学和免疫学终身教授) 、石培勇、史卫峰(山东第一医科大学教授)  、王曼丽(WIV研究员) 、危宏平 、徐可(武汉大学教授) 、袁志明(WIV研究员) 、张永振(上海公共卫生临床中心教授) 、Jie Zhou(香港大学助理教授)  、周鹏和周溪(WIV研究员) 。塞林博士完全认同COVID-19侦探“德意志之鹰”的观点：这是侦探们挖掘SARS-CoV-2背后科研网络的一种思路。（饶子和 、蒋华良、董晨、陈宇、Luis Enjuanes 、龚鹏、龚睿、Bart Haagmans、Vincent J. Munster、彭珂、Stefan Pohlmann、Leo Poon、Lijun Rong、史卫峰、王曼丽、徐可、袁志明、张永振、Jie Zhou和周溪真容浮出水面）
+
+
+
+> I agree with [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@dezying](https://twitter.com/dezying?ref_src=twsrc%5Etfw)
+> "A guideline for Covid-detectives to decipher the research network behind SARS-CoV-2." [https://t.co/DqdDt5boNH](https://t.co/DqdDt5boNH)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 13, 2021](https://twitter.com/LawrenceSellin/status/1392733041425068032?ref_src=twsrc%5Etfw)
+
+
+
+第5推，转发“李昂纳多”战友的推文：WIV的张波与UTMB的石培勇，早在2008年两人一起在纽约的Wadsworth研究中心共事时，就已经开始了西尼罗河病毒的研究，现在仍然一起合作研究病毒，包括西尼罗河病毒疫苗的开发，并贴上两人合作发表科研论文的网页截图。COVID-19侦探“李昂纳多”发掘的石培勇与WIV之间的更多关联。（张波真容浮出水面）
+
+
+
+> More links uncovered between Pei-Yong Shi and the Wuhan Institute of Virology by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@RealLiAngNaDuo](https://twitter.com/RealLiAngNaDuo?ref_src=twsrc%5Etfw) [https://t.co/x1ff5iSI9d](https://t.co/x1ff5iSI9d)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 13, 2021](https://twitter.com/LawrenceSellin/status/1392735339442286593?ref_src=twsrc%5Etfw)
+
+
+
+第6推，转发“火来2号” 战友的中文推：国家生物医学分析中心(NCBA)，全名叫AMMS国家生物医学分析中心，地址就在海定区太平路27号，跟AMMS同一地址。石培勇不仅跟秦成峰合作，还有满江红，同样来自AMMS，从那张病毒朋友圈的合照座次就能看出，石培勇的地位很高，并贴上AMMS国家生物医学分析中心的官网截图，以及他们合作发表论文的网页截图及其照片。COVID-19侦探“火来2号”的杰出工作，呈现了石培勇是PLA渗透美国的主要纽带。（满江红真容浮出水面）
+
+
+
+> Outstanding work by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) Pei-Yong Shi is showing up as a major link with the People's Liberation Army. [https://t.co/BUpfEycs9g](https://t.co/BUpfEycs9g)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 13, 2021](https://twitter.com/LawrenceSellin/status/1392735774811070466?ref_src=twsrc%5Etfw)
+
+
+
+CCP-PLA-AMMS对美国病毒研究网络，如寨卡病毒、西尼罗河病毒等研究领域全方位渗透的证据，有无数中美科学家联合发表相关病毒研究相关的论文，尤其是“功能获得”研究相关的论文，以及NIH/NIAID/CDC科研经费对与PLA关联的WIV拨款编号的呈现，证据确凿地让Antony Fauci前天在接受参议院质询时，否定资助WIV“功能获得”研究的狡辩无处遁形。Antony Fauci是美国病毒研究领域教父级别的人物，是CCP渗透美国病毒届最最核心的人物；UTMB的华裔病毒学家石培勇已经与PLA的AMMS及其下属单位WIV合作多年，其在CCP-PLA-AMMS生物战计划里面的地位很高，是PLA渗透美国病毒科研界的主要突破口和关键人物。
+
+“新生病毒性疾病控制学术研讨会”每两年在武汉召开一次，由WIV主办。第八届于2018年10月20至22日召开，第九届于2020年11月26至28日召开，以此可以推断出，首届研讨会于2004年举办。该研讨会集结了全世界病毒研究领域顶级科学家，涉及美国、加拿大、西班牙、荷兰、德国、香港等国家和地区，是CCP-PLA-AMMS成功BGY全世界病毒界精英，以WIV为其生物战核心基地的盛会。可见CCP处心积虑、借鸡生蛋为其超限生物战在时间、空间上的准备是近乎“完美”的，全世界也几乎被CCP“完美”地控制甚至消灭了！
+
+校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++3

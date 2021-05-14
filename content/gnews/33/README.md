@@ -1,9 +1,12 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 展望喜马拉雅自由之巅
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/1241875/)
+## 【粤语配音】美国病毒白皮书将在何时推出最终版？
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1241878/)
 
-作者：猫头鹰
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14075413/%E5%B1%95%E6%9C%9B%E8%87%AA%E7%94%B1%E4%B9%8B%E5%B7%85-2021.05.12-%E7%8C%AB%E5%A4%B4%E9%B9%B0-%E5%96%9C%E9%9F%A9%E5%86%9C%E5%9C%BA-1.png)
-0
+By: 【秘密翻译组G-Translators】
+
+郭文贵
+2021年5月5日
+
++1
