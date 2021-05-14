@@ -1,55 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】拦截诈骗电话“显”成效，个人信息泄露依旧无解
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1239635/)
+## 【热点播报】中共军方大规模渗透美国病毒研究中心
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1239653/)
 
-香草山写作组  鹰(文言)
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04221555/s2-2.jpg)
+作者：纽约香草山翻译部 文明世界
 
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 
-环球网5月13日转载中国新闻网消息，中共工信部2020年累积拦截涉诈电话7.3亿次，处置涉诈号码1865万余个。
 
-2020年1月15日中共工信部公布19年防范电信网络诈骗情况：全年累计拦截诈骗电话10.8亿次，关停重点地区诈骗号码88.8万个。虽然2020年拦截电话次数减少32.4%，但涉诈骗电话的数量却是翻了21倍。仅从数据上看，反诈力度的加强却反而激发了诈骗电话产业。
-![https://inews.gtimg.com/newsapp_bt/0/11878395814/1000]()![https://inews.gtimg.com/newsapp_bt/0/11878395814/1000](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13193823/Screen-Shot-2021-05-13-at-7.37.45-PM.png)
-电信诈骗整个环节中的初始环节是获取目标任务的个人信息（包括电话号码、身份信息、工作、家庭情况等），之后诈骗犯再进行点对点的专攻。在骗取受害人信任后，诈骗犯会要求对方转账。虽然中共工信部通告诈骗的拦截工作“卓有成效”，但个人信息泄露的规模和影响却并没有随着大数据筛查的应用而递减，反而愈演愈烈。
+5月11日，塞林博士（Dr. Sellin）发推写道：“震惊报道：中（共）国人民解放军长春军事兽医研究所的金宁一将军成功地渗透了美国国防部资助的一个重要的病毒研究中心，该中心具备生物安全四级隔离设施。”
 
-2020年上半年，先有中信银行泄露演员王越池的个人信息，又有建行员工贩卖客户个人信息被捕。除上述国有企业的个人信息保护缺失外，售楼处、装修、家电等企业更常现“互通”客户信息的现象。在网络上贩卖个人信息的黑色产业链也是层出不穷。可见警方和三大运营公司的查处力度再严，黑色产业链的藏身之所也是难以根除。
-![https://inews.gtimg.com/newsapp_bt/0/13303143432/1000]()![https://inews.gtimg.com/newsapp_bt/0/13303143432/1000](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13193925/Screen-Shot-2021-05-13-at-7.37.41-PM.png)
-除此之外，各大商家企业崇尚“用户数据ID”贼心不死。违法收集使用个人信息APP的通报，层出不穷的电话“定向”骚扰屡屡频现，层出不穷。电话实名制度的普及并没有遏制个人信息泄露的态势，反而使不法分子更易获取更多的数据信息。防诈骗完全沦为“马后炮”式的拦截手段。
+该推文附带的链接指向一篇由塞林本人（*Lawrence Sellin*）和陈安娜（Anna Chen）联合撰写的文章。该文章于5月11日由美国媒体网站《门户专家》（The  Gateway Pundit）创始人的孪生兄弟乔-霍夫特（Joe Hoft）发表，标题为《独家报道：中（共）国军队对美国病毒研究的大规模渗透》。文章重点指出了在德克萨斯学医学部（UTMB）工作的华人科学家史佩勇（Pei-Yong  Shi）教授与中共军方的关联。
 
-在全民监管、大数据排查、健康码互联个人信息全面共享全面被监控的大形势下，究竟是“谁”偷走了个人信息并以此牟利？事后的找替罪羊顶锅和“罚酒三杯”行径，都能反映出行政干预的懈怠和失职。中共警察部门、三大运营企业究竟是无意监管，有意纵容，还是“养鱼截收”式的获取业绩和利益？
+![]()![](https://media.discordapp.net/attachments/830167012663754773/842196517220909106/Pei-Yong-Shi_2.jpg?width=788&amp;height=609)图片来源：门户专家
 
-新闻来源：
+德克萨斯大学医学部（UTMB）位于德克萨斯州的加尔维斯顿（Galveston），是美国一个主要的病毒研究中心，也是国防部资助的生物防御和新发传染病中心的所在地。2020年8月，UTMB被福奇（Anthony Fauci）指定为十个新发传染病研究中心之一，并新近获得了美国国家过敏和传染病研究所（NIAID）总额为8200万美元的资助。UTMB是拥有为数不多的生物安全四级设施之一，研究世界上最危险的病毒。
 
-工信部：2020年拦截涉诈电话7.3亿次https://china.huanqiu.com/article/436XjTIT5Nk
+然而，人们并不难发现UTMB已经被中（共）国人民解放军的科学家渗透——他们其中的一些人被认为与中（共）国的生物战计划有关。并且，这种情况正在进行之中。
 
-一个月拦截骚扰诈骗电话2900万次，贵州“断卡”行动显成效https://new.qq.com/omn/20201227/20201227A0AAUY00.html
+以2021年1月20日发表的一篇COVID-19的科学文章为例。“SARS-CoV-2 ORF7a的泛素化促进干扰素反应的拮抗作用”一文的作者是曹增国、夏红杰、里卡多·拉杰斯鲍姆（Ricardo Rajsbaum）、夏咸柱、王华磊和史佩勇。
 
-骚扰电话频繁，我们怎么办？个人信息是如何被泄露出去的？https://new.qq.com/omn/20210318/20210318A0AJEZ00.html
+资深作者【史佩勇】，在中华人民共和国接受培训，目前是UTMB的生物化学和分子生物学系教授。自2007年以来，他一直担任武汉病毒学研究所的荣誉教授。
 
-刚刚买房就接到装修公司电话，购房者信息是如何被泄露的？https://new.qq.com/omn/20200604/20200604A0PZM700.html
+第一作者【曹增国】与史佩勇同在UTMB工作，他列出另一个隶属机构，是位于中国长春市的吉林大学兽医学院人畜共患病研究教育部重点实验室。但曹增国隐藏了他在中（共）国人民解放军军事兽医研究所工作的事实。
 
-信息贩卖产业链：有黑客有内鬼 动辄千万条http://news.sina.com.cn/sf/news/fzrd/2017-05-04/doc-ifyexxhw2237380.shtml
+第二作者【夏红杰】，也是史佩勇在UTMB的同事，在武汉大学工作时与中（共）国军事科学家合作过。
 
-又见黑产业链！建行员工贩卖客户信息5万多条https://www.sohu.com/a/396388016\_338398
+第四和第五作者【夏咸柱】和【王华磊】都与中（共）国人民解放军军事兽医研究所有关。
 
-谁偷走了我的个人信息？揭秘信息贩卖背后灰色产业链https://news.sina.com.cn/s/2020-09-02/doc-iivhuipp2104019.shtml
+值得注意的是，中（共）国人民解放军军事兽医研究所被认为是中（共）国生物战计划的一个重要组成部分，由兽医【金宁一】将军领导。
 
-工信部2019年反诈成绩单：全国拦截诈骗呼叫10.8亿次https://new.qq.com/omn/20200115/20200115A0QWPM00.html
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13200821/11-41.jpg)图片来源：门户专家
 
-金融类APP违规收集使用个人信息成“顽疾”，信息安全保护受监管关注http://finance.sina.com.cn/tech/2021-05-12/doc-ikmyaawc4743419.shtml
+最近，《门户专家》（TGP）网站连续推出跟中共病毒有关的重磅信息文章，直指病毒背后与中共军方的密切关系。作者认为，以上只是中（共）国军方大规模渗透美国病毒研究项目的一小部分。不仅仅是这个机构，而是在整个美国，涉及数十亿纳税人的知识、技能和研究拨款被输入中（共）国的病毒研究实验室，毫无疑问，有些被用于了中共国的生物战计划。
 
-腾讯手机管家等84款App违法违规收集使用个人信息被点名通报http://www.xinhuanet.com/legal/2021-05/10/c\_1127427662.htm
+参考阅读：
 
-编辑/审核/发稿：正义的小新
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+[EXCLUSIVE: The Massive Infiltration of U.S. Virus Research by China’s Military](https://www.thegatewaypundit.com/2021/05/massive-infiltration-u-s-virus-research-chinas-military/#post-comments)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
 **更多资讯，更多关注**
 
 [**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -62,6 +58,10 @@
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0
