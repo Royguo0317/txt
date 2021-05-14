@@ -1,55 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国的《病毒白皮书》什么时候出来？后果是什么？
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1240508/)
+## 谎言治国的末日
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1241742/)
 
-**摘要：在2021年5月5日的GTV直播中，郭先生回答了战友关于《病毒白皮书》什么时候出来的问题。他说美国的白皮书已经准备好了，出来的后果就是美国跟共产党脱钩和开战。他还说“接下来美国总统大选的这个事情的影响它会超出所有人的想象”。**
+撰稿：G77
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14073014/20200514-8.png)
+4月26日，华人女导演赵婷的电影《游牧人士》荣获了2021年奥斯卡三项大奖，成为首位获此殊荣的亚洲女性。然而中共“中宣部”却要求全网封杀。为什么呢？原来赵婷在2013年在接受国外某杂志采访时曾提到“中国是充斥谎言的国家”。难道不是吗？她只是说了一句实话而已。在中国，百姓不能说真话、媒体不能说真话、科学家不能说真话、医生不能说真话、法官律师不能说真话、官员更不能说真话，人尽皆知。就连前国务院总理温家宝在《澳门导报》发表了一篇悼念母亲的文章也不能幸免，因为他说：在他的心目中的中国应该是充满公平和正义的国家。
 
-**美国的《病毒白皮书》什么时候出来？后果是什么？**
+中国建政70年，从夺取政权、三反五反、大跃进、三年自然灾害、文化大革命、加入WTO、六四事件、宗教迫害、一带一路、香港镇压、2020年的小康社会、冠状病毒等等。每一件事都充斥着谎言，可以说从底层到官员，从国内到国外，从民生到科技都是靠谎言大行其道，靠独裁镇压百姓，靠渗透和偷窃威胁世界。从1949年至今，中共一共制定了有54、75、78、82四部宪法。全部都成了谎言和摆设，对内剥夺百姓的财产和言论自由，对外成了美化政党的政治光环和欺骗世界的道具。
 
-**When Will the White Paper of the CCP Virus Come Out?**
+法国政论作家路易斯•博洛尔在《政治的罪恶》中写道： “人类最大的犯罪，莫过于政治上的犯罪。当权者往往通过野心、贪婪和争权夺利，煽起人与人、国与国之间的仇恨。由此导致的人道灾难，超过任何其它罪行导致的灾难。”
 
-乌鸦[问]病毒白皮书什么时候出。
+作为一个普通百姓，我也曾经是一个爱国者，上中学的时候我的理想是参军，到战场上建功立业；我曾经想当一名律师，让公平正义充满人间；我曾经庄严而又懵懂的举起握拳的右手，愿为共产主义奋斗终身。直到我参与了东北下岗职工的维稳、法轮功习练者的镇压，目睹了一批又一批的官员前赴后继因为腐败而入狱，我的内心陷入了极度的迷茫和崩溃，我开始思索对与错的标准、是与非的评判、国家与政府界定等等。经历了从希望到失望再到绝望之后，懂得了中国是一个权利大于法律的国家。懂得了在中国爱国的前提只有爱党，否则你都没有爱国的权利。也终于明白了为什么当官的都要腐败，因为红船有规则。权钱交易的规则、买官卖官的规则、共产共妻的规则—。当我成了海外华人的时候，才明白了民主、自由、法治的真正含义。
 
-Crow (ID of a fellow fighter) asked when the white paper of the CCP virus will come out.
+一个社会的三大底线行业就是教育、医疗和法律。当教育成了给人洗脑的工具；当医疗成了变相杀人和赚钱的手段; 当法律成了权利的载体。人们不再有信仰和良知，社会还有什么希望和美好的未来。整个国家机器就像一个大染缸，一个绞肉机，你想独善其身，你想伸张正义，要么在监狱，要么在通往监狱的路上，直至死亡。我不相信杨澜愿意出卖自己的子宫去“找钥匙”，也不相信某明星说：“如果是领导您需要，免费”，是发自内心，更不希望看到香港同胞、李文亮、张首晟、许章润、刘晓波等各界人士被自杀，被嫖娼。更痛心美女博士闫丽梦在提交给世卫组织关于冠状病毒调查结论的邮件中说了实话，就被警告不能触碰红线，不得不冒死逃往美国去公布真相。这是何等的悲哀！这是体制问题，是执政党问题。中共十九届五中全会的公开提法之一就是：“到2035年基本建成法治国家、法治政府和法治社会”言外之意就是建国70年后的今天还不是依法治国的，那只是一个美丽的传说。我们还要继续被欺骗，继续等待吗？
 
-说到这的时候我给大家可以聊一下，现在据我所知美国（病毒）白皮书已经准备好了，美国出来白皮书的后果是什么呢？跟共产党脱钩和开战或开战，所以呢现在共产党也知道正在拉拢那些穷兄弟、姐妹们在联合国上要和美国较量。
+一颗阴暗的心 永远拖不起一张灿烂的脸；一个被定为“反人类罪”的政党不可能给勤劳的中国人带来希望。中国人已经醒来，世界人民也已经认识到了共产主义幽灵的邪恶。我们只有跟随文贵先生灭邪恶、弘正义、爆真相、创辉煌才能让“新中国联邦”不断壮大，为尊严和自由而战！
 
-I can talk a bit about this with you guys. Based on my knowledge, the U.S. white paper [on the CCP virus] is ready. What is the consequence of publishing the white paper by the U.S. then? Decouple with the CCP and/or go to a war with the CCP! So, the CCP has been aware of this and is now trying to win over those poor brothers and sisters at the U.N. to fight against the U.S. with it.
+文章内容仅代表作者观点。
 
-所以这个白皮书什么时候出来？我觉得很有可能白皮书出现了一个所谓的初级版本，先不说那么严重。
+*审核&编辑：Runaway*
+![]()![](https://gnews.org/wp-content/uploads/2021/05/1-%E6%BE%B3%E5%96%9CLogo-2.jpeg)
 
-So, when will the white paper come out? I think it is very likely that a preliminary version of it will come out first, with a less serious tone.
 
-但是我觉得美国的现在这个较量、现在大选的这个情况，我说过，你记住战友们，2022年就是明年，美国的大选的结果和造成的美国社会的动荡它最终会出来，美国不可能让这次大选这事就这么拉倒了，是不可能的，一定会有一方倒下，滑稽的结果大家都看到了，两个副总统都不是省油的灯，大家也都看到了。
-
-Regarding the current battle in the U.S. surrounding the presidential election, please remember, brothers and sisters, I have mentioned this before – the results of American presidential election and the social turmoil caused by it will eventually manifest next year in 2022. It is impossible for the U.S. to let the election go so easily. It’s just not possible. One side must fall. Everyone has seen the absurd result of the election and know that neither of the two vice presidents is easy to deal with. Everyone has seen it.
-
-接下来美国总统大选的这个事情的影响它会超出所有人的想象，美国这个国家你可千万别小看，这个国家太伟大了，你不管看到有多荒谬的事情发生都是其他国家难望其项背的，这个国家不是完美的。但是美国不仅是修复能力，美国这个国家最重要的事情它是真真正正的与时俱进，它在创造中、灾难中、错误中甚至是挫折中它一次一次的强大，恢复到一个本质来说，美国这个国家是一个在一次一次的错误当中成长壮大的。
-
-Next, the impact of the U.S. presidential election will go beyond everyone’s imagination. Never ever underestimate the United States of America. It is such a great country! However ridiculous things happened can never eradicate its greatness. Although this country is not perfect, no other country is a match to it, not even close. The U.S. does not only have the ability to recover itself but also has the ability to keep in pace with the era. It always becomes stronger and stronger in the process of creation, disasters, mistakes as well as frustrations. The U.S. is essentially a country that learns and grows from its own mistakes.
-
-那么这个白皮书的结果会是被谁利用呢？一定记住美国总统大选这个事情完后，一定是美国最后出现一系列的政治滑稽事件之后，这个白皮书最终会推出最终版本，最终的版本。
-
-Then, who will take advantage of the results of the white paper? Please remember, the final version of the white paper will be out after the U.S. presidential election is wrapping up and must be after the occurrence of a series of absurd political incidents.
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=60929c03db13300ca5491b6d](https://gtv.org/video/id=60929c03db13300ca5491b6d)  (1:54:28-1:57:08)
-鸣谢：感谢黑郁金香（文郁）、山川异域和[喜联盟七哥直播组](https://gnews.org/zh-hans/author/miles-broadcast/)提供中文文本于 [https://gnews.org/zh-hans/1180220/](https://gnews.org/zh-hans/1180220/)
-
-* * *
-
-翻译：【7PawBear（纽约香草山农场）】
-字幕：【Rock小哥】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】【Rock小哥】
-校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
-+1
++3

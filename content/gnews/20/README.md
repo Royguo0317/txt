@@ -1,51 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】有话说（一）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1240472/)
+## 没有你，对我很重要
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/1241927/)
 
-配音：香草山录音组 Gtv abeilles（蜜蜂）
+投稿人：喜韩农场 文愚
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+喜韩农场 文愚
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12224959/87218126-0AB4-45AF-BE46-7C244DBCC15C.jpeg)
+不拿群众针和线 其余通通都带上
+爹亲娘亲没党亲 养儿防老别找咱
 
+马恩列毛邓江习 笼的传人红又砖
+共惨主义接班人 洞房花烛抄党章
 
+凡顺我者人上人 凡逆我者皆嫖娼
+一个胶带给人民 不同声音皆诽谤
 
+人民日报日人民 砖家教兽一起上
+稳腚能够压一切 坚夫莹妇胡叼盘
 
+全心全意喂人民 服雾到胃自己赞
+华为养起智慧猪 二零二零奔小糠
 
+老鼠扛抢窝里横 战狗崴脚不嫌酸
+搬砖砸脚停不住 虽远必诛说着玩
 
+中英声明算个屁 一国两智就这样
+水深火热美帝国 唯我兲朝屌朝上
 
-秋风吹过无垠的荒野！
+日日夜夜新郎做 东西南北蓝金黄
+世界命运共胴体 一三五七九方案
 
-那是风儿对草儿的有话说！
+江山都是人民滴 人民都得归我管
+三个呆婊藏家中 撸起袖子加油干
 
-你不给我一个说法啊！
-
-我就给你一个做法！
-
-那是一个孤胆英雄的有话说！
-
-
-
-**文字版原文：[【香草诗词汇】有话说（一）](https://gnews.org/zh-hans/1239093/)**
-
-作者：纽约香草山健身部 澄道
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++4
