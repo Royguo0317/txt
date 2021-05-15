@@ -1,93 +1,165 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英格兰历史之根基 （二十一） 国王的宠臣（下）
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1242394/)
+## “中共病毒起源法”全文翻译
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1242664/)
 
-俄罗斯莫斯科喀秋莎农场   和风
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-编辑   银河 星河   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/04/13a5953c3fdc6862.jpg)
-**第一卷  根基**
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14125629/W-1.jpg)activistpost.com
+昨天（5月13日）笔者发文，报道了众议员加拉赫（Gallagher）等14位众议员提出议案，迫使拜登解密中共病毒的情报”【1】，该议案名称为“中共病毒起源法”（COVID-19 Origin Act）【2】，现将提案原稿翻译，供战友参考分享。
 
-**英格兰历史：从原始时期至都铎王朝**
+议案
 
-**第二十一章  国王的宠臣（下）**
+要求国家情报委员会总监解密与中共病毒（COVID–19）起源的有关情报，以及用于其他目的。要由美国的参议院和众议院在国会通过。
 
-在处理王国事务方面，国王总是要依靠有实力的心腹。他当然不能相信兰卡斯特的托马斯，因为他的堂兄在执拗地反对他，所以他信任了一个新宠臣。加维斯顿的继任者是休·勒德斯派瑟（Hugh le Despenser），此人与父亲有相同的名字，父子俩在很大程度上控制了这位无决断的国王。勒德斯派瑟很快获得了土地和城堡，他在威尔士的家族已经很强大，现在又是国王宠臣，因此他与该公国的所有贵族都疏远了。勒德斯派瑟的官员攻击或者威胁坚持自己观点的任何人，还烧毁粮仓，对著名的大地主进行诽谤指控。
+第1节 简称
 
-在合法行为的掩盖下，作为国王管家的勒德斯派瑟企图隐瞒他的偷窃和勒索；他的责任和义务是让威尔士有秩序，但每个人都知道，他的问题是欺骗。国王的宠臣再一次以牺牲男爵利益为代价，变得傲慢和过分强大了。后来，兰卡斯特的托马斯站出来宣布：不要信任国王和他的宠臣了。1321年春天，勒德斯派瑟家族的土地和财产受到那些被剥夺继承权人的破坏，这是一种报复形式，类似于之前的内战。编年史作家、雷丁的罗伯特（Robert of Reading）写道：现在，这位国王“开始臭名昭著，他对自己的庞大遗产是胆小、懦弱和麻木不仁的”。
+本法案可被称为“2021年中共病毒（COVID–19）起源法”。
 
-这年初秋，北部和西部的大贵族带着武装随从来到伦敦，坚持将勒德斯派瑟家族驱逐出国。该家族被指控 “侵犯”王室权力以及控制觐见国王。他们超越法律，非法获得了土地监护权。面对该家族敌人的武装随从，爱德华屈服了。勒德斯派瑟家族被驱逐出国。
+第2节 调查结论
 
-然而，这仅仅是转入大规模内战的开端。国王已经下决心，最好是把自己的对手一个个地铲除掉。他包围了一位反抗者家园的利兹堡（Leeds Castle），处决了城堡的守军。这种处决不在骑士守则的范围内，因此受到了广泛谴责。然而，处决行动说明，国王是认真的。之后，他召回了勒德斯派瑟家族，开始组织军事行动，以打击他认为反抗他权力的人。从1322年3月开始，国王调来了军队，在战斗中打败了兰卡斯特的托马斯。他最终把自己的宿敌逼入困境，经过一次简略的审判，他处决了托马斯。因反叛指控而直接将王室成员判为死刑的，这可能是第一次。兰卡斯特曾经割下了彼得·加维斯顿的头，爱德华长久以来寻求报复，他把兰卡斯特斩首了。
+国会得出以下结论：
 
-过去站在兰卡斯特一边的其他贵族家庭，现在任由国王摆布了。爱德华二世时代一位匿名作家写道：“哦，灾难呀，看看那些不久前穿着细麻布用紫色装扮的人，现在却穿着抹布被成批地关进监狱了。”
+（1）国务院于2021年1月15日发布了一份关于武汉病毒研究所（WIV）的情况介绍，内容如下：
+（A） “美国政府有理由相信，在疫情爆发的第一个确诊病例之前，武汉病毒研究所内的几名研究人员在2019年秋季发病，症状与中共病毒和常见季节性疾病一致。”
+（B） “武汉病毒研究所研究人员进行了涉及RaTG13的实验，RaTG13是武汉病毒研究所在2020年1月发现的最接近中共病毒（SARS-CoV-2）的蝙蝠冠状病毒。”
+（C） “尽管武汉病毒研究所自称是一个民间机构，但美国已经认定武汉病毒研究所与中共军方在出版物和秘密项目等方面进行了合作。”
 
-贵族中的许多人在自己曾经拥有的土地上被绞死了。国王下令把二十五人一起处决掉。之前从没有英国君主用如此残忍的办法来惩罚自己的男爵。
+（2）疾病预防控制中心（CDC）前主任罗伯特·雷德菲尔德（Robert Redfield）在2021年3月表示，“武汉的病原体最有可能来自实验室”，并指出，“实验室里（出现）呼吸道病原体感染实验室工作人员的情况并不罕见。”
 
-处决兰卡斯特后的神奇效果被记录下来。许多人认为他是恶毒敌人的高尚对手，因此，他的往事是受尊重的。在处决他的现场以及在庞蒂弗拉克特修道院（Pontefract Priory）他的墓地，出现了神圣的礼拜仪式，仪式上还出现了奇迹。在墓地旁边，一个溺死的孩子复活了，在兰卡斯特死的地方，一个盲人牧师重见光明。休·勒德斯派瑟的一个仆人决定去这些地方大便，从而表达一种侮辱的姿态，但过了一会儿，他的肠子就从身体内脱落了。在伦敦的圣保罗大教堂建立了另一个敬仰中心，纪念兰卡斯特托马斯的石头桌子发生了更多的奇迹。国王发布法令，劝阻去庞蒂弗拉克特或者去圣保罗朝圣的人，但他不能阻挠民众的虔诚。
+（3）世界卫生组织总干事谭德塞在2021年3月承认，2019年中共毒病（COVID–19）可能起源于实验室，并表示这一假设“需要进一步调查，可能需要专家参与额外的任务。”
 
-在这个不稳定和无秩序的年代，全国各地发生了零星的暴力事件。1326年，国库的首席男爵罗伯特·贝尔斯（Robert Belers）在梅尔顿莫布雷（Melton Mowbray）城外遭到伏击，被杀害了。尤斯塔斯·德·福尔维尔（Eustace de Folville）带领的帮派是众人皆知的。庄园主约翰·德·福尔维尔（John de Folville）的五个儿子把自己变成了一个犯罪兄弟会，他们用大量谋杀和抢劫在自己的莱斯特郡家乡施行恐怖活动。他们自己做雇佣兵，绑架本地知名人士以获得大笔赎金。他们甚至充当贵族资助的随从到国外去打仗。
+第3节 国会意识
 
-五兄弟之一的理查德·德·福尔维尔（Richard de Folville）被大哥任命为泰格（Teigh）村的教区长。这是一个便利的护身符。当某一天他和兄弟们被治安官追逐时，他们能在教堂里避难。借助这个有利地位，他们射出了许多支箭，至少杀死了一个追逐他们的人。但后来，当地民众真正掌握了法律，他们把理查德从教堂里拉出来，在现场把他斩首了。其他兄弟想方设法逃避法律的制裁。
+国会认为—
 
-十四世纪初的几十年，人们发现了其他的犯罪团伙。一个头领自称为“莱昂内尔（Lionel），破坏者的国王”，从“格林伍德塔（Greenwood Tower）的风中城堡里”发出了威胁信。所以城堡里的暴力事件破坏了本已被饥饿和疾病困扰的地区。
+（1） 确定2019年中共病毒疫情（COVID–19）的起源对于防止未来发生类似的疫情至关重要；
 
-较小的混乱事件也被记载了。在公开法庭上，罗伯特·萨顿（Robert Sutton）侮辱了伦敦治安官波特兰的罗杰斯。
+（2） 有理由相信中共病毒疫情可能起源于武汉病毒研究所；以及
 
-约翰·阿什伯翰（John Ashburnham）骑马来到罗杰斯的法庭，在法庭外露天的地方被抓起来，他威胁罗杰斯并逃跑了，边跑边用手指打口哨，给事先埋伏的自己人发出了起义信号。
+（3） 国家情报委员会总监应该解密并向公众提供尽可能多的关于中共病毒起源的信息，以便美国和有相同想法的国家能够—
+（A） 尽快确定中共病毒的来源，以及
+（B） 利用这些信息采取一切适当措施，防止类似疫情的再次发生。
 
-当阿格尼丝·莫特（Agnes Motte）接到一封传令后，她恳求邻居们帮助。邻居拿起了武器，强迫发传令的人把含有蜡的羊皮传令纸吃掉。
+第4节 解密与中共病毒起源相关的信息
 
-当林恩市（Lynn）的市长试图改变贸易规则时，在该地修道院的领导下，一群商人把他从家里拖走，放在市场的一个货摊上，并强迫他以主人身份发誓：他不会改变规则。有趣的是，林恩修道院在这里一马当先，而其他神职人员是无法无天的。来自拉幅德修道院（Rufford Priory）的六个僧侣攻击了一个当地绅士，还拿走了赎金。
+国家情报委员会总监应在本法颁布之日后90天内—
 
-曼彻斯特的教区长邀请当地一对夫妇和他们的女儿吃晚饭。教区长的仆人扣押了这个女儿，打断她的两根肋骨后，把她扔到教区长的床上。那个夜晚，他与她发生了性关系，但一个月后，由于伤痛，不幸的女孩死了。
+（1）解密任何与武汉病毒研究所和2019年中共病毒起源之间有潜在联系的相关信息，包括-
+（A）武汉病毒研究所与中共军队或代表中共军队开展的活动；
+（B）在中共病毒爆发之前，在武汉病毒研究所进行的中共病毒研究或其他相关活动；以及
+（C）武汉病毒学研究所2019年秋季患病的研究人员，包括任何此类研究人员—
+（i）研究人员姓名；
+（ii）研究人员的症状；
+（iii）研究人员出现症状的日期；
+（iv）研究人员在武汉病毒研究所的作用；
+（v）研究人员是否参与或接触过武汉病毒研究所的中共病毒研究；
+（vi）研究人员患病期间是否到医院就诊；以及
+（vii）研究人员采取的任何其他行动的说明，可能表明他们当时正在经历严重疾病；以及
 
-国王在威斯敏斯特的法庭也受到目无法纪的影响。一位律师坐在大厅的一张桌子上——“靠近珠宝商的位置”，其他人威胁说，如果他不放弃这个位置，就杀了他，之后，他被从桌子上拉下来，头部遭到击打，另外一人抽出一把刀指着他。这位律师从攻击者中逃出来，跑进法院的酒吧间里请求帮助。那些人拿着剑跟着他，法庭官员设法关上门来阻止他们。后来，他们被缴械，被送进了塔楼。
+（2）向国会提交一份非机密报告，包含-
+（A）第（1）款所述的所有信息；以及
+（B）只有情报总监认为有必要的修订，以保护资料来源和途径，而不能以任何方式更改或模糊第款（1）所述的信息。
 
-1322年夏天，国王在约克郡召集了议会，会上通过了一个法令：允许他拥有完整和独立的统治。1311年的法令再一次被放弃了。同时代的人不怀疑这种状态。权贵现在太害怕了，不敢阻止国王的意愿，议会也不考虑这样做。理智让位于威胁和惩罚。无论爱德华喜欢什么，法律现在就有什么。他把每个郡的叛匪找出来，没收他们的土地或者施以重罚。在此过程中，他的钱财越来越多。他写信给财政官员：“用这种办法为我们服务，我们变得富有了。”
+记住这些众议员，全部来自共和党：
+法案起草人，威斯康星州众议员迈克·加拉赫（Mike Gallagher）
+法案共同签署人：
+宾夕法尼亚州众议员盖·雷申塔勒（Guy Reschenthaler）；
+北卡莱罗纳州众议员丹·毕晓普（Dan Bishop）；
+密苏里州众议员杰森·史密斯（Jason Smith）；
+南达科他州众议员达斯蒂·约翰逊（Dusty Johnson）；
+加利福尼亚州众议员斯科特·佩里（Scott Perry）；
+南卡莱罗纳州众议员汤姆·赖斯（Tom Rice）；
+德克萨斯州众议员布莱恩·巴宾（Brian Babin）；
+佛罗里达州众议员约翰·卢瑟福（John Rutherford）；
+亚利桑那州众议员保罗·戈萨（Paul Gosar）；
+俄亥俄州众议员鲍勃·吉布斯（Bob Gibbs）；
+佛罗里达州众议员丹尼尔·韦伯斯特（Daniel Webster）；
+北卡莱罗纳州众议员麦迪逊·卡顿（Madison Cawthorn）；
+佐治亚州众议员乔迪·希斯（Jody Hice）
 
-为了征服，他没有去敛财。他在苏格兰发起了进攻罗伯特·布鲁司的战役，但除扣押六个苏格兰犯人外，一无所获。物质匮乏严重地影响了他的军队，他向南行军穿过了边界线。而苏格兰军队却在追赶他，在东约克郡的布里德灵顿（Bridlington），他差点被抓住。他仓皇地跑到约克，格外不幸地结束了一次徒劳的远征。国王的私生子亚当在这次远征中被杀死了。1323年初，他被迫与罗伯特·布鲁司签署了一个条约，条约的原则几乎让他立刻崩溃。
+有关链接：
 
-与法国就加斯科涅领土争端产生的麻烦一直没有解决。法国甚至在该公国中部建立了一个设防镇。所以，国王把妻子伊莎贝拉派到法国，去与查尔斯四世（Charles IV）谈判，因为她是这位国王的妹妹，可能会有某些成功的希望。但这里有一个问题，爱德华不相信伊莎贝拉，她也不喜欢爱德华。只要他们被英吉利海峡隔开，任何事情都会发生。国王做出了另一个重大决定，他把大儿子派到法国宫廷，为了加斯科涅的土地，让他效忠法国。妻子和儿子现在都在法国了。
+【1】https://gnews.org/zh-hans/1240192/
 
-因为太担心自己王国的稳定，所以国王没有亲自到法国去旅行。据说，此时，勒德斯派瑟家族的人建议国王待在国内，因为他们担心当国王不在时，其他男爵会对他们产生愤恨。这些理由都是让人害怕的。爱德华的统治成为一种隐性的暴政。按照一位编年史作家的说法，他 “像一头狮子那样疯狂”。他剥夺了许多富人的继承权，目的是让勒德斯派瑟家族占有他们的土地，结果，地主感到不安全了。当英国国王忽视财产权时，他是不能长久持续下去的。然而，在四年的时间里，爱德华根据自己的喜好，慷慨地授予伯爵爵位和其他头衔，却掠夺和迫害那些反对他意愿的人。得到精心安排后，财政收入进入了国王的密室而不是大国库，国王要求对其他官员严格保守秘密。他很像后来在账房里数钱的那位国王。事实上，他的对手什么都不能干。在兰卡斯特被处决以及其他重要贵族被监禁后，国王占有了支配地位。
+【2】
 
-然而，在流放的人中，仍然有他的敌人，尤其是在法国。其中一人是罗杰·莫蒂默（Roger Mortimer），他曾参加过反抗勒德斯派瑟家族的斗争，投降国王后，被监禁在伦敦的塔楼里。在朋友的些许帮助下，他逃出了塔楼。据说，他给几个捕手下了麻醉药，然后用一根绳子逃出卧室。这听起来像是虚构的，但确实是这样的。除了上绞架的路，塔楼外只有一两条其他的路。他乘船前往法国，愿意给法国国王效力。正是在查尔斯四世的宫廷里，他开始与王后伊莎贝拉搞阴谋，无论从哪方面看，都是这样的。现在，这位王后周围聚集着一群流亡以及不满的男爵和主教。当情愿给她哥哥效力的儿子到达时，她发现了最完美的武器。爱德华国王命令她返回英格兰，但她拒绝这样做，并声称：只有当勒德斯派瑟家族被驱逐后，她才会回去。不论如何，她更喜欢法国宫廷的温和气氛。
+          (function() { var scribd = document.createElement("script"); scribd.type = "text/javascript"; scribd.async = true; scribd.src = "https://www.scribd.com/javascripts/embed\_code/inject.js"; var s = document.getElementsByTagName("script")[0]; s.parentNode.insertBefore(scribd, s); })()        
 
-1325年整个一年里，王国内到处是谣言，人们害怕入侵。他们相信，伊莎贝拉会与法国国王一起航行，但更担心她会在欧洲西北部那些相互联盟的王室中寻找支持力量。她向北旅行到希诺特（Hainault）（现在比利时西南部），该地区的伯爵服从了这样的主张：伯爵女儿菲利帕（Philippa）应该嫁给爱德华勋爵，这位十四岁的年轻人十有八九是下一个英格兰国王。然后，伊莎贝拉和莫蒂默用菲利帕的嫁妆为下一步的入侵招募军队。
+文字整理：
 
-一千五百个军人乘船离开了荷兰的多德雷赫特（Dordrecht）港，由于海上风暴不断，所以他们于1326年9月24日在萨福克郡的奥韦尔（Orwell）港登陆。他们在这里没有遇到骚扰和阻止，可能爱德华仍然相信侵略军队来自于诺曼底。沿东部海岸巡逻的王室舰队司令，无论如何，都会让伊莎贝拉不受阻拦地登陆。他过去曾是国王的反对者，并再一次转变为反对者。据报道，英格兰水兵拒绝与伊莎贝拉打仗，因为他们对勒德斯派瑟家族怀有仇恨。
+A BILL
 
-她进展迅速。支持者簇拥着她，国王的秘密敌人现在站起来反抗他的统治了。王后向邓斯特布尔（Dunstable）前进，她的军队洗劫了沿途的勒德斯派瑟家族的土地。她在路上得知：国王和勒德斯派瑟家族的人已经仓皇地逃离伦敦，向西去了。他们把大部分财富留了下来，这表现出他们的慌乱。国王的支持者现在转变了立场。有一个人仍然在维护王室，他是勒德斯派瑟家族的长者和温切斯特伯爵，根据戒严令的规定，他在布里斯托尔被处决了。他儿子休被抓捕并等待审判。
+To require the Director of National Intelligence to declassify information relating to the origin of COVID–19, and for other purposes.
 
-爱德华带着一小撮支持者逃进了威尔士。在卡尔菲利（Caerphilly），人们发现了一个账本，是他统治后期的生存记录。他当时走投无路了。伊莎贝拉的军人在追他，十一月中旬，他在尼思（Neath）附近被抓获。在武装护卫的监护下，他从这里被带到凯尼尔沃思（Kenilworth）的王室城堡。
+Be it enacted by the Senate and House of Representatives of the United States of America in Congress assembled,
 
-休·勒德斯派瑟被抓捕后，拒绝饮食，可能希望在痛苦地被杀之前先死去。他被带到雷丁，人们给他戴上了一顶荨麻花冠，诅咒的话骂得他体无完肤。在鼓和喇叭的噪声中，在人群的尖叫中，他被吊上了一个50英尺（15米）的绞刑架。他还活着时就被砍倒，肠子当着他的面焚烧，最后被斩首了。
+SECTION 1. SHORT TITLE.
 
-勒德斯派瑟在雷丁而不是在伦敦被处决，这是因为首都处于狂乱的状态。经受了国王长期的财政压制，市民们现在自由地狂欢着，他们对能找到的旧统治下的任何官员进行人身攻击。主教斯特普尔顿（Stapleton）曾经是王室的财政主管，被从马背上拉下来，处死了。一些为国王提供资金的富商和银行家被杀害了。
+This Act may be cited as the ‘‘COVID–19 Origin Act of 2021’’.
 
-那么胜利者会怎样罢黜一位合法的国王哪？这是不合法和没有先例的。国王被认为是受威严上帝保护的，人们很难去干预上帝的神权。1327年初，议会以国王儿子威尔士王子的名义举行了会议，尽管国王本人没有必要出席，因此，称之为集会或者大会更为合适。在国王去“海外”期间，王子被任命为王国的监护人，其实爱德华就在不远处的凯尼尔沃思王室城堡里。为了支持伊莎贝拉和爱德华王子，人们发出了欢呼声，并发表了各种各样的公告，从而显示：母子俩牢牢地掌握了伦敦的政权。两位主教被派往凯尼尔沃思，但他们与国王谈话的记录没有保存下来，据说，他咒骂他们，拒绝与他们一起返回伦敦。
+SEC. 2. FINDINGS.
 
-在莫蒂默主持下，第二次大会在威斯敏斯特召开了。莫蒂默用谨慎的语气宣布：王国的权贵已经罢黜了爱德华，因为他没有遵守加冕宣言，受到了邪恶顾问的控制，并专注于破坏教会以及王国的权贵。之后，黑尔福德（Hereford）主教亚当·奥尔顿（Adam Orleton）布道，题目是：“在没有真正统治者的地方，人民将会遭殃”。这似乎受到了普遍认同。
+Congress makes the following findings:
 
-另一个代表团在凯尼尔沃思会见了国王，他们给他下了最后通牒。亚当·奥尔顿再一次给他做演讲，声称他傲慢和卑劣的统治是邪恶的，之后宣布：“不论他是否同意，他儿子都将取代他”。这种同意是至关重要的，至少能为行动进程提供合法的外表。据说，国王穿了一件黑色袍子，充满了泪水和悲伤，当他见到这个代表团时，害怕得昏了过去。苏醒后，他首先拒绝放弃王位，但在进一步争论后，他勉强同意了。有一个明摆的危险，他可能被迫让位，其他人将取代他。这个过程的真相从未公布于世，但据猜测，整个事件是凌乱、无法预测和不确定的。太多的利益陷入危险之中，以至于不可能产生其他的说法。某些权贵和主教肯定怀疑整个操作的合法性。
+(1) The Department of State released a fact sheet on January 15, 2021, about the Wuhan Institute of Virology (WIV) which stated the following:
 
-不过，事情都过去了。废黜的国王被从凯尼尔沃思转移到格洛斯特郡的伯克利城堡（Berkeley Castle）。似乎一开始，他受到了款待，但一个被废黜的国王绝不可能是安全的。有两次救援的企图，其中一次部分地成功了，由于有逃跑的可能性，他的命运就被确定了。人们常说，“监狱和国王坟墓之间有一个小空间”。1327年9月，爱德华去世了，他的死具有野蛮性质，很难与英格兰的史册相匹配。据说，他是被一根拨火棍杀死的，红热的棍子插进他的肛门。然而，这不过是一种有寓意的伤害，是对他被猜测的同性恋行为的暗示。他的心脏被取出后放入一只银制的花瓶里，后来放进了伊莎贝拉的棺木。格洛斯特郡的权贵和骑士隔着一段距离瞻仰了他的遗体。他的葬礼在格洛斯特大教堂举行，几个大橡树路障被竖起来以阻挡人群。监狱看守没有被定罪，其中两人被发现是无辜的，还有一人后来为爱德华三世效力，第四人在奇怪的环境下被杀害了。
+(A) ‘‘The U.S. government has reason to believe that several researchers inside the WIV became sick in autumn 2019, before the first identified case of the outbreak, with symptoms consistent with both COVID–19 and common seasonal illnesses.’’.
 
-仍然有一个奇怪的结论。在法国朗格多克（Languedoc）省的档案中，人们发现了一封教廷官员曼努埃尔·迪菲斯基（Manuel di Fieschi）给爱德华三世的信。他重复了一名隐士的忏悔，并称隐士是“你的父亲”。这位隐士具体而详尽地叙述了他的战斗、被捕以及在凯尼尔沃思和伯克利城堡的监禁。他述说了在伯克利时，他的看守怎样警告他有两个骑士要来杀他，两个骑士分别是托马斯·德戈尔内勋爵（Lord Thomas de Gornay）和西蒙·贝雷斯福德勋爵（Lord Simon Beresford）。具体的细节也被写出来了。这位国王换了服装，想办法走出了这座城堡。国王杀了正在睡觉的最后那道门的门卫，拿走他的钥匙，然后逃进夜幕中。
+(B) ‘‘WIV researchers conducted experiments involving RaTG13, the bat coronavirus identified by the WIV in January 2020 as its closest sample to SARS-CoV-2.’’.
 
-记录上写道：那两个骑士被他们要伤害的人打败，又害怕愤怒的王后，所以切下门卫的心脏，把他的尸体放进木箱子里。然后，他们假装说：器官和尸体是爱德华二世的。所以按照这个叙述，王后与门卫的心脏葬在了一起，门卫的尸体仍然安放在爱德华二世有天蓬的圣地下面，这里现在是格洛斯特大教堂（Gloucester Cathedral）。
+(C) ‘‘Despite the WIV presenting itself as a civilian institution, the United States has determined that the WIV has collaborated on publications and secret projects with China’s military.’’.
 
-这位隐士还叙述了那个时期在考夫城堡（Corfe Castle）的秘密，之后他便开始在爱尔兰和法国游荡。教皇约翰（Pope John）在阿维尼翁（Avignon）接见了他，他在这里住了两个星期。按照一位隐士的习惯，他穿过德国，之后进入伦巴第（Lombardy） ，在这个地区，他写下了忏悔。这封信是以曼努埃尔·迪菲斯基给新国王的一句话来结束的：“为了证明这些事情，我已加盖了印章，供大人考量。”这可能是老国王自带的私人印章。所有事情听起来纯粹像传奇剧，不值得严肃考虑，但此信的作者是有威望的教廷官员。他不可能仅仅是心血来潮就给英格兰国王写了一封信。所描述的细节也与历史记录精确地吻合，因此，它一直处于猜测和神秘之中。爱德华二世以一位隐士的身份死于意大利，这可能是最大的事情了。对一个不是非常有益的生命来说，这是一种有启发性的结局。
+(2) Former Director of the Centers for Disease Control and Prevention, Robert Redfield, stated in March 2021 that, ‘‘the most likely etiology of this pathogen in Wuhan was from a laboratory’’ and noted that, ‘‘[i]t is not unusual for respiratory pathogens that are being worked on in a laboratory to infect the laboratory worker.’’.
 
-伊莎贝拉王后和罗杰·莫蒂默的短暂统治并不是辉煌的，它从1326年秋天延续到1330年秋天。被罢黜国王以及勒德斯派瑟家族的土地和金钱被胜利者占有了，王后和她配偶获取了较大份额，当然，剩下的分给了其他追随者。他们也对从希诺特（Hainault）跟过来的富商进行了犒劳。所以国王的财政储备几乎被耗尽，爱德华1326年留下了£61,921，到1330年，只剩£41了。税收以及从佛罗伦萨（Florentine）银行家那里贷款是唯一的应急办法。
+(3) Director-General of the World Health Organization Tedros Adhanom Ghebreyesus acknowledged in March 2021 that the Coronavirus Disease 2019 (COVID–19) may have originated in a laboratory and said this hypothesis ‘‘requires further investigation, potentially with additional missions involving specialist experts.’’.
 
-年轻国王在1327年加冕，但他的权力是名义上的而不是真正的。他受制于男爵和主教组成的一个委员会，同时，罗杰·莫蒂默是公共事务的领导者。罗伯特·布鲁司没有让一个少数民族失去机会，他入侵了英格兰的北部地区。莫蒂默和年轻国王带领军队去抵抗他，但一无所获。据说，爱德华三世在战役失败后哭了，此战役产生了一个条约，条约承认：布鲁司为苏格兰国王。这个条约对他今后的统治不是好预兆。
+SEC. 3. SENSE OF CONGRESS.
 
-然而，新国王完全不像他父亲。十八岁时，他就感觉不安和有怨恨了。像他爷爷爱德华一世那样，他渴望把军事荣耀当作君主的特权。他可能责怪过莫蒂默在苏格兰的惨败，还让他对税收减少负责任。莫蒂默与这位国王争执不下，成为另一个“权力过大”的人。
+It is the sense of Congress that—
 
-伊莎贝拉现在怀着莫蒂默的孩子，爱德华担心继承权被迫发生改变。有人告诉他，最好是把狗吃掉，而不是让狗吃了他。所以，一次暗杀行动被酝酿。莫蒂默和伊莎贝拉到诺丁汉城堡去旅行，一队受命于爱德华的骑士埋伏在城墙外的灌木丛中。城堡里的一位官员向骑士泄露了直通私人住处的暗道，骑士在住处突袭了莫蒂默并逮捕了他。伊莎贝拉冲出卧室，尖叫着：“好儿子，怜悯尊贵的莫蒂默吧！”但在这个时代，怜悯是稀有物。莫蒂默在伦敦被审讯，很快被处决了。伊莎贝拉被送进私人住宅。爱德华三世获得了他的王国。
+(1) identifying the origin of Coronavirus Disease 2019 (COVID–19) is critical for preventing a similar pandemic from occurring in the future;
+
+(2) there is reason to believe the COVID–19 pandemic may have originated at the Wuhan Institute of Virology; and
+
+(3) the Director of National Intelligence should declassify and make available to the public as much information as possible about the origin of COVID–19 so the United States and like-minded countries can—
+
+(A) identify the origin of COVID–19 as expeditiously as possible, and
+
+(B) use that information to take all appropriate measures to prevent a similar pandemic from occurring again.
+
+SEC. 4. DECLASSIFICATION OF INFORMATION RELATED TO THE ORIGIN OF COVID–19.
+
+Not later than 90 days after the date of the enactment of this Act, the Director of National Intelligence shall—
+
+(1) declassify any and all information relating to potential links between the Wuhan Institute of Virology and the origin of the Coronavirus Disease 2019 (COVID–19), including—
+
+(A) activities performed by the Wuhan Institute of Virology with or on behalf of the People’s Liberation Army;
+
+(B) coronavirus research or other related activities performed at the Wuhan Institute of Virology prior to the outbreak of COVID–19; and
+
+(C) researchers at the Wuhan Institute of Virology who fell ill in autumn 2019, including for any such researcher—
+
+(i) the researcher’s name;
+
+(ii) the researcher’s symptoms;
+
+(iii) the date of the onset of the researcher’s symptoms;
+
+(iv) the researcher’s role at the Wuhan Institute of Virology;
+
+(v) whether the researcher was involved with or exposed to coronavirus research at the Wuhan Institute of Virology;
+
+(vi) whether the researcher visited a hospital while they were ill; and
+
+(vii) a description of any other actions taken by the researcher that may suggest they were experiencing a serious illness at the time; and
+
+(2) submit to Congress an unclassified report that contains—
+
+(A) all of the information described under paragraph (1); and
+
+(B) only such redactions as the Director determines necessary to protect sources and methods without altering or obscuring in any way the information described under paragraph (1).
 
 0
