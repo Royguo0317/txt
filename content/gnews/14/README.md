@@ -1,47 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月14日美国政要反共推文精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1243539/)
+## 中共国民办学校退出教育舞台已露征兆
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1243603/)
 
-众议员吉姆·班克斯： 美国承受不起更多的延误。 国会需要立刻知道哪些公司与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的军事相关，然后我们需要通过我的法案《停止资助中共解放军法》来禁止对它们的投资。 【附大纪元报报道：批评中共国者对五角大楼推迟对中共国军事公司的报告做出反应】
+**撰稿：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14221708/31-2.jpg)
+中国国务院昨天公布相关条例，采取措施限制民办学校在九年义务教育阶段的角色。
 
+根据彭博社引述国务院昨晚公布的修订后《民办教育促进法实施条例》，任何社会组织和个人不得通过兼并收购、协议控制等方式控制实施义务教育的民办学校。
 
+报道指出，这是**国家主席习近平为加强国家和共产党在社会中扮演角色所作出的努力的一部分。**
 
-> America can’t afford more delays.
->  
-> Congress needs to know which firms are tied to China's military ASAP, then we need to ban investments in them by passing my bill, the Stop Funding the PLA Act.[https://t.co/kkRL649iv7](https://t.co/kkRL649iv7)
-> — Jim Banks (@RepJimBanks) [May 14, 2021](https://twitter.com/RepJimBanks/status/1393309464451760129?ref_src=twsrc%5Etfw)
+这项于9月1日生效的条例还规定外商投资企业以及外方为实际控制人的社会组织不得举办实施义务教育的民办学校。规定并指出，**所有民办学校应当坚持中国共产党的领导，坚持社会主义办学方向。**
 
+限制民办学校在九年义务教育中的作用，本质上与限制民营企业在经济发展中的背后逻辑是一致的。
 
+教育的加速发展来源于制度上的创新。制度创新的背后，一是国家对教育的制度安排；二是教育开放。教育向民间开放，带来私人对教育的大规模投资。一方面解决了政府办教育的供给不足的问题，另一方面满足了个人对于教育多样性的需求。
 
-联邦调查局FBI： 大学研究员在申请基金为中共国发展专门科学知识上撒谎而被判入狱。(链接是司法部官网公告：俄亥俄州立大学教授和研究学者郑宋国获罪入狱)【图片说明：被告隐瞒自己参加中共政府人才招揽计划和与至少五个中共国研究机构的合作关系。被告郑贪婪攫取联邦研究经费却阻止他人获得资金来进行支持医学进步的关键研究。不管他们逃到哪里，飞机上，阿拉斯加还是半夜三更，FBI将继续缉拿这些人】
+在希望实施高质量义务教育的初衷下，向民间部门开放教育是现代国家在解决教育治理问题上重要的公共政策选择。先数量后质量，大力发展私立教育都是全球发达国家教育的成功发展路线。当前一些发达国家，甚至出现了公办、民办教育混合的趋势，公立学校和私立学校界限趋于模糊混合型的学校趋于增加。
 
+特别是在中共国发达的一线城市，民办国际化学校的受欢迎程度，实质反应了家长内心的真实需求，就是在当今人才的核心竞争力，各国没有争议的就是对国际化视野的培养，这是对中共传统教育形式的反思。国际化教育，往往可以成为更大范围的教育改革的实验田和信息窗口，对于教育改革的方向产生有益的影响。而对于教育内容的反思，则本质上是对于未来国际人才标准与国家公民标准的探讨。
 
+现在中共一纸文书，将民办教育力量一下子囚禁在很小的范围内，从原文中的“所有民办学校应当坚持中国共产党的领导，坚持社会主义办学方向”这一句话，就能大致确定这一规定的背后目的。
 
-> University Researcher Sentenced to Prison for Lying on Grant Applications to Develop Scientific Expertise for China [@FBICincinnati](https://twitter.com/FBICincinnati?ref_src=twsrc%5Etfw) [https://t.co/ACFK0pedCo](https://t.co/ACFK0pedCo) [pic.twitter.com/rDVzNaccBf](https://t.co/rDVzNaccBf)
-> — FBI (@FBI) [May 14, 2021](https://twitter.com/FBI/status/1393258616988348420?ref_src=twsrc%5Etfw)
+中共不希望听到不同的声音，更不允许培养出有质疑精神和批判思维的人，不然对于他们的政权都是潜在的危机。从最近在基础教育中兴起的“红色革命故事活动”可以看出，那些低学龄的儿童，在不明所以的情况下，穿起所谓军装，将一个个虚假的革命故事通过诗朗诵、剧本演出的方式呈现出来，这种扎根于思想深处的文化洗脑，就是要将中共长期塑造的伟光正形象植入于这些孩子的心中，以便日后成为新一代的“小粉红”，来进行思想上的奴役。
 
+中共70年来对于国民的洗脑就是利用这种方式，改革开放之后，西方的价值观多多少少传入中共国内，许多有觉悟的人都开始对真假善恶有清晰的自我认识，但随着一尊统治下，中共开启历史的倒车后，被伪装的假骗偷已无处躲藏，因此除了重拾“思想束缚”的一套，没有更好的方法来对中共的恶行加以掩盖。而这种思想荼毒对下一代会有多大的影响？对中国的发展有多大的牵绊？从十年文革粉碎文明，就能做出一个预判。
 
+（本文只代表作者观点，与Gnews平台无关。）
 
-参议员玛莎·布莱克本: 去年，我们面临了巨大的困难，但是这场危机是可以避免的。如果北京不隐瞒信息和对世界撒谎，今天我们会安全得多。 【附[http://axios.com](https://t.co/bZseuGwPHd?amp=1)报道：世卫特别报告认为新冠大流行本可以避免】
+**新闻来源：**
+[中国将限制民办学校在九年义务教育中的作用 | 早报 (zaobao.com.sg)](https://www.zaobao.com.sg/realtime/china/story20210515-1146931)
 
+***校对发布**：文顾*
 
-
-> We’ve faced tremendous hardships this last year, but this crisis was preventable. Had Beijing not withheld information and lied to the world, we would be in a much safer place today.[https://t.co/FQt3ab9q0O](https://t.co/FQt3ab9q0O)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 14, 2021](https://twitter.com/MarshaBlackburn/status/1393250758691282948?ref_src=twsrc%5Etfw)
-
-
-
-彼得·纳瓦罗（前白宫国际贸易顾问】： 福奇对兰德·保罗撒谎。这里是证据。 【附[http://thenationalpulse.com](https://t.co/R8zILIUVl3?amp=1)报道：纳瓦罗列举9项事实福奇与新冠起源有关】
-
-
-
-> Fauci stone cold lied to Rand Paul. Here's the evidence.[https://t.co/U7F9h2Q3Zx](https://t.co/U7F9h2Q3Zx)
-> — Peter Navarro (@RealPNavarro) [May 14, 2021](https://twitter.com/RealPNavarro/status/1393275404358664193?ref_src=twsrc%5Etfw)
-
-
-
-
-
-0
++1

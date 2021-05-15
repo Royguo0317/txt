@@ -1,45 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】童年的味道（五）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1243474/)
+## 中共将疫苗武器化
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1243548/)
 
-配音：香草山录音组 Gtv abeilles（蜜蜂）
+台湾宝岛农场 文旦
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+中国利用疫苗外交抢走台湾在拉美地区的盟友，美国国务院周四（5月13日）不点名谴责这种出于政治目的「恶意使用」疫苗的行为。
+
+中共使用疫苗作为外交武器，利用疫苗破坏他国外交关系，或使他国遭其中共利用。
+
+中共疫苗在全世界都可知道，是一个非常不安全的疫苗，数据等等都未揭露，新冠病毒（病毒）在全世界爆发，至今都未找到病原体及样本，且该病毒几乎已经确定从病毒研究所制造，且在中共的军方控制的研究所中。
+
+发动新冠病毒（中华人民共和国病毒）扩散全世界，破坏他国经济，医疗体系，造成他国混乱，再利用疫苗去控制，经济能力弱的国家，强迫他国，影响他国政治经济等一系列做法，让人可耻。
+
+疫苗因该是让人安心的物品，但现在被改变，利用医学和科学的专业信任，来制造这一切问题，当利益凌驾于专业的信任之上，这就是灾难了。
+
+疫苗在这个病毒灾难中，被应急而生，长期安全性备受考验，且在没有病原体和中见宿主的情况下研发，这让疫苗可以成为一种武器，利用疫苗的信任，让所有人打疫苗，之后再产生疫苗的次生灾害。
+
+疫苗公司背后股东资金来源到底在哪？ ，批准疫苗的人是否因为利益而制作疫苗？
+
+为甚么有更好的预防治疗且便宜以长久的药方不想讨论，这中间的问题在底在哪呢？
+
+这些真相正在依依曝光!!! 传播真相，缺你一个，你很重要，你的一小步，就是灭共的一大步!!!
+
+引用数据：[https://www.epochtimes.com/b5/21/5/13/n12947200.htm](https://www.epochtimes.com/b5/21/5/13/n12947200.htm)
+
+台湾宝岛农场youtobe：
 
 
 
-
-
-
-
-小姨来信，说外婆病重，希望妈妈回去看看。因为跟我们同住的奶奶身体不好，妈妈工作、家务两头忙，暂时走不开，就让大姨代表她回去一趟，顺便捎上我一起去。那是我第一次，也是唯一一次去外婆家。
-
-在那个交通不便的年代，外婆家可以说是路途遥远：先乘船，再乘一夜一天的火车，然后需要在火车终点站住宿一夜，第二天一早转乘公共汽车，直至傍晚到达小镇上，还需继续走几里土路才能来到外婆家。大姨带着不到十岁的我和两岁的表妹，一路上颠颠簸簸，十分辛苦。
-
-
-
-**文字版原文：[【言于其食】童年的味道（五）](https://gnews.org/zh-hans/1240864/)**
-
-作者：纽约香草山美食部 蓝天大海
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+请大家帮忙订阅感谢你!!!!
 
 0

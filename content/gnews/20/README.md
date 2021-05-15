@@ -1,40 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## News Express: 撕开银行破产的遮羞布
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1243436/)
+## 5月14日美国政要反共推文精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1243539/)
 
-**撰稿：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14205909/26-11.jpg)
-根据路透北京5月14日报道，中国辽宁省城商行整体改革有了新进展，新的一家省级城市商业银行呼之欲出。据三位消息人士周五透露，辽宁拟新成立一家城商行“辽沈银行”，先期吸收合并辽阳银行和营口沿海银行，启动资本金200亿元人民币，料于6月底或7月初挂牌，但最终情况还要看对相关银行的坏账剥离情况。
+众议员吉姆·班克斯： 美国承受不起更多的延误。 国会需要立刻知道哪些公司与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的军事相关，然后我们需要通过我的法案《停止资助中共解放军法》来禁止对它们的投资。 【附大纪元报报道：批评中共国者对五角大楼推迟对中共国军事公司的报告做出反应】
 
-而就在本周三，辽宁省公告称，将于下周三（19日）招标发行一期支持中小银行发债专项债，规模100亿元，并会通过辽宁金融控股集团注入到一家新的城商行，用于其资本金。
 
-那么如果这两起新闻是有内在联系的话，200亿之中的100亿通过专项债的募集来解决，另外100亿的出路在哪里呢？
-一位消息人士称，“另外100亿会由地方企业来分摊，这些只是先期启动资本金，后期还会增资。省政府定的6月底7月初成立，不过也要看对辽阳和营口沿海两家的坏账处置进度。”
 
-他并提到，参与出资的地方国有机构包括盛京金控集团、辽阳水务、营口城投等。
+> America can’t afford more delays.
+>  
+> Congress needs to know which firms are tied to China's military ASAP, then we need to ban investments in them by passing my bill, the Stop Funding the PLA Act.[https://t.co/kkRL649iv7](https://t.co/kkRL649iv7)
+> — Jim Banks (@RepJimBanks) [May 14, 2021](https://twitter.com/RepJimBanks/status/1393309464451760129?ref_src=twsrc%5Etfw)
 
-辽宁省政府网在今年1月末曾发布消息称，研究推进省内城商行整体改革工作，通过申请新设组建一家省级城商行，合并辽宁省内12家相关城商行。
 
-但在处理辽阳银行和营口沿海银行的坏账时，由于规模过于庞大，处置进度缓慢，前期地方金融监管机构推进不尽如人意，故后来改由地方政法委牵头。
 
-上述新闻信息量巨大，我们来撕开所谓中共一直回避的“银行破产”的遮羞布：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14210252/22-4.png)
-首先，启动资金的构成，一半来自专项债的募集。那么这些专项债的购买者是谁？大多是那些手握巨额管理规模的资产管理公司或者银行。那么银行的资金又来自于谁？基本就是个人和企业，甚至很多还是用于理财的表外资金。另外一半来自于当地企业分摊，这其中的企业是国有还是民营的？会否又画了一个饼，让这些企业自愿加入其中，但最终如果银行又发生风险，是否再次剥离不良资产后，重新把这个游戏玩一遍？
+联邦调查局FBI： 大学研究员在申请基金为中共国发展专门科学知识上撒谎而被判入狱。(链接是司法部官网公告：俄亥俄州立大学教授和研究学者郑宋国获罪入狱)【图片说明：被告隐瞒自己参加中共政府人才招揽计划和与至少五个中共国研究机构的合作关系。被告郑贪婪攫取联邦研究经费却阻止他人获得资金来进行支持医学进步的关键研究。不管他们逃到哪里，飞机上，阿拉斯加还是半夜三更，FBI将继续缉拿这些人】
 
-其次，参与出资的地方国有机构包括盛京金控集团、辽阳水务、营口城投等。看似都是大而不倒的国有企业，为这家呼之欲出的新银行做了强有力的信用背书。但我们联想到前几天爆出的内蒙古春华水务的债务违约，其实已经预示了所谓坚如磐石的地方城投平台，开始被动摇了，地方城投平台背后是当地政府的信用背书，因为政府无法直接出面融资，才有地方城投平台的风生水起，前几年，甚至在债券界中，此类城投债是各方争抢的香饽饽，因为从未有人考虑地方政府的信用破产，但不幸的是，这些都已经开始发生了。那么本就是银行破产重组，背后的股东又是有信用破产可能地方政府，就好比用一层层的坏布，企图包装出华丽衣着的模特，可能吗？大家用正常的逻辑去思考一下。
 
-最后，为何在处理辽阳银行和营口沿海银行的坏账时，处置进度慢到要由地方政法委牵头，这更是荒唐可笑。金融的事件，需要国家政法机器来干预，那么法在哪里。政法委又是做什么的，在习一尊上台之后，政法委行使的最多的角色就是抓捕不要理由，杀人不见血的反腐运动。何为反腐，就是“以贪反贪”，处理坏账有障碍，政法委出手，抓几个人，构陷几条莫须有的罪名，“名正言顺”地罚没巨额资金，既扫清处置坏账中的绊脚石，又将这些绊脚石的资产收归国有，可谓一箭双雕。这样“让政法委出面”的荒唐行为，一定会被复制到方方面面。
 
-文贵先生自从爆料以来，就多次提到中共治下的银行黑洞之多，风险之大，随着中共经济的溃败，银行的风险会被逐渐释放，中共企图用这种破败不堪的遮羞布去掩盖无法掩饰的漏洞，注定是一场骗局，希望墙内的战友们认清背后的诡计和黑幕，不要在最后一刻登上这条破船。
+> University Researcher Sentenced to Prison for Lying on Grant Applications to Develop Scientific Expertise for China [@FBICincinnati](https://twitter.com/FBICincinnati?ref_src=twsrc%5Etfw) [https://t.co/ACFK0pedCo](https://t.co/ACFK0pedCo) [pic.twitter.com/rDVzNaccBf](https://t.co/rDVzNaccBf)
+> — FBI (@FBI) [May 14, 2021](https://twitter.com/FBI/status/1393258616988348420?ref_src=twsrc%5Etfw)
 
-（本文只代表作者观点，与Gnews平台无关。）
 
-**新闻来源：**
-[辽宁城商行改革拉开大幕 拟新设辽沈银行并于下月底左右挂牌–消息 | 路透 (reuters.com)](https://cn.reuters.com/article/liaoning-urban-commercial-banks-0514-idCNKBS2CV0FZ?il=0)
-[城投公司再现违约： 春华水务7.46亿债务逾期，4家银行“踩雷” – 21财经 (21jingji.com)](https://m.21jingji.com/article/20210508/herald/99f7e1fa9735ce9fc1aa70b9a6a0dcfe.html)
 
-***校对发布**：文顾*
+参议员玛莎·布莱克本: 去年，我们面临了巨大的困难，但是这场危机是可以避免的。如果北京不隐瞒信息和对世界撒谎，今天我们会安全得多。 【附[http://axios.com](https://t.co/bZseuGwPHd?amp=1)报道：世卫特别报告认为新冠大流行本可以避免】
+
+
+
+> We’ve faced tremendous hardships this last year, but this crisis was preventable. Had Beijing not withheld information and lied to the world, we would be in a much safer place today.[https://t.co/FQt3ab9q0O](https://t.co/FQt3ab9q0O)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 14, 2021](https://twitter.com/MarshaBlackburn/status/1393250758691282948?ref_src=twsrc%5Etfw)
+
+
+
+彼得·纳瓦罗（前白宫国际贸易顾问】： 福奇对兰德·保罗撒谎。这里是证据。 【附[http://thenationalpulse.com](https://t.co/R8zILIUVl3?amp=1)报道：纳瓦罗列举9项事实福奇与新冠起源有关】
+
+
+
+> Fauci stone cold lied to Rand Paul. Here's the evidence.[https://t.co/U7F9h2Q3Zx](https://t.co/U7F9h2Q3Zx)
+> — Peter Navarro (@RealPNavarro) [May 14, 2021](https://twitter.com/RealPNavarro/status/1393275404358664193?ref_src=twsrc%5Etfw)
+
+
+
+
 
 0

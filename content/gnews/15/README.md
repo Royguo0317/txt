@@ -1,35 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/05/14 郭文贵先生盖特精要
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1243455/)
+## 【鹰眼墙国】数字经济再“坚挺”反爆中共复苏假象
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1243600/)
 
-听写：万物归一 | 校对: 樂禧禧 | Page: Daoiii
-
-[!\[\]()!\[\](https://spark.adobe.com/page/e7waFMz9SGa8m/images/46c34a1f-1998-4de4-b520-17e6f8e46683.png?asset_id=f493fa39-8643-40d3-9940-ad0db79173a0&amp;img_etag=%224ee949fc8d708080392601163927afad%22&amp;size=1024)](https://spark.adobe.com/page/e7waFMz9SGa8m/images/46c34a1f-1998-4de4-b520-17e6f8e46683.png?asset_id=f493fa39-8643-40d3-9940-ad0db79173a0&amp;img_etag=%224ee949fc8d708080392601163927afad%22&amp;size=1024)
-
-**5月14号：任何对无辜的体制内的孩子、被拒签而幸灾乐祸的人！都是不正确的，呼吁所有的买Gclub的战友以最快的时间，到你的农场对账，或给Gclub公司直接打电话，对帐领卡！不要让自己失去利益的机会！**
-
-[G-TV链接](https://gtv.org/getter/609e80fc37f7f73984cb99f5)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/e7waFMz9SGa8m/images/59a48e61-f359-454e-b877-7cee341e9e63.png?asset_id=797834bd-0291-4c1e-abd7-ad815862af4e&amp;img_etag=%2211905bd762d7e35d31bb37b53cdd45be%22&amp;size=1024)](https://spark.adobe.com/page/e7waFMz9SGa8m/images/59a48e61-f359-454e-b877-7cee341e9e63.png?asset_id=797834bd-0291-4c1e-abd7-ad815862af4e&amp;img_etag=%2211905bd762d7e35d31bb37b53cdd45be%22&amp;size=1024)
-
-1. 全球拒签中国留学生的国家数量在增加，这些学生的父母大多在国内体制内工作。
-2. 和美国作对不要抱有任何侥幸心理，美国可以在任何时间和地点对其作出报复和惩罚。
-3. 一旦发生战争冲突，美国会首先斩首，所用的武器会超出常人的认知，可以做到精确定点打击。
-4. 美国的Chase Bank非法泄露战友信息，以及魏继红的做恶，导致最近很多战友和战友的家人被抓捕，很多都是VOG的汇款者。
-5. 体制内的孩子是无辜的，美国拒签的做法是不对的，战友们不要幸灾乐祸，要包容。
-6. 现在把钱从国内转出来的都是牛人，没有转出来的现在转大钱就比较难了。
-7. 买GClub的战友们抓紧时间找各农场对账领卡，六月四号有重大决定，七月四号有重大礼物，不要错失良机。
+香草山写作组  鹰(文言)
 
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/e7waFMz9SGa8m/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/e7waFMz9SGa8m/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+澎湃网5月14日报道，中共社科院发布《数字经济蓝皮书：中国数字经济前沿（2021）》，蓝皮书指出2020年中共国数字经济增加值超19万亿，占GDP的18.8%。
 
-0
+中共信通院在2020年7月份发布的《中国数字经济发展白皮书 （2020年）》报告中显示，2019年中共国数字经济增加值规模达35.8万亿（占GDP比重的36.2%，同比2018年增长14.5%）。2020年相较于19年经济总量“突破”100万亿元，实现2.3%的增长。2020年，中共开始吹嘘和推广数字货币：不仅多地政府发放数字红包，数字货币试验区也纷纷建立。这些宣传和政策，无疑较2019年更上一个台阶。然而，2020年数字经济在GDP中的占比却从18年、19年的35%左右骤降至不到20%。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14221222/Screen-Shot-2021-05-14-at-10.11.43-PM.png)
+北京大学国家发展研究院教授、中国健康发展研究中心主任李玲在2020年11月参加上海论坛时称，中国今年因抗疫获得价值约人民币67万亿元收益。她在12月的《疫情引发对中国未来发展模式的重新思考》论坛上也有如此阐述。李玲近日指出，这67亿元的收益中，56万亿元是避免死亡、伤残带来的健康收益，而11万亿是直接的经济收益。
+
+中共的100万亿GDP中，67万亿是“抗疫”收益，如卖核酸检测试剂等利用疫情而获得的收益。另外19万亿是数字经济。近年来，数字经济和实体经济融合被热炒并被推行。可以想见，上述的19万亿经济总量中，仅有少部分可真正用于带动消费和维系实体经济。鉴于中共造假的惯例以及无官不贪的体制环境，真正能用于经济复苏和民生保障的资金规模只会更低。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14221205/Screen-Shot-2021-05-14-at-10.11.47-PM.png)
+2020年年初CCP病毒大爆发，七八月份长江流域又有特大洪灾，国内的中小微企业已面临流动资金紧张、营收断崖、赋税上涨等严峻形势。而盈利恶化，各大企业迎来倒闭潮，进而会引发失业人口增长。下半年，生存危机更蔓延到大型国企央企。中共一方面是丧事喜报，宣传经济“稳中求进”，另一方面则是加大力度的搜刮社会资本和人民个人财富。在2021年更将屠刀杀向大型民企私企，让本就收支不平衡、断供潮来袭的底层人民更是雪上加霜。
+
+2020年数字经济的“增值”暴露了中共以假治国，以黑治国的本质。在“以钱灭共”戳破中共经济擀面杖子假外壳，“以毒灭共”扯下其共建命运共同体的牌坊的世界潮流下，中共灭亡越发临近。
+
+新闻来源：
+
+报告：去年中国数字经济增加值占GDP比重达18.8%https://www.thepaper.cn/newsDetail\_forward\_12673102
+
+数字经济 | 2019年我国数字经济增加值增长15.6%https://www.sohu.com/a/406162108\_99917855
+
+促进数字经济与实体经济融合发展http://www.xinhuanet.com/tech/2020-06/17/c\_1126122610.htm
+
+关于新冠疫情对我国经济发展影响的 分析与建议综述https://new.qq.com/omn/20201030/20201030A01A3700.html
+
+2020答案年终秀D场：疫情引发对中国未来发展模式的重新思考https://www.bilibili.com/video/av800519750/
+![This image has an empty alt attribute; its file name is 5_May-1.jpg]()![This image has an empty alt attribute; its file name is 5_May-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
++1

@@ -1,221 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 战友展览板【5/14】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1243390/)
+## 【鹰眼墙国】“公牛”被立案调查，“反垄断”抢钱大戏如火如荼
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1243559/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
+香草山写作组  鹰(文言)
 
-【以毒灭共】推文。如下
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-> More excellent work by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@xiaomayi7](https://twitter.com/xiaomayi7?ref_src=twsrc%5Etfw) putting names to faces. No surprise Pei-Yong Shi from the University of Texas Medical Branch, Galveston is right there in the front. He works with the Wuhan Institute of Virology and the People's Liberation Army. [https://t.co/yAvQkncMOW](https://t.co/yAvQkncMOW)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 13, 2021](https://twitter.com/LawrenceSellin/status/1392728539527622657?ref_src=twsrc%5Etfw)
 
 
-1. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1392728539527622657?s=20)**：（转图）
-*#新型冠状病毒 更多精彩作品来自侦探 @xiaomayi7
-给人物加上名字。毫不奇怪，来自德克萨斯大学医学分部的史佩勇就在前面。曾就职于武汉病毒研究所和中国人民解放军*
+中国新闻网5月14日报道，12日晚，公牛集团公告称，因涉嫌与交易相对人达成并实施垄断协议等行为，公牛集团被浙江省市场监管局立案调查，13日公牛股票开盘大跌9%。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14214644/Screen-Shot-2021-05-14-at-9.46.01-PM.png)
+公牛集团创立于1995年，属民用电工企业，主营范围涵盖电工照明、数码配件。2020年转换器、墙壁开关插座双双占据天猫市场第一位。在受CCP病毒大爆发经济下滑的2020年，公牛更通过A股上市市值直接从500亿元翻番，全年营收100.51亿元（其中归母净利润23.13亿元）。在大型国企、央企被曝还债危机、银行破产重组的严峻形势下，公牛能够盈利上涨实属不易。
 
+然而在经济下行压力的逼迫下，中共盗国贼的搜刮规模和程度更加令人发指。不但利用各种名目的“税收”以充实国库，更加大了对私营民营企业的剥削和利益抢占。3月12日，中共国家市场监管局根据《反垄断法》以“未对交易进行依法申报，构成违法”对腾讯、阿里巴巴、百度、京东等12家互联网巨头处以高达50万元罚款。而今再对公牛开刀，“反垄断”式抢钱的范围越来越广。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14214624/Screen-Shot-2021-05-14-at-9.46.06-PM.png)
+如果垄断为真，那么2004年中共军方背景企业的华为，以及重度参与军工的小米也早已经构成市场“独占”的局面。2018年度，华为手机全球销量超过苹果位居世界第二位。在经历Google服务停止维护、“芯片”门以及更多上下游产业围堵后，华为在手机行业依旧占据4%的市场份额。而今小米公司生产的国产手机的销量也居榜首。华为和小米对国内市场的“瓜分”；华为手机业务停滞后的“国家力量救助”；华为出售手机行业转做汽车，其每一步都有国家权力的深度配合……试问所有这些都可以不算违反《反垄断法》，那为何上述的科技公司却因为反垄断这一口袋罪遭罚呢？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14214658/Screen-Shot-2021-05-14-at-9.45.56-PM.png)
+综上，反垄断法律本质是中共为了以贪反贪、以罚抢钱。“区别执法”和反逻辑定罪，这些都解释了为什么中共要对对大型民企、私企加大罚款力度。中共以反腐败名义，到处进行的审计也都是为了将社会财富集中化以便更近一层的搜刮民财。
 
-> Excellent work by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@xiaomayi7](https://twitter.com/xiaomayi7?ref_src=twsrc%5Etfw)
-> putting names to faces. [https://t.co/ymCfJzRhrq](https://t.co/ymCfJzRhrq)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 13, 2021](https://twitter.com/LawrenceSellin/status/1392727169105907712?ref_src=twsrc%5Etfw)
+国际形势紧迫，病毒追责加剧，国内社会矛盾多发的现状下，为了保命保江山，习包子却继续他的文革2.0，在自取灭亡的道路上大步迈进。
 
+新闻来源：
 
-1-1. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1392727169105907712?s=20)**：（转图）
-*#新型冠状病毒 更多精彩作品来自侦探 @xiaomayi7
-给人物加上名字*
+“插座大王”被反垄断调查，公牛还“牛”吗？http://www.chinanews.com/cj/2021/05-14/9476793.shtml
 
+反垄断监管落锤公牛集团 专家建议企业建立有效合规管理体系https://finance.sina.com.cn/chanjing/gsnews/2021-05-14/doc-ikmxzfmm2335221.shtml
 
-> 🥸
-> “The workshop is divided into five academic sessions, including (1) gain of function research, gene editing, targeting and delivery and other novel biotechnology; ” [https://t.co/gP72Je3LWW](https://t.co/gP72Je3LWW) [pic.twitter.com/LzQhNB3RtQ](https://t.co/LzQhNB3RtQ)
-> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [May 12, 2021](https://twitter.com/jsdfposjpqyuee1/status/1392515929867653121?ref_src=twsrc%5Etfw)
+公牛集团遭反垄断调查：掌控百万经销商，警惕纵向垄断协议风险https://finance.sina.com.cn/tech/2021-05-13/doc-ikmyaawc5136633.shtml
 
+华为：环比增长18％，市场份额仅4％，不到两年从第二跌至第六https://new.qq.com/omn/20210330/20210330A0C49600.html
 
-2. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1392515929867653121?s=20)**：
-***（彼得）**[由福奇博士资助的研究人员在武汉实验室“功能增益”大会](https://thenationalpulse.com/exclusive/fauci-researchers-headlined-wuhan-gain-of-function-event/)
-**（火来）**昨天听证会刚结束，今天继续敲打福奇，赶紧跳船吧
-“研讨会分为五个学术会议，包括：（1）功能增益研究、基因编辑、靶向和传递及其他新型生物技术；”*
+Counterpoint：去年华为手机全球出货市场份额14%，排名第三https://www.sohu.com/a/458391619\_166680
 
+阿里、腾讯、百度齐收反垄断罚单！12家互联网巨头遭顶格处罚https://www.163.com/dy/article/G4VFQ3OH0550EWRZ.html
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+编辑/校对/发稿：正义的小新
 
-> 2003 年SARS疫苗也是科兴做的，这个问题好像没人注意到。[https://t.co/3cQSHVg9co](https://t.co/3cQSHVg9co) [pic.twitter.com/MHgOEL0Xab](https://t.co/MHgOEL0Xab)
-> — MyWay (@BabitheNaiNai1) [May 13, 2021](https://twitter.com/BabitheNaiNai1/status/1392685601170894848?ref_src=twsrc%5Etfw)
+**更多资讯，更多关注**
 
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-3.**[MyWay推特](https://twitter.com/BabitheNaiNai1/status/1392685601170894848?s=20)**：
-*[2003 年SARS疫苗也是科兴做的，这个问题好像没人注意到](https://news.sina.com.cn/c/2003-07-21/10291383897.shtml)
-（[补充：人民网2004年7月2日表示，SARS是实验室科研项目](http://www.people.com.cn/GB/shehui/8217/33138/33139/index.html)）*
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-> When Drs. Tedros, Fauci, Ralph Baric all turned to require transparent & thorough investigation of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) lab-origin, since “Knowing how COVID-19 emerged is critical for informing global strategies to mitigate the risk of future outbreaks.”
-> Who would veto it? For what reason? [https://t.co/uICHwfZiQY](https://t.co/uICHwfZiQY)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 13, 2021](https://twitter.com/DrLiMengYAN1/status/1392947761792921606?ref_src=twsrc%5Etfw)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-4. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1392947761792921606?s=20)**：
-***（梅茨尔）**如果#RalphBaric，这位对嵌合冠状病毒有最多了解的美国科学家，以及与 #武毒所 有最紧密工作关系的科学家，认为实验室意外所导致，即 #大流行的实验室起源是可能的，那么还会有人合法地声称不可能吗？
-**（闫）**当Tedros博士、Fauci博士、Ralph Baric博士都转向要求对#COVID19的实验室来源进行透明和彻底的调查，因为 “了解COVID-19是如何出现的，对于告知全球战略以减轻未来爆发的风险至关重要”。（凶手）谁会否决它？出于什么原因？*
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-
-> 明确有军方背景的陈志伟2给中共联合培养和输送了大量研究人才
-> 
-> 节点：
-> 香港大学新发传染病国家重点实验室SKL ：袁国勇、管轶、陈志伟2、Malik
-> 香港大学艾滋病研究中心 ：陈志伟2、郑伯健
-> 粤港新发传染病联合实验室（汕头大学）：管轶、朱华晨
-> 粤港传染病监测联合实验室（中山大学）：袁国勇、曹开源
-> — 德意志之鹰 (@dezying) [May 13, 2021](https://twitter.com/dezying/status/1392931406200901641?ref_src=twsrc%5Etfw)
-
-
-5. **[德意志之鹰推特](https://twitter.com/dezying/status/1392931406200901641?s=20)**：
-*明确有军方背景的陈志伟2给中共联合培养和输送了大量研究人才 节点： 
-香港大学新发传染病国家重点实验室SKL ：袁国勇、管轶、陈志伟2、Malik 
-香港大学艾滋病研究中心 ：陈志伟2、郑伯建 
-粤港新发传染病联合实验室（汕头大学）：管轶、朱华晨 
-粤港传染病监测联合实验室（中山大学）：袁国勇、曹开源
-以“周婕”为例，2004年就师从郑伯建，从事冠状病毒研究，此人之前的背景暂时无法查证。 以“周润宏”为例，陈志伟的艾滋病研究所也是大陆背景研究人士栖身之处。周从武汉大学博士毕业后、历经中国疾控中心张永振门下、最终来到港大这个开宗之地*
-
-
-> ⚡️塞林上校接受战斗室采访说，病毒来自于实验室已毫无疑问，现在要查清的是泄漏还是故意投放
-> 他特别感谢中国老百姓帮他挖掘中文信息
-> 班农先生称塞林上校为「真正的美国英雄」、「真正的爱国者」，在调查病毒来源上做出了「英勇卓越的工作」
-> 
-> 那些质疑塞林上校身份的人，可以听听班农先生是如何介绍他的 [pic.twitter.com/zRLQsT9xHF](https://t.co/zRLQsT9xHF)
-> — 珠穆朗玛 (@ZanXixi) [May 13, 2021](https://twitter.com/ZanXixi/status/1392989173624107013?ref_src=twsrc%5Etfw)
-
-
-6. **[喜站推特](https://twitter.com/ZanXixi/status/1392989173624107013?s=20)**：
-*塞林上校接受战斗室采访说，病毒来自于实验室已毫无疑问，现在要查清的是泄漏还是故意投放 他特别感谢中国老百姓帮他挖掘中文信息 班农先生称塞林上校为「真正的美国英雄」、「真正的爱国者」，在调查病毒来源上做出了「英勇卓越的工作」 那些质疑塞林上校身份的人，可以听听班农先生是如何介绍他的*
-
-
-> 姜世勃,利用I-Mutant2.0辅助设计与优化中东呼吸综合症冠状病毒融合抑制多肽
-> 通过分析病毒HR2区融合抑制剂序列中若干适合与不适合的位点，并设计出一系列的多肽。结果发现，对适合优化的点位进行调整的多肽，其对HR1的结合能力及病毒抑制活性均有所提升，反之多肽活性明显下降。[@LawrenceSellin](https://twitter.com/LawrenceSellin?ref_src=twsrc%5Etfw) [pic.twitter.com/SkOtggramz](https://t.co/SkOtggramz)
-> — Devon Y (@devonJ32130301) [May 14, 2021](https://twitter.com/devonJ32130301/status/1393112478104506369?ref_src=twsrc%5Etfw)
-
-
-7. **[Devon Y推特](https://twitter.com/devonJ32130301/status/1393112478104506369?s=20)**：
-*姜世勃,利用I-Mutant2.0辅助设计与优化中东呼吸综合症冠状病毒融合抑制多肽 通过分析病毒HR2区融合抑制剂序列中若干适合与不适合的位点，并设计出一系列的多肽。结果发现，对适合优化的点位进行调整的多肽，其对HR1的结合能力及病毒抑制活性均有所提升，反之多肽活性明显下降*
-
-
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@ZionaEmanuel](https://twitter.com/ZionaEmanuel?ref_src=twsrc%5Etfw) correctly cites 2014 Millet Whittaker may have motivated a furin cleavage site insertion, also noted in 2015 Bat-to-human: spike features determining ‘host jump’ of coronaviruses SARS-CoV, MERS-CoV, & beyond Guangwen Lu, Qihui Wang & George F Gao [https://t.co/QemFaGApjZ](https://t.co/QemFaGApjZ)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 14, 2021](https://twitter.com/LawrenceSellin/status/1393116711826731009?ref_src=twsrc%5Etfw)
-
-
-8. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1393116711826731009?s=20)**：
-***（老百姓）**或许他们最早只是想做个双表达的载体用于筛药(2013年)。但在2015年Cornell的团队报道了MERS-CoV的Spike Pr.经furin介导激活提升了病毒对宿主细胞的侵染，这结果一旦被解放军的毒王们盯上了，后果就可想而知了
-
-**(Sellin)**COVID19 侦探 （老百姓），正确引用了2014年Millet Whittaker可能促使弗林酶切位点插入，也注意到了2015年蝙蝠到人类：决定冠状病毒SARS-CoV、MERS-CoV及其他的 “宿主跳跃 “的尖刺特征 卢广文、王启辉和高福*
-
-
-> 袁国勇团队最新的文章：[https://t.co/xuLQEF4oc1](https://t.co/xuLQEF4oc1)
-> 病毒严重增强的感染能力和多器官感染特性都要“归功于”S1/S2出现的酶切位点PRRA特征序列。
-> 谁一直在研究这个呢？李放！Baric！姜世勃！杜兰英！石正丽！把玩具枪玩成了核武器！
-> 所以Fauci们这时候都不敢承认支持“功能增强实验”，Baric都要站队支持调查！ [https://t.co/kf5HMbE3ym](https://t.co/kf5HMbE3ym) [pic.twitter.com/Qc4ScLOH4a](https://t.co/Qc4ScLOH4a)
-> — 德意志之鹰 (@dezying) [May 14, 2021](https://twitter.com/dezying/status/1393024818904248321?ref_src=twsrc%5Etfw)
-
-
-9. **[德意志之鹰推特](https://twitter.com/dezying/status/1393024818904248321?s=20)**：
-*（上）袁国勇团队最新的文章：[https://nature.com/articles/s41467-021-23166-0…](https://www.nature.com/articles/s41467-021-23166-0) 病毒严重增强的感染能力和多器官感染特性都要“归功于”S1/S2出现的酶切位点PRRA特征序列。 谁一直在研究这个呢？李放！Baric！姜世勃！杜兰英！石正丽！把玩具枪玩成了核武器！ 所以Fauci们这时候都不敢承认支持“功能增强实验”，Baric都要站队支持调查！
-（下）当然也少不了CCP病毒研发的关键人物： 军医科周育森及其弟子赵光宇 港大神秘人物郑伯建 该项技术的宗师就是Baric，通过纽约血液中心（杜兰英、姜世勃，李放）引流给武汉病毒所和军医科，最终以军民融合将舟山病毒病毒武器化。 通过“酶切位点”这个关键线索，通过文献检索，已经构成了完整的证据链*
-
-
-> Can the vaccinated spread SARS-CoV-2? 
-> 
-> My hypothesis is yes.
-> 
-> We have 2 relevant immune systems: mucosal & systemic. Injected vaccines rarely induce mucosal immunity. 
-> So a vaccinated person gets a nasopharyngeal dose of CoV-2 and it replicates locally. [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CovidVaccine](https://twitter.com/hashtag/CovidVaccine?src=hash&amp;ref_src=twsrc%5Etfw)
-> — DrQuay (@quay\_dr) [May 14, 2021](https://twitter.com/quay_dr/status/1393148759819702273?ref_src=twsrc%5Etfw)
-
-
-10. **[奎伊博士推特](https://twitter.com/quay_dr/status/1393148759819702273?s=20)**：
-*接种疫苗的人可以传播SARS-CoV-2吗？
-我的假设是肯定的。
-我们有两个相关的免疫系统：粘膜和系统。注射疫苗很少能诱发粘膜免疫力。
-因此，接种疫苗的人得到鼻咽部剂量的CoV-2，它就会在原地复制。
-#新冠病毒 #新冠疫苗
-然后它可以被排出，传染另一个人。
-它不能做的是突破粘膜，进入接种疫苗者的身体。因为当它这样做时，它会被系统的Ab装饰，并被巨噬细胞系统吃掉*
-
-
-> Organizational infiltration network of the Institute of Military Veterinary Medicine-PLA at UTMB.
-> Xianzhu Xia-Hualei Wang's PhD advisor
-> Songtao Yang-Guozeng Cao's PhD advisor
-> Both Hualei Wang&Zengguo Cao are doing postdoctoral research and engaged in NIH-funded projects at UTMB. [https://t.co/VRmfXX5MHk](https://t.co/VRmfXX5MHk)
-> — Anna (@2020Gladiator) [May 14, 2021](https://twitter.com/2020Gladiator/status/1393162032967520257?ref_src=twsrc%5Etfw)
-
-
-11. **[Anna推特](https://twitter.com/2020Gladiator/status/1393162034464923651?s=20)**：
-***（Sellin)**中国共产党和人民解放军对美国的病毒研究项目进行了大规模的渗透。以下人物是一个参与渗透美国的人民解放军人员的例子。
-中共病毒 #COVID19 #Corona #coronavirus #超限生物武器
-
-**（Anna)**军事医学科学院军事兽医研究所在UTMB的组织性渗透网络： 夏咸柱是王化磊的博士生导师 杨松涛是曹国增的博士生导师 王化磊和曹国增均在UTMB做博士后研究，并在UTMB参与NIH资助的项目*
-
-
-> 没看错吧👀哥伦比亚大学的利普金谈到病毒来源时说：“我很担心武毒所的科学家在培育蝙蝠病毒的时候没有足够的预防措施“。这是啥子情况啊？说好的跳船要排队，不带这样集体跳船的😎 [pic.twitter.com/kqXajt1ate](https://t.co/kqXajt1ate)
-> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [May 14, 2021](https://twitter.com/jsdfposjpqyuee1/status/1393021796526428166?ref_src=twsrc%5Etfw)
-
-
-12. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1393021796526428166?s=20)**：
-没看错吧
-*哥伦比亚大学的利普金谈到病毒来源时说：“我很担心武毒所的科学家在培育蝙蝠病毒的时候没有足够的预防措施“。这是啥子情况啊？说好的跳船要排队，不带这样集体跳船的*
-【灭共时代】
-
-
-
-> 有一个亲戚是生物科学家，但对灭共没兴趣。闲聊时TA说收到过很多从中共国发来的共同研究项目的邀请，待遇丰厚。我赶紧提醒：千万别参加！那都是蓝金黄！
-> TA问：什么是蓝金黄？
-> 哈哈，机会来了！赶紧解释了蓝金黄的来历，并举了各种例子。
-> TA说：有意思！
-> 
-> 感觉宣传爆料革命从蓝金黄入手最容易！ [https://t.co/3kxBBKSPmT](https://t.co/3kxBBKSPmT)
-> — 瞿水台 Qu Shuitai (@QuShuitai) [May 13, 2021](https://twitter.com/QuShuitai/status/1392988044760911873?ref_src=twsrc%5Etfw)
-
-
-**[瞿水台推特](https://twitter.com/QuShuitai/status/1392988044760911873?s=20)**：
-***（珊珊来迟）**在盖茨·洛克菲勒基金会和武汉实验室工作的美国科学家Charles Lieber博士-已被逮捕。他每月收到中共5万美元，外加生活费和150万美元的付款。
-
-**（瞿水台）**有一个亲戚是生物科学家，但对灭共没兴趣。闲聊时TA说收到过很多从中共国发来的共同研究项目的邀请，待遇丰厚。我赶紧提醒：千万别参加！那都是蓝金黄！ TA问：什么是蓝金黄？ 哈哈，机会来了！赶紧解释了蓝金黄的来历，并举了各种例子。 TA说：有意思！ 感觉宣传爆料革命从蓝金黄入手最容易*
-
-
-> 習總加速神在說完「江山就是人民，人民就是江山」後又說「CCP守江山，守的是人民的心」
-> 意思很明白了，中國人民是習的一畝三分地，也就是韭菜
-> 守著韭菜們的心，不讓韭菜們看到外面的大千世界否則習壟斷這一畝三分地的地位就不保了 [pic.twitter.com/72S612ZP3y](https://t.co/72S612ZP3y)
-> — Andy5 (@andy5\_123) [May 14, 2021](https://twitter.com/andy5_123/status/1393169589907775488?ref_src=twsrc%5Etfw)
-
-
-**[Andy5推特](https://twitter.com/andy5_123/status/1393169589907775488?s=20)**：
-*习总加速神在说完「江山就是人民，人民就是江山」后又说「中共守江山，守的是人民的心」
-意思很明白了，中国人民是习的一亩三分地，也就是韭菜
-守著韭菜们的心，不让韭菜们看到外面的大千世界，否则习垄断这一亩三分地的地位就不保了*
-
-
-> 5月12日，在 [#重慶](https://twitter.com/hashtag/%E9%87%8D%E6%85%B6?src=hash&amp;ref_src=twsrc%5Etfw) 江北區保利香雪小區，白天年輕業主都出去上班的時候，留守在家裡的老人被 [#派出所](https://twitter.com/hashtag/%E6%B4%BE%E5%87%BA%E6%89%80?src=hash&amp;ref_src=twsrc%5Etfw)、居委會的雇佣的保安圍毆、推搡。當晚年輕的業主下班回來，憤怒的人群湧向派出所和居委會。 [#大紀元新聞網](https://twitter.com/hashtag/%E5%A4%A7%E7%B4%80%E5%85%83%E6%96%B0%E8%81%9E%E7%B6%B2?src=hash&amp;ref_src=twsrc%5Etfw) 
-> 
-> 完整視頻👉 [https://t.co/cQ1eWEeT5P](https://t.co/cQ1eWEeT5P) [pic.twitter.com/ZMxQvcBl93](https://t.co/ZMxQvcBl93)
-> — 大纪元新闻网 (@dajiyuan) [May 14, 2021](https://twitter.com/dajiyuan/status/1393146640916226049?ref_src=twsrc%5Etfw)
-
-
-**[大纪元推特](https://twitter.com/dajiyuan/status/1393146640916226049?s=20)**：
-*5月12日，在 #重庆 江北区保利香雪小区，白天年轻业主都出去上班的时候，留守在家裡的老人被 #派出所、居委会的雇佣的保安围殴、推搡。当晚年轻的业主下班回来，愤怒的人群涌向派出所和居委会*
-
-
-> [#安徽](https://twitter.com/hashtag/%E5%AE%89%E5%BE%BD?src=hash&amp;ref_src=twsrc%5Etfw) 合肥肥西縣發現確診病例，市民半夜做 [#核酸檢測](https://twitter.com/hashtag/%E6%A0%B8%E9%85%B8%E6%AA%A2%E6%B8%AC?src=hash&amp;ref_src=twsrc%5Etfw)；六安市民在街上做核酸檢測。 [#大紀元新聞網](https://twitter.com/hashtag/%E5%A4%A7%E7%B4%80%E5%85%83%E6%96%B0%E8%81%9E%E7%B6%B2?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/bFqdbuf77K](https://t.co/bFqdbuf77K)
-> — 大纪元新闻网 (@dajiyuan) [May 14, 2021](https://twitter.com/dajiyuan/status/1393199464219910145?ref_src=twsrc%5Etfw)
-
-
-**[大纪元推特](https://twitter.com/dajiyuan/status/1393199464219910145?s=20)**：
-*#安徽 合肥肥西县发现确诊病例，市民半夜做 #核酸检测；六安市民在街上做核酸检测*
-
-
-> 能把無恥表現的怎麼瀟洒👍👍👍震惊了世界！不管世人信不信，就問你們服不服😂😂😂😂😂😂😂 [https://t.co/KlHGMQQvNR](https://t.co/KlHGMQQvNR)
-> — Happy Spaceship (@HappySpaceship) [May 14, 2021](https://twitter.com/HappySpaceship/status/1393177727130161153?ref_src=twsrc%5Etfw)
-
-
-**[开心号太空船推特](https://twitter.com/HappySpaceship/status/1393177727130161153?s=20)**：（转机器猫）
-*华大妈是来搞笑的吧 一个人均GDP排名第5的国家羡慕一个人均GDP排名第60位的国家 一个新闻自由排名44的国家羡慕一个新闻自由排名177位的国家 一个人权状况排名17位的国家羡慕一个人权状况排名129位的国家 央视，明星赴美生产，官员把配偶子女送入美国已不是新闻了，华大妈谁羡慕谁啊？*
-
-
-+1
+0
