@@ -1,56 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【樱华乐章9期】人物乐章 邓丽君
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1243397/)
+## 【热点播报】美国疾病预防中心称，完全接种疫苗的人无需佩戴口罩
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1243433/)
 
-作者：喜马拉雅东京樱花团 /待命（文晓）
+作者：纽约香草山媒体部 7bends
 
-![](https://lh5.googleusercontent.com/3uey_mD5ULMYywkgvE8a2s8bmwhsaJEg4piX9k0khxMznyAn87Up3vIwDe34GR4yKY59z_Kjw3NkeTi0c5_fsui-B8c-8lHQvrgLA4BLFlsYrzJrENLR50pKRoys_y7gGcS0B36f)
-图片来自日本樱花团
-
-【樱华乐章】记录灭共路上的每一个旋律，本期节目嘉宾是再也不能到场的、享誉世界的华人歌手邓丽君，回顾她美丽的一生以及她留给这个世界那些甜美的歌、和她为八九六四呐喊的歌。
-
-![](https://lh4.googleusercontent.com/2zbOdCctRlp13D5cAkzUsIAyLzHiLISw9sIxefSZJqHt4KRsgGeQ0AJASHWAtpv8ag9ATamB3qRvjZ-z7j0cLy1YdEKSXys3XzzzwxZQq7l2UtPfWDBENqHd2Zj57VE68Pa8vroT)
-[图片来源](https://www.dajiyuan.eu/%E4%B9%90%E6%B4%BB/%E6%96%87%E5%8C%96%E9%A2%91%E9%81%93/189912-%E9%82%93%E4%B8%BD%E5%90%9B%E8%BD%AC%E4%B8%96%E5%BD%92%E6%9D%A5%EF%BC%9F%E6%8F%AD%E5%AF%86%E6%B3%B0%E5%9B%BD%E5%A7%91%E5%A8%98%E7%9A%84%E7%A5%9E%E5%A5%87%E7%BB%8F%E5%8E%86.html)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14210048/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91CDC%E7%A7%B0%E5%AE%8C%E5%85%A8%E6%8E%A5%E7%A7%8D%E7%96%AB%E8%8B%97%E7%9A%84%E4%BA%BA%E5%8F%AF%E4%BB%A5%E4%B8%8D%E7%94%A8%E4%BD%A9%E6%88%B4%E5%8F%A3%E7%BD%A9.png)
+2021年5月13日，[美国疾病预防中心](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/fully-vaccinated.html)（CDC）发布最新指导意见，称完成疫苗接种的人可以不要佩戴口罩。
 
-邓丽君名本邓丽筠，因为很多人不认识这个 筠字，后改为邓丽君。她1953年1月29日出生在被中共称为祖国宝岛的台湾，是享誉世界的台湾籍女歌手。她可以用流利的英文、日文、闽南话、粤语、普通话、马来语等多种语言演唱，在20世纪70至80年代的日本，成为具有代表性的日语女歌手之一。
+CDC称，对于完全接种完新冠疫苗的人群，
 
-1967年，推出首张个人专辑。
-
-1969年，因演唱台湾首部连续剧《晶晶》的同名主题曲而在台湾成名。
-
-1974年，凭借日文歌曲《空港》获得日本唱片大赏“新人赏”。
-
-1976年，于香港利舞台举行首次个人演唱会。
-
-1980年，当选台湾金钟奖首位最佳女歌星。
-
-80年代初期，先后受邀于林肯中心、洛杉矶音乐中心、拉斯维加斯凯撒皇宫等地举行演唱会。
-
-1983年，举行华人歌手首次巡回演唱会。
-
-1984至1986年间，先后以《つぐない》、《爱人》、《时の流れに身をまかせ》三曲，三次获得日本有线大赏和全日本有线放送大赏两项日本音乐颁奖礼大奖的最高奖项。
-
-1995年5月8日，邓丽君因支气管哮喘发作，于泰国清迈逝世。
-
-邓丽君过世后，香港十大中文金曲颁奖礼追认授予邓丽君“金针奖” 。全日本有线放送大赏、日本有线大赏、日本唱片大赏分别追认授予邓丽君“特别功劳赏”。1996年，台湾金曲奖追认授予邓丽君“特别贡献奖”。2007年，邓丽君成为日本古贺政男音乐博物馆“大众音乐殿堂”表彰者。可称她为同胞的，她的祖国却没有一丝表达。
-
-1980年10月4日，邓丽君在台湾“国父纪念馆”进行义唱时，当主持人询问她是否会去大陆开演唱会时，她的回答是”当我在大陆演唱的那一天，就是我们三民主义在大陆实行的那一天”。另外，在轰动了世界的八九六四天安门事件后，她勇敢的参加了义演，一改往日优雅甜美的表演形式，身着印有追求民族自由字样的体恤、头系印有追求民族自由字样的头巾，唱出了民众的心声。这也许就是中共不欢迎她、她也不愿意回到那个被中共霸凌的祖国的原因吧！于是，那般甜美动听，那般受人喜爱的歌，就成了中共国迟来的歌声。
-
-本期节目，主持人为大家准备了一段少见的邓丽君的[搞笑小视频](https://youtu.be/klBl7cLZono)，还推出了邓丽君的如下5首歌曲
-
-[甜蜜蜜](https://youtu.be/u1X7GVxgDD8)、[路边的野花你不要采](https://youtu.be/3Q3nRsyYK3E)、[時の流れに身をまかせ](https://youtu.be/gkzOoOAkDWo)、[我和你](https://youtu.be/z0tCpDY2Ong)，还有下面这首无法找到歌名的，邓丽君参加八九六四义演时演唱的民族自由之歌。
+- 你可以恢复你在大流行之前的活动。
+- 你不需要戴口罩或保持6英尺的距离，除非联邦、州、地方、部落或地区的法律、法规和条例有要求，包括当地的商业和工作场所指南。
+- 在美国旅行，你不需要在旅行前后接受检测，也不需要在旅行后进行自我隔离。
+- 在美国境外旅行之前，你需要密切关注你的国际目的地的疫情情况。
+- 如果你周围有人患有COVID-19，你不需要远离他人或接受检测，除非你有症状。
 
 
+关于CDC这项最新的指导意见，笔者有非常大的担忧。完全接种疫苗后又重新感染病毒的报导屡见不鲜。据美联社近期报导，在完全接种新冠疫苗后，纽约扬基队队员托雷斯仍被检测出新冠病毒阳性。
 
+笔者认为，在彻底了解病毒前，靠匆匆忙忙研制出的疫苗来解决新冠大流行问题，完全不切实际。最根本的解决方法，是尽快对新冠疫情的起因追根溯源。只有了解了病毒的源头，才可以尽快研究出有针对性的预防和治疗方案，尽快结束这场人类有史以来最大的生存危机。
 
+编辑/校对/发稿：雪梨
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
-*校对：喜马拉雅东京樱花团 / 鸿雁*
-*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13031339/%E4%BA%8C%E7%BB%B4%E7%A0%81-1.jpg)
+![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 0

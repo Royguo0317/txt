@@ -1,39 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 一块手表所暴露的中共军方上下 松散淡薄的安防意识
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1243488/)
+## 5月14日美国政要反共推文精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1243539/)
 
-台湾宝岛农场 快慢机
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14212152/%E5%9C%96%E7%89%87-1.jpg)
-中共军方某装甲集群士兵，在部队进行战备拉练行动中，随身佩戴备有美国制式GPS功能手表，在接受央视采访中竟还大方展示该表的部分功能。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14212403/%E5%9C%96%E7%89%87%EF%BC%92-1.jpg)
-近日，由中共央视军事频道栏目所播放的一段视频所显示，中共西部战区，新疆军区，某合成化装甲步兵集群，在西部高海拔地区进行的一次战备拉练行动中。一名受访战士竟公然向央视记者展示，其随身佩戴的一块多功能腕表上所标示出的，该部队所处演训集结区域，实时海拔数据等敏感讯息。
+众议员吉姆·班克斯： 美国承受不起更多的延误。 国会需要立刻知道哪些公司与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的军事相关，然后我们需要通过我的法案《停止资助中共解放军法》来禁止对它们的投资。 【附大纪元报报道：批评中共国者对五角大楼推迟对中共国军事公司的报告做出反应】
 
-值得注意的是，该名战士所随身佩戴的那块多功能腕表，并非中共军方常规配备的“北斗”系列腕表。而是一款疑似美国著名多功能腕表厂商“佳明”旗下的畅销型号。众所周知，“佳明”旗下众多系列产品当中，最为知名的核心功能，便是配有美国制式的“GPS实时定位导航”功能模块。“佳明”正是凭借这一优势，才在激烈的同质化角逐当中脱颖而出，受到了不少专业领域受众的厚爱，市场口碑一向不错。
 
-例如北约以及世界的多国军警系统之中，便有不少“佳明”的忠实用户。毕竟该系列的产品使用了美国的制式“GPS实时定位导航”功能模块，而作为美国的盟友们，在一定程度上，其系统内部的相关讯息是即时共享的，也就不存在泄密的问题。
 
-然而这样一款准美军制式的电子定位设备，竟然出现在中共军方基层装甲集群的战士身上，还是在其处于部队战备拉练的军事行动当中。这样松散淡薄的安防保密意识，或许在中共军方内部上下，早已成了见怪不怪的家常便饭。连央视这样的中共核心宣传机构，都未曾立即发现个中端倪，居然还把如此显而易见的安防漏洞采访视频，堂而皇之的公开发表。实在让人不忍直视。
+> America can’t afford more delays.
+>  
+> Congress needs to know which firms are tied to China's military ASAP, then we need to ban investments in them by passing my bill, the Stop Funding the PLA Act.[https://t.co/kkRL649iv7](https://t.co/kkRL649iv7)
+> — Jim Banks (@RepJimBanks) [May 14, 2021](https://twitter.com/RepJimBanks/status/1393309464451760129?ref_src=twsrc%5Etfw)
 
-“北斗”系统早已经问世多年，为何中共军方内部不大面积配发？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14212348/%E5%9C%96%E7%89%87-1-1.jpg)
-中共自2000年开始，便已对外宣称，其完全自主研发的“北斗通讯导航”系统，正式完成组网并实施部署。至此中共军方开始大面积逐步更换“北斗”系统，力图短期内彻底摆脱，受制于美方“GPS”全球导航定位系统的限制窘境。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14212559/%E5%9C%96%E7%89%87-1-2.jpg)
-随后，中共相继推出了多款“北斗”的民用型产品，最为知名的当属如下三款：一个是“北斗车载导航定位系统”（也就是不久前因此，致使饮恨服农药自杀卡车司机的罪魁祸首）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14212522/%E5%9C%96%EF%BC%95%E7%89%87-1.jpg)
-还有一个就是“北斗腕表”系列，有军版与民用版两款。据说军用版只配发中共军方内部的中高级军官，显然，这次佩戴“美国佳明腕表”的这名战士，并不在“北斗军版腕表”的配发目标之列。
 
-抛去前两款不说，单就“北斗系列腕表”而言，其常规售价基本都在千元价位上下，这一价格区间，在多功能腕表领域内，勉强算得上入门一级。当然就其整体的技术含量与做工来说，定在这一价格区间，已经是“货不对板”的绝佳现例了。
 
-倘若“北斗腕表”系列真如中共吹嘘的那般优秀，那么为何不见中共军方的基层士兵，大范围佩戴“北斗腕表”，而却要自费购买价格数倍于“北斗腕表”的进口多功能腕表呢？物美价廉固然最好，否则“一分钱一分货”才是最佳的选择。
+联邦调查局FBI： 大学研究员在申请基金为中共国发展专门科学知识上撒谎而被判入狱。(链接是司法部官网公告：俄亥俄州立大学教授和研究学者郑宋国获罪入狱)【图片说明：被告隐瞒自己参加中共政府人才招揽计划和与至少五个中共国研究机构的合作关系。被告郑贪婪攫取联邦研究经费却阻止他人获得资金来进行支持医学进步的关键研究。不管他们逃到哪里，飞机上，阿拉斯加还是半夜三更，FBI将继续缉拿这些人】
 
-中共一线基层军人佩戴美式“佳明“多功能腕表，就如同美军前线官兵随身佩戴“北斗腕表”一样令人浮想联翩。当今高度信息网络数字化的时代，就连普通民众都在不断提高自身私人讯息的保密意识。中共军方内部的安防环节，竟然如此漏洞百出。
 
-要知道，任何数据链路的网络传输，都是双向的。在你佩戴的数字化终端，收取到下行链路的受讯信息的同时，该条传输渠道的上行链路也将同步传输一条密令，对于系统内部而言，这一双向传输回路的密令都是透明的。
 
-本文仅代表笔者个人观点！
+> University Researcher Sentenced to Prison for Lying on Grant Applications to Develop Scientific Expertise for China [@FBICincinnati](https://twitter.com/FBICincinnati?ref_src=twsrc%5Etfw) [https://t.co/ACFK0pedCo](https://t.co/ACFK0pedCo) [pic.twitter.com/rDVzNaccBf](https://t.co/rDVzNaccBf)
+> — FBI (@FBI) [May 14, 2021](https://twitter.com/FBI/status/1393258616988348420?ref_src=twsrc%5Etfw)
 
-新闻链接：[https://mil.ifeng.com/c/861mxcaeNzU](https://mil.ifeng.com/c/861mxcaeNzU)
+
+
+参议员玛莎·布莱克本: 去年，我们面临了巨大的困难，但是这场危机是可以避免的。如果北京不隐瞒信息和对世界撒谎，今天我们会安全得多。 【附[http://axios.com](https://t.co/bZseuGwPHd?amp=1)报道：世卫特别报告认为新冠大流行本可以避免】
+
+
+
+> We’ve faced tremendous hardships this last year, but this crisis was preventable. Had Beijing not withheld information and lied to the world, we would be in a much safer place today.[https://t.co/FQt3ab9q0O](https://t.co/FQt3ab9q0O)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 14, 2021](https://twitter.com/MarshaBlackburn/status/1393250758691282948?ref_src=twsrc%5Etfw)
+
+
+
+彼得·纳瓦罗（前白宫国际贸易顾问】： 福奇对兰德·保罗撒谎。这里是证据。 【附[http://thenationalpulse.com](https://t.co/R8zILIUVl3?amp=1)报道：纳瓦罗列举9项事实福奇与新冠起源有关】
+
+
+
+> Fauci stone cold lied to Rand Paul. Here's the evidence.[https://t.co/U7F9h2Q3Zx](https://t.co/U7F9h2Q3Zx)
+> — Peter Navarro (@RealPNavarro) [May 14, 2021](https://twitter.com/RealPNavarro/status/1393275404358664193?ref_src=twsrc%5Etfw)
+
+
+
+
 
 0

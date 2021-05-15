@@ -1,109 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】锅言灶语
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1243811/)
+## 英海军将在南海部署几十年来最大舰队
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1243871/)
 
-作者：纽约香草山健身部 澄道
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑上传   水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14234902/UK.jpg)anti-empire.com
+每日传讯 (The Daily Caller) 5月14日报道，英国将在东太平洋部署几十年来最庞大的舰队，以显示对美国日益紧张的军事支持。
 
+据《华尔街日报》报道，此次海军部署是英国自上世纪80年代初福克兰群岛战争以来集结的最大舰队。这次部署也是自英国脱欧后军队改革的第一阶段，以应对中共日益扩张的威胁。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
+美国海军的一份报告说，中共的海军活动正试图改变印度洋-太平洋地区和国际力量的平衡。美国海军称中共的“侵略性行动”正在以“惊人的速度”损害美国的实力。报告更加强调中共正努力“腐蚀国际海洋治理，拒绝进入传统的物流中心，限制海洋自由，控制关键阻塞点的使用……取代美国成为世界各国首选的合作伙伴。”
 
+报告称，为了“控制自然海洋资源并限制进入海洋”，中共正对美国保护其在西太平洋国家利益的能力施加越来越大的压力。美国海军的报告呼吁发展一个综合的全领域海军力量，并提出了一些建议来扭转当前的趋势。这些建议包括注重对人员的动态培训，在冲突和危机期间加强与盟国的合作，以及提供“远程精确火力”。
 
+据《华尔街日报》报道，英国将在太平洋部署8艘海军舰艇，与另外一艘美国驱逐舰和一艘荷兰舰艇合作。舰队将穿越争议激烈的南中国海，以抗衡中共日益扩张的海上行动。
 
-![]()![](https://media.discordapp.net/attachments/721544615953432698/836053075390758962/image0.jpg?width=1083&amp;height=609)
+此外，美国海军研究所网站5月13日报道，美国、日本、法国和澳大利亚将于5月11日至16日在日本举行印度洋-太平洋地区联合训练，共同遏制中共野心。
 
-小馆营业
-
-月余有半
-
-砥砺前行
-
-狭逢求生
-
-锅言要动响
-
-灶语想出声
-
-还是“厨二”快
-
-抢到表态先：
-
-无有七哥爆料前
-
-何来滔滔灭共往
-
-无有战友背靠背
-
-怎有诤诤惩贼勇
-
-落叶秋风扫
-
-流水秋雨急
-
-七哥对饮咖啡热
-
-苍天应灭邪共恶
-
-匡扶正义
-
-（ 快快加入喜联盟 加入当地农场）
-
-藏富于民
-
-（ 尽享“喜系列”）
-
-正道之声
-
-（ 直播G-TV  参与GNEWS）
-
-一人可以战“一国”
-
-但您怎可忍让英雄孤单
-
-更多人加入  灭共越快
-
-越多人合心  力更强大
-
-厨二
-
-滔滔声浪
-
-萃花只一句对应：
-
-欢声笑语“盐”增善
-
-手舞足蹈“糖”添福
-
-“萃花”
-
-这个女人啊！
-
-不简单….
-
-（本文仅代表作者观点）
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-
+参考链接：
+[https://dailycaller.com/2021/05/14/uk-navy-us-china-pacific-ocean/](https://dailycaller.com/2021/05/14/uk-navy-us-china-pacific-ocean/)
 
 0

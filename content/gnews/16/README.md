@@ -1,33 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国正试图在大西洋建立海军基地 五角大楼对此表示关注
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1243731/)
+## 【战友心声】今天你健身健心了吗 我挚爱的战友同胞
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1243736/)
 
-翻译:康州盘古农场 – Layka
-校对:康州盘古农场 – TrueSky
-编辑:康州盘古农场 –格格巫
-
-据《www.popularmechanics.com》作者：KYLE MIZOKAMI，2021年5月11日报道：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14223754/C68966A8-D9EC-4438-ACDA-C9D3E950088C.jpeg)*新华社新闻社/盖蒂图片社*
-- **五角大楼非洲司令部将军警告说，中共政府正试图****在西非建立海军基地****。**
-- **中共海军将利用这些****基地****进行加油和****补给****，从而扩大北京的****军事****覆盖范围。**
-- **中共国目前在亚洲大陆以外只有一个海军基地。**
+作者：纽约香草山健身部 文鹰
 
 
-据负责非洲司令部的美国陆军将军说，中国人民解放军海军可能很快会在大西洋上作战。
 
-据报道，中共国已在几个非洲国家取得了建立海军基地的权利。结果可能可以使中共国水面舰艇和潜艇，在战时距离传统战区数千英里，这令美军感到不安。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
-美国驻非洲最高统帅斯蒂芬·汤森(Stephen Townsend)将军已于5月6日对美联社表示，中共国正在“寻找一个可以重新装备和修理军舰的地方”。 他继续：
 
-“这在冲突时在军事上很有用。他们在吉布提建立一个（基地）。现在，他们将目光投向了大西洋沿岸，希望在那里建立这样的基地。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14223951/4910A75A-B528-4628-9B0C-B23A94B51F6A.png)*2017年，中国海军陆战队在吉布提的军事基地开幕。法新社贡献者/盖蒂图片社*
-原文链接：
-https://www.popularmechanics.com/military/a36385283/china-trying-to-build-atlantic-naval-base/
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+每当耳边响起北美教练文贵先生那熟悉的声音，“今天你健身了吗，今天你往身上泼水了吗”，回想过去，自己心里总是愧疚不已。惭愧的是，自己没有持之以恒地坚持健身，总是三天打鱼两天晒网；内疚的是，自己懒惰心理作祟，几度时光渐渐流逝掉。
+
+对“健身”的概念，笔者过去没有体会过。笔者少年时期比较贪玩，荒废了学业，到了高中喜欢上了足球，又在学校体育队练了一段时间长跑，留下一点锻炼底子。那时侯，家里墙上还贴着剪下的彩色画报，每当笔者凝视着阿根廷马拉多纳足球健将的矫健身影，美国健美明星施瓦辛格的浑身铜色肌肉时，心里感觉满美吱吱的，梦想着自己的青春未来。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14230216/31-4.jpg)
+
+时过境迁，岁月印痕，现实社会无情地催老了身心。笔者一个人曾面对过诸多的社会不公：权贵的傲慢，叫兽的舔腚，媒体的撒谎，人心的冷漠，腐败的加剧。笔者不由得思考，这是为什么？造成这一切现象的根源又在哪里呢？
+
+不在沉默中爆发，将在沉默中死亡。上天没有沉默！给人间带来了一个“灭共者”——郭文贵先生。他在四年的爆料中揭露中共腐败、民众苦难背后的真相，不仅让更多的人了解到中共的邪恶至极，也唤醒了无数的人无私地站出来，勇敢地传播真相。
+
+文贵先生不仅曝光中共邪恶真相，更没有忘了坚持自己的身体锻炼。这也使得爆料革命的战友们在辨明是非、真假、善恶以及揭露真相中不断成长，逐渐提高自己“健心”的情怀。
+
+![]()![](https://media.discordapp.net/attachments/825237397280653322/842793487854469150/image0.png?width=812&amp;height=609)
+
+经过四年爆料革命的持续洗礼，我找到了答案：造成中国一切苦难的起因就是华夏大地上空漂浮着一个共产主义魔鬼幽灵——中国共产党！它不仅用谎言欺骗了大陆同胞70年多，还用屠刀杀戮了千万善良华人。如今中共还在全世界播放病毒，发动生物战争，企图摧毁西方文明世界，残害亿万无辜民众。但是，有爆料革命、新中国联邦在，有正道正义联盟在，CCP你的梦想会破灭的，你已经完了！
+
+亲爱的战友们，善良的同胞们，灭共没你不行，缺你不可。请跟随北美教练文贵先生一起，在灭共大潮中健身健心吧。每一个战友就是一朵小小的浪花，聚为惊涛骇浪之际，就是中共灭亡之时。战友们一起行动吧，拍死TMD-CCP！
+
+（本文仅代表作者观点）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+
 
 0

@@ -1,33 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭文贵先生谈如何看待这次中国部分留学生签证被拒事件
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1243394/)
+## 川普总统如果今天回到白宫 会说我要推翻共产党吗？
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1243437/)
 
-**撰稿：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12212216/33-3.jpg)
-2021年5月14，郭文贵先生在最新的盖特中讲述了发生在身边的几件事。
+**摘要：在2021年5月5日的GTV直播中，郭先生说：“川普总统即使今天回到白宫，他都不可能说我要推翻共产党。”“但是什么时候他才能说？他没有选择的时候是美国军界、美国经济界、老百姓们说必须消灭共产党，川普总统一定是振臂高呼那个人，毋庸置疑。”**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14194347/Miles_20210505-live-p3.srt.txt)
+**川普总统如果今天回到白宫，会说我要推翻共产党吗？**
 
-郭先生的一个老朋友，其女儿和准女婿皆因父母在体制内的身份问题，出国留学遭拒，而且这现象绝非个例，涉及国家除了已经公布的美国，日本也在悄悄执行此规定。郭先生这几年在直播中反复提醒海外留学生，不要轻易回国。也多次提醒体制内的战友，在必要的情况下做一点儿妥善的准备。结果，侥幸、傲慢的心理在这次签证事件上栽了大跟头，**因此郭先生再次提醒所有国内的战友们，不要抱有任何侥幸心理。**
+**Would President Trump Take Down the CCP If He Is Back in the White House****？**
 
-郭先生还举了三年前和中东一个好兄弟之间的例子，当年他不信一旦美国出手的狠，现在看到巴勒斯坦首领被斩，他信了。世界上与谁作对，也不要跟美国人做对，这是全人类都应该知道的道理。
+我想告诉大家，川普总统即使今天回到白宫，他都不可能说我要推翻共产党，绝对不可能！
 
-所以，郭先生说，如果有一天，共产党作到那个点的时候，美国和联军对付共产党的手段，会比现在在中东上演的这幕还可怕。
+I want to tell you that, even if President Trump went back to the White House today, it would not be possible for him to say that he wanted to take down the Chinese Communist Party. Absolutely impossible!
 
-因为之前郭先生曾与一位美国军方的人士交流，**对方明确告知，如果有一天中共国对美国造成实质威胁，要开战的时候，他们会毫不犹豫地首先采取斩首行动**，而且是从北京、上海以及中共的几大军区开始，斩首方法超乎想象，而且美国也绝对有这个实力。
+我非常荣幸地，我过去这半年我把咱们很多年轻的战友，参与到所有建设的战友，把他们介绍到了美国最高层的当中，现在都不用我了他们直接对话。我们很多战友现在是跟这些我们所希望改变我们命运、改变世界的人都是直接对话，这是我最近这个几个月做的最棒的事儿。而且这些孩子对话以后的能力和素质都是非常非常棒的，他不是完美的，没有人是完美的，非常非常棒的。
 
-郭先生还谴责了最近几天国内抓捕很多战友的体制内的人，希望他们不要与恶为伍。这些被抓捕的战友，几乎都是VOG的汇款者。执行任务的警察用暴力、威胁、绑架等手段，折磨战友，以打击爆料革命。甚至在美国的chasebank还有一些正在打官司的公司非法提供了战友的信息，导致这些战友的家人迅速地被抓、被威胁，造成了重大的伤害。这些的根源是九指妖做的恶，一定会在美国的法律框架内对她清算。但同时，郭先生说共产党百分之九十九是好人，最后共匪末路狂奔的路上，千万不要与他们一同作恶。
+I was very honored to introduce many of our young fellow fighters to the top officials of the United States in the past six months. And now they can talk to each other directly and don’t need me any more. Many of our fellow fighters are now in direct dialogue with these people who we hope will change our destiny and change the world. This is the greatest thing that I’ve done in the last few months. After they were hooked up, these kids have shown great ability. They are not perfect, but no one is perfect. They are fantastic.
 
-**联系到前文提到的这次“签证事件”，郭先生说体制内的孩子是无辜的，他完全反对美国对孩子的这些作为**。解决问题的根源，应该要让这些孩子变为爱好民主自由的人，甚至给他们多一个选择。如果要在美国继续读书，就必须反共产党、反共产主义。这样没有选择，不分情况地一竿子打倒一片，不是智慧的做法。同时他呼吁其他战友不要幸灾乐祸，因为共产党体制内人的孩子是无辜的，任何战友都不应该广泛地宣传此事，因为这并不是什么光彩的事情。
+我们在各个领域跟美国政府的合作当中，都深刻的感受到，包括像川普总统他永远不可能提出来，说去把共产党去消灭，不可能。拜登都可能说，他都不可能说。但是什么时候他才能说？他没有选择的时候是美国军界、美国经济界、老百姓们说必须消灭共产党，川普总统一定是振臂高呼那个人，毋庸置疑。
 
-郭先生强调，新中国联邦人必须有胸怀，容得下这九千万党员的孩子和家人。如果这些体制内的人有罪，就在法庭上说，而不是全面的无差别的打击，要像现在“定点清除”一样精准，不要伤害无辜，特别那些都是我们的血肉同胞。
+During my broad collaboration with the U.S. government, I deeply feel that no one, including President Trump, would say “let’s go take down the CCP”. No way. Even it’s possible for Biden to say that, he [Trump] would never say that. But when will he be ready to say that? It will be when he has no other choices and when the U.S. military, the financial sector, and ordinary Americans say so. Then President Trump will definitely raise his arm and shout it out loud, and there is no doubt in that.
 
-最后，**郭先生透露将在六月四日、七月四日有重大活动举行、重大决定公布**，那些已经付款购买GClub的战友们，请用最快的时间跟各农场联系汇款的问题。因为这涉及到在重大决定中的重大机会是否会与你擦肩而过。所有GClub会员的利益是应该得到保障的，而你本人要做的，就是积极找农场对账，尽快拿到卡号，分享这次惊喜和盛宴。
+如果说比如同样的民意、民声都呼吁消灭共产党的时候，和欧洲其他国家都联合起来要消灭中国共产党的时候，第一（如果是把拜登和川普还有美国任何政客放到台面上）第一个举手的是拜登一定不是川普。如果有蓬佩奥和川普总统、拜登在一起第一举手的一定是蓬佩奥。如果是美国选总统或者不选总统，第一举手说振臂高呼“我要干掉共产党、推翻它、消灭它”[是]蓬佩奥，第二是拜登，第三才是川普。
 
-最后，郭先生说：**国内的战友不要再抱任何侥幸心理，国外的战友不要把国内无辜的孩子拒签当成幸灾乐祸，更不能有这种丑恶的阴暗心理**。把所有的中国人都当为敌人，就会象欺民贼伪类一样丑陋，恨所有的中国人，是无知、loser、懦弱、邪恶的表现。更重要的事情，我们自己要强大，只有强大才是对付敌人最好的办法，而不是天天看着别人倒下来，不能有这种病态的心理。
+If all the public opinions and public voices are calling for the elimination of the CCP, and all European countries are united to take down the CCP, the first one – among Biden, Trump, and all American politicians – to raise hand [to take down the CCP] must be Biden, not Trump. Among Pompeo, President Trump, and Biden, the first one to raise hand would be Pompeo. If not considering the presidential election, the first one to raise hand and say “I want to take down the CCP, overthrow it, and destroy it” would be Pompeo, followed by Biden, and the last one would be Trump.
 
-**来源：**[郭文贵先生盖特](https://gtv.org/getter/609e80fc37f7f73984cb99f5)
+但是有一点不要忘了，拜登总统最有可能跟共产党，让它给它再次缓息的机会，跟它合作，最有可能，就是让共产党再苟延残喘几年的，这是完全有可能。他的危险级这种可能性很大，川普总统绝不可能，绝不可能跟共产党说咱俩再做买卖吧，再交易一下子，咱Make a deal 吧，让你现在……绝不可能。他一定跟它脱钩，就是要跟共产党脱钩的一定是川普不会是拜登。
 
-**校对发布：文顾**
+But there is one thing you must not forget – President Biden is the one who is the most likely to give the CCP a break and cooperate with it. Most likely, he will let the CCP linger on for a few more years, which is definitely possible. His possibility of doing this is really high. But President Trump will never do that. It’s absolutely impossible for him to say, “CCP, let’s make a deal again, let’s do it now… ”. It’s absolutely impossible. He will definitely decouple [with the CCP]. I mean the one who wants to decouple with the CCP will definitely be Trump, not Biden.
 
-0
+那么如果跟共产党既不会让它保持经济合作，也不会说支持共产党再残喘下去，唯一的一个人——蓬佩奥！这是一个对美国政治基本的逻辑。所以说到2022年美国的整个政治经济情况和政治形势…现在我们都在做所有的准备当中，现在不说啊，大家你们会看到一系列事情的发生。
+
+The one and only one who will neither maintain the economic cooperation with the CCP nor allow the CCP to survive longer is Pompeo! This is a basic logic of U.S. politics.  So, regarding the entire political and economic situation in the U.S. by year 2022, we are doing all kinds of preparations right now, but I can’t say more about this now. You all will see a series of things happen.
+
+新中国联邦和爆料革命我可以告诉大家，一定是美国走向强大的最根本的中坚力量。美国人不会懂的，美国人只关心自己的生活，但会在政治的核心圈逐渐会意识到，新中国联邦和爆料革命，会成为美国走向强大，真的让美国再次强大的最重要的力量。同时我们会成为推动美国消灭共产党唯一的正义的力量，也唯一可能发生的力量，因为不可能有任何人！
+
+The New Federal States of China (NFSC) and the Whistleblower Movement, I can tell you, will definitely be the most fundamental backbone of MAGA. Americans will not understand because they only care about their own life, but gradually, people in the inner circle of politics will realize that the NFSC and the Whistleblower Movement are becoming the most important force for making America stronger and truly making America great again. At the same time, we will become the only righteous force driving America to take down the CCP and the only force that can make this happen because no one else can!
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=60929c03db13300ca5491b6d](https://gtv.org/video/id=60929c03db13300ca5491b6d) (1:57:07-2:00:36)
+鸣谢：感谢黑郁金香（文郁）、杯酒渐浓、山川异域和 [喜联盟七哥直播组](https://gnews.org/zh-hans/author/miles-broadcast/) 提供中文文本于[https://gnews.org/zh-hans/1180275/](https://gnews.org/zh-hans/1180275/)
+
+* * *
+
+**翻译：【一花一世界】
+字幕：【Rock小哥】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
++1

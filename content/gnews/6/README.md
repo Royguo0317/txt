@@ -1,55 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [圣城传声筒] 人人一言不发，却向同一个方向行
-` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1233320/)
+## 中共驻温哥华总领馆究竟遭到什么样的恶意泼洒和喷涂
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1243970/)
 
-作者：纽约香草山农场香港部写作组  一悠
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15003611/%E5%B0%81%E9%9D%A28888888888888-1.png)
+据[海客新闻](https://weibo.com/7360594450?refer_flag=1001030103_) [2021年5月15日 08:12](https://weibo.com/7360594450/KfxjK14fi?from=page_1002067360594450_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d) 已编辑
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
+【监控曝光！[#中国驻温哥华总领馆遭恶意泼洒和喷涂#](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E9%A9%BB%E6%B8%A9%E5%93%A5%E5%8D%8E%E6%80%BB%E9%A2%86%E9%A6%86%E9%81%AD%E6%81%B6%E6%84%8F%E6%B3%BC%E6%B4%92%E5%92%8C%E5%96%B7%E6%B6%82%23) 警方：无法容忍】加拿大温哥华警方当地时间5月14日宣布，对两名在中国驻温哥华总领馆外墙和门牌上进行泼洒和破坏的男子进行追捕，他们被控实施“恶意行为”。[#我使馆遭种族主义分子恶意泼洒和喷涂#](https://s.weibo.com/weibo?q=%23%E6%88%91%E4%BD%BF%E9%A6%86%E9%81%AD%E7%A7%8D%E6%97%8F%E4%B8%BB%E4%B9%89%E5%88%86%E5%AD%90%E6%81%B6%E6%84%8F%E6%B3%BC%E6%B4%92%E5%92%8C%E5%96%B7%E6%B6%82%23)[L海客新闻的秒拍视频](http://t.cn/A6VLcdkg) ​
 
+比起新中国联邦战友们对中共驻全球各使领馆的抗议，中共除了用阴招和坏招与驻在国政府私下交涉之外，在明面上和官媒上从来都是哑巴吃黄连有苦说不出或者即使有苦也不说，而这一次中共官媒主动公布的两起对中共驻加拿大温哥华总领馆外墙和门牌进行的泼洒和喷涂反而让所有人都看到取了这两起抗议。
 
+只是中共在公布所谓罪证时却把关键内容打上了马塞克，在视频00：26“处出现的纸牌上到底写着什么呢？——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15003332/%E6%8D%95%E8%8E%B7-2.png)
+中共媒体对此两起事件的定性是[#我使馆遭种族主义分子恶意泼洒和喷涂#](https://s.weibo.com/weibo?q=%23%E6%88%91%E4%BD%BF%E9%A6%86%E9%81%AD%E7%A7%8D%E6%97%8F%E4%B8%BB%E4%B9%89%E5%88%86%E5%AD%90%E6%81%B6%E6%84%8F%E6%B3%BC%E6%B4%92%E5%92%8C%E5%96%B7%E6%B6%82%23)，案子没破，中共已经将案件进行了定性，当然了在所谓的“种族主义分子“后面的是”恶意泼洒和喷涂“，也许在中共驻温哥华总领馆墙外喷涂赤纳粹宣传的” 人民就是*江山*，*共产党打江山、守江山*，*守*的是人民的心。“就是善意的了？某虽不才，愿意一试，怎奈路途遥远，身不能至，只能心向往之，但愿未来会在中共驻温哥华总领馆外出现“善意”泼洒和喷涂。
 
-
-
-又到了手机上互传和show收据的时候。前一轮是阿布泰，这几日就“转战”“chickeeduck”。但阿布泰仍然生意很好哦。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12162448/%E8%8D%83%E7%81%A3-Chickeeduck-%E9%BB%83%E5%BA%97-20210509183625_f50f_large.png)一悠 摄
-这次跟上次阿布泰排队一样，人人互不认识，人人玩手机，人人一言不发⋯⋯但却向同一个方向行、付钱⋯⋯你会感觉到一种沉默中的震撼。
-
-是用钱来惩罚恶党的震撼，买曾经支持我们的商铺的各种货品，买壹传媒（282）的股票，买毛记葵涌（1716）的股票⋯⋯
-
-有句古诗说——“万马齐喑究可哀”。但你去到现场，就觉得一点不哀，今日只有沉默中的众志成城。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12161504/Picture1-54.jpg)图片来源：网络
-香港人的无声行动，胜过了千言万语。既然恶法当道，香港人也要懂得保护自己，将抗争的火种，留在心中。
-
-同样地，作为新中国联邦的每一位战友，或多或少也在经历同样的事情。在传播真相的过程中，多半被视为“异类”，甚至是“反社会分子”。但郭文贵先生曾经说过：“我们是在做好事。做好事还会在乎别人怎么看吗？”是的，当黑暗来临的时刻，我们只有默默坚持。
-
-香港人默默支持“黄店”，是不希望“良心”沉沦；战友们坚持传播真相，是为了不让真相被掩盖。
-
-每日点赞、转发战友们挖掘的信息，成了我们普通战友无声对抗极权政权的必修课。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12162017/%E9%BB%83%E5%BA%97-Chickeeduck-%E8%8D%83%E7%81%A3-20210509183228_1a3d_large.jpeg)招牌上面的金色字是写什么？哈哈，你自己估。一悠 摄
-引用來源：
-
-[https://www.hkcnews.com/article/41137/chickeeduck-%E8%8D%83%E7%81%A3%E5%8D%80-%E9%BB%83%E5%BA%97-41137/%E4%BA%BA%E4%BA%BA%E4%B8%80%E8%A8%80%E4%B8%8D%E7%99%BC%EF%BC%8C%E5%8D%BB%E5%90%91%E5%90%8C%E4%B8%80%E5%80%8B%E6%96%B9%E5%90%91%E8%A1%8C](https://www.hkcnews.com/article/41137/chickeeduck-%E8%8D%83%E7%81%A3%E5%8D%80-%E9%BB%83%E5%BA%97-41137/%E4%BA%BA%E4%BA%BA%E4%B8%80%E8%A8%80%E4%B8%8D%E7%99%BC%EF%BC%8C%E5%8D%BB%E5%90%91%E5%90%8C%E4%B8%80%E5%80%8B%E6%96%B9%E5%90%91%E8%A1%8C)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205738/M5-1.jpg)
-编辑/校对/发稿：Delilah小胖
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
-
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
-
-
-
-
+（文章内容仅代表作者个人观点）
 
 0

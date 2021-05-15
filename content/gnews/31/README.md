@@ -1,35 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/05/14 郭文贵先生盖特精要
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1243455/)
+## 中共将疫苗武器化
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1243548/)
 
-听写：万物归一 | 校对: 樂禧禧 | Page: Daoiii
+台湾宝岛农场 文旦
 
-[!\[\]()!\[\](https://spark.adobe.com/page/e7waFMz9SGa8m/images/46c34a1f-1998-4de4-b520-17e6f8e46683.png?asset_id=f493fa39-8643-40d3-9940-ad0db79173a0&amp;img_etag=%224ee949fc8d708080392601163927afad%22&amp;size=1024)](https://spark.adobe.com/page/e7waFMz9SGa8m/images/46c34a1f-1998-4de4-b520-17e6f8e46683.png?asset_id=f493fa39-8643-40d3-9940-ad0db79173a0&amp;img_etag=%224ee949fc8d708080392601163927afad%22&amp;size=1024)
+中国利用疫苗外交抢走台湾在拉美地区的盟友，美国国务院周四（5月13日）不点名谴责这种出于政治目的「恶意使用」疫苗的行为。
 
-**5月14号：任何对无辜的体制内的孩子、被拒签而幸灾乐祸的人！都是不正确的，呼吁所有的买Gclub的战友以最快的时间，到你的农场对账，或给Gclub公司直接打电话，对帐领卡！不要让自己失去利益的机会！**
+中共使用疫苗作为外交武器，利用疫苗破坏他国外交关系，或使他国遭其中共利用。
 
-[G-TV链接](https://gtv.org/getter/609e80fc37f7f73984cb99f5)
+中共疫苗在全世界都可知道，是一个非常不安全的疫苗，数据等等都未揭露，新冠病毒（病毒）在全世界爆发，至今都未找到病原体及样本，且该病毒几乎已经确定从病毒研究所制造，且在中共的军方控制的研究所中。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/e7waFMz9SGa8m/images/59a48e61-f359-454e-b877-7cee341e9e63.png?asset_id=797834bd-0291-4c1e-abd7-ad815862af4e&amp;img_etag=%2211905bd762d7e35d31bb37b53cdd45be%22&amp;size=1024)](https://spark.adobe.com/page/e7waFMz9SGa8m/images/59a48e61-f359-454e-b877-7cee341e9e63.png?asset_id=797834bd-0291-4c1e-abd7-ad815862af4e&amp;img_etag=%2211905bd762d7e35d31bb37b53cdd45be%22&amp;size=1024)
+发动新冠病毒（中华人民共和国病毒）扩散全世界，破坏他国经济，医疗体系，造成他国混乱，再利用疫苗去控制，经济能力弱的国家，强迫他国，影响他国政治经济等一系列做法，让人可耻。
 
-1. 全球拒签中国留学生的国家数量在增加，这些学生的父母大多在国内体制内工作。
-2. 和美国作对不要抱有任何侥幸心理，美国可以在任何时间和地点对其作出报复和惩罚。
-3. 一旦发生战争冲突，美国会首先斩首，所用的武器会超出常人的认知，可以做到精确定点打击。
-4. 美国的Chase Bank非法泄露战友信息，以及魏继红的做恶，导致最近很多战友和战友的家人被抓捕，很多都是VOG的汇款者。
-5. 体制内的孩子是无辜的，美国拒签的做法是不对的，战友们不要幸灾乐祸，要包容。
-6. 现在把钱从国内转出来的都是牛人，没有转出来的现在转大钱就比较难了。
-7. 买GClub的战友们抓紧时间找各农场对账领卡，六月四号有重大决定，七月四号有重大礼物，不要错失良机。
+疫苗因该是让人安心的物品，但现在被改变，利用医学和科学的专业信任，来制造这一切问题，当利益凌驾于专业的信任之上，这就是灾难了。
+
+疫苗在这个病毒灾难中，被应急而生，长期安全性备受考验，且在没有病原体和中见宿主的情况下研发，这让疫苗可以成为一种武器，利用疫苗的信任，让所有人打疫苗，之后再产生疫苗的次生灾害。
+
+疫苗公司背后股东资金来源到底在哪？ ，批准疫苗的人是否因为利益而制作疫苗？
+
+为甚么有更好的预防治疗且便宜以长久的药方不想讨论，这中间的问题在底在哪呢？
+
+这些真相正在依依曝光!!! 传播真相，缺你一个，你很重要，你的一小步，就是灭共的一大步!!!
+
+引用数据：[https://www.epochtimes.com/b5/21/5/13/n12947200.htm](https://www.epochtimes.com/b5/21/5/13/n12947200.htm)
+
+台湾宝岛农场youtobe：
 
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/e7waFMz9SGa8m/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/e7waFMz9SGa8m/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+请大家帮忙订阅感谢你!!!!
 
 0
