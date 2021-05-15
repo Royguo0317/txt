@@ -1,26 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 摩根士丹利就中概股退市风险发出警告
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1243994/)
+## 2021年5月14日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1244782/)
 
-**撰稿：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15003355/22-10.jpg)
-根据路透上海5月14日报道，摩根士丹利周五就对在美上市中国科技企业的敞口发出警告，此前美国会计监管机构向将不合规中国企业从美国交易所摘牌又迈进了一步后。
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-美国公众公司会计监督委员会(PCAOB)周四提出了一项新规，标志着该委员会正稳步实施让其无法获得审计文件的在美上市中国企业退市的举措。
+5月14号：这是个好人……更是个伟大的医生！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15070358/3bcee1d46b68399438ba4774fc186810.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15070411/1574319825bdc089114c2a46f181c478.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15070421/8b89b8004d5f5c23b48589e8f7b12a5d.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15070428/bbfeafcc58bfea07317d47473c9012ab.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15070442/c51712a5c3b141dea900ff213173b856.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15070455/f93044aab55cd04aa5f433a18abadd27.jpg)
+[【2021年5月14日】文贵先生盖特原文](https://gtv.org/getter/609ecb2837f7f73984cbaea5)
 
-摩根士丹利在一份研究报告中表示，此举给中国企业的美国存托凭证(ADR)造成负面影响，这些ADR已经受到中国政府收紧互联网监管的影响，且目前不断加剧的通胀上升担忧对成长股来说也是个坏兆头。
+**喜联盟Gnews编辑部**
 
-摩根士丹利称，**PCAOB的提案标志着《外国企业问责法案》(HFCAA)正在稳步实施，且目前已接近全面执行。该法案旨在将在美上市的不合规外国企业摘牌**。
-
-一方面是中共内部不断深化的反垄断行动和国进民退的政策强势执行，另一方面是中共外部与国际关系的僵化局面，导致的隐患，都决定了投资者对中共企业的投资行为有巨大的风险，而美国下一步对中资上市企业的严查也将开启大面积退市潮的篇章，此次摩根士丹利的警告也代表整个华尔街金融利益集团的普遍共识，帮助投资者在风暴来临之前，加速撤离。
-
-（本文只代表作者观点，与Gnews平台无关。）
-
-**新闻来源：**
-[摩根士丹利就中国企业ADR退市风险发出警告 推荐对冲策略 | 路透 (reuters.com)](https://cn.reuters.com/article/ms-china-adr-delisting-0515-idCNKBS2CW02C?il=0)
-
-***校对发布**：文顾*
-
-0
++1

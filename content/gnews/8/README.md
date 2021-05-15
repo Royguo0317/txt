@@ -1,41 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】“千人计划”专家成过街老鼠，郑颂国获罪监禁
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1244098/)
+## 澳洲呼吁在中共病毒疫情上赋予世卫更多权力
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/1244910/)
 
-纽约香草山健身部 Jack Li文阳
+翻译&评论：Shirley
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15074748/IMG_9147.jpg)网络截图
+正在访问华盛顿的澳洲外交部长佩恩（Marise Payne）指出，一个独立小组建议的“关于提高世卫组织的独立性和权威性，以便他们有明确的权力调查具有大流行威胁的病原体，并公布关于这些潜在爆发的信息，无需事先得到各国政府的批准就能立即采取行动，”是非常重要的。
 
+由利比里亚前总统瑟利夫（Ellen Johnson Sirleaf）和新西兰前总理克拉克（Helen Clark）领导的独立小组发现，世界卫生组织对2019年12月在中国武汉爆发的疫情的早期反应“缺乏紧迫性”，认为这种已造成至少330万人死亡并损害了全球经济大流行病，本来是可以预防的。
 
+澳洲总理莫里森（scott morrison）于去年4月也曾敦促赋予世卫组织更多的权力，即允许国际卫生官员未经邀请便进入某个国家调查疾病爆发的源头，类似武器检查员的权力，以应对未来的疫情爆发。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14021704/logo-1.jpg)
+前往中共国参与世卫组织调查病毒起源的小组成员，共有14位。澳洲的唯一小组成员，传染病专家多德怀尔（Dominic Dwyer）曾表示，中国政府拒绝提交所拥有的数据。
 
+众所周知，疫情爆发最初几天的原始数据至关重要。况且中共提供的174个早期病例中，只有一半接触过武汉的华南海鲜市场，怎么能确定疫情始发于海鲜市场呢？
 
+这次能够抵达中共国参与调查病毒起源的世卫组织成员，都是经过中共同意的。话句话说，这些人都是对中共比较友好的，且有相当部分是被中共“蓝金黄”过的。那么他们写出的报告，怎么会是没有受到中共国的干预？
 
-中共国长期以来派遣和培植其在西方的科技间谍，渗透到西方国家的科研机构，骗取科研资金，偷盗先进技术，危害西方国家的国家安全。美国司法部5月14日通过声明宣布，俄亥俄州立大学教授郑颂国因被控利用美国国立卫生研究院（NIH）的研究资金帮助中共国从事科研，被判处37个月监禁。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15014851/1-73.png)
-现年58岁的中共“千人计划”专家郑颂国已于去年11月向法庭认罪，2020年5月22日在前往中共国的转机途中被逮捕。他承认利用虚假手段骗取美国国家卫生研究院约410万美元的拨款，来发展中共国在风湿病学和免疫学领域的专业研究。郑颂国还被法庭命令向美国国家卫生研究院（NIH）支付超过340万美元的赔偿金，并向俄亥俄州立大学赔偿约41.3万美元。
+不仅调查人员的挑选需要中共国的同意，而且在他们到达以后，所有的行程，包括翻译以及见到的人员都由中共国安排，调查人员也被禁止与普通民众见面。简言之，世卫的调查就是中共安排的一场戏，调查人员见到的所有人都是演员。
 
-美国参议院常设调查小组委员会曾于2019年11月19日就“确保美国研究机构不受中（共）国人才引进计划的入侵”举行听证。来自美国几家大的联邦研究机构的代表承认，他们所在的机构都发现有参与中共的“千人计划”的学者。联邦调查局2018年开始增加了对参与“千人计划”学者的逮捕和起诉的曝光率。也是因为这个原因，中国政府删除了“千人计划”的名单。美国联邦调查局在56个办事处都建立反间谍小组， 并加强了与当地大学和企业的密切接触，让他们意识到中共国人才计划的风险。
+试想一下，如果世卫组织的调查人员不需中共国的允许，以最快的速度进入武汉、并进行自主的检查，那么现在的大流行还会发生吗？
 
-郑颂国自从2013年以来就参加了中共国政府的“千人计划”，他们相信中共的谎言，为了中共所说的“崇高”理想，“爱国”情操，披着专家学者的外衣，全世界作恶。另一方面，也是他们自己的贪婪私心作祟，幻想能从中取得巨额财富。遂和中共臭味相投、沆瀣一气，甘当中共的特务间谍。中共自知“千人计划”败露，禁止谈论“千人计划”。从2020年4月18日起至今，“千人计划”在中共国百度、搜狗等搜索引擎以及微博、微信等社交网络的搜索结果已被屏蔽。按照中共的惯例，间谍一旦暴露，马上被抛弃或者灭口。奉劝中共走狗，及早悬崖勒马，回头是岸。
+（本文仅代表个人观点）
 
-参考阅读：
+审稿：Gradient Boost
 
-https://www.rfi.fr/cn/%E7%A4%BE%E4%BC%9A/20210514-%E7%94%B3%E8%AF%B7%E8%81%94%E9%82%A6%E8%B5%84%E9%87%91%E9%9A%90%E7%9E%92%E5%8F%82%E5%8A%A0%E5%8D%83%E4%BA%BA%E8%AE%A1%E5%88%92-%E7%BE%8E%E5%85%8D%E7%96%AB%E5%AD%A6%E4%B8%93%E5%AE%B6%E8%A2%AB%E5%88%A4%E5%85%A5%E7%8B%B137%E4%B8%AA%E6%9C%88
+新闻参考链接：
 
-校对/发稿：火内
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15014027/5%E6%9C%88-1.jpg)
-**更多资讯，更多关注**
+[The Australian](https://www.theaustralian.com.au/nation/politics/pressure-on-china-to-deliver-the-facts-on-covid19-origins/news-story/57b7ba694209fc76e31b3134984a5317)
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[SBS News](https://www.sbs.com.au/chinese/mandarin/zh-hans/scott-morrison-wants-to-arm-who-with-powers-of-weapon-inspectors)
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+[Yahoo](https://au.news.yahoo.com/australia-calls-empowering-covid-panel-212112598.html)
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-+1
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-澳喜Logo.jpeg)
+0

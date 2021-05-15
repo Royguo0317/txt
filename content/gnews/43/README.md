@@ -1,47 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月14日美国政要反共推文精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1243539/)
+## 【热点播报】“千人计划”专家成过街老鼠，郑颂国获罪监禁
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1244098/)
 
-众议员吉姆·班克斯： 美国承受不起更多的延误。 国会需要立刻知道哪些公司与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的军事相关，然后我们需要通过我的法案《停止资助中共解放军法》来禁止对它们的投资。 【附大纪元报报道：批评中共国者对五角大楼推迟对中共国军事公司的报告做出反应】
-
-
-
-> America can’t afford more delays.
->  
-> Congress needs to know which firms are tied to China's military ASAP, then we need to ban investments in them by passing my bill, the Stop Funding the PLA Act.[https://t.co/kkRL649iv7](https://t.co/kkRL649iv7)
-> — Jim Banks (@RepJimBanks) [May 14, 2021](https://twitter.com/RepJimBanks/status/1393309464451760129?ref_src=twsrc%5Etfw)
+纽约香草山健身部 Jack Li文阳
 
 
 
-联邦调查局FBI： 大学研究员在申请基金为中共国发展专门科学知识上撒谎而被判入狱。(链接是司法部官网公告：俄亥俄州立大学教授和研究学者郑宋国获罪入狱)【图片说明：被告隐瞒自己参加中共政府人才招揽计划和与至少五个中共国研究机构的合作关系。被告郑贪婪攫取联邦研究经费却阻止他人获得资金来进行支持医学进步的关键研究。不管他们逃到哪里，飞机上，阿拉斯加还是半夜三更，FBI将继续缉拿这些人】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14021704/logo-1.jpg)
 
 
 
-> University Researcher Sentenced to Prison for Lying on Grant Applications to Develop Scientific Expertise for China [@FBICincinnati](https://twitter.com/FBICincinnati?ref_src=twsrc%5Etfw) [https://t.co/ACFK0pedCo](https://t.co/ACFK0pedCo) [pic.twitter.com/rDVzNaccBf](https://t.co/rDVzNaccBf)
-> — FBI (@FBI) [May 14, 2021](https://twitter.com/FBI/status/1393258616988348420?ref_src=twsrc%5Etfw)
+中共国长期以来派遣和培植其在西方的科技间谍，渗透到西方国家的科研机构，骗取科研资金，偷盗先进技术，危害西方国家的国家安全。美国司法部5月14日通过声明宣布，俄亥俄州立大学教授郑颂国因被控利用美国国立卫生研究院（NIH）的研究资金帮助中共国从事科研，被判处37个月监禁。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15014851/1-73.png)
+现年58岁的中共“千人计划”专家郑颂国已于去年11月向法庭认罪，2020年5月22日在前往中共国的转机途中被逮捕。他承认利用虚假手段骗取美国国家卫生研究院约410万美元的拨款，来发展中共国在风湿病学和免疫学领域的专业研究。郑颂国还被法庭命令向美国国家卫生研究院（NIH）支付超过340万美元的赔偿金，并向俄亥俄州立大学赔偿约41.3万美元。
 
+美国参议院常设调查小组委员会曾于2019年11月19日就“确保美国研究机构不受中（共）国人才引进计划的入侵”举行听证。来自美国几家大的联邦研究机构的代表承认，他们所在的机构都发现有参与中共的“千人计划”的学者。联邦调查局2018年开始增加了对参与“千人计划”学者的逮捕和起诉的曝光率。也是因为这个原因，中国政府删除了“千人计划”的名单。美国联邦调查局在56个办事处都建立反间谍小组， 并加强了与当地大学和企业的密切接触，让他们意识到中共国人才计划的风险。
 
+郑颂国自从2013年以来就参加了中共国政府的“千人计划”，他们相信中共的谎言，为了中共所说的“崇高”理想，“爱国”情操，披着专家学者的外衣，全世界作恶。另一方面，也是他们自己的贪婪私心作祟，幻想能从中取得巨额财富。遂和中共臭味相投、沆瀣一气，甘当中共的特务间谍。中共自知“千人计划”败露，禁止谈论“千人计划”。从2020年4月18日起至今，“千人计划”在中共国百度、搜狗等搜索引擎以及微博、微信等社交网络的搜索结果已被屏蔽。按照中共的惯例，间谍一旦暴露，马上被抛弃或者灭口。奉劝中共走狗，及早悬崖勒马，回头是岸。
 
-参议员玛莎·布莱克本: 去年，我们面临了巨大的困难，但是这场危机是可以避免的。如果北京不隐瞒信息和对世界撒谎，今天我们会安全得多。 【附[http://axios.com](https://t.co/bZseuGwPHd?amp=1)报道：世卫特别报告认为新冠大流行本可以避免】
+参考阅读：
 
+https://www.rfi.fr/cn/%E7%A4%BE%E4%BC%9A/20210514-%E7%94%B3%E8%AF%B7%E8%81%94%E9%82%A6%E8%B5%84%E9%87%91%E9%9A%90%E7%9E%92%E5%8F%82%E5%8A%A0%E5%8D%83%E4%BA%BA%E8%AE%A1%E5%88%92-%E7%BE%8E%E5%85%8D%E7%96%AB%E5%AD%A6%E4%B8%93%E5%AE%B6%E8%A2%AB%E5%88%A4%E5%85%A5%E7%8B%B137%E4%B8%AA%E6%9C%88
 
+校对/发稿：火内
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15014027/5%E6%9C%88-1.jpg)
+**更多资讯，更多关注**
 
-> We’ve faced tremendous hardships this last year, but this crisis was preventable. Had Beijing not withheld information and lied to the world, we would be in a much safer place today.[https://t.co/FQt3ab9q0O](https://t.co/FQt3ab9q0O)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 14, 2021](https://twitter.com/MarshaBlackburn/status/1393250758691282948?ref_src=twsrc%5Etfw)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
 
-彼得·纳瓦罗（前白宫国际贸易顾问】： 福奇对兰德·保罗撒谎。这里是证据。 【附[http://thenationalpulse.com](https://t.co/R8zILIUVl3?amp=1)报道：纳瓦罗列举9项事实福奇与新冠起源有关】
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
 
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-
-> Fauci stone cold lied to Rand Paul. Here's the evidence.[https://t.co/U7F9h2Q3Zx](https://t.co/U7F9h2Q3Zx)
-> — Peter Navarro (@RealPNavarro) [May 14, 2021](https://twitter.com/RealPNavarro/status/1393275404358664193?ref_src=twsrc%5Etfw)
-
-
-
-
-
-0
++1
