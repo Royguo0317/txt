@@ -1,56 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【樱华乐章9期】人物乐章 邓丽君
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1243397/)
+## 5月14日美国政要反共推文精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1243539/)
 
-作者：喜马拉雅东京樱花团 /待命（文晓）
-
-![](https://lh5.googleusercontent.com/3uey_mD5ULMYywkgvE8a2s8bmwhsaJEg4piX9k0khxMznyAn87Up3vIwDe34GR4yKY59z_Kjw3NkeTi0c5_fsui-B8c-8lHQvrgLA4BLFlsYrzJrENLR50pKRoys_y7gGcS0B36f)
-图片来自日本樱花团
-
-【樱华乐章】记录灭共路上的每一个旋律，本期节目嘉宾是再也不能到场的、享誉世界的华人歌手邓丽君，回顾她美丽的一生以及她留给这个世界那些甜美的歌、和她为八九六四呐喊的歌。
-
-![](https://lh4.googleusercontent.com/2zbOdCctRlp13D5cAkzUsIAyLzHiLISw9sIxefSZJqHt4KRsgGeQ0AJASHWAtpv8ag9ATamB3qRvjZ-z7j0cLy1YdEKSXys3XzzzwxZQq7l2UtPfWDBENqHd2Zj57VE68Pa8vroT)
-[图片来源](https://www.dajiyuan.eu/%E4%B9%90%E6%B4%BB/%E6%96%87%E5%8C%96%E9%A2%91%E9%81%93/189912-%E9%82%93%E4%B8%BD%E5%90%9B%E8%BD%AC%E4%B8%96%E5%BD%92%E6%9D%A5%EF%BC%9F%E6%8F%AD%E5%AF%86%E6%B3%B0%E5%9B%BD%E5%A7%91%E5%A8%98%E7%9A%84%E7%A5%9E%E5%A5%87%E7%BB%8F%E5%8E%86.html)
+众议员吉姆·班克斯： 美国承受不起更多的延误。 国会需要立刻知道哪些公司与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的军事相关，然后我们需要通过我的法案《停止资助中共解放军法》来禁止对它们的投资。 【附大纪元报报道：批评中共国者对五角大楼推迟对中共国军事公司的报告做出反应】
 
 
 
-邓丽君名本邓丽筠，因为很多人不认识这个 筠字，后改为邓丽君。她1953年1月29日出生在被中共称为祖国宝岛的台湾，是享誉世界的台湾籍女歌手。她可以用流利的英文、日文、闽南话、粤语、普通话、马来语等多种语言演唱，在20世纪70至80年代的日本，成为具有代表性的日语女歌手之一。
+> America can’t afford more delays.
+>  
+> Congress needs to know which firms are tied to China's military ASAP, then we need to ban investments in them by passing my bill, the Stop Funding the PLA Act.[https://t.co/kkRL649iv7](https://t.co/kkRL649iv7)
+> — Jim Banks (@RepJimBanks) [May 14, 2021](https://twitter.com/RepJimBanks/status/1393309464451760129?ref_src=twsrc%5Etfw)
 
-1967年，推出首张个人专辑。
 
-1969年，因演唱台湾首部连续剧《晶晶》的同名主题曲而在台湾成名。
 
-1974年，凭借日文歌曲《空港》获得日本唱片大赏“新人赏”。
+联邦调查局FBI： 大学研究员在申请基金为中共国发展专门科学知识上撒谎而被判入狱。(链接是司法部官网公告：俄亥俄州立大学教授和研究学者郑宋国获罪入狱)【图片说明：被告隐瞒自己参加中共政府人才招揽计划和与至少五个中共国研究机构的合作关系。被告郑贪婪攫取联邦研究经费却阻止他人获得资金来进行支持医学进步的关键研究。不管他们逃到哪里，飞机上，阿拉斯加还是半夜三更，FBI将继续缉拿这些人】
 
-1976年，于香港利舞台举行首次个人演唱会。
 
-1980年，当选台湾金钟奖首位最佳女歌星。
 
-80年代初期，先后受邀于林肯中心、洛杉矶音乐中心、拉斯维加斯凯撒皇宫等地举行演唱会。
+> University Researcher Sentenced to Prison for Lying on Grant Applications to Develop Scientific Expertise for China [@FBICincinnati](https://twitter.com/FBICincinnati?ref_src=twsrc%5Etfw) [https://t.co/ACFK0pedCo](https://t.co/ACFK0pedCo) [pic.twitter.com/rDVzNaccBf](https://t.co/rDVzNaccBf)
+> — FBI (@FBI) [May 14, 2021](https://twitter.com/FBI/status/1393258616988348420?ref_src=twsrc%5Etfw)
 
-1983年，举行华人歌手首次巡回演唱会。
 
-1984至1986年间，先后以《つぐない》、《爱人》、《时の流れに身をまかせ》三曲，三次获得日本有线大赏和全日本有线放送大赏两项日本音乐颁奖礼大奖的最高奖项。
 
-1995年5月8日，邓丽君因支气管哮喘发作，于泰国清迈逝世。
+参议员玛莎·布莱克本: 去年，我们面临了巨大的困难，但是这场危机是可以避免的。如果北京不隐瞒信息和对世界撒谎，今天我们会安全得多。 【附[http://axios.com](https://t.co/bZseuGwPHd?amp=1)报道：世卫特别报告认为新冠大流行本可以避免】
 
-邓丽君过世后，香港十大中文金曲颁奖礼追认授予邓丽君“金针奖” 。全日本有线放送大赏、日本有线大赏、日本唱片大赏分别追认授予邓丽君“特别功劳赏”。1996年，台湾金曲奖追认授予邓丽君“特别贡献奖”。2007年，邓丽君成为日本古贺政男音乐博物馆“大众音乐殿堂”表彰者。可称她为同胞的，她的祖国却没有一丝表达。
 
-1980年10月4日，邓丽君在台湾“国父纪念馆”进行义唱时，当主持人询问她是否会去大陆开演唱会时，她的回答是”当我在大陆演唱的那一天，就是我们三民主义在大陆实行的那一天”。另外，在轰动了世界的八九六四天安门事件后，她勇敢的参加了义演，一改往日优雅甜美的表演形式，身着印有追求民族自由字样的体恤、头系印有追求民族自由字样的头巾，唱出了民众的心声。这也许就是中共不欢迎她、她也不愿意回到那个被中共霸凌的祖国的原因吧！于是，那般甜美动听，那般受人喜爱的歌，就成了中共国迟来的歌声。
 
-本期节目，主持人为大家准备了一段少见的邓丽君的[搞笑小视频](https://youtu.be/klBl7cLZono)，还推出了邓丽君的如下5首歌曲
+> We’ve faced tremendous hardships this last year, but this crisis was preventable. Had Beijing not withheld information and lied to the world, we would be in a much safer place today.[https://t.co/FQt3ab9q0O](https://t.co/FQt3ab9q0O)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 14, 2021](https://twitter.com/MarshaBlackburn/status/1393250758691282948?ref_src=twsrc%5Etfw)
 
-[甜蜜蜜](https://youtu.be/u1X7GVxgDD8)、[路边的野花你不要采](https://youtu.be/3Q3nRsyYK3E)、[時の流れに身をまかせ](https://youtu.be/gkzOoOAkDWo)、[我和你](https://youtu.be/z0tCpDY2Ong)，还有下面这首无法找到歌名的，邓丽君参加八九六四义演时演唱的民族自由之歌。
+
+
+彼得·纳瓦罗（前白宫国际贸易顾问】： 福奇对兰德·保罗撒谎。这里是证据。 【附[http://thenationalpulse.com](https://t.co/R8zILIUVl3?amp=1)报道：纳瓦罗列举9项事实福奇与新冠起源有关】
+
+
+
+> Fauci stone cold lied to Rand Paul. Here's the evidence.[https://t.co/U7F9h2Q3Zx](https://t.co/U7F9h2Q3Zx)
+> — Peter Navarro (@RealPNavarro) [May 14, 2021](https://twitter.com/RealPNavarro/status/1393275404358664193?ref_src=twsrc%5Etfw)
 
 
 
 
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
-*校对：喜马拉雅东京樱花团 / 鸿雁*
-*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13031339/%E4%BA%8C%E7%BB%B4%E7%A0%81-1.jpg)
 0

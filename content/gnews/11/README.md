@@ -1,96 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【诗歌】坚定灭共志不移
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1243353/)
+## 【有声读物】童年的味道（五）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1243474/)
 
-作者：喜马拉雅东京樱花团 / 跟随你
+配音：香草山录音组 Gtv abeilles（蜜蜂）
 
-![](https://lh3.googleusercontent.com/a-uMpjeEVvsubaUpIgg77Qdomha8H5Rlzj6sNMfgKdmzM0BYKzbDsf35YAiwnfuiophdrDtHZC66PngFXsYvo4JKSPZc0E3fZhYugeUNB-rsKl7V2OSxrgZzVYuuAaDtIEO8HKPa)
-[图片来源](https://i.ntdtv.com/assets/uploads/2019/10/5472x3648_544942046442.jpg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-自从新中国联邦诞生起、这一年来、以钱灭共、以毒灭共成为我们的利剑。我们的方向越来越明确、脚步越来越飞速……
 
-一年了、世界慢慢在苏醒，一年了、看到了新中国联邦的重要性，准备著一起讨伐共产党、准备著没有共产党的安排、准备著与新中国联邦的接洽……
 
-消灭中共就在眼前、这是天意、这是正义的需要、这是必须。
 
-记得有位战友说：我们应该有一首大家都来唱的歌、我也促发同感、是不是可以传唱不知道、寻找共鸣和能谱曲的朋友。
 
-**坚定灭共志不移**
 
-从什么时刻起
-我们的信仰被夺去
-从什么时刻起
-我们的信誉有问题
-你骗我来我骗你
-出卖人格灵魂和肉体
-天不再蓝水不再清
-呼吸都已成问题
-这样的日子无法继续
-生命不能这样被窒息
-起来我的同胞
-起来我的姐妹兄弟
-祸因我们的懦弱而起
-魔鬼已占据江河大地
-携起手齐反击
-为正义为尊严
-为和平为自由
-在所不惜奋战到底
-起来我的同胞
-起来我的父老乡亲
-为子孙为家园
-为自己为生存
-在所不惜奋战到底
-魔鬼定会消亡
-光辉定会普照
-坚定灭共志不移
 
-**魔鬼必除 天亮必至**
+小姨来信，说外婆病重，希望妈妈回去看看。因为跟我们同住的奶奶身体不好，妈妈工作、家务两头忙，暂时走不开，就让大姨代表她回去一趟，顺便捎上我一起去。那是我第一次，也是唯一一次去外婆家。
 
-何时
-魔鬼已出现在人间
-人们
-迷失了方向受煎熬
-世态
-炎凉的只剩下丑恶
-世界
-充斥著谎言和虚伪
-人类
-底线被无数次挑战
-信仰
-在践踏之中被剥夺
-生命
-在残忍之中被消失
-真相
-在光天化日被掩埋
-良知
-在利益面前被丧尽
-世间
-将要落入万丈深渊
+在那个交通不便的年代，外婆家可以说是路途遥远：先乘船，再乘一夜一天的火车，然后需要在火车终点站住宿一夜，第二天一早转乘公共汽车，直至傍晚到达小镇上，还需继续走几里土路才能来到外婆家。大姨带着不到十岁的我和两岁的表妹，一路上颠颠簸簸，十分辛苦。
 
-呐喊
-第一声灭共的出现
-吹响
-爆料革命正在结集
-谎言
-终于被一个个揭穿
-病毒
-被魔鬼投向全世界
-疫苗
-是一个害人的手段
-对抗
-唯有咱新中国联邦
-灭共
-为同一目标来相聚
-飘扬
-七芒星旗保驾护航
-终结
-魔鬼必灭天亮必然
 
-*免责申明：本文只代表作者观点，与GNews网站无关。
-校对：喜马拉雅东京樱花团 / 东洋武士
-责任编辑：喜马拉雅东京樱花团 / 文小白
-发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13031339/%E4%BA%8C%E7%BB%B4%E7%A0%81-1.jpg)
+
+**文字版原文：[【言于其食】童年的味道（五）](https://gnews.org/zh-hans/1240864/)**
+
+作者：纽约香草山美食部 蓝天大海
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 0

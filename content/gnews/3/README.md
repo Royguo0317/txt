@@ -1,44 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美国疾病预防中心称，完全接种疫苗的人无需佩戴口罩
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1243433/)
+## 美澳并肩，打响对抗中共的第一枪
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1243544/)
 
-作者：纽约香草山媒体部 7bends
+**撰稿：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14214317/30-2.jpg)
+美国国务卿布林肯向遭受中国报复的盟友澳大利亚再次声援。他表示，美国不会让澳大利亚单独面对中共国的经济胁迫，中共国如此对待美国盟友将会阻碍美中关系的改善。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+布林肯是周四（5月13日）与正在美国访问的澳大利亚外长佩恩举行联合记者招待会上发表这番评论的。这是美国高级官员再次用明确的语言表明，美国要与自己的盟友站在一起共同应对中共国胁迫。
 
+美国总统拜登上任以后多次对北京胁迫澳大利亚和加拿大的行为提出批评，并把北京停止这样的做法与美中关系改善联系起来。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14210048/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91CDC%E7%A7%B0%E5%AE%8C%E5%85%A8%E6%8E%A5%E7%A7%8D%E7%96%AB%E8%8B%97%E7%9A%84%E4%BA%BA%E5%8F%AF%E4%BB%A5%E4%B8%8D%E7%94%A8%E4%BD%A9%E6%88%B4%E5%8F%A3%E7%BD%A9.png)
-2021年5月13日，[美国疾病预防中心](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/fully-vaccinated.html)（CDC）发布最新指导意见，称完成疫苗接种的人可以不要佩戴口罩。
+布林肯说：“我重申，美国不会丢下澳大利亚不管，或许我应该说，不会让它孤军奋战，独自面对中共国的经济胁迫。”
 
-CDC称，对于完全接种完新冠疫苗的人群，
+从去年4月，澳大利亚总理莫里森向国际社会发出呼吁——对新冠病毒来源展开独立调查之后，澳中关系开始急速恶化。北京对澳大利亚展开了大规模的贸易制裁。最近中共国国家发改委又通知澳方，暂时停止双边的战略经济对话。
 
-- 你可以恢复你在大流行之前的活动。
-- 你不需要戴口罩或保持6英尺的距离，除非联邦、州、地方、部落或地区的法律、法规和条例有要求，包括当地的商业和工作场所指南。
-- 在美国旅行，你不需要在旅行前后接受检测，也不需要在旅行后进行自我隔离。
-- 在美国境外旅行之前，你需要密切关注你的国际目的地的疫情情况。
-- 如果你周围有人患有COVID-19，你不需要远离他人或接受检测，除非你有症状。
+在中方切断两国所有对话渠道之前，澳大利亚上个月决定取消维多利亚州与中共国签署的两项与中共国提出的“一带一路倡议”相关的贸易协定。
 
+佩恩在记者会上清楚地表示了澳大利亚的立场，不会在国家安全或者主权方面妥协。
 
-关于CDC这项最新的指导意见，笔者有非常大的担忧。完全接种疫苗后又重新感染病毒的报导屡见不鲜。据美联社近期报导，在完全接种新冠疫苗后，纽约扬基队队员托雷斯仍被检测出新冠病毒阳性。
+布林肯此次对澳大利亚的声援，其实是向其他美国盟友喊话：不要害怕来自中共国的制裁和报复，在这一点上，美国不会让盟友孤军奋战，而是会坚决与盟友站在一起，一同对抗来自中共的威胁和打击。而西方阵营的盟友需要以团结一致的立场面对中共的威胁，特别是在中共病毒的溯源上，应该展开更为彻底、更为全面的调查。
 
-笔者认为，在彻底了解病毒前，靠匆匆忙忙研制出的疫苗来解决新冠大流行问题，完全不切实际。最根本的解决方法，是尽快对新冠疫情的起因追根溯源。只有了解了病毒的源头，才可以尽快研究出有针对性的预防和治疗方案，尽快结束这场人类有史以来最大的生存危机。
+此次美澳的联合声明，实质打响了全球政府向中共追责，并与之对抗的第一枪，之后任何一国，都有权力和底气向中共发出通牒。而中共面临强大的国际舆论的联合压力，还有多少底气去诡辩？
 
-编辑/校对/发稿：雪梨
+（本文只代表作者观点，与Gnews平台无关。）
 
-![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+**新闻来源：**
+[美国再次表示，要与澳大利亚站在一起，对抗中国胁迫 (voachinese.com)](https://www.voachinese.com/a/US-vows-to-stand-by-ally-Australia-against-China-20210514/5890834.html)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+***校对发布**：文顾*
 
 0
