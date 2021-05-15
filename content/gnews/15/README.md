@@ -1,55 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】数字经济再“坚挺”反爆中共复苏假象
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1243600/)
+## 中共国增加宣传支出达500%以影响美国
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1243680/)
 
-香草山写作组  鹰(文言)
+翻译:康州盘古农场 – Mike Li
+校对:康州盘古农场 –格格巫
+编辑:康州盘古农场 – 明子
 
+据《axios》 作者：Lachlan Markay，2021年5月11日报道
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14222327/EF0359D9-F807-4834-A20F-7E4215938473.png)
+新披露的外国代理人文件详细说明了北京的大规模宣传行动，这些行动披露中共在美国的对外宣传公关工作增加了六倍。
 
+为什么它这么重要呢？因为宣传是中共实现其地缘政治愿望的核心，它在美国播撒不和谐和虚假的信息，这对美国的商业、政治和社会环境有切切实实的影响。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+根据响应性政治中心(Center for Responsive Politics)的数据，中共外国代理人的支出已经从2016年的略高于1000万美元，飙升至去年的近6400万美元。
 
+这主要得益于其稳定的宣传业务，中共国现在是在美国影响力业务的最大支出国。
 
+强制披露的有偿外国影响力的美国法律，开始显示出北京为其它的目标投入的巨额资金。
 
-澎湃网5月14日报道，中共社科院发布《数字经济蓝皮书：中国数字经济前沿（2021）》，蓝皮书指出2020年中共国数字经济增加值超19万亿，占GDP的18.8%。
+中共国国营新闻社-新华社，是最新披露其在美国一些业务内部运作情况的机构。
 
-中共信通院在2020年7月份发布的《中国数字经济发展白皮书 （2020年）》报告中显示，2019年中共国数字经济增加值规模达35.8万亿（占GDP比重的36.2%，同比2018年增长14.5%）。2020年相较于19年经济总量“突破”100万亿元，实现2.3%的增长。2020年，中共开始吹嘘和推广数字货币：不仅多地政府发放数字红包，数字货币试验区也纷纷建立。这些宣传和政策，无疑较2019年更上一个台阶。然而，2020年数字经济在GDP中的占比却从18年、19年的35%左右骤降至不到20%。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14221222/Screen-Shot-2021-05-14-at-10.11.43-PM.png)
-北京大学国家发展研究院教授、中国健康发展研究中心主任李玲在2020年11月参加上海论坛时称，中国今年因抗疫获得价值约人民币67万亿元收益。她在12月的《疫情引发对中国未来发展模式的重新思考》论坛上也有如此阐述。李玲近日指出，这67亿元的收益中，56万亿元是避免死亡、伤残带来的健康收益，而11万亿是直接的经济收益。
+新华社的美国分部上周正式注册为外国代理人，这是在司法部通知该公司必须这样做的三年后，《外国游说报告》报道了这一点。
 
-中共的100万亿GDP中，67万亿是“抗疫”收益，如卖核酸检测试剂等利用疫情而获得的收益。另外19万亿是数字经济。近年来，数字经济和实体经济融合被热炒并被推行。可以想见，上述的19万亿经济总量中，仅有少部分可真正用于带动消费和维系实体经济。鉴于中共造假的惯例以及无官不贪的体制环境，真正能用于经济复苏和民生保障的资金规模只会更低。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14221205/Screen-Shot-2021-05-14-at-10.11.47-PM.png)
-2020年年初CCP病毒大爆发，七八月份长江流域又有特大洪灾，国内的中小微企业已面临流动资金紧张、营收断崖、赋税上涨等严峻形势。而盈利恶化，各大企业迎来倒闭潮，进而会引发失业人口增长。下半年，生存危机更蔓延到大型国企央企。中共一方面是丧事喜报，宣传经济“稳中求进”，另一方面则是加大力度的搜刮社会资本和人民个人财富。在2021年更将屠刀杀向大型民企私企，让本就收支不平衡、断供潮来袭的底层人民更是雪上加霜。
+根据《外国代理人登记法》提交的最初文件在很大程度上是通用的，将新华社描述为“一个独立的法律实体”，而且“接受中共国政府监督”。事实上，该媒体机构为中国政府所有，由共产党高级官员管理，并被广泛视为中共国政府的喉舌。
 
-2020年数字经济的“增值”暴露了中共以假治国，以黑治国的本质。在“以钱灭共”戳破中共经济擀面杖子假外壳，“以毒灭共”扯下其共建命运共同体的牌坊的世界潮流下，中共灭亡越发临近。
+其新的外国代理人登记法文件披露，自2020年3月以来，新华社的中共国母公司向其美国分部支付了860万美元，包括直接支付给华盛顿、洛杉矶、休斯顿、旧金山和芝加哥的分社。新华社只是最新注册的中共国国营媒体机构。
 
-新闻来源：
+CRP数据显示，2020年中共国实体在注册外国代理人活动上的支出超过了任何其他国家的实体。
 
-报告：去年中国数字经济增加值占GDP比重达18.8%https://www.thepaper.cn/newsDetail\_forward\_12673102
+这主要是由中国日报和CGTN等国营媒体的外国代理人注册所推动。
 
-数字经济 | 2019年我国数字经济增加值增长15.6%https://www.sohu.com/a/406162108\_99917855
+它们在2019年占中共国外国代理人支出的三分之二以上，在2020年占五分之四以上，超过了电信巨头华为和监控技术公司海康威视等大公司。
 
-促进数字经济与实体经济融合发展http://www.xinhuanet.com/tech/2020-06/17/c\_1126122610.htm
+与其他国家的媒体一样，中国国营媒体抵制美国司法部要求根据《外国代理人登记法》进行登记的要求，该法律最初是为了揭露在美国的纳粹宣传。
 
-关于新冠疫情对我国经济发展影响的 分析与建议综述https://new.qq.com/omn/20201030/20201030A01A3700.html
+在披露之前，这些中共国媒体机构在暗中运作，不受《外国代理人登记法》要求披露其结构和财务状况的约束。
 
-2020答案年终秀D场：疫情引发对中国未来发展模式的重新思考https://www.bilibili.com/video/av800519750/
-![This image has an empty alt attribute; its file name is 5_May-1.jpg]()![This image has an empty alt attribute; its file name is 5_May-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-编辑/校对/发稿：正义的小新
+文章来源:[https://www.axios.com/china-foreign-influence-spending-317a9be4-8ead-4abf-8ac4-3f27974d7a9d.html](https://www.axios.com/china-foreign-influence-spending-317a9be4-8ead-4abf-8ac4-3f27974d7a9d.html)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-**更多资讯，更多关注**
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-+1
+0
