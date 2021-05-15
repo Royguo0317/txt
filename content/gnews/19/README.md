@@ -1,24 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【各抒己见】闫博士，您好！
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1243396/)
+## 【有声读物】童年的味道（五）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1243474/)
 
-作者：喜马拉雅日本东京樱花团 / ThreeColors
+配音：香草山录音组 Gtv abeilles（蜜蜂）
 
-![](https://lh6.googleusercontent.com/DHrR_T0qFN1YI76a62irjB_b1BVnaaY_76sqZW2rAWz9-buHZqfOONm2zeJnRoNWSfeBWAe973KBwU4AbNJAOtTV4nX1MZmG6Icq06aGdgzj6CnbRlTqlrft1tP1Gx9sl6st7HHJ)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-提笔请允许我作为喜马拉雅日本东京樱花团的新联邦人的普通一员问候闫博士，欢迎来到美国介个大家庭！等您在美国生活十年以后，请与我们分享一哈子您在美国生活的感受吧。
 
-自从听路德先生的直播节目以来，特别是去年，我间接听到了您要传达给世界的有关中共生化武器的点点滴滴的知识。我认为路德先生、博博士和安红姐他们能够在第一时间与世界分享您的专业知识与分析简直就是一个奇迹。显而易见，路德先生敢于相信您，是因为您的真诚、刻苦、值得信赖的专业背景，在人类面临巨大挑战的时候，您能够勇敢滴站出来与世界分享真相。
 
-我想您也许会发觉世界上没有什么是完美的，即使是世界的灯塔美国。但是我想说的是，我对美国灰常有信心！在人心如鬼域的世界，美国是一个让生活在介里的人感受最大限度的安慰和希望的地方。不瞒您说，没有中共生化武器之前，我一直过着几乎完美的生活！现在，作为樱花团的一员，正在和其他战友们一起期待着再次美好的世界，一个没有中共的未来。
 
-日本东京樱花团队是一个真诚、刻苦、值得信赖的战队，在我心中是最棒的！顺便提一句，我的男神是马斯克先生，女神就是您。您是我知道的优秀女性中最棒的一位！我在介里祝福您一切顺顺利利，心想事成！🙏🙏🙏
 
-*免责申明：本文只代表作者观点，与GNews网站无关。
-校对：喜马拉雅东京樱花团 / 文小白
-责任编辑：喜马拉雅东京樱花团 / 東洋武士
-发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13031339/%E4%BA%8C%E7%BB%B4%E7%A0%81-1.jpg)
+
+
+小姨来信，说外婆病重，希望妈妈回去看看。因为跟我们同住的奶奶身体不好，妈妈工作、家务两头忙，暂时走不开，就让大姨代表她回去一趟，顺便捎上我一起去。那是我第一次，也是唯一一次去外婆家。
+
+在那个交通不便的年代，外婆家可以说是路途遥远：先乘船，再乘一夜一天的火车，然后需要在火车终点站住宿一夜，第二天一早转乘公共汽车，直至傍晚到达小镇上，还需继续走几里土路才能来到外婆家。大姨带着不到十岁的我和两岁的表妹，一路上颠颠簸簸，十分辛苦。
+
+
+
+**文字版原文：[【言于其食】童年的味道（五）](https://gnews.org/zh-hans/1240864/)**
+
+作者：纽约香草山美食部 蓝天大海
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 0

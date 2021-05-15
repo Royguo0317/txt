@@ -1,75 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 当《拯救大兵瑞恩》照进中共之邪恶（中）
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1243339/)
+## 川普总统如果今天回到白宫 会说我要推翻共产党吗？
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1243437/)
 
-俄罗斯莫斯科喀秋莎农场  文雪
+**摘要：在2021年5月5日的GTV直播中，郭先生说：“川普总统即使今天回到白宫，他都不可能说我要推翻共产党。”“但是什么时候他才能说？他没有选择的时候是美国军界、美国经济界、老百姓们说必须消灭共产党，川普总统一定是振臂高呼那个人，毋庸置疑。”**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14194347/Miles_20210505-live-p3.srt.txt)
+**川普总统如果今天回到白宫，会说我要推翻共产党吗？**
 
-编辑上传 水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14200239/R2.jpg)youtube.com
-[当《拯救大兵瑞恩》照进中共之邪恶（上）](http://当《拯救大兵瑞恩》照进中共之邪恶（上）)
+**Would President Trump Take Down the CCP If He Is Back in the White House****？**
 
-中共有良心吗？中共对军人和人民有善待吗？中共给一个家庭有得以为继的希望吗？
+我想告诉大家，川普总统即使今天回到白宫，他都不可能说我要推翻共产党，绝对不可能！
 
-中共为了彻底歼灭长春守城国军和逼迫国军投降，不惜饿死十数万长春人民。在内战期间利用人肉和人海战术。
+I want to tell you that, even if President Trump went back to the White House today, it would not be possible for him to say that he wanted to take down the Chinese Communist Party. Absolutely impossible!
 
-中共抗美援朝派遣的志愿军很多都是国民党各部的投降军队，在缺少冬天衣物和后勤补给的情况下，不顾士兵的死活，在平津湖战役中，让3万多士兵冻死冻伤。
+我非常荣幸地，我过去这半年我把咱们很多年轻的战友，参与到所有建设的战友，把他们介绍到了美国最高层的当中，现在都不用我了他们直接对话。我们很多战友现在是跟这些我们所希望改变我们命运、改变世界的人都是直接对话，这是我最近这个几个月做的最棒的事儿。而且这些孩子对话以后的能力和素质都是非常非常棒的，他不是完美的，没有人是完美的，非常非常棒的。
 
-中共美名其曰的对越南的“自卫反击战”，实际上是为了解救柬埔寨邪恶的红色高棉政权的覆灭，而在红色高棉统治下杀了20万当地华侨。中共通过煽动民族主义情绪致使很多青年参军加入战争，中越战争致使6万多士兵伤亡，邓小平当年题词的法卡山英雄山，也早已于1999年划归越南。
+I was very honored to introduce many of our young fellow fighters to the top officials of the United States in the past six months. And now they can talk to each other directly and don’t need me any more. Many of our fellow fighters are now in direct dialogue with these people who we hope will change our destiny and change the world. This is the greatest thing that I’ve done in the last few months. After they were hooked up, these kids have shown great ability. They are not perfect, but no one is perfect. They are fantastic.
 
-1989年6月4日中共对在天安门抗议的学生发动了大屠杀，致使多少家庭遭遇丧子之痛。邓小平在镇压六四时说“杀二十万，保二十年稳定 ”，从字面意思就可以看出中共是杀人不眨眼的邪魔恶党，更别提良心和保护家庭为继了。
+我们在各个领域跟美国政府的合作当中，都深刻的感受到，包括像川普总统他永远不可能提出来，说去把共产党去消灭，不可能。拜登都可能说，他都不可能说。但是什么时候他才能说？他没有选择的时候是美国军界、美国经济界、老百姓们说必须消灭共产党，川普总统一定是振臂高呼那个人，毋庸置疑。
 
-中共的计划生育政策几十年来杀死了4亿婴儿，造成目前多数家庭只有一个孩子。2020年中共将征兵制度改为一年两征，涵盖了往届、应届和在校大学生。2021年兵役登记启动，要求满18岁的男青年必须登记。中共一直宣传战狼式的民族主义情绪，鼓动战争，一旦中共发动战争，这些18岁以上的普通家庭的孩子将成为中共的炮灰。习近平武统台湾的野心甚嚣尘上，中共离发动武力战争还会远吗？中共考虑过中共国大部分独生子女的家庭吗？相信各位心中已有答案。
+During my broad collaboration with the U.S. government, I deeply feel that no one, including President Trump, would say “let’s go take down the CCP”. No way. Even it’s possible for Biden to say that, he [Trump] would never say that. But when will he be ready to say that? It will be when he has no other choices and when the U.S. military, the financial sector, and ordinary Americans say so. Then President Trump will definitely raise his arm and shout it out loud, and there is no doubt in that.
 
-最近北师大博士生导师康震对唐代著名诗人杜甫之作《石壕吏》进行了解读【1】，他说：“是谁在征兵，是咱们的军队（郭子仪的军队），临时补充兵员，如果是叛军（安禄山）在征兵，老太太应该撞死也不从。石壕吏是谁？石壕吏是国家公务员。他是郭子仪的军队（政府）委派到地方部门的武装干部，到村里来完成这次紧急的征兵任务。这个人有错么？这个人没错。是政府派来的，老百姓就得从。这里面表达了一个非常明显的价值观，三个儿子战死两个，老太太仍然愿意做出牺牲，献出了儿子又献自己，就是当国家和民族遭遇重大灾难的时候，我们的老百姓还是毅然挺身而出的。”
+如果说比如同样的民意、民声都呼吁消灭共产党的时候，和欧洲其他国家都联合起来要消灭中国共产党的时候，第一（如果是把拜登和川普还有美国任何政客放到台面上）第一个举手的是拜登一定不是川普。如果有蓬佩奥和川普总统、拜登在一起第一举手的一定是蓬佩奥。如果是美国选总统或者不选总统，第一举手说振臂高呼“我要干掉共产党、推翻它、消灭它”[是]蓬佩奥，第二是拜登，第三才是川普。
 
-如果杜甫听到这番解读恐怕要炸坟了。杜甫是根据上任路上夜宿石壕村亲眼所见写下该诗，表达的是对石壕吏之恶和当时制度的抨击。杜甫《石壕吏》的原文如下，
+If all the public opinions and public voices are calling for the elimination of the CCP, and all European countries are united to take down the CCP, the first one – among Biden, Trump, and all American politicians – to raise hand [to take down the CCP] must be Biden, not Trump. Among Pompeo, President Trump, and Biden, the first one to raise hand would be Pompeo. If not considering the presidential election, the first one to raise hand and say “I want to take down the CCP, overthrow it, and destroy it” would be Pompeo, followed by Biden, and the last one would be Trump.
 
-石壕吏
+但是有一点不要忘了，拜登总统最有可能跟共产党，让它给它再次缓息的机会，跟它合作，最有可能，就是让共产党再苟延残喘几年的，这是完全有可能。他的危险级这种可能性很大，川普总统绝不可能，绝不可能跟共产党说咱俩再做买卖吧，再交易一下子，咱Make a deal 吧，让你现在……绝不可能。他一定跟它脱钩，就是要跟共产党脱钩的一定是川普不会是拜登。
 
-暮投石壕村，有吏夜捉人。老翁逾墙走，老妇出门看。
+But there is one thing you must not forget – President Biden is the one who is the most likely to give the CCP a break and cooperate with it. Most likely, he will let the CCP linger on for a few more years, which is definitely possible. His possibility of doing this is really high. But President Trump will never do that. It’s absolutely impossible for him to say, “CCP, let’s make a deal again, let’s do it now… ”. It’s absolutely impossible. He will definitely decouple [with the CCP]. I mean the one who wants to decouple with the CCP will definitely be Trump, not Biden.
 
-吏呼一何怒！妇啼一何苦。听妇前致词，三男邺城戍。
+那么如果跟共产党既不会让它保持经济合作，也不会说支持共产党再残喘下去，唯一的一个人——蓬佩奥！这是一个对美国政治基本的逻辑。所以说到2022年美国的整个政治经济情况和政治形势…现在我们都在做所有的准备当中，现在不说啊，大家你们会看到一系列事情的发生。
 
-一男附书至，二男新战死。存者且偷生，死者长已矣！
+The one and only one who will neither maintain the economic cooperation with the CCP nor allow the CCP to survive longer is Pompeo! This is a basic logic of U.S. politics.  So, regarding the entire political and economic situation in the U.S. by year 2022, we are doing all kinds of preparations right now, but I can’t say more about this now. You all will see a series of things happen.
 
-室中更无人，惟有乳下孙。有孙母未去，出入无完裙。
+新中国联邦和爆料革命我可以告诉大家，一定是美国走向强大的最根本的中坚力量。美国人不会懂的，美国人只关心自己的生活，但会在政治的核心圈逐渐会意识到，新中国联邦和爆料革命，会成为美国走向强大，真的让美国再次强大的最重要的力量。同时我们会成为推动美国消灭共产党唯一的正义的力量，也唯一可能发生的力量，因为不可能有任何人！
 
-老妪力虽衰，请从吏夜归。急应河阳役，犹得备晨炊。
+The New Federal States of China (NFSC) and the Whistleblower Movement, I can tell you, will definitely be the most fundamental backbone of MAGA. Americans will not understand because they only care about their own life, but gradually, people in the inner circle of politics will realize that the NFSC and the Whistleblower Movement are becoming the most important force for making America stronger and truly making America great again. At the same time, we will become the only righteous force driving America to take down the CCP and the only force that can make this happen because no one else can!
 
-夜久语声绝，如闻泣幽咽。天明登前途，独与老翁别。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=60929c03db13300ca5491b6d](https://gtv.org/video/id=60929c03db13300ca5491b6d) (1:57:07-2:00:36)
+鸣谢：感谢黑郁金香（文郁）、杯酒渐浓、山川异域和 [喜联盟七哥直播组](https://gnews.org/zh-hans/author/miles-broadcast/) 提供中文文本于[https://gnews.org/zh-hans/1180275/](https://gnews.org/zh-hans/1180275/)
 
-石壕吏中的老妇人的家里情况更惨于电影中瑞恩的情况，而今中共制度下的所谓的教育工作者和知识分子跪舔中共的邪恶征兵政策，并要求老师为学生洗脑进行价值观传递——只要是是政府要求的，就要无条件为国家献出生命，中共正在为其准备发动战争将要进行的石壕吏之恶做铺垫。“康叫兽”用心险恶、无耻程度登峰造极，表演了现代版的指鹿为马，文人、知识分子之无耻前有郭沫若之辈，后有康震之流，士大夫之无耻是谓国耻。中共及其附庸的爪牙所做的一切都是将家庭破坏殆尽，将人民赶尽杀绝。
+* * *
 
-**关于八个人救一个人是否值得：**
+**翻译：【一花一世界】
+字幕：【Rock小哥】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-这个疑问也贯穿整个电影始终，随着情节的发展，电影最终给出了答案。
-
-米勒上尉带着霍瓦特中士，杰克森，犹太人梅里西，一等兵莱宾，军医韦德，壮兵卡帕佐和翻译厄本组成八人小队开始了去纽维尔搜救瑞恩的任务。路上莱宾发着牢骚“为什么八个人要冒险去救一个人？”韦德回答说“想想那位可怜的妈妈吧”，阿帕姆说“不问原因，至死去做”，米勒解释“军人的职责就是服从命令”，杰克森认为这次任务浪费了宝贵的军事资源。这是最初小队上路时的讨论。
-
-途中，卡帕佐毫不犹豫地救使他想起外甥女的小女孩而中弹离去，似乎也给了我们答案，在救人的那一刹那，没有任何的考虑。
-
-当找到那位同名的瑞恩，米勒发现告诉瑞恩他的兄弟们全部死了是有多么地说不出口。小队的成员看到瑞恩听到这个消息后的震惊、悲伤得难以自已，连刚开始提出疑问的莱宾也动容了。
-
-前导部队指挥官带领小队到教堂休息时很认真地说“我能理解你们所做的，我也有几个兄弟，找到瑞恩、带他回家。”晚上在教堂休息，米勒提到卡帕佐，他说“每当一位兄弟死去，就要告诉自己，这样能拯救更多的生命，甚至是100人，就是这样把任务与属下之间所做的选择合理化。”霍瓦特说“这次任务就是救人。”
-
-小队路遇发生空难的部队，为了保护一个上将牺牲了22人的生命。这也给人以思考，为什么八个人不能去保护一个可能失独的母亲的儿子呢？
-
-小队继续前进，到了雷达废弃站，有机枪埋伏，本来可以绕过此地，但米勒坚持拿下伏击机枪，以免后面部队的牺牲，韦德中弹身亡。米勒放走了那名德国战俘致使小队发生冲突，最后米勒说出了战争对他的改变，他也想完成任务回家，他多杀一人，就离家越远。无论战争怎么改变人，希望每个人对生命的尊重不会改变。
-
-终于在一次和德军坦克的交火后找到瑞恩，告诉瑞恩他的兄弟全部遇难，奉上级的命令带他回家，瑞恩选择了拒绝，他说“守护这座桥的兄弟和我一样，为什么是我离开这座桥？我不会离开。”霍瓦特告诉米勒他的想法“要是我们也留下来，会缔造什么奇迹呢？如果我们哪天回想此事，也许会觉得在这场混帐战争中，拯救瑞恩是一件最好的事。就像您所说我们留下来为和家人团聚而战斗。”这里有瑞恩对其他战友生命的尊重，也有战争中人性的光辉，也有希望每个人都能家庭团聚的目标。
-
-在守桥战斗前莱宾仔细看了看身旁的瑞恩。在战斗中，米勒、莱宾每个人都在保护着瑞恩不受伤害。战斗十分惨烈，梅里西，杰克森、霍瓦特和米勒都惨烈牺牲了，米勒在临死前对瑞恩说“詹姆斯别辜负这些，别辜负大家(James earn this, earn it)。”
-
-影片最后瑞恩和他一家八口一起来到米勒上尉的墓前，他说“我每日都想着当时你在桥上跟我说的话，我努力活好每一天，希望这已经足够，希望至少让你觉得我没有辜负你们为我做的一切”，整部影片在瑞恩妻子的回答中结束，“你是个好人”。
-
-相信每个人都对“是否值得”有了答案，生命的意义和价值不是可以随意衡量和计算的。在拯救瑞恩的过程中，也挽救了更多人的生命，生命本身就是一种希望。
-
-美国政府和军方在人道精神方面并没有用功利主义去衡量，让美国千万个家庭看到国家的良心和底线，这个国家是可以托付的、是保护家庭的。在战争的绝望中也有希望的存在。
-
-参考链接：
-
-【1】[https://youtu.be/kVC9kHEqP1g](https://youtu.be/kVC9kHEqP1g)
-
-0
++1

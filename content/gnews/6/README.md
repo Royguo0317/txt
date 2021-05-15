@@ -1,47 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月14日美国政要反共推文精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1243539/)
+## 世卫组织说在44个国家发现了印度Covid-19变种病毒
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1243624/)
 
-众议员吉姆·班克斯： 美国承受不起更多的延误。 国会需要立刻知道哪些公司与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的军事相关，然后我们需要通过我的法案《停止资助中共解放军法》来禁止对它们的投资。 【附大纪元报报道：批评中共国者对五角大楼推迟对中共国军事公司的报告做出反应】
+翻译:康州盘古农场 – Layka
 
+校对:康州盘古农场 – TrueSky
 
+编辑:康州盘古农场 – 明子
 
-> America can’t afford more delays.
->  
-> Congress needs to know which firms are tied to China's military ASAP, then we need to ban investments in them by passing my bill, the Stop Funding the PLA Act.[https://t.co/kkRL649iv7](https://t.co/kkRL649iv7)
-> — Jim Banks (@RepJimBanks) [May 14, 2021](https://twitter.com/RepJimBanks/status/1393309464451760129?ref_src=twsrc%5Etfw)
+发布：康州盘古农场 – 彩虹 Rainbow
 
+**据《www.news18.com》 2021年5月12日法新社，瑞士日内瓦，07:02印度时区首次发布：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14220336/huiooo1.jpg)
+在印度以外，世卫组织表示，英国报告了由该变种病毒引起的最多的Covid病例。
 
+世界卫生组织（WHO）周三表示，在全球数十个国家发现了印度加速爆发后的Covid-19变种病毒。
 
-联邦调查局FBI： 大学研究员在申请基金为中共国发展专门科学知识上撒谎而被判入狱。(链接是司法部官网公告：俄亥俄州立大学教授和研究学者郑宋国获罪入狱)【图片说明：被告隐瞒自己参加中共政府人才招揽计划和与至少五个中共国研究机构的合作关系。被告郑贪婪攫取联邦研究经费却阻止他人获得资金来进行支持医学进步的关键研究。不管他们逃到哪里，飞机上，阿拉斯加还是半夜三更，FBI将继续缉拿这些人】
+联合国卫生机构表示，Covid-19的B.1.617变种于去年10月首次在印度发现，已经从“来自世卫组织所有六个地区的44个国家”上传到开放数据库的4,500多个样本中被检测到。
 
+世卫组织在关于大流行的每周流行病学更新中说：“世卫组织还收到了另外五个国家的检测报告。”
 
+据报道，在印度以外的地区，英国报告了由该变种病毒引起的最多的Covid案例。
 
-> University Researcher Sentenced to Prison for Lying on Grant Applications to Develop Scientific Expertise for China [@FBICincinnati](https://twitter.com/FBICincinnati?ref_src=twsrc%5Etfw) [https://t.co/ACFK0pedCo](https://t.co/ACFK0pedCo) [pic.twitter.com/rDVzNaccBf](https://t.co/rDVzNaccBf)
-> — FBI (@FBI) [May 14, 2021](https://twitter.com/FBI/status/1393258616988348420?ref_src=twsrc%5Etfw)
+本周早些时候，世界卫生组织宣布B.1.617—“三个令人关注的变异和特征略有不同的子血统”-被视为“关注变量”。
 
+因此，它被添加到包含Covid-19的其他三个变种的列表中。这三个变种是最早在英国、巴西和南非发现的那些变体。
 
+这些变体被认为比病毒的原始版本更危险，因为它们更易传播，更致命，能够越过一些疫苗的保护措施。
 
-参议员玛莎·布莱克本: 去年，我们面临了巨大的困难，但是这场危机是可以避免的。如果北京不隐瞒信息和对世界撒谎，今天我们会安全得多。 【附[http://axios.com](https://t.co/bZseuGwPHd?amp=1)报道：世卫特别报告认为新冠大流行本可以避免】
+“迅速增加”
 
+世卫组织周三解释说，将B.1.617添加到列表中是因为它似乎比原始病毒更容易传播，并指出“多个国家的患病率迅速增加”。
 
+世卫组织还指出“初步证据”，表明该变体对单克隆抗体班兰尼单抗的治疗更具抵抗力，并且还强调了早期实验室研究表明“抗体的中和作用有限”。
 
-> We’ve faced tremendous hardships this last year, but this crisis was preventable. Had Beijing not withheld information and lied to the world, we would be in a much safer place today.[https://t.co/FQt3ab9q0O](https://t.co/FQt3ab9q0O)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 14, 2021](https://twitter.com/MarshaBlackburn/status/1393250758691282948?ref_src=twsrc%5Etfw)
+但是，它强调说，“针对现实世界的影响”，针对该变体的疫苗有效性的影响“可能是有限的”。
 
+世卫组织表示，B.1.617的传播以及其他更易传播的变种，似乎是助长印度新病例和死亡人数激增的几个因素之一。
 
+印度是一个拥有13亿人口的国家，是仅次于美国的世界第二大感染国，有将近2300万例Covid-19病例，目前每天记录的新病例超过30万例，死亡人数接近每天4000例。
 
-彼得·纳瓦罗（前白宫国际贸易顾问】： 福奇对兰德·保罗撒谎。这里是证据。 【附[http://thenationalpulse.com](https://t.co/R8zILIUVl3?amp=1)报道：纳瓦罗列举9项事实福奇与新冠起源有关】
+新的病例激增席卷了主要城市，包括首都新德里和金融中心孟买，将医院推向了临界点，导致氧气和床位严重短缺。
 
+它说：“世卫组织发现，印度Covid-19传播的复兴和加速有几个潜在的促成因素，包括SARS-CoV-2变种的病例比例增加，并具有潜在的传播能力。”
 
+它还指出“几次宗教和政治群众集会，加剧了社会融合， 以及未充分利用和减少对公共卫生和社会措施的遵守”。
 
-> Fauci stone cold lied to Rand Paul. Here's the evidence.[https://t.co/U7F9h2Q3Zx](https://t.co/U7F9h2Q3Zx)
-> — Peter Navarro (@RealPNavarro) [May 14, 2021](https://twitter.com/RealPNavarro/status/1393275404358664193?ref_src=twsrc%5Etfw)
+“人们对这些因素对印度传播增加的确切贡献还知之甚少。”
 
+世卫组织强调，到目前为止，印度仅有0.1％的Covid阳性试验已进行了基因测序，并已上载到GISAID数据库中，以鉴定有关的变体。
 
+截止到4月底，B.1.617.1和B.1.617.2分别占印度所有测序样本的21％和7％。
 
+此外，其他更具传染性的变种病毒也正在该国传播，包括B.1.1.7.，这是在英国首次发现的。
 
+原文链接：
+
+[https://www.news18.com/news/world/who-says-indian-covid-19-variant-found-in-44-countries-3729143.html](https://www.news18.com/news/world/who-says-indian-covid-19-variant-found-in-44-countries-3729143.html)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

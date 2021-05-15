@@ -1,96 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【诗歌】坚定灭共志不移
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1243353/)
+## 【热点播报】美国疾病预防中心称，完全接种疫苗的人无需佩戴口罩
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1243433/)
 
-作者：喜马拉雅东京樱花团 / 跟随你
+作者：纽约香草山媒体部 7bends
 
-![](https://lh3.googleusercontent.com/a-uMpjeEVvsubaUpIgg77Qdomha8H5Rlzj6sNMfgKdmzM0BYKzbDsf35YAiwnfuiophdrDtHZC66PngFXsYvo4JKSPZc0E3fZhYugeUNB-rsKl7V2OSxrgZzVYuuAaDtIEO8HKPa)
-[图片来源](https://i.ntdtv.com/assets/uploads/2019/10/5472x3648_544942046442.jpg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-自从新中国联邦诞生起、这一年来、以钱灭共、以毒灭共成为我们的利剑。我们的方向越来越明确、脚步越来越飞速……
 
-一年了、世界慢慢在苏醒，一年了、看到了新中国联邦的重要性，准备著一起讨伐共产党、准备著没有共产党的安排、准备著与新中国联邦的接洽……
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14210048/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91CDC%E7%A7%B0%E5%AE%8C%E5%85%A8%E6%8E%A5%E7%A7%8D%E7%96%AB%E8%8B%97%E7%9A%84%E4%BA%BA%E5%8F%AF%E4%BB%A5%E4%B8%8D%E7%94%A8%E4%BD%A9%E6%88%B4%E5%8F%A3%E7%BD%A9.png)
+2021年5月13日，[美国疾病预防中心](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/fully-vaccinated.html)（CDC）发布最新指导意见，称完成疫苗接种的人可以不要佩戴口罩。
 
-消灭中共就在眼前、这是天意、这是正义的需要、这是必须。
+CDC称，对于完全接种完新冠疫苗的人群，
 
-记得有位战友说：我们应该有一首大家都来唱的歌、我也促发同感、是不是可以传唱不知道、寻找共鸣和能谱曲的朋友。
+- 你可以恢复你在大流行之前的活动。
+- 你不需要戴口罩或保持6英尺的距离，除非联邦、州、地方、部落或地区的法律、法规和条例有要求，包括当地的商业和工作场所指南。
+- 在美国旅行，你不需要在旅行前后接受检测，也不需要在旅行后进行自我隔离。
+- 在美国境外旅行之前，你需要密切关注你的国际目的地的疫情情况。
+- 如果你周围有人患有COVID-19，你不需要远离他人或接受检测，除非你有症状。
 
-**坚定灭共志不移**
 
-从什么时刻起
-我们的信仰被夺去
-从什么时刻起
-我们的信誉有问题
-你骗我来我骗你
-出卖人格灵魂和肉体
-天不再蓝水不再清
-呼吸都已成问题
-这样的日子无法继续
-生命不能这样被窒息
-起来我的同胞
-起来我的姐妹兄弟
-祸因我们的懦弱而起
-魔鬼已占据江河大地
-携起手齐反击
-为正义为尊严
-为和平为自由
-在所不惜奋战到底
-起来我的同胞
-起来我的父老乡亲
-为子孙为家园
-为自己为生存
-在所不惜奋战到底
-魔鬼定会消亡
-光辉定会普照
-坚定灭共志不移
+关于CDC这项最新的指导意见，笔者有非常大的担忧。完全接种疫苗后又重新感染病毒的报导屡见不鲜。据美联社近期报导，在完全接种新冠疫苗后，纽约扬基队队员托雷斯仍被检测出新冠病毒阳性。
 
-**魔鬼必除 天亮必至**
+笔者认为，在彻底了解病毒前，靠匆匆忙忙研制出的疫苗来解决新冠大流行问题，完全不切实际。最根本的解决方法，是尽快对新冠疫情的起因追根溯源。只有了解了病毒的源头，才可以尽快研究出有针对性的预防和治疗方案，尽快结束这场人类有史以来最大的生存危机。
 
-何时
-魔鬼已出现在人间
-人们
-迷失了方向受煎熬
-世态
-炎凉的只剩下丑恶
-世界
-充斥著谎言和虚伪
-人类
-底线被无数次挑战
-信仰
-在践踏之中被剥夺
-生命
-在残忍之中被消失
-真相
-在光天化日被掩埋
-良知
-在利益面前被丧尽
-世间
-将要落入万丈深渊
+编辑/校对/发稿：雪梨
 
-呐喊
-第一声灭共的出现
-吹响
-爆料革命正在结集
-谎言
-终于被一个个揭穿
-病毒
-被魔鬼投向全世界
-疫苗
-是一个害人的手段
-对抗
-唯有咱新中国联邦
-灭共
-为同一目标来相聚
-飘扬
-七芒星旗保驾护航
-终结
-魔鬼必灭天亮必然
+![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-*免责申明：本文只代表作者观点，与GNews网站无关。
-校对：喜马拉雅东京樱花团 / 东洋武士
-责任编辑：喜马拉雅东京樱花团 / 文小白
-发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13031339/%E4%BA%8C%E7%BB%B4%E7%A0%81-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 0
