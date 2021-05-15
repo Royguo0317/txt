@@ -1,21 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 百元先生要钱记
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1237383/)
+## 【圣城传声筒】香港加油！
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1238862/)
 
-澳洲墨尔本雅典娜农场 – 贵水、翼族
-
-
-
-#### 绘图：min泽尔、文康
+纽约香草山香港部 – 利百加
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13072543/123-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13072600/124.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13072602/125.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13072613/126.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13072624/127.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13072632/128.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13072639/129.png)
-从关注、跟随爆料革命到参与其中，一路真的是五味杂陈。只是身在墙内，我很难有什么实质性的行为。已近中年的我外号100，因口袋长期不超过100块得此号。一天，对掌管财政权的老婆要一万美刀投资G系列，还没等我把准备了几天的话说出来，老婆同意了!问其缘何答应的如此爽快?老婆撂下一句，你每天半夜对着手机哭哭笑笑已经一年多了，看的出来你是真的！我像傻瓜一样站着许久……真想给她磕一个!中国人不善于表达，现在我想对她说：“谢谢你，老婆!”
 
-郭先生不但给了我们真相、给了我们希望，还要给我们体面的生活，感恩郭先生，感谢爆料革命，最后感谢全球为灭共付出的战友，不灭不休!为了此生、余生、后代!
+“香港加油！”这句话久违了！
 
-（文章内容仅代表作者观点）
+“香港加油！”本来再普通不过的四个字，但在今时今日的香港，就被看为另一种意思。
+
+最近香港ViuTV的男团MIRROR突然爆红，流行组合MIRROR所到之处均掀起旋风。昨晚是一连六晚的演唱会尾场，最后Encore部分，成员在台上轮流发表感言说出心底话。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13132512/2-2.jpeg)
+
+为什么这12男孩会突然红起来？
+
+又或者他们凭什么红？
+
+有人说，因为…
+
+香港人经历太多绝望。
+
+香港人失去太多娱乐。
+
+香港人难寻未来出路。
+
+香港人急需本地希望。
+
+在两年半前有班年轻人为了追梦，参加了一个叫“全民造星”的节目，结果在这个节目之后，就诞生了一队由12位年轻人而组成的组合，这个组合叫“Mirror”而他们多了个身份叫做“镜仔”。Mirror由12块镜子碎片组合成一块完整的镜，对于他们来讲“12-1=0”，没有了哪一个都不再会是Mirror。
+
+初出道的他们受尽白眼，听过无数嘲讽、挖苦、难听的说辞，但他们从来没有放弃过，就算好多人都不明白他们，唱衰他们“如果有人3年后还在乐坛再同我讲”种种难听的说辞，都阻止不了他们去追梦。
+
+12个人各有特色，各有风格，他们没有成为伪韩，因为他们很清楚自己是要成为一队生于香港、属于香港的跳唱组合。
+
+过去他们真的努力，对传媒的问答真诚、谦卑又得体，但相反，原本属于香港人又历史悠久的电视台——TVB，过去十年里已经渐渐成为内地的大亚湾区电视台。所以我相信香港人同时也慢慢淡忘了这个原本属于香港人的电视台。
+
+因此，这12位年轻人的出现，的确给香港人再知道\*香港人仍然可以发梦\*。
+
+在这六场演唱会，他们能做到这种压台感和高质演出，大家都看到他们花多少倍的汗水和努力才能做到，所以香港市民真的被他们打动了。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13132525/3-1.jpeg)
+
+这次MIRROR尾场感言勉港人追梦，姜涛临别举手喊：“香港加油！”而全场观众则热烈欢呼，十多秒后，姜涛再举手大声高呼：“香港乐坛加油！”欢呼声继续响遍场馆。
+
+MIRROR加油！ 香港人加油！
+
+图片来源：Viu TV、立场新闻
+
+校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
