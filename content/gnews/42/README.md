@@ -1,41 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【独立观点】利兹切尼被撤职众议院共和党主席，大快人心
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1243400/)
+## 【热点播报】美国疾病预防中心称，完全接种疫苗的人无需佩戴口罩
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1243433/)
 
-作者： 纽约香草山健身部 Ivy001
+作者：纽约香草山媒体部 7bends
 
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14210048/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91CDC%E7%A7%B0%E5%AE%8C%E5%85%A8%E6%8E%A5%E7%A7%8D%E7%96%AB%E8%8B%97%E7%9A%84%E4%BA%BA%E5%8F%AF%E4%BB%A5%E4%B8%8D%E7%94%A8%E4%BD%A9%E6%88%B4%E5%8F%A3%E7%BD%A9.png)
+2021年5月13日，[美国疾病预防中心](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/fully-vaccinated.html)（CDC）发布最新指导意见，称完成疫苗接种的人可以不要佩戴口罩。
 
-突发消息：今天早上众议院共和党议员开会，投票表决，通过了移除利兹.切尼（Liz Cheney）的共和党议会主席职位，仅仅用了20分钟。该职位由获得川普总统背书的众议员 Elise Stefanik 担任，Elise Stefanik 成功取代利兹.切尼，成为众议院共和党主席。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14204811/1-72.png)
-最新的共和党第三号领导人物新鲜出炉。Elise Stefanik的成功取代利兹.切尼，代表着川普总统所领军的保守派在议会获得了更广泛的支持，川普总统的影响力并没有因为下台而减弱。
+CDC称，对于完全接种完新冠疫苗的人群，
 
-利兹.切尼是在任期内被撤换的，并没能完成她的这个任期。由此可见，利兹.切尼有多招人恨。明面上，利兹.切尼因为她的反川普总统立场和反川普的言论被撤职，实际上，是保守派的回归在国会山重新占据上风所致。她如果继续坐在共和党第三把椅子上，会造成共和党的分裂，所以，她必须被舍弃。
+- 你可以恢复你在大流行之前的活动。
+- 你不需要戴口罩或保持6英尺的距离，除非联邦、州、地方、部落或地区的法律、法规和条例有要求，包括当地的商业和工作场所指南。
+- 在美国旅行，你不需要在旅行前后接受检测，也不需要在旅行后进行自我隔离。
+- 在美国境外旅行之前，你需要密切关注你的国际目的地的疫情情况。
+- 如果你周围有人患有COVID-19，你不需要远离他人或接受检测，除非你有症状。
 
-利兹.切尼的被撤职，标志着一个开始，在议会清除共和党犀牛的开始。和民主党勾兑，和中共国勾兑的共和党犀牛们，你们都将面临与利兹.切尼一样的下场。美国人民都记着呢，必须要拉你们这群犀牛的清单。
 
-利兹.切尼的被撤职，也标志着亲共派们的失利。与中共国勾兑的那部分美国政客们，你们的话语权会越来越小的，中共国在美国国会山的影响力也在不断的削弱。反共，正在成为美国国会山的主流。
+关于CDC这项最新的指导意见，笔者有非常大的担忧。完全接种疫苗后又重新感染病毒的报导屡见不鲜。据美联社近期报导，在完全接种新冠疫苗后，纽约扬基队队员托雷斯仍被检测出新冠病毒阳性。
 
-图片来源：网络 https://www.newsmax.com/politics/lizcheney-elisestefanik-gop-republicans/2021/05/14/
+笔者认为，在彻底了解病毒前，靠匆匆忙忙研制出的疫苗来解决新冠大流行问题，完全不切实际。最根本的解决方法，是尽快对新冠疫情的起因追根溯源。只有了解了病毒的源头，才可以尽快研究出有针对性的预防和治疗方案，尽快结束这场人类有史以来最大的生存危机。
 
-校对/发稿：火内
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12223539/5%E6%9C%88.jpg)
+编辑/校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -1,55 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [圣城传声筒] 人人一言不发，却向同一个方向行
-` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1233320/)
+## 中共力图扩大其在阿富汗的影响力
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1243915/)
 
-作者：纽约香草山农场香港部写作组  一悠
+俄罗斯莫斯科喀秋莎农场   银河
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
+编辑上传   水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15000722/C-17.jpg)militarytimes.com
+布赖特巴特新闻网 (Breitbart News) 5月13日报道，中共官方媒体预计，在美国和北约撤出阿富汗后，北京将在阿富汗发挥更大的影响力，暗示在美国20年的干预“失败”后，中共的强硬手段可能会恢复血腥混乱的秩序。
 
+中共官方媒体新华社指责美国从阿富汗撤军造成了“一系列的爆炸袭击”，包括塔利班活动的增加和喀布尔一所女子学校发生的恶性炸弹袭击。
 
+过去一周，中共媒体一直在疯狂地指责美国对喀布尔的屠杀，同时坚持美国必须尽快撤军。新华社对这两个矛盾点进行了抨击，指责美国的政策导致了阿富汗的所有暴力事件，并建议中共国作为一个可能能够通过谈判达成持久和平的替代管家来调和这两个矛盾。
 
+美国总统拜登最近表示，华盛顿已经实现了粉碎基地组织网络的目标，这一言论受到阿富汗公众舆论的怀疑。当地观察人士称，美国领导的阿富汗反恐战争是失败的。包括平民、安全人员和塔利班武装分子在内的无数阿富汗人在所谓的反恐战斗中丧生，但残酷的战斗和血腥的袭击仍在继续。要防止该国再次陷入旷日持久的战争，成为暴力和恐怖主义的天堂，唯一的选择就是通过对话和国际合作，推动和平与和解进程。
 
+中共喉舌《环球时报》称，中共及其“中亚伙伴”已经介入稳定阿富汗局势，防止阿富汗成为“恐怖主义、分裂主义和宗教极端主义三股势力”的“滋生地”。
 
-又到了手机上互传和show收据的时候。前一轮是阿布泰，这几日就“转战”“chickeeduck”。但阿布泰仍然生意很好哦。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12162448/%E8%8D%83%E7%81%A3-Chickeeduck-%E9%BB%83%E5%BA%97-20210509183625_f50f_large.png)一悠 摄
-这次跟上次阿布泰排队一样，人人互不认识，人人玩手机，人人一言不发⋯⋯但却向同一个方向行、付钱⋯⋯你会感觉到一种沉默中的震撼。
+《环球时报》关注了中共外交部长王毅5月12日与哈萨克斯坦、乌兹别克斯坦、塔吉克斯坦、吉尔吉斯斯坦和土库曼斯坦外长举行的会谈，讨论美国从阿富汗撤军造成的“混乱局势”，包括对中共“一带一路”倡议可能产生的影响。
 
-是用钱来惩罚恶党的震撼，买曾经支持我们的商铺的各种货品，买壹传媒（282）的股票，买毛记葵涌（1716）的股票⋯⋯
+中共媒体提出，如果阿富汗政府和塔利班能够“达成和平组建新政府的协议”，阿富汗可加入中共国上海合作组织(SCO)，同时指责美国把阿富汗变成“三股势力”和毒品走私的“滋生地”，然后撤出阿富汗，给中共、俄罗斯和上海合作组织留下“烂摊子”。
 
-有句古诗说——“万马齐喑究可哀”。但你去到现场，就觉得一点不哀，今日只有沉默中的众志成城。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12161504/Picture1-54.jpg)图片来源：网络
-香港人的无声行动，胜过了千言万语。既然恶法当道，香港人也要懂得保护自己，将抗争的火种，留在心中。
+除了通过“一带一路”扩大其经济和政治影响力，中共还渴望开发中亚地区的能源，《环球时报》特别提到了土库曼斯坦的天然气。这篇文章暗示，中共已经与俄罗斯达成协议，将阿富汗和中亚交由北京处理。
 
-同样地，作为新中国联邦的每一位战友，或多或少也在经历同样的事情。在传播真相的过程中，多半被视为“异类”，甚至是“反社会分子”。但郭文贵先生曾经说过：“我们是在做好事。做好事还会在乎别人怎么看吗？”是的，当黑暗来临的时刻，我们只有默默坚持。
+如果回报足够丰厚，塔利班似乎愿意参与“一带一路”项目。然而，新疆集中营和对维吾尔族人的种族灭绝和大清洗应该向塔利班传达了清楚的信息，如果他们不能成为富有成效的商业伙伴，他们在中共统治下的命运将如何。
 
-香港人默默支持“黄店”，是不希望“良心”沉沦；战友们坚持传播真相，是为了不让真相被掩盖。
+参考链接：
 
-每日点赞、转发战友们挖掘的信息，成了我们普通战友无声对抗极权政权的必修课。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12162017/%E9%BB%83%E5%BA%97-Chickeeduck-%E8%8D%83%E7%81%A3-20210509183228_1a3d_large.jpeg)招牌上面的金色字是写什么？哈哈，你自己估。一悠 摄
-引用來源：
-
-[https://www.hkcnews.com/article/41137/chickeeduck-%E8%8D%83%E7%81%A3%E5%8D%80-%E9%BB%83%E5%BA%97-41137/%E4%BA%BA%E4%BA%BA%E4%B8%80%E8%A8%80%E4%B8%8D%E7%99%BC%EF%BC%8C%E5%8D%BB%E5%90%91%E5%90%8C%E4%B8%80%E5%80%8B%E6%96%B9%E5%90%91%E8%A1%8C](https://www.hkcnews.com/article/41137/chickeeduck-%E8%8D%83%E7%81%A3%E5%8D%80-%E9%BB%83%E5%BA%97-41137/%E4%BA%BA%E4%BA%BA%E4%B8%80%E8%A8%80%E4%B8%8D%E7%99%BC%EF%BC%8C%E5%8D%BB%E5%90%91%E5%90%8C%E4%B8%80%E5%80%8B%E6%96%B9%E5%90%91%E8%A1%8C)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205738/M5-1.jpg)
-编辑/校对/发稿：Delilah小胖
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
-
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
-
-
-
-
+[https://www.breitbart.com/national-security/2021/05/13/china-prepares-take-leading-role-afghanistan/](https://www.breitbart.com/national-security/2021/05/13/china-prepares-take-leading-role-afghanistan/)
 
 0

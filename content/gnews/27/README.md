@@ -1,55 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】数字经济再“坚挺”反爆中共复苏假象
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1243600/)
+## 世卫组织说在44个国家发现了印度Covid-19变种病毒
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1243624/)
 
-香草山写作组  鹰(文言)
+翻译:康州盘古农场 – Layka
 
+校对:康州盘古农场 – TrueSky
 
+编辑:康州盘古农场 – 明子
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+发布：康州盘古农场 – 彩虹 Rainbow
 
+**据《www.news18.com》 2021年5月12日法新社，瑞士日内瓦，07:02印度时区首次发布：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14220336/huiooo1.jpg)
+在印度以外，世卫组织表示，英国报告了由该变种病毒引起的最多的Covid病例。
 
+世界卫生组织（WHO）周三表示，在全球数十个国家发现了印度加速爆发后的Covid-19变种病毒。
 
-澎湃网5月14日报道，中共社科院发布《数字经济蓝皮书：中国数字经济前沿（2021）》，蓝皮书指出2020年中共国数字经济增加值超19万亿，占GDP的18.8%。
+联合国卫生机构表示，Covid-19的B.1.617变种于去年10月首次在印度发现，已经从“来自世卫组织所有六个地区的44个国家”上传到开放数据库的4,500多个样本中被检测到。
 
-中共信通院在2020年7月份发布的《中国数字经济发展白皮书 （2020年）》报告中显示，2019年中共国数字经济增加值规模达35.8万亿（占GDP比重的36.2%，同比2018年增长14.5%）。2020年相较于19年经济总量“突破”100万亿元，实现2.3%的增长。2020年，中共开始吹嘘和推广数字货币：不仅多地政府发放数字红包，数字货币试验区也纷纷建立。这些宣传和政策，无疑较2019年更上一个台阶。然而，2020年数字经济在GDP中的占比却从18年、19年的35%左右骤降至不到20%。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14221222/Screen-Shot-2021-05-14-at-10.11.43-PM.png)
-北京大学国家发展研究院教授、中国健康发展研究中心主任李玲在2020年11月参加上海论坛时称，中国今年因抗疫获得价值约人民币67万亿元收益。她在12月的《疫情引发对中国未来发展模式的重新思考》论坛上也有如此阐述。李玲近日指出，这67亿元的收益中，56万亿元是避免死亡、伤残带来的健康收益，而11万亿是直接的经济收益。
+世卫组织在关于大流行的每周流行病学更新中说：“世卫组织还收到了另外五个国家的检测报告。”
 
-中共的100万亿GDP中，67万亿是“抗疫”收益，如卖核酸检测试剂等利用疫情而获得的收益。另外19万亿是数字经济。近年来，数字经济和实体经济融合被热炒并被推行。可以想见，上述的19万亿经济总量中，仅有少部分可真正用于带动消费和维系实体经济。鉴于中共造假的惯例以及无官不贪的体制环境，真正能用于经济复苏和民生保障的资金规模只会更低。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14221205/Screen-Shot-2021-05-14-at-10.11.47-PM.png)
-2020年年初CCP病毒大爆发，七八月份长江流域又有特大洪灾，国内的中小微企业已面临流动资金紧张、营收断崖、赋税上涨等严峻形势。而盈利恶化，各大企业迎来倒闭潮，进而会引发失业人口增长。下半年，生存危机更蔓延到大型国企央企。中共一方面是丧事喜报，宣传经济“稳中求进”，另一方面则是加大力度的搜刮社会资本和人民个人财富。在2021年更将屠刀杀向大型民企私企，让本就收支不平衡、断供潮来袭的底层人民更是雪上加霜。
+据报道，在印度以外的地区，英国报告了由该变种病毒引起的最多的Covid案例。
 
-2020年数字经济的“增值”暴露了中共以假治国，以黑治国的本质。在“以钱灭共”戳破中共经济擀面杖子假外壳，“以毒灭共”扯下其共建命运共同体的牌坊的世界潮流下，中共灭亡越发临近。
+本周早些时候，世界卫生组织宣布B.1.617—“三个令人关注的变异和特征略有不同的子血统”-被视为“关注变量”。
 
-新闻来源：
+因此，它被添加到包含Covid-19的其他三个变种的列表中。这三个变种是最早在英国、巴西和南非发现的那些变体。
 
-报告：去年中国数字经济增加值占GDP比重达18.8%https://www.thepaper.cn/newsDetail\_forward\_12673102
+这些变体被认为比病毒的原始版本更危险，因为它们更易传播，更致命，能够越过一些疫苗的保护措施。
 
-数字经济 | 2019年我国数字经济增加值增长15.6%https://www.sohu.com/a/406162108\_99917855
+“迅速增加”
 
-促进数字经济与实体经济融合发展http://www.xinhuanet.com/tech/2020-06/17/c\_1126122610.htm
+世卫组织周三解释说，将B.1.617添加到列表中是因为它似乎比原始病毒更容易传播，并指出“多个国家的患病率迅速增加”。
 
-关于新冠疫情对我国经济发展影响的 分析与建议综述https://new.qq.com/omn/20201030/20201030A01A3700.html
+世卫组织还指出“初步证据”，表明该变体对单克隆抗体班兰尼单抗的治疗更具抵抗力，并且还强调了早期实验室研究表明“抗体的中和作用有限”。
 
-2020答案年终秀D场：疫情引发对中国未来发展模式的重新思考https://www.bilibili.com/video/av800519750/
-![This image has an empty alt attribute; its file name is 5_May-1.jpg]()![This image has an empty alt attribute; its file name is 5_May-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-编辑/校对/发稿：正义的小新
+但是，它强调说，“针对现实世界的影响”，针对该变体的疫苗有效性的影响“可能是有限的”。
 
-**更多资讯，更多关注**
+世卫组织表示，B.1.617的传播以及其他更易传播的变种，似乎是助长印度新病例和死亡人数激增的几个因素之一。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+印度是一个拥有13亿人口的国家，是仅次于美国的世界第二大感染国，有将近2300万例Covid-19病例，目前每天记录的新病例超过30万例，死亡人数接近每天4000例。
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+新的病例激增席卷了主要城市，包括首都新德里和金融中心孟买，将医院推向了临界点，导致氧气和床位严重短缺。
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+它说：“世卫组织发现，印度Covid-19传播的复兴和加速有几个潜在的促成因素，包括SARS-CoV-2变种的病例比例增加，并具有潜在的传播能力。”
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+它还指出“几次宗教和政治群众集会，加剧了社会融合， 以及未充分利用和减少对公共卫生和社会措施的遵守”。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+“人们对这些因素对印度传播增加的确切贡献还知之甚少。”
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+世卫组织强调，到目前为止，印度仅有0.1％的Covid阳性试验已进行了基因测序，并已上载到GISAID数据库中，以鉴定有关的变体。
 
-+1
+截止到4月底，B.1.617.1和B.1.617.2分别占印度所有测序样本的21％和7％。
+
+此外，其他更具传染性的变种病毒也正在该国传播，包括B.1.1.7.，这是在英国首次发现的。
+
+原文链接：
+
+[https://www.news18.com/news/world/who-says-indian-covid-19-variant-found-in-44-countries-3729143.html](https://www.news18.com/news/world/who-says-indian-covid-19-variant-found-in-44-countries-3729143.html)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

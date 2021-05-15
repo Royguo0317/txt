@@ -1,47 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月14日美国政要反共推文精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1243539/)
+## 美澳并肩，打响对抗中共的第一枪
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1243544/)
 
-众议员吉姆·班克斯： 美国承受不起更多的延误。 国会需要立刻知道哪些公司与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的军事相关，然后我们需要通过我的法案《停止资助中共解放军法》来禁止对它们的投资。 【附大纪元报报道：批评中共国者对五角大楼推迟对中共国军事公司的报告做出反应】
+**撰稿：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14214317/30-2.jpg)
+美国国务卿布林肯向遭受中国报复的盟友澳大利亚再次声援。他表示，美国不会让澳大利亚单独面对中共国的经济胁迫，中共国如此对待美国盟友将会阻碍美中关系的改善。
 
+布林肯是周四（5月13日）与正在美国访问的澳大利亚外长佩恩举行联合记者招待会上发表这番评论的。这是美国高级官员再次用明确的语言表明，美国要与自己的盟友站在一起共同应对中共国胁迫。
 
+美国总统拜登上任以后多次对北京胁迫澳大利亚和加拿大的行为提出批评，并把北京停止这样的做法与美中关系改善联系起来。
 
-> America can’t afford more delays.
->  
-> Congress needs to know which firms are tied to China's military ASAP, then we need to ban investments in them by passing my bill, the Stop Funding the PLA Act.[https://t.co/kkRL649iv7](https://t.co/kkRL649iv7)
-> — Jim Banks (@RepJimBanks) [May 14, 2021](https://twitter.com/RepJimBanks/status/1393309464451760129?ref_src=twsrc%5Etfw)
+布林肯说：“我重申，美国不会丢下澳大利亚不管，或许我应该说，不会让它孤军奋战，独自面对中共国的经济胁迫。”
 
+从去年4月，澳大利亚总理莫里森向国际社会发出呼吁——对新冠病毒来源展开独立调查之后，澳中关系开始急速恶化。北京对澳大利亚展开了大规模的贸易制裁。最近中共国国家发改委又通知澳方，暂时停止双边的战略经济对话。
 
+在中方切断两国所有对话渠道之前，澳大利亚上个月决定取消维多利亚州与中共国签署的两项与中共国提出的“一带一路倡议”相关的贸易协定。
 
-联邦调查局FBI： 大学研究员在申请基金为中共国发展专门科学知识上撒谎而被判入狱。(链接是司法部官网公告：俄亥俄州立大学教授和研究学者郑宋国获罪入狱)【图片说明：被告隐瞒自己参加中共政府人才招揽计划和与至少五个中共国研究机构的合作关系。被告郑贪婪攫取联邦研究经费却阻止他人获得资金来进行支持医学进步的关键研究。不管他们逃到哪里，飞机上，阿拉斯加还是半夜三更，FBI将继续缉拿这些人】
+佩恩在记者会上清楚地表示了澳大利亚的立场，不会在国家安全或者主权方面妥协。
 
+布林肯此次对澳大利亚的声援，其实是向其他美国盟友喊话：不要害怕来自中共国的制裁和报复，在这一点上，美国不会让盟友孤军奋战，而是会坚决与盟友站在一起，一同对抗来自中共的威胁和打击。而西方阵营的盟友需要以团结一致的立场面对中共的威胁，特别是在中共病毒的溯源上，应该展开更为彻底、更为全面的调查。
 
+此次美澳的联合声明，实质打响了全球政府向中共追责，并与之对抗的第一枪，之后任何一国，都有权力和底气向中共发出通牒。而中共面临强大的国际舆论的联合压力，还有多少底气去诡辩？
 
-> University Researcher Sentenced to Prison for Lying on Grant Applications to Develop Scientific Expertise for China [@FBICincinnati](https://twitter.com/FBICincinnati?ref_src=twsrc%5Etfw) [https://t.co/ACFK0pedCo](https://t.co/ACFK0pedCo) [pic.twitter.com/rDVzNaccBf](https://t.co/rDVzNaccBf)
-> — FBI (@FBI) [May 14, 2021](https://twitter.com/FBI/status/1393258616988348420?ref_src=twsrc%5Etfw)
+（本文只代表作者观点，与Gnews平台无关。）
 
+**新闻来源：**
+[美国再次表示，要与澳大利亚站在一起，对抗中国胁迫 (voachinese.com)](https://www.voachinese.com/a/US-vows-to-stand-by-ally-Australia-against-China-20210514/5890834.html)
 
-
-参议员玛莎·布莱克本: 去年，我们面临了巨大的困难，但是这场危机是可以避免的。如果北京不隐瞒信息和对世界撒谎，今天我们会安全得多。 【附[http://axios.com](https://t.co/bZseuGwPHd?amp=1)报道：世卫特别报告认为新冠大流行本可以避免】
-
-
-
-> We’ve faced tremendous hardships this last year, but this crisis was preventable. Had Beijing not withheld information and lied to the world, we would be in a much safer place today.[https://t.co/FQt3ab9q0O](https://t.co/FQt3ab9q0O)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 14, 2021](https://twitter.com/MarshaBlackburn/status/1393250758691282948?ref_src=twsrc%5Etfw)
-
-
-
-彼得·纳瓦罗（前白宫国际贸易顾问】： 福奇对兰德·保罗撒谎。这里是证据。 【附[http://thenationalpulse.com](https://t.co/R8zILIUVl3?amp=1)报道：纳瓦罗列举9项事实福奇与新冠起源有关】
-
-
-
-> Fauci stone cold lied to Rand Paul. Here's the evidence.[https://t.co/U7F9h2Q3Zx](https://t.co/U7F9h2Q3Zx)
-> — Peter Navarro (@RealPNavarro) [May 14, 2021](https://twitter.com/RealPNavarro/status/1393275404358664193?ref_src=twsrc%5Etfw)
-
-
-
-
+***校对发布**：文顾*
 
 0

@@ -1,57 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】今天你健身健心了吗 我挚爱的战友同胞
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1243736/)
+## 菲律宾总统誓言不会退缩
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1243821/)
 
-作者：纽约香草山健身部 文鹰
+俄罗斯莫斯科喀秋莎农场 银河
 
+编辑上传 水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14231530/P.png)businessinsider.com
+共同通讯社 (Kyodo News)5月14日报道，菲律宾总统罗德里戈·杜特尔特（Rodrigo Duterte）在周五的电视讲话中表示，他不会撤回在南中国海争议水域的菲律宾船只，并表示如果事情发展到那个程度，他愿意结束与中共的友好关系。
 
+杜特尔特称菲律宾有两艘军舰在梯图附近海域巡逻。“我真地不会退缩。如果你想杀我，你可以杀了我，但我要留在这里。这将是我们友谊结束的地方。”杜特尔特重申，对中共国的战争不是一个选项。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
+5月12日在南中国海的一个菲律宾特遣部队注意到，有287艘中共国海上民兵船只分散在提图地区。这促使菲律宾派遣了船只来维护对该地区的权利，该地区是菲律宾宣称的专属经济区的一部分。菲律宾和中共在南中国海有重叠的主权主张，据信该地区拥有丰富的矿产、天然气和石油储备，以及其他海洋资源。
 
+杜特尔特的这番言论是他在菲律宾与中共国领土争端问题上的最新政策声明。
 
+参考链接：
 
-每当耳边响起北美教练文贵先生那熟悉的声音，“今天你健身了吗，今天你往身上泼水了吗”，回想过去，自己心里总是愧疚不已。惭愧的是，自己没有持之以恒地坚持健身，总是三天打鱼两天晒网；内疚的是，自己懒惰心理作祟，几度时光渐渐流逝掉。
-
-对“健身”的概念，笔者过去没有体会过。笔者少年时期比较贪玩，荒废了学业，到了高中喜欢上了足球，又在学校体育队练了一段时间长跑，留下一点锻炼底子。那时侯，家里墙上还贴着剪下的彩色画报，每当笔者凝视着阿根廷马拉多纳足球健将的矫健身影，美国健美明星施瓦辛格的浑身铜色肌肉时，心里感觉满美吱吱的，梦想着自己的青春未来。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14230216/31-4.jpg)
-
-时过境迁，岁月印痕，现实社会无情地催老了身心。笔者一个人曾面对过诸多的社会不公：权贵的傲慢，叫兽的舔腚，媒体的撒谎，人心的冷漠，腐败的加剧。笔者不由得思考，这是为什么？造成这一切现象的根源又在哪里呢？
-
-不在沉默中爆发，将在沉默中死亡。上天没有沉默！给人间带来了一个“灭共者”——郭文贵先生。他在四年的爆料中揭露中共腐败、民众苦难背后的真相，不仅让更多的人了解到中共的邪恶至极，也唤醒了无数的人无私地站出来，勇敢地传播真相。
-
-文贵先生不仅曝光中共邪恶真相，更没有忘了坚持自己的身体锻炼。这也使得爆料革命的战友们在辨明是非、真假、善恶以及揭露真相中不断成长，逐渐提高自己“健心”的情怀。
-
-![]()![](https://media.discordapp.net/attachments/825237397280653322/842793487854469150/image0.png?width=812&amp;height=609)
-
-经过四年爆料革命的持续洗礼，我找到了答案：造成中国一切苦难的起因就是华夏大地上空漂浮着一个共产主义魔鬼幽灵——中国共产党！它不仅用谎言欺骗了大陆同胞70年多，还用屠刀杀戮了千万善良华人。如今中共还在全世界播放病毒，发动生物战争，企图摧毁西方文明世界，残害亿万无辜民众。但是，有爆料革命、新中国联邦在，有正道正义联盟在，CCP你的梦想会破灭的，你已经完了！
-
-亲爱的战友们，善良的同胞们，灭共没你不行，缺你不可。请跟随北美教练文贵先生一起，在灭共大潮中健身健心吧。每一个战友就是一朵小小的浪花，聚为惊涛骇浪之际，就是中共灭亡之时。战友们一起行动吧，拍死TMD-CCP！
-
-（本文仅代表作者观点）
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-
+[https://english.kyodonews.net/news/2021/05/cb5b2774d75b-duterte-vows-not-to-withdraw-ships-in-south-china-sea.html](https://english.kyodonews.net/news/2021/05/cb5b2774d75b-duterte-vows-not-to-withdraw-ships-in-south-china-sea.html)
 
 0
