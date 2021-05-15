@@ -1,35 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/05/14 郭文贵先生盖特精要
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1243455/)
+## 【鹰眼墙国】“公牛”被立案调查，“反垄断”抢钱大戏如火如荼
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1243559/)
 
-听写：万物归一 | 校对: 樂禧禧 | Page: Daoiii
-
-[!\[\]()!\[\](https://spark.adobe.com/page/e7waFMz9SGa8m/images/46c34a1f-1998-4de4-b520-17e6f8e46683.png?asset_id=f493fa39-8643-40d3-9940-ad0db79173a0&amp;img_etag=%224ee949fc8d708080392601163927afad%22&amp;size=1024)](https://spark.adobe.com/page/e7waFMz9SGa8m/images/46c34a1f-1998-4de4-b520-17e6f8e46683.png?asset_id=f493fa39-8643-40d3-9940-ad0db79173a0&amp;img_etag=%224ee949fc8d708080392601163927afad%22&amp;size=1024)
-
-**5月14号：任何对无辜的体制内的孩子、被拒签而幸灾乐祸的人！都是不正确的，呼吁所有的买Gclub的战友以最快的时间，到你的农场对账，或给Gclub公司直接打电话，对帐领卡！不要让自己失去利益的机会！**
-
-[G-TV链接](https://gtv.org/getter/609e80fc37f7f73984cb99f5)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/e7waFMz9SGa8m/images/59a48e61-f359-454e-b877-7cee341e9e63.png?asset_id=797834bd-0291-4c1e-abd7-ad815862af4e&amp;img_etag=%2211905bd762d7e35d31bb37b53cdd45be%22&amp;size=1024)](https://spark.adobe.com/page/e7waFMz9SGa8m/images/59a48e61-f359-454e-b877-7cee341e9e63.png?asset_id=797834bd-0291-4c1e-abd7-ad815862af4e&amp;img_etag=%2211905bd762d7e35d31bb37b53cdd45be%22&amp;size=1024)
-
-1. 全球拒签中国留学生的国家数量在增加，这些学生的父母大多在国内体制内工作。
-2. 和美国作对不要抱有任何侥幸心理，美国可以在任何时间和地点对其作出报复和惩罚。
-3. 一旦发生战争冲突，美国会首先斩首，所用的武器会超出常人的认知，可以做到精确定点打击。
-4. 美国的Chase Bank非法泄露战友信息，以及魏继红的做恶，导致最近很多战友和战友的家人被抓捕，很多都是VOG的汇款者。
-5. 体制内的孩子是无辜的，美国拒签的做法是不对的，战友们不要幸灾乐祸，要包容。
-6. 现在把钱从国内转出来的都是牛人，没有转出来的现在转大钱就比较难了。
-7. 买GClub的战友们抓紧时间找各农场对账领卡，六月四号有重大决定，七月四号有重大礼物，不要错失良机。
+香草山写作组  鹰(文言)
 
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/e7waFMz9SGa8m/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/e7waFMz9SGa8m/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+中国新闻网5月14日报道，12日晚，公牛集团公告称，因涉嫌与交易相对人达成并实施垄断协议等行为，公牛集团被浙江省市场监管局立案调查，13日公牛股票开盘大跌9%。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14214644/Screen-Shot-2021-05-14-at-9.46.01-PM.png)
+公牛集团创立于1995年，属民用电工企业，主营范围涵盖电工照明、数码配件。2020年转换器、墙壁开关插座双双占据天猫市场第一位。在受CCP病毒大爆发经济下滑的2020年，公牛更通过A股上市市值直接从500亿元翻番，全年营收100.51亿元（其中归母净利润23.13亿元）。在大型国企、央企被曝还债危机、银行破产重组的严峻形势下，公牛能够盈利上涨实属不易。
+
+然而在经济下行压力的逼迫下，中共盗国贼的搜刮规模和程度更加令人发指。不但利用各种名目的“税收”以充实国库，更加大了对私营民营企业的剥削和利益抢占。3月12日，中共国家市场监管局根据《反垄断法》以“未对交易进行依法申报，构成违法”对腾讯、阿里巴巴、百度、京东等12家互联网巨头处以高达50万元罚款。而今再对公牛开刀，“反垄断”式抢钱的范围越来越广。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14214624/Screen-Shot-2021-05-14-at-9.46.06-PM.png)
+如果垄断为真，那么2004年中共军方背景企业的华为，以及重度参与军工的小米也早已经构成市场“独占”的局面。2018年度，华为手机全球销量超过苹果位居世界第二位。在经历Google服务停止维护、“芯片”门以及更多上下游产业围堵后，华为在手机行业依旧占据4%的市场份额。而今小米公司生产的国产手机的销量也居榜首。华为和小米对国内市场的“瓜分”；华为手机业务停滞后的“国家力量救助”；华为出售手机行业转做汽车，其每一步都有国家权力的深度配合……试问所有这些都可以不算违反《反垄断法》，那为何上述的科技公司却因为反垄断这一口袋罪遭罚呢？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14214658/Screen-Shot-2021-05-14-at-9.45.56-PM.png)
+综上，反垄断法律本质是中共为了以贪反贪、以罚抢钱。“区别执法”和反逻辑定罪，这些都解释了为什么中共要对对大型民企、私企加大罚款力度。中共以反腐败名义，到处进行的审计也都是为了将社会财富集中化以便更近一层的搜刮民财。
+
+国际形势紧迫，病毒追责加剧，国内社会矛盾多发的现状下，为了保命保江山，习包子却继续他的文革2.0，在自取灭亡的道路上大步迈进。
+
+新闻来源：
+
+“插座大王”被反垄断调查，公牛还“牛”吗？http://www.chinanews.com/cj/2021/05-14/9476793.shtml
+
+反垄断监管落锤公牛集团 专家建议企业建立有效合规管理体系https://finance.sina.com.cn/chanjing/gsnews/2021-05-14/doc-ikmxzfmm2335221.shtml
+
+公牛集团遭反垄断调查：掌控百万经销商，警惕纵向垄断协议风险https://finance.sina.com.cn/tech/2021-05-13/doc-ikmyaawc5136633.shtml
+
+华为：环比增长18％，市场份额仅4％，不到两年从第二跌至第六https://new.qq.com/omn/20210330/20210330A0C49600.html
+
+Counterpoint：去年华为手机全球出货市场份额14%，排名第三https://www.sohu.com/a/458391619\_166680
+
+阿里、腾讯、百度齐收反垄断罚单！12家互联网巨头遭顶格处罚https://www.163.com/dy/article/G4VFQ3OH0550EWRZ.html
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 0

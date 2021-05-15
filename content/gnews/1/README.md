@@ -1,55 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [圣城传声筒] 人人一言不发，却向同一个方向行
-` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1233320/)
+## 摩根士丹利就中概股退市风险发出警告
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1243994/)
 
-作者：纽约香草山农场香港部写作组  一悠
+**撰稿：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15003355/22-10.jpg)
+根据路透上海5月14日报道，摩根士丹利周五就对在美上市中国科技企业的敞口发出警告，此前美国会计监管机构向将不合规中国企业从美国交易所摘牌又迈进了一步后。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
+美国公众公司会计监督委员会(PCAOB)周四提出了一项新规，标志着该委员会正稳步实施让其无法获得审计文件的在美上市中国企业退市的举措。
 
+摩根士丹利在一份研究报告中表示，此举给中国企业的美国存托凭证(ADR)造成负面影响，这些ADR已经受到中国政府收紧互联网监管的影响，且目前不断加剧的通胀上升担忧对成长股来说也是个坏兆头。
 
+摩根士丹利称，**PCAOB的提案标志着《外国企业问责法案》(HFCAA)正在稳步实施，且目前已接近全面执行。该法案旨在将在美上市的不合规外国企业摘牌**。
 
+一方面是中共内部不断深化的反垄断行动和国进民退的政策强势执行，另一方面是中共外部与国际关系的僵化局面，导致的隐患，都决定了投资者对中共企业的投资行为有巨大的风险，而美国下一步对中资上市企业的严查也将开启大面积退市潮的篇章，此次摩根士丹利的警告也代表整个华尔街金融利益集团的普遍共识，帮助投资者在风暴来临之前，加速撤离。
 
+（本文只代表作者观点，与Gnews平台无关。）
 
-又到了手机上互传和show收据的时候。前一轮是阿布泰，这几日就“转战”“chickeeduck”。但阿布泰仍然生意很好哦。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12162448/%E8%8D%83%E7%81%A3-Chickeeduck-%E9%BB%83%E5%BA%97-20210509183625_f50f_large.png)一悠 摄
-这次跟上次阿布泰排队一样，人人互不认识，人人玩手机，人人一言不发⋯⋯但却向同一个方向行、付钱⋯⋯你会感觉到一种沉默中的震撼。
+**新闻来源：**
+[摩根士丹利就中国企业ADR退市风险发出警告 推荐对冲策略 | 路透 (reuters.com)](https://cn.reuters.com/article/ms-china-adr-delisting-0515-idCNKBS2CW02C?il=0)
 
-是用钱来惩罚恶党的震撼，买曾经支持我们的商铺的各种货品，买壹传媒（282）的股票，买毛记葵涌（1716）的股票⋯⋯
-
-有句古诗说——“万马齐喑究可哀”。但你去到现场，就觉得一点不哀，今日只有沉默中的众志成城。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12161504/Picture1-54.jpg)图片来源：网络
-香港人的无声行动，胜过了千言万语。既然恶法当道，香港人也要懂得保护自己，将抗争的火种，留在心中。
-
-同样地，作为新中国联邦的每一位战友，或多或少也在经历同样的事情。在传播真相的过程中，多半被视为“异类”，甚至是“反社会分子”。但郭文贵先生曾经说过：“我们是在做好事。做好事还会在乎别人怎么看吗？”是的，当黑暗来临的时刻，我们只有默默坚持。
-
-香港人默默支持“黄店”，是不希望“良心”沉沦；战友们坚持传播真相，是为了不让真相被掩盖。
-
-每日点赞、转发战友们挖掘的信息，成了我们普通战友无声对抗极权政权的必修课。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12162017/%E9%BB%83%E5%BA%97-Chickeeduck-%E8%8D%83%E7%81%A3-20210509183228_1a3d_large.jpeg)招牌上面的金色字是写什么？哈哈，你自己估。一悠 摄
-引用來源：
-
-[https://www.hkcnews.com/article/41137/chickeeduck-%E8%8D%83%E7%81%A3%E5%8D%80-%E9%BB%83%E5%BA%97-41137/%E4%BA%BA%E4%BA%BA%E4%B8%80%E8%A8%80%E4%B8%8D%E7%99%BC%EF%BC%8C%E5%8D%BB%E5%90%91%E5%90%8C%E4%B8%80%E5%80%8B%E6%96%B9%E5%90%91%E8%A1%8C](https://www.hkcnews.com/article/41137/chickeeduck-%E8%8D%83%E7%81%A3%E5%8D%80-%E9%BB%83%E5%BA%97-41137/%E4%BA%BA%E4%BA%BA%E4%B8%80%E8%A8%80%E4%B8%8D%E7%99%BC%EF%BC%8C%E5%8D%BB%E5%90%91%E5%90%8C%E4%B8%80%E5%80%8B%E6%96%B9%E5%90%91%E8%A1%8C)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205738/M5-1.jpg)
-编辑/校对/发稿：Delilah小胖
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
-
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
-
-
-
-
+***校对发布**：文顾*
 
 0

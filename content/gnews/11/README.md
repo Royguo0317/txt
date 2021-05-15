@@ -1,33 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国正试图在大西洋建立海军基地 五角大楼对此表示关注
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1243731/)
+## 菲律宾总统誓言不会退缩
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1243821/)
 
-翻译:康州盘古农场 – Layka
-校对:康州盘古农场 – TrueSky
-编辑:康州盘古农场 –格格巫
+俄罗斯莫斯科喀秋莎农场 银河
 
-据《www.popularmechanics.com》作者：KYLE MIZOKAMI，2021年5月11日报道：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14223754/C68966A8-D9EC-4438-ACDA-C9D3E950088C.jpeg)*新华社新闻社/盖蒂图片社*
-- **五角大楼非洲司令部将军警告说，中共政府正试图****在西非建立海军基地****。**
-- **中共海军将利用这些****基地****进行加油和****补给****，从而扩大北京的****军事****覆盖范围。**
-- **中共国目前在亚洲大陆以外只有一个海军基地。**
+编辑上传 水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14231530/P.png)businessinsider.com
+共同通讯社 (Kyodo News)5月14日报道，菲律宾总统罗德里戈·杜特尔特（Rodrigo Duterte）在周五的电视讲话中表示，他不会撤回在南中国海争议水域的菲律宾船只，并表示如果事情发展到那个程度，他愿意结束与中共的友好关系。
 
+杜特尔特称菲律宾有两艘军舰在梯图附近海域巡逻。“我真地不会退缩。如果你想杀我，你可以杀了我，但我要留在这里。这将是我们友谊结束的地方。”杜特尔特重申，对中共国的战争不是一个选项。
 
-据负责非洲司令部的美国陆军将军说，中国人民解放军海军可能很快会在大西洋上作战。
+5月12日在南中国海的一个菲律宾特遣部队注意到，有287艘中共国海上民兵船只分散在提图地区。这促使菲律宾派遣了船只来维护对该地区的权利，该地区是菲律宾宣称的专属经济区的一部分。菲律宾和中共在南中国海有重叠的主权主张，据信该地区拥有丰富的矿产、天然气和石油储备，以及其他海洋资源。
 
-据报道，中共国已在几个非洲国家取得了建立海军基地的权利。结果可能可以使中共国水面舰艇和潜艇，在战时距离传统战区数千英里，这令美军感到不安。
+杜特尔特的这番言论是他在菲律宾与中共国领土争端问题上的最新政策声明。
 
-美国驻非洲最高统帅斯蒂芬·汤森(Stephen Townsend)将军已于5月6日对美联社表示，中共国正在“寻找一个可以重新装备和修理军舰的地方”。 他继续：
+参考链接：
 
-“这在冲突时在军事上很有用。他们在吉布提建立一个（基地）。现在，他们将目光投向了大西洋沿岸，希望在那里建立这样的基地。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14223951/4910A75A-B528-4628-9B0C-B23A94B51F6A.png)*2017年，中国海军陆战队在吉布提的军事基地开幕。法新社贡献者/盖蒂图片社*
-原文链接：
-https://www.popularmechanics.com/military/a36385283/china-trying-to-build-atlantic-naval-base/
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[https://english.kyodonews.net/news/2021/05/cb5b2774d75b-duterte-vows-not-to-withdraw-ships-in-south-china-sea.html](https://english.kyodonews.net/news/2021/05/cb5b2774d75b-duterte-vows-not-to-withdraw-ships-in-south-china-sea.html)
 
 0

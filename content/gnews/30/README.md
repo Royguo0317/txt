@@ -1,45 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】童年的味道（五）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1243474/)
+## 习神圣训共产党打江山守江山就是共产党打人民守人民
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1243538/)
 
-配音：香草山录音组 Gtv abeilles（蜜蜂）
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14213705/%E5%B0%81%E9%9D%A2222255555.jpg)
+据[「每日一习话」江山就是人民 人民就是江山](https://baijiahao.baidu.com/s?id=1692619731773148632)（[央广网](https://author.baidu.com/home?from=bjh_article&amp;app_id=1568331104387389)发布时间:2021年 02-25日07:03央广网官方帐号）
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+［**习近平：历史充分证明，江山就是人民，人民就是江山，人心向背关系党的生死存亡。赢得人民信任，得到人民支持，党就能够克服任何困难，就能够无往而不胜。**这段话出自2021年2月20日习近平在党史学习教育动员大会上的讲话。］
 
+另据[**重庆共青团**](https://weibo.com/2355658474?refer_flag=1001030103_) [05月14日 22:31](https://weibo.com/2355658474/KftvZyqgQ?refer_flag=1001030103_) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
 
+“人民就是*江山*，*共产党打江山、守江山*，*守*的是人民的心。”（人民日报） [L重庆共青团的微博视频](http://t.cn/A6V2mLoj) ​
 
+习神何以昨日说“江山就是人民、人民就是江山”，那是因为还有下半句——江山和人民都是我的，为什么呢？因为这是习神他爹说的，君权可以神授，而党权必须生殖器授。
 
+习神何以今日又说“人民就是*江山*，*共产党打江山、守江山*，*守*的是人民的心。”呢？因为习神虽然逻辑混乱但思维不乱，因为共产党打的就是人民，守的就是人民，所以会有历次人民斗人民的政治运动，所以会有八九六四天安门广场的坦克和机枪，习神想要手上的靠生殖器受授的江山永传万代，所以一门心思做起了中国人民的教师爷，幻想可以守住人民的心，可是只要把习神的圣训连连看就穿帮了，看来习神还是要回去再看看《格萨尔王》找找灵感了。
 
-
-
-小姨来信，说外婆病重，希望妈妈回去看看。因为跟我们同住的奶奶身体不好，妈妈工作、家务两头忙，暂时走不开，就让大姨代表她回去一趟，顺便捎上我一起去。那是我第一次，也是唯一一次去外婆家。
-
-在那个交通不便的年代，外婆家可以说是路途遥远：先乘船，再乘一夜一天的火车，然后需要在火车终点站住宿一夜，第二天一早转乘公共汽车，直至傍晚到达小镇上，还需继续走几里土路才能来到外婆家。大姨带着不到十岁的我和两岁的表妹，一路上颠颠簸簸，十分辛苦。
-
-
-
-**文字版原文：[【言于其食】童年的味道（五）](https://gnews.org/zh-hans/1240864/)**
-
-作者：纽约香草山美食部 蓝天大海
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+（文章内容仅代表作者个人观点）
 
 0
