@@ -1,47 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月14日美国政要反共推文精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1243539/)
+## 中共国增加宣传支出达500%以影响美国
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1243680/)
 
-众议员吉姆·班克斯： 美国承受不起更多的延误。 国会需要立刻知道哪些公司与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的军事相关，然后我们需要通过我的法案《停止资助中共解放军法》来禁止对它们的投资。 【附大纪元报报道：批评中共国者对五角大楼推迟对中共国军事公司的报告做出反应】
+翻译:康州盘古农场 – Mike Li
+校对:康州盘古农场 –格格巫
+编辑:康州盘古农场 – 明子
 
+据《axios》 作者：Lachlan Markay，2021年5月11日报道
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14222327/EF0359D9-F807-4834-A20F-7E4215938473.png)
+新披露的外国代理人文件详细说明了北京的大规模宣传行动，这些行动披露中共在美国的对外宣传公关工作增加了六倍。
 
+为什么它这么重要呢？因为宣传是中共实现其地缘政治愿望的核心，它在美国播撒不和谐和虚假的信息，这对美国的商业、政治和社会环境有切切实实的影响。
 
-> America can’t afford more delays.
->  
-> Congress needs to know which firms are tied to China's military ASAP, then we need to ban investments in them by passing my bill, the Stop Funding the PLA Act.[https://t.co/kkRL649iv7](https://t.co/kkRL649iv7)
-> — Jim Banks (@RepJimBanks) [May 14, 2021](https://twitter.com/RepJimBanks/status/1393309464451760129?ref_src=twsrc%5Etfw)
+根据响应性政治中心(Center for Responsive Politics)的数据，中共外国代理人的支出已经从2016年的略高于1000万美元，飙升至去年的近6400万美元。
 
+这主要得益于其稳定的宣传业务，中共国现在是在美国影响力业务的最大支出国。
 
+强制披露的有偿外国影响力的美国法律，开始显示出北京为其它的目标投入的巨额资金。
 
-联邦调查局FBI： 大学研究员在申请基金为中共国发展专门科学知识上撒谎而被判入狱。(链接是司法部官网公告：俄亥俄州立大学教授和研究学者郑宋国获罪入狱)【图片说明：被告隐瞒自己参加中共政府人才招揽计划和与至少五个中共国研究机构的合作关系。被告郑贪婪攫取联邦研究经费却阻止他人获得资金来进行支持医学进步的关键研究。不管他们逃到哪里，飞机上，阿拉斯加还是半夜三更，FBI将继续缉拿这些人】
+中共国国营新闻社-新华社，是最新披露其在美国一些业务内部运作情况的机构。
 
+新华社的美国分部上周正式注册为外国代理人，这是在司法部通知该公司必须这样做的三年后，《外国游说报告》报道了这一点。
 
+根据《外国代理人登记法》提交的最初文件在很大程度上是通用的，将新华社描述为“一个独立的法律实体”，而且“接受中共国政府监督”。事实上，该媒体机构为中国政府所有，由共产党高级官员管理，并被广泛视为中共国政府的喉舌。
 
-> University Researcher Sentenced to Prison for Lying on Grant Applications to Develop Scientific Expertise for China [@FBICincinnati](https://twitter.com/FBICincinnati?ref_src=twsrc%5Etfw) [https://t.co/ACFK0pedCo](https://t.co/ACFK0pedCo) [pic.twitter.com/rDVzNaccBf](https://t.co/rDVzNaccBf)
-> — FBI (@FBI) [May 14, 2021](https://twitter.com/FBI/status/1393258616988348420?ref_src=twsrc%5Etfw)
+其新的外国代理人登记法文件披露，自2020年3月以来，新华社的中共国母公司向其美国分部支付了860万美元，包括直接支付给华盛顿、洛杉矶、休斯顿、旧金山和芝加哥的分社。新华社只是最新注册的中共国国营媒体机构。
 
+CRP数据显示，2020年中共国实体在注册外国代理人活动上的支出超过了任何其他国家的实体。
 
+这主要是由中国日报和CGTN等国营媒体的外国代理人注册所推动。
 
-参议员玛莎·布莱克本: 去年，我们面临了巨大的困难，但是这场危机是可以避免的。如果北京不隐瞒信息和对世界撒谎，今天我们会安全得多。 【附[http://axios.com](https://t.co/bZseuGwPHd?amp=1)报道：世卫特别报告认为新冠大流行本可以避免】
+它们在2019年占中共国外国代理人支出的三分之二以上，在2020年占五分之四以上，超过了电信巨头华为和监控技术公司海康威视等大公司。
 
+与其他国家的媒体一样，中国国营媒体抵制美国司法部要求根据《外国代理人登记法》进行登记的要求，该法律最初是为了揭露在美国的纳粹宣传。
 
+在披露之前，这些中共国媒体机构在暗中运作，不受《外国代理人登记法》要求披露其结构和财务状况的约束。
 
-> We’ve faced tremendous hardships this last year, but this crisis was preventable. Had Beijing not withheld information and lied to the world, we would be in a much safer place today.[https://t.co/FQt3ab9q0O](https://t.co/FQt3ab9q0O)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 14, 2021](https://twitter.com/MarshaBlackburn/status/1393250758691282948?ref_src=twsrc%5Etfw)
+文章来源:[https://www.axios.com/china-foreign-influence-spending-317a9be4-8ead-4abf-8ac4-3f27974d7a9d.html](https://www.axios.com/china-foreign-influence-spending-317a9be4-8ead-4abf-8ac4-3f27974d7a9d.html)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-
-
-彼得·纳瓦罗（前白宫国际贸易顾问】： 福奇对兰德·保罗撒谎。这里是证据。 【附[http://thenationalpulse.com](https://t.co/R8zILIUVl3?amp=1)报道：纳瓦罗列举9项事实福奇与新冠起源有关】
-
-
-
-> Fauci stone cold lied to Rand Paul. Here's the evidence.[https://t.co/U7F9h2Q3Zx](https://t.co/U7F9h2Q3Zx)
-> — Peter Navarro (@RealPNavarro) [May 14, 2021](https://twitter.com/RealPNavarro/status/1393275404358664193?ref_src=twsrc%5Etfw)
-
-
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

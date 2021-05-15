@@ -1,51 +1,109 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【独立观点】美澳外长会面，重申结盟关系和共同应对中共国的胁迫
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1243619/)
+## 【香草诗词汇】锅言灶语
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1243811/)
 
-作者： 纽约香草山健身部 Ivy001
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+作者：纽约香草山健身部 澄道
 
 
 
-5月13日，路透报道，澳大利亚外长佩恩赴华盛顿与布林肯会面。会面后，美国国务卿布林肯在与澳大利亚外长佩恩共同举行的新闻发布会上表示：“我重申，面对中共国的经济胁迫，美国不会让澳大利亚独自在战场上面对，或者我应该说，让澳大利亚独自在赛场上面对。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14222626/2-33.png)
-布林肯还说：“我们已经向中共国明确表示，这种针对我们最亲密的伙伴和盟友的行动，将阻碍我们改善与中共国的关系。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
-佩恩对记者说，“澳大利亚明确表示希望与中共国建立建设性关系。但是，我们不会在我们的国家安全或我们的主权上妥协，我们将继续采取行动保护这些。”
 
-在此之前，中共国决定暂停四家澳大利亚企业的牛肉产品进口申请，还提出对澳大利亚大麦加征最多达80%的关税。
 
-现在，布林肯在新闻发布会上的宣布，等于向中共国表示，澳大利亚是美国的伙伴和盟友，中共国的经济胁迫，美国不会袖手旁观的。美国不仅仅自己会帮助澳大利亚，还会叫上盟友和其他小伙伴一起帮忙澳大利亚。“不会让澳大利亚独自面对”的解读，就是大家（所有的盟友们和小伙伴们）一起面对的意思。
+![]()![](https://media.discordapp.net/attachments/721544615953432698/836053075390758962/image0.jpg?width=1083&amp;height=609)
 
-作为世界最大进口国，和世界最大的经济体，美国确实有实力有底气这么说。美国不仅自己有能力，还有号召力。盟友们、伙伴们，都帮忙分担一些，中共国的经济胁迫，很容易就解决了。联盟、结盟的意义就是，有事大家一起解决。
+小馆营业
 
-布林肯发言的最后一段，翻译过来就是：中共国，你如果继续针对我的小伙伴，我们美国也会反制你的哟！希望你们不要继续作死。
+月余有半
 
-中共国对澳大利亚的经济胁迫，只能让民主国家更清醒的认识到中共国的邪恶，和中共国日益增长的威胁，让民主国家的联盟更稳固，大家齐心协力共同对付中共国的霸权行为。
+砥砺前行
 
-中共国可以走的路，越来越窄了，离灭共的日子又近了。
+狭逢求生
 
-图片来源：路透社
+锅言要动响
 
-https://cn.reuters.com/article/usa-china-australia-0513-thur-idCNKBS2CV04N
+灶语想出声
 
-校对/发稿：火内
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12223539/5%E6%9C%88.jpg)
+还是“厨二”快
+
+抢到表态先：
+
+无有七哥爆料前
+
+何来滔滔灭共往
+
+无有战友背靠背
+
+怎有诤诤惩贼勇
+
+落叶秋风扫
+
+流水秋雨急
+
+七哥对饮咖啡热
+
+苍天应灭邪共恶
+
+匡扶正义
+
+（ 快快加入喜联盟 加入当地农场）
+
+藏富于民
+
+（ 尽享“喜系列”）
+
+正道之声
+
+（ 直播G-TV  参与GNEWS）
+
+一人可以战“一国”
+
+但您怎可忍让英雄孤单
+
+更多人加入  灭共越快
+
+越多人合心  力更强大
+
+厨二
+
+滔滔声浪
+
+萃花只一句对应：
+
+欢声笑语“盐”增善
+
+手舞足蹈“糖”添福
+
+“萃花”
+
+这个女人啊！
+
+不简单….
+
+（本文仅代表作者观点）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+
+编辑/校对/发稿：Irene木木
+
 **更多资讯，更多关注**
 
 [**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+
 
 0

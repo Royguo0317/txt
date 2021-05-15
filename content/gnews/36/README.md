@@ -1,35 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/05/14 郭文贵先生盖特精要
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1243455/)
+## 世卫组织说在44个国家发现了印度Covid-19变种病毒
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1243624/)
 
-听写：万物归一 | 校对: 樂禧禧 | Page: Daoiii
+翻译:康州盘古农场 – Layka
 
-[!\[\]()!\[\](https://spark.adobe.com/page/e7waFMz9SGa8m/images/46c34a1f-1998-4de4-b520-17e6f8e46683.png?asset_id=f493fa39-8643-40d3-9940-ad0db79173a0&amp;img_etag=%224ee949fc8d708080392601163927afad%22&amp;size=1024)](https://spark.adobe.com/page/e7waFMz9SGa8m/images/46c34a1f-1998-4de4-b520-17e6f8e46683.png?asset_id=f493fa39-8643-40d3-9940-ad0db79173a0&amp;img_etag=%224ee949fc8d708080392601163927afad%22&amp;size=1024)
+校对:康州盘古农场 – TrueSky
 
-**5月14号：任何对无辜的体制内的孩子、被拒签而幸灾乐祸的人！都是不正确的，呼吁所有的买Gclub的战友以最快的时间，到你的农场对账，或给Gclub公司直接打电话，对帐领卡！不要让自己失去利益的机会！**
+编辑:康州盘古农场 – 明子
 
-[G-TV链接](https://gtv.org/getter/609e80fc37f7f73984cb99f5)
+发布：康州盘古农场 – 彩虹 Rainbow
 
-[!\[\]()!\[\](https://spark.adobe.com/page/e7waFMz9SGa8m/images/59a48e61-f359-454e-b877-7cee341e9e63.png?asset_id=797834bd-0291-4c1e-abd7-ad815862af4e&amp;img_etag=%2211905bd762d7e35d31bb37b53cdd45be%22&amp;size=1024)](https://spark.adobe.com/page/e7waFMz9SGa8m/images/59a48e61-f359-454e-b877-7cee341e9e63.png?asset_id=797834bd-0291-4c1e-abd7-ad815862af4e&amp;img_etag=%2211905bd762d7e35d31bb37b53cdd45be%22&amp;size=1024)
+**据《www.news18.com》 2021年5月12日法新社，瑞士日内瓦，07:02印度时区首次发布：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14220336/huiooo1.jpg)
+在印度以外，世卫组织表示，英国报告了由该变种病毒引起的最多的Covid病例。
 
-1. 全球拒签中国留学生的国家数量在增加，这些学生的父母大多在国内体制内工作。
-2. 和美国作对不要抱有任何侥幸心理，美国可以在任何时间和地点对其作出报复和惩罚。
-3. 一旦发生战争冲突，美国会首先斩首，所用的武器会超出常人的认知，可以做到精确定点打击。
-4. 美国的Chase Bank非法泄露战友信息，以及魏继红的做恶，导致最近很多战友和战友的家人被抓捕，很多都是VOG的汇款者。
-5. 体制内的孩子是无辜的，美国拒签的做法是不对的，战友们不要幸灾乐祸，要包容。
-6. 现在把钱从国内转出来的都是牛人，没有转出来的现在转大钱就比较难了。
-7. 买GClub的战友们抓紧时间找各农场对账领卡，六月四号有重大决定，七月四号有重大礼物，不要错失良机。
+世界卫生组织（WHO）周三表示，在全球数十个国家发现了印度加速爆发后的Covid-19变种病毒。
 
+联合国卫生机构表示，Covid-19的B.1.617变种于去年10月首次在印度发现，已经从“来自世卫组织所有六个地区的44个国家”上传到开放数据库的4,500多个样本中被检测到。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+世卫组织在关于大流行的每周流行病学更新中说：“世卫组织还收到了另外五个国家的检测报告。”
 
+据报道，在印度以外的地区，英国报告了由该变种病毒引起的最多的Covid案例。
 
-编辑：【英国伦敦喜庄园编辑部】
+本周早些时候，世界卫生组织宣布B.1.617—“三个令人关注的变异和特征略有不同的子血统”-被视为“关注变量”。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/e7waFMz9SGa8m/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/e7waFMz9SGa8m/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+因此，它被添加到包含Covid-19的其他三个变种的列表中。这三个变种是最早在英国、巴西和南非发现的那些变体。
+
+这些变体被认为比病毒的原始版本更危险，因为它们更易传播，更致命，能够越过一些疫苗的保护措施。
+
+“迅速增加”
+
+世卫组织周三解释说，将B.1.617添加到列表中是因为它似乎比原始病毒更容易传播，并指出“多个国家的患病率迅速增加”。
+
+世卫组织还指出“初步证据”，表明该变体对单克隆抗体班兰尼单抗的治疗更具抵抗力，并且还强调了早期实验室研究表明“抗体的中和作用有限”。
+
+但是，它强调说，“针对现实世界的影响”，针对该变体的疫苗有效性的影响“可能是有限的”。
+
+世卫组织表示，B.1.617的传播以及其他更易传播的变种，似乎是助长印度新病例和死亡人数激增的几个因素之一。
+
+印度是一个拥有13亿人口的国家，是仅次于美国的世界第二大感染国，有将近2300万例Covid-19病例，目前每天记录的新病例超过30万例，死亡人数接近每天4000例。
+
+新的病例激增席卷了主要城市，包括首都新德里和金融中心孟买，将医院推向了临界点，导致氧气和床位严重短缺。
+
+它说：“世卫组织发现，印度Covid-19传播的复兴和加速有几个潜在的促成因素，包括SARS-CoV-2变种的病例比例增加，并具有潜在的传播能力。”
+
+它还指出“几次宗教和政治群众集会，加剧了社会融合， 以及未充分利用和减少对公共卫生和社会措施的遵守”。
+
+“人们对这些因素对印度传播增加的确切贡献还知之甚少。”
+
+世卫组织强调，到目前为止，印度仅有0.1％的Covid阳性试验已进行了基因测序，并已上载到GISAID数据库中，以鉴定有关的变体。
+
+截止到4月底，B.1.617.1和B.1.617.2分别占印度所有测序样本的21％和7％。
+
+此外，其他更具传染性的变种病毒也正在该国传播，包括B.1.1.7.，这是在英国首次发现的。
+
+原文链接：
+
+[https://www.news18.com/news/world/who-says-indian-covid-19-variant-found-in-44-countries-3729143.html](https://www.news18.com/news/world/who-says-indian-covid-19-variant-found-in-44-countries-3729143.html)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

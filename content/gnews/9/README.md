@@ -1,33 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共力图扩大其在阿富汗的影响力
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1243915/)
+## 以色列对哈马斯的定点清除可确保领导先走而司机安全
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1244180/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15020148/d2b24efa3037fekqmo7i-600x338-1585977194493_%E5%89%AF%E6%9C%AC.jpg)
+据[沉默的力量The power of \[email protected\]](https://twitter.com/2mmbPkM00IJwIUV)于[上午2:10 · 2021年5月15日](https://twitter.com/2mmbPkM00IJwIUV/status/1393267392336203778)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
 
-编辑上传   水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15000722/C-17.jpg)militarytimes.com
-布赖特巴特新闻网 (Breitbart News) 5月13日报道，中共官方媒体预计，在美国和北约撤出阿富汗后，北京将在阿富汗发挥更大的影响力，暗示在美国20年的干预“失败”后，中共的强硬手段可能会恢复血腥混乱的秩序。
+【胆小勿入】 以色列刀片弹精准打击，领导被切成肉酱，司机只是受轻微伤[嘿哈][嘿哈]
 
-中共官方媒体新华社指责美国从阿富汗撤军造成了“一系列的爆炸袭击”，包括塔利班活动的增加和喀布尔一所女子学校发生的恶性炸弹袭击。
 
-过去一周，中共媒体一直在疯狂地指责美国对喀布尔的屠杀，同时坚持美国必须尽快撤军。新华社对这两个矛盾点进行了抨击，指责美国的政策导致了阿富汗的所有暴力事件，并建议中共国作为一个可能能够通过谈判达成持久和平的替代管家来调和这两个矛盾。
 
-美国总统拜登最近表示，华盛顿已经实现了粉碎基地组织网络的目标，这一言论受到阿富汗公众舆论的怀疑。当地观察人士称，美国领导的阿富汗反恐战争是失败的。包括平民、安全人员和塔利班武装分子在内的无数阿富汗人在所谓的反恐战斗中丧生，但残酷的战斗和血腥的袭击仍在继续。要防止该国再次陷入旷日持久的战争，成为暴力和恐怖主义的天堂，唯一的选择就是通过对话和国际合作，推动和平与和解进程。
+> 【胆小勿入】
+>  以色列刀片弹精准打击，领导被切成肉酱，司机只是受轻微伤[嘿哈][嘿哈]🙏😱 [pic.twitter.com/4dhIqOVCyP](https://t.co/4dhIqOVCyP)
+> — 沉默的力量The power of reticence (@2mmbPkM00IJwIUV) [May 14, 2021](https://twitter.com/2mmbPkM00IJwIUV/status/1393267392336203778?ref_src=twsrc%5Etfw)
 
-中共喉舌《环球时报》称，中共及其“中亚伙伴”已经介入稳定阿富汗局势，防止阿富汗成为“恐怖主义、分裂主义和宗教极端主义三股势力”的“滋生地”。
 
-《环球时报》关注了中共外交部长王毅5月12日与哈萨克斯坦、乌兹别克斯坦、塔吉克斯坦、吉尔吉斯斯坦和土库曼斯坦外长举行的会谈，讨论美国从阿富汗撤军造成的“混乱局势”，包括对中共“一带一路”倡议可能产生的影响。
 
-中共媒体提出，如果阿富汗政府和塔利班能够“达成和平组建新政府的协议”，阿富汗可加入中共国上海合作组织(SCO)，同时指责美国把阿富汗变成“三股势力”和毒品走私的“滋生地”，然后撤出阿富汗，给中共、俄罗斯和上海合作组织留下“烂摊子”。
+请注意后座的领导已经被切成肉酱，但是司机只受了轻微伤。
 
-除了通过“一带一路”扩大其经济和政治影响力，中共还渴望开发中亚地区的能源，《环球时报》特别提到了土库曼斯坦的天然气。这篇文章暗示，中共已经与俄罗斯达成协议，将阿富汗和中亚交由北京处理。
+另据[沉默的力量The power of \[email protected\]](https://twitter.com/2mmbPkM00IJwIUV)于[上午11:50 · 2021年5月15日](https://twitter.com/2mmbPkM00IJwIUV/status/1393413573343252480)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文
 
-如果回报足够丰厚，塔利班似乎愿意参与“一带一路”项目。然而，新疆集中营和对维吾尔族人的种族灭绝和大清洗应该向塔利班传达了清楚的信息，如果他们不能成为富有成效的商业伙伴，他们在中共统治下的命运将如何。
+现代战争已不是人海战术，拿士兵当炮灰了，而是擒贼先擒王了，无人机，刀锋导弹，都是向着领导去的！！ 现在当兵比当军官安全！[憨笑]
 
-参考链接：
 
-[https://www.breitbart.com/national-security/2021/05/13/china-prepares-take-leading-role-afghanistan/](https://www.breitbart.com/national-security/2021/05/13/china-prepares-take-leading-role-afghanistan/)
+
+> 现代战争已不是人海战术，拿士兵当炮灰了，而是擒贼先擒王了，无人机，刀锋导弹，都是向着领导去的！！
+> 现在当兵比当军官安全！[憨笑] [pic.twitter.com/CGf0TfctU4](https://t.co/CGf0TfctU4)
+> — 沉默的力量The power of reticence (@2mmbPkM00IJwIUV) [May 15, 2021](https://twitter.com/2mmbPkM00IJwIUV/status/1393413573343252480?ref_src=twsrc%5Etfw)
+
+
+
+请注意：这一次的斩首甚至连车体的损伤都非常轻微。
+
+以色列对哈马斯领导人的定点清除已经可以确保领导先走而司机安全，相信这了是未来的对中共领导人斩首的新模式，在那样的情况下，相信人民群众也会放心地在领导人身边眼睁睁地看着领导人先走，只是这种斩首模式再安全也无法保证围观群众身上不被溅上领导人的血污，所以在未来中共国领导人先走的时候，请围观群众还是要适度拉开与领导人的距离。
+
+（文章内容仅代表作者个人观点）
 
 0

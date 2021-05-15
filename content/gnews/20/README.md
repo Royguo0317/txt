@@ -1,55 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国食品和药物管理局授权，为12至15岁的儿童注射辉瑞疫苗
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1243776/)
+## [圣城传声筒] 人人一言不发，却向同一个方向行
+` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1233320/)
 
-翻译:康州盘古农场 – Mike Li
-校对:康州盘古农场 –柯震恶
-编辑:康州盘古农场 –格格巫
+作者：纽约香草山农场香港部写作组  一悠
 
-据《NBCnews》 作者：[Erika Edwards](https://www.nbcnews.com/author/erika-edwards-ncpn56261)，2021年5月11日报道
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14225303/93C6DB97-CD58-45DE-A649-435E85FF731D.jpeg)
-美国食品和药物管理局周一将美国人可以接受辉瑞公司Covid-19疫苗的年龄降低到12岁，此举预计将使增加数百万人接种疫苗。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
 
-辉瑞生物技术公司的这种疫苗在去年12月被授权用于16岁及以上的人。美国食品和药物管理局现在已经修改了授权，将12至15岁的儿童包括在内。
 
-上周，乔-拜登总统在白宫的讲话中说，政府“准备立即行动，一旦美国食品和药物管理局批准，全国约有2万个药店准备为这些青少年接种疫苗”。
 
-接下来，美国疾病控制和预防中心的免疫接种实践咨询委员会（ACIP）将在周三开会，更新关于谁应该接受辉瑞公司疫苗的建议。
 
-如果疾病控制中心的负责人罗谢尔-瓦伦斯基博士签署了委员会的建议，那么12岁及以上儿童的第一针可能会在几天内到来。
 
-“美国食品和药物管理局生物制品评估和研究中心主任彼得-马克斯博士周一在与记者的电话中说：”他们可能最快在周四就会到来。
+又到了手机上互传和show收据的时候。前一轮是阿布泰，这几日就“转战”“chickeeduck”。但阿布泰仍然生意很好哦。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12162448/%E8%8D%83%E7%81%A3-Chickeeduck-%E9%BB%83%E5%BA%97-20210509183625_f50f_large.png)一悠 摄
+这次跟上次阿布泰排队一样，人人互不认识，人人玩手机，人人一言不发⋯⋯但却向同一个方向行、付钱⋯⋯你会感觉到一种沉默中的震撼。
 
-美国食品和药物管理局官员说，辉瑞公司的两剂疫苗将与成年人的疫苗剂量完全相同，注射间隔三周。
+是用钱来惩罚恶党的震撼，买曾经支持我们的商铺的各种货品，买壹传媒（282）的股票，买毛记葵涌（1716）的股票⋯⋯
 
-如果疾病预防控制中心对辉瑞疫苗开绿灯，疫苗的推广也可能因州而异。美国食品和药物管理局的授权适用于美国各地和各地区，但有些地方或药店可能不给年轻的青少年注射，这取决于各州的规则和条例。
+有句古诗说——“万马齐喑究可哀”。但你去到现场，就觉得一点不哀，今日只有沉默中的众志成城。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12161504/Picture1-54.jpg)图片来源：网络
+香港人的无声行动，胜过了千言万语。既然恶法当道，香港人也要懂得保护自己，将抗争的火种，留在心中。
 
-在FDA的网站上，该机构的代理专员Janet Woodcock博士说，该授权是“对抗COVID-19大流行病的重要一步”。
+同样地，作为新中国联邦的每一位战友，或多或少也在经历同样的事情。在传播真相的过程中，多半被视为“异类”，甚至是“反社会分子”。但郭文贵先生曾经说过：“我们是在做好事。做好事还会在乎别人怎么看吗？”是的，当黑暗来临的时刻，我们只有默默坚持。
 
-伍德考克写道，这一行动 “使更年轻的人群得到保护，免受Covid-19的影响，使我们更接近于恢复正常的状态，并结束这一疫情大流行。”
+香港人默默支持“黄店”，是不希望“良心”沉沦；战友们坚持传播真相，是为了不让真相被掩盖。
 
-政府还计划将疫苗直接送到儿科医生的办公室，在那里，父母在讨论他们孩子的疫苗时可能会感到更舒服。疫苗接种也将在其他地点提供，如社区中心。
+每日点赞、转发战友们挖掘的信息，成了我们普通战友无声对抗极权政权的必修课。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12162017/%E9%BB%83%E5%BA%97-Chickeeduck-%E8%8D%83%E7%81%A3-20210509183228_1a3d_large.jpeg)招牌上面的金色字是写什么？哈哈，你自己估。一悠 摄
+引用來源：
 
-3月底，辉瑞公司表示，第三期临床试验数据显示，辉瑞Covid-19疫苗对预防12至15岁儿童的疾病100%有效。
+[https://www.hkcnews.com/article/41137/chickeeduck-%E8%8D%83%E7%81%A3%E5%8D%80-%E9%BB%83%E5%BA%97-41137/%E4%BA%BA%E4%BA%BA%E4%B8%80%E8%A8%80%E4%B8%8D%E7%99%BC%EF%BC%8C%E5%8D%BB%E5%90%91%E5%90%8C%E4%B8%80%E5%80%8B%E6%96%B9%E5%90%91%E8%A1%8C](https://www.hkcnews.com/article/41137/chickeeduck-%E8%8D%83%E7%81%A3%E5%8D%80-%E9%BB%83%E5%BA%97-41137/%E4%BA%BA%E4%BA%BA%E4%B8%80%E8%A8%80%E4%B8%8D%E7%99%BC%EF%BC%8C%E5%8D%BB%E5%90%91%E5%90%8C%E4%B8%80%E5%80%8B%E6%96%B9%E5%90%91%E8%A1%8C)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205738/M5-1.jpg)
+编辑/校对/发稿：Delilah小胖
 
-美国的试验研究包括该年龄组的2200多人。大约一半的人注射了真正的疫苗，而其余的人则注射了安慰剂。辉瑞公司说，安慰剂组中有18人被诊断出患有Covid-19。接种疫苗的人中没有病例报告。初步研究结果是在一份新闻稿中公布的，没有对全套数据进行同行审查。
+**更多资讯，更多关注**
 
-虽然该公司表示，该疫苗对儿童来说通常是安全的，副作用很小，如轻微发烧或手臂酸痛，但医生说，公布完整的数据对提高对疫苗安全的信心很重要。
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-“美国儿科学会传染病委员会副主席Sean O’Leary博士说：”我们在整个过程中的透明度越高，我们在信任方面就越好。
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-评论：家长和专家质疑，为儿童接种疫苗是否真的是为了他们自己的利益，或者是为了保护成年人而让孩子们冒着新疫苗的潜在副作用，而在美国18岁以下的人的新冠病毒死亡率只有0.1%。
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
 
-**编者锐评：**
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-COVID19是中国共产党通过功能增强实验和动物传代等技术研发出来的超限生物武器，具有高传染性，高变种性，目前已知在美国就存在COVID19的14种变异毒株，辉瑞等公司疫苗仅仅依靠2020年年初的初始毒株制造的疫苗，怎么可能防御高变异的生化武器病毒呢？
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-文章来源:[https://www.nbcnews.com/health/health-news/fda-authorizes-pfizer-vaccine-children-12-15-n1266136](https://www.nbcnews.com/health/health-news/fda-authorizes-pfizer-vaccine-children-12-15-n1266136)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+
 
 0

@@ -1,23 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [News Express]共和党众议员提议案要求解密所有武毒所相关情报
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1243581/)
+## 中共国正试图在大西洋建立海军基地 五角大楼对此表示关注
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1243731/)
 
-#### 编译：云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14212641/IMG_2154.jpg)
-《国家脉动》5月14日报道，众议院共和党**议员麦克·加拉格尔（Mike Gallagher）提交了一项议案，要求国家情报局局长解密与中共病毒来源有关的信息，尤其是武汉病毒研究所，要求解密任何一切信息。**
+翻译:康州盘古农场 – Layka
+校对:康州盘古农场 – TrueSky
+编辑:康州盘古农场 –格格巫
 
-众议员麦克·加拉格尔认为 “有理由相信COVID-19大流行病可能源自武汉病毒研究所”。因此，议案将要求 “国家情报局局长解密与COVID-19的起源有关的信息”—-特别是武汉病毒研究所。
+据《www.popularmechanics.com》作者：KYLE MIZOKAMI，2021年5月11日报道：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14223754/C68966A8-D9EC-4438-ACDA-C9D3E950088C.jpeg)*新华社新闻社/盖蒂图片社*
+- **五角大楼非洲司令部将军警告说，中共政府正试图****在西非建立海军基地****。**
+- **中共海军将利用这些****基地****进行加油和****补给****，从而扩大北京的****军事****覆盖范围。**
+- **中共国目前在亚洲大陆以外只有一个海军基地。**
 
-该议案是在川普政府国务院情况报告将中共病毒与武汉实验室联系起来之后提出的。**议案要求解密 “与武汉病毒研究所和COVID-19来源之间的潜在联系有关的任何一切信息。”**
 
-关注的重点领域包括武汉病毒研究所和中共军方开展的合作，在该实验室所进行的冠状病毒研究，以及该设施任何研究人员在2019年秋季感到不适。
+据负责非洲司令部的美国陆军将军说，中国人民解放军海军可能很快会在大西洋上作战。
 
-“现在我们也知道了某些事实，这些事实堆积起来有利于实验室泄漏的假说，”加拉格尔在接受福克斯新闻采访时说。 “还有就是疾病本身的性质。如果它真的是人畜共患病或动物源性疾病，你会看到它在宿主物种，即蝙蝠中的传染性最强，在穿山甲等中间物种中的传染性较弱，在人类中的传染性最小。”加拉格尔说。
+据报道，中共国已在几个非洲国家取得了建立海军基地的权利。结果可能可以使中共国水面舰艇和潜艇，在战时距离传统战区数千英里，这令美军感到不安。
 
-图片及原文链接：https://thenationalpulse.com/breaking/gop-intro-bill-to-declassify-wuhan-intel/
+美国驻非洲最高统帅斯蒂芬·汤森(Stephen Townsend)将军已于5月6日对美联社表示，中共国正在“寻找一个可以重新装备和修理军舰的地方”。 他继续：
 
-文章仅代表作者个人观点，与gnews平台无关
+“这在冲突时在军事上很有用。他们在吉布提建立一个（基地）。现在，他们将目光投向了大西洋沿岸，希望在那里建立这样的基地。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14223951/4910A75A-B528-4628-9B0C-B23A94B51F6A.png)*2017年，中国海军陆战队在吉布提的军事基地开幕。法新社贡献者/盖蒂图片社*
+原文链接：
+https://www.popularmechanics.com/military/a36385283/china-trying-to-build-atlantic-naval-base/
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

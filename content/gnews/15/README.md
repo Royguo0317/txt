@@ -1,109 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】锅言灶语
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1243811/)
+## 摩根士丹利就中概股退市风险发出警告
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1243994/)
 
-作者：纽约香草山健身部 澄道
+**撰稿：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15003355/22-10.jpg)
+根据路透上海5月14日报道，摩根士丹利周五就对在美上市中国科技企业的敞口发出警告，此前美国会计监管机构向将不合规中国企业从美国交易所摘牌又迈进了一步后。
 
+美国公众公司会计监督委员会(PCAOB)周四提出了一项新规，标志着该委员会正稳步实施让其无法获得审计文件的在美上市中国企业退市的举措。
 
+摩根士丹利在一份研究报告中表示，此举给中国企业的美国存托凭证(ADR)造成负面影响，这些ADR已经受到中国政府收紧互联网监管的影响，且目前不断加剧的通胀上升担忧对成长股来说也是个坏兆头。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
+摩根士丹利称，**PCAOB的提案标志着《外国企业问责法案》(HFCAA)正在稳步实施，且目前已接近全面执行。该法案旨在将在美上市的不合规外国企业摘牌**。
 
+一方面是中共内部不断深化的反垄断行动和国进民退的政策强势执行，另一方面是中共外部与国际关系的僵化局面，导致的隐患，都决定了投资者对中共企业的投资行为有巨大的风险，而美国下一步对中资上市企业的严查也将开启大面积退市潮的篇章，此次摩根士丹利的警告也代表整个华尔街金融利益集团的普遍共识，帮助投资者在风暴来临之前，加速撤离。
 
+（本文只代表作者观点，与Gnews平台无关。）
 
-![]()![](https://media.discordapp.net/attachments/721544615953432698/836053075390758962/image0.jpg?width=1083&amp;height=609)
+**新闻来源：**
+[摩根士丹利就中国企业ADR退市风险发出警告 推荐对冲策略 | 路透 (reuters.com)](https://cn.reuters.com/article/ms-china-adr-delisting-0515-idCNKBS2CW02C?il=0)
 
-小馆营业
-
-月余有半
-
-砥砺前行
-
-狭逢求生
-
-锅言要动响
-
-灶语想出声
-
-还是“厨二”快
-
-抢到表态先：
-
-无有七哥爆料前
-
-何来滔滔灭共往
-
-无有战友背靠背
-
-怎有诤诤惩贼勇
-
-落叶秋风扫
-
-流水秋雨急
-
-七哥对饮咖啡热
-
-苍天应灭邪共恶
-
-匡扶正义
-
-（ 快快加入喜联盟 加入当地农场）
-
-藏富于民
-
-（ 尽享“喜系列”）
-
-正道之声
-
-（ 直播G-TV  参与GNEWS）
-
-一人可以战“一国”
-
-但您怎可忍让英雄孤单
-
-更多人加入  灭共越快
-
-越多人合心  力更强大
-
-厨二
-
-滔滔声浪
-
-萃花只一句对应：
-
-欢声笑语“盐”增善
-
-手舞足蹈“糖”添福
-
-“萃花”
-
-这个女人啊！
-
-不简单….
-
-（本文仅代表作者观点）
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-
+***校对发布**：文顾*
 
 0

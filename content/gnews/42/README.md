@@ -1,44 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美国疾病预防中心称，完全接种疫苗的人无需佩戴口罩
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1243433/)
+## 中共将疫苗武器化
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1243548/)
 
-作者：纽约香草山媒体部 7bends
+台湾宝岛农场 文旦
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+中国利用疫苗外交抢走台湾在拉美地区的盟友，美国国务院周四（5月13日）不点名谴责这种出于政治目的「恶意使用」疫苗的行为。
+
+中共使用疫苗作为外交武器，利用疫苗破坏他国外交关系，或使他国遭其中共利用。
+
+中共疫苗在全世界都可知道，是一个非常不安全的疫苗，数据等等都未揭露，新冠病毒（病毒）在全世界爆发，至今都未找到病原体及样本，且该病毒几乎已经确定从病毒研究所制造，且在中共的军方控制的研究所中。
+
+发动新冠病毒（中华人民共和国病毒）扩散全世界，破坏他国经济，医疗体系，造成他国混乱，再利用疫苗去控制，经济能力弱的国家，强迫他国，影响他国政治经济等一系列做法，让人可耻。
+
+疫苗因该是让人安心的物品，但现在被改变，利用医学和科学的专业信任，来制造这一切问题，当利益凌驾于专业的信任之上，这就是灾难了。
+
+疫苗在这个病毒灾难中，被应急而生，长期安全性备受考验，且在没有病原体和中见宿主的情况下研发，这让疫苗可以成为一种武器，利用疫苗的信任，让所有人打疫苗，之后再产生疫苗的次生灾害。
+
+疫苗公司背后股东资金来源到底在哪？ ，批准疫苗的人是否因为利益而制作疫苗？
+
+为甚么有更好的预防治疗且便宜以长久的药方不想讨论，这中间的问题在底在哪呢？
+
+这些真相正在依依曝光!!! 传播真相，缺你一个，你很重要，你的一小步，就是灭共的一大步!!!
+
+引用数据：[https://www.epochtimes.com/b5/21/5/13/n12947200.htm](https://www.epochtimes.com/b5/21/5/13/n12947200.htm)
+
+台湾宝岛农场youtobe：
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14210048/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91CDC%E7%A7%B0%E5%AE%8C%E5%85%A8%E6%8E%A5%E7%A7%8D%E7%96%AB%E8%8B%97%E7%9A%84%E4%BA%BA%E5%8F%AF%E4%BB%A5%E4%B8%8D%E7%94%A8%E4%BD%A9%E6%88%B4%E5%8F%A3%E7%BD%A9.png)
-2021年5月13日，[美国疾病预防中心](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/fully-vaccinated.html)（CDC）发布最新指导意见，称完成疫苗接种的人可以不要佩戴口罩。
 
-CDC称，对于完全接种完新冠疫苗的人群，
-
-- 你可以恢复你在大流行之前的活动。
-- 你不需要戴口罩或保持6英尺的距离，除非联邦、州、地方、部落或地区的法律、法规和条例有要求，包括当地的商业和工作场所指南。
-- 在美国旅行，你不需要在旅行前后接受检测，也不需要在旅行后进行自我隔离。
-- 在美国境外旅行之前，你需要密切关注你的国际目的地的疫情情况。
-- 如果你周围有人患有COVID-19，你不需要远离他人或接受检测，除非你有症状。
-
-
-关于CDC这项最新的指导意见，笔者有非常大的担忧。完全接种疫苗后又重新感染病毒的报导屡见不鲜。据美联社近期报导，在完全接种新冠疫苗后，纽约扬基队队员托雷斯仍被检测出新冠病毒阳性。
-
-笔者认为，在彻底了解病毒前，靠匆匆忙忙研制出的疫苗来解决新冠大流行问题，完全不切实际。最根本的解决方法，是尽快对新冠疫情的起因追根溯源。只有了解了病毒的源头，才可以尽快研究出有针对性的预防和治疗方案，尽快结束这场人类有史以来最大的生存危机。
-
-编辑/校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+请大家帮忙订阅感谢你!!!!
 
 0
