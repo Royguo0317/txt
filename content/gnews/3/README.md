@@ -1,29 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## News Express: 18名科学家致信《科学》杂志要求调查中共病毒实验室起源
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1243371/)
+## 【热点播报】美国疾病预防中心称，完全接种疫苗的人无需佩戴口罩
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1243433/)
 
-#### 编译：云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14202148/image0-3.jpeg)图片来自网络
-《零对冲》5月14日报道，随着中共政府对中共病毒起源国际调查的继续阻扰，越来越多的科学家站出来坚持认为关于中共病毒实验室起源及”泄漏”理论是可信的，并认为除非中共政府能提供更多信息证明，否则这一理论将继续有效。同时呼吁大家注意，在中共病毒流行初期，是中国医生，科学家，记者和公民冒着付出巨大个人代价的危险，向世界传递了重要信息。
+作者：纽约香草山媒体部 7bends
 
-文中报道，近日一个包含剑桥大学的临床微生物学家拉文德拉-古普塔（Ravindra Gupta）和弗雷德-哈钦森癌症研究中心研究病毒进化的杰西-布鲁姆（Jesse Bloom）的，由18名科学家组成的小组在给《科学》杂志的一封信中坚持认为，病毒的实验室泄漏理论应值得更多关注。 他们说：”仍然需要更多的调查来确定大流行病的起源，” “从实验室意外释放和人畜共患传染病的理论都存在可能”。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-信中指出，关于该病毒的起源有几种理论，所有可信的理论都应该被认真对待。 科学家们说：”我们必须认真对待关于自然和实验室泄漏的假设，直到我们有足够的数据，”他们补充说，对此需要进行严格和冷静的调查。
 
-报告还批评了世卫组织对该病毒起源的调查没有对该病毒可能来自实验室事故的理论进行 “平衡考虑”。在世卫长达313页的报告中，只有4页涉及实验室事故的可能性。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14210048/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91CDC%E7%A7%B0%E5%AE%8C%E5%85%A8%E6%8E%A5%E7%A7%8D%E7%96%AB%E8%8B%97%E7%9A%84%E4%BA%BA%E5%8F%AF%E4%BB%A5%E4%B8%8D%E7%94%A8%E4%BD%A9%E6%88%B4%E5%8F%A3%E7%BD%A9.png)
+2021年5月13日，[美国疾病预防中心](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/fully-vaccinated.html)（CDC）发布最新指导意见，称完成疫苗接种的人可以不要佩戴口罩。
 
-信件全文如下：
+CDC称，对于完全接种完新冠疫苗的人群，
 
-2019年12月30日，新发疾病监测项目向全世界通报了中共国武汉发生的不明原因的肺炎（1）。自那时起，科学家们在了解病原体–严重急性呼吸道综合征冠状病毒2（SARS-CoV-2）、其传播、发病机制以及通过疫苗、治疗剂和非药物干预措施的缓解方面取得了显著进展。然而，仍然需要更多的调查来确定该大流行病的起源。从实验室意外释放和人畜共患的理论都仍然可行。了解COVID-19是如何出现的，对于告知全球战略以减少未来爆发的风险至关重要。
+- 你可以恢复你在大流行之前的活动。
+- 你不需要戴口罩或保持6英尺的距离，除非联邦、州、地方、部落或地区的法律、法规和条例有要求，包括当地的商业和工作场所指南。
+- 在美国旅行，你不需要在旅行前后接受检测，也不需要在旅行后进行自我隔离。
+- 在美国境外旅行之前，你需要密切关注你的国际目的地的疫情情况。
+- 如果你周围有人患有COVID-19，你不需要远离他人或接受检测，除非你有症状。
 
-2020年5月，世界卫生大会要求世界卫生组织（WHO）总干事与合作伙伴密切合作，确定SARS-CoV-2的来源（2）。11月，中国-世卫组织联合研究的职权范围被公布（3）。研究第一阶段的信息、数据和样本是由研究小组的中方成员收集和总结的；研究小组的其他成员在此基础上进行分析。虽然没有发现明确支持自然溢出或实验室事故的结论，但研究小组评估了人畜共患的中间宿主溢出是 “可能到非常可能”，而实验室事故是 “极其不可能”[(4), p. 9]。此外，这两种理论没有得到均衡的考虑。在报告及其附件的313页中，只有4页涉及实验室事故的可能性（4）。值得注意的是，世卫组织总干事谭德塞（Tedros Ghebreyesus）评论说，该报告对支持实验室事故的证据考虑不足，并提出提供额外的资源以全面评估这种可能性（5）。
 
-作为具有相关专业知识的科学家，我们同意世卫组织总干事（5）、美国和其他13个国家（6）以及欧洲联盟（7）的意见，即进一步澄清这种大流行病的起源是必要的，而且是可行的。我们必须认真对待关于自然和实验室溢出效应的假设，直到我们有足够的数据。适当的调查应该是透明的、客观的、以数据为导向的，包括广泛的专业知识，接受独立的监督，并负责任地管理，以尽量减少利益冲突的影响。公共卫生机构和研究实验室都需要向公众开放其记录。调查人员应该记录进行分析和得出结论的数据的真实性和出处，以便独立专家可以重复分析。
+关于CDC这项最新的指导意见，笔者有非常大的担忧。完全接种疫苗后又重新感染病毒的报导屡见不鲜。据美联社近期报导，在完全接种新冠疫苗后，纽约扬基队队员托雷斯仍被检测出新冠病毒阳性。
 
-最后，在一些国家出现不幸的反亚裔情绪的时候，我们注意到，在大流行病开始时，是中国的医生、科学家、记者和公民与世界分享了关于病毒传播的重要信息–往往要付出巨大的个人代价（8，9）。我们应该表现出同样的决心，在这个困难而重要的问题上促进冷静的科学讨论。
+笔者认为，在彻底了解病毒前，靠匆匆忙忙研制出的疫苗来解决新冠大流行问题，完全不切实际。最根本的解决方法，是尽快对新冠疫情的起因追根溯源。只有了解了病毒的源头，才可以尽快研究出有针对性的预防和治疗方案，尽快结束这场人类有史以来最大的生存危机。
 
-原文链接：[https://www.zerohedge.com/covid-19/group-scientists-insist-covid-19-lab-leak-theory-deserves-further-investigation?utm\_source=feedburner&utm\_medium=feed&utm\_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29](https://www.zerohedge.com/covid-19/group-scientists-insist-covid-19-lab-leak-theory-deserves-further-investigation?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+编辑/校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
