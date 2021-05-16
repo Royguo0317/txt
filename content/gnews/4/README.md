@@ -1,53 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 音乐作品《愿》
-` 经济金融组` [轉載自GNews](https://gnews.org/zh-hans/1246703/)
+## 【一线新闻】华裔参选纽约洲市议员——法拉盛华人现象一窥
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1246852/)
 
-供稿
-作曲：Kevin 卡卡
-作曲、编曲：Kevin 卡卡 强子
-视频、字幕：二丫
+前方记者：纽约香草山记者站 Kathy（文艺）
+记录/校对：纽约香草山记者站 熊井（文兰）
 
 
 
-太初有道,道与神同在——约翰福音1:1
-In the beginning was the Word,and the Word was with God
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-我就是道路、真理、生命——约翰福音14：6
-I am the way、the truth、and the life
 
-正义绝不会缺席
-Justice will not be absent
 
-时间慢慢流逝
-Time goes by slowly
+今天我有幸在法拉盛公园街道旁，见到一位年轻的华裔青年陈海霖先生正在竞选纽约洲市议员。
 
-也许我们已经不再年轻
-Maybe we are no longer young
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15215820/48-4.jpg)
 
-这场灾难夺去了无数人的生命
-This disaster claimed the lives of countless people
+记者：陈海霖先生你好，首先请你向我们简单介绍一下你的背景、你的故事以及你为什么参选？参选的是哪个党派？是什么席位？谢谢。
 
-渴望自由飞翔
-Desire fly freely
+陈海霖先生：大家好，我是陈海霖，是法拉盛市议员的侯选人，来自福建。我十四岁来到美国，在美国上的高中和大学，一路以来都是半工半读的。我这次参选是希望能够动员更多的年轻人参与政治，能够真正为我们社区服务，对社区建设做出贡献。
 
-没有暴徒,只有暴政
-There are no rioters,there’s only tyranny
+目前的疫情非常严重，我们需要有一位既有能力，又有经验，而且更有活力的市议员出来，代表我们社区在市议会上能够提出在餐馆、旅游业、交通等方面的援助。各行各业都已经饱受风霜，如今需要一位有很强领导能力的人物出来。相信我有能力做到，也相信有更多有活力、有能力的人参与！
 
-放下负担奔向新生命
-Let go of the burden and run towards a new life
+记者：简单介绍一下你的工作背景好吗？
 
-人类应当对自然深怀敬畏
-Humans should have a deep awe of nature
+陈海霖先生：最初我是Uber 司机，后来成为一名工会领袖，然后我带领着司机参加了司机独立工会，为他们争取到了最低工资，争取到了司机福利等等服务……这两三年我们成绩斐然，而且提出了一些从来没有的法案，能够保护新型企业员工。
 
-我们需要反思、祈祷
-We need to reflect and pray
+记者：你是哪个党派？
 
-请感恩你现在还拥有的美好
-Please be grateful for the beauty you are having now
+陈海霖先生：我是民主党。六月份的选举是重中之重，因为六月份只有真正的民主党选民才能投票。现在还有两个星期的登记投票时间，希望大家踊跃地去登记、投票，支持我们华裔的侯选人代表我们的社区，代表我们社区的利益。
 
-你不要害怕,因为我与你同在——以赛亚书41：10
-Fear thou not,for I am with thee
+![]()![](https://media.discordapp.net/attachments/842077566089429023/843177178609876992/IMG_2286.PNG?width=1319&amp;height=609)
+
+记者：请你对现任拜登政府执政后的成效做个简短评价好吗？
+
+陈海霖先生：我认为拜登政府上任100天成绩斐然。尤其在疫苗分配上，政府能够达到全美整个群体开放，短短两三个月做到这一步是非常不容易的。这份热情如果能够继续下去的话，对整个国家、对纽约都有巨大的帮助。这次州政府也拿到了联邦政府的经费，对整个纽约的全部民众是非常好的援助！
+
+记者：你认为他和前任交接当中有哪些是可取的？而且是接续前任的做法？
+
+陈海霖先生：拜登上台后，他非常努力，每一天都在为民众服务，这次对餐饮业的援助也是拜登政府通过国会增添了一个法案。但这援助是远远不够的，因为我们有更多的民意代表、议员在联邦政府为我们发声，才能争取到我们应得的福利。因为纽约洲是最大的捐款洲，我们拿自己的钱补贴其他洲，这是不应该的，所以这一笔我们应得的钱一定要拿到的。为社区提供全方位的语言环境，提供双语服务，如中文服务及其他服务。选人不选党！
+
+记者：谢谢你精彩的发言，也希望你这次的竞选能够成功，我会向大家推荐，感谢你，祝福每位工作人员，谢谢！
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0

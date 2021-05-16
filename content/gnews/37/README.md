@@ -1,45 +1,113 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共延迟发放巴西科兴疫苗原材料
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1245665/)
+## 【战友心声】追忆先烈英雄们
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1246297/)
 
-作者：纽约香草山健身部 童谣
+作者：香草山美食部 新世界的一员
 
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14021704/logo-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
 
 
-据路透社报道，巴西生产科兴生物疫苗的原材料即将要告罄，因为一批原材料发货在中共国出口清关环节上延迟。此前巴西总统博索纳罗曾暗示中共国在“实验室”制造新冠病毒，以进行“生化战争”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15152424/1-142.jpg)
-巴西总统在病毒问题上，属于首位敢于站出来暗示中共病毒实验室来源，和生物武器超限战的总统。被戳中痛点的中共，倚仗早就布局下的“疫苗外交”战略，利用限制中共科兴疫苗原材料出口的方式，来报复巴西总统的言论。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15175912/%E3%80%90%E6%88%98%E5%8F%8B%E5%BF%83%E5%A3%B0%E3%80%91%E8%BF%BD%E5%BF%86%E5%85%88%E7%83%88%E8%8B%B1%E9%9B%84%E4%BB%AC.png)
 
-并有自己长期蓝金黄渗透的外国代理人给巴西总统施压。巴西圣保罗州州长将这次供应延迟归咎于巴西方面的“外交敌意”，认为巴西政府应该为自己严厉批评中共国而向北京方面道歉。
+嘿，伟大的战友
 
-但是此举没有得到巴西总统博尔索纳罗办公室的任何回应，同时一贯战狼作风的中国驻他国大使馆也不予置评，连这次中断疫苗原材料的报复行动都是偷偷进行，可见真正令中共害怕的正是就病毒来源和生物武器方面的辩论，或者说，世界就中共病毒真相的任何探讨，都令中共噤若寒蝉。而巴西总统的侧面暗示，也只是这片灭共波涛中的一朵小小的浪花。激发中共在疫苗供应输出方面的阻断，也是巴西总统用直面中共病毒的勇气换来的最好回报，将避免中共疫苗在巴西引发的更大次生灾难。
+你们看，自由民主之旗
 
-素材来源：
+已经升起
 
-https://www.reuters.com/article/%E5%B7%B4%E8%A5%BF%E5%B0%86%E6%9A%82%E5%81%9C%E7%94%9F%E4%BA%A7%E4%B8%AD%E5%9B%BD%E7%A7%91%E5%85%B4%E7%96%AB%E8%8B%97%EF%BC%8C%E5%9B%A0%E4%B8%AD%E6%96%B9%E5%8E%9F%E6%9D%90%E6%96%99%E5%8F%91%E8%B4%A7%E5%BB%B6%E8%BF%9F-idCNL4S2N004A
+嘿，虽没谋面的战友们
 
-校对/发稿：火内
+你们听，自由之歌响在云霄
+
+是你们的无私，是你们的奉献，是你们的脚步，带动的自由信念
+
+嘿，战友们，我又流泪了
+
+是因为你们远离了我们，
+
+是因为我们已无法有机会相见
+
+可我们永远记得你们
+
+嘿，战友，我们在2020的64建立了新中国联邦
+
+嘿，战友，我们在不同的维度一起庆祝新中国周年生日
+
+战友们也很幸福吧
+
+我们有了无私无畏无我的七哥，
+
+所以我们胜了
+
+为了承接你们的信念，为了实现你们的理想，为了子孙后代，七哥常以身作诱饵，一人之力战整个邪恶集团，准备了三十年的七哥，用四年爆料定下了中共的犯人类罪
+
+黑夜现曙光，照亮东方的天
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15014027/5%E6%9C%88-1.jpg)
 
+嘿，战友
+
+天使虽柔美，却侠骨义胆
+
+英豪们虽老少不一，个个勇气万丈，
+
+聚集的正义联盟
+
+誓将歼灭外来幽灵共产党
+
+五千年不知民主的炎黄子孙，
+
+在先烈们的脚印下，
+
+在郭先生的指引下，
+
+开创了万世伟业，公平公正的法制社会
+
+你们的血没有白流，终于迎来了胜利果实，你们没有白白牺牲，中共它完了，
+
+你们不是六君子
+
+我们也不是愚民
+
+正义来到，
+
+我们
+
+要拿共匪的病毒灭共匪
+
+欢庆的日子，相聚在盘古
+
+不久的日子，蓝旗飘扬在中华大地时，你们将受到万众的祭奠
+
+不是为了给你们名誉，而是因为我们要给你们正名，
+
+你们是中华英雄，
+
+你们是伟大的，
+
+你们应得后世子孙铭记
+
+没有红妖的中国人民，将开创出新的文明新的时代，屹立在世界上，成为和平发展的重要力量！
+
+
+
+校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-+2
++1
