@@ -1,115 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【班农战斗室】946-947-948期简讯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1244778/)
+## 《文贵说》| 图片连载（八十二）
+` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/1245956/)
 
-#### 翻译：七彩光
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15151811/G2101016_X_CN.jpg)
+**人要长德，德如长江。**
 
-#### 校对/编辑：文泓
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15070105/946-948.png)
-**图片来源：墨尔本雅典娜农场设计组（精灵蓝）**
+**—— 郭文贵先生 2017年10月8日**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15151827/G2101017_X_CN1.jpg)
+**亲爱的义工们你们是郭先生身后一双双强有力的手！一起加油！**
 
-**主持人：史蒂夫****.班农**
+**—— 郭文贵先生 2017年10月12日**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15151845/G2101018_X_CN_1.jpg)
+**新中国联邦不是任何人能撑住的，必须是有亿万个战友，每个人都觉得自己不重要，这是不对的，你们每个人都很重要。**
 
-嘉宾：Rabbi Spero, Boris Epshteyn, Raheem Kassam, Matt McCall, Dr. Joseph Mercola, Liz Yore, Saurabh Sharma, Mark Finchem, Darren Bettie, Cindy Chafian
+**—— 郭文贵先生 2020年7月4日**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15151903/G2101019_X.jpg)
+**我们是否发自内心的，真正的有勇气、干净的追求消灭共产党，不惜一切代价地要建立自己的信仰和尊严？战友们这个你问你自己去，我没有权利给你答案。**
 
-#### **1、针对马里科帕县审计，班农说：你们说的很对，对于揭露拜登（选举）的非法性而言，选举审计太“危险”**
+**—— 郭文贵先生 2020年7月4日**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15151921/G2101020_X_CN.jpg)
+**新中国联邦宣言能，干翻共产党、消灭共产党、推翻共产党，咱能不能推翻咱骨子里边、咱内心世界的毒？**
 
-班农说，马里科帕县监事会在一件事上是正确的：选举审计是“危险的”，但只针对他们。
+**—— 郭文贵先生 2020年7月4日**
 
-“你可知道为什么它是危险的，因为我们正在弄清选举的真相”，他在周五的《战斗室》节目中说：“你们说得太对了，这很危险。”
 
-“这对每个不称职的人和每个渎职的人来说都是危险的”，班农说：“不把这件事查个水落石出，我们不会停止。”
 
-班农对CNN和安德森•库珀发起了挑战，他们似乎对亚利桑那州的选举审计非常紧张，请他们阅读凯伦•范恩揭露马里科帕县删除投票机证据的信件。
+- **更多精美海报请点击:**
+- [***Getome 文贵说｜Words From Miles***](https://getome.com/user/wordsfrommiles)
+- [***G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4#getter)
 
-【备注：安德森·库珀（Anderson Hays Cooper，1967年7月3日－），美国记者、新闻主播和作家，同性恋者。2010年，他主要主持的节目是CNN的《Anderson Cooper 360°》】
 
-“你们必须弄清武汉（病毒实验室）的真相，正如必须弄清2020年11月3日选举的真相一样”，班农说：“而我们不能无视它，也不会忽视它，因为我们正在赢取这两方面的胜利。”
-
-“他们不得不把斯泰西•艾布拉姆斯带出来，我不在乎你是否不喜欢她的政治观点，但她是一个固有的（反对审计）力量，”班农说。
-
-【备注：斯泰西·艾布拉姆斯（Stacey Abrams，1973年12月9日－）是美国政治家，律师，小说家和作家。2011年，她当选为佐治亚州众议院的民主党代表。她于2018年在佐治亚的中期选举中成为民主党州长候选人。斯泰西艾布拉姆斯是美国第一位黑人女性的州长候选人。】
-
-他说：“他们很紧张，这就是他们紧张的原因：我们有证据。”
-
-#### 2、鲍里斯·艾普斯汀抨击民主党“圣战小队”：正是你们的错误导致了今天以色列流血事件
-
-鲍里斯·艾普斯汀（Boris Epshteyn）对民主党的“圣战小队”以及他们如何破坏美国与以色列的关系进行了前所未有的抨击。
-
-“六个月前，我们有一个与以色列站在一起的美国，它切断了对巴勒斯坦人的资助，与伊朗作斗争，与中东的好朋友站在一起，大使馆迁址（耶路撒冷）……这就是川普领导下的美国，”艾普斯汀周五在《战斗室》节目中说。
-
-艾普斯汀说：“但在乔•拜登（Joe Biden），或苏珊•赖斯（Susan Rice）‘总统’，或罗恩•克莱恩（Ron Klain）‘总统’的领导下，不管是谁在真正管理这个国家，也许（现在）真是奥巴马总统在履职他的第三个任期。美国没有对以色列的强烈支持，有的只是模棱两可……当然让哈马斯这些坏家伙更加胆大妄为。”
-
-艾普斯汀抨击拜登政府是一个“令人厌恶的、可怕的、可悲的失败者”，他们正在支持众议院的“反犹太主义核心小组”。
-
-他说：“众议院中那些可怕的、令人厌恶的家伙们，即’圣战小队’，今天以色列出现流血事件正是他们的错。”
-
-艾普斯汀警告那些反对以色列的人。
-
-“以色列经受住了这些攻击，它将再次获胜”，他说：“那些针对以色列，针对犹太人民的人们将会这一天的到来而后悔。”
-
-“无论圣战小队在众议院怎样大喊大叫，乔•拜登还是一个在椭圆形办公室里不知道今天是什么日子的可悲的软弱老人，谁都无法改变这一点，”艾普斯汀说。
-
-#### 3、拉比斯佩罗为以色列祈祷
-
-拉比阿里.斯佩罗在周五的《战斗室》中为以色列，也为美国祈祷。“请赐予我们力量，不要动摇，也不要失去我们的精神和信心，”他说。
-
-【备注：阿里.斯佩罗（Rabbi Aryeh Spero）是“美国核心小组（Caucus for America）”主席，也是《反击：拯救我们美国犹太-基督教遗产的战斗》的作者；美国核心小组（Caucus for America ）是致力于维护和促进国家历史悠久和独特美国文明的组织。】
-
-“致我们的以色列兄弟姐妹，他们是来自恐怖圣战组织哈马斯的2000枚火箭弹的目标，”斯佩罗说。
-
-“正如先知耶利米警告的那样，‘没事了’，‘和平了’，但实际情况却很糟。”
-
-#### 4、班农：工人阶级中的天主教徒（善款）被抢劫，用以支付腐败教皇的3.5亿美元伦敦房产交易
-
-班农痛斥梵蒂冈的洗钱丑闻，并指出教皇直接参与（此事）。
-
-班农周五说：“我们把来自工人阶级天主教徒的数以亿计的英镑输送到美国的天主教堂。”
-
-“要明白这些钱没有进入中非，或中东地区来拯救教会……或支持地下天主教会……它们进入了伦敦西区的切尔西，与俄罗斯寡头和阿拉伯酋长一起购买房地产。”
-
-尤尔儿童基金会（Yore Children）的创始人利兹•尤尔（Liz Yore）说，梵蒂冈正在为切尔西3.5亿美元房产交易的意大利经纪人吉安路易吉•托齐(Gianluigi Torzi)设局，让他成为“替罪羊”。
-
-她说：“他（托奇）动用了慈善捐款，动用了教皇的慈善资金……来购买这处房产。”
-
-#### **5、梅科拉博士警告说，反对接种中共病毒疫苗，背后推动的人应该被关进监狱**
-
-《Covid-19的真相》一书的作者约瑟夫•梅科拉（Joseph Mercola）博士说，任何有理性的人都不应该接种实验性的covid疫苗，这种实验性疫苗造成的死亡人数超过了以往15年中所有接种疫苗死亡人数的总和。
-
-“这太可恶了”，梅尔科拉博士周五告诉《战斗室》：“这背后的人应该被关进监狱，终身监禁。”
-
-梅科拉解释说，这些疫苗被归类为“未知疫苗”，就像艾滋病毒或疟疾一样，通常需要12至15年的时间才能投放。
-
-“那么我们有什么呢，不顾科学原理的操纵研发，在不到一年的时间里推出（疫苗）”，他说：“这在技术上是不可能实现的。”
-
-梅科拉说，大药厂“破坏了安全试验”，“破坏了统计科学”。疫苗在阻止传播方面并没有超过90%的效果，而是在减少症状方面。但是症状的实际减少是多少？只有1%。
-
-“这个无关党派问题”，梅科拉博士说：“这是一个科学问题。”
-
-“孕妇没有被包括在这项（疫苗）试验中，这只是一个例子，我会给你举出更多的例子，解释为什么你应该重新考虑接种这种疫苗，”他说。
-
-“他们排除了所有孕妇，这是他们应该做的，这是谨慎和预防的”，他说：“然而三周前，美国疾控中心（CDC）出来说，孕妇应该接种这种疫苗。这是应受谴责的渎职行为。”
-
-梅尔科拉博士说，已经接种疫苗的妇女报告说，孕妇流产的百分比是大约三分之一，而通常（流产）是不到5%。
-
-“到目前为止，我们已经有超过4000人死亡，这比过去15年任何疫苗的死亡人数总和还要多，”梅科拉博士说。
-
-梅科拉博士强调服用维生素D（像福奇博士那样），并说疫苗的替代方法是优化你的免疫系统。
-
-参考资料：[维基百科](https://www.wikipedia.org/)
-
-原文链接：
-
-1.  [Bannon on Maricopa Audit: ‘You’re Damn Right It’s Dangerous’ — to Exposing Biden’s Illegitimacy](https://warroom.org/2021/05/14/bannon-on-maricopa-audit-youre-damn-right-its-dangerous-to-exposing-bidens-illegitimacy/)
-
-2.  [Boris Epshteyn Unleashes on Democrat ‘Jihad Squad’: ‘It Is Their Fault There is Blood in Israel Today’](https://warroom.org/2021/05/14/boris-epshteyn-unleashes-on-democrat-jihad-squad-it-is-their-fault-there-is-blood-in-israel-today/)
-
-3.  [Rabbi Spero Delivers Prayer for Israel](https://warroom.org/2021/05/14/rabbi-spero-delivers-prayer-for-israel/)
-
-4.  [Bannon: Working Class Catholics Robbed to Pay for Pope’s $350 Million Corrupt London Property Deal](https://warroom.org/2021/05/14/bannon-working-class-catholics-robbed-to-pay-for-popes-350-million-corrupt-london-property-deal/)
-
-5.  [Dr. Mercola Warns Against Covid Vaccines: ‘The People Behind This Should Be Put in Jail’](https://warroom.org/2021/05/14/dr-mercola-warns-against-covid-vaccines-the-people-behind-this-should-be-put-in-jail/)
-
-+2
++1

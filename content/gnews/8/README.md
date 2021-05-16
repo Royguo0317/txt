@@ -1,41 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲呼吁在中共病毒疫情上赋予世卫更多权力
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/1244910/)
+## 马里科帕郡审计才1/4已发现大量违规选票
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1246484/)
 
-翻译&评论：Shirley
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15074748/IMG_9147.jpg)网络截图
-正在访问华盛顿的澳洲外交部长佩恩（Marise Payne）指出，一个独立小组建议的“关于提高世卫组织的独立性和权威性，以便他们有明确的权力调查具有大流行威胁的病原体，并公布关于这些潜在爆发的信息，无需事先得到各国政府的批准就能立即采取行动，”是非常重要的。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-由利比里亚前总统瑟利夫（Ellen Johnson Sirleaf）和新西兰前总理克拉克（Helen Clark）领导的独立小组发现，世界卫生组织对2019年12月在中国武汉爆发的疫情的早期反应“缺乏紧迫性”，认为这种已造成至少330万人死亡并损害了全球经济大流行病，本来是可以预防的。
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15200119/M-3.jpg)azcentral.com
+正如笔者的跟踪报道，亚利桑那州马里科帕（Maricopa）郡的选票审计工作，因征用的老兵体育馆要为当地高中毕业生举行典礼而暂停一周。
 
-澳洲总理莫里森（scott morrison）于去年4月也曾敦促赋予世卫组织更多的权力，即允许国际卫生官员未经邀请便进入某个国家调查疾病爆发的源头，类似武器检查员的权力，以应对未来的疫情爆发。
+《门道专家》（the Gateway Pundit）发表文章，“马里科帕郡的选票审核暂停一周，从只统计了大约25%的情况来看，已经发现大量的违规行为。”【1】
 
-前往中共国参与世卫组织调查病毒起源的小组成员，共有14位。澳洲的唯一小组成员，传染病专家多德怀尔（Dominic Dwyer）曾表示，中国政府拒绝提交所拥有的数据。
+文章说，亚利桑那州马里科帕郡的选票审核工作将暂停到下周末，因为选票审计所用地将用于高中毕业生的典礼。审计工作必须在星期五结束，所有设备和选票都将被储存一周，在恢复审计之前，选票和设备将由武装安保人员看管。
 
-众所周知，疫情爆发最初几天的原始数据至关重要。况且中共提供的174个早期病例中，只有一半接触过武汉的华南海鲜市场，怎么能确定疫情始发于海鲜市场呢？
+亚利桑那州参议院共和党人正在手工重新计算210万张马里科帕郡的选票，在只有大约25%的选票被重新清点的情况来看，大规模的违规行为已经被发现。
 
-这次能够抵达中共国参与调查病毒起源的世卫组织成员，都是经过中共同意的。话句话说，这些人都是对中共比较友好的，且有相当部分是被中共“蓝金黄”过的。那么他们写出的报告，怎么会是没有受到中共国的干预？
+正如《门道专家》权威人士先前报道的那样，马里科帕郡的选票审计员报告说，他们发现箱子中的实际选票数量与批次报告单标注的数量之间存在“重大差异”。
 
-不仅调查人员的挑选需要中共国的同意，而且在他们到达以后，所有的行程，包括翻译以及见到的人员都由中共国安排，调查人员也被禁止与普通民众见面。简言之，世卫的调查就是中共安排的一场戏，调查人员见到的所有人都是演员。
+州参议院现在要求马里科帕郡官员下周二出席一个会议，回答有关他们发现的“严重问题”。
 
-试想一下，如果世卫组织的调查人员不需中共国的允许，以最快的速度进入武汉、并进行自主的检查，那么现在的大流行还会发生吗？
+审计人员已经报告了许多箱子中5-15%的差异，而且这个数字一直在增长，根据11月的官方结果，乔·拜登应该只以2.2%的领先票数率赢得该郡。
 
-（本文仅代表个人观点）
+政治战略家鲍里斯·艾普斯泰恩（Boris Epshteyn）在出席史蒂夫·班农（Steve Bannon）《战斗室》（War Room）节目时说，这一差异实际上可能高达17.5%——使他相信“拜登没有赢得亚利桑那州”是很可能的。
 
-审稿：Gradient Boost
+《门道专家》权威人士此前报道说，亚利桑那州参议院议长卡罗尔·范恩（Carol Fann）最近致函马里科帕郡监事会，概述了审计中已经发现的重大问题，并提出在不追加传票或强制行动的情况下解决这些问题。在班农的广播节目上，爱普什坦（Epshteyn）说，这封信揭示了“在托盘五，第2976批次，（声称）总共200张粉红通知单，实际总数为165张，这一批选票，他们少了35张通知单，200中的35是17.5%，200中的10是5%。”
 
-新闻参考链接：
+“你知道这有多令人震惊吗？” 他补充道，“一批中有17.5%的差异令人难以置信，（若是）9%的差异（能接受），（现在情况是）高于预期，（接近）18%。再说一遍，如果我们要对这个国家的选举有信心，我们怎么可能对两位数的百分比差异感到满意呢？这绝对是令人难以置信的，任何超过一小部分百分比的事情都是不可接受的。顺便说一句，根据联邦选举委员会的说法，这都是不可接受的。”
 
-[The Australian](https://www.theaustralian.com.au/nation/politics/pressure-on-china-to-deliver-the-facts-on-covid19-origins/news-story/57b7ba694209fc76e31b3134984a5317)
+（全文完）
 
-[SBS News](https://www.sbs.com.au/chinese/mandarin/zh-hans/scott-morrison-wants-to-arm-who-with-powers-of-weapon-inspectors)
+选票数量对不上，只是问题之一，罗尔·范恩议长已经至信监事会，列出三大问题【2】，要在下周二等待答复，看作假者们如何收场！
 
-[Yahoo](https://au.news.yahoo.com/australia-calls-empowering-covid-panel-212112598.html)
+相关链接：
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+【1】[https://www.thegatewaypundit.com/2021/05/maricopa-county-ballot-audit-paused-massive-irregularities-already-found-roughly-25-counted/](https://www.thegatewaypundit.com/2021/05/maricopa-county-ballot-audit-paused-massive-irregularities-already-found-roughly-25-counted/)
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-澳喜Logo.jpeg)
+【2】[https://gnews.org/zh-hans/1239571/](https://gnews.org/zh-hans/1239571/)
+
 0

@@ -1,17 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 跑步去接种疫苗的合肥市民们的前方是医院还是火葬场
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1244262/)
+## 俄政府批准2035年前石油与天然气开发计划
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1245949/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15025248/%E5%B0%81%E9%9D%A299999999999999.png)
-据[**猫头鹰视频**](https://weibo.com/5444894547?refer_flag=1001030103_) [2021年5月15日14：05](https://weibo.com/5444894547/KfzD15Y0w?from=page_1002065444894547_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-[#*合肥市民奔跑抢着去打疫苗*#](https://s.weibo.com/weibo?q=%23%E5%90%88%E8%82%A5%E5%B8%82%E6%B0%91%E5%A5%94%E8%B7%91%E6%8A%A2%E7%9D%80%E5%8E%BB%E6%89%93%E7%96%AB%E8%8B%97%23) 【*合肥*突发疫情升级中风险地区，医院一开门*市民*就*抢着打疫苗*】5月15日，安徽*合肥*，在突发疫情升级为中风险地区之后，*市民*们都*抢着去*医院*打疫苗*。安徽提醒广大公众，近期非必需不要前往*合肥*等中风险地区。（来源：[@猫头鹰视频](https://weibo.com/n/%E7%8C%AB%E5%A4%B4%E9%B9%B0%E8%A7%86%E9%A2%91) ） [L猫头鹰视频的微博视频](http://t.cn/A6VLWo6o) ​
+编辑上传 水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15145737/D-5.jpg)resourceworld.com
+05月15日，俄政府已经批准了由能源部制定的石油和天然气工业发展的总体计划，该计划计划持续到2035年。内阁新闻处对此进行了报告。
 
-这些蜂拥涌向医院接种中共疫苗的合肥市民们，他们有多少会因接种疫苗而致死致残？他们有多少即使不致死致残但因体内被埋下的不定时生物炸弹何时会引爆？这如潮的人流让我们非常无奈的相信一点，那就是冥冥之中每个人的命运都有定数。中共的防火墙带给十四亿同胞的不仅仅是信息鸿沟，它带给十四亿同胞的更是认知鸿沟，相信共产党走进火葬场，在这些跑步进入医院的人流前方的到底是医院呢还是火葬场呢？
+声明说：“批准2035年前俄罗斯石油和天然气工业发展总体计划草案。”
 
-（文章内容仅代表作者个人观点）
+此前，自然资源和环境部部长亚历山大·科兹洛夫（Alexander Kozlov）在接受俄罗斯广播公司（RBC）采访时表示，按照目前的生产水平，俄罗斯的石油储备是59年，天然气是103年。同时，科兹洛夫补充说，如果在偏远地区增加勘探，就有可能增加新的储量。
 
-+2
+2021年4月初，俄联邦地下土壤资源管理局局长叶夫根尼·基谢廖夫（Evgeny Kiselev）在接受《俄罗斯报》采访时说，俄罗斯的石油储备将足够使用58年，其中只有19年是盈利的。
+
+参考链接：
+
+[https://www.rbc.ru/rbcfreenews/609fa6659a79473fae32a337](https://www.rbc.ru/rbcfreenews/609fa6659a79473fae32a337)
+
+0
