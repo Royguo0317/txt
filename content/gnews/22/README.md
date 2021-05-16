@@ -1,51 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】Colonial输油管骇客事件再度反转：Darkside黑客系统惨遭骇客
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1246919/)
+## 亚利桑那州参议员率众为选举审计祈祷
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1246979/)
 
-作者：纽约香草山健身部 文真
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15225524/A-16.jpg)newsvideoclip.tv
+选举审计暴露的问题愈多，抵赖、搅局的程度就会愈烈，在参议院议长凯伦·范恩（Karen Fann）发给监事会主席塞勒斯（Sellers）公开信后【1】，监事会当天紧急会议，决定在参议院下周二听证会的前一天，即周一要召开“辟谣”会，否认“删除数据”等指责。这种抵赖符合欺诈舞弊者的行事逻辑，认罪？还没到彻底暴露的时候；默认？那是等死；与其等死，不如再搏。
 
+川普总统在今天（5月15日）的声明中透露，亚利桑那州总检察长将被迫调查选举相关的罪行【2】。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+有信仰的人在祈祷，祷告上帝拯救美国！
 
+《我爱川普》（We Love Trump）网站发表文章，“亚利桑那州参议员凯利·汤森德（Kelly Townsend）率众，以耶稣的名义为亚利桑那州审计进行强大的祈祷！”【3】
 
+文章说，这就是我们需要为民选官员要做的……
 
-Colonial输油管骇客事件发生后的一周内，美国东南部各州油价均大幅攀升，多地居民抢购加油，导致当地加油站关闭、断油情况不断发生。本周四5月13日，有匿名美国官员向媒体透露，为阻止断油恐慌升级导致负面社会影响加剧，Colonial公司已同意向Darkside黑客犯罪组织支付5百万美元赎金，以便在最短时间内恢复输油管道运营。这一“认怂”行为引起美国民众惊呼，纷纷批评不应轻易使用纳税人的钱支付黑客犯罪集团的勒索赎金，认为这样做将会纵容网络黑客犯罪。但就在5月14日周五，这一轰动的骇客事件再度经历反转，Darkside被爆出遭到骇客打击。
+有力的祷告，恭敬的姿态，祈求上帝拯救这个国家！
 
-据称，Darkside在暗网的网站目前已无法访问。安保公司“Recorded Future”威胁情报分析师发现，在勒索软件网站上的一则俄语消息透露，Darkside目前已失去对其构架内公开访问部分，例如博客、支付系统和DOS服务器的管理权限，更有加密货币从存放勒索赎金的支付服务器中被取走的消息。尽管没有确凿的证据证实谁是Darkside骇客行动的幕后执行人，但在周五，美国军事网络战小组的推特账号 “the 780th Military Intelligence Brigade”转推了Recorded Future公司的报告。
+就像圣经上说的，“这称为我名下的子民，若是自卑、祷告，寻求我的面，转离他们的恶行，我必从天上垂听，赦免他们的罪，医治他们的地。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15222233/49-6.jpg)新闻截图
+还有人记得这个吗？
 
-黑客在暗网通常以加密货币交易方式收取赎金。Darkside勒索赎金不成，反遭骇客，损失惨重。“魔高一尺，道高一丈”，“以其人之道，还治其人之身”，这一场网络战赢得实在精彩！从Darkside被黑瘫痪的系统可以推测，此前同意支付赎金是Colonial在故意“认怂”，从而利用电子交易，借机打开通向其服务器的缺口。这一现象说明，美国已经掌握了电子货币的追踪能力。通常认为的电子货币交易去中心化、不易追踪，似乎只适用于普通科技手段。郭先生在今日的盖特视频中爆料——美军应对犯罪组织的技术是常人无法预想的，其“斩首行动”的手段更是五花八门。在掌握各种高科技手段的美军面前，任何犯罪组织最终都只能“搬起石头砸了自己的擀面杖子”。中南坑的老杂毛们如果继续作恶，为祸世界，那么迟早会收到专门为他们量身打造的“斩首”惊喜。
+这正是美国现在所需要的，感谢参议员凯利·汤森带来的这种祈祷！
 
-参考阅读：
+以下是完整的笔录：
 
-[Colonial Pipeline paid $5 million ransom to hackers](https://www.cnbc.com/2021/05/13/colonial-pipeline-paid-ransom-to-hackers-source-says.html)
+主啊，我们今天在您面前跪拜。
 
-[Servers Of Colonial Pipeline Hacker Darkside Forced Down: Security Firm](https://www.barrons.com/news/servers-of-colonial-pipeline-hacker-darkside-forced-down-security-firm-01621002013)
+我们看到危险即将来临，我们看到乌云已经升起，但我们并不害怕，因为我们知道有一大群天使围绕着我们。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+上帝，我们恳求您揭开这个骗局！
 
-编辑/校对/发稿：Irene木木
+上帝啊，让揭发者的心充满力量，免得他们丢了工作，还有更好的工作等着他们。
 
-**更多资讯，更多关注**
+主啊，不要让金钱和安全成为我们闭口不谈的东西，而要让我们开口说出所发生的事情的真相。
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+让那些企图破坏你们赐予我们的伟大国家自由的人承担责任，上帝。
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+主啊，我以耶稣基督的名义，为这个州，为这个国家，为这个全世界说话，这得益于我们所经历的自由，上帝。
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+我们以您耶稣基督的名字说，您把事情办妥了，您揭开了秘密，让我们明白了，我们要追究这些人的责任。以您上帝的名义，谁将被追究责任，主啊！
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+我们以耶稣基督的名义说出这些。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+阿门。
 
+（原文完）
 
+参考链接：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+【1】[https://gnews.org/zh-hans/1239571/](https://gnews.org/zh-hans/1239571/)
 
+【2】[https://gnews.org/zh-hans/1246573/](https://gnews.org/zh-hans/1246573/)
 
+【3】[https://welovetrump.com/2021/05/15/az-sen-kelly-townsend-leads-powerful-prayer-in-jesus-name-for-az-audit/](https://welovetrump.com/2021/05/15/az-sen-kelly-townsend-leads-powerful-prayer-in-jesus-name-for-az-audit/)
 
 0

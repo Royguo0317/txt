@@ -1,45 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月15日劳伦斯·塞林博士关于中共病毒推文集合
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1246665/)
+## 我们发现中共国军方与五角大楼 主要病毒研究之间直接联系
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1246507/)
 
-劳伦斯·塞林博士： 另一个重要发现 – [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 新冠侦探[@2020Gladiator](https://twitter.com/2020Gladiator)将两名中共科学家，史佩勇和王林发联系了起来，他们都隶属于(新加坡)杜克大学-国大医学院、武汉病毒研究所、和中国人民解放军。 【转[email protected] 的推文】
+翻译：康州盘古农场 – 格格巫
 
+校对：康州盘古农场 – TrueSky-
 
+编辑：康州盘古农场 – 傻小子
 
-> Another important discovery – [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@2020Gladiator](https://twitter.com/2020Gladiator?ref_src=twsrc%5Etfw) connects two Chinese Communist Party scientists, Pei-Yong Shi & Linfa Wang, both affiliated with the Duke-NUS Medical School, the Wuhan Institute of Virology & the People's Liberation Army. [https://t.co/LkKABlfEyc](https://t.co/LkKABlfEyc)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393513001978929152?ref_src=twsrc%5Etfw)
+发布：康州盘古农场 – 彩虹 Rainbow
 
+**据《门户专家》作者：乔·霍夫特（Joe Hoft），2021年5月14日报道：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15200356/vocfcoofll.png)
+**我们发现了中共国军方与五角大楼资助的主要病毒研究中心之间的直接联系**
 
+。劳伦斯·塞林（Lawrence Sellin）和安娜·陈（Anna Chen）
 
-劳伦斯·塞林博士： [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 新冠侦探[@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1)已很专业地绘出了德克萨斯大学医学分校的史佩勇的网络图，史佩勇似乎是 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 和解放军大规模渗透美国病毒研究实验室的一个关键人物。 【转 [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1) （火来2号）的推文】
+基于对中文文档和科学出版物的审查，我们认为，吉林省长春市的军事​​兽医研究所和人畜共患病研究所，由解放军金宁义将军和退休的夏宪柱将军领导，是中国生物战计划的核心要素。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15200348/xklsslsl.png)
+夏宪柱和金宁义至少有四个下属从事了大规模的国内外病毒收集工作，其中有何彪，范全水，涂长春和吴志强。
 
+何彪与第三军医大学的王长军一起在蝙蝠冠状病毒ZC45和ZXC21的分离中发挥了关键作用，中国吹哨人闫丽梦博士声称这是COVID-19的病毒主链。
 
+我们发现在吉林省的中国军方长春研究中心，与加尔维斯顿的德克萨斯大学医学分校（UTMB）之间有直接联系。
 
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) has expertly mapped the network of Pei-Yong Shi of the University of Texas Medical Branch, who appears to be a key figure in the massive infiltration of U.S. virus research labs by the Chinese Communist Party and the People's Liberation Army. [https://t.co/7okuBH0Eg5](https://t.co/7okuBH0Eg5)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393649829784477704?ref_src=twsrc%5Etfw)
+UTMB是一个主要的病毒研究中心，由国立卫生研究院（尤其是安东尼·福奇博士的国立过敏与传染病研究所（NIAID））大量资助。
 
+UTMB还是美国国防部资助的生物防御和新兴传染病中心的所在地，并且是为数不多的生物安全4级设施之一，用于遏制和研究世界上最危险的病毒。
 
+UTMB与中共国军方吉林省长春研究中心之间的关键联系人是施培勇。他曾在中华人民共和国接受培训，现在是UTMB生物化学与分子生物学系的教授。
 
-塞林博士： 独家：安东尼·福奇博士资助的研究使得中共国军方的史佩勇申请了专利。他一直在与中共国人民解放军合作。该资助是2021年福奇基金拨款926,569美元的一部分。 【附[http://thegatewaypundit.com](https://t.co/o7LjRSZiEI?amp=1)的特别报道】
+施培勇自2007年以来一直是武汉病毒学研究所的名誉教授，并从福奇的NIAID获得了超过500万美元的研究资金。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15200341/yyyy444.png)
+中共国军队在吉林省的长春研究中心与UTMB之间的关键联系人是王华雷。
 
+史施培勇和王华​​雷都被列为2020年10月6日发表的科学文章的合著者，但王华雷隐藏了他的军事隶属关系，这确实出现在2018年的中共国出版物中。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15200415/undee444.png)
+王华磊雷与吉林省中共国军方长春研究中心的负责人之一夏宪柱将军合影。
 
+王华雷磊被选入的“ 万人计划”，这是一个由10,000名高级人才组成的2012年国家计划，他们中的部分人专注于渗透和在全球范围内获取知识产权。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15200405/uuuup.png)
+在中共国受过培训的王田（Tian Wang）和林恩（Lynn Soong）是由福奇（Fauci的）NIAID支持的UTMB培训计划的负责人。林恩·宋（Lynn Soong）是五角大楼资助的UTMB生物防御与新兴传染病中心的成员。
 
-> EXCLUSIVE: Dr. Anthony Fauci Funded Research That Led to Patents for the Chinese Military
-> Pei-Yong Shi, who has been working with the Chinese People's Liberation Army, is part of a 2021 Fauci grant for $926,569.[https://t.co/lCKxJMpHUb](https://t.co/lCKxJMpHUb)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393581649154150402?ref_src=twsrc%5Etfw)
+我们目前正在调查UTMB与中共国军队之间的其他联系。
 
+劳伦斯·塞林（Lawrence Sellin）博士 从商业和医学研究的国际职业退休，在美国陆军预备役中服务了29年，并曾担任阿富汗和伊拉克的老兵。他的电子邮件地址是[email protected]。
 
+原文链接：
 
-劳伦斯·塞林博士： 哇喔。 俄亥俄州立大学前生物医学教授郑宋国被判37个月监禁，因他使用联邦补助帮助了中国医学研究。
+[https://www.thegatewaypundit.com/2021/05/breaking-exclusive-uncovered-direct-link-chinese-military-major-pentagon-funded-virus-researc/](https://www.thegatewaypundit.com/2021/05/breaking-exclusive-uncovered-direct-link-chinese-military-major-pentagon-funded-virus-researc/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-
-
-> Uh Oh.
-> Former biomedical Professor Zheng Songguo from Ohio State University Sentenced to 37 Months in Prison for Using Federal Grants to Aid China’s Medical Research.[https://t.co/31b2QnOJQo](https://t.co/31b2QnOJQo)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393622172766179328?ref_src=twsrc%5Etfw)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

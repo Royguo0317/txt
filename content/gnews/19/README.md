@@ -1,61 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亚利桑那州参议员率众为选举审计祈祷
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1246979/)
+## 【热点播报】印度媒体公开致信习近平，称其为“战争罪犯”
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1246998/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：香草山写作组 人间世
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15225524/A-16.jpg)newsvideoclip.tv
-选举审计暴露的问题愈多，抵赖、搅局的程度就会愈烈，在参议院议长凯伦·范恩（Karen Fann）发给监事会主席塞勒斯（Sellers）公开信后【1】，监事会当天紧急会议，决定在参议院下周二听证会的前一天，即周一要召开“辟谣”会，否认“删除数据”等指责。这种抵赖符合欺诈舞弊者的行事逻辑，认罪？还没到彻底暴露的时候；默认？那是等死；与其等死，不如再搏。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14021704/logo-1.jpg)
 
-川普总统在今天（5月15日）的声明中透露，亚利桑那州总检察长将被迫调查选举相关的罪行【2】。
 
-有信仰的人在祈祷，祷告上帝拯救美国！
 
-《我爱川普》（We Love Trump）网站发表文章，“亚利桑那州参议员凯利·汤森德（Kelly Townsend）率众，以耶稣的名义为亚利桑那州审计进行强大的祈祷！”【3】
 
-文章说，这就是我们需要为民选官员要做的……
 
-有力的祷告，恭敬的姿态，祈求上帝拯救这个国家！
+印度媒体《果阿纪事报》（Goa Chronicle）5月14日在其网站上刊发了一篇写给中共党魁习近平的公开信。信中直指习近平为“战争罪犯”，并称习近平和所有参与这场针对全人类的病毒攻击的人都将受到审判。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15231928/%E8%87%B4%E4%B9%A0%E4%BF%A1.png)
+公开信标题为“致习近平主席的公开信：新冠病毒大流行是中（共）国发起的全球生物战”。公开信发表前不久，《果阿纪事报》网站（GoaChronicle.com）被中共当局封禁。因此，该报主编不忘在公开信开头回以颜色：“请允许我感谢习近平主席和贵国政府，让我们可以和众多世界知名媒体并列在一起，成为你们封禁黑名单中的一员。”
 
-就像圣经上说的，“这称为我名下的子民，若是自卑、祷告，寻求我的面，转离他们的恶行，我必从天上垂听，赦免他们的罪，医治他们的地。”
+公开信特别强调，“我们的斗争不是针对中国人民。事实上我们热爱中国人民，爱他们的文化，他们的饮食和他们的顽强。我们的斗争只针对你和你的政府，为了主宰世界，你们成了无所不用其极的无赖。”
 
-还有人记得这个吗？
+公开信明确指出，新冠病毒不是“自然界的怪胎”，而是“人造生物武器”，并大篇幅引用闫丽梦博士（信中错误写作“Dr. Li Meng Yang”）的研究报告以为佐证，还直接套用闫博士报告中的结论：“科学证据和记录表明，目前的新冠病毒大流行不是功能增益产品被意外释放的结果，而是使用超限生物武器有计划的攻击。因此，当前的大流行应该被视为超限生物战所致。”
 
-这正是美国现在所需要的，感谢参议员凯利·汤森带来的这种祈祷！
+公开信最后表示，中共封禁GoaChronicle.com， “恰恰刺激了我们，激励我们更进一步，为全世界因COVID-19大流行而失去的320万无辜生命和每天因冠状病毒造成的混乱而备受折磨的数百万人争取正义”。
 
-以下是完整的笔录：
+“**在我个人看来，习近平主席，你必须作为战争罪犯，与其他所有参与这场针对全人类的残忍而恶劣之攻击的同谋，包括中（共）国和非中（共）国人，一起受到审判**。……是你，习近平，发起了这场针对全人类的战争，战争将以中（共）国成为世界的弃儿而结束。”
 
-主啊，我们今天在您面前跪拜。
+从公开信的内容来看，《果阿纪事报》是我们爆料革命的战友，他们不仅关注并支持闫丽梦博士，还旗帜鲜明地把中共和中国人分开，并已经清醒地认识到中国共产党的邪恶和无赖本质。我们由衷地祝愿印度人民能尽快战胜中共的病毒攻击，并希望有更多印度媒体和各界人士加入到全球灭共的队伍中来。
 
-我们看到危险即将来临，我们看到乌云已经升起，但我们并不害怕，因为我们知道有一大群天使围绕着我们。
+参考阅读：
 
-上帝，我们恳求您揭开这个骗局！
+[Open Letter to President Xi Jinping: COVID-19 pandemic is China’s global biowarfare](https://goachronicle.com/open-letter-to-president-xi-jinping-covid-19-pandemic-is-chinas-global-biowarfare/)
 
-上帝啊，让揭发者的心充满力量，免得他们丢了工作，还有更好的工作等着他们。
+发稿：369文驹
 
-主啊，不要让金钱和安全成为我们闭口不谈的东西，而要让我们开口说出所发生的事情的真相。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15014027/5%E6%9C%88-1.jpg)
 
-让那些企图破坏你们赐予我们的伟大国家自由的人承担责任，上帝。
+**更多资讯，更多关注**
 
-主啊，我以耶稣基督的名义，为这个州，为这个国家，为这个全世界说话，这得益于我们所经历的自由，上帝。
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-我们以您耶稣基督的名字说，您把事情办妥了，您揭开了秘密，让我们明白了，我们要追究这些人的责任。以您上帝的名义，谁将被追究责任，主啊！
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-我们以耶稣基督的名义说出这些。
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-阿门。
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-（原文完）
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-参考链接：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14021704/logo-1.jpg)
 
-【1】[https://gnews.org/zh-hans/1239571/](https://gnews.org/zh-hans/1239571/)
 
-【2】[https://gnews.org/zh-hans/1246573/](https://gnews.org/zh-hans/1246573/)
 
-【3】[https://welovetrump.com/2021/05/15/az-sen-kelly-townsend-leads-powerful-prayer-in-jesus-name-for-az-audit/](https://welovetrump.com/2021/05/15/az-sen-kelly-townsend-leads-powerful-prayer-in-jesus-name-for-az-audit/)
+
 
 0
