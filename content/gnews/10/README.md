@@ -1,30 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【拆台新闻】拆穿央视报道巴以冲突的目的
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1247557/)
+## Sellin上校号召病毒侦探寻找史佩勇教授与中共军方关系网
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1247587/)
 
-作者：【默凡】
+- 编译：【默凡】
+- 封面：七白石
 
-中共央视网消息：以色列军队15日持续对加沙地带展开空袭，以军称空袭了巴勒斯坦伊斯兰抵抗运动（哈马斯）包括地下火箭发射设施在内的多个军事目标。自14日白天至15日凌晨，加沙地带武装组织向以色列中部和南部地区发射超过150枚火箭弹。一枚火箭弹击中以色列南部阿什杜德港的一个油库，引发爆炸。
 
-14日，大批巴勒斯坦人在约旦河西岸地区举行示威，声援加沙地带和东耶路撒冷的巴勒斯坦人。示威者与以色列安全部队发生冲突，据巴勒斯坦红新月会说，以军向示威人群发射催泪瓦斯，甚至实弹开火，目前已有11名巴勒斯坦人死亡，另有500多人受伤。以色列方面称，正在调查有关“实弹Q杀”的说法。
+5月16日，Sellin上校连发两条推特，他强调美国德克萨斯大学加尔维斯顿医学分部史佩勇教授可能是中共军方大规模渗透美国病毒研究实验室的关键人物，号召所有病毒侦探调查从史佩勇的关系网中寻找与中共军方有联系的科学家资料。
 
-联合国公布的最新报告显示，本轮冲突以来，已经有大约1万名巴勒斯坦人被迫离开家园。这些人在学校等地避难，缺少食物和医疗服务，面临人道主义危机。联合国秘书长古特雷斯14日通过发言人表示，冲突有可能为巴勒斯坦被占领土和以色列，乃至整个地区带来不可控的安全和人道主义危机并助长极端主义。
 
-**评论：**
 
-**央视作为中共的喉舌早已被全世界所知晓，中共墙内收看央视新闻的人已经不多了，观众多为中老年人。央视的报道向来都缺乏客观性，数据造假，播报假新闻更是常有的事。央视以上这篇报道中明显有偏向巴勒斯坦的意思，缺乏报道的客观性。**
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) has expertly mapped the network of Pei-Yong Shi of the University of Texas Medical Branch, who appears to be a key figure in the massive infiltration of U.S. virus research labs by the Chinese Communist Party and the People's Liberation Army. [https://t.co/7okuBH0Eg5](https://t.co/7okuBH0Eg5)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393649829784477704?ref_src=twsrc%5Etfw)
 
-**央视在这篇报道中有意突出巴勒斯坦平民的惨状，夸大该地区是因为战争才出现人道主义危机，有意给墙内民众造成一种假象：这种惨状是以色列军队袭击造成的。而事实并非如此，哈马斯武装此次率先向以色列发起空袭，这几天已经向以色列发射两千多枚火箭弹，以色列之所以伤亡较少，很重要的原因是得益于以色列拥有“铁穹”导弹防御系统，拦截了大部分火箭弹，这也是以色列科技实力的体现。**
 
-**哈马斯的主动袭击必然招以色列的回击，哈马斯有意将火箭弹发射装置开至居民区进行发射，他们利用当地老百姓为掩护来袭击以色列，这才导致巴勒斯坦人民的伤亡相对惨重，哈马斯才是为当地人民带来灾难的根本原因，并非是以色列。、**
 
-**众所周知，伊朗是哈马斯组织的幕后支持者，而中共又是伊朗背后的支持者，所以巴以冲突并非只和伊朗有关，与中共有非常密切的关系。不排除中共想借此冲突来转移全世界对中共的关注。**
 
-**以色列与美国长期是战略盟友，中共在报道巴以冲突时有意偏向巴勒斯坦，造成强国欺负弱国的假象，这也是在给墙内老百姓洗脑，借此增加老百姓对西方国家的仇恨。**
 
-素材：Peter Wong
+> Again, [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) provides valuable information – the research network of CCP scientist Pei-Yong Shi. Let's identify the military-connected people in those links. [https://t.co/Ey4uQgurhD](https://t.co/Ey4uQgurhD)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 16, 2021](https://twitter.com/LawrenceSellin/status/1393778363664375813?ref_src=twsrc%5Etfw)
+
+
+
+史佩勇是世界病毒学领域研究前沿的杰出华人科学家之一，主要从事寨卡病毒等复制机理、抗病毒药物和疫苗研发等方面研究，是美国微生物学院院士、美国科学院顾问，先后在公共卫生机构、全球大型药物公司、高校及科研单位担任重要职位。目前已发表SCI论文260多篇，研究成果发表在病毒学、药理学、生物化学等领域的权威刊物；应邀在多个国际著名期刊上发表评论和综述；拥有多项世界专利；担任国际三大病毒学杂志及自然疫苗子刊编辑和编委。
+
+参考来源：
+
+[https://www.njmu.edu.cn/2019/1024/c606a156068/page.htm](https://www.njmu.edu.cn/2019/1024/c606a156068/page.htm)
 
 本文仅代表作者本人观点，不代表Gnews平台
 

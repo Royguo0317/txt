@@ -1,35 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Sellin上校号召病毒侦探寻找史佩勇教授与中共军方关系网
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1247587/)
+## 选举作弊是比想象更为严重的问题
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1247714/)
 
-- 编译：【默凡】
-- 封面：七白石
-
-
-5月16日，Sellin上校连发两条推特，他强调美国德克萨斯大学加尔维斯顿医学分部史佩勇教授可能是中共军方大规模渗透美国病毒研究实验室的关键人物，号召所有病毒侦探调查从史佩勇的关系网中寻找与中共军方有联系的科学家资料。
+- 作者：the world
 
 
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) has expertly mapped the network of Pei-Yong Shi of the University of Texas Medical Branch, who appears to be a key figure in the massive infiltration of U.S. virus research labs by the Chinese Communist Party and the People's Liberation Army. [https://t.co/7okuBH0Eg5](https://t.co/7okuBH0Eg5)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393649829784477704?ref_src=twsrc%5Etfw)
+**西班牙2021年5月16日电/西喜社——**
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16064659/GettyImages-1229481485-600x400-1.jpg)图片来源：epochtimes.com
 
+自从11月三号美国2020年总统选举以来，全世界人民都活在巨大的骗局之下。在这次美国大选中，民主党公然在全美国人的监视下暂停计票，进行作弊。
 
+在选举之前，民主党的希拉里曾宣称, 拜登不能在任何情况下承认川普赢得了选举。
 
+拜登更是在竞选期间对一位民主党员说：“我不需要你的选票，在我成为总统后我才会需要你”。
 
-> Again, [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) provides valuable information – the research network of CCP scientist Pei-Yong Shi. Let's identify the military-connected people in those links. [https://t.co/Ey4uQgurhD](https://t.co/Ey4uQgurhD)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 16, 2021](https://twitter.com/LawrenceSellin/status/1393778363664375813?ref_src=twsrc%5Etfw)
+亚利桑那州的选票审计引起了强烈的反抗。
 
+民主党像发疯了一样试图阻止审计。拜登政府也试图利用司法部门阻挠审计，但是在共和党人的坚持下，法庭最终批准了这次审计，现在我们看到了惊人的结果。
 
+现在我们发现馬里科帕县（Maricopa County）选举办公室将整个选举数据库删除。他们承认在选举机器上非法的删除了所有的数据，他们向参议院承认，他们现在发现投票有17％的异常率以及不合格的选票。
 
-史佩勇是世界病毒学领域研究前沿的杰出华人科学家之一，主要从事寨卡病毒等复制机理、抗病毒药物和疫苗研发等方面研究，是美国微生物学院院士、美国科学院顾问，先后在公共卫生机构、全球大型药物公司、高校及科研单位担任重要职位。目前已发表SCI论文260多篇，研究成果发表在病毒学、药理学、生物化学等领域的权威刊物；应邀在多个国际著名期刊上发表评论和综述；拥有多项世界专利；担任国际三大病毒学杂志及自然疫苗子刊编辑和编委。
+亚利桑那州的审计中的诈骗重灾区就是马里科帕县，我会给您一些重要的统计数据。
 
-参考来源：
+马里科帕县，占该州总人口的60％，自从哈里·杜鲁门以来，这个县城传统上就是由共和党掌控。拜登奇迹般地在2020年赢得了马里科帕县，成为第一个自从杜鲁门以来赢得马里科帕县的民主党员，他最终在该县以40,000左右的选票击败了川普，最终使他以10,000张选票的优势赢得了亚历桑那州。
 
-[https://www.njmu.edu.cn/2019/1024/c606a156068/page.htm](https://www.njmu.edu.cn/2019/1024/c606a156068/page.htm)
+拜登在马里科帕县获得的选票整整比希拉里在2016年多了一半。然而，拜登并没有比希拉里更受人欢迎，没有一个诚实的人能相信这种数据。
 
-本文仅代表作者本人观点，不代表Gnews平台
+因为没有人被拜登的个人魅力所吸引，就连所有人都讨厌的希拉里都在她的竞选中得到了更多的人的参与。拜登的团队从来就没有能和川普相提并论的热度。
 
-0
+但是，当共和党质疑选举结果时，他们被媒体打成暴乱分子。斯黛西·艾布拉姆斯，一名黑人政客（Stacey Abrams）至今仍然在质疑佐治亚州的大选（她输的很惨）。但是她却对共和党；人说，如果他们质疑这场选举，他们就是白人至上主义者。
+
+这场大选不只是川普的输赢那么简单。
+
+迄今为止，美国拥有世界上最好的政治制度。美国社会是自由与平等的象征，如果连美国也不能拥有公平的选举，世界上所有热爱正义的人都会失望。不管结果如何，我们都必须挑战这次的选举作弊，不是为了政治，也不是为了川普，而是为了正义。正义在我们心中应享有神圣的地位。我们不能接受欺骗的行为。如果我们不能让所有人看到一部分民主党人在这次选举中的作弊行为，这将是我们的最后一次选举。
+
+审核： Jenny Ball；校对：阿伯塔； 发稿 : 信心的选择
+
+**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+
++1
