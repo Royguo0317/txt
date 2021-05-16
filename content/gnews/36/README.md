@@ -1,47 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 特鲁多开始计划重新开放美加边境
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1245978/)
+## 父母心中的唯一希望，就这么悄无声息地没了
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1246064/)
 
-**作者：**TYLER DURDEN
+字幕听译：乐禧禧 | 字幕PR： CharlesS | 字幕： 雨中漫步 | 评论：Hope | 评论翻译: Marialu | 翻译PR: CharlesS | Page：青山
 
-**翻译报道：**加拿大温哥华圆成农场  木千
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15152027/TRUDEAULILLEY06-scaled-e1609886978112.jpg)
-近几个月来，在美国大多数州都基本重新开放了经济之时（甚至重灾区纽约也准备在7月1日之前“完全重新开放”），加拿大一直落后，依旧对旅行和企业进行限制，疫苗接种的速度也落后于美国。
+![]()![](https://spark.adobe.com/page/NLn7SKvlAvg4D/images/b21037d1-7421-495b-ac01-840c1028bcbf.jpg?asset_id=6c221de0-021f-4e76-87b4-ad2bb9b549be&amp;img_etag=%229e203b886ce3cef6a9db819216d20a3e%22&amp;size=1024)
 
-但显然，所有压力最终都落在了总理特鲁多身上，因为彭博社（Bloomberg）周五报道称，特鲁多政府已经开始就重新开放美加边境进行初步内部讨论，尽管加拿大的新冠病例仍在稳步上升。[1]
+很难想象，失去孩子的这一双父母该是多么的无奈自责。曾几何时，每当他们拖到疲惫的身躯到家时，总会看到孩子雀跃的身影；可转眼间，物是人非，曾经温暖的家变成了冰冷的记忆唤醒器。他们的孩子没了，死得不明不白。那是多普通的一天啊，原本还等着孩子放学的家长，最终没有接到他们的小孩。等待他们的，只有校方的沉默和上诉无门的无奈，没有事发时的监控录像，更没有任何一位负责人给确切的答复，唯一明确的，只有他们的孩子没了。在默默的啜泣中，他们的孩子去了天堂，而真正的罪犯并没有受到应有的惩罚…..
 
-三位知情人士表示，高级官员们已开始正式讨论在不可预估的情况下该如何进行边境开放。一个正在考虑的问题是，是否采用双轨制以放宽接种疫苗者的隔离和检测要求。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-自2020年3月以来，世界上最长的国际边界已关闭，禁止大多数非必要旅行，极大地减少了两国之间的陆路和空中交通。这些限制对加拿大旅游业和航空业的打击尤为严重——一项估计称，这些措施在去年给这些行业造成了约200亿加元（165亿美元）的损失。
 
-前加拿大驻美大使迈克尔·克尔金（Michael Kergin）在电话采访中说：“归根结底，这是一个政治决定，作为目前的迟钝方，加拿大何时能够候决定开放，以及将向何类人群开放。”他还说，分阶段重新开放将会是合乎逻辑的措施。
+编辑：【英国伦敦喜庄园编辑部】
 
-任何边境的重新开放都将是渐进的，并取决于美国和加拿大确诊病例的继续下降。由于疫苗的推出因供应问题和发货延迟而放缓，第三波疫情对加拿大的打击更大。即使加拿大增强了疫苗接种力度，许多省份仍处于长期封锁状态。尽管加拿大4月和5月的新病例增长已有所减缓，但仍不如美国乐观。
+[!\[\]()!\[\](https://spark.adobe.com/page/NLn7SKvlAvg4D/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/NLn7SKvlAvg4D/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
-问题的关键是，双方需要就开放边境的方法达成一致。例如，他们需要就疫苗护照制度达成一致。特鲁多表示，加拿大愿意这样做来帮助恢复跨境旅行，然而拜登总统表示并不赞成“疫苗护照”。
-
-特鲁多在5月4日的新闻发布会上说，与全球的盟国就疫苗接种认证保持一致意见是有意义的。“我们正在非常认真地考虑它，希望与盟国保持一致，但我不能代表美国，也不能代表他们选择谁来欢迎谁进入他们的国家。”
-
-特鲁多还与欧盟合作制定双边计划。欧洲集团已经接受了疫苗护照，并将很快开始允许来自美国、加拿大和其他地区已接种疫苗的游客返回欧洲度暑假。至于美国人今年夏天能否来访多伦多，目前尚未明确。
-
-**评：**
-
-一年前主动关闭美加边境的加拿大，在本国经济因中共病毒遭受重创之际又不得不主动计划重开边境。与此同时，在本国疫情依旧不容乐观的情况下，特鲁多政府又是疫苗和疫苗护照的全球推广者。他们一方面迫切需要发展自家经济，另一方面又不愿放下疫情期间日益集中的权利。疫苗护照便是限制公民自由的产物之一，保障各国政权在疫情后的权利。特鲁多政府之所以做出这一系列略显贪婪的举措，想必是因为中共让他们尝到了权力的滋味。相比之下，美方目前对疫苗护照的反对是在后疫情的公民自由上暂时守住了底线。
-
-**原文链接：**
-
-[https://www.zerohedge.com/geopolitical/trudeau-begins-planning-reopen-us-canada-border-after-more-year](https://www.zerohedge.com/geopolitical/trudeau-begins-planning-reopen-us-canada-border-after-more-year)
-
-**引用链接：**
-
-[1] 彭博社（Bloomberg）周五报道：[https://www.bloomberg.com/news/articles/2021-05-14/trudeau-government-begins-work-on-reopening-u-s-canada-border](https://www.bloomberg.com/news/articles/2021-05-14/trudeau-government-begins-work-on-reopening-u-s-canada-border)
-
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
-
-编辑/发布：比卡丘
-
-20210515
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
 +2

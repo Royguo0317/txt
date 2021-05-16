@@ -1,27 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普就亚利桑那选票审计曝出的问题发表声明
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1246573/)
+## 5月15日劳伦斯·塞林博士关于中共病毒推文集合
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1246665/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+劳伦斯·塞林博士： 另一个重要发现 – [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 新冠侦探[@2020Gladiator](https://twitter.com/2020Gladiator)将两名中共科学家，史佩勇和王林发联系了起来，他们都隶属于(新加坡)杜克大学-国大医学院、武汉病毒研究所、和中国人民解放军。 【转[email protected] 的推文】
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15202810/T-23.jpg)dennismichaellynch.com
-今天（5月15日）下午，川普总统就亚利桑那审计曝出的问题发表声明【1】，声明全文如下：
 
-亚利桑那州马里科帕郡的整个数据库都被删除了！这是非法的，领导法庭审计的亚利桑那州参议院，要激烈抗争。此外，更糟的是，装有选票箱子的封条被撕破，选票丢失。亚利桑那州总检察长马克·布诺维奇（Mark Brnovich）现在将被迫调查这起令人难以置信的选举罪行。许多激进的左翼民主党人和软弱的共和党人非常担心这一事实被曝光。删除马里科帕郡的整个数据库和关键选举文件是史无前例的，许多其他州也可以效仿。主流媒体和激进的左翼民主党人希望尽可能远离总统选举舞弊，这应该是我们这个时代最大的新闻之一，《福克斯新闻》不敢报道，很少有人提及。同样，《Newsmax》在这个问题上几乎保持沉默，因为他们受到了诉讼威胁，《美国新闻网》（OAN）是电视上发展最快的网络之一，也是“最热门的”，它在揭露发生的大规模欺诈方面做得非常出色。故事只会越来越大，在某个时候，弱小和/或腐败的媒体不可能不报道。感谢《美国新闻网》和其他勇敢的美国爱国者。一切都在迅速发生！
 
-川普总统的这则声明发布后，川普总统的网站（https://www.donaldjtrump.com）一度遭轰至瘫痪【2】，可见当今美国的状况，像不像某大国？
+> Another important discovery – [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@2020Gladiator](https://twitter.com/2020Gladiator?ref_src=twsrc%5Etfw) connects two Chinese Communist Party scientists, Pei-Yong Shi & Linfa Wang, both affiliated with the Duke-NUS Medical School, the Wuhan Institute of Virology & the People's Liberation Army. [https://t.co/LkKABlfEyc](https://t.co/LkKABlfEyc)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393513001978929152?ref_src=twsrc%5Etfw)
 
-如果“删除”数据这种邪恶行径不搞清楚，“其他州也可以效仿”算是轻的，再焚烧了选票和设备，可以让你毁无对证！
 
-没有文贵先生，自由灯塔的美国会加速奔向中共引领下的共产主义！
 
-有关链接：
+劳伦斯·塞林博士： [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 新冠侦探[@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1)已很专业地绘出了德克萨斯大学医学分校的史佩勇的网络图，史佩勇似乎是 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 和解放军大规模渗透美国病毒研究实验室的一个关键人物。 【转 [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1) （火来2号）的推文】
 
-【1】[https://www.donaldjtrump.com/desk/desk-4yeh37peju/](https://www.donaldjtrump.com/desk/desk-4yeh37peju/)
 
-【2】[https://www.thegatewaypundit.com/2021/05/breaking-trump-desk-website-releases-statement-saying-entire-database-maricopa-county-arizona-deleted/](https://www.thegatewaypundit.com/2021/05/breaking-trump-desk-website-releases-statement-saying-entire-database-maricopa-county-arizona-deleted/)
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) has expertly mapped the network of Pei-Yong Shi of the University of Texas Medical Branch, who appears to be a key figure in the massive infiltration of U.S. virus research labs by the Chinese Communist Party and the People's Liberation Army. [https://t.co/7okuBH0Eg5](https://t.co/7okuBH0Eg5)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393649829784477704?ref_src=twsrc%5Etfw)
+
+
+
+塞林博士： 独家：安东尼·福奇博士资助的研究使得中共国军方的史佩勇申请了专利。他一直在与中共国人民解放军合作。该资助是2021年福奇基金拨款926,569美元的一部分。 【附[http://thegatewaypundit.com](https://t.co/o7LjRSZiEI?amp=1)的特别报道】
+
+
+
+> EXCLUSIVE: Dr. Anthony Fauci Funded Research That Led to Patents for the Chinese Military
+> Pei-Yong Shi, who has been working with the Chinese People's Liberation Army, is part of a 2021 Fauci grant for $926,569.[https://t.co/lCKxJMpHUb](https://t.co/lCKxJMpHUb)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393581649154150402?ref_src=twsrc%5Etfw)
+
+
+
+劳伦斯·塞林博士： 哇喔。 俄亥俄州立大学前生物医学教授郑宋国被判37个月监禁，因他使用联邦补助帮助了中国医学研究。
+
+
+
+> Uh Oh.
+> Former biomedical Professor Zheng Songguo from Ohio State University Sentenced to 37 Months in Prison for Using Federal Grants to Aid China’s Medical Research.[https://t.co/31b2QnOJQo](https://t.co/31b2QnOJQo)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393622172766179328?ref_src=twsrc%5Etfw)
+
+
 
 0

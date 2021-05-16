@@ -1,22 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 父母心中的唯一希望，就这么悄无声息地没了
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1246064/)
+## 福奇承认其所在机构大约仅一半工作人员接受了疫苗接种
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1246161/)
 
-字幕听译：乐禧禧 | 字幕PR： CharlesS | 字幕： 雨中漫步 | 评论：Hope | 评论翻译: Marialu | 翻译PR: CharlesS | Page：青山
-
-![]()![](https://spark.adobe.com/page/NLn7SKvlAvg4D/images/b21037d1-7421-495b-ac01-840c1028bcbf.jpg?asset_id=6c221de0-021f-4e76-87b4-ad2bb9b549be&amp;img_etag=%229e203b886ce3cef6a9db819216d20a3e%22&amp;size=1024)
-
-很难想象，失去孩子的这一双父母该是多么的无奈自责。曾几何时，每当他们拖到疲惫的身躯到家时，总会看到孩子雀跃的身影；可转眼间，物是人非，曾经温暖的家变成了冰冷的记忆唤醒器。他们的孩子没了，死得不明不白。那是多普通的一天啊，原本还等着孩子放学的家长，最终没有接到他们的小孩。等待他们的，只有校方的沉默和上诉无门的无奈，没有事发时的监控录像，更没有任何一位负责人给确切的答复，唯一明确的，只有他们的孩子没了。在默默的啜泣中，他们的孩子去了天堂，而真正的罪犯并没有受到应有的惩罚…..
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+- 编译：文复
 
 
-编辑：【英国伦敦喜庄园编辑部】
+美国国家过敏和传染病研究所（NIAID）负责人福奇博士说，该机构的员工中约有40％尚未接种COVID-19疫苗，而美国食品药品监督管理局（FDA）的副主席说该机构报告的数字相似。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NLn7SKvlAvg4D/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/NLn7SKvlAvg4D/images/c3bef3c0-ba53-4bc4-8bd3-e1c5950cb0a7.jpg?asset_id=69e536b8-0210-4a87-97a3-0c2710c9bcb2&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+2021年5月14日
+
+在参议院听证会上，参议员Richard Burr分别向福奇、FDA生物学评估和研究中心主任Peter Marks和疾病控制与预防中心（CDC）主任Rochelle Walensky询问了他们的员工COVID-19疫苗接种的百分比。
+
+“参议员，我不确定100％，”福奇回答说，“但我认为可能会比一半多一点，大概是60％。”
+
+马克斯随后告诉伯尔，他无法说出确切的数字，但“与福奇报告的数字可能在近似的范围内”。
+
+他补充说，一些FDA雇员在他们的机构里进行了疫苗接种，而另一些则在其机构之外进行了接种。
+
+瓦伦斯基说，疾病预防控制中心的工作人员“可以自愿报告其疫苗接种状况”，并表示该机构鼓励联邦雇员进行疫苗接种。
+
+瓦伦斯基说：“因为联邦政府没有要求，所以我们不知道。”
+
+管理和预算办公室（OMB）在回应有关获取疫苗不一致的询问时说，只有“少数机构”，例如国防部或退伍军人事务部，直接向其雇员分发疫苗。据联邦新闻网报道。
+
+OMB表示：“对于绝大多数机构而言，其员工根据州和地区的优先级接受疫苗接种。”
+
+同时，在军方内部，海军陆战队表示，截至4月23日，大约93,500名海军陆战队员已接种COVID-19疫苗，而52,900名海军陆战队拒绝了注射，约占36％。另有92,300名海军陆战队士兵等待提供。
+
+在4月30日“今日”节目的评论中，总统拜登（Joe Biden）说，他可能会强迫军方获得疫苗。
+
+“我不知道。我将把这个交给军方自己处理。”拜登在回答有关强制性疫苗的问题时说。
+
+“我并不是说我不会。你们会看到越来越多的人接种。而且我认为，是否应该要求军队强制接种，是一个艰难的选择，因为你与其他军事人员身处如此接近。”
+
+COVID-19是由CCP（中国共产党）引起的病毒。
+
+大纪元时代已经联系CDC，NIAID和FDA，向他们寻求看法。
+
+评论：
+
+如果有两位爆料革命的战友同时看完此文的话，恐怕会先面面相觑了，然后同时露出冷笑了。作为美国顶级卫生机构的工作人员，本是“近水楼台先得月”的人群，却有那么多人未接种病毒疫苗，只能判断，他们应该是拒绝接种了，看来疫苗的有效性、必要性和安全性，在这些专业人士心里，也是打了大问号的。以欧盟某些国家为代表的政府，却在民众中间加快推进疫苗的普及，企图通过“疫苗护照”，限制和管控民众的日常生活。
+
+远离病毒，拒打疫苗，尽快灭共，才是安全的出路。
+
+新闻来源：[零对冲](https://www.zerohedge.com/covid-19/fauci-admits-only-around-half-his-agencys-staff-are-vaccinated?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
 
 +2
