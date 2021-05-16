@@ -1,22 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德简报】5/15/2021早：假！ 中共用动漫模拟视频 谎称登陆火星
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1247316/)
+## 中共军方科学链移民早在上世纪90年代就开始了，在美国涉及面很广
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1247381/)
 
-**编辑：华盛顿DC农场 路德简报项目组**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16023246/2021-05-15_AM_CN-scaled.jpg)
+5月13日，塞林博士作客班农先生战斗室时称，中共军方科学链移民早在上世纪90年代就开始了，在美国涉及面很广。塞林博士说，中共军方很多科学家来到美国先落脚在安东尼·福奇的艾滋病（毒）项目，从那里再到其他一些研究所。中共国的军医大学毕业的姜世勃在美国扩展了巨大关系网，与拉尔夫·巴里克等人和院校合作，还引入其他解放军的或与之有关联的科学家到美国。
 
-
-> 2021 年5月15日 路德时评 早
-> 
-> 1. 假！ 中共用动漫模拟视频 谎称登陆火星
-> 
-> 2 . 骗！中共发动宣传机器 篡改成都49中事件真相 诓骗国人 
-> 
-> 3. 偷！ 中共49 年偷来的江山 妄图让红色基因千秋万代 [pic.twitter.com/2VjGZCAEjN](https://t.co/2VjGZCAEjN)
-> — 平民爆料 (@WM18320321) [May 16, 2021](https://twitter.com/WM18320321/status/1393795234992201730?ref_src=twsrc%5Etfw)
-
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
 0

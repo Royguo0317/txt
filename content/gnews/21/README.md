@@ -1,15 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年5月16日 文贵先生盖特 1
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1247391/)
+## 布林肯：美国不会让澳大利亚独自面对中共国的经济胁迫
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1247409/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+5/13/2021 布林肯重申，美国不会让澳大利亚独自面对中共国的经济胁迫。澳大利亚外长说，美国对澳大利亚的支持会使其他国家充满信心。
 
-5月16：尊敬的战友们好，今天上午9:00至10:00左右文贵乱聊直播，一切都已经开始！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16033248/02cc65734b9f38be0162d11a06d77461.jpg)
-[【2021年5月16日】文贵先生盖特原文](https://gtv.org/getter/60a0aded37f7f73984cc268f)
-
-**喜联盟Gnews编辑部**
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
 0

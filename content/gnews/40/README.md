@@ -1,89 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】佳人佳事
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1247044/)
+## 中共国就达尔文港向澳洲发出威胁
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1247096/)
 
-作者：纽约香草山健身部 澄道
+翻译与评论：Shirley
 
+一位国防观察家说，中共国退出与澳洲的中澳战略经济对话（SED），是对堪培拉取消维州“一带一路”协议的警告，如果澳洲继续不配合，将会受到中共国更多的惩罚性报复。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16005159/16211406801.png)网络截图
+智囊团澳大利亚战略政策研究所（ASPI）的科恩(John Coyne)博士告诉澳洲新闻集团，维州协议的退出是全球“一带一路”的倒退和逆转，这使中共国感到难堪和愤怒。如果联邦政府取消中共国公司岚桥（Landbridge）在达尔文港的99年租约，中共的报复行动将加剧。
 
+中共国国家发展和改革委员会指责澳洲政府，“出于冷战思维和意识形态歧视，推出一系列措施，破坏中澳之间的正常交流与合作“。中共喉舌《中国日报》和《环球时报》也警告说，北京不会对达尔文港协议被废除“坐视不理”。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
+达尔文港的租约并不牵扯一带一路协议。然而，岚桥公司精美的广告视频却介绍说，“达尔文港是一带一路的重要海上合作支点，为中国贡献更强大的港口力量的关键部分“。
 
+岚桥公司的公开广告视频，是赤裸裸的“挂羊头卖狗肉”行为，把一个与一带一路完全无关的租约，硬说成是一带一路的“关键部分”。这让签约的澳洲怎么能相信中共国的承诺及履行合同中的约定？
 
+中共国退出与澳洲的中澳战略经济对话，是表达对澳洲废除维州的一带一路协议的不满。可是中共的报复行为，并不能改变堪培拉保护自身安全的意愿，以及维护自由、民主的决心。
 
-– 写给墙内一直在坚持的战友
+堪培拉政府认为维州签署的一带一路协议是出卖了澳洲的利益，违背了澳洲的外交政策，必须被废除。目前，达尔文港的租约虽然没有改变，但国际环境改变了。自从中共病毒肆虐以来，澳洲政府尝尽了来自中共国的嘲讽、污蔑以及各种贸易制裁，对北京的认识完全改变了，再也不相信北京的任何承诺了。
 
-– 写给源于喜玛拉雅的一股清流
+达尔文港事件，将使北京和堪培拉之间已经冰冷的政治关系更加恶化，两国经济脱钩的步伐将加快，战略互信也将消失殆尽。而两国间互信的消失，通常也就是战争冲突的前奏。
 
-– 写给“64”新中国联邦周年纪
+（本文仅代表个人观点）
 
-![]()![](https://media.discordapp.net/attachments/721544615953432698/825929112102895616/image1.png?width=1083&amp;height=609)
+[https://www.news.com.au/world/asia/chinas-warning-shot-to-australia-over-darwin-port/news-story/9da406ccacede8d2ec9ab8c0a606a03a](https://www.news.com.au/world/asia/chinas-warning-shot-to-australia-over-darwin-port/news-story/9da406ccacede8d2ec9ab8c0a606a03a)
 
-爆料革命四年多
-
-佳人佳事大家说
-
-灭共不分墙内外
-
-声响无论鼓大小
-
-从“吐出”己往破土
-
-真人只是地基是开始
-
-自扪心“自吐”动工
-
-真事只是基础是入门
-
-菩提树下呼喜币
-
-海伦战友真性情
-
-狮子山上大狮子
-
-笑声歌声灭共声
-
-田园两只小兔子
-
-罪何狱入年多多
-
-墙人墙事“三佳佳”
-
-无私无我无生死
-
-佳人是家人中的精英
-
-佳事是家事上的精彩
-
-“64”
-
-新中国联邦周年庆典！
-
-意义非凡！
-
-（本文仅代表作者观点）
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-
-
+审稿&编辑：五饼二鱼
+![]()![](https://gnews.org/wp-content/uploads/2021/05/1-澳喜Logo-2.jpeg)
 0
