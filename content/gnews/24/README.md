@@ -1,27 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普就亚利桑那选票审计曝出的问题发表声明
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1246573/)
+## 韩国恩典农场线下宣传中共病毒真相活动六
+` 恩典农场` [轉載自GNews](https://gnews.org/zh-hans/1246550/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+![]()![](https://gnews.org/wp-content/uploads/2021/04/gnews抬头图片.png)
+作者：韩国恩典农场  追着曙光跑
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15202810/T-23.jpg)dennismichaellynch.com
-今天（5月15日）下午，川普总统就亚利桑那审计曝出的问题发表声明【1】，声明全文如下：
-
-亚利桑那州马里科帕郡的整个数据库都被删除了！这是非法的，领导法庭审计的亚利桑那州参议院，要激烈抗争。此外，更糟的是，装有选票箱子的封条被撕破，选票丢失。亚利桑那州总检察长马克·布诺维奇（Mark Brnovich）现在将被迫调查这起令人难以置信的选举罪行。许多激进的左翼民主党人和软弱的共和党人非常担心这一事实被曝光。删除马里科帕郡的整个数据库和关键选举文件是史无前例的，许多其他州也可以效仿。主流媒体和激进的左翼民主党人希望尽可能远离总统选举舞弊，这应该是我们这个时代最大的新闻之一，《福克斯新闻》不敢报道，很少有人提及。同样，《Newsmax》在这个问题上几乎保持沉默，因为他们受到了诉讼威胁，《美国新闻网》（OAN）是电视上发展最快的网络之一，也是“最热门的”，它在揭露发生的大规模欺诈方面做得非常出色。故事只会越来越大，在某个时候，弱小和/或腐败的媒体不可能不报道。感谢《美国新闻网》和其他勇敢的美国爱国者。一切都在迅速发生！
-
-川普总统的这则声明发布后，川普总统的网站（https://www.donaldjtrump.com）一度遭轰至瘫痪【2】，可见当今美国的状况，像不像某大国？
-
-如果“删除”数据这种邪恶行径不搞清楚，“其他州也可以效仿”算是轻的，再焚烧了选票和设备，可以让你毁无对证！
-
-没有文贵先生，自由灯塔的美国会加速奔向中共引领下的共产主义！
-
-有关链接：
-
-【1】[https://www.donaldjtrump.com/desk/desk-4yeh37peju/](https://www.donaldjtrump.com/desk/desk-4yeh37peju/)
-
-【2】[https://www.thegatewaypundit.com/2021/05/breaking-trump-desk-website-releases-statement-saying-entire-database-maricopa-county-arizona-deleted/](https://www.thegatewaypundit.com/2021/05/breaking-trump-desk-website-releases-statement-saying-entire-database-maricopa-county-arizona-deleted/)
+韩国时间5月15日下午，恩典农场线下宣传中共病毒真相活动在首尔光华门广场如期举行，本次活动也是恩典第12次走上街头。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15202511/5%E6%9C%8815%E6%97%A5%E9%9B%86%E4%BD%93%E7%85%A7.jpg)
+当天下着小雨，战友们披着雨衣打着雨伞，手里举着中共病毒真相的牌子向过往的民众宣传中共病毒真相。云龙战友称：“一位讲英语的外国女性认真地看着我们的牌子，上面的CCP-VIRUS和TAKE DOWN THE CCP引起了她的兴趣。”虽然她是一个小小的举动，但是战友们觉得这是最大的收获。因为我们的目标就是能民众了解中共病毒真相，引起民众的关注。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15202806/5%E6%9C%8815%E6%97%A5%E5%A4%96%E5%9B%BD%E4%BA%BA-2.jpg)
+活动结束后小红豆战友称：“风雨挡不了灭共的心!”她的心声代表了所有恩典战友的心声。恩典农场一直在行动！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15202916/5%E6%9C%8815%E6%97%A5%E5%A5%B3%E6%88%98%E5%8F%8B1-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15202953/5%E6%9C%8815%E6%97%A5%E5%A5%B3%E6%88%98%E5%8F%8B2-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15203027/5%E6%9C%8815%E6%97%A5%E4%B8%A4%E4%BD%8D%E7%94%B7%E6%88%98%E5%8F%8B-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15203121/5%E6%9C%8815%E6%97%A5%E5%B0%8F%E7%BA%A2%E8%B1%86-1.jpg)
+如有韩国境内的战友想参加宣传活动，韩国恩典农场义工报名电话：010-7591-5041，欢迎韩国境内的战友们踊跃参加。
 
 0

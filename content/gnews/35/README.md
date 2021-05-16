@@ -1,79 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国海军陆战队退役少校弗朗茨-盖尔在中国宣传报上写道：美国 将因台湾问题而失去与中共国的 战争 ,他将该岛国描述为 一 个由 &#8220;分离主义&#8221; 政党领导的 &#8220;叛逆&#8221; 政权
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1246415/)
+## 中共国2020年出生人口不足700万&nbsp; 美国吸引全世界青年人才
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1246470/)
 
-翻译：康州盘古农场 – TrueSky
+**摘要：在2021年5月11日的盖特视频中，郭先生说中共国统计局内部的战友爆料，2020年中共国实际出生人口不足700万，但是“领导”让上报1200万。郭先生说人口老龄化问题会让中共国成为一个等待死亡的国家，而美国却把世界上最年轻，最有智慧的人才源源不断地吸引过来。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15194356/Miles_20210511_getter-p1.srt.txt)
+**中共国2020年出生人口不足700万  美国吸引全世界青年人才**
 
-校对：康州盘古农场 – Mike Li
+**There Were Less Than 7 Million Babies Born in China in 2020!**
 
-编辑：康州盘古农场 – 傻小子
+昨天晚上谈的最多的是王保安作为「原」统计局局长被抓。当时我「还」介绍了很多我的哥们儿加入了统计局。统计局最大利益来源是什么呢？出售数据。像纽约的布隆伯格一年「数据上」就几十亿，上百亿美元。全人类所有的所谓投资家都按照关于中国的财务数据、出口数据、人口数据、统计数据「为依据」，全以它为法定单位。就像西方的穆迪一样，比穆迪还牛。这些统计局的哥们儿就是玩这生意的。
 
-发布：康州盘古农场 – 彩虹 Rainbow
+What we talked about the most last night was the arrest of Wang Baoan who was the former head of the National Bureau of Statistics of China. I introduced many of my buddies to join the Bureau of Statistics back then. What is the biggest source of profit for the Bureau of Statistics? By selling data. For example, Bloomberg in New York makes billions, tens of billions of dollars a year by selling data. All investors all over the world use the Bureau’s data as official numbers to analyze China’s financial data, export data, population data, and statistical data. Just like Moody’s Analytics in the West, but better than Moody’s. These people from the Bureau of Statistics are in this business.
 
-**据《华盛顿时报》作者：Bill Gertz，2021年5月8日报道：**
+可悲的是什么呀？可悲的是他们本人现在都是受害者。老天爷是有报应的。
 
-**2021年1月19日星期二，在台湾北部新竹县的一次军事演习中，一名士兵手持台湾国旗**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15190147/ye2.jpg)
-海军陆战队的一名文职官员在中共最激烈的反美宣传刊物上发表了一篇评论文章，认为美国将在与中国的台湾战争中失败。
+The sad thing is that they are all victims now. There is karma in life.
 
-海军陆战队的科学顾问、曾在伊拉克服役的退役海军陆战队少校弗朗茨-盖尔在最近的《环球时报》上撰文称，台湾海峡和南海的”敌对势力”正在使与中共国的冲突成为可能，无论是意外还是设计。
+比如今年「统计报」出了2020年中国新出生婴儿1200万。咱们内部的一位姐妹告诉我说：“7哥，你知道「吗」？实际上中国2020年出生不多于700万，领导决定「往上」报860万。结果领导的大领导 –常委级别– 说：‘不对吧？数据有问题吧？怎么也得1000万啊。’最后研究「完，报了」1200万。”想一想一个这么大的中国，新出生婴儿「仅不到」700万。
 
-盖尔少校在4月27日的文章中说：“如果美国选择与中共国争夺台湾岛，那么它就会输”。这篇文章的标题是“为什么美国在与中共国争夺台湾岛的战争中会输”，似乎来自盖尔少校早先为《海军陆战队公报》杂志写的一篇文章。
+For example, this year, the Bureau of Statistics reported that there were 12 million newborn babies in China in 2020. A sister-in-arms who is an insider told me, “In fact, Brother Miles, there were less than 7 million babies born in China in 2020. Our boss decided to report 8.6 million. In the end, the boss of my boss, who is at the level of CCP’s Standing Committee, said: ‘this cannot be right. Is there a problem with the data? There must be at least 10 million.’ Finally, after further review, the Bureau of Statistics reported 12 million.” Think about the fact that there were less than 7 million newborn babies in such a big country like China.
 
-在那篇文章中，与《环球时报》的文章一样，盖尔少校使用了中共国宣传中也采用的术语，将自治的岛屿描述为“叛逆的台湾”，将台湾执政的支持独立的政党描述为“分离主义”。
+未来共产党「控制中国人」奴隶的最可怕的也是最大的经济来源 — “子宫经济”，我老说是“子宫经济”，切除子宫的经济，断子绝孙的 — 也是我们的农民工经济。
 
-盖尔少校在《环球时报》的文章中说，“美国可以建议台湾的分离主义者和平地接受’一国两制’，停止其’独立’野心”。
+The “womb economy” is the most terrifying and the largest source of income for the CCP as it enslaves the future Chinese people. I always talk that the “womb economy,” the economy to “resect people’s uterus”, and the economy to make people die without progeny, which is also known as the “migrant worker economy”.
 
-但对北京的批评者说，中共国的“一国两制”说法去年在香港被打破了，当时中央政府开始拆除这个前英国殖民地的独立民主制度，这个制度是1997年结束英国殖民统治的协议所允许的。
+我家连农民工都不是，地也没有。很多咱们「战友」是农民工的家人。
 
-盖尔少校的分析文章是在两位美国海军将领上个月警告说，中共国对台湾的军事接管是印太司令部的一大担忧。
+BTW, my family was not even qualified as migrant workers because they had no land back then. Many of our fellow fighters are the families of migrant workers.
 
-即将上任的印太司令部司令约翰-阿基里诺上将告诉参议院军事委员会，中共国对该岛的军事行动“比大多数人想象的要接近我们”。即将离任的司令官菲利普-戴维森上将在早些时候的听证会上说，他担心中共国对该岛的军事行动可能在2030年前发生。
+农民工过去平均二十几岁，25岁、29岁、33岁，到去年变成了47岁。一亿多农民工是共产党奴役所有中国人民的根本基础，一亿多不到两亿「农民工」。现在这些人已经平均40几岁了，还干得动活儿吗？还「能」被剥削「多少」吗？剪羊毛可以，羊都变成老羊了，「还能」长出羊毛吗？「也」只能吃它的骨头，扒它的筋了。
 
-盖尔先生在海军陆战队工作了28年，于2002年退休后被聘为海军陆战队的科学顾问，他没有回复寻求对其文章发表评论的电子邮件。
+The average age of migrant workers used to be in the mid-twenties. It has increased from 25 years old, to 29, 33, then to 47 years old last year. Between 100 million and 200 million migrant workers are the foundation that the CCP uses to enslave all Chinese people. But these people are now in their 40s on average. Can they still work? Can they continue to be exploited? It’s okay to shear the sheep. But when the sheep become old, can they still grow wool? Maybe there will only be bones and tendons left for the CCP to eat.
 
-海军陆战队发言人安德鲁-伍德上尉证实，盖尔少校目前是海军陆战队的科技官员，但他补充说：“盖尔少校不代表海军陆战队，他没有就其最近的文章寻求海军陆战队的审查或批准。”
+中国老年化「问题」我从2017年就「跟」大家说「过」，中国老年化进程最后「会」让中国「和」中华民族一文不值，成为世界上一个等待死亡的国家。那时候「还」什么“爹亲、娘亲不如党亲”？共产党「自己」都是一帮老杂毛「了」。这是为什么它要「搞」“建筑艺术项目”，搞这么多生殖器「关系」养这么多私生子女。大家一定看到这个本质，这个话题大家走着看。
 
-五角大楼发言人约翰-苏普尔说，盖尔少校在发表他的文章之前“没有向国防部或海军陆战队寻求任何形式的政策或公共事务许可”。
+I have told you about China’s aging problem since 2017. China’s aging process will eventually make China and the Chinese nation worthless and lead it to become a country waiting to die. When the time comes, who will care about whether “the party is dearer than your own father and mother”? There will be only a bunch of old bastards left in the CCP. That’s why the CCP employed the so-called “Architectural Art Project” (AAP is a CCP’s project that records illegitimate children of high level CCP officials and provides them with unique codes; and children that involve artificial insemination), to engage in so many genital relations and raise so many illegitimate children. Everybody must see the essence of the matter. Let’s wait and see how this develops.
 
-盖尔少校可能面临纪律处分。联邦规则禁止政府官员为外国政府宣传机构撰稿，除非事先得到批准。 《环球时报》是中国共产党领导层的主要喉舌《人民日报》的一个子公司。它由中共中央委员会运营，被美国政府视为北京国家控制机构中最直言不讳的反美媒体。
+美国把世界上最年轻，最有智慧的源源不断的人才吸引到美国。人家直接不用生，也不用老盯着“子宫”，也不搞什么计划生育 — 「管」你多生几个，「还是」少生几个的。全世界生完「的」孩子都整成型的（培养成才了）的送来「到美国」。美国的超市里买的饭回家直接做着吃就行了，不像「在」中共国还得到菜地里拔完「菜」，洗完以后，再整完去吃。
 
-例如，该媒体宣扬北京反对武汉病毒研究所COVID-19的来源的指控，错误地报道该病毒是在美国陆军军事实验室开发的。陆军否认该病毒始于一个军事实验室。
+The United States attracts a steady stream of the world’s youngest and most brilliant talents. They don’t need to think about fertility, they don’t have to stare at people’s “wombs,” and they don’t engage in family planning. It doesn’t matter whether you have more or fewer births. Children worldwide who have grown up to become talented all want to go to the United States. Just like the food in American supermarkets that you buy, you can cook it at home and eat it directly. Unlike in communist China where you have to go to the vegetable field to pull out the vegetables, wash them, cook them, then eat.
 
-宣传渠道
+「美国」这个国家能不强大吗？这个国家的后代越「来越」强大，后代的基因越来越国际化，而且越来越多的世界精英到这儿来，它能不强大吗？
 
-川普政府去年6月指定《环球时报》、《人民日报》和其他两家中国媒体为《外国使团法》所涵盖的外国政府实体。这一行动旨在限制他们在美国的活动，同时向中共国政府施压，允许在中共国工作的美国和西方记者有更多的机会。
+So how can the United States as a country not be strong? The offsprings of this country are getting stronger and stronger, the genes of the offsprings are getting more and more internationalized, and more and more world elites are coming here. How can the country not be strong?
 
-当时负责东亚和太平洋事务的助理国务卿大卫-史迪威说：“共产党不仅对这些宣传实体进行业务控制，而且对其内容有充分的编辑控制。”
+你看中共：人老了，人死了，人不生了，人吃的有毒的东西，然后钱挣了钱「又」没了，任何科技发明没有「还」天天搞文化大革命……谁但凡长点正常脑子的「就得被」弄死。
 
-新闻秘书约翰-柯比在多次简报中谈到拜登政府对台湾的支持以及美国为加强该岛的防御所做的努力。柯比先生说，根据《台湾关系法》和概述美中关系的三个公报，美国对台北的国防承诺没有任何改变。
+Let’s look at the CCP on the other hand: People are getting older. People are dying. People are no longer giving births. People are eating poisonous food. The money that the Lao Bai Xing (ordinary people) have made is gone. There is no scientific and technological invention in the whole country, but the Cultural Revolution is being carried out every day. Whoever has a normal brain will be killed.
 
-当被问及美国对台湾的防御时，柯比先生说。 “美国军队仍然在各方面做好准备，以履行我们在该地区的安全承诺。”
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/609a981537f7f73984ca8ce3](https://gtv.org/getter/609a981537f7f73984ca8ce3) (0:33-3:39, 6:13-7:20)
+鸣谢：
+[1] 感谢Antsee-GTV、TING GUO、文惜和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于[https://gnews.org/zh-hans/1233453/](https://gnews.org/zh-hans/1233453/)
+[2] 感谢YY、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于[https://gnews.org/1239522/](https://gnews.org/1239522/)
 
-《环球时报》的文章称盖尔少校是一名退役的海军陆战队步兵军官，现在是五角大楼的文职官员。文章包括一个免责声明，即这些意见是作者的意见，并不反映美国政府的观点。
+* * *
 
-但批评者说，五角大楼官员在外国国家控制的媒体上就台湾这样的关键问题批评美国国防政策，只会使中共的观点合法化。
+**字幕：【Rock小哥】
+校对：【BruhM】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-前国务院官员约翰-特卡西克说，盖尔少校关于台湾的大部分历史都是错误的，他说其中一个原因是他依赖中国共产党的信息来源。
-
-特卡西克先生说，“盖尔少校关于放弃我们对台湾防御的承诺的建议，在历史上相当于英国和法国在1938年告诉捷克斯洛伐克，他们必须向纳粹德国牺牲他们的独立，这样法国和英国的小伙子就不必保卫他们了。”
-
-他补充说：“如果盖尔少校在他的政策建议中是认真的，他将建议美国尽快大量提供最新的美国武器装备，从潜艇​​到战斗机，对峙导弹，这样至少台湾人将有一个战斗机会。 ”
-
-特卡西克先生还称盖尔少校对印度洋-太平洋地区当前现实的领悟和他对台湾主权的法律理解是不明智的。
-
-据报道，这篇文章还引发了一些现任和前任海军和海军陆战队军官的愤怒和厌恶情绪。
-
-前太平洋舰队情报主管、退役海军上尉吉姆-法内尔说，盖尔少校的文章是对敌人支持的宣传。
-
-范内尔上尉说：“作为一个对在美国政府内工作时行使言论自由的影响有切身体验的人，我对这位前海军陆战队军官鹦鹉学舌，从美国的敌人那里获取信息感到震惊”。盖尔少校的行为不仅诋毁了美国和海军陆战队，而且表明他对美国和台湾的历史和关系一无所知。 ”
-
-原文链接：**[https://www.washingtontimes.com/news/2021/may/8/marine-corps-advisers-anti-taiwan-piece-chinese-pr](https://www.washingtontimes.com/news/2021/may/8/marine-corps-advisers-anti-taiwan-piece-chinese-pr)/**
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-+3
++1

@@ -1,51 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 顶尖科学家要求调查COVID-19 起源
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1246865/)
+## 【NEWS EXPRESS】王毅说联合国辩论解决哈以战争
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1246927/)
 
-翻译：康州盘古农场 – 柯镇恶
+环球时报发推文说：
 
-校对：康州盘古农场 – Mike Li
+中国国务委员兼外交部长王毅表示，摆脱巴勒斯坦问题的最终出路在于实行两国解决方案。中国将在联合国安理会委员会举行关于巴以冲突的公开辩论，并希望所有各方找到统一的声音。
 
-编辑：康州盘古农场 – 傻小子
+简评：
 
-发布：康州盘古农场 – 彩虹 Rainbow
+中共国一直把所有的问题让国际组织来解决，来体现公平和全球的参与，世界卫生组织在武汉疫情中的所作所为，让世界看清楚了世界国际组织的性质， 如何被中共渗透和利用，如何延续了中共的所谓红色基因。哈以战争中，中共的老朋友哈里斯给大家演示了现代战争的全新版本。
 
-**据《NEWSMAX》作者：Jim Thomas 2021年5月13日报道：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15215108/youu88.jpg)
-据《国会山报》报道，学术杂志《科学》（Science）于周四发表了一封公开信，呼吁对COVID-19的所有可能起源进行全新且真正独立的调查，包括据称在中国武汉释放该病毒的实验室事故。
+参考链接：
 
-信中写道：“了解大流行的起源对于解决我们的脆弱性和防止未来危机至关重要。” “不幸的是，正如先前3月4日和4月7日发布的公开信中所概述的那样，世卫组织召集的关于COVID-19起源的联合研究在结构、程序和分析上存在缺陷，为了解大流行的起源创造了不必要的障碍。”
 
-据《国会山报》报道，公开信由25位科学家和学者签署，并由以下人士组织：华盛顿特区大西洋理事会智囊团资深研究员杰米·梅茨（Jamie Metzl）、法国CNRS雅克·莫诺德研究所的进化遗传学家Virginie Courtier、新西兰银行的工程师兼数据科学家吉尔斯·德曼纽夫（Gilles Demaneuf）。
 
-世卫组织总干事谭德赛（Tedros Adhanom Ghebreyesus）称该报告是“重要的开端”，但发现报告未能找到该病毒的起源。
+> Chinese State Councilor and FM Wang Yi said ultimate way out of Palestinian issue lies in implementation of two-state solution. China will host an open debate on Palestinian-Israeli conflict at UN Security Council Sun, and expects all parties to find a unified voice on issue. [pic.twitter.com/PPmGUwBOP3](https://t.co/PPmGUwBOP3)
+> — Global Times (@globaltimesnews) [May 16, 2021](https://twitter.com/globaltimesnews/status/1393747107144560642?ref_src=twsrc%5Etfw)
 
-科学家在信中写道：“作为具有相关专业知识的科学家，我们同意世卫组织总干事、美国和其他13个国家以及欧盟的看法：更加清楚明确的查明大流行病的起源是必要的，并且是可行的。”
 
-据2019年12月在武汉报告了首例疾病一年多之后，世卫组织的一个专家小组于2021年1月至2月对冠状病毒的起源进行了调查。
 
-在3月份，世界卫生组织（WHO）就报告总结了病毒的起源，称该病毒最有可能从中间动物宿主传播到人类。
+图片来源：[https://twitter.com/globaltimesnews](https://twitter.com/globaltimesnews)
 
-该报告还说，这种病毒从武汉的一个政府实验室中逃脱是“极不可能”的。但是，调查人员无法确切确定原始物种间传播的方式和时间。这封信指出，虽然没有发现明确支持自然溢出或实验室事故的证据，但研究团队却认为来自中间宿主理论的人畜共患病的外溢的可能性为“极有可能”，而实验室事故理论则为“极不可能”。
+整理撰稿：蓝精灵
 
-科学家在信中写道：“我们必须认真对待有关自然起源和实验室泄露的假设，直到获得足够的数据为止。” “一种恰当的调查应该是透明的、客观的、由数据驱动的，应该包括广泛的专业知识，应接受独立监督，并进行负责任地管理，以最大程度地减少利益冲突的影响。”
+校对发布：Penny
 
-信中声称，科学家们认为“这两种理论没有得到平衡的考虑”。
-
-据世卫组织调查人员称，由于调查还不够广泛，（世卫组织的）报告也受到了限制，因为中共当局限制了对原始数据的访问。中共当局拒绝向世界卫生组织调查人员提供有关早期COVID-19病例的原始的、个性化数据，这些数据可以帮助确定，病毒最开始在中共国是如何以及何时开始传播的。
-
-据《华尔街日报》报道，世卫组织的调查人员们由于缺乏细节（数据）而产生了激烈的争论。
-
-这封信之前，来自世界各地其他科学家团体已发表几项类似公开声明，要求（对病毒起源）进行新的、更透明的调查。
-
-大流行在全球已造成超过330万人死亡。
-
-原文链接：[https://www.newsmax.com/newsfront/covid-19-origins-scientists-letter/2021/05/13/id/1021332/](https://www.newsmax.com/newsfront/covid-19-origins-scientists-letter/2021/05/13/id/1021332/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0
