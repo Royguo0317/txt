@@ -1,51 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 顶尖科学家要求调查COVID-19 起源
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1246865/)
+## 【热点播报】Colonial输油管骇客事件再度反转：Darkside黑客系统惨遭骇客
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1246919/)
 
-翻译：康州盘古农场 – 柯镇恶
+作者：纽约香草山健身部 文真
 
-校对：康州盘古农场 – Mike Li
 
-编辑：康州盘古农场 – 傻小子
 
-发布：康州盘古农场 – 彩虹 Rainbow
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-**据《NEWSMAX》作者：Jim Thomas 2021年5月13日报道：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15215108/youu88.jpg)
-据《国会山报》报道，学术杂志《科学》（Science）于周四发表了一封公开信，呼吁对COVID-19的所有可能起源进行全新且真正独立的调查，包括据称在中国武汉释放该病毒的实验室事故。
 
-信中写道：“了解大流行的起源对于解决我们的脆弱性和防止未来危机至关重要。” “不幸的是，正如先前3月4日和4月7日发布的公开信中所概述的那样，世卫组织召集的关于COVID-19起源的联合研究在结构、程序和分析上存在缺陷，为了解大流行的起源创造了不必要的障碍。”
 
-据《国会山报》报道，公开信由25位科学家和学者签署，并由以下人士组织：华盛顿特区大西洋理事会智囊团资深研究员杰米·梅茨（Jamie Metzl）、法国CNRS雅克·莫诺德研究所的进化遗传学家Virginie Courtier、新西兰银行的工程师兼数据科学家吉尔斯·德曼纽夫（Gilles Demaneuf）。
+Colonial输油管骇客事件发生后的一周内，美国东南部各州油价均大幅攀升，多地居民抢购加油，导致当地加油站关闭、断油情况不断发生。本周四5月13日，有匿名美国官员向媒体透露，为阻止断油恐慌升级导致负面社会影响加剧，Colonial公司已同意向Darkside黑客犯罪组织支付5百万美元赎金，以便在最短时间内恢复输油管道运营。这一“认怂”行为引起美国民众惊呼，纷纷批评不应轻易使用纳税人的钱支付黑客犯罪集团的勒索赎金，认为这样做将会纵容网络黑客犯罪。但就在5月14日周五，这一轰动的骇客事件再度经历反转，Darkside被爆出遭到骇客打击。
 
-世卫组织总干事谭德赛（Tedros Adhanom Ghebreyesus）称该报告是“重要的开端”，但发现报告未能找到该病毒的起源。
+据称，Darkside在暗网的网站目前已无法访问。安保公司“Recorded Future”威胁情报分析师发现，在勒索软件网站上的一则俄语消息透露，Darkside目前已失去对其构架内公开访问部分，例如博客、支付系统和DOS服务器的管理权限，更有加密货币从存放勒索赎金的支付服务器中被取走的消息。尽管没有确凿的证据证实谁是Darkside骇客行动的幕后执行人，但在周五，美国军事网络战小组的推特账号 “the 780th Military Intelligence Brigade”转推了Recorded Future公司的报告。
 
-科学家在信中写道：“作为具有相关专业知识的科学家，我们同意世卫组织总干事、美国和其他13个国家以及欧盟的看法：更加清楚明确的查明大流行病的起源是必要的，并且是可行的。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15222233/49-6.jpg)新闻截图
 
-据2019年12月在武汉报告了首例疾病一年多之后，世卫组织的一个专家小组于2021年1月至2月对冠状病毒的起源进行了调查。
+黑客在暗网通常以加密货币交易方式收取赎金。Darkside勒索赎金不成，反遭骇客，损失惨重。“魔高一尺，道高一丈”，“以其人之道，还治其人之身”，这一场网络战赢得实在精彩！从Darkside被黑瘫痪的系统可以推测，此前同意支付赎金是Colonial在故意“认怂”，从而利用电子交易，借机打开通向其服务器的缺口。这一现象说明，美国已经掌握了电子货币的追踪能力。通常认为的电子货币交易去中心化、不易追踪，似乎只适用于普通科技手段。郭先生在今日的盖特视频中爆料——美军应对犯罪组织的技术是常人无法预想的，其“斩首行动”的手段更是五花八门。在掌握各种高科技手段的美军面前，任何犯罪组织最终都只能“搬起石头砸了自己的擀面杖子”。中南坑的老杂毛们如果继续作恶，为祸世界，那么迟早会收到专门为他们量身打造的“斩首”惊喜。
 
-在3月份，世界卫生组织（WHO）就报告总结了病毒的起源，称该病毒最有可能从中间动物宿主传播到人类。
+参考阅读：
 
-该报告还说，这种病毒从武汉的一个政府实验室中逃脱是“极不可能”的。但是，调查人员无法确切确定原始物种间传播的方式和时间。这封信指出，虽然没有发现明确支持自然溢出或实验室事故的证据，但研究团队却认为来自中间宿主理论的人畜共患病的外溢的可能性为“极有可能”，而实验室事故理论则为“极不可能”。
+[Colonial Pipeline paid $5 million ransom to hackers](https://www.cnbc.com/2021/05/13/colonial-pipeline-paid-ransom-to-hackers-source-says.html)
 
-科学家在信中写道：“我们必须认真对待有关自然起源和实验室泄露的假设，直到获得足够的数据为止。” “一种恰当的调查应该是透明的、客观的、由数据驱动的，应该包括广泛的专业知识，应接受独立监督，并进行负责任地管理，以最大程度地减少利益冲突的影响。”
+[Servers Of Colonial Pipeline Hacker Darkside Forced Down: Security Firm](https://www.barrons.com/news/servers-of-colonial-pipeline-hacker-darkside-forced-down-security-firm-01621002013)
 
-信中声称，科学家们认为“这两种理论没有得到平衡的考虑”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
 
-据世卫组织调查人员称，由于调查还不够广泛，（世卫组织的）报告也受到了限制，因为中共当局限制了对原始数据的访问。中共当局拒绝向世界卫生组织调查人员提供有关早期COVID-19病例的原始的、个性化数据，这些数据可以帮助确定，病毒最开始在中共国是如何以及何时开始传播的。
+编辑/校对/发稿：Irene木木
 
-据《华尔街日报》报道，世卫组织的调查人员们由于缺乏细节（数据）而产生了激烈的争论。
+**更多资讯，更多关注**
 
-这封信之前，来自世界各地其他科学家团体已发表几项类似公开声明，要求（对病毒起源）进行新的、更透明的调查。
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-大流行在全球已造成超过330万人死亡。
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-原文链接：[https://www.newsmax.com/newsfront/covid-19-origins-scientists-letter/2021/05/13/id/1021332/](https://www.newsmax.com/newsfront/covid-19-origins-scientists-letter/2021/05/13/id/1021332/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0

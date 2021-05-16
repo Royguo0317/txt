@@ -1,59 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我们发现中共国军方与五角大楼 主要病毒研究之间直接联系
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1246507/)
+## 【一线新闻】华裔参选纽约洲市议员——法拉盛华人现象一窥
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1246852/)
 
-翻译：康州盘古农场 – 格格巫
+前方记者：纽约香草山记者站 Kathy（文艺）
+记录/校对：纽约香草山记者站 熊井（文兰）
 
-校对：康州盘古农场 – TrueSky-
 
-编辑：康州盘古农场 – 傻小子
 
-发布：康州盘古农场 – 彩虹 Rainbow
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-**据《门户专家》作者：乔·霍夫特（Joe Hoft），2021年5月14日报道：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15200356/vocfcoofll.png)
-**我们发现了中共国军方与五角大楼资助的主要病毒研究中心之间的直接联系**
 
-。劳伦斯·塞林（Lawrence Sellin）和安娜·陈（Anna Chen）
 
-基于对中文文档和科学出版物的审查，我们认为，吉林省长春市的军事​​兽医研究所和人畜共患病研究所，由解放军金宁义将军和退休的夏宪柱将军领导，是中国生物战计划的核心要素。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15200348/xklsslsl.png)
-夏宪柱和金宁义至少有四个下属从事了大规模的国内外病毒收集工作，其中有何彪，范全水，涂长春和吴志强。
+今天我有幸在法拉盛公园街道旁，见到一位年轻的华裔青年陈海霖先生正在竞选纽约洲市议员。
 
-何彪与第三军医大学的王长军一起在蝙蝠冠状病毒ZC45和ZXC21的分离中发挥了关键作用，中国吹哨人闫丽梦博士声称这是COVID-19的病毒主链。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15215820/48-4.jpg)
 
-我们发现在吉林省的中国军方长春研究中心，与加尔维斯顿的德克萨斯大学医学分校（UTMB）之间有直接联系。
+记者：陈海霖先生你好，首先请你向我们简单介绍一下你的背景、你的故事以及你为什么参选？参选的是哪个党派？是什么席位？谢谢。
 
-UTMB是一个主要的病毒研究中心，由国立卫生研究院（尤其是安东尼·福奇博士的国立过敏与传染病研究所（NIAID））大量资助。
+陈海霖先生：大家好，我是陈海霖，是法拉盛市议员的侯选人，来自福建。我十四岁来到美国，在美国上的高中和大学，一路以来都是半工半读的。我这次参选是希望能够动员更多的年轻人参与政治，能够真正为我们社区服务，对社区建设做出贡献。
 
-UTMB还是美国国防部资助的生物防御和新兴传染病中心的所在地，并且是为数不多的生物安全4级设施之一，用于遏制和研究世界上最危险的病毒。
+目前的疫情非常严重，我们需要有一位既有能力，又有经验，而且更有活力的市议员出来，代表我们社区在市议会上能够提出在餐馆、旅游业、交通等方面的援助。各行各业都已经饱受风霜，如今需要一位有很强领导能力的人物出来。相信我有能力做到，也相信有更多有活力、有能力的人参与！
 
-UTMB与中共国军方吉林省长春研究中心之间的关键联系人是施培勇。他曾在中华人民共和国接受培训，现在是UTMB生物化学与分子生物学系的教授。
+记者：简单介绍一下你的工作背景好吗？
 
-施培勇自2007年以来一直是武汉病毒学研究所的名誉教授，并从福奇的NIAID获得了超过500万美元的研究资金。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15200341/yyyy444.png)
-中共国军队在吉林省的长春研究中心与UTMB之间的关键联系人是王华雷。
+陈海霖先生：最初我是Uber 司机，后来成为一名工会领袖，然后我带领着司机参加了司机独立工会，为他们争取到了最低工资，争取到了司机福利等等服务……这两三年我们成绩斐然，而且提出了一些从来没有的法案，能够保护新型企业员工。
 
-史施培勇和王华​​雷都被列为2020年10月6日发表的科学文章的合著者，但王华雷隐藏了他的军事隶属关系，这确实出现在2018年的中共国出版物中。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15200415/undee444.png)
-王华磊雷与吉林省中共国军方长春研究中心的负责人之一夏宪柱将军合影。
+记者：你是哪个党派？
 
-王华雷磊被选入的“ 万人计划”，这是一个由10,000名高级人才组成的2012年国家计划，他们中的部分人专注于渗透和在全球范围内获取知识产权。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15200405/uuuup.png)
-在中共国受过培训的王田（Tian Wang）和林恩（Lynn Soong）是由福奇（Fauci的）NIAID支持的UTMB培训计划的负责人。林恩·宋（Lynn Soong）是五角大楼资助的UTMB生物防御与新兴传染病中心的成员。
+陈海霖先生：我是民主党。六月份的选举是重中之重，因为六月份只有真正的民主党选民才能投票。现在还有两个星期的登记投票时间，希望大家踊跃地去登记、投票，支持我们华裔的侯选人代表我们的社区，代表我们社区的利益。
 
-我们目前正在调查UTMB与中共国军队之间的其他联系。
+![]()![](https://media.discordapp.net/attachments/842077566089429023/843177178609876992/IMG_2286.PNG?width=1319&amp;height=609)
 
-劳伦斯·塞林（Lawrence Sellin）博士 从商业和医学研究的国际职业退休，在美国陆军预备役中服务了29年，并曾担任阿富汗和伊拉克的老兵。他的电子邮件地址是[email protected]。
+记者：请你对现任拜登政府执政后的成效做个简短评价好吗？
 
-原文链接：
+陈海霖先生：我认为拜登政府上任100天成绩斐然。尤其在疫苗分配上，政府能够达到全美整个群体开放，短短两三个月做到这一步是非常不容易的。这份热情如果能够继续下去的话，对整个国家、对纽约都有巨大的帮助。这次州政府也拿到了联邦政府的经费，对整个纽约的全部民众是非常好的援助！
 
-[https://www.thegatewaypundit.com/2021/05/breaking-exclusive-uncovered-direct-link-chinese-military-major-pentagon-funded-virus-researc/](https://www.thegatewaypundit.com/2021/05/breaking-exclusive-uncovered-direct-link-chinese-military-major-pentagon-funded-virus-researc/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+记者：你认为他和前任交接当中有哪些是可取的？而且是接续前任的做法？
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+陈海霖先生：拜登上台后，他非常努力，每一天都在为民众服务，这次对餐饮业的援助也是拜登政府通过国会增添了一个法案。但这援助是远远不够的，因为我们有更多的民意代表、议员在联邦政府为我们发声，才能争取到我们应得的福利。因为纽约洲是最大的捐款洲，我们拿自己的钱补贴其他洲，这是不应该的，所以这一笔我们应得的钱一定要拿到的。为社区提供全方位的语言环境，提供双语服务，如中文服务及其他服务。选人不选党！
+
+记者：谢谢你精彩的发言，也希望你这次的竞选能够成功，我会向大家推荐，感谢你，祝福每位工作人员，谢谢！
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0

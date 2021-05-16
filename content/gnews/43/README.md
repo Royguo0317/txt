@@ -1,45 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月15日劳伦斯·塞林博士关于中共病毒推文集合
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1246665/)
+## 【拆台新闻】红色病毒基因改造工程
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1246800/)
 
-劳伦斯·塞林博士： 另一个重要发现 – [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 新冠侦探[@2020Gladiator](https://twitter.com/2020Gladiator)将两名中共科学家，史佩勇和王林发联系了起来，他们都隶属于(新加坡)杜克大学-国大医学院、武汉病毒研究所、和中国人民解放军。 【转[email protected] 的推文】
+最近中共体制内新词“红色基因”出现在各大宣传窗口，在他们的新闻联播中时这样说的：
 
+央视网消息：5月16日出版的第10期《求是》杂志将发表中共中央总书记、国家主席、中央军委主席习近平的重要文章《用好红色资源，传承好红色基因，把红色江山世世代代传下去》。
 
+文章强调，革命博物馆、纪念馆、党史馆、烈士陵园等是党和国家红色基因库。要把红色资源作为坚定理想信念、加强党性修养的生动教材，讲好党的故事、革命的故事、根据地的故事、英雄和烈士的故事，加强革命传统教育、爱国主义教育、青少年思想道德教育，把红色基因传承好，确保红色江山永不变色。
 
-> Another important discovery – [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@2020Gladiator](https://twitter.com/2020Gladiator?ref_src=twsrc%5Etfw) connects two Chinese Communist Party scientists, Pei-Yong Shi & Linfa Wang, both affiliated with the Duke-NUS Medical School, the Wuhan Institute of Virology & the People's Liberation Army. [https://t.co/LkKABlfEyc](https://t.co/LkKABlfEyc)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393513001978929152?ref_src=twsrc%5Etfw)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15213730/149.jpg)
 
+革命博物馆、纪念馆、党史馆、烈士陵园等是党和国家红色基因库，这些基因库里面存储了什么样的红色基因呢？
 
+在网站上， 我们看到一些描述：
 
-劳伦斯·塞林博士： [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 新冠侦探[@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1)已很专业地绘出了德克萨斯大学医学分校的史佩勇的网络图，史佩勇似乎是 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 和解放军大规模渗透美国病毒研究实验室的一个关键人物。 【转 [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1) （火来2号）的推文】
+昨天，“伟大征程—庆祝中国共产党成立100周年特展”在首都博物馆开幕，“280组件展品讲述了中国共产党从建党到建立新中国的革命历程。”
 
+展览位于首都博物馆三层D展厅，观众在展厅中可以看到《共产党宣言》最早的全译本、八七会议的会议记录，开国大典上使用的礼炮……展览以中国共产党的诞生、土地革命、抗日战争、新中国成立四个历史时期为时间线索，用史料和文物还原重大历史事件，以点带面，概括凝炼地展示中国共产党从建党到建立新中国的革命历程。展览再现了中国共产党不断探索马克思主义中国化的历史进程，体现出中国共产党是人民的政党，是与时俱进、永葆青春的政党，在伟大征程中奋勇逐梦。
 
+中共所指的红色基因并不是指传统意义上的家族血缘基因。这与大众认知的“红二代”“红三代”是不同的。通常老百姓被灌输认为七十年前建立政权的后代是红色基因的传承者，。
 
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) has expertly mapped the network of Pei-Yong Shi of the University of Texas Medical Branch, who appears to be a key figure in the massive infiltration of U.S. virus research labs by the Chinese Communist Party and the People's Liberation Army. [https://t.co/7okuBH0Eg5](https://t.co/7okuBH0Eg5)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393649829784477704?ref_src=twsrc%5Etfw)
+路德社在2021-5-15日节目中为大家解读了一下红色基因的概念：红色基因是指中共一直以来无底线不择手段的血腥的内部斗争，没有人性只有党性的根本特质，体现在中共从夺取政权以来的血腥残忍的完美犯罪特质。
 
+央视文章中提到红色基因代代传承，路德社安红女士指出：这就是对中共党员的一种恫吓。
 
+红色基因代代相传， 就是要利用人性的邪恶和贪念，把这种基因病毒撒向整个地球。
 
-塞林博士： 独家：安东尼·福奇博士资助的研究使得中共国军方的史佩勇申请了专利。他一直在与中共国人民解放军合作。该资助是2021年福奇基金拨款926,569美元的一部分。 【附[http://thegatewaypundit.com](https://t.co/o7LjRSZiEI?amp=1)的特别报道】
+路德指出： 红色基因表现出来的可能是美好的一面，有着着民主人权自由的形象， 是升级版的进化的基因，但是骨子里是残忍的，无底线的。红色基因，不限肤色，不限种族，无国界，走到哪里，哪里就是红色江山。
 
+参考链接：
 
+[http://www.bj.xinhuanet.com/2021-03/10/c\_1127192185.htm](http://www.bj.xinhuanet.com/2021-03/10/c_1127192185.htm)
 
-> EXCLUSIVE: Dr. Anthony Fauci Funded Research That Led to Patents for the Chinese Military
-> Pei-Yong Shi, who has been working with the Chinese People's Liberation Army, is part of a 2021 Fauci grant for $926,569.[https://t.co/lCKxJMpHUb](https://t.co/lCKxJMpHUb)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393581649154150402?ref_src=twsrc%5Etfw)
+图片来源：网络
 
+整理撰稿：蓝精灵
 
+校对发布：Penny
 
-劳伦斯·塞林博士： 哇喔。 俄亥俄州立大学前生物医学教授郑宋国被判37个月监禁，因他使用联邦补助帮助了中国医学研究。
-
-
-
-> Uh Oh.
-> Former biomedical Professor Zheng Songguo from Ohio State University Sentenced to 37 Months in Prison for Using Federal Grants to Aid China’s Medical Research.[https://t.co/31b2QnOJQo](https://t.co/31b2QnOJQo)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393622172766179328?ref_src=twsrc%5Etfw)
-
-
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

@@ -1,32 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NEWS EXPRESS】王毅说联合国辩论解决哈以战争
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1246927/)
+## 亚利桑那州参议员率众为选举审计祈祷
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1246979/)
 
-环球时报发推文说：
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-中国国务委员兼外交部长王毅表示，摆脱巴勒斯坦问题的最终出路在于实行两国解决方案。中国将在联合国安理会委员会举行关于巴以冲突的公开辩论，并希望所有各方找到统一的声音。
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15225524/A-16.jpg)newsvideoclip.tv
+选举审计暴露的问题愈多，抵赖、搅局的程度就会愈烈，在参议院议长凯伦·范恩（Karen Fann）发给监事会主席塞勒斯（Sellers）公开信后【1】，监事会当天紧急会议，决定在参议院下周二听证会的前一天，即周一要召开“辟谣”会，否认“删除数据”等指责。这种抵赖符合欺诈舞弊者的行事逻辑，认罪？还没到彻底暴露的时候；默认？那是等死；与其等死，不如再搏。
 
-简评：
+川普总统在今天（5月15日）的声明中透露，亚利桑那州总检察长将被迫调查选举相关的罪行【2】。
 
-中共国一直把所有的问题让国际组织来解决，来体现公平和全球的参与，世界卫生组织在武汉疫情中的所作所为，让世界看清楚了世界国际组织的性质， 如何被中共渗透和利用，如何延续了中共的所谓红色基因。哈以战争中，中共的老朋友哈里斯给大家演示了现代战争的全新版本。
+有信仰的人在祈祷，祷告上帝拯救美国！
+
+《我爱川普》（We Love Trump）网站发表文章，“亚利桑那州参议员凯利·汤森德（Kelly Townsend）率众，以耶稣的名义为亚利桑那州审计进行强大的祈祷！”【3】
+
+文章说，这就是我们需要为民选官员要做的……
+
+有力的祷告，恭敬的姿态，祈求上帝拯救这个国家！
+
+就像圣经上说的，“这称为我名下的子民，若是自卑、祷告，寻求我的面，转离他们的恶行，我必从天上垂听，赦免他们的罪，医治他们的地。”
+
+还有人记得这个吗？
+
+这正是美国现在所需要的，感谢参议员凯利·汤森带来的这种祈祷！
+
+以下是完整的笔录：
+
+主啊，我们今天在您面前跪拜。
+
+我们看到危险即将来临，我们看到乌云已经升起，但我们并不害怕，因为我们知道有一大群天使围绕着我们。
+
+上帝，我们恳求您揭开这个骗局！
+
+上帝啊，让揭发者的心充满力量，免得他们丢了工作，还有更好的工作等着他们。
+
+主啊，不要让金钱和安全成为我们闭口不谈的东西，而要让我们开口说出所发生的事情的真相。
+
+让那些企图破坏你们赐予我们的伟大国家自由的人承担责任，上帝。
+
+主啊，我以耶稣基督的名义，为这个州，为这个国家，为这个全世界说话，这得益于我们所经历的自由，上帝。
+
+我们以您耶稣基督的名字说，您把事情办妥了，您揭开了秘密，让我们明白了，我们要追究这些人的责任。以您上帝的名义，谁将被追究责任，主啊！
+
+我们以耶稣基督的名义说出这些。
+
+阿门。
+
+（原文完）
 
 参考链接：
 
+【1】[https://gnews.org/zh-hans/1239571/](https://gnews.org/zh-hans/1239571/)
 
+【2】[https://gnews.org/zh-hans/1246573/](https://gnews.org/zh-hans/1246573/)
 
-> Chinese State Councilor and FM Wang Yi said ultimate way out of Palestinian issue lies in implementation of two-state solution. China will host an open debate on Palestinian-Israeli conflict at UN Security Council Sun, and expects all parties to find a unified voice on issue. [pic.twitter.com/PPmGUwBOP3](https://t.co/PPmGUwBOP3)
-> — Global Times (@globaltimesnews) [May 16, 2021](https://twitter.com/globaltimesnews/status/1393747107144560642?ref_src=twsrc%5Etfw)
-
-
-
-图片来源：[https://twitter.com/globaltimesnews](https://twitter.com/globaltimesnews)
-
-整理撰稿：蓝精灵
-
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
+【3】[https://welovetrump.com/2021/05/15/az-sen-kelly-townsend-leads-powerful-prayer-in-jesus-name-for-az-audit/](https://welovetrump.com/2021/05/15/az-sen-kelly-townsend-leads-powerful-prayer-in-jesus-name-for-az-audit/)
 
 0
