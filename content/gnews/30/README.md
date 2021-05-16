@@ -1,27 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普就亚利桑那选票审计曝出的问题发表声明
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1246573/)
+## 【世事解评】浅析华为等一众行业巨头争相做电动汽车的现象
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1246347/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：纽约香草山健身部   Jack Li文阳
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15202810/T-23.jpg)dennismichaellynch.com
-今天（5月15日）下午，川普总统就亚利桑那审计曝出的问题发表声明【1】，声明全文如下：
 
-亚利桑那州马里科帕郡的整个数据库都被删除了！这是非法的，领导法庭审计的亚利桑那州参议院，要激烈抗争。此外，更糟的是，装有选票箱子的封条被撕破，选票丢失。亚利桑那州总检察长马克·布诺维奇（Mark Brnovich）现在将被迫调查这起令人难以置信的选举罪行。许多激进的左翼民主党人和软弱的共和党人非常担心这一事实被曝光。删除马里科帕郡的整个数据库和关键选举文件是史无前例的，许多其他州也可以效仿。主流媒体和激进的左翼民主党人希望尽可能远离总统选举舞弊，这应该是我们这个时代最大的新闻之一，《福克斯新闻》不敢报道，很少有人提及。同样，《Newsmax》在这个问题上几乎保持沉默，因为他们受到了诉讼威胁，《美国新闻网》（OAN）是电视上发展最快的网络之一，也是“最热门的”，它在揭露发生的大规模欺诈方面做得非常出色。故事只会越来越大，在某个时候，弱小和/或腐败的媒体不可能不报道。感谢《美国新闻网》和其他勇敢的美国爱国者。一切都在迅速发生！
 
-川普总统的这则声明发布后，川普总统的网站（https://www.donaldjtrump.com）一度遭轰至瘫痪【2】，可见当今美国的状况，像不像某大国？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
 
-如果“删除”数据这种邪恶行径不搞清楚，“其他州也可以效仿”算是轻的，再焚烧了选票和设备，可以让你毁无对证！
 
-没有文贵先生，自由灯塔的美国会加速奔向中共引领下的共产主义！
 
-有关链接：
+近期，华为、阿里巴巴、360、腾讯、滴滴、小米都宣布要做电动汽车。一时间，一众与汽车无关的企业，纷纷想要在电动汽车行业中分一杯羹。随之而来的就是中共市场对特斯拉的打压，比如，中共有计划的炮制特斯拉“刹车门”事件。更甚者，中共国把各地多起特斯拉车祸都归咎于其质量问题，大有把特斯拉赶出中共国之势。这也导致“华为开始卖车，特斯拉市值一天蒸发1500亿”，“华为干掉特斯拉，胜算有多大？” 等文章充斥媒体，粉红被打足鸡血。
 
-【1】[https://www.donaldjtrump.com/desk/desk-4yeh37peju/](https://www.donaldjtrump.com/desk/desk-4yeh37peju/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15181837/40-2.jpg)图片来源：网易
 
-【2】[https://www.thegatewaypundit.com/2021/05/breaking-trump-desk-website-releases-statement-saying-entire-database-maricopa-county-arizona-deleted/](https://www.thegatewaypundit.com/2021/05/breaking-trump-desk-website-releases-statement-saying-entire-database-maricopa-county-arizona-deleted/)
+中共国的车企真能做出超越特斯拉的电动汽车吗？一个连传统汽车都是靠与国外车企合资，只偷到了些皮毛技术的国家，怎敢号称电池技术、自动驾驶技术领先世界？真实情况是，马斯克在2014年6月21日向全球公布了特斯拉271项专利，其中包括了263项发明专利及8项外观专利。一个月后，乐视汽车成立。接下来，蔚来、小鹏、理想汽车亦相继成立。可想，没有特斯拉的开源技术，中共国还在做着电动摩托车。然而，中共一拿到先进技术，马上吹牛逼“领先世界”了。而中共国的车企获得了特斯拉的开源技术后，稍加修改，改头换面地在国内外注册专利，干尽卑鄙无耻、极尽恶心之事。
+
+近一年来，华为、阿里巴巴、360、腾讯、滴滴、小米都宣布要加入到电动车行列，其原因无非是本行业业务大幅减少，为求企业存活，只能另辟蹊径。华为在欧美的高科技制裁下，手机无芯片可用，也不能使用安卓系统，只能转做低端机型，而其5G系统也被世界各国抛弃。之后，华为急病乱投医：先是看上酿酒、养猪，现在又想做车了。其他企业亦是同样面临着市场业务缩小、利润变低等境况，被迫转营实属无奈之举。再加上新能源汽车可以得到各地方政府的优惠政策和各种政策扶持，还能多圈几块地——这也是他们看重的地方。但是，电动汽车行业还有一批传统行业的企业正计划着要加入。未来，中共国的电动车又是一场大战。
+
+习近平执政以来，一路倒车：为满足自己的霸权欲望，不惜把世界搞乱，导致被世界各国孤立，还把国内经济弄得风声鹤唳。现今，这么多行业巨头共同钻到一条胡同里，抢夺一盘生意。这种现象，只有在中共国才会发生。而目前这种争抢难免造成重复投资、资源浪费、恶性竞争。历史早有证明，一窝蜂就会导致一起死。
+
+参考阅读：
+
+华为、阿里、腾讯、苹果、滴滴、小米…为什么巨头全都要造车？\_https://www.163.com/dy/article/G752C4TQ0519T7HP.html
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
+
+
+
+
 
 0
