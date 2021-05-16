@@ -1,45 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月15日劳伦斯·塞林博士关于中共病毒推文集合
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1246665/)
+## 【字幕】5/15/2021文贵盖特2：数字加密货币就是人类进入数字时代的真正的核心
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1246728/)
 
-劳伦斯·塞林博士： 另一个重要发现 – [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 新冠侦探[@2020Gladiator](https://twitter.com/2020Gladiator)将两名中共科学家，史佩勇和王林发联系了起来，他们都隶属于(新加坡)杜克大学-国大医学院、武汉病毒研究所、和中国人民解放军。 【转[email protected] 的推文】
-
-
-
-> Another important discovery – [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@2020Gladiator](https://twitter.com/2020Gladiator?ref_src=twsrc%5Etfw) connects two Chinese Communist Party scientists, Pei-Yong Shi & Linfa Wang, both affiliated with the Duke-NUS Medical School, the Wuhan Institute of Virology & the People's Liberation Army. [https://t.co/LkKABlfEyc](https://t.co/LkKABlfEyc)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393513001978929152?ref_src=twsrc%5Etfw)
+制作： 【彩虹桥】
 
 
 
-劳伦斯·塞林博士： [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 新冠侦探[@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1)已很专业地绘出了德克萨斯大学医学分校的史佩勇的网络图，史佩勇似乎是 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 和解放军大规模渗透美国病毒研究实验室的一个关键人物。 【转 [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1) （火来2号）的推文】
+尊敬的战友们好啊，5月15号。感谢昨天福建的战友全家给我发的视频，其中小孙女说了一句话：“郭爷爷，你头两天直播盖特身上都是毛毛。”哎呀，我说我咋没有发现呢？因为在这个手机上录的时候你看不见，但是咱们战友家里条件好，都是大电视，七八十寸甚至更大的电视，电视一放大，有个毛毛都能看见。因为我抱Snow，放下就开始去录了。就这细节，战友这么细，让我真感动。这么小的孩子，看了几年郭爷爷直播了，而且记忆犹新。说到这说到那都知道，让我特别特别的感动。特别特别感谢啊。
 
+国内的14亿人，14亿的人口里面什么人都有。绝大多数都是好人，明天七哥上午九点半直播。就聊一聊刚刚昨天到现在，爆料革命在世界引起的震撼，甚至有些欺民贼、王八蛋们现在拿这事做文章，就是我昨天发的盖特。坚决反对任何人对所谓的国内的公检法，国内的体制内的人员的孩子，被拒签或者幸灾乐祸这个事，明天七哥好好聊聊，好不好？七哥就是其中有一条，一定是唯真不破。如果有一天，你发现七哥说的和做的完全不一样的时候，或有矛盾的时候，你就上当受骗了，你怎么对你七哥都是可以的。这就是七哥一生的原则，“唯真不破”，爆料革命核心的核心。真、善、狠 ，唯真不破。
 
+另外，郭七条千万别忘了，我们的郭七条，不要忘了郭七条。今天我家来了好多好多客人。另外一个我要给战友们说一个，今天你看到的核心问题，哈马斯，巴勒斯坦和以色列的事情。战友们好好去想一想，七哥什么时候说的中东将要有大事？共产党这些年，操纵的几个热点地区，大家一定不要忘了，因为老百姓都不关心国际大事。国际大事就像人与人之间的关系是一样的。就像咱们看到了就是这些王八蛋黄河边，黄河边出来咋呼的时候，跟小狗似的乱咬的时候，一见到人就跑，就躲到狗窝里的时候，你就发现你从黄河边的口气，还有鸡腿潘的口气，以及在这个推特上，YouTube上“砸郭”的起起伏伏和这些人的态度，你就能发现咱们爆料革命点中了共产党哪的要害了，你就能发现共产党哪害怕了，你就能发现共产党在操纵这些疯狗在咬谁。
 
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) has expertly mapped the network of Pei-Yong Shi of the University of Texas Medical Branch, who appears to be a key figure in the massive infiltration of U.S. virus research labs by the Chinese Communist Party and the People's Liberation Army. [https://t.co/7okuBH0Eg5](https://t.co/7okuBH0Eg5)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393649829784477704?ref_src=twsrc%5Etfw)
+它国与国之间也是这个关系，它支持伊朗，伊朗就支持叙利亚。伊朗就在也门，有自己的武装力量。伊朗也给巴勒斯坦送武器，发展武器。共产党在背后搞所有的背后操控。像在菲律宾，菲律宾很多南部的所谓叛军力量，绝大多数武器全是来自共产党。它拿那个威胁菲律宾总统，疯子总统，叫什么…？罗德里戈·杜特尔特。就控制他，你不听我的，我就多给他武器，你个人就受到威胁。我这边给你钱，我那边拿武器威胁你。所以菲律宾的所有的都是共产党100%控制，不是90%。100%控制。你但凡去了菲律宾，你会发现菲律宾这个国家跟随美国民主，荒唐到什么程度？一个16米的一块地，他要盖几层楼，弄一小块绿地出来。要学美国的花园的建筑，别墅建筑。然后信仰很好，老百姓也很想学西方，但是那个政府是混蛋的，但是他被共产党左右给钳制住。
 
+那么伊朗，叙利亚在这，以色列在这儿，巴勒斯坦在这儿。然后也门高地，在这个地方。也门，叙利亚，整个霍尔姆斯海峡，戈兰高地。你去想一想，支持叙利亚的人是谁？打叙利亚的人是谁，是吧？所以你看以色列很牛，是吧？但是为什么以色列那么厉害，摩萨德准备了这么长时间，几千枚导弹，火箭弹，又多挖了十几倍的地道，而且你竟然情报没发现吗？它也没发现。谁在支持他？伊朗，中国共产党。但以色列人是中国共产党最大的技术的提供者和帮助者。他把这个恩怨没搞清楚，大家发现了吗？
 
+虚拟货币、区块链这一块儿，共产党在虚拟货币、区块链这块儿，很多技术是以色列人帮忙的，以色列人是要深思的。武器上，技术上，金融上，科技上，网络技术上，太空技术上，航空技术上，很多来自于以色列。我跟很多犹太人朋友说过，包括咱们的大使馆很多都是犹太裔的人。我说有一天你们一定会记住：对你们最大伤害的，一定是来自中国共产党。
 
-塞林博士： 独家：安东尼·福奇博士资助的研究使得中共国军方的史佩勇申请了专利。他一直在与中共国人民解放军合作。该资助是2021年福奇基金拨款926,569美元的一部分。 【附[http://thegatewaypundit.com](https://t.co/o7LjRSZiEI?amp=1)的特别报道】
+现在很多华尔街，好莱坞，还有硅谷，它没有明白过来。包括这个扎克伯格，什么这些社交媒体，他有一天会发现，对他们打击最厉害的，对所有这些科技，还有好莱坞这些不要脸的所谓文艺界们，最厉害就是共产党。这不是七哥有任何战略，这是发自内心的，因为我知道共产党的本质在哪里。共产党不允许任何力量，能跟他做平等的交易和平等的对话。当它没有选择的时候，它就当孙子，跟美国当孙子。从去年到现在，中国共产党在美国买了几千亿国债，所谓的私下里面的平衡，继续履行中国生产国到美国买国债，这么一个所谓两国互动的良好关系的根本性基础的条件上，中共还想跟美国友好。美国现在你想钱拿走，拿不走了，不让你拿走了。
 
+我再说一遍，是我唯一告诉大家的，2018年说的，中国共产党的家族的私人财产，一定会被查封。没有人相信。我再告诉大家一遍，现在在美国、在欧洲、在日本、在文明国家，已经开始在逐步查封了。就像2018年我告诉路德要脱钩一样，中概股一定被铲除一样。大家100%没人相信，不是99%，100%没人相信。现在变成现实了吧？大家也没人说了，也没人给七哥打个赏什么的，是吧？但我再告诉你，共产党所有的资产都会被查封。此时此刻，就现在上班时间，九点开始，就有人已经在电脑前面在做了。Turn off， Close. 这就是现在在行动。
 
+兄弟姐妹们不要听说，“以毒灭共，以钱灭共”。“以钱灭共”咱要钱越来越多，再把共产党钱越来越少，然后给它一个空中取钱，这是我们现在最核心的。还有现在，虚拟货币，数字货币在全世界的这场较量当中，真正的较量是什么？虚拟货币，加密货币领导全人类的金融新时代，是任何人推翻不了的。现在较量的结果就是，这个虚拟货币和加密货币标准规则谁来制定？能挣这两个制定规则和控制权的人是谁呢？无非是美国United States，中国China Communist Party，谁说了算？最终一定是美国赢。大家毋庸置疑，想取消虚拟货币，加密货币，不可能。这就像当年的西班牙最早从这个椅子，叫Bank交易货币，从易货贸易变成了黄金贸易，然后票据贸易一样。谁先做，谁抢前面，咱先做，咱抢前面，谁想否定，不可能！
 
-> EXCLUSIVE: Dr. Anthony Fauci Funded Research That Led to Patents for the Chinese Military
-> Pei-Yong Shi, who has been working with the Chinese People's Liberation Army, is part of a 2021 Fauci grant for $926,569.[https://t.co/lCKxJMpHUb](https://t.co/lCKxJMpHUb)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393581649154150402?ref_src=twsrc%5Etfw)
-
-
-
-劳伦斯·塞林博士： 哇喔。 俄亥俄州立大学前生物医学教授郑宋国被判37个月监禁，因他使用联邦补助帮助了中国医学研究。
-
-
-
-> Uh Oh.
-> Former biomedical Professor Zheng Songguo from Ohio State University Sentenced to 37 Months in Prison for Using Federal Grants to Aid China’s Medical Research.[https://t.co/31b2QnOJQo](https://t.co/31b2QnOJQo)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393622172766179328?ref_src=twsrc%5Etfw)
-
-
+我看到咱们战友当中都在做这个加密货币的视频，非常非常棒。让更多的战友加入到G-TV和喜币系列，更多的战友加入我们的盖特系列，跟多的战友加入到我们的G-News系列。战友们准备好了吗？准备好一定抓紧联系，不要错过这个机会。我告诉你，所有谷歌YouTube给你的条件，没有任何人可以跟我们相比。你好好看一看，我们可以给你的选择，工资比它高，待遇比它强，鼓励比它强。这就叫新中国联邦，不信咱试试看？莘县阳谷县搭县，走走看！
 
 0

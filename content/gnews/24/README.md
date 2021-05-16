@@ -1,53 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】锅言灶语
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1246336/)
+## 量子态的中共真相
+` 文名` [轉載自GNews](https://gnews.org/zh-hans/1246404/)
 
-配音：香草山录音组 Gtv abeilles（蜜蜂）
+**作者：英国伦敦喜庄园 文名**
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+中共国发生的一切，好似都在一个黑盒子里。如同薛定谔的猫，永远处在量子态。亦真亦假。原因是什么呢？没有观察者。
+我们知道，在量子科学中，粒子有无限种可能。当存在观察者时，无限的可能就坍塌成只有一个可能，就是当下，就是现实。
+
+而中共国呢，这次的火星登陆，几天前的成都49中坠楼事件，永远没有真相。
+中共习惯性地把所有事件关进一个小黑盒里，禁止任何人观察。他自己朝盒子里瞥一眼，对外宣布一个结论，说这就是真相！
+
+人们当然会不服，凭啥你说啥就是啥？你为啥不让我们监督盒子里发生了啥？
+
+中共说，这是为你们好，怕你们看了血腥画面受到心理伤害，我替你们监督了，我说的就是真相。
+
+人们说，可是你从来都在撒谎，我们不信！
+
+中共说，管你们信不信，我反正是信了。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15190237/%E6%90%9C%E7%8B%97%E6%88%AA%E5%9B%BE21%E5%B9%B405%E6%9C%8816%E6%97%A50647_1-edited.png)图片来源：BBC
+火星登陆，中共播了一段几年前的5毛特效动画，说我们成功啦！
+黑人问号？？？谁观察到了？录像呢？照片呢？
+
+49中坠楼案，中共动用大量警察和网络水军，把一切民间声音消失，把一切关进小黑盒。然后官方放出一个自己剪辑好的小视频，说，孩子失恋了自杀了。
+黑人问号？？？谁观察到了？当事人呢？完整录像呢？
+
+细数中共历史上发生的事件，似乎都是照着这个剧本在演。把一切关进小黑盒，官方发出声明，结案。
+但是近几年我们爆料革命把中共从内到外爆了个遍，无数个观察者从黑盒子里逃了出来。
+世界终于认识到中共的真正嘴脸。
+中共深陷塔西佗陷阱，没有人相信它说的任何话。哪怕它说的是真相，也无人相信了！
+就如同49中事件，哪怕中共说的殉情自杀是真相，但是它拒绝了观察者的存在，那么整个事件就是量子态，人民不会买中共的单。
+打开盒子，才是建立信任的基础。中共你拿盒子把一切关起来，目的不就是为了撒谎吗？
+
+推到防火墙，开放舆论监督，拒绝小黑盒。有观察者，才可能迎来真相。
+当然中共自己是不可能允许打开真相的，阳光照进来它就灰飞烟灭。它就是要隐藏在黑暗中，变成量子态。黑暗处是藏污纳垢之处，只会滋生邪恶。
+人类文明已不再需要和允许这种黑暗了。
+中共必须退出历史舞台！
+
+**文章仅代表作者观点**
+
+**参考文献：**
+
+[如何理解量子力学中观察者的影响？量子力学是唯心思想么？](https://www.zhihu.com/question/20381480)
 
 
 
+**末学的其他作品：**
 
+[美国大选中Q预言现象的反思](https://gnews.org/zh-hans/804872/)
 
+[再谈美国大选中Q预言现象的认识](https://gnews.org/zh-hans/836610/)
 
+[阴谋和阴谋论——三论Q预言对爆料革命的伤害](https://gnews.org/zh-hans/881876/)
 
-小馆营业
+[事实和谎言，锚点和槽点——四论Q预言对爆料革命的伤害](https://gnews.org/zh-hans/881769/)
 
-月余有半
+[中共妖塔以假乱真的控心术](https://gnews.org/zh-hans/881662/)
 
-砥砺前行
+[打死不如打伤-浅论现代超限生化战](https://gnews.org/zh-hans/947979/)
 
-狭逢求生
+[文贵先生是全球华人的宝贵财富](https://www.gnews.org/zh-hans/1126764/)
 
-锅言要动响
+[超限科学误导—沼泽地的传统艺能](https://www.gnews.org/zh-hans/1138900/)
 
-灶语想出声
+[新中国联邦——我们的征途是星辰大海！](https://gnews.org/zh-hans/1184650/)
 
+[新中国联邦人将受到全世界最大的尊敬](https://gnews.org/zh-hans/1203395/)
 
-
-**文字版原文：[【香草诗词汇】锅言灶语](https://gnews.org/zh-hans/1243811/)**
-
-作者：纽约香草山健身部 澄道
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-+1
+0

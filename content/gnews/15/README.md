@@ -1,35 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《文贵说》| 图片连载（八十二）
-` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/1245956/)
+## 哈马斯的新武器
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1246453/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15151811/G2101016_X_CN.jpg)
-**人要长德，德如长江。**
-
-**—— 郭文贵先生 2017年10月8日**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15151827/G2101017_X_CN1.jpg)
-**亲爱的义工们你们是郭先生身后一双双强有力的手！一起加油！**
-
-**—— 郭文贵先生 2017年10月12日**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15151845/G2101018_X_CN_1.jpg)
-**新中国联邦不是任何人能撑住的，必须是有亿万个战友，每个人都觉得自己不重要，这是不对的，你们每个人都很重要。**
-
-**—— 郭文贵先生 2020年7月4日**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15151903/G2101019_X.jpg)
-**我们是否发自内心的，真正的有勇气、干净的追求消灭共产党，不惜一切代价地要建立自己的信仰和尊严？战友们这个你问你自己去，我没有权利给你答案。**
-
-**—— 郭文贵先生 2020年7月4日**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15151921/G2101020_X_CN.jpg)
-**新中国联邦宣言能，干翻共产党、消灭共产党、推翻共产党，咱能不能推翻咱骨子里边、咱内心世界的毒？**
-
-**—— 郭文贵先生 2020年7月4日**
+```
+新闻来源：德国世界报 网络版  
+记者：阿尔弗雷德·哈肯斯伯格（ Alfred Hackensberger）
+发布时间：2021年5月14日
+翻译整理/ 简评： Shuizhuyu
+```
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15201535/image0-8-2.jpg)图片来源：华尔街日报
 
-- **更多精美海报请点击:**
-- [***Getome 文贵说｜Words From Miles***](https://getome.com/user/wordsfrommiles)
-- [***G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4#getter)
+在伊朗的支持下，恐怖民兵拥有更大范围的导弹，可以到达以色列大部分地区。 无人机也是新军火库的一部分。 但是，为什么以色列的军队显然没有为此做好准备？
 
+哈马斯军事发言人阿布·奥贝达警告说：“我们已经准备好教敌人一课。” “地面进攻只是增加我们死去的和被俘虏敌人收成的机会。”另一个巴勒斯坦恐怖组织伊斯兰圣战组织的发言人阿布·哈姆萨甚至说，如果以色列部队进入加沙地带，就是“通向胜利之路”。
 
-+1
+#### 简评： 
+
+**中东局势这两天引起了世界的广泛关注。 恐怖组织哈马斯主动发起了火箭弹袭击之后， 还不停止，袭击已经持续了几天。 而且恐怖组织的伎俩都是一样的，是要让老百姓成为自己的挡箭牌， 因此也使以色列的高级武器无法施用。现在伊斯兰圣战组织也跳出来说，如果以色列进入加沙地带， 就是恐怖组织的胜利之路。**
+
+**但是，现在所有的西方国家都在对哈马斯表示了极大的愤怒， 可是愤怒从来不是恐怖组织害怕的。因为他们是流氓组织， 他们相信的只有真正的实质的行动。 而这些恐怖组织又是在邪恶轴心国伊朗的支持下。 相信正义的力量一定会最终拿出自己的实力， 一定会让恐怖组织最后消失在真个世界上。**
+（本文只代表译者观点， 与 Gnews平台无关）
+
+**新闻原文链接：**🔗[Die neuen Waffen der Hamas](https://www.welt.de/politik/ausland/plus231149421/Eskalation-in-Nahost-Die-neuen-Waffen-der-Hamas.html)h
+** **
+
+* * *
+
+***编辑整理/校对: **Ting Guo*
+
+0
