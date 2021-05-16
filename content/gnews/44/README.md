@@ -1,41 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以色列对哈马斯的定点清除可确保领导先走而司机安全
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1244180/)
+## 【农场动态】温哥华扬帆农场举行庄严的升国旗仪式庆祝建国一周年
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1247177/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15020148/d2b24efa3037fekqmo7i-600x338-1585977194493_%E5%89%AF%E6%9C%AC.jpg)
-据[沉默的力量The power of \[email protected\]](https://twitter.com/2mmbPkM00IJwIUV)于[上午2:10 · 2021年5月15日](https://twitter.com/2mmbPkM00IJwIUV/status/1393267392336203778)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
+作者：温哥华扬帆农场 – 文敏
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16011308/%E6%96%87%E6%95%8F210515-2.jpg)
+为庆祝新中国联邦成立一周年，5月15日上午，温哥华扬帆农场线下活动小组组长Tommy组织农场的战友们举行了庄严的升国旗仪式，以此向六四建国 一周年献礼。因为疫情期间必须遵守政府规定，人数只能控制在20人之内，于是战友们兵分两路，在温哥华女皇公园和Canada Place（五帆酒店）附近，分别举行了庄严肃穆的升国旗仪式。
 
-【胆小勿入】 以色列刀片弹精准打击，领导被切成肉酱，司机只是受轻微伤[嘿哈][嘿哈]
+在激昂的《喜玛拉雅之巅》的国歌声中，大家仰望着徐徐升起的新中国联邦国旗，战友们都非常激动，高呼“Take Down The CCP”、“新中国联邦，人类的希望”、“Covid -19 is Bio-Weapon and made by CCP”等口号。今天的活动也吸引了许多行人的注意，一些行人走上前来询问，战友们都做出了很好的回答。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16011253/%E6%96%87%E6%95%8F210515-1.jpg)
+2017年文贵先生引领爆料革命，以唯真不破、大善大智和浩然正气呼唤全球战友汇入到灭共洪流中去。几年过去，爆料革命以唯真不破向世界揭露了中共政权的邪恶、称霸世界的野心和对世界秩序的破坏，告诉世界病毒真相，唤醒全世界，并于2020年6月4日，由文贵先生和班农先生在美国自由女神旁边宣布新中国联邦正式成立，郝海东先生宣读新中国联邦宣言，从此改写世界历史。
 
+转眼间64即将到来，不到一年的时间，世界格局发生天翻地覆的变化，全球灭共形成不可阻挡之势，中共邪恶政权灭亡已成定局。
 
+战友们，行动起来！
 
-> 【胆小勿入】
->  以色列刀片弹精准打击，领导被切成肉酱，司机只是受轻微伤[嘿哈][嘿哈]🙏😱 [pic.twitter.com/4dhIqOVCyP](https://t.co/4dhIqOVCyP)
-> — 沉默的力量The power of reticence (@2mmbPkM00IJwIUV) [May 14, 2021](https://twitter.com/2mmbPkM00IJwIUV/status/1393267392336203778?ref_src=twsrc%5Etfw)
+全球的华人们，行动起来！
 
+灭共没你不行，灭共就缺你一个！
 
+相信在不久的将来，新中国联邦的旗帜一定会飘扬在中华大地上，中共不灭，天理不容！ “八九64”，中共用无数学生的鲜血为这个邪恶的独裁政权续命30年，而新中国联邦的“64”将给新中国联邦人带来永久的民主和自由，新中国联邦人永不为奴！
 
-请注意后座的领导已经被切成肉酱，但是司机只受了轻微伤。
-
-另据[沉默的力量The power of \[email protected\]](https://twitter.com/2mmbPkM00IJwIUV)于[上午11:50 · 2021年5月15日](https://twitter.com/2mmbPkM00IJwIUV/status/1393413573343252480)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文
-
-现代战争已不是人海战术，拿士兵当炮灰了，而是擒贼先擒王了，无人机，刀锋导弹，都是向着领导去的！！ 现在当兵比当军官安全！[憨笑]
-
-
-
-> 现代战争已不是人海战术，拿士兵当炮灰了，而是擒贼先擒王了，无人机，刀锋导弹，都是向着领导去的！！
-> 现在当兵比当军官安全！[憨笑] [pic.twitter.com/CGf0TfctU4](https://t.co/CGf0TfctU4)
-> — 沉默的力量The power of reticence (@2mmbPkM00IJwIUV) [May 15, 2021](https://twitter.com/2mmbPkM00IJwIUV/status/1393413573343252480?ref_src=twsrc%5Etfw)
-
-
-
-请注意：这一次的斩首甚至连车体的损伤都非常轻微。
-
-以色列对哈马斯领导人的定点清除已经可以确保领导先走而司机安全，相信这了是未来的对中共领导人斩首的新模式，在那样的情况下，相信人民群众也会放心地在领导人身边眼睁睁地看着领导人先走，只是这种斩首模式再安全也无法保证围观群众身上不被溅上领导人的血污，所以在未来中共国领导人先走的时候，请围观群众还是要适度拉开与领导人的距离。
-
-（文章内容仅代表作者个人观点）
+编审/校对/发稿：Shuang
 
 0

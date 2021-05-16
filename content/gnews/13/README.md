@@ -1,55 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【独立观点】上海与特斯拉全球最大出口中心擦肩而过
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1247586/)
+## Sellin上校号召病毒侦探寻找史佩勇教授与中共军方关系网
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1247587/)
 
-作者：纽约香草山健身部 Ivy001
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
-
+- 编译：【默凡】
+- 封面：七白石
 
 
-据路透社独家消息，特斯拉已经暂停置地扩建上海工厂的计划，特斯拉原来打算把上海工厂打造成全球最大的出口中心。
+5月16日，Sellin上校连发两条推特，他强调美国德克萨斯大学加尔维斯顿医学分部史佩勇教授可能是中共军方大规模渗透美国病毒研究实验室的关键人物，号召所有病毒侦探调查从史佩勇的关系网中寻找与中共军方有联系的科学家资料。
 
-消息人士告诉路透社，特斯拉早先曾考虑将其在中共国生产的入门级Model 3 车款出口到世界各国的市场，包括美国在内。该车款目前出口到欧洲，特斯拉已经在德国建了一座工厂。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16051950/%E5%9B%BE%E7%89%8710-9.png)图片来源：网络
 
-特斯拉透露的理由是，由于中美贸易战带来的不确定性。其实，明眼人都知道，特斯拉的战略计划改变是由于之前在上海车展遭遇的碰瓷式“维权”。在此之后，特斯拉马上转变战略计划，叫停在中共国的扩建项目。
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) has expertly mapped the network of Pei-Yong Shi of the University of Texas Medical Branch, who appears to be a key figure in the massive infiltration of U.S. virus research labs by the Chinese Communist Party and the People's Liberation Army. [https://t.co/7okuBH0Eg5](https://t.co/7okuBH0Eg5)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393649829784477704?ref_src=twsrc%5Etfw)
 
-在超高智商的Elon Mask领导下，特斯拉一向以其灵活多变、反应迅速的战略部署出名。在遭遇中共国的“维权”事件，和被中共国政府强迫打压之后，特斯拉马上调整战略计划。
 
-在上月发生“维权”事件之后不久，特斯拉披露，已经完全偿还高达40亿元人民币的银行融资，相关贷款合同已经终止。该项贷款原本用于上海超级工厂的项目，在今年6月到期，按计划，不应该提早2个月时间偿还的。才过去两周，特斯拉又透露，不会再有置地计划，不再打算大幅提高在中共国的产量，至少暂时如此。
 
-由此可见，特斯拉正在急速改变原来的战略部署，外界猜测，特斯拉正在考虑撤出中共国的工厂。与此同时，特斯拉面对的中共国式“维权”，亦让外国许多企业感到在中共国发展缺乏安全感，也相继流出撤出中共国的传言。
 
-这就是中共国的一手导演的“维权”事件后果，上海与特斯拉的全球最大出口中心擦肩而过。不知道中共国当局有没有觉得，搬起的石头砸到了自己的脚上？破坏市场规矩的中共国政府，为自己的短视付出了惨重代价。
 
-一个流氓的政权，只能管理出一个流氓的政府。在一个流氓政府管治下的国家，无论是中资企业，还是外资企业，都不可能有长期的良好发展。只有灭掉CCP，才能有真正的市场经济和发展。
+> Again, [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) provides valuable information – the research network of CCP scientist Pei-Yong Shi. Let's identify the military-connected people in those links. [https://t.co/Ey4uQgurhD](https://t.co/Ey4uQgurhD)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 16, 2021](https://twitter.com/LawrenceSellin/status/1393778363664375813?ref_src=twsrc%5Etfw)
 
-参考阅读：
 
-https://cn.reuters.com/article/idCNKBS2CT03O
 
-校对/发稿：飞虹
+史佩勇是世界病毒学领域研究前沿的杰出华人科学家之一，主要从事寨卡病毒等复制机理、抗病毒药物和疫苗研发等方面研究，是美国微生物学院院士、美国科学院顾问，先后在公共卫生机构、全球大型药物公司、高校及科研单位担任重要职位。目前已发表SCI论文260多篇，研究成果发表在病毒学、药理学、生物化学等领域的权威刊物；应邀在多个国际著名期刊上发表评论和综述；拥有多项世界专利；担任国际三大病毒学杂志及自然疫苗子刊编辑和编委。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01143151/M5.jpg)
+参考来源：
 
-**六四文宣大赛，****欢迎大家踊跃投票****：**[**https://gnews.org/poll/poll-article\_1/**](https://gnews.org/poll/poll-article_1/)
+[https://www.njmu.edu.cn/2019/1024/c606a156068/page.htm](https://www.njmu.edu.cn/2019/1024/c606a156068/page.htm)
 
-**投票注意事项：第一，比如投票视频，一个账号需要同时选中要投的三个视频作品，方可以投票；第二，因为视频比较大，所以需要大家静待一两分钟，然后进入视频投稿界面。第三，投票的战友也有机会获幸运参与奖啊。**
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+本文仅代表作者本人观点，不代表Gnews平台
 
 0
