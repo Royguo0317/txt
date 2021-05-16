@@ -1,39 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CDC:完全接种疫苗的人可以在 室内摘掉口罩，但要保持社交 距离
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1247234/)
+## 仅仅是“巧合”？中共本土疫情又起与疫苗炒作
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1247347/)
 
-翻译： 康州盘古农场 – Freeearth
+作者：　Stephen文文
 
-校对： 康州盘古农场 – Mike Li
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16031526/051602.jpg)
 
-编辑：康州盘古农场–傻小子
+近日，中共陆续报道了发生在安徽、辽宁两地的本土疫情，看似中共是在主动曝光疫情，标榜在疫情控制中的“透明性”。但很有可能实际上是为了胁迫民众打疫苗！
 
-发布：康州盘古农场 – 彩虹 Rainbow
+我们先来看一下和这次安徽、辽宁疫情“巧合”发生的事件，以及中共的舆论操作。在疫情报道之前，先出场的是“中共病毒四大不要脸”的高福与钟南山，两人高喊疫苗接种： 
+1. 5月12日消息，高福接受工藤泰志采访时表示，“预计到明年，中国将有9-10亿人接种新冠疫苗，可达到实现全民免疫的标准。”（[https://m.thepaper.cn/newsDetail\_forward\_12639279）](https://m.thepaper.cn/newsDetail_forward_12639279%EF%BC%89)
+2. 5月13日，钟南山首次在公开场合晒出了自己接种新冠疫苗的照片，为主动接种疫苗做出榜样。（[https://ishare.ifeng.com/c/s/86D3sQvzjmx）](https://ishare.ifeng.com/c/s/86D3sQvzjmx%EF%BC%89)
 
-**疾病预防控制中心（CDC）主任罗谢尔·瓦伦斯基 (Rochelle Walensky) 博士称更新后的建议是“激动人心且强大的时刻”。**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16012639/vacinne.jpg)
-周四，疾病预防控制中心（CDC）主任罗谢尔·瓦伦斯基（Rochelle Walensky）博士在白宫的中共病毒简报会上宣布，已经完全接种中共病毒疫苗的人在室内或室外或在大小型聚会中与身体保持一定距离时，都不再需要戴口罩。
+而在疫情发生后， 
+3. 5月14日，中共派出专家组赴安徽，专家组还没有调查出一个子丑寅卯，就开始了特别提示：“必须加快新冠疫苗接种！”（[https://news.sina.cn/gn/2021-05-14/detail-ikmyaawc5306478.d.html?cre=tianyi&mod=w2019ncov&loc=-5&r=-1&rfunc=48&tj=cxvertical\_2019ncov&tr=73&vt=4&pos=222）](https://news.sina.cn/gn/2021-05-14/detail-ikmyaawc5306478.d.html?cre=tianyi&amp;mod=w2019ncov&amp;loc=-5&amp;r=-1&amp;rfunc=48&amp;tj=cxvertical_2019ncov&amp;tr=73&amp;vt=4&amp;pos=222%EF%BC%89)
 
-在拥挤的室内环境下，如在公共交通工具上以及在医院、监狱和无家可归者收容所中，仍建议已经完全接种疫苗的人们戴口罩。
+同时中共媒体开始出场，热炒疫苗接种，制造疫苗恐慌。对民众开始精神胁迫， 
+4. 5月14日，中共控制的各个媒体开始报道“合肥奥体方舱接种点爆棚！”（[http://www.wehefei.com/mobile/article.html?path=/news/2021/05/14/c\_346001.htm）](http://www.wehefei.com/mobile/article.html?path=/news/2021/05/14/c_346001.htm%EF%BC%89) 
+5. 5月15日，中共又在全网热吵钟南山疫苗接种视频。（[https://k.sina.cn/article\_5347795977\_m13ec0e40902000rqu2.html?from=society&cre=tianyi&mod=w2019ncov&loc=-1&r=-1&rfunc=48&tj=cxvertical\_2019ncov&tr=73&vt=4&pos=222）](https://k.sina.cn/article_5347795977_m13ec0e40902000rqu2.html?from=society&amp;cre=tianyi&amp;mod=w2019ncov&amp;loc=-1&amp;r=-1&amp;rfunc=48&amp;tj=cxvertical_2019ncov&amp;tr=73&amp;vt=4&amp;pos=222%EF%BC%89)
 
-瓦伦斯基说：“我们都在渴望能回到某种正常状态的这一刻。” “基于病例持续下降的轨迹，也基于我们疫苗性能的科学数据以及我们对病毒传播方式的了解，对于那些已经完全接种疫苗的人来说，这一时刻已经到来。”
+与疫情、疫苗的的巧合放在一起，不得不让人怀疑中共操弄这波“疫情”的目的是什么。而在这波所谓“疫情”发生之前，中共已经长达几个月没有报道本地疫情，民众的疫苗接种热情普遍不高，除了送鸡蛋、送油能吸引一些老年人进行接种外，普通民众并没有接种疫苗的积极性。
 
-瓦伦斯基说，那些免疫功能低下的人在摘下口罩之前应咨询医生，并警告说，如果美国的病例数回升，指导建议可能会更改。
+中共的核酸检测报告都控制在中共自己手里，“说你阴，你就阴，不阴也阴；说你阳，你就阳，不阳也阳！”想搞出几个阳性数据太容易了，操弄出一波不疼不痒的小疫情，又卖疫苗又卖检测试剂盒。
 
-她说：“这种病毒可能是无法预测的，因此，如果情况变得更糟，我们总是有机会需要对这些建议进行更改。”
+中共墙内民众一定要在注意自身病毒防护的情况下，保持好心态，不要被中共“操弄”出来的疫情胁迫着去打疫苗！
 
-瓦伦斯基说，人们还被建议重新戴上口罩，如果他们出现可能的COVID-19症状，应立即接受检测。
+[援引原文](https://news.sina.cn/gn/2021-05-14/detail-ikmyaawc5306478.d.html?cre=tianyi&amp;mod=w2019ncov&amp;loc=-5&amp;r=-1&amp;rfunc=48&amp;tj=cxvertical_2019ncov&amp;tr=73&amp;vt=4&amp;pos=222%EF%BC%89)
 
-当被问及公众的批评是否迫使CDC更新建议时，瓦伦斯基说该机构是在遵循科学事实的情况下做出的指导建议。
-
-“我想说明的是，我们遵循科学。虽然最新的建议可能会激励一些人接种疫苗，但这不是我们的目的，我们的目的是作为一个公共卫生机构，遵循科学，遵循我们在科学方面所处的情况，确定什么措施对个人是安全的，”她说。
-
-福西说已完全接种疫苗的人“不必在外面戴面具” 链接: [https://www.foxnews.com/health/fauci-vaccinated-people-dont-have-to-wear-mask-outside](https://www.foxnews.com/health/fauci-vaccinated-people-dont-have-to-wear-mask-outside)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+审核校对：鲁邦五世
+上传排版：糖果儿
 
 0
