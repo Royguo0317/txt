@@ -1,35 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Sellin上校号召病毒侦探寻找史佩勇教授与中共军方关系网
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1247587/)
+## 【战友心声】救救孩子
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1247664/)
 
-- 编译：【默凡】
-- 封面：七白石
+作者：纽约香草山农场 猪逻辑
 
-
-5月16日，Sellin上校连发两条推特，他强调美国德克萨斯大学加尔维斯顿医学分部史佩勇教授可能是中共军方大规模渗透美国病毒研究实验室的关键人物，号召所有病毒侦探调查从史佩勇的关系网中寻找与中共军方有联系的科学家资料。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
 
 
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) has expertly mapped the network of Pei-Yong Shi of the University of Texas Medical Branch, who appears to be a key figure in the massive infiltration of U.S. virus research labs by the Chinese Communist Party and the People's Liberation Army. [https://t.co/7okuBH0Eg5](https://t.co/7okuBH0Eg5)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393649829784477704?ref_src=twsrc%5Etfw)
+近日成都49中学生”坠楼事件”持续发酵,，网友纷纷质疑诸多疑点.。对于一个一贯造假、说谎、欺骗民众的政府来说，中共政府早已陷入塔西佗陷阱，公信力荡然无存。这不禁让笔者想起了被嫖娼死的雷洋事件，陈彦霖溺亡事件，贯君、刘呈杰假视频等都是主动作恶，目的是为了掩盖真相，掩人耳目。让人错愕的是这一系列事件背后深层次的发生原因、处理方式和处理结果。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16061146/CqgNOlbeJMSAJDgZAAAAAAAAAAA23.387x235.jpg)
 
+中共国不加限制、凌驾于法律之上的权力不仅仅在社会上大行其道，也从校外侵蚀到校内。中共校园的一系列事件，本质上就是公权力私有化、权力滥用在校园里的延续或延伸，法律只是个别人的私家王法。如红黄蓝幼儿园幼儿疑似遭针扎、被喂药等的虐童事件，清华大学高才生朱令离奇因重金属物质铊中毒两次，至今成了悬案。中共国甚至有一种奇葩现象，个别人在社会上遭遇不公正的对待，而又投诉无门或者被打压、 被冤枉后，最终出现报复社会如冲破校园砍杀儿童的极端行为。这本质上也是社会深层次矛盾不断累积，社会严重不公，疏导、解决机制失灵等的结果。
 
+中共国不仅仅是刻意填鸭教育制造机器，荼毒学生年幼的心灵，扼杀他们的创造力想象力，如今的中共校园，冥冥中似乎已然树立起一堵“高低阶级”的无形之墙，学校里似乎没有了平等的意识概念，竟然分出了个三六九等，拼的是爹。社会所营造的“权威”“大官”“领导”“攀比”“当官的孩子惹不起”等风气在校园里盛行，部分学生感知或借用到家长权力背景会傲慢地欺侮其他同学。似乎就连老师也很识“抬举”，羞辱体罚学生的对象也主要是家庭实力不够雄厚的学生，试想权力顶峰中南坑的子女会被体罚、被羞辱、被强奸、被自杀吗？
 
+细数中共国校园屡见不鲜的种种乱象：学生送礼风气、小学生立志长大做贪官、帮同学抄作业赚外快、灵魂工程师的教师不认真教课只为推销辅导班多赚钱……，更不必提教师体罚学生，甚至猥亵学生，多少青少年因被老师无视尊严，无视生命，如公开羞辱或训服打压等而造成长期的心理阴影和精神问题。
 
-> Again, [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) provides valuable information – the research network of CCP scientist Pei-Yong Shi. Let's identify the military-connected people in those links. [https://t.co/Ey4uQgurhD](https://t.co/Ey4uQgurhD)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 16, 2021](https://twitter.com/LawrenceSellin/status/1393778363664375813?ref_src=twsrc%5Etfw)
+中共国学生的成长环境令人担忧，从校园环境到社会环境到家庭环境无不如此。一些学生因学习压力大、家长期待过高等而自杀或长期精神压抑。校园欺凌等诸多事件也屡禁不止。联合国教科文组织的一项调查数据显示，世界范围内，不同地区之间的欺凌发生率存在显著差异。撒哈拉以南非洲（48.2%）、北非（42.7%）和中东（41.1%）的学生被欺负的比例最高，欧洲（25%）、加勒比（25%）和中美洲（22.8%）的学生被欺负的比例最低。这里不难看出，校园欺凌的比率很大程度上与国家文明的大环境大背景有关，也与其对欺凌的定义和界定有关。而中共国“人吃人”“人欺人”“人骗人”的社会大环境必然传导至校园。仅2019年就发生诸多校园欺凌事件。
 
+1. **12岁女生遭多次殴打左肾积水**
 
+事件介绍：河北邢台清河挥公实验中学12岁女生遭室友殴打，胳膊后腰等多处淤青，诊断显示肋骨骨折、肾积水。
 
-史佩勇是世界病毒学领域研究前沿的杰出华人科学家之一，主要从事寨卡病毒等复制机理、抗病毒药物和疫苗研发等方面研究，是美国微生物学院院士、美国科学院顾问，先后在公共卫生机构、全球大型药物公司、高校及科研单位担任重要职位。目前已发表SCI论文260多篇，研究成果发表在病毒学、药理学、生物化学等领域的权威刊物；应邀在多个国际著名期刊上发表评论和综述；拥有多项世界专利；担任国际三大病毒学杂志及自然疫苗子刊编辑和编委。
+事件回顾：12月5日，小刘与同班同宿舍的王某发生矛盾，后王某纠结其他宿舍三人，本宿舍三人，共计七人对小刘进行殴打，截至13日一周时间以王某为首的一行人对小刘进行了多次殴打。从动手殴打到用衣服挂抽打，将洗面奶倒头上，脱下衣服当拖布。小刘的损伤程度为轻伤二级，三根肋骨骨折，左肾积水。以往活泼的女孩变得沉默寡言，每到晚上宿舍睡觉的时间点，孩子就会莫名地大哭。
 
-参考来源：
+2. **女生遭6名女同学毒打致耳膜穿孔**
 
-[https://www.njmu.edu.cn/2019/1024/c606a156068/page.htm](https://www.njmu.edu.cn/2019/1024/c606a156068/page.htm)
+事件介绍：“她们用脚踢我，到处都踢。我疼得昏过去了，她们就用冷水将我泼醒，让我给她们磕响头，整个过程大概持续了一个多小时。”小吴说。3月18日上午，云南省电子信息高级技工学校（滇池校区）的女生小吴在家人的陪同下，到《都市时报》反映称，她16日凌晨被6名同班同学拳脚相向，打至左耳鼓膜穿孔。
 
-本文仅代表作者本人观点，不代表Gnews平台
+其余还有：
+
+大一女生遭扒衣录像
+
+女孩遭4名女生殴打鼓膜穿孔
+
+30多名小学生排着队挨打
+
+三学生殴打同学遭反杀
+
+一初中生遭5名同学殴打致死
+
+…… ……
+
+中共国甚至把校园欺凌、校园暴力推卸为全球性难题，以此撇开自身的管理无能。事实上不难看出，即便撇开中共统计数据、坏事一贯低调处理的传统，中共国校园暴力欺凌程度之恶劣、危害之严重，也依然高于很多如日美德等教育或文明程度较高的发达国家。
+
+中共国学校心理健康教育、同理心教育、人际关系教育、德育教育、人文教育的缺失，教育系统内针对老师和学生共同的普法教育，以及对教师队伍的监督约束机制的缺失，也是此类事件频发的重要原因。
+
+相信未来新联邦通过战友和全体国人的共同努力，会在中国的教育事业上做出极大的改善：关心学生的身心健康，普及公民教育、公德教育，实施尊严教育、创新教育，学校配备必要的、充分的心理辅导课程和教师队伍,保障学生的身心健康。伴随着文明法制社会的真正到来，校园内的各种乱象以及社会上针对校园内学生的事件也一定会得到极大程度减少。
+
+文中数据参考：
+
+https://baike.baidu.com/item/%E6%A0%A1%E5%9B%AD%E6%AC%BA%E5%87%8C
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01143151/M5.jpg)
+
+**六四文宣大赛，****欢迎大家踊跃投票****：**[**https://gnews.org/poll/poll-article\_1/**](https://gnews.org/poll/poll-article_1/)
+
+**投票注意事项：第一，比如投票视频，一个账号需要同时选中要投的三个视频作品，方可以投票；第二，因为视频比较大，所以需要大家静待一两分钟，然后进入视频投稿界面。第三，投票的战友也有机会获幸运参与奖啊。**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
