@@ -1,45 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月15日劳伦斯·塞林博士关于中共病毒推文集合
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1246665/)
+## 【拆台新闻】天问一号登陆火星了么？
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1246644/)
 
-劳伦斯·塞林博士： 另一个重要发现 – [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 新冠侦探[@2020Gladiator](https://twitter.com/2020Gladiator)将两名中共科学家，史佩勇和王林发联系了起来，他们都隶属于(新加坡)杜克大学-国大医学院、武汉病毒研究所、和中国人民解放军。 【转[email protected] 的推文】
+据央视网消息称（新闻联播完整版）：5月15日7时18分，天问一号探测器成功着陆于火星乌托邦平原南部预选着陆区，我国首次火星探测任务着陆火星取得成功。中共中央总书记、国家主席、中央军委主席习近平致贺电……天问一号探测器成功着陆火星，是我国首次实现地外行星着陆，使我国成为第二个成功着陆火星的国家……
 
+还统一配了视频，高清晰的图片：
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15194351/144.jpg)
 
-> Another important discovery – [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@2020Gladiator](https://twitter.com/2020Gladiator?ref_src=twsrc%5Etfw) connects two Chinese Communist Party scientists, Pei-Yong Shi & Linfa Wang, both affiliated with the Duke-NUS Medical School, the Wuhan Institute of Virology & the People's Liberation Army. [https://t.co/LkKABlfEyc](https://t.co/LkKABlfEyc)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393513001978929152?ref_src=twsrc%5Etfw)
+请注意，这里的视频是“动画演示” 不是真实的现场实际拍摄的照片或者视频资料。
 
+并没有任何实际的，现场的照片，图片，技术参数发表出来，新闻重点描述了这次登陆的重大意义，中共对火星的关心和渴望，以及中共领导未来火星人的伟大目标。
 
+我们发现了一张很有趣的照片，该照片的发表时间是：2017年1月30日。这张同样的照片被放在中共消息页面上， 被世界各大媒体转载。
 
-劳伦斯·塞林博士： [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 新冠侦探[@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1)已很专业地绘出了德克萨斯大学医学分校的史佩勇的网络图，史佩勇似乎是 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 和解放军大规模渗透美国病毒研究实验室的一个关键人物。 【转 [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1) （火来2号）的推文】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15194456/145.jpg)
 
+而回顾美国“毅力号”火星车今年2月18日成功着陆火星时，传回了一系列清晰的视频和照片。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15205226/5461331.jpeg)
 
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) has expertly mapped the network of Pei-Yong Shi of the University of Texas Medical Branch, who appears to be a key figure in the massive infiltration of U.S. virus research labs by the Chinese Communist Party and the People's Liberation Army. [https://t.co/7okuBH0Eg5](https://t.co/7okuBH0Eg5)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393649829784477704?ref_src=twsrc%5Etfw)
+天问一号被宣称确实登陆了火星，着陆点距离目标地点４０公里。但是未收到任何其登陆后的信号返回确认，很多航天迷和专家们内心是充满疑问的。
 
-
-
-塞林博士： 独家：安东尼·福奇博士资助的研究使得中共国军方的史佩勇申请了专利。他一直在与中共国人民解放军合作。该资助是2021年福奇基金拨款926,569美元的一部分。 【附[http://thegatewaypundit.com](https://t.co/o7LjRSZiEI?amp=1)的特别报道】
-
-
-
-> EXCLUSIVE: Dr. Anthony Fauci Funded Research That Led to Patents for the Chinese Military
-> Pei-Yong Shi, who has been working with the Chinese People's Liberation Army, is part of a 2021 Fauci grant for $926,569.[https://t.co/lCKxJMpHUb](https://t.co/lCKxJMpHUb)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393581649154150402?ref_src=twsrc%5Etfw)
+博博士的推特称，中共火星探测器可能已经着陆火星。 具体是软着陆还是硬着陆，中共死活不说。  CCTV最新的新闻播报也只字未提。 航天界大V们已经开始嘲讽中共：“在宇航探索领域，相比偷偷摸摸的成功，我更加敬重一次公开的失败”。
 
 
 
-劳伦斯·塞林博士： 哇喔。 俄亥俄州立大学前生物医学教授郑宋国被判37个月监禁，因他使用联邦补助帮助了中国医学研究。
+> 中共火星探測器可能已經著陸火星。具體是軟著陸還是硬著陸，中共死活不説。CCTV最新的新聞播報也隻字未提。航天界大V們已經開始嘲諷中共：“在宇航探索領域，相比偷偷摸摸的成功，我更加敬重一次公開的失敗”👍 [https://t.co/z0e9l3BJry](https://t.co/z0e9l3BJry)
+> — Dr. Bo 🇺🇸🇹🇼🇭🇰 (@BoDiplo) [May 15, 2021](https://twitter.com/BoDiplo/status/1393358335043416068?ref_src=twsrc%5Etfw)
 
 
 
-> Uh Oh.
-> Former biomedical Professor Zheng Songguo from Ohio State University Sentenced to 37 Months in Prison for Using Federal Grants to Aid China’s Medical Research.[https://t.co/31b2QnOJQo](https://t.co/31b2QnOJQo)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393622172766179328?ref_src=twsrc%5Etfw)
+和以往一样，在中共国，所有重大的航天科技信息，一直统一由中共宣传部门对外发布，每时每刻都在叫喊科学思维，科学解决问题，科学探讨的中共，没有发布任何可以佐证成功登陆的客观证据，这个谜之登陆看来要一直带着“神秘的东方色彩”了。
 
+参考：2021年5月15日央视新闻联播
 
+[https://www.dw.com/zh/%E5%8F%B2%E4%B8%8A%E7%AC%AC%E4%B8%80-%E7%BE%8E%E5%9B%BD%E6%AF%85%E5%8A%9B%E5%8F%B7%E5%B0%86%E7%9B%B4%E5%8D%87%E6%9C%BA%E9%80%81%E4%B8%8A%E7%81%AB%E6%98%9F/a-56621864](https://www.dw.com/zh/%E5%8F%B2%E4%B8%8A%E7%AC%AC%E4%B8%80-%E7%BE%8E%E5%9B%BD%E6%AF%85%E5%8A%9B%E5%8F%B7%E5%B0%86%E7%9B%B4%E5%8D%87%E6%9C%BA%E9%80%81%E4%B8%8A%E7%81%AB%E6%98%9F/a-56621864)
+
+图片来源：[https://www.ettoday.net/](https://www.ettoday.net/)
+
+整理撰稿：蓝精灵
+
+校对发布：Penny
+
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0
