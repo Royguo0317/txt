@@ -1,23 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 民调显示，近六成受访者认为国安法限制学术自由
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1247564/)
+## Sellin上校号召病毒侦探寻找史佩勇教授与中共军方关系网
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1247587/)
 
-- 作者：【默凡】
+- 编译：【默凡】
+- 封面：七白石
 
 
-美国之音5月16日报道：自从港版国安法实施以来，至今已超过10个月，最新民意调查显示，接近6成受访者认为国安法限制香港的学术自由，59%的受访者认为，国安法对学术自由的限制相当大，认为限制少的有26%，另有12%表示一半半。另有45%受访者认为，大学管理层没有努力保障学术自由。有学者表示，国安法在大专院校引起寒蝉效应，有关加泰罗尼亚、苏格兰独立分离运动等议题，是否仍然可以在香港的大专院校讨论引起疑虑。亦有国际调查显示，香港学术自由指数在国安法实施后大幅下跌，排名甚至比柬埔寨更低。有学者分析，国安热线在大学校园内引起恐慌，估计疫情过后会引发学生及年青学者的逃亡潮。
+5月16日，Sellin上校连发两条推特，他强调美国德克萨斯大学加尔维斯顿医学分部史佩勇教授可能是中共军方大规模渗透美国病毒研究实验室的关键人物，号召所有病毒侦探调查从史佩勇的关系网中寻找与中共军方有联系的科学家资料。
 
-**评论：**
 
-**港版国安法自去年实施以来，大量异议人士被冠上违反国安法为由被警方逮捕并接受调查，这导致大量异议人士不敢轻易发生，国安法的影响也开始波及到学术界。原来的香港是一个言论自由与民主法治的国际经济中心，自从被中共接管以后，香港学术界人士因担心自身安全，已经不敢自由发声，这反而阻碍了学术的发展。**
 
-**其实，从中共统治下的墙内学术环境就能瞥见未来的香港，集权国家是不可能拥有言论自由，也就不可能营造出学术自由的氛围，自然就阻碍学术的发展，大批学者必然会选择离开香港，这将进一步促使香港人才流失，在中共的统治下，香港已经彻底沦为死港。**
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) has expertly mapped the network of Pei-Yong Shi of the University of Texas Medical Branch, who appears to be a key figure in the massive infiltration of U.S. virus research labs by the Chinese Communist Party and the People's Liberation Army. [https://t.co/7okuBH0Eg5](https://t.co/7okuBH0Eg5)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393649829784477704?ref_src=twsrc%5Etfw)
 
-新闻来源：**[美国之音](https://www.voachinese.com/a/hk-survey-shows-60-say-national-security-law-affected-academic-freedom-20210514/5890945.html)**
 
-素材：Peter Wong
+
+
+
+> Again, [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) provides valuable information – the research network of CCP scientist Pei-Yong Shi. Let's identify the military-connected people in those links. [https://t.co/Ey4uQgurhD](https://t.co/Ey4uQgurhD)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 16, 2021](https://twitter.com/LawrenceSellin/status/1393778363664375813?ref_src=twsrc%5Etfw)
+
+
+
+史佩勇是世界病毒学领域研究前沿的杰出华人科学家之一，主要从事寨卡病毒等复制机理、抗病毒药物和疫苗研发等方面研究，是美国微生物学院院士、美国科学院顾问，先后在公共卫生机构、全球大型药物公司、高校及科研单位担任重要职位。目前已发表SCI论文260多篇，研究成果发表在病毒学、药理学、生物化学等领域的权威刊物；应邀在多个国际著名期刊上发表评论和综述；拥有多项世界专利；担任国际三大病毒学杂志及自然疫苗子刊编辑和编委。
+
+参考来源：
+
+[https://www.njmu.edu.cn/2019/1024/c606a156068/page.htm](https://www.njmu.edu.cn/2019/1024/c606a156068/page.htm)
 
 本文仅代表作者本人观点，不代表Gnews平台
 

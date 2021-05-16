@@ -1,57 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】2021年4月至5月以巴冲突的缘由
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1247324/)
+## 仅仅是“巧合”？中共本土疫情又起与疫苗炒作
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1247347/)
 
-作者：纽约香草山福音部 Jinglechenge
+作者：　Stephen文文
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16031526/051602.jpg)
 
+近日，中共陆续报道了发生在安徽、辽宁两地的本土疫情，看似中共是在主动曝光疫情，标榜在疫情控制中的“透明性”。但很有可能实际上是为了胁迫民众打疫苗！
 
+我们先来看一下和这次安徽、辽宁疫情“巧合”发生的事件，以及中共的舆论操作。在疫情报道之前，先出场的是“中共病毒四大不要脸”的高福与钟南山，两人高喊疫苗接种： 
+1. 5月12日消息，高福接受工藤泰志采访时表示，“预计到明年，中国将有9-10亿人接种新冠疫苗，可达到实现全民免疫的标准。”（[https://m.thepaper.cn/newsDetail\_forward\_12639279）](https://m.thepaper.cn/newsDetail_forward_12639279%EF%BC%89)
+2. 5月13日，钟南山首次在公开场合晒出了自己接种新冠疫苗的照片，为主动接种疫苗做出榜样。（[https://ishare.ifeng.com/c/s/86D3sQvzjmx）](https://ishare.ifeng.com/c/s/86D3sQvzjmx%EF%BC%89)
 
-以巴冲突自2021年4月以来不断升级，截至今天（5月15日周六），有近日150人被杀，1,000多人受伤。美国派出的特使 Hady Amr 今天到达 Tel Aviv，将会见以色列和巴勒斯坦高级官员，从中调停，希望他们保持冷静。明天（5月16日周日）联合国安理会将开会讨论。
+而在疫情发生后， 
+3. 5月14日，中共派出专家组赴安徽，专家组还没有调查出一个子丑寅卯，就开始了特别提示：“必须加快新冠疫苗接种！”（[https://news.sina.cn/gn/2021-05-14/detail-ikmyaawc5306478.d.html?cre=tianyi&mod=w2019ncov&loc=-5&r=-1&rfunc=48&tj=cxvertical\_2019ncov&tr=73&vt=4&pos=222）](https://news.sina.cn/gn/2021-05-14/detail-ikmyaawc5306478.d.html?cre=tianyi&amp;mod=w2019ncov&amp;loc=-5&amp;r=-1&amp;rfunc=48&amp;tj=cxvertical_2019ncov&amp;tr=73&amp;vt=4&amp;pos=222%EF%BC%89)
 
-现在让我们来看看这次持续的冲突究竟为哪般？
+同时中共媒体开始出场，热炒疫苗接种，制造疫苗恐慌。对民众开始精神胁迫， 
+4. 5月14日，中共控制的各个媒体开始报道“合肥奥体方舱接种点爆棚！”（[http://www.wehefei.com/mobile/article.html?path=/news/2021/05/14/c\_346001.htm）](http://www.wehefei.com/mobile/article.html?path=/news/2021/05/14/c_346001.htm%EF%BC%89) 
+5. 5月15日，中共又在全网热吵钟南山疫苗接种视频。（[https://k.sina.cn/article\_5347795977\_m13ec0e40902000rqu2.html?from=society&cre=tianyi&mod=w2019ncov&loc=-1&r=-1&rfunc=48&tj=cxvertical\_2019ncov&tr=73&vt=4&pos=222）](https://k.sina.cn/article_5347795977_m13ec0e40902000rqu2.html?from=society&amp;cre=tianyi&amp;mod=w2019ncov&amp;loc=-1&amp;r=-1&amp;rfunc=48&amp;tj=cxvertical_2019ncov&amp;tr=73&amp;vt=4&amp;pos=222%EF%BC%89)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16021558/%E5%9B%BE%E7%89%871-116.png)图片来源：网络
+与疫情、疫苗的的巧合放在一起，不得不让人怀疑中共操弄这波“疫情”的目的是什么。而在这波所谓“疫情”发生之前，中共已经长达几个月没有报道本地疫情，民众的疫苗接种热情普遍不高，除了送鸡蛋、送油能吸引一些老年人进行接种外，普通民众并没有接种疫苗的积极性。
 
-2021年5月6日，巴勒斯坦人开始就以色列最高法院即将作出的关于从东耶路撒冷附近的 Sheikh Jarrah 驱逐四个巴勒斯坦家庭的决定在耶路撒冷进行抗议。抗议活动迅速升级为犹太抗议者与巴勒斯坦抗议者之间的暴力对抗。这次的暴力对抗与伊斯兰的重要日子 Laylat al-Qadr 和以色列的国定假日 Jerusalem Day 凑巧都碰在了一起，迫使犹太人计划的 Jerusalem Day 游行被取消，最高检察官的裁决随后被推迟了30天。
+中共的核酸检测报告都控制在中共自己手里，“说你阴，你就阴，不阴也阴；说你阳，你就阳，不阳也阳！”想搞出几个阳性数据太容易了，操弄出一波不疼不痒的小疫情，又卖疫苗又卖检测试剂盒。
 
-自从1948年以来，位于 Sheikh Jarrah 的土地之争就是以巴土地争端的缩影。以色列的法律允许犹太人对他们在1948年之前拥有的西岸和东耶路撒冷的土地提出索回，但拒绝巴勒斯坦人对其所拥有的以色列境内的土地提出索回。
+中共墙内民众一定要在注意自身病毒防护的情况下，保持好心态，不要被中共“操弄”出来的疫情胁迫着去打疫苗！
 
-根据定居者组织提交的奥斯曼帝国的文件，Sheikh Jarrah 的土地是1870年代由犹太信托从阿拉伯土地所有者手中购得的。1956年，约旦政府与联合国难民组织近东救济工程处合作，在约旦作为敌对财产托管人管理的一块土地上安置了28个具有租赁权的巴勒斯坦难民家庭。六日战争之后，该地区归属以色列。1972年，以色列 Custodian General 将这些财产登记在犹太信托基金下，这就要求那里的巴勒斯坦租户支付租金。驱逐令于1990年代开始出现。后来犹太信托将房屋卖给了一个右翼定居者组织，此后该组织反复尝试驱逐巴勒斯坦住户。根据以色列的土地和财产法，以色列人有权收回在1948年阿拉伯-以色列战争之前在东耶路撒冷拥有的财产，但没有类似的法律允许巴勒斯坦人在以色列境内也如此行。现在居住在 Sheikh Jarrah 地区的是在1948年的 Nakba 中从 Jaffa 和 Haifa 被驱逐或失所难民的后裔。
+[援引原文](https://news.sina.cn/gn/2021-05-14/detail-ikmyaawc5306478.d.html?cre=tianyi&amp;mod=w2019ncov&amp;loc=-5&amp;r=-1&amp;rfunc=48&amp;tj=cxvertical_2019ncov&amp;tr=73&amp;vt=4&amp;pos=222%EF%BC%89)
 
-已有43名巴勒斯坦人于2002年从该地区被驱逐，其次是2008年的 Hanoun and Ghawi 家庭，以及2017年的 Shamasneh 家庭。2010年，住在该地区57个住房单元中的巴勒斯坦家庭上诉，请求对这些房产的所有权，以色列最高法院驳回了上诉。以色列法院此前曾裁定，巴勒斯坦人可以用“受保护租户”的法律继续居住，但必须支付租金。驱逐他们的举动是在他们拒绝支付租金并在房主未授权之下进行违章建筑之后做出的。今年(2021)，以色列最高法院本该于5月10日对是否驱逐13个家庭做出裁决。这13个家庭涉及58人包括17名儿童：5月2日驱逐6个家庭，8月1日驱逐另外7个家庭。但由于冲突升级，最高法院于2021年5月9日决定延缓30天。
-
-5月10日, 两个巴勒斯坦激进军事组织，Hamas 和 Palestinian Islamic Jihad，借此血洗以色列，而各国的左派也煽风点火，其间更能看到CCP的邪恶之手，将民事纠纷上升到军事冲突，以转移病毒溯源追责的政治目的。
-
-参考：
-
-1. https://pandemic.warroom.org，EP 943, 946
-
-2. https://en.wikipedia.org/wiki/Sheikh\_Jarrah
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15014027/5%E6%9C%88-1.jpg)
-
-
-
-**六四文宣大赛，****欢迎大家踊跃投票****：**[**https://gnews.org/poll/poll-article\_1/**](https://gnews.org/poll/poll-article_1/)
-
-**投票注意事项：第一，比如投票视频，一个账号需要同时选中要投的三个视频作品，方可以投票；第二，因为视频比较大，所以需要大家静待一两分钟，然后进入视频投稿界面。第三，投票的战友也有机会获幸运参与奖啊。**
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+审核校对：鲁邦五世
+上传排版：糖果儿
 
 0

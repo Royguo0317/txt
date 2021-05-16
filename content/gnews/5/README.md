@@ -1,51 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【商海纵横]】漫谈GClub（一）GClub与俱乐部
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1247722/)
+## 【香草诗词汇】 战士归来
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1247814/)
 
-五月花写作组 | 商业部：Nanfeng99 | 编辑：文合 | 封面：灭共小宇宙 | 发布：吐纳
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16070312/Glubsv1_copy.jpg)
-喜币（Himalaya Coin）即将上市。以钱灭共，G系列正如火如荼地进行着。如果说喜币、喜联储（Himalaya Reserve）是在形成新中国联邦的金融基础，是聚钱的地方；那么GClub、喜农场就是在形成新中国联邦的人才基础，是聚人的地方。
+作者 香草山健身部 回响
 
-GClub即G俱乐部。古今中外，俱乐部各式各样，各种关于俱乐部的故事传闻也是众说纷纭。比如随便上网搜下，就有诸如：“十大顶级俱乐部”、“七大神秘俱乐部”、“奋斗终生，可能也成不了这些俱乐部的会员“等相关文章。那GClub将是怎样的一个G俱乐部呢？
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-9.jpeg)
 
-大众关注并成为谈资的俱乐部，往往有这么三个特点：（1）入会的会费高或有其它门槛；（2）会员可享有奢华服务或特别的权利资源等；（3）俱乐部无论位置显要或隐蔽，建筑装潢都不同一般。所谓物以类聚，人以群分，这些俱乐部很大程度上似乎是其会员彰显社会地位的一种需要。GClub会不会是这样的一个俱乐部呢？
 
-首先，我们看看GClub官网（www.gclubs.com）的介绍：
 
-**GCLUBS****会员是通往新世界的门票。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16074419/%E5%9B%BE%E7%89%8711-17.png)图片来源：https://www.acgzone.net/manhua/zhongshengguilaidezhanshi/
 
-**一个创新的新世界。**
+没有人宣战
+世界
+依然 水绕山环
+风光
+依然 阳光海滩
+炮火依然成为新闻
+上头条报端
 
-**一个自由的新世界。**
+生活却已平静地彻底混乱
+人类已于平和中完全巨变
+故乡成异乡
+家园变故园
+可望不可及 亲人相隔只需瞬间
+画地为牢 住房随时变班房
 
-**一个畅游的新世界。**
+多少相亲相爱人
+唯一心愿
+只剩下生而相伴
+——活着
+多少不同肤色不同语言
+面对着共同的恐惧
+无影杀如影相伴
 
-**一个时尚的新世界。**
+此刻
+战士归来
 
-我们再看看Wikipedia对俱乐部的解释：“俱乐部（英语：Club），也可意译为「会」或「会所」，是人们或具有某种相同兴趣的人聚集在一起，进行社会交际、文化娱乐等活动的组织团体或其场地，有别于一般的消费场所。”
+多少短暂分离怕成恒远
+每每行进间
+心悬
+ 挂念
+ 难眠
+再聚沙场
+如奇异恩典
+历历心田
+无法拥抱 无法畅饮 甚至无法轻轻击拳
+微笑 平淡又平凡
+背靠背 肩并肩
+抚平创伤彻底疗愈的唯一验方
+是 战斗
+是 勇往直前
 
-根据这些，我的理解是：GClub是把一群人聚集起来，并和一个新世界联系在一起的组织。这个新世界会有一个新的生活方式、新的人际环境、乃至新的社会架构。相聚起来的这群人有相同的兴趣志向、价值理念、及梦想追求。
 
-那具体这个新世界和这群人是怎样的呢？根据以往郭先生有关GClub的直播或盖特，我们可以管中窥豹、略见一斑。
 
-2020年10月13日，关于GClub、GFashion上线，郭先生直播宣读法律文件并回答问题时说：GClub和GFashion真正能创造人类历史上一个让所有的穷人和有品位的人能穿的起、用的起的时尚平台和桥梁。
+校对/发稿：飞虹
 
-2021年3月4日，郭先生盖特上说：G-Club跟全世界哪个会员，任何组织、任何俱乐部——足球俱乐部、金融俱乐部、自然俱乐部、黄金俱乐部……都可以连接在一起！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
 
-2021年5月5日，郭先生直播说：GTV、GNews、GFashion、GClub，培育出来一批真正核心的战友，通过这些，GClub会升到喜会员，喜会员到国家治理机构，是这样的一个过程，让所有的GClub里边的、还有GTV直播的、及各农场的战友，逐渐筛选出来喜联邦的国家管理人员，这是核心目的。
 
-因此，GClub、喜农场就是在形成新中国联邦的人才基础，是聚人的地方，是战友汇聚并得到培育锻炼的平台。
 
-GClub和G系列连接着一个新世界、连接着新中国联邦、承载着灭共的正义和爆料革命的信誉。GClub会员卡将是一张门票，是未来在世界上行走的通行证，借由它不仅可以获得优质优惠的服务享受，还将带给其会员有尊严、有品味的生活。
+**六四文宣大赛，****欢迎大家踊跃投票****：**[**https://gnews.org/poll/poll-article\_1/**](https://gnews.org/poll/poll-article_1/)
 
-* * *
+**投票注意事项：第一，比如投票视频，一个账号需要同时选中要投的三个视频作品，方可以投票；第二，因为视频比较大，所以需要大家静待一两分钟，然后进入视频投稿界面。第三，投票的战友也有机会获幸运参与奖啊。**
 
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+**更多资讯，更多关注**
 
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 +1
