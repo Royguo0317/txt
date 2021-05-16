@@ -1,38 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【俄罗斯】将美国和捷克共和国归类为“不友好国家”
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1246552/)
+## 5月15日劳伦斯·塞林博士关于中共病毒推文集合
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1246665/)
 
-```
-新闻来源：德国世界报 网络版  
-发布时间：2021年5月14日
-翻译整理/ 简评： Shuizhuyu
-```
+劳伦斯·塞林博士： 另一个重要发现 – [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 新冠侦探[@2020Gladiator](https://twitter.com/2020Gladiator)将两名中共科学家，史佩勇和王林发联系了起来，他们都隶属于(新加坡)杜克大学-国大医学院、武汉病毒研究所、和中国人民解放军。 【转[email protected] 的推文】
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15203328/nimg.ws_.126.net_-2.jpeg)图片来源：网易
 
-在与西方的紧张关系日益加剧的情况下，俄罗斯将美国和捷克共和国列为“不友好”国家之一。克里姆林宫首脑弗拉基米尔·普京（*Vladimir Putin*）授意的指责。
+> Another important discovery – [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@2020Gladiator](https://twitter.com/2020Gladiator?ref_src=twsrc%5Etfw) connects two Chinese Communist Party scientists, Pei-Yong Shi & Linfa Wang, both affiliated with the Duke-NUS Medical School, the Wuhan Institute of Virology & the People's Liberation Army. [https://t.co/LkKABlfEyc](https://t.co/LkKABlfEyc)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393513001978929152?ref_src=twsrc%5Etfw)
 
-俄罗斯已将美国和捷克共和国列为“不友好国家”的新清单。该清单由政府于周五在莫斯科发布。由此伴随着对两国外交使团的限制，例如要求雇用具有俄罗斯护照的雇员。列表上没有其他状态。它可以追溯到克里姆林宫首席弗拉基米尔·普京的命令。
 
-根据该文件，捷克共和国仍然被允许雇用19名俄罗斯公民，而美国不可以。在最近相互驱逐外交官的过程中俄罗斯外交部已经对两国的代表处采取了这些惩罚措施-。
 
-4月，美国驱逐了俄罗斯外交官，并实施了制裁。作为对去年总统大选和黑客攻击的一种惩罚。捷克共和国指责俄罗斯特勤局于2014年在该国东部的一个弹药库引发爆炸，因此下令将其驱逐出境。莫斯科否认了所有指控。
+劳伦斯·塞林博士： [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 新冠侦探[@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1)已很专业地绘出了德克萨斯大学医学分校的史佩勇的网络图，史佩勇似乎是 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 和解放军大规模渗透美国病毒研究实验室的一个关键人物。 【转 [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1) （火来2号）的推文】
 
-捷克外交部谴责俄罗斯的行动是“不仅朝着与捷克共和国乃至与整个欧盟的关系进一步升级的恶化”。 俄罗斯选择了“对抗之路”，但它却在损害自己，这一决定完全违反了《维也纳外交关系协定》。 它对两国公民之间的旅游，贸易和联系产生负面影响。
 
-#### 简评：
 
-在下周美国外长和俄罗斯外长会面之前， 普京发出了这样的命令。 究其原因， 我个人认为这是在为谈判增加砝码。 有更多的可以和美国谈判的的砝码。 把美国称为不友好国家的原因是因为美国对俄罗斯实施了制裁。 那么，美国外长这次于俄罗斯的会谈自然也少不了这个议题。 外交政策从来都是内政的延续， 实施的措施也从来都是增加自己的谈判条件而已。 让我们继续关注两国外长的会晤。 就在下周， 会后是否会发出共同声明， 是否能够宣布6月拜登访欧的两国首脑的会晤，这些都是我们关注的焦点。 这些信号也是决定两国关系的标志。 
-（本文只代表译者观点，与**Gnews**平台无关。）
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) has expertly mapped the network of Pei-Yong Shi of the University of Texas Medical Branch, who appears to be a key figure in the massive infiltration of U.S. virus research labs by the Chinese Communist Party and the People's Liberation Army. [https://t.co/7okuBH0Eg5](https://t.co/7okuBH0Eg5)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393649829784477704?ref_src=twsrc%5Etfw)
 
-**新闻原文链接：**
-🔗[Russland stuft USA und Tschechien als „unfreundliche Staaten“ ein](https://www.welt.de/politik/ausland/article231151571/Russland-stuft-die-USA-und-Tschechien-als-unfreundliche-Staaten-ein.html)
 
-* * *
 
-***编辑整理/校对: **Ting Guo*
+塞林博士： 独家：安东尼·福奇博士资助的研究使得中共国军方的史佩勇申请了专利。他一直在与中共国人民解放军合作。该资助是2021年福奇基金拨款926,569美元的一部分。 【附[http://thegatewaypundit.com](https://t.co/o7LjRSZiEI?amp=1)的特别报道】
+
+
+
+> EXCLUSIVE: Dr. Anthony Fauci Funded Research That Led to Patents for the Chinese Military
+> Pei-Yong Shi, who has been working with the Chinese People's Liberation Army, is part of a 2021 Fauci grant for $926,569.[https://t.co/lCKxJMpHUb](https://t.co/lCKxJMpHUb)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393581649154150402?ref_src=twsrc%5Etfw)
+
+
+
+劳伦斯·塞林博士： 哇喔。 俄亥俄州立大学前生物医学教授郑宋国被判37个月监禁，因他使用联邦补助帮助了中国医学研究。
+
+
+
+> Uh Oh.
+> Former biomedical Professor Zheng Songguo from Ohio State University Sentenced to 37 Months in Prison for Using Federal Grants to Aid China’s Medical Research.[https://t.co/31b2QnOJQo](https://t.co/31b2QnOJQo)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393622172766179328?ref_src=twsrc%5Etfw)
+
+
 
 0
