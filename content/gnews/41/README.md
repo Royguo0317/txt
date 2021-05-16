@@ -1,35 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《文贵说》| 图片连载（八十二）
-` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/1245956/)
+## 川普就亚利桑那选票审计曝出的问题发表声明
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1246573/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15151811/G2101016_X_CN.jpg)
-**人要长德，德如长江。**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**—— 郭文贵先生 2017年10月8日**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15151827/G2101017_X_CN1.jpg)
-**亲爱的义工们你们是郭先生身后一双双强有力的手！一起加油！**
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15202810/T-23.jpg)dennismichaellynch.com
+今天（5月15日）下午，川普总统就亚利桑那审计曝出的问题发表声明【1】，声明全文如下：
 
-**—— 郭文贵先生 2017年10月12日**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15151845/G2101018_X_CN_1.jpg)
-**新中国联邦不是任何人能撑住的，必须是有亿万个战友，每个人都觉得自己不重要，这是不对的，你们每个人都很重要。**
+亚利桑那州马里科帕郡的整个数据库都被删除了！这是非法的，领导法庭审计的亚利桑那州参议院，要激烈抗争。此外，更糟的是，装有选票箱子的封条被撕破，选票丢失。亚利桑那州总检察长马克·布诺维奇（Mark Brnovich）现在将被迫调查这起令人难以置信的选举罪行。许多激进的左翼民主党人和软弱的共和党人非常担心这一事实被曝光。删除马里科帕郡的整个数据库和关键选举文件是史无前例的，许多其他州也可以效仿。主流媒体和激进的左翼民主党人希望尽可能远离总统选举舞弊，这应该是我们这个时代最大的新闻之一，《福克斯新闻》不敢报道，很少有人提及。同样，《Newsmax》在这个问题上几乎保持沉默，因为他们受到了诉讼威胁，《美国新闻网》（OAN）是电视上发展最快的网络之一，也是“最热门的”，它在揭露发生的大规模欺诈方面做得非常出色。故事只会越来越大，在某个时候，弱小和/或腐败的媒体不可能不报道。感谢《美国新闻网》和其他勇敢的美国爱国者。一切都在迅速发生！
 
-**—— 郭文贵先生 2020年7月4日**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15151903/G2101019_X.jpg)
-**我们是否发自内心的，真正的有勇气、干净的追求消灭共产党，不惜一切代价地要建立自己的信仰和尊严？战友们这个你问你自己去，我没有权利给你答案。**
+川普总统的这则声明发布后，川普总统的网站（https://www.donaldjtrump.com）一度遭轰至瘫痪【2】，可见当今美国的状况，像不像某大国？
 
-**—— 郭文贵先生 2020年7月4日**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15151921/G2101020_X_CN.jpg)
-**新中国联邦宣言能，干翻共产党、消灭共产党、推翻共产党，咱能不能推翻咱骨子里边、咱内心世界的毒？**
+如果“删除”数据这种邪恶行径不搞清楚，“其他州也可以效仿”算是轻的，再焚烧了选票和设备，可以让你毁无对证！
 
-**—— 郭文贵先生 2020年7月4日**
+没有文贵先生，自由灯塔的美国会加速奔向中共引领下的共产主义！
 
+有关链接：
 
+【1】[https://www.donaldjtrump.com/desk/desk-4yeh37peju/](https://www.donaldjtrump.com/desk/desk-4yeh37peju/)
 
-- **更多精美海报请点击:**
-- [***Getome 文贵说｜Words From Miles***](https://getome.com/user/wordsfrommiles)
-- [***G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4#getter)
+【2】[https://www.thegatewaypundit.com/2021/05/breaking-trump-desk-website-releases-statement-saying-entire-database-maricopa-county-arizona-deleted/](https://www.thegatewaypundit.com/2021/05/breaking-trump-desk-website-releases-statement-saying-entire-database-maricopa-county-arizona-deleted/)
 
-
-+1
+0

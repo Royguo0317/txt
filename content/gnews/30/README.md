@@ -1,38 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】浅析华为等一众行业巨头争相做电动汽车的现象
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1246347/)
+## 【热点播报】塞林博士独家揭秘：中共军方与美国病毒研究中心的直接联系
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1246749/)
 
-作者：纽约香草山健身部   Jack Li文阳
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
+作者：纽约香草山翻译部 文明世界
 
 
 
-近期，华为、阿里巴巴、360、腾讯、滴滴、小米都宣布要做电动汽车。一时间，一众与汽车无关的企业，纷纷想要在电动汽车行业中分一杯羹。随之而来的就是中共市场对特斯拉的打压，比如，中共有计划的炮制特斯拉“刹车门”事件。更甚者，中共国把各地多起特斯拉车祸都归咎于其质量问题，大有把特斯拉赶出中共国之势。这也导致“华为开始卖车，特斯拉市值一天蒸发1500亿”，“华为干掉特斯拉，胜算有多大？” 等文章充斥媒体，粉红被打足鸡血。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15181837/40-2.jpg)图片来源：网易
 
-中共国的车企真能做出超越特斯拉的电动汽车吗？一个连传统汽车都是靠与国外车企合资，只偷到了些皮毛技术的国家，怎敢号称电池技术、自动驾驶技术领先世界？真实情况是，马斯克在2014年6月21日向全球公布了特斯拉271项专利，其中包括了263项发明专利及8项外观专利。一个月后，乐视汽车成立。接下来，蔚来、小鹏、理想汽车亦相继成立。可想，没有特斯拉的开源技术，中共国还在做着电动摩托车。然而，中共一拿到先进技术，马上吹牛逼“领先世界”了。而中共国的车企获得了特斯拉的开源技术后，稍加修改，改头换面地在国内外注册专利，干尽卑鄙无耻、极尽恶心之事。
 
-近一年来，华为、阿里巴巴、360、腾讯、滴滴、小米都宣布要加入到电动车行列，其原因无非是本行业业务大幅减少，为求企业存活，只能另辟蹊径。华为在欧美的高科技制裁下，手机无芯片可用，也不能使用安卓系统，只能转做低端机型，而其5G系统也被世界各国抛弃。之后，华为急病乱投医：先是看上酿酒、养猪，现在又想做车了。其他企业亦是同样面临着市场业务缩小、利润变低等境况，被迫转营实属无奈之举。再加上新能源汽车可以得到各地方政府的优惠政策和各种政策扶持，还能多圈几块地——这也是他们看重的地方。但是，电动汽车行业还有一批传统行业的企业正计划着要加入。未来，中共国的电动车又是一场大战。
+5月14日，塞林博士（Lawrence Sellin, Ph.D.）和陈安娜（Anna Chen）在美国媒体网站《门户专家》（The  Gateway Pundit）联合发表文章，标题称“我们发现了中（共）国军方与五角大楼资助的一个主要病毒研究中心之间的直接联系。”该文章进一步揭露中共军方对美国国防科研，特别是对美国前沿病毒研究领域的系统性渗透。
 
-习近平执政以来，一路倒车：为满足自己的霸权欲望，不惜把世界搞乱，导致被世界各国孤立，还把国内经济弄得风声鹤唳。现今，这么多行业巨头共同钻到一条胡同里，抢夺一盘生意。这种现象，只有在中共国才会发生。而目前这种争抢难免造成重复投资、资源浪费、恶性竞争。历史早有证明，一窝蜂就会导致一起死。
+今天的文章特别提到一个新的人物：王华磊，他被认为是中共军方长春研究中心和德克萨斯大学医学部（UTMB）之间的关键联系。文章称，他们的发现主要是基于对中文文件和科学出版物的研究。以此得出的结论是，由中（共）国人民解放军【金宁一】将军和退役将军【夏咸柱】领导的位于中国吉林省长春市的军事兽医研究所和人畜共患疾病研究所是中（共）国生物战计划的核心要素。
+
+![]()![](https://media.discordapp.net/attachments/830167012663754773/843296386723741696/QQ20210515211717.jpg?width=808&amp;height=609)图片来源：门户专家
+
+这两位将军手下至少有四名下属——何飚、范泉水、涂长春和吴志强——在过去八年多的时间里一直在从事大规模的国内外病毒收集工作。何飚与第三军医大学的王长军，在分离蝙蝠冠状病毒ZC45和ZXC21方面发挥了关键作用——ZC45和ZXC21即闫丽梦博士说的新冠COVID-19的病毒骨架。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15212550/47-8.jpg)图片来源：门户专家
+
+塞林博士称，我们已经确立中（共）国军方位于吉林省的长春研究中心和位于美国加尔维斯顿（Galveston）的德克萨斯大学医学部（UTMB）之间的直接联系。相对应UTMB和长春研究中心之间的关键联系是UTMB的生物化学和分子生物学系的史佩勇（Pei-Yong Shi）教授，史也是武汉病毒研究所（WIV）的名誉教授 （关于史佩勇， 参见[【热点播报】中共军方大规模渗透美国病毒研究中心](https://gnews.org/zh-hans/1239653/)）；而王华磊则是中共军方长春研究中心和UTMB之间的关键联系。史和王在2020年10月6日发表的一篇科学文章中是共同作者，但王隐藏了他的军方身份，这可以在王2018年发表的另一篇文章所标注的单位得以考证：王的隶属关系是位于中（共）国长春的军事兽医研究所和军事医学科学院。
+
+从王华磊与中（共）国军方在吉林省的长春研究中心的领导人之一夏咸柱将军合影也可以看出他与中共军方有密切关联。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15212515/46-1-2.jpg)王华磊与中共军方在吉林省长春研究中心的领导人之一夏咸柱将军合影。（图片来源：门户专家）
+王华磊是中共的“万人计划”成员——这是中共国在2012年设立的一个国家计划，由一万名高层次人才组成，其目的之一就是让这些知识精英在全球范围内进行渗透和获取知识产权。
+
+塞林博士称，他们目前正在调查UTMB和中（共）国军队之间的其他联系。我们可以期待将会有更多这方面的揭秘公诸于世。
 
 参考阅读：
 
-华为、阿里、腾讯、苹果、滴滴、小米…为什么巨头全都要造车？\_https://www.163.com/dy/article/G752C4TQ0519T7HP.html
+[We’ve uncovered a Direct Link between the Chinese Military and a Major Pentagon-Funded Virus Research Center](https://www.thegatewaypundit.com/2021/05/breaking-exclusive-uncovered-direct-link-chinese-military-major-pentagon-funded-virus-research-center/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
 
 编辑/校对/发稿：Irene木木
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 **[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
@@ -40,11 +48,11 @@
 
 **[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
 

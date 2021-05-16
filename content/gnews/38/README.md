@@ -1,41 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 马里科帕郡审计才1/4已发现大量违规选票
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1246484/)
+## 韩国恩典农场线下宣传中共病毒真相活动六
+` 恩典农场` [轉載自GNews](https://gnews.org/zh-hans/1246550/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+![]()![](https://gnews.org/wp-content/uploads/2021/04/gnews抬头图片.png)
+作者：韩国恩典农场  追着曙光跑
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15200119/M-3.jpg)azcentral.com
-正如笔者的跟踪报道，亚利桑那州马里科帕（Maricopa）郡的选票审计工作，因征用的老兵体育馆要为当地高中毕业生举行典礼而暂停一周。
-
-《门道专家》（the Gateway Pundit）发表文章，“马里科帕郡的选票审核暂停一周，从只统计了大约25%的情况来看，已经发现大量的违规行为。”【1】
-
-文章说，亚利桑那州马里科帕郡的选票审核工作将暂停到下周末，因为选票审计所用地将用于高中毕业生的典礼。审计工作必须在星期五结束，所有设备和选票都将被储存一周，在恢复审计之前，选票和设备将由武装安保人员看管。
-
-亚利桑那州参议院共和党人正在手工重新计算210万张马里科帕郡的选票，在只有大约25%的选票被重新清点的情况来看，大规模的违规行为已经被发现。
-
-正如《门道专家》权威人士先前报道的那样，马里科帕郡的选票审计员报告说，他们发现箱子中的实际选票数量与批次报告单标注的数量之间存在“重大差异”。
-
-州参议院现在要求马里科帕郡官员下周二出席一个会议，回答有关他们发现的“严重问题”。
-
-审计人员已经报告了许多箱子中5-15%的差异，而且这个数字一直在增长，根据11月的官方结果，乔·拜登应该只以2.2%的领先票数率赢得该郡。
-
-政治战略家鲍里斯·艾普斯泰恩（Boris Epshteyn）在出席史蒂夫·班农（Steve Bannon）《战斗室》（War Room）节目时说，这一差异实际上可能高达17.5%——使他相信“拜登没有赢得亚利桑那州”是很可能的。
-
-《门道专家》权威人士此前报道说，亚利桑那州参议院议长卡罗尔·范恩（Carol Fann）最近致函马里科帕郡监事会，概述了审计中已经发现的重大问题，并提出在不追加传票或强制行动的情况下解决这些问题。在班农的广播节目上，爱普什坦（Epshteyn）说，这封信揭示了“在托盘五，第2976批次，（声称）总共200张粉红通知单，实际总数为165张，这一批选票，他们少了35张通知单，200中的35是17.5%，200中的10是5%。”
-
-“你知道这有多令人震惊吗？” 他补充道，“一批中有17.5%的差异令人难以置信，（若是）9%的差异（能接受），（现在情况是）高于预期，（接近）18%。再说一遍，如果我们要对这个国家的选举有信心，我们怎么可能对两位数的百分比差异感到满意呢？这绝对是令人难以置信的，任何超过一小部分百分比的事情都是不可接受的。顺便说一句，根据联邦选举委员会的说法，这都是不可接受的。”
-
-（全文完）
-
-选票数量对不上，只是问题之一，罗尔·范恩议长已经至信监事会，列出三大问题【2】，要在下周二等待答复，看作假者们如何收场！
-
-相关链接：
-
-【1】[https://www.thegatewaypundit.com/2021/05/maricopa-county-ballot-audit-paused-massive-irregularities-already-found-roughly-25-counted/](https://www.thegatewaypundit.com/2021/05/maricopa-county-ballot-audit-paused-massive-irregularities-already-found-roughly-25-counted/)
-
-【2】[https://gnews.org/zh-hans/1239571/](https://gnews.org/zh-hans/1239571/)
+韩国时间5月15日下午，恩典农场线下宣传中共病毒真相活动在首尔光华门广场如期举行，本次活动也是恩典第12次走上街头。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15202511/5%E6%9C%8815%E6%97%A5%E9%9B%86%E4%BD%93%E7%85%A7.jpg)
+当天下着小雨，战友们披着雨衣打着雨伞，手里举着中共病毒真相的牌子向过往的民众宣传中共病毒真相。云龙战友称：“一位讲英语的外国女性认真地看着我们的牌子，上面的CCP-VIRUS和TAKE DOWN THE CCP引起了她的兴趣。”虽然她是一个小小的举动，但是战友们觉得这是最大的收获。因为我们的目标就是能民众了解中共病毒真相，引起民众的关注。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15202806/5%E6%9C%8815%E6%97%A5%E5%A4%96%E5%9B%BD%E4%BA%BA-2.jpg)
+活动结束后小红豆战友称：“风雨挡不了灭共的心!”她的心声代表了所有恩典战友的心声。恩典农场一直在行动！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15202916/5%E6%9C%8815%E6%97%A5%E5%A5%B3%E6%88%98%E5%8F%8B1-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15202953/5%E6%9C%8815%E6%97%A5%E5%A5%B3%E6%88%98%E5%8F%8B2-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15203027/5%E6%9C%8815%E6%97%A5%E4%B8%A4%E4%BD%8D%E7%94%B7%E6%88%98%E5%8F%8B-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15203121/5%E6%9C%8815%E6%97%A5%E5%B0%8F%E7%BA%A2%E8%B1%86-1.jpg)
+如有韩国境内的战友想参加宣传活动，韩国恩典农场义工报名电话：010-7591-5041，欢迎韩国境内的战友们踊跃参加。
 
 0

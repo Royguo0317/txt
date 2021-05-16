@@ -1,44 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月15日劳伦斯·塞林博士关于中共病毒推文集合
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1246665/)
+## 【一线新闻】华裔参选纽约洲市议员——法拉盛华人现象一窥
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1246852/)
 
-劳伦斯·塞林博士： 另一个重要发现 – [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 新冠侦探[@2020Gladiator](https://twitter.com/2020Gladiator)将两名中共科学家，史佩勇和王林发联系了起来，他们都隶属于(新加坡)杜克大学-国大医学院、武汉病毒研究所、和中国人民解放军。 【转[email protected] 的推文】
-
-
-
-> Another important discovery – [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@2020Gladiator](https://twitter.com/2020Gladiator?ref_src=twsrc%5Etfw) connects two Chinese Communist Party scientists, Pei-Yong Shi & Linfa Wang, both affiliated with the Duke-NUS Medical School, the Wuhan Institute of Virology & the People's Liberation Army. [https://t.co/LkKABlfEyc](https://t.co/LkKABlfEyc)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393513001978929152?ref_src=twsrc%5Etfw)
+前方记者：纽约香草山记者站 Kathy（文艺）
+记录/校对：纽约香草山记者站 熊井（文兰）
 
 
 
-劳伦斯·塞林博士： [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 新冠侦探[@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1)已很专业地绘出了德克萨斯大学医学分校的史佩勇的网络图，史佩勇似乎是 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 和解放军大规模渗透美国病毒研究实验室的一个关键人物。 【转 [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1) （火来2号）的推文】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 
 
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) has expertly mapped the network of Pei-Yong Shi of the University of Texas Medical Branch, who appears to be a key figure in the massive infiltration of U.S. virus research labs by the Chinese Communist Party and the People's Liberation Army. [https://t.co/7okuBH0Eg5](https://t.co/7okuBH0Eg5)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393649829784477704?ref_src=twsrc%5Etfw)
+今天我有幸在法拉盛公园街道旁，见到一位年轻的华裔青年陈海霖先生正在竞选纽约洲市议员。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15215820/48-4.jpg)
+
+记者：陈海霖先生你好，首先请你向我们简单介绍一下你的背景、你的故事以及你为什么参选？参选的是哪个党派？是什么席位？谢谢。
+
+陈海霖先生：大家好，我是陈海霖，是法拉盛市议员的侯选人，来自福建。我十四岁来到美国，在美国上的高中和大学，一路以来都是半工半读的。我这次参选是希望能够动员更多的年轻人参与政治，能够真正为我们社区服务，对社区建设做出贡献。
+
+目前的疫情非常严重，我们需要有一位既有能力，又有经验，而且更有活力的市议员出来，代表我们社区在市议会上能够提出在餐馆、旅游业、交通等方面的援助。各行各业都已经饱受风霜，如今需要一位有很强领导能力的人物出来。相信我有能力做到，也相信有更多有活力、有能力的人参与！
+
+记者：简单介绍一下你的工作背景好吗？
+
+陈海霖先生：最初我是Uber 司机，后来成为一名工会领袖，然后我带领着司机参加了司机独立工会，为他们争取到了最低工资，争取到了司机福利等等服务……这两三年我们成绩斐然，而且提出了一些从来没有的法案，能够保护新型企业员工。
+
+记者：你是哪个党派？
+
+陈海霖先生：我是民主党。六月份的选举是重中之重，因为六月份只有真正的民主党选民才能投票。现在还有两个星期的登记投票时间，希望大家踊跃地去登记、投票，支持我们华裔的侯选人代表我们的社区，代表我们社区的利益。
+
+![]()![](https://media.discordapp.net/attachments/842077566089429023/843177178609876992/IMG_2286.PNG?width=1319&amp;height=609)
+
+记者：请你对现任拜登政府执政后的成效做个简短评价好吗？
+
+陈海霖先生：我认为拜登政府上任100天成绩斐然。尤其在疫苗分配上，政府能够达到全美整个群体开放，短短两三个月做到这一步是非常不容易的。这份热情如果能够继续下去的话，对整个国家、对纽约都有巨大的帮助。这次州政府也拿到了联邦政府的经费，对整个纽约的全部民众是非常好的援助！
+
+记者：你认为他和前任交接当中有哪些是可取的？而且是接续前任的做法？
+
+陈海霖先生：拜登上台后，他非常努力，每一天都在为民众服务，这次对餐饮业的援助也是拜登政府通过国会增添了一个法案。但这援助是远远不够的，因为我们有更多的民意代表、议员在联邦政府为我们发声，才能争取到我们应得的福利。因为纽约洲是最大的捐款洲，我们拿自己的钱补贴其他洲，这是不应该的，所以这一笔我们应得的钱一定要拿到的。为社区提供全方位的语言环境，提供双语服务，如中文服务及其他服务。选人不选党！
+
+记者：谢谢你精彩的发言，也希望你这次的竞选能够成功，我会向大家推荐，感谢你，祝福每位工作人员，谢谢！
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 
 
-塞林博士： 独家：安东尼·福奇博士资助的研究使得中共国军方的史佩勇申请了专利。他一直在与中共国人民解放军合作。该资助是2021年福奇基金拨款926,569美元的一部分。 【附[http://thegatewaypundit.com](https://t.co/o7LjRSZiEI?amp=1)的特别报道】
-
-
-
-> EXCLUSIVE: Dr. Anthony Fauci Funded Research That Led to Patents for the Chinese Military
-> Pei-Yong Shi, who has been working with the Chinese People's Liberation Army, is part of a 2021 Fauci grant for $926,569.[https://t.co/lCKxJMpHUb](https://t.co/lCKxJMpHUb)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393581649154150402?ref_src=twsrc%5Etfw)
-
-
-
-劳伦斯·塞林博士： 哇喔。 俄亥俄州立大学前生物医学教授郑宋国被判37个月监禁，因他使用联邦补助帮助了中国医学研究。
-
-
-
-> Uh Oh.
-> Former biomedical Professor Zheng Songguo from Ohio State University Sentenced to 37 Months in Prison for Using Federal Grants to Aid China’s Medical Research.[https://t.co/31b2QnOJQo](https://t.co/31b2QnOJQo)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393622172766179328?ref_src=twsrc%5Etfw)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
 

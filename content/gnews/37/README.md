@@ -1,35 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 哈马斯的新武器
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1246453/)
+## 5月15日劳伦斯·塞林博士关于中共病毒推文集合
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1246665/)
 
-```
-新闻来源：德国世界报 网络版  
-记者：阿尔弗雷德·哈肯斯伯格（ Alfred Hackensberger）
-发布时间：2021年5月14日
-翻译整理/ 简评： Shuizhuyu
-```
+劳伦斯·塞林博士： 另一个重要发现 – [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 新冠侦探[@2020Gladiator](https://twitter.com/2020Gladiator)将两名中共科学家，史佩勇和王林发联系了起来，他们都隶属于(新加坡)杜克大学-国大医学院、武汉病毒研究所、和中国人民解放军。 【转[email protected] 的推文】
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15201535/image0-8-2.jpg)图片来源：华尔街日报
 
-在伊朗的支持下，恐怖民兵拥有更大范围的导弹，可以到达以色列大部分地区。 无人机也是新军火库的一部分。 但是，为什么以色列的军队显然没有为此做好准备？
+> Another important discovery – [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@2020Gladiator](https://twitter.com/2020Gladiator?ref_src=twsrc%5Etfw) connects two Chinese Communist Party scientists, Pei-Yong Shi & Linfa Wang, both affiliated with the Duke-NUS Medical School, the Wuhan Institute of Virology & the People's Liberation Army. [https://t.co/LkKABlfEyc](https://t.co/LkKABlfEyc)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393513001978929152?ref_src=twsrc%5Etfw)
 
-哈马斯军事发言人阿布·奥贝达警告说：“我们已经准备好教敌人一课。” “地面进攻只是增加我们死去的和被俘虏敌人收成的机会。”另一个巴勒斯坦恐怖组织伊斯兰圣战组织的发言人阿布·哈姆萨甚至说，如果以色列部队进入加沙地带，就是“通向胜利之路”。
 
-#### 简评： 
 
-**中东局势这两天引起了世界的广泛关注。 恐怖组织哈马斯主动发起了火箭弹袭击之后， 还不停止，袭击已经持续了几天。 而且恐怖组织的伎俩都是一样的，是要让老百姓成为自己的挡箭牌， 因此也使以色列的高级武器无法施用。现在伊斯兰圣战组织也跳出来说，如果以色列进入加沙地带， 就是恐怖组织的胜利之路。**
+劳伦斯·塞林博士： [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 新冠侦探[@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1)已很专业地绘出了德克萨斯大学医学分校的史佩勇的网络图，史佩勇似乎是 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 和解放军大规模渗透美国病毒研究实验室的一个关键人物。 【转 [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1) （火来2号）的推文】
 
-**但是，现在所有的西方国家都在对哈马斯表示了极大的愤怒， 可是愤怒从来不是恐怖组织害怕的。因为他们是流氓组织， 他们相信的只有真正的实质的行动。 而这些恐怖组织又是在邪恶轴心国伊朗的支持下。 相信正义的力量一定会最终拿出自己的实力， 一定会让恐怖组织最后消失在真个世界上。**
-（本文只代表译者观点， 与 Gnews平台无关）
 
-**新闻原文链接：**🔗[Die neuen Waffen der Hamas](https://www.welt.de/politik/ausland/plus231149421/Eskalation-in-Nahost-Die-neuen-Waffen-der-Hamas.html)h
-** **
 
-* * *
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) has expertly mapped the network of Pei-Yong Shi of the University of Texas Medical Branch, who appears to be a key figure in the massive infiltration of U.S. virus research labs by the Chinese Communist Party and the People's Liberation Army. [https://t.co/7okuBH0Eg5](https://t.co/7okuBH0Eg5)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393649829784477704?ref_src=twsrc%5Etfw)
 
-***编辑整理/校对: **Ting Guo*
+
+
+塞林博士： 独家：安东尼·福奇博士资助的研究使得中共国军方的史佩勇申请了专利。他一直在与中共国人民解放军合作。该资助是2021年福奇基金拨款926,569美元的一部分。 【附[http://thegatewaypundit.com](https://t.co/o7LjRSZiEI?amp=1)的特别报道】
+
+
+
+> EXCLUSIVE: Dr. Anthony Fauci Funded Research That Led to Patents for the Chinese Military
+> Pei-Yong Shi, who has been working with the Chinese People's Liberation Army, is part of a 2021 Fauci grant for $926,569.[https://t.co/lCKxJMpHUb](https://t.co/lCKxJMpHUb)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393581649154150402?ref_src=twsrc%5Etfw)
+
+
+
+劳伦斯·塞林博士： 哇喔。 俄亥俄州立大学前生物医学教授郑宋国被判37个月监禁，因他使用联邦补助帮助了中国医学研究。
+
+
+
+> Uh Oh.
+> Former biomedical Professor Zheng Songguo from Ohio State University Sentenced to 37 Months in Prison for Using Federal Grants to Aid China’s Medical Research.[https://t.co/31b2QnOJQo](https://t.co/31b2QnOJQo)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393622172766179328?ref_src=twsrc%5Etfw)
+
+
 
 0
