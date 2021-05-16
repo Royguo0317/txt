@@ -1,35 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 仅仅是“巧合”？中共本土疫情又起与疫苗炒作
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1247347/)
+## 美国民主党和共和党应该联手调查CCP病毒实验室起源的理论
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1247464/)
 
-作者：　Stephen文文
+新闻来源：《国家脉动 The National Pulse》| 作者：Catherine Salgado | 发布时间：2021年5月13日
+翻译/简评：大和凯多 | 校对/审核：万人往 | Page：Daoiii
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16031526/051602.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/2lCEy0662eLif/images/cfca5eb9-fe5d-4259-ad91-e128f84ff3fd.jpg?asset_id=fa816bba-166d-4dc6-ad29-a422ed52f231&amp;img_etag=%22c3e51f66ecbe7429d246a8577baf9c5a%22&amp;size=1024)](https://spark.adobe.com/page/2lCEy0662eLif/images/cfca5eb9-fe5d-4259-ad91-e128f84ff3fd.jpg?asset_id=fa816bba-166d-4dc6-ad29-a422ed52f231&amp;img_etag=%22c3e51f66ecbe7429d246a8577baf9c5a%22&amp;size=1024)
 
-近日，中共陆续报道了发生在安徽、辽宁两地的本土疫情，看似中共是在主动曝光疫情，标榜在疫情控制中的“透明性”。但很有可能实际上是为了胁迫民众打疫苗！
+**简评：**
 
-我们先来看一下和这次安徽、辽宁疫情“巧合”发生的事件，以及中共的舆论操作。在疫情报道之前，先出场的是“中共病毒四大不要脸”的高福与钟南山，两人高喊疫苗接种： 
-1. 5月12日消息，高福接受工藤泰志采访时表示，“预计到明年，中国将有9-10亿人接种新冠疫苗，可达到实现全民免疫的标准。”（[https://m.thepaper.cn/newsDetail\_forward\_12639279）](https://m.thepaper.cn/newsDetail_forward_12639279%EF%BC%89)
-2. 5月13日，钟南山首次在公开场合晒出了自己接种新冠疫苗的照片，为主动接种疫苗做出榜样。（[https://ishare.ifeng.com/c/s/86D3sQvzjmx）](https://ishare.ifeng.com/c/s/86D3sQvzjmx%EF%BC%89)
+**尽管国务卿布林肯说要对病毒来源究查到底，但是拜登政府并没有全力推动对武汉病毒研究所真正的调查。《华盛顿邮报》专栏作家乔什·罗金称，共和党早该进行这些调查，并表示，中共国政府和世卫组织无需给予许可。他还表示，把病毒问题政治化是一个悲剧，民主党和共和党人应该联起手来。**
 
-而在疫情发生后， 
-3. 5月14日，中共派出专家组赴安徽，专家组还没有调查出一个子丑寅卯，就开始了特别提示：“必须加快新冠疫苗接种！”（[https://news.sina.cn/gn/2021-05-14/detail-ikmyaawc5306478.d.html?cre=tianyi&mod=w2019ncov&loc=-5&r=-1&rfunc=48&tj=cxvertical\_2019ncov&tr=73&vt=4&pos=222）](https://news.sina.cn/gn/2021-05-14/detail-ikmyaawc5306478.d.html?cre=tianyi&amp;mod=w2019ncov&amp;loc=-5&amp;r=-1&amp;rfunc=48&amp;tj=cxvertical_2019ncov&amp;tr=73&amp;vt=4&amp;pos=222%EF%BC%89)
+**随着时间一天天过去，病毒的问题仍然没有得到解决。全世界的政府只拿疫苗来应付老百姓，没有人敢提病毒来源问题，似乎都在等待美国人怎么说。关于病毒来源问题，主流媒体的报道中仍然没有一个可令人信服的答案。前几个月所谓的世卫组织去武汉调查病毒只是走个政治过场，这种形同虚设的组织除了浪费钱根本一点用都没有，反而成为中共忽悠和宣传的工具。这个世界也真是可悲！从2019年底到现在2021年5月，每一天都有鲜活的生命被共产党的病毒夺去，却没有一个可靠的政府能够站出来真正为老百姓说真话，谁为这些失去的生命负责呢？在这个病毒面前，似乎所有人都成了政治的牺牲品，等待被政治的结果裁决。现在全世界所有政府最应该做的事情就是对它们的国民负起责任，不论男女老幼，不论活着的还是死去的；把病毒的问题去政治化，彻底究查病毒来源，问责中共，审判这个魔鬼。**
 
-同时中共媒体开始出场，热炒疫苗接种，制造疫苗恐慌。对民众开始精神胁迫， 
-4. 5月14日，中共控制的各个媒体开始报道“合肥奥体方舱接种点爆棚！”（[http://www.wehefei.com/mobile/article.html?path=/news/2021/05/14/c\_346001.htm）](http://www.wehefei.com/mobile/article.html?path=/news/2021/05/14/c_346001.htm%EF%BC%89) 
-5. 5月15日，中共又在全网热吵钟南山疫苗接种视频。（[https://k.sina.cn/article\_5347795977\_m13ec0e40902000rqu2.html?from=society&cre=tianyi&mod=w2019ncov&loc=-1&r=-1&rfunc=48&tj=cxvertical\_2019ncov&tr=73&vt=4&pos=222）](https://k.sina.cn/article_5347795977_m13ec0e40902000rqu2.html?from=society&amp;cre=tianyi&amp;mod=w2019ncov&amp;loc=-1&amp;r=-1&amp;rfunc=48&amp;tj=cxvertical_2019ncov&amp;tr=73&amp;vt=4&amp;pos=222%EF%BC%89)
+[!\[\]()!\[\](https://spark.adobe.com/page/2lCEy0662eLif/images/f1db8b7b-1a6d-45ed-aeab-58a926c88f17.jpg?asset_id=b1867008-e23d-4f42-81f1-6499f87216e8&amp;img_etag=%22297e3782b128899314b2b5debdc0b5ba%22&amp;size=1024)](https://spark.adobe.com/page/2lCEy0662eLif/images/f1db8b7b-1a6d-45ed-aeab-58a926c88f17.jpg?asset_id=b1867008-e23d-4f42-81f1-6499f87216e8&amp;img_etag=%22297e3782b128899314b2b5debdc0b5ba%22&amp;size=1024)
 
-与疫情、疫苗的的巧合放在一起，不得不让人怀疑中共操弄这波“疫情”的目的是什么。而在这波所谓“疫情”发生之前，中共已经长达几个月没有报道本地疫情，民众的疫苗接种热情普遍不高，除了送鸡蛋、送油能吸引一些老年人进行接种外，普通民众并没有接种疫苗的积极性。
+**原文翻译：**
 
-中共的核酸检测报告都控制在中共自己手里，“说你阴，你就阴，不阴也阴；说你阳，你就阳，不阳也阳！”想搞出几个阳性数据太容易了，操弄出一波不疼不痒的小疫情，又卖疫苗又卖检测试剂盒。
+## 《华盛顿邮报》：对新冠肺炎实验室起源论的调查“早该进行”
 
-中共墙内民众一定要在注意自身病毒防护的情况下，保持好心态，不要被中共“操弄”出来的疫情胁迫着去打疫苗！
+[!\[\]()!\[\](https://spark.adobe.com/page/2lCEy0662eLif/images/6ebd611d-85a5-44bf-9949-c80643afe5f7.png?asset_id=c297065d-d5ef-4760-a30a-f4558f021cf9&amp;img_etag=%229cd87862ba044ee5f4306b6dd93806da%22&amp;size=2560)](https://spark.adobe.com/page/2lCEy0662eLif/images/6ebd611d-85a5-44bf-9949-c80643afe5f7.png?asset_id=c297065d-d5ef-4760-a30a-f4558f021cf9&amp;img_etag=%229cd87862ba044ee5f4306b6dd93806da%22&amp;size=1024)
 
-[援引原文](https://news.sina.cn/gn/2021-05-14/detail-ikmyaawc5306478.d.html?cre=tianyi&amp;mod=w2019ncov&amp;loc=-5&amp;r=-1&amp;rfunc=48&amp;tj=cxvertical_2019ncov&amp;tr=73&amp;vt=4&amp;pos=222%EF%BC%89)
+**多名共和党国会议员已发起调查，以确定新冠肺炎是否来源于武汉实验室的泄漏，《华盛顿邮报》甚至称“早就应该”展开调查。**
 
-审核校对：鲁邦五世
-上传排版：糖果儿
+在周三的一封信中，众议员迈克·加拉格尔（威斯康辛州共和党人）给美国国家过敏和传染病研究所（NIAID）主任安东尼·福奇（Anthony S. Fauci）写道：“明白这个病毒大流行的原因，并确保不再发生类似的大流行，是当今世界面临的最重要问题。考虑到这些风险，我们无法负担得起对这种可怕疾病起源有限、片面或政治化的认识。”
+
+“我们希望您关于追根究底这个病毒大流行起源的陈述包含所有可能的原因，包括实验室意外泄漏的可能性。”
+
+尽管国务卿安东尼·布林肯上月说“我们要对此事究查到底”，并且国家情报总监艾薇儿·海恩斯（Avril Haines）也证实美国政府在对病毒实验室起源论进行调查，但是拜登政府并没有全力推动对武汉病毒研究所“真正的调查”，“该研究所在做一项叫‘功能增强’的危险实验，对感染人类的蝙蝠冠状病毒进行研究。”因此，共和党议员试图确保美国人民了解美国政府机构对新冠肺炎起源的认识。
+
+据《华盛顿邮报》报道，能源和商业委员会共和党领袖，众议员凯茜·麦克莫里斯·罗杰斯（Cathy McMorris Rodgers 华盛顿州共和党人）和“另外两名主要的共和党人”周四致信布林肯，要求他公开所有与川普政府国务院在1月15日的声明中提出的事实相关的文件，其中包括声称武汉实验室正在隐瞒其与中共国军方的合作，以及2019年秋季有几位研究人员出现了类似新冠肺炎的症状。拜登政府证实了这些声明，但武汉科学家却否认了这些说法。这说明有一方在撒谎。
+
+《华盛顿邮报》的专栏这样写道：
+
+**“美国国家过敏和传染病研究所（NIAID）及其上级单位美国国立卫生研究院（NIH）资助了美国科学家与武汉实验室之间的许多合作工作，其中包括大量蝙蝠冠状病毒的研究。福奇多次给病毒实验室起源论泼冷水，这封信要求福奇移交所有与美国政府对武汉实验室的资助和支持相关的信息，尤其是有关‘功能增强’研究的信息。”**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/2lCEy0662eLif/images/570c064d-582d-4a7d-b547-5b64e01f8376.jpg?asset_id=90de5f45-adf3-4d84-8ed6-8d24ab0d3952&amp;img_etag=%22462e5f3dce6d686c4c87a34e4984ca25%22&amp;size=1024)](https://spark.adobe.com/page/2lCEy0662eLif/images/570c064d-582d-4a7d-b547-5b64e01f8376.jpg?asset_id=90de5f45-adf3-4d84-8ed6-8d24ab0d3952&amp;img_etag=%22462e5f3dce6d686c4c87a34e4984ca25%22&amp;size=1024)
+
+“能源和商业委员会的共和党人三月份致信美国国立卫生研究院院长弗朗西斯·柯林斯（Francis Collins），并于四月致信生态健康联盟的彼得·达扎克（Peter Daszak），他是武汉实验室最紧密的合作者和最强有力的捍卫者，要求他们公开研究和合作的大量记录。柯林斯、福奇、达扎克既未回应国会的询问，也未回应我的置评请求。”
+
+《华盛顿邮报》专栏作家乔什·罗金（Josh Rogin）称共和党人的这项调查“早该进行”，并表示中共国政府和世卫组织无需给予此类调查许可。
+
+罗金说：“没有民主党支持，这些调查很难进行。”他还说，把病毒问题政治化是一个“悲剧”，民主党和共和党人应该联手从美国和中共国政府得到信息。
+
+罗金说：“很明显，美国国立卫生研究院和其他美国机构不希望对其活动进行调查。但是他们必须与国会合作，以确定他们的研究是否可能与疾病爆发有关。此外，目前的计划是通过耗资12亿美元的全球病毒组项目，将全球在危险病毒研究方面的合作扩大六倍。”他表示，“在大幅扩大该项目之前”，首先应该确定该研究是否是新冠肺炎大流行的来源。
+
+罗金最后催促拜登政府向中共施压，要求“更多权限介入武汉实验室”，并敦促在此期间美国尽可能继续进行调查。
+
+他说：“将政治远离这个话题对大家都好，因为解决病毒来源问题对于全世界的安全和公共健康是一项紧急的工作。”
+
+🔗[原文链接](https://thenationalpulse.com/breaking/wapo-investigation-into-covid-lab-origin-theory-long-overdue/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/2lCEy0662eLif/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/2lCEy0662eLif/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+
+
 
 0
