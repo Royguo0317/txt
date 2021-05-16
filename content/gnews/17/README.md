@@ -1,35 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Sellin上校号召病毒侦探寻找史佩勇教授与中共军方关系网
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1247587/)
+## 克里会见德拉吉 : 就气候问题达成协议
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1247733/)
 
-- 编译：【默凡】
-- 封面：七白石
+消息来源：意大利-repubblica.it
+发布时间：2021.05.14
+翻译/整理：斩草要除根
 
+乔·拜登（Joe Biden）的气候问题特使 – 约翰·克里（John Kerry）对意大利总理马里奥·德拉吉（Mario Draghi）说“我们做得很好”。两国政府在打击全球污染的斗争中不仅具有协调性，而且具有战略意义。气候是在基吉宫（Palazzo Chigi）举行的为时一小时的会议的中心主题，但德拉吉和克里（Kerry）发出的信息不仅限于生态过渡。
 
-5月16日，Sellin上校连发两条推特，他强调美国德克萨斯大学加尔维斯顿医学分部史佩勇教授可能是中共军方大规模渗透美国病毒研究实验室的关键人物，号召所有病毒侦探调查从史佩勇的关系网中寻找与中共军方有联系的科学家资料。
+在大西洋沿岸也可以共同应对挑战。克里在他的推文中总结道：“我很荣幸见到意大利总理马里奥·德拉吉（Mario Draghi）。感谢您对G20和COP26我们面临的共同挑战的承诺。意大利的领导对于应对气候危机至关重要。意大利担任20国集团（G20）的轮值主席国，并与英首相鲍里斯·约翰逊（Boris Johnson）联合王国担任联合国2021年气候变化会议（COP26）的主席国。克里在基吉宫再次表示：“我们指望意大利。”应当补充的是，昨天是美国民主政府和意大利民族团结政府之间的首次会晤。实际上，乔·拜登（Joe Biden）在三月底才参加了欧洲理事会。
 
+联盟在生态上转型。对于美国而言，由于累积的拖延，这已成为一个紧迫而关键的问题。欧洲（与意大利一起）已经在推动决定性地改变。一天结束时，克里，迪马约和辛戈拉尼发表联合声明：“我们认识到迫切需要采取全球行动来应对气候危机。我们致力于亲自开展工作，并敦促其他国家也这样做，以实现到2050年实现温室气体净排放量为零的目标，并采取符合温度上升1.5度的极限的行动»。因此美欧之间的合作不会结束。德拉吉和克里知道，中共国和印度这两个亚洲巨人，是有害排放物的非凡生产者，他们也必须参与其中。
 
+简评： 正如爆料革命郭文贵先生之前所说 “在全球疫情大流行的现在，各国政府首脑谈论的却是气候问题，这好比给一个人临死之前的那剂安乐针”。可以大胆的猜测此次美国和意大利的会晤所谈论的话题其中绝对绕不开 “中共” 这个话题,也可以肯定的是此次会晤也达成了在 “某些方面” 的一致，意大利战队美国的迹象呼之欲出。
 
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) has expertly mapped the network of Pei-Yong Shi of the University of Texas Medical Branch, who appears to be a key figure in the massive infiltration of U.S. virus research labs by the Chinese Communist Party and the People's Liberation Army. [https://t.co/7okuBH0Eg5](https://t.co/7okuBH0Eg5)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393649829784477704?ref_src=twsrc%5Etfw)
+（本文简评仅代表个人观点。）
 
+消息来源🔗 [意大利-repubblica.it](https://rep.repubblica.it/pwa/generale/2021/05/14/news/kerry_incontra_draghi_patto_con_l_italia_sul_clima_ruolo_cruciale_di_roma_-301049007/?ref=RHTP-VS-I287409039-P5-S5-T1)
 
+* * *
 
-
-
-> Again, [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) provides valuable information – the research network of CCP scientist Pei-Yong Shi. Let's identify the military-connected people in those links. [https://t.co/Ey4uQgurhD](https://t.co/Ey4uQgurhD)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 16, 2021](https://twitter.com/LawrenceSellin/status/1393778363664375813?ref_src=twsrc%5Etfw)
-
-
-
-史佩勇是世界病毒学领域研究前沿的杰出华人科学家之一，主要从事寨卡病毒等复制机理、抗病毒药物和疫苗研发等方面研究，是美国微生物学院院士、美国科学院顾问，先后在公共卫生机构、全球大型药物公司、高校及科研单位担任重要职位。目前已发表SCI论文260多篇，研究成果发表在病毒学、药理学、生物化学等领域的权威刊物；应邀在多个国际著名期刊上发表评论和综述；拥有多项世界专利；担任国际三大病毒学杂志及自然疫苗子刊编辑和编委。
-
-参考来源：
-
-[https://www.njmu.edu.cn/2019/1024/c606a156068/page.htm](https://www.njmu.edu.cn/2019/1024/c606a156068/page.htm)
-
-本文仅代表作者本人观点，不代表Gnews平台
+校对/发布：阿娜
 
 0

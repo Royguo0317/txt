@@ -1,59 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【独立观点】英国开始全面拆除华为设备
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1247556/)
+## Sellin上校号召病毒侦探寻找史佩勇教授与中共军方关系网
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1247587/)
 
-作者： 纽约香草山健身部 Ivy001
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
-
+- 编译：【默凡】
+- 封面：七白石
 
 
-5月15日，彭博社报道，今天英国开始拆除中共国华为的5G电信设备，这一工作刚刚在赫尔市启动。据报道，赫尔市将实现华为关键设备为“零”的第一个英国城市，它将在7月份之前在市区淘汰所有的华为设备，改为使用诺基亚的设备。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16045947/%E5%9B%BE%E7%89%878-39.png)图片来源：网络
-
-英国政府还确认，不仅仅华为最近安装的5G设备需要拆除，华为在英国无处不在的4G基站也需要拆除。华为不仅失去了英国的5G市场，还失去了旧有的4G市场，这意味着华为将彻底告别英国市场。
-
-继3月份法国拆除淘汰华为设备之后，又一个欧洲国家拆除华为设备。这是美国政府在几年的游说努力下，取得的又一个胜利。
-
-几年之前，美国政府向欧盟国家指出，华为电信设备其实是中共国安装的间谍设备，为中共国收集情报，并传送回中共国。但欧盟国家当时显然没有相信美国政府，经过几年的验证，法国和英国先后开始拆除已经安装好的华为设备。显然，这两国政府已经拿到实锤证据，哪怕花费巨资，也决定和美国站在一起。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16045937/%E5%9B%BE%E7%89%879-14.png)图片来源：网络
-
-这是华为在欧洲市场上的又一次败退。英国和法国的电信设备市场，一直是华为在欧洲最重要的市场之一，他们为华为能在欧洲市场立足，提供了重要的支撑。法国和英国的先后拆除华为设备，为华为彻底告别欧洲市场敲响了丧钟。
-
-英国和法国加入到爱立信、诺基亚的5G、4G设备网络中，加上爱立信和诺基亚原有的欧洲市场，华为被欧盟淘汰已经成为定局。因为，华为的5G设备和4G设备与爱立信、诺基亚等公司的设备并不兼容，为了欧盟市场的发展需求，和欧盟市场的统一性，其他国家必然要跟上。所以说，法国和英国拆除华为设备，华为失去的不仅仅是一个两个国家的市场，而是将来会失去整个欧盟市场的开始。
-
-作为中共国在海外最大收集情报的间谍公司，华为的败退，就等于中共国不仅仅在市场上的经济损失惨重，还失去了在欧洲布局已久的情报网。中共国被硬生生地砍断了一只魔爪。
-
-随着爆料革命的广泛传播，文贵先生的大声疾呼，中共国的邪恶企图逐渐被各国政府认清真相，无所遁形。随着中共国被砍断的魔爪越来越多，离中共国被斩首的日子也越来越近了。
-
-图片来源：RFI
-
-https://www.6parknews.com/newspark/view.php?app=news&act=view&nid=483868
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12223539/5%E6%9C%88.jpg)
+5月16日，Sellin上校连发两条推特，他强调美国德克萨斯大学加尔维斯顿医学分部史佩勇教授可能是中共军方大规模渗透美国病毒研究实验室的关键人物，号召所有病毒侦探调查从史佩勇的关系网中寻找与中共军方有联系的科学家资料。
 
 
 
-**六四文宣大赛，****欢迎大家踊跃投票****：**[**https://gnews.org/poll/poll-article\_1/**](https://gnews.org/poll/poll-article_1/)
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) has expertly mapped the network of Pei-Yong Shi of the University of Texas Medical Branch, who appears to be a key figure in the massive infiltration of U.S. virus research labs by the Chinese Communist Party and the People's Liberation Army. [https://t.co/7okuBH0Eg5](https://t.co/7okuBH0Eg5)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393649829784477704?ref_src=twsrc%5Etfw)
 
-**投票注意事项：第一，比如投票视频，一个账号需要同时选中要投的三个视频作品，方可以投票；第二，因为视频比较大，所以需要大家静待一两分钟，然后进入视频投稿界面。第三，投票的战友也有机会获幸运参与奖啊。**
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+> Again, [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) provides valuable information – the research network of CCP scientist Pei-Yong Shi. Let's identify the military-connected people in those links. [https://t.co/Ey4uQgurhD](https://t.co/Ey4uQgurhD)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 16, 2021](https://twitter.com/LawrenceSellin/status/1393778363664375813?ref_src=twsrc%5Etfw)
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+史佩勇是世界病毒学领域研究前沿的杰出华人科学家之一，主要从事寨卡病毒等复制机理、抗病毒药物和疫苗研发等方面研究，是美国微生物学院院士、美国科学院顾问，先后在公共卫生机构、全球大型药物公司、高校及科研单位担任重要职位。目前已发表SCI论文260多篇，研究成果发表在病毒学、药理学、生物化学等领域的权威刊物；应邀在多个国际著名期刊上发表评论和综述；拥有多项世界专利；担任国际三大病毒学杂志及自然疫苗子刊编辑和编委。
+
+参考来源：
+
+[https://www.njmu.edu.cn/2019/1024/c606a156068/page.htm](https://www.njmu.edu.cn/2019/1024/c606a156068/page.htm)
+
+本文仅代表作者本人观点，不代表Gnews平台
 
 0

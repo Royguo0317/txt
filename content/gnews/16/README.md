@@ -1,38 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国担心周末的反以色列示威活动
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1247601/)
+## 用党史快问快答对儿童的洗脑正在毁掉中华民族的未来
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1247738/)
 
-信息来源：德国世界报网络版 
-发布时间：2021年5月15日
-翻译 /整理/ 简评： Shuizhuyu
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16070543/%E5%B0%81%E9%9D%A2-49.png)
+据[lily \[email protected\]](https://twitter.com/lilyval15187063)·于[下午2:59 · 2021年5月16日](https://twitter.com/lilyval15187063/status/1393823291618516993)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16055826/image0-1-63.jpg)
-
-
-图片来自视频截图
-
-**哈马斯在德国的支持者计划在周末在柏林，北莱茵-威斯特法伦州和其他地方进行几次批评以色列的抗议活动。安全当局对此表示关注。**
-
-计划在德国周末进行两次以上的批评以色列的示威活动。根据“ Tagesspiegel”检查站的数据，到目前为止，星期六已登记了25个活动，其中许多在北莱茵-威斯特法伦州，包括科隆和在柏林的三场。
-
-组织者还应该来自巴勒斯坦恐怖组织哈马斯和伊斯兰穆斯林兄弟会。柏林犹太社区成员伦纳德·卡明斯基（Leonard Kaminski）报导说：“我可以想象我们会看到并听到坏事。”
-
-柏林的活动背后是“萨米顿德国”，即“解放巴勒斯坦人民阵线”（PFLP）的事件。恐怖主义组织拒绝与以色列实现和平，并提倡针对平民的恐怖主义行为。组织者呼吁，除其他外，争取“从约旦到地中海的自由巴勒斯坦”。这将包括以色列的国土，从而剥夺以色列的生存权。警察为示威活动提供了200多个应急服务。
-
-柏林内政参议员承诺为犹太人社区提供最佳保护
-
-周五，成百上千的人还上了德累斯顿的街头。警察计数了大约400名参加者。一些人挥舞着巴勒斯坦的旗帜。
-
-简评： 这个世界有时候确实不能理解， 在自由的德国， 这些有哈马斯和伊斯兰穆斯林兄弟会为背景的组织，组织游行。 而事实是， 开启袭击的是哈马斯占领的加沙地带， 火箭弹袭击的是以色列， 袭击后躲藏于百姓中。 这种做法就是纯粹的流亡， 还要在德国大造声势。 和共匪的伎俩如出一辙。 德国内政部要出动力量保护犹太人居住区。
-
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-
-发表：Shuizhuyu
-
-🔗[Sorge-vor-israelfeindlichen-Demonstrationen-am-Wochenende.](https://www.welt.de/politik/deutschland/article231153341/Sorge-vor-israelfeindlichen-Demonstrationen-am-Wochenende.htmll)
+这父母得有多傻逼
 
 
 
-+1
+> 这父母得有多傻逼 [pic.twitter.com/DZU3ps0FzT](https://t.co/DZU3ps0FzT)
+> — lily valley (@lilyval15187063) [May 16, 2021](https://twitter.com/lilyval15187063/status/1393823291618516993?ref_src=twsrc%5Etfw)
+
+
+
+我们知道中共对十四亿同胞洗脑是个系统工程，我们也知道中共对儿童的洗脑和戕害丝毫没有放松过，但是我们不知道中共对儿童的戕害可以达到如此发指之程度，在看到了视频上的“党史快问快答”字样之后，我相信这又是一次政治运动的开始，而这次运动的名字就叫“党史快问快答”，于是用百度搜索一下“党史快问快答”，出现[“党史快问快答”视频的百度搜索结果](https://www.baidu.com/sf/vsearch?pd=video&amp;tn=vsearch&amp;lid=91562861009f245c&amp;ie=utf-8&amp;wd=%E5%85%9A%E5%8F%B2%E5%BF%AB%E9%97%AE%E5%BF%AB%E7%AD%94&amp;rsv_spt=7&amp;rsv_bp=1&amp;f=8&amp;oq=%E5%85%9A%E5%8F%B2%E5%BF%AB%E9%97%AE%E5%BF%AB%E7%AD%94&amp;rsv_pq=91562861009f245c&amp;rsv_t=ae04eJw9w9OKobWdX6082HlsfyHLtInUUr%2FlRok9mN%2FQvun8GmvHkvE6OGC%2F1DSMnr2hON9jL8IB)，在这些结果中我们只抽取一条幼儿园党史知识快问快答的视频——
+
+据[儿童之家幼儿园，*党史*知识*快问快答*](https://baijiahao.baidu.com/s?id=1699184638299985889&amp;wfr=content)（来源：**[董天云1971](https://haokan.baidu.com/author/1659422689126602)发布时间：2021年5月8日）**
+
+在中共系统性的洗脑之下，中共对整个社会的沉沦自然负有不可推卸的责任，而群体的无意识者中绝对不乏高智商、高学历者，在全民的沦丧之下、在整个社会放任对孩子的这种弱智洗脑之下，我们整个民族失去的不仅仅是现在，我们失去的也是我们的未来，因为这种洗脑彻底摧毁了下一代人独立思考和辨别善恶的能力。
+
+（文章内容仅代表作者个人观点）
+
+0
