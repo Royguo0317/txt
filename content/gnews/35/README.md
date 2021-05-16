@@ -1,35 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Sellin上校号召病毒侦探寻找史佩勇教授与中共军方关系网
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1247587/)
+## 德国担心周末的反以色列示威活动
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1247601/)
 
-- 编译：【默凡】
-- 封面：七白石
+信息来源：德国世界报网络版 
+发布时间：2021年5月15日
+翻译 /整理/ 简评： Shuizhuyu
 
-
-5月16日，Sellin上校连发两条推特，他强调美国德克萨斯大学加尔维斯顿医学分部史佩勇教授可能是中共军方大规模渗透美国病毒研究实验室的关键人物，号召所有病毒侦探调查从史佩勇的关系网中寻找与中共军方有联系的科学家资料。
-
-
-
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) has expertly mapped the network of Pei-Yong Shi of the University of Texas Medical Branch, who appears to be a key figure in the massive infiltration of U.S. virus research labs by the Chinese Communist Party and the People's Liberation Army. [https://t.co/7okuBH0Eg5](https://t.co/7okuBH0Eg5)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393649829784477704?ref_src=twsrc%5Etfw)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16055826/image0-1-63.jpg)
 
 
+图片来自视频截图
+
+**哈马斯在德国的支持者计划在周末在柏林，北莱茵-威斯特法伦州和其他地方进行几次批评以色列的抗议活动。安全当局对此表示关注。**
+
+计划在德国周末进行两次以上的批评以色列的示威活动。根据“ Tagesspiegel”检查站的数据，到目前为止，星期六已登记了25个活动，其中许多在北莱茵-威斯特法伦州，包括科隆和在柏林的三场。
+
+组织者还应该来自巴勒斯坦恐怖组织哈马斯和伊斯兰穆斯林兄弟会。柏林犹太社区成员伦纳德·卡明斯基（Leonard Kaminski）报导说：“我可以想象我们会看到并听到坏事。”
+
+柏林的活动背后是“萨米顿德国”，即“解放巴勒斯坦人民阵线”（PFLP）的事件。恐怖主义组织拒绝与以色列实现和平，并提倡针对平民的恐怖主义行为。组织者呼吁，除其他外，争取“从约旦到地中海的自由巴勒斯坦”。这将包括以色列的国土，从而剥夺以色列的生存权。警察为示威活动提供了200多个应急服务。
+
+柏林内政参议员承诺为犹太人社区提供最佳保护
+
+周五，成百上千的人还上了德累斯顿的街头。警察计数了大约400名参加者。一些人挥舞着巴勒斯坦的旗帜。
+
+简评： 这个世界有时候确实不能理解， 在自由的德国， 这些有哈马斯和伊斯兰穆斯林兄弟会为背景的组织，组织游行。 而事实是， 开启袭击的是哈马斯占领的加沙地带， 火箭弹袭击的是以色列， 袭击后躲藏于百姓中。 这种做法就是纯粹的流亡， 还要在德国大造声势。 和共匪的伎俩如出一辙。 德国内政部要出动力量保护犹太人居住区。
+
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+
+发表：Shuizhuyu
+
+🔗[Sorge-vor-israelfeindlichen-Demonstrationen-am-Wochenende.](https://www.welt.de/politik/deutschland/article231153341/Sorge-vor-israelfeindlichen-Demonstrationen-am-Wochenende.htmll)
 
 
 
-> Again, [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) provides valuable information – the research network of CCP scientist Pei-Yong Shi. Let's identify the military-connected people in those links. [https://t.co/Ey4uQgurhD](https://t.co/Ey4uQgurhD)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 16, 2021](https://twitter.com/LawrenceSellin/status/1393778363664375813?ref_src=twsrc%5Etfw)
-
-
-
-史佩勇是世界病毒学领域研究前沿的杰出华人科学家之一，主要从事寨卡病毒等复制机理、抗病毒药物和疫苗研发等方面研究，是美国微生物学院院士、美国科学院顾问，先后在公共卫生机构、全球大型药物公司、高校及科研单位担任重要职位。目前已发表SCI论文260多篇，研究成果发表在病毒学、药理学、生物化学等领域的权威刊物；应邀在多个国际著名期刊上发表评论和综述；拥有多项世界专利；担任国际三大病毒学杂志及自然疫苗子刊编辑和编委。
-
-参考来源：
-
-[https://www.njmu.edu.cn/2019/1024/c606a156068/page.htm](https://www.njmu.edu.cn/2019/1024/c606a156068/page.htm)
-
-本文仅代表作者本人观点，不代表Gnews平台
-
-0
++1

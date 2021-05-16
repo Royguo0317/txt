@@ -1,11 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭文贵一再提醒台、日、澳、美，中共会再次放毒
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1247996/)
+## 【路德简报】5/15/2021晚：美国会共和党人要求解密所有新冠病毒源于中共实验室的官方文件
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1247999/)
 
-5/15/2021 郭文贵先生一再提醒台湾、日本、澳大利亚、美国，如果不能认清中共放毒这个事实并采取措施，疫情一定会像印度一样再来。中共正发动宣传战、法律战、蓝金黄以赢取生物超限战的最后胜利。
+**编辑：华盛顿DC农场 路德简报项目组**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16055432/20210515-2-scaled.jpg)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-+1
+> 2021 年5月15日 路德时评 晚
+> 
+> 1.美国会共和党人要求解密所有新冠病毒源于中共实验室的官方文件
+> 
+> 2.美参议院通过“无尽前沿法”（EFA）法案：美国科学界全面和中共脱钩 
+> 
+> 3.以色列铁穹防御系统 固若金汤
+> 
+> 4. NASA打脸中共：“天问一号”登陆火星视频 剽窃了NASA十年前的影片 [pic.twitter.com/RS9KdsElnF](https://t.co/RS9KdsElnF)
+> — 平民爆料 (@WM18320321) [May 16, 2021](https://twitter.com/WM18320321/status/1393829948213825537?ref_src=twsrc%5Etfw)
+
+
+
+
+
++2

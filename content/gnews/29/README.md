@@ -1,27 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 克里会见德拉吉 : 就气候问题达成协议
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1247733/)
+## 用党史快问快答对儿童的洗脑正在毁掉中华民族的未来
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1247738/)
 
-消息来源：意大利-repubblica.it
-发布时间：2021.05.14
-翻译/整理：斩草要除根
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16070543/%E5%B0%81%E9%9D%A2-49.png)
+据[lily \[email protected\]](https://twitter.com/lilyval15187063)·于[下午2:59 · 2021年5月16日](https://twitter.com/lilyval15187063/status/1393823291618516993)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
 
-乔·拜登（Joe Biden）的气候问题特使 – 约翰·克里（John Kerry）对意大利总理马里奥·德拉吉（Mario Draghi）说“我们做得很好”。两国政府在打击全球污染的斗争中不仅具有协调性，而且具有战略意义。气候是在基吉宫（Palazzo Chigi）举行的为时一小时的会议的中心主题，但德拉吉和克里（Kerry）发出的信息不仅限于生态过渡。
+这父母得有多傻逼
 
-在大西洋沿岸也可以共同应对挑战。克里在他的推文中总结道：“我很荣幸见到意大利总理马里奥·德拉吉（Mario Draghi）。感谢您对G20和COP26我们面临的共同挑战的承诺。意大利的领导对于应对气候危机至关重要。意大利担任20国集团（G20）的轮值主席国，并与英首相鲍里斯·约翰逊（Boris Johnson）联合王国担任联合国2021年气候变化会议（COP26）的主席国。克里在基吉宫再次表示：“我们指望意大利。”应当补充的是，昨天是美国民主政府和意大利民族团结政府之间的首次会晤。实际上，乔·拜登（Joe Biden）在三月底才参加了欧洲理事会。
 
-联盟在生态上转型。对于美国而言，由于累积的拖延，这已成为一个紧迫而关键的问题。欧洲（与意大利一起）已经在推动决定性地改变。一天结束时，克里，迪马约和辛戈拉尼发表联合声明：“我们认识到迫切需要采取全球行动来应对气候危机。我们致力于亲自开展工作，并敦促其他国家也这样做，以实现到2050年实现温室气体净排放量为零的目标，并采取符合温度上升1.5度的极限的行动»。因此美欧之间的合作不会结束。德拉吉和克里知道，中共国和印度这两个亚洲巨人，是有害排放物的非凡生产者，他们也必须参与其中。
 
-简评： 正如爆料革命郭文贵先生之前所说 “在全球疫情大流行的现在，各国政府首脑谈论的却是气候问题，这好比给一个人临死之前的那剂安乐针”。可以大胆的猜测此次美国和意大利的会晤所谈论的话题其中绝对绕不开 “中共” 这个话题,也可以肯定的是此次会晤也达成了在 “某些方面” 的一致，意大利战队美国的迹象呼之欲出。
+> 这父母得有多傻逼 [pic.twitter.com/DZU3ps0FzT](https://t.co/DZU3ps0FzT)
+> — lily valley (@lilyval15187063) [May 16, 2021](https://twitter.com/lilyval15187063/status/1393823291618516993?ref_src=twsrc%5Etfw)
 
-（本文简评仅代表个人观点。）
 
-消息来源🔗 [意大利-repubblica.it](https://rep.repubblica.it/pwa/generale/2021/05/14/news/kerry_incontra_draghi_patto_con_l_italia_sul_clima_ruolo_cruciale_di_roma_-301049007/?ref=RHTP-VS-I287409039-P5-S5-T1)
 
-* * *
+我们知道中共对十四亿同胞洗脑是个系统工程，我们也知道中共对儿童的洗脑和戕害丝毫没有放松过，但是我们不知道中共对儿童的戕害可以达到如此发指之程度，在看到了视频上的“党史快问快答”字样之后，我相信这又是一次政治运动的开始，而这次运动的名字就叫“党史快问快答”，于是用百度搜索一下“党史快问快答”，出现[“党史快问快答”视频的百度搜索结果](https://www.baidu.com/sf/vsearch?pd=video&amp;tn=vsearch&amp;lid=91562861009f245c&amp;ie=utf-8&amp;wd=%E5%85%9A%E5%8F%B2%E5%BF%AB%E9%97%AE%E5%BF%AB%E7%AD%94&amp;rsv_spt=7&amp;rsv_bp=1&amp;f=8&amp;oq=%E5%85%9A%E5%8F%B2%E5%BF%AB%E9%97%AE%E5%BF%AB%E7%AD%94&amp;rsv_pq=91562861009f245c&amp;rsv_t=ae04eJw9w9OKobWdX6082HlsfyHLtInUUr%2FlRok9mN%2FQvun8GmvHkvE6OGC%2F1DSMnr2hON9jL8IB)，在这些结果中我们只抽取一条幼儿园党史知识快问快答的视频——
 
-校对/发布：阿娜
+据[儿童之家幼儿园，*党史*知识*快问快答*](https://baijiahao.baidu.com/s?id=1699184638299985889&amp;wfr=content)（来源：**[董天云1971](https://haokan.baidu.com/author/1659422689126602)发布时间：2021年5月8日）**
+
+在中共系统性的洗脑之下，中共对整个社会的沉沦自然负有不可推卸的责任，而群体的无意识者中绝对不乏高智商、高学历者，在全民的沦丧之下、在整个社会放任对孩子的这种弱智洗脑之下，我们整个民族失去的不仅仅是现在，我们失去的也是我们的未来，因为这种洗脑彻底摧毁了下一代人独立思考和辨别善恶的能力。
+
+（文章内容仅代表作者个人观点）
 
 0

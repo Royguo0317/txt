@@ -1,28 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 用党史快问快答对儿童的洗脑正在毁掉中华民族的未来
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1247738/)
+## 【商海纵横]】漫谈GClub（一）GClub与俱乐部
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1247722/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16070543/%E5%B0%81%E9%9D%A2-49.png)
-据[lily \[email protected\]](https://twitter.com/lilyval15187063)·于[下午2:59 · 2021年5月16日](https://twitter.com/lilyval15187063/status/1393823291618516993)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
+五月花写作组 | 商业部：Nanfeng99 | 编辑：文合 | 封面：灭共小宇宙 | 发布：吐纳
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16070312/Glubsv1_copy.jpg)
+喜币（Himalaya Coin）即将上市。以钱灭共，G系列正如火如荼地进行着。如果说喜币、喜联储（Himalaya Reserve）是在形成新中国联邦的金融基础，是聚钱的地方；那么GClub、喜农场就是在形成新中国联邦的人才基础，是聚人的地方。
 
-这父母得有多傻逼
+GClub即G俱乐部。古今中外，俱乐部各式各样，各种关于俱乐部的故事传闻也是众说纷纭。比如随便上网搜下，就有诸如：“十大顶级俱乐部”、“七大神秘俱乐部”、“奋斗终生，可能也成不了这些俱乐部的会员“等相关文章。那GClub将是怎样的一个G俱乐部呢？
 
+大众关注并成为谈资的俱乐部，往往有这么三个特点：（1）入会的会费高或有其它门槛；（2）会员可享有奢华服务或特别的权利资源等；（3）俱乐部无论位置显要或隐蔽，建筑装潢都不同一般。所谓物以类聚，人以群分，这些俱乐部很大程度上似乎是其会员彰显社会地位的一种需要。GClub会不会是这样的一个俱乐部呢？
 
+首先，我们看看GClub官网（www.gclubs.com）的介绍：
 
-> 这父母得有多傻逼 [pic.twitter.com/DZU3ps0FzT](https://t.co/DZU3ps0FzT)
-> — lily valley (@lilyval15187063) [May 16, 2021](https://twitter.com/lilyval15187063/status/1393823291618516993?ref_src=twsrc%5Etfw)
+**GCLUBS****会员是通往新世界的门票。**
 
+**一个创新的新世界。**
 
+**一个自由的新世界。**
 
-我们知道中共对十四亿同胞洗脑是个系统工程，我们也知道中共对儿童的洗脑和戕害丝毫没有放松过，但是我们不知道中共对儿童的戕害可以达到如此发指之程度，在看到了视频上的“党史快问快答”字样之后，我相信这又是一次政治运动的开始，而这次运动的名字就叫“党史快问快答”，于是用百度搜索一下“党史快问快答”，出现[“党史快问快答”视频的百度搜索结果](https://www.baidu.com/sf/vsearch?pd=video&amp;tn=vsearch&amp;lid=91562861009f245c&amp;ie=utf-8&amp;wd=%E5%85%9A%E5%8F%B2%E5%BF%AB%E9%97%AE%E5%BF%AB%E7%AD%94&amp;rsv_spt=7&amp;rsv_bp=1&amp;f=8&amp;oq=%E5%85%9A%E5%8F%B2%E5%BF%AB%E9%97%AE%E5%BF%AB%E7%AD%94&amp;rsv_pq=91562861009f245c&amp;rsv_t=ae04eJw9w9OKobWdX6082HlsfyHLtInUUr%2FlRok9mN%2FQvun8GmvHkvE6OGC%2F1DSMnr2hON9jL8IB)，在这些结果中我们只抽取一条幼儿园党史知识快问快答的视频——
+**一个畅游的新世界。**
 
-据[儿童之家幼儿园，*党史*知识*快问快答*](https://baijiahao.baidu.com/s?id=1699184638299985889&amp;wfr=content)（来源：**[董天云1971](https://haokan.baidu.com/author/1659422689126602)发布时间：2021年5月8日）**
+**一个时尚的新世界。**
 
-在中共系统性的洗脑之下，中共对整个社会的沉沦自然负有不可推卸的责任，而群体的无意识者中绝对不乏高智商、高学历者，在全民的沦丧之下、在整个社会放任对孩子的这种弱智洗脑之下，我们整个民族失去的不仅仅是现在，我们失去的也是我们的未来，因为这种洗脑彻底摧毁了下一代人独立思考和辨别善恶的能力。
+我们再看看Wikipedia对俱乐部的解释：“俱乐部（英语：Club），也可意译为「会」或「会所」，是人们或具有某种相同兴趣的人聚集在一起，进行社会交际、文化娱乐等活动的组织团体或其场地，有别于一般的消费场所。”
 
-（文章内容仅代表作者个人观点）
+根据这些，我的理解是：GClub是把一群人聚集起来，并和一个新世界联系在一起的组织。这个新世界会有一个新的生活方式、新的人际环境、乃至新的社会架构。相聚起来的这群人有相同的兴趣志向、价值理念、及梦想追求。
 
-0
+那具体这个新世界和这群人是怎样的呢？根据以往郭先生有关GClub的直播或盖特，我们可以管中窥豹、略见一斑。
+
+2020年10月13日，关于GClub、GFashion上线，郭先生直播宣读法律文件并回答问题时说：GClub和GFashion真正能创造人类历史上一个让所有的穷人和有品位的人能穿的起、用的起的时尚平台和桥梁。
+
+2021年3月4日，郭先生盖特上说：G-Club跟全世界哪个会员，任何组织、任何俱乐部——足球俱乐部、金融俱乐部、自然俱乐部、黄金俱乐部……都可以连接在一起！
+
+2021年5月5日，郭先生直播说：GTV、GNews、GFashion、GClub，培育出来一批真正核心的战友，通过这些，GClub会升到喜会员，喜会员到国家治理机构，是这样的一个过程，让所有的GClub里边的、还有GTV直播的、及各农场的战友，逐渐筛选出来喜联邦的国家管理人员，这是核心目的。
+
+因此，GClub、喜农场就是在形成新中国联邦的人才基础，是聚人的地方，是战友汇聚并得到培育锻炼的平台。
+
+GClub和G系列连接着一个新世界、连接着新中国联邦、承载着灭共的正义和爆料革命的信誉。GClub会员卡将是一张门票，是未来在世界上行走的通行证，借由它不仅可以获得优质优惠的服务享受，还将带给其会员有尊严、有品味的生活。
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+
++1

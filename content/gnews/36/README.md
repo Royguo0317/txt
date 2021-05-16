@@ -1,17 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国内大学生“白吃”肯德基案登上新西兰新闻
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1247597/)
+## Sellin上校号召病毒侦探寻找史佩勇教授与中共军方关系网
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1247587/)
 
-译者：文紗（kazusa）
+- 编译：【默凡】
+- 封面：七白石
 
-新西兰发行量最大的新西兰先驱报报道了最近中国国内热议的大学生“白吃”肯德基诈骗案。
 
-报道称，近日一个五人的学生团伙因钻肯德基订餐app的漏洞诈骗牟利被法院判罚合2.5万新西兰元。中国某高校学生徐早先发现了肯德基订餐app中的漏洞，在app中使用优惠券并之后从微信端退款就可以无限制的下“免费的”订单。来自江苏省的徐某在发现漏洞后“喜出望外”，并立马着手做起了低价销售套餐产品的“副业”以此牟利。
+5月16日，Sellin上校连发两条推特，他强调美国德克萨斯大学加尔维斯顿医学分部史佩勇教授可能是中共军方大规模渗透美国病毒研究实验室的关键人物，号召所有病毒侦探调查从史佩勇的关系网中寻找与中共军方有联系的科学家资料。
 
-徐某还雇佣了4名同学一起用网络软件进行销售生意。在六个月内，徐某给肯德基的母公司百胜造成1.25万新西兰元的损失，其同学造成百胜损失从1900新西兰元到1.02万新西兰元不等。五名学生均被上海徐汇区法院以诈骗罪进行判处。徐某被判2年零6个月，其余四名同学被判15月到2年不等。
 
-译者评：国内热点新闻上国外报道这种以往也屡见不鲜，但是在如今中共四处放毒战狼外交的当下更显敏感。国际上大部分人并不能区别中共与中国人的区别，一旦中共病毒真相被揭开后，一点点小事都有可能点燃外国人从排共到排华的浪潮。作为新中国联邦人的我们责任重大，在端正自身品格的同时，要继续向外界宣传揭示病毒真相，展示新中国人形象，向外国人更多的传达中共不等于中国人的概念，以保证在未来的灭共浪潮中最大限度保护海外华人利益，免被中共倒台牵连。
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) has expertly mapped the network of Pei-Yong Shi of the University of Texas Medical Branch, who appears to be a key figure in the massive infiltration of U.S. virus research labs by the Chinese Communist Party and the People's Liberation Army. [https://t.co/7okuBH0Eg5](https://t.co/7okuBH0Eg5)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393649829784477704?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Again, [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) provides valuable information – the research network of CCP scientist Pei-Yong Shi. Let's identify the military-connected people in those links. [https://t.co/Ey4uQgurhD](https://t.co/Ey4uQgurhD)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 16, 2021](https://twitter.com/LawrenceSellin/status/1393778363664375813?ref_src=twsrc%5Etfw)
+
+
+
+史佩勇是世界病毒学领域研究前沿的杰出华人科学家之一，主要从事寨卡病毒等复制机理、抗病毒药物和疫苗研发等方面研究，是美国微生物学院院士、美国科学院顾问，先后在公共卫生机构、全球大型药物公司、高校及科研单位担任重要职位。目前已发表SCI论文260多篇，研究成果发表在病毒学、药理学、生物化学等领域的权威刊物；应邀在多个国际著名期刊上发表评论和综述；拥有多项世界专利；担任国际三大病毒学杂志及自然疫苗子刊编辑和编委。
+
+参考来源：
+
+[https://www.njmu.edu.cn/2019/1024/c606a156068/page.htm](https://www.njmu.edu.cn/2019/1024/c606a156068/page.htm)
+
+本文仅代表作者本人观点，不代表Gnews平台
 
 0
