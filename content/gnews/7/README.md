@@ -1,56 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共的黄金储备数据全是假的！数字人民币21次测试全部失败！
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1249878/)
+## 伊朗攻击以色列，美国需要支持 以色列
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1249891/)
 
-**摘要：在2021年5月11日的盖特视频中，郭先生说一位统计局的战友爆料中共黄金储备数据是假的，上万亿的银行票据不知所踪，外汇只有入没有出的数据，可是无人敢查，这个国家只有破产的命运。更厉害的是中共的数字人民币21次测试全部失败，区块链变黑洞，中共被重金挖回去的搞区块链的海归给骗了！**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17011427/Miles_20210511_getter-p2.srt.txt)
-**中共的黄金储备数据全是假的！数字人民币****21****次测试全部失败！**
+翻译: 康州盘古农场 – Mike Li
 
-**CCP’s Gold Reserve Data Are All Fake! 21 Tests on Digital RMB All Failed!**
+校对: 康州盘古农场 –郭班之樱
 
-第二个，「关于」黄金储备。统计局报「告」黄金储备，因此被抓了好几个头儿。全国各地黄金储备从来没被认真统计过，只看下面报「的数据」。听说，「但」不知道哪位，咱就别「明」说了，一位副总理说：“中国的黄金储备应该有个核实了。”委托统计局、国家安全生产办、国安委派出小组去统计全国的黄金。
+编辑: 康州盘古农场 – 傻小子
 
-The second issue is related to gold reserves. Several heads of the Bureau of Statistics have been arrested due to the matter of gold reserve reporting. Gold reserves across the country have never been carefully counted. They just look at the data reported by their subordinate units. I heard this but I cannot reveal the name now. A deputy prime minister said: “We should verify China’s gold reserves.” So, he entrusted the Bureau of Statistics, the Work Safety Committee of the State Council, and the National Security Commission of the CCP to send a team to count the country’s gold reserves.
+发布：康州盘古农场 – 彩虹 Rainbow
 
-统计完傻眼了，事实上的黄金跟每年所报的数字差距巨大。一说“巨大”的时候大家记住，就是用百「倍」来算了，不是百以下了。就像「在」中国犯罪，「如果说」：鉴于犯罪情节极为严重，影响巨大……这就往10年以上整了，甚至往无期徒刑、死刑整你了。一说“巨大”就从百「倍差距」开始「算了」，严重不严重？
+**据《American Center for Law and Justice》 作者：迈克-蓬佩奥，2021年5月12日报道**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17010131/god1-1.jpg)
+在上周末以色列发生令人心碎的悲惨暴力事件后，看到了拜登政府的反应–一系列软弱的声明呼吁双方“缓和”。这令人失望但并不令人惊讶。缓和？以色列并没有攻击加沙、哈马斯或巴勒斯坦权力机构，当然也没有攻击这场暴力的支持者：伊朗的政权。在这场冲突中丧生的每一个人，无论是以色列人还是巴勒斯坦人，都是由伊朗支持的巴勒斯坦恐怖活动造成的。
 
-They were dumbfounded after the tallying. There is a huge gap between the actual gold reserves and the figures reported every year. When it comes to “huge”, everybody should remember: this means that the gap is a factor of a hundred times or more. Just like a crime in China, when you hear: “given the seriousness of the crime and the huge impact,” that means the criminal will be sentenced to more than 10 years, even life imprisonment, or the death penalty. When you hear the word “huge,” just start with a hundredfold difference. Isn’t this serious?
+拜登政府明确表示对以色列人自卫权的支持不力，恰恰招致了我们今天在该地区看到的各种暴力。拜登总统推迟与以色列领导人的通话，并通过联合国重新启动对巴勒斯坦权力机构的资助等等，这些简单的事情都告诉哈马斯和西岸的恐怖分子，美国认为哈马斯的暴力和以色列对自身安全的要求在道德上是平等的。拜登团队似乎对以色列与美国之间关系的重视程度甚至不如奥巴马政府。
 
-这位咱们统计局的姐们儿说：“七哥，你讲民生「银行」的事情引起了巨大的轰动。民生银行的票据业务「涉及」多少钱，七哥？1.7万亿人民币！「而且」找不着找去哪儿「了」。钱可能去这儿，有可能去那儿，也可能去上边儿……这事儿竟然没人想去查，荒唐到什么程度？”这1.7万亿人民币没了，上去了，还是下边儿，还是这儿，对吧？没人想查。没人想查的背后掩藏着什么？「仅」上海银行一家，「她说」：“7哥你不知道吧？「仅」这一家「银行」就1万亿人民币的票据找不着「了」。不敢贴现，不敢核实，不敢统计，也不敢查。”
+为什么不明确地谴责哈马斯？为什么不支持作为我们在该地区最重要的盟友以色列？极左派的主流说法是，这次暴力事件的发生是由于东耶路撒冷的巴勒斯坦家庭被迫流离失所导致的。这是一种虚构。暴力和动乱是由于哈马斯的一致努力，由一个被指定的恐怖组织，致力于消灭以色列以及生活在那里的近700万犹太人。
 
-This sister-in-arms from the Bureau of Statistics said: “Brother Miles, your talk about Minsheng Bank has created a big stir. How much does Minsheng Bank’s bank note business involve, Brother Miles? 1.7 trillion yuan. And the money cannot be found anywhere. The money may go here, go there, or it may go to higher up people. Nobody wants to investigate this matter, how absurd?” The 1.7 trillion yuan is gone. Did it go up, go down, or is it still here? Nobody wants to investigate. What is hidden behind this situation? “Just at the Bank of Shanghai alone,” she said, “You can’t imagine, Brother Miles, just in this bank alone, 1 trillion yuan of bank notes cannot be located. They dare not to discount, verify, count, or investigate.”
+哈马斯以及在其授意下实施暴力行动的懦弱的恐怖分子并不希望和平。他们一直在煽动以色列安全部队和西岸的巴勒斯坦人之间的紧张局势，它看中了在耶路撒冷日宣扬其权力和权威的机会，这是以色列庆祝其首都统一的一个周年纪念节日。哈马斯看到巴勒斯坦事业势力的大大衰弱，主要是由于川普政府在促成《亚伯拉罕协议》方面取得的外交胜利。在这段软弱和对巴勒斯坦领导层失望的时期，他们急于宣扬自己是巴勒斯坦人民的真正领袖。以色列安全部队采取行动，驱散挥舞着印有哈马斯标志的旗帜的大批巴勒斯坦人，应被视为确保以色列平民安全的可以理解和合理的反应。
 
-兄弟姐妹们，「你们」去想想这个国家还能四个自信吗？给世界开药方？拯救全世界？统治全世界？
+更具地缘战略意义的是，拜登政府拒绝支持以色列打击巴勒斯坦恐怖活动，因为这有可能破坏他们重新加入与伊朗的核协议的努力。许多正在发射的火箭弹，几乎可以肯定是来自伊朗，并在伊朗的支持下抵达加沙地带。这是伊朗的又一条恐怖“战线”，旨在实现其孤立以色列的目标，并最终迫使以色列屈服于其意志。
 
-Brothers and sisters, do you think this country can still have “Four Self-confidence (CCP propaganda meaning confidence in the path, theory, system, and culture of socialism with Chinese characteristics)”? Provide a solution to the world? Save the whole world? Rule the whole world?
+拜登团队急于达成协议，安抚了伊朗。当伊朗的军舰涌向我们的海军时，只发表了一份声明；当伊朗提高铀浓缩水平时，拜登团队耸耸肩；当伊朗违反制裁规定向中共出售原油时，没有采取任何措施；当伊朗支持的胡塞武装向沙特阿拉伯发射导弹，使美国人的生命受到威胁时，拜登团队取消了对胡塞武装的恐怖认定。所有的这些都是为了安抚伊朗，以重新加入注定失败的伊核协议。因此，当伊朗支持的恐怖分子袭击并杀害以色列人时，拜登团队说，我们就不能好好相处吗。
 
-然后「她」给我讲了一个「事儿」让我离开这几年，我「都」觉得「对」中共的把握越来越「连」我都害怕了，比我想的比我知道的还可怕。她说：“七哥，你去好好看一看数据，所有人民银行公布的都是外汇流入，贸易额增长「数据」。「有没有」公布过中国的几大指标：外汇流出、中国的外债数据 –「包括」贸易下的外债，还有真正金融领域的外债「数据吗」？”她说：“折腾折腾这个国家就是个破产的国家。”
+川普政府认识到，软弱催生战争和暴力，只有实力才能阻止战争。我们认识到，以色列是我们在中东地区最大的民主盟友，以色列政府有合法权利确保其人民的安全和保障。我们不允许我们的人道主义援助增强那些希望摧毁以色列以及伤害美国人的恐怖组织权力。我们放弃了失败的JCPOA（伊朗核协议）。这样的协议和援助计划只会给真正邪恶的人提供资源和权力，从而导致更大的不稳定。这些决定的结果是稳定，最终在以色列和她的邻国之间签署了前所未有的和平协议。
 
-Then she told me something horrific. After I left China for a few years, I became more and more unsure about my understanding of the CCP. It was more terrifying than what I thought and what I knew. She said, “Brother Miles, please take a good look at the data. The only thing the People’s Bank of China publishes is data on foreign exchange inflows and trade volume growth. Have they published any major indicators related to China, such as foreign exchange outflows, China’s foreign debt, including foreign trade debt? Is there any real foreign debt data in the financial sector?” She said, ” With all its self-inflicted mistakes, this country will be a bankrupt country.”
+在ACLJ（美国法律和司法中心），我们坚定地站在捍卫以色列的立场上。我们在耶路撒冷的法律办公室正在动员起来，捍卫以色列的利益。 ACLJ正在法庭上采取行动，刚刚对拜登政府由于恢复对巴勒斯坦权力机构及其“为杀戮付款 ”的资助提起了《信息自由法》（FOIA）诉讼。正如我之前所说的，拜登政府犯了为恐怖分子洗钱的罪行。我们必须保卫以色列。
 
-然后更可怕的把我吓住了：DCEP「这个」共产党发展的「号称」世界上最牛叉的数字人民币。「她说」：“七哥你知道吗？连续21次测试全面失败。”「共产党」想绝对中心化！区块链最重要的就是你得通知全世界有你的货币，所以是不可逆转的，绝对安全的。「但」共产党想把它「的数字人民币系统」全部控制「起来」，谁也不能知道只有「它自己」知道。结果钱发出去没了，收不回来了，这叫“断区块链”，「或叫」区块链黑洞。「共产党」解决不了「这个问题」。当时最牛的在国外回去这些人在数字人民币上所有人都骗了中共。
+具有讽刺意味的是，当我们离开《伊朗核协议》，搬走大使馆并签署《亚伯拉罕协议》时，左派就预言会发生战争，但战争并没有发生。可是，拜登政府却以软弱应对哈马斯和巴权力机构的恐怖活动。它给了这些组织对以色列进行暴力恐怖活动的动力。哈马斯利用这一优势，对我们在中东最亲密的盟友实施暴力。拜登政府通过试图恢复失败的伊朗协议而与以色列保持距离，站在阿亚图拉一边而不是我们的盟友一边。我们现在看到的令人心碎的暴力是拜登政府软弱战略的直接结果。如果我们想生活在一个稳定、和平的世界里，美国必须强大，毫不犹豫地捍卫其盟友，并将美国人民的利益放在首位。
 
-Then something frightened me even more: DCEP, the CCP-developed digital RMB, which is also what they thought would be the world’s most awesome system. She said, “Brother Miles, did you know, they have failed 21 consecutive tests?” The CCP wants absolute centralized control of DCEP. The key feature of the blockchain is that you must inform the whole world about your currency[’s transactions], so it is irreversible and absolutely secure. But the CCP wants to control all its digital RMB. No one can know anything about it, except the CCP. But the money end up disappeared after being sent out, and cannot be recovered. This should be called a broken blockchain or a blockchain black hole. The CCP still cannot solve this problem. Back then, the most talented people were recruited from overseas and went back to China. All these people cheated the CCP on the digital RMB.
+迈克-蓬佩奥是前国务卿和前中央情报局（CIA）局长。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/609a981537f7f73984ca8ce3](https://gtv.org/getter/609a981537f7f73984ca8ce3) (0:33-3:39, 6:13-7:20)
-鸣谢：
-[1] 感谢Antsee-GTV、TING GUO、文惜和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于[https://gnews.org/zh-hans/1233453/](https://gnews.org/zh-hans/1233453/)
-[2] 感谢YY、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于[https://gnews.org/1239522/](https://gnews.org/1239522/)
+文章来源:[https://aclj.org/israel/irans-attacks-on-israel-demand-american-support-for-israel](https://aclj.org/israel/irans-attacks-on-israel-demand-american-support-for-israel)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-* * *
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-**字幕：【JennyL】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
-+1
+0

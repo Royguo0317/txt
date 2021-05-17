@@ -1,53 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国应该担心原因：5个接种疫 苗国家4个国家新冠疫情激增
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1249606/)
+## 福奇将在与武毒所密切合作的大学发表毕业典礼演讲
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1249745/)
 
-翻译：康州盘古农场 – KY
+新闻来源：《国家脉动》| 作者：Natalie Winters | 发布时间：2021年5月13日
 
-校对：康州盘古农场 – Mike Li
+翻译/简评：Victory | 校对：感恩 | 审核：万人往 | Page：Daoiii
 
-编辑：康州盘古农场 – 傻小子
+[!\[\]()!\[\](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/611e8748-3616-49c0-9f94-0342be5de752.jpg?asset_id=f3064641-4593-4d3e-8052-92e6ee7459dc&amp;img_etag=%222cbb68e61c4e3b4ec792c491e9a7a738%22&amp;size=1024)](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/611e8748-3616-49c0-9f94-0342be5de752.jpg?asset_id=f3064641-4593-4d3e-8052-92e6ee7459dc&amp;img_etag=%222cbb68e61c4e3b4ec792c491e9a7a738%22&amp;size=1024)
 
-发布：康州盘古农场 – 彩虹 Rainbow
+**简评：**
 
-**据《福布斯》作者：Robert Hart，2021年5月11日发布**
+近日来，随着病毒真相被主流媒体逐步揭露。福奇和他的同伙们已经无法再利用其学术地位只手遮天、掩盖事实。上周，福奇在听证会上接受了参议院质询，并在回应中默认了武汉病毒研究所进行了病毒功能增强研究。现在他正在试图撇开自己和中共的关系。同时，我们看到推特上其他一些鼓吹病毒自然来源的所谓科学家也开始转变口风。所谓树倒猢狲散，邪恶势力正在溃败中。
 
-**顶线：**
+2015年，巴里克曾和石正丽在《自然医学》发表文章，讨论蝙蝠冠状病毒在人类中爆发传播的可能性。他们做过的事，都会有迹可查。这些造成全球病毒浩劫的恶魔，必须接受全人类的审判。
 
-世界上疫苗接种率最高的国家，包括前五个接种率最高的国家中的四个正在努力遏制新冠病毒疫情的爆发，这些国家的人均冠状病毒爆发率比激增的印度的疫情还要高，这一趋势让专家们对一些疫苗（尤其是中共国的国药集团）的保护率以及即使大多数人口都接种了疫苗而放松限制的做法是否明智提出了质疑。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16231646/vaccine44.png)一些接种疫苗最多的国家其新冠疫情激增。 GETTY
-**关键事实：**
+**原文翻译：**
 
-在塞舌尔、以色列、阿联酋、智利和巴林（分别是世界上疫苗接种率最高的五个国家）中，只有以色列新冠病毒疫情没有上升。
+**福奇将在有争议的大学发表毕业典礼演讲，该大学进行与武汉有关的功能增强研究**
 
-在人口控制方面，塞舌尔和巴林以及其他像马尔代夫和乌拉圭这些新冠病毒疫苗接种率很高的国家，是世界上每日冠状病毒病例最多的前几位国家。
+[!\[\]()!\[\](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/3edbb0b7-53d4-4ddd-899e-4a02dba65ecd.png?asset_id=e5a33868-efdb-4e62-9854-187c2555c7d9&amp;img_etag=%22623044a21167d7cbfeaaef0af212201b%22&amp;size=1024)](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/3edbb0b7-53d4-4ddd-899e-4a02dba65ecd.png?asset_id=e5a33868-efdb-4e62-9854-187c2555c7d9&amp;img_etag=%22623044a21167d7cbfeaaef0af212201b%22&amp;size=1024)
 
-塞舌尔是一个疫苗接种率几乎是美国的两倍的小岛国，新冠发病率为每10万人中有328例，如果考虑到人口因素，其新冠发病率远远高于印度（每10万人中有28例）。
+安东尼·福奇博士将在北卡罗来纳大学教堂山分校毕业典礼上发表演讲——该校因其教授与武汉病毒研究所进行功能增强研究而受到抨击。
 
-疫苗接种国家爆发的疫情引发了人们对中共国的一些疫苗与以色列使用的西方疫苗相比效果如何的关注，包括世界卫生组织周五认可的国药集团疫苗，该疫苗在各国的免疫计划中占很大一部分。
+即将发表的讲话在参议员兰德·保罗（Rand Paul）和国家过敏和传染病研究所（NIAID）所长之间的激烈争论之后进行。这位肯塔基州参议员就北卡罗来纳大学教堂山分校（UNC）流行病学系和微生物学与免疫学系教授拉尔夫·巴里克（Ralph Baric）博士的工作向福奇施压。
 
-放松新冠病毒疫情的限制和各国政府传递的信息不一致也被吹捧为可能的解释–依赖旅游业的塞舌尔和马尔代夫都欢迎游客，迪拜迅速解除了封锁，智利也放宽了限制，允许国内旅行。
+“多年来，美国病毒学家拉尔夫·巴里克博士一直与武汉病毒研究所的石正丽博士合作，分享他关于如何创造超级病毒的发现。这项功能增强的研究得到了美国国立卫生研究院的资助。”保罗参议员询问道。
 
-**关键背景：**
+[!\[\]()!\[\](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/f69e751c-861a-414a-8f30-67a15b55dc9f.jpg?asset_id=8f074338-5123-4e64-b4c2-f79c802a990d&amp;img_etag=%224d793bbef5628f0ef848d0edd6464a15%22&amp;size=1024)](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/f69e751c-861a-414a-8f30-67a15b55dc9f.jpg?asset_id=8f074338-5123-4e64-b4c2-f79c802a990d&amp;img_etag=%224d793bbef5628f0ef848d0edd6464a15%22&amp;size=1024)福奇的“好朋友”卡罗来纳大学教堂山分校区病毒学家拉尔夫·巴里克（Ralph Baric）
 
-在许多富裕的国家，疫苗往往被认为是解除封锁的最终出路。在包括美国、英国和以色列在内的一些成功并迅速开展活动的国家，病例已经下降。但专家们指出，智利等地是一个可怕的例子，说明如果事情缓解得太快会发生什么，并警告说单靠疫苗来解决问题可能是不够的。随着越来越多的国家开始加强接种活动，某些疫苗的效力可能会成为一个突出的问题，人们担心一些疫苗，如中共国的国药集团疫苗，在控制疾病方面远不如莫德纳和辉瑞公司等生产的疫苗有效。
+“巴里克博士没有在做功能增强研究，如果有的话，也是根据指导方针进行的，而且是在北卡罗来纳州进行的。如果你看一下拨款和进度报告，这不是功能增强，尽管人们在推特上这么写”福奇后来回应为教授辩护。保罗参议员还指出，福奇是如何作为”少数”不把巴里克的研究列为功能增强的，他引用了超过200名科学家同意这项研究属于该类别。
 
-**要关注的事情：**
+巴里克博士还参加了武汉病毒研究所的会议，包括2018年的新发病毒性疾病国际研讨会。
 
-包括世界卫生组织负责人在内的世界各国领导人经常提醒，“在所有人都安全之前，没有人是安全的”，国家之间巨大的疫苗不平等突出了这个问题。新的和可能更危险的变种正在全球范围内出现，其中一些有可能免疫现有的疫苗。世界卫生组织周二将重创印度的B.1.617变种列为令人担忧的变种，指出它可能更具传染性。
+🔗[原文链接](https://thenationalpulse.com/breaking/fauci-to-speak-at-controversial-wuhan-linked-uni/)
 
-**大数据：**
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
-45%. 世界上所有五个疫苗接种最多的国家都至少有这个比例的人口接受了部分疫苗接种。巴林（47%）、智利（45%）、以色列（60%）和塞舌尔（69%）都有数据，而阿联酋由于人均接种量高（每10万人中约有11.5万剂；但阿联酋没有公布更详细的数据）而位居第三。塞舌尔(61%)和以色列(56%)也是完全接种疫苗的人口比例最高的国家，其次是智利(38%)和巴林(35%)。美国除四个州外，其他州的疫苗接种率都在下降，仅次于智利和巴林，目前有35%的人口完全接种，46%部分接种。
 
-在美国，对疫苗犹豫不决的人仍然很多，民意调查显示，未接种疫苗的美国人可能是最容易从事正常活动的。随着许多州因新冠疫苗接种率的提高而开始重新开放，这有造成持续的社区传播的风险。
+编辑：【英国伦敦喜庄园编辑部】
 
-原文链接：[https://www.forbes.com/sites/roberthart/2021/05/11/covid-surges-in-4-of-5-worlds-most-vaccinated-countries-heres-why-the-us -should-worry/?sh=5dac0e38d677](https://www.forbes.com/sites/roberthart/2021/05/11/covid-surges-in-4-of-5-worlds-most-vaccinated-countries-heres-why-the-us%20-should-worry/?sh=5dac0e38d677)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[!\[\]()!\[\](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
 0

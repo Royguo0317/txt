@@ -1,33 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥说有证据表明新冠病毒源自武汉实验室，中共再次发动生物恐怖袭击风险非常大
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1249575/)
+## 【热点播报】美媒报道：武毒所2021年初删除了NIH和提及功能增强内容的网页
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1249563/)
 
-**编辑：文章**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16230449/14-30.jpg)
-据福克斯新闻报道，前美国国务卿迈克-蓬佩奥星期天说，目前所有证据都表明冠状病毒源于中国武汉的一个实验室，**他警告说，该地区放出生物武器和生物恐怖袭击的风险是”非常实实在在的”。**
-
-蓬佩奥向 “周日早晨的未来 “主播玛丽亚-巴蒂罗莫暗示，中共 “掩盖 “了COVID-19的起源。蓬佩奥说：”在我任职国务卿期间，所有我们看到的证据都证明这个病毒来源于武汉病毒研究所的实验室。我没有看到丝毫的反证，但新的证据不断的涌现。”
-
-蓬佩奥称，他们的欺骗行径令人震惊。“尽管中共不允许任何人进入实验室、观看原始材料、接触研究人员，**综合我们得到的大量旁证、以及中共对武汉实验室信息的极力掩盖，有力证明了那个实验室就是病毒来源**。”
-
-这位前国务卿还警告说，类似的情况可能在未来发生，并指出了生物战的可能性。
-
-他说：“正如努涅斯说的，那个实验室或其它的中共国实验室再次类似事件的风险非常大，他们正在进行的实验与他们的管理能力不匹配。”
+作者：纽约香草山健身部  Jack Li文阳
 
 
 
-> ⚡️重磅！蓬佩奥在福克斯直接说：中共再次发动生物战和生物恐怖袭击的风险非常高！
-> 他担任国务卿期间看到的所有证据都指向武毒所实验室来源，没有丝毫证据指向任何其它来源
-> 
-> 僖战薪号 欢迎关注 [pic.twitter.com/NjteioEZdU](https://t.co/NjteioEZdU)
-> — 珠穆朗玛 (@ZanXixi) [May 16, 2021](https://twitter.com/ZanXixi/status/1394077206398193664?ref_src=twsrc%5Etfw)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14021704/logo-1.jpg)
 
 
 
-**来源**：[Pompeo says evidence suggests coronavirus originated from Wuhan lab, risk of bioterror ‘very real’](https://www.foxnews.com/politics/pompeo-coronavirus-wuhan-china)
+据国家脉动报道，2021年3月21日后，中共国武汉实验室的网站删除了六个美国研究伙伴：阿拉巴马大学，北德克萨斯大学，生态健康联盟（EcoHealth Alliance）,哈佛大学，美国国立卫生研究院（NIH）和美国国家野生动物联盟（the National Wildlife Federation）内容的网页。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16230118/1-79.png)
+武汉实验室网页还显示了一项研究更新 [“ SARS会回来吗？”](https://web.archive.org/web/20200212011902/http:/english.whiov.cas.cn/News/Events/201512/t20151204_157114.html)(“[Will SARS Come Back?”](https://web.archive.org/web/20200212011902/http:/english.whiov.cas.cn/News/Events/201512/t20151204_157114.html))  ，似乎描述了由福奇博士（Anthony Fauci）的国家过敏和传染病研究所（NIAID）资助的机构在该研究所进行的”功能增强性”研究。但是，一天后，该页面被进行了修改，只包含两个研究[伙伴](https://web.archive.org/web/20210322053537/http:/english.whiov.cas.cn/International_Cooperation2016/Partnerships/)：生态健康联盟和阿拉巴马大学。到3月23日，合作伙伴栏里只剩下生态健康联盟（EcoHealth Alliance）。生态健康联盟是由与中共长期合作的彼得 · 达杂克（Peter Daszak）领导，他曾多次宣称自己将成为武汉实验室[崩溃](https://thenationalpulse.com/exclusive/fauci-daszak-ecohealth-ties/)的第一位“落马者“。
 
-***校对发布**：文顾*
+武汉病毒研究所（武毒所）被追查其就是新冠病毒的[来源](https://www.foreignaffairs.com/articles/china/2021-03-31/what-who-investigation-reveals-about-origins-covid-19)，以及NIH可能将美国纳税人的钱提供给武毒所用于病毒研究之后，武毒所作出了从其网页删除NIH等组织的决定。在对福奇博士的参议院听证会中，兰德 · 保罗参议员也问到福奇博士武毒所掩盖秘密信息的问题，福奇极力地要把他的组织与武汉实验室划清界限。
+
+除了在NIH和武汉病毒研究所之间建立工作关系之外，该网站[现在已删除的](http://english.whiov.cas.cn/News/Events/201512/t20151204_157114.html)网页还详细介绍了武汉实验室进行了病毒的”功能增强性”研究。福奇向保罗参议员解释：“美国国立卫生研究院从开始至今没有资助武汉病毒研究所的”功能增强性”研究。”
+
+武汉病毒研究所与北卡罗来纳大学（UNC），哈佛医学院，贝林佐纳微生物研究所等的合作工作摘要，将科学家的工作描述为“制造并定性嵌合病毒”。并备注他们是如何修改病毒“在原代人气道细胞中有效复制并达到与SARS-CoV流行株等效的体外滴度”。文章总结说：“基于这些发现，他们合成了感染性全长SHC014重组病毒，并在体外和体内显示出强大的病毒复制能力。”
+
+5月14日，包括巴里克的25位美国顶级科学家在《自然科学》杂志发布了一封联名信，要求WHO彻查武汉病毒研究所，这表示象巴里克、利普金这些和中共有勾结的科学家都要跳船了。包括福奇，被拉到参议院做听证，被追究当年有否资助中共作”功能性增强性“试验，现在连福奇也要急着和中共切割了。美国科学界要和中共划清界限，政治两党联合抗共，左媒右媒争相报道武汉病毒所和病毒追责真相。西方世界原来与中共纠缠不清的人，都想华丽转身，站在正义一边。中共因为病毒问题，就像一个雷，谁都不想传到最后，爆在自己手上。
+
+参考阅读：https://thenationalpulse.com/exclusive/wuhan-lab-erases-nih-ties-gof-research/
+
+校对/发稿：火内
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15014027/5%E6%9C%88-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -1,40 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇 — 川普搞不定他 拜登也搞不定他 国会山也搞不定他
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1249501/)
+## 2021.5.8 郭先生直播G系列相关内容
+` 《爆料贵语--掀郭盖》NZ` [轉載自GNews](https://gnews.org/zh-hans/1249547/)
 
-**摘要：在2021年5月12日的盖特视频中，郭先生感叹美国是一个法治国家，国会在过去两三个月间举行了一系列关于中共病毒的听证会，最终一定会把病毒真相搞得清清楚楚；也透露福奇（美国NIH/NIAID主管） “川普搞不定他，拜登也搞不定他，国会山也搞不定他”，但是这正说明美国是法治，不是人治，“什么都讲程序，什么都讲法”。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16222526/Miles_20210512-getter-p2.srt.txt)
-**福奇**** — ****川普搞不定他****拜登也搞不定他****国会山也搞不定他**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16224139/5.8.jpeg)
+1: 墙内银行血洗钱——民生
 
-**No One Can Hold Fauci Accountable?**
+~昨天晚上很多时间都是和原民生银行的这帮人通电话不断，我们战友有的人就在 南京的 — 江苏的省会– 还有上海的，几个战友在民生的大额存款完全取不出来了。当初 就是贪便宜，银行承诺说5年期存款可以使用存款的50%，给8%的利息 — 这种好的 不能再好的条件就是骗子，一定是骗子!现在这几位战友倾家荡产了。
 
-更重要的是美国国会，从现在往回看过去两三个月，「举行了」一个一个的听证会全是关于中共病毒的。你去看看国会整个排的表，接下来全部的问询、问话、调查、了解、听证，全部都有关中共的经济、偷盗技术、冠状病毒、疫苗，还有整个2019年年底和2020年年初发生了病毒「流行时」，美国的反应。就是干什么？这就是美国这个国家：不能乱讲话，必须得负责任。病毒来自于何方？美国有没有参与？最终都会搞得清清楚楚。这就这个有法可依的国家，它是一个法治的国家，不是人治的国家人。人治的国家你想说啥说啥，你想干啥「就」干啥。这是真的这个美国国家伟大的地方。
+~现在这几位战友倾家荡产了。记住我说的话，兄弟姐妹们:很多人会因为民生银 行，因为张宏伟，董文标，还有就像当年上万人涉及的王健林案 — 下个就轮到许家印 几万个人的案子 — 民生银行会牵连到几万，十几万人。民生银行一旦出事，中 国的1/3的私人企业几乎全部垮掉 — 很多企业都会因为腐败刑事犯罪。
 
-More importantly, the US Congress has held a series of hearings on the CCP virus over the past two or three months. And the congressional schedule of upcoming inquiries, questionings, investigations, and hearings all have to do with the CCP’s economy, technology theft, the CCP virus, and the vaccine, including the US response to the coronavirus pandemic in late 2019 and early 2020. What does this mean? It means that in the US, no one can speak about things without taking responsibility. Where was the virus from? Was the US involved? Eventually, everything will be figured out completely. That makes the US a nation of laws, not a country ruled by the will of a few men. In a country ruled by the will of man, a few elite families will do whatever they want, like the CCP always does. That really makes the US great.
+~接下来由于这个所牵扯出的其他的开发银行，国家开发银行跟张宏伟的腐败就会 出来了，涉及上百亿美元。整个银行界就是血洗。当民生银行和国开行出完事以后 接下来各地的所谓的商业银行会一片片倒下去。
 
-就那个福奇，一个美国卫生部长，川普搞不定他，拜登也搞不定他，国会山也搞不定他。这样的人要是在中国，不要说是“习一神”收拾他，随便一个纪委的处长就把他灭100次了，但同样的事情那个处长也能被灭1万次 — 这就是美国这个社会，你想把谁搞死，没有搞死的理由，没有搞死的程序是不可以的。这就是咱们中国人的思维，「比如」在海外，一弄就要“搞死他！搞死他！” — 「全是」文化大革命的遗毒。「不想想如果」你搞死个人那么容易，人家也能搞死你那么容易。这就叫“红色恐怖”啊。所以说兄弟姐妹们你看到美国这个国家什么都讲程序，什么都讲法。
+2: 中国企业家一半江山倒下 董文标、张宏伟所有这些人包括宏碁都将被审判的时候，中国私人企业家一半江山倒掉。像 马云、马化腾、百度都会牵扯到数以万计的企业家，你去想想中国一共多少企业家?大概上 百万人会牵涉到这一系列的金融崩盘，房地产崩盘中。房地产崩盘就是金融崩盘，金融 崩盘房地产一定崩盘。
 
-With respect to that Fauci, the Director of NIAID in the US, Trump could not handle him, nor could Biden or the Capitol Hill. If he were in China, any director of the Discipline Inspection Commission would be able to dispose of him 100 times, not to mention the “great god Xi”. But equally, any director can also be disposed of by others 10,000 times. So, it is impossible to target anyone without a legitimate reason or without following a proper procedure in the US, whereas in overseas Chinese people’s minds, it is so easy to say “let’s screw someone”. It is a maddening and stubborn mental illness planted in our Chinese by the Cultural Revolution. If you can easily screw others, they can also easily take you down. Then it called the “Red Terror”. So, brothers and sisters, you should see that the US is a country where everything needs to follow the law and procedures.
+3: 邮政银行已被中南坑洗劫一空 然后就是邮储银行，你看着邮储银行资产是非常好的，但是大家不知道邮储银行的钱 已经全被国有银行和几个大的常委，中南坑家族已经洗劫一空啦。等到邮储倒下来 的时候你就会想都不敢想，邮储还能倒?但邮储银行一定会倒。你想想一个肖 建华就搞几万亿的金融票据 — 就是个’纸封’传来传去;一个许家印搞几万亿的金融票据信托 产品，你想想中国能有多少钱能被他们搞?印钞票都印不完。他们一个信封几亿， 几十亿就非法搞走了。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/609bef6337f7f73984cae322](https://gtv.org/getter/609bef6337f7f73984cae322) (1:54-3:42)
-鸣谢：
-[1] 感谢Antsee-GTV、TING GUO、文惜和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://gnews.org/zh-hans/1233493/](https://gnews.org/zh-hans/1233493/) 
-[2] 感谢Antsee-GTV、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于 [https://gnews.org/1239592/](https://gnews.org/1239592/)
+4: 美国、欧洲、日本目前在做什么? 另外，现在看到美国、欧洲、日本现在在干什么嘛，兄弟姐妹们有人知道吗?欧洲和美国都 在查找属于共产党的资产。昨天三大电信企业，我看了《路德访谈》节目了，我当时在 那儿泡着澡听着节目，讲的特别好但是比这还严重。三大电信的整个被除牌给美国开启一个 除牌的标准，给全世界有了个除牌的标准，给下一步的脱钩和查封共产党的资产最重要的建
 
-* * *
+立了一个标准和开了一个又子。以此往后类推，凡是共产党和军方有企业参加新疆 大屠杀、香港大迫害的都会被干掉。
 
-字幕：【Rock小哥】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-+1
+
+整理:滴水莲花
+
+审核：玫瑰天空
+
+上传：糊糊文婴
+
+0
