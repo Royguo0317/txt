@@ -1,26 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美、日、法、澳四国联合军演，剑指中共国
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1250895/)
+## 美国将向以色列出售7.35亿美元军火
+` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1251621/)
 
-#### 
-翻译报道：Ping |责编：胡天
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17091612/1-87.png)照片：Sebastian Riveraaponte准下士
-（上图）5月11日，在长崎佐世保的日本陆上自卫队爱浦防卫队举行的美日澳法联合训练演习 “贞德21″（ARC21）开幕式上，来自美国、日本、法国和澳大利亚的指挥官们向各自的国旗敬礼。
-
-美、法、日三国本周二(5月11日)开始联合举行地面和海军军事演习，这是在日本境内三国首次共同举行的为期一周的军事演习。由于东中国海尖阁群岛（或中国称的钓鱼岛）的争端，中日之间的关系一直很紧张。美国希望加强其在该地区的盟友之间的军事合作以对抗中共国。据台湾媒体报道，这是法军首度参与日本境内的演训。法国海军的两栖攻击舰今天上午进入九州长崎县的佐世保港。演习在长崎县的阿伊诺拉营开始，日本两栖快速部署旅的总部设在那里。这支日本两栖部队成立于2018年，成立的目的是专注于日本声称的离岛，如尖阁诸岛。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17091439/2-37.png)(图片来源于推特)
-澳大利亚也将参加在东中国海举行的部分演习。美国、日本、澳大利亚和印度组成了被称为四国集团的非正式集团，该集团被视为在亚洲建立北约式军事联盟的可能基础。法国在领导孟加拉湾的海军演习时加入了四国集团的军事演习。
-
-日本防卫相岸信夫周二（5月11日）在记者会上表示，东京正在寻求扩大与美国以外的 “志同道合 “国家的军事关系。他说法国是 “志同道合的国家……希望与日本共享自由开放的印-太，进一步深化四国合作关系”。海上自卫队将开展反潜 战以及航空自卫队F-2战机加入的防空训练。
-
-加强在亚洲的军事联系是拜登政府对华政策的一个重要组成分。拜登总统在向国会发表的第一次讲话中说，他告诉中共国国家主席习近平，美国 “将在印度-太平洋地区保持强大的军事力量，就像我们在欧洲的北约一样”。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17145355/baiden1-edited.jpg)图片来源：thepostmillennial
 
 
+据加拿大独立媒体THEPOSTMILLENNIAL 5月17日新闻报道：
 
+周一，正值以色列继续在和巴勒斯坦哈马斯武装力量的恐怖袭击鏖战之际，美国已批准向以色列出售价值约7.35亿美元的武器装备。
 
+据《华盛顿邮报》报道，这笔资金将用于购买精密制导导弹和其他特殊弹药。
 
-原文链接 [US, Japan, France Hold First-Ever Joint Drills In Japanese Territory With Eye On China | ZeroHedge](https://assets.zerohedge.com/s3fs-public/inline-images/japandrills.jpg?itok=3Wv66aCO)
+迄今为止，哈马斯在其持续一个多星期的恐怖袭击过程中，已经向以色列发射了超过3000多枚火箭弹。
+
+据报道，在本次军售中，波音公司将向以色列提供大部分武器装备。
+
+[原文链接](https://thepostmillennial.com/breaking-us-approves-735-million-weapons-sale-to-israel)
+
+本文只代表原媒体信息及作者观点。
 
 0

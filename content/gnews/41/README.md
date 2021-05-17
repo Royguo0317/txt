@@ -1,16 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥:每一个证据都表明中共病毒起源于武汉病毒学研究所的实验室
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1251046/)
+## 安东尼·福奇(Anthony Fauci)倒戈了？！
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1251120/)
 
-美国前国务卿蓬佩奥周日称，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 武毒所实验室掩盖冠状病毒大流行疑似起源真相的时间之久“令人震惊”。 蓬佩奥在接受福克斯新闻网《周日早晨期货》采访时说，“我们在整个时间过程中看到的每一个证据都表明，这 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 起源于武汉病毒学研究所的实验室。” “我没有看到一点相反的证据，”他继续说尽管（[#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click)）不允许任何人进入实验室、调查原始材料和在那里工作的医生，但证据仍在不断积聚。 “[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 为掩盖真相所做的方方面面的努力令人震惊，我们的间接证据加上 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 极力否认我们关于那个实验室的信息的反应，强烈地向我表明，这就是它的起源。” 蓬佩奥补充说，今年1月，发布了一组现已解密的信息片段，“谈论这样一个事实，即我们相信，早在2019年，就有医生出现了感染 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的症状。” 蓬佩奥说，这代表了“[#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 早在向世界卫生组织和全世界承认之前，就对#中共病毒 人传人的现象有了认识。” 他宣称：“越来越多的证据表明，[#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的行为至少是鲁莽的疏忽，甚至可能更糟（是故意的）。”
+**翻译：**武松(Sam)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17101151/568423.png)图片来源：网络
+在5月11日的美国参议院听证会上，兰德·保罗（Rand Paul）博士就美国国立卫生研究院（NIH）在冠状病毒功能获得研究中的作用对安东尼·福奇(Anthony Fauci) 博士进行了质询。作为美国国立卫生研究院国家过敏与传染病研究所（NIAID）的负责人，福奇试图撇清其本人与冠状病毒功能增强研究之间的关系。该项违反伦理且对人类充满危险的病毒实验早在2014年即被叫停，但是某些人利用漏洞使得美国和中共国的科学家得以继续进行这些危险的病毒、动物和人类实验。
 
+福奇在参议院听证会上坚称尽管美国国立卫生研究院（NIH）通过分拨款项给生态健康联盟的彼得·达萨克（Peter Daszak）博士，用以支持中共武汉病毒学研究所进行该项研究，但NIH并未参与这一危险的医学实验。实际上，美国的科研资金最终流向中共国和美国的科学家手中并用以推进功能性增强的研究。
 
+生物技术专家Yuri Deigin剖析了中共病毒的分子生物学，并提出了对该病毒进行人为修改及增强的可能性，著名的免疫学家Nikolai Petrovsky记录了中共病毒与人肺细胞上ACE2受体的异常结合能力。 2020年6月中共国研究人员展示了改良的小鼠模型，其主要用于开发人肺细胞中的ACE2受体，中共国科学家使用CRISPR基因编辑工具为小鼠配备了来自人肺细胞的ACE2受体，用以了解如何进行工程改造感染性冠状病毒刺突蛋白。使用串行传代技术，邪恶的病毒学家可以制造超级病毒，而不留下分子印迹或实验室干扰的迹象，他们一次只转移一个病毒基因，通过自然选择即可运行，从而隐藏了超级病毒的功能性增强，用精确的基因序列增加超级病毒的毒性，并产生最合适的基因，最终使超级病毒与人肺细胞的ACE2受体结合。
 
-> Pompeo: Evidence 'Staggering' of COVID Origins at China Virology Lab [https://t.co/qq4x4FXNEu](https://t.co/qq4x4FXNEu) [#Newsmax](https://twitter.com/hashtag/Newsmax?src=hash&amp;ref_src=twsrc%5Etfw) 来自 [@Newsmax](https://twitter.com/newsmax?ref_src=twsrc%5Etfw)
-> — 美国政要等…直译推 (@zhiyitw33) [May 17, 2021](https://twitter.com/zhiyitw33/status/1394286961112801280?ref_src=twsrc%5Etfw)
+北卡罗来纳大学的冠状病毒研究人员拉尔夫·S·巴里奇（Ralph S. Baric）研究蝙蝠病毒攻击人类细胞的能力，其在2015年与中共武汉病毒学研究所的蝙蝠小姐石正丽（Shi Zheng-li）进行合作研究，石正丽从云南的洞穴中收集了数十种蝙蝠冠状病毒， 2015年11月他们开发了一种新型冠状病毒，通过SARS1病毒的骨架并用蝙蝠病毒（称为SHC014-CoV）中的一种替代其刺突蛋白，在体外对这种人造病毒针对人肺细胞进行测试时，发现它能够附着并引起感染。
 
+美国科学家分六次向武汉病毒研究所提供资金，每次都超过一百万美元。生态健康联盟的彼得·达萨克（Peter Daszak）博士将700万美元的美国国立卫生研究院（NIH）的拨款拿到了中共国，用以推进石正丽的中共病毒研究，彼得·达萨克（Peter Daszak）还是中共国实验室研究项目的合作者和相关论文的联合作者，他承认其向安东尼·福奇(Anthony Fauci)博士汇报了所有的情况。因此，非常有必要对NIH，NIAID和生态健康联盟进行更加详细的调查，美国国家卫生研究院的所有主管都应受到质询，生物武器研究中的所有同谋都必须受到指控，直到全世界都能得到更多答案为止。
 
+评：随着病毒起源于中共国实验室的事实逐步被验证，越来越多的科学家将站在科学和正义的一边，之前矢口否认病毒起源于实验室的福奇博士已经开始倒戈了，对于实验室起源的说法不在否认，并承认中共病毒是功能增强型病毒，换句话说这种病毒只可能起源于实验室且人为干预的。在目前全球因中共病毒导致近千万人感染、近百万人死亡的情况下，世界正义的力量必须加快集结，尽快消灭邪恶的中共，人类才能获得解药和安宁。
 
+原文链接：[https://www.naturalnews.com/2021-05-16-nih-established-loophole-exploiting-moratorium-gain-of-function-coronavirus-research.html#](https://www.naturalnews.com/2021-05-16-nih-established-loophole-exploiting-moratorium-gain-of-function-coronavirus-research.html#)
+
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+
+编辑/发布：比卡丘
+
+20210517
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
 0
