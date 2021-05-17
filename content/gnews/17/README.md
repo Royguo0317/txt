@@ -1,148 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 战友展览板【5/16】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1249266/)
+## 福奇 — 川普搞不定他 拜登也搞不定他 国会山也搞不定他
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1249501/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
+**摘要：在2021年5月12日的盖特视频中，郭先生感叹美国是一个法治国家，国会在过去两三个月间举行了一系列关于中共病毒的听证会，最终一定会把病毒真相搞得清清楚楚；也透露福奇（美国NIH/NIAID主管） “川普搞不定他，拜登也搞不定他，国会山也搞不定他”，但是这正说明美国是法治，不是人治，“什么都讲程序，什么都讲法”。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16222526/Miles_20210512-getter-p2.srt.txt)
+**福奇**** — ****川普搞不定他****拜登也搞不定他****国会山也搞不定他**
 
-【以毒灭共】推文。如下
+**No One Can Hold Fauci Accountable?**
 
+更重要的是美国国会，从现在往回看过去两三个月，「举行了」一个一个的听证会全是关于中共病毒的。你去看看国会整个排的表，接下来全部的问询、问话、调查、了解、听证，全部都有关中共的经济、偷盗技术、冠状病毒、疫苗，还有整个2019年年底和2020年年初发生了病毒「流行时」，美国的反应。就是干什么？这就是美国这个国家：不能乱讲话，必须得负责任。病毒来自于何方？美国有没有参与？最终都会搞得清清楚楚。这就这个有法可依的国家，它是一个法治的国家，不是人治的国家人。人治的国家你想说啥说啥，你想干啥「就」干啥。这是真的这个美国国家伟大的地方。
 
+More importantly, the US Congress has held a series of hearings on the CCP virus over the past two or three months. And the congressional schedule of upcoming inquiries, questionings, investigations, and hearings all have to do with the CCP’s economy, technology theft, the CCP virus, and the vaccine, including the US response to the coronavirus pandemic in late 2019 and early 2020. What does this mean? It means that in the US, no one can speak about things without taking responsibility. Where was the virus from? Was the US involved? Eventually, everything will be figured out completely. That makes the US a nation of laws, not a country ruled by the will of a few men. In a country ruled by the will of man, a few elite families will do whatever they want, like the CCP always does. That really makes the US great.
 
-> 我向中国共产党宣战。 我们将共同击败中国共产党。 [pic.twitter.com/eQLWkzlpBK](https://t.co/eQLWkzlpBK)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 16, 2021](https://twitter.com/LawrenceSellin/status/1393944212169793541?ref_src=twsrc%5Etfw)
+就那个福奇，一个美国卫生部长，川普搞不定他，拜登也搞不定他，国会山也搞不定他。这样的人要是在中国，不要说是“习一神”收拾他，随便一个纪委的处长就把他灭100次了，但同样的事情那个处长也能被灭1万次 — 这就是美国这个社会，你想把谁搞死，没有搞死的理由，没有搞死的程序是不可以的。这就是咱们中国人的思维，「比如」在海外，一弄就要“搞死他！搞死他！” — 「全是」文化大革命的遗毒。「不想想如果」你搞死个人那么容易，人家也能搞死你那么容易。这就叫“红色恐怖”啊。所以说兄弟姐妹们你看到美国这个国家什么都讲程序，什么都讲法。
 
+With respect to that Fauci, the Director of NIAID in the US, Trump could not handle him, nor could Biden or the Capitol Hill. If he were in China, any director of the Discipline Inspection Commission would be able to dispose of him 100 times, not to mention the “great god Xi”. But equally, any director can also be disposed of by others 10,000 times. So, it is impossible to target anyone without a legitimate reason or without following a proper procedure in the US, whereas in overseas Chinese people’s minds, it is so easy to say “let’s screw someone”. It is a maddening and stubborn mental illness planted in our Chinese by the Cultural Revolution. If you can easily screw others, they can also easily take you down. Then it called the “Red Terror”. So, brothers and sisters, you should see that the US is a country where everything needs to follow the law and procedures.
 
-0. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1393944212169793541?s=20)**：
-*我向中国共产党宣战。 我们将共同击败中国共产党*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16212501/E1dOL3ZXMAEwJPZ.png)1. **[Wenming推特](https://twitter.com/JOHN16489988/status/1393670025509228548?s=20)**：
-***（火来）**史佩勇的合作网络基于隶属网络关系。显然，史佩勇（关系网络图），是中国共产党控制的中国科学院、武毒所、解放军-军事科学院和新加坡/美国研究所之间的桥梁*
-***（Sellin)** #COVID19 侦探 （火来）专业绘制了，德克萨斯大学医学分部与史佩勇的网络关系图，他似乎是中共和人民解放军对美国病毒研究实验室进行大规模渗透的关键人物*
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/609bef6337f7f73984cae322](https://gtv.org/getter/609bef6337f7f73984cae322) (1:54-3:42)
+鸣谢：
+[1] 感谢Antsee-GTV、TING GUO、文惜和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://gnews.org/zh-hans/1233493/](https://gnews.org/zh-hans/1233493/) 
+[2] 感谢Antsee-GTV、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于 [https://gnews.org/1239592/](https://gnews.org/1239592/)
 
-***(Wenming)**从他在会议上的座位和他在这次会议上的主题演讲来看，史佩勇绝对是病毒研究领域的贵宾和关键人物*
+* * *
 
-
-> 愛荷華州醫院：100％的Covid新冠肺炎患者是已經接種過疫苗的人。
-> 
->  [pic.twitter.com/LOlPqiWmN7](https://t.co/LOlPqiWmN7)
-> — 珊珊來遲 (@AILNG120) [May 15, 2021](https://twitter.com/AILNG120/status/1393624535312879627?ref_src=twsrc%5Etfw)
-
-
-2. **[珊珊来迟推特](https://twitter.com/AILNG120/status/1393624535312879627?s=20)**：
-*爱荷华州医院：100％的Covid新冠肺炎患者是已经接种过疫苗的人*
-
-
-> Pei-Yong Shi, who has been working with CCP People’s Liberation Army, is part of a 2021 Fauci grant for $926,569.
-> Pei-Yong Shi is now a Professor at the University of Texas Medical Branch (UTMB) and an Honorary Professor at the Wuhan Institute of Virology[https://t.co/C9RZMhqb3k](https://t.co/C9RZMhqb3k)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 15, 2021](https://twitter.com/DrLiMengYAN1/status/1393592142229123075?ref_src=twsrc%5Etfw)
-
-
-3. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1393592142229123075?s=20)**：
-*（上）[一直与中共人民解放军合作的史佩勇，获得了2021年福奇资助的926,569美元的一部分。
-史佩勇现在是德克萨斯大学医学分部（UTMB）的教授和武汉病毒研究所的名誉教授](https://www.thegatewaypundit.com/2021/05/exclusive-dr-anthony-fauci-funded-research-led-patents-chinese-military/)*
-*（下）[史佩勇博士就 #COVID19的自然起源进行辩护：
--不知道武毒所冠状病毒工作的具体细节
--操纵病毒可能引发意外泄漏或工程病毒的理论。
--阴谋论只是我们必须处理的事情](https://www.todayonline.com/world/coronavirus-wuhan-lab-conspiracy-theory-will-not-go-away)*
-
-
-> 20210515蓬佩奧國務卿接受FOX採訪
-> 1. 將能源管線被黑客跟武漢病毒連在一起，都對美國人是生死危脅
-> 2.這不是作為老兵所見過的（火戰）生死危脅，且對敵國而言非常廉價的方法
-> 3.從大局出發，全世界都該聯合起來將中共踢出重要機構、加關稅
-> 4.制裁中共領導人
-> 5.直到中共幫助世界了解病毒怎麼跑出中共國的 [pic.twitter.com/PRpyYtxRuX](https://t.co/PRpyYtxRuX)
-> — Andy5 (@andy5\_123) [May 16, 2021](https://twitter.com/andy5_123/status/1393859570515148802?ref_src=twsrc%5Etfw)
-
-
-4. **[Andy5推特](https://twitter.com/andy5_123/status/1393859570515148802?s=20)**：
-*20210515蓬佩奥国务卿接受FOX採访
-将能源管线被黑客跟武汉病毒连在一起，都对美国人是生死危胁
-2.这不是作为老兵所见过的（火战）生死危胁，且对敌国而言非常廉价的方法
-3.从大局出发，全世界都该联合起来将中共踢出重要机构、加关税
-4.制裁中共领导人
-5.直到中共帮助世界了解病毒怎么跑出中共国的*
-
-
-> Chinese Military Scientist, Shibo Jiang, Suspected of Involvement in COVID-19 Creation Elected to American Academy of Microbiology in February 2021
-> ([#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@John16489988](https://twitter.com/JOHN16489988?ref_src=twsrc%5Etfw) acknowledged and thanked for the tip)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19India](https://twitter.com/hashtag/COVID19India?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/t8bLTqhYNk](https://t.co/t8bLTqhYNk)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 16, 2021](https://twitter.com/LawrenceSellin/status/1394000081620291584?ref_src=twsrc%5Etfw)
-
-
-5. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1394000081620291584?s=20)**：
-*[涉嫌参与制造COVID-19的中国军事科学家姜世波于2021年2月当选为美国微生物学会院士](https://www.thegatewaypundit.com/2021/05/chinese-military-scientist-suspected-involvement-covid-19-creation-elected-american-academy-microbiology/)
-(感谢 #COVID19 侦探Wenming提供的线索) #CCPVirus #COVID19India #coronavirus*
-
-
-> Just find out, [#NingyiJin](https://twitter.com/hashtag/NingyiJin?src=hash&amp;ref_src=twsrc%5Etfw) disappeared from the Institute of Zoonosis. Well, CCP's response is always honest when digging the truth. Where is [#NingyiJin](https://twitter.com/hashtag/NingyiJin?src=hash&amp;ref_src=twsrc%5Etfw) ?
-> 刚刚发现金宁一从人兽共患病研究所的网站上消失了. 当找到真相时, [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) 的反应一向都很诚实！金宁一去哪儿了？ [pic.twitter.com/dxpC7o9InV](https://t.co/dxpC7o9InV)
-> — Anna (@2020Gladiator) [May 16, 2021](https://twitter.com/2020Gladiator/status/1393992270093987845?ref_src=twsrc%5Etfw)
-
-
-6. **[Anna推特](https://twitter.com/2020Gladiator/status/1393992270093987845?s=20)**：
-*刚刚发现金宁一从人兽共患病研究所的网站上消失了. 当找到真相时, #中共 的反应一向都很诚实！金宁一去哪儿了？*
-
-
-> Uh Oh.
-> Former biomedical Professor Zheng Songguo from Ohio State University Sentenced to 37 Months in Prison for Using Federal Grants to Aid China’s Medical Research.[https://t.co/31b2QnOJQo](https://t.co/31b2QnOJQo)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393622172766179328?ref_src=twsrc%5Etfw)
-
-
-7. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1393622172766179328?s=20)**：
-*呃，哇。
-[俄亥俄州立大学前生物医学教授郑松国因利用联邦补助金援助中共国的医学研究而被判处37个月监禁](https://www.theepochtimes.com/mkt_breakingnews/former-professor-sentenced-to-37-months-in-prison-for-using-federal-grants-to-aid-chinas-medical-research_3816589.html?utm_source=newsnoe&amp;utm_medium=email&amp;utm_campaign=breaking-2021-05-15-1&amp;mktids=6a511b62f3200d1587185d77fa4f88ef&amp;est=0NuUvTo27HTDneHG%2Fu6qv1xO0Cwhohf3Sz00E1S%2Bfd6HkSFK5RFlMRZ7FzSr3cfA5DMlkgA%3D)*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16220022/E1cgbGgVEAAkaUj.jpeg)8. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1393778363664375813?s=20)**：
-***（火来）**史佩勇合作关系网中的一些关键人物
-
-**（Sellin）**COVID19侦探（火来） ，再次提供了宝贵的信息–中共科学家史佩勇的合作研究网络图。让我们在这些链接中找出与军事有关的人*
-
-
-> Dr. Li-Meng YAN [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) is absolutely correct. Many have been misled. If you look at the original Mojiang miner clinical data, it is impossible to distinguish between a virus respiratory infection and fungal histoplasmosis and there was no human to human transmission. [https://t.co/Z2CLbIvoN1](https://t.co/Z2CLbIvoN1)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 16, 2021](https://twitter.com/LawrenceSellin/status/1393811064500981764?ref_src=twsrc%5Etfw)
-
-
-9. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1393811064500981764?s=20)**：
-***（闫）**因为那篇博士论文本身对墨江矿工病例相关数据的表述就缺乏准确性。而且墨江的病例也没有被证实为冠状病毒感染。我已经解释了云南矿洞理论（如图所示）。许多无辜的科学家被误导到这方向
-
-**(Sellin）**闫丽梦博士说得非常正确。许多人都被误导了。如果你看一下原始的墨江矿工的临床数据，是无法区分病毒性呼吸道感染和真菌病的，当然也没有后面的人与人之间传播*
-
-
-> Unfortunately, the mentioned PhD thesis from China CDC head George, Fu Gao’s student, is not rigorous work. It would mislead investigation of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) origin to wrong “Yunnan mine cave theory” then waste energy.
-> I have presented evidence/analysis in the 2nd Yan Report. Verify it! [https://t.co/1hG4mmAIYs](https://t.co/1hG4mmAIYs)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 16, 2021](https://twitter.com/DrLiMengYAN1/status/1393739998244052994?ref_src=twsrc%5Etfw)
-
-
-10. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1393739998244052994?s=20)**：
-***（梅茨尔）**[当揭开 #大流行病起源 的历史被书写后，我相信它将揭露科学期刊和主流媒体的巨大失败，并承认世界各地独立侦探的重要和不懈的工作。](https://www.independentsciencenews.org/commentaries/a-chinese-phd-thesis-sheds-important-new-light-on-the-origin-of-the-covid-19-coronavirus/)#COVID19
-
-**（闫）**遗憾的是，上述中共国疾控中心负责人乔治（高福的学生）的博士论文，并不是严谨的工作。它将误导对 #新冠病毒起源 的调查，使之成为错误的 “云南矿洞论”，然后引导其他人浪费精力。
-我已经在第二份《闫报告》中提出了证据/分析。请核实!*
-【灭共时代】
-
-
-
-> 文革时傳說有次盲人聚会，大家一起唱“在北京的金山上”，熱淚盈眶，其中一個盲人复明了。。。。。 [pic.twitter.com/NC6LAr5no8](https://t.co/NC6LAr5no8)
-> — Bo Lu II (文龍） (@BoLu213) [May 15, 2021](https://twitter.com/BoLu213/status/1393603863576461312?ref_src=twsrc%5Etfw)
-
-
-**[文龙推特](https://twitter.com/BoLu213/status/1393603863576461312?s=20)**：
-*文革时传说有次盲人聚会，大家一起唱“在北京的金山上”，热泪盈眶，其中一个盲人复明了。。。。。*
-
-
-> 同意，科研在中共指导下变成了劳动作坊。稍微有点能力的努力给的骨头带一丝肉，就会感恩戴德。我很多优秀学生都这么回去了，但是我只点到为止。思维决定未来，甚至决定民族的兴旺。 [https://t.co/DZURerCP77](https://t.co/DZURerCP77)
-> — 墨博士 (@4RxMbPD3YbeN1fS) [May 15, 2021](https://twitter.com/4RxMbPD3YbeN1fS/status/1393423949581602816?ref_src=twsrc%5Etfw)
-
-
-**[墨博士推特](https://twitter.com/4RxMbPD3YbeN1fS/status/1393423949581602816?s=20)**：
-***（火来）**特别想说，墙内做科研读博士的，特别是中科院系统的，都是来自底层草根家庭。这些学生被老板压榨上七八上十年不给毕业，那是常有的事。好不容易毕业了，出国盼着发篇好文章，回国找个好工作，基本都是这个路子，也许他们并不知道自己身处这样一个巨大的网络中。草根家的孩子永远是炮灰，真是太邪恶
-**（墨）**同意，科研在中共指导下变成了劳动作坊。稍微有点能力的努力给的骨头带一丝肉，就会感恩戴德。我很多优秀学生都这么回去了，但是我只点到为止。思维决定未来，甚至决定民族的兴旺*
-
-
-> 啥世道啊，寺庙里的和尚尼姑都变成了传承共产党红色基因的继承人了，都成了党的人了。 [pic.twitter.com/qrfj6E73im](https://t.co/qrfj6E73im)
-> — Jay Yates (@lazydjay) [May 15, 2021](https://twitter.com/lazydjay/status/1393564997230465027?ref_src=twsrc%5Etfw)
-
-
-**[机器猫推特](https://twitter.com/lazydjay/status/1393564997230465027?s=20)**：
-*啥世道啊，寺庙里的和尚尼姑都变成了传承共产党红色基因的继承人了，都成了党的人了*
-
+字幕：【Rock小哥】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 +1
