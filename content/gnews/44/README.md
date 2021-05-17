@@ -1,29 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 民主党委员会主席鼓励对中共病毒起源实验室起源进行调查
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1248790/)
+## 慧眼看世界20210516
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1248865/)
 
-编译：云起时
+- 制图：透明的遮羞布
+- 编辑：神奇四侠
 
-《国家脉动》5月16日报道，在前几天最新的一组左派科学家投书《科学》杂志要求对中共病毒起源进行彻底调查之后，能源和商业健康小组委员会主席，民主党人安娜-埃斯霍（Anna Eshoo）发表声明回应，鼓励人们应该认真考虑中共病毒的实验室起源的可能性。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16122614/01-23.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16131555/02-31.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16131658/03-18.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16131810/04-23.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16131924/05-26.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16132206/06-62.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16133026/07-14.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16133107/06-67.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16133142/08-24.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16133223/09-10.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16134511/11-57.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16135529/12-59.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16140431/13-36.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16140730/14-29.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16140842/15-27.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16141005/16-28.jpg)
+发稿：神奇四侠
 
-埃斯霍议员的声明全文如下。
 
-“我赞扬斯坦福大学的大卫-雷尔曼博士（Dr. David Relman）和其他17位受人尊敬的科学家在《科学》杂志上发表的公开信，他们呼吁对COVID-19的起源进行透明、客观和数据驱动的调查。为了粉碎该病毒并防止未来的全球大流行，我们必须考虑现有的每一种假设，并让无党派的独立科学专家进行调查，以告知我们对COVID-19和类似传染病的理解。我随时准备支持拜登政府和我们的国际伙伴对COVID-19和SARS-CoV-2的起源进行这样的调查，我很感谢科学家们领导这项工作。”
 
-在给《科学》杂志联合信的签名者中，有来自哈佛、斯坦福和耶鲁等机构的教授。引起人们注意的是，其中包括了与武汉病毒研究所合作进行病毒功能增益实验的拉尔夫-巴里克博士（Ralph Baric）。
-
-拉尔夫-巴里克博士与武汉病毒所的合作关系以及他的功能增益研究记录近日在福奇博士在参议院听证会上刚刚被讨论过。
-
-在这封信发出的前一天，《国家脉动》还发现包括这封呼吁信的组织者大卫-雷尔曼博士在内的一些由美国国家过敏和传染病研究所（NIAID）资助的研究人员出席了一个以武汉病毒研究所的功能增益研究为主题的会议。
-
-从这封由18名左派，尤其是与武汉病毒研究所有密切合作关系的科学家联署的呼吁信可以看出，中共试图用被它们蓝金黄买通的科学界为它们的恶行来站台的图谋已经彻底破灭。无论是福奇，巴里克，还是这些曾与中共科学界有所交往的科学家们，除了彻底地揭露中共的阴谋，把自己打造成中共欺瞒的受害者，以此来使自己避免成为人类公敌以外，已经别无选择。
-
-而民主党委员会主席的回应，更加表明了联合对抗中共已经成为两党共识。而由科学界出面调查中共病毒起源，杜绝了中共撒泼放赖，指责西方把病毒“政治化”的可能。
-
-文贵先生提出的以毒灭共，正在全世界紧锣密鼓地，越来越快速地推进。
-
-新闻来源：[国家脉搏](https://thenationalpulse.com/breaking/dem-calls-for-covid-origins-investgation/)
-
-0
++1

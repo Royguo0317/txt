@@ -1,65 +1,74 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞舌尔等国大量接种新冠疫苗后病例剧增
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1249108/)
+## 2021/05/12 班农采访(4)：中情局局长被要求辞职
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1249215/)
 
-作者：纽约香草山媒体部 7bends
+视频字幕：Vekap | 听写/翻译：Wade | 校对：Roberts | 简评/文字整理：胖丁| Page：我是球大哥
 
+[!\[\]()!\[\](https://spark.adobe.com/page/m3RLyBBvtHCAg/images/474a2f0d-104f-489b-ba13-d3efc368a9de.png?asset_id=98a43ded-7b2d-4831-9862-87e3f9a690de&amp;img_etag=%22a753354865a5a98ac91cf8bcbb91a21f%22&amp;size=1024)](https://spark.adobe.com/page/m3RLyBBvtHCAg/images/474a2f0d-104f-489b-ba13-d3efc368a9de.png?asset_id=98a43ded-7b2d-4831-9862-87e3f9a690de&amp;img_etag=%22a753354865a5a98ac91cf8bcbb91a21f%22&amp;size=1024)
 
+**简评：**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+由班农先生联合创立的当前危机委员会要求中情局长伯因斯辞职，因为他公然撒谎，隐瞒了自己与中共的关系。美国体制在这个问题上发挥了部分作用，令普通民众明白了中共对世界的威胁：任何人与中共勾兑，都无法出任敏感职位。
 
+通过收买西方各国政府，中共拥有了今天的地位和实力。五眼联盟成员国之一的澳大利亚对中共的抵制并没有得到很多国家的支持，因为西方各国政府惧怕中共。正义力量会致力于揭露腐败，令真相水落石出。
 
-
-据雅虎新闻最近报导，近期又有地区再度掀起新一波疫情感染浪潮。
-
-**塞舌尔**
-
-- 印度洋岛国塞舌尔到5月7日指的一周内新冠病例有超过一倍的增幅
-- 该国新冠病例中，有37%是已完成两剂疫苗的完全接种者
-- 在已接种疫苗的塞舌尔人口中有超过一半接种的是中共国的国药疫苗
-
-
-**马尔代夫**
-
-- 同为印度洋岛国的马尔代夫近日新冠病例也屡屡突破前期高点，令人担忧
-- 以旅游业为支柱产业的马尔代夫，所有人口中35%已完成两剂新冠疫苗接种。至少完成一剂疫苗接种的人则比例更高
-- 马尔代夫所使用的疫苗是国药疫苗和Covishield
-
-
-![]()![](https://i.epochtimes.com/assets/uploads/2021/05/id12948407-GettyImages1-1232374620-600x400.jpg)(MENAHEM KAHANA/AFP via Getty Images)
-
-在“一带一路”政策遭受重大挫折之后，此前从未成功开发过任何一款疫苗的中共国却疯狂地向世界输出新冠疫苗。这其中，发达国家自己有能力开发疫苗，又对无任何信息透明度的中共不信任，从而很少购买中共疫苗。但那些在经济和产业上深度依赖中共国的小国，如塞舌尔、马尔代夫等，则无力抵抗中共疫苗的长驱直入。中共以抗疫为名输出新冠疫苗，而被输出国的疫情却被中共越抗越大，在饮鸩止渴的路上越走越险。
-
-新冠疫情至今已持续将近一年半，且势头愈演愈烈。正如闫丽梦博士所说的，“留给我们的时间不多了”。全世界只有尽快联合起来，追讨病毒起源，才有可能拯救自己。
-
-参考阅读：
-
-[世界疫苗接種比例最高的塞舌爾表示現存新冠病例數激增](https://hk.news.yahoo.com/%E4%B8%96%E7%95%8C%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A8%AE%E6%AF%94%E4%BE%8B%E6%9C%80%E9%AB%98%E7%9A%84%E5%A1%9E%E8%88%8C%E7%88%BE%E8%A1%A8%E7%A4%BA%E7%8F%BE%E6%9C%89%E6%96%B0%E5%86%A0%E7%97%85%E4%BE%8B%E6%95%B8%E6%BF%80%E5%A2%9E-144513730.html)
-
-[The Seychelles is the most vaccinated nation on Earth. But Covid has surged](https://www.cnbc.com/2021/05/13/seychelles-most-vaccinated-nation-on-earth-but-covid-19-has-surged.html)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+GTV视频链接：[当前危机委员会要求中情局局长伯恩斯辞职，因爲他在自己与中共的关係上公然撒谎](https://gtv.org/video/id=609e7aa737f7f73984cb9879)
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+**视频字幕：**
+
+**Daniel**: 说到班农先生对中共跨国犯罪集团的定义，当前危机委员会要求中情局局长伯恩斯辞职，因为他在自己与中共的关系上公然撒谎。
+
+这只是中共渗透的冰山一角，这是否说明美国丢掉了立国根本？谢谢。
+
+**Bannon：**Daniel，让我说说这其中的好消息。因为我们一起做节目已经有一段时间了，你们的问题非常好，这里的观众有足够的能力理解这样的信号。
+
+这里最重要的就是伯恩斯明白他必须撒谎，隐瞒自己与中共的关系。
+
+他明白如果他坦白交代自己与中共的关系，他将永远无法获得参议院的任命。
+
+这说明美国的体制起作用。但是现在没有完全发挥作用，是因为这些没骨气的共和党人，还有被中共收买的民主党人。
+
+要知道，当年南希·佩罗西之所以能进入国会，就是因为她在天安门事件上的立场。
+
+她来自一个有大量流亡人士的选区，她在推动人权民主上非常激进。南希·佩罗西在早年天安门广场事件纪念日的时候，亲自去过北京，甚至被中共国安骚扰，几乎被逮捕。
+
+现在你看不到这样的南希·佩罗西了和民主党了。但是共和党没有提出正确的问题。
+
+但伯恩斯自己清楚，他必须撒谎，隐瞒与中共的关系。因为一旦在这个问题上说了实话，他将永远无法被任命为中情局局长。女士们先生们，这是一场大胜。
+
+这意味着什么？意味着普通百姓明白了中共对世界的威胁。
+
+任何人与中共勾兑，都将无法出任敏感职位。
+
+伯恩斯对这里的腐败一清二楚。如果不是收买世界各国政府，尤其是西方和美国，中共不可能有今天这样的地位和实力。
+
+现在五眼联盟尤其是澳大利亚，明白武汉发生了什么，澳大利亚总理莫里森对中共的抵制并没有得到很多国家的支持，这种状况就是因为西方政府的懦弱。
+
+所以这里的腐败很深，而我们会把它挖出来。我们正是先锋力量，我恰好是当前危机委员会的联合创立人之一。
+
+真相每一天都在水落石出，国家脉动这样的媒体，现在已经似乎成为了大家关注的焦点。虽然主流媒体不会对这些进行报道，但是这不要紧。我们的推动已经足以让伯恩斯明白他必须撒谎。
+
+[**完整访谈视频**](https://youtu.be/iqLdcmS-26k)
+
+**主播**：Angela, Daniel, Mike, TCC和Winston
+
+- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
+- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
 
 
+***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三直播***
+
+编辑：【英国伦敦喜庄园编辑部】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/m3RLyBBvtHCAg/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/m3RLyBBvtHCAg/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

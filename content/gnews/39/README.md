@@ -1,146 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 价值观记（2）——发丧(SĀNG)记
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1248903/)
+## 谎言 通过暗示被植入成公理
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1248914/)
 
-作者：X-Wing飞得更高| 校对：西川 Stanly| 审核：Beicy-数学老师| Page：小六月
+#### 作者：帕丁顿
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NOqd6eglXGFS3/images/e088f783-9902-4f07-81f6-d4a772bd593a.png?asset_id=e6edabf2-c18e-4360-b6fd-eba9318a5091&amp;img_etag=%22647d1c28ade4aadb652879e958989b6f%22&amp;size=2560)](https://spark.adobe.com/page/NOqd6eglXGFS3/images/e088f783-9902-4f07-81f6-d4a772bd593a.png?asset_id=e6edabf2-c18e-4360-b6fd-eba9318a5091&amp;img_etag=%22647d1c28ade4aadb652879e958989b6f%22&amp;size=1024)
+笔者过去四年接触了若干个故友，他们从一个个爱憎分明的人，变成了理所当然，认定国就是家，同时也就丧失了做人的基本良知。我思索了原因，除了很多类似于对“斯德哥尔摩症候群”的分析外，我对发生在中国的具体洗脑过程做了一点分析。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NOqd6eglXGFS3/images/644de372-7e2a-4744-a9c1-c319dd65ed56.png?asset_id=3956e8ce-70f2-4f83-ba6b-c6ae2b1a71a7&amp;img_etag=%229fc6d4b1dc385e841ef5feac324bf9b8%22&amp;size=2560)](https://spark.adobe.com/page/NOqd6eglXGFS3/images/644de372-7e2a-4744-a9c1-c319dd65ed56.png?asset_id=3956e8ce-70f2-4f83-ba6b-c6ae2b1a71a7&amp;img_etag=%229fc6d4b1dc385e841ef5feac324bf9b8%22&amp;size=1024)
+中共建政后，其宣传手法经历两个阶段，即1949-1978年，中共10届三中全会的以显性记忆为主，隐性记忆为辅的宣传，简单，直接，大老粗型；第二阶段是从1979年，电影中共国珠江电影製片厂拍摄《海外赤子》开始的隐性记忆为主，显性记忆为辅的阶段，越来越精细化，定点投放。
 
-前一篇写了价值观记（1），介绍了英国的四大核心价值观。在开启第（2）记之前，稍微总结一下前一篇英国四个核心价值观中的“个人自由”。
+**这里，先说两个概念：**
 
-“个人自由”即个人主义原则，强调社会由人组成，并且为人而存在，因此“个人在逻辑上和道德上都处于优先地位”，社会有义务保障个人权益不受他人侵犯。这一原则体现在三个层面上：
+1. **“内隐记忆” (Implicit memory)**
+维基百科的解释：In psychology, implicit memory is one of the two main types of long-term human memory. It is acquired and used unconsciously, and can affect thoughts and behaviours. One of its most common forms is procedural memory, which allows people to perform certain tasks without conscious awareness of these previous experiences; for example, remembering how to tie one’s shoes or ride a bicycle without consciously thinking about those activities.
 
-1. 体现在英国传统的社会契约论中，它以个人的自然权利取代了人对神的义务关系，这意味着个人权利是神圣不可侵犯的。就算是平民的茅屋，“风可进雨可进，国王不可进”——要先得到允许。
-2. 个人主义原则在古典自由主义中得到落实，主张经济的自由放任，反对国家干预，同时倡导言论自由、个性自由和个人自治等。当个人的言行受到集体甚至国家的干预、限制和命令，何谈个人自由？
-3. 个人主义最终在英国民族精神中成长为一种绅士文化，即一种蕴含着社会责任的社会化的个人主义。金钱很重要，但个人的品德、修养、尊重和容忍他人、团队和牺牲精神，更为难得。
+在心理学中，内隐记忆是人类长期记忆的两种主要类型之一。 它是在不知不觉中被获取和被使用的，能够影响思维和行为。其最常见的形式是过程记忆，即令人执行某些任务而无需主动意识到先前的经验，例如，记住不用有意识的思考这类动作的情形下一个人就会系鞋带，骑自行车。
+2. **显性记忆（explicit memory）**
+Implicit memory’s counterpart is known as explicit memory or declarative memory, which refers to the conscious, intentional recollection of factual information, previous experiences and concepts.
 
+与隐性记忆相对应的是显性记忆，或声明性记忆，是指对事实信息，以前的经历和概念的有意识的，有意义的回忆。比如1979年以前中国民众参加的各种批判大会，政治学习，每天要读的毛泽东语录，看的样板戏。这些都是开门见山的说爱说恨。那些经历过的人都有清晰的记忆。
 
-价值观第二记，让我们来谈谈“社会主义核心价值观”。
 
-当我们谈论社会主义核心价值观时我们谈论些什么？
+**我不在此作更专业性地论文叙述，只想对中共“梦娃系列”洗脑作品做一个基本的分析：**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NOqd6eglXGFS3/images/fbc7ca50-8ab1-4b5a-94a8-920a1b140988.png?asset_id=9dac0aa4-4ecb-4a61-90d2-b13cc4e2bbdd&amp;img_etag=%22c1fc0f372e86dedf79c144032ed20223%22&amp;size=2560)](https://spark.adobe.com/page/NOqd6eglXGFS3/images/fbc7ca50-8ab1-4b5a-94a8-920a1b140988.png?asset_id=9dac0aa4-4ecb-4a61-90d2-b13cc4e2bbdd&amp;img_etag=%22c1fc0f372e86dedf79c144032ed20223%22&amp;size=1024)
+中国梦娃，是中宣部宣传片《梦娃送吉祥，梦娃送美德》中的动画角色，其形象来源于天津泥人张的娃娃泥塑，以生动的形象赢得全国观众的喜爱，这个叫作“中国梦娃”的女娃娃，为我们呈现出的却是中国伟大复兴之梦的画面。
 
-还是用一张表格来展示：
+**梦娃基本信息：**
+姓名：中国梦娃
+外文名：meng wa
+所属作品：《梦娃送吉祥，梦娃送美德》
+性别：女
+国籍：中国
+出生日期：2015年2月
+出品：天津泥人张工作室
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NOqd6eglXGFS3/images/d7eb7403-514b-43b7-8f89-ed9c4b2e1670.png?asset_id=4b8154c4-ba15-452c-904a-e6fa0cd28196&amp;img_etag=%223f25fdbdd08c363d3ffa426f36bbd3fc%22&amp;size=1024)](https://spark.adobe.com/page/NOqd6eglXGFS3/images/d7eb7403-514b-43b7-8f89-ed9c4b2e1670.png?asset_id=4b8154c4-ba15-452c-904a-e6fa0cd28196&amp;img_etag=%223f25fdbdd08c363d3ffa426f36bbd3fc%22&amp;size=1024)
+**梦娃出台经过：**
+2013年春，在中宣部、中央文明办等六部委的部署下，包括中国网络电视台在内的五家中央媒体成立了公益广告中心，开始搞公益广告的创作。因为前期工作进展不是很顺利，为了拓展思路，在中国网络电视台总经理汪文斌（非外交部汪公公那个汪文斌）带队下，创作团队来天津考察。邱纯说：“考察中，我们发现泥人张裡面有很多泥塑作品非常好，大部分都是充满时代气息的，跟百姓生活息息相关的，比如剃头、烙饼、卖糖葫芦、小孩给老人捶背等。”在众多作品中，一个红衣服的泥娃娃一下子引起创作人员的注意，“因为她的眼神特别的纯真，梦幻一样的。领导就说‘你看这个泥娃娃的眼神，多像在做梦啊，她做的不就是中国梦吗！’我们有人接了一句‘我的梦’，当时我们团队一下子就开窍了，马上定下来公益广告的主题‘中国梦—我的梦’。当时的感觉就是如获至宝！”（注1）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16170429/488a811e936523d2.jpeg)梦娃系列典型图
+按照很多心理学文章的描述，隐性记忆的证据出现在启动过程中，在此过程中，可以根据受试者在下意识准备的任务中，如何提高自己的表现来对其进行评估。 内隐记忆也会导致虚幻的真实效果，这表明主体更可能将自己已经听到的陈述评价为真实，无论其真实性如何。
 
-注意最右侧，分别从国家、社会和个人三个层面来划分了三排，12个，24字核心价值观。排列工整，言简意赅。
+中共以撒旦邪灵+商鞅驭民五术+中国传统的底层流氓习气，构成了前所未有的专制机器。它以邪灵形式实施洗脑之道，因为很难找到具体的捉刀者，找到了具体的人，比如汪文斌那个班子裡具体写文章的人，他不大可能有深刻的心理学见解；笔者也问过在中共宣传机构的人，他们对共党的宣传口号毫无兴趣。
 
-我不打算用前一篇英国核心价值观一样的列表来探讨上表中每一项价值观，因为它们既无“定义”，也无“示例”，有的只有反例。试看：
+梦娃洗脑系列全天候，无死角的。以公益广告面目，通过灯箱广告，电视屏幕，地铁车厢屏幕，飞机客舱屏幕，任一电梯轿厢里，公交车屏幕，报纸，杂志，街头工地围栏遍布960万平方公里，让“国是家”这三个字变成你的隐性记忆，尽管这个口号出来7，8年，和共产党建政71年比很短，为什么会让大多数人头脑有条件反射型的概念：“国就是家”呢？
 
-国家层面
+梦娃的隐性记忆，好比一个共产党邪灵对你的一个偷窃行为，不是从你兜里悄悄拿走了什么，而是悄悄地往你脑子里放了一个病毒程序；也好比潜入你家在书柜偷偷放了一个释放毒物的布囊，你根本不知道。共产党通过无死角投放梦娃公益广告，以空间换时间，完全可以达到纸质媒体时代50年的隐性记忆的输入效果。
 
-富强——一个国家以强盛、强大(Powerful)作为目标是没有问题的，强意味着政治军事经济等各方面都要“强”，尤其软实力更不可忽视；而把“富”(rich) 作为一个国家的目标和核心价值观之一就相当罕见了，墙国这么快就忘记“贫穷光荣，造反有理”吗？难怪某年某月某日之前是一定要官宣“脱贫”的。如此脱贫，国怎能不“富强”呢？国富，民哪里有强或富足？到处是墙，还有苦难中打拼的“小强”。
+笔者调查了很多人，只有少于5%的人想得起来“国是家. 梦娃”的广告，这是隐性记忆的一个特徵，自己想不起来，却已把“国是家”当作公理储存在脑子里。我说公理，是因为我们都学过欧几里德几何，其中的基础是五条公理，大家都能够想起来的有一条“从一点向另一点可以引一条直线”，公理是不需要证明的。
 
-民主——中共国有民主？一党独大、专政的伟光正百年大D有民主？Pass！下一题！
+同样，中共通过隐性记忆在人们脑子里建立的概念“国是家”也是公理，不需要证明，我之所以这样说，因为我驳斥梦娃广告时，所有人一律回答“国怎么不是家啊？”
 
-文明——我们曾经是文明古国礼仪之邦，至近代仍存“民国之风”，1949年后乃至文革，中国文化和文明遭遇最严重的破坏。改革开放伴随着金钱至上，道德和人伦的丧失。最近几年，自助餐抢盘子的行为少了一点，孩子甚至成人随地大小便现象也少了，随地吐痰也变少了，可喜可贺，但这些“进步”不过是基本礼节和行为方面，比起日本人的干净整洁和不给人添麻烦的发自内心的自律，还有差距。因为钱包稍微鼓起来就挡不住的那种暴发户式傲慢、强势，战狼外交官和NMSL（你妈死了）粉红团义和团们，距离真正文明的台阶，尚有很远距离。
+只有明白“国是家”是如何被共产党偷偷放到你脑子里的，才有可能彻底排除其影响，变回理性的思维结构。“国是家”就等于政府无论如何虐待民众，一律属于父母打孩子，是自己家事儿，战狼外交“内政”说根据在此。理解具体的洗脑过程，你应该不会再轻易的说共产党洗脑厉害了，不是共产党厉害而是我们放弃了自己的基本能力。
+（本文只代表作者观点，与Gnews平台无关。）
 
-和谐——河蟹。这一个词已经够了。
+`注1： 阅读更多：梦娃`
 
-社会层面
+**参考文献链接：**
+🔗[Frequency and the conference of referential validity](https://www.sciencedirect.com/science/article/abs/pii/S0022537177800121?via%3Dihub)
+🔗[Activation makes words more accessible, but not necessarily more retrievable](https://www.sciencedirect.com/science/article/abs/pii/S0022537184903463?via%3Dihub)
+🔗[Measuring Implicit Memory](https://www.youtube.com/watch?v=KAkkAyX5JT8)
 
-自由——No无有
+* * *
 
-平等——Nil 空缺
+***编辑整理/校对: **Ting Guo*
 
-公正——None没见
-
-法治——N/A不适用
-
-“太监！”。
-
-没了？下面呢？
-
-下面没了。
-
-哪一位说还有？
-
-有言论自由？有官民平等？有司法公正？还是有依法治国？
-
-有你三个字：滚犊子！
-
-个人层面：
-
-爱国——就是爱党；党就是国，国就是党。
-
-爱让人卑微，让人面目全非。爱你妹！在感情上，特喜欢干脆利落的人，喜欢就答应，不喜欢就拒绝。不爱你，还给你希望的人真是太可恶了。
-
-敬业——就是要工作996，生活669。
-
-不好意思我007，两项都是。
-
-诚信——挂这个牌子的公司或机构大多有问题，婊子才立牌坊。
-
-我不是忘记诚信，我是一无所有！
-
-友善——是规劝绝望者不要随便拿刀砍幼儿园小孩子？
-
-有的人是来爱你的，有的人就是来给你上课的。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NOqd6eglXGFS3/images/8a780fc7-82cc-46c1-84c0-fef58e6ae5dc.png?asset_id=8218ef09-f225-4335-89f4-d340d0eaf497&amp;img_etag=%2214737cb9e6e5aa63e6f8c5c1db447638%22&amp;size=2560)](https://spark.adobe.com/page/NOqd6eglXGFS3/images/8a780fc7-82cc-46c1-84c0-fef58e6ae5dc.png?asset_id=8218ef09-f225-4335-89f4-d340d0eaf497&amp;img_etag=%2214737cb9e6e5aa63e6f8c5c1db447638%22&amp;size=1024)
-
-24个大字金光闪闪，社会主义核心价值观，你看得到一点点人的尊严，自信，关爱，还是价值？还是观？观自在菩萨，行深般若波罗蜜多时，照见五蕴皆空，度一切苦厄。。。
-
-一千年前宋人吕蒙正有一副对联：
-
-上联：二三四五
-
-下联：六七八九
-
-横批：南北
-
-意思是啥？缺一（衣）少十（食），不是东西！
-
-好一副穷人凄惨苦厄的浮世绘。
-
-生而为人，我很抱歉。
-
-英国现代著名作家、诺贝尔文学奖获得者吉卜林有句名言：“只有在谈及公义和正直时，萨克逊人才会变得真正严肃起来”。
-
-你一定看得出，我一点也不严肃。
-
-我两手空空，但心事重重。
-
-感觉身体被掏空，只想葛优躺屋中。
-
-假如你看到写在前边的“丧语录”有会心一笑，那么至少说明，你也不喜欢或厌倦了充满“文化自信”的正能量，对“丧文化”这种多元价值观存有尊重和体谅。若是在英国，只要你没有妨碍到他人，伤害到别人，随你怎么“丧”，没有人碍着你，而你同时也要尊重、忍受和包容其他人，这就是个人自由。
-
-冯友兰先生言：“我国家以世界之古国，居东亚之天府，理应绍汉唐之遗烈，作并世之先进，于世界历史，居独特之地位。。。。。。”
-
-今观二十四字，读冯先生两字“理应”，徒唤一声“奈何”，“发丧”为记。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NOqd6eglXGFS3/images/4d79a50f-3c38-4f95-baad-b638fedab5fd.png?asset_id=b32e4232-e342-4ee2-ba56-0169cc60889c&amp;img_etag=%2277057ba835d2ea5d2ce4f7ba9b2d3e22%22&amp;size=2560)](https://spark.adobe.com/page/NOqd6eglXGFS3/images/4d79a50f-3c38-4f95-baad-b638fedab5fd.png?asset_id=b32e4232-e342-4ee2-ba56-0169cc60889c&amp;img_etag=%2277057ba835d2ea5d2ce4f7ba9b2d3e22%22&amp;size=1024)
-
-要开心。生命中最美的夏天即将到来——虽然那也终将成为难以回去的昨天。
-
-欢迎阅读作者更多文章：
-
-- [双城记（1）——City记](https://gnews.org/zh-hans/1238353/)
-- [价值观记（1）](https://gnews.org/zh-hans/1232036/)
-- [巴别塔记](https://gnews.org/zh-hans/1195801/)
-- [BULLY记](https://gnews.org/zh-hans/1188970/)
-- [无冕记](https://gnews.org/zh-hans/1180655/)
-- [点火记](https://gnews.org/zh-hans/1176727/)
-- [如雷记](https://gnews.org/zh-hans/1164914/)
-- [石头记](https://gnews.org/zh-hans/1156293/)
-- [钉子记](https://gnews.org/zh-hans/614837/)
-
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NOqd6eglXGFS3/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/NOqd6eglXGFS3/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-
-
-0
++1
