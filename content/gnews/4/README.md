@@ -1,58 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5/16/2021 一周财经快报：商业养老保险6月开始试点；李克强发警报，应对大宗商品急涨
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1248063/)
+## 福奇 — 川普搞不定他 拜登也搞不定他 国会山也搞不定他
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1249501/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16092936/2021-05-16_232918.jpg)图片来源：[https://www.sohu.com](https://www.sohu.com)
-**1. 水产材料连续5天疯长**
+**摘要：在2021年5月12日的盖特视频中，郭先生感叹美国是一个法治国家，国会在过去两三个月间举行了一系列关于中共病毒的听证会，最终一定会把病毒真相搞得清清楚楚；也透露福奇（美国NIH/NIAID主管） “川普搞不定他，拜登也搞不定他，国会山也搞不定他”，但是这正说明美国是法治，不是人治，“什么都讲程序，什么都讲法”。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16222526/Miles_20210512-getter-p2.srt.txt)
+**福奇**** — ****川普搞不定他****拜登也搞不定他****国会山也搞不定他**
 
-[水产前沿网报道，水产料掀起牛年的第二轮疯狂涨价潮，目前20多家料企在5天内涨价。自5月10日第一家水产料企发布涨价令后，一大波料企紧急跟进。包括有海大几家子公司、通威、粤海、新希望、旺海、百洋、广牧兴、丰华、南宝、向星、傲弘、奥特、养之源、联维、英海、辽海等20多家料企连续5日发布涨价令。
-主要涨价品种为大宗淡水鱼料的草鱼、罗非鱼、鲤鱼、叉尾鱼、鳙鱼、鲮鱼等以及鱼苗料，还有部分企业上涨黄颡鱼料。涨幅在2-5元/包不等。](http://www.fishfirst.cn/article-124801-1.html)
+**No One Can Hold Fauci Accountable?**
 
-**2.棕榈油库存下降，短期价格保持强势**
+更重要的是美国国会，从现在往回看过去两三个月，「举行了」一个一个的听证会全是关于中共病毒的。你去看看国会整个排的表，接下来全部的问询、问话、调查、了解、听证，全部都有关中共的经济、偷盗技术、冠状病毒、疫苗，还有整个2019年年底和2020年年初发生了病毒「流行时」，美国的反应。就是干什么？这就是美国这个国家：不能乱讲话，必须得负责任。病毒来自于何方？美国有没有参与？最终都会搞得清清楚楚。这就这个有法可依的国家，它是一个法治的国家，不是人治的国家人。人治的国家你想说啥说啥，你想干啥「就」干啥。这是真的这个美国国家伟大的地方。
 
-[棕榈油到港量偏低，库存继续下降。5月12日，沿海地区食用棕榈油库存37万吨(加上工棕约51万吨)，比上周同期减少1万吨，月环比减少8万吨，同比减少11万吨。其中天津5万吨，江苏张家港13万吨，广东13万吨。近期国内棕榈油到港量增加，预计5月份将在60万吨左右，但随着气温升高，棕榈油需求增加，预计后期棕榈油库存或将止降转升。13万吨，广东13万吨。近期国内棕榈油到港量增加，预计5月份将在60万吨左右，但随着气温升高，棕榈油需求增加，预计后期棕榈油库存或将止降转升。](http://www.cngrain.com/Publish/1/679385.html)
+More importantly, the US Congress has held a series of hearings on the CCP virus over the past two or three months. And the congressional schedule of upcoming inquiries, questionings, investigations, and hearings all have to do with the CCP’s economy, technology theft, the CCP virus, and the vaccine, including the US response to the coronavirus pandemic in late 2019 and early 2020. What does this mean? It means that in the US, no one can speak about things without taking responsibility. Where was the virus from? Was the US involved? Eventually, everything will be figured out completely. That makes the US a nation of laws, not a country ruled by the will of a few men. In a country ruled by the will of man, a few elite families will do whatever they want, like the CCP always does. That really makes the US great.
 
-**3.铝业巨头宏桥将向云南迁移**
+就那个福奇，一个美国卫生部长，川普搞不定他，拜登也搞不定他，国会山也搞不定他。这样的人要是在中国，不要说是“习一神”收拾他，随便一个纪委的处长就把他灭100次了，但同样的事情那个处长也能被灭1万次 — 这就是美国这个社会，你想把谁搞死，没有搞死的理由，没有搞死的程序是不可以的。这就是咱们中国人的思维，「比如」在海外，一弄就要“搞死他！搞死他！” — 「全是」文化大革命的遗毒。「不想想如果」你搞死个人那么容易，人家也能搞死你那么容易。这就叫“红色恐怖”啊。所以说兄弟姐妹们你看到美国这个国家什么都讲程序，什么都讲法。
 
-[据两位知情人士透露，民营铝生产商–中国宏桥集团计划将更多产能从山东省迁移到云南省。宏桥2019年承诺将从山东迁移大约200万吨的年产能到云南文山州。
-其中一位消息人士称，文山一期项目于去年9月开工计划再迁移100万吨产能，这次是迁移到临近的红河州。这就是说将迁移300万吨到云南，接近宏桥集团年许可原铝产能646万吨的将近一半。
-第二位消息人士证实了宏桥将在红河州建厂的计划，但不能确定要迁移多少产能。他们都未提供迁移的时间安排，由于该计划尚未公开，两位消息人士要求匿名。
-宏桥集团对此不予置评。](https://cn.reuters.com/article/china-hongqiao-yunnan-0515-idCNKBS2CW031)
+With respect to that Fauci, the Director of NIAID in the US, Trump could not handle him, nor could Biden or the Capitol Hill. If he were in China, any director of the Discipline Inspection Commission would be able to dispose of him 100 times, not to mention the “great god Xi”. But equally, any director can also be disposed of by others 10,000 times. So, it is impossible to target anyone without a legitimate reason or without following a proper procedure in the US, whereas in overseas Chinese people’s minds, it is so easy to say “let’s screw someone”. It is a maddening and stubborn mental illness planted in our Chinese by the Cultural Revolution. If you can easily screw others, they can also easily take you down. Then it called the “Red Terror”. So, brothers and sisters, you should see that the US is a country where everything needs to follow the law and procedures.
 
-**4.银保监会推进专属商业养老保险试点，将于6月1日启动落地浙江、重庆**
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/609bef6337f7f73984cae322](https://gtv.org/getter/609bef6337f7f73984cae322) (1:54-3:42)
+鸣谢：
+[1] 感谢Antsee-GTV、TING GUO、文惜和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://gnews.org/zh-hans/1233493/](https://gnews.org/zh-hans/1233493/) 
+[2] 感谢Antsee-GTV、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于 [https://gnews.org/1239592/](https://gnews.org/1239592/)
 
-[自2021年6月1日起，由6家人身险公司在浙江省（含宁波市）和重庆市开展专属商业养老保险试点。试点期限暂定一年。《通知》对专属商业养老保险产品交费方式、积累期和领取期设计、保险责任、退保规则、信息披露、产品管理等作出规范，并明确了在权益类资产配置比例、最低资本要求等方面的监管支持政策。具体来说，试点保险公司应创新开发投保简便、交费灵活、收益稳健的专属商业养老保险产品。消费者达到60周岁及以上方可领取养老金，且领取期限不短于10年。](https://www.sohu.com/a/466631900_250147?scm=1004.770291296706428928.0.0.673&amp;spm=smpc.ch15.fd-news.33.16211153963218apbHD6)
+* * *
 
-**5.新东方大跌18.22%市值蒸发近300亿**
+字幕：【Rock小哥】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-[跌多涨少，本周（5月7日-5月14日）市值TOP10的10家公司中3家公司股价上扬，7家公司股价下滑。具体来看，在美股的四家公司本周均收跌，尤其以新东方股价下滑18.22%，市值蒸发298.42亿元成为股价、市值下滑最多的公司。铁打的第十，交替的新东方在线与天立教育，本周新东方在线以122.8亿港元的市值挤掉了天立教育第十的位置成功补位。过去一周，新东方股价下滑18.22%，市值蒸发298.42亿元，成为股价、市值下滑最多的公司。](https://finance.sina.com.cn/roll/2021-05-15/doc-ikmxzfmm2654185.shtml)
-
-**6.价格飙升，电焦煤齐涨**
-
-[春节过后，煤价开始反弹。特别是进入二季度以来，“煤飞”行情持续。“公司坑口煤1月售价达每吨460元，创历史新高。3月有所下跌，为每吨380元。4月又环比上涨10%至15%。”在陕西煤业上班的唐先生告诉中国证券报记者。陕西省榆林煤炭交易中心发布的数据显示，5月12日，大部分煤种价格达每吨1000元。5月13日，白鹭煤矿3-8块、3-6籽等煤种价格达每吨1030元。](https://www.163.com/money/article/GA11UA0O002580S6.html)
-
-**7.李克强再发警报：应对大宗价格急涨**
-
-[李克强5月12日主持召开国务院常务会议，要求要跟踪分析国内外形势和市场变化，做好市场调节，应对大宗商品价格过快上涨及其连带影响。加强货币政策与其他政策配合。
-这已经是自4月以来，中共高层会议和部委发布会上第4次提到大宗商品价格问题。
-5月8日，天津天钢、江苏徐钢集团等95家钢厂上调废钢采购价，涨价区间为人民币10元／吨至200元／吨。同一天，19家建筑钢材企业上调出厂价，涨价区间为人民币50元／吨至230元／吨。
-5月10日，大陆期货市场盘中，铁矿石、螺纹钢、热轧卷板相继涨停，铁矿石吨价破1300元人民币；焦煤期货主力合约也一度涨超7%；螺纹钢单吨超6000元人民币。](https://ntdtv.com/b5/2021/05/15/a103120160.html)
-
-**8.中国恒大八折出让恒大汽车欲筹资106亿港元还债**
-
-[中国恒大（3333.HK）将通过配售恒大汽车股份筹资，缓解后者持股集中的状态。5月13日，中国恒大发布公告称，将以每股40.92港元配售2.6亿股恒大汽车（0708.HK）股份，配售价相较12日收盘价51.15港元/股折让20%，配售股份占恒大汽车总股本的2.66%，配股金额约106亿港元。中国恒大总裁夏海钧在业绩说明会上介绍称，2020年，通过分拆物业板块上市、恒大汽车配股、中国恒大配股、恒腾网络配股、房车宝引入战投等，公司从资本市场增加了888亿港元的权益，这些境外募集的资金大部分用来还债。夏海钧还称，公司计划在2021年用自有资金偿还年内到期的所有境外债务。](https://finance.sina.cn/chanjing/gdxw/2021-05-14/detail-ikmxzfmm2338266.d.html?from=wap)
-
-**9.民生银行股价“跌跌不休”，市场发问“还有救吗”？**
-
-[去年下半年以来，民生银行股价一直不见起色，近期随着该行2020年年报和2021年一季报的发布，股价更是开启了新一轮的“跌跌不休”，不少网友甚至公开跟民生银行股票“说拜拜”。事实上，除了在去年年报发布后被市场质疑业绩“大洗澡”之外，一季度民生银行更是成为唯一一家营收、净利润同时大降的上市股份应对行。上交所也对此有所关注，向民生银行“投递”了一封监管工作函。除此之外，民生银行的重要股东也宣布即将“解绑”并拟对民生银行股份进行清仓。](http://finance.sina.com.cn/jinrong/yh/2021-05-07/doc-ikmyaawc3959602.shtml)
-
-**10.被曝篡改开封食材日期 使用隔夜奶浆 蜜雪冰城道歉**
-
-[近日，中国质量新闻网在实地调查过程中发现，蜜雪冰城个别门店存在篡改食材日期标签，随意更改或不记录食材“效期追踪卡”备制截止时间，违规使用隔夜茶汤、奶茶等食材，柠檬表皮不清洗等卫生问题和食品安全隐患。15日，蜜雪冰城发布致歉声明，声明称，旗下门店郑州永安街店、济南大观园店、武汉马湖商业街店存在篡改开封食材日期标签，违规使用隔夜奶茶奶浆半成品的食品安全问题。](https://www.163.com/money/article/GA2ETI8G002580S6.html)
-
-By 【金融组 】
-素材搜集: Totoro
-
-0
++1

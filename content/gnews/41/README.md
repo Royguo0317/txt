@@ -1,31 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【拆台新闻】拆穿央视报道巴以冲突的目的
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1247557/)
+## 慧眼看世界20210516
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1248865/)
 
-作者：【默凡】
+- 制图：透明的遮羞布
+- 编辑：神奇四侠
 
-中共央视网消息：以色列军队15日持续对加沙地带展开空袭，以军称空袭了巴勒斯坦伊斯兰抵抗运动（哈马斯）包括地下火箭发射设施在内的多个军事目标。自14日白天至15日凌晨，加沙地带武装组织向以色列中部和南部地区发射超过150枚火箭弹。一枚火箭弹击中以色列南部阿什杜德港的一个油库，引发爆炸。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16122614/01-23.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16131555/02-31.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16131658/03-18.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16131810/04-23.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16131924/05-26.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16132206/06-62.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16133026/07-14.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16133107/06-67.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16133142/08-24.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16133223/09-10.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16134511/11-57.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16135529/12-59.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16140431/13-36.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16140730/14-29.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16140842/15-27.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16141005/16-28.jpg)
+发稿：神奇四侠
 
-14日，大批巴勒斯坦人在约旦河西岸地区举行示威，声援加沙地带和东耶路撒冷的巴勒斯坦人。示威者与以色列安全部队发生冲突，据巴勒斯坦红新月会说，以军向示威人群发射催泪瓦斯，甚至实弹开火，目前已有11名巴勒斯坦人死亡，另有500多人受伤。以色列方面称，正在调查有关“实弹Q杀”的说法。
 
-联合国公布的最新报告显示，本轮冲突以来，已经有大约1万名巴勒斯坦人被迫离开家园。这些人在学校等地避难，缺少食物和医疗服务，面临人道主义危机。联合国秘书长古特雷斯14日通过发言人表示，冲突有可能为巴勒斯坦被占领土和以色列，乃至整个地区带来不可控的安全和人道主义危机并助长极端主义。
 
-**评论：**
-
-**央视作为中共的喉舌早已被全世界所知晓，中共墙内收看央视新闻的人已经不多了，观众多为中老年人。央视的报道向来都缺乏客观性，数据造假，播报假新闻更是常有的事。央视以上这篇报道中明显有偏向巴勒斯坦的意思，缺乏报道的客观性。**
-
-**央视在这篇报道中有意突出巴勒斯坦平民的惨状，夸大该地区是因为战争才出现人道主义危机，有意给墙内民众造成一种假象：这种惨状是以色列军队袭击造成的。而事实并非如此，哈马斯武装此次率先向以色列发起空袭，这几天已经向以色列发射两千多枚火箭弹，以色列之所以伤亡较少，很重要的原因是得益于以色列拥有“铁穹”导弹防御系统，拦截了大部分火箭弹，这也是以色列科技实力的体现。**
-
-**哈马斯的主动袭击必然招以色列的回击，哈马斯有意将火箭弹发射装置开至居民区进行发射，他们利用当地老百姓为掩护来袭击以色列，这才导致巴勒斯坦人民的伤亡相对惨重，哈马斯才是为当地人民带来灾难的根本原因，并非是以色列。、**
-
-**众所周知，伊朗是哈马斯组织的幕后支持者，而中共又是伊朗背后的支持者，所以巴以冲突并非只和伊朗有关，与中共有非常密切的关系。不排除中共想借此冲突来转移全世界对中共的关注。**
-
-**以色列与美国长期是战略盟友，中共在报道巴以冲突时有意偏向巴勒斯坦，造成强国欺负弱国的假象，这也是在给墙内老百姓洗脑，借此增加老百姓对西方国家的仇恨。**
-
-素材：Peter Wong
-
-本文仅代表作者本人观点，不代表Gnews平台
-
-0
++1
