@@ -1,65 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】报答—— 灵魂深处的低吼
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1250793/)
+## 根据制造商的说法，新型病毒疫苗有效
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1250854/)
 
-作者：纽约香草山健身部 澄道
+信息来源：德国镜报网络版
+发布时间：2021年5月17日
+翻译 /整理/ 简评： Shuizhuyu
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17083717/SAf6Y5cJ0aBpbG.png)
-
-经历再多 岁月穿梭
-难免让人举殇
-对饮独饮或许是想往解脱的报答
-
-人生几何 无关长幼
-妙起童言童谣
-听声品韵一定是心存善感的报答
-
-经励过再大风雨
-七色彩虹现就是亘古的报答
-
-拖死扣诛心锁 无惧生死
-七哥文贵天成就是上仓的报答
-
-响鼓不用重锤敲
-灭共是正义的需要
-这是数劫华夏人的心声——报答
-
-正道务须真战友
-铲毒何止於刮骨疗伤
-这是你我灵魂深处的低吼——报答
-
-幸得霞满人身
-是前世的报答
-
-值遇新中国联邦
-定是今生报答
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06041841/vaccine-scaled.jpg)
 
 
+批准应在今年进行：赛诺菲（Sanofi）和葛兰素史克（GSK）制药公司生产的法英疫苗显然取得了可喜的结果。他可以在对抗突变的过程中发挥作用。
 
-**六四文宣大赛，****欢迎大家踊跃投票****：**[**https://gnews.org/poll/poll-article\_1/**](https://gnews.org/poll/poll-article_1/)
+制造商称，针对赛诺菲和葛兰素史克（GSK）冠状病毒的候选疫苗在II期研究中显示出良好的疗效。因此，该疫苗在所有年龄段均引发了强烈的免疫反应。对批准至关重要的III期研究计划在未来几周内开始。据制造商说，如果一切都按计划进行，那么今年就可以批准该疫苗。
 
-**投票注意事项：第一，比如投票视频，一个账号需要同时选中要投的三个视频作品，方可以投票；第二，因为视频比较大，所以需要大家静待一两分钟，然后进入视频投稿界面。第三，投票的战友也有机会获幸运参与奖啊。**
+与欧盟先前批准的针对冠状病毒的疫苗不同，现在正在测试的产品是基于蛋白质的疫苗。它们的优点是不必将其低温存储并且可以大量生产。另外，它们被认为是可以针对新出现的病毒变种进行刷新的第三方疫苗。
 
-**更多资讯，更多关注**
+简评：新的疫苗又出现了， 新的紧急批准又在路上。 这些医药公司， 这些病毒专家难道耳朵都聋吗？ 我们已经呼喊了一年多了， 病毒是武器， 这个病毒是中共病毒， 是生物武器。 中共手里有解药， 向中共追责吧。 那才是最有效， 危害最小，成本最小，见效最快的途径。
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+发表： Shuizhuyu
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+🔗 [corona-neuartiger-impfstoff-von-sanofi-und-glaxosmithkline-liefert-vielversprechende-ergebnisse](https://www.spiegel.de/wissenschaft/medizin/corona-neuartiger-impfstoff-von-sanofi-und-glaxosmithkline-liefert-vielversprechende-ergebnisse-a-9b03b8fd-01aa-46b6-8b1b-65a2ca75c7b3)
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

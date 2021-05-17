@@ -1,43 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】武汉病毒研究所网站删除了其美国合作伙伴及功能性增强研究
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1250771/)
+## 隐瞒为中共国秘密工作 研究员被判处3年监禁
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1250770/)
 
-配音：香草山录音组 Gtv abeilles（蜜蜂）
+翻译：康州盘古农场 – TrueSky
+校对：康州盘古农场 – Mike Li
+编辑：康州盘古农场 – 格格巫
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+据《华盛顿时报》作者：比尔-格茨，2021年5月14日报道：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17084849/7DF20F70-5677-45EC-B6F5-42C1B8769C1E.jpeg)*这张2019年5月8日的资料照片显示，俄亥俄州哥伦布市的俄亥俄州立大学的标志。(AP Photo/Angie Wang, File)*
+俄亥俄州的一位教授周五被判处37个月的监禁，因为他没有披露由联邦拨款资助的中共国工作，检察官说这是一个免疫学研究项目的欺诈计划。
+
+58岁的俄亥俄州希利亚德（Hilliard）的郑松国（Song Guo Zheng），在11月承认伪造410万美元的美国国家卫生研究院拨款有关的联邦申请，这些拨款被用于发展中共国在风湿病学和免疫学领域的专业知识。
+
+郑某还被命令向美国国立卫生研究院支付超过340万美元的款项，并向俄亥俄州立大学支付41.3万美元，他在俄亥俄州立大学与宾夕法尼亚州立大学联合开展的研究项目中工作。
+
+这位教授是根据司法部的“中共国倡议”被起诉的，该倡议自2017年以来一直在打击作为中共国“千人计划”一部分的非法研究，“千人计划”是中共国政府获取美国高科技和专业知识的计划。
+
+美国大学的几位教授在该倡议中落网，包括哈佛大学化学系主任查尔斯-M-利伯，他也被指控向五角大楼和美国国立卫生研究院撒谎并为千人计划工作。利伯先生不承认认罪。
+
+国家安全部助理检察长约翰-C-德默斯说，“在另一起涉及中共国政府千人计划的案件中，郑松国将在未来37个月的联邦监狱中度过，因为他选择撒谎并向美国研究资助机构隐瞒他参与这一计划的情况，”
+
+“美国的研究资金是由美国纳税人为美国社会的利益提供的，而不是作为给中共国政府的非法礼物，”他说。“当联邦资金被提供给研究时，对美国人民应该保持完全的透明度，我们将继续追究那些选择谎报其与外国政府关系，以试图欺诈性地获得这些资金的人的责任。”
+
+郑于2020年5月在阿拉斯加被捕，当时他正准备登上前往中共国的航班。他携带了三台两台笔记本电脑，三部手机，几个USB驱动器，银条和过期的他全家的中共国护照。
+
+他在被俄亥俄州官员问及未申报的为中共国工作的问题后逃离了俄亥俄州。
+
+联邦调查局反情报局局长艾伦-科勒（Alan E. Kohler）说，郑某隐瞒了他与中共国至少五个研究机构的联系。
+
+科勒先生说：”郑贪婪地拿走了联邦研究经费，并阻止其他人获得支持医学进步的关键研究经费。
+
+郑是一名内科医学教授，负责一个进行自身免疫研究的专家团队。
+
+检察官说，自2013年以来，他一直是“千人计划”的一部分。
+
+原文链接：https://www.washingtontimes.com/news/2021/may/14/researcher-gets-3-year-prison-term-for-covert-chin/
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 
-
-
-
-
-
-据国家脉动5月15日报道，武汉病毒研究所早在2021年初就从其网站上删除了美国国家卫生研究院（NIH）的相关资料——NIH是其研究伙伴之一。而武汉实验室网站的存档版本中显示了一个研究更新：“SARS还会回来吗？”这似乎是在描述由福奇博士的国家过敏和传染病研究所（NIAID）资助的实体在该研究所进行的功能增强研究。
-
-
-
-**文字版原文：[【热点播报】武汉病毒研究所网站删除了其美国合作伙伴及功能性增强研究](https://gnews.org/zh-hans/1248926/)**
-
-作者：纽约香草山写作组 四季
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
