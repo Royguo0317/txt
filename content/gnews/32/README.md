@@ -1,48 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇将在与武毒所密切合作的大学发表毕业典礼演讲
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1249745/)
+## 【健身健心】健身前的准备
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1249809/)
 
-新闻来源：《国家脉动》| 作者：Natalie Winters | 发布时间：2021年5月13日
-
-翻译/简评：Victory | 校对：感恩 | 审核：万人往 | Page：Daoiii
-
-[!\[\]()!\[\](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/611e8748-3616-49c0-9f94-0342be5de752.jpg?asset_id=f3064641-4593-4d3e-8052-92e6ee7459dc&amp;img_etag=%222cbb68e61c4e3b4ec792c491e9a7a738%22&amp;size=1024)](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/611e8748-3616-49c0-9f94-0342be5de752.jpg?asset_id=f3064641-4593-4d3e-8052-92e6ee7459dc&amp;img_etag=%222cbb68e61c4e3b4ec792c491e9a7a738%22&amp;size=1024)
-
-**简评：**
-
-近日来，随着病毒真相被主流媒体逐步揭露。福奇和他的同伙们已经无法再利用其学术地位只手遮天、掩盖事实。上周，福奇在听证会上接受了参议院质询，并在回应中默认了武汉病毒研究所进行了病毒功能增强研究。现在他正在试图撇开自己和中共的关系。同时，我们看到推特上其他一些鼓吹病毒自然来源的所谓科学家也开始转变口风。所谓树倒猢狲散，邪恶势力正在溃败中。
-
-2015年，巴里克曾和石正丽在《自然医学》发表文章，讨论蝙蝠冠状病毒在人类中爆发传播的可能性。他们做过的事，都会有迹可查。这些造成全球病毒浩劫的恶魔，必须接受全人类的审判。
-
-**原文翻译：**
-
-**福奇将在有争议的大学发表毕业典礼演讲，该大学进行与武汉有关的功能增强研究**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/3edbb0b7-53d4-4ddd-899e-4a02dba65ecd.png?asset_id=e5a33868-efdb-4e62-9854-187c2555c7d9&amp;img_etag=%22623044a21167d7cbfeaaef0af212201b%22&amp;size=1024)](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/3edbb0b7-53d4-4ddd-899e-4a02dba65ecd.png?asset_id=e5a33868-efdb-4e62-9854-187c2555c7d9&amp;img_etag=%22623044a21167d7cbfeaaef0af212201b%22&amp;size=1024)
-
-安东尼·福奇博士将在北卡罗来纳大学教堂山分校毕业典礼上发表演讲——该校因其教授与武汉病毒研究所进行功能增强研究而受到抨击。
-
-即将发表的讲话在参议员兰德·保罗（Rand Paul）和国家过敏和传染病研究所（NIAID）所长之间的激烈争论之后进行。这位肯塔基州参议员就北卡罗来纳大学教堂山分校（UNC）流行病学系和微生物学与免疫学系教授拉尔夫·巴里克（Ralph Baric）博士的工作向福奇施压。
-
-“多年来，美国病毒学家拉尔夫·巴里克博士一直与武汉病毒研究所的石正丽博士合作，分享他关于如何创造超级病毒的发现。这项功能增强的研究得到了美国国立卫生研究院的资助。”保罗参议员询问道。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/f69e751c-861a-414a-8f30-67a15b55dc9f.jpg?asset_id=8f074338-5123-4e64-b4c2-f79c802a990d&amp;img_etag=%224d793bbef5628f0ef848d0edd6464a15%22&amp;size=1024)](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/f69e751c-861a-414a-8f30-67a15b55dc9f.jpg?asset_id=8f074338-5123-4e64-b4c2-f79c802a990d&amp;img_etag=%224d793bbef5628f0ef848d0edd6464a15%22&amp;size=1024)福奇的“好朋友”卡罗来纳大学教堂山分校区病毒学家拉尔夫·巴里克（Ralph Baric）
-
-“巴里克博士没有在做功能增强研究，如果有的话，也是根据指导方针进行的，而且是在北卡罗来纳州进行的。如果你看一下拨款和进度报告，这不是功能增强，尽管人们在推特上这么写”福奇后来回应为教授辩护。保罗参议员还指出，福奇是如何作为”少数”不把巴里克的研究列为功能增强的，他引用了超过200名科学家同意这项研究属于该类别。
-
-巴里克博士还参加了武汉病毒研究所的会议，包括2018年的新发病毒性疾病国际研讨会。
-
-🔗[原文链接](https://thenationalpulse.com/breaking/fauci-to-speak-at-controversial-wuhan-linked-uni/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+纽约香草山健身部 Jack Li文阳
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+
+
+
+每个人都想拥有健康美丽的身体，如何开始健身计划，需要在一些方面做好准备，制定运动计划，选择最符合自己情况的运动方式来锻炼身体。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17011552/1-86.png)
+1.咨询医生。健身计划开始前，最好先咨询医生。医生会判断计划是否安全，是否适合你。
+
+- 告诉医生你的健身目标和计划，让医生给出建议。
+- 疼痛和呼吸急促、关节或肌肉疼痛，也要告知医生。
+- 咨询私人健身教练，帮助设定目标、制定计划、并指导你安全地进行各类健身运动。
+
+
+2.设定目标。想要健身目标更容易实现，必须制定更为具体的目标。试试S.M.A.R.T.目标系统。具体（Specific）、可度量（Measurable）、可达成（Attainable）、现实（Realistic）、有时效性（Time-Based）的目标更科学合理，更易实现。[\[1\]](https://zh.wikihow.com/%E5%81%A5%E8%BA%AB#_note-1)
+
+- 还要考虑如何实现目标。
+- 具体训练哪些方面。想身材更好？为参赛而训练？想增强力量还是紧实肌肉？想要减肥？要减多少？多久完成？
+
+
+3.使用记录日志跟踪进展。无论健身的目的是什么，通过记录日志来跟踪进展可以给你带来动力。日志中写上目标和计划，让你专注训练并随时跟踪训练情况。
+
+- 每天或每周追踪进展。如果正在训练16公里赛，可以记录每周跑的里程数。
+- 也可使用台历或图表记录每周或每月的训练计划。
+
+
+4.到健身房或购买健身器械训练。某些健身计划可能需要使用特殊的健身器械。身体锻炼不一定都需要用上健身器械，但是你需要考虑哪种健身器械最有助于实现目标。
+
+- 到健身房健身。多数运动都可以在健身房内进行。健身房里，你既可进行各类有氧训练，力量训练，也可以参加课程。即使用不上要健身房的器械，下雨天或大冷天能在室内锻炼。
+- 如果不喜欢健身房，可以考虑购买一些家用健身器械。可先购买一些小型器械，比如哑铃或者拉力带，也可以购买较为昂贵的器械，比如有氧健身机或家用健身机。
+
+
+校对/发稿：火内
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12223539/5%E6%9C%88.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -1,33 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥说有证据表明新冠病毒源自武汉实验室，中共再次发动生物恐怖袭击风险非常大
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1249575/)
+## 布林肯：美国不会让澳大利亚独 自面对中共的胁迫
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1249721/)
 
-**编辑：文章**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16230449/14-30.jpg)
-据福克斯新闻报道，前美国国务卿迈克-蓬佩奥星期天说，目前所有证据都表明冠状病毒源于中国武汉的一个实验室，**他警告说，该地区放出生物武器和生物恐怖袭击的风险是”非常实实在在的”。**
+翻译: 康州盘古农场 – Mike Li
 
-蓬佩奥向 “周日早晨的未来 “主播玛丽亚-巴蒂罗莫暗示，中共 “掩盖 “了COVID-19的起源。蓬佩奥说：”在我任职国务卿期间，所有我们看到的证据都证明这个病毒来源于武汉病毒研究所的实验室。我没有看到丝毫的反证，但新的证据不断的涌现。”
+校对: 康州盘古农场 – TrueSky
 
-蓬佩奥称，他们的欺骗行径令人震惊。“尽管中共不允许任何人进入实验室、观看原始材料、接触研究人员，**综合我们得到的大量旁证、以及中共对武汉实验室信息的极力掩盖，有力证明了那个实验室就是病毒来源**。”
+编辑: 康州盘古农场 – 傻小子
 
-这位前国务卿还警告说，类似的情况可能在未来发生，并指出了生物战的可能性。
+发布：康州盘古农场 – 彩虹 Rainbow
 
-他说：“正如努涅斯说的，那个实验室或其它的中共国实验室再次类似事件的风险非常大，他们正在进行的实验与他们的管理能力不匹配。”
+**据《路透社》 作者：Daphne PsaledakisSimon Lewis，2021年5月14日报道：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17000347/fewww.png)
+**美国国务卿安东尼-布林肯周四表示，美国不会让澳大利亚独自面对中共的胁迫**
 
+**中共国对美国盟友的这种行为将阻碍美中关系的改善。**
 
+华盛顿多次批评它所称的北京试图欺负有竞争利益的邻国，美国总统拜登试图加强与印太地区盟友的关系，以对抗中共国日益增长的力量。
 
-> ⚡️重磅！蓬佩奥在福克斯直接说：中共再次发动生物战和生物恐怖袭击的风险非常高！
-> 他担任国务卿期间看到的所有证据都指向武毒所实验室来源，没有丝毫证据指向任何其它来源
-> 
-> 僖战薪号 欢迎关注 [pic.twitter.com/NjteioEZdU](https://t.co/NjteioEZdU)
-> — 珠穆朗玛 (@ZanXixi) [May 16, 2021](https://twitter.com/ZanXixi/status/1394077206398193664?ref_src=twsrc%5Etfw)
+布林肯在与来访的澳大利亚外交部长玛丽斯-佩恩举行的新闻发布会上说，“我重申，面对中共国的经济胁迫，美国不会让澳大利亚在球场上孤军奋战，或许我应该说在战场上孤军奋战。，
 
+“而且我们已经向中共国表明，这种针对我们最亲密的伙伴和盟友的行动将如何阻碍我们自己与中共国关系的改善，”布林肯说，他使用的是中共国官方名称的缩写。
 
+随着近年来两国紧张关系的恶化，中共对澳大利亚从葡萄酒到煤炭等出口产品实施了一系列贸易制裁。
 
-**来源**：[Pompeo says evidence suggests coronavirus originated from Wuhan lab, risk of bioterror ‘very real’](https://www.foxnews.com/politics/pompeo-coronavirus-wuhan-china)
+自2020年外交紧张局势恶化以来，历任澳大利亚贸易部长都无法确保与中共国同行通电话，上周中共国政府暂停了与澳大利亚双边经济对话的所有活动。
 
-***校对发布**：文顾*
+出于安全考虑，澳大利亚是最早公开禁止中共国科技巨头华为进入其5G网络的国家之一，并在去年呼吁对COVID-19的来源进行独立调查，这激怒了中共。
+
+佩恩告诉记者，澳大利亚一直很清楚，它希望与中共国建立建设性的关系。
+
+她说：“但我们不会在我们的国家安全或主权上妥协，我们将继续采取行动捍卫这一切。”
+
+文章来源:[https://www.reuters.com/world/asia-pacific/us-will-not-leave-australia-alone-face-china-coercion-blinken-2021-05-13/](https://www.reuters.com/world/asia-pacific/us-will-not-leave-australia-alone-face-china-coercion-blinken-2021-05-13/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
