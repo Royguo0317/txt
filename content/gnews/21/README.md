@@ -1,40 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇 — 川普搞不定他 拜登也搞不定他 国会山也搞不定他
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1249501/)
+## “市值管理”的黑幕成为中共又一把收割利器
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1249629/)
 
-**摘要：在2021年5月12日的盖特视频中，郭先生感叹美国是一个法治国家，国会在过去两三个月间举行了一系列关于中共病毒的听证会，最终一定会把病毒真相搞得清清楚楚；也透露福奇（美国NIH/NIAID主管） “川普搞不定他，拜登也搞不定他，国会山也搞不定他”，但是这正说明美国是法治，不是人治，“什么都讲程序，什么都讲法”。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16222526/Miles_20210512-getter-p2.srt.txt)
-**福奇**** — ****川普搞不定他****拜登也搞不定他****国会山也搞不定他**
+**撰写：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16232232/16.jpeg)
+上周在墙国内，除了四川49中的事情持续发酵之外，金融界也有一件大事，被中共默许，放大在媒体和舆论面前。
 
-**No One Can Hold Fauci Accountable?**
+事件的起因是私募大佬叶飞曝中源家居“坐庄”自家股票。在市场引起的连锁反应，让后者赶紧出来为自己发公告澄清。
 
-更重要的是美国国会，从现在往回看过去两三个月，「举行了」一个一个的听证会全是关于中共病毒的。你去看看国会整个排的表，接下来全部的问询、问话、调查、了解、听证，全部都有关中共的经济、偷盗技术、冠状病毒、疫苗，还有整个2019年年底和2020年年初发生了病毒「流行时」，美国的反应。就是干什么？这就是美国这个国家：不能乱讲话，必须得负责任。病毒来自于何方？美国有没有参与？最终都会搞得清清楚楚。这就这个有法可依的国家，它是一个法治的国家，不是人治的国家人。人治的国家你想说啥说啥，你想干啥「就」干啥。这是真的这个美国国家伟大的地方。
+事情的经过是2021年5月9日10点22分，叶飞通过他的微博（ID：叶飞私募冠军直说）曝出关于中源家居的一则消息，令舆论哗然：
 
-More importantly, the US Congress has held a series of hearings on the CCP virus over the past two or three months. And the congressional schedule of upcoming inquiries, questionings, investigations, and hearings all have to do with the CCP’s economy, technology theft, the CCP virus, and the vaccine, including the US response to the coronavirus pandemic in late 2019 and early 2020. What does this mean? It means that in the US, no one can speak about things without taking responsibility. Where was the virus from? Was the US involved? Eventually, everything will be figured out completely. That makes the US a nation of laws, not a country ruled by the will of a few men. In a country ruled by the will of man, a few elite families will do whatever they want, like the CCP always does. That really makes the US great.
+微博内容指出，中源家居找的市值管理盘方蒲非迪（盘方指的是借钱操作的那一方）赖账，以至于叶飞让他的下家一些公募基金经理和券商资管买了这个股票后，就被套牢，一直跌停，并且盘方赖账不付尾款。一开始说的是锁仓代持保底给保证金，盘方拉升30%以上，结果，不仅不是锁仓，还直接出货。而且，还不付保底的保证金。
 
-就那个福奇，一个美国卫生部长，川普搞不定他，拜登也搞不定他，国会山也搞不定他。这样的人要是在中国，不要说是“习一神”收拾他，随便一个纪委的处长就把他灭100次了，但同样的事情那个处长也能被灭1万次 — 这就是美国这个社会，你想把谁搞死，没有搞死的理由，没有搞死的程序是不可以的。这就是咱们中国人的思维，「比如」在海外，一弄就要“搞死他！搞死他！” — 「全是」文化大革命的遗毒。「不想想如果」你搞死个人那么容易，人家也能搞死你那么容易。这就叫“红色恐怖”啊。所以说兄弟姐妹们你看到美国这个国家什么都讲程序，什么都讲法。
+就这样一件扯皮的事，双方纠缠了两个月，叶飞一边追责盘方无果，一边被下家讨债，这笔交易中，致使叶飞找的托盘方亏损几百万，最终只能通过微博爆料的方式，将内幕公布，剑指上市公司，并威胁若不能获得妥善解决，就要实名举报中国证监会和案发现场的公安经侦。
 
-With respect to that Fauci, the Director of NIAID in the US, Trump could not handle him, nor could Biden or the Capitol Hill. If he were in China, any director of the Discipline Inspection Commission would be able to dispose of him 100 times, not to mention the “great god Xi”. But equally, any director can also be disposed of by others 10,000 times. So, it is impossible to target anyone without a legitimate reason or without following a proper procedure in the US, whereas in overseas Chinese people’s minds, it is so easy to say “let’s screw someone”. It is a maddening and stubborn mental illness planted in our Chinese by the Cultural Revolution. If you can easily screw others, they can also easily take you down. Then it called the “Red Terror”. So, brothers and sisters, you should see that the US is a country where everything needs to follow the law and procedures.
+这是典型的发生在中共治下社会的狗咬狗一嘴毛事件，**其实在A股市场上，上市公司出钱寻找托盘方以“市值管理”名义炒高股价是业内的潜规则**，但因为上层监管的睁一只眼闭一只眼，均未有具体实证案例。叶飞的此番爆料，可谓捅破在资本市场间的一层窗户纸，立即引起广泛关注。因为从证券法来看，操纵股价会被惩罚甚至有刑事责任，叶飞的爆料，无疑会牵扯一大波具有类似护盘行为的企业和资方。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/609bef6337f7f73984cae322](https://gtv.org/getter/609bef6337f7f73984cae322) (1:54-3:42)
-鸣谢：
-[1] 感谢Antsee-GTV、TING GUO、文惜和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://gnews.org/zh-hans/1233493/](https://gnews.org/zh-hans/1233493/) 
-[2] 感谢Antsee-GTV、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于 [https://gnews.org/1239592/](https://gnews.org/1239592/)
+2021年3月31日，中源家居股价开始出现异常。当日还以每股30元高开，到2021年4月6日，中源家居股价跌破20元，也就是说短短四个交易日，股价跌去三分之一。再次期间，上市公司并没有任何不利消息传出，该版块也一切正常，那背后就一定有人在大量出货砸盘。
 
-* * *
+虽然叶飞第一时间提供了出警记录，显示背后黑手是莘天使基金管理（深圳）有限公司的蒲菲迪，但从现有证据，和中源家居的对外公告，都没有显示蒲菲迪与中源家居的明显关联。
 
-字幕：【Rock小哥】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+此案立刻获得证监会的回应。根据路透北京5月16日报道，中国证监会周日表示，从严从快从重打击包括恶性操纵市场、内幕交易等在内的各类重大违法行为，持续净化市场生态。针对近期媒体报导有相关方涉嫌合谋实施不法行为等问题，根据交易所核查情况，决定对相关账户涉嫌操纵利通电子、中源家居等股票价格立案调查。
 
-+1
+证监会网站刊登新闻稿表示，将对恶性操纵市场等违法违规行为持续保持“零容忍”态度，重拳打击肆意妄为、逃避监管的各类操纵市场行为，对于上市公司及实控人、私募基金、公募基金等相关机构和个人从事或参与的，将会同公安机关依法彻查严处。
+
+又是一起典型的中共秋后算账的经典案例。从中源家居的案例中看到，这条涉及“市值管理”的产业链非常流畅和完备。由上市公司提出“市值管理”的请求，然后盘方接单，为了操纵股价，盘方再找一个中间人打配合，这个中间人再找下游的具有证券交易资格并有管理规模的资方进行互动交易，通过股价的操纵，吸引其他散户和机构入场，最后脱手获利。
+
+**从证监会发布的新闻稿看出，即将受到严惩的各方有上市公司以及实际控制人、私募与公募基金的机构和参与个人，但唯独没有监管方本身**。既然操纵股价是明文规定的法律禁区，但在中共国却成为一项潜规则，成为上市公司利用股价获利的普遍做法，那么监管失职的责任又有谁去追究，造成的无辜股民的亏损，又让谁来买单。
+
+**其实这则股票黑幕的自爆，很有可能是中共高层收割上市公司和相关基金的一种方式**。在中共国，国有企业是不需要市值管理的，因为股价的高低和企业高管没有太大关系，真正在乎股价的是民营企业的实际控制人，无论是急于套现也好，还是对股东负责也好，找人护盘就是再正常不过的做法了，而私募和公募基金的钱来源哪里？说白了，还是那些有理财需求的个人，整个事件中被制裁的最终都是个人，对于国有企业和监管方，毫发无损。
+
+况且当“市值管理”成为业内常态的时候，只要“中源家居”一个案例成为板上钉钉的事，接下去，中共想对谁动手都是合情合理。那么那些实际利益受损的股民和投资理财的个人，又将是一地鸡毛，无处申诉。
+
+（本文只代表作者观点，与Gnews平台无关。）
+
+**新闻来源：**
+1、[中国证监会对相关账户涉嫌操纵利通电子、中源家居等股票行为立案调查 | 路透 (reuters.com)](https://cn.reuters.com/article/china-csrc-stock-market-manipulation-051-idCNKCS2CY02R?il=0)
+2、[私募大佬叶飞曝中源家居“坐庄”自家股票，后者紧急公告澄清|私募大佬*新浪财经*新浪网 (sina.com.cn)](https://finance.sina.com.cn/chanjing/gsnews/2021-05-14/doc-ikmxzfmm2489203.shtml)
+
+***校对发布**：文顾*
+
+0

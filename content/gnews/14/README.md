@@ -1,41 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】病毒无惧疫苗，继纽约洋基队8人确诊后，泰国女排全队感染
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1249601/)
+## 美华裔研究人员隐瞒其参与“千人计划”被判入狱
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1249768/)
 
-作者：纽约香草山健身部  Jack Li文阳
+新闻来源：《国家脉动 The National Pulse》| 作者：Natalie Winters | 发布时间：2021年5月15日
+
+翻译/简评：大和凯多 | 校对/审核：万人往 | Page：Daoiii
+[!\[\]()!\[\](https://spark.adobe.com/page/vxQv5OTNoD98q/images/720a59b1-3c4a-4585-bc4c-aa6a058fd3f4.png?asset_id=03dbcf34-9286-4dfe-90e7-a858d7a32ac3&amp;img_etag=%22d9f3db14148722c0711af66b31f1b13a%22&amp;size=1024)](https://spark.adobe.com/page/vxQv5OTNoD98q/images/720a59b1-3c4a-4585-bc4c-aa6a058fd3f4.png?asset_id=03dbcf34-9286-4dfe-90e7-a858d7a32ac3&amp;img_etag=%22d9f3db14148722c0711af66b31f1b13a%22&amp;size=1024)
+**简评：**
+
+美国俄亥俄州立大学前教授郑颂国曾向美国国立卫生研究院申请410万美元研究经费，为中共国进行风湿病学和免疫学领域的研究。因其隐瞒参与中共“千人计划”项目以及其它中共国机构的身份被判处37月监禁，并罚款数百万美元。
+
+美国司法部公布，郑颂国于2020年5月22日半夜被捕，当时他在搭乘一架包机抵达阿拉斯加州的安克雷奇，准备登上另一架包机逃往中国。他当时携带三个大袋、一个小行李箱和一个手提箱，内有两台便携式电脑、三部手机、几个USB盘、几块银条、家人的过期中国护照、在中国的房契和其它物件。
+
+郑颂国原籍安徽池州，毕业于安徽医科大学和上海医科大学。1999年由复旦大学上海医学院研究生结业后，赴美国从事博士后研究工作。2013年参加了中共“千人计划”。2014年被聘为华中科技大学同济医院的客座教授。2014年起担任中山大学教授。曾供职于广州中山大学附属第三医院、同济医院等单位。郑颂国还曾在法国奥尔良大学暨法国国家科学中心攻读并获得分子免疫学博士学位。1999-2002在美国加州大学洛杉矶分校(UCLA)医学院和美国南加州大学(USC)医学院从事博士后研究，期间在NIH担任短期访问科学家。2003-2012年任美国USC助理教授、副教授和免疫耐受和调节中心主任、USC大使和大学教授晋升委员会委员。兼任法国国家科学研究中心正教授。2013-2014任美国宾夕法尼亚州大学（PSU）终身正教授，自身免疫性疾病研究中心主任等。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/vxQv5OTNoD98q/images/95e1b9d5-5e09-471e-baf2-11e36a407ceb.png?asset_id=b646d017-33d3-4ee9-8e50-1ccf340620e7&amp;img_etag=%22f9090bbd07110bb1f8570104ac1e4d2f%22&amp;size=1024)](https://spark.adobe.com/page/vxQv5OTNoD98q/images/95e1b9d5-5e09-471e-baf2-11e36a407ceb.png?asset_id=b646d017-33d3-4ee9-8e50-1ccf340620e7&amp;img_etag=%22f9090bbd07110bb1f8570104ac1e4d2f%22&amp;size=1024)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/vxQv5OTNoD98q/images/853281aa-ec58-4869-9aaa-3a10d46ce08a.jpg?asset_id=90f33d9f-ff6e-4e6a-9f7d-b14517c1fb5d&amp;img_etag=%221329f94a01dc9bbd137be1262bb8e831%22&amp;size=1024)](https://spark.adobe.com/page/vxQv5OTNoD98q/images/853281aa-ec58-4869-9aaa-3a10d46ce08a.jpg?asset_id=90f33d9f-ff6e-4e6a-9f7d-b14517c1fb5d&amp;img_etag=%221329f94a01dc9bbd137be1262bb8e831%22&amp;size=1024)图片来源网络，郑颂国（又）在国内被授予各种“荣誉”“教授” “主任”头衔
+
+我们可以从郑颂国在海外的履历中不难发现，中共这么多年在海外“蓝金黄”的轨迹。郑颂国和魔鬼做交易还想落个好下场，痴人说梦！就算郑颂国逃到了中共国，身上藏了这么多秘密，也不会有个好结果。希望更多的人能从郑颂国的事件中认清中共的本质，亡羊补牢，为时未晚，现在反悔还来得及。
+
+**原文翻译：**
+
+## 美国国立卫生研究院（NIH）资助的研究人员隐瞒与中共关系被判入狱，罚款数百万
+
+[!\[\]()!\[\](https://spark.adobe.com/page/vxQv5OTNoD98q/images/bebf75d1-9ec4-49db-8329-d33e47d9f1d7.jpg?asset_id=514064f0-b2f4-44c4-860a-db258bbc1782&amp;img_etag=%22b42612d5cbb0ca7e0cc2bb7259de2a0f%22&amp;size=1024)](https://spark.adobe.com/page/vxQv5OTNoD98q/images/bebf75d1-9ec4-49db-8329-d33e47d9f1d7.jpg?asset_id=514064f0-b2f4-44c4-860a-db258bbc1782&amp;img_etag=%22b42612d5cbb0ca7e0cc2bb7259de2a0f%22&amp;size=1024)
+
+**一位获得美国国立卫生研究院（National Institutes of Health）资助的研究员未澄清其与中共的关系被判处37个月监禁和数百万美元的罚款。**
+
+俄亥俄州立大学（OSU）的前教授郑颂国对他在美国国立卫生研究院（NIH）的资助申请中撒谎表示认罪。该申请使他获得了410万美元的研究经费为中共国发展风湿病学和免疫学领域。去年5月，他在企图逃离美国时被捕。
+
+郑颂国被判处37个月监禁，并向美国国立卫生研究院赔偿340万美元，向俄亥俄州立大学赔偿约41.3万美元。
+
+美国联邦调查局反情报部门助理主任艾伦·科勒（Alan E. Kohler Jr.）在一份声明中说：“多年来，被告一直隐瞒其在中共国政府人才项目的工作，并隐瞒了他与中共国至少五家研究机构的隶属关系。”（译者注：郑颂国是中共“千人计划”成员之一。）
+
+🔗[原文链接](https://thenationalpulse.com/breaking/nih-researcher-sentenced-for-ccp-ties/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14021704/logo-1.jpg)
-
-
-
-继美国洋基队爆出8人完整接种疫苗后，仍被检测出感染新冠病毒后，近日又有报道，泰国女排26人接种疫苗后，再检测出感染新冠病毒。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16232226/1-80.png)
-原本打算前往意大利，参加世界排球联赛的泰国女排国家队，于12 日进行参赛前的核酸检测，结果令人大吃一惊，其22 名球员和随队人员全都呈阳性，无缘世界排球联赛。事情发生后，所有感染人员被送到医院治疗，之后泰国女排再增加4人确诊，为 26 例。
-
-纽约洋基队周四表示，该队已经有8位成员新冠肺炎检测呈阳性，其中包括游击手 Gleyber Torres ，他是在半年内第二次感染病毒。此外三名教练，以及球队的四名随行人员的检测也都呈阳性。本周确诊的8人都接种过疫苗，而且已经超过所谓的疫苗发挥保护力的14天以上，但还是无法避免受到感染。另据报道，NBA球队也有3名球员完整接种后确诊感染。
-
-对于泰国女排集体感染事件，泰国国家疫情管理中心发言人塔威实医生表示，即便接种了疫苗，也无法保证不会感染。此群体感染事件，可以证实如果防疫措施松懈，一定会造成感染，希望各方吸取教训。
-
-据美国CDC的数据显示，有超过5800人接种后仍感染新冠病毒。仓促上马的各国新冠疫苗，因为无足够的动物和人体试验数据证明，所以仍无法知道其长期对人体有何危害。况且还有这么多的接种后感染的案例，疫苗既不防病毒，还要冒未知的风险，因此，我们要小心疫苗给人们造成的二次伤害。不但要防病毒，还要远离疫苗。避免病毒靠自律，小心防范。消灭病毒，靠追查病毒真相，找出真凶，以毒灭共，才能还世界和平安宁。
-
-参考阅读：http://www.myzaker.com/article/60a0d92132ce40a49f000036
-
-校对/发稿：火内
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15014027/5%E6%9C%88-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
-
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[!\[\]()!\[\](https://spark.adobe.com/page/vxQv5OTNoD98q/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/vxQv5OTNoD98q/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
 0

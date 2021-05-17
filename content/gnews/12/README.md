@@ -1,43 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美媒报道：武毒所2021年初删除了NIH和提及功能增强内容的网页
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1249563/)
+## 布林肯：美国不会让澳大利亚独 自面对中共的胁迫
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1249721/)
 
-作者：纽约香草山健身部  Jack Li文阳
+翻译: 康州盘古农场 – Mike Li
 
+校对: 康州盘古农场 – TrueSky
 
+编辑: 康州盘古农场 – 傻小子
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14021704/logo-1.jpg)
+发布：康州盘古农场 – 彩虹 Rainbow
 
+**据《路透社》 作者：Daphne PsaledakisSimon Lewis，2021年5月14日报道：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17000347/fewww.png)
+**美国国务卿安东尼-布林肯周四表示，美国不会让澳大利亚独自面对中共的胁迫**
 
+**中共国对美国盟友的这种行为将阻碍美中关系的改善。**
 
-据国家脉动报道，2021年3月21日后，中共国武汉实验室的网站删除了六个美国研究伙伴：阿拉巴马大学，北德克萨斯大学，生态健康联盟（EcoHealth Alliance）,哈佛大学，美国国立卫生研究院（NIH）和美国国家野生动物联盟（the National Wildlife Federation）内容的网页。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16230118/1-79.png)
-武汉实验室网页还显示了一项研究更新 [“ SARS会回来吗？”](https://web.archive.org/web/20200212011902/http:/english.whiov.cas.cn/News/Events/201512/t20151204_157114.html)(“[Will SARS Come Back?”](https://web.archive.org/web/20200212011902/http:/english.whiov.cas.cn/News/Events/201512/t20151204_157114.html))  ，似乎描述了由福奇博士（Anthony Fauci）的国家过敏和传染病研究所（NIAID）资助的机构在该研究所进行的”功能增强性”研究。但是，一天后，该页面被进行了修改，只包含两个研究[伙伴](https://web.archive.org/web/20210322053537/http:/english.whiov.cas.cn/International_Cooperation2016/Partnerships/)：生态健康联盟和阿拉巴马大学。到3月23日，合作伙伴栏里只剩下生态健康联盟（EcoHealth Alliance）。生态健康联盟是由与中共长期合作的彼得 · 达杂克（Peter Daszak）领导，他曾多次宣称自己将成为武汉实验室[崩溃](https://thenationalpulse.com/exclusive/fauci-daszak-ecohealth-ties/)的第一位“落马者“。
+华盛顿多次批评它所称的北京试图欺负有竞争利益的邻国，美国总统拜登试图加强与印太地区盟友的关系，以对抗中共国日益增长的力量。
 
-武汉病毒研究所（武毒所）被追查其就是新冠病毒的[来源](https://www.foreignaffairs.com/articles/china/2021-03-31/what-who-investigation-reveals-about-origins-covid-19)，以及NIH可能将美国纳税人的钱提供给武毒所用于病毒研究之后，武毒所作出了从其网页删除NIH等组织的决定。在对福奇博士的参议院听证会中，兰德 · 保罗参议员也问到福奇博士武毒所掩盖秘密信息的问题，福奇极力地要把他的组织与武汉实验室划清界限。
+布林肯在与来访的澳大利亚外交部长玛丽斯-佩恩举行的新闻发布会上说，“我重申，面对中共国的经济胁迫，美国不会让澳大利亚在球场上孤军奋战，或许我应该说在战场上孤军奋战。，
 
-除了在NIH和武汉病毒研究所之间建立工作关系之外，该网站[现在已删除的](http://english.whiov.cas.cn/News/Events/201512/t20151204_157114.html)网页还详细介绍了武汉实验室进行了病毒的”功能增强性”研究。福奇向保罗参议员解释：“美国国立卫生研究院从开始至今没有资助武汉病毒研究所的”功能增强性”研究。”
+“而且我们已经向中共国表明，这种针对我们最亲密的伙伴和盟友的行动将如何阻碍我们自己与中共国关系的改善，”布林肯说，他使用的是中共国官方名称的缩写。
 
-武汉病毒研究所与北卡罗来纳大学（UNC），哈佛医学院，贝林佐纳微生物研究所等的合作工作摘要，将科学家的工作描述为“制造并定性嵌合病毒”。并备注他们是如何修改病毒“在原代人气道细胞中有效复制并达到与SARS-CoV流行株等效的体外滴度”。文章总结说：“基于这些发现，他们合成了感染性全长SHC014重组病毒，并在体外和体内显示出强大的病毒复制能力。”
+随着近年来两国紧张关系的恶化，中共对澳大利亚从葡萄酒到煤炭等出口产品实施了一系列贸易制裁。
 
-5月14日，包括巴里克的25位美国顶级科学家在《自然科学》杂志发布了一封联名信，要求WHO彻查武汉病毒研究所，这表示象巴里克、利普金这些和中共有勾结的科学家都要跳船了。包括福奇，被拉到参议院做听证，被追究当年有否资助中共作”功能性增强性“试验，现在连福奇也要急着和中共切割了。美国科学界要和中共划清界限，政治两党联合抗共，左媒右媒争相报道武汉病毒所和病毒追责真相。西方世界原来与中共纠缠不清的人，都想华丽转身，站在正义一边。中共因为病毒问题，就像一个雷，谁都不想传到最后，爆在自己手上。
+自2020年外交紧张局势恶化以来，历任澳大利亚贸易部长都无法确保与中共国同行通电话，上周中共国政府暂停了与澳大利亚双边经济对话的所有活动。
 
-参考阅读：https://thenationalpulse.com/exclusive/wuhan-lab-erases-nih-ties-gof-research/
+出于安全考虑，澳大利亚是最早公开禁止中共国科技巨头华为进入其5G网络的国家之一，并在去年呼吁对COVID-19的来源进行独立调查，这激怒了中共。
 
-校对/发稿：火内
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15014027/5%E6%9C%88-1.jpg)
-**更多资讯，更多关注**
+佩恩告诉记者，澳大利亚一直很清楚，它希望与中共国建立建设性的关系。
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+她说：“但我们不会在我们的国家安全或主权上妥协，我们将继续采取行动捍卫这一切。”
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+文章来源:[https://www.reuters.com/world/asia-pacific/us-will-not-leave-australia-alone-face-china-coercion-blinken-2021-05-13/](https://www.reuters.com/world/asia-pacific/us-will-not-leave-australia-alone-face-china-coercion-blinken-2021-05-13/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
-
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
