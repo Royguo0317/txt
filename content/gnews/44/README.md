@@ -1,57 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 诗歌：不要做中国人的母亲
-` 左媛专栏` [轉載自GNews](https://gnews.org/zh-hans/1250107/)
+## 在中共国，规则只是既得利益者的推脱借口
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1250211/)
 
-作者: 左媛
+字幕听译：乐禧禧 | 字幕PR： CharlesS | 字幕： 雨中漫步 | 评论：Hope |评论翻译 :PollyEsther| 翻译PR: Marialu| 审核: CharlesS | Page: 小雨
 
-不要做天安门的母亲
-担架上的滴血早已暗红
-伴着母亲心碎泪流千行
-年轻的儿女们魂铸永恒《国殇》
+盘古时间2021年4月28日，在贵州金钟奖古筝比赛贵州选拔赛现场，有学生公然对现场评委打分不符合规矩提出质疑，然而评委现场的回呛让人咂舌。
 
-不要做汶川的母亲
-废墟里的书包
-成了母亲唯一的念想
-年幼的孩子们被挂在了墙上
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17051014/%E5%9B%9B%E5%B7%9D%E5%9C%B0%E9%9C%87%E8%B6%85%E5%94%90%E5%B1%B1%E5%9C%B0%E9%9C%87-1.jpg)
-不要做天津消防队的母亲
-巨响烈焰吞噬房屋肉体瞬间气化
-战士们被迫“英勇逆行”
-魔鬼的赞歌不顾母亲一夜鬓染白霜
+“规则不对就不要参加！”，可规矩，究其根本，是在一个相对公正的环境下制定出的约束法则，且对所有人都有效。但如果有人在看似客观公正的情况下肆意妄为，打破了规则，更没有人来监督，那规则还成立吗？他难道不是某些既得利益者一遇事最好的借口推脱吗？而整个中共国，不止一两场比赛中无“规则”……
 
-不要做“红黄蓝”的母亲
-昂贵学费买来的是老爷们“双修”
-花骨朵儿被毒爪摧折掏宫
-母亲暗自神伤而老爷依旧风光
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-不要做武汉大学生的母亲
-那些失踪的帅气男生
-你无法知道他去了何方
-政府没有声音你也魂魄失丧
 
-不要做香港的母亲
-铁蹄下的虐杀让孩子们透唔到气
-梓乐的笑眼令呜咽漂满香江
-避邪魔母亲携儿远走他乡
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17051157/49%E4%B8%AD-1.jpeg)
-不要做中国人的母亲
-早上你送活泼的孩儿上学堂
-下午你接回的可能是骨灰
-不要做中国人的母亲
-你的身体被领导看上
-他需要的时候你还得把儿女奉上
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-不要做中国人的母亲
-他们说“共产党打江山”
-他们说“人民就是江山”
-中国人的母亲早已被打得遍体鳞伤
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17045458/%E4%BA%BA%E6%B0%91%E5%B0%B1%E6%98%AF%E6%B1%9F%E5%B1%B1.jpg)
-2021.5.16 于纽约
 
-（本文仅代表个人观点）
-
-封面图片：来自网络
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/04/30203611/QRcode_GGB_v2-1.jpg)
-+2
+0
