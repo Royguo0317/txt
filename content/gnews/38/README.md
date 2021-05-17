@@ -1,56 +1,208 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共的黄金储备数据全是假的！数字人民币21次测试全部失败！
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1249878/)
+## 2021/05/17 英喜时事速递
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1249995/)
 
-**摘要：在2021年5月11日的盖特视频中，郭先生说一位统计局的战友爆料中共黄金储备数据是假的，上万亿的银行票据不知所踪，外汇只有入没有出的数据，可是无人敢查，这个国家只有破产的命运。更厉害的是中共的数字人民币21次测试全部失败，区块链变黑洞，中共被重金挖回去的搞区块链的海归给骗了！**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17011427/Miles_20210511_getter-p2.srt.txt)
-**中共的黄金储备数据全是假的！数字人民币****21****次测试全部失败！**
+收集：Alicia，Cindy，Daniel，Filon，飞翔的鹰，感言，文大石
+*（世界协调时）部分信息收集于网络世界的各方，请自行甄别*
 
-**CCP’s Gold Reserve Data Are All Fake! 21 Tests on Digital RMB All Failed!**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17041259/dee-005-e1612867348577-3.jpg)
 
-第二个，「关于」黄金储备。统计局报「告」黄金储备，因此被抓了好几个头儿。全国各地黄金储备从来没被认真统计过，只看下面报「的数据」。听说，「但」不知道哪位，咱就别「明」说了，一位副总理说：“中国的黄金储备应该有个核实了。”委托统计局、国家安全生产办、国安委派出小组去统计全国的黄金。
+## 澳喜农场Gnews：[巴以冲突是宪政民主与暴政体系的冲突](https://gnews.org/zh-hans/1247196/)
 
-The second issue is related to gold reserves. Several heads of the Bureau of Statistics have been arrested due to the matter of gold reserve reporting. Gold reserves across the country have never been carefully counted. They just look at the data reported by their subordinate units. I heard this but I cannot reveal the name now. A deputy prime minister said: “We should verify China’s gold reserves.” So, he entrusted the Bureau of Statistics, the Work Safety Committee of the State Council, and the National Security Commission of the CCP to send a team to count the country’s gold reserves.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16012428/16211426301.png)
 
-统计完傻眼了，事实上的黄金跟每年所报的数字差距巨大。一说“巨大”的时候大家记住，就是用百「倍」来算了，不是百以下了。就像「在」中国犯罪，「如果说」：鉴于犯罪情节极为严重，影响巨大……这就往10年以上整了，甚至往无期徒刑、死刑整你了。一说“巨大”就从百「倍差距」开始「算了」，严重不严重？
 
-They were dumbfounded after the tallying. There is a huge gap between the actual gold reserves and the figures reported every year. When it comes to “huge”, everybody should remember: this means that the gap is a factor of a hundred times or more. Just like a crime in China, when you hear: “given the seriousness of the crime and the huge impact,” that means the criminal will be sentenced to more than 10 years, even life imprisonment, or the death penalty. When you hear the word “huge,” just start with a hundredfold difference. Isn’t this serious?
+> 评论：暴权对人民的统治和压榨本性，使其如何掩饰最终都会暴露反人类意图。靠压制人性才能执政的暴政，必然敌不过被民主体制铜墙铁壁保护下的广大人民。
 
-这位咱们统计局的姐们儿说：“七哥，你讲民生「银行」的事情引起了巨大的轰动。民生银行的票据业务「涉及」多少钱，七哥？1.7万亿人民币！「而且」找不着找去哪儿「了」。钱可能去这儿，有可能去那儿，也可能去上边儿……这事儿竟然没人想去查，荒唐到什么程度？”这1.7万亿人民币没了，上去了，还是下边儿，还是这儿，对吧？没人想查。没人想查的背后掩藏着什么？「仅」上海银行一家，「她说」：“7哥你不知道吧？「仅」这一家「银行」就1万亿人民币的票据找不着「了」。不敢贴现，不敢核实，不敢统计，也不敢查。”
 
-This sister-in-arms from the Bureau of Statistics said: “Brother Miles, your talk about Minsheng Bank has created a big stir. How much does Minsheng Bank’s bank note business involve, Brother Miles? 1.7 trillion yuan. And the money cannot be found anywhere. The money may go here, go there, or it may go to higher up people. Nobody wants to investigate this matter, how absurd?” The 1.7 trillion yuan is gone. Did it go up, go down, or is it still here? Nobody wants to investigate. What is hidden behind this situation? “Just at the Bank of Shanghai alone,” she said, “You can’t imagine, Brother Miles, just in this bank alone, 1 trillion yuan of bank notes cannot be located. They dare not to discount, verify, count, or investigate.”
+## 澳喜农场Gnews：[“躺平”一族盛行，年轻一代正被共产党扼杀](https://gnews.org/zh-hans/1247454/)
 
-兄弟姐妹们，「你们」去想想这个国家还能四个自信吗？给世界开药方？拯救全世界？统治全世界？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16040420/%E5%9B%BE%E7%89%87PPT%E5%8F%98PNG-12.jpg)
 
-Brothers and sisters, do you think this country can still have “Four Self-confidence (CCP propaganda meaning confidence in the path, theory, system, and culture of socialism with Chinese characteristics)”? Provide a solution to the world? Save the whole world? Rule the whole world?
 
-然后「她」给我讲了一个「事儿」让我离开这几年，我「都」觉得「对」中共的把握越来越「连」我都害怕了，比我想的比我知道的还可怕。她说：“七哥，你去好好看一看数据，所有人民银行公布的都是外汇流入，贸易额增长「数据」。「有没有」公布过中国的几大指标：外汇流出、中国的外债数据 –「包括」贸易下的外债，还有真正金融领域的外债「数据吗」？”她说：“折腾折腾这个国家就是个破产的国家。”
+> 评论：看破中共统治幻象的新一代年轻人，正在焦虑迷茫中或寻找或踌躇破局的方法，现在只需一道正义的希望之光，中国被压抑的年轻人会向海绵一样拼命的吸取自由的味道。而新中国联邦传播真相拯救民族会是他们可信赖被认可的正义团体。
 
-Then she told me something horrific. After I left China for a few years, I became more and more unsure about my understanding of the CCP. It was more terrifying than what I thought and what I knew. She said, “Brother Miles, please take a good look at the data. The only thing the People’s Bank of China publishes is data on foreign exchange inflows and trade volume growth. Have they published any major indicators related to China, such as foreign exchange outflows, China’s foreign debt, including foreign trade debt? Is there any real foreign debt data in the financial sector?” She said, ” With all its self-inflicted mistakes, this country will be a bankrupt country.”
 
-然后更可怕的把我吓住了：DCEP「这个」共产党发展的「号称」世界上最牛叉的数字人民币。「她说」：“七哥你知道吗？连续21次测试全面失败。”「共产党」想绝对中心化！区块链最重要的就是你得通知全世界有你的货币，所以是不可逆转的，绝对安全的。「但」共产党想把它「的数字人民币系统」全部控制「起来」，谁也不能知道只有「它自己」知道。结果钱发出去没了，收不回来了，这叫“断区块链”，「或叫」区块链黑洞。「共产党」解决不了「这个问题」。当时最牛的在国外回去这些人在数字人民币上所有人都骗了中共。
+## 墙内心声Gnews：[【墙内404】为什么美帝官员从来不访贫问苦？](https://gnews.org/zh-hans/1245729/)
 
-Then something frightened me even more: DCEP, the CCP-developed digital RMB, which is also what they thought would be the world’s most awesome system. She said, “Brother Miles, did you know, they have failed 21 consecutive tests?” The CCP wants absolute centralized control of DCEP. The key feature of the blockchain is that you must inform the whole world about your currency[’s transactions], so it is irreversible and absolutely secure. But the CCP wants to control all its digital RMB. No one can know anything about it, except the CCP. But the money end up disappeared after being sent out, and cannot be recovered. This should be called a broken blockchain or a blockchain black hole. The CCP still cannot solve this problem. Back then, the most talented people were recruited from overseas and went back to China. All these people cheated the CCP on the digital RMB.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15134003/00-3.jpg)
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/609a981537f7f73984ca8ce3](https://gtv.org/getter/609a981537f7f73984ca8ce3) (0:33-3:39, 6:13-7:20)
-鸣谢：
-[1] 感谢Antsee-GTV、TING GUO、文惜和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于[https://gnews.org/zh-hans/1233453/](https://gnews.org/zh-hans/1233453/)
-[2] 感谢YY、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于[https://gnews.org/1239522/](https://gnews.org/1239522/)
 
-* * *
+> 评论：美国官员是公仆，人民是主人。 美国会在制度的设计上主动服务改善着穷人生活的保障，而中共国穷人就真的只有在中共领导需要自吹的时候才会被拿来使用。
 
-**字幕：【JennyL】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-+1
+## 纽约香草山农场Gnews：[【世事解评】来自中共的渗透——特洛伊木马](https://gnews.org/zh-hans/1247408/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16031148/%E5%9B%BE%E7%89%873-43.png)
+
+
+> 评论：美国之音报道德州参议员正设法阻止一项有中共国参与资金控制的美国子公司投资当地风力项目，担心其目的是从事间谍活动。中共以合资方式渗透美国的手段，在美国渐渐清醒过来的意识下将走入末路。
+
+
+## 秘密翻译组Gnews：[包藏祸心的数字人民币](https://gnews.org/zh-hans/1239567/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13185355/capture-16.jpg)
+
+
+> 评论：对中共政府的愈加的不信任，加剧了人们对其推行货币政策的抵制。而试图以数字人民币挑战美元的意图，也早以被美国识破和提防。
+
+
+## 国务委员兼外长王毅将主持联合国安理会巴以冲突问题紧急公开会
+
+![王毅主持联合国巴以冲突公开会-搜狐大视野-搜狐新闻]()![王毅主持联合国巴以冲突公开会-搜狐大视野-搜狐新闻](https://p8.itc.cn/q_70/images01/20210517/2df2ebe73de0400886d25635aeef0cc6.jpeg)
+
+
+> 评论：CCP哪有资格在联合国安理会上做轮值主席，这么邪恶的一个政党，绑架14亿自己国民当猪养来延续自己的“血色江山”，巴以冲突的背后，CCP又暗中帮助巴勒斯坦独裁组织，联合国现在就是个笑话，让一个共产主义幽灵做主席处理世界矛盾。
+
+
+## 台湾疫情暴发引发抢购，口罩秒涨50新台币，顾客傻眼店员也愣：昨天才涨过价！
+![台湾疫情暴发引发抢购，口罩秒涨50新台币，顾客傻眼店员也愣：昨天才涨过价！_网友]()![台湾疫情暴发引发抢购，口罩秒涨50新台币，顾客傻眼店员也愣：昨天才涨过价！_网友](https://p9.itc.cn/q_70/images03/20210516/597005d6817e4149b4498fb698ec8d57.png)
+
+> 评论：CCP这次又在台湾放毒，这种无耻行径都无法用语言来形容，天灭中共！
+
+
+## 丁隆：巴以冲突失控是美国种下的恶果
+
+![多国媒体聚焦巴以冲突急剧升级]()![多国媒体聚焦巴以冲突急剧升级](https://rs1.huanqiucdn.cn/dp/api/files/imageDir/d8a1b02edbfa4a859350bf74bf80ac5b.jpg)
+
+
+> 评论：充当CCP的笔杆子，恶做多了没有好结果的，美国背起了世界上独裁国家的大黑锅，真是有苦难言，巴以这次冲突，最开心的就算是CCP了，在中东分散美国精力，放病毒把世界搞乱，CCP他自己在乱中取胜。
+
+
+## 中国入世20年：为维护多边世界做出重大贡献
+
+![]()![](https://p0.itc.cn/q_70/images03/20210515/85be0a69604d4490b706c7605ff3376a.jpeg)
+
+
+> 评论：入世20年，中共国CCP制定了潘多拉盒子13579（一种生物武器、三年内付诸实施、五年内有效、瘫痪七个国家（五眼联盟日本印度）、九个月出疫苗要挟全世界）计划、3F（搞弱美国、搞乱美国、搞死美国）计划、BGY（蓝金黄）计划、灭白计划、海外艺术项目（中共红色家族私生子的基因地图、财富地图、政治地图）等渗透全世界各国家政府高层及企业、学校、机构等，目的就是打破世界现有运行规则 ，统治全世界。
+
+
+## 广东汕尾：“红色资源”催生百亿级乡村旅游产业
+
+![]()![](https://p3.itc.cn/q_70/images03/20210515/b1cb104145ed477fa705d170909e1c7c.jpeg)
+
+
+> 评论：中共国这些年大搞红色旅游，完全是开历史倒车，CCP这种倒行逆施，最终也会像苏联一样解体灭亡，历史已经告诉了CCP答案，共产社会主义会被丢垃圾一样被世人唾弃
+
+
+## 北京日报：0！北京连续106天无本地新增确诊病例
+
+![北京5天已报告106例确诊病例]()![北京5天已报告106例确诊病例](https://img.caixin.com/2020-06-16/1592280899622683.jpg)
+
+
+> 评论：中共越是强调宣传啥行啥就不行，从此报道可以推测出北京的疫情真实情况可能并不乐观。
+
+
+## 南方日报： “天问一号”成功“落火”！这9分钟多惊险？
+
+![天问一号火星着陆，比NASA早发7天为何晚到3个月？真相是…--MYTOP]()![天问一号火星着陆，比NASA早发7天为何晚到3个月？真相是…--MYTOP](https://x0.ifengimg.com/res/2021/7D8A6F3F579320AA6C822D081449E0E8782D5E51_size27_w800_h376.jpeg)
+
+
+> 评论：中共火星探测器着陆造假都偷工减料，直接用简易的P图来忽悠了。
+
+
+## 澎湃新闻： 核查以色列轰炸目标前打电话让平民先撤？大部分真实
+
+![核查以色列轰炸目标前打电话让平民先撤？大部分真实|以色列|哈马斯|以色列国防军|耶路撒冷邮报|加沙地带_手机网易网](https://nimg.ws.126.net/?url=http%3A%2F%2Fvideoimg.ws.126.net%2Fcover%2F20210514%2FOZu7TCnMF_cover.jpg&amp;thumbnail=720x540&amp;quality=85&amp;type=jpg)
+
+
+> 评论：以色列对哈马斯的精准打击是对中共流氓高层的展示和警告，如果中共的盗国贼继续头铁跟国际正义力量死磕到底，等待这些中共高层的将有可能是天降刀片。
+
+
+## 新浪财经 – 统计局：60岁及以上人口中60-69岁的低龄老年人口占55.83% 发挥余热潜力较大
+
+![人口数据凸显三大失衡：老龄化、少子化、不平衡的城镇化_手机新浪网]()![人口数据凸显三大失衡：老龄化、少子化、不平衡的城镇化_手机新浪网](https://n.sinaimg.cn/spider2021512/32/w1080h552/20210512/62f6-kpzzqmz6375314.png)
+
+
+> 评论：年轻人不够用，中共为延迟退休的计划又造了一个新鲜词—低龄老年人。不论中共如何努力寻找加大压榨人民的借口也不会阻挡中共土崩瓦解的时间。
+
+
+## 抽屉视频：全球多国爆发反以游行：英法警民激战水炮出动，抗议怒火烧到白宫
+
+![全球多国爆发反以游行：英法警民激战水炮出动抗议怒火烧到白宫]()![全球多国爆发反以游行：英法警民激战水炮出动抗议怒火烧到白宫](https://n.sinaimg.cn/sinakd20210516ac/200/w640h360/20210516/88ea-kpzzqna6776565.jpg)
+
+
+> 评论：喜欢躲在百姓身后制造混乱的CCP，也喜欢看着世界动乱后转移对其的制裁和压制。所以他们才会如此热衷报道世界动乱，洗脑百姓感叹中共国的“和平”，宣传报道背后同样暴露了它们想让世界动乱真实的心。
+
+
+## 体坛极先锋: 已注射疫苗 泰国女排全队确诊
+
+![22人阳性！|排球|泰国女排|排球协会_网易订阅](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0513%2F27ea19b9j00qt16hi001md200fa00a7g00f400a2.jpg&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
+
+
+> 评论：信息的不对称，导致大部分人们相信有新冠疫苗，唉，人各有命，我们只能尽到提醒的义务了！
+
+
+## 德国之声：墙外文摘：[中国将对台湾发动混合战争？](https://www.dw.com/zh/%E5%A2%99%E5%A4%96%E6%96%87%E6%91%98%E4%B8%AD%E5%9B%BD%E5%B0%86%E5%AF%B9%E5%8F%B0%E6%B9%BE%E5%8F%91%E5%8A%A8%E6%B7%B7%E5%90%88%E6%88%98%E4%BA%89/a-57547916)
+
+![台湾军队不过是一个“空壳”？ | 德国之声来自德国介绍德国| DW | 26.03.2021]()![台湾军队不过是一个“空壳”？ | 德国之声来自德国介绍德国| DW | 26.03.2021](https://static.dw.com/image/51538639_6.jpg)
+
+
+> 评论：中共打压台湾的下⼀步就是制造分化与内乱。认知偏误原则或“不理性”⾏为模型则显⽰中共同样会利⽤代理⼈进⾏破坏⾏动、暗杀计划、游击战等，在解放军攻台前引发内乱。目前台湾岛内的病毒突然扩大是中共对台发动的生物战。
+
+
+## 德国之声：[“台湾民主运动”摄影展在德上线](https://www.dw.com/zh/%E5%8F%B0%E6%B9%BE%E6%B0%91%E4%B8%BB%E8%BF%90%E5%8A%A8%E6%91%84%E5%BD%B1%E5%B1%95%E5%9C%A8%E5%BE%B7%E4%B8%8A%E7%BA%BF/a-57546507)
+
+![Taiwan I Fotoausstellung: 30 Jahre Demokratiebewegung in Taiwan]( "Taiwan I Fotoausstellung: 30 Jahre Demokratiebewegung in Taiwan")![Taiwan I Fotoausstellung: 30 Jahre Demokratiebewegung in Taiwan](https://static.dw.com/image/57541613_303.jpg "Taiwan I Fotoausstellung: 30 Jahre Demokratiebewegung in Taiwan")
+
+
+> 评论：台湾的民主也是得来不易，付出了很大的代价。中国大陆想得到真正的民主，必须消灭中国共产党。
+
+
+## 法广：[本土疫情新一波 辽宁确诊超安徽 两地相互甩锅](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210515-%E6%9C%AC%E5%9C%9F%E7%96%AB%E6%83%85%E6%96%B0%E4%B8%80%E6%B3%A2-%E8%BE%BD%E5%AE%81%E7%A1%AE%E8%AF%8A%E8%B6%85%E5%AE%89%E5%BE%BD-%E4%B8%A4%E5%9C%B0%E7%9B%B8%E4%BA%92%E7%94%A9%E9%94%85)
+
+![中国爆发新一波本土疫情，引发民众紧张，纷纷排队接种疫苗。](https://s.rfi.fr/media/display/2bddfe06-b432-11eb-8704-005056bf87d6/w:980/p:16x9/2021-05-12T233224Z_1894710089_RC2NEN9L5760_RTRMADP_3_HEALTH-CORONAVIRUS-BRAZIL.webp)
+
+
+> 评论：中共国的官员为了保住自己的乌纱帽，甩锅是官场的文化之一。
+
+
+## 法广：[法国士兵参与日本海域军演应对中国威胁](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E6%B3%95%E5%9B%BD%E6%8A%A5%E7%BA%B8%E6%91%98%E8%A6%81/20210516-%E6%B3%95%E5%9B%BD%E5%A3%AB%E5%85%B5%E5%8F%82%E4%B8%8E%E6%97%A5%E6%9C%AC%E6%B5%B7%E5%9F%9F%E5%86%9B%E6%BC%94%E5%BA%94%E5%AF%B9%E4%B8%AD%E5%9B%BD%E5%A8%81%E8%83%81)
+
+![美日法澳首次联合军演应对中国咄咄逼人的行为]()![美日法澳首次联合军演应对中国咄咄逼人的行为](https://gdb.voanews.com/DC17D8AD-802C-451A-9BC5-0510E83EC131_w1200_r1.jpg)
+
+
+> 评论：法国士兵在日本演练以应对来自中共的威胁，这是法国回声报发自东京的报道的标题，文章指出，法国，澳大利亚，美国以及日本的海军正在中日海域进行共同军演，试图向中共显示他们不会对北京的领土野心袖手旁观。
+
+
+## 法广：北京如何窃取维吾尔族人Iphone手机数据
+
+![中共组织黑客竞赛破解苹果手机漏洞以监控维吾尔人| 苹果手机| 安全漏洞| 中国黑客| 监控| 新疆人权| 维吾尔族| 再教育营| 新疆集中营| 360  | 海康威视|]()![中共组织黑客竞赛破解苹果手机漏洞以监控维吾尔人| 苹果手机| 安全漏洞| 中国黑客| 监控| 新疆人权| 维吾尔族| 再教育营| 新疆集中营| 360  | 海康威视|](https://img.soundofhope.org/2020-03/1584283711292.gif)
+
+
+> 评论：中共悬赏二十万美元秘密组织了一次黑客竞赛，其目的是如何打开iphone手机的窃看缺口，而这场竞赛最终取得了成效。中共从2018年开始举办名为天府杯 中国黑客大赛，一位名黑客因为打破了iphone的信息缺口而获得了首次天府杯大奖。两个月之后，苹果集团就悄悄地补上了这一漏洞。而在这两个月期间，中共的安全部门已经有可能对所有iphone手机，尤其是维吾尔人的手机进行监控。
+
+
+## 法广：[流亡西藏政府选举后，就达赖喇嘛的继任问题，北京会采取什么态度](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E6%B3%95%E5%9B%BD%E4%B8%96%E7%95%8C%E6%8A%A5/20210514-%E6%B5%81%E4%BA%A1%E8%A5%BF%E8%97%8F%E6%94%BF%E5%BA%9C%E9%80%89%E4%B8%BE%E5%90%8E%EF%BC%8C%E5%B0%B1%E8%BE%BE%E8%B5%96%E5%96%87%E5%98%9B%E7%9A%84%E7%BB%A7%E4%BB%BB%E9%97%AE%E9%A2%98%EF%BC%8C%E5%8C%97%E4%BA%AC%E4%BC%9A%E9%87%87%E5%8F%96%E4%BB%80%E4%B9%88%E6%80%81%E5%BA%A6)
+
+![西藏流亡政府舉行內閣司政和議會議員選舉](https://s.rfi.fr/media/display/0c9fe00a-168a-11ea-83ad-005056a99247/w:1280/p:16x9/2016-03-20t071800z_669213665_gf10000352623_rtrmadp_3_india-tibet-election.webp)
+
+
+> 评论：中共恐惧中国人和各民族有自己的信仰，享受信仰的自由，因为中共是没有任何信仰的流氓邪教组织。
+
+
+## 喜马拉雅国际工作站推文
+
+
+
+> 🔥重磅！美参议员首次公开说新冠与生物武器、生物战有关！
+> 
+> 参议院情报委员会副主席努涅斯接受福克斯采访时说，充分证据表明病毒来自武汉实验室，这个问题必须解决，因为这关系到生物武器和生物战。他还透露14年美国禁止「功能增强实验」，而中国从未停止。他还直接说「功能增强实验」就是武器化病毒！ [pic.twitter.com/PParmiRpEV](https://t.co/PParmiRpEV)
+> — 珠穆朗玛 (@ZanXixi) [May 16, 2021](https://twitter.com/ZanXixi/status/1394066361224077317?ref_src=twsrc%5Etfw)
+
+
+
+
+> 评论：参议院情报委员会副主席努涅斯接受福克斯采访时说，充分证据表明病毒来自武汉实验室，这个问题必须解决，因为这关系到生物武器和生物战。他还透露14年美国禁止「功能增强实验」，而中国从未停止。他还直接说「功能增强实验」就是武器化病毒！
+
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+0
