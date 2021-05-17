@@ -1,28 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021.5.6 郭先生直播G系列相关内容
-` 《爆料贵语--掀郭盖》NZ` [轉載自GNews](https://gnews.org/zh-hans/1249567/)
+## 【热点播报】美媒报道：武毒所2021年初删除了NIH和提及功能增强内容的网页
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1249563/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16225658/5.6.jpeg)
-1: 老共为何与澳洲脱钩?
-
-现在大家看到对于澳洲，老共为何与澳洲要脱钩，在威胁澳洲?这就像啥?就 像欺民贼还有“九指妖”一样儿:我不给你干啦，我要自己成立爆料革命，我要成立“傻币”…… 都一样。你看那欺民贼，Sara “九指妖”要搞G-TV，要搞直播，要搞网站，要搞“傻币”，还有 那些过去的N个人，加拿大的号称搞网站的……大家记得2017年吧?多少人都要搞什么 这网站、那网站，推荐这软件，那软件的，有多少人?你们见有一个能成事儿 的吗?
-
-2: 共产党玩的招数
-
-~现在你们能看得出来就共产党玩儿的一招儿啥? 我不跟你澳大利亚玩儿了!– 你家生铁矿吗? 我不跟你澳大利亚做生意了!– 你家有农业吗? 我不跟你一起搞军事了!– 人家用的着你吗?
-
-~现在，印度死人，共产党要跟人家说:“我点火啊”;然后对澳大利亚:跟你经济 脱钩;香港:把你变成臭港;台湾:让你天天睡不着觉;然后对日本:不听话?不听话 小心点啊!用核武器把你日本荡平，手撕掉你日本;对欧洲、英国:英国已经老掉 了 — 法国离了我更不行 — 德国不卖汽车，活得了吗?
-
-3:共产党加一起不如伊隆·马斯克 然而你共产党加在一起，一个国家的经济、技术实力都不如一个人:伊隆·马斯克! 你都不这一个人创造的经济和技术和给社会的文明贡献和生产力 — 真正的生产力。 你吹啥狼蛋呢?吹啥呢?
+作者：纽约香草山健身部  Jack Li文阳
 
 
 
-整理:滴水莲花
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14021704/logo-1.jpg)
 
-审核：玫瑰天空
 
-上传：糊糊文婴
 
-+1
+据国家脉动报道，2021年3月21日后，中共国武汉实验室的网站删除了六个美国研究伙伴：阿拉巴马大学，北德克萨斯大学，生态健康联盟（EcoHealth Alliance）,哈佛大学，美国国立卫生研究院（NIH）和美国国家野生动物联盟（the National Wildlife Federation）内容的网页。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16230118/1-79.png)
+武汉实验室网页还显示了一项研究更新 [“ SARS会回来吗？”](https://web.archive.org/web/20200212011902/http:/english.whiov.cas.cn/News/Events/201512/t20151204_157114.html)(“[Will SARS Come Back?”](https://web.archive.org/web/20200212011902/http:/english.whiov.cas.cn/News/Events/201512/t20151204_157114.html))  ，似乎描述了由福奇博士（Anthony Fauci）的国家过敏和传染病研究所（NIAID）资助的机构在该研究所进行的”功能增强性”研究。但是，一天后，该页面被进行了修改，只包含两个研究[伙伴](https://web.archive.org/web/20210322053537/http:/english.whiov.cas.cn/International_Cooperation2016/Partnerships/)：生态健康联盟和阿拉巴马大学。到3月23日，合作伙伴栏里只剩下生态健康联盟（EcoHealth Alliance）。生态健康联盟是由与中共长期合作的彼得 · 达杂克（Peter Daszak）领导，他曾多次宣称自己将成为武汉实验室[崩溃](https://thenationalpulse.com/exclusive/fauci-daszak-ecohealth-ties/)的第一位“落马者“。
+
+武汉病毒研究所（武毒所）被追查其就是新冠病毒的[来源](https://www.foreignaffairs.com/articles/china/2021-03-31/what-who-investigation-reveals-about-origins-covid-19)，以及NIH可能将美国纳税人的钱提供给武毒所用于病毒研究之后，武毒所作出了从其网页删除NIH等组织的决定。在对福奇博士的参议院听证会中，兰德 · 保罗参议员也问到福奇博士武毒所掩盖秘密信息的问题，福奇极力地要把他的组织与武汉实验室划清界限。
+
+除了在NIH和武汉病毒研究所之间建立工作关系之外，该网站[现在已删除的](http://english.whiov.cas.cn/News/Events/201512/t20151204_157114.html)网页还详细介绍了武汉实验室进行了病毒的”功能增强性”研究。福奇向保罗参议员解释：“美国国立卫生研究院从开始至今没有资助武汉病毒研究所的”功能增强性”研究。”
+
+武汉病毒研究所与北卡罗来纳大学（UNC），哈佛医学院，贝林佐纳微生物研究所等的合作工作摘要，将科学家的工作描述为“制造并定性嵌合病毒”。并备注他们是如何修改病毒“在原代人气道细胞中有效复制并达到与SARS-CoV流行株等效的体外滴度”。文章总结说：“基于这些发现，他们合成了感染性全长SHC014重组病毒，并在体外和体内显示出强大的病毒复制能力。”
+
+5月14日，包括巴里克的25位美国顶级科学家在《自然科学》杂志发布了一封联名信，要求WHO彻查武汉病毒研究所，这表示象巴里克、利普金这些和中共有勾结的科学家都要跳船了。包括福奇，被拉到参议院做听证，被追究当年有否资助中共作”功能性增强性“试验，现在连福奇也要急着和中共切割了。美国科学界要和中共划清界限，政治两党联合抗共，左媒右媒争相报道武汉病毒所和病毒追责真相。西方世界原来与中共纠缠不清的人，都想华丽转身，站在正义一边。中共因为病毒问题，就像一个雷，谁都不想传到最后，爆在自己手上。
+
+参考阅读：https://thenationalpulse.com/exclusive/wuhan-lab-erases-nih-ties-gof-research/
+
+校对/发稿：火内
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15014027/5%E6%9C%88-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

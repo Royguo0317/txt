@@ -1,40 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇 — 川普搞不定他 拜登也搞不定他 国会山也搞不定他
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1249501/)
+## 2021.5.7郭先生直播G系列相关内容
+` 《爆料贵语--掀郭盖》NZ` [轉載自GNews](https://gnews.org/zh-hans/1249562/)
 
-**摘要：在2021年5月12日的盖特视频中，郭先生感叹美国是一个法治国家，国会在过去两三个月间举行了一系列关于中共病毒的听证会，最终一定会把病毒真相搞得清清楚楚；也透露福奇（美国NIH/NIAID主管） “川普搞不定他，拜登也搞不定他，国会山也搞不定他”，但是这正说明美国是法治，不是人治，“什么都讲程序，什么都讲法”。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16222526/Miles_20210512-getter-p2.srt.txt)
-**福奇**** — ****川普搞不定他****拜登也搞不定他****国会山也搞不定他**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16225059/5.7.jpeg)
+1: 共产党真实的目的——司马昭之心
 
-**No One Can Hold Fauci Accountable?**
+还是在有人说国内也很多转发关于这个喜币安全的问题啊，这个很多问题啊。首先一条我看了很多很多啊，我先简单一个回答。说共产党在内部说啊，说这个所谓的封杀比特币。就是封杀喜币啊。然后大家不要买喜美元、喜币啊。这是真实的目的啊。司⻢昭之心啊，路人皆知。
 
-更重要的是美国国会，从现在往回看过去两三个月，「举行了」一个一个的听证会全是关于中共病毒的。你去看看国会整个排的表，接下来全部的问询、问话、调查、了解、听证，全部都有关中共的经济、偷盗技术、冠状病毒、疫苗，还有整个2019年年底和2020年年初发生了病毒「流行时」，美国的反应。就是干什么？这就是美国这个国家：不能乱讲话，必须得负责任。病毒来自于何方？美国有没有参与？最终都会搞得清清楚楚。这就这个有法可依的国家，它是一个法治的国家，不是人治的国家人。人治的国家你想说啥说啥，你想干啥「就」干啥。这是真的这个美国国家伟大的地方。
+2:喜币喜美元的追索功能
 
-More importantly, the US Congress has held a series of hearings on the CCP virus over the past two or three months. And the congressional schedule of upcoming inquiries, questionings, investigations, and hearings all have to do with the CCP’s economy, technology theft, the CCP virus, and the vaccine, including the US response to the coronavirus pandemic in late 2019 and early 2020. What does this mean? It means that in the US, no one can speak about things without taking responsibility. Where was the virus from? Was the US involved? Eventually, everything will be figured out completely. That makes the US a nation of laws, not a country ruled by the will of a few men. In a country ruled by the will of man, a few elite families will do whatever they want, like the CCP always does. That really makes the US great.
+~大家好好看看喜币喜美元，包括所有的区块链，它都有一个功能啊，就是追索功能。就这么简单?这个喜币也好，任何现在的新的加密区块连币。都有一个功能，当你的钱非法的转走了，是可以追回的，可以追踪的。啊!那么这个最终只有你能做到。~那么这个追踪只有你能做到。1，你报警了，报警以后，⻢上有个，报警器
 
-就那个福奇，一个美国卫生部长，川普搞不定他，拜登也搞不定他，国会山也搞不定他。这样的人要是在中国，不要说是“习一神”收拾他，随便一个纪委的处长就把他灭100次了，但同样的事情那个处长也能被灭1万次 — 这就是美国这个社会，你想把谁搞死，没有搞死的理由，没有搞死的程序是不可以的。这就是咱们中国人的思维，「比如」在海外，一弄就要“搞死他！搞死他！” — 「全是」文化大革命的遗毒。「不想想如果」你搞死个人那么容易，人家也能搞死你那么容易。这就叫“红色恐怖”啊。所以说兄弟姐妹们你看到美国这个国家什么都讲程序，什么都讲法。
+里面有个自然的系统，非常快速的系统，然后验证了你的身份，然后你报警了，这个报警方式有很多种。
 
-With respect to that Fauci, the Director of NIAID in the US, Trump could not handle him, nor could Biden or the Capitol Hill. If he were in China, any director of the Discipline Inspection Commission would be able to dispose of him 100 times, not to mention the “great god Xi”. But equally, any director can also be disposed of by others 10,000 times. So, it is impossible to target anyone without a legitimate reason or without following a proper procedure in the US, whereas in overseas Chinese people’s minds, it is so easy to say “let’s screw someone”. It is a maddening and stubborn mental illness planted in our Chinese by the Cultural Revolution. If you can easily screw others, they can also easily take you down. Then it called the “Red Terror”. So, brothers and sisters, you should see that the US is a country where everything needs to follow the law and procedures.
+3: 区块链加密技术的核心价值
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/609bef6337f7f73984cae322](https://gtv.org/getter/609bef6337f7f73984cae322) (1:54-3:42)
-鸣谢：
-[1] 感谢Antsee-GTV、TING GUO、文惜和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://gnews.org/zh-hans/1233493/](https://gnews.org/zh-hans/1233493/) 
-[2] 感谢Antsee-GTV、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于 [https://gnews.org/1239592/](https://gnews.org/1239592/)
+~比如说你在你的密码，你写上……叽里咕噜叽里咕噜一大串，或者你只写很容
 
-* * *
+易记住的名字，你后面加上任何一个标记。当你输入这个密码以后，被枪逼着的时候，你输入记号，这个币会发出去啊，但是这个号已经告诉了这个区块链的安保中心，我是被威胁的。
 
-字幕：【Rock小哥】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+~这个钱就会被冻结。但是，有的人看到，我收到钱了，绑匪啊!收到钱了，但钱你拿不走，即使你拿走了，区块链的厉害，你到任何地方。啊!区块链它都给你找的到。它不可销毁，不可篡改，这是它核心价值。比如说拿枪指着，你把转到了A转到了B转到了C，一直在区块链系统里边，只要是区块链的安保
 
-+1
+系统一定会给你找的到的。
+
+~所以说它有个追踪系统，啊!这个追踪系统是不服务共产党的。啊!不服务于任何政府的，只服务于使用者客户的，这是它基本的保证。啊!这就是今天区块链加密技术的核心价值。
+
+4: 区块链加密货币不需要中间商AGENT 区块链，加密货币的加密性，安全性，流通性，还有他可追溯性，更重要的事
+
+情，他不需要Agent就像我今天说的，他不需要中间商，不像过去你打个电话，诶，总服务台啊!
+
+
+
+整理:滴水莲花
+
+审核：玫瑰天空
+
+上传：糊糊文婴
+
+0

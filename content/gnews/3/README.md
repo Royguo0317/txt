@@ -1,48 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇将在与武毒所密切合作的大学发表毕业典礼演讲
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1249745/)
+## 蓬佩奥：CCP病毒是来自武汉的生物武器
+` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1249784/)
 
-新闻来源：《国家脉动》| 作者：Natalie Winters | 发布时间：2021年5月13日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17003415/mike-pompeo-election-biden-fraud_wide-cadecb5430bd75fdaa01a53b7fb7a5b4ced36c59-scaled.jpg)图片来源：https://www.npr.org
+#### 加拿大多伦多枫叶农场  丁过
 
-翻译/简评：Victory | 校对：感恩 | 审核：万人往 | Page：Daoiii
+由于CCP病毒的加速变异，民众的恐惧不断加重，对病毒来源进行追根究底的呼声也愈发强烈。在广泛的民意推动下，美国众议院情报委员会近日致函[拜登总统](https://www.foxnews.com/category/person/joe-biden)和国家情报总监艾薇儿·海恩斯。信中说，他们“发现了支持病毒起源于武汉病毒研究所实验室的理论”，要求艾薇儿·海恩斯交出所有CCP病毒起源的情报，特别要求报告武毒所和中共军方之间的关系。该信要求情报部门在5月31日之前提供以上情报信息。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/611e8748-3616-49c0-9f94-0342be5de752.jpg?asset_id=f3064641-4593-4d3e-8052-92e6ee7459dc&amp;img_etag=%222cbb68e61c4e3b4ec792c491e9a7a738%22&amp;size=1024)](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/611e8748-3616-49c0-9f94-0342be5de752.jpg?asset_id=f3064641-4593-4d3e-8052-92e6ee7459dc&amp;img_etag=%222cbb68e61c4e3b4ec792c491e9a7a738%22&amp;size=1024)
+美国前国务卿和中央情报局局长迈克·蓬佩奥在今天的福克斯新闻节目中透露，他在国务卿任上时，曾经试图和中共国就病毒来源信息等方面进行沟通交流和合作，但中共却用撒谎和掩盖真相来回应美国的关切。彭佩奥在节目中指出，尽管中共极力掩盖，还是有越多越多的证据指向病毒来自武毒所，证据显示，正在肆虐全球的病毒是来自中共军方的生物武器，中共国的武汉病毒研究所制造了这场生化恐怖和危机，这是“非常真实”的。最后彭佩奥警告说，未来中共可能还继续放毒，发动更大规模的生化战，这种可能和风险是存在的。防疫工作一直做得很好的台湾，这几天突然出现数百例本地感染者，系中共故意投毒的可能性很大。
 
-**简评：**
+印度疫情突然爆发后， 闫丽梦博士在5月10日接受CNN的印度采访中，解释了中共军方的生物战教科书内容，闫博士告诉印度公众，逻辑和证据都表明，CCP病毒是由中共军方故意释放的，这是中共发动的一场超限生物战，而且中共处心积虑地进行了超限科学误导，策划将全世界的科学家往病毒来自自然进化的错误方向引导，妄图制造一场事不关己的完美犯罪。中共发动这场超限生物战，其重点不仅是杀死部分重症感染者，更险恶的是要造成众多感染者的二次伤害或者终身伤害，当几乎所有的人都病毒后遗症缠身的时候，国家就完了，从而达到中共搞弱搞死其他民族、搞跨其他国家的邪恶目的。
 
-近日来，随着病毒真相被主流媒体逐步揭露。福奇和他的同伙们已经无法再利用其学术地位只手遮天、掩盖事实。上周，福奇在听证会上接受了参议院质询，并在回应中默认了武汉病毒研究所进行了病毒功能增强研究。现在他正在试图撇开自己和中共的关系。同时，我们看到推特上其他一些鼓吹病毒自然来源的所谓科学家也开始转变口风。所谓树倒猢狲散，邪恶势力正在溃败中。
+参考来源：
 
-2015年，巴里克曾和石正丽在《自然医学》发表文章，讨论蝙蝠冠状病毒在人类中爆发传播的可能性。他们做过的事，都会有迹可查。这些造成全球病毒浩劫的恶魔，必须接受全人类的审判。
+[共和党成员向拜登、DNI海恩斯施压，要求提供有关新冠病毒实验室泄漏理论的更多信息 | 福克斯新闻](https://www.foxnews.com/politics/gop-members-biden-dni-haines-covid-lab-leak-theory)
 
-**原文翻译：**
-
-**福奇将在有争议的大学发表毕业典礼演讲，该大学进行与武汉有关的功能增强研究**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/3edbb0b7-53d4-4ddd-899e-4a02dba65ecd.png?asset_id=e5a33868-efdb-4e62-9854-187c2555c7d9&amp;img_etag=%22623044a21167d7cbfeaaef0af212201b%22&amp;size=1024)](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/3edbb0b7-53d4-4ddd-899e-4a02dba65ecd.png?asset_id=e5a33868-efdb-4e62-9854-187c2555c7d9&amp;img_etag=%22623044a21167d7cbfeaaef0af212201b%22&amp;size=1024)
-
-安东尼·福奇博士将在北卡罗来纳大学教堂山分校毕业典礼上发表演讲——该校因其教授与武汉病毒研究所进行功能增强研究而受到抨击。
-
-即将发表的讲话在参议员兰德·保罗（Rand Paul）和国家过敏和传染病研究所（NIAID）所长之间的激烈争论之后进行。这位肯塔基州参议员就北卡罗来纳大学教堂山分校（UNC）流行病学系和微生物学与免疫学系教授拉尔夫·巴里克（Ralph Baric）博士的工作向福奇施压。
-
-“多年来，美国病毒学家拉尔夫·巴里克博士一直与武汉病毒研究所的石正丽博士合作，分享他关于如何创造超级病毒的发现。这项功能增强的研究得到了美国国立卫生研究院的资助。”保罗参议员询问道。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/f69e751c-861a-414a-8f30-67a15b55dc9f.jpg?asset_id=8f074338-5123-4e64-b4c2-f79c802a990d&amp;img_etag=%224d793bbef5628f0ef848d0edd6464a15%22&amp;size=1024)](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/f69e751c-861a-414a-8f30-67a15b55dc9f.jpg?asset_id=8f074338-5123-4e64-b4c2-f79c802a990d&amp;img_etag=%224d793bbef5628f0ef848d0edd6464a15%22&amp;size=1024)福奇的“好朋友”卡罗来纳大学教堂山分校区病毒学家拉尔夫·巴里克（Ralph Baric）
-
-“巴里克博士没有在做功能增强研究，如果有的话，也是根据指导方针进行的，而且是在北卡罗来纳州进行的。如果你看一下拨款和进度报告，这不是功能增强，尽管人们在推特上这么写”福奇后来回应为教授辩护。保罗参议员还指出，福奇是如何作为”少数”不把巴里克的研究列为功能增强的，他引用了超过200名科学家同意这项研究属于该类别。
-
-巴里克博士还参加了武汉病毒研究所的会议，包括2018年的新发病毒性疾病国际研讨会。
-
-🔗[原文链接](https://thenationalpulse.com/breaking/fauci-to-speak-at-controversial-wuhan-linked-uni/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+[蓬佩奥说，证据表明冠状病毒起源于武汉实验室，生物恐怖的风险“非常真实” | 福克斯新闻](https://www.foxnews.com/politics/pompeo-coronavirus-wuhan-china)
 
 0

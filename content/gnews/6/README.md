@@ -1,53 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国应该担心原因：5个接种疫 苗国家4个国家新冠疫情激增
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1249606/)
+## 美华裔研究人员隐瞒其参与“千人计划”被判入狱
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1249768/)
 
-翻译：康州盘古农场 – KY
+新闻来源：《国家脉动 The National Pulse》| 作者：Natalie Winters | 发布时间：2021年5月15日
 
-校对：康州盘古农场 – Mike Li
+翻译/简评：大和凯多 | 校对/审核：万人往 | Page：Daoiii
+[!\[\]()!\[\](https://spark.adobe.com/page/vxQv5OTNoD98q/images/720a59b1-3c4a-4585-bc4c-aa6a058fd3f4.png?asset_id=03dbcf34-9286-4dfe-90e7-a858d7a32ac3&amp;img_etag=%22d9f3db14148722c0711af66b31f1b13a%22&amp;size=1024)](https://spark.adobe.com/page/vxQv5OTNoD98q/images/720a59b1-3c4a-4585-bc4c-aa6a058fd3f4.png?asset_id=03dbcf34-9286-4dfe-90e7-a858d7a32ac3&amp;img_etag=%22d9f3db14148722c0711af66b31f1b13a%22&amp;size=1024)
+**简评：**
 
-编辑：康州盘古农场 – 傻小子
+美国俄亥俄州立大学前教授郑颂国曾向美国国立卫生研究院申请410万美元研究经费，为中共国进行风湿病学和免疫学领域的研究。因其隐瞒参与中共“千人计划”项目以及其它中共国机构的身份被判处37月监禁，并罚款数百万美元。
 
-发布：康州盘古农场 – 彩虹 Rainbow
+美国司法部公布，郑颂国于2020年5月22日半夜被捕，当时他在搭乘一架包机抵达阿拉斯加州的安克雷奇，准备登上另一架包机逃往中国。他当时携带三个大袋、一个小行李箱和一个手提箱，内有两台便携式电脑、三部手机、几个USB盘、几块银条、家人的过期中国护照、在中国的房契和其它物件。
 
-**据《福布斯》作者：Robert Hart，2021年5月11日发布**
+郑颂国原籍安徽池州，毕业于安徽医科大学和上海医科大学。1999年由复旦大学上海医学院研究生结业后，赴美国从事博士后研究工作。2013年参加了中共“千人计划”。2014年被聘为华中科技大学同济医院的客座教授。2014年起担任中山大学教授。曾供职于广州中山大学附属第三医院、同济医院等单位。郑颂国还曾在法国奥尔良大学暨法国国家科学中心攻读并获得分子免疫学博士学位。1999-2002在美国加州大学洛杉矶分校(UCLA)医学院和美国南加州大学(USC)医学院从事博士后研究，期间在NIH担任短期访问科学家。2003-2012年任美国USC助理教授、副教授和免疫耐受和调节中心主任、USC大使和大学教授晋升委员会委员。兼任法国国家科学研究中心正教授。2013-2014任美国宾夕法尼亚州大学（PSU）终身正教授，自身免疫性疾病研究中心主任等。
 
-**顶线：**
+[!\[\]()!\[\](https://spark.adobe.com/page/vxQv5OTNoD98q/images/95e1b9d5-5e09-471e-baf2-11e36a407ceb.png?asset_id=b646d017-33d3-4ee9-8e50-1ccf340620e7&amp;img_etag=%22f9090bbd07110bb1f8570104ac1e4d2f%22&amp;size=1024)](https://spark.adobe.com/page/vxQv5OTNoD98q/images/95e1b9d5-5e09-471e-baf2-11e36a407ceb.png?asset_id=b646d017-33d3-4ee9-8e50-1ccf340620e7&amp;img_etag=%22f9090bbd07110bb1f8570104ac1e4d2f%22&amp;size=1024)
 
-世界上疫苗接种率最高的国家，包括前五个接种率最高的国家中的四个正在努力遏制新冠病毒疫情的爆发，这些国家的人均冠状病毒爆发率比激增的印度的疫情还要高，这一趋势让专家们对一些疫苗（尤其是中共国的国药集团）的保护率以及即使大多数人口都接种了疫苗而放松限制的做法是否明智提出了质疑。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16231646/vaccine44.png)一些接种疫苗最多的国家其新冠疫情激增。 GETTY
-**关键事实：**
+[!\[\]()!\[\](https://spark.adobe.com/page/vxQv5OTNoD98q/images/853281aa-ec58-4869-9aaa-3a10d46ce08a.jpg?asset_id=90f33d9f-ff6e-4e6a-9f7d-b14517c1fb5d&amp;img_etag=%221329f94a01dc9bbd137be1262bb8e831%22&amp;size=1024)](https://spark.adobe.com/page/vxQv5OTNoD98q/images/853281aa-ec58-4869-9aaa-3a10d46ce08a.jpg?asset_id=90f33d9f-ff6e-4e6a-9f7d-b14517c1fb5d&amp;img_etag=%221329f94a01dc9bbd137be1262bb8e831%22&amp;size=1024)图片来源网络，郑颂国（又）在国内被授予各种“荣誉”“教授” “主任”头衔
 
-在塞舌尔、以色列、阿联酋、智利和巴林（分别是世界上疫苗接种率最高的五个国家）中，只有以色列新冠病毒疫情没有上升。
+我们可以从郑颂国在海外的履历中不难发现，中共这么多年在海外“蓝金黄”的轨迹。郑颂国和魔鬼做交易还想落个好下场，痴人说梦！就算郑颂国逃到了中共国，身上藏了这么多秘密，也不会有个好结果。希望更多的人能从郑颂国的事件中认清中共的本质，亡羊补牢，为时未晚，现在反悔还来得及。
 
-在人口控制方面，塞舌尔和巴林以及其他像马尔代夫和乌拉圭这些新冠病毒疫苗接种率很高的国家，是世界上每日冠状病毒病例最多的前几位国家。
+**原文翻译：**
 
-塞舌尔是一个疫苗接种率几乎是美国的两倍的小岛国，新冠发病率为每10万人中有328例，如果考虑到人口因素，其新冠发病率远远高于印度（每10万人中有28例）。
+## 美国国立卫生研究院（NIH）资助的研究人员隐瞒与中共关系被判入狱，罚款数百万
 
-疫苗接种国家爆发的疫情引发了人们对中共国的一些疫苗与以色列使用的西方疫苗相比效果如何的关注，包括世界卫生组织周五认可的国药集团疫苗，该疫苗在各国的免疫计划中占很大一部分。
+[!\[\]()!\[\](https://spark.adobe.com/page/vxQv5OTNoD98q/images/bebf75d1-9ec4-49db-8329-d33e47d9f1d7.jpg?asset_id=514064f0-b2f4-44c4-860a-db258bbc1782&amp;img_etag=%22b42612d5cbb0ca7e0cc2bb7259de2a0f%22&amp;size=1024)](https://spark.adobe.com/page/vxQv5OTNoD98q/images/bebf75d1-9ec4-49db-8329-d33e47d9f1d7.jpg?asset_id=514064f0-b2f4-44c4-860a-db258bbc1782&amp;img_etag=%22b42612d5cbb0ca7e0cc2bb7259de2a0f%22&amp;size=1024)
 
-放松新冠病毒疫情的限制和各国政府传递的信息不一致也被吹捧为可能的解释–依赖旅游业的塞舌尔和马尔代夫都欢迎游客，迪拜迅速解除了封锁，智利也放宽了限制，允许国内旅行。
+**一位获得美国国立卫生研究院（National Institutes of Health）资助的研究员未澄清其与中共的关系被判处37个月监禁和数百万美元的罚款。**
 
-**关键背景：**
+俄亥俄州立大学（OSU）的前教授郑颂国对他在美国国立卫生研究院（NIH）的资助申请中撒谎表示认罪。该申请使他获得了410万美元的研究经费为中共国发展风湿病学和免疫学领域。去年5月，他在企图逃离美国时被捕。
 
-在许多富裕的国家，疫苗往往被认为是解除封锁的最终出路。在包括美国、英国和以色列在内的一些成功并迅速开展活动的国家，病例已经下降。但专家们指出，智利等地是一个可怕的例子，说明如果事情缓解得太快会发生什么，并警告说单靠疫苗来解决问题可能是不够的。随着越来越多的国家开始加强接种活动，某些疫苗的效力可能会成为一个突出的问题，人们担心一些疫苗，如中共国的国药集团疫苗，在控制疾病方面远不如莫德纳和辉瑞公司等生产的疫苗有效。
+郑颂国被判处37个月监禁，并向美国国立卫生研究院赔偿340万美元，向俄亥俄州立大学赔偿约41.3万美元。
 
-**要关注的事情：**
+美国联邦调查局反情报部门助理主任艾伦·科勒（Alan E. Kohler Jr.）在一份声明中说：“多年来，被告一直隐瞒其在中共国政府人才项目的工作，并隐瞒了他与中共国至少五家研究机构的隶属关系。”（译者注：郑颂国是中共“千人计划”成员之一。）
 
-包括世界卫生组织负责人在内的世界各国领导人经常提醒，“在所有人都安全之前，没有人是安全的”，国家之间巨大的疫苗不平等突出了这个问题。新的和可能更危险的变种正在全球范围内出现，其中一些有可能免疫现有的疫苗。世界卫生组织周二将重创印度的B.1.617变种列为令人担忧的变种，指出它可能更具传染性。
+🔗[原文链接](https://thenationalpulse.com/breaking/nih-researcher-sentenced-for-ccp-ties/)
 
-**大数据：**
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
-45%. 世界上所有五个疫苗接种最多的国家都至少有这个比例的人口接受了部分疫苗接种。巴林（47%）、智利（45%）、以色列（60%）和塞舌尔（69%）都有数据，而阿联酋由于人均接种量高（每10万人中约有11.5万剂；但阿联酋没有公布更详细的数据）而位居第三。塞舌尔(61%)和以色列(56%)也是完全接种疫苗的人口比例最高的国家，其次是智利(38%)和巴林(35%)。美国除四个州外，其他州的疫苗接种率都在下降，仅次于智利和巴林，目前有35%的人口完全接种，46%部分接种。
 
-在美国，对疫苗犹豫不决的人仍然很多，民意调查显示，未接种疫苗的美国人可能是最容易从事正常活动的。随着许多州因新冠疫苗接种率的提高而开始重新开放，这有造成持续的社区传播的风险。
+编辑：【英国伦敦喜庄园编辑部】
 
-原文链接：[https://www.forbes.com/sites/roberthart/2021/05/11/covid-surges-in-4-of-5-worlds-most-vaccinated-countries-heres-why-the-us -should-worry/?sh=5dac0e38d677](https://www.forbes.com/sites/roberthart/2021/05/11/covid-surges-in-4-of-5-worlds-most-vaccinated-countries-heres-why-the-us%20-should-worry/?sh=5dac0e38d677)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[!\[\]()!\[\](https://spark.adobe.com/page/vxQv5OTNoD98q/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/vxQv5OTNoD98q/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
 0
