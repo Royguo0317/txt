@@ -1,54 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家报道：中共国军队获得的研究专利  源于安东尼·福奇博士的资助
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1251263/)
+## 【鹰眼墙国】养老领域“非法”集资难清，贼喊追贼彰显中共流氓本色
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1251570/)
 
-- 作者：wenwu
-
-
-***更多真相，请关注***[***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
-
-**西班牙2021年5月17日电/西喜社——**
-
-史佩勇曾在中华人民共和国接受培训，现为德克萨斯大学加尔维斯顿医学分部（UTMB）生物化学和分子生物学系教授。
-
-自2007年以来，史佩勇还担任武汉病毒研究所的名誉教授；自2004年以来，史佩勇得到了安东尼·福奇博士的国家过敏和传染病研究所（NIAID）的资助。
-
-史佩勇还与中国人民解放军的科学家进行了广泛的研究合作，正如《门扉网》之前所报道的。
-
-这项研究最终把专利授予了史佩勇和中国人民解放军，特别是秦成峰。 一直为中国人民解放军工作的史佩勇，获得了2021年福奇赠款金额926,569美元的一部分。
-
-2018年10月26日的中国专利申请编号201810076027.7，该专利持有者列为中国人民解放军军事科学院和史佩勇。
-
-作为科学支持，该中国专利申请引用了2017年的论文《减毒的寨卡病毒活疫苗候选物诱导灭菌小鼠模型的免疫力
-
-**A liveattenuated Zika virus vaccine candidate induces sterilizing immunity in mouse model》，该论文由NIAID资助，赠款编号AI120942。**
-
-（附论文链接：[pubmed.ncbi.nlm.nih.gov](https://pubmed.ncbi.nlm.nih.gov/28394328/) ）
-
-第二项中国专利WO2019144874A1，日期为2019年1月23日，专利持有者仍列为中国人民解放军军事科学院和史佩勇。 用于支持第二项中国专利声明的三篇科学论文，获得了NIAID的赠款资助，编号为AI120942、AI127744、AI073755和AI104972。
-
-（附史佩勇专利链接：[patents.justia.com](https://patents.justia.com/inventor/pei-yong-shi) ）
-
-奇怪的是，获得NIAID赠款编号AI127744的王田（音译），在中共国军方主导的论文中并不作为作者出现，但NIAID仍然资助了他（王田）。因此，可能发生了某种类型的资金转移。
-
-最后的奇怪之处是，史佩勇和秦成峰于2015年8月20日提交的**美国专利,名称为**《用于疫苗的新型减毒登革热病毒株》（Novel Attenuated Dengue Virus Strains for viccine application”）。该专利持有者之一是中共国军方的北京微生物和流行病学研究所（诺华股份科技研究机构）。在这份美国专利申请中，秦成峰隐瞒了自己与中国人民解放军的联系，将新加坡列为他的工作地址。（第三名专利持有者为Katja Fink) 美国专利申请中没有科学参考文献，也不清楚资金来源。
-
-(附链接：[patents.justia.com](https://patents.justia.com/patent/20150231226) ）
-
-**简评：**
-
-**秦成峰和中共将军金宁一、夏咸柱有关联，这是上一篇《门扉网》的报道。本篇报道可见，这福奇不仅骗美国纳税人的钱给中共研究生物武器，还为中共获得研究专业打开方便之门。结果，美国纳税人不仅什么都没有得到，自己还被中共所得到的生物武器袭击了。美国在科学界的毒瘤经过福奇这一系列操作，清楚的冒出来了。**
-
-素材：wenwu 审核： Jenny Ball 校对：阿伯塔 发稿：Nuevo唐人
-
-素材链接：[www.thegatewaypundit.com](https://www.thegatewaypundit.com/2021/05/exclusive-dr-anthony-fauci-funded-research-led-patents-chinese-military/)
-
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+香草山写作组 鹰(文言)
 
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
 
-+1
+
+环球网5月17日转载央视新闻客户端消息，中共民政部、公安部四部门联合发布养老领域非法集资风险提示：一些机构和企业通过推广“养老服务”的方式以高回报、高利息为诱饵，进行非法集资。该投资行为存在重大风险隐患。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17143710/Screen-Shot-2021-05-17-at-2.34.30-PM.png)
+提示中称非法集资形式多样：提供养老服务、投资养老项目、销售养老产品、宣称以房养老等……但实际涉事企业和机构承诺的高额利息主要来自老年人的缴纳费用，不存在承诺的配套服务和利益。一旦资金链断裂，本息都将难以追回。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17143751/Screen-Shot-2021-05-17-at-2.34.20-PM.png)
+翻看中共近年来推出的养老政策：2014年推行“保险版”以房养老至今，参与客户不及230人（其中参与“幸福房来宝”的有207位老人，参与人寿保险“安居乐”的有10户左右）；2017年为填补社保金漏洞，中共国务院设定划拨国有资本行动并出台《关于加快发展商业养老保险的若干意见》；在2018年，中共国务院以投保商业保险延迟缴纳个税的名义，鼓励民众自费购买企业推出的养老服务；2021年，在网约护士项目试点进程缓慢、普及率低下的前提下，中共依旧将“互联网+护理服务”试点工作在全国范围内开展；2020年底至今，中共政府开始主导“物业服务+养老服务”模式……中共的种种尝试与上述的非法集资企业机构相比，除了有着国家政权这一背景外，其他的并无区别，都是用“以新还旧”的方式搜刮老年人的钱财。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17143731/Screen-Shot-2021-05-17-at-2.34.25-PM.png)
+根据中共统计局数据，2019年底，国内60岁及以上人口2.54亿。社保金的发放无疑是个巨大的财政开支。再加上社保金的连年亏空，“庞氏骗局”难以继续，变种的养老项目和“商业”养老服务才会应运而生。延迟退休更是通过暂缓发放养老金，继续压榨老年人群的剩余价值。中共一方面以拆东墙补西墙的方式维系社保金的发放，另一方面则将“祸水东引”，以物业养老、互联网护理、商业养老的方式继续辗转集资。相较于上述企业机构的“小骗”，中共政府更是国家级的巨骗，不但没有高回报，连社会保障这一政府基本职能都严重缺失。中共的严打非法集资，只是为了转移养老困局的民怨以便收割民财。
+
+新闻来源：
+
+商业养老保险持续健康发展https://china.huanqiu.com/article/439jo5oQi0v
+
+通过“借贷”“抵押”办理以房养老要小心！四部门提示防范养老领域非法集资风险https://china.huanqiu.com/article/439qpvOGLKG
+
+“网约护士”你用得起吗？https://health.gmw.cn/2021-05/17/content\_34849957.htm
+
+开启全国试点，抢占近30亿市场，互联网护理的春天来了？http://med.china.com.cn/content/pid/244499/tid/1026
+
+“以房养老”推出试点六年 那些“吃螃蟹”的老人怎么样了？https://new.qq.com/omn/20200720/20200720A0S56B00.html
+
+“物业+养老”让居家养老更给力https://www.sohu.com/a/443108912\_288623
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+0

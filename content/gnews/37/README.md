@@ -1,46 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 隐瞒为中共国秘密工作 研究员被判处3年监禁
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1250770/)
+## 【热点播报】中共媒体声称某前列腺药物能够治疗新冠
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1251107/)
 
-翻译：康州盘古农场 – TrueSky
-校对：康州盘古农场 – Mike Li
-编辑：康州盘古农场 – 格格巫
+作者：香草山Paul Li
 
-据《华盛顿时报》作者：比尔-格茨，2021年5月14日报道：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17084849/7DF20F70-5677-45EC-B6F5-42C1B8769C1E.jpeg)*这张2019年5月8日的资料照片显示，俄亥俄州哥伦布市的俄亥俄州立大学的标志。(AP Photo/Angie Wang, File)*
-俄亥俄州的一位教授周五被判处37个月的监禁，因为他没有披露由联邦拨款资助的中共国工作，检察官说这是一个免疫学研究项目的欺诈计划。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12160942/logo-3.jpeg)
 
-58岁的俄亥俄州希利亚德（Hilliard）的郑松国（Song Guo Zheng），在11月承认伪造410万美元的美国国家卫生研究院拨款有关的联邦申请，这些拨款被用于发展中共国在风湿病学和免疫学领域的专业知识。
 
-郑某还被命令向美国国立卫生研究院支付超过340万美元的款项，并向俄亥俄州立大学支付41.3万美元，他在俄亥俄州立大学与宾夕法尼亚州立大学联合开展的研究项目中工作。
 
-这位教授是根据司法部的“中共国倡议”被起诉的，该倡议自2017年以来一直在打击作为中共国“千人计划”一部分的非法研究，“千人计划”是中共国政府获取美国高科技和专业知识的计划。
 
-美国大学的几位教授在该倡议中落网，包括哈佛大学化学系主任查尔斯-M-利伯，他也被指控向五角大楼和美国国立卫生研究院撒谎并为千人计划工作。利伯先生不承认认罪。
 
-国家安全部助理检察长约翰-C-德默斯说，“在另一起涉及中共国政府千人计划的案件中，郑松国将在未来37个月的联邦监狱中度过，因为他选择撒谎并向美国研究资助机构隐瞒他参与这一计划的情况，”
+近日，中共国媒体报道，墙内某生物科技公司——“开拓药业”，发现一款在研的前列腺药物可能对治疗新冠有效果。假如此事属实，我们有理由怀疑，这是不是中共早就掌握的治疗新冠病毒的解药？
 
-“美国的研究资金是由美国纳税人为美国社会的利益提供的，而不是作为给中共国政府的非法礼物，”他说。“当联邦资金被提供给研究时，对美国人民应该保持完全的透明度，我们将继续追究那些选择谎报其与外国政府关系，以试图欺诈性地获得这些资金的人的责任。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17101155/%E6%96%B0%E5%86%A0%E8%A7%A3%E8%8D%AF.png)
 
-郑于2020年5月在阿拉斯加被捕，当时他正准备登上前往中共国的航班。他携带了三台两台笔记本电脑，三部手机，几个USB驱动器，银条和过期的他全家的中共国护照。
+根据今年3月开拓药业披露的一项巴西临床试验结果，这款处于临床后期研究阶段的普克鲁胺（Proxalutamide）药物，能将重症新冠患者的死亡风险降低92%。郭文贵先生曾在直播中说，据中共内部情报，中共的疫苗不可靠，但是中共有新冠病毒的解药。倘若世界各国向中共施压，中共有可能交出解药。
 
-他在被俄亥俄州官员问及未申报的为中共国工作的问题后逃离了俄亥俄州。
+我们欣喜地看到，国际上追究病毒真相的呼声越来越高。印度因为自身卫生条件落后和中共针对性放毒，新冠病毒感染人数和死亡人数都居高不下。但是印度并没有屈服，5月12号，《印度时报》博客刊文，“关于中共病毒起源的报道，中共生物武器的铁证”，作者SD Pradhan曾任印度联合情报委员会主席。“今日印度”的Gaurav C. Sawant主播也采访了闫丽梦博士。不久前，巴西总统贾尔·博尔索纳罗（Jair Bolsonaro）对中共在新冠病毒问题上的处理提出严重质疑，他认为中共可能在实验室中开发了这种病原体，并将其作为“生物战”武器投放到全世界。
 
-联邦调查局反情报局局长艾伦-科勒（Alan E. Kohler）说，郑某隐瞒了他与中共国至少五个研究机构的联系。
+正当越来越多的国家把矛头指向中共的时候，中共放出本文开头提到的这则新闻意味深长，说明中共有可能要公布新冠病毒的解药。正如文贵先生所说，中共即使承认有解药，也不会说自己一开始就有解药。否则就等于坐实了自己是策划并发动这场生物武器大战的元凶。所以中共会说自己无意中发现了新冠病毒的解药。这则新闻正是使用了这样的话术。但普克鲁胺是否是解药目前尚未可知。只要世界各国坚定地向中共要真相，中共被迫交出解药的那一天就越来越近了。
 
-科勒先生说：”郑贪婪地拿走了联邦研究经费，并阻止其他人获得支持医学进步的关键研究经费。
+参考阅读：
 
-郑是一名内科医学教授，负责一个进行自身免疫研究的专家团队。
+[https://m.yicai.com/news/101051478.html](https://m.yicai.com/news/101051478.html)
 
-检察官说，自2013年以来，他一直是“千人计划”的一部分。
+[https://timesofindia.indiatimes.com/blogs/ChanakyaCode/reports-on-the-origin-of-coronavirus-smoking-gun-proof-of-the-chinese-biological-weapon/](https://timesofindia.indiatimes.com/blogs/ChanakyaCode/reports-on-the-origin-of-coronavirus-smoking-gun-proof-of-the-chinese-biological-weapon/)
 
-原文链接：https://www.washingtontimes.com/news/2021/may/14/researcher-gets-3-year-prison-term-for-covert-chin/
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+[https://www.indiatoday.in/coronavirus-outbreak/story/coronavirus-intentionally-released-chinese-govt-misinformation-campaign-dr-le-meng-yan-1801107-2021-05-11](https://www.indiatoday.in/coronavirus-outbreak/story/coronavirus-intentionally-released-chinese-govt-misinformation-campaign-dr-le-meng-yan-1801107-2021-05-11)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑/校对/发稿：人间世
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13130410/5_May-1-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12160942/logo-3.jpeg)
+
+
 
 
 

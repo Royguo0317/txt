@@ -1,16 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥:每一个证据都表明中共病毒起源于武汉病毒学研究所的实验室
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1251046/)
+## 新加坡警示易感染病毒的儿童并关闭学校
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1251239/)
 
-美国前国务卿蓬佩奥周日称，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 武毒所实验室掩盖冠状病毒大流行疑似起源真相的时间之久“令人震惊”。 蓬佩奥在接受福克斯新闻网《周日早晨期货》采访时说，“我们在整个时间过程中看到的每一个证据都表明，这 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 起源于武汉病毒学研究所的实验室。” “我没有看到一点相反的证据，”他继续说尽管（[#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click)）不允许任何人进入实验室、调查原始材料和在那里工作的医生，但证据仍在不断积聚。 “[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 为掩盖真相所做的方方面面的努力令人震惊，我们的间接证据加上 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 极力否认我们关于那个实验室的信息的反应，强烈地向我表明，这就是它的起源。” 蓬佩奥补充说，今年1月，发布了一组现已解密的信息片段，“谈论这样一个事实，即我们相信，早在2019年，就有医生出现了感染 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的症状。” 蓬佩奥说，这代表了“[#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 早在向世界卫生组织和全世界承认之前，就对#中共病毒 人传人的现象有了认识。” 他宣称：“越来越多的证据表明，[#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的行为至少是鲁莽的疏忽，甚至可能更糟（是故意的）。”
-
-
-
-> Pompeo: Evidence 'Staggering' of COVID Origins at China Virology Lab [https://t.co/qq4x4FXNEu](https://t.co/qq4x4FXNEu) [#Newsmax](https://twitter.com/hashtag/Newsmax?src=hash&amp;ref_src=twsrc%5Etfw) 来自 [@Newsmax](https://twitter.com/newsmax?ref_src=twsrc%5Etfw)
-> — 美国政要等…直译推 (@zhiyitw33) [May 17, 2021](https://twitter.com/zhiyitw33/status/1394286961112801280?ref_src=twsrc%5Etfw)
+- 作者：里奇
+- 制图：透明的遮羞布
 
 
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-0
+**西班牙2021年5月17日电/西喜社——**
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/virus15.jpg)
+
+新加坡周日警告说，新的冠状病毒变种（例如首次在印度发现的变种）正在影响更多的儿童。该国准备从本周起关闭大多数学校，并制定了为年轻人接种疫苗的计划。
+
+从星期三到5月28日学期结束，所有小学，中学和专科学院都将转为全面的居家学习。
+
+教育部长陈振声说：“其中一些（病毒）突变更具毒性，看起来会攻击年幼的孩子。”
+
+他补充说，感染这种病毒的孩子没有一个患重疾，少数几个人症状较轻。
+
+周日，新加坡确认了38例本地传播的COVID-19病例，这是自9月中旬以来的每日最高记录，目前有17例未关联。病例包括四个与学费中心的一群人有联系的儿童。
+
+卫生部部长王乙康（Ong Ye Kung）援引卫生部医疗服务主任麦肯思（Kenneth Mak）的话说，B1617株似乎对儿童的影响更大。目前尚不清楚有多少儿童感染了这种菌株。
+
+新加坡报告了超过61,000例病毒病例，其中大部分与去年外国工人宿舍中的爆发有关，有31人死亡。周日的新病例是一年中宿舍以外地方感染人数最多的一次。
+
+陈振声说：“目前社区病例数量的急剧增加，要求我们在未来几天内大大减少行动和互动。”
+
+这个有着570万人的亚洲贸易和金融中心数月来一直保持本地近乎零或一位数的每日感染，直到最近才有所变化。
+
+尽管新加坡的日常病例仍仅是其东南亚邻国所报告病例的一小部分，但近几周来感染在不断增加。自上周日起，政府对聚会和公众活动实施了自去年封锁以来最严格的限制措施。
+
+但是新加坡疫苗接种计划的速度受到疫苗供应到位速度的限制。 王（Ong）说，专家们正在研究是否先给与一剂疫苗，并延长注射间隔。
+
+该国超过五分之一的人口已经完成了两剂疫苗接种方案，采用来自辉瑞（Pfizer-BioNTech），和莫德纳（Moderna）的疫苗。当局将邀请45岁以下的人从5月下半月开始接受接种。
+
+陈说，政府还正在制定计划，在获得监管部门批准后为16岁以下的儿童接种疫苗，这是辉瑞公司所寻求的。
+
+**点评: 中共病毒此起彼伏，各国疲于奔命。各国政府不知是真的傻白甜还是假扮爱心暗中捞取疫苗回扣或政治资本，除了大量采购疫苗并推销给无辜无知的民众，似乎再无他法。如若不久疫苗的危害被公之于众，等待这些政客们和贪婪医药公司的将是什么？为何他们不能勇敢面对元凶追责？这个世界需要大变革，人的善恶认知能力、自我欲念控制能力的提升才能保证政治清明，先进的科学技术被人类正确地运用。**
+
+素材：里奇；审核：文乐；校对：阿伯塔；发稿：信心的选择
+
+**新闻来源：**[路透社](https://www.reuters.com/world/asia-pacific/singapore-warns-children-susceptible-virus-variants-shuts-schools-2021-05-17/)
+
+**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+
++1
