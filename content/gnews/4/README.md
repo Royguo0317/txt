@@ -1,56 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【健身健心】健身前的准备
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1249809/)
+## 中共的黄金储备数据全是假的！数字人民币21次测试全部失败！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1249878/)
 
-纽约香草山健身部 Jack Li文阳
+**摘要：在2021年5月11日的盖特视频中，郭先生说一位统计局的战友爆料中共黄金储备数据是假的，上万亿的银行票据不知所踪，外汇只有入没有出的数据，可是无人敢查，这个国家只有破产的命运。更厉害的是中共的数字人民币21次测试全部失败，区块链变黑洞，中共被重金挖回去的搞区块链的海归给骗了！**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17011427/Miles_20210511_getter-p2.srt.txt)
+**中共的黄金储备数据全是假的！数字人民币****21****次测试全部失败！**
 
+**CCP’s Gold Reserve Data Are All Fake! 21 Tests on Digital RMB All Failed!**
 
+第二个，「关于」黄金储备。统计局报「告」黄金储备，因此被抓了好几个头儿。全国各地黄金储备从来没被认真统计过，只看下面报「的数据」。听说，「但」不知道哪位，咱就别「明」说了，一位副总理说：“中国的黄金储备应该有个核实了。”委托统计局、国家安全生产办、国安委派出小组去统计全国的黄金。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+The second issue is related to gold reserves. Several heads of the Bureau of Statistics have been arrested due to the matter of gold reserve reporting. Gold reserves across the country have never been carefully counted. They just look at the data reported by their subordinate units. I heard this but I cannot reveal the name now. A deputy prime minister said: “We should verify China’s gold reserves.” So, he entrusted the Bureau of Statistics, the Work Safety Committee of the State Council, and the National Security Commission of the CCP to send a team to count the country’s gold reserves.
 
+统计完傻眼了，事实上的黄金跟每年所报的数字差距巨大。一说“巨大”的时候大家记住，就是用百「倍」来算了，不是百以下了。就像「在」中国犯罪，「如果说」：鉴于犯罪情节极为严重，影响巨大……这就往10年以上整了，甚至往无期徒刑、死刑整你了。一说“巨大”就从百「倍差距」开始「算了」，严重不严重？
 
+They were dumbfounded after the tallying. There is a huge gap between the actual gold reserves and the figures reported every year. When it comes to “huge”, everybody should remember: this means that the gap is a factor of a hundred times or more. Just like a crime in China, when you hear: “given the seriousness of the crime and the huge impact,” that means the criminal will be sentenced to more than 10 years, even life imprisonment, or the death penalty. When you hear the word “huge,” just start with a hundredfold difference. Isn’t this serious?
 
-每个人都想拥有健康美丽的身体，如何开始健身计划，需要在一些方面做好准备，制定运动计划，选择最符合自己情况的运动方式来锻炼身体。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17011552/1-86.png)
-1.咨询医生。健身计划开始前，最好先咨询医生。医生会判断计划是否安全，是否适合你。
+这位咱们统计局的姐们儿说：“七哥，你讲民生「银行」的事情引起了巨大的轰动。民生银行的票据业务「涉及」多少钱，七哥？1.7万亿人民币！「而且」找不着找去哪儿「了」。钱可能去这儿，有可能去那儿，也可能去上边儿……这事儿竟然没人想去查，荒唐到什么程度？”这1.7万亿人民币没了，上去了，还是下边儿，还是这儿，对吧？没人想查。没人想查的背后掩藏着什么？「仅」上海银行一家，「她说」：“7哥你不知道吧？「仅」这一家「银行」就1万亿人民币的票据找不着「了」。不敢贴现，不敢核实，不敢统计，也不敢查。”
 
-- 告诉医生你的健身目标和计划，让医生给出建议。
-- 疼痛和呼吸急促、关节或肌肉疼痛，也要告知医生。
-- 咨询私人健身教练，帮助设定目标、制定计划、并指导你安全地进行各类健身运动。
+This sister-in-arms from the Bureau of Statistics said: “Brother Miles, your talk about Minsheng Bank has created a big stir. How much does Minsheng Bank’s bank note business involve, Brother Miles? 1.7 trillion yuan. And the money cannot be found anywhere. The money may go here, go there, or it may go to higher up people. Nobody wants to investigate this matter, how absurd?” The 1.7 trillion yuan is gone. Did it go up, go down, or is it still here? Nobody wants to investigate. What is hidden behind this situation? “Just at the Bank of Shanghai alone,” she said, “You can’t imagine, Brother Miles, just in this bank alone, 1 trillion yuan of bank notes cannot be located. They dare not to discount, verify, count, or investigate.”
 
+兄弟姐妹们，「你们」去想想这个国家还能四个自信吗？给世界开药方？拯救全世界？统治全世界？
 
-2.设定目标。想要健身目标更容易实现，必须制定更为具体的目标。试试S.M.A.R.T.目标系统。具体（Specific）、可度量（Measurable）、可达成（Attainable）、现实（Realistic）、有时效性（Time-Based）的目标更科学合理，更易实现。[\[1\]](https://zh.wikihow.com/%E5%81%A5%E8%BA%AB#_note-1)
+Brothers and sisters, do you think this country can still have “Four Self-confidence (CCP propaganda meaning confidence in the path, theory, system, and culture of socialism with Chinese characteristics)”? Provide a solution to the world? Save the whole world? Rule the whole world?
 
-- 还要考虑如何实现目标。
-- 具体训练哪些方面。想身材更好？为参赛而训练？想增强力量还是紧实肌肉？想要减肥？要减多少？多久完成？
+然后「她」给我讲了一个「事儿」让我离开这几年，我「都」觉得「对」中共的把握越来越「连」我都害怕了，比我想的比我知道的还可怕。她说：“七哥，你去好好看一看数据，所有人民银行公布的都是外汇流入，贸易额增长「数据」。「有没有」公布过中国的几大指标：外汇流出、中国的外债数据 –「包括」贸易下的外债，还有真正金融领域的外债「数据吗」？”她说：“折腾折腾这个国家就是个破产的国家。”
 
+Then she told me something horrific. After I left China for a few years, I became more and more unsure about my understanding of the CCP. It was more terrifying than what I thought and what I knew. She said, “Brother Miles, please take a good look at the data. The only thing the People’s Bank of China publishes is data on foreign exchange inflows and trade volume growth. Have they published any major indicators related to China, such as foreign exchange outflows, China’s foreign debt, including foreign trade debt? Is there any real foreign debt data in the financial sector?” She said, ” With all its self-inflicted mistakes, this country will be a bankrupt country.”
 
-3.使用记录日志跟踪进展。无论健身的目的是什么，通过记录日志来跟踪进展可以给你带来动力。日志中写上目标和计划，让你专注训练并随时跟踪训练情况。
+然后更可怕的把我吓住了：DCEP「这个」共产党发展的「号称」世界上最牛叉的数字人民币。「她说」：“七哥你知道吗？连续21次测试全面失败。”「共产党」想绝对中心化！区块链最重要的就是你得通知全世界有你的货币，所以是不可逆转的，绝对安全的。「但」共产党想把它「的数字人民币系统」全部控制「起来」，谁也不能知道只有「它自己」知道。结果钱发出去没了，收不回来了，这叫“断区块链”，「或叫」区块链黑洞。「共产党」解决不了「这个问题」。当时最牛的在国外回去这些人在数字人民币上所有人都骗了中共。
 
-- 每天或每周追踪进展。如果正在训练16公里赛，可以记录每周跑的里程数。
-- 也可使用台历或图表记录每周或每月的训练计划。
+Then something frightened me even more: DCEP, the CCP-developed digital RMB, which is also what they thought would be the world’s most awesome system. She said, “Brother Miles, did you know, they have failed 21 consecutive tests?” The CCP wants absolute centralized control of DCEP. The key feature of the blockchain is that you must inform the whole world about your currency[’s transactions], so it is irreversible and absolutely secure. But the CCP wants to control all its digital RMB. No one can know anything about it, except the CCP. But the money end up disappeared after being sent out, and cannot be recovered. This should be called a broken blockchain or a blockchain black hole. The CCP still cannot solve this problem. Back then, the most talented people were recruited from overseas and went back to China. All these people cheated the CCP on the digital RMB.
 
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/609a981537f7f73984ca8ce3](https://gtv.org/getter/609a981537f7f73984ca8ce3) (0:33-3:39, 6:13-7:20)
+鸣谢：
+[1] 感谢Antsee-GTV、TING GUO、文惜和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于[https://gnews.org/zh-hans/1233453/](https://gnews.org/zh-hans/1233453/)
+[2] 感谢YY、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于[https://gnews.org/1239522/](https://gnews.org/1239522/)
 
-4.到健身房或购买健身器械训练。某些健身计划可能需要使用特殊的健身器械。身体锻炼不一定都需要用上健身器械，但是你需要考虑哪种健身器械最有助于实现目标。
+* * *
 
-- 到健身房健身。多数运动都可以在健身房内进行。健身房里，你既可进行各类有氧训练，力量训练，也可以参加课程。即使用不上要健身房的器械，下雨天或大冷天能在室内锻炼。
-- 如果不喜欢健身房，可以考虑购买一些家用健身器械。可先购买一些小型器械，比如哑铃或者拉力带，也可以购买较为昂贵的器械，比如有氧健身机或家用健身机。
+**字幕：【JennyL】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-
-校对/发稿：火内
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12223539/5%E6%9C%88.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
-
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1

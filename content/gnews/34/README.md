@@ -1,148 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 战友展览板【5/16】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1249266/)
+## 【郭先生直播经典回顾】2017年6月6日报平安直播关于王歧山2 完整版
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1249443/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
+出品：Gnews编辑部郭先生直播资料库整理工作组
 
-【以毒灭共】推文。如下
+任何人如果不看清本质，只想报一己私仇，那真的是我们的悲哀。现在是国难当前，野心家要篡党夺国，会有更多的防火墙和警察，那是独裁治国、太监治国，叛国贼治国，我们将真正进入黑暗的时代，大家千万别幻想。
 
+——郭文贵
 
+**要点一：文贵先生认为直播是责任和信任**
 
-> 我向中国共产党宣战。 我们将共同击败中国共产党。 [pic.twitter.com/eQLWkzlpBK](https://t.co/eQLWkzlpBK)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 16, 2021](https://twitter.com/LawrenceSellin/status/1393944212169793541?ref_src=twsrc%5Etfw)
+我发现直播能上瘾，但是对我来讲代价太大了，当网红日子不好过，随着日积月累，压力就大了，因为这是一份责任、一份信任。我是用家人、员工、资产做代价，这就不是网红的概念了，在梦里我都在打仗。
 
+**要点二：各种海外的力量想对文贵先生下手**
 
-0. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1393944212169793541?s=20)**：
-*我向中国共产党宣战。 我们将共同击败中国共产党*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16212501/E1dOL3ZXMAEwJPZ.png)1. **[Wenming推特](https://twitter.com/JOHN16489988/status/1393670025509228548?s=20)**：
-***（火来）**史佩勇的合作网络基于隶属网络关系。显然，史佩勇（关系网络图），是中国共产党控制的中国科学院、武毒所、解放军-军事科学院和新加坡/美国研究所之间的桥梁*
-***（Sellin)** #COVID19 侦探 （火来）专业绘制了，德克萨斯大学医学分部与史佩勇的网络关系图，他似乎是中共和人民解放军对美国病毒研究实验室进行大规模渗透的关键人物*
+全世界现在有很多人想对我下手。《德国之声》的编辑张丹红，给财新写过1000多篇的文章，跟胡舒立的关系非常好。张丹红刚刚又刊登了一篇骂我的文章，《德国之声》中文部主任石涛也在说我。最近我的推特经常倒增长，百分之百被骇客，已经被美国政府证实了。张丹红和石涛绝对是中共在海外的沉默力量。英国《泰晤士报》的编辑完全没采访过我，就引述《财新》各种对我过去的负面报道，长篇累牍的做了报道。最近推特里直接骂我的那些五毛、七毛没了，取而代之的是过去支持我的那些推友，先夸后贬，导致我最近屡屡上当。最近半个月，昭明先生的私信我都回复，昨天突然发现这是个冒牌货。我马上去昭明的另一个方式去确认，他说：“不是我”。然后我发现很多私信都是冒充熟悉的推友发的。同时美国相关部门已经确认，我的手机一直处于百分百的被篡改之中。昨天杨建翱先生也发现有人盗用我的推特给他发了信息。原来别人可以用我的名义直接在我推特里发推文，那些推文根本不是我发的，我的手机完全被控制了。我马上联系了美国政府的各个部门，他们说完全在掌握中，希望我不要在推特里面说，因为他们在观察和追踪。但是我一定要说，否则对我的伤害太大了，而这又恰恰是盗国贼们所希望的。
 
-***(Wenming)**从他在会议上的座位和他在这次会议上的主题演讲来看，史佩勇绝对是病毒研究领域的贵宾和关键人物*
+**要点三：除了公开诋毁文贵先生，还施压香港政府发函通知开庭**
 
+这些天，潘石屹和黄艳团结起来对付我，章立凡这种大V也公开诋毁我。胡舒立马上要到英国做一个演讲，通过《德国之声》、《泰晤士报》、海航控制的《福布斯》杂志、香港的东方网、《苹果日报》等媒体造谣中伤我。国内通过施压香港政府突然给我南湾的房子发了一个法院的函，按照香港的法律应该是先发警告再发函，然后起诉你就是叫“僭建”，就是违章建筑，结果直接发函，通知开庭。
 
-> 愛荷華州醫院：100％的Covid新冠肺炎患者是已經接種過疫苗的人。
-> 
->  [pic.twitter.com/LOlPqiWmN7](https://t.co/LOlPqiWmN7)
-> — 珊珊來遲 (@AILNG120) [May 15, 2021](https://twitter.com/AILNG120/status/1393624535312879627?ref_src=twsrc%5Etfw)
+**要点四：文贵先生详述跟王岐山结仇的来龙去脉并拒绝讲和**
 
+跟王岐山结仇的误会起源于刘志华。由于马建副部长、孟会青、当年监察部的马𫘜部长、高辉处长、满永平，他们查刘志华案的时候查了王岐山，结果他知道后就认为我参与其中。王岐山掌权以后把这些人全抓了，发现这些人手里可能有他的一些猛料，包括孟会青的十八个录像带、二十一个U盘，传说中的马建副部长关于他的各种视频，还有高辉处长临死前告诉我他掌握的信息，他就跟我连到一起了，所以把我们全家全抓了，同时查封了我的资产。这是王岐山打着国家的名义对我的迫害打击，我们俩的仇就是这么形成的。很多人愿意帮忙调和我们之间的关系，其中还有一个外国领导人，我马上拒绝，因为我太了解王岐山了，他所有的答应都是缓兵之计。博讯有一篇报道说我爆料“王岐山和胡舒立有私生子”，我从来没说过。但是王岐山先生找了当时的工商总局的局长张茅，传话过来说“他已经跟郭声琨部长说了必须把我给整回来闭嘴。这件事情说明王岐山和胡舒立是利用与被利用的关系。我发现了一个死律，大家把这个国家机器想的很神圣、很神秘、权力无边，但是当你走进这个机器内部的时候恰恰相反，内斗、内哄、互相猜忌让很多本来可以做到的事情大打折扣，这也是党内斗争的一个根源。因为胡舒立和岐山认识，官场的人都不敢说话，这也把王岐山给害了。胡舒立就像狗皮膏药一样使劲往王岐山的屁股上粘。不管王岐山和她在政治上达成什么默契，她都是你的媒体打手。王岐山绝对想象不到胡舒立和李友在北大的博雅酒店发生了什么事儿，你最相信的人民银行的范一飞和那个被判刑的陈华，和胡舒立、李友之间是什么关系。您看一下傅政华、姜良栋手里的录音录像，看看608房间里发生的事情就都知道了。
 
-2. **[珊珊来迟推特](https://twitter.com/AILNG120/status/1393624535312879627?s=20)**：
-*爱荷华州医院：100％的Covid新冠肺炎患者是已经接种过疫苗的人*
+**要点五：文贵先生谈令谷车祸案**
 
+2014年我就给中纪委、王岐山写了几封信说令计划的儿子令谷的车祸是人为事件，那个车是魏新、李友还有河南的一个老板买的。当时令计划的案子还没有出来，没人听。北大校长朱善璐把王岐山说成是这个事情的知情者，和车祸的重要执行者，让我不要再提了。我最近更加证实我的信息是准确的，要么王岐山有更大的阴谋，要么就是被你的下属骗了。我请问伟大的党中央，北大既然那么早知情，为啥不让中央知道？2015年我和李友案子发生的时候，傅政华为了钱，为了一个金融牌照，把我全家抓了以后，李友被贺锦涛给所谓的“立功”，然后从东莞跑回去，住进了豪华的警察套房，连大连是公安局长都亲自去探望，在这种情况下李友才说出魏新给令谷买车的事情。中央调查组要么是真笨，要么是公检法只对付老百姓有本事，要么就是故意隐瞒！这些故意隐瞒的人现在都在官位上、有实权、控制着国家，我要让老百姓知道真相，不在乎谁被卷进去。
 
-> Pei-Yong Shi, who has been working with CCP People’s Liberation Army, is part of a 2021 Fauci grant for $926,569.
-> Pei-Yong Shi is now a Professor at the University of Texas Medical Branch (UTMB) and an Honorary Professor at the Wuhan Institute of Virology[https://t.co/C9RZMhqb3k](https://t.co/C9RZMhqb3k)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 15, 2021](https://twitter.com/DrLiMengYAN1/status/1393592142229123075?ref_src=twsrc%5Etfw)
+**要点六：胡舒立、李友、魏新、黎瑞刚都是野心家**
 
+胡舒立不简单，她很有可能就是当年在101中学杀人的一个女文革头子。她最危难的时候是李友、北大和魏新给了她钱，北大和魏新可不是只想赚钱，他们是有政治野心的。她到处吹嘘和王岐山的关系，一辈子都在害人，干了多少坏事。我想问问党中央：“胡舒立到底是什么身份？她有什么价值值得国家为她做这些？”。所有的海外媒体、沉默的力量都和胡舒立勾搭在一起，在国内是反腐英雄，在海外是反共英雄，然后和魏新、李友等人策划、隐瞒了令谷的车祸案件，竟然无一人敢过问。黎瑞刚先生控制着CMC几千亿美元的股权，入股了财新，做了上海市政府秘书长、副市长、常委的 “准女婿”，他不是经济人士，他们都是同流合污的野心家，他们有更大的野心，我们这个国家存在着巨大的危机。
 
-3. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1393592142229123075?s=20)**：
-*（上）[一直与中共人民解放军合作的史佩勇，获得了2021年福奇资助的926,569美元的一部分。
-史佩勇现在是德克萨斯大学医学分部（UTMB）的教授和武汉病毒研究所的名誉教授](https://www.thegatewaypundit.com/2021/05/exclusive-dr-anthony-fauci-funded-research-led-patents-chinese-military/)*
-*（下）[史佩勇博士就 #COVID19的自然起源进行辩护：
--不知道武毒所冠状病毒工作的具体细节
--操纵病毒可能引发意外泄漏或工程病毒的理论。
--阴谋论只是我们必须处理的事情](https://www.todayonline.com/world/coronavirus-wuhan-lab-conspiracy-theory-will-not-go-away)*
+**要点七：文贵先生坚持****“****郭七条****”****绝不上当**
 
+我生在东北赵家沟红旗岭一个小山旮旯里面，连农民都不是，是一个被打成右派的反革命家庭。定义我是农民和工人都不太准确，严格讲当年叫“盲流”——流窜犯，现在应该说是第一批走向私营企业的、走向国际的，叫“弄潮儿”。章立凡定义我不反皇帝所以不可信，我不反皇帝就不反到国贼吗？！ 这些人怂恿我站在国家、民族和习主席的对立面，“郭七条”是我的所有原则，我不会上你们的当。
 
-> 20210515蓬佩奧國務卿接受FOX採訪
-> 1. 將能源管線被黑客跟武漢病毒連在一起，都對美國人是生死危脅
-> 2.這不是作為老兵所見過的（火戰）生死危脅，且對敵國而言非常廉價的方法
-> 3.從大局出發，全世界都該聯合起來將中共踢出重要機構、加關稅
-> 4.制裁中共領導人
-> 5.直到中共幫助世界了解病毒怎麼跑出中共國的 [pic.twitter.com/PRpyYtxRuX](https://t.co/PRpyYtxRuX)
-> — Andy5 (@andy5\_123) [May 16, 2021](https://twitter.com/andy5_123/status/1393859570515148802?ref_src=twsrc%5Etfw)
+当年军队里面的二号人物对我说解放军从来打仗不靠武器赢别人而是靠脑子，让敌人自己毁灭。军队这么高的领导骗老百姓、骗全世界，我觉得就像当年洪秀全的部队似的。“真相不可改变，事实不容篡改。”我连万分之一的证据都没有拿出来呢，我无法叫醒一个装睡的政府。
 
+**要点八：海航几百家企业都叫太平洋（****Pacific****），背后就是王岐山家族**
 
-4. **[Andy5推特](https://twitter.com/andy5_123/status/1393859570515148802?s=20)**：
-*20210515蓬佩奥国务卿接受FOX採访
-将能源管线被黑客跟武汉病毒连在一起，都对美国人是生死危胁
-2.这不是作为老兵所见过的（火战）生死危胁，且对敌国而言非常廉价的方法
-3.从大局出发，全世界都该联合起来将中共踢出重要机构、加关税
-4.制裁中共领导人
-5.直到中共帮助世界了解病毒怎么跑出中共国的*
+我今天拿出的资料是一个房产，这个房产公司的名称叫“Pacific”太平洋，海航几百家公司都叫“太平洋”。孙先生和孙小姐都是用太平洋公司，最后指向了贯军先生。只要中国政府能查清楚贯君是谁，何时成为了海航的第一大股东，就都清楚了。这个房子是姚明端、姚明珊、孙小姐共同居住和拥有的房子。除了18840，旁边的另外一栋房子也是现金买的，当时一切贷款、报税、注册的文件全部拿掉，因为有人要消除证据，但是他们却留下了最大的证据。王岐山的房产不是一个两个，他过去十几年来用的公司就叫“太平洋”，而海航控股集团所有的公司当中绝大多数，特别是陈峰的儿子陈晓峰控股的集团和贯君控股的集团也叫“太平洋”。而且这个“太平洋”名下的房子里边，所有的居住者都是王岐山的妻子——姚明珊。孙先生和姚明端生的孩子，这是另外一个男人的孩子，是不是王岐山的，本人答复吧。所以我要给中央说，我一次次地会亮出来他不同的房产，不同的资金来源。我已经将刚才的公司架构，几百家的公司架构，涉及到几万亿的公司和国家贷款、人名的贷款和资产结构已经在推特发出去了，而且王岐山的妻子是否是拥有美国身份，贯君是谁，我未来一定拿出证据，包括一部分人的DNA。我昨天看到海航把787飞机在香港到三亚寻找坐飞机的人，还送两晚上的客房，真卑鄙！用这种办法骗老百姓787不是为个人买的，是出租的。如果787让你免费坐了，你就等于替这些犯罪分子做了保证，就是助纣为虐。787每小时6万美元的成本飞行，如果为了演戏飞一次，那钱是人民的、国家的。三、四亿美元买的787，这些人能在乎你300美元或1000美元的房租吗？这办法太拙劣了，真是对我们智商的侮辱！这个世界上，当他骗你第三回成功的时候就再不会尊重你了，因为你就是个傻瓜，他不骗你都对不起你，你的愚蠢证明了他的智慧，证明了他的伟大。你想想，你要是陈峰得多高兴啊，我骗他们2万亿弄一架787，从香港飞到海南，一共飞才1个多小时6万美金，然后让你坐两遍证明这是商务飞机不是私人飞机，把几亿美元最后全掩盖了，你要去坐了不成了最愚蠢的人了吗？！
 
+**要点九：盗国贼要窜党夺国，战友们团结起来为自己奋斗**
 
-> Chinese Military Scientist, Shibo Jiang, Suspected of Involvement in COVID-19 Creation Elected to American Academy of Microbiology in February 2021
-> ([#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@John16489988](https://twitter.com/JOHN16489988?ref_src=twsrc%5Etfw) acknowledged and thanked for the tip)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19India](https://twitter.com/hashtag/COVID19India?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/t8bLTqhYNk](https://t.co/t8bLTqhYNk)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 16, 2021](https://twitter.com/LawrenceSellin/status/1394000081620291584?ref_src=twsrc%5Etfw)
+任何人如果不看清本质，只想报一己私仇，那真的是我们的悲哀。现在是国难当前，野心家要篡党夺国，会有更多的防火墙和警察，那是独裁治国、太监治国，叛国贼治国，我们将真正进入黑暗的时代，大家千万别幻想。我个人的力量太渺小了，推友们团结在一起，我们一定不要把这件事变成灾难。“六四”给我们提了醒，我们可以用好的手段、好的办法，达到好的目的。暴力换来的革命，一定是更加糟糕，等待的将是另外一个暴力。如果大家不团结起来，像海航和王岐山这么重大的经济事件，我们不求个真相，那未来的下一个盗国贼会更加嚣张，他们要的是篡党叛国，要的是这个国家，那些钱只是他们的工具，他们不光要钱还要我们的命，要我们孩子的命！我们现在所做的事情是真正的为国家好、为人民好，我们现在所有的核心目的就是让老百姓拿回他们应有的钱，得到他们应有的尊严和安全。
 
+**要点十：文贵先生时刻被各种攻击，但是享受在其中**
 
-5. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1394000081620291584?s=20)**：
-*[涉嫌参与制造COVID-19的中国军事科学家姜世波于2021年2月当选为美国微生物学会院士](https://www.thegatewaypundit.com/2021/05/chinese-military-scientist-suspected-involvement-covid-19-creation-elected-american-academy-microbiology/)
-(感谢 #COVID19 侦探Wenming提供的线索) #CCPVirus #COVID19India #coronavirus*
+我向大家报个好消息，前天我妻子和北京的老领导通电话，老领导说：“庆芝、郭美同志，回不回来不重要了，你们的事情就算过去了，你随时回来、随时进出，然后多陪陪文贵，让文贵冷静”。我非常的感谢这位老领导，感谢国家有正义的领导还有老领导给了我妻子、女儿依法治国的好榜样，她们特别的感激和开心，过两天我妻子和女儿一定要回去的，因为她们要证明给全世界看守信用是帮助国家依法治国的一个很重要的体现，我们要守信用。她们越在我身边实际上越痛苦，每秒钟都在恐惧中，这种恐惧和危险时时刻刻能体会到，就怕我被杀了。我在生命随时受到威胁的情况下，还要跟着不同层次的黑客、推特、说客、政治家、情报机构，还有流氓下三滥，来自海外的沉默力量的各种攻击，确确实实不容易，我真是有一万只手一万个脑袋都抵挡不过来，但是我享受在其中，因为当我决定走这条路的时候就做好了一切准备，让暴风雨来得更猛烈些吧！
 
+**要点十一：全球新闻发****“****不****”****会将成为改变中国里程碑的事件**
 
-> Just find out, [#NingyiJin](https://twitter.com/hashtag/NingyiJin?src=hash&amp;ref_src=twsrc%5Etfw) disappeared from the Institute of Zoonosis. Well, CCP's response is always honest when digging the truth. Where is [#NingyiJin](https://twitter.com/hashtag/NingyiJin?src=hash&amp;ref_src=twsrc%5Etfw) ?
-> 刚刚发现金宁一从人兽共患病研究所的网站上消失了. 当找到真相时, [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) 的反应一向都很诚实！金宁一去哪儿了？ [pic.twitter.com/dxpC7o9InV](https://t.co/dxpC7o9InV)
-> — Anna (@2020Gladiator) [May 16, 2021](https://twitter.com/2020Gladiator/status/1393992270093987845?ref_src=twsrc%5Etfw)
+接下来爆料的核心是全球新闻发“不”会。这将成为改变中国里程碑的事件，一切都在我的计划之中。三年的时间有三季爆料，如果我被害，一定有成百上千个郭文贵把91本资料全部拿出来，能拍成1000集电视剧，我会用生命和时间来给你们看，任何对我愚蠢无知的攻击都将付出血的代价。我看到了这些丧心病狂的盗国贼们，这些官商混在一起的盗国集团们正在侵蚀着我们的
 
+未来，毁灭着我们的国家。我有多危险我就有多少价值，我有多恐惧就应该承担多少责任。我已经成为验证中国政府到底是否反腐，是否反对以贪反贪、以法反贪，是否真正要实现中国梦，是否能在国际上得到尊重的重要的试金石。我的生死已经不重要，我会用事实证明给所有人看，我愿付一切刑事和经济责任，我愿意对我所有爆的料承担一切责任。
 
-6. **[Anna推特](https://twitter.com/2020Gladiator/status/1393992270093987845?s=20)**：
-*刚刚发现金宁一从人兽共患病研究所的网站上消失了. 当找到真相时, #中共 的反应一向都很诚实！金宁一去哪儿了？*
+致谢：
+听写校对：首尔喜韩农场 文佑(荆棘不鸟) 
+要点原文：纽约香草山农场 理想喜国 
+要点原文校对：巴塞喜悦农场 Awen
+要点编辑：纽约香草山农场 369文驹
+要点编辑校对：纽约香草山农场 GForever(文紫)
+发布整理：休斯顿星光农场 文顺
+发布：东京樱花团 二丫
+**视频链接：**[**https://youtu.be/jnlvSdrlmcA**](https://youtu.be/jnlvSdrlmcA) （时长：68分钟）
 
-
-> Uh Oh.
-> Former biomedical Professor Zheng Songguo from Ohio State University Sentenced to 37 Months in Prison for Using Federal Grants to Aid China’s Medical Research.[https://t.co/31b2QnOJQo](https://t.co/31b2QnOJQo)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393622172766179328?ref_src=twsrc%5Etfw)
-
-
-7. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1393622172766179328?s=20)**：
-*呃，哇。
-[俄亥俄州立大学前生物医学教授郑松国因利用联邦补助金援助中共国的医学研究而被判处37个月监禁](https://www.theepochtimes.com/mkt_breakingnews/former-professor-sentenced-to-37-months-in-prison-for-using-federal-grants-to-aid-chinas-medical-research_3816589.html?utm_source=newsnoe&amp;utm_medium=email&amp;utm_campaign=breaking-2021-05-15-1&amp;mktids=6a511b62f3200d1587185d77fa4f88ef&amp;est=0NuUvTo27HTDneHG%2Fu6qv1xO0Cwhohf3Sz00E1S%2Bfd6HkSFK5RFlMRZ7FzSr3cfA5DMlkgA%3D)*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16220022/E1cgbGgVEAAkaUj.jpeg)8. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1393778363664375813?s=20)**：
-***（火来）**史佩勇合作关系网中的一些关键人物
-
-**（Sellin）**COVID19侦探（火来） ，再次提供了宝贵的信息–中共科学家史佩勇的合作研究网络图。让我们在这些链接中找出与军事有关的人*
-
-
-> Dr. Li-Meng YAN [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) is absolutely correct. Many have been misled. If you look at the original Mojiang miner clinical data, it is impossible to distinguish between a virus respiratory infection and fungal histoplasmosis and there was no human to human transmission. [https://t.co/Z2CLbIvoN1](https://t.co/Z2CLbIvoN1)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 16, 2021](https://twitter.com/LawrenceSellin/status/1393811064500981764?ref_src=twsrc%5Etfw)
-
-
-9. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1393811064500981764?s=20)**：
-***（闫）**因为那篇博士论文本身对墨江矿工病例相关数据的表述就缺乏准确性。而且墨江的病例也没有被证实为冠状病毒感染。我已经解释了云南矿洞理论（如图所示）。许多无辜的科学家被误导到这方向
-
-**(Sellin）**闫丽梦博士说得非常正确。许多人都被误导了。如果你看一下原始的墨江矿工的临床数据，是无法区分病毒性呼吸道感染和真菌病的，当然也没有后面的人与人之间传播*
-
-
-> Unfortunately, the mentioned PhD thesis from China CDC head George, Fu Gao’s student, is not rigorous work. It would mislead investigation of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) origin to wrong “Yunnan mine cave theory” then waste energy.
-> I have presented evidence/analysis in the 2nd Yan Report. Verify it! [https://t.co/1hG4mmAIYs](https://t.co/1hG4mmAIYs)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 16, 2021](https://twitter.com/DrLiMengYAN1/status/1393739998244052994?ref_src=twsrc%5Etfw)
-
-
-10. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1393739998244052994?s=20)**：
-***（梅茨尔）**[当揭开 #大流行病起源 的历史被书写后，我相信它将揭露科学期刊和主流媒体的巨大失败，并承认世界各地独立侦探的重要和不懈的工作。](https://www.independentsciencenews.org/commentaries/a-chinese-phd-thesis-sheds-important-new-light-on-the-origin-of-the-covid-19-coronavirus/)#COVID19
-
-**（闫）**遗憾的是，上述中共国疾控中心负责人乔治（高福的学生）的博士论文，并不是严谨的工作。它将误导对 #新冠病毒起源 的调查，使之成为错误的 “云南矿洞论”，然后引导其他人浪费精力。
-我已经在第二份《闫报告》中提出了证据/分析。请核实!*
-【灭共时代】
-
-
-
-> 文革时傳說有次盲人聚会，大家一起唱“在北京的金山上”，熱淚盈眶，其中一個盲人复明了。。。。。 [pic.twitter.com/NC6LAr5no8](https://t.co/NC6LAr5no8)
-> — Bo Lu II (文龍） (@BoLu213) [May 15, 2021](https://twitter.com/BoLu213/status/1393603863576461312?ref_src=twsrc%5Etfw)
-
-
-**[文龙推特](https://twitter.com/BoLu213/status/1393603863576461312?s=20)**：
-*文革时传说有次盲人聚会，大家一起唱“在北京的金山上”，热泪盈眶，其中一个盲人复明了。。。。。*
-
-
-> 同意，科研在中共指导下变成了劳动作坊。稍微有点能力的努力给的骨头带一丝肉，就会感恩戴德。我很多优秀学生都这么回去了，但是我只点到为止。思维决定未来，甚至决定民族的兴旺。 [https://t.co/DZURerCP77](https://t.co/DZURerCP77)
-> — 墨博士 (@4RxMbPD3YbeN1fS) [May 15, 2021](https://twitter.com/4RxMbPD3YbeN1fS/status/1393423949581602816?ref_src=twsrc%5Etfw)
-
-
-**[墨博士推特](https://twitter.com/4RxMbPD3YbeN1fS/status/1393423949581602816?s=20)**：
-***（火来）**特别想说，墙内做科研读博士的，特别是中科院系统的，都是来自底层草根家庭。这些学生被老板压榨上七八上十年不给毕业，那是常有的事。好不容易毕业了，出国盼着发篇好文章，回国找个好工作，基本都是这个路子，也许他们并不知道自己身处这样一个巨大的网络中。草根家的孩子永远是炮灰，真是太邪恶
-**（墨）**同意，科研在中共指导下变成了劳动作坊。稍微有点能力的努力给的骨头带一丝肉，就会感恩戴德。我很多优秀学生都这么回去了，但是我只点到为止。思维决定未来，甚至决定民族的兴旺*
-
-
-> 啥世道啊，寺庙里的和尚尼姑都变成了传承共产党红色基因的继承人了，都成了党的人了。 [pic.twitter.com/qrfj6E73im](https://t.co/qrfj6E73im)
-> — Jay Yates (@lazydjay) [May 15, 2021](https://twitter.com/lazydjay/status/1393564997230465027?ref_src=twsrc%5Etfw)
-
-
-**[机器猫推特](https://twitter.com/lazydjay/status/1393564997230465027?s=20)**：
-*啥世道啊，寺庙里的和尚尼姑都变成了传承共产党红色基因的继承人了，都成了党的人了*
-
-
-+1
+0

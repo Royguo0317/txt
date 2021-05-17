@@ -1,55 +1,148 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 揭开中共国护照含金量正极大提高之低级谎言
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1248453/)
+## 战友展览板【5/16】
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1249266/)
 
-【作者】JINGZI 【编辑】杰西拉雅
+**西班牙巴塞罗那喜悦农场** wenwu
 
-![](https://lh4.googleusercontent.com/xlQY0M4JaP7zQm7C5F4dwn0NM49TEwzfjbONlXq5wt-BIj0rF4NmSHFw_Six8Sp3fxECUu_KfIABBL_mpjGO2hxFCVx070tlbf09gGgcNy8MJ14tzpDPrIBnMDEtMTCwjAPdK4dX)
+【以毒灭共】推文。如下
 
-经常出国或者但凡有点经验的人都知道，普通人去欧美日等等国家办手续能烦死人，填表，资产证明，申请，审核，面签……..中共国的护照在国际上基本就是垃圾级别的护照。垃圾也就罢了，偏偏中国政府自个儿不承认，硬要说该国护照含金量极高， 有72个国家可以免签或者落地签….
 
-真实情况是这样么? 所谓的72个国家免签或者落地签只适用因公护照，普通人的私人护照根本行不通，玩文字游戏，满嘴低级谎言，除了夜郎自大就是忽悠百姓。
 
-中国护照可以分为两个概念，一个是权贵们的，一个是普通老百姓的。权贵，官员们可以轻松办个因共护照全球随便跑；老百姓出个国去申办个人护照几乎要把腿跑断才能将所有的证件收集齐全。
+> 我向中国共产党宣战。 我们将共同击败中国共产党。 [pic.twitter.com/eQLWkzlpBK](https://t.co/eQLWkzlpBK)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 16, 2021](https://twitter.com/LawrenceSellin/status/1393944212169793541?ref_src=twsrc%5Etfw)
 
-中国的官方媒体用低级文字游戏忽悠国人也算是死性不改，它们说到中国向来就是上下五千年，纵横几万里，文化博大精深，人民热情好客。那么这么一个国家的人民为何迈出国门这么难呢？要知道中国的经济早也是世界第二了呀。
 
-主流媒体给的解释无非是，中国虽然富裕了，但是人均收入整体还偏低，有非法移民倾向，加上意识形态的问题西方常常误会排挤中国人，所以中国的护照在国际上不太受欢迎。
+0. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1393944212169793541?s=20)**：
+*我向中国共产党宣战。 我们将共同击败中国共产党*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16212501/E1dOL3ZXMAEwJPZ.png)1. **[Wenming推特](https://twitter.com/JOHN16489988/status/1393670025509228548?s=20)**：
+***（火来）**史佩勇的合作网络基于隶属网络关系。显然，史佩勇（关系网络图），是中国共产党控制的中国科学院、武毒所、解放军-军事科学院和新加坡/美国研究所之间的桥梁*
+***（Sellin)** #COVID19 侦探 （火来）专业绘制了，德克萨斯大学医学分部与史佩勇的网络关系图，他似乎是中共和人民解放军对美国病毒研究实验室进行大规模渗透的关键人物*
 
-乍一听，还好像有点道理，其实稍微推敲下就知道这也是扯淡，真正的原因不是这样。 比中国穷，人均收入低的国家很多，这些国家的护照含金量都比中国高。东南亚为例，印尼，老挝，缅甸这些国家都比中国穷，但这些国家的公民出入东南亚地区的国家都是盖一个章的事，印度同样人多，比中国更穷，但是印度护照出入英联邦国家比中国人出国容易太多。
+***(Wenming)**从他在会议上的座位和他在这次会议上的主题演讲来看，史佩勇绝对是病毒研究领域的贵宾和关键人物*
 
-一个国家护照含金量高低什么因素决定的？什么样的国家的人民普遍受全世界欢迎，出国容易呢？  答案很简单，想一下在一个村子里面，什么人最受尊敬，最招人待见，这样的人不管去谁家串门做客肯定是受欢迎的，护照也是一样道理。
 
-一个真诚，讲信用，做事正派的人肯定去那里都受欢迎，反之弄虚作假，坑蒙拐骗，没有信用的人即便很有钱也肯定不受欢迎，一个国家的公民的整体素质，文明程度，是否诚信，国际形象是决定该国护照含金量的核心因素，护照的含金量反映的就是该护照持有者的受欢迎程度。
+> 愛荷華州醫院：100％的Covid新冠肺炎患者是已經接種過疫苗的人。
+> 
+>  [pic.twitter.com/LOlPqiWmN7](https://t.co/LOlPqiWmN7)
+> — 珊珊來遲 (@AILNG120) [May 15, 2021](https://twitter.com/AILNG120/status/1393624535312879627?ref_src=twsrc%5Etfw)
 
-纵观全球，护照指数最高的国家近年来大体是日本，新加坡，芬兰，德国，加拿大等国。这些国家不仅仅是富裕，更重要的是国际上口碑比较好。比如日本全球遵守世界规则排名第一，日本人讲礼貌，守信用更是有目共睹，手持一本日本护照全球随便跑实至名归。
 
-中国人在国际上展示出来的整体形象如何呢？东南亚某小国，一次一个还算是小粉红的朋友对我说，我不看衣服，不听声音就看走路姿势基本就知道在逛街的游客是不是中国人。这么厉害，我问你怎么判断的呢？他说中国人大部分都挺着啤酒肚，戴一眼镜，走路一摇一摆很屌的样子，一副趾高气扬的做派，我说的也许不一定十分准确，但是我就是能感受出来。
+2. **[珊珊来迟推特](https://twitter.com/AILNG120/status/1393624535312879627?s=20)**：
+*爱荷华州医院：100％的Covid新冠肺炎患者是已经接种过疫苗的人*
 
-我这位朋友确实观察力很好，仔细想想他说的确实很对。中国人在海外的形象不正是如此么？那些红二红三代，天天开跑车到处炫富唱红，暴发户们趾高气扬，要么到世界各大名店哄抢名牌，要么旅游之国除了到处拍照，还抢奶粉；大妈大叔们将自助餐中稍贵的食物悉数夺入自己的盘中，伪民运欺民贼到处骗捐，俚称蛇和燕子的间谍们通过“蓝，金，黄”偷盗他国的发明创造及政府机密………… 这样的中国人能让全世界信任么？你到人家的国家去人家肯定不放心要层层审核的。
 
-媒体宣传的所谓意识形态歧视也是彻头彻尾的谎言，无非是全世界大多数国家的主流意识形态都是自由平等人权，而中国在共产党的统治下的主流思想却是家天下，财富公有化，权力私有化。如果一切都是党的，那么人权，自由是扯淡。这样的意识形态哪个正常国家的人民会真心和你产生共鸣？ 所以华人在全球整体是很孤立的，很难融入别国的主流社会，真正融入的人都是从思想上和共产主义切割的人，这样的人很少认为自己是中国人。
+> Pei-Yong Shi, who has been working with CCP People’s Liberation Army, is part of a 2021 Fauci grant for $926,569.
+> Pei-Yong Shi is now a Professor at the University of Texas Medical Branch (UTMB) and an Honorary Professor at the Wuhan Institute of Virology[https://t.co/C9RZMhqb3k](https://t.co/C9RZMhqb3k)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 15, 2021](https://twitter.com/DrLiMengYAN1/status/1393592142229123075?ref_src=twsrc%5Etfw)
 
-在海外生活的许多华人内心是不愿和华人过多打交道的，因为太累，太烦，很容易被自己人骗。这种情况的根源是共产党的洗脑教育宣传，而造成的国人普遍假，大，空，没有诚信，做事没有底线。
 
-举一个很简单的发生在身边的例子，老外问一个中国人：“武汉人吃蝙蝠很多么？这个病毒是从哪里传染开的？”， 如果这个中国人按照标准答案回答 “只有少数人吃，病毒是从蝙蝠传染来的。” ，可是真相出来后，老外却发现这个中国人说谎，你的信用大打折扣。 如果这个中国人回答：“病毒根本不是从动物传染来的，是实验室来的生化武器”，那完了，这个中国人肯定会被他周围的同胞骂成神经病，卖国贼，从此华人朋友离他而去。这种情况老外会怎么看中国？一边厢官方媒体说病毒来自野生动物，另一边中国人因为彼此观点不同都能打的你死我活，中国人的国际形象能好么？
+3. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1393592142229123075?s=20)**：
+*（上）[一直与中共人民解放军合作的史佩勇，获得了2021年福奇资助的926,569美元的一部分。
+史佩勇现在是德克萨斯大学医学分部（UTMB）的教授和武汉病毒研究所的名誉教授](https://www.thegatewaypundit.com/2021/05/exclusive-dr-anthony-fauci-funded-research-led-patents-chinese-military/)*
+*（下）[史佩勇博士就 #COVID19的自然起源进行辩护：
+-不知道武毒所冠状病毒工作的具体细节
+-操纵病毒可能引发意外泄漏或工程病毒的理论。
+-阴谋论只是我们必须处理的事情](https://www.todayonline.com/world/coronavirus-wuhan-lab-conspiracy-theory-will-not-go-away)*
 
-一个国家的护照是这个国家的脸面，名片，它不靠GDP，不靠撒币，不靠宣传，靠的是这个国家人民的整体素质，形象，一言一行长年累月积攒。我们的护照含金量的垃圾级别是共产党统治这70年来，使人民偏离正道主义，造成一些中国人道德沦丧，诚信尽失的必然结果。
 
-大撒币大收买可以换来表面的客套寒暄，却永远换不来真正尊重。只有消灭共产党，重塑中国人的道德，文明，提升精神形象才能真正让华人在全世界都受人爱戴，那时候护照含金量也自会大幅提高。
+> 20210515蓬佩奧國務卿接受FOX採訪
+> 1. 將能源管線被黑客跟武漢病毒連在一起，都對美國人是生死危脅
+> 2.這不是作為老兵所見過的（火戰）生死危脅，且對敵國而言非常廉價的方法
+> 3.從大局出發，全世界都該聯合起來將中共踢出重要機構、加關稅
+> 4.制裁中共領導人
+> 5.直到中共幫助世界了解病毒怎麼跑出中共國的 [pic.twitter.com/PRpyYtxRuX](https://t.co/PRpyYtxRuX)
+> — Andy5 (@andy5\_123) [May 16, 2021](https://twitter.com/andy5_123/status/1393859570515148802?ref_src=twsrc%5Etfw)
 
-【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-**欢迎战友加入旧金山金喜农场**
+4. **[Andy5推特](https://twitter.com/andy5_123/status/1393859570515148802?s=20)**：
+*20210515蓬佩奥国务卿接受FOX採访
+将能源管线被黑客跟武汉病毒连在一起，都对美国人是生死危胁
+2.这不是作为老兵所见过的（火战）生死危胁，且对敌国而言非常廉价的方法
+3.从大局出发，全世界都该联合起来将中共踢出重要机构、加关税
+4.制裁中共领导人
+5.直到中共帮助世界了解病毒怎么跑出中共国的*
 
-[旧金山金喜农场](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)[**GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
 
-[旧金山金喜农场](https://discord.gg/QQzQ79grEA)[**Discord**](https://discord.gg/QQzQ79grEA)
+> Chinese Military Scientist, Shibo Jiang, Suspected of Involvement in COVID-19 Creation Elected to American Academy of Microbiology in February 2021
+> ([#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@John16489988](https://twitter.com/JOHN16489988?ref_src=twsrc%5Etfw) acknowledged and thanked for the tip)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19India](https://twitter.com/hashtag/COVID19India?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/t8bLTqhYNk](https://t.co/t8bLTqhYNk)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 16, 2021](https://twitter.com/LawrenceSellin/status/1394000081620291584?ref_src=twsrc%5Etfw)
 
-[旧金山金喜农场](https://twitter.com/sf_himalaya)[**Twitter**](https://twitter.com/sf_himalaya)
 
-[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
-![This image has an empty alt attribute; its file name is QRcode_GGB_v2.jpg](https://lh4.googleusercontent.com/2Yll3_o8WAewPEle23Re7GrfelivsUtAIPhs7GcD2ESgJg-VONopi2L8w6Ef9y-CnG3MTBoGrEkNhjRYNhpTPx9lEG1pFbewOMFft3CRiJPB4qAMXXonTW_6kfK8FYZElptGfnds)
+5. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1394000081620291584?s=20)**：
+*[涉嫌参与制造COVID-19的中国军事科学家姜世波于2021年2月当选为美国微生物学会院士](https://www.thegatewaypundit.com/2021/05/chinese-military-scientist-suspected-involvement-covid-19-creation-elected-american-academy-microbiology/)
+(感谢 #COVID19 侦探Wenming提供的线索) #CCPVirus #COVID19India #coronavirus*
+
+
+> Just find out, [#NingyiJin](https://twitter.com/hashtag/NingyiJin?src=hash&amp;ref_src=twsrc%5Etfw) disappeared from the Institute of Zoonosis. Well, CCP's response is always honest when digging the truth. Where is [#NingyiJin](https://twitter.com/hashtag/NingyiJin?src=hash&amp;ref_src=twsrc%5Etfw) ?
+> 刚刚发现金宁一从人兽共患病研究所的网站上消失了. 当找到真相时, [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) 的反应一向都很诚实！金宁一去哪儿了？ [pic.twitter.com/dxpC7o9InV](https://t.co/dxpC7o9InV)
+> — Anna (@2020Gladiator) [May 16, 2021](https://twitter.com/2020Gladiator/status/1393992270093987845?ref_src=twsrc%5Etfw)
+
+
+6. **[Anna推特](https://twitter.com/2020Gladiator/status/1393992270093987845?s=20)**：
+*刚刚发现金宁一从人兽共患病研究所的网站上消失了. 当找到真相时, #中共 的反应一向都很诚实！金宁一去哪儿了？*
+
+
+> Uh Oh.
+> Former biomedical Professor Zheng Songguo from Ohio State University Sentenced to 37 Months in Prison for Using Federal Grants to Aid China’s Medical Research.[https://t.co/31b2QnOJQo](https://t.co/31b2QnOJQo)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 15, 2021](https://twitter.com/LawrenceSellin/status/1393622172766179328?ref_src=twsrc%5Etfw)
+
+
+7. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1393622172766179328?s=20)**：
+*呃，哇。
+[俄亥俄州立大学前生物医学教授郑松国因利用联邦补助金援助中共国的医学研究而被判处37个月监禁](https://www.theepochtimes.com/mkt_breakingnews/former-professor-sentenced-to-37-months-in-prison-for-using-federal-grants-to-aid-chinas-medical-research_3816589.html?utm_source=newsnoe&amp;utm_medium=email&amp;utm_campaign=breaking-2021-05-15-1&amp;mktids=6a511b62f3200d1587185d77fa4f88ef&amp;est=0NuUvTo27HTDneHG%2Fu6qv1xO0Cwhohf3Sz00E1S%2Bfd6HkSFK5RFlMRZ7FzSr3cfA5DMlkgA%3D)*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16220022/E1cgbGgVEAAkaUj.jpeg)8. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1393778363664375813?s=20)**：
+***（火来）**史佩勇合作关系网中的一些关键人物
+
+**（Sellin）**COVID19侦探（火来） ，再次提供了宝贵的信息–中共科学家史佩勇的合作研究网络图。让我们在这些链接中找出与军事有关的人*
+
+
+> Dr. Li-Meng YAN [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) is absolutely correct. Many have been misled. If you look at the original Mojiang miner clinical data, it is impossible to distinguish between a virus respiratory infection and fungal histoplasmosis and there was no human to human transmission. [https://t.co/Z2CLbIvoN1](https://t.co/Z2CLbIvoN1)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 16, 2021](https://twitter.com/LawrenceSellin/status/1393811064500981764?ref_src=twsrc%5Etfw)
+
+
+9. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1393811064500981764?s=20)**：
+***（闫）**因为那篇博士论文本身对墨江矿工病例相关数据的表述就缺乏准确性。而且墨江的病例也没有被证实为冠状病毒感染。我已经解释了云南矿洞理论（如图所示）。许多无辜的科学家被误导到这方向
+
+**(Sellin）**闫丽梦博士说得非常正确。许多人都被误导了。如果你看一下原始的墨江矿工的临床数据，是无法区分病毒性呼吸道感染和真菌病的，当然也没有后面的人与人之间传播*
+
+
+> Unfortunately, the mentioned PhD thesis from China CDC head George, Fu Gao’s student, is not rigorous work. It would mislead investigation of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) origin to wrong “Yunnan mine cave theory” then waste energy.
+> I have presented evidence/analysis in the 2nd Yan Report. Verify it! [https://t.co/1hG4mmAIYs](https://t.co/1hG4mmAIYs)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 16, 2021](https://twitter.com/DrLiMengYAN1/status/1393739998244052994?ref_src=twsrc%5Etfw)
+
+
+10. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1393739998244052994?s=20)**：
+***（梅茨尔）**[当揭开 #大流行病起源 的历史被书写后，我相信它将揭露科学期刊和主流媒体的巨大失败，并承认世界各地独立侦探的重要和不懈的工作。](https://www.independentsciencenews.org/commentaries/a-chinese-phd-thesis-sheds-important-new-light-on-the-origin-of-the-covid-19-coronavirus/)#COVID19
+
+**（闫）**遗憾的是，上述中共国疾控中心负责人乔治（高福的学生）的博士论文，并不是严谨的工作。它将误导对 #新冠病毒起源 的调查，使之成为错误的 “云南矿洞论”，然后引导其他人浪费精力。
+我已经在第二份《闫报告》中提出了证据/分析。请核实!*
+【灭共时代】
+
+
+
+> 文革时傳說有次盲人聚会，大家一起唱“在北京的金山上”，熱淚盈眶，其中一個盲人复明了。。。。。 [pic.twitter.com/NC6LAr5no8](https://t.co/NC6LAr5no8)
+> — Bo Lu II (文龍） (@BoLu213) [May 15, 2021](https://twitter.com/BoLu213/status/1393603863576461312?ref_src=twsrc%5Etfw)
+
+
+**[文龙推特](https://twitter.com/BoLu213/status/1393603863576461312?s=20)**：
+*文革时传说有次盲人聚会，大家一起唱“在北京的金山上”，热泪盈眶，其中一个盲人复明了。。。。。*
+
+
+> 同意，科研在中共指导下变成了劳动作坊。稍微有点能力的努力给的骨头带一丝肉，就会感恩戴德。我很多优秀学生都这么回去了，但是我只点到为止。思维决定未来，甚至决定民族的兴旺。 [https://t.co/DZURerCP77](https://t.co/DZURerCP77)
+> — 墨博士 (@4RxMbPD3YbeN1fS) [May 15, 2021](https://twitter.com/4RxMbPD3YbeN1fS/status/1393423949581602816?ref_src=twsrc%5Etfw)
+
+
+**[墨博士推特](https://twitter.com/4RxMbPD3YbeN1fS/status/1393423949581602816?s=20)**：
+***（火来）**特别想说，墙内做科研读博士的，特别是中科院系统的，都是来自底层草根家庭。这些学生被老板压榨上七八上十年不给毕业，那是常有的事。好不容易毕业了，出国盼着发篇好文章，回国找个好工作，基本都是这个路子，也许他们并不知道自己身处这样一个巨大的网络中。草根家的孩子永远是炮灰，真是太邪恶
+**（墨）**同意，科研在中共指导下变成了劳动作坊。稍微有点能力的努力给的骨头带一丝肉，就会感恩戴德。我很多优秀学生都这么回去了，但是我只点到为止。思维决定未来，甚至决定民族的兴旺*
+
+
+> 啥世道啊，寺庙里的和尚尼姑都变成了传承共产党红色基因的继承人了，都成了党的人了。 [pic.twitter.com/qrfj6E73im](https://t.co/qrfj6E73im)
+> — Jay Yates (@lazydjay) [May 15, 2021](https://twitter.com/lazydjay/status/1393564997230465027?ref_src=twsrc%5Etfw)
+
+
+**[机器猫推特](https://twitter.com/lazydjay/status/1393564997230465027?s=20)**：
+*啥世道啊，寺庙里的和尚尼姑都变成了传承共产党红色基因的继承人了，都成了党的人了*
+
+
 +1

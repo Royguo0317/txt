@@ -1,44 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大人口普查认可香港和台湾裔公民的独特身份
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1249441/)
+## 福奇 — 川普搞不定他 拜登也搞不定他 国会山也搞不定他
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1249501/)
 
-据环球邮报（The Globe and Mail） 记者Xiao Xu于2021年5月14日报道
+**摘要：在2021年5月12日的盖特视频中，郭先生感叹美国是一个法治国家，国会在过去两三个月间举行了一系列关于中共病毒的听证会，最终一定会把病毒真相搞得清清楚楚；也透露福奇（美国NIH/NIAID主管） “川普搞不定他，拜登也搞不定他，国会山也搞不定他”，但是这正说明美国是法治，不是人治，“什么都讲程序，什么都讲法”。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16222526/Miles_20210512-getter-p2.srt.txt)
+**福奇**** — ****川普搞不定他****拜登也搞不定他****国会山也搞不定他**
 
-**翻译整合：**加拿大温哥华圆成农场 木千
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16221638/4523.png)图源：温哥华香港协进会Facebook主页@ vanhongkongforum
-https://www.facebook.com/vanhongkongforum/
-香港和台湾侨民的成员一直在要求其群体在2021年联邦人口普查中将自己的身份标识为香港人和台湾人，而不是中国人。 **对于许多人来说，这是一个寻求更好的认可和保存其文化遗产的举动；对于另一部分人来说，这是一种使自己脱离中共国及其政府的努力。**
+**No One Can Hold Fauci Accountable?**
 
-加拿大人口普查首次列出了500多个族裔或文化渊源，供受访者定义自己的身份。 加拿大公民现在也可以称自己为台湾人或**今年新增的香港人选项**。
+更重要的是美国国会，从现在往回看过去两三个月，「举行了」一个一个的听证会全是关于中共病毒的。你去看看国会整个排的表，接下来全部的问询、问话、调查、了解、听证，全部都有关中共的经济、偷盗技术、冠状病毒、疫苗，还有整个2019年年底和2020年年初发生了病毒「流行时」，美国的反应。就是干什么？这就是美国这个国家：不能乱讲话，必须得负责任。病毒来自于何方？美国有没有参与？最终都会搞得清清楚楚。这就这个有法可依的国家，它是一个法治的国家，不是人治的国家人。人治的国家你想说啥说啥，你想干啥「就」干啥。这是真的这个美国国家伟大的地方。
 
-除了香港与大陆的文化差异，加拿大香港群体中的许多成员不再希望被识别为中国人的另一原因是**中共国为限制香港地区的自治而不断施加政治压力**。对于像Bill Chu这样的香港人来说，拒绝被认定为中国人也是一种将自己与中共国权威政权划清界限的努力。Chu先生说：“我们不应该将彼此视为同族，**否则，局外人会以为中国人都拥有相同的意识形态**–––我们当然不会与中共拥有相同的意识形态。”
+More importantly, the US Congress has held a series of hearings on the CCP virus over the past two or three months. And the congressional schedule of upcoming inquiries, questionings, investigations, and hearings all have to do with the CCP’s economy, technology theft, the CCP virus, and the vaccine, including the US response to the coronavirus pandemic in late 2019 and early 2020. What does this mean? It means that in the US, no one can speak about things without taking responsibility. Where was the virus from? Was the US involved? Eventually, everything will be figured out completely. That makes the US a nation of laws, not a country ruled by the will of a few men. In a country ruled by the will of man, a few elite families will do whatever they want, like the CCP always does. That really makes the US great.
 
-台湾社区内也正在进行着一场文化运动。加拿大台北经济文化办公室在其Facebook页面上以#IAmTaiwanese（#我是台湾人）主题标签分享了相关文章。
+就那个福奇，一个美国卫生部长，川普搞不定他，拜登也搞不定他，国会山也搞不定他。这样的人要是在中国，不要说是“习一神”收拾他，随便一个纪委的处长就把他灭100次了，但同样的事情那个处长也能被灭1万次 — 这就是美国这个社会，你想把谁搞死，没有搞死的理由，没有搞死的程序是不可以的。这就是咱们中国人的思维，「比如」在海外，一弄就要“搞死他！搞死他！” — 「全是」文化大革命的遗毒。「不想想如果」你搞死个人那么容易，人家也能搞死你那么容易。这就叫“红色恐怖”啊。所以说兄弟姐妹们你看到美国这个国家什么都讲程序，什么都讲法。
 
-在温哥华组织年度台湾文化节（TaiwanFest）的加拿大亚洲特殊活动协会常务理事Charlie Wu表示，仅选择“中国人”作为宽泛的种族身份并不能反映台湾的独特文化遗产。二十多年来一直在强调加拿大台湾人的身份的他表示，“台湾人”是描述该人群的文化复杂性和多样性更好的表示。中国人只是台湾人的一部分。同时，鉴于台湾和中国之间的持续紧张关系，他并不否认某些台湾人坚持其身份不仅限于中国人是出于**政治动机**。他补充说，**台湾人很难在文化上区分自己的身份，因为中共国政府常出于政治目的操控身份定义**。
+With respect to that Fauci, the Director of NIAID in the US, Trump could not handle him, nor could Biden or the Capitol Hill. If he were in China, any director of the Discipline Inspection Commission would be able to dispose of him 100 times, not to mention the “great god Xi”. But equally, any director can also be disposed of by others 10,000 times. So, it is impossible to target anyone without a legitimate reason or without following a proper procedure in the US, whereas in overseas Chinese people’s minds, it is so easy to say “let’s screw someone”. It is a maddening and stubborn mental illness planted in our Chinese by the Cultural Revolution. If you can easily screw others, they can also easily take you down. Then it called the “Red Terror”. So, brothers and sisters, you should see that the US is a country where everything needs to follow the law and procedures.
 
-中共国驻加拿大大使馆对于《环球邮报》针对该事件提出的采访未给予回应。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/609bef6337f7f73984cae322](https://gtv.org/getter/609bef6337f7f73984cae322) (1:54-3:42)
+鸣谢：
+[1] 感谢Antsee-GTV、TING GUO、文惜和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://gnews.org/zh-hans/1233493/](https://gnews.org/zh-hans/1233493/) 
+[2] 感谢Antsee-GTV、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于 [https://gnews.org/1239592/](https://gnews.org/1239592/)
 
-在加拿大统计局（StatsCan）往期发布的数据中，香港人被归为中国人的一部分。上次人口普查只显示了在香港出生的移民人数（208,940）。现在，通过推动和确保自己的独特身份在普查中得到体现，加拿大香港人和台湾人**希望今年普查中的数据将有助于影响政策**，以满足这些人口的需求。统计局预计，香港群体的分类将在2022年发布的人口普查结果中显示。
+* * *
 
-**评：**
+字幕：【Rock小哥】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-通过这篇报道的采访可以看出，加拿大的大部分港台同胞所排斥的并不是“华裔”这一种族定义，而是有意避免这一宽泛的概念在中共的玩弄下使人民与该邪恶政权混为一谈。毕竟，“华人/华裔” 和“中国人”所对应的英文表示都是“Chinese”，给足了中共混淆概念的空间。
-
-在中共政权的肆虐下，#IAmHongKonger（#我是香港人）和#IAmTaiwanese（#我是台湾人）这两个于加拿大2021人口普查之前的线上活动引起了不小的社会反响。香港同胞在今年的人口普查中另起选项，将 “Hong Konger” 从 “Chinese” 中抽出，单独用来定义自己的身份，而且得到了加拿大联邦政府的承认。这成功在官方层面将整个群体与中共国彻底划清了界限。
-
-港台同胞今年在身份定义上现象级地团结一致暗示了灭共之需早已是大势所趋。同样的，爆料革命的战友们，尤其是海外大陆同胞的每一次传播真相更是在为将中共与全球华人群体的分离添砖加瓦。行动无大小，重要的是让世界看到我们更多的呼声。
-
-原文链接：
-
-[https://www.theglobeandmail.com/canada/article-census-allows-canadians-from-hong-kong-and-taiwan-to-ensure-their/](https://www.theglobeandmail.com/canada/article-census-allows-canadians-from-hong-kong-and-taiwan-to-ensure-their/)
-
-免责声明：文章仅代表作者个人观点，与GNEWS平台无关！
-
-编辑/发布：比卡丘
-
-20210516
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
-0
++1

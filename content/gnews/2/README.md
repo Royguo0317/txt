@@ -1,56 +1,153 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共的黄金储备数据全是假的！数字人民币21次测试全部失败！
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1249878/)
+## 【战友心声】如何说服家人服用硫酸羟氯喹，你需要的证据都在这里了！
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1249868/)
 
-**摘要：在2021年5月11日的盖特视频中，郭先生说一位统计局的战友爆料中共黄金储备数据是假的，上万亿的银行票据不知所踪，外汇只有入没有出的数据，可是无人敢查，这个国家只有破产的命运。更厉害的是中共的数字人民币21次测试全部失败，区块链变黑洞，中共被重金挖回去的搞区块链的海归给骗了！**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17011427/Miles_20210511_getter-p2.srt.txt)
-**中共的黄金储备数据全是假的！数字人民币****21****次测试全部失败！**
+作者：香草山农场写作四组 唯心力行
 
-**CCP’s Gold Reserve Data Are All Fake! 21 Tests on Digital RMB All Failed!**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-第二个，「关于」黄金储备。统计局报「告」黄金储备，因此被抓了好几个头儿。全国各地黄金储备从来没被认真统计过，只看下面报「的数据」。听说，「但」不知道哪位，咱就别「明」说了，一位副总理说：“中国的黄金储备应该有个核实了。”委托统计局、国家安全生产办、国安委派出小组去统计全国的黄金。
 
-The second issue is related to gold reserves. Several heads of the Bureau of Statistics have been arrested due to the matter of gold reserve reporting. Gold reserves across the country have never been carefully counted. They just look at the data reported by their subordinate units. I heard this but I cannot reveal the name now. A deputy prime minister said: “We should verify China’s gold reserves.” So, he entrusted the Bureau of Statistics, the Work Safety Committee of the State Council, and the National Security Commission of the CCP to send a team to count the country’s gold reserves.
 
-统计完傻眼了，事实上的黄金跟每年所报的数字差距巨大。一说“巨大”的时候大家记住，就是用百「倍」来算了，不是百以下了。就像「在」中国犯罪，「如果说」：鉴于犯罪情节极为严重，影响巨大……这就往10年以上整了，甚至往无期徒刑、死刑整你了。一说“巨大”就从百「倍差距」开始「算了」，严重不严重？
 
-They were dumbfounded after the tallying. There is a huge gap between the actual gold reserves and the figures reported every year. When it comes to “huge”, everybody should remember: this means that the gap is a factor of a hundred times or more. Just like a crime in China, when you hear: “given the seriousness of the crime and the huge impact,” that means the criminal will be sentenced to more than 10 years, even life imprisonment, or the death penalty. When you hear the word “huge,” just start with a hundredfold difference. Isn’t this serious?
 
-这位咱们统计局的姐们儿说：“七哥，你讲民生「银行」的事情引起了巨大的轰动。民生银行的票据业务「涉及」多少钱，七哥？1.7万亿人民币！「而且」找不着找去哪儿「了」。钱可能去这儿，有可能去那儿，也可能去上边儿……这事儿竟然没人想去查，荒唐到什么程度？”这1.7万亿人民币没了，上去了，还是下边儿，还是这儿，对吧？没人想查。没人想查的背后掩藏着什么？「仅」上海银行一家，「她说」：“7哥你不知道吧？「仅」这一家「银行」就1万亿人民币的票据找不着「了」。不敢贴现，不敢核实，不敢统计，也不敢查。”
+新冠病毒在印度、台湾、日本等国再次汹涌，第三波第四波大流行不可避免。全世界科学界和美国等政府逐渐放弃病毒自然起源论，病毒实验室起源和生物武器化引起越来越多地关注和讨论，对病毒来源国事后追责的工作已经在准备中。疫苗的效果受到普遍怀疑甚至否定，服用硫酸羟氯喹加锌作为预防和治疗方法的有效性一再得到证实，而用药的安全性几乎百分之百。因此，服用硫酸羟氯喹加锌是普通人预防新冠病毒的最佳选择。
 
-This sister-in-arms from the Bureau of Statistics said: “Brother Miles, your talk about Minsheng Bank has created a big stir. How much does Minsheng Bank’s bank note business involve, Brother Miles? 1.7 trillion yuan. And the money cannot be found anywhere. The money may go here, go there, or it may go to higher up people. Nobody wants to investigate this matter, how absurd?” The 1.7 trillion yuan is gone. Did it go up, go down, or is it still here? Nobody wants to investigate. What is hidden behind this situation? “Just at the Bank of Shanghai alone,” she said, “You can’t imagine, Brother Miles, just in this bank alone, 1 trillion yuan of bank notes cannot be located. They dare not to discount, verify, count, or investigate.”
+众多战友的家人生活在墙内，接触到的所有信息都是经过层层审查甚至刻意编造的。而他们自己并没有意识到这点，灾难来临之前一厢情愿地认定“岁月静好”。下文试图尽量使用中（共）国及外国的官方信息，来说明为什么服用硫酸羟氯喹加锌是普通人预防新冠病毒的最佳选择，希望对于战友们说服家人有所帮助。
 
-兄弟姐妹们，「你们」去想想这个国家还能四个自信吗？给世界开药方？拯救全世界？统治全世界？
+一、新冠病毒非自然起源
 
-Brothers and sisters, do you think this country can still have “Four Self-confidence (CCP propaganda meaning confidence in the path, theory, system, and culture of socialism with Chinese characteristics)”? Provide a solution to the world? Save the whole world? Rule the whole world?
+2020年5月15日，中共中央电视台新闻中心新媒体官方帐号发布国际锐评节目《疑云重重的美国生物实验室该说说清楚了！》。这是中共当局为应对其他国家向中共追责，恶人先告状，试图把舆论的矛头引向美国。中共动用大外宣和潜伏在西方秘密战线的力量，向西方发起舆论战和信息战。
 
-然后「她」给我讲了一个「事儿」让我离开这几年，我「都」觉得「对」中共的把握越来越「连」我都害怕了，比我想的比我知道的还可怕。她说：“七哥，你去好好看一看数据，所有人民银行公布的都是外汇流入，贸易额增长「数据」。「有没有」公布过中国的几大指标：外汇流出、中国的外债数据 –「包括」贸易下的外债，还有真正金融领域的外债「数据吗」？”她说：“折腾折腾这个国家就是个破产的国家。”
+2021年5月16日，美国众议院情报委员会副主席努涅斯接受福克斯采访时说：“充分证据表明病毒来自武汉实验室，这个问题必须解决，因为这关系到生物武器和生物战。”他还披露美国已于2014年禁止“功能增强实验”，而中共国从未停止。他直接说“功能增强实验”就是武器化的病毒！
 
-Then she told me something horrific. After I left China for a few years, I became more and more unsure about my understanding of the CCP. It was more terrifying than what I thought and what I knew. She said, “Brother Miles, please take a good look at the data. The only thing the People’s Bank of China publishes is data on foreign exchange inflows and trade volume growth. Have they published any major indicators related to China, such as foreign exchange outflows, China’s foreign debt, including foreign trade debt? Is there any real foreign debt data in the financial sector?” She said, ” With all its self-inflicted mistakes, this country will be a bankrupt country.”
+太平洋两岸善良的老百姓们，该觉醒了，无论是美国实验室制造，还是美国技术和资金支持下的中共病毒研究所制造，新冠病毒都不是自然起源，而是人类有史以来最厉害的流行病毒，因为它是人为制造的生物武器。病毒引起的大瘟疫已历经几个春秋，毒性不仅没有减弱，反而越来越强，这与一般病毒传播的自然规律正好相反。因为普通病毒的自然选择是“活着”，与宿主共生共处，而非杀死宿主，故毒性会越来越弱，这是人类“群体免疫”的基本依据。
 
-然后更可怕的把我吓住了：DCEP「这个」共产党发展的「号称」世界上最牛叉的数字人民币。「她说」：“七哥你知道吗？连续21次测试全面失败。”「共产党」想绝对中心化！区块链最重要的就是你得通知全世界有你的货币，所以是不可逆转的，绝对安全的。「但」共产党想把它「的数字人民币系统」全部控制「起来」，谁也不能知道只有「它自己」知道。结果钱发出去没了，收不回来了，这叫“断区块链”，「或叫」区块链黑洞。「共产党」解决不了「这个问题」。当时最牛的在国外回去这些人在数字人民币上所有人都骗了中共。
+2021年5月12日，《印度时报》（Times of India）刊登一篇题为《关于中共病毒起源的报道：中共生物武器的铁证》（Reports on the origin of Coronavirus: ‘Smoking Gun’ proof of the Chinese biological weapon，https://timesofindia.indiatimes.com/blogs/ChanakyaCode/reports-on-the-origin-of-coronavirus-smoking-gun-proof-of-the-chinese-biological-weapon/），这篇文章的作者叫SD Pradhan，曾担任印度联合情报委员会主席和副国家安全顾问。他在文章中提及徐德忠将军编写的军事教材《非典非自然起源和人制人新种病毒基因武器》，以及闫博士揭露中共病毒真相的经历。
 
-Then something frightened me even more: DCEP, the CCP-developed digital RMB, which is also what they thought would be the world’s most awesome system. She said, “Brother Miles, did you know, they have failed 21 consecutive tests?” The CCP wants absolute centralized control of DCEP. The key feature of the blockchain is that you must inform the whole world about your currency[’s transactions], so it is irreversible and absolutely secure. But the CCP wants to control all its digital RMB. No one can know anything about it, except the CCP. But the money end up disappeared after being sent out, and cannot be recovered. This should be called a broken blockchain or a blockchain black hole. The CCP still cannot solve this problem. Back then, the most talented people were recruited from overseas and went back to China. All these people cheated the CCP on the digital RMB.
+实际上，前香港大学公共卫生学院P3实验室（SARS病毒全球顶尖实验室、WHO参考实验室）研究员闫丽梦博士（拥有病毒学、免疫学博士和临床医学博士学位），曾在2020年1月19日向全世界披露，新冠病毒一定会人传人、强变异、大爆发，她的研究结论一年多来得到不断验证。历经中共政府和中共控制的新冠病毒科学界一年多的疯狂围剿之后，闫丽梦博士的研究逐渐得到美国、澳大利亚等政府情报界和科学界的认可，并成为全世界追究病毒真相的主要依据。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/609a981537f7f73984ca8ce3](https://gtv.org/getter/609a981537f7f73984ca8ce3) (0:33-3:39, 6:13-7:20)
-鸣谢：
-[1] 感谢Antsee-GTV、TING GUO、文惜和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于[https://gnews.org/zh-hans/1233453/](https://gnews.org/zh-hans/1233453/)
-[2] 感谢YY、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于[https://gnews.org/1239522/](https://gnews.org/1239522/)
+2021年5月14日全球最富盛名的学术期刊《科学》发表了来自斯坦福、哈佛、耶鲁、剑桥等18名科学家联名撰写的公开信，“调查COVID-19的源头”（Investigate the origins of COVID-19），要求对新冠疫情的起源进行全面调查。其中，实验室事故作为一种可能的假设已经被主流学术界所接受，而非所谓的“阴谋论”。信中反对辉瑞和麦德纳等大型药企为求利润最大化而推动COVID-19疫苗注射的市场营销，强调SARS-CoV-2的不确定性及其众多突变分支，并高度怀疑疫苗有效性。
 
-* * *
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17012355/%E7%BE%9F%E6%B0%AF%E5%96%B91.png)
 
-**字幕：【JennyL】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+二、疫苗的效果没有得到证实
 
-+1
+泰国女排国家队 26 名球员和工作人员最近确诊集体感染新冠肺炎，成为最有代表性的案例。因为他们都注射了科兴疫苗。
+
+位于印度洋中西部的岛国塞舌尔（Seychelles），是目前世界上新冠病毒苗接种率最高的国家。六成人口已接种两剂疫苗，七成人接种至少一剂。但新增病例却从4月底开始激增，新增染疫率全球最高，而新确诊病例中，三分之一已完成疫苗接种。当局随即恢复防疫措施。疫情反弹令疫苗效用受到关注。该国使用的主要是中共国国药疫苗，占6成，其次是牛津·阿斯利康疫苗。（[https://twitter.com/VOAChinese/status/1393763134972780544](https://twitter.com/VOAChinese/status/1393763134972780544)）
+
+三、硫酸羟氯喹加锌预防和治疗新冠病毒的效果被不断验证
+
+硫酸羟氯喹，英文名：Hydroxychloroquine Sulfate Tablets———适应症:类风湿性关节炎，青少年慢性关节炎，盘状和系统性红斑狼疮，以及由阳光引发或加剧的皮肤病变。中共国新冠肺炎诊疗方案最新第七版抗病毒药物推荐磷酸氯喹，因为氯喹抗新冠病毒效果比羟氯喹更好，但是羟氯喹副作用比氯喹更小，更安全，欧美临床试验用大多的是羟氯喹。
+
+据内部知情人爆料，“共产党从2019年12月26日，所有的政治局和当地的省级干部都吃（硫酸）羟氯喹”。
+
+关于羟氯喹的作用机理，闫丽梦博士的研究最为权威，但下面文字来自国内医药界的一般性研究：
+
+“羟氯喹不仅仅是抗病毒药物，能抑制病毒通过胞吞作用侵入人体细胞，作为免疫抑制剂，还可缓解病毒在病人体内引发的免疫风暴，机理是：（1）羟氯喹抗击病毒的主要有效机制，是提高细胞膜表面的pH值，从而抑制病毒和细胞膜发生融合，抑制细胞的胞吞作用而形成内吞体，并可抑制病毒在细胞内的成熟和释放过程。（2）羟氯喹是通过改变ACE2受体的糖基化修饰，而降低ACE2受体与病毒棘突蛋白间的结合力，这对羟氯喹的剂量要求很高。（3）羟氯喹作为免疫调节剂，有利于缓解病人体内的自身过度免疫反应，避免细胞因子风暴。（4）羟氯喹既可用于治疗，又可用来防护，而这个防护、治疗作用与其剂量成正比。（5）羟氯喹的药理作用都比较广泛，最早可用于治疗疟疾、红斑狼疮和类风湿关节炎。羟氯喹广泛用于治疗类风湿性关节炎，就是通过对不正常免疫活动的调节作用，有效地控制炎症，使循环免疫复合物水平降低，类风湿因子减少，从而发挥抗风湿作用。
+
+新冠肺炎病人死亡的两个主要原因，一个是ACE2下调触发的多器官衰竭，还有肺部炎症引发细胞因子风暴触发的急性呼吸窘迫综合症。而羟氯喹则能够抑制细胞因子风暴的发生。
+
+羟基氯喹可以帮助锌进入细胞。锌会减慢细胞内的病毒复制，病毒主要攻击血红蛋白（血液中携带氧气的蛋白质），羟氯喹阻止NTD进入ACE2，口服后在肺部的集中比血清高700倍，并且羟氯喹具有人体免疫调节的活性，这也是其在预防及早期的治疗方面的药物机理。锌抑制冠状病毒的RNA复制，中共病毒的复制需要一种酶，这种酶对于病毒的生长至关重要。锌会抑制该酶，使酶失活，很难产生更多的病毒。越来越多的研究表明，患者缺锌可能使羟氯喹失去作用。”
+
+法国科学家Didier Raoulta的团队在同行评审的科学杂志International Journal of Antimicrobial Agents发表的一篇临床研究论文中指出，硫酸羟氯喹对于治疗COVID-2019病人有显著疗效。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17012732/%E7%BE%9F%E6%B0%AF%E5%96%B92.png)
+
+鲁卓林、刘力、孙燕燕：《氯喹和羟氯喹的应用进展》，发表于《国际生物医学工程杂志》,2020,43 (04): 330-334.
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17012806/%E7%BE%9F%E6%B0%AF%E5%96%B93.png)
+
+《口服羟氯喹和聚维酮碘喉咙喷雾剂对预防COVID-19的积极影响：一项开放标签的随机试验》，发表于《国际传染病杂志》第106卷，2021年5月，第314-322页。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17014059/%E7%BE%9F%E6%B0%AF%E5%96%B94.png)
+
+四、关于羟氯喹的更多正面论据
+
+硫酸羟氯喹对新冠病毒的预防和治疗作用被披露后，中共国媒体和受中共控制的国际媒体掀起了抹黑羟氯喹的舆论战。下图一篇文字目前在google搜索中排在第一位，被google智能标识为“广告”。谁组织、谁掏钱、谁来实施舆论攻击？仔细阅读之后，你会有自己的判断。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17014137/%E7%BE%9F%E6%B0%AF%E5%96%B95.png)
+
+这里仅仅列出美国FDA的《硫酸羟氯喹白皮书》（White Paper on Hydroxychloroquine，[https://www.arkleg.state.ar.us/Calendars/Attachment?committee=490&agenda=3445&file=Exhibit+F1a+White+Paper+on+HCQ+2020.2.pdf](https://www.arkleg.state.ar.us/Calendars/Attachment?committee=490&amp;agenda=3445&amp;file=Exhibit+F1a+White+Paper+on+HCQ+2020.2.pdf)）相关内容（翻译文字参考“硫酸羟氯喹安全性及有效性实例证明”，[https://www.xmlynz.org/?p=3339&lang=zh-cn](https://www.xmlynz.org/?p=3339&amp;lang=zh-cn)）：
+
+1、 关于硫酸羟氯喹安全性证明
+
+1) 被FDA批准65年，在世界范围内被使用数十亿次。硫酸羟氯喹是印度使用量第一的药物，同时根据CDC，如果美国人旅行到疟疾流行的地方，他们将在离开旅行之前开始使用HCQ，在2020年之前从未有人指控HCQ不安全；
+
+2) 在有关HCQ会引发心脏问题的最大规模研究中，HCQ未显示出增加心脏（心脏病）的风险。该研究涉及跨国，分布式数据库网络。 研究人员研究了2000年1月9日至2020年1月9日20年间所有使用HCQ的患者的所有数据；
+
+3) FDA数据库显示过去的50年间HCQ仅引发640起死亡，死亡率0.034%；
+
+4) CDC相关指导中显示，HCQ适用于任何年龄阶段的成人及儿童，且适用于妊娠期及哺乳期的女性。轻微副作用如胃疼、恶心、头疼等，可通过就餐服用加以减轻。还有部分人可能会出现瘙痒的症状。CDC还特意指出，对HCQ在预防疟疾时的使用时长并没有限制，只有较大剂量使用HCQ很多年后，才可能罕见的出现视网膜病的眼睛问题。
+
+5) 美国心脏协会称，HCQ与阿奇霉素结合使用不会增加致命性心律问题的风险。
+
+2、 关于硫酸羟氯喹有效性证明
+
+1) 2020年2月19日，中国：建议将氯喹纳入下一版《中华人民共和国国家卫生委员会发布的COVID-19引起的肺炎的预防，诊断和治疗指南》，用于在未来治疗更大规模的COVID-10感染人群。
+
+2) 2020年3月4日，法国：从100例患者中获得的第一批结果显示，氯喹在减轻肺炎恶化，缩短症状持续时间和病毒清除方面均优于对照组，且没有严重的副作用。
+
+3) 2020年3月20日，纽约：1,450名患者，1,045例轻度不需要药物治疗（全部恢复），405例使用HCQ + AZM +锌治疗，其中6例住院，2例死亡。
+
+4) 2020年3月22日，印度：国家广泛使用HCQ进行预防。
+
+5) 2020年3月22日，中国：在Covid-19患者中，HCQ可以显著缩短康复的时间并促进肺炎的吸收。
+
+6) 2020年4月11日，法国：除2名患者以外，所有接受HCQ + AZM治疗的患者均好转，鼻咽病毒载量迅速下降，患者能够迅速从IDU（传染病科）出院。
+
+7) 2020年4月13日，纽约州：54名长期护理/疗养院患者接受了HCQ +强力霉素的治疗，仅5.6％死亡。（该人群原本死亡率可能&gt; 50％）。
+
+8) 2020年4月17日,巴西：在636名有症状的高风险门诊患者中，经HCQ治疗，仅1.9％需住院治疗。
+
+9) 2020年4月24日，伊朗：羟氯喹可能是潜在的治疗选择。
+
+10) 2020年4月30日，沙特阿拉伯：“氯喹和羟氯喹具有体外抗病毒特性，这些发现支持以下假设：这些药物具有治疗Covid-19的功效。
+
+11) 2020年5月15日，中国：我们发现HCQ组的死亡率为18.8％，大大低于非HCQ组的47.4％。这些数据表明，在基本治疗方法上添加HCQ可通过减轻炎症性细胞因子风暴而有效降低Covid-19危重患者的死亡。因此，应为重症患者使用HCQ，以挽救生命。
+
+12) 2020年5月16日，法国：1,061名接受HCQ + AZM治疗的Covid-19阳性患者“未观察到心脏毒性”，且“ 92％观察到良好的临床结果和病毒学治愈率”。
+
+13) 2020年6月6日，法国：对公开发表的临床报告进行的分析表明，氯喹可将感染Covid-19患者的死亡率降低3倍。
+
+14) 2020年6月20日，印度：“食用四或更多维持量的HCQ与感染几率的显着下降有关，这项研究为政策制定者提供了可操作的信息，以作为保护前沿医护人员回应。
+
+15) 2020年6月29日，葡萄牙：长期接受HCQ治疗的患者感染Covid-19的几率是普通人的一半。
+
+16) 2020年6月29日，底特律：在这项多家医院的评估中，控制Covid-19危险因素时，单独使用HCQ并与AZM联合治疗可降低Covid-19死亡率。
+
+17) 2020年6月30日，纽约市：在2020年3月13日至4月17日之间经实验室确诊的Covid-19患者的临床结果在纽约市大都会区的8家医院和400所诊所中进行了检查，结果显示使用羟氯喹与降低死亡率有关。
+
+18) 2020年7月3日，纽约州：接受HCQ + AZM +锌治疗的Covid阳性患VS未治疗的患者。
+
+住院：治疗2.8％VS未治疗15.4％;死亡：治疗0.7％VS未治疗3.5％,接受HCQ治疗的患者无心脏副作用。
+
+五、结论
+
+恶意的抹黑和造谣终究无法掩盖真相，面对大疫情，人们最需要的是有效的药物及治疗手段。闫丽梦博士和其他科学家推荐的方案是：**硫酸羟氯喹****(HCQ) 200mg****➕****锌25mg**，每天一次，连续5天，之后同样二者一起，每周一次。针对无HCQ禁忌的成人，饭后服用，减少胃肠刺激。
+
+亲爱的家人，请睁大你们的眼睛，仔细看看以上列出的种种事实。只有活着，你才能看到这次人类大劫难的真相最后水落石出的那一幕。在历史上绝无仅有的人类大劫难面前，绝对不可轻信盲从，更不能对疫苗有效性心存侥幸。硫酸羟氯喹加锌的预防和治疗有效性，经历了全球黑暗势力的重重围剿，依然得到不断证实。其安全性更是几乎百分之百。请为自己负责，为家人负责，做出理性的判断：果断服用硫酸羟氯喹加锌，坚决不要打疫苗！
+
+
+
+编辑/校对/发稿：人间世
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12223539/5%E6%9C%88.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+
+0

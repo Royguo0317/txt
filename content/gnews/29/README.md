@@ -1,40 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇 — 川普搞不定他 拜登也搞不定他 国会山也搞不定他
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1249501/)
+## 金融巨鳄索罗斯第一季大量购入中概股是否反常
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1249461/)
 
-**摘要：在2021年5月12日的盖特视频中，郭先生感叹美国是一个法治国家，国会在过去两三个月间举行了一系列关于中共病毒的听证会，最终一定会把病毒真相搞得清清楚楚；也透露福奇（美国NIH/NIAID主管） “川普搞不定他，拜登也搞不定他，国会山也搞不定他”，但是这正说明美国是法治，不是人治，“什么都讲程序，什么都讲法”。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16222526/Miles_20210512-getter-p2.srt.txt)
-**福奇**** — ****川普搞不定他****拜登也搞不定他****国会山也搞不定他**
+**撰稿：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16222653/12-66.jpg)
+路透5月15日讯，据彭博新闻周六报导，国际基金经理人索罗斯的投资公司Soros Fund Management买入ViacomCBS Inc、Discovery Inc和百度等公司的股票，这些股票在Bill Hwang管理的Archegos Capital Management爆仓时被抛售。
 
-**No One Can Hold Fauci Accountable?**
+报导援引周五发布的监管资料称，第一季索罗斯的基金买入1.94亿美元ViacomCBS股票、7,700万美元百度股票、4,600万美元的唯品会股票、还有3,400万美元的腾讯音乐娱乐集团的股票。
 
-更重要的是美国国会，从现在往回看过去两三个月，「举行了」一个一个的听证会全是关于中共病毒的。你去看看国会整个排的表，接下来全部的问询、问话、调查、了解、听证，全部都有关中共的经济、偷盗技术、冠状病毒、疫苗，还有整个2019年年底和2020年年初发生了病毒「流行时」，美国的反应。就是干什么？这就是美国这个国家：不能乱讲话，必须得负责任。病毒来自于何方？美国有没有参与？最终都会搞得清清楚楚。这就这个有法可依的国家，它是一个法治的国家，不是人治的国家人。人治的国家你想说啥说啥，你想干啥「就」干啥。这是真的这个美国国家伟大的地方。
+而了解索罗斯基金操作的消息人士告诉彭博新闻，Archegos爆仓前，索罗斯的公司未持有这些股票。
 
-More importantly, the US Congress has held a series of hearings on the CCP virus over the past two or three months. And the congressional schedule of upcoming inquiries, questionings, investigations, and hearings all have to do with the CCP’s economy, technology theft, the CCP virus, and the vaccine, including the US response to the coronavirus pandemic in late 2019 and early 2020. What does this mean? It means that in the US, no one can speak about things without taking responsibility. Where was the virus from? Was the US involved? Eventually, everything will be figured out completely. That makes the US a nation of laws, not a country ruled by the will of a few men. In a country ruled by the will of man, a few elite families will do whatever they want, like the CCP always does. That really makes the US great.
+索罗斯曾经在2019年，公开批评习近平是自由社会最危险的敌人，曾遭到中共外交部的严厉呵斥和批评。在他明知中共独裁的危害，并外加目前的中美形势，为何要逆市大量购入中概股呢？
 
-就那个福奇，一个美国卫生部长，川普搞不定他，拜登也搞不定他，国会山也搞不定他。这样的人要是在中国，不要说是“习一神”收拾他，随便一个纪委的处长就把他灭100次了，但同样的事情那个处长也能被灭1万次 — 这就是美国这个社会，你想把谁搞死，没有搞死的理由，没有搞死的程序是不可以的。这就是咱们中国人的思维，「比如」在海外，一弄就要“搞死他！搞死他！” — 「全是」文化大革命的遗毒。「不想想如果」你搞死个人那么容易，人家也能搞死你那么容易。这就叫“红色恐怖”啊。所以说兄弟姐妹们你看到美国这个国家什么都讲程序，什么都讲法。
+华尔街是代表美国沼泽地的一方势力，其贪婪的本性，与中共势力互相渗透，帮助中概股在过去几年躲避美国监管，纷纷到美国上市圈钱。但实际受益人除了中概股背后的红色家族代言人，就是华尔街的金融大鳄。
 
-With respect to that Fauci, the Director of NIAID in the US, Trump could not handle him, nor could Biden or the Capitol Hill. If he were in China, any director of the Discipline Inspection Commission would be able to dispose of him 100 times, not to mention the “great god Xi”. But equally, any director can also be disposed of by others 10,000 times. So, it is impossible to target anyone without a legitimate reason or without following a proper procedure in the US, whereas in overseas Chinese people’s minds, it is so easy to say “let’s screw someone”. It is a maddening and stubborn mental illness planted in our Chinese by the Cultural Revolution. If you can easily screw others, they can also easily take you down. Then it called the “Red Terror”. So, brothers and sisters, you should see that the US is a country where everything needs to follow the law and procedures.
+但，随着中美关系的僵化，以及中共用生物武器企图统治世界的野心曝光在大众面前，全世界各国都纷纷与中共在各个领域进行脱钩。在美国上市的中共三大电信运营商的退市，就是中概股离场的开端。
+在此形势已逐步明朗的情况下，为何索罗斯如此出手？
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/609bef6337f7f73984cae322](https://gtv.org/getter/609bef6337f7f73984cae322) (1:54-3:42)
-鸣谢：
-[1] 感谢Antsee-GTV、TING GUO、文惜和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://gnews.org/zh-hans/1233493/](https://gnews.org/zh-hans/1233493/) 
-[2] 感谢Antsee-GTV、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于 [https://gnews.org/1239592/](https://gnews.org/1239592/)
+笔者结合近期中概股还在排队赴美上市，以及小米被撤出美国制裁名单的这些反常举动来看，可能华尔街与中共还有最后一波勾兑的可能。
 
-* * *
+资本的贪婪不到万不得已是不会停止的，而且就算明知明天会崩溃，今天也要收割最后一波利益。因此索罗斯代表的华尔街势力的目标十分明确，就是利用中共最后灭亡前的妥协，赚最后一波的钱，在此期间，各方的博弈与迂回，只是各取所需而已。
 
-字幕：【Rock小哥】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+（本文只代表作者观点，与Gnews平台无关。）
+
+**新闻来源：**
+[金融巨鳄索罗斯第一季买入百度、唯品会及腾讯音乐等中概股–彭博新闻 | 路透 (reuters.com)](https://cn.reuters.com/article/bbg-soros-baidu-tencent-music-0517-idCNKCS2CY035?il=0)
+
+***校对发布**：文顾*
 
 +1

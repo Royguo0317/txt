@@ -1,43 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美媒报道：武毒所2021年初删除了NIH和提及功能增强内容的网页
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1249563/)
+## 美国应该担心原因：5个接种疫 苗国家4个国家新冠疫情激增
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1249606/)
 
-作者：纽约香草山健身部  Jack Li文阳
+翻译：康州盘古农场 – KY
 
+校对：康州盘古农场 – Mike Li
 
+编辑：康州盘古农场 – 傻小子
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14021704/logo-1.jpg)
+发布：康州盘古农场 – 彩虹 Rainbow
 
+**据《福布斯》作者：Robert Hart，2021年5月11日发布**
 
+**顶线：**
 
-据国家脉动报道，2021年3月21日后，中共国武汉实验室的网站删除了六个美国研究伙伴：阿拉巴马大学，北德克萨斯大学，生态健康联盟（EcoHealth Alliance）,哈佛大学，美国国立卫生研究院（NIH）和美国国家野生动物联盟（the National Wildlife Federation）内容的网页。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16230118/1-79.png)
-武汉实验室网页还显示了一项研究更新 [“ SARS会回来吗？”](https://web.archive.org/web/20200212011902/http:/english.whiov.cas.cn/News/Events/201512/t20151204_157114.html)(“[Will SARS Come Back?”](https://web.archive.org/web/20200212011902/http:/english.whiov.cas.cn/News/Events/201512/t20151204_157114.html))  ，似乎描述了由福奇博士（Anthony Fauci）的国家过敏和传染病研究所（NIAID）资助的机构在该研究所进行的”功能增强性”研究。但是，一天后，该页面被进行了修改，只包含两个研究[伙伴](https://web.archive.org/web/20210322053537/http:/english.whiov.cas.cn/International_Cooperation2016/Partnerships/)：生态健康联盟和阿拉巴马大学。到3月23日，合作伙伴栏里只剩下生态健康联盟（EcoHealth Alliance）。生态健康联盟是由与中共长期合作的彼得 · 达杂克（Peter Daszak）领导，他曾多次宣称自己将成为武汉实验室[崩溃](https://thenationalpulse.com/exclusive/fauci-daszak-ecohealth-ties/)的第一位“落马者“。
+世界上疫苗接种率最高的国家，包括前五个接种率最高的国家中的四个正在努力遏制新冠病毒疫情的爆发，这些国家的人均冠状病毒爆发率比激增的印度的疫情还要高，这一趋势让专家们对一些疫苗（尤其是中共国的国药集团）的保护率以及即使大多数人口都接种了疫苗而放松限制的做法是否明智提出了质疑。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16231646/vaccine44.png)一些接种疫苗最多的国家其新冠疫情激增。 GETTY
+**关键事实：**
 
-武汉病毒研究所（武毒所）被追查其就是新冠病毒的[来源](https://www.foreignaffairs.com/articles/china/2021-03-31/what-who-investigation-reveals-about-origins-covid-19)，以及NIH可能将美国纳税人的钱提供给武毒所用于病毒研究之后，武毒所作出了从其网页删除NIH等组织的决定。在对福奇博士的参议院听证会中，兰德 · 保罗参议员也问到福奇博士武毒所掩盖秘密信息的问题，福奇极力地要把他的组织与武汉实验室划清界限。
+在塞舌尔、以色列、阿联酋、智利和巴林（分别是世界上疫苗接种率最高的五个国家）中，只有以色列新冠病毒疫情没有上升。
 
-除了在NIH和武汉病毒研究所之间建立工作关系之外，该网站[现在已删除的](http://english.whiov.cas.cn/News/Events/201512/t20151204_157114.html)网页还详细介绍了武汉实验室进行了病毒的”功能增强性”研究。福奇向保罗参议员解释：“美国国立卫生研究院从开始至今没有资助武汉病毒研究所的”功能增强性”研究。”
+在人口控制方面，塞舌尔和巴林以及其他像马尔代夫和乌拉圭这些新冠病毒疫苗接种率很高的国家，是世界上每日冠状病毒病例最多的前几位国家。
 
-武汉病毒研究所与北卡罗来纳大学（UNC），哈佛医学院，贝林佐纳微生物研究所等的合作工作摘要，将科学家的工作描述为“制造并定性嵌合病毒”。并备注他们是如何修改病毒“在原代人气道细胞中有效复制并达到与SARS-CoV流行株等效的体外滴度”。文章总结说：“基于这些发现，他们合成了感染性全长SHC014重组病毒，并在体外和体内显示出强大的病毒复制能力。”
+塞舌尔是一个疫苗接种率几乎是美国的两倍的小岛国，新冠发病率为每10万人中有328例，如果考虑到人口因素，其新冠发病率远远高于印度（每10万人中有28例）。
 
-5月14日，包括巴里克的25位美国顶级科学家在《自然科学》杂志发布了一封联名信，要求WHO彻查武汉病毒研究所，这表示象巴里克、利普金这些和中共有勾结的科学家都要跳船了。包括福奇，被拉到参议院做听证，被追究当年有否资助中共作”功能性增强性“试验，现在连福奇也要急着和中共切割了。美国科学界要和中共划清界限，政治两党联合抗共，左媒右媒争相报道武汉病毒所和病毒追责真相。西方世界原来与中共纠缠不清的人，都想华丽转身，站在正义一边。中共因为病毒问题，就像一个雷，谁都不想传到最后，爆在自己手上。
+疫苗接种国家爆发的疫情引发了人们对中共国的一些疫苗与以色列使用的西方疫苗相比效果如何的关注，包括世界卫生组织周五认可的国药集团疫苗，该疫苗在各国的免疫计划中占很大一部分。
 
-参考阅读：https://thenationalpulse.com/exclusive/wuhan-lab-erases-nih-ties-gof-research/
+放松新冠病毒疫情的限制和各国政府传递的信息不一致也被吹捧为可能的解释–依赖旅游业的塞舌尔和马尔代夫都欢迎游客，迪拜迅速解除了封锁，智利也放宽了限制，允许国内旅行。
 
-校对/发稿：火内
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15014027/5%E6%9C%88-1.jpg)
-**更多资讯，更多关注**
+**关键背景：**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+在许多富裕的国家，疫苗往往被认为是解除封锁的最终出路。在包括美国、英国和以色列在内的一些成功并迅速开展活动的国家，病例已经下降。但专家们指出，智利等地是一个可怕的例子，说明如果事情缓解得太快会发生什么，并警告说单靠疫苗来解决问题可能是不够的。随着越来越多的国家开始加强接种活动，某些疫苗的效力可能会成为一个突出的问题，人们担心一些疫苗，如中共国的国药集团疫苗，在控制疾病方面远不如莫德纳和辉瑞公司等生产的疫苗有效。
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**要关注的事情：**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+包括世界卫生组织负责人在内的世界各国领导人经常提醒，“在所有人都安全之前，没有人是安全的”，国家之间巨大的疫苗不平等突出了这个问题。新的和可能更危险的变种正在全球范围内出现，其中一些有可能免疫现有的疫苗。世界卫生组织周二将重创印度的B.1.617变种列为令人担忧的变种，指出它可能更具传染性。
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+**大数据：**
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+45%. 世界上所有五个疫苗接种最多的国家都至少有这个比例的人口接受了部分疫苗接种。巴林（47%）、智利（45%）、以色列（60%）和塞舌尔（69%）都有数据，而阿联酋由于人均接种量高（每10万人中约有11.5万剂；但阿联酋没有公布更详细的数据）而位居第三。塞舌尔(61%)和以色列(56%)也是完全接种疫苗的人口比例最高的国家，其次是智利(38%)和巴林(35%)。美国除四个州外，其他州的疫苗接种率都在下降，仅次于智利和巴林，目前有35%的人口完全接种，46%部分接种。
+
+在美国，对疫苗犹豫不决的人仍然很多，民意调查显示，未接种疫苗的美国人可能是最容易从事正常活动的。随着许多州因新冠疫苗接种率的提高而开始重新开放，这有造成持续的社区传播的风险。
+
+原文链接：[https://www.forbes.com/sites/roberthart/2021/05/11/covid-surges-in-4-of-5-worlds-most-vaccinated-countries-heres-why-the-us -should-worry/?sh=5dac0e38d677](https://www.forbes.com/sites/roberthart/2021/05/11/covid-surges-in-4-of-5-worlds-most-vaccinated-countries-heres-why-the-us%20-should-worry/?sh=5dac0e38d677)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
