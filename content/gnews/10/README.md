@@ -1,56 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共的黄金储备数据全是假的！数字人民币21次测试全部失败！
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1249878/)
+## 盖茨离职微软细节曝光 与CCP病毒追责有何关联？
+` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1250034/)
 
-**摘要：在2021年5月11日的盖特视频中，郭先生说一位统计局的战友爆料中共黄金储备数据是假的，上万亿的银行票据不知所踪，外汇只有入没有出的数据，可是无人敢查，这个国家只有破产的命运。更厉害的是中共的数字人民币21次测试全部失败，区块链变黑洞，中共被重金挖回去的搞区块链的海归给骗了！**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17011427/Miles_20210511_getter-p2.srt.txt)
-**中共的黄金储备数据全是假的！数字人民币****21****次测试全部失败！**
+#### 撰稿：yyshere（News Express）
+校对：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17040053/bill-gates-hands_1.jpg)图片来源：zerohedge
+据《华尔街日报》5月16号报道称，比尔·盖茨因微软董事会对他与女员工的暧昧关系展开调查，于2020年离3月卸任董事会主席并离开了董事会。
 
-**CCP’s Gold Reserve Data Are All Fake! 21 Tests on Digital RMB All Failed!**
+另一个由法新社披露的消息源称，微软在2019年下半年收到提醒指出”比尔·盖茨在2000年试图与一名公司员工发展亲密关系，董事会的一个委员会对此审查并在一家外部律师事务所的协助下进行了彻底调查”。据悉，这名女性员工是一名工程师，她曾在一封信中声称与盖茨”多年来”保持有性关系。调查中，董事会还就盖茨与“萝莉岛”事件主角艾波斯坦的联系进行了质询。（注：艾波斯坦已在2019年因涉嫌贩卖未成年人进行性交易被捕，候审时在狱中自杀）而盖茨的团队则向董事会保证，盖茨确实曾因 “慈善原因 “与爱泼斯坦会面，并 “对这样做感到后悔”。
 
-第二个，「关于」黄金储备。统计局报「告」黄金储备，因此被抓了好几个头儿。全国各地黄金储备从来没被认真统计过，只看下面报「的数据」。听说，「但」不知道哪位，咱就别「明」说了，一位副总理说：“中国的黄金储备应该有个核实了。”委托统计局、国家安全生产办、国安委派出小组去统计全国的黄金。
+但微软的一位女性发言人则表示，这所谓的暧昧关系不过是 “近20年前的一段恋情，已友好地结束”，盖茨离开微软是为了更专注于他的慈善组织——比尔和梅琳达-盖茨基金会（以下简称盖茨基金会）。（注：比尔·盖茨和梅琳达·盖茨已于2021年5月3日宣布离婚以结束27年的婚姻）
 
-The second issue is related to gold reserves. Several heads of the Bureau of Statistics have been arrested due to the matter of gold reserve reporting. Gold reserves across the country have never been carefully counted. They just look at the data reported by their subordinate units. I heard this but I cannot reveal the name now. A deputy prime minister said: “We should verify China’s gold reserves.” So, he entrusted the Bureau of Statistics, the Work Safety Committee of the State Council, and the National Security Commission of the CCP to send a team to count the country’s gold reserves.
+公开信息显示，创立于20年前的比尔和梅琳达-盖茨基金会是一家致力于与全球贫困和疾病作斗争的慈善机构。而在CCP病毒疫情2020年全球爆发以来，指向这一慈善机构从事“非慈善”事务的消息频频爆出。
 
-统计完傻眼了，事实上的黄金跟每年所报的数字差距巨大。一说“巨大”的时候大家记住，就是用百「倍」来算了，不是百以下了。就像「在」中国犯罪，「如果说」：鉴于犯罪情节极为严重，影响巨大……这就往10年以上整了，甚至往无期徒刑、死刑整你了。一说“巨大”就从百「倍差距」开始「算了」，严重不严重？
+根据“国家脉动”报道，美国前情报官员透露，盖茨基金会资助基因组学公司华大集团（BGI GROUP）通过CCP病毒检测挖掘收集、存储美国人的DNA数据。华大基因是一家设立在中共国的基因组测序中心，原名北京华大基因研究中心，1999年成立于北京。曾参与多个基因研究项目，2017年在深圳证交所创业板上市，目前总部位于广东深圳盐田区。
 
-They were dumbfounded after the tallying. There is a huge gap between the actual gold reserves and the figures reported every year. When it comes to “huge”, everybody should remember: this means that the gap is a factor of a hundred times or more. Just like a crime in China, when you hear: “given the seriousness of the crime and the huge impact,” that means the criminal will be sentenced to more than 10 years, even life imprisonment, or the death penalty. When you hear the word “huge,” just start with a hundredfold difference. Isn’t this serious?
+此外，比尔·盖茨长期以来在疫苗领域的“积极参与”也备受质疑。美国律师小罗伯特·肯尼迪曾公开指出“对于比尔·盖茨而言，疫苗是一项战略性的慈善事业……这使得盖茨独揽世界卫生政策的控制权……“。蔓延全球的CCP病毒疫情，给了盖茨又一个”疫苗“机遇。肯尼迪律师针对美国迅速进入CCP病毒疫苗研发指出，美国国家卫生研究院NIH负责人福奇博士曾不经意透露任何一种CCP病毒疫苗都可能让接种者在接触到这种病毒是出现过度免疫反应。但福奇仍然不计后果给部分由盖茨基金会资助的疫苗开启快速通道，即不经过检验过度免疫反应必须的动物测试就进入临床试验。并且在2020年2月4号美国仅仅出现11例CCP病毒确诊病例时，就通过了一项法规，规定让CCP病毒疫苗制造商完全免于承担疫苗副作用导致事故的责任。
 
-这位咱们统计局的姐们儿说：“七哥，你讲民生「银行」的事情引起了巨大的轰动。民生银行的票据业务「涉及」多少钱，七哥？1.7万亿人民币！「而且」找不着找去哪儿「了」。钱可能去这儿，有可能去那儿，也可能去上边儿……这事儿竟然没人想去查，荒唐到什么程度？”这1.7万亿人民币没了，上去了，还是下边儿，还是这儿，对吧？没人想查。没人想查的背后掩藏着什么？「仅」上海银行一家，「她说」：“7哥你不知道吧？「仅」这一家「银行」就1万亿人民币的票据找不着「了」。不敢贴现，不敢核实，不敢统计，也不敢查。”
+除了深度介入CCP病毒疫苗备受质疑之外。盖茨还曾提议给CCP病毒疫苗接种者发方接种证书，但遭到时任美国司法部长巴尔的反对。
 
-This sister-in-arms from the Bureau of Statistics said: “Brother Miles, your talk about Minsheng Bank has created a big stir. How much does Minsheng Bank’s bank note business involve, Brother Miles? 1.7 trillion yuan. And the money cannot be found anywhere. The money may go here, go there, or it may go to higher up people. Nobody wants to investigate this matter, how absurd?” The 1.7 trillion yuan is gone. Did it go up, go down, or is it still here? Nobody wants to investigate. What is hidden behind this situation? “Just at the Bank of Shanghai alone,” she said, “You can’t imagine, Brother Miles, just in this bank alone, 1 trillion yuan of bank notes cannot be located. They dare not to discount, verify, count, or investigate.”
+更值得关注的是，爆料革命发起人郭文贵先生曾揭露，盖茨基金会是CCP病毒源头——武汉病毒研究所的资助者之一。
 
-兄弟姐妹们，「你们」去想想这个国家还能四个自信吗？给世界开药方？拯救全世界？统治全世界？
+消息来源： 华尔街日报 网络公开信息
 
-Brothers and sisters, do you think this country can still have “Four Self-confidence (CCP propaganda meaning confidence in the path, theory, system, and culture of socialism with Chinese characteristics)”? Provide a solution to the world? Save the whole world? Rule the whole world?
+（本文系作者个人观点）
 
-然后「她」给我讲了一个「事儿」让我离开这几年，我「都」觉得「对」中共的把握越来越「连」我都害怕了，比我想的比我知道的还可怕。她说：“七哥，你去好好看一看数据，所有人民银行公布的都是外汇流入，贸易额增长「数据」。「有没有」公布过中国的几大指标：外汇流出、中国的外债数据 –「包括」贸易下的外债，还有真正金融领域的外债「数据吗」？”她说：“折腾折腾这个国家就是个破产的国家。”
-
-Then she told me something horrific. After I left China for a few years, I became more and more unsure about my understanding of the CCP. It was more terrifying than what I thought and what I knew. She said, “Brother Miles, please take a good look at the data. The only thing the People’s Bank of China publishes is data on foreign exchange inflows and trade volume growth. Have they published any major indicators related to China, such as foreign exchange outflows, China’s foreign debt, including foreign trade debt? Is there any real foreign debt data in the financial sector?” She said, ” With all its self-inflicted mistakes, this country will be a bankrupt country.”
-
-然后更可怕的把我吓住了：DCEP「这个」共产党发展的「号称」世界上最牛叉的数字人民币。「她说」：“七哥你知道吗？连续21次测试全面失败。”「共产党」想绝对中心化！区块链最重要的就是你得通知全世界有你的货币，所以是不可逆转的，绝对安全的。「但」共产党想把它「的数字人民币系统」全部控制「起来」，谁也不能知道只有「它自己」知道。结果钱发出去没了，收不回来了，这叫“断区块链”，「或叫」区块链黑洞。「共产党」解决不了「这个问题」。当时最牛的在国外回去这些人在数字人民币上所有人都骗了中共。
-
-Then something frightened me even more: DCEP, the CCP-developed digital RMB, which is also what they thought would be the world’s most awesome system. She said, “Brother Miles, did you know, they have failed 21 consecutive tests?” The CCP wants absolute centralized control of DCEP. The key feature of the blockchain is that you must inform the whole world about your currency[’s transactions], so it is irreversible and absolutely secure. But the CCP wants to control all its digital RMB. No one can know anything about it, except the CCP. But the money end up disappeared after being sent out, and cannot be recovered. This should be called a broken blockchain or a blockchain black hole. The CCP still cannot solve this problem. Back then, the most talented people were recruited from overseas and went back to China. All these people cheated the CCP on the digital RMB.
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/609a981537f7f73984ca8ce3](https://gtv.org/getter/609a981537f7f73984ca8ce3) (0:33-3:39, 6:13-7:20)
-鸣谢：
-[1] 感谢Antsee-GTV、TING GUO、文惜和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于[https://gnews.org/zh-hans/1233453/](https://gnews.org/zh-hans/1233453/)
-[2] 感谢YY、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于[https://gnews.org/1239522/](https://gnews.org/1239522/)
-
-* * *
-
-**字幕：【JennyL】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
-+1
+0

@@ -1,40 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇 — 川普搞不定他 拜登也搞不定他 国会山也搞不定他
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1249501/)
+## 【热点播报】美媒报道：武毒所2021年初删除了NIH和提及功能增强内容的网页
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1249563/)
 
-**摘要：在2021年5月12日的盖特视频中，郭先生感叹美国是一个法治国家，国会在过去两三个月间举行了一系列关于中共病毒的听证会，最终一定会把病毒真相搞得清清楚楚；也透露福奇（美国NIH/NIAID主管） “川普搞不定他，拜登也搞不定他，国会山也搞不定他”，但是这正说明美国是法治，不是人治，“什么都讲程序，什么都讲法”。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16222526/Miles_20210512-getter-p2.srt.txt)
-**福奇**** — ****川普搞不定他****拜登也搞不定他****国会山也搞不定他**
+作者：纽约香草山健身部  Jack Li文阳
 
-**No One Can Hold Fauci Accountable?**
 
-更重要的是美国国会，从现在往回看过去两三个月，「举行了」一个一个的听证会全是关于中共病毒的。你去看看国会整个排的表，接下来全部的问询、问话、调查、了解、听证，全部都有关中共的经济、偷盗技术、冠状病毒、疫苗，还有整个2019年年底和2020年年初发生了病毒「流行时」，美国的反应。就是干什么？这就是美国这个国家：不能乱讲话，必须得负责任。病毒来自于何方？美国有没有参与？最终都会搞得清清楚楚。这就这个有法可依的国家，它是一个法治的国家，不是人治的国家人。人治的国家你想说啥说啥，你想干啥「就」干啥。这是真的这个美国国家伟大的地方。
 
-More importantly, the US Congress has held a series of hearings on the CCP virus over the past two or three months. And the congressional schedule of upcoming inquiries, questionings, investigations, and hearings all have to do with the CCP’s economy, technology theft, the CCP virus, and the vaccine, including the US response to the coronavirus pandemic in late 2019 and early 2020. What does this mean? It means that in the US, no one can speak about things without taking responsibility. Where was the virus from? Was the US involved? Eventually, everything will be figured out completely. That makes the US a nation of laws, not a country ruled by the will of a few men. In a country ruled by the will of man, a few elite families will do whatever they want, like the CCP always does. That really makes the US great.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14021704/logo-1.jpg)
 
-就那个福奇，一个美国卫生部长，川普搞不定他，拜登也搞不定他，国会山也搞不定他。这样的人要是在中国，不要说是“习一神”收拾他，随便一个纪委的处长就把他灭100次了，但同样的事情那个处长也能被灭1万次 — 这就是美国这个社会，你想把谁搞死，没有搞死的理由，没有搞死的程序是不可以的。这就是咱们中国人的思维，「比如」在海外，一弄就要“搞死他！搞死他！” — 「全是」文化大革命的遗毒。「不想想如果」你搞死个人那么容易，人家也能搞死你那么容易。这就叫“红色恐怖”啊。所以说兄弟姐妹们你看到美国这个国家什么都讲程序，什么都讲法。
 
-With respect to that Fauci, the Director of NIAID in the US, Trump could not handle him, nor could Biden or the Capitol Hill. If he were in China, any director of the Discipline Inspection Commission would be able to dispose of him 100 times, not to mention the “great god Xi”. But equally, any director can also be disposed of by others 10,000 times. So, it is impossible to target anyone without a legitimate reason or without following a proper procedure in the US, whereas in overseas Chinese people’s minds, it is so easy to say “let’s screw someone”. It is a maddening and stubborn mental illness planted in our Chinese by the Cultural Revolution. If you can easily screw others, they can also easily take you down. Then it called the “Red Terror”. So, brothers and sisters, you should see that the US is a country where everything needs to follow the law and procedures.
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/609bef6337f7f73984cae322](https://gtv.org/getter/609bef6337f7f73984cae322) (1:54-3:42)
-鸣谢：
-[1] 感谢Antsee-GTV、TING GUO、文惜和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://gnews.org/zh-hans/1233493/](https://gnews.org/zh-hans/1233493/) 
-[2] 感谢Antsee-GTV、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于 [https://gnews.org/1239592/](https://gnews.org/1239592/)
+据国家脉动报道，2021年3月21日后，中共国武汉实验室的网站删除了六个美国研究伙伴：阿拉巴马大学，北德克萨斯大学，生态健康联盟（EcoHealth Alliance）,哈佛大学，美国国立卫生研究院（NIH）和美国国家野生动物联盟（the National Wildlife Federation）内容的网页。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16230118/1-79.png)
+武汉实验室网页还显示了一项研究更新 [“ SARS会回来吗？”](https://web.archive.org/web/20200212011902/http:/english.whiov.cas.cn/News/Events/201512/t20151204_157114.html)(“[Will SARS Come Back?”](https://web.archive.org/web/20200212011902/http:/english.whiov.cas.cn/News/Events/201512/t20151204_157114.html))  ，似乎描述了由福奇博士（Anthony Fauci）的国家过敏和传染病研究所（NIAID）资助的机构在该研究所进行的”功能增强性”研究。但是，一天后，该页面被进行了修改，只包含两个研究[伙伴](https://web.archive.org/web/20210322053537/http:/english.whiov.cas.cn/International_Cooperation2016/Partnerships/)：生态健康联盟和阿拉巴马大学。到3月23日，合作伙伴栏里只剩下生态健康联盟（EcoHealth Alliance）。生态健康联盟是由与中共长期合作的彼得 · 达杂克（Peter Daszak）领导，他曾多次宣称自己将成为武汉实验室[崩溃](https://thenationalpulse.com/exclusive/fauci-daszak-ecohealth-ties/)的第一位“落马者“。
 
-* * *
+武汉病毒研究所（武毒所）被追查其就是新冠病毒的[来源](https://www.foreignaffairs.com/articles/china/2021-03-31/what-who-investigation-reveals-about-origins-covid-19)，以及NIH可能将美国纳税人的钱提供给武毒所用于病毒研究之后，武毒所作出了从其网页删除NIH等组织的决定。在对福奇博士的参议院听证会中，兰德 · 保罗参议员也问到福奇博士武毒所掩盖秘密信息的问题，福奇极力地要把他的组织与武汉实验室划清界限。
 
-字幕：【Rock小哥】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+除了在NIH和武汉病毒研究所之间建立工作关系之外，该网站[现在已删除的](http://english.whiov.cas.cn/News/Events/201512/t20151204_157114.html)网页还详细介绍了武汉实验室进行了病毒的”功能增强性”研究。福奇向保罗参议员解释：“美国国立卫生研究院从开始至今没有资助武汉病毒研究所的”功能增强性”研究。”
 
-+1
+武汉病毒研究所与北卡罗来纳大学（UNC），哈佛医学院，贝林佐纳微生物研究所等的合作工作摘要，将科学家的工作描述为“制造并定性嵌合病毒”。并备注他们是如何修改病毒“在原代人气道细胞中有效复制并达到与SARS-CoV流行株等效的体外滴度”。文章总结说：“基于这些发现，他们合成了感染性全长SHC014重组病毒，并在体外和体内显示出强大的病毒复制能力。”
+
+5月14日，包括巴里克的25位美国顶级科学家在《自然科学》杂志发布了一封联名信，要求WHO彻查武汉病毒研究所，这表示象巴里克、利普金这些和中共有勾结的科学家都要跳船了。包括福奇，被拉到参议院做听证，被追究当年有否资助中共作”功能性增强性“试验，现在连福奇也要急着和中共切割了。美国科学界要和中共划清界限，政治两党联合抗共，左媒右媒争相报道武汉病毒所和病毒追责真相。西方世界原来与中共纠缠不清的人，都想华丽转身，站在正义一边。中共因为病毒问题，就像一个雷，谁都不想传到最后，爆在自己手上。
+
+参考阅读：https://thenationalpulse.com/exclusive/wuhan-lab-erases-nih-ties-gof-research/
+
+校对/发稿：火内
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15014027/5%E6%9C%88-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

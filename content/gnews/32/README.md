@@ -1,28 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021.5.6 郭先生直播G系列相关内容
-` 《爆料贵语--掀郭盖》NZ` [轉載自GNews](https://gnews.org/zh-hans/1249567/)
+## 福奇将在与武毒所密切合作的大学发表毕业典礼演讲
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1249745/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/16225658/5.6.jpeg)
-1: 老共为何与澳洲脱钩?
+新闻来源：《国家脉动》| 作者：Natalie Winters | 发布时间：2021年5月13日
 
-现在大家看到对于澳洲，老共为何与澳洲要脱钩，在威胁澳洲?这就像啥?就 像欺民贼还有“九指妖”一样儿:我不给你干啦，我要自己成立爆料革命，我要成立“傻币”…… 都一样。你看那欺民贼，Sara “九指妖”要搞G-TV，要搞直播，要搞网站，要搞“傻币”，还有 那些过去的N个人，加拿大的号称搞网站的……大家记得2017年吧?多少人都要搞什么 这网站、那网站，推荐这软件，那软件的，有多少人?你们见有一个能成事儿 的吗?
+翻译/简评：Victory | 校对：感恩 | 审核：万人往 | Page：Daoiii
 
-2: 共产党玩的招数
+[!\[\]()!\[\](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/611e8748-3616-49c0-9f94-0342be5de752.jpg?asset_id=f3064641-4593-4d3e-8052-92e6ee7459dc&amp;img_etag=%222cbb68e61c4e3b4ec792c491e9a7a738%22&amp;size=1024)](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/611e8748-3616-49c0-9f94-0342be5de752.jpg?asset_id=f3064641-4593-4d3e-8052-92e6ee7459dc&amp;img_etag=%222cbb68e61c4e3b4ec792c491e9a7a738%22&amp;size=1024)
 
-~现在你们能看得出来就共产党玩儿的一招儿啥? 我不跟你澳大利亚玩儿了!– 你家生铁矿吗? 我不跟你澳大利亚做生意了!– 你家有农业吗? 我不跟你一起搞军事了!– 人家用的着你吗?
+**简评：**
 
-~现在，印度死人，共产党要跟人家说:“我点火啊”;然后对澳大利亚:跟你经济 脱钩;香港:把你变成臭港;台湾:让你天天睡不着觉;然后对日本:不听话?不听话 小心点啊!用核武器把你日本荡平，手撕掉你日本;对欧洲、英国:英国已经老掉 了 — 法国离了我更不行 — 德国不卖汽车，活得了吗?
+近日来，随着病毒真相被主流媒体逐步揭露。福奇和他的同伙们已经无法再利用其学术地位只手遮天、掩盖事实。上周，福奇在听证会上接受了参议院质询，并在回应中默认了武汉病毒研究所进行了病毒功能增强研究。现在他正在试图撇开自己和中共的关系。同时，我们看到推特上其他一些鼓吹病毒自然来源的所谓科学家也开始转变口风。所谓树倒猢狲散，邪恶势力正在溃败中。
 
-3:共产党加一起不如伊隆·马斯克 然而你共产党加在一起，一个国家的经济、技术实力都不如一个人:伊隆·马斯克! 你都不这一个人创造的经济和技术和给社会的文明贡献和生产力 — 真正的生产力。 你吹啥狼蛋呢?吹啥呢?
+2015年，巴里克曾和石正丽在《自然医学》发表文章，讨论蝙蝠冠状病毒在人类中爆发传播的可能性。他们做过的事，都会有迹可查。这些造成全球病毒浩劫的恶魔，必须接受全人类的审判。
+
+**原文翻译：**
+
+**福奇将在有争议的大学发表毕业典礼演讲，该大学进行与武汉有关的功能增强研究**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/3edbb0b7-53d4-4ddd-899e-4a02dba65ecd.png?asset_id=e5a33868-efdb-4e62-9854-187c2555c7d9&amp;img_etag=%22623044a21167d7cbfeaaef0af212201b%22&amp;size=1024)](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/3edbb0b7-53d4-4ddd-899e-4a02dba65ecd.png?asset_id=e5a33868-efdb-4e62-9854-187c2555c7d9&amp;img_etag=%22623044a21167d7cbfeaaef0af212201b%22&amp;size=1024)
+
+安东尼·福奇博士将在北卡罗来纳大学教堂山分校毕业典礼上发表演讲——该校因其教授与武汉病毒研究所进行功能增强研究而受到抨击。
+
+即将发表的讲话在参议员兰德·保罗（Rand Paul）和国家过敏和传染病研究所（NIAID）所长之间的激烈争论之后进行。这位肯塔基州参议员就北卡罗来纳大学教堂山分校（UNC）流行病学系和微生物学与免疫学系教授拉尔夫·巴里克（Ralph Baric）博士的工作向福奇施压。
+
+“多年来，美国病毒学家拉尔夫·巴里克博士一直与武汉病毒研究所的石正丽博士合作，分享他关于如何创造超级病毒的发现。这项功能增强的研究得到了美国国立卫生研究院的资助。”保罗参议员询问道。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/f69e751c-861a-414a-8f30-67a15b55dc9f.jpg?asset_id=8f074338-5123-4e64-b4c2-f79c802a990d&amp;img_etag=%224d793bbef5628f0ef848d0edd6464a15%22&amp;size=1024)](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/f69e751c-861a-414a-8f30-67a15b55dc9f.jpg?asset_id=8f074338-5123-4e64-b4c2-f79c802a990d&amp;img_etag=%224d793bbef5628f0ef848d0edd6464a15%22&amp;size=1024)福奇的“好朋友”卡罗来纳大学教堂山分校区病毒学家拉尔夫·巴里克（Ralph Baric）
+
+“巴里克博士没有在做功能增强研究，如果有的话，也是根据指导方针进行的，而且是在北卡罗来纳州进行的。如果你看一下拨款和进度报告，这不是功能增强，尽管人们在推特上这么写”福奇后来回应为教授辩护。保罗参议员还指出，福奇是如何作为”少数”不把巴里克的研究列为功能增强的，他引用了超过200名科学家同意这项研究属于该类别。
+
+巴里克博士还参加了武汉病毒研究所的会议，包括2018年的新发病毒性疾病国际研讨会。
+
+🔗[原文链接](https://thenationalpulse.com/breaking/fauci-to-speak-at-controversial-wuhan-linked-uni/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-整理:滴水莲花
+[!\[\]()!\[\](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/2FxBdBNQyqGdz/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
-审核：玫瑰天空
-
-上传：糊糊文婴
-
-+1
+0
