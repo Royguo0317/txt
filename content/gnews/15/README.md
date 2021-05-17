@@ -1,24 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 台湾防疫破功 17号再增333例本土感染
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1250745/)
+## 【香草诗词汇】报答—— 灵魂深处的低吼
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1250793/)
 
-#### 撰稿：yyshere（News Express）
-校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17083118/tw.jpg)图片来源：网络截图
-台湾中央疫情指挥中心5月17号公布，境内新增335例CCP病毒感染确诊病例，其中333例为本土感染病例，2例境外输入病例。病例主要集中在台北市（158例）和新北市（148例）。
+作者：纽约香草山健身部 澄道
 
-台湾卫生部长兼指挥中心指挥陈时中在当天下午的记者会上表示，新增的CCP病毒本土感染个案为189例女性、144例男性，最小感染者未满5岁，最年老感染者超过90岁，发病日期或检测日期介于5月5号至16号。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
 
-陈时中还透露，新增2例境外输入病例为菲律宾籍男性和台湾籍女性，分别从菲律宾和海地于 4月30号与5月16号入境，两人均持有登机前3日内的检验阴性报告。
 
-此前，台湾于15号毫无征兆地爆出180例本土感染病例，随后在16号再次激增207例。
 
-对于台湾从全球防疫一枝独秀的优秀生到近日来本土感染病例连续激增，外界存在疑虑，是否与印度一样，是被再次投毒所致。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17083717/SAf6Y5cJ0aBpbG.png)
 
-消息来源： 台湾政府网站
+经历再多 岁月穿梭
+难免让人举殇
+对饮独饮或许是想往解脱的报答
 
-（本文系作者个人观点）
+人生几何 无关长幼
+妙起童言童谣
+听声品韵一定是心存善感的报答
+
+经励过再大风雨
+七色彩虹现就是亘古的报答
+
+拖死扣诛心锁 无惧生死
+七哥文贵天成就是上仓的报答
+
+响鼓不用重锤敲
+灭共是正义的需要
+这是数劫华夏人的心声——报答
+
+正道务须真战友
+铲毒何止於刮骨疗伤
+这是你我灵魂深处的低吼——报答
+
+幸得霞满人身
+是前世的报答
+
+值遇新中国联邦
+定是今生报答
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+
+
+
+**六四文宣大赛，****欢迎大家踊跃投票****：**[**https://gnews.org/poll/poll-article\_1/**](https://gnews.org/poll/poll-article_1/)
+
+**投票注意事项：第一，比如投票视频，一个账号需要同时选中要投的三个视频作品，方可以投票；第二，因为视频比较大，所以需要大家静待一两分钟，然后进入视频投稿界面。第三，投票的战友也有机会获幸运参与奖啊。**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
