@@ -1,24 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 台湾防疫破功 17号再增333例本土感染
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1250745/)
+## 根据制造商的说法，新型病毒疫苗有效
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1250854/)
 
-#### 撰稿：yyshere（News Express）
-校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17083118/tw.jpg)图片来源：网络截图
-台湾中央疫情指挥中心5月17号公布，境内新增335例CCP病毒感染确诊病例，其中333例为本土感染病例，2例境外输入病例。病例主要集中在台北市（158例）和新北市（148例）。
+信息来源：德国镜报网络版
+发布时间：2021年5月17日
+翻译 /整理/ 简评： Shuizhuyu
 
-台湾卫生部长兼指挥中心指挥陈时中在当天下午的记者会上表示，新增的CCP病毒本土感染个案为189例女性、144例男性，最小感染者未满5岁，最年老感染者超过90岁，发病日期或检测日期介于5月5号至16号。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06041841/vaccine-scaled.jpg)
 
-陈时中还透露，新增2例境外输入病例为菲律宾籍男性和台湾籍女性，分别从菲律宾和海地于 4月30号与5月16号入境，两人均持有登机前3日内的检验阴性报告。
 
-此前，台湾于15号毫无征兆地爆出180例本土感染病例，随后在16号再次激增207例。
+批准应在今年进行：赛诺菲（Sanofi）和葛兰素史克（GSK）制药公司生产的法英疫苗显然取得了可喜的结果。他可以在对抗突变的过程中发挥作用。
 
-对于台湾从全球防疫一枝独秀的优秀生到近日来本土感染病例连续激增，外界存在疑虑，是否与印度一样，是被再次投毒所致。
+制造商称，针对赛诺菲和葛兰素史克（GSK）冠状病毒的候选疫苗在II期研究中显示出良好的疗效。因此，该疫苗在所有年龄段均引发了强烈的免疫反应。对批准至关重要的III期研究计划在未来几周内开始。据制造商说，如果一切都按计划进行，那么今年就可以批准该疫苗。
 
-消息来源： 台湾政府网站
+与欧盟先前批准的针对冠状病毒的疫苗不同，现在正在测试的产品是基于蛋白质的疫苗。它们的优点是不必将其低温存储并且可以大量生产。另外，它们被认为是可以针对新出现的病毒变种进行刷新的第三方疫苗。
 
-（本文系作者个人观点）
+简评：新的疫苗又出现了， 新的紧急批准又在路上。 这些医药公司， 这些病毒专家难道耳朵都聋吗？ 我们已经呼喊了一年多了， 病毒是武器， 这个病毒是中共病毒， 是生物武器。 中共手里有解药， 向中共追责吧。 那才是最有效， 危害最小，成本最小，见效最快的途径。
+
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+发表： Shuizhuyu
+
+🔗 [corona-neuartiger-impfstoff-von-sanofi-und-glaxosmithkline-liefert-vielversprechende-ergebnisse](https://www.spiegel.de/wissenschaft/medizin/corona-neuartiger-impfstoff-von-sanofi-und-glaxosmithkline-liefert-vielversprechende-ergebnisse-a-9b03b8fd-01aa-46b6-8b1b-65a2ca75c7b3)
+
+
 
 0

@@ -1,65 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】报答—— 灵魂深处的低吼
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1250793/)
+## 伊朗和土耳其敦促对以色列采取联合措施
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1250768/)
 
-作者：纽约香草山健身部 澄道
+翻译/整理：Tito
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
+德黑兰- 在5月16日，伊朗总统哈桑-罗哈尼和土耳其总统雷杰普-塔伊普-埃尔多安，在电话交谈中敦促国际社会对以色列袭击加沙的问题采取具体行动。
 
+据伊斯兰共和国通讯社报道，罗哈尼要求 “立即停止对那些被压迫的、手无寸铁的巴勒斯坦人进行野蛮攻击和杀戮”。
 
+伊朗总统补充说：“伊朗和土耳其作为该地区重要并且有影响力的国家，必须团结起来，通过国际组织努力对抗犹太复国主义的暴行**。**”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17083717/SAf6Y5cJ0aBpbG.png)
+埃尔多安的话也被伊斯兰共和国通讯社引用，他呼吁伊斯兰世界团结起来，促使国际社会采取 “强有力的威慑性” 措施，阻止 “以色列的攻击和屠杀”。
 
-经历再多 岁月穿梭
-难免让人举殇
-对饮独饮或许是想往解脱的报答
+卑鄙无耻拉偏架，信口雌黄不要脸，这是对流氓国家最贴切的描述。哈马斯得瑟的射出火箭弹的时候，这些流氓国家选择性的失明。等耍流氓的被打了，周边一群流氓团结起来了。给以色列点赞，对待这些流氓，拳头是最好的语言。
 
-人生几何 无关长幼
-妙起童言童谣
-听声品韵一定是心存善感的报答
+[消息来源](https://www.ansa.it/sito/notizie/topnews/2021/05/16/iran-e-turchia-sollecitano-misure-comuni-contro-israele_db26cf1c-67d5-476d-b62e-7d5ae36c52c2.html)
 
-经励过再大风雨
-七色彩虹现就是亘古的报答
+（本文仅代表作者个人观点。）
 
-拖死扣诛心锁 无惧生死
-七哥文贵天成就是上仓的报答
-
-响鼓不用重锤敲
-灭共是正义的需要
-这是数劫华夏人的心声——报答
-
-正道务须真战友
-铲毒何止於刮骨疗伤
-这是你我灵魂深处的低吼——报答
-
-幸得霞满人身
-是前世的报答
-
-值遇新中国联邦
-定是今生报答
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+发布：阿娜
 
 
-
-**六四文宣大赛，****欢迎大家踊跃投票****：**[**https://gnews.org/poll/poll-article\_1/**](https://gnews.org/poll/poll-article_1/)
-
-**投票注意事项：第一，比如投票视频，一个账号需要同时选中要投的三个视频作品，方可以投票；第二，因为视频比较大，所以需要大家静待一两分钟，然后进入视频投稿界面。第三，投票的战友也有机会获幸运参与奖啊。**
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

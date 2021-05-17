@@ -1,29 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 安东尼·福奇(Anthony Fauci)倒戈了？！
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1251120/)
+## 【每日快讯】05/16/2021：中共的暴政引得天怒民怨
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1251222/)
 
-**翻译：**武松(Sam)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17101151/568423.png)图片来源：网络
-在5月11日的美国参议院听证会上，兰德·保罗（Rand Paul）博士就美国国立卫生研究院（NIH）在冠状病毒功能获得研究中的作用对安东尼·福奇(Anthony Fauci) 博士进行了质询。作为美国国立卫生研究院国家过敏与传染病研究所（NIAID）的负责人，福奇试图撇清其本人与冠状病毒功能增强研究之间的关系。该项违反伦理且对人类充满危险的病毒实验早在2014年即被叫停，但是某些人利用漏洞使得美国和中共国的科学家得以继续进行这些危险的病毒、动物和人类实验。
+#### 制作：Cantonese工作室
 
-福奇在参议院听证会上坚称尽管美国国立卫生研究院（NIH）通过分拨款项给生态健康联盟的彼得·达萨克（Peter Daszak）博士，用以支持中共武汉病毒学研究所进行该项研究，但NIH并未参与这一危险的医学实验。实际上，美国的科研资金最终流向中共国和美国的科学家手中并用以推进功能性增强的研究。
 
-生物技术专家Yuri Deigin剖析了中共病毒的分子生物学，并提出了对该病毒进行人为修改及增强的可能性，著名的免疫学家Nikolai Petrovsky记录了中共病毒与人肺细胞上ACE2受体的异常结合能力。 2020年6月中共国研究人员展示了改良的小鼠模型，其主要用于开发人肺细胞中的ACE2受体，中共国科学家使用CRISPR基因编辑工具为小鼠配备了来自人肺细胞的ACE2受体，用以了解如何进行工程改造感染性冠状病毒刺突蛋白。使用串行传代技术，邪恶的病毒学家可以制造超级病毒，而不留下分子印迹或实验室干扰的迹象，他们一次只转移一个病毒基因，通过自然选择即可运行，从而隐藏了超级病毒的功能性增强，用精确的基因序列增加超级病毒的毒性，并产生最合适的基因，最终使超级病毒与人肺细胞的ACE2受体结合。
 
-北卡罗来纳大学的冠状病毒研究人员拉尔夫·S·巴里奇（Ralph S. Baric）研究蝙蝠病毒攻击人类细胞的能力，其在2015年与中共武汉病毒学研究所的蝙蝠小姐石正丽（Shi Zheng-li）进行合作研究，石正丽从云南的洞穴中收集了数十种蝙蝠冠状病毒， 2015年11月他们开发了一种新型冠状病毒，通过SARS1病毒的骨架并用蝙蝠病毒（称为SHC014-CoV）中的一种替代其刺突蛋白，在体外对这种人造病毒针对人肺细胞进行测试时，发现它能够附着并引起感染。
+*播报: 海媚
+资料整理: 郁金香、文林、二丫
+海报制作: penny、侬民
+视频制作: KEN
+粤语翻译校对:文雀*
 
-美国科学家分六次向武汉病毒研究所提供资金，每次都超过一百万美元。生态健康联盟的彼得·达萨克（Peter Daszak）博士将700万美元的美国国立卫生研究院（NIH）的拨款拿到了中共国，用以推进石正丽的中共病毒研究，彼得·达萨克（Peter Daszak）还是中共国实验室研究项目的合作者和相关论文的联合作者，他承认其向安东尼·福奇(Anthony Fauci)博士汇报了所有的情况。因此，非常有必要对NIH，NIAID和生态健康联盟进行更加详细的调查，美国国家卫生研究院的所有主管都应受到质询，生物武器研究中的所有同谋都必须受到指控，直到全世界都能得到更多答案为止。
+## 摘要：
 
-评：随着病毒起源于中共国实验室的事实逐步被验证，越来越多的科学家将站在科学和正义的一边，之前矢口否认病毒起源于实验室的福奇博士已经开始倒戈了，对于实验室起源的说法不在否认，并承认中共病毒是功能增强型病毒，换句话说这种病毒只可能起源于实验室且人为干预的。在目前全球因中共病毒导致近千万人感染、近百万人死亡的情况下，世界正义的力量必须加快集结，尽快消灭邪恶的中共，人类才能获得解药和安宁。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17115955/Snapshot-18511.png)
 
-原文链接：[https://www.naturalnews.com/2021-05-16-nih-established-loophole-exploiting-moratorium-gain-of-function-coronavirus-research.html#](https://www.naturalnews.com/2021-05-16-nih-established-loophole-exploiting-moratorium-gain-of-function-coronavirus-research.html#)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17120005/Snapshot-84148.png)
 
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17120015/Snapshot-173687.png)
 
-编辑/发布：比卡丘
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17120024/Snapshot-230819.png)
 
-20210517
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17120033/Snapshot-297662.png)
+
 0

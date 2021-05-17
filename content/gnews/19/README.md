@@ -1,46 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 隐瞒为中共国秘密工作 研究员被判处3年监禁
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1250770/)
+## 蓬佩奥:每一个证据都表明中共病毒起源于武汉病毒学研究所的实验室
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1251046/)
 
-翻译：康州盘古农场 – TrueSky
-校对：康州盘古农场 – Mike Li
-编辑：康州盘古农场 – 格格巫
+美国前国务卿蓬佩奥周日称，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 武毒所实验室掩盖冠状病毒大流行疑似起源真相的时间之久“令人震惊”。 蓬佩奥在接受福克斯新闻网《周日早晨期货》采访时说，“我们在整个时间过程中看到的每一个证据都表明，这 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 起源于武汉病毒学研究所的实验室。” “我没有看到一点相反的证据，”他继续说尽管（[#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click)）不允许任何人进入实验室、调查原始材料和在那里工作的医生，但证据仍在不断积聚。 “[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 为掩盖真相所做的方方面面的努力令人震惊，我们的间接证据加上 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 极力否认我们关于那个实验室的信息的反应，强烈地向我表明，这就是它的起源。” 蓬佩奥补充说，今年1月，发布了一组现已解密的信息片段，“谈论这样一个事实，即我们相信，早在2019年，就有医生出现了感染 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的症状。” 蓬佩奥说，这代表了“[#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 早在向世界卫生组织和全世界承认之前，就对#中共病毒 人传人的现象有了认识。” 他宣称：“越来越多的证据表明，[#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的行为至少是鲁莽的疏忽，甚至可能更糟（是故意的）。”
 
-据《华盛顿时报》作者：比尔-格茨，2021年5月14日报道：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17084849/7DF20F70-5677-45EC-B6F5-42C1B8769C1E.jpeg)*这张2019年5月8日的资料照片显示，俄亥俄州哥伦布市的俄亥俄州立大学的标志。(AP Photo/Angie Wang, File)*
-俄亥俄州的一位教授周五被判处37个月的监禁，因为他没有披露由联邦拨款资助的中共国工作，检察官说这是一个免疫学研究项目的欺诈计划。
 
-58岁的俄亥俄州希利亚德（Hilliard）的郑松国（Song Guo Zheng），在11月承认伪造410万美元的美国国家卫生研究院拨款有关的联邦申请，这些拨款被用于发展中共国在风湿病学和免疫学领域的专业知识。
 
-郑某还被命令向美国国立卫生研究院支付超过340万美元的款项，并向俄亥俄州立大学支付41.3万美元，他在俄亥俄州立大学与宾夕法尼亚州立大学联合开展的研究项目中工作。
-
-这位教授是根据司法部的“中共国倡议”被起诉的，该倡议自2017年以来一直在打击作为中共国“千人计划”一部分的非法研究，“千人计划”是中共国政府获取美国高科技和专业知识的计划。
-
-美国大学的几位教授在该倡议中落网，包括哈佛大学化学系主任查尔斯-M-利伯，他也被指控向五角大楼和美国国立卫生研究院撒谎并为千人计划工作。利伯先生不承认认罪。
-
-国家安全部助理检察长约翰-C-德默斯说，“在另一起涉及中共国政府千人计划的案件中，郑松国将在未来37个月的联邦监狱中度过，因为他选择撒谎并向美国研究资助机构隐瞒他参与这一计划的情况，”
-
-“美国的研究资金是由美国纳税人为美国社会的利益提供的，而不是作为给中共国政府的非法礼物，”他说。“当联邦资金被提供给研究时，对美国人民应该保持完全的透明度，我们将继续追究那些选择谎报其与外国政府关系，以试图欺诈性地获得这些资金的人的责任。”
-
-郑于2020年5月在阿拉斯加被捕，当时他正准备登上前往中共国的航班。他携带了三台两台笔记本电脑，三部手机，几个USB驱动器，银条和过期的他全家的中共国护照。
-
-他在被俄亥俄州官员问及未申报的为中共国工作的问题后逃离了俄亥俄州。
-
-联邦调查局反情报局局长艾伦-科勒（Alan E. Kohler）说，郑某隐瞒了他与中共国至少五个研究机构的联系。
-
-科勒先生说：”郑贪婪地拿走了联邦研究经费，并阻止其他人获得支持医学进步的关键研究经费。
-
-郑是一名内科医学教授，负责一个进行自身免疫研究的专家团队。
-
-检察官说，自2013年以来，他一直是“千人计划”的一部分。
-
-原文链接：https://www.washingtontimes.com/news/2021/may/14/researcher-gets-3-year-prison-term-for-covert-chin/
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+> Pompeo: Evidence 'Staggering' of COVID Origins at China Virology Lab [https://t.co/qq4x4FXNEu](https://t.co/qq4x4FXNEu) [#Newsmax](https://twitter.com/hashtag/Newsmax?src=hash&amp;ref_src=twsrc%5Etfw) 来自 [@Newsmax](https://twitter.com/newsmax?ref_src=twsrc%5Etfw)
+> — 美国政要等…直译推 (@zhiyitw33) [May 17, 2021](https://twitter.com/zhiyitw33/status/1394286961112801280?ref_src=twsrc%5Etfw)
 
 
 
