@@ -1,55 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 安东尼·福奇博士是武汉病毒之父吗？病毒是从武汉病毒学实验室逃出来的，这是美国历史上最具讽刺意味的回答
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1250847/)
+## 蓬佩奥:每一个证据都表明中共病毒起源于武汉病毒学研究所的实验室
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1251046/)
 
-翻译：康州盘古农场-WZ
-校对：康州盘古农场-Mike Li
-编辑：康州盘古农场-格格巫
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17085954/F0C3365A-8F86-4867-AB55-4DDE1F79720D.png)*图源：市场观察*
-考虑到这个话题对于了解病毒起源的重要性，以及福奇在兰德·保罗(Rand Paul)的严厉审讯下在国会听证会上撒谎的事实，我们有必要回顾一下这个基于9个无可争辩的事实的案件。在某些情况下，福奇在病毒制造中扮演的角色的证据甚至直接来自美国国立卫生研究院(NIH)的网站。
+美国前国务卿蓬佩奥周日称，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 武毒所实验室掩盖冠状病毒大流行疑似起源真相的时间之久“令人震惊”。 蓬佩奥在接受福克斯新闻网《周日早晨期货》采访时说，“我们在整个时间过程中看到的每一个证据都表明，这 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 起源于武汉病毒学研究所的实验室。” “我没有看到一点相反的证据，”他继续说尽管（[#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click)）不允许任何人进入实验室、调查原始材料和在那里工作的医生，但证据仍在不断积聚。 “[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 为掩盖真相所做的方方面面的努力令人震惊，我们的间接证据加上 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 极力否认我们关于那个实验室的信息的反应，强烈地向我表明，这就是它的起源。” 蓬佩奥补充说，今年1月，发布了一组现已解密的信息片段，“谈论这样一个事实，即我们相信，早在2019年，就有医生出现了感染 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的症状。” 蓬佩奥说，这代表了“[#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 早在向世界卫生组织和全世界承认之前，就对#中共病毒 人传人的现象有了认识。” 他宣称：“越来越多的证据表明，[#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的行为至少是鲁莽的疏忽，甚至可能更糟（是故意的）。”
 
-其一：Fuci使用NIH的赠款资金资助武汉病毒学实验室；其二，这些美国纳税人的资金通过彼得·达扎克（Peter Daszak）和总部设在纽约市的生态健康联盟(EcoHealth Alliance)被输送到武汉实验室。
 
-在美国国家过敏症和传染病研究所(NIAID)近370万美元拨款的支持下，自2014年以来，已发表了30项研究。该基金名为“了解蝙蝠冠状病毒出现的风险”。在这些研究中，超过一半的作者来自中国共产党运营的科学组织，其中13个研究案例的作者来自武汉病毒学研究所。
 
-更重要的是，这些研究本身描述了这笔赠款将同时流向生态健康联盟主席彼得·达扎克（Peter Daszak）和武汉病毒研究所新发传染病中心主任石正丽。
+> Pompeo: Evidence 'Staggering' of COVID Origins at China Virology Lab [https://t.co/qq4x4FXNEu](https://t.co/qq4x4FXNEu) [#Newsmax](https://twitter.com/hashtag/Newsmax?src=hash&amp;ref_src=twsrc%5Etfw) 来自 [@Newsmax](https://twitter.com/newsmax?ref_src=twsrc%5Etfw)
+> — 美国政要等…直译推 (@zhiyitw33) [May 17, 2021](https://twitter.com/zhiyitw33/status/1394286961112801280?ref_src=twsrc%5Etfw)
 
-例如，一项关于“一种新的蝙蝠冠状病毒的分离和特征”的研究指出，“美国国立卫生研究院(National Institutes Of Health)以NIAIDR01AI110964号向彼得·达扎克和石正丽提供了资助。”美国国立卫生研究院的纳税人资金被描述为资助石正丽进行的研究的另外七个例子。
 
-第三，2017年12月，福奇和美国国家卫生研究院(NIH)主任弗朗西斯·柯林斯(Francis Collins)一起在川普白宫背后，推翻了奥巴马政府2014年做出的一项决定。澳大利亚记者莎莉·马克森(Sharri Markson)透露，福奇利用白宫的一次“低级别”会议另辟捷径，该决定禁止使用“功能增强”工具来增加病毒的杀伤力。
-
-第四，在大流行来袭之前，彼得·达扎克（Peter Daszak）在一次电视采访中吹嘘说，利用武汉实验室的功能增益来使病毒更致命是多么简单。
-
-第五，奥巴马的国家安全委员会建议禁止功能增强研究，因为武器化病毒即使是最安全的实验室也可能逃脱的风险很高；
-
-第六，致命的病原体经常从最高安全的实验室逃逸，包括一种从北京病毒研究所逃脱并导致第一种SARS病毒的病毒；
-
-第七，美国国务院在2018年警告武汉实验室缺乏安全协议，以及武汉的不严谨可能引发第二次SARS爆发。
-
-第八，福奇的美国国立卫生院（NIH）帮助资助了北卡罗来纳大学的拉尔夫·巴里克(Ralph Barric)的研究，巴里克与中国臭名昭著的“蝙蝠女”武汉实验室病毒学家石正丽一起使用了功能增强技术；
-
-第九，众多专家现在已经同意，SARS-COV-2很可能来自武汉实验室。这些专家包括疾病控制中心主任罗伯特·雷德菲尔德博士，CNN的桑杰·古普塔，以及尼古拉斯·韦德，他所写的文章很可能被证明是支持实验室理论的决定性证据。
-
-除了主流媒体中的许多人仍然不这么认为。
-
-Mediaite声称我做了一个“错误的暗示”，说福奇“通过资助武汉病毒学研究所的研究帮助创造了冠状病毒。”虽然雅虎新闻引用了受到损害的世界卫生组织(World Health Organization)，但它认为上面概述的理论是“最不令人信服的”。
-
-福奇必须立即辞职，并为错误的判断向美国人民和世界道歉，这些错误很可能导致了目前的大流行，导致数百万人死亡，数千万个就业机会被毁，并给美国和世界经济造成了数万亿美元的损失。中国共产党应该为这一切负责。
-
-同样，福奇也必须为在参议员兰德·保罗(Rand Paul)的尖锐质问下对美国公众撒谎而道歉。5月11日，福奇一再坚决否认他和他的NIH资助或支持武汉实验室的功能增强实验。然而，这只是福奇在权宜之计时喜欢告诉美国人民的另一种“口罩不起作用”的白色谎言。
-
-在这种情况下，因为福奇的NIH资金没有直接进入武汉的实验室，而是流向了达扎克和巴里克的中间人，福奇希望我们相信他是清白的。然而，福奇很可能知道达扎克在武汉进行的研究，巴里克与武汉实验室的“蝙蝠女”密切合作–如果他不知道，那就更有理由让他辞职了。
-
-我第一次见到托尼·福奇(Tony Fauci)是在白宫情况室，当时我代表川普总统为中国旅行禁令辩护，福奇与我进行了激烈的斗争。我当时是对的–帮助拯救了数十万美国人的生命。现在证明我是对的。
-
-娜塔莉·温特斯(Natalie Winters)对本文做出了贡献。
-
-原文链接： [https://thenationalpulse.com/analysis/exc-navarros-9-indisputable-facts-linking-fauci-to-covid-19-origin/](https://thenationalpulse.com/analysis/exc-navarros-9-indisputable-facts-linking-fauci-to-covid-19-origin/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

@@ -1,55 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共媒体声称某前列腺药物能够治疗新冠
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1251107/)
+## 美国调查白宫附近的第二例“哈瓦那综合症”
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1251226/)
 
-作者：香草山Paul Li
+#### 编译： Boxinglady
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17115344/2960__1619706662960.jpeg)白宫，图片来自网络
+随着美国情报官员继续调查可疑的声音袭击的原因和来源，第二起神秘的脑部疾病被称为“哈瓦那综合症”，与白宫有关。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12160942/logo-3.jpeg)
+美国有线电视新闻网周一报道说，十一月，白宫入口附近的疾病使国家安全委员会的另一位成员震惊。在第一起案件揭露不到三周后，该事态就发生了，第一起案件也涉及NSC官员。
 
+消息人士告诉美国有线电视新闻网，这两种情况下的神经系统症状都与一系列奇怪的声音袭击相一致，据报道，这些声音袭击已经影响了全球130多名美国外交官，间谍和部队。
 
+可疑的定向能量袭击使美国调查人员感到困惑，他们正在努力确定谁造成了这些事件。
 
+据美国有线电视新闻网（CNN）报道，11月4日大选一天后，美国国家安全委员会（NSC）的第一位官员在试图穿越白宫附近椭圆门附近的大门时生病了。该官员在下周经历了轻微的症状，包括头痛和失眠。
 
+据《纽约时报》上周报道，袭击事件始于2016年，始于哈瓦那，此后已有130多名驻叙利亚，欧洲和美国的美国人员进行了报道。
 
-近日，中共国媒体报道，墙内某生物科技公司——“开拓药业”，发现一款在研的前列腺药物可能对治疗新冠有效果。假如此事属实，我们有理由怀疑，这是不是中共早就掌握的治疗新冠病毒的解药？
+这个数字是以前已知的60例的两倍多-大多数发生在古巴和中国。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17101155/%E6%96%B0%E5%86%A0%E8%A7%A3%E8%8D%AF.png)
+美国首例疑似病例发生在2019年，当时一名白宫官员在华盛顿附近的弗吉尼亚郊区walking狗时报告出现症状。
 
-根据今年3月开拓药业披露的一项巴西临床试验结果，这款处于临床后期研究阶段的普克鲁胺（Proxalutamide）药物，能将重症新冠患者的死亡风险降低92%。郭文贵先生曾在直播中说，据中共内部情报，中共的疫苗不可靠，但是中共有新冠病毒的解药。倘若世界各国向中共施压，中共有可能交出解药。
+哈瓦那综合症的影响包括使人虚弱的头痛，眩晕，恶心和头部或颈部疼痛。在某些情况下，受害者会长期遭受脑损伤，沃尔特·里德（Walter Reed）的医生警告官员们，有些人有自杀的危险。
 
-我们欣喜地看到，国际上追究病毒真相的呼声越来越高。印度因为自身卫生条件落后和中共针对性放毒，新冠病毒感染人数和死亡人数都居高不下。但是印度并没有屈服，5月12号，《印度时报》博客刊文，“关于中共病毒起源的报道，中共生物武器的铁证”，作者SD Pradhan曾任印度联合情报委员会主席。“今日印度”的Gaurav C. Sawant主播也采访了闫丽梦博士。不久前，巴西总统贾尔·博尔索纳罗（Jair Bolsonaro）对中共在新冠病毒问题上的处理提出严重质疑，他认为中共可能在实验室中开发了这种病原体，并将其作为“生物战”武器投放到全世界。
+中情局局长威廉·伯恩斯（William Burns）现在每天接受有关世界范围内声波袭击的简报
 
-正当越来越多的国家把矛头指向中共的时候，中共放出本文开头提到的这则新闻意味深长，说明中共有可能要公布新冠病毒的解药。正如文贵先生所说，中共即使承认有解药，也不会说自己一开始就有解药。否则就等于坐实了自己是策划并发动这场生物武器大战的元凶。所以中共会说自己无意中发现了新冠病毒的解药。这则新闻正是使用了这样的话术。但普克鲁胺是否是解药目前尚未可知。只要世界各国坚定地向中共要真相，中共被迫交出解药的那一天就越来越近了。
+美国国家科学院3月份发表了一份报告，发现该综合征的症状很可能是来自“微波武器”的“定向脉冲射频能量”的结果。但是，接受CNN采访的消息人士说，这些发现远未得到证实。
 
-参考阅读：
+在数十名美国人在古巴哈瓦那生病后，神秘的脑部伤害于2016年开始-导致这种伤害被称为“哈瓦那综合症”
 
-[https://m.yicai.com/news/101051478.html](https://m.yicai.com/news/101051478.html)
+间谍，外交官和士兵五年前开始经历神秘的脑部受伤，而现在累计超过130人。据报道，这一事件激怒了特朗普和拜登政府的官员，导致他们进一步调查。据报道，中央情报局已经成立了一个新的“目标小组”，以“与9/11恐怖袭击后打猎乌萨马·本·拉丹类似的严密性和强度”来调查这些事件。
 
-[https://timesofindia.indiatimes.com/blogs/ChanakyaCode/reports-on-the-origin-of-coronavirus-smoking-gun-proof-of-the-chinese-biological-weapon/](https://timesofindia.indiatimes.com/blogs/ChanakyaCode/reports-on-the-origin-of-coronavirus-smoking-gun-proof-of-the-chinese-biological-weapon/)
+**简评：**去年以来的中印边境双方士兵冲突后，也读到关于印度士兵遭受同类强烈微波袭击后遭受伤害的报道。由此可见，无论在前方战场，还是后方间谍活动中，微波辐射敌对方已成为中共和俄罗斯超限战战术中的一种管用攻击手段。
 
-[https://www.indiatoday.in/coronavirus-outbreak/story/coronavirus-intentionally-released-chinese-govt-misinformation-campaign-dr-le-meng-yan-1801107-2021-05-11](https://www.indiatoday.in/coronavirus-outbreak/story/coronavirus-intentionally-released-chinese-govt-misinformation-campaign-dr-le-meng-yan-1801107-2021-05-11)
+新闻来源：http://seekmacro.com/us-investigates-second-case-of-havana-syndrome-near-white-house-5072.html
 
-编辑/校对/发稿：人间世
+编译： Boxinglady
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13130410/5_May-1-1.jpg)
+本文只代表个人观点，不代表 Gnews 平台
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12160942/logo-3.jpeg)
-
-
-
-
+校对发布：紫橄榄
 
 0
