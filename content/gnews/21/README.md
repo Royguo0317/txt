@@ -1,28 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄罗斯外长：北极是“我们的土地，我们的水域“
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1250986/)
+## 【热点播报】中共媒体声称某前列腺药物能够治疗新冠
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1251107/)
 
-#### 撰稿：yyshere
-校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17092715/%E4%BF%84%E7%BD%97%E6%96%AF.jpg)图片来源：荔枝网
-据法新社17号消息，俄罗斯外长在北极理事会会议开幕前警告西方——北极是 “我们的土地，我们的水域”。
+作者：香草山Paul Li
 
-今年的北极理事会将于5月19号至20号在冰岛首都雷克雅未克举行，预期会议主题将涉及努力维持北极为和平和无冲突地区、理事会成员国以保障北极圈居民福祉为目的的在共同福祉相关事务的合作，以及应对持续的气候变化带来的危机和冲击。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12160942/logo-3.jpeg)
 
-俄罗斯在2021年到2023年期间担任北极理事会轮值主席国。
 
-作为未来三年的北极理事会轮值主席，俄罗斯在会议前派出外交部长作如此表态，给今年的理事会会议增加了不确定性。
 
-据悉，目前17号正在丹麦访问的美国国务卿布林肯的此次北欧行，除了将出席北极理事会会议，更深层的用意是要与北欧国家加强双边合作，共同应对来自中共国和俄罗斯在北极圈的积极扩张。
 
-此前，中共国官媒曾引述俄罗斯媒体的报道称，“多名参与俄罗斯“5-100”学术计划的专家表示，俄罗斯担任北极理事会主席国为中国带来新机遇，因为中俄在北极地区建立了伙伴关系。”报道还称，俄专家指出“北极大部分地区归属于俄罗斯，这是北极最发达的地方。那里能够发展基础设施，因此所有投入都能获得回报”。……“俄罗斯和中国在北极地区有着共同利益：“双方都致力于利用北极航线，建设基础设施方面的协作以及北极地区环保。”
 
-网络公开信息显示，北极理事会于1996年由美国、加拿大、瑞典、挪威、芬兰、丹麦、冰岛、俄罗斯等8个在北极圈拥有领土的国家成员。中国从2013年起成为了北极理事会正式观察员。
+近日，中共国媒体报道，墙内某生物科技公司——“开拓药业”，发现一款在研的前列腺药物可能对治疗新冠有效果。假如此事属实，我们有理由怀疑，这是不是中共早就掌握的治疗新冠病毒的解药？
 
-消息来源： 法新社 美联社 环球网 网络公开信息
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17101155/%E6%96%B0%E5%86%A0%E8%A7%A3%E8%8D%AF.png)
 
-（本文系作者个人观点）
+根据今年3月开拓药业披露的一项巴西临床试验结果，这款处于临床后期研究阶段的普克鲁胺（Proxalutamide）药物，能将重症新冠患者的死亡风险降低92%。郭文贵先生曾在直播中说，据中共内部情报，中共的疫苗不可靠，但是中共有新冠病毒的解药。倘若世界各国向中共施压，中共有可能交出解药。
+
+我们欣喜地看到，国际上追究病毒真相的呼声越来越高。印度因为自身卫生条件落后和中共针对性放毒，新冠病毒感染人数和死亡人数都居高不下。但是印度并没有屈服，5月12号，《印度时报》博客刊文，“关于中共病毒起源的报道，中共生物武器的铁证”，作者SD Pradhan曾任印度联合情报委员会主席。“今日印度”的Gaurav C. Sawant主播也采访了闫丽梦博士。不久前，巴西总统贾尔·博尔索纳罗（Jair Bolsonaro）对中共在新冠病毒问题上的处理提出严重质疑，他认为中共可能在实验室中开发了这种病原体，并将其作为“生物战”武器投放到全世界。
+
+正当越来越多的国家把矛头指向中共的时候，中共放出本文开头提到的这则新闻意味深长，说明中共有可能要公布新冠病毒的解药。正如文贵先生所说，中共即使承认有解药，也不会说自己一开始就有解药。否则就等于坐实了自己是策划并发动这场生物武器大战的元凶。所以中共会说自己无意中发现了新冠病毒的解药。这则新闻正是使用了这样的话术。但普克鲁胺是否是解药目前尚未可知。只要世界各国坚定地向中共要真相，中共被迫交出解药的那一天就越来越近了。
+
+参考阅读：
+
+[https://m.yicai.com/news/101051478.html](https://m.yicai.com/news/101051478.html)
+
+[https://timesofindia.indiatimes.com/blogs/ChanakyaCode/reports-on-the-origin-of-coronavirus-smoking-gun-proof-of-the-chinese-biological-weapon/](https://timesofindia.indiatimes.com/blogs/ChanakyaCode/reports-on-the-origin-of-coronavirus-smoking-gun-proof-of-the-chinese-biological-weapon/)
+
+[https://www.indiatoday.in/coronavirus-outbreak/story/coronavirus-intentionally-released-chinese-govt-misinformation-campaign-dr-le-meng-yan-1801107-2021-05-11](https://www.indiatoday.in/coronavirus-outbreak/story/coronavirus-intentionally-released-chinese-govt-misinformation-campaign-dr-le-meng-yan-1801107-2021-05-11)
+
+编辑/校对/发稿：人间世
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13130410/5_May-1-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12160942/logo-3.jpeg)
+
+
+
+
 
 0

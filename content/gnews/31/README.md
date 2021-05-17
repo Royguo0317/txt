@@ -1,58 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 涉嫌参与制造新冠病毒的中国军事科学家 当选为美国微生物学会院士
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1250543/)
+## 根据制造商的说法，新型病毒疫苗有效
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1250854/)
 
-- 作者：wenwu
+信息来源：德国镜报网络版
+发布时间：2021年5月17日
+翻译 /整理/ 简评： Shuizhuyu
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06041841/vaccine-scaled.jpg)
 
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+批准应在今年进行：赛诺菲（Sanofi）和葛兰素史克（GSK）制药公司生产的法英疫苗显然取得了可喜的结果。他可以在对抗突变的过程中发挥作用。
 
-**西班牙2021年5月17日电/西喜社——**
+制造商称，针对赛诺菲和葛兰素史克（GSK）冠状病毒的候选疫苗在II期研究中显示出良好的疗效。因此，该疫苗在所有年龄段均引发了强烈的免疫反应。对批准至关重要的III期研究计划在未来几周内开始。据制造商说，如果一切都按计划进行，那么今年就可以批准该疫苗。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17085218/image0-1-85.jpg)图片来源：twitter.com
+与欧盟先前批准的针对冠状病毒的疫苗不同，现在正在测试的产品是基于蛋白质的疫苗。它们的优点是不必将其低温存储并且可以大量生产。另外，它们被认为是可以针对新出现的病毒变种进行刷新的第三方疫苗。
 
-令全球疫情雪上加霜的是，2021年2月，姜世勃**当选为**美国微生物学会院士。
+简评：新的疫苗又出现了， 新的紧急批准又在路上。 这些医药公司， 这些病毒专家难道耳朵都聋吗？ 我们已经呼喊了一年多了， 病毒是武器， 这个病毒是中共病毒， 是生物武器。 中共手里有解药， 向中共追责吧。 那才是最有效， 危害最小，成本最小，见效最快的途径。
 
-姜世勃，现任中国上海复旦大学医学微生物研究所教授兼所长，毕业于中国人民解放军第一和第四医科大学，并获得理学硕士和医学博士学位。
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+发表： Shuizhuyu
 
-1987年至1990年间，他在纽约洛克菲勒大学接受了博士后培训，主要通过安东尼·福奇博士的国家过敏和传染病研究所（NIAID）提供的艾滋病毒/艾滋病（HIV/AIDS）资金。
+🔗 [corona-neuartiger-impfstoff-von-sanofi-und-glaxosmithkline-liefert-vielversprechende-ergebnisse](https://www.spiegel.de/wissenschaft/medizin/corona-neuartiger-impfstoff-von-sanofi-und-glaxosmithkline-liefert-vielversprechende-ergebnisse-a-9b03b8fd-01aa-46b6-8b1b-65a2ca75c7b3)
 
-此后近二十年，姜世勃在林德斯利·F.金博尔研究所的纽约血液中心工作过，或者还在工作。
 
-他与美国其他主要病毒研究实验室建立了广泛的合作研究网络，并获得了超过1700万美元的美国研究赠款，其中绝大多数来自福奇的NIAID。
 
-在他整个工作期间，姜世勃与解放军实验室保持了广泛的合作研究，**这里**详细描述了**这一点**，同时邀请中共科学家进入他的美国实验室，并培训与中共国军方有联系的科学家。
-
-2002年11月，在中国广东佛山爆发SARS大流行后，中共解放军和姜世勃在人类冠状病毒研究中发挥了巨大作用。 许多工作都集中在刺突蛋白的S1和S2片段的交界处，以及它如何被人类酶裂解，作为病毒进入人类细胞的引发物。
-
-这些研究最终会找到一个“铁证”，揭示了新冠病毒属于实验室起源。
-
-2005年，姜世勃在与军事科学院同事何玉贤，和来自中国北京军事医学科学院、北京微生物与流行病学研究所、病原体与生物安全国家重点实验室的周育森**表示**，没有观察到第一种SARS病毒的S1和S2成分之间的裂解。
-
-到2007年，由姜世勃领导的同一批军事调查人员**得出结论**。事实上，裂解确实发生在第一种SARS病毒中，而且它与传染性有关。 然后，在2013年，出现了确凿的证据。
-
-尽管姜世勃和中共南方医科大学党委常委刘叔文，展示了一种类似于新冠病毒的弗林酶切位点，尽管论文标题为《同时用于抗体筛选的显示和分泌抗体的表达》**（**“**Simultaneous Expression of Displayed and Secreted Antibodies for Antibody Screen），**人工插入了一个类似于新冠病毒弗林 酶切位点。[https://baike.baidu.com/item/%20%E5%88%98%E5%8F%94%E6%96%87](https://baike.baidu.com/item/%20%E5%88%98%E5%8F%94%E6%96%87) 刘叔文
-论文标题网址：[https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3823846/](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3823846/)
-这项研究由中共国政府和一家中共国私营生物技术公司直接资助，而**姜世勃也得到了福奇的NIAID资助。** **在新冠病毒中发现的弗林酶切位点，没有确定的自然进化途径，它必须人为插入。**
-
-姜世勃并不是唯一一位入选美国微生物学会的中共科学家，其中入选的一些人与中共国军方有广泛联系，或涉嫌参与新冠病毒的制造，特别是武汉病毒研究所的“蝙蝠女士”石正丽。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17080705/American-Academy-of-Microbiology-1.jpg)
-
-**（待续）**
-
-**简评：**** **
-
-**姜世勃作为主要的中共****“****千（万）人计划项目****”****的参与者，该项目属于中共军方对美国的渗透和知识产权窃取。然而美国的福奇博士****NIAID****资助了姜世勃，并且包括了这次发现新冠病毒的弗林酶切位点的实验室研究。**
-
-**该报道的重磅在于，弗林酶切位点确定了姜世勃在研究“功能增强实验”，让蝙蝠冠状病毒可以传染到人类。所以这将会证实在武汉的四级武毒所将会是这次病毒大流行的来源，如闫丽梦博士所提到的。中国人了解中共对人类的敌意和控制欲，愚蠢的中共正处于疯狂，是有理由故意释放该人造病毒！愿所有战友平安。**
-
-素材：文舞；审核： Jenny Ball；校对：阿伯塔；发稿：信心的选择
-
-**新闻来源：**[www.thegatewaypundit.com](https://www.thegatewaypundit.com/2021/05/chinese-military-scientist-suspected-involvement-covid-19-creation-elected-american-academy-microbiology/)；[twitter.com](https://twitter.com/john16489988/status/1393670025509228548?s=21)
-
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
-
-+2
+0
