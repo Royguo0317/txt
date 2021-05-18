@@ -1,69 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】铜墙铁壁-逻辑人生-
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1252004/)
+## 【新闻速递】实验室归党领导 病毒当然也归党领导
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252146/)
 
-作者：纽约香草山健身部澄道
+娜塔莉2021年5月17日在《国家脉动》发表文章，题为：
+
+福奇的武汉实验室朋友举行了“不妥协”共产主义学习会议。
+
+武汉病毒学研究所删除了几篇文章，揭示了它与中国共产党的深厚渊源，其中展示了武毒所为促进“党性”方面的努力，获得党政权的奖励，网站还展示承诺在共产党学习会期间“不妥协”地实现党的目标。
+
+实验室的“党建与科学文化”页面还揭示了“统一战线小组”的存在，美中安全与经济评论委员会评估给出，统一战线小组的工作内容和目的是：“影响外国政府和其他行为者，让他们支持北京的政策立场。”
+
+该实验室还在有关传染病的专题讨论会上接待了联合阵线官员。
+
+一份新闻稿显示，在正由安东尼·富奇博士（Anthony Fauci）的国家过敏和传染病研究所（NIAID）资助的几项研究中列出的武汉研究人员石正丽，获得了中国共产党的奖励和赠款。
+
+现在已删除的2013年的帖子显示，该实验室设有“管理党支部”，该支部获得了湖北省机构党工作委员会的“先进基层党组织”奖。另外一篇被删除的文章鼓励研究人员“充分意识到党员诚信的重要性”，并“勤勉地履行职务职责和中共党员诚信责任。”
+
+这个实验室的中文站点包含数十篇文章，重点介绍了实验室中发生的“党建”活动。实验室经常举办有关习近平意识形态的研究会议，并指出研究人员必须“不妥协地实现党的部署”
+
+简评：
+
+在原始链接的文章里， 展示了大量的文件，照片， 显示武汉病毒实验室的日常党建活动。这在中共国是常态，任何一家国有企业和比较上规模的私人企业，都一定存在这样的组织，这样的组织活动。
+
+这个生态正如文贵先生所说的，一个党集中了所有的资源，所有的财富，来分配给这个体制内的党员，包括他们的家属。不难看出， 武汉病毒所的精英专家们，为了生存和事业发展，被绑架必须加入组织，并最终成为服从这个组织，甚至维护这个组织的一员，这就是黑帮生态系统， 这就是黑帮体制，这就是犯罪集团体制。
+
+参考链接：
 
 
 
-![This image has an empty alt attribute; its file name is logo-3-1.jpeg](https://lh3.googleusercontent.com/SaJZPk42URxKvcjI6mk27LyJOSTG5WG1qB_b9WORHg0nqpIm4eqKXjsuG-6kICF6NA1RqkboH0_lkTlDaZ4SKyuROq4EUNCFdszSht4o80nJBAhv8CRUKOfOitWovEn6vG7pDC9H)
+> [EXC: Fauci’s Wuhan Lab Friends Held ‘No Compromise’ Communist Study Sessions.](https://thenationalpulse.com/exclusive/wuhan-lab-scrubs-ccp-awards-ties/)
 
 
 
-铜墙红墙防火墙
+图片来源：[https://thenationalpulse.com/](https://thenationalpulse.com/)
 
-墙强墙深墙久远
+整理撰稿：蓝精灵
 
-墙国人生
+校对发布：Penny
 
-金山银山打江山
-
-山绿山靑山峰绵
-
-山雾服民
-
-人民是我们的
-
-铜墙铁壁
-
-仅仅是哈马斯吗？
-
-我们是人民的
-
-铜墙铁壁
-
-威武的以色列楷模先
-
-＂不需要你出来上街！＂
-
-这是文贵先生在替我们档子弹
-
-救命铜墙
-
-＂灭共就加入新中国联邦！＂
-
-这是七哥不忍你我被＂红魔＂带走
-
-正道铁壁
-
-@爱动爱议码0517
-
-@澄道来了
-
-校对/发稿：火内
-![This image has an empty alt attribute; its file name is 5%E6%9C%88.jpg](https://lh3.googleusercontent.com/W9WhsN7GGqPy3vb1cHr0KH8qDlnnatKwkn-UmQCewlT7vEXGBCXApqJUKWgdDyph7vqyzAbYjoMYQz99FVMNO6PpNhbyw_vfIFjxkak-mwXhdkQXqQv46-Vf7s0BX2mLf_bKM6Pl)
-更多资讯，更多关注
-
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[纽约香草山农场GTV -MOS TALK](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)香草山访谈
-
-[纽约香草山农场Twitter](https://twitter.com/HIMALAYA_MOS)(中文)
-
-[纽约香草山农场Twitter(英文)](https://twitter.com/MosHimalaya)
-
-[纽约香草山农场YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

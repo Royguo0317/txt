@@ -1,24 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登宣称：“没有接种疫苗的人将为此付出代价！”
-` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1251948/)
+## 【一线新闻】疫情后餐厅新现象——街景一窥
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1252005/)
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17185100/%E6%8B%9C%E7%99%BB1.jpg)图片来源：worldjournal
+前方记者：纽约香草山记者站 Kathy（文艺）
+记录/校对：纽约香草山记者站 熊井（文兰）
 
 
-据加拿大独立媒体ThePostMillennial于5月17日撰文报道：周一，美国总统乔.拜登（Joe Biden）向公众发表了有关疫苗问题的讲话，其中似乎包含了隐蔽的威胁，即未接种疫苗的人将为此付出莫名的“代价”。
 
-拜登在其演讲中说：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-“如果人们接种了疫苗，那么他们将保护自己和周围其他未接种疫苗的人。反之，则接种率较低的州可能会导致（中共病毒）COVID-19感染率上升这种逆转情况的出现。只有那些没有接种疫苗的人最终会付出其代价。而接种疫苗的人将继续受到保护，并免受严重疾病的侵害。”
 
-（假设拜登在这里指的是由COVID引起的并发症而导致的严重疾病，因为疫苗显然不能抵抗任何其他严重疾病。）
 
-为此，拜登继续解释道：“疾病预防控制中心上周宣布，如果你已完全接种疫苗，则不再需要戴口罩。科学表明，接种疫苗和戴口罩一样都可以保护到你，甚至比后者保护得更好。”
+周末出门逛街，所见所闻，让人深思……
 
-[原文链接](https://thepostmillennial.com/watch-joe-biden-says-those-who-are-not-vaccinated-will-end-up-paying-the-price)
+路过亚特兰大的一家美式餐厅，餐厅外面建了一间挨着一间的玻璃小屋，吸引着来往的路人。玻璃屋内装饰着粉色的鲜花，非常温馨。屋内摆放着一张供两人就餐的餐桌，我经过时正有一对夫妇在小屋内就餐。
 
-本文只代表原媒体信息和其作者观点。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17184012/69-7.jpg)
+
+这一年多的疫情期给餐饮业带来了很大的影响。尤其疫情初期，政府不让营业，消费者亦不敢出门吃饭，这导致部分企业资金流断裂。再加上每天的房租、工资、税收带来的压力，小型抗压能力差的餐馆纷纷关闭——这无异是一场灭顶之灾。剩余一些餐馆只经营外卖服务，维持着基本的运营。随着疫情的发展，餐饮业也在逐渐恢复中，各种针对疫情的保护措施也应运而生：餐桌之间保持距离，用透明的板子隔离，在室外建起了简易的小屋……
+
+中共向世界投放病毒，把世界经济搞弱，企图通过发展疫苗经济壮大自己的产业链。闫丽梦博士反复告诉全世界人民病毒来源的真相，亦警告“留给人类的时间不多了”。GTV也持续不断地报道并揭露中共制造病毒并传播病毒的证据，唤醒世界人民认清CCP的邪恶，并将中共与中国人划分开来。
+
+只有消灭CCP，疫情才能彻底解决，我们新中国联邦人肩负使命，传播真相是我们责任！
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0

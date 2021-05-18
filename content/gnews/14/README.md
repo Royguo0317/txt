@@ -1,39 +1,103 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇用美国资金帮助中共军方的生物战病毒研究
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1251903/)
+## 【香草诗词汇】锅言灶语（八） -有话说之＂画＂外音-
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1252079/)
 
-#### 编译：花岗岩 | 校对：文旺
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17173828/Capture-22.jpg)图片来源：Daily Mail
-作为国家安全公民委员会成员的劳伦斯·塞林（Lawrence Sellin）博士，在美国调查中共病毒起源方面担任着重要角色。近期，他在推特上频频发推，揭露COVID-19病毒起源于中共的病毒实验室。他是美军退役上校，曾是阿富汗和伊拉克的老兵，前美军特种作战司令部参谋长，阿斯利康（AstraZeneca）疫苗公司全球运行总监，美国国立卫生研究院（NIH）拨款管理人，病毒顾问专家，和美国军情专家。
-
-塞林博士5月12日在《网关专家》（Gateway Pundit）上发文，继续揭露福奇博士对中共军方用于生物战的病毒研究提供了资助。塞林博士将爆料革命战友安娜（Anna）列为这篇文章的共同作者，充分肯定了新中国联邦和爆料革命在挖掘中共病毒实验室起源证据战斗中的重要地位。
-
-塞林博士曾在4月1日的文章中指出，COVID-19是中共的一次生物袭击。他更早在2020年9月15日就推送了闫丽梦博士的报告，并认为有明确证据表明COVID-19是由中共国军方制造的。他还在5月11日报道说，中共军方已渗透了美国的病毒研究机构（请参看GNEWS的相关译文）。
-
-塞林博士这次在文章中爆出的是德克萨斯大学医学分校（UTMB）的病理学副教授龚斌。UTMB位于德州加尔维斯敦，是美国主要的病毒研究所之一，NIH（尤其是福奇博士领导的美国过敏和传染病研究所，NIAID）为其提供了大量资金。UTMB也是美国国防部资助的生物防御和新发传染病研究中心，并且是为数不多的用于对世界上最危险的病毒进行遏制和研究的4级生物安全设施之一。
-
-文章指出，龚斌在上海中共第二军医大学获得医学博士学位。1988年，他以中共第二军医大学的身份在中共军事情报杂志《药学情报管理》上发表论文。从他2019年至2020年发表科学论文的记录看，龚斌其实从未真正离开过解放军第二军医大学，并且他可能利用UTMB作为中国人民解放军科学家的培训设施，而且是由美国的纳税人为其买单。
-
-龚斌在UTMB接受了培训，并且正在与同隶属于中共国上海长海医院的科学家进行合作。中国共产党和解放军科学家经常掩饰他们真正的隶属关系。只需读读龚斌的较早出版物，即可了解到，上海长海医院是第二军医大学的一部分，也被称为第二军医大学第一附属医院。
-
-塞林博士称，这只是关于UTMB与中共解放军病毒研究计划之间有明显联系的冰山一角。在5月11日的文章里，塞林博士指出，UTMB另一位教授史佩勇与中共解放军有着更广泛的联系。史佩勇不仅与中共军事兽医研究所的科学家有联系，而且还被聘为武汉病毒研究所的名誉教授。塞林认为，史佩勇在武汉病毒学研究所的活动不仅仅是荣誉，他似乎与解放军的多位科学家和武汉病毒学研究所开展了积极的合作。
-
-塞林博士的文章指出，福奇博士领导的NIAID自2004年以来,向史佩勇提供了超过500万美元的研究资助,自2016年以来，向龚斌提供了270万美元的研究资助。
-
-重磅信息持续发酵中，塞林博士在文章里转述了中共病毒侦探@ZionaEmanuel刚刚发掘的信息：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17173851/Capture1-1.jpg)
-该条信息似乎表明，UTMB和中共解放军在另一项Zika病毒“功能增强”实验上有合作关系，这项研究显然也是由NIH和美国疾病预防控制中心（CDC）资助的，其结果产生的专利似乎也分配给了中共解放军，参与研究的科学家秦成峰故意隐藏了自己的解放军背景。
-
-* * *
-
-评：中共通过蓝金黄已经成功收买了美国医药界的关键人物，如国家过敏和传染病研究所的福奇，EcoHealth Alliance 的打杂客（Peter Dazak），北卡罗来纳大学的拉夫·巴瑞克(Ralph Baric）等，这些人不仅为中共的超限生物武器计划提供资金，知识和技术，而且还帮助中共掩盖中共病毒的真正实验室起源。他们是邪恶中共谋杀世界人民的帮凶！新中国联邦爆料革命唤醒了无数像塞林博士这样的美国爱国者，他与我们无数默默无闻的中共病毒侦探一道，组成了一支强有力的侦查部队，将中共病毒实验室来源的完整证据链展现给世人。在大量的证据面前，福奇不得不和中共撇清关系，狡辩自己从来没有资助中共实验室进行功能性增强的实验，从而间接承认中共在做病毒功能增强实验！而传授中共进行功能性增强技术的巴瑞克，也跳下中共的贼船，在最近有18名著名科学家发起的对中共病毒起源进行彻底调查的倡议书上签了字。正像塞林博士的推文所说，中国人民和美国人民在一起，可以打败中国共产党！
+作者：纽约香草山健身部澄道
 
 
 
-参考原文：[EXCLUSIVE: More Evidence Dr. Fauci Is Funding China’s People’s Liberation Army In Virus Research Used In Biological Warfare (Breaking Update Added)](https://www.thegatewaypundit.com/2021/05/exclusive-evidence-dr-fauci-funding-chinas-peoples-liberation-army-virus-research-used-biological-warfare/)
+![This image has an empty alt attribute; its file name is logo-3-1.jpeg](https://lh5.googleusercontent.com/U9c9w5ADOG4YiBse2n5RwvE7zUFnaAS1TvUmz8yKnaJder5z766VHCTuFaUxsVltSJHK6-NDxqM7mVsrKJpaxs1ITBnGa6uyI4jTaYwrjibNSl1FDvwKVtXfFi4d_g2Emd2Ut2dv)
 
 
+
+小馆公告
+
+情势所逼
+
+无有堂食多寂寞
+
+唯有更名再续张
+
+＂泰何为＂-中文
+
+＂take away ＂-英文
+
+免强维持的后厨
+
+锅子
+
+灶子
+
+还都在
+
+只是言出必高谈
+
+语开更扩论
+
+生无生
+
+死无死
+
+生无带来一口气
+
+枉与暇满殊胜生
+
+死无带走一丝麈
+
+圣趣门中不老身
+
+＂是小馆（有话说）论坛吗？＂
+
+＂是在做＂画＂吗！
+
+＂整点大众口味的行不行吗？ ＂
+
+＂一个个地！ ＂
+
+快言快语的
+
+快进快出的
+
+镇店名服
+
+＂萃花＂来了
+
+＂还有就是坛我也是喜欢的呀！
+
+比如我们老家的咸菜＂坛… ＂
+
+萃花进后厨（论坛）
+
+真的是来＂踢馆子＂的吗！ ？
+
+＂萃花上酸菜….＂
+
+一个绕梁的声音
+
+从后厨传来
+
+听声音判断
+
+是厨二
+
+@澄道来了
+
+@爱动爱议码0517
+
+校对/发稿：火内
+![This image has an empty alt attribute; its file name is 5%E6%9C%88.jpg](https://lh5.googleusercontent.com/ljD5wFPMGbuU6Ym0syBFu4SwYaDVzq_IYCPYrAivB9gMIGPS81-SplcHDaQUUKK2aHQYNRzCT0iejd4kMnDtns29bpFNL-fb7SmHUGiLOEqWYsf56TgEBsqMhVHmeDEx5mQQ4ne4)
+更多资讯，更多关注
+
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[纽约香草山农场GTV-MOS TALK](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)香草山访谈
+
+[纽约香草山农场Twitter](https://twitter.com/HIMALAYA_MOS)(中文)
+
+[纽约香草山农场Twitter(英文)](https://twitter.com/MosHimalaya)
+
+[纽约香草山农场YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

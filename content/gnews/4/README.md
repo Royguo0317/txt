@@ -1,68 +1,153 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家：用9个“无可争议”的事实，纳瓦罗（Navarro）将福奇Fauci与Covid-19起源联系起来
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1252144/)
+## 【战友心声】玩瓷-西洋瓷器小酌(二)
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1251927/)
 
-- 作者： Jenny Ball
+作者：纽约香草山农场设计部 天马星空J
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
 
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-**西班牙2021年5月17日电/西喜社——**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17191541/image0-1-90.jpg)网站新闻截图
 
-考虑到了解病毒的起源的重要性，而在国会听证会上，福奇在兰德·保罗（Rand Paul）的严厉审讯下还在说谎–那么，对此值得审视基于九个无可争辩的事实。在某些情况下，甚至可以直接从美国国立卫生研究院（NIH）网站获得有关福奇在病毒创建中的作用的证据。
+书接上文，下面继续介绍一下我收藏的部分西洋骨瓷，让大家共同来鉴赏。
 
-第一：福奇利用NIH的赠款来资助武汉病毒学实验室。
+**英国 亚当（Adam）**
 
-第二，这些美国纳税人的钱通过彼得·达扎克（Peter Daszak）和总部位于纽约的“生态健康联盟。”（EcoHealth Alliance）汇入了武汉实验室。
+Adams是创立于1657年的陶艺世家，早期经营者William Adams是Wedgwood创始人Josiah Wedgwood最喜欢的学生，两个品牌都诞生于英国著名的陶瓷重镇Stoke-on-Trent地区。这个品牌制作东方风格陶瓷器皿的历史相当悠久，也制作类似
 
-在国家过敏和传染病研究所（NIAID）的近370万美元资助下
-–“了解蝙蝠冠状病毒出现的风险”
-–已经发表了30篇研究。
-这些研究中有一半以上作者来自中共科学组织，其中13个作者来自武汉病毒学研究所。更重要的是，研究所本身将赠款分配给了生态健康联盟总裁彼得·达扎克和武汉病毒研究所新兴传染病中心主任石正丽。
+Wedgwood风格的Jasperware。家族经营十几代之后，1966年被wedgwood收购，1992年之后停产，工厂也被烧毁，整套早期产品非常难得。
 
-例如，一项关于“新型蝙蝠冠状病毒的分离与鉴定”的研究指出：“美国国立卫生研究院（NIH）以项目编号NIAID R01AI110964向彼得·达扎克和石正丽提供了资金。” 在另外7种情况下，NIH将美国纳税人的美元，描述为资助石正丽正在进行的研究。
 
-还有呢－
 
-第三，福奇与美国国立卫生研究院所长弗朗西斯·柯林斯（Francis Collins）于2017年12月背着川普白宫，推翻了2014年奥巴马政府的一项决定，即禁止使用“功能获得”工具来增加病毒的杀伤力–澳大利亚记者 沙里·马克森（Sharri Markson）透露，福奇使用“低级别”白宫会议规避了禁令。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17183455/%E6%88%AA%E5%B1%8F2021-05-17-%E4%B8%8B%E5%8D%886.34.27.png)
 
-第四，在大流行爆发之前，彼得·达扎克在电视采访中吹嘘说，利用武汉实验室的功能增益使病毒更加致命是多么简单。
 
-第五，奥巴马国家安全委员会建议禁止进行功能研究，因为武器化病毒即使从最安全的实验室也有可能逃脱，因此存在很高的风险。
 
-第六，致命的病原体通常是从最高安全实验室逃脱的，其中包括一种从北京病毒学研究所逃脱，并引发了第一次SARS的病毒；
 
-第七，美国国务院在2018年警告，武汉实验室缺乏安全协议，以及武汉人的懈怠可能引发第二次SARS爆发。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17183645/%E6%88%AA%E5%B1%8F2021-05-17-%E4%B8%8B%E5%8D%886.34.36.png)
 
-第八，福奇的NIH帮助资助了北卡罗来纳大学的拉尔夫·巴里克（Ralph Barric），他利用功能性技术与中共国臭名昭著的“蝙蝠女”武汉实验室的病毒学家石正丽进行合作。
 
-第九，许多专家现在都同意SARS-COV-2最有可能起源于武汉实验室。
-这些专家包括疾病控制中心主任罗伯特·雷德菲尔德（Robert Redfield）博士，美国有线电视新闻网（CNN）的桑杰·古普塔（Sanjay Gupta）和尼古拉斯·韦德（Nicholas Wade），他们的权威文章明确支持实验室起源的理论。
 
-这就是结案证据。
 
-只是主流媒体中的许多人还不这么认为。
+Adam “Lancaster ”铁矿石瓷器
 
-“中端”媒体（Mediaite）断言我犯了一个“错误的暗示”，即福奇“通过资助武汉病毒学研究所的研究来帮助制造冠状病毒。” 雅虎新闻在援引（向中共）妥协的世卫组织的同时，指出上述理论是“最没有说服力的”。
+**英国 R&D（Redfern and Drakeford）**
 
-福奇必须立即辞职，并向美国人民和世界道歉，他判断错误的原因很可能导致当前的大流行，这场大流行已经杀死了数百万人，毁掉了数千万个工作，并给美国和世界经济造成了数万亿美元的损失。而且 中国共产党应该同样做出这些道歉。
+英式过百年瓷器，成立于1892年，首先兴建Chatfield工场，后于1902搬到Balmoral厂房。Redfern and Drakeford 的作品已越来越少，因为产量有限。1933年，企业结业了，现在流传下来的以Balmoral厂房在1902年后出产的为主。
 
-福奇同样必须就对参议员兰德·保罗的尖锐质疑下向美国公众撒谎道歉。 5月11日，福奇一再坚决否认他和他的NIH资助或支持了武汉实验室开展功能增强活动。 然而，就像他说的“口罩没有用”一样，这只是福奇喜欢在权宜之计时告诉美国人民的另一类谎言小把戏。
+R&D虽不及其他牌子如Wedgwood有名，但也曾在1922,1929年英国工业展代表英本土工业出展。
 
-但在这种情况下，由于福奇的NIH资金并没有直接拨给武汉实验室，而是直接拨给了达扎克和巴里克这样的中间人，因此福奇希望我们相信他的双手是干净的。 然而，福奇很可能知道达扎克在武汉进行的研究，而巴里克则与武汉实验室的“蝙蝠女”密切合作- 如果他还没有辞职，那将是增加他辞职的更多的理由。
 
-我第一次见到托尼·福奇是在白宫情况（汇报）室，当时我代表川普总统为中共国旅行禁令辩护，而福奇则极力反对我。 那时我是对的，并帮助挽救了成千上万的美国人的生命。。 我现在还是对的！
 
-**评论：文贵先生很早就说过，我们要以毒灭共！纳瓦罗博士列出的福奇9宗罪状，都剑指中共实验室是制造并释放病毒真凶的真相，福奇想要逃脱世界的审判，只有认罪并及早彻底地揭发中共的一切罪恶，共产党病毒毒害了全世界，更是不作不死地把他自己推上了断头台！**
 
-素材：Jenny Ball；审核：the world；校对：阿伯塔；发稿：信心的选择
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17182606/Brand-Palette-Style-Social-Media-Post.jpg)
 
-素材来源：[www.thenationalpulse.com](https://thenationalpulse.com/analysis/exc-navarros-9-indisputable-facts-linking-fauci-to-covid-19-origin/)|娜塔莉·温特斯（Natalie Winters）为链接文做出了贡献
 
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
 
-+1
+
+**英国 ****米金****（J&G Meakin****）**
+
+英国近二百年的陶瓷企业J&G米金公司（J & G Meakin Ltd）成立于1851 年，原厂主因病去世，他的两个儿子詹姆斯（J）和乔治（G）接管了这家公司，就叫J&G公司了。两兄弟很快实现了出口市场的潜力和业务的快速增长。
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17184154/%E6%88%AA%E5%B1%8F2021-05-17-%E4%B8%8B%E5%8D%886.35.38.png)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17183747/5-36.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17184131/%E6%88%AA%E5%B1%8F2021-05-17-%E4%B8%8B%E5%8D%886.35.47.png)
+
+
+
+浪漫的英格兰  J＆G Meakin |
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17184443/%E6%88%AA%E5%B1%8F2021-05-17-%E4%B8%8B%E5%8D%886.43.49.png)
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17185153/%E6%88%AA%E5%B1%8F2021-05-17-%E4%B8%8B%E5%8D%886.45.22-1.png)
+
+
+
+蓝色多瑙河日本蓝洋葱系列
+
+Blue Danube Blue Onion Oval Serving Platter Japan
+
+
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17185059/%E6%88%AA%E5%B1%8F2021-05-17-%E4%B8%8B%E5%8D%886.46.00.png)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17185136/%E6%88%AA%E5%B1%8F2021-05-17-%E4%B8%8B%E5%8D%886.45.40.png)
+
+
+
+
+
+蓝色多瑙河日本蓝洋葱椭圆形拼盘
+
+**英国 ****约翰逊兄弟（****Johnson Brothers****）**
+
+Johnson Brothers是英国的餐具制造商和出口商，因其早期推出“半瓷”餐具而闻名。从1890年代到1960年代，它是斯塔福德郡最成功的陶器之一，生产的餐具大部分出口到美国。
+
+
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17185040/%E6%88%AA%E5%B1%8F2021-05-17-%E4%B8%8B%E5%8D%886.46.09.png)
+
+
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17185000/%E6%88%AA%E5%B1%8F2021-05-17-%E4%B8%8B%E5%8D%886.46.28.png)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Johnson Brothers Provincial Set
+
+约翰逊兄弟“乡下人”系列
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17184946/%E6%88%AA%E5%B1%8F2021-05-17-%E4%B8%8B%E5%8D%886.46.37.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17184926/%E6%88%AA%E5%B1%8F2021-05-17-%E4%B8%8B%E5%8D%886.46.45.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17184908/%E6%88%AA%E5%B1%8F2021-05-17-%E4%B8%8B%E5%8D%886.46.55.png)
+约翰逊兄弟“印第安树”系列
+
+我最初爱上古董骨瓷茶杯碟时，完全是被这些杯碟的独特外形及魅力所迷惑，精神亢奋，达到了痴迷，经常开车去老外家收集，有时开车8、9个小时也不嫌累，那份执着现在都不敢想。每套收集的瓷器，都会有一个有趣的故事。古董瓷器那种无以言表的味道，是现代品所望尘莫及的，即使现代瓷器品牌新推出、动辄上千元的杯碟也难以媲美。以上都是我收集和拍摄的西洋古瓷杯碟，每个牌子都有其特别的外形和代表的图案。严格来说，超过100年以上的我们才称为Antique,以下的均称为vintage,虽然这两个字很多时候翻成中文都是“古董”。
+
+值此新中国联邦周年庆典之际，与各位战友一起分享我的一点小收藏，共勉！
+
+编辑/发稿：369文驹
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

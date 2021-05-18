@@ -1,103 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】锅言灶语（八） -有话说之＂画＂外音-
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1252079/)
+## 拜登宣称：“没有接种疫苗的人将为此付出代价！”
+` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1251948/)
 
-作者：纽约香草山健身部澄道
-
-
-
-![This image has an empty alt attribute; its file name is logo-3-1.jpeg](https://lh5.googleusercontent.com/U9c9w5ADOG4YiBse2n5RwvE7zUFnaAS1TvUmz8yKnaJder5z766VHCTuFaUxsVltSJHK6-NDxqM7mVsrKJpaxs1ITBnGa6uyI4jTaYwrjibNSl1FDvwKVtXfFi4d_g2Emd2Ut2dv)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17185100/%E6%8B%9C%E7%99%BB1.jpg)图片来源：worldjournal
 
 
+据加拿大独立媒体ThePostMillennial于5月17日撰文报道：周一，美国总统乔.拜登（Joe Biden）向公众发表了有关疫苗问题的讲话，其中似乎包含了隐蔽的威胁，即未接种疫苗的人将为此付出莫名的“代价”。
 
-小馆公告
+拜登在其演讲中说：
 
-情势所逼
+“如果人们接种了疫苗，那么他们将保护自己和周围其他未接种疫苗的人。反之，则接种率较低的州可能会导致（中共病毒）COVID-19感染率上升这种逆转情况的出现。只有那些没有接种疫苗的人最终会付出其代价。而接种疫苗的人将继续受到保护，并免受严重疾病的侵害。”
 
-无有堂食多寂寞
+（假设拜登在这里指的是由COVID引起的并发症而导致的严重疾病，因为疫苗显然不能抵抗任何其他严重疾病。）
 
-唯有更名再续张
+为此，拜登继续解释道：“疾病预防控制中心上周宣布，如果你已完全接种疫苗，则不再需要戴口罩。科学表明，接种疫苗和戴口罩一样都可以保护到你，甚至比后者保护得更好。”
 
-＂泰何为＂-中文
+[原文链接](https://thepostmillennial.com/watch-joe-biden-says-those-who-are-not-vaccinated-will-end-up-paying-the-price)
 
-＂take away ＂-英文
-
-免强维持的后厨
-
-锅子
-
-灶子
-
-还都在
-
-只是言出必高谈
-
-语开更扩论
-
-生无生
-
-死无死
-
-生无带来一口气
-
-枉与暇满殊胜生
-
-死无带走一丝麈
-
-圣趣门中不老身
-
-＂是小馆（有话说）论坛吗？＂
-
-＂是在做＂画＂吗！
-
-＂整点大众口味的行不行吗？ ＂
-
-＂一个个地！ ＂
-
-快言快语的
-
-快进快出的
-
-镇店名服
-
-＂萃花＂来了
-
-＂还有就是坛我也是喜欢的呀！
-
-比如我们老家的咸菜＂坛… ＂
-
-萃花进后厨（论坛）
-
-真的是来＂踢馆子＂的吗！ ？
-
-＂萃花上酸菜….＂
-
-一个绕梁的声音
-
-从后厨传来
-
-听声音判断
-
-是厨二
-
-@澄道来了
-
-@爱动爱议码0517
-
-校对/发稿：火内
-![This image has an empty alt attribute; its file name is 5%E6%9C%88.jpg](https://lh5.googleusercontent.com/ljD5wFPMGbuU6Ym0syBFu4SwYaDVzq_IYCPYrAivB9gMIGPS81-SplcHDaQUUKK2aHQYNRzCT0iejd4kMnDtns29bpFNL-fb7SmHUGiLOEqWYsf56TgEBsqMhVHmeDEx5mQQ4ne4)
-更多资讯，更多关注
-
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[纽约香草山农场GTV-MOS TALK](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)香草山访谈
-
-[纽约香草山农场Twitter](https://twitter.com/HIMALAYA_MOS)(中文)
-
-[纽约香草山农场Twitter(英文)](https://twitter.com/MosHimalaya)
-
-[纽约香草山农场YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+本文只代表原媒体信息和其作者观点。
 
 0
