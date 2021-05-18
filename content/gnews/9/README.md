@@ -1,44 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【锐语】万亿巨头重磅宣布 要回来A股骗钱了
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252789/)
+## 【有声读物】习近平“偶遇”游园群众，以假治国再添例证
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1252867/)
 
-中国基金报2021/05/18报道：中国移动拟申请A股上市
+配音：香草山录音组 蒙古鸿雁
 
-5月17日晚间，中国移动香港上市公司发布公告称，公司拟申请A股发行上市。据披露，中国移动拟公开发行人民币股份数量不超过 9.65亿股（行使超额配售选择权之前）。
-
-中国移动在公告中称，通过本次回归A股，将助力其打造功能互补、良性互动、资源共享、融通发展的新型合作机制，加速数智化纵深布局，繁荣数智化合作生态，与股东、客户、产业共享数字红利。
-
-为什么在A股上市，中移动给了三点理由
-
-1、紧抓拓展信息服务的机遇窗口期，推动创世界一流「力量大厦」战略落地
-
-2、藉助资本市场优质资源，构建开放合作新生态
-
-3、助力推进机制改革，激发高质量发展新动能
-
-截至17日收盘，中国移动在港股的市值有近一万亿！
-
-简评：
-
-为什么在A股上市，有三点理由：
-
-1. 被美国股市开除了
-2. 要来国内骗钱了
-3. 丧事喜办了
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-参考链接：
 
-[http://stock.caijing.com.cn/20210518/4765754.shtml](http://stock.caijing.com.cn/20210518/4765754.shtml)
 
-新闻采编：Peter Wong
 
-整理撰稿：蓝精灵
 
-校对发布：Penny
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+近日，网上流传着一段习近平周三（12日）视察河南南阳，在南阳月季博览园中“偶遇”一批“群众”，被热烈欢迎的视频。
+
+视频中，习近平问群众：“你们怎么知道我来了？”
+
+群众说：“看到你了。”接着有人说：“游园的时候。”
+
+习近平说：“你们是诸葛亮啊？天文地理都知道啊。”
+
+群众：“哈哈哈！”
+
+
+
+**文字版原文：[【墙内热搜】习近平“偶遇”游园群众，以假治国再添例证](https://gnews.org/zh-hans/1252570/)**
+
+作者：纽约香草山媒体部 天下大同
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

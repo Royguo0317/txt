@@ -1,39 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共对哈马斯无人机的吹捧说明什么
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1252376/)
+## 5月17日美国政要和政评家反共推文精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1252419/)
 
-撰稿：喜妈
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17205327/20210518_t1.jpg)图片来自网络截图
-最近，以色列与哈马斯之间的冲突引起世界关注。中共国的报道侧重于哈马斯的武器装备足以与以色列抗衡；同时指出美国支持的以色列形成对平民的伤害等。笔者认为，中共的相关报道隐藏着它的巨大世界布局和邪恶用心。具体分析如下：
+参议员乔什·霍利： 这真是一个令人震惊的报道，一家据称是美国的公司出卖美国工人，背叛了美国理想，并有效地促进了中国的奴隶制经济。 【附纽约时报报道：审查，监视和利益：苹果公司在中共国艰难的讨价还价】
 
-第一，为什么墙内的媒体不断报道或者重点突出哈马斯的无人机？推特上有消息指出，哈马斯的无人机来自中共国。哈马斯在社交网站上展示这些武器装备。中共的《参考消息》报道引自西班牙文章称，哈马斯的无人机与“盟友伊朗和黎巴嫩真主党所使用的无人机非常相似”。笔者认为，国际社会都知道，中共和伊朗等国的桌子下交易是非常频繁的。同时，中共通过伊朗，与周边的极端主义组织都有密切的交流与合作。从这里，有理由相信，哈马斯的无人机所形成的所谓与过去发射火箭弹的对抗，形成“截然不同的挑战”；如今的无人机方式可以在“地面遥控操纵”，“低空”“隐蔽”，有着很大的优势。强国因为是其后台老板，当可以让自己在台面上的打手具备对抗能力时，就难免想冒头得意一番。
 
-第二，用外媒的报道形成对内宣传，而隐去自己的影子，国内人得到的依然是中共一手演绎的故事，这是老套路。他们用两边势均力敌来表现出中东地区的局部战争与混乱；衬托出巨大国的相对平静和安宁，让韭菜们得以忘怀于墙内的有压迫和被冲击的生活。他们的目的就是告诉墙内人民，世界都乱，各方都有自己的优势，分不出胜负，也不能短期和平，还是自己脚下的这块土地好。墙国虽然问题多，可是比起这些有战争冲突的地区来说，还是好很多了。
 
-第三，中共想让能够接触到中文媒体的人或各方，知道中共的无人机能力强，也许还有隐形广告的效用想法。因为最近几年，中共的无人机在偷窃很多西方的先进技术后，据称是排名前列的。因此，这完全有为自己的军备输出打广告的嫌疑。他们会将那些西方的报道重新包装，转道给各路野心家和独裁者，希望他们从自己手上继续买入包括无人机在内的武器。
+> This is a truly shocking report of a supposedly American company selling out American workers, betraying American ideals, and effectively promoting a slave-labor economy in China [https://t.co/Be0JsyFYtw](https://t.co/Be0JsyFYtw)
+> — Josh Hawley (@HawleyMO) [May 17, 2021](https://twitter.com/HawleyMO/status/1394398558808264705?ref_src=twsrc%5Etfw)
 
-综上所述，笔者认为，为什么以色列与哈马斯冲突中，墙内各大主流媒体都在报道哈马斯无人机的事情，主要是想让那些懂得中东地区关系的西方明白：中共在这些人后面。中共想说的就是：你别惹我，我小兄弟众多。同时，中共这些表面上看似引自西方、以色列和中东国家媒体的报道，其实只有一个用处，就是粉饰这些对该地区的报道和观察是来自第三方的中立和客观认识。这完全就是“此地无银”的做法。既然你想让世界和整个墙内都知道你是中东地区冲突背后不可忽视的黑手，你有对这些极端组织的影响力，那么，不管引用谁的报道，都会因为你是中共，而让人必须怀疑你的用心、用意和企图。
 
-我们从所有墙内有关哈马斯所用的无人机报道中看到，这些报道都力图把无人机提供者引向伊朗。可是知道伊朗的背后是谁，你就知道伊朗也是一个中共放出的烟雾弹。伊朗在中东的作用等于是北朝鲜在亚太地区的作用，都是起着牵制美国为首的西方的作用。哈马斯和以色列的冲突，从这个意义上，就是一场中东地区的代理人战争。事实上，以色列以自己的先进武器和技术完全碾压对方；加上美国为首的西方力量背书，以色列的实力占绝对优势。那么，中共此时用所谓的“无人机”来给自己打气，给小兄弟们打气，给已经被打得落花流水的爪牙们鼓气助威。有啥用呢？没啥用，自嗨罢了。此外，我们都知道西方世界与中共脱钩，导致其各种技术升级和维持都困难；他们的武器是否能够在这些野心家市场、独裁者市场继续热卖，也是他们自己的软肋和伤心处。估计，这些热闹的无人机追捧报道，很快就要石沉大海了；无人机很快就要走衰了。按照中共国宣传的黄金法则“越是没有的越是起劲说”、“越是吹捧的越是没有”，那么我们就等中共的美梦和如意算盘破灭吧。
 
-到时候，就连它的那帮靠收买所来的小兄弟，也会溃散，也会倒戈，它就是末路狂奔，自行毁灭。中共成为真正孤家寡人的时刻不远啦。我们耐心等待，一起灭共。祈福人民的未来。
+参议员瑞克·斯科特： 华盛顿邮报观点文章是对的。奥林匹克的资助者可以将人权置于利益之上，或为共产中国针对维吾尔人的持续的种族灭绝开绿灯。 够了够了。我们必须将2022奥林匹克移至一个尊重人权的国家。 （转推华盛顿邮报观点文章：新的报告称中共针对维吾尔人的压制不仅是文化上，还是身体上的。）
 
-（本文纯属个人观点）
 
-参考资料：
 
-[西媒：哈马斯无人机对以构成新威胁](http://www.cankaoxiaoxi.com/mil/20210515/2443436.shtml)
+> .[@PostOpinions](https://twitter.com/PostOpinions?ref_src=twsrc%5Etfw) is right. Sponsors of the [@Olympics](https://twitter.com/Olympics?ref_src=twsrc%5Etfw) can either put human rights above profits, or give a green light to Communist China to perpetuate its genocide against the Uyghurs.
+> 
+> Enough is enough. We must move the 2022 Olympic games to a nation that respects human rights. [https://t.co/d0ngPJMfn5](https://t.co/d0ngPJMfn5)
+> — Rick Scott (@SenRickScott) [May 17, 2021](https://twitter.com/SenRickScott/status/1394356800519016460?ref_src=twsrc%5Etfw)
 
-[哈马斯下属武装“使用无人机”轰炸以色列一化工厂](https://finance.sina.com.cn/tech/2021-05-14/doc-ikmyaawc5359437.shtml)
 
-[以军击落哈马斯无人机画面曝光 以色列媒体直指伊朗是幕后黑手](http://www.xinhuanet.com/mil/2021-05/15/c_1211156290.htm)
 
-*审稿**& 编辑：8 Mile*
+前国务卿蓬佩奥： 中国共产党和国会的一些自由派人士如[@BernieSanders](https://twitter.com/BernieSanders)，[@AOC](https://twitter.com/AOC) 和 [@IlhanMN](https://twitter.com/IlhanMN) ，一同支持哈马斯恐怖分子并与美国和以色列为敌。他们的共同特征是什么？他们所有人都否认美国是造福世界的力量。他们错了。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews.org/wp-content/uploads/2021/05/1-澳喜Logo-2.jpeg)
+
+> The CCP and some liberals in Congress like [@BernieSanders](https://twitter.com/BernieSanders?ref_src=twsrc%5Etfw), [@AOC](https://twitter.com/AOC?ref_src=twsrc%5Etfw) & [@IlhanMN](https://twitter.com/IlhanMN?ref_src=twsrc%5Etfw) are siding with Hamas terrorists and against America and Israel. What’s the common denominator? All deny America is a force for good in the world. They are wrong.[https://t.co/xuO9a1H6Cm](https://t.co/xuO9a1H6Cm)
+> — Mike Pompeo (@mikepompeo) [May 17, 2021](https://twitter.com/mikepompeo/status/1394316921315729417?ref_src=twsrc%5Etfw)
+
+
+
+章家敦（中国问题专家）： 中共国 [#China](https://twitter.com/hashtag/China?src=hashtag_click) 几乎确定地有一个全国性的生物武器项目，这是对生物武器条约的违犯。为什么拜登不谈论这个呢？（转闫博士的推文）
+
+
+
+> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) almost certainly has a nationwide biological weapons program in violation of the Biological Weapons Convention. Why is [#Biden](https://twitter.com/hashtag/Biden?src=hash&amp;ref_src=twsrc%5Etfw) not talking about this? [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) [https://t.co/xQln0O6PmP](https://t.co/xQln0O6PmP)
+> — Gordon G. Chang (@GordonGChang) [May 17, 2021](https://twitter.com/GordonGChang/status/1394370396351303690?ref_src=twsrc%5Etfw)
+
+
+
 0
