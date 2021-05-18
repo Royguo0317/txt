@@ -1,31 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【意大利】2021年“缓慢发展”的建筑工地
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1251654/)
+## 2021/05/17-001 文贵先生盖特精要
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1251751/)
 
-**新闻来源：**今日新闻 意大利（today.it）
-**发布时间**：2021.05.17
-**翻译整理/简评：**斩草要除根
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17155527/IMG_20210517_212617.jpg)图片来源：意大利路透社
-施工现场是否在慢动作进行，建筑行业的材料成本增加，这使得正在施工的建筑工地处于危险之中，并进一步降低了已经遭受长达十年危机的公共和私人采购公司的利润。 这个问题是非常真实的，建筑材料价格的上涨使建筑业和整个供应链陷入危机。根据*CNA*的一项调查，有79％的样本公司报告说，从去年的卫生紧急事件开始，原材料和设备的价格相比之前都有所上涨。
+听写： 万物归一 | 校对/审核：樂禧禧 | Page：我是球大哥
 
-具体地说，一年中最显着的增长是金属增长了20.8％、绝热材料+ 16％、植物材料+ 14.6％、木材+ 14.3％，砂浆和粘合剂的价格在+ 9.4％之间波动、砖的价格在+ 11.3％之间波动。简而言之，一切都会花费更多。根据72％的公司，这种增长的原因是由于供应链的投机行为。但是原因很复杂，很难归咎于精确的责任。
+[!\[\]()!\[\](https://spark.adobe.com/page/kWmA55vJ7ufLF/images/67b6909b-c88b-46d3-b3a9-0404b30b7484.jpg?asset_id=1ebb76ed-8548-43f1-a91b-ce6f8099905f&amp;img_etag=%22c925bac7df20083afd0b0fead37666e9%22&amp;size=1024)](https://spark.adobe.com/page/kWmA55vJ7ufLF/images/67b6909b-c88b-46d3-b3a9-0404b30b7484.jpg?asset_id=1ebb76ed-8548-43f1-a91b-ce6f8099905f&amp;img_etag=%22c925bac7df20083afd0b0fead37666e9%22&amp;size=1024)
 
-铁棚架也短缺，自2020年底以来出现的增加还涉及金属，石油，混凝土和沥青衍生的塑料。全国制造商协会*Ance*长期谴责这种现象。最重要的是：钢筋在2020年11月至2021年4月之间增长了117％。根据*OECD*去年12月的报告，一切都源于中共国建筑业需求的突然增长。由于中共国占世界钢铁生产和消费的50％以上，这种反弹已经对全球整个钢铁供应链的价格产生了直接的影响。
+**五月十七号：回答很多国内战友问七哥．是否应该投资刚刚复出的过去的中国亿万富豪们的项目！七哥如何看待，现在比特币和加密货币的混乱！**
 
-价格上涨不仅涉及意大利，而且涉及整个西欧。正如*Il Sole 24 Ore*今天指出的那样，聚乙烯（在2020年11月至2021年2月之间的增长超过40％），铜（增长17％），石油（增长34％）及其衍生物的增长也很明显。对于水泥，*Ance*全国建筑施工商协会于2月份对该地区进行的一项调查显示，到2021年1月，与12月相比，价格上涨了约10％。
+[G-TV链接](https://gtv.org/getter/60a2901c37f7f73984ccba4d)
 
-#### 简评： 
+[!\[\]()!\[\](https://spark.adobe.com/page/kWmA55vJ7ufLF/images/78e4c7e2-6e8d-499e-82bd-4d6cbe122a14.png?asset_id=539174b1-92d8-43c0-9d2a-147fe0fffbbb&amp;img_etag=%22ffc3542a45d7adff587a967a682c3cd4%22&amp;size=1024)](https://spark.adobe.com/page/kWmA55vJ7ufLF/images/78e4c7e2-6e8d-499e-82bd-4d6cbe122a14.png?asset_id=539174b1-92d8-43c0-9d2a-147fe0fffbbb&amp;img_etag=%22ffc3542a45d7adff587a967a682c3cd4%22&amp;size=1024)
 
-**无疑这场新冠疫情刺激了物价，各行各业都是涨声一片。而对疫情的无法预测、不可避免且很难克服的现实问题，只会越来越增加价格大幅上涨的趋势，通货膨胀人人担忧，但是定会在所难免。**
-（本文只代表译者观点，与Gnews平台无关。）
+• 因为相信了伊隆-马斯克，投资比特币的战友和国内的基金都赔了大钱。一个人建立信用很难，毁掉信用很容易。
 
-**新闻原文链接：**
-🔗[Perché i cantieri edili vanno avanti “al rallentatore” nell’Italia del 2021](https://www.today.it/economia/cantieri-edili-italia-aumento-materiali.html)
+• 想挑战比特币1.4%的控制人共产党和华尔街是不可能的，会使自己的跟随者很失望。狗币也是同样的。任何金融投机都是少数人赢多数人输。
 
-* * *
+• 七哥几十年来从来没有鼓励家人做股票和一些所谓的内部投资机会。
 
-***编辑整理/校对: **Ting Guo*
+• 虚拟加密货币目前2.5万亿总量和将来的发展趋势相比可以忽略不计，美国一定会抢夺虚拟货币的制定标准和话语权。虚拟货币将来会限制什么人拥有多少，不可能1.4%的人拥有97%的币。
+
+• 比特币会消失，炒作的人一定会血本无归。其它的币会逐渐成熟，中心化，加密的，全球流通的，没有哪国政府可控制的，守法的，非洗钱的虚拟币会壮大，比如我们的喜币，同时还和黄金，美元以及其它法币挂钩。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/kWmA55vJ7ufLF/images/c0ad060c-5322-4bd6-a0ab-837b2e767742.png?asset_id=34540c30-6ea5-4156-b586-3e015e715d84&amp;img_etag=%22b23c44ee677aeaa58e9800343709b67a%22&amp;size=1024)](https://spark.adobe.com/page/kWmA55vJ7ufLF/images/c0ad060c-5322-4bd6-a0ab-837b2e767742.png?asset_id=34540c30-6ea5-4156-b586-3e015e715d84&amp;img_etag=%22b23c44ee677aeaa58e9800343709b67a%22&amp;size=1024)
+
+• 这些天购买喜币喜美元和GClub的战友一定要填写正确的信息，喜币喜美元是你一生中拥有的账号，一生的信用。
+
+• 共产党在倒台前会让一些私人企业家出场，继续骗老百姓，和到国际上骗钱，大家一定要分辨清楚，要小心。
+
+• 人生一次侥幸失败了，二次侥幸你失败了，第三次侥幸还失败，那是你贪婪和愚蠢。不要相信任何一个和共产党勾兑的所谓东山再起的商人。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/kWmA55vJ7ufLF/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/kWmA55vJ7ufLF/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
