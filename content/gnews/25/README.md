@@ -1,41 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 莱卡或将终止与缺芯的华为合作
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1252723/)
+## 福奇博士资助的病毒研究使中共军方获取专利
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1252814/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+新闻来源：《The Gateway Pundit》| 作者：Lawrence Sellin, PhD.（劳伦斯·塞林博士） | 发布时间：2021年5月15日
 
-编辑上传 水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17230813/L-1.jpg)wired.com
-据一名推特博主透露，“莱卡和华为的合作即将结束，P50 系列将是莱卡和华为手机的最后一次合作，而莱卡也正在为其品牌寻找新的制造商。”前 OPPO 副总裁沈义人也发微博说，“莱卡的手机合作易主了”，并通过文字中颜色（橙色）暗示，与莱卡合作的新品牌很可能是小米。
+翻译/简评：大和凯多 | 校对/审核：万人往 | Page：Daoiii
 
-华为手机的几款产品近几年拍照效果追赶甚至超越苹果和三星，外界普遍认为与华为使用莱卡镜头有关。华为官方网站对于华为莱卡摄像头也专门作为一大卖点进行宣传，声称百年莱卡光学镜头具有严苛的标准、出类拔萃的性能和独特的色彩调校风格。华为和知名光学仪器制造厂商莱卡的合作确实为提升华为手机销量有巨大帮助，借助德国品牌“严谨认真”的卖点，华为手机一度曾风靡欧洲手机市场。
+[!\[\]()!\[\](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/65a8868c-2366-47df-bb82-ddb3379e0ec2.jpg?asset_id=df904643-9893-4b00-88ab-9e21ff8724cf&amp;img_etag=%224511c468ce89f401b6ee225d57e08c17%22&amp;size=2560)](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/65a8868c-2366-47df-bb82-ddb3379e0ec2.jpg?asset_id=df904643-9893-4b00-88ab-9e21ff8724cf&amp;img_etag=%224511c468ce89f401b6ee225d57e08c17%22&amp;size=1024)来源网络资料：解放军军事医学科学院微生物流行病研究所病毒室主任秦成峰（右）
 
-但是，在莱卡和华为手机合作即将到期时，华为手机产品因为各种原因无法正常供货，市场的销量相比往年也下降不少，因此莱卡打算寻找新的合作品牌。
+**简评：**
 
-2021 年华为公司的日子风光不再。“争取明年还能发财报”这句往年的经典梗，或许真地会一语成谶。
+史佩勇是德克萨斯大学加尔维斯顿分校医学分部的教授，也是武汉病毒研究所的荣誉教授。自2004年以来，福奇的美国国家过敏和传染病研究所资助他获得多项中共国专利。同时，中共军方也是这些专利的持有人。
 
-自去年谷歌停止授权华为使用安卓系统后，在美国制裁下台积电也断供了华为手机芯片。目前华为所有的手机芯片都依赖当时所得的最后一批库存，外界预期 2021 年华为手机销量将继续大幅下滑。
+史佩勇本科毕业于南京师范大学生命科学学院，在佐治亚州立大学分子病毒学获得博士学位，目前是德州大学医学分部的生物化学与分子生物学系教授。2021年2月8日，史佩勇的研究组和美国辉瑞公司的Dormitzer博士共同在《自然·医学》发表了一片关于辉瑞疫苗的文章。是的，他现在还在美国活跃。
 
-按照惯例，华为上半年发布旗舰手机 P 系列的时间一般固定是 3 月份左右。但今年直到 5 月份，华为新一代旗舰机型 P50 仍未发布。除了缺少核心芯片外，华为手机还缺少其他类型芯片，例如射频芯片、CMOS 芯片等。因为芯片的原因，P50 注定产能不高，更多的人会转向苹果、小米等品牌。
+[!\[\]()!\[\](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/049f3fd4-9390-4338-95d0-3279128c582a.jpg?asset_id=542e58d8-9b01-4fdf-886d-e93373b24ca8&amp;img_etag=%22ed14d3301080e03b615c7ce9bb0c7b02%22&amp;size=2560)](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/049f3fd4-9390-4338-95d0-3279128c582a.jpg?asset_id=542e58d8-9b01-4fdf-886d-e93373b24ca8&amp;img_etag=%22ed14d3301080e03b615c7ce9bb0c7b02%22&amp;size=1024)来源南京医科大学官网，2019年10月24日，沈洪兵（左）校长为史佩勇（右）颁发客座教授聘书
 
-根据 2021 年 3 月 31 日华为公布的年度财报显示，以代表手机销售的消费者业务板块营收只增长 3.3%，增速达到历年新低。过去五年来，由于手机业务大获成功，华为消费者业务实现了飞速增长，收入贡献甚至超过运营商业务，是集团营收贡献的主力。
+塞林博士在门户网站发布的这篇文章彻底揭露了福奇、史佩勇以及中共军方之间的关联；福奇利用美国纳税人的钱，通过资助史佩勇给中共国军方做病毒方面的研究。福奇博士勾结国外，这已经构成叛国罪了。史佩勇现在虽然还身在美国活跃，塞林博士的这篇文章足以让史博士吃安眠药才能入睡了。美国的特工们很可能早就盯着他了，估计想效仿郑颂国，人还没到机场就会被抓。最后希望潜伏美国的中共特务们多保重，天网恢恢，疏而不漏，不是不报，时候未到。他们现在还有机会选择站在正义的一方，否则，将面临中共的丢卒保车和美国法院的审判。
 
-这家拥有近 20 万员工的大型企业不得不面对必须放弃手机业务而寻找另外可能的利润增长点，而普通类型的业务是无法支付如此庞大数量员工开支的。外界观察到华为卖出了荣耀手机部门、开始对 5G 专利进行收费、投资农业等新兴产业，但这些业务只能暂时缓解华为资金紧张、业务低迷的情况，无法支撑起整个华为继续发展。
+[!\[\]()!\[\](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/d50db4cc-719c-49ac-8abb-068205540272.jpg?asset_id=d087fe5b-c729-4179-a321-6f5ad440e382&amp;img_etag=%222c33242006de5b8e6a61d4bf125e5c6a%22&amp;size=3409)](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/d50db4cc-719c-49ac-8abb-068205540272.jpg?asset_id=d087fe5b-c729-4179-a321-6f5ad440e382&amp;img_etag=%222c33242006de5b8e6a61d4bf125e5c6a%22&amp;size=1024)
 
-唯一有可能让华为既能重回高速增长，又能逃脱被美国制裁的新业务是“电动汽车”行业。最近华为帮助国内电动汽车厂商卖车的消息刷爆朋友圈，原本默默无闻、技术普通的赛力斯电动机车搭上华为强劲的售后体系后，一天汽车销量达到 3000 辆。
+**原文翻译：**
 
-华为试水电动汽车市场，是为了观察国内消费者对电动汽车的消费能力和市场反应。就算是电动汽车销量达到 3 万辆，也远远无法满足华为业务增长的需求。华为的最终目标一定是设计和制造完全自主的品牌，但因为美国的制裁禁令，当前只能以“销售”的角色在大众面前出现，否则美国的制裁禁令会波及到其参与制造的电动汽车厂商。
+## **独家：福奇博士资助的研究使得中共军方获取专利**
 
-2021 年，继失去谷歌安卓系统、台积电芯片供应后，华为又失去了莱卡镜头的支持，整个华为手机供应链几乎全线崩溃。华为欲以“销售”转型为电动汽车的设计者，为企业提供新的利润增长点。但随着中美关系持续恶化，制裁不会放松，加之其他西方国家站队反共灭共阵营，加速与中共军企华为脱钩。华为失去西方国家高科技产品的支持后，下半年的日子必定更加艰难，偌大一个名企能否存活下来都难有定数了。
+史佩勇在中共国接受教育，目前是德克萨斯大学加尔维斯顿分校医学分部的生物化学与分子生物学教授。
 
-参考链接：
+2007年，史佩勇开始担任武汉病毒研究所的荣誉教授，并且自2004年以来，他一直由福奇博士的美国国家过敏和传染病研究所（NIAID）资助。
 
-[1] [Leica is looking for a new smartphone partner, eyeing Xiaomi and Honor – Gsmarena – 15/05/2021](https://www.gsmarena.com/leica_is_looking_for_a_new_smartphone_partner_eyeing_xiaomi_and_honor-news-49131.php)
+史佩勇还和中共军方的科学家进行了广泛的研究合作，相关发表在门户网站的文章链接如下：
 
-[2] [华为“造车”掀起刷屏态势 要做汽车业的“苹果”？ – 新浪 – 04/21/2021](https://auto.sina.com.cn/zz/hy/2021-04-21/detail-ikmxzfmk8047046.shtml)
+- [https://www.thegatewaypundit.com/2021/05/massive-infiltration-u-s-virus-research-chinas-military/](https://www.thegatewaypundit.com/2021/05/massive-infiltration-u-s-virus-research-chinas-military/)
+- [https://www.thegatewaypundit.com/2021/05/exclusive-evidence-dr-fauci-funding-chinas-peoples-liberation-army-virus-research-used-biological-warfare/](https://www.thegatewaypundit.com/2021/05/exclusive-evidence-dr-fauci-funding-chinas-peoples-liberation-army-virus-research-used-biological-warfare/)
+- [https://www.thegatewaypundit.com/2021/05/breaking-exclusive-uncovered-direct-link-chinese-military-major-pentagon-funded-virus-research-center/](https://www.thegatewaypundit.com/2021/05/breaking-exclusive-uncovered-direct-link-chinese-military-major-pentagon-funded-virus-research-center/)
 
-[3] [透视华为年报：手机缺芯痛失市场 要靠5G专利费赚钱？ – 新浪 – 04/01/2021](https://finance.sina.com.cn/tech/2021-04-01/doc-ikmxzfmk0432994.shtml)
+
+这项研究使史佩勇和中共军方，特别是秦成峰，获得了中共国的专利。
+
+史佩勇一直和中共军方有合作。福奇在2021年926569美元的拨款中，史佩勇是其中（获得者）之一。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/47905d1e-f0d0-4f9f-ace3-70e59939480c.png?asset_id=8e66de7c-cde6-4677-9d18-af49490ba50a&amp;img_etag=%22d4bfffde6bc70b82dcaadf006c7c7a47%22&amp;size=2560)](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/47905d1e-f0d0-4f9f-ace3-70e59939480c.png?asset_id=8e66de7c-cde6-4677-9d18-af49490ba50a&amp;img_etag=%22d4bfffde6bc70b82dcaadf006c7c7a47%22&amp;size=1024)（左图：史佩勇；右图：秦成峰）
+
+该项专利在中共国的专利申请号为201810076027.7，于2018年10月26日批准。该专利持有人是中国人民解放军军事科学研究院和史佩勇。
+
+作为科学支持，该中共国专利申请引用了一篇2017年名为《一种减弱的寨卡病毒活候选疫苗在小鼠模型中诱导了免疫力》的文献。这篇文献是由美国国家过敏和传染病研究所资助完成的，资助编号为AI120942。
+
+第二项中共国专利，专利号为WO2019144874A1，于2019年1月23日批准。该专利持有人同样也是中国人民解放军军事科学研究院和史佩勇。
+
+第二项专利中所引用的三篇科学支持文献同样是由美国国家过敏和传染病研究所资助的，资助编号分别为AI120942、AI127744、AI073755和AI104972。
+
+奇怪的是，编号为AI127744的资助接受人王田并没有作为作者出现在中共军方主导的文章中，但是该文章把美国国家过敏和传染病研究所引用为资助方，所以，可能发生了某种形式的资金转移。
+
+最后一个疑点是一项2015年8月20日的名为《用于疫苗的新型减弱登革热病毒株》的美国专利。该专利由史佩勇和秦成峰提交，其中一个专利持有人是中共军方的北京微生物流行病研究所。
+
+在该美国专利申请中，秦成峰隐藏了他与中共军方的隶属关系，将新加坡列为他的工作地点。
+
+该项美国专利申请中没有科学文献参考，并且资金支持来源也不清楚。
+
+🔗[原文链接](https://www.thegatewaypundit.com/2021/05/exclusive-dr-anthony-fauci-funded-research-led-patents-chinese-military/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
 0

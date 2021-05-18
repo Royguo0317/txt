@@ -1,25 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 对哈马斯文明有序的拆迁模式必为墙国国民所喜闻乐见
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1252405/)
+## 【有声读物】“网约护士”需求旺，上门医疗服务自费“难享”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1252568/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17210413/%E6%8D%95%E8%8E%B7_%E5%89%AF%E6%9C%AC.png)
-据[\[email protected\]于上午12:06 · 2021年5月18日·Twitter for iPhone发布的推文——](/cdn-cgi/l/email-protection#d5969c969cfb9db4b8bcb9a1babbfb95808694969c969cf0e5b1)
+配音：香草山录音组 蒙古鸿雁
 
-以色列拆迁办航拍施工现场 哈马斯军事情报局通讯大楼
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-> 以色列拆迁办航拍施工现场👇👇🤓🤓
-> 哈马斯军事情报局通讯大楼 [pic.twitter.com/WJjFqpUlLC](https://t.co/WJjFqpUlLC)
-> — CICI.Hamilton. (@USACICI) [May 17, 2021](https://twitter.com/USACICI/status/1394323499787898886?ref_src=twsrc%5Etfw)
 
 
 
-以色列国拆迁办对哈马斯军事情报局通讯大楼的拆迁开启了新的模式，这种拆迁不需要签署事前补偿协议，拆迁现场文明而又有序，对周边邻近建筑零伤害，在这种新的拆迁模式下没有任何墙国常见的拉横幅、点液化汽罐及用土制火药袭扰拆迁队的对抗，同时并且以色列国拆迁办的工作也绝对不会有拆迁前和拆迁后的上访、缠访等墙国的弊病，相信这种拆迁模式一定为墙国国民所喜闻乐见，在未来对八一大楼、新华通讯社、人民日报等单位的拆迁时，请周边群众戴好口罩和护目镜，因为目前以色列国的拆迁模式还做不到零粉尘，这是这种新型拆迁模式唯一需要注意的地方。
 
-（文章内容仅代表作者个人观点）
+澎湃网5月15日转载工人日报消息，自2019年12月海南试点“互联网+护理服务”推出网约护士服务。虽然市场前景“广阔”，但该上门医疗服务模式进展缓慢。
+
+自2019年3月，海南省出台“ 互联网+医疗健康”实施方案，在政策激励和老年护理需求旺盛的基础上，海医一附院于当年12月推出网约护士服务。截至2021年3月26日，该医院网约平台注册的网约护士50人（而报名者有100余人），共接单414个。
+
+
+
+**文字版原文：[【鹰眼墙国】“网约护士”需求旺，上门医疗服务自费“难享”](https://gnews.org/zh-hans/1248558/)**
+
+作者：纽约香草山写作组 鹰(文言)
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
