@@ -1,35 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥呼吁中国发布反驳武汉实验室泄漏理论的证据：“来呀，把证据带好” —— 福克斯新闻
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1254454/)
+## 【一线新闻】GTV投资者向SEC呐喊出最强声音——口号声响彻云霄
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1254523/)
 
-#### 翻译编辑：文复
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18145453/IMG_20210518_115425_033.jpg)图片FOXNEWS
-前国务卿蓬佩奥（Mike Pompeo）周二呼吁中国发布证据，反驳COVID-19起源于武汉实验室的理论。福克斯新闻社的撰稿人在“美国新闻室（America’s Newsroom）”上说，所有间接证据都指向实验室作为病毒传播的来源，指责中国共产党“竭尽所能掩盖和转移”。
+前方记者：纽约香草山记者站 Kathy（文艺）
+撰稿：纽约香草山记者站 熊井（文兰）
 
-汤姆·科顿（TOM COTTON）：不要让拜登，富奇，和民主党在COVID起源的大问题上做文章—-这对我们所有人都至关重要
 
-蓬佩奥说：我记得回家后收到朋友的留言说，您确定吗？左派想否认实际已经发生的情况的可能性，他们采用的实际上是中国共产党的宣传。中国人非常努力，想弄清楚不是来自他们的实验室。
 
-…
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-您会记得，他们曾指出美国是这种病毒的来源，他们竭尽所能掩盖和转移。中国共产党在武汉病毒研究所确实积极从事病毒研究。
 
-…
 
-虽然我无法证明这一点，但每一个证据-今天您都已经看到科学家出来说我们需要更多的调查-指出实验室泄漏。可以肯定的是，这一切都间接地确认了。可以澄清问题的人却拒绝这样做。 …如果我错了，他们可能会让蓬佩奥这个人感到尴尬。来吧，把证据带好，向世界展示这并非来自武汉病毒研究所。
+SEC + CCP Corruption
 
-…
+SEC, You Must Pay
 
-他们不会那样做。他们知道，他们掩盖了这一点，就像切尔诺贝利被掩盖了很长时间一样。我们看到了同样的结果：死了几百万人。
+SEC Meets in Court
 
-文章来源：
+SEC Loves CCP
 
-[http://seekmacro.com/pompeo-calls-on-china-to-release-evidence-disproving-wuhan-lab-leak-theory-come-on-bring-it-fox-news-5332.html](http://seekmacro.com/pompeo-calls-on-china-to-release-evidence-disproving-wuhan-lab-leak-theory-come-on-bring-it-fox-news-5332.html)
+SEC with CCP SPY, GTV Investors Die
 
-（本文只代表作者观点，与Gnews平台无关。）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18155932/80-1-5.jpg)
 
-校对发布：紫橄榄
+2021年5月6日，今天的抗议活动继续。太阳出来了，温暖的阳光照在抗议者的身上，他们依然站在SEC门前，高喊口号，声音响彻云霄……
+
+GTV投资者抗议SEC与中共国勾兑的行动，没有一个媒体或电台报道，他们是在躲避还是在逃避？那我们就自己报导道吧！
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18160024/81-6.jpg)
+
+路上有许多车辆经过，揭露SEC和CCP勾结真相的宣传车亦穿梭于整个曼哈顿。其所经过之处，行人都会停下脚步，观看宣传车展示的图片，了解SEC与中共勾兑的内幕，理解这种勾兑给GTV投资者的经济带来了很多损失…..
+
+CCP灭亡的日子不远了！在我们“Take Down the CCP”的口号声中，CCP将轰然倒塌。再大的庞然大物，从物理的角度、从心里角度、从精神的角度，它都将会怦然倒地！
+
+太阳出来了，我们这个晒太阳群终于见到太阳了，多么温暖啊……
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0

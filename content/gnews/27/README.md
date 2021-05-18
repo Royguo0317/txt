@@ -1,19 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】05/16/2021中共的暴政引得天怒民怨
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1254074/)
+## 拜登与内塔尼亚胡讨论日益恶化的巴以冲突
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1254175/)
 
-**制作：Cantonese工作室**
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
+编辑上传 银河
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18120902/Snipaste_2021-05-18_19-08-26.jpg)[cbc.ca](https://www.cbc.ca/news/world/gaza-images-stir-emotions-but-fail-to-capture-complexity-of-israeli-palestinian-conflict-1.4674037)
+05月18日，援引自白宫新闻处的声明，美国总统乔·拜登在与以色列总理本雅明·内塔尼亚胡的电话交谈中，主张以色列和巴勒斯坦之间实现停火。
 
+声明说：“总统表示支持停火，并讨论了美国在这方面与埃及和其他伙伴的接触。”
 
+此外，拜登重申坚决支持以色列针对无差别攻击的火箭弹袭击进行自卫的权利，并欢迎打击社区间暴力和安抚耶路撒冷所做的努力。白宫补充说：“他敦促以色列作出一切努力，确保对无辜平民的保护。”
 
+拜登此前曾与内塔尼亚胡讨论过巴以冲突的问题。当时，他表示希望冲突能够得到解决。拜登说：“我希望它能结束，而且最好是早些发生，而不是晚些。”
 
-*播報: 海媚
-資料整理: 郁金香/文林/二丫
-海報製作: penny/侬民
-視頻製作: KEN
-粵語翻譯校對:文雀(已编辑)*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18115202/%E6%88%AA%E5%9C%96-2021-05-18-%E4%B8%8A%E5%8D%8810.49.39.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18115146/%E6%88%AA%E5%9C%96-2021-05-18-%E4%B8%8A%E5%8D%8810.50.38.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18115130/%E6%88%AA%E5%9C%96-2021-05-18-%E4%B8%8A%E5%8D%8810.50.52.png)
+拜登后来与巴勒斯坦总统马哈茂德·阿巴斯举行了会谈。在会谈中，他告诉阿巴斯，美国致力于通过外交手段解决以色列和巴勒斯坦之间的冲突。拜登强调，哈马斯“必须停止向以色列发射火箭弹”。
+
+此外，美国总统还回顾了美国最近决定恢复对巴勒斯坦人民的援助，包括对西岸和加沙地带的巴勒斯坦人的经济和人道主义援助。
+
+5月初，在东耶路撒冷的抗议活动中，包括在圣殿山的阿克萨清真寺的抗议活动，由于阿拉伯家庭被驱逐导致冲突升级，阿拉伯人和以色列警察在那里开始发生冲突。激进组织哈马斯随后进行了干预，双方开始互相射击。两方都报告有平民伤亡。
+
+参考链接：
+
+[https://www.rbc.ru/rbcfreenews/60a2f7079a794793a820f1dd](https://www.rbc.ru/rbcfreenews/60a2f7079a794793a820f1dd)
+
 0

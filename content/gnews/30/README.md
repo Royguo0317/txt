@@ -1,46 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】CCP窃取维吾尔人的苹果手机数据
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1254067/)
+## 【战友心声】未来我们将何去何从……
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1254110/)
 
-配音：香草山录音组 蒙古鸿雁
+作者：纽约香草山福音部 Williams
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+看着他们得到了拖欠了一年多的工资，心情真是无比的复杂与感慨，……也难以用语言来形容。那一刻他们的眼神充满着辛酸、感激、无奈和忍耐。也许他们的背后都有着深重的家庭负担，生活让他们负重前行，生活让他们如此的谦卑与懦弱，这就是勤劳的中国人。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18114223/%E5%9B%BE%E7%89%874-41.png)
 
+在这个故事里他们是一群农民工，勤恳务实地努力工作，一年到头一个人也就赚几万块钱，在2019年底他们把一年工资单都签名确认了，可是建筑公司只付了部分工资给他们。这时候湖北封锁了，他们被困在湖北了，约半年后他们出去继续着工作也离开了原来的工作，可是该建筑公司一直以各种理由拖着他们的工资，他们一直与其沟通，也不想麻烦政府，也一直遵守着秩序，直到近日他们再也忍不住了。虽然这一次有人为他们解决了，但这事让我在想，我们的国家怎么了！为什么一直都这样……
 
+在我的观点看来，这又是一个佐证缺乏法治的事件。在这个国度每一天都发生着不可思议的事情。十多年来，我也见过太多尔虞我诈的事。有不满自己的工资把包工头一家烧了的；有拉一班似是而非的工人讹诈包工头的；当然更有被砍到重伤残疾的，有被活埋死掉的；有在火车站被诈成现代盲井，一直工作，却一直领不到工资的；有供应材料收不到款项要用跳楼的方式解决的……
 
+虽然在共产党最后的日子里，他们颁布了《农民工工资支付条例》，在一定程度上减少了同类事件的发生。郭先生在直播中也说过，体制内的公检法也不乏有良知的人，但仅仅靠有良知的人是无法从根本上解决问題的。在没有了共产党的日子里，中国联邦人要如何重建这个国度，这真是一件任重而道远的事！
 
+看看那些满嘴仁义道德的，一副共产主义官僚作风的，开会是坐着讲，而不是站着讲的共产党官员，相信所有新中国联邦人都是从心里鄙视的。消灭了共产党后，很多中国人仍然会帶着共产党的思维、作风工作，也许还会傲慢、固步自封、拒绝与西方世界融合的。我们唯有洁净自己心灵，谦逊地服务自己的国家，洗掉这些恶习才能让我们重建这个国度。也许是依靠着宗教信仰，依靠着神，按着神的指引才能让这个国度有正道！
 
+校对/发稿：飞虹
 
-据5月15日[法新社RFI报道](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E6%B3%95%E5%9B%BD%E6%8A%A5%E7%BA%B8%E6%91%98%E8%A6%81/20210515-%E5%8C%97%E4%BA%AC%E5%A6%82%E4%BD%95%E7%AA%83%E5%8F%96%E7%BB%B4%E5%90%BE%E5%B0%94%E6%97%8F%E4%BA%BAiphone%E6%89%8B%E6%9C%BA%E6%95%B0%E6%8D%AE)，美国麻省理工学院的科技杂志于5月6日发表文章称，中共政府悬赏二十万美元举办名为“天府杯”的中国黑客大赛，其目的是研究如何打开苹果手机的窃看缺口。美国政府以及谷歌集团的研究显示，中共国黑客的发现为中共对中国人民，尤其是维吾尔人的大规模监控提供了大量援助。
-
-自2018年开始，中共国的黑客就不再参加每年在加拿大温哥华举行的国际黑客比赛，很明显，CCP认为中共国黑客的价值，应该为CCP的安全部门所用。
-
-
-
-**文字版原文：[【热点播报】CCP窃取维吾尔人的苹果手机数据](https://gnews.org/zh-hans/1250709/)**
-
-作者：纽约香草山信息部 6zero4
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
 
 
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+**六四文宣大赛，****欢迎大家踊跃投票****：**[**https://gnews.org/poll/poll-article\_1/**](https://gnews.org/poll/poll-article_1/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+**投票注意事项：第一，比如投票视频，一个账号需要同时选中要投的三个视频作品，方可以投票；第二，因为视频比较大，所以需要大家静待一两分钟，然后进入视频投稿界面。第三，投票的战友也有机会获幸运参与奖啊。**
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
 [**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
