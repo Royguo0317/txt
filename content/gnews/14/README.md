@@ -1,103 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】锅言灶语（八） -有话说之＂画＂外音-
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1252079/)
+## 【一线新闻】疫情后餐厅新现象——街景一窥
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1252005/)
 
-作者：纽约香草山健身部澄道
-
-
-
-![This image has an empty alt attribute; its file name is logo-3-1.jpeg](https://lh5.googleusercontent.com/U9c9w5ADOG4YiBse2n5RwvE7zUFnaAS1TvUmz8yKnaJder5z766VHCTuFaUxsVltSJHK6-NDxqM7mVsrKJpaxs1ITBnGa6uyI4jTaYwrjibNSl1FDvwKVtXfFi4d_g2Emd2Ut2dv)
+前方记者：纽约香草山记者站 Kathy（文艺）
+记录/校对：纽约香草山记者站 熊井（文兰）
 
 
 
-小馆公告
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-情势所逼
 
-无有堂食多寂寞
 
-唯有更名再续张
+周末出门逛街，所见所闻，让人深思……
 
-＂泰何为＂-中文
+路过亚特兰大的一家美式餐厅，餐厅外面建了一间挨着一间的玻璃小屋，吸引着来往的路人。玻璃屋内装饰着粉色的鲜花，非常温馨。屋内摆放着一张供两人就餐的餐桌，我经过时正有一对夫妇在小屋内就餐。
 
-＂take away ＂-英文
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17184012/69-7.jpg)
 
-免强维持的后厨
+这一年多的疫情期给餐饮业带来了很大的影响。尤其疫情初期，政府不让营业，消费者亦不敢出门吃饭，这导致部分企业资金流断裂。再加上每天的房租、工资、税收带来的压力，小型抗压能力差的餐馆纷纷关闭——这无异是一场灭顶之灾。剩余一些餐馆只经营外卖服务，维持着基本的运营。随着疫情的发展，餐饮业也在逐渐恢复中，各种针对疫情的保护措施也应运而生：餐桌之间保持距离，用透明的板子隔离，在室外建起了简易的小屋……
 
-锅子
+中共向世界投放病毒，把世界经济搞弱，企图通过发展疫苗经济壮大自己的产业链。闫丽梦博士反复告诉全世界人民病毒来源的真相，亦警告“留给人类的时间不多了”。GTV也持续不断地报道并揭露中共制造病毒并传播病毒的证据，唤醒世界人民认清CCP的邪恶，并将中共与中国人划分开来。
 
-灶子
+只有消灭CCP，疫情才能彻底解决，我们新中国联邦人肩负使命，传播真相是我们责任！
 
-还都在
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
 
-只是言出必高谈
+编辑/校对/发稿：Irene木木
 
-语开更扩论
+**更多资讯，更多关注**
 
-生无生
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-死无死
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-生无带来一口气
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-枉与暇满殊胜生
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-死无带走一丝麈
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-圣趣门中不老身
 
-＂是小馆（有话说）论坛吗？＂
 
-＂是在做＂画＂吗！
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-＂整点大众口味的行不行吗？ ＂
 
-＂一个个地！ ＂
-
-快言快语的
-
-快进快出的
-
-镇店名服
-
-＂萃花＂来了
-
-＂还有就是坛我也是喜欢的呀！
-
-比如我们老家的咸菜＂坛… ＂
-
-萃花进后厨（论坛）
-
-真的是来＂踢馆子＂的吗！ ？
-
-＂萃花上酸菜….＂
-
-一个绕梁的声音
-
-从后厨传来
-
-听声音判断
-
-是厨二
-
-@澄道来了
-
-@爱动爱议码0517
-
-校对/发稿：火内
-![This image has an empty alt attribute; its file name is 5%E6%9C%88.jpg](https://lh5.googleusercontent.com/ljD5wFPMGbuU6Ym0syBFu4SwYaDVzq_IYCPYrAivB9gMIGPS81-SplcHDaQUUKK2aHQYNRzCT0iejd4kMnDtns29bpFNL-fb7SmHUGiLOEqWYsf56TgEBsqMhVHmeDEx5mQQ4ne4)
-更多资讯，更多关注
-
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[纽约香草山农场GTV-MOS TALK](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)香草山访谈
-
-[纽约香草山农场Twitter](https://twitter.com/HIMALAYA_MOS)(中文)
-
-[纽约香草山农场Twitter(英文)](https://twitter.com/MosHimalaya)
-
-[纽约香草山农场YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

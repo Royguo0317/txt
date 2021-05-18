@@ -1,27 +1,103 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德州官方承认加密货币的法律地位
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1251873/)
+## 【香草诗词汇】锅言灶语（八） -有话说之＂画＂外音-
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1252079/)
 
-#### 翻译：Maggie |责编：人间四月
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07085854/Picture3-5.png)图片来源：Gnews
-根据5月11日U.Today新闻记者亚力克斯·多夫尼报道，德州众议院通过了一项重要的加密货币法案。“虚拟货币法案”（请参加后面链接）在德州众议院一致通过，该法案承认了加密货币的法律地位。然而，在成为法律之前，德州必须在参议院清除障碍，让这个“孤星之州”有可能与怀俄明州一起成为主要的加密货币中心。
-
-该法案旨在将“虚拟货币”一词纳入《统一商法典》管理该州商业交易中，并这样定义：“虚拟货币”是指对价值的数字化表示，其功能可作为交换媒介、记账单位和/或价值存储，通常使用区块链技术进行安全保护。
-
-如果成为法律，它将为取得加密货币的控制权提供一个法律框架。该法案允许购买者与“另一个人分享权力”，因而使金融机构从事加密保管成为可能。
-
-德克萨斯州州长格雷格·阿博特亲自出面支持这项具有里程碑意义的加密货币法案。
-
-* * *
-
-评论：虚拟货币是不可阻挡未来的发展趋势。这一法案的通过有着重大意义，可预见将来美国会有更多的州甚至更多国家会加入这一行列。同时，更加印证了喜马拉雅喜币现在推出的重要性和前瞻性。让我们共同参与这一伟大历史进程、迎接未来合法安全的财富。
-
-原文链接：[Texas House Passes Bill That Officially Recognizes Legal Status of Cryptocurrencies](https://u.today/texas-house-passes-bill-that-officially-recognizes-legal-status-of-cryptocurrencies?amp)
-
-参考资料：[虚拟货币法案出处](http://虚拟货币法案出处)
+作者：纽约香草山健身部澄道
 
 
 
-+1
+![This image has an empty alt attribute; its file name is logo-3-1.jpeg](https://lh5.googleusercontent.com/U9c9w5ADOG4YiBse2n5RwvE7zUFnaAS1TvUmz8yKnaJder5z766VHCTuFaUxsVltSJHK6-NDxqM7mVsrKJpaxs1ITBnGa6uyI4jTaYwrjibNSl1FDvwKVtXfFi4d_g2Emd2Ut2dv)
+
+
+
+小馆公告
+
+情势所逼
+
+无有堂食多寂寞
+
+唯有更名再续张
+
+＂泰何为＂-中文
+
+＂take away ＂-英文
+
+免强维持的后厨
+
+锅子
+
+灶子
+
+还都在
+
+只是言出必高谈
+
+语开更扩论
+
+生无生
+
+死无死
+
+生无带来一口气
+
+枉与暇满殊胜生
+
+死无带走一丝麈
+
+圣趣门中不老身
+
+＂是小馆（有话说）论坛吗？＂
+
+＂是在做＂画＂吗！
+
+＂整点大众口味的行不行吗？ ＂
+
+＂一个个地！ ＂
+
+快言快语的
+
+快进快出的
+
+镇店名服
+
+＂萃花＂来了
+
+＂还有就是坛我也是喜欢的呀！
+
+比如我们老家的咸菜＂坛… ＂
+
+萃花进后厨（论坛）
+
+真的是来＂踢馆子＂的吗！ ？
+
+＂萃花上酸菜….＂
+
+一个绕梁的声音
+
+从后厨传来
+
+听声音判断
+
+是厨二
+
+@澄道来了
+
+@爱动爱议码0517
+
+校对/发稿：火内
+![This image has an empty alt attribute; its file name is 5%E6%9C%88.jpg](https://lh5.googleusercontent.com/ljD5wFPMGbuU6Ym0syBFu4SwYaDVzq_IYCPYrAivB9gMIGPS81-SplcHDaQUUKK2aHQYNRzCT0iejd4kMnDtns29bpFNL-fb7SmHUGiLOEqWYsf56TgEBsqMhVHmeDEx5mQQ4ne4)
+更多资讯，更多关注
+
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[纽约香草山农场GTV-MOS TALK](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)香草山访谈
+
+[纽约香草山农场Twitter](https://twitter.com/HIMALAYA_MOS)(中文)
+
+[纽约香草山农场Twitter(英文)](https://twitter.com/MosHimalaya)
+
+[纽约香草山农场YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
