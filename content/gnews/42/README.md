@@ -1,35 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】玩瓷-西洋瓷器小酌（一）
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1251419/)
+## 【一线新闻】疫情后餐厅新现象——街景一窥
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1252005/)
 
-作者：纽约香草山农场设计部 天马星空J
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+前方记者：纽约香草山记者站 Kathy（文艺）
+记录/校对：纽约香草山记者站 熊井（文兰）
 
 
 
-现代人的生活节奏越来越快，需求也不断提升。美国心理学家亚伯拉罕·马斯洛在《人类激励理论》中提出人类需求从低到高按层次分为五种，分别是：生理需求、安全需求、归属需求、尊重需求和自我实现需求。艺术品收藏，能提升人们的生活品味，增添许多生活乐趣。闲暇之时，把玩、欣赏，遨游于人类文明的大海之中，徜徉于古代艺术的殿堂，可以修心养性，令人心旷神怡！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-下面介绍一下我收藏的部分西洋骨瓷，让大家共同来鉴赏，不失为一件美妙的事。
 
-**英国 皇家道尔顿****(ROYAL DOULTON)**
 
-Royal Doulton1815年创立于英国泰晤士河畔，被维多利亚女皇誉为“世界上最美丽瓷器的制造者”。它占据了英国骨瓷产量的40%，成为世界著名的骨瓷大家。
+周末出门逛街，所见所闻，让人深思……
 
-Royal Doulton骨瓷在高温烧制过程中，加入了50%的小公牛骨粉，材质细腻。其主打产品老镇玫瑰系列，是戴安娜王妃的最爱，也是迄今为止最畅销的骨瓷器之一。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17174939/16x9-feature-photos-MOS-logos-1-2.jpg)
-英国皇家道尔顿极为关注女性情怀，老镇玫瑰系列的产品是以22K镀金手绘进行描边，并贴以缤纷的色彩，不管处于哪个时代，此种浪漫设计对于世界各国的女性都是极具杀伤力的。
+路过亚特兰大的一家美式餐厅，餐厅外面建了一间挨着一间的玻璃小屋，吸引着来往的路人。玻璃屋内装饰着粉色的鲜花，非常温馨。屋内摆放着一张供两人就餐的餐桌，我经过时正有一对夫妇在小屋内就餐。
 
-特别值得一提的是，皇家道尔顿是众多西式瓷器品牌中，唯一致力于开发中式餐具的一个。1887年，汉瑞•道尔顿成为第一位被授予骑士爵位的瓷器艺人。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17184012/69-7.jpg)
 
-ROYAL DOULTON旗下的品牌包括ROYALCROWNDERBY、MINTON、ROYALDOULTON及ROYALALBERT。这四个品牌层次不同，知名度由高到低，价格也随之变化。
+这一年多的疫情期给餐饮业带来了很大的影响。尤其疫情初期，政府不让营业，消费者亦不敢出门吃饭，这导致部分企业资金流断裂。再加上每天的房租、工资、税收带来的压力，小型抗压能力差的餐馆纷纷关闭——这无异是一场灭顶之灾。剩余一些餐馆只经营外卖服务，维持着基本的运营。随着疫情的发展，餐饮业也在逐渐恢复中，各种针对疫情的保护措施也应运而生：餐桌之间保持距离，用透明的板子隔离，在室外建起了简易的小屋……
 
-编辑/发稿：369文驹
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+中共向世界投放病毒，把世界经济搞弱，企图通过发展疫苗经济壮大自己的产业链。闫丽梦博士反复告诉全世界人民病毒来源的真相，亦警告“留给人类的时间不多了”。GTV也持续不断地报道并揭露中共制造病毒并传播病毒的证据，唤醒世界人民认清CCP的邪恶，并将中共与中国人划分开来。
+
+只有消灭CCP，疫情才能彻底解决，我们新中国联邦人肩负使命，传播真相是我们责任！
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
 **更多资讯，更多关注**
 
 [**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -41,5 +40,11 @@ ROYAL DOULTON旗下的品牌包括ROYALCROWNDERBY、MINTON、ROYALDOULTON及ROYA
 **[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0

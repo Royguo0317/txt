@@ -1,69 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】铜墙铁壁-逻辑人生-
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1252004/)
+## 【快讯】在24小时内有5000多名摩洛哥人进入后，西班牙动员军队
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252264/)
 
-作者：纽约香草山健身部澄道
+西班牙政府代表说在星期一午夜时分24小时内有超过5000名摩洛哥人进入休达市。其中大约1 500人将是未成年人，因此不能迅速驱逐他们，因为西班牙当局希望能够像4月份上周末危机之后那样与摩洛哥打交道，当时只有一百多名来自邻国的年轻受试者通过同一路线进入西班牙领土。
 
+截止到本周一，进入的人数已经无限高，警方消息人士估计，人数可能接近9000人。
 
+西班牙政府决定动员军队，特别是拉军团和正规军的部队，加强安全部队对该市的控制。
 
-![This image has an empty alt attribute; its file name is logo-3-1.jpeg](https://lh3.googleusercontent.com/SaJZPk42URxKvcjI6mk27LyJOSTG5WG1qB_b9WORHg0nqpIm4eqKXjsuG-6kICF6NA1RqkboH0_lkTlDaZ4SKyuROq4EUNCFdszSht4o80nJBAhv8CRUKOfOitWovEn6vG7pDC9H)
+士兵们将在当地警察、国民警卫队和国民警卫队手中负责”分组散居的移民”，并提供政府代表团要求的所有”后勤支助”。
 
+国家海关总署和自治市在下午晚些时候召开了一次远程信息处理会议，协调东道主装置，该装置旨在集中处理去年3月中旬通过该通道以来大部分空无一人的商船。
 
+周一下午，一名摩洛哥成年男子在试图避开数百名同胞的塔拉哈尔防波堤时死亡。
 
-铜墙红墙防火墙
+参考链接：[https://twitter.com/disclosetv/status/1394260965613572099?s=20](https://twitter.com/disclosetv/status/1394260965613572099?s=20)
 
-墙强墙深墙久远
+整理撰稿：蓝精灵
 
-墙国人生
+校对发布：Penny
 
-金山银山打江山
-
-山绿山靑山峰绵
-
-山雾服民
-
-人民是我们的
-
-铜墙铁壁
-
-仅仅是哈马斯吗？
-
-我们是人民的
-
-铜墙铁壁
-
-威武的以色列楷模先
-
-＂不需要你出来上街！＂
-
-这是文贵先生在替我们档子弹
-
-救命铜墙
-
-＂灭共就加入新中国联邦！＂
-
-这是七哥不忍你我被＂红魔＂带走
-
-正道铁壁
-
-@爱动爱议码0517
-
-@澄道来了
-
-校对/发稿：火内
-![This image has an empty alt attribute; its file name is 5%E6%9C%88.jpg](https://lh3.googleusercontent.com/W9WhsN7GGqPy3vb1cHr0KH8qDlnnatKwkn-UmQCewlT7vEXGBCXApqJUKWgdDyph7vqyzAbYjoMYQz99FVMNO6PpNhbyw_vfIFjxkak-mwXhdkQXqQv46-Vf7s0BX2mLf_bKM6Pl)
-更多资讯，更多关注
-
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[纽约香草山农场GTV -MOS TALK](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)香草山访谈
-
-[纽约香草山农场Twitter](https://twitter.com/HIMALAYA_MOS)(中文)
-
-[纽约香草山农场Twitter(英文)](https://twitter.com/MosHimalaya)
-
-[纽约香草山农场YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

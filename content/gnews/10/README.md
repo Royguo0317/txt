@@ -1,41 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】亿万富翁前泽佑支付费用将于今年12月前往国际空间站
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252597/)
+## 【独立观点】驳斥环球社论，揭穿中共在中东冲突中扮演的真正角色
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1252724/)
 
-Mailsonline报道：
+作者：纽约香草山健身部 Jack Li文阳
 
-日本亿万富翁前泽佑作于2023年购买了SpaceX的“星际飞船”绕月轨道飞行，并已支付了今年12月前往国际空间站的另一次飞行费用。
 
-在Maezawa绕月旅行之前，他在电影制片人中将前往NASA的轨道实验室进行为期12天的计划，并计划在YouTube上分享这种非现实的体验。
 
-两人将于12月8日乘坐从哈萨克斯坦的拜科努尔宇宙飞船上发射俄罗斯联盟号航天器，该航天器是通过太空冒险组织的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
 
-这次飞行的费用尚未公布，但据报道，以前的太空游客已经为执行国际空间站的任务支付了2000万至4000万美元。
 
-该任务将由宇航员亚历山大·米苏尔金（Alexander Misurkin）指挥，后者将搭载前泽和他的船员。
 
-前泽将于下个月在俄罗斯星城的尤里·加加林宇航员培训中心开始宇航员培训。
+近一个星期以来，中东以色列和哈马斯双方激烈冲突。中共突然高调谴责美国多次阻止联合国安全理事会通过联合声明。
 
-总共有七个自负盈亏的个人访问了空间站，前泽计划成为第8位和日本的第一个。
+中共环球网如此社评：“美国有负于世界，更伤害了穆斯林”，巴以本轮冲突的始末中的确有一些公说公有理婆说婆有理的空间。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17231117/Untitled-design-32.png)
+实际上，这次冲突起于哈马斯首先对以色列发起密集火箭弹袭击，中共罔顾事实，故意混淆冲突的前因后果，就是要把受害方从以色列换成哈马斯。中共国为了争夺世界霸权，发动病毒超限战，在全世界释放病毒，造成过亿人感染，三百多万人丧生，试问中共，是谁有负全世界？
 
-尽管Maezawa的计划是为SpaceX登月任务提供女性陪伴，但自2019年宣布这一机会以来，他已经收到了300,000多份申请。
+环球说：美国袒护以色列对巴勒斯坦人不成比例的杀戮，并引起全球的普遍愤慨。
 
-前泽在推特上确认，印度的签约人数最多，为期六天，其次是美国，日本，然后是法国。
+可以说以色列这次的反击给全世界展示了反恐战争的新战法，以色列利用刀片导弹，针对目标人物，定点打击。附加杀伤率几乎为零，刀片导弹不会爆炸，只是用刀片斩首，车内的其他人员几乎都不会伤及。以色列实施14连杀，专打哈马斯军事领导人，打得哈马斯跪地求饶。哈马斯把无辜平民当作盾牌，把军事设施、武装人员、弹药库隐藏在居民区。以色列采用精准打击，空袭前还电话联系屋内的居民转移，可以说在战争史上开了先河，把对平民的损伤减少到最低。
 
-然后，在选择八个人之前，本月将进行最后的采访和体检。
+环球还说：美方的态度对人道主义无以交代，拜登政府对巴勒斯坦人权的漠视打了自己的耳光。所谓恶意宣称中（共）国新疆穆斯林遭到“种族灭绝”，但对巴勒斯坦人权在众目睽睽之下遭到的践踏，那个民族被从被占领土地上往外驱赶却无动于衷，华盛顿显然不喜欢穆斯林，也不喜欢中（共）国，但它唯独“喜欢”中国新疆的穆斯林。
 
-参考链接：
+中共终于露出狐狸的尾巴，这才是此“社论”的真正目的。历史上没有一场战争冲突没有平民死伤的，以色列尽最大努力，利用最高超的情报能力和高科技，把减少伤及无辜，做到了时代巅峰。哈马斯首先发动袭击，一周内发射了3千多枚火箭弹，试问中共，哈马斯的人道主义何在？中共生拉硬拽，把自己在新疆对维吾尔族人大规模种族灭绝反人类行径，和中东被哈马斯拉扯进战火中的无辜受害者相提并论。实属荒唐透顶，无耻至极。
 
-[https://www.dailymail.co.uk/sciencetech/article-9588021/Japanese-billionaire-purchases-trip-International-Space-Station-December.html?ito=social-twitter\_mailonline](https://www.dailymail.co.uk/sciencetech/article-9588021/Japanese-billionaire-purchases-trip-International-Space-Station-December.html?ito=social-twitter_mailonline)
+环球称：华盛顿如今为了集中精力对付中俄，急于收缩中东战线，不想为促成巴以和平投入新的力量和资源。但它想固化中东有利于以色列和美国战略利益的大格局，搞“无痛收缩”。
 
-图片来源：[https://www.dailymail.co.uk](https://www.dailymail.co.uk/sciencetech/article-9588021/Japanese-billionaire-purchases-trip-International-Space-Station-December.html?ito=social-twitter_mailonline)
+中共真正意识到美国是要集中精力因应中共的全球霸权，这点没错的，而且全世界的反共力量正在急速集结，追查病毒真相稳步推进，反共灭共可谓不可逆，不可违。就算是中共的狐朋狗友，也会一个个站到正义阵营，不会和中共一起冲向地狱的。美国要反共，就不会把精力消耗到其他地缘政治的冲突中。这次冲突的幕后黑手呼之欲出，就是要分散美国西方国家的精力，分化灭共阵营的邪恶中共。
 
-整理撰稿：蓝精灵
+参考阅读：https://opinion.huanqiu.com/article/43A31f7b1jS
 
-校对发布：Penny
+校对/发稿：火内
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
+**更多资讯，更多关注**
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

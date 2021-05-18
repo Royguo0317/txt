@@ -1,44 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月17日美国政要和政评家反共推文精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1252419/)
+## 【战友心声】消灭中共是新中国联邦人的使命
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1252176/)
 
-参议员乔什·霍利： 这真是一个令人震惊的报道，一家据称是美国的公司出卖美国工人，背叛了美国理想，并有效地促进了中国的奴隶制经济。 【附纽约时报报道：审查，监视和利益：苹果公司在中共国艰难的讨价还价】
-
-
-
-> This is a truly shocking report of a supposedly American company selling out American workers, betraying American ideals, and effectively promoting a slave-labor economy in China [https://t.co/Be0JsyFYtw](https://t.co/Be0JsyFYtw)
-> — Josh Hawley (@HawleyMO) [May 17, 2021](https://twitter.com/HawleyMO/status/1394398558808264705?ref_src=twsrc%5Etfw)
+作者：纽约香草山福音部 Atermis
 
 
 
-参议员瑞克·斯科特： 华盛顿邮报观点文章是对的。奥林匹克的资助者可以将人权置于利益之上，或为共产中国针对维吾尔人的持续的种族灭绝开绿灯。 够了够了。我们必须将2022奥林匹克移至一个尊重人权的国家。 （转推华盛顿邮报观点文章：新的报告称中共针对维吾尔人的压制不仅是文化上，还是身体上的。）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
 
 
-> .[@PostOpinions](https://twitter.com/PostOpinions?ref_src=twsrc%5Etfw) is right. Sponsors of the [@Olympics](https://twitter.com/Olympics?ref_src=twsrc%5Etfw) can either put human rights above profits, or give a green light to Communist China to perpetuate its genocide against the Uyghurs.
-> 
-> Enough is enough. We must move the 2022 Olympic games to a nation that respects human rights. [https://t.co/d0ngPJMfn5](https://t.co/d0ngPJMfn5)
-> — Rick Scott (@SenRickScott) [May 17, 2021](https://twitter.com/SenRickScott/status/1394356800519016460?ref_src=twsrc%5Etfw)
+近日，中东加沙地区发生武装冲突。对此，联合国正在呼吁防止全面战争。先前美国已从中东撤军，但中东地区现下的武装冲突不得不让美国考虑是否重返中东。
+
+不难想中共在这背后必然做了推手，其阴谋策划的目的是搞乱中东地区，用以分散美军的军事实力，推迟或减缓中共解体的时间，试图为其腐朽残暴的政权续命。 然而，以色列打击哈马斯的军事手段让中共的阴谋诡计难以得逞，更使血腥恶臭的中共政权感到恐惧。这真是应了一句话，中共“偷鸡不成，反蚀一把米”。
+
+中共向世界投放生物武器病毒，并且用假疫苗欺骗本国百姓，同时向国际出口假疫苗，毒害未感染的健康人群。这也造成国际上进口中共假疫苗的国家更大面积的病毒感染，导致更多群体死亡。与此同时，中共向印度投放了第二次更致命的病毒，这亦导致日本和台湾地区也随后发现新型病毒感染，造成新一波增强性病毒大爆发，危害了更多的人群。
+
+现今，澳大利亚及其他国家中，凡是对抗中共的、民主正义的国家都面临着新一轮的病毒威胁。但中共这种邪恶的超限生物武器病毒的危害已被美国和西方多国的军方认清，其犯罪事实也不容中共抵赖。如今，包括曾经亲共的WHO的谭德赛、美国的福奇、制毒专家巴里克等人也不敢再为中共病毒站台，更别说隐瞒病毒真相了。至此，已有多国科学家联合要求彻查中共实验室，以期能还原病毒真相。
+![]()![](https://media.discordapp.net/attachments/721544615953432698/843351722268819496/image0.png?width=1083&amp;height=609)
+郭文贵先生在5月15号的盖特里提到，《印度时报》在5月12日刊登了一篇文章“关于中共病毒起源：中共的生物武器的铁证”。该文章的作者曾经担任过印度联合情报委员会的主席和副国家安全顾问。文中第一部分内容提到了中共徐德忠将军编写的军事教材——《非典非自然起源和人制人新种病毒基因武器》；文章第二部分内容则是介绍闫丽梦博士揭露中共病毒真相的经历。
+
+印度的情报界又一次真实地揭露中共病毒的起源，这表示中共利用病毒灭绝人类的罪责已无路可逃。《路德时评》节目也在5月16日播报了福克斯采访现任美众议员努涅斯先生和前国务卿蓬佩奥先生的相关视频。采访中其二人都认定，中共增强性病毒就是生物武器化、就是生物战——中共病毒是来自中共武汉病毒所。而今，美国已经做好了防范，用以应对来自中共的再一次投放生物武器的恐怖袭击。
+
+郭文贵先生在盖特中爆料，中共派秦刚来美国，妄图阻止新中国联邦成立一周年的庆典活动，中共也要对文贵先生和闫丽梦博士进行新一轮的迫害——这是中共的邪恶本质和惯用的下三烂流氓手段。但是，新中国联邦宣言和国歌已经击破中共的底线。郝海东先生铿锵有力地宣读新中国联邦宣言，代表着消灭中共是正义的必须，没有共产党的新中国联邦是全体人民和世界繁荣之必须。宣言震撼了全中国和世界文明的每个角落，更使中南坑的老杂毛们胆战心惊。
+
+郭文贵先生告诉世界：新中国联邦人是可尊重、可信赖、可以成为好朋友的民族。新中国联邦华人是以全新的形象展示自己，并告知世界：我们新中国的华人即将走向一个新的纪元。
+
+（本文仅代表作者观点）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 
 
-前国务卿蓬佩奥： 中国共产党和国会的一些自由派人士如[@BernieSanders](https://twitter.com/BernieSanders)，[@AOC](https://twitter.com/AOC) 和 [@IlhanMN](https://twitter.com/IlhanMN) ，一同支持哈马斯恐怖分子并与美国和以色列为敌。他们的共同特征是什么？他们所有人都否认美国是造福世界的力量。他们错了。
-
-
-
-> The CCP and some liberals in Congress like [@BernieSanders](https://twitter.com/BernieSanders?ref_src=twsrc%5Etfw), [@AOC](https://twitter.com/AOC?ref_src=twsrc%5Etfw) & [@IlhanMN](https://twitter.com/IlhanMN?ref_src=twsrc%5Etfw) are siding with Hamas terrorists and against America and Israel. What’s the common denominator? All deny America is a force for good in the world. They are wrong.[https://t.co/xuO9a1H6Cm](https://t.co/xuO9a1H6Cm)
-> — Mike Pompeo (@mikepompeo) [May 17, 2021](https://twitter.com/mikepompeo/status/1394316921315729417?ref_src=twsrc%5Etfw)
-
-
-
-章家敦（中国问题专家）： 中共国 [#China](https://twitter.com/hashtag/China?src=hashtag_click) 几乎确定地有一个全国性的生物武器项目，这是对生物武器条约的违犯。为什么拜登不谈论这个呢？（转闫博士的推文）
-
-
-
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) almost certainly has a nationwide biological weapons program in violation of the Biological Weapons Convention. Why is [#Biden](https://twitter.com/hashtag/Biden?src=hash&amp;ref_src=twsrc%5Etfw) not talking about this? [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) [https://t.co/xQln0O6PmP](https://t.co/xQln0O6PmP)
-> — Gordon G. Chang (@GordonGChang) [May 17, 2021](https://twitter.com/GordonGChang/status/1394370396351303690?ref_src=twsrc%5Etfw)
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
 
 
 

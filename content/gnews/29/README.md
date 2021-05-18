@@ -1,42 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【郭先生直播经典回顾】2017年6月10日报平安直播视频
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1252268/)
+## 5月17日美国政要和政评家反共推文精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1252419/)
 
-出品：Gnews编辑部郭先生直播资料库整理工作组
+参议员乔什·霍利： 这真是一个令人震惊的报道，一家据称是美国的公司出卖美国工人，背叛了美国理想，并有效地促进了中国的奴隶制经济。 【附纽约时报报道：审查，监视和利益：苹果公司在中共国艰难的讨价还价】
 
-盗国贼们继续利用“依法审判”的机会，大肆利用手中的权力黑我，这不像一个国家的行为，也不像一个国家的胸怀，超出想象。
 
-——郭文贵
 
-**要点一：大清朝和文化大革命将我们驯化成了鸵鸟心态**
+> This is a truly shocking report of a supposedly American company selling out American workers, betraying American ideals, and effectively promoting a slave-labor economy in China [https://t.co/Be0JsyFYtw](https://t.co/Be0JsyFYtw)
+> — Josh Hawley (@HawleyMO) [May 17, 2021](https://twitter.com/HawleyMO/status/1394398558808264705?ref_src=twsrc%5Etfw)
 
-很多人问为什么挂个鸵鸟屁股的画，还对着你的脑袋。外国人把我们中华民族就形容成鸵鸟，就是把头扎到土里边，以为天下什么事情都不发生了。中华民族以前并不是这样，曾经很强大，战国和大秦朝的时候我们的男人、女人都极为优秀。后来中国经历大清朝，再经历了文化大革命，中国男人就成了鸵鸟，我绝对反对这种鸵鸟心态、鸵鸟行为。这幅画作家要表达的就是：连鸵鸟都要被信息时代和民主、自由、法治感悟了，不再把头钻底下，而是昂着头进城，他们争取想要的，拥有办公室、电脑和美女。这是非常现代的精神，这也是美国主义，号称纽约精神。我们绝不能当鸵鸟，也绝不能让鸵鸟心态害了我们，绝对不要为了吃饱、睡好、娶媳妇或嫁老公，放弃一切，我们要追求这种生活。
 
-**要点二：大连案子开庭审判不是依法治国，而是依法治郭**
 
-我不想就大连开庭的事情做过多的评论。大家都以为大连审判是依法治国的一个进步，但我认为这是“依法治郭”，不是依法治国。我的企业和我关联的企业涉及到这个案件，他们叫我实际控制人，现在案件正在审理中，还轮不到我说话。无论是马建副部长的视频，还是同一天公布的孟慧卿的案子，包括他们指控我们的“骗贷骗汇案”，我要让国家机器先说完我再说。我相信事实和真相，会让大家看到不同的情况。开庭后我发了推特，有几百个转发，40多万次观看。执政者完全没有自信，删除了推友的跟帖，下面全是五毛的回复。为什么北朝鲜和中国搞网络长城？它基于两点：第一个是执政者的恐惧，不想让人知道真相。事实上是盗国贼们的恐惧，他们怕把人们反腐败、反盗国贼的力量变成了反国家、反政府。第二个是“怕造谣”。咱们领导人在外国领导人问为什么中国有防火墙时，就会说中国人素质太差，只有中国的老百姓只会闹事，不懂民主。如果中国的GDP从6000达到13000的时，那就不需要网络控制了，那时候中国的中间阶层就成为了中国的网络主力，就不是农民、反民和访民了。大连审判的时候，网络控制很厉害，我们的帖子全被删除。现场被邀请的 “40多家媒体”，官方CCTV就给了定义——郭文贵犯罪。大家的感觉是依法审郭，依法治郭，网络宣传我就是犯罪分子。我所有的合伙人都在24小时观察着事情的动向，着急让我给他们答复。
+参议员瑞克·斯科特： 华盛顿邮报观点文章是对的。奥林匹克的资助者可以将人权置于利益之上，或为共产中国针对维吾尔人的持续的种族灭绝开绿灯。 够了够了。我们必须将2022奥林匹克移至一个尊重人权的国家。 （转推华盛顿邮报观点文章：新的报告称中共针对维吾尔人的压制不仅是文化上，还是身体上的。）
 
-**要点三：文贵先生的员工和家人几年来饱受折磨，不能拿别人的命做代价去搞革命**
 
-大连的这次审判，对我的员工是个交待。一个月以前我太太和女儿还在国内，我们刚刚经历了欢聚之喜和欢聚之痛。我员工的家人谁不想欢聚！我不想因为我，让我的员工们不能和家人团聚。杨英是一个单身的母亲，杨宇涛被抓进去时老婆还怀着孕，孩子两岁半了还没有见过，谢红林家里边老的少的几乎是崩溃状态。我不能为了理想，员工都不要了，所以这时候大连的依法审判，我是绝对举双手赞成的。中国建国以来除了审江青是直播，再就是审我们这个案子是直播了，审薄熙来的案子严格讲都不算直播，这个事情很有意思。现在管案子的新领导人有很强烈的法治观念和国际视野，参与的人都是反应非常的正面，而且尽可能的给予家属们、律师们人格的尊重和人性的关怀，这很难得。
 
-**要点四：盗国贼们大肆抹黑、骇客想让文贵先生闭嘴，并不能阻挡爆料的进程**
+> .[@PostOpinions](https://twitter.com/PostOpinions?ref_src=twsrc%5Etfw) is right. Sponsors of the [@Olympics](https://twitter.com/Olympics?ref_src=twsrc%5Etfw) can either put human rights above profits, or give a green light to Communist China to perpetuate its genocide against the Uyghurs.
+> 
+> Enough is enough. We must move the 2022 Olympic games to a nation that respects human rights. [https://t.co/d0ngPJMfn5](https://t.co/d0ngPJMfn5)
+> — Rick Scott (@SenRickScott) [May 17, 2021](https://twitter.com/SenRickScott/status/1394356800519016460?ref_src=twsrc%5Etfw)
 
-盗国贼们继续利用“依法审判”的机会，大肆利用手中的权力黑我，这不像一个国家的行为，也不像一个国家的胸怀，超出想象。最近，盗国賊加大了对我的骇客和对我推特的攻击，加大了对我的造谣和对推友的分化，目的就是让我闭嘴。大连的案子，我们推友转播量最起码几个亿，我这件事情已经成了标杆性的事件。我有些话是让大家引起争议的，这样才能让大家说出话题，才能钓出我们想要的鱼。等到16号时候我要亮几个身份、几张照片，大家准备好心脏。刘呈杰和贯军照片谁有？他们的身份证谁有？一个刘呈杰的身份现在价值一个亿。一个小时的节目，一句话可能就是惊天动地，这就是媒体的力量。我过去的推特和视频都藏了话， 我未来会一一解释给你们，希望大家来验证。
 
-**要点五：郭七条一定会改，但目前它是可执行的**
 
-是否改郭七条，我一定会给大家一个答案。我才48岁，再活个二三十年，还有1万多天。我希望所有的推友在未来三年给我第一次考评，以后每三年一考评，然后和你们一起创造属于我们的辉煌，要回属于我们的尊严和安全。郭七条就是最好的，也是现在最可执行的，这非常重要。一切都是刚刚开始，千万不要做出冲动的事情，咱们的路还很长很长，给我点时间，一切都是刚刚开始！
+前国务卿蓬佩奥： 中国共产党和国会的一些自由派人士如[@BernieSanders](https://twitter.com/BernieSanders)，[@AOC](https://twitter.com/AOC) 和 [@IlhanMN](https://twitter.com/IlhanMN) ，一同支持哈马斯恐怖分子并与美国和以色列为敌。他们的共同特征是什么？他们所有人都否认美国是造福世界的力量。他们错了。
 
-听写：康州盘古农场 阿罗，华盛顿DC农场  伊戈爾（文心）
-要点原文：纽约香草山农场月野兔
-要点原文校对：巴塞喜悦农场 Awen
-要点整理：纽约香草山农场 Karen（海嘯）
-要点整理校对：纽约香草山农场 GForever(文紫)
-发布整理：休斯顿星光农场 文顺
-发布：日本樱花团 二丫
-**视频链接：**[**https://youtu.be/gkufm-IM0-U**](https://youtu.be/gkufm-IM0-U)（视频时长：**31**分）
+
+
+> The CCP and some liberals in Congress like [@BernieSanders](https://twitter.com/BernieSanders?ref_src=twsrc%5Etfw), [@AOC](https://twitter.com/AOC?ref_src=twsrc%5Etfw) & [@IlhanMN](https://twitter.com/IlhanMN?ref_src=twsrc%5Etfw) are siding with Hamas terrorists and against America and Israel. What’s the common denominator? All deny America is a force for good in the world. They are wrong.[https://t.co/xuO9a1H6Cm](https://t.co/xuO9a1H6Cm)
+> — Mike Pompeo (@mikepompeo) [May 17, 2021](https://twitter.com/mikepompeo/status/1394316921315729417?ref_src=twsrc%5Etfw)
+
+
+
+章家敦（中国问题专家）： 中共国 [#China](https://twitter.com/hashtag/China?src=hashtag_click) 几乎确定地有一个全国性的生物武器项目，这是对生物武器条约的违犯。为什么拜登不谈论这个呢？（转闫博士的推文）
+
+
+
+> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) almost certainly has a nationwide biological weapons program in violation of the Biological Weapons Convention. Why is [#Biden](https://twitter.com/hashtag/Biden?src=hash&amp;ref_src=twsrc%5Etfw) not talking about this? [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) [https://t.co/xQln0O6PmP](https://t.co/xQln0O6PmP)
+> — Gordon G. Chang (@GordonGChang) [May 17, 2021](https://twitter.com/GordonGChang/status/1394370396351303690?ref_src=twsrc%5Etfw)
+
+
 
 0

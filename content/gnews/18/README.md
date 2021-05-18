@@ -1,31 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】对中国技术法案展开辩论 美国参议院投票表决
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252507/)
+## 【墙内热搜】习近平“偶遇”游园群众，以假治国再添例证
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1252570/)
 
-路透社大卫·谢泼德森报道：
+作者：纽约香草山媒体部 天下大同
 
-美国参议院以86票对11票结果。在周一开始辩论《无边界法》。该法案授权在五年内提供超过1100亿美元的资金，用于基础和高级研究，研究的商业化以及人工智能（AI）等关键技术领域的教育和培训计划。
 
-参议院民主党领袖查克·舒默（Chuck Schumer）说，参议院将从周二开始辩论该法案一到两个星期。
 
-提案摘要草案显示，正在考虑的法案包括20亿美元，促进汽车和国防领域的半导体生产和研究，但一些参议员也在努力采取措施，将520亿美元用于芯片。计划中可能会包括其他与中国有关的账单。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-简评：
 
-该法案正在努力将制造业，基础行业， 高技术外包行业全部回流到本土。这个法案将对未来不被纳入美国或者其盟国商业系统的国家重创。中共国作为欧美国家主要的生产外包，技术外包的产业供应链，这个法案对其影响巨大。一意孤行地内卷，拒绝接受公平透明地商业系统，勾结西方社会邪恶精英，一定被在不久地将来陷入崩塌。
 
-参考链接：
+近日，网上流传着一段习近平周三（12日）视察河南南阳，在南阳月季博览园中“偶遇”一批“群众”，被热烈欢迎的视频。
 
-[https://www.reuters.com/technology/us-senate-votes-open-debate-china-tech-bill-2021-05-17/?taid=60a2fedc905c070001e8a9ea&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/technology/us-senate-votes-open-debate-china-tech-bill-2021-05-17/?taid=60a2fedc905c070001e8a9ea&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+视频中，习近平问群众：“你们怎么知道我来了？”
 
-圖片來源：[https://www.reuters.com/](https://www.reuters.com/)
+群众说：“看到你了。”接着有人说：“游园的时候。”
 
-整理撰稿：蓝精灵
+习近平说：“你们是诸葛亮啊？天文地理都知道啊。”
 
-校对发布：Penny
+群众：“哈哈哈！”
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+习近平问：“是本地人吗？
+
+群众说：“是，我们是来采风的。”
+
+习近平问：“你们是搞美术的呀？”
+
+群众说：“搞摄影的。”
+
+习近平接着问：“没照相机啊？”
+
+群众回答：“采采景”、“滑手机拍！”
+
+习近平又聊了几句当地的月季花，最后在群众齐呼口号“欢迎习书记再来南阳”中，离开了现场。
+
+![]()![](https://media.discordapp.net/attachments/824587088309649429/843972969617162240/image0.jpg)
+
+一名网友总结到：“他知道他们知道他来了，他们知道他知道他们知道他来了！他知道他们都在演，他们知道他在演，他知道他们知道他在演，他们知道他知道他们在演……”
+
+事实上，中央领导人到各地方时，其安保是很严格的。因此，能够和领导会面的所谓“群众”，都要经过层层的政审，否则，普通人根本不可能接近领导所在的区域。但是，中共就是要把这种精心安排的会面，演成一场“偶遇”剧，并且把假话说的如此欢乐融洽，一点也不觉得尴尬，没有一丝羞耻感。由此可见，参与造假者的脸皮之厚，功力之深。
+
+郭文贵先生在2021年5月16日的直播中讲：“什么样的人民，就会诞生什么样的国家集权、政权和体制。今天共产党的疯狂、傲慢、无知，打着灯笼找灯笼，瞪着眼说瞎话，老百姓还都相信。中国人民和中国社会，已经失去了人类必须要有的，对天地、万佛万神的敬畏之心和信仰。”
+
+中国社会的现状就是，说瞎话比说真话的过得好、过得富有；做恶人比做善人更有权利；骗人得到尊重，奉献得到贬低和怀疑。这样的国家和民族，怎么会有未来和希望呢？出现这样的情况，不仅仅是中共的错，每个中国人都需要反思。共产党消灭后，我们任重道远：必须要让好人能过上好的生活；让大众有信仰，对天地和万佛万神有一个敬畏之心，唯真不破；让中国成为一个和平、法制独立、信仰自由、一人一票的国家。我们要改变这种以假为荣的现状，重塑中国人在世界上的新形象。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0

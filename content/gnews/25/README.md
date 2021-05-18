@@ -1,31 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【锐语】什么样体系的国家才需要扫黑除恶常态化？
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252352/)
+## 【快讯】对中国技术法案展开辩论 美国参议院投票表决
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252507/)
 
-中共国在党控媒体新华网上发表了下面一条信息：
+路透社大卫·谢泼德森报道：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17205155/160-1.jpg)
+美国参议院以86票对11票结果。在周一开始辩论《无边界法》。该法案授权在五年内提供超过1100亿美元的资金，用于基础和高级研究，研究的商业化以及人工智能（AI）等关键技术领域的教育和培训计划。
 
-赵克志：中央党校研究生学历，现中共十九届常委，国务委员，国务院党组成员，公安部部长，党委书记，中央政法委副书记，总警监（来自百度）
+参议院民主党领袖查克·舒默（Chuck Schumer）说，参议院将从周二开始辩论该法案一到两个星期。
 
-网上资料显示，扫黑除恶常态化机制指：坚持依靠人民群众，畅通举报渠道，完善举报人奖励机制，建立动态线索进展跟踪等等。
+提案摘要草案显示，正在考虑的法案包括20亿美元，促进汽车和国防领域的半导体生产和研究，但一些参议员也在努力采取措施，将520亿美元用于芯片。计划中可能会包括其他与中国有关的账单。
 
-中共控制的网络系统， 摄像头系统，人脸识别系统，税务银行联动系统内， 教育系统，车船系统，一个大大的监控网络。在高科技遭遇世界文明国家封锁的此时，公开了中共以黑治国，以警治国的真实本质。科幻电影再现，老百姓将彻底沦为卖命的人肉电池。
+简评：
+
+该法案正在努力将制造业，基础行业， 高技术外包行业全部回流到本土。这个法案将对未来不被纳入美国或者其盟国商业系统的国家重创。中共国作为欧美国家主要的生产外包，技术外包的产业供应链，这个法案对其影响巨大。一意孤行地内卷，拒绝接受公平透明地商业系统，勾结西方社会邪恶精英，一定被在不久地将来陷入崩塌。
 
 参考链接：
 
+[https://www.reuters.com/technology/us-senate-votes-open-debate-china-tech-bill-2021-05-17/?taid=60a2fedc905c070001e8a9ea&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/technology/us-senate-votes-open-debate-china-tech-bill-2021-05-17/?taid=60a2fedc905c070001e8a9ea&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-
-> 掃黑除惡竟然能夠常態化
-> CCP這是想搞以前的「抓右派」
-> 還是在暗示自己就是黑惡勢力，所以野火燒不盡，春風吹又生？ [pic.twitter.com/57Bik5q7v5](https://t.co/57Bik5q7v5)
-> — Andy5 (@andy5\_123) [May 17, 2021](https://twitter.com/andy5_123/status/1394409421720023040?ref_src=twsrc%5Etfw)
-
-
-
-图片来源：[https://www.hk01.com/](https://www.hk01.com/)
+圖片來源：[https://www.reuters.com/](https://www.reuters.com/)
 
 整理撰稿：蓝精灵
 
