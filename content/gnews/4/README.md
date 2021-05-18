@@ -1,36 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【锐语】什么样体系的国家才需要扫黑除恶常态化？
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252352/)
+## 【有声读物】“反腐”不减，腐败长存
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1252544/)
 
-中共国在党控媒体新华网上发表了下面一条信息：
+配音：香草山录音组 蒙古鸿雁
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17205155/160-1.jpg)
-
-赵克志：中央党校研究生学历，现中共十九届常委，国务委员，国务院党组成员，公安部部长，党委书记，中央政法委副书记，总警监（来自百度）
-
-网上资料显示，扫黑除恶常态化机制指：坚持依靠人民群众，畅通举报渠道，完善举报人奖励机制，建立动态线索进展跟踪等等。
-
-中共控制的网络系统， 摄像头系统，人脸识别系统，税务银行联动系统内， 教育系统，车船系统，一个大大的监控网络。在高科技遭遇世界文明国家封锁的此时，公开了中共以黑治国，以警治国的真实本质。科幻电影再现，老百姓将彻底沦为卖命的人肉电池。
-
-参考链接：
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-> 掃黑除惡竟然能夠常態化
-> CCP這是想搞以前的「抓右派」
-> 還是在暗示自己就是黑惡勢力，所以野火燒不盡，春風吹又生？ [pic.twitter.com/57Bik5q7v5](https://t.co/57Bik5q7v5)
-> — Andy5 (@andy5\_123) [May 17, 2021](https://twitter.com/andy5_123/status/1394409421720023040?ref_src=twsrc%5Etfw)
 
 
 
-图片来源：[https://www.hk01.com/](https://www.hk01.com/)
 
-整理撰稿：蓝精灵
+澎湃网5月16日报道，中共最高检察院通报，2021年一季度涉及过问、干预、插手检查办案数量达40006件，是2020年同期的5.6倍。
 
-校对发布：Penny
+2018年至19年，中共检察机关共查处各种职务犯罪40326人，其中超80%为贪污贿赂犯罪。2020年检察机关起诉职务犯罪1.6万人，虽相较18、19年有所下降，但从以下数据中，我们仍能看出腐败形势并未好转。2020年检察机关侦办司法人员职务犯罪1421人（是2019年的1.63倍）。中共纪检监察机关数据2020年立案立案61.8万件，处分60.4万人（其中给予党纪处分占比86.4%）。虽然明面上的案件数量和查处人数有所降低，但以党纪代法律的处置方式仍是其中主要缘由。
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+
+
+**文字版原文：[【鹰眼墙国】“反腐”不减，腐败长存](https://gnews.org/zh-hans/1248775/)**
+
+作者：纽约香草山写作组 鹰(文言)
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

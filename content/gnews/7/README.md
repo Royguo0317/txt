@@ -1,30 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】出现一个新的媒体巨头
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252321/)
+## 【有声读物】英国开始全面拆除华为设备
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1252505/)
 
-AT＆T表示将把Warner Media与Discovery联合起来，组成一个全新的公司。 CNN，HBO，TNT等品牌将与TLC，HGTV，Animal Planet等共同组成一个强大的流媒体。
+配音：香草山录音组 蒙古鸿雁
 
-简评：
-
-疫情大流行之后，人们似乎都开始明白掌握媒体话语权的重要性，流量就是未来，信息就是生存的基础。
-
-参考链接：
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-> A new media giant has emerged – this time it's AT&T saying it will conjoin Warner Media with Discovery to form a whole new company. Brands such as CNN, HBO, TNT and others will join forces with TLC, HGTV, Animal Planet and more to form a streaming powerhouse. [pic.twitter.com/uOaGHOunuH](https://t.co/uOaGHOunuH)
-> — The News with Shepard Smith (@thenewsoncnbc) [May 17, 2021](https://twitter.com/thenewsoncnbc/status/1394436276267454466?ref_src=twsrc%5Etfw)
 
 
 
-图片来源：[https://twitter.com/](https://twitter.com/)
 
-整理撰稿：蓝精灵
+5月15日，彭博社报道，今天英国开始拆除中共国华为的5G电信设备，这一工作刚刚在赫尔市启动。据报道，赫尔市将实现华为关键设备为“零”的第一个英国城市，它将在7月份之前在市区淘汰所有的华为设备，改为使用诺基亚的设备。
 
-校对发布：Penny
+英国政府还确认，不仅仅华为最近安装的5G设备需要拆除，华为在英国无处不在的4G基站也需要拆除。华为不仅失去了英国的5G市场，还失去了旧有的4G市场，这意味着华为将彻底告别英国市场。
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+
+
+**文字版原文：[【独立观点】英国开始全面拆除华为设备](https://gnews.org/zh-hans/1247556/)**
+
+作者：纽约香草山健身部  Ivy001
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

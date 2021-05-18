@@ -1,56 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【锐语】中共国外交部回应巴以冲突 代表宇宙督促美发挥应有作用
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252123/)
+## 【快讯】出现一个新的媒体巨头
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252321/)
 
-近一周的巴以冲突，中共国表现非常活跃，王毅部长不但给巴基斯坦，不是巴勒斯坦打了电话，还以安理会轮值主席的身份在国际舞台上表演，下面是中共国内新闻摘要：
+AT＆T表示将把Warner Media与Discovery联合起来，组成一个全新的公司。 CNN，HBO，TNT等品牌将与TLC，HGTV，Animal Planet等共同组成一个强大的流媒体。
 
-央视2021-5-17日新闻：
+简评：
 
-外交部发言人赵立坚在记者招待会上，回答记者王毅主持安理会讨论巴以冲突达成何种共识，他表示，两国方案是根本出路，政治解决，绝大多数安理会成员督促美国承担应尽责任，采取公正立场，支持安理会决定。
-
-紧接着发表了一篇国际锐评：关于巴以冲突，美国为何被点名？指出：巴以冲突实质上是美国中东政策不断累积发酵的产物，此轮巴以冲突美国脱不了干系，理应主动站出来缓和局势，支持安理会发挥作用。
-
-中新网网评：应对巴以冲突，中国展现大国担当。
-
-国际消息：
-
-美国之音：美国总统拜登已与以巴领导人通话呼吁和平解决争端
-
-前以色列大使：将哈马斯恐怖组织等同于民主国家，包括美国媒体在内的国际媒体报道并布客观，带有明显的倾向性
-
-BBC：美国再次拒绝联合国安理会发声明介入
-
-截止目前，已经有25国发声支持以色列，分别是美加巴西，哥伦比亚，巴拉圭乌拉圭，危地马拉洪都拉斯，德意奥匈，荷兰，乌克兰，立陶宛，阿尔巴尼亚，波斯尼亚，保加利亚，塞浦路斯，捷克。格鲁吉亚，摩尔多瓦，马其顿，斯洛文尼亚，澳大利亚。
-
-锐语简评：
-
-中共国在今天发的中新网王评论中，指出王毅发言透露的几个关键信息：
-
-- 中国重视平民权力
-- 中国敦促人道主义援助准入
-- 中国是崇尚和平的国家，主张坐下来谈
-- 两国方案是唯一出路。
-
-
-以上四点中共过清晰的表明了在这一场巴以冲突中需要达到的目的：
-
-- 中共国有人权，不存在人权问题，不存在新疆维吾尔集中营的问题
-- 中共一直是巴勒斯坦的最大援助国，包括武器和火箭炮，中共是巴国坚强的后盾
-- 中共误判形势，以色列显示了决心和坚持自己的主张，拆解了中共的算盘
-- 中共自己在香港问题，台湾问题上一直悬而未决，采取暗中渗透，黑社会制造混乱， 警察军队出手的老三套，此时出现两国言论，意图用虚假主张来在国际舞台树立形象。
-
-
-中共一直在国际上打种族牌， 这次在世界关注病毒真相，定义超限生物战过程的关键时刻，巴勒斯坦主动挑起冲突，成功的转移了注意力，中共意图借巴以冲突在国家上抢夺舆论权，用虚假宣传逃脱种族灭绝定罪，并想借机发挥大搞疫苗外交，体现中共的制度优势，进而进行制度扩张，红色基因扩散到全世界。
+疫情大流行之后，人们似乎都开始明白掌握媒体话语权的重要性，流量就是未来，信息就是生存的基础。
 
 参考链接：
 
-央视新闻
 
-[https://m.chinanews.com/wap/detail/chs/zw/9479337.shtml](https://m.chinanews.com/wap/detail/chs/zw/9479337.shtml)
 
-图片来源：[https://www.bbc.com/](https://www.bbc.com/)
+> A new media giant has emerged – this time it's AT&T saying it will conjoin Warner Media with Discovery to form a whole new company. Brands such as CNN, HBO, TNT and others will join forces with TLC, HGTV, Animal Planet and more to form a streaming powerhouse. [pic.twitter.com/uOaGHOunuH](https://t.co/uOaGHOunuH)
+> — The News with Shepard Smith (@thenewsoncnbc) [May 17, 2021](https://twitter.com/thenewsoncnbc/status/1394436276267454466?ref_src=twsrc%5Etfw)
+
+
+
+图片来源：[https://twitter.com/](https://twitter.com/)
 
 整理撰稿：蓝精灵
 
