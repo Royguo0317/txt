@@ -1,46 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】CCP窃取维吾尔人的苹果手机数据
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1254067/)
+## 美国由6万名战士组成了“秘密军队”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1254050/)
 
-配音：香草山录音组 蒙古鸿雁
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+编辑上传 银河
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18113711/Snipaste_2021-05-18_18-36-10.jpg)[bbs.tiexue.net](https://bbs.tiexue.net/post2_5746780_1.html)
+05月17日，根据美国《新闻周刊》的调查，在过去十年中，五角大楼创建了一支6万多人的秘密军队。
 
+据该媒体报道，这个编队的人数比中情局的秘密雇员多十倍。文章称，“秘密”士兵在美国国内和国外工作，穿着制服或伪装成平民执行任务。大约有130家私营公司参与了这一计划，每年花费超过9亿美元，用于制造虚假文件，支付员工账单和税款，以假名运作，并“在中东和非洲最偏远的角落”制造特殊的监听和监视装置。
 
+该报称，一半以上的秘密部队是美国陆军特种作战部队。他们的主要任务是在“从巴基斯坦到西非”的战区追捕恐怖分子，但他们经常在诸如朝鲜和伊朗等国家的敌后地区工作。
 
+最新的、发展最快的“秘密军队”团体是“网络战士”。他们用假名工作，在网络上收集信息，也可能参与社交媒体的影响活动。
 
+据调查的作者称，美国需要这支秘密军队，不仅是为了打击恐怖分子，也是为了在与俄罗斯和中共国的混合战争中增加其竞争优势。
 
+5月13日，美国总统乔·拜登签署了一项关于网络安全和保护联邦政府网络免受网络攻击的行政命令。这份文件是对SolarWinds IT公司被黑的回应，该公司的客户包括美国政府机构，武装部队的分支机构、财政部、司法部、国务院和国家安全局。美国认为黑客组织APT29，即Cozy Bear，据称为俄罗斯情报部门工作，是黑客的幕后黑手。
 
+克里姆林宫多次表示，莫斯科没有参与对美国的黑客攻击。3月下旬，俄罗斯总统弗拉基米尔·普京说，信息技术的快速发展提供了前所未有的机会，但也带来了严重的风险，并就此提议通过世界性的网络空间法律。普京说，各国应共同“制定和商定普遍的、对所有人都公平的国家在信息空间负责任的行为规则，对可接受和不可接受的行动有明确和清晰的标准”，并使这些规则“具有法律约束力”。普京补充道，“也就是说，每个国家必须严格遵守这些规则。”
 
-据5月15日[法新社RFI报道](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E6%B3%95%E5%9B%BD%E6%8A%A5%E7%BA%B8%E6%91%98%E8%A6%81/20210515-%E5%8C%97%E4%BA%AC%E5%A6%82%E4%BD%95%E7%AA%83%E5%8F%96%E7%BB%B4%E5%90%BE%E5%B0%94%E6%97%8F%E4%BA%BAiphone%E6%89%8B%E6%9C%BA%E6%95%B0%E6%8D%AE)，美国麻省理工学院的科技杂志于5月6日发表文章称，中共政府悬赏二十万美元举办名为“天府杯”的中国黑客大赛，其目的是研究如何打开苹果手机的窃看缺口。美国政府以及谷歌集团的研究显示，中共国黑客的发现为中共对中国人民，尤其是维吾尔人的大规模监控提供了大量援助。
+参考链接：
 
-自2018年开始，中共国的黑客就不再参加每年在加拿大温哥华举行的国际黑客比赛，很明显，CCP认为中共国黑客的价值，应该为CCP的安全部门所用。
-
-
-
-**文字版原文：[【热点播报】CCP窃取维吾尔人的苹果手机数据](https://gnews.org/zh-hans/1250709/)**
-
-作者：纽约香草山信息部 6zero4
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://www.rbc.ru/politics/17/05/2021/60a275949a79476c377619e6](https://www.rbc.ru/politics/17/05/2021/60a275949a79476c377619e6)
 
 0
