@@ -1,45 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国对印度疫情所需药品原材料大幅涨价的背后真相
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1252803/)
+## 福奇博士资助的病毒研究使中共军方获取专利
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1252814/)
 
-撰稿：喜妈
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17235512/20210518_t7.jpg)图片来自网络截图
-最近，墙内外很多的媒体都在报道，印度中共病毒疫情告急，急需大量抗击中共病毒的药物。据相关印度报道称，印度制药公司从中共国采购“几乎70%”治疗中共病毒所需药物的“活性成分”，而印度在此阶段，对疫情相关的“药物和原料药的需求激增”。面对印度方面要求中共国稳定原料价格和印中之间货运班机“不受干扰地飞行”。中共国发言人称“抗疫物资价格问题是市场行为，由供求决定”；全球产业链供应链的“稳定和开放”需要共同努力。
+新闻来源：《The Gateway Pundit》| 作者：Lawrence Sellin, PhD.（劳伦斯·塞林博士） | 发布时间：2021年5月15日
 
-从4月开始，世界媒体不断有资讯动态出现：印度的抗疫药物告急，各种抗击中共病毒的“药物生产缓慢”，“有些药厂甚至已经停摆”。同时墙国媒体也通过在印的华人角度证实，治疗中共病毒的有效药物瑞德西韦，因为“供应不足”，黑市价格“涨幅超5倍”。此外，印度官方在4月11日，已经由卫生部声明：“印度决定禁止出口瑞德西韦”。面对复杂和具有挑战的印度中共病毒疫情状态，有些地方部分药品比之前“涨了10倍”。当然，口罩特别是氧气，是其中最为紧缺的物资。
+翻译/简评：大和凯多 | 校对/审核：万人往 | Page：Daoiii
 
-印度作为“世界药房”美誉，向来以仿制药、低价药闻名于世。印度在最近“海啸般”的疫情冲击下，整个国家和社会都处于紧急的状态中，对疫情的控制呼声十分强烈。与之相对应的，中共国原料药板块行情大涨。2019年的数据显示，印度原料药进口达“33.9亿美元”，其中自中共国的来源占“68%”；而印度的需求占中共国原料药出口市场“17%”。可是墙国的相关行业对此并不热衷，他们认为这些涨价都是“短期”，都属于“需求爆发期”，可是由于印度“今年一直强调加强国内原料药生产能力”，同时政府号召“发展低端制造”，因此从长期看来，这个需求的强劲势头不会保持下去。对于中共来说，行业更加关注的是“疫苗”和“疫苗原料”。
+[!\[\]()!\[\](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/65a8868c-2366-47df-bb82-ddb3379e0ec2.jpg?asset_id=df904643-9893-4b00-88ab-9e21ff8724cf&amp;img_etag=%224511c468ce89f401b6ee225d57e08c17%22&amp;size=2560)](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/65a8868c-2366-47df-bb82-ddb3379e0ec2.jpg?asset_id=df904643-9893-4b00-88ab-9e21ff8724cf&amp;img_etag=%224511c468ce89f401b6ee225d57e08c17%22&amp;size=1024)来源网络资料：解放军军事医学科学院微生物流行病研究所病毒室主任秦成峰（右）
 
-针对以上的最新动态，笔者认为，这里面有很多的中共邪恶设计和企图。
+**简评：**
 
-第一，印度的疫情有可能来自中共的定点投放，这是客观存在的合理原因之一。印度和中共国向来在亚洲就存在的历史争端让中共特别头疼。近来两国在边境上的冲突引起国际国内的巨大影响，中共在被揭示的冲突真相中，颜面尽失。正面的冲突不能占据上风，那么这个中共病毒就成为其有利的工具，背后来捅刀子。因此，此番疫情对印度造成的巨大伤害，从一贯做法来看，中共都有很大的嫌疑。
+史佩勇是德克萨斯大学加尔维斯顿分校医学分部的教授，也是武汉病毒研究所的荣誉教授。自2004年以来，福奇的美国国家过敏和传染病研究所资助他获得多项中共国专利。同时，中共军方也是这些专利的持有人。
 
-第二，根据中共病毒生物武器进攻的各种优化设计，它作为超限战的有力武器，确实起到了对印度的社会形成动乱、卫生体系造成崩溃、政府公信力形成打压、经济出现大规模衰退等一系列的影响。按照常理，在这种人类巨大的伤害性事件上，彼此邻近国家在这种紧急状态下，应该相互支持，更加配合，但中共声称药品原材料涨价是市场行为。中共的做法明显不合时宜，特别没有大国水准。一个希望得到世界承认，到处招摇的中共，在这个能够体现自己的修养和形象的机会前，却只认钱，这就是其贪婪无耻的实质。
+史佩勇本科毕业于南京师范大学生命科学学院，在佐治亚州立大学分子病毒学获得博士学位，目前是德州大学医学分部的生物化学与分子生物学系教授。2021年2月8日，史佩勇的研究组和美国辉瑞公司的Dormitzer博士共同在《自然·医学》发表了一片关于辉瑞疫苗的文章。是的，他现在还在美国活跃。
 
-第三，中共在印度抗击疫情时，抄起手来看热闹，对临近国家的疾苦不闻不问，还故作姿态，这个伤害将是巨大的。它造成的不仅是印度人民更大的死亡和痛苦，印度国家的动荡和危险，它还将彼此的历史冲突与矛盾引致深远。它就是故意要让这些来自他国的需求，被高悬空中，希望自己有着绝对的碾压优势，绝对不会有任何的恻隐之心。墙国的商业机构都是听政府的，中共国的任何所谓商业行为，从来都是政府行为。我们很难相信一个有良知的商业机构在一国都处于水火之中，还下得了手提高价格，哄抬市场，这恰好从反面印证了是中共政府推动之、鼓励之、放任之的结果。这个背后的原因，目的就是打垮印度，削弱印度，让印度磕头。
+[!\[\]()!\[\](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/049f3fd4-9390-4338-95d0-3279128c582a.jpg?asset_id=542e58d8-9b01-4fdf-886d-e93373b24ca8&amp;img_etag=%22ed14d3301080e03b615c7ce9bb0c7b02%22&amp;size=2560)](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/049f3fd4-9390-4338-95d0-3279128c582a.jpg?asset_id=542e58d8-9b01-4fdf-886d-e93373b24ca8&amp;img_etag=%22ed14d3301080e03b615c7ce9bb0c7b02%22&amp;size=1024)来源南京医科大学官网，2019年10月24日，沈洪兵（左）校长为史佩勇（右）颁发客座教授聘书
 
-中共乘人之危，不仅不积极援助，还大幅度涨价，本身就是一种极为不道德的行为；同时它还不满足于此，还寄希望于更加有市场价值和商业利润的中共病毒疫苗。这种逐利的心态在一个商业机构还说得过去，从一个国家的立意和角度来看就是低级下流。从这些作为中共国代表的发言与商业评说，我们看到一个没有道德和人性的政府，不仅对本国人民形成加害，而且对邻国、周边地区和世界也是同样没有起码的人性关怀。这样的国度，既不能让自己的人民享有安全健康的生活，也不会让世界多一分温暖和关爱。我们分享真相，我们传播友爱，我们团结世界正义之士，消灭邪共，留下一个充满爱的世界。·
+塞林博士在门户网站发布的这篇文章彻底揭露了福奇、史佩勇以及中共军方之间的关联；福奇利用美国纳税人的钱，通过资助史佩勇给中共国军方做病毒方面的研究。福奇博士勾结国外，这已经构成叛国罪了。史佩勇现在虽然还身在美国活跃，塞林博士的这篇文章足以让史博士吃安眠药才能入睡了。美国的特工们很可能早就盯着他了，估计想效仿郑颂国，人还没到机场就会被抓。最后希望潜伏美国的中共特务们多保重，天网恢恢，疏而不漏，不是不报，时候未到。他们现在还有机会选择站在正义的一方，否则，将面临中共的丢卒保车和美国法院的审判。
 
-（本文纯属个人观点）
+[!\[\]()!\[\](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/d50db4cc-719c-49ac-8abb-068205540272.jpg?asset_id=d087fe5b-c729-4179-a321-6f5ad440e382&amp;img_etag=%222c33242006de5b8e6a61d4bf125e5c6a%22&amp;size=3409)](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/d50db4cc-719c-49ac-8abb-068205540272.jpg?asset_id=d087fe5b-c729-4179-a321-6f5ad440e382&amp;img_etag=%222c33242006de5b8e6a61d4bf125e5c6a%22&amp;size=1024)
 
-参考资料：
+**原文翻译：**
 
-[印度疫情亲历者讲述：有药品在黑市爆炒涨价超10倍](http://www.ce.cn/cysc/yy/hydt/202104/29/t20210429_36524476.shtml)
+## **独家：福奇博士资助的研究使得中共军方获取专利**
 
-[“世界药房”印度疫情告急！7家A股原料药企涨停，专家称疫苗原料更值得关注](https://www.time-weekly.com/post/280522)
+史佩勇在中共国接受教育，目前是德克萨斯大学加尔维斯顿分校医学分部的生物化学与分子生物学教授。
 
-[印度敦促中国稳定新冠肺炎药物成分的价格](https://www.voachinese.com/a/ljx-india-urges-china-to-stabilize-price-of-apis-linked-to-covid-19-/5892410.html)
+2007年，史佩勇开始担任武汉病毒研究所的荣誉教授，并且自2004年以来，他一直由福奇博士的美国国家过敏和传染病研究所（NIAID）资助。
 
-[印度疫情引发原料药短缺担忧 国内医药板块走强](https://www.forbeschina.com/business/55093)
+史佩勇还和中共军方的科学家进行了广泛的研究合作，相关发表在门户网站的文章链接如下：
 
-[印度媒体：抗疫药物生产缓慢 部份药厂停摆](https://www.swissinfo.ch/chi/印度媒体-抗疫药物生产缓慢-部份药厂停摆/46553480)
+- [https://www.thegatewaypundit.com/2021/05/massive-infiltration-u-s-virus-research-chinas-military/](https://www.thegatewaypundit.com/2021/05/massive-infiltration-u-s-virus-research-chinas-military/)
+- [https://www.thegatewaypundit.com/2021/05/exclusive-evidence-dr-fauci-funding-chinas-peoples-liberation-army-virus-research-used-biological-warfare/](https://www.thegatewaypundit.com/2021/05/exclusive-evidence-dr-fauci-funding-chinas-peoples-liberation-army-virus-research-used-biological-warfare/)
+- [https://www.thegatewaypundit.com/2021/05/breaking-exclusive-uncovered-direct-link-chinese-military-major-pentagon-funded-virus-research-center/](https://www.thegatewaypundit.com/2021/05/breaking-exclusive-uncovered-direct-link-chinese-military-major-pentagon-funded-virus-research-center/)
 
-*审稿 & 编辑：8 Mile*
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+这项研究使史佩勇和中共军方，特别是秦成峰，获得了中共国的专利。
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews.org/wp-content/uploads/2021/05/1-澳喜Logo-2.jpeg)
+史佩勇一直和中共军方有合作。福奇在2021年926569美元的拨款中，史佩勇是其中（获得者）之一。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/47905d1e-f0d0-4f9f-ace3-70e59939480c.png?asset_id=8e66de7c-cde6-4677-9d18-af49490ba50a&amp;img_etag=%22d4bfffde6bc70b82dcaadf006c7c7a47%22&amp;size=2560)](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/47905d1e-f0d0-4f9f-ace3-70e59939480c.png?asset_id=8e66de7c-cde6-4677-9d18-af49490ba50a&amp;img_etag=%22d4bfffde6bc70b82dcaadf006c7c7a47%22&amp;size=1024)（左图：史佩勇；右图：秦成峰）
+
+该项专利在中共国的专利申请号为201810076027.7，于2018年10月26日批准。该专利持有人是中国人民解放军军事科学研究院和史佩勇。
+
+作为科学支持，该中共国专利申请引用了一篇2017年名为《一种减弱的寨卡病毒活候选疫苗在小鼠模型中诱导了免疫力》的文献。这篇文献是由美国国家过敏和传染病研究所资助完成的，资助编号为AI120942。
+
+第二项中共国专利，专利号为WO2019144874A1，于2019年1月23日批准。该专利持有人同样也是中国人民解放军军事科学研究院和史佩勇。
+
+第二项专利中所引用的三篇科学支持文献同样是由美国国家过敏和传染病研究所资助的，资助编号分别为AI120942、AI127744、AI073755和AI104972。
+
+奇怪的是，编号为AI127744的资助接受人王田并没有作为作者出现在中共军方主导的文章中，但是该文章把美国国家过敏和传染病研究所引用为资助方，所以，可能发生了某种形式的资金转移。
+
+最后一个疑点是一项2015年8月20日的名为《用于疫苗的新型减弱登革热病毒株》的美国专利。该专利由史佩勇和秦成峰提交，其中一个专利持有人是中共军方的北京微生物流行病研究所。
+
+在该美国专利申请中，秦成峰隐藏了他与中共军方的隶属关系，将新加坡列为他的工作地点。
+
+该项美国专利申请中没有科学文献参考，并且资金支持来源也不清楚。
+
+🔗[原文链接](https://www.thegatewaypundit.com/2021/05/exclusive-dr-anthony-fauci-funded-research-led-patents-chinese-military/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+
 0

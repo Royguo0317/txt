@@ -1,25 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】出现一个新的媒体巨头
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252321/)
+## 【锐语】什么样体系的国家才需要扫黑除恶常态化？
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252352/)
 
-AT＆T表示将把Warner Media与Discovery联合起来，组成一个全新的公司。 CNN，HBO，TNT等品牌将与TLC，HGTV，Animal Planet等共同组成一个强大的流媒体。
+中共国在党控媒体新华网上发表了下面一条信息：
 
-简评：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17205155/160-1.jpg)
 
-疫情大流行之后，人们似乎都开始明白掌握媒体话语权的重要性，流量就是未来，信息就是生存的基础。
+赵克志：中央党校研究生学历，现中共十九届常委，国务委员，国务院党组成员，公安部部长，党委书记，中央政法委副书记，总警监（来自百度）
+
+网上资料显示，扫黑除恶常态化机制指：坚持依靠人民群众，畅通举报渠道，完善举报人奖励机制，建立动态线索进展跟踪等等。
+
+中共控制的网络系统， 摄像头系统，人脸识别系统，税务银行联动系统内， 教育系统，车船系统，一个大大的监控网络。在高科技遭遇世界文明国家封锁的此时，公开了中共以黑治国，以警治国的真实本质。科幻电影再现，老百姓将彻底沦为卖命的人肉电池。
 
 参考链接：
 
 
 
-> A new media giant has emerged – this time it's AT&T saying it will conjoin Warner Media with Discovery to form a whole new company. Brands such as CNN, HBO, TNT and others will join forces with TLC, HGTV, Animal Planet and more to form a streaming powerhouse. [pic.twitter.com/uOaGHOunuH](https://t.co/uOaGHOunuH)
-> — The News with Shepard Smith (@thenewsoncnbc) [May 17, 2021](https://twitter.com/thenewsoncnbc/status/1394436276267454466?ref_src=twsrc%5Etfw)
+> 掃黑除惡竟然能夠常態化
+> CCP這是想搞以前的「抓右派」
+> 還是在暗示自己就是黑惡勢力，所以野火燒不盡，春風吹又生？ [pic.twitter.com/57Bik5q7v5](https://t.co/57Bik5q7v5)
+> — Andy5 (@andy5\_123) [May 17, 2021](https://twitter.com/andy5_123/status/1394409421720023040?ref_src=twsrc%5Etfw)
 
 
 
-图片来源：[https://twitter.com/](https://twitter.com/)
+图片来源：[https://www.hk01.com/](https://www.hk01.com/)
 
 整理撰稿：蓝精灵
 

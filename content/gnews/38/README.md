@@ -1,41 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【独立观点】欧盟和美国共同声明，中共国需为“扭曲贸易的政策”承担责任
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1252368/)
+## 【快讯】对中国技术法案展开辩论 美国参议院投票表决
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252507/)
 
-作者：纽约香草山健身部 Ivy001
+路透社大卫·谢泼德森报道：
 
+美国参议院以86票对11票结果。在周一开始辩论《无边界法》。该法案授权在五年内提供超过1100亿美元的资金，用于基础和高级研究，研究的商业化以及人工智能（AI）等关键技术领域的教育和培训计划。
 
+参议院民主党领袖查克·舒默（Chuck Schumer）说，参议院将从周二开始辩论该法案一到两个星期。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
+提案摘要草案显示，正在考虑的法案包括20亿美元，促进汽车和国防领域的半导体生产和研究，但一些参议员也在努力采取措施，将520亿美元用于芯片。计划中可能会包括其他与中国有关的账单。
 
+简评：
 
+该法案正在努力将制造业，基础行业， 高技术外包行业全部回流到本土。这个法案将对未来不被纳入美国或者其盟国商业系统的国家重创。中共国作为欧美国家主要的生产外包，技术外包的产业供应链，这个法案对其影响巨大。一意孤行地内卷，拒绝接受公平透明地商业系统，勾结西方社会邪恶精英，一定被在不久地将来陷入崩塌。
 
-路透社报道， 5月17日美国和欧盟发表了联合声明。声明中称，双方可以进行合作，以便“让中国这样支持扭曲贸易政策的国家承担责任”。声明由美国贸易代表戴琪、美国商务部长雷蒙多(Gina Raimondo)和欧盟执委会副主席东布洛夫斯基共同签署。同时，声明还宣布了：美欧将开始讨论解决全球钢铝产能过剩问题。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17205914/Untitled-design-31.png)
-这则简短的声明，表示了美国和欧盟联手合作，解决国际性贸易问题，加强美国与欧盟各国之间的贸易活动，掌握更多的主动权，更好地共同应对来自中共国的贸易压力。
+参考链接：
 
-联系此前的G7外长峰会的消息，美国与欧盟、日本、加拿大结成广泛联盟，以共同对抗破坏国际规则的中共国。这个最新的联合声明，就是对事情的跟进，把泛泛而论的松散联盟，进一步落实到各种相关的实际事情上。
+[https://www.reuters.com/technology/us-senate-votes-open-debate-china-tech-bill-2021-05-17/?taid=60a2fedc905c070001e8a9ea&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/technology/us-senate-votes-open-debate-china-tech-bill-2021-05-17/?taid=60a2fedc905c070001e8a9ea&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-同时，这个声明首次慎重强调，让中共国为其“扭曲贸易的政策”承担责任。直白的说，就是中共国必须为它破坏国际贸易规则的付出代价，承担责任，作出赔偿。中共国的任何破坏行为，将来都会被各国课以赔偿。这是中共国必将面对的惩罚。国际社会，不会允许中共国这样的邪恶政府横行世界。
+圖片來源：[https://www.reuters.com/](https://www.reuters.com/)
 
-灭共，必然是大势所趋。是世界各国的需要，也是世界人民的需要。
+整理撰稿：蓝精灵
 
-图片来源：WSJ
+校对发布：Penny
 
-https://cn.reuters.com/article/eu-us-china-trade-0517-idCNKCS2CY14G?il=0
+\*以上仅代表作者观点，不代表Gnews平台\*
 
-校对/发稿：火内
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
-
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-+1
+0

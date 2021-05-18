@@ -1,52 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】习近平“偶遇”游园群众，以假治国再添例证
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1252867/)
+## 【锐语】中共想说的是他们控制的数字流量将决定我们的未来
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252878/)
 
-配音：香草山录音组 蒙古鸿雁
+人民日报2021-5-18日，海外版用英文发表了一篇文章，对中共国未来的数字经济进行了很美好的愿景描述，摘录如下：
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+业内人士称，数字弹性将决定全球公司（包括中国公司）是否能对业务中断做出快速反应，并在COVID-19大流行中恢复市场信心。“去年大流行期间，全球信息技术支出的增长远远超过了GDP增长。这与（2008-09年）全球金融危机期间的情况形成了鲜明对比，前者远低于后者。”
 
+“数字弹性是指组织通过利用数字功能快速适应业务中断的能力，不仅使企业能够恢复运营，还可以推动他们进行更多的创新和发展。”
 
+IDC预测，到2022年，全球GDP的65％将由数字化驱动，从2020年到2023年，将带动超过6万亿美元的IT支出。市场咨询公司还指出，超高速5G技术将在未来几年内成为数字经济的新引擎。它预测，在未来五年中，中国预计将投资6500亿元人民币（1010亿美元）来建设5G网络基础设施，到2025年将拥有450万个5G基站。
 
+他说：“将做出更多努力，将5G与新兴的消费模式结合起来，包括增强现实，虚拟现实和身临其境的游戏，以及促进将5G集成到日常服务中。”
 
+简评：
 
+大流行是中共一个测试数字经济的一次成功的实验，数字货币是不久的将来管控中共国人口经济的方式，打黑扫黑常态化机制是执行的方式方法。文中提到5G，作为中共军方的网络监控的华为，海康威视，还有很多披着民用的外衣的中共控制的企业，将形成一个强大的网络，社会所有的资源，社会所有的财产都归中国共产党所有，老百姓还剩余什么呢？生命，生老病死，都将纳入系统之中，高科技的奴隶社会一直是中共梦寐以求的目标。
 
+参考链接：
 
-近日，网上流传着一段习近平周三（12日）视察河南南阳，在南阳月季博览园中“偶遇”一批“群众”，被热烈欢迎的视频。
+[http://www.chinadaily.com.cn/a/202105/18/WS60a30bb4a31024ad0babf966.html](http://www.chinadaily.com.cn/a/202105/18/WS60a30bb4a31024ad0babf966.html)
 
-视频中，习近平问群众：“你们怎么知道我来了？”
+图片来源：[http://www.chinadaily.com.cn](http://www.chinadaily.com.cn/a/202105/18/WS60a30bb4a31024ad0babf966.html)
 
-群众说：“看到你了。”接着有人说：“游园的时候。”
+整理撰稿：蓝精灵
 
-习近平说：“你们是诸葛亮啊？天文地理都知道啊。”
+校对发布：Penny
 
-群众：“哈哈哈！”
-
-
-
-**文字版原文：[【墙内热搜】习近平“偶遇”游园群众，以假治国再添例证](https://gnews.org/zh-hans/1252570/)**
-
-作者：纽约香草山媒体部 天下大同
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

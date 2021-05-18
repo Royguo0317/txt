@@ -1,45 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月17日美国政要和政评家反共推文精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1252419/)
+## 【有声读物】英国开始全面拆除华为设备
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1252505/)
 
-参议员乔什·霍利： 这真是一个令人震惊的报道，一家据称是美国的公司出卖美国工人，背叛了美国理想，并有效地促进了中国的奴隶制经济。 【附纽约时报报道：审查，监视和利益：苹果公司在中共国艰难的讨价还价】
+配音：香草山录音组 蒙古鸿雁
 
-
-
-> This is a truly shocking report of a supposedly American company selling out American workers, betraying American ideals, and effectively promoting a slave-labor economy in China [https://t.co/Be0JsyFYtw](https://t.co/Be0JsyFYtw)
-> — Josh Hawley (@HawleyMO) [May 17, 2021](https://twitter.com/HawleyMO/status/1394398558808264705?ref_src=twsrc%5Etfw)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-参议员瑞克·斯科特： 华盛顿邮报观点文章是对的。奥林匹克的资助者可以将人权置于利益之上，或为共产中国针对维吾尔人的持续的种族灭绝开绿灯。 够了够了。我们必须将2022奥林匹克移至一个尊重人权的国家。 （转推华盛顿邮报观点文章：新的报告称中共针对维吾尔人的压制不仅是文化上，还是身体上的。）
 
 
 
-> .[@PostOpinions](https://twitter.com/PostOpinions?ref_src=twsrc%5Etfw) is right. Sponsors of the [@Olympics](https://twitter.com/Olympics?ref_src=twsrc%5Etfw) can either put human rights above profits, or give a green light to Communist China to perpetuate its genocide against the Uyghurs.
-> 
-> Enough is enough. We must move the 2022 Olympic games to a nation that respects human rights. [https://t.co/d0ngPJMfn5](https://t.co/d0ngPJMfn5)
-> — Rick Scott (@SenRickScott) [May 17, 2021](https://twitter.com/SenRickScott/status/1394356800519016460?ref_src=twsrc%5Etfw)
+
+5月15日，彭博社报道，今天英国开始拆除中共国华为的5G电信设备，这一工作刚刚在赫尔市启动。据报道，赫尔市将实现华为关键设备为“零”的第一个英国城市，它将在7月份之前在市区淘汰所有的华为设备，改为使用诺基亚的设备。
+
+英国政府还确认，不仅仅华为最近安装的5G设备需要拆除，华为在英国无处不在的4G基站也需要拆除。华为不仅失去了英国的5G市场，还失去了旧有的4G市场，这意味着华为将彻底告别英国市场。
 
 
 
-前国务卿蓬佩奥： 中国共产党和国会的一些自由派人士如[@BernieSanders](https://twitter.com/BernieSanders)，[@AOC](https://twitter.com/AOC) 和 [@IlhanMN](https://twitter.com/IlhanMN) ，一同支持哈马斯恐怖分子并与美国和以色列为敌。他们的共同特征是什么？他们所有人都否认美国是造福世界的力量。他们错了。
+**文字版原文：[【独立观点】英国开始全面拆除华为设备](https://gnews.org/zh-hans/1247556/)**
+
+作者：纽约香草山健身部  Ivy001
 
 
 
-> The CCP and some liberals in Congress like [@BernieSanders](https://twitter.com/BernieSanders?ref_src=twsrc%5Etfw), [@AOC](https://twitter.com/AOC?ref_src=twsrc%5Etfw) & [@IlhanMN](https://twitter.com/IlhanMN?ref_src=twsrc%5Etfw) are siding with Hamas terrorists and against America and Israel. What’s the common denominator? All deny America is a force for good in the world. They are wrong.[https://t.co/xuO9a1H6Cm](https://t.co/xuO9a1H6Cm)
-> — Mike Pompeo (@mikepompeo) [May 17, 2021](https://twitter.com/mikepompeo/status/1394316921315729417?ref_src=twsrc%5Etfw)
+音频处理：喜山必胜Maverick
+发稿：雪梨
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
+**更多资讯，更多关注**
 
-章家敦（中国问题专家）： 中共国 [#China](https://twitter.com/hashtag/China?src=hashtag_click) 几乎确定地有一个全国性的生物武器项目，这是对生物武器条约的违犯。为什么拜登不谈论这个呢？（转闫博士的推文）
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) almost certainly has a nationwide biological weapons program in violation of the Biological Weapons Convention. Why is [#Biden](https://twitter.com/hashtag/Biden?src=hash&amp;ref_src=twsrc%5Etfw) not talking about this? [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) [https://t.co/xQln0O6PmP](https://t.co/xQln0O6PmP)
-> — Gordon G. Chang (@GordonGChang) [May 17, 2021](https://twitter.com/GordonGChang/status/1394370396351303690?ref_src=twsrc%5Etfw)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
