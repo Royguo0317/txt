@@ -1,11 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德文·努内斯：功能增强研究是将病毒武器化
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1253061/)
+## 2021年5月17日 文贵先生盖特 4
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1253137/)
 
-5/16/2021 玛丽亚提到间接证据，2019年10月武汉病毒实验室周围封路。德文·努内斯众议员说功能增强研究将病毒武器化，用于生物战。
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+5月17号：类似于当年在盘古开工时发现的白蛇，现在上面骑了一个癞蛤蟆……跟目前的盘古所遭受的境遇虐待．也非常相似……谁会是最后赢家呢？
+
+[【2021年5月17日】文贵先生盖特原文](https://gtv.org/getter/60a30ee837f7f73984ccd98e)
+
+**喜联盟Gnews编辑部**
 
 0

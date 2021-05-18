@@ -1,96 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 歌曲《七芒之星》
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1253073/)
+## 中共病毒就是生物武器
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1253168/)
 
-作者：喜马拉雅东京樱花团 / 跟随你
+台湾宝岛农场:文旦
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18032223/%E6%93%B7%E5%8F%96518.jpg)
+今日美国前国务卿及众议会情报委员会副主席，皆在FOX NEWS上接受采访新冠肺炎(中共病毒)源头，并认定这是生物武器，并可能会再次发生，所有证据都来至武汉病毒实验室，直到现在都很大量新的证据。
 
+新冠肺炎(中共病毒)产生的全球危机已经一年多了，至今最初源头的病毒序列，样本，调查都没有展开，并有大量科学家提倡说来至于自然，但没有科学皆提出来至于自然的相关证据及样本，扰乱全球科学家的调查，掩盖病毒真相。
 
+中国共产党官方从病毒爆发至今，皆没有说出真相，一直再撒谎，掩盖病毒真相，在中国共产党的一系列反应中，他们知道真相的曝光会带来多么严重的后果。
 
-![](https://lh4.googleusercontent.com/dddrGcCdjknsZJ28jIhSIPENKqZ0rVaWkS7SltmBzj4gaUqYOyXcg1AGZnxADEL8Mwc9ax05NC4sWZ3trOfuOz4kvdhyNGXqG-sC5SxQ80AVw9FftnMAMyso8ffw3RRc4C6VUARn)
+新冠病毒(中共病毒)来至于中共军方实验室已无法反驳，铁证如山，**现在差别在于是故意释放还是意外流出在故意扩散**，在病毒爆发初期中国共产党将国内航线停飞，让国外航向可以大量飞出，使病毒扩散加剧，这是无法挽回的既定事实。
 
-在迷茫中我有幸遇到你
+如果是故意释放，那么这就是一个更可怕的事件了，利用这个超限战生化武器，破坏其他国家经济，医疗体系，使其崩溃，在利用疫苗作为武器，要胁等方式达到目的，甚至使用病毒威胁其他国家，不与中共合作就放毒的可能性，就也大不提高。
 
-在困惑中你让我心里明
+新冠病毒(中共病毒)源头真相越来越明朗，真相需要你我的传播，你很重要，你的一小步，将灭共的一大步，也是为了你有正常生活的一步。
 
-我们的苦难是因为有原因
+参考资料:
 
-终于明白那是共魔在当今
+[COVID cover-up efforts by Chinese Communist Party are ‘staggering’: Pompeo](https://www.youtube.com/watch?v=skwc8kIS118)
 
-啊！七芒之星
+[美参议员首次公开说新冠与生物武器、生物战有关！ （05/16）](https://www.youtube.com/watch?v=eXa-werUeFY)
 
-爆料革命
+台湾宝岛农场YOUTOBE:
 
-召唤我前行
+[2021 05 16文贵直播灭共，是要灭共产党那个邪恶体制。](https://www.youtube.com/watch?v=Os9-aQ-6d0M)
 
-啊！战友相聚
+请大家帮忙多多订阅!!!!
 
-团结一心灭共到底！
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-看那天使
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
-勇敢站出来把真相全告知
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
-共魔的威胁
+文章审核：zhong
 
-没有让天使屈服
+文章发布：Little Liu
 
-三年爆料革命一直到如今
-
-拯救千万家庭千万的人心
-
-共魔放出病毒生命被夺去
-
-世界在承受一次一次打击
-
-啊！七芒之星
-
-有你指引
-
-人们在觉醒
-
-啊！我们一心
-
-一起守护正义和平
-
-带着勇气
-
-我要跟随你坚定灭共的心
-
-你为我引路
-
-哪怕走崎岖险境
-
-啊！星光灿烂
-
-伴我同行给我光明
-
-啊！云开雾散
-
-拨云雾见日出
-
-带着热情
-
-我们要做新中国联邦主人
-
-我们有决心
-
-我们绝不为奴
-
-新中国联邦
-
-一定会冉冉升起
-
-这首歌是去年完成的、是根据日本歌曲《昂》改编的歌词。以歌灭共已经兴起。虽然在《我是音雄》落榜了、但创作的热情被激发了……
-
-业余的水平让大家见笑了、只为和大家产生共鸣、唱出我们的心声、让共产党的骗局被揭穿、让世界看到真相、我们是一群坚定的灭共者💪
-
-这次gnews又让我鼓足勇气、发表我的心声、感谢gnews给我的机会……灭共心声在这里、勇敢的发生吧！
-
-![](https://lh4.googleusercontent.com/OZeX4mb9c03vOfbAxE3bLbeYYlyZANevkaWwB2Sxo8dXNI8DesxR8gHklKlusW0m9yOVBY4BLDxv_MItsKMD8eoOh_U1C_3Ss7-XRG0QPuAB9GJOvlEHA4tH11YE9QuCMXf2iT1-)
-
-*免责申明：本文只代表作者观点，与GNews网站无关。*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13031339/%E4%BA%8C%E7%BB%B4%E7%A0%81-1.jpg)
 0

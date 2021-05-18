@@ -1,73 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇博士资助的病毒研究使中共军方获取专利
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1252814/)
+## 【锐语】无底线的生物科技会走向何方？
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252926/)
 
-新闻来源：《The Gateway Pundit》| 作者：Lawrence Sellin, PhD.（劳伦斯·塞林博士） | 发布时间：2021年5月15日
+环球时报在2021年5月16日大幅报道了一篇和生物基因科技有关的文章，文章摘要如下：
 
-翻译/简评：大和凯多 | 校对/审核：万人往 | Page：Daoiii
+中国首家国家级综合基因库CNGB于2016年9月正式投入运营，旨在保护，数字化和利用遗传资源。与通常由政府组织运营的其他国家基因库不同，CNGB归政府所有，但由中国生命科学研究所BGI-Research运营。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/65a8868c-2366-47df-bb82-ddb3379e0ec2.jpg?asset_id=df904643-9893-4b00-88ab-9e21ff8724cf&amp;img_etag=%224511c468ce89f401b6ee225d57e08c17%22&amp;size=2560)](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/65a8868c-2366-47df-bb82-ddb3379e0ec2.jpg?asset_id=df904643-9893-4b00-88ab-9e21ff8724cf&amp;img_etag=%224511c468ce89f401b6ee225d57e08c17%22&amp;size=1024)来源网络资料：解放军军事医学科学院微生物流行病研究所病毒室主任秦成峰（右）
+CNGB总干事王仁在接受《环球时报》采访时表示，中国基因库的一个特点是，它可以存储涵盖从微生物到动植物的所有生物的基因样本和基因组信息，还具有与其他基因库的不同之处，它具有通过数字化平台“读取”生命的综合能力，该平台可以在生命周期的整个范围内系统地解释生命形式，在保存基因时“存储”生命，血液，组织，种子以及其他生物样品，并“书写”生命，因为它利用了不同水平的干预技术，包括基因，蛋白质，细胞器官和共生系统。
 
-**简评：**
+到目前为止，CNGB已建立了存储数千万个生物样本和PB级多组学数据的功能。中国国家基因库数据库（CNGBdb）是生物数据共享和应用的综合平台，已为用户存储了超过4 PB的数据。此外，CNGB的数字化平台在petabase级别上具有世界领先的年度数据输出能力。
 
-史佩勇是德克萨斯大学加尔维斯顿分校医学分部的教授，也是武汉病毒研究所的荣誉教授。自2004年以来，福奇的美国国家过敏和传染病研究所资助他获得多项中共国专利。同时，中共军方也是这些专利的持有人。
+在中央政府重新关注种子育种部门以保障国家粮食安全的背景下，CNGB的基因组学能力可以支持中国生命科学和生物经济的发展，其作用日益重要。
 
-史佩勇本科毕业于南京师范大学生命科学学院，在佐治亚州立大学分子病毒学获得博士学位，目前是德州大学医学分部的生物化学与分子生物学系教授。2021年2月8日，史佩勇的研究组和美国辉瑞公司的Dormitzer博士共同在《自然·医学》发表了一片关于辉瑞疫苗的文章。是的，他现在还在美国活跃。
+科学是无国界的 基因组学对于保护一个国家的生物信息学至关重要，而科学家和基因专家一再强调，基因组学也是一个需要全球合作和信息共享的部门。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/049f3fd4-9390-4338-95d0-3279128c582a.jpg?asset_id=542e58d8-9b01-4fdf-886d-e93373b24ca8&amp;img_etag=%22ed14d3301080e03b615c7ce9bb0c7b02%22&amp;size=2560)](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/049f3fd4-9390-4338-95d0-3279128c582a.jpg?asset_id=542e58d8-9b01-4fdf-886d-e93373b24ca8&amp;img_etag=%22ed14d3301080e03b615c7ce9bb0c7b02%22&amp;size=1024)来源南京医科大学官网，2019年10月24日，沈洪兵（左）校长为史佩勇（右）颁发客座教授聘书
+“共享是我们的主要责任之一，”CNBG的王说，并补充说，基因库的宗旨是”所有人拥有，人人共享”，这可以促进世界的公益事业和新技术的普及。
 
-塞林博士在门户网站发布的这篇文章彻底揭露了福奇、史佩勇以及中共军方之间的关联；福奇利用美国纳税人的钱，通过资助史佩勇给中共国军方做病毒方面的研究。福奇博士勾结国外，这已经构成叛国罪了。史佩勇现在虽然还身在美国活跃，塞林博士的这篇文章足以让史博士吃安眠药才能入睡了。美国的特工们很可能早就盯着他了，估计想效仿郑颂国，人还没到机场就会被抓。最后希望潜伏美国的中共特务们多保重，天网恢恢，疏而不漏，不是不报，时候未到。他们现在还有机会选择站在正义的一方，否则，将面临中共的丢卒保车和美国法院的审判。
+简评：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/d50db4cc-719c-49ac-8abb-068205540272.jpg?asset_id=d087fe5b-c729-4179-a321-6f5ad440e382&amp;img_etag=%222c33242006de5b8e6a61d4bf125e5c6a%22&amp;size=3409)](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/d50db4cc-719c-49ac-8abb-068205540272.jpg?asset_id=d087fe5b-c729-4179-a321-6f5ad440e382&amp;img_etag=%222c33242006de5b8e6a61d4bf125e5c6a%22&amp;size=1024)
+中共国从很早开始，就已经布局大数据和算法，尤其实在生物科技方面，比如青少年每年的例行体检抽血，献血者捐赠，常规去医院做的治疗前检查，在没有得到任何人的同意下，所有人的基因生物特征已经全部被收入到数据库，这在西方是无法做到的。所以， 中共国因为可以随意收集分享个人数据， 或者通过强制性的收集方式嵌入到商务活动和日常生活中。因此，在生物科技提供数据分析，案例样本，病毒样本，测试回馈样本这方面，中共已经走到了世界的前列。
 
-**原文翻译：**
+另外，中共国也派出了大量的国内优秀的学生， 去海外学习生物工程及基因技术，中共知道，在未来，生物科技是最有前途的科学。CNBG主任说共享， 无非是告诉西方那些科学家们，我们可以提供给无线的低成本的实验活体，我们能够给你提供做试验的场所，我们可以给你提供充足的样本。
 
-## **独家：福奇博士资助的研究使得中共军方获取专利**
+通过CCP病毒的大流行，疫苗外交，这些都在为之后的生物科技发展抢夺先机，共产党深刻了解这一点， 早在上个世纪的九十年代，他们就已经成功的利用生物技术，孵化了无数个私生子，很有都已经不是黄皮肤，在海外成为家族的资产管理和代持人。
 
-史佩勇在中共国接受教育，目前是德克萨斯大学加尔维斯顿分校医学分部的生物化学与分子生物学教授。
+科技是一把刀，天使用它造福大众， 恶魔只用它最终去毁灭人类。
 
-2007年，史佩勇开始担任武汉病毒研究所的荣誉教授，并且自2004年以来，他一直由福奇博士的美国国家过敏和传染病研究所（NIAID）资助。
+参考链接：
 
-史佩勇还和中共军方的科学家进行了广泛的研究合作，相关发表在门户网站的文章链接如下：
+[https://www.globaltimes.cn/page/202105/1223562.shtml](https://www.globaltimes.cn/page/202105/1223562.shtml)
 
-- [https://www.thegatewaypundit.com/2021/05/massive-infiltration-u-s-virus-research-chinas-military/](https://www.thegatewaypundit.com/2021/05/massive-infiltration-u-s-virus-research-chinas-military/)
-- [https://www.thegatewaypundit.com/2021/05/exclusive-evidence-dr-fauci-funding-chinas-peoples-liberation-army-virus-research-used-biological-warfare/](https://www.thegatewaypundit.com/2021/05/exclusive-evidence-dr-fauci-funding-chinas-peoples-liberation-army-virus-research-used-biological-warfare/)
-- [https://www.thegatewaypundit.com/2021/05/breaking-exclusive-uncovered-direct-link-chinese-military-major-pentagon-funded-virus-research-center/](https://www.thegatewaypundit.com/2021/05/breaking-exclusive-uncovered-direct-link-chinese-military-major-pentagon-funded-virus-research-center/)
+图片来源：[https://www.globaltimes.cn](https://www.globaltimes.cn/page/202105/1223562.shtml)
 
+整理撰稿：蓝精灵
 
-这项研究使史佩勇和中共军方，特别是秦成峰，获得了中共国的专利。
+校对发布：Penny
 
-史佩勇一直和中共军方有合作。福奇在2021年926569美元的拨款中，史佩勇是其中（获得者）之一。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/47905d1e-f0d0-4f9f-ace3-70e59939480c.png?asset_id=8e66de7c-cde6-4677-9d18-af49490ba50a&amp;img_etag=%22d4bfffde6bc70b82dcaadf006c7c7a47%22&amp;size=2560)](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/47905d1e-f0d0-4f9f-ace3-70e59939480c.png?asset_id=8e66de7c-cde6-4677-9d18-af49490ba50a&amp;img_etag=%22d4bfffde6bc70b82dcaadf006c7c7a47%22&amp;size=1024)（左图：史佩勇；右图：秦成峰）
-
-该项专利在中共国的专利申请号为201810076027.7，于2018年10月26日批准。该专利持有人是中国人民解放军军事科学研究院和史佩勇。
-
-作为科学支持，该中共国专利申请引用了一篇2017年名为《一种减弱的寨卡病毒活候选疫苗在小鼠模型中诱导了免疫力》的文献。这篇文献是由美国国家过敏和传染病研究所资助完成的，资助编号为AI120942。
-
-第二项中共国专利，专利号为WO2019144874A1，于2019年1月23日批准。该专利持有人同样也是中国人民解放军军事科学研究院和史佩勇。
-
-第二项专利中所引用的三篇科学支持文献同样是由美国国家过敏和传染病研究所资助的，资助编号分别为AI120942、AI127744、AI073755和AI104972。
-
-奇怪的是，编号为AI127744的资助接受人王田并没有作为作者出现在中共军方主导的文章中，但是该文章把美国国家过敏和传染病研究所引用为资助方，所以，可能发生了某种形式的资金转移。
-
-最后一个疑点是一项2015年8月20日的名为《用于疫苗的新型减弱登革热病毒株》的美国专利。该专利由史佩勇和秦成峰提交，其中一个专利持有人是中共军方的北京微生物流行病研究所。
-
-在该美国专利申请中，秦成峰隐藏了他与中共军方的隶属关系，将新加坡列为他的工作地点。
-
-该项美国专利申请中没有科学文献参考，并且资金支持来源也不清楚。
-
-🔗[原文链接](https://www.thegatewaypundit.com/2021/05/exclusive-dr-anthony-fauci-funded-research-led-patents-chinese-military/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

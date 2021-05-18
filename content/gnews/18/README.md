@@ -1,31 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国广东省电力紧张企业错峰生产
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1253060/)
+## 武毒所早在2020年中从官网删除了所有中共军方研究员信息
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1253130/)
 
-撰稿: 皇石田野
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18023435/20210518_t8.jpg)（图片来自网络）
-5月17日下午笔者从广东中山小榄镇朋友那得知，当地电力紧张，中型以上企业因受限电，错峰生产，他告诉笔者小厂没有在被错峰用电的范围内。笔者马上到网上查看情况，果然在腾讯网上有一篇报道称电力供应紧张 广东局部开启错峰用电。笔者同时也在大纪元的大陆新闻版块也看到广东电力供应紧张，要求用户错峰用电的新闻。
+#### 文章撰写:【默凡】
 
-看到这条新闻笔者长舒一口气：共产党真的完了！广东省的经济是经济大省，连基本的电力都无法保障，如何还能保经济？就如同CCP的大脑和心脏开始缺血了，CCP还能撑多久？
+《国家脉动》新闻网5月17日报道：当外界质疑中共军方参与武毒所病毒研究项目后，武汉病毒研究所从2020年年中从其官网上删除了三名中共军方研究员信息，这三名中共军方研究员分别来自中共302医院、军事医学科学院和海军军医大。
 
-广东省错峰限电生产，笔者认为有以下几个原因。
+武汉病毒学研究所学术委员会副主任王红阳隶属于中共国第二军医大学，也被称为解放军海军医科大学。在他的领导下，来自中共解放军302医院的王福生也在该委员会工作。
 
-第一种：近期南方少雨干旱，很多水利发电厂无法发电，导致用电紧张。
+![https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.43.02-AM-800x616.png]()![https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.43.02-AM-800x616.png](https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.43.02-AM-800x616.png)
 
-第二种：今年高温天气来得较早，老百姓提前打开空调制冷，增加用电压力。
+来自中共军事医学科学院军事兽医学研究所的涂长春曾在武汉病毒研究所传染病中心科学咨询委员会任职，AMMS被描述为“中国人民解放军最高医学研究所”。
 
-第三种：有可能是最近减少澳洲煤炭进口，国产煤炭运输成本高，采用国内煤炭发电要亏钱，CCP想通过采用限电手段，为后期给老百姓用电涨价做铺垫。
+![https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.46.47-AM-800x537.png]()![https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.46.47-AM-800x537.png](https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.46.47-AM-800x537.png)
 
-第四种：也有可能是因为世界将与中共国经济脱钩，很多大型企业的订单在减少，工作和就业岗位在减少，CCP通过限电减少工厂生产时间，加长订单生产周期，制造一片假繁荣景象。
+2020年5月28日，该网站发生重大变化，上述委员会的研究人员信息已经被删除。
 
-（本文纯属个人观点）
+![https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.48.05-AM-800x424.png]()![https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.48.05-AM-800x424.png](https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.48.05-AM-800x424.png)
 
-*审稿人：自由战士  编辑：**8**Mile*
+至今，武汉病毒研究所官网仍删除了这些中共军方研究员信息。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+参考文章：
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews.org/wp-content/uploads/2021/05/1-澳喜Logo-2.jpeg)
+
+
+> [Wuhan Institute Of Virology Erased Names Of Military-Linked Researchers From Website.](https://thenationalpulse.com/breaking/wuhan-lab-erased-military-researchers-from-site/)
+
+
+
+本文仅代表作者本人观点，不代表Gnews平台
+
+* * *
+
+***排版发布：日本东京方舟农场 文柯Miles***
+
 0

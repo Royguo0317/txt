@@ -1,25 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本越南领导人会谈反对中共海上强硬主张
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1252937/)
+## 中共国广东省电力紧张企业错峰生产
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1253060/)
 
-俄罗斯莫斯科喀秋莎农场  银河
+撰稿: 皇石田野
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18023435/20210518_t8.jpg)（图片来自网络）
+5月17日下午笔者从广东中山小榄镇朋友那得知，当地电力紧张，中型以上企业因受限电，错峰生产，他告诉笔者小厂没有在被错峰用电的范围内。笔者马上到网上查看情况，果然在腾讯网上有一篇报道称电力供应紧张 广东局部开启错峰用电。笔者同时也在大纪元的大陆新闻版块也看到广东电力供应紧张，要求用户错峰用电的新闻。
 
-编辑上传   水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18011615/J-5.jpg)mainichi.jp
-共同通讯社 (Kyodo News) 5月17日报道，日本首相菅义伟(Yoshihide Suga)和越南总理范明政 (Phạm Minh Chính)周一在电话会谈中重申了他们反对中共在海上日益强硬的立场。这是两位领导人自上月范明政当选以来的首次电话会谈。
+看到这条新闻笔者长舒一口气：共产党真的完了！广东省的经济是经济大省，连基本的电力都无法保障，如何还能保经济？就如同CCP的大脑和心脏开始缺血了，CCP还能撑多久？
 
-在大约30分钟的通话中，两人还对中共国今年2月实施的一项新《海警法》表示严重关切。该法律允许中共国海岸警卫队对其认为入侵其领土的船只使用武器。
+广东省错峰限电生产，笔者认为有以下几个原因。
 
-据日本外务省称，菅义伟提到，“我们希望加强(日本和越南之间的)关系，以实现一个自由开放的印太地区。”两国将于2023年迎来建交50周年。
+第一种：近期南方少雨干旱，很多水利发电厂无法发电，导致用电紧张。
 
-此次电话会谈正值中共加强对尖阁诸岛(Senkaku Islands，中共国称钓鱼岛及其附属岛屿)的主权主张之际，北京还在越南和其他邻国有争议的南中国海部署了前哨。
+第二种：今年高温天气来得较早，老百姓提前打开空调制冷，增加用电压力。
 
-菅义伟和范明政在会谈中表达了在基础设施和能源、以及环境和数字领域进行合作的可能性。两位领导人还重申，将致力于解决朝鲜过去绑架日本公民的问题以及其他有关朝鲜的问题。
+第三种：有可能是最近减少澳洲煤炭进口，国产煤炭运输成本高，采用国内煤炭发电要亏钱，CCP想通过采用限电手段，为后期给老百姓用电涨价做铺垫。
 
-参考链接：
+第四种：也有可能是因为世界将与中共国经济脱钩，很多大型企业的订单在减少，工作和就业岗位在减少，CCP通过限电减少工厂生产时间，加长订单生产周期，制造一片假繁荣景象。
 
-[https://english.kyodonews.net/news/2021/05/100be30b514f-japan-vietnam-leaders-oppose-chinas-maritime-actions-in-phone-talks.html](https://english.kyodonews.net/news/2021/05/100be30b514f-japan-vietnam-leaders-oppose-chinas-maritime-actions-in-phone-talks.html)
+（本文纯属个人观点）
 
+*审稿人：自由战士  编辑：**8**Mile*
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews.org/wp-content/uploads/2021/05/1-澳喜Logo-2.jpeg)
 0
