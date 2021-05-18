@@ -1,72 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【币圈】-数字货币动态- 2021.05.18
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1253413/)
+## 疫苗真的是CCP病毒的解药吗？
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1253417/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
-![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image5.jpg)
-### 币圈的一天，从“喜悦在望”开始。
+五月花写作组 ｜ 商务部：文灵Freesky、Cici ｜ 编辑：文曼 ｜ 封面、发布：灭共小宇宙
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18065936/%E8%A7%A3%E8%8D%AF.jpg)
+自2019年12月中共病毒开始肆虐全球，至今已造成全世界164,249,194例感染，3,403,545例死亡（其中不包含中共国任何数据）。在中共病毒大流行开始后不到12个月内，数个研究小组开发了可预防SARS-CoV-2（引起COVID-19的病毒）的疫苗。为了结束病毒大流行，科学家们认为实现这一目标的最安全方法是使用疫苗。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18062338/Screen-Shot-2021-05-18-at-6.23.28-PM.png)图片来源：our world in data
+据“世界数据库”报道，截至2021年5月16日，全世界疫苗接种已经达到14.7亿剂，疫苗是人类过去常常用来降低传染病死亡人数的技术，一般成熟的疫苗从研发到正常上市使用需要15到20年，可这一次，仅仅经过几个月研究就匆匆上市的疫苗，真的是救全世界人民于水火的解药吗？请各位读者通过以下的几条新闻内容自行掂量一番。
 
-## **每日一问**
+### **世卫⾸席科学家：疫苗或不能抵御印度****B1617****变种病毒**** **
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18062415/Screen-Shot-2021-05-18-at-6.24.03-PM.png)图片来源：FinacialExpress
+法新社报道，世界卫生组织首席科学家斯瓦米纳坦（Soumya Swaminathan）周六（8日）警告说：“我们今天在印度看到的流行病学特征确实表明，这是⼀种能够极其迅速传播的变异株。”她表示，去年10月在印度首次发现的 B1617变异株显然是印度疫情失控的⼀个影响因素。截至发稿前，世界卫生组织已将将该变异株列入“忧虑变种”(variant of concern)的最终候选名单——这一分类意味着该病毒变异株更具危险性，有更强的传播性、致命性，或者能够获逃脱疫苗对人体的保护。然而目前据WHO报道已经有44个国家检测出此病毒。
 
-*如何应对越来越严厉的币圈监管？*
+以下内容是对疫苗本身是否安全的几个印证。
 
-## **喜马拉雅Coin要闻**
+### **Yahoosports报道：纽约Yankees 8名成员完全接种疫苗后病毒检测仍呈阳性**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18062453/Screen-Shot-2021-05-18-at-6.24.38-PM.png)图片来源：Getty Images
+2021年5月13日美国纽约著名棒球队Yankees对外确认队中8名成员在⼀个月前完全接种疫苗后，病毒检测仍呈阳性。8名成员包括一名队员Gleyber Torres，3名教练和4名随队⼈员。同日，美国CDC宣布完全接种疫苗的⼈们可以在大多数地方不用再佩戴口罩及保持社交距离。但是近⼀段时间以来，美国民众面对不断爆出的有关疫苗负面消息影响下，似乎对于接种疫苗失去了热情，⼈们更多的是采取谨慎态度，以至于⼀些州开始采取奖励办法希望能激励民众接受疫苗注射。
 
-- HEX交易所图表显示，KYC认证正在加速进行中。
+**新闻链接：**
 
+[https://futuretechtrends.co.uk/2021/05/07/china-considered-weaponising-coronaviruses-five-yearsbefore-covid-outbreak-predicted-ww3-fought-with-bio-weapons/](https://futuretechtrends.co.uk/2021/05/07/china-considered-weaponising-coronaviruses-five-yearsbefore-covid-outbreak-predicted-ww3-fought-with-bio-weapons/)
 
-## **新闻动态**
+### **美国著名节⽬主持⼈塔克（****Tucker Carlson****）质疑疫苗**** **
 
-1. The Block昨日消息，美国众议员Emmer在国会重新提出了针对分叉加密资产的安全港税收立法。拟议的立法将禁止美国国税局（IRS）利用与分叉资产有关的处罚，直到其向纳税人发布进一步的指导。根据该法案，由于分叉产生的个人加密货币收入将属于安全港范围，这意味着除非国税局提供额外的信息，否则不会构成应税事件。
-2. 福布斯消息，美国纽约州金融服务部（DFS）任命Debra Brookes为DFS研究与创新部门虚拟货币副主管。在八年前加入DFS前，Debra Brookes是一名联邦检察官。
-3. Trade Arabia消息，SWIFT和埃森哲发表论文称，CBDC作为数字资产创新的一部分，为以新货币形式进行国际支付的可能性做准备。SWIFT打算进一步探索其作用，既作为CBDC交易的认证信息载体，也作为CBDC实际价值的载体。
-4. Coindesk消息，保险巨头安联的一份新报告指出，以交易或托管形式提供加密货币服务的公司”将面临潜在的第三方责任”，加密货币敞口可能会对金融机构的风险状况产生深远影响。
-5. Decrypt消息，福克斯将创建NFT Studio，并将策划和销售数字商品，包括具有独特特征和艺术背景的NFT、GIF以及粉丝代币。
-6. The Block昨日消息，Coinbase宣布拟发行2026年到期的12.5亿美元的可转换优先票据。
-7. 波卡创始人兼Web3基金会主席Gavin Wood发推表示，第110号提案现在可以在Kusama上进行投票，这会将第一个平行链添加到Kusama。
-8. Roxe预计于5月18日销毁99亿枚ROC（RoxeChain上销毁97.65亿枚；以太坊上销毁1.35亿枚），销毁后ROC总流通量为1亿枚（原计划发行100亿枚）。
-9. Coin Desk消息，DeFi资产管理平台Zapper宣布完成1500万美元A轮融资，Framework Ventures领投。
-10. Patentscope查询数据显示，日本索尼在2019年就开始考虑比特币（BTC）集成。据悉，索尼互动娱乐公司正在就“电子竞技博彩平台”申请美国专利。这项专利于2019年申请，但三天前才公开。
-11. 官方消息，HECO全生态交易所MDIS旗下创新项目HSK已于5月15日正式完成社区自治。官方全力推动社区健康发展，成立5000万枚HSK基金，旨在将HSK打造为成为HECO通缩赛道上的独角兽。
-12. DeFi借贷平台Ruler Protocol发推称，社区提案建议添加renBTC作为抵押品。Snapshot投票正在进行中，将于5月24日结束。
-13. 第三代跨链资产桥BoringDAO拆分提案已经在Snapshot上结束，以71%投票率投票对BOR进行1:10,000拆分，预计兑换合约上线时间为5月21日。拆分后新Token将更名为BORING，并会长期支持BOR-BORING双向兑换。
-14. 官方消息，NFT创作平台Corra Finance获Immutable创始人Robbie和James Ferguson及CoinMarketCap创始人设立的投资基金Lasting Capital投资，并于5月17日20:00在Balancer开启LDB。
-15. 多链NFT市场NFTSTARS宣布将于6月5日通过BSCPad和Cyberfi Samurai Launchpad举行公开发售。同时，NFTSTARS宣布已经完成两轮私募。
-16. 加密交易所Bitstamp在推特宣布，已经开启Algorand（ALGO）、Audius（AUDIO）和Curve（CRV）转账模式（包括充值和提现），明天开启ALGO交易，周三开启AUDIO交易，周四开启CRV交易，7月底之前所有新交易对都免除费用。
-17. Coingape报道，2021年第一季度加密货币公司融资25亿美元，创历史新高。该数据几乎是2018年第二季度融资总额的两倍。
-18. U.today消息，由Mike Novogratz创立的加密银行Galaxy Digital最近发布财报，在2021年第一季度的净综合收入增加了58％，达到了8.6亿美元。
-19. 行情显示，加密货币交易所Coinbase跌5.3%，报244.6美元/股，跌破发行价250美元。
-20. 以太坊第一季度数据显示，以太坊交易费共计17亿美元，去年同期水平为800万美元，同比增长200倍。链上总交易额达到7130亿美元，去年同期水平为330亿美元，同比增长20倍。
-21. 韩联社消息，加密货币交易所Bithumb韩国发布今年第一季度的财报，财报显示Q1净利润达2225.5亿韩元（约1.96亿美元），而去年第一季度的净利润为1277.5亿韩元（约1.12亿美元），增长了74.6％。
-22. Aave整合主管Marc Zeller发推表示：Aave市场规模突破200亿美元，Aave协议日收入接近200万美元。
-23. Cointelegraph消息，比特币和以太坊的交易费用在过去几周分别下降了81%和71%。Bitinfocharts数据显示，以太坊区块链的平均交易费用从5月12日的每笔交易69.92美元下降到5月16日的20.06美元。
-24. Etherscan数据显示，以太坊Gas费重回50Gwei附近，其中24小时Gas消耗排名前三的依旧为UniswapV2、Tether以及UniswapV3。
-25. 彭博社消息，美国银行加入由稳定币发行商Paxos创建的区块链网络，并将使用区块链技术在数分钟而不是数天的时间内完成股票交易。这是华尔街日益采用区块链技术的标志。此前消息，稳定币发行机构Paxos获得美国信托执照。
-26. MySpace联合创始人TomAnderson在推特发布“激光眼”照片，以表示对加密货币的支持。“激光眼”是在推特兴起的一种比特币宣传潮流。
-27. V神将其钱包中剩余90%、价值77亿美元的SHIB燃烧。随后SHIBINFORER证实了Vitalik已经销毁其绝大部分SHIB代币。
-28. Tokenview数据显示，V神钱包地址目前持有Labra Doodle代币LOODL共计585,643,283,300,624枚。LabraDoodle发行量共1,000,000,000,000,000LOODL，其中V神拥有的LOODL占该代币总发行量的58.56%。
-29. 马斯克发推称，特斯拉没有出售任何比特币。
-30. Cointelegraph消息，Avanti Financial创始人兼首席执行官Caitlin Long称，Tether最近披露的稳定币储备可能是替代币抛售的原因之一。
-31. Crypto Quant首席执行官Ki Young Ju发推称，BTC交易所流入量有助于发现巨鲸的高价抛售行为。最近BTC交易所流入量看起来不寻常。这不一定是一个看跌信号，因为大多数资金都流入币安等衍生品交易所。
-32. Coingecko数据显示，比特币市场占有率降至39.2%，达到3年以来的最低水平。
-33. 截至今日18点，资金净流入排名前三为：AAVE（+4151.29万美元）、MATIC（+3041.99万美元）、THETA（+1628.95万美元）；资金净流出排名前三为：BTC（-14.61亿美元）、ETH（-6.01亿美元）、DOGE（-2.1亿美元）。
-34. Whale Alert数据显示，北京时间5月17日13:34，2亿枚USDT从Tether Treasury转移到FTX交易所。
-35. Whale Alert数据显示，北京时间5月17日13时50分，7,231.017枚BTC（约3.06亿美元）从3HBC9rT开头未知钱包转移到3Jzaz7c开头的未知钱包。
-36. Whale Alert数据显示，北京时间5月17日14时19分，6,569.298枚BTC（约2.96亿美元）从3EgXS8g开头未知钱包经历2次转移最终转至38UFBfm开头的未知钱包。
-37. Whale Alert数据显示，北京时间5月17日14时19分，6,850.7485枚BTC（约3.07亿美元）从34oecB6开头未知钱包经历7次转移最终转至397iwRU开头的未知钱包。
-38. Whale Alert数据，北京时间5月17日15点22分35秒，5569枚BTC（约2.4亿美元）从未知钱包转移到了未知钱包。
-39. Whale Alert数据，北京时间5月17日16点32分49秒，5567BTC（约2.5亿美元）从未知钱包转移到了未知钱包。
+塔克在周三晚间的节目中透露，根据政府报告系统VAERS，⾃2020年12月下旬以来到五月初，已有近4000⼈在注射Covid-19疫苗后死亡。他还以流感疫苗死亡⼈数为例来说明：Covid-19疫苗的潜在风险远高于普通疫苗。
 
+### **以色列人民委员会的报告发现辉瑞疫苗对人体每个系统的灾难性副作用**
 
+以色列人民委员会（IPC）是由领先的以色列卫生专家组成的民间机构，2021年5月3日该机构已在辉瑞疫苗的副作用中发布了4月份的报告。报告表明人体几乎所有系统都受到损害。如果IPC的发现是真实的，则辉瑞疫苗在以色列的死亡人数要比整个欧洲使用的阿斯利康疫苗高。 这些发现在所有可能的水平上都是灾难性的。 这是一份详细的报告，突出了最具有破坏性的发现。
 
+**新闻链接：**
 
+[https://greatgameindia.com/israel-report-pfizer-vaccine-side-effects/](https://greatgameindia.com/israel-report-pfizer-vaccine-side-effects/)
 
+### **泰国排球协会5月12号晚间宣布：泰国女排国家队22名队员CCP病毒检测呈阳性，目前均为无症状感染者，已入院隔离治疗**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18062528/Screen-Shot-2021-05-18-at-6.25.14-PM.png)图片来源：腾讯体育
+排协同时宣布，泰国女排国家队被迫退出即将于5月25日在意大利里米尼开赛的世界排球联赛女排赛事。泰国女排国家对从4月20日开始就一直在首都曼谷附近的佛统府青年运动中心进行赛前集训，由于球队的4名运动科学人员被检测出CCP病毒阳性，作为密切接触者的队员接受了病毒检测。值得注意的是，这批队员在4月29日接种了CCP病毒疫苗的第一针注射。
 
-*编辑：aQ
-发布：文顾*
+**新闻链接：**
 
+[**https://www.sohu.com/a/466263616\_162758**](https://www.sohu.com/a/466263616_162758)
 
- 
+### **4月14号，丹麦药物安全部门的一名官员在接种阿斯利康疫苗后，在发布会上突然昏倒在地**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18062700/Screen-Shot-2021-05-18-at-6.26.48-PM.png)图片来源： 视频截图
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+
 0
