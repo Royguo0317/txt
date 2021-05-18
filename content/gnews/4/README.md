@@ -1,36 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】亿万富翁前泽佑支付费用将于今年12月前往国际空间站
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252597/)
+## 【锐语】小心中共国的养套杀
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252733/)
 
-Mailsonline报道：
+作者：霹雳年
 
-日本亿万富翁前泽佑作于2023年购买了SpaceX的“星际飞船”绕月轨道飞行，并已支付了今年12月前往国际空间站的另一次飞行费用。
+针对中国车展发生车主控诉特斯拉（Tesla）刹车失灵，接着新华社、中央政法委、央视相继讨伐特斯拉。
 
-在Maezawa绕月旅行之前，他在电影制片人中将前往NASA的轨道实验室进行为期12天的计划，并计划在YouTube上分享这种非现实的体验。
+专家指出，很多人认为这是中国“养、套、杀”的作法，把特斯拉拐到中国，让特斯拉带进技术、带动产业、供应链，再“宰杀”特斯拉。
 
-两人将于12月8日乘坐从哈萨克斯坦的拜科努尔宇宙飞船上发射俄罗斯联盟号航天器，该航天器是通过太空冒险组织的。
+“中国想搞它自己的市场，特斯拉还是及早抽出来比较好，否则会越陷越深。”高仁山说，在中国产的无人车，西方自由国家都不会使用、不准用，因为川普政府时期设下干净网路规则。”
 
-这次飞行的费用尚未公布，但据报道，以前的太空游客已经为执行国际空间站的任务支付了2000万至4000万美元。
+如果无人车必须获得干净网路认证，一旦用了中国网通或程式，等于载着一台大的后门病毒到处跑，就无法跟国际车联网系统共用。
 
-该任务将由宇航员亚历山大·米苏尔金（Alexander Misurkin）指挥，后者将搭载前泽和他的船员。
+高仁山表示特斯拉最好趁现在赶快抽离，因为中国是人治市场，不是像欧美般的自由市场，今天它可以让马云成功，明天就可以让马云身败名裂，也就是它今天让马斯克进来，明天就可能没收马斯克的特斯拉，然后一并扣下智财权。
 
-前泽将于下个月在俄罗斯星城的尤里·加加林宇航员培训中心开始宇航员培训。
-
-总共有七个自负盈亏的个人访问了空间站，前泽计划成为第8位和日本的第一个。
-
-尽管Maezawa的计划是为SpaceX登月任务提供女性陪伴，但自2019年宣布这一机会以来，他已经收到了300,000多份申请。
-
-前泽在推特上确认，印度的签约人数最多，为期六天，其次是美国，日本，然后是法国。
-
-然后，在选择八个人之前，本月将进行最后的采访和体检。
-
-参考链接：
-
-[https://www.dailymail.co.uk/sciencetech/article-9588021/Japanese-billionaire-purchases-trip-International-Space-Station-December.html?ito=social-twitter\_mailonline](https://www.dailymail.co.uk/sciencetech/article-9588021/Japanese-billionaire-purchases-trip-International-Space-Station-December.html?ito=social-twitter_mailonline)
-
-图片来源：[https://www.dailymail.co.uk](https://www.dailymail.co.uk/sciencetech/article-9588021/Japanese-billionaire-purchases-trip-International-Space-Station-December.html?ito=social-twitter_mailonline)
+新闻采编：康州盘古农场新闻组
 
 整理撰稿：蓝精灵
 
