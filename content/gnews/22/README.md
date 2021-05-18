@@ -1,19 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】05/16/2021中共的暴政引得天怒民怨
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1254074/)
+## 闫丽梦博士与许多志愿者一起将放军的冠状病毒教学模组翻译成英文，让大家能够更好地了解中国共产党的罪行
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1254164/)
 
-**制作：Cantonese工作室**
+#### 视频字幕翻译：年糕
 
+闫丽梦博士与许多中国志愿者一起将解放军的冠状病毒模块翻译成英文。2015年的这份文件证明，中共政府实际上拥有最好的冠状病毒相关材料和这方面的知识，并将这种病毒用作超限生物武器危害世界公共安全。
 
+[**原视频链接**](https://youtu.be/Jk2HM1PYkro)
 
+***参与人员：**
+素材选择：laowu
+任务发布：美丽心情
+视频剪辑：laowu
+英文听写：秘密翻译组
+德语翻译校对：顽皮菩萨
+字幕：马丁路德King
+字幕校对：美丽心情
+视频压制：美丽心情*
 
-
-*播報: 海媚
-資料整理: 郁金香/文林/二丫
-海報製作: penny/侬民
-視頻製作: KEN
-粵語翻譯校對:文雀(已编辑)*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18115202/%E6%88%AA%E5%9C%96-2021-05-18-%E4%B8%8A%E5%8D%8810.49.39.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18115146/%E6%88%AA%E5%9C%96-2021-05-18-%E4%B8%8A%E5%8D%8810.50.38.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18115130/%E6%88%AA%E5%9C%96-2021-05-18-%E4%B8%8A%E5%8D%8810.50.52.png)
 0
