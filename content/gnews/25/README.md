@@ -1,69 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共教育体制之我见
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1254573/)
+## 【一线新闻】GTV投资者向SEC呐喊出最强声音——口号声响彻云霄
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1254523/)
 
-作者：比丘泥|校对：X-Wing|审核：Beicy-数学老师|Page：小雨
+前方记者：纽约香草山记者站 Kathy（文艺）
+撰稿：纽约香草山记者站 熊井（文兰）
 
-[!\[\]()!\[\](https://spark.adobe.com/page/6fjH1sZJZ8cjH/images/18bf7293-7c61-4af0-a6a5-5b11fb29bb05.jpg?asset_id=6a7ab625-9f50-4f7c-ab16-2544cb553caf&amp;img_etag=%2238daed831a5e3001a0a7c41bfea9f38b%22&amp;size=2560)](https://spark.adobe.com/page/6fjH1sZJZ8cjH/images/18bf7293-7c61-4af0-a6a5-5b11fb29bb05.jpg?asset_id=6a7ab625-9f50-4f7c-ab16-2544cb553caf&amp;img_etag=%2238daed831a5e3001a0a7c41bfea9f38b%22&amp;size=1024)
 
-中共伪政权奴役中国人民70余年来，几乎将中华文明摧毁殆尽，中共统治下的教育浸透着流氓、黑帮、纳粹主义，早已被文明世界抛弃。可悲的是，风华正茂的青年，或主动，或被动，沦为中共几个家族用而弃之的工具和玩偶。极权统治下的中共教育，培养的不是人才，而是奴才，是在训练卖身求荣的妓女、戕害同胞的汉奸和打家劫舍的土匪，在中共眼里，只有这样的人，才能守住红色江山万年传。
 
-一、中共的教育是极权纳粹主义教育，充斥着严格等级
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/6fjH1sZJZ8cjH/images/275d56eb-cee9-45b3-b418-f1c124b1406a.jpg?asset_id=58a5bb6e-bfc7-4c4f-a5f4-dc9d75d9189c&amp;img_etag=%2296e498a167a590a34264eed5e68d3406%22&amp;size=2560)](https://spark.adobe.com/page/6fjH1sZJZ8cjH/images/275d56eb-cee9-45b3-b418-f1c124b1406a.jpg?asset_id=58a5bb6e-bfc7-4c4f-a5f4-dc9d75d9189c&amp;img_etag=%2296e498a167a590a34264eed5e68d3406%22&amp;size=1024)
 
-学生入学时，搞军训，练习的是服从，服从于老师，服从于学校的权威，便于掌权者管理。入学时的训练项目从来不会教学生如何团结，如何互相帮助，如何包容，这也是中共的本质，就是不能让群众团结。
 
-学生在课堂上不能搭话，不能提出让老师下不来台的问题，否则就会影响老师的权威，影响老师的面子。心胸狭窄的老师会打击报复童言无忌的孩子。老师喜欢听话的孩子，骨子里希望学生好管理，其实，这也是老师不具备真正的管理能力，老师的骨子里本身就有独裁者的思想。
+SEC + CCP Corruption
 
-学生在学校按照考试成绩排列等级，本质是看重各自的眼前利益。中学、班级都有严格的等级划分，考试成绩高的，是为学校创造政绩服务的，父母有钱人、做官的，在学校老师眼里有利用价值的，是能为自己“办事儿”的，也会划为高等级。
+SEC, You Must Pay
 
-二、中共的升学录取制度，本质是文革式的“学生斗学生”，教会了学生权谋、虚伪与奸诈
+SEC Meets in Court
 
-在中共国内，有一种说法叫“指标到校”或者叫“定向招生”。比如，一重点高中计划招收500学生，会向第一所初中分配100个名额，向第二所初中分配60个名额等等。这第一所和第二所学校的考生，就必须在本校和自己同学竞争这些名额，一个学校的学生就自然而然地去抢夺这些名额，于是阴谋大战就开始了。学习成绩相仿的同学互相提防，成为敌人，故意讲错答案，不会向同学透漏自己参加哪个课外辅导班，不让同学知道自己买的什么辅导资料，都是偷偷地学，有的故意在同学面前讲昨天的电视剧，或者推荐漫画言情小说，来分散可能有竞争的同学的注意力，一个梯队的同学会联合起来排挤别的同学，前5名的，可能会排斥6-10名的，这样的事儿太多了。
+SEC Loves CCP
 
-这一切都是中共造成的！为什么不召募更多的好老师？非要让千军万马过独木桥呢？
+SEC with CCP SPY, GTV Investors Die
 
-中共的籍口是没钱，其实本质就是在中共眼里，“知识越多越反动”，中共只要生产出几个能够为自己服务的奴隶就够了，太多了不行，都有知识了，有思想了，岂不会要民主法治自由？要人权？让群众窝里斗才是目的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18155932/80-1-5.jpg)
 
-另外，有的重点学校改制成了教育集团，是公司化运营，有总校和分校之分。总校和分校老师的配备是完全不一样的，老师的配备是和学生背后的家长密切相关的，做官的，有钱的一群家长就会在背后运作，分到好的老师，没背景的就只是听天由命了。
+2021年5月6日，今天的抗议活动继续。太阳出来了，温暖的阳光照在抗议者的身上，他们依然站在SEC门前，高喊口号，声音响彻云霄……
 
-总校和分校的校长也是恶性竞争，总校会瞒着自己讲课的内容，有的同学在心理上认为总校比分校更高等。
+GTV投资者抗议SEC与中共国勾兑的行动，没有一个媒体或电台报道，他们是在躲避还是在逃避？那我们就自己报导道吧！
 
-三、中共官场的腐败文化和厚黑学，严重影响和伤害了学生
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18160024/81-6.jpg)
 
-同学过生日，要相互请客送礼，很多年以前，就有小学生送金项链的。背后有一部分原因，是家长的教唆，因为有的学生父母是做官的，另一个同学父母想和人家接触，就通过自己的孩子变相送礼。还有为了学习好，送礼来关照自己的孩子，不会的题给讲讲啊。学生当然也必须溜须老师，给老师送礼。
+路上有许多车辆经过，揭露SEC和CCP勾结真相的宣传车亦穿梭于整个曼哈顿。其所经过之处，行人都会停下脚步，观看宣传车展示的图片，了解SEC与中共勾兑的内幕，理解这种勾兑给GTV投资者的经济带来了很多损失…..
 
-四、中共官场鼓励告密，学校也一样，这是在培养汉奸
+CCP灭亡的日子不远了！在我们“Take Down the CCP”的口号声中，CCP将轰然倒塌。再大的庞然大物，从物理的角度、从心里角度、从精神的角度，它都将会怦然倒地！
 
-[!\[\]()!\[\](https://spark.adobe.com/page/6fjH1sZJZ8cjH/images/f94913b8-eacb-4a6f-b81e-d7993141a030.jpg?asset_id=3709b6b8-1967-433d-b5c5-5d452c2805b6&amp;img_etag=%226062bed9943c684190a776e1f0f2e804%22&amp;size=2560)](https://spark.adobe.com/page/6fjH1sZJZ8cjH/images/f94913b8-eacb-4a6f-b81e-d7993141a030.jpg?asset_id=3709b6b8-1967-433d-b5c5-5d452c2805b6&amp;img_etag=%226062bed9943c684190a776e1f0f2e804%22&amp;size=1024)
+太阳出来了，我们这个晒太阳群终于见到太阳了，多么温暖啊……
 
-汉奸一大特征，就是告密和戕害自己的同胞！老师找几个学业生当卧底，偷偷地记下谁不守课堂纪律，让同学之间的友谊荡然无存，大家互相猜忌。还有的班级上的纪律委员，将同学私自带的巧克力没收了，然后自己没忍住，吃了，让人哭笑不得的背后是一种悲哀
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
 
-有的老师看自己教的两个班级学生都不服自己，就让两个班的学生相互批卷，然后根据成绩再排名。学生当然给另一个班级打低分了，然后就有了矛盾，本来很好的同学，眨眼成了仇人。
+编辑/校对/发稿：Irene木木
 
-五、学校有时也搞竞选班级委员，有的同学打悲情牌，痛哭流涕，其实也没那么悲惨嘛。好像《唐伯虎点秋香》，谁比谁惨，当然，最后的决定权还是在老师。
+**更多资讯，更多关注**
 
-六、学区房的问题。大家可能对国内学区房的问题都有了一定的了解。我想说的是，有了学区房，学生到了好的学校，也不一定会配备好的老师。当官儿的也不傻，哪能让你白占便宜呀，那我没得到好处，凭啥你家孩子白得好老师啊？有了学区房，到了好学校，但分到的不是好的班级，一样白费。
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-还有食堂重视效益忽略食物质量和卫生，都是向钱看，同学想在午休时到校外买零食吃，需要先贿赂保安等等。
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-也许，当国人的孩子经历这些的时候，父母应该感到幸运，因为，您的孩子没有被老师、校长、教育局的领导强奸，没有被跳楼，没有被活摘器官，吃坏了肚子命还在，还有治疗的机会，忍气吞声，可能会迎来海阔天空。
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-***文章仅代表个人观点***
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/6fjH1sZJZ8cjH/images/4bf9cbec-edb1-43ca-884e-5d30210a4033.jpg?asset_id=4899c546-d56b-4557-9b8f-05d718b0c0e1&amp;img_etag=%22d292bba6b3a258ca3404f8bec1ab95e8%22&amp;size=1024)](https://spark.adobe.com/page/6fjH1sZJZ8cjH/images/4bf9cbec-edb1-43ca-884e-5d30210a4033.jpg?asset_id=4899c546-d56b-4557-9b8f-05d718b0c0e1&amp;img_etag=%22d292bba6b3a258ca3404f8bec1ab95e8%22&amp;size=1024)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/6fjH1sZJZ8cjH/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/6fjH1sZJZ8cjH/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

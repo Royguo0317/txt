@@ -1,47 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】以太坊达到5000亿美元市值的历史新高
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1254904/)
+## 加拿大人必须在加美边境开放之前接种疫苗！
+` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1254879/)
 
-香草山写作组    四季
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191310/s2-7.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18180443/%E7%89%B9%E9%B2%81%E5%A4%9A%E7%96%AB%E8%8B%97-edited.png)图片来源：YOUTUBE
 
 
+据加拿大独立媒体ThePostMillennial于5月18日刊登的新闻报道指出，总理贾斯汀·特鲁多（Justin Trudeau）在当天对外公开表示说，在美加陆地边界重新开放之前，必须有75％以上的加拿大人都已经接种了疫苗。
 
-零对冲5月12日报道，在周一的加密货币闪电式暴跌之后，以太币坊到了4400美元附近的新纪录高点。这已经将以太坊的市值推到了5000亿美元以上，现在比摩根大通的市值还要大。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18180628/Screen-Shot-2021-05-18-at-6.06.15-PM.png)
-据CoinTelegraph报道，以太币是继比特币之后第二个市值达到5000亿美元的加密货币。以太币成为5000亿美元资产的时间明显更短。比特币于2009年1月推出，花了近12年时间，在2020年12月达到5000亿美元的市值，价格高于27000美元。由于以太坊加密货币协议的第一个版本是在2015年7月推出的，因此以太币现在只有5年零10个月的历史。
+特鲁多亲口承认其政府为重新开放已关闭了14个月之久的加美边界而正在与美方进行初步商讨中。但总理坚称在边界被安全开放之前，至少有75％的加拿大人接种了疫苗。因为现在该国的（中共病毒）COVID-19疫情状况与美国形成了鲜明的对比，后者由于高普及的疫苗接种率而取消了必须在公共场合戴口罩的防疫措施。
 
-正如Cointelegraph之前报道的那样，以太坊联合创始人维塔利克-布特林在5月3日以太币价格升至3000美元以上后成为了亿万富翁。加密货币分析师和数字资产投资公司Magnetic的联合创始人梅根-卡斯帕认为，现在以太币有望在2021年底达到8000至10000美元的价格目标。据报道，该分析师之前预测以太币将达到3400美元，该加密货币的交易价格将达到约为1200美元。
+在美国通过重新开放各项户外体育赛事和热闹酒吧的举措中吸引了大批消费人群的同时，加拿大的安大略省，新斯科舍省和艾伯塔省的居民们仍然处于被当局禁闭的状态。
 
-该代币的发行机构–互联网计算机公司将其描述为一个“基于区块链的云计算项目”。公链 Dfinity旨在开发一个基于区块链的基础设施，提供第一个真正的全球区块链网络，并以顶级网络速度运行，具有无限的扩展功能，支持任何体积的智能合约计算。公链 Dfinity提出了去中心化，引入了被称为“阈值中继”（Threshold Relay）的独特共识模型，加上其区块链神经系统，以确保算法治理。
+据加拿大媒体报道，该国的疫苗接种率远低于其南部邻国，并一直在为努力满足疫苗需求而奋力挣扎。
 
-早在5-6年前，亿万富翁基金经理斯坦-德鲁肯米勒说美联储的政策正在使美元的储备货币地位面临风险，加密货币是一个寻找问题的解决方案。
+截止今日，大约有37％的美国人已经接受了满剂量的疫苗接种。而在加拿大，这个数字仅为3.7％左右。加拿大目前众多的政治纷争都被归咎于特鲁多自由党政府无法及时获得足够的疫苗供应合同，并由此导致了大量疫苗接种计划的延误。而现在该国似乎终于达到了更高的接种率。
 
-去中心化的数字货币价格的剧烈波动，比起绑定美元的喜币的安全性，流通性能高的稳定币大概不能同日而语了。在世界进入数字化的时候，期待喜币，喜美元的出现能给人类带来合法的支配财富的自由。
+美国政界人士正极力敦促总统乔·拜登（Joe Biden）必须确保美加边界能在7月4号及时开放，这是许多美国人都期盼已久的关键日期。但特鲁多似乎对该美方已经确定的时刻踟蹰不决，不过他表示加拿大人应该憧憬“人均一剂的夏天”。而这无疑意味着大多数人将不可能在7月4日之前得到全部剂量的疫苗接种。
 
-原文链接：
+[原文链接](https://thepostmillennial.com/tudeau-says-75-of-canadians-must-be-vaccinated-before-travel-restrictions-will-be-lifted)
 
-[https://www.zerohedge.com/crypto/ethereum-reaches-record-high-500-billion-market-cap-now-bigger-jpmorgan](https://www.zerohedge.com/crypto/ethereum-reaches-record-high-500-billion-market-cap-now-bigger-jpmorgan)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+本文仅代表原媒体信息和作者个人观点。
 
 0

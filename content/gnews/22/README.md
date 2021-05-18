@@ -1,38 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧洲议会反对中共国 请尊重人权
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1254538/)
+## 2021年5月18日 文贵先生盖特 1
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1254696/)
 
-```
-新闻来源：意大利共和国报（La repubblica）
-发布时间：2021.05.17
-翻译整理/简评：斩草要除根
-```
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18162825/cq5dam.thumbnail.cropped.750.422.jpeg)图片来源：vaticannews
-欧洲公司停止在中共国的采购，中止了去年12月与北京签署的投资协议，这是欧盟一个反对「亚洲巨人」的举措。将在明天至第二天之间通过批准一项决议，将北京的政策纳入该指数，特别是民权领域。而这是欧洲议会提高对习近平的隔离墙。
+5月18号: 尊敬的战友们好！看看苹果公司是怎么黑郭媒体的，郭媒体是如何艰难的生存的！共产党是多么的邪恶，郭媒体所有的数据都是被屏蔽的，未来当这些数据公开之日，一定会震惊世界！ 【纽约时报报道：審查、監控與利潤：為做生意，蘋果向中國政府妥協 [https://cn.nytimes.com/technology/20210518/apple-china-censorship-data/zh-hant/](https://cn.nytimes.com/technology/20210518/apple-china-censorship-data/zh-hant/)】 May 18th: Dear fellow fighters!Looking back on how Apple has been smearing Guo Media we can get a glimpse of the difficulties Guo Media faced in its survival. CCP is so evil that all the data about Guo Media is blocked. It will stun the world one day when all these data are brought to light. 【New York Times: Censorship, Surveillance and Profits: A Hard Bargain for Apple in China [https://www.nytimes.com/2021/05/17/technology/apple-china-censorship-data.html](https://www.nytimes.com/2021/05/17/technology/apple-china-censorship-data.html)】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18171505/0b289018020a091fa683c1492cc7ef1c.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18171451/6914b83e81ff8852998b01a221db1973.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18171438/47908e13d0a74b7734054d305e892334.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18171425/be6f94e98febff10dc7af90be7cf3b78.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18171412/ea0f501b6e1bce8d326f12c5fff734bc.jpg)
+[【2021年5月18日】文贵先生盖特原文](https://gtv.org/getter/60a3bcce37f7f73984ccfee0)
 
-最初的提示是几周前十个欧洲议会议员针对中共国的制裁而给出的。直到昨天为止，虽然目前在此基础上还存在一定的歧义，但是几乎所有小组提交的论文的语气都基本相似。
-
-事实是，今天欧洲人民针对社会主义者所起草的决议很可能将最终统一起来。与以前的版本相比，文本可能会有一些更改，但对中共国政府会更加的严厉。
-
-只需阅读它们即可了解批评的强度，欧洲议会重申了中共国针对众多宗教和少数族裔日益压制政权的关注”，对中共国大陆和香港的“局势恶化”表示遗憾。要求中共国当局“尊重基本自由”。最后，他提醒委员会注意：当被要求批准投资协议或未来贸易协议时，必须考虑中共国的人权状况。
-
-对社会主义者的立场更为严厉，其目的是中止投资协议，直到取消对欧洲议会和欧盟机构成员的制裁为止。将尊重人权的需要与新的商业斗争结合在一起，新的商业斗争还考虑到禁止新疆的强迫劳动和严重侵犯人权的产品进口到欧盟。因此，接下来几个小时内的所有事情都将由一个单一决议组成，该决议将在绝对与北京相反的路线上部署。
-
-即使在过去几周的冲突之后，很明显，欧盟外交也试图完全不破坏与亚洲巨人的关系。尤其是在商业层面上。昨天，意大利总理也在这种意义上引起了一丝曙光。德拉吉与李克强通电话提到“更加公平的双边经贸关系”。德拉吉明确地说：经济关系是另一回事，没有哪个国家真的可以完全放弃，但是在政治层面以及捍卫人权和少数群体的层面上，目前仍然不可逾越。
-
-#### 简评：
-
-**中共的气势汹汹只能逼得欧盟及其相关成员国的手段迭出，以回应中方的“反制裁”举措。这制裁一旦开打，就不受中共的控制了，这将对国际战略格局演变产生重大的影响。欧盟终于迈出了对华政策转变的艰难一步，在采取了具体行动以后，这也会是一个漫长的过程。而英、美、加先后应和加入对华的制裁可以看作是“完美”的协调。**
-（本文只代表译者观点，与Gnews平台无关。）
-
-**新闻原文链接：**
-🔗[L’Europarlamento contro la Cina: “Rispetti i diritti”](https://www.repubblica.it/esteri/2021/05/17/news/l_europarlamento_contro_la_cina_rispetti_i_diritti_-301454296/)
-
-* * *
-
-***编辑整理/校对: **Ting Guo*
+**喜联盟Gnews编辑部**
 
 0
