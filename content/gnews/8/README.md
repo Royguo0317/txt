@@ -1,43 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法拉利车主遭遇侄女级19岁女生求处对象时真挺难的
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1252770/)
+## 福奇博士资助的病毒研究使中共军方获取专利
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1252814/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17233514/%E6%8D%95%E8%8E%B73_%E5%89%AF%E6%9C%AC.png)
-据[**毛骨悚然的奇闻**](https://weibo.com/5598030971?refer_flag=1001030103_) [2021年05月16日 22:20](https://weibo.com/5598030971/KfMid79UQ?refer_flag=1001030103_) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+新闻来源：《The Gateway Pundit》| 作者：Lawrence Sellin, PhD.（劳伦斯·塞林博士） | 发布时间：2021年5月15日
 
-江苏，一*法拉利车主* 遭 18岁女生哭求处对象 [L毛骨悚然的奇闻的微博视频](http://t.cn/A6VUJ3SW) ​
+翻译/简评：大和凯多 | 校对/审核：万人往 | Page：Daoiii
 
-具体细节据[法拉利车主遭00一把鼻涕一把泪的求处对象](https://baijiahao.baidu.com/s?id=1699836531428208552&amp;wfr=spider&amp;for=pc)（[直男x1](https://author.baidu.com/home?from=bjh_article&amp;app_id=1602420432321372)发布时间: 05-1522:57） ：
+[!\[\]()!\[\](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/65a8868c-2366-47df-bb82-ddb3379e0ec2.jpg?asset_id=df904643-9893-4b00-88ab-9e21ff8724cf&amp;img_etag=%224511c468ce89f401b6ee225d57e08c17%22&amp;size=2560)](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/65a8868c-2366-47df-bb82-ddb3379e0ec2.jpg?asset_id=df904643-9893-4b00-88ab-9e21ff8724cf&amp;img_etag=%224511c468ce89f401b6ee225d57e08c17%22&amp;size=1024)来源网络资料：解放军军事医学科学院微生物流行病研究所病毒室主任秦成峰（右）
 
-［5月15日，江苏宜兴一男子来法拉利遭一19岁的女生痛苦求处对象。
+**简评：**
 
-视频中女生坐副驾驶一把鼻涕一把泪的的哭，男子一边给她递纸巾一边问她：你说我们哪里合适？我比你大那么多？
+史佩勇是德克萨斯大学加尔维斯顿分校医学分部的教授，也是武汉病毒研究所的荣誉教授。自2004年以来，福奇的美国国家过敏和传染病研究所资助他获得多项中共国专利。同时，中共军方也是这些专利的持有人。
 
-女生：不要跟我讲年龄，你不要给我讲明天再说，明天跟你好好讲。不要跟我讲我们认识时间不长，我现在一把鼻涕一把泪。
+史佩勇本科毕业于南京师范大学生命科学学院，在佐治亚州立大学分子病毒学获得博士学位，目前是德州大学医学分部的生物化学与分子生物学系教授。2021年2月8日，史佩勇的研究组和美国辉瑞公司的Dormitzer博士共同在《自然·医学》发表了一片关于辉瑞疫苗的文章。是的，他现在还在美国活跃。
 
-法拉利车主：我们才认识二十多分钟，不能这么仓促好吧，谈恋爱不能这么仓促！
+[!\[\]()!\[\](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/049f3fd4-9390-4338-95d0-3279128c582a.jpg?asset_id=542e58d8-9b01-4fdf-886d-e93373b24ca8&amp;img_etag=%22ed14d3301080e03b615c7ce9bb0c7b02%22&amp;size=2560)](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/049f3fd4-9390-4338-95d0-3279128c582a.jpg?asset_id=542e58d8-9b01-4fdf-886d-e93373b24ca8&amp;img_etag=%22ed14d3301080e03b615c7ce9bb0c7b02%22&amp;size=1024)来源南京医科大学官网，2019年10月24日，沈洪兵（左）校长为史佩勇（右）颁发客座教授聘书
 
-女生：我不要……
+塞林博士在门户网站发布的这篇文章彻底揭露了福奇、史佩勇以及中共军方之间的关联；福奇利用美国纳税人的钱，通过资助史佩勇给中共国军方做病毒方面的研究。福奇博士勾结国外，这已经构成叛国罪了。史佩勇现在虽然还身在美国活跃，塞林博士的这篇文章足以让史博士吃安眠药才能入睡了。美国的特工们很可能早就盯着他了，估计想效仿郑颂国，人还没到机场就会被抓。最后希望潜伏美国的中共特务们多保重，天网恢恢，疏而不漏，不是不报，时候未到。他们现在还有机会选择站在正义的一方，否则，将面临中共的丢卒保车和美国法院的审判。
 
-法拉利车主：你2003年的，我都可以做你叔叔了！
+[!\[\]()!\[\](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/d50db4cc-719c-49ac-8abb-068205540272.jpg?asset_id=d087fe5b-c729-4179-a321-6f5ad440e382&amp;img_etag=%222c33242006de5b8e6a61d4bf125e5c6a%22&amp;size=3409)](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/d50db4cc-719c-49ac-8abb-068205540272.jpg?asset_id=d087fe5b-c729-4179-a321-6f5ad440e382&amp;img_etag=%222c33242006de5b8e6a61d4bf125e5c6a%22&amp;size=1024)
 
-女生：你今天死都不跟我处对象是不是？
+**原文翻译：**
 
-法拉利车主：我大叔了，叔叔了！
+## **独家：福奇博士资助的研究使得中共军方获取专利**
 
-女生撒娇式的回答：我就喜欢大叔，你跟我处对象吧！
+史佩勇在中共国接受教育，目前是德克萨斯大学加尔维斯顿分校医学分部的生物化学与分子生物学教授。
 
-法拉利车主：回家了、回家了，你跟我说你住哪小区的。
+2007年，史佩勇开始担任武汉病毒研究所的荣誉教授，并且自2004年以来，他一直由福奇博士的美国国家过敏和传染病研究所（NIAID）资助。
 
-女生爬副驾凳子上哭着说：你不跟我处对象！
+史佩勇还和中共军方的科学家进行了广泛的研究合作，相关发表在门户网站的文章链接如下：
 
-最终车主还是安全的把女生送到了家，网友疑问，现在的女生都这么主动的吗？］
+- [https://www.thegatewaypundit.com/2021/05/massive-infiltration-u-s-virus-research-chinas-military/](https://www.thegatewaypundit.com/2021/05/massive-infiltration-u-s-virus-research-chinas-military/)
+- [https://www.thegatewaypundit.com/2021/05/exclusive-evidence-dr-fauci-funding-chinas-peoples-liberation-army-virus-research-used-biological-warfare/](https://www.thegatewaypundit.com/2021/05/exclusive-evidence-dr-fauci-funding-chinas-peoples-liberation-army-virus-research-used-biological-warfare/)
+- [https://www.thegatewaypundit.com/2021/05/breaking-exclusive-uncovered-direct-link-chinese-military-major-pentagon-funded-virus-research-center/](https://www.thegatewaypundit.com/2021/05/breaking-exclusive-uncovered-direct-link-chinese-military-major-pentagon-funded-virus-research-center/)
 
-法拉利车主这一次安全地把女生送到了家，这让我们每个人都松了一口气，虽然［人与人相爱，种族不是问题，年龄不是问题，性别不是问题］，男欢女爱本来就是你情我愿，只要不触犯法律无伤大雅，可是如果这一次爱上的不是法拉利车主而是法拉利车，那下一次会不会再爱上兰博基尼呢？一想到这个问题，就不禁又为那位法拉利车主捏了一把汗——法拉利车主太危险了！
 
-（文章内容仅代表作者个人观点）
+这项研究使史佩勇和中共军方，特别是秦成峰，获得了中共国的专利。
 
-+1
+史佩勇一直和中共军方有合作。福奇在2021年926569美元的拨款中，史佩勇是其中（获得者）之一。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/47905d1e-f0d0-4f9f-ace3-70e59939480c.png?asset_id=8e66de7c-cde6-4677-9d18-af49490ba50a&amp;img_etag=%22d4bfffde6bc70b82dcaadf006c7c7a47%22&amp;size=2560)](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/47905d1e-f0d0-4f9f-ace3-70e59939480c.png?asset_id=8e66de7c-cde6-4677-9d18-af49490ba50a&amp;img_etag=%22d4bfffde6bc70b82dcaadf006c7c7a47%22&amp;size=1024)（左图：史佩勇；右图：秦成峰）
+
+该项专利在中共国的专利申请号为201810076027.7，于2018年10月26日批准。该专利持有人是中国人民解放军军事科学研究院和史佩勇。
+
+作为科学支持，该中共国专利申请引用了一篇2017年名为《一种减弱的寨卡病毒活候选疫苗在小鼠模型中诱导了免疫力》的文献。这篇文献是由美国国家过敏和传染病研究所资助完成的，资助编号为AI120942。
+
+第二项中共国专利，专利号为WO2019144874A1，于2019年1月23日批准。该专利持有人同样也是中国人民解放军军事科学研究院和史佩勇。
+
+第二项专利中所引用的三篇科学支持文献同样是由美国国家过敏和传染病研究所资助的，资助编号分别为AI120942、AI127744、AI073755和AI104972。
+
+奇怪的是，编号为AI127744的资助接受人王田并没有作为作者出现在中共军方主导的文章中，但是该文章把美国国家过敏和传染病研究所引用为资助方，所以，可能发生了某种形式的资金转移。
+
+最后一个疑点是一项2015年8月20日的名为《用于疫苗的新型减弱登革热病毒株》的美国专利。该专利由史佩勇和秦成峰提交，其中一个专利持有人是中共军方的北京微生物流行病研究所。
+
+在该美国专利申请中，秦成峰隐藏了他与中共军方的隶属关系，将新加坡列为他的工作地点。
+
+该项美国专利申请中没有科学文献参考，并且资金支持来源也不清楚。
+
+🔗[原文链接](https://www.thegatewaypundit.com/2021/05/exclusive-dr-anthony-fauci-funded-research-led-patents-chinese-military/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/y9NU3WaC0v8Ey/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+
+0

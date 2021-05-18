@@ -1,36 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【锐语】什么样体系的国家才需要扫黑除恶常态化？
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252352/)
+## 【有声读物】英国开始全面拆除华为设备
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1252505/)
 
-中共国在党控媒体新华网上发表了下面一条信息：
+配音：香草山录音组 蒙古鸿雁
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17205155/160-1.jpg)
-
-赵克志：中央党校研究生学历，现中共十九届常委，国务委员，国务院党组成员，公安部部长，党委书记，中央政法委副书记，总警监（来自百度）
-
-网上资料显示，扫黑除恶常态化机制指：坚持依靠人民群众，畅通举报渠道，完善举报人奖励机制，建立动态线索进展跟踪等等。
-
-中共控制的网络系统， 摄像头系统，人脸识别系统，税务银行联动系统内， 教育系统，车船系统，一个大大的监控网络。在高科技遭遇世界文明国家封锁的此时，公开了中共以黑治国，以警治国的真实本质。科幻电影再现，老百姓将彻底沦为卖命的人肉电池。
-
-参考链接：
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-> 掃黑除惡竟然能夠常態化
-> CCP這是想搞以前的「抓右派」
-> 還是在暗示自己就是黑惡勢力，所以野火燒不盡，春風吹又生？ [pic.twitter.com/57Bik5q7v5](https://t.co/57Bik5q7v5)
-> — Andy5 (@andy5\_123) [May 17, 2021](https://twitter.com/andy5_123/status/1394409421720023040?ref_src=twsrc%5Etfw)
 
 
 
-图片来源：[https://www.hk01.com/](https://www.hk01.com/)
 
-整理撰稿：蓝精灵
+5月15日，彭博社报道，今天英国开始拆除中共国华为的5G电信设备，这一工作刚刚在赫尔市启动。据报道，赫尔市将实现华为关键设备为“零”的第一个英国城市，它将在7月份之前在市区淘汰所有的华为设备，改为使用诺基亚的设备。
 
-校对发布：Penny
+英国政府还确认，不仅仅华为最近安装的5G设备需要拆除，华为在英国无处不在的4G基站也需要拆除。华为不仅失去了英国的5G市场，还失去了旧有的4G市场，这意味着华为将彻底告别英国市场。
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+
+
+**文字版原文：[【独立观点】英国开始全面拆除华为设备](https://gnews.org/zh-hans/1247556/)**
+
+作者：纽约香草山健身部  Ivy001
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
