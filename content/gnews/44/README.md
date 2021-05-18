@@ -1,57 +1,76 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 苹果为求利益以五种方式向中共让步
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1253910/)
+## 美国针对中共在做战争前的全面布局?
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1253939/)
 
-【日本东京方舟农场】撰稿：青衣     素材采编：武汉老温     校对：文小律
+**摘要：郭先生在2021年5月12日的盖特视频中，以美国在伊拉克战争前的准备为例，透露出美国现在针对中共国，正在做战争前全面布局。这包括：企业从中共国撤资；将生产链挪至东南亚；把新加坡、日本变成亚洲金融中心替代香港；通过在印度周围的几个岛、巴基斯坦和印度的交界处、孟加拉以及泰国南部布置重兵器，来彻底控制石油通道。对比看中共，他们永远都不在乎士兵和人民的死活，只想保住自己的私生子女和财富。**
 
-《纽约时报》在一篇调查报告中指出，美国科技巨头苹果公司为了其在中共国的市场利益，向中共当局频频让步，不但将中共国用户个人资料存进国营企业管理的资料中心，甚至还将“台独”等议题列入禁止在应用程式里出现的清单中。
+**美国针对中共在做战争前的全面布局****?**
 
-《纽约时报》的报道列举出苹果公司使用五种方式来达到中共国政府的审查要求，包括将客户数据存储在中共国政府控制的服务器上；与中共国政府共享用户数据；主动删除敏感应用程序；禁止郭文贵先生的应用程序；以及令数以万计的程序在中共国的苹果商店里消失。
+**What Is the US Preparing Surrounding Communist China?**
 
-《纽约时报》不仅引述了苹果公司的内部文件，并且还对17名现任和前任员工、4名资安专家进行了采访，指出苹果公司执行长库克（Tim Cook）为了公司在中共国的生意，一再对中共国当局做出妥协让步。
+同时大家看到现在美国在干什么？「当年」伊拉克战争前夕，当时整个中东都不相信美国会打伊拉克，甚至到开战的时候还有国家「认为」美国打伊拉克会迅速撤出，马上就会撤出，打几下就走人。当时最前「线」反映就两件事儿：「第一是」大量的在周围布兵；第二件事，「在伊拉克」周围，在中东国家「的」美国驻中东商会以及大型企业撤走。
 
-报道称，在过去20年里，苹果公司得益于中共国的劳动力和消费市场，成为了世界上最有价值的公司。 该公司几乎所有产品都在中共国组装，并且其五分之一的销售额也来自中共国。 但同时，中共国政府也以此作为筹码，向苹果公司施压，索求更多的个资掌控权，要求苹果公司做出与其价值观相背的妥协。
+Have you noticed what the US is preparing? Just before the Iraq War, the entire Middle East did not believe that the US would go to a war against Iraq. Even after the war had started, some countries still thought the US would withdraw quickly and it was going to be a short war. Two things happened at that time. The first thing was that the US had deployed a large number of troops around there in advance. The second thing was that the US Chamber of Commerce in the Middle East, and large companies, had evacuated from other Middle Eastern countries around Iraq before the war started.
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18101925/0C3F21BF-6609-4C2E-94D2-D884FF53DD09.jpeg)
+现在看到的是美国的所有的商会正在香港，在中共国，以及周围地「区」包括澳门，甚至一些敏感的东西啊都要赶快撤出去。这就是现在整个中共的现状。兄弟姐妹你们「要」看到，过去这两周从中共国撤出来的企业「都是」实质性对中共国「曾有」致命帮助「的」，都是离了人家「这些企业，共产党」就不能活的。这些「企业」都在干什么？撤人、撤钱、撤技术。
 
-报道指出， 苹果公司从2017年开始，同意将其中共国客户的数据转移到中共国，并放在一家中共国国有企业拥有和运营的服务器上，以此作为当时对中共国一项法律的回应。据悉，苹果公司是要将中共国用户的资料数据，储存在预计6月落成的贵阳资讯中心，以及内蒙古的一座资料中心。
+Now, we can see that the US Chamber of Commerce is evacuating from Hong Kong, mainland China, and the surrounding areas, including Macau. Even sensitive operations are being withdrawn immediately. That’s what the CCP is confronting right now. Brothers and sisters, you need to understand that the companies that have withdrawn in the past two weeks have been substantial and crucial contributors to the CCP for a long time. But now they are leaving one-by-one. The CCP cannot survive without these companies. What are these companies doing? They are evacuating people, withdrawing capital, and withdrawing their technology.
 
-虽然苹果公司称其拥有严格加密技术保护，但苹果公司在中共国的资料中心实际上是由政府人员控制，而解密钥匙也存留在中共国境内，等同于让中共国政府握有潜在使用权。安全专家和苹果工程师表示，苹果的让步使得该公司几乎不可能阻止中共国当局获取苹果在中共国用户的电子邮件、照片、联系人、日历和位置数据等资料。
+另外，除了美国「在」大量的撤资，撤出技术，商业撤出之外，美国的企业在干什么？美国的企业做了大量的布局「以」代替「原来在」中共的所有生产链。
 
-报道指出，中共国国家主席习近平对于西方企业的要求愈来愈多，而库克此前已多次力抗这些要求。苹果公司辩称，其保留了对数据密钥的控制权，并在中共国使用了比其他国家更先进的加密技术。该公司在一份声明中表示:“我们从未在中共国或我们运营的任何地方危及用户或他们数据的安全。”
+In addition, what are the US companies doing besides the massive withdrawal of their capital, technology, and commercial projects? They are making as many preparations as possible to replace the production chain previously invested in mainland China.
 
-《纽约时报》的调查报道还指出，苹果公司为了其在中共国的市场向中共当局低头，不仅只是体现在中共国用户的个资安全问题，还表现在近年来苹果公司为了安抚中共国官方，移除了大量所谓“敏感内容”的应用程式。
+中共国大量的劳工被剥削的“打工仔，打工妹”都衰老，失去劳动力，一亿多人失业的情况下，那么在越南、缅甸、孟加拉、印度、泰国、马来西亚周围，大量的在布置更多的美国的生产型企业。甚至把「一些」产业「搬到」了东欧去了。「共产党」这一下就完了，「它」所有维护的就是榨取这些打工妹、打工仔「的剩余价值」。生产线一移出，中国所有的60%～70%所谓的人口红利 — 就是便宜的劳动力「所」生产的便宜产品，终端产品。这个没了「共产党能」有什么外汇？周围国家都是敌对国，对不对？那你说这不是噩梦吗？
 
-有一名曾经掌管苹果应用程式商店App Store的员工表示，苹果公司在中共国的律师列出了一份“不能在中（共）国应用程式中出现”的议题清单，包含“天安门广场”、“藏独”、“台独”等。只要律师认为涉及中共国禁忌的敏感话题，苹果公司就得下架。
+The CCP is losing the advantage of its labor force – the cheap labor force called “working young boy and working young girl” is being lost because they are aging and losing their ability of working. More than 100 million people will lose their jobs. The US is setting up more productive enterprises in countries surrounding the CCP, such as Vietnam, Burma, Bangladesh, India, Thailand, and Malaysia. Some industries have relocated to Eastern Europe. In that case, the CCP will decline rapidly. What the CCP relies on is to extract the surplus value of this cheap labor force. Once the production lines move out of China, 60% to 70% of the profits that the CCP siphons from its large population will be cut off – the low-priced, low-end products, produced by this cheap labor forces. Without this, how can the CCP gain foreign exchange? In addition, all the neighboring countries have become hostile countries. You can tell me if this is a nightmare for the CCP.
 
-此外，中共国的iPhone手机还过滤掉了中华民国国旗表情符号，并且还包括地图显示台湾是中共国一部分等事项，宣扬中共国的世界观。一名“资安”专家透露，曾经在iPhone上输入“台湾”，结果导致手机闪退。
+同时看到金融这一块儿，在两三个月以前美国没打算把新加坡、日本变成金融中心，「现在」美国是真正的在严肃认真地把新加坡「和」日本变成美国在亚洲的金融中心。
 
-此外，苹果公司还禁止中共国用户使用有关西藏流亡精神领袖达赖喇嘛的应用程式，但却容许被控拘留和虐待维吾尔族人的新疆生产建设兵团所属单位开发的应用程式供用户下载。根据《纽约时报》的分析，自2017年以来，苹果公司中共国的应用商店有约5.5万个应用程式“被消失”，而其中的大多数却仍然可以在其他国家的App Store中搜寻到。
+Regarding the financial sector, two or three months ago, the US had no intention of making Singapore and Japan financial centers. But the US is seriously considering it now.
 
-报道指出，苹果公司建立了一个内部机构，拒绝或删除该公司认为可能违反中共国规定的应用程序。苹果对其应用程序的审查人员进行培训，使用特殊软件检查应用程序中是否提及苹果认为在中共国禁止提及的话题，包括“法轮功”、“达赖喇嘛”，“藏独”和“台独”等。而苹果公司对此的回应是：这是为了要遵守当地法规。
+更夸张的，对中共极为不利的，最危险的信息，竟然现在在印度周围的几个军事岛上马上要布置重兵器 — 大家看着啊，「这个现在」没有人说出来– 马上在印度的在马六甲海峡，在整个巴基斯坦和印度的交界处，包括在孟加拉以及泰国南部将布置重兵武器。一下就把共产党所有「在」亚洲的触手，争了那么多年的马六甲海峡彻底控制起来了。也就是石油通道「彻底控制起来了」。
 
-此外，《纽约时报》的调查报道还披露出，应中共国互联网监管机构的要求，苹果公司在2018年还禁止了一名中共的批评者——郭文贵先生的应用程序，而郭文贵先生曾通过视频指控中共内部腐败。一份法庭文件显示，苹果高管随后决定将“郭文贵”添加到苹果的“中共国敏感名单”上，这意味着软件会扫描有关他的应用程序，而审查人员会接受相关培训以拒绝其应用程序上架。
+An even more incredible development, also highly unfavorable to the CCP, is that the US has decided to deploy heavy weapons on several militarized islands around India. We will see. Nobody but your Brother Miles has yet disclosed this – the US will soon deploy heavy weapons inside India, in the Strait of Malacca, on the border of Pakistan and India, including in Bangladesh, and in southern Thailand. Then, it will tie up all the “tentacles” that CCP has extended in Asia over the years. The Strait of Malacca, which many countries have contested for years, will also be entirely controlled by the US – that is, the US will completely control the oil transportation routes.
 
-然而，有关郭文贵先生的一个应用程序后来躲过了苹果的审查，并被发布到苹果商店。中共国官员联系了苹果公司，该公司应用程序审核主管在凌晨2点32分向同事发送了一封电子邮件，称“这个应用程序和郭文贵的任何应用程序都不能在中（共）国商店中出现”。
+在这种情况下，兄弟姐妹们，「大家要」想到美国这些战略，这些决定和这些动作绝对不是说跟你共产党打个持久战，是吧？遏制你发展？不存在这个问题。「美国」现在把自己国内一旦跟老共发生问题以后，在国内的经济尽量保持稳定，企业减少损失，不像共产党似的，一有事先抓私人企业家，干掉私人企业家，「美国」不是的。
 
-随后，苹果调查了这一事件，并解雇了批准该应用程序上架的审查员。苹果公司称，解雇该名审查员是因为其表现不佳。然而该公司却下架了郭文贵先生的应用程序，而苹果公司给出的理由是：该应用被认定在中共国是非法的。
+In this case, brothers and sisters, you must realize that these US strategies and these decisions and actions are definitely not for a long-term war against the CCP, or merely intend to restrict the CCP’s expansion? Not at all. The US is now preparing to keep its domestic economy as stable as possible and minimize business losses once a conflict with the CCP has occurred. Unlike what the CCP always does – arrest the private entrepreneurs and rob their property. The US will never be like that.
 
-尽管美国法律长期以来一直禁止苹果公司向中共国当局提供数据，但苹果与中共国政府却通过达成一项绕开美国法律的协议，完成了数据转移的过程。苹果让当地政府持有的云上贵州大数据产业发展有限公司(GCBD)成为其中共国客户云数据的合法所有者，双方还在中文iCloud的条款和条件中加入了新的内容，允许其“访问存储在该服务上的所有数据”，并允许两家公司彼此共享数据。这样一来，中共国当局要求提供苹果客户数据的对象就成了GCBD，而不是苹果。
+另外，老美这套思路，「在」任何情况下都要保证美国的军队，整个的后勤的供给。还有在某几个地区同时做好能打两场战争的准备。更重要的事情，世界的供应链不能断。能源供应链「和」贸易供应链「都」不能断。
 
-据苹果公司称，在达成协议之前，他们从未向中共国当局提供过客户iCloud账户的内容。但自达成协议以来，已在九起不同案件中提供了数量不详的账户内容。这样一种遮人耳目、暗度陈仓的手段，多么具有中共国特色呀！而苹果公司居然就同意与中共国狼狈为奸了！
+The US strategy is to secure the military, and the entire logistical supply, under any circumstances. It wants to be prepared to handle two wars at the same time in different regions. More importantly, the world supply chain cannot be interrupted, neither the energy supply chain, nor the trade supply chain.
 
-诚然，苹果公司的产品的确是行业领先，不仅科技技术含量高，用户满意度也相当高。然而，作为一个美国高科技公司的代表，却为了利益违背西方价值观，屈从于中共这个邪恶政权，这样的行为必将为世人所不耻，遭众人唾弃。
+所以「美国」整个布局和共产党「只」保证中南坑几个老杂毛，「只保证」它们的私生子女不被抓，老百姓死越多越好，最好杀到「美国和西方」手软，「杀到」不敢杀，血流满地吓得「对方」不敢杀了，反正杀不到「他们自己」，杀到他们难着呢，「他们」是这就是这概念。跟当年萨达姆是一个德行。
 
-不过有最新消息称，苹果公司上周六内部开会严肃认真地考虑将所有生产线搬离中共国。同时，苹果公司未来的新手机或将排除中共的网络。与虎谋皮最终都不会有好下场，或许苹果公司如今已有了新的认识。但愿苹果公司能在追求利益的同时，也别丧失了起码的良知。
+So US readiness is much superior to the CCP’s approach of only protecting a few old bastards and their families in the Zhongnan pit. The CCP only cares about assuring their illegitimate children don’t get caught. As for the ordinary people, the more death, the better. If the CCP starts a war, they will try to terrify the US and the West by allowing them to kill masses of Chinese civilians, allowing their blood to flow in rivers until they become sick of killing, hoping that this will embarrass them into ending the war. This is what the CCP is thinking. They are as evil as Saddam back then.
 
-注：本文仅代表作者观点
+在这种情况下，整个美国的布局从马六甲海峡「开始」，当我知道在印度南部、印度东南部，巴基斯坦和印度交界处，在泰国，在马来西亚，在孟加拉「准备」布置重兵的时候，马六甲海峡，整个霍尔木兹海峡，以及到埃及运河这一块儿美国只要是全面开始封锁。
 
-参考链接：
+You can see now that the whole US strategy starts from the Straits of Malacca. When I learned the US would deploy heavy forces in southern India, southeast India, on the border of Pakistan and India, in Thailand, Malaysia, and Bangladesh, I realized once the war started, the US would lockdown the Strait of Malacca, the Strait of Hormuz, to the canal in Egypt.
 
-1. [https://tw.news.yahoo.com/%E8%98%8B%E6%9E%9C%E9%81%AD%E7%88%86%E7%82%BA%E4%B8%AD%E5%9C%8B%E5%B8%82%E5%A0%B4-%E5%A6%A5%E5%8D%94%E7%94%A8%E6%88%B6%E8%B3%87%E5%AE%89-054738346.html](https://tw.news.yahoo.com/%E8%98%8B%E6%9E%9C%E9%81%AD%E7%88%86%E7%82%BA%E4%B8%AD%E5%9C%8B%E5%B8%82%E5%A0%B4-%E5%A6%A5%E5%8D%94%E7%94%A8%E6%88%B6%E8%B3%87%E5%AE%89-054738346.html)
-2. [https://www.zaobao.com.sg/realtime/china/story20210518-1147604](https://www.zaobao.com.sg/realtime/china/story20210518-1147604)
+那「如果和」共产党打仗，你封台湾，我封你马六甲海峡，是不是？日本的油船「能」过，中共国「的」不能过。「共产党」你不就完球蛋了吗？你生产的什么东西也卖不出来。最重要的是这些技术再「不会」输出「到」中国，国内大型设备，大型的所有的高科技设备用的芯片，「和」用的机床设施，几乎100%全靠国外的。技术封杀，设备「封杀」，「共产党会」比伊朗还要惨，因为伊朗没有使用那么多高科技设备。你中共国使用那么多，「离开了这些」运作不下去了。
 
+If there is a war against the CCP, and the CCP blockades Taiwan, the US will block the Straits of Malacca. The Japanese oil carriers could pass but not the CCP’s. Wouldn’t the CCP be finished then? In addition, no products that the CCP manufactured could be shipped out. Most importantly, if the war started, there would be no technology provided to China. Its large-scale domestic equipment, all chips used in large, high-tech equipment, and high-tech machine devices, are almost 100% reliant on Western technology. Once the CCP encountered technology blockage and equipment blockage, it would become even worse off than Iran. Iran never uses that much high-tech equipment, but the CCP uses it so widely. Without these devices, how can you (the CCP) survive?
 
-0
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/609bef6337f7f73984cae322](https://gtv.org/getter/609bef6337f7f73984cae322) (00:28-1:54, 3:42-8:42)
+鸣谢：
+[1] 感谢 Antsee-GTV、TING GUO、文惜和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://gnews.org/zh-hans/1233493/](https://gnews.org/zh-hans/1233493/) 
+[2] 感谢 Antsee-GTV、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于 [https://gnews.org/1239592/](https://gnews.org/1239592/)
+
+* * *
+
+**字幕：【V%】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
++1
