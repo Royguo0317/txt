@@ -1,39 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 武毒所早在2020年中从官网删除了所有中共军方研究员信息
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1253130/)
+## 中共的新谎言： 临期食品成年轻人新宠
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1253154/)
 
-#### 文章撰写:【默凡】
+撰稿: 冰沙奶茶
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18033339/183-1.png)（图片选自网络）
+近日墙内各大媒体大肆宣传：又一新风口？百亿元大市场！临期食品成年轻人新宠。以往临期食品的处理是不少商家面临的难题，不过如今，这些临期食品不但不愁销，还受到越来越多年轻人的青睐。连中共央视财经《第一时间》也跟进报道。
 
-《国家脉动》新闻网5月17日报道：当外界质疑中共军方参与武毒所病毒研究项目后，武汉病毒研究所从2020年年中从其官网上删除了三名中共军方研究员信息，这三名中共军方研究员分别来自中共302医院、军事医学科学院和海军军医大。
+所谓临期食品是临近食品的保质期限，还在食品的保质期之内，快要过期的食品。这样的食品通常受到勤俭持家的老太太们的喜爱，向来不和年轻人沾边。
 
-武汉病毒学研究所学术委员会副主任王红阳隶属于中共国第二军医大学，也被称为解放军海军医科大学。在他的领导下，来自中共解放军302医院的王福生也在该委员会工作。
+而早在5月6日，中共央视财经新媒体联合《中国美好生活大调查》发布中国青年消费大数据显示，在2021年的消费预期中，旅游、保健养生和教育培训位列18-25岁年轻人消费榜单的前三甲。年轻人的消费观可见一斑，也啪啪啪地打了中共自己的脸。
 
-![https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.43.02-AM-800x616.png]()![https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.43.02-AM-800x616.png](https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.43.02-AM-800x616.png)
+现在的年轻人，尤其是“95后”“00后”们，他们是在家里六个大人的溺爱和富裕经济条件中长大，对他们而言几百块钱都不算什么开销。与老一代相比，消费观念和消费习惯均发生了天翻地覆的变化，他们更关注商品的颜值与品质，消费不仅仅是简单的消费，而是对生活态度与自我个性的表达。
 
-来自中共军事医学科学院军事兽医学研究所的涂长春曾在武汉病毒研究所传染病中心科学咨询委员会任职，AMMS被描述为“中国人民解放军最高医学研究所”。
+那么，中共选择这个时间段鼓吹临期食品成年轻人新宠，是有它的难言之隐。百度大数据显示，2020年年轻人超前消费搜索下降26%、逛街购物下降33%，线下娱乐下降43%，快餐外卖下降7%，储蓄理财的搜索热度居然上涨了46%。随着疫情的反反复复，墙国经济备受打击，人们捂紧口袋艰难度日，市场萎靡不振。万般无奈之下的中共只能换个花样忽悠人，一方面收拾烂摊子经济，另一方面需要加紧处理积压的库存。
 
-![https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.46.47-AM-800x537.png]()![https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.46.47-AM-800x537.png](https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.46.47-AM-800x537.png)
+（本文纯属个人观点）
 
-2020年5月28日，该网站发生重大变化，上述委员会的研究人员信息已经被删除。
+*审核：自由战士  编辑：MG1*
 
-![https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.48.05-AM-800x424.png]()![https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.48.05-AM-800x424.png](https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.48.05-AM-800x424.png)
+资料来源：
 
-至今，武汉病毒研究所官网仍删除了这些中共军方研究员信息。
+[https://www.sohu.com/a/466871574\_120702](https://www.sohu.com/a/466871574_120702)
 
-参考文章：
+[https://news.cctv.com/2021/05/06/ARTIfQ9aTxhBbaO3yy7ANBLV210506.shtml](https://news.cctv.com/2021/05/06/ARTIfQ9aTxhBbaO3yy7ANBLV210506.shtml)
 
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-
-> [Wuhan Institute Of Virology Erased Names Of Military-Linked Researchers From Website.](https://thenationalpulse.com/breaking/wuhan-lab-erased-military-researchers-from-site/)
-
-
-
-本文仅代表作者本人观点，不代表Gnews平台
-
-* * *
-
-***排版发布：日本东京方舟农场 文柯Miles***
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews.org/wp-content/uploads/2021/05/1-澳喜Logo-2.jpeg)
 0
