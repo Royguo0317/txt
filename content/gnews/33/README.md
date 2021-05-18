@@ -1,98 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】锅言灶语（八） -有话说之＂画＂外音-
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1252079/)
+## 【香草诗词汇】铜墙铁壁-逻辑人生-
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1252004/)
 
 作者：纽约香草山健身部澄道
 
 
 
-![This image has an empty alt attribute; its file name is logo-3-1.jpeg](https://lh5.googleusercontent.com/U9c9w5ADOG4YiBse2n5RwvE7zUFnaAS1TvUmz8yKnaJder5z766VHCTuFaUxsVltSJHK6-NDxqM7mVsrKJpaxs1ITBnGa6uyI4jTaYwrjibNSl1FDvwKVtXfFi4d_g2Emd2Ut2dv)
+![This image has an empty alt attribute; its file name is logo-3-1.jpeg](https://lh3.googleusercontent.com/SaJZPk42URxKvcjI6mk27LyJOSTG5WG1qB_b9WORHg0nqpIm4eqKXjsuG-6kICF6NA1RqkboH0_lkTlDaZ4SKyuROq4EUNCFdszSht4o80nJBAhv8CRUKOfOitWovEn6vG7pDC9H)
 
 
 
-小馆公告
+铜墙红墙防火墙
 
-情势所逼
+墙强墙深墙久远
 
-无有堂食多寂寞
+墙国人生
 
-唯有更名再续张
+金山银山打江山
 
-＂泰何为＂-中文
+山绿山靑山峰绵
 
-＂take away ＂-英文
+山雾服民
 
-免强维持的后厨
+人民是我们的
 
-锅子
+铜墙铁壁
 
-灶子
+仅仅是哈马斯吗？
 
-还都在
+我们是人民的
 
-只是言出必高谈
+铜墙铁壁
 
-语开更扩论
+威武的以色列楷模先
 
-生无生
+＂不需要你出来上街！＂
 
-死无死
+这是文贵先生在替我们档子弹
 
-生无带来一口气
+救命铜墙
 
-枉与暇满殊胜生
+＂灭共就加入新中国联邦！＂
 
-死无带走一丝麈
+这是七哥不忍你我被＂红魔＂带走
 
-圣趣门中不老身
-
-＂是小馆（有话说）论坛吗？＂
-
-＂是在做＂画＂吗！
-
-＂整点大众口味的行不行吗？ ＂
-
-＂一个个地！ ＂
-
-快言快语的
-
-快进快出的
-
-镇店名服
-
-＂萃花＂来了
-
-＂还有就是坛我也是喜欢的呀！
-
-比如我们老家的咸菜＂坛… ＂
-
-萃花进后厨（论坛）
-
-真的是来＂踢馆子＂的吗！ ？
-
-＂萃花上酸菜….＂
-
-一个绕梁的声音
-
-从后厨传来
-
-听声音判断
-
-是厨二
-
-@澄道来了
+正道铁壁
 
 @爱动爱议码0517
 
+@澄道来了
+
 校对/发稿：火内
-![This image has an empty alt attribute; its file name is 5%E6%9C%88.jpg](https://lh5.googleusercontent.com/ljD5wFPMGbuU6Ym0syBFu4SwYaDVzq_IYCPYrAivB9gMIGPS81-SplcHDaQUUKK2aHQYNRzCT0iejd4kMnDtns29bpFNL-fb7SmHUGiLOEqWYsf56TgEBsqMhVHmeDEx5mQQ4ne4)
+![This image has an empty alt attribute; its file name is 5%E6%9C%88.jpg](https://lh3.googleusercontent.com/W9WhsN7GGqPy3vb1cHr0KH8qDlnnatKwkn-UmQCewlT7vEXGBCXApqJUKWgdDyph7vqyzAbYjoMYQz99FVMNO6PpNhbyw_vfIFjxkak-mwXhdkQXqQv46-Vf7s0BX2mLf_bKM6Pl)
 更多资讯，更多关注
 
 [纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[纽约香草山农场GTV-MOS TALK](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)香草山访谈
+[纽约香草山农场GTV -MOS TALK](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)香草山访谈
 
 [纽约香草山农场Twitter](https://twitter.com/HIMALAYA_MOS)(中文)
 

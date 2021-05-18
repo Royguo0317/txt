@@ -1,22 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】原来伊朗想接管巴国权力机构
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252280/)
+## 【快讯】出现一个新的媒体巨头
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252321/)
 
-News Max报道：
+AT＆T表示将把Warner Media与Discovery联合起来，组成一个全新的公司。 CNN，HBO，TNT等品牌将与TLC，HGTV，Animal Planet等共同组成一个强大的流媒体。
 
-以色列前驻美国大使说：“ [伊朗]想接管西岸，想接管巴勒斯坦权力机构。它有很长的目标清单。以色列前美国大使迈克尔·奥伦（Michael Oren）周一警告说，与伊朗续签核协议将使中东走上“走向区域战争的不可逆转的道路”。
+简评：
 
-奥伦断言：“伊朗想接管西岸，想接管巴勒斯坦权力机构。它有很长的目标清单。”
-
-奥伦谴责伊朗“将以色列卷入加沙的地面战争”，并宣称“伊斯兰圣战是伊朗完全拥有和经营的”。奥伦说，可以肯定的是，哈马斯“从伊朗获得了大部分资金”。
+疫情大流行之后，人们似乎都开始明白掌握媒体话语权的重要性，流量就是未来，信息就是生存的基础。
 
 参考链接：
 
-[https://www.newsmax.com/politics/oren-israel-gaza-iran/2021/05/17/id/1021692/](https://www.newsmax.com/politics/oren-israel-gaza-iran/2021/05/17/id/1021692/)
 
-图片来源：[https://www.newsmax.com](https://www.newsmax.com/politics/oren-israel-gaza-iran/2021/05/17/id/1021692/)
+
+> A new media giant has emerged – this time it's AT&T saying it will conjoin Warner Media with Discovery to form a whole new company. Brands such as CNN, HBO, TNT and others will join forces with TLC, HGTV, Animal Planet and more to form a streaming powerhouse. [pic.twitter.com/uOaGHOunuH](https://t.co/uOaGHOunuH)
+> — The News with Shepard Smith (@thenewsoncnbc) [May 17, 2021](https://twitter.com/thenewsoncnbc/status/1394436276267454466?ref_src=twsrc%5Etfw)
+
+
+
+图片来源：[https://twitter.com/](https://twitter.com/)
 
 整理撰稿：蓝精灵
 

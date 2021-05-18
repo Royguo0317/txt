@@ -1,24 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【锐语】2004年的非典疫情来自于实验室吗？
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252423/)
+## 【快讯】对中国技术法案展开辩论 美国参议院投票表决
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252507/)
 
-今天有网友在推特上发出两张截图，是人民日报2004年的报道：
+路透社大卫·谢泼德森报道：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17210952/162.jpg)
+美国参议院以86票对11票结果。在周一开始辩论《无边界法》。该法案授权在五年内提供超过1100亿美元的资金，用于基础和高级研究，研究的商业化以及人工智能（AI）等关键技术领域的教育和培训计划。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17211049/163.jpg)
+参议院民主党领袖查克·舒默（Chuck Schumer）说，参议院将从周二开始辩论该法案一到两个星期。
 
-文中重点：卫生部成立了由军事医学院科学院北京防控中心，WHO部分专家组成的调查小组，得出结论：本起疫情来自实验室内感染。
+提案摘要草案显示，正在考虑的法案包括20亿美元，促进汽车和国防领域的半导体生产和研究，但一些参议员也在努力采取措施，将520亿美元用于芯片。计划中可能会包括其他与中国有关的账单。
 
 简评：
 
-联想到之前路德社2019年曾经说过，当时为了找中间宿主， 是事先安排好的果子狸，文贵先生也曾经说过，2003年的非典时政治争权，救火队长王岐山通过非典取得政治地位的本质。联系到这篇新闻，可见中共很早就开始布局病毒生物战场。
+该法案正在努力将制造业，基础行业， 高技术外包行业全部回流到本土。这个法案将对未来不被纳入美国或者其盟国商业系统的国家重创。中共国作为欧美国家主要的生产外包，技术外包的产业供应链，这个法案对其影响巨大。一意孤行地内卷，拒绝接受公平透明地商业系统，勾结西方社会邪恶精英，一定被在不久地将来陷入崩塌。
 
 参考链接：
 
-[https://twitter.com/JustinP56075199/status/1394376518290206720?s=20](https://twitter.com/JustinP56075199/status/1394376518290206720?s=20)
+[https://www.reuters.com/technology/us-senate-votes-open-debate-china-tech-bill-2021-05-17/?taid=60a2fedc905c070001e8a9ea&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/technology/us-senate-votes-open-debate-china-tech-bill-2021-05-17/?taid=60a2fedc905c070001e8a9ea&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+
+圖片來源：[https://www.reuters.com/](https://www.reuters.com/)
 
 整理撰稿：蓝精灵
 
@@ -26,4 +28,4 @@
 
 \*以上仅代表作者观点，不代表Gnews平台\*
 
-+1
+0

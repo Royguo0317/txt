@@ -1,46 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】营口、六安等地“全民核酸检测”打脸新冠疫苗有效
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1252572/)
+## 【墙内热搜】习近平“偶遇”游园群众，以假治国再添例证
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1252570/)
 
-配音：香草山录音组 蒙古鸿雁
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+作者：纽约香草山媒体部 天下大同
 
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 
 
+近日，网上流传着一段习近平周三（12日）视察河南南阳，在南阳月季博览园中“偶遇”一批“群众”，被热烈欢迎的视频。
 
-澎湃网5月15日报道，自13日安徽六安确诊1例新冠本土病例后，短短两天安徽辽宁新增17例新冠阳性，对疫情复燃的担忧引发国内新冠疫苗“接种潮”。
+视频中，习近平问群众：“你们怎么知道我来了？”
 
-5月13日安徽六安披露新增1例本土病例，而后确诊病例增至3人，7人无症状。辽宁营口新增2例确诊和3例无症状，而鉴于“疫情源头”的确诊病例足迹遍布兰州、北京西城、肥西、大连等地，近日急寻密接者的新闻也是相继出现。
+群众说：“看到你了。”接着有人说：“游园的时候。”
 
+习近平说：“你们是诸葛亮啊？天文地理都知道啊。”
 
+群众：“哈哈哈！”
 
-**文字版原文：[【鹰眼墙国】营口、六安等地“全民核酸检测”打脸新冠疫苗有效](https://gnews.org/zh-hans/1248730/)**
+习近平问：“是本地人吗？
 
-作者：纽约香草山写作组 鹰(文言)
+群众说：“是，我们是来采风的。”
 
+习近平问：“你们是搞美术的呀？”
 
+群众说：“搞摄影的。”
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+习近平接着问：“没照相机啊？”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+群众回答：“采采景”、“滑手机拍！”
+
+习近平又聊了几句当地的月季花，最后在群众齐呼口号“欢迎习书记再来南阳”中，离开了现场。
+
+![]()![](https://media.discordapp.net/attachments/824587088309649429/843972969617162240/image0.jpg)
+
+一名网友总结到：“他知道他们知道他来了，他们知道他知道他们知道他来了！他知道他们都在演，他们知道他在演，他知道他们知道他在演，他们知道他知道他们在演……”
+
+事实上，中央领导人到各地方时，其安保是很严格的。因此，能够和领导会面的所谓“群众”，都要经过层层的政审，否则，普通人根本不可能接近领导所在的区域。但是，中共就是要把这种精心安排的会面，演成一场“偶遇”剧，并且把假话说的如此欢乐融洽，一点也不觉得尴尬，没有一丝羞耻感。由此可见，参与造假者的脸皮之厚，功力之深。
+
+郭文贵先生在2021年5月16日的直播中讲：“什么样的人民，就会诞生什么样的国家集权、政权和体制。今天共产党的疯狂、傲慢、无知，打着灯笼找灯笼，瞪着眼说瞎话，老百姓还都相信。中国人民和中国社会，已经失去了人类必须要有的，对天地、万佛万神的敬畏之心和信仰。”
+
+中国社会的现状就是，说瞎话比说真话的过得好、过得富有；做恶人比做善人更有权利；骗人得到尊重，奉献得到贬低和怀疑。这样的国家和民族，怎么会有未来和希望呢？出现这样的情况，不仅仅是中共的错，每个中国人都需要反思。共产党消灭后，我们任重道远：必须要让好人能过上好的生活；让大众有信仰，对天地和万佛万神有一个敬畏之心，唯真不破；让中国成为一个和平、法制独立、信仰自由、一人一票的国家。我们要改变这种以假为荣的现状，重塑中国人在世界上的新形象。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 **[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0
