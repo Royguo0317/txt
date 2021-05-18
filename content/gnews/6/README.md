@@ -1,27 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 持续关注中共病毒来源 -《科学》杂志上来自知名科学家的一封信
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1254692/)
+## 德国警告：“我们将无法像去年一样享受轻松的夏天”
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1254855/)
 
-译评：nstar |责编：人间四月
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18171208/capture-23.jpg)图片来源：**Naeblys, stock.adobe.com**
-2021年5月14日, 《科学》杂志上发表了来自一组知名的国际科学家的公开信。 这18位科学家包括剑桥大学的临床微生物学家拉文德拉-古普塔(Ravindra Gupta), 弗雷德-哈钦森(Fred Hutchinson)癌症研究中心研究病毒进化的杰西-布鲁姆(Jesse Bloom)和斯坦福大学微生物学教授 戴维·雷尔曼(David Relman)等等。
+消息来源：今日欧洲- europa.today.it
+发布时间：2021.05.17
+翻译整理：斩草要除根
 
-科学家们说: 2019年底在中共国出现的COVID-19已经导致334万人死亡，给世界带来数万亿美元的收入损失，并颠覆了数十亿人的正常生活。但直到现在, 这种新型冠状病毒的起源仍然不清楚。一个由世卫组织领导的小组于1月和2月在武汉及其周边地区停留了四周，该小组称病毒可能是通过另一种动物从蝙蝠传播给人类的，而实验室泄漏是 “极其不可能的”原因。但科学家们在信中说，在获得足够的数据之前，必须认真对待有关自然和实验室溢出物的假设。18位科学家一致认为：仍需进行进一步严格和冷静的调查, 以确定中共病毒大流行的起源。他们表示:  “在一些国家出现不幸的反亚裔情绪的时候，我们应注意到一个事实，那就是在疫情大流行初期，是中国的医生，科学家，新闻工作者和有良知的公民与世界分享了有关病毒传播的重要信息，并且他们都为此付出了巨大的个人代价。”
+德国是欧盟唯一一个疫苗接种率超过总人口35％的国家，柏林政府发言人史蒂芬•塞伯特（Steffen Seibert）今天在新闻发布会上宣布消息称：“还没结束，在夏季还不会恢复正常生活”。这位德国高管还公开反对“放松”措施，他说，例如去年采取的措施就导致了秋季的新一波感染。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18150242/media.media_.1f40e381-75ba-4320-9b23-76afde1fd8ab.original1024.jpg)
+塞伯特在与新闻界的会晤中说：“我们还没有达到像去年一样享受轻松夏天的先决条件。” 然而，由安格拉•默克尔（Angela Merkel）领导的政府发言人却将德国感染趋势的最新消息定义为“阳性”。实际上，卫生当局在两天前报告说，每10万居民中的感染率下降到了87.3。与前一周相比，这是一大进步，当时的平均感染人数为每10万居民121.5例。但是，在全国范围内发病率降至每10万居民100例的“心理”阈值以下的这一事实，并不能使柏林赢得胜利。政府认为，目标仍然是“显著”减少感染数量。塞伯特总结说，与冠状病毒的斗争“尚未结束”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18150908/liess-sich-mit-dem-impfstoff.jpg)
+简评：每个人都迫切地想从这场疫情中解脱出来，被压抑的自由似乎都在等着在这个夏天被释放，政府一方面采取限制令为手段，另一方面又担心民众的反抗而不得去不开放。而这一送一紧之间正好是病毒攻击的好时机。
 
-* * *
+（个人观点）
 
-评: 现在，中共有责任证明中共病毒是自然发生的，因为大多数现有证据表明不是这样。越多的科学家描述了CCP这种 “功能增益”实验, 将冠状病毒通过 “人性化 “的细胞培养物和动物模型进行迭代传递，从而创造出 “预适应 “人类感染的新冠状病毒。除非确定中共病毒的真正来源，否则另一个中共病毒大流行病即将发生。
+[链接](https://europa.today.it/attualita/germania-estate-covid-viaggi.html)
 
-参考报道链接 ：
-
-[COVID-19 lab leak theory cannot be ruled out, leading scientists say](https://www.reuters.com/business/healthcare-pharmaceuticals/origins-covid-19-need-be-investigated-further-leading-scientists-say-2021-05-14/)
-
-[Investigate the origins of COVID-19](https://science.sciencemag.org/content/372/6543/694.1)
-
-
-
-
+校对/发布：老中医
 
 0

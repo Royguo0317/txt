@@ -1,35 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港驻台办突然关闭 港台互动降至冰点
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1254367/)
+## 2021年5月18日 文贵先生盖特 1
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1254696/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-编辑上传 水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18131053/H-1.jpg)malaymail.com
-香港负责台港交流事务的政制及内地事务局周二（5月 18 日）突然宣布，香港驻台湾“经济文化办事处”即日起暂停运作。港府发言人表示，这一决定与台湾当前的疫情无关，但是没有做出更详细的说明。
+5月18号: 尊敬的战友们好！看看苹果公司是怎么黑郭媒体的，郭媒体是如何艰难的生存的！共产党是多么的邪恶，郭媒体所有的数据都是被屏蔽的，未来当这些数据公开之日，一定会震惊世界！ 【纽约时报报道：審查、監控與利潤：為做生意，蘋果向中國政府妥協 [https://cn.nytimes.com/technology/20210518/apple-china-censorship-data/zh-hant/](https://cn.nytimes.com/technology/20210518/apple-china-censorship-data/zh-hant/)】 May 18th: Dear fellow fighters!Looking back on how Apple has been smearing Guo Media we can get a glimpse of the difficulties Guo Media faced in its survival. CCP is so evil that all the data about Guo Media is blocked. It will stun the world one day when all these data are brought to light. 【New York Times: Censorship, Surveillance and Profits: A Hard Bargain for Apple in China [https://www.nytimes.com/2021/05/17/technology/apple-china-censorship-data.html](https://www.nytimes.com/2021/05/17/technology/apple-china-censorship-data.html)】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18171505/0b289018020a091fa683c1492cc7ef1c.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18171451/6914b83e81ff8852998b01a221db1973.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18171438/47908e13d0a74b7734054d305e892334.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18171425/be6f94e98febff10dc7af90be7cf3b78.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18171412/ea0f501b6e1bce8d326f12c5fff734bc.jpg)
+[【2021年5月18日】文贵先生盖特原文](https://gtv.org/getter/60a3bcce37f7f73984ccfee0)
 
-1966 年以来，台湾驻香港官方机构以“中华旅行社”名义存在，负责台湾在香港的外交领事事务。但是由于名称的原因，常被外界误读为一般的民间旅行社，无法体现台湾政府派驻的事实。尽管台湾陆委会一直申请为台湾驻香港办事处正名，但不论怎么谈都没有结果。直到 2011 年，香港与台湾才达成官方协议，以“经济文化办事处”名义互设代表机构，台湾驻香港官方机构才得以正名。
+**喜联盟Gnews编辑部**
 
-在台湾和中共国存在主权争议的情况下，香港和台湾政府在对方属地所设置的“经济文化办事处”事实上履行的就是“大使馆”的职责。现在香港单方面关闭驻台湾“经济文化办事处”，相当于中共国主动关闭香港驻台湾“大使馆”，这一般是国与国之间外交关系急剧恶化的结果。随之而来，香港与台湾之间的外交活动将会暂停，两地重要公司的经济往来将会减少，台湾人无法通过官方途径获得到香港的许可。
-
-北京当局急于撤销香港驻台办事处与近两年来台北当局对港人争取民主自由的“反送中”运动有直接关系。
-
-2020 年 7 月 1 日，香港《国安法》正式生效当日，台湾陆委会宣布正式设置“台湾服务交流办公室”，此机构唯一职能就是为到台湾的香港人提供“便捷服务与必要照顾”。中共国台办因此极为不满，形容台湾是“趁火打劫，搬弄是非”。某国际调查公司曾就香港人移民目的地进行调查，结果显示 50%考虑移民的香港人中，接近 30%的港人将台湾作为了首选地。这不仅仅是因为台湾距离香港比较近，文化上比较相似，更重要的是本届台湾政府用一系列实际行动明确表达了对香港人的支持与保护。
-
-除台湾外，美国、英国、澳洲、德国等国家也为逃离香港的港人提供了“政治庇护”和快速审批通道。但北京当局一直想武力征服台湾，并在国际上要求其他国家不能与台湾正式建立外交关系。随着美日峰会的落幕，美国总统拜登和日本首相菅义伟共同宣布将保护台湾安全之后，北京当局意识到台湾获得了强大的国际力量支持。
-
-本届蔡英文政府的官员一改马英九政府对北京言听计从的姿态，也令北京当局十分恼火。2020 年在台湾驻香港“经济文化办事处”代理处长高铭村在申请延长工作签证时，北京当局曾指示香港方面，要求高铭村必须签署一份承认支持“一个中（共）国”的政治声明后，才能获得工作签证。高铭村拒绝签署，被迫返回台湾。来而不往非礼也，台湾方面随后采取“报复行动”，不再向香港驻台办事处的工作人员续发工作签证，这导致近期香港驻台办事处人员因工作签证到期无法续签而陆续离台。
-
-目前看来北京当局也不会延长台湾驻香港办事处工作人员的签证，此时此刻该办事处人员仍在坚守，但预计随着临近年底办事处工作人员签证纷纷到期而无法获得续签 ，台湾驻香港办事处估计将被迫关闭。届时，香港人移民台湾的官方通道将会正式关闭，港台之间的互动将会降到冰点。台湾政府已预测到此情况会大概率发生，现仍在做最后努力，不断坚持“依规定向港方申请签证，但香港当局迟迟不给发放（签证）”。
-
-参考链接：
-
-[1] [Hong Kong suspends operations of its office in Taiwan – REUTERS – 18/05/21](https://www.taiwannews.com.tw/en/news/4205593)
-
-[2] [香港驻台办暂停运作 台学者：为关闭驻港办铺路 – 德国之声（DW）- 18/05/2021](https://www.dw.com/zh/%E9%A6%99%E6%B8%AF%E9%A9%BB%E5%8F%B0%E5%8A%9E%E6%9A%82%E5%81%9C%E8%BF%90%E4%BD%9C-%E5%8F%B0%E5%AD%A6%E8%80%85%E4%B8%BA%E5%85%B3%E9%97%AD%E9%A9%BB%E6%B8%AF%E5%8A%9E%E9%93%BA%E8%B7%AF/a-57567039)
-
-[3] [香港《国安法》：台港服务交流办公室与台人赴港风险 – 01/07/2020](https://www.bbc.com/zhongwen/simp/world-53271249)
-
-+1
+0
