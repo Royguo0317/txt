@@ -1,23 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## COVID-19 &#8220;生物武器 &#8220;的说法：全球对解放军的秘密报告感到震惊
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1254009/)
+## 【每日快讯】05/16/2021中共的暴政引得天怒民怨
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1254074/)
 
-#### 视频字幕翻译：滅共別技君
+**制作：Cantonese工作室**
 
-随着振聋发聩的报导揭示了中共国2015年计画将冠状病毒 “武器化”的讨论，病毒学家兼吹哨人闫丽梦博士周一重申了她的论点，即COVID-19病毒由中国共产党（CCP）制造，并用以发动一场全球性的生物战。
 
-[**原视频链接**](https://youtu.be/Jk2HM1PYkro)
 
-***参与人员：**
-素材选择：laowu
-任务发布：美丽心情
-视频剪辑：laowu
-英文听写：秘密翻译组
-德语翻译校对：顽皮菩萨
-字幕：马丁路德King
-字幕校对：美丽心情
-视频压制：美丽心情*
 
+
+*播報: 海媚
+資料整理: 郁金香/文林/二丫
+海報製作: penny/侬民
+視頻製作: KEN
+粵語翻譯校對:文雀(已编辑)*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18115202/%E6%88%AA%E5%9C%96-2021-05-18-%E4%B8%8A%E5%8D%8810.49.39.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18115146/%E6%88%AA%E5%9C%96-2021-05-18-%E4%B8%8A%E5%8D%8810.50.38.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18115130/%E6%88%AA%E5%9C%96-2021-05-18-%E4%B8%8A%E5%8D%8810.50.52.png)
 0

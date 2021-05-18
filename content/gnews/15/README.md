@@ -1,53 +1,87 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】赵立坚瞪眼撒谎
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1253765/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（二十四）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1254014/)
 
-作者：纽约香草山佛教部    369文驹
+作者：纽约香草山信息部 6zero4
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14021704/logo-1.jpg)
-
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
 
 
-据中共外交部官网消息，5月17日，中共外交部发言人赵立坚在例行记者会上“霸气”回应外媒记者提问，详情如下：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18095613/%E8%B5%B5%E7%AB%8B%E5%9D%9A.jpg)
-英国天空新闻台记者：美国国家航空航天局此前称，中方任由火箭残骸不受控制地坠落地球是不负责任的行为。中方是否会采取措施以确保今后进行的相关发射活动“更负责任”？
+5月16日塞林博士的3连推：
 
-赵立坚：你所提到的美方有关表态完全是毫无依据、毫无道理的。
+第1推，转发闫博士关于黄灿平的一篇博士论文“蝙蝠宿主中新病毒发现及蝙蝠冠状病毒HKU9受体的探索”在网络上引发争论的推文：很不幸，高福的学生黄灿平的这篇论文是不严谨的，因为该论文本身在介绍墨江矿洞病例有关的数据方面缺少准确性，况且墨江病例并没有被证实是冠状病毒感染，这误导了COVID-19起源的调查转向错误的“云南矿洞说”并浪费资源，并附上自己第二份报告里面驳斥“云南矿洞说”的证据、分析和解释部分的截图。闫博士绝对正确，许多人被误导了，如果你查看原始的墨江矿工临床数据，则无法区分病毒呼吸道感染与网状内皮细胞真菌感染，更没有人传人的特征。
 
-对于中共外交部的回应，笔者有几点感触：
 
-1、据中共国载人航天工程办公室消息，长征五号B遥二运载火箭末级残骸周日10时24分已再入大气层，其落区位于东经72.47°，北纬2.65°周边海域。坐标显示该区域位于马尔代夫群岛以西的印度洋海域。距离最近的有人岛礁加迪福里（Gadifuri）岛仅约42公里，而当地就是供度假饭店专用的岛礁。这个事实，全世界都知道，上述消息也是中共官方渠道发出来的，赵立坚此时不认账，体现出中共说话是不需要逻辑的，前后矛盾也丝毫不在意，因为在集权专治统治下，指鹿为马又有什么关系呢？
 
-2、赵立坚的发言还试图把本来是全世界一致谴责中共不负责任的事实，引导到美国一家身上，从而制造出矛盾仅仅存在于中美两国之间的假象，弱化该事件的影响，将矛盾降级处理，避免受到国际社会全面谴责。然后通过指责美国无端针对中国，将事件政治化，从本质上来讲，就是企图歪曲事实，转移视线。
+> Dr. Li-Meng YAN [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) is absolutely correct. Many have been misled. If you look at the original Mojiang miner clinical data, it is impossible to distinguish between a virus respiratory infection and fungal histoplasmosis and there was no human to human transmission. [https://t.co/Z2CLbIvoN1](https://t.co/Z2CLbIvoN1)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 16, 2021](https://twitter.com/LawrenceSellin/status/1393811064500981764?ref_src=twsrc%5Etfw)
 
-3、此事件对中共而言，没有辩解的余地，所以赵立坚只用一句话“霸气”回应，没有阐述事实、拿出证据、做出分析。这样赶紧进入下一个提问环节，好和国内媒体配合唱双簧，至于海外媒体怎么报道则无暇顾及了。
 
-4、对国内小粉红、老百姓而言，外交部用这样的套路回答，又一次成功洗脑，用态度替代事实，展现所谓中共国的大国形象、战狼外交，让防火墙内的人只听到外交部洗脑的权威声音，其他不管谁说的，都给扣上“别有用心”的帽子。这样老百姓不仅听不到真实声音，还真认为赵立坚的态度代表了中国人的“据理力争”，绝不屈服的斗争精神，更加被洗脑和操控。
 
-国内老百姓自以为了解事实和真相，真是可悲可怜。由此可见，如文贵先生所言，建立GTV、Gnews、盖特等说真话、看真相的平台，打破中共以假治国、以骗治国的伎俩，便是推翻共产党的不二法门。假如国内同胞能够接触更多真相，便不会受到外交部如此低劣谎言的欺骗，中共的谎言治国就难以为继。
+第2推，塞林上校的中文推：我向中国共产党宣战，我们将共同击败中国共产党！并再次贴上自己曾经多次贴出的一张图片，即4位美国军人在新中国联邦国旗下的图片，他们是：二战时期的史迪威、陈纳德和杜利特尔3为将军，以及塞林上校自己。
 
-传播真相，唤醒同胞，这是中共害怕的，也是我们正在做的！
 
-编辑/校对/发稿：人间世
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15014027/5%E6%9C%88-1.jpg)
+> 我向中国共产党宣战。 我们将共同击败中国共产党。 [pic.twitter.com/eQLWkzlpBK](https://t.co/eQLWkzlpBK)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 16, 2021](https://twitter.com/LawrenceSellin/status/1393944212169793541?ref_src=twsrc%5Etfw)
+
+
+
+第3推，转发Joe Hoft今天发表在Gateway Pundit上的文章“涉嫌参与制造COVID-19病毒的中共军事科学家入选美国微生物科学院院士”，这位中共军事科学家就是姜世勃，其在2021年2月入选美国微生物科学院院士。感谢COVID-19侦探“Wenming”的挖料奉献并已已笑纳。
+
+
+
+> Chinese Military Scientist, Shibo Jiang, Suspected of Involvement in COVID-19 Creation Elected to American Academy of Microbiology in February 2021
+> ([#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@John16489988](https://twitter.com/JOHN16489988?ref_src=twsrc%5Etfw) acknowledged and thanked for the tip)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19India](https://twitter.com/hashtag/COVID19India?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/t8bLTqhYNk](https://t.co/t8bLTqhYNk)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 16, 2021](https://twitter.com/LawrenceSellin/status/1394000081620291584?ref_src=twsrc%5Etfw)
+
+
+
+5月17日塞林博士的2连推：
+
+第1推，转发The National Pulse调查记者及其播客撰稿人Natalie Winters今天发表的一篇文章“WIV将其与军方关联的科研人员名字从其网站上删除了”。涂长春和何彪一样，都是金宁一将军团队中的病毒收集者，其中何彪还是分离出蝙蝠冠状病毒ZC45和ZXC21的团队成员，闫博士称ZC45和ZXC21为COVID-19的骨架。
+
+
+
+> Changchun Tu, along with Biao He, is one of General Ningyi Jin's virus collectors. Biao He was part of the team that isolated bat coronaviruses ZC45 and ZXC21, which [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) says is the backbone of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [@nataliegwinters](https://twitter.com/nataliegwinters?ref_src=twsrc%5Etfw) [https://t.co/zglRNvH9d2](https://t.co/zglRNvH9d2)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 17, 2021](https://twitter.com/LawrenceSellin/status/1394332326658777096?ref_src=twsrc%5Etfw)
+
+
+
+第2推，再次转推自己4天前的一个推文，即：明确的证据表明，截至2020年，Antony Fauci的NIAID一直对与PLA关联的WIV的一项完全独立的寨卡病毒“功能获得”研究计划保持资助，并贴上他们之间合作研究联合发表科研论文的网页截图，尤其是NIH/NIAID/CDC科研经费拨款编号的证据揭示。强调如对此有任何疑问，请发推举证或质疑！
+
+
+
+> Re-Tweeting in case there is any doubt. [https://t.co/8TH6UTDf7B](https://t.co/8TH6UTDf7B)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 17, 2021](https://twitter.com/LawrenceSellin/status/1394333646752976896?ref_src=twsrc%5Etfw)
+
+
+
+中共CDC主任高福所带的博士研究生黄灿平，在COVID-19疫情早期的2020年2月发表的一篇博士学位论文“蝙蝠宿主中新病毒发现及蝙蝠冠状病毒HKU9受体的探索”，该论文在“墨江矿工病例”的基础上衍生出“云南矿洞说”，捏造出RaTG13是SARS-CoV-2最接近的病毒基因组，并被引用超过1.1万次，潜心误导世界将COVID-19起源转向所谓的自然起源“云南矿洞说”，刻意模糊和掩盖其实验室起源的阴谋与罪恶。CCP-PLA-AMMS反人类战争罪犯罪集团的伎俩和意图，怎能瞒得过病毒科学界的好猎手天使闫博士？闫博士在自己第二份报告里面亮出了充分的证据，并详细分析和解释了“云南矿洞说”的荒谬。查看原始的墨江矿工临床数据，不但无法证实该病例是冠状病毒感染引起的，更没有人传人的特征。
+
+CCP-PLA在造假乱真和抹掉犯罪痕迹方面处心积虑、未雨绸缪， The National Pulse上今天发表的一篇文章揭露：2020年5月27日前的WIV官网上仍在列的3位CCP军事科学家，即CAS旗下国家重点实验室WIV的2位学术委员，分别来自第二军医大学的王红阳和PLA第302医院的王福生，以及CAS旗下WIV新发传染疾病中心科学顾问委员，来自AMMS长春军事兽医研究所的涂长春，但在2020年5月28日后，WIV官网就以改变网页版面格式的契机，将这3位与中共军方关联的科研人员名字从其网站上删除了，典型的掩耳盗铃、欲盖弥彰！
+
+而在被CCP-PLA深度渗透并绑架的美国，似乎在COVID-19疫情溯源接近收网的情况下，显得更加疯狂和滑稽，涉嫌参与制造COVID-19病毒的中共军事科学家姜世勃和王林发，双双于2个月前刚刚入选美国微生物科学院院士。这背后究竟是谁仍然在顶风作浪？胆敢在美国国运当头兴风作浪的，只有美国传染病学界教父级别的福奇，尽管美国各界对福奇的揭露和敲打已经非常广泛和深入，死猪不怕开水烫的福奇自持德高望重、老奸巨猾，想把自以为是的铜墙铁壁般防线演绎得更加淋漓尽致，实为皇帝的新装自取其辱，继续往绝命悬崖狂奔！因此，塞林博士再次敲打、警告福奇，再次秀出截至2020年，福奇有举足轻重影响力的NIH/NIAID/CDC，仍然在向CCP-PLA关联的WIV划拨科研经费的拨款编号之证据！
+
+塞林上校以个人名义，与二战时期战绩彪炳的3位美国军人史迪威、陈纳德和杜利特尔一起，站在新中国联邦国旗下向中国共产党宣战，这是美国军方正式向CCP宣战前的热身吗？我们将拭目以待，新中国联邦人期待与美军再次演绎二战时期中美两国同仇敌忾、破釜沉舟的精诚合作，共同击败并消灭邪恶的CCP！
+
+校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14021704/logo-1.jpg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
