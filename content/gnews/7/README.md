@@ -1,23 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国警告：“我们将无法像去年一样享受轻松的夏天”
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1254855/)
+## 【热点播报】以太坊达到5000亿美元市值的历史新高
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1254904/)
 
-消息来源：今日欧洲- europa.today.it
-发布时间：2021.05.17
-翻译整理：斩草要除根
+香草山写作组    四季
 
-德国是欧盟唯一一个疫苗接种率超过总人口35％的国家，柏林政府发言人史蒂芬•塞伯特（Steffen Seibert）今天在新闻发布会上宣布消息称：“还没结束，在夏季还不会恢复正常生活”。这位德国高管还公开反对“放松”措施，他说，例如去年采取的措施就导致了秋季的新一波感染。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18150242/media.media_.1f40e381-75ba-4320-9b23-76afde1fd8ab.original1024.jpg)
-塞伯特在与新闻界的会晤中说：“我们还没有达到像去年一样享受轻松夏天的先决条件。” 然而，由安格拉•默克尔（Angela Merkel）领导的政府发言人却将德国感染趋势的最新消息定义为“阳性”。实际上，卫生当局在两天前报告说，每10万居民中的感染率下降到了87.3。与前一周相比，这是一大进步，当时的平均感染人数为每10万居民121.5例。但是，在全国范围内发病率降至每10万居民100例的“心理”阈值以下的这一事实，并不能使柏林赢得胜利。政府认为，目标仍然是“显著”减少感染数量。塞伯特总结说，与冠状病毒的斗争“尚未结束”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18150908/liess-sich-mit-dem-impfstoff.jpg)
-简评：每个人都迫切地想从这场疫情中解脱出来，被压抑的自由似乎都在等着在这个夏天被释放，政府一方面采取限制令为手段，另一方面又担心民众的反抗而不得去不开放。而这一送一紧之间正好是病毒攻击的好时机。
 
-（个人观点）
 
-[链接](https://europa.today.it/attualita/germania-estate-covid-viaggi.html)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191310/s2-7.jpg)
 
-校对/发布：老中医
+
+
+零对冲5月12日报道，在周一的加密货币闪电式暴跌之后，以太币坊到了4400美元附近的新纪录高点。这已经将以太坊的市值推到了5000亿美元以上，现在比摩根大通的市值还要大。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18180628/Screen-Shot-2021-05-18-at-6.06.15-PM.png)
+据CoinTelegraph报道，以太币是继比特币之后第二个市值达到5000亿美元的加密货币。以太币成为5000亿美元资产的时间明显更短。比特币于2009年1月推出，花了近12年时间，在2020年12月达到5000亿美元的市值，价格高于27000美元。由于以太坊加密货币协议的第一个版本是在2015年7月推出的，因此以太币现在只有5年零10个月的历史。
+
+正如Cointelegraph之前报道的那样，以太坊联合创始人维塔利克-布特林在5月3日以太币价格升至3000美元以上后成为了亿万富翁。加密货币分析师和数字资产投资公司Magnetic的联合创始人梅根-卡斯帕认为，现在以太币有望在2021年底达到8000至10000美元的价格目标。据报道，该分析师之前预测以太币将达到3400美元，该加密货币的交易价格将达到约为1200美元。
+
+该代币的发行机构–互联网计算机公司将其描述为一个“基于区块链的云计算项目”。公链 Dfinity旨在开发一个基于区块链的基础设施，提供第一个真正的全球区块链网络，并以顶级网络速度运行，具有无限的扩展功能，支持任何体积的智能合约计算。公链 Dfinity提出了去中心化，引入了被称为“阈值中继”（Threshold Relay）的独特共识模型，加上其区块链神经系统，以确保算法治理。
+
+早在5-6年前，亿万富翁基金经理斯坦-德鲁肯米勒说美联储的政策正在使美元的储备货币地位面临风险，加密货币是一个寻找问题的解决方案。
+
+去中心化的数字货币价格的剧烈波动，比起绑定美元的喜币的安全性，流通性能高的稳定币大概不能同日而语了。在世界进入数字化的时候，期待喜币，喜美元的出现能给人类带来合法的支配财富的自由。
+
+原文链接：
+
+[https://www.zerohedge.com/crypto/ethereum-reaches-record-high-500-billion-market-cap-now-bigger-jpmorgan](https://www.zerohedge.com/crypto/ethereum-reaches-record-high-500-billion-market-cap-now-bigger-jpmorgan)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 0

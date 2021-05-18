@@ -1,59 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】“名义增长”难掩城乡义务教育补助经费缺漏
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1254854/)
+## 玛丽亚·巴蒂罗莫和德文·纽尼斯谈论与中共病毒有关的彼得·达萨克博士
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1254804/)
 
-香草山写作组 鹰(文言)
+翻译: JS709 | 校对: Elsie | 审核: 黎明的光芒
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18180056/Picture1-104.png)图片来自视频截图
+伟大而美丽的玛丽亚·巴蒂罗莫（Maria Bartiromo）在今天早上（2021年5月16日，译者注）的节目中采访了挑战穆勒（Mueller）骗局的英雄德文·纽尼斯（Devin Nunes）。 他们的话题是彼得·达萨克（Peter Daszak）及其对玛丽亚的攻击。
 
+玛丽亚和纽尼斯讨论了美国资助的中共病毒这类病毒研究用于军事战争的可能性。两人都不敢相信政府会用纳税人的钱来为此提供资金。纽尼斯暗示政府实体可能利用民主党的“非盈利”渠道将政府资金用于此类事情。然后玛丽亚分享到：
 
+玛丽亚：是的，这个非盈利组织是彼得·达萨克（Peter Daszak）领导的[生态健康联盟](https://www.ecohealthalliance.org/)。顺便说一下，当我在这节目上说这病毒很可能来自实验室时，他试图在推特上踩我。他是牵涉其中的一员，对吗？ 他还曾是武汉小组成员，他在WHO调查小组中，是吧？
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193903/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1-2.jpg)
+纽尼斯：是的。 根据我们的估计，这个人显然已经拿走了大约1亿美元。 我们没有这笔钱的所有账目…**是否应该让分配这笔钱的人参与调查武汉病毒的起源。 我认为这是不太合适的。**
 
+我们已经多次报道过达萨克博士。最近一次，我们指出，由于这些活动与中共病毒和参与者有关，达萨克博士是利益相关者，然而，他却是“调查”武汉病毒起源的WHO小组中唯一的美国人。
 
+我们已经报道了很多有关达萨克博士的事。 这是最近发表的一篇文章：
 
-环球网5月18日转载央视新闻客户端消息，近日中共政府下达2021年城乡义务教育补助经费1739.3亿元，同比增加2.5%。
+我们现在知道以下几点：1）达萨克博士参与了导致中共武汉病毒释放给人类的活动；  2）达萨克博士是WHO对中共病毒起源进行调查的唯一一位美国人（无论如何报道，结论均受质疑），并且3）达萨克博士挑战对他的指控。
 
-根据《中国儿童发展纲要（2011—2020年）》，截至2019年义务教育在校生1.54亿（其中普通小学1.06亿人，初中0.48亿）；2020年中共城乡义务教育补助经费1695.9亿元，并将义务教育生均公用经费标准统一为小学650元/年/人、初中850元/年/人。人民日报在2021年1月27日的报道中提到，农村学生营养改善计划受益学生达4060.82万人。依据《城乡义务教育补助经费管理办法》，地方试点膳食补助按照每生每天1.5元给予奖补（标准达到4元的省份给予生均3元定额奖补）。2020年农村义务教育学校教师特岗计划规模达10.5万人。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18175942/Screen-Shot-2021-05-18-at-5.58.45-PM.png)
-参照《管理办法》中的城乡义务教育补助经费分配公式：某省份城乡义务教育补助经费=城乡义务教育经费保障机制资金+特岗教师工资性补助资金+学生营养改善计划补助资金。保障机制资金包括“两免一补”、学校正常运转以及农村义务教育学校校舍维修改造、乡村教师生活补助等。以2019年末学生人数及上述提及的各项最低标准粗算：“两免一补”需1.06×650+0.48×850=1097亿元；全国每年约2500万家庭经济困难学生获得生活补助（标准为寄宿生每生每学年初中生1250元，非寄宿生对应为625元）最低仍需要300亿元资金；营养改善计划需要0.406×1.5×365=222.285亿元。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18175924/Screen-Shot-2021-05-18-at-5.58.50-PM.png)
-对义务教育学校拨付不低于生均公用经费基准定额的标准补助公用经费，且教师培训费（包括差旅、伙补、住宿等）按学校年度公费预算总额的5%安排，以1097亿元的生均公用经费粗算为54.85亿元；按人均每年18960元的标准，10.5万人的特岗教师工资性补助金约为19.9亿元。以上各项累计1694亿元，这已经逼近2020年该项的拨款总额（1695.9亿元），再加上上述计算方式中均已最低标准粗算，所以真实的开支绝对超出拨款金额。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18175908/Screen-Shot-2021-05-18-at-5.58.54-PM.png)
-综上，虽然中共表面上提高补助经费，资助困难学生，或者改善乡村教师生活、升级学校硬件等，但结合到具体数据中不难发现，中共的城乡义务教育拨款额度仅能满足于官宣的最低标准。再加上各地虚报冒领、挤占挪用，教育基金能否足量并及时的发放令人怀疑。虽然2021年小学阶段免费教科书标准又有提升，但相较于物价上涨、生活开支攀高，再加上中共对民众敛财力度的加大，义务教育补助依旧停留在有限的温饱阶段。
+**贼喊捉贼是多么可笑啊。**
 
-新闻来源：
-
-中央财政下达城乡义务教育补助经费1739.3亿元https://china.huanqiu.com/article/43AiXGK1Kro
-
-2019年《中国儿童发展纲要（2011—2020年）》统计监测报告http://www.gov.cn/shuju/2020-12/19/content\_5571132.htm
-
-中央财政下达今年城乡义务教育补助经费1695.9亿元https://edu.sina.com.cn/zxx/2020-06-17/doc-iircuyvi8881443.shtml
-
-财政部　教育部关于印发《城乡义务教育补助经费管理办法》的通知http://www.gov.cn/gongbao/content/2017/content\_5210520.htm
-
-义务教育阶段学生资助政策https://new.qq.com/omn/20200426/20200426A0O8S100.html
-
-着力提升农村学校和薄弱学校办学水平 义务教育均衡发展巩固提高http://www.gov.cn/xinwen/2021-01/27/content\_5582838.htm
-
-2020特岗教师的薪资待遇分析，看各地薪资待遇如何？https://www.sohu.com/a/398797738\_813376
-
-精准发放教育补助，切断克扣截留“黑手”http://education.news.cn/2019-11/27/c\_1210370980.htm
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+原文作者：乔·霍夫特(Joe Hoft）
+发布时间：2021年5月16日，下午1:05
+原文链接：[https://www.thegatewaypundit.com/2021/05/maria-bartiromo-devin-nunes-covid-related-dr-peter-daszak-involved-origins-covid-19-american-investigating-team/](https://www.thegatewaypundit.com/2021/05/maria-bartiromo-devin-nunes-covid-related-dr-peter-daszak-involved-origins-covid-19-american-investigating-team/)
 
 0
