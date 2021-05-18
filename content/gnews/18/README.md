@@ -1,29 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登与内塔尼亚胡讨论日益恶化的巴以冲突
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1254175/)
+## 普京将参加中共国核电站机组建设的开幕式
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1254198/)
 
 俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
 编辑上传 银河
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18120902/Snipaste_2021-05-18_19-08-26.jpg)[cbc.ca](https://www.cbc.ca/news/world/gaza-images-stir-emotions-but-fail-to-capture-complexity-of-israeli-palestinian-conflict-1.4674037)
-05月18日，援引自白宫新闻处的声明，美国总统乔·拜登在与以色列总理本雅明·内塔尼亚胡的电话交谈中，主张以色列和巴勒斯坦之间实现停火。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18122154/Snipaste_2021-05-18_19-21-14.jpg)[dreamstime.com](https://www.dreamstime.com/stock-illustration-russia-china-flags-icon-flat-style-isolated-white-background-interpreter-translator-symbol-stock-vector-design-image90796313)
+05月18日，来自克里姆林宫的报告，俄罗斯总统弗拉基米尔·普京和中共国国家主席习近平将通过视频会议参加标志着中共国两座核电站新动力装置开始建设的仪式。
 
-声明说：“总统表示支持停火，并讨论了美国在这方面与埃及和其他伙伴的接触。”
+该活动将于5月19日星期三举行。该仪式标志着在中共国田湾核电站和徐大堡核电站开始建设俄罗斯设计的新动力装置。
 
-此外，拜登重申坚决支持以色列针对无差别攻击的火箭弹袭击进行自卫的权利，并欢迎打击社区间暴力和安抚耶路撒冷所做的努力。白宫补充说：“他敦促以色列作出一切努力，确保对无辜平民的保护。”
+早些时候，中共国外交部表示，普京和习近平将参与一个核电项目的启动。然而，并没有具体说明项目细节。
 
-拜登此前曾与内塔尼亚胡讨论过巴以冲突的问题。当时，他表示希望冲突能够得到解决。拜登说：“我希望它能结束，而且最好是早些发生，而不是晚些。”
+2018年夏天，在普京和习近平在北京会晤期间，中俄签署了一揽子协议，俄罗斯公司称这是两国在核领域“历史上最大的合作”。
 
-拜登后来与巴勒斯坦总统马哈茂德·阿巴斯举行了会谈。在会谈中，他告诉阿巴斯，美国致力于通过外交手段解决以色列和巴勒斯坦之间的冲突。拜登强调，哈马斯“必须停止向以色列发射火箭弹”。
+此事涉及在田湾核电站厂址上签署两台新机组（第七和第八台）的合同，该机组采用3+代的VVER-1200反应堆，同时在中共国的一个新厂址——辽宁省徐大堡签署两台类似机组（第三和第四台）。根据合同，俄罗斯国家公司将设计核电站的核岛，并为新机组提供关键设备。
 
-此外，美国总统还回顾了美国最近决定恢复对巴勒斯坦人民的援助，包括对西岸和加沙地带的巴勒斯坦人的经济和人道主义援助。
-
-5月初，在东耶路撒冷的抗议活动中，包括在圣殿山的阿克萨清真寺的抗议活动，由于阿拉伯家庭被驱逐导致冲突升级，阿拉伯人和以色列警察在那里开始发生冲突。激进组织哈马斯随后进行了干预，双方开始互相射击。两方都报告有平民伤亡。
+最初计划该核项目于2020年12月开始施工。
 
 参考链接：
 
-[https://www.rbc.ru/rbcfreenews/60a2f7079a794793a820f1dd](https://www.rbc.ru/rbcfreenews/60a2f7079a794793a820f1dd)
+[https://www.rbc.ru/rbcfreenews/60a35b6b9a7947aaf7171db0](https://www.rbc.ru/rbcfreenews/60a35b6b9a7947aaf7171db0)
 
 0

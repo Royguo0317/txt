@@ -1,63 +1,147 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】数据分析H-Coin的价格走势
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1253940/)
+## 战友展览板【5/17】
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1253922/)
 
-作者：纽约香草山香港部   赤兔
+**西班牙巴塞罗那喜悦农场** wenwu
 
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
+【以毒灭共】推文。如下
 
 
 
-近期，关于喜马拉雅支付系统的申请和审批流程在所有爆料革命战友之间进行得如火如荼，多少战友为了能尽快完成系统注册、认证，可以说是费尽心思、夜不能寐。随着喜支付系统上线时间的临近，GTV直播平台上对于H-Coin的各种看法和价格预测不绝于耳。可见，这个话题对战友们来说都比较关心。以下是笔者根据个人掌握的一些数据，对喜币上市后的价格走势的个人看法。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18103907/72-5.jpg)
-
-首先，文贵先生在直播里多次提到，通过审批的战友们在喜币初期阶段的认购价格是0.1美元/个——目前，该阶段的喜币一币难求。特别是，喜支付系统的独特性以及全面性在当今世界可谓独一无二，其既是未来支付系统的引领者，更是有很大机会成为未来金融支付的规则制定者之一。而且，由于它在世界范围内的流通性，更是注定它成为未来抵御金融灾难的诺亚方舟。
-
-喜币和喜美元有所不同，它作为一个金融投资品种，一定会有价格波动。而这类波动又可被分为短期价格和长期价格。纵观目前的数字货币市场，所有的热门品种无一不是涨幅巨大的——涨幅从数百倍到数十万倍不等。但此类数字货币无论从结构上还是实际价值上，都无法和喜币相比。
-
-严格来讲，喜币的初期认购资格并不是近期才形成的。追溯至2017年法制基金的建立，当时并没有任何G系列投资的信息，所有的捐款者只是怀着共同的信念，抱着要追求真正法治中国的这个理想。时至今日，爆料革命创始人郭文贵先生为了回馈所有过去真正的支持者以及战友，设定了每个喜币0.1美元的初期认购价格，这是前所未有的巨大福利。因此，获得初期认购资格的投资者基本上都不是资本市场的纯粹投机者，他们持有的稳定度都相当高。目前，进入喜币市场的资金已达到1亿美元，相信这笔资金对喜币的初期价格会起到很好的稳定作用。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18104253/73.jpeg)
-
-从目前文贵先生所说的喜币一币难求的情况看，喜币在上市初期（头一个月）的价格大概会涨3倍到5倍左右（以上市价格1美元/个为基础）。在此期间，任何5倍以下的喜币都会被大资金瞬间抢筹，这是由于喜币的价值目前在世界上的唯一性决定的：它既有喜美元作为稳定币，还有自身价值20%的黄金作为储备。根据过往资本市场对稀缺品种的运作可知，个人投资者在初期是很难和大资金进行抢筹的。因此，这个阶段最好的办法就是稳定持有喜币。
-
-预计喜币上市后经过一到三个月的资本运作，其价格会比较快地到达10倍涨幅——也就是10美元/个。这时候可能会出现少部分的获利回吐，价格因此出现波动。此时可能是市场投资者的首个密集成交区间，会出现一定的换手率。但随着灭共进程的深入发展，喜马拉雅支付系统的安全性和不可替代性将产生巨大的市场需求。
-
-可想在喜币上市三到六个月后，这种需求将会使喜币的价格在10美元/个至50美元/个的区间震荡上升。这和文贵先生曾经提到“不希望喜币的价格涨幅过快，战友们不要奢望一夜之间有几百倍收益”的预期相吻合。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18104309/74.jpeg)
-
-经过市场中长期的运作后，也就是六至十二个月后，此时已较为接近2022年中共“二十大”的召开和美国中期选举的开始。因此，世界上各种政局的不确定性将进一步推高喜币的需求。估计那时喜币的价格将突破100美元/个，甚至会在100美元/个至1000美元/个之间波动。但笔者个人认为，喜币真正达到1000美元/个的几率较小，其原因是，喜币和目前的其他数字货币有所不同，它更大的作用是作为喜联储的组成部分之一，最终是要维持和喜联储之间的稳定性。喜币白皮书里也提到，喜币每年发行10亿个，而且是分四次发行，应该就是考虑到可以尽量保持价格的相对稳定。
-
-另外，文贵先生还强调了，在此次喜币的初期认购中，他预留了2000万个喜币（0.1美元/个）作为喜马拉雅救助基金，补助那些曾经为爆料革命做出贡献的战友。从这个救助基金的规模来看，其价值在200亿至2000亿之间的规模相对来说比较合理。因此，也能通过这一点推算出喜币的长远价格可能在100美元至1000美元之间。
-
-以上推测仅为个人观点，不作为操作参考依据。感恩新中国联邦！TAKE DOWN THE CCP！
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
+> "The risk of something like this happens again from that lab or another Chinese lab is very real," Pompeo said. “(China is) operating/conducting activities…to secure those facilities. Risk of bioweapons/bioterror emanating from this region is very real."[https://t.co/xmS2A6Vb6g](https://t.co/xmS2A6Vb6g)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 16, 2021](https://twitter.com/DrLiMengYAN1/status/1394072352581996544?ref_src=twsrc%5Etfw)
 
 
+1. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1394072352581996544?s=20)**：
+[*蓬佩奥说，“从那个实验室或另一个中国实验室再次发生类似事情的风险是非常真实的。”“（中共国）运营/开展活动……以确保这些设施的安全。来自该地区的生物武器/生物恐怖风险非常真实。”*](https://www.foxnews.com/politics/pompeo-coronavirus-wuhan-china)
+
+
+> 💥💥中共国中南坑高级智囊陈平教授，刚公开亲口承认，中共国对美国已经开展了生物战！请大家狂转🙏🙏[#喵见世界](https://twitter.com/hashtag/%E5%96%B5%E8%A7%81%E4%B8%96%E7%95%8C?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/WGJJO5CfFe](https://t.co/WGJJO5CfFe)
+> — 淘喵先生 (@JustinP56075199) [May 18, 2021](https://twitter.com/JustinP56075199/status/1394522220249026570?ref_src=twsrc%5Etfw)
+
+
+2. **[淘喵先生推特](https://twitter.com/justinp56075199/status/1394522220249026570?s=21)**：
+*中共国复旦大学住美、反美陈平教授，公开亲口承认，中共国对美国已经开展了生物战*
+
+
+> 毒王马里克最近获奖了John Dirks Canada Gairdner Global Health Award。接受采访时，他的结束语就是“In nature, nothing grows forever—the human species is no exception.“ 只能说，反社会人格跃然纸上 [https://t.co/cD8msCrOK5](https://t.co/cD8msCrOK5) [pic.twitter.com/sFHJlHEp8Y](https://t.co/sFHJlHEp8Y)
+> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [May 17, 2021](https://twitter.com/jsdfposjpqyuee1/status/1394117908452712449?ref_src=twsrc%5Etfw)
+
+
+3. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1394117908452712449?s=20)**：
+*毒王马里克最近获奖了John Dirks Canada Gairdner Global Health Award。接受采访时，他的结束语就是“In nature, nothing grows forever—the human species is no exception.“ 只能说，反社会人格跃然纸上*
+
+
+> “We are talking about potential bioweapon leaks and future biowarfare…This type of gain-of-function is really related to weaponized the virus!”[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)[#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/8uJa7TLluI](https://t.co/8uJa7TLluI)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 16, 2021](https://twitter.com/DrLiMengYAN1/status/1394070938400985097?ref_src=twsrc%5Etfw)
+
+
+4. [闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1394070938400985097?s=20)：
+*“我们正在谈论潜在的生物武器泄漏和未来的生物战……这种类型的功能增强确实与病毒武器化有关！”
+#新冠病毒 #超限生物武器 #超限生物战
+（https://t.co/8uJa7TLluI?amp=1 喜站推特又被封了）*
+
+
+> A portion of the discussion of a paper comparing the response of infection versus vaccine. 
+> 
+> Supportive of my hypothesis that COVID can infect the vaccinated person but in a blunted severity.
+>  [https://t.co/Nd2F05TZvE](https://t.co/Nd2F05TZvE) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19Vaccination](https://twitter.com/hashtag/COVID19Vaccination?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/KT2npQE1vy](https://t.co/KT2npQE1vy) [pic.twitter.com/r6D2ysEEyb](https://t.co/r6D2ysEEyb)
+> — DrQuay (@quay\_dr) [May 17, 2021](https://twitter.com/quay_dr/status/1394122611404115972?ref_src=twsrc%5Etfw)
+
+
+5. **[奎伊博士推特](https://twitter.com/quay_dr/status/1394122611404115972?s=20)**：
+*[一篇比较感染与疫苗反应的论文的部分讨论。](https://www.medrxiv.org/content/10.1101/2021.04.20.21255677v1)
+支持我的假设，[即冠状病毒可以感染接种疫苗的人，但其严重程度较低（疫苗会传染其他人）](https://twitter.com/quay_dr/status/1393148759819702273?s=20)*
+
+
+> 这份名单提到的“科技重大专项定向委托课题”是什么？答案很明确：军民融合一起找合适的生物战剂病毒骨架（图），在一篇文章里称之为“传染病数据收集及平台应用推广”。王长军那篇舟山蝙蝠病毒的项目号2017ZX10303401-007 指的就是这个，007分项是军队后勤保障部牵头的 (3) [pic.twitter.com/C3uYbvhMUl](https://t.co/C3uYbvhMUl)
+> — 德意志之鹰 (@dezying) [May 16, 2021](https://twitter.com/dezying/status/1393944599811526657?ref_src=twsrc%5Etfw)
+
+
+6. **[德意志之鹰推特](https://twitter.com/dezying/status/1393944599811526657?s=20)**：
+*这份名单提到的“科技重大专项定向委托课题”是什么？答案很明确：军民融合一起找合适的生物战剂病毒骨架（图），在一篇文章里称之为“传染病数据收集及平台应用推广”。王长军那篇舟山蝙蝠病毒的项目号2017ZX10303401-007 指的就是这个，007分项是军队后勤保障部牵头的*
+
+
+> 徐德忠病毒教课书page91-92页，截图 [pic.twitter.com/8muvUFZw48](https://t.co/8muvUFZw48)
+> — mc文艺 (@mc64122225) [May 17, 2021](https://twitter.com/mc64122225/status/1394424843055996934?ref_src=twsrc%5Etfw)
+
+
+7. **[mc文艺推特](https://twitter.com/mc64122225/status/1394424843055996934?s=20)**：
+*徐德忠病毒教课书page91-92页（截图）：mRNA基因疫苗将永久性改变人类的DNA*
+
+
+> 病毒學家閻麗夢近日表示，這是證明中共開發非傳統生物武器計劃的「確鑿證據」，而COVID-19就是源於中國解放軍實驗室的超限生物武器，遭中共蓄意釋放「中國高官說過，生物武器死亡率不應該很高，第2用途是為破壞敵國的醫療系統和社會。去年發生在武漢的試驗，讓武漢一片混亂」[https://t.co/QG3AlSTsp3](https://t.co/QG3AlSTsp3)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 17, 2021](https://twitter.com/DrLiMengYAN1/status/1394386086084886530?ref_src=twsrc%5Etfw)
+
+
+8. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1394386086084886530?s=20)**：
+[*病毒学家闫丽梦近日表示，这是证明中共开发非传统生物武器计划的「确凿证据」，而COVID-19就是源于中国解放军实验室的超限生物武器，遭中共蓄意释放「中国高官说过，生物武器死亡率不应该很高，第2用途是为破坏敌国的医疗系统和社会。去年发生在武汉的试验，让武汉一片混乱」*](https://ec.ltn.com.tw/amp/article/breakingnews/3535570?__twitter_impression=true)
+
+
+> Changchun Tu, along with Biao He, is one of General Ningyi Jin's virus collectors. Biao He was part of the team that isolated bat coronaviruses ZC45 and ZXC21, which [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) says is the backbone of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [@nataliegwinters](https://twitter.com/nataliegwinters?ref_src=twsrc%5Etfw) [https://t.co/zglRNvH9d2](https://t.co/zglRNvH9d2)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 17, 2021](https://twitter.com/LawrenceSellin/status/1394332326658777096?ref_src=twsrc%5Etfw)
+
+
+9. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1394332326658777096?s=20)**：
+*（娜塔莉·温特斯）[武汉病毒研究所从网站上删除了军事相关研究人员的名字](https://thenationalpulse.com/breaking/wuhan-lab-erased-military-researchers-from-site/)
+
+（Sellin)涂长春与何彪是金宁一将军的病毒收集者之一。何彪是分离（舟山）蝙蝠冠状病毒ZC45和ZXC21团队的一员。闫丽梦博士说这些是制造 #新冠病毒 的脊梁*
+【灭共时代】
 
 
 
-0
+> 巴勒斯坦的群众演员很忙啊 [pic.twitter.com/3qbfD5nSoI](https://t.co/3qbfD5nSoI)
+> — DylanZhao (@dylanzhao) [May 17, 2021](https://twitter.com/dylanzhao/status/1394141587832197131?ref_src=twsrc%5Etfw)
+
+
+**[DylanZhao推特](https://twitter.com/dylanzhao/status/1394141587832197131?s=20)**：
+*以色列对巴勒斯坦发动定点打击（同一辆车后座被炸死，开车一点事情没有；炸楼前打电话给附近的人，巴勒斯坦民众对以色列对独裁的打击精确度很满意），巴勒斯坦发动了群众演员*
+
+
+> 再傳跳機？！ [pic.twitter.com/AzngbiyrY0](https://t.co/AzngbiyrY0)
+> — 台灣大牛(台灣寶島農場) (@jackson66368924) [May 17, 2021](https://twitter.com/jackson66368924/status/1394188251120881667?ref_src=twsrc%5Etfw)
+
+
+**[台湾大牛推特](https://twitter.com/jackson66368924/status/1394188251120881667?s=20)**：
+*台湾兴达电厂再传跳闸*
+
+
+> 加密货币（虚拟币）在五年前的市值基本为零，今天的市值2-2.5万亿美元，其中比特币占了一半。 [pic.twitter.com/p7PC8PqHL9](https://t.co/p7PC8PqHL9)
+> — 瞿水台 Qu Shuitai (@QuShuitai) [May 17, 2021](https://twitter.com/QuShuitai/status/1394337338579374082?ref_src=twsrc%5Etfw)
+
+
+**[瞿水台推特](https://twitter.com/QuShuitai/status/1394337338579374082?s=20)**：
+*加密货币（虚拟币）在五年前的市值基本为零，今天的市值2-2.5万亿美元，其中比特币占了一半*
+
+
+> 元芳，你怎么看？🤔 [pic.twitter.com/7eldsyr4Cd](https://t.co/7eldsyr4Cd)
+> — Jay Yates (@lazydjay) [May 17, 2021](https://twitter.com/lazydjay/status/1394317441237409793?ref_src=twsrc%5Etfw)
+
+
+**[机器猫推特](https://twitter.com/lazydjay/status/1394317441237409793?s=20)**：
+*泰国女排国家队26名球员和工作人员集体确诊新冠病毒。在确诊前已注射中共国科兴疫苗*
+
+
+> America economy "structurally wounded" by CCP Virus. NIH Fauci crew forced American taxpayers to pay for the "privilege" of enduring a pandemic. [https://t.co/SxuAxkTRUP](https://t.co/SxuAxkTRUP)
+> — Peter Navarro (@RealPNavarro) [May 17, 2021](https://twitter.com/RealPNavarro/status/1394334842259746817?ref_src=twsrc%5Etfw)
+
+
+**[皮特·纳瓦罗推特](https://twitter.com/RealPNavarro/status/1394334842259746817?s=20)**：
+（玛丽亚）[彼得·纳瓦罗对美国经济“持熊心”](https://video.foxbusiness.com/v/6254576077001?playlist_id=3166411554001#sp=show-clips)
+
+*（皮特纳瓦罗）美国经济受到中共病毒的 “结构性伤害”。 NIH的福奇团队强迫美国纳税人，为忍受大流行病的 “威权 “产品付费*
+
+
+> 最新证据
+> 
+> 该视频证明国会警察在1月6日，允许人们进入华盛顿国会大楼。警察愿意与所谓"抗议者"合作，让他们和平进入。 [pic.twitter.com/HwKvaCnKRS](https://t.co/HwKvaCnKRS)
+> — RICHARD FULL (@RICHARD08999364) [May 17, 2021](https://twitter.com/RICHARD08999364/status/1394296329212502018?ref_src=twsrc%5Etfw)
+
+
+**[Richard Full推特](https://twitter.com/RICHARD08999364/status/1394296329212502018?s=20)**：
+*最新证据——该视频证明国会警察在1月6日，允许人们进入华盛顿国会大楼。警察愿意与所谓”抗议者”合作，让他们和平进入*
+
+
++1
