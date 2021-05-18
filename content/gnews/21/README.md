@@ -1,24 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 绝大多数日本国民反对今夏将举办的奥运会
-` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1253893/)
+## 【有声读物】CCP窃取维吾尔人的苹果手机数据
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1254067/)
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18101032/%E6%97%A5%E6%9C%AC%E5%A5%A5%E8%BF%90%E4%BC%9A.jpg)图片来源：DW
+配音：香草山录音组 蒙古鸿雁
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-据加拿大法语媒体《魁北克日报》于5月18日刊登的新闻报道，5月17日发布的一项最新民意调查结果显示，超过80％的日本国民反对今年夏天将在该国举办的奥运会。这项民意调查是在日本政府5月14日决定将疫情紧急状态扩展到全国的9个地区后，由朝日社展开进行的。由于目前日本面临着第四波（中共病毒）COVID-19感染浪潮，从而使该国卫生医疗系统承受了前所未有的巨大压力。
 
-调查结果显示，有43％的受访者希望取消本次奥运会，另有40％则认为应该进一步取消所有比赛。这些数字高于月前同类调查中的35%和34%。
 
-这项对1,527人的电话访问结果指出，仅14％的人赞成按原计划于今夏举行奥运会，而此前该比例为28％。如果举办奥运会，则有59％的被访者表示不想要观众，有33％的人赞成减少观众人数，只有3％的人赞成在体育场内容纳正常观众人数。
 
-最近数月以来，该国所有民意调查结果均显示，大多数日本人反对在该国举办奥运会（7月23日至8月8日）。其共同社在5月16日发布的另一项民意调查结果显示，有59.7％的受访者赞成取消奥运会，同时有87.7％的被调查者担心外国运动员和代表团的涌入会传播这种（中共）病毒。
 
-迄今为止，日本的COVID-19疫情受害程度比大多数国家要小，自2020年初以来官方记录的死亡人数为11,500人，但据传政府因其疫苗接种措施的延误而受到外界广泛的批评。
 
-[原文链接](https://www.journaldequebec.com/2021/05/16/plus-de-80--des-japonais-contre-les-jo-cet-ete)
+据5月15日[法新社RFI报道](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E6%B3%95%E5%9B%BD%E6%8A%A5%E7%BA%B8%E6%91%98%E8%A6%81/20210515-%E5%8C%97%E4%BA%AC%E5%A6%82%E4%BD%95%E7%AA%83%E5%8F%96%E7%BB%B4%E5%90%BE%E5%B0%94%E6%97%8F%E4%BA%BAiphone%E6%89%8B%E6%9C%BA%E6%95%B0%E6%8D%AE)，美国麻省理工学院的科技杂志于5月6日发表文章称，中共政府悬赏二十万美元举办名为“天府杯”的中国黑客大赛，其目的是研究如何打开苹果手机的窃看缺口。美国政府以及谷歌集团的研究显示，中共国黑客的发现为中共对中国人民，尤其是维吾尔人的大规模监控提供了大量援助。
 
-本文仅代表原媒体信息和作者个人观点。
+自2018年开始，中共国的黑客就不再参加每年在加拿大温哥华举行的国际黑客比赛，很明显，CCP认为中共国黑客的价值，应该为CCP的安全部门所用。
+
+
+
+**文字版原文：[【热点播报】CCP窃取维吾尔人的苹果手机数据](https://gnews.org/zh-hans/1250709/)**
+
+作者：纽约香草山信息部 6zero4
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

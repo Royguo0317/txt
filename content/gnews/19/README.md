@@ -1,76 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国针对中共在做战争前的全面布局?
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1253939/)
+## 【医疗前沿世界】中共病毒 SARS-CoV-2的S蛋白本身即可引起血管内膜炎
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1254125/)
 
-**摘要：郭先生在2021年5月12日的盖特视频中，以美国在伊拉克战争前的准备为例，透露出美国现在针对中共国，正在做战争前全面布局。这包括：企业从中共国撤资；将生产链挪至东南亚；把新加坡、日本变成亚洲金融中心替代香港；通过在印度周围的几个岛、巴基斯坦和印度的交界处、孟加拉以及泰国南部布置重兵器，来彻底控制石油通道。对比看中共，他们永远都不在乎士兵和人民的死活，只想保住自己的私生子女和财富。**
+作者： 纽约香草山医疗部 云豹
 
-**美国针对中共在做战争前的全面布局****?**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-9.jpeg)
 
-**What Is the US Preparing Surrounding Communist China?**
 
-同时大家看到现在美国在干什么？「当年」伊拉克战争前夕，当时整个中东都不相信美国会打伊拉克，甚至到开战的时候还有国家「认为」美国打伊拉克会迅速撤出，马上就会撤出，打几下就走人。当时最前「线」反映就两件事儿：「第一是」大量的在周围布兵；第二件事，「在伊拉克」周围，在中东国家「的」美国驻中东商会以及大型企业撤走。
 
-Have you noticed what the US is preparing? Just before the Iraq War, the entire Middle East did not believe that the US would go to a war against Iraq. Even after the war had started, some countries still thought the US would withdraw quickly and it was going to be a short war. Two things happened at that time. The first thing was that the US had deployed a large number of troops around there in advance. The second thing was that the US Chamber of Commerce in the Middle East, and large companies, had evacuated from other Middle Eastern countries around Iraq before the war started.
+在2021年3月31日，Yuyang Lei等人发表在Circulation Research的论文1显示，中共病毒SARS-CoV-2表面的棘蛋白(Spike protein)本身就会破坏血管内皮细胞，使血管内皮细胞死亡，因而造成血管内膜炎。随后可发生血液凝固、中风、心脏疾患、偏头痛及其他的血管疾病。
 
-现在看到的是美国的所有的商会正在香港，在中共国，以及周围地「区」包括澳门，甚至一些敏感的东西啊都要赶快撤出去。这就是现在整个中共的现状。兄弟姐妹你们「要」看到，过去这两周从中共国撤出来的企业「都是」实质性对中共国「曾有」致命帮助「的」，都是离了人家「这些企业，共产党」就不能活的。这些「企业」都在干什么？撤人、撤钱、撤技术。
+目前广泛使用的四种疫苗2 (AstraZeneca、Johnson & Johnson’s Janssen、Moderna、Pfizer、)，不论设计上是采用其他病毒作为载体的疫苗还是mRNA疫苗，都选择使用S蛋白作为抗原标的，藉此S蛋白抗原来诱发身体的免疫系统产生对S蛋白的免疫反应，以此方式来对抗中共病毒。
 
-Now, we can see that the US Chamber of Commerce is evacuating from Hong Kong, mainland China, and the surrounding areas, including Macau. Even sensitive operations are being withdrawn immediately. That’s what the CCP is confronting right now. Brothers and sisters, you need to understand that the companies that have withdrawn in the past two weeks have been substantial and crucial contributors to the CCP for a long time. But now they are leaving one-by-one. The CCP cannot survive without these companies. What are these companies doing? They are evacuating people, withdrawing capital, and withdrawing their technology.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18115135/%E6%9C%AA%E5%91%BD%E5%90%8D%E7%9A%84%E8%AE%BE%E8%AE%A1-15-1.png)
 
-另外，除了美国「在」大量的撤资，撤出技术，商业撤出之外，美国的企业在干什么？美国的企业做了大量的布局「以」代替「原来在」中共的所有生产链。
+这些疫苗公司在初始设计时是假设S蛋白本身对人体是无害的，所以选择S蛋白作为制造疫苗的抗原。可是经由此篇论文揭示的证据可证明，S蛋白本身就已经会造成人体血管内皮细胞的伤害，会造成疾病。那么采用S蛋白作为抗原来设计的疫苗无形中反而成为破坏身体血管内皮细胞的杀手，这是始料所未及的，也是隐藏在现存疫苗中的大问题。而此一问题已经造成许多副作用，也有民众因为此问题在注射疫苗后死亡。这暴露出仓促推出疫苗的后遗症慢慢浮出台面，是否有后续的问题会继续曝露出来仍是未知数。
 
-In addition, what are the US companies doing besides the massive withdrawal of their capital, technology, and commercial projects? They are making as many preparations as possible to replace the production chain previously invested in mainland China.
+在此论文研究过程中，研究人员利用SARS-CoV-2的S蛋白做为外套膜，在其内部不包含任何实际病毒基因，以此方式创造出一种无感染作用的 “伪病毒”。在实验中发现接触这种伪病毒会导致动物模型的肺部动脉受损，在组织病理样本中显示出肺动脉壁的内皮细胞有发炎现象。此结果证明单纯凭S蛋白就足以引起疾病。
 
-中共国大量的劳工被剥削的“打工仔，打工妹”都衰老，失去劳动力，一亿多人失业的情况下，那么在越南、缅甸、孟加拉、印度、泰国、马来西亚周围，大量的在布置更多的美国的生产型企业。甚至把「一些」产业「搬到」了东欧去了。「共产党」这一下就完了，「它」所有维护的就是榨取这些打工妹、打工仔「的剩余价值」。生产线一移出，中国所有的60%～70%所谓的人口红利 — 就是便宜的劳动力「所」生产的便宜产品，终端产品。这个没了「共产党能」有什么外汇？周围国家都是敌对国，对不对？那你说这不是噩梦吗？
+SARS-CoV-2病毒是藉由其表面的S蛋白来与人体细胞膜上的血管张力素转换酶2 (ACE angiotensin-converting enzyme 2)受体相结合，然后经由胞膜内吞(Endocytosis)的途径进入细胞内。在S蛋白与人体细胞膜上的ACE 2受体相结合时会对细胞内的粒线体产生作用，影响粒线体呼吸作用的功能，最终导致细胞死亡。
 
-The CCP is losing the advantage of its labor force – the cheap labor force called “working young boy and working young girl” is being lost because they are aging and losing their ability of working. More than 100 million people will lose their jobs. The US is setting up more productive enterprises in countries surrounding the CCP, such as Vietnam, Burma, Bangladesh, India, Thailand, and Malaysia. Some industries have relocated to Eastern Europe. In that case, the CCP will decline rapidly. What the CCP relies on is to extract the surplus value of this cheap labor force. Once the production lines move out of China, 60% to 70% of the profits that the CCP siphons from its large population will be cut off – the low-priced, low-end products, produced by this cheap labor forces. Without this, how can the CCP gain foreign exchange? In addition, all the neighboring countries have become hostile countries. You can tell me if this is a nightmare for the CCP.
+另外ACE2有保护心血管系统的功能，而SARS-CoV-2的S蛋白本身会对细胞膜上的ACE2受体產生负调控(down-regulation)作用，让ACE2的数量减少，抑制细胞内粒线体的功能，影响一氧化氮NO 的生体可用率(Bioavailability)，增加糖解 (glycolysis)作用。整体来说就是S蛋白本身会增加血管内皮细胞的氧化还原(redox)压力，最终造成内皮细胞上ACE2的不稳定。
 
-同时看到金融这一块儿，在两三个月以前美国没打算把新加坡、日本变成金融中心，「现在」美国是真正的在严肃认真地把新加坡「和」日本变成美国在亚洲的金融中心。
+诡异的现象是S蛋白会经由负调控作用造成细胞膜上ACE2受体数目减少，此影响似乎会减少SARS-CoV-2藉由S蛋白与细胞膜上ACE2受体结合然后进入人体细胞的机会，因此对血管内皮细胞形成保护的作用；可是另一方面因为ACE2的减少，会让人体内肾素-血管升压素系统(Renin-Angiotensin System )的调节功能失常，更加加重血管内皮细胞破坏，造成血管内膜炎。以目前SARS-CoV-2感染后造成的症状来看，S蛋白所引发的血管内膜炎是佔有更重要的影响因素。
 
-Regarding the financial sector, two or three months ago, the US had no intention of making Singapore and Japan financial centers. But the US is seriously considering it now.
+总结来看，目前的疫苗研发是在未完全了解SARS-CoV-2病毒结构的情况下仓促进行，并由各国政府发给特许执照大量对民众进行疫苗注射的。这种作法在疫苗研发的过程本身就已经有非常大的风险，因为到底疫苗注射会有甚么副作用完全不清楚，未来几年甚至数十年后会不会因为疫苗的注射造成严重的身体病变仍是未知数。至少此篇论文已经证实目前所通行的四种疫苗完全踩到此未知的地雷，到底这会有多严重的后果没有人知道，或是还有多少地雷没被发现也完全不明了。最重要的一点是中共病毒SARS-CoV-2是中共故意制造出来的生化武器，完全不同于自然界产生的病毒，此病毒内到底藏了多少基因陷阱目前尚未全部查清楚，如何可能制造出安全有效的疫苗。在了解这些事实证据后，每个人都要冷静思考，自己到底该不该去接受这种未知安全性的疫苗注射。
 
-更夸张的，对中共极为不利的，最危险的信息，竟然现在在印度周围的几个军事岛上马上要布置重兵器 — 大家看着啊，「这个现在」没有人说出来– 马上在印度的在马六甲海峡，在整个巴基斯坦和印度的交界处，包括在孟加拉以及泰国南部将布置重兵武器。一下就把共产党所有「在」亚洲的触手，争了那么多年的马六甲海峡彻底控制起来了。也就是石油通道「彻底控制起来了」。
+还是要选择採用严格的个人卫生防护、保持安全的社交距离、避免去人群聚集的场所、以及必要时服用羥氯喹加锌片来做防御性自我保护。
 
-An even more incredible development, also highly unfavorable to the CCP, is that the US has decided to deploy heavy weapons on several militarized islands around India. We will see. Nobody but your Brother Miles has yet disclosed this – the US will soon deploy heavy weapons inside India, in the Strait of Malacca, on the border of Pakistan and India, including in Bangladesh, and in southern Thailand. Then, it will tie up all the “tentacles” that CCP has extended in Asia over the years. The Strait of Malacca, which many countries have contested for years, will also be entirely controlled by the US – that is, the US will completely control the oil transportation routes.
+(本文为作者观点，不代表G NEWS的立场)
 
-在这种情况下，兄弟姐妹们，「大家要」想到美国这些战略，这些决定和这些动作绝对不是说跟你共产党打个持久战，是吧？遏制你发展？不存在这个问题。「美国」现在把自己国内一旦跟老共发生问题以后，在国内的经济尽量保持稳定，企业减少损失，不像共产党似的，一有事先抓私人企业家，干掉私人企业家，「美国」不是的。
+参考资料
 
-In this case, brothers and sisters, you must realize that these US strategies and these decisions and actions are definitely not for a long-term war against the CCP, or merely intend to restrict the CCP’s expansion? Not at all. The US is now preparing to keep its domestic economy as stable as possible and minimize business losses once a conflict with the CCP has occurred. Unlike what the CCP always does – arrest the private entrepreneurs and rob their property. The US will never be like that.
+1.SARS-CoV-2 Spike Protein Impairs Endothelial Function via Downregulation of ACE 2 | Circulation Research (ahajournals.org)
 
-另外，老美这套思路，「在」任何情况下都要保证美国的军队，整个的后勤的供给。还有在某几个地区同时做好能打两场战争的准备。更重要的事情，世界的供应链不能断。能源供应链「和」贸易供应链「都」不能断。
+2. https://geneonline.news/4-covid-vaccine/
 
-The US strategy is to secure the military, and the entire logistical supply, under any circumstances. It wants to be prepared to handle two wars at the same time in different regions. More importantly, the world supply chain cannot be interrupted, neither the energy supply chain, nor the trade supply chain.
+3.https://www.salk.edu/news-release/the-novel-coronavirus-spike-protein-plays-additional-key-role-in-illness/
 
-所以「美国」整个布局和共产党「只」保证中南坑几个老杂毛，「只保证」它们的私生子女不被抓，老百姓死越多越好，最好杀到「美国和西方」手软，「杀到」不敢杀，血流满地吓得「对方」不敢杀了，反正杀不到「他们自己」，杀到他们难着呢，「他们」是这就是这概念。跟当年萨达姆是一个德行。
+4.https://zh.m.wikipedia.org/wiki/%E8%A1%80%E7%AE%A1%E7%B4%A7%E5%BC%A0%E7%B4%A0%E8%BD%AC%E5%8C%96%E9%85%B62
 
-So US readiness is much superior to the CCP’s approach of only protecting a few old bastards and their families in the Zhongnan pit. The CCP only cares about assuring their illegitimate children don’t get caught. As for the ordinary people, the more death, the better. If the CCP starts a war, they will try to terrify the US and the West by allowing them to kill masses of Chinese civilians, allowing their blood to flow in rivers until they become sick of killing, hoping that this will embarrass them into ending the war. This is what the CCP is thinking. They are as evil as Saddam back then.
+校对/发稿：飞虹
 
-在这种情况下，整个美国的布局从马六甲海峡「开始」，当我知道在印度南部、印度东南部，巴基斯坦和印度交界处，在泰国，在马来西亚，在孟加拉「准备」布置重兵的时候，马六甲海峡，整个霍尔木兹海峡，以及到埃及运河这一块儿美国只要是全面开始封锁。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
 
-You can see now that the whole US strategy starts from the Straits of Malacca. When I learned the US would deploy heavy forces in southern India, southeast India, on the border of Pakistan and India, in Thailand, Malaysia, and Bangladesh, I realized once the war started, the US would lockdown the Strait of Malacca, the Strait of Hormuz, to the canal in Egypt.
 
-那「如果和」共产党打仗，你封台湾，我封你马六甲海峡，是不是？日本的油船「能」过，中共国「的」不能过。「共产党」你不就完球蛋了吗？你生产的什么东西也卖不出来。最重要的是这些技术再「不会」输出「到」中国，国内大型设备，大型的所有的高科技设备用的芯片，「和」用的机床设施，几乎100%全靠国外的。技术封杀，设备「封杀」，「共产党会」比伊朗还要惨，因为伊朗没有使用那么多高科技设备。你中共国使用那么多，「离开了这些」运作不下去了。
 
-If there is a war against the CCP, and the CCP blockades Taiwan, the US will block the Straits of Malacca. The Japanese oil carriers could pass but not the CCP’s. Wouldn’t the CCP be finished then? In addition, no products that the CCP manufactured could be shipped out. Most importantly, if the war started, there would be no technology provided to China. Its large-scale domestic equipment, all chips used in large, high-tech equipment, and high-tech machine devices, are almost 100% reliant on Western technology. Once the CCP encountered technology blockage and equipment blockage, it would become even worse off than Iran. Iran never uses that much high-tech equipment, but the CCP uses it so widely. Without these devices, how can you (the CCP) survive?
+**六四文宣大赛，****欢迎大家踊跃投票****：**[**https://gnews.org/poll/poll-article\_1/**](https://gnews.org/poll/poll-article_1/)
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/609bef6337f7f73984cae322](https://gtv.org/getter/609bef6337f7f73984cae322) (00:28-1:54, 3:42-8:42)
-鸣谢：
-[1] 感谢 Antsee-GTV、TING GUO、文惜和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://gnews.org/zh-hans/1233493/](https://gnews.org/zh-hans/1233493/) 
-[2] 感谢 Antsee-GTV、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于 [https://gnews.org/1239592/](https://gnews.org/1239592/)
+**投票注意事项：第一，比如投票视频，一个账号需要同时选中要投的三个视频作品，方可以投票；第二，因为视频比较大，所以需要大家静待一两分钟，然后进入视频投稿界面。第三，投票的战友也有机会获幸运参与奖啊。**
 
-* * *
+**更多资讯，更多关注**
 
-**字幕：【V%】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-+1
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

@@ -1,102 +1,87 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英喜时评第二十八期
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1253852/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（二十四）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1254014/)
 
-评论人：宁缺，村民彼得潘 | 编辑：海阔天空 | Page：我是球大哥
+作者：纽约香草山信息部 6zero4
 
-[!\[\]()!\[\](https://spark.adobe.com/page/SKiMZV1paxamH/images/02a2ae47-d3ab-43b9-b757-1b8a4c1632a9.jpg?asset_id=f44bf721-24e8-435f-83b0-e4cd683ef18c&amp;img_etag=%22c22527d92df02902894bd28009c5018a%22&amp;size=1024)](https://spark.adobe.com/page/SKiMZV1paxamH/images/02a2ae47-d3ab-43b9-b757-1b8a4c1632a9.jpg?asset_id=f44bf721-24e8-435f-83b0-e4cd683ef18c&amp;img_etag=%22c22527d92df02902894bd28009c5018a%22&amp;size=1024)
-
-## **新闻一：媒体评学生坠亡事件@成都49中：这是一条人命，请多一点人性**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/SKiMZV1paxamH/images/b39ee1e0-2c50-4cc1-84d2-ca865a2bf2a1.jpg?asset_id=fcfbbd29-9a8f-43d4-824d-5b776bc40e1e&amp;img_etag=%22d04409f04aa73dfc0c379fdb7ea26887%22&amp;size=2560)](https://spark.adobe.com/page/SKiMZV1paxamH/images/b39ee1e0-2c50-4cc1-84d2-ca865a2bf2a1.jpg?asset_id=fcfbbd29-9a8f-43d4-824d-5b776bc40e1e&amp;img_etag=%22d04409f04aa73dfc0c379fdb7ea26887%22&amp;size=1024)
-
-微信公众号“瞭望东方周刊”5月11日消息，近日，有网友发布消息称，其孩子在成都第四十九中学坠亡，校方拒绝家长入校且不提供事发监控。5月10日下午，成都49中官方微博发布回应。当天下午，有媒体联系涉事学校，对方表示：校方已和家长进行接触，“具体情况不清楚”。
-
-🔗新闻链接：[媒体评学生坠亡事件](https://m.thepaper.cn/baijiahao_12617901)
-
-### 简评（宁缺）：
-
-从各方的新闻报道中，可以了解到此次跳楼事件的整个来龙去脉。最让人愤怒的片段是该学生于下午6点40分左右跳楼，而学生父母竟然到晚上9点才接到学校的通知。为什么没有在学生跳楼事件发生后的第一时间通知家长，很明显，学校管理层的心思根本不在查清事情原委，安抚家长上面，这些“人”的本能反应只是编造谎言，毁灭证据，只为达到最后消除社会影响的目的。
-
-其实，在中共国，每年意外跳楼身亡的大学生数量更为触目惊心。很多在墙内受过高等教育的人记忆中学校都有发生过学生跳楼的事件。中共国高校对这种事情都已形成模式化和按部就班的的处理方式。一旦出现学生跳楼的情况，高校领导会迅速封锁消息，威逼学生闭嘴，然后联系警方，抓紧一切时间把学生尸体送去火化。这样做有两个目的，一是销毁一切不利于学校的证据，二是防止学生家长利用学生尸体要挟学校。
-
-更让人发指的是，中共高校在火化学生尸体后，反过头来扣押骨灰，以交还学生骨灰为条件，强迫学生家长接受赔偿条件，并配合学校把跳楼事件的影响降至最低。这就是中共国培养高级知识分子象牙塔的真实面目，这就是中共高等教育管理人员的人面兽心。知道这些内幕，还有人会对中共体制的未来抱有希望吗？
-
-## **新闻二：1000万骑手均为外包员工，美团市值蒸发1.2万亿**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/SKiMZV1paxamH/images/425915cf-a3fb-4eb8-9bfe-93d9b3c8bb0a.png?asset_id=1905c2ac-bee1-4781-95b4-6934566f08ef&amp;img_etag=%229c492591319808285b3dc952c6b1663d%22&amp;size=1024)](https://spark.adobe.com/page/SKiMZV1paxamH/images/425915cf-a3fb-4eb8-9bfe-93d9b3c8bb0a.png?asset_id=1905c2ac-bee1-4781-95b4-6934566f08ef&amp;img_etag=%229c492591319808285b3dc952c6b1663d%22&amp;size=1024)
-
-近日，北京市人社局副处长王林体验外卖员工作，12小时仅赚41元备受关注。在亲身体验课外卖员的艰辛后，王林与美团公司代表进行了对话，其中包括：外卖员工的劳动关系、保险等问题。美团公司的代表在现场无与伦比，尴尬不已，因为美团800万外卖员全是外包员工！
-
-🔗新闻链接：[1000万骑手均为外包员工，美团市值蒸发1.2万亿](https://www.163.com/dy/article/G9TGJC3505520JQ4.html)
-
-### 简评（宁缺）：
-
-中共国第一大外卖巨头美团最近日子不太好过，先是有行政背景的北京人社局官员亲自体验美团外卖小哥工作的不易，站在道德高地控诉美团这样压榨员工的经营模式。紧接着，这位体验送外卖生活的王处长又带着巡视组代表官方对美团公司进行了质询。让人匪夷所思的是，如果美团存在种种不法行为，本应由司法机关走正常法律途径予以解决。中共官方作为市场的裁判员，竟然又干起了运动员的活。
-
-平心而论，美团公司和其他所有中共国大企业一样，表面宣称靠商业新理念，新模式开拓市场，背后实际都是凭借盗国贼特权撑腰，通过恶意压榨底层民众血汗发展壮大起来。美团公司种种不耻的行为固然可恶，但民众其实更想知道的是，既然中共国所有大企业都是如此普遍地不讲道义廉耻，为什么单单拉美团公司出来游街示众？这次针对美团的选择性执法行动是否又是一次政治权力的斗阵结果呢？
-
-中共建政70多年来，直到最近因为与欧美西方世界开展贸易往来后，经济才取得表面上的一点进步，但政治体制一直在荒蛮的状态上止步不前，政府权力的触角依然可以任意地伸向各个角落。政治宣传口号表面上虽然听起来伟大光荣正确，实际内容上却充满似是而非的矛盾。一面是“建设法治社会”的美好愿景，一面是“一切都听党的，一切都是党的”政治动员，擅长宣传煽动的中共党媒恐怕到现在自己都搞不清是法大还是党大。
-
-## **新闻三：世卫组织：印度出现的新冠病毒变种令全球关注**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/SKiMZV1paxamH/images/43c66288-2c1e-4873-a33c-57b458370c88.jpg?asset_id=27000191-dd59-4230-93a6-842a999dcd24&amp;img_etag=%22e3f6225f25b2c7431ec5ec08583b5c4f%22&amp;size=2560)](https://spark.adobe.com/page/SKiMZV1paxamH/images/43c66288-2c1e-4873-a33c-57b458370c88.jpg?asset_id=27000191-dd59-4230-93a6-842a999dcd24&amp;img_etag=%22e3f6225f25b2c7431ec5ec08583b5c4f%22&amp;size=1024)
-
-世界卫生组织星期一(5月10日)说，在印度流行的一个新冠病毒变种令全球关注，且某些现有信息显示传染性增加。
-
-该变种导致印度新冠病毒患者以及康复者患某种真菌感染，这种感染被称为毛霉菌病，由霉菌造成，可能影响患者的面部结构，在某些情况下会造成失明。医学专家说，有糖尿病的冠状病毒病患者尤其容易染上毛霉菌病。
-
-同时，艰难应对疫情爆发的尼泊尔目前氧气和氧气瓶的供应告急。尼泊尔卫生部的一位官员对路透社说，尼泊尔立即需要25,000个氧气瓶。
-
-星期六，在葡萄牙召开的一次峰会的第二天，欧洲联盟批准了一项合同，与辉瑞-生技(Pfizer-BioNTech)续约，在整个2023年期间，由其再提供最多达18亿剂疫苗。辉瑞已按照最初合同向欧盟提供了6亿剂疫苗。
-
-另外，在这次峰会上，美国受到欧盟领导人越来越多的批评。美国总统乔·拜登上星期出人意料地支持取消新冠疫苗的专利，好让贫穷国家得到更多疫苗，这引起了欧盟领导人的不满。
-
-🔗原文链接：[世卫组织：印度出现的新冠病毒变种令全球关注](https://www.voachinese.com/a/who-india-variant-of-global-concern-20210510/5885303.html)
-
-### 简评（村民彼得潘）：
-
-自新冠病毒爆发以来的一年多时间里，疫情从未减轻。与先前盛传的规律不同，这次疫情并不像西班牙流感大起大落，而是不分季节、不分地域地屡次在各国形成短期内病例激增，这与病毒的强变异性有着密不可分的联系。这篇报道串联起四个看似独立的事件，其中的联系却令人耐人寻味。
-
-记得在疫情爆发之初，由于当地医生们对于羟氯喹的信任，印度对疫情的控制甚至胜过了拥有所谓高科技、高医疗水平与高素质国民的欧美国家。然而莫迪政府显然仍低估了形势。我们对印度具体的抗疫细则尚不了解，但从世卫组织这次的发现可以推测，新变种也许是导致印度猝不及防的主要原因。病毒感染触发真菌感染，这种闻所未闻的病症是否又有中共的黑手在背后操纵，这十分令人生疑。
-
-而尼泊尔想必也不是唯一一个由于其特殊的地理位置而在抗疫上犯难的国家。事实上，环顾全球，有能力独立抗疫的国家还真为数不多，因而欧盟的疫苗得以在成员国之外的近90个国家分发。当然，做疫苗这单全球生意少不了中共。无论效果如何，疫苗经济、疫苗外交写在了中共的病毒超限战剧本里。中共的如意算盘使此刻欧盟的姿态变得十分微妙。就此停发疫苗，相当于整个蛋糕全让给中共，同时还要面临丢失民意的风险；继续发，也不会有足够的产能挤走中共，最后的图景只能是欧盟和中共同享一杯羹，同演一场戏，也许这正合了某些人的心意。
-
-而拜登横插也充分显示了拜登的老奸巨猾，这就好比给欧盟一个选择，授人以渔，一劳永逸，既帮欧盟避免了与中共同流合污的嫌疑，还能帮欧盟进一步博得比中共更高的道德站位。顺带全球反共势力也能借机看看，谁这时候站出来跳脚反对。果不其然，中共走狗马克龙不乐意了。而罗马教廷经历了腐败案件的披露后，教宗也乖乖选择站在美国一边。开放专利固然有它的风险，但不要忘了拜登的老谋深算，如何在灭共与自保之间保持平衡，想必自会生出一条妙计。
-
-## **新闻四：印度恒河发现数十具漂流的尸体**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/SKiMZV1paxamH/images/a93d64ee-43af-4d9f-a40a-deced3431b5c.png?asset_id=0a2d13e3-6cdf-4d03-a712-31b21e0caf52&amp;img_etag=%22add22fb8bb500abfad7393400805882b%22&amp;size=2560)](https://spark.adobe.com/page/SKiMZV1paxamH/images/a93d64ee-43af-4d9f-a40a-deced3431b5c.png?asset_id=0a2d13e3-6cdf-4d03-a712-31b21e0caf52&amp;img_etag=%22add22fb8bb500abfad7393400805882b%22&amp;size=1024)
-
-印度疫情正值险峻时期，周一，当局发现并打捞了位于印度东部的恒河河面上漂浮着的71具尸体。当局周二表示，这些尸体死因不明。一时间，社交媒体上传出尸体漂浮在河面上的图片，这引发了人们的愤怒，人们猜测这些人死于新冠病毒。周二，更多的尸体被发现漂浮在河上。地方上的村民表示，没有足够的木材来火化死者，因而将死者葬于水中。有12、13个村的尸体被这样处理。
-
-印度正遭逢世界上增长最快的感染率。周二，该国确认了近39万个新病例，其中包括3876个新死亡病例。从总数上看，印度的确诊病例数量仅次于美国，有近2300万，死亡人数超过24万。专家表示，几乎可以肯定，所有这些数字都被严重低估了。
-
-🔗原文链接：[印度恒河发现数十具漂流的尸体](https://apnews.com/article/india-coronavirus-pandemic-health-1836d194eb36c16f39b1d5227ed8063a)
-
-### 简评（村民彼得潘）：
-
-印度发生的惨剧正在以每分每秒不间断的频率提醒世人新冠病毒的可怕。不难发现，其他所谓先进国家对新冠疫情的播报，大多聚焦于医院、治疗方案、科学数据甚至政治表述。记录血肉分明的人道主义灾难似乎并不为各大媒体所重视，或者被各大媒体刻意回避。印度作为人口密集、贫富差距悬殊且贫困人口巨大的国家，则更敢于面对这一灾难笼罩下的黑暗。
-
-也许这些村民活了大半辈子，却怎么也想不到，短时间内新增的巨大的死亡数字会使火化用的木材消耗殆尽。撇开其他可能性不谈，“水葬”也许是当地人对死者能尽到的最大的尊重。这样的惨剧，和伊朗当时临时挖建“万人坑”，和武汉当时开进去十几只殡葬队与几十台火化炉何其相似。
-
-不同于独裁政府的是，印度当局对自身所经历的灾难与窘迫并不遮掩，他们没有让死者的家属噤声，更将新闻信源公布于世界。他们很清楚，在意识形态、价值观上贴近求真求实的西方，对于其当前的抗疫工作与未来的国家形象有多重要。反观中共，他们则在一层骗一层的谎言中失信于人，以至于到他还想一并掩盖起自己研发生物超限战的罪行时，它国际社会的老朋友们已经没有几个人继续支持它了。
-
-当然，将这么多尸体抛至河水中，后续带来的污染必定是极难处理的。而恒河作为印度的母亲河，虽一直遭人诟病其水质，陡然投入这么多的人类尸体，河道的压力十分巨大，不知道恒河自身还能坚持多久。可以肯定的是，未来对中共的指控中，又多了一条重大的罪证。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/SKiMZV1paxamH/images/9ac9204a-0a22-4e63-b1f8-fcede500e11c.png?asset_id=4bb13a3f-ff7a-4542-a5a1-f344a163a6d7&amp;img_etag=%2288f805e0afcb0d4b7795eb5370b52348%22&amp;size=2560)](https://spark.adobe.com/page/SKiMZV1paxamH/images/9ac9204a-0a22-4e63-b1f8-fcede500e11c.png?asset_id=4bb13a3f-ff7a-4542-a5a1-f344a163a6d7&amp;img_etag=%2288f805e0afcb0d4b7795eb5370b52348%22&amp;size=1024)
-
-编辑：【英国伦敦喜庄园编辑部】
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
 
-[!\[\]()!\[\](https://spark.adobe.com/page/SKiMZV1paxamH/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/SKiMZV1paxamH/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+5月16日塞林博士的3连推：
+
+第1推，转发闫博士关于黄灿平的一篇博士论文“蝙蝠宿主中新病毒发现及蝙蝠冠状病毒HKU9受体的探索”在网络上引发争论的推文：很不幸，高福的学生黄灿平的这篇论文是不严谨的，因为该论文本身在介绍墨江矿洞病例有关的数据方面缺少准确性，况且墨江病例并没有被证实是冠状病毒感染，这误导了COVID-19起源的调查转向错误的“云南矿洞说”并浪费资源，并附上自己第二份报告里面驳斥“云南矿洞说”的证据、分析和解释部分的截图。闫博士绝对正确，许多人被误导了，如果你查看原始的墨江矿工临床数据，则无法区分病毒呼吸道感染与网状内皮细胞真菌感染，更没有人传人的特征。
 
 
+
+> Dr. Li-Meng YAN [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) is absolutely correct. Many have been misled. If you look at the original Mojiang miner clinical data, it is impossible to distinguish between a virus respiratory infection and fungal histoplasmosis and there was no human to human transmission. [https://t.co/Z2CLbIvoN1](https://t.co/Z2CLbIvoN1)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 16, 2021](https://twitter.com/LawrenceSellin/status/1393811064500981764?ref_src=twsrc%5Etfw)
+
+
+
+第2推，塞林上校的中文推：我向中国共产党宣战，我们将共同击败中国共产党！并再次贴上自己曾经多次贴出的一张图片，即4位美国军人在新中国联邦国旗下的图片，他们是：二战时期的史迪威、陈纳德和杜利特尔3为将军，以及塞林上校自己。
+
+
+
+> 我向中国共产党宣战。 我们将共同击败中国共产党。 [pic.twitter.com/eQLWkzlpBK](https://t.co/eQLWkzlpBK)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 16, 2021](https://twitter.com/LawrenceSellin/status/1393944212169793541?ref_src=twsrc%5Etfw)
+
+
+
+第3推，转发Joe Hoft今天发表在Gateway Pundit上的文章“涉嫌参与制造COVID-19病毒的中共军事科学家入选美国微生物科学院院士”，这位中共军事科学家就是姜世勃，其在2021年2月入选美国微生物科学院院士。感谢COVID-19侦探“Wenming”的挖料奉献并已已笑纳。
+
+
+
+> Chinese Military Scientist, Shibo Jiang, Suspected of Involvement in COVID-19 Creation Elected to American Academy of Microbiology in February 2021
+> ([#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@John16489988](https://twitter.com/JOHN16489988?ref_src=twsrc%5Etfw) acknowledged and thanked for the tip)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19India](https://twitter.com/hashtag/COVID19India?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/t8bLTqhYNk](https://t.co/t8bLTqhYNk)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 16, 2021](https://twitter.com/LawrenceSellin/status/1394000081620291584?ref_src=twsrc%5Etfw)
+
+
+
+5月17日塞林博士的2连推：
+
+第1推，转发The National Pulse调查记者及其播客撰稿人Natalie Winters今天发表的一篇文章“WIV将其与军方关联的科研人员名字从其网站上删除了”。涂长春和何彪一样，都是金宁一将军团队中的病毒收集者，其中何彪还是分离出蝙蝠冠状病毒ZC45和ZXC21的团队成员，闫博士称ZC45和ZXC21为COVID-19的骨架。
+
+
+
+> Changchun Tu, along with Biao He, is one of General Ningyi Jin's virus collectors. Biao He was part of the team that isolated bat coronaviruses ZC45 and ZXC21, which [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) says is the backbone of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [@nataliegwinters](https://twitter.com/nataliegwinters?ref_src=twsrc%5Etfw) [https://t.co/zglRNvH9d2](https://t.co/zglRNvH9d2)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 17, 2021](https://twitter.com/LawrenceSellin/status/1394332326658777096?ref_src=twsrc%5Etfw)
+
+
+
+第2推，再次转推自己4天前的一个推文，即：明确的证据表明，截至2020年，Antony Fauci的NIAID一直对与PLA关联的WIV的一项完全独立的寨卡病毒“功能获得”研究计划保持资助，并贴上他们之间合作研究联合发表科研论文的网页截图，尤其是NIH/NIAID/CDC科研经费拨款编号的证据揭示。强调如对此有任何疑问，请发推举证或质疑！
+
+
+
+> Re-Tweeting in case there is any doubt. [https://t.co/8TH6UTDf7B](https://t.co/8TH6UTDf7B)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 17, 2021](https://twitter.com/LawrenceSellin/status/1394333646752976896?ref_src=twsrc%5Etfw)
+
+
+
+中共CDC主任高福所带的博士研究生黄灿平，在COVID-19疫情早期的2020年2月发表的一篇博士学位论文“蝙蝠宿主中新病毒发现及蝙蝠冠状病毒HKU9受体的探索”，该论文在“墨江矿工病例”的基础上衍生出“云南矿洞说”，捏造出RaTG13是SARS-CoV-2最接近的病毒基因组，并被引用超过1.1万次，潜心误导世界将COVID-19起源转向所谓的自然起源“云南矿洞说”，刻意模糊和掩盖其实验室起源的阴谋与罪恶。CCP-PLA-AMMS反人类战争罪犯罪集团的伎俩和意图，怎能瞒得过病毒科学界的好猎手天使闫博士？闫博士在自己第二份报告里面亮出了充分的证据，并详细分析和解释了“云南矿洞说”的荒谬。查看原始的墨江矿工临床数据，不但无法证实该病例是冠状病毒感染引起的，更没有人传人的特征。
+
+CCP-PLA在造假乱真和抹掉犯罪痕迹方面处心积虑、未雨绸缪， The National Pulse上今天发表的一篇文章揭露：2020年5月27日前的WIV官网上仍在列的3位CCP军事科学家，即CAS旗下国家重点实验室WIV的2位学术委员，分别来自第二军医大学的王红阳和PLA第302医院的王福生，以及CAS旗下WIV新发传染疾病中心科学顾问委员，来自AMMS长春军事兽医研究所的涂长春，但在2020年5月28日后，WIV官网就以改变网页版面格式的契机，将这3位与中共军方关联的科研人员名字从其网站上删除了，典型的掩耳盗铃、欲盖弥彰！
+
+而在被CCP-PLA深度渗透并绑架的美国，似乎在COVID-19疫情溯源接近收网的情况下，显得更加疯狂和滑稽，涉嫌参与制造COVID-19病毒的中共军事科学家姜世勃和王林发，双双于2个月前刚刚入选美国微生物科学院院士。这背后究竟是谁仍然在顶风作浪？胆敢在美国国运当头兴风作浪的，只有美国传染病学界教父级别的福奇，尽管美国各界对福奇的揭露和敲打已经非常广泛和深入，死猪不怕开水烫的福奇自持德高望重、老奸巨猾，想把自以为是的铜墙铁壁般防线演绎得更加淋漓尽致，实为皇帝的新装自取其辱，继续往绝命悬崖狂奔！因此，塞林博士再次敲打、警告福奇，再次秀出截至2020年，福奇有举足轻重影响力的NIH/NIAID/CDC，仍然在向CCP-PLA关联的WIV划拨科研经费的拨款编号之证据！
+
+塞林上校以个人名义，与二战时期战绩彪炳的3位美国军人史迪威、陈纳德和杜利特尔一起，站在新中国联邦国旗下向中国共产党宣战，这是美国军方正式向CCP宣战前的热身吗？我们将拭目以待，新中国联邦人期待与美军再次演绎二战时期中美两国同仇敌忾、破釜沉舟的精诚合作，共同击败并消灭邪恶的CCP！
+
+校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
