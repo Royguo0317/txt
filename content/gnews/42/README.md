@@ -1,33 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以色列军方报告摧毁了约100公里的哈马斯隧道
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1253339/)
+## 【战友心声】你会让你的孩子接种Covid-19 （中共病毒）疫苗吗？
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1253381/)
 
-信息来源：德国镜报网络版 
-发布时间：2021年5月17日
-翻译 /整理/ 简评： Shuizhuyu
+作者： 香草山农场美食部   为真不破20
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18050439/376dc0e9-3235-4e79-8193-37bd93ae36d7_w948_r1.77_fpx31_fpy60.jpg)A Palestinian firefighter reacts at the site of Israeli strikes in Gaza City May 17, 2021. REUTERS/Mohammed Salem
-
-
-图片： 路透社
-
-**以色列军队大规模空袭后开始补给。“伊斯兰圣战”组织的高级指挥官被杀死。默克尔总理向内塔尼亚胡总理表示声援。**
-
-以色列与激进的伊斯兰哈马斯之间爆发新的血腥战斗一周后，以色列军队报告了多项军事成就。据说加沙地带的空袭摧毁了统治哈马斯的约一百公里的隧道。一名高级伊斯兰主义者在加沙的一次袭击中也被故意杀害。巴勒斯坦激进分子对加沙地带边界地区进行了新的火箭弹袭击，以作出回应。
-
-陆军发言人乔纳森·孔里克斯（Jonathan Conricus）说，在对哈马斯隧道的袭击中，隧道网络中具有战略意义的部分被摧毁。哈马斯利用这些隧道作为后勤和避难网络，在加沙地带运送战斗人员，弹药和粮食。有些隧道可通行车辆。 Conricus最近将其称为“城市下方的城市”。据报道，以色列军方已经在星期一晚上进行了攻击，总共攻击了54架战斗机。袭击了34个目标，其中包括哈马斯高级指挥官的房屋。
-
-同样在星期一，以色列军队声称杀害了巴勒斯坦组织“伊斯兰圣战”的一名高级军事指挥官。据报道，这次袭击是针对激进组织北部司令部的哈塞姆·阿布·哈比德（Hasem Abu Harbid）的。他负责对以色列平民和士兵的多次袭击以及对以色列的火箭弹袭击。
-
-简评：以色列报道， 对哈马斯的的隧道进行了攻击。切断了哈马斯的供给，后勤。 打击哈马斯指挥官的驻地。 并对伊斯兰圣战组织的高级指挥官实施了定点打击。 这些都是以色列的强项。 但是我们不愿意看到任何形式的暴力。 我们更希望中东地带能够尽快恢复和平。 我们最希望的是世界的正义力量能够集结， 能够专心对付中共， 不希望在中东地区牵扯太多的精力， 延误我们全球灭共的步伐。
-
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
-
-🔗[israel-armee-meldet-zerstoerung-von-rund-100-kilometern-hamas-tunnel](https://www.spiegel.de/ausland/israel-armee-meldet-zerstoerung-von-rund-100-kilometern-hamas-tunnel-a-3fb5adc4-f357-49fa-a26c-3a55f3e6a66c)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
 
 
 
-+1
+自5月10日，美国食品药品监督管理局（FDA）授权辉瑞公司的COVID-19（中共病毒）疫苗可以用于12至15岁的青少年，并声称疫苗 除了预防严重疾病外，还可以帮助孩子安全地恢复他们所喜欢做的事情。当地媒体电视便广泛宣传此消息！很多孩子的父母便开始给孩子预约接种疫苗！
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18054755/%E5%9B%BE%E7%89%871-131.png)
+
+很多人怀着侥幸心理，看到每天媒体以及社交平台等报道的至今已多少多少人接种了中共病毒疫苗的信息，认为疫苗真的可以预防病毒！
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18054116/%E5%9B%BE%E7%89%872-89.png)
+
+今天，笔者的同事谈到她的孩子已经打了中共病毒疫苗，孩子正好12岁！对于她而言，疫苗是安全的，有防护措施的，所以全家人在这方面都是很积极的！全家老小只要满足了打疫苗的年龄限制，都是第一时间加入了打中共病毒疫苗的队列！但是她并不了解目前疫苗的实质：截至目前，根本没有有效的疫苗！这一切的根本基于疫苗经济！而大多数12～15岁的青少年，由于认知的局限性，父母说有效，也便听从！可见，父母的信息来源的真实可靠性是十分重要的！
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18053935/%E5%9B%BE%E7%89%873-51.png)
+
+如果这些父母们知道我们伟大的闫丽梦博士多次在媒体以及推特上宣传没有有效的疫苗，如果他们知道爆料革命对病毒真相的宣传，如果他们知道这个COVID-19病毒就是源于中共解放军实验室的生化武器，遭到蓄意释放， 如果他们想想2003年的非典至今仍无有效疫苗，如果他们再仔细想想中共病毒自去年1月份大肆爆发，至今已经大约一年半的时间，其中多少变异而且还在每天传染死亡不断，还会有如此行动吗？
+
+
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193555/5_May-1-556x720-1.jpeg)
+
+
+
+**六四文宣大赛，****欢迎大家踊跃投票****：**[**https://gnews.org/poll/poll-article\_1/**](https://gnews.org/poll/poll-article_1/)
+
+**投票注意事项：第一，比如投票视频，一个账号需要同时选中要投的三个视频作品，方可以投票；第二，因为视频比较大，所以需要大家静待一两分钟，然后进入视频投稿界面。第三，投票的战友也有机会获幸运参与奖啊。**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
