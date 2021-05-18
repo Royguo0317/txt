@@ -1,59 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 苹果公司是中共侵犯人权的帮凶！
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1253980/)
+## 【有声读物】CCP窃取维吾尔人的苹果手机数据
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1254067/)
 
-台湾宝岛农场
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18103924/%E6%93%B7%E5%8F%96518-7.jpg)
-[纽约时报中文网报导](https://cn.nytimes.com/technology/20210518/apple-china-censorship-data/zh-hant/)，苹果公司将即将完工的贵阳数据中心以及建在内蒙古地区的另一个数据中心的数据资料控制权交给中共政府。
+配音：香草山录音组 蒙古鸿雁
 
-苹果公司在处理客户隐私及数据资料方面，向来严谨、可信。苹果公司的产品设计理念，也强调保护用户隐私。以icloud为例，作为最早期的云端服务之一，苹果公司致力于强化客户数据存放的安全性，并利用icloud云端服务完善苹果设备使用的便利性。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-相对的，中共在统治理念上，从未尊重个人隐私。以近日中共国知名企业「海底捞」，在餐厅内部安装大量镜头，将客户用餐画面以各种不同角度录制，并回传数据中心。
 
-一个连吃饭都要偷拍的政权，根本不可信。
 
-然而，苹果公司为了利益，与中共妥协。苹果公司完善的加密技术使中共无法达到窃取隐私的目的，若苹果公司意图在中共国领域内经营数据中心，势必将数据中心的控制权交付给中共国政府雇员。
 
-于新闻报导当中，提及「中国（中共）政府的雇员实际上管理着这些伺服器。苹果放弃了它在其他地方使用的加密技术，因为中国（中共）不允许使用。而解锁这些计算机上信息的数码密钥则存放在其需要保护的数据中心里」。
 
-**科技带来便利也带走隐私**
 
-云端服务已经充斥在我们生活当中，应用软体、网路服务的普及化，为了达到使用体验上的方便，通常有大量的密码、密钥及其他隐私资讯储存于云端上。
 
-若苹果公司将部分数据中心控制权交由中共控制，就意味者苹果出卖客户隐私，让客户暴露在风险、被中共侵犯当中。
+据5月15日[法新社RFI报道](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E6%B3%95%E5%9B%BD%E6%8A%A5%E7%BA%B8%E6%91%98%E8%A6%81/20210515-%E5%8C%97%E4%BA%AC%E5%A6%82%E4%BD%95%E7%AA%83%E5%8F%96%E7%BB%B4%E5%90%BE%E5%B0%94%E6%97%8F%E4%BA%BAiphone%E6%89%8B%E6%9C%BA%E6%95%B0%E6%8D%AE)，美国麻省理工学院的科技杂志于5月6日发表文章称，中共政府悬赏二十万美元举办名为“天府杯”的中国黑客大赛，其目的是研究如何打开苹果手机的窃看缺口。美国政府以及谷歌集团的研究显示，中共国黑客的发现为中共对中国人民，尤其是维吾尔人的大规模监控提供了大量援助。
 
-以本次疫情的普筛为例，中共国打着普筛名义，通过「肛门检测」方式大量获得人民的基因资料。在中共眼中，不存在人性尊严。
+自2018年开始，中共国的黑客就不再参加每年在加拿大温哥华举行的国际黑客比赛，很明显，CCP认为中共国黑客的价值，应该为CCP的安全部门所用。
 
-**苹果公司与中共互利共生**
 
-新闻报导提及，苹果现在的几乎所有产品都是在大中华地区组装的，公司收入的五分之一也是来自这里。但就在库克想办法让中国为苹果工作的同时，中国也在让苹果为中国政府工作。
 
-在民主体制当中，人身自由、言论自由、隐私都是神圣不可侵犯的权利。苹果公司，在全球范围有大量的用户，对数据资料、用户隐私应该有绝对性的保障。但苹果公司却为了利益，将最重要的隐私保障抛诸脑后，任由中共政府掌控中共国区域苹果用户的数据资料。
+**文字版原文：[【热点播报】CCP窃取维吾尔人的苹果手机数据](https://gnews.org/zh-hans/1250709/)**
 
-此外，中共国版的App Store里，库克更同意中共政府的要求，对中共国版本的App Store进行内容审查。
+作者：纽约香草山信息部 6zero4
 
-**苹果公司成为中共侵犯人权的帮凶！**
 
-苹果公司，在交出数据中心控制权的那一刻，已经成为中共政府侵害人民的帮凶。
 
-中共利用科技手段，毫无节制的搜集全球范围的人民隐私，而苹果公司像中共妥协，使中共掌控苹果用户的隐私数据，就是协助中共侵犯人权、出卖民主的行为。
+音频处理：喜山必胜Maverick
+发稿：雪梨
 
-更详细内容点击观看原新闻报导
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-[繁体中文](https://cn.nytimes.com/technology/20210518/apple-china-censorship-data/zh-hant/)
+**更多资讯，更多关注**
 
-[英文](https://www.nytimes.com/2021/05/17/technology/apple-china-censorship-data.html)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-文╱zhong
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-发布╱小刘
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

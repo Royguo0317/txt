@@ -1,57 +1,147 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 苹果为求利益以五种方式向中共让步
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1253910/)
+## 战友展览板【5/17】
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1253922/)
 
-【日本东京方舟农场】撰稿：青衣     素材采编：武汉老温     校对：文小律
+**西班牙巴塞罗那喜悦农场** wenwu
 
-《纽约时报》在一篇调查报告中指出，美国科技巨头苹果公司为了其在中共国的市场利益，向中共当局频频让步，不但将中共国用户个人资料存进国营企业管理的资料中心，甚至还将“台独”等议题列入禁止在应用程式里出现的清单中。
-
-《纽约时报》的报道列举出苹果公司使用五种方式来达到中共国政府的审查要求，包括将客户数据存储在中共国政府控制的服务器上；与中共国政府共享用户数据；主动删除敏感应用程序；禁止郭文贵先生的应用程序；以及令数以万计的程序在中共国的苹果商店里消失。
-
-《纽约时报》不仅引述了苹果公司的内部文件，并且还对17名现任和前任员工、4名资安专家进行了采访，指出苹果公司执行长库克（Tim Cook）为了公司在中共国的生意，一再对中共国当局做出妥协让步。
-
-报道称，在过去20年里，苹果公司得益于中共国的劳动力和消费市场，成为了世界上最有价值的公司。 该公司几乎所有产品都在中共国组装，并且其五分之一的销售额也来自中共国。 但同时，中共国政府也以此作为筹码，向苹果公司施压，索求更多的个资掌控权，要求苹果公司做出与其价值观相背的妥协。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18101925/0C3F21BF-6609-4C2E-94D2-D884FF53DD09.jpeg)
-
-报道指出， 苹果公司从2017年开始，同意将其中共国客户的数据转移到中共国，并放在一家中共国国有企业拥有和运营的服务器上，以此作为当时对中共国一项法律的回应。据悉，苹果公司是要将中共国用户的资料数据，储存在预计6月落成的贵阳资讯中心，以及内蒙古的一座资料中心。
-
-虽然苹果公司称其拥有严格加密技术保护，但苹果公司在中共国的资料中心实际上是由政府人员控制，而解密钥匙也存留在中共国境内，等同于让中共国政府握有潜在使用权。安全专家和苹果工程师表示，苹果的让步使得该公司几乎不可能阻止中共国当局获取苹果在中共国用户的电子邮件、照片、联系人、日历和位置数据等资料。
-
-报道指出，中共国国家主席习近平对于西方企业的要求愈来愈多，而库克此前已多次力抗这些要求。苹果公司辩称，其保留了对数据密钥的控制权，并在中共国使用了比其他国家更先进的加密技术。该公司在一份声明中表示:“我们从未在中共国或我们运营的任何地方危及用户或他们数据的安全。”
-
-《纽约时报》的调查报道还指出，苹果公司为了其在中共国的市场向中共当局低头，不仅只是体现在中共国用户的个资安全问题，还表现在近年来苹果公司为了安抚中共国官方，移除了大量所谓“敏感内容”的应用程式。
-
-有一名曾经掌管苹果应用程式商店App Store的员工表示，苹果公司在中共国的律师列出了一份“不能在中（共）国应用程式中出现”的议题清单，包含“天安门广场”、“藏独”、“台独”等。只要律师认为涉及中共国禁忌的敏感话题，苹果公司就得下架。
-
-此外，中共国的iPhone手机还过滤掉了中华民国国旗表情符号，并且还包括地图显示台湾是中共国一部分等事项，宣扬中共国的世界观。一名“资安”专家透露，曾经在iPhone上输入“台湾”，结果导致手机闪退。
-
-此外，苹果公司还禁止中共国用户使用有关西藏流亡精神领袖达赖喇嘛的应用程式，但却容许被控拘留和虐待维吾尔族人的新疆生产建设兵团所属单位开发的应用程式供用户下载。根据《纽约时报》的分析，自2017年以来，苹果公司中共国的应用商店有约5.5万个应用程式“被消失”，而其中的大多数却仍然可以在其他国家的App Store中搜寻到。
-
-报道指出，苹果公司建立了一个内部机构，拒绝或删除该公司认为可能违反中共国规定的应用程序。苹果对其应用程序的审查人员进行培训，使用特殊软件检查应用程序中是否提及苹果认为在中共国禁止提及的话题，包括“法轮功”、“达赖喇嘛”，“藏独”和“台独”等。而苹果公司对此的回应是：这是为了要遵守当地法规。
-
-此外，《纽约时报》的调查报道还披露出，应中共国互联网监管机构的要求，苹果公司在2018年还禁止了一名中共的批评者——郭文贵先生的应用程序，而郭文贵先生曾通过视频指控中共内部腐败。一份法庭文件显示，苹果高管随后决定将“郭文贵”添加到苹果的“中共国敏感名单”上，这意味着软件会扫描有关他的应用程序，而审查人员会接受相关培训以拒绝其应用程序上架。
-
-然而，有关郭文贵先生的一个应用程序后来躲过了苹果的审查，并被发布到苹果商店。中共国官员联系了苹果公司，该公司应用程序审核主管在凌晨2点32分向同事发送了一封电子邮件，称“这个应用程序和郭文贵的任何应用程序都不能在中（共）国商店中出现”。
-
-随后，苹果调查了这一事件，并解雇了批准该应用程序上架的审查员。苹果公司称，解雇该名审查员是因为其表现不佳。然而该公司却下架了郭文贵先生的应用程序，而苹果公司给出的理由是：该应用被认定在中共国是非法的。
-
-尽管美国法律长期以来一直禁止苹果公司向中共国当局提供数据，但苹果与中共国政府却通过达成一项绕开美国法律的协议，完成了数据转移的过程。苹果让当地政府持有的云上贵州大数据产业发展有限公司(GCBD)成为其中共国客户云数据的合法所有者，双方还在中文iCloud的条款和条件中加入了新的内容，允许其“访问存储在该服务上的所有数据”，并允许两家公司彼此共享数据。这样一来，中共国当局要求提供苹果客户数据的对象就成了GCBD，而不是苹果。
-
-据苹果公司称，在达成协议之前，他们从未向中共国当局提供过客户iCloud账户的内容。但自达成协议以来，已在九起不同案件中提供了数量不详的账户内容。这样一种遮人耳目、暗度陈仓的手段，多么具有中共国特色呀！而苹果公司居然就同意与中共国狼狈为奸了！
-
-诚然，苹果公司的产品的确是行业领先，不仅科技技术含量高，用户满意度也相当高。然而，作为一个美国高科技公司的代表，却为了利益违背西方价值观，屈从于中共这个邪恶政权，这样的行为必将为世人所不耻，遭众人唾弃。
-
-不过有最新消息称，苹果公司上周六内部开会严肃认真地考虑将所有生产线搬离中共国。同时，苹果公司未来的新手机或将排除中共的网络。与虎谋皮最终都不会有好下场，或许苹果公司如今已有了新的认识。但愿苹果公司能在追求利益的同时，也别丧失了起码的良知。
-
-注：本文仅代表作者观点
-
-参考链接：
-
-1. [https://tw.news.yahoo.com/%E8%98%8B%E6%9E%9C%E9%81%AD%E7%88%86%E7%82%BA%E4%B8%AD%E5%9C%8B%E5%B8%82%E5%A0%B4-%E5%A6%A5%E5%8D%94%E7%94%A8%E6%88%B6%E8%B3%87%E5%AE%89-054738346.html](https://tw.news.yahoo.com/%E8%98%8B%E6%9E%9C%E9%81%AD%E7%88%86%E7%82%BA%E4%B8%AD%E5%9C%8B%E5%B8%82%E5%A0%B4-%E5%A6%A5%E5%8D%94%E7%94%A8%E6%88%B6%E8%B3%87%E5%AE%89-054738346.html)
-2. [https://www.zaobao.com.sg/realtime/china/story20210518-1147604](https://www.zaobao.com.sg/realtime/china/story20210518-1147604)
+【以毒灭共】推文。如下
 
 
-0
+
+> "The risk of something like this happens again from that lab or another Chinese lab is very real," Pompeo said. “(China is) operating/conducting activities…to secure those facilities. Risk of bioweapons/bioterror emanating from this region is very real."[https://t.co/xmS2A6Vb6g](https://t.co/xmS2A6Vb6g)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 16, 2021](https://twitter.com/DrLiMengYAN1/status/1394072352581996544?ref_src=twsrc%5Etfw)
+
+
+1. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1394072352581996544?s=20)**：
+[*蓬佩奥说，“从那个实验室或另一个中国实验室再次发生类似事情的风险是非常真实的。”“（中共国）运营/开展活动……以确保这些设施的安全。来自该地区的生物武器/生物恐怖风险非常真实。”*](https://www.foxnews.com/politics/pompeo-coronavirus-wuhan-china)
+
+
+> 💥💥中共国中南坑高级智囊陈平教授，刚公开亲口承认，中共国对美国已经开展了生物战！请大家狂转🙏🙏[#喵见世界](https://twitter.com/hashtag/%E5%96%B5%E8%A7%81%E4%B8%96%E7%95%8C?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/WGJJO5CfFe](https://t.co/WGJJO5CfFe)
+> — 淘喵先生 (@JustinP56075199) [May 18, 2021](https://twitter.com/JustinP56075199/status/1394522220249026570?ref_src=twsrc%5Etfw)
+
+
+2. **[淘喵先生推特](https://twitter.com/justinp56075199/status/1394522220249026570?s=21)**：
+*中共国复旦大学住美、反美陈平教授，公开亲口承认，中共国对美国已经开展了生物战*
+
+
+> 毒王马里克最近获奖了John Dirks Canada Gairdner Global Health Award。接受采访时，他的结束语就是“In nature, nothing grows forever—the human species is no exception.“ 只能说，反社会人格跃然纸上 [https://t.co/cD8msCrOK5](https://t.co/cD8msCrOK5) [pic.twitter.com/sFHJlHEp8Y](https://t.co/sFHJlHEp8Y)
+> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [May 17, 2021](https://twitter.com/jsdfposjpqyuee1/status/1394117908452712449?ref_src=twsrc%5Etfw)
+
+
+3. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1394117908452712449?s=20)**：
+*毒王马里克最近获奖了John Dirks Canada Gairdner Global Health Award。接受采访时，他的结束语就是“In nature, nothing grows forever—the human species is no exception.“ 只能说，反社会人格跃然纸上*
+
+
+> “We are talking about potential bioweapon leaks and future biowarfare…This type of gain-of-function is really related to weaponized the virus!”[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)[#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/8uJa7TLluI](https://t.co/8uJa7TLluI)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 16, 2021](https://twitter.com/DrLiMengYAN1/status/1394070938400985097?ref_src=twsrc%5Etfw)
+
+
+4. [闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1394070938400985097?s=20)：
+*“我们正在谈论潜在的生物武器泄漏和未来的生物战……这种类型的功能增强确实与病毒武器化有关！”
+#新冠病毒 #超限生物武器 #超限生物战
+（https://t.co/8uJa7TLluI?amp=1 喜站推特又被封了）*
+
+
+> A portion of the discussion of a paper comparing the response of infection versus vaccine. 
+> 
+> Supportive of my hypothesis that COVID can infect the vaccinated person but in a blunted severity.
+>  [https://t.co/Nd2F05TZvE](https://t.co/Nd2F05TZvE) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19Vaccination](https://twitter.com/hashtag/COVID19Vaccination?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/KT2npQE1vy](https://t.co/KT2npQE1vy) [pic.twitter.com/r6D2ysEEyb](https://t.co/r6D2ysEEyb)
+> — DrQuay (@quay\_dr) [May 17, 2021](https://twitter.com/quay_dr/status/1394122611404115972?ref_src=twsrc%5Etfw)
+
+
+5. **[奎伊博士推特](https://twitter.com/quay_dr/status/1394122611404115972?s=20)**：
+*[一篇比较感染与疫苗反应的论文的部分讨论。](https://www.medrxiv.org/content/10.1101/2021.04.20.21255677v1)
+支持我的假设，[即冠状病毒可以感染接种疫苗的人，但其严重程度较低（疫苗会传染其他人）](https://twitter.com/quay_dr/status/1393148759819702273?s=20)*
+
+
+> 这份名单提到的“科技重大专项定向委托课题”是什么？答案很明确：军民融合一起找合适的生物战剂病毒骨架（图），在一篇文章里称之为“传染病数据收集及平台应用推广”。王长军那篇舟山蝙蝠病毒的项目号2017ZX10303401-007 指的就是这个，007分项是军队后勤保障部牵头的 (3) [pic.twitter.com/C3uYbvhMUl](https://t.co/C3uYbvhMUl)
+> — 德意志之鹰 (@dezying) [May 16, 2021](https://twitter.com/dezying/status/1393944599811526657?ref_src=twsrc%5Etfw)
+
+
+6. **[德意志之鹰推特](https://twitter.com/dezying/status/1393944599811526657?s=20)**：
+*这份名单提到的“科技重大专项定向委托课题”是什么？答案很明确：军民融合一起找合适的生物战剂病毒骨架（图），在一篇文章里称之为“传染病数据收集及平台应用推广”。王长军那篇舟山蝙蝠病毒的项目号2017ZX10303401-007 指的就是这个，007分项是军队后勤保障部牵头的*
+
+
+> 徐德忠病毒教课书page91-92页，截图 [pic.twitter.com/8muvUFZw48](https://t.co/8muvUFZw48)
+> — mc文艺 (@mc64122225) [May 17, 2021](https://twitter.com/mc64122225/status/1394424843055996934?ref_src=twsrc%5Etfw)
+
+
+7. **[mc文艺推特](https://twitter.com/mc64122225/status/1394424843055996934?s=20)**：
+*徐德忠病毒教课书page91-92页（截图）：mRNA基因疫苗将永久性改变人类的DNA*
+
+
+> 病毒學家閻麗夢近日表示，這是證明中共開發非傳統生物武器計劃的「確鑿證據」，而COVID-19就是源於中國解放軍實驗室的超限生物武器，遭中共蓄意釋放「中國高官說過，生物武器死亡率不應該很高，第2用途是為破壞敵國的醫療系統和社會。去年發生在武漢的試驗，讓武漢一片混亂」[https://t.co/QG3AlSTsp3](https://t.co/QG3AlSTsp3)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 17, 2021](https://twitter.com/DrLiMengYAN1/status/1394386086084886530?ref_src=twsrc%5Etfw)
+
+
+8. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1394386086084886530?s=20)**：
+[*病毒学家闫丽梦近日表示，这是证明中共开发非传统生物武器计划的「确凿证据」，而COVID-19就是源于中国解放军实验室的超限生物武器，遭中共蓄意释放「中国高官说过，生物武器死亡率不应该很高，第2用途是为破坏敌国的医疗系统和社会。去年发生在武汉的试验，让武汉一片混乱」*](https://ec.ltn.com.tw/amp/article/breakingnews/3535570?__twitter_impression=true)
+
+
+> Changchun Tu, along with Biao He, is one of General Ningyi Jin's virus collectors. Biao He was part of the team that isolated bat coronaviruses ZC45 and ZXC21, which [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) says is the backbone of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [@nataliegwinters](https://twitter.com/nataliegwinters?ref_src=twsrc%5Etfw) [https://t.co/zglRNvH9d2](https://t.co/zglRNvH9d2)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 17, 2021](https://twitter.com/LawrenceSellin/status/1394332326658777096?ref_src=twsrc%5Etfw)
+
+
+9. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1394332326658777096?s=20)**：
+*（娜塔莉·温特斯）[武汉病毒研究所从网站上删除了军事相关研究人员的名字](https://thenationalpulse.com/breaking/wuhan-lab-erased-military-researchers-from-site/)
+
+（Sellin)涂长春与何彪是金宁一将军的病毒收集者之一。何彪是分离（舟山）蝙蝠冠状病毒ZC45和ZXC21团队的一员。闫丽梦博士说这些是制造 #新冠病毒 的脊梁*
+【灭共时代】
+
+
+
+> 巴勒斯坦的群众演员很忙啊 [pic.twitter.com/3qbfD5nSoI](https://t.co/3qbfD5nSoI)
+> — DylanZhao (@dylanzhao) [May 17, 2021](https://twitter.com/dylanzhao/status/1394141587832197131?ref_src=twsrc%5Etfw)
+
+
+**[DylanZhao推特](https://twitter.com/dylanzhao/status/1394141587832197131?s=20)**：
+*以色列对巴勒斯坦发动定点打击（同一辆车后座被炸死，开车一点事情没有；炸楼前打电话给附近的人，巴勒斯坦民众对以色列对独裁的打击精确度很满意），巴勒斯坦发动了群众演员*
+
+
+> 再傳跳機？！ [pic.twitter.com/AzngbiyrY0](https://t.co/AzngbiyrY0)
+> — 台灣大牛(台灣寶島農場) (@jackson66368924) [May 17, 2021](https://twitter.com/jackson66368924/status/1394188251120881667?ref_src=twsrc%5Etfw)
+
+
+**[台湾大牛推特](https://twitter.com/jackson66368924/status/1394188251120881667?s=20)**：
+*台湾兴达电厂再传跳闸*
+
+
+> 加密货币（虚拟币）在五年前的市值基本为零，今天的市值2-2.5万亿美元，其中比特币占了一半。 [pic.twitter.com/p7PC8PqHL9](https://t.co/p7PC8PqHL9)
+> — 瞿水台 Qu Shuitai (@QuShuitai) [May 17, 2021](https://twitter.com/QuShuitai/status/1394337338579374082?ref_src=twsrc%5Etfw)
+
+
+**[瞿水台推特](https://twitter.com/QuShuitai/status/1394337338579374082?s=20)**：
+*加密货币（虚拟币）在五年前的市值基本为零，今天的市值2-2.5万亿美元，其中比特币占了一半*
+
+
+> 元芳，你怎么看？🤔 [pic.twitter.com/7eldsyr4Cd](https://t.co/7eldsyr4Cd)
+> — Jay Yates (@lazydjay) [May 17, 2021](https://twitter.com/lazydjay/status/1394317441237409793?ref_src=twsrc%5Etfw)
+
+
+**[机器猫推特](https://twitter.com/lazydjay/status/1394317441237409793?s=20)**：
+*泰国女排国家队26名球员和工作人员集体确诊新冠病毒。在确诊前已注射中共国科兴疫苗*
+
+
+> America economy "structurally wounded" by CCP Virus. NIH Fauci crew forced American taxpayers to pay for the "privilege" of enduring a pandemic. [https://t.co/SxuAxkTRUP](https://t.co/SxuAxkTRUP)
+> — Peter Navarro (@RealPNavarro) [May 17, 2021](https://twitter.com/RealPNavarro/status/1394334842259746817?ref_src=twsrc%5Etfw)
+
+
+**[皮特·纳瓦罗推特](https://twitter.com/RealPNavarro/status/1394334842259746817?s=20)**：
+（玛丽亚）[彼得·纳瓦罗对美国经济“持熊心”](https://video.foxbusiness.com/v/6254576077001?playlist_id=3166411554001#sp=show-clips)
+
+*（皮特纳瓦罗）美国经济受到中共病毒的 “结构性伤害”。 NIH的福奇团队强迫美国纳税人，为忍受大流行病的 “威权 “产品付费*
+
+
+> 最新证据
+> 
+> 该视频证明国会警察在1月6日，允许人们进入华盛顿国会大楼。警察愿意与所谓"抗议者"合作，让他们和平进入。 [pic.twitter.com/HwKvaCnKRS](https://t.co/HwKvaCnKRS)
+> — RICHARD FULL (@RICHARD08999364) [May 17, 2021](https://twitter.com/RICHARD08999364/status/1394296329212502018?ref_src=twsrc%5Etfw)
+
+
+**[Richard Full推特](https://twitter.com/RICHARD08999364/status/1394296329212502018?s=20)**：
+*最新证据——该视频证明国会警察在1月6日，允许人们进入华盛顿国会大楼。警察愿意与所谓”抗议者”合作，让他们和平进入*
+
+
++1
