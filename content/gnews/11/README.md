@@ -1,44 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】深圳大楼晃动，天灾还是人祸？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1254111/)
+## 【墙内热搜】《速度与激情9》发布会取消，原因竟是安全问题？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1254206/)
 
 作者：纽约香草山佛教部    369文驹
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14021704/logo-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191310/s2-7.jpg)
 
 
 
 
 
-5月18日中午，中共国深圳赛格大厦出现大幅晃动，楼内居民慌忙撤离。
+据中共媒体齐鲁晚报报道，5月18日下午，环球影业官方账号发布声明，称原定18日举行的《速度与激情9》中国发布会活动取消，原因是“环球影业收到了试图使发布会无法正常举行的威胁，并在一定程度上引发了安全隐患。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18120040/%E5%A4%A7%E6%A5%BC%E6%99%83%E5%8A%A82.png)（好看视频截图）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18123140/%E9%80%9F%E5%BA%A62.png)（图源：网络）
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18120816/%E5%A4%A7%E6%A5%BC%E6%99%83%E5%8A%A83.png)（好看视频截图）
+环球影业这样的国际大公司，在中共国举行发布会能被威胁到取消，简直是闻所未闻。能威胁环球影业的是哪路神仙呢？中共的军警特宪居然也不能保护？习近平也不能保护？在笔者看来，中共最有可能是幕后黑手，一切都是出于政治目的。在中共国能公然做出威胁以致官方都无能无力的，只有中共自己。华尔街、好莱坞，曾经跟中共沆瀣一气的所谓好哥们，现在纷纷倒戈。这次很可能是中共暗中对环球影业“砸场子”，后续好莱坞与中共的关系恐将越来越僵，脱钩是必然的。
 
-据深圳市应急管理局官方微博18日消息，今日深圳市未发生地震，想甩锅给地震是不肯能了，然而他们并没有死心，继续甩锅，说是大风造成的。然而，“深圳天气”在微博称，当天中午风力最大只有5级，5级的风力是什么概念呢， “小树摇摆，湖面泛小波”。很明显，5级的风不可能造成“大楼摇摆”。
-
-曾经参加过地王大厦、京基100等超高层建筑设计建设的中科建工有限公司华南大区总工程师陆建新，在接受深圳卫视记者采访时表示，此次赛格大厦产生晃动，比较大的可能是因为刮风引发共振，类似去年虎门大桥发生晃动的情况。最终要以权威部门发布的信息为准。他还说，大楼发生晃动是经常性的，只不过平时晃动的幅度比较小，常人不易察觉。
-
-明明是建筑质量问题，中共却要怪罪给风，要是常见风速能能吹倒大楼，逻辑上应该怪大楼，不能怪风。只有中共这种瞪眼说瞎话的主儿才敢如上罔顾事实、胡乱甩锅。
-
-另外，上述新闻还提到最终原因以权威部门发布的信息为准，这明显就是等着让中共官方来拍板“如何作假”。我们且看中共将怎么掩盖这些豆腐渣工程和背后的黑暗交易。
+对于墙内老百姓而言，损失的不是一场发布会，也不仅是一部电影，而是中西文化的交流与发展、中国人的梦想与追求。中共的闭关锁国，开历史倒车，在电影领域已经显示出来。中共这个毒瘤不根除，文化与思想的自由无从谈起。只有灭了中共，才能拥抱自由快乐的生活。
 
 （本文仅代表作者观点）
 
 参考阅读：
 
-1. [深圳赛格大厦晃动是地震？最新通报来了！](https://baijiahao.baidu.com/s?id=1700098382271284476&amp;wfr=spider&amp;for=pc)
-
-2. [资深钢结构专家陆建新：赛格大厦晃动或与刮风引发共振有关](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_9315521285834787323%22%7D&amp;n_type=1&amp;p_from=4)
-
-3. [排除地震和大风，深圳赛格大厦晃动原因待查明！现场已封闭！](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_8628733767203406382%22%7D&amp;n_type=1&amp;p_from=4)
+1. [环球影业称《速度与激情9》发布会遭遇威胁，不得不取消](https://baijiahao.baidu.com/s?id=1700090612120164115&amp;wfr=spider&amp;for=pc)
 
 编辑/校对/发稿：人间世
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15014027/5%E6%9C%88-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191415/M5-2.jpg)
 
 **更多资讯，更多关注**
 
@@ -52,10 +42,8 @@
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14021704/logo-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12160942/logo-3.jpeg)
 
 
 
-
-
-+1
+0
