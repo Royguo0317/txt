@@ -1,37 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【各抒己见】如何看待成都四十九中之事
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1253068/)
+## 武毒所早在2020年中从官网删除了所有中共军方研究员信息
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1253130/)
 
-作者：喜马拉雅东京樱花团 / 希望
+#### 文章撰写:【默凡】
 
-![](https://lh3.googleusercontent.com/tSCndbyIKa9s6G9ev44WVdemhTGEZGQNGoBTk88-SVhppYcwRbsGqvS06gXDnIaLek0VVqRkVFy4owN_8sWo9HpxnQjIvW1oHLESZ8XLDvvhKONxAoxH_QIAt6BXaXaPHo2T5oaz)
-[图片来源](https://i.epochtimes.com/assets/uploads/2019/10/meditation-1003.jpg)
+《国家脉动》新闻网5月17日报道：当外界质疑中共军方参与武毒所病毒研究项目后，武汉病毒研究所从2020年年中从其官网上删除了三名中共军方研究员信息，这三名中共军方研究员分别来自中共302医院、军事医学科学院和海军军医大。
 
-今天是2021年5月12日，官方媒体终于报道了学生死亡的“真相”。有人问我怎么看成都四十九中学学生死亡的事和官媒的报道。我就来说说几点。
+武汉病毒学研究所学术委员会副主任王红阳隶属于中共国第二军医大学，也被称为解放军海军医科大学。在他的领导下，来自中共解放军302医院的王福生也在该委员会工作。
 
-第一，不管真相是什么，一个正常的文明的社会应该允许公民对公权力的质疑。有人会说：有人在里面搅浑水。这个确实存在，也确实不乏一些阴谋论。但不管是质疑也罢，搅浑水也好，这都会促使或迫使国家机器去尽快查明真相，给社会一个交代。美国民众普遍不信任政府，也没影响它成为这个世界上最强大的国家。反而，美国百年来一直吸引着全世界的精英去实现梦想！
+![https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.43.02-AM-800x616.png]()![https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.43.02-AM-800x616.png](https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.43.02-AM-800x616.png)
 
-第二，公民有监督一切行使公共权力人员的权利。对于国家和社会的各项事务的监督。既有利于改进国家机关和国家工作人员的工作，也有助于激发广大公民关心国家大事。
+来自中共军事医学科学院军事兽医学研究所的涂长春曾在武汉病毒研究所传染病中心科学咨询委员会任职，AMMS被描述为“中国人民解放军最高医学研究所”。
 
-第三，作为主流媒体和政府不应该对合理发声的公众倒打一耙。而是问问自己为什么公众不再信任政府？！为什么家长不再信任老师？为什么？！为什么？！为什么？！因为平时撒的谎太多了！因为平时用国家机器封杀民众知情权的事干的太多了！因为……！既然社会能接受《狼来了》那个故事中的小孩子的恶报，为什么政府就不能反思自己失去公信力的报应？！
+![https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.46.47-AM-800x537.png]()![https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.46.47-AM-800x537.png](https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.46.47-AM-800x537.png)
 
-第四，一个具有独立思考的人不影响他为了民众的利益而为民众发声！恰恰可悲的是如果一个人看到了官方最后公布的真相，而觉得以后应该什么事都要相信政府，为了配合政府而沉默。这才是最可怜的，看似独立冷静了，实则最后会沦落为冷血动物！去看看那些周围的国人，不就是那个麻木的样子吗？
+2020年5月28日，该网站发生重大变化，上述委员会的研究人员信息已经被删除。
 
-第五，国人渴望“主”，但国人几千年来受小人儒的侵蚀，他们渴望的主也不过是期望别人为他做主的主！这种渗透到骨子里的奴才思想无药可治！
+![https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.48.05-AM-800x424.png]()![https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.48.05-AM-800x424.png](https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.48.05-AM-800x424.png)
 
-第六，也是我最想说的，了解一个人是否值得信任，要看他长时间是如何对待你的。一个喂了人民七十年屎的魔鬼，他天天喂你吃屎和尿，偶尔有一天它拿了一个屎状的巧克力喂你，你觉得太美味了。在这时如果这个人忘记了魔鬼常喂他吃屎，并且相信魔鬼不会再喂他吃屎了，那么这个人就是个白痴脑残贱货！我会离他远远的……
+至今，武汉病毒研究所官网仍删除了这些中共军方研究员信息。
 
-第七，国人的健忘程度举世闻名！看看那些怨死的亡灵，他们哪一个曾经不是鲜活的生命？！看看李文亮英雄们的遭遇，他们哪一个不是为了人间的正义？看看因CCP病毒死去众生，他们哪一个不是因为魔鬼的狂妄和凶残而失去生命的无辜者？！看看新疆和内蒙及香港那些被残害的同胞，他们哪一个不是为了子孙的明天而被魔鬼吞噬？！…… 我记起来了某个电影中的场景： 师父对徒弟说：滥杀无辜的恶魔，深陷苦海，害人害己，应当头棒喝，仍不失大慈大悲！
-
-佛法岂坏世法？ 真理尚须质疑，公权焉少监督？ 看似大闹天宫， 实则公权慎重。 一起两起多起， 后世子孙乘凉。
+参考文章：
 
 
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
-*校对：喜马拉雅东京樱花团 / 東洋武士*
-*责任编辑：喜马拉雅东京樱花团 / 文小白*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13031339/%E4%BA%8C%E7%BB%B4%E7%A0%81-1.jpg)
+> [Wuhan Institute Of Virology Erased Names Of Military-Linked Researchers From Website.](https://thenationalpulse.com/breaking/wuhan-lab-erased-military-researchers-from-site/)
+
+
+
+本文仅代表作者本人观点，不代表Gnews平台
+
+* * *
+
+***排版发布：日本东京方舟农场 文柯Miles***
+
 0

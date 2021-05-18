@@ -1,46 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】营口、六安等地“全民核酸检测”打脸新冠疫苗有效
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1252572/)
+## 【锐语】小心中共国的养套杀
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252733/)
 
-配音：香草山录音组 蒙古鸿雁
+作者：霹雳年
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+针对中国车展发生车主控诉特斯拉（Tesla）刹车失灵，接着新华社、中央政法委、央视相继讨伐特斯拉。
 
+专家指出，很多人认为这是中国“养、套、杀”的作法，把特斯拉拐到中国，让特斯拉带进技术、带动产业、供应链，再“宰杀”特斯拉。
 
+“中国想搞它自己的市场，特斯拉还是及早抽出来比较好，否则会越陷越深。”高仁山说，在中国产的无人车，西方自由国家都不会使用、不准用，因为川普政府时期设下干净网路规则。”
 
+如果无人车必须获得干净网路认证，一旦用了中国网通或程式，等于载着一台大的后门病毒到处跑，就无法跟国际车联网系统共用。
 
+高仁山表示特斯拉最好趁现在赶快抽离，因为中国是人治市场，不是像欧美般的自由市场，今天它可以让马云成功，明天就可以让马云身败名裂，也就是它今天让马斯克进来，明天就可能没收马斯克的特斯拉，然后一并扣下智财权。
 
+新闻采编：康州盘古农场新闻组
 
+整理撰稿：蓝精灵
 
-澎湃网5月15日报道，自13日安徽六安确诊1例新冠本土病例后，短短两天安徽辽宁新增17例新冠阳性，对疫情复燃的担忧引发国内新冠疫苗“接种潮”。
+校对发布：Penny
 
-5月13日安徽六安披露新增1例本土病例，而后确诊病例增至3人，7人无症状。辽宁营口新增2例确诊和3例无症状，而鉴于“疫情源头”的确诊病例足迹遍布兰州、北京西城、肥西、大连等地，近日急寻密接者的新闻也是相继出现。
-
-
-
-**文字版原文：[【鹰眼墙国】营口、六安等地“全民核酸检测”打脸新冠疫苗有效](https://gnews.org/zh-hans/1248730/)**
-
-作者：纽约香草山写作组 鹰(文言)
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

@@ -1,52 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】习近平“偶遇”游园群众，以假治国再添例证
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1252867/)
+## 美英加对缅甸军政府实施新制裁
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1252949/)
 
-配音：香草山录音组 蒙古鸿雁
+俄罗斯莫斯科喀秋莎农场   银河
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18013047/M-4.jpg)nst.com.my
+路透社5月17日报道，美国、英国和加拿大对缅甸军政府实施了新的制裁，这是自缅甸军政府于2月1日政变掌权以来得到的最新一系列惩罚性行动，增加了对缅甸军方的压力。
 
+美国将矛头指向了国家行政委员会(SAC)和13名官员，这次制裁冻结了这些上市公司在美国的所有资产，并通常禁止美国人与他们交易。
 
+加拿大对与缅甸武装部队有关联的个人和实体实施了额外的制裁，英国宣布了对缅甸国有企业缅甸宝石企业(Myanmar Gems Enterprise)的制裁，以切断军政府的资金来源。
 
+自从缅甸军方从昂山素季(Aung San Suu Kyi)当选的政府手中夺取政权以来，这个东南亚国家一直处于危机之中，几乎每天都有抗议活动和军政府的镇压，有数百人在镇压中丧生。
 
+西方国家对军政府进行了谴责，并实施了有限的制裁。军政府指控昂山素季领导的政党在去年11月的选举中舞弊，但选举委员会拒绝了这一指控。
 
+美国国务卿布林肯(Antony Blinken)说，军政府没有试图恢复缅甸的民主道路，并呼吁所有国家考虑采取武器禁运和终止与军方实体的商业合作等措施以给他们解决危机施压。他还敦促缅甸军方立即与联合国和东盟成员国合作，实施上个月达成共识的五点计划，其中包括结束军政府和反对派之间的暴力和对话。
 
+布林肯在一份声明中说，“我们今天的行动强调了我们和我们的合作伙伴的决心，只要缅甸政权未能停止暴力，并采取有意义的行动尊重人民的意愿，我们就会对其施加政治和金融压力。”
 
-近日，网上流传着一段习近平周三（12日）视察河南南阳，在南阳月季博览园中“偶遇”一批“群众”，被热烈欢迎的视频。
+美国财政部在一份声明中指责政变后成立的缅甸国家选举委员会（SAC）是由缅甸军方创建的，目的是支持其“非法推翻民选文官政府”。
 
-视频中，习近平问群众：“你们怎么知道我来了？”
+美国的制裁名单包括缅甸国家选举委员会的四名成员，以及财政部指出的其他九名缅甸军政府的关键成员，包括缅甸央行行长和军方任命的选举机构联邦选举委员会(Union Election Commission)的主席。
 
-群众说：“看到你了。”接着有人说：“游园的时候。”
+参考链接：
 
-习近平说：“你们是诸葛亮啊？天文地理都知道啊。”
-
-群众：“哈哈哈！”
-
-
-
-**文字版原文：[【墙内热搜】习近平“偶遇”游园群众，以假治国再添例证](https://gnews.org/zh-hans/1252570/)**
-
-作者：纽约香草山媒体部 天下大同
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://www.reuters.com/article/us-myanmar-politics-usa-sanctions/us-imposes-fresh-sanctions-on-myanmar-junta-targets-governing-body-idUSKCN2CY1JZ](https://www.reuters.com/article/us-myanmar-politics-usa-sanctions/us-imposes-fresh-sanctions-on-myanmar-junta-targets-governing-body-idUSKCN2CY1JZ)
 
 0

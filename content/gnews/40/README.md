@@ -1,41 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】亿万富翁前泽佑支付费用将于今年12月前往国际空间站
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252597/)
+## 法拉利车主遭遇侄女级19岁女生求处对象时真挺难的
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1252770/)
 
-Mailsonline报道：
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17233514/%E6%8D%95%E8%8E%B73_%E5%89%AF%E6%9C%AC.png)
+据[**毛骨悚然的奇闻**](https://weibo.com/5598030971?refer_flag=1001030103_) [2021年05月16日 22:20](https://weibo.com/5598030971/KfMid79UQ?refer_flag=1001030103_) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
 
-日本亿万富翁前泽佑作于2023年购买了SpaceX的“星际飞船”绕月轨道飞行，并已支付了今年12月前往国际空间站的另一次飞行费用。
+江苏，一*法拉利车主* 遭 18岁女生哭求处对象 [L毛骨悚然的奇闻的微博视频](http://t.cn/A6VUJ3SW) ​
 
-在Maezawa绕月旅行之前，他在电影制片人中将前往NASA的轨道实验室进行为期12天的计划，并计划在YouTube上分享这种非现实的体验。
+具体细节据[法拉利车主遭00一把鼻涕一把泪的求处对象](https://baijiahao.baidu.com/s?id=1699836531428208552&amp;wfr=spider&amp;for=pc)（[直男x1](https://author.baidu.com/home?from=bjh_article&amp;app_id=1602420432321372)发布时间: 05-1522:57） ：
 
-两人将于12月8日乘坐从哈萨克斯坦的拜科努尔宇宙飞船上发射俄罗斯联盟号航天器，该航天器是通过太空冒险组织的。
+［5月15日，江苏宜兴一男子来法拉利遭一19岁的女生痛苦求处对象。
 
-这次飞行的费用尚未公布，但据报道，以前的太空游客已经为执行国际空间站的任务支付了2000万至4000万美元。
+视频中女生坐副驾驶一把鼻涕一把泪的的哭，男子一边给她递纸巾一边问她：你说我们哪里合适？我比你大那么多？
 
-该任务将由宇航员亚历山大·米苏尔金（Alexander Misurkin）指挥，后者将搭载前泽和他的船员。
+女生：不要跟我讲年龄，你不要给我讲明天再说，明天跟你好好讲。不要跟我讲我们认识时间不长，我现在一把鼻涕一把泪。
 
-前泽将于下个月在俄罗斯星城的尤里·加加林宇航员培训中心开始宇航员培训。
+法拉利车主：我们才认识二十多分钟，不能这么仓促好吧，谈恋爱不能这么仓促！
 
-总共有七个自负盈亏的个人访问了空间站，前泽计划成为第8位和日本的第一个。
+女生：我不要……
 
-尽管Maezawa的计划是为SpaceX登月任务提供女性陪伴，但自2019年宣布这一机会以来，他已经收到了300,000多份申请。
+法拉利车主：你2003年的，我都可以做你叔叔了！
 
-前泽在推特上确认，印度的签约人数最多，为期六天，其次是美国，日本，然后是法国。
+女生：你今天死都不跟我处对象是不是？
 
-然后，在选择八个人之前，本月将进行最后的采访和体检。
+法拉利车主：我大叔了，叔叔了！
 
-参考链接：
+女生撒娇式的回答：我就喜欢大叔，你跟我处对象吧！
 
-[https://www.dailymail.co.uk/sciencetech/article-9588021/Japanese-billionaire-purchases-trip-International-Space-Station-December.html?ito=social-twitter\_mailonline](https://www.dailymail.co.uk/sciencetech/article-9588021/Japanese-billionaire-purchases-trip-International-Space-Station-December.html?ito=social-twitter_mailonline)
+法拉利车主：回家了、回家了，你跟我说你住哪小区的。
 
-图片来源：[https://www.dailymail.co.uk](https://www.dailymail.co.uk/sciencetech/article-9588021/Japanese-billionaire-purchases-trip-International-Space-Station-December.html?ito=social-twitter_mailonline)
+女生爬副驾凳子上哭着说：你不跟我处对象！
 
-整理撰稿：蓝精灵
+最终车主还是安全的把女生送到了家，网友疑问，现在的女生都这么主动的吗？］
 
-校对发布：Penny
+法拉利车主这一次安全地把女生送到了家，这让我们每个人都松了一口气，虽然［人与人相爱，种族不是问题，年龄不是问题，性别不是问题］，男欢女爱本来就是你情我愿，只要不触犯法律无伤大雅，可是如果这一次爱上的不是法拉利车主而是法拉利车，那下一次会不会再爱上兰博基尼呢？一想到这个问题，就不禁又为那位法拉利车主捏了一把汗——法拉利车主太危险了！
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+（文章内容仅代表作者个人观点）
 
-0
++1

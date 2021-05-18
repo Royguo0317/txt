@@ -1,43 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法拉利车主遭遇侄女级19岁女生求处对象时真挺难的
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1252770/)
+## 【有声读物】习近平“偶遇”游园群众，以假治国再添例证
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1252867/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17233514/%E6%8D%95%E8%8E%B73_%E5%89%AF%E6%9C%AC.png)
-据[**毛骨悚然的奇闻**](https://weibo.com/5598030971?refer_flag=1001030103_) [2021年05月16日 22:20](https://weibo.com/5598030971/KfMid79UQ?refer_flag=1001030103_) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+配音：香草山录音组 蒙古鸿雁
 
-江苏，一*法拉利车主* 遭 18岁女生哭求处对象 [L毛骨悚然的奇闻的微博视频](http://t.cn/A6VUJ3SW) ​
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-具体细节据[法拉利车主遭00一把鼻涕一把泪的求处对象](https://baijiahao.baidu.com/s?id=1699836531428208552&amp;wfr=spider&amp;for=pc)（[直男x1](https://author.baidu.com/home?from=bjh_article&amp;app_id=1602420432321372)发布时间: 05-1522:57） ：
 
-［5月15日，江苏宜兴一男子来法拉利遭一19岁的女生痛苦求处对象。
 
-视频中女生坐副驾驶一把鼻涕一把泪的的哭，男子一边给她递纸巾一边问她：你说我们哪里合适？我比你大那么多？
 
-女生：不要跟我讲年龄，你不要给我讲明天再说，明天跟你好好讲。不要跟我讲我们认识时间不长，我现在一把鼻涕一把泪。
 
-法拉利车主：我们才认识二十多分钟，不能这么仓促好吧，谈恋爱不能这么仓促！
 
-女生：我不要……
 
-法拉利车主：你2003年的，我都可以做你叔叔了！
+近日，网上流传着一段习近平周三（12日）视察河南南阳，在南阳月季博览园中“偶遇”一批“群众”，被热烈欢迎的视频。
 
-女生：你今天死都不跟我处对象是不是？
+视频中，习近平问群众：“你们怎么知道我来了？”
 
-法拉利车主：我大叔了，叔叔了！
+群众说：“看到你了。”接着有人说：“游园的时候。”
 
-女生撒娇式的回答：我就喜欢大叔，你跟我处对象吧！
+习近平说：“你们是诸葛亮啊？天文地理都知道啊。”
 
-法拉利车主：回家了、回家了，你跟我说你住哪小区的。
+群众：“哈哈哈！”
 
-女生爬副驾凳子上哭着说：你不跟我处对象！
 
-最终车主还是安全的把女生送到了家，网友疑问，现在的女生都这么主动的吗？］
 
-法拉利车主这一次安全地把女生送到了家，这让我们每个人都松了一口气，虽然［人与人相爱，种族不是问题，年龄不是问题，性别不是问题］，男欢女爱本来就是你情我愿，只要不触犯法律无伤大雅，可是如果这一次爱上的不是法拉利车主而是法拉利车，那下一次会不会再爱上兰博基尼呢？一想到这个问题，就不禁又为那位法拉利车主捏了一把汗——法拉利车主太危险了！
+**文字版原文：[【墙内热搜】习近平“偶遇”游园群众，以假治国再添例证](https://gnews.org/zh-hans/1252570/)**
 
-（文章内容仅代表作者个人观点）
+作者：纽约香草山媒体部 天下大同
 
-+1
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
