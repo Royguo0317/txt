@@ -1,153 +1,153 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】玩瓷-西洋瓷器小酌(二)
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1251927/)
+## 诗三首
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1252340/)
 
-作者：纽约香草山农场设计部 天马星空J
+#### 作者：东北上空的鹰、天道酬勤2020、般若
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
+#### 编辑：翼族
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17203330/%E7%81%AD%E5%85%B11.jpg)
+图片来源：雅典娜农场设计组（姐夫说说）
 
+**1．《娘》**
 
+—— 献给文贵先生
 
+作者：东北上空的鹰
 
+娘，走了，
 
-书接上文，下面继续介绍一下我收藏的部分西洋骨瓷，让大家共同来鉴赏。
+我是一个无娘的孩子了。
 
-**英国 亚当（Adam）**
+娘，走了两年，
 
-Adams是创立于1657年的陶艺世家，早期经营者William Adams是Wedgwood创始人Josiah Wedgwood最喜欢的学生，两个品牌都诞生于英国著名的陶瓷重镇Stoke-on-Trent地区。这个品牌制作东方风格陶瓷器皿的历史相当悠久，也制作类似
+我是一个有担当的大孩子了。
 
-Wedgwood风格的Jasperware。家族经营十几代之后，1966年被wedgwood收购，1992年之后停产，工厂也被烧毁，整套早期产品非常难得。
+娘，走了7百多天了，
 
+我已经是战神了，
 
+披荆斩棘勇往直前。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17183455/%E6%88%AA%E5%B1%8F2021-05-17-%E4%B8%8B%E5%8D%886.34.27.png)
+夜晚，我仰望星空，
 
+有太多的话想诉说。
 
+娘，你知道吗？
 
+我已吹响集结号角，
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17183645/%E6%88%AA%E5%B1%8F2021-05-17-%E4%B8%8B%E5%8D%886.34.36.png)
+讨伐那些欺民贼，
 
+讨伐那些老贼，
 
+讨伐那些老杂毛。
 
+他们的日子不多了，
 
-Adam “Lancaster ”铁矿石瓷器
+胜利一定是我们
 
-**英国 R&D（Redfern and Drakeford）**
+新中国联邦人！
 
-英式过百年瓷器，成立于1892年，首先兴建Chatfield工场，后于1902搬到Balmoral厂房。Redfern and Drakeford 的作品已越来越少，因为产量有限。1933年，企业结业了，现在流传下来的以Balmoral厂房在1902年后出产的为主。
+胜利，是蓝色七芒星旗帜，
 
-R&D虽不及其他牌子如Wedgwood有名，但也曾在1922,1929年英国工业展代表英本土工业出展。
+胜利，是中国人永世不为奴。
 
 
 
+**《他，带我们进入新时代》**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17182606/Brand-Palette-Style-Social-Media-Post.jpg)
+作者：天道酬勤2020
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17203517/%E6%96%B0%E6%97%B6%E4%BB%A3.png)
+YoYo
 
+风风雨雨一年载
 
+漫漫一路走过来
 
+时间过得这么快
 
-**英国 ****米金****（J&G Meakin****）**
+心情依然很豪迈
 
-英国近二百年的陶瓷企业J&G米金公司（J & G Meakin Ltd）成立于1851 年，原厂主因病去世，他的两个儿子詹姆斯（J）和乔治（G）接管了这家公司，就叫J&G公司了。两兄弟很快实现了出口市场的潜力和业务的快速增长。
+Yo Yo
 
+纽约处在宵禁状态
 
+曼哈顿的经济已经停摆
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17184154/%E6%88%AA%E5%B1%8F2021-05-17-%E4%B8%8B%E5%8D%886.35.38.png)
+人们的心情都笼罩着阴霾
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17183747/5-36.jpg)
+两艘游艇在哈德逊河上徘徊
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17184131/%E6%88%AA%E5%B1%8F2021-05-17-%E4%B8%8B%E5%8D%886.35.47.png)
+一架黑鹰直升机在上面航拍
 
+他，站在船外
 
+他，咬破了食指
 
-浪漫的英格兰  J＆G Meakin |
+刹那之间，
 
+夜空中划破一道闪电
 
+照亮了自由女神的天
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17184443/%E6%88%AA%E5%B1%8F2021-05-17-%E4%B8%8B%E5%8D%886.43.49.png)
+这是不是神灵在显现
 
+以前的我都是无神派
 
+这一幕我看得目瞪口呆
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17185153/%E6%88%AA%E5%B1%8F2021-05-17-%E4%B8%8B%E5%8D%886.45.22-1.png)
+真让人心情澎湃
 
+他，签下了鲜血的誓言
 
+他，吼声震破了天
 
-蓝色多瑙河日本蓝洋葱系列
+Take down the CCP
 
-Blue Danube Blue Onion Oval Serving Platter Japan
+Take down the CCP
 
+Take down the CCP
 
+是非成败
 
+对邪灵恶党不必再忍耐
 
+共产党它一定会被淘汰
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17185059/%E6%88%AA%E5%B1%8F2021-05-17-%E4%B8%8B%E5%8D%886.46.00.png)
+没有人会再把我们伤害
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17185136/%E6%88%AA%E5%B1%8F2021-05-17-%E4%B8%8B%E5%8D%886.45.40.png)
+让我们准备迎接新时代
 
 
 
+**《誓言》**
 
+作者：般若
 
-蓝色多瑙河日本蓝洋葱椭圆形拼盘
+庚子
 
-**英国 ****约翰逊兄弟（****Johnson Brothers****）**
+六四
 
-Johnson Brothers是英国的餐具制造商和出口商，因其早期推出“半瓷”餐具而闻名。从1890年代到1960年代，它是斯塔福德郡最成功的陶器之一，生产的餐具大部分出口到美国。
+七哥咬破手指
 
+闪电划破长空
 
+这个男人
 
+与天地立约
 
+万神万佛
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17185040/%E6%88%AA%E5%B1%8F2021-05-17-%E4%B8%8B%E5%8D%886.46.09.png)
+天地为之动容
 
+那一刻
 
+你我已是神佛
 
+……
 
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17185000/%E6%88%AA%E5%B1%8F2021-05-17-%E4%B8%8B%E5%8D%886.46.28.png)
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-Johnson Brothers Provincial Set
-
-约翰逊兄弟“乡下人”系列
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17184946/%E6%88%AA%E5%B1%8F2021-05-17-%E4%B8%8B%E5%8D%886.46.37.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17184926/%E6%88%AA%E5%B1%8F2021-05-17-%E4%B8%8B%E5%8D%886.46.45.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17184908/%E6%88%AA%E5%B1%8F2021-05-17-%E4%B8%8B%E5%8D%886.46.55.png)
-约翰逊兄弟“印第安树”系列
-
-我最初爱上古董骨瓷茶杯碟时，完全是被这些杯碟的独特外形及魅力所迷惑，精神亢奋，达到了痴迷，经常开车去老外家收集，有时开车8、9个小时也不嫌累，那份执着现在都不敢想。每套收集的瓷器，都会有一个有趣的故事。古董瓷器那种无以言表的味道，是现代品所望尘莫及的，即使现代瓷器品牌新推出、动辄上千元的杯碟也难以媲美。以上都是我收集和拍摄的西洋古瓷杯碟，每个牌子都有其特别的外形和代表的图案。严格来说，超过100年以上的我们才称为Antique,以下的均称为vintage,虽然这两个字很多时候翻成中文都是“古董”。
-
-值此新中国联邦周年庆典之际，与各位战友一起分享我的一点小收藏，共勉！
-
-编辑/发稿：369文驹
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+（文章内容仅代表作者观点）
 
 0

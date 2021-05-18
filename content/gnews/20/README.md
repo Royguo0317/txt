@@ -1,22 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】在24小时内有5000多名摩洛哥人进入后，西班牙动员军队
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252264/)
+## 【快讯】出现一个新的媒体巨头
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252321/)
 
-西班牙政府代表说在星期一午夜时分24小时内有超过5000名摩洛哥人进入休达市。其中大约1 500人将是未成年人，因此不能迅速驱逐他们，因为西班牙当局希望能够像4月份上周末危机之后那样与摩洛哥打交道，当时只有一百多名来自邻国的年轻受试者通过同一路线进入西班牙领土。
+AT＆T表示将把Warner Media与Discovery联合起来，组成一个全新的公司。 CNN，HBO，TNT等品牌将与TLC，HGTV，Animal Planet等共同组成一个强大的流媒体。
 
-截止到本周一，进入的人数已经无限高，警方消息人士估计，人数可能接近9000人。
+简评：
 
-西班牙政府决定动员军队，特别是拉军团和正规军的部队，加强安全部队对该市的控制。
+疫情大流行之后，人们似乎都开始明白掌握媒体话语权的重要性，流量就是未来，信息就是生存的基础。
 
-士兵们将在当地警察、国民警卫队和国民警卫队手中负责”分组散居的移民”，并提供政府代表团要求的所有”后勤支助”。
+参考链接：
 
-国家海关总署和自治市在下午晚些时候召开了一次远程信息处理会议，协调东道主装置，该装置旨在集中处理去年3月中旬通过该通道以来大部分空无一人的商船。
 
-周一下午，一名摩洛哥成年男子在试图避开数百名同胞的塔拉哈尔防波堤时死亡。
 
-参考链接：[https://twitter.com/disclosetv/status/1394260965613572099?s=20](https://twitter.com/disclosetv/status/1394260965613572099?s=20)
+> A new media giant has emerged – this time it's AT&T saying it will conjoin Warner Media with Discovery to form a whole new company. Brands such as CNN, HBO, TNT and others will join forces with TLC, HGTV, Animal Planet and more to form a streaming powerhouse. [pic.twitter.com/uOaGHOunuH](https://t.co/uOaGHOunuH)
+> — The News with Shepard Smith (@thenewsoncnbc) [May 17, 2021](https://twitter.com/thenewsoncnbc/status/1394436276267454466?ref_src=twsrc%5Etfw)
+
+
+
+图片来源：[https://twitter.com/](https://twitter.com/)
 
 整理撰稿：蓝精灵
 

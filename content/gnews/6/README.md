@@ -1,31 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】对中国技术法案展开辩论 美国参议院投票表决
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1252507/)
+## 【有声读物】“网约护士”需求旺，上门医疗服务自费“难享”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1252568/)
 
-路透社大卫·谢泼德森报道：
+配音：香草山录音组 蒙古鸿雁
 
-美国参议院以86票对11票结果。在周一开始辩论《无边界法》。该法案授权在五年内提供超过1100亿美元的资金，用于基础和高级研究，研究的商业化以及人工智能（AI）等关键技术领域的教育和培训计划。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-参议院民主党领袖查克·舒默（Chuck Schumer）说，参议院将从周二开始辩论该法案一到两个星期。
 
-提案摘要草案显示，正在考虑的法案包括20亿美元，促进汽车和国防领域的半导体生产和研究，但一些参议员也在努力采取措施，将520亿美元用于芯片。计划中可能会包括其他与中国有关的账单。
 
-简评：
 
-该法案正在努力将制造业，基础行业， 高技术外包行业全部回流到本土。这个法案将对未来不被纳入美国或者其盟国商业系统的国家重创。中共国作为欧美国家主要的生产外包，技术外包的产业供应链，这个法案对其影响巨大。一意孤行地内卷，拒绝接受公平透明地商业系统，勾结西方社会邪恶精英，一定被在不久地将来陷入崩塌。
 
-参考链接：
 
-[https://www.reuters.com/technology/us-senate-votes-open-debate-china-tech-bill-2021-05-17/?taid=60a2fedc905c070001e8a9ea&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/technology/us-senate-votes-open-debate-china-tech-bill-2021-05-17/?taid=60a2fedc905c070001e8a9ea&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-圖片來源：[https://www.reuters.com/](https://www.reuters.com/)
+澎湃网5月15日转载工人日报消息，自2019年12月海南试点“互联网+护理服务”推出网约护士服务。虽然市场前景“广阔”，但该上门医疗服务模式进展缓慢。
 
-整理撰稿：蓝精灵
+自2019年3月，海南省出台“ 互联网+医疗健康”实施方案，在政策激励和老年护理需求旺盛的基础上，海医一附院于当年12月推出网约护士服务。截至2021年3月26日，该医院网约平台注册的网约护士50人（而报名者有100余人），共接单414个。
 
-校对发布：Penny
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+
+**文字版原文：[【鹰眼墙国】“网约护士”需求旺，上门医疗服务自费“难享”](https://gnews.org/zh-hans/1248558/)**
+
+作者：纽约香草山写作组 鹰(文言)
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

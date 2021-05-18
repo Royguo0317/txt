@@ -1,43 +1,103 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 阿里巴巴在比利时涉嫌从事间谍活动
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1251888/)
+## 【香草诗词汇】锅言灶语（八） -有话说之＂画＂外音-
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1252079/)
 
-#### 翻译 : Charline#9304 |责编：人间四月
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17173313/Capture-21.jpg)照片来自俄媒
-据比利时当地媒体报道，比利时国家安全部门正在密切关注阿里巴巴为中共国情报人员安排职位在公司的情况。
-
-记者通过在列日市的阿里巴巴分公司的调查发现，中共国情报人员是完全可能进入机场的敏感部门和安全区域。
-
-在众议院司法委员会的副代表塞缪尔·科古拉蒂（Samuel Cogolati）的要求下，司法部长文森特·范·奎肯伯尼（Vincent Van Quickenborne）坦率地承认，国家安全局也确认列日机场对中共国来说具有战略上的重要性。司法部长还说，“像阿里巴巴这样的公司在其内部向中共国情报人员开放职位，以便让中共国情报人员随时可以进入机场的各敏感部门和安全区域“。
-
-不仅如此在中共国，2017年国家情报法就要求所有公司必须与中共情报机构合作。所以阿里巴巴也不例外，该公司有此义务为情报人员在比利时提供方便
-
-司法部长对科古拉蒂的回应中写道：“这意味着，中共国情报人员可以在列日市的阿里巴巴分支机构随便进入机场的敏感部门和安全区域。”
-
-根据英国《金融时报》最近的一项调查以及阿里巴巴在中共国的种种做法，国会议员随后着手去寻找阿里巴巴分支机构是否存在将比利时收集到的个人数据转移到中共国的风险。
-
-司法部长还说，目前国家安全局没有足够的信息来肯定地回答这个问题，但是“很有可能发生这种用数据密码作为传输的方法”。
-
-因为根据2016年中共国的新法律，有要求中共国公司将其数据存储在大陆当地服务器上的条款，并要赋予中共可以审查计算机服务器的安全服务的所有权力。
-
-司法部长补充说：“如果阿里巴巴希望其在列日市公司的活动框架内查看阿里巴巴持有的秘密敏感商业和个人数据，那么即使没有身在中共国也必须服从中共国安全机构的允许”。
-
-现在的问题是，比利时当局在向中共开放列日机场的大门时，是否过于幼稚 ? 而列日机场如今已被视为欧洲第九个物流机场。科古拉蒂解释说，有一种解决方案是重新严格审查在比利时的各外国投资机构。可喜的是，一项提议对“在欧盟的外国直接投资公司进行审查“的欧洲法规已于2020年10月生效。
-
-但是目前比利时还没有这样的机构去审查或筛选，“阿里巴巴的投资似乎没有被比利时审查过”，副总理埃科洛解释说，“我们必须对在比利时的外国投资公司进行民主和公共控制。“
-
-对于众议院委员会的回应，司法部长澄清说，经济部长正在为比利时研究这种机制。“我们不能接受列日市成为中共经济扩张战略的牺牲品”，并向国防和外交部长以及负责数字化和保护隐私法的国务卿提出了其他问题。
-
-对于科戈拉蒂而言，他认为“阿里巴巴模式的外国公司代表着对比利时人的权利和个人数据的威胁”。他总结说：“我们不会在电子商务的祭坛上去牺牲我们基本的民主自由。”
+作者：纽约香草山健身部澄道
 
 
 
-新闻链接：[Alibaba a-t-il fait entrer des agents du renseignement chinois à l’aéroport de Liège?](https://www.lecho.be/economie-politique/belgique/general/alibaba-a-il-fait-entrer-des-agents-du-renseignement-chinois-a-l-aeroprt)
+![This image has an empty alt attribute; its file name is logo-3-1.jpeg](https://lh5.googleusercontent.com/U9c9w5ADOG4YiBse2n5RwvE7zUFnaAS1TvUmz8yKnaJder5z766VHCTuFaUxsVltSJHK6-NDxqM7mVsrKJpaxs1ITBnGa6uyI4jTaYwrjibNSl1FDvwKVtXfFi4d_g2Emd2Ut2dv)
 
 
 
+小馆公告
 
+情势所逼
+
+无有堂食多寂寞
+
+唯有更名再续张
+
+＂泰何为＂-中文
+
+＂take away ＂-英文
+
+免强维持的后厨
+
+锅子
+
+灶子
+
+还都在
+
+只是言出必高谈
+
+语开更扩论
+
+生无生
+
+死无死
+
+生无带来一口气
+
+枉与暇满殊胜生
+
+死无带走一丝麈
+
+圣趣门中不老身
+
+＂是小馆（有话说）论坛吗？＂
+
+＂是在做＂画＂吗！
+
+＂整点大众口味的行不行吗？ ＂
+
+＂一个个地！ ＂
+
+快言快语的
+
+快进快出的
+
+镇店名服
+
+＂萃花＂来了
+
+＂还有就是坛我也是喜欢的呀！
+
+比如我们老家的咸菜＂坛… ＂
+
+萃花进后厨（论坛）
+
+真的是来＂踢馆子＂的吗！ ？
+
+＂萃花上酸菜….＂
+
+一个绕梁的声音
+
+从后厨传来
+
+听声音判断
+
+是厨二
+
+@澄道来了
+
+@爱动爱议码0517
+
+校对/发稿：火内
+![This image has an empty alt attribute; its file name is 5%E6%9C%88.jpg](https://lh5.googleusercontent.com/ljD5wFPMGbuU6Ym0syBFu4SwYaDVzq_IYCPYrAivB9gMIGPS81-SplcHDaQUUKK2aHQYNRzCT0iejd4kMnDtns29bpFNL-fb7SmHUGiLOEqWYsf56TgEBsqMhVHmeDEx5mQQ4ne4)
+更多资讯，更多关注
+
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[纽约香草山农场GTV-MOS TALK](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)香草山访谈
+
+[纽约香草山农场Twitter](https://twitter.com/HIMALAYA_MOS)(中文)
+
+[纽约香草山农场Twitter(英文)](https://twitter.com/MosHimalaya)
+
+[纽约香草山农场YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
