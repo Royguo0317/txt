@@ -1,256 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【诗歌三首】《喜马拉雅》，《让我紧跟你身后》，《走下去》
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1253102/)
+## 武毒所早在2020年中从官网删除了所有中共军方研究员信息
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1253130/)
 
-作者：喜马拉雅东京樱花团 / 跟随你
+#### 文章撰写:【默凡】
 
-根据李娜的《青藏高原》改词、李娜是我喜欢的大陆歌手之一、如今她已削发为尼、但那种刚毅的性格很让人敬佩、她那动人的歌声至今难忘怀……
+《国家脉动》新闻网5月17日报道：当外界质疑中共军方参与武毒所病毒研究项目后，武汉病毒研究所从2020年年中从其官网上删除了三名中共军方研究员信息，这三名中共军方研究员分别来自中共302医院、军事医学科学院和海军军医大。
 
-![](https://lh5.googleusercontent.com/eiHg4zXO022lPff-lmjSJxhFM-aOjeRovZ3f8PlAhb3aqvQh6bLRp_t_kTNaI-N7Ztd9SfasQ1OhgtCjMVjwUc2FV-1-CnP3aHopdCJB6DytO7SyTuhIuaSTyavZZdR4qlcwvWBu)
+武汉病毒学研究所学术委员会副主任王红阳隶属于中共国第二军医大学，也被称为解放军海军医科大学。在他的领导下，来自中共解放军302医院的王福生也在该委员会工作。
 
-**《喜马拉雅》**
+![https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.43.02-AM-800x616.png]()![https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.43.02-AM-800x616.png](https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.43.02-AM-800x616.png)
 
-是谁夺走
+来自中共军事医学科学院军事兽医学研究所的涂长春曾在武汉病毒研究所传染病中心科学咨询委员会任职，AMMS被描述为“中国人民解放军最高医学研究所”。
 
-晴朗的蓝天
+![https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.46.47-AM-800x537.png]()![https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.46.47-AM-800x537.png](https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.46.47-AM-800x537.png)
 
-是谁在毁灭
+2020年5月28日，该网站发生重大变化，上述委员会的研究人员信息已经被删除。
 
-美丽的家园
+![https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.48.05-AM-800x424.png]()![https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.48.05-AM-800x424.png](https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2021-05-17-at-11.48.05-AM-800x424.png)
 
-七十年信仰
+至今，武汉病毒研究所官网仍删除了这些中共军方研究员信息。
 
-全部被摧残
+参考文章：
 
-把人间变成地狱
 
-带入万丈深渊
 
-噢、我看见雾霾的天
+> [Wuhan Institute Of Virology Erased Names Of Military-Linked Researchers From Website.](https://thenationalpulse.com/breaking/wuhan-lab-erased-military-researchers-from-site/)
 
-毒食品泛滥
 
-一个个鲜活生命
 
-遭到残害
+本文仅代表作者本人观点，不代表Gnews平台
 
-那就是
+* * *
 
-共产党魔鬼在现
+***排版发布：日本东京方舟农场 文柯Miles***
 
-是谁呼唤
-
-良知的出现
-
-是谁把人们
-
-拉回人间
-
-三十年立下
-
-灭共心愿
-
-忍辱负重遭暗算
-
-卧薪尝胆
-
-噢，我看见文贵的脸
-
-文贵的笑脸
-
-矫健的身影
-
-不屈的气概
-
-那就是
-
-灭共的是这在现
-
-是谁冒着
-
-生命的危险
-
-是谁带领着
-
-冲破黑暗
-
-向世界揭露
-
-真相大白
-
-坚持到今天那是
-
-上天的安排
-
-噢，我看见香港在
-
-抗争中沦陷
-
-渐渐地爆料革命
-
-屹立在山巅
-
-那就是
-
-雪白的喜马拉雅
-
-追随着
-
-我们心中的
-
-喜马拉雅
-
-写于2020年、今天还是那种感觉、只有我们永不放弃、坚持到底、魔鬼才会被灭、人间才会温暖、
-
-没有硝烟的战斗已经打响、胜利一定属于我们正义的力量！
-
-————————————————————————————————-
-
-下面这首歌是看完《路德舍》视频后的感受。当时大家为大选提心吊胆、忐忑不安，战前打气迎来胜利、记录了当时的心情。根据台湾歌手庾澄庆的《让我一次爱个够》改词希望大家喜欢传唱。
-
-![](https://lh6.googleusercontent.com/PrxkN5nyG9bRnm6VfI9P1l28YR47HJwlArPwgE6eVx9w5C8vtGEPMjal3z3Io1uZre0APyoyEAvEtt6EVm4F2nkiC7dS2ivCZ_n8p-5RhbjuUcRDBCT8SOB4xMV-CwEeuxontFUB)
-
-**《让我紧跟你身后》**
-
-上天指引
-
-我遇到
-
-爆料革命以后
-
-灭共之路
-
-踏上后
-
-不做别的追求
-
-我的时间已不在够用
-
-每天在和共魔战斗
-
-真相一点一点被揭露
-
-到决战滴时候！
-
-让我紧跟你身后
-
-为和平自由！
-
-让我紧跟你身后
-
-为正义守候！
-
-黑暗越来
-
-越浓厚
-
-准备就绪等候
-
-我已听到
-
-天空中
-
-雷声滚滚震动
-
-黎明前的黑暗已来到
-
-勇敢清醒地去战斗
-
-最后决战到来的时候
-
-上天会为我助
-
-让我紧跟你身后
-
-心中不惧恐
-
-让我紧跟你身后
-
-正义会战胜
-
-让我紧跟你身后
-
-曙光在前头
-
-让我紧跟你身后
-
-真相要传播
-
-让我紧跟你身后
-
-为和平自由
-
-让我紧跟你身后
-
-为正义守候
-
-让我紧跟你身后
-
-战斗到最后
-
-让我紧跟你身后
-
-相聚胜利后
-
-历史记录每一个时刻、时过万千、我们走过的路都会铭记在心。让这些文字给我们的后代去讲述我们的曾经，我们的一生……
-
-—————————————————————————————————–
-
-随着大选的落幕、好多战友着实伤心了一把、为了让大家不要灰心、端正心态、改了这首陕北民歌。（咱们的领袖毛泽东）
-
-相信很多那个时代的战友都听过、共魔为了维持他们的政权、篡改了很多民歌、我们为了灭魔也要把它改过来，送魔头下地狱。
-
-![](https://lh5.googleusercontent.com/dc-h38cqG0WdJrWOpxsDdRAccxb7VAIwZQpw-uipVDgiC_aPkb9hwEINPiZfcM0cqwX4iQXen9GCKLvllnV9jQHWJ4eYyAeAwVc5Wua70rfxeEoNE84R4AC3K6E4onVVbHRfbcQ8)
-
-**《走下去》**
-
-高楼万丈平地起
-
-盘龙屹立是天意
-
-自从灭共的心念起
-
-坚定不移走下去
-
-纵然有千难和万险也走下去
-
-纵然有千难和万险也走下去
-
-灭共道路有崎岖
-
-任凭狂风和暴雨
-
-背负灭共的使命
-
-手携手来走下去
-
-战友们一起手携手来走下去
-
-战友们一起手携手来走下去
-
-心连心来背靠背
-
-都为灭共聚一起
-
-信仰之星有神力
-
-越挫越勇走下去
-
-灭共的事业走下去、走下去
-
-灭共的事业走下去、走下去
-
-灭共的事业走下去、走下去
-
-不知道是不是又想起了大选后的沮丧。其实灭共是我们的使命、祸是从我们的国家开始的、也要我们来而灭掉它。我们不能指望别人来帮我们抓“硕鼠”，它已经在我们家里泛滥成灾，我们必须消灭这些“硕鼠”。不能让这种灾难在延续、不能祸害了全世界！相信我们有能力、相信我们一定能胜利
-
-*免责申明：本文只代表作者观点，与GNews网站无关。*
-*校对：喜马拉雅东京樱花团 / 文小白*
-*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13031339/%E4%BA%8C%E7%BB%B4%E7%A0%81-1.jpg)
-
-
-+1
+0
