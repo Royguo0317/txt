@@ -1,15 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年5月18日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1254722/)
+## 【粤语配音】中共2015年教科书验证了中共病毒就是超限生物武器
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1254779/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+5/10/2021 闫博士在接受印度共和国电视台参访时表示，2015年由中共解放军生物武器专家徐德忠出版的教科书，是一个非常好的证据来支持闫博士的三份报告，并验证中共病毒实际上就是中共的超限生物武器。
 
-5月18号：尊敬的战友们好．今天的盖特提前来了啊……
-
-[【2021年5月18日】文贵先生盖特原文](https://gtv.org/getter/60a3c62337f7f73984cd01a2)
-
-**喜联盟Gnews编辑部**
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
 0

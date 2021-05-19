@@ -1,51 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】银行“增股”处置不良资产，坏账烂账转嫁社会
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1254829/)
+## 玛丽亚·巴蒂罗莫和德文·纽尼斯谈论与中共病毒有关的彼得·达萨克博士
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1254804/)
 
-香草山写作组 鹰(文言)
+翻译: JS709 | 校对: Elsie | 审核: 黎明的光芒
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18180056/Picture1-104.png)图片来自视频截图
+伟大而美丽的玛丽亚·巴蒂罗莫（Maria Bartiromo）在今天早上（2021年5月16日，译者注）的节目中采访了挑战穆勒（Mueller）骗局的英雄德文·纽尼斯（Devin Nunes）。 他们的话题是彼得·达萨克（Peter Daszak）及其对玛丽亚的攻击。
 
+玛丽亚和纽尼斯讨论了美国资助的中共病毒这类病毒研究用于军事战争的可能性。两人都不敢相信政府会用纳税人的钱来为此提供资金。纽尼斯暗示政府实体可能利用民主党的“非盈利”渠道将政府资金用于此类事情。然后玛丽亚分享到：
 
+玛丽亚：是的，这个非盈利组织是彼得·达萨克（Peter Daszak）领导的[生态健康联盟](https://www.ecohealthalliance.org/)。顺便说一下，当我在这节目上说这病毒很可能来自实验室时，他试图在推特上踩我。他是牵涉其中的一员，对吗？ 他还曾是武汉小组成员，他在WHO调查小组中，是吧？
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
+纽尼斯：是的。 根据我们的估计，这个人显然已经拿走了大约1亿美元。 我们没有这笔钱的所有账目…**是否应该让分配这笔钱的人参与调查武汉病毒的起源。 我认为这是不太合适的。**
 
+我们已经多次报道过达萨克博士。最近一次，我们指出，由于这些活动与中共病毒和参与者有关，达萨克博士是利益相关者，然而，他却是“调查”武汉病毒起源的WHO小组中唯一的美国人。
 
+我们已经报道了很多有关达萨克博士的事。 这是最近发表的一篇文章：
 
-澎湃网5月17日报道，安徽怀宁农商行拟定发行1.5亿股份，发行单价为1元/股，发行对象在认购同时需认购0.6倍金额改行的不良资产。
+我们现在知道以下几点：1）达萨克博士参与了导致中共武汉病毒释放给人类的活动；  2）达萨克博士是WHO对中共病毒起源进行调查的唯一一位美国人（无论如何报道，结论均受质疑），并且3）达萨克博士挑战对他的指控。
 
-截至2020年末，怀宁农商行资本充足率仅为6.39%，低于《中国银行业实施新监管标准的指导意见》（2011年中共银监会制定）中的非系统重要性银行10%的标准。因而，怀宁农商行迫切需要对外“增资”。此前1月份，张家口农商行、安徽舒城农商行、山西阳城农商行、江西芦溪农商行4家银行同日获批增资请求（另湖南东安农商行、广东揭东农商行、广东平远农商行定增申请被受理），总募集金额达11.29亿元。其中，舒城和张家口农商行分别要求按1：0.8、1：0.85的比例在认购新股的同时购买不良资产。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18175305/Screen-Shot-2021-05-18-at-5.52.49-PM.png)
-从以上案例中可见，虽然官方理由均是增资扩股以用于降低不良贷款率并充实资本金，但从银行对不良资产的“硬卖”以及各个农商行进行如此密集的募资等现象，我们可以看出，农商行体系的“摇摇欲坠”。无论是2020年下半年接连曝出的华晨、紫光、永城煤电还债违约，包商银行的破产重组，还是中共对银行破产四种“不予赔付”情况的说明等等，都揭示着中共国难以掩盖国内银行体系中的资金亏空挪用的惨状。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18175320/Screen-Shot-2021-05-18-at-5.52.45-PM.png)
-根据中共银保监会数据，截至2020年3季度末，不良资产余额达2.83万亿，已接近09年金融危机后的最高水平。与当时情况相反的是，现在的中共国外资纷纷逃离。外汇枯竭、各大国营企业债务高筑，再加上国内实体经济倒闭潮加剧，内循环进展缓慢……如今的中共再难利用西方资本对内资本蒙骗和利益捆绑，因而银行爆雷势不可挡。从海航交由海南政府运营，再到上述农商行的纷纷定增“强卖”不良资产可见，收集社会资本用于转嫁亏空或成中共的残喘伎俩。虽然定增规模一般，但60%的不良资产置换率（个别达80%）都可为陷入困境的银行暂缓阶段性资金压力。
+**贼喊捉贼是多么可笑啊。**
 
-无论包商行的赔付标准（最高偿付限额为人民币50万元），还是大型企业的债务重组等，都是中共将不良资产通过层层包装后进行的圈钱把戏。新增债券和定增均是将盗国贼中饱私囊造就的资金黑洞转嫁至普通民众身上，实质依旧是敛夺人民和社会财富。
-
-新闻来源：
-
-安徽怀宁农商行拟定增1.5亿股：每股搭售0.6元不良资产https://www.thepaper.cn/newsDetail\_forward\_12713041
-
-不良资产处置方法汇总解析与经典案例！https://new.qq.com/omn/20210112/20210112A0908Y00.html
-
-4家农商行定增同日获批 “补血+搭售不良”成标配https://finance.sina.com.cn/roll/2021-01-21/doc-ikftpnnx9975440.shtml
-
-万字深度报告：不良资产行业2020年回顾及2021年发展展望https://www.163.com/dy/article/FV21H26I0519B4H1.html
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+原文作者：乔·霍夫特(Joe Hoft）
+发布时间：2021年5月16日，下午1:05
+原文链接：[https://www.thegatewaypundit.com/2021/05/maria-bartiromo-devin-nunes-covid-related-dr-peter-daszak-involved-origins-covid-19-american-investigating-team/](https://www.thegatewaypundit.com/2021/05/maria-bartiromo-devin-nunes-covid-related-dr-peter-daszak-involved-origins-covid-19-american-investigating-team/)
 
 0

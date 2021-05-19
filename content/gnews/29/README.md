@@ -1,30 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大多名政客在以巴冲突期间公开支持哈马斯！
-` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1254504/)
+## 【一线新闻】GTV投资者向SEC呐喊出最强声音——口号声响彻云霄
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1254523/)
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18152802/%E5%8A%A0%E6%8B%BF%E5%A4%A7%E4%BB%A5%E8%89%B2%E5%88%97-edited.jpg)图片来源：TRUENORTH
+前方记者：纽约香草山记者站 Kathy（文艺）
+撰稿：纽约香草山记者站 熊井（文兰）
 
 
-据加拿大知名独立媒体《TRUENORTH》于5月17日就目前加拿大政坛甚嚣尘上的反以色列言论刊登文章并报道指出：正当加拿大各界的政客们在对以色列和巴勒斯坦之间不断升级的战争冲突作出反应时，数位当选的政府官员和国会议员却都急于谴责以色列（的自卫措施），甚至冠以其“种族清洗”的罪名，仅仅因为以色列试图在加沙地带拦截哈马斯向该国境内无辜平民发射的数千枚火箭弹。本媒体现将加拿大多位知名政客最近所发表的关于以巴冲突的言论列举如下：
 
-新民主党领导人贾格梅特·辛格（Jagmeet Singh）要求加拿大立刻停止向以色列出售军火，作为对该国在以巴冲突中所采取（自卫军事行动）的惩罚。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-自由外交部长马克·加尔瑙（Marc Garneau）呼吁以色列和巴勒斯坦“务必遵守国际法规”。并称该地区最近的事态表明，哈马斯恐怖组织利用平民，包括新闻记者，作为其人肉盾牌，发动了对以色列的火箭袭击。
 
-自由党议员伊克拉·哈立德（Iqra Khalid）发布推特指责以色列“公然无视人类生命”并对巴勒斯坦人进行“强迫迁离”。
 
-绿党议员詹妮卡·阿特温（Jenica Atwin）在其推特上宣称，她将与巴勒斯坦站在一起，并痛斥以色列政府实施“种族隔离”政策。
+SEC + CCP Corruption
 
-新民主党议员尼基·阿什顿（Niki Ashton）谴责加拿大支持以色列参与“非法占领”和“大屠杀”巴勒斯坦人。
+SEC, You Must Pay
 
-自由党议员萨尔玛·扎希德（Salma Zahid）周六发推文称以色列应“停止对哈马斯和其他恐怖组织藏身地区的空袭”。
+SEC Meets in Court
 
-绿党的国会议员们则散布了有关以色列在双方冲突地区实施“种族隔离”和“种族清洗”的错误言论。
+SEC Loves CCP
 
-[原文链接](https://tnc.news/2021/05/17/liberal-and-ndp-mps-post-anti-israel-claims-during-middle-east-conflict/)
+SEC with CCP SPY, GTV Investors Die
 
-本文仅代表原媒体信息和其作者个人观点。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18155932/80-1-5.jpg)
+
+2021年5月6日，今天的抗议活动继续。太阳出来了，温暖的阳光照在抗议者的身上，他们依然站在SEC门前，高喊口号，声音响彻云霄……
+
+GTV投资者抗议SEC与中共国勾兑的行动，没有一个媒体或电台报道，他们是在躲避还是在逃避？那我们就自己报导道吧！
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18160024/81-6.jpg)
+
+路上有许多车辆经过，揭露SEC和CCP勾结真相的宣传车亦穿梭于整个曼哈顿。其所经过之处，行人都会停下脚步，观看宣传车展示的图片，了解SEC与中共勾兑的内幕，理解这种勾兑给GTV投资者的经济带来了很多损失…..
+
+CCP灭亡的日子不远了！在我们“Take Down the CCP”的口号声中，CCP将轰然倒塌。再大的庞然大物，从物理的角度、从心里角度、从精神的角度，它都将会怦然倒地！
+
+太阳出来了，我们这个晒太阳群终于见到太阳了，多么温暖啊……
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0
