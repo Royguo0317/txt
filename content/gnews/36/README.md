@@ -1,26 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻简评】七哥又言中…台湾告急！
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1256311/)
+## 【有声读物】中共借疫情搞统战，台湾回应称其“假好心”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1256355/)
 
-作者：喜马拉雅东京樱花团 /待命（文晓）
+配音：香草山录音组 蒙古鸿雁
 
-![](https://lh4.googleusercontent.com/ooKYtcXUUiljvUPVb2s-KsVihUy86n8eta-2Srvk5-ibrsBdLGhwJA1xGwWR2AvYJ6EM_1dClIWLWuMRCq8FjIkJrP9-qs0uOT_HbiPWxov9VSc7q7jv_j4kqD6kWNs_CBR7YWM8)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-5月17日，日本雅虎网站登载了BBC的题为【台湾で感染急増 これまでで最も厳しい制限を実施】的简讯。题目大意为：台湾的中共病毒感染激增，政府实施迄今为止最严格的限制措施。
 
-简讯向读者传递了如下内容：
 
-在台湾，感染中共病毒的人数正在迅速增加。 5月16日，政府采取了迄今为止最严厉的限制措施。
 
-台湾拥有约2,300万人口，迄今为止能够将新病毒大流行的影响控制在几乎可以忽略不计的水平。 仅1,682人被感染，12人死亡。其感染控制措施的成功，是由于很早就采取了严格的隔离·措施。例如，停止外国游客入岛，所有从岛外返回台湾的公民都被置于检疫环境中。然而，到了16日，新感染者人数已经上升到207人，台北市已成为中共病毒的传播中心。据当地媒体报道，该市当局首次将警戒级别提高到 “3 “级，仅次于最高级的 “4 “级。根据新的限制性措施，电影院和休闲设施将被关闭，直到本月28日。 允许临时聚集的人数将被限制在室内5人，室外10人。在户外必须戴口罩，并强烈鼓励在家里工作和学习。为了应对社会活动的限制，超市货架已空， 许多地区的购物消费者被限制购买不超过两种物品。4月15日，蔡英文总统呼吁公民保持克制，称对日常用品的 “恐慌性购买 “只会增加感染群爆发的风险。据当地媒体《台湾新闻》报道，蔡英文表示，方便面、一般杂货和卫生纸的库存充足，很快就能在零售店买到。
 
-文贵先生在直播中说过，中共会以各种见不得人的手段攻击台湾，台湾民众要做好吃苦受罪的准备。果然，又被文贵先生言中了。祈祷文贵先生这个直播早已在台湾同胞中传开，祈祷台湾同胞早已做好了应对准备。
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
-*校对：喜马拉雅东京樱花团 / 鸿雁*
-*责任编辑：喜马拉雅东京樱花团 /文小白*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13031339/%E4%BA%8C%E7%BB%B4%E7%A0%81-1.jpg)
+
+从5月10日起，台湾疫情突然升高，中共向台湾发出愿意出手“帮助”台湾抗疫的信息。台湾陆委会回应其“假好心”。同时强调，只要台湾沉稳应对、团结抗疫，一定能够安然度过这一波疫情威胁。
+
+5月18日晚间中共用国务院台湾事务办公室发言人朱凤莲名义声称：近期台湾疫情严峻，中共国各界心系台湾同胞生命健康安全云云，中共表示愿意尽“最大努力帮助”台湾民众尽快战胜疫情；并宣称当务之急是“去除人为政治障碍”，使民众有疫苗可用。台湾大陆委员会随后回应，“对岸不必假好心”，只要中共国大陆不阻挠，台湾可以更快速的从国际上取得更多可靠的疫苗。
+
+
+
+**文字版原文：[【独立观点】中共借疫情搞统战，台湾回应称其“假好心”](https://gnews.org/zh-hans/1255100/)**
+
+作者：纽约香草山健身部 Jack Li文阳
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 0
