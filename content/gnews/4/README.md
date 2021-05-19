@@ -1,61 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月18日美国参众议员关于苹果公司帮助中共政府进行审查评论合集
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1255244/)
+## 【G时评】这，就是“疫苗护照”真相
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1255253/)
 
-参议员瑞克·斯科特： 那些在美国说一套在中国做另一套的总裁们，虚伪到了极点。 我猜想，苹果公司和提姆·库克从帮助和教唆共产独裁践踏基本自由和人权中，看到了无止尽的利润。（转推纽约时报的报道，苹果帮助中国政府进行审查）
+作者：Giselle  图片：Giselle
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18203906/051901.jpg)
 
+**1，左媒铺天盖地报道比尔.盖茨离婚是因为出轨，你信吗？**
 
-> As it stands, the Endless Frontier Act will not effectively counter Communist China’s aggression.
->  
-> That’s why I’m proposing amendments to secure American innovation, protect national security, hold China accountable and put American interests first. [https://t.co/LAbdsDefF6](https://t.co/LAbdsDefF6)
-> — Rick Scott (@SenRickScott) [May 18, 2021](https://twitter.com/SenRickScott/status/1394728289512591363?ref_src=twsrc%5Etfw)
+**——亨特.拜登那么大的丑闻左媒都没有报道，你觉得这一波操作不可疑吗？**
 
+**病毒、疫苗真相呼之欲出，比尔.盖茨作为深度参与者，大概率脱不了干系。所有这些出轨、性丑闻等等，很可能是为了掩盖更大的罪恶。**
 
+**2，一辆载有危险物质的47节火车，周日在美国爱荷华州脱轨并起火。**
 
-霍利参议员新闻办： 苹果公司两度拒绝霍利参议员主持的听证会，该听证会旨在解决中国和大型科技公司之间危险而增长的关系。 霍利强调这些具体的关切。现在我们知道了苹果在隐藏什么。（转推纽约时报的报道：审查、监控与利益：苹果在中国的苛刻交易）
+**——今年莫非是火车出事年？**
 
+**埃及3月末一个月之内发生三起，4月初台湾火车也出事，5月是美国，接下来还会是谁？**
 
+**3，美国总统拜登宣布，近9成的美国儿童将从7月15日开始每月收到儿童税收抵免福利，预计将有3900万户家庭受益**。
 
-> CEOs saying one thing in the U.S. and doing another in China is the height of hypocrisy.
-> ⁰I guess [@Apple](https://twitter.com/Apple?ref_src=twsrc%5Etfw) and [@tim\_cook](https://twitter.com/tim_cook?ref_src=twsrc%5Etfw) see an endless frontier of profits by aiding and abetting a communist dictatorship’s mission to trample on basic freedoms and human rights. [https://t.co/YZr9C00DTl](https://t.co/YZr9C00DTl)
-> — Rick Scott (@SenRickScott) [May 18, 2021](https://twitter.com/SenRickScott/status/1394690293950291973?ref_src=twsrc%5Etfw)
+**——杀了你家猪，分你一点肉沫，然后你还很感恩戴德。**
 
+**4，南加州又起火了，已有1300多英亩土地被烧毁……**
 
+**——人家就一桶汽油的成本，就能把你国搅得人仰马翻。厉害不厉害？**
 
-参议员卢比奥： 苹果对美国人宣讲，但是却和北京交易，因为他们想要进入中国客户和奴工。 在伪善最糟的时候唤醒它。
+**5，白宫发言人宣布，美国不会推行疫苗护照；澳洲联邦议员凯利也计划提交“禁止疫苗护照”法案……**
 
+**——感谢上帝**！
 
+**疫苗护照是大重构计划的重要一环**：
 
-> [#Apple](https://twitter.com/hashtag/Apple?src=hash&amp;ref_src=twsrc%5Etfw) lectures Americans, but does the bidding of Beijing because they wants access to Chinese customers and slave labor
-> 
-> Woke hypocrisy at its worst [pic.twitter.com/wHrLs793vb](https://t.co/wHrLs793vb)
-> — Marco Rubio (@marcorubio) [May 18, 2021](https://twitter.com/marcorubio/status/1394726148278562818?ref_src=twsrc%5Etfw)
+**利用病毒制造恐慌，并以防疫为目的封城管制，限制民众人身自由。**
 
+**适时推出疫苗，以“为你好”“为他人好”等高尚理由，蛊惑公众接种疫苗。**
 
+**适时推出疫苗护照，制定一个人人遵守的护照规则：没有疫苗护照者，将无法工作、学习、生活，从而迫使所有的人都接受这个游戏规则。**
 
-参议员瑞克·斯托克： 事实上，无止尽法案不能有效地反对共产中国的侵略。 这是为何我提交了修正案确保美国创新，保护国家安全，向中国追责，并以美国利益为先。
+**当所有的人都接受护照规则之后，就再也没有选择权了**。
 
+**以后想让你注射什么疫苗，你就得注射什么疫苗，否则你将失去一切，就算将来你知道是被注射了生物芯片，也没办法反抗，因为你已经没有选择权了。**
 
+**这，就是疫苗护照的真相。**
 
-> As it stands, the Endless Frontier Act will not effectively counter Communist China’s aggression.
->  
-> That’s why I’m proposing amendments to secure American innovation, protect national security, hold China accountable and put American interests first. [https://t.co/LAbdsDefF6](https://t.co/LAbdsDefF6)
-> — Rick Scott (@SenRickScott) [May 18, 2021](https://twitter.com/SenRickScott/status/1394728289512591363?ref_src=twsrc%5Etfw)
+**（文章内容仅代表作者个人观点）**
 
-
-
-众议员迈克·沃尔兹： “觉醒”的美国公司准备抵制（有关乔治亚州选举的问题），在国内搞政治游戏，但对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的现代奴隶制却视而不见。真够虚伪的。 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在进行种族灭绝，我们必须捍卫基本人权，【视频来自foxnews：迈克·沃尔兹批判美国企业无视 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的现代奴隶制，而 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 事实上是在进行种族大清洗】
-
-
-
-> "Woke" American corporations are ready to boycott and get political here at home but turn a blind eye to modern day slavery in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw). Hypocritical.
-> 
-> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) is committing genocide and we must stand up for basic human rights. [#BoycottBeijing2022](https://twitter.com/hashtag/BoycottBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/jjrbSPL2Yw](https://t.co/jjrbSPL2Yw)
-> — Rep. Mike Waltz (@michaelgwaltz) [May 18, 2021](https://twitter.com/michaelgwaltz/status/1394768864622297093?ref_src=twsrc%5Etfw)
-
-
+上传排版：糖果儿
 
 0

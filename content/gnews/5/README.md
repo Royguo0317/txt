@@ -1,30 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美财政部再次推迟打击中共军方背景企业的禁令意味着什么
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1255243/)
+## 5月18日美国参众议员关于苹果公司帮助中共政府进行审查评论合集
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1255244/)
 
-**撰稿：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18203341/40-4.jpg)
-据美国之音报道，美国财政部星期二（5月18日）发布公告，把对某些有中共军方背景的中国企业及其子公司进行投资的禁令生效日期又延后两个星期。
+参议员瑞克·斯科特： 那些在美国说一套在中国做另一套的总裁们，虚伪到了极点。 我猜想，苹果公司和提姆·库克从帮助和教唆共产独裁践踏基本自由和人权中，看到了无止尽的利润。（转推纽约时报的报道，苹果帮助中国政府进行审查）
 
-美国财政部外国资产控制办公室(OFAC)今年1月曾把对某些有中国共产党军方背景的中国企业及其子公司进行投资的禁令的生效日期延后至5月27日，如今又把禁令生效日期延长至6月11日。
 
-该办公室所颁发的通用许可1B“授权涉及某些共产主义中国军事企业证券的交易”，即受到13959号行政命令、在2021年1月经修订的13974号行政命令禁止的所有交易和活动，涉及对被列入清单的名字接近但不完全一样的中共军事企业公开交易的证券，或此类证券的衍生品，或旨在提供此类证券的投资敞口，在2021年6月11日之前都是许可的。但这项许可不适用于被列入制裁清单的中国军队企业及其子公司的证券交易活动，包括中海油有限公司、中国移动、中国电信、中国联通(香港)有限公司这些在2021年1月8日被加入制裁名单的实体。
 
-这是拜登政府延续前任总统川普在去年11月12日颁布的行政令，虽然中共认为，这项禁令是对中国企业的无端打压，是对市场竞争原则和国际经贸规则的严重违背，但丝毫没有阻碍拜登政府坚持实施该行政令的决心。
+> As it stands, the Endless Frontier Act will not effectively counter Communist China’s aggression.
+>  
+> That’s why I’m proposing amendments to secure American innovation, protect national security, hold China accountable and put American interests first. [https://t.co/LAbdsDefF6](https://t.co/LAbdsDefF6)
+> — Rick Scott (@SenRickScott) [May 18, 2021](https://twitter.com/SenRickScott/status/1394728289512591363?ref_src=twsrc%5Etfw)
 
-因为对于威胁美国国家安全的事情来说，美国两党是不会因为政治立场竞争而有丝毫的分歧，在一致对外上，美国两党是高度统一的。这些与中国军方和情报机构有联系的企业到美国证券市场上市筹谋资金，是典型的利用美国的资本和技术提升中共本国的军队现代化，对美国安全构成了非常大的威胁。
 
-但拜登将此禁令延期的决定，不免引发市场的猜测，是否对中共的政策开始松绑。笔者认为，不必太多担忧。从之前拜登政府的对华政策来看，普遍是做的比说的多，而且为了显示拜登政府不是完全延续川普总统的政策，通常在以往的政策上要添加的更全面，以显示对抗中共的决心。
 
-就像文贵先生所说，全世界的灭共联盟圈正在以飞快的加速度集结，之后的每一条灭共政策，没有最重磅，只有更重磅。
+霍利参议员新闻办： 苹果公司两度拒绝霍利参议员主持的听证会，该听证会旨在解决中国和大型科技公司之间危险而增长的关系。 霍利强调这些具体的关切。现在我们知道了苹果在隐藏什么。（转推纽约时报的报道：审查、监控与利益：苹果在中国的苛刻交易）
 
-（本文只代表作者观点，与Gnews平台无关。）
 
-**新闻来源：**
-[美财政部再次推迟对中国军企投资禁令的生效期 (voachinese.com)](https://www.voachinese.com/a/us-treasury-Chinese-military-companies-20210518/5895399.html)
 
-***校对发布**：文顾*
+> CEOs saying one thing in the U.S. and doing another in China is the height of hypocrisy.
+> ⁰I guess [@Apple](https://twitter.com/Apple?ref_src=twsrc%5Etfw) and [@tim\_cook](https://twitter.com/tim_cook?ref_src=twsrc%5Etfw) see an endless frontier of profits by aiding and abetting a communist dictatorship’s mission to trample on basic freedoms and human rights. [https://t.co/YZr9C00DTl](https://t.co/YZr9C00DTl)
+> — Rick Scott (@SenRickScott) [May 18, 2021](https://twitter.com/SenRickScott/status/1394690293950291973?ref_src=twsrc%5Etfw)
+
+
+
+参议员卢比奥： 苹果对美国人宣讲，但是却和北京交易，因为他们想要进入中国客户和奴工。 在伪善最糟的时候唤醒它。
+
+
+
+> [#Apple](https://twitter.com/hashtag/Apple?src=hash&amp;ref_src=twsrc%5Etfw) lectures Americans, but does the bidding of Beijing because they wants access to Chinese customers and slave labor
+> 
+> Woke hypocrisy at its worst [pic.twitter.com/wHrLs793vb](https://t.co/wHrLs793vb)
+> — Marco Rubio (@marcorubio) [May 18, 2021](https://twitter.com/marcorubio/status/1394726148278562818?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯托克： 事实上，无止尽法案不能有效地反对共产中国的侵略。 这是为何我提交了修正案确保美国创新，保护国家安全，向中国追责，并以美国利益为先。
+
+
+
+> As it stands, the Endless Frontier Act will not effectively counter Communist China’s aggression.
+>  
+> That’s why I’m proposing amendments to secure American innovation, protect national security, hold China accountable and put American interests first. [https://t.co/LAbdsDefF6](https://t.co/LAbdsDefF6)
+> — Rick Scott (@SenRickScott) [May 18, 2021](https://twitter.com/SenRickScott/status/1394728289512591363?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·沃尔兹： “觉醒”的美国公司准备抵制（有关乔治亚州选举的问题），在国内搞政治游戏，但对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的现代奴隶制却视而不见。真够虚伪的。 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在进行种族灭绝，我们必须捍卫基本人权，【视频来自foxnews：迈克·沃尔兹批判美国企业无视 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的现代奴隶制，而 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 事实上是在进行种族大清洗】
+
+
+
+> "Woke" American corporations are ready to boycott and get political here at home but turn a blind eye to modern day slavery in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw). Hypocritical.
+> 
+> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) is committing genocide and we must stand up for basic human rights. [#BoycottBeijing2022](https://twitter.com/hashtag/BoycottBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/jjrbSPL2Yw](https://t.co/jjrbSPL2Yw)
+> — Rep. Mike Waltz (@michaelgwaltz) [May 18, 2021](https://twitter.com/michaelgwaltz/status/1394768864622297093?ref_src=twsrc%5Etfw)
+
+
 
 0

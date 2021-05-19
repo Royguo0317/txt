@@ -1,29 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 玛丽亚·巴蒂罗莫和德文·纽尼斯谈论与中共病毒有关的彼得·达萨克博士
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1254804/)
+## 德国警告：“我们将无法像去年一样享受轻松的夏天”
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1254855/)
 
-翻译: JS709 | 校对: Elsie | 审核: 黎明的光芒
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18180056/Picture1-104.png)图片来自视频截图
-伟大而美丽的玛丽亚·巴蒂罗莫（Maria Bartiromo）在今天早上（2021年5月16日，译者注）的节目中采访了挑战穆勒（Mueller）骗局的英雄德文·纽尼斯（Devin Nunes）。 他们的话题是彼得·达萨克（Peter Daszak）及其对玛丽亚的攻击。
+消息来源：今日欧洲- europa.today.it
+发布时间：2021.05.17
+翻译整理：斩草要除根
 
-玛丽亚和纽尼斯讨论了美国资助的中共病毒这类病毒研究用于军事战争的可能性。两人都不敢相信政府会用纳税人的钱来为此提供资金。纽尼斯暗示政府实体可能利用民主党的“非盈利”渠道将政府资金用于此类事情。然后玛丽亚分享到：
+德国是欧盟唯一一个疫苗接种率超过总人口35％的国家，柏林政府发言人史蒂芬•塞伯特（Steffen Seibert）今天在新闻发布会上宣布消息称：“还没结束，在夏季还不会恢复正常生活”。这位德国高管还公开反对“放松”措施，他说，例如去年采取的措施就导致了秋季的新一波感染。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18150242/media.media_.1f40e381-75ba-4320-9b23-76afde1fd8ab.original1024.jpg)
+塞伯特在与新闻界的会晤中说：“我们还没有达到像去年一样享受轻松夏天的先决条件。” 然而，由安格拉•默克尔（Angela Merkel）领导的政府发言人却将德国感染趋势的最新消息定义为“阳性”。实际上，卫生当局在两天前报告说，每10万居民中的感染率下降到了87.3。与前一周相比，这是一大进步，当时的平均感染人数为每10万居民121.5例。但是，在全国范围内发病率降至每10万居民100例的“心理”阈值以下的这一事实，并不能使柏林赢得胜利。政府认为，目标仍然是“显著”减少感染数量。塞伯特总结说，与冠状病毒的斗争“尚未结束”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18150908/liess-sich-mit-dem-impfstoff.jpg)
+简评：每个人都迫切地想从这场疫情中解脱出来，被压抑的自由似乎都在等着在这个夏天被释放，政府一方面采取限制令为手段，另一方面又担心民众的反抗而不得去不开放。而这一送一紧之间正好是病毒攻击的好时机。
 
-玛丽亚：是的，这个非盈利组织是彼得·达萨克（Peter Daszak）领导的[生态健康联盟](https://www.ecohealthalliance.org/)。顺便说一下，当我在这节目上说这病毒很可能来自实验室时，他试图在推特上踩我。他是牵涉其中的一员，对吗？ 他还曾是武汉小组成员，他在WHO调查小组中，是吧？
+（个人观点）
 
-纽尼斯：是的。 根据我们的估计，这个人显然已经拿走了大约1亿美元。 我们没有这笔钱的所有账目…**是否应该让分配这笔钱的人参与调查武汉病毒的起源。 我认为这是不太合适的。**
+[链接](https://europa.today.it/attualita/germania-estate-covid-viaggi.html)
 
-我们已经多次报道过达萨克博士。最近一次，我们指出，由于这些活动与中共病毒和参与者有关，达萨克博士是利益相关者，然而，他却是“调查”武汉病毒起源的WHO小组中唯一的美国人。
-
-我们已经报道了很多有关达萨克博士的事。 这是最近发表的一篇文章：
-
-我们现在知道以下几点：1）达萨克博士参与了导致中共武汉病毒释放给人类的活动；  2）达萨克博士是WHO对中共病毒起源进行调查的唯一一位美国人（无论如何报道，结论均受质疑），并且3）达萨克博士挑战对他的指控。
-
-**贼喊捉贼是多么可笑啊。**
-
-原文作者：乔·霍夫特(Joe Hoft）
-发布时间：2021年5月16日，下午1:05
-原文链接：[https://www.thegatewaypundit.com/2021/05/maria-bartiromo-devin-nunes-covid-related-dr-peter-daszak-involved-origins-covid-19-american-investigating-team/](https://www.thegatewaypundit.com/2021/05/maria-bartiromo-devin-nunes-covid-related-dr-peter-daszak-involved-origins-covid-19-american-investigating-team/)
+校对/发布：老中医
 
 0
