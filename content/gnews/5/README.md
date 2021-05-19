@@ -1,194 +1,154 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新冠肺炎在印度的数字激增：“我们已经看到又一天有超过3,000人死亡。”
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255721/)
+## 朱利安·阿桑奇(Julian Assange)说：“我们生活在一个‘媒体政治’时代，政治上可能的事情由媒体环境决定。”
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255751/)
 
 字幕内容：
 
-Neha Poonia
+Julian Assange
 
-尼哈·普尼亚(Neha Poonia)
+阿桑奇：
 
-We have seen slit deep in the affection in the report in the last
+Noam Chomsky, in ‘The Common Good’
 
-在周日的过去24小时里，我们看到这份报告中的数字被深深地撕裂了
+诺姆·乔姆斯基(Noam Chomsky)，“共同利益”
 
-24 hours on Sunday India record about 390,000 cases on Monday that number dipping
+wrote that “ the smart way to keep
 
-因为监测到的数字刚刚下降到36万例, 却在周一录得
+写道：“让人们保持
 
-just monitoring over 360,000.
+people passive and obedient is to
 
-大约39万例病例
+被动和顺从的聪明方法是
 
-We’ve seen more than 3,000 deaths for another day running.
+strictly limit the spectrum of
 
-我们已经连续一天看到3000多人死亡
+严格限制
 
-But most expertise are cautioning against any kind of optimism.
+acceptable opinion but to allow a very
 
-但大多数专家都告诫不要持任何形式的乐观态度
+可接受意见的范围，但允许在非常
 
-Warning this does not represent the full picture of the outbreak in the country.
+lively debate within a narrow section of
 
-他们警告说，这并不代表该国疫情的全貌
+狭小的范围内进行激烈
 
-For weeks now, it’s really difficult to get self adjusted if you have symptoms of Covid-19
+that spectrum.”
 
-几个星期以来，如果你有新冠肺炎的症状，真的很难自我调整
+的辩论。”
 
-and most expertise are warning that because of that many people who are sick,
+We live in a ‘Mediaocracy’,
 
-大多数专家警告说，由于有这么多人生病，
+我们生活在一个“媒体政体”中
 
-nothing reflected in this numbers
+what is politically possible
 
-这些数字并没有反映出来
+什么在政治上是可能的？
 
-and it’s quietly like India about 5-6 times larger than official numbers represent.
+is defined by the media environment.
 
-很有可能是印度官方公布数据的5-6倍
+是由媒体环境定义的
 
-Reporter:
+I started Wikileaks because I understood
 
-记者问:
+我创办维基解密是因为我明白
 
-What’s been the reaction to the travel ban? That’s been set in place by the Biden’s administration
+this reality, the media frame defines the
 
-对旅行禁令有何反应？拜登政府已经制定好了方案
+这一现实，媒体框架定义
 
-Neha Poonia:
+political possibility.
 
-尼哈·普尼娅(Neha Poonia)：
+政治可能性
 
-But that’s not been really surprising, because the US is not the first country
+So to bring about meaningful change
 
-但这并不令人惊讶，因为美国并不是第一个
+所以要带来有意义的改变
 
-to impost travel restriction to and from India.
+We have to enlarge the media frame.
 
-对往返印度实施旅行限制的国家
+我们必须把媒体画面放大
 
-We’ve seen over the last few weeks, several countries do this, including Canada,
+With Wikileaks we’ve had
 
-在过去的几周里，我们看到有几个国家这样做，包括加拿大、
+有了维基解密，我们就能
 
-Hong Kong, Australia, Israel,
+significant successes in achieving this
 
-香港、澳大利亚、以色列
+在一些领域实现这一目标上取得重大成功
 
-as well as many other countries in Europe, as well including UK
+in some areas, but more needs to be done.
 
-以及包括英国在内的许多其他欧洲国家
+但还需要做更多的工作
 
-and this has been disappointed, because as many Indians travel frequently to US.
+The single greatest contributor to our
 
-这令人失望，因为许多印度人经常往返美国
+我们最伟大的贡献者来
 
-We’re hoping to leave the country, many tours, because of the surging cases,
+expanding horizons is you.
 
-我们希望离开这个国家，很多旅客，因为病例激增，
+开阔我们眼界的是你
 
-because access to the medial care here has been so very difficult.
+You telling your friends what’s up,
 
-因为获得这里的医疗服务已经非常困难
+你告诉你的朋友们发生了什么事
 
-Flights of international carrier area at India are booked out in the end of May
+what you saw, what you believe,
 
-印度区域的国际航空公司的航班到5月底已经被预订一空
+你看到的，你相信的
 
-But many of those people were planning to leave the country now,
+and who’s full of it.
 
-但这些人中的许多人现在计划离开这个国家
+以及那些满嘴胡言乱语的人
 
-are not going to be able to do that,
+Contrasting what appears in the
 
-但他们不能这样做，
+对比显示在
 
-they are also concerns that this is mightily to some sort of a stigma against Indians,
+Australian press to itself and to the world.
 
-他们还担心这很可能是对印度人受到屈辱对待
+澳大利亚媒体对其自己和世界都是如此
 
-because of variant B6 and 71 has been identified here.
+You form part from the largest
 
-因为变异毒株B6和71已经在这里被鉴定出来。
+你们是最大的组成部分
 
-It’s believed to be highly transmissible and highly efficacious.
+bullshit detecting machine the world has
 
-人们认为它具有很强的传染性和高效性
+世界上有一台废话探测机
 
-But Indian government is not yet linking the current surge to this variant.
+ever seen.
 
-但印度政府还没有将目前的激增与这一变异体联系起来
+从未见过的
 
-Reporter:
+That’s why Wikileaks has such support
 
-记者问:
+这就是为什么维基解密从暴露在互联网上的人
 
-Final question for you, Neha. Have we seen any surge of relieve effort being
+from people exposed to the Internet
 
-最后一个问题，尼哈。我们有没有看到美国向印度
+那里得到如此的支持
 
-sent by the US to assist in India?
+that’s why we have such support from this generation
 
-提供大量的救援解困工作?
+也就是我们得到这一代人如此多的支持的原因
 
-Neha Poonia:
+because you’re better informed.
 
-尼哈·普尼娅(Neha Poonia)：
+因为你们消息灵通
 
-We have seen several shipments arriving at India.
+This is the best educated
 
-我们已经看到几批货物抵达印度
+这是受过最好教育的
 
-The latest reach in India at early hours of Monday morning.
+generation in the history of the world.
 
-最新消息,周一凌晨到达印度
+世界历史上最伟大的一代
 
-There’ve been thousand ventilators and as well as essential drugs like Remdesivir,
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-已经有上千个呼吸机和像瑞德西韦这样的重要药物，
-
-which comes from the United States, it has been aid that India desperately needs,
-
-来自美国，都是印度迫切需要的援助，
-
-but there happened concerns about what the India government is doing with these aids.
-
-但人们对印度政府如何处理这些援助感到担忧
-
-It’s understood a lot of shipments has not yet reach to hospitals desperately need it
-
-据了解，很多货物还没有被送到急需它的医院。
-
-Here in Delhi, I can tell you that for 2 weeks running we have seen
-
-在德里，我可以告诉你，我们已经连续两周看到人们
-
-the desperately scrumbled for beds and medical oxygen
-
-拼命地寻找床位和医用氧气
-
-And many are asking why this oxygen concentrators, these oxygen cylinders,
-
-很多人都在问，为什么这些氧气浓缩器、这些氧气瓶
-
-essential drugs are not reach to hospitals
-
-基本药物不能送到医院呢？
-
-who are struggling to cop with these massive numbers
-
-他们正在努力应对如此庞大的数字
-
-many of them who are must turning patient away
-
-他们中的许多人必须把病人拒之门外
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://twitter.com/newsmax/status/1389243350277001220?s=24](https://twitter.com/newsmax/status/1389243350277001220?s=24)
+原视频连接: [https://twitter.com/disclosetv/status/1389179026372243459?s=24](https://twitter.com/disclosetv/status/1389179026372243459?s=24)4
 
 英听校:康州盘古农场-WZ
 翻译: 康州盘古农场-WZ

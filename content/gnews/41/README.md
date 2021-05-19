@@ -1,60 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月18日美国参众议员关于苹果公司帮助中共政府进行审查评论合集
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1255244/)
+## 【圣城传声筒】心灰意冷,唯独是政府促成
+` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1255275/)
 
-参议员瑞克·斯科特： 那些在美国说一套在中国做另一套的总裁们，虚伪到了极点。 我猜想，苹果公司和提姆·库克从帮助和教唆共产独裁践踏基本自由和人权中，看到了无止尽的利润。（转推纽约时报的报道，苹果帮助中国政府进行审查）
-
-
-
-> As it stands, the Endless Frontier Act will not effectively counter Communist China’s aggression.
->  
-> That’s why I’m proposing amendments to secure American innovation, protect national security, hold China accountable and put American interests first. [https://t.co/LAbdsDefF6](https://t.co/LAbdsDefF6)
-> — Rick Scott (@SenRickScott) [May 18, 2021](https://twitter.com/SenRickScott/status/1394728289512591363?ref_src=twsrc%5Etfw)
+荐评：纽约香草山香港部写作组
 
 
 
-霍利参议员新闻办： 苹果公司两度拒绝霍利参议员主持的听证会，该听证会旨在解决中国和大型科技公司之间危险而增长的关系。 霍利强调这些具体的关切。现在我们知道了苹果在隐藏什么。（转推纽约时报的报道：审查、监控与利益：苹果在中国的苛刻交易）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
 
 
 
-> CEOs saying one thing in the U.S. and doing another in China is the height of hypocrisy.
-> ⁰I guess [@Apple](https://twitter.com/Apple?ref_src=twsrc%5Etfw) and [@tim\_cook](https://twitter.com/tim_cook?ref_src=twsrc%5Etfw) see an endless frontier of profits by aiding and abetting a communist dictatorship’s mission to trample on basic freedoms and human rights. [https://t.co/YZr9C00DTl](https://t.co/YZr9C00DTl)
-> — Rick Scott (@SenRickScott) [May 18, 2021](https://twitter.com/SenRickScott/status/1394690293950291973?ref_src=twsrc%5Etfw)
+在2019年6月15日举行的“谴责镇压，撤回恶法”大游行前夕，梁凌杰在金钟太古广场高位挂上标语横幅示威，提出撤回而非暂缓逃犯条例修订草案、释放612警民冲突被捕人士，以及行政长官林郑月娥引咎辞职等诉求，后于当晚从高处堕下身亡，成为反修例运动中首名公开以死明志的义士。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18204201/83.jpeg)
+
+梁凌杰的死因研讯在近日进行。庭上另展示梁凌杰部份遗物相片，包括他的A6黑色笔记簿里，其中一页无间线的白纸上，写下 ——“我对这个香港，已心灰意冷”、“这几个月不断沉思，都找不出答案和将来”、“今日我是个人意愿，唯独是政府促成”。证物中另有一份已填妥的绿色殡葬表格，研讯稍后阶段将传召证人解说各项证物。
+
+当日他堕下离世的消息，牵动梁爸妈和妹妹的情绪，梁妈妈形容当时的她“晴天霹雳、十分伤心”。以他们所知，梁凌杰并没情绪或欠债问题，妹妹事前也没听过他有任何寻死念头，认为死亡原因要在死因庭有判决后才能知道。
+
+梁爸爸与儿子一直维持良好关系，儿子读什么中学、何时转往夜校重读中五，何年在大学退学，他都清楚知道。 父子俩有时虽因工作未能面对面沟通，但仍不时以电话联络，放假时一起饮茶。在爸爸眼里，这个35岁的儿子“十分孝顺，不计较，富正义感”，常叫家人放假就要多点休息，又会主动去“摆位饮茶”，与家人一起扫墓。
+
+梁妈妈说，哥哥与她、爸爸、姐姐和妹妹一直相处融洽，经常与他们沟通，但鲜有提及时事，多谈生活琐事和吃喝玩乐的东西，一家人也不时一起旅行。她记得，儿子在工余时间会做义工探望老人家，也会陪她和婆婆回乡探亲。
+
+梁凌杰妹妹与哥哥年纪相差8年，但兄妹俩一直相处融洽，一家人每年最少旅行一次。妹妹的口供提到，哥哥与他的童军朋友有烧烤、露营、团拜等聚会时，都会邀请她参与；在哥哥离世前，没有听说他生活不愉快或任何寻死念头，也没有情绪或欠债问题。
+
+梁爸妈和妹妹在梁凌杰离世后两个多月离境，至今没再回港。由梁凌杰离世后两天起计的一年间，梁家透过律师五次去信中区警署查询案件详情，警方每次均只回复仍在调查中。目前研讯在进行当中。
+
+本栏笔者认为，一个原本享誉世界的自由、民主、文明之都，可以在短时间恶化成人间炼狱。所有民选议员、多少年轻才俊被迫辞职、入狱甚至死亡，这是需要一股多么邪恶的力量才能造成如此境况？然而，这股邪恶力量仍然在香港肆虐，继续编造着美丽的谎言，正正是自由民主主流价值观的一大讽刺！
+
+参考阅读：
+
+[【梁凌杰死因研讯】家人前年离港前录口供　形容「晴天霹雳、十分伤心」　五次去信警方均获复调查中](https://www.hkcnews.com/article/41227/%E6%A2%81%E5%87%8C%E6%9D%B0%E6%AD%BB%E5%9B%A0%E7%A0%94%E8%A8%8A-%E6%A2%81%E5%87%8C%E6%9D%B0-%E6%AD%BB%E5%9B%A0%E5%BA%AD-41227/%E5%A4%AA%E5%8F%A4%E5%BB%A3%E5%A0%B4)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205738/M5-1.jpg)
+
+校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 
 
-参议员卢比奥： 苹果对美国人宣讲，但是却和北京交易，因为他们想要进入中国客户和奴工。 在伪善最糟的时候唤醒它。
-
-
-
-> [#Apple](https://twitter.com/hashtag/Apple?src=hash&amp;ref_src=twsrc%5Etfw) lectures Americans, but does the bidding of Beijing because they wants access to Chinese customers and slave labor
-> 
-> Woke hypocrisy at its worst [pic.twitter.com/wHrLs793vb](https://t.co/wHrLs793vb)
-> — Marco Rubio (@marcorubio) [May 18, 2021](https://twitter.com/marcorubio/status/1394726148278562818?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯托克： 事实上，无止尽法案不能有效地反对共产中国的侵略。 这是为何我提交了修正案确保美国创新，保护国家安全，向中国追责，并以美国利益为先。
-
-
-
-> As it stands, the Endless Frontier Act will not effectively counter Communist China’s aggression.
->  
-> That’s why I’m proposing amendments to secure American innovation, protect national security, hold China accountable and put American interests first. [https://t.co/LAbdsDefF6](https://t.co/LAbdsDefF6)
-> — Rick Scott (@SenRickScott) [May 18, 2021](https://twitter.com/SenRickScott/status/1394728289512591363?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·沃尔兹： “觉醒”的美国公司准备抵制（有关乔治亚州选举的问题），在国内搞政治游戏，但对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的现代奴隶制却视而不见。真够虚伪的。 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在进行种族灭绝，我们必须捍卫基本人权，【视频来自foxnews：迈克·沃尔兹批判美国企业无视 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的现代奴隶制，而 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 事实上是在进行种族大清洗】
-
-
-
-> "Woke" American corporations are ready to boycott and get political here at home but turn a blind eye to modern day slavery in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw). Hypocritical.
-> 
-> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) is committing genocide and we must stand up for basic human rights. [#BoycottBeijing2022](https://twitter.com/hashtag/BoycottBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/jjrbSPL2Yw](https://t.co/jjrbSPL2Yw)
-> — Rep. Mike Waltz (@michaelgwaltz) [May 18, 2021](https://twitter.com/michaelgwaltz/status/1394768864622297093?ref_src=twsrc%5Etfw)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
 
 
 
