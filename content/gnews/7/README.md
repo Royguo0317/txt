@@ -1,164 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朱利安·阿桑奇(Julian Assange)说：“我们生活在一个‘媒体政治’时代，政治上可能的事情由媒体环境决定。”
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255751/)
+## 科技巨头苹果为了利益 不得不屈服于中共
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1255807/)
 
-字幕内容：
+#### 撰稿：理工男文峰
+校对：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19030021/wenfeng.jpg)图片来源：patntlyapple.com
+据纽约时报等多家媒体报道，苹果公司为了自身业务向中共妥协，并采取了一系列措施配合中共，其中包括应用商店的app审查、把中共国用户的iCloud服务器放置在中共国等。这篇报道也披露了苹果公司在2018年对郭媒体（Guo Media）的一款应用进行的审查和封杀。
 
-Julian Assange
+在中共国一切都要听党的，一切都是党的。中共对西方科技公司采取了深度的蓝金黄逼迫他们就范，外界对此知道的不多。中共利用低廉的劳工优势成为世界的供应链中心，用供应链作为筹码威胁西方公司；同时利用14亿人的消费市场诱惑逼迫西方。西方的高科技公司几乎全是上市公司，管理层在维持股价的压力下，面对中共的威胁，不得不配合中共进行各种内容审查、应用审查，甚至把数据存放于中共国。即使是在智能手机、移动浏览器、桌面浏览器领域，占世界第二的、市值超万亿美元的苹果公司，也不例外，深陷利益门。
 
-阿桑奇：
+随着爆料革命“以毒灭共，以钱灭共”战略的深入进行，全球追讨病毒真凶的联盟正在扩大形成之中，美国已经开始慢慢实施如芯片禁运的科技脱钩。所有迫不得已屈服中共的美国科技巨头，面对全球灭共的大势，都需要从自身利益的角度，重新审视他们的供应链策略、市场策略。
 
-Noam Chomsky, in ‘The Common Good’
+相信共产党，走进火葬场。希望美国的科技巨头们能够平衡好短期利益目标和长期发展战略，不做中共灭亡的陪葬品。灭共后，新中国联邦可以帮助他们合法的、阳光的在十多亿消费者的大国赚取“取之有道”的利益。
 
-诺姆·乔姆斯基(Noam Chomsky)，“共同利益”
-
-wrote that “ the smart way to keep
-
-写道：“让人们保持
-
-people passive and obedient is to
-
-被动和顺从的聪明方法是
-
-strictly limit the spectrum of
-
-严格限制
-
-acceptable opinion but to allow a very
-
-可接受意见的范围，但允许在非常
-
-lively debate within a narrow section of
-
-狭小的范围内进行激烈
-
-that spectrum.”
-
-的辩论。”
-
-We live in a ‘Mediaocracy’,
-
-我们生活在一个“媒体政体”中
-
-what is politically possible
-
-什么在政治上是可能的？
-
-is defined by the media environment.
-
-是由媒体环境定义的
-
-I started Wikileaks because I understood
-
-我创办维基解密是因为我明白
-
-this reality, the media frame defines the
-
-这一现实，媒体框架定义
-
-political possibility.
-
-政治可能性
-
-So to bring about meaningful change
-
-所以要带来有意义的改变
-
-We have to enlarge the media frame.
-
-我们必须把媒体画面放大
-
-With Wikileaks we’ve had
-
-有了维基解密，我们就能
-
-significant successes in achieving this
-
-在一些领域实现这一目标上取得重大成功
-
-in some areas, but more needs to be done.
-
-但还需要做更多的工作
-
-The single greatest contributor to our
-
-我们最伟大的贡献者来
-
-expanding horizons is you.
-
-开阔我们眼界的是你
-
-You telling your friends what’s up,
-
-你告诉你的朋友们发生了什么事
-
-what you saw, what you believe,
-
-你看到的，你相信的
-
-and who’s full of it.
-
-以及那些满嘴胡言乱语的人
-
-Contrasting what appears in the
-
-对比显示在
-
-Australian press to itself and to the world.
-
-澳大利亚媒体对其自己和世界都是如此
-
-You form part from the largest
-
-你们是最大的组成部分
-
-bullshit detecting machine the world has
-
-世界上有一台废话探测机
-
-ever seen.
-
-从未见过的
-
-That’s why Wikileaks has such support
-
-这就是为什么维基解密从暴露在互联网上的人
-
-from people exposed to the Internet
-
-那里得到如此的支持
-
-that’s why we have such support from this generation
-
-也就是我们得到这一代人如此多的支持的原因
-
-because you’re better informed.
-
-因为你们消息灵通
-
-This is the best educated
-
-这是受过最好教育的
-
-generation in the history of the world.
-
-世界历史上最伟大的一代
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://twitter.com/disclosetv/status/1389179026372243459?s=24](https://twitter.com/disclosetv/status/1389179026372243459?s=24)4
-
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场- Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片: 康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+原文链接：[Censorship, Surveillance and Profits: A Hard Bargain for Apple in China](https://www.nytimes.com/2021/05/17/technology/apple-china-censorship-data.html)
 
 0

@@ -1,20 +1,196 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 科技巨头苹果为了利益 不得不屈服于中共
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1255807/)
+## 贾斯汀·李（Justin Li）卡尔顿大学孔子学院所长, 中共代理人在加拿大大学教学
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255968/)
 
-#### 撰稿：理工男文峰
-校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19030021/wenfeng.jpg)图片来源：patntlyapple.com
-据纽约时报等多家媒体报道，苹果公司为了自身业务向中共妥协，并采取了一系列措施配合中共，其中包括应用商店的app审查、把中共国用户的iCloud服务器放置在中共国等。这篇报道也披露了苹果公司在2018年对郭媒体（Guo Media）的一款应用进行的审查和封杀。
+字幕内容：
 
-在中共国一切都要听党的，一切都是党的。中共对西方科技公司采取了深度的蓝金黄逼迫他们就范，外界对此知道的不多。中共利用低廉的劳工优势成为世界的供应链中心，用供应链作为筹码威胁西方公司；同时利用14亿人的消费市场诱惑逼迫西方。西方的高科技公司几乎全是上市公司，管理层在维持股价的压力下，面对中共的威胁，不得不配合中共进行各种内容审查、应用审查，甚至把数据存放于中共国。即使是在智能手机、移动浏览器、桌面浏览器领域，占世界第二的、市值超万亿美元的苹果公司，也不例外，深陷利益门。
+Garnett Genuis
 
-随着爆料革命“以毒灭共，以钱灭共”战略的深入进行，全球追讨病毒真凶的联盟正在扩大形成之中，美国已经开始慢慢实施如芯片禁运的科技脱钩。所有迫不得已屈服中共的美国科技巨头，面对全球灭共的大势，都需要从自身利益的角度，重新审视他们的供应链策略、市场策略。
+加内特·格努伊斯
 
-相信共产党，走进火葬场。希望美国的科技巨头们能够平衡好短期利益目标和长期发展战略，不做中共灭亡的陪葬品。灭共后，新中国联邦可以帮助他们合法的、阳光的在十多亿消费者的大国赚取“取之有道”的利益。
+Mr. Li, My colleagues have raised the fact
 
-原文链接：[Censorship, Surveillance and Profits: A Hard Bargain for Apple in China](https://www.nytimes.com/2021/05/17/technology/apple-china-censorship-data.html)
+李先生，我的同事提出了一个事实
+
+that many witnesses have told us
+
+许多证人告诉我们
+
+that Confucius institutes are a front for espionage
+
+孔子学院是间谍活动的前沿
+
+you have told us that at least the Confucius Institute at Carleton is not
+
+您已经告诉我们，至少卡尔顿大学的孔子学院不是
+
+but you’ve also been unwilling to contradict the party line on any issues
+
+但您也一直不愿意在任何问题上与党的路线相抵触
+
+such as in response to my questions about human rights abuses with the Dalai Lama
+
+例如回应我有关与达赖喇嘛侵犯人权的问题
+
+this makes me wonder if your employment status would be at risk
+
+这使我想知道你的就业状况是否会受到威胁
+
+if you criticize the Chinese government
+
+如果你批评中共政府
+
+so I want to put this to the test here
+
+所以我想在这来测试一下
+
+Mr. Li, based on your bio
+
+李先生，根据你的简历
+
+you were living in China during the Tiananmen Square massacre in 1989
+
+在1989年天安门广场大屠杀期间你是居住在中国
+
+the Chinese Red Cross estimates
+
+中共红十字会估计
+
+that over 2500 students peacefully protesting were shot in cold blood
+
+有超过2500多名和平抗议的学生被残忍地枪杀
+
+So as someone who today works with students at a university
+
+因此，作为今天与一所大学的学生一起工作的人
+
+do you believe that these figures are accurate
+
+你相信这些数字是准确的吗？
+
+and do you think the Chinese state was wrong
+
+而且你认为中共国家错了吗
+
+to sanction the opening of fire on peaceful protesters
+
+批准向和平示威者开枪
+
+Justin Li
+
+贾斯汀·李
+
+thank you sir and I am the employee Carleton University
+
+谢谢你，先生。而且我是卡尔顿大学的雇员
+
+and I my employment with Carleton
+
+我在卡尔顿的工作
+
+and I don’t think it’s anything to do with China
+
+而且我认为这与中共国无关
+
+Garnett Genuis
+
+加内特·格努伊斯
+
+Mr. Li would you like to respond to my question about the Tiananmen Square massacre
+
+李先生，你想回答我有关天安门大屠杀的问题吗？
+
+Justin Li
+
+贾斯汀·李
+
+Sorry, what’s the question again
+
+抱歉，请再重复一下问题？
+
+Garnett Genuis
+
+加内特·格努伊斯
+
+In 1989, over 2500 student protesters were massacred In Cold Blood
+
+在1989年，超过2500名学生抗议者被残忍地屠杀
+
+as someone who works with students
+
+作为和学生一起工作的人
+
+do you believe that those figures are accurate as reported by the Chinese Red Cross
+
+您是否相信这些被中共红十字会报告的数字是准确无误的？
+
+and you believe the Chinese state was wrong
+
+而且你认为中共政府是错的
+
+to sanction the opening of fire on peaceful protesters
+
+批准向和平示威者开枪
+
+Justin Li
+
+贾斯汀·李
+
+I don’t have this expertise and knowledge to validate the number of that incident
+
+我对这方面不熟悉和没有足够的专业知识来验证该事件的数字
+
+Garnett Genuis
+
+加内特·格努伊斯
+
+you were living in China at the time
+
+你当时生活在中共国
+
+Mr. Li,  do you believe that it was wrong
+
+李先生你认为那是错的吗
+
+for the Chinese government to sanction the opening of fire on Peaceful protesters in Tiananmen Square
+
+中共政府批准向天安门广场的和平示威者开火
+
+Justin Li
+
+贾斯汀·李
+
+I was in China, I was in Beijing
+
+我当时在中国，我当时在北京
+
+and my friends and then none of my acquaintances have been that victims so far
+
+和我的朋友们，到目前为止，我的相识们都不是那些受害者
+
+This is a, this is a unfortunate event, of cause
+
+当然，它是，它是一个不幸的事件
+
+Thank you
+
+谢谢
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 https://twitter.com/canaditude/status/1389575134785253378?s=21
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
