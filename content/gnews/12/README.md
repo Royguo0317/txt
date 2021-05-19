@@ -1,51 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】印度使用伊维菌素和羟氯喹后，COVID病例骤减
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1257323/)
+## 疫苗护照将收集你所有的个人信息
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1257414/)
 
-作者：纽约香草山农场 四季
+阿黎
 
+在美国和全球的全球主义者极力鼓吹中共病毒疫苗护照的必要性，并全力推动疫苗护照在美国和全球实施的情势下,内奥米-沃尔夫（Naomi Wolf）博士刚刚在接受福克斯新闻采访时说的一番话应该为大众敲响了警钟。
 
+内奥米-沃尔夫是美国作家和记者。继她的第一本书《美丽神话》（The Beauty Myth）之后，她成为了女权运动的第三波浪潮的首席代言人。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
-
-
-
-网关专家5月17日报道，印度政府在推广使用伊维菌素和羟氯喹后，印度的COVID病例骤减。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19132208/88-4.jpg)图片来源：网关专家
-
-印度卫生部于4月28日更新了关于检疫、治疗无症状和有轻微症状COVID-19患者的指导方针。其中指示，对无症状患者应“考虑服用伊维菌素3到5天”，护理人员对隔离区患者“按照治疗方案和医生处方采用羟氯喹进行预防措施”。
-
-印度的冠状病毒病例正在急剧下降，这要归功于印度政府向民众大量推广使用伊维菌素和羟氯喹的新规则。当然，世卫组织和制药公司正在发飙。
-
-目前，在292项研究证明羟氯喹对COVID-19有治疗和预防作用中，有219项经过同行评审； 在93项研究伊维菌素证明其作为治疗和预防COVID-19的有效性中，有54项经同行评议。尽管这些药物可在数小时或数天内杀死COVID-19——这是一个无可争辩的事实——但比尔-盖茨资助的世界卫生组织（WHO）和大型制药公司对印度的新准则和结果大为不满。
-
-参考阅读：
-
-[Elites Worried: COVID Cases in India Plummet After Government Promotes Ivermectin and Hydroxychloroquine Use](https://www.thegatewaypundit.com/2021/05/elites-worried-covid-cases-india-plummet-government-promotes-ivermectin-hydroxychloroquine-use/)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+沃尔夫博士在采访中说：“我没有过分强调这个问题。如果这个（疫苗护照）计划得以实施，这将是西方人类解放的终结。在你不知道这个平台能做什么时，（疫苗护照计划）听起来像是一个不错的事情，我了解到的是，（疫苗护照）一旦实施起来，你就没有选择地成为这个系统的一部分。人们必须明白，任何其他的功能都有可能被加载到这个平台上，一点问题也没有。我的意思是说，这个平台可以将你的PayPal 帐户和你的数字货币都融合上来。微软公司已经谈到将人们的付款计划和社交网络与这个平台连接起来，你走到哪里都会被定位，就连你的个人信用史和医疗史也被包括。”
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+> Naomi Wolf [@naomirwolf](https://twitter.com/naomirwolf?ref_src=twsrc%5Etfw) telling it like it is.[pic.twitter.com/7OBSxv6Vci](https://t.co/7OBSxv6Vci)
+> — Maria Sederholm (on Gab too) (@Wordofbeak) [May 18, 2021](https://twitter.com/Wordofbeak/status/1394678972882030594?ref_src=twsrc%5Etfw)
 
 
+
+这段视频在推特上仅一天内，就有近一百万点击，可见它引起大众的兴趣和震惊达到了何种程度。
+
+相信绝大多数人不希望这样的事发生，不希望历史开倒车，回到奴隶社会，与远古的奴隶社会不同的是，全球主义精英们所要实现的是高科技的奴隶社会，是有各种高科技的监控设施监控奴隶的社会。
+
+那么我们该怎么办呢？对疫苗护照说“不”是正确的选择。如果大多数人都拒绝疫苗，疫苗护照计划就无法实施。
+
+* * *
+
+*编辑、发稿 文锦*
 
 0

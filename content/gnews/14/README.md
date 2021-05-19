@@ -1,105 +1,169 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英格兰历史之根基 （二十七） 受苦的国王
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1257342/)
+## 情报委员会副主席就中共病毒给IC的公开信
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1257365/)
 
-俄罗斯莫斯科喀秋莎农场   和风
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-编辑   银河 星河   上传   银河
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/04225153/henry-iv-1.jpg)俄罗斯莫斯科喀秋莎农场 女农
-**第一卷  根基**
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19140552/O-7.jpg)currently.att.yahoo.com
+昨天（5月18日）笔者将众议院情报委员会副主席德文·努内斯（Devin Nunes）就中共病毒的溯源、追责致拜登的公开信翻译发表【1】，现将努内斯副主席给拜登政府情报机构（IC）总监艾薇儿·海恩斯（Avril Haines）的公开信翻译，供战友参考。
 
-**英格兰历史：从原始时期至都铎王朝**
+此信便是上周玛丽亚《周日早间未来》节目提及的、需要拜登政府限期回答的25个问题。
 
-**第二十七章  受苦的国王**
+公开信全文如下：【2】
 
-亨利·博林布鲁克现在被加冕为亨利四世（Henry IV），他通过武力，可能还通过欺诈，获得了王位。放在这样一颗头上的王冠将是不牢固的。他亲身证明：国王能随意被罢黜，能通过民众的高呼而变得合法。因此，亨利向上下两院献殷勤。他承诺：不征税，并取消前任国王的较有压迫性的法律。他重新披上了武士斗篷，誓言要带领军队进入苏格兰和法国，从而保持先前军事国王的风格。他通过向主教承诺他要打败异教，企图获得上帝的支持。
+亲爱的海恩斯总监：
 
-但许多人仍然相信，亨利是个篡位者。从统治开始，就有谣言流传：理查德二世还活着——他在苏格兰，他在威尔士，到处都有他。在集市和酒馆里，道明会士和方济会修士用罢黜国王还活着的消息，公开传教以煽动叛乱。一个方济会修士被带到国王面前。
+4月15日你在众议院情报常设特别委员会（House Permanent Selective Committee on Intelligence）举行的2021年全球威胁简报会上指出，情报机构（IC）各成员组围绕着“两个看似合理的理论”结合在一起，这两个理论与中共病毒（COVID-19）的起源有关，“其中一个是实验室事故”。
 
-亨利：你听说理查德国王还活着，你高兴吗？
+至关重要的是，我们必须了解中共病毒的起源，以便美国政府和国际社会能够采取适当措施，减少另一场疫情的可能性，我们的预防、准备和监视活动必须以这种了解真相为基础。此外，如果人为错误导致了疫情或其蔓延，我们必须认真研究根源，并实施必要的公共和国际机制，以防止此类问题的再次发生。
 
-修士：我高兴，就像一个男人知道他朋友还活着那样，因为我欠他的债，我所有亲戚都欠他，他是我们的保护人和赞助人。
+简而言之，我们需要了解在中共国武汉发生了什么，中共病毒的起源，以及武汉病毒研究所（WIV）正在进行的研究。然而，中共国拒绝了独立调查人员的接触，并采取了其他妨碍国际社会对中共病毒暴发事件进行调查的行动，这也说明，中共国在这个问题上进行了全球造谣运动，包括无耻地指控病毒是美国制造的，这些事实要求情报机构（IC）（必须担负）找到这些事情真相的重大责任。
 
-亨利：你公开说他活着，所以你兴奋，煽动人们反对我。
+作为负责监督美国情报机构的国会议员，我们认为，情报机构（IC）没有通过及时的（病毒）生成物和分析为决策者提供正确的（决策）支持。此外，情报机构迄今没有公开地按照程序发表看似权威的疫情早期声明，声明（应该）包括病毒来源的内容。这让人怀疑早期判断的有效性以及中共病毒相关情报报告的分析完整性。
 
-修士：没有。
+此外，有证据显示，疫情过后，情报机构的失败仍在继续。具体地说，共和党成员收到了一些指控，情报机构压制了与中共病毒起源有关的不同意见，而且机构会依赖于“外部”专家，这些专家涉嫌尚未公开的利益冲突。
 
-亨利：说说真相，把你心里话说出来。如果你看见理查德国王和我一块在战场上，
+鉴于你在管理情报机构方面的作用，包括确保情报机构指令203条款（Intelligence Community Directive 203）所记录的情报报告分析完整性的关键要求，我请求你解决以下问题：
 
-你会和谁在一起哪？
+1、请向众议院情报委员会提供所有关于中共病毒来源的情报机构（IC）报告和生成物，这应该包括由联邦政府资助的研发中心或外部专家生产的任何分析和生成物，如果情报属于限制（发布）和限制传播的，请作出安排，让获得适当许可的工作人员进行情报审查。
 
-修士：真的会和你在一起，我更感激他。
+2、请提供2021年1月15日国务院情况说明（武汉病毒研究所的活动）所包含的所有情报，包括与1）武汉病毒研究所疾病有关的情报；2） “武汉病毒研究所的RaTG13”和“功能增强”研究；3）武汉病毒研究所与军事研究的秘密链接。
 
-亨利：你希望我和王国内所有贵族都死吗？
+3、向委员会提供武汉病毒研究所与中共国军方合作的报告。
 
-修士：不。
+4、情报机构是否有任何间接或其他证据表明，中共病毒是自然发生的，并在2019年秋季从中间宿主直接扩散到人类身上？
 
-亨利：如果你战胜我，你会做什么哪？
+5、机构有否评估中共国遵守《生物武器公约》第十条的情况？如果是，请向委员会提供这一评估。
 
-修士：我会让你做兰卡斯特公爵。
+6、情报机构是否了解武汉病毒研究所与其相关实体或科学家与外国科学家之间的合作？情报机构有否就这类活动作出威胁评估或其他报告？
 
-亨利：那你就不是我的朋友了。
+7、情报机构是否了解武汉病毒研究所与美国政府实体或个人之间的任何合作，包括与中共军方的任何潜在联系？如果是的话，情报机构是否提供了反情报威胁评估或任何其他有关此类活动的报告？
 
-下面是与另一个修士的谈话。
+8、情报机构是否参与了任何有关美国政府资助的武汉病毒研究所及其相关研究设施的适当的跨机构审查？
 
-亨利：你说理查德国王还活着？
+9、情报机构是否参与了任何有关功能增强研究的跨机构审查，特别是对它们的合规性审查，即，资助美国境外的研究，或与类似中共国等国外对手的合作？如果是的话，是否有记录在案，是否有任何发现？
 
-修士：我没有说他还活着，但我说，如果他活着，他是英格兰真正的国王。
+10、情报机构是否评估了已知拥有生物武器能力的国家进行功能增强研究的相关风险？
 
-亨利：他退位了。
+11、情报机构是否评估了与中共国的功能研究合作成果对美国国家安全构成威胁？如果没有，这种观点的依据是什么？
 
-修士：他退位是有违自己意愿的，在监狱里，这是违法的。
+12、据公开文件记载，美国国家卫生研究院和美国国际开发署已向中共国实验室提供资金，进行危险的两用研究，在批准此项活动的资金之前，是否咨询过情报机构？情报机构是否保持对活动的持续审查？
 
-亨利：他被罢黜了。
+13、在中共病毒事件后，情报机构是否对中共国遵守国际卫生条例进行了分析？如果是，请提供给委员会。
 
-修士：当他是国王时，他被暴力抓捕并送进监狱，王国也被夺走了。你夺取了王
+14、卫生和公众服务部是否支持制定卫生和公众服务部指南，概述与增强型潜在疫情病原体相关的风险评估和缓解措施（卫生和公众服务部关于指导涉及增强型潜在疫情病原体的拟议研究的供资决定的框架）？
 
-冠。
+15、请向委员会提供有关中共国对2021年1月15日国务院关于武汉病毒学研究所活动情况说明的任何情报机构报告。
 
-激烈的对话结束时，国王大发脾气，他喊道：“我发誓，我要你的脑袋！”
+16、据新闻报道，法国对外安全总局（the French General Directorate for External Security）对法国参与武汉病毒研究所的建设和发展一再表示关切，情报机构是否有任何报告证实这些报告？如果总局确实表达了这样的担忧，情报机构会是否意识到了这些担忧，情报机构是否同意？
 
-亨利认为：亲自面对这些修士是必要和有利的，这其实说明，他把任何的这种谣言和其他谣言看得如此严重。如果理查德被认为还活着，那么亨利不能安心——他不是一个受膏国王。
+17、情报机构是否了解武汉病毒研究所进行的所有危险研究？情报机构的知识缺口是什么？
 
-1400年初，理查德的保皇派通过骑马去温莎，企图发动一次起义。他们被驱散后，向西面逃跑，最终被赛伦塞斯特和布里斯托尔的市民包围了。国王的惩罚绝不是仁慈的。犯人托马斯·布朗特爵士（Sir Thomas Blount）在史密斯菲尔德被吊起来一分钟，或者在被砍头前吊起来，然后又命令他坐在一堆大火前面，刽子手手里拿着一把刮胡刀走到他面前。在请求犯人原谅后，刽子手跪下来，用刮胡刀打开犯人的肚子，取出了内脏。人们问布朗特是否要喝水，他回答：“不，因为我不知道把水放在那里。”刽子手用一条绳子把内脏拴住，扔进了火里，按照同时代人的说法，这是为了“不让心脏的气跑掉”。一个旁观者以嘲笑的口气大声说道：“去找一个主人来，他能救你”。布朗特哭着说：“我要以死来效忠我的君主，尊贵的理查德国王！”刽子手砍下了他的头。
+18、情报机构是否寻求其他美国联邦部门或机构参与中共病毒报告的制作，如果是，是如何完成的？
 
-然而，严重的惩罚没有制止其他的叛匪。1401年秋天，有人企图暗杀亨利，方法是用“饵雷”在他床上放置有毒的尖刺。这个计划进展得不如另一个：用一种致命毒物去涂抹他的马鞍。不过，亨利意识到了反对他的危险力量。
+19、请提供任何有关中共病毒起源的情报机构报告中提及的任何外部传染病专家的姓名、他们的简历或履历，以及挑选这些专家的标准。
 
-抗议有了其他形式。尽管亨利早先承诺规避税收，但不久后，他不得不食言了。1401年的议会上，大法官提出：被罢黜国王的“财富”，如果有的话，已经消失得无影无踪了。保卫和治理王国的成本在日益增加，到了现任国王已经严重负债的程度。下议院最终同意了他的要求：通过缴税来资助他，但反过来，他们递交了各种请愿和抱怨。只有当这些恳求被准许时，他们才同意征税。这可能是亨利议会里所有人的模式。只有满足下议院要求时，他才能收到钱。从这方面看，他不是一个强势国王。虽然1399年的议会是非法集会和非法建立的，但议会实际上已经对新国王的加冕礼实施了惩罚。议会现在为什么不试图去限制国王的权力哪？
+20、外部专家是如何审查的，包括潜在的利益冲突，如之前与武汉病毒学研究所的合作，以及遴选过程是什么样的程序？
 
-1403年夏天，国王曾经的同盟珀西家族起来反抗他的统治。他们与威尔士王子欧文·格伦道尔（Owen Glendower）联合，此人正式向英国国王挑战了。诺森伯兰伯爵亨利·珀西和儿子热刺已经承担了抵抗苏格兰入侵以及保卫北方的任务。他们原指望能做为亨利的支持者享受一些胜利成果，然而，在吃惊和恐慌中，他们发现不得不去保卫自己的北方土地了，但没有得到亨利的任何帮助。议会里有谣言说：国王给珀西家族拨款£60,000。他们予以否认，声称：他们只收到£20,000。钱去哪里了？
+21、谁具体负责挑选外部专家？
 
-1402年底，热刺来威斯敏斯特面见国王，要求得到更多的钱。其结果就是尖锐的对抗。一位编年史作家写道：国王打了热刺的脸，而另一个报告说，国王对他拔出了剑。不管真相是什么，他们的联盟破裂了。珀西家族对国王还有另一个不满，是他们起义的方便借口，严格地说，它更严重一些。他们控告国王背叛了自己的誓言。亨利第一次在约克郡登陆时，向他们许诺他不图谋王位。父子俩最近几个星期发现，这显然是谎言。但从一开始，他们至少意识到了理查德有被推翻的可能性。
+22、情报机构有否举办或参与任何由外部专家参与的论坛？如果是，请描述约定。
 
-1403年夏天，热刺在切斯特（Chester）集结了一支队伍，并声称，理查德国王还活着。这个战斗口号与所有反对国王的口号相类似。欧文·格伦道尔准备从威尔士出发，而亨利·珀西正在北方集合队伍。国王的行动是快速和敏捷的。他派出一支军队到叛匪准备集结的城镇什鲁斯伯里（Shrewsbury）。当热刺到达那里时，发现大门都关闭了。他在城外停留时，国王的军队过来了。对立双方在什鲁斯伯里以外2英里（3公里）的贝里克战场（Berwick Field）相遇。热刺有1000个弓箭手，他把他们安排在山脊顶部，从这里，能看见国王的军队靠近了。亨利有备而来，他要求两个主要支持者穿上自己的服装，因为他非常明白，自己才是热刺的真正目标。如果战场上有三个亨利，将会带来更多的麻烦。
+23、谁是生物科学专家组的成员？
 
-国王的军队开始爬坡，遭遇了来自柴郡弓箭手数以千计的长箭射击。天空变得阴暗，大屠杀开始了。一位编年史作家描述到：国王的军人倒下了， “就像冷霜过后，秋天的树叶落得那样快”。其中一个死者是国王军队的司令斯塔福德伯爵（earl of Stafford）。王室军队的先锋开始撤退并逃跑。为了防止血腥惨败，亨利现在必须快速行动，他命令主力部队撤离，自己却陷入战斗之中。
+24、美国全国广播公司新闻网（NBC News）在2020年5月8日报道，“报告称手机数据显示武汉实验室10月关闭，但专家对此表示怀疑。”情报机构对“武汉实验室10月关闭”的评估是什么？
 
-一位编年史作家写道：“在英格兰，人们已经很久没见过这样的大屠杀了”。王室军人似乎占了上风，而热刺为了反抗国王，把身家性命都做赌注了。亨利撤下来，但热刺和伙伴却在混战中迷茫了。当他们步履瞒珊时，被打败了，热刺死在战场上。国王的儿子亨利头骨受了伤，但他还活着，他是赞美国王胜利的一个人。这好像是，亨利四世被上帝真正地涂膏了。
+25、鉴于与中共国的合作是不可能实现的，如果提供的合作是不可靠的，计划采取什么调查步骤来确定中共病毒疫情的原因？
 
-然而，在贝里克战役两年后，北方又出现了起义。约克大主教理查德·斯科普（Richard Scrope）站起来反抗王室政府，他对亨利征税太多所产生的影响，发表了一个宣言或者申诉。国王臣民的负担，不论俗人还是宗教人士，都变得不可承受了。
+我感谢你在这件重要事情上的帮助，鉴于请求的范围，我理解情报机构的答复可能需要分批提供。为方便委员会共和党成员的工作，我请求你在2021年5月31日之前提供信息。如有任何有关此请求的问题，请随时联系委员会工作人员（202）225-4121。
 
-这次起义没有成功，一两天内，大主教的军人就离弃他或者被扣押了。幸存于什鲁斯伯里战败的诺森伯兰伯爵，再一次受起义牵连，后来逃到了苏格兰。斯科普被抓获后斩首，在某种程度上，亨利用粗暴和残忍的手段打败了所有的反对者。然而，在那个时代，杀害大主教是一种亵渎行为，让人们想起了十三世纪对托马斯·贝克特的谋杀。亨利四世逃脱了人们对亨利二世的许多谩骂，但他的声誉受到了严重影响。对自己王位的不安全感与亵渎罪混在了一起。
+德文·努内斯（签名）
 
-大主教的死给他带来了压力。大主教于1405年6月8日被处决，这天下午，国王骑马时受到某种力的冲击，它如此强大，“似乎让他感到一种真正的打击”。那天晚上，他做了一个噩梦，叫喊着“叛徒！叛徒！你要焚烧我！” 当仆人走到他面前时，他抱怨说，他的皮肤在燃烧。这是他受神秘疾病折磨的开始时间，有谣言说，这是麻风病。这种病持续了一两年，所以不可能有确切的诊断。亨利很可能染上了梅毒。作为年轻人，他参加十字军东征时去过圣地，十字军由于带回了性病而臭名昭著。
+笔者不禁地要追加一个问题：如果没有郭文贵先生、闫丽梦博士一年多地揭露真相，美国，乃至世界将何去何从？
 
-然而，他穿过了火焰，从1406年以后，没有人企图夺取王位了。他保持警惕，保持固执，一直处于警戒状态。与自己前辈不同的是，他意识到：自己没有权力和资源去对抗国内的大贵族，所以他含糊其辞并进行了妥协。他允许贵族享有独立和有影响力的空间，这在理查德统治下是不允许的。他允许自己在某种程度上受制于一个贵族委员会。他是一位好经理。国王没有钱，所有的财产已经枯竭了；地方法律没有得到遵守，一些地区是由当地派系管理的。骚乱和抢劫的可能性总是很小的。然而，国王没有崩溃。据说，他得过且过，但始终如一的目标是：捍卫自己的统治以及保护新王朝。在这些方面，他是成功的。
+开始对遭中共渗透的重灾区情报界揭盖子了，顺藤摸瓜至相关领域的科学界，最高立法者终于有人意识到美国的危机了，终于站出来了。
 
-他把希望寄托在儿子身上。在贝里克战场上，威尔士王子蒙默思的亨利（Henry of Monmouth）头骨受了伤，但这个伤丝毫没有削弱他的军事热情。他热爱战斗，为战争而活着。从十四岁起，他参加了各种打击威尔士起义的战斗和冲突，并获得了成功。1406年，他加入了国王的委员会，从威尔士返回后，他立刻在处理事务中发挥了部分领导作用。十九岁时，他身边自然地聚集了年轻的贵族成员。一位编年史作家写道：“人们都很依靠他，他的王室比父亲的还要富有”。对正在变老的国王和顾问们，他被看成是非官方的“反对派”，不论在家里还是在外面，他参加了较有目的和有影响力的活动。这是青年与老人对抗的时代，是希望和乐观与经验和乏力对抗的年代。
+邪共，你死期已到！
 
-由于疾病困扰，国王逐渐地从公共事务中退出了。他离开威斯敏斯特宫殿，退到坎特伯雷大主教在兰贝斯的私人住宅，然后，又搬到了温莎。从1410年到1411年末，威尔士王子代表父亲顺利地管理着王国。派出一支远征军去帮助勃艮第公爵（duchy of Burgundy）反抗法国的掠夺。与此同时，为了解决国王的财政问题，他做出了坚定的努力。据报道，1411年9月，王子与父亲交谈，建议他退位，“因为他不能再利用这个荣誉，也不能从王国获益了”。
+有关链接：
 
-但亨利四世做出了回击。他不能允许王室身份受到威胁。疲倦权力十几年后，他还留下了什么？只要他有呼吸，他就能统治。这年年底，王子的一些支持者被逮捕了。议会召开会议，有人提出一个动议：国王为了支持儿子应该退位。大家对此进行了争论，所有人都礼貌公道，但最后否决了。这似乎是，王子被以智取胜了。之后有谣言说：王子正在谋划公开叛乱，但又担心发生内战。这个谣言被平息了。然后，有人私下议论说：王子没收了给英国加莱守军的钱款。1412年夏天，他到伦敦来否认这件事，还要打击敌人，但随身带来一支军队，或者被称为“许多人”。
+【1】https://gnews.org/zh-hans/1255601/
 
-跟随王子的，还有他青睐的年轻贵族。根据把他第一本传记翻译成英语的翻译所说，王子穿着一件蓝缎子的特殊服装，服装被“小孔”或圆窟窿点缀着，每个小孔有一根带着丝线的针。这个服装的重要性不是立刻就能明白的。
+【2】
 
-他大步走进威斯敏斯特大厅，告诉支持者守在那里，自己却去找国王。他在一间房里找到了国王，并要求进行一次私人谈话。当着四个侍臣的面，亨利要求儿子“展示他的思想活动”。于是，王子做了一个慷慨激昂的长演说，演讲结束时，他跪下来，还拿出一把匕首。根据报道，他是这样说的：“父亲，我希望你以上帝的荣誉，为了平息你的心，用这把匕首当面杀了我。我的主人和父亲，我不希望：我活一天就让你不高兴一天。”除了这个效果外，一段结束语让生病的国王流泪了。父亲和儿子就这样和好了。
+          (function() { var scribd = document.createElement("script"); scribd.type = "text/javascript"; scribd.async = true; scribd.src = "https://www.scribd.com/javascripts/embed\_code/inject.js"; var s = document.getElementsByTagName("script")[0]; s.parentNode.insertBefore(scribd, s); })()        
 
-这个场景在莎士比亚《亨利四世》的第二部分演示出来，这部剧以及接续的《亨利五世》所保持的同时代形象多于其他任何剧。是否这是忠实的形象，那是另一回事。剧中有年轻亨利与一些人狂欢的画面，他们是福斯塔夫（Falstaff）和巴多尔夫（Bardolf），沙洛法官（Justice Shallow）和奎克莉夫人（Mistress Quickly），皮斯特尔（Pistol）和Doll Tearsheet，事实上，他们是英国历史的一部分。据说，这位王子在金星和火星的祭坛上做了礼拜。由于他青少年时期都是在苏格兰和威尔士的战争中渡过的，所以火星一定是在上升的。
+文字整理：
 
-父亲和儿子的相互尊重没有延续很长时间。那次感人谈话后的六个月，被罪恶和疾病搞得筋疲力尽的亨利四世去世了，他死在威斯敏斯大教堂的耶路撒冷议会厅（Jerusalem Chamber）里。他两年前立了遗嘱，用英语把自己描述为：一个“有罪的可怜虫”，一个“有罪的灵魂”，“永远不值得做一个男人”，他的生活“被虚度”了。遗嘱中没有传统的遗嘱词汇，揭示了他正遭受无价值感的折磨。在英国国王中，亨利四世是独一无二的，他杀死了一位君主和一位大主教。然而，他存活下来，虽然只活到四十六岁。他曾经面对阴谋和叛乱，在他活着时，有人企图强迫他退位，但他最终挫败了敌人。他建立的王朝——兰卡斯特王室，是金雀花王朝传奇的一部分，它延续了三代人。
+Dear Director Haines:
 
-国王的身体被清洗后，脑子和肠子被取出来，然后受到没药（myrrh）、芦荟和月桂花混合药物的防腐保存。在穿上长袍子之前，身体被用打蜡的亚麻布包住。他脖子以上的棕色胡子被刮干净，头上戴着王冠。他右手握着一枚金球，左手拿着权杖。以此状态，他被抬到坎特伯雷大教堂，在这里被埋葬，直到今天，人们还能看到他的坟墓。
+During your April 15, 2021 World Wide Threats briefing before the House Permanent Select Committee on Intelligence, you indicated that Intelligence Community (IC) components have coalesced around “two plausible theories” related to the origins of COVID-19 with “one of them a laboratory accident.”
+
+It is critical that we understand the origin of COVID-19 so that the United States Government and the global community can take appropriate measures to reduce the likelihood of another pandemic. Our prevention, preparedness, and surveillance activities must be informed by such an understanding. Moreover, if human error contributed to the outbreak or its spread, we must look hard at the root causes and implement the necessary public and international mechanisms to prevent a reoccurrence.
+
+In short, we need to understand what occurred in the Chinese province of Wuhan—the origin of COVID-19—and what research was being conducted at the Wuhan Institute of Virology (WIV). However, the People’s Republic of China (PRC) has denied access to independent investigators and taken other actions that hinder international probes of the COVID19 breakout. It is also telling that the PRC has engaged in a global disinformation campaign on this topic, including the outrageous allegation that the virus was created by the United States. These facts place significant responsibility on the IC to discover the truth of these matters.
+
+As Members of Congress responsible for overseeing U.S. intelligence agencies, we believe the IC failed to properly support policymakers with timely products and analysis. Further, the IC has not been forthcoming about what processes it undertook to make seemingly authoritative statements early in the pandemic about the origins of the virus—conclusions that are now in question. This casts doubt on the validity of early judgments as well as the analytic integrity of COVID-19-related intelligence reporting.
+
+Moreover, evidence shows that the IC’s failures continued in the pandemic’s aftermath. Specifically, Republican Members are aware of allegations that the IC suppressed dissenting views related to the origins of the pandemic and that the community relied upon “outside” experts with concerning yet undisclosed entanglements.
+
+Given your role in governing the IC, including the critical requirement of ensuring the analytic integrity of intelligence reporting as documented by Intelligence Community Directive 203, I request that you address the following:
+
+1. Please provide all IC reporting and products regarding the origins of COVID-19 not already produced to the House Intelligence Committee. This should include any analytic products produced by federally funded research and development centers or outside experts. Should information be restricted and subject to limited dissemination, please make arrangements to enable appropriately cleared staff to review the information.
+
+2. Please provide all intelligence underlying the January 15, 2021 State Department Fact Sheet (Activity of the Wuhan Institute of Virology) to include intelligence related to 1) illnesses at the WIV; 2) WIV research on “RaTG13” and “Gain of Function”; and 3) secret WIV links to military research.
+
+3. Please provide the Committee any IC reporting concerning collaboration between the WIV and the Chinese military.
+
+4. Does the IC have any evidence, circumstantial or otherwise, that COVID-19 occurred naturally and spilled over directly from an intermediate host to humans in the fall of 2019?
+
+5. Has the IC assessed the PRC’s compliance with Article X of the Biological Weapons Convention? If so, please provide the committee that assessment.
+
+6. Is the IC aware of collaboration between the WIV and its related entities or scientists and foreign scientists? Has the IC produced threat assessments or other reports concerning such activity?
+
+7. Is the IC aware of any collaboration between the WIV and U.S. government entities or persons, including any potential ties to the Chinese military? If so, did the IC produce counterintelligence threat assessments or any other reports concerning such activity?
+
+8. Was the IC involved in any interagency reviews concerning the appropriateness of U.S. government funding of research conducted at the WIV and its related facilities?
+
+9. Was the IC involved in any interagency reviews concerning Gain of Function research and, specifically, the appropriateness of funding this research outside the United States or in collaboration with foreign adversaries such as China? If so, was this involvement documented and were any findings produced?
+
+10. Has the IC assessed the risks associated with Gain of Function research by nation states that are known to possess biological weapons capabilities?
+
+11. Does the IC assess that Gain of Function research collaboration with China represents a threat to U.S. national security? If not, what is the basis for such a view?
+
+12. It is publicly documented that the National Institutes of Health and USAID have provided funding to Chinese laboratories conducting dangerous dual-use research. Was the IC consulted prior to approval of funding for this activity, and does the IC maintain an ongoing review of the activity?
+
+13. Has the IC produced an analysis on China’s adherence to international health regulations in the wake of the COIV-19? If so, please provide it to the Committee.
+
+14. Did the IC support the development of HHS guidelines that outline the risk assessment and mitigation steps associated with Enhanced Potential Pandemic Pathogens (Department of Health and Human Services Framework for Guiding Funding Decisions about Proposed Research Involving Enhanced Potential Pandemic Pathogens)?
+
+15. Please provide the Committee any IC reporting concerning PRC reactions to the January 15, 2021 Department of State Fact Sheet regarding activity at the Wuhan Institute of Virology.
+
+16. According to press reports, the French General Directorate for External Security expressed repeated concerns over French participation in the construction and development of the Wuhan Institute of Virology. Does the IC have any reporting to corroborate these reports? If the General Directorate did express such concerns, was the IC made aware of them, and did the IC concur?
+
+17. Does the IC understand the full scope of dangerous research conducted at the WIV? What are the IC’s knowledge gaps?
+
+18. Did the IC seek participation from other U.S. federal departments or agencies in the production of COVID-19 reporting and, if so, how was this accomplished?
+
+19. Please provide the names of any outside infectious disease experts referenced in any IC report related to origins of COVID-19, their curriculum vitae or resume, and the criterion used to pick these particular experts.
+
+20. How were outside experts vetted, including for potential conflicts of interest—such as prior involvement with the Wuhan Institute of Virology—and what was the selection process?
+
+21. Who specifically was responsible for the selection of outside experts?
+
+22. Has the IC organized or participated in any forums with outside experts on this topic? If so, please describe the engagement(s).
+
+23. Who are the members of the Biological Sciences Experts group?
+
+24. NBC News reported on May 8, 2020, “Report says cellphone data suggests October shutdown at Wuhan lab, but experts are skeptical.” What is the IC’s assessment concerning an “October shutdown at the WIV”?
+
+25. Given the fact that cooperation with China is not attainable, and if offered would be unreliable, what investigative steps are planned to determine the cause of the COVID-19 outbreak?
+
+I appreciate your assistance with this important matter. Given the scope of the request, I understand the IC’s response may need to be provided in tranches. To facilitate the work of Republican Members of the Committee, I request that you provide information beginning no later than May 31, 2021. Please do not hesitate to contact Committee staff at (202) 225-4121 with any questions regarding this request.
+
+Devin Nunes
 
 0

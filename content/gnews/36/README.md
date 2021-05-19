@@ -1,33 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/05/18-001 文贵先生盖特精华
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1257076/)
+## 中共以黑治港、以警治港为其灭亡打开了一道大门
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1257126/)
 
-听写： Jennifer | Pr: 乐禧禧 | Page: Daoiii
+新闻来源：《香港自由新闻》| 作者：Candice Chau | 发布时间：2021年5月17日
+翻译/简评：新街口 | 校对/审核：万人往 | Page：我是球大哥
 
-[!\[\]()!\[\](https://spark.adobe.com/page/MlUqIMWkvfz1K/images/ccb6a4f0-09d5-488f-9236-90acb1ac8bb2.png?asset_id=13eb4e52-bb2d-4a4a-bf26-08ced1863c2e&amp;img_etag=%220f70f8f55ca1a66186910cb3c7387697%22&amp;size=1024)](https://spark.adobe.com/page/MlUqIMWkvfz1K/images/ccb6a4f0-09d5-488f-9236-90acb1ac8bb2.png?asset_id=13eb4e52-bb2d-4a4a-bf26-08ced1863c2e&amp;img_etag=%220f70f8f55ca1a66186910cb3c7387697%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/B9LHoM6Pz3q98/images/a838433c-fddc-445a-9edc-a75088bfed63.jpg?asset_id=571bd484-1b8b-41a0-a864-2ee17a99bad8&amp;img_etag=%228c15e27e3ec24e01d1d92d0f7fd39fea%22&amp;size=1024)](https://spark.adobe.com/page/B9LHoM6Pz3q98/images/a838433c-fddc-445a-9edc-a75088bfed63.jpg?asset_id=571bd484-1b8b-41a0-a864-2ee17a99bad8&amp;img_etag=%228c15e27e3ec24e01d1d92d0f7fd39fea%22&amp;size=1024)
 
-[GTV链接](https://gtv.org/getter/60a3c62337f7f73984cd01a2)
+中共非法政权公开撕毁自己签订的《中英联合声明》，违反自己许诺的维持香港50年不变的承诺，这导致了2019年引入遣返法时受到了全体香港人的强烈抵制。而中共则指使香港和大陆警察对香港民众的和平示威进行了残酷镇压。
 
-1. 巴以战争看清伊朗叙利亚阿富汗，恐怖组织，全聚集了巴勒斯坦，绝大多数武器都由伊朗中共的流氓军制造。全世界都在讨论加密货币，世界上战争、大量的失业就会导致货币金融不稳定。全球局势不稳定时，会有全球目标——加密虚拟货币
-2. G系列投资有很多好事，没有任何人可以协调这个事的，没有任何人可以给大家这样的利益。只有你七哥和背后的支持者们可以做到！
-3. GTV和GNEWS 在西方政治板块上，不是最大的，甚至不是中型的。但是它的意义和价值，是杠杠型的，GTV，GNEWS 盖特就是撬动地球的一个杠杠！共产党最恐怖的是资金外流。最恐怖的是虚拟货币所有游戏规则制定权被美国人拿走！G系列將一飞沖天 。CCP害怕新中国联邦是美好的地方，让人向往的地方！
-4. 美国政府正在快马加鞭地做，我有一个核心秘密三个月了都没有说！只昨天告诉了路德和科学家。大家会震惊的！以毒灭共已经到了最关键时刻！有比科学家更重要的人物要出来了，将于美国合作。实锤！重锤！非常重锤！
-5. 大量资金洗出去，过去是5%10% 现在是30%～40%，而且都是大钱！多米诺骨牌效应会开始。CCP加大了力量对爆料革命的 造谣 攻击 渗透 黑客，搂住，你会看见无限的美好在等待着你！
-6. 接下来美国和欧洲队香港有行动，小钢锤将敲击香港，世界灭共联盟的范围在逐渐扩大，不仅仅是政治病毒情报、医疗系统，会是文化教育科技，全面推进。
-7. 记得当时日本要投资G系列，苹果黑了我们。但我们把最善良包容的一面给了苹果，希望苹果也能更好了解我们…反过来看看现在媒体的发展，Paler 从第一天就没有任何眼光能成为推特，他没有这样工程师、没有这样的钱和准备。不会像我们的盖特一样，第一天的视野和、投入工程师队伍 、技术设计、结构设计，绝对是征服这个世界的社交媒体之王，问鼎王座！
-8. 湖北武汉广东大量企业倒闭，到处失业，高层内反水，现在都感觉船要翻了，只有消灭CCP 极端分子，让世界相信中国人是和平的，让世界相信反对共产主义魔鬼的，你只会得到不会失去，为什么不做呢？
+香港和大陆黑警在媒体的摄像机前对香港示威群众残忍地使用各种暴力，在暗中则对抗争的年轻人进行惨无人道的虐杀，然后抛尸大海或直接从高楼扔下造成自杀的假象。
 
+今天，香港保安局长李家超不但把香港人的和平抗争比喻成黑色暴力，而且还利用国安恶法对香港民主人士进行大规模的逮捕和诉讼，并作为自己的一个政绩，进而无耻地宣称香港的犯罪率开始下降。
+
+李家超的这份声明充分证明了中共利用香港警察和保安局，把以黑治国、以警治国的方式完全复制到了香港。曾经把香港带入辉煌的民主与法治社会体系现在已被中共彻底毁灭，香港变成死港、臭港的日子已为期不远。
+
+但是，中共在香港的所作所为让世界充分、深刻地认识到了中共的本质，也为中共自身的灭亡打开了一道大门。中共必将会被铲除，香港也必将会再度辉煌！
+
+**原文翻译：**
+
+## 2019年香港抗议活动导致10250人被捕，2500人被起诉，保安局长居然称赞犯罪率下降
+
+*这位安全负责人说，自去年6月北京当局立法以来，已经根据国家安全法逮捕了107人。*
+
+据保安局局长李家超称，香港2021年第一季度的犯罪数量与去年同期相比下降了10％。
+
+香港在前三个月总共发生了14779件案件，侦破率上升了3.4％，达到34％。
+[!\[\]()!\[\](https://spark.adobe.com/page/B9LHoM6Pz3q98/images/b7fd5910-ca95-4037-b5f3-1a4973dc7f4a.jpg?asset_id=eacc361e-6d2f-469b-96a0-073b6f7f28cb&amp;img_etag=%22f107b6a401d72af266c03ba566a57ab2%22&amp;size=1024)](https://spark.adobe.com/page/B9LHoM6Pz3q98/images/b7fd5910-ca95-4037-b5f3-1a4973dc7f4a.jpg?asset_id=eacc361e-6d2f-469b-96a0-073b6f7f28cb&amp;img_etag=%22f107b6a401d72af266c03ba566a57ab2%22&amp;size=1024)香港前线抗议者。档案照片：Studio Incendo。
+李家超说：“第一季度的数字下降仅表明我们可能正在摆脱‘黑色暴力’带来的最糟糕的局面。”他指的是2019年反引渡法的抗议活动和由此引发的大规模社会动荡。
+
+李家超补充说，自2019年6月以来，有10250人因抗议而被捕，其中2500人已被起诉。还有1500人的法律诉讼已经完成，其中80％的人要承担包括坐牢在内的法律后果。
+
+这位安全负责人说，自去年6月北京当局立法以来，已经根据国家安全法逮捕了107人，其中57人已被起诉。
+
+北京当局起草的立法将颠覆、分裂国家、与外国势力勾结和恐怖主义行为定为刑事犯罪，广义上包括对公共交通和其他基础设施的破坏。
+
+[原文链接](https://hongkongfp.com/2021/05/17/10250-arrests-and-2500-prosecutions-since-2019-hong-kong-protests-as-security-chief-hails-fall-in-crime-rate/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/MlUqIMWkvfz1K/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/MlUqIMWkvfz1K/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/B9LHoM6Pz3q98/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/B9LHoM6Pz3q98/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 
 
