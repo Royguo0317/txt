@@ -1,60 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月18日美国参众议员关于苹果公司帮助中共政府进行审查评论合集
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1255244/)
+## 【战友心声】人性与信仰及统治者的关系（上）
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1253975/)
 
-参议员瑞克·斯科特： 那些在美国说一套在中国做另一套的总裁们，虚伪到了极点。 我猜想，苹果公司和提姆·库克从帮助和教唆共产独裁践踏基本自由和人权中，看到了无止尽的利润。（转推纽约时报的报道，苹果帮助中国政府进行审查）
-
-
-
-> As it stands, the Endless Frontier Act will not effectively counter Communist China’s aggression.
->  
-> That’s why I’m proposing amendments to secure American innovation, protect national security, hold China accountable and put American interests first. [https://t.co/LAbdsDefF6](https://t.co/LAbdsDefF6)
-> — Rick Scott (@SenRickScott) [May 18, 2021](https://twitter.com/SenRickScott/status/1394728289512591363?ref_src=twsrc%5Etfw)
+作者： 纽约香草山农场写作组 春草
 
 
 
-霍利参议员新闻办： 苹果公司两度拒绝霍利参议员主持的听证会，该听证会旨在解决中国和大型科技公司之间危险而增长的关系。 霍利强调这些具体的关切。现在我们知道了苹果在隐藏什么。（转推纽约时报的报道：审查、监控与利益：苹果在中国的苛刻交易）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193903/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1-2.jpg)
 
 
 
-> CEOs saying one thing in the U.S. and doing another in China is the height of hypocrisy.
-> ⁰I guess [@Apple](https://twitter.com/Apple?ref_src=twsrc%5Etfw) and [@tim\_cook](https://twitter.com/tim_cook?ref_src=twsrc%5Etfw) see an endless frontier of profits by aiding and abetting a communist dictatorship’s mission to trample on basic freedoms and human rights. [https://t.co/YZr9C00DTl](https://t.co/YZr9C00DTl)
-> — Rick Scott (@SenRickScott) [May 18, 2021](https://twitter.com/SenRickScott/status/1394690293950291973?ref_src=twsrc%5Etfw)
+根据爆料革命四步曲之《盘右相聚》笫十五期《欧洲危机》整理。
+
+![]()![](https://cdn.discordapp.com/attachments/834475264141688862/844226360482201650/1.jpg)
+
+根随爆料革命，不但了解了中国的真实情况，认清了共产党的邪恶的本质，同时也跨出了国门了解了世界上近些年的大势趋势。共产党的魔瓜几乎伸到了全世界，不只是美国、中东、非洲，欧洲也是重灾区，似乎一夜间人类社会倒退了几十年。这使人不得不思考：人类怎么了？人性怎么了？有钱了生活水平普遍提高了，文明程度却普遍降低了。
+
+人类社会，人是主体，每一个人都无法单独生存，都必须与他人合作。这种合作是必须遵循一定规则（法律）的，这些规则（法律）又需要一些人和机构来管理执行，这些管理机构就是政府（统治者）。这三者之间有什么关系呢？从人类发展的过程中可否找到一点线索？为了论述方便，我把人类发展的过程简单分为五个阶段：原始社会、奴隶社会、封建社会、集权社会和民主社会。不谈历史的发展过程，只探求人性的本质与信仰的诉求和社会统治者之间，在每个阶段的关系及深层的本质的东西。
+
+一、原始社会
+
+这个阶段人类刚从动物进化到人，基本是动物的属性，以狩猎为生。初期由于没有工具，弄到的食物很少，经常饥一顿饱一顿。没有衣服穿，没有遮风挡雨的地方，没有固定住处。在狩猎时常受到动物的危胁，加上生病，会不断有人丧生。所以多生孩子壮大队伍，是最好的方法，然而能生孩子的只有女性。所以在当时人们认为女人就是神，甚把女性生殖器当作神供奉起来，这就是他们的信仰。尽管在狩猎时女性获取的食物没有男性多，人们依然把她们的视为领袖，也就是当然的统治者。而且这一阶段的孩子只知道母亲不知道父亲，所以就是毋系氏族社会。在原始社会人的需求只能是最低的生理需求，信仰也只是生殖器，统治者就是女性。
+
+二、奴隶社会
+
+随着时代的进步，人类创造了工具，人口也增加了，狩猎的食物也多了。不同群体之间经常因食物、地盘发生争斗，这时男性的作用越来越大，逐步取代了女性的统治地位。同时人们发现了可耕种的谷物，也有了较固定的居住区域，这样就需要一部分人留在住地，女性正好适合这样的工作，所以女性就彻底退出了统治地位。进入奴隶社会后，人类就有了等级划分。由于部落间城邦间为了利益的争斗就有了俘虏，这些人便成了奴隶，加上犯罪的、犯法的、欠债的等形成了一个最低下的人群。他们没有人权、没有自由，只作为奴隶主的工具。在这种社会人群大约分为三个等级，上等是奴隶主，中等是普通的自由人，下等就是奴隶。从人性的角度分析，三类人的利益诉求已有了很大的区别，都是在各自的权利范围的基础上希望再升一个等级。如：奴隶想获得自由人的利益、自由人想得到奴隶主的待遇，等等以此类推。在信仰方面，天、地等大自然的现象成为信仰的主要崇拜对象，把它们作为神供奉拜祭。社会的统治者自然就是奴隶主或是部落的头领。
+
+三、封建社会
+
+随着社会的发展，人口不断地增加，各个国家部落都需要开疆扩土，以应对人们生存的需求。这样国家的土地越来越大，国王已难以管理，便把扩大了的新领地分封给至亲和功臣，让他们代理国王管理这些新的领地。随着领土逐步扩大，统治者形成了由上到下的多层的管理结构，也形成了多级别的官员，享受着不同的待遇。随着人类文明逐渐的进步，这一阶段的社会已经发展得很成熟了，语言、文字、货币等已经是社会的基本要素。由于人们生活的需要，各种行业不断增加，文人、农民、商人、各种工匠等陆续出现，根据市场需求的不同，服务对象的不同，所得收入也不同，这样就产生贫富差距。因此在普百姓中，依据收入的多少从高到低自然地划出了不同的等级。在清朝就有官分九品、民分九等的说法。在封建社会人们对利益的欲求都有了变化和提高，但仍然不会超出每类人等级的太大范围。在信仰方面仍然以神为主，但不只是天神地神了，又加进了历史故事中的重要人物。对于少数的富人、高官还加入了家族的祖先。这一时期对神的崇拜又少了几成。统治者仍然是头领，只不过名称改为皇帝或国王了，不是几个人，而是一个庞大的家族了。
 
 
 
-参议员卢比奥： 苹果对美国人宣讲，但是却和北京交易，因为他们想要进入中国客户和奴工。 在伪善最糟的时候唤醒它。
+（未完待续）
 
 
 
-> [#Apple](https://twitter.com/hashtag/Apple?src=hash&amp;ref_src=twsrc%5Etfw) lectures Americans, but does the bidding of Beijing because they wants access to Chinese customers and slave labor
-> 
-> Woke hypocrisy at its worst [pic.twitter.com/wHrLs793vb](https://t.co/wHrLs793vb)
-> — Marco Rubio (@marcorubio) [May 18, 2021](https://twitter.com/marcorubio/status/1394726148278562818?ref_src=twsrc%5Etfw)
+相关链接:https://gtv.org/video/id=609343b2db13300ca54a1547
 
 
 
-参议员瑞克·斯托克： 事实上，无止尽法案不能有效地反对共产中国的侵略。 这是为何我提交了修正案确保美国创新，保护国家安全，向中国追责，并以美国利益为先。
+编辑/校对/发稿：369文驹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 
 
-> As it stands, the Endless Frontier Act will not effectively counter Communist China’s aggression.
->  
-> That’s why I’m proposing amendments to secure American innovation, protect national security, hold China accountable and put American interests first. [https://t.co/LAbdsDefF6](https://t.co/LAbdsDefF6)
-> — Rick Scott (@SenRickScott) [May 18, 2021](https://twitter.com/SenRickScott/status/1394728289512591363?ref_src=twsrc%5Etfw)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193903/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1-2.jpg)
 
 
 
-众议员迈克·沃尔兹： “觉醒”的美国公司准备抵制（有关乔治亚州选举的问题），在国内搞政治游戏，但对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的现代奴隶制却视而不见。真够虚伪的。 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在进行种族灭绝，我们必须捍卫基本人权，【视频来自foxnews：迈克·沃尔兹批判美国企业无视 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的现代奴隶制，而 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 事实上是在进行种族大清洗】
 
-
-
-> "Woke" American corporations are ready to boycott and get political here at home but turn a blind eye to modern day slavery in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw). Hypocritical.
-> 
-> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) is committing genocide and we must stand up for basic human rights. [#BoycottBeijing2022](https://twitter.com/hashtag/BoycottBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/jjrbSPL2Yw](https://t.co/jjrbSPL2Yw)
-> — Rep. Mike Waltz (@michaelgwaltz) [May 18, 2021](https://twitter.com/michaelgwaltz/status/1394768864622297093?ref_src=twsrc%5Etfw)
 
 
 

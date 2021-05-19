@@ -1,55 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 陈平谈生物战2新冠将会加强中国的领导地位和话语权
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1255569/)
+## 情报委员会副主席就病毒溯源给拜登的公开信
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1255601/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18232529/%E6%8D%95%E8%8E%B7_%E5%89%AF%E6%9C%AC-2.png)
-据[**华夏铸军魂**](https://weibo.com/5855598209?refer_flag=1001030103_) [2020年04月29日 05:23](https://weibo.com/5855598209/IFviFDxMs?refer_flag=1001030103_) 来自 [祖国反黑站超话](https://huati.weibo.com/k/%E7%A5%96%E5%9B%BD%E5%8F%8D%E9%BB%91%E7%AB%99)
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-[祖国反黑站](https://huati.weibo.com/6693671)*陈平*老教授坦言没想到中美关系会发展到*生物战*，还发展为全球性。老教授认为新冠疫情会导致美国大萧条，甚至分裂成几个国家。*陈平*老教授认为美国分裂成几大块对世界来说是好事；导致美国分裂都不是疫情最惨的结局，最惨的应该是印度、埃及等国会爆发更大的危机。对于*陈平*老教授的预见，你怎么看？ [L华夏铸军魂的微博视频](http://t.cn/A6A20Gih) [收起全文d](void%280%29;)
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18234507/N-3.jpg)thenewcivilrightsmovement.com
+昨天（5月17日）笔者发文，报道了众议院情报委员会副主席德文·努内斯（Devin Nunes）就中共病毒溯源、追责问题发表了致拜登的公开信【1】，今天看到了公开信的原稿，将其翻译供战友分享。
 
-陈平在视频中提到：
+尊敬的总统先生：
 
-［观视频的网友们，大家好，我是眉山剑客陈平，知彼知己胸怀天下，坚信市场化自由化的我的朋友们的理想主义寄托的最大的希望是什么呢？就是贸易战完了以后还存在着中美合作共存，虽然有些摩擦但是还没有在主要产业上脱钩、没有在国际范围内全面对抗，可以继续维持全球化、城市化，国内还可以继续执行发展超大城市的这么一个区域发展战略，特别是长三角、珠三角，然后现在又加了重庆这一带的、四川这一块的发展，如果以为国际形势可以给我们这样一个窗口，再给10年20年这样的机会。才有可能执行最近国资委起草的以中共中央国务院的名义发布的要素市场改革的这么一个计划，对新冠疫情发展以后的世界局势的一个最好的估计，我认为概率不会超过30%，我非常赞成毛主席的思维方式——要从最坏处着眼往最好处努力。
+作为我们正在进行的、有关中共国威胁美国经济和国家安全的监督调查的一部分，众议院情报常设特别委员会的共和党成员正在调查首次在武汉报道的中共病毒（COVID-19）疫情的起源，我们写信请求你们启动整个政府工作，以确定病毒的起源，并指示联邦机构和部门检查所有可能的情况，作为此类调查的一部分。
 
-所以前面我们市场派的经济学家已经给大家画了一个最完美的大饼了，我现在给大家一个最坏的估计，其实我每次做的最坏的估计，事实发生的时候还证明我的估计是保守的，比如说我原来设想贸易战大打的时候绝对没想到会有现在生物战这种规模，因为我当时的估计中国打不打贸易战、打到什么程度都是特朗普决定的，然后中国手上拿的牌呢都不敢玩，所以呢我想到的大打也就是金融战的程度、局部热战也有可能，但是没想到生物战，结果呢是全球性的，而且是威胁所有的阶层。
+在我们正在进行的调查过程中，我们已经确定了大量的间接证据，支持实验室泄漏可能是中共病毒起源的理论，彻底调查这种可能性至关重要，特别是鉴于中共国政府阻挠多国生物法调查和销毁重要证据（的行径）。
 
-那么我现在就来估计一下，这一场新冠疫情会造成的最坏的后果到什么程度，那么据我对美国的了解，很简单，第一条，我认为超过大萧条和二次大战，为什么呢？因为大萧条大概美国失业人口是20%到30%，然后参与二次大战，马上就解决就业问题，因为所有的工业企业马上开足马力生产，军火是消耗品，所以国防部订单可以无限地下单，政府可以无限地发债，然后呢失业工人可以大批地上战场，打死了就消灭过剩劳力了。
+一位政府高级官员证实了我们的发现，中共病毒的来源可能是实验室泄漏的结果。今年4月，国家情报总监解释说，“中共病毒要么是人类与受感染动物接触后自然产生的，要么是武汉一家实验室发生事故的结果。”然而，目前尚不清楚情报部门或美国政府的任何其他部门是否在寻求确定真相。
 
-所以美国加入二次大战一直到战后的马歇尔援助，维持美国繁荣维持了30年，但这套办法在这次新冠疫情的时候不起作用，为什么呢，特朗普有一个非常好的说法，看不见的敌人——invisible enemy，你根本找不到打击的对象，所以现在特朗普宣布承认紧急状态了，才过去半个月，美联储已经印钞的规模立刻就要从两万亿还要增加两万三千亿美元，我估计今年年底十万亿都挡不住的，美国的负债已经是二十几万亿了，债一下加一半，而且这个钱现在还不见得到得了个人和中小企业手里头。
+我们同意国务卿安东尼·布林肯（Antony Blinken）的评估，他最近说，中共病毒的起源很重要，“因为我们需要了解发生了什么，我们要有最好的机会防止它再次发生，并确保我们能够建立一个更加强大的全球卫生安全体系，确保我们能够预防、发现和减轻未来的流行病。这一切，必须从了解到底发生了什么开始。”
 
-为什么呢，因为美国的很多穷人是没有银行账户的也没家可以住，这些人传染的概率是很大的，纽约已经开始免费给穷人发三餐的食物，如果在美国的南部和西部我认为只能坚持几个月，为什么呢，因为美国的农业的话粮食生产是基本上可以自给自足的，但是他有一个严重的问题，什么问题呀？他的蔬菜水果是要大量依赖墨西哥进口，现在又有病毒进来，一旦中断，美国的社会就会引起很大的麻烦，那么这个麻烦会持续多长时间呢？我相信美国的食品的储存、医疗设备的储存凭美国的生产能力和动员能力坚持一年应该是问题不大，一年以上我认为就会很严重。
+此外，我想提请大家注意，美国政府的资金直接或间接地支持武汉病毒研究所（WIV）危险的军民两用科学研究，我们的调查结果虽然不完整，但表明美国支持了这项工作，尽管有明显证据表明中共军方参与了武汉病毒研究所。至关重要的是，您的政府必须审查这一问题，并确保在美国政府考虑与外国对手就未来合作研究军民两用项目，随时都能进行适当的威胁评估，这可能需要审查与这些决定有关的机构间的程序。
 
-所以请大家记住民以食为天，如果失业导致没有饭吃还要讲发展什么高科技什么高端服务业，那全是废话，然后考虑到美国全民武装都有枪，所以这个挑战对美国来说应该是建国以来所未有的，我认为比美国最大的内战南北战争还要严重，所以原来我有个预言如果是美国要坚持要打贸易战的话美国就会分裂，那么我看到的美国最能够分裂的地区恰恰就是我所住的地区也是美国经济的龙头，什么地方呢？就是加州和德州，如果为了自保开放和墨西哥的边界，然后让墨西哥的蔬菜水果送到德州和加州，同时也允许墨西哥的季节工人在德州和加州来从事辛苦的基建的工作，我认为他们会首先走出灾情，如果美国联邦政府要反对的话，会大大地激励德州和加州首先采取经济独立，类似于苏格兰要独立一样，美国如果是分解成几个大的区域，我认为对世界和平是有好处的。
+总之，我请求您的政府支持努力查明中共病毒的来源，并敦促您审查与资助危险的军民两用研究有关的机构间的进程，特别是在与外国敌对国家进行合作研究时。
 
-但是反过来看世界动乱的主要三大地区——中东、南亚和拉美，我认为问题要比美国会严重得多，人口结构年轻、人口密集，但大部分都挤在城市贫民窟，一旦疫情爆发要把城市平民驱赶下乡，乡下土地又没有实行过土改都是大地主所垄断，那么就会有两个前景，这两个前景如果发生问题比美国还要可怕，第一个前景就是这些贫民窟里面的穷人接触病毒的几率远远高于中产阶级和富人，所以这些国家可能会有上百万、上千万的人口死亡，就和以前发生的西班牙流感一样。
+随函附上给国家情报总监的一封信，其中包括许多悬而未决的问题，我的共和党同事和我希望您认可，了解真相是至关重要的，我们随时准备与您的政府合作解决这些问题。
 
-那么前景呢也会在疫情过后不是学中国的改革开放要搞全球化，而是反过头来要做某种形式的土地改革，要发展自己的粮食的独立的生产，要发展最基本的自己民族产业的医疗和工业设备，所以我认为在发展中国家和发达国家都会普遍地实行毛主席早就认识到的搞三线建设、搞自主的不依赖国外的粮食水电医疗设备，所以我认为你会看到一个全球化的逆行、城市化的逆行，重新回到某种程度的自给自足的小农经济比例，我认为对于国家来讲要想安定应该自给自足的小农经济的比例应该30%到50%，如果你是低于30%的话，那非常容易像埃及一样，粮食要依靠美国进口，然后就被美国控制，没有办法打仗，然后自然灾害的时候社会动乱的时候没有办法稳定。
+德文·努内斯（签名）
 
-那么如果某些国家比如说印度有受毛泽东思想影响的“毛泽东主义的游击队”在这样的情况底下发动革命，用革命的方式来没收大地主的土地解决吃饭问题有没有可能，我认为有很大的可能，大家不要忘记拉丁美洲天主教实际上是天主教社会主义，也是倾向于农民而不是倾向于大土地所有者。
+相关链接：
 
-那么这种前景如果爆发对美国、对印度、对拉美的和中东的某些国家来说可能是经过一段时间动荡，但是从世界大势来说，我认为也是一个好的趋势，为什么？因为东亚国家相对发展快就是因为做了土地改革，无论是中国的土改还是台湾的土改还是日本的土改韩国的土改都是要某种程度上土地要均田地，所以我认为从世界大势来说也是加强有社会主义色彩特别有很大的毛泽东思想的色彩的反对西方资本主导的、跨国主导的全球化和国际分工，而增加各个国家的自主经济发展的成分。
+【1】https://gnews.org/zh-hans/1251395/
 
-但是呢，对起草要素市场改革的理想主义者来说，显然是一个全球化的倒退，但是这个倒退我认为只会加强中国未来的领导地位和话语权，而不是削弱中国特色社会主义，我讲的是混合经济而不是市场经济的影响力，所以这是我的最坏的估计，但是对中国来说也是一个好事儿，好，知彼知己胸怀天下，我们也休息一下。］
+【2】https://assets.documentcloud.org/documents/20709271/20210516\_rm-ltr-to-president-biden\_re-covid-19.pdf
 
-在本则视频中，陈平直言不讳地提到了中共国发起的生物战——［我现在给大家一个最坏的估计，其实我每次做的最坏的估计，事实发生的时候还证明我的估计是保守的，比如说我原来设想贸易战大打的时候绝对没想到会有现在生物战这种规模，因为我当时的估计中国打不打贸易战、打到什么程度都是特朗普决定的，然后中国手上拿的牌呢都不敢玩，所以呢我想到的大打也就是金融战的程度、局部热战也有可能，但是没想到生物战，结果呢是全球性的，而且是威胁所有的阶层。］
+文字整理：
 
-那么中共国发起的生物战在最坏情况下可以达到哪些战果呢？
+Dear Mr. President:
 
-1、对美国的打击超过大萧条和二次大战，如果持续一年以上，美国的情况会很严重；
+As part of our ongoing oversight investigation related to Chinese threats to U.S. economic and national security, Republican Members of the House Permanent Select Committee on Intelligence are investigating the origins of the COVID-19 pandemic, which was first reported in Wuhan, China in 2019. We write to request that you initiate a whole-of-government effort to identify the origins of the virus and to direct federal agencies and departments to examine all plausible scenarios as part of such investigation.
 
-2、美国将会分解成几个大的区域，这对世界和平是有好处的；
+During the course of our investigation, which is ongoing, we have identified substantial circumstantial evidence supporting the theory that a laboratory leak could have been responsible for the origination of COVID-19. It is critical that this possibility be thoroughly examined, particularly in light of the Chinese government’s obstruction of multilateral bio-forensic investigations and its destruction of important evidence.
 
-3、对于中东、南亚和拉美会死亡上百万、上千万人口；
+A senior Administration official has confirmed our finding that the origin of COVID-19 could have been the result of a lab leak. In April, the Director of National Intelligence explained that either “[COVID-19] emerged naturally from human contact with infected animals or it was the result of an accident at a laboratory in Wuhan.” It is unclear, however, if the Intelligence Community or any other part of the U.S. government is seeking to determine the truth.
 
-4、疫情过后中东、南亚和拉美会搞土地改革，会自主发展自己的民族产业，出现全球化逆行、城市化逆行现象；
+We concur with the assessment of Secretary of State Antony Blinken who recently stated that the origin of COVID-19 is important “because we need to understand what happened if we are going to have the best possible opportunity to prevent it from happening again, and to make sure we can put in place an even stronger global health security system, to make sure that we can prevent, detect, [and] mitigate future pandemics. And that has to start with understanding exactly what happened.”
 
-5、印度会出现毛泽东式游击队革命并进行土地改革；
+In addition, I want to call to your attention the fact that U.S. government funds—whether directly or indirectly—are supporting dangerous dual-use scientific research at the Wuhan Institute of Virology (WIV). Our findings, though incomplete, suggest the United States supported such work despite clear evidence of the People’s Liberation Army’s involvement at the WIV. It is essential that your Administration examine this matter and ensure that appropriate threat assessments are conducted anytime the U.S. government considers collaborating with a foreign adversary on future dual-use research. This may require a review of the interagency processes associated with such decisions.
 
-最终的战果是什么呢——［对起草要素市场改革的理想主义者来说，显然是一个全球化的倒退，但是这个倒退我认为只会加强中国未来的领导地位和话语权，而不是削弱中国特色社会主义，我讲的是混合经济而不是市场经济的影响力，所以这是我的最坏的估计，但是对中国来说也是一个好事儿。］
+In summary, I request your Administration’s support for a whole-of-government effort to identify the origins of COVID-19 and urge you to undertake a review of the interagency processes associated with the funding of dangerous dual-use research—particularly when conducted with foreign adversary nations.
 
-（文章内容仅代表作者个人观点）
+Attached you will find a letter to the Director of National Intelligence, which includes many outstanding questions. My Republican colleagues and I hope you will agree that getting to the truth is of critical importance. We stand ready to work with your Administration to address these matters.
 
 0
