@@ -1,26 +1,164 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 达沃斯的取消标致着中美关系的不可逆转
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1255656/)
+## 朱利安·阿桑奇(Julian Assange)说：“我们生活在一个‘媒体政治’时代，政治上可能的事情由媒体环境决定。”
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255751/)
 
-**撰稿：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19004532/55-6.jpg)
-中共全网报道：由于新加坡新冠疫情近期反弹，本土新增确诊病例增多。世界经济论坛17日决定，取消定于8月中旬在新加坡举办的2021年特别年会。但定于6月初在新加坡举办的“香格里拉对话会”目前按计划筹备。
+字幕内容：
 
-如果按照中共党媒所说，达沃斯论坛的取消是因为新加坡疫情爆发原因，那么为何近在眼前的6月香格里拉对话会继续进行，而远在8月的达沃斯论坛却先行取消呢？显然，这种说法是不合理，并站不住脚的。
+Julian Assange
 
-世界经济论坛年会俗称达沃斯论坛。从开始至今，已经举办了五十年了，可以说，达沃斯论坛的五十年，也是经济全球化到达顶峰的五十年，但2021年，这个论坛的取消，则标致着经济全球化的落幕。
+阿桑奇：
 
-**之前还有传出王岐山将于美国副总统贺锦丽将共同出席本届达沃斯论坛**，还在墙内引发了一波对拜登总统上台后美好愿景的畅想。但随着中美关系的跌入谷底，全世界开始追责中共病毒，中共已经彻底被世界舞台抛弃，而且这样的国际局势下，各国政府也不可能在同一个舞台上把酒言欢，畅所欲言，因此，总部位于瑞士日内瓦的世界经济论坛17日在一份声明中说，考虑到新冠疫情全球肆虐，国际旅行恢复前景不明朗、各国疫苗接种进度不一、变异病毒传播令全球政商界和社会组织领袖难以线下聚首，因而决定取消原定8月17日至20日在新加坡举办的特别年会。
+Noam Chomsky, in ‘The Common Good’
 
-经济全球化的进程，最大的受益者是中美的精英和权贵阶层，**此次会议的取消，也意味着世界财富分配格局将重新洗牌。**
+诺姆·乔姆斯基(Noam Chomsky)，“共同利益”
 
-（本文只代表作者观点，与Gnews平台无关。）
+wrote that “ the smart way to keep
 
-**新闻来源：**
-[新加坡疫情反弹 达沃斯论坛取消、“香会”照办–国际–人民网 (people.com.cn)](http://world.people.com.cn/n1/2021/0519/c1002-32107266.html)
+写道：“让人们保持
 
-***校对发布**：文顾*
+people passive and obedient is to
+
+被动和顺从的聪明方法是
+
+strictly limit the spectrum of
+
+严格限制
+
+acceptable opinion but to allow a very
+
+可接受意见的范围，但允许在非常
+
+lively debate within a narrow section of
+
+狭小的范围内进行激烈
+
+that spectrum.”
+
+的辩论。”
+
+We live in a ‘Mediaocracy’,
+
+我们生活在一个“媒体政体”中
+
+what is politically possible
+
+什么在政治上是可能的？
+
+is defined by the media environment.
+
+是由媒体环境定义的
+
+I started Wikileaks because I understood
+
+我创办维基解密是因为我明白
+
+this reality, the media frame defines the
+
+这一现实，媒体框架定义
+
+political possibility.
+
+政治可能性
+
+So to bring about meaningful change
+
+所以要带来有意义的改变
+
+We have to enlarge the media frame.
+
+我们必须把媒体画面放大
+
+With Wikileaks we’ve had
+
+有了维基解密，我们就能
+
+significant successes in achieving this
+
+在一些领域实现这一目标上取得重大成功
+
+in some areas, but more needs to be done.
+
+但还需要做更多的工作
+
+The single greatest contributor to our
+
+我们最伟大的贡献者来
+
+expanding horizons is you.
+
+开阔我们眼界的是你
+
+You telling your friends what’s up,
+
+你告诉你的朋友们发生了什么事
+
+what you saw, what you believe,
+
+你看到的，你相信的
+
+and who’s full of it.
+
+以及那些满嘴胡言乱语的人
+
+Contrasting what appears in the
+
+对比显示在
+
+Australian press to itself and to the world.
+
+澳大利亚媒体对其自己和世界都是如此
+
+You form part from the largest
+
+你们是最大的组成部分
+
+bullshit detecting machine the world has
+
+世界上有一台废话探测机
+
+ever seen.
+
+从未见过的
+
+That’s why Wikileaks has such support
+
+这就是为什么维基解密从暴露在互联网上的人
+
+from people exposed to the Internet
+
+那里得到如此的支持
+
+that’s why we have such support from this generation
+
+也就是我们得到这一代人如此多的支持的原因
+
+because you’re better informed.
+
+因为你们消息灵通
+
+This is the best educated
+
+这是受过最好教育的
+
+generation in the history of the world.
+
+世界历史上最伟大的一代
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频连接: [https://twitter.com/disclosetv/status/1389179026372243459?s=24](https://twitter.com/disclosetv/status/1389179026372243459?s=24)4
+
+英听校:康州盘古农场-WZ
+翻译: 康州盘古农场-WZ
+翻译终校: 康州盘古农场- Mike Li
+字幕+视频制作:康州盘古农场-天涯行
+审片: 康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

@@ -1,92 +1,204 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》解读佩洛西呼吁抵制北京冬奥会，《无尽边疆法》在参院开始辩论，及中欧投资协议或将被终止
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1255649/)
+## 新冠肺炎在印度的数字激增：“我们已经看到又一天有超过3,000人死亡。”
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255721/)
 
-直播视频：
+字幕内容：
 
+Neha Poonia
 
+尼哈·普尼亚(Neha Poonia)
 
-《路德时评》2021年5月18日晚间节目主要内容：
+We have seen slit deep in the affection in the report in the last
 
-一、佩洛西呼吁抵制北京冬奥会
+在周日的过去24小时里，我们看到这份报告中的数字被深深地撕裂了
 
-美国之音最新报道称[\[1\]](https://www.voachinese.com/a/pelosi-calls-for-diplomatic-boycott-of-beijing-winter-olympics-20210518/5895602.html)：美国众议院议长南希·佩洛西(Nancy Pelosi)星期二(5月18日)呼吁对2022年北京冬季奥运会实行“外交抵制”。她批评中共国政府践踏人权并说，全球各国领导人如果出席奥运，将失去他们的道德权威。美国议员越来越高声呼吁抵制北京奥运或将冬奥会易地举行，他们还抨击美国公司对种族灭绝行为保持沉默。美国国务院已经把中共国政府对维吾尔人和其他少数民族的打压定性为种族灭绝。民主党人佩洛西在两党就这项问题举行的听证会上说，世界各国元首应当避免出席北京冬奥会。
+24 hours on Sunday India record about 390,000 cases on Monday that number dipping
 
+因为监测到的数字刚刚下降到36万例, 却在周一录得
 
+just monitoring over 360,000.
 
-> 美国国会兰托斯人权委员会与国会及行政当局中国委员会18日举行联合听证，主题为“中国，种族灭绝与奥运会”，China, Genocide and the Olympics，众议院议长佩洛西在听证上提出鉴于中国的人权纪录要对北京冬奥会进行外交抵制。 [pic.twitter.com/zR8XUhXsq0](https://t.co/zR8XUhXsq0)
-> — 美国之音中文网 (@VOAChinese) [May 18, 2021](https://twitter.com/VOAChinese/status/1394777872078942213?ref_src=twsrc%5Etfw)
+大约39万例病例
 
+We’ve seen more than 3,000 deaths for another day running.
 
+我们已经连续一天看到3000多人死亡
 
-路德社评论：
+But most expertise are cautioning against any kind of optimism.
 
-1、前国务卿蓬佩奥在1月19日正式定性中共在新疆犯下种族灭绝罪和反人类罪后，该事件开始在全世界发酵，美国各党派议员都因中共在新疆犯下种族灭绝而公开抵制北京冬奥会，佩洛西也是如此。
+但大多数专家都告诫不要持任何形式的乐观态度
 
-2、佩洛西呼吁对北京冬奥会实施“外交抵制”，由于奥运会属于民间运动会，美国政府无权干涉运动员参加奥运会，美国政府可以禁止派美国外交代表团前往北京，而中共国恰恰相反，中共国运动员大都来自国家体校，国家体校都是由国家投入资金来培养运动员。如果所有国家都开始抵制冬奥会，这就达到了抵制北京冬奥会的目的，那计划参赛的运动员都会思考他们的决定是否在支持中共的种族灭绝行为。
+Warning this does not represent the full picture of the outbreak in the country.
 
-3、习之所以要大搞冬奥会，就是想在连任前为自己营造出一种万邦来朝的盛世，只要所有国家都开始抵制，习神最终只能联合朝鲜、俄罗斯和伊朗这些国家自己玩耍。
+他们警告说，这并不代表该国疫情的全貌
 
-4、虽然佩洛西呼吁各国政府对冬奥会进行外交抵制，共和党还是会批评佩洛西，因为共和党呼吁全面抵制冬奥会。最早提出抵制北京冬奥会的是共和党建制派议员罗姆尼，甚至还有议员提出要更换冬奥会举办地，这就是美国以法灭共的重要一步，抵制冬奥会的大方向已经形成，接下来就看如何抵制。
+For weeks now, it’s really difficult to get self adjusted if you have symptoms of Covid-19
 
-二、《无尽边疆法案》正式在参议院开始辩论
+几个星期以来，如果你有新冠肺炎的症状，真的很难自我调整
 
-美国之音新闻网5月18日报道[\[2\]](https://www.voachinese.com/a/us-senate-move-forward-with-endless-frontier-act-20210517/5894529.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)：星期一(5月17日)，参议院以86票对11票的表决结果，终止了围绕《无尽边疆法》(The Endless Frontier Act)的冗长辩论程序，把法案向前推进。这部法案将把授权拨款的大部分金额、也就是1千亿美元，用于投资基础与先进技术研究、研究成果商业化以及人工智能等关键技术领域的教育培训项目。
+and most expertise are warning that because of that many people who are sick,
 
-参议院多数党领袖、民主党人查克·舒默(Chuck Schumer)说，参议院将从星期二开始就这部法案进行一或两个星期的辩论。参议院商务委员会上星期三（5月12日）以24票对4票的表决结果通过了这部法案。白宫星期一对《无尽边疆法》表示了支持。
+大多数专家警告说，由于有这么多人生病，
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19003844/%E5%8F%82%E8%AE%AE%E9%99%A2%E5%A4%9A%E6%95%B0%E5%85%9A%E9%A2%86%E8%A2%96%E8%88%92%E9%BB%98.jpg)[参议院多数党领袖舒默](https://gdb.voanews.com/051B63B0-8D52-4B66-8FEA-9B7113B6E1CD_cx0_cy2_cw0_w1023_r1_s.jpg)
+nothing reflected in this numbers
 
-路德社评论：
+这些数字并没有反映出来
 
-1、该法案上周率先通过参议院商务委员会投票，然后进入参议院审议程序，所有参议员在投票前都需要对该法案提出意见，参议院以绝对优势通过了该法案的辩论环节，进展非常顺利。该法案一旦通过，这意味着美国正式宣布与中共国的科研学术界脱钩，为了弥补其中的损失，美国将批准一千亿美元预算进行补偿。
+and it’s quietly like India about 5-6 times larger than official numbers represent.
 
-2、《无尽边疆法》是由美国民主党与共和党议员联合推出的法案，从投票结果来看，该法案已经获得大部分议员支持，而且没有党派偏见，接下来就是补流程。
+很有可能是印度官方公布数据的5-6倍
 
-3、该法案一旦通过，将彻底杜绝中共对美国先进科技领域的假骗偷。美国现在已经意识到中共绝不是战略竞争对手这么简单，双方就是你死我活的结果。美国原先希望让中共加入WTO，为全世界提供廉价的商品，待中共国经济获得发展之后能推进中共体制改革，更好地融入西方社会。但是，中共几十年来通过假骗偷方式从美国偷窃高科技，中共病毒研发就是最好的例证，这严重威胁美国国家安全。
+Reporter:
 
-4、谁掌握科技谁就拥有未来世界的话语权，中共体制不可能自主研发出高科技，如果中共利用美国科技来打倒美国，这将是美国历史上最大的灾难。《无尽边疆法》涵盖5G、人工智能和量子计算等高科技领域，这些科技都可能对美国国家安全构成巨大威胁，所以该法案最后一定会被通过。
+记者问:
 
-5、虽然有些共和党议员对该法案提出反对意见，但他们并不是要反对与中共进行科研脱钩，而是认为该法案对中共不够狠，例如卢比奥就认为必须严防美国科研资金落入任何与中共军方有关的企业中。美国两党整体的转向注定美国必将与中共进行科技脱钩，这将进一步导致中共经济下滑。
+What’s been the reaction to the travel ban? That’s been set in place by the Biden’s administration
 
-6、美国民间研究机构的科研经费大多来自于企业或海外其他机构，中共就可以通过对这些研究机构提供资金支持的方式轻易地获得研究结果，美国民间机构中被中共渗透的科学家在其中起着牵线搭桥的作用，该法案的通过就堵上了中共获得科研成果这条路，中共国的科技到时将出现巨大问题。
+对旅行禁令有何反应？拜登政府已经制定好了方案
 
-7、美国推动灭共的核心依然是中共病毒问题，但表现出的却是经贸问题、人权问题和科技问题。美国已经深刻认识到中共就是想破坏现有的国际秩序，如果美国再不行动，这些正被病毒威胁的西方国家都将被中共拿下。中共统治下的独裁政权绑架了14亿老百姓，这种绞肉机体制注定中共会渗透美国，通过假骗偷的方式从美国偷窃专利技术来发展自己，这也是中共从德国纳粹和前苏联失败的教训中总结发展出来的新打法，所以美国必须率先跟中共国进行高科技领域的脱钩，再通过其他相对次要的合作来缓解两国紧张的气氛，这种压迫方式能促使中共经济下滑，让中共内部政治崩塌。
+Neha Poonia:
 
-8、结合这几天所有的消息，《无限边疆法案》彻底切断了两国的科学合作、学术交流和人才交流；美国SEC七月将通过外国上市公司退市规则，所有中概股都将退市并面临法律追责；戴琪正在从法律和人权角度切断中美贸易；美国议员开始推动并呼吁政府要抵制北京冬奥会；北约与亚约成员国正在印太地区做全面军事部署；蓬佩奥等多位美国离任和现任官员公开宣称病毒来自中共实验室；美国数十位科学家与WHO要求中共接受病毒调查；Sellin上校正在发动所有力量收集中共布下的病毒研究网络……这所有的行动有些是防守，有些是进攻，美国正在加紧通过法律来补上所有的漏洞。巴以冲突已经让全世界看清楚，只要以色列有机会采取行动就能一击制胜，这对解决朝韩问题、中东问题和台海问题具有重要的参考价值，美国整个国家机器正在为最后的诺曼底登陆做全面布局。
+尼哈·普尼娅(Neha Poonia)：
 
-9、文贵先生从2017年站出来推动爆料革命，路德社从2018年开始跟随爆料革命提醒墙内老百姓要屯粮、换美元、中美即将脱钩等等信息，美国早已经为灭共准备了多年，这几年在漫长的人类历史中却显得非常短暂，爆料革命提前几年爆料中共必亡的所有信息，现在都被一一验证。
+But that’s not been really surprising, because the US is not the first country
 
-三、欧议会即将通过冻结中欧投资协议的议案
+但这并不令人惊讶，因为美国并不是第一个
 
-预计欧洲议会将在周四通过一项议案，正式冻结与中共国的投资协议，议会将投票敦促“由于中共国实施了制裁，因此对中欧全面投资协定的任何考虑以及对欧洲议会批准的任何讨论均已被合理冻结。”议案草案还将呼吁欧盟与美国“加强协调与合作”，以对付中共国，同时强调与北京的贸易“不应被与台湾的任何交易作为人质”。
+to impost travel restriction to and from India.
 
+对往返印度实施旅行限制的国家
 
+We’ve seen over the last few weeks, several countries do this, including Canada,
 
-> [#Exclusive](https://twitter.com/hashtag/Exclusive?src=hash&amp;ref_src=twsrc%5Etfw): The European Parliament is expected to pass a motion on Thursday to formally freeze the investment agreement with China, according to a draft seen by [@POLITICOEurope](https://twitter.com/POLITICOEurope?ref_src=twsrc%5Etfw). [https://t.co/0nAEsmxj0P](https://t.co/0nAEsmxj0P)
-> — Stuart Lau (@StuartKLau) [May 18, 2021](https://twitter.com/StuartKLau/status/1394756744862216192?ref_src=twsrc%5Etfw)
+在过去的几周里，我们看到有几个国家这样做，包括加拿大、
 
+Hong Kong, Australia, Israel,
 
+香港、澳大利亚、以色列
 
-路德社评论：
+as well as many other countries in Europe, as well including UK
 
-1、中欧投资协定原本已经谈妥，就差双方正式签署文件，由于中共国对谴责中共在新疆犯下种族灭绝的欧洲议员实施制裁，导致欧议会开始就冻结中欧投资协议进行投票，这完全是中共国自己作死的结果，欧洲也开始与中共国切割。
+以及包括英国在内的许多其他欧洲国家
 
-2、中欧投资协议意味着欧盟全面对中共国开放，接受中共投资欧盟，中共可以更好地偷窃欧洲技术，甚至还能以欧盟为跳板偷窃美国技术。
+and this has been disappointed, because as many Indians travel frequently to US.
 
-3、欧盟是由数十个欧洲国家组成，这些国家大多是多党制，每个党派影响力非常有限，中共很容易对他们进行蓝金黄，但是，欧盟在这件事上却一致对抗中共，这肯定与中共病毒有关。中欧投资协议从准备到谈妥历经了九年将近40次谈判，并在去年12月30日达成一致，短短五个月就出现翻转，这背后就是因为中共病毒。
+这令人失望，因为许多印度人经常往返美国
 
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+We’re hoping to leave the country, many tours, because of the surging cases,
 
-参考文章：
+我们希望离开这个国家，很多旅客，因为病例激增，
 
-[1][https://www.voachinese.com/a/pelosi-calls-for-diplomatic-boycott-of-beijing-winter-olympics-20210518/5895602.html](https://www.voachinese.com/a/pelosi-calls-for-diplomatic-boycott-of-beijing-winter-olympics-20210518/5895602.html)
-[2][https://www.voachinese.com/a/us-senate-move-forward-with-endless-frontier-act-20210517/5894529.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/us-senate-move-forward-with-endless-frontier-act-20210517/5894529.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+because access to the medial care here has been so very difficult.
 
-文章撰写：【重生】  编辑：【香柏树】
+因为获得这里的医疗服务已经非常困难
 
-本文仅代表作者个人观点
+Flights of international carrier area at India are booked out in the end of May
 
-+2
+印度区域的国际航空公司的航班到5月底已经被预订一空
+
+But many of those people were planning to leave the country now,
+
+但这些人中的许多人现在计划离开这个国家
+
+are not going to be able to do that,
+
+但他们不能这样做，
+
+they are also concerns that this is mightily to some sort of a stigma against Indians,
+
+他们还担心这很可能是对印度人受到屈辱对待
+
+because of variant B6 and 71 has been identified here.
+
+因为变异毒株B6和71已经在这里被鉴定出来。
+
+It’s believed to be highly transmissible and highly efficacious.
+
+人们认为它具有很强的传染性和高效性
+
+But Indian government is not yet linking the current surge to this variant.
+
+但印度政府还没有将目前的激增与这一变异体联系起来
+
+Reporter:
+
+记者问:
+
+Final question for you, Neha. Have we seen any surge of relieve effort being
+
+最后一个问题，尼哈。我们有没有看到美国向印度
+
+sent by the US to assist in India?
+
+提供大量的救援解困工作?
+
+Neha Poonia:
+
+尼哈·普尼娅(Neha Poonia)：
+
+We have seen several shipments arriving at India.
+
+我们已经看到几批货物抵达印度
+
+The latest reach in India at early hours of Monday morning.
+
+最新消息,周一凌晨到达印度
+
+There’ve been thousand ventilators and as well as essential drugs like Remdesivir,
+
+已经有上千个呼吸机和像瑞德西韦这样的重要药物，
+
+which comes from the United States, it has been aid that India desperately needs,
+
+来自美国，都是印度迫切需要的援助，
+
+but there happened concerns about what the India government is doing with these aids.
+
+但人们对印度政府如何处理这些援助感到担忧
+
+It’s understood a lot of shipments has not yet reach to hospitals desperately need it
+
+据了解，很多货物还没有被送到急需它的医院。
+
+Here in Delhi, I can tell you that for 2 weeks running we have seen
+
+在德里，我可以告诉你，我们已经连续两周看到人们
+
+the desperately scrumbled for beds and medical oxygen
+
+拼命地寻找床位和医用氧气
+
+And many are asking why this oxygen concentrators, these oxygen cylinders,
+
+很多人都在问，为什么这些氧气浓缩器、这些氧气瓶
+
+essential drugs are not reach to hospitals
+
+基本药物不能送到医院呢？
+
+who are struggling to cop with these massive numbers
+
+他们正在努力应对如此庞大的数字
+
+many of them who are must turning patient away
+
+他们中的许多人必须把病人拒之门外
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频连接: [https://twitter.com/newsmax/status/1389243350277001220?s=24](https://twitter.com/newsmax/status/1389243350277001220?s=24)
+
+英听校:康州盘古农场-WZ
+翻译: 康州盘古农场-WZ
+翻译终校: 康州盘古农场- Mike Li
+字幕+视频制作:康州盘古农场-天涯行
+审片: 康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0
