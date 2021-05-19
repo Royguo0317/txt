@@ -1,148 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 保险公司专家评估功能增强实验的风险，他们不喜欢他们看到的情况
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255913/)
+## 外媒观察：中共国与印度尼西亚成为朋友说明什么
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1255978/)
 
-字幕内容：
+撰稿：喜妈
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19035418/%E4%B8%AD%E5%85%B1%E5%9B%BD%E4%B8%8E%E5%8D%B0%E5%BA%A6%E5%B0%BC%E8%A5%BF%E4%BA%9A.png)`（来自网络截图）`
+新加坡媒体报道：最近，中共国和印度尼西亚“在雅加达沿岸进行的联合海军演习”，这个动态显示出两个国家之间“更加紧密联系的最新标志”。文章还指出，中共国此前“主动”提出要救助沉没的潜艇也是一个不同寻常的友好信号。此举引起了澳大利亚的反应。澳洲方面相关研究指出，印度尼西亚和中共国进行共同的海军演习是“务实的”；但这也是中共国“利用与东南亚最大国家的不断加强的合作向澳大利亚发送信息”。
 
-Gain-of-Function Research International Workshop 2012
+文章指出，印度尼西亚和中共国两国之间在16个月前，还存在“水上的紧张对峙”；当时印度尼西亚总统约科·维多多在纳托纳群岛部署军舰，“以争夺印度尼西亚声称是其专属经济区的地区的捕鱼权”。可是由于中共国4月提出帮助印度尼西亚“免费”救助沉没的潜艇，而赢得了对方的承认。这个举动“击败了来自澳大利亚和美国的其他救助提议”，而中共此举却让“一些地区安全观察员对此表示怀疑”。
 
-2012年功能增强国际研讨会
+文章指出，澳洲和中共国之间，有些立场态度“正式化了”。具体来说，就是“澳大利亚对中共国的批评更加自信和直率”。与此同时，印度尼西亚虽然与中共有关系上的松动，印度尼西亚总统还是“表示不赞成中国在纳图纳群岛专属经济区及其周围地区采取的行动”。
 
-Man（one）
+澳洲方面评价印度尼西亚此举，“一定程度的实用主义”，印度尼西亚希望以“建设性地参与进来并避免升级和误解”。而澳大利亚深知，建立与东南亚国家联盟地区集团中最大的国家印度尼西亚之间的防务关系，是“莫里森政府在追求印度太平洋地区安全的既定目标中的当务之急”。
 
-男士一：
+文章指出，中共国军方希望与印度尼西亚军方建立“更紧密的关系”，在此基础上，中共国政府提出的“要求跨越印度尼西亚管辖权和主权的挑战”也给印度尼西亚政府带来了“巨大的困难”。文章引用相关研究人士观点，从现实的角度，“雅加达有义务与中共国合作”，原因有二：“中共国是印度尼西亚第二大外国投资者”，同时“也是印度尼西亚中共疫苗的主要供应商”。
 
-The second question just was very bravely：
+从以上的文章资讯，笔者认为，可以帮助管窥亚太地区的形势。具体来说就是，中共正在积极地与东盟有影响力的国家示好，希望在全面被世界孤立的状态下，通过自己的主动伸出橄榄枝，得到一二缓冲地带和表面上的盟友。
 
-第二个问题非常大胆：
+当然，在对中共国的狼子野心已经都有觉悟和了解的前提下，亚太各国都知道这些中共的表面之举是说明不了什么，也不会真的相信它所谓的合作和友好。因此，这也就是为什么印度尼西亚虽然一方面接受中共的主动合作，却又坚持自己相关海域经济区的利益的立场。同时，正处在明确立场中的澳洲也看明白了中共的用意，它的别外之心。因此，澳洲在这些中共的动态中，非常明智和清楚地继续自己的原则和态度。从这个角度，中共已经是实际上的孤家寡人，即使对方出于疫情控制和经济军事上现实需求暂时有一定的友好与合作，都是不会长远和稳固的。真相教育所有人，真相唤醒所有人。
+(本文仅代表作者个人观点)
+编辑：MG 4
+欢迎加入【澳喜农场】
+【澳喜文章1】
+【澳喜文章2】
 
-“Has anybody thought about the legal ramifications of this,
+参考资料：
 
-“有没有人想过这件事的法律后果
-
-if anything did ever happen
-
-如果真的发生了什么事
-
-what’s kind of legal exposition for scientists or funders
-
-如果我们创造的新病毒被传播出去
-
-if new virus we created had get out
-
-对人类造成了巨大的经济损失
-
-did cost the substantial economic in human harm?”
-
-对科学家或资助者有什么法律论述？
-
-Thank you
-
-谢谢。
-
-Host:
-
-主持人：
-
-Peter Halar with the Foundation for Vaccine Research in Washington
-
-彼得·哈勒(Peter Halar)，华盛顿疫苗研究基金会(Foundation For Vaccine Research)。
-
-Peter Halar
-
-彼得·哈勒(Peter Halar)
-
-We feel that the issue of liability that insufficient attention
-
-我们觉得责任问题没有引起足够的重视
-
-has been given to the issue of liability
-
-这一点已经涉及到责任问题
-
-The organizer of the Sigma conference 35 years ago
-
-35年前西格玛会议的组织者
-
-made sure that were lawyers participating in that meeting
-
-确保当时有法律顾问参加那次会议
-
-Which let you know regardless of recovery technology
-
-无论采用何种恢复技术，都能让您知道
-
-There is another community that I think should be involved
-
-我认为还有另一个社群应该参与进来
-
-We think should be involved to that is insurance companies
-
-我们认为应该牵让保险公司加入进来
-
-The insurer don’t like what they are seeing and
-
-保险公司不会喜欢他们所看到的
-
-they don’t like what this is going
-
-他们不喜欢正在进行的事情
-
-in particularly
-
-尤其是
-
-the largest insurance companies that we reinsure
-
-我们再保险的公司是最大的保险公司
-
-Other insurance companies that experts on risk assessment
-
-其他保险公司的风险评估专家
-
-and they don’t like what they see
-
-他们不喜欢他们所看到的
-
-we understand that in the secret meeting in London at Lloyd’s of the reinsurers
-
-我们了解这是在伦敦劳合社举行的再保险公司秘密会议上的内容
-
-How we are going to reinsure
-
-我们怎样才能再保险呢？
-
-even with the most stringent bio safety rules and procedures ?
-
-即使有最严格的生物安全规则和程序？
-
-How on earth we are going to reinsure to reinsure ?
-
-我们究竟要如何再保险才能再保险呢？
-
-How we are going to reinsure insurance companies ?
-
-我们将如何为保险公司提供再保险？
-
-we’ve seen premium going up already
-
-我们已经看到保费上涨了
-
-How we are going to reassure this is safe ?
-
-我们如何才能保证这是安全的呢？
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://twitter.com/functiongain/status/1389152242360623106?s=24](https://twitter.com/functiongain/status/1389152242360623106?s=24)
-
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场- Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片: 康州盘古农场-银龙
-发布：康州盘古农场-文韵
-
-0
+[https://www.smh.com.au/world/asia/as-china-freezes-out-australia-the-superpower-befriends-indonesia-20210510-p57qjf.html](https://www.smh.com.au/world/asia/as-china-freezes-out-australia-the-superpower-befriends-indonesia-20210510-p57qjf.html)
+![]()![](https://gnews.org/wp-content/uploads/2021/05/1-澳喜Logo-2.jpeg)
++1

@@ -1,91 +1,424 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 陈平谈生物战4中国打赢了生物战人民战争的首个战役
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1256007/)
+## “中共想摧毁我们，他们想统治世界。”
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1256063/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19041217/%E6%8D%95%E8%8E%B7_%E5%89%AF%E6%9C%AC22555.png)
-据[**眉山论剑陈平**](https://weibo.com/u/6616523296) [2021年1月2日 18:00](https://weibo.com/6616523296/JBkMt3gCn?from=page_1005056616523296_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d) 已编辑
+字幕内容：
 
-【年度总结——2020年之后的世界新格局】这一次中美贸易战和新冠疫情把美国打回了原形，颠覆了战后国际秩序，更使得美国霸权趋于瓦解。2020年的年终报告，发现打了贸易战以后，美国对中国的贸易逆差不但没有缩小，反而上升，中国的出口反而强劲。在新冠疫情的打击之下，中国是唯一一个在2020年逆势增长，保持了正增长率的国家。中国经济尤其是实体经济，经受了贸易战的冲击，而且也经受了美国科技战围堵的考验，中国民营企业和国有企业，都加强了对核心产业的自主研发和投资。2020年中国打赢了新冠疫情这场前所未有的人民战争。这个战争的结果，完全出乎大家的预料，也彻底颠覆了美国例外主义和西方中心论。这一次新冠疫情，我们面临的是生物学革命的时代所带来的生物战争。而在生物战争里面，头一次，是东亚以农业经济为主的文明，比中亚和西欧以牧业经济游牧经济为主的一神教的文明，要显示了更强大的生命力。2020年更标志着人类现代化进入了海权国家主导的现代化的衰落，而以中国为首的大陆农业国家主导的新的发展方式，将引领生物学革命以后的现代化。[#再见2020#](https://s.weibo.com/weibo?q=%23%E5%86%8D%E8%A7%812020%23&amp;from=default) [#跨年#](https://s.weibo.com/weibo?q=%23%E8%B7%A8%E5%B9%B4%23&amp;from=default)  [#v光计划#](https://s.weibo.com/weibo?q=%23v%E5%85%89%E8%AE%A1%E5%88%92%23&amp;from=default) [L眉山论剑陈平的微博视频](http://t.cn/A6qnlZg9)
+Gordon Chang
 
-陈平在视频中提到：
+章家敦
 
-［观视频的网友们大家好，我是眉山剑客陈平，知彼知己纵横天下，今天我们就来总结2020年然后展望2021年，我首先要回顾2020年我们究竟取得了什么样的记录——
+Well the Biden policy on Taiwan
 
-**一、****2020****年我们经历了什么？——中国视角**
+那么，拜登在台湾的政策
 
-那就是中国打赢了特朗普总统发动的贸易战，特朗普他上任以后对中国发动了一系列的贸易战、科技战、金融战、法律战、舆论战，在贸易战开始的时候，很多人都为中国捏把汗，海外和中国也有不少人认为中国打贸易战必输，特朗普自己给出互相矛盾的判断，是说加入WTO以后美国输了中国赢了、美国当世界警察是一个赔本的买卖。
+I think is actually quite good could be better
 
-这个是一个大实话，但是如果大家接受特朗普说的大实话的话，就应该明白贸易战是美国败军之将想要挑战胜利之师，那么目标呢？是要按败军之将定下的游戏规则来玩新的国际竞争游戏，而这个新的游戏规则呢，又是特朗普完全推翻二战以后美国自己制定的游戏规则。
+我认为实际上是相当好的，应该会更好
 
-所以这件事情让很多人迷惑不解,那么历史证明我在贸易战开始的时候对特朗普的预测和分析大体上还是正确的，因为我不认为特朗普这么一个地产商又不懂高科技、又不懂金融、又不是军火工业集团不可能有什么围堵中国的伟大的战略。
+But Peter Beinart who wrote that piece in the New York Times
 
-其实我看特朗普的国内的措施，第一条是在墨西哥边界修墙，修墙，你就和里根时代呼吁东德拆除柏林墙正好是倒转了180度，说明什么呢？说明美国在国际竞争里面是衰落了，而不是变强了，所以特朗普上台他的主要的目的是要维护美国国内白人少数种族主义的统治地位，所以在这点上，我看特朗普的非正统的保护主义的经济政策还有想要打贸易战来让制造业回流，这个企图是必然失败的。
+但是彼得·贝纳特（Peter Beinart）在《纽约时报》上撰文
 
-**二、****2020****年我们经历了什么？——中国视角观察一：****2020****年见证特朗普贸易战之败**
+doesn’t understand deterrence
 
-那么今年呢，我们也见证了特朗普贸易战的失败，大家看到打了贸易战以后，他原来许诺要制造业回流的那些铁锈地带的那些选区从红色州变成摇摆州，然后拜登总统竞选的时候也明确指出，给中国数以千计的商品加进口关税实际上是把负担转嫁到消费者的头上来，也打击了美国出口的农业的大州和能源州。
+不懂威慑
 
-所以你就知道中国经济在美国政治的走向里面扮演举足轻重的作用，2020年的接近年终的报告发现打了贸易战以后美国对中国的贸易逆差不但没有缩小反而上升，中国的出口反而强劲，在新冠疫情的打击之下，中国是唯一一个在2020年逆势增长保持了正的增长率的国家，中国经济尤其是实体经济经受了贸易战的冲击 ，而且也经受了美国科技战围堵中国核心技术的企业，特别是围堵华为并没有成功，反而刺激了中国民营企业和国有企业，都加强了对核心产业的自主研发和投资，所以这是2020年的我的第一个观察。
+and he certainly doesn’t understand China’s motivations
 
-**三、****2020****年我们经历了什么？——中国视角观察二：****2020****年打赢疫情防控的人民战争**
+并且他当然不了解中共国的动机
 
-**第二个观察是中国在新冠疫情的袭击中打赢了一场前所未有的防控生物战的人民战争，这个战争的结果完全出乎大家的预料，也彻底地颠覆了美国例外主义和西方中心论，**号称自由民主、科技最先进的美国在这次新冠病毒的袭击之的下累计的感染率是全世界最高的，西方中心论的地区特别是自以为新教伦理是资本主义发展的基础，新教文化要优于天主教文化、东正教文化、伊斯兰教文化当然还有东亚文化，这个德国社会学家马克思.韦伯提出来的理论并不成立。
+you know he Peter Beinart point something
 
-结果是倒过来的，表现最好的是东亚的儒家文化的国家，包括新加坡、韩国他们的感染率和死亡率都远远低于西方文化的国家，但是也比中国要高，所以在这一点上，**我觉得这一次新冠疫情的这一场人民战争是彻底检验各国的社会体制，还有各国的文化、各国人民应对危机的组织能力，一个前所未有的历史考验，****2020****年中国打赢贸易战、科技战、尤其是生物战的成就是历史上前所未有的、划时代的历史记录。**
+你知道他，彼得·贝纳特指出些东西
 
-**四、****2020****年的历史转折——美国视角，观察一：疫情逆转新自由主义主导的全球化**
+that’s true that in war games the U.S. always loses
 
-下面我要从美国历史的角度来考察2020年在历史上的地位，第一个观察，这一次的新冠疫情打击了美国所有的阶层，而且打击最严重的恰恰是我们国内最崇拜的高端服务业，所以美国政府首先要抢救的就是美国的航空工业、波音飞机公司，还要抢救高端的旅馆业，美国最重要的国际大都市包括纽约、洛杉矶、旧金山、西雅图都成为新冠疫情的重灾区，给我们的启示是什么呢？
+诚然，在战争游戏中
 
-这一次的贸易战和新冠疫情将会逆转过去四十年来盛行西方尤其是从英国和美国开头的撒切尔夫人和里根总统倡导的新自由主义，他们的首要的目标就是什么呢？一方面要搞星际大战，维持冷战时期对社会主义国家的军事优势和金融优势，同时另一方面又以减税为号召大幅度地削减社会福利，让财富向百分之一和千分之一的寡头手中集中。
+when it comes to Taiwan
 
-所以过去四十年美国新自由主义主导的全球化，你会看到全世界的经济发展的不平衡急剧增加，贫富差距、区域差距然后还包括种族差距急剧扩大，所以新自由主义的政策先打垮了拉美，然后打垮了东欧和苏联，然后又冲击了东南亚，但是在中国被逆转，然后让美国虚拟资本的投机浪潮最后反转来打回美国，造成2008年美国的发源的金融危机，而这个金融危机影响了全世界。
+美国在台湾问题上总是失败的
 
-现在这一轮贸易战和新冠疫情的传播实际上是2008年金融危机美国政府挽救金融寡头而不挽救实体经济不挽救老百姓的结果，所以这是2008年金融危机的余波。
+but that doesn’t mean we can’t deter Taiwan
 
-恰恰是在2008年金融危机以后，中国逆势而上，然后和美国调转了国际竞争的地位，按照我的计算，真正的健康的GDP总量和无论是按照兑换率计算还是按照购买力平价计算，中国实际上都已经超过了美国，所以现在中国国内自由派、崇美派对美国的崇拜实际上是没有根据的，但是在这一次贸易战和生物战以后，把美国打出了原型，所以我认为特朗普这四年任期试图挽回美国的衰落的国际地位结局是失败的。
+但这并不意味着我们不能阻止台湾被侵略
 
-那么这个失败不仅是特朗普个人竞选总统连任的失败，也是美国和英国主导的过去四十年的新自由主义所主导的全球化的失败，所以美国、欧洲的发展模式、现代化模式不值得中国仿效重复，这是从美国的第一个观察。
+because Xi Jinping the Chinese ruler
 
-**五、****2020****年的历史转折——美国视角，观察二：特朗普颠覆美国二战后建立的国际秩序**
+因为中共的统治者习近平
 
-第二个观察，特朗普的贡献还不仅仅在于颠覆新自由主义，他是颠覆二次大战以后以马歇尔援助为标志，也包括建立联合国、国际货币基金组织、世界银行整个一套，包括现在的WTO、世界的国际政治经济地缘政治的秩序，被特朗普认识到这是一个赔钱的买卖，不可持续，所以特朗普颠覆的是美国在二次大战以后建立的国际秩序。
+his number one foreign policy goal is
 
-而二次大战的结束到现在已经70年了，美国还拒绝在德国、日本撤军，也拒绝从韩国撤军，目的完全不是什么防止第三次世界大战，就是为了维持美国的军事和金融霸权来控制全世界国际贸易的定价权，所以现在美国虚高的人均GDP这个价格完全不是马克思和古典经济学亚当斯密所理想的等价交换而完全是利用他们优势的科技、军事、金融力量进行的不平等交换，而这个美国的霸权现在正在瓦解之中，所以这是七十年以来的变化。
+他们首要的外交政策目标是
 
-**六、****2020****年的历史转折——美国视角，观察三：今天的中国就像****1900****年的美国**
+the maintenance of communist party rule
 
-我还要给大家一个观察，因为我以前曾经批评过国内的主流经济学家，认为中国今天的地位是1970年代的日本，所以中国高增长的前景很快要结束了，我的回答是这个判断是错误的，中国今天的地位是1900年的美国，因为1900的时候，美国的工业生产达到世界第一位，超过了所有其他工业国家，这和中国今天的国际地位相似。
+维持共产党统治
 
-但是美国没有掌握科学的领导权，当时科学的领导权在德国手里，无论是量子力学还是相对论的创造，都是德国为主，还加上英国、法国、意大利和苏联的科学家。
+and if he feels that there would be unacceptably high casualties
 
-在美国建造第一个原子反应堆、第一个计算机其实都是欧洲训练出来的科学家，然后当时的金融霸权也不在美国手里，在英国手里，军事霸权当时海军在英国，陆军在德国，也不在美国手上。
+如果他觉得会有大量的人员伤亡
 
-所以我到现在还认为我几年前的判断是对的，中国今天的国际地位是1900年的美国，虽然工业产值总量世界第一，但是没有掌握科学的主导权，也就没有掌握核心技术的主导权，所以中国现在还只是在赶超，核心技术、科学、独立的基础研究还差得很远，一个重要的原因是中国到现在为止还没有学美国真正重要的经验，就是把一流大学建在中小城市和乡村，把大片的国有土地和国有资产作为大学基金划拨给大学，能够做独立的基础研究，而不是依靠短期的财政部的拨款或者地方政府的拨款。
+he’s not going to attack Taiwan
 
-**七、****2020****年标志是什么？**
+他不会去攻击台湾
 
-**那我认为中国今年见证的历史确实是百年不遇的历史，今年中国打赢了生物战的人民战争的第一个战役，实际上标志着人类历史上****500****年以来从未有过的变革，那就是海洋国家主导的四次全球化，都以海洋霸权的衰落而结束。**
+but we need a clear declaration from the administration saying
 
-但是我们这次看到的变化是从科学革命来说是从第一次工业革命背后的是物理学的革命，后面几次的工业革命实际上是化学的革命，包括两次大战和核战争，**但是我们这一次新冠疫情我们面临的是生物学革命的时代所带来的生物战争，而在生物战争里面，头一次是东亚以农业经济为主的文明比中亚和西欧的牧业经济、游牧经济为主的一神教的文明要显示了更强大的生命力。**
+但我们需要政府明确声明说
 
-**2020****年标志着人类现代化进入了海权国家主导的现代化的衰落，而大陆农业国家主导的新的发展方式将引领生物学革命以后的现代化，**知彼知己纵横天下，我们来休息一下。］
+that we will defend Taiwan
 
-陈平在这则视频中的观点与贺福初的文明转移理论不谋而合（见前文[贺福初2019/07/09吹响的生物疆场集结号意味着什么](https://gnews.org/zh-hans/1191281/)），我们一定要逐字记下陈平关于生物战争的总结——
+我们将捍卫台湾
 
-［**中国在新冠疫情的袭击中打赢了一场前所未有的防控生物战的人民战争，这个战争的结果完全出乎大家的预料，也彻底地颠覆了美国例外主义和西方中心论。**］
+in other words we need to ditch our policy of strategic ambiguity
 
-［**我觉得这一次新冠疫情的这一场人民战争是彻底检验各国的社会体制，还有各国的文化、各国人民应对危机的组织能力，一个前所未有的历史考验，****2020****年中国打赢贸易战、科技战、尤其是生物战的成就是历史上前所未有的、划时代的历史记录。**］
+换句话说，我们需要放弃我们的战略模糊政策
 
-［**那我认为中国今年见证的历史确实是百年不遇的历史，今年中国打赢了生物战的人民战争的第一个战役，实际上标志着人类历史上****500****年以来从未有过的变革，那就是海洋国家主导的四次全球化，都以海洋霸权的衰落而结束。**］
+which once worked but really won’t work
 
-［**但是我们这一次新冠疫情我们面临的是生物学革命的时代所带来的生物战争，而在生物战争里面，头一次是东亚以农业经济为主的文明比中亚和西欧的牧业经济、游牧经济为主的一神教的文明要显示了更强大的生命力。****2020****年标志着人类现代化进入了海权国家主导的现代化的衰落，而大陆农业国家主导的新的发展方式将引领生物学革命以后的现代化。**］
+这曾经是有效的，但现在在北京这个
 
-声明：本文对于陈平视频的全文字摘录不代表作者同意其观点，恰恰相反，笔者对于陈平的系列生物战的反人类观点绝不苛同，之所以原汁原味全文照录，目的在于全面呈现陈平对于反人类生物战观点，让陈平和他的反人类观点立此存照，留下纪录。
+now in this very different environment in Beijing
 
-（文章内容仅代表作者个人观点）
+非常不同的环境中真的行不通了
+
+John Bachman
+
+约翰·巴赫曼
+
+Fred what do you think?
+
+弗雷德，你怎么看
+
+Fred
+
+弗雷德
+
+Well this op-ed was written by Peter Beinart
+
+好，这篇文章是由彼得·贝纳特撰写的
+
+a far-left writer who’s mostly known for his vicious attacks in the state of Israel
+
+一个极左的作者，是以在以色列的恶毒攻击而闻名
+
+so I don’t find him credible
+
+所以我觉得他没有可信度
+
+what I found interesting about this op-ed is
+
+我所发现的这篇文章有趣的是
+
+that he’s reflecting the views of the left
+
+他在反映左派的观点
+
+which would like to write Taiwan off
+
+愿意抛弃台湾
+
+I don’t agree that
+
+我不同意那个观点
+
+the small steps that Biden has taken to normalize relations with Taiwan
+
+拜登为使与台湾关系正常化所采取的小步骤
+
+is really going to antagonize China to attack
+
+真的会反抗中共国的攻击
+
+but if you read this op-ed carefully
+
+但是如果你仔细阅读这篇文章
+
+it’s pretty clear that the left doesn’t want to defend Taiwan
+
+很明显的，左派不想捍卫台湾
+
+they don’t care if China invades it
+
+他们不在乎如果中共国侵略台湾
+
+now some of that radical ideology can be affecting this administration
+
+现在一些激进的意识形态可能会影响这届政府
+
+and I think Gordon is right
+
+所以我认为章家敦是对的
+
+Joe Biden has to counter that
+
+乔·拜登必须反驳那个
+
+by making a strong statement that we will defend Taiwan
+
+通过有力的声明，我们将捍卫台湾
+
+and get rid of the ambiguity which worked for a while in the past
+
+并摆脱了过去曾有一段时间的战略模糊性
+
+but China is counting on that ambiguity
+
+但是中共国指望这种模棱两可
+
+and the weakness of Biden possibly to find an opportunity to invade
+
+拜登的弱点可能会（使中共）找到入侵（台湾）的机会
+
+and Biden needs to close that door well
+
+拜登需要好好关上那扇门
+
+John Bachman
+
+约翰·巴赫曼
+
+The effectlessness of the Biden foreign policy here is
+
+拜登外交政策的无效之处在于
+
+what I think makes this article interesting to me to your guys’ point
+
+我认为使这篇文章对我来说很有趣的到你们的观点
+
+yes this guy comes from a far-left perspective here
+
+是的，这家伙来自极左的观点
+
+interesting to your take on it
+
+有趣的是你挑战它
+
+Fred because that’s sounds you know accurate
+
+弗雷德 ，因为这听起来你很准确
+
+that the left doesn’t care about Taiwan
+
+左派不在乎台湾
+
+they don’t care about the ever present march of communism across the globe here
+
+他们不在乎在全球范围内的不断前进
+
+but one thing Gordon
+
+但是一件事，章家敦
+
+I think might be concerning to the Chinese
+
+我认为可能与中共有关
+
+or at least the way they see this is that you know
+
+或者至少他们看待这件事的方式是，你知道
+
+they don’t know what the Biden foreign policy team is going to do
+
+他们不知道拜登外交政策团队将要做什么
+
+it doesn’t have kind of a strength uh strong moral center
+
+它没有强大的道德中心
+
+they say one thing
+
+他们说一件事
+
+but then they have all the pressure from the other part of their party uh
+
+但后来他们承受了党的另一方的压力
+
+and so how are the Chinese supposed to interpret this?
+
+那么中共应该如何解读这一点呢？
+
+Gorden Chang
+
+章家敦
+
+Yes and that’s really the problem
+
+是的，而且那真是个问题
+
+when the U.S. has been ambiguous in the past in other areas
+
+当美国过去以模棱两可的态度面对其他地区的时候
+
+it hasn’t worked so for
+
+不见得有效果
+
+instance we could have stopped the Korean War before it started
+
+例如我们可以在朝鲜战争开始之前就停止它
+
+by drawing our western defense perimeter across the 38th parallel
+
+通过在38线上绘制我们的西方防御边界
+
+but we didn’t do that
+
+但是我们没有那样做
+
+we could have prevented the gulf war
+
+我们本来可以避免海湾战争
+
+by telling Saddam Hussein that we would defend Kuwait
+
+通过警告萨达姆·侯赛因，我们将捍卫科威特
+
+we didn’t do that
+
+我们没有那样做
+
+and he invaded Kuwait
+
+并且他入侵了科威特
+
+so these are really just lessons from the past
+
+所以这些真的只是过去的教训
+
+and clearly you  know we need to step up and say this
+
+很明显，你知道我们需要加强而且说这个
+
+because if we say this we can avoid a conflict
+
+因为如果我们这样说，我们可以避免冲突
+
+if we don’t say it as Fred talked about
+
+如果我们不说这个，就像弗雷德所说的那样
+
+we could very well end up in a war
+
+我们很可能会陷入战争
+
+John Bachman
+
+约翰·巴赫曼
+
+Right and Xi knows this
+
+是的，而且习近平知道这个
+
+Fred this is the same foreign policy team basically that drew red lines in Syria
+
+弗雷德，这基本上是在叙利亚画红线的相同的外交政策小组
+
+and didn’t follow up on it
+
+并没有跟进它
+
+and that’s the message I mean
+
+而且这就是在传递信息，我的意思
+
+that’s the problem here China can listen to these
+
+这就是问题所在，中共国可以听这些
+
+you know bellicose uh from pronouncements from Tony Blinken
+
+你知道，从托尼·布林肯的宣誓好战
+
+but they don’t buy them
+
+但是他们不买他们的帐
+
+Fred
+
+弗雷德
+
+That’s right look Biden wants business as usual
+
+那是对的，看，拜登想要一如既往下去
+
+he keeps calling China a competitor
+
+他一直称中共国为一个竞争对手
+
+China is an adversary at best maybe an enemy
+
+中共国充其量是一个对手，有可能是一个敌人
+
+Gordon and I could debate that
+
+章家敦和我可以对那个有个辩论
+
+France is a competitor you know in a competition
+
+法国是一个竞争对手，你知道在一个决赛中
+
+you follow the rules you’re trying to get ahead with a fellow player
+
+你遵守规则，你尝试着领先对手
+
+the Chinese want to destroy us
+
+中共想摧毁我们
+
+they want to dominate the world
+
+他们想统治世界
+
+and when we make climate change our top priority
+
+当我们使气候变化成为我们的首要任务时
+
+and when the president gives a speech to congress
+
+而且当总统在国会演讲时
+
+he doesn’t mention the Uyghurs
+
+他没有提到维吾尔族人
+
+he doesn’t mention genocide
+
+他没有提到种族灭绝
+
+and he gives such very soft criticism of the Chinese regime
+
+而且他对中共政权提出了非常温和的批评
+
+he may be giving them a green light to think
+
+他可能给他们开绿灯时他们认为
+
+they could get away with invading Taiwan
+
+他们侵略台湾后还可以逃脱惩罚
+
+and I’m very worried about that
+
+我非常担心这一点
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接  [https://twitter.com/newsmax/status/1390886678554812416?s=21](https://twitter.com/newsmax/status/1390886678554812416?s=21)
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

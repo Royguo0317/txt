@@ -1,60 +1,304 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共超限战灭港行动（十四）2010年元旦还我普选大游行和零八宪章
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1255969/)
+## 疫苗公司拥有的数据显示，在停止Covid上存在零差异，但可能导致疯牛病
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1256045/)
 
-#### 搜集/撰文：岁月如歌 / 封面合成：文粤
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19034025/5191.jpg)
-2007年的全国人大代表大会表决否定2012年初选诉求之后，香港与中共的矛盾最终演变成香港民间举行大游行以及李柱铭先生绝食抗议。其后民间举办的多次活动继续争取普选权，但是从没有得到政府明确的承诺，这个矛盾越来越加深。 2009年11月18日政务司师长唐英年发表2012年行政长官的和立法会产生办法的咨询文件，对2017年实行普选行政长官和2020年立法会突显一个字都不提。而对2012年选举的办法和内容和2005年否决的200708年普选方案一样。这和当初的曾荫权在2007年香港特别行政区行政长官选举的承诺是相背的。这一来更加激起了民众的愤怒了，政府已违背承诺，香港人在力争。他们甚至自己推行五区公投用选票说话，以证实香港人是配有民主普选投票的。 2009年12月，公民党和社民连决定发动五区总辞变相公投，以全民投票来凝聚名义争取2012年的普贤方案。虽然最后没有达到目标及变质，但可以看到香港人在努力追求双普选所做的努力。民主进程都是有不成熟走向成熟的，五区公投是一个最初的不成熟试验。
+字幕内容：
 
-当香港人在为自己的权利努力抗争时，在中共统治下的大陆也正在运酿着一场革命。中共的独裁和言论自由的封禁并没有堵住人们的思想。追求自由民主是人的本性，八九六四之后，人们不敢提政治，不敢再关心民主，但那只是极度没有言论自由的现象。随着改革开放的发展人们通过网啰，媒体等渠道知道了外面的世界很精彩。知道了并不是所有的人都像我们一样被独裁者统治。觉醒的中华儿女渐渐的认识到人权、平等、自由是如此的重要，也是全世界共同追求的普世价值，民主、宪政、共和才是现代政治的基本框架。独裁之下没有民主更没有法治和共和可言。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19034042/5192.jpg)
-在中共大陆也有一批追求民主宪政共和的人士。 2008年12月9日为了纪念1948年12月10日的《世界人权宣言》60周年，一份宣言正在呼之欲出。由张祖华负责起草、刘晓波等人修改并有303位各界人士签署，这些人很多是内地异见人士和维权人士。包括鲍彤、丁子霖、刘军宁、戴晴、于浩成、浦志强、茅于轼、冉云飞等。这份宣言就是《零八宪章》，《宪章》提出促进中国民主化进程、改善人权状况、提出建立中华联邦共和国，解决两岸问题及各民族问题。原订2008年12月10日《世界人权宣言》60周年这一天举行论坛并发表《零八宪章》，但是8日，《零八宪章》刚刚在网上发布几个小时刘晓波就被警方带走了。 2009年6月23日刘晓波再次被警方以「涉嫌煽动颠覆国家政权罪」逮捕。接着中共逮捕了多名发起拟草人，封禁博客网站。到2011年6月为止在《零八宪章》上的签名有13,000多人。 2009年12月25日北京第一中级法院以“煽动颠覆国家政权罪”判决刘晓波有期徒刑11年剥夺政治权利两年。罪证是提出“联邦共和”和建立“中华联邦共和国”口号。 2010年10月8日刘晓波因为「为中国基本人权所进行的长期、非暴力的斗争」获诺贝尔奖，但大家都知道刘晓波在狱中没能去领奖。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19034100/5193.jpg)
-《零八宪章》是继八九六四之后的又一个文明追求民主宪政诉求，这么大一件事在中共大陆甚少人知道，被中共全部禁止传播。在国际上引起轩然大波，美国、德国、台湾等国家和地区政府都纷纷谴责了中共，他们支持和赞赏这些进步人士。西方多个媒体还报导了这一《宪章》。达赖喇嘛和其他一些国际人士也对《零八宪章》表示的支持和赞赏。香港没有防火墙，人们都知道《零八宪章》，立场新闻全文刊登该《宪章》。刘晓波因言获罪对香港人影响很大，香港人在刘晓波身上看到中共手段的残忍，对异见人士、维权人士、要求改革的人士，不分青红皂白一律严厉打击取缔。更明白言论自由不存在， 改革已死，只有独裁。香港人明白只有加快争取双普选争取民主政制才能保护自己的权利。刘晓波事件促发香港一连串的抗议运动。 2010年元旦日，泛民主派发起三万人大游行，要求「释放刘晓波，以言获罪可耻」，争取「2012双普选，一人一票选特首，订出普选路线图」。游行队伍身系黄丝带，象征争取民主自由。拉起「真民主，双普选」标语和刘晓波画像。香港人争取民主运动队伍越来越壮大，声势也越来越浩大。港中矛盾越来越走向撕裂。
+Steve Bannon
 
-（未完待续）
+史蒂夫·班农
 
-【本文仅代表作者个人观点】
+But hang on a second
 
+但是，等一下
 
-参考连接：
-[自由亚洲-三万港人游行声援刘晓波及争取普选](https://www.rfa.org/cantonese/news/HK_procession-01012010082758.html)
+They say you see on mainstream media
 
-[维基百科-「还我普选」元旦大游行](https://zh.wikipedia.org/zh-hant/%E3%80%8C%E9%82%84%E6%88%91%E6%99%AE%E9%81%B8%E3%80%8D%E5%85%83%E6%97%A6%E5%A4%A7%E9%81%8A%E8%A1%8C)
+他们说，主流媒体上说
 
-[维基百科-零八宪章](https://zh.wikipedia.org/zh-hant/%E9%9B%B6%E5%85%AB%E5%AE%AA%E7%AB%A0)
+96% what effective 96% efficacy, 98% hang on today,
 
-导读：
-中共超限战灭港行动
+96%的有效性，96%的功效，98%，等一下，今天
 
-[中共超限战灭港行动（一）临时立法会成立](https://gnews.org/zh-hans/1163020/)
+I think Willie Geist @msnbc
 
-[中共超限战灭港行动（二）是谁为临时立法会摇旗呐喊？](https://gnews.org/zh-hans/1170091/)
+我认为在msnbc的威利·盖斯特（Willie Geist）
 
-[中共超限战灭港行动（三）临立会主席范徐丽泰与特首董建华的父辈们](https://gnews.org/zh-hans/1178528/)
+we started the show with they have breaking news
 
-[中共超限战灭港行动（四）变色龙范徐丽泰](https://gnews.org/zh-hans/1183152/)
+我们以他们的突发新闻开始了节目
 
-[中共超限战灭港行动（五）公安恶法匆促落实](https://gnews.org/zh-hans/1187269/)
+he comes in and I think he’s reading some this
 
-[中共超限战灭港行动（六）英解密档案](https://gnews.org/zh-hans/1200256/)
+他进来了，我想他正在读一些这样的东西
 
-[中共超限战灭港行动（七）基本法](https://gnews.org/zh-hans/1217241/)[23条如何产生](https://gnews.org/zh-hans/1217241/)
+as the ones you know the 6 clots per 7 million
 
-[中共超限战灭港行动（八）基本法](https://gnews.org/zh-hans/1230623/)[23条与港版国安法有什么关系](https://gnews.org/zh-hans/1230623/)
+作为那些，你知道，每700万人接种疫苗者有6名患血栓
 
-[中共超限战灭港行动（九）](https://gnews.org/zh-hans/1236409/)[0708双普选政改梦想与曾宪梓](https://gnews.org/zh-hans/1236409/)
+still means it’s 99.99% effective
 
-[中共超限战灭港行动（十）](https://gnews.org/zh-hans/1241573/)[0708双普选梦想破灭](https://gnews.org/zh-hans/1241573/)
+还是意味着它是99.99%的有效的
 
-[中共超限战灭港行动（十一）](https://gnews.org/zh-hans/1247459/)[0708双普选第五份报告遭民意否决](https://gnews.org/zh-hans/1247459/)
+so what say you to that
 
-[中共超限战灭港行动（十二）双普选政改被否后的“爱国者论”](https://gnews.org/zh-hans/1250435/)
+所以那你怎么说？
 
-[*中*共超限战灭港行动（十三）](https://gnews.org/zh-hans/1252992/)[2012双普选被否和遁序渐进民主政制的骗局](https://gnews.org/zh-hans/1252992/)
+Dr. Richard Fleming
 
-*审稿：卡西欧**/**校对：文粤**/**上传：天网灰灰*
+理查德·弗莱明医生
+
+right, so as vaccine efficacy
+
+对，关于疫苗的有效率
+
+is determined exactly opposite of what you think it is
+
+的定义与你认为的完全相反
+
+it is how many people came down with covid in the vaccine group
+
+是在疫苗组中有多少人下来感染了Covid
+
+over how many people came down with covid in the non-vaccine group
+
+对在非疫苗组中有多少人下来感染了Covid
+
+and that’s called the risk ratio
+
+这就是所谓的风险比率
+
+and you take 1 – the risk ratio
+
+而你承担1-风险比率
+
+and that give you vaccine efficacy that would be like me coming
+
+并给你疫苗效用，就像我来
+
+and telling you Steve I want you to take this drug
+
+告诉你，史蒂夫，我要你服用这种药
+
+because it’s going to fail only this amount of time
+
+因为它只会在这段时间内失败
+
+but if you ask the question
+
+但是如果你问这个问题
+
+which is does this vaccine prevent people from coming down with covid-19
+
+这是什么疫苗可以防止人们患上covid-19
+
+and you take their data
+
+并且你分析他们的数据
+
+and you run their numbers which is in that slide that I sent over
+
+你运行他们的数字，也就是我发过去的那张幻灯片
+
+it shows that even though you think there’s a difference
+
+它显示即使你认为有差异
+
+that’s why we do statistical analysis
+
+这就是为什么我们进行统计分析的原因
+
+it shows that there isn’t too different
+
+它表明没有太大的不同
+
+it’s just random chance
+
+它只是随机的机会
+
+there is no scientific evidence in the EOA (exclusive operating area) document
+
+专属作业区 (EOA）文档中没有科学证据
+
+unless remember these are still experimental vaccines
+
+除非记住这些仍然是实验性疫苗
+
+they have not been FDA approved
+
+他们尚未获得食品和药物管理局的批准
+
+and people are not signing informed consent on these experimental drugs
+
+而且人们并未在这些实验药物上签署知情同意书
+
+and both Pfizer, Moderna quit recruiting for their experimental protocols
+
+并且辉瑞（Pfizer）和摩德纳（Moderna）都放弃了实验方案招募
+
+on or around the 20th of January
+
+在大约1月20日前后
+
+and at that point in time they didn’t need to
+
+在那个时候，他们已经不需要了
+
+because they were being rolled out
+
+因为他们已经获批准
+
+and they didn’t need to recruit anybody
+
+他们不需要招募任何人
+
+because everybody listening to your program
+
+因为每个在听你节目的人
+
+and everybody not listen to your program is
+
+和每个不听你的节目的人是
+
+either in the experimental or the control group of the study
+
+在研究的实验组或对照组中
+
+so they don’t need to keep recruiting people
+
+所以他们不需要继续招募任何人
+
+the numbers themselves show the vaccines
+
+数字本身显示疫苗
+
+do not make no difference in the number of people
+
+对接种与否的人群感染COVID
+
+that will come down with covid-19
+
+的概率没有区别
+
+what we know is that we’re seeing risk popping up across the board
+
+我们所知道的是，我们看到了疫苗全面出现的风险
+
+and they’re all inflammatory and blood clotting
+
+他们都是发炎和凝血的病例
+
+and it’s affecting not just the people with comorbidities
+
+它并不仅影响合并症患者
+
+it’s affecting the people that normally
+
+也会正常的影响人们
+
+now we’re healthy and they’re being overwhelmed
+
+然而没有打疫苗的我们很健康而他们却出了问题
+
+and because their immune systems work
+
+而且因为他们的免疫系统起作用
+
+they’re making antibodies to these vaccines
+
+他们正在为这些疫苗制造抗体
+
+unless remember two things
+
+但他们要记住两件事情
+
+first of the spike protein is not naturally occurring
+
+首先突刺蛋白的不是天然存在的
+
+it is gain of function it is causing the blood-brain barrier
+
+它是功能增强实验的产物，它可以产生心脑血拴
+
+and we know in the animal models of the spike protein
+
+而且我们在动物模型中知道了刺突蛋白
+
+we know that in the humanized mice
+
+我们知道那个在人源化的老鼠中
+
+they develop spongiform encephalopathy
+
+他们发展成海绵状脑病
+
+which is for the general public mad cow disease
+
+大众了解这个病毒的俗称是疯牛病
+
+we also know that in the rhesus macaque models
+
+我们也知道在恒河猴模型中
+
+that about 2 weeks afterwards
+
+那是大约两周后
+
+they develop Lewy bodies in the brain
+
+他们在大脑中发育了路易体
+
+and inflammation and Lewy bodies
+
+和炎症和路易体
+
+or what cause Alzheimer’s and a number of neurologic disorders
+
+或导致老年痴呆症和许多神经系统疾病的原因
+
+and those numbers translate into about a year-and-a-half for human beings to see the same consequences
+
+这些数字将使人类在大约一年半看到同样的后果
+
+so no statistically significant benefit from the EOA document
+
+因此，从专属作业区文件中没有任何统计上的重大收益
+
+that are posted not mine, the company’s
+
+这些是公开的，不是我的，是那些公司的
+
+inflammation and blood clotting occurring with it Lewy bodies， mad cow disease
+
+发生路易体的炎症和血液凝结，疯牛病
+
+and nothing that suggests the benefit
+
+没有什么好处
+
+It’s experimental drug that people aren’t finding informed consent for
+
+这是一种实验性药物，人们没有得到知情同意书
+
+and you’re part of the control or experimental group
+
+而你只是对照组或实验组的一部分
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接  [https://rumble.com/vfmufz-vaccine-companies-own-data-shows-zero-difference-in-stopping-covid-but-may-.html](https://rumble.com/vfmufz-vaccine-companies-own-data-shows-zero-difference-in-stopping-covid-but-may-.html)
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

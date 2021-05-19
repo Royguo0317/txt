@@ -1,140 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 巴西总统雅伊尔·博索纳罗将Covid19大流行病与“生物战”联系起来
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1256025/)
+## 干掉CCP是我们活下去的唯一选择
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1256069/)
 
-字幕內容：
+撰稿: 何处是我家
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19045442/%E5%B9%B2%E6%8E%89CCP%E6%98%AF%E6%88%91%E4%BB%AC%E6%B4%BB%E4%B8%8B%E5%8E%BB%E7%9A%84%E5%94%AF%E4%B8%80%E9%80%89%E6%8B%A9.png)
+图片来源网络
 
-Who set the ball rolling this time? this leader Jair Bolsonaro, the president of Brazil,
+自从CCP释放了超级病毒那一刻起，所有的中国人，拥有中共国国籍和中共国境内各族人民的时间如此的紧迫，形势无比的严峻。毫不夸张地说14亿同胞中的每一个人都命悬一线，危在旦夕。可我的亲人，朋友们，同胞们很大一部分却对此毫无反应，依旧是事不关己，高高挂起！是什么样的经历练就同胞们无所畏惧的态度？难道只是无知吗？难道老百姓真的会是CCP的铜墙铁壁吗？
 
-这次是谁掀起的风浪？是这位领导人,巴西总统贾伊尔·博尔索纳罗
+共产党自从闯进中国的那一天起，就摸透了中国人民的秉性和脾气。CCP无时无刻都在操纵民意，煽动民族主义狂热情绪，以人民的幌子要了人民的一切。更恶劣的是我们的父母和父母的父母，还有我们这一代在CCP的鼓噪下，像被下蛊似的成了共产党的人肉盾牌！
 
-with his political future on a sticky wicket, he has suddenly come to realize that the
+看看CCP在中华大地为非作歹的这一百年，利用以假治国、以黑治国、以警治国、以假治国。一次又一次的利用吃下人尸丸，被商鞅弱民五术愚弄成为人肉盾牌的老百姓，达到CCP一个又一个的邪恶目的，乃至新疆种族灭绝、灭白计划。到处流窜的共匪从盗取到管理中共国伪政府，从蓝金黄各国政府到联合国常任理事国，再到控制世贸组织、奥运会。
 
-在他的政治前途岌岌可危的情况下，他突然意识到，这种病毒实际上
+共产党不断攫取所有老百姓的血汗，所有勤劳中国人的集体成就和贡献。普通老百姓却什么都没得到，只得到了被屠宰的下场！
 
-virus is in fact quite lethal. That it could be part of a biological war.
+上世纪三十年代初CCP只鼓动了少数的人们，通过一些学生运动，工人运动，市民运动。把一部分人变成了最雏形的人肉盾牌。
 
-是相当致命的。它可能是一场生物战争的一部分。
+接下来就残酷无比。在抗日战争时期共产党利用人肉盾牌的水平已经如火纯青。无论是和国民党作战，还是偶尔和日本军人作战时。战友们还记得共匪CCP头子毛泽东的一句话吗？“我们打得过就打，打不过就跑，我们化整为零，躲到农民中去”。共产党你是真不要脸！你躲到农民中倒霉的不就是老百姓吗？难怪那时的鬼子军人和国民党军人之抓狂，最后一伤到老百姓，CCP就谴责谴责。
 
-Does he have proof? he says his military does, you must listen to this.
+CCP你倒是和你的敌人真刀真枪的比划比划啊。就是今天CCP还用这一招，美国人要制裁你时，你就说不能制裁中共国人，中国人和你有关系吗？CCP，你是马克思列宁家的孙子。
 
-他有证据吗？他说他的军队有，请您恭听。
+上世纪五十年代发生在朝鲜的战争，CCP利用人肉盾牌更上一层楼。战术陈旧，武器装备落后，指挥人员素质差不是问题。CCP把几十万的鲜活的生命推上第一线，直到美国和联合国部队作战人员看到成排成排的人，中共国军人的尸体堆积在阵地前，不忍心手软了。终于中共国共产党又一次尝到了甜头。我们的同胞们却还是没有清醒，是我们兄弟姐妹被残害的无辜生命换来了CCP的作威作福！
 
-It’s a new virus, nobody knows if it was born in a lab or because the human eats
+上个世纪五，六，七十年代的三反五反，公私合营，大跃进，文化大革命，CCP的魔头毛泽东用近一亿人的生命把他自己推向了“神”坛。文革期间毛泽东煽动利用无知的红卫兵，把被愚民后的人肉盾牌发挥的淋漓尽致，一时鸡飞狗跳，国家处于瘫痪状态。CCP不但毫发未伤，倒是又积累了使用人肉盾牌的魔技。可怜中共国到处是累累白骨，却鲜有人记得！
 
-这是一种新的病毒，没有人知道它是否诞生于实验室，还是因为人类吃了
+CCP的诡计，使用人肉盾牌的技艺越发的熟练。最近十年利用手握14亿人市场这张牌，首先征服日本，接下来欧盟，最后美国也基本臣服。非洲和南美洲一听说14亿人口早就吓趴下了。战友们，我们想一想，假如我们14亿人同时向后退五步，把CCP盗国贼晾在最前面会发生什么？我想一阵微风就会刮掉CCP的衣服，让他们一丝不挂！
 
-some animal they shouldn’t have. But it’s dead and the military knows all about
+今天CCP还想用14亿的人肉盾牌去面对以美国为首的西方国家的讨伐或者追责，更有可能是清算。CCP病毒造成的死亡人数之多，后果之严重，所要承担的责任之大，给人类带来灾难和长久的问题有多深远。现在还无法估量，CCP有多少的脑袋都不够砍的。
 
-一些他们不应该吃的动物（而感染的）。但这已经有定论了
+亲人们！同胞们！今天是我们必须要清醒的时刻，我们不要再维护CCP任何事情，和这帮魔鬼划清界限。我们一定要把CCP绑到的前面，让中共跪在世界清共剿共风口上。这是他们应该得到的报应！
 
-this chemical biological and radiological warfare.
+我们要承担很多的历史责任和包袱，我们也要面对我们不堪的往事，因无知而甘愿充当CCP的人肉盾牌。爆料革命已经唤醒我们，新中共国联邦已经赋予我们新的身份——新中共国联邦人！
 
-我们军方已经对这场化学生物和放射性战争有所掌握
+大多数人不会承认自己的过失和错误，更不会去回顾糟糕的历史。但是今天我们必须面对过往的一切，我们这一代必须要承担这份责任，不要埋怨父辈们，也不要把这沉重的包袱传给下一代。我们每一个人都是自己亲朋好友、战友的盾牌！而不是CCP的人肉盾牌！
 
-could we be fighting a new war? I guess. which country’s GDP has grown the most?
-
-我们会不会是正在打一场新的战争？我想是的。在全球大疫情的当下，哪个国家的国内生产总值增长最多？
-
-I’m not going to tell you.
-
-我不会去告诉您
-
-Needless to say China won’t be happy, but Bolsonaro just said is nothing new though,
-
-不用说，中共不会高兴，但博尔索纳罗刚刚说的并不新鲜
-
-time and again we’ve heard similar theories the virus is not natural, it was made in
-
-我们一次又一次地听到类似的理论，病毒不是天然的，它是在实验室里研制的
-
-lab, it’s a bio weapon,
-
-是一种生物武器
-
-what was the virus leaked, at the onset of the pandemic there were numerous reports
-
-说什么病毒泄露，在大流行开始时，有许多关于
-
-on how the virus accidentally escaped from the Wuhan Institute of Biology.
-
-病毒如何意外地从武汉生物研究所泄漏的报道
-
-The WHO team which traveled to China to probe its origins, could find no such proof.
-
-前往中共国探究该病毒来源的世卫组织小组无法找到这样的证据
-
-But then again it could be because they did not go there in time or they went under
-
-但重申，它有可能是因为世卫生组织没有及时去到那里，或者是在中共的
-
-strict supervision of the Chinese and they also went in January this year,
-
-严格监督下做的调查。他们是在今年1月去的
-
-about thirteen months after the virus was first reported and they came back with
-
-在该病毒首次被报告后约13个月才去调查，他们带回来的
-
-more questions than answers.
-
-问题比答案多
-
-Now in its report the WHO team said there were many corona viruses at the institute,
-
-现在世卫组织小组在其报告中说，在武汉研究所里有许多冠状病毒
-
-But SARS COVID-2 what we call the wuhan virus was not among them and hence
-
-但是SARS COVID-2，也就是我们所说的武汉病毒并不在其中
-
-the leak hypothesis was extremely unlikely.
-
-因此病毒泄漏假说就具极其不可能性
-
-But the WHO director general Dr. Tedross has said that he does not believe that his
-
-但非常有趣的是，世卫组织总干事谭德赛博士说，他认为他的团队
-
-team’s assessment of the lab leak possibility was tensive enough which is very interesting.
-
-对实验室泄漏可能性的评估不够深入
-
-so he called for a deeper probe into the lab theory, this was on the 31th of March this year.
-
-所以他呼吁对实验室理论进行更深入的调查，这是今年3月31日的事情
-
-today is the sixth of May, and the WHO is still evaluating how to move forward with its probe.
-
-今天是5月6日，世界卫生组织仍在评估如何推进其调查
-
-so Mr. Bolsonaro can do two things.
-
-所以博尔索纳罗先生可以有两个选择
-
-either make his military show us the proof, or wait for the WHO to travel back all
-
-要么让他的军队向我们展示证据，要么等待世卫组织重回到
-
-the way to China which we doubt, will solve this mystery at all.
-
-中国调查，而我们怀疑此举能否会有任何机会将这个谜团解开
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接: [https://twitter.com/raheemkassam/status/1348463264326365187?s=21](https://twitter.com/raheemkassam/status/1348463264326365187?s=21)
-
-英听校： 康州盘古农场 – Mike Li
-翻译： 康州盘古农场 – Mike Li
-翻译终校：康州盘古农场 – 郭班之樱
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
+(本文仅代表作者个人观点)
+编辑：MG4
+欢迎加入【澳喜农场】
+【澳喜文章1】
+【澳喜文章2】
+![]()![](https://gnews.org/wp-content/uploads/2021/05/1-澳喜Logo-2.jpeg)
++1

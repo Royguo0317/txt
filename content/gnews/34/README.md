@@ -1,208 +1,136 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国出现了一场劳工危机，这是对美国小企业的攻击，社会主义正在扼杀我们的国家，人们担心荒谬的刺激措施。”
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255979/)
+## 巴西总统雅伊尔·博索纳罗将Covid19大流行病与“生物战”联系起来
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1256025/)
 
-字幕内容：
+字幕內容：
 
-Marjorie Taylor Greene
+Who set the ball rolling this time? this leader Jair Bolsonaro, the president of Brazil,
 
-Congresswoman for Georgia’s 14th CD
+这次是谁掀起的风浪？是这位领导人,巴西总统贾伊尔·博尔索纳罗
 
-玛乔丽·泰勒·格林
+with his political future on a sticky wicket, he has suddenly come to realize that the
 
-佐治亚州第14届CD的女众议员
+在他的政治前途岌岌可危的情况下，他突然意识到，这种病毒实际上
 
-This is absolutely the issue that should be raining the new cycle and set up gossip
+virus is in fact quite lethal. That it could be part of a biological war.
 
-这绝对是应该新一轮的引发流言蜚语的问题
+是相当致命的。它可能是一场生物战争的一部分。
 
-And stupid story of about royal, which is none of us care about
+Does he have proof? he says his military does, you must listen to this.
 
-这是我们谁都不关心的关于忠诚的愚蠢故事
+他有证据吗？他说他的军队有，请您恭听。
 
-This is assault of American small businesses that we have paying people stay home for over a year now
+It’s a new virus, nobody knows if it was born in a lab or because the human eats
 
-这是对美国小企业的攻击，我们付钱让人待在家里都一年多了
+这是一种新的病毒，没有人知道它是否诞生于实验室，还是因为人类吃了
 
-this is ridiculous stimulus checks and these hard lined
+some animal they shouldn’t have. But it’s dead and the military knows all about
 
-这是荒谬的刺激计划，而这些强硬的措施
+一些他们不应该吃的动物（而感染的）。但这已经有定论了
 
-our government impost shut downs
+this chemical biological and radiological warfare.
 
-我们的政府强制推行的停业措施
+我们军方已经对这场化学生物和放射性战争有所掌握
 
-has hurt business so badly in cross borders
+could we be fighting a new war? I guess. which country’s GDP has grown the most?
 
-已经严重损害了所有的商业活动
+我们会不会是正在打一场新的战争？我想是的。在全球大疫情的当下，哪个国家的国内生产总值增长最多？
 
-Not just small businesses, it’s businesses, it’s schools, it’s everyone
+I’m not going to tell you.
 
-不只损害了小企业，其他的企业、学校、每个人
+我不会去告诉您
 
-They can’t hire anyone,
+Needless to say China won’t be happy, but Bolsonaro just said is nothing new though,
 
-他们不能雇佣任何人
+不用说，中共不会高兴，但博尔索纳罗刚刚说的并不新鲜
 
-no one wants to show up for a job interview
+time and again we’ve heard similar theories the virus is not natural, it was made in
 
-没人想去参加求职面试
+我们一次又一次地听到类似的理论，病毒不是天然的，它是在实验室里研制的
 
-and no one wants to take a job
+lab, it’s a bio weapon,
 
-而且没有人愿意出去工作
+是一种生物武器
 
-and so what I ’ve been talking to a business is in my district
+what was the virus leaked, at the onset of the pandemic there were numerous reports
 
-所以我和我辖区的企业交谈过
+说什么病毒泄露，在大流行开始时，有许多关于
 
-but also all over the country, restaurants that have been to close down and stop serving dinner
+on how the virus accidentally escaped from the Wuhan Institute of Biology.
 
-而且在全国范围内，餐馆已经被迫停业，停止供应晚餐
+病毒如何意外地从武汉生物研究所泄漏的报道
 
-Only be able to serve lunch
+The WHO team which traveled to China to probe its origins, could find no such proof.
 
-只能供应午餐
+前往中共国探究该病毒来源的世卫组织小组无法找到这样的证据
 
-Because they cannot find people to work
+But then again it could be because they did not go there in time or they went under
 
-因为他们找不到人工作
+但重申，它有可能是因为世卫生组织没有及时去到那里，或者是在中共的
 
-A restaurant set up being open for 50 years
+strict supervision of the Chinese and they also went in January this year,
 
-一家开业50年的餐厅
+严格监督下做的调查。他们是在今年1月去的
 
-Such as one here in Dalton my district
+about thirteen months after the virus was first reported and they came back with
 
-就在我这个区的道尔顿市
+在该病毒首次被报告后约13个月才去调查，他们带回来的
 
-They had to shut the doors 3 to 4 days a week
+more questions than answers.
 
-他们一周要关门3到4天
+问题比答案多
 
-Because they don’t have enough people to come to work
+Now in its report the WHO team said there were many corona viruses at the institute,
 
-因为他们没有足够的人来上班
+现在世卫组织小组在其报告中说，在武汉研究所里有许多冠状病毒
 
-Even the schools, schools can’t hire bus drivers
+But SARS COVID-2 what we call the wuhan virus was not among them and hence
 
-即使是学校，也雇不到校车司机
+但是SARS COVID-2，也就是我们所说的武汉病毒并不在其中
 
-They can’t hire cafeteria workers
+the leak hypothesis was extremely unlikely.
 
-他们雇不到食堂工作人员
+因此病毒泄漏假说就具极其不可能性
 
-They can’t hire janitors
+But the WHO director general Dr. Tedross has said that he does not believe that his
 
-雇不到清洁工
+但非常有趣的是，世卫组织总干事谭德赛博士说，他认为他的团队
 
-It goes all the way cross the Boards
+team’s assessment of the lab leak possibility was tensive enough which is very interesting.
 
-每个校区都是这样
+对实验室泄漏可能性的评估不够深入
 
-It’s hurting everyone, it’s hurting economic recovery
+so he called for a deeper probe into the lab theory, this was on the 31th of March this year.
 
-它伤害每个人，伤害经济复苏
+所以他呼吁对实验室理论进行更深入的调查，这是今年3月31日的事情
 
-It’s hurting economic growth,
+today is the sixth of May, and the WHO is still evaluating how to move forward with its probe.
 
-它正在伤害经济增长
+今天是5月6日，世界卫生组织仍在评估如何推进其调查
 
-Bu it’s very much killing these small business
+so Mr. Bolsonaro can do two things.
 
-这会扼杀这些小企业
+所以博尔索纳罗先生可以有两个选择
 
-They have already in door entire year shut downs
+either make his military show us the proof, or wait for the WHO to travel back all
 
-他们已经关门一整年了
+要么让他的军队向我们展示证据，要么等待世卫组织重回到
 
-And yet, guess what?
+the way to China which we doubt, will solve this mystery at all.
 
-然而，你猜怎么着？
+中国调查，而我们怀疑此举能否会有任何机会将这个谜团解开
 
-their rent stays the same
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-他们的房租保持不变
+原视频链接: [https://twitter.com/raheemkassam/status/1348463264326365187?s=21](https://twitter.com/raheemkassam/status/1348463264326365187?s=21)
 
-their power bill stays the same, their cost of operations, vender supplies
-
-他们的电费保持不变，他们的运营成本和供应商原材料。
-
-food for the supplies all they need to run the business,
-
-一切运营所需的食物，原材料成本
-
-all about remains the same
-
-一切成本都保持不变
-
-yet they can’t employ people to do the actual work
-
-然而，他们雇不到人来干活
-
-They borrow from revenue to sustain their companies
-
-他们借来的收入维持公司的存在
-
-Host:
-
-节目主持人：
-
-I just wonder to say you have about 32 second left
-
-我不得不告诉你，你还有大约32秒的时间
-
-You’ve saying assault of America seems that the stimulate checks are keeping people home
-
-你指美国被攻击似乎是政府付钱让人们呆在家里
-
-and they won’t getting to the labour force that was what you are saying?
-
-然后他们不愿意去找工作，这是你想说的吗？
-
-Jarjorie:
-
-玛乔丽
-
-What I am saying that socialism is killing our country
-
-我的意思是，社会主义正在扼杀我们的国家
-
-And it’s here now
-
-现在它就在这里
-
-Come through the fact that all of these shut downs
-
-从所有这些停业的事实来看
-
-and everything the Democratic they are doing is socialism
-
-民主党所做的一切都是社会主义
-
-Its government checks paying people and they staying at home
-
-政府给人们发工资，让人们呆在家里
-
-and they don’t want to work
-
-而且他们不想工作
-
-The more Democratic policy is destroying our country
-
-民主党推行的刺激政策正在毁掉我们的国家
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://twitter.com/realamvoice/status/1390031268402790400?s=24](https://twitter.com/realamvoice/status/1390031268402790400?s=24)
-
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场- Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片: 康州盘古农场-银龙
+英听校： 康州盘古农场 – Mike Li
+翻译： 康州盘古农场 – Mike Li
+翻译终校：康州盘古农场 – 郭班之樱
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
 发布：康州盘古农场-文韵
 [!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
 康州盘古农场欢迎您加入:(或点击上方图片）

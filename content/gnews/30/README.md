@@ -1,166 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 哈佛大学系主任查尔斯·利伯（Charles Lieber）被捕，被控隐瞒与中共国的关系
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255994/)
-
-字幕内容：
-
-Andrew Lelling (US Attorney)
-
-安德鲁·莱林（美国律师）
-
-We are here today to announce three separate cases,
-
-我们今天在这里宣布三个单独的案件
-
-highlighting the ongoing threat posed by Chinese economic espionage
-
-强调中共国经济间谍活动所构成的持续威胁
-
-and research theft in the United States
-
-和在美国研究盗窃
-
-Nichole Berlie (Reporter)
-
-妮可·伯利（记者）
-
-Federal investigators at Lexington home of 60-year-old Dr. Charles Lieber today
-
-联邦调查人员今天出现在60岁的查尔斯·利伯在列克星敦的家
-
-moments after his arrest at his Harvard office.
-
-在这不久前，他在他的哈佛办公室被捕
-
-Andrew Leling
-
-安德鲁·莱林
-
-The complaint alleges that Dr. Lieber signed a contract with Chinese university of Wuhan,
-
-申诉称利伯博士与中共国武汉大学签署了一项合同
-
-and was paid up to $50,000 per month plus up to $158,000 in living expenses.
-
-他每月获得高达$ 50,000的报酬，另加高达$ 158,000的生活费
-
-Nichole Berlie (Reporter)
-
-妮可·伯利（记者）
-
-The chair of Harvard chemistry department
-
-哈佛化学系系主任
-
-He also allegedly received more than $1.5 million to set up a research lab in China,
-
-据称，他还获得了超过150万美元的资助，用于在中共国建立研究实验室，
-
-all while working at Harvard
-
-同时一直在哈佛工作
-
-and receiving multiple research grants from the U. S. Department of defense
-
-and national institutes of health.
-
-并获得美国国防部和国立卫生研究院的多项研究资助
-
-Also charge today, two Chinese nationals
-
-今天还起诉了两名中共国籍的公民
-
-29-year-old, Yanqing Ye,
-
-29岁的叶颜清（音译）
-
-who worked as a scientific researcher at Boston University.
-
-她曾在波士顿大学担任科学研究员
-
-Andrew Leling
-
-安德鲁·莱林
-
-Who failed to mention on her visa application
-
-在她的签证申请时隐瞒了
-
-she is also a lieutenant with the People’s Liberation Army.
-
-她还是中国人民解放军的中尉
-
-Nichole Berlie
-
-妮可·伯利
-
-30-year-old Zaosong Zheng worked on cancer research at Beth Israel Deaconess Medical Center
-
-30岁的郑灶松（音译）在哈佛大学附属贝丝以色列医疗中心从事癌症研究
-
-Andrew Leling
-
-安德鲁·莱林
-
-For trying to smuggle vials of biological material out of United States to China
-
-试图将小瓶生物材料从美国走私到中共国
-
-and lying about it for federal investigators.
-
-并且对联邦调查员撒谎
-
-Nichole Berlie
-
-妮可·伯利
-
-Now Lieber is due back in court Thursday.
-
-现在，利伯应于周四回到法院
-
-He is currently behind bars and could face five years in prison if convicted.
-
-他目前在监狱里，如果罪名成立，将面临五年监禁
-
-And Harvard does tell me
-
-而且哈佛确实告诉我
-
-he is current on paid administrative leave.
-
-他目前正在休带薪行政假
-
-In the meantime, Harvard, Beth Israel deaconess medical center
-
-同时，哈佛大学，哈佛大学附属贝丝以色列医疗中心
-
-and BU are all cooperating with authorities.
-
-和波士顿大学都在与当局合作
-
-Reporting live at south Boston
-
-在波士顿南部现场报道
-
-Nichole Berlie WCVB news center 5
-
-妮可·伯利，WCVB，新闻中心5
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接  [https://twitter.com/kin20200604/status/1390525787040714755?s=24](https://twitter.com/kin20200604/status/1390525787040714755?s=24)
-
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
+## 外媒综合分析：中共国“蛋白质缺口亟待解决”
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1256028/)
+
+撰稿：喜妈
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19042642/%E8%9B%8B%E7%99%BD%E8%B4%A8%E7%BC%BA%E5%8F%A3%E4%BA%9F%E5%BE%85%E8%A7%A3%E5%86%B3.png)（来自网络截图）
+外媒报道，自从“非洲猪瘟开始严重影响亚洲猪群”以来，已经有“两年多”的时间；可是，非洲猪瘟并没有远离相关行业，其所形成的威胁也同样有对行业的巨大冲击。文章援引多个机构的报告称，在最近的时间中，中共国损失了“20％至30％的繁殖母猪”。据报道，“最近一次爆发之前”，全球猪只数量“比2018年初少了2800万头”。欧洲相关的金融机构研究指出，这意味着大概估计中共国至少有“500万吨的蛋白质短缺”。
+
+中共国猪瘟疫情十分严重，自从2018年开始流行之后，造成到2019年8月底，中共国生猪存栏“下降了约40%”。据研究表明，非洲猪瘟“传染性强”、“病畜死亡率高”、“几乎达到100%”，目前没有“预防和治疗的疫苗”。非洲猪瘟造成中共国“通货膨胀”和“居民消费指数升高”；并形成到2019年9月底，就有“约1410亿美元经济损失”。这样大的损失迫使中共国“从海外大量进口肉类填补供应缺口”。
+
+外媒指出，本来这样的现实让“全球红肉出口商创造了巨大的机会”，可是由于澳大利亚“国内牲畜价格居高不下”，中共国“正在寻找其他地方来弥补其蛋白质短缺”。根据澳大利亚肉类和畜牧业协会的数据，截至今年2月，中共国在各种肉类方面进口需求都是持续增加，可是由于澳中之间的贸易战原因，导致非“供应不足”，而在于“价格的回落”和“贸易紧张局势”等原因，截止到今年3月，澳大利亚牛肉的出口总额“下降了11％”。
+
+可是，据调查，中共国“蛋白质缺口的市场份额将在未来继续存在”，因此可以想见，这将是对中共国已经习惯了大量蛋白质消耗的居民是巨大的挑战。此外，根据路透社的另外一个报道，今年爆发的非洲猪瘟疫情，“重创中共国北方养猪业”，而中共国南方也”拉响警报“。德国媒体也指出，由于养猪业疫情，“影响产业复苏”。因此，中共国“作为全球最大猪肉消费国”，中共国会“面对保障猪肉供应”和保证“平抑价格的压力”。
+笔者认为，从以上的各国报道和墙内的真实动态，我们可以知道，作为民生关键问题的猪肉，对中共国的未来社会稳定和民生保障将是不可忽视的。而且，虽然这些文章主要侧重在猪肉上，可是由于猪肉的消费空缺，导致各种白肉红肉齐齐紧张。这个问题，绝对不可小看，民以食为天，墙内人民少点自由也许还可以忍受，多点管制也许还可以忍受，可是这个吃的问题，可是已经脱离了“饥饿记忆”下的民众所无法再能容忍的。
+
+中共国面临的问题，不是一个控制猪瘟所能解决的。它与众多国家的贸易紧张关系和对抗，它在以美国为首的西方国家整体脱钩的情况下，它在被国际社会多个角度的全面调查的过程中，它在自己墙内病毒冲击的全面经济衰退的情况下，我们任何一个人都无法想象，围绕吃，围绕民生，围绕全面的生存压迫，中共国将会发生什么。笔者认为，“蛋白质”的问题可能只是一个方面，可是所有的问题都是密切相关，中共国目前高压锅的现实状态，压力也许就会冲破某个脆弱的环节，爆发出全面的压力。未来的细节发展总是令人很难预测，但大势的发展却是一目了然，中共必灭，中共必完蛋。
+
+(本文仅代表作者个人观点)
+编辑：MG4
+欢迎加入【澳喜农场】
+【澳喜文章1】
+【澳喜文章2】
+
+参考资料：
+https://mecardo.com.au/china-protein-gap-up-for-grabs/
+https://zh.wikipedia.org/zh-hans/中国大陆非洲猪瘟疫情
+https://cn.reuters.com/article/african-swine-fever-china-0401-thur-idCNKBS2BP08Z
+https://www.dw.com/zh/冬季猪瘟增加中国猪肉产量难恢复/a-56473776
+![]()![](https://gnews.org/wp-content/uploads/2021/05/1-澳喜Logo-2.jpeg)
++1
