@@ -1,22 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德简报】5/18/2021早：美国五角大楼预算重点瞄准中共国，美国战略中心的重大调整
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1256671/)
+## 儿童甚至婴儿都可能受到CCP病毒及其突变体的攻击
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1256677/)
 
-**编辑：华盛顿DC农场 路德简报项目组**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19012025/2021-518-scaled.jpg)
+5/17/2021 CCP病毒变种可以攻击儿童甚至婴儿。新加坡的印度变种，巴西的巴西变种被发现以非常高的几率致死低龄儿童。在香港的南非毒株变异体感染了一个四个月大的婴儿。出于对儿童被感染的预期，新加坡和台湾的小学和初中学校都关闭了。
 
-
-> 2021 年5月18日 路德时评 早
-> 
-> 1.美国五角大楼预算重点瞄准中共国，美国战略中心的重大调整：从中东转向中共国
-> 
-> 2.印度政府、媒体：中共国释放病毒削弱印度 发动生物战！
-> 
-> 3.中共取消纪念文革5.16活动 [pic.twitter.com/8bAYhK3IMN](https://t.co/8bAYhK3IMN)
-> — 平民爆料 (@WM18320321) [May 19, 2021](https://twitter.com/WM18320321/status/1394973025590726656?ref_src=twsrc%5Etfw)
-
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
 0
