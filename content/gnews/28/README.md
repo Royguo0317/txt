@@ -1,190 +1,134 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 贾斯汀·李（Justin Li）卡尔顿大学孔子学院所长, 中共代理人在加拿大大学教学
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255968/)
+## 巴西总统雅伊尔·博索纳罗将Covid19大流行病与“生物战”联系起来
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1256025/)
 
-字幕内容：
+字幕內容：
 
-Garnett Genuis
+Who set the ball rolling this time? this leader Jair Bolsonaro, the president of Brazil,
 
-加内特·格努伊斯
+这次是谁掀起的风浪？是这位领导人,巴西总统贾伊尔·博尔索纳罗
 
-Mr. Li, My colleagues have raised the fact
+with his political future on a sticky wicket, he has suddenly come to realize that the
 
-李先生，我的同事提出了一个事实
+在他的政治前途岌岌可危的情况下，他突然意识到，这种病毒实际上
 
-that many witnesses have told us
+virus is in fact quite lethal. That it could be part of a biological war.
 
-许多证人告诉我们
+是相当致命的。它可能是一场生物战争的一部分。
 
-that Confucius institutes are a front for espionage
+Does he have proof? he says his military does, you must listen to this.
 
-孔子学院是间谍活动的前沿
+他有证据吗？他说他的军队有，请您恭听。
 
-you have told us that at least the Confucius Institute at Carleton is not
+It’s a new virus, nobody knows if it was born in a lab or because the human eats
 
-您已经告诉我们，至少卡尔顿大学的孔子学院不是
+这是一种新的病毒，没有人知道它是否诞生于实验室，还是因为人类吃了
 
-but you’ve also been unwilling to contradict the party line on any issues
+some animal they shouldn’t have. But it’s dead and the military knows all about
 
-但您也一直不愿意在任何问题上与党的路线相抵触
+一些他们不应该吃的动物（而感染的）。但这已经有定论了
 
-such as in response to my questions about human rights abuses with the Dalai Lama
+this chemical biological and radiological warfare.
 
-例如回应我有关与达赖喇嘛侵犯人权的问题
+我们军方已经对这场化学生物和放射性战争有所掌握
 
-this makes me wonder if your employment status would be at risk
+could we be fighting a new war? I guess. which country’s GDP has grown the most?
 
-这使我想知道你的就业状况是否会受到威胁
+我们会不会是正在打一场新的战争？我想是的。在全球大疫情的当下，哪个国家的国内生产总值增长最多？
 
-if you criticize the Chinese government
+I’m not going to tell you.
 
-如果你批评中共政府
+我不会去告诉您
 
-so I want to put this to the test here
+Needless to say China won’t be happy, but Bolsonaro just said is nothing new though,
 
-所以我想在这来测试一下
+不用说，中共不会高兴，但博尔索纳罗刚刚说的并不新鲜
 
-Mr. Li, based on your bio
+time and again we’ve heard similar theories the virus is not natural, it was made in
 
-李先生，根据你的简历
+我们一次又一次地听到类似的理论，病毒不是天然的，它是在实验室里研制的
 
-you were living in China during the Tiananmen Square massacre in 1989
+lab, it’s a bio weapon,
 
-在1989年天安门广场大屠杀期间你是居住在中国
+是一种生物武器
 
-the Chinese Red Cross estimates
+what was the virus leaked, at the onset of the pandemic there were numerous reports
 
-中共红十字会估计
+说什么病毒泄露，在大流行开始时，有许多关于
 
-that over 2500 students peacefully protesting were shot in cold blood
+on how the virus accidentally escaped from the Wuhan Institute of Biology.
 
-有超过2500多名和平抗议的学生被残忍地枪杀
+病毒如何意外地从武汉生物研究所泄漏的报道
 
-So as someone who today works with students at a university
+The WHO team which traveled to China to probe its origins, could find no such proof.
 
-因此，作为今天与一所大学的学生一起工作的人
+前往中共国探究该病毒来源的世卫组织小组无法找到这样的证据
 
-do you believe that these figures are accurate
+But then again it could be because they did not go there in time or they went under
 
-你相信这些数字是准确的吗？
+但重申，它有可能是因为世卫生组织没有及时去到那里，或者是在中共的
 
-and do you think the Chinese state was wrong
+strict supervision of the Chinese and they also went in January this year,
 
-而且你认为中共国家错了吗
+严格监督下做的调查。他们是在今年1月去的
 
-to sanction the opening of fire on peaceful protesters
+about thirteen months after the virus was first reported and they came back with
 
-批准向和平示威者开枪
+在该病毒首次被报告后约13个月才去调查，他们带回来的
 
-Justin Li
+more questions than answers.
 
-贾斯汀·李
+问题比答案多
 
-thank you sir and I am the employee Carleton University
+Now in its report the WHO team said there were many corona viruses at the institute,
 
-谢谢你，先生。而且我是卡尔顿大学的雇员
+现在世卫组织小组在其报告中说，在武汉研究所里有许多冠状病毒
 
-and I my employment with Carleton
+But SARS COVID-2 what we call the wuhan virus was not among them and hence
 
-我在卡尔顿的工作
+但是SARS COVID-2，也就是我们所说的武汉病毒并不在其中
 
-and I don’t think it’s anything to do with China
+the leak hypothesis was extremely unlikely.
 
-而且我认为这与中共国无关
+因此病毒泄漏假说就具极其不可能性
 
-Garnett Genuis
+But the WHO director general Dr. Tedross has said that he does not believe that his
 
-加内特·格努伊斯
+但非常有趣的是，世卫组织总干事谭德赛博士说，他认为他的团队
 
-Mr. Li would you like to respond to my question about the Tiananmen Square massacre
+team’s assessment of the lab leak possibility was tensive enough which is very interesting.
 
-李先生，你想回答我有关天安门大屠杀的问题吗？
+对实验室泄漏可能性的评估不够深入
 
-Justin Li
+so he called for a deeper probe into the lab theory, this was on the 31th of March this year.
 
-贾斯汀·李
+所以他呼吁对实验室理论进行更深入的调查，这是今年3月31日的事情
 
-Sorry, what’s the question again
+today is the sixth of May, and the WHO is still evaluating how to move forward with its probe.
 
-抱歉，请再重复一下问题？
+今天是5月6日，世界卫生组织仍在评估如何推进其调查
 
-Garnett Genuis
+so Mr. Bolsonaro can do two things.
 
-加内特·格努伊斯
+所以博尔索纳罗先生可以有两个选择
 
-In 1989, over 2500 student protesters were massacred In Cold Blood
+either make his military show us the proof, or wait for the WHO to travel back all
 
-在1989年，超过2500名学生抗议者被残忍地屠杀
+要么让他的军队向我们展示证据，要么等待世卫组织重回到
 
-as someone who works with students
+the way to China which we doubt, will solve this mystery at all.
 
-作为和学生一起工作的人
+中国调查，而我们怀疑此举能否会有任何机会将这个谜团解开
 
-do you believe that those figures are accurate as reported by the Chinese Red Cross
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-您是否相信这些被中共红十字会报告的数字是准确无误的？
+原视频链接: [https://twitter.com/raheemkassam/status/1348463264326365187?s=21](https://twitter.com/raheemkassam/status/1348463264326365187?s=21)
 
-and you believe the Chinese state was wrong
-
-而且你认为中共政府是错的
-
-to sanction the opening of fire on peaceful protesters
-
-批准向和平示威者开枪
-
-Justin Li
-
-贾斯汀·李
-
-I don’t have this expertise and knowledge to validate the number of that incident
-
-我对这方面不熟悉和没有足够的专业知识来验证该事件的数字
-
-Garnett Genuis
-
-加内特·格努伊斯
-
-you were living in China at the time
-
-你当时生活在中共国
-
-Mr. Li,  do you believe that it was wrong
-
-李先生你认为那是错的吗
-
-for the Chinese government to sanction the opening of fire on Peaceful protesters in Tiananmen Square
-
-中共政府批准向天安门广场的和平示威者开火
-
-Justin Li
-
-贾斯汀·李
-
-I was in China, I was in Beijing
-
-我当时在中国，我当时在北京
-
-and my friends and then none of my acquaintances have been that victims so far
-
-和我的朋友们，到目前为止，我的相识们都不是那些受害者
-
-This is a, this is a unfortunate event, of cause
-
-当然，它是，它是一个不幸的事件
-
-Thank you
-
-谢谢
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接 https://twitter.com/canaditude/status/1389575134785253378?s=21
-
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
+英听校： 康州盘古农场 – Mike Li
+翻译： 康州盘古农场 – Mike Li
+翻译终校：康州盘古农场 – 郭班之樱
 字幕+视频制作：康州盘古农场-天涯行
 审片：康州盘古农场-银龙
 发布：康州盘古农场-文韵

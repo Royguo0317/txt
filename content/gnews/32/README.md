@@ -1,148 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 保险公司专家评估功能增强实验的风险，他们不喜欢他们看到的情况
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255913/)
+## 美将增加本土“半导体”产量 降低对中共国产业链依赖
+` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1255971/)
 
-字幕内容：
+#### 撰稿：yyshere（News Express）
+校对：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19035854/%E7%BD%91%E6%98%93.jpg)图片来源：网易
+美国参议院多数党领袖舒默当地时间5月18号宣布，参议院将寻求增加美国境内的半导体生产。
 
-Gain-of-Function Research International Workshop 2012
+舒默在参议院的发言中表示，“替代修正案将包括一项历史性的520亿美元的投资，以确保美国保持在芯片生产、半导体芯片生产的最前沿，这对与国家的经济，包括我们的汽车工业、我们的科技产业和我们的军队是至关重要的。同样，这项立法现在将包括历史性地立即向半导体行业注入联邦资金，以促进国内生产和支持关键的供应链。这是一个非常大的交易，它符合《无尽边疆法案 》的概念”。
 
-2012年功能增强国际研讨会
+舒默指出，美国已经越来越依赖进口半导体，这是一个潜在的国家安全和经济风险。“美国制造业因芯片短缺而受到相当大的影响。我们都听说过我们各州的汽车厂因为得不到芯片而关闭或降低产能的情况。我们科技行业的短缺表明我们的供应链非常脆弱。我们根本不能依赖外国加工厂的芯片。
 
-Man（one）
+舒默强调，“美国发明了半导体芯片，我们仍然处于研究的最前沿，但只有不到12%的芯片是在美国制造的，如果这个法案不通过，（美国制造）将下降到6%。而其他国家，特别是中国，将成为领导者，不仅是在芯片制造和芯片生产方面，而且在许多依赖芯片的行业。我们不能让这种情况发生。”
 
-男士一：
+CCP病毒疫情爆发以来，世界各国尤其是美国，反复体验到过去长久以来依赖中共国的全球供应链事实上异常脆弱：疫情初期屡屡发生的口罩、手套和其他医疗防护性用品的短缺；美国、欧洲和亚洲的汽车制造商正在经历的车用芯片短缺问题都是最好的例证。
 
-The second question just was very bravely：
+消息来源： 美国参议院网站
 
-第二个问题非常大胆：
-
-“Has anybody thought about the legal ramifications of this,
-
-“有没有人想过这件事的法律后果
-
-if anything did ever happen
-
-如果真的发生了什么事
-
-what’s kind of legal exposition for scientists or funders
-
-如果我们创造的新病毒被传播出去
-
-if new virus we created had get out
-
-对人类造成了巨大的经济损失
-
-did cost the substantial economic in human harm?”
-
-对科学家或资助者有什么法律论述？
-
-Thank you
-
-谢谢。
-
-Host:
-
-主持人：
-
-Peter Halar with the Foundation for Vaccine Research in Washington
-
-彼得·哈勒(Peter Halar)，华盛顿疫苗研究基金会(Foundation For Vaccine Research)。
-
-Peter Halar
-
-彼得·哈勒(Peter Halar)
-
-We feel that the issue of liability that insufficient attention
-
-我们觉得责任问题没有引起足够的重视
-
-has been given to the issue of liability
-
-这一点已经涉及到责任问题
-
-The organizer of the Sigma conference 35 years ago
-
-35年前西格玛会议的组织者
-
-made sure that were lawyers participating in that meeting
-
-确保当时有法律顾问参加那次会议
-
-Which let you know regardless of recovery technology
-
-无论采用何种恢复技术，都能让您知道
-
-There is another community that I think should be involved
-
-我认为还有另一个社群应该参与进来
-
-We think should be involved to that is insurance companies
-
-我们认为应该牵让保险公司加入进来
-
-The insurer don’t like what they are seeing and
-
-保险公司不会喜欢他们所看到的
-
-they don’t like what this is going
-
-他们不喜欢正在进行的事情
-
-in particularly
-
-尤其是
-
-the largest insurance companies that we reinsure
-
-我们再保险的公司是最大的保险公司
-
-Other insurance companies that experts on risk assessment
-
-其他保险公司的风险评估专家
-
-and they don’t like what they see
-
-他们不喜欢他们所看到的
-
-we understand that in the secret meeting in London at Lloyd’s of the reinsurers
-
-我们了解这是在伦敦劳合社举行的再保险公司秘密会议上的内容
-
-How we are going to reinsure
-
-我们怎样才能再保险呢？
-
-even with the most stringent bio safety rules and procedures ?
-
-即使有最严格的生物安全规则和程序？
-
-How on earth we are going to reinsure to reinsure ?
-
-我们究竟要如何再保险才能再保险呢？
-
-How we are going to reinsure insurance companies ?
-
-我们将如何为保险公司提供再保险？
-
-we’ve seen premium going up already
-
-我们已经看到保费上涨了
-
-How we are going to reassure this is safe ?
-
-我们如何才能保证这是安全的呢？
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://twitter.com/functiongain/status/1389152242360623106?s=24](https://twitter.com/functiongain/status/1389152242360623106?s=24)
-
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场- Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片: 康州盘古农场-银龙
-发布：康州盘古农场-文韵
+（本文系作者个人观点）
 
 0
