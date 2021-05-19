@@ -1,41 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中医之我见
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1257056/)
+## 中共以黑治港、以警治港为其灭亡打开了一道大门
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1257126/)
 
-作者：比丘泥 | 校对：X-Wing飞得更高 | 审核：宁缺 | Page：青山
+新闻来源：《香港自由新闻》| 作者：Candice Chau | 发布时间：2021年5月17日
+翻译/简评：新街口 | 校对/审核：万人往 | Page：我是球大哥
 
-[!\[\]()!\[\](https://spark.adobe.com/page/wOepaptF4Dj0H/images/bbf4c508-d3b2-4711-b776-1ec84b7fe6de.jpg?asset_id=ae6288e3-d69c-4010-a4f8-ac94b7b01233&amp;img_etag=%22f235000e721df31c228035ce284f78ae%22&amp;size=1024)](https://spark.adobe.com/page/wOepaptF4Dj0H/images/bbf4c508-d3b2-4711-b776-1ec84b7fe6de.jpg?asset_id=ae6288e3-d69c-4010-a4f8-ac94b7b01233&amp;img_etag=%22f235000e721df31c228035ce284f78ae%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/B9LHoM6Pz3q98/images/a838433c-fddc-445a-9edc-a75088bfed63.jpg?asset_id=571bd484-1b8b-41a0-a864-2ee17a99bad8&amp;img_etag=%228c15e27e3ec24e01d1d92d0f7fd39fea%22&amp;size=1024)](https://spark.adobe.com/page/B9LHoM6Pz3q98/images/a838433c-fddc-445a-9edc-a75088bfed63.jpg?asset_id=571bd484-1b8b-41a0-a864-2ee17a99bad8&amp;img_etag=%228c15e27e3ec24e01d1d92d0f7fd39fea%22&amp;size=1024)
 
-本文谨通过我使用中药的亲身经历，浅谈对中医的理解和中共对中医文化的伤害。
+中共非法政权公开撕毁自己签订的《中英联合声明》，违反自己许诺的维持香港50年不变的承诺，这导致了2019年引入遣返法时受到了全体香港人的强烈抵制。而中共则指使香港和大陆警察对香港民众的和平示威进行了残酷镇压。
 
-万物皆有阴阳，日为阳，月为阴；山为阳，水为阴；南为阳，北为阴；男为阳，女为阴，正义为阳，邪恶为阴……
+香港和大陆黑警在媒体的摄像机前对香港示威群众残忍地使用各种暴力，在暗中则对抗争的年轻人进行惨无人道的虐杀，然后抛尸大海或直接从高楼扔下造成自杀的假象。
 
-骂人说此人“阴损”，本质含义就是阴脉受损，所以，人才“阴险奸诈”；事业“如日中天”，则此人阳气很盛；有“浩然正气”，自然就会“邪不胜正”。中医就是通过调节人的阴阳平衡，达到祛邪扶正的目的。没有邪气入体，阴阳又平衡，人自然就会长寿，百病不生。
+今天，香港保安局长李家超不但把香港人的和平抗争比喻成黑色暴力，而且还利用国安恶法对香港民主人士进行大规模的逮捕和诉讼，并作为自己的一个政绩，进而无耻地宣称香港的犯罪率开始下降。
 
-所以，中医不能用西医的化学和解剖学去理解。单纯从成分分析一味中药，无非是一些化学元素而已。就像光盘，剖开光盘，就是一片塑料，但其中蕴含的价值是不可估量的。
+李家超的这份声明充分证明了中共利用香港警察和保安局，把以黑治国、以警治国的方式完全复制到了香港。曾经把香港带入辉煌的民主与法治社会体系现在已被中共彻底毁灭，香港变成死港、臭港的日子已为期不远。
 
-中医“以形补形”的观点就是“天人合一”。“以形补形”是指，例如，人的肝脏不好，就多吃些动物的肝脏。从西医的理解，动物内脏含丰富的蛋白质等营养，所以才补肝。但从中医理解，宇宙间万物是相互映射的，吃了动物的肝脏，吃的不是肝脏本身，吃的是来自宇宙更高维度的相似的能量。
+但是，中共在香港的所作所为让世界充分、深刻地认识到了中共的本质，也为中共自身的灭亡打开了一道大门。中共必将会被铲除，香港也必将会再度辉煌！
 
-中草药，不是一堆堆粗枝滥叶，而是吸收了“日月精华”的灵体。一张精心构思的高水平的中药处方，是对现代仪器无法探测的能量体运行轨道的一种修正。中医的切脉，是通过人体经络的振动，与灵魂对话。经络的这种振动，就像发报机一样，把自己的人生经历、喜怒哀乐，通过电波传给医生，医生再进行解码，分析患者的病情。所以，优秀的中医，不会死记药方，把脉准的医生，就像算命一样，对患者的前世今生了如指掌。
+**原文翻译：**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/wOepaptF4Dj0H/images/57830a49-39bc-4cef-91dd-a4dac34c5639.jpg?asset_id=0f5bafd8-5c85-49c5-94fb-a23d24e5f0ca&amp;img_etag=%229f2cba99c3335b6ffcdc0c7ddd86cf0b%22&amp;size=1024)](https://spark.adobe.com/page/wOepaptF4Dj0H/images/57830a49-39bc-4cef-91dd-a4dac34c5639.jpg?asset_id=0f5bafd8-5c85-49c5-94fb-a23d24e5f0ca&amp;img_etag=%229f2cba99c3335b6ffcdc0c7ddd86cf0b%22&amp;size=1024)
+## 2019年香港抗议活动导致10250人被捕，2500人被起诉，保安局长居然称赞犯罪率下降
 
-我是“青霉素过敏”体质，幸运的是，遇到了多位优秀的中医。当我生病的时候就服用中药，按疗程和科学剂量服用，从来没有副作用。深入理解中医，也是修身养性的一部分，就像颂读佛经，可以化解业障。研习中医，可让人在不知不觉中，阴阳逐渐趋于平衡，就可能改变人的不良情绪和负面性格。
+*这位安全负责人说，自去年6月北京当局立法以来，已经根据国家安全法逮捕了107人。*
 
-可悲的是，中共执政以来，太急功近利，一切以赚快钱为目的。而中医，尤其是中医的切脉，需要接触不同脉象的病人和长年的积淀，才能练成诊治病症的高深内功。现在是，内功高手不多，死记药方、不会切脉的医生却不在少数。再加上缺少法律政策的约束和扶持，中药的治疗周期又长，中医领域乱象群生，很多病人不再信任中医，选择了速战速决的西医来解决病情。只一个感冒，本来低价的几副中药就可以解决问题，病人却选择一大清早去排几个小时的队挂号、化验，然后被要求打“点滴”。医院往往选用简单粗暴和能为医院创造暴利的抗生素。滥用抗生素，不仅造成了病人大量财力浪费，而且过量抗生素后患无穷。
+据保安局局长李家超称，香港2021年第一季度的犯罪数量与去年同期相比下降了10％。
 
-客观、科学地看待理解中医，不仅是文化的传承，也是救人救己。台湾和日本在这方面已经把我们甩得太远了。
+香港在前三个月总共发生了14779件案件，侦破率上升了3.4％，达到34％。
+[!\[\]()!\[\](https://spark.adobe.com/page/B9LHoM6Pz3q98/images/b7fd5910-ca95-4037-b5f3-1a4973dc7f4a.jpg?asset_id=eacc361e-6d2f-469b-96a0-073b6f7f28cb&amp;img_etag=%22f107b6a401d72af266c03ba566a57ab2%22&amp;size=1024)](https://spark.adobe.com/page/B9LHoM6Pz3q98/images/b7fd5910-ca95-4037-b5f3-1a4973dc7f4a.jpg?asset_id=eacc361e-6d2f-469b-96a0-073b6f7f28cb&amp;img_etag=%22f107b6a401d72af266c03ba566a57ab2%22&amp;size=1024)香港前线抗议者。档案照片：Studio Incendo。
+李家超说：“第一季度的数字下降仅表明我们可能正在摆脱‘黑色暴力’带来的最糟糕的局面。”他指的是2019年反引渡法的抗议活动和由此引发的大规模社会动荡。
+
+李家超补充说，自2019年6月以来，有10250人因抗议而被捕，其中2500人已被起诉。还有1500人的法律诉讼已经完成，其中80％的人要承担包括坐牢在内的法律后果。
+
+这位安全负责人说，自去年6月北京当局立法以来，已经根据国家安全法逮捕了107人，其中57人已被起诉。
+
+北京当局起草的立法将颠覆、分裂国家、与外国势力勾结和恐怖主义行为定为刑事犯罪，广义上包括对公共交通和其他基础设施的破坏。
+
+[原文链接](https://hongkongfp.com/2021/05/17/10250-arrests-and-2500-prosecutions-since-2019-hong-kong-protests-as-security-chief-hails-fall-in-crime-rate/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/wOepaptF4Dj0H/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/wOepaptF4Dj0H/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/B9LHoM6Pz3q98/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/B9LHoM6Pz3q98/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 
 

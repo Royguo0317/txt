@@ -1,23 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士说这本教科书里早就提到中共会如何运用这种超限生物武器和他们所希望达到的目的，以及他们将如何用否认和说谎进行这场超限科学误导信息战
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1257220/)
+## 普京敦促勿忘二战教训
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1257260/)
 
-#### 视频字幕翻译：平常心（文常心）
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-他们称辨别实验室增强的人造新冠病毒和自然出现的病原体的唯一黄金标准是检查自然进化过程。
+编辑上传 银河
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19124401/Snipaste_2021-05-19_19-43-39.jpg)[historyextra.com](http://www.historyextra.com/article/bbc-history-magazine/7-must-see-second-world-war-films)
+5月18日，据《塔斯社》报道，俄罗斯总统弗拉基米尔·普京坚信，国际社会应尽一切努力防止第二次世界大战的重演和对其教训的遗忘。
 
-[**原视频链接**](https://youtu.be/Jk2HM1PYkro)
+普京说：“我们相信，必须采取一切措施，防止第二次世界大战的悲剧重演，忘记其教训。”他强调，所有国家都必须珍惜在应对共同挑战和威胁方面的宝贵经验和联盟精神，牢记默许民族主义和排外主义会导致什么，共同制定统一的议程，建立一个更加公正和民主的多极化世界秩序，确保人类的福祉和繁荣。
 
-***参与人员：**
-素材选择：laowu
-任务发布：美丽心情
-视频剪辑：laowu
-英文听写：秘密翻译组
-德语翻译校对：可爱国
-字幕：马丁路德King
-字幕校对：年糕
-视频压制：年糕*
+普京总统称，5月9日俄罗斯庆祝了伟大卫国战争的胜利日。“这始于80年前的1941年6月22日，当时纳粹背信弃义地袭击了我们的祖国。我们珍惜那些战斗过的人，和在后方无私地工作的战斗人员，他们为和平和自由献出了自己的生命，我们向我们的老兵致敬。”
+
+参考链接：
+
+[https://tass.ru/obschestvo/11400191?utm\_source=twitter.com&utm\_medium=social&utm\_campaign=smm\_social\_share](https://tass.ru/obschestvo/11400191?utm_source=twitter.com&amp;utm_medium=social&amp;utm_campaign=smm_social_share)
 
 0

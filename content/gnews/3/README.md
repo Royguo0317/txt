@@ -1,20 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 被夷毁的美联社驻加沙大楼实为哈马斯重要窝巢！
-` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1257109/)
+## 以色列总理称在加沙的行动将至少持续数日
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1257253/)
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19115442/%E7%BE%8E%E8%81%94%E7%A4%BE%E5%A4%A7%E6%A5%BC-edited.jpg)图片来源：MINGPAO
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
+编辑上传 水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19123458/I-16.jpg)vestnikkavkaza.net
+5月18日，据《塔斯社》报道，以色列对加沙地带激进分子的行动将至少再持续数日。这一声明是以色列总理本雅明·内塔尼亚胡周二在与该国南部的地方议会代表会晤时发表了这一声明。
 
-据加拿大自媒体《ThePostMillennial》于5月19日刊登文章报道，以色列国防军（IDF）此前在加沙将一座内设有多个知名媒体办公室，其中包括美联社的大楼夷为平地之后，以色列一直处于被其仇视者严厉谴责和报复的前列。但此后以色列和美国均证实，巴勒斯坦恐怖组织哈马斯当时正在该建筑物内外进行大量军事行动，这就是以色列必须要铲平它的根本原因。
+“行动将至少再持续几天。在此之后，任何（激进分子）的炮击都将受到最强烈的回应。”《以色列时报》援引总理的话说。
 
-据《Politico》报道，以色列在采取该打击行动之前已及时向美国提供了相关情报，并表明哈马斯当时正在将其大部分资产和装备从该大楼中匆忙转移出来。“熟悉情况的内部人士证实，以色列早已与美国分享了有关该建筑物的一些重要机密情报，但拒绝透露其具体细节，只是说情报表明该大楼是哈马斯的重要活动基地，包括其参与和策划的各项（针对以色列的恐怖）活动。美国为此曾提醒以色列，表示以方应该公开分享有关此情报的更多信息。”
+自5月10日以来，加沙地带的巴勒斯坦激进组织和以色列军队一直在进行相互的火箭袭击。这些事件发生在东耶路撒冷阿克萨清真寺的骚乱之后，骚乱的起因是以色列法院决定没收居住在谢赫-贾拉社区的阿拉伯家庭的房屋。根据最新数据，以色列方面至少有12人被杀，巴勒斯坦方面（在加沙地带和西岸）有200多人被杀。
 
-随后发生的事情就是，以色列国防军在警告了该大楼内的人员立刻撤离的一个小时之后，用数枚导弹将其彻底摧毁，该举动显然表明以色列的意图并不是针对平民。
+参考链接：
 
-[原文链接](https://thepostmillennial.com/hamas-presence-confirmed-to-be-significant-in-the-gaza-building-that-housed-the-ap)
-
-本文仅代表原媒体信息和作者个人观点。
+[https://tass.ru/mezhdunarodnaya-panorama/11404215?utm\_source=twitter.com&utm\_medium=social&utm\_campaign=smm\_social\_share](https://tass.ru/mezhdunarodnaya-panorama/11404215?utm_source=twitter.com&amp;utm_medium=social&amp;utm_campaign=smm_social_share)
 
 0
