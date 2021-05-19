@@ -1,68 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [疫情下的西班牙]西班牙爆发历史性移民危机，其中已发现病毒患者
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1257278/)
+## 【热点播报】印度使用伊维菌素和羟氯喹后，COVID病例骤减
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1257323/)
 
-- 翻译：gokuabuela
-
-
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
-
-**西班牙2021年5月19日电/西喜社——**
-
-位于非洲大陆上的西班牙城市休达，周一（5月17日）凌晨开始爆发大规模非法移民潮。大量非法移民越过边境，进入西班牙境内。仅周一当日，就有超过6000人进入西班牙，其中包括至少2000名儿童。制造了西班牙历史上从未有过的非法移民浪潮，酿成了巨大的人道灾难。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19062909/1-147.jpg)
-下图为：夜色下游泳偷渡的人群![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19110857/2-143.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19112548/3-112.jpg)
-
-休达位于非洲大陆，是西班牙在非洲的两块飞地之一，与摩洛哥直接接壤，与欧洲大陆隔着直布罗陀海峡。休达的海滩与摩洛哥仅仅相隔一道铁丝网，翻越铁丝网非常容易，游泳可以直接过来。
-大量的移民涌入休达，给当地警方和居民带来巨大压力。休达总人口8.4万人。而第一天的移民总数超过了6000人，很多人聚集在街道上，海滩上，高呼着“FUCK 摩洛哥国王，西班牙万岁”的口号。他们当中，有许多老人和儿童，以及伤员。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19114223/4-78.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19113741/5-51.jpg)
-是什么原因让摩洛哥对西班牙进行“惩罚”呢？原因在于西班牙政府允许波利萨里奥阵线（ **Frente Polisario**）的主席和领导人加利（Brahim Ghali）出于“人道主义原因”进入西班牙。根据《非洲青年》杂志披露的信息，加利将在洛格罗尼奥的一个医疗机构住院治疗，他患有严重的癌症，并且是化名进入西班牙的。也有消息称，加利是在西撒哈拉的一次军事行动中受伤，而来到西班牙的。
-
-波利萨里奥阵线，是撒哈拉人民的反政府民族解放运动，旨在控制西撒哈拉，该地区曾被西班牙、毛里塔尼亚控制，截至2021年被摩洛哥统治。
-
-在涌入的移民潮中，已经发现了一名中共病毒患者。
-
-对此，西班牙做出了剧烈反应。紧急宣布调拨军队进入休达，实施隔离措施。周一，西班牙快速反应部队已经进入休达。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19114132/6-27.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19114139/7-18.jpg)
-执勤的军人和生死未卜的偷渡者![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19114830/8-26.jpg)
-西班牙首相桑切斯紧急宣布，放弃原定今日访问法国的行程，一定要保持西班牙的“领土完整“。
-
-而西班牙内政部长马拉斯卡则反对收留波利萨里奥的领导人，并警告说会有后果。
-
-欧盟认为休达局势 “令人担忧”，呼吁摩洛哥恢复合作。
-
-根据最新消息，截至到目前，非法移民人数已经达到了10000人。首相桑切斯称“将立即遣返所有非法进入休达的移民“。截止到发稿前，已经遣返了2700人。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19115251/9-24.jpg)
-**简评：**
-
-**一场政治纷争，也许不仅仅是为了反对派的领导人。关于休达，摩洛哥也确实存在着从西班牙手中要回去的想法，借助此次事件，伺机扩大领土也是有可能的。至少，西班牙对此想法有着异常敏感的神经，这也是迅速出动军队的原因。**
-
-**偷渡，让我们想起了上世纪70年代香港的偷渡潮。普通的人们，总是向往更加美好的生活，更加自由的环境。要不是那巨大的落差，谁又愿意背井离乡，冒着生命的危险，偷渡异国呢？**
-
-**而那些独裁者们，却喜欢把偷渡作为一种武器。用自己国民的生命和安全，来威胁其他国家，用自己制造的人道灾难，来威胁文明国家去消化这个人道灾难。**
-
-**邓小平曾经说过，“我们只要放开边境，让X亿中国人进入西方，全世界就会受不了**
-
-**土耳其在前两年，放开边境，鼓励叙利亚难民进入欧盟，为此达到欧盟支持它的政治要求和经济要求的目的。**
-
-**今天的摩洛哥，又故伎重演，独裁政权的手段都是那么相似**。
-
-**明天，中共国，会不会在穷途末路之下，也驱使我们的同胞，用难民的身份去冲击别的国家？**
-
-**这也是我们为什么追求普世价值，追求人权的一个原因。中共常说“宁做太平犬，不做乱世人”。用伊拉克、叙利亚的难民潮来恐吓国人，“看看吧，要民主要自由就会没有饭吃”，让人不敢反对它。而造成这种难民潮最大的原因就是因为独裁，因为对人权的严重不尊重。**
-
-**制造难民、践踏人权是人类文明必须抛弃的恶行，而阻碍人类文明进步的最大毒瘤就是中共，只有灭共，才能防止这种悲剧在我们身上重演。**
-
-素材：gokuabuela； 审核：蚂蚁兄弟； 校对：信心满满； 发稿：Nuevo唐人
-
-[波利萨里奥阵线](https://en.wikipedia.org/wiki/Polisario_Front)
-
-[西班牙巴塞罗那喜悦农场：疫情下的西班牙专栏](https://gnews.org/zh-hans/993776/)
-
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+作者：纽约香草山农场 四季
 
 
 
-+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+
+
+
+网关专家5月17日报道，印度政府在推广使用伊维菌素和羟氯喹后，印度的COVID病例骤减。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19132208/88-4.jpg)图片来源：网关专家
+
+印度卫生部于4月28日更新了关于检疫、治疗无症状和有轻微症状COVID-19患者的指导方针。其中指示，对无症状患者应“考虑服用伊维菌素3到5天”，护理人员对隔离区患者“按照治疗方案和医生处方采用羟氯喹进行预防措施”。
+
+印度的冠状病毒病例正在急剧下降，这要归功于印度政府向民众大量推广使用伊维菌素和羟氯喹的新规则。当然，世卫组织和制药公司正在发飙。
+
+目前，在292项研究证明羟氯喹对COVID-19有治疗和预防作用中，有219项经过同行评审； 在93项研究伊维菌素证明其作为治疗和预防COVID-19的有效性中，有54项经同行评议。尽管这些药物可在数小时或数天内杀死COVID-19——这是一个无可争辩的事实——但比尔-盖茨资助的世界卫生组织（WHO）和大型制药公司对印度的新准则和结果大为不满。
+
+参考阅读：
+
+[Elites Worried: COVID Cases in India Plummet After Government Promotes Ivermectin and Hydroxychloroquine Use](https://www.thegatewaypundit.com/2021/05/elites-worried-covid-cases-india-plummet-government-promotes-ivermectin-hydroxychloroquine-use/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+0
