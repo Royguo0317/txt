@@ -1,46 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】中共借疫情搞统战，台湾回应称其“假好心”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1256355/)
+## 埃尔多安的巴勒斯坦态度
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1256563/)
 
-配音：香草山录音组 蒙古鸿雁
+信息来源：德国世界报网络版 
+记者：马里恩·森德克 （Marion Sendker）
+发布时间：2021年5月19日
+翻译 /整理/ 简评： Shuizhuyu
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-
-
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19083326/So-reagieren-Politiker-auf-Erdogans-Nazi-Vergleich_reference_2_1.jpg)
 
 
-从5月10日起，台湾疫情突然升高，中共向台湾发出愿意出手“帮助”台湾抗疫的信息。台湾陆委会回应其“假好心”。同时强调，只要台湾沉稳应对、团结抗疫，一定能够安然度过这一波疫情威胁。
+**成千上万的示威者在土耳其示威。抗议以色列对加沙的袭击。**** ****跟以往不一样，**** ****警察保护了这些示威者。因为埃尔多安出于宗教原因支持伊斯兰哈马斯。这符合他的地缘政治策略。**
 
-5月18日晚间中共用国务院台湾事务办公室发言人朱凤莲名义声称：近期台湾疫情严峻，中共国各界心系台湾同胞生命健康安全云云，中共表示愿意尽“最大努力帮助”台湾民众尽快战胜疫情；并宣称当务之急是“去除人为政治障碍”，使民众有疫苗可用。台湾大陆委员会随后回应，“对岸不必假好心”，只要中共国大陆不阻挠，台湾可以更快速的从国际上取得更多可靠的疫苗。
+土耳其总统雷杰普·塔伊普·埃尔多安今天对以色列进行猛烈抨击，他并未直接对犹太人发表讲话。根据他的世界观，犹太人被允许生活和实现自己的信仰，但不能作为统治力量，当然也不能在耶路撒冷。最近，埃尔多安（Erdogan）指责以色列对巴勒斯坦人进行“恐怖主义”，并说这是以色列人的自然属性。 美国政府称他的言论是“反犹太人的”。
 
+激怒埃尔多安的是，迄今为止没有其他伊斯兰国家站在巴勒斯坦一边。他感到非常沮丧，以至于他甚至周一在梵蒂冈与教皇弗朗西斯进行电话交谈时呼吁支持。
 
+简评： 土耳其总统公开对哈马斯的支持已经表明了他的态度， 他也是一个独裁者和有恐怖倾向的总统。 庆幸的是， 世界上没有几个国家支持哈马斯， 本人认为， 在巴以冲突中， 也要区别出，哈马斯和巴勒斯坦人。 他们不是一个概念， 就像我们爆料革命所说的中共不等于中国， 也不等于中国人。 这必须要分开。 我们反对的是恐怖主义， 但是我们不反对巴勒斯坦人。 无独有偶， 哈马斯这个恐怖组织是拿巴勒斯坦人当人质当炮灰的。 他们和中共是一路货色。
 
-**文字版原文：[【独立观点】中共借疫情搞统战，台湾回应称其“假好心”](https://gnews.org/zh-hans/1255100/)**
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+发表： Shuizhuyu
 
-作者：纽约香草山健身部 Jack Li文阳
+🔗[Tuerkei-Erdogans-Palaestina-Kalkuel](https://www.welt.de/politik/ausland/plus231224745/Tuerkei-Erdogans-Palaestina-Kalkuel.html)
 
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1
