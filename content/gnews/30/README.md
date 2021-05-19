@@ -1,28 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 走向末日的中概股
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1257242/)
+## 芝加哥海关官员查获来自中共的68.5万美元假币
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1257287/)
 
-**撰稿人：东南**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19120100/2021%E5%B9%B45%E6%9C%8819%E6%97%A5%E9%85%8D%E5%9B%BE3.png)[(图片来源网络)](https://p9.itc.cn/q_70/images03/20210513/b59be2b6376341bd9b069f98ed98e13a.jpeg)
-**“爱孩子，懂教育”纯北美优质外教，让孩子口音更纯正，VIPKID的广告词相信许多有孩子的父母们都有听过。但近日中共国内线上教育的知名品牌VIPKID针对媒体报道“部分团队裁员50%”等传言回应称，为了更加聚焦核心业务发展，为学员和家长提供更加优质的教育产品和服务，近期公司确有正常的业务和人员调整。“但是，不像某些媒体报道的，一些业务裁员人员比例高达50%，与事实不符。目前公司各项业务正常运行，学员和家长不会受到任何影响。但牵强的解释无法掩盖真正的问题，经查找此次裁员的消息在今年已经不是第一次传出，就在今年年初已经有类似消息曝出称VIPKID正在进行新一轮人员调整，设计产研、行政等岗位，裁撤比例在10%—30%不等**
+作者:休斯顿星光农场  文顺
+![This image has an empty alt attribute; its file name is Screenshot-2021-03-25-230524-1.jpg]()![This image has an empty alt attribute; its file name is Screenshot-2021-03-25-230524-1.jpg](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-03-25-230524-1.jpg)
+5月18日，美国海关和边境保护局（CBP）截获了来自中共的24个装有假币的包裹，共计685，000美元。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19130306/1111-2-1.jpg)图片来源：breaking 911
+据breaking911报道，这批假币被运往美国各地的各个城市，包括伊利诺伊州和印第安纳州的城市。尽管所有的假币都以酒吧道具的形式出现，但复制货币已违反联邦法律，违法者可以被逮捕。
 
-**值得一提的是，此前据新浪科技消息，腾讯支持的VIPKid考虑在美国进行5亿美元的IPO，但随后都被该公司予以否认，从天眼查数据显示，自2013年成立至今，VIPKID共获九轮融资，其中最近一轮为2019年腾讯投资的1.5亿美元E轮融资。2017年开始，VIPKID接受的每轮融资都有腾讯的参与。**
+这批假币面值含5美元，10美元，20美元，50美元，100美元。一批运往纽约布朗克斯的包裹中有976张100美元的钞票，另一批运往路易斯维尔的包裹中有101张20美元的钞票和103张50美元的钞票。这批假币已移交国土安全调查局和美国特勤局进一步调查。
 
-**随着川普总统离任前通过的外国公司控股法，预计将终结包括阿里巴巴，京东等中概股在美国长达10年的逃避审查的做法，中国政府拒绝对其国内公司审计调查的时代将一去不复返，休想再用此借口规避财务调查。回头再看类似VIPKID这种宁可中止上市，也不愿意公布财报的中共国企业，你们敢投资吗？奉劝还持有此类股票的朋友们，千万不要再抱有侥幸心理。早日清空中概股减轻损失，留给他们的只有滚回中共国控制的香港上市这唯一出路。**
+芝加哥地区港口总监谢恩·坎贝尔（Shane Campbell）表示：”我们的CBP官员时刻保持警惕，关注通过IMF运送的任何类型的违禁物品。”
 
-(本文仅代表作者个人观点)
+据报道，在芝加哥的国际邮政设施（IMF），美国海关和边境保护局（CBP）官员每年处理5700万封包裹。海关人员通常每晚检获40至50个包裹，内有未经批准的药物、毒品、伪造珠宝、电子产品及许多其他非法物品。这批假币是在5月15日（星期六）至5月17日（星期一）为期三天内查获的。
 
-编辑：
+**新闻源参考:**
 
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+[Chicago Customs Officers Find $685K In Fake Cash Shipped From China – Breaking911](https://breaking911.com/chicago-customs-officers-find-685k-in-fake-cash-shipped-from-china/)
 
-【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
-【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
+编辑/校对/发稿：Helen、文顺
 
-文章参考：
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
 
-[http://finance.eastmoney.com/a/202105071913277833.html](http://finance.eastmoney.com/a/202105071913277833.html)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19113721/1-%E6%BE%B3%E5%96%9CLogo-8.jpeg)
-+1
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
+- 
+
+
+0

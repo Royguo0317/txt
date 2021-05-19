@@ -1,32 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疫苗护照将收集你所有的个人信息
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1257414/)
+## 佩洛西呼吁抵制北京2022年冬奥会
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1257442/)
 
-阿黎
+消息来源：共和报—repubblica.it
+发布时间：2021.05.19
+翻译整理：斩草要除根
 
-在美国和全球的全球主义者极力鼓吹中共病毒疫苗护照的必要性，并全力推动疫苗护照在美国和全球实施的情势下,内奥米-沃尔夫（Naomi Wolf）博士刚刚在接受福克斯新闻采访时说的一番话应该为大众敲响了警钟。
-
-内奥米-沃尔夫是美国作家和记者。继她的第一本书《美丽神话》（The Beauty Myth）之后，她成为了女权运动的第三波浪潮的首席代言人。
-
-沃尔夫博士在采访中说：“我没有过分强调这个问题。如果这个（疫苗护照）计划得以实施，这将是西方人类解放的终结。在你不知道这个平台能做什么时，（疫苗护照计划）听起来像是一个不错的事情，我了解到的是，（疫苗护照）一旦实施起来，你就没有选择地成为这个系统的一部分。人们必须明白，任何其他的功能都有可能被加载到这个平台上，一点问题也没有。我的意思是说，这个平台可以将你的PayPal 帐户和你的数字货币都融合上来。微软公司已经谈到将人们的付款计划和社交网络与这个平台连接起来，你走到哪里都会被定位，就连你的个人信用史和医疗史也被包括。”
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19144657/vytautas-dranginis-hT9srFlXPGE-unsplash-scaled.jpg)
 
 
+美国众议院议长南希·佩洛西（Nancy Pelosi）呼吁美国和其他谴责中共国对维吾尔族的迫害的国家抵制明年定于中共国举行的冬季奥运会。
 
-> Naomi Wolf [@naomirwolf](https://twitter.com/naomirwolf?ref_src=twsrc%5Etfw) telling it like it is.[pic.twitter.com/7OBSxv6Vci](https://t.co/7OBSxv6Vci)
-> — Maria Sederholm (on Gab too) (@Wordofbeak) [May 18, 2021](https://twitter.com/Wordofbeak/status/1394678972882030594?ref_src=twsrc%5Etfw)
+其动机是北京侵犯人权，特别是对维吾尔族的迫害。佩洛西说，参加冬季奥运会的领导人有可能“失去道德权威”。
 
+简评：美国议员越来越高声呼吁抵制北京冬奥会，用这种“外交抵制 ”来批评中共政府践踏人权。相信会有更多的国家加入抵制的队伍中来，而中共想把美国国务院定义中共政府对维吾尔人和其他少数民族的这个“种族灭绝”灭绝罪给抹掉是绝不可能。
 
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
 
-这段视频在推特上仅一天内，就有近一百万点击，可见它引起大众的兴趣和震惊达到了何种程度。
+发表： Shuizhuyu
 
-相信绝大多数人不希望这样的事发生，不希望历史开倒车，回到奴隶社会，与远古的奴隶社会不同的是，全球主义精英们所要实现的是高科技的奴隶社会，是有各种高科技的监控设施监控奴隶的社会。
-
-那么我们该怎么办呢？对疫苗护照说“不”是正确的选择。如果大多数人都拒绝疫苗，疫苗护照计划就无法实施。
-
-* * *
-
-*编辑、发稿 文锦*
+🔗[cina\_pelosi\_chiede\_boicottaggio\_olimpiadi\_pechino](https://www.repubblica.it/esteri/2021/05/19/news/cina_pelosi_chiede_boicottaggio_olimpiadi_pechino_2022-301679593/)
 
 0
