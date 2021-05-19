@@ -1,204 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新冠肺炎在印度的数字激增：“我们已经看到又一天有超过3,000人死亡。”
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255721/)
+## 中共蓄意带风向，暗指美军已秘密进驻台湾是在为何铺垫
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1255750/)
 
-字幕内容：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19013951/%E6%93%B7%E5%8F%96519-0.jpg)
+作者：台湾宝岛农场快慢机
 
-Neha Poonia
+**中共大外宣扑风捉影，寻得社交媒体上的一则讯息，借此暗指美军已秘密进驻台湾。 **
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19013958/%E6%93%B7%E5%8F%96519-1.jpg)
+近日，中共大陆多家媒体，相继在网路上陆续刊文，引用一则台军士兵私人的社交媒体讯息，借此暗指美国陆军相关人员，或已秘密进驻台湾！如此蓄意带动风向，难道是在为「双龙计划」的武统台湾做铺垫？
 
-尼哈·普尼亚(Neha Poonia)
+眼下刚刚进入五月半数有余，月初，台湾本岛接连出现两例，来自中共大陆福建方向的，单人偷渡闯关事件。
 
-We have seen slit deep in the affection in the report in the last
+5月11日，台军于东南空域，首都完成了美制AIM-120型增程中距空空导弹的试射行动。
 
-在周日的过去24小时里，我们看到这份报告中的数字被深深地撕裂了
+次日的5月13号，6架台空军的F-16型单座版战机，从驻训的美国路克空军基地起飞返台，顺利抵达台湾莲花基地。
 
-24 hours on Sunday India record about 390,000 cases on Monday that number dipping
+然而，48小时后的5月15号，台湾内便突然激增，”中共病毒”感染确诊井喷式爆发险情。这一切难道仅仅都是巧合么？
 
-因为监测到的数字刚刚下降到36万例, 却在周一录得
+**5月11日，空军于台东南方向空域，首都完成了F-16V改进型战机，挂载美制AIM-120型增程中距空空导弹的试射行动。 **
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19014005/%E6%93%B7%E5%8F%96519-2.jpg)
+11日清晨05：35左右，空军的4架改进型F-16V双座版战机，各自挂载2枚美制AIM-120增程型中距空空导弹，及2枚美制短程响尾蛇导弹，从嘉义空军基地起飞升空后，极速飞抵台东南方向预定空域，随即编队中的1、3号机各向预定目标，发射了一枚AIM-120型导弹，两枚飞弹均精准命中靶机。
 
-just monitoring over 360,000.
+**6架空军驻美F-16战机，于5月13日历经10余个小时航程，中途相继接受3次美军空中加油补给，安全返回台湾莲花基地。 **
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19014018/%E6%93%B7%E5%8F%96519-3.jpg)
+5月13日下午，6架机号分别为6604、6605、6606、6607、6608以及6621的F-16A型单座版台空战机，从此前驻训的美国亚利桑那州的路克空军基地起飞，历经10余小时的航程，中途相继接受了美军3次的空中加油补给后，系数安全飞抵台湾莲花基地。据悉，后续将还有10余架该型战机，以此方式分批从驻训的美军路克基地起飞返台。
 
-大约39万例病例
+**48小时后的5月15日，台湾本土内便诡异激增了”中共病毒”的感染确诊病例，这一波井喷式疫情骤然爆发的时间节点，与台军方面的军事动作竟如此之吻合。势必为「中共单方面蓄意投毒」而无疑！ **
 
-We’ve seen more than 3,000 deaths for another day running.
+中共官媒此前不止一次吹嘘，但凡美军驻台之时，便是中共武统台湾之刻。中共武力侵袭台湾之心随从未放下，但毕竟有所忌惮美军强大的战力存在而有所迟疑。
 
-我们已经连续一天看到3000多人死亡
+但这一切，自2020年中共开始大规模启动对全球的「生化病毒武器超限战」之后，便不在成为中共的困扰。常规的军事打击选项，已经被「生化武器式的超限战」所代替。
 
-But most expertise are cautioning against any kind of optimism.
+中共的歹毒用心，妄想兵不血刃的令宝岛台湾屈服于”中共病毒”的淫威之下，趁机瓦解台湾民众的抵抗之意。为其后续即将展开的武统行动，消减阻力而铺垫。
 
-但大多数专家都告诫不要持任何形式的乐观态度
+为台湾的同胞们祈祷！
 
-Warning this does not represent the full picture of the outbreak in the country.
+此文仅代表笔者个人观点！
 
-他们警告说，这并不代表该国疫情的全貌
+新闻连结：[汪滨：美国安全部队援助旅进驻台湾是严重挑衅行为！](https://www.163.com/dy/article/GABCHVF10537PFKD.html?f=post2020_dy_recommends)
 
-For weeks now, it’s really difficult to get self adjusted if you have symptoms of Covid-19
+[传台军驻美F-16战机返台进行性能提升，台空军避谈\_快讯](http://www.taiwan.cn/taiwan/jsxw/202105/t20210514_12352153.htm)
 
-几个星期以来，如果你有新冠肺炎的症状，真的很难自我调整
+[台媒曝光：台空军为试射美制中程导弹“振奋”，岛内网友：这时疫苗比较重要吧](https://www.163.com/dy/article/G9QSJDCI0514R9OJ.html)
 
-and most expertise are warning that because of that many people who are sick,
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-大多数专家警告说，由于有这么多人生病，
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
-nothing reflected in this numbers
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
-这些数字并没有反映出来
+文章审核：zhong
 
-and it’s quietly like India about 5-6 times larger than official numbers represent.
-
-很有可能是印度官方公布数据的5-6倍
-
-Reporter:
-
-记者问:
-
-What’s been the reaction to the travel ban? That’s been set in place by the Biden’s administration
-
-对旅行禁令有何反应？拜登政府已经制定好了方案
-
-Neha Poonia:
-
-尼哈·普尼娅(Neha Poonia)：
-
-But that’s not been really surprising, because the US is not the first country
-
-但这并不令人惊讶，因为美国并不是第一个
-
-to impost travel restriction to and from India.
-
-对往返印度实施旅行限制的国家
-
-We’ve seen over the last few weeks, several countries do this, including Canada,
-
-在过去的几周里，我们看到有几个国家这样做，包括加拿大、
-
-Hong Kong, Australia, Israel,
-
-香港、澳大利亚、以色列
-
-as well as many other countries in Europe, as well including UK
-
-以及包括英国在内的许多其他欧洲国家
-
-and this has been disappointed, because as many Indians travel frequently to US.
-
-这令人失望，因为许多印度人经常往返美国
-
-We’re hoping to leave the country, many tours, because of the surging cases,
-
-我们希望离开这个国家，很多旅客，因为病例激增，
-
-because access to the medial care here has been so very difficult.
-
-因为获得这里的医疗服务已经非常困难
-
-Flights of international carrier area at India are booked out in the end of May
-
-印度区域的国际航空公司的航班到5月底已经被预订一空
-
-But many of those people were planning to leave the country now,
-
-但这些人中的许多人现在计划离开这个国家
-
-are not going to be able to do that,
-
-但他们不能这样做，
-
-they are also concerns that this is mightily to some sort of a stigma against Indians,
-
-他们还担心这很可能是对印度人受到屈辱对待
-
-because of variant B6 and 71 has been identified here.
-
-因为变异毒株B6和71已经在这里被鉴定出来。
-
-It’s believed to be highly transmissible and highly efficacious.
-
-人们认为它具有很强的传染性和高效性
-
-But Indian government is not yet linking the current surge to this variant.
-
-但印度政府还没有将目前的激增与这一变异体联系起来
-
-Reporter:
-
-记者问:
-
-Final question for you, Neha. Have we seen any surge of relieve effort being
-
-最后一个问题，尼哈。我们有没有看到美国向印度
-
-sent by the US to assist in India?
-
-提供大量的救援解困工作?
-
-Neha Poonia:
-
-尼哈·普尼娅(Neha Poonia)：
-
-We have seen several shipments arriving at India.
-
-我们已经看到几批货物抵达印度
-
-The latest reach in India at early hours of Monday morning.
-
-最新消息,周一凌晨到达印度
-
-There’ve been thousand ventilators and as well as essential drugs like Remdesivir,
-
-已经有上千个呼吸机和像瑞德西韦这样的重要药物，
-
-which comes from the United States, it has been aid that India desperately needs,
-
-来自美国，都是印度迫切需要的援助，
-
-but there happened concerns about what the India government is doing with these aids.
-
-但人们对印度政府如何处理这些援助感到担忧
-
-It’s understood a lot of shipments has not yet reach to hospitals desperately need it
-
-据了解，很多货物还没有被送到急需它的医院。
-
-Here in Delhi, I can tell you that for 2 weeks running we have seen
-
-在德里，我可以告诉你，我们已经连续两周看到人们
-
-the desperately scrumbled for beds and medical oxygen
-
-拼命地寻找床位和医用氧气
-
-And many are asking why this oxygen concentrators, these oxygen cylinders,
-
-很多人都在问，为什么这些氧气浓缩器、这些氧气瓶
-
-essential drugs are not reach to hospitals
-
-基本药物不能送到医院呢？
-
-who are struggling to cop with these massive numbers
-
-他们正在努力应对如此庞大的数字
-
-many of them who are must turning patient away
-
-他们中的许多人必须把病人拒之门外
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://twitter.com/newsmax/status/1389243350277001220?s=24](https://twitter.com/newsmax/status/1389243350277001220?s=24)
-
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场- Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片: 康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+文章发布：Little Liu
 
 0
