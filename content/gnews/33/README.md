@@ -1,33 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本财经简讯2021年5月15日
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1255797/)
+## 【有声读物】中共借疫情搞统战，台湾回应称其“假好心”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1256355/)
 
-作者：喜马拉雅东京樱花团 / 财经组
+配音：香草山录音组 蒙古鸿雁
 
-![](https://lh6.googleusercontent.com/zVItXBcuxcXBde-p9Bqwz3FKqWmaSUxrDblZLp909HgEJpnnBO1MuwTQneVYcU87iZyWNo8UYsIIIIt_aAMe8CvpmBKwk-moYL-vw3I99H105OUUC7j4DXpaz2qarP2zhoJfs2vy)
-[图片来源](https://www.jrailpass.com/blog/how-much-does-it-cost-japan)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-1. 日本铁路公司(JR)在中共病毒的影响下2020年营业额减少1兆日元(约合700亿人民币)，伴随疫情的持续扩大，2021年度的经营状况也不容乐观。
 
-2. 日本航空(JAL)开始在日本国内航线导入波音777，不仅机内装饰保持国际航线的原样，只需再加1000日元(约合人民币70元)就可以进行升舱，日本航空表示接下来的波音777将主要用于国内线。
 
-3. 在中共病毒的影响下，三分之一以上的中小企业为了降低员工的培训成本，将招募员工的重心从招募应届毕业生完全转移到了招募有工作经验的人才上。
 
-4. 由于日本疫情的扩大，在东京都与大阪府对各大百货商店的休业要求下，百货商店业界已经连续两年失去了五月份黄金周与母亲节这样的销售机会，与中共病毒爆发前相比被要求休业的百货商店的销售额大约减少了7成。
 
-5. 日本公寓租借公司LEOPALACE21在14日表示，截至2021年3月的账目结算结果显示该公司亏损236亿日元(约合14亿人民币)，债务总和超过总资产84亿日元(约合人民币5千万元)。
 
-6. 日本放送协会(NHK)会长前田晃伸提及了人事改革的内容。目前为止现任的干部从理事会退职后都会进入NHK的11个子公司的领导层，但是前田会长表示由于各个子公司的独立性较强，日本的以资历来决定职位的传统经营方式–“年功序列”难以实施。他希望各个子公司可以活用各自本身所积累的经营经验。
 
-7. 日本石油公司ENEOS的场务执行官河西隆英表示，该公司接下来的经营目标为通过新的核心领域的技术来向各个产业提供高性能的材料。如果接下来与材料领域的其它公司能够良好地合作的话，该公司也会考虑进行收购或者合并。
+从5月10日起，台湾疫情突然升高，中共向台湾发出愿意出手“帮助”台湾抗疫的信息。台湾陆委会回应其“假好心”。同时强调，只要台湾沉稳应对、团结抗疫，一定能够安然度过这一波疫情威胁。
 
-8. 山形市Kirayaka银行(きらやか银行）行长栗野学将在6月24日的股东大会上引咎辞职。在中共病毒的影响下，2021年3月的账目结算结果为12期以来的首次赤字。他表示为承担赤字给股东所带来的损失将引咎辞职。
+5月18日晚间中共用国务院台湾事务办公室发言人朱凤莲名义声称：近期台湾疫情严峻，中共国各界心系台湾同胞生命健康安全云云，中共表示愿意尽“最大努力帮助”台湾民众尽快战胜疫情；并宣称当务之急是“去除人为政治障碍”，使民众有疫苗可用。台湾大陆委员会随后回应，“对岸不必假好心”，只要中共国大陆不阻挠，台湾可以更快速的从国际上取得更多可靠的疫苗。
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
-*校对：喜马拉雅东京樱花团 / 東洋武士*
-*责任编辑：喜马拉雅东京樱花团 / 文小白*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13031339/%E4%BA%8C%E7%BB%B4%E7%A0%81-1.jpg)
+
+
+**文字版原文：[【独立观点】中共借疫情搞统战，台湾回应称其“假好心”](https://gnews.org/zh-hans/1255100/)**
+
+作者：纽约香草山健身部 Jack Li文阳
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 0
