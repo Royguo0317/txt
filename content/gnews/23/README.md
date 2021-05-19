@@ -1,39 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 逢佩奥称Covid-19 源自武汉实 验室生物恐怖存在人风险
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255357/)
+## 印度海军寻求核潜艇以应对印太新战场
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1255494/)
 
-翻译：康州盘古农场 – TrueSky
+俄罗斯莫斯科喀秋莎农场   银河
 
-校对：康州盘古农场 –格格巫
+编辑上传   水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18224346/I-15.jpg)flipboard.com
+印度媒体5月18日报道，在中共海军迅速扩张的背景下，印度海军想要六艘核潜艇（SSN）来取代柴油动力常规攻击潜艇，印太已经成为新的战场。
 
-编辑：康州盘古农场 – 傻小子
+印度海军已与莫迪政府接触，请求对内阁安全委员会(CCS)批准的30年潜艇建造计划进行改变，在印度洋-太平洋战略局势不断变化的背景下，用核动力平台取代六艘常规攻击舰。
 
-发布：康州盘古农场 – 彩虹 Rainbow
+在1999年7月被阿塔尔·比哈里·瓦杰帕伊(Atal Bihari Vajpayee)政府批准的30年的潜艇计划拟引进24艘柴油攻击潜艇。截至目前，印度海军有12艘老化的常规攻击潜艇和3艘新的卡尔瓦里级潜艇，其中第一艘在2017年12月服役。
 
-**据《福克斯新闻》作者：斯蒂芬·索拉斯，2021年5月16日报道：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18212901/New-Good_People.png)
-前国务卿迈克-蓬佩奥星期天说，目前的证据仍然表明冠状病毒源自中国武汉的一个实验室，他警告说，该地区产生的生物武器和生物恐怖的风险”非常真实”。
+据了解，海军已寻求内阁批准，允许其对潜艇计划进行更新，包括那些具有独立空气推进和六艘核攻击潜艇。这一变化是为了应对中共解放军海军(PLAN)核潜艇武库的迅速增加，并保护印度洋-太平洋地区不受未来对手的统治。
 
-蓬佩奥向”周日早晨的未来”主播玛丽亚-巴蒂罗莫暗示，中共”掩盖”了COVID-19的起源，他们在努力接触武汉病毒学研究所，在那里工作的医生，实验室的原始材料，证据仍在不断增加。
+截至目前，印度从俄罗斯联邦租赁了一艘阿库拉级潜艇“查克拉”号，以及一艘弹道导弹发射潜艇“阿瑞加特”号来应对日益严峻的中共海军威胁。
 
-我们努力获得每一个证据，我们尝试将证据提交给CDC，尝试与中国人合作。蓬佩奥说：”中共把它掩盖得很好。”
+参考链接：
 
-他说，尽管中共国极力否认与该实验室有关的任何信息，但是间接证据仍旧与之相结合，并表明该病毒源自这个实验室。
-
-蓬佩奥说：”我没有看到一丝一毫的证据可以证明任何相反的情况。”
-
-这位前国务卿还警告说，类似的疫情大流行的情况可能在未来会发生，并指出了生物战的可能性。
-
-蓬佩奥说：”这个或另一个中共国实验室，再次发生类似事件的风险是非常真实的。”他们（中共国）正在经营和开展的活动，与他们防护这些设施的能力不匹配。来自这一地区的生物武器和生物恐怖的风险是非常真实的。 “
-
-拜登政府官员对中共国干预调查工作表示担忧，故目前仍不清楚病毒的来源。
-
-原文链接：[https://www.foxnews.com/politics/pompeo-coronavirus-wuhan-china](https://www.foxnews.com/politics/pompeo-coronavirus-wuhan-china)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[https://www.hindustantimes.com/india-news/navy-seeks-amendment-to-30-year-submarine-plan-wants-six-nuclear-boats-101621307478586.html](https://www.hindustantimes.com/india-news/navy-seeks-amendment-to-30-year-submarine-plan-wants-six-nuclear-boats-101621307478586.html)
 
 0
