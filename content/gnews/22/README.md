@@ -1,148 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 保险公司专家评估功能增强实验的风险，他们不喜欢他们看到的情况
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255913/)
+## 认清CCP病毒疫情本质 澳大利亚继续严锁边境
+` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1255939/)
 
-字幕内容：
+#### 撰稿：yyshere（News Express）
+校对：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19033708/dbfa-isqivxh4603732.jpg)图片来源：新浪财经
+澳大利亚总理莫里森当地时间5月18号表示，在确保安全之前，澳大利亚不会对国际旅客开放边境。莫里森强调会根据最周全的医学建议制定边境管理措施，以避免澳大利亚民众面临CCP病毒带来的生命威胁。
 
-Gain-of-Function Research International Workshop 2012
+莫里森指出，“疫情正在肆虐，疫情正在演变。它每天都在发生变化。当你看到今年的疫情在侵袭发展中国家时，我们已经看到了新毒株，新的变异毒株的出现带来的巨大风险，即不是所有现在使用中的疫苗都能加以应对。”
 
-2012年功能增强国际研讨会
+莫里森还强调他不会用澳大利亚人的生命去冒险，“最重要的是骂我们必须根据最周全的医学建议做出决定，而根据我们现有的医学建议，走这些途径（如开放边境）是不安全的。但根据临床（数据），根据以验证的证据，我们会知道何时是合适的（采取这些步骤如开放边境）。我不会用澳大利亚人的生命去冒险。”“现实情况是，我们今年生活在比去年更严重的全球疫情中。”
 
-Man（one）
+澳大利亚目前除了与新西兰建立了免检疫旅行合作之外，从其他国家入境的旅行者都需接受14天隔离检疫。同时，澳大利亚已经禁止了有印度旅行史的外国旅客入境。
 
-男士一：
+此前，澳大利亚政府从2020年CCP病毒疫情全球蔓延后就就开始呼吁追查病毒源头，总理莫里森更在今年4月起次呼吁国际社会对CCP病毒疫情展开独立调查，溯清病毒源头和中共国早期实施的抗疫手段。
 
-The second question just was very bravely：
+莫里森在4月3号接受采访时指出：Covid-19病毒（CCP病毒）起源于中共国；澳大利亚媒体5月2号披露15页五眼联盟情报文件，表明Covid-19病毒（CCP病毒）可能起源于中共国武汉病毒研究所。
 
-第二个问题非常大胆：
+可以说澳大利亚莫里森政府实际是全球最早清醒认识到，所谓全球疫情，本质上就是CCP发动的生化战，并实施了一系列最严格边境管控措施的一个政府。这也是澳大利亚在今年严重恶化的全球疫情中得以暂时幸免的根本原因。
 
-“Has anybody thought about the legal ramifications of this,
+北京对澳大利亚的这一系列病毒追责行动表示强烈不满，称澳大利亚要求独立的疫情溯源调查是为了配合美国的政治操弄，并威胁推动调查“是危险的”。中共官媒环球时报4月末甚至把澳大利亚比作“有点像粘在中国鞋底上的嚼过的口香糖，有时你不得不找一块石头把它给蹭下来”。
 
-“有没有人想过这件事的法律后果
+消息来源： 澳大利亚广播公司 网络公开信息
 
-if anything did ever happen
-
-如果真的发生了什么事
-
-what’s kind of legal exposition for scientists or funders
-
-如果我们创造的新病毒被传播出去
-
-if new virus we created had get out
-
-对人类造成了巨大的经济损失
-
-did cost the substantial economic in human harm?”
-
-对科学家或资助者有什么法律论述？
-
-Thank you
-
-谢谢。
-
-Host:
-
-主持人：
-
-Peter Halar with the Foundation for Vaccine Research in Washington
-
-彼得·哈勒(Peter Halar)，华盛顿疫苗研究基金会(Foundation For Vaccine Research)。
-
-Peter Halar
-
-彼得·哈勒(Peter Halar)
-
-We feel that the issue of liability that insufficient attention
-
-我们觉得责任问题没有引起足够的重视
-
-has been given to the issue of liability
-
-这一点已经涉及到责任问题
-
-The organizer of the Sigma conference 35 years ago
-
-35年前西格玛会议的组织者
-
-made sure that were lawyers participating in that meeting
-
-确保当时有法律顾问参加那次会议
-
-Which let you know regardless of recovery technology
-
-无论采用何种恢复技术，都能让您知道
-
-There is another community that I think should be involved
-
-我认为还有另一个社群应该参与进来
-
-We think should be involved to that is insurance companies
-
-我们认为应该牵让保险公司加入进来
-
-The insurer don’t like what they are seeing and
-
-保险公司不会喜欢他们所看到的
-
-they don’t like what this is going
-
-他们不喜欢正在进行的事情
-
-in particularly
-
-尤其是
-
-the largest insurance companies that we reinsure
-
-我们再保险的公司是最大的保险公司
-
-Other insurance companies that experts on risk assessment
-
-其他保险公司的风险评估专家
-
-and they don’t like what they see
-
-他们不喜欢他们所看到的
-
-we understand that in the secret meeting in London at Lloyd’s of the reinsurers
-
-我们了解这是在伦敦劳合社举行的再保险公司秘密会议上的内容
-
-How we are going to reinsure
-
-我们怎样才能再保险呢？
-
-even with the most stringent bio safety rules and procedures ?
-
-即使有最严格的生物安全规则和程序？
-
-How on earth we are going to reinsure to reinsure ?
-
-我们究竟要如何再保险才能再保险呢？
-
-How we are going to reinsure insurance companies ?
-
-我们将如何为保险公司提供再保险？
-
-we’ve seen premium going up already
-
-我们已经看到保费上涨了
-
-How we are going to reassure this is safe ?
-
-我们如何才能保证这是安全的呢？
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://twitter.com/functiongain/status/1389152242360623106?s=24](https://twitter.com/functiongain/status/1389152242360623106?s=24)
-
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场- Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片: 康州盘古农场-银龙
-发布：康州盘古农场-文韵
+（本文系作者个人观点）
 
 0

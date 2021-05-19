@@ -1,212 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国出现了一场劳工危机，这是对美国小企业的攻击，社会主义正在扼杀我们的国家，人们担心荒谬的刺激措施。”
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255979/)
+## 中共超限战灭港行动（十四）2010年元旦还我普选大游行和零八宪章
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1255969/)
 
-字幕内容：
+#### 搜集/撰文：岁月如歌 / 封面合成：文粤
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19034025/5191.jpg)
+2007年的全国人大代表大会表决否定2012年初选诉求之后，香港与中共的矛盾最终演变成香港民间举行大游行以及李柱铭先生绝食抗议。其后民间举办的多次活动继续争取普选权，但是从没有得到政府明确的承诺，这个矛盾越来越加深。 2009年11月18日政务司师长唐英年发表2012年行政长官的和立法会产生办法的咨询文件，对2017年实行普选行政长官和2020年立法会突显一个字都不提。而对2012年选举的办法和内容和2005年否决的200708年普选方案一样。这和当初的曾荫权在2007年香港特别行政区行政长官选举的承诺是相背的。这一来更加激起了民众的愤怒了，政府已违背承诺，香港人在力争。他们甚至自己推行五区公投用选票说话，以证实香港人是配有民主普选投票的。 2009年12月，公民党和社民连决定发动五区总辞变相公投，以全民投票来凝聚名义争取2012年的普贤方案。虽然最后没有达到目标及变质，但可以看到香港人在努力追求双普选所做的努力。民主进程都是有不成熟走向成熟的，五区公投是一个最初的不成熟试验。
 
-Marjorie Taylor Greene
+当香港人在为自己的权利努力抗争时，在中共统治下的大陆也正在运酿着一场革命。中共的独裁和言论自由的封禁并没有堵住人们的思想。追求自由民主是人的本性，八九六四之后，人们不敢提政治，不敢再关心民主，但那只是极度没有言论自由的现象。随着改革开放的发展人们通过网啰，媒体等渠道知道了外面的世界很精彩。知道了并不是所有的人都像我们一样被独裁者统治。觉醒的中华儿女渐渐的认识到人权、平等、自由是如此的重要，也是全世界共同追求的普世价值，民主、宪政、共和才是现代政治的基本框架。独裁之下没有民主更没有法治和共和可言。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19034042/5192.jpg)
+在中共大陆也有一批追求民主宪政共和的人士。 2008年12月9日为了纪念1948年12月10日的《世界人权宣言》60周年，一份宣言正在呼之欲出。由张祖华负责起草、刘晓波等人修改并有303位各界人士签署，这些人很多是内地异见人士和维权人士。包括鲍彤、丁子霖、刘军宁、戴晴、于浩成、浦志强、茅于轼、冉云飞等。这份宣言就是《零八宪章》，《宪章》提出促进中国民主化进程、改善人权状况、提出建立中华联邦共和国，解决两岸问题及各民族问题。原订2008年12月10日《世界人权宣言》60周年这一天举行论坛并发表《零八宪章》，但是8日，《零八宪章》刚刚在网上发布几个小时刘晓波就被警方带走了。 2009年6月23日刘晓波再次被警方以「涉嫌煽动颠覆国家政权罪」逮捕。接着中共逮捕了多名发起拟草人，封禁博客网站。到2011年6月为止在《零八宪章》上的签名有13,000多人。 2009年12月25日北京第一中级法院以“煽动颠覆国家政权罪”判决刘晓波有期徒刑11年剥夺政治权利两年。罪证是提出“联邦共和”和建立“中华联邦共和国”口号。 2010年10月8日刘晓波因为「为中国基本人权所进行的长期、非暴力的斗争」获诺贝尔奖，但大家都知道刘晓波在狱中没能去领奖。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19034100/5193.jpg)
+《零八宪章》是继八九六四之后的又一个文明追求民主宪政诉求，这么大一件事在中共大陆甚少人知道，被中共全部禁止传播。在国际上引起轩然大波，美国、德国、台湾等国家和地区政府都纷纷谴责了中共，他们支持和赞赏这些进步人士。西方多个媒体还报导了这一《宪章》。达赖喇嘛和其他一些国际人士也对《零八宪章》表示的支持和赞赏。香港没有防火墙，人们都知道《零八宪章》，立场新闻全文刊登该《宪章》。刘晓波因言获罪对香港人影响很大，香港人在刘晓波身上看到中共手段的残忍，对异见人士、维权人士、要求改革的人士，不分青红皂白一律严厉打击取缔。更明白言论自由不存在， 改革已死，只有独裁。香港人明白只有加快争取双普选争取民主政制才能保护自己的权利。刘晓波事件促发香港一连串的抗议运动。 2010年元旦日，泛民主派发起三万人大游行，要求「释放刘晓波，以言获罪可耻」，争取「2012双普选，一人一票选特首，订出普选路线图」。游行队伍身系黄丝带，象征争取民主自由。拉起「真民主，双普选」标语和刘晓波画像。香港人争取民主运动队伍越来越壮大，声势也越来越浩大。港中矛盾越来越走向撕裂。
 
-Congresswoman for Georgia’s 14th CD
+（未完待续）
 
-玛乔丽·泰勒·格林
+【本文仅代表作者个人观点】
 
-佐治亚州第14届CD的女众议员
 
-This is absolutely the issue that should be raining the new cycle and set up gossip
+参考连接：
+[自由亚洲-三万港人游行声援刘晓波及争取普选](https://www.rfa.org/cantonese/news/HK_procession-01012010082758.html)
 
-这绝对是应该新一轮的引发流言蜚语的问题
+[维基百科-「还我普选」元旦大游行](https://zh.wikipedia.org/zh-hant/%E3%80%8C%E9%82%84%E6%88%91%E6%99%AE%E9%81%B8%E3%80%8D%E5%85%83%E6%97%A6%E5%A4%A7%E9%81%8A%E8%A1%8C)
 
-And stupid story of about royal, which is none of us care about
+[维基百科-零八宪章](https://zh.wikipedia.org/zh-hant/%E9%9B%B6%E5%85%AB%E5%AE%AA%E7%AB%A0)
 
-这是我们谁都不关心的关于忠诚的愚蠢故事
+导读：
+中共超限战灭港行动
 
-This is assault of American small businesses that we have paying people stay home for over a year now
+[中共超限战灭港行动（一）临时立法会成立](https://gnews.org/zh-hans/1163020/)
 
-这是对美国小企业的攻击，我们付钱让人待在家里都一年多了
+[中共超限战灭港行动（二）是谁为临时立法会摇旗呐喊？](https://gnews.org/zh-hans/1170091/)
 
-this is ridiculous stimulus checks and these hard lined
+[中共超限战灭港行动（三）临立会主席范徐丽泰与特首董建华的父辈们](https://gnews.org/zh-hans/1178528/)
 
-这是荒谬的刺激计划，而这些强硬的措施
+[中共超限战灭港行动（四）变色龙范徐丽泰](https://gnews.org/zh-hans/1183152/)
 
-our government impost shut downs
+[中共超限战灭港行动（五）公安恶法匆促落实](https://gnews.org/zh-hans/1187269/)
 
-我们的政府强制推行的停业措施
+[中共超限战灭港行动（六）英解密档案](https://gnews.org/zh-hans/1200256/)
 
-has hurt business so badly in cross borders
+[中共超限战灭港行动（七）基本法](https://gnews.org/zh-hans/1217241/)[23条如何产生](https://gnews.org/zh-hans/1217241/)
 
-已经严重损害了所有的商业活动
+[中共超限战灭港行动（八）基本法](https://gnews.org/zh-hans/1230623/)[23条与港版国安法有什么关系](https://gnews.org/zh-hans/1230623/)
 
-Not just small businesses, it’s businesses, it’s schools, it’s everyone
+[中共超限战灭港行动（九）](https://gnews.org/zh-hans/1236409/)[0708双普选政改梦想与曾宪梓](https://gnews.org/zh-hans/1236409/)
 
-不只损害了小企业，其他的企业、学校、每个人
+[中共超限战灭港行动（十）](https://gnews.org/zh-hans/1241573/)[0708双普选梦想破灭](https://gnews.org/zh-hans/1241573/)
 
-They can’t hire anyone,
+[中共超限战灭港行动（十一）](https://gnews.org/zh-hans/1247459/)[0708双普选第五份报告遭民意否决](https://gnews.org/zh-hans/1247459/)
 
-他们不能雇佣任何人
+[中共超限战灭港行动（十二）双普选政改被否后的“爱国者论”](https://gnews.org/zh-hans/1250435/)
 
-no one wants to show up for a job interview
+[*中*共超限战灭港行动（十三）](https://gnews.org/zh-hans/1252992/)[2012双普选被否和遁序渐进民主政制的骗局](https://gnews.org/zh-hans/1252992/)
 
-没人想去参加求职面试
-
-and no one wants to take a job
-
-而且没有人愿意出去工作
-
-and so what I ’ve been talking to a business is in my district
-
-所以我和我辖区的企业交谈过
-
-but also all over the country, restaurants that have been to close down and stop serving dinner
-
-而且在全国范围内，餐馆已经被迫停业，停止供应晚餐
-
-Only be able to serve lunch
-
-只能供应午餐
-
-Because they cannot find people to work
-
-因为他们找不到人工作
-
-A restaurant set up being open for 50 years
-
-一家开业50年的餐厅
-
-Such as one here in Dalton my district
-
-就在我这个区的道尔顿市
-
-They had to shut the doors 3 to 4 days a week
-
-他们一周要关门3到4天
-
-Because they don’t have enough people to come to work
-
-因为他们没有足够的人来上班
-
-Even the schools, schools can’t hire bus drivers
-
-即使是学校，也雇不到校车司机
-
-They can’t hire cafeteria workers
-
-他们雇不到食堂工作人员
-
-They can’t hire janitors
-
-雇不到清洁工
-
-It goes all the way cross the Boards
-
-每个校区都是这样
-
-It’s hurting everyone, it’s hurting economic recovery
-
-它伤害每个人，伤害经济复苏
-
-It’s hurting economic growth,
-
-它正在伤害经济增长
-
-Bu it’s very much killing these small business
-
-这会扼杀这些小企业
-
-They have already in door entire year shut downs
-
-他们已经关门一整年了
-
-And yet, guess what?
-
-然而，你猜怎么着？
-
-their rent stays the same
-
-他们的房租保持不变
-
-their power bill stays the same, their cost of operations, vender supplies
-
-他们的电费保持不变，他们的运营成本和供应商原材料。
-
-food for the supplies all they need to run the business,
-
-一切运营所需的食物，原材料成本
-
-all about remains the same
-
-一切成本都保持不变
-
-yet they can’t employ people to do the actual work
-
-然而，他们雇不到人来干活
-
-They borrow from revenue to sustain their companies
-
-他们借来的收入维持公司的存在
-
-Host:
-
-节目主持人：
-
-I just wonder to say you have about 32 second left
-
-我不得不告诉你，你还有大约32秒的时间
-
-You’ve saying assault of America seems that the stimulate checks are keeping people home
-
-你指美国被攻击似乎是政府付钱让人们呆在家里
-
-and they won’t getting to the labour force that was what you are saying?
-
-然后他们不愿意去找工作，这是你想说的吗？
-
-Jarjorie:
-
-玛乔丽
-
-What I am saying that socialism is killing our country
-
-我的意思是，社会主义正在扼杀我们的国家
-
-And it’s here now
-
-现在它就在这里
-
-Come through the fact that all of these shut downs
-
-从所有这些停业的事实来看
-
-and everything the Democratic they are doing is socialism
-
-民主党所做的一切都是社会主义
-
-Its government checks paying people and they staying at home
-
-政府给人们发工资，让人们呆在家里
-
-and they don’t want to work
-
-而且他们不想工作
-
-The more Democratic policy is destroying our country
-
-民主党推行的刺激政策正在毁掉我们的国家
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://twitter.com/realamvoice/status/1390031268402790400?s=24](https://twitter.com/realamvoice/status/1390031268402790400?s=24)
-
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场- Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片: 康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*审稿：卡西欧**/**校对：文粤**/**上传：天网灰灰*
 
 0

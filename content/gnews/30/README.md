@@ -1,164 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朱利安·阿桑奇(Julian Assange)说：“我们生活在一个‘媒体政治’时代，政治上可能的事情由媒体环境决定。”
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255751/)
+## 疫苗对变异病毒有效？初步研究就拿来忽悠
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1255811/)
 
-字幕内容：
+**撰稿：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19021716/58-1-9.jpg)
+法广新闻报道，根据美国科学家所做的最新研究显示，辉瑞（Pfizer）&BNT、莫德纳（Moderna）两款COVID-19疫苗，对最先出现于印度的两种变异病毒仍高度有效。但这类实验室的研究调无法预测实际情况的有效性，因此仍须透过其他研究加以验证。
 
-Julian Assange
+这份由纽约大学葛罗斯曼医学院（NYU Grossman School of Medicine）与纽约大学朗格尼医学中心（NYU Langone Medical Center）进行的实验室研究，尚未刊于同侪审查的期刊上，因此被认为只是初步研究。
 
-阿桑奇：
+这份研究的资深作者蓝道（Nathaniel “Ned” Landau）告诉法新社：”我们发现疫苗抗体面对变种病毒时会略弱，但也没弱到哪去，因此我们认为疫苗还是很有保护效力。”
 
-Noam Chomsky, in ‘The Common Good’
+蓝道说：“有部分抗体无法有效抵抗这些变种病毒，但还是有很多抗体有效。”不过蓝道指出，由于整体的抗体水平仍比感染原始病毒痊愈者来得高，”既然有效抗体足够，所以我们认为这些疫苗仍有高度防护力”。
 
-诺姆·乔姆斯基(Noam Chomsky)，“共同利益”
+自从闫博士将科学界的丑闻公之于众之时，我们就要慎重对待这些所谓“科学家”的言论是否对生命负责。病毒和疫苗，这一对本该相生相克的存在，现在却在种种迹象下，都成为了危害人类健康、生命甚至未来的杀手和隐患。对于疫苗所带来的那么多毒副作用和无法获知的安全问题，科学界选择了大多数禁声，有良知的医生或者科学家出来对疫苗发出的警示，也被社交媒体屏蔽，被主流媒体无视，更可能得到来自沼泽地势力的打击。
 
-wrote that “ the smart way to keep
+的确，疫苗这块蛋糕太大太诱人，在唯利是图，丧失人伦的今天，没有几个人能放弃其中的利益，更何况，前期研发疫苗投入了巨额的资金，如果不加大普及，这部分损失由谁来承担？这就是“发心”变了，就自动走入一个无底的深渊，只可能离粉身碎骨越来越近，而悬崖勒马的勇气，不是人人都能拥有的。
 
-写道：“让人们保持
+可喜的是，前几天，一则来自印度TGP报的新闻显示，印度政府鼓励伊维素菌和羟氯喹的使用后，印度的COVID病例骤降。在显而易见的数据面前，为什么不采用切实有效的方法，却一再推广未来不可期的疫苗政策，又有多少人要为此而付出沉重的代价，当一切已经不是个人的得失之时，就关系到整个人类的命运，你我都无法逃避。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19021756/59-11.jpg)（图片来自网络）
+再次呼吁全世界有良知的科学家和医生，在有效疫苗无法确认的前提下，谨慎对待疫苗，多推广便宜、高效的药物治疗，共同度过这场“人类之殇”的浩劫。
 
-people passive and obedient is to
+（本文只代表作者观点，与Gnews平台无关。）
 
-被动和顺从的聪明方法是
+**新闻来源：**
+[研究：辉瑞莫德纳疫苗对印度变种病毒应有效 (rfi.fr)](https://www.rfi.fr/cn/%E7%BE%8E%E6%B4%B2/20210518-%E7%A0%94%E7%A9%B6-%E8%BE%89%E7%91%9E%E8%8E%AB%E5%BE%B7%E7%BA%B3%E7%96%AB%E8%8B%97%E5%AF%B9%E5%8D%B0%E5%BA%A6%E5%8F%98%E7%A7%8D%E7%97%85%E6%AF%92%E5%BA%94%E6%9C%89%E6%95%88)
 
-strictly limit the spectrum of
-
-严格限制
-
-acceptable opinion but to allow a very
-
-可接受意见的范围，但允许在非常
-
-lively debate within a narrow section of
-
-狭小的范围内进行激烈
-
-that spectrum.”
-
-的辩论。”
-
-We live in a ‘Mediaocracy’,
-
-我们生活在一个“媒体政体”中
-
-what is politically possible
-
-什么在政治上是可能的？
-
-is defined by the media environment.
-
-是由媒体环境定义的
-
-I started Wikileaks because I understood
-
-我创办维基解密是因为我明白
-
-this reality, the media frame defines the
-
-这一现实，媒体框架定义
-
-political possibility.
-
-政治可能性
-
-So to bring about meaningful change
-
-所以要带来有意义的改变
-
-We have to enlarge the media frame.
-
-我们必须把媒体画面放大
-
-With Wikileaks we’ve had
-
-有了维基解密，我们就能
-
-significant successes in achieving this
-
-在一些领域实现这一目标上取得重大成功
-
-in some areas, but more needs to be done.
-
-但还需要做更多的工作
-
-The single greatest contributor to our
-
-我们最伟大的贡献者来
-
-expanding horizons is you.
-
-开阔我们眼界的是你
-
-You telling your friends what’s up,
-
-你告诉你的朋友们发生了什么事
-
-what you saw, what you believe,
-
-你看到的，你相信的
-
-and who’s full of it.
-
-以及那些满嘴胡言乱语的人
-
-Contrasting what appears in the
-
-对比显示在
-
-Australian press to itself and to the world.
-
-澳大利亚媒体对其自己和世界都是如此
-
-You form part from the largest
-
-你们是最大的组成部分
-
-bullshit detecting machine the world has
-
-世界上有一台废话探测机
-
-ever seen.
-
-从未见过的
-
-That’s why Wikileaks has such support
-
-这就是为什么维基解密从暴露在互联网上的人
-
-from people exposed to the Internet
-
-那里得到如此的支持
-
-that’s why we have such support from this generation
-
-也就是我们得到这一代人如此多的支持的原因
-
-because you’re better informed.
-
-因为你们消息灵通
-
-This is the best educated
-
-这是受过最好教育的
-
-generation in the history of the world.
-
-世界历史上最伟大的一代
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://twitter.com/disclosetv/status/1389179026372243459?s=24](https://twitter.com/disclosetv/status/1389179026372243459?s=24)4
-
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场- Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片: 康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+***校对发布**：文顾*
 
 0

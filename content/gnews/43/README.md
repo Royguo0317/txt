@@ -1,55 +1,92 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 情报委员会副主席就病毒溯源给拜登的公开信
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1255601/)
+## 《路德时评》解读佩洛西呼吁抵制北京冬奥会，《无尽边疆法》在参院开始辩论，及中欧投资协议或将被终止
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1255649/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+直播视频：
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18234507/N-3.jpg)thenewcivilrightsmovement.com
-昨天（5月17日）笔者发文，报道了众议院情报委员会副主席德文·努内斯（Devin Nunes）就中共病毒溯源、追责问题发表了致拜登的公开信【1】，今天看到了公开信的原稿，将其翻译供战友分享。
 
-尊敬的总统先生：
 
-作为我们正在进行的、有关中共国威胁美国经济和国家安全的监督调查的一部分，众议院情报常设特别委员会的共和党成员正在调查首次在武汉报道的中共病毒（COVID-19）疫情的起源，我们写信请求你们启动整个政府工作，以确定病毒的起源，并指示联邦机构和部门检查所有可能的情况，作为此类调查的一部分。
+《路德时评》2021年5月18日晚间节目主要内容：
 
-在我们正在进行的调查过程中，我们已经确定了大量的间接证据，支持实验室泄漏可能是中共病毒起源的理论，彻底调查这种可能性至关重要，特别是鉴于中共国政府阻挠多国生物法调查和销毁重要证据（的行径）。
+一、佩洛西呼吁抵制北京冬奥会
 
-一位政府高级官员证实了我们的发现，中共病毒的来源可能是实验室泄漏的结果。今年4月，国家情报总监解释说，“中共病毒要么是人类与受感染动物接触后自然产生的，要么是武汉一家实验室发生事故的结果。”然而，目前尚不清楚情报部门或美国政府的任何其他部门是否在寻求确定真相。
+美国之音最新报道称[\[1\]](https://www.voachinese.com/a/pelosi-calls-for-diplomatic-boycott-of-beijing-winter-olympics-20210518/5895602.html)：美国众议院议长南希·佩洛西(Nancy Pelosi)星期二(5月18日)呼吁对2022年北京冬季奥运会实行“外交抵制”。她批评中共国政府践踏人权并说，全球各国领导人如果出席奥运，将失去他们的道德权威。美国议员越来越高声呼吁抵制北京奥运或将冬奥会易地举行，他们还抨击美国公司对种族灭绝行为保持沉默。美国国务院已经把中共国政府对维吾尔人和其他少数民族的打压定性为种族灭绝。民主党人佩洛西在两党就这项问题举行的听证会上说，世界各国元首应当避免出席北京冬奥会。
 
-我们同意国务卿安东尼·布林肯（Antony Blinken）的评估，他最近说，中共病毒的起源很重要，“因为我们需要了解发生了什么，我们要有最好的机会防止它再次发生，并确保我们能够建立一个更加强大的全球卫生安全体系，确保我们能够预防、发现和减轻未来的流行病。这一切，必须从了解到底发生了什么开始。”
 
-此外，我想提请大家注意，美国政府的资金直接或间接地支持武汉病毒研究所（WIV）危险的军民两用科学研究，我们的调查结果虽然不完整，但表明美国支持了这项工作，尽管有明显证据表明中共军方参与了武汉病毒研究所。至关重要的是，您的政府必须审查这一问题，并确保在美国政府考虑与外国对手就未来合作研究军民两用项目，随时都能进行适当的威胁评估，这可能需要审查与这些决定有关的机构间的程序。
 
-总之，我请求您的政府支持努力查明中共病毒的来源，并敦促您审查与资助危险的军民两用研究有关的机构间的进程，特别是在与外国敌对国家进行合作研究时。
+> 美国国会兰托斯人权委员会与国会及行政当局中国委员会18日举行联合听证，主题为“中国，种族灭绝与奥运会”，China, Genocide and the Olympics，众议院议长佩洛西在听证上提出鉴于中国的人权纪录要对北京冬奥会进行外交抵制。 [pic.twitter.com/zR8XUhXsq0](https://t.co/zR8XUhXsq0)
+> — 美国之音中文网 (@VOAChinese) [May 18, 2021](https://twitter.com/VOAChinese/status/1394777872078942213?ref_src=twsrc%5Etfw)
 
-随函附上给国家情报总监的一封信，其中包括许多悬而未决的问题，我的共和党同事和我希望您认可，了解真相是至关重要的，我们随时准备与您的政府合作解决这些问题。
 
-德文·努内斯（签名）
 
-相关链接：
+路德社评论：
 
-【1】https://gnews.org/zh-hans/1251395/
+1、前国务卿蓬佩奥在1月19日正式定性中共在新疆犯下种族灭绝罪和反人类罪后，该事件开始在全世界发酵，美国各党派议员都因中共在新疆犯下种族灭绝而公开抵制北京冬奥会，佩洛西也是如此。
 
-【2】https://assets.documentcloud.org/documents/20709271/20210516\_rm-ltr-to-president-biden\_re-covid-19.pdf
+2、佩洛西呼吁对北京冬奥会实施“外交抵制”，由于奥运会属于民间运动会，美国政府无权干涉运动员参加奥运会，美国政府可以禁止派美国外交代表团前往北京，而中共国恰恰相反，中共国运动员大都来自国家体校，国家体校都是由国家投入资金来培养运动员。如果所有国家都开始抵制冬奥会，这就达到了抵制北京冬奥会的目的，那计划参赛的运动员都会思考他们的决定是否在支持中共的种族灭绝行为。
 
-文字整理：
+3、习之所以要大搞冬奥会，就是想在连任前为自己营造出一种万邦来朝的盛世，只要所有国家都开始抵制，习神最终只能联合朝鲜、俄罗斯和伊朗这些国家自己玩耍。
 
-Dear Mr. President:
+4、虽然佩洛西呼吁各国政府对冬奥会进行外交抵制，共和党还是会批评佩洛西，因为共和党呼吁全面抵制冬奥会。最早提出抵制北京冬奥会的是共和党建制派议员罗姆尼，甚至还有议员提出要更换冬奥会举办地，这就是美国以法灭共的重要一步，抵制冬奥会的大方向已经形成，接下来就看如何抵制。
 
-As part of our ongoing oversight investigation related to Chinese threats to U.S. economic and national security, Republican Members of the House Permanent Select Committee on Intelligence are investigating the origins of the COVID-19 pandemic, which was first reported in Wuhan, China in 2019. We write to request that you initiate a whole-of-government effort to identify the origins of the virus and to direct federal agencies and departments to examine all plausible scenarios as part of such investigation.
+二、《无尽边疆法案》正式在参议院开始辩论
 
-During the course of our investigation, which is ongoing, we have identified substantial circumstantial evidence supporting the theory that a laboratory leak could have been responsible for the origination of COVID-19. It is critical that this possibility be thoroughly examined, particularly in light of the Chinese government’s obstruction of multilateral bio-forensic investigations and its destruction of important evidence.
+美国之音新闻网5月18日报道[\[2\]](https://www.voachinese.com/a/us-senate-move-forward-with-endless-frontier-act-20210517/5894529.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)：星期一(5月17日)，参议院以86票对11票的表决结果，终止了围绕《无尽边疆法》(The Endless Frontier Act)的冗长辩论程序，把法案向前推进。这部法案将把授权拨款的大部分金额、也就是1千亿美元，用于投资基础与先进技术研究、研究成果商业化以及人工智能等关键技术领域的教育培训项目。
 
-A senior Administration official has confirmed our finding that the origin of COVID-19 could have been the result of a lab leak. In April, the Director of National Intelligence explained that either “[COVID-19] emerged naturally from human contact with infected animals or it was the result of an accident at a laboratory in Wuhan.” It is unclear, however, if the Intelligence Community or any other part of the U.S. government is seeking to determine the truth.
+参议院多数党领袖、民主党人查克·舒默(Chuck Schumer)说，参议院将从星期二开始就这部法案进行一或两个星期的辩论。参议院商务委员会上星期三（5月12日）以24票对4票的表决结果通过了这部法案。白宫星期一对《无尽边疆法》表示了支持。
 
-We concur with the assessment of Secretary of State Antony Blinken who recently stated that the origin of COVID-19 is important “because we need to understand what happened if we are going to have the best possible opportunity to prevent it from happening again, and to make sure we can put in place an even stronger global health security system, to make sure that we can prevent, detect, [and] mitigate future pandemics. And that has to start with understanding exactly what happened.”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19003844/%E5%8F%82%E8%AE%AE%E9%99%A2%E5%A4%9A%E6%95%B0%E5%85%9A%E9%A2%86%E8%A2%96%E8%88%92%E9%BB%98.jpg)[参议院多数党领袖舒默](https://gdb.voanews.com/051B63B0-8D52-4B66-8FEA-9B7113B6E1CD_cx0_cy2_cw0_w1023_r1_s.jpg)
 
-In addition, I want to call to your attention the fact that U.S. government funds—whether directly or indirectly—are supporting dangerous dual-use scientific research at the Wuhan Institute of Virology (WIV). Our findings, though incomplete, suggest the United States supported such work despite clear evidence of the People’s Liberation Army’s involvement at the WIV. It is essential that your Administration examine this matter and ensure that appropriate threat assessments are conducted anytime the U.S. government considers collaborating with a foreign adversary on future dual-use research. This may require a review of the interagency processes associated with such decisions.
+路德社评论：
 
-In summary, I request your Administration’s support for a whole-of-government effort to identify the origins of COVID-19 and urge you to undertake a review of the interagency processes associated with the funding of dangerous dual-use research—particularly when conducted with foreign adversary nations.
+1、该法案上周率先通过参议院商务委员会投票，然后进入参议院审议程序，所有参议员在投票前都需要对该法案提出意见，参议院以绝对优势通过了该法案的辩论环节，进展非常顺利。该法案一旦通过，这意味着美国正式宣布与中共国的科研学术界脱钩，为了弥补其中的损失，美国将批准一千亿美元预算进行补偿。
 
-Attached you will find a letter to the Director of National Intelligence, which includes many outstanding questions. My Republican colleagues and I hope you will agree that getting to the truth is of critical importance. We stand ready to work with your Administration to address these matters.
+2、《无尽边疆法》是由美国民主党与共和党议员联合推出的法案，从投票结果来看，该法案已经获得大部分议员支持，而且没有党派偏见，接下来就是补流程。
 
-0
+3、该法案一旦通过，将彻底杜绝中共对美国先进科技领域的假骗偷。美国现在已经意识到中共绝不是战略竞争对手这么简单，双方就是你死我活的结果。美国原先希望让中共加入WTO，为全世界提供廉价的商品，待中共国经济获得发展之后能推进中共体制改革，更好地融入西方社会。但是，中共几十年来通过假骗偷方式从美国偷窃高科技，中共病毒研发就是最好的例证，这严重威胁美国国家安全。
+
+4、谁掌握科技谁就拥有未来世界的话语权，中共体制不可能自主研发出高科技，如果中共利用美国科技来打倒美国，这将是美国历史上最大的灾难。《无尽边疆法》涵盖5G、人工智能和量子计算等高科技领域，这些科技都可能对美国国家安全构成巨大威胁，所以该法案最后一定会被通过。
+
+5、虽然有些共和党议员对该法案提出反对意见，但他们并不是要反对与中共进行科研脱钩，而是认为该法案对中共不够狠，例如卢比奥就认为必须严防美国科研资金落入任何与中共军方有关的企业中。美国两党整体的转向注定美国必将与中共进行科技脱钩，这将进一步导致中共经济下滑。
+
+6、美国民间研究机构的科研经费大多来自于企业或海外其他机构，中共就可以通过对这些研究机构提供资金支持的方式轻易地获得研究结果，美国民间机构中被中共渗透的科学家在其中起着牵线搭桥的作用，该法案的通过就堵上了中共获得科研成果这条路，中共国的科技到时将出现巨大问题。
+
+7、美国推动灭共的核心依然是中共病毒问题，但表现出的却是经贸问题、人权问题和科技问题。美国已经深刻认识到中共就是想破坏现有的国际秩序，如果美国再不行动，这些正被病毒威胁的西方国家都将被中共拿下。中共统治下的独裁政权绑架了14亿老百姓，这种绞肉机体制注定中共会渗透美国，通过假骗偷的方式从美国偷窃专利技术来发展自己，这也是中共从德国纳粹和前苏联失败的教训中总结发展出来的新打法，所以美国必须率先跟中共国进行高科技领域的脱钩，再通过其他相对次要的合作来缓解两国紧张的气氛，这种压迫方式能促使中共经济下滑，让中共内部政治崩塌。
+
+8、结合这几天所有的消息，《无限边疆法案》彻底切断了两国的科学合作、学术交流和人才交流；美国SEC七月将通过外国上市公司退市规则，所有中概股都将退市并面临法律追责；戴琪正在从法律和人权角度切断中美贸易；美国议员开始推动并呼吁政府要抵制北京冬奥会；北约与亚约成员国正在印太地区做全面军事部署；蓬佩奥等多位美国离任和现任官员公开宣称病毒来自中共实验室；美国数十位科学家与WHO要求中共接受病毒调查；Sellin上校正在发动所有力量收集中共布下的病毒研究网络……这所有的行动有些是防守，有些是进攻，美国正在加紧通过法律来补上所有的漏洞。巴以冲突已经让全世界看清楚，只要以色列有机会采取行动就能一击制胜，这对解决朝韩问题、中东问题和台海问题具有重要的参考价值，美国整个国家机器正在为最后的诺曼底登陆做全面布局。
+
+9、文贵先生从2017年站出来推动爆料革命，路德社从2018年开始跟随爆料革命提醒墙内老百姓要屯粮、换美元、中美即将脱钩等等信息，美国早已经为灭共准备了多年，这几年在漫长的人类历史中却显得非常短暂，爆料革命提前几年爆料中共必亡的所有信息，现在都被一一验证。
+
+三、欧议会即将通过冻结中欧投资协议的议案
+
+预计欧洲议会将在周四通过一项议案，正式冻结与中共国的投资协议，议会将投票敦促“由于中共国实施了制裁，因此对中欧全面投资协定的任何考虑以及对欧洲议会批准的任何讨论均已被合理冻结。”议案草案还将呼吁欧盟与美国“加强协调与合作”，以对付中共国，同时强调与北京的贸易“不应被与台湾的任何交易作为人质”。
+
+
+
+> [#Exclusive](https://twitter.com/hashtag/Exclusive?src=hash&amp;ref_src=twsrc%5Etfw): The European Parliament is expected to pass a motion on Thursday to formally freeze the investment agreement with China, according to a draft seen by [@POLITICOEurope](https://twitter.com/POLITICOEurope?ref_src=twsrc%5Etfw). [https://t.co/0nAEsmxj0P](https://t.co/0nAEsmxj0P)
+> — Stuart Lau (@StuartKLau) [May 18, 2021](https://twitter.com/StuartKLau/status/1394756744862216192?ref_src=twsrc%5Etfw)
+
+
+
+路德社评论：
+
+1、中欧投资协定原本已经谈妥，就差双方正式签署文件，由于中共国对谴责中共在新疆犯下种族灭绝的欧洲议员实施制裁，导致欧议会开始就冻结中欧投资协议进行投票，这完全是中共国自己作死的结果，欧洲也开始与中共国切割。
+
+2、中欧投资协议意味着欧盟全面对中共国开放，接受中共投资欧盟，中共可以更好地偷窃欧洲技术，甚至还能以欧盟为跳板偷窃美国技术。
+
+3、欧盟是由数十个欧洲国家组成，这些国家大多是多党制，每个党派影响力非常有限，中共很容易对他们进行蓝金黄，但是，欧盟在这件事上却一致对抗中共，这肯定与中共病毒有关。中欧投资协议从准备到谈妥历经了九年将近40次谈判，并在去年12月30日达成一致，短短五个月就出现翻转，这背后就是因为中共病毒。
+
+[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+
+参考文章：
+
+[1][https://www.voachinese.com/a/pelosi-calls-for-diplomatic-boycott-of-beijing-winter-olympics-20210518/5895602.html](https://www.voachinese.com/a/pelosi-calls-for-diplomatic-boycott-of-beijing-winter-olympics-20210518/5895602.html)
+[2][https://www.voachinese.com/a/us-senate-move-forward-with-endless-frontier-act-20210517/5894529.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/us-senate-move-forward-with-endless-frontier-act-20210517/5894529.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+
+文章撰写：【重生】  编辑：【香柏树】
+
+本文仅代表作者个人观点
+
++2

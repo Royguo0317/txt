@@ -1,134 +1,298 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 巴西总统雅伊尔·博索纳罗将Covid19大流行病与“生物战”联系起来
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1256025/)
+## 疫苗公司拥有的数据显示，在停止Covid上存在零差异，但可能导致疯牛病
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1256045/)
 
-字幕內容：
+字幕内容：
 
-Who set the ball rolling this time? this leader Jair Bolsonaro, the president of Brazil,
+Steve Bannon
 
-这次是谁掀起的风浪？是这位领导人,巴西总统贾伊尔·博尔索纳罗
+史蒂夫·班农
 
-with his political future on a sticky wicket, he has suddenly come to realize that the
+But hang on a second
 
-在他的政治前途岌岌可危的情况下，他突然意识到，这种病毒实际上
+但是，等一下
 
-virus is in fact quite lethal. That it could be part of a biological war.
+They say you see on mainstream media
 
-是相当致命的。它可能是一场生物战争的一部分。
+他们说，主流媒体上说
 
-Does he have proof? he says his military does, you must listen to this.
+96% what effective 96% efficacy, 98% hang on today,
 
-他有证据吗？他说他的军队有，请您恭听。
+96%的有效性，96%的功效，98%，等一下，今天
 
-It’s a new virus, nobody knows if it was born in a lab or because the human eats
+I think Willie Geist @msnbc
 
-这是一种新的病毒，没有人知道它是否诞生于实验室，还是因为人类吃了
+我认为在msnbc的威利·盖斯特（Willie Geist）
 
-some animal they shouldn’t have. But it’s dead and the military knows all about
+we started the show with they have breaking news
 
-一些他们不应该吃的动物（而感染的）。但这已经有定论了
+我们以他们的突发新闻开始了节目
 
-this chemical biological and radiological warfare.
+he comes in and I think he’s reading some this
 
-我们军方已经对这场化学生物和放射性战争有所掌握
+他进来了，我想他正在读一些这样的东西
 
-could we be fighting a new war? I guess. which country’s GDP has grown the most?
+as the ones you know the 6 clots per 7 million
 
-我们会不会是正在打一场新的战争？我想是的。在全球大疫情的当下，哪个国家的国内生产总值增长最多？
+作为那些，你知道，每700万人接种疫苗者有6名患血栓
 
-I’m not going to tell you.
+still means it’s 99.99% effective
 
-我不会去告诉您
+还是意味着它是99.99%的有效的
 
-Needless to say China won’t be happy, but Bolsonaro just said is nothing new though,
+so what say you to that
 
-不用说，中共不会高兴，但博尔索纳罗刚刚说的并不新鲜
+所以那你怎么说？
 
-time and again we’ve heard similar theories the virus is not natural, it was made in
+Dr. Richard Fleming
 
-我们一次又一次地听到类似的理论，病毒不是天然的，它是在实验室里研制的
+理查德·弗莱明医生
 
-lab, it’s a bio weapon,
+right, so as vaccine efficacy
 
-是一种生物武器
+对，关于疫苗的有效率
 
-what was the virus leaked, at the onset of the pandemic there were numerous reports
+is determined exactly opposite of what you think it is
 
-说什么病毒泄露，在大流行开始时，有许多关于
+的定义与你认为的完全相反
 
-on how the virus accidentally escaped from the Wuhan Institute of Biology.
+it is how many people came down with covid in the vaccine group
 
-病毒如何意外地从武汉生物研究所泄漏的报道
+是在疫苗组中有多少人下来感染了Covid
 
-The WHO team which traveled to China to probe its origins, could find no such proof.
+over how many people came down with covid in the non-vaccine group
 
-前往中共国探究该病毒来源的世卫组织小组无法找到这样的证据
+对在非疫苗组中有多少人下来感染了Covid
 
-But then again it could be because they did not go there in time or they went under
+and that’s called the risk ratio
 
-但重申，它有可能是因为世卫生组织没有及时去到那里，或者是在中共的
+这就是所谓的风险比率
 
-strict supervision of the Chinese and they also went in January this year,
+and you take 1 – the risk ratio
 
-严格监督下做的调查。他们是在今年1月去的
+而你承担1-风险比率
 
-about thirteen months after the virus was first reported and they came back with
+and that give you vaccine efficacy that would be like me coming
 
-在该病毒首次被报告后约13个月才去调查，他们带回来的
+并给你疫苗效用，就像我来
 
-more questions than answers.
+and telling you Steve I want you to take this drug
 
-问题比答案多
+告诉你，史蒂夫，我要你服用这种药
 
-Now in its report the WHO team said there were many corona viruses at the institute,
+because it’s going to fail only this amount of time
 
-现在世卫组织小组在其报告中说，在武汉研究所里有许多冠状病毒
+因为它只会在这段时间内失败
 
-But SARS COVID-2 what we call the wuhan virus was not among them and hence
+but if you ask the question
 
-但是SARS COVID-2，也就是我们所说的武汉病毒并不在其中
+但是如果你问这个问题
 
-the leak hypothesis was extremely unlikely.
+which is does this vaccine prevent people from coming down with covid-19
 
-因此病毒泄漏假说就具极其不可能性
+这是什么疫苗可以防止人们患上covid-19
 
-But the WHO director general Dr. Tedross has said that he does not believe that his
+and you take their data
 
-但非常有趣的是，世卫组织总干事谭德赛博士说，他认为他的团队
+并且你分析他们的数据
 
-team’s assessment of the lab leak possibility was tensive enough which is very interesting.
+and you run their numbers which is in that slide that I sent over
 
-对实验室泄漏可能性的评估不够深入
+你运行他们的数字，也就是我发过去的那张幻灯片
 
-so he called for a deeper probe into the lab theory, this was on the 31th of March this year.
+it shows that even though you think there’s a difference
 
-所以他呼吁对实验室理论进行更深入的调查，这是今年3月31日的事情
+它显示即使你认为有差异
 
-today is the sixth of May, and the WHO is still evaluating how to move forward with its probe.
+that’s why we do statistical analysis
 
-今天是5月6日，世界卫生组织仍在评估如何推进其调查
+这就是为什么我们进行统计分析的原因
 
-so Mr. Bolsonaro can do two things.
+it shows that there isn’t too different
 
-所以博尔索纳罗先生可以有两个选择
+它表明没有太大的不同
 
-either make his military show us the proof, or wait for the WHO to travel back all
+it’s just random chance
 
-要么让他的军队向我们展示证据，要么等待世卫组织重回到
+它只是随机的机会
 
-the way to China which we doubt, will solve this mystery at all.
+there is no scientific evidence in the EOA (exclusive operating area) document
 
-中国调查，而我们怀疑此举能否会有任何机会将这个谜团解开
+专属作业区 (EOA）文档中没有科学证据
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+unless remember these are still experimental vaccines
 
-原视频链接: [https://twitter.com/raheemkassam/status/1348463264326365187?s=21](https://twitter.com/raheemkassam/status/1348463264326365187?s=21)
+除非记住这些仍然是实验性疫苗
 
-英听校： 康州盘古农场 – Mike Li
-翻译： 康州盘古农场 – Mike Li
-翻译终校：康州盘古农场 – 郭班之樱
+they have not been FDA approved
+
+他们尚未获得食品和药物管理局的批准
+
+and people are not signing informed consent on these experimental drugs
+
+而且人们并未在这些实验药物上签署知情同意书
+
+and both Pfizer, Moderna quit recruiting for their experimental protocols
+
+并且辉瑞（Pfizer）和摩德纳（Moderna）都放弃了实验方案招募
+
+on or around the 20th of January
+
+在大约1月20日前后
+
+and at that point in time they didn’t need to
+
+在那个时候，他们已经不需要了
+
+because they were being rolled out
+
+因为他们已经获批准
+
+and they didn’t need to recruit anybody
+
+他们不需要招募任何人
+
+because everybody listening to your program
+
+因为每个在听你节目的人
+
+and everybody not listen to your program is
+
+和每个不听你的节目的人是
+
+either in the experimental or the control group of the study
+
+在研究的实验组或对照组中
+
+so they don’t need to keep recruiting people
+
+所以他们不需要继续招募任何人
+
+the numbers themselves show the vaccines
+
+数字本身显示疫苗
+
+do not make no difference in the number of people
+
+对接种与否的人群感染COVID
+
+that will come down with covid-19
+
+的概率没有区别
+
+what we know is that we’re seeing risk popping up across the board
+
+我们所知道的是，我们看到了疫苗全面出现的风险
+
+and they’re all inflammatory and blood clotting
+
+他们都是发炎和凝血的病例
+
+and it’s affecting not just the people with comorbidities
+
+它并不仅影响合并症患者
+
+it’s affecting the people that normally
+
+也会正常的影响人们
+
+now we’re healthy and they’re being overwhelmed
+
+然而没有打疫苗的我们很健康而他们却出了问题
+
+and because their immune systems work
+
+而且因为他们的免疫系统起作用
+
+they’re making antibodies to these vaccines
+
+他们正在为这些疫苗制造抗体
+
+unless remember two things
+
+但他们要记住两件事情
+
+first of the spike protein is not naturally occurring
+
+首先突刺蛋白的不是天然存在的
+
+it is gain of function it is causing the blood-brain barrier
+
+它是功能增强实验的产物，它可以产生心脑血拴
+
+and we know in the animal models of the spike protein
+
+而且我们在动物模型中知道了刺突蛋白
+
+we know that in the humanized mice
+
+我们知道那个在人源化的老鼠中
+
+they develop spongiform encephalopathy
+
+他们发展成海绵状脑病
+
+which is for the general public mad cow disease
+
+大众了解这个病毒的俗称是疯牛病
+
+we also know that in the rhesus macaque models
+
+我们也知道在恒河猴模型中
+
+that about 2 weeks afterwards
+
+那是大约两周后
+
+they develop Lewy bodies in the brain
+
+他们在大脑中发育了路易体
+
+and inflammation and Lewy bodies
+
+和炎症和路易体
+
+or what cause Alzheimer’s and a number of neurologic disorders
+
+或导致老年痴呆症和许多神经系统疾病的原因
+
+and those numbers translate into about a year-and-a-half for human beings to see the same consequences
+
+这些数字将使人类在大约一年半看到同样的后果
+
+so no statistically significant benefit from the EOA document
+
+因此，从专属作业区文件中没有任何统计上的重大收益
+
+that are posted not mine, the company’s
+
+这些是公开的，不是我的，是那些公司的
+
+inflammation and blood clotting occurring with it Lewy bodies， mad cow disease
+
+发生路易体的炎症和血液凝结，疯牛病
+
+and nothing that suggests the benefit
+
+没有什么好处
+
+It’s experimental drug that people aren’t finding informed consent for
+
+这是一种实验性药物，人们没有得到知情同意书
+
+and you’re part of the control or experimental group
+
+而你只是对照组或实验组的一部分
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接  [https://rumble.com/vfmufz-vaccine-companies-own-data-shows-zero-difference-in-stopping-covid-but-may-.html](https://rumble.com/vfmufz-vaccine-companies-own-data-shows-zero-difference-in-stopping-covid-but-may-.html)
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
 字幕+视频制作：康州盘古农场-天涯行
 审片：康州盘古农场-银龙
 发布：康州盘古农场-文韵

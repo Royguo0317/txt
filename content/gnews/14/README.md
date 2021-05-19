@@ -1,60 +1,140 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共超限战灭港行动（十四）2010年元旦还我普选大游行和零八宪章
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1255969/)
+## 巴西总统雅伊尔·博索纳罗将Covid19大流行病与“生物战”联系起来
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1256025/)
 
-#### 搜集/撰文：岁月如歌 / 封面合成：文粤
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19034025/5191.jpg)
-2007年的全国人大代表大会表决否定2012年初选诉求之后，香港与中共的矛盾最终演变成香港民间举行大游行以及李柱铭先生绝食抗议。其后民间举办的多次活动继续争取普选权，但是从没有得到政府明确的承诺，这个矛盾越来越加深。 2009年11月18日政务司师长唐英年发表2012年行政长官的和立法会产生办法的咨询文件，对2017年实行普选行政长官和2020年立法会突显一个字都不提。而对2012年选举的办法和内容和2005年否决的200708年普选方案一样。这和当初的曾荫权在2007年香港特别行政区行政长官选举的承诺是相背的。这一来更加激起了民众的愤怒了，政府已违背承诺，香港人在力争。他们甚至自己推行五区公投用选票说话，以证实香港人是配有民主普选投票的。 2009年12月，公民党和社民连决定发动五区总辞变相公投，以全民投票来凝聚名义争取2012年的普贤方案。虽然最后没有达到目标及变质，但可以看到香港人在努力追求双普选所做的努力。民主进程都是有不成熟走向成熟的，五区公投是一个最初的不成熟试验。
+字幕內容：
 
-当香港人在为自己的权利努力抗争时，在中共统治下的大陆也正在运酿着一场革命。中共的独裁和言论自由的封禁并没有堵住人们的思想。追求自由民主是人的本性，八九六四之后，人们不敢提政治，不敢再关心民主，但那只是极度没有言论自由的现象。随着改革开放的发展人们通过网啰，媒体等渠道知道了外面的世界很精彩。知道了并不是所有的人都像我们一样被独裁者统治。觉醒的中华儿女渐渐的认识到人权、平等、自由是如此的重要，也是全世界共同追求的普世价值，民主、宪政、共和才是现代政治的基本框架。独裁之下没有民主更没有法治和共和可言。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19034042/5192.jpg)
-在中共大陆也有一批追求民主宪政共和的人士。 2008年12月9日为了纪念1948年12月10日的《世界人权宣言》60周年，一份宣言正在呼之欲出。由张祖华负责起草、刘晓波等人修改并有303位各界人士签署，这些人很多是内地异见人士和维权人士。包括鲍彤、丁子霖、刘军宁、戴晴、于浩成、浦志强、茅于轼、冉云飞等。这份宣言就是《零八宪章》，《宪章》提出促进中国民主化进程、改善人权状况、提出建立中华联邦共和国，解决两岸问题及各民族问题。原订2008年12月10日《世界人权宣言》60周年这一天举行论坛并发表《零八宪章》，但是8日，《零八宪章》刚刚在网上发布几个小时刘晓波就被警方带走了。 2009年6月23日刘晓波再次被警方以「涉嫌煽动颠覆国家政权罪」逮捕。接着中共逮捕了多名发起拟草人，封禁博客网站。到2011年6月为止在《零八宪章》上的签名有13,000多人。 2009年12月25日北京第一中级法院以“煽动颠覆国家政权罪”判决刘晓波有期徒刑11年剥夺政治权利两年。罪证是提出“联邦共和”和建立“中华联邦共和国”口号。 2010年10月8日刘晓波因为「为中国基本人权所进行的长期、非暴力的斗争」获诺贝尔奖，但大家都知道刘晓波在狱中没能去领奖。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19034100/5193.jpg)
-《零八宪章》是继八九六四之后的又一个文明追求民主宪政诉求，这么大一件事在中共大陆甚少人知道，被中共全部禁止传播。在国际上引起轩然大波，美国、德国、台湾等国家和地区政府都纷纷谴责了中共，他们支持和赞赏这些进步人士。西方多个媒体还报导了这一《宪章》。达赖喇嘛和其他一些国际人士也对《零八宪章》表示的支持和赞赏。香港没有防火墙，人们都知道《零八宪章》，立场新闻全文刊登该《宪章》。刘晓波因言获罪对香港人影响很大，香港人在刘晓波身上看到中共手段的残忍，对异见人士、维权人士、要求改革的人士，不分青红皂白一律严厉打击取缔。更明白言论自由不存在， 改革已死，只有独裁。香港人明白只有加快争取双普选争取民主政制才能保护自己的权利。刘晓波事件促发香港一连串的抗议运动。 2010年元旦日，泛民主派发起三万人大游行，要求「释放刘晓波，以言获罪可耻」，争取「2012双普选，一人一票选特首，订出普选路线图」。游行队伍身系黄丝带，象征争取民主自由。拉起「真民主，双普选」标语和刘晓波画像。香港人争取民主运动队伍越来越壮大，声势也越来越浩大。港中矛盾越来越走向撕裂。
+Who set the ball rolling this time? this leader Jair Bolsonaro, the president of Brazil,
 
-（未完待续）
+这次是谁掀起的风浪？是这位领导人,巴西总统贾伊尔·博尔索纳罗
 
-【本文仅代表作者个人观点】
+with his political future on a sticky wicket, he has suddenly come to realize that the
 
+在他的政治前途岌岌可危的情况下，他突然意识到，这种病毒实际上
 
-参考连接：
-[自由亚洲-三万港人游行声援刘晓波及争取普选](https://www.rfa.org/cantonese/news/HK_procession-01012010082758.html)
+virus is in fact quite lethal. That it could be part of a biological war.
 
-[维基百科-「还我普选」元旦大游行](https://zh.wikipedia.org/zh-hant/%E3%80%8C%E9%82%84%E6%88%91%E6%99%AE%E9%81%B8%E3%80%8D%E5%85%83%E6%97%A6%E5%A4%A7%E9%81%8A%E8%A1%8C)
+是相当致命的。它可能是一场生物战争的一部分。
 
-[维基百科-零八宪章](https://zh.wikipedia.org/zh-hant/%E9%9B%B6%E5%85%AB%E5%AE%AA%E7%AB%A0)
+Does he have proof? he says his military does, you must listen to this.
 
-导读：
-中共超限战灭港行动
+他有证据吗？他说他的军队有，请您恭听。
 
-[中共超限战灭港行动（一）临时立法会成立](https://gnews.org/zh-hans/1163020/)
+It’s a new virus, nobody knows if it was born in a lab or because the human eats
 
-[中共超限战灭港行动（二）是谁为临时立法会摇旗呐喊？](https://gnews.org/zh-hans/1170091/)
+这是一种新的病毒，没有人知道它是否诞生于实验室，还是因为人类吃了
 
-[中共超限战灭港行动（三）临立会主席范徐丽泰与特首董建华的父辈们](https://gnews.org/zh-hans/1178528/)
+some animal they shouldn’t have. But it’s dead and the military knows all about
 
-[中共超限战灭港行动（四）变色龙范徐丽泰](https://gnews.org/zh-hans/1183152/)
+一些他们不应该吃的动物（而感染的）。但这已经有定论了
 
-[中共超限战灭港行动（五）公安恶法匆促落实](https://gnews.org/zh-hans/1187269/)
+this chemical biological and radiological warfare.
 
-[中共超限战灭港行动（六）英解密档案](https://gnews.org/zh-hans/1200256/)
+我们军方已经对这场化学生物和放射性战争有所掌握
 
-[中共超限战灭港行动（七）基本法](https://gnews.org/zh-hans/1217241/)[23条如何产生](https://gnews.org/zh-hans/1217241/)
+could we be fighting a new war? I guess. which country’s GDP has grown the most?
 
-[中共超限战灭港行动（八）基本法](https://gnews.org/zh-hans/1230623/)[23条与港版国安法有什么关系](https://gnews.org/zh-hans/1230623/)
+我们会不会是正在打一场新的战争？我想是的。在全球大疫情的当下，哪个国家的国内生产总值增长最多？
 
-[中共超限战灭港行动（九）](https://gnews.org/zh-hans/1236409/)[0708双普选政改梦想与曾宪梓](https://gnews.org/zh-hans/1236409/)
+I’m not going to tell you.
 
-[中共超限战灭港行动（十）](https://gnews.org/zh-hans/1241573/)[0708双普选梦想破灭](https://gnews.org/zh-hans/1241573/)
+我不会去告诉您
 
-[中共超限战灭港行动（十一）](https://gnews.org/zh-hans/1247459/)[0708双普选第五份报告遭民意否决](https://gnews.org/zh-hans/1247459/)
+Needless to say China won’t be happy, but Bolsonaro just said is nothing new though,
 
-[中共超限战灭港行动（十二）双普选政改被否后的“爱国者论”](https://gnews.org/zh-hans/1250435/)
+不用说，中共不会高兴，但博尔索纳罗刚刚说的并不新鲜
 
-[*中*共超限战灭港行动（十三）](https://gnews.org/zh-hans/1252992/)[2012双普选被否和遁序渐进民主政制的骗局](https://gnews.org/zh-hans/1252992/)
+time and again we’ve heard similar theories the virus is not natural, it was made in
 
-*审稿：卡西欧**/**校对：文粤**/**上传：天网灰灰*
+我们一次又一次地听到类似的理论，病毒不是天然的，它是在实验室里研制的
+
+lab, it’s a bio weapon,
+
+是一种生物武器
+
+what was the virus leaked, at the onset of the pandemic there were numerous reports
+
+说什么病毒泄露，在大流行开始时，有许多关于
+
+on how the virus accidentally escaped from the Wuhan Institute of Biology.
+
+病毒如何意外地从武汉生物研究所泄漏的报道
+
+The WHO team which traveled to China to probe its origins, could find no such proof.
+
+前往中共国探究该病毒来源的世卫组织小组无法找到这样的证据
+
+But then again it could be because they did not go there in time or they went under
+
+但重申，它有可能是因为世卫生组织没有及时去到那里，或者是在中共的
+
+strict supervision of the Chinese and they also went in January this year,
+
+严格监督下做的调查。他们是在今年1月去的
+
+about thirteen months after the virus was first reported and they came back with
+
+在该病毒首次被报告后约13个月才去调查，他们带回来的
+
+more questions than answers.
+
+问题比答案多
+
+Now in its report the WHO team said there were many corona viruses at the institute,
+
+现在世卫组织小组在其报告中说，在武汉研究所里有许多冠状病毒
+
+But SARS COVID-2 what we call the wuhan virus was not among them and hence
+
+但是SARS COVID-2，也就是我们所说的武汉病毒并不在其中
+
+the leak hypothesis was extremely unlikely.
+
+因此病毒泄漏假说就具极其不可能性
+
+But the WHO director general Dr. Tedross has said that he does not believe that his
+
+但非常有趣的是，世卫组织总干事谭德赛博士说，他认为他的团队
+
+team’s assessment of the lab leak possibility was tensive enough which is very interesting.
+
+对实验室泄漏可能性的评估不够深入
+
+so he called for a deeper probe into the lab theory, this was on the 31th of March this year.
+
+所以他呼吁对实验室理论进行更深入的调查，这是今年3月31日的事情
+
+today is the sixth of May, and the WHO is still evaluating how to move forward with its probe.
+
+今天是5月6日，世界卫生组织仍在评估如何推进其调查
+
+so Mr. Bolsonaro can do two things.
+
+所以博尔索纳罗先生可以有两个选择
+
+either make his military show us the proof, or wait for the WHO to travel back all
+
+要么让他的军队向我们展示证据，要么等待世卫组织重回到
+
+the way to China which we doubt, will solve this mystery at all.
+
+中国调查，而我们怀疑此举能否会有任何机会将这个谜团解开
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接: [https://twitter.com/raheemkassam/status/1348463264326365187?s=21](https://twitter.com/raheemkassam/status/1348463264326365187?s=21)
+
+英听校： 康州盘古农场 – Mike Li
+翻译： 康州盘古农场 – Mike Li
+翻译终校：康州盘古农场 – 郭班之樱
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

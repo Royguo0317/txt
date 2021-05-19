@@ -1,32 +1,166 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 外媒观察：中共国与印度尼西亚成为朋友说明什么
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1255978/)
+## 哈佛大学系主任查尔斯·利伯（Charles Lieber）被捕，被控隐瞒与中共国的关系
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255994/)
 
-撰稿：喜妈
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19035418/%E4%B8%AD%E5%85%B1%E5%9B%BD%E4%B8%8E%E5%8D%B0%E5%BA%A6%E5%B0%BC%E8%A5%BF%E4%BA%9A.png)`（来自网络截图）`
-新加坡媒体报道：最近，中共国和印度尼西亚“在雅加达沿岸进行的联合海军演习”，这个动态显示出两个国家之间“更加紧密联系的最新标志”。文章还指出，中共国此前“主动”提出要救助沉没的潜艇也是一个不同寻常的友好信号。此举引起了澳大利亚的反应。澳洲方面相关研究指出，印度尼西亚和中共国进行共同的海军演习是“务实的”；但这也是中共国“利用与东南亚最大国家的不断加强的合作向澳大利亚发送信息”。
+字幕内容：
 
-文章指出，印度尼西亚和中共国两国之间在16个月前，还存在“水上的紧张对峙”；当时印度尼西亚总统约科·维多多在纳托纳群岛部署军舰，“以争夺印度尼西亚声称是其专属经济区的地区的捕鱼权”。可是由于中共国4月提出帮助印度尼西亚“免费”救助沉没的潜艇，而赢得了对方的承认。这个举动“击败了来自澳大利亚和美国的其他救助提议”，而中共此举却让“一些地区安全观察员对此表示怀疑”。
+Andrew Lelling (US Attorney)
 
-文章指出，澳洲和中共国之间，有些立场态度“正式化了”。具体来说，就是“澳大利亚对中共国的批评更加自信和直率”。与此同时，印度尼西亚虽然与中共有关系上的松动，印度尼西亚总统还是“表示不赞成中国在纳图纳群岛专属经济区及其周围地区采取的行动”。
+安德鲁·莱林（美国律师）
 
-澳洲方面评价印度尼西亚此举，“一定程度的实用主义”，印度尼西亚希望以“建设性地参与进来并避免升级和误解”。而澳大利亚深知，建立与东南亚国家联盟地区集团中最大的国家印度尼西亚之间的防务关系，是“莫里森政府在追求印度太平洋地区安全的既定目标中的当务之急”。
+We are here today to announce three separate cases,
 
-文章指出，中共国军方希望与印度尼西亚军方建立“更紧密的关系”，在此基础上，中共国政府提出的“要求跨越印度尼西亚管辖权和主权的挑战”也给印度尼西亚政府带来了“巨大的困难”。文章引用相关研究人士观点，从现实的角度，“雅加达有义务与中共国合作”，原因有二：“中共国是印度尼西亚第二大外国投资者”，同时“也是印度尼西亚中共疫苗的主要供应商”。
+我们今天在这里宣布三个单独的案件
 
-从以上的文章资讯，笔者认为，可以帮助管窥亚太地区的形势。具体来说就是，中共正在积极地与东盟有影响力的国家示好，希望在全面被世界孤立的状态下，通过自己的主动伸出橄榄枝，得到一二缓冲地带和表面上的盟友。
+highlighting the ongoing threat posed by Chinese economic espionage
 
-当然，在对中共国的狼子野心已经都有觉悟和了解的前提下，亚太各国都知道这些中共的表面之举是说明不了什么，也不会真的相信它所谓的合作和友好。因此，这也就是为什么印度尼西亚虽然一方面接受中共的主动合作，却又坚持自己相关海域经济区的利益的立场。同时，正处在明确立场中的澳洲也看明白了中共的用意，它的别外之心。因此，澳洲在这些中共的动态中，非常明智和清楚地继续自己的原则和态度。从这个角度，中共已经是实际上的孤家寡人，即使对方出于疫情控制和经济军事上现实需求暂时有一定的友好与合作，都是不会长远和稳固的。真相教育所有人，真相唤醒所有人。
-(本文仅代表作者个人观点)
-编辑：MG 4
-欢迎加入【澳喜农场】
-【澳喜文章1】
-【澳喜文章2】
+强调中共国经济间谍活动所构成的持续威胁
 
-参考资料：
+and research theft in the United States
 
-[https://www.smh.com.au/world/asia/as-china-freezes-out-australia-the-superpower-befriends-indonesia-20210510-p57qjf.html](https://www.smh.com.au/world/asia/as-china-freezes-out-australia-the-superpower-befriends-indonesia-20210510-p57qjf.html)
-![]()![](https://gnews.org/wp-content/uploads/2021/05/1-澳喜Logo-2.jpeg)
-+1
+和在美国研究盗窃
+
+Nichole Berlie (Reporter)
+
+妮可·伯利（记者）
+
+Federal investigators at Lexington home of 60-year-old Dr. Charles Lieber today
+
+联邦调查人员今天出现在60岁的查尔斯·利伯在列克星敦的家
+
+moments after his arrest at his Harvard office.
+
+在这不久前，他在他的哈佛办公室被捕
+
+Andrew Leling
+
+安德鲁·莱林
+
+The complaint alleges that Dr. Lieber signed a contract with Chinese university of Wuhan,
+
+申诉称利伯博士与中共国武汉大学签署了一项合同
+
+and was paid up to $50,000 per month plus up to $158,000 in living expenses.
+
+他每月获得高达$ 50,000的报酬，另加高达$ 158,000的生活费
+
+Nichole Berlie (Reporter)
+
+妮可·伯利（记者）
+
+The chair of Harvard chemistry department
+
+哈佛化学系系主任
+
+He also allegedly received more than $1.5 million to set up a research lab in China,
+
+据称，他还获得了超过150万美元的资助，用于在中共国建立研究实验室，
+
+all while working at Harvard
+
+同时一直在哈佛工作
+
+and receiving multiple research grants from the U. S. Department of defense
+
+and national institutes of health.
+
+并获得美国国防部和国立卫生研究院的多项研究资助
+
+Also charge today, two Chinese nationals
+
+今天还起诉了两名中共国籍的公民
+
+29-year-old, Yanqing Ye,
+
+29岁的叶颜清（音译）
+
+who worked as a scientific researcher at Boston University.
+
+她曾在波士顿大学担任科学研究员
+
+Andrew Leling
+
+安德鲁·莱林
+
+Who failed to mention on her visa application
+
+在她的签证申请时隐瞒了
+
+she is also a lieutenant with the People’s Liberation Army.
+
+她还是中国人民解放军的中尉
+
+Nichole Berlie
+
+妮可·伯利
+
+30-year-old Zaosong Zheng worked on cancer research at Beth Israel Deaconess Medical Center
+
+30岁的郑灶松（音译）在哈佛大学附属贝丝以色列医疗中心从事癌症研究
+
+Andrew Leling
+
+安德鲁·莱林
+
+For trying to smuggle vials of biological material out of United States to China
+
+试图将小瓶生物材料从美国走私到中共国
+
+and lying about it for federal investigators.
+
+并且对联邦调查员撒谎
+
+Nichole Berlie
+
+妮可·伯利
+
+Now Lieber is due back in court Thursday.
+
+现在，利伯应于周四回到法院
+
+He is currently behind bars and could face five years in prison if convicted.
+
+他目前在监狱里，如果罪名成立，将面临五年监禁
+
+And Harvard does tell me
+
+而且哈佛确实告诉我
+
+he is current on paid administrative leave.
+
+他目前正在休带薪行政假
+
+In the meantime, Harvard, Beth Israel deaconess medical center
+
+同时，哈佛大学，哈佛大学附属贝丝以色列医疗中心
+
+and BU are all cooperating with authorities.
+
+和波士顿大学都在与当局合作
+
+Reporting live at south Boston
+
+在波士顿南部现场报道
+
+Nichole Berlie WCVB news center 5
+
+妮可·伯利，WCVB，新闻中心5
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接  [https://twitter.com/kin20200604/status/1390525787040714755?s=24](https://twitter.com/kin20200604/status/1390525787040714755?s=24)
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

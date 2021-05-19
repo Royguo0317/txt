@@ -1,89 +1,212 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 武毒所誓言“不折不扣”贯彻落实党的部署
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1255952/)
+## 美国出现了一场劳工危机，这是对美国小企业的攻击，社会主义正在扼杀我们的国家，人们担心荒谬的刺激措施。”
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255979/)
 
-新闻来源：《国家脉动 (National Pulse)》| 作者：NATALIE WINTERS | 发布时间：2021年5月17日
-翻译/简评：wmorpho | 校对/审核：万人往 | Page：Daoiii
+字幕内容：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yH09V2XbsQbcX/images/d2bb3673-f112-440d-bcbe-9d2c6315e5d0.jpg?asset_id=687cedee-5476-425f-bcf3-bfb4210eeaff&amp;img_etag=%22992c9cc0e62862b40d91b9d1088b4b2b%22&amp;size=1024)](https://spark.adobe.com/page/yH09V2XbsQbcX/images/d2bb3673-f112-440d-bcbe-9d2c6315e5d0.jpg?asset_id=687cedee-5476-425f-bcf3-bfb4210eeaff&amp;img_etag=%22992c9cc0e62862b40d91b9d1088b4b2b%22&amp;size=1024)
+Marjorie Taylor Greene
 
-**简评：**
+Congresswoman for Georgia’s 14th CD
 
-**由美国国立卫生研究院的福奇资助的武汉病毒研究所，不仅设有中共党支部，还设有统一战线小组。据美中安全与经济评论委员会称，该统战小组旨在“找出并消除反对中共统治政策和权威的潜在根源”和“影响外国政府和其他要员采取支持中共偏爱的政策立场和行为”。一份新闻稿显示，由福奇博士的国家过敏和传染病研究所资助的武汉研究人员石正丽，获得了中共的奖励和资助。武汉实验室的网站炫耀地说：“教育部发出通知，宣布武汉病毒学研究所的石正丽教授荣获国务院2014年政府特殊津贴。不仅如此，她还被冠与湖北省有突出贡献的中青年专家的称号。”武汉病毒研究所指出，该奖项由中共国务院颁发，表明了中央政府（对石正丽）的关心和支持。一篇被删除的文章显示，武汉病毒研究所鼓励研究人员“充分意识到党员责任的重要性”和“努力做好本职工作并履行党员应尽的责任”。其他新闻稿显示，武汉病毒学研究所领导干部举办活动，认真学习贯彻习近平新时代中国特色社会主义思想。**
+玛乔丽·泰勒·格林
 
-**如此种种不难想象中共病毒的爆发是不可避免的，因为武毒所存在的目的和意义是为中国共产党服务，是为集权的习近平服务，是为中共所谓的“伟大的民族复兴”服务。武毒所不仅生产生物武器病毒，还强化共产主义思想病毒，并用“功能增强”的共产主义思想病毒毒害和绑架武毒所科学家们的思想，从而让这些被思想毒害的科学家们生产出“功能增强”的冠状病毒来祸害全世界，以达到中共控制和统治全球的邪恶目的。世界要想解除中共病毒的威胁，必须铲除中共这个操控人类思想的恶魔，让科学家们解除毒害他们思想的中共魔咒，明辨是非，自动抵制反人类的驱动，进而呼应我们英雄科学家闫丽梦博士对病毒本源的揭露，并找出根治病毒的有效方法，让世界重现平和与光明。**
+佐治亚州第14届CD的女众议员
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yH09V2XbsQbcX/images/f0cd15bc-d516-4fc7-b630-041811fd46cd.jpg?asset_id=0462da69-a09e-4189-b42c-717916fa97c7&amp;img_etag=%221ccdd4b9c4554d6a7b9349f916408cf2%22&amp;size=1024)](https://spark.adobe.com/page/yH09V2XbsQbcX/images/f0cd15bc-d516-4fc7-b630-041811fd46cd.jpg?asset_id=0462da69-a09e-4189-b42c-717916fa97c7&amp;img_etag=%221ccdd4b9c4554d6a7b9349f916408cf2%22&amp;size=1024)
+This is absolutely the issue that should be raining the new cycle and set up gossip
 
-**原文翻译：**
+这绝对是应该新一轮的引发流言蜚语的问题
 
-#### 独家：福奇武汉实验室的朋友们举行了主题为“不折不扣”的共产主义研讨会
+And stupid story of about royal, which is none of us care about
 
-**武汉病毒学研究所删除了几篇文章，被删除的文章揭示了武毒所与中国共产党的深厚渊源，其中包括在共产主义研讨会期间因其加强“党性”方面所作出的努力和承诺“不折不扣”地实现党的目标而获得当权者的奖励。**
+这是我们谁都不关心的关于忠诚的愚蠢故事
 
-一个中文版的网站显示（武汉）实验室有几个**中共党组织机构，包括党委、纪律检查委员会和共青团。**
+This is assault of American small businesses that we have paying people stay home for over a year now
 
-该实验室的“党建与科学文化”页面还揭示了**“统一战线小组”**的存在，据美中安全与经济评论委员会称，该“统一战线小组”旨在“找出并消除反对中国共产党统治政策和权威的潜在根源”和“影响外国政府和其他要员采取支持中共偏爱的政策立场和行为”。
+这是对美国小企业的攻击，我们付钱让人待在家里都一年多了
 
-该实验室还让统一战线小组的官员参与有关传染病的专题座谈会。
+this is ridiculous stimulus checks and these hard lined
 
-**消失了**
+这是荒谬的刺激计划，而这些强硬的措施
 
-一份新闻稿显示，由安东尼·福奇博士的国家过敏和传染病研究所（NIAID）资助的几项研究中列出的武汉研究人员石正丽，获得了中国共产党的奖励和资助。
+our government impost shut downs
 
-该实验室的网站炫耀地说：“教育部发出通知，宣布武汉病毒学研究所的石正丽教授荣获国务院2014年政府特殊津贴。不仅如此，她还被冠与湖北省有突出贡献的中青年专家的称号。”武汉病毒研究所指出，该奖项由（中共）国务院颁发，“表明了中央政府（对石正丽）的关心和支持”。
+我们的政府强制推行的停业措施
 
-已被删除的2013年的帖子还显示，该实验室设有“管理层党支部”，该支部还获得了湖北省直机关工委“先进基层党组织”的奖项。
+has hurt business so badly in cross borders
 
-（武汉）实验室吹虚说：“通过创建学习型党组织，并积极组织各种党支部活动，确保武汉病毒研究所成功地实施了‘创新2020’和‘一个定位、三个重大突破和五个重点培育方向’的发展计划。”
+已经严重损害了所有的商业活动
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yH09V2XbsQbcX/images/f987111a-0bd0-4f51-b9ff-cefc31cfdc47.png?asset_id=18c3d182-92ad-4def-abbb-9e452da24658&amp;img_etag=%226666d394438c3c1dfd6c321225f77c92%22&amp;size=2560)](https://spark.adobe.com/page/yH09V2XbsQbcX/images/f987111a-0bd0-4f51-b9ff-cefc31cfdc47.png?asset_id=18c3d182-92ad-4def-abbb-9e452da24658&amp;img_etag=%226666d394438c3c1dfd6c321225f77c92%22&amp;size=1024)武汉实验室演讲
+Not just small businesses, it’s businesses, it’s schools, it’s everyone
 
-该帖子还显示，该小组举行例行会议以提高“党性”和“政治意识”，包括诸如“迎接中国共产党第十八次全国代表大会”之类的活动：
+不只损害了小企业，其他的企业、学校、每个人
 
-*“在政治理论教育方面，第一个贡献是机构管理支部对其成员进行政治理论和管理能力教育的承诺。通过定期召开民主生活专题会议，对党员进行党性教育和培训，有效地加深了党员的政治意识和理论认识。第二个贡献是组织了一系列的‘迎接中国共产党第十八次全国代表大会’的活动，为‘一三五’规划提供了理论基础。”*
+They can’t hire anyone,
 
-另一篇被删除的文章则鼓励研究人员“充分意识到党员责任的重要性”和“努力做好本职工作并履行中国共产党党员应尽的责任”。
+他们不能雇佣任何人
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yH09V2XbsQbcX/images/121e1711-a479-464d-86d0-792dc3762b61.png?asset_id=8b27c156-f4aa-4fbd-8a95-c06278122e4c&amp;img_etag=%22d3056b1b5be4dfc0b4c9568496d74920%22&amp;size=2560)](https://spark.adobe.com/page/yH09V2XbsQbcX/images/121e1711-a479-464d-86d0-792dc3762b61.png?asset_id=8b27c156-f4aa-4fbd-8a95-c06278122e4c&amp;img_etag=%22d3056b1b5be4dfc0b4c9568496d74920%22&amp;size=1024)武汉实验室（党委）活动
+no one wants to show up for a job interview
 
-根据另一条被删除的帖子，该实验室还举行了150人的会议，以“纪念”中国共产党成立纪念日，包括向“杰出成员”颁奖和为新党员举行入党宣誓仪式：
+没人想去参加求职面试
 
-*（2013年） 6月28日上午，武汉病毒研究所在学术礼堂举行了一次会议，以纪念中国共产党成立92周年。研究所的150多名中共委员参加了会议。武汉病毒研究所党委书记袁志明主持了会议。*
+and no one wants to take a job
 
-*会议开始奏国歌。在会议上，新入党的9名党员举起右手，在党旗前宣誓。*
+而且没有人愿意出去工作
 
-*随后，武汉病毒研究所党委副书记余平凡宣布了“授予先进党支部、劳动模范和优秀党员的决定”。在热情的掌声中，袁志明书记和余平凡副书记向先进党支部、劳动模范和优秀党员颁发了荣誉证书。*
+and so what I ’ve been talking to a business is in my district
 
-**“不折不扣”。**
+所以我和我辖区的企业交谈过
 
-该实验室的中文网站有数十篇文章着重介绍了实验室的“党建”活动。该实验室经常举办有关习近平思想的研讨会，并指出研究人员必须“不折不扣地贯彻落实党的部署”：
+but also all over the country, restaurants that have been to close down and stop serving dinner
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yH09V2XbsQbcX/images/de71d242-70ef-43ad-90f4-f57df5062ffa.jpg?asset_id=3fac33d9-8b2c-41f2-81bd-f9a33a93814e&amp;img_etag=%222c06282dea8a702321ce434b78dc4379%22&amp;size=1024)](https://spark.adobe.com/page/yH09V2XbsQbcX/images/de71d242-70ef-43ad-90f4-f57df5062ffa.jpg?asset_id=3fac33d9-8b2c-41f2-81bd-f9a33a93814e&amp;img_etag=%222c06282dea8a702321ce434b78dc4379%22&amp;size=1024)
+而且在全国范围内，餐馆已经被迫停业，停止供应晚餐
 
-*“在会议上，党委副书记、纪委书记何长才着重强调了坚持和加强党的全面领导、完善和发展我国的国家制度和治理体系，并坚持《习近平关于国家治理问题（第三卷）》中以人为本的三个部分。他强调，坚持党的领导，就要牢固树立“四个意识”，增强“四个自信”，坚决实现“两个保障”。各级党组织和全体党员必须在政治、思想和行动上与党中央保持一致，并不折不扣地贯彻落实党的部署。”*
+Only be able to serve lunch
 
-直到2021年1月，科学家们甚至还参加了“学习和实践”中国共产党五年计划的会议，还讨论了如何“在危机中培育机会”：
+只能供应午餐
 
-*“与会者围绕第十九届中央委员会第五次全体会议的精神和该研究所的发展计划的主题进行了热烈的讨论。他们交流了学习经验，并从学科布局、人才队伍建设、科教融合、国际合作、成果转移等方面对学院的未来发展提出了建议性的意见。肖庚富在讲话中指出，首先，我们必须以国家使命为指导，树立全球视野，牢记中华民族伟大复兴和史无前例的世界世纪大变革的整体策略。第二是在危机中培育机会，在变化中开启新局面。”*
+Because they cannot find people to work
 
-其他新闻稿显示，“武汉病毒学研究所领导干部”举办活动“认真学习贯彻习近平新时代中国特色社会主义思想”：
+因为他们找不到人工作
 
-*“根据院党组和分院分党组关于召开2020年党员领导干部民主生活会的有关要求，武汉病毒所领导班子和党员领导干部聚焦‘认真学习贯彻习近平新时代中国特色社会主义思想，加强政治建设，提高政治能力，坚守人民情怀，夺取决胜全面建成小康社会、实现第一个百年奋斗目标的伟大胜利，开启全面建设社会主义现代化国家新征程’主题，深入学习习近平新时代中国特色社会主义思想、党的十九届五中全会精神和习近平总书记系列重要讲话精神，并根据要求，认真开展会前准备工作。”*
+A restaurant set up being open for 50 years
 
-🔗[原文链接](https://thenationalpulse.com/exclusive/wuhan-lab-scrubs-ccp-awards-ties/)
+一家开业50年的餐厅
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+Such as one here in Dalton my district
 
+就在我这个区的道尔顿市
 
-编辑：【英国伦敦喜庄园编辑部】
+They had to shut the doors 3 to 4 days a week
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yH09V2XbsQbcX/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/yH09V2XbsQbcX/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+他们一周要关门3到4天
 
+Because they don’t have enough people to come to work
 
+因为他们没有足够的人来上班
+
+Even the schools, schools can’t hire bus drivers
+
+即使是学校，也雇不到校车司机
+
+They can’t hire cafeteria workers
+
+他们雇不到食堂工作人员
+
+They can’t hire janitors
+
+雇不到清洁工
+
+It goes all the way cross the Boards
+
+每个校区都是这样
+
+It’s hurting everyone, it’s hurting economic recovery
+
+它伤害每个人，伤害经济复苏
+
+It’s hurting economic growth,
+
+它正在伤害经济增长
+
+Bu it’s very much killing these small business
+
+这会扼杀这些小企业
+
+They have already in door entire year shut downs
+
+他们已经关门一整年了
+
+And yet, guess what?
+
+然而，你猜怎么着？
+
+their rent stays the same
+
+他们的房租保持不变
+
+their power bill stays the same, their cost of operations, vender supplies
+
+他们的电费保持不变，他们的运营成本和供应商原材料。
+
+food for the supplies all they need to run the business,
+
+一切运营所需的食物，原材料成本
+
+all about remains the same
+
+一切成本都保持不变
+
+yet they can’t employ people to do the actual work
+
+然而，他们雇不到人来干活
+
+They borrow from revenue to sustain their companies
+
+他们借来的收入维持公司的存在
+
+Host:
+
+节目主持人：
+
+I just wonder to say you have about 32 second left
+
+我不得不告诉你，你还有大约32秒的时间
+
+You’ve saying assault of America seems that the stimulate checks are keeping people home
+
+你指美国被攻击似乎是政府付钱让人们呆在家里
+
+and they won’t getting to the labour force that was what you are saying?
+
+然后他们不愿意去找工作，这是你想说的吗？
+
+Jarjorie:
+
+玛乔丽
+
+What I am saying that socialism is killing our country
+
+我的意思是，社会主义正在扼杀我们的国家
+
+And it’s here now
+
+现在它就在这里
+
+Come through the fact that all of these shut downs
+
+从所有这些停业的事实来看
+
+and everything the Democratic they are doing is socialism
+
+民主党所做的一切都是社会主义
+
+Its government checks paying people and they staying at home
+
+政府给人们发工资，让人们呆在家里
+
+and they don’t want to work
+
+而且他们不想工作
+
+The more Democratic policy is destroying our country
+
+民主党推行的刺激政策正在毁掉我们的国家
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频连接: [https://twitter.com/realamvoice/status/1390031268402790400?s=24](https://twitter.com/realamvoice/status/1390031268402790400?s=24)
+
+英听校:康州盘古农场-WZ
+翻译: 康州盘古农场-WZ
+翻译终校: 康州盘古农场- Mike Li
+字幕+视频制作:康州盘古农场-天涯行
+审片: 康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
