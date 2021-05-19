@@ -1,154 +1,142 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朱利安·阿桑奇(Julian Assange)说：“我们生活在一个‘媒体政治’时代，政治上可能的事情由媒体环境决定。”
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255751/)
+## 保险公司专家评估功能增强实验的风险，他们不喜欢他们看到的情况
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255913/)
 
 字幕内容：
 
-Julian Assange
+Gain-of-Function Research International Workshop 2012
 
-阿桑奇：
+2012年功能增强国际研讨会
 
-Noam Chomsky, in ‘The Common Good’
+Man（one）
 
-诺姆·乔姆斯基(Noam Chomsky)，“共同利益”
+男士一：
 
-wrote that “ the smart way to keep
+The second question just was very bravely：
 
-写道：“让人们保持
+第二个问题非常大胆：
 
-people passive and obedient is to
+“Has anybody thought about the legal ramifications of this,
 
-被动和顺从的聪明方法是
+“有没有人想过这件事的法律后果
 
-strictly limit the spectrum of
+if anything did ever happen
 
-严格限制
+如果真的发生了什么事
 
-acceptable opinion but to allow a very
+what’s kind of legal exposition for scientists or funders
 
-可接受意见的范围，但允许在非常
+如果我们创造的新病毒被传播出去
 
-lively debate within a narrow section of
+if new virus we created had get out
 
-狭小的范围内进行激烈
+对人类造成了巨大的经济损失
 
-that spectrum.”
+did cost the substantial economic in human harm?”
 
-的辩论。”
+对科学家或资助者有什么法律论述？
 
-We live in a ‘Mediaocracy’,
+Thank you
 
-我们生活在一个“媒体政体”中
+谢谢。
 
-what is politically possible
+Host:
 
-什么在政治上是可能的？
+主持人：
 
-is defined by the media environment.
+Peter Halar with the Foundation for Vaccine Research in Washington
 
-是由媒体环境定义的
+彼得·哈勒(Peter Halar)，华盛顿疫苗研究基金会(Foundation For Vaccine Research)。
 
-I started Wikileaks because I understood
+Peter Halar
 
-我创办维基解密是因为我明白
+彼得·哈勒(Peter Halar)
 
-this reality, the media frame defines the
+We feel that the issue of liability that insufficient attention
 
-这一现实，媒体框架定义
+我们觉得责任问题没有引起足够的重视
 
-political possibility.
+has been given to the issue of liability
 
-政治可能性
+这一点已经涉及到责任问题
 
-So to bring about meaningful change
+The organizer of the Sigma conference 35 years ago
 
-所以要带来有意义的改变
+35年前西格玛会议的组织者
 
-We have to enlarge the media frame.
+made sure that were lawyers participating in that meeting
 
-我们必须把媒体画面放大
+确保当时有法律顾问参加那次会议
 
-With Wikileaks we’ve had
+Which let you know regardless of recovery technology
 
-有了维基解密，我们就能
+无论采用何种恢复技术，都能让您知道
 
-significant successes in achieving this
+There is another community that I think should be involved
 
-在一些领域实现这一目标上取得重大成功
+我认为还有另一个社群应该参与进来
 
-in some areas, but more needs to be done.
+We think should be involved to that is insurance companies
 
-但还需要做更多的工作
+我们认为应该牵让保险公司加入进来
 
-The single greatest contributor to our
+The insurer don’t like what they are seeing and
 
-我们最伟大的贡献者来
+保险公司不会喜欢他们所看到的
 
-expanding horizons is you.
+they don’t like what this is going
 
-开阔我们眼界的是你
+他们不喜欢正在进行的事情
 
-You telling your friends what’s up,
+in particularly
 
-你告诉你的朋友们发生了什么事
+尤其是
 
-what you saw, what you believe,
+the largest insurance companies that we reinsure
 
-你看到的，你相信的
+我们再保险的公司是最大的保险公司
 
-and who’s full of it.
+Other insurance companies that experts on risk assessment
 
-以及那些满嘴胡言乱语的人
+其他保险公司的风险评估专家
 
-Contrasting what appears in the
+and they don’t like what they see
 
-对比显示在
+他们不喜欢他们所看到的
 
-Australian press to itself and to the world.
+we understand that in the secret meeting in London at Lloyd’s of the reinsurers
 
-澳大利亚媒体对其自己和世界都是如此
+我们了解这是在伦敦劳合社举行的再保险公司秘密会议上的内容
 
-You form part from the largest
+How we are going to reinsure
 
-你们是最大的组成部分
+我们怎样才能再保险呢？
 
-bullshit detecting machine the world has
+even with the most stringent bio safety rules and procedures ?
 
-世界上有一台废话探测机
+即使有最严格的生物安全规则和程序？
 
-ever seen.
+How on earth we are going to reinsure to reinsure ?
 
-从未见过的
+我们究竟要如何再保险才能再保险呢？
 
-That’s why Wikileaks has such support
+How we are going to reinsure insurance companies ?
 
-这就是为什么维基解密从暴露在互联网上的人
+我们将如何为保险公司提供再保险？
 
-from people exposed to the Internet
+we’ve seen premium going up already
 
-那里得到如此的支持
+我们已经看到保费上涨了
 
-that’s why we have such support from this generation
+How we are going to reassure this is safe ?
 
-也就是我们得到这一代人如此多的支持的原因
-
-because you’re better informed.
-
-因为你们消息灵通
-
-This is the best educated
-
-这是受过最好教育的
-
-generation in the history of the world.
-
-世界历史上最伟大的一代
+我们如何才能保证这是安全的呢？
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-原视频连接: [https://twitter.com/disclosetv/status/1389179026372243459?s=24](https://twitter.com/disclosetv/status/1389179026372243459?s=24)4
+原视频连接: [https://twitter.com/functiongain/status/1389152242360623106?s=24](https://twitter.com/functiongain/status/1389152242360623106?s=24)
 
 英听校:康州盘古农场-WZ
 翻译: 康州盘古农场-WZ
@@ -156,9 +144,5 @@ generation in the history of the world.
 字幕+视频制作:康州盘古农场-天涯行
 审片: 康州盘古农场-银龙
 发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

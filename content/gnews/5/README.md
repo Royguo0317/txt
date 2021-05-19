@@ -1,148 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 保险公司专家评估功能增强实验的风险，他们不喜欢他们看到的情况
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255913/)
+## 中共超限战灭港行动（十四）2010年元旦还我普选大游行和零八宪章
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1255969/)
 
-字幕内容：
+#### 搜集/撰文：岁月如歌 / 封面合成：文粤
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19034025/5191.jpg)
+2007年的全国人大代表大会表决否定2012年初选诉求之后，香港与中共的矛盾最终演变成香港民间举行大游行以及李柱铭先生绝食抗议。其后民间举办的多次活动继续争取普选权，但是从没有得到政府明确的承诺，这个矛盾越来越加深。 2009年11月18日政务司师长唐英年发表2012年行政长官的和立法会产生办法的咨询文件，对2017年实行普选行政长官和2020年立法会突显一个字都不提。而对2012年选举的办法和内容和2005年否决的200708年普选方案一样。这和当初的曾荫权在2007年香港特别行政区行政长官选举的承诺是相背的。这一来更加激起了民众的愤怒了，政府已违背承诺，香港人在力争。他们甚至自己推行五区公投用选票说话，以证实香港人是配有民主普选投票的。 2009年12月，公民党和社民连决定发动五区总辞变相公投，以全民投票来凝聚名义争取2012年的普贤方案。虽然最后没有达到目标及变质，但可以看到香港人在努力追求双普选所做的努力。民主进程都是有不成熟走向成熟的，五区公投是一个最初的不成熟试验。
 
-Gain-of-Function Research International Workshop 2012
+当香港人在为自己的权利努力抗争时，在中共统治下的大陆也正在运酿着一场革命。中共的独裁和言论自由的封禁并没有堵住人们的思想。追求自由民主是人的本性，八九六四之后，人们不敢提政治，不敢再关心民主，但那只是极度没有言论自由的现象。随着改革开放的发展人们通过网啰，媒体等渠道知道了外面的世界很精彩。知道了并不是所有的人都像我们一样被独裁者统治。觉醒的中华儿女渐渐的认识到人权、平等、自由是如此的重要，也是全世界共同追求的普世价值，民主、宪政、共和才是现代政治的基本框架。独裁之下没有民主更没有法治和共和可言。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19034042/5192.jpg)
+在中共大陆也有一批追求民主宪政共和的人士。 2008年12月9日为了纪念1948年12月10日的《世界人权宣言》60周年，一份宣言正在呼之欲出。由张祖华负责起草、刘晓波等人修改并有303位各界人士签署，这些人很多是内地异见人士和维权人士。包括鲍彤、丁子霖、刘军宁、戴晴、于浩成、浦志强、茅于轼、冉云飞等。这份宣言就是《零八宪章》，《宪章》提出促进中国民主化进程、改善人权状况、提出建立中华联邦共和国，解决两岸问题及各民族问题。原订2008年12月10日《世界人权宣言》60周年这一天举行论坛并发表《零八宪章》，但是8日，《零八宪章》刚刚在网上发布几个小时刘晓波就被警方带走了。 2009年6月23日刘晓波再次被警方以「涉嫌煽动颠覆国家政权罪」逮捕。接着中共逮捕了多名发起拟草人，封禁博客网站。到2011年6月为止在《零八宪章》上的签名有13,000多人。 2009年12月25日北京第一中级法院以“煽动颠覆国家政权罪”判决刘晓波有期徒刑11年剥夺政治权利两年。罪证是提出“联邦共和”和建立“中华联邦共和国”口号。 2010年10月8日刘晓波因为「为中国基本人权所进行的长期、非暴力的斗争」获诺贝尔奖，但大家都知道刘晓波在狱中没能去领奖。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19034100/5193.jpg)
+《零八宪章》是继八九六四之后的又一个文明追求民主宪政诉求，这么大一件事在中共大陆甚少人知道，被中共全部禁止传播。在国际上引起轩然大波，美国、德国、台湾等国家和地区政府都纷纷谴责了中共，他们支持和赞赏这些进步人士。西方多个媒体还报导了这一《宪章》。达赖喇嘛和其他一些国际人士也对《零八宪章》表示的支持和赞赏。香港没有防火墙，人们都知道《零八宪章》，立场新闻全文刊登该《宪章》。刘晓波因言获罪对香港人影响很大，香港人在刘晓波身上看到中共手段的残忍，对异见人士、维权人士、要求改革的人士，不分青红皂白一律严厉打击取缔。更明白言论自由不存在， 改革已死，只有独裁。香港人明白只有加快争取双普选争取民主政制才能保护自己的权利。刘晓波事件促发香港一连串的抗议运动。 2010年元旦日，泛民主派发起三万人大游行，要求「释放刘晓波，以言获罪可耻」，争取「2012双普选，一人一票选特首，订出普选路线图」。游行队伍身系黄丝带，象征争取民主自由。拉起「真民主，双普选」标语和刘晓波画像。香港人争取民主运动队伍越来越壮大，声势也越来越浩大。港中矛盾越来越走向撕裂。
 
-2012年功能增强国际研讨会
+（未完待续）
 
-Man（one）
+【本文仅代表作者个人观点】
 
-男士一：
 
-The second question just was very bravely：
+参考连接：
+[自由亚洲-三万港人游行声援刘晓波及争取普选](https://www.rfa.org/cantonese/news/HK_procession-01012010082758.html)
 
-第二个问题非常大胆：
+[维基百科-「还我普选」元旦大游行](https://zh.wikipedia.org/zh-hant/%E3%80%8C%E9%82%84%E6%88%91%E6%99%AE%E9%81%B8%E3%80%8D%E5%85%83%E6%97%A6%E5%A4%A7%E9%81%8A%E8%A1%8C)
 
-“Has anybody thought about the legal ramifications of this,
+[维基百科-零八宪章](https://zh.wikipedia.org/zh-hant/%E9%9B%B6%E5%85%AB%E5%AE%AA%E7%AB%A0)
 
-“有没有人想过这件事的法律后果
+导读：
+中共超限战灭港行动
 
-if anything did ever happen
+[中共超限战灭港行动（一）临时立法会成立](https://gnews.org/zh-hans/1163020/)
 
-如果真的发生了什么事
+[中共超限战灭港行动（二）是谁为临时立法会摇旗呐喊？](https://gnews.org/zh-hans/1170091/)
 
-what’s kind of legal exposition for scientists or funders
+[中共超限战灭港行动（三）临立会主席范徐丽泰与特首董建华的父辈们](https://gnews.org/zh-hans/1178528/)
 
-如果我们创造的新病毒被传播出去
+[中共超限战灭港行动（四）变色龙范徐丽泰](https://gnews.org/zh-hans/1183152/)
 
-if new virus we created had get out
+[中共超限战灭港行动（五）公安恶法匆促落实](https://gnews.org/zh-hans/1187269/)
 
-对人类造成了巨大的经济损失
+[中共超限战灭港行动（六）英解密档案](https://gnews.org/zh-hans/1200256/)
 
-did cost the substantial economic in human harm?”
+[中共超限战灭港行动（七）基本法](https://gnews.org/zh-hans/1217241/)[23条如何产生](https://gnews.org/zh-hans/1217241/)
 
-对科学家或资助者有什么法律论述？
+[中共超限战灭港行动（八）基本法](https://gnews.org/zh-hans/1230623/)[23条与港版国安法有什么关系](https://gnews.org/zh-hans/1230623/)
 
-Thank you
+[中共超限战灭港行动（九）](https://gnews.org/zh-hans/1236409/)[0708双普选政改梦想与曾宪梓](https://gnews.org/zh-hans/1236409/)
 
-谢谢。
+[中共超限战灭港行动（十）](https://gnews.org/zh-hans/1241573/)[0708双普选梦想破灭](https://gnews.org/zh-hans/1241573/)
 
-Host:
+[中共超限战灭港行动（十一）](https://gnews.org/zh-hans/1247459/)[0708双普选第五份报告遭民意否决](https://gnews.org/zh-hans/1247459/)
 
-主持人：
+[中共超限战灭港行动（十二）双普选政改被否后的“爱国者论”](https://gnews.org/zh-hans/1250435/)
 
-Peter Halar with the Foundation for Vaccine Research in Washington
+[*中*共超限战灭港行动（十三）](https://gnews.org/zh-hans/1252992/)[2012双普选被否和遁序渐进民主政制的骗局](https://gnews.org/zh-hans/1252992/)
 
-彼得·哈勒(Peter Halar)，华盛顿疫苗研究基金会(Foundation For Vaccine Research)。
-
-Peter Halar
-
-彼得·哈勒(Peter Halar)
-
-We feel that the issue of liability that insufficient attention
-
-我们觉得责任问题没有引起足够的重视
-
-has been given to the issue of liability
-
-这一点已经涉及到责任问题
-
-The organizer of the Sigma conference 35 years ago
-
-35年前西格玛会议的组织者
-
-made sure that were lawyers participating in that meeting
-
-确保当时有法律顾问参加那次会议
-
-Which let you know regardless of recovery technology
-
-无论采用何种恢复技术，都能让您知道
-
-There is another community that I think should be involved
-
-我认为还有另一个社群应该参与进来
-
-We think should be involved to that is insurance companies
-
-我们认为应该牵让保险公司加入进来
-
-The insurer don’t like what they are seeing and
-
-保险公司不会喜欢他们所看到的
-
-they don’t like what this is going
-
-他们不喜欢正在进行的事情
-
-in particularly
-
-尤其是
-
-the largest insurance companies that we reinsure
-
-我们再保险的公司是最大的保险公司
-
-Other insurance companies that experts on risk assessment
-
-其他保险公司的风险评估专家
-
-and they don’t like what they see
-
-他们不喜欢他们所看到的
-
-we understand that in the secret meeting in London at Lloyd’s of the reinsurers
-
-我们了解这是在伦敦劳合社举行的再保险公司秘密会议上的内容
-
-How we are going to reinsure
-
-我们怎样才能再保险呢？
-
-even with the most stringent bio safety rules and procedures ?
-
-即使有最严格的生物安全规则和程序？
-
-How on earth we are going to reinsure to reinsure ?
-
-我们究竟要如何再保险才能再保险呢？
-
-How we are going to reinsure insurance companies ?
-
-我们将如何为保险公司提供再保险？
-
-we’ve seen premium going up already
-
-我们已经看到保费上涨了
-
-How we are going to reassure this is safe ?
-
-我们如何才能保证这是安全的呢？
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://twitter.com/functiongain/status/1389152242360623106?s=24](https://twitter.com/functiongain/status/1389152242360623106?s=24)
-
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场- Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片: 康州盘古农场-银龙
-发布：康州盘古农场-文韵
+*审稿：卡西欧**/**校对：文粤**/**上传：天网灰灰*
 
 0
