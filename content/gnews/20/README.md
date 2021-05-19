@@ -1,20 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大安省芬太尼的受害者人数因疫情恶化而暴增！
-` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1257373/)
+## 佩洛西呼吁抵制北京2022年冬奥会
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1257442/)
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19141745/fentaini.jpg)图片来源：VOA
+消息来源：共和报—repubblica.it
+发布时间：2021.05.19
+翻译整理：斩草要除根
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19144657/vytautas-dranginis-hT9srFlXPGE-unsplash-scaled.jpg)
 
 
-据加拿大自媒体《ThePostMillennial》于5月19日刊登新闻报道，安大略省多伦多圣迈克尔医院的毒品政策研究中心发布的最新调查报告指出，自（中共病毒）疫情开始涂炭该国以来，因过量服用鸦片类药物而致命的案例激增了75％。其中尤以农村和中小型城市因芬太尼滥用所导致的伤害最为严重。事实和数据皆表明，过量摄入鸦片类药物致死率的空前飙增与当局政府所制定执行的社区活动限制和封锁措施有直接关联，因为超量服用该类毒品的受害者中有近75％是独自在其住所内死亡的。
+美国众议院议长南希·佩洛西（Nancy Pelosi）呼吁美国和其他谴责中共国对维吾尔族的迫害的国家抵制明年定于中共国举行的冬季奥运会。
 
-该报告还批评了政府将无家可归者安置在宾馆或汽车旅馆而不是传统的庇护所中的防疫政策。并指出：“我们观察到，在疫情恶化期间，无家可归者中与鸦片类药物相关的死亡地点较疫情之前发生了很大的变化。类似死亡情况大量增加于宾馆，汽车旅馆和酒店的客房内。其中25-44岁居民的用药过量情况最为明显，即从2019年的608人增加到2020年同期的1,109人。此外，因滥用芬太尼而直接导致鸦片类药物相关死亡的情况与日俱增，从疫情大流行前的75％上升到如今的87％。”
+其动机是北京侵犯人权，特别是对维吾尔族的迫害。佩洛西说，参加冬季奥运会的领导人有可能“失去道德权威”。
 
-该报告的合著者塔拉·戈麦斯（Tara Gomes）指出：“（中共病毒）COVID 19疫情加速了全省致命类鸦片过量服用的发生率。而且类似情况也普遍出现在加拿大所有其他的省份和地区。”
+简评：美国议员越来越高声呼吁抵制北京冬奥会，用这种“外交抵制 ”来批评中共政府践踏人权。相信会有更多的国家加入抵制的队伍中来，而中共想把美国国务院定义中共政府对维吾尔人和其他少数民族的这个“种族灭绝”灭绝罪给抹掉是绝不可能。
 
-[原文链接](https://thepostmillennial.com/ontario-overdose-deaths-up-75-since-the-pandemic)
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
 
-本文仅代表原媒体信息和作者个人观点。
+发表： Shuizhuyu
+
+🔗[cina\_pelosi\_chiede\_boicottaggio\_olimpiadi\_pechino](https://www.repubblica.it/esteri/2021/05/19/news/cina_pelosi_chiede_boicottaggio_olimpiadi_pechino_2022-301679593/)
 
 0

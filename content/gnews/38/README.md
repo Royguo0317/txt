@@ -1,21 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 普京敦促勿忘二战教训
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1257260/)
+## 芝加哥海关官员查获来自中共的68.5万美元假币
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1257287/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+作者:休斯顿星光农场  文顺
+![This image has an empty alt attribute; its file name is Screenshot-2021-03-25-230524-1.jpg]()![This image has an empty alt attribute; its file name is Screenshot-2021-03-25-230524-1.jpg](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-03-25-230524-1.jpg)
+5月18日，美国海关和边境保护局（CBP）截获了来自中共的24个装有假币的包裹，共计685，000美元。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19130306/1111-2-1.jpg)图片来源：breaking 911
+据breaking911报道，这批假币被运往美国各地的各个城市，包括伊利诺伊州和印第安纳州的城市。尽管所有的假币都以酒吧道具的形式出现，但复制货币已违反联邦法律，违法者可以被逮捕。
 
-编辑上传 银河
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19124401/Snipaste_2021-05-19_19-43-39.jpg)[historyextra.com](http://www.historyextra.com/article/bbc-history-magazine/7-must-see-second-world-war-films)
-5月18日，据《塔斯社》报道，俄罗斯总统弗拉基米尔·普京坚信，国际社会应尽一切努力防止第二次世界大战的重演和对其教训的遗忘。
+这批假币面值含5美元，10美元，20美元，50美元，100美元。一批运往纽约布朗克斯的包裹中有976张100美元的钞票，另一批运往路易斯维尔的包裹中有101张20美元的钞票和103张50美元的钞票。这批假币已移交国土安全调查局和美国特勤局进一步调查。
 
-普京说：“我们相信，必须采取一切措施，防止第二次世界大战的悲剧重演，忘记其教训。”他强调，所有国家都必须珍惜在应对共同挑战和威胁方面的宝贵经验和联盟精神，牢记默许民族主义和排外主义会导致什么，共同制定统一的议程，建立一个更加公正和民主的多极化世界秩序，确保人类的福祉和繁荣。
+芝加哥地区港口总监谢恩·坎贝尔（Shane Campbell）表示：”我们的CBP官员时刻保持警惕，关注通过IMF运送的任何类型的违禁物品。”
 
-普京总统称，5月9日俄罗斯庆祝了伟大卫国战争的胜利日。“这始于80年前的1941年6月22日，当时纳粹背信弃义地袭击了我们的祖国。我们珍惜那些战斗过的人，和在后方无私地工作的战斗人员，他们为和平和自由献出了自己的生命，我们向我们的老兵致敬。”
+据报道，在芝加哥的国际邮政设施（IMF），美国海关和边境保护局（CBP）官员每年处理5700万封包裹。海关人员通常每晚检获40至50个包裹，内有未经批准的药物、毒品、伪造珠宝、电子产品及许多其他非法物品。这批假币是在5月15日（星期六）至5月17日（星期一）为期三天内查获的。
 
-参考链接：
+**新闻源参考:**
 
-[https://tass.ru/obschestvo/11400191?utm\_source=twitter.com&utm\_medium=social&utm\_campaign=smm\_social\_share](https://tass.ru/obschestvo/11400191?utm_source=twitter.com&amp;utm_medium=social&amp;utm_campaign=smm_social_share)
+[Chicago Customs Officers Find $685K In Fake Cash Shipped From China – Breaking911](https://breaking911.com/chicago-customs-officers-find-685k-in-fake-cash-shipped-from-china/)
+
+编辑/校对/发稿：Helen、文顺
+
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
+- 
+
 
 0

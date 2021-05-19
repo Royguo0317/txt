@@ -1,15 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年5月18日 文贵先生盖特 5
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1257634/)
+## 2021年5月18日 文贵先生盖特 7
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1257658/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-May 18th: From 6:00 in the morning until now, I basically didn’t eat anything. Have a whole day of meetings and interviews, but still have to exercise. Don’t give yourself any reason to give up your goals…and betray your promises!
+5月18日：我们不是幸灾乐祸，但是这个真实的故事时时刻刻都发生在我们的周围……万事结为空．只有果不虚.：【吉林省松原井子镇， 狐狸养殖场老板老婆去打麻将， 两个孩子饿了自己家饭， 煤气罐爆炸，两个孩子都被炸死了， 现场哭得声嘶力竭， 他们家院后堆积的 都是他们活活扒了皮的狐狸尸体。 評： 所謂只信科學的永遠也不會明白， 有些人和人群是不可介入的， 有些因果是不可招惹的⋯ 所谓结缘、造孽皆如此！】
 
-[【2021年5月18日】文贵先生盖特原文](https://gtv.org/getter/60a4575f37f7f73984cd25e9)
+[【2021年5月18日】文贵先生盖特原文](https://gtv.org/getter/60a463d837f7f73984cd29c6)
 
 **喜联盟Gnews编辑部**
 
-+1
+0
