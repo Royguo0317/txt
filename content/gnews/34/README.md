@@ -1,140 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 巴西总统雅伊尔·博索纳罗将Covid19大流行病与“生物战”联系起来
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1256025/)
+## Facebook事实查核系统的致命缺陷浮出水面，现在对问题采取任何立场似乎都可能让你遭受攻击
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1256086/)
 
-字幕內容：
+- 作者：Jenny Ball
 
-Who set the ball rolling this time? this leader Jair Bolsonaro, the president of Brazil,
 
-这次是谁掀起的风浪？是这位领导人,巴西总统贾伊尔·博尔索纳罗
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-with his political future on a sticky wicket, he has suddenly come to realize that the
+**西班牙2021年5月19日电/西喜社——**
 
-在他的政治前途岌岌可危的情况下，他突然意识到，这种病毒实际上
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19051427/social-media-6217838_640.jpg)
 
-virus is in fact quite lethal. That it could be part of a biological war.
+当社交媒体平台的事实查核人员得出不同结论时，会发生什么？
 
-是相当致命的。它可能是一场生物战争的一部分。
+最近，有关COVID-19疫苗授权合法性的争论在Facebook的事实查核流程中成了问题，这证明了我们一直以来所知道的：该查核系统存在缺陷。
 
-Does he have proof? he says his military does, you must listen to this.
+该公司偏爱的两项事实查核资源似乎在强制性疫苗接种问题上存在分歧，其中“政治事实”（PolitiFact）声称“大学或雇主要求使用COVID疫苗并不违法”，而“事实查核”（FactCheck.org）则是另一种表述。
 
-他有证据吗？他说他的军队有，请您恭听。
+简而言之，PoliitiFact批评了一条病毒式的Facebook帖子，上面写着：“大学、公立学校或雇主“授权”疫苗是非法的，因为该疫苗仅被授权用于紧急用途。”
 
-It’s a new virus, nobody knows if it was born in a lab or because the human eats
+“ 没有法律机制可以阻止任何机构（无论是雇主还是学校）强制要求COVID-19疫苗注射，尽管可以根据美国《残疾人法案》和1964年的《民权法案》对某些残疾人，或真诚持有宗教信仰的人予以豁免。” PoliitiFact宣称反对该帖子的主张。
 
-这是一种新的病毒，没有人知道它是否诞生于实验室，还是因为人类吃了
+PolitiFact的说法有些道理。
 
-some animal they shouldn’t have. But it’s dead and the military knows all about
+高校经常在入学前要求疫苗接种记录，世卫组织要求旅行者选择疫苗接种，某些雇主可能会要求雇员证明其疫苗接种状况。
 
-一些他们不应该吃的动物（而感染的）。但这已经有定论了
+那么，FactCheck.org在此问题上的立场有何不同？
 
-this chemical biological and radiological warfare.
+两个事实查核组织都同意各种机构可以要求为学生和/或雇员接种疫苗，但是他们对这一主张的深度持不同意见。
 
-我们军方已经对这场化学生物和放射性战争有所掌握
+“雇主、学院和大学可以要求接种COVID-19疫苗吗？” FactCheck.org说。 “通常，他们可能需要接种疫苗。 但是，美国食品药品监督管理局授权用于紧急用途的强制性疫苗的合法性还存在一些不确定性。”
 
-could we be fighting a new war? I guess. which country’s GDP has grown the most?
+事实查核人员说，很多人没有意识到在冠状病毒注射时的一个主要因素：三种授权疫苗没有“标准的全面许可，即被称为生物制剂许可证申请（BLA）”。
 
-我们会不会是正在打一场新的战争？我想是的。在全球大疫情的当下，哪个国家的国内生产总值增长最多？
+它说，COVID疫苗已经获得了紧急使用授权，只有辉瑞在本月初完成对其联合生产的疫苗的BLA授权。
 
-I’m not going to tell you.
+FactCheck.org指出，强制性注射仅授权用于紧急用途的疫苗存在不确定性，他说：“对于某些法律观察员来说，疫苗的当前授权状态，意味着雇主和其他人员仍无法要求使用它们。”
 
-我不会去告诉您
+两个主要的事实查核人员之间的分歧使我们想知道，如果我们公开就这一问题采取不同立场，会发生什么？
 
-Needless to say China won’t be happy, but Bolsonaro just said is nothing new though,
+不管我们的意见如何，我们的社交媒体帐户都会被标记为虚假信息吗（例如，批评PolitiFact的Facebook帖子）？
 
-不用说，中共不会高兴，但博尔索纳罗刚刚说的并不新鲜
+我们知道，大科技企业（Big Tech）会试图根据提倡某些意识形态的精选话语权来塑造我们的现实。因此，有趣的是，无论是在社交媒体还是在法律领域，都可以看到这个问题的走向。
 
-time and again we’ve heard similar theories the virus is not natural, it was made in
+有一件事我们可以肯定：这种分歧证明，对于一组事实可以得出不同的结论，而Big Tech的事实查核系统不让你有太多（自由辩论的）余地。
 
-我们一次又一次地听到类似的理论，病毒不是天然的，它是在实验室里研制的
+**评论：其实这一大篇文字，就是向人们证明一件事，完全可以肯定的事：大科技在操控着世界的话语权，他们不允许人们有超出他们能够左右的范围之外的言论自由。而没有言论自由，就没有一切其他自由可言。**
 
-lab, it’s a bio weapon,
+**没有言论自由，就永远不会有真相。珍惜我们能够自由发声揭示真相的GTV， Gnews 和Getter平台，把真相传播给更多渴望自由追求正义的人们，用真相战胜邪恶，让大科技还正义自由与人民 ！**
 
-是一种生物武器
+素材：Jenny Ball；审核：文乐；校对：阿伯塔；发稿：信心的选择
 
-what was the virus leaked, at the onset of the pandemic there were numerous reports
+素材来源：[www.westernjournal.com](https://www.westernjournal.com/fatal-flaw-facebooks-fact-check-system-surfaces-now-taking-either-side-issue-seemingly-put-crosshairs/?utm_source=Email&amp;utm_medium=conservative-brief-WJ&amp;utm_campaign=dailypm&amp;utm_content=western-journal)
 
-说什么病毒泄露，在大流行开始时，有许多关于
+**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
 
-on how the virus accidentally escaped from the Wuhan Institute of Biology.
-
-病毒如何意外地从武汉生物研究所泄漏的报道
-
-The WHO team which traveled to China to probe its origins, could find no such proof.
-
-前往中共国探究该病毒来源的世卫组织小组无法找到这样的证据
-
-But then again it could be because they did not go there in time or they went under
-
-但重申，它有可能是因为世卫生组织没有及时去到那里，或者是在中共的
-
-strict supervision of the Chinese and they also went in January this year,
-
-严格监督下做的调查。他们是在今年1月去的
-
-about thirteen months after the virus was first reported and they came back with
-
-在该病毒首次被报告后约13个月才去调查，他们带回来的
-
-more questions than answers.
-
-问题比答案多
-
-Now in its report the WHO team said there were many corona viruses at the institute,
-
-现在世卫组织小组在其报告中说，在武汉研究所里有许多冠状病毒
-
-But SARS COVID-2 what we call the wuhan virus was not among them and hence
-
-但是SARS COVID-2，也就是我们所说的武汉病毒并不在其中
-
-the leak hypothesis was extremely unlikely.
-
-因此病毒泄漏假说就具极其不可能性
-
-But the WHO director general Dr. Tedross has said that he does not believe that his
-
-但非常有趣的是，世卫组织总干事谭德赛博士说，他认为他的团队
-
-team’s assessment of the lab leak possibility was tensive enough which is very interesting.
-
-对实验室泄漏可能性的评估不够深入
-
-so he called for a deeper probe into the lab theory, this was on the 31th of March this year.
-
-所以他呼吁对实验室理论进行更深入的调查，这是今年3月31日的事情
-
-today is the sixth of May, and the WHO is still evaluating how to move forward with its probe.
-
-今天是5月6日，世界卫生组织仍在评估如何推进其调查
-
-so Mr. Bolsonaro can do two things.
-
-所以博尔索纳罗先生可以有两个选择
-
-either make his military show us the proof, or wait for the WHO to travel back all
-
-要么让他的军队向我们展示证据，要么等待世卫组织重回到
-
-the way to China which we doubt, will solve this mystery at all.
-
-中国调查，而我们怀疑此举能否会有任何机会将这个谜团解开
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接: [https://twitter.com/raheemkassam/status/1348463264326365187?s=21](https://twitter.com/raheemkassam/status/1348463264326365187?s=21)
-
-英听校： 康州盘古农场 – Mike Li
-翻译： 康州盘古农场 – Mike Li
-翻译终校：康州盘古农场 – 郭班之樱
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
++1

@@ -1,166 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 哈佛大学系主任查尔斯·利伯（Charles Lieber）被捕，被控隐瞒与中共国的关系
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255994/)
+## 台湾全境疫情警戒升至三级
+` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1256095/)
 
-字幕内容：
+#### 撰稿：yyshere（News Express）
+校对：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19051136/rfi-2.jpg)图片来源：RFI
+台湾福利部疾病管制属当地时间19号公告，当天新增COVID-19（CCP病毒）本土感染确诊病例267例，另有8例境外输入病例。本土病例中，男性127例，女性140例，年龄介于未满5岁的儿童和80多岁的老人。病例已出现在了疫情最为集中的新北市和台北市之外的多个县市，目前仍有49个病例感染源未明。
 
-Andrew Lelling (US Attorney)
+台湾疫情中央流行疫情指挥中心表示，为应对目前国内持续的COVID-19（CCP病毒）本土疫情，即日起到5月28号，提升全国疫情警戒至第三级，提请民众持续遵循配合现行三级警戒管制措施，与政府共同努力，严守社区防线。
 
-安德鲁·莱林（美国律师）
+在各项防疫要求当中，指挥中心强调，疫情热点地区要增加检测站，再次要求地方政府对有症状感染者开设绿色通道，也再次要求地方政府必须在第一时间，即确诊后6小时内（深夜时间除外) ，将确诊患者依据症状分级，并送至集中隔离检疫所或医疗机构救治。
 
-We are here today to announce three separate cases,
+指挥中心还特别提出，警戒升级期间需驳斥错误不实讯息。指挥中心要求各地方政府每天参与全国防疫会议，会议后将增开一场记者会，由指挥中心副指挥澄清错误和不实信息。
 
-我们今天在这里宣布三个单独的案件
+此外指挥中心强调，目前尚无升级到警戒四级的必要。
 
-highlighting the ongoing threat posed by Chinese economic espionage
+从CCP新冠病毒疫情2020年全球蔓延以来，台湾一直以优秀的防疫成绩被世界公认为防疫模范生。这次疫情突然爆发并持续蔓延，新一轮疫情的源头引发外界关注和猜测。
 
-强调中共国经济间谍活动所构成的持续威胁
+消息来源： 台湾CDC
 
-and research theft in the United States
-
-和在美国研究盗窃
-
-Nichole Berlie (Reporter)
-
-妮可·伯利（记者）
-
-Federal investigators at Lexington home of 60-year-old Dr. Charles Lieber today
-
-联邦调查人员今天出现在60岁的查尔斯·利伯在列克星敦的家
-
-moments after his arrest at his Harvard office.
-
-在这不久前，他在他的哈佛办公室被捕
-
-Andrew Leling
-
-安德鲁·莱林
-
-The complaint alleges that Dr. Lieber signed a contract with Chinese university of Wuhan,
-
-申诉称利伯博士与中共国武汉大学签署了一项合同
-
-and was paid up to $50,000 per month plus up to $158,000 in living expenses.
-
-他每月获得高达$ 50,000的报酬，另加高达$ 158,000的生活费
-
-Nichole Berlie (Reporter)
-
-妮可·伯利（记者）
-
-The chair of Harvard chemistry department
-
-哈佛化学系系主任
-
-He also allegedly received more than $1.5 million to set up a research lab in China,
-
-据称，他还获得了超过150万美元的资助，用于在中共国建立研究实验室，
-
-all while working at Harvard
-
-同时一直在哈佛工作
-
-and receiving multiple research grants from the U. S. Department of defense
-
-and national institutes of health.
-
-并获得美国国防部和国立卫生研究院的多项研究资助
-
-Also charge today, two Chinese nationals
-
-今天还起诉了两名中共国籍的公民
-
-29-year-old, Yanqing Ye,
-
-29岁的叶颜清（音译）
-
-who worked as a scientific researcher at Boston University.
-
-她曾在波士顿大学担任科学研究员
-
-Andrew Leling
-
-安德鲁·莱林
-
-Who failed to mention on her visa application
-
-在她的签证申请时隐瞒了
-
-she is also a lieutenant with the People’s Liberation Army.
-
-她还是中国人民解放军的中尉
-
-Nichole Berlie
-
-妮可·伯利
-
-30-year-old Zaosong Zheng worked on cancer research at Beth Israel Deaconess Medical Center
-
-30岁的郑灶松（音译）在哈佛大学附属贝丝以色列医疗中心从事癌症研究
-
-Andrew Leling
-
-安德鲁·莱林
-
-For trying to smuggle vials of biological material out of United States to China
-
-试图将小瓶生物材料从美国走私到中共国
-
-and lying about it for federal investigators.
-
-并且对联邦调查员撒谎
-
-Nichole Berlie
-
-妮可·伯利
-
-Now Lieber is due back in court Thursday.
-
-现在，利伯应于周四回到法院
-
-He is currently behind bars and could face five years in prison if convicted.
-
-他目前在监狱里，如果罪名成立，将面临五年监禁
-
-And Harvard does tell me
-
-而且哈佛确实告诉我
-
-he is current on paid administrative leave.
-
-他目前正在休带薪行政假
-
-In the meantime, Harvard, Beth Israel deaconess medical center
-
-同时，哈佛大学，哈佛大学附属贝丝以色列医疗中心
-
-and BU are all cooperating with authorities.
-
-和波士顿大学都在与当局合作
-
-Reporting live at south Boston
-
-在波士顿南部现场报道
-
-Nichole Berlie WCVB news center 5
-
-妮可·伯利，WCVB，新闻中心5
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接  [https://twitter.com/kin20200604/status/1390525787040714755?s=24](https://twitter.com/kin20200604/status/1390525787040714755?s=24)
-
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+（本文系作者个人观点）
 
 0

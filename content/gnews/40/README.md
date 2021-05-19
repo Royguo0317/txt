@@ -1,208 +1,420 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国出现了一场劳工危机，这是对美国小企业的攻击，社会主义正在扼杀我们的国家，人们担心荒谬的刺激措施。”
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255979/)
+## “中共想摧毁我们，他们想统治世界。”
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1256063/)
 
 字幕内容：
 
-Marjorie Taylor Greene
+Gordon Chang
 
-Congresswoman for Georgia’s 14th CD
+章家敦
 
-玛乔丽·泰勒·格林
+Well the Biden policy on Taiwan
 
-佐治亚州第14届CD的女众议员
+那么，拜登在台湾的政策
 
-This is absolutely the issue that should be raining the new cycle and set up gossip
+I think is actually quite good could be better
 
-这绝对是应该新一轮的引发流言蜚语的问题
+我认为实际上是相当好的，应该会更好
 
-And stupid story of about royal, which is none of us care about
+But Peter Beinart who wrote that piece in the New York Times
 
-这是我们谁都不关心的关于忠诚的愚蠢故事
+但是彼得·贝纳特（Peter Beinart）在《纽约时报》上撰文
 
-This is assault of American small businesses that we have paying people stay home for over a year now
+doesn’t understand deterrence
 
-这是对美国小企业的攻击，我们付钱让人待在家里都一年多了
+不懂威慑
 
-this is ridiculous stimulus checks and these hard lined
+and he certainly doesn’t understand China’s motivations
 
-这是荒谬的刺激计划，而这些强硬的措施
+并且他当然不了解中共国的动机
 
-our government impost shut downs
+you know he Peter Beinart point something
 
-我们的政府强制推行的停业措施
+你知道他，彼得·贝纳特指出些东西
 
-has hurt business so badly in cross borders
+that’s true that in war games the U.S. always loses
 
-已经严重损害了所有的商业活动
+诚然，在战争游戏中
 
-Not just small businesses, it’s businesses, it’s schools, it’s everyone
+when it comes to Taiwan
 
-不只损害了小企业，其他的企业、学校、每个人
+美国在台湾问题上总是失败的
 
-They can’t hire anyone,
+but that doesn’t mean we can’t deter Taiwan
 
-他们不能雇佣任何人
+但这并不意味着我们不能阻止台湾被侵略
 
-no one wants to show up for a job interview
+because Xi Jinping the Chinese ruler
 
-没人想去参加求职面试
+因为中共的统治者习近平
 
-and no one wants to take a job
+his number one foreign policy goal is
 
-而且没有人愿意出去工作
+他们首要的外交政策目标是
 
-and so what I ’ve been talking to a business is in my district
+the maintenance of communist party rule
 
-所以我和我辖区的企业交谈过
+维持共产党统治
 
-but also all over the country, restaurants that have been to close down and stop serving dinner
+and if he feels that there would be unacceptably high casualties
 
-而且在全国范围内，餐馆已经被迫停业，停止供应晚餐
+如果他觉得会有大量的人员伤亡
 
-Only be able to serve lunch
+he’s not going to attack Taiwan
 
-只能供应午餐
+他不会去攻击台湾
 
-Because they cannot find people to work
+but we need a clear declaration from the administration saying
 
-因为他们找不到人工作
+但我们需要政府明确声明说
 
-A restaurant set up being open for 50 years
+that we will defend Taiwan
 
-一家开业50年的餐厅
+我们将捍卫台湾
 
-Such as one here in Dalton my district
+in other words we need to ditch our policy of strategic ambiguity
 
-就在我这个区的道尔顿市
+换句话说，我们需要放弃我们的战略模糊政策
 
-They had to shut the doors 3 to 4 days a week
+which once worked but really won’t work
 
-他们一周要关门3到4天
+这曾经是有效的，但现在在北京这个
 
-Because they don’t have enough people to come to work
+now in this very different environment in Beijing
 
-因为他们没有足够的人来上班
+非常不同的环境中真的行不通了
 
-Even the schools, schools can’t hire bus drivers
+John Bachman
 
-即使是学校，也雇不到校车司机
+约翰·巴赫曼
 
-They can’t hire cafeteria workers
+Fred what do you think?
 
-他们雇不到食堂工作人员
+弗雷德，你怎么看
 
-They can’t hire janitors
+Fred
 
-雇不到清洁工
+弗雷德
 
-It goes all the way cross the Boards
+Well this op-ed was written by Peter Beinart
 
-每个校区都是这样
+好，这篇文章是由彼得·贝纳特撰写的
 
-It’s hurting everyone, it’s hurting economic recovery
+a far-left writer who’s mostly known for his vicious attacks in the state of Israel
 
-它伤害每个人，伤害经济复苏
+一个极左的作者，是以在以色列的恶毒攻击而闻名
 
-It’s hurting economic growth,
+so I don’t find him credible
 
-它正在伤害经济增长
+所以我觉得他没有可信度
 
-Bu it’s very much killing these small business
+what I found interesting about this op-ed is
 
-这会扼杀这些小企业
+我所发现的这篇文章有趣的是
 
-They have already in door entire year shut downs
+that he’s reflecting the views of the left
 
-他们已经关门一整年了
+他在反映左派的观点
 
-And yet, guess what?
+which would like to write Taiwan off
 
-然而，你猜怎么着？
+愿意抛弃台湾
 
-their rent stays the same
+I don’t agree that
 
-他们的房租保持不变
+我不同意那个观点
 
-their power bill stays the same, their cost of operations, vender supplies
+the small steps that Biden has taken to normalize relations with Taiwan
 
-他们的电费保持不变，他们的运营成本和供应商原材料。
+拜登为使与台湾关系正常化所采取的小步骤
 
-food for the supplies all they need to run the business,
+is really going to antagonize China to attack
 
-一切运营所需的食物，原材料成本
+真的会反抗中共国的攻击
 
-all about remains the same
+but if you read this op-ed carefully
 
-一切成本都保持不变
+但是如果你仔细阅读这篇文章
 
-yet they can’t employ people to do the actual work
+it’s pretty clear that the left doesn’t want to defend Taiwan
 
-然而，他们雇不到人来干活
+很明显的，左派不想捍卫台湾
 
-They borrow from revenue to sustain their companies
+they don’t care if China invades it
 
-他们借来的收入维持公司的存在
+他们不在乎如果中共国侵略台湾
 
-Host:
+now some of that radical ideology can be affecting this administration
 
-节目主持人：
+现在一些激进的意识形态可能会影响这届政府
 
-I just wonder to say you have about 32 second left
+and I think Gordon is right
 
-我不得不告诉你，你还有大约32秒的时间
+所以我认为章家敦是对的
 
-You’ve saying assault of America seems that the stimulate checks are keeping people home
+Joe Biden has to counter that
 
-你指美国被攻击似乎是政府付钱让人们呆在家里
+乔·拜登必须反驳那个
 
-and they won’t getting to the labour force that was what you are saying?
+by making a strong statement that we will defend Taiwan
 
-然后他们不愿意去找工作，这是你想说的吗？
+通过有力的声明，我们将捍卫台湾
 
-Jarjorie:
+and get rid of the ambiguity which worked for a while in the past
 
-玛乔丽
+并摆脱了过去曾有一段时间的战略模糊性
 
-What I am saying that socialism is killing our country
+but China is counting on that ambiguity
 
-我的意思是，社会主义正在扼杀我们的国家
+但是中共国指望这种模棱两可
 
-And it’s here now
+and the weakness of Biden possibly to find an opportunity to invade
 
-现在它就在这里
+拜登的弱点可能会（使中共）找到入侵（台湾）的机会
 
-Come through the fact that all of these shut downs
+and Biden needs to close that door well
 
-从所有这些停业的事实来看
+拜登需要好好关上那扇门
 
-and everything the Democratic they are doing is socialism
+John Bachman
 
-民主党所做的一切都是社会主义
+约翰·巴赫曼
 
-Its government checks paying people and they staying at home
+The effectlessness of the Biden foreign policy here is
 
-政府给人们发工资，让人们呆在家里
+拜登外交政策的无效之处在于
 
-and they don’t want to work
+what I think makes this article interesting to me to your guys’ point
 
-而且他们不想工作
+我认为使这篇文章对我来说很有趣的到你们的观点
 
-The more Democratic policy is destroying our country
+yes this guy comes from a far-left perspective here
 
-民主党推行的刺激政策正在毁掉我们的国家
+是的，这家伙来自极左的观点
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+interesting to your take on it
 
-原视频连接: [https://twitter.com/realamvoice/status/1390031268402790400?s=24](https://twitter.com/realamvoice/status/1390031268402790400?s=24)
+有趣的是你挑战它
 
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场- Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片: 康州盘古农场-银龙
+Fred because that’s sounds you know accurate
+
+弗雷德 ，因为这听起来你很准确
+
+that the left doesn’t care about Taiwan
+
+左派不在乎台湾
+
+they don’t care about the ever present march of communism across the globe here
+
+他们不在乎在全球范围内的不断前进
+
+but one thing Gordon
+
+但是一件事，章家敦
+
+I think might be concerning to the Chinese
+
+我认为可能与中共有关
+
+or at least the way they see this is that you know
+
+或者至少他们看待这件事的方式是，你知道
+
+they don’t know what the Biden foreign policy team is going to do
+
+他们不知道拜登外交政策团队将要做什么
+
+it doesn’t have kind of a strength uh strong moral center
+
+它没有强大的道德中心
+
+they say one thing
+
+他们说一件事
+
+but then they have all the pressure from the other part of their party uh
+
+但后来他们承受了党的另一方的压力
+
+and so how are the Chinese supposed to interpret this?
+
+那么中共应该如何解读这一点呢？
+
+Gorden Chang
+
+章家敦
+
+Yes and that’s really the problem
+
+是的，而且那真是个问题
+
+when the U.S. has been ambiguous in the past in other areas
+
+当美国过去以模棱两可的态度面对其他地区的时候
+
+it hasn’t worked so for
+
+不见得有效果
+
+instance we could have stopped the Korean War before it started
+
+例如我们可以在朝鲜战争开始之前就停止它
+
+by drawing our western defense perimeter across the 38th parallel
+
+通过在38线上绘制我们的西方防御边界
+
+but we didn’t do that
+
+但是我们没有那样做
+
+we could have prevented the gulf war
+
+我们本来可以避免海湾战争
+
+by telling Saddam Hussein that we would defend Kuwait
+
+通过警告萨达姆·侯赛因，我们将捍卫科威特
+
+we didn’t do that
+
+我们没有那样做
+
+and he invaded Kuwait
+
+并且他入侵了科威特
+
+so these are really just lessons from the past
+
+所以这些真的只是过去的教训
+
+and clearly you  know we need to step up and say this
+
+很明显，你知道我们需要加强而且说这个
+
+because if we say this we can avoid a conflict
+
+因为如果我们这样说，我们可以避免冲突
+
+if we don’t say it as Fred talked about
+
+如果我们不说这个，就像弗雷德所说的那样
+
+we could very well end up in a war
+
+我们很可能会陷入战争
+
+John Bachman
+
+约翰·巴赫曼
+
+Right and Xi knows this
+
+是的，而且习近平知道这个
+
+Fred this is the same foreign policy team basically that drew red lines in Syria
+
+弗雷德，这基本上是在叙利亚画红线的相同的外交政策小组
+
+and didn’t follow up on it
+
+并没有跟进它
+
+and that’s the message I mean
+
+而且这就是在传递信息，我的意思
+
+that’s the problem here China can listen to these
+
+这就是问题所在，中共国可以听这些
+
+you know bellicose uh from pronouncements from Tony Blinken
+
+你知道，从托尼·布林肯的宣誓好战
+
+but they don’t buy them
+
+但是他们不买他们的帐
+
+Fred
+
+弗雷德
+
+That’s right look Biden wants business as usual
+
+那是对的，看，拜登想要一如既往下去
+
+he keeps calling China a competitor
+
+他一直称中共国为一个竞争对手
+
+China is an adversary at best maybe an enemy
+
+中共国充其量是一个对手，有可能是一个敌人
+
+Gordon and I could debate that
+
+章家敦和我可以对那个有个辩论
+
+France is a competitor you know in a competition
+
+法国是一个竞争对手，你知道在一个决赛中
+
+you follow the rules you’re trying to get ahead with a fellow player
+
+你遵守规则，你尝试着领先对手
+
+the Chinese want to destroy us
+
+中共想摧毁我们
+
+they want to dominate the world
+
+他们想统治世界
+
+and when we make climate change our top priority
+
+当我们使气候变化成为我们的首要任务时
+
+and when the president gives a speech to congress
+
+而且当总统在国会演讲时
+
+he doesn’t mention the Uyghurs
+
+他没有提到维吾尔族人
+
+he doesn’t mention genocide
+
+他没有提到种族灭绝
+
+and he gives such very soft criticism of the Chinese regime
+
+而且他对中共政权提出了非常温和的批评
+
+he may be giving them a green light to think
+
+他可能给他们开绿灯时他们认为
+
+they could get away with invading Taiwan
+
+他们侵略台湾后还可以逃脱惩罚
+
+and I’m very worried about that
+
+我非常担心这一点
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接  [https://twitter.com/newsmax/status/1390886678554812416?s=21](https://twitter.com/newsmax/status/1390886678554812416?s=21)
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
 发布：康州盘古农场-文韵
 [!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
 康州盘古农场欢迎您加入:(或点击上方图片）
