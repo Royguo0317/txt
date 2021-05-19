@@ -1,23 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国警告：“我们将无法像去年一样享受轻松的夏天”
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1254855/)
+## 【独立观点】佩洛西呼吁，世界各国应联合抵制北京冬奥会
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1255163/)
 
-消息来源：今日欧洲- europa.today.it
-发布时间：2021.05.17
-翻译整理：斩草要除根
+作者：纽约香草山健身部 Ivy001
 
-德国是欧盟唯一一个疫苗接种率超过总人口35％的国家，柏林政府发言人史蒂芬•塞伯特（Steffen Seibert）今天在新闻发布会上宣布消息称：“还没结束，在夏季还不会恢复正常生活”。这位德国高管还公开反对“放松”措施，他说，例如去年采取的措施就导致了秋季的新一波感染。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18150242/media.media_.1f40e381-75ba-4320-9b23-76afde1fd8ab.original1024.jpg)
-塞伯特在与新闻界的会晤中说：“我们还没有达到像去年一样享受轻松夏天的先决条件。” 然而，由安格拉•默克尔（Angela Merkel）领导的政府发言人却将德国感染趋势的最新消息定义为“阳性”。实际上，卫生当局在两天前报告说，每10万居民中的感染率下降到了87.3。与前一周相比，这是一大进步，当时的平均感染人数为每10万居民121.5例。但是，在全国范围内发病率降至每10万居民100例的“心理”阈值以下的这一事实，并不能使柏林赢得胜利。政府认为，目标仍然是“显著”减少感染数量。塞伯特总结说，与冠状病毒的斗争“尚未结束”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18150908/liess-sich-mit-dem-impfstoff.jpg)
-简评：每个人都迫切地想从这场疫情中解脱出来，被压抑的自由似乎都在等着在这个夏天被释放，政府一方面采取限制令为手段，另一方面又担心民众的反抗而不得去不开放。而这一送一紧之间正好是病毒攻击的好时机。
 
-（个人观点）
 
-[链接](https://europa.today.it/attualita/germania-estate-covid-viaggi.html)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193903/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1-2.jpg)
 
-校对/发布：老中医
+
+
+路透社报道，5月18日美国众议院议长南希•佩洛西呼吁，由于中共国在新疆侵犯人权，对维吾尔族和其他新疆原住民实行种族灭绝行为，美国应该通过外交途径抵制2022年北京冬季奥运会。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18200035/Untitled-design-36.png)
+对中共国的种族灭绝行为，南希•佩洛西建议，“世界主要国家不应该保持沉默，提议不要参加北京冬季奥运会。”
+
+民主党议员吉姆•麦戈文则提议说，运动会应该迁址。”如果我们可以为一场大流行疫情将奥运会推迟一年，我们肯定可以为一场种族灭绝将冬奥会推迟一年。这将使国际奥委会有时间搬迁到一个政府没有实施暴行的国家。”
+
+美国立法者对抵制北京冬季奥运会，或者改变举办地的呼声越来越高。
+
+如果2022年冬季奥运会能在北京如期举行，将会是中共国习近平实现了梦想的最有力证明。而且，这也将会证明了他所推行的战狼外交政策和霸权扩张的正确性，接下来他将会更疯狂的侵犯人权，侵略亚太地区周边国家，甚至把他的霸权胁迫推行到全世界。必须有正义联盟站出来对中共国说“不”！
+
+从上周参议院小组通过：美科研人员参与中共国人才计划的资金禁令，到今天众议院提议抵制2022年北京冬奥会。无不显示出，在美国国会山，反共灭共已经成为主流，成为一个政治正确的主题。君不见，就连和中共国勾兑极深的南希•佩洛西都要站出来，提议抵制北京冬奥会了。
+
+世界灭共的呼声越来越高，中共国的末日越来越近了。
+
+图片来源：Reuters
+
+https://www.reuters.com/lifestyle/sports/pelosi-says-us-should-diplomatically-boycott-2022-olympics-china-2021-05-18/
+
+校对/发稿：火内
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
