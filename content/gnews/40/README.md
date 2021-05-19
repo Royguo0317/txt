@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 功能增强型实验不仅仅局限于冠状病毒
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1256748/)
+## 郭文贵：美国将制定数字货币规则，不要再被中共欺骗
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1256869/)
 
-5/17/2021 塞林上校接受班农战斗室采访称人们要明白功能增强型实验不仅仅局限于冠状病毒，其他病毒比如塞卡病毒也在中共国功能增强研究范围内。必须进行调查才能得到我们想知道的答案。
+5/17/2021 郭文贵先生：美国将是数字货币的最终规则制定者。比特币及其同类将消失，喜币将成为未来。不要被中共及其傀儡企业家在其倒台前的花招所欺骗。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
