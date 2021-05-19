@@ -1,32 +1,196 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疫苗对变异病毒有效？初步研究就拿来忽悠
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1255811/)
+## 贾斯汀·李（Justin Li）卡尔顿大学孔子学院所长, 中共代理人在加拿大大学教学
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255968/)
 
-**撰稿：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19021716/58-1-9.jpg)
-法广新闻报道，根据美国科学家所做的最新研究显示，辉瑞（Pfizer）&BNT、莫德纳（Moderna）两款COVID-19疫苗，对最先出现于印度的两种变异病毒仍高度有效。但这类实验室的研究调无法预测实际情况的有效性，因此仍须透过其他研究加以验证。
+字幕内容：
 
-这份由纽约大学葛罗斯曼医学院（NYU Grossman School of Medicine）与纽约大学朗格尼医学中心（NYU Langone Medical Center）进行的实验室研究，尚未刊于同侪审查的期刊上，因此被认为只是初步研究。
+Garnett Genuis
 
-这份研究的资深作者蓝道（Nathaniel “Ned” Landau）告诉法新社：”我们发现疫苗抗体面对变种病毒时会略弱，但也没弱到哪去，因此我们认为疫苗还是很有保护效力。”
+加内特·格努伊斯
 
-蓝道说：“有部分抗体无法有效抵抗这些变种病毒，但还是有很多抗体有效。”不过蓝道指出，由于整体的抗体水平仍比感染原始病毒痊愈者来得高，”既然有效抗体足够，所以我们认为这些疫苗仍有高度防护力”。
+Mr. Li, My colleagues have raised the fact
 
-自从闫博士将科学界的丑闻公之于众之时，我们就要慎重对待这些所谓“科学家”的言论是否对生命负责。病毒和疫苗，这一对本该相生相克的存在，现在却在种种迹象下，都成为了危害人类健康、生命甚至未来的杀手和隐患。对于疫苗所带来的那么多毒副作用和无法获知的安全问题，科学界选择了大多数禁声，有良知的医生或者科学家出来对疫苗发出的警示，也被社交媒体屏蔽，被主流媒体无视，更可能得到来自沼泽地势力的打击。
+李先生，我的同事提出了一个事实
 
-的确，疫苗这块蛋糕太大太诱人，在唯利是图，丧失人伦的今天，没有几个人能放弃其中的利益，更何况，前期研发疫苗投入了巨额的资金，如果不加大普及，这部分损失由谁来承担？这就是“发心”变了，就自动走入一个无底的深渊，只可能离粉身碎骨越来越近，而悬崖勒马的勇气，不是人人都能拥有的。
+that many witnesses have told us
 
-可喜的是，前几天，一则来自印度TGP报的新闻显示，印度政府鼓励伊维素菌和羟氯喹的使用后，印度的COVID病例骤降。在显而易见的数据面前，为什么不采用切实有效的方法，却一再推广未来不可期的疫苗政策，又有多少人要为此而付出沉重的代价，当一切已经不是个人的得失之时，就关系到整个人类的命运，你我都无法逃避。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19021756/59-11.jpg)（图片来自网络）
-再次呼吁全世界有良知的科学家和医生，在有效疫苗无法确认的前提下，谨慎对待疫苗，多推广便宜、高效的药物治疗，共同度过这场“人类之殇”的浩劫。
+许多证人告诉我们
 
-（本文只代表作者观点，与Gnews平台无关。）
+that Confucius institutes are a front for espionage
 
-**新闻来源：**
-[研究：辉瑞莫德纳疫苗对印度变种病毒应有效 (rfi.fr)](https://www.rfi.fr/cn/%E7%BE%8E%E6%B4%B2/20210518-%E7%A0%94%E7%A9%B6-%E8%BE%89%E7%91%9E%E8%8E%AB%E5%BE%B7%E7%BA%B3%E7%96%AB%E8%8B%97%E5%AF%B9%E5%8D%B0%E5%BA%A6%E5%8F%98%E7%A7%8D%E7%97%85%E6%AF%92%E5%BA%94%E6%9C%89%E6%95%88)
+孔子学院是间谍活动的前沿
 
-***校对发布**：文顾*
+you have told us that at least the Confucius Institute at Carleton is not
+
+您已经告诉我们，至少卡尔顿大学的孔子学院不是
+
+but you’ve also been unwilling to contradict the party line on any issues
+
+但您也一直不愿意在任何问题上与党的路线相抵触
+
+such as in response to my questions about human rights abuses with the Dalai Lama
+
+例如回应我有关与达赖喇嘛侵犯人权的问题
+
+this makes me wonder if your employment status would be at risk
+
+这使我想知道你的就业状况是否会受到威胁
+
+if you criticize the Chinese government
+
+如果你批评中共政府
+
+so I want to put this to the test here
+
+所以我想在这来测试一下
+
+Mr. Li, based on your bio
+
+李先生，根据你的简历
+
+you were living in China during the Tiananmen Square massacre in 1989
+
+在1989年天安门广场大屠杀期间你是居住在中国
+
+the Chinese Red Cross estimates
+
+中共红十字会估计
+
+that over 2500 students peacefully protesting were shot in cold blood
+
+有超过2500多名和平抗议的学生被残忍地枪杀
+
+So as someone who today works with students at a university
+
+因此，作为今天与一所大学的学生一起工作的人
+
+do you believe that these figures are accurate
+
+你相信这些数字是准确的吗？
+
+and do you think the Chinese state was wrong
+
+而且你认为中共国家错了吗
+
+to sanction the opening of fire on peaceful protesters
+
+批准向和平示威者开枪
+
+Justin Li
+
+贾斯汀·李
+
+thank you sir and I am the employee Carleton University
+
+谢谢你，先生。而且我是卡尔顿大学的雇员
+
+and I my employment with Carleton
+
+我在卡尔顿的工作
+
+and I don’t think it’s anything to do with China
+
+而且我认为这与中共国无关
+
+Garnett Genuis
+
+加内特·格努伊斯
+
+Mr. Li would you like to respond to my question about the Tiananmen Square massacre
+
+李先生，你想回答我有关天安门大屠杀的问题吗？
+
+Justin Li
+
+贾斯汀·李
+
+Sorry, what’s the question again
+
+抱歉，请再重复一下问题？
+
+Garnett Genuis
+
+加内特·格努伊斯
+
+In 1989, over 2500 student protesters were massacred In Cold Blood
+
+在1989年，超过2500名学生抗议者被残忍地屠杀
+
+as someone who works with students
+
+作为和学生一起工作的人
+
+do you believe that those figures are accurate as reported by the Chinese Red Cross
+
+您是否相信这些被中共红十字会报告的数字是准确无误的？
+
+and you believe the Chinese state was wrong
+
+而且你认为中共政府是错的
+
+to sanction the opening of fire on peaceful protesters
+
+批准向和平示威者开枪
+
+Justin Li
+
+贾斯汀·李
+
+I don’t have this expertise and knowledge to validate the number of that incident
+
+我对这方面不熟悉和没有足够的专业知识来验证该事件的数字
+
+Garnett Genuis
+
+加内特·格努伊斯
+
+you were living in China at the time
+
+你当时生活在中共国
+
+Mr. Li,  do you believe that it was wrong
+
+李先生你认为那是错的吗
+
+for the Chinese government to sanction the opening of fire on Peaceful protesters in Tiananmen Square
+
+中共政府批准向天安门广场的和平示威者开火
+
+Justin Li
+
+贾斯汀·李
+
+I was in China, I was in Beijing
+
+我当时在中国，我当时在北京
+
+and my friends and then none of my acquaintances have been that victims so far
+
+和我的朋友们，到目前为止，我的相识们都不是那些受害者
+
+This is a, this is a unfortunate event, of cause
+
+当然，它是，它是一个不幸的事件
+
+Thank you
+
+谢谢
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 https://twitter.com/canaditude/status/1389575134785253378?s=21
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

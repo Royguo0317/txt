@@ -1,58 +1,148 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共蓄意带风向，暗指美军已秘密进驻台湾是在为何铺垫
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1255750/)
+## 保险公司专家评估功能增强实验的风险，他们不喜欢他们看到的情况
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255913/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19013951/%E6%93%B7%E5%8F%96519-0.jpg)
-作者：台湾宝岛农场快慢机
+字幕内容：
 
-**中共大外宣扑风捉影，寻得社交媒体上的一则讯息，借此暗指美军已秘密进驻台湾。 **
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19013958/%E6%93%B7%E5%8F%96519-1.jpg)
-近日，中共大陆多家媒体，相继在网路上陆续刊文，引用一则台军士兵私人的社交媒体讯息，借此暗指美国陆军相关人员，或已秘密进驻台湾！如此蓄意带动风向，难道是在为「双龙计划」的武统台湾做铺垫？
+Gain-of-Function Research International Workshop 2012
 
-眼下刚刚进入五月半数有余，月初，台湾本岛接连出现两例，来自中共大陆福建方向的，单人偷渡闯关事件。
+2012年功能增强国际研讨会
 
-5月11日，台军于东南空域，首都完成了美制AIM-120型增程中距空空导弹的试射行动。
+Man（one）
 
-次日的5月13号，6架台空军的F-16型单座版战机，从驻训的美国路克空军基地起飞返台，顺利抵达台湾莲花基地。
+男士一：
 
-然而，48小时后的5月15号，台湾内便突然激增，”中共病毒”感染确诊井喷式爆发险情。这一切难道仅仅都是巧合么？
+The second question just was very bravely：
 
-**5月11日，空军于台东南方向空域，首都完成了F-16V改进型战机，挂载美制AIM-120型增程中距空空导弹的试射行动。 **
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19014005/%E6%93%B7%E5%8F%96519-2.jpg)
-11日清晨05：35左右，空军的4架改进型F-16V双座版战机，各自挂载2枚美制AIM-120增程型中距空空导弹，及2枚美制短程响尾蛇导弹，从嘉义空军基地起飞升空后，极速飞抵台东南方向预定空域，随即编队中的1、3号机各向预定目标，发射了一枚AIM-120型导弹，两枚飞弹均精准命中靶机。
+第二个问题非常大胆：
 
-**6架空军驻美F-16战机，于5月13日历经10余个小时航程，中途相继接受3次美军空中加油补给，安全返回台湾莲花基地。 **
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19014018/%E6%93%B7%E5%8F%96519-3.jpg)
-5月13日下午，6架机号分别为6604、6605、6606、6607、6608以及6621的F-16A型单座版台空战机，从此前驻训的美国亚利桑那州的路克空军基地起飞，历经10余小时的航程，中途相继接受了美军3次的空中加油补给后，系数安全飞抵台湾莲花基地。据悉，后续将还有10余架该型战机，以此方式分批从驻训的美军路克基地起飞返台。
+“Has anybody thought about the legal ramifications of this,
 
-**48小时后的5月15日，台湾本土内便诡异激增了”中共病毒”的感染确诊病例，这一波井喷式疫情骤然爆发的时间节点，与台军方面的军事动作竟如此之吻合。势必为「中共单方面蓄意投毒」而无疑！ **
+“有没有人想过这件事的法律后果
 
-中共官媒此前不止一次吹嘘，但凡美军驻台之时，便是中共武统台湾之刻。中共武力侵袭台湾之心随从未放下，但毕竟有所忌惮美军强大的战力存在而有所迟疑。
+if anything did ever happen
 
-但这一切，自2020年中共开始大规模启动对全球的「生化病毒武器超限战」之后，便不在成为中共的困扰。常规的军事打击选项，已经被「生化武器式的超限战」所代替。
+如果真的发生了什么事
 
-中共的歹毒用心，妄想兵不血刃的令宝岛台湾屈服于”中共病毒”的淫威之下，趁机瓦解台湾民众的抵抗之意。为其后续即将展开的武统行动，消减阻力而铺垫。
+what’s kind of legal exposition for scientists or funders
 
-为台湾的同胞们祈祷！
+如果我们创造的新病毒被传播出去
 
-此文仅代表笔者个人观点！
+if new virus we created had get out
 
-新闻连结：[汪滨：美国安全部队援助旅进驻台湾是严重挑衅行为！](https://www.163.com/dy/article/GABCHVF10537PFKD.html?f=post2020_dy_recommends)
+对人类造成了巨大的经济损失
 
-[传台军驻美F-16战机返台进行性能提升，台空军避谈\_快讯](http://www.taiwan.cn/taiwan/jsxw/202105/t20210514_12352153.htm)
+did cost the substantial economic in human harm?”
 
-[台媒曝光：台空军为试射美制中程导弹“振奋”，岛内网友：这时疫苗比较重要吧](https://www.163.com/dy/article/G9QSJDCI0514R9OJ.html)
+对科学家或资助者有什么法律论述？
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+Thank you
 
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+谢谢。
 
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+Host:
 
-文章审核：zhong
+主持人：
 
-文章发布：Little Liu
+Peter Halar with the Foundation for Vaccine Research in Washington
+
+彼得·哈勒(Peter Halar)，华盛顿疫苗研究基金会(Foundation For Vaccine Research)。
+
+Peter Halar
+
+彼得·哈勒(Peter Halar)
+
+We feel that the issue of liability that insufficient attention
+
+我们觉得责任问题没有引起足够的重视
+
+has been given to the issue of liability
+
+这一点已经涉及到责任问题
+
+The organizer of the Sigma conference 35 years ago
+
+35年前西格玛会议的组织者
+
+made sure that were lawyers participating in that meeting
+
+确保当时有法律顾问参加那次会议
+
+Which let you know regardless of recovery technology
+
+无论采用何种恢复技术，都能让您知道
+
+There is another community that I think should be involved
+
+我认为还有另一个社群应该参与进来
+
+We think should be involved to that is insurance companies
+
+我们认为应该牵让保险公司加入进来
+
+The insurer don’t like what they are seeing and
+
+保险公司不会喜欢他们所看到的
+
+they don’t like what this is going
+
+他们不喜欢正在进行的事情
+
+in particularly
+
+尤其是
+
+the largest insurance companies that we reinsure
+
+我们再保险的公司是最大的保险公司
+
+Other insurance companies that experts on risk assessment
+
+其他保险公司的风险评估专家
+
+and they don’t like what they see
+
+他们不喜欢他们所看到的
+
+we understand that in the secret meeting in London at Lloyd’s of the reinsurers
+
+我们了解这是在伦敦劳合社举行的再保险公司秘密会议上的内容
+
+How we are going to reinsure
+
+我们怎样才能再保险呢？
+
+even with the most stringent bio safety rules and procedures ?
+
+即使有最严格的生物安全规则和程序？
+
+How on earth we are going to reinsure to reinsure ?
+
+我们究竟要如何再保险才能再保险呢？
+
+How we are going to reinsure insurance companies ?
+
+我们将如何为保险公司提供再保险？
+
+we’ve seen premium going up already
+
+我们已经看到保费上涨了
+
+How we are going to reassure this is safe ?
+
+我们如何才能保证这是安全的呢？
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频连接: [https://twitter.com/functiongain/status/1389152242360623106?s=24](https://twitter.com/functiongain/status/1389152242360623106?s=24)
+
+英听校:康州盘古农场-WZ
+翻译: 康州盘古农场-WZ
+翻译终校: 康州盘古农场- Mike Li
+字幕+视频制作:康州盘古农场-天涯行
+审片: 康州盘古农场-银龙
+发布：康州盘古农场-文韵
 
 0

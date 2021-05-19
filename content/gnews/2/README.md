@@ -1,140 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 巴西总统雅伊尔·博索纳罗将Covid19大流行病与“生物战”联系起来
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1256025/)
+## 台湾全境疫情警戒升至三级
+` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1256095/)
 
-字幕內容：
+#### 撰稿：yyshere（News Express）
+校对：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19051136/rfi-2.jpg)图片来源：RFI
+台湾福利部疾病管制属当地时间19号公告，当天新增COVID-19（CCP病毒）本土感染确诊病例267例，另有8例境外输入病例。本土病例中，男性127例，女性140例，年龄介于未满5岁的儿童和80多岁的老人。病例已出现在了疫情最为集中的新北市和台北市之外的多个县市，目前仍有49个病例感染源未明。
 
-Who set the ball rolling this time? this leader Jair Bolsonaro, the president of Brazil,
+台湾疫情中央流行疫情指挥中心表示，为应对目前国内持续的COVID-19（CCP病毒）本土疫情，即日起到5月28号，提升全国疫情警戒至第三级，提请民众持续遵循配合现行三级警戒管制措施，与政府共同努力，严守社区防线。
 
-这次是谁掀起的风浪？是这位领导人,巴西总统贾伊尔·博尔索纳罗
+在各项防疫要求当中，指挥中心强调，疫情热点地区要增加检测站，再次要求地方政府对有症状感染者开设绿色通道，也再次要求地方政府必须在第一时间，即确诊后6小时内（深夜时间除外) ，将确诊患者依据症状分级，并送至集中隔离检疫所或医疗机构救治。
 
-with his political future on a sticky wicket, he has suddenly come to realize that the
+指挥中心还特别提出，警戒升级期间需驳斥错误不实讯息。指挥中心要求各地方政府每天参与全国防疫会议，会议后将增开一场记者会，由指挥中心副指挥澄清错误和不实信息。
 
-在他的政治前途岌岌可危的情况下，他突然意识到，这种病毒实际上
+此外指挥中心强调，目前尚无升级到警戒四级的必要。
 
-virus is in fact quite lethal. That it could be part of a biological war.
+从CCP新冠病毒疫情2020年全球蔓延以来，台湾一直以优秀的防疫成绩被世界公认为防疫模范生。这次疫情突然爆发并持续蔓延，新一轮疫情的源头引发外界关注和猜测。
 
-是相当致命的。它可能是一场生物战争的一部分。
+消息来源： 台湾CDC
 
-Does he have proof? he says his military does, you must listen to this.
-
-他有证据吗？他说他的军队有，请您恭听。
-
-It’s a new virus, nobody knows if it was born in a lab or because the human eats
-
-这是一种新的病毒，没有人知道它是否诞生于实验室，还是因为人类吃了
-
-some animal they shouldn’t have. But it’s dead and the military knows all about
-
-一些他们不应该吃的动物（而感染的）。但这已经有定论了
-
-this chemical biological and radiological warfare.
-
-我们军方已经对这场化学生物和放射性战争有所掌握
-
-could we be fighting a new war? I guess. which country’s GDP has grown the most?
-
-我们会不会是正在打一场新的战争？我想是的。在全球大疫情的当下，哪个国家的国内生产总值增长最多？
-
-I’m not going to tell you.
-
-我不会去告诉您
-
-Needless to say China won’t be happy, but Bolsonaro just said is nothing new though,
-
-不用说，中共不会高兴，但博尔索纳罗刚刚说的并不新鲜
-
-time and again we’ve heard similar theories the virus is not natural, it was made in
-
-我们一次又一次地听到类似的理论，病毒不是天然的，它是在实验室里研制的
-
-lab, it’s a bio weapon,
-
-是一种生物武器
-
-what was the virus leaked, at the onset of the pandemic there were numerous reports
-
-说什么病毒泄露，在大流行开始时，有许多关于
-
-on how the virus accidentally escaped from the Wuhan Institute of Biology.
-
-病毒如何意外地从武汉生物研究所泄漏的报道
-
-The WHO team which traveled to China to probe its origins, could find no such proof.
-
-前往中共国探究该病毒来源的世卫组织小组无法找到这样的证据
-
-But then again it could be because they did not go there in time or they went under
-
-但重申，它有可能是因为世卫生组织没有及时去到那里，或者是在中共的
-
-strict supervision of the Chinese and they also went in January this year,
-
-严格监督下做的调查。他们是在今年1月去的
-
-about thirteen months after the virus was first reported and they came back with
-
-在该病毒首次被报告后约13个月才去调查，他们带回来的
-
-more questions than answers.
-
-问题比答案多
-
-Now in its report the WHO team said there were many corona viruses at the institute,
-
-现在世卫组织小组在其报告中说，在武汉研究所里有许多冠状病毒
-
-But SARS COVID-2 what we call the wuhan virus was not among them and hence
-
-但是SARS COVID-2，也就是我们所说的武汉病毒并不在其中
-
-the leak hypothesis was extremely unlikely.
-
-因此病毒泄漏假说就具极其不可能性
-
-But the WHO director general Dr. Tedross has said that he does not believe that his
-
-但非常有趣的是，世卫组织总干事谭德赛博士说，他认为他的团队
-
-team’s assessment of the lab leak possibility was tensive enough which is very interesting.
-
-对实验室泄漏可能性的评估不够深入
-
-so he called for a deeper probe into the lab theory, this was on the 31th of March this year.
-
-所以他呼吁对实验室理论进行更深入的调查，这是今年3月31日的事情
-
-today is the sixth of May, and the WHO is still evaluating how to move forward with its probe.
-
-今天是5月6日，世界卫生组织仍在评估如何推进其调查
-
-so Mr. Bolsonaro can do two things.
-
-所以博尔索纳罗先生可以有两个选择
-
-either make his military show us the proof, or wait for the WHO to travel back all
-
-要么让他的军队向我们展示证据，要么等待世卫组织重回到
-
-the way to China which we doubt, will solve this mystery at all.
-
-中国调查，而我们怀疑此举能否会有任何机会将这个谜团解开
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接: [https://twitter.com/raheemkassam/status/1348463264326365187?s=21](https://twitter.com/raheemkassam/status/1348463264326365187?s=21)
-
-英听校： 康州盘古农场 – Mike Li
-翻译： 康州盘古农场 – Mike Li
-翻译终校：康州盘古农场 – 郭班之樱
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+（本文系作者个人观点）
 
 0

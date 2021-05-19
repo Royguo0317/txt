@@ -1,89 +1,140 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 武毒所誓言“不折不扣”贯彻落实党的部署
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1255952/)
+## 巴西总统雅伊尔·博索纳罗将Covid19大流行病与“生物战”联系起来
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1256025/)
 
-新闻来源：《国家脉动 (National Pulse)》| 作者：NATALIE WINTERS | 发布时间：2021年5月17日
-翻译/简评：wmorpho | 校对/审核：万人往 | Page：Daoiii
+字幕內容：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yH09V2XbsQbcX/images/d2bb3673-f112-440d-bcbe-9d2c6315e5d0.jpg?asset_id=687cedee-5476-425f-bcf3-bfb4210eeaff&amp;img_etag=%22992c9cc0e62862b40d91b9d1088b4b2b%22&amp;size=1024)](https://spark.adobe.com/page/yH09V2XbsQbcX/images/d2bb3673-f112-440d-bcbe-9d2c6315e5d0.jpg?asset_id=687cedee-5476-425f-bcf3-bfb4210eeaff&amp;img_etag=%22992c9cc0e62862b40d91b9d1088b4b2b%22&amp;size=1024)
+Who set the ball rolling this time? this leader Jair Bolsonaro, the president of Brazil,
 
-**简评：**
+这次是谁掀起的风浪？是这位领导人,巴西总统贾伊尔·博尔索纳罗
 
-**由美国国立卫生研究院的福奇资助的武汉病毒研究所，不仅设有中共党支部，还设有统一战线小组。据美中安全与经济评论委员会称，该统战小组旨在“找出并消除反对中共统治政策和权威的潜在根源”和“影响外国政府和其他要员采取支持中共偏爱的政策立场和行为”。一份新闻稿显示，由福奇博士的国家过敏和传染病研究所资助的武汉研究人员石正丽，获得了中共的奖励和资助。武汉实验室的网站炫耀地说：“教育部发出通知，宣布武汉病毒学研究所的石正丽教授荣获国务院2014年政府特殊津贴。不仅如此，她还被冠与湖北省有突出贡献的中青年专家的称号。”武汉病毒研究所指出，该奖项由中共国务院颁发，表明了中央政府（对石正丽）的关心和支持。一篇被删除的文章显示，武汉病毒研究所鼓励研究人员“充分意识到党员责任的重要性”和“努力做好本职工作并履行党员应尽的责任”。其他新闻稿显示，武汉病毒学研究所领导干部举办活动，认真学习贯彻习近平新时代中国特色社会主义思想。**
+with his political future on a sticky wicket, he has suddenly come to realize that the
 
-**如此种种不难想象中共病毒的爆发是不可避免的，因为武毒所存在的目的和意义是为中国共产党服务，是为集权的习近平服务，是为中共所谓的“伟大的民族复兴”服务。武毒所不仅生产生物武器病毒，还强化共产主义思想病毒，并用“功能增强”的共产主义思想病毒毒害和绑架武毒所科学家们的思想，从而让这些被思想毒害的科学家们生产出“功能增强”的冠状病毒来祸害全世界，以达到中共控制和统治全球的邪恶目的。世界要想解除中共病毒的威胁，必须铲除中共这个操控人类思想的恶魔，让科学家们解除毒害他们思想的中共魔咒，明辨是非，自动抵制反人类的驱动，进而呼应我们英雄科学家闫丽梦博士对病毒本源的揭露，并找出根治病毒的有效方法，让世界重现平和与光明。**
+在他的政治前途岌岌可危的情况下，他突然意识到，这种病毒实际上
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yH09V2XbsQbcX/images/f0cd15bc-d516-4fc7-b630-041811fd46cd.jpg?asset_id=0462da69-a09e-4189-b42c-717916fa97c7&amp;img_etag=%221ccdd4b9c4554d6a7b9349f916408cf2%22&amp;size=1024)](https://spark.adobe.com/page/yH09V2XbsQbcX/images/f0cd15bc-d516-4fc7-b630-041811fd46cd.jpg?asset_id=0462da69-a09e-4189-b42c-717916fa97c7&amp;img_etag=%221ccdd4b9c4554d6a7b9349f916408cf2%22&amp;size=1024)
+virus is in fact quite lethal. That it could be part of a biological war.
 
-**原文翻译：**
+是相当致命的。它可能是一场生物战争的一部分。
 
-#### 独家：福奇武汉实验室的朋友们举行了主题为“不折不扣”的共产主义研讨会
+Does he have proof? he says his military does, you must listen to this.
 
-**武汉病毒学研究所删除了几篇文章，被删除的文章揭示了武毒所与中国共产党的深厚渊源，其中包括在共产主义研讨会期间因其加强“党性”方面所作出的努力和承诺“不折不扣”地实现党的目标而获得当权者的奖励。**
+他有证据吗？他说他的军队有，请您恭听。
 
-一个中文版的网站显示（武汉）实验室有几个**中共党组织机构，包括党委、纪律检查委员会和共青团。**
+It’s a new virus, nobody knows if it was born in a lab or because the human eats
 
-该实验室的“党建与科学文化”页面还揭示了**“统一战线小组”**的存在，据美中安全与经济评论委员会称，该“统一战线小组”旨在“找出并消除反对中国共产党统治政策和权威的潜在根源”和“影响外国政府和其他要员采取支持中共偏爱的政策立场和行为”。
+这是一种新的病毒，没有人知道它是否诞生于实验室，还是因为人类吃了
 
-该实验室还让统一战线小组的官员参与有关传染病的专题座谈会。
+some animal they shouldn’t have. But it’s dead and the military knows all about
 
-**消失了**
+一些他们不应该吃的动物（而感染的）。但这已经有定论了
 
-一份新闻稿显示，由安东尼·福奇博士的国家过敏和传染病研究所（NIAID）资助的几项研究中列出的武汉研究人员石正丽，获得了中国共产党的奖励和资助。
+this chemical biological and radiological warfare.
 
-该实验室的网站炫耀地说：“教育部发出通知，宣布武汉病毒学研究所的石正丽教授荣获国务院2014年政府特殊津贴。不仅如此，她还被冠与湖北省有突出贡献的中青年专家的称号。”武汉病毒研究所指出，该奖项由（中共）国务院颁发，“表明了中央政府（对石正丽）的关心和支持”。
+我们军方已经对这场化学生物和放射性战争有所掌握
 
-已被删除的2013年的帖子还显示，该实验室设有“管理层党支部”，该支部还获得了湖北省直机关工委“先进基层党组织”的奖项。
+could we be fighting a new war? I guess. which country’s GDP has grown the most?
 
-（武汉）实验室吹虚说：“通过创建学习型党组织，并积极组织各种党支部活动，确保武汉病毒研究所成功地实施了‘创新2020’和‘一个定位、三个重大突破和五个重点培育方向’的发展计划。”
+我们会不会是正在打一场新的战争？我想是的。在全球大疫情的当下，哪个国家的国内生产总值增长最多？
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yH09V2XbsQbcX/images/f987111a-0bd0-4f51-b9ff-cefc31cfdc47.png?asset_id=18c3d182-92ad-4def-abbb-9e452da24658&amp;img_etag=%226666d394438c3c1dfd6c321225f77c92%22&amp;size=2560)](https://spark.adobe.com/page/yH09V2XbsQbcX/images/f987111a-0bd0-4f51-b9ff-cefc31cfdc47.png?asset_id=18c3d182-92ad-4def-abbb-9e452da24658&amp;img_etag=%226666d394438c3c1dfd6c321225f77c92%22&amp;size=1024)武汉实验室演讲
+I’m not going to tell you.
 
-该帖子还显示，该小组举行例行会议以提高“党性”和“政治意识”，包括诸如“迎接中国共产党第十八次全国代表大会”之类的活动：
+我不会去告诉您
 
-*“在政治理论教育方面，第一个贡献是机构管理支部对其成员进行政治理论和管理能力教育的承诺。通过定期召开民主生活专题会议，对党员进行党性教育和培训，有效地加深了党员的政治意识和理论认识。第二个贡献是组织了一系列的‘迎接中国共产党第十八次全国代表大会’的活动，为‘一三五’规划提供了理论基础。”*
+Needless to say China won’t be happy, but Bolsonaro just said is nothing new though,
 
-另一篇被删除的文章则鼓励研究人员“充分意识到党员责任的重要性”和“努力做好本职工作并履行中国共产党党员应尽的责任”。
+不用说，中共不会高兴，但博尔索纳罗刚刚说的并不新鲜
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yH09V2XbsQbcX/images/121e1711-a479-464d-86d0-792dc3762b61.png?asset_id=8b27c156-f4aa-4fbd-8a95-c06278122e4c&amp;img_etag=%22d3056b1b5be4dfc0b4c9568496d74920%22&amp;size=2560)](https://spark.adobe.com/page/yH09V2XbsQbcX/images/121e1711-a479-464d-86d0-792dc3762b61.png?asset_id=8b27c156-f4aa-4fbd-8a95-c06278122e4c&amp;img_etag=%22d3056b1b5be4dfc0b4c9568496d74920%22&amp;size=1024)武汉实验室（党委）活动
+time and again we’ve heard similar theories the virus is not natural, it was made in
 
-根据另一条被删除的帖子，该实验室还举行了150人的会议，以“纪念”中国共产党成立纪念日，包括向“杰出成员”颁奖和为新党员举行入党宣誓仪式：
+我们一次又一次地听到类似的理论，病毒不是天然的，它是在实验室里研制的
 
-*（2013年） 6月28日上午，武汉病毒研究所在学术礼堂举行了一次会议，以纪念中国共产党成立92周年。研究所的150多名中共委员参加了会议。武汉病毒研究所党委书记袁志明主持了会议。*
+lab, it’s a bio weapon,
 
-*会议开始奏国歌。在会议上，新入党的9名党员举起右手，在党旗前宣誓。*
+是一种生物武器
 
-*随后，武汉病毒研究所党委副书记余平凡宣布了“授予先进党支部、劳动模范和优秀党员的决定”。在热情的掌声中，袁志明书记和余平凡副书记向先进党支部、劳动模范和优秀党员颁发了荣誉证书。*
+what was the virus leaked, at the onset of the pandemic there were numerous reports
 
-**“不折不扣”。**
+说什么病毒泄露，在大流行开始时，有许多关于
 
-该实验室的中文网站有数十篇文章着重介绍了实验室的“党建”活动。该实验室经常举办有关习近平思想的研讨会，并指出研究人员必须“不折不扣地贯彻落实党的部署”：
+on how the virus accidentally escaped from the Wuhan Institute of Biology.
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yH09V2XbsQbcX/images/de71d242-70ef-43ad-90f4-f57df5062ffa.jpg?asset_id=3fac33d9-8b2c-41f2-81bd-f9a33a93814e&amp;img_etag=%222c06282dea8a702321ce434b78dc4379%22&amp;size=1024)](https://spark.adobe.com/page/yH09V2XbsQbcX/images/de71d242-70ef-43ad-90f4-f57df5062ffa.jpg?asset_id=3fac33d9-8b2c-41f2-81bd-f9a33a93814e&amp;img_etag=%222c06282dea8a702321ce434b78dc4379%22&amp;size=1024)
+病毒如何意外地从武汉生物研究所泄漏的报道
 
-*“在会议上，党委副书记、纪委书记何长才着重强调了坚持和加强党的全面领导、完善和发展我国的国家制度和治理体系，并坚持《习近平关于国家治理问题（第三卷）》中以人为本的三个部分。他强调，坚持党的领导，就要牢固树立“四个意识”，增强“四个自信”，坚决实现“两个保障”。各级党组织和全体党员必须在政治、思想和行动上与党中央保持一致，并不折不扣地贯彻落实党的部署。”*
+The WHO team which traveled to China to probe its origins, could find no such proof.
 
-直到2021年1月，科学家们甚至还参加了“学习和实践”中国共产党五年计划的会议，还讨论了如何“在危机中培育机会”：
+前往中共国探究该病毒来源的世卫组织小组无法找到这样的证据
 
-*“与会者围绕第十九届中央委员会第五次全体会议的精神和该研究所的发展计划的主题进行了热烈的讨论。他们交流了学习经验，并从学科布局、人才队伍建设、科教融合、国际合作、成果转移等方面对学院的未来发展提出了建议性的意见。肖庚富在讲话中指出，首先，我们必须以国家使命为指导，树立全球视野，牢记中华民族伟大复兴和史无前例的世界世纪大变革的整体策略。第二是在危机中培育机会，在变化中开启新局面。”*
+But then again it could be because they did not go there in time or they went under
 
-其他新闻稿显示，“武汉病毒学研究所领导干部”举办活动“认真学习贯彻习近平新时代中国特色社会主义思想”：
+但重申，它有可能是因为世卫生组织没有及时去到那里，或者是在中共的
 
-*“根据院党组和分院分党组关于召开2020年党员领导干部民主生活会的有关要求，武汉病毒所领导班子和党员领导干部聚焦‘认真学习贯彻习近平新时代中国特色社会主义思想，加强政治建设，提高政治能力，坚守人民情怀，夺取决胜全面建成小康社会、实现第一个百年奋斗目标的伟大胜利，开启全面建设社会主义现代化国家新征程’主题，深入学习习近平新时代中国特色社会主义思想、党的十九届五中全会精神和习近平总书记系列重要讲话精神，并根据要求，认真开展会前准备工作。”*
+strict supervision of the Chinese and they also went in January this year,
 
-🔗[原文链接](https://thenationalpulse.com/exclusive/wuhan-lab-scrubs-ccp-awards-ties/)
+严格监督下做的调查。他们是在今年1月去的
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+about thirteen months after the virus was first reported and they came back with
 
+在该病毒首次被报告后约13个月才去调查，他们带回来的
 
-编辑：【英国伦敦喜庄园编辑部】
+more questions than answers.
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yH09V2XbsQbcX/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/yH09V2XbsQbcX/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+问题比答案多
 
+Now in its report the WHO team said there were many corona viruses at the institute,
 
+现在世卫组织小组在其报告中说，在武汉研究所里有许多冠状病毒
+
+But SARS COVID-2 what we call the wuhan virus was not among them and hence
+
+但是SARS COVID-2，也就是我们所说的武汉病毒并不在其中
+
+the leak hypothesis was extremely unlikely.
+
+因此病毒泄漏假说就具极其不可能性
+
+But the WHO director general Dr. Tedross has said that he does not believe that his
+
+但非常有趣的是，世卫组织总干事谭德赛博士说，他认为他的团队
+
+team’s assessment of the lab leak possibility was tensive enough which is very interesting.
+
+对实验室泄漏可能性的评估不够深入
+
+so he called for a deeper probe into the lab theory, this was on the 31th of March this year.
+
+所以他呼吁对实验室理论进行更深入的调查，这是今年3月31日的事情
+
+today is the sixth of May, and the WHO is still evaluating how to move forward with its probe.
+
+今天是5月6日，世界卫生组织仍在评估如何推进其调查
+
+so Mr. Bolsonaro can do two things.
+
+所以博尔索纳罗先生可以有两个选择
+
+either make his military show us the proof, or wait for the WHO to travel back all
+
+要么让他的军队向我们展示证据，要么等待世卫组织重回到
+
+the way to China which we doubt, will solve this mystery at all.
+
+中国调查，而我们怀疑此举能否会有任何机会将这个谜团解开
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接: [https://twitter.com/raheemkassam/status/1348463264326365187?s=21](https://twitter.com/raheemkassam/status/1348463264326365187?s=21)
+
+英听校： 康州盘古农场 – Mike Li
+翻译： 康州盘古农场 – Mike Li
+翻译终校：康州盘古农场 – 郭班之樱
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

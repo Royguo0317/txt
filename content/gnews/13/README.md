@@ -1,148 +1,166 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 保险公司专家评估功能增强实验的风险，他们不喜欢他们看到的情况
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255913/)
+## 哈佛大学系主任查尔斯·利伯（Charles Lieber）被捕，被控隐瞒与中共国的关系
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255994/)
 
 字幕内容：
 
-Gain-of-Function Research International Workshop 2012
+Andrew Lelling (US Attorney)
 
-2012年功能增强国际研讨会
+安德鲁·莱林（美国律师）
 
-Man（one）
+We are here today to announce three separate cases,
 
-男士一：
+我们今天在这里宣布三个单独的案件
 
-The second question just was very bravely：
+highlighting the ongoing threat posed by Chinese economic espionage
 
-第二个问题非常大胆：
+强调中共国经济间谍活动所构成的持续威胁
 
-“Has anybody thought about the legal ramifications of this,
+and research theft in the United States
 
-“有没有人想过这件事的法律后果
+和在美国研究盗窃
 
-if anything did ever happen
+Nichole Berlie (Reporter)
 
-如果真的发生了什么事
+妮可·伯利（记者）
 
-what’s kind of legal exposition for scientists or funders
+Federal investigators at Lexington home of 60-year-old Dr. Charles Lieber today
 
-如果我们创造的新病毒被传播出去
+联邦调查人员今天出现在60岁的查尔斯·利伯在列克星敦的家
 
-if new virus we created had get out
+moments after his arrest at his Harvard office.
 
-对人类造成了巨大的经济损失
+在这不久前，他在他的哈佛办公室被捕
 
-did cost the substantial economic in human harm?”
+Andrew Leling
 
-对科学家或资助者有什么法律论述？
+安德鲁·莱林
 
-Thank you
+The complaint alleges that Dr. Lieber signed a contract with Chinese university of Wuhan,
 
-谢谢。
+申诉称利伯博士与中共国武汉大学签署了一项合同
 
-Host:
+and was paid up to $50,000 per month plus up to $158,000 in living expenses.
 
-主持人：
+他每月获得高达$ 50,000的报酬，另加高达$ 158,000的生活费
 
-Peter Halar with the Foundation for Vaccine Research in Washington
+Nichole Berlie (Reporter)
 
-彼得·哈勒(Peter Halar)，华盛顿疫苗研究基金会(Foundation For Vaccine Research)。
+妮可·伯利（记者）
 
-Peter Halar
+The chair of Harvard chemistry department
 
-彼得·哈勒(Peter Halar)
+哈佛化学系系主任
 
-We feel that the issue of liability that insufficient attention
+He also allegedly received more than $1.5 million to set up a research lab in China,
 
-我们觉得责任问题没有引起足够的重视
+据称，他还获得了超过150万美元的资助，用于在中共国建立研究实验室，
 
-has been given to the issue of liability
+all while working at Harvard
 
-这一点已经涉及到责任问题
+同时一直在哈佛工作
 
-The organizer of the Sigma conference 35 years ago
+and receiving multiple research grants from the U. S. Department of defense
 
-35年前西格玛会议的组织者
+and national institutes of health.
 
-made sure that were lawyers participating in that meeting
+并获得美国国防部和国立卫生研究院的多项研究资助
 
-确保当时有法律顾问参加那次会议
+Also charge today, two Chinese nationals
 
-Which let you know regardless of recovery technology
+今天还起诉了两名中共国籍的公民
 
-无论采用何种恢复技术，都能让您知道
+29-year-old, Yanqing Ye,
 
-There is another community that I think should be involved
+29岁的叶颜清（音译）
 
-我认为还有另一个社群应该参与进来
+who worked as a scientific researcher at Boston University.
 
-We think should be involved to that is insurance companies
+她曾在波士顿大学担任科学研究员
 
-我们认为应该牵让保险公司加入进来
+Andrew Leling
 
-The insurer don’t like what they are seeing and
+安德鲁·莱林
 
-保险公司不会喜欢他们所看到的
+Who failed to mention on her visa application
 
-they don’t like what this is going
+在她的签证申请时隐瞒了
 
-他们不喜欢正在进行的事情
+she is also a lieutenant with the People’s Liberation Army.
 
-in particularly
+她还是中国人民解放军的中尉
 
-尤其是
+Nichole Berlie
 
-the largest insurance companies that we reinsure
+妮可·伯利
 
-我们再保险的公司是最大的保险公司
+30-year-old Zaosong Zheng worked on cancer research at Beth Israel Deaconess Medical Center
 
-Other insurance companies that experts on risk assessment
+30岁的郑灶松（音译）在哈佛大学附属贝丝以色列医疗中心从事癌症研究
 
-其他保险公司的风险评估专家
+Andrew Leling
 
-and they don’t like what they see
+安德鲁·莱林
 
-他们不喜欢他们所看到的
+For trying to smuggle vials of biological material out of United States to China
 
-we understand that in the secret meeting in London at Lloyd’s of the reinsurers
+试图将小瓶生物材料从美国走私到中共国
 
-我们了解这是在伦敦劳合社举行的再保险公司秘密会议上的内容
+and lying about it for federal investigators.
 
-How we are going to reinsure
+并且对联邦调查员撒谎
 
-我们怎样才能再保险呢？
+Nichole Berlie
 
-even with the most stringent bio safety rules and procedures ?
+妮可·伯利
 
-即使有最严格的生物安全规则和程序？
+Now Lieber is due back in court Thursday.
 
-How on earth we are going to reinsure to reinsure ?
+现在，利伯应于周四回到法院
 
-我们究竟要如何再保险才能再保险呢？
+He is currently behind bars and could face five years in prison if convicted.
 
-How we are going to reinsure insurance companies ?
+他目前在监狱里，如果罪名成立，将面临五年监禁
 
-我们将如何为保险公司提供再保险？
+And Harvard does tell me
 
-we’ve seen premium going up already
+而且哈佛确实告诉我
 
-我们已经看到保费上涨了
+he is current on paid administrative leave.
 
-How we are going to reassure this is safe ?
+他目前正在休带薪行政假
 
-我们如何才能保证这是安全的呢？
+In the meantime, Harvard, Beth Israel deaconess medical center
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+同时，哈佛大学，哈佛大学附属贝丝以色列医疗中心
 
-原视频连接: [https://twitter.com/functiongain/status/1389152242360623106?s=24](https://twitter.com/functiongain/status/1389152242360623106?s=24)
+and BU are all cooperating with authorities.
 
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场- Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片: 康州盘古农场-银龙
+和波士顿大学都在与当局合作
+
+Reporting live at south Boston
+
+在波士顿南部现场报道
+
+Nichole Berlie WCVB news center 5
+
+妮可·伯利，WCVB，新闻中心5
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接  [https://twitter.com/kin20200604/status/1390525787040714755?s=24](https://twitter.com/kin20200604/status/1390525787040714755?s=24)
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
 发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

@@ -1,208 +1,300 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国出现了一场劳工危机，这是对美国小企业的攻击，社会主义正在扼杀我们的国家，人们担心荒谬的刺激措施。”
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255979/)
+## 疫苗公司拥有的数据显示，在停止Covid上存在零差异，但可能导致疯牛病
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1256045/)
 
 字幕内容：
 
-Marjorie Taylor Greene
+Steve Bannon
 
-Congresswoman for Georgia’s 14th CD
+史蒂夫·班农
 
-玛乔丽·泰勒·格林
+But hang on a second
 
-佐治亚州第14届CD的女众议员
+但是，等一下
 
-This is absolutely the issue that should be raining the new cycle and set up gossip
+They say you see on mainstream media
 
-这绝对是应该新一轮的引发流言蜚语的问题
+他们说，主流媒体上说
 
-And stupid story of about royal, which is none of us care about
+96% what effective 96% efficacy, 98% hang on today,
 
-这是我们谁都不关心的关于忠诚的愚蠢故事
+96%的有效性，96%的功效，98%，等一下，今天
 
-This is assault of American small businesses that we have paying people stay home for over a year now
+I think Willie Geist @msnbc
 
-这是对美国小企业的攻击，我们付钱让人待在家里都一年多了
+我认为在msnbc的威利·盖斯特（Willie Geist）
 
-this is ridiculous stimulus checks and these hard lined
+we started the show with they have breaking news
 
-这是荒谬的刺激计划，而这些强硬的措施
+我们以他们的突发新闻开始了节目
 
-our government impost shut downs
+he comes in and I think he’s reading some this
 
-我们的政府强制推行的停业措施
+他进来了，我想他正在读一些这样的东西
 
-has hurt business so badly in cross borders
+as the ones you know the 6 clots per 7 million
 
-已经严重损害了所有的商业活动
+作为那些，你知道，每700万人接种疫苗者有6名患血栓
 
-Not just small businesses, it’s businesses, it’s schools, it’s everyone
+still means it’s 99.99% effective
 
-不只损害了小企业，其他的企业、学校、每个人
+还是意味着它是99.99%的有效的
 
-They can’t hire anyone,
+so what say you to that
 
-他们不能雇佣任何人
+所以那你怎么说？
 
-no one wants to show up for a job interview
+Dr. Richard Fleming
 
-没人想去参加求职面试
+理查德·弗莱明医生
 
-and no one wants to take a job
+right, so as vaccine efficacy
 
-而且没有人愿意出去工作
+对，关于疫苗的有效率
 
-and so what I ’ve been talking to a business is in my district
+is determined exactly opposite of what you think it is
 
-所以我和我辖区的企业交谈过
+的定义与你认为的完全相反
 
-but also all over the country, restaurants that have been to close down and stop serving dinner
+it is how many people came down with covid in the vaccine group
 
-而且在全国范围内，餐馆已经被迫停业，停止供应晚餐
+是在疫苗组中有多少人下来感染了Covid
 
-Only be able to serve lunch
+over how many people came down with covid in the non-vaccine group
 
-只能供应午餐
+对在非疫苗组中有多少人下来感染了Covid
 
-Because they cannot find people to work
+and that’s called the risk ratio
 
-因为他们找不到人工作
+这就是所谓的风险比率
 
-A restaurant set up being open for 50 years
+and you take 1 – the risk ratio
 
-一家开业50年的餐厅
+而你承担1-风险比率
 
-Such as one here in Dalton my district
+and that give you vaccine efficacy that would be like me coming
 
-就在我这个区的道尔顿市
+并给你疫苗效用，就像我来
 
-They had to shut the doors 3 to 4 days a week
+and telling you Steve I want you to take this drug
 
-他们一周要关门3到4天
+告诉你，史蒂夫，我要你服用这种药
 
-Because they don’t have enough people to come to work
+because it’s going to fail only this amount of time
 
-因为他们没有足够的人来上班
+因为它只会在这段时间内失败
 
-Even the schools, schools can’t hire bus drivers
+but if you ask the question
 
-即使是学校，也雇不到校车司机
+但是如果你问这个问题
 
-They can’t hire cafeteria workers
+which is does this vaccine prevent people from coming down with covid-19
 
-他们雇不到食堂工作人员
+这是什么疫苗可以防止人们患上covid-19
 
-They can’t hire janitors
+and you take their data
 
-雇不到清洁工
+并且你分析他们的数据
 
-It goes all the way cross the Boards
+and you run their numbers which is in that slide that I sent over
 
-每个校区都是这样
+你运行他们的数字，也就是我发过去的那张幻灯片
 
-It’s hurting everyone, it’s hurting economic recovery
+it shows that even though you think there’s a difference
 
-它伤害每个人，伤害经济复苏
+它显示即使你认为有差异
 
-It’s hurting economic growth,
+that’s why we do statistical analysis
 
-它正在伤害经济增长
+这就是为什么我们进行统计分析的原因
 
-Bu it’s very much killing these small business
+it shows that there isn’t too different
 
-这会扼杀这些小企业
+它表明没有太大的不同
 
-They have already in door entire year shut downs
+it’s just random chance
 
-他们已经关门一整年了
+它只是随机的机会
 
-And yet, guess what?
+there is no scientific evidence in the EOA (exclusive operating area) document
 
-然而，你猜怎么着？
+专属作业区 (EOA）文档中没有科学证据
 
-their rent stays the same
+unless remember these are still experimental vaccines
 
-他们的房租保持不变
+除非记住这些仍然是实验性疫苗
 
-their power bill stays the same, their cost of operations, vender supplies
+they have not been FDA approved
 
-他们的电费保持不变，他们的运营成本和供应商原材料。
+他们尚未获得食品和药物管理局的批准
 
-food for the supplies all they need to run the business,
+and people are not signing informed consent on these experimental drugs
 
-一切运营所需的食物，原材料成本
+而且人们并未在这些实验药物上签署知情同意书
 
-all about remains the same
+and both Pfizer, Moderna quit recruiting for their experimental protocols
 
-一切成本都保持不变
+并且辉瑞（Pfizer）和摩德纳（Moderna）都放弃了实验方案招募
 
-yet they can’t employ people to do the actual work
+on or around the 20th of January
 
-然而，他们雇不到人来干活
+在大约1月20日前后
 
-They borrow from revenue to sustain their companies
+and at that point in time they didn’t need to
 
-他们借来的收入维持公司的存在
+在那个时候，他们已经不需要了
 
-Host:
+because they were being rolled out
 
-节目主持人：
+因为他们已经获批准
 
-I just wonder to say you have about 32 second left
+and they didn’t need to recruit anybody
 
-我不得不告诉你，你还有大约32秒的时间
+他们不需要招募任何人
 
-You’ve saying assault of America seems that the stimulate checks are keeping people home
+because everybody listening to your program
 
-你指美国被攻击似乎是政府付钱让人们呆在家里
+因为每个在听你节目的人
 
-and they won’t getting to the labour force that was what you are saying?
+and everybody not listen to your program is
 
-然后他们不愿意去找工作，这是你想说的吗？
+和每个不听你的节目的人是
 
-Jarjorie:
+either in the experimental or the control group of the study
 
-玛乔丽
+在研究的实验组或对照组中
 
-What I am saying that socialism is killing our country
+so they don’t need to keep recruiting people
 
-我的意思是，社会主义正在扼杀我们的国家
+所以他们不需要继续招募任何人
 
-And it’s here now
+the numbers themselves show the vaccines
 
-现在它就在这里
+数字本身显示疫苗
 
-Come through the fact that all of these shut downs
+do not make no difference in the number of people
 
-从所有这些停业的事实来看
+对接种与否的人群感染COVID
 
-and everything the Democratic they are doing is socialism
+that will come down with covid-19
 
-民主党所做的一切都是社会主义
+的概率没有区别
 
-Its government checks paying people and they staying at home
+what we know is that we’re seeing risk popping up across the board
 
-政府给人们发工资，让人们呆在家里
+我们所知道的是，我们看到了疫苗全面出现的风险
 
-and they don’t want to work
+and they’re all inflammatory and blood clotting
 
-而且他们不想工作
+他们都是发炎和凝血的病例
 
-The more Democratic policy is destroying our country
+and it’s affecting not just the people with comorbidities
 
-民主党推行的刺激政策正在毁掉我们的国家
+它并不仅影响合并症患者
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+it’s affecting the people that normally
 
-原视频连接: [https://twitter.com/realamvoice/status/1390031268402790400?s=24](https://twitter.com/realamvoice/status/1390031268402790400?s=24)
+也会正常的影响人们
 
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场- Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片: 康州盘古农场-银龙
+now we’re healthy and they’re being overwhelmed
+
+然而没有打疫苗的我们很健康而他们却出了问题
+
+and because their immune systems work
+
+而且因为他们的免疫系统起作用
+
+they’re making antibodies to these vaccines
+
+他们正在为这些疫苗制造抗体
+
+unless remember two things
+
+但他们要记住两件事情
+
+first of the spike protein is not naturally occurring
+
+首先突刺蛋白的不是天然存在的
+
+it is gain of function it is causing the blood-brain barrier
+
+它是功能增强实验的产物，它可以产生心脑血拴
+
+and we know in the animal models of the spike protein
+
+而且我们在动物模型中知道了刺突蛋白
+
+we know that in the humanized mice
+
+我们知道那个在人源化的老鼠中
+
+they develop spongiform encephalopathy
+
+他们发展成海绵状脑病
+
+which is for the general public mad cow disease
+
+大众了解这个病毒的俗称是疯牛病
+
+we also know that in the rhesus macaque models
+
+我们也知道在恒河猴模型中
+
+that about 2 weeks afterwards
+
+那是大约两周后
+
+they develop Lewy bodies in the brain
+
+他们在大脑中发育了路易体
+
+and inflammation and Lewy bodies
+
+和炎症和路易体
+
+or what cause Alzheimer’s and a number of neurologic disorders
+
+或导致老年痴呆症和许多神经系统疾病的原因
+
+and those numbers translate into about a year-and-a-half for human beings to see the same consequences
+
+这些数字将使人类在大约一年半看到同样的后果
+
+so no statistically significant benefit from the EOA document
+
+因此，从专属作业区文件中没有任何统计上的重大收益
+
+that are posted not mine, the company’s
+
+这些是公开的，不是我的，是那些公司的
+
+inflammation and blood clotting occurring with it Lewy bodies， mad cow disease
+
+发生路易体的炎症和血液凝结，疯牛病
+
+and nothing that suggests the benefit
+
+没有什么好处
+
+It’s experimental drug that people aren’t finding informed consent for
+
+这是一种实验性药物，人们没有得到知情同意书
+
+and you’re part of the control or experimental group
+
+而你只是对照组或实验组的一部分
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接  [https://rumble.com/vfmufz-vaccine-companies-own-data-shows-zero-difference-in-stopping-covid-but-may-.html](https://rumble.com/vfmufz-vaccine-companies-own-data-shows-zero-difference-in-stopping-covid-but-may-.html)
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
 发布：康州盘古农场-文韵
 [!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
 康州盘古农场欢迎您加入:(或点击上方图片）

@@ -1,38 +1,164 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 鱼跃龍門：战友寄语新中国联邦一周年
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1255657/)
+## 朱利安·阿桑奇(Julian Assange)说：“我们生活在一个‘媒体政治’时代，政治上可能的事情由媒体环境决定。”
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255751/)
 
-telegram三群的战友们想必多数在墙内，兴奋者少，焦虑者多。Discord农场群给大家提供指导，以确保不落下任何一位觉醒开智的宝贵战友。
+字幕内容：
 
-VPN穿过防火墙，我每天神游真假两个世界。微信里的朋友们即使身居海外，有兴趣探究真相的人也很少，更不要说从世界看中国的交流之可能。真假善恶已被他们的对与错取代了。或者说只有符合自己利益的立场正确才是重要的。
+Julian Assange
 
-病毒真相，因理智与情感上的双重顾虑，也就随他去吧。sars不就混过来了么？墙内顾头不顾腚地开启了风景这边独好模式，顺便幸灾乐祸。以毒灭共，唯有自外而内。这也更显闫丽梦博士之可贵。
+阿桑奇：
 
-以毒灭共是显性的，去毒也必然伴随着滅愚。以钱滅共是隐性的，虚拟的，自内而外，釜底抽薪。匡扶正义，重归正道，没钱不行。这是文贵先生的大智慧与大慈悲。
+Noam Chomsky, in ‘The Common Good’
 
-KYC的过程就像鲤鱼跃龙门。进入喜马拉雅之门，意味着爆料革命战友与中共国之间的经济脱钩，更意味着以钱滅共的行为是正义的选择，与信仰的重建。虽然还未过关，我已颇有去年六四前后捐款法治基金时的感觉。
+诺姆·乔姆斯基(Noam Chomsky)，“共同利益”
 
-看到配额的时候，七哥直播说CCP已经法理死亡。待我护照通过汇款成功之时，我愿凭这姗姗来迟的一根稻草的力量，压垮CCP直至物理消亡。
-草根成材做栋梁，群鱼跃进化龍族。
+wrote that “ the smart way to keep
 
-致敬郭文贵先生致敬闫丽梦博士致敬路德社军团致敬联盟委员会致敬爆料革命全球战友礼敬新中国联邦六四國庆吉祥
+写道：“让人们保持
 
-拆墙建筑师 战友2021.05.13
+people passive and obedient is to
 
-发稿：奇门遁甲
+被动和顺从的聪明方法是
 
-**更多资讯，更多关注**
+strictly limit the spectrum of
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+严格限制
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+acceptable opinion but to allow a very
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+可接受意见的范围，但允许在非常
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+lively debate within a narrow section of
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+狭小的范围内进行激烈
+
+that spectrum.”
+
+的辩论。”
+
+We live in a ‘Mediaocracy’,
+
+我们生活在一个“媒体政体”中
+
+what is politically possible
+
+什么在政治上是可能的？
+
+is defined by the media environment.
+
+是由媒体环境定义的
+
+I started Wikileaks because I understood
+
+我创办维基解密是因为我明白
+
+this reality, the media frame defines the
+
+这一现实，媒体框架定义
+
+political possibility.
+
+政治可能性
+
+So to bring about meaningful change
+
+所以要带来有意义的改变
+
+We have to enlarge the media frame.
+
+我们必须把媒体画面放大
+
+With Wikileaks we’ve had
+
+有了维基解密，我们就能
+
+significant successes in achieving this
+
+在一些领域实现这一目标上取得重大成功
+
+in some areas, but more needs to be done.
+
+但还需要做更多的工作
+
+The single greatest contributor to our
+
+我们最伟大的贡献者来
+
+expanding horizons is you.
+
+开阔我们眼界的是你
+
+You telling your friends what’s up,
+
+你告诉你的朋友们发生了什么事
+
+what you saw, what you believe,
+
+你看到的，你相信的
+
+and who’s full of it.
+
+以及那些满嘴胡言乱语的人
+
+Contrasting what appears in the
+
+对比显示在
+
+Australian press to itself and to the world.
+
+澳大利亚媒体对其自己和世界都是如此
+
+You form part from the largest
+
+你们是最大的组成部分
+
+bullshit detecting machine the world has
+
+世界上有一台废话探测机
+
+ever seen.
+
+从未见过的
+
+That’s why Wikileaks has such support
+
+这就是为什么维基解密从暴露在互联网上的人
+
+from people exposed to the Internet
+
+那里得到如此的支持
+
+that’s why we have such support from this generation
+
+也就是我们得到这一代人如此多的支持的原因
+
+because you’re better informed.
+
+因为你们消息灵通
+
+This is the best educated
+
+这是受过最好教育的
+
+generation in the history of the world.
+
+世界历史上最伟大的一代
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频连接: [https://twitter.com/disclosetv/status/1389179026372243459?s=24](https://twitter.com/disclosetv/status/1389179026372243459?s=24)4
+
+英听校:康州盘古农场-WZ
+翻译: 康州盘古农场-WZ
+翻译终校: 康州盘古农场- Mike Li
+字幕+视频制作:康州盘古农场-天涯行
+审片: 康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

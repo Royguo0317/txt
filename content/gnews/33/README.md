@@ -1,45 +1,204 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 陈平谈生物战3在生物战合作程度上结成不同伙伴关系
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1255632/)
+## 新冠肺炎在印度的数字激增：“我们已经看到又一天有超过3,000人死亡。”
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255721/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19000209/%E6%8D%95%E8%8E%B7_%E5%89%AF%E6%9C%AC-3.png)
-据[**眉山论剑陈平**](https://weibo.com/6616523296?refer_flag=1001030103_) [2020年12月10日 19:25](https://weibo.com/6616523296/JxQvL6N22?refer_flag=1001030103_) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+字幕内容：
 
-【*陈平*：推行全民医保的同时，我们要警惕*生物战*风险】我看了跟我同一场演讲的李玲老师的发言。我完全支持她，要推行社会主义的全民医保的方案。但在这同时，我们也要警惕*生物战*的危险。
+Neha Poonia
 
-在美国主导的全球化实际上已经瓦解的大环境下，我们必须要明辨谁是我们的敌人，谁是我们的朋友，谁是中立甚至是可以争取的。绝对不能像我们国内有些“朋友”那样，在美国要实行霸权主义，欧盟要实行区域保护主义的时候，却让中国单方面开放金融，单方面开放*生物*资源，这实在是太天真了。[#答案年终秀#](https://s.weibo.com/weibo?q=%23%E7%AD%94%E6%A1%88%E5%B9%B4%E7%BB%88%E7%A7%80%23) [#v光计划#](https://s.weibo.com/weibo?q=%23v%E5%85%89%E8%AE%A1%E5%88%92%23) [L眉山论剑*陈平*的微博视频](http://t.cn/A6qyjWj5) [收起全文d](void%280%29;)
+尼哈·普尼亚(Neha Poonia)
 
-陈平在视频中提到：
+We have seen slit deep in the affection in the report in the last
 
-［我听了我们同一场李玲老师的发言，李玲老师是我在北京大学国家发展研究院的同事和战友，她是志愿军战士的女儿，所以抗西方霸权主义打击的能力是无可动摇的，我完全支持她要推行社会主义的全民医保方案，但是我要提醒她的是，她的理想主义和马克思差不多，完全忽视了我前面警告的生物战的危险。
+在周日的过去24小时里，我们看到这份报告中的数字被深深地撕裂了
 
-生物战的资源是什么？就是大量的不同民族的基因的、血清的数据，所以我们国内现在高调地空讲大数据、信息时代、5G，完全没有看懂美国人为什么如此防备华为，为什么如此防备中国网络战和信息战的能力，因为网络和公共卫生不是一个人类命运的免费的共同体，它同时也是生物战、信息战的战场，美国还包括法国，这两个国家是最有能力发动生物战的。
+24 hours on Sunday India record about 390,000 cases on Monday that number dipping
 
-你只要查一下，全世界哪些国家没有签署防止生物武器的条约，非常奇怪的，就有一些非洲和太平洋上的小国没有签署，为什么？ 一定是他们的宗主国美国和法国在他们那里设立了生物战的实验室，秘密进行生物武器的研究，同时利用和各国的医学合作的机会广泛地采集世界所有民族他们的基因和血液的样本，这个数据就是生物战的核武器。
+因为监测到的数字刚刚下降到36万例, 却在周一录得
 
-而中国是世界上生物物种最丰富的国家之一，但是完全没有生物战的安全观念，不但放手让西方国家也让日本和韩国收集中国的不但是人的生物资源也收集植物的、野生动物的生物资源，一旦处于战争状况之下，谁掌握这些数据库、谁掌握这些资源，完全可以不需要发动核战争和热战，就靠释放病毒选择性地如果能够攻击某一个族群的基因，这个战争就结束了。
+just monitoring over 360,000.
 
-现在中国越援助美国和西方抗疫的物资和器材，美国和西方越加惊恐中国有能力控制西方的生命线，不但不会保持和中国产业链的联系，只会加重他们和中国在关键的军用品、卫生品和信息产品还有金融上面脱钩。
+大约39万例病例
 
-因为一旦处于全球危机的竞争的状态，他们的命脉如果掌握在中国人手里，他们就会认为自己死无葬身之地，反过来对中国也是一样的，所以中国越讨好美国和西欧，他们越不领情，说中国这个是要间接地控制西方的生命线，同时还要政治上来瓦解西方人对他们自己的制度的自信心。
+We’ve seen more than 3,000 deaths for another day running.
 
-我的结论很简单，美国国防部、美国两党的参议员、众议员都认识到和中国的金融、医疗还有网络分不开的这么一个产业的关系是严重威胁美国、欧盟、英国、日本包括澳大利亚、新西兰他们的国家安全，只是他们有多大的能力、有多快的速度能和中国脱钩，这要取决于他们本国的状况，但是他们在这几个领域里面和中国脱钩是必然的、是坚定的，我们不能抱有幻想。
+我们已经连续一天看到3000多人死亡
 
-反过来我们自己先要想明白，在美国主导的全球化已经实际上瓦解、难以为继、列强争霸的情况底下，谁是我们的敌人、谁是我们的盟友，谁是可以争取和中立的人，然后分别和他们结成不同亲密程度的伙伴关系。
+But most expertise are cautioning against any kind of optimism.
 
-我讲的伙伴关系不是自由贸易的伙伴关系，而是在信息、在医疗、在生物战上合作的程度，一定要有所区分，把原来中国外交语言虚的什么战略伙伴、什么铁杆哥们全部都要量化，量化到什么程度？量化到哪些生物信息是可以共享的，哪些生物信息是要有条件地对等，我给清单，绝对不能像我们国内有些朋友那样美国要实行霸权主义，欧洲要实行区域保护主义，中国单方面实现共产主义、单方面金融开放、单方面生物战开放，我认为这实在是太天真了。
+但大多数专家都告诫不要持任何形式的乐观态度
 
-知彼知己，胸怀天下，我请我的朋友们重新思考这一次特朗普贸易战和拜登险胜特朗普以后美国和世界将会面临的更加对立、分裂和动荡的世界，然后呢，我再三强调要学毛泽东的智慧，从最坏处着眼往最好处努力，我们不能在战略上藐视敌人的同时在战术上轻视敌人，我们面临的是一个正在衰败的对手，但是这个衰败的对手他们是狼，是狼的民族，是海盗民族，我觉得这一次特朗普打贸易战惊醒了少数做芯片的核心产业的企业，但是到现在为止我认为还没有惊醒我们搞经济学、搞政治学、搞新闻学、搞法律学的朋友，请大家深思，知彼知己胸怀天下，我休息一下。］
+Warning this does not represent the full picture of the outbreak in the country.
 
-在这一段视频中，复旦大学中国研究院高级研究员陈平继续为生物战出谋画策——
+他们警告说，这并不代表该国疫情的全貌
 
-在美国主导的全球化已经实际上瓦解、难以为继、列强争霸的情况底下，分清谁是我们的敌人、谁是我们的盟友，谁是可以争取和中立的人，然后分别和他们结成不同亲密程度的伙伴关系。这种伙伴关系意味着：在信息、在医疗、在生物战上合作的程度一定要有所区分，要对中国外交上那些虚的战略伙伴等进行量化，量化到哪些生物信息可以共享，哪些生物信息要有条件地对待。
+For weeks now, it’s really difficult to get self adjusted if you have symptoms of Covid-19
 
-我最后的问题就是：以打倒美国为己任的陈平放任自己的女儿在美国成家立业、在美国安家置产，然后陈平自己不远万里不辞辛劳在美国和自己的女儿及家人在一起生活，他是在为打倒美国后占领美国提前做准备吗？
+几个星期以来，如果你有新冠肺炎的症状，真的很难自我调整
 
-（文章内容仅代表作者个人观点）
+and most expertise are warning that because of that many people who are sick,
+
+大多数专家警告说，由于有这么多人生病，
+
+nothing reflected in this numbers
+
+这些数字并没有反映出来
+
+and it’s quietly like India about 5-6 times larger than official numbers represent.
+
+很有可能是印度官方公布数据的5-6倍
+
+Reporter:
+
+记者问:
+
+What’s been the reaction to the travel ban? That’s been set in place by the Biden’s administration
+
+对旅行禁令有何反应？拜登政府已经制定好了方案
+
+Neha Poonia:
+
+尼哈·普尼娅(Neha Poonia)：
+
+But that’s not been really surprising, because the US is not the first country
+
+但这并不令人惊讶，因为美国并不是第一个
+
+to impost travel restriction to and from India.
+
+对往返印度实施旅行限制的国家
+
+We’ve seen over the last few weeks, several countries do this, including Canada,
+
+在过去的几周里，我们看到有几个国家这样做，包括加拿大、
+
+Hong Kong, Australia, Israel,
+
+香港、澳大利亚、以色列
+
+as well as many other countries in Europe, as well including UK
+
+以及包括英国在内的许多其他欧洲国家
+
+and this has been disappointed, because as many Indians travel frequently to US.
+
+这令人失望，因为许多印度人经常往返美国
+
+We’re hoping to leave the country, many tours, because of the surging cases,
+
+我们希望离开这个国家，很多旅客，因为病例激增，
+
+because access to the medial care here has been so very difficult.
+
+因为获得这里的医疗服务已经非常困难
+
+Flights of international carrier area at India are booked out in the end of May
+
+印度区域的国际航空公司的航班到5月底已经被预订一空
+
+But many of those people were planning to leave the country now,
+
+但这些人中的许多人现在计划离开这个国家
+
+are not going to be able to do that,
+
+但他们不能这样做，
+
+they are also concerns that this is mightily to some sort of a stigma against Indians,
+
+他们还担心这很可能是对印度人受到屈辱对待
+
+because of variant B6 and 71 has been identified here.
+
+因为变异毒株B6和71已经在这里被鉴定出来。
+
+It’s believed to be highly transmissible and highly efficacious.
+
+人们认为它具有很强的传染性和高效性
+
+But Indian government is not yet linking the current surge to this variant.
+
+但印度政府还没有将目前的激增与这一变异体联系起来
+
+Reporter:
+
+记者问:
+
+Final question for you, Neha. Have we seen any surge of relieve effort being
+
+最后一个问题，尼哈。我们有没有看到美国向印度
+
+sent by the US to assist in India?
+
+提供大量的救援解困工作?
+
+Neha Poonia:
+
+尼哈·普尼娅(Neha Poonia)：
+
+We have seen several shipments arriving at India.
+
+我们已经看到几批货物抵达印度
+
+The latest reach in India at early hours of Monday morning.
+
+最新消息,周一凌晨到达印度
+
+There’ve been thousand ventilators and as well as essential drugs like Remdesivir,
+
+已经有上千个呼吸机和像瑞德西韦这样的重要药物，
+
+which comes from the United States, it has been aid that India desperately needs,
+
+来自美国，都是印度迫切需要的援助，
+
+but there happened concerns about what the India government is doing with these aids.
+
+但人们对印度政府如何处理这些援助感到担忧
+
+It’s understood a lot of shipments has not yet reach to hospitals desperately need it
+
+据了解，很多货物还没有被送到急需它的医院。
+
+Here in Delhi, I can tell you that for 2 weeks running we have seen
+
+在德里，我可以告诉你，我们已经连续两周看到人们
+
+the desperately scrumbled for beds and medical oxygen
+
+拼命地寻找床位和医用氧气
+
+And many are asking why this oxygen concentrators, these oxygen cylinders,
+
+很多人都在问，为什么这些氧气浓缩器、这些氧气瓶
+
+essential drugs are not reach to hospitals
+
+基本药物不能送到医院呢？
+
+who are struggling to cop with these massive numbers
+
+他们正在努力应对如此庞大的数字
+
+many of them who are must turning patient away
+
+他们中的许多人必须把病人拒之门外
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频连接: [https://twitter.com/newsmax/status/1389243350277001220?s=24](https://twitter.com/newsmax/status/1389243350277001220?s=24)
+
+英听校:康州盘古农场-WZ
+翻译: 康州盘古农场-WZ
+翻译终校: 康州盘古农场- Mike Li
+字幕+视频制作:康州盘古农场-天涯行
+审片: 康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

@@ -1,55 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 情报委员会副主席就病毒溯源给拜登的公开信
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1255601/)
+## 佩罗西呼吁外交抵制北京冬奥会 但却主张允许运动员个人参赛
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1255713/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+【日本东京方舟农场】撰稿：青衣    素材采编：武汉老温    校对：文小律
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18234507/N-3.jpg)thenewcivilrightsmovement.com
-昨天（5月17日）笔者发文，报道了众议院情报委员会副主席德文·努内斯（Devin Nunes）就中共病毒溯源、追责问题发表了致拜登的公开信【1】，今天看到了公开信的原稿，将其翻译供战友分享。
+据《国会山报》5月18日报道，美国众议院议长佩洛西（Nancy Pelosi）周二在国会听证会上呼吁美国和世界各国领导人，对定于明年在北京举行的冬季奥运会进行外交抵制，以抗议中共对维吾尔人的种族灭绝行为。佩洛西批评中共国侵犯人权，并表示全球领导人如果参加北京冬奥会，将失去道德权威。
 
-尊敬的总统先生：
+近期，美国国会议员对抵制2022北京冬奥会或要求改变比赛地的呼声越来越高。此前，参议员米特·罗姆尼（Mitt Romney）和蒂姆·凯恩（Tim Kaine）已经提出立法，禁止政府花费任何资金向北京派遣代表团。这项提案已经被作为修正案，加入到本周参议院审议的一揽子反共立法中，也就是参议院外交关系委员会4月21日通过的《2021年战略竞争法》(Strategic Competition Act of2021)。
 
-作为我们正在进行的、有关中共国威胁美国经济和国家安全的监督调查的一部分，众议院情报常设特别委员会的共和党成员正在调查首次在武汉报道的中共病毒（COVID-19）疫情的起源，我们写信请求你们启动整个政府工作，以确定病毒的起源，并指示联邦机构和部门检查所有可能的情况，作为此类调查的一部分。
+周二，佩洛西在兰托斯人权委员会(Tom Lantos Human Rights Commission)的听证会上表示支持罗姆尼和凯恩的提案。她主张美国不派官方代表团参加奥运会，但允许运动员在2022年去北京参赛。她补充说，“我们不要通过让国家元首到中（共）国的这种方式，来表示对运动员的支持。当运动员们回到本国，我们可以向他们展示更多的尊重和崇拜。”
 
-在我们正在进行的调查过程中，我们已经确定了大量的间接证据，支持实验室泄漏可能是中共病毒起源的理论，彻底调查这种可能性至关重要，特别是鉴于中共国政府阻挠多国生物法调查和销毁重要证据（的行径）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19012917/A1DB69BF-328C-4260-9A48-33D4EC4BCB15.jpeg)
 
-一位政府高级官员证实了我们的发现，中共病毒的来源可能是实验室泄漏的结果。今年4月，国家情报总监解释说，“中共病毒要么是人类与受感染动物接触后自然产生的，要么是武汉一家实验室发生事故的结果。”然而，目前尚不清楚情报部门或美国政府的任何其他部门是否在寻求确定真相。
+佩洛西表示，美国已经认定中共对维吾尔人的行为是种族灭绝，如果不对中共的镇压行动进行反击，可能会导致中共进一步的侵权行为。她警告说，派遣一个官方代表团可能会削弱美国对全球各地侵犯人权行为发出警报的努力。佩洛西还指出，“在一场种族灭绝正在发生的情况下，如果各国元首仍然选择访华出席这场赛事，这不禁让人想问：你们还有谴责世上任何地方人权纪录的道德权威吗？”
 
-我们同意国务卿安东尼·布林肯（Antony Blinken）的评估，他最近说，中共病毒的起源很重要，“因为我们需要了解发生了什么，我们要有最好的机会防止它再次发生，并确保我们能够建立一个更加强大的全球卫生安全体系，确保我们能够预防、发现和减轻未来的流行病。这一切，必须从了解到底发生了什么开始。”
+佩洛西的上述这番讲话是在关于美国明年是否参加冬奥会的辩论会上发表的。有一些议员认为美国根本就不应该派运动员参赛，而佩洛西的这番话显然是主张采取不那么激烈的措施，也就是说，美国可以派出运动员参赛，但不会派出任何官方代表团参加开幕式或闭幕式。
 
-此外，我想提请大家注意，美国政府的资金直接或间接地支持武汉病毒研究所（WIV）危险的军民两用科学研究，我们的调查结果虽然不完整，但表明美国支持了这项工作，尽管有明显证据表明中共军方参与了武汉病毒研究所。至关重要的是，您的政府必须审查这一问题，并确保在美国政府考虑与外国对手就未来合作研究军民两用项目，随时都能进行适当的威胁评估，这可能需要审查与这些决定有关的机构间的程序。
+近几个月来，美国、英国、加拿大等多国议会陆续认定中共在新疆犯下了“种族灭绝罪”，这也让外界对于西方国家联合抵制北京冬奥会的期待越来越高。
 
-总之，我请求您的政府支持努力查明中共病毒的来源，并敦促您审查与资助危险的军民两用研究有关的机构间的进程，特别是在与外国敌对国家进行合作研究时。
+世界多个人权组织也在周一发表联署声明，呼吁国际社会对北京冬奥会进行全面抵制。声明称，中共国政府正对维吾尔人进行种族灭绝，在新疆、西藏和内蒙古发动了前所未有的人权打压，并且还对香港民主全面开战。因此，参与这届冬奥会等同于为中共国的侵犯人权行为背书。
 
-随函附上给国家情报总监的一封信，其中包括许多悬而未决的问题，我的共和党同事和我希望您认可，了解真相是至关重要的，我们随时准备与您的政府合作解决这些问题。
+国际人权组织“人权观察”中国部主任索菲·理查森(Sophie Richardson)在周二的听证会上表示，“美国议员应与来自其他国家志同道合的议员联手应对北京冬奥会等与中（共）国相关的议题。不少国家的议员都在讨论非常相似的事情，我认为这样的协调行动能够促使各国政府在支持人权方面采取更强硬的措施。”
 
-德文·努内斯（签名）
+美国上一次做出抵制奥运会决定的是卡特总统，当时美国抵制参加1980年在莫斯科举办的夏季奥运会，而目前拜登政府的态度是希望与盟国共同制定参加北京冬奥会的方式。
 
-相关链接：
+虽然今日各大媒体都在转发并正面评论佩罗西的这番讲话，但笔者却不太认同。佩罗西现在无法否认中共犯下的种族灭绝罪和反人类罪，但却在抵制北京冬奥会上变相来了一个折中态度，似乎看上去是要阻止国会做出完全抵制奥运会的举动。笔者想问的是：除了人权问题，病毒问题呢？难道美国就不考虑吗？难道美国和其他国家就不顾运动员的健康和安全，让他们去参加放毒毒害全世界的中共举办的奥运会？道德和正义，不仅要在各国领导人身上表现出来，也是每个运动员、每个人需要遵循的做人底线。
 
-【1】https://gnews.org/zh-hans/1251395/
+注：本文仅代表作者观点
 
-【2】https://assets.documentcloud.org/documents/20709271/20210516\_rm-ltr-to-president-biden\_re-covid-19.pdf
+参考链接：
 
-文字整理：
+1. [https://twitter.com/Reuters/status/1394723231131652097](https://twitter.com/Reuters/status/1394723231131652097)
+2. [https://www.aboluowang.com/2021/0519/1594796.html?utm\_source=dlvr.it&utm\_medium=twitter](https://www.aboluowang.com/2021/0519/1594796.html?utm_source=dlvr.it&amp;utm_medium=twitter)
 
-Dear Mr. President:
-
-As part of our ongoing oversight investigation related to Chinese threats to U.S. economic and national security, Republican Members of the House Permanent Select Committee on Intelligence are investigating the origins of the COVID-19 pandemic, which was first reported in Wuhan, China in 2019. We write to request that you initiate a whole-of-government effort to identify the origins of the virus and to direct federal agencies and departments to examine all plausible scenarios as part of such investigation.
-
-During the course of our investigation, which is ongoing, we have identified substantial circumstantial evidence supporting the theory that a laboratory leak could have been responsible for the origination of COVID-19. It is critical that this possibility be thoroughly examined, particularly in light of the Chinese government’s obstruction of multilateral bio-forensic investigations and its destruction of important evidence.
-
-A senior Administration official has confirmed our finding that the origin of COVID-19 could have been the result of a lab leak. In April, the Director of National Intelligence explained that either “[COVID-19] emerged naturally from human contact with infected animals or it was the result of an accident at a laboratory in Wuhan.” It is unclear, however, if the Intelligence Community or any other part of the U.S. government is seeking to determine the truth.
-
-We concur with the assessment of Secretary of State Antony Blinken who recently stated that the origin of COVID-19 is important “because we need to understand what happened if we are going to have the best possible opportunity to prevent it from happening again, and to make sure we can put in place an even stronger global health security system, to make sure that we can prevent, detect, [and] mitigate future pandemics. And that has to start with understanding exactly what happened.”
-
-In addition, I want to call to your attention the fact that U.S. government funds—whether directly or indirectly—are supporting dangerous dual-use scientific research at the Wuhan Institute of Virology (WIV). Our findings, though incomplete, suggest the United States supported such work despite clear evidence of the People’s Liberation Army’s involvement at the WIV. It is essential that your Administration examine this matter and ensure that appropriate threat assessments are conducted anytime the U.S. government considers collaborating with a foreign adversary on future dual-use research. This may require a review of the interagency processes associated with such decisions.
-
-In summary, I request your Administration’s support for a whole-of-government effort to identify the origins of COVID-19 and urge you to undertake a review of the interagency processes associated with the funding of dangerous dual-use research—particularly when conducted with foreign adversary nations.
-
-Attached you will find a letter to the Director of National Intelligence, which includes many outstanding questions. My Republican colleagues and I hope you will agree that getting to the truth is of critical importance. We stand ready to work with your Administration to address these matters.
 
 0

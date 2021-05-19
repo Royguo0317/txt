@@ -1,33 +1,212 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 接二连三出事绝不是巧合，文化领域与中共脱钩开启
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1255820/)
+## 美国出现了一场劳工危机，这是对美国小企业的攻击，社会主义正在扼杀我们的国家，人们担心荒谬的刺激措施。”
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1255979/)
 
-**撰稿：脐橙君**
+字幕内容：
 
-因疫情原因推迟一年的《速度与激情9》在上映前3天，再生风波。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19023254/60-8.jpg)
-5月18日下午，环球影业官方微博发布声明，称原定今天举行的《速度与激情9》中国发布会活动取消，原因是“收到威胁，会引发安全隐患”。环球影业称，已经向有关执法部门进行汇报。
+Marjorie Taylor Greene
 
-就在一周之前，漫威的两部电影，包括由华人导演赵婷执导的《永恒族》(Eternals)及漫威首部华人超级英雄电影《尚气与十环传奇》（Shang-Chi and the Legend of the Ten Ring），或无法在中国上映，原因是被指辱华。
+Congresswoman for Georgia’s 14th CD
 
-报道指，《尚气》当中，由香港演员梁朝伟饰演的反派角色“满大人”，名字及背景设计与英国小说家著作内有“辱华”意味的人物“傅满洲”相似，早前被共青团官媒《中国青年报》批评，被中国网民怒轰“黑化中国人”。而《尚气》男主角、中国出生的演员刘思慕（Simu Liu）及其他华人演员，被中国网民指不符合瘦削面形﹑高鼻子﹑白皮肤﹑双眼皮的东方美学标准，指漫威团队“故意拣选这些人，以歧视中国人外貌”。
+玛乔丽·泰勒·格林
 
-而漫威首部由亚裔女性执导演的电影《永恒族》，导演是刚凭《浪迹天地》(Nomadland)获得奥斯卡最佳导演的赵婷。她过去受访时曾表示，她年少时的中国“遍地谎言”，引来“辱华”批评。
+佐治亚州第14届CD的女众议员
 
-所以联系到一周以前的这两部美国电影被禁映，就标志着以好莱坞为首的文化领域与中共的脱钩开始。
+This is absolutely the issue that should be raining the new cycle and set up gossip
 
-早前文贵先生曾在直播中透露，他应邀参加一次在深山中的会议，出席方中就有以好莱坞为首的美国娱乐大亨们，会议的基调一致对华，要开启文化脱钩的序幕。
+这绝对是应该新一轮的引发流言蜚语的问题
 
-中共肯定得到内部情报，获悉了接下去美国文化领域的举措，所以先人一步，借种族歧视，掩盖文化脱钩的实质，让国人误认为美国对中国人民的不友好，为之后全面抵制美国做好铺垫。
+And stupid story of about royal, which is none of us care about
 
-（本文只代表作者观点，与Gnews平台无关。）
+这是我们谁都不关心的关于忠诚的愚蠢故事
 
-**新闻来源：**
-1、[美媒：Marvel两电影或因“辱华”被中国禁映 — 普通话主页 (rfa.org)](https://www.rfa.org/mandarin/Xinwen/wul0513a-05132021031513.html)
-2、[环球影业称”收到威胁”取消《速激9》中国发布会…？？？\_速度 (sohu.com)](https://www.sohu.com/a/467280811_115479)
+This is assault of American small businesses that we have paying people stay home for over a year now
 
-***校对发布**：文顾*
+这是对美国小企业的攻击，我们付钱让人待在家里都一年多了
+
+this is ridiculous stimulus checks and these hard lined
+
+这是荒谬的刺激计划，而这些强硬的措施
+
+our government impost shut downs
+
+我们的政府强制推行的停业措施
+
+has hurt business so badly in cross borders
+
+已经严重损害了所有的商业活动
+
+Not just small businesses, it’s businesses, it’s schools, it’s everyone
+
+不只损害了小企业，其他的企业、学校、每个人
+
+They can’t hire anyone,
+
+他们不能雇佣任何人
+
+no one wants to show up for a job interview
+
+没人想去参加求职面试
+
+and no one wants to take a job
+
+而且没有人愿意出去工作
+
+and so what I ’ve been talking to a business is in my district
+
+所以我和我辖区的企业交谈过
+
+but also all over the country, restaurants that have been to close down and stop serving dinner
+
+而且在全国范围内，餐馆已经被迫停业，停止供应晚餐
+
+Only be able to serve lunch
+
+只能供应午餐
+
+Because they cannot find people to work
+
+因为他们找不到人工作
+
+A restaurant set up being open for 50 years
+
+一家开业50年的餐厅
+
+Such as one here in Dalton my district
+
+就在我这个区的道尔顿市
+
+They had to shut the doors 3 to 4 days a week
+
+他们一周要关门3到4天
+
+Because they don’t have enough people to come to work
+
+因为他们没有足够的人来上班
+
+Even the schools, schools can’t hire bus drivers
+
+即使是学校，也雇不到校车司机
+
+They can’t hire cafeteria workers
+
+他们雇不到食堂工作人员
+
+They can’t hire janitors
+
+雇不到清洁工
+
+It goes all the way cross the Boards
+
+每个校区都是这样
+
+It’s hurting everyone, it’s hurting economic recovery
+
+它伤害每个人，伤害经济复苏
+
+It’s hurting economic growth,
+
+它正在伤害经济增长
+
+Bu it’s very much killing these small business
+
+这会扼杀这些小企业
+
+They have already in door entire year shut downs
+
+他们已经关门一整年了
+
+And yet, guess what?
+
+然而，你猜怎么着？
+
+their rent stays the same
+
+他们的房租保持不变
+
+their power bill stays the same, their cost of operations, vender supplies
+
+他们的电费保持不变，他们的运营成本和供应商原材料。
+
+food for the supplies all they need to run the business,
+
+一切运营所需的食物，原材料成本
+
+all about remains the same
+
+一切成本都保持不变
+
+yet they can’t employ people to do the actual work
+
+然而，他们雇不到人来干活
+
+They borrow from revenue to sustain their companies
+
+他们借来的收入维持公司的存在
+
+Host:
+
+节目主持人：
+
+I just wonder to say you have about 32 second left
+
+我不得不告诉你，你还有大约32秒的时间
+
+You’ve saying assault of America seems that the stimulate checks are keeping people home
+
+你指美国被攻击似乎是政府付钱让人们呆在家里
+
+and they won’t getting to the labour force that was what you are saying?
+
+然后他们不愿意去找工作，这是你想说的吗？
+
+Jarjorie:
+
+玛乔丽
+
+What I am saying that socialism is killing our country
+
+我的意思是，社会主义正在扼杀我们的国家
+
+And it’s here now
+
+现在它就在这里
+
+Come through the fact that all of these shut downs
+
+从所有这些停业的事实来看
+
+and everything the Democratic they are doing is socialism
+
+民主党所做的一切都是社会主义
+
+Its government checks paying people and they staying at home
+
+政府给人们发工资，让人们呆在家里
+
+and they don’t want to work
+
+而且他们不想工作
+
+The more Democratic policy is destroying our country
+
+民主党推行的刺激政策正在毁掉我们的国家
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频连接: [https://twitter.com/realamvoice/status/1390031268402790400?s=24](https://twitter.com/realamvoice/status/1390031268402790400?s=24)
+
+英听校:康州盘古农场-WZ
+翻译: 康州盘古农场-WZ
+翻译终校: 康州盘古农场- Mike Li
+字幕+视频制作:康州盘古农场-天涯行
+审片: 康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

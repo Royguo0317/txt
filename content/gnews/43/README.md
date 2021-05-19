@@ -1,34 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 比特币价格的暴跌推动了其他加密货币的崛起!
-` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1255454/)
+## 情报委员会副主席就病毒溯源给拜登的公开信
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1255601/)
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18221707/%E6%AF%94%E7%89%B9%E5%B8%81-edited.jpg)图片来源：YOUTUBE
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18234507/N-3.jpg)thenewcivilrightsmovement.com
+昨天（5月17日）笔者发文，报道了众议院情报委员会副主席德文·努内斯（Devin Nunes）就中共病毒溯源、追责问题发表了致拜登的公开信【1】，今天看到了公开信的原稿，将其翻译供战友分享。
 
-据加拿大法语媒体《魁北克日报》于5月18日刊登金融文章报道指出，由于比特币在最近一周内损失了超过20％的市值，而使得投资者想知道已经持续了至少六个月以上的加密货币购买热是否开始因此消退。
+尊敬的总统先生：
 
-比特币在5月18日的价格约为45,000美元，相比自上周初以来，其价格已下跌了12,000多美元。而较4月14日其历史最高点的64,870美元则下跌了超过30％以上。
+作为我们正在进行的、有关中共国威胁美国经济和国家安全的监督调查的一部分，众议院情报常设特别委员会的共和党成员正在调查首次在武汉报道的中共病毒（COVID-19）疫情的起源，我们写信请求你们启动整个政府工作，以确定病毒的起源，并指示联邦机构和部门检查所有可能的情况，作为此类调查的一部分。
 
-继比特币价格暴跌之后，其他加密货币也同样遭受了波及和损失：第二大加密货币以太坊，就在一周内下跌了14％，现在价格不到3400美元。狗狗币（Dogecoin）是近来几周引起公众强烈关注的一种加密货币，它也正从其历史最高价格点开始下滑。
+在我们正在进行的调查过程中，我们已经确定了大量的间接证据，支持实验室泄漏可能是中共病毒起源的理论，彻底调查这种可能性至关重要，特别是鉴于中共国政府阻挠多国生物法调查和销毁重要证据（的行径）。
 
-根据Coinbase网站的数据显示：就加密货币总体而言，最近的价格下跌已经导致其从市场上蒸发了近4000亿美元，而现在加密货币市场的价值刚刚超过2万亿美元。Coinbase同时还列出了另外多种加密货币的发展现状。
+一位政府高级官员证实了我们的发现，中共病毒的来源可能是实验室泄漏的结果。今年4月，国家情报总监解释说，“中共病毒要么是人类与受感染动物接触后自然产生的，要么是武汉一家实验室发生事故的结果。”然而，目前尚不清楚情报部门或美国政府的任何其他部门是否在寻求确定真相。
 
-对于热衷投资加密货币的人来说，导致比特币价格暴跌的责任人并不难被发现：亿万富翁埃隆·马斯克（Elon Musk）在此前赞扬了加密货币的独特优点并将特斯拉资金的一部分用于投资比特币交易后，现在却以挖掘比特币会产生巨大环境污染为由，而拒绝再以该加密货币为购买其电动汽车的支付方式。
+我们同意国务卿安东尼·布林肯（Antony Blinken）的评估，他最近说，中共病毒的起源很重要，“因为我们需要了解发生了什么，我们要有最好的机会防止它再次发生，并确保我们能够建立一个更加强大的全球卫生安全体系，确保我们能够预防、发现和减轻未来的流行病。这一切，必须从了解到底发生了什么开始。”
 
-据加密货币公司ByteTree的特别内务分析师解释说：“在我们看来，这一直是双向波动的根源，如果在比特币之外有了新的加密货币，那么对所有人来说都会更好。”
+此外，我想提请大家注意，美国政府的资金直接或间接地支持武汉病毒研究所（WIV）危险的军民两用科学研究，我们的调查结果虽然不完整，但表明美国支持了这项工作，尽管有明显证据表明中共军方参与了武汉病毒研究所。至关重要的是，您的政府必须审查这一问题，并确保在美国政府考虑与外国对手就未来合作研究军民两用项目，随时都能进行适当的威胁评估，这可能需要审查与这些决定有关的机构间的程序。
 
-但实际上，比特币目前的困境并非始于埃隆·马斯克。AvaTrade分析师Naeem Aslam为此表示：“此前比特币的涨势就一直缺乏动力，即使最近的利好消息也不允许比特币再继续上涨。”
+总之，我请求您的政府支持努力查明中共病毒的来源，并敦促您审查与资助危险的军民两用研究有关的机构间的进程，特别是在与外国敌对国家进行合作研究时。
 
-目前加密货币这种价格下滑趋势是否会继续下去还有待观察。几年前，当时极不稳定的比特币在2017年上涨了1.375％，而在2018年却下跌了近80％。
+随函附上给国家情报总监的一封信，其中包括许多悬而未决的问题，我的共和党同事和我希望您认可，了解真相是至关重要的，我们随时准备与您的政府合作解决这些问题。
 
-这种价格动荡促使当局政府提请投资者谨慎行事。美国市场监管机构，美国证券交易委员会（SEC）于5月初曾再次呼吁投资者应该了解到买卖比特币是一种非常投机的高风险行为，并应该首先评估其能够接受的损失水平后再投身于加密货币的交易市场。
+德文·努内斯（签名）
 
-但是，并非所有投资者都押注于加密货币价格的下跌。ByteTree分析师因此认为：“我们更应该关注的是，就目前比特币网络活动水平的暴跌形势来看，其性质并非与2014年和2018年的低迷时期相同。加密货币始终存在巨大的发展机会和主导未来的能力！”
+相关链接：
 
-[原文链接](https://www.journaldequebec.com/2021/05/18/le-bitcoin-plonge-et-entraine-les-autres-cryptomonnaies)
+【1】https://gnews.org/zh-hans/1251395/
 
-本文仅代表原媒体信息和作者个人观点。
+【2】https://assets.documentcloud.org/documents/20709271/20210516\_rm-ltr-to-president-biden\_re-covid-19.pdf
+
+文字整理：
+
+Dear Mr. President:
+
+As part of our ongoing oversight investigation related to Chinese threats to U.S. economic and national security, Republican Members of the House Permanent Select Committee on Intelligence are investigating the origins of the COVID-19 pandemic, which was first reported in Wuhan, China in 2019. We write to request that you initiate a whole-of-government effort to identify the origins of the virus and to direct federal agencies and departments to examine all plausible scenarios as part of such investigation.
+
+During the course of our investigation, which is ongoing, we have identified substantial circumstantial evidence supporting the theory that a laboratory leak could have been responsible for the origination of COVID-19. It is critical that this possibility be thoroughly examined, particularly in light of the Chinese government’s obstruction of multilateral bio-forensic investigations and its destruction of important evidence.
+
+A senior Administration official has confirmed our finding that the origin of COVID-19 could have been the result of a lab leak. In April, the Director of National Intelligence explained that either “[COVID-19] emerged naturally from human contact with infected animals or it was the result of an accident at a laboratory in Wuhan.” It is unclear, however, if the Intelligence Community or any other part of the U.S. government is seeking to determine the truth.
+
+We concur with the assessment of Secretary of State Antony Blinken who recently stated that the origin of COVID-19 is important “because we need to understand what happened if we are going to have the best possible opportunity to prevent it from happening again, and to make sure we can put in place an even stronger global health security system, to make sure that we can prevent, detect, [and] mitigate future pandemics. And that has to start with understanding exactly what happened.”
+
+In addition, I want to call to your attention the fact that U.S. government funds—whether directly or indirectly—are supporting dangerous dual-use scientific research at the Wuhan Institute of Virology (WIV). Our findings, though incomplete, suggest the United States supported such work despite clear evidence of the People’s Liberation Army’s involvement at the WIV. It is essential that your Administration examine this matter and ensure that appropriate threat assessments are conducted anytime the U.S. government considers collaborating with a foreign adversary on future dual-use research. This may require a review of the interagency processes associated with such decisions.
+
+In summary, I request your Administration’s support for a whole-of-government effort to identify the origins of COVID-19 and urge you to undertake a review of the interagency processes associated with the funding of dangerous dual-use research—particularly when conducted with foreign adversary nations.
+
+Attached you will find a letter to the Director of National Intelligence, which includes many outstanding questions. My Republican colleagues and I hope you will agree that getting to the truth is of critical importance. We stand ready to work with your Administration to address these matters.
 
 0
