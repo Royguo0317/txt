@@ -1,15 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年5月18日 文贵先生盖特 1
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1254696/)
+## 佩洛西呼吁美国和世界领导人抵制中共国的2022年北京冬季奥运会-路透社
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1254697/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+译编：文复
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18172330/IMG_20210518_142233_613.jpg)图片源自网络
+美国众议院议长南希·佩洛西（D-CA）在2021年5月18日在美国华盛顿举行的美国国会新闻发布会上发表了关于COVID-19仇恨犯罪法的讲话。
 
-5月18号: 尊敬的战友们好！看看苹果公司是怎么黑郭媒体的，郭媒体是如何艰难的生存的！共产党是多么的邪恶，郭媒体所有的数据都是被屏蔽的，未来当这些数据公开之日，一定会震惊世界！ 【纽约时报报道：審查、監控與利潤：為做生意，蘋果向中國政府妥協 [https://cn.nytimes.com/technology/20210518/apple-china-censorship-data/zh-hant/](https://cn.nytimes.com/technology/20210518/apple-china-censorship-data/zh-hant/)】 May 18th: Dear fellow fighters!Looking back on how Apple has been smearing Guo Media we can get a glimpse of the difficulties Guo Media faced in its survival. CCP is so evil that all the data about Guo Media is blocked. It will stun the world one day when all these data are brought to light. 【New York Times: Censorship, Surveillance and Profits: A Hard Bargain for Apple in China [https://www.nytimes.com/2021/05/17/technology/apple-china-censorship-data.html](https://www.nytimes.com/2021/05/17/technology/apple-china-censorship-data.html)】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18171505/0b289018020a091fa683c1492cc7ef1c.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18171451/6914b83e81ff8852998b01a221db1973.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18171438/47908e13d0a74b7734054d305e892334.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18171425/be6f94e98febff10dc7af90be7cf3b78.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18171412/ea0f501b6e1bce8d326f12c5fff734bc.jpg)
-[【2021年5月18日】文贵先生盖特原文](https://gtv.org/getter/60a3bcce37f7f73984ccfee0)
+美国众议院议长南希·佩洛西周二呼吁美国对北京2022年冬季奥运会进行外交抵制，批评中国侵犯人权，并表示前往参加的全球领导人将会因此失去道德权威。
 
-**喜联盟Gnews编辑部**
+美国国会议员越来越多地呼吁抵制奥运会或改变场地，并抨击美国公司，称他们对国务院认定发生在维吾尔族和其他少数族裔犯的种族灭绝保持沉默是在助长中共政府。
+
+民主党人佩洛西（Pelosi）在两党国会听证会上表示，世界各国元首应避免原定于2月举行的奥运会。
+
+佩洛西说：“这是我的提议，与提出提议的国家一道，进行外交抵制，世界上各主要国家都拒绝参加奥运会。”
+
+佩洛西说：“我们不要让国家元首去中国，免得给了中国政府面子。”
+
+“要让元首们针对正在进行的种族灭绝行径去中国-然而你却安坐在这儿-拜托请问，作为道德权威，你总得为世界任何地方的人权再说点儿什么吧？”她说。
+
+联合国独立小组在2018年表示，已收到可靠报告，称至少有100万维吾尔人和其他穆斯林被关押在中国新疆地区的集中营中。北京当局将其描述为消除极端主义的职业培训中心，并坚决反对虐待和种族灭绝的指控。
+
+民主党国会议员吉姆·麦戈文（Jim McGovern）表示，应重新选址奥运会举办地。
+
+麦戈文在谈到日本和国际奥委会决定推迟在东京举行的2020年夏季奥运会的决定时说：“如果我们可以将一场大流行的奥运会因为疫情推迟一年，我们也一定可以将一场种族灭绝的奥运会推迟一年。”
+
+麦戈文说：“这将使国际奥委会有时间搬迁到政府不实施暴行的国家。”
+
+以各种形式抵制北京奥运会的呼声正在增长。
+
+上个月，共和党参议员罗姆尼（Mitt Romney）提出了一项对付中国更广泛的立法修正案，该修正案可能将启动美国对中国外交层面的抵制。
+
+人权活动家联盟周二呼吁运动员抵制奥运会，并向国际奥委会施加压力。
+
+美国总统拜登（Joe Biden）政府曾表示，希望与盟国制定一种共同参与北京奥运会的办法，但国务卿安东尼·布林肯（Antony Blinken）一再表示，该问题尚未得到讨论。
+
+当被问及佩洛西的评论时，一位高级政府官员告诉路透社，政府在2022年奥运会上的立场没有改变。
+
+拜登，也是民主党人，曾表示中国是美国的战略竞争对手，并发誓不让中国超过美国成为世界领导者。
+
+参加北京奥运会的美国人的支持者表示，惩罚运动员是不公平的，奥运会将会为拥有冬奥会最高奖牌数量的美国提供一个在全球舞台上展现其生命力的平台。
+
+美国奥林匹克和残奥会委员会首席执行官莎拉·赫希兰（Sarah Hirshland）在听证会上的书面声明中说，该委员会对“维吾尔族人所受的压迫”表示关注，但是，禁止美国运动员参加奥运会也 “肯定不会是答案”。
+
+她说：“过去的抵制运动未能达到政治目的，这让我们暂停考虑再次采取抵制行动。”
+
+**评论：**
+
+美国这位奥委会高官的话差矣!抵制在侵犯人权国家举行的奥运会，虽然不一定能直接达到任何政治目的，却可以大大地推动和促进奥林匹克精神所承载的价值观和信仰。“抵制”与否，亮明了抉择者的价值倾向，是和独裁专制势不两立，绝不沆瀣一气，还是蝇营苟且，找各种冠冕堂皇的理由去捧专制政府的臭脚。
+
+随着病毒真相的加速揭晓，中共更大的罪恶将彻底暴露在全世界的目光之下，继而被灭共浪潮吞噬，而2022北京冬奥会只能留作历史的笑谈了。
+
+文章来源：www.reuters.com
+
+（本文只代表作者观点，与Gnews平台无关。）
+
+校对发布：紫橄榄
 
 0

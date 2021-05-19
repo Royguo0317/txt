@@ -1,26 +1,72 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大人必须在加美边境开放之前接种疫苗！
-` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1254879/)
+## 新中国联邦就是中国人的高潮
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1255113/)
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18180443/%E7%89%B9%E9%B2%81%E5%A4%9A%E7%96%AB%E8%8B%97-edited.png)图片来源：YOUTUBE
+香草山健身部 澄道来了 爱动爱议码0518
 
 
-据加拿大独立媒体ThePostMillennial于5月18日刊登的新闻报道指出，总理贾斯汀·特鲁多（Justin Trudeau）在当天对外公开表示说，在美加陆地边界重新开放之前，必须有75％以上的加拿大人都已经接种了疫苗。
 
-特鲁多亲口承认其政府为重新开放已关闭了14个月之久的加美边界而正在与美方进行初步商讨中。但总理坚称在边界被安全开放之前，至少有75％的加拿大人接种了疫苗。因为现在该国的（中共病毒）COVID-19疫情状况与美国形成了鲜明的对比，后者由于高普及的疫苗接种率而取消了必须在公共场合戴口罩的防疫措施。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12160942/logo-3.jpeg)
 
-在美国通过重新开放各项户外体育赛事和热闹酒吧的举措中吸引了大批消费人群的同时，加拿大的安大略省，新斯科舍省和艾伯塔省的居民们仍然处于被当局禁闭的状态。
 
-据加拿大媒体报道，该国的疫苗接种率远低于其南部邻国，并一直在为努力满足疫苗需求而奋力挣扎。
 
-截止今日，大约有37％的美国人已经接受了满剂量的疫苗接种。而在加拿大，这个数字仅为3.7％左右。加拿大目前众多的政治纷争都被归咎于特鲁多自由党政府无法及时获得足够的疫苗供应合同，并由此导致了大量疫苗接种计划的延误。而现在该国似乎终于达到了更高的接种率。
+完美人生离不开高潮
+新中国联邦就是中国人的高潮
 
-美国政界人士正极力敦促总统乔·拜登（Joe Biden）必须确保美加边界能在7月4号及时开放，这是许多美国人都期盼已久的关键日期。但特鲁多似乎对该美方已经确定的时刻踟蹰不决，不过他表示加拿大人应该憧憬“人均一剂的夏天”。而这无疑意味着大多数人将不可能在7月4日之前得到全部剂量的疫苗接种。
+邪共的近百年毒染
+息我中之传承
+碍我国之高潮
 
-[原文链接](https://thepostmillennial.com/tudeau-says-75-of-canadians-must-be-vaccinated-before-travel-restrictions-will-be-lifted)
+爹亲娘亲不如党亲
+毁我祖之一脉
+灭我辈之一族
 
-本文仅代表原媒体信息和作者个人观点。
+你我尚袓无不溯源
+传宗上古悠远长
+接代今朝一家亲
+
+人人韭菜不割不快
+升处高入邪共蛊
+恶党潮起人尸丸
+
+爆料革命潮起潮湧
+人生难得将尽酒
+天享高潮须尽欢
+
+灭共是当今世界的最高时尚
+人人都怕跟不上
+新中国联邦就是中国人最高高潮
+完美人生怎能离开其中
+
+灭共人生
+就是幽默人生
+幽默人生
+就是健康人生
+健康人生
+才是完美人生
+
+come with me
+come come with me
+
+take down the ccp
+take down the ccp
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 0

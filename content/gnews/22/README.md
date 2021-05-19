@@ -1,23 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国警告：“我们将无法像去年一样享受轻松的夏天”
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1254855/)
+## 有话说（ 四 ）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1254968/)
 
-消息来源：今日欧洲- europa.today.it
-发布时间：2021.05.17
-翻译整理：斩草要除根
+—–新中国联邦周年纪
 
-德国是欧盟唯一一个疫苗接种率超过总人口35％的国家，柏林政府发言人史蒂芬•塞伯特（Steffen Seibert）今天在新闻发布会上宣布消息称：“还没结束，在夏季还不会恢复正常生活”。这位德国高管还公开反对“放松”措施，他说，例如去年采取的措施就导致了秋季的新一波感染。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18150242/media.media_.1f40e381-75ba-4320-9b23-76afde1fd8ab.original1024.jpg)
-塞伯特在与新闻界的会晤中说：“我们还没有达到像去年一样享受轻松夏天的先决条件。” 然而，由安格拉•默克尔（Angela Merkel）领导的政府发言人却将德国感染趋势的最新消息定义为“阳性”。实际上，卫生当局在两天前报告说，每10万居民中的感染率下降到了87.3。与前一周相比，这是一大进步，当时的平均感染人数为每10万居民121.5例。但是，在全国范围内发病率降至每10万居民100例的“心理”阈值以下的这一事实，并不能使柏林赢得胜利。政府认为，目标仍然是“显著”减少感染数量。塞伯特总结说，与冠状病毒的斗争“尚未结束”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18150908/liess-sich-mit-dem-impfstoff.jpg)
-简评：每个人都迫切地想从这场疫情中解脱出来，被压抑的自由似乎都在等着在这个夏天被释放，政府一方面采取限制令为手段，另一方面又担心民众的反抗而不得去不开放。而这一送一紧之间正好是病毒攻击的好时机。
+香草山健身部 澄道来了 爱动爱议码0518
 
-（个人观点）
 
-[链接](https://europa.today.it/attualita/germania-estate-covid-viaggi.html)
 
-校对/发布：老中医
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12160942/logo-3.jpeg)
+
+
+
+妙音禅乐绕，天言空语真
+
+六四建国
+七哥破指明譬 决绝启航
+上仓的有话说
+是什么？！
+
+若见电闪
+当愿众生
+广度一切
+犹如津梁
+
+宣言诵毕
+正道响晴薄日 海天一色
+天空的有话说
+又是什么？！
+
+若见彩虹
+当愿众生
+广度一切
+犹如桥梁
+
+广度一切之津梁
+是佛菩萨
+对有情众生
+的有话说
+
+新中国联邦不忍众生苦
+是慧者七哥
+对未来新世界的有话说
+
+六字大明咒
+＂嗡 嘛 呢 呗 咪 吽＂…..
+（三遍起）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 0

@@ -1,30 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大多名政客在以巴冲突期间公开支持哈马斯！
-` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1254504/)
+## 2021年5月18日 文贵先生盖特 1
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1254696/)
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18152802/%E5%8A%A0%E6%8B%BF%E5%A4%A7%E4%BB%A5%E8%89%B2%E5%88%97-edited.jpg)图片来源：TRUENORTH
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
+5月18号: 尊敬的战友们好！看看苹果公司是怎么黑郭媒体的，郭媒体是如何艰难的生存的！共产党是多么的邪恶，郭媒体所有的数据都是被屏蔽的，未来当这些数据公开之日，一定会震惊世界！ 【纽约时报报道：審查、監控與利潤：為做生意，蘋果向中國政府妥協 [https://cn.nytimes.com/technology/20210518/apple-china-censorship-data/zh-hant/](https://cn.nytimes.com/technology/20210518/apple-china-censorship-data/zh-hant/)】 May 18th: Dear fellow fighters!Looking back on how Apple has been smearing Guo Media we can get a glimpse of the difficulties Guo Media faced in its survival. CCP is so evil that all the data about Guo Media is blocked. It will stun the world one day when all these data are brought to light. 【New York Times: Censorship, Surveillance and Profits: A Hard Bargain for Apple in China [https://www.nytimes.com/2021/05/17/technology/apple-china-censorship-data.html](https://www.nytimes.com/2021/05/17/technology/apple-china-censorship-data.html)】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18171505/0b289018020a091fa683c1492cc7ef1c.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18171451/6914b83e81ff8852998b01a221db1973.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18171438/47908e13d0a74b7734054d305e892334.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18171425/be6f94e98febff10dc7af90be7cf3b78.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18171412/ea0f501b6e1bce8d326f12c5fff734bc.jpg)
+[【2021年5月18日】文贵先生盖特原文](https://gtv.org/getter/60a3bcce37f7f73984ccfee0)
 
-据加拿大知名独立媒体《TRUENORTH》于5月17日就目前加拿大政坛甚嚣尘上的反以色列言论刊登文章并报道指出：正当加拿大各界的政客们在对以色列和巴勒斯坦之间不断升级的战争冲突作出反应时，数位当选的政府官员和国会议员却都急于谴责以色列（的自卫措施），甚至冠以其“种族清洗”的罪名，仅仅因为以色列试图在加沙地带拦截哈马斯向该国境内无辜平民发射的数千枚火箭弹。本媒体现将加拿大多位知名政客最近所发表的关于以巴冲突的言论列举如下：
-
-新民主党领导人贾格梅特·辛格（Jagmeet Singh）要求加拿大立刻停止向以色列出售军火，作为对该国在以巴冲突中所采取（自卫军事行动）的惩罚。
-
-自由外交部长马克·加尔瑙（Marc Garneau）呼吁以色列和巴勒斯坦“务必遵守国际法规”。并称该地区最近的事态表明，哈马斯恐怖组织利用平民，包括新闻记者，作为其人肉盾牌，发动了对以色列的火箭袭击。
-
-自由党议员伊克拉·哈立德（Iqra Khalid）发布推特指责以色列“公然无视人类生命”并对巴勒斯坦人进行“强迫迁离”。
-
-绿党议员詹妮卡·阿特温（Jenica Atwin）在其推特上宣称，她将与巴勒斯坦站在一起，并痛斥以色列政府实施“种族隔离”政策。
-
-新民主党议员尼基·阿什顿（Niki Ashton）谴责加拿大支持以色列参与“非法占领”和“大屠杀”巴勒斯坦人。
-
-自由党议员萨尔玛·扎希德（Salma Zahid）周六发推文称以色列应“停止对哈马斯和其他恐怖组织藏身地区的空袭”。
-
-绿党的国会议员们则散布了有关以色列在双方冲突地区实施“种族隔离”和“种族清洗”的错误言论。
-
-[原文链接](https://tnc.news/2021/05/17/liberal-and-ndp-mps-post-anti-israel-claims-during-middle-east-conflict/)
-
-本文仅代表原媒体信息和其作者个人观点。
+**喜联盟Gnews编辑部**
 
 0

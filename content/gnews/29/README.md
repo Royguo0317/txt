@@ -1,25 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共煞费苦心掩盖新冠病毒的起源
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1254775/)
+## 玛丽亚·巴蒂罗莫和德文·纽尼斯谈论与中共病毒有关的彼得·达萨克博士
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1254804/)
 
-#### 翻译：James文棟 |校对：Wenwang
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18174321/image-70.jpeg) 图片来源：Talking Points Memo
-美国前国务卿迈克·蓬佩奥（Mike Pompeo）星期天（5月16日）在福克斯新闻台（Fox News）“周日早晨”的访谈栏目中表示，目前的证据仍然表明中共病毒（COVID-19）源自中共国武汉的一个实验室，他警告说，来自于该地区的生物武器和生物恐怖风险是真实存在的。
+翻译: JS709 | 校对: Elsie | 审核: 黎明的光芒
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18180056/Picture1-104.png)图片来自视频截图
+伟大而美丽的玛丽亚·巴蒂罗莫（Maria Bartiromo）在今天早上（2021年5月16日，译者注）的节目中采访了挑战穆勒（Mueller）骗局的英雄德文·纽尼斯（Devin Nunes）。 他们的话题是彼得·达萨克（Peter Daszak）及其对玛丽亚的攻击。
 
-蓬佩奥告诉栏目主播玛丽亚·巴蒂罗莫（Maria Bartiromo）说，中共“掩盖”了COVID-19的起源，尽管他们拒绝调查人员与武汉病毒学研究所的研究人员以及实验室的原始材料接触，但证据仍在不断增加。“我们曾努力获取每一个可能得到的证据，试图将其交给疾控中心（CDC），也试图与中国人合作。但他们把这一切掩盖得严严实实。”
+玛丽亚和纽尼斯讨论了美国资助的中共病毒这类病毒研究用于军事战争的可能性。两人都不敢相信政府会用纳税人的钱来为此提供资金。纽尼斯暗示政府实体可能利用民主党的“非盈利”渠道将政府资金用于此类事情。然后玛丽亚分享到：
 
-蓬佩奥表示，只要把目前呈现出来的间接证据和中共对武汉病毒实验室任何相关信息的极力否认结合起来看，就可得出中共病毒源自武汉实验室。他说,“目前，我没看到有一丝一毫的证据表明病毒不是来自于武汉的实验室。”
+玛丽亚：是的，这个非盈利组织是彼得·达萨克（Peter Daszak）领导的[生态健康联盟](https://www.ecohealthalliance.org/)。顺便说一下，当我在这节目上说这病毒很可能来自实验室时，他试图在推特上踩我。他是牵涉其中的一员，对吗？ 他还曾是武汉小组成员，他在WHO调查小组中，是吧？
 
-蓬佩奥还警告说，类似的情况在未来仍可能发生，并指出了生物战的可能性。他表示，中共病毒“从那个实验室或从另一个中国实验室再次发生的风险是真实存在的。”中共“正在进行的种种实验活动与他们保护那些实验设施的能力不一致，因此来自那里的生物武器和生物恐怖的风险是真实存在的。”
+纽尼斯：是的。 根据我们的估计，这个人显然已经拿走了大约1亿美元。 我们没有这笔钱的所有账目…**是否应该让分配这笔钱的人参与调查武汉病毒的起源。 我认为这是不太合适的。**
 
-* * *
+我们已经多次报道过达萨克博士。最近一次，我们指出，由于这些活动与中共病毒和参与者有关，达萨克博士是利益相关者，然而，他却是“调查”武汉病毒起源的WHO小组中唯一的美国人。
 
-评论：日拱一卒，作为右媒的福克斯是报道中共病毒真相的开路先锋，病毒源自武汉实验室已成不争的事实，随着左媒的有线电视网（CNN） 等的跟进，病毒源头真相定会在世界媒体全面发酵。
+我们已经报道了很多有关达萨克博士的事。 这是最近发表的一篇文章：
 
+我们现在知道以下几点：1）达萨克博士参与了导致中共武汉病毒释放给人类的活动；  2）达萨克博士是WHO对中共病毒起源进行调查的唯一一位美国人（无论如何报道，结论均受质疑），并且3）达萨克博士挑战对他的指控。
 
+**贼喊捉贼是多么可笑啊。**
 
-&gt;&gt;原报道链接&gt;&gt; [Pompeo says evidence suggests coronavirus originated from Wuhan lab, risk of bioterror ‘very real’](https://www.foxnews.com/politics/pompeo-coronavirus-wuhan-china)
+原文作者：乔·霍夫特(Joe Hoft）
+发布时间：2021年5月16日，下午1:05
+原文链接：[https://www.thegatewaypundit.com/2021/05/maria-bartiromo-devin-nunes-covid-related-dr-peter-daszak-involved-origins-covid-19-american-investigating-team/](https://www.thegatewaypundit.com/2021/05/maria-bartiromo-devin-nunes-covid-related-dr-peter-daszak-involved-origins-covid-19-american-investigating-team/)
 
 0

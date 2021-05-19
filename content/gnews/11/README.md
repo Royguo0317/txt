@@ -1,45 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【独立观点】佩洛西呼吁，世界各国应联合抵制北京冬奥会
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1255163/)
+## 5月18日美国参众议员关于苹果公司帮助中共政府进行审查评论合集
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1255244/)
 
-作者：纽约香草山健身部 Ivy001
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193903/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1-2.jpg)
+参议员瑞克·斯科特： 那些在美国说一套在中国做另一套的总裁们，虚伪到了极点。 我猜想，苹果公司和提姆·库克从帮助和教唆共产独裁践踏基本自由和人权中，看到了无止尽的利润。（转推纽约时报的报道，苹果帮助中国政府进行审查）
 
 
 
-路透社报道，5月18日美国众议院议长南希•佩洛西呼吁，由于中共国在新疆侵犯人权，对维吾尔族和其他新疆原住民实行种族灭绝行为，美国应该通过外交途径抵制2022年北京冬季奥运会。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18200035/Untitled-design-36.png)
-对中共国的种族灭绝行为，南希•佩洛西建议，“世界主要国家不应该保持沉默，提议不要参加北京冬季奥运会。”
+> As it stands, the Endless Frontier Act will not effectively counter Communist China’s aggression.
+>  
+> That’s why I’m proposing amendments to secure American innovation, protect national security, hold China accountable and put American interests first. [https://t.co/LAbdsDefF6](https://t.co/LAbdsDefF6)
+> — Rick Scott (@SenRickScott) [May 18, 2021](https://twitter.com/SenRickScott/status/1394728289512591363?ref_src=twsrc%5Etfw)
 
-民主党议员吉姆•麦戈文则提议说，运动会应该迁址。”如果我们可以为一场大流行疫情将奥运会推迟一年，我们肯定可以为一场种族灭绝将冬奥会推迟一年。这将使国际奥委会有时间搬迁到一个政府没有实施暴行的国家。”
 
-美国立法者对抵制北京冬季奥运会，或者改变举办地的呼声越来越高。
 
-如果2022年冬季奥运会能在北京如期举行，将会是中共国习近平实现了梦想的最有力证明。而且，这也将会证明了他所推行的战狼外交政策和霸权扩张的正确性，接下来他将会更疯狂的侵犯人权，侵略亚太地区周边国家，甚至把他的霸权胁迫推行到全世界。必须有正义联盟站出来对中共国说“不”！
+霍利参议员新闻办： 苹果公司两度拒绝霍利参议员主持的听证会，该听证会旨在解决中国和大型科技公司之间危险而增长的关系。 霍利强调这些具体的关切。现在我们知道了苹果在隐藏什么。（转推纽约时报的报道：审查、监控与利益：苹果在中国的苛刻交易）
 
-从上周参议院小组通过：美科研人员参与中共国人才计划的资金禁令，到今天众议院提议抵制2022年北京冬奥会。无不显示出，在美国国会山，反共灭共已经成为主流，成为一个政治正确的主题。君不见，就连和中共国勾兑极深的南希•佩洛西都要站出来，提议抵制北京冬奥会了。
 
-世界灭共的呼声越来越高，中共国的末日越来越近了。
 
-图片来源：Reuters
+> CEOs saying one thing in the U.S. and doing another in China is the height of hypocrisy.
+> ⁰I guess [@Apple](https://twitter.com/Apple?ref_src=twsrc%5Etfw) and [@tim\_cook](https://twitter.com/tim_cook?ref_src=twsrc%5Etfw) see an endless frontier of profits by aiding and abetting a communist dictatorship’s mission to trample on basic freedoms and human rights. [https://t.co/YZr9C00DTl](https://t.co/YZr9C00DTl)
+> — Rick Scott (@SenRickScott) [May 18, 2021](https://twitter.com/SenRickScott/status/1394690293950291973?ref_src=twsrc%5Etfw)
 
-https://www.reuters.com/lifestyle/sports/pelosi-says-us-should-diplomatically-boycott-2022-olympics-china-2021-05-18/
 
-校对/发稿：火内
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
-**更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+参议员卢比奥： 苹果对美国人宣讲，但是却和北京交易，因为他们想要进入中国客户和奴工。 在伪善最糟的时候唤醒它。
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+> [#Apple](https://twitter.com/hashtag/Apple?src=hash&amp;ref_src=twsrc%5Etfw) lectures Americans, but does the bidding of Beijing because they wants access to Chinese customers and slave labor
+> 
+> Woke hypocrisy at its worst [pic.twitter.com/wHrLs793vb](https://t.co/wHrLs793vb)
+> — Marco Rubio (@marcorubio) [May 18, 2021](https://twitter.com/marcorubio/status/1394726148278562818?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯托克： 事实上，无止尽法案不能有效地反对共产中国的侵略。 这是为何我提交了修正案确保美国创新，保护国家安全，向中国追责，并以美国利益为先。
+
+
+
+> As it stands, the Endless Frontier Act will not effectively counter Communist China’s aggression.
+>  
+> That’s why I’m proposing amendments to secure American innovation, protect national security, hold China accountable and put American interests first. [https://t.co/LAbdsDefF6](https://t.co/LAbdsDefF6)
+> — Rick Scott (@SenRickScott) [May 18, 2021](https://twitter.com/SenRickScott/status/1394728289512591363?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·沃尔兹： “觉醒”的美国公司准备抵制（有关乔治亚州选举的问题），在国内搞政治游戏，但对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的现代奴隶制却视而不见。真够虚伪的。 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在进行种族灭绝，我们必须捍卫基本人权，【视频来自foxnews：迈克·沃尔兹批判美国企业无视 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的现代奴隶制，而 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 事实上是在进行种族大清洗】
+
+
+
+> "Woke" American corporations are ready to boycott and get political here at home but turn a blind eye to modern day slavery in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw). Hypocritical.
+> 
+> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) is committing genocide and we must stand up for basic human rights. [#BoycottBeijing2022](https://twitter.com/hashtag/BoycottBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/jjrbSPL2Yw](https://t.co/jjrbSPL2Yw)
+> — Rep. Mike Waltz (@michaelgwaltz) [May 18, 2021](https://twitter.com/michaelgwaltz/status/1394768864622297093?ref_src=twsrc%5Etfw)
+
+
 
 0
