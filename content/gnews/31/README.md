@@ -1,72 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中国联邦就是中国人的高潮
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1255113/)
+## 【独立观点】中共借疫情搞统战，台湾回应称其“假好心”
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1255100/)
 
-香草山健身部 澄道来了 爱动爱议码0518
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12160942/logo-3.jpeg)
+作者：纽约香草山健身部 Jack Li文阳
 
 
 
-完美人生离不开高潮
-新中国联邦就是中国人的高潮
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193903/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1-2.jpg)
 
-邪共的近百年毒染
-息我中之传承
-碍我国之高潮
 
-爹亲娘亲不如党亲
-毁我祖之一脉
-灭我辈之一族
 
-你我尚袓无不溯源
-传宗上古悠远长
-接代今朝一家亲
+从5月10日起，台湾疫情突然升高，中共向台湾发出愿意出手“帮助”台湾抗疫的信息。台湾陆委会回应其“假好心”。同时强调，只要台湾沉稳应对、团结抗疫，一定能够安然度过这一波疫情威胁。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18193422/Untitled-design-34.png)
+5月18日晚间中共用国务院台湾事务办公室发言人朱凤莲名义声称：近期台湾疫情严峻，中共国各界心系台湾同胞生命健康安全云云，中共表示愿意尽“最大努力帮助”台湾民众尽快战胜疫情；并宣称当务之急是“去除人为政治障碍”，使民众有疫苗可用。台湾大陆委员会随后回应，“对岸不必假好心”，只要中共国大陆不阻挠，台湾可以更快速的从国际上取得更多可靠的疫苗。
 
-人人韭菜不割不快
-升处高入邪共蛊
-恶党潮起人尸丸
+台湾陆委会还指出，如果中共真以苍生为念，更应停止军机扰台，让台湾专心抗疫，才是两岸人民之福。据台湾军方数据，2021年共军军机绕台300多次，不久前的4月12日进入台湾防空区域的中共军方飞机数量创下25架次的纪录，包括了战斗机和有核武器运载能力的轰炸机。
 
-爆料革命潮起潮湧
-人生难得将尽酒
-天享高潮须尽欢
+台湾陆委会表示，疫苗取得与使用属于医卫专业事务，中央流行疫情指挥中心已持续对外说明相关进展，呼吁社会各界仍要以指挥中心的相关说明为据。
 
-灭共是当今世界的最高时尚
-人人都怕跟不上
-新中国联邦就是中国人最高高潮
-完美人生怎能离开其中
+台湾疫情和印度疫情一样疑云重重，两地的疫情都从原来平稳的低点徘徊，到近期突然爆发，暴力升高。而且都是发生在美日印澳四国结盟应对中共威胁，共同协防台湾之后。
 
-灭共人生
-就是幽默人生
-幽默人生
-就是健康人生
-健康人生
-才是完美人生
+台湾疫情升高后，中共急忙声称可以施以援手，遭到台湾政府拒绝后，中共在台湾的代理人随即发声，以拒绝中共疫苗为由，质疑蔡英文政府。如此套路让人严重怀疑，台湾的疫情是否与中共有关。中共企图用病毒大流行打击台湾经济，进而利用其“蓝金黄”收买的人和媒体，造成一时间质疑蔡英文政府的执政能力的声音骤然而起，进而埋下推翻蔡英文的伏笔。中共的阴招并不高明，但很邪恶，释放生化武器，还要用中共疫苗占据道德制高点。希望台湾政府沉着应对，结合台湾人民高度的自律，一定会粉碎中共搞乱台湾的图谋。
 
-come with me
-come come with me
+参考阅读：[https://www.sinchew.com.my/content/content\_2478573.html](https://www.sinchew.com.my/content/content_2478573.html)
 
-take down the ccp
-take down the ccp
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-编辑/校对/发稿：正义的小新
-
+校对/发稿：火内
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
 **更多资讯，更多关注**
 
 [**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
