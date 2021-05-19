@@ -1,27 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 对中共国政治的批评有其代价-德国也是如此
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1256022/)
+## Facebook事实查核系统的致命缺陷浮出水面，现在对问题采取任何立场似乎都可能让你遭受攻击
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1256086/)
 
-信息来源：德国世界报网络版 
-发布时间：2021年5月18日
-翻译 /整理/ 简评： Shuizhuyu
-
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19042634/sangga-rima-roman-selia-HFvhBI5iq5g-unsplash-scaled.jpg)
+- 作者：Jenny Ball
 
 
-**德国尚未将中共国在维吾尔自治区新疆的人权犯罪称为种族灭绝。 但是联邦议院的压力正在增加。 企业甚至可能被法律强制停止其在中共国的活动。**
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-各国为批评北京付出了很高代价，到目前为止，很少有国家以明确的措辞批评新疆的人权犯罪。 加拿大，荷兰和英国的议会是个例外。 他们将新疆的罪行称为种族灭绝。 美国国务卿安东尼·布林肯（Antony Blinken）也谈到了种族灭绝，但将此称为他的个人见解。
+**西班牙2021年5月19日电/西喜社——**
 
-德国出于自身对北京的依赖， 没有公开批评。但是现在辩论中有些声音不再掩藏。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19051427/social-media-6217838_640.jpg)
 
-简评： 对于中共在新疆的恶行， 很多国家都把中共定性为种族灭绝。出于自己对于在中共国的市场依赖， 德国到现在为止，还很矜持， 但是在很多的场合的一些辩论中， 批评的声音正在慢慢浮出。 德国将中共在新疆的侵犯人权行为定性为种族灭绝，可能也是指日可待的。
+当社交媒体平台的事实查核人员得出不同结论时，会发生什么？
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
+最近，有关COVID-19疫苗授权合法性的争论在Facebook的事实查核流程中成了问题，这证明了我们一直以来所知道的：该查核系统存在缺陷。
 
-🔗[Genozid-Frage-Wie-Deutschland-sich-zur-Uiguren-Verfolgung-positioniert](https://www.welt.de/politik/ausland/plus231219361/Genozid-Frage-Wie-Deutschland-sich-zur-Uiguren-Verfolgung-positioniert.html)
+该公司偏爱的两项事实查核资源似乎在强制性疫苗接种问题上存在分歧，其中“政治事实”（PolitiFact）声称“大学或雇主要求使用COVID疫苗并不违法”，而“事实查核”（FactCheck.org）则是另一种表述。
 
-0
+简而言之，PoliitiFact批评了一条病毒式的Facebook帖子，上面写着：“大学、公立学校或雇主“授权”疫苗是非法的，因为该疫苗仅被授权用于紧急用途。”
+
+“ 没有法律机制可以阻止任何机构（无论是雇主还是学校）强制要求COVID-19疫苗注射，尽管可以根据美国《残疾人法案》和1964年的《民权法案》对某些残疾人，或真诚持有宗教信仰的人予以豁免。” PoliitiFact宣称反对该帖子的主张。
+
+PolitiFact的说法有些道理。
+
+高校经常在入学前要求疫苗接种记录，世卫组织要求旅行者选择疫苗接种，某些雇主可能会要求雇员证明其疫苗接种状况。
+
+那么，FactCheck.org在此问题上的立场有何不同？
+
+两个事实查核组织都同意各种机构可以要求为学生和/或雇员接种疫苗，但是他们对这一主张的深度持不同意见。
+
+“雇主、学院和大学可以要求接种COVID-19疫苗吗？” FactCheck.org说。 “通常，他们可能需要接种疫苗。 但是，美国食品药品监督管理局授权用于紧急用途的强制性疫苗的合法性还存在一些不确定性。”
+
+事实查核人员说，很多人没有意识到在冠状病毒注射时的一个主要因素：三种授权疫苗没有“标准的全面许可，即被称为生物制剂许可证申请（BLA）”。
+
+它说，COVID疫苗已经获得了紧急使用授权，只有辉瑞在本月初完成对其联合生产的疫苗的BLA授权。
+
+FactCheck.org指出，强制性注射仅授权用于紧急用途的疫苗存在不确定性，他说：“对于某些法律观察员来说，疫苗的当前授权状态，意味着雇主和其他人员仍无法要求使用它们。”
+
+两个主要的事实查核人员之间的分歧使我们想知道，如果我们公开就这一问题采取不同立场，会发生什么？
+
+不管我们的意见如何，我们的社交媒体帐户都会被标记为虚假信息吗（例如，批评PolitiFact的Facebook帖子）？
+
+我们知道，大科技企业（Big Tech）会试图根据提倡某些意识形态的精选话语权来塑造我们的现实。因此，有趣的是，无论是在社交媒体还是在法律领域，都可以看到这个问题的走向。
+
+有一件事我们可以肯定：这种分歧证明，对于一组事实可以得出不同的结论，而Big Tech的事实查核系统不让你有太多（自由辩论的）余地。
+
+**评论：其实这一大篇文字，就是向人们证明一件事，完全可以肯定的事：大科技在操控着世界的话语权，他们不允许人们有超出他们能够左右的范围之外的言论自由。而没有言论自由，就没有一切其他自由可言。**
+
+**没有言论自由，就永远不会有真相。珍惜我们能够自由发声揭示真相的GTV， Gnews 和Getter平台，把真相传播给更多渴望自由追求正义的人们，用真相战胜邪恶，让大科技还正义自由与人民 ！**
+
+素材：Jenny Ball；审核：文乐；校对：阿伯塔；发稿：信心的选择
+
+素材来源：[www.westernjournal.com](https://www.westernjournal.com/fatal-flaw-facebooks-fact-check-system-surfaces-now-taking-either-side-issue-seemingly-put-crosshairs/?utm_source=Email&amp;utm_medium=conservative-brief-WJ&amp;utm_campaign=dailypm&amp;utm_content=western-journal)
+
+**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+
++1

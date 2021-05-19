@@ -1,28 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 埃尔多安的巴勒斯坦态度
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1256563/)
+## 德国国防部长重组联邦国防军
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1256646/)
 
-信息来源：德国世界报网络版 
-记者：马里恩·森德克 （Marion Sendker）
-发布时间：2021年5月19日
+信息来源：德国镜报网络版 
+发布时间：2021年5月18日
 翻译 /整理/ 简评： Shuizhuyu
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19083326/So-reagieren-Politiker-auf-Erdogans-Nazi-Vergleich_reference_2_1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19091039/daniel-stuben-9ZbwBDOX9c-unsplash-scaled.jpg)
 
 
-**成千上万的示威者在土耳其示威。抗议以色列对加沙的袭击。**** ****跟以往不一样，**** ****警察保护了这些示威者。因为埃尔多安出于宗教原因支持伊斯兰哈马斯。这符合他的地缘政治策略。**
+德国联邦国防军将从2022年4月起担任指挥国家灾难援助等任务。这是德国国防部长重组德国联邦国防军的计划之一。部长正在为更快的行动准备，她希望军队管理人员更少，更好，和更快。
 
-土耳其总统雷杰普·塔伊普·埃尔多安今天对以色列进行猛烈抨击，他并未直接对犹太人发表讲话。根据他的世界观，犹太人被允许生活和实现自己的信仰，但不能作为统治力量，当然也不能在耶路撒冷。最近，埃尔多安（Erdogan）指责以色列对巴勒斯坦人进行“恐怖主义”，并说这是以色列人的自然属性。 美国政府称他的言论是“反犹太人的”。
+根据国防部长和和总检察长在柏林的新闻发布会上发表了德国联邦国防部未来的关键问题文件，柏林和波恩的司令部应该控制从灾难发生时的行政援助和国防支持行动的总指挥。
 
-激怒埃尔多安的是，迄今为止没有其他伊斯兰国家站在巴勒斯坦一边。他感到非常沮丧，以至于他甚至周一在梵蒂冈与教皇弗朗西斯进行电话交谈时呼吁支持。
+国防部长强调指出，关键问题文件不是旧联邦议院的重大改革。该文件包含了对德国联邦国防军结构的讨论，研究，规范和建议。没有计划减少部队和关闭营地的计划。
 
-简评： 土耳其总统公开对哈马斯的支持已经表明了他的态度， 他也是一个独裁者和有恐怖倾向的总统。 庆幸的是， 世界上没有几个国家支持哈马斯， 本人认为， 在巴以冲突中， 也要区别出，哈马斯和巴勒斯坦人。 他们不是一个概念， 就像我们爆料革命所说的中共不等于中国， 也不等于中国人。 这必须要分开。 我们反对的是恐怖主义， 但是我们不反对巴勒斯坦人。 无独有偶， 哈马斯这个恐怖组织是拿巴勒斯坦人当人质当炮灰的。 他们和中共是一路货色。
+简评： 德国的国防军要重组， 主要意思是要让国防军的运转效率更高， 介绍中间环节， 让国防军的指挥和行动力更有效率。 二战以来， 德国的国防军从来没有进行过任何重组行动， 因为是历史原因， 德国从来都不敢提及军队的大规模建设，尤其是冷战结束以后， 德国可能遇到的军事威胁也已经不复存在。 现在这个重组是不是和最近的国际形式， 和局部的紧张局势有关呢。 值得思考。
 
 免责声明， 本文只代表作者观点， 与 Gnews平台无关。
 发表： Shuizhuyu
 
-🔗[Tuerkei-Erdogans-Palaestina-Kalkuel](https://www.welt.de/politik/ausland/plus231224745/Tuerkei-Erdogans-Palaestina-Kalkuel.html)
+🔗[annegret-kramp-karrenbauer-will-bundeswehr-schneller-machen](https://www.spiegel.de/politik/deutschland/annegret-kramp-karrenbauer-will-bundeswehr-schneller-machen-a-5c4a7b62-daef-45e9-8c01-5a4b01520013)
 
-+1
+
+
+0
