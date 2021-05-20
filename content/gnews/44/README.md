@@ -1,25 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】天舟二号推迟发射
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1258419/)
+## 5/19/2021日每日快郭先生策划开发“躺平”币，用“躺平”币发展為躺平运动
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1258749/)
 
-**环球网****5****月****20****日报道**
+**制作：Cantonese工作室**
 
-**据中国载天工程办公室消息，天舟二号货运飞船发射任务，因技术原因推迟发射，发射时间另行确定。**
+*资料整理：Elaine、文依、An
+海报製作：儂民、Penny
+视频製作：Ken*
 
-简评：
 
-因为技术原因。
-
-参考链接：环球网
-
-图片来源：[https://www.setn.com/](https://www.setn.com/)
-
-整理撰稿：蓝精灵
-
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
-
-0
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20011905/%E6%88%AA%E5%9C%96-2021-05-20-00.17.30.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20012023/%E6%88%AA%E5%9C%96-2021-05-20-00.18.08.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20011943/%E6%88%AA%E5%9C%96-2021-05-20-00.17.52.png)
++1
