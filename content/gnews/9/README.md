@@ -1,69 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【信仰之声】今日祷告——为消灭中共的正道之战求告神
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1258232/)
+## 【拆台新闻】中共的洗脑模式 非自然 人群传代 完美扩张
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1258270/)
 
-作者：纽约香草山福音部
+我在网络上看到了一个视频， 它告诉了大家目前在中共国最流行，最多人参与的网络销售现状。拍摄者是这样说的：
 
+在中国东部的浙江义乌，数以万计的人们带着暴富和成名的梦想来到这里，涌向近年在中国兴起的直播带货行业。这也催生了当地各类直播培训机构，它们教新手如何活跃气氛，成功说服观众掏钱买单。BBC记者白洛宾（Robin Brant）来到这里，了解渴望成为带货主播的人们的想法。
 
+简评：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
+互联网销售模式是中共国的一大特色，除了给网络巨头（中共控制的网络巨头），阿里巴巴，品多多，美团，抖音等等贡献流量之外，还给他们提供了大量的数据，通过这些表现行为模式的数据分析，中共已经可以准确地把握民众地喜好点，薄弱点，思潮起点。 不管是丑恶的还是夸张的还是匪夷所思的，只要对中共有用， 就可以扩散。表面上看， 是一种行为销售模式， 更深层地是通过这种模式，隐秘地引导舆论，引导思想，进而达到不知不觉被洗脑的高级阶段。
 
+中共的洗脑模式象病毒一样，不断地在进化，还是非自然地，就像CCP病毒一样， 通过互联网巨头这个实验室，制造，修饰，插入基因，人群传代，最后悄无声息地，大面积扩散。瘟疫大流行地同时，红色思想病毒，也以相同的模式在蔓延。
 
+我们从这个点来看待很多中共在商业，教育，健康，几乎所有的中共治下的制度与模式，都能够看到CCP病毒的完美犯罪的特征。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19221930/98-2.jpg)图源网络
-
-坐在白色大宝座上的耶和华永生神啊
-
-你是万王之王，你创造天地。
-
-主啊，求你侧耳而听我的祈求！
-
-求你睁眼看这个世界！
-
-要听中共政权如何辱骂永生神的话，
-
-看他们如何抵挡你的道，
-
-并无辜杀戮你所造的人。
-
-主啊，中共政权使列国之地变为荒凉，
-
-将列国的尊严践踏在脚下。
-
-因为它本不是神，
-
-竟然想要取代我主永生神，
-
-所以求你灭绝它。
-
-主啊！
-
-愿我所求的按你自己的意旨成全！
-
-（本文仅代表作者观点）
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+参考链接：
 
 
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+> 在中国东部的浙江义乌，数以万计的人们带着暴富和成名的梦想来到这里，涌向近年在中国兴起的直播带货行业。
+> 
+> 这也催生了当地各类直播培训机构，它们教新手如何活跃气氛，成功说服观众掏钱买单。
+> 
+> BBC记者白洛宾（Robin Brant）来到这里，了解渴望成为带货主播的人们的想法。 [pic.twitter.com/QUwOCssdVW](https://t.co/QUwOCssdVW)
+> — BBC News 中文 (@bbcchinese) [May 20, 2021](https://twitter.com/bbcchinese/status/1395191056749277184?ref_src=twsrc%5Etfw)
 
 
+
+图片来源：[https://twitter.com/bbcchinese](https://twitter.com/bbcchinese)
+
+整理撰稿：蓝精灵
+
+校对发布：Penny
+
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0
