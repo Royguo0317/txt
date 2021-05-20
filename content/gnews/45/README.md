@@ -1,148 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 战友展览板【5/19】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1257563/)
+## 中共病毒的起源: 是人类还是自然在武汉打开了潘多拉盒子？（第四部分）
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1257787/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
-
-【以毒灭共】推文。如下
-
-
-
-> 蓬佩奥在福克斯说：
-> 所有证据都指向武毒所，中共知道谁是0号病人！
-> 如果我说错了，中共你快来羞辱我蓬佩奥，放马过来吧,向世界展示真相!
-> 但他们不敢
-> 
-> 僖战第13次被葑，这是新号，欢迎关注 [pic.twitter.com/5hS18TIBTQ](https://t.co/5hS18TIBTQ)
-> — 乔戈里峰 (@K2Qiaogeli) [May 18, 2021](https://twitter.com/K2Qiaogeli/status/1394799768925208578?ref_src=twsrc%5Etfw)
-
-
-1. **[喜站推特](https://twitter.com/K2Qiaogeli/status/1394799768925208578?s=20)**：
-*蓬佩奥在福克斯说： 所有证据都指向武毒所，中共知道谁是0号病人！ 如果我说错了，中共你快来羞辱我蓬佩奥，放马过来吧,！向世界展示真相，中共不敢 
-僖战第13次被葑，这是新号，欢迎关注*
-
-
-> 刘叔文当年的博文很“诚实”地介绍了他的背景，来到姜世勃在纽约血液中心的实验室异常激动，因为有NIH的全力资助…
-> 纽约血液中心给军医科培养了一帮制毒者，看到图4的作者列表，我都怀疑纽约是不是早就被共军插上红旗了🤯[https://t.co/vNQnvyIM9F](https://t.co/vNQnvyIM9F) [https://t.co/xRtvVtNj9X](https://t.co/xRtvVtNj9X) [pic.twitter.com/EeiDWASWsR](https://t.co/EeiDWASWsR)
-> — 慕尼黑感恩 (@himalaya\_de) [May 19, 2021](https://twitter.com/himalaya_de/status/1394842065293529099?ref_src=twsrc%5Etfw)
-
-
-2. **[感恩农场推特](https://twitter.com/himalaya_de/status/1394842065293529099?s=20)**：
-***（闫）**一，让我们看看刘叔文博士，其被称为姜世勃博士在纽约血液中心接受军事训练的搭档。尽管刘从2002年到2014年在纽约血液中心工作，但他从未停止在中共国第一军医大学工作（图中绿色框内）；
-二，自2004年以来，从第一军事医科大学转向南方民用医科大学。然而，以前的解放军工作人员与解放军保持着牢固的联系。刘在纽约工作时晋升为中国教授。这（图）是他合作的一个例子。看看他们是谁？
-
-**（感恩）**[刘叔文当年的博文很“诚实”地介绍了他的背景](http://www.xys.org/forum/db/175/91.html)，来到姜世勃在纽约血液中心的实验室异常激动，因为有NIH的全力资助… 纽约血液中心给军医科培养了一帮制毒者，看到图4的作者列表，我都怀疑纽约是不是早就被共军插上红旗了*
-
-*(Sellin）[闫丽梦博士提供一些非常重要的信息。刘叔文和姜世勃一样是解放军。南方医科大学是第一军事医科大学，也是与人工插入 #COVID19 的“铁证”——弗林酶切位点的相关机构](https://twitter.com/LawrenceSellin/status/1394902063939788800)*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19162623/E1uxF-wWQAEiGQp.jpeg)3-0. **[Sellin博士推特](https://twitter.com/lawrencesellin/status/1394904550675521536?s=21)**：
-*这张图片证明了闫丽梦科学家是正确的。南方医科大学是解放军第一军事医科大学，刘书文是解放军。“铁证”，人工擦入 #covid19 的弗林酶切位点是来自该医科制药科学研究所*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19163609/E1u0F62XIAQzQSB.jpeg)3-1. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1394907333776580608?s=20)**：
-*[在劳伦斯·塞林2021年5月18日的新闻中说，“铁证”——人工擦入 #COVID19 的弗林酶切位点是由那些军事化民用南方医科大学的解放军干的](https://www.thegatewaypundit.com/2021/05/report-chinas-military-weapon-covid-19-constructed-completely-command-control-chinese-military/)*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19164025/E1vxrf4WUAA4dm5.jpeg)3-2. **[Sellin博士推特](https://twitter.com/lawrencesellin/status/1394974405395161091?s=21)**：
-*武汉病毒研究所在中国人民解放军创建 #COVID19 计划中的作用是什么？新冠病毒最后组装和初步测试？靠近爆发中心，武汉大学有一个非人类灵长类动物的测试设施
-#中共病毒 #福奇 #新冠疫苗*
-
-
-> This is the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) Indian variant B.1.617 with a P681R mutation. The furin cleavage site (FCS) changed from PRRARS to RRRARS, likely making it more functional and, potentially, more infective.
-> The FCS was artificially inserted by CCP military scientists.[https://t.co/6u0DTdoTGf](https://t.co/6u0DTdoTGf)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 19, 2021](https://twitter.com/LawrenceSellin/status/1394959351861948418?ref_src=twsrc%5Etfw)
-
-
-4. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1394959351861948418?s=20)**：
-*[这是#COVID19印度变体B.1.617的突变P681R。弗林酶切位点（FCS）从PRRARS变为RRRARS，可能使其功能更强，并有可能更具感染性。](https://www.ndtv.com/world-news/singapore-variant-of-coronavirus-affecting-children-what-we-know-so-far-2444387#publisher=newsstand)FCS是由中共军事科学家人为插入的**（投毒）***
-
-
-> Now let's get him to admit he stone called lied about NIH financing gain of function weaponization of virus research at the Wuhan lab. Evidence of third party funding and collaboration is overwhelming. Fauci is father of the virus.[https://t.co/hWFEvvPjJD](https://t.co/hWFEvvPjJD)
-> — Peter Navarro (@RealPNavarro) [May 18, 2021](https://twitter.com/RealPNavarro/status/1394802805861494788?ref_src=twsrc%5Etfw)
-
-
-5. **[彼得·纳瓦罗推特](https://twitter.com/RealPNavarro/status/1394802805861494788?s=20)**：
-*[现在，让我们让福奇承认，他在NIH资助武汉病毒研究所的病毒武器化、病毒功能增强研究上的说法是骗不了人。 第三方资助和合作的证据是非常多的。福奇是病毒之父](https://www.washingtonexaminer.com/news/fauci-admits-wore-mask-optics-didnt-want-give-mixed-signals)*
-
-
-> Some people read, some people listen to Fauci. [https://t.co/dikKrBGb4e](https://t.co/dikKrBGb4e)
-> — Dr. Urso (@richardursomd) [May 18, 2021](https://twitter.com/richardursomd/status/1394773949549105152?ref_src=twsrc%5Etfw)
-
-
-6. **[乌尔索博士推特](https://twitter.com/richardursomd/status/1394773949549105152?s=20)**：
-***（作家沙雷尔）**[印度奥迪沙邦也公开驳斥了世卫组织!奥迪萨邦将购买72万片伊维菌素用于隔离的病人](https://timesofindia.indiatimes.com/entertainment/events/bhubaneswar/odisha-to-buy-7-2-lakh-ivermectin-tabs-for-patients-in-isolation/articleshow/82598202.cms?from=mdr)
-
-**(乌索尔）**有的医生会去👀，有的医生只听福奇的*
-【灭共时代】
+**作者: Nicholas Wade | 2021年5月5日**
+**翻译: Jessi/詹茜 校对: pv0**
 
 
 
-> 交易平台币安：暂停以太坊和ERC20的提款。
-> 
-> 这韭菜盒子真香！
-> — 财经真相 (@caijingxiang) [May 19, 2021](https://twitter.com/caijingxiang/status/1395003571418980352?ref_src=twsrc%5Etfw)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09181416/00123-1.jpg)**图源: HECTOR RETAMAL /法新社 盖蒂图片社**
 
 
-**[财经真相推特](https://twitter.com/caijingxiang/status/1395003571418980352?s=20)**：
-*交易平台币安：暂停以太坊和ERC20的提款。 这韭菜盒子真香
-（中共国立法禁止比特币交易，这政策如同禁止黄金交易的法律！挥刀嚯嚯向富豪，美国也会立法禁止比特币的，但不会立法禁止黄金交易）*
+
+武汉病毒研究所内部。巴里克已经研究出了（并且教授给了石）一种对蝙蝠冠状病毒进行改造以使其攻击别的物种的通用方法。特定目标就是在培养物和人源化的小鼠身上生长的人类细胞。这些便宜的、合乎伦理的充当了人类受体的替身的实验室小鼠，被基因改造成为携带了名为ACE2，分布在人类气道细胞表面的人类版本的蛋白质。
+
+石正丽回到了她在武汉病毒研究所的实验室，重新开始她之前进行的基因改造冠状病毒以攻击人类细胞的工作。我们怎么能这么肯定呢？
+
+因为，该故事中出现了一个奇怪的转折，美国国家卫生研究院（ the US National Institutes of Health ）的下属机构国家过敏和传染病研究所（the National Institute of Allergy and Infectious Diseases (NIAID)）资助了她的工作，作为公开记录的经费申请报告中明确说明了她打算利用这笔资金做什么。
+
+这笔拨款被划给了主承包商，生态健康联盟的达萨克，他又转包给了石。以下是2018和2019财政年度的拨款摘录。（“CoV”代表冠状病毒，而“S蛋白”指的是冠状病毒的刺突蛋白。）“CoV跨物种传播的测试预测。对宿主范围的预测模型（即发生的可能性）将进行实验测试，使用反向遗传学、假病毒、受体结合试验、以及一系列来自不同物种和人源化小鼠的细胞培养物的病毒感染试验。”
+
+“我们将使用S蛋白序列数据、感染克隆性技术、体外和体内感染实验以及对受体结合分析来检验S蛋白序列的分化阈值百分比预测溢出潜力的假设。”
+
+用非技术性语言来说，这意味着石打算制造可能最易感染人类细胞的新型冠状病毒。她计划提取对S蛋白编码的基因，S蛋白对人类细胞的亲缘关系从高到低各有不同。她将把这些刺突基因一个接一个地插入到若干病毒基因组的骨架里（“反向遗传学”和“感染性克隆技术”），制造出一系列嵌合病毒。然后再测试这些嵌合病毒攻击人类细胞培养物（体外）和人源化小鼠（体内）的能力。该信息将有助于预测冠状病毒从蝙蝠传染给人的“外溢效应”的可能性。
+
+该系统方法的设计旨在找到冠状病毒骨架和感染人类细胞的S蛋白的最佳组合。该方法可能已经制造出了类似非典2的病毒，而且确实可能通过病毒骨架和S蛋白的最佳组合制造出了非典2病毒本身。
+
+现在还不能确定石在她的实验室里制造还是没制造非典2病毒，因为她的工作记录已经被封存了，但是看来她一定是走在这样做的路上。美国罗格斯大学（Rutgers University）的分子生物学家和生物安全顶级专家理查德·埃布赖特（Richard H. Ebright）说道：“显然，武汉病毒研究所正在系统性地制新型嵌合冠状病毒，并评估其感染人类细胞及表现出人类ACE2的小鼠的能力。”
+
+“这也很清楚的是，”埃布赖特称，“根据被选作用于分析的恒定的基因组背景来看，此项工作可能已经制造出了新冠病毒或新冠病毒的近端先祖。”基因组背景指的是用作S蛋白测试平台的特定病毒骨架。
+
+关于非典2病毒的起源的实验室逃逸的场景（到目前为止应该很清楚了），不是仅仅伸手指向武汉病毒研究所那么简单的事情。根据由国立过敏和传染病研究所资助的具体项目来看，这是一份详细的提案。
+
+即便这笔拨款对上述的工作计划提出了要求，我们如何能确定该计划确实得到了实施？对此，我们只能相信达萨克的话，过去十五个月来，他一直极力坚称非典2病毒实验室逃逸学说是由抨击中国的人炮制的荒谬的阴谋论。
+
+2019年12月9日，在公众对非典2疫情大流行的爆发一无所知之前，在一次采访中，达萨克热情洋溢地谈论武汉病毒研究所的研究人员如何一直在重新编辑S蛋白以及制造能够感染人源化小鼠的嵌合冠状病毒。
+
+“我们现在已经发现了，你知道，经过6到7年的研究，超过100多种与非典有关的新型冠状病毒，与非典病毒非常接近，”达萨克在本次采访的28分钟左右时说道。“其中有些进入了实验室的人类细胞，有些能在人源化小鼠模型上引起非典疾病，而且无法运用单克隆抗体治疗进行医治，也不能通过接种疫苗来对抗它们。所以，这是一个明显和现实的危险……”
+
+“采访者：你说这些是各种各样的冠状病毒，你不能通过接钟疫苗对抗它们，也没有抗病毒药–那么我们该怎么办？”
+
+“达萨克：嗯，我认为……冠状病毒–你在实验室里操纵他们很容易。在人畜共患风险中，S蛋白是促使新冠病毒形成的主要原因。所以你能获得S蛋白序列，你能制造S蛋白，我们多次同北卡罗纳大学的拉里夫.巴里克合作进行这项研究。把它插入到另一种病毒的骨架中，并在实验室里做一些工作。所以当你发现一个序列时，你能更有预测性。你已经获得了这种多样性，现在疫苗的逻辑发展是，如果你要开发一种非典疫苗，人们会用大流行非典病毒，但是让我们插入一些其他东西，那就会开发出一种更好的疫苗。”他提到的插入或许包括下面讨论的被称为弗林酶切位点的元素，这极大地增加了病毒对人类细胞的感染性。
+
+达萨克杂乱地提到的事实是，一旦你制造出了一种能攻击人类细胞的新型冠状病毒，那么你就能提取其S蛋白，使其作为疫苗的基础。
+
+几天后，当达萨克听说了武汉疫情爆发时，人们必须设想一下达萨克的反应。他比任何人都清楚武汉病毒研究所的目标是制造传染人的蝙蝠病毒，以及该研究所在自己的研究人员不被感染方面薄弱的防御能力。但是，他没有向公共卫生当局提供他所掌握的大量信息，反而立即发动了一场公关运动，让全世界相信这场流行病不可能是由该研究所的一种改造过的病毒所导致的。他在2020年4月的采访中宣称，“病毒是从实验室逃逸的观点只是纯粹的胡说八道，完全不是真的。”
 
 
-> 基督耶稣的出生地在巴勒斯坦境内，成长和临难地在以色列境内，所以去以色列的信徒和观光客也必定去巴勒斯坦。巴方为了方便游客进入，甚至连检查护照的手续都省了。巴、以在民间在经济上已经相当程度和平共存，战争绝不是人民的需要，而是恐怖分子和激进分子的穷折腾！还有背后黑暗势力的扇风点火！ [https://t.co/BHsdJUzRMn](https://t.co/BHsdJUzRMn)
-> — 瞿水台 Qu Shuitai (@QuShuitai) [May 18, 2021](https://twitter.com/QuShuitai/status/1394756124268761091?ref_src=twsrc%5Etfw)
+
+**原文: **
+
+[The origin of COVID: Did people or nature open Pandora’s box at Wuhan?](https://thebulletin.org/2021/05/the-origin-of-covid-did-people-or-nature-open-pandoras-box-at-wuhan/)
 
 
-**[瞿水台推特](https://twitter.com/QuShuitai/status/1394756124268761091?s=20)**：
-***（约翰）**以色列情报机构估计，伊斯兰圣战组织和其他巴勒斯坦激进组织在加沙藏匿了大约3万枚火箭弹和迫击炮弹。 加沙武装分子公开将其成功归功于伊朗所提供的帮助。 除了提供走私武器和设备外，伊朗还侧重于培训，以帮助哈马斯提高当地生产水平，扩大火箭弹射程并提高其准确性。 那么伊朗后面又是谁在支持呢？（人民网爆，哈马斯恐怖主义的背后支持者是伊朗，伊朗的背后是共产党）
 
-**（瞿水台）**基督耶稣的出生地在巴勒斯坦境内，成长和临难地在以色列境内，所以去以色列的信徒和观光客也必定去巴勒斯坦。巴方为了方便游客进入，甚至连检查护照的手续都省了。巴、以在民间在经济上已经相当程度和平共存，战争绝不是人民的需要，而是恐怖分子和激进分子的穷折腾！还有背后黑暗势力的扇风点火！*
+* * *
 
+**发布: 法国巴黎七星编辑组**
 
-> 以色列指责中国国家电视台“公然反犹” [https://t.co/UPCU3bFi3H](https://t.co/UPCU3bFi3H)
-> — 美国之音中文网 (@VOAChinese) [May 19, 2021](https://twitter.com/VOAChinese/status/1395012501796835332?ref_src=twsrc%5Etfw)
-
-
-**[美国之音推特](https://twitter.com/VOAChinese/status/1395012501796835332?s=20)**：
-*以色列官方指责中共国国家电视台“公然反犹”*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19165630/E1u9XeQUUAYY20d.jpeg)**[冠军的后妈推特](https://twitter.com/caqiangzouhuomg/status/1394916726408572936?s=21)**：
-*哎唷… 這回理解的更深刻了*
-
-
-> 美军驻台,等土共强烈谴责吧.[#土共](https://twitter.com/hashtag/%E5%9C%9F%E5%85%B1?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/CEjw8dX1FL](https://t.co/CEjw8dX1FL)
-> — 诗和远方 (@realcolidorra) [May 19, 2021](https://twitter.com/realcolidorra/status/1395034356419158019?ref_src=twsrc%5Etfw)
-
-
-**[诗和远方推特](https://twitter.com/realcolidorra/status/1395034356419158019?s=20)**：
-*[美军驻台,等土共强烈谴责吧](https://www.setn.com/News.aspx?NewsID=941168)*
-
-
-> 哪个更具杀伤力？
-> 其实浅显易懂，前者俘虏的是士兵，后者俘虏的是将军。 [pic.twitter.com/uoGyfA5F8M](https://t.co/uoGyfA5F8M)
-> — 湘女 (@bqB9Ml6aFloKS2F) [May 19, 2021](https://twitter.com/bqB9Ml6aFloKS2F/status/1394989958520360962?ref_src=twsrc%5Etfw)
-
-
-**[湘女推特](https://twitter.com/bqB9Ml6aFloKS2F/status/1394989958520360962?s=20)**：
-*哪个更具杀伤力？ 其实浅显易懂，前者俘虏的是士兵，后者俘虏的是将军*
-
-
-> 20210518蓬佩奧國務卿接受新唐人採訪（新疆部分）
-> 1.定義CCP在新疆的種族滅絕，這個動作本身就很重要
-> 2.美國很少會定義誰實施了種族滅絕
-> 3.這個定義是經過深思熟慮、小心謹慎、基於事實的認定
-> 4.還有公司跟如此駭人聽聞、專制獨裁、否定普通人的基本人權的中共政府勾結
-> 5.北京冬奧會是種族滅絕奧運會 [pic.twitter.com/DudxtZEH7X](https://t.co/DudxtZEH7X)
-> — Andy5 (@andy5\_123) [May 19, 2021](https://twitter.com/andy5_123/status/1394960931046703104?ref_src=twsrc%5Etfw)
-
-
-**[Andy5推特](https://twitter.com/andy5_123/status/1394960931046703104?s=20)**：
-*20210518蓬佩奥国务卿接受新唐人採访
-（新疆部分）
-1.定义CCP在新疆的种族灭绝，这个动作本身就很重要
-2.美国很少会定义谁实施了种族灭绝
-3.这个定义是经过深思熟虑、小心谨慎、基于事实的认定
-4.还有公司跟如此骇人听闻、专制独裁、否定普通人的基本人权的中共政府勾结
-5.北京冬奥会是种族灭绝奥运会
-（病毒）
-1.CCP在去年1-2月的行径就是切尔诺贝利的脚本
-2.CCP当时就不允许人得到信息、数据，其宣传机器栽赃美国
-3.去年蓬佩奥提出病毒来自武毒所被嘲讽·中共说不可能是人工产物
-4.有证据表明中共对病毒有研究，让其更具传染性
-请中共证明0号病人不是来自其实验室的生物*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19172302/E1u4LVOVkAEiD52.jpeg)**[Andy5推特](https://twitter.com/andy5_123/status/1394911019969904647?s=20)**：
-*签了好啊，签了之后这个病毒也就只可能叫「CCPVirus」了
-CCP想打种族歧视的这张牌，到最后一定会在病毒问题上成为被反杀的一张牌*
-
-
-+1
+0

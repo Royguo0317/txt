@@ -1,51 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共严厉打击比特币实属醉翁之意不在酒
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1258187/)
+## 苹果为了利益出卖灵魂
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1258343/)
 
-作者：纽约香草山健身部 幸福鸟
+撰稿：金生水
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19230033/201-1.png)图片来自网络
+科技媒体《黑客新闻》近日报道了苹果公司如何给予中共政权访问iCloud数据库的权利以及审查其上架的应用程序。
 
+在2018年7月，当贵州云大数据（GCBD）同意与国有电信公司中共国电信达成协议，将属于苹果中共国用户的iCloud数据转移到后者的服务器时，这种转变引起了人们的担忧，即它可能会产生用户数据，容易受到国家监督。
 
+现在，根据《纽约时报》的深入报道，苹果公司的隐私权和安全性让步“几乎使该公司无法阻止中共国政府获得数百万封电子邮件，照片，文档，联系人和位置的信息的中共国居民。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+这些发现与苹果公司对隐私的承诺形成了鲜明的对比，同时也突显了一种承认中共国政府继续在中共国开展业务的要求的模式。苹果在2018年宣布，与GCBD合作的一部分，中国大陆用户的iCloud数据将移至贵州省的新数据中心。 过渡必须遵守2017年的一项法规，该法规要求将在中国用户身上收集的所有“个人信息和重要数据”“存储在香港”。
 
+iPhone制造商的支持文件说：“ iCloud在中国大陆由GCBD（AIPO Cloud（Guizhou）Technology Co. Ltd.）运营。这使我们能够继续改善在中国大陆的iCloud服务并遵守中国的法规。”
 
+尽管iCloud数据是端到端加密的，但据说Apple同意在所有iCloud加密密钥存储在美国服务器上之前将加密密钥存储在数据中心，因此要遵守有关政府访问请求的美国法律。
 
-5月19日，中共加强了对加密货币的打压力度，禁止银行和支付公司提供与加密货币交易有关的服务。此前一天，包括中（共）国国家互联网金融协会、中（共）国银行业协会和中（共）国支付与清算协会在内的三家有中共背景的机构在社交媒体上警告投资者，不要进行投机性加密交易。他们声称，消费者进行此类交易将得不到任何保护，且需对加密货币投资交易的任何损失后果自负。他们还补充说，最近加密货币价格的剧烈波动“严重违反了人们的资产安全”，并且正在扰乱“正常的经济和金融秩序”。
+尽管美国法律禁止美国公司将数据移交给中国执法部门，但《纽约时报》的报告显示，苹果和中国订立了“不寻常的安排”来回避美国立法。
 
-![]()![](https://ichef.bbci.co.uk/news/640/cpsprodpb/174DC/production/_99325459_gettyimages-825838988.jpg)图片来源：BBC中文（Getty Image）
+为此，该公司将客户数据的合法所有权转让给GCBD，除了授予对服务器的GCBD物理控制权以及对iCloud中存储的所有信息的完全访问权限外，从而允许“中国当局向Apple要求GCBD（而非Apple）客户的数据。”
 
-随后，比特币的价格在三个月内首次跌破34,000美元（24,030英镑），以太坊和狗狗币等其它加密货币的跌幅分别超过22％和23％。同时，特斯拉在华尔街的股价下跌超过3％。众所周知，该公司由埃隆-马斯克（Elon Musk）拥有，马斯克持有价值约15亿美元的加密货币。据报道，该公司的股价下跌很可能与手中持有大量数额的比特币有关。
+报告补充说，随着法律的通过，苹果公司在九起案件中向政府提供了数量不明的iCloud帐户的内容，并对三个政府的数据请求提出了质疑。但是，没有证据表明中国政府借助数字密钥获得了访问用户数据的权限。
 
-自2019年以来，中共以遏制洗钱为名，将中共国的加密货币交易打为非法行为。但是，比特币等货币交易仍然能够在网上继续进行，这让中共深感不安。
+此外，据报道，在中国拒绝对使用的设备进行认证之后，苹果通过建立自己的内部HSM来避开Thales生产的硬件安全模块（HSM）。 HSM包含一个或多个安全的加密处理器，用于执行加密和解密功能，并将加密密钥存储在防篡改的环境中。
 
-值得庆幸的是，今年4月21日，万众瞩目的喜币腾空出世了！爆料革命的战友们个个心高彩烈、摩拳擦掌、冲破重重阻碍地投入到喜币的预购热潮中。正如七哥所说，我们的喜币拥有20％的黄金储备做后盾，现已一币难求，前途更是不可限量。喜币的问世令中共魂飞胆丧，故此可见，其目前对比特币的严厉打击实属醉翁之意不在酒！
+该公司告诉《纽约时报》，它“从未损害”中国“或我们经营的任何地方”的用户或用户数据的安全性，并补充说其中国数据中心“具有我们最新，最完​​善的保护措施”，预计这将是推广到其他国家。
 
-参考阅读：
+安全研究人员和约翰·霍普金斯大学教授马修·格林在一系列推文中说：“苹果在2015年要求很多人支持他们反对FBI。” 他说：“他们使用法律工具库中的所有工具来阻止美国使用手机。他们是否认为有人会给他们怀疑的好处呢？”
 
-[Bitcoin falls further as China cracks down on crypto-currencies](https://news.yahoo.com/bitcoin-falls-further-china-cracks-101825126.html)
+“显然，苹果被迫赋予中共国政府对客户数据的更多控制权。从允许某些端到端加密的意义上说，当前的妥协甚至可能是’好的’。但是中共政权迟早会采取行动，要求苹果提供一些自己不想放弃的东西，苹果将不得不做出选择。也许他们已经有了选择，”霍普金斯补充道。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+文贵先生在5月18号的盖特中也指出苹果公司为了利益向中共妥协阻止郭媒体上架，为了市场而助纣为虐的苹果，早晚会得到应有的报应。
 
-编辑/校对/发稿：Irene木木
+（文章内容仅代表个人观点）
 
-**更多资讯，更多关注**
+*审核：**J**enny**编辑：**M**G1*
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+参考链接：
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[https://thehackernews.com/2021/05/how-apple-gave-chinese-government.html?utm\_source=feedburner&utm\_medium=feed&utm\_campaign=Feed%3A+TheHackersNews+%28The+Hackers+News+-+Cyber+Security+Blog%29&\_m=3n.009a.2485.es0ao0dz6i.1knc](https://thehackernews.com/2021/05/how-apple-gave-chinese-government.html?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+TheHackersNews+%28The+Hackers+News+-+Cyber+Security+Blog%29&amp;_m=3n.009a.2485.es0ao0dz6i.1knc)
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19113721/1-%E6%BE%B3%E5%96%9CLogo-8.jpeg)
 0

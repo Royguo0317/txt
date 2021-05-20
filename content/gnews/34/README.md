@@ -1,69 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】共产主义蚕食世界（十三）——从法国大革命、雅各宾派和巴黎公社挖掘共产主义的源头（下）
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1257533/)
+## 为什么共产党害怕加密虚拟货币？
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1257855/)
 
-作者：纽约香草山农场   文尊
+**摘要：在2021年5月7日的盖特视频中，郭先生解释了为什么中共那么害怕虚拟货币，因为区块链虚拟货币的最大属性是安全隐秘性，共产党无法任意抢劫你的财富。他说中共国巨额资金外逃，很多都流入了加密货币，对共产党的金融系统是毁灭性的打击，因为都知道共产党要完蛋了。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19210326/Miles_20210507-getter1.srt.txt)
+**为什么共产党害怕加密虚拟货币？**
 
+**Why Is the CCP Afraid of Cryptocurrencies?**
 
+要看到现在中共国内部[的问题]，像今天中信银行阻止国内任何人买比特币，[谁]买比特币[就]把帐号给你关了。招商银行事实上两周前已经开始了，民生银行也是早就开始了，而且为此抓了很多人。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
+Let’s see what’s happening within the CCP right now. For instance, today the China CITIC Bank stopped people in mainland China from buying bitcoins, and whoever buys bitcoins, his account will be closed. China Merchants Bank actually started  to do this two weeks ago, and Minsheng Bank started even earlier, and many people have been arrested because of this.
 
+大家要问一个问题：为什么那么多人要买比特币，买虚拟货币？很简单的道理：因为大家觉得国内不安全。买这些币的原因都不是作为投资的，都是把钱避险的。
 
+People may ask this question: Why are there so many people who want to buy bitcoins and virtual currencies? The reason is very simple. It’s because everyone feels that mainland China is not safe. The reason for buying these coins is not for investment, rather it is to avoid risks.
 
-**巴黎公社：不能为烧杀抢掠找任何阶级借口**
+英国头两天有一个曾经最反对虚拟货币的人加入了我们喜币系列。我还纳闷呢，为什么他加入我们的喜币呢？我说你不是最反对吗？我说你不是说加密货币没有任何内含价值吗？他说了句话，他说：“我过去说的没有内含价值，[但]我没有说它没有外在价值。”
 
-19世纪30年代的欧洲同时也在酝酿着改变人类政治结构的一股新势力——共产主义。在巴贝夫思想的影响下，1836年，一群流亡法国的德意志工人和手工业者组成了一个秘密革命团体——“正义者同盟”。1847年，同盟经马克思、恩格斯改造，在伦敦成立了“共产主义者同盟”。中国人耳熟能详的“四海之内皆兄弟”、“全世界无产者，联合起来”的口号都是来自于180多年前的共产主义者同盟。马克思、恩格斯是当时同盟的领导，起草同盟纲领。 1848年，世界上产生了国际共产主义运动第一个纲领性文献《共产党宣言》。当中明确规定同盟的目的是：推翻资产阶级，建立无产阶级统治，消灭旧的以阶级对立为基础的资产阶级社会和建立无阶级、无私有制的新社会。《国际歌》是这样唱的：“*起来，饥寒交迫的奴隶；起来，全世界受苦的人！满腔的热血已经沸腾，要为真理而斗争！ 旧世界打个落花流水…….从来就没有什么救世主，也不靠神仙皇帝。要创造人类的幸福，全靠我们自己！我们要夺回劳动果实，让思想冲破牢笼。快把那炉火烧得通红，趁热打铁才能成功！*”毛泽东曾说：“马克思主义的道理千头万绪，归根结底，就是一句话，造反有理。”打破旧世界的规则，冲破思想牢笼，即摧毁人类文明，割裂人与神的信仰纽带。通过摧毁一切社会秩序的世界革命而建立一个高度共产的世界政府，也是共产主义用来包装自己的“社会主义幸福大家庭”。
+A couple of days ago, someone in the UK, who used to oppose virtual currencies most strongly, joined our H-Coin series. I was wondering why he joined our H-Coin, so I asked, “Didn’t you say that you would be the one who opposed to it the most strongly? Didn’t you say cryptocurrencies had no any intrinsic value?” He said, “What I said in the past is that it has no intrinsic value, but I didn’t say that it has no extrinsic value.”
 
-1864年9月28日，第一国际成立；1871年3月，巴黎公社（法語：la Commune de Paris）成立。巴黎公社的主要成员和第一国际一样，为社会主义者、共产主义者、无政府主义者、工会以及暴民。第一国际的法国分部在1871年直接领导了巴黎公社运动，一脉相承了血腥革命的残暴。而共产主义的发展离不开阶级制造和阶级斗争。全世界无产阶级联合起来即是一股强大的改革力量，恐怕连马克思、恩格斯、列宁也不会想到，这一思想的发展其实背后早有推手。七年战争、法国大革命、普法战争、美国独立战争都需要耗费大量的金钱，当法国的国库因为战争而空虚时，政府的资金来源于何处？世界上最富有的从来都不是国王或是皇帝，也不是国家政府，少数的利益家族从古自今都掌握着国家的命脉。马克思也只不过是一枚旗子。当利益集团不能踏足俄罗斯时，一股新的理论便在俄罗斯蔓延，通过共产主义的代理人将沙皇踢出局，从此，俄罗斯也成了欧洲既得利益的一部分。马列尚且只是被玩忽于股掌的旗子，那就更不用说广大的劳苦人民了。人性的善良与弱点都被利益和权力的争夺所利用。（利益家族对国家的控制和今天中共通过“一带一路”的利益绑架实现控制其实同出一辙。）
+所有的财富，当它没有锚定挂钩的时候，所有的财富就是信用。还有就是安全的需要。所有的加密货币，最关键的[一个功能]，是[让]财富安全，还有就是让它独立的存在，不受到任何其它的威胁。
 
-巴黎公社利用了自法国大革命开始就出现的内部对立矛盾（即传统和反传统）。当时，巴黎公社议会主席路易-奥古斯特-布朗基（法语：Louis Auguste Blanqui）在他的《布朗基文选》中说到：“有两个原则把法国一分为二，一个是正统的原则，另一个是人民主权的原则。人民主权的原则团结着所有争取未来的人民群众，他们受尽剥削的折磨，所以要求打倒这些压得他们喘不过气来的框框。” 马克思在《[法兰西内战](https://www.marxists.org/archive/marx/works/1871/civil-war-france/)》中说：“帝国的直接对立物就是公社，即要求建立一个不但取代阶级统治的君主制形式，而且取代阶级统治本身的共和国。公社正是这个共和国的毫不含糊的形式。” 书中还提到，“公社是想要消灭那种将多数人的劳动变为少数人的财富的阶级所有制。如果这不是‘共产主义’，可能的共产主义又是什么呢？”由此看来，巴黎公社具有共产主义的特色。（思考中共的建政和今天美国的分裂。）
+All wealth, when it is not pegged to something, it basically relies on credit. Also there is the need for security. The most critical function of all cryptocurrencies is to make wealth safe and allow it to exist independently, not to be threatened by anything else.
 
-法国大革命、启蒙运动、雅各宾派专政、巴黎公社和共产主义的发展都有着直接的关系，也直接影响了前苏联和今天中共的执政手段。当中，巴黎公社在短暂统治巴黎的两个月期间给法国带来的是前所未有的毁坏：
+一样的道理，中共为什么限制[比特币]？不是说别的，就是因为大量的财富转移。而且国开行很多人[被]抓也因为和比特币有关系。国开行贪污的钱放哪去，他们很清楚，最终是能找着的。只有放到了虚拟货币里面，放[到]了以太币，火币，狗币，放[到]比特币，虚拟货币[里面]，大量的钱，而且拿不回来。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19183424/90-2.jpg)图源网络
+Similarly, why does CCP restrict bitcoin? Nothing but to restrict the massive transfer of wealth. Besides, many people at the China Development Bank (CDB) being arrested was also related to bitcoin. They know very well where the money embezzled by the CDB was hidden and they will eventually find the money. But only when the money is put in virtual currencies such as Ether, Huobi, and Dogecoin, and bitcoin, they will never be able to find it.
 
-1871年4月12日，巴黎公社委员会通过法令，5月8日拆除旺多姆圆柱（法語：Colonne Vendôme）。巴黎公社被推翻后，旺多姆圆柱和拿破仑雕像被重新竖起，至今仍然矗立在旺多姆广场。
+过去抓了像王建海航，是吧？这些人的钱在海外，共产党来了，[有]本人授权[加上]公司授权，甚至带了公司的财务和家人到美国来，这房子开始卖，是吧！找得着[就]能卖。比特币，加密币它[共产党]找不着，想拿回来几乎不可能。所以说查这个案子可以，把人办了可以，钱找不着。不可能像共产党一样，一抢一端一窝一窝的。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19183447/91-3.jpg)图源网络
+For example, after people like Wang Jian of HNA were caught, the CCP would come for their assets overseas. The CCP can obtain their own or their company’s authorization first, and even bring their company’s accountants and their family members to the US so that their properties can be sold, right? However, money in bitcoin and other cryptocurrencies cannot be found by the CCP, and it is almost impossible to take it away by the CCP. So it can investigate a case and arrest people, but the money will never be found. It will never be like the case when the CCP points a gun at someone, it will find the money this person previously hided in caves.
 
-乔治-达尔博伊（Georges Darboy），法国天主教南锡教区主教、巴黎教区总主教。1871年4月4日，他作为人质被巴黎公社逮捕，在巴黎公社将要失败时被处死。据《天主教百科全书》记载，有50名神职人员被巴黎公社作为人质杀害。当时，公社还没收教会财产，禁止学校传授宗教，诋毁宗教亵渎神像，是共产主义对宗教浩劫的历史罪行。（对比中共自建政以来从未停止的宗教迫害。）
+那么另外大家看到现在日本最近加密货币、虚拟货币起起伏伏当中，可以看到日本的经济也是在危在旦夕。因为大量的财富也进了加密货币、虚拟货币。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19183505/92-2.jpg)图源网络
+In addition, everyone can see that Japan’s recent ups and downs in cryptocurrencies and virtual currencies show that Japan’s economy is already at the verge of collapse. Because massive wealth has entered encrypted currencies and virtual currencies.
 
-1871年5月23日火烧巴黎。当时，巴黎公社焚烧卢森堡宫（法国参议院）、巴黎歌剧院、杜伊勒里宫（波旁王朝和第二帝国的正宫）、巴黎市政厅、内政部、司法部、王宫（Palais Royal）以及香榭丽舍大街两旁的豪华饭店和高级公寓楼。卢浮宫也差点在这次焚烧中化为乌有。
+只有区块链上安全，任何其它货币，任何可以等价或者有价衡量的证券都是被政治、被权力可以控制甚至可以销毁，甚至可以不算数的，那就没有任何信用可存在。它又没有安全性，那你要它什么？它本身就是一个贸易的工具，一个生产力的交易工具。所有加密货币第一条就是安全，所以很多人没闹明白：加密货币、区块链把人类整个财富和生产力的交换和生活方式彻底改变了 — 这是为什么共产党害怕？
 
+Blockchain is the only safe place. Any other currencies or securities whose value can be measured are all controlled by politics and powers, and can even be destroyed or voided. So there is no credibility in them at all. Since they are not safe, why do you want to have them? They are a trading tool, a tool for trading products. But the number one feature of cryptocurrencies is their security. Many people don’t understand this. Cryptocurrencies and blockchain have completely changed the way how we exchange wealth and productivity and changed the lifestyle of mankind entirely. This is why the CCP is so afraid.
 
-> *“巴黎或与我们同在，或不存在。”*
-> *巴黎公社领导人之一：路易丝‧米歇尔*
+几个月以前我说过1000多亿转到了加拿大，这些钱里边很多都投入了加密货币。不但如此，战友们还要看到一个更夸张的[情况就是]香港以及在亚洲有多少拿来生产，甚至贷款的钱都加入了加密货币 — 这对共产党的金融系统是摧毁的。为什么要这么做？因为都认为共产党要完球蛋了。
 
+A few months ago I said that more than 100 billion yuan was transferred to Canada, and much of it has been invested in cryptocurrencies. Not only that, my brothers and sisters, you will see that in Hong Kong and Asia a lot of money which was supposed to be used for production and even loans has been invested in cryptocurrencies. This is literally destroying the CCP’s financial system. Why do they do that? Because they all believe that the CCP will be over.
 
+而且共产党里边黑钱是全人类最大的，数以几万亿美元，共产党在倒闭前如果有个两三万亿美元流入到加密货币市场它所造成的效应是数十万亿美元，边际效应是几十万亿美元。
 
-> *“革命无疑是天下最权威的东西。革命就是一部分人用枪杆、刺刀、大炮，即用非常权威的手段强迫另一部分人接受自己的意志。获得胜利的政党如果不愿意失去自己努力争得的成果，就必须凭借它的武器对反动派造成的恐惧，来维持自己的统治。要是巴黎公社不依靠对付资产阶级的武装人民这个权威，它能支持一天以上吗？反过来说，难道我们没有理由责备公社把这个权威用得太少了吗？”*
-> *弗-恩格斯写于1872年10月-1873年3月。《马克思恩格斯全集》论权威P341-344*
+Moreover, the CCP has the most dirty money in all mankind – several trillion U.S. dollars. If two or three trillion dollars flow into the cryptocurrency market before the CCP collapses, it will have an impact of tens of trillions of dollars, so the marginal effect will be tens of trillions of dollars.
 
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/6095408937f7f73984c8e133](https://gtv.org/getter/6095408937f7f73984c8e133) (00:56-2:17, 2:57-4:14, 6:39-8:06)
+鸣谢：感谢盘古小蚂蚁、Antsee-GTV、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://www.gnews.org/zh-hans/1187871/](https://www.gnews.org/zh-hans/1187871/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
+* * *
 
-编辑/校对/发稿：Irene木木
+**字幕：【Rock小哥】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+翻译 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
-
-
-
-
-
-0
++1

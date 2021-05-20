@@ -1,82 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（二十五）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1258010/)
+## 【G时评】本来想玩一票大的
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1258099/)
 
-作者：纽约香草山信息部 6zero4
+**作者：Giselle**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19215134/%E9%87%91%E8%89%B2%E5%8F%A4%E5%85%B8%E9%9F%B3%E4%B9%90%E8%89%BA%E6%9C%AF%E5%8F%8A%E5%85%B4%E8%B6%A3%E7%B1%BB%E6%B4%BB%E5%8A%A8%E5%B0%81%E9%9D%A2.jpg)
+**图片设计**：Giselle
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+**1，《纽约时报》报道，苹果为了迎合中共，出卖用户隐私并按中共要求删除了5.5万款应用程式……**
 
+——苹果21日新品上市，《纽约时报》这时曝光苹果给中共跪下的丑闻，不合常理啊！《纽约时报》早已沦为中共走狗，这是要重新做人了？静观其变吧。
 
+**2，朱利安尼老先生的儿子安德鲁证实，将在2022年的州长竞选中，与现任纽约州州长库默竞争。他称这将是一场世纪之战，他要把纽约州从被摧毁的悬崖上拉回来。**
 
-5月18日塞林博士的5连推：
+——纽约州向来是美国的神经中枢和经济心脏，在金融、商业、工业、艺术、服装等方面，长期居于领导地位，并且拥有繁华的国际大都市纽约市和美国最大的港口纽约港。
 
-第1推，转发“火来2号”战友的中英混合推：这篇文章介绍拿着病人体内分离的Zika病毒给猴子接种，建立动物模型，由AMMS主导并完成，史佩勇(之前译为石培勇)也参与其中，提供试剂并分析数据。史佩勇拿着NIH和WHO的经费跟PLA合作，可以这样做么？需要一些明确答复，并标识出NIH经费的拨款编号AI087856，标注出当时主要的参与人员及其照片，他们是：李晓峰（PLA-AMMS微生物流行病研究所病原体生物安全国家重点实验室)）、史佩勇、秦成峰、童贻刚、高福和曹务春。并附上史佩勇在2016年9月与PLA科研人员联合发表的论文之网页截图。UTMB的史佩勇，当下正在Fauci的NIAID资助下，真正成为PLA的史佩勇，他理应被驱逐出境。向COVID-19侦探“火来2号”致敬！（李晓峰真容浮出水面）
+如果保守派的力量能够在纽约州占到上风，则世界和平又增加了 一份力量。
 
+安德鲁先生，加油哦！
 
+**3，经济学家马托斯出书，批判欧中贸易协议种种弊端。**
 
-> Pei-Yong Shi of the University of Texas Medical Branch, currently funded by Anthony Fauci's NIAID, is actually Pei-Yong Shi of the People's Liberation Army. He should be deported. (hat tip to [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw))[#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDEmergency](https://twitter.com/hashtag/COVIDEmergency?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Fauci](https://twitter.com/hashtag/Fauci?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/FMLqMNLGwP](https://t.co/FMLqMNLGwP)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 18, 2021](https://twitter.com/LawrenceSellin/status/1394592230124437504?ref_src=twsrc%5Etfw)
+——欧中贸易协议签订之后，中共与默克尔开香槟庆祝又成功把欧洲各国卖了一次。
 
+在过去的12年当中，中共国与欧盟的贸易顺差达到了1.8万亿欧元，相当于意大利在2019年的国内生产总值。
 
+欧盟各国不但付出了产业空心化代价，就连基本的价值观也被中共毒害了。
 
-第2推，在UTMB的史佩勇直接与PLA合作的同时，Fauci的NIAID资助却也正在资助他（经费拨款编号AI087856），并贴上史佩勇在2016年9月与PLA科研人员联合发表的有关寨卡病毒研究的论文之网页截图。
+**4，美国众议院议长佩洛西18日在一场国会听证会中，呼吁美国通过外交途径抵制2022年北京冬奥，她批评中国侵犯人权，并称参加冬奥会的全球领导人将失去其道德权威。**
 
+——佩洛西能说出这番话，挺让人惊讶的。
 
+不过，这就是政治：没有永恒的朋友，也没有永恒的敌人，只有审时度势的利益。
 
-> At exactly the same time that Pei-Yong Shi of the University of Texas Medical Branch is working directly with the Chinese People's Liberation Army, Anthony Fauci's NIAID is funding him (AI087856).[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#Fauci](https://twitter.com/hashtag/Fauci?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDEmergency](https://twitter.com/hashtag/COVIDEmergency?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/Wx1UUc9ep5](https://t.co/Wx1UUc9ep5)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 18, 2021](https://twitter.com/LawrenceSellin/status/1394599200793538560?ref_src=twsrc%5Etfw)
+**5，说说以色列的三道防御系统。**
 
+——**铁穹防御系统**：由发射、雷达、操控、监测等装置组成，可实现对来袭火箭弹的自动探测，并发射导弹，在空中拦截目标。该系统主要用于拦截短程至中程火箭弹和导弹的袭击，包括弹道导弹、巡航导弹、飞机和无人机。
 
+**“箭”式反导系统：**是世界上第一个试验性实战部署的高层反战术弹道导弹专用型地空导弹武器系统，由以色列和美国联合研制，主要用于拦截近、中程战术弹道导弹。
 
-第3推，重复发出上一推，再次明确敲打并警告Fauci与史佩勇，并贴上史佩勇在2016年10月与PLA科研人员联合发表的有关寨卡病毒研究的论文之网页截图。
+**大卫弹弓中程导弹拦截系统**：由以色列、美国联合研发，2012年11月20日在以色列南部沙漠中首次试验，成功击落一枚作为靶弹的中程导弹。
 
+**6，哈马斯此次派出了6架无人机，有4架被以色列秘密武器击落，请分析一下是哪种秘密武器？**
 
+——哈马斯辛辛苦苦走私进来6架无人机，本来想玩一票大的，没想到下场都很凄惨：一架被铁穹击落，一架被飞机携带的导弹轰死，剩下的4架，很有可能是被激光武器给“毙”掉的。
 
-> Again, at exactly the same time that Pei-Yong Shi of the University of Texas Medical Branch is working directly with the Chinese People's Liberation Army (Cheng-Feng Qin), Anthony Fauci's NIAID is funding him (AI087856).[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#Fauci](https://twitter.com/hashtag/Fauci?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDEmergency](https://twitter.com/hashtag/COVIDEmergency?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/2dA7f8Yw1r](https://t.co/2dA7f8Yw1r)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 18, 2021](https://twitter.com/LawrenceSellin/status/1394602393845833728?ref_src=twsrc%5Etfw)
+以色列一直在研发用于探测和反制无人机的多种系统，包括新的激光系统和使用网将小型无人机群击落的无人机。
 
+拉斐尔公司已研发出可以击落无人机的激光器，该公司在2020年2月一次演示中，展示了拦截众多小型无人机的能力。
 
+**（文章内容仅代表作者个人观点）**
 
-第4推，第三次发出上一推，事不过三，第三次重复敲打并警告Fauci与史佩勇，并贴上史佩勇在2017年5月与PLA科研人员联合发表的有关寨卡病毒研究的论文之网页截图，并加上Fauci的另一个NIH经费拨款编号AI103807。
-
-
-
-> 3rd time, at exactly the same time that Pei-Yong Shi of the University of Texas Medical Branch is working directly with the Chinese People's Liberation Army (Cheng-Feng Qin), Anthony Fauci's NIAID is funding him (AI087856, AI103807).[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#Fauci](https://twitter.com/hashtag/Fauci?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDEmergency](https://twitter.com/hashtag/COVIDEmergency?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/OY7bvhgswh](https://t.co/OY7bvhgswh)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 18, 2021](https://twitter.com/LawrenceSellin/status/1394604268179632132?ref_src=twsrc%5Etfw)
-
-
-
-第5推，转发Joe Hoft今天发表在Gateway Pundit上的一篇文章“报告：中共国的军事武器COVID-19完全是在中共军方的安排和控制下制造的”。
-
-
-
-> China’s Military Weapon COVID-19 Was Constructed Completely Under the Command and Control of the Chinese Military[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#FauciLied](https://twitter.com/hashtag/FauciLied?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusIndia](https://twitter.com/hashtag/CoronavirusIndia?src=hash&amp;ref_src=twsrc%5Etfw) [#Covid](https://twitter.com/hashtag/Covid?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/vYC50Nqusv](https://t.co/vYC50Nqusv)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 18, 2021](https://twitter.com/LawrenceSellin/status/1394646426592948228?ref_src=twsrc%5Etfw)
-
-
-
-塞林博士展示出史佩勇在2016年到2017年间，与CCP-PLA科研人员联合发表多篇论文之网页截图，都是有关寨卡病毒研究的论文，将病人体内分离出来的Zika病毒给猴子接种，建立动物模型，以探索该病毒的跨种传播特性，进而实现人畜共患的功能开发，最终达成病毒人传人的生物武器目标，UTMB的史佩勇深度参与其中。由此可见，中共军方很多时候连军民融合的底裤都懒得穿，干脆赤裸裸地裸奔，生物武器直接由CCP-PLA-AMMS主导，并深度渗透和绑架美国等西方国家的病毒学家，融合其资金和技术，借腹生子制造CCP自己苦思冥想的生物武器。所以，诸如 COVID-19等生物武器完全是在中共军方的安排和控制下制造出来就并不奇怪了！
-
-令人痛心疾首的是，史佩勇一面拿着美国纳税人支付的薪水，打着为UTMB工作的幌子，一面却拿着NIH和WHO的经费跟CCP-PLA合作，Fauci的NIH经费的拨款编号AI087856与AI103807就是板上钉钉的确凿证据。Fauci和史佩勇，你们怎么可以这么疯狂、这么无耻、这么无底线？你们欠世界一个明确的答暗！你们理应被美国驱逐出境，甚至连同CCP一起开除球籍！
-
-塞林博士三次重复发推，三次重复敲打并警告Fauci与史佩勇，你们俩与CCP军方合作的蛛丝马迹已经被美国军方掌握的清清楚楚，证据确凿，这是收网前给你们俩的最后通牒，是选择做污点证人给自己赎罪的机会，还是一条道走到黑与CCP一起亡命天涯？
-
-校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1
