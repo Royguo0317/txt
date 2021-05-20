@@ -1,58 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月19日美国政要反共推文精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1258011/)
+## 【锐语】数字人民币是特洛伊木马
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1258041/)
 
-众议员迈克·加拉格尔： 吉姆·乔丹是对的：共和党人，内阁官员，记者和美国人民都想知道新冠COVID-19的起源。 为什么关注冠状病毒的唯一国会委员会的民主党人却不希望把它查个底朝天呢？ 【附乔丹议员的视频】
+文字翻译：康州盘古农场翻译组
 
+对冲基金经理凯尔巴斯在接受采访时谈论了他都对中共国数字人民币的看法：
 
+我们知道中共国正在测试的数字元。其实有很多的炒作，很多的讨论是关于是否它可以取代美元或取代全球的外汇交换体系。
 
-> .[@Jim\_Jordan](https://twitter.com/Jim_Jordan?ref_src=twsrc%5Etfw) is right: Republicans, cabinet officials, journalists, and the American people all want to know about the origins of COVID-19. 
-> 
-> Why don't Democrats on the only Congressional committee focused solely on the Coronavirus want to get to the bottom of it? [pic.twitter.com/SA1nh3lQlA](https://t.co/SA1nh3lQlA)
-> — Rep. Mike Gallagher (@RepGallagher) [May 19, 2021](https://twitter.com/RepGallagher/status/1395098918514536453?ref_src=twsrc%5Etfw)
+但你是否真的认为中共国可以说服国际消费者和国际投资者进入数字人民币呢？
 
+凯尔·巴斯
 
+不，我不认为。我认为中共国可以强迫采用人民币数字货币进行贸易在中共国的投资，除非美国和西方将其取缔或基本上禁止它作为可以拥有的东西。
 
-参议员约翰·肯尼迪： CDC(疾病预防控制中心)认为 [#冠状病毒](https://twitter.com/hashtag/%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92?src=hashtag_click) 来自何处？ CDC（疾病预防控制中心主任）：“当然，基于实验室的起源是一种可能性。” 我想了解更多，您不想吗？ 【附视频：肯尼迪参议员就新冠病毒起源和功能增强性实验质询CDC主任】
+虽然我知道这听起来很夸张，我认为数字化是对西方最大的。我们在过去的30,40年所面对的就是允许了中共国做了很多事情，实际上他们将爪子刺入西方的每个人，并允许他们隐秘地导出了中共的数字权威主义，我相信这是数字特洛伊木马
 
+没有人相信中共国，没有人相信他们的政府。如今，只有1.8％的全球货币交易以人民币结算，而且几乎全都在香港。
 
+所以中共国只能自己交易，他们需要美元。
 
-> Where does the CDC think the [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) came from?
-> 
-> CDC director: “Certainly, a lab-based origin is one possibility.” 
-> 
-> I’d like to know more, wouldn’t you? [pic.twitter.com/kiTN6xkz12](https://t.co/kiTN6xkz12)
-> — John Kennedy (@SenJohnKennedy) [May 19, 2021](https://twitter.com/SenJohnKennedy/status/1395075426368819207?ref_src=twsrc%5Etfw)
+他们如何推出自己的数字货币，以及它如何影响世界对美国和欧洲的国家安全至关重要，我认为这是我们明年要重点关注的大事。
 
+简评：
 
+中共国的数字货币布局已经从8，9年之前就开始了，还是在华尔街的帮助下。文贵先生前几天直播的时候说过，中共国的数字货币已经测试了八九次都没有成功， 钱没了。大部分的国家目前都在紧锣密鼓的加紧数字货币的建设，一旦在制定数字货币的标准和流通规则上得到话语权和控制权， 无疑将来谁就占领了世界金融市场的主导地位。
 
-参议员卢比奥： 美国总统决定允许美国投资者继续资助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 军方用来制造武器的公司，这些武器有一天会来杀死美国人并在战争中打败我们。 【附卢比奥在福克斯电视台接受玛丽亚采访：就（拜登政府）将与中共国的贸易限制推迟到六月11号发表意见。呼吁与中共国战斗】
-
-
-
-> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) has decided to allow American investors to continue to fund companies the Chinese military is using to build weapons designed to one day kill Americans & defeat us in a war [pic.twitter.com/lYSQrK0aqL](https://t.co/lYSQrK0aqL)
-> — Marco Rubio (@marcorubio) [May 19, 2021](https://twitter.com/marcorubio/status/1395045937588887562?ref_src=twsrc%5Etfw)
+参考链接：
 
 
 
-众议员迈克·加拉格尔： 拜登政府提名了一个曾经为华为工作的游说律师担任我们情报圈高层职位。不仅仅是没有资格担任这项工作，还凸显了那些向外国对手兜售专长的前政府官员日益严重的问题。
+> "The digital yuan is the largest threat to the West that we've faced in the last 30,40 years," [@Jkylebass](https://twitter.com/Jkylebass?ref_src=twsrc%5Etfw) says. "It's a digital trojan horse." [pic.twitter.com/bwLZYpNx79](https://t.co/bwLZYpNx79)
+> — CNBC (@CNBC) [May 19, 2021](https://twitter.com/CNBC/status/1394831421500444674?ref_src=twsrc%5Etfw)
 
 
 
-> The Biden Admin nominated a K Street lawyer who has done work for Huawei for a top post in our intel community. Not only is this work disqualifying, it highlights the growing problem of former USG officials who peddle their expertise to foreign adversaries.[https://t.co/UoSsZp3f8n](https://t.co/UoSsZp3f8n)
-> — Rep. Mike Gallagher (@RepGallagher) [May 19, 2021](https://twitter.com/RepGallagher/status/1395017062414696448?ref_src=twsrc%5Etfw)
+新闻采编：康州盘古翻译组
 
+整理撰稿：蓝精灵
 
+校对发布：Penny
 
-参议员瑞克·斯科特： NBC显然试图通过拒绝播放2022年金球奖来传达一个信息。但是，他们是否会因支持人权拒绝播放2022年奥运会，直到将其移出 [#共产党中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E5%85%9A%E4%B8%AD%E5%9B%BD?src=hashtag_click)？我希望如此。在这儿读我给NBC的信。
-
-
-
-> NBC is clearly trying to send a message by refusing to air the 2022 Golden Globes. But will they stand for human rights by refusing to air the 2022 Olympics until they're moved out of Communist China? I’d hope so. Read my letter to [@NBCOlympics](https://twitter.com/NBCOlympics?ref_src=twsrc%5Etfw): [https://t.co/nXLR26BDTa](https://t.co/nXLR26BDTa)
-> — Rick Scott (@SenRickScott) [May 19, 2021](https://twitter.com/SenRickScott/status/1395129556282060810?ref_src=twsrc%5Etfw)
-
-
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

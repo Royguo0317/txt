@@ -1,48 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【锐语】数字人民币是特洛伊木马
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1258041/)
+## 【有声读物】雇主被警告：要对强制疫苗接种后的任何不良反应负责
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1258087/)
 
-文字翻译：康州盘古农场翻译组
+配音：香草山录音组 Gtv abeilles（蜜蜂）
 
-对冲基金经理凯尔巴斯在接受采访时谈论了他都对中共国数字人民币的看法：
-
-我们知道中共国正在测试的数字元。其实有很多的炒作，很多的讨论是关于是否它可以取代美元或取代全球的外汇交换体系。
-
-但你是否真的认为中共国可以说服国际消费者和国际投资者进入数字人民币呢？
-
-凯尔·巴斯
-
-不，我不认为。我认为中共国可以强迫采用人民币数字货币进行贸易在中共国的投资，除非美国和西方将其取缔或基本上禁止它作为可以拥有的东西。
-
-虽然我知道这听起来很夸张，我认为数字化是对西方最大的。我们在过去的30,40年所面对的就是允许了中共国做了很多事情，实际上他们将爪子刺入西方的每个人，并允许他们隐秘地导出了中共的数字权威主义，我相信这是数字特洛伊木马
-
-没有人相信中共国，没有人相信他们的政府。如今，只有1.8％的全球货币交易以人民币结算，而且几乎全都在香港。
-
-所以中共国只能自己交易，他们需要美元。
-
-他们如何推出自己的数字货币，以及它如何影响世界对美国和欧洲的国家安全至关重要，我认为这是我们明年要重点关注的大事。
-
-简评：
-
-中共国的数字货币布局已经从8，9年之前就开始了，还是在华尔街的帮助下。文贵先生前几天直播的时候说过，中共国的数字货币已经测试了八九次都没有成功， 钱没了。大部分的国家目前都在紧锣密鼓的加紧数字货币的建设，一旦在制定数字货币的标准和流通规则上得到话语权和控制权， 无疑将来谁就占领了世界金融市场的主导地位。
-
-参考链接：
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-> "The digital yuan is the largest threat to the West that we've faced in the last 30,40 years," [@Jkylebass](https://twitter.com/Jkylebass?ref_src=twsrc%5Etfw) says. "It's a digital trojan horse." [pic.twitter.com/bwLZYpNx79](https://t.co/bwLZYpNx79)
-> — CNBC (@CNBC) [May 19, 2021](https://twitter.com/CNBC/status/1394831421500444674?ref_src=twsrc%5Etfw)
 
 
 
-新闻采编：康州盘古翻译组
 
-整理撰稿：蓝精灵
+据自然新闻网站5月18日报道，美国联邦职业安全与健康管理局（OSHA）正在警告雇主，他们需对强制性中共冠状病毒“疫苗接种”政策导致的任何不良事件负责。
 
-校对发布：Penny
+例如，如果被强迫注射实验性mRNA基因疗法的雇员瘫痪或死亡，该伤害或死亡将被视为“与工作有关”，这意味着雇主将被追究责任。
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+
+
+**文字版原文：[【热点播报】雇主被警告：要对强制疫苗接种后的任何不良反应负责](https://gnews.org/zh-hans/1257374/)**
+
+作者：纽约香草山写作组 四季
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

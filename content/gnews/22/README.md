@@ -1,70 +1,170 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 为什么共产党害怕加密虚拟货币？
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1257855/)
+## 2021年05月19日澳喜要闻（每日更新）
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1258032/)
 
-**摘要：在2021年5月7日的盖特视频中，郭先生解释了为什么中共那么害怕虚拟货币，因为区块链虚拟货币的最大属性是安全隐秘性，共产党无法任意抢劫你的财富。他说中共国巨额资金外逃，很多都流入了加密货币，对共产党的金融系统是毁灭性的打击，因为都知道共产党要完蛋了。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19210326/Miles_20210507-getter1.srt.txt)
-**为什么共产党害怕加密虚拟货币？**
+撰稿：GTV澳喜影像视频组、新闻组
 
-**Why Is the CCP Afraid of Cryptocurrencies?**
+**一、路德社早间时评主要内容：**
 
-要看到现在中共国内部[的问题]，像今天中信银行阻止国内任何人买比特币，[谁]买比特币[就]把帐号给你关了。招商银行事实上两周前已经开始了，民生银行也是早就开始了，而且为此抓了很多人。
+- **美国防预算将全面对准中共国。**美国《外交政策》发表题为《五角大楼的预算愿望清单》的报道，拜登将布五角大楼7150亿美元的预算提案，把美国重心从中东转向中共国。该预算重点关注美国的太平洋威慑计划，旨在加强美国在印太地区的军事影响力，抗衡中共国的海军力量，并强化美国在关岛等地的导弹防御能力。接下来，像Sellin上校这样的无数国防承包商都会积极组建团队，撰写调研报告来推动灭共。这些机构只有通过撰写详细的报告才可能申请到国防预算。中共肯定也会收买美国某些机构去申请国防经费，从而来影响美国的战略决策。灭共战场从推特等社交媒体上升为专业报告领域。
 
-Let’s see what’s happening within the CCP right now. For instance, today the China CITIC Bank stopped people in mainland China from buying bitcoins, and whoever buys bitcoins, his account will be closed. China Merchants Bank actually started  to do this two weeks ago, and Minsheng Bank started even earlier, and many people have been arrested because of this.
 
-大家要问一个问题：为什么那么多人要买比特币，买虚拟货币？很简单的道理：因为大家觉得国内不安全。买这些币的原因都不是作为投资的，都是把钱避险的。
+- **美国因为闫博士路德社“119节目”下定灭共决心。**这一年多来，美国对闫博士的三篇报告进行无数次确认。中共不停利用媒体抹黑爆料革命，抹黑闫博士，但最终都变成打击中共的反作用力。前国务卿、前情报总监、纳瓦罗先生、班农先生、主流社会和美国军方等都站出来支持闫博士，接下来将有越来越多人公开支持闫博士。爆料革命战友发自内心地揭露中共病毒真相让美国看到中国人的正义和为真不破的品质。美国法律对造假深恶痛绝，中共的假骗偷早晚会被揭露，中共的信用到时肯定会彻底崩塌。纳瓦罗搭上自己的声誉来为闫博士站台，称赞闫博士的的报告非常出色。
 
-People may ask this question: Why are there so many people who want to buy bitcoins and virtual currencies? The reason is very simple. It’s because everyone feels that mainland China is not safe. The reason for buying these coins is not for investment, rather it is to avoid risks.
 
-英国头两天有一个曾经最反对虚拟货币的人加入了我们喜币系列。我还纳闷呢，为什么他加入我们的喜币呢？我说你不是最反对吗？我说你不是说加密货币没有任何内含价值吗？他说了句话，他说：“我过去说的没有内含价值，[但]我没有说它没有外在价值。”
+- **特斯拉电动汽车是颠覆性的创新科技。**马斯克下一步要把特斯拉打造成行动中的电脑，每辆特斯拉在行驶过程中可以挖矿，未来只要加装太阳能电池板，就能成为移动基站，并接收太空WIFI信号。区块链货币之所以去中心化就是因为每个人都可以挖矿，但马斯克认为比特币已中心化，中共持有大量比特币，全世界大部分挖矿机都在中共国。未来特斯拉汽车将会颠覆中共在比特币市场的地位。马斯克正在发展移动汽车来承载更多功能。他深知只要掌握移动终端，就能掌握移动房子、移动手机、移动电脑、移动WIFI和移动电源中心。中共至今没看明白，还在为发展阿里巴巴而自豪。拜登政府正在考虑对中共国太阳能电池板实施制裁，特斯拉将来肯定会推出具有颠覆性意义的电池板。
 
-A couple of days ago, someone in the UK, who used to oppose virtual currencies most strongly, joined our H-Coin series. I was wondering why he joined our H-Coin, so I asked, “Didn’t you say that you would be the one who opposed to it the most strongly? Didn’t you say cryptocurrencies had no any intrinsic value?” He said, “What I said in the past is that it has no intrinsic value, but I didn’t say that it has no extrinsic value.”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19213352/20210519_ABC-scaled.jpg)
+**二、路德社晚间时评主要内容：**
 
-所有的财富，当它没有锚定挂钩的时候，所有的财富就是信用。还有就是安全的需要。所有的加密货币，最关键的[一个功能]，是[让]财富安全，还有就是让它独立的存在，不受到任何其它的威胁。
+- **佩洛西呼吁抵制北京冬奥会。**美国众议院议长佩洛西以中共侵犯人权为由，呼吁美国和全球领袖对2022年北京冬奥会实施外交抵制。她称，去北京参加冬奥会的国家元首将在道德上失去权威。需要了解的是，中共体育实行举国体制，与政治直接相关。而美国等西方国家的运动员只代表个人，与政治无关。例如美国曾经抵制1980年苏联奥运会，但美国运动员依然可以参加，只不过要避免使用美国国旗等政治符号。目前，美国左右两派已经在抵制北京冬奥会上达成一致，而重视人权的左派将在抵制的态度和实际行动上更加猛烈。
 
-All wealth, when it is not pegged to something, it basically relies on credit. Also there is the need for security. The most critical function of all cryptocurrencies is to make wealth safe and allow it to exist independently, not to be threatened by anything else.
 
-一样的道理，中共为什么限制[比特币]？不是说别的，就是因为大量的财富转移。而且国开行很多人[被]抓也因为和比特币有关系。国开行贪污的钱放哪去，他们很清楚，最终是能找着的。只有放到了虚拟货币里面，放[到]了以太币，火币，狗币，放[到]比特币，虚拟货币[里面]，大量的钱，而且拿不回来。
+- **美国参议院将对“无尽边疆法案”进行讨论。**由美国两党联合提出的《无尽边疆法》草案，将授权超过1100亿美元，用于美国基础和先进技术的商业化研究，以及人工智能等关键技术领域的教育和培训。当前，参议院已经高票通过对该法案进行讨论以确定其最终条款的决定。白宫也表示该法案一旦在国会通过，拜登就会签字。《无尽边疆法》的出台意味着美国与中共国的科技、学术和教育彻底脱钩，在防守措施上又添一道屏障。美国攻防结合，在灭共的“诺曼底登陆”前进行着全面准备，让中共从法理上的结束尽快走向物理上的结束。
 
-Similarly, why does CCP restrict bitcoin? Nothing but to restrict the massive transfer of wealth. Besides, many people at the China Development Bank (CDB) being arrested was also related to bitcoin. They know very well where the money embezzled by the CDB was hidden and they will eventually find the money. But only when the money is put in virtual currencies such as Ether, Huobi, and Dogecoin, and bitcoin, they will never be able to find it.
 
-过去抓了像王建海航，是吧？这些人的钱在海外，共产党来了，[有]本人授权[加上]公司授权，甚至带了公司的财务和家人到美国来，这房子开始卖，是吧！找得着[就]能卖。比特币，加密币它[共产党]找不着，想拿回来几乎不可能。所以说查这个案子可以，把人办了可以，钱找不着。不可能像共产党一样，一抢一端一窝一窝的。
+- **中欧投资协议即将被欧洲议会冻结。**中欧投资协议的提出始于2012年中欧峰会，该协议有利于中共获取欧洲的市场和技术。因为欧洲国家的多党派制度使得执政党的影响力有限从而导致资金有限，所以更容易受到中共影响。2020年习神与欧盟领导人以及德国总理默克尔和法国总统马克龙完成中欧投资协议的谈判。2021年3月，欧盟因新疆人权问题对中共国官员实施制裁，中共国态度强硬立刻推出对等反制裁措施，引起欧盟议会不满。更重要的是随着中共病毒真相的浮现，越来越多的欧盟议员和欧洲国家领导人开始觉醒，由此在欧洲议会提出冻结中欧投资协议的议案。中共自食恶果，终让美梦落空。
 
-For example, after people like Wang Jian of HNA were caught, the CCP would come for their assets overseas. The CCP can obtain their own or their company’s authorization first, and even bring their company’s accountants and their family members to the US so that their properties can be sold, right? However, money in bitcoin and other cryptocurrencies cannot be found by the CCP, and it is almost impossible to take it away by the CCP. So it can investigate a case and arrest people, but the money will never be found. It will never be like the case when the CCP points a gun at someone, it will find the money this person previously hided in caves.
 
-那么另外大家看到现在日本最近加密货币、虚拟货币起起伏伏当中，可以看到日本的经济也是在危在旦夕。因为大量的财富也进了加密货币、虚拟货币。
+**三、澳洲新闻：**
 
-In addition, everyone can see that Japan’s recent ups and downs in cryptocurrencies and virtual currencies show that Japan’s economy is already at the verge of collapse. Because massive wealth has entered encrypted currencies and virtual currencies.
+- **澳议员拟向议会提交“禁止疫苗护照”法案**
 
-只有区块链上安全，任何其它货币，任何可以等价或者有价衡量的证券都是被政治、被权力可以控制甚至可以销毁，甚至可以不算数的，那就没有任何信用可存在。它又没有安全性，那你要它什么？它本身就是一个贸易的工具，一个生产力的交易工具。所有加密货币第一条就是安全，所以很多人没闹明白：加密货币、区块链把人类整个财富和生产力的交换和生活方式彻底改变了 — 这是为什么共产党害怕？
 
-Blockchain is the only safe place. Any other currencies or securities whose value can be measured are all controlled by politics and powers, and can even be destroyed or voided. So there is no credibility in them at all. Since they are not safe, why do you want to have them? They are a trading tool, a tool for trading products. But the number one feature of cryptocurrencies is their security. Many people don’t understand this. Cryptocurrencies and blockchain have completely changed the way how we exchange wealth and productivity and changed the lifestyle of mankind entirely. This is why the CCP is so afraid.
+据大纪元5月18日讯，近日，澳洲联邦议员克雷格·凯利在悉尼近千人的集会上宣布，他将在5月底的联邦议会上正式提交“禁止疫苗护照”法案，她认为，疫苗护照只不过是大药厂的营销噱头。除此之外，澳洲联邦议员乔治·克里斯滕森在网上发起请愿，推动“禁止疫苗护照”。请愿书写道，“我不支持政府或私人公司推出疫苗护照或任何其它胁迫性措施，这些措施基本上是强迫人们注射中共病毒疫苗，否则就会被剥夺其他人可以获得的服务和权利。”
 
-几个月以前我说过1000多亿转到了加拿大，这些钱里边很多都投入了加密货币。不但如此，战友们还要看到一个更夸张的[情况就是]香港以及在亚洲有多少拿来生产，甚至贷款的钱都加入了加密货币 — 这对共产党的金融系统是摧毁的。为什么要这么做？因为都认为共产党要完球蛋了。
+**四、伪中共国新闻：**
 
-A few months ago I said that more than 100 billion yuan was transferred to Canada, and much of it has been invested in cryptocurrencies. Not only that, my brothers and sisters, you will see that in Hong Kong and Asia a lot of money which was supposed to be used for production and even loans has been invested in cryptocurrencies. This is literally destroying the CCP’s financial system. Why do they do that? Because they all believe that the CCP will be over.
+- **民主生银行净利润下跌，不良贷款规模上升**
 
-而且共产党里边黑钱是全人类最大的，数以几万亿美元，共产党在倒闭前如果有个两三万亿美元流入到加密货币市场它所造成的效应是数十万亿美元，边际效应是几十万亿美元。
 
-Moreover, the CCP has the most dirty money in all mankind – several trillion U.S. dollars. If two or three trillion dollars flow into the cryptocurrency market before the CCP collapses, it will have an impact of tens of trillions of dollars, so the marginal effect will be tens of trillions of dollars.
+据大纪元5月19日的报道。中共国民生银行负债规模已达65,000亿（约合10,094亿美元）。该行业绩从去年到今年第一季度，持续大幅下滑，这些利空消息而成为市场关注的焦点。网上不久前还传出该行将被接管的说法。虽然民生紧急辟谣，但其后该行重要股东却签署了解除一致行动的协议。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/6095408937f7f73984c8e133](https://gtv.org/getter/6095408937f7f73984c8e133) (00:56-2:17, 2:57-4:14, 6:39-8:06)
-鸣谢：感谢盘古小蚂蚁、Antsee-GTV、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://www.gnews.org/zh-hans/1187871/](https://www.gnews.org/zh-hans/1187871/)
+- **辽宁安徽疫情持续发酵，疫情或在4月中出现**
+
+
+据大纪元5月18日的报道。辽宁、安徽的中共病毒疫情的本土确诊病例仍在增加。辽宁省卫健委5月17日晚通报，辽宁新增4例本土确诊病例，其中沈阳市2例，营口市2例。中共媒体披露，此次疫情源头可能是辽宁营口，最早的病例感染时间可能在4月中旬。由于中共一直都隐瞒疫情，官方通报的数据外界普遍认为不实。“五一”长假过后，中共疾控中心日前建议，公众旅行归来应自我观察14天。外界认为，当局或早就知道疫情已经开始扩散。
+
+- **深圳华强北赛格大楼离奇摇晃，引发大逃亡**
+
+
+据今日头条5月18日报道。18日中午时分，微信和微博突然刷屏：赛格大厦出现晃动，现场有人员紧急从大厦撤离的视频。网友反应，许多从该大厦跑出来的人都吐了。从视频来看，从赛格大厦跑出来的人也多有慌乱。当日深圳并未发生地震。赛格大厦摇晃原因相关部门正在核查。
+
+- **中共拒绝与美国进行核武谈判**
+
+
+据美国之音5月19日报道。美国裁军大使罗伯特伍德5月18日在联合国举行的会议上说，“尽管中共国持有的核武器大幅增加，但不幸的是，他们仍然抵制与美国就降低核武风险进行双边会谈。”伍德并说， “迄今为止，中共方面一直不愿意进行有意义的参与，或举行类似于我们同俄罗斯那样的专家讨论。我们真诚期望这种情况会有所改变。”
+
+- **中俄元首明日“共同见证”**
+
+
+据腾讯新闻5月18日报道。中共国外交部发布消息：习近平将于5月19日在北京通过视频连线，同俄罗斯总统普京共同见证两国核能合作项目开工仪式。赵立坚就此表示，今年是《中俄睦邻友好合作条约》签署20周年。此次活动是习近平和普京年内首次双边线上交往。
+
+**五、来自香港前沿的报道：**
+
+- **六四纪念活动遭中共严令禁止**
+
+
+据香港01新闻5月18日的报道。在国安法及「爱国者治港」法案下，今年香港六四集会深陷雷区。消息指，北京将以前所未有的强硬手腕处理有关议题，把出席支联会维园烛光悼念活动的人士，一概定性为不符「爱国者」标准，日后无法参选区议会和立法会。倘当晚的悼念活动被指构成非法集结，不仅活动牵头者及政界人士成拘控目标，其他在场参与者亦有机会被拘捕及起诉。
+
+**【战友评论】在香港这片原本民主、法治、自由和繁荣的土地上，在六四****32****周年之际，中共到底在怕啥！中共统治下的伟光正、可以平视世界、不吃那一套、超级自信和****14****亿人民爱戴的党，为什么连聚会点个烛光都害怕？聚会点个烛光真的就可以颠覆一个伟光正的强国吗？**
+
+- **英国NGO组织呼吁为香港设联合国特使监察人权状况**
+
+
+据立场新闻5月19日报道。关注香港议题的英国非政府组织“香港监察”于18 日表示，港区《国安法》严重侵蚀香港自由和法治，呼吁任命联合国特别报告员或特使，监察人权状况恶化。香港监察引述前港督兼香港监察赞助人彭定康指：“建立一个国际联络小组以协调对策将会是一个积极的方向。此外，为香港设立联合国特使将有助于监察人权状况，并鼓励对话与和解。”许多联合国成员国将会认为这是一个具建设性，以及值得支持的建议。
+
+**六、美国新闻：**
+
+- **美籍华裔教授因向华提供研究成果被判囚37个月**
+
+
+据立场新闻5月18日报道。美国华裔风湿病学教授郑颂国被揭隐瞒参与中共国的“千人计划”，用美国研究经费，向中共政府提供研究成果。去年年中他曾尝试逃往中国，但被拘捕，终被判入狱37个月、赔偿近3千万港元。美国负责国家安全事务的助理司法部长John Demers表示：“联邦研究经费是由美国纳税人为美国社会的利益提供，而不是送给中共政府的非法礼物。”
+
+- **美国众议院通过《反亚裔仇恨犯罪法案》法案**
+
+
+据新加坡早报5月19日报道。美国众议院以364对62票数通过《反亚裔仇恨犯罪法案》法案，打击针对亚裔的暴力罪行。该法案目前将提交给美国总统拜登。据报道，这是罕有获得跨党派支持的法案。自从冠病大流行以来，针对美国亚裔的袭击事件急剧上升。除了保护亚裔美国人以外，法案也保护太平洋岛居民社群。
+
+**七、世界其他地区新闻：**
+
+- **以军毁灭性摧毁1500目标，哈马斯请求休战遭拒**
+
+
+据大纪元5月18日的报道。目前，巴以双方的暴力冲突进入第二周。以色列军队近日来在加沙地带摧毁1500个目标，给哈马斯组织的基础设施造成严重打击。而哈马斯在7天之内已向以色列发射约3,000枚火箭，也遭到以色列猛烈还击，至少14名哈马斯高级指挥官遭到定点清除。以色列已正式拒绝了哈马斯提出的停火提议，并将对加沙地带的哈马斯和杰哈德等等组织继续加强军事打击。
+
+- **德自民党竞选纲领取消“一中”政策**
+
+
+德国之声5月18日讯。德国自民党党代会上，取消了所谓“一个中国”政策，转而支持台湾加入国际组织。不过，自民党并未承认台湾是独立国家。今年九月的联邦大选中，自民党有望成为执政党之一。该党在其竞选纲领中对中国践踏人权和违背法治的现状提出强烈批评，但同时也承诺继续发展双边关系。竞选纲领呼吁德国和欧盟也应当在经济、科技和公民社会层面上推进同台湾的关系。
+
+- **匈牙利首都市政府反对修建复旦大学分校**
+
+
+据美国之音5月19日报道。匈牙利政府计划为复旦大学分校支出14亿欧元的公共经费，布达佩斯市长卡拉松尼对在当地修建上海复旦大学分校的计划表示坚决反对。卡拉松尼说，政府之前一直不愿意与布达佩斯市政领导人分享复旦大学分校的兴建计划，匈牙利总理欧尔班之前誓言，不会对布达佩斯市领导人反对的项目进行任何投资。这意味着复旦项目已经不予考虑，因为市政领导人不支持。
+
+- **大陆5名赴越南专家感染印度变异病毒**
+
+
+据大纪元5月18日的报道。近日，5名赴越南考察的中共国专家经广西凭祥友谊关口岸回国后相继被检出印度流行变异毒株，随后确诊。消息引发广泛关注，人们质疑这会造成国内疫情爆发。目前印度变异病毒B.1.617已扩散至40个国家和地区，患病率在多国迅速攀升，其中英国是除印度外报告此毒株最多的国家。
+
+**八、爆料革命大事记，感谢“心是莲花”战友文稿整理：**
+
+- **郭文贵先生5月16日直播整理：为什么不赞同美国限制中共党员及其家属签证的措施。我们不要排华法案，我们要灭共法案**
+
+
+郭先生回顾了1902年的美国排华法案，给中国人带及其恶劣的影响。9000万中共党员中起码有7000万都是和我们一样的草根，爆料革命许多有卓越贡献的战友，家人们也在体制内，很多党员只是为了一碗饭，没有别的选择，他们根本没有犯罪，也没有犯罪动机，应该得到保护。
+
+我们坚决灭共，但是要维护中华民族和国家的利益，不分裂、不暴力。爆料革命走到今天，赢得那么多人的信任，是因为我们唯真不破，一切为了灭共，把共产党和中国人民分开。正是因为许多成功的人士，不提倡暴力，而是用事实、良知、人性、以及合法的手段，我们才走到今天，才受到法治文明国家的尊重、信任和合作。大家千万不要上中共的当，让我们与9000万党员为敌，这是挑起种族矛盾的一大弊端，不是好事，不支持。
+
+- **蓬佩奥直指中共知道“零号病人”，“火来”战友理顺中共病毒诞生大致脉络**
+
+
+蓬佩奥先生在最新的福克斯采访中说：中共曾试图将矛头指向美国，说美国是病毒起源地，他们用尽一切办法隐瞒真相，转移注意力。中共知道病毒来自哪里，他们知道“零号病人”是谁，问题本可以早点解决。但他们在隐瞒真相，像齐尔诺贝利事件那样长期隐瞒下去，而我们看到的是相同的结果：数百万人丧生。
+
+- **火来”战友发推文指出2015年中共病毒研发过程中发生了三件事：**
+
+
+1. 石正丽和Ralph Baric发表了教科书般的功能增强研究，致谢中称这些研究都是在美国暂停GOF之前做的，并且由NIH批准完成。由此，石正丽正式获得GOF技术。
+2. 王长军找到了舟山蝙蝠病毒ZXC213。
+3. Ralph Baric再次助攻，和姜世勃、石正丽、李放、杜兰英一起，完成了福林酶切位点的功能研究。
+
+
+**“火来”战友最后总结：****2015****年新冠病毒研制所需的几大要件都已凑齐；****2016****年****-2019****年，完成实验室改造和动物传代实验，并在****2019****年底释放。**
+
+- **中共文件对疫苗隐形病毒基因武器的描述令人毛骨悚然**
+
+
+“MC文艺”转发了徐德忠《非典非自然起源》一书91-92页的内容，书中赫然写道：基因治疗作为武器（gene therapy as a weapon）：基因治疗是以更换或更换缺陷基因，使人的遗传组成发生永久性变化，以治疗某些疾病，有益于人类。然而，生物武器制造者却可以反向使用，插入致病基因。……如逆转录病毒（HIV可代表）……可永久性整合进入人类染色体。书中对“隐形病毒基因武器”的定义是：以适当方式释放隐形病毒，使其“无形”地感染靶人群（个）体的某种细胞基因组。此后，在需要攻击之时刻，释放特异性激活剂，使该战剂启动发病过程，造成该病毒性疾病之流行。
+
+徐德忠亲笔写下的这段白底黑字的文字，联系到中共的疫苗经济，不禁令人毛骨悚然。中共开发的疫苗就像《笑傲江湖》里的“三尸脑神丹”，解药掌握在东方不败自己手中，每年必须定期服用，否则尸虫破壳而出，进入人脑，发作时形如鬼魅，连父母妻儿都会吃掉。没想到一部几十年前虚构的小说情节，竟然活生生地出现在我们身边。凡注射中共疫苗者，犹如在身体内埋下定时炸弹，一但起爆，不仅伤及自己，连父母妻子至亲都一并受到伤害，请战友们务必广泛传播中共疫苗真相，让多一些人免于伤害。
+
+- **郭文贵先生5月18日盖特直播整理**
+
+
+1. 世界上的恐怖组织，都聚集在巴勒斯坦，他们的武器由伊朗和中共制造；
+2. 加密虚拟货币越来越重要，越来越被关注，GTV、GNEWS在世界政治版块上，其意义和价值是杠杆型的；
+3. 以毒灭共进入关键时刻，比闫丽梦科学家更重要的人物将会出现；
+4. 中共大量资金往境外洗钱，预示着多米诺骨牌倒下的时刻来临；
+5. 美国、欧洲将对香港有真实行动，全球灭共力量逐渐壮大，在文化、教育、科技领域全面展开。
+
 
 * * *
 
-**字幕：【Rock小哥】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-翻译 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+感谢新闻摘录，新闻撰稿，配音录制以及视频制作战友们的辛勤付出。
 
-+1
+感谢坦克人提供的技术支持。
+
+欢迎明天澳洲晚九点，北京晚六点继续收听观看“澳喜要闻”。
+
+* * *
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19113721/1-%E6%BE%B3%E5%96%9CLogo-8.jpeg)
+
+
+0

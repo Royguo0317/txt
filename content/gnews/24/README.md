@@ -1,41 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【锐语】美智库报告中共未遵守核协议，在华实体支持非法金融活动
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1257971/)
+## 5月19日美国政要反共推文精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1258011/)
 
-简评：
+众议员迈克·加拉格尔： 吉姆·乔丹是对的：共和党人，内阁官员，记者和美国人民都想知道新冠COVID-19的起源。 为什么关注冠状病毒的唯一国会委员会的民主党人却不希望把它查个底朝天呢？ 【附乔丹议员的视频】
 
-中共国参与国际事物上的策略一直都是沿袭暗度陈仓的策略。这是不为文明国家先有的规则所接受的。
 
-近七十年的中共的执政下，不管是加入世界贸易组织，世界卫生组织，还是多方国家的国际协议，中共都显示其虚假伪善的一面，他通过网络防火墙，让全世界只能听到中共想让世界听到的声音和信息。在构建信息防火墙的同时，代表了全体中国的民众。这份报告揭示了周知的中共在核扩张和西方制裁国家之间的来往，让我们看到一个从来不遵守规则，从来打破自己的承诺的流氓执政黑帮政党。
 
-大致摘要：
+> .[@Jim\_Jordan](https://twitter.com/Jim_Jordan?ref_src=twsrc%5Etfw) is right: Republicans, cabinet officials, journalists, and the American people all want to know about the origins of COVID-19. 
+> 
+> Why don't Democrats on the only Congressional committee focused solely on the Coronavirus want to get to the bottom of it? [pic.twitter.com/SA1nh3lQlA](https://t.co/SA1nh3lQlA)
+> — Rep. Mike Gallagher (@RepGallagher) [May 19, 2021](https://twitter.com/RepGallagher/status/1395098918514536453?ref_src=twsrc%5Etfw)
 
-一份周二公布的报告称，中共国政府没有直接参与转让核和导弹相关项目，但在华实体仍继续出口与这些项目相关的货物，特别是向伊朗和朝鲜出口。
 
-报告指出，在华实体还为扩散这些敏感技术提供其他形式的支持，例如非法金融服务和洗钱。
 
-中国实体为伊朗和朝鲜的大规模杀伤性武器计划提供了支持。具体而言，朝鲜在中国经营了一个金融代表网络，他们作为朝鲜金融机构的代理人，设立空壳公司，管理秘密的银行账户，来转移和掩盖非法资金，逃避制裁。有消息指“中国接待了不少于二十名朝鲜大规模杀伤性武器和弹道导弹采购代表和银行代表。”
+参议员约翰·肯尼迪： CDC(疾病预防控制中心)认为 [#冠状病毒](https://twitter.com/hashtag/%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92?src=hashtag_click) 来自何处？ CDC（疾病预防控制中心主任）：“当然，基于实验室的起源是一种可能性。” 我想了解更多，您不想吗？ 【附视频：肯尼迪参议员就新冠病毒起源和功能增强性实验质询CDC主任】
 
-中国已经在巴基斯坦建造了四个反应堆，并且正在建造另外两个这样的反应堆。
 
-另有媒体报道说，沙特阿拉伯在中国帮助下建造了一个从铀矿中提取黄饼铀的设施，这将推进沙特刚刚起步的核计划。
 
-在中国辽宁省和江苏省的两个核电站建造四个新的反应堆，这两个核电站都使用俄罗斯技术。
+> Where does the CDC think the [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) came from?
+> 
+> CDC director: “Certainly, a lab-based origin is one possibility.” 
+> 
+> I’d like to know more, wouldn’t you? [pic.twitter.com/kiTN6xkz12](https://t.co/kiTN6xkz12)
+> — John Kennedy (@SenJohnKennedy) [May 19, 2021](https://twitter.com/SenJohnKennedy/status/1395075426368819207?ref_src=twsrc%5Etfw)
 
-参考链接：
 
-[https://www.voachinese.com/a/china-nuclear-arm-russia-20210519/5896916.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/china-nuclear-arm-russia-20210519/5896916.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
 
-图片链接：[https://www.voachinese.com/](https://www.voachinese.com/a/china-nuclear-arm-russia-20210519/5896916.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+参议员卢比奥： 美国总统决定允许美国投资者继续资助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 军方用来制造武器的公司，这些武器有一天会来杀死美国人并在战争中打败我们。 【附卢比奥在福克斯电视台接受玛丽亚采访：就（拜登政府）将与中共国的贸易限制推迟到六月11号发表意见。呼吁与中共国战斗】
 
-整理撰稿：蓝精灵
 
-新闻采编： peter Wong
 
-校对发布：Penny
+> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) has decided to allow American investors to continue to fund companies the Chinese military is using to build weapons designed to one day kill Americans & defeat us in a war [pic.twitter.com/lYSQrK0aqL](https://t.co/lYSQrK0aqL)
+> — Marco Rubio (@marcorubio) [May 19, 2021](https://twitter.com/marcorubio/status/1395045937588887562?ref_src=twsrc%5Etfw)
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+
+
+众议员迈克·加拉格尔： 拜登政府提名了一个曾经为华为工作的游说律师担任我们情报圈高层职位。不仅仅是没有资格担任这项工作，还凸显了那些向外国对手兜售专长的前政府官员日益严重的问题。
+
+
+
+> The Biden Admin nominated a K Street lawyer who has done work for Huawei for a top post in our intel community. Not only is this work disqualifying, it highlights the growing problem of former USG officials who peddle their expertise to foreign adversaries.[https://t.co/UoSsZp3f8n](https://t.co/UoSsZp3f8n)
+> — Rep. Mike Gallagher (@RepGallagher) [May 19, 2021](https://twitter.com/RepGallagher/status/1395017062414696448?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特： NBC显然试图通过拒绝播放2022年金球奖来传达一个信息。但是，他们是否会因支持人权拒绝播放2022年奥运会，直到将其移出 [#共产党中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E5%85%9A%E4%B8%AD%E5%9B%BD?src=hashtag_click)？我希望如此。在这儿读我给NBC的信。
+
+
+
+> NBC is clearly trying to send a message by refusing to air the 2022 Golden Globes. But will they stand for human rights by refusing to air the 2022 Olympics until they're moved out of Communist China? I’d hope so. Read my letter to [@NBCOlympics](https://twitter.com/NBCOlympics?ref_src=twsrc%5Etfw): [https://t.co/nXLR26BDTa](https://t.co/nXLR26BDTa)
+> — Rick Scott (@SenRickScott) [May 19, 2021](https://twitter.com/SenRickScott/status/1395129556282060810?ref_src=twsrc%5Etfw)
+
+
 
 0
