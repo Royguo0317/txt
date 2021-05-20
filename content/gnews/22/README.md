@@ -1,45 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】凡一国自相纷争，就成为荒场
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1259562/)
+## 欧洲央行提醒企业破产风险
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1260069/)
 
-配音：香草山福音部 Daxia
+```
+新闻来源：意大利共和国报（La repubblica）
+发布时间： 2021年5月19日
+翻译整理/简评： 斩草要除根
+```
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20145914/ea47-iqyrykv3111038-1.jpg)图片来源：新浪财经
+在公众支持失败的情况下，很多正面临危机的公司可能会面临最高程度的破产风险。欧洲央行关于金融稳定的报告突显了：迄今为止所采取的如何帮助大企业在破产期间偿付能力的措施下降至历史最低位。这种支持会逐渐被取消，不能排除会出现比大流行之前明显更高的违约率，特别是在某些欧元区国家。这种情况也可能会影响大流行期间为企业提供支持的主权国家和银行。
 
+欧洲央行在报告中指出：由于病毒大流行对经济的不均衡影响，金融稳定的风险主要集中在特定部门和国家，通常是那些脆弱性最高的国家。在欧元区从第三波大流行中退出的现阶段，金融稳定的风险仍然很高，目前分布更加不均。在服务业较大的国家，公司债务负担增加，给政府和银行带来的压力更大。欧洲央行副行长路易斯·德·格林多斯（*Luis de Guindos*）解释说，这些国家/地区可能会需要增加更为广泛的支持，特别是在公司方面。
 
+除了信贷世界之外，欧洲央行行长关注的还有金融市场的“相当繁荣”，尽管美国收益率上升和全球债券下跌，但股市仍在上涨。这与“经济基本面疲软”形成了鲜明的对比趋势。尽管最近某些股票的价格下跌，但估值仍然很高，远高于美国大流行前的水平。
 
+#### 简评：
 
+**专家对全球经济形势与展望，是依靠疫苗驱动的经济复苏，这存在巨大的不确定性。已经面临危机的公司如果没有政府政策大力度的支持，是很难继续生存下去的。少数的大型经济体可以得到更多的财政支持，但是更多的企业处在风雨飘摇之中。**
+（本文只代表译者观点，与Gnews平台无关。）
 
+**新闻原文链接：**
+🔗[insolvenze delle imprese. “Mercati esuberanti, possibili correzioni improvvise”](https://www.repubblica.it/economia/2021/05/19/news/bce_-301726644/?ref=RHTP-VS-I270681073-P10-S1-T1)
 
+* * *
 
-在《圣经》旧约里，神对人世间国度的应许是：只要一国的国民和首领敬畏神，按神公义的要求治理，秉公行义，爱神爱人。那么，该国就会蒙神祝福，国势强盛，人民富足。
-
-耶稣基督来了以后，几乎很少直接说政治、世上国度等话题。因为祂要解决的是每个人身上最根本的问题，也就是灵里的问题。但耶稣基督仅仅用一句“凡一国自相纷争，就成为荒场；一城一家自相纷争，必站立不住”，就概括了人类国度兴衰的本质。
-
-
-
-**文字版原文：[【信仰之声】凡一国自相纷争，就成为荒场](https://gnews.org/zh-hans/1257175/)**
-
-作者：纽约香草山福音部  山城小哥
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+***编辑整理/校对: **Ting Guo*
 
 +1
