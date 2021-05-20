@@ -1,82 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（二十五）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1258010/)
+## 【独立观点】布林肯与俄罗斯外长会谈，美俄关系有望正常化
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1258102/)
 
-作者：纽约香草山信息部 6zero4
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+作者：纽约香草山健身部 Ivy001
 
 
 
-5月18日塞林博士的5连推：
-
-第1推，转发“火来2号”战友的中英混合推：这篇文章介绍拿着病人体内分离的Zika病毒给猴子接种，建立动物模型，由AMMS主导并完成，史佩勇(之前译为石培勇)也参与其中，提供试剂并分析数据。史佩勇拿着NIH和WHO的经费跟PLA合作，可以这样做么？需要一些明确答复，并标识出NIH经费的拨款编号AI087856，标注出当时主要的参与人员及其照片，他们是：李晓峰（PLA-AMMS微生物流行病研究所病原体生物安全国家重点实验室)）、史佩勇、秦成峰、童贻刚、高福和曹务春。并附上史佩勇在2016年9月与PLA科研人员联合发表的论文之网页截图。UTMB的史佩勇，当下正在Fauci的NIAID资助下，真正成为PLA的史佩勇，他理应被驱逐出境。向COVID-19侦探“火来2号”致敬！（李晓峰真容浮出水面）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 
 
-> Pei-Yong Shi of the University of Texas Medical Branch, currently funded by Anthony Fauci's NIAID, is actually Pei-Yong Shi of the People's Liberation Army. He should be deported. (hat tip to [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw))[#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDEmergency](https://twitter.com/hashtag/COVIDEmergency?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Fauci](https://twitter.com/hashtag/Fauci?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/FMLqMNLGwP](https://t.co/FMLqMNLGwP)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 18, 2021](https://twitter.com/LawrenceSellin/status/1394592230124437504?ref_src=twsrc%5Etfw)
+美国国务卿布林肯与俄罗斯外长拉夫罗夫将于周三（5月19日）夜间在冰岛举行会谈。目前，布林肯和拉夫罗夫均在冰岛出席北极理事会八国外长会议，当中，二人顺势安排了这个面对面会谈。这亦将是拜登就任美国总统以来，两国最高级别的会晤。由于目前两国的对抗关系，此次会议有直接成果的可能性不大，更多的是为下月两国领导人峰会铺平道路。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19215314/96-2.jpg)图片来源：路透社
 
+与此同时，有消息传出，美国打算免除对北溪二号管道公司（Nord Stream 2 AG）的制裁。俄罗斯官方回应，如果该消息属实，将有助于两国关系正常化。
 
-第2推，在UTMB的史佩勇直接与PLA合作的同时，Fauci的NIAID资助却也正在资助他（经费拨款编号AI087856），并贴上史佩勇在2016年9月与PLA科研人员联合发表的有关寨卡病毒研究的论文之网页截图。
+在此之前，美国白宫官方一直宣称俄罗斯是美国的主要敌人，同时两国关系正处于冷战结束以来的最低点。现在，却由布林肯向俄罗斯伸出橄榄枝，这意味着白宫有与俄罗斯改善关系的意图。如果美国能与俄罗斯改善关系，那么美国就可以专心应对中共国，而不是在应对中共国的同时，还要担心来自俄罗斯的压力，以此避免了美国双面受敌的窘境。
 
+目前，美国一直致力于与欧盟各国、五眼联盟、东盟等盟友们加强合作，并且缔结盟约，以共同应对来自中共国的压力。而今，正义的民主国家已经联合起来，如果能把俄罗斯也拉到美国的一方，在外交层面上，就完成了对中共国的合围。
 
+随着爆料革命的广泛传播，中共国的各种邪恶行径无所遁形。如今，世界各国都认识到，不消灭CCP，世界将永无宁日。灭共，必将成为世界的需要。
 
-> At exactly the same time that Pei-Yong Shi of the University of Texas Medical Branch is working directly with the Chinese People's Liberation Army, Anthony Fauci's NIAID is funding him (AI087856).[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#Fauci](https://twitter.com/hashtag/Fauci?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDEmergency](https://twitter.com/hashtag/COVIDEmergency?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/Wx1UUc9ep5](https://t.co/Wx1UUc9ep5)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 18, 2021](https://twitter.com/LawrenceSellin/status/1394599200793538560?ref_src=twsrc%5Etfw)
+参考阅读：
 
+[拜登普京峰会今先铺路 显有缓解姿态](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20210519-%E6%8B%9C%E7%99%BB%E6%99%AE%E4%BA%AC%E5%B3%B0%E4%BC%9A%E4%BB%8A%E5%85%88%E9%93%BA%E8%B7%AF-%E6%98%BE%E6%9C%89%E7%BC%93%E8%A7%A3%E5%A7%BF%E6%80%81)
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
 
-第3推，重复发出上一推，再次明确敲打并警告Fauci与史佩勇，并贴上史佩勇在2016年10月与PLA科研人员联合发表的有关寨卡病毒研究的论文之网页截图。
-
-
-
-> Again, at exactly the same time that Pei-Yong Shi of the University of Texas Medical Branch is working directly with the Chinese People's Liberation Army (Cheng-Feng Qin), Anthony Fauci's NIAID is funding him (AI087856).[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#Fauci](https://twitter.com/hashtag/Fauci?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDEmergency](https://twitter.com/hashtag/COVIDEmergency?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/2dA7f8Yw1r](https://t.co/2dA7f8Yw1r)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 18, 2021](https://twitter.com/LawrenceSellin/status/1394602393845833728?ref_src=twsrc%5Etfw)
-
-
-
-第4推，第三次发出上一推，事不过三，第三次重复敲打并警告Fauci与史佩勇，并贴上史佩勇在2017年5月与PLA科研人员联合发表的有关寨卡病毒研究的论文之网页截图，并加上Fauci的另一个NIH经费拨款编号AI103807。
-
-
-
-> 3rd time, at exactly the same time that Pei-Yong Shi of the University of Texas Medical Branch is working directly with the Chinese People's Liberation Army (Cheng-Feng Qin), Anthony Fauci's NIAID is funding him (AI087856, AI103807).[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#Fauci](https://twitter.com/hashtag/Fauci?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDEmergency](https://twitter.com/hashtag/COVIDEmergency?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/OY7bvhgswh](https://t.co/OY7bvhgswh)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 18, 2021](https://twitter.com/LawrenceSellin/status/1394604268179632132?ref_src=twsrc%5Etfw)
-
-
-
-第5推，转发Joe Hoft今天发表在Gateway Pundit上的一篇文章“报告：中共国的军事武器COVID-19完全是在中共军方的安排和控制下制造的”。
-
-
-
-> China’s Military Weapon COVID-19 Was Constructed Completely Under the Command and Control of the Chinese Military[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#FauciLied](https://twitter.com/hashtag/FauciLied?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusIndia](https://twitter.com/hashtag/CoronavirusIndia?src=hash&amp;ref_src=twsrc%5Etfw) [#Covid](https://twitter.com/hashtag/Covid?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/vYC50Nqusv](https://t.co/vYC50Nqusv)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 18, 2021](https://twitter.com/LawrenceSellin/status/1394646426592948228?ref_src=twsrc%5Etfw)
-
-
-
-塞林博士展示出史佩勇在2016年到2017年间，与CCP-PLA科研人员联合发表多篇论文之网页截图，都是有关寨卡病毒研究的论文，将病人体内分离出来的Zika病毒给猴子接种，建立动物模型，以探索该病毒的跨种传播特性，进而实现人畜共患的功能开发，最终达成病毒人传人的生物武器目标，UTMB的史佩勇深度参与其中。由此可见，中共军方很多时候连军民融合的底裤都懒得穿，干脆赤裸裸地裸奔，生物武器直接由CCP-PLA-AMMS主导，并深度渗透和绑架美国等西方国家的病毒学家，融合其资金和技术，借腹生子制造CCP自己苦思冥想的生物武器。所以，诸如 COVID-19等生物武器完全是在中共军方的安排和控制下制造出来就并不奇怪了！
-
-令人痛心疾首的是，史佩勇一面拿着美国纳税人支付的薪水，打着为UTMB工作的幌子，一面却拿着NIH和WHO的经费跟CCP-PLA合作，Fauci的NIH经费的拨款编号AI087856与AI103807就是板上钉钉的确凿证据。Fauci和史佩勇，你们怎么可以这么疯狂、这么无耻、这么无底线？你们欠世界一个明确的答暗！你们理应被美国驱逐出境，甚至连同CCP一起开除球籍！
-
-塞林博士三次重复发推，三次重复敲打并警告Fauci与史佩勇，你们俩与CCP军方合作的蛛丝马迹已经被美国军方掌握的清清楚楚，证据确凿，这是收网前给你们俩的最后通牒，是选择做污点证人给自己赎罪的机会，还是一条道走到黑与CCP一起亡命天涯？
-
-校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+编辑/校对/发稿：Irene木木
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 **[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0

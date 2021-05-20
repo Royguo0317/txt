@@ -1,33 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》新闻快讯（视频版）: 20210518蓬佩奥国务卿接受新唐人采访（病毒）
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1258149/)
+## 5/19/2021日每日快郭先生策划开发“躺平”币，用“躺平”币发展為躺平运动
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1258749/)
 
-《路德社》出品
+**制作：Cantonese工作室**
 
-以下视频是详细内容：
-
-主要内容：
-
-1.CCP在去年1-2月的行径就是切尔诺贝利的脚本
-
-2.CCP当时就不允许人得到信息、数据，其宣传机器栽赃美国
-
-3.去年蓬佩奥提出病毒来自武毒所，被嘲讽·CCP说不可能是人工产物
-
-4.有证据表明CCP对病毒有研究让其更具传染性
-
-5. 请CCP证明0号病人不是来自其生物设施
+*资料整理：Elaine、文依、An
+海报製作：儂民、Penny
+视频製作：Ken*
 
 
-
-翻译：路德社翻译组
-
-制作：路德社视频组
-
-审核校对：玫瑰新闻组
-
-上传排版：玫瑰新闻组
-
-0
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20011905/%E6%88%AA%E5%9C%96-2021-05-20-00.17.30.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20012023/%E6%88%AA%E5%9C%96-2021-05-20-00.18.08.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20011943/%E6%88%AA%E5%9C%96-2021-05-20-00.17.52.png)
++1

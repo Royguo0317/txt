@@ -1,53 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】政策延续，揭示中共“假”脱贫
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1258198/)
+## 苹果为了利益出卖灵魂
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1258343/)
 
-香草山写作组 鹰(文言)
+撰稿：金生水
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19230033/201-1.png)图片来自网络
+科技媒体《黑客新闻》近日报道了苹果公司如何给予中共政权访问iCloud数据库的权利以及审查其上架的应用程序。
 
+在2018年7月，当贵州云大数据（GCBD）同意与国有电信公司中共国电信达成协议，将属于苹果中共国用户的iCloud数据转移到后者的服务器时，这种转变引起了人们的担忧，即它可能会产生用户数据，容易受到国家监督。
 
+现在，根据《纽约时报》的深入报道，苹果公司的隐私权和安全性让步“几乎使该公司无法阻止中共国政府获得数百万封电子邮件，照片，文档，联系人和位置的信息的中共国居民。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193903/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1-2.jpg)
+这些发现与苹果公司对隐私的承诺形成了鲜明的对比，同时也突显了一种承认中共国政府继续在中共国开展业务的要求的模式。苹果在2018年宣布，与GCBD合作的一部分，中国大陆用户的iCloud数据将移至贵州省的新数据中心。 过渡必须遵守2017年的一项法规，该法规要求将在中国用户身上收集的所有“个人信息和重要数据”“存储在香港”。
 
+iPhone制造商的支持文件说：“ iCloud在中国大陆由GCBD（AIPO Cloud（Guizhou）Technology Co. Ltd.）运营。这使我们能够继续改善在中国大陆的iCloud服务并遵守中国的法规。”
 
+尽管iCloud数据是端到端加密的，但据说Apple同意在所有iCloud加密密钥存储在美国服务器上之前将加密密钥存储在数据中心，因此要遵守有关政府访问请求的美国法律。
 
-环球网5月19日转载央视新闻客户端消息，中共财政部、税务总局等四部门公告延长部分扶贫税收优惠政策至2025年12月31日。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19220955/Screen-Shot-2021-05-19-at-10.08.15-PM.png)
-2020年6月份李克强一句“全国6.1亿人口月薪不足1000元”扯下了中共营造数年的“奔小康”遮羞布。近4成人口仅能勉强温饱。由于核酸检测试剂的高额收费、粮食等生活必需品开支的加大，民众的收支极度不平衡才是真实写照。同时，欧美订单的急剧减少造成大量外贸行业破产倒闭，失业人口激增。然而，时隔半年，不但11月份宁夏、四川、广西、甘肃四个省份的贫困县“清零”，贵州9个贫困县同一天“摘帽”，更有习包子一本正经的吹嘘脱贫攻坚全面胜利。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19220943/Screen-Shot-2021-05-19-at-10.08.19-PM.png)
-然而接下来的政策走向却揭示了脱贫的虚假：2021年一号文件要求设立5年过渡期，推动乡村振兴，加大乡村基础设施建设和发展乡村经济，推动城乡一体化；扶贫办整建制改为乡村振兴局，扶贫税收优惠政策延续5年。这些都说明全面脱贫是为迎合领导捏造的虚假功绩，只是在媒体宣传实现了。在乡村生活、农民收入等三农领域内还远未达到预期。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19220930/Screen-Shot-2021-05-19-at-10.08.24-PM.png)
-虽然中共近年来加大对农村的财政扶持，但无论是农厕改造、污水处理、垃圾分类等项目，还是鼓励乡村创业等政策，在具体执行过程中，中共政府贪污腐败、克扣挪用的现象此起彼伏。支出的资金大部分进了各级领导的私人腰包或者变成了中看不中用的设施设备。中共政府一方面提供有限财政扶持时，在另一方面却打压粮食收购价格，化肥、农药、种子等耕种成本的节节升高，更加大农民收入的“缩水”。推行城镇化进程，驱赶农村人口进城买房，设立宅基地法，实际是对农村土地和自建房的“征税”。形式主义扶持配合变本加厉的敛财，中共的所作所为反而加剧了贫困。
+尽管美国法律禁止美国公司将数据移交给中国执法部门，但《纽约时报》的报告显示，苹果和中国订立了“不寻常的安排”来回避美国立法。
 
-新闻来源：
+为此，该公司将客户数据的合法所有权转让给GCBD，除了授予对服务器的GCBD物理控制权以及对iCloud中存储的所有信息的完全访问权限外，从而允许“中国当局向Apple要求GCBD（而非Apple）客户的数据。”
 
-四部门：延长部分扶贫税收优惠政策执行期限至2025年底https://china.huanqiu.com/article/43BSsrKGige
+报告补充说，随着法律的通过，苹果公司在九起案件中向政府提供了数量不明的iCloud帐户的内容，并对三个政府的数据请求提出了质疑。但是，没有证据表明中国政府借助数字密钥获得了访问用户数据的权限。
 
-习近平总书记关切事丨脱贫攻坚战，全面胜利！http://www.xinhuanet.com/politics/leaders/2021-02/25/c\_1127140205.htm
+此外，据报道，在中国拒绝对使用的设备进行认证之后，苹果通过建立自己的内部HSM来避开Thales生产的硬件安全模块（HSM）。 HSM包含一个或多个安全的加密处理器，用于执行加密和解密功能，并将加密密钥存储在防篡改的环境中。
 
-中国现行扶贫标准低于世界标准？国家乡村振兴局这样回应https://news.sina.com.cn/c/2021-04-06/doc-ikmxzfmk4952536.shtml
+该公司告诉《纽约时报》，它“从未损害”中国“或我们经营的任何地方”的用户或用户数据的安全性，并补充说其中国数据中心“具有我们最新，最完​​善的保护措施”，预计这将是推广到其他国家。
 
-李小云:解读中央一号文件https://www.163.com/dy/article/G73EBBID0521E31Q.html
+安全研究人员和约翰·霍普金斯大学教授马修·格林在一系列推文中说：“苹果在2015年要求很多人支持他们反对FBI。” 他说：“他们使用法律工具库中的所有工具来阻止美国使用手机。他们是否认为有人会给他们怀疑的好处呢？”
 
-全国832个国家级贫困县全部脱贫摘帽http://www.xinhuanet.com/politics/2020-11/23/c\_1126776790.htm
+“显然，苹果被迫赋予中共国政府对客户数据的更多控制权。从允许某些端到端加密的意义上说，当前的妥协甚至可能是’好的’。但是中共政权迟早会采取行动，要求苹果提供一些自己不想放弃的东西，苹果将不得不做出选择。也许他们已经有了选择，”霍普金斯补充道。
 
-多省份公布2018脱贫目标 严防”虚假脱贫””数字脱贫”http://www.xinhuanet.com/politics/2018-01/31/c\_1122339272.htm
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-编辑/校对/发稿：正义的小新
+文贵先生在5月18号的盖特中也指出苹果公司为了利益向中共妥协阻止郭媒体上架，为了市场而助纣为虐的苹果，早晚会得到应有的报应。
 
-**更多资讯，更多关注**
+（文章内容仅代表个人观点）
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+*审核：**J**enny**编辑：**M**G1*
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+参考链接：
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+[https://thehackernews.com/2021/05/how-apple-gave-chinese-government.html?utm\_source=feedburner&utm\_medium=feed&utm\_campaign=Feed%3A+TheHackersNews+%28The+Hackers+News+-+Cyber+Security+Blog%29&\_m=3n.009a.2485.es0ao0dz6i.1knc](https://thehackernews.com/2021/05/how-apple-gave-chinese-government.html?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+TheHackersNews+%28The+Hackers+News+-+Cyber+Security+Blog%29&amp;_m=3n.009a.2485.es0ao0dz6i.1knc)
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19113721/1-%E6%BE%B3%E5%96%9CLogo-8.jpeg)
 0

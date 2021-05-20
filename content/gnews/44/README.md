@@ -1,58 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月19日美国政要反共推文精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1258011/)
+## 【G时评】本来想玩一票大的
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1258099/)
 
-众议员迈克·加拉格尔： 吉姆·乔丹是对的：共和党人，内阁官员，记者和美国人民都想知道新冠COVID-19的起源。 为什么关注冠状病毒的唯一国会委员会的民主党人却不希望把它查个底朝天呢？ 【附乔丹议员的视频】
+**作者：Giselle**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19215134/%E9%87%91%E8%89%B2%E5%8F%A4%E5%85%B8%E9%9F%B3%E4%B9%90%E8%89%BA%E6%9C%AF%E5%8F%8A%E5%85%B4%E8%B6%A3%E7%B1%BB%E6%B4%BB%E5%8A%A8%E5%B0%81%E9%9D%A2.jpg)
+**图片设计**：Giselle
 
+**1，《纽约时报》报道，苹果为了迎合中共，出卖用户隐私并按中共要求删除了5.5万款应用程式……**
 
+——苹果21日新品上市，《纽约时报》这时曝光苹果给中共跪下的丑闻，不合常理啊！《纽约时报》早已沦为中共走狗，这是要重新做人了？静观其变吧。
 
-> .[@Jim\_Jordan](https://twitter.com/Jim_Jordan?ref_src=twsrc%5Etfw) is right: Republicans, cabinet officials, journalists, and the American people all want to know about the origins of COVID-19. 
-> 
-> Why don't Democrats on the only Congressional committee focused solely on the Coronavirus want to get to the bottom of it? [pic.twitter.com/SA1nh3lQlA](https://t.co/SA1nh3lQlA)
-> — Rep. Mike Gallagher (@RepGallagher) [May 19, 2021](https://twitter.com/RepGallagher/status/1395098918514536453?ref_src=twsrc%5Etfw)
+**2，朱利安尼老先生的儿子安德鲁证实，将在2022年的州长竞选中，与现任纽约州州长库默竞争。他称这将是一场世纪之战，他要把纽约州从被摧毁的悬崖上拉回来。**
 
+——纽约州向来是美国的神经中枢和经济心脏，在金融、商业、工业、艺术、服装等方面，长期居于领导地位，并且拥有繁华的国际大都市纽约市和美国最大的港口纽约港。
 
+如果保守派的力量能够在纽约州占到上风，则世界和平又增加了 一份力量。
 
-参议员约翰·肯尼迪： CDC(疾病预防控制中心)认为 [#冠状病毒](https://twitter.com/hashtag/%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92?src=hashtag_click) 来自何处？ CDC（疾病预防控制中心主任）：“当然，基于实验室的起源是一种可能性。” 我想了解更多，您不想吗？ 【附视频：肯尼迪参议员就新冠病毒起源和功能增强性实验质询CDC主任】
+安德鲁先生，加油哦！
 
+**3，经济学家马托斯出书，批判欧中贸易协议种种弊端。**
 
+——欧中贸易协议签订之后，中共与默克尔开香槟庆祝又成功把欧洲各国卖了一次。
 
-> Where does the CDC think the [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) came from?
-> 
-> CDC director: “Certainly, a lab-based origin is one possibility.” 
-> 
-> I’d like to know more, wouldn’t you? [pic.twitter.com/kiTN6xkz12](https://t.co/kiTN6xkz12)
-> — John Kennedy (@SenJohnKennedy) [May 19, 2021](https://twitter.com/SenJohnKennedy/status/1395075426368819207?ref_src=twsrc%5Etfw)
+在过去的12年当中，中共国与欧盟的贸易顺差达到了1.8万亿欧元，相当于意大利在2019年的国内生产总值。
 
+欧盟各国不但付出了产业空心化代价，就连基本的价值观也被中共毒害了。
 
+**4，美国众议院议长佩洛西18日在一场国会听证会中，呼吁美国通过外交途径抵制2022年北京冬奥，她批评中国侵犯人权，并称参加冬奥会的全球领导人将失去其道德权威。**
 
-参议员卢比奥： 美国总统决定允许美国投资者继续资助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 军方用来制造武器的公司，这些武器有一天会来杀死美国人并在战争中打败我们。 【附卢比奥在福克斯电视台接受玛丽亚采访：就（拜登政府）将与中共国的贸易限制推迟到六月11号发表意见。呼吁与中共国战斗】
+——佩洛西能说出这番话，挺让人惊讶的。
 
+不过，这就是政治：没有永恒的朋友，也没有永恒的敌人，只有审时度势的利益。
 
+**5，说说以色列的三道防御系统。**
 
-> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) has decided to allow American investors to continue to fund companies the Chinese military is using to build weapons designed to one day kill Americans & defeat us in a war [pic.twitter.com/lYSQrK0aqL](https://t.co/lYSQrK0aqL)
-> — Marco Rubio (@marcorubio) [May 19, 2021](https://twitter.com/marcorubio/status/1395045937588887562?ref_src=twsrc%5Etfw)
+——**铁穹防御系统**：由发射、雷达、操控、监测等装置组成，可实现对来袭火箭弹的自动探测，并发射导弹，在空中拦截目标。该系统主要用于拦截短程至中程火箭弹和导弹的袭击，包括弹道导弹、巡航导弹、飞机和无人机。
 
+**“箭”式反导系统：**是世界上第一个试验性实战部署的高层反战术弹道导弹专用型地空导弹武器系统，由以色列和美国联合研制，主要用于拦截近、中程战术弹道导弹。
 
+**大卫弹弓中程导弹拦截系统**：由以色列、美国联合研发，2012年11月20日在以色列南部沙漠中首次试验，成功击落一枚作为靶弹的中程导弹。
 
-众议员迈克·加拉格尔： 拜登政府提名了一个曾经为华为工作的游说律师担任我们情报圈高层职位。不仅仅是没有资格担任这项工作，还凸显了那些向外国对手兜售专长的前政府官员日益严重的问题。
+**6，哈马斯此次派出了6架无人机，有4架被以色列秘密武器击落，请分析一下是哪种秘密武器？**
 
+——哈马斯辛辛苦苦走私进来6架无人机，本来想玩一票大的，没想到下场都很凄惨：一架被铁穹击落，一架被飞机携带的导弹轰死，剩下的4架，很有可能是被激光武器给“毙”掉的。
 
+以色列一直在研发用于探测和反制无人机的多种系统，包括新的激光系统和使用网将小型无人机群击落的无人机。
 
-> The Biden Admin nominated a K Street lawyer who has done work for Huawei for a top post in our intel community. Not only is this work disqualifying, it highlights the growing problem of former USG officials who peddle their expertise to foreign adversaries.[https://t.co/UoSsZp3f8n](https://t.co/UoSsZp3f8n)
-> — Rep. Mike Gallagher (@RepGallagher) [May 19, 2021](https://twitter.com/RepGallagher/status/1395017062414696448?ref_src=twsrc%5Etfw)
+拉斐尔公司已研发出可以击落无人机的激光器，该公司在2020年2月一次演示中，展示了拦截众多小型无人机的能力。
 
+**（文章内容仅代表作者个人观点）**
 
-
-参议员瑞克·斯科特： NBC显然试图通过拒绝播放2022年金球奖来传达一个信息。但是，他们是否会因支持人权拒绝播放2022年奥运会，直到将其移出 [#共产党中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E5%85%9A%E4%B8%AD%E5%9B%BD?src=hashtag_click)？我希望如此。在这儿读我给NBC的信。
-
-
-
-> NBC is clearly trying to send a message by refusing to air the 2022 Golden Globes. But will they stand for human rights by refusing to air the 2022 Olympics until they're moved out of Communist China? I’d hope so. Read my letter to [@NBCOlympics](https://twitter.com/NBCOlympics?ref_src=twsrc%5Etfw): [https://t.co/nXLR26BDTa](https://t.co/nXLR26BDTa)
-> — Rick Scott (@SenRickScott) [May 19, 2021](https://twitter.com/SenRickScott/status/1395129556282060810?ref_src=twsrc%5Etfw)
-
-
-
-0
++1
