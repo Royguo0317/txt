@@ -1,15 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年5月19日 文贵先生盖特 1
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1257677/)
+## 佐治亚州长候选人呼吁司法审查2020选举
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1257789/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-5月19号：尊敬的战友们好．一个新中国联盟的喜币．就让共产党魂飞魄散．举国震荡．共产党的自信去哪里了呢？因为他们深深地知道，中国人民知道．自己的钱应该如何的安全，如何的保值和增值，而不是买共产党的虚拟货币，而不是共产党将所有的加密货币的门堵死，只让你有一条路选择．买共产党的没有任何价值的火葬币．D C E P．中国人有那么傻吗？全世界人都那么傻吗？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19172154/9449b824a455060a99efbd7e92814935.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19172204/46c15c11e77a994fbe426c66f8102288.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19172214/ca89983fe3cac0e6709a0d39179542c6.jpg)
-[【2021年5月19日】文贵先生盖特原文](https://gtv.org/getter/60a4f27137f7f73984cd4e46)
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19181204/V.jpg)djhjmedia.com
+大选欺诈舞弊猖獗的佐治亚州，在暗势力重金激励下，选举管理人员死心塌地掩盖、搅局，正义人们进行司法审计的要求接连受阻，不过他们不会放弃，不会在自己的权利受到损害时置若罔闻，他们会抗争到底。
 
-**喜联盟Gnews编辑部**
+《门道专家》发表文章，题为“让我们继续抗争：佐治亚州州长候选人弗农·琼斯（Vernon Jones）呼吁对有争议的2020年选举进行司法审查”。
 
-0
+文章说，伟大的美国爱国者弗农·琼斯呼吁对佐治亚州备受争议的2020年选举结果进行全面的司法审查。
+
+琼斯星期二发布了一条推特，邀请所有佐治亚州人星期三上午在亚特兰大自由广场与他聚会。
+
+弗农今天早上发表了一份声明，声明如下：
+
+州长候选人弗农·琼斯的声明：
+
+如果肯普（Kemp）先生（现任州长）真地想代表选举他上台的选民，他应该坚持一个透明、公正的司法审计，佐治亚州的人民仍然对2020年选举中发现的违规行为有疑问，他们应该得到答案。如果肯普先生拒绝要求审计，我们必须查清所有这些和其他违规行为，以恢复对我们选举过程的信任，当我被选来接替他的时候我会这样做。
+
+多么聪明的政治家！随着共和党的某些人继续背弃他们的选民，像琼斯这样聪明的政客明白，如果民主党继续在一次又一次的选举中偷窃选票，共和党就没有前途。
+
+目前，佐治亚州有多达33万张选票失去了法律规定的保管链文件，理应使其成为非法选票，但是佐治亚州的州务卿布拉德·拉芬斯佩格（Brad Raffensperger）忽视了这些选票是非法的这一事实，并将其纳入了最终计票中，从而将选举结果交给了乔·拜登，这既不准确也不公平。仅凭这些选票就可以将这个州授予其合法的赢家（别忘了在这个州还偷了两个参议院席位）。
+
+美国与你同在，弗农·琼斯——感谢你有勇气和正直，在佐治亚州呼唤公平和自由的选举。
+
+（原文完）
+
+期待佐治亚州冲破重重阻力，伸张正义，揭露欺诈舞弊，还世界以安宁！
+
+原文链接：
+
+
+
+> [HERE WE GO: Georgia Gubernatorial Candidate VERNON JONES Calls for Forensic Audit of Controversial 2020 Election](https://www.thegatewaypundit.com/2021/05/go-georgia-gubernatorial-candidate-vernon-jones-calls-forensic-audit-controversial-2020-election/)
+
+
+
++1

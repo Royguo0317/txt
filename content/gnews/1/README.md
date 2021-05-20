@@ -1,69 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【信仰之声】今日祷告——为消灭中共的正道之战求告神
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1258232/)
+## 【拆台新闻】中共出台政策打压虚拟货币 我们都知道比特币在玩比震
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1258356/)
 
-作者：纽约香草山福音部
+CNN的劳拉和米歇尔在2021年5月19日写了一篇报道：随着中国扩大对加密货币的打击力度，比特币暴跌至40,000美元以下。文中写道：
 
+越来越多的镇压行动可能也部分地推动了中国政府支持的数字人民币计划的实施，有关当局正在努力实施这一计划，以便在严格监督下保持资金流向。
 
+尽管2013年的通知只提到了比特币的名字，但鉴于北京对比特币的厌恶，一些观察家认为比特币适用于所有加密货币。该国有中国时报周三描述的最新公告为“在本质上风险警告。” 该媒体援引决策智囊团国家信息中心官员朱友平的话说，虽然不是国家法律或法规，但在某种程度上代表了“行业标准”。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
+简评：
 
+文贵先生在5月19号晚的直播中谈了这一轮比特币的震荡，他幽默的给了一个新的名词：比震，原话是这么说的：“
 
+所以说这两天你看这个虚拟币比特币，人民币数字人民币啊，然后大肆宣传，试了21次全失败。本来要在这个高峰的时候DCEP要推广到全世界，说要把美国恐惧的钱和美国这个金融危机之前的恐惧的钱，都变成咱们的DCEP，把日本面临的经济危机日本的外逃的恐惧的钱变成了DECP。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19221930/98-2.jpg)图源网络
+他们1.4%的股东拥有97%的比特币，上万亿美元的富可敌国的一个比特币，迅速从5万多美元6万美元跌到了4万美元，甚至达到3.7，3.6万吧。大概比特币现在会从你1万到6万之间晃了，就这么晃来晃去晃来晃去，人家搞床震生孩子啊，这个是比特币震荡就叫比特币震啊，就叫比震。。。所以说你看人家1点四共产党控制绝大多数，然后华尔街，不管是上还是下，都是拿你的钱，他永远不会输钱，就这么简单。
 
-坐在白色大宝座上的耶和华永生神啊
+所以，文贵先生告诉了我们真相，比特币是控制在中共手里的，上下震动是人为的， 是收割财富用的，一个黑帮政党，勾结华尔街，以国家的名义，来收割全世界的财富。所有人都要睁大眼睛，看穿本质，轻松躺下，养育我们的喜币，还有躺平币，等待世界的正道主义的货币系统的到来
 
-你是万王之王，你创造天地。
+参考链接：
 
-主啊，求你侧耳而听我的祈求！
+[https://edition.cnn.com/2021/05/19/investing/bitcoin-price-drop-china-crypto-intl-hnk/index.html?utm\_term=video&utm\_medium=social&utm\_source=twCNNi&utm\_content=2021-05-20T01%3A39%3A37](https://edition.cnn.com/2021/05/19/investing/bitcoin-price-drop-china-crypto-intl-hnk/index.html?utm_term=video&amp;utm_medium=social&amp;utm_source=twCNNi&amp;utm_content=2021-05-20T01%3A39%3A37)
 
-求你睁眼看这个世界！
+整理撰稿：蓝精灵
 
-要听中共政权如何辱骂永生神的话，
+校对发布：Penny
 
-看他们如何抵挡你的道，
-
-并无辜杀戮你所造的人。
-
-主啊，中共政权使列国之地变为荒凉，
-
-将列国的尊严践踏在脚下。
-
-因为它本不是神，
-
-竟然想要取代我主永生神，
-
-所以求你灭绝它。
-
-主啊！
-
-愿我所求的按你自己的意旨成全！
-
-（本文仅代表作者观点）
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

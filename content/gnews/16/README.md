@@ -1,57 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月19日美国政要反共推文精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1258011/)
+## 【战友心声】粉红们的恨，赤祼祼
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1257919/)
 
-众议员迈克·加拉格尔： 吉姆·乔丹是对的：共和党人，内阁官员，记者和美国人民都想知道新冠COVID-19的起源。 为什么关注冠状病毒的唯一国会委员会的民主党人却不希望把它查个底朝天呢？ 【附乔丹议员的视频】
-
-
-
-> .[@Jim\_Jordan](https://twitter.com/Jim_Jordan?ref_src=twsrc%5Etfw) is right: Republicans, cabinet officials, journalists, and the American people all want to know about the origins of COVID-19. 
-> 
-> Why don't Democrats on the only Congressional committee focused solely on the Coronavirus want to get to the bottom of it? [pic.twitter.com/SA1nh3lQlA](https://t.co/SA1nh3lQlA)
-> — Rep. Mike Gallagher (@RepGallagher) [May 19, 2021](https://twitter.com/RepGallagher/status/1395098918514536453?ref_src=twsrc%5Etfw)
+作者：纽约香草山福音部 小草
 
 
 
-参议员约翰·肯尼迪： CDC(疾病预防控制中心)认为 [#冠状病毒](https://twitter.com/hashtag/%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92?src=hashtag_click) 来自何处？ CDC（疾病预防控制中心主任）：“当然，基于实验室的起源是一种可能性。” 我想了解更多，您不想吗？ 【附视频：肯尼迪参议员就新冠病毒起源和功能增强性实验质询CDC主任】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
 
 
-> Where does the CDC think the [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) came from?
-> 
-> CDC director: “Certainly, a lab-based origin is one possibility.” 
-> 
-> I’d like to know more, wouldn’t you? [pic.twitter.com/kiTN6xkz12](https://t.co/kiTN6xkz12)
-> — John Kennedy (@SenJohnKennedy) [May 19, 2021](https://twitter.com/SenJohnKennedy/status/1395075426368819207?ref_src=twsrc%5Etfw)
+至今两千年“商鞅五术”的毒害，导致墙内粉红们没有包容，亦没有丰富的人性洞察力。墙内粉红们的情感极度单一，爱恨两重天，情绪过于极端化。粉红们对待他人容易陷入要不天真的幻想，要不极度妖魔化的两极状态，没有中间地带。从太平天国到义和团，从秦始皇到文革，这种民间自下而上的狂热和仇恨，用杀人来解决问题的思路就没有变过。我记得在埃德加-斯洛的《红星照耀中国》中一个细节，有一位中国老者对记者说：“杀得不够。”一向在洋人面前恭敬如绵羊的民族，内心对待自己同胞的处理方式——先仇恨，后杀之。
+
+中共能统治我们到今天，就是利用每个人的仇恨——因为恨比爱更容易。正常的社会，陌生人之间有基本的信任和善意；但中共治下，陌生人之间永远是赤祼祼仇恨和怀疑。有时他们之间仇恨的原因很微不足道，但总会让人缺乏信任感，更不可能有合作。仇恨，是在中共国最不缺乏的大众心理。在中共国，很可能这个村子与邻村因为械斗，造成后面几代人见面就打，碰头就辱骂；很可能你因为长得好看，你穿得干净就成了别人攻击的理由；很可能你刚买的新车就被人用铁丝刮划；很可能你与别人看法不同，所有人用“十面埋伏”来攻陷你的心理防线，甚至你的家人也附和中共的想法；很可能孩子都患上焦虑和抑郁症了，父母也不找自己原因，硬说孩子不听话，对孩子不理不问；也有可能当一个老师公开向家长们索要贿赂时，送不出礼物家庭的孩子成了老师出气筒。在一个变态的社会，没有最变态，只有更变态。统治阶级两千年精心培育的仇恨，导致中国人永远陷入仇杀的死循环里，没有信仰，也看不清问题。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19202417/95-2.jpg)
+
+在三亿人的特权阶层里，他们也逃不脱仇恨——因为他们就是用仇恨起家的。我遇到过这种情形：A是上司，B是下属，平时B对A殷勤有加。有一天A对B说：“如果有一天大家都起来反抗，你会怎么办？”B对A说：“我会让你说出银行密码。”B说得很坦诚，A非常惊惧，连说：“没想到，没想到，你要我银行密码。”B说：“我别的不要。”这就是中共国的三亿精英们，每个人都逃不脱身边人的仇恨。当然，也不可能让三亿人都离开中国——他们的钱和命都一直被人掂记着。
+
+墙内“韭菜们”盼望着能反抗的那一天到来，但有的人迎接解放的方式是很有问题的。我听到很多人跟我讲述过末日复仇计划，基本上，人物越小，计划越不现实。每个粉红们心中都列了一个仇恨的单子——拉清单，一旦有风吹草动，就进行个人复仇。这又是义和团“大刀王五”那个套路，这又是新一轮杀地主，多么赤祼祼的恐怖主义啊。尽管我们都是中共的受害者，但我们并不能随意地剥夺这三亿人的生命和财产。我们不能再中“商鞅五术”的巫蛊了，中国人一定要打破这个千年的死循环。不然，爆料革命所有的努力都白费了。我们推翻了中共，不能又建立一个仇恨立国的国家。
+
+中共知道韭菜们都是一个个孤岛，没有教会，没有犹太会堂，没有声张正义的群体，没有后援系统。我们的家庭和学校也只教我们顺从，而不是强大。社会中每个人早已“沙粒化”，但中共却又在每个沙粒心中安装了仇恨，用仇恨来让人更加孤立，从而更容易被洗脑，最后都跑到中共怀抱里找认同感和口粮。虽然这套把戏很有用，但不是所有韭菜都可以被操纵，也不是每个人都愿意无厘头地恨别人。
+
+用仇恨统治人，统治者是在玩火。中共如今坐在一座仇恨的火山口上，随时都有爆发的可能——中共能保证这个火山永远不会爆发吗？中共能让9000万党员捡起生命和尊严吗？中共能保证每一个粉红在互恨时不会也恨中共吗？中共能有慈禧太后闭眼入土的运气吗？当一个个粉红们被中共利用遍的时候，当一个个粉红理想破灭的时候，当B不要钱要A命的时候，中共手里还有什么呢？
+
+（本文仅代表作者观点）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 
 
-参议员卢比奥： 美国总统决定允许美国投资者继续资助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 军方用来制造武器的公司，这些武器有一天会来杀死美国人并在战争中打败我们。 【附卢比奥在福克斯电视台接受玛丽亚采访：就（拜登政府）将与中共国的贸易限制推迟到六月11号发表意见。呼吁与中共国战斗】
-
-
-
-> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) has decided to allow American investors to continue to fund companies the Chinese military is using to build weapons designed to one day kill Americans & defeat us in a war [pic.twitter.com/lYSQrK0aqL](https://t.co/lYSQrK0aqL)
-> — Marco Rubio (@marcorubio) [May 19, 2021](https://twitter.com/marcorubio/status/1395045937588887562?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·加拉格尔： 拜登政府提名了一个曾经为华为工作的游说律师担任我们情报圈高层职位。不仅仅是没有资格担任这项工作，还凸显了那些向外国对手兜售专长的前政府官员日益严重的问题。
-
-
-
-> The Biden Admin nominated a K Street lawyer who has done work for Huawei for a top post in our intel community. Not only is this work disqualifying, it highlights the growing problem of former USG officials who peddle their expertise to foreign adversaries.[https://t.co/UoSsZp3f8n](https://t.co/UoSsZp3f8n)
-> — Rep. Mike Gallagher (@RepGallagher) [May 19, 2021](https://twitter.com/RepGallagher/status/1395017062414696448?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特： NBC显然试图通过拒绝播放2022年金球奖来传达一个信息。但是，他们是否会因支持人权拒绝播放2022年奥运会，直到将其移出 [#共产党中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E5%85%9A%E4%B8%AD%E5%9B%BD?src=hashtag_click)？我希望如此。在这儿读我给NBC的信。
-
-
-
-> NBC is clearly trying to send a message by refusing to air the 2022 Golden Globes. But will they stand for human rights by refusing to air the 2022 Olympics until they're moved out of Communist China? I’d hope so. Read my letter to [@NBCOlympics](https://twitter.com/NBCOlympics?ref_src=twsrc%5Etfw): [https://t.co/nXLR26BDTa](https://t.co/nXLR26BDTa)
-> — Rick Scott (@SenRickScott) [May 19, 2021](https://twitter.com/SenRickScott/status/1395129556282060810?ref_src=twsrc%5Etfw)
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
 
 
 
