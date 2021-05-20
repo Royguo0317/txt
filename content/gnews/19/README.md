@@ -1,15 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年5月18日 文贵先生盖特 5
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1257634/)
+## 2021年5月18日 文贵先生盖特 8
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1257670/)
 
 编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-May 18th: From 6:00 in the morning until now, I basically didn’t eat anything. Have a whole day of meetings and interviews, but still have to exercise. Don’t give yourself any reason to give up your goals…and betray your promises!
+5月18号：尊敬的战友们好……很多战友要求我直播的信息……我都收到了，由于无法一一回复，明天上午9:30到10:00左右．文贵乱聊直播！文贵太喜欢这个狗的个性了！
 
-[【2021年5月18日】文贵先生盖特原文](https://gtv.org/getter/60a4575f37f7f73984cd25e9)
+[【2021年5月18日】文贵先生盖特原文](https://gtv.org/getter/60a4759737f7f73984cd2f44)
 
 **喜联盟Gnews编辑部**
 
-+1
+0

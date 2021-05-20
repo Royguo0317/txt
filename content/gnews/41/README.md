@@ -1,27 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国禁止其金融支付机构从事加密货币业务
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1257340/)
+## 【热点播报】印度使用伊维菌素和羟氯喹后，COVID病例骤减
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1257323/)
 
-编译：Boxinglady
+作者：纽约香草山农场 四季
 
-中国禁止金融机构和支付公司提供与加密货币交易有关的服务，并警告投资者不要进行投机性加密交易。这是中共国遏制新兴的数字交易市场的最新尝试。
 
-三个行业机构在联合声明中表示，根据该禁令，此类机构不得提供任何涉及加密货币的服务，例如注册，交易，清算和结算。
 
-他们在声明中说：“最近，加密货币价格暴涨和暴跌，加密货币的投机交易已经反弹，严重侵犯了人民财产的安全，破坏了正常的经济和金融秩序。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-中国已禁止加密货币交易所和初始代币发行，但并未禁止个人持有加密货币。
 
-声明还称，机构不得提供加密货币的储蓄，信托或抵押服务，也不得发行与加密货币有关的金融产品。
 
-这三个行业机构是：中国国家互联网金融协会，中国银行业协会和中国支付与清算协会。
+网关专家5月17日报道，印度政府在推广使用伊维菌素和羟氯喹后，印度的COVID病例骤减。
 
-他们在声明中说：“最近，加密货币价格暴涨和暴跌，加密货币的投机交易已经反弹，严重侵犯了人民财产的安全，破坏了正常的经济和金融规模。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19132208/88-4.jpg)图片来源：网关专家
 
-**简评：自今年四月新中国联邦创建的喜马拉雅喜币交易平台上线后，中共国不到一个月来紧锣密鼓地发布封杀虚拟货币的各种禁止法规法令。中共表明借口是保护投资着权益，而实质是剑指新中国联邦的喜币和G金融生态圈。如郭先生所言，一个新中国联邦的喜币就让中共已经被吓得魂飞魄散，也正说明郭先生深谋远虑的以钱灭共策略正打中了中共的七寸！中共倒台前的经济大溃败已近在咫尺。**
+印度卫生部于4月28日更新了关于检疫、治疗无症状和有轻微症状COVID-19患者的指导方针。其中指示，对无症状患者应“考虑服用伊维菌素3到5天”，护理人员对隔离区患者“按照治疗方案和医生处方采用羟氯喹进行预防措施”。
 
-新闻来源：[CNBC](https://www.cnbc.com/2021/05/18/china-bans-financial-payment-institutions-from-cryptocurrency-business.html)
+印度的冠状病毒病例正在急剧下降，这要归功于印度政府向民众大量推广使用伊维菌素和羟氯喹的新规则。当然，世卫组织和制药公司正在发飙。
+
+目前，在292项研究证明羟氯喹对COVID-19有治疗和预防作用中，有219项经过同行评审； 在93项研究伊维菌素证明其作为治疗和预防COVID-19的有效性中，有54项经同行评议。尽管这些药物可在数小时或数天内杀死COVID-19——这是一个无可争辩的事实——但比尔-盖茨资助的世界卫生组织（WHO）和大型制药公司对印度的新准则和结果大为不满。
+
+参考阅读：
+
+[Elites Worried: COVID Cases in India Plummet After Government Promotes Ivermectin and Hydroxychloroquine Use](https://www.thegatewaypundit.com/2021/05/elites-worried-covid-cases-india-plummet-government-promotes-ivermectin-hydroxychloroquine-use/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0

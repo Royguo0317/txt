@@ -1,51 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】印度使用伊维菌素和羟氯喹后，COVID病例骤减
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1257323/)
+## 武汉实验室网页删除了福奇的美国国立卫生研究院以及功能增强性实验相关的内容
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1257404/)
 
-作者：纽约香草山农场 四季
+翻译: JS709 | 校对: Elsie | 审核：V
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19141624/wiv-nih.png)
+**2021年初，武汉病毒研究所网站上将美国国立卫生研究院从其研究合作伙伴名单中删除。尽管安东尼·福奇（Anthony Fauci）博士坚称两机构之间不存在任何关系，事实还是被揭露出来。**
 
+武汉实验室网站的存档版本还显示了一项研究更新-“ SARS会回来吗？” –似乎描述了由安东尼·福奇博士的国家过敏和传染病研究所（NIAID）资助的机构正在该研究所进行的功能增强性研究。
 
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
-
-
-
-网关专家5月17日报道，印度政府在推广使用伊维菌素和羟氯喹后，印度的COVID病例骤减。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19132208/88-4.jpg)图片来源：网关专家
-
-印度卫生部于4月28日更新了关于检疫、治疗无症状和有轻微症状COVID-19患者的指导方针。其中指示，对无症状患者应“考虑服用伊维菌素3到5天”，护理人员对隔离区患者“按照治疗方案和医生处方采用羟氯喹进行预防措施”。
-
-印度的冠状病毒病例正在急剧下降，这要归功于印度政府向民众大量推广使用伊维菌素和羟氯喹的新规则。当然，世卫组织和制药公司正在发飙。
-
-目前，在292项研究证明羟氯喹对COVID-19有治疗和预防作用中，有219项经过同行评审； 在93项研究伊维菌素证明其作为治疗和预防COVID-19的有效性中，有54项经同行评议。尽管这些药物可在数小时或数天内杀死COVID-19——这是一个无可争辩的事实——但比尔-盖茨资助的世界卫生组织（WHO）和大型制药公司对印度的新准则和结果大为不满。
-
-参考阅读：
-
-[Elites Worried: COVID Cases in India Plummet After Government Promotes Ivermectin and Hydroxychloroquine Use](https://www.thegatewaypundit.com/2021/05/elites-worried-covid-cases-india-plummet-government-promotes-ivermectin-hydroxychloroquine-use/)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+2021年3月21日，该实验室网站列出了来自美国的六个研究合作伙伴：阿拉巴马大学，北德克萨斯大学，生态健康联盟，哈佛大学，美国国家卫生研究院（NIH）和美国国家野生动物联盟 。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19141601/web.png)武汉实验室网站
 
 
+一天后，该页面进行了修改，仅包含两个研究合作伙伴-生态健康联盟和阿拉巴马大学。 到3月23日，生态健康联盟变成了唯一的合作伙伴。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+生态健康联盟由中共的长期合作伙伴彼得·达萨克博士（Peter Daszak）领导，国家脉动的主编拉希姆·卡萨姆（Raheem Kassam）曾多次宣称达萨克将成为武汉实验室崩溃的第一个“替死鬼”。
+
+武毒所将NIH从其网站上删除的决定，是在对该实验室是否是中共病毒的来源以及来自NIH美国纳税人的钱可能资助了这项研究的严格审查之时作出的。武毒所试图掩盖真相的发现，在兰德·保罗（Rand Paul）参议员和福奇之间的激烈交锋之后，福奇试图将他的机构与武汉实验室切割。
+
+除了在NIH和武毒所之间建立工作关系之外，该网站删除的帖子还详细介绍了武汉实验室进行的带有功能增强性标志的研究。然而，福奇向保罗参议员断言：“NIH过去从未而且现在也没有资助武毒所的功能增强性研究。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19141546/2015.png)2015年的文章
 
 
+武毒所研究人员“与北卡罗来纳大学，哈佛医学院，贝林佐纳微生物研究所等的研究人员合作的”工作摘要描述了研究人员“制造并签定了一种嵌合病毒”，并指出对病毒的改造如何使其可以“在人原代呼吸道细胞中高效复制并达到与SARS流行毒株相当的体外滴度”：
+
+“利用SARS冠状病毒的反向遗传系统，研究人员获得并鉴定了一种嵌合病毒，该病毒在适应小鼠的SARS病毒主链中表达蝙蝠冠状病毒刺突蛋白SHC014。结果表明，在野生型主链中编码刺突蛋白SHC014的第2b组病毒可以有效利用SARS受体人类血管紧张素转化酶II（ACE2）的多个直系同源物，在人原代呼吸道细胞中高效复制，并达到与SARS冠状病毒流行毒株相当的体外滴度。对可用的针对SARS的免疫治疗和预防方式的评估显示疗效较差； 单克隆抗体和疫苗治疗都无法中和具有新型刺突蛋白的病毒，也就是不能提供保护以免于此病毒的感染。”
+
+文章总结道：“基于这些发现，他们合成了一种具感染性含全段SHC014的重组病毒，并在体外和体内都显示出强大的病毒复制能力。”
+
+在福奇和保罗参议员最近的交锋中，NIAID主任也受到了针对北卡罗来纳大学（UNC）研究员拉尔夫·巴里克（Ralph Baric）博士进行的功能增强性研究的追问， 巴里克从福奇的机构获得了173笔赠款。
+
+“巴里克博士并未进行功能增强性研究，如果做了，则是按照相关指导原则进行，并且是在北卡罗莱纳州进行的。如果您查看拨款情况和进度报告，就知道这不是功能增强性实验，尽管有人在推特上发这种消息，写这种故事。”虽然UNC在上面的博文中被列为研究伙伴，但福奇还是对参议员保罗做出了如此回应。
+
+武汉病毒研究所清除其功能增强性研究及与美国国立卫生研究院之间关系的证据后，还跟随国家脉动的采访，福奇声称他正在“试图聘任”中共的研究人员。
+
+原文作者：娜塔莉·温特斯（Natalien Winters）
+发布时间：2021年5月15日
+原文链接：https://thenationalpulse.com/exclusive/wuhan-lab-erases-nih-ties-gof-research/
 
 0
