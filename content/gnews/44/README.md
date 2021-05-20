@@ -1,15 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5/19/2021日每日快郭先生策划开发“躺平”币，用“躺平”币发展為躺平运动
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1258749/)
+## 【热点播报】中共民间战狼戴旭 公然叫嚣开战美舰
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1259359/)
 
-**制作：Cantonese工作室**
+作者：纽约香草山健身部 文鹰
 
-*资料整理：Elaine、文依、An
-海报製作：儂民、Penny
-视频製作：Ken*
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20011905/%E6%88%AA%E5%9C%96-2021-05-20-00.17.30.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20012023/%E6%88%AA%E5%9C%96-2021-05-20-00.18.08.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20011943/%E6%88%AA%E5%9C%96-2021-05-20-00.17.52.png)
-+1
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20052124/%E5%9B%BE%E7%89%873-54.png)图片来源：阿波罗网 
+
+本月18日美国军舰“科蒂斯·威尔伯”号导弹驱逐舰穿航台湾海峡，中共国东部战区新闻发言人例行公事发布警告，老生常谈“美舰行为蓄意危害、我方坚决反对、全程跟踪监视，及严密防范警戒，随时应对一切威胁挑衅”等话语。
+
+脱了军装的中共原解放军空军大校戴旭，先前刊发“美国正策划一场大规模的‘亚洲战争’ 国人要警惕”的“战争预警信号”评论文章后，结合美舰这次穿航台湾海峡事件，在媒体又跳出来，公然叫嚣“那就打吧”的自慰高调。
+
+戴旭何许人也？维基百科（1）介绍：戴旭，中共国国防大学教授退役，曾经在2013年4月新浪微博发布“禽流感，SASR是美军的生物心理武器”“禽流感死不了几个人”的叫兽言论。出了几部军事书籍，观点几乎都是资本主义对社会主义的围堵包围，美帝国主义威胁论调。回到民间择业“华信能源”旗下基金会战略分析师，兼左派媒体的军事评论员。
+
+这么有底气有胆量？在媒体高调公开其言论！不外乎中共国文革2.0版暗流涌动。你可以看到某城市墙上“祝寿毛泽东主席万寿无疆”的醒目标语，你也可以看到教科书重新对“文化大革命”定论的悄然篡改，你更能耳濡目染到自媒体文革言论的自嗨。这一切思潮在推波助澜中，这一切毒霾在祸害洗脑中。
+
+面对美军重启太平洋第二岛链中一个岛上原二战时期的战略机场，美军国防部报告重新定位印太威胁，及现在东海美日法澳联军部队“联合夺岛”演练（2），你知道战争的硝烟在悄然逼近，你知道中共的气数已到。你的叫嚣不过是被阉割的太监，嘶哑地挣扎一下！
+
+参考阅读：
+
+（1）https://zh.wikipedia.org/zh-tw/%E6%88%B4%E6%97%AD
+
+（2）https://www.epochtimes.com/gb/21/5/19/n12961159.htm
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13130410/5_May-1-1.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++2
