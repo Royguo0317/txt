@@ -1,95 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 揭露：白宫访客日志揭示了功能增强实验中止后福奇和克莱恩的战情室会议
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1257293/)
+## 芝加哥海关官员查获来自中共的68.5万美元假币
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1257287/)
 
-翻译:飞利普 |校对:烟波浩淼 |审核: 黎明的光芒
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19124837/Picture1-108.png)图片来自网络
-《国家脉动》对2014年11月白宫访客记录的审查透露了当时的埃博拉沙皇罗恩·克莱恩(Ron Klain)主持白宫战情室举行的一次会议。这次会议看来是由安东尼·福奇(Anthony Fauci)博士协调的，与会者包括几位美国政府机构的高层负责人。
+作者:休斯顿星光农场  文顺
+![This image has an empty alt attribute; its file name is Screenshot-2021-03-25-230524-1.jpg]()![This image has an empty alt attribute; its file name is Screenshot-2021-03-25-230524-1.jpg](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-03-25-230524-1.jpg)
+5月18日，美国海关和边境保护局（CBP）截获了来自中共的24个装有假币的包裹，共计685，000美元。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19130306/1111-2-1.jpg)图片来源：breaking 911
+据breaking911报道，这批假币被运往美国各地的各个城市，包括伊利诺伊州和印第安纳州的城市。尽管所有的假币都以酒吧道具的形式出现，但复制货币已违反联邦法律，违法者可以被逮捕。
 
-这次高姿态的峰会就在奥巴马政府发布中止“功能增强”实验的几周后举行，福奇博士现在声称，他所在的政府机构从未直接资助在中共国武汉实验室做的同样实验。
+这批假币面值含5美元，10美元，20美元，50美元，100美元。一批运往纽约布朗克斯的包裹中有976张100美元的钞票，另一批运往路易斯维尔的包裹中有101张20美元的钞票和103张50美元的钞票。这批假币已移交国土安全调查局和美国特勤局进一步调查。
 
-然而，福奇的坚称却被[事件顺序的新分析](https://thenationalpulse.com/analysis/exc-navarros-9-indisputable-facts-linking-fauci-to-covid-19-origin/)以及[他自己的员工在武汉主导“功能增强”](https://thenationalpulse.com/exclusive/fauci-researchers-headlined-wuhan-gain-of-function-event/)实验的例证所出卖。
+芝加哥地区港口总监谢恩·坎贝尔（Shane Campbell）表示：”我们的CBP官员时刻保持警惕，关注通过IMF运送的任何类型的违禁物品。”
 
-奥巴马总统和其他白宫高级官员（可能包括时任副总统拜登）也可能出席了会议。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19125436/Picture2-29.png)2014年白宫访客记录
-**2014****年战情室峰会。**
+据报道，在芝加哥的国际邮政设施（IMF），美国海关和边境保护局（CBP）官员每年处理5700万封包裹。海关人员通常每晚检获40至50个包裹，内有未经批准的药物、毒品、伪造珠宝、电子产品及许多其他非法物品。这批假币是在5月15日（星期六）至5月17日（星期一）为期三天内查获的。
 
-**2014****年****11****月****17****日上午，安东尼·福奇博士前往艾森豪威尔行政办公大楼（****EEOB****），即旧行政办公大楼（****OEOB****）。美国国土安全部（****Department for Homeland Security****）局长德鲁•克莱默（****Drew Cramer****）在白宫日志中确认了这次会议。**
+**新闻源参考:**
 
-上午10点，他会见了一位7年后将成为乔·拜登的“总理”人选的罗恩·克莱恩。参加会议还包括曾担任沃尔玛高管的健康与公共事业卫生官员莱斯利·达奇(Leslie Dach)等四人。
+[Chicago Customs Officers Find $685K In Fake Cash Shipped From China – Breaking911](https://breaking911.com/chicago-customs-officers-find-685k-in-fake-cash-shipped-from-china/)
 
-负责“埃博拉”危机法律方面的戴维·霍洛维茨（David J Horowitz）；疾控制中心的米切尔·沃尔夫(Mitchell Wolfe)；生物医学高级研究与发展局（BARDA）的创始人罗宾·罗宾逊(Robin Robinson)主任也出席了会议。
+编辑/校对/发稿：Helen、文顺
 
-BARDA被称为“负责采购和制定医疗对策，主要是针对生物恐怖主义，包括化学、生物、放射性和核(CBRN)威胁，以及大流行性流感和新出现的疾病”
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
 
-当时的疾控制中心主任托马斯·弗里登(Thomas Frieden)和美国公共卫生署海军少将斯蒂芬·里德(Stephen Redd)都在战情室的名册上。换言之：一个顶级团队讨论。
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
+- 
 
-来访的政府官员作为例行公事，在官方记录中有所记载。白宫雇员，包括总统和副总统，从来没有以这种方式记录过。
-
-但这次显然是一次重要的峰会，似乎促使当天晚些时候在白宫战情室进行了随后的讨论，这表明奥巴马总统，或者至少是当时的副总统拜登参与了此次峰会。
-
-如以上图表所示，11月17日当天晚些时候有一个新的预约。
-
-**传染病**
-
-在战情室峰会前不到一周，奥巴马总统就宣布了中美两国在传染病领域的新愿景。
-
-现在[存档的“情况说明书”中写道](https://obamawhitehouse.archives.gov/the-press-office/2014/11/11/fact-sheet-president-obama-s-visit-china)：
-
-*美国就中共国对国际“埃博拉”的回应捐款约**1.3**亿美元表示赞赏。美中正在利比里亚共同努力提供所需的设备、用品和治疗设施，我们的卫生人员正在一道努力，从源头上解决埃博拉疫情。双方呼吁国际社会所有成员加紧努力，支持联合国“埃博拉”紧急应变特派团。美中共同致力于通过《全球卫生安全议程》**(Global Health Security Agenda)**与伙伴合作，发展预防、检测和应对传染病的长期能力。*
-
-就在奥巴马与习近平达成协议之前，福奇又带领另外两个小组进入艾森豪威尔行政办公大楼（OEOB）的230和210房间，与克莱恩会面。这些会议的日期是2014年11月6日和10日。
-
-这些细节可能在一定程度上有助于揭示国家卫生研究院（NIH）背后的真相，以及它被涉嫌资助武汉病毒研究所的功能增强实验。这些信息使克莱恩和奥巴马在决定为福奇最近一直在激烈否认的事情开绿灯的问题上处于公开地位。
-
-**托尼（福奇）和罗恩**
-
-福奇博士和罗恩·克莱恩将继续保持一种亲密的工作关系，这些会议强调了他们在美国-中共合作研究的前景。批评人士可能还认为，福奇博士在中共病毒大流行初期向川普总统提供咨询时存在政治利益冲突。他自己的党派关系和家族捐款历史似乎证实了这一点。
-
-他们面临的一个挑战是，策划一场更强有力的公关活动，以反击媒体针对奥巴马应对“埃博拉”病毒行动不力的批评，最糟糕的是来自唐纳德·川普（Donald Trump）推文产生的结果。
-
-作为一名政治执行官，称为“埃博拉”沙皇的克莱恩是一个不同寻常的人选。但他是有效的。
-
-作为拜登的忠实拥护者，他有一件事做得非常出色，他让福奇博士成为媒体的宠儿，并开始扭转奥巴马政府在处理此事上的公关厄运。
-
-2014年10月17日，在克莱恩被任命担任这一角色的两天后，福奇[出现在每个电视网络的周日节目中](https://www.usatoday.com/story/news/politics/2014/10/18/ebola-anthony-fauci/17503095/)，以平息对克莱恩作为“埃博拉”沙皇的批评。这对两个人都很有用。
-
-对福奇来说，随后将与奥巴马举行多次会晤，包括2014年10月24日在椭圆形办公室举行的一次高调拥抱，福奇在会上向奥巴马介绍了“埃博拉”幸存者尼娜·范(Nina Pham)。媒体被“托尼福奇医疗保健英雄”的说法所吸引。
-
-几年后，范(Pham)起诉了她的雇主德克萨斯健康资源公司，并[抨击了一段拍摄她和医生的视频](https://www.dallasobserver.com/news/ebola-nurse-nina-pham-settles-with-texas-presbyterian-8838488)，称其为“公关噱头和侵犯隐私”
-
-**否认武汉疫情**
-
-福奇和克莱恩对武汉疫情的早期评估意见一致。
-
-2020年1月21日在《新闻极限》 (Newsmax)接受格雷格·凯利（Greg Kelly）的采访时，福奇说：“这不是对美国人民的重大威胁，这不是美国公民现在应该担心的事。”
-
-接下来又是[几个星期的混淆和矛盾](https://www.breitbart.com/politics/2020/04/13/dr-anthony-fauci-repeatedly-downplayed-coronavirus-threat/)。
-
-接在福奇那令人困惑和毫无帮助的建议后，是罗恩·克莱恩自己多次的公开表态，如2020年1月30日在《大西洋》杂志上发表的[文章](https://www.theatlantic.com/ideas/archive/2020/01/now-trump-needs-deep-state-fight-coronavirus/605752/)。
-
-克莱恩这篇文章以中共谈话要点开场，接着机械地模仿福奇对病毒的轻描淡写，而史蒂夫·班农（Steve Bannon）和彼得·纳瓦罗（Peter Navarro）博士（Dr.Peter Navarro）等鹰派人士则敲锣打鼓地要求立即采取行动。
-
-*克莱恩写道：“我们还不知道这种新型冠状病毒的威胁会有多严重。一方面，科学家们已经对病毒进行了快速测序，并正在研制疫苗。中共国实施了严厉的隔离措施以减缓病毒的传播，并正在迅速建立大规模的新医院来治疗其受害者。到目前为止，美国只看到少数病例，都是到中共国旅游的产物，而不是在这里传播。这些虽是担忧的原因，但不必过度紧张的恐惧”。*
-
-他补充说：
-
-*“最终，问题可能永远不会出现在冠状病毒上，它的威胁可能比早期迹象显示的要小……”*
-
-他的结论无需解释：
-
-五位总统–自由派和保守派、民主党和共和党都向托尼·福奇寻求建议；如果这不符合川普自己糟糕的本能，不可能想象他是第一个愤怒地驳回福奇提出的建议的人。”
-
-事实上，川普注意到福奇对他和世界都不利。
-
-现在，全世界都需要知道2014年这些重要会议讨论了什么，以及福奇和克莱恩的关系如何发展到中共病毒大流行初期。
-
-拉希姆·卡萨姆(Raheem Kassam)对本文作出了贡献。
-
-原文作者：迈克·麦考密克(MIKE MCCORMICK)
-发表时间：2021年5月17日.
-原文链接：[https://thenationalpulse.com/exclusive/white-house-visitor-logs-fauci-klain-gain-of-function/](https://thenationalpulse.com/exclusive/white-house-visitor-logs-fauci-klain-gain-of-function/)
 
 0

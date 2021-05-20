@@ -1,33 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 华尔街连续第三天因通胀紧张和加密货币暴跌而下跌
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1257355/)
+## 【热点播报】印度使用伊维菌素和羟氯喹后，COVID病例骤减
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1257323/)
 
-作者：Boxinglady
+作者：纽约香草山农场 四季
 
-周三华尔街主要指数连续第三个交易日下跌，因为加密货币的急剧下跌以及对通货膨胀的担忧使投资者远离风险资产。
 
-随着中共国禁止金融和支付机构提供加密货币服务，比特币和以太坊有望实现自去年三月以来最大的单日亏损。
 
-加密交易运营商Coinbase Global下跌5.6％，比特币银行Silvergate Capital Corp下跌3.0％，矿业公司Riot Blockchain和Marathon Digital Holdings分别下跌7.5％和9.0％。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-投资了数字货币的特斯拉公司下跌了4.2％，而接受加密支付的支付公司万事达卡，Square和PayPal则下跌了0.6％至3.2％。
 
-Bright Trading LLC的自营交易商市场结构主管Dennis Dick说：“今天将完全是关于加密货币的下跌，而崩溃肯定已经对股票市场产生了溢出效应，而股票市场已经饱受通胀担忧的困扰。”在拉斯维加斯。
 
-“随着投资者希望躲避通货膨胀的影响，我们已经看到股票从股票飞入大宗商品和其他资产类别，但是现在大多数资产拥挤，美联储被扣上手铐，因为收紧政策将意味着大部分现金可能会从市场上消失。”
+网关专家5月17日报道，印度政府在推广使用伊维菌素和羟氯喹后，印度的COVID病例骤减。
 
-尽管美联储官员保证价格上涨将是暂时的，但通货膨胀强劲的数据以及近几周工人短缺的迹象加剧了人们对通货膨胀的担忧，并扰乱了股市。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19132208/88-4.jpg)图片来源：网关专家
 
-标普11个主要板块全部下跌，其中金融和材料板块领跌。用来衡量投资者焦虑程度的CBOE波幅指数跃升2.5点，至23.82。
+印度卫生部于4月28日更新了关于检疫、治疗无症状和有轻微症状COVID-19患者的指导方针。其中指示，对无症状患者应“考虑服用伊维菌素3到5天”，护理人员对隔离区患者“按照治疗方案和医生处方采用羟氯喹进行预防措施”。
 
-华尔街主要股指在周二尾盘遭到抛售，原因是房屋开工数据疲弱盖过了沃尔玛和家得宝的好于预期的收益。
+印度的冠状病毒病例正在急剧下降，这要归功于印度政府向民众大量推广使用伊维菌素和羟氯喹的新规则。当然，世卫组织和制药公司正在发飙。
 
-纽约证交所下跌4.21：1，纳斯达克下跌2.84：1。
+目前，在292项研究证明羟氯喹对COVID-19有治疗和预防作用中，有219项经过同行评审； 在93项研究伊维菌素证明其作为治疗和预防COVID-19的有效性中，有54项经同行评议。尽管这些药物可在数小时或数天内杀死COVID-19——这是一个无可争辩的事实——但比尔-盖茨资助的世界卫生组织（WHO）和大型制药公司对印度的新准则和结果大为不满。
 
-标普指数录得两个新的52周新高，但没有新低，纳斯达克则录得12个新高和35个新低。
+参考阅读：
 
-新闻来源：[路透社](https://www.reuters.com/article/us-usa-stocks/wall-street-falls-for-third-day-on-inflation-jitters-crypto-plunge-idUSKCN2D018T)
+[Elites Worried: COVID Cases in India Plummet After Government Promotes Ivermectin and Hydroxychloroquine Use](https://www.thegatewaypundit.com/2021/05/elites-worried-covid-cases-india-plummet-government-promotes-ivermectin-hydroxychloroquine-use/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0
