@@ -1,15 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年5月18日 文贵先生盖特 5
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1257634/)
+## 比特币继续欢快坠跌至近30,000美元！
+` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1257754/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/18221707/%E6%AF%94%E7%89%B9%E5%B8%81-edited.jpg)图片来源：YOUTUBE
+据加拿大自媒体《thepostmillennial》于5月19日刊文称：据CNBC报道，比特币于5月19日早上跌至30,000美元左右！在一周前就开始的国际大抛售中，该加密货币在当天下跌超过了30％。这是其自1月份以来的最低水平。
 
-May 18th: From 6:00 in the morning until now, I basically didn’t eat anything. Have a whole day of meetings and interviews, but still have to exercise. Don’t give yourself any reason to give up your goals…and betray your promises!
+在特斯拉的马斯克公开宣布因使用大功率计算机进行比特币的“采矿挖掘”过程中对环境产生的巨大负面影响而表示担忧，并停止使用比特币购买其车辆之后，加密货币的投资者们随之迅速开始全面抛售该币。据报道，在马斯克发表以上言论的当天，加密货币市场就应声损失了超过3000亿美元。
 
-[【2021年5月18日】文贵先生盖特原文](https://gtv.org/getter/60a4575f37f7f73984cd25e9)
+特斯拉此前曾宣布，它在二月份购买了15亿美元的比特币，此举使当时比特币的价格瞬间飙升。比特币自4月中旬创下其历史新高的64,829美元以来，到目前已经下跌了50％以上。
 
-**喜联盟Gnews编辑部**
+此外，比特币并非当天暴跌的唯一加密货币。为以太坊区块链提供动力的以太币也下跌超过了30％，至2,235美元。而狗狗币的下跌同样超过了30％，至约32美分。
 
-+1
+加密资产对冲基金ARK36的执行董事Ulrik Lykke为此指出：“加密货币市场正在应对和处理导致目前熊市（空头市场）价格下跌的潮涌般信息。就比特币的前景而言，当前的情况可能看起来非常严峻，但是从其发展历史上看，这只是该加密货币需要跨过的又一个难关。因为与它过去曾急剧动荡起伏的坎坷相比，现在的暴跌可能只是一个不大不小的困境而已。”
+
+Lykke继续补充说：“上周仅比特币市场就蒸发了超过2500亿美元，尽管这看起来是个“天文数字”，但投资者们看到了不安稳的加密货币市场急剧下跌的动荡。”
+
+根据CNBC今年的数据显示，迄今为止，比特币价格总体上仍然上涨了30％，并在过去的12个月中上涨了约300％。
+
+[原文链接](https://thepostmillennial.com/bitcoin-continues-drop-falls-30-percent-to-30-000-in-single-day)
+
+本文仅代表原媒体信息和其作者个人观点。
+
+0

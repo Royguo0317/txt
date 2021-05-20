@@ -1,32 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】拜登政府取消俄罗斯——德国管道（AFP）的制造商Nord Stream 2的制裁
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1257951/)
+## 【有声读物】雇主被警告：要对强制疫苗接种后的任何不良反应负责
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1258087/)
 
-拜登政府对俄罗斯-德国管道（AFP）的制造商Nord Stream 2取消制裁
+配音：香草山录音组 Gtv abeilles（蜜蜂）
 
-简评：
-
-在日益增强对中共国的制裁的同时，拜登政府显示良好的拉拢同盟的愿望。
-
-文贵先生曾经在直播中说，普京是国际政治大家，在美中俄的平衡中，总能向中国博取最大的利益。而且，在未来，俄罗斯一定会和美国交好，经济会飞速发展。
-
-参考链接：
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-> JUST IN – Biden admin waives sanctions on Nord Stream 2, builder of Russia-Germany pipeline (AFP)
-> — Disclose.tv 🚨 (@disclosetv) [May 19, 2021](https://twitter.com/disclosetv/status/1395122680169472001?ref_src=twsrc%5Etfw)
 
 
 
-图片来源：[https://news.rthk.hk/](https://news.rthk.hk/)
 
-整理撰稿：蓝精灵
+据自然新闻网站5月18日报道，美国联邦职业安全与健康管理局（OSHA）正在警告雇主，他们需对强制性中共冠状病毒“疫苗接种”政策导致的任何不良事件负责。
 
-校对发布：Penny
+例如，如果被强迫注射实验性mRNA基因疗法的雇员瘫痪或死亡，该伤害或死亡将被视为“与工作有关”，这意味着雇主将被追究责任。
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+
+
+**文字版原文：[【热点播报】雇主被警告：要对强制疫苗接种后的任何不良反应负责](https://gnews.org/zh-hans/1257374/)**
+
+作者：纽约香草山写作组 四季
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

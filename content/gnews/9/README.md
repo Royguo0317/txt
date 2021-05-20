@@ -1,39 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 北大教授称中共赢得对美国的生物战争
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1257810/)
+## 5月19日美国政要反共推文精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1258011/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+众议员迈克·加拉格尔： 吉姆·乔丹是对的：共和党人，内阁官员，记者和美国人民都想知道新冠COVID-19的起源。 为什么关注冠状病毒的唯一国会委员会的民主党人却不希望把它查个底朝天呢？ 【附乔丹议员的视频】
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19183258/F-3-5.jpg)freedomfightersforamerica.com
-零对冲5月19日报道，中共智库高级研究员、北京大学教授陈平发表言论称，中共在2020年“打败”了美国，赢得了一场生物战，让美国“回到了自己的位置”。
 
-陈平声称“西方模式已经失败，500年的海洋文明注定要灭亡，中国共产党赢得了胜利，并将在2020年中共病毒疫情后的新时代‘引领生物革命后的现代化道路’。”
 
-陈平在视频中表示：“2020年，中共国打赢了贸易战、科技战、特别是生物战。”
+> .[@Jim\_Jordan](https://twitter.com/Jim_Jordan?ref_src=twsrc%5Etfw) is right: Republicans, cabinet officials, journalists, and the American people all want to know about the origins of COVID-19. 
+> 
+> Why don't Democrats on the only Congressional committee focused solely on the Coronavirus want to get to the bottom of it? [pic.twitter.com/SA1nh3lQlA](https://t.co/SA1nh3lQlA)
+> — Rep. Mike Gallagher (@RepGallagher) [May 19, 2021](https://twitter.com/RepGallagher/status/1395098918514536453?ref_src=twsrc%5Etfw)
 
-“这一成就是前所未有的。这是一个划时代的历史记录。” 他强调“在这场贸易战和生物战之后，美国被打回了原型。”
 
-陈平还评论了2020年的美国大选，他指出：“我认为川普试图恢复美国在他的四年任期内不断下降的国际地位的努力失败了。这不仅是川普个人竞选连任的失败，也是过去40年由美国和英国领导的新自由主义领导的全球化的失败。”
 
-“因此，美国和欧洲的发展和现代化模式不值得中共国模仿和重复。”
+参议员约翰·肯尼迪： CDC(疾病预防控制中心)认为 [#冠状病毒](https://twitter.com/hashtag/%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92?src=hashtag_click) 来自何处？ CDC（疾病预防控制中心主任）：“当然，基于实验室的起源是一种可能性。” 我想了解更多，您不想吗？ 【附视频：肯尼迪参议员就新冠病毒起源和功能增强性实验质询CDC主任】
 
-与去年同期相比，中共国经济在2021年第一季度增长了18.3%，这是中共国自1992年开始记录季度增长以来的最大增幅。经济的迅速反弹，是因为中共在2019年末赶在疫情之前采取行动，拖延和掩盖正在发生的疫情，而世界卫生组织(WHO)则在向世界其他国家重复中共的言论。
 
-乔·拜登(Joe Biden)有长期向中共投资者出售美国产业的记录。随着川普下台，美国现在受制于中共。
 
-而与此同时，以毒灭共加快了进程。关于中共病毒是来自武汉实验室的生物武器的科学证据越来越充足。一组世界的顶尖科学家们敦促对武汉病毒学研究所的泄漏导致中共病毒大流行的可能性进行更多调查，称世界卫生组织没有经过适当考虑就否定了这一说法。
+> Where does the CDC think the [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) came from?
+> 
+> CDC director: “Certainly, a lab-based origin is one possibility.” 
+> 
+> I’d like to know more, wouldn’t you? [pic.twitter.com/kiTN6xkz12](https://t.co/kiTN6xkz12)
+> — John Kennedy (@SenJohnKennedy) [May 19, 2021](https://twitter.com/SenJohnKennedy/status/1395075426368819207?ref_src=twsrc%5Etfw)
 
-美众议院情报委员会(House Intelligence Committee)的共和党代表要求白宫和国家情报总监(Director of National Intelligence)就武汉实验室泄露中共病毒的可能性提供最新信息。并且由高级成员德温·努涅斯 (Devin Nunes)领导的共和党人还希望获得有关武汉实验室与美国机构合作开展的“功能增强”研究的情报。
 
-此时中共智库成员承认中共赢得生物战争无疑是不打自招。迄今为止，中共释放超限生物武器造成全球1.64亿人感染，340万人死亡。而有关机构的调查数据显示实际死亡人数远不止于此，恐是现有死亡人数的两倍以上。
 
-当国际社会集体向中共追责之时，中共在对新疆维吾尔族实施种族灭绝和反人类罪行外，还将对全世界因中共生物战造成的几百万的死亡负责。这是等同于纳粹的罪行。中共恶行罄竹难书，必将迎来世纪大审判。
+参议员卢比奥： 美国总统决定允许美国投资者继续资助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 军方用来制造武器的公司，这些武器有一天会来杀死美国人并在战争中打败我们。 【附卢比奥在福克斯电视台接受玛丽亚采访：就（拜登政府）将与中共国的贸易限制推迟到六月11号发表意见。呼吁与中共国战斗】
 
-参考链接：
 
-[https://www.zerohedge.com/geopolitical/watch-communist-professor-declares-us-was-defeated-biological-war-china](https://www.zerohedge.com/geopolitical/watch-communist-professor-declares-us-was-defeated-biological-war-china)
+
+> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) has decided to allow American investors to continue to fund companies the Chinese military is using to build weapons designed to one day kill Americans & defeat us in a war [pic.twitter.com/lYSQrK0aqL](https://t.co/lYSQrK0aqL)
+> — Marco Rubio (@marcorubio) [May 19, 2021](https://twitter.com/marcorubio/status/1395045937588887562?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·加拉格尔： 拜登政府提名了一个曾经为华为工作的游说律师担任我们情报圈高层职位。不仅仅是没有资格担任这项工作，还凸显了那些向外国对手兜售专长的前政府官员日益严重的问题。
+
+
+
+> The Biden Admin nominated a K Street lawyer who has done work for Huawei for a top post in our intel community. Not only is this work disqualifying, it highlights the growing problem of former USG officials who peddle their expertise to foreign adversaries.[https://t.co/UoSsZp3f8n](https://t.co/UoSsZp3f8n)
+> — Rep. Mike Gallagher (@RepGallagher) [May 19, 2021](https://twitter.com/RepGallagher/status/1395017062414696448?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特： NBC显然试图通过拒绝播放2022年金球奖来传达一个信息。但是，他们是否会因支持人权拒绝播放2022年奥运会，直到将其移出 [#共产党中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E5%85%9A%E4%B8%AD%E5%9B%BD?src=hashtag_click)？我希望如此。在这儿读我给NBC的信。
+
+
+
+> NBC is clearly trying to send a message by refusing to air the 2022 Golden Globes. But will they stand for human rights by refusing to air the 2022 Olympics until they're moved out of Communist China? I’d hope so. Read my letter to [@NBCOlympics](https://twitter.com/NBCOlympics?ref_src=twsrc%5Etfw): [https://t.co/nXLR26BDTa](https://t.co/nXLR26BDTa)
+> — Rick Scott (@SenRickScott) [May 19, 2021](https://twitter.com/SenRickScott/status/1395129556282060810?ref_src=twsrc%5Etfw)
+
+
 
 0

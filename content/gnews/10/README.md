@@ -1,62 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒的起源: 是人类还是自然在武汉打开了潘多拉盒子？（第四部分）
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1257787/)
+## 为什么共产党害怕加密虚拟货币？
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1257855/)
 
-**作者: Nicholas Wade | 2021年5月5日**
-**翻译: Jessi/詹茜 校对: pv0**
+**摘要：在2021年5月7日的盖特视频中，郭先生解释了为什么中共那么害怕虚拟货币，因为区块链虚拟货币的最大属性是安全隐秘性，共产党无法任意抢劫你的财富。他说中共国巨额资金外逃，很多都流入了加密货币，对共产党的金融系统是毁灭性的打击，因为都知道共产党要完蛋了。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19210326/Miles_20210507-getter1.srt.txt)
+**为什么共产党害怕加密虚拟货币？**
 
+**Why Is the CCP Afraid of Cryptocurrencies?**
 
+要看到现在中共国内部[的问题]，像今天中信银行阻止国内任何人买比特币，[谁]买比特币[就]把帐号给你关了。招商银行事实上两周前已经开始了，民生银行也是早就开始了，而且为此抓了很多人。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/09181416/00123-1.jpg)**图源: HECTOR RETAMAL /法新社 盖蒂图片社**
+Let’s see what’s happening within the CCP right now. For instance, today the China CITIC Bank stopped people in mainland China from buying bitcoins, and whoever buys bitcoins, his account will be closed. China Merchants Bank actually started  to do this two weeks ago, and Minsheng Bank started even earlier, and many people have been arrested because of this.
 
+大家要问一个问题：为什么那么多人要买比特币，买虚拟货币？很简单的道理：因为大家觉得国内不安全。买这些币的原因都不是作为投资的，都是把钱避险的。
 
+People may ask this question: Why are there so many people who want to buy bitcoins and virtual currencies? The reason is very simple. It’s because everyone feels that mainland China is not safe. The reason for buying these coins is not for investment, rather it is to avoid risks.
 
-武汉病毒研究所内部。巴里克已经研究出了（并且教授给了石）一种对蝙蝠冠状病毒进行改造以使其攻击别的物种的通用方法。特定目标就是在培养物和人源化的小鼠身上生长的人类细胞。这些便宜的、合乎伦理的充当了人类受体的替身的实验室小鼠，被基因改造成为携带了名为ACE2，分布在人类气道细胞表面的人类版本的蛋白质。
+英国头两天有一个曾经最反对虚拟货币的人加入了我们喜币系列。我还纳闷呢，为什么他加入我们的喜币呢？我说你不是最反对吗？我说你不是说加密货币没有任何内含价值吗？他说了句话，他说：“我过去说的没有内含价值，[但]我没有说它没有外在价值。”
 
-石正丽回到了她在武汉病毒研究所的实验室，重新开始她之前进行的基因改造冠状病毒以攻击人类细胞的工作。我们怎么能这么肯定呢？
+A couple of days ago, someone in the UK, who used to oppose virtual currencies most strongly, joined our H-Coin series. I was wondering why he joined our H-Coin, so I asked, “Didn’t you say that you would be the one who opposed to it the most strongly? Didn’t you say cryptocurrencies had no any intrinsic value?” He said, “What I said in the past is that it has no intrinsic value, but I didn’t say that it has no extrinsic value.”
 
-因为，该故事中出现了一个奇怪的转折，美国国家卫生研究院（ the US National Institutes of Health ）的下属机构国家过敏和传染病研究所（the National Institute of Allergy and Infectious Diseases (NIAID)）资助了她的工作，作为公开记录的经费申请报告中明确说明了她打算利用这笔资金做什么。
+所有的财富，当它没有锚定挂钩的时候，所有的财富就是信用。还有就是安全的需要。所有的加密货币，最关键的[一个功能]，是[让]财富安全，还有就是让它独立的存在，不受到任何其它的威胁。
 
-这笔拨款被划给了主承包商，生态健康联盟的达萨克，他又转包给了石。以下是2018和2019财政年度的拨款摘录。（“CoV”代表冠状病毒，而“S蛋白”指的是冠状病毒的刺突蛋白。）“CoV跨物种传播的测试预测。对宿主范围的预测模型（即发生的可能性）将进行实验测试，使用反向遗传学、假病毒、受体结合试验、以及一系列来自不同物种和人源化小鼠的细胞培养物的病毒感染试验。”
+All wealth, when it is not pegged to something, it basically relies on credit. Also there is the need for security. The most critical function of all cryptocurrencies is to make wealth safe and allow it to exist independently, not to be threatened by anything else.
 
-“我们将使用S蛋白序列数据、感染克隆性技术、体外和体内感染实验以及对受体结合分析来检验S蛋白序列的分化阈值百分比预测溢出潜力的假设。”
+一样的道理，中共为什么限制[比特币]？不是说别的，就是因为大量的财富转移。而且国开行很多人[被]抓也因为和比特币有关系。国开行贪污的钱放哪去，他们很清楚，最终是能找着的。只有放到了虚拟货币里面，放[到]了以太币，火币，狗币，放[到]比特币，虚拟货币[里面]，大量的钱，而且拿不回来。
 
-用非技术性语言来说，这意味着石打算制造可能最易感染人类细胞的新型冠状病毒。她计划提取对S蛋白编码的基因，S蛋白对人类细胞的亲缘关系从高到低各有不同。她将把这些刺突基因一个接一个地插入到若干病毒基因组的骨架里（“反向遗传学”和“感染性克隆技术”），制造出一系列嵌合病毒。然后再测试这些嵌合病毒攻击人类细胞培养物（体外）和人源化小鼠（体内）的能力。该信息将有助于预测冠状病毒从蝙蝠传染给人的“外溢效应”的可能性。
+Similarly, why does CCP restrict bitcoin? Nothing but to restrict the massive transfer of wealth. Besides, many people at the China Development Bank (CDB) being arrested was also related to bitcoin. They know very well where the money embezzled by the CDB was hidden and they will eventually find the money. But only when the money is put in virtual currencies such as Ether, Huobi, and Dogecoin, and bitcoin, they will never be able to find it.
 
-该系统方法的设计旨在找到冠状病毒骨架和感染人类细胞的S蛋白的最佳组合。该方法可能已经制造出了类似非典2的病毒，而且确实可能通过病毒骨架和S蛋白的最佳组合制造出了非典2病毒本身。
+过去抓了像王建海航，是吧？这些人的钱在海外，共产党来了，[有]本人授权[加上]公司授权，甚至带了公司的财务和家人到美国来，这房子开始卖，是吧！找得着[就]能卖。比特币，加密币它[共产党]找不着，想拿回来几乎不可能。所以说查这个案子可以，把人办了可以，钱找不着。不可能像共产党一样，一抢一端一窝一窝的。
 
-现在还不能确定石在她的实验室里制造还是没制造非典2病毒，因为她的工作记录已经被封存了，但是看来她一定是走在这样做的路上。美国罗格斯大学（Rutgers University）的分子生物学家和生物安全顶级专家理查德·埃布赖特（Richard H. Ebright）说道：“显然，武汉病毒研究所正在系统性地制新型嵌合冠状病毒，并评估其感染人类细胞及表现出人类ACE2的小鼠的能力。”
+For example, after people like Wang Jian of HNA were caught, the CCP would come for their assets overseas. The CCP can obtain their own or their company’s authorization first, and even bring their company’s accountants and their family members to the US so that their properties can be sold, right? However, money in bitcoin and other cryptocurrencies cannot be found by the CCP, and it is almost impossible to take it away by the CCP. So it can investigate a case and arrest people, but the money will never be found. It will never be like the case when the CCP points a gun at someone, it will find the money this person previously hided in caves.
 
-“这也很清楚的是，”埃布赖特称，“根据被选作用于分析的恒定的基因组背景来看，此项工作可能已经制造出了新冠病毒或新冠病毒的近端先祖。”基因组背景指的是用作S蛋白测试平台的特定病毒骨架。
+那么另外大家看到现在日本最近加密货币、虚拟货币起起伏伏当中，可以看到日本的经济也是在危在旦夕。因为大量的财富也进了加密货币、虚拟货币。
 
-关于非典2病毒的起源的实验室逃逸的场景（到目前为止应该很清楚了），不是仅仅伸手指向武汉病毒研究所那么简单的事情。根据由国立过敏和传染病研究所资助的具体项目来看，这是一份详细的提案。
+In addition, everyone can see that Japan’s recent ups and downs in cryptocurrencies and virtual currencies show that Japan’s economy is already at the verge of collapse. Because massive wealth has entered encrypted currencies and virtual currencies.
 
-即便这笔拨款对上述的工作计划提出了要求，我们如何能确定该计划确实得到了实施？对此，我们只能相信达萨克的话，过去十五个月来，他一直极力坚称非典2病毒实验室逃逸学说是由抨击中国的人炮制的荒谬的阴谋论。
+只有区块链上安全，任何其它货币，任何可以等价或者有价衡量的证券都是被政治、被权力可以控制甚至可以销毁，甚至可以不算数的，那就没有任何信用可存在。它又没有安全性，那你要它什么？它本身就是一个贸易的工具，一个生产力的交易工具。所有加密货币第一条就是安全，所以很多人没闹明白：加密货币、区块链把人类整个财富和生产力的交换和生活方式彻底改变了 — 这是为什么共产党害怕？
 
-2019年12月9日，在公众对非典2疫情大流行的爆发一无所知之前，在一次采访中，达萨克热情洋溢地谈论武汉病毒研究所的研究人员如何一直在重新编辑S蛋白以及制造能够感染人源化小鼠的嵌合冠状病毒。
+Blockchain is the only safe place. Any other currencies or securities whose value can be measured are all controlled by politics and powers, and can even be destroyed or voided. So there is no credibility in them at all. Since they are not safe, why do you want to have them? They are a trading tool, a tool for trading products. But the number one feature of cryptocurrencies is their security. Many people don’t understand this. Cryptocurrencies and blockchain have completely changed the way how we exchange wealth and productivity and changed the lifestyle of mankind entirely. This is why the CCP is so afraid.
 
-“我们现在已经发现了，你知道，经过6到7年的研究，超过100多种与非典有关的新型冠状病毒，与非典病毒非常接近，”达萨克在本次采访的28分钟左右时说道。“其中有些进入了实验室的人类细胞，有些能在人源化小鼠模型上引起非典疾病，而且无法运用单克隆抗体治疗进行医治，也不能通过接种疫苗来对抗它们。所以，这是一个明显和现实的危险……”
+几个月以前我说过1000多亿转到了加拿大，这些钱里边很多都投入了加密货币。不但如此，战友们还要看到一个更夸张的[情况就是]香港以及在亚洲有多少拿来生产，甚至贷款的钱都加入了加密货币 — 这对共产党的金融系统是摧毁的。为什么要这么做？因为都认为共产党要完球蛋了。
 
-“采访者：你说这些是各种各样的冠状病毒，你不能通过接钟疫苗对抗它们，也没有抗病毒药–那么我们该怎么办？”
+A few months ago I said that more than 100 billion yuan was transferred to Canada, and much of it has been invested in cryptocurrencies. Not only that, my brothers and sisters, you will see that in Hong Kong and Asia a lot of money which was supposed to be used for production and even loans has been invested in cryptocurrencies. This is literally destroying the CCP’s financial system. Why do they do that? Because they all believe that the CCP will be over.
 
-“达萨克：嗯，我认为……冠状病毒–你在实验室里操纵他们很容易。在人畜共患风险中，S蛋白是促使新冠病毒形成的主要原因。所以你能获得S蛋白序列，你能制造S蛋白，我们多次同北卡罗纳大学的拉里夫.巴里克合作进行这项研究。把它插入到另一种病毒的骨架中，并在实验室里做一些工作。所以当你发现一个序列时，你能更有预测性。你已经获得了这种多样性，现在疫苗的逻辑发展是，如果你要开发一种非典疫苗，人们会用大流行非典病毒，但是让我们插入一些其他东西，那就会开发出一种更好的疫苗。”他提到的插入或许包括下面讨论的被称为弗林酶切位点的元素，这极大地增加了病毒对人类细胞的感染性。
+而且共产党里边黑钱是全人类最大的，数以几万亿美元，共产党在倒闭前如果有个两三万亿美元流入到加密货币市场它所造成的效应是数十万亿美元，边际效应是几十万亿美元。
 
-达萨克杂乱地提到的事实是，一旦你制造出了一种能攻击人类细胞的新型冠状病毒，那么你就能提取其S蛋白，使其作为疫苗的基础。
+Moreover, the CCP has the most dirty money in all mankind – several trillion U.S. dollars. If two or three trillion dollars flow into the cryptocurrency market before the CCP collapses, it will have an impact of tens of trillions of dollars, so the marginal effect will be tens of trillions of dollars.
 
-几天后，当达萨克听说了武汉疫情爆发时，人们必须设想一下达萨克的反应。他比任何人都清楚武汉病毒研究所的目标是制造传染人的蝙蝠病毒，以及该研究所在自己的研究人员不被感染方面薄弱的防御能力。但是，他没有向公共卫生当局提供他所掌握的大量信息，反而立即发动了一场公关运动，让全世界相信这场流行病不可能是由该研究所的一种改造过的病毒所导致的。他在2020年4月的采访中宣称，“病毒是从实验室逃逸的观点只是纯粹的胡说八道，完全不是真的。”
-
-
-
-**原文: **
-
-[The origin of COVID: Did people or nature open Pandora’s box at Wuhan?](https://thebulletin.org/2021/05/the-origin-of-covid-did-people-or-nature-open-pandoras-box-at-wuhan/)
-
-
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/6095408937f7f73984c8e133](https://gtv.org/getter/6095408937f7f73984c8e133) (00:56-2:17, 2:57-4:14, 6:39-8:06)
+鸣谢：感谢盘古小蚂蚁、Antsee-GTV、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://www.gnews.org/zh-hans/1187871/](https://www.gnews.org/zh-hans/1187871/)
 
 * * *
 
-**发布: 法国巴黎七星编辑组**
+**字幕：【Rock小哥】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+翻译 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-0
++1

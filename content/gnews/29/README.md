@@ -1,69 +1,148 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】共产主义蚕食世界（十二）——从法国大革命、雅各宾派和巴黎公社挖掘共产主义的源头（上）
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1255298/)
+## 战友展览板【5/19】
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1257563/)
 
-作者：纽约香草山农场   文尊
+**西班牙巴塞罗那喜悦农场** wenwu
 
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
+【以毒灭共】推文。如下
 
 
 
-**巴黎公社：不能为烧杀抢掠找任何阶级借口**
-
-今年的3月18日，中共各大网站又发起了回望无产阶级革命壮举的巴黎公社150周年纪念。 本文将揭开巴黎公社残暴、黑暗、丑陋的本质： 巴黎公社以一个“伟大”的理想为自己的暴行寻找借口，成为历史上罪恶的篇章——因为理想和行益之间并无必然联系。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19115114/85-1.jpg)*雅各宾派的恐怖統治（法语la Terreur）*
-对于巴黎公社的探讨要追溯到法国大革命时期。倘若大家还记得那个“过往的行人，不要为我悲伤。如果我活着，你们一个也别想活”的墓志铭——这就是后世为法国大革命（1789年7月14日）后掌权的雅各宾派首领马克西米连-罗伯斯庇尔（Maximilien Robespierre）残暴罪行的最好定义。罗伯斯庇尔不仅将法国国王路易十六送上了断头台，而且杀死了7万多人——包括无辜的人。暂且先不去评论法国大革命，雅各宾派（1793年9月5日－1794年7月28日）暴力血腥的事实却是不可否认的。法国大革命留给后人的功与过，只看我们站在什么立场去看待。但雅各宾派是法国大革命中最血腥残忍的时代，据统计，大约有7万人死于斩首或是暴行。英国学者内斯塔-韦伯斯特（Nesta Webster）的《世界革命*World Revolution*》一书中记载，雅各宾派专政共造成了30万人死亡。
-
-朝代的兴衰是一个历史规律，一朝天子一朝臣，这是一个自然法则，就如同自由经济法则一样，遵循天道。不管是封建专制还是共和制，都有贤君和暴君。集权不只是君主的集权，同时也是贵族或是利益集团的集权，它不止存在于封建的君主制时代，21世纪的今天也同样存在。就像法国大革命推翻的路易十六统治的封建集权一样，路易十六只是一个生不逢时的典型。
-
-经过路易十四时期的好战和高度集权，路易十五的荒淫挥霍，路易十六时期（1776-1793）的法国已经病入膏肓了。被称为“锁匠国王”的路易十六比起前朝的荒淫专制，他算是一位比较节制的“改革家”。1775年，路易十六任用《百科全书》的撰稿人之一的杜尔哥（Turgot）为财政大臣，实行一系列有利于资本主义经济发展的财政改革，但这却动了“穿袍贵族”的奶酪——在改革初显成效时遭到了利益集团的打压，路易十六最终被迫在一年后解除了杜尔哥的职务。几乎每个时代的变局都和经济的崩溃有着直接的关系。当时的法国经历了七年战争的失败，又因介入海外美国的独立战争，因而背负着沉重的债务（近乎于国家税收的一半），致使民怨四起。国库的空虚，再加上凡尔赛宫的奢华无度和国内的自然灾害，老百姓的日子苦不堪言。1788年出现的自然灾害，让法国处于灾难与财政的双重危机之中，最终这场风暴席卷了法国，将路易十六送上了他自己设计的断头台。
-
-接下来要讲的法国大革命，则并非是一次历史的偶然（纯属作者本人观点）。在一个黑暗动荡的年代，隐蔽已久的黑暗势力就如同星星之火，在强大的利益集团/组织的操纵下，随时可以星火燎原之势席卷全球。“水之形，避高而趋下；兵之形，避实而击虚。”兵家的艺术同样也被黑暗力量所掌控。人性的弱点在魔鬼的试探下一次次被击溃。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19115300/86.jpg)*图源网络：来自 Mélinée Le Priol | 法国*
-
-公元二世纪兴起的诺斯底主义（也叫诺斯底派Gnosticism，在希腊语中的意思是：启蒙，知识）曾经一度兴盛并胜过了基督教，一直流传到公元10世纪。当时的教廷生活十分糜烂，教廷声望低下。11世纪基督教大分裂：1054年，东西方教会大分裂，形成了天主教和东正教。1096年，教宗乌尔班二世来到法国克莱蒙，他呼吁全世界的基督徒去以色列，将圣墓教堂——即耶稣的坟墓——从异教徒手中解放出来。所以，这也产生了后来的十字军东征（1096年－1099年第一次东征）。
-
-1118年，圣殿骑士团诞生，成为一个军事和宗教的组织。一开始，该组织由九名法国骑士保护朝圣者去圣地。后来，耶路撒冷王国的鲍德温二世将圣殿山上的阿尔-阿克萨清真寺的一角赐给了这些骑士驻扎，其由此得名。1128年，“圣殿骑士团”迅速壮大，被免除了赋税后的贫穷骑士得到人们的捐助，开始变得富有——他们创建了世界上第一个银行系统和第一个支票本。前往耶路撒冷朝圣的路途遥远且艰险，实际上，只有40%的人能抵达圣地。因此，“圣殿骑士团”因教徒不可兑现的财产开始变得富可敌国，后来逐步控制了欧洲的土地、财富和教堂。他们开始信奉诺斯底主义，追随路西弗。后来，他们跟随阿萨辛派（Hashashins）——穆斯林的“异端”教派（阿萨辛组织以秘密的暗杀闻名。该组织用鸦片控制信徒使其培养秘密杀手，Hashashins的名字来源于吸食鸦片的声音，英语单词“assassin”（刺客、暗杀者）也来源于此）。1307年，法国国王腓力四世以亵渎神灵罪逮捕并处决了圣殿骑士，其首领雅克-德-莫莱（Jacques de Molay）被处以火刑——历史上的这一天也被称为“黑色星期五”。而其余的圣殿骑士团在葡萄牙得到国王丹尼斯二世的庇护，转入地下。从此便诞生了所罗门的宝藏等传说，被后世改编成各种小说和电影。世界上各种神秘组织的诞生也缘起于此。
-
-一世纪，基督降生，《圣经》里这样说：“坐在死荫之地的人，有光照着他们。”耶稣是世界的光，他的降生使得异教转入地下。世间本生即黑白同在，善恶并存。神有跟随着他的信徒，撒旦也在不断培养着他的代理人。《哥林多后书》第11章第14-15节：“这也不足为怪！因为连撒旦也装作光明的天使。所以他的差役若装作仁义的差使，也不足为奇。他们的结局必然照着他们的行为。”（”… And no wonder! For Satan himself transforms himself into an angel of light. Therefore it is no great thing if his ministers also transform themselves into ministers of righteousness whose end will be according to their works…” *Corinthians* 11:14-15）
-
-18世纪之前的异教大多都在地下活动，他们不断地杜撰虚假的神话和歪曲教义来试探人们，并同时窥探（欧洲）社会对异教的开放和接受程度。 18世纪出现很多哲学家、文人，在历史上叫做启蒙时代（Enlightenment）。这个时期的哲学、社会、政治和文化取得了突破性的发展，即打破宗教信仰、神学传统来发展理性主义。同时，这也为异教的传播和发展提供了载体，为异端邪说的发展寻找到了历史基础和理论土壤。在这个群体中，他们称自己为“蒙光照的（Illuminated/ Enlightened）”。（剩下的自己去思考，本文主要探讨一直在阴暗处成长的秘密团体/组织与共产主义发展的关系。）
-
-启蒙运动的这个光来自上帝的光，也来自魔鬼的光。所以，现在有很多人都在批判18世纪的哲学家们为人们的思想注入了很多的毒素，一直延续至今。
-
-英国的工业革命影响了法国的失业率。18世纪启蒙思想运动（Enlightenment）在欧洲蓬勃发展，在提倡科学、理性创建文明的同时，也发起了反宗教神学，摧毁天主教在欧洲的地位。因此，这也助长了阶级意识的萌发。最终，法国大革命在1789年5月的三级会议中爆发，以7月14日攻占巴士底监狱拉开序幕。法国大革命在历史上也被称为“血腥革命”。 法国大革命为后来的巴黎公社和苏维埃政权的建立提供了借鉴，也成为了共产主义思想的教科书。
-
-1794年7月27日，“热月政变”推翻雅各宾派政权。次日，雅各宾派罗伯斯庇尔（Maximilien Robespierre）被送上断头台，结束了法国大革命时期激进派的“恐怖统治”（Reign of Terror）。这时，号称“共产主义运动第一领导人”的诺埃尔-格拉克斯-巴贝夫（Gracchus Babeuf）登上了历史的舞台。巴贝夫鼓动人民起来消灭私有制、废除货币，通过由集权政府共产再分配的方式实现“普遍幸福的”、“人人平等的”共产主义公社。马克思称其为“第一个真正能动的共产主义政党的奠基人”。巴贝夫虽然谴责罗伯斯庇尔背叛法国工农，但是他的社会主义主张却又回归了雅各宾派“平等共产”的实质。 如同法国大革命一样，转了一圈又回到了起点。
-
-（待续）
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
+> 蓬佩奥在福克斯说：
+> 所有证据都指向武毒所，中共知道谁是0号病人！
+> 如果我说错了，中共你快来羞辱我蓬佩奥，放马过来吧,向世界展示真相!
+> 但他们不敢
+> 
+> 僖战第13次被葑，这是新号，欢迎关注 [pic.twitter.com/5hS18TIBTQ](https://t.co/5hS18TIBTQ)
+> — 乔戈里峰 (@K2Qiaogeli) [May 18, 2021](https://twitter.com/K2Qiaogeli/status/1394799768925208578?ref_src=twsrc%5Etfw)
 
 
+1. **[喜站推特](https://twitter.com/K2Qiaogeli/status/1394799768925208578?s=20)**：
+*蓬佩奥在福克斯说： 所有证据都指向武毒所，中共知道谁是0号病人！ 如果我说错了，中共你快来羞辱我蓬佩奥，放马过来吧,！向世界展示真相，中共不敢 
+僖战第13次被葑，这是新号，欢迎关注*
+
+
+> 刘叔文当年的博文很“诚实”地介绍了他的背景，来到姜世勃在纽约血液中心的实验室异常激动，因为有NIH的全力资助…
+> 纽约血液中心给军医科培养了一帮制毒者，看到图4的作者列表，我都怀疑纽约是不是早就被共军插上红旗了🤯[https://t.co/vNQnvyIM9F](https://t.co/vNQnvyIM9F) [https://t.co/xRtvVtNj9X](https://t.co/xRtvVtNj9X) [pic.twitter.com/EeiDWASWsR](https://t.co/EeiDWASWsR)
+> — 慕尼黑感恩 (@himalaya\_de) [May 19, 2021](https://twitter.com/himalaya_de/status/1394842065293529099?ref_src=twsrc%5Etfw)
+
+
+2. **[感恩农场推特](https://twitter.com/himalaya_de/status/1394842065293529099?s=20)**：
+***（闫）**一，让我们看看刘叔文博士，其被称为姜世勃博士在纽约血液中心接受军事训练的搭档。尽管刘从2002年到2014年在纽约血液中心工作，但他从未停止在中共国第一军医大学工作（图中绿色框内）；
+二，自2004年以来，从第一军事医科大学转向南方民用医科大学。然而，以前的解放军工作人员与解放军保持着牢固的联系。刘在纽约工作时晋升为中国教授。这（图）是他合作的一个例子。看看他们是谁？
+
+**（感恩）**[刘叔文当年的博文很“诚实”地介绍了他的背景](http://www.xys.org/forum/db/175/91.html)，来到姜世勃在纽约血液中心的实验室异常激动，因为有NIH的全力资助… 纽约血液中心给军医科培养了一帮制毒者，看到图4的作者列表，我都怀疑纽约是不是早就被共军插上红旗了*
+
+*(Sellin）[闫丽梦博士提供一些非常重要的信息。刘叔文和姜世勃一样是解放军。南方医科大学是第一军事医科大学，也是与人工插入 #COVID19 的“铁证”——弗林酶切位点的相关机构](https://twitter.com/LawrenceSellin/status/1394902063939788800)*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19162623/E1uxF-wWQAEiGQp.jpeg)3-0. **[Sellin博士推特](https://twitter.com/lawrencesellin/status/1394904550675521536?s=21)**：
+*这张图片证明了闫丽梦科学家是正确的。南方医科大学是解放军第一军事医科大学，刘书文是解放军。“铁证”，人工擦入 #covid19 的弗林酶切位点是来自该医科制药科学研究所*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19163609/E1u0F62XIAQzQSB.jpeg)3-1. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1394907333776580608?s=20)**：
+*[在劳伦斯·塞林2021年5月18日的新闻中说，“铁证”——人工擦入 #COVID19 的弗林酶切位点是由那些军事化民用南方医科大学的解放军干的](https://www.thegatewaypundit.com/2021/05/report-chinas-military-weapon-covid-19-constructed-completely-command-control-chinese-military/)*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19164025/E1vxrf4WUAA4dm5.jpeg)3-2. **[Sellin博士推特](https://twitter.com/lawrencesellin/status/1394974405395161091?s=21)**：
+*武汉病毒研究所在中国人民解放军创建 #COVID19 计划中的作用是什么？新冠病毒最后组装和初步测试？靠近爆发中心，武汉大学有一个非人类灵长类动物的测试设施
+#中共病毒 #福奇 #新冠疫苗*
+
+
+> This is the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) Indian variant B.1.617 with a P681R mutation. The furin cleavage site (FCS) changed from PRRARS to RRRARS, likely making it more functional and, potentially, more infective.
+> The FCS was artificially inserted by CCP military scientists.[https://t.co/6u0DTdoTGf](https://t.co/6u0DTdoTGf)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 19, 2021](https://twitter.com/LawrenceSellin/status/1394959351861948418?ref_src=twsrc%5Etfw)
+
+
+4. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1394959351861948418?s=20)**：
+*[这是#COVID19印度变体B.1.617的突变P681R。弗林酶切位点（FCS）从PRRARS变为RRRARS，可能使其功能更强，并有可能更具感染性。](https://www.ndtv.com/world-news/singapore-variant-of-coronavirus-affecting-children-what-we-know-so-far-2444387#publisher=newsstand)FCS是由中共军事科学家人为插入的**（投毒）***
+
+
+> Now let's get him to admit he stone called lied about NIH financing gain of function weaponization of virus research at the Wuhan lab. Evidence of third party funding and collaboration is overwhelming. Fauci is father of the virus.[https://t.co/hWFEvvPjJD](https://t.co/hWFEvvPjJD)
+> — Peter Navarro (@RealPNavarro) [May 18, 2021](https://twitter.com/RealPNavarro/status/1394802805861494788?ref_src=twsrc%5Etfw)
+
+
+5. **[彼得·纳瓦罗推特](https://twitter.com/RealPNavarro/status/1394802805861494788?s=20)**：
+*[现在，让我们让福奇承认，他在NIH资助武汉病毒研究所的病毒武器化、病毒功能增强研究上的说法是骗不了人。 第三方资助和合作的证据是非常多的。福奇是病毒之父](https://www.washingtonexaminer.com/news/fauci-admits-wore-mask-optics-didnt-want-give-mixed-signals)*
+
+
+> Some people read, some people listen to Fauci. [https://t.co/dikKrBGb4e](https://t.co/dikKrBGb4e)
+> — Dr. Urso (@richardursomd) [May 18, 2021](https://twitter.com/richardursomd/status/1394773949549105152?ref_src=twsrc%5Etfw)
+
+
+6. **[乌尔索博士推特](https://twitter.com/richardursomd/status/1394773949549105152?s=20)**：
+***（作家沙雷尔）**[印度奥迪沙邦也公开驳斥了世卫组织!奥迪萨邦将购买72万片伊维菌素用于隔离的病人](https://timesofindia.indiatimes.com/entertainment/events/bhubaneswar/odisha-to-buy-7-2-lakh-ivermectin-tabs-for-patients-in-isolation/articleshow/82598202.cms?from=mdr)
+
+**(乌索尔）**有的医生会去👀，有的医生只听福奇的*
+【灭共时代】
 
 
 
+> 交易平台币安：暂停以太坊和ERC20的提款。
+> 
+> 这韭菜盒子真香！
+> — 财经真相 (@caijingxiang) [May 19, 2021](https://twitter.com/caijingxiang/status/1395003571418980352?ref_src=twsrc%5Etfw)
 
 
-0
+**[财经真相推特](https://twitter.com/caijingxiang/status/1395003571418980352?s=20)**：
+*交易平台币安：暂停以太坊和ERC20的提款。 这韭菜盒子真香
+（中共国立法禁止比特币交易，这政策如同禁止黄金交易的法律！挥刀嚯嚯向富豪，美国也会立法禁止比特币的，但不会立法禁止黄金交易）*
+
+
+> 基督耶稣的出生地在巴勒斯坦境内，成长和临难地在以色列境内，所以去以色列的信徒和观光客也必定去巴勒斯坦。巴方为了方便游客进入，甚至连检查护照的手续都省了。巴、以在民间在经济上已经相当程度和平共存，战争绝不是人民的需要，而是恐怖分子和激进分子的穷折腾！还有背后黑暗势力的扇风点火！ [https://t.co/BHsdJUzRMn](https://t.co/BHsdJUzRMn)
+> — 瞿水台 Qu Shuitai (@QuShuitai) [May 18, 2021](https://twitter.com/QuShuitai/status/1394756124268761091?ref_src=twsrc%5Etfw)
+
+
+**[瞿水台推特](https://twitter.com/QuShuitai/status/1394756124268761091?s=20)**：
+***（约翰）**以色列情报机构估计，伊斯兰圣战组织和其他巴勒斯坦激进组织在加沙藏匿了大约3万枚火箭弹和迫击炮弹。 加沙武装分子公开将其成功归功于伊朗所提供的帮助。 除了提供走私武器和设备外，伊朗还侧重于培训，以帮助哈马斯提高当地生产水平，扩大火箭弹射程并提高其准确性。 那么伊朗后面又是谁在支持呢？（人民网爆，哈马斯恐怖主义的背后支持者是伊朗，伊朗的背后是共产党）
+
+**（瞿水台）**基督耶稣的出生地在巴勒斯坦境内，成长和临难地在以色列境内，所以去以色列的信徒和观光客也必定去巴勒斯坦。巴方为了方便游客进入，甚至连检查护照的手续都省了。巴、以在民间在经济上已经相当程度和平共存，战争绝不是人民的需要，而是恐怖分子和激进分子的穷折腾！还有背后黑暗势力的扇风点火！*
+
+
+> 以色列指责中国国家电视台“公然反犹” [https://t.co/UPCU3bFi3H](https://t.co/UPCU3bFi3H)
+> — 美国之音中文网 (@VOAChinese) [May 19, 2021](https://twitter.com/VOAChinese/status/1395012501796835332?ref_src=twsrc%5Etfw)
+
+
+**[美国之音推特](https://twitter.com/VOAChinese/status/1395012501796835332?s=20)**：
+*以色列官方指责中共国国家电视台“公然反犹”*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19165630/E1u9XeQUUAYY20d.jpeg)**[冠军的后妈推特](https://twitter.com/caqiangzouhuomg/status/1394916726408572936?s=21)**：
+*哎唷… 這回理解的更深刻了*
+
+
+> 美军驻台,等土共强烈谴责吧.[#土共](https://twitter.com/hashtag/%E5%9C%9F%E5%85%B1?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/CEjw8dX1FL](https://t.co/CEjw8dX1FL)
+> — 诗和远方 (@realcolidorra) [May 19, 2021](https://twitter.com/realcolidorra/status/1395034356419158019?ref_src=twsrc%5Etfw)
+
+
+**[诗和远方推特](https://twitter.com/realcolidorra/status/1395034356419158019?s=20)**：
+*[美军驻台,等土共强烈谴责吧](https://www.setn.com/News.aspx?NewsID=941168)*
+
+
+> 哪个更具杀伤力？
+> 其实浅显易懂，前者俘虏的是士兵，后者俘虏的是将军。 [pic.twitter.com/uoGyfA5F8M](https://t.co/uoGyfA5F8M)
+> — 湘女 (@bqB9Ml6aFloKS2F) [May 19, 2021](https://twitter.com/bqB9Ml6aFloKS2F/status/1394989958520360962?ref_src=twsrc%5Etfw)
+
+
+**[湘女推特](https://twitter.com/bqB9Ml6aFloKS2F/status/1394989958520360962?s=20)**：
+*哪个更具杀伤力？ 其实浅显易懂，前者俘虏的是士兵，后者俘虏的是将军*
+
+
+> 20210518蓬佩奧國務卿接受新唐人採訪（新疆部分）
+> 1.定義CCP在新疆的種族滅絕，這個動作本身就很重要
+> 2.美國很少會定義誰實施了種族滅絕
+> 3.這個定義是經過深思熟慮、小心謹慎、基於事實的認定
+> 4.還有公司跟如此駭人聽聞、專制獨裁、否定普通人的基本人權的中共政府勾結
+> 5.北京冬奧會是種族滅絕奧運會 [pic.twitter.com/DudxtZEH7X](https://t.co/DudxtZEH7X)
+> — Andy5 (@andy5\_123) [May 19, 2021](https://twitter.com/andy5_123/status/1394960931046703104?ref_src=twsrc%5Etfw)
+
+
+**[Andy5推特](https://twitter.com/andy5_123/status/1394960931046703104?s=20)**：
+*20210518蓬佩奥国务卿接受新唐人採访
+（新疆部分）
+1.定义CCP在新疆的种族灭绝，这个动作本身就很重要
+2.美国很少会定义谁实施了种族灭绝
+3.这个定义是经过深思熟虑、小心谨慎、基于事实的认定
+4.还有公司跟如此骇人听闻、专制独裁、否定普通人的基本人权的中共政府勾结
+5.北京冬奥会是种族灭绝奥运会
+（病毒）
+1.CCP在去年1-2月的行径就是切尔诺贝利的脚本
+2.CCP当时就不允许人得到信息、数据，其宣传机器栽赃美国
+3.去年蓬佩奥提出病毒来自武毒所被嘲讽·中共说不可能是人工产物
+4.有证据表明中共对病毒有研究，让其更具传染性
+请中共证明0号病人不是来自其实验室的生物*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19172302/E1u4LVOVkAEiD52.jpeg)**[Andy5推特](https://twitter.com/andy5_123/status/1394911019969904647?s=20)**：
+*签了好啊，签了之后这个病毒也就只可能叫「CCPVirus」了
+CCP想打种族歧视的这张牌，到最后一定会在病毒问题上成为被反杀的一张牌*
+
+
++1

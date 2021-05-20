@@ -1,148 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 战友展览板【5/19】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1257563/)
+## 【世事解评】共产主义蚕食世界（十三）——从法国大革命、雅各宾派和巴黎公社挖掘共产主义的源头（下）
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1257533/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
-
-【以毒灭共】推文。如下
+作者：纽约香草山农场   文尊
 
 
 
-> 蓬佩奥在福克斯说：
-> 所有证据都指向武毒所，中共知道谁是0号病人！
-> 如果我说错了，中共你快来羞辱我蓬佩奥，放马过来吧,向世界展示真相!
-> 但他们不敢
-> 
-> 僖战第13次被葑，这是新号，欢迎关注 [pic.twitter.com/5hS18TIBTQ](https://t.co/5hS18TIBTQ)
-> — 乔戈里峰 (@K2Qiaogeli) [May 18, 2021](https://twitter.com/K2Qiaogeli/status/1394799768925208578?ref_src=twsrc%5Etfw)
-
-
-1. **[喜站推特](https://twitter.com/K2Qiaogeli/status/1394799768925208578?s=20)**：
-*蓬佩奥在福克斯说： 所有证据都指向武毒所，中共知道谁是0号病人！ 如果我说错了，中共你快来羞辱我蓬佩奥，放马过来吧,！向世界展示真相，中共不敢 
-僖战第13次被葑，这是新号，欢迎关注*
-
-
-> 刘叔文当年的博文很“诚实”地介绍了他的背景，来到姜世勃在纽约血液中心的实验室异常激动，因为有NIH的全力资助…
-> 纽约血液中心给军医科培养了一帮制毒者，看到图4的作者列表，我都怀疑纽约是不是早就被共军插上红旗了🤯[https://t.co/vNQnvyIM9F](https://t.co/vNQnvyIM9F) [https://t.co/xRtvVtNj9X](https://t.co/xRtvVtNj9X) [pic.twitter.com/EeiDWASWsR](https://t.co/EeiDWASWsR)
-> — 慕尼黑感恩 (@himalaya\_de) [May 19, 2021](https://twitter.com/himalaya_de/status/1394842065293529099?ref_src=twsrc%5Etfw)
-
-
-2. **[感恩农场推特](https://twitter.com/himalaya_de/status/1394842065293529099?s=20)**：
-***（闫）**一，让我们看看刘叔文博士，其被称为姜世勃博士在纽约血液中心接受军事训练的搭档。尽管刘从2002年到2014年在纽约血液中心工作，但他从未停止在中共国第一军医大学工作（图中绿色框内）；
-二，自2004年以来，从第一军事医科大学转向南方民用医科大学。然而，以前的解放军工作人员与解放军保持着牢固的联系。刘在纽约工作时晋升为中国教授。这（图）是他合作的一个例子。看看他们是谁？
-
-**（感恩）**[刘叔文当年的博文很“诚实”地介绍了他的背景](http://www.xys.org/forum/db/175/91.html)，来到姜世勃在纽约血液中心的实验室异常激动，因为有NIH的全力资助… 纽约血液中心给军医科培养了一帮制毒者，看到图4的作者列表，我都怀疑纽约是不是早就被共军插上红旗了*
-
-*(Sellin）[闫丽梦博士提供一些非常重要的信息。刘叔文和姜世勃一样是解放军。南方医科大学是第一军事医科大学，也是与人工插入 #COVID19 的“铁证”——弗林酶切位点的相关机构](https://twitter.com/LawrenceSellin/status/1394902063939788800)*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19162623/E1uxF-wWQAEiGQp.jpeg)3-0. **[Sellin博士推特](https://twitter.com/lawrencesellin/status/1394904550675521536?s=21)**：
-*这张图片证明了闫丽梦科学家是正确的。南方医科大学是解放军第一军事医科大学，刘书文是解放军。“铁证”，人工擦入 #covid19 的弗林酶切位点是来自该医科制药科学研究所*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19163609/E1u0F62XIAQzQSB.jpeg)3-1. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1394907333776580608?s=20)**：
-*[在劳伦斯·塞林2021年5月18日的新闻中说，“铁证”——人工擦入 #COVID19 的弗林酶切位点是由那些军事化民用南方医科大学的解放军干的](https://www.thegatewaypundit.com/2021/05/report-chinas-military-weapon-covid-19-constructed-completely-command-control-chinese-military/)*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19164025/E1vxrf4WUAA4dm5.jpeg)3-2. **[Sellin博士推特](https://twitter.com/lawrencesellin/status/1394974405395161091?s=21)**：
-*武汉病毒研究所在中国人民解放军创建 #COVID19 计划中的作用是什么？新冠病毒最后组装和初步测试？靠近爆发中心，武汉大学有一个非人类灵长类动物的测试设施
-#中共病毒 #福奇 #新冠疫苗*
-
-
-> This is the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) Indian variant B.1.617 with a P681R mutation. The furin cleavage site (FCS) changed from PRRARS to RRRARS, likely making it more functional and, potentially, more infective.
-> The FCS was artificially inserted by CCP military scientists.[https://t.co/6u0DTdoTGf](https://t.co/6u0DTdoTGf)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 19, 2021](https://twitter.com/LawrenceSellin/status/1394959351861948418?ref_src=twsrc%5Etfw)
-
-
-4. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1394959351861948418?s=20)**：
-*[这是#COVID19印度变体B.1.617的突变P681R。弗林酶切位点（FCS）从PRRARS变为RRRARS，可能使其功能更强，并有可能更具感染性。](https://www.ndtv.com/world-news/singapore-variant-of-coronavirus-affecting-children-what-we-know-so-far-2444387#publisher=newsstand)FCS是由中共军事科学家人为插入的**（投毒）***
-
-
-> Now let's get him to admit he stone called lied about NIH financing gain of function weaponization of virus research at the Wuhan lab. Evidence of third party funding and collaboration is overwhelming. Fauci is father of the virus.[https://t.co/hWFEvvPjJD](https://t.co/hWFEvvPjJD)
-> — Peter Navarro (@RealPNavarro) [May 18, 2021](https://twitter.com/RealPNavarro/status/1394802805861494788?ref_src=twsrc%5Etfw)
-
-
-5. **[彼得·纳瓦罗推特](https://twitter.com/RealPNavarro/status/1394802805861494788?s=20)**：
-*[现在，让我们让福奇承认，他在NIH资助武汉病毒研究所的病毒武器化、病毒功能增强研究上的说法是骗不了人。 第三方资助和合作的证据是非常多的。福奇是病毒之父](https://www.washingtonexaminer.com/news/fauci-admits-wore-mask-optics-didnt-want-give-mixed-signals)*
-
-
-> Some people read, some people listen to Fauci. [https://t.co/dikKrBGb4e](https://t.co/dikKrBGb4e)
-> — Dr. Urso (@richardursomd) [May 18, 2021](https://twitter.com/richardursomd/status/1394773949549105152?ref_src=twsrc%5Etfw)
-
-
-6. **[乌尔索博士推特](https://twitter.com/richardursomd/status/1394773949549105152?s=20)**：
-***（作家沙雷尔）**[印度奥迪沙邦也公开驳斥了世卫组织!奥迪萨邦将购买72万片伊维菌素用于隔离的病人](https://timesofindia.indiatimes.com/entertainment/events/bhubaneswar/odisha-to-buy-7-2-lakh-ivermectin-tabs-for-patients-in-isolation/articleshow/82598202.cms?from=mdr)
-
-**(乌索尔）**有的医生会去👀，有的医生只听福奇的*
-【灭共时代】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
 
 
 
-> 交易平台币安：暂停以太坊和ERC20的提款。
-> 
-> 这韭菜盒子真香！
-> — 财经真相 (@caijingxiang) [May 19, 2021](https://twitter.com/caijingxiang/status/1395003571418980352?ref_src=twsrc%5Etfw)
+**巴黎公社：不能为烧杀抢掠找任何阶级借口**
+
+19世纪30年代的欧洲同时也在酝酿着改变人类政治结构的一股新势力——共产主义。在巴贝夫思想的影响下，1836年，一群流亡法国的德意志工人和手工业者组成了一个秘密革命团体——“正义者同盟”。1847年，同盟经马克思、恩格斯改造，在伦敦成立了“共产主义者同盟”。中国人耳熟能详的“四海之内皆兄弟”、“全世界无产者，联合起来”的口号都是来自于180多年前的共产主义者同盟。马克思、恩格斯是当时同盟的领导，起草同盟纲领。 1848年，世界上产生了国际共产主义运动第一个纲领性文献《共产党宣言》。当中明确规定同盟的目的是：推翻资产阶级，建立无产阶级统治，消灭旧的以阶级对立为基础的资产阶级社会和建立无阶级、无私有制的新社会。《国际歌》是这样唱的：“*起来，饥寒交迫的奴隶；起来，全世界受苦的人！满腔的热血已经沸腾，要为真理而斗争！ 旧世界打个落花流水…….从来就没有什么救世主，也不靠神仙皇帝。要创造人类的幸福，全靠我们自己！我们要夺回劳动果实，让思想冲破牢笼。快把那炉火烧得通红，趁热打铁才能成功！*”毛泽东曾说：“马克思主义的道理千头万绪，归根结底，就是一句话，造反有理。”打破旧世界的规则，冲破思想牢笼，即摧毁人类文明，割裂人与神的信仰纽带。通过摧毁一切社会秩序的世界革命而建立一个高度共产的世界政府，也是共产主义用来包装自己的“社会主义幸福大家庭”。
+
+1864年9月28日，第一国际成立；1871年3月，巴黎公社（法語：la Commune de Paris）成立。巴黎公社的主要成员和第一国际一样，为社会主义者、共产主义者、无政府主义者、工会以及暴民。第一国际的法国分部在1871年直接领导了巴黎公社运动，一脉相承了血腥革命的残暴。而共产主义的发展离不开阶级制造和阶级斗争。全世界无产阶级联合起来即是一股强大的改革力量，恐怕连马克思、恩格斯、列宁也不会想到，这一思想的发展其实背后早有推手。七年战争、法国大革命、普法战争、美国独立战争都需要耗费大量的金钱，当法国的国库因为战争而空虚时，政府的资金来源于何处？世界上最富有的从来都不是国王或是皇帝，也不是国家政府，少数的利益家族从古自今都掌握着国家的命脉。马克思也只不过是一枚旗子。当利益集团不能踏足俄罗斯时，一股新的理论便在俄罗斯蔓延，通过共产主义的代理人将沙皇踢出局，从此，俄罗斯也成了欧洲既得利益的一部分。马列尚且只是被玩忽于股掌的旗子，那就更不用说广大的劳苦人民了。人性的善良与弱点都被利益和权力的争夺所利用。（利益家族对国家的控制和今天中共通过“一带一路”的利益绑架实现控制其实同出一辙。）
+
+巴黎公社利用了自法国大革命开始就出现的内部对立矛盾（即传统和反传统）。当时，巴黎公社议会主席路易-奥古斯特-布朗基（法语：Louis Auguste Blanqui）在他的《布朗基文选》中说到：“有两个原则把法国一分为二，一个是正统的原则，另一个是人民主权的原则。人民主权的原则团结着所有争取未来的人民群众，他们受尽剥削的折磨，所以要求打倒这些压得他们喘不过气来的框框。” 马克思在《[法兰西内战](https://www.marxists.org/archive/marx/works/1871/civil-war-france/)》中说：“帝国的直接对立物就是公社，即要求建立一个不但取代阶级统治的君主制形式，而且取代阶级统治本身的共和国。公社正是这个共和国的毫不含糊的形式。” 书中还提到，“公社是想要消灭那种将多数人的劳动变为少数人的财富的阶级所有制。如果这不是‘共产主义’，可能的共产主义又是什么呢？”由此看来，巴黎公社具有共产主义的特色。（思考中共的建政和今天美国的分裂。）
+
+法国大革命、启蒙运动、雅各宾派专政、巴黎公社和共产主义的发展都有着直接的关系，也直接影响了前苏联和今天中共的执政手段。当中，巴黎公社在短暂统治巴黎的两个月期间给法国带来的是前所未有的毁坏：
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19183424/90-2.jpg)图源网络
+
+1871年4月12日，巴黎公社委员会通过法令，5月8日拆除旺多姆圆柱（法語：Colonne Vendôme）。巴黎公社被推翻后，旺多姆圆柱和拿破仑雕像被重新竖起，至今仍然矗立在旺多姆广场。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19183447/91-3.jpg)图源网络
+
+乔治-达尔博伊（Georges Darboy），法国天主教南锡教区主教、巴黎教区总主教。1871年4月4日，他作为人质被巴黎公社逮捕，在巴黎公社将要失败时被处死。据《天主教百科全书》记载，有50名神职人员被巴黎公社作为人质杀害。当时，公社还没收教会财产，禁止学校传授宗教，诋毁宗教亵渎神像，是共产主义对宗教浩劫的历史罪行。（对比中共自建政以来从未停止的宗教迫害。）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19183505/92-2.jpg)图源网络
+
+1871年5月23日火烧巴黎。当时，巴黎公社焚烧卢森堡宫（法国参议院）、巴黎歌剧院、杜伊勒里宫（波旁王朝和第二帝国的正宫）、巴黎市政厅、内政部、司法部、王宫（Palais Royal）以及香榭丽舍大街两旁的豪华饭店和高级公寓楼。卢浮宫也差点在这次焚烧中化为乌有。
 
 
-**[财经真相推特](https://twitter.com/caijingxiang/status/1395003571418980352?s=20)**：
-*交易平台币安：暂停以太坊和ERC20的提款。 这韭菜盒子真香
-（中共国立法禁止比特币交易，这政策如同禁止黄金交易的法律！挥刀嚯嚯向富豪，美国也会立法禁止比特币的，但不会立法禁止黄金交易）*
+> *“巴黎或与我们同在，或不存在。”*
+> *巴黎公社领导人之一：路易丝‧米歇尔*
 
 
-> 基督耶稣的出生地在巴勒斯坦境内，成长和临难地在以色列境内，所以去以色列的信徒和观光客也必定去巴勒斯坦。巴方为了方便游客进入，甚至连检查护照的手续都省了。巴、以在民间在经济上已经相当程度和平共存，战争绝不是人民的需要，而是恐怖分子和激进分子的穷折腾！还有背后黑暗势力的扇风点火！ [https://t.co/BHsdJUzRMn](https://t.co/BHsdJUzRMn)
-> — 瞿水台 Qu Shuitai (@QuShuitai) [May 18, 2021](https://twitter.com/QuShuitai/status/1394756124268761091?ref_src=twsrc%5Etfw)
+
+> *“革命无疑是天下最权威的东西。革命就是一部分人用枪杆、刺刀、大炮，即用非常权威的手段强迫另一部分人接受自己的意志。获得胜利的政党如果不愿意失去自己努力争得的成果，就必须凭借它的武器对反动派造成的恐惧，来维持自己的统治。要是巴黎公社不依靠对付资产阶级的武装人民这个权威，它能支持一天以上吗？反过来说，难道我们没有理由责备公社把这个权威用得太少了吗？”*
+> *弗-恩格斯写于1872年10月-1873年3月。《马克思恩格斯全集》论权威P341-344*
 
 
-**[瞿水台推特](https://twitter.com/QuShuitai/status/1394756124268761091?s=20)**：
-***（约翰）**以色列情报机构估计，伊斯兰圣战组织和其他巴勒斯坦激进组织在加沙藏匿了大约3万枚火箭弹和迫击炮弹。 加沙武装分子公开将其成功归功于伊朗所提供的帮助。 除了提供走私武器和设备外，伊朗还侧重于培训，以帮助哈马斯提高当地生产水平，扩大火箭弹射程并提高其准确性。 那么伊朗后面又是谁在支持呢？（人民网爆，哈马斯恐怖主义的背后支持者是伊朗，伊朗的背后是共产党）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
 
-**（瞿水台）**基督耶稣的出生地在巴勒斯坦境内，成长和临难地在以色列境内，所以去以色列的信徒和观光客也必定去巴勒斯坦。巴方为了方便游客进入，甚至连检查护照的手续都省了。巴、以在民间在经济上已经相当程度和平共存，战争绝不是人民的需要，而是恐怖分子和激进分子的穷折腾！还有背后黑暗势力的扇风点火！*
+编辑/校对/发稿：Irene木木
 
+**更多资讯，更多关注**
 
-> 以色列指责中国国家电视台“公然反犹” [https://t.co/UPCU3bFi3H](https://t.co/UPCU3bFi3H)
-> — 美国之音中文网 (@VOAChinese) [May 19, 2021](https://twitter.com/VOAChinese/status/1395012501796835332?ref_src=twsrc%5Etfw)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[美国之音推特](https://twitter.com/VOAChinese/status/1395012501796835332?s=20)**：
-*以色列官方指责中共国国家电视台“公然反犹”*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19165630/E1u9XeQUUAYY20d.jpeg)**[冠军的后妈推特](https://twitter.com/caqiangzouhuomg/status/1394916726408572936?s=21)**：
-*哎唷… 這回理解的更深刻了*
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-> 美军驻台,等土共强烈谴责吧.[#土共](https://twitter.com/hashtag/%E5%9C%9F%E5%85%B1?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/CEjw8dX1FL](https://t.co/CEjw8dX1FL)
-> — 诗和远方 (@realcolidorra) [May 19, 2021](https://twitter.com/realcolidorra/status/1395034356419158019?ref_src=twsrc%5Etfw)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-
-**[诗和远方推特](https://twitter.com/realcolidorra/status/1395034356419158019?s=20)**：
-*[美军驻台,等土共强烈谴责吧](https://www.setn.com/News.aspx?NewsID=941168)*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
 
 
-> 哪个更具杀伤力？
-> 其实浅显易懂，前者俘虏的是士兵，后者俘虏的是将军。 [pic.twitter.com/uoGyfA5F8M](https://t.co/uoGyfA5F8M)
-> — 湘女 (@bqB9Ml6aFloKS2F) [May 19, 2021](https://twitter.com/bqB9Ml6aFloKS2F/status/1394989958520360962?ref_src=twsrc%5Etfw)
 
 
-**[湘女推特](https://twitter.com/bqB9Ml6aFloKS2F/status/1394989958520360962?s=20)**：
-*哪个更具杀伤力？ 其实浅显易懂，前者俘虏的是士兵，后者俘虏的是将军*
 
-
-> 20210518蓬佩奧國務卿接受新唐人採訪（新疆部分）
-> 1.定義CCP在新疆的種族滅絕，這個動作本身就很重要
-> 2.美國很少會定義誰實施了種族滅絕
-> 3.這個定義是經過深思熟慮、小心謹慎、基於事實的認定
-> 4.還有公司跟如此駭人聽聞、專制獨裁、否定普通人的基本人權的中共政府勾結
-> 5.北京冬奧會是種族滅絕奧運會 [pic.twitter.com/DudxtZEH7X](https://t.co/DudxtZEH7X)
-> — Andy5 (@andy5\_123) [May 19, 2021](https://twitter.com/andy5_123/status/1394960931046703104?ref_src=twsrc%5Etfw)
-
-
-**[Andy5推特](https://twitter.com/andy5_123/status/1394960931046703104?s=20)**：
-*20210518蓬佩奥国务卿接受新唐人採访
-（新疆部分）
-1.定义CCP在新疆的种族灭绝，这个动作本身就很重要
-2.美国很少会定义谁实施了种族灭绝
-3.这个定义是经过深思熟虑、小心谨慎、基于事实的认定
-4.还有公司跟如此骇人听闻、专制独裁、否定普通人的基本人权的中共政府勾结
-5.北京冬奥会是种族灭绝奥运会
-（病毒）
-1.CCP在去年1-2月的行径就是切尔诺贝利的脚本
-2.CCP当时就不允许人得到信息、数据，其宣传机器栽赃美国
-3.去年蓬佩奥提出病毒来自武毒所被嘲讽·中共说不可能是人工产物
-4.有证据表明中共对病毒有研究，让其更具传染性
-请中共证明0号病人不是来自其实验室的生物*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19172302/E1u4LVOVkAEiD52.jpeg)**[Andy5推特](https://twitter.com/andy5_123/status/1394911019969904647?s=20)**：
-*签了好啊，签了之后这个病毒也就只可能叫「CCPVirus」了
-CCP想打种族歧视的这张牌，到最后一定会在病毒问题上成为被反杀的一张牌*
-
-
-+1
+0

@@ -1,43 +1,82 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印媒：中共如何使用宣传闪电战在病毒问题上误导世界
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1257832/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（二十五）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1258010/)
 
-#### 翻译：文兴|责编：卡拉马佐夫姐姐
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19184520/capturre.jpg)图片来源：[timesofindia](https://timesofindia.indiatimes.com/defaultinterstitial.cms)
-据《印度时报》(The Times of India) 网站5月16日发自新德里的报道，中共称霸全球的野心已经不是一个秘密。北京一直在利用其外交和包括基础设施项目投资在内的一系列经济措施来增强其对全世界的影响。
+作者：纽约香草山信息部 6zero4
 
-报道同时指出，国际新闻工作者联合会(International Federation of Journalists)的一个下属工会进行了一项全球调查，旨在明晰中共国如何进行为建立自己有利形象的宣传战，以及其如何利用中共病毒大流行伺机进行宣传。该调查的题目为“中共病毒的故事：揭开中共全球战略面纱”，该调查重点关注了中共在各国媒体中如何推动关于其的正面报道以及如何施加影响。
-
-该调查还试图弄清楚那些有无获得中共病毒相关援助国家之间对中共国态度的变化，调查的数据从位于亚太、非洲、欧洲、拉美、北美、中东和北非的国家收集而来。
-
-**渗透战术**
-
-中共使用已有的媒体基础设施来宣传自己；这包括为外国记者提供培训项目和赞助旅行，通过内容共享将亲共的内容输入全球新闻机构，与全球新闻业联盟签订协议，并获得出版平台的所有权。
-
-该调查还显示，虽然每个国家的记者都认为他们的媒体系统足够强大，能够抵御影响渗透和文章”植入”的努力。然而，北京正在逐个文章、逐个国家地在全球重新设计叙事格局。与此同时，许多常驻中共国的外国记者被驱离，这导致报道中的真空越来越多地被中共批准的内容所填补，有时这些内容甚至是免费提供的。
-
-**“杠杆化”中共病毒大流行**
-
-这场大流行为中共国提供了一个展现其所谓的“慷慨”和“人性化”一面的机会。除三个国家外，所有被调查的国家都收到了来自中共国的“大流行援助”，形式包括个人防护设备、药品和治疗方案，同时有42%的国家收到了来自中共国的疫苗。然而，该调查发现，某些所谓的中共病毒援助实际上是由所在国政府购买，但被宣传为捐赠。另据分析发现，接受疫苗捐赠的国家更倾向于对中共国在处理该大流行病方面进行正面报道。
-
-在非洲，人们对中共国的影响持最积极的看法，一半的受访者认为其影响是有益的。所有的来自非洲的受访者都表示，中共国在他们的媒体上有着存在感很强；其中有一半的人还表示，在经历了中共病毒之后，当地媒体对中共国的报道变得更加正面了。
-
-在接受中共病毒疫苗捐赠的国家中，有57%的受访者表示中共试图在当地媒体中塑造叙事。在没有接受援助的国家中，这一比例为34%。
-
-该调查里还有一项关于“当地媒体自中共病毒爆发以来对中共国报道变化”的评分调查（评分标准为1-10，1代表非常消极，10代表非常积极）。平均分数是5.38。欧洲对中国报道的积极变化最大，为6.3分。北美则处于另一个极端，为3.5分。
-
-**误导性宣传**
-
-关于中共国使用国家机器进行错误信息和虚假信息宣传的指控由来已久。中共外交部官员曾于2020年在推特上表示，中共病毒是由参加武汉军运会的美国士兵带到中共国来的。随后，中共国大使和其他官员持续努力地想在社交媒体上确立这一“理论”。2020年6月，推特删除了23,750个散布此类虚假信息的中共国账户。 另外，中共国还积极宣传中共病毒起源于意大利。有超过80%受调查国家对本国媒体中的类似虚假信息表示担忧。
-
-* * *
-
-简评：中共邪党的本质之一便是欺骗，对内“以假骗治国”，对外则竭力忽悠。随着爆料革命持续对其的揭露，世界上有越来越多的国家逐渐看清了中共拙劣的技俩。而印度在遭受了中共病毒惨烈的摧残后，痛定思痛，加上闫丽梦博士前段时间连续在印度媒体曝光中共病毒的真相，再结合郭先生爆料，因此译者推测印度应是最早吹响灭共集结号的国家。另据《路德社》分析，鉴于印度属于英联邦国家，很快英国等国家将迅速跟进，在全球形成灭共的风暴。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
 
 
-&gt;&gt;原报道链接&gt;&gt; [Propaganda blitz: How China tried to mislead world with its own Covid narrative](https://timesofindia.indiatimes.com/world/rest-of-world/propaganda-blitz-how-china-tried-to-mislead-world-with-its-own-covid-narrative/articleshow/82676974.cms)
+5月18日塞林博士的5连推：
 
-+1
+第1推，转发“火来2号”战友的中英混合推：这篇文章介绍拿着病人体内分离的Zika病毒给猴子接种，建立动物模型，由AMMS主导并完成，史佩勇(之前译为石培勇)也参与其中，提供试剂并分析数据。史佩勇拿着NIH和WHO的经费跟PLA合作，可以这样做么？需要一些明确答复，并标识出NIH经费的拨款编号AI087856，标注出当时主要的参与人员及其照片，他们是：李晓峰（PLA-AMMS微生物流行病研究所病原体生物安全国家重点实验室)）、史佩勇、秦成峰、童贻刚、高福和曹务春。并附上史佩勇在2016年9月与PLA科研人员联合发表的论文之网页截图。UTMB的史佩勇，当下正在Fauci的NIAID资助下，真正成为PLA的史佩勇，他理应被驱逐出境。向COVID-19侦探“火来2号”致敬！（李晓峰真容浮出水面）
+
+
+
+> Pei-Yong Shi of the University of Texas Medical Branch, currently funded by Anthony Fauci's NIAID, is actually Pei-Yong Shi of the People's Liberation Army. He should be deported. (hat tip to [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw))[#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDEmergency](https://twitter.com/hashtag/COVIDEmergency?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Fauci](https://twitter.com/hashtag/Fauci?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/FMLqMNLGwP](https://t.co/FMLqMNLGwP)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 18, 2021](https://twitter.com/LawrenceSellin/status/1394592230124437504?ref_src=twsrc%5Etfw)
+
+
+
+第2推，在UTMB的史佩勇直接与PLA合作的同时，Fauci的NIAID资助却也正在资助他（经费拨款编号AI087856），并贴上史佩勇在2016年9月与PLA科研人员联合发表的有关寨卡病毒研究的论文之网页截图。
+
+
+
+> At exactly the same time that Pei-Yong Shi of the University of Texas Medical Branch is working directly with the Chinese People's Liberation Army, Anthony Fauci's NIAID is funding him (AI087856).[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#Fauci](https://twitter.com/hashtag/Fauci?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDEmergency](https://twitter.com/hashtag/COVIDEmergency?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/Wx1UUc9ep5](https://t.co/Wx1UUc9ep5)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 18, 2021](https://twitter.com/LawrenceSellin/status/1394599200793538560?ref_src=twsrc%5Etfw)
+
+
+
+第3推，重复发出上一推，再次明确敲打并警告Fauci与史佩勇，并贴上史佩勇在2016年10月与PLA科研人员联合发表的有关寨卡病毒研究的论文之网页截图。
+
+
+
+> Again, at exactly the same time that Pei-Yong Shi of the University of Texas Medical Branch is working directly with the Chinese People's Liberation Army (Cheng-Feng Qin), Anthony Fauci's NIAID is funding him (AI087856).[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#Fauci](https://twitter.com/hashtag/Fauci?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDEmergency](https://twitter.com/hashtag/COVIDEmergency?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/2dA7f8Yw1r](https://t.co/2dA7f8Yw1r)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 18, 2021](https://twitter.com/LawrenceSellin/status/1394602393845833728?ref_src=twsrc%5Etfw)
+
+
+
+第4推，第三次发出上一推，事不过三，第三次重复敲打并警告Fauci与史佩勇，并贴上史佩勇在2017年5月与PLA科研人员联合发表的有关寨卡病毒研究的论文之网页截图，并加上Fauci的另一个NIH经费拨款编号AI103807。
+
+
+
+> 3rd time, at exactly the same time that Pei-Yong Shi of the University of Texas Medical Branch is working directly with the Chinese People's Liberation Army (Cheng-Feng Qin), Anthony Fauci's NIAID is funding him (AI087856, AI103807).[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#Fauci](https://twitter.com/hashtag/Fauci?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDEmergency](https://twitter.com/hashtag/COVIDEmergency?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/OY7bvhgswh](https://t.co/OY7bvhgswh)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 18, 2021](https://twitter.com/LawrenceSellin/status/1394604268179632132?ref_src=twsrc%5Etfw)
+
+
+
+第5推，转发Joe Hoft今天发表在Gateway Pundit上的一篇文章“报告：中共国的军事武器COVID-19完全是在中共军方的安排和控制下制造的”。
+
+
+
+> China’s Military Weapon COVID-19 Was Constructed Completely Under the Command and Control of the Chinese Military[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#FauciLied](https://twitter.com/hashtag/FauciLied?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusIndia](https://twitter.com/hashtag/CoronavirusIndia?src=hash&amp;ref_src=twsrc%5Etfw) [#Covid](https://twitter.com/hashtag/Covid?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/vYC50Nqusv](https://t.co/vYC50Nqusv)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 18, 2021](https://twitter.com/LawrenceSellin/status/1394646426592948228?ref_src=twsrc%5Etfw)
+
+
+
+塞林博士展示出史佩勇在2016年到2017年间，与CCP-PLA科研人员联合发表多篇论文之网页截图，都是有关寨卡病毒研究的论文，将病人体内分离出来的Zika病毒给猴子接种，建立动物模型，以探索该病毒的跨种传播特性，进而实现人畜共患的功能开发，最终达成病毒人传人的生物武器目标，UTMB的史佩勇深度参与其中。由此可见，中共军方很多时候连军民融合的底裤都懒得穿，干脆赤裸裸地裸奔，生物武器直接由CCP-PLA-AMMS主导，并深度渗透和绑架美国等西方国家的病毒学家，融合其资金和技术，借腹生子制造CCP自己苦思冥想的生物武器。所以，诸如 COVID-19等生物武器完全是在中共军方的安排和控制下制造出来就并不奇怪了！
+
+令人痛心疾首的是，史佩勇一面拿着美国纳税人支付的薪水，打着为UTMB工作的幌子，一面却拿着NIH和WHO的经费跟CCP-PLA合作，Fauci的NIH经费的拨款编号AI087856与AI103807就是板上钉钉的确凿证据。Fauci和史佩勇，你们怎么可以这么疯狂、这么无耻、这么无底线？你们欠世界一个明确的答暗！你们理应被美国驱逐出境，甚至连同CCP一起开除球籍！
+
+塞林博士三次重复发推，三次重复敲打并警告Fauci与史佩勇，你们俩与CCP军方合作的蛛丝马迹已经被美国军方掌握的清清楚楚，证据确凿，这是收网前给你们俩的最后通牒，是选择做污点证人给自己赎罪的机会，还是一条道走到黑与CCP一起亡命天涯？
+
+校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
