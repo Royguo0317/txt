@@ -1,51 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共严厉打击比特币实属醉翁之意不在酒
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1258187/)
+## 【拆台新闻】中共出台政策打压虚拟货币 我们都知道比特币在玩比震
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1258356/)
 
-作者：纽约香草山健身部 幸福鸟
+CNN的劳拉和米歇尔在2021年5月19日写了一篇报道：随着中国扩大对加密货币的打击力度，比特币暴跌至40,000美元以下。文中写道：
 
+越来越多的镇压行动可能也部分地推动了中国政府支持的数字人民币计划的实施，有关当局正在努力实施这一计划，以便在严格监督下保持资金流向。
 
+尽管2013年的通知只提到了比特币的名字，但鉴于北京对比特币的厌恶，一些观察家认为比特币适用于所有加密货币。该国有中国时报周三描述的最新公告为“在本质上风险警告。” 该媒体援引决策智囊团国家信息中心官员朱友平的话说，虽然不是国家法律或法规，但在某种程度上代表了“行业标准”。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+简评：
 
+文贵先生在5月19号晚的直播中谈了这一轮比特币的震荡，他幽默的给了一个新的名词：比震，原话是这么说的：“
 
+所以说这两天你看这个虚拟币比特币，人民币数字人民币啊，然后大肆宣传，试了21次全失败。本来要在这个高峰的时候DCEP要推广到全世界，说要把美国恐惧的钱和美国这个金融危机之前的恐惧的钱，都变成咱们的DCEP，把日本面临的经济危机日本的外逃的恐惧的钱变成了DECP。
 
-5月19日，中共加强了对加密货币的打压力度，禁止银行和支付公司提供与加密货币交易有关的服务。此前一天，包括中（共）国国家互联网金融协会、中（共）国银行业协会和中（共）国支付与清算协会在内的三家有中共背景的机构在社交媒体上警告投资者，不要进行投机性加密交易。他们声称，消费者进行此类交易将得不到任何保护，且需对加密货币投资交易的任何损失后果自负。他们还补充说，最近加密货币价格的剧烈波动“严重违反了人们的资产安全”，并且正在扰乱“正常的经济和金融秩序”。
+他们1.4%的股东拥有97%的比特币，上万亿美元的富可敌国的一个比特币，迅速从5万多美元6万美元跌到了4万美元，甚至达到3.7，3.6万吧。大概比特币现在会从你1万到6万之间晃了，就这么晃来晃去晃来晃去，人家搞床震生孩子啊，这个是比特币震荡就叫比特币震啊，就叫比震。。。所以说你看人家1点四共产党控制绝大多数，然后华尔街，不管是上还是下，都是拿你的钱，他永远不会输钱，就这么简单。
 
-![]()![](https://ichef.bbci.co.uk/news/640/cpsprodpb/174DC/production/_99325459_gettyimages-825838988.jpg)图片来源：BBC中文（Getty Image）
+所以，文贵先生告诉了我们真相，比特币是控制在中共手里的，上下震动是人为的， 是收割财富用的，一个黑帮政党，勾结华尔街，以国家的名义，来收割全世界的财富。所有人都要睁大眼睛，看穿本质，轻松躺下，养育我们的喜币，还有躺平币，等待世界的正道主义的货币系统的到来
 
-随后，比特币的价格在三个月内首次跌破34,000美元（24,030英镑），以太坊和狗狗币等其它加密货币的跌幅分别超过22％和23％。同时，特斯拉在华尔街的股价下跌超过3％。众所周知，该公司由埃隆-马斯克（Elon Musk）拥有，马斯克持有价值约15亿美元的加密货币。据报道，该公司的股价下跌很可能与手中持有大量数额的比特币有关。
+参考链接：
 
-自2019年以来，中共以遏制洗钱为名，将中共国的加密货币交易打为非法行为。但是，比特币等货币交易仍然能够在网上继续进行，这让中共深感不安。
+[https://edition.cnn.com/2021/05/19/investing/bitcoin-price-drop-china-crypto-intl-hnk/index.html?utm\_term=video&utm\_medium=social&utm\_source=twCNNi&utm\_content=2021-05-20T01%3A39%3A37](https://edition.cnn.com/2021/05/19/investing/bitcoin-price-drop-china-crypto-intl-hnk/index.html?utm_term=video&amp;utm_medium=social&amp;utm_source=twCNNi&amp;utm_content=2021-05-20T01%3A39%3A37)
 
-值得庆幸的是，今年4月21日，万众瞩目的喜币腾空出世了！爆料革命的战友们个个心高彩烈、摩拳擦掌、冲破重重阻碍地投入到喜币的预购热潮中。正如七哥所说，我们的喜币拥有20％的黄金储备做后盾，现已一币难求，前途更是不可限量。喜币的问世令中共魂飞胆丧，故此可见，其目前对比特币的严厉打击实属醉翁之意不在酒！
+整理撰稿：蓝精灵
 
-参考阅读：
+校对发布：Penny
 
-[Bitcoin falls further as China cracks down on crypto-currencies](https://news.yahoo.com/bitcoin-falls-further-china-cracks-101825126.html)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

@@ -1,57 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】北斗系统迅猛发展，实用性差、科技含量低隐患难除
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1258228/)
+## 苹果为了利益出卖灵魂
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1258343/)
 
-香草山写作组 鹰(文言)
+撰稿：金生水
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19230033/201-1.png)图片来自网络
+科技媒体《黑客新闻》近日报道了苹果公司如何给予中共政权访问iCloud数据库的权利以及审查其上架的应用程序。
 
+在2018年7月，当贵州云大数据（GCBD）同意与国有电信公司中共国电信达成协议，将属于苹果中共国用户的iCloud数据转移到后者的服务器时，这种转变引起了人们的担忧，即它可能会产生用户数据，容易受到国家监督。
 
+现在，根据《纽约时报》的深入报道，苹果公司的隐私权和安全性让步“几乎使该公司无法阻止中共国政府获得数百万封电子邮件，照片，文档，联系人和位置的信息的中共国居民。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
+这些发现与苹果公司对隐私的承诺形成了鲜明的对比，同时也突显了一种承认中共国政府继续在中共国开展业务的要求的模式。苹果在2018年宣布，与GCBD合作的一部分，中国大陆用户的iCloud数据将移至贵州省的新数据中心。 过渡必须遵守2017年的一项法规，该法规要求将在中国用户身上收集的所有“个人信息和重要数据”“存储在香港”。
 
+iPhone制造商的支持文件说：“ iCloud在中国大陆由GCBD（AIPO Cloud（Guizhou）Technology Co. Ltd.）运营。这使我们能够继续改善在中国大陆的iCloud服务并遵守中国的法规。”
 
+尽管iCloud数据是端到端加密的，但据说Apple同意在所有iCloud加密密钥存储在美国服务器上之前将加密密钥存储在数据中心，因此要遵守有关政府访问请求的美国法律。
 
-环球网5月19日转载央视网消息，中共卫星导航定位协会18日发布《2021中国卫星导航与位置服务产业发展白皮书》。白皮书指出，2020年我国卫星导航与位置服务产业总产值为4033亿元。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19221756/Screen-Shot-2021-05-19-at-10.17.08-PM.png)
-中共从2000年开启北斗试验系统，2012年建成北斗二号区域系统。该系统可为亚太地区提供服务。2017年至2020年7月，北斗三号全球系统组网完成，包括30颗卫星、3条轨道。虽然北斗组网卫星数量达到55颗，但是在普及率上，北斗系统远逊GPS，而GPS卫星却只用24颗就实现了全球定位。2020年国产北斗兼容型芯片及模块销量已超过1.5亿片，国内支持北斗定位系统的智能手机出货量2.96亿台，具有北斗定位功能的终端产品总计超过10亿台/套（含智能手机）。然而，全球手机2020年销量12.4亿部，支持北斗定位系统的依旧仅有国产手机，占比约为23.8%。
+尽管美国法律禁止美国公司将数据移交给中国执法部门，但《纽约时报》的报告显示，苹果和中国订立了“不寻常的安排”来回避美国立法。
 
-国产北斗芯片工艺停留在28nm，最新的22nm工艺刚具备批量生产能力。对比GPS，其配套的手机芯片7nm工艺已成标配，更有IBM的2nm芯片诞生，国产北斗芯片在生产工艺上仍有很大的差距。这也决定了北斗的竞争力低下，所以其出口也只集中于东盟、南亚、东欧、西亚、非洲地区等地区。屋漏偏逢连夜雨，国内芯片制造龙头企业如华为、中兴等因盗窃知识产权以及其军方背景纷纷被制裁，华为被迫放弃手机业务，而中兴也只能靠国家财政救济过日，国内芯片前路已断。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19221836/16x9-feature-photos-MOS-logos-4-5.png)
-北斗系统虽然开始融入国内电力、通信等核心基础设施建设，但自2010年电力行业推进北斗应用至今，北斗系统才刚刚开启与配电网的融合步伐。2021年贵州电网公司将安装700余台具备北斗通信功能配网自动化开关和10台配网的北斗通信主站；2022年南方电网将实现北斗系统对500千伏及以上线路自主巡检全覆盖。北斗区域系统建成到应用周期的漫长以及工程应用实例的稀缺，都能看出中共对北斗系统精度以及稳定度的不信任。炒作北斗系统，除了是为了防范未来军事冲突中卫星通信服务被阻截后的国内通讯崩溃外，更多的则是好大喜功式的吹嘘卫星发射技术以宣扬民族主义。
+为此，该公司将客户数据的合法所有权转让给GCBD，除了授予对服务器的GCBD物理控制权以及对iCloud中存储的所有信息的完全访问权限外，从而允许“中国当局向Apple要求GCBD（而非Apple）客户的数据。”
 
-新闻来源：
+报告补充说，随着法律的通过，苹果公司在九起案件中向政府提供了数量不明的iCloud帐户的内容，并对三个政府的数据请求提出了质疑。但是，没有证据表明中国政府借助数字密钥获得了访问用户数据的权限。
 
-2020年我国卫星导航与位置服务产值超4000亿 较2019年增长约16.9％https://china.huanqiu.com/article/43BQGjSc1Tx
+此外，据报道，在中国拒绝对使用的设备进行认证之后，苹果通过建立自己的内部HSM来避开Thales生产的硬件安全模块（HSM）。 HSM包含一个或多个安全的加密处理器，用于执行加密和解密功能，并将加密密钥存储在防篡改的环境中。
 
-让配电更智能 让巡检更精准 “北斗+”支撑构建新型电力系统http://finance.sina.com.cn/jjxw/2021-05-19/doc-ikmxzfmm3308983.shtml
+该公司告诉《纽约时报》，它“从未损害”中国“或我们经营的任何地方”的用户或用户数据的安全性，并补充说其中国数据中心“具有我们最新，最完​​善的保护措施”，预计这将是推广到其他国家。
 
-中国北斗全球梦圆——写在北斗三号全球卫星导航系统全面建成之际http://www.xinhuanet.com/politics/2020-07/31/c\_1126311085.htm
+安全研究人员和约翰·霍普金斯大学教授马修·格林在一系列推文中说：“苹果在2015年要求很多人支持他们反对FBI。” 他说：“他们使用法律工具库中的所有工具来阻止美国使用手机。他们是否认为有人会给他们怀疑的好处呢？”
 
-历史性成功！北斗全球系统组网完成https://news.sina.com.cn/c/2020-06-23/doc-iirczymk8509946.shtml
+“显然，苹果被迫赋予中共国政府对客户数据的更多控制权。从允许某些端到端加密的意义上说，当前的妥协甚至可能是’好的’。但是中共政权迟早会采取行动，要求苹果提供一些自己不想放弃的东西，苹果将不得不做出选择。也许他们已经有了选择，”霍普金斯补充道。
 
-我国具有北斗定位功能终端保有量超10亿https://news.sina.com.cn/c/2021-05-18/doc-ikmxzfmm3121522.shtml
+文贵先生在5月18号的盖特中也指出苹果公司为了利益向中共妥协阻止郭媒体上架，为了市场而助纣为虐的苹果，早晚会得到应有的报应。
 
-北斗组网卫星数量55颗，美国GPS却只用24颗，两者差距在哪？https://new.qq.com/omn/20201031/20201031A04LVQ00.html
+（文章内容仅代表个人观点）
 
-北斗今天起全球通，你的手机支持吗？https://new.qq.com/omn/20200731/20200731A0PPAM00.html
+*审核：**J**enny**编辑：**M**G1*
 
-2020年，全球手机销量12.4亿部，大跌近9％！前6大手机厂商出炉？https://new.qq.com/omn/20210116/20210116A0DUW000.html
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-编辑/校对/发稿：正义的小新
+参考链接：
 
-**更多资讯，更多关注**
+[https://thehackernews.com/2021/05/how-apple-gave-chinese-government.html?utm\_source=feedburner&utm\_medium=feed&utm\_campaign=Feed%3A+TheHackersNews+%28The+Hackers+News+-+Cyber+Security+Blog%29&\_m=3n.009a.2485.es0ao0dz6i.1knc](https://thehackernews.com/2021/05/how-apple-gave-chinese-government.html?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+TheHackersNews+%28The+Hackers+News+-+Cyber+Security+Blog%29&amp;_m=3n.009a.2485.es0ao0dz6i.1knc)
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19113721/1-%E6%BE%B3%E5%96%9CLogo-8.jpeg)
 0

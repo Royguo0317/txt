@@ -1,15 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5/19/2021日每日快郭先生策划开发“躺平”币，用“躺平”币发展為躺平运动
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1258749/)
+## 5/11/2021 Newsmax采访闫博士(三)： 中共已将病毒武器化来对抗世界
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1258855/)
 
-**制作：Cantonese工作室**
+这场冠状病毒大流行实际上是中共国长期发展新型生物武器的结果，对此，闫博士定义为超限生物武器。而在2015年的中共军方文件中，他们已经说明如何使用SARS-1病毒以及相关的冠状病毒来开发更好的生物武器。
 
-*资料整理：Elaine、文依、An
-海报製作：儂民、Penny
-视频製作：Ken*
+By: 【秘密翻译组G-Translators】
 
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20011905/%E6%88%AA%E5%9C%96-2021-05-20-00.17.30.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20012023/%E6%88%AA%E5%9C%96-2021-05-20-00.18.08.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20011943/%E6%88%AA%E5%9C%96-2021-05-20-00.17.52.png)
-+1
+0
