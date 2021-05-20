@@ -1,69 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大时政生活杂谈 （第十三期）2021-05-17
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1257899/)
+## 为什么共产党害怕加密虚拟货币？
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1257855/)
 
-作者: 蒙特利尔皇家山战友团 平民正道
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19201448/jdfjh.jpg)
-**一、一星期新闻简要播报**
+**摘要：在2021年5月7日的盖特视频中，郭先生解释了为什么中共那么害怕虚拟货币，因为区块链虚拟货币的最大属性是安全隐秘性，共产党无法任意抢劫你的财富。他说中共国巨额资金外逃，很多都流入了加密货币，对共产党的金融系统是毁灭性的打击，因为都知道共产党要完蛋了。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19210326/Miles_20210507-getter1.srt.txt)
+**为什么共产党害怕加密虚拟货币？**
 
-过去4天全世界总增新病例是2396871例，全世界总的感染人数接近1.65亿。死亡人数全世界是340万，过去4天的死亡人数是4万4千多。
+**Why Is the CCP Afraid of Cryptocurrencies?**
 
-过去4天美国有116511例新增，过去4天死亡人数是1966人。总感染人数是33739000，死亡人数已经超过60万。今天一天的新增超过2万。
+要看到现在中共国内部[的问题]，像今天中信银行阻止国内任何人买比特币，[谁]买比特币[就]把帐号给你关了。招商银行事实上两周前已经开始了，民生银行也是早就开始了，而且为此抓了很多人。
 
-印度过去4天新增的数字官方发布是1187119，官方死亡人数是16512。到今天为止总感染人数是25227970，官方死亡人数是278751。恒河的浮尸已经超过2千具。
+Let’s see what’s happening within the CCP right now. For instance, today the China CITIC Bank stopped people in mainland China from buying bitcoins, and whoever buys bitcoins, his account will be closed. China Merchants Bank actually started  to do this two weeks ago, and Minsheng Bank started even earlier, and many people have been arrested because of this.
 
-加拿大总感染人数是1332744，死亡人数是24969。今天全加拿大新增是4901。
+大家要问一个问题：为什么那么多人要买比特币，买虚拟货币？很简单的道理：因为大家觉得国内不安全。买这些币的原因都不是作为投资的，都是把钱避险的。
 
-安省过去四天新增病例是8464，过去4天死亡人数是80个。总中共病毒感染人数是516507，死亡人数是8440。今天的感染人数是2554。
+People may ask this question: Why are there so many people who want to buy bitcoins and virtual currencies? The reason is very simple. It’s because everyone feels that mainland China is not safe. The reason for buying these coins is not for investment, rather it is to avoid risks.
 
-魁省累计患病人数363847例，死亡人数达到了11042人。蒙特利尔新增人数在全省城市中排名第一。魁省接种疫苗的人数达到了总人口的49%。
+英国头两天有一个曾经最反对虚拟货币的人加入了我们喜币系列。我还纳闷呢，为什么他加入我们的喜币呢？我说你不是最反对吗？我说你不是说加密货币没有任何内含价值吗？他说了句话，他说：“我过去说的没有内含价值，[但]我没有说它没有外在价值。”
 
-今天早上蒙特利尔东北部地区发生3.8级地震，没有造成破坏。
+A couple of days ago, someone in the UK, who used to oppose virtual currencies most strongly, joined our H-Coin series. I was wondering why he joined our H-Coin, so I asked, “Didn’t you say that you would be the one who opposed to it the most strongly? Didn’t you say cryptocurrencies had no any intrinsic value?” He said, “What I said in the past is that it has no intrinsic value, but I didn’t say that it has no extrinsic value.”
 
-魁省加强法语文化地位，法语将作为魁北克唯一官方语言。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19201429/qweqteryert.jpg)
-**二、疫苗和病毒问答**
+所有的财富，当它没有锚定挂钩的时候，所有的财富就是信用。还有就是安全的需要。所有的加密货币，最关键的[一个功能]，是[让]财富安全，还有就是让它独立的存在，不受到任何其它的威胁。
 
-该不该打疫苗这个问题请观众根据目前打了疫苗的人还会感染CCP病毒的实例自行决定是否能打疫苗。
+All wealth, when it is not pegged to something, it basically relies on credit. Also there is the need for security. The most critical function of all cryptocurrencies is to make wealth safe and allow it to exist independently, not to be threatened by anything else.
 
-爆料革命战友的家人不一定相信和追随爆料革命，二代在海外出生的孩子对政府发表的消息坚信不疑，他们不会怀疑疫苗有问题。成年的二代孩子是白左思维，JAKCIE大姐的2个优秀的孩子都打了疫苗。她呼吁我们爆料革命战友尽量给家人和孩子施加影响力，让他们放弃打疫苗的想法。90%得中共病毒的人在家里隔离2-3周后自然转阴，疫苗的作用是什么呢？Farmsister大姐说打了疫苗得病毒比没打得没准情况更严重。翌珊大姐说增强自身的免疫力是预防中共病毒的根本，可以抗击所有外来的侵蚀。吃得好，健身加强身体的自身状态就能获得很好的免疫作用。
+一样的道理，中共为什么限制[比特币]？不是说别的，就是因为大量的财富转移。而且国开行很多人[被]抓也因为和比特币有关系。国开行贪污的钱放哪去，他们很清楚，最终是能找着的。只有放到了虚拟货币里面，放[到]了以太币，火币，狗币，放[到]比特币，虚拟货币[里面]，大量的钱，而且拿不回来。
 
-加拿大医疗行业打疫苗是必须的。JACKIE大姐目前还没有打疫苗，她不敢跟同事撒谎说自己打了。拿不到疫苗证书在医疗行业就不能上岗。大姐心理压力很大。
+Similarly, why does CCP restrict bitcoin? Nothing but to restrict the massive transfer of wealth. Besides, many people at the China Development Bank (CDB) being arrested was also related to bitcoin. They know very well where the money embezzled by the CDB was hidden and they will eventually find the money. But only when the money is put in virtual currencies such as Ether, Huobi, and Dogecoin, and bitcoin, they will never be able to find it.
 
-作为爆料革命战友，如何巧妙地回避打疫苗的问题，使自己的身心不受伤害呢？这是个人隐私问题，我们可以不回答或者回避，说再观察一段时间看。有的工作例如海军必须打了疫苗才能上船。我们不得不面对疫苗的后遗症问题。辉瑞和Moderna对DNA基因是有破坏性的。
+过去抓了像王建海航，是吧？这些人的钱在海外，共产党来了，[有]本人授权[加上]公司授权，甚至带了公司的财务和家人到美国来，这房子开始卖，是吧！找得着[就]能卖。比特币，加密币它[共产党]找不着，想拿回来几乎不可能。所以说查这个案子可以，把人办了可以，钱找不着。不可能像共产党一样，一抢一端一窝一窝的。
 
-**三、锦绣中华发言**
+For example, after people like Wang Jian of HNA were caught, the CCP would come for their assets overseas. The CCP can obtain their own or their company’s authorization first, and even bring their company’s accountants and their family members to the US so that their properties can be sold, right? However, money in bitcoin and other cryptocurrencies cannot be found by the CCP, and it is almost impossible to take it away by the CCP. So it can investigate a case and arrest people, but the money will never be found. It will never be like the case when the CCP points a gun at someone, it will find the money this person previously hided in caves.
 
-疫苗有一堆的缺陷。原型的病毒也搞不清楚怎么回事，说疫苗对变种病毒有效都是骗人。
+那么另外大家看到现在日本最近加密货币、虚拟货币起起伏伏当中，可以看到日本的经济也是在危在旦夕。因为大量的财富也进了加密货币、虚拟货币。
 
-打了疫苗也不管用，照样感染。
+In addition, everyone can see that Japan’s recent ups and downs in cryptocurrencies and virtual currencies show that Japan’s economy is already at the verge of collapse. Because massive wealth has entered encrypted currencies and virtual currencies.
 
-加拿大给政府公关的公司今年增加了40%，有史以来最高，主要是搞疫情相关的各种项目。
+只有区块链上安全，任何其它货币，任何可以等价或者有价衡量的证券都是被政治、被权力可以控制甚至可以销毁，甚至可以不算数的，那就没有任何信用可存在。它又没有安全性，那你要它什么？它本身就是一个贸易的工具，一个生产力的交易工具。所有加密货币第一条就是安全，所以很多人没闹明白：加密货币、区块链把人类整个财富和生产力的交换和生活方式彻底改变了 — 这是为什么共产党害怕？
 
-各国教育把人类变成原材料，不想让人变聪明，人民依赖政府，成为供他们使用的奴隶。我们从小被政府洗脑，潜意识里依赖社会。我们要独立思考，不要变成国家的工具。
+Blockchain is the only safe place. Any other currencies or securities whose value can be measured are all controlled by politics and powers, and can even be destroyed or voided. So there is no credibility in them at all. Since they are not safe, why do you want to have them? They are a trading tool, a tool for trading products. But the number one feature of cryptocurrencies is their security. Many people don’t understand this. Cryptocurrencies and blockchain have completely changed the way how we exchange wealth and productivity and changed the lifestyle of mankind entirely. This is why the CCP is so afraid.
 
-打疫苗是个人隐私。没有法律法规规定职员必须要打疫苗。如果经理2次过问是否打疫苗可以向人力经理投诉。
+几个月以前我说过1000多亿转到了加拿大，这些钱里边很多都投入了加密货币。不但如此，战友们还要看到一个更夸张的[情况就是]香港以及在亚洲有多少拿来生产，甚至贷款的钱都加入了加密货币 — 这对共产党的金融系统是摧毁的。为什么要这么做？因为都认为共产党要完球蛋了。
 
-**四、时政杂谈**
+A few months ago I said that more than 100 billion yuan was transferred to Canada, and much of it has been invested in cryptocurrencies. Not only that, my brothers and sisters, you will see that in Hong Kong and Asia a lot of money which was supposed to be used for production and even loans has been invested in cryptocurrencies. This is literally destroying the CCP’s financial system. Why do they do that? Because they all believe that the CCP will be over.
 
-移民部长吹风说有可能增加留学生移民项目配额。
+而且共产党里边黑钱是全人类最大的，数以几万亿美元，共产党在倒闭前如果有个两三万亿美元流入到加密货币市场它所造成的效应是数十万亿美元，边际效应是几十万亿美元。
 
-爆料革命在加拿大申请难民移民要具有2个条件。1是证明你在中国从事这个活动会受到迫害。2如果你在海外做这个行为回到中国去还会继续做爆料革命，中国政府会迫害你。在加拿大申请难免需要大量的证据支持。
+Moreover, the CCP has the most dirty money in all mankind – several trillion U.S. dollars. If two or three trillion dollars flow into the cryptocurrency market before the CCP collapses, it will have an impact of tens of trillions of dollars, so the marginal effect will be tens of trillions of dollars.
 
-中共去年新生儿人口统计数据1200万是造假。据郭先生的情报真实的数据是700万。
-
-福奇在听证会上诡辩说拨款了但是不知道对方在做病毒增强型试验。
-
-美国对土共公安部、监察部、出入境管理处官员家属的出入境签证进行限制。
-
-世界上18位科学家联名要求彻查中共的实验室。
-
-[节目视频链接](https://gtv.org/video/id=60a2fa54db13300ca558ede2)
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/6095408937f7f73984c8e133](https://gtv.org/getter/6095408937f7f73984c8e133) (00:56-2:17, 2:57-4:14, 6:39-8:06)
+鸣谢：感谢盘古小蚂蚁、Antsee-GTV、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://www.gnews.org/zh-hans/1187871/](https://www.gnews.org/zh-hans/1187871/)
 
 * * *
 
-*编辑、发稿 文锦*
+**字幕：【Rock小哥】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+翻译 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 +1

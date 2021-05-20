@@ -1,58 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月19日美国政要反共推文精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1258011/)
+## 众议院国会情报小组成员寻求对COVID-19的起源进行重大调查
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1257898/)
 
-众议员迈克·加拉格尔： 吉姆·乔丹是对的：共和党人，内阁官员，记者和美国人民都想知道新冠COVID-19的起源。 为什么关注冠状病毒的唯一国会委员会的民主党人却不希望把它查个底朝天呢？ 【附乔丹议员的视频】
+翻译：康州盘古农场 – TrueSky
+校对：康州盘古农场 – 格格巫
+编辑：康州盘古农场 – 明子
 
+据《华盛顿时报》作者：比尔-格茨，2021年5月17日报道：
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19213253/2-42.png)
 
-> .[@Jim\_Jordan](https://twitter.com/Jim_Jordan?ref_src=twsrc%5Etfw) is right: Republicans, cabinet officials, journalists, and the American people all want to know about the origins of COVID-19. 
-> 
-> Why don't Democrats on the only Congressional committee focused solely on the Coronavirus want to get to the bottom of it? [pic.twitter.com/SA1nh3lQlA](https://t.co/SA1nh3lQlA)
-> — Rep. Mike Gallagher (@RepGallagher) [May 19, 2021](https://twitter.com/RepGallagher/status/1395098918514536453?ref_src=twsrc%5Etfw)
+众议院情报监督小组的共和党人正在敦促拜登总统对COVID-19大流行病的起源展开重大调查。
 
+加利福尼亚州众议员德文-努内斯（Devin Nunes）是众议院情报特别委员会的共和党人，他指出，该小组的共和党成员正在对2019年12月在中国武汉开始的病毒大流行进行自己的调查。
 
+努内斯先生在5月16日给总统的信中写道：“我们写信请求您启动整个政府的努力，以确定病毒的来源，并指示联邦机构和部门合理审查所有情况，作为这种调查的一部分。”
 
-参议员约翰·肯尼迪： CDC(疾病预防控制中心)认为 [#冠状病毒](https://twitter.com/hashtag/%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92?src=hashtag_click) 来自何处？ CDC（疾病预防控制中心主任）：“当然，基于实验室的起源是一种可能性。” 我想了解更多，您不想吗？ 【附视频：肯尼迪参议员就新冠病毒起源和功能增强性实验质询CDC主任】
+努内斯先生说，该委员会在研究“中共国对美国经济和国家安全的威胁”时正在追查此事。
 
+共和党的调查发现的”大量间接证据”，表明中共国的实验室事故导致了疫情爆发，这一理论在今年早些时候被世界卫生组织-中国政府的联合调查所拒绝。世卫组织-中国的最终报告说，除非出现新的信息，否则不应对实验室的起源进行进一步调查。
 
+一位国会助手说，控制众议院和参议院的民主党人没有表现出对调查病毒来源的兴趣。
 
-> Where does the CDC think the [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) came from?
-> 
-> CDC director: “Certainly, a lab-based origin is one possibility.” 
-> 
-> I’d like to know more, wouldn’t you? [pic.twitter.com/kiTN6xkz12](https://t.co/kiTN6xkz12)
-> — John Kennedy (@SenJohnKennedy) [May 19, 2021](https://twitter.com/SenJohnKennedy/status/1395075426368819207?ref_src=twsrc%5Etfw)
+中共国政府否认病毒是从武汉病毒研究所（WIV）泄露出来的，该研究所是美国情报机构调查病毒来源的核心焦点。世卫组织的调查说，从一个未知的动物宿主跳到人类身上，仍然是全球大流行病最可能的来源。
 
+情报官员最近在国会的证词引发了一场关于实验室泄漏理论的公开辩论，一年多来，该理论被许多科学家和几家主要新闻机构斥为边缘阴谋论。
 
+前《纽约时报》科学记者小唐纳德-G-麦克尼尔周一披露，该报编辑在2020年春天秒杀了一篇关于实验室泄漏理论的4000字报道，因为它与当时的实验室泄漏是不可能的说法相悖。上周，18位生物学家，包括几位研究该病毒的主要专家，在《科学》杂志上发表了一封信，呼吁进行新的调查，并要求中共国公布其实验室掌握的有关信息。
 
-参议员卢比奥： 美国总统决定允许美国投资者继续资助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 军方用来制造武器的公司，这些武器有一天会来杀死美国人并在战争中打败我们。 【附卢比奥在福克斯电视台接受玛丽亚采访：就（拜登政府）将与中共国的贸易限制推迟到六月11号发表意见。呼吁与中共国战斗】
+美国国家情报局局长艾弗里-海因斯上个月告诉国会，美国情报分析人员评估认为，实验室泄漏和动物对人的传播，是冠状病毒的两个最合理的来源。迄今为止，中共国一直拒绝向国际病毒调查人员开放有关在世界病毒研究所进行的病毒工作的记录。
 
+川普政府在1月份时说，武汉实验室被怀疑是大流行病的来源，因为那里的工人在2019年秋季出现了类似COVID-19的病症。该实验室还研究了一种蝙蝠冠状病毒，与COVID-19病毒有96%的相似性。国务院当时说，武汉实验室还为中共军方进行了秘密实验。
 
+努内斯先生说：“彻底审查这种可能性至关重要，特别是考虑到中共国政府对多边生物法医调查的阻挠，和对重要证据的破坏”。他援引海因斯女士的证词补充说：“然而，目前还不清楚情报界或美国政府的任何其他部门是否在寻求确定真相。”
 
-> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) has decided to allow American investors to continue to fund companies the Chinese military is using to build weapons designed to one day kill Americans & defeat us in a war [pic.twitter.com/lYSQrK0aqL](https://t.co/lYSQrK0aqL)
-> — Marco Rubio (@marcorubio) [May 19, 2021](https://twitter.com/marcorubio/status/1395045937588887562?ref_src=twsrc%5Etfw)
+众议院共和党人注意到美国国务卿安东尼-布林肯的评论，他说，了解病毒的来源对于防止未来的大流行病和建立一个更强大的卫生安全系统非常重要。
 
+努内斯先生还说，美国政府的资金直接或间接地支持了世界疫苗研究所的危险的双重用途科学研究。
 
+他说：“我们的发现，尽管不完整，但表明美国支持这种工作，尽管有明确的证据表明中国人民解放军参与了WIV的工作。”努内斯先生说，“至关重要的是，你的政府应审查此事，并确保在未来美国政府在考虑与外国对手合作进行两用研究的任何时候，都进行适当的威胁评估”，他补充说，“总统应启动对政府资助危险的外国研究的调查。我的共和党同事和我希望你们会同意，了解真相是至关重要的。”
 
-众议员迈克·加拉格尔： 拜登政府提名了一个曾经为华为工作的游说律师担任我们情报圈高层职位。不仅仅是没有资格担任这项工作，还凸显了那些向外国对手兜售专长的前政府官员日益严重的问题。
+被问及白宫是否会支持一项重大病毒来源调查发表评论，白宫发言人没有回复。
 
-
-
-> The Biden Admin nominated a K Street lawyer who has done work for Huawei for a top post in our intel community. Not only is this work disqualifying, it highlights the growing problem of former USG officials who peddle their expertise to foreign adversaries.[https://t.co/UoSsZp3f8n](https://t.co/UoSsZp3f8n)
-> — Rep. Mike Gallagher (@RepGallagher) [May 19, 2021](https://twitter.com/RepGallagher/status/1395017062414696448?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特： NBC显然试图通过拒绝播放2022年金球奖来传达一个信息。但是，他们是否会因支持人权拒绝播放2022年奥运会，直到将其移出 [#共产党中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E5%85%9A%E4%B8%AD%E5%9B%BD?src=hashtag_click)？我希望如此。在这儿读我给NBC的信。
-
-
-
-> NBC is clearly trying to send a message by refusing to air the 2022 Golden Globes. But will they stand for human rights by refusing to air the 2022 Olympics until they're moved out of Communist China? I’d hope so. Read my letter to [@NBCOlympics](https://twitter.com/NBCOlympics?ref_src=twsrc%5Etfw): [https://t.co/nXLR26BDTa](https://t.co/nXLR26BDTa)
-> — Rick Scott (@SenRickScott) [May 19, 2021](https://twitter.com/SenRickScott/status/1395129556282060810?ref_src=twsrc%5Etfw)
-
-
+原文链接：*[https://www.washingtontimes.com/news/2021/may/17/house-republican-intel-panel-members-seek-major-pr/](https://www.washingtontimes.com/news/2021/may/17/house-republican-intel-panel-members-seek-major-pr/)*
 
 0
