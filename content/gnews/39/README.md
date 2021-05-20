@@ -1,31 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【拆】莲花清瘟代言人钟南山计划每年都给人类打疫苗
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1257916/)
+## 5月19日美国政要反共推文精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1258011/)
 
-钟南山用英语向全世界呼吁：COVID-19可能将与人类长期共存，可能要定期打疫苗。
+众议员迈克·加拉格尔： 吉姆·乔丹是对的：共和党人，内阁官员，记者和美国人民都想知道新冠COVID-19的起源。 为什么关注冠状病毒的唯一国会委员会的民主党人却不希望把它查个底朝天呢？ 【附乔丹议员的视频】
 
-未来要留意病毒变异问题
 
-在2003年的非典大流行中，中共党员钟南山成为了中共国医学界的泰斗权威。在这次的CCP病毒大瘟疫中，钟南山院士在每次关键的关键时刻，都出来为党站台。
 
-英雄科学家闫丽梦曾经在公开直播钟谈到，这次疫情开始之时，钟南山作为广东省政府的代表，联系港大实验室，要求所有的病患原始数据，全部交给他，后来闫博士不同意，所以在后续的所有关于病毒疫情的原始数据分析，闫博士被警告不能“跨越红线”“否则你懂的”，这是威胁闫博士不能将第一手资料和疫情的真实情况告诉任何人。
+> .[@Jim\_Jordan](https://twitter.com/Jim_Jordan?ref_src=twsrc%5Etfw) is right: Republicans, cabinet officials, journalists, and the American people all want to know about the origins of COVID-19. 
+> 
+> Why don't Democrats on the only Congressional committee focused solely on the Coronavirus want to get to the bottom of it? [pic.twitter.com/SA1nh3lQlA](https://t.co/SA1nh3lQlA)
+> — Rep. Mike Gallagher (@RepGallagher) [May 19, 2021](https://twitter.com/RepGallagher/status/1395098918514536453?ref_src=twsrc%5Etfw)
 
-在今天美国军情追溯病毒来自武汉实验室的关键时刻，CCP不但开始制作假视频攻击塞林将军和闫博士，更有钟南山向全世界宣布未来要注意病毒变异，与病毒长期共存。首先是在转移所有人的视线，告诉大家不要溯源了， 赶紧控制疫情吧。其次在台湾，印度制造大规模疫情反弹的同时，威胁其他国家，如果不和CCP合作，你们你就会和印度台湾一样，遭受变异病毒的接下来的攻击。第三，胁迫全世界人打疫苗，为中共疫苗外交打前锋，言下之意，不但会有新病毒， 其他的疫苗都将失效，只有中共的疫苗可以有效。
 
-闫博士曾经说过，病毒暂时不可能有有效的疫苗，要彻底制止病毒，只有拆除病根，CCP中国共产党。对于想给全世界人类套上病毒疫苗枷锁的科学败类，还有人会相信他吗？
 
-参考链接：
+参议员约翰·肯尼迪： CDC(疾病预防控制中心)认为 [#冠状病毒](https://twitter.com/hashtag/%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92?src=hashtag_click) 来自何处？ CDC（疾病预防控制中心主任）：“当然，基于实验室的起源是一种可能性。” 我想了解更多，您不想吗？ 【附视频：肯尼迪参议员就新冠病毒起源和功能增强性实验质询CDC主任】
 
-[https://t.co/AXO4XSVmav?amp=1](https://t.co/AXO4XSVmav?amp=1)
 
-图片来源：[https://news.cgtn.com/](https://news.cgtn.com/)
 
-整理撰稿：蓝精灵
+> Where does the CDC think the [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) came from?
+> 
+> CDC director: “Certainly, a lab-based origin is one possibility.” 
+> 
+> I’d like to know more, wouldn’t you? [pic.twitter.com/kiTN6xkz12](https://t.co/kiTN6xkz12)
+> — John Kennedy (@SenJohnKennedy) [May 19, 2021](https://twitter.com/SenJohnKennedy/status/1395075426368819207?ref_src=twsrc%5Etfw)
 
-校对发布：Penny
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+
+参议员卢比奥： 美国总统决定允许美国投资者继续资助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 军方用来制造武器的公司，这些武器有一天会来杀死美国人并在战争中打败我们。 【附卢比奥在福克斯电视台接受玛丽亚采访：就（拜登政府）将与中共国的贸易限制推迟到六月11号发表意见。呼吁与中共国战斗】
+
+
+
+> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) has decided to allow American investors to continue to fund companies the Chinese military is using to build weapons designed to one day kill Americans & defeat us in a war [pic.twitter.com/lYSQrK0aqL](https://t.co/lYSQrK0aqL)
+> — Marco Rubio (@marcorubio) [May 19, 2021](https://twitter.com/marcorubio/status/1395045937588887562?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·加拉格尔： 拜登政府提名了一个曾经为华为工作的游说律师担任我们情报圈高层职位。不仅仅是没有资格担任这项工作，还凸显了那些向外国对手兜售专长的前政府官员日益严重的问题。
+
+
+
+> The Biden Admin nominated a K Street lawyer who has done work for Huawei for a top post in our intel community. Not only is this work disqualifying, it highlights the growing problem of former USG officials who peddle their expertise to foreign adversaries.[https://t.co/UoSsZp3f8n](https://t.co/UoSsZp3f8n)
+> — Rep. Mike Gallagher (@RepGallagher) [May 19, 2021](https://twitter.com/RepGallagher/status/1395017062414696448?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特： NBC显然试图通过拒绝播放2022年金球奖来传达一个信息。但是，他们是否会因支持人权拒绝播放2022年奥运会，直到将其移出 [#共产党中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E5%85%9A%E4%B8%AD%E5%9B%BD?src=hashtag_click)？我希望如此。在这儿读我给NBC的信。
+
+
+
+> NBC is clearly trying to send a message by refusing to air the 2022 Golden Globes. But will they stand for human rights by refusing to air the 2022 Olympics until they're moved out of Communist China? I’d hope so. Read my letter to [@NBCOlympics](https://twitter.com/NBCOlympics?ref_src=twsrc%5Etfw): [https://t.co/nXLR26BDTa](https://t.co/nXLR26BDTa)
+> — Rick Scott (@SenRickScott) [May 19, 2021](https://twitter.com/SenRickScott/status/1395129556282060810?ref_src=twsrc%5Etfw)
+
+
 
 0

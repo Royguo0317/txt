@@ -1,82 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（二十五）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1258010/)
+## 众议院国会情报小组成员寻求对COVID-19的起源进行重大调查
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1257898/)
 
-作者：纽约香草山信息部 6zero4
+翻译：康州盘古农场 – TrueSky
+校对：康州盘古农场 – 格格巫
+编辑：康州盘古农场 – 明子
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+据《华盛顿时报》作者：比尔-格茨，2021年5月17日报道：
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19213253/2-42.png)
 
+众议院情报监督小组的共和党人正在敦促拜登总统对COVID-19大流行病的起源展开重大调查。
 
-5月18日塞林博士的5连推：
+加利福尼亚州众议员德文-努内斯（Devin Nunes）是众议院情报特别委员会的共和党人，他指出，该小组的共和党成员正在对2019年12月在中国武汉开始的病毒大流行进行自己的调查。
 
-第1推，转发“火来2号”战友的中英混合推：这篇文章介绍拿着病人体内分离的Zika病毒给猴子接种，建立动物模型，由AMMS主导并完成，史佩勇(之前译为石培勇)也参与其中，提供试剂并分析数据。史佩勇拿着NIH和WHO的经费跟PLA合作，可以这样做么？需要一些明确答复，并标识出NIH经费的拨款编号AI087856，标注出当时主要的参与人员及其照片，他们是：李晓峰（PLA-AMMS微生物流行病研究所病原体生物安全国家重点实验室)）、史佩勇、秦成峰、童贻刚、高福和曹务春。并附上史佩勇在2016年9月与PLA科研人员联合发表的论文之网页截图。UTMB的史佩勇，当下正在Fauci的NIAID资助下，真正成为PLA的史佩勇，他理应被驱逐出境。向COVID-19侦探“火来2号”致敬！（李晓峰真容浮出水面）
+努内斯先生在5月16日给总统的信中写道：“我们写信请求您启动整个政府的努力，以确定病毒的来源，并指示联邦机构和部门合理审查所有情况，作为这种调查的一部分。”
 
+努内斯先生说，该委员会在研究“中共国对美国经济和国家安全的威胁”时正在追查此事。
 
+共和党的调查发现的”大量间接证据”，表明中共国的实验室事故导致了疫情爆发，这一理论在今年早些时候被世界卫生组织-中国政府的联合调查所拒绝。世卫组织-中国的最终报告说，除非出现新的信息，否则不应对实验室的起源进行进一步调查。
 
-> Pei-Yong Shi of the University of Texas Medical Branch, currently funded by Anthony Fauci's NIAID, is actually Pei-Yong Shi of the People's Liberation Army. He should be deported. (hat tip to [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw))[#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDEmergency](https://twitter.com/hashtag/COVIDEmergency?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Fauci](https://twitter.com/hashtag/Fauci?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/FMLqMNLGwP](https://t.co/FMLqMNLGwP)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 18, 2021](https://twitter.com/LawrenceSellin/status/1394592230124437504?ref_src=twsrc%5Etfw)
+一位国会助手说，控制众议院和参议院的民主党人没有表现出对调查病毒来源的兴趣。
 
+中共国政府否认病毒是从武汉病毒研究所（WIV）泄露出来的，该研究所是美国情报机构调查病毒来源的核心焦点。世卫组织的调查说，从一个未知的动物宿主跳到人类身上，仍然是全球大流行病最可能的来源。
 
+情报官员最近在国会的证词引发了一场关于实验室泄漏理论的公开辩论，一年多来，该理论被许多科学家和几家主要新闻机构斥为边缘阴谋论。
 
-第2推，在UTMB的史佩勇直接与PLA合作的同时，Fauci的NIAID资助却也正在资助他（经费拨款编号AI087856），并贴上史佩勇在2016年9月与PLA科研人员联合发表的有关寨卡病毒研究的论文之网页截图。
+前《纽约时报》科学记者小唐纳德-G-麦克尼尔周一披露，该报编辑在2020年春天秒杀了一篇关于实验室泄漏理论的4000字报道，因为它与当时的实验室泄漏是不可能的说法相悖。上周，18位生物学家，包括几位研究该病毒的主要专家，在《科学》杂志上发表了一封信，呼吁进行新的调查，并要求中共国公布其实验室掌握的有关信息。
 
+美国国家情报局局长艾弗里-海因斯上个月告诉国会，美国情报分析人员评估认为，实验室泄漏和动物对人的传播，是冠状病毒的两个最合理的来源。迄今为止，中共国一直拒绝向国际病毒调查人员开放有关在世界病毒研究所进行的病毒工作的记录。
 
+川普政府在1月份时说，武汉实验室被怀疑是大流行病的来源，因为那里的工人在2019年秋季出现了类似COVID-19的病症。该实验室还研究了一种蝙蝠冠状病毒，与COVID-19病毒有96%的相似性。国务院当时说，武汉实验室还为中共军方进行了秘密实验。
 
-> At exactly the same time that Pei-Yong Shi of the University of Texas Medical Branch is working directly with the Chinese People's Liberation Army, Anthony Fauci's NIAID is funding him (AI087856).[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#Fauci](https://twitter.com/hashtag/Fauci?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDEmergency](https://twitter.com/hashtag/COVIDEmergency?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/Wx1UUc9ep5](https://t.co/Wx1UUc9ep5)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 18, 2021](https://twitter.com/LawrenceSellin/status/1394599200793538560?ref_src=twsrc%5Etfw)
+努内斯先生说：“彻底审查这种可能性至关重要，特别是考虑到中共国政府对多边生物法医调查的阻挠，和对重要证据的破坏”。他援引海因斯女士的证词补充说：“然而，目前还不清楚情报界或美国政府的任何其他部门是否在寻求确定真相。”
 
+众议院共和党人注意到美国国务卿安东尼-布林肯的评论，他说，了解病毒的来源对于防止未来的大流行病和建立一个更强大的卫生安全系统非常重要。
 
+努内斯先生还说，美国政府的资金直接或间接地支持了世界疫苗研究所的危险的双重用途科学研究。
 
-第3推，重复发出上一推，再次明确敲打并警告Fauci与史佩勇，并贴上史佩勇在2016年10月与PLA科研人员联合发表的有关寨卡病毒研究的论文之网页截图。
+他说：“我们的发现，尽管不完整，但表明美国支持这种工作，尽管有明确的证据表明中国人民解放军参与了WIV的工作。”努内斯先生说，“至关重要的是，你的政府应审查此事，并确保在未来美国政府在考虑与外国对手合作进行两用研究的任何时候，都进行适当的威胁评估”，他补充说，“总统应启动对政府资助危险的外国研究的调查。我的共和党同事和我希望你们会同意，了解真相是至关重要的。”
 
+被问及白宫是否会支持一项重大病毒来源调查发表评论，白宫发言人没有回复。
 
-
-> Again, at exactly the same time that Pei-Yong Shi of the University of Texas Medical Branch is working directly with the Chinese People's Liberation Army (Cheng-Feng Qin), Anthony Fauci's NIAID is funding him (AI087856).[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#Fauci](https://twitter.com/hashtag/Fauci?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDEmergency](https://twitter.com/hashtag/COVIDEmergency?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/2dA7f8Yw1r](https://t.co/2dA7f8Yw1r)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 18, 2021](https://twitter.com/LawrenceSellin/status/1394602393845833728?ref_src=twsrc%5Etfw)
-
-
-
-第4推，第三次发出上一推，事不过三，第三次重复敲打并警告Fauci与史佩勇，并贴上史佩勇在2017年5月与PLA科研人员联合发表的有关寨卡病毒研究的论文之网页截图，并加上Fauci的另一个NIH经费拨款编号AI103807。
-
-
-
-> 3rd time, at exactly the same time that Pei-Yong Shi of the University of Texas Medical Branch is working directly with the Chinese People's Liberation Army (Cheng-Feng Qin), Anthony Fauci's NIAID is funding him (AI087856, AI103807).[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#Fauci](https://twitter.com/hashtag/Fauci?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDEmergency](https://twitter.com/hashtag/COVIDEmergency?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/OY7bvhgswh](https://t.co/OY7bvhgswh)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 18, 2021](https://twitter.com/LawrenceSellin/status/1394604268179632132?ref_src=twsrc%5Etfw)
-
-
-
-第5推，转发Joe Hoft今天发表在Gateway Pundit上的一篇文章“报告：中共国的军事武器COVID-19完全是在中共军方的安排和控制下制造的”。
-
-
-
-> China’s Military Weapon COVID-19 Was Constructed Completely Under the Command and Control of the Chinese Military[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#FauciLied](https://twitter.com/hashtag/FauciLied?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusIndia](https://twitter.com/hashtag/CoronavirusIndia?src=hash&amp;ref_src=twsrc%5Etfw) [#Covid](https://twitter.com/hashtag/Covid?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/vYC50Nqusv](https://t.co/vYC50Nqusv)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 18, 2021](https://twitter.com/LawrenceSellin/status/1394646426592948228?ref_src=twsrc%5Etfw)
-
-
-
-塞林博士展示出史佩勇在2016年到2017年间，与CCP-PLA科研人员联合发表多篇论文之网页截图，都是有关寨卡病毒研究的论文，将病人体内分离出来的Zika病毒给猴子接种，建立动物模型，以探索该病毒的跨种传播特性，进而实现人畜共患的功能开发，最终达成病毒人传人的生物武器目标，UTMB的史佩勇深度参与其中。由此可见，中共军方很多时候连军民融合的底裤都懒得穿，干脆赤裸裸地裸奔，生物武器直接由CCP-PLA-AMMS主导，并深度渗透和绑架美国等西方国家的病毒学家，融合其资金和技术，借腹生子制造CCP自己苦思冥想的生物武器。所以，诸如 COVID-19等生物武器完全是在中共军方的安排和控制下制造出来就并不奇怪了！
-
-令人痛心疾首的是，史佩勇一面拿着美国纳税人支付的薪水，打着为UTMB工作的幌子，一面却拿着NIH和WHO的经费跟CCP-PLA合作，Fauci的NIH经费的拨款编号AI087856与AI103807就是板上钉钉的确凿证据。Fauci和史佩勇，你们怎么可以这么疯狂、这么无耻、这么无底线？你们欠世界一个明确的答暗！你们理应被美国驱逐出境，甚至连同CCP一起开除球籍！
-
-塞林博士三次重复发推，三次重复敲打并警告Fauci与史佩勇，你们俩与CCP军方合作的蛛丝马迹已经被美国军方掌握的清清楚楚，证据确凿，这是收网前给你们俩的最后通牒，是选择做污点证人给自己赎罪的机会，还是一条道走到黑与CCP一起亡命天涯？
-
-校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文链接：*[https://www.washingtontimes.com/news/2021/may/17/house-republican-intel-panel-members-seek-major-pr/](https://www.washingtontimes.com/news/2021/may/17/house-republican-intel-panel-members-seek-major-pr/)*
 
 0
