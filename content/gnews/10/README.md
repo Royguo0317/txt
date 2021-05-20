@@ -1,57 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】海上最大原油生产平台安装，难解“缺油”困境
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1260237/)
+## 科技+人性把老百姓从恐怖主义中解脱出来
+` 文名` [轉載自GNews](https://gnews.org/zh-hans/1260467/)
 
-香草山写作组 鹰(文言)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20180619/E1wr6XpXsAo4im9-edited-1.jpg)
+图片源自以色列驻华使馆微博
 
+**作者：英国伦敦喜庄园 文名**
 
+最近看国内的各种媒体平台对以色列是一片骂声，都在变着法儿地想办法黑犹太人，黑以色列。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193850/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1-1.jpg)
+为啥呢？我觉得是以色列反击哈马斯恐怖组织的各种表现都是啪啪打中共的脸。
 
+共产党一直说人民是党的铜墙铁壁，谁也别想把中国人和中共分开。这和哈马斯这些low到极点的恐怖分子有啥不一样？
+从红军开始，这些没人性的就开始用老百姓当肉盾当炮灰替他们打内战。这些秽史也统统被共产党悄悄抹去，鲜有人知晓。
+看现在哈马斯干的事儿，把导弹车开到学校旁边，把恐怖分子藏在居民楼里，把孩子赶到以色列军人面前挑衅，深得幕后主使中共的真传。
+可惜啊，时代变了。以色列的军事科技已经精准到外科手术级别，指哪儿打哪儿，完美分开恐怖分子和普通百姓。还提供提前电话通知服务，给平民充分的时间撤离目标区域。车后座的领导被斩首，前排司机安然无恙或受轻伤。科技+人性，终于把老百姓从恐怖主义中解脱出来，真正实现了“让领导先走”。
 
+这下子中共就坐不住了，马上组织小粉红自干五大V小V制造舆论抹黑以色列，坚决谴责将人民与领导分开的行为。时代变了，一将功成万骨枯的时代一去不复返了，各位领导要想想举头三尺无人机。
 
-新浪网5月20日转载央视报道，中共海上最大的原油生产平台——陆丰14-4在珠江口盆地海域完成浮托安装，将于2021年底投产。
+但是大家依然要小心，中共的邪恶远超人类想像。特别是手持生化武器的中共，难保他们会做出什么丧尽天良的举动。比如今天我们英喜战友小强就提醒，会不会中共疫苗中埋藏了什么病毒，要完犊子的时候再释放某种激活机制，将打过疫苗的人作为人质。这只是个猜测，但是战友们请千万小心，疫苗能躲就躲吧。切记切记，中共从来都是把老百姓推上前线的畜生，别被他们牺牲了。
 
-陆丰14-4的顺利安装是对中共国原油生产的利好消息，但对于中共国庞大的原油需求而言，这仍是杯水车薪。根据中共统计局数据，2020年国内原油累计产量达到19492万吨（同比增长1.6%），其中海上油气产量突破6500万吨。然而，2020年原油进料量高达54239万吨，国内油气产量仅能满足需求的26.4%。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20160016/Screen-Shot-2021-05-20-at-3.59.53-PM.png)
-中俄输油管道输油量从1500万吨提升至3000万吨。近年来，中共不断开拓的中缅、中巴油气管道，但80%的原油进口依旧需要依托海上运输。2020年进口的8000万吨俄罗斯原油中有5000万吨通过海上运输。中共最主要的进口原油路线均需要经过马六甲海峡。在美日印澳“小北约”加快对中共的海上军事封锁后，原油运输将会更加艰难。即便中共近年来加大了原油这一战略储备力度，但近八成的对外依赖仍严重限制了其军事战争的后勤补给能力。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20160044/Screen-Shot-2021-05-20-at-3.59.49-PM.png)
-除了对外依存过高外，国内的石油价格也属于“中共特色”的多涨少跌。2019年原油进口额达2413.19亿美元，2020年原油进口量增长7.3%，然而进口金额却下降27.3%，为1763.21亿美元。即便在国际原油跌至负数的期间，国内的油价因下限40美元/桶的调控限制依旧坚挺。进入2021年后，仅5个月汽油累积涨幅1455元/桶（2020年全年涨幅1420元/桶）。国内油价的特色调控反映着中石油、中石化等国有集团的账目亏损的虚假和做作，更揭示了中共既得利益者利用行政干预手段对人民财产的肆意敛夺和剥削。
+战友们照顾好自己和家人，躺平吃瓜等天亮！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20175547/photo_2021-05-07_16-55-36-6.jpg)
+图片源自网络
 
-新闻来源：
+**【文章仅代表作者观点】**
 
-“挺举”成功！我国海上最大原油生产平台顺利安装https://news.sina.com.cn/c/2021-05-20/doc-ikmyaawc6367421.shtml
+参考文献：
 
-中国进口原油世界第一，有哪几个原油输入通道呢？https://new.qq.com/omn/20210409/20210409A021JU00.html
+[Watch: Israel Defense Forces call off airstrike in Gaza after spotting children](https://www.youtube.com/watch?v=ovhpsGYUouE)
 
-突破6500万吨！2020年我国海上油气年产量创新高https://new.qq.com/omn/20201224/20201224A0EDJ000.html
+[Moment Gaza man receives IDF warning to evacuate building before airstrike](https://www.youtube.com/watch?v=sumq8ktYOTI)
 
-我国自主设计建造最大海上原油生产平台安装完成，年底投产https://finance.sina.com.cn/tech/2021-05-19/doc-ikmyaawc6178583.shtml
+末学的其他作品：
 
-2020年全年中国原油行业产量及进口贸易情况 原油累计产量将近1.95亿吨https://d.qianzhan.com/xnews/detail/541/210308-a09c564e.html
+[美国大选中Q预言现象的反思](https://gnews.org/zh-hans/804872/)
 
-对外依赖度为73%！上半年中国石油产量全球第六，进口量全球第一https://cj.sina.com.cn/articles/view/6862376589/199078e8d00101k6m4
+[再谈美国大选中Q预言现象的认识](https://gnews.org/zh-hans/836610/)
 
-国内油价为何迟迟不降？这些你可能真的不知道https://new.qq.com/omn/20200321/20200321A0LPMU00.html
+[阴谋和阴谋论——三论Q预言对爆料革命的伤害](https://gnews.org/zh-hans/881876/)
 
-紧急！今夜24时涨价！油价涨多少定了！https://new.qq.com/omn/20210514/20210514A02FKU00.html
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-编辑/校对/发稿：正义的小新
+[事实和谎言，锚点和槽点——四论Q预言对爆料革命的伤害](https://gnews.org/zh-hans/881769/)
 
-**更多资讯，更多关注**
+[中共妖塔以假乱真的控心术](https://gnews.org/zh-hans/881662/)
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[打死不如打伤-浅论现代超限生化战](https://gnews.org/zh-hans/947979/)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[文贵先生是全球华人的宝贵财富](https://www.gnews.org/zh-hans/1126764/)
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+[超限科学误导—沼泽地的传统艺能](https://www.gnews.org/zh-hans/1138900/)
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[新中国联邦——我们的征途是星辰大海！](https://gnews.org/zh-hans/1184650/)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[新中国联邦人将受到全世界最大的尊敬](https://gnews.org/zh-hans/1203395/)
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+[量子态的中共真相](https://gnews.org/zh-hans/?p=1246404)
 
-+1
+[瑞典疫情已达到每10人中有1人感染](https://gnews.org/zh-hans/1250390/)
+
+0

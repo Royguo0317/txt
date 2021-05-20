@@ -1,18 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国会投巨资以全面加强国会大厦的安全性！
-` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1260064/)
+## 如果普京和拜登共同努力 世界将是安全的
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1260245/)
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20144528/ghs-edited.jpg)图片来源：维基百科
+```
+新闻来源：意大利共和国报（La repubblica）
+发布时间： 2021年5月20日
+翻译整理/简评： 斩草要除根
+```
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20161625/60a60242033d2.jpg)图片来源：TRT
+美国国务卿安东尼·布林肯（*Antony Blinken*）表示: 如果美国和俄罗斯能够共同努力，那么世界将是一个更安全的地方”。，但是警告说，如果莫斯科采取“侵略性”行动，美国将“作出回应”。俄罗斯外交大臣谢尔盖（*Serghei*）回答说:”俄罗斯和美国在评估国际局势方面存在很大分歧，但莫斯科准备讨论所有问题，只要讨论是诚实的，并在相互尊重的基础上”。
 
-据加拿大自媒体《Thepostmillennial》5月20日刊文报道：美国众议院于当日批准了通过增加巨额的19亿美元建设投资，以本质提高国会大厦及其周边地区必要的安全性。
+在北极理事会部长级会议期间，美国国务卿安东尼·布林肯与俄罗斯外交大臣谢尔盖·拉夫罗夫首次举行了双边首脑会议。这次会议的目的是缓解两国之间的紧张关系，并为美国总统乔·拜登和俄罗斯总统弗拉基米尔·普京之间的会议作准备。据俄罗斯媒体报道 ，他们将在定于几周 后的瑞士见面并举行会议。
 
-据美联社报道，该项令各界瞠目乍舌的19亿美元巨资投入之目的是为了防止今年1月6日暴力冲击国会的致命事件再度发生。当时一名抗议者被执法人员杀害，包括国会山警察在内的另外四人也因此丧生。
+#### 简评：
 
-[原文链接](https://thepostmillennial.com/breaking-1-9-billion-approved-by-house-to-increase-security-at-us-capitol-building)
+**俄罗斯是中共国和美国都想要拉来战队的一个国家，之前被外界宣扬的“中俄联盟”被认为是对美国的结盟，美国也在努力争取俄罗斯来削弱中共的对外势力。在目前许多西方国家联合起来抵抗中共国的明显形势下，相信精明的俄罗斯总统普京会做出聪明的选择。**
+（本文只代表译者观点，与Gnews平台无关。）
 
-本文仅代表原媒体信息和其作者个人观点！
+**新闻原文链接：**
+🔗[Usa-Russia, incontro tra Blinken e Lavrov “costruttivo e rispettoso”](https://www.repubblica.it/esteri/2021/05/20/news/usa-russia_incontro_tra_blinken_e_lavrov_a_reykjavik-301857008/?ref=RHTP-VS-I270681069-P14-S3-T1)
+
+* * *
+
+***编辑整理/校对: **Ting Guo*
 
 0

@@ -1,64 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】一夜留醉
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1260035/)
+## 【鹰眼墙国】海上最大原油生产平台安装，难解“缺油”困境
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1260237/)
 
-作者：纽约香草山健身部 澄道
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
+香草山写作组 鹰(文言)
 
 
 
-酒灭中共 紧跟酒神七哥走
-新中国联邦周年纪
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193850/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1-1.jpg)
 
-![](https://acs-h.assetsadobe.com/is/image//content/dam/cen/96/33/09633-feature-baijiu1.jpg/?$responsive$&amp;wid=700&amp;qlt=90,0&amp;resMode=sharp2)图源网络
 
-非正道不留仙住
-唯灭共酒醇醚香
 
-酒是粮食作
-喝过 谁不曾醉过？
-酒是粮食做
-品过 人生几何 谁不曾把酒当歌？
+新浪网5月20日转载央视报道，中共海上最大的原油生产平台——陆丰14-4在珠江口盆地海域完成浮托安装，将于2021年底投产。
 
-那一夜祸水流年（8964）
-我们曾如此无助徬徨
-曾如此不堪绝望
-那一夜不醉不归（64建邦）
-我们何止是欢歌吟唱
-何止是起舞言欢
+陆丰14-4的顺利安装是对中共国原油生产的利好消息，但对于中共国庞大的原油需求而言，这仍是杯水车薪。根据中共统计局数据，2020年国内原油累计产量达到19492万吨（同比增长1.6%），其中海上油气产量突破6500万吨。然而，2020年原油进料量高达54239万吨，国内油气产量仅能满足需求的26.4%。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20160016/Screen-Shot-2021-05-20-at-3.59.53-PM.png)
+中俄输油管道输油量从1500万吨提升至3000万吨。近年来，中共不断开拓的中缅、中巴油气管道，但80%的原油进口依旧需要依托海上运输。2020年进口的8000万吨俄罗斯原油中有5000万吨通过海上运输。中共最主要的进口原油路线均需要经过马六甲海峡。在美日印澳“小北约”加快对中共的海上军事封锁后，原油运输将会更加艰难。即便中共近年来加大了原油这一战略储备力度，但近八成的对外依赖仍严重限制了其军事战争的后勤补给能力。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20160044/Screen-Shot-2021-05-20-at-3.59.49-PM.png)
+除了对外依存过高外，国内的石油价格也属于“中共特色”的多涨少跌。2019年原油进口额达2413.19亿美元，2020年原油进口量增长7.3%，然而进口金额却下降27.3%，为1763.21亿美元。即便在国际原油跌至负数的期间，国内的油价因下限40美元/桶的调控限制依旧坚挺。进入2021年后，仅5个月汽油累积涨幅1455元/桶（2020年全年涨幅1420元/桶）。国内油价的特色调控反映着中石油、中石化等国有集团的账目亏损的虚假和做作，更揭示了中共既得利益者利用行政干预手段对人民财产的肆意敛夺和剥削。
 
-GTV上灭共秀
-脚踏峰刃两苍茫
-酒上英雄脑中央
-飘车逞强忌疯狂
+新闻来源：
 
-灭共计重宜久想
-宜缓宜急杯中酒
-建邦事事无大小
-且饮且品酒思量
+“挺举”成功！我国海上最大原油生产平台顺利安装https://news.sina.com.cn/c/2021-05-20/doc-ikmyaawc6367421.shtml
 
-爱过才知道情重
-醉过才明白酒浓
+中国进口原油世界第一，有哪几个原油输入通道呢？https://new.qq.com/omn/20210409/20210409A021JU00.html
 
-酒灭中共
-真酿醇香醉何处？
-天晕墙走夜不留
-唯有紧跟酒神七哥走！
+突破6500万吨！2020年我国海上油气年产量创新高https://new.qq.com/omn/20201224/20201224A0EDJ000.html
 
-Come with me！
-Come with me！
-Come with me！
+我国自主设计建造最大海上原油生产平台安装完成，年底投产https://finance.sina.com.cn/tech/2021-05-19/doc-ikmyaawc6178583.shtml
 
-（本文仅代表作者观点）
+2020年全年中国原油行业产量及进口贸易情况 原油累计产量将近1.95亿吨https://d.qianzhan.com/xnews/detail/541/210308-a09c564e.html
 
+对外依赖度为73%！上半年中国石油产量全球第六，进口量全球第一https://cj.sina.com.cn/articles/view/6862376589/199078e8d00101k6m4
+
+国内油价为何迟迟不降？这些你可能真的不知道https://new.qq.com/omn/20200321/20200321A0LPMU00.html
+
+紧急！今夜24时涨价！油价涨多少定了！https://new.qq.com/omn/20210514/20210514A02FKU00.html
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-
-编辑/校对/发稿：Irene木木
+编辑/校对/发稿：正义的小新
 
 **更多资讯，更多关注**
 
@@ -72,10 +52,6 @@ Come with me！
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-
-
 ![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-
 
 +1

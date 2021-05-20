@@ -1,55 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】美国NBA相关基金投资中共“工具”公司
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1259974/)
+## 中共国家足球队的共产主义爱国课程
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1260150/)
 
-作者：纽约香草山媒体部 7bends
-
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
-
-
-
-日前，美国《国家脉动》杂志独家报道了美国NBA相关的基金投资了被标记为中国共产党“工具”的公司。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20133037/5da69d1e71d9b.image_.jpg)图片来源：http://www.laloyolan.com/sports/nba-needs-to-stand-up-to-china/article\_7a33b2ad-f065-52a8-b35f-5db9e9221273.html
-
-此篇报道提及，已去世的NBA超级巨星科比·布莱恩(Kobe Bryant)支持的风投公司投资了一些与中国共产党相关联的公司，而这其中就有被美国国务院标记为中国政府“工具”的公司。
-
-这家名为Bryant-Stibel的的风投基金公司从NBA全明星赛得到一亿美元资金，投资了包括阿里巴巴、全卡车联盟（Full Truck Alliance）和VIPKid在内的这些与中国共产党有关联的公司。
-
--阿里巴巴：Bryant-Stibel基金与中投公司（China Investment Corporation）这个中共高层官员主权财富基金共同投资了阿里巴巴。众所周知，电子商务科技巨头阿里巴巴致力于在关键技术方面取代美国。
-
--全卡车联盟 （Full Truck Alliance）：同样，这家NBA相关基金与中国共产党的中国改革基金管理公司 （China Reform Fund Management）一起投资了在中国卡车领域领先的在线商业货运平台——全卡车联盟。
-
--VIPKid：Bryant-Stibel基金还与腾讯一起投资了VIPKid。VIPKid是一家在线学习平台，被美国国务院国际安全与防扩散局称为“中国政府的工具”。VIPKid甚至将其服务范围扩展到美国的公立学区。
-
-联想到之前遍布美国和世界各地的孔子学院打着文化交流的幌子把触角伸进所在国，大肆对世界输出共产思想和意识形态，并进行蓝金黄。近来西方各国此起彼伏的Antifa 等运动无不有共产中国的影子。CCP对美国及世界的渗透，几乎是无孔不入，令人恐怖。
-
-参考阅读：
+```
+新闻来源：意大利晚邮报（Corriere Della Sera）
+发布时间： 2021年5月19日
+翻译整理/简评： 斩草要除根
+```
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20152900/v2-728567227cd9d92ce3c79249e90406d1_1440w.jpg)图片来源：知乎专栏
 
+中共国家足球队正在为2022年世界杯预选赛的比赛做准备，球员们正在接受“爱国主义教育”速成班和研究共产党的百年历史。今天，李铁教练带领整个团队参观了1921年举行第一届党代会的地方。
 
-> [NBA-Linked Fund Invests In Companies Flagged As ‘Tools’ Of Chinese Communist Party.](https://thenationalpulse.com/exclusive/nba-firm-invests-in-ccp-companies/)
+这是上海的一座红砖房，毛泽东和十几位同志（包括来自莫斯科的共产国际特使）于1921年秘密会面。这里已经被改造成了博物馆：多年来，普通中国人都对它不屑一顾，但在2017年，习近平将他的政治局带到了这里，以发誓对党的永恒忠诚，从那时起，中共国人蜂拥而至。众所周知，习近平也是球迷，他梦想着中共国能成为足球超级大国。
 
+北京足协领导人强调：“面对全球挑战，增强球员的使命感和责任感至关重要：爱国主义教育注入了积极的能量”。队伍中有五名外籍球员：三名巴西人和两名英国人。他们也在上海博物馆参加学习。他们会在5月30日与关岛的比赛中出场，当然肯定他们不会抵抗这种共产红潮。
 
-校对/发稿：飞虹
+#### 简评：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15014027/5%E6%9C%88-1.jpg)
+**现在，这可笑荒唐的“共产党爱国教育”遍布着整个中共国。意识形态教育下至要从娃娃抓起，上则不封顶，连和尚、尼姑、老外一个都不放过。这愚人节似的操作，在当下中共国是实实在在的发生着。文革时期的东西又重新拿出来用，真是这个时代的悲哀！**
+（本文只代表译者观点，与Gnews平台无关。）
 
+**新闻原文链接：**
+🔗[Lezioni di patriottismo comunista per la nazionale cinese di calcio](https://www.corriere.it/NewsletterCorriere/america-cina/9a3dcc8e-b872-11eb-86a2-256e95d23aef_nl_AmericaCina.html)
 
+* * *
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+***编辑整理/校对: **Ting Guo*
 
 +1
