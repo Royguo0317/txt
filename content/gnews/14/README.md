@@ -1,45 +1,248 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国新建轰炸机机库剑指台湾
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1260393/)
+## 【每日快报】我们知道COVID-19是实验室制造-有来自中共国内的新情报佐证其军事来源 2021.05.21
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1261736/)
 
-#### 翻译：Ping |校对：Wenwang
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20170210/capture-26.jpg)图片来自：中共东部战区微信公众号
-中共空军轰炸机基地出现带有大型机库的神秘隐蔽设施，其远程性质及其强化的周边环境表明此设施用于支持敏感工作。据中共国东北战区微信公众号文章，2015年5月21日，中公空军新闻发言人申进科表示，中共空军航空兵首次飞越宫古海峡赴西太平洋开展远海训练，提升空军航空兵部队远海机动作战能力。
+** 作者：**映兰轩
+![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2021/05/image-23.png)
+# ***今日摘要***
 
-据美国军事新闻网《锐力》（The Drive）近日报道，卫星图像显示，在中共国东部的一个解放军空军轰炸机基地，出现了一个独特的机库和支持设施。这个独立的设施从主基地分离出来，坐落在自己的高安全围栏内。报道称该基地的一个单位，即第30航空团，似乎正在操作WZ-8，一种大型高速高空飞行的火箭动力间谍无人机，该机可以从H-6N导弹运输机在半空中发射。此外，还有传言说中共的H-20隐形轰炸机也即将公开亮相。从这些信息可以看出，建造此大型机库的是剑指台海局势，意在台湾。
+1. [塞林将军：我们知道COVID-19是实验室制造的-来自中共国内的新情报佐证其军事来源的实际位置](https://www.thegatewaypundit.com/2021/05/know-covid-19-created-laboratory-new-revelations-inside-china-indicate-location-military-origin/)
+2. [欧洲议会投票冻结有争议的欧-中投资协议](https://www.euronews.com/2021/05/20/european-parliament-votes-to-freeze-controversial-eu-china-investment-deal)
+3. [乔丹议员：有必要调查福奇投入中共国实验室资金中的作用](https://www.newsmax.com/newsfront/jordan-wuhan-covid-china/2021/05/20/id/1022084/)
+4. [据我们目前所知的情况，新加坡变种病毒影响儿童？](https://www.ndtv.com/world-news/singapore-variant-of-coronavirus-affecting-children-what-we-know-so-far-2444387#publisher=newsstand)
 
-报道指出，经审查后的卫星图像显示，位于江苏省省会南京市以北不到30英里处的卢赫-马安空军基地，大约在2017年就开始了这个隐蔽的扩建工程。新机库长约265英尺，宽245英尺，而且相当高。停机坪有大约315,000平方英尺的开放空间。此外，在左上角，有一个宽172英尺的发动机运行区。在停机坪附近还有一些可能是计划修建额外机库的区域。在这个分离的场地周边还有一些其他建筑，可能是行政办公室或宿舍，或者更可能是两者的混合。此外，基地周围建了有两层的围栏，北边有警卫塔和灯光，滑行道的门就在停机坪的不远处，和通往卢赫-马安主跑道的门相联。滑行道在某一点上经过一条公路，大约有3500英尺长，80英尺宽。
 
-卫星图像还显示，2020年，就在大飞机库及其停机坪所在的东北方向，另一个大型场地开始施工。然而，目前还不清楚这些设施是否与卢赫-马安有任何关联。这个正在施工的场地与基地似乎没有任何直接联系。空军基地的扩建部分以前可能是农田，其周边大部分地区看起来仍然布满了乡镇企业。目前尚不清楚修建卢赫-马安的这个独立附加设施的确切目的，但《锐力》“战区”（The War Zone）专栏记者查阅卫星图像后指出，没有一张卫星图片显示机库前面的停机坪上有任何类型的飞机。邻近的基地，作为一个整体，是比较新的，其主要部分的建设在2012年开始，已于2015年和2016年之间的某个时候完成。
+# 重要事件
 
-报道认为，种种迹象表明，中共军方建立的大型飞机库及其周边设施，都是为军事目的作掩护。并且中共国军事媒体也报道，称最新的“魔改”版轰-6N（H-6N）为国之重器！此军事基地就是为H-6N提供支持，意在日益敏感的台海局势，剑指台湾。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20170147/capture1-2.jpg)图片来自：scmp.com
-报道指出，有消息称，该基地是中共空军第十轰炸机师辖下的第29和第30航空团的驻地，隶属于中共东部战区司令部。驻扎在卢赫-马安的主要飞机是H-6轰炸机的变种，它本身是由苏联的图-16 “獾”式轰炸机衍生而来，包括H-6H、H-6J和H-6M等能运载导弹的机型。
+- [**2021.05.20.thegatewaypundit:我们知道COVID-19是实验室制造的–来自中共国内的新情报佐证其军事来源的实际位置We Know COVID-19 Was Created in a Laboratory – New Revelations from Inside China Indicate Actual Location of its Military Origin**](https://www.thegatewaypundit.com/2021/05/know-covid-19-created-laboratory-new-revelations-inside-china-indicate-location-military-origin/)
 
-其他一些中共空军轰炸机基地也有类似的扩建行动，特别是在安徽省安庆市，距离卢赫-马安西南约160英里，那里有第十轰炸机师的额外人员。其中一些基地还包括更大的机库，但它们都没有卢赫-马安基地那样的基础设施和安全措施，也没有那样的隐蔽性和先进性。
 
-总而言之，考虑到卢赫-马安基地主要部分的间距、额外的边界安全措施以及特殊的独立设施，似乎很难相信该基地只是在进行一般的扩建。通常情况下，这些特征表明军事基地中存在着独特的敏感活动区域。
+（劳伦斯-塞林的特邀文章）过去24小时内从中共国内部获得的信息佐证了COVID-19来源于实验室的流行说法。现在毫无疑问，自我们2月份的报告以来，COVID-19病毒是在一个实验室里创造的。
 
-报道认为，有趣的是，2019年9月，就在滑行道连接工程完成几个月后，WZ-8无人机的照片首次公开出现，其序列显示它们被分配到第30航空团。当时中共正在筹备庆祝中共国成立70周年的大规模阅兵活动。有传言说，早在2018年6月，也就是卢赫-马安的大型机库刚刚完工不久，这种无人机就已投入使用。
+虽然，大多数人认为它是从武汉病毒研究所泄露出来的。 武汉病毒研究所的 “蝙蝠女 “石正丽否认她的研究所是来源。石正丽称，她和她的同事在2019年底发现了这种病毒，是在患有不明原因肺炎的病人的样本中发现的。”在此之前，我们从未接触过或研究过这种病毒，也不知道它的存在”，”美国总统特朗普声称SARS-CoV-2是从我们研究所泄露出去的，这与事实完全相悖，”石正丽说。
 
-WZ-8的各种特征，特别是机身顶部的一对大型悬挂吊耳，强烈表明它被设计为在半空中从专门的H-6N飞机上发射，因为H-6N能够携带超大型有效载荷，包括大型导弹。也有报道称，一些老式的H-6M飞机的配置现在也可能被升级为可以发射这些无人机。一些消息来源将这些改装过的喷气机称为H-6MWs。
+她可能是部分正确的。
 
-虽然不再是秘密，但WZ-8和H-6N似乎仍然是解放军空军内部的敏感平台，尽管它们可能需要更多的像在卢赫-马安那样的专门设施。以火箭为动力的无人机只在戈壁沙漠的一个远程测试基地出现过，因此这可能表明，解放军空军正在努力用这些无人机提高其真正的作战能力，或者如果它们还处在发展阶段的话，让其尽快进入成熟期。
+我早就说过，COVID-19病毒的创造是中共国一些军事中心之间的合作，而不是只在武汉病毒研究所进行的 “功能增益 “实验的唯一结果。来自中共国国内的新信息与这一结论一致。
 
-从卢赫-马安，也就是中国黄海和东海海岸线以西不到200英里，以及台湾以北约600英里的地方，H-6N以及H-6M，将可以携带WZ-8战斗机随时进入西太平洋地区的多个具有战略意义的地区。就在4月，分配给第10轰炸机师的十几架H-6飞机，包括至少一架H-6MW，参加了在中共国东部海岸的演习。
+尽管仍然是一个发展中的故事，但这里有一个总结。
 
-据中共国媒体报道，“WZ-8”的缺点也很明显，航程不如美军“全球鹰”那么远，滞空时间也短。加上中共国在海外并没有军事基地，导致“WZ-8”无法对远距离目标实施侦察任务。如果在战时需要对远距离外目标进行探测，则需要H-6N携带“WZ-8”在指定空域投放，才能弥补航程不足带来的问题。
+**1.**在2019年的最初几个月，一种完全形成或接近完全形成的COVID-19病毒从中国人民解放军东部战区司令部抵达武汉病毒学研究所。
+**2.**与流行的说法相反，COVID-19病毒被送到武汉病毒学研究所主要是为了测试。
+**3.**测试工作被分配给一组年轻的病毒学家。该小组组长的名字是已知的，组长的科学背景也与该角色一致。
+**4.**测试是在非人类灵长类动物身上进行的。
 
-报道指出，还有H-20隐形轰炸机的问题，据说自2000年代初以来一直在开发。迄今为止，只有一张关于这种飞机的官方效果图，长期以来，据说H-20是一种飞翼型设计，从它在停机坪上的图片看，与美国空军的B-2非常相似，尺寸大致相同。近年来，一直有传言说H-20可能即将公开出现，到目前为止都没有证明是真的。然而，在2018年10月，在一个由不知名的中共东部战区司令部轰炸机部队主办的鼓舞士气的晚会上，一张官方图片确实显示了一个图形，其特点似乎是一个无尾的飞翼型飞机的剪影。但关于H-20即将公开亮相的猜测，可能在2-3年内才能实现。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20170154/capture2-1.jpg)图片来自：百家号
-作为中共空军的秘密军机，H-20肯定需要配备额外的安全设施，使其更加保密，但它至少要在一个既定的轰炸机基地上飞行，以便对它进行测试。因而一个大型机库对于保护这些飞机不受外界的窥视和影响就显得特别重要。通常情况下，用于隐身飞机外壳的材料和涂层对天气和其他环境因素非常敏感。有意思的是，即使H-20还需几个月或甚至几年时间才能完成更公开的测试和评估，或正式进入服役阶段，但中共空军就已经建立了专门的设施来维护这些飞机。在美军B-21 “突袭者”隐形轰炸机抵达加州爱德华兹空军基地之前，人们已经看到了类似的基础设施建设，该机目前预计将在明年公开亮相。
+下面的评论是基于这一信息。
 
-另一种可能是，卫星照片显示卢赫-马安的扩建，在某种程度上与恢复解放军空军的战略核任务有关，根据美国国防情报局（DIA）的说法，该任务于2017年正式开始。五角大楼在2020年发给国会的一份关于中共国军事发展的年度报告中指出，“2019年10月，在解放军空军公开披露H-6N是其第一种具有核运载能力，并且能在空中加油的轰炸机之后，中国发出了恢复其核武三合一的信号。”但同时，至少在其目前的配置中，这些卫星照片显示的机场扩建工程，似乎缺乏拥有核武器的基地一般都具有的那些专门的武器储存设施。当然，这些也许只是解放军空军计划使用这个机库及其附近设施的一种可能性。其目的可能与WZ-8、H-20或核武器完全无关。
+武汉病毒研究所的生物安全四级实验室位于武汉市江夏区，在武昌区以南约12英里，武昌区是COVID-19疫情的早期震中。
 
-报道最后指出，不管怎么说，卢赫-马安的大型机库以及隐藏在其安全范围内的其他相关基础设施，强烈表明该基地正在进行一些重要和敏感的活动。随着该基地独立的扩建部分的核心设施看起来基本完成，关于解放军空军的确切情况的新暗示也开始逐渐显现。
+目前还不清楚江夏区的生物安全四级实验室是否有能力进行使用非人灵长类动物的实验。
 
-&gt;&gt;原报道链接 &gt;&gt;[Mysterious Secluded Facility With Large Hangar Emerges At Chinese Bomber Base (thedrive.com)](https://www.thedrive.com/the-war-zone/40672/mysterious-secluded-facility-with-large-hangar-emerges-at-chinese-bomber-base)
+中国科学院自己的网站指出，武汉国家生物安全实验室（NBL4）有2个细胞生物安全实验室，1个小型动物实验室，1个中型动物实验室，1个培养（病毒）收集与使用实验室”。
 
-0
+相比之下，武汉大学动物实验中心和动物生物安全三级实验室确实有能力进行非人灵长类实验。
+
+该研究设施位于COVID-19早期爆发的中心地带，附近是中国人民解放军的一家大型医院。
+
+COVID-19病毒有可能是在武汉进行测试时被释放的。
+
+之前在TGP的一篇文章中，我推测“福林酶切位点”–作为COVID-19实验室来源的 “实锤 “证据，是由在广州南方医科大学有关的中国人民解放军科学家植入的。
+
+多重感染，也就是。通过非人类灵长类动物的 “连续传递 “可能使COVID-19病毒部分地预先适应了人类感染。另外，COVID-19病毒也可以通过连续传递给表达COVID-19病毒的人类受体的基因改变的小鼠品系来进行预适应。
+
+（未完报道待续。劳伦斯-塞林（Lawrence Sellin）博士从商业和医学研究的国际事业中退休，在美国陆军预备役中服役29年，是阿富汗和伊拉克的老兵。他的电子邮件地址是：[email protected]。）
+
+- [**2021.05.21.euronews：欧洲议会投票冻结有争议的欧-中投资协议european Parliament votes to freeze controversial EU-China investment deal**](https://www.euronews.com/2021/05/20/european-parliament-votes-to-freeze-controversial-eu-china-investment-deal)
+
+
+欧洲议会以压倒性多数投票决定冻结欧中投资协议的批准，原因是北京对欧盟五个成员国实施制裁。
+
+在周四下午通过的一项措辞强硬的决议中，议会还对其所谓的针对新疆地区维吾尔族穆斯林少数民族的 “反人类罪 “以及对香港民主反对派的镇压表示遗憾。
+
+最新的发展代表了对欧-中全面投资协议的新打击，该协议是欧洲领导人在不到五个月前与习近平的视频通话中达成的。
+
+该协议的主要目标是增加市场准入，确保在中共国做生意的欧盟投资者和公司得到公平待遇。该文本希望创造一个所谓的公平竞争环境，并包含关于国有企业和补贴的规定。
+
+虽然最初被誉为具有里程碑意义，但该协议很快受到批评，因为批评者认为在劳工权利方面的承诺不足，特别是强迫劳动。在新疆拘留所内强迫劳动的事件被揭露后，这个问题已经成为政治上的棘手问题，此外还有对酷刑、失踪、强迫绝育、性暴力和大规模监控的指控。
+
+（欧盟）与西方盟友协调制定的一系列措施针对的是四名中共国官员和一个被认为参与侵犯维吾尔族人权的实体。
+
+中共国做出了迅速而愤怒的反应：在几乎瞬间的反击中，中共国外交部对10名欧洲个人，包括5名欧洲议会议员和4个实体实施了制裁，其中包括议会的人权小组委员会。
+
+北京还将英国、美国和加拿大的民选官员列入黑名单。总共有30多个个人和实体受到制裁。
+
+中共国的反制裁措施激怒了欧洲议会，并使批准的心情变坏。
+
+在周四以599票赞成、30票反对通过的联合决议中，欧洲议会议员对北京的回应进行了抨击，称其为 “对欧洲联盟及其整个议会的攻击，是欧洲民主和价值观的核心，也是对研究自由的攻击”。
+
+“议员们写道：”欧盟的制裁针对的是侵犯人权的行为，而且是基于国际法中蕴含的合法和相称的措施，而中共国的制裁缺乏任何法律依据，完全没有证据，而且是任意的，针对的是对这种侵犯人权行为的批评。
+
+此外，议会 “认为这些制裁是在全球范围内对有关中共国的言论进行监督，并决定在全球范围内允许什么样的言论和讨论，并认为这种努力是极权主义威胁的一部分”。
+
+议员们借此机会推动作为该协议主要谈判方的欧盟委员会 “改善对中共国人权的保护和对公民社会的支持”，并强调与台湾等区域伙伴的其他贸易和投资协议 “不应受到暂停批准CAI协议的影响”。
+
+欧洲议会议员还敦促中共国国政府批准和实施国际劳工组织（ILO）的几项公约，包括与强迫劳动、结社自由和组织权利有关的公约。
+
+- **[2021.05.20.newsmax：乔丹议员：有必要调查福奇投入中共国实验室资金中的作用Rep. Jordan: Investigation Warranted Into China, Fauci Role in Lab Funding](https://www.newsmax.com/newsfront/jordan-wuhan-covid-china/2021/05/20/id/1022084/)**
+
+
+众议员吉姆-乔丹星期四说，关于中共和武汉病毒研究所的作用及其与COVID-19大流行病的联系，包括为什么美国的税款会流向武汉的实验室，问题仍在不断涌现，需要进一步调查。
+
+这位俄亥俄州共和党人在对福克斯商业频道的玛丽亚说：”请记住，（安东尼）福奇博士和他的组织批准了300万美元给生态健康；生态健康给了这个实验室70万美元。”
+
+他补充说，”所有证据 “都指向中共国实验室，因为在过去的一年里，美国有587,875人死于这种病毒，但世界卫生组织 “试图淡化 “这种疾病来自那里的想法。
+
+国务卿安东尼-布林肯 “不相信世界卫生组织的报告”，其他人也不相信，乔丹补充说，但仍然 “除了美国国会的民主党人，所有人都想调查此事”。
+
+同时，布林肯在阿拉斯加与他的中共国同行和其他关键人物会面时得到的待遇显示了 “中国共产党人的态度和行动”，乔丹说。
+
+“我们不想弄清楚这件事是如何发生的，以便我们能确保它不会再次发生？”他补充说。”我们不想问一些棘手的问题，特别是对Fauci博士，比如你在批准300万美元的时候，是否知道（钱）会流向这个实验室？这个实验室里发生了什么？”
+
+- ** [2021.05.20.ndtv：据我们目前所知的情况](https://www.ndtv.com/world-news/singapore-variant-of-coronavirus-affecting-children-what-we-know-so-far-2444387#publisher=newsstand)，[新加坡变种病毒影响儿童？Singapore Covid Variant Affecting Children? What We Know So Far](https://www.ndtv.com/world-news/singapore-variant-of-coronavirus-affecting-children-what-we-know-so-far-2444387#publisher=newsstand)**
+
+
+德里首席执行官周二要求中央必须禁止往返新加坡的航班，因为出现了新的菌株。他说，该菌株有可能在印度引发第三次浪潮。联邦民航部长哈迪普后来向这位领导人保证，该中心正在监测这一情况，并采取了所有预防措施。以下是我们知道的关于该变种的所有情况。
+
+新加坡政府表示，已经发现一种影响儿童的突变体。
+
+新加坡卫生部长王业功在一次新闻发布会上说，这个名为B.1.617的变种 “似乎更影响儿童”。
+
+法新社援引教育部长陈振声的话说：其中一些变种的毒性更强，它们似乎会攻击年幼的儿童。
+
+新加坡是世界上在疫情管理方面最成功的国家之一。迄今为止，该国已经报告了6万多例冠状病毒病例，只有31例死亡。
+
+周日，新加坡确认了一些与一个补习中心的集群有关的儿童病例。
+
+新加坡表示，由于变异，它将从周三起关闭所有的学校，直到5月28日。
+
+政府还计划为16岁以下儿童接种冠状病毒疫苗。
+
+同时，新加坡否认它有任何影响儿童的本土变种。
+
+
+
+# 每日文贵说
+![]()![](https://cdn.discordapp.com/attachments/823056109513867304/844522989872873522/image1.jpg)
+# 更多要闻链接
+
+1. [日防相称“台湾的情况也要积极视为我们的问题”](https://www.toutiao.com/a6964517454743601701/?channel=&amp;source=search_tab)
+2. [哈马斯已与以色列达成停火协议，双方将于当地时间21日2时开始停火](https://www.toutiao.com/a6964498009396609573/?log_from=973c7f13b80ab_1621559036677)
+3. [美联储今年夏天发布关于美国数字货币的报告](https://www.zerohedge.com/markets/fed-publish-report-us-digital-currency-summer)
+4. [台北市快筛站阳性率5.1%　柯征召退职医护](http://bj.crntt.com/doc/1060/9/0/1/106090168.html)
+5. [据ASIA TIMES报道，俄罗斯军事分析家指出，如果中国和美国的航母发生冲突，中途之战的教训](https://asiatimes.com/2021/05/hell-in-the-pacific-us-would-win-carrier-battle/)
+6. [自2004年以来，第一军医大学就读于南方医科大学。但是，解放军以前的人员与解放军保持着密切的联系。刘先生在纽约工作时获得了中国教授的提拔。这是他合作的一个例子](https://twitter.com/DrLiMengYAN1/status/1394818325574717444)
+
+
+# 每日推特文摘
+
+
+
+以色列与哈马斯同意停火
+
+
+
+
+
+> 以色列与哈马斯同意停火 [https://t.co/XGk1Q986nV](https://t.co/XGk1Q986nV)
+> — 美国之音中文网 (@VOAChinese) [May 20, 2021](https://twitter.com/VOAChinese/status/1395508529981575170?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+Facebook的Politifact事实核查机构悄悄的撤回之前对“闫丽梦博士说病毒来自实验室是阴谋论”的结论！ 社交媒体全面转向！ 中共吓死了！ [https://dailycaller.com/2021/05/20/politifact-retracts-lab-leak-fact-check/](https://t.co/pV9vAJuGO4?amp=1)
+
+
+
+
+
+> Facebook的Politifact事实核查机构悄悄的撤回之前对“闫丽梦博士说病毒来自实验室是阴谋论”的结论！
+> 社交媒体全面转向！
+> 中共吓死了！[https://t.co/pV9vAJuGO4](https://t.co/pV9vAJuGO4) [pic.twitter.com/A6TGJWCZaE](https://t.co/A6TGJWCZaE)
+> — 路德社lude media (@lude\_media) [May 20, 2021](https://twitter.com/lude_media/status/1395453609169637379?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+参议员卢比奥新闻办： 卢比奥发起了两项法案，以反对中国共产党透过合法和非法手段手机美国人基因数据的f努力，而导致的日益增长的威胁。 点击了解更多（附参议员网站的介绍）
+
+
+
+
+
+> 参议员卢比奥新闻办：
+> 卢比奥发起了两项法案，以反对中国共产党透过合法和非法手段手机美国人基因数据的f努力，而导致的日益增长的威胁。
+> 点击了解更多（附参议员网站的介绍） [https://t.co/DcqDF8Qh6S](https://t.co/DcqDF8Qh6S)
+> — 美国政要等…直译推 (@zhiyitw33) [May 20, 2021](https://twitter.com/zhiyitw33/status/1395463516434444293?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+Over a year ago, I told [@MarthaRaddatz](https://twitter.com/MarthaRaddatz) that the Wuhan Virus most likely came from a lab leak. She stopped just short of offering me a tin hat. The CCP said I was an enemy of mankind. And now? Well, now, the Left wing media is scrambling to get on the side of the truth.
+
+
+
+
+
+> Over a year ago, I told [@MarthaRaddatz](https://twitter.com/MarthaRaddatz?ref_src=twsrc%5Etfw) that the Wuhan Virus most likely came from a lab leak. She stopped just short of offering me a tin hat. The CCP said I was an enemy of mankind.
+> 
+> And now? Well, now, the Left wing media is scrambling to get on the side of the truth. [pic.twitter.com/t9YTUEQSsV](https://t.co/t9YTUEQSsV)
+> — Mike Pompeo (@mikepompeo) [May 20, 2021](https://twitter.com/mikepompeo/status/1395359503302922243?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+Devin Nunes, the Ranking Member of the House Intelligence Committee – In the report, we know that Chinese Communist Party and People’s Liberation Army which protects CCP, are trying to develop biological weapons. [#CCPLiePeopleDie](https://twitter.com/hashtag/CCPLiePeopleDie?src=hashtag_click) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)
+
+
+
+
+
+> Devin Nunes, the Ranking Member of the House Intelligence Committee
+> – In the report, we know that Chinese Communist Party and People’s Liberation Army which protects CCP, are trying to develop biological weapons.[#CCPLiePeopleDie](https://twitter.com/hashtag/CCPLiePeopleDie?src=hash&amp;ref_src=twsrc%5Etfw)[#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/bpTJ7FUHcp](https://t.co/bpTJ7FUHcp)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 21, 2021](https://twitter.com/DrLiMengYAN1/status/1395539173986144268?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+*鸣谢：更多要闻链接部分来自 骑着毛驴来挺郭战友提供*
+
+*编辑：映兰轩**审核：星空無垠**发布：文顾*
+ 
++2
