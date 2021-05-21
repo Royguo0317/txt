@@ -1,46 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/05/18 中共国成为新的邪恶轴心国之一，它不会走向民主
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1261831/)
+## 薛斯汀 肖伦斯坦中心接受中共资金制造假新闻真相
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1261894/)
 
-视频字幕：free20200604 | 听写：云岭| 翻译：Roberts| 校对：Cow| 简评/文字整理/编辑：胖丁| 审核：胖丁 | Page：小雨
+台湾宝岛农场 Amitofu
 
-**简评：**
+美国华盛顿邮报5月17日，引述哈佛大学薛斯汀或称肖伦斯坦中心(Shorenstein Center)中心科技与社会变化研究计划主任，唐纳文（Joan Donovan）的Graphika报告，说「这是一份重要的鉴识分析，探讨富有且具有政治动机的人，操弄社群媒体之道。」，报导指出文贵先生推动美国大选和新型冠状病毒病Covid-19的假消息，在GTV、GNEWS和相关网站，散播扭曲不实信息的有力平台，主要打击对象是中共国政治领导阶层，和在西方的反中共异议份子，以及攻击Covid-19疫苗安全性，在美国、加拿大、澳洲和其他国家支持郭文贵的蚂蚁帮义工，透过社群平台协调工作，在各大社群平台广泛发文。而这位唐纳文（Joan Donovan）和哈佛肯尼迪学院政治专业博士珍妮弗·尼尔森（Jennifer Nilsen）就是撰写虚假科学文章中，指责闫丽梦博士COVID-19病毒，是中共人造病毒伪科学的误导性文章。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21072453/Joan-Donovan-400x221.png)
+中共再次藉由肖伦斯坦中心唐纳文（Joan Donovan）和华盛顿邮报大肆宣传诋毁爆料革命。班农战斗室主持人拉希姆·卡萨姆Raheem Kassam和娜塔莉·温特斯Natalie Winters撰写的文章，在2月13日国家脉动发表独家新闻，揭露了哈佛大学肯尼迪学院肖恩斯坦研究中心，接受中共资助和军事相关的捐赠款事实，独家新闻指出肖伦斯坦中心是外国捐赠者，中共的长期赞助对象，其中清大新闻学院董志军，新华社编辑李锡光，广播电视研究胡正荣等，多位肖伦斯坦中心研究员是由中共党员组成。肖伦斯坦中心以打假新闻为目标，却替中共制造假新闻，任何揭露中共邪恶真相的讯息，都会被中共的各种手段和西方媒体打压成假消息，哈佛大学肖伦斯坦中心已成为中共的大外宣，肖伦斯坦中心和华盛顿邮报长期接受中共的金钱支持是真新闻，对肖伦斯坦中心和华盛顿邮报而言，只要不利中共的新闻就是假新闻，19日文贵先生指出西方媒体的傲慢、贪婪、暴力和绑架法律，就是要拥有话语权。
 
-中共一心要称霸全球，与俄罗斯、伊朗和北朝鲜组成新的邪恶轴心国。一些美国企业，例如彭博社、NBA、耐克、苹果把经济利益看得高于国家安全，帮助中共发展经济，同时利用与中共的关系赚得暴利。疫情期间，中共国一面故意传播病毒，一面大量出口个人防护用品和消费品到美国和欧洲。在全球经济都停摆的情况下，中共国的经济不降反升，增长了15.18%。
+爆料革命秉持着文贵先生唯真不破、传播真相的精神，GTV、GNEWS和全世界各地农场战友们，既不是极左派也不是极右派，而是坚定的灭共派，目的就是消灭共产党政权，揭露中共享COVID-19生化病毒攻击全世界，包含传播中共对世界政府的BGY、对美国的3F计划13579征服世界2025、2035、2049最终是消灭全球白人菁英的灭白计划，以及中共的政治经济军事的一系列造假内幕，笔者认为GNEWS、GTV是敢讲真相的平台，但凡有有智慧良知的人，会在这里找到真相的，这就是为什么中共要倾我党一国之力来消灭文贵先生与爆料革命的原因。目前平台以中共解放军在武汉实验室制造COVID-19病毒，对世界发动生物超限战，全球揭露中共病毒的第一证人，闫丽梦博士三个科学报告，被西方科学家、美国军方、情报单位验证，用羟氯喹加锌片就能防御病毒感染，中共政权DECP数字货币的真相…。祈祷万佛万神加持75亿人不受到中共病毒的威胁
 
+本文仅代表个人立场
 
+資料來源:文贵先生、班农战斗室、路德社、博士军团、新中国联邦
 
-[GTV视频链接](https://gtv.org/video/id=60a66d9037f7f73984cddf59)
+[EXC: Harvard Center Attacking COVID Lab Theory Has Extensive Financial And Personnel Links With The Chinese Communist Party](https://thenationalpulse.com/exclusive/harvard-shorenstein-center-ccp-ties/)
 
-**视频字幕：**
+[Republicans Want Twitter to Ban Chinese Communist Party Accounts. That’s a Dangerous Idea.](https://slate.com/technology/2020/04/republicans-want-twitter-to-ban-chinese-communist-party-accounts-thats-dangerous.html)
 
-**Blackburn：我们必须意识到，中共国、俄罗斯、伊朗和北朝鲜，他们是新的邪恶轴心国。**
+审核:Athena雅典娜 发布:Amitofu
 
-**中共国一心想在本世纪中叶称霸全球**，为此他们视本世纪为“百年马拉松”。当他们（在国际上）建立各种关系的时候是非常有目的和意图的，然后他们就轻易赚了大钱。
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-你知道很多人都认为中共国会走向民主，在过去的十年里我们对此充满了希望。（现在）我们已经意识到**他们无意让自己的人民走向成功，一切都是为了中国共产党的成功。**
-
-**主持人：**确实如此。我想不能因为一些美国企业可以从中获利，我们就无所谓。我认为（像彭博社这样的）中共的大外宣永远不会揭示美国企业的利益已经超过国家安全利益。也许这是我的理解，彭博社的人肯定不同意我的看法。
-
-**Blackburn：**我想彭博社就像NBA、苹果和耐克一样，这些公司与中共积极开展业务，或与中共国电视台合作。他们不会同意你的看法，因为他们利用和中共的关系在中共国市场上赚得盆满钵满。当他们在中共国获得低价产品的时候，他们认为这是一种互惠互利的关系。
-
-但是在我看来，这是帮助中共国增长经济。当你看到中共国在疫情期间消费品出口大量增长的时候，想想看，中共国不仅抢走我们的工作，还散播这个病毒给我们，使我们停止经济活动，待在家里。
-
-与此同时中共国已经在个人防护设备方面占领了市场。然后他们增加对美国个人消费品市场的出口，因为人们待在家里，这些消费品的消耗更多。
-
-中共宣称说他们的经济在过去一年增长15.18%。因为他们不仅对美国出口工业品和消费品，而且出口到欧洲市场。
-
-编辑：【英国伦敦喜庄园编辑部】
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/0YPT45sb6HUVK/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/0YPT45sb6HUVK/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
-
-
-
-+1
+0
