@@ -1,32 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】中国境内云南青海地震
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1262965/)
+## 灭共诗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1262951/)
 
-中国境内在青海西宁发生7.4级强烈地震#Qinghai根据中国官方媒体的报道，今天早些时候在云南发生了6.4级大地震。下面是今天发生地震的数据：
-
-13：21UTC 5.3M    云南
-
-13：48UTC 6.4M    云南
-
-14：31UTC 5.1M    云南
-
-18：04UTC 7.4M    青海
-
-参考链接：
+- 作者：墙内战友
 
 
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-> JUST IN – Powerful 7.4 magnitude earthquake just hit [#Qinghai](https://twitter.com/hashtag/Qinghai?src=hash&amp;ref_src=twsrc%5Etfw) in China following a 6.4 magnitude in Yunnan earlier today, according to Chinese state media. [pic.twitter.com/k59laEcC16](https://t.co/k59laEcC16)
-> — Disclose.tv 🚨 (@disclosetv) [May 21, 2021](https://twitter.com/disclosetv/status/1395807365811822595?ref_src=twsrc%5Etfw)
+**西班牙2021年5月21日电/西喜社——**
 
+## **无题**
 
+山亦悠悠，
+水亦悠悠，
+俯瞰今世阅风流。
+谁人于命叙春秋？
+正道无休，
+灭共无休，
+唯真不破一声吼。
+问君天下谁风流？
 
-整理撰稿：蓝精灵
+## 元旦
 
-校对发布：Penny
+泪洗庚子满春秋，
+血染山河志未酬。
+北雁南飞醒望眼，
+大千未来寄辛丑。
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+## 彼岸花
 
-0
+大江东去浪淘沙，
+风雨掠过看戎花。
+历尽艰辛寻益处，
+流亡半世走天涯。
+
+## 使命丽梦
+
+人生智愚两重天，
+世界风云多变幻。
+独裁病毒绝人寰，
+恰逢丽梦凭生鉴。
+
+审核：蚂蚁兄弟； 校对：信心满满； 发稿：信心的选择
+
+**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+
++1

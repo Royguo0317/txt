@@ -1,15 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年5月21日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1262516/)
+## 布林肯将访问中东讨论重建
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1262493/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-5月21号：【诺贝尔医学奖得主，病毒学家，说疫苗：👇 rairfoundation.com/bombshell-nobe…】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21132838/acbbf5128e040724a664cddf82c3904e.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21133300/bf88d46aaa119fc0cb7103646ad60e1b.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21132807/4f2ca3f644e679b90cd057d961b8afd4.jpg)
-[【2021年5月21日】文贵先生盖特原文](https://gtv.org/getter/60a7c3f0d48e0209266460dd)
+编辑上传 水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21131527/B-19.jpg)republicworld.com
+05月21日，美国国务卿安东尼·布林肯将在未来几天访问中东国家以解决以色列和巴勒斯坦之间的冲突。美国国务院新闻办公室主任内德·普莱斯在美国国务卿和以色列外交部长加比·阿什肯纳齐的电话会谈后这样说。
 
-**喜联盟Gnews编辑部**
+普莱斯说：“外交部长欢迎布林肯国务卿计划对该地区的访问，国务卿将在未来几天与以色列、巴勒斯坦和该地区的同行会晤。”
+
+他明确指出，布林肯将在中东地区讨论“重建工作和共同努力为以色列人和巴勒斯坦人建立一个更好的未来”。
+
+早些时候，以色列和巴勒斯坦集团在加沙地带的停火协议开始生效。
+
+CNN消息称，美国总统乔·拜登在此之前曾在电话中向以色列总理本雅明·内塔尼亚胡施压，要求缓和与巴勒斯坦的冲突。据该频道的对话者称，拜登向内塔尼亚胡提出了5月19日与哈马斯控制的加沙地带休战的时间框架。
+
+哈马斯和以色列之间近年来爆发的最大一次军事冲突持续了11天。拜登本人表示，美国正在努力防止冲突的延续，就像以前在该地区发生的那样。
+
+参考链接：
+
+[https://www.rbc.ru/rbcfreenews/60a729229a79475e2e1561d6](https://www.rbc.ru/rbcfreenews/60a729229a79475e2e1561d6)
 
 0
