@@ -1,38 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/05/20-002 文贵先生盖特精要
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1262862/)
+## 佐治亚州法官判定进行选票审计
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1262923/)
 
-听写： 逍遙自在 | 校对/审核：樂禧禧 | Page：我是球大哥
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-[!\[\]()!\[\](https://spark.adobe.com/page/BBrC0nl9VVftS/images/117b4d22-2784-4e38-b86f-ffb6d8e45814.jpg?asset_id=99905d5d-e511-40c7-9072-2848eba1ad8b&amp;img_etag=%2201dd539fa97b05c41cd94eacc5b18605%22&amp;size=1024)](https://spark.adobe.com/page/BBrC0nl9VVftS/images/117b4d22-2784-4e38-b86f-ffb6d8e45814.jpg?asset_id=99905d5d-e511-40c7-9072-2848eba1ad8b&amp;img_etag=%2201dd539fa97b05c41cd94eacc5b18605%22&amp;size=1024)
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21175539/G-1.png)electionwiz.com
+笔者5月19日转载、报道了佐治亚州“在暗势力重金激励下，选举管理人员死心塌地掩盖、搅局下，正义人们进行司法审计的要求接连受阻……”【1】，今天（5月21日）传出消息，法官判定，对富尔顿（Fulton）郡选票进行法庭审计。
 
-**五月二十号：感谢很多战友．对文贵昨天．试吃拉肚子的关心．和很多战友对虚拟货币．发生的这些灾难性事件，文贵的一些看法！**
+《门道专家》发表文章，题目“佐治亚州法官要求对富尔顿郡选票进行法庭审计，因为在选票批次中存在巨大差异。”【2】
 
-[G-TV链接](https://gtv.org/getter/60a6e2db37f7f73984ce0126)
+文章说，佐治亚州亨利（Henry）郡首席法官布莱恩J.阿梅罗（Brian J. Amero）在周五（5月21日）的听证会上下令，开启富尔顿郡的选票（审计）。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/BBrC0nl9VVftS/images/78c67fc7-94e5-4882-91cb-4eb67f78a030.png?asset_id=546c4703-41b6-4d14-ada3-515e5649349a&amp;img_etag=%22e5a525f58a48bf00044469e6967315e5%22&amp;size=1024)](https://spark.adobe.com/page/BBrC0nl9VVftS/images/78c67fc7-94e5-4882-91cb-4eb67f78a030.png?asset_id=546c4703-41b6-4d14-ada3-515e5649349a&amp;img_etag=%22e5a525f58a48bf00044469e6967315e5%22&amp;size=1024)
+法官命令双方于5月28日上午10点到达选票存放地点，2020年11月的选票将以600 dpi或更高的分辨率进行扫描。
 
-•各位買Gclub战友一定要尽快对帐，争分夺秒通過KYC。
+《CD媒体》（CD Media）正在报道今天的听证会。
 
-•买G-TV和G-CLUB会员尽可能的都用自己KYC通过的喜美元账号去购买，也很快可以购买G-Fashion。
+在一个正在进行的听证会上，佐治亚州亨利郡法官、受人尊敬的布莱恩J.阿梅罗，可能允许原告（VoterGA.org、Garland Favorito和另一名原告）实物接触富尔顿郡的邮寄选票，这可能会显示2020年总统选举周期期间，佐治亚州存在的大规模选举舞弊，以及后续的、决定民主党控制美国参议院的决选，导致对美国政府的完全控制。
 
-• 在洛杉矶的美国的国土安全部等人完全操弄司法威胁G-Fashion高管，致使不得不关掉。
+在庭审中，VoterGA.org的律师描述了选票批次数之间的巨大差异（21%），这个巨大的差异是佐治亚州的州务卿布拉德·拉芬斯佩格（Brad Raffensperger）在确认选举时报告的选票批次数，与法院在该案上一次4月份的庭审中，下令进入（清点）的选票批次数。
 
-•现在的G-Fashion大换血，新的高管来自香奈儿美国区总裁，普拉达，古驰的高管加入。
+佐治亚州州务卿拉芬斯佩格的法庭陈述（GA SoS Raffensperger Amicus Brief），否认选举舞弊，（称指控）不成立，充满了欺骗。
 
-•G-Fashion起的作用是把G-CLUB合法的凝聚在一起，未来G-Fashion要变成变成新中国的亚马逊。
+VoterGA.org自4月份的听证会以来，一直在（指责有关人）用低分辨率图像扫描设备检查选票，并宣布他们需要看到实际的实物选票来了解经过认证的假选票的数量。原文链接了相关的报道。
 
-• 我们爆料革命是以假灭共，用共产党的假话来灭共产党，你们的搞假话来灭我们，证明我们说的都是真话，我们最后是以真灭共，以假灭共是共产党的假，以真灭共是我们是真，以假灭共是证明你的假
+（原文完）
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+选举舞弊，美国肯定存在；大规模的选举舞弊，令人不解。封杀质疑，能间接证实大规模舞弊的存在。漠视不管，让人怀疑这还是“灯塔美国”吗？
 
+相关链接：
 
-编辑：【英国伦敦喜庄园编辑部】
+【1】[https://gnews.org/zh-hans/1257789/](https://gnews.org/zh-hans/1257789/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/BBrC0nl9VVftS/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/BBrC0nl9VVftS/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+【2】[https://www.thegatewaypundit.com/2021/05/breaking-georgia-judge-calls-forensic-audit-fulton-county-ballots-large-discrepancies-21-found-ballot-batches/](https://www.thegatewaypundit.com/2021/05/breaking-georgia-judge-calls-forensic-audit-fulton-county-ballots-large-discrepancies-21-found-ballot-batches/)
 
 0
