@@ -1,14 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年5月21日 文贵先生盖特 1
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1262485/)
+## 2021年5月21日 文贵先生盖特 2
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1262516/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-5月21号：尊敬的战友们好，为什么在这短短的一两周内世界经济，政治，军事科学．教育各个领域．都突然的统一迅速的。在转向灭共．反共呢？为什么那么多世界上曾经否定我们的科学家的报告的人，现在都偷偷地撤掉了，他们那些所谓最有影响力的反科学家的报告呢？ 共产党在全球挑起的国家政治冲突……地区性战争和种族矛盾，以及公开的反犹的这一系列的背后，他们到底想干什么？
-
-[【2021年5月21日】文贵先生盖特原文](https://gtv.org/getter/60a7bc16d48e020926645716)
+5月21号：【诺贝尔医学奖得主，病毒学家，说疫苗：👇 rairfoundation.com/bombshell-nobe…】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21132838/acbbf5128e040724a664cddf82c3904e.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21133300/bf88d46aaa119fc0cb7103646ad60e1b.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21132807/4f2ca3f644e679b90cd057d961b8afd4.jpg)
+[【2021年5月21日】文贵先生盖特原文](https://gtv.org/getter/60a7c3f0d48e0209266460dd)
 
 **喜联盟Gnews编辑部**
 
