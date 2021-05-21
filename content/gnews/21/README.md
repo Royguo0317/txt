@@ -1,15 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年5月21日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1262516/)
+## 日本踟蹰批准了莫德纳和阿斯利康疫苗的使用！
+` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1262484/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21131848/rb1-edited.jpg)图片来源：CNA
 
-5月21号：【诺贝尔医学奖得主，病毒学家，说疫苗：👇 rairfoundation.com/bombshell-nobe…】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21132838/acbbf5128e040724a664cddf82c3904e.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21133300/bf88d46aaa119fc0cb7103646ad60e1b.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21132807/4f2ca3f644e679b90cd057d961b8afd4.jpg)
-[【2021年5月21日】文贵先生盖特原文](https://gtv.org/getter/60a7c3f0d48e0209266460dd)
 
-**喜联盟Gnews编辑部**
+据加拿大法语媒体《魁北克日报》5月21日新闻报道，日本政府于周五当天批准了莫德纳和阿斯利康疫苗的全国使用计划，但由于担心存在罕见并发症的严重风险，阿斯利康疫苗将暂时不会被立即推广注射。
+
+当局此次的准许，理论上可加快日本迟缓的疫苗接种进程。特别是在离东京奥运会开始（7月23日至8月8日）前仅剩两个月时间的仓促情况下，日本政府再次为此遭到了外界强烈的批评。
+
+目前，在日本的1.25亿居民中，只有不到2％的人已接种了两剂辉瑞/BioNTech公司的疫苗，而且这是迄今为止日本政府唯一批准的一次注射。
+
+要知道，在日本群岛上销售任何医药保健品之前，都必须在该国境内进行相关产品的临床研究。因此与其他国家相比，该相关法规延迟了疫苗的广泛应用。
+
+此外，由于在其他国家地区发生了罕见的严重血栓形成（血凝块）病例，日本将暂不使用阿斯利康疫苗。
+
+虽然大部分日本国民都反对在该国举办奥运会，但日本政府仍计划在奥运会期间，即在7月底之前完成针对65岁以上人群的疫苗接种工作，但就目前形势来看，该目标似乎难以实现。
+
+现在，日本已经与几家制药公司签署了协议，以便能尽快对该国所有居民实施疫苗接种。为此，政府特别从辉瑞/ BioNTech公司订购了近2亿剂，从莫德纳订购了5000万剂，从阿斯利康订购了1.2亿剂的疫苗。
+
+[原文链接](https://www.journaldequebec.com/2021/05/21/covid-19-le-japon-approuve-les-vaccins-de-moderna-et-astrazeneca)
+
+本文仅代表原媒体信息和作者个人观点！
 
 0
