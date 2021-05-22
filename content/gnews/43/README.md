@@ -1,65 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国内部信息表明了病毒起源的实际位置
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1263343/)
+## 【热点播报】特斯拉汽车在中共国继续遭难——禁止停靠政府大院
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1263423/)
 
-翻译：康州盘古农场 – 格格巫
+作者：纽约香草山农场 四季
 
-校对：康州盘古农场 – TrueSky
 
-编辑：康州盘古农场 – 明子
 
-发布：康州盘古农场 – 彩虹 Rainbow
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-**由乔·霍夫特（Joe Hoft）发布于2021年5月20日上午8:15
-劳伦斯·塞林（Lawrence Sellin）的来宾帖子**
 
-**在过去24小时内从中国内部来源获得的信息，有关COVID-19实验室起源的流行叙述有了进一步的进展。**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21215447/d2.png)
-毫无疑问，我们2月份的报告阐述了COVID-19病毒是在实验室中产生的：
 
-虽然，大多数人认为它是从武汉病毒研究所泄漏的。武汉病毒学研究所的“蝙蝠女”石正丽也否认她的研究所是病毒的出处。
+零对冲5月21日报道，一些中共国政府官员的工作人员于本周被告知，不要将他们的特斯拉汽车停在政府大院内，“因为对安装在车辆上的摄像头有安全顾虑”。北京和上海的“至少两个政府机构”被告知有同样的规定。目前，还不清楚这对多少员工和车辆有直接影响。
 
-石正丽声称她和她的同事在2019年末，在从来历不明的肺炎患者的样本中发现了这种病毒。在此之前，我们从未接触过或研究过这种病毒，也不知道它的存在，
-“美国总统川普关于SARS-CoV-2是从我们研究所泄漏的说法，完全与事实相矛盾。她补充说。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21225035/16-23.jpg)图片来源：零对冲
 
-她所说的部分可能是正确的。
+这并不是中共国第一次以安全问题为由禁止特斯拉汽车。早在3月，由于“担心车辆内置的摄像头会收集敏感数据，而中共政府却无法看到或控制”，因此特斯拉汽车被禁止进入中（共）国的军事设施和住宅区。
 
-长期以来 ，我一直在说COVID-19病毒是由许多中国军事中心之间合作制造的，而不是武汉病毒研究所专门进行的“功能性增强”实验的唯一结果。
+另外，斯特拉在中共国的遭遇被一名上海车展的抗议者进一步催化——她指称特斯拉汽车的断裂装置有问题。中共通过国家媒体已经对特斯拉做出威胁，认为其会对中共国的市场“造成严重损害”。
 
-来自中国内部的新信息与该结论是一致的。
+目前，尚不清楚是否北京所有的政府机构都在遵循类似的限制规定。但是，中共正在使用这样的方式告知大众，不要购买及使用特斯拉汽车。这也导致特斯拉汽车如今的注册量比3月份的34,714辆大幅下降。
 
-**尽管仍然是一个发展中的故事，但这里是一个摘要：**
-1.一种完整或几乎完整的COVID-19病毒，在2019年初从中国人民解放军东部战区司令部抵达武汉病毒研究所。
-2.与流行的叙述相反，COVID-19病毒主要是被送往武汉病毒学研究所进行检测。
-3.测试被分配给一组年轻的病毒学家。该小组的领导者的姓名是已知的，领导者的科学背景与该角色是一致的。
-4.测试是在非人类的灵长类动物上进行的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21215503/ssssw.png)
-武汉病毒学研究所的生物安全4级实验室位于武汉江夏区，该区位于武昌市以南约12英里处，这是COVID-19早期爆发的中心。
-尚不清楚江夏区的生物安全4级实验室是否具有使用非人类灵长类动物进行实验的能力。
+斯特拉在中共国的遭遇——从过去的招商引资，到现在的关门打狗——是众多投资中共国的外国企业的样板。看来，外企投资中共国的时代已经结束了。
 
-**中国科学院自己的网站指出：**
-武汉国家生物安全实验室（NBL4）拥有2个细胞
+参考阅读：
 
-1个中型动物实验室以及1个对病毒培养、收集和使用实验室。
+[Tesla Vehicles Banned From Some Chinese Government Compounds](https://www.zerohedge.com/markets/tesla-vehicles-banned-some-chinese-government-compounds)
 
-相比之下，武汉大学动物实验中心和动物生物安全3级实验室确实具有进行非人类灵长类动物实验的能力。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
 
-以下照片来自中文出版物，显示了受限制的武汉大学动物实验中心和动物生物安全3级实验室的内部，特别是非人类灵长类动物设施。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21215526/xxxx.png)
-该研究机构位于COVID-19早期爆发的震中，并位于中国人民解放军的主要医院附近。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21215515/zzzz.png)
-在武汉进行测试时，可能释放了COVID-19病毒。
+编辑/校对/发稿：Irene木木
 
-在之前的TGP文章中，我推测弗林蛋白酶多裂的位点，即COVID-19实验室起源的“突破口”，是由与广州解放军南方医科大学关联的中国人民解放军科学家插入的。
+**更多资讯，更多关注**
 
-通过非人类灵长类动物的“传代”可能使COVID-19病毒部分适应了人类感染。也就是多重感染。或者，可以通过对具有COVID-19病毒人类受体的基因改变的小鼠品系，进行连续传代来对COVID-19进行预适应。
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-原文链接：[https://www.thegatewaypundit.com/2021/05/know-covid-19-created-laboratory-new-revelations-inside-china-indicate-location-military-origin/](https://www.thegatewaypundit.com/2021/05/know-covid-19-created-laboratory-new-revelations-inside-china-indicate-location-military-origin/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0
