@@ -1,25 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 奥地利总理因为虚假陈述接受调查
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1264285/)
+## 【独立观点】任劳任怨的蜜蜂们，做个自由自在的苍蝇吧
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1264349/)
 
-信息来源：德国世界报网络版 
-发布时间：2021年5月20日
-翻译 /整理/ 简评： Shuizhuyu
+作者：香草山写作组 程万里
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22070122/daniel-plan-OE7jKpsk7uU-unsplash-scaled.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
 
 
-维也纳的戏剧性政治扑克：检察长办公室正在调查涉嫌虚假陈述的奥地利政府首脑。 总理可能会很快被起诉。
 
-在病毒危机期间，自2020年初起领导保守派和绿党之间的政府联盟的奥地利总理塞巴斯蒂安·库尔兹（ÖVP）陷入困境：经济和腐败检察官办公室（WKSTA）正在对他进行调查。由于涉嫌虚假陈述而成为嫌疑人。 库尔兹坚决拒绝这些指控。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22075121/%E5%9B%BE%E7%89%8713-5.png)
 
-简评：奥地利总理是欧洲最年轻的总理，因为虚假陈述现在正在接受调查。 我们先不管他的虚假陈述是否成立， 只就他被调查这件事情的本身，就可以明显的表现出了民主国家的优越性。 不管是谁， 不管你的职位多高， 你是被选出来的， 你就要接受全体人民的监督， 你就要对你所作的一切合理的解释。 民众不满意， 发现疑点， 就会对你进行调查，你还要配合调查。 任何人没有特权。 这跟中共国是天壤之别。
+有次参加一个会议，台下一群企业主和公司高管，而邀请的却是前地方党委书记给我们讲创新。此人眉飞色舞，PPT做得漂亮无比，可内容却让人仿佛有吃屎的感觉。一个扼杀创新的人在给我们讲创新，就像一个披着蜜蜂皮的苍蝇在给台下的一群蜜蜂讲怎么采蜜。我难以忍受这狗屁理论，可周边却掌声不断，匪夷所思的我转眼一看，原来周边也全是披着蜜蜂皮的苍蝇。一想到这，如鲠在喉的我只得离开那个让人恶心生厌的地方，从此不再参与。
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
+几年前的故事，现在想来，我恐怕侮辱了苍蝇，美化了蜜蜂。蜜蜂被塑造成勤劳的化身，一生都在采蜜，为了集体，为了蜂王，为了繁衍下一代。可蜜蜂是否可以停下来思考下：“我采了一辈子的蜜，蜜呢？蜜去哪里了？”给了集体，给了蜂王，繁衍的下一代继续着这无休止的采蜜。忙忙碌碌的一生，勤勤恳恳的一生，碌碌无为的一生，还不忘让您的子孙后代继续着这一生。天道酬勤，酬在哪里？反观苍蝇，独立自主的活着，想吃啥就吃啥，想去哪就去哪，无拘无束，浪迹天涯，自由自在。看到这些你想要什么样的人生？做天道酬勤的蜜蜂，还是自由自在的苍蝇？
 
-🔗[Ermittlungen-in-Oesterreich-Wie-geht-es-weiter-mit-Kanzler-Kurz](https://www.welt.de/politik/ausland/plus231240705/Ermittlungen-in-Oesterreich-Wie-geht-es-weiter-mit-Kanzler-Kurz.html)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22075411/%E5%9B%BE%E7%89%8714-10.png)
+
+忙忙碌碌的我们，被他们称为伟大的劳动人民，被比作天道酬勤的中国人，我们辛苦一辈子到头来还有啥？恐怕只剩下一身的债务和累倒快进坟墓的残肢破体。是否应该停下来问下自己：我们创造的财富呢？再有人告诉您为了集体，为了伟大的领袖，更为了子孙后代加油努力时，是否可以停下来想下：我创造的财富呢？我的子孙后代还会重复这一生吗？
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193555/5_May-1-556x720-1.jpeg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

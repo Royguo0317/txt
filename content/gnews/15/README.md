@@ -1,46 +1,145 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【币圈】-数字货币动态- 2021.05.22
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1264295/)
+## 多边主义仍然是我们应对重大全球挑战的最佳工具
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1264360/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
-![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image5.jpg)
-### 币圈的一天，从“你，今天绿了吗？”开始。
+字幕内容：
 
-## **每日一问**
+Nationalism is resurgent, repression is rising,
 
-*为什么是7月4日送大礼，6月4日呢？*
+民族主义正在兴起，镇压正在上升，
 
-## **喜马拉雅Coin要闻**
+rivalries among countries are deepening and attacks
 
-- 喜交所有配额的战友注册KYC的高峰暂告一段落，认证依然如火如荼。
-- 联盟答疑表示，KYC认证可能延期至6月底。
+国家之间的对抗正在加深和攻击
 
+against the rules-based order are intensifying.
 
-## **新闻动态**
+违反基于规则的秩序正在加剧
 
-1. Al Jazeera, PYMNTS, Forbes, Coindesk, BBC, CNBC, Fortune, RTL, SeekinAlpha, Reuters, Hindu, ZDnet, Yahoo, Barron, Financial Times和CNN等媒体近日纷纷报道中国政府强力打压虚拟币的姿态导致币圈的暴跌。华尔街和中国在玩什么游戏？
-2. 福克斯新闻报道，美联储将在今年夏天发布有关美国数字货币的报告。美联储主席鲍威尔表示，任何央行发行的数字货币都是美元的补充，而不能取代美元。加密货币、稳定币等或给金融系统带来风险。
-3. CoinDesk消息，美国证券交易委员会主席Gary Gensler在5月21日表示，联邦金融监管机构应该“准备好起诉”加密和其他新兴技术领域的不良行为者。他认为加密交易所需要更多监管，公众将受益于证交会在加密交易所上对投资者提供的更多保护。
-4. 官方消息，美国内布拉斯加州参议员JulieSlama称，“允许当地银行提供加密服务”法案通过州议会批准，待州长后将正式成为法律。内布拉斯加州将成为美国第二个可为加密银行颁发许可的州，第一个是怀俄明州。
-5. 香港计划将加密货币交易所服务对象限制为专业投资者。香港特区政府表示，建议赋予证监会干预权力，在有需要时限制或禁止持牌虚拟资产服务提供者及其有联系实体的运作。无牌进行受规管的虚拟资产活动将会受罚。
-6. 彭博社消息，伊朗已邀请情报官员参与寻找非法挖矿的加密货币矿工，国营电网运营商Tavanir的配电协调员GholamaliRakhshaniMehr表示，情报官员将协助寻找并没收无证的挖矿地点。
-7. CoinDesk昨日消息，ETF提供商Teucrium Trading向美国证券交易委员会提交ETF的申请，该产品是一款可在纽交所高增长板市场交易并追踪比特币期货合约基准的ETF。
-8. Wccftech报道称，英伟达RTX3080Ti/3070Ti两款新显卡将会在5月31日举办的COMPUTEX2021电脑展上正式亮相。但是，英伟达为这些新显卡更新了驱动程序，从驱动、核心、BIOS三个层面封锁挖矿性能。
-9. tZero昨日宣布和Energy Funders签署合作，计划透过tZero建立在以太坊上的智能合约，将EnergyFunders旗下达2,500万美元的收益基金（Yield FundI）进行数字化。
-10. OKLink数据显示，当前Purpose旗下以太坊ETF持有的以太坊数量为4.67万枚ETH，较昨日增持约1100枚ETH。
-11. 世界经济论坛（WEF）第四次工业革命中心副主任SheilaWarren昨天透过书面声明向外媒《Trustnodes》表示，比特币价格会持续波动，因为随便一点监管暗示就能让价格反应过度。
-12. Crypto Globe消息，天桥资本Anthony Scaramucci认为比特币的牛市还没有结束。近日超过86亿美元的加密资产已全部被清算，其中包括大多数使用杠杆的小散户。长期来看，比特币将会反弹。
-13. 马斯克表示，他没有也不会出售任何狗狗币。此外，他认为比特币挖矿能源使用量超过中等规模国家能源使用量，对大型矿工使用的可再生能源进行审计或能解决比特币对环境的影响。
-14. Crypto Briefing报道，以太坊基金会的Carl Beekhuizen近日发表博文表示，从PoW（mining）过渡到PoS（staking）后，其能耗将减少99.95%，以太坊的能源效率将比继续依赖挖矿的比特币高出约7000倍。
+Now, some question whether multilateral cooperation is still possible.
 
+现在，有人质疑是否仍可能进行多边合作
 
+The United States believes it is not only possible, it is imperative.
 
+美国认为，多边合作不仅是可能的，而且势在必行的
 
-*编辑：aQ
-发布：文顾*
+Multilateralism is still our best tool for tackling big global challenges –
 
+多边主义仍然是我们应对重大全球挑战的最佳工具
 
- 
+like the one that’s forcing us to gather on a screen today rather than around a table.
+
+就如迫使我们今天聚集在屏幕上而不能在桌子周围面对面会谈的新冠病毒
+
+The COVID-19 pandemic has changed life as we know it across the planet,
+
+正如我们所知，COVID-19大流行改变了整个星球的生活，
+
+with millions of deaths and devastating impacts on
+
+数以百万计的死亡和毁灭性的影响
+
+economies, health, education, social progress.
+
+经济、卫生、教育、社会进步
+
+The climate crisis is another massive threat.
+
+气候危机是另一个巨大的威胁
+
+If we don’t move swiftly to cut emissions,
+
+如果我们不迅速采取行动减少碳排放
+
+the results will be catastrophic.
+
+结果将是灾难性的
+
+We built the multilateral system in part to solve big,
+
+我们建立多边体系的部分目的是解决大型的，
+
+complex problems like these,
+
+像这些复杂的问题，
+
+where the fates of people around the world are tied together
+
+全世界人民的命运被绑在一起的地方
+
+and where no single country – mo matter how powerful – can address the challenges alone.
+
+而且没有哪个国家—无论实力如何—可以单独应对挑战
+
+That’s why the United States will work through multilateral institutions to stop COVID-19
+
+这就是为什么美国将通过多边机构合作制止COVID-19的原因
+
+and tackle the climate crisis,
+
+和应对气候危机，
+
+and we will abide by the core principles of the international order as we do.
+
+我们将一如既往地遵守国际秩序的核心原则
+
+We’ll also work with any country on these issues –
+
+我们还将与任何国家合作解决这些问题
+
+including those with whom we have serious differences.
+
+包括那些与我们有严重分歧的人
+
+The stakes are too high to let differences stand in the way of our cooperation.
+
+后果成本太大，不能让分歧阻碍我们的合作
+
+The same holds true for stemming the spread and use of nuclear weapons,
+
+阻止核武器的扩散和使用也是如此
+
+delivering life-saving humanitarian assistance, managing deadly conflicts.
+
+提供挽救生命的人道主义援助，处理致命冲突
+
+At the same time, we will continue to push back forcefully
+
+同时，我们将继续大力回击
+
+when we see countries undermine the international order,
+
+当我们看到某些国家破坏国际秩序时
+
+pretend that the rules we’ve all agreed to don’t exist,
+
+假装我们都已同意的规则不存在
+
+or simply violate them at will.
+
+或只是随意违反它们
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 [https://twitter.com/statedept/status/1391468009101926403?s=24](https://twitter.com/statedept/status/1391468009101926403?s=24)
+
+英听校：    康州盘古农场 – Layka
+
+翻译：       康州盘古农场 – Layka
+
+翻译终校：康州盘古农场 – Mike Li
+
+字幕+视频制作：康州盘古农场-天涯行
+
+审片：康州盘古农场-银龙
+
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
 0

@@ -1,11 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 塞林上校：病毒制造、中共的生物战项目和故意释放（一）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1264040/)
+## 塞林上校：病毒制造、中共的生物战项目和故意释放（四）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1264407/)
 
 5/20/2021 塞林上校综述了中共病毒的三大话题：病毒是实验室制造的（铁证之一就是福林酶切位点不可能自然进化出现在这种冠状病毒上）、中共的生物战项目（武毒所只是其庞大计划中的一个齿轮，其中包括对美国研究机构的渗透）和中共故意释放病毒（早在2019年初病毒就由解放军的东部战区送到武汉进行传染性的人体实验）。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-+1
+0

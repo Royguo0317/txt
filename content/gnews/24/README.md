@@ -1,25 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 奥地利总理如果被指控， 47%的选民要求他辞职
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1264226/)
+## 【币圈】-数字货币动态- 2021.05.22
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1264295/)
 
-信息来源：德国世界报网络版 
-发布时间：2021年5月20日
-翻译 /整理/ 简评： Shuizhuyu
+*喜马拉雅华盛顿DC 编辑：aQ*
+![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image5.jpg)
+### 币圈的一天，从“你，今天绿了吗？”开始。
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22060421/Austria-s-Chancellor-Kurz-attends-a-news-conference-in-Vienna.jpg)
+## **每日一问**
+
+*为什么是7月4日送大礼，6月4日呢？*
+
+## **喜马拉雅Coin要闻**
+
+- 喜交所有配额的战友注册KYC的高峰暂告一段落，认证依然如火如荼。
+- 联盟答疑表示，KYC认证可能延期至6月底。
 
 
-图片来源：路透社
+## **新闻动态**
 
-如果被指控 奥地利的一项调查显示，塞巴斯蒂安·库尔兹（Sebastian Kurz）在对虚假陈述的调查中承受了多少压力。据此，如果被指控，选民都会支持总理的辞职。 检察官办公室正在调查奥地利总理塞巴斯蒂安·库尔兹（ÖVP）涉嫌虚假陈述。他本人并不希望定罪，而是希望提出起诉-对他而言在政治上可能是敏感的。 根据舆论研究机构Unique Research为《 Profil》杂志进行的一项调查，如果有起诉书，则有47％的人会要求总理塞巴斯蒂安·库尔兹（Sebastian Kurz）辞职。 41％的候选人是库尔兹继续任职。
+1. Al Jazeera, PYMNTS, Forbes, Coindesk, BBC, CNBC, Fortune, RTL, SeekinAlpha, Reuters, Hindu, ZDnet, Yahoo, Barron, Financial Times和CNN等媒体近日纷纷报道中国政府强力打压虚拟币的姿态导致币圈的暴跌。华尔街和中国在玩什么游戏？
+2. 福克斯新闻报道，美联储将在今年夏天发布有关美国数字货币的报告。美联储主席鲍威尔表示，任何央行发行的数字货币都是美元的补充，而不能取代美元。加密货币、稳定币等或给金融系统带来风险。
+3. CoinDesk消息，美国证券交易委员会主席Gary Gensler在5月21日表示，联邦金融监管机构应该“准备好起诉”加密和其他新兴技术领域的不良行为者。他认为加密交易所需要更多监管，公众将受益于证交会在加密交易所上对投资者提供的更多保护。
+4. 官方消息，美国内布拉斯加州参议员JulieSlama称，“允许当地银行提供加密服务”法案通过州议会批准，待州长后将正式成为法律。内布拉斯加州将成为美国第二个可为加密银行颁发许可的州，第一个是怀俄明州。
+5. 香港计划将加密货币交易所服务对象限制为专业投资者。香港特区政府表示，建议赋予证监会干预权力，在有需要时限制或禁止持牌虚拟资产服务提供者及其有联系实体的运作。无牌进行受规管的虚拟资产活动将会受罚。
+6. 彭博社消息，伊朗已邀请情报官员参与寻找非法挖矿的加密货币矿工，国营电网运营商Tavanir的配电协调员GholamaliRakhshaniMehr表示，情报官员将协助寻找并没收无证的挖矿地点。
+7. CoinDesk昨日消息，ETF提供商Teucrium Trading向美国证券交易委员会提交ETF的申请，该产品是一款可在纽交所高增长板市场交易并追踪比特币期货合约基准的ETF。
+8. Wccftech报道称，英伟达RTX3080Ti/3070Ti两款新显卡将会在5月31日举办的COMPUTEX2021电脑展上正式亮相。但是，英伟达为这些新显卡更新了驱动程序，从驱动、核心、BIOS三个层面封锁挖矿性能。
+9. tZero昨日宣布和Energy Funders签署合作，计划透过tZero建立在以太坊上的智能合约，将EnergyFunders旗下达2,500万美元的收益基金（Yield FundI）进行数字化。
+10. OKLink数据显示，当前Purpose旗下以太坊ETF持有的以太坊数量为4.67万枚ETH，较昨日增持约1100枚ETH。
+11. 世界经济论坛（WEF）第四次工业革命中心副主任SheilaWarren昨天透过书面声明向外媒《Trustnodes》表示，比特币价格会持续波动，因为随便一点监管暗示就能让价格反应过度。
+12. Crypto Globe消息，天桥资本Anthony Scaramucci认为比特币的牛市还没有结束。近日超过86亿美元的加密资产已全部被清算，其中包括大多数使用杠杆的小散户。长期来看，比特币将会反弹。
+13. 马斯克表示，他没有也不会出售任何狗狗币。此外，他认为比特币挖矿能源使用量超过中等规模国家能源使用量，对大型矿工使用的可再生能源进行审计或能解决比特币对环境的影响。
+14. Crypto Briefing报道，以太坊基金会的Carl Beekhuizen近日发表博文表示，从PoW（mining）过渡到PoS（staking）后，其能耗将减少99.95%，以太坊的能源效率将比继续依赖挖矿的比特币高出约7000倍。
 
-简评：因为在病毒大流行期间的一些不真实的陈述， 奥地利总理接受调查。 调查的结果如果是被起诉， 那么有几乎一半的选民要求他辞职。 那么这位年轻的总理， 就会因为大流行而葬送他的政治生涯。 这位总理是1986年出生的年轻人。 中共病毒对人不光有健康危害， 各种危害和伤害，都在发生着。
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
 
-🔗[Oesterreich-47-Prozent-fuer-Ruecktritt-von-Sebastian-Kurz-falls-Anklage](https://www.welt.de/politik/ausland/article231260871/Oesterreich-47-Prozent-fuer-Ruecktritt-von-Sebastian-Kurz-falls-Anklage.html)
 
+*编辑：aQ
+发布：文顾*
+
+
+ 
 0

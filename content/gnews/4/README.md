@@ -1,125 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拉格尔议员提案将迫使拜登解密武汉病毒研究所病毒泄露的情报
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1264381/)
+## 【墙内热搜】强制打疫苗，文革进行时
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1264402/)
 
-字幕内容：
+作者：纽约香草山写作组  木白
 
-well the, first of all the people dismissing the theory have an ethical
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-那么，首先，否定这一病毒泄露理论的人有道德上的
 
-compromise or a conflict of interest, most notably the sole American citizen on
 
-妥协或利益冲突，最明显的是世卫组织调查小组中
+中共国正在发动全民打CCP病毒疫苗，用一切能控制的手段强制人民打CCP病毒疫苗。CCP专制、残暴、邪恶。中华大地正在上演一场新时代的文革。
 
-the WHO investigatory team is Dr. Peter Dazak whose entire professional
+据笔者了解，墙内第一次大规模强制打CCP病毒疫苗是在3月底，主要是推动机关事业单位国企（即体制内）人员打。没打CCP病毒疫苗的人必须提供不适宜接种的相关证明。没有该证明的人必须去打，单位领导说这是政治任务。
 
-唯一的美国公民皮特-达扎克博士，他的整个
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22085433/MOS3080-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E5%BC%BA%E5%88%B6%E6%89%93%E7%96%AB%E8%8B%97%EF%BC%8C%E6%96%87%E9%9D%A9%E8%BF%9B%E8%A1%8C%E6%97%B6-1.jpg)
 
-reputation and career is built on doing dangerous gain of function research with
+近段时间，第二次大规模强制打疫苗正在进行。一方面要求机关事业单位（即体制内）接种第二针CCP病毒疫苗。另一方面要求各机关事业单位等主管部门强制其管辖的单位、企业（如网吧、ktv、酒店、工厂等各行各业）的从业人员打CCP病毒疫苗。在笔者了解的地区，机关事业单位每天上报该单位和其管辖的企业打疫苗的情况。
 
-职业声誉和事业是建立在与武汉病毒研究所进行危险性的
+医院可以提供不适宜接种的相关证明。但这样的证明必须经过严格的检查和提供相关诊断报告且符合不适宜接种要求才能提供。也就是说只有极少数人能有证明从而可以不用打疫苗。（同时，医院严格把关提供不适宜接种的证明，违规医生会受到严重处罚。）
 
-the wuhan institute of virology,
+在强制打CCP病毒疫苗事情上，CCP邪恶至极。一方面，发动各级媒体鼓动人民打CCP病毒疫苗，同时，封锁所有关于CCP病毒疫苗真相的报道（笔者了解到身边许多人因打疫苗后产生了不良反应，近期有人突发死亡）。另一方面，通过权力，强制打疫苗（主要是体制内职工和各行各业从业人员）。
 
-功能增益研究的基础上
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22085443/MOS3080-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E5%BC%BA%E5%88%B6%E6%89%93%E7%96%AB%E8%8B%97%EF%BC%8C%E6%96%87%E9%9D%A9%E8%BF%9B%E8%A1%8C%E6%97%B6-2.jpg)
 
-so a lot of the messaging we’re getting from the “WHO” is a result of the fact
+前几日，文贵先生盖特视频中爆料，中共国内上万城市的火葬场在演练，由此应对未来将要发生的大量国民死亡事件。此爆料与近期中共国内大规模强制打疫苗的事情联系在一起，不禁不寒而栗：未来，因打CCP病毒疫苗，国内会死伤多少人？这是中华民族，乃至全人类的一场劫难。
 
-因此，我们从“世卫组织”得到的许多调查的信息是
+只有推翻中共，才能度过这场劫。而GTV、GNEWS、盖特等爆料革命媒体每天都在曝光CCP病毒和CCP病毒疫苗的真相。无数中国人（华人）成为爆料革命的战友，他们站在灭共最前线，用生命安全向世界传递真相，为没有CCP的和平美好的新世界奋斗。
 
-that the investigation was compromised, it was influenced by the Chinese communist party.
+校对/发稿：雪梨
 
-被渗透，或是受到中国共产党的影响
+![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-so I dismissed that, now we know certain facts too that stack up and favor the lively hypothesis.
+**更多资讯，更多关注**
 
-所以我否定这份报告，现在我们也知道了某些事实，这些事实累计起来，验证了病毒泄露的假说
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-we represent constituents whose lives have been completely upended if not
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-我们所代表的选民，如果他们没被这场大流行病和政府的一些愚蠢行为所摧毁的话
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-destroyed by this pandemic and some of the government bumbling along the way,
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-他们的生活也已经被彻底颠覆了
-
-we owe it to them to get to the bottom of it,
-
-我们有责任让他们了解事情的真相
-
-but at least two other reasons the first is we know we can’t trust the WHO
-
-但至少还有两个其它原因，第一是我们知道我们不能信任世卫组织的调查
-
-investigation, even the head of the WHI Dr. Tedross said we need to go back
-
-就连世卫组织的负责人谭德塞博士也说了，需要去武汉重新
-
-and examine the lab of the hypothesis,
-
-调查实验室病毒泄露的假说
-
-and secondly we know that Dr. Fauci is not being forthcoming right now,
-
-其次，我们知道福奇博士现在并不愿意接受质疑
-
-he got to ask questions
-
-但他必须要坦白一切
-
-in the senate the other day, and he’s saying he doesn’t support gain of function
-
-前几天在参议院，他说他不支持中共的病毒功能增强实验研究
-
-research in china, that’s a really carefully worded statement to avoid liability
-
-这是一个非常谨慎的措辞，以推卸责任
-
-there’s this debate about what exactly constitutes gain of function
-
-关于什么是功能增益的问题存在争论
-
-and there’s also this question of Fauci’s organizations sent money to an
-
-还有一个问题是，福奇的机构向皮特-达扎克博士经营的
-
-intermediary what’s called the Eco Health Alliance run by Dr. Peter Dazak who
-
-一个中介机构又称生态健康联盟提供资金
-
-then went and did gain of function research in China.
-
-然后（生态健康联盟）在中共国进行功能增强实验研究
-
-we need full transparency and we’re not getting it right now from the executive
-
-我们需要充分的透明度，而我们现在还没有从行政部门、美国国立卫生研究院和
-
-branch and from NIH and Fauci, so we’re going to have to compel that transparency.
-
-福奇那里得到这种透明度，所以我们将不得不强制要求这种透明度
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接: https://www.foxnews.com/politics/gallagher-bill-covid-lab-leak-china-wuhan-institute-virology
-
-英听校：    康州盘古农场 – Mike Li
-
-翻译：       康州盘古农场 – Mike Li
-
-翻译终校：康州盘古农场 – 郭班之樱
-
-字幕+视频制作：康州盘古农场-青梅煮酒
-
-审片：康州盘古农场-银龙
-
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
