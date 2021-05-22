@@ -1,45 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】难忘的山里人
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1264446/)
+## 香港正在沦为中共建党百年的牺牲品
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1263820/)
 
-配音：香草山录音组 熊井（文兰）
+作者：台湾宝岛农场 快慢机
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22030916/%E5%9C%96%E7%89%87-1-4.jpg)
+7月1日起，香港非公务员雇员同样需要签署效忠声明。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22130845/%E6%93%B7%E5%8F%96523.jpg)
+2021年5月21日，香港特区政府对外届发布正式公告称：自2021年7月1日起，凡与港府续存法定雇佣合约的，一切非正式公务员类性质的港府雇员类人士，均需在其所属部门发出有关信函的三星期内，签署关于无条件拥护《中华人民共和国香港特别行政区基本法》的“尽职效忠”声明！
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+香港特区政府给出的解释为，该“效忠声明”完全符合《中华人民共和国香港特别行政区维护国家安全法》，即“香港国安法”的有关规定。
 
+港区纪律部队原有延续了近百年的“英式传统步操式”，如今已全盘改为“中共党卫军的队列式”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22061345/3-54.png)
+在港英政府时期，香港纪律部队均采用“英式传统步操式”队列。当年由“邓小平”提出的“一国两制”，以及后续中共与英国政府签署的“中英联合声明”中都曾明确标注：香港自1997年正式回归大陆之后，中共政府承诺其在“一国两制”基本框架下，保证香港继续维持原有基本政策50年不变！
 
+然而时至今日，香港回归大陆才仅仅过了短短的24年，曾经被香港引以为傲的“纪律部队”，也是守卫香港荣为“亚洲最安全城市”的核心卫士——“香港警队”。已经彻底沦为了港区市民心中，那群十恶不赦的“黑警”、“恶警”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22033000/4-3.gif)
+昔日英姿飒爽的香港警察，那浓郁的爱尔兰式传统步操队列，如今也完全的被中共党卫军的队列式所彻底取代。就连劈枪动作都如出一辙。
 
+中共当年向全世界所郑重宣布的“香港回归大陆后保证50年基本不变”的世纪承诺，眼下才刚刚过半。然而中共却如此公然撕毁国际协议。悍然发动了对香港的共产屠城之役。利用一则蓄谋已久的《香港国安法》，彻底将香港的“一国两制”瞬间转化成“共产独裁专制”！
 
+香港政商及文娱届的众多知名人士，几乎无一例外的都是中共政协委员或人大代表。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22033745/5-71.jpg)
+香港自上世纪末回归大陆以来的二十余载，港区内的一众政商富贾及文娱届名流人士，几乎无一例外的都曾当选过所谓的，中共政协委员及人大代表等职。
 
+如今港府强势命令出台所有非公务员类的政府雇员人士，均要无条件签署“尽职效忠”声明文件。可想而之，那些标准正式的港府公务员，极有可能大部分都已被强制胁迫加入“中共党员”队列之内了。
 
+中共没准哪天会突然宣布，取消香港原有的左侧通行交通条例，一律改为与大陆地区相统一的右侧通行标准也说不定。香港正在沦为中共建党百年的牺牲品……
 
-今天蒸了一锅玉米和地瓜。看到这一幕，不禁触景生情思绪万千，仿佛跨越时空，一下子飞扑到了那个“特殊年代”。
+此文仅代表笔者个人观点！
 
-对于我们这些所谓的大城市来的、买什么都凭票凭供应券吃不饱饭的孩子们来说，被动地跟着父母迁徙也是兴高釆烈的。刚到一个地方，什么都是新鲜的，那山那水那人，吊上一嗓子满山遍野都是回音，稀奇古怪的事层出不穷。看那人，惊奇，有些年长的男人还挂着一条清朝的大辫子，这是什么场景？都70年代初了！
+[参考新闻](https://baijiahao.baidu.com/s?id=1700355574084592114&amp;wfr=spider&amp;for=pc)
 
+[真帅！香港纪律部队中式步操亮相！](http://finance.sina.com.cn/tech/2021-04-15/doc-ikmxzfmk7016441.shtml)
 
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-**文字版原文：[【言于其食】难忘的山里人](https://gnews.org/zh-hans/1244527/)**
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
-作者：纽约香草山美食部 杉杉
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
+文章审核：zhong
 
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+文章发布：Little Liu
 
 0

@@ -1,145 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 多边主义仍然是我们应对重大全球挑战的最佳工具
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1264360/)
+## 中共病毒从武汉实验室逃逸更能解释病毒的起源
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1264559/)
 
-字幕内容：
+#### 翻译：Evalu | 校对：Wenwang
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22105520/%E6%90%9C%E7%8B%90.jpg)图片来源：搜狐
+据印度国家先驱报（National Herald）5月21日报道，《原子科学家公报》（Bulletin of Atomic Scientists）专栏作家尼古拉斯·韦德（ Nicholas Wade )认为，目前所获得的所有事实均表明，萨斯-2（SARS-2，也就是Covid-19)从实验室逃逸比它产生于自然更能解释其来源。
 
-Nationalism is resurgent, repression is rising,
+韦德说：“在实验室逃逸的假设之下，不难理解该病毒起始于武汉，因为武汉是中国研究冠状病毒的主要中心。该研究所的研究人员用基因工程技术改造蝙蝠冠状病毒，以攻击人类细胞，他们在刚达到2级生物安全要求的实验室（BSL2）做这种实验，一旦具有感染人类细胞能力的病毒在那里形成，它们从实验室逃逸出来就不难理解了。”
 
-民族主义正在兴起，镇压正在上升，
+韦德指出，武汉病毒研究所被称为“蝙蝠女”的研究员，也是中共国顶尖的蝙蝠病毒专家石正丽（ Shi Zheng-Li), 经常去中共国南方云南省的蝙蝙洞，收集了一百种蝙蝠冠状病毒。然后她与北卡大学杰出的冠状病毒研究者拉夫·巴利克（Ralph S Baris)合作,专们研究增强蝙蝙病毒攻击人类细胞的能力，检验蝙蝠病毒从蝙蝠传到人类的可能性。为了这个目的，2015年11月他们制造了一种以萨斯-1（SARS1，即2002-2003年爆发的萨斯病毒）为骨架，替换了另一种蝙蝠病毒（SHC014-CoV)的刺突蛋白，这种构造的病毒能够感染人类呼吸道细胞。
 
-rivalries among countries are deepening and attacks
+报道称，媒体喜欢说中共病毒是来源于自然，包括世卫组织（WHO）今年2月期间去中共国参观时，也持如此说法。世卫组织委员会受到中共政府的深度控制，其成员一直声称，病毒从实验室逃逸是极不可能的。但这种来自中共的宣传并不太成功，中共始终拿不出支持自然来源的证据。当初的萨斯和中东呼吸道综合症（MERS)病毒留下了很多来自自然的痕迹，萨斯的中间宿主于爆发后4个月就被发现，而MERS在9个月后就发现宿主。目前的中共疫情已经发生了15个月，尽管到处寻找，中共国始终没有找到起始的蝙蝠群或病毒的中间宿主，也没给出任何中共国早期感染人群的血清学证据，包括2019年12月以前感染病毒的武汉人群样本。一年多了，始终没有支持自然来源的证据。
 
-国家之间的对抗正在加深和攻击
+罗格斯（Rutgers）大学分子生物学家，生物安全方面顶级专家理查德·埃伯瑞特（Richard H Ebright)说：“很清晰的事实是，武汉病毒研究所系统性地构建了嵌合性冠状病毒，并通过让含有人类ACE2的小鼠受感染的方式，来对这种病毒如何感染人类细胞的能力做评估。”
 
-against the rules-based order are intensifying.
+韦德最后指出，经过严谨的逻辑分析，中共病毒的来源应该更倾向于实验室逃逸的理论。
 
-违反基于规则的秩序正在加剧
+评论：
 
-Now, some question whether multilateral cooperation is still possible.
+中共一直声称造成本次大流行的中共病毒来自自然，但却始终拿不出任何支持自然来源的证据。相反，已经有大量的证据证明，中共病毒来源于中共国的实验室。这些证据包括，中共国科学家甚至联合国际病毒学家做了病毒基因工程改造，研究改造的病毒能感染人体细胞，以及对实验室能表达人类ACE2基因的转基因老鼠的感染，这些都是板上钉钉的证据，从逻辑上不难得出结论，即这个病毒来源于实验室。这样的共识已经得到越来越多的正直的科学家和人们的认同，真理是经得起时间和各种证据考验的，而谎言在真理面前不攻自破。
 
-现在，有人质疑是否仍可能进行多边合作
+原文链接：[Lab escape from Wuhan can explain coronavirus more easily](https://www.nationalheraldindia.com/science-tech/lab-escape-from-wuhan-can-explain-coronavirus-more-easily)
 
-The United States believes it is not only possible, it is imperative.
-
-美国认为，多边合作不仅是可能的，而且势在必行的
-
-Multilateralism is still our best tool for tackling big global challenges –
-
-多边主义仍然是我们应对重大全球挑战的最佳工具
-
-like the one that’s forcing us to gather on a screen today rather than around a table.
-
-就如迫使我们今天聚集在屏幕上而不能在桌子周围面对面会谈的新冠病毒
-
-The COVID-19 pandemic has changed life as we know it across the planet,
-
-正如我们所知，COVID-19大流行改变了整个星球的生活，
-
-with millions of deaths and devastating impacts on
-
-数以百万计的死亡和毁灭性的影响
-
-economies, health, education, social progress.
-
-经济、卫生、教育、社会进步
-
-The climate crisis is another massive threat.
-
-气候危机是另一个巨大的威胁
-
-If we don’t move swiftly to cut emissions,
-
-如果我们不迅速采取行动减少碳排放
-
-the results will be catastrophic.
-
-结果将是灾难性的
-
-We built the multilateral system in part to solve big,
-
-我们建立多边体系的部分目的是解决大型的，
-
-complex problems like these,
-
-像这些复杂的问题，
-
-where the fates of people around the world are tied together
-
-全世界人民的命运被绑在一起的地方
-
-and where no single country – mo matter how powerful – can address the challenges alone.
-
-而且没有哪个国家—无论实力如何—可以单独应对挑战
-
-That’s why the United States will work through multilateral institutions to stop COVID-19
-
-这就是为什么美国将通过多边机构合作制止COVID-19的原因
-
-and tackle the climate crisis,
-
-和应对气候危机，
-
-and we will abide by the core principles of the international order as we do.
-
-我们将一如既往地遵守国际秩序的核心原则
-
-We’ll also work with any country on these issues –
-
-我们还将与任何国家合作解决这些问题
-
-including those with whom we have serious differences.
-
-包括那些与我们有严重分歧的人
-
-The stakes are too high to let differences stand in the way of our cooperation.
-
-后果成本太大，不能让分歧阻碍我们的合作
-
-The same holds true for stemming the spread and use of nuclear weapons,
-
-阻止核武器的扩散和使用也是如此
-
-delivering life-saving humanitarian assistance, managing deadly conflicts.
-
-提供挽救生命的人道主义援助，处理致命冲突
-
-At the same time, we will continue to push back forcefully
-
-同时，我们将继续大力回击
-
-when we see countries undermine the international order,
-
-当我们看到某些国家破坏国际秩序时
-
-pretend that the rules we’ve all agreed to don’t exist,
-
-假装我们都已同意的规则不存在
-
-or simply violate them at will.
-
-或只是随意违反它们
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接 [https://twitter.com/statedept/status/1391468009101926403?s=24](https://twitter.com/statedept/status/1391468009101926403?s=24)
-
-英听校：    康州盘古农场 – Layka
-
-翻译：       康州盘古农场 – Layka
-
-翻译终校：康州盘古农场 – Mike Li
-
-字幕+视频制作：康州盘古农场-天涯行
-
-审片：康州盘古农场-银龙
-
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
++2
