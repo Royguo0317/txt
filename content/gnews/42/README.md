@@ -1,44 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】加拿大捐赠830,000给武汉病毒实验室
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1263601/)
+## 2021/05/19 班农采访(5) 律师和医疗专家团队起诉WHO、美国CDC等反人类罪行
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1264196/)
 
-**作者**：**纽约香草山美食部  Amanda 艾曼达**
+视频字幕：雨中漫步 | 听写/翻译：Wade| 校对：Roberts |简评/文字整理/编辑：胖丁|Page：小雨
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
+**简评：**
 
-
-
-
-
-贾斯汀·特鲁多（Justin Trudeau）政府用纳税人的钱捐赠了830,000美元给武汉病毒实验室作COVID-19研究。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22004511/unknown-31.png)
-据悉，这笔捐赠的确切金额是828,046美元，被用于一个冠状病毒合作研究项目。 这项合作研究由来自阿尔伯塔大学、加拿大食品检验局和武汉病毒研究所的病毒学家、化学家、传染病专家、一线从业者和公共卫生研究人员组成的多学科团队进行。其政府官网上也声称这个项目是由武汉团队领导的。实验室在研究蝙蝠冠状病毒及其潜在的人类传播方面存在着新的类似于SARS的大流行的风险。
-
-此前，我们爆料革命一直致力于向全世界人民揭露中共的邪恶行径，宣传新型冠状病毒为人造病毒的真相。我们的路德访谈最早在去年1月19日就揭露了新型冠状病毒是人传人，大爆发，强变异，并且此病毒来自中共军方实验室！我们的天使科学家闫博士更是勇敢地站出来，通过发表三篇论文向全世界人民有理有据的揭露中国共产党制造生化武器并有意释放冠状病毒、企图称霸世界的野心，其阅读量和下载量都创造了历史之最！
-
-而今，随着世界各国政府的觉醒，越来越多有良知，有正义感的人站出来支持闫博士，与我们爆料革命坚定的站在一起。然而，特鲁多作为加拿大一国的总理，其执政的政府滥用纳税人的钱资助武汉病毒实验室，完全罔顾了本国国民的安危，与中共狼狈为奸，控制媒体言论，坚持病毒自然论，掩盖中共制造并蓄意释放新型冠状病毒的真相。不明真相的加拿大人一旦知道病毒真相，绝不会允许这样的总理代表民意继续执政！
-
-编辑/校对：遍地开花 审核/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
+由律师和医疗专家组成的团队开始了针对美国疾控中心（CDC）、WHO和达沃斯组织反人类罪的法律诉讼。在信息层面，这样的行动非常有力、非常重要。策划这个行动的德国律师是世界上最有声望的法律人士之一。德国和欧洲率先行动，这令人震撼。英国和欧洲喜马拉雅农场应该密切关注这件事。
 
 
+
+[GTV链接](https://gtv.org/video/id=60a89e8f93cb4b1e6f9b881c)
+
+**视频字幕：**
+
+**主持人Winton：**《每日曝光》5月13日报道，新冠疫情诈骗律师和医疗专家开始了对世卫组织和世界领导人反人类罪行的法律诉讼。由雷纳福尔米克率领的超过千名律师和万名医疗专家的团队开始了针对美国疾控中心、世卫组织还有达沃斯组织反人类罪的法律诉讼。您认为这样的法律诉讼是否有意义？
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Riro2GpoWo725/images/8ba1c445-616e-4251-8f84-89872b26b041.png?asset_id=ca23dd93-e621-4874-97f8-03d18d46e51d&amp;img_etag=%2256fb9c57cee90579111f8c9ba8f50589%22&amp;size=1024)](https://spark.adobe.com/page/Riro2GpoWo725/images/8ba1c445-616e-4251-8f84-89872b26b041.png?asset_id=ca23dd93-e621-4874-97f8-03d18d46e51d&amp;img_etag=%2256fb9c57cee90579111f8c9ba8f50589%22&amp;size=1024)
+
+**班农:** 这需要分两部分來说。首先是法律层面。然后是媒体层面，我们在信息战中的反击。
+
+我不是律师，不懂法律层面。这方面要问律师。我会对此进行分析，与参与（诉讼）的人交谈，从而获取更多的理解。我当然喜欢他们在法庭上的行动，我们要继续观察。但我要强调的是，在信息战方面，这样的行动是非常有力量的，非常非常重要。
+
+英国喜马拉雅和欧洲喜马拉雅农场要密切关注这件事。
+
+策划这个行动的德国律师是世界上最有声望的法律人士之一，这就是为什么它非常重要。眼下我无法解释它究竟有多重要。我非常骄傲，这样的行动始于美国之外。德国这样我非常尊重，但在默克尔治下深受达沃斯之害的国家。看到德国和欧洲在这方面率先行动，这令人震撼。
+
+**我认为这在与中共跨国犯罪集团的战斗中是非常正面的信号。**
+
+[**完整访谈视频**](https://gtv.org/video/id=60a50f53db13300ca55b1ace)
+
+**主播：** Mikehua, Angela, Daniel, Mike, Dr. TCC, Winston
+
+- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
+- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
+
+
+***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三伦敦时间14:00 （美东时间09：00）直播***
+
+编辑：【英国伦敦喜庄园编辑部】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Riro2GpoWo725/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/Riro2GpoWo725/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 
 

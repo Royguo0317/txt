@@ -1,32 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中东虽然已经停火，但局势并没有缓和
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1264207/)
+## 奥地利总理如果被指控， 47%的选民要求他辞职
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1264226/)
 
-信息来源：欧洲新闻网络版 
-发布时间：2021年5月22日
+信息来源：德国世界报网络版 
+发布时间：2021年5月20日
 翻译 /整理/ 简评： Shuizhuyu
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22055341/image0-2-35.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22060421/Austria-s-Chancellor-Kurz-attends-a-news-conference-in-Vienna.jpg)
 
 
-图片来自视频截图
+图片来源：路透社
 
-巴勒斯坦武装团体在加沙举行的新闻发布会上表示，他们随时准备战斗。
-以色列军队还在这里，仍在加沙地带北部边界附近。以色列总理本杰明·内塔尼亚胡（Benjamin Netanyahu）强调，军事行动的目的是打击恐怖组织，恢复平静并提供威慑。
+如果被指控 奥地利的一项调查显示，塞巴斯蒂安·库尔兹（Sebastian Kurz）在对虚假陈述的调查中承受了多少压力。据此，如果被指控，选民都会支持总理的辞职。 检察官办公室正在调查奥地利总理塞巴斯蒂安·库尔兹（ÖVP）涉嫌虚假陈述。他本人并不希望定罪，而是希望提出起诉-对他而言在政治上可能是敏感的。 根据舆论研究机构Unique Research为《 Profil》杂志进行的一项调查，如果有起诉书，则有47％的人会要求总理塞巴斯蒂安·库尔兹（Sebastian Kurz）辞职。 41％的候选人是库尔兹继续任职。
 
-援助物资从约旦和摩洛哥等几个国家抵达加沙地带。联合国宣布将再筹集370万欧元，以支持巴勒斯坦领土上的人民。
-
-联合国警告说，修复加沙的破坏可能要花费数年，甚至数十年。明确表示欢迎停火的联合国秘书长安东尼奥·古特雷斯警告说，以色列和巴勒斯坦领导人有责任开始认真的对话以讨论冲突原因，这是以色列的责任。
-
-欧盟外交事务代表鲍里尔（Josep Borrell）强调，只有政治解决方案才能带来可持续和平，并最终解决冲突。
-
-简评：全世界都为能够在中东达成停火协议感到送了一口气。 但是，双方都还虎视眈眈各自采取各种威慑行动。 双方没有互信，结果必然如此。 局势并未得到缓和， 而重新的交战可能随时发生。 个人认为， 联合国在这里一直强调巴勒斯坦人， 可是哈马斯只是这里的统治力量， 因为不能按时选举才出现的各种状况， 正确的做法应该像爆料革命把中共和中国分开一样， 因为把哈马斯和巴勒斯坦人分开对待。才会有结果。 联合国筹集的资金重建加沙， 而加沙是在哈马斯的通知之下， 这笔钱真的会用在重建上吗？不会被哈马斯用来采购武器吗？
+简评：因为在病毒大流行期间的一些不真实的陈述， 奥地利总理接受调查。 调查的结果如果是被起诉， 那么有几乎一半的选民要求他辞职。 那么这位年轻的总理， 就会因为大流行而葬送他的政治生涯。 这位总理是1986年出生的年轻人。 中共病毒对人不光有健康危害， 各种危害和伤害，都在发生着。
 
 免责声明， 本文只代表作者观点， 与 Gnews平台无关。
 发表： Shuizhuyu
 
-🔗[nahost-waffenruhe-aber-keine-entspannung](https://de.euronews.com/2021/05/22/nahost-waffenruhe-aber-keine-entspannung)
+🔗[Oesterreich-47-Prozent-fuer-Ruecktritt-von-Sebastian-Kurz-falls-Anklage](https://www.welt.de/politik/ausland/article231260871/Oesterreich-47-Prozent-fuer-Ruecktritt-von-Sebastian-Kurz-falls-Anklage.html)
 
 0
