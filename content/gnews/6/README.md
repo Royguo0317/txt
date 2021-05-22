@@ -1,27 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印度感染病毒中的“黑木耳”
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1264421/)
+## 【有声读物】难忘的山里人
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1264446/)
 
-信息来源：德国世界报网络版 
-发布时间：2021年5月22日
-翻译 /整理/ 简评： Shuizhuyu
+配音：香草山录音组 熊井（文兰）
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22085925/onder-ortel-sWjEqvh3UQE-unsplash-scaled.jpg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-印度总理纳伦德拉·莫迪（Narendra Modi）警告说，病毒患者中会传播一种罕见且致命的真菌病。这位政治家周五说，这是他的国家目前正在经历的第二次强烈病毒浪潮中的另一个挑战。
 
-印度一直遭受冠状病毒迅速传播，氧气和药物供应瓶颈的困扰，长达数周之久。如今，在病毒名患者中，这种疾病还被称为粘菌病（也称为黑木耳）的感染所困扰。在过去的24小时内，印度人口超过13亿，据报告，该疾病涉及259,000例感染和4209例死亡。
 
-感染会导致严重的症状，并且通常是致命的。这种疾病实际上是罕见的，但是在印度第二次强烈病毒波期间，它已经发生了上千次。
 
-简评：中共病毒大流行， 在印度是最惨烈的， 尤其在新闻的视频和图片中。 这些鲜明的视频和图片让所有人感到了恐惧。 现在又出来了这样的怪现象。 这是在其他国家至今还没有发现的。 这是中共病毒印度变种的特性吗？没有人知道。 这个感染是致命的。 已经导致了几千人死亡。
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
 
-🔗[Indien-Was-hinter-dem-Schwarzen-Pilz-steckt-der-Corona-Patienten-befaellt](https://www.welt.de/wissenschaft/article231302471/Indien-Was-hinter-dem-Schwarzen-Pilz-steckt-der-Corona-Patienten-befaellt.html)
+今天蒸了一锅玉米和地瓜。看到这一幕，不禁触景生情思绪万千，仿佛跨越时空，一下子飞扑到了那个“特殊年代”。
 
-+1
+对于我们这些所谓的大城市来的、买什么都凭票凭供应券吃不饱饭的孩子们来说，被动地跟着父母迁徙也是兴高釆烈的。刚到一个地方，什么都是新鲜的，那山那水那人，吊上一嗓子满山遍野都是回音，稀奇古怪的事层出不穷。看那人，惊奇，有些年长的男人还挂着一条清朝的大辫子，这是什么场景？都70年代初了！
+
+
+
+**文字版原文：[【言于其食】难忘的山里人](https://gnews.org/zh-hans/1244527/)**
+
+作者：纽约香草山美食部 杉杉
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
