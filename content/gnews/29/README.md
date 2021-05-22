@@ -1,53 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】特斯拉汽车在中共国继续遭难——禁止停靠政府大院
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1263423/)
+## 欧盟议会冻结批准《 中欧全面投 资协议》
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1263501/)
 
-作者：纽约香草山农场 四季
+翻译：康州盘古农场 – 柯镇恶
 
+校对：康州盘古农场 – 格格巫
 
+编辑：康州盘古农场 – 明子
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+发布：康州盘古农场 – 彩虹 Rainbow
 
+**
+据《路透社》作者：Robin Emmott 2021年5月21日报道**：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21231852/loy2-scaled.jpg)
+欧洲议会周四暂停批准与中（共）国的一项新投资协定，直到北京取消对欧盟官员的制裁。这加深了中欧关系争端，减少了欧盟公司进入中（共）国的机会。
 
+冻结批准的决议以599票赞成，30票反对和58票弃权获得通过。
 
-零对冲5月21日报道，一些中共国政府官员的工作人员于本周被告知，不要将他们的特斯拉汽车停在政府大院内，“因为对安装在车辆上的摄像头有安全顾虑”。北京和上海的“至少两个政府机构”被告知有同样的规定。目前，还不清楚这对多少员工和车辆有直接影响。
+经过7年的会谈，谈判者于12月达成了《中欧全面投资协议》。该协议旨在使欧盟公司在中（共）国处于平等地位，并巩固北京作为可信赖的贸易伙伴的地位。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21225035/16-23.jpg)图片来源：零对冲
+但北京方面在三月份对10名欧盟政客和智囊团、外交机构实施了制裁，以回应西方对中（共）国官员的制裁，因为这些官员被指控在中国西北地区大规模拘留穆斯林维吾尔族人。
 
-这并不是中共国第一次以安全问题为由禁止特斯拉汽车。早在3月，由于“担心车辆内置的摄像头会收集敏感数据，而中共政府却无法看到或控制”，因此特斯拉汽车被禁止进入中（共）国的军事设施和住宅区。
+中（共）国的制裁对象包括欧盟议会及其人权小组委员会的五名成员。
 
-另外，斯特拉在中共国的遭遇被一名上海车展的抗议者进一步催化——她指称特斯拉汽车的断裂装置有问题。中共通过国家媒体已经对特斯拉做出威胁，认为其会对中共国的市场“造成严重损害”。
+被制裁的德国欧盟议员赖因哈德·布蒂科弗（Reinhard Butikofer）表示：“中共国的制裁失算了。他们应该从错误中吸取教训，并重新思考。由于中（共）国的制裁，《全面投资协定》已被放入冷库。”
 
-目前，尚不清楚是否北京所有的政府机构都在遵循类似的限制规定。但是，中共正在使用这样的方式告知大众，不要购买及使用特斯拉汽车。这也导致特斯拉汽车如今的注册量比3月份的34,714辆大幅下降。
+欧盟立法者表示，中（共）国的制裁并非基于国际法，而欧盟的措施（如英国和美国）则在于坚持联合国条约，应对侵犯人权的行为。
 
-斯特拉在中共国的遭遇——从过去的招商引资，到现在的关门打狗——是众多投资中共国的外国企业的样板。看来，外企投资中共国的时代已经结束了。
+北京否认有任何不法行为。
 
-参考阅读：
+欧洲议会在决议中说，议会“要求中（共）国在处理（投资协定）之前，先解除制裁”。该决议没有法律约束力，但现在这是议会的正式立场。它说：“中欧关系可能不会像以往一样继续发展下去了。”
 
-[Tesla Vehicles Banned From Some Chinese Government Compounds](https://www.zerohedge.com/markets/tesla-vehicles-banned-some-chinese-government-compounds)
+作为对决议的回应，中（共）国驻欧盟代表团说，该投资协议是“互惠互利”的，而不是只对一方 “有利”的。它说，中（共）国的制裁是对欧盟行动的合理回应。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+代表团周五在网站上发表的一份声明中说：“中（共）国一直真诚地促进双边合作，希望欧盟与我们相向而行。”
 
-编辑/校对/发稿：Irene木木
+僵局对中（共）国和欧盟都是一个挫折。批准该条约将为欧洲在中（共）国的投资和知识产权提供更多的保护。欧洲外交官说，希望中（共）国改善其行为，成为国际社会上一个公正和受人尊敬的贸易伙伴。
 
-**更多资讯，更多关注**
+活动人士和联合国人权专家说，至少有100万穆斯林被拘留在新疆的集中营中。活动人士和一些西方政客指责中共使用酷刑、强迫劳动和强制绝育。中共否认在新疆侵犯人权，并说集中营是为了提供职业培训，是打击极端主义所必需的。
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+原文链接**：[https://www.reuters.com/world/china/eu-parliament-freezes-china-deal-ratification-until-beijing-lifts-sanctions-2021-05-20/](https://www.reuters.com/world/china/eu-parliament-freezes-china-deal-ratification-until-beijing-lifts-sanctions-2021-05-20/)**
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

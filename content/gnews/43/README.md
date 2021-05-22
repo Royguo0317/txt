@@ -1,47 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【圣城传声筒】香港的学校（一）
-` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1263308/)
+## 中共国内部信息表明了病毒起源的实际位置
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1263343/)
 
-作者：纽约香草山香港部 牛奶仔
+翻译：康州盘古农场 – 格格巫
 
+校对：康州盘古农场 – TrueSky
 
+编辑：康州盘古农场 – 明子
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
+发布：康州盘古农场 – 彩虹 Rainbow
 
+**由乔·霍夫特（Joe Hoft）发布于2021年5月20日上午8:15
+劳伦斯·塞林（Lawrence Sellin）的来宾帖子**
 
+**在过去24小时内从中国内部来源获得的信息，有关COVID-19实验室起源的流行叙述有了进一步的进展。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21215447/d2.png)
+毫无疑问，我们2月份的报告阐述了COVID-19病毒是在实验室中产生的：
 
-位于九龙城何文田的华英中学，因办学校长曾经对“逃犯条例”政见不同，令现时控制立法会的亲共议员（建制派）不满，把原本申请的学校重建费用（暂定2.5亿）突然煞停。据了解，旧校重建已经准备了十年时间，由校方和各方热爱教育的人士支持，然而香港政府在最后时刻把拔款煞停。这是对香港教育界的迫害，是对学术自由的抹杀，更给下一代的学习环境招来溃灭打击。
+虽然，大多数人认为它是从武汉病毒研究所泄漏的。武汉病毒学研究所的“蝙蝠女”石正丽也否认她的研究所是病毒的出处。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21213207/12-80.jpg)
+石正丽声称她和她的同事在2019年末，在从来历不明的肺炎患者的样本中发现了这种病毒。在此之前，我们从未接触过或研究过这种病毒，也不知道它的存在，
+“美国总统川普关于SARS-CoV-2是从我们研究所泄漏的说法，完全与事实相矛盾。她补充说。
 
-华英学校前身是19世纪位于广东佛山的一所学校，因二战辗转，最终于70年代在港复校，具有历史意义——华英学校更是一所具有信仰的基督教学校。
+她所说的部分可能是正确的。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21214118/13-51.jpg)
+长期以来 ，我一直在说COVID-19病毒是由许多中国军事中心之间合作制造的，而不是武汉病毒研究所专门进行的“功能性增强”实验的唯一结果。
 
-千教万教，教人求真；千学万学，学做真人。现今香港政府里一窝奴才，滥用政权，卑鄙无耻，沦为恶共走狗，用政治为借口，误人子弟至上，悲也。
+来自中国内部的新信息与该结论是一致的。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205738/M5-1.jpg)
+**尽管仍然是一个发展中的故事，但这里是一个摘要：**
+1.一种完整或几乎完整的COVID-19病毒，在2019年初从中国人民解放军东部战区司令部抵达武汉病毒研究所。
+2.与流行的叙述相反，COVID-19病毒主要是被送往武汉病毒学研究所进行检测。
+3.测试被分配给一组年轻的病毒学家。该小组的领导者的姓名是已知的，领导者的科学背景与该角色是一致的。
+4.测试是在非人类的灵长类动物上进行的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21215503/ssssw.png)
+武汉病毒学研究所的生物安全4级实验室位于武汉江夏区，该区位于武昌市以南约12英里处，这是COVID-19早期爆发的中心。
+尚不清楚江夏区的生物安全4级实验室是否具有使用非人类灵长类动物进行实验的能力。
 
-校对/发稿：Irene木木
+**中国科学院自己的网站指出：**
+武汉国家生物安全实验室（NBL4）拥有2个细胞
 
-**更多资讯，更多关注**
+1个中型动物实验室以及1个对病毒培养、收集和使用实验室。
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+相比之下，武汉大学动物实验中心和动物生物安全3级实验室确实具有进行非人类灵长类动物实验的能力。
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+以下照片来自中文出版物，显示了受限制的武汉大学动物实验中心和动物生物安全3级实验室的内部，特别是非人类灵长类动物设施。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21215526/xxxx.png)
+该研究机构位于COVID-19早期爆发的震中，并位于中国人民解放军的主要医院附近。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21215515/zzzz.png)
+在武汉进行测试时，可能释放了COVID-19病毒。
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+在之前的TGP文章中，我推测弗林蛋白酶多裂的位点，即COVID-19实验室起源的“突破口”，是由与广州解放军南方医科大学关联的中国人民解放军科学家插入的。
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+通过非人类灵长类动物的“传代”可能使COVID-19病毒部分适应了人类感染。也就是多重感染。或者，可以通过对具有COVID-19病毒人类受体的基因改变的小鼠品系，进行连续传代来对COVID-19进行预适应。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文链接：[https://www.thegatewaypundit.com/2021/05/know-covid-19-created-laboratory-new-revelations-inside-china-indicate-location-military-origin/](https://www.thegatewaypundit.com/2021/05/know-covid-19-created-laboratory-new-revelations-inside-china-indicate-location-military-origin/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
-
-
-
-+1
+0

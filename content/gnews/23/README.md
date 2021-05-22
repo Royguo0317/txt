@@ -1,59 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】中共国的养老金（一）——连续七年亏损
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1263484/)
+## 【拆台新闻】西藏的残酷统治与和平解放
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1263569/)
 
-作者：纽约香草山健身部   Jack Li文阳
+今天中共新闻办举行发布会，介绍西藏经济社会发展情况。祝贺和平解放（残酷统治）西藏七十周年。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22002938/200-1-1-scaled.jpg)
 
+他说：党一直关怀西藏出台一系列的政策，西藏人民过上了幸福的生活。尤其提到党尊重西藏的宗教。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
+同时，在今天，中共发表西藏白皮书，摘要如下：
 
+5月21日-达赖喇嘛的任何继任者必须得到中国政府的批准：中国关于西藏的白皮书，这份题为《1951年以来的西藏：解放、发展与繁荣》的白皮书说：”1793年，清政府在驱散古尔卡侵略者后，恢复了西藏的秩序，颁布了《西藏更好地治理的帝国批准条例》，完善了中央政府管理西藏的制度。该法令规定，达赖喇嘛和其他大活佛的转世必须遵循”从金骨灰盒中抽签”的程序，所选候选人须经中国中央政府批准。
 
+简评：
 
-根据中共国社科院世界社保研究中心《中（共）国养老金精算报告2019-2050》显示，全国城镇企业职工基本养老保险基金2035年前后将耗尽累计结余，至2050年，当期结余可能会达到11.28万亿元缺口。
+对西藏地区的残酷镇压，统治，在中共的口里变成了和平解放。七十年以来，从一开始的暴力武力镇压，到现在意识形态统一，培养藏奸，手段不断变化，目的始终没有变化，霸占西藏的资源，消减藏区族裔，佛教不能为共党所用， 那么就消灭它。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21231655/18-11.jpg)图源网络
+西藏是中共的天堂，记得文贵先生直播说过， 西藏有全中国最好的酒店，有最美的藏族女孩，是一个蓝金黄腐败西方精英的地方。
 
-2016年3月17日，中共国国务院网站刊登了2016年两会期间李克强在记者招待会上与记者的问答。当中，中（共）国新闻社的记者也问到：“据了解，现在有些地方的养老金发放已经出现困难，一些市县在靠贷款发放养老金。”
+参考链接：
 
-据2020年11月26日曾经的良心媒体《南方周末》报道，2019年，如果扣除财政补贴，全国养老金的收支缺口为8314亿，已连续七年收不抵支。其中，东北是我国养老金收支缺口及财政补贴压力最大的地区。2016年，黑龙江成为全国首个养老金结余被花光的省份。
+[https://www.timesnownews.com/international/article/any-successor-to-dalai-lama-has-to-be-approved-by-chinese-govt-chinas-white-paper-on-tibet/759843](https://www.timesnownews.com/international/article/any-successor-to-dalai-lama-has-to-be-approved-by-chinese-govt-chinas-white-paper-on-tibet/759843)
 
-另据报道，中共总理李克强于2020年8月30日在中共国务院的一个工作会议上强调，地方政府要“想办法”保证养老金按时、足额发放。李克强坦言，中（共）国经济处于下行状态。
+图片来源：[https://www.timesnownews.com/](https://www.timesnownews.com/international/article/any-successor-to-dalai-lama-has-to-be-approved-by-chinese-govt-chinas-white-paper-on-tibet/759843)
 
-中共财政数据显示，中共国社保基金收支自2013年开始出现亏损，2014年度的财政补贴金额即达8800亿元，2015年度的补贴破万亿元。到2019年，中共国社保基金由政府财政补贴了1.9万亿元人民币，其中地方承担了98%。而当年的地方总财政收入为10.11万亿元，这意味着有18.5%的地方收入被拿去填补社保基金的漏洞。可是，即使在财政补贴的情况下，中共国已有13个省连续4年社保入不敷出。中共国社保基金，包括养老、医疗、生育、失业和工伤保障等8大子基金，其中6项都处于严重亏损状态。2019年，全国社保基金的收支缺口1.47万亿，较2018年的9,836亿，增幅达到了49%。其中，“城镇职工基本养老保险”2019年的收支亏损达到4,711亿元，较2018年的2,060亿元增加近1.3倍，增幅惊人。
+整理撰稿：蓝精灵
 
-号称世界第二大经济体的中共国，可以买遍全球，还要为全世界指点江山、开药方，傲视宇宙、不可一世。然而，中共国金玉其外，败絮其中： 高铁、地铁、高速公路、摩天大楼光鲜亮丽；养老、医疗、教育等民生事业一塌糊涂。这当中的很多黑洞尚不为人所知。按理说，领养老金的人都交过所谓的社保统筹金。但从2014年10月1日起，中共国才推行了机关单位养老保险制度改革。就是说，在此之前，公务员是无需缴纳社保的，退休后都是靠老百姓来供养。中共的眼里，老百姓就是被屠宰的猪狗：从马云到普通百姓，总有一款适合您。
+校对发布：Penny
 
-参考阅读：
-
-养老金发放已出现困难怎么办？\_http://www.gov.cn/zhuanti/2016-03/17/content\_5054946.htm
-
-养老金“窟窿”难补，渐进式延迟退休如何实施\_https://www.infzm.com/contents/196523
-
-[李克强急了？要各地“想办法”保证养老金发放](https://www.ntdtv.com/gb/2020/09/02/a102931870.html)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
-
-
-
-
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

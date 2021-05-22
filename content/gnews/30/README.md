@@ -1,51 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 九千万党员跟着喜联储和喜币走就叫“隔空取钱”！
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1263446/)
+## 北韩的军事扩张势必增加对美国的威胁
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1263474/)
 
-**摘要：在2021年5月7日的盖特中，郭先生终于揭秘了什么是“隔空取钱”。他说因为加密区块链货币具有安全性、公平性、平等性、隐私性，共产党 9000 万党员终有一天会相信放他们钱最安全的地方是喜联储和喜币，那时我们就成功地完成了“隔空取钱”！**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21225252/Miles_20210507-getter2.srt.txt)
-**九千万党员跟着喜联储和喜币走就叫****“****隔空取钱****”****！**
+**翻譯****报道****: ****祈望明天****会****更好**
 
-**What Does Miles Mean by “Retrieving the CCP’s Money Telekinetically”?**
+**校對:胡天**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21231709/1-116.png)[图片来源](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.aboluowang.com%2F2020%2F0426%2F1442466.html&amp;psig=AOvVaw1B_yyEe0genQpN4wKGbKoh&amp;ust=1621739434525000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCLito9io3PACFQAAAAAdAAAAABAD)
+**根据Bill Gertz-《华盛顿时报》-2021年5月19日，星期三的报导**
 
-所以战友们要好好的讲清楚加密区块链的意义在哪里。**第一，它就是安全；第二，是全球化；第三不可追踪；第四绝不可剥夺。**
+被提名为下一任驻南韩美军指挥官的陆军将军保罗-拉卡梅拉 (Paul LaCamera) 本周告诉参议院，朝鲜正在建造小型弹头、战术核武器和多弹头导弹。拉卡梅拉 (LaCamera)将军在书面答复中公开了参议院军事委员会的问题。
 
-So our fellow fighters need to explain the meanings of encrypted blockchain really clear. First thing is security. Second, it can be used globally. And the third, it’s untrackable. Fourth, indeprivability.
+“ [朝鲜领导人]金正恩 (Kim Jong-un) 在今年1月宣布了扩大核威慑力的计划和方案，特别是开发小型核弹头，战术核武器，甚至是多种可独立定位的载入飞行器，”
 
-所有现在对虚拟货币、加密货币没有所有的研发者100%的法务部门、金融部门、内部的尽职调查部门，所有的合作的情况下，还有当地法官、法院、刑事部门的判决下，没有一个人个可以看到你的所有的系统，绝不可能，任何一个货币，任何，只要是真的区块链，不是假区块链。
+拉卡梅拉将军说: 朝鲜在最近的阅兵上显示，它现在拥有能够攻击美国本土的远程导弹，并制作了对美国城市进行核攻击的模拟视频。平壤正在开发 “前所未有数量 “的新武器系统，增加从该地区直接对美国的威胁程度。他说：”经过评估后，我将审查半岛上任何必要的能力和部队结构变化的潜在要求。 ”
 
-Now, without the cooperation of all the R&D people of cryptocurrencies and virtual currency, legal department, financial department and due diligence internal department, and the decisions of the local judge, court and the criminal division, nobody can check your data in the system, absolutely no way. These apply to any currency, as long as it’s a real blockchain and not a fake one.
+他表明，到目前为止，平壤看到了与拜登新政府进行谈判的机会，但也准备“进行远程导弹试验的挑衅性和胁迫性的行为，甚至可能展示其核能力”。
 
-因为区块链大家要解释区块链和安全的重要，区块链和信息的重要。任何一个区块链只要动一下全球都知道，你造不了假，你玩不了黑，你泄不了秘。所以在区块链加密货币上还有一个更重要的功能：绝对的公平！无论你对你爹，还是对你的敌人，你想不一样是不可能，加入这个平台就是一样的。经过这一系列的研发，到最后在区块链和这个数字代码面前大家人人平等。这不像过去拿的钱啊，还拿个什么中国银行特质发的这个票，这帮王八蛋，还有美元那里边儿什么大额票都是胡扯的，都是骗人的。
+拉卡梅拉将军说：“目前，朝鲜半岛局势稳定，紧张局势有所缓和，特别是在非军事区和北部限制沿线一带。”
 
-Because everybody needs to explain the importance of security and information of blockchain. Any actions performed in the blockchain will be known to the whole world. It can’t be faked, and its secrets can’t be leaked. You can’t play dirty tricks on it. So cryptocurrencies based on blockchain have an important function: absolute fairness! No matter it’s your dad or your enemy, it’s impossible for you to treat them differently. All the people who have joined this platform are equal. Through a series of R&D, at last, all men and women are equal in front of the blockchain, the digits and the code. They are not like the money that you had in the past, when these bastards in Bank of China offered special cheques, and there were also high denomination banknotes in dollars, which are all bullshits and scams.
+拉卡梅拉将军说: 尽管朝鲜政府声称该国CCP病毒感染数为零, 但仍正在与冠状病毒大流行做 “斗争”，朝鲜关闭了边界并停止了国际商业，对其经济造成重创，进而影响到北朝鲜的军事力量。
 
-以后的人类在货币面前的平等，货币面前的安全和生产力等价的兑换完全自愿化，和绝对的全球自由流通，没有圈圈[限制]，没有任何物理上可以隔离你，这就是未来。大家应该多讲讲这个**安全性、公平性、平等性、隐私性**。把这个讲明白你就知道咱们最重要的是什么？
+他接着说道，北朝鲜的大型部队大多是过时的武器和装备，”军队质量与数量一样薄弱”，但还是有必要加强导弹防御系统将有助于应对来自朝鲜的远程导弹威胁。他希望有更多的航母打击群和轰炸机的到來,伴随着先进的战斗机的部署,而且该地区的导弹防御系统必须能够抵御以核、化学和生物武器进行复杂攻击的一座大型导弹库。
 
-In the future, people will be equal in front of the currencies. The currencies will be secure, and the quid pro quo between production power and them will completely be based upon the free will of individuals. Money will flow freely to anywhere in the world, without any physical barriers. That’s what the future will look like. Everybody should talk more about the security, fairness, equality, and privacy. If you can make these really clear, you will understand what’s the most important to us.
+战略司令部指挥官,查尔斯上将(Adm . Charles)说： “我们的战略轰炸机的速度、灵活性和战备能力在我们遏制潜在对手中发挥着至关重要的作用，并表明我们对盟友和伙伴的坚定支持的能力……像这样的任务为我们的盟友和伙伴提供了宝贵的培训机会，可以展示出我们的部队有能力随时随地采取行动，能够果断地应对任何挑战。”
 
-共产党 9000 万党员他们等[有]一天相信他把他的钱放到知道的最安全的地方就是喜联储、喜币，有黄金挂钩，随时可以兑换成各种货币，随时开户随时转走，没有人可以查，没有人可以封，没有任何人可以拿走你的钱——这就成功了。9000万党员都会跟着喜联储走，这就叫“隔空取钱”！
+共和党众议院军事委员会的阿拉巴马州的麦克-罗杰斯议员(Rep. Mike Rogers of Alabama) 在一份声明中说：”许多保守派的声音在国防部被压制，而部门领导却在捍卫和保护左倾的声音的新闻报道，我对此感到非常担忧。
 
-When one day, the 90 million members of the CCP believe that the most secure place for them to put their money is the Himalaya reserve and the HCN, which is pegged to gold and can be exchanged to any currency, and that they can open an account or wire out the money at any time, which won’t be frozen or robbed by anyone, we will successfully reach our goal. The 90 million CCP members will all follow the Himalaya Reserve. This is called “retrieve CCP’s money telekinetically”!
+麦克-罗杰斯说: “美国武装部队应该集中精力于准备面对和赢得任何针对中共和其他外国对手构成的威胁的战斗……我相信在今年的[国防授权法案] 中，这个问题必须得到解决，并期待与委员会中我的共和党同僚和以及任何有志于加入我们事业並与具有自由言论思想的民主党人共同努力。”
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/609553a237f7f73984c8e942](https://gtv.org/getter/609553a237f7f73984c8e942) (7:23-9:50)
-鸣谢：感谢 Antsee-GTV、TING GUO、文惜和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://www.gnews.org/zh-hans/1187944/](https://www.gnews.org/zh-hans/1187944/)
+原文链接：[North Korea building MIRVS, tactical nukes](https://www.washingtontimes.com/news/2021/may/19/inside-the-ring-north-korea-building-mirvs-tactica/)
 
-* * *
-
-**翻译：【Himalaya New York MOS (USA) – guocamole(文金欠)】
-字幕：【JennyL】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
-+1
+0

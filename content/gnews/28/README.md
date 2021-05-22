@@ -1,42 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】健康部门遮掩新冠疫苗副作用
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1263461/)
+## 【世事解评】中共国的养老金（一）——连续七年亏损
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1263484/)
 
-作者：纽约香草山媒体部 7bends
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+作者：纽约香草山健身部   Jack Li文阳
 
 
 
-National News刊登文章称，健康部门遮掩新冠疫苗的血管损害和急性过敏反应。虽然笔者对该文章称CCP病毒为“中国病毒”有异义，但对文章涉及的新冠疫苗的副作用，笔者印象深刻。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
 
-![]()![](https://media.discordapp.net/attachments/824587088309649429/845327831562977300/image1.jpg)
 
-虽然各国政府和医疗机构一再保证，注射冠状病毒疫苗是安全的，但一直以来听到、看到打了新冠疫苗而造成面瘫、中风、出血、过敏或其他损害的消息却从来没断过。
 
-文章提及，政府部门称，新冠疫苗的刺突蛋白（Spike Proteins）在体内不会带来任何长期的风险。但Salk研究所（Salk Institute）的研究却发现，正是刺突蛋白（Spike Proteins）造成了许多新冠疫苗注射者的血管受损，从而导致中风、血栓、过敏等症状。目前市面流行的四种品牌的新观疫苗，要么本身含有，要么会让接种者身体自己制造刺突蛋白（Spike Proteins）。
+根据中共国社科院世界社保研究中心《中（共）国养老金精算报告2019-2050》显示，全国城镇企业职工基本养老保险基金2035年前后将耗尽累计结余，至2050年，当期结余可能会达到11.28万亿元缺口。
 
-该文章还提到，即使声称疫苗安全的康涅狄格公共卫生部门（CDPH）也在其一份“疫苗接种前检查清单”中提示医护人员，要注意在接种疫苗时引起的立即过敏反应和如何有效地治疗这种过敏反应。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21231655/18-11.jpg)图源网络
 
-![]()![](https://media.discordapp.net/attachments/824587088309649429/845327831176970240/image0.jpg)
+2016年3月17日，中共国国务院网站刊登了2016年两会期间李克强在记者招待会上与记者的问答。当中，中（共）国新闻社的记者也问到：“据了解，现在有些地方的养老金发放已经出现困难，一些市县在靠贷款发放养老金。”
 
-虽然研发企业对此回应说，疫苗产生的抗体可以防止损伤，但Salk研究所不同意此种回应。Salk研究所认为，当接种新冠疫苗人的免疫系统足够强壮时，可以防止最开始时明显的、立即的刺突蛋白伤害，但如果之后当他们患了其他疾病而免疫系统受损时，又会发生什么事呢？
+据2020年11月26日曾经的良心媒体《南方周末》报道，2019年，如果扣除财政补贴，全国养老金的收支缺口为8314亿，已连续七年收不抵支。其中，东北是我国养老金收支缺口及财政补贴压力最大的地区。2016年，黑龙江成为全国首个养老金结余被花光的省份。
+
+另据报道，中共总理李克强于2020年8月30日在中共国务院的一个工作会议上强调，地方政府要“想办法”保证养老金按时、足额发放。李克强坦言，中（共）国经济处于下行状态。
+
+中共财政数据显示，中共国社保基金收支自2013年开始出现亏损，2014年度的财政补贴金额即达8800亿元，2015年度的补贴破万亿元。到2019年，中共国社保基金由政府财政补贴了1.9万亿元人民币，其中地方承担了98%。而当年的地方总财政收入为10.11万亿元，这意味着有18.5%的地方收入被拿去填补社保基金的漏洞。可是，即使在财政补贴的情况下，中共国已有13个省连续4年社保入不敷出。中共国社保基金，包括养老、医疗、生育、失业和工伤保障等8大子基金，其中6项都处于严重亏损状态。2019年，全国社保基金的收支缺口1.47万亿，较2018年的9,836亿，增幅达到了49%。其中，“城镇职工基本养老保险”2019年的收支亏损达到4,711亿元，较2018年的2,060亿元增加近1.3倍，增幅惊人。
+
+号称世界第二大经济体的中共国，可以买遍全球，还要为全世界指点江山、开药方，傲视宇宙、不可一世。然而，中共国金玉其外，败絮其中： 高铁、地铁、高速公路、摩天大楼光鲜亮丽；养老、医疗、教育等民生事业一塌糊涂。这当中的很多黑洞尚不为人所知。按理说，领养老金的人都交过所谓的社保统筹金。但从2014年10月1日起，中共国才推行了机关单位养老保险制度改革。就是说，在此之前，公务员是无需缴纳社保的，退休后都是靠老百姓来供养。中共的眼里，老百姓就是被屠宰的猪狗：从马云到普通百姓，总有一款适合您。
 
 参考阅读：
 
-[Health departments caught lying, covering up covid vaccine vascular damage and “acute anaphylactic reactions”](https://www.naturalnews.com/2021-05-19-health-departments-lying-covid-vaccine-vascular-reactions.html)
+养老金发放已出现困难怎么办？\_http://www.gov.cn/zhuanti/2016-03/17/content\_5054946.htm
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+养老金“窟窿”难补，渐进式延迟退休如何实施\_https://www.infzm.com/contents/196523
+
+[李克强急了？要各地“想办法”保证养老金发放](https://www.ntdtv.com/gb/2020/09/02/a102931870.html)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
 
 编辑/校对/发稿：Irene木木
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 **[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
@@ -44,11 +48,11 @@ National News刊登文章称，健康部门遮掩新冠疫苗的血管损害和�
 
 **[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
 
 
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
 
