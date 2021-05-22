@@ -1,53 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】特斯拉汽车在中共国继续遭难——禁止停靠政府大院
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1263423/)
+## 北韩的军事扩张势必增加对美国的威胁
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1263474/)
 
-作者：纽约香草山农场 四季
+**翻譯****报道****: ****祈望明天****会****更好**
 
+**校對:胡天**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21231709/1-116.png)[图片来源](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.aboluowang.com%2F2020%2F0426%2F1442466.html&amp;psig=AOvVaw1B_yyEe0genQpN4wKGbKoh&amp;ust=1621739434525000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCLito9io3PACFQAAAAAdAAAAABAD)
+**根据Bill Gertz-《华盛顿时报》-2021年5月19日，星期三的报导**
 
+被提名为下一任驻南韩美军指挥官的陆军将军保罗-拉卡梅拉 (Paul LaCamera) 本周告诉参议院，朝鲜正在建造小型弹头、战术核武器和多弹头导弹。拉卡梅拉 (LaCamera)将军在书面答复中公开了参议院军事委员会的问题。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+“ [朝鲜领导人]金正恩 (Kim Jong-un) 在今年1月宣布了扩大核威慑力的计划和方案，特别是开发小型核弹头，战术核武器，甚至是多种可独立定位的载入飞行器，”
 
+拉卡梅拉将军说: 朝鲜在最近的阅兵上显示，它现在拥有能够攻击美国本土的远程导弹，并制作了对美国城市进行核攻击的模拟视频。平壤正在开发 “前所未有数量 “的新武器系统，增加从该地区直接对美国的威胁程度。他说：”经过评估后，我将审查半岛上任何必要的能力和部队结构变化的潜在要求。 ”
 
+他表明，到目前为止，平壤看到了与拜登新政府进行谈判的机会，但也准备“进行远程导弹试验的挑衅性和胁迫性的行为，甚至可能展示其核能力”。
 
-零对冲5月21日报道，一些中共国政府官员的工作人员于本周被告知，不要将他们的特斯拉汽车停在政府大院内，“因为对安装在车辆上的摄像头有安全顾虑”。北京和上海的“至少两个政府机构”被告知有同样的规定。目前，还不清楚这对多少员工和车辆有直接影响。
+拉卡梅拉将军说：“目前，朝鲜半岛局势稳定，紧张局势有所缓和，特别是在非军事区和北部限制沿线一带。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21225035/16-23.jpg)图片来源：零对冲
+拉卡梅拉将军说: 尽管朝鲜政府声称该国CCP病毒感染数为零, 但仍正在与冠状病毒大流行做 “斗争”，朝鲜关闭了边界并停止了国际商业，对其经济造成重创，进而影响到北朝鲜的军事力量。
 
-这并不是中共国第一次以安全问题为由禁止特斯拉汽车。早在3月，由于“担心车辆内置的摄像头会收集敏感数据，而中共政府却无法看到或控制”，因此特斯拉汽车被禁止进入中（共）国的军事设施和住宅区。
+他接着说道，北朝鲜的大型部队大多是过时的武器和装备，”军队质量与数量一样薄弱”，但还是有必要加强导弹防御系统将有助于应对来自朝鲜的远程导弹威胁。他希望有更多的航母打击群和轰炸机的到來,伴随着先进的战斗机的部署,而且该地区的导弹防御系统必须能够抵御以核、化学和生物武器进行复杂攻击的一座大型导弹库。
 
-另外，斯特拉在中共国的遭遇被一名上海车展的抗议者进一步催化——她指称特斯拉汽车的断裂装置有问题。中共通过国家媒体已经对特斯拉做出威胁，认为其会对中共国的市场“造成严重损害”。
+战略司令部指挥官,查尔斯上将(Adm . Charles)说： “我们的战略轰炸机的速度、灵活性和战备能力在我们遏制潜在对手中发挥着至关重要的作用，并表明我们对盟友和伙伴的坚定支持的能力……像这样的任务为我们的盟友和伙伴提供了宝贵的培训机会，可以展示出我们的部队有能力随时随地采取行动，能够果断地应对任何挑战。”
 
-目前，尚不清楚是否北京所有的政府机构都在遵循类似的限制规定。但是，中共正在使用这样的方式告知大众，不要购买及使用特斯拉汽车。这也导致特斯拉汽车如今的注册量比3月份的34,714辆大幅下降。
+共和党众议院军事委员会的阿拉巴马州的麦克-罗杰斯议员(Rep. Mike Rogers of Alabama) 在一份声明中说：”许多保守派的声音在国防部被压制，而部门领导却在捍卫和保护左倾的声音的新闻报道，我对此感到非常担忧。
 
-斯特拉在中共国的遭遇——从过去的招商引资，到现在的关门打狗——是众多投资中共国的外国企业的样板。看来，外企投资中共国的时代已经结束了。
+麦克-罗杰斯说: “美国武装部队应该集中精力于准备面对和赢得任何针对中共和其他外国对手构成的威胁的战斗……我相信在今年的[国防授权法案] 中，这个问题必须得到解决，并期待与委员会中我的共和党同僚和以及任何有志于加入我们事业並与具有自由言论思想的民主党人共同努力。”
 
-参考阅读：
-
-[Tesla Vehicles Banned From Some Chinese Government Compounds](https://www.zerohedge.com/markets/tesla-vehicles-banned-some-chinese-government-compounds)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
+原文链接：[North Korea building MIRVS, tactical nukes](https://www.washingtontimes.com/news/2021/may/19/inside-the-ring-north-korea-building-mirvs-tactica/)
 
 0

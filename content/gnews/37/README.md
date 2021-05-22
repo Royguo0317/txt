@@ -1,58 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月21日美国政要反共推文精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1263130/)
+## 彭博社高管与中共经常在北京会面并商讨合作
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1263074/)
 
-参议员汤姆·科顿: [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 公司（尤其是实力雄厚的公司）是中共的分支机构，最终处于国家控制之下。现在该是我们的法律认清这一现实的时候了。我们的法案将堵住法律漏洞，并迫使为中共国公司游说者注册为外国代理人。 【附科顿参议员官网新闻：科顿，加拉格尔推出草案，以堵住为中共国公司游说的漏洞】
+翻译: 康州盘古农场 – Mike Li
 
+校对: 康州盘古农场 – 格格巫
 
+编辑: 康州盘古农场 – 心照
 
-> Chinese companies—particularly powerful ones—are arms of the CCP & remain ultimately under state control. It’s time our laws recognize that reality. Our bill will close legal loopholes & force lobbyists for Chinese companies to register as foreign agents.[https://t.co/JnuZkJ8n3D](https://t.co/JnuZkJ8n3D)
-> — Tom Cotton (@SenTomCotton) [May 21, 2021](https://twitter.com/SenTomCotton/status/1395779935919349767?ref_src=twsrc%5Etfw)
+发布：康州盘古农场 – 彩虹 Rainbow
 
+**据《BREITBART》 作者：ALEXANDER MARLOW，2021年5月17日报道**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21204224/hey.jpg)迈克尔-布隆伯格和蒋建国 (照片: 国务院新闻办公室)
+据中共国政府称，迈克尔·布隆伯格及其新闻集团《彭博社》的高层人员经常在北京与中共高层官员和宣传人员会面。我在《爆料》一书中记录了这些已经发生了数年的会面。《揭露实权媒体的隐秘交易和秘密腐败》一书于5月18日出版。
 
+根据在研究本书时查阅的文件，这些宣传人员对彭博公司进行监管，并控制这位前民主党巨额捐款者转为总统候选人的企业能够进入巨大的中共国市场。迈克尔-布隆伯格本人对中共习近平主席和其他北京高层官员的评价很好，甚至很高。《彭博社》似乎相比其竞争对手在中共国的业务要多得多。
 
-参议员瑞克·斯科特： 把纳税人的钱投资到 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) ，威胁了我们的国家安全和危害了美国人的退休储蓄。我很自豪加入卢比奥 [@marcorubio](https://twitter.com/marcorubio) 等同事，提出“纳税人和储蓄者保护法”（TSP ACT），防止联邦雇员退休储蓄计划（TSP） [@tsp4gov](https://twitter.com/tsp4gov) 退休储蓄用于 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click)。（转推卢比奥同内容推文）
+Breitbart News在美国媒体上首次披露了并证实这些会议的图片。在这里和《突发新闻》中出现的会议细节，最初发布在中共国国家媒体的一个官方网站上，尚未在美国媒体上公布。
 
+在书中，我披露了我与一个小型研究小组对企业媒体进行长达一年的调查细节。在书中的众多重磅消息中，我报告了美国媒体为了讨好中国的共产党政权而自愿所做的真实程度。
 
+根据中共国政府的说法，在这些会议上，中共和彭博社官员讨论了“媒体领域的合作”、“给世界讲中国故事”和“加强中美媒体合作”等议题。
 
-> Investing taxpayer dollars into Communist China threatens our national security & jeopardizes Americans’ retirement savings. Proud to join [@marcorubio](https://twitter.com/marcorubio?ref_src=twsrc%5Etfw) & my colleagues to reintroduce the TSP Act to prevent the [@tsp4gov](https://twitter.com/tsp4gov?ref_src=twsrc%5Etfw) from steering retirement savings to Communist China. [https://t.co/TzGVzFveTW](https://t.co/TzGVzFveTW)
-> — Rick Scott (@SenRickScott) [May 21, 2021](https://twitter.com/SenRickScott/status/1395755553331290121?ref_src=twsrc%5Etfw)
+《彭博社》是中国境内金融数据的外国媒体最大的传播者之一，它被迫向（中共）国务院新闻办公室（SCIO）申请许可，该办公室是中共国国务院的下属机构。换句话说，他在中共国做生意的能力，受制于实际上是中共的行政部门的意志。由于《彭博社》的执照每两年更新一次，因此向北京高层官员示好的压力始终存在，而似乎是《彭博社》已经做好的事情。
 
+**中共的国务院新闻办公室通常也被称为中央外宣办。**
 
+中共还可以禁止《彭博社》（以及任何外国机构）在中国提供各种金融信息服务。因此，不仅《彭博社》进入中国市场要接受共产党每24个月一次的审查和撤销，中共还可以（而且会）限制它认为破坏共产党利益的任何内容。
 
-众议员迈克·加拉格尔： 任何重要到注册游说者的中国公司，其重要性足以为 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 共同操控。 自豪加入科顿议员出台立法以堵住游说者的漏洞，并降低中共使用沼泽地对付我们的能力。 【附加拉格尔议员官网发布的关于该提案的新闻】
+**以下是已知会议的一些细节。**
 
+2015年8月19日：迈克尔-布隆伯格会见了国务院新闻办公室主任、中共中央宣传部副部长蒋建国。根据中共国政府的说法，他们讨论了“媒体领域的国际交流与合作”。
 
+在2016年7月13日。据中国《南华早报》报道，彭博社高管在北京会见了中共宣传部蒋建国，这次是为了讨论“一带一路”战略合作和南海问题。一带一路“倡议“（BRI）是中共的全球项目，旨在通过由北京资助的大规模基础设施项目网络，获得全世界的经济主导地位。
 
-> Any Chinese company important enough to register lobbyists is significant enough to be co-opted by the CCP.
-> 
-> Proud to join [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) in introducing legislation to close loopholes for lobbyists and reduce the CCP's ability to use the swamp against us. [https://t.co/j3WfHpTdhQ](https://t.co/j3WfHpTdhQ)
-> — Rep. Mike Gallagher (@RepGallagher) [May 21, 2021](https://twitter.com/RepGallagher/status/1395815458046201868?ref_src=twsrc%5Etfw)
+BRI通过一个投资网络将中共国与其他国家，特别是发展中国家紧密地联系在一起。一些怀疑中共的人，认为这个雄心勃勃的项目本质上是一个”债务陷阱“计划，各国最终会拖欠贷款，从而使中国共产党获得对它们的经济和政治控制。通常情况下，中共能够利用他们新的经济杠杆来扩大他们在某一地区的军事能力。
 
+尽管南海的大部分领土在法律上属于台湾、文莱、马来西亚、越南和菲律宾的主权，但北京还是对南海的大部分领土提出了主权要求。中共不在乎美国认为这种行为是非法的；事实上，美国的立场让中共感到愤怒。北京在东中国海也有类似的行为，他们在那里非法要求属于日本和其他国家的领土。厄瓜多尔、智利和阿根廷是其他几个断言中国侵犯其主权水域的国家之一。
 
+彭博社高层和中共之间的进一步谈话细节并没有公开。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21204211/nht.jpg)Kevin Sheekey和蒋建国 (照片: 国务院新闻办公室)
+2015年12月21日。《彭博社》全球执行副总裁Kevin Sheekey会见了蒋建国以及张福海和张宏斌，他们分别是国务院新闻办公室互联网事务局的局长和副局长。他们管理着中国政权的一个部门，该部门负责处理互联网审查问题。Sheekey是迈克尔-布隆伯格2020年竞选总统时的竞选经理。
 
-众议员克里斯·史蒂夫： 我朋友加拉格尔[@RepGallagher](https://twitter.com/RepGallagher) 揭露了有关美国纳税人的钱可能资助了在武汉实验室研究的真相。 这与指责无关而是为了防止另一场灾难。我们需要使我们的世界彻底颠倒的病毒起源的更多答案。 【转加拉格尔议员的推文：揭露美国NIAID 和NIH资金如何流向武毒所】
+2017年6月7日。时任《彭博社》政府关系副总裁的Kevin Sheekey再次会见了中共宣传部长蒋建国。根据中国政府的说法，“他们谈到了中美媒体的交流与合作，给世界讲中国故事，以及为促进两国关系的健康和稳定所做的努力”。
 
+2018年7月11日。彭博社亚太区高级执行编辑Otis Bilodeau会见了南华大学副校长、中共高层发言人之一郭为民。
 
+2018年4月13日。《彭博新闻社》总编辑John Micklethwait会见了SCIO的副部长。来自北京是这样解读这次会面的：“双方就加强中美媒体合作、增进中西方公民了解、向世界展示中国以及中美关系等问题进行了讨论。” 换句话说，中共的文件显示称彭博社的高级编辑就如何“向世界展示中国”向一位共产党高级官员提出建议。
 
-> My friend [@RepGallagher](https://twitter.com/RepGallagher?ref_src=twsrc%5Etfw) exposes the truth about U.S. taxpayer dollars potentially funding research at a Wuhan lab.
-> 
-> This isn't about assigning blame. It's about preventing another catastrophe. We need more answers about the origin of a virus that turned our world upside down. [https://t.co/8vS6fvj0jh](https://t.co/8vS6fvj0jh)
-> — Rep. Chris Stewart (@RepChrisStewart) [May 21, 2021](https://twitter.com/RepChrisStewart/status/1395778100999430150?ref_src=twsrc%5Etfw)
+2018年5月9日。宣传部副部长蒋建国在北京再次与Kevin Sheekey会面。据北京方面称，这一次他们讨论了“扩大中美两国媒体之间的交流与合作，促进中西方公民之间的了解，以及中美关系”。
 
+迈克尔-布隆伯格未来竞选总统的竞选经理再次与中共的一位顶级宣传员会面，根据中共国政府的说法，他们反复讨论了两国及其媒体机构之间的合作。
 
+这似乎远远超出了“向中国示好”的范围。根据中共国政府的说法，《彭博社》高管定期飞往中国，与包括宣传人员在内的共产党高级成员会面，以便在各种问题上建立深入的伙伴关系。事实上，这已经是《彭博社》的文化，显然至少有十年了。2013年，据报道，时任彭博新闻社总编辑马修-温克勒将中共统治阶级成员比作纳粹，但他向记者们强调，如果上述“纳粹感到受到评判，他们很可能将记者们赶出该国。
 
-前国务卿蓬佩奥： 就在乔拜登上任的前几个小时，他就送给 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 一份大礼，重新加入了巴黎气候协议。美国看起来是唯一一个遵守承诺的国家——它也只有通过毁掉中产阶级的工作才能这么做。拜登政府继续让 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 胜利。
+在《突发新闻》中，我还深入研究了迈克尔-布隆伯格短暂的总统竞选细节。2019年，布隆伯格在接受采访时说，”习近平不是一个独裁者“。他当然是；他甚至让自己成为”终身总统“。布隆伯格是一个反气候变化的活动家，他称赞了中国的环境政策，尽管他们释放的二氧化碳是地球上所有国家中迄今为止最多的。
 
+布隆伯格本人仍然是美国媒体和民主党政治中最强大的参与者之一。
+然而，布隆伯格并不是唯一一个派代表到北京与反美宣传者建立联系的主要新闻机构。
 
+原文链接：[https://www.breitbart.com/the-media/2021/05/17/exclusive-bombshell-photos-reveal-years-of-meetings-between-bloomberg-executives-and-chinese-propagandists-in-beijing/](https://www.breitbart.com/the-media/2021/05/17/exclusive-bombshell-photos-reveal-years-of-meetings-between-bloomberg-executives-and-chinese-propagandists-in-beijing/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-> Just hours into his Presidency, Biden gave China a gift by rejoining the Paris Climate Accords. The US will likely be the only nation to meet its commitments — and it will only be able to do so by destroying middle class jobs.
-> 
-> The Biden Administration continues to let China win.
-> — Mike Pompeo (@mikepompeo) [May 21, 2021](https://twitter.com/mikepompeo/status/1395737034430500868?ref_src=twsrc%5Etfw)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

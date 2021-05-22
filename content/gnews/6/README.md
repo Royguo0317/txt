@@ -1,55 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】健康部门遮掩新冠疫苗副作用
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1263461/)
+## 欧盟议会冻结批准《 中欧全面投 资协议》
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1263501/)
 
-作者：纽约香草山媒体部 7bends
+翻译：康州盘古农场 – 柯镇恶
 
+校对：康州盘古农场 – 格格巫
 
+编辑：康州盘古农场 – 明子
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+发布：康州盘古农场 – 彩虹 Rainbow
 
+**
+据《路透社》作者：Robin Emmott 2021年5月21日报道**：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21231852/loy2-scaled.jpg)
+欧洲议会周四暂停批准与中（共）国的一项新投资协定，直到北京取消对欧盟官员的制裁。这加深了中欧关系争端，减少了欧盟公司进入中（共）国的机会。
 
+冻结批准的决议以599票赞成，30票反对和58票弃权获得通过。
 
-National News刊登文章称，健康部门遮掩新冠疫苗的血管损害和急性过敏反应。虽然笔者对该文章称CCP病毒为“中国病毒”有异义，但对文章涉及的新冠疫苗的副作用，笔者印象深刻。
+经过7年的会谈，谈判者于12月达成了《中欧全面投资协议》。该协议旨在使欧盟公司在中（共）国处于平等地位，并巩固北京作为可信赖的贸易伙伴的地位。
 
-![]()![](https://media.discordapp.net/attachments/824587088309649429/845327831562977300/image1.jpg)
+但北京方面在三月份对10名欧盟政客和智囊团、外交机构实施了制裁，以回应西方对中（共）国官员的制裁，因为这些官员被指控在中国西北地区大规模拘留穆斯林维吾尔族人。
 
-虽然各国政府和医疗机构一再保证，注射冠状病毒疫苗是安全的，但一直以来听到、看到打了新冠疫苗而造成面瘫、中风、出血、过敏或其他损害的消息却从来没断过。
+中（共）国的制裁对象包括欧盟议会及其人权小组委员会的五名成员。
 
-文章提及，政府部门称，新冠疫苗的刺突蛋白（Spike Proteins）在体内不会带来任何长期的风险。但Salk研究所（Salk Institute）的研究却发现，正是刺突蛋白（Spike Proteins）造成了许多新冠疫苗注射者的血管受损，从而导致中风、血栓、过敏等症状。目前市面流行的四种品牌的新观疫苗，要么本身含有，要么会让接种者身体自己制造刺突蛋白（Spike Proteins）。
+被制裁的德国欧盟议员赖因哈德·布蒂科弗（Reinhard Butikofer）表示：“中共国的制裁失算了。他们应该从错误中吸取教训，并重新思考。由于中（共）国的制裁，《全面投资协定》已被放入冷库。”
 
-该文章还提到，即使声称疫苗安全的康涅狄格公共卫生部门（CDPH）也在其一份“疫苗接种前检查清单”中提示医护人员，要注意在接种疫苗时引起的立即过敏反应和如何有效地治疗这种过敏反应。
+欧盟立法者表示，中（共）国的制裁并非基于国际法，而欧盟的措施（如英国和美国）则在于坚持联合国条约，应对侵犯人权的行为。
 
-![]()![](https://media.discordapp.net/attachments/824587088309649429/845327831176970240/image0.jpg)
+北京否认有任何不法行为。
 
-虽然研发企业对此回应说，疫苗产生的抗体可以防止损伤，但Salk研究所不同意此种回应。Salk研究所认为，当接种新冠疫苗人的免疫系统足够强壮时，可以防止最开始时明显的、立即的刺突蛋白伤害，但如果之后当他们患了其他疾病而免疫系统受损时，又会发生什么事呢？
+欧洲议会在决议中说，议会“要求中（共）国在处理（投资协定）之前，先解除制裁”。该决议没有法律约束力，但现在这是议会的正式立场。它说：“中欧关系可能不会像以往一样继续发展下去了。”
 
-参考阅读：
+作为对决议的回应，中（共）国驻欧盟代表团说，该投资协议是“互惠互利”的，而不是只对一方 “有利”的。它说，中（共）国的制裁是对欧盟行动的合理回应。
 
-[Health departments caught lying, covering up covid vaccine vascular damage and “acute anaphylactic reactions”](https://www.naturalnews.com/2021-05-19-health-departments-lying-covid-vaccine-vascular-reactions.html)
+代表团周五在网站上发表的一份声明中说：“中（共）国一直真诚地促进双边合作，希望欧盟与我们相向而行。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+僵局对中（共）国和欧盟都是一个挫折。批准该条约将为欧洲在中（共）国的投资和知识产权提供更多的保护。欧洲外交官说，希望中（共）国改善其行为，成为国际社会上一个公正和受人尊敬的贸易伙伴。
 
-编辑/校对/发稿：Irene木木
+活动人士和联合国人权专家说，至少有100万穆斯林被拘留在新疆的集中营中。活动人士和一些西方政客指责中共使用酷刑、强迫劳动和强制绝育。中共否认在新疆侵犯人权，并说集中营是为了提供职业培训，是打击极端主义所必需的。
 
-**更多资讯，更多关注**
+原文链接**：[https://www.reuters.com/world/china/eu-parliament-freezes-china-deal-ratification-until-beijing-lifts-sanctions-2021-05-20/](https://www.reuters.com/world/china/eu-parliament-freezes-china-deal-ratification-until-beijing-lifts-sanctions-2021-05-20/)**
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

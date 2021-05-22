@@ -1,59 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】“重金”悬赏能解环境污染“走过场”常态？
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1263072/)
+## 5月21日美国政要反共推文精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1263130/)
 
-香草山写作组 鹰(文言)
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193903/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1-2.jpg)
+参议员汤姆·科顿: [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 公司（尤其是实力雄厚的公司）是中共的分支机构，最终处于国家控制之下。现在该是我们的法律认清这一现实的时候了。我们的法案将堵住法律漏洞，并迫使为中共国公司游说者注册为外国代理人。 【附科顿参议员官网新闻：科顿，加拉格尔推出草案，以堵住为中共国公司游说的漏洞】
 
 
 
-新浪网5月21日转载北京日报客户端消息，北京市发布《北京市生态环境局生态环境违法行为举报奖励规定（征求意见稿）》，根据举报人举报线索难易和环境危害程度确立奖励标准，最高可达5万元。
+> Chinese companies—particularly powerful ones—are arms of the CCP & remain ultimately under state control. It’s time our laws recognize that reality. Our bill will close legal loopholes & force lobbyists for Chinese companies to register as foreign agents.[https://t.co/JnuZkJ8n3D](https://t.co/JnuZkJ8n3D)
+> — Tom Cotton (@SenTomCotton) [May 21, 2021](https://twitter.com/SenTomCotton/status/1395779935919349767?ref_src=twsrc%5Etfw)
 
-2017年，习包子一句“绿水青山就是金山银山”拉开了全国范围内的环境整治帷幕。不但各地纷纷出台环境污染的处罚条例，更有中央巡视组、督导组到各地的摸查走访。然而时至今日，虽然对环境污染的奖惩力度都有加强，内蒙古、上海、浙江省等地多地也开始印发环境污染举报奖惩方案，但违规排污、整治走过场的事件仍屡禁不止。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21203909/Screen-Shot-2021-05-21-at-8.33.29-PM.png)
-2021年的六地政府整改不力被约谈：安徽池州以修复石灰岩矿工程为名进行长期违法开采；江西上饶垃圾填埋场渗滤液处理设施长期不正常运行、出水严重超标；湖北汉川市罔顾群众“大面积违规填”的相关举报下，擅自将部门湖泊水域调出保护范围；湖南衡阳尾矿库废渣总镉浓度超标4倍；重庆南川尾矿库截洪沟、排渗设施等不达标仍被默认整改完成；四川遂宁超标污水直接排入培江；以及江苏扬州某电镀厂被群众多次举报违规向河里排放大量带有泡沫的废水，但检测结果“正常”……以上种种维和现象，都表明环境治理依旧止于表面。整改不力、不作为还可视作政府的懒政怠政，而罔顾群众举报并捏造数据的“辟谣”更是知法犯法。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21203851/Screen-Shot-2021-05-21-at-8.33.33-PM.png)
-中共开始关停重污染化工厂企业，并提高环境治理奖惩力度，天然气也开始“村村通”的普及。但从2020年CCP病毒肆虐导致全国大封城前提下，全国各地依旧雾霾严重。2021年的北京沙暴天气，也揭示内蒙古防沙造林项目“名存实亡”。环境整治乏力无果现状下，中共生态环保督查组，依旧在高倡严禁“一刀切、滥问责”为涉事企业寻开脱。由此可以看出，环境污染只是政府用来敛财的大旗，本意是追求高危污染所带来的经济利益。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21203836/Screen-Shot-2021-05-21-at-8.33.38-PM.png)
-群众的个人意识淡薄也是重要影响因素。2019年全国范围内推行垃圾分类。各大媒体平台纷纷鼓吹垃圾分类的必要性，并宣传各地垃圾分类进程。然而时隔两年，北京、上海这类超一线城市乱扔垃圾的现象依旧随处可见。虽然环境保护的起点是依靠群众的监督，但举报无门和虚假辟谣揭示了中共官场的盲目追求政绩、甩锅继任这一“潜规则”才是环境污染整治的难点和瓶颈。
 
-新闻来源：
 
-北京：举报环境违法拟最高奖5万，内部人举报奖双倍https://news.sina.com.cn/c/2021-05-21/doc-ikmxzfmm3833607.shtml
+参议员瑞克·斯科特： 把纳税人的钱投资到 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) ，威胁了我们的国家安全和危害了美国人的退休储蓄。我很自豪加入卢比奥 [@marcorubio](https://twitter.com/marcorubio) 等同事，提出“纳税人和储蓄者保护法”（TSP ACT），防止联邦雇员退休储蓄计划（TSP） [@tsp4gov](https://twitter.com/tsp4gov) 退休储蓄用于 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click)。（转推卢比奥同内容推文）
 
-举报有奖！《上海市生态环境违法行为举报奖励办法》印发https://new.qq.com/omn/20210406/20210406A06A5K00.html
 
-举报这些生态环境违法行为，有重奖！http://www.northnews.cn/news/2021/0519/1996524.html
 
-【中央环保督察】河长制考核工作走过场https://www.sohu.com/a/317848346\_651611
+> Investing taxpayer dollars into Communist China threatens our national security & jeopardizes Americans’ retirement savings. Proud to join [@marcorubio](https://twitter.com/marcorubio?ref_src=twsrc%5Etfw) & my colleagues to reintroduce the TSP Act to prevent the [@tsp4gov](https://twitter.com/tsp4gov?ref_src=twsrc%5Etfw) from steering retirement savings to Communist China. [https://t.co/TzGVzFveTW](https://t.co/TzGVzFveTW)
+> — Rick Scott (@SenRickScott) [May 21, 2021](https://twitter.com/SenRickScott/status/1395755553331290121?ref_src=twsrc%5Etfw)
 
-治理环境污染靠市长逼问 谁最该脸红？https://news.sina.com.cn/c/2021-05-14/doc-ikmyaawc5160335.shtml
 
-环境问题整改不力、搞虚假销号，长江经济带六地政府被约谈https://new.qq.com/omn/20210222/20210222A037F800.html
 
-因突出生态环境问题整改不力，四川2名副市长被免职https://3g.163.com/dy/article/G3HFEDF305509UST.html
+众议员迈克·加拉格尔： 任何重要到注册游说者的中国公司，其重要性足以为 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 共同操控。 自豪加入科顿议员出台立法以堵住游说者的漏洞，并降低中共使用沼泽地对付我们的能力。 【附加拉格尔议员官网发布的关于该提案的新闻】
 
-上海、北京“垃圾分类”做得怎么样？记者实地调查https://news.cctv.com/2020/08/23/ARTIPSqSatp9Zk34PkVDjgyi200823.shtml
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-编辑/校对/发稿：正义的小新
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+> Any Chinese company important enough to register lobbyists is significant enough to be co-opted by the CCP.
+> 
+> Proud to join [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) in introducing legislation to close loopholes for lobbyists and reduce the CCP's ability to use the swamp against us. [https://t.co/j3WfHpTdhQ](https://t.co/j3WfHpTdhQ)
+> — Rep. Mike Gallagher (@RepGallagher) [May 21, 2021](https://twitter.com/RepGallagher/status/1395815458046201868?ref_src=twsrc%5Etfw)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+众议员克里斯·史蒂夫： 我朋友加拉格尔[@RepGallagher](https://twitter.com/RepGallagher) 揭露了有关美国纳税人的钱可能资助了在武汉实验室研究的真相。 这与指责无关而是为了防止另一场灾难。我们需要使我们的世界彻底颠倒的病毒起源的更多答案。 【转加拉格尔议员的推文：揭露美国NIAID 和NIH资金如何流向武毒所】
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+> My friend [@RepGallagher](https://twitter.com/RepGallagher?ref_src=twsrc%5Etfw) exposes the truth about U.S. taxpayer dollars potentially funding research at a Wuhan lab.
+> 
+> This isn't about assigning blame. It's about preventing another catastrophe. We need more answers about the origin of a virus that turned our world upside down. [https://t.co/8vS6fvj0jh](https://t.co/8vS6fvj0jh)
+> — Rep. Chris Stewart (@RepChrisStewart) [May 21, 2021](https://twitter.com/RepChrisStewart/status/1395778100999430150?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬佩奥： 就在乔拜登上任的前几个小时，他就送给 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 一份大礼，重新加入了巴黎气候协议。美国看起来是唯一一个遵守承诺的国家——它也只有通过毁掉中产阶级的工作才能这么做。拜登政府继续让 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 胜利。
+
+
+
+> Just hours into his Presidency, Biden gave China a gift by rejoining the Paris Climate Accords. The US will likely be the only nation to meet its commitments — and it will only be able to do so by destroying middle class jobs.
+> 
+> The Biden Administration continues to let China win.
+> — Mike Pompeo (@mikepompeo) [May 21, 2021](https://twitter.com/mikepompeo/status/1395737034430500868?ref_src=twsrc%5Etfw)
+
+
 
 0
