@@ -1,160 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 凯尔·巴斯（Kyle Bass）:数字元 是特洛伊木马
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1263615/)
+## 【外媒观点】左晖不明疫病去世之震惊背后
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1263743/)
 
-**字幕内容：**
+撰稿：喜妈
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22020305/2021-05-21_Task5_Cover.jpg)（来自网络截图）
+据彭博社报道，中共国-亿万富翁贝壳创始人左晖“因不明疾病去世”。他所领导的公司2020年取得在美国“最强劲的市场首次亮相”。文章称，50岁的左晖是“公司成功的动力”；该公司“持有81.1％的有表决权的股份”。文章指出，贝壳上市得到了高瓴资本、腾讯控股等“亚洲最具影响力的初创企业投资者”的青睐，并成为“软银集团最成功的赌注”。
 
-Sarah
+文章根据彭博亿万富翁指数（Bloomberg Billionaires’Index），显示高瓴资本之前在美国首次亮相时资本“几乎翻了一番”，这就是左晖得以跻身全球最富有的企业家之列的原因。其财富一度“超过200亿美元”。到本周三5月19日收盘，其股价“已较纽约首次亮相上涨151％”，为已经过世的左晖提供了“148亿美元的净资产”。
 
-莎拉
+文章在震惊之后，只是陈述了这个事件的发生和公司的基本状况。笔者对此有不同的看法。首先如果了解爆料革命的朋友，在看到高瓴资本、腾讯控股以及软银的时候，应该知道，这个背后故事不简单。这个背后的金主和推手都是中共盗国贼家族。换句话说，左晖的贝壳，能够在短时间内取得迅猛发展，绝非易事，也非常态。能够达到这个结果，必然有中共盗国贼家族运用国家力量和其多年的国际社会网络布局才可以达到。
 
-That’s what I was going to ask you next
+从这里，我们当然可以理解更多外媒不可能报道到位的东西。这个事件在此间发生，必定有其内在的不可言说的原因，不可为外人道的理由。作为一个做保险代理出身的草根，有理由相信左晖本人只是一个盗国贼的新入白手套和资本持有人代表而已。
 
-那就是我接下来要问你的
+我们也可以更好地理解对于自己名下公司IPO上市，以及给他带来的财富，左晖曾经在接受采访时表示，他本人没有“感到兴奋”，对他也“没有影响”。我觉得这个话听起来好似不搭调的冷淡。如果是一个对企业和自身都充满责任感的领头羊，怎么都该兴奋激动的吧。这样的表态，很不可思议。可是如果考虑到背后的金主关系和被包装的背景，我们应该好理解了。
 
-which is the digital yuan which China is testing as we speak.
+作为从房产中介起家，到通过“人工智能和大数据改善其服务并提供市场见解”的公司，他的进步和发展，肯定是离不开与中共体制下的利益关联方勾兑，也离不开与他们的同流合污。在中共体制下，你的是它的，它的还是它的，你所想要创造的都是它的。
 
-这就是在我们谈话的时候中共国正在测试的数字元。
+可以想见，从链家到贝壳，从链家正在发展瓶颈，有“1944起案件涉嫌”，左晖本人都处在“限制消费名单”的时候，贝壳网横空出世，并可以用“烧钱补贴的方式来推广”。靠着大量投入资金，贝壳建立在“淘宝和天猫”云平台上的业务就蒸蒸日上了。可是，大家在这里难道没有嗅出点不同的味道，同一个配方的感觉吗？
 
-There’s a lot of hype about it
+啥配方呢，就是盗国贼家族惯常的收割韭菜，包装上市，重新盘整，不断改头换面的那套手法吗？用大资金收买空壳，再行包装，用资本烘托，用新理念推出，随行就市，引导消费，老瓶装新酒，就是这一套。可是，在中共体制下，凡有油水者，眼红的人就多。今年开始，贝壳不断地被中共政府约谈，要求整改，其实里面都蕴含着很多的玄机。
 
-那有很多的炒作
+贝壳曾经在上市前后，就有行业内人士指出其有着资金黑洞和对赌的一些风险。同时，面对贝壳所经营的二手房等是与高风险的中共国房市和金融有关的领域，很难说，这个里面有多少的压力、漏洞、黑箱、险恶和盘算。左晖的“意外死亡”，我们更愿意相信真的就只是意外。逝者已去，我们不便惊扰，希望安息。可是这里所引起的关注，引发的地震似波动，不是我们作为旁观者所能全部领会。我们只是以此继续奉劝那些还在墙国内怀着创业梦想和财富梦想的人们，止住吧，灭共先；否则，这里面好多的前车之鉴和教训，必须引起警戒。为生者祈祷平安，为逝者祈祷圆满。祝福华夏，祝福炎黄子孙。
 
-a lot of talk about whether it could supplant the U.S. dollar
+（本文纯属个人观点）
 
-很多的讨论是关于是否它可以取代美元
+*审**稿**、**编辑**：**光耀**华**夏*
 
-or take over the global foreign exchange system
+参考资料：
 
-或取代全球的外汇交换体系
+[雅虎相关新闻报道](https://au.finance.yahoo.com/news/billionaire-founder-chinese-property-giant-082622277.html)
 
-but do you really think that China can convince consumers internationally
+[知乎相关新闻报道](https://zhuanlan.zhihu.com/p/371694543)
 
-但你是否真的认为中共国可以说服国际消费者
+[腾讯相关报道](https://kuaibao.qq.com/s/20190317A0FSC700?refer=spider)
 
-and investor internationally to get into a digital yuan
+* * *
 
-和国际投资者进入数字人民币
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-when they haven’t done so with their own currency
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19113721/1-%E6%BE%B3%E5%96%9CLogo-8.jpeg)
 
-当他们还没有使用自己的货币的时候
-
-Kyle Bass
-
-凯尔·巴斯
-
-Yeah I don’t I think China can force the adoption of their digital currency for trade
-
-不，我不这么认为。我认为中共国可以强迫采用数字货币进行贸易
-
-and investment in China per se
-
-和在中共国的投资
-
-unless the U.S. and the west outlaws it uh
-
-除非美国和西方将其取缔
-
-or basically disallows it as something that could that can be owned
-
-或基本上禁止它作为可以拥有的东西
-
-and I know that sounds hyperbolic
-
-我知道这听起来很夸张
-
-but I don’t think you can get a little bit of cancer
-
-但我不认为你会得一点癌症
-
-either you have cancer you don’t
-
-要么你得了癌症，要么就没有
-
-and I believe digital one is the largest threat to the west uh
-
-而且我认为数字化是对西方最大的威胁
-
-that we’ve faced in the last 30,40 years
-
-我们在过去的30,40年所面对的
-
-and it’s because that it allows China
-
-并且这是因为它允许中国
-
-to actually get their get their uh their claws into uh everyone in the west
-
-实际上他们将爪子刺入西方的每个人
-
-and allows them to potentially export their digital authoritarianism
-
-并允许他们隐蔽地导出其数字权威主义
-
-I believe it’s a digital trojan horse
-
-我相信这是数字特洛伊木马
-
-and to your point Sarah
-
-而且萨拉，对于你的观点
-
-no one trusts China no one trusts their government
-
-没有人相信中共国，没有人相信他们的政府
-
-and today only 1.8 percent of global currency transactions settle in RMB
-
-如今，只有1.8％的全球货币交易以人民币结算
-
-and if you peel the onion back a little further
-
-并且如果你把洋葱再往深层剥一点
-
-those are almost all exclusively in Hong Kong
-
-这些几乎全都在香港
-
-so China only trades with itself they need dollars uh
-
-所以中共国只能自己交易，他们需要美元
-
-and so how they roll out their digital currency
-
-以及他们如何推出自己的数字货币
-
-and how it affects the world
-
-以及它如何影响世界
-
-is vitally important to the national security of the United States and Europe
-
-对美国和欧洲的国家安全至关重要
-
-and the rules based order
-
-和基于规则的顺序
-
-and I think that’s the big story that we’ve got to focus on in the next year
-
-我认为这是我们明年要重点关注的大事
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接:[https://twitter.com/cnbc/status/1394831421500444674?s=21](https://twitter.com/cnbc/status/1394831421500444674?s=21)
-
-英听校：康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场- 银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

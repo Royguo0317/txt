@@ -1,85 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【美国政治人物】朱莉娅•莱特洛（Julia Letlow）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1263695/)
+## 【3秒灭共】中共经济即时动向
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1263776/)
 
-翻译：雪域雄鹰，瑞H
-编辑：七彩光
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22014022/Julia_Janelle_Letlow.png)图片来源：墨尔本雅典娜农场设计师 — 精靈藍
-
-**朱莉娅·巴恩希尔·莱特洛（Julia Barnhill Letlow）**是美国政治家和学术管理者，自2021年起担任路易斯安那州第五国会区的美国代表，是第一位在国会代表路易斯安那州的共和党女性。
+作者：休斯顿星光农场 H.B
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21233807/Screenshot_2021-03-25_230524-2.jpg)
+- [**日本美津浓及世界连合时装将停用新疆棉**](https://cn.reuters.com/article/jp-mizuno-world-co-xijiang-cotton-0521-idCNKCS2D2131)
 
 
-| **党派：** | 共和党 |
-| --- | --- |
-| **当前身份：** | 国会议员 |
-| **所属选区：** | 路易斯安那州（Louisiana）第五选区 |
-| **任期区间：** | 2021年4月14日 – 2023年1月3日 |
-| **最近当选日期：**  | 2021年3月20日 |
-| **出生日期：** | 1981年3月16日 |
-| **出生地：** | 美国路易斯安那州门罗市 |
-| **配偶：** | 卢克•莱特洛（2013年结婚，2020年去世） |
-| **子女数量：** | 2 |
-| **教育背景：** | 路易斯安那大学门罗分校（学士、硕士） 南佛罗里达大学（博士） |
+5月21日，据路透社援引日经新闻，因当地遭质疑违反人权，日本服饰制造商美津浓以及世界连合时装(World Co)将停止使用新疆棉。
+
+- [**只许州官放火，不许百姓点灯——中共打击比特币交易**](https://www.epochtimes.com/gb/21/5/21/n12966397.htm)
 
 
-**早期生活和教育**
+5月21日，中共国务院金融稳定发展委员会召开第五十一此会议，要求打击比特币挖矿和交易行为。
 
-高中毕业于沃希托基督教高中(Ouachita Christian High School)，在路易斯安那大学门罗分校获得语言沟通艺术专业的文学学士学位和文学硕士学位，随后在2012年获得了南佛罗里达大学的通信哲学博士学位。她的博士生导师是简•乔根森（Jane Jorgenson）。其2011年的论文题目是《赋予悲伤以意义：仪式和故事在应对家庭突发事件中的作用》，她把这篇论文献给了她的兄弟杰里米（Jeremy），他在一次汽车碰撞中死亡。
+会议称，要加强金融风险全方位扫描预警，推动中小金融机构改革化险，着力降低信用风险，强化平台企业金融活动监管，打击比特币挖矿和交易行为，坚决防范个体风险向社会领域传递。
 
-**职业经历**
-
-- **教育领域**
+- [**方正证券二股东折价9.3%拍卖11亿股 平安入驻**](https://finance.sina.com.cn/roll/2021-05-21/doc-ikmxzfmm3812791.shtml?cref=cj)
 
 
-曾在新奥尔良的杜兰大学医学院担任教育主任、住院病人安全和质量改进主任，以及麻醉学的临床讲师。
+5月20日，10.9亿股方正证券股份出现在阿里司法拍卖平台上，起拍价高达88.76亿元。
 
-曾在ULM、杜兰大学和南佛罗里达大学担任过讲师和教学助理。
+方正证券公告称，本次司法拍卖的公司股份为政泉控股持有的剩余全部股份，占公司总股本的13.24%。
 
-2018年，她被任命为路易斯安那大学门罗分校（ULM）的外部事务和战略沟通主任。
+政泉控股是方正证券的第二大股东，持股21.86%，除了本次被拍卖的13.24%股份外，剩下持有的8.62%股份已经被用于偿债。方正证券的第一大股东为北大方正集团, 目前正在破产重组中。
 
-2020年，她成为ULM校长的最终候选人
+4月30日，平安集团公布的方正集团破产重整草案显示，平安集团将收购北大方正集团旗下金融资产，其中包括方正证券。
 
-- **国会众议员**
+市场人士认为，平安集团大概率将合并平安证券和方正证券，平安证券实现借壳上市。
 
-
-莱特洛的丈夫卢克•莱特洛（Luke Letlow）在2020年的选举中当选为美国路易斯安那州第五国会区的众议员，但在上任前的2020年12月因COVID-19感染的并发症而去世。朱莉娅决定参加2021年1月的空缺席位特别选举。在竞选期间，莱特洛获得了许多高调的支持，包括前总统唐纳德•川普的支持。
-
-路易斯安那州选举采用多数票制。所有候选人都将参加同一初选，得票超过50%的候选人可以直接赢得选举。如果没有候选人获得超过50%的选票，则初选得票最多的前两名候选人将通过最终普选确认，无论他们隶属于哪个党派。
-
-根据联邦选举委员会（Federal Election Commission）提交的数据，朱莉娅·莱特洛（Julia Letlow）为这场比赛筹集了超过680,000美元。她最接近的筹款竞争对手，也是比赛的第二名，民主党人桑德拉·坎迪·克里斯托夫（Sandra“ Candy” Christophe）则筹集到了75,000美元。克里斯托弗（Christophe）是亚历山大的一名社会工作者，也曾与卢克·莱特洛（Luke Letlow）对抗失败。
-
-2021年3月20日，莱特洛在无党派的初选中获得了超过64%的选票，完全赢得了选举，避免了潜在的第二轮选举。
-
-她于4月14日宣誓就职，在众议院教育和劳工委员会（House Education and Labor Committee）以及众议院农业委员会（House Agriculture Committee）任职。
-
-**川普总统支持**
-
-朱莉娅•莱特洛非常出色，对于帮助拯救我们的第二修正案，在边境问题，以及为了我们的军队和退伍军人，她是如此必不可少。
-
-**竞选政见**
-
-- 她和已故丈夫卢克•莱德洛（R）对该区拥有共同的愿景，包括投资就业、农村宽带接入和农村发展。
-- 她的主要工作之一是通过支持该区的基本农业，同时兼顾该地区的牧场主、伐木工人和农民。
-- 贫困是该地区的一个问题。她将通过支持教育，作为改善路易斯安那州第五区经济状况的一个手段。
+- [**猪价冰点 养猪企业愁叹利润萎缩**](http://finance.china.com.cn/industry/20210522/5577878.shtml)
 
 
-**路易斯安那州第五国会选区** 路易斯安那州第五国会选区包括该州的东北部地区。该区包括阿沃耶勒斯(Avoyelles)、考德威尔(Caldwell)、卡塔胡拉(Catahoula)、康科迪亚(Concordia)、东卡罗尔(East Carroll)、富兰克林(Franklin)、格兰特(Grant)、杰克逊(Jackson)、拉萨尔(La Salle)、林肯(Lincoln)、麦迪逊(Madison)、莫尔豪斯(Morehouse)、瓦奇塔(Ouachita)、拉皮德(Rapides)、里奇兰(Richland)、坦萨斯(Tensas)、华盛顿(Washington)、西卡罗尔(West Carroll)、西费利西亚纳(West Feliciana)和温恩(Winn)等教区。东费利西亚纳(East Feliciana)、圣赫勒拿(St. Helena)、圣兰德里(St. Landry)和坦吉帕霍阿(Tangipahoa)等教区的部分地区也属于该区。
+根据北京新发地监测数据，截至5月14日当周，新发地市场白条猪批发平均价为23元/公斤，环比下降15.60%；比去年同期34.0元/公斤的价格下降了32.35%。养猪企业愁叹利润萎缩, 生猪价格持续下跌，饲料成本却在持续上升。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22014550/Louisiana_5th_congressional_district.png)图片来源：网络图片
+有养殖户诉苦：这种情况下，扛价不是，继续养也不是，非常被动。
 
-参考资料：
+- **[罕见！美的实控人何享健亲自出马搞增持，去年才刚套现56亿](https://new.qq.com/omn/20210522/20210522A007HQ00.html)**
 
-[1] [https://www.julialetlow.com/meet-julia](https://www.julialetlow.com/meet-julia)
 
-[2] [https://ballotpedia.org/Julia\_Letlow](https://ballotpedia.org/Julia_Letlow)
+5月21日晚间，美的集团发布公告称，公司控股股东美的控股一致行动人何享健计划6个月内，以自有资金不低于8亿元增持公司A股股份。
 
-[3] [https://en.wikipedia.org/wiki/Julia\_Letlow](https://en.wikipedia.org/wiki/Julia_Letlow)
+值得注意的是，美的控股于去年9月3及11月20日通过大宗交易合计卖出了4287万股，套现32亿元；创始人何享健于11月20日通过大宗交易，以87.01元/股的价格减持了2741万股，套现23.85亿元。美的控股及一致行动人何享健此次合计套现55.85亿元。
 
-[4] [https://www.foxnews.com/politics/trump-endorses-julia-letlow-in-louisiana-house-race-to-succeed-her-late-husband](https://www.foxnews.com/politics/trump-endorses-julia-letlow-in-louisiana-house-race-to-succeed-her-late-husband)
+- **[张跃：有剽窃就没有创新](https://www.sohu.com/a/462074515_100299860?scm=1004.759017799288029184.0.0.0&amp;spm=smpc.ch15.r-comment.6.1621658437551EOAK7cH)**
 
-[5] [https://apnews.com/article/donald-trump-new-orleans-coronavirus-pandemic-elections-house-elections-548aa6d0a30136b580f1d4138bb02f4d](https://apnews.com/article/donald-trump-new-orleans-coronavirus-pandemic-elections-house-elections-548aa6d0a30136b580f1d4138bb02f4d)
+
+4月20日，博鳌亚洲论坛2021年年会举行，远大中央空调有限公司董事长兼总裁张跃在会上表示，企业应该首先把产品做好，创造社会价值，再谈其他的社会价值。
+张跃表示，中国面临最大的国力方面的问题就是创新，创新的阻力就是剽窃，有剽窃就没有创新。任何一个企业要把不剽窃技术当做它的道德底线。
+
+编辑：文顺 校对/发稿：Helen
+
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
+
+
+
 
 0

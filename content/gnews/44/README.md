@@ -1,51 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 九千万党员跟着喜联储和喜币走就叫“隔空取钱”！
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1263446/)
+## 【外媒报道】“神秘盒子”消费热潮中的墙国阴暗
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1263531/)
 
-**摘要：在2021年5月7日的盖特中，郭先生终于揭秘了什么是“隔空取钱”。他说因为加密区块链货币具有安全性、公平性、平等性、隐私性，共产党 9000 万党员终有一天会相信放他们钱最安全的地方是喜联储和喜币，那时我们就成功地完成了“隔空取钱”！**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21225252/Miles_20210507-getter2.srt.txt)
-**九千万党员跟着喜联储和喜币走就叫****“****隔空取钱****”****！**
+撰稿：喜妈
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21235651/2021-05-21_Task1_Cover.jpg)（来自网络截图）
+澳洲媒体报道，墙国的动物保护组织在一次“突击行动”中，发现“156箱”装着“幼犬和小猫”的货物，有一些“已经死亡”。据称，这些就是正在兴起中的“神秘盒子”消费热潮所售卖的产品。文章引述有相当了解的人士观点，这些盒子是“令人上瘾的”，“消费者有封闭性的内在需求”，它用所谓的收藏系列推广方式，激发起来消费者的欲望和满足感。因此，这样的市场推广手段得到墙国人的追捧，从而使得“盒子变成了大生意”。
 
-**What Does Miles Mean by “Retrieving the CCP’s Money Telekinetically”?**
+据说，去年12月，神秘盒子制造商Pop Mart“首次公开募股筹集了6.76亿美元”，这些盒子里面“装有可爱的塑料小雕像”。文章引用墙国英文官方报纸《中国日报》说，据行业报告称，到2024年，神秘盒子产业的价值可能达到60亿美元。这对于目前受到中共病毒冲击和国际围困的墙内市场来说，非常具有刺激性和吸引力。可是这里面就隐藏着其“阴暗”的一面，为了逐利可以不择手段。
 
-所以战友们要好好的讲清楚加密区块链的意义在哪里。**第一，它就是安全；第二，是全球化；第三不可追踪；第四绝不可剥夺。**
+文章指出，墙国官方媒体报道，从法律上，“通过邮件运送活体动物是非法的”，可是“监管不力”。因此，有一些神秘盒子经营者就利用这些监控的空白，以低价“向消费者提供送货上门的惊喜宠物”。动物权益组织说，“这对动物是残酷的”；有动物保护者指出，这是以“牺牲这些动物的生命为代价来赚钱的”。
 
-So our fellow fighters need to explain the meanings of encrypted blockchain really clear. First thing is security. Second, it can be used globally. And the third, it’s untrackable. Fourth, indeprivability.
+文章指出，墙国是一个“一切都可以放在一个神秘的盒子里”出售的国度；“神秘盒子趋势的爆炸式增长”，各种东西都可以放入其中。据文章内容，很多国际品牌都“为中共国消费者创造了自己的神秘盒子”。墙国内社交媒体有影响力人士“发布了精心制作的视频”，向人们展示了“他们打开‘盲盒’并比较发现的内容”。“一切都可以放在一个神秘的盒子里”，正在成为一个流行语。
 
-所有现在对虚拟货币、加密货币没有所有的研发者100%的法务部门、金融部门、内部的尽职调查部门，所有的合作的情况下，还有当地法官、法院、刑事部门的判决下，没有一个人个可以看到你的所有的系统，绝不可能，任何一个货币，任何，只要是真的区块链，不是假区块链。
+可是，由于墙国没有有效的法律执行、行业监管以及动物保护等多个方面到位的配套，很多卖家把动物也放入“神秘盒子”，造成动物的伤害和死亡情况十分严重。文章指出，由于墙国没有统一的全国性动物保护法律，“动物的不规范交易”导致的“痛苦可能不仅仅限于买卖动物”。
 
-Now, without the cooperation of all the R&D people of cryptocurrencies and virtual currency, legal department, financial department and due diligence internal department, and the decisions of the local judge, court and the criminal division, nobody can check your data in the system, absolutely no way. These apply to any currency, as long as it’s a real blockchain and not a fake one.
+笔者认为这是一篇具有独特观察角度的墙内国情国民和体制腐化动态的文章。因为，首先是，国将不国，谈何动物保护？人民尚且处在水深火热，死活无人问，何谈动物的权利呢？其次，涉及到人的法律就算是齐整完全，可是在一个墙国体制下，哪里有可能透明、公开并执行到位呢？第三，中共将一个好好的国家和国民都集体性地往死胡同赶，什么都是钱字当头，怎么可以形成普遍性的商业规范和有序道德呢？
 
-因为区块链大家要解释区块链和安全的重要，区块链和信息的重要。任何一个区块链只要动一下全球都知道，你造不了假，你玩不了黑，你泄不了秘。所以在区块链加密货币上还有一个更重要的功能：绝对的公平！无论你对你爹，还是对你的敌人，你想不一样是不可能，加入这个平台就是一样的。经过这一系列的研发，到最后在区块链和这个数字代码面前大家人人平等。这不像过去拿的钱啊，还拿个什么中国银行特质发的这个票，这帮王八蛋，还有美元那里边儿什么大额票都是胡扯的，都是骗人的。
+从这里，我们抨击那些没良心的商贩，没道德的购物平台，我们也希望社会有共识，爱护动物，尊重动物的生存权利。当然，我们也支持有一个全国性的保护法律出台，可是，什么才是导致这个问题的根源呢？笔者认为，就是中共统治的恶与丑。我们可以清楚看到，有中共在，无论是人还是动物，都是不会有好活的。有中共在，就不会有一个法治体系，不会有良好的道德风尚，不会有一个有序的社会秩序和市场规范。这一切都没有，当然不会有对与之相关的消费者道德权益保障，商品的基于良心和道德的维护。简言之，在这些事实的表象下，我们如果要真正解决中共国的社会问题、市场问题，先灭共吧。灭共，才能恢复一切的法律、秩序、规范和我们都想要的人的权利与动物的权利。
 
-Because everybody needs to explain the importance of security and information of blockchain. Any actions performed in the blockchain will be known to the whole world. It can’t be faked, and its secrets can’t be leaked. You can’t play dirty tricks on it. So cryptocurrencies based on blockchain have an important function: absolute fairness! No matter it’s your dad or your enemy, it’s impossible for you to treat them differently. All the people who have joined this platform are equal. Through a series of R&D, at last, all men and women are equal in front of the blockchain, the digits and the code. They are not like the money that you had in the past, when these bastards in Bank of China offered special cheques, and there were also high denomination banknotes in dollars, which are all bullshits and scams.
+（本文纯属个人观点）
 
-以后的人类在货币面前的平等，货币面前的安全和生产力等价的兑换完全自愿化，和绝对的全球自由流通，没有圈圈[限制]，没有任何物理上可以隔离你，这就是未来。大家应该多讲讲这个**安全性、公平性、平等性、隐私性**。把这个讲明白你就知道咱们最重要的是什么？
+*审稿、编辑：光耀华夏*
 
-In the future, people will be equal in front of the currencies. The currencies will be secure, and the quid pro quo between production power and them will completely be based upon the free will of individuals. Money will flow freely to anywhere in the world, without any physical barriers. That’s what the future will look like. Everybody should talk more about the security, fairness, equality, and privacy. If you can make these really clear, you will understand what’s the most important to us.
+参考资料：
 
-共产党 9000 万党员他们等[有]一天相信他把他的钱放到知道的最安全的地方就是喜联储、喜币，有黄金挂钩，随时可以兑换成各种货币，随时开户随时转走，没有人可以查，没有人可以封，没有任何人可以拿走你的钱——这就成功了。9000万党员都会跟着喜联储走，这就叫“隔空取钱”！
-
-When one day, the 90 million members of the CCP believe that the most secure place for them to put their money is the Himalaya reserve and the HCN, which is pegged to gold and can be exchanged to any currency, and that they can open an account or wire out the money at any time, which won’t be frozen or robbed by anyone, we will successfully reach our goal. The 90 million CCP members will all follow the Himalaya Reserve. This is called “retrieve CCP’s money telekinetically”!
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/609553a237f7f73984c8e942](https://gtv.org/getter/609553a237f7f73984c8e942) (7:23-9:50)
-鸣谢：感谢 Antsee-GTV、TING GUO、文惜和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://www.gnews.org/zh-hans/1187944/](https://www.gnews.org/zh-hans/1187944/)
+[9news对中共国“神秘盒子”报道](https://www.9news.com.au/national/china-mystery-box-craze-dead-puppies-and-kittens-reveal-dark-side-world-news/c1e41a50-e262-4614-bc6f-dc14372fab58)
 
 * * *
 
-**翻译：【Himalaya New York MOS (USA) – guocamole(文金欠)】
-字幕：【JennyL】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-+1
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19113721/1-%E6%BE%B3%E5%96%9CLogo-8.jpeg)
+
+
+0
