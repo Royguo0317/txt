@@ -1,35 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【拆台新闻】 中共是互联网谎言的搭建者
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1263054/)
+## 5月21日美国政要反共推文精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1263130/)
 
-大纪元2021年05月21日讯   中共内部指示被曝光 强迫维族人骂蓬佩奥
+参议员汤姆·科顿: [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 公司（尤其是实力雄厚的公司）是中共的分支机构，最终处于国家控制之下。现在该是我们的法律认清这一现实的时候了。我们的法案将堵住法律漏洞，并迫使为中共国公司游说者注册为外国代理人。 【附科顿参议员官网新闻：科顿，加拉格尔推出草案，以堵住为中共国公司游说的漏洞】
 
-美联社5月20日报导，他们获取了今年一月中共上级下达给新疆克拉玛依市各政府部门的一段信息，上面说，上级要求每个部门找到一名普通话流利的维吾尔人录制一分钟视频，回应美国前国务卿蓬佩奥的所谓“反华言论”。
 
-中共的这段“指示”除了要求找维族人来表演，还帮助撰写了台词，上面写道：“要对蓬佩奥的言论做出明确表态，比如：‘我坚决反对蓬佩奥的反华言论，我对这些言论感到非常愤怒。’，要表达你对党、对国家和对新疆的热爱（可以说，我是中国人，我爱祖国，在工作和生活中感到快乐，等等）。”
 
-简评：
+> Chinese companies—particularly powerful ones—are arms of the CCP & remain ultimately under state control. It’s time our laws recognize that reality. Our bill will close legal loopholes & force lobbyists for Chinese companies to register as foreign agents.[https://t.co/JnuZkJ8n3D](https://t.co/JnuZkJ8n3D)
+> — Tom Cotton (@SenTomCotton) [May 21, 2021](https://twitter.com/SenTomCotton/status/1395779935919349767?ref_src=twsrc%5Etfw)
 
-之前有报告说，中共国有大约800万的五毛大军，在互联网上按中共的宣传部，国安部门指示，散发他们想要的消息。除了大企业，抖音，百度，新浪，阿里巴巴这些商业科技巨头公司自动承担着这些宣传任务之外，其他的党民融合项目大致有下面几类：
 
-这些五毛大军大部分是有组织的， 他们的搭建团队分为几种：最隐蔽的是叫科技服务公司，咨询公司，表面上是帮助中小企业或者个人推广产品，吸引流量，第二种是各大高校的党建，团建组织，学生会组织，学校宣传组织，一些年轻的所谓“思想进步”的学生，被要求组织大家集体发送相同的信息，或宣扬美化中共国项目， 或者显示美好的中共制度。第三种就是上述监狱，集中营，很多网上的爆料显示，狱中的犯人，被组织起来学习，如何操作电脑， 统一发放翻墙软件，而且此行为还被作为减刑的一种考量，第四种，是中共花钱塑造的明星，网红，所谓的科学大咖，行业领袖等等。
 
-我们从这些建构可以看到，通过网络和舆论控制，中共已经基本上代表了所有的中国人，这也是中共底气十足在国际舞台上，在国内舞台上宣称他们代表十四亿人民。在这个社会的每一个角落，上到光鲜的媒体前台，下到监狱的牢房，言论和思想的管控，到了多么令人可怕的地步，1984的真实写照。
+参议员瑞克·斯科特： 把纳税人的钱投资到 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) ，威胁了我们的国家安全和危害了美国人的退休储蓄。我很自豪加入卢比奥 [@marcorubio](https://twitter.com/marcorubio) 等同事，提出“纳税人和储蓄者保护法”（TSP ACT），防止联邦雇员退休储蓄计划（TSP） [@tsp4gov](https://twitter.com/tsp4gov) 退休储蓄用于 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click)。（转推卢比奥同内容推文）
 
-我们看到的中共国互联网信息都是不真实的，就好像中共控制的媒体经常说据外媒报道，其实是注册在北京的名字是个洋名字的中共媒体，大家要仔细分辨，看源头新闻，不要为谎言所欺骗。
 
-参考链接：
 
-[https://www.epochtimes.com/gb/21/5/21/n12966395.htm](https://www.epochtimes.com/gb/21/5/21/n12966395.htm)
+> Investing taxpayer dollars into Communist China threatens our national security & jeopardizes Americans’ retirement savings. Proud to join [@marcorubio](https://twitter.com/marcorubio?ref_src=twsrc%5Etfw) & my colleagues to reintroduce the TSP Act to prevent the [@tsp4gov](https://twitter.com/tsp4gov?ref_src=twsrc%5Etfw) from steering retirement savings to Communist China. [https://t.co/TzGVzFveTW](https://t.co/TzGVzFveTW)
+> — Rick Scott (@SenRickScott) [May 21, 2021](https://twitter.com/SenRickScott/status/1395755553331290121?ref_src=twsrc%5Etfw)
 
-图片来源：[https://www.epochtimes.com/](https://www.epochtimes.com/gb/21/5/21/n12966395.htm)
 
-整理撰稿：蓝精灵
 
-校对发布：Penny
+众议员迈克·加拉格尔： 任何重要到注册游说者的中国公司，其重要性足以为 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 共同操控。 自豪加入科顿议员出台立法以堵住游说者的漏洞，并降低中共使用沼泽地对付我们的能力。 【附加拉格尔议员官网发布的关于该提案的新闻】
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+
+
+> Any Chinese company important enough to register lobbyists is significant enough to be co-opted by the CCP.
+> 
+> Proud to join [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) in introducing legislation to close loopholes for lobbyists and reduce the CCP's ability to use the swamp against us. [https://t.co/j3WfHpTdhQ](https://t.co/j3WfHpTdhQ)
+> — Rep. Mike Gallagher (@RepGallagher) [May 21, 2021](https://twitter.com/RepGallagher/status/1395815458046201868?ref_src=twsrc%5Etfw)
+
+
+
+众议员克里斯·史蒂夫： 我朋友加拉格尔[@RepGallagher](https://twitter.com/RepGallagher) 揭露了有关美国纳税人的钱可能资助了在武汉实验室研究的真相。 这与指责无关而是为了防止另一场灾难。我们需要使我们的世界彻底颠倒的病毒起源的更多答案。 【转加拉格尔议员的推文：揭露美国NIAID 和NIH资金如何流向武毒所】
+
+
+
+> My friend [@RepGallagher](https://twitter.com/RepGallagher?ref_src=twsrc%5Etfw) exposes the truth about U.S. taxpayer dollars potentially funding research at a Wuhan lab.
+> 
+> This isn't about assigning blame. It's about preventing another catastrophe. We need more answers about the origin of a virus that turned our world upside down. [https://t.co/8vS6fvj0jh](https://t.co/8vS6fvj0jh)
+> — Rep. Chris Stewart (@RepChrisStewart) [May 21, 2021](https://twitter.com/RepChrisStewart/status/1395778100999430150?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬佩奥： 就在乔拜登上任的前几个小时，他就送给 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 一份大礼，重新加入了巴黎气候协议。美国看起来是唯一一个遵守承诺的国家——它也只有通过毁掉中产阶级的工作才能这么做。拜登政府继续让 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 胜利。
+
+
+
+> Just hours into his Presidency, Biden gave China a gift by rejoining the Paris Climate Accords. The US will likely be the only nation to meet its commitments — and it will only be able to do so by destroying middle class jobs.
+> 
+> The Biden Administration continues to let China win.
+> — Mike Pompeo (@mikepompeo) [May 21, 2021](https://twitter.com/mikepompeo/status/1395737034430500868?ref_src=twsrc%5Etfw)
+
+
 
 0
