@@ -1,50 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧盟议会冻结批准《 中欧全面投 资协议》
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1263501/)
+## 【有声读物】白话（三）信心
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1263588/)
 
-翻译：康州盘古农场 – 柯镇恶
+配音：香草山福音部 Daxia
 
-校对：康州盘古农场 – 格格巫
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-编辑：康州盘古农场 – 明子
 
-发布：康州盘古农场 – 彩虹 Rainbow
 
-**
-据《路透社》作者：Robin Emmott 2021年5月21日报道**：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21231852/loy2-scaled.jpg)
-欧洲议会周四暂停批准与中（共）国的一项新投资协定，直到北京取消对欧盟官员的制裁。这加深了中欧关系争端，减少了欧盟公司进入中（共）国的机会。
 
-冻结批准的决议以599票赞成，30票反对和58票弃权获得通过。
 
-经过7年的会谈，谈判者于12月达成了《中欧全面投资协议》。该协议旨在使欧盟公司在中（共）国处于平等地位，并巩固北京作为可信赖的贸易伙伴的地位。
 
-但北京方面在三月份对10名欧盟政客和智囊团、外交机构实施了制裁，以回应西方对中（共）国官员的制裁，因为这些官员被指控在中国西北地区大规模拘留穆斯林维吾尔族人。
 
-中（共）国的制裁对象包括欧盟议会及其人权小组委员会的五名成员。
+初次接触基督信仰的人，一定常常听到信徒随口就来的“信”和“信心”两个词语。也许大家会觉得特别的玄妙，信心是什么？看又看不见，摸又摸不着。
 
-被制裁的德国欧盟议员赖因哈德·布蒂科弗（Reinhard Butikofer）表示：“中共国的制裁失算了。他们应该从错误中吸取教训，并重新思考。由于中（共）国的制裁，《全面投资协定》已被放入冷库。”
+其实，基督信仰中讲的信也好，信心也好，就像人的良心和人与人之间的爱一样：我们的肉眼确实看不见、摸不着，秤又秤不出重量，化验又验不出化学成份，但这样东西确实存在，且并不是一种抽象的概念或宗教给人的幻觉。
 
-欧盟立法者表示，中（共）国的制裁并非基于国际法，而欧盟的措施（如英国和美国）则在于坚持联合国条约，应对侵犯人权的行为。
 
-北京否认有任何不法行为。
 
-欧洲议会在决议中说，议会“要求中（共）国在处理（投资协定）之前，先解除制裁”。该决议没有法律约束力，但现在这是议会的正式立场。它说：“中欧关系可能不会像以往一样继续发展下去了。”
+**文字版原文：[【信仰之声】白话（三）信心](https://gnews.org/zh-hans/1249291/)**
 
-作为对决议的回应，中（共）国驻欧盟代表团说，该投资协议是“互惠互利”的，而不是只对一方 “有利”的。它说，中（共）国的制裁是对欧盟行动的合理回应。
+作者：纽约香草山福音部  Jinglechenge
 
-代表团周五在网站上发表的一份声明中说：“中（共）国一直真诚地促进双边合作，希望欧盟与我们相向而行。”
 
-僵局对中（共）国和欧盟都是一个挫折。批准该条约将为欧洲在中（共）国的投资和知识产权提供更多的保护。欧洲外交官说，希望中（共）国改善其行为，成为国际社会上一个公正和受人尊敬的贸易伙伴。
 
-活动人士和联合国人权专家说，至少有100万穆斯林被拘留在新疆的集中营中。活动人士和一些西方政客指责中共使用酷刑、强迫劳动和强制绝育。中共否认在新疆侵犯人权，并说集中营是为了提供职业培训，是打击极端主义所必需的。
+音频处理/发稿：雪梨
 
-原文链接**：[https://www.reuters.com/world/china/eu-parliament-freezes-china-deal-ratification-until-beijing-lifts-sanctions-2021-05-20/](https://www.reuters.com/world/china/eu-parliament-freezes-china-deal-ratification-until-beijing-lifts-sanctions-2021-05-20/)**
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

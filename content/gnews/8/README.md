@@ -1,47 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【拆台新闻】虚伪的爱护动物宣传
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1263447/)
+## 中国国民党扰乱台湾政府防疫 强推中共疫苗
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1263576/)
 
-今天是国际生物多样日， 央视新闻发了一篇软文，配上的是精美的图片， 题目是：它们有话对你说。
+台湾宝岛农场 Amitofu
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21230005/194.jpg)
+台湾蔡政府团队、卫福部、指挥官陈时中、第一线医护人员和各部会官员与台湾人民的共同努力对抗中共病毒，这一年多来台湾度过多次的难关，成了世界各国的防疫模范生，然而近日中共开始对台湾放毒，不明个案和广泛的活动造成防疫上的缺口，中共甚至透过中国国民党、台湾间谍、促统会白狼、退休军官将领对台湾进行疫苗认知战，首先由蔡衍明三中集团旗下传媒、网络、名嘴抹黑陈时中疫苗采购黑箱作业，不透过辉瑞大中华区代理商上海复星购买疫苗，转向德国原厂洽谈购买AZ，并且声称买贵疫苗，开始针对台湾疫苗采购发动攻击。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22001629/KMTCCPVIRUS-333x225.png)賣台賊的疫苗計畫
+国民党情愿牺牲台湾国家的安全与人民健康，效忠中共中南坑的疫苗政策，来获取他们未来成功夺取政权的政治红利，中共利用此次新冠状病毒的生物超限战，和这些卖台贼的疫苗计划来里应外合，想企图瘫痪台湾医疗，像印度医疗系统濒临崩溃，让中共疫苗冲天而降的恩赐台湾人，甚至对军事、政治、经济的瘫痪行动，藉此攻击蔡政府团队而拉下政权走向统一之路。
 
-刚好，又看到这样一则新闻：
+中共共机不断绕台，企图武统台湾、打压台湾进入世卫、打压香港民主自由、犯下新疆种族灭绝、打压藏人生存自由和中共解放军在武汉实验室制造COVID-19病毒，对世界发动生物超限战的同时，台湾间谍中国国民党还要出卖2400万人的未来，包含马英九、丁守中、江启臣、赵少康、陈文茜、黄智贤、赖士葆、洪秀柱、陈玉珍、连战连胜文、吴斯怀、叶毓兰、杨志良、蔡正元、郑丽文、侯友宜、柯文哲等人。
 
-相比之下，武汉大学动物实验中心和动物生物安全3级实验室确实具有进行非人类灵长类动物实验的能力。以下照片来自中文 出版物， 显示了受限制的武汉大学动物实验中心和动物生物安全3级实验室的内部，特别是非人类灵长类动物设施。
+所有的疫苗都会有副作用，甚至可能会引起某些严重的过敏反应，甚至引起并发症致死，2019年底文贵先生香世界发出警告，中共将对全世界放毒，2020年119路德社、博士军团、[闫丽梦博士Dr. Li-Meng YAN](https://twitter.com/DrLiMengYAN1?s=20)表示用羟氯喹加锌片就能防御病毒感染(zinc plus low-dose hydroxychloroquine)，羟氯喹能挽救无数个生命和家庭，包含[Dr. Zev Zelenko](https://vladimirzelenkomd.com/)(@zev\_dr被推特无理由关闭)、[Dr. Urso](https://twitter.com/richardursomd?s=20)、[Dr. Simone Gold](https://twitter.com/drsimonegold?s=20)、[Didier Raoult HCQ/AZ](https://twitter.com/raoult_didier?s=20)、[Kulvinder Kaur MD](https://twitter.com/dockaurG?s=20)、[James Todaro, MD](https://twitter.com/JamesTodaroMD?s=20)和无数字医生对病患使用HCQ的治疗受到验证。中共病毒对世界造成的伤害，再加上哪个国家只要研制出疫苗，就会被中共放毒而出现变种病毒，疫苗生产根本来不急应付中共投毒的速度，国民党这些卖台贼还和中共连手疫苗计划来扰乱防疫工作。
 
-从2005年至2019年，占地500平方米的武汉大学ABSL-3实验室在1300多只猴子上完成了艾滋病，结核病，SARS和其他实验，其中包括一批通过SARS灭活疫苗进行了18只实验猴子体内实验的疫苗。
+笔者认为台湾现在是面临挑战的时候，政府和前线医护努力守住疫情，台湾人必须一起团结，戴口罩不群聚，勤洗手减少外出并落实实联制，遵守中央流行疫情指挥中心各项防疫规范，一起抵抗中共病毒。祈祷万佛万神加持75亿人不受到中共病毒的威胁
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21230326/195.jpg)
+本文仅代表个人立场
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21230449/196.jpg)
+資料來源:文贵先生、班农战斗室、路德社、闫丽梦博士、博士军团、新中国联邦
 
-一个温情脉脉的言语下面， 行的是何等残忍的事。
+审核:Athena雅典娜 发布:Amitofu
 
-是谁在吃熊掌，是谁在用用象牙做艺术品，一定不是穷苦的中国普通老百姓吧。
-
-一边高喊着爱护动物，却在破坏自然环境，自然水资源，还残忍的拿猴子做病毒试验，是培养病毒制造病毒的试验。
-
-仅仅看中共的宣传， 恍惚间，活在美好的天堂里， 这里人人都善良，人人是象天使一样， 实际上呢，人口红利，韭菜，草民，仅仅是发明的新词语，仔细想一想， 老百姓就和这些试验动物有什么区别呢。 在国际社会上， 中共宣扬的都是老百姓安居乐业， 还时不时对着空气代表百姓喊几句，他们有话对你说。
-
-看看这些猴子的眼睛， 你会落泪吗？
-
-参考链接：央视新闻客户端
-
-
-
-> [We Know COVID-19 Was Created in a Laboratory – New Revelations from Inside China Indicate Actual Location of its Military Origin](https://www.thegatewaypundit.com/2021/05/know-covid-19-created-laboratory-new-revelations-inside-china-indicate-location-military-origin/)
-
-
-
-图片来源：[https://www.thegatewaypundit.com/](https://www.thegatewaypundit.com/)
-
-整理撰稿：蓝精灵
-
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
 +1

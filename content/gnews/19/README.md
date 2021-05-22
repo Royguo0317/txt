@@ -1,35 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【拆台新闻】科学问题科学解答要失败了 中共开启流氓种族模式
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1263370/)
+## 【热点播报】健康部门遮掩新冠疫苗副作用
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1263461/)
 
-5月21日玩，在全球健康峰会上，中共党主席习近平发表了共建人类卫生健康共同体的重要讲话，提出：要摒弃疫苗民族主义，大国应该多提供疫苗给发展中国家。
+作者：纽约香草山媒体部 7bends
 
-去查了一下什么是疫苗民族主义，中央广播电台出了了国际锐评，大意是举了印度疫情恶化的例子，疫苗分配不公，富国囤积疫苗，疫苗民族主义正成为全球团结抗疫的拦路虎。
 
-简评：
 
-从上述的内容， 其实中共是想说：要批准并在全球推销购买中共的疫苗，否则就是疫苗民族主义。恰恰是中共一如既往的手法，将所有的不论是否科学的事情全部都政治化。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-目前国际社会整个科学界都在朔源CCP病毒的真相，而中共却在如火如荼的把疫苗不断地推向第三世界国家。在一带一路备受挫折地情况下，试图用疫苗一带一路加以挽救。
 
-但是，中共疫苗的有效数据，测试数据并没有公开，无法取得国际认可，加上中共疫苗注射率最高的塞舌儿，巴西，智利等国家，疫情反而增长，虽然中共在网络上掩盖了非常多的负面报道， 但是还是引起很多人的怀疑。尤其是巴西总统在媒体上公开指出：新冠病毒是实验室制造，是CCP放出的生物武器。
 
-就在这几天，欧洲很多的科学家偷偷撤下了之前质疑闫博士“病毒实验室起源论”的相关报道，在西方Covid-19侦探家们的努力下， 病毒的制造过程，地址，路径，一点一点都在浮出水面。
+National News刊登文章称，健康部门遮掩新冠疫苗的血管损害和急性过敏反应。虽然笔者对该文章称CCP病毒为“中国病毒”有异义，但对文章涉及的新冠疫苗的副作用，笔者印象深刻。
 
-之前在质疑病毒的时候， 中共说这是科学的问题，要用科学来解答。 在闫博士出了三份报告后， 以及Covid-19侦探们曝光了大量的信息， 和相关的科研人员名单之后，看来科学问题科学解答这个也快走不下去了，
+![]()![](https://media.discordapp.net/attachments/824587088309649429/845327831562977300/image1.jpg)
 
-现在提出疫苗民族主义， 是试图在国际上到处挑拨离间，并且利用种族主义来对付美国。不知道过几天会不会又开始谈道德了呢？
+虽然各国政府和医疗机构一再保证，注射冠状病毒疫苗是安全的，但一直以来听到、看到打了新冠疫苗而造成面瘫、中风、出血、过敏或其他损害的消息却从来没断过。
 
-一个只有谎言的政府，无论说的多漂亮，发明多少美丽的词汇，最后还是要被真相击败，消灭共产党，这才是人类命运共同的需求。
+文章提及，政府部门称，新冠疫苗的刺突蛋白（Spike Proteins）在体内不会带来任何长期的风险。但Salk研究所（Salk Institute）的研究却发现，正是刺突蛋白（Spike Proteins）造成了许多新冠疫苗注射者的血管受损，从而导致中风、血栓、过敏等症状。目前市面流行的四种品牌的新观疫苗，要么本身含有，要么会让接种者身体自己制造刺突蛋白（Spike Proteins）。
 
-参考链接：央视新闻客户端
+该文章还提到，即使声称疫苗安全的康涅狄格公共卫生部门（CDPH）也在其一份“疫苗接种前检查清单”中提示医护人员，要注意在接种疫苗时引起的立即过敏反应和如何有效地治疗这种过敏反应。
 
-整理撰稿：蓝精灵
+![]()![](https://media.discordapp.net/attachments/824587088309649429/845327831176970240/image0.jpg)
 
-校对发布：Penny
+虽然研发企业对此回应说，疫苗产生的抗体可以防止损伤，但Salk研究所不同意此种回应。Salk研究所认为，当接种新冠疫苗人的免疫系统足够强壮时，可以防止最开始时明显的、立即的刺突蛋白伤害，但如果之后当他们患了其他疾病而免疫系统受损时，又会发生什么事呢？
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+参考阅读：
+
+[Health departments caught lying, covering up covid vaccine vascular damage and “acute anaphylactic reactions”](https://www.naturalnews.com/2021-05-19-health-departments-lying-covid-vaccine-vascular-reactions.html)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0

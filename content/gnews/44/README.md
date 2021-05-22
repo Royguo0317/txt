@@ -1,41 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【锐语】中共对外宣传的代言人 哈佛肯尼迪学院
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1263135/)
+## 【热点播报】欧洲议会通过冻结“欧中投资协定”
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1263207/)
 
-中美合作交流基金会每年组织哈佛大学的研究生区中国旅行，在旅途中，哈佛代表团成员还会见了中国人民对外联合会（CPAFFC），这是中国共产党统一战线的另一个组成部分。
-
-美国国务院称该组织寻求“直接和恶性地影响”美国各州和地方领导人，由前中共最高领导人的女儿领导，“据称是该党的分支” 。
-
-一个代表团在2019年访问了美国和大洋洲事务部总干事，并指出：“青年交流是两国之间友谊的最重要渠道，是我们未来合作的坚实基础。”
-
-全国人大常委会副总干事也在2016年会见了哈佛大学肯尼迪学校代表团。
-
-代表团访问了北京，成都和上海，参加了实质性会议，以更好地了解中国的全球参与以及该国在世界舞台上面临的机遇和挑战。通过与外交部，国家发展和改革委员会（NDRC）国际事务部官员的讨论，以及四川省人民对外友好协会，上海市委员会等区域组织和企业商学院和NIO上海，使学生对中国与外国合作的方式有了更深入的了解，并获得了中国今天所处的独特的经济和全球事务状况的第一手经验。
-
-除了会见中国共产党官员和国有智囊团，学校以及势力团体之外，代表团成员还透露他们还参观了华为的设施。
-
-2009年CUSEF的宣传手册描述了“哈佛共同愿景项目”：“哈佛大学肯尼迪政府学院学者以及包括“北京大学，中国社会科学院”在内的国立机构学者的联合研究项目。科学和上海国际问题研究所。”
-
-该项目的最终成果是一本名为《权力与约束》的书，“该书秉承了CUSEF的信息，即中美可以而且必须共同努力增进相互了解，以应对两国共同面临的挑战。 ”
-
-为了发行这本书，CUSEF在华盛顿特区举办了一次活动，拜登的气候沙皇John Kerry，CUSEF创始人董建华和哈佛大学肯尼迪学校教务长David Ellwood致辞。
-
-参考链接：
+香草山健身部 Ivy001
 
 
 
-> [COMPROMISED: Harvard Subjects Students To Trips, Research Papers Authored By Chinese Communist Party Propaganda Front.](https://thenationalpulse.com/exclusive/harvard-kennedy-school-takes-ccp-trips/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193903/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1-2.jpg)
 
 
 
-图片来源：[https://thenationalpulse.com/](https://thenationalpulse.com/)
+法广报道，5月20日，欧洲议会以599票赞成，30票反对，58票弃权，压倒性的通过了冻结“欧中投资协定”的提议。
 
-整理撰稿：蓝精灵
+由默克尔大力推动的“欧中投资协定”，历时约七年，30多回合谈判，于去年底完成，但必须经由欧洲议会以及成员国批准，才能生效。之前已经有消息传出，这份协定可能会被暂停。中共国政府用尽各种方法，仍然无法改变结果。该协定将会被冻结，直至北京对欧洲官员实施的报复性制裁解除为止。
 
-校对发布：Penny
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21211034/16x9-feature-photos-MOS-logos-3-13.png)
+
+
+欧洲议会在20日通过的决议文中，严厉谴责“中共国攻击言论自由，学术自由，不接受贸易协定，不顾人权。”由此可见，价值观不同而造成的分歧，让欧洲民主国家已经无法忍受中共国。德国欧洲议会议员比蒂科夫（Reinhard Butikofer）说：“中共国是非常想要欧中投资协定，但他们错误评估且持续低估欧洲议会捍卫欧洲利益与价值的决心。”
+
+中共国在新疆对维吾尔人的种族灭绝，在香港对民主的暴力压制，对欧洲议员、学者和智库的制裁，让欧洲反对和中共国合作的呼声越来越高。这是独裁与民主、专制与自由的较量。
+
+这个提案的高票数通过。显而易见，在对待中共国的问题上，欧盟各国以及各个不同的派别政党，已经团结一致的和美国站在一起。中共国企图拉拢欧洲国家，分化美欧同盟，对抗美国，进而取代美国的计划落空了。
+
+在决议文中，欧盟还敦促欧盟各国终止与中共国的引渡条约。这意味着，欧盟正在推动外交层面上与中共国脱钩。“欧中投资协定”的冻结，意味着中共国已经彻底失去和欧盟的合作可能性，也代表着世界民主国家确实已经联合起来了，目标是共同灭共。
+
+图片来源：[RFI](https://www.rfi.fr/cn/中国/20210520-欧洲议会压倒性通过-正式冻结欧中投资协议)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 0

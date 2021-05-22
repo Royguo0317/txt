@@ -1,29 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：中国移动被迫在纽约证券交易所下市
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1263177/)
+## 【快讯】布林肯确认美国不寻求购买格陵兰岛
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1263355/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21210519/image002-18.jpg)
-据（华尔街日报）报道，中国移动有限公司表示：在得知上了美国投资黑名单，会被逐出美国市场的几天后，其计划在上海证券交易所发行多达9.648亿股股票。根据其股票周一在香港的收盘价，这意味着交易规模接近61亿美元。
+美国最终对试图购买格陵兰岛不感兴趣，放弃了前总统被称为的“大型房地产交易”。
 
-5月6日，中国移动及其两个较小的竞争对手–中国电信集团和中国联通（香港）有限公司，在美国上诉失败后，纽约证券交易所正在着手将它们除名，以遵守美国前总统川普签署的投资禁令。
+国务卿布林肯的评论是在访问丹麦自治州格陵兰岛并与丹麦和格陵兰大臣会晤时发表的。
 
-中国移动没有解释上海的股票发行与美国的退市有关系。并表示，它计划将交易的收益用于更快的移动网络、新的云基础设施和超高速宽带等项目。
+《华尔街日报》于2019年首次报道，川普曾多次要求助手询问有关购买该岛的问题。
 
-去年，美国前总统川普签署了一项行政命令，禁止美国人投资与中共军队有联系的44家公司，其中包括中国移动、中国联通和中国电信。
+鉴于格陵兰邻近开放北极航运渠道以及当时的白宫经济顾问，白宫后来称其为战略利益。拉里·库德洛（Larry Kudlow） 被称为“很多有价值的矿物质”。川普之前说“从本质上讲，这是一笔不小的房地产交易。有很多事情可以做。这给丹麦带来了极大的伤害，因为丹麦每年损失近7亿美元。因此他们承担了很大的损失，”他说。
 
-几十年来，中国共产党在华尔街的帮助下利用美国资本市场和投资者来壮大中共公司，帮助中其军队能力现代化。在川普下台后，拜登政府继续延续川普政府的政策，以确保支持中共“军民融合战略”的公司无法进入美国资本市场。这也是美国政府在经历了中共对美国经济和科技寄生般的吸血，破坏后，必须做的事情之一。
+参考链接：
+
+[https://thehill.com/policy/international/554792-blinken-confirms-us-no-longer-seeking-to-purchase-greenland](https://thehill.com/policy/international/554792-blinken-confirms-us-no-longer-seeking-to-purchase-greenland)
+
+图片来源：[https://thehill.com/](https://thehill.com/policy/international/554792-blinken-confirms-us-no-longer-seeking-to-purchase-greenland)
+
+整理撰稿：蓝精灵
 
 
 
-[原文链结](https://www.wsj.com/articles/china-mobile-to-list-in-shanghai-as-it-departs-nyse-11621322741?mod=searchresults_pos11&amp;page=1)
+校对发布：Penny
 
-本文作者：林林虎
+\*以上仅代表作者观点，不代表Gnews平台\*
 
-审核校对：鲁邦五世
-
-上传排版：糊糊文婴
-
-0
++2
