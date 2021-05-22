@@ -1,58 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月21日美国政要反共推文精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1263130/)
+## 【世事解评】墙内猪肉价格跌跌不休，生猪养殖业苦不堪言
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1263248/)
 
-参议员汤姆·科顿: [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 公司（尤其是实力雄厚的公司）是中共的分支机构，最终处于国家控制之下。现在该是我们的法律认清这一现实的时候了。我们的法案将堵住法律漏洞，并迫使为中共国公司游说者注册为外国代理人。 【附科顿参议员官网新闻：科顿，加拉格尔推出草案，以堵住为中共国公司游说的漏洞】
-
-
-
-> Chinese companies—particularly powerful ones—are arms of the CCP & remain ultimately under state control. It’s time our laws recognize that reality. Our bill will close legal loopholes & force lobbyists for Chinese companies to register as foreign agents.[https://t.co/JnuZkJ8n3D](https://t.co/JnuZkJ8n3D)
-> — Tom Cotton (@SenTomCotton) [May 21, 2021](https://twitter.com/SenTomCotton/status/1395779935919349767?ref_src=twsrc%5Etfw)
+香草山健身部 Jack Li文阳
 
 
 
-参议员瑞克·斯科特： 把纳税人的钱投资到 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) ，威胁了我们的国家安全和危害了美国人的退休储蓄。我很自豪加入卢比奥 [@marcorubio](https://twitter.com/marcorubio) 等同事，提出“纳税人和储蓄者保护法”（TSP ACT），防止联邦雇员退休储蓄计划（TSP） [@tsp4gov](https://twitter.com/tsp4gov) 退休储蓄用于 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click)。（转推卢比奥同内容推文）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
 
 
 
-> Investing taxpayer dollars into Communist China threatens our national security & jeopardizes Americans’ retirement savings. Proud to join [@marcorubio](https://twitter.com/marcorubio?ref_src=twsrc%5Etfw) & my colleagues to reintroduce the TSP Act to prevent the [@tsp4gov](https://twitter.com/tsp4gov?ref_src=twsrc%5Etfw) from steering retirement savings to Communist China. [https://t.co/TzGVzFveTW](https://t.co/TzGVzFveTW)
-> — Rick Scott (@SenRickScott) [May 21, 2021](https://twitter.com/SenRickScott/status/1395755553331290121?ref_src=twsrc%5Etfw)
+2019年到2020年底，中共国国内猪肉价格不断上涨，零售价最高到了五六十元/斤，老百姓陷入吃不起猪肉的困境。一时间，能吃上猪肉成为一些人炫耀的资本。由于猪价冲天，各养殖场增加生猪的饲养量。很多新资本也纷纷加入养猪队伍。但从今年年初到今年5月，全国猪肉价格一直下跌，甚至跌至10元/斤以下。
 
+国内大部产区，生猪价格已经跌入“9元时代”。目前北方主流地区大部分猪价格已经降至7.6~8.5元/斤。除浙江猪价10.15元/斤，海南猪价12.45元/斤，南方大部地区猪价跌到了9元以下。北方主流地区猪肉价格已经降至7.6~8.5元/斤，长线还要继续看跌。
 
+由于猪肉价格累创新低，行业盈利大幅缩水，部分养殖户也陷入了亏损状态。由于玉米等饲料粮价格的上涨，势必会增加养猪的成本。按理来说，猪价应同粮食价格一起上涨的。否则，养猪业盈利效应丧失会让养猪户出现弃养，又会导致生猪养殖再度低迷，猪肉价格会再度疯涨，形成“猪周期”的市场行情。有业内人士透露：目前的生猪养殖成本，家庭养殖户成本能达到约7~8元/斤；外来资本新进入生猪养殖行业，考虑到使用新的、高配置的设备，企业成本一般约7.5元/斤；但如果是养猪企业靠租借猪栏去养猪，成本会更高，超过8块钱/斤。目前购买一头仔猪的价格接近1600元，如果生猪价格与养猪成本持平，当初购买仔猪的成本就是亏损了。
 
-众议员迈克·加拉格尔： 任何重要到注册游说者的中国公司，其重要性足以为 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 共同操控。 自豪加入科顿议员出台立法以堵住游说者的漏洞，并降低中共使用沼泽地对付我们的能力。 【附加拉格尔议员官网发布的关于该提案的新闻】
+粮食问题一直困扰着中共，无法得到很好的解决。中共经常搞菜篮子工程，声称要“重点抓好肉、蛋、奶、鱼、菜、果等产品生产；要实现生产布局合理、总量满足需求、品种更加丰富、季节供应均衡”。可一切总是事与愿违。近两年的猪肉价格上下四五倍的价格波动，正好反映了中共敛财有术，治国无方。过山车般的价格，既无法保障老百姓的菜篮子，也无法保证养殖业的经济利益。老百姓只能一年吃肉一年吃草，养殖业一年活一年死，但中共官员照样年年升迁，步步高升，永远伟光正。
 
+参考阅读：https://www.163.com/dy/article/GA798N1S0512JUR9.html
 
+[猪价阴跌不止，真没救了？肥猪存栏不到3成，猪价或将翻天上涨？](https://www.163.com/dy/article/GABVR3JG05523MH0.html?f=post2020_dy_recommends)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+编辑/校对/发稿：正义的小新
 
-> Any Chinese company important enough to register lobbyists is significant enough to be co-opted by the CCP.
-> 
-> Proud to join [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) in introducing legislation to close loopholes for lobbyists and reduce the CCP's ability to use the swamp against us. [https://t.co/j3WfHpTdhQ](https://t.co/j3WfHpTdhQ)
-> — Rep. Mike Gallagher (@RepGallagher) [May 21, 2021](https://twitter.com/RepGallagher/status/1395815458046201868?ref_src=twsrc%5Etfw)
+**更多资讯，更多关注**
 
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-众议员克里斯·史蒂夫： 我朋友加拉格尔[@RepGallagher](https://twitter.com/RepGallagher) 揭露了有关美国纳税人的钱可能资助了在武汉实验室研究的真相。 这与指责无关而是为了防止另一场灾难。我们需要使我们的世界彻底颠倒的病毒起源的更多答案。 【转加拉格尔议员的推文：揭露美国NIAID 和NIH资金如何流向武毒所】
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-> My friend [@RepGallagher](https://twitter.com/RepGallagher?ref_src=twsrc%5Etfw) exposes the truth about U.S. taxpayer dollars potentially funding research at a Wuhan lab.
-> 
-> This isn't about assigning blame. It's about preventing another catastrophe. We need more answers about the origin of a virus that turned our world upside down. [https://t.co/8vS6fvj0jh](https://t.co/8vS6fvj0jh)
-> — Rep. Chris Stewart (@RepChrisStewart) [May 21, 2021](https://twitter.com/RepChrisStewart/status/1395778100999430150?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿蓬佩奥： 就在乔拜登上任的前几个小时，他就送给 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 一份大礼，重新加入了巴黎气候协议。美国看起来是唯一一个遵守承诺的国家——它也只有通过毁掉中产阶级的工作才能这么做。拜登政府继续让 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 胜利。
-
-
-
-> Just hours into his Presidency, Biden gave China a gift by rejoining the Paris Climate Accords. The US will likely be the only nation to meet its commitments — and it will only be able to do so by destroying middle class jobs.
-> 
-> The Biden Administration continues to let China win.
-> — Mike Pompeo (@mikepompeo) [May 21, 2021](https://twitter.com/mikepompeo/status/1395737034430500868?ref_src=twsrc%5Etfw)
-
-
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 0

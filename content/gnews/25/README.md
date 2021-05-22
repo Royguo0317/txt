@@ -1,38 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/05/20-002 文贵先生盖特精要
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1262862/)
+## 佩洛西呼吁抵制北京2022年冬季奥运会
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1263009/)
 
-听写： 逍遙自在 | 校对/审核：樂禧禧 | Page：我是球大哥
+翻译：康州盘古农场 – 柯镇恶
+校对：康州盘古农场 – 格格巫
+编辑：康州盘古农场 – 心照
+发布：康州盘古农场 – 彩虹 Rainbow
 
-[!\[\]()!\[\](https://spark.adobe.com/page/BBrC0nl9VVftS/images/117b4d22-2784-4e38-b86f-ffb6d8e45814.jpg?asset_id=99905d5d-e511-40c7-9072-2848eba1ad8b&amp;img_etag=%2201dd539fa97b05c41cd94eacc5b18605%22&amp;size=1024)](https://spark.adobe.com/page/BBrC0nl9VVftS/images/117b4d22-2784-4e38-b86f-ffb6d8e45814.jpg?asset_id=99905d5d-e511-40c7-9072-2848eba1ad8b&amp;img_etag=%2201dd539fa97b05c41cd94eacc5b18605%22&amp;size=1024)
+**据《路透社》作者：David Brunnstrom,Michael Martina 2021年5月19日报道**:
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21192859/kokoyy-scaled.jpg)
+美国众议院议长南希·佩洛西（Nancy Pelosi）周二呼吁美国对北京2022年冬季奥运会进行外交抵制，她批评中共国侵犯人权，并表示参加（北京冬奥会）的领导人将失去道德权威。
 
-**五月二十号：感谢很多战友．对文贵昨天．试吃拉肚子的关心．和很多战友对虚拟货币．发生的这些灾难性事件，文贵的一些看法！**
+美国国会议员对抵制奥林匹克运动会或改变举办地的呼声越来越高；并抨击了美国企业，称美国国务院已经认定中共对于维吾尔族和其他少数民族实施的种族灭绝罪行，而这些企业对此却保持沉默，这是是对中共政府的怂恿。
 
-[G-TV链接](https://gtv.org/getter/60a6e2db37f7f73984ce0126)
+民主党人佩洛西（Pelosi）在两党国会听证会上表示，世界各国元首应避免参加原定于（明年）2月举行的奥运会。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/BBrC0nl9VVftS/images/78c67fc7-94e5-4882-91cb-4eb67f78a030.png?asset_id=546c4703-41b6-4d14-ada3-515e5649349a&amp;img_etag=%22e5a525f58a48bf00044469e6967315e5%22&amp;size=1024)](https://spark.adobe.com/page/BBrC0nl9VVftS/images/78c67fc7-94e5-4882-91cb-4eb67f78a030.png?asset_id=546c4703-41b6-4d14-ada3-515e5649349a&amp;img_etag=%22e5a525f58a48bf00044469e6967315e5%22&amp;size=1024)
+佩洛西说：“我（与其他国家一起）的提议是，外交抵制。世界上的主要国家应当拒绝参加奥运会。”她说：“不要让各国元首去中国，向中共政府表示敬意。”
 
-•各位買Gclub战友一定要尽快对帐，争分夺秒通過KYC。
+“此时我们正坐在这里的时候，种族灭绝罪行正在发生。如果这个时候各国元首仍然去中共国，这真是让人怀疑，你还有什么道德权威来谈论世界上任何地方的人权？” 她说。
 
-•买G-TV和G-CLUB会员尽可能的都用自己KYC通过的喜美元账号去购买，也很快可以购买G-Fashion。
+联合国独立小组在2018年表示，已经收到可靠的报告，说至少有100万维吾尔人和其他穆斯林被关押在中国新疆地区的集中营中。北京将其描述为消除极端主义的职业培训中心，并矢口否认虐待和种族灭绝的指控。
 
-• 在洛杉矶的美国的国土安全部等人完全操弄司法威胁G-Fashion高管，致使不得不关掉。
+中共国大使馆发言人刘鹏宇告诉路透社，美国试图在奥运会上干涉中共国的内政，注定要失败。
 
-•现在的G-Fashion大换血，新的高管来自香奈儿美国区总裁，普拉达，古驰的高管加入。
+他说：“我不知道是什么使一些美国政客认为他们实际上拥有所谓的’道德权威’？在人权问题上，无论从历史上还是目前，他们都无权对中国进行毫无根据的批评。 ”
 
-•G-Fashion起的作用是把G-CLUB合法的凝聚在一起，未来G-Fashion要变成变成新中国的亚马逊。
+“负起责任”
 
-• 我们爆料革命是以假灭共，用共产党的假话来灭共产党，你们的搞假话来灭我们，证明我们说的都是真话，我们最后是以真灭共，以假灭共是共产党的假，以真灭共是我们是真，以假灭共是证明你的假
+主持听证会的共和党众议员克里斯·史密斯（Chris Smith）说，应召集企业赞助商在国会面前作证，并让他们“负起责任”。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+史密斯说：“大企业只想赚很多钱，东道国（中共）犯下的残酷之甚的种族灭绝罪行似乎并不重要。”
 
+民主党国会议员吉姆·麦戈文（Jim McGovern）补充说，应该推迟奥运会，以便国际奥委会有时间（将奥运会）“迁往政府未实施暴行的国家”。
 
-编辑：【英国伦敦喜庄园编辑部】
+麦戈文说：“如果我们能因为大流行而将奥运会推迟一年，那么，我们当然更可以因种族灭绝罪而将奥运会推迟一年，”麦戈文说。他指的（奥运会）是因为COVID-19，日本和国际奥委会决定推迟在东京举行的2020年夏季奥运会。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/BBrC0nl9VVftS/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/BBrC0nl9VVftS/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+以某种形式抵制北京奥运会的要求正在增长
+
+上个月，共和党参议员罗姆尼（Mitt Romney）提出了一项针对更广泛立法的修正案来对付中共国，以实施美国的外交抵制。
+
+人权活动家联盟周二呼吁运动员抵制奥运会，并向国际奥委会施加压力。
+
+美国总统拜登（Joe Biden）政府曾表示，希望与盟国发展一种共同参与北京奥运会的方式，但国务卿安东尼·布林肯（Antony Blinken）一再表示，该问题尚未得到讨论。
+
+当被问及关于佩洛西的评论时，一位高级政府官员告诉路透社，政府在2022年奥运会上的立场没有改变。
+
+民主党人拜登说，中共国是美国的战略竞争对手，并誓言在他的领导下，不会让中共国超过美国，成为世界上的领导者。
+
+参加北京奥运会的美国支持者表示，惩罚运动员是不公平的。奥运会将使美国拥有最多冬季奥运会奖牌数量的国家之一，（为运动员）提供一个在全球舞台上展现其生命力的平台。
+
+美国奥林匹克和残奥会委员会主席莎拉•赫什兰（Sarah Hirshland）在一份书面声明中说，委员会对“维吾尔族遭受的压迫”感到担忧，但是禁止美国运动员参加奥运会“肯定不是答案”。她说：“过去的奥运会抵制未能达到政治目的。”
+
+原文链接：
+[https://www.reuters.com/lifestyle/sports/pelosi-says-us-should-diplomatically-boycott-2022-olympics-china-2021-05-18/](https://www.reuters.com/lifestyle/sports/pelosi-says-us-should-diplomatically-boycott-2022-olympics-china-2021-05-18/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
