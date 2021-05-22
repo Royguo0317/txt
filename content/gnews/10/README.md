@@ -1,25 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 奥地利总理如果被指控， 47%的选民要求他辞职
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1264226/)
+## 奥地利总理因为虚假陈述接受调查
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1264285/)
 
 信息来源：德国世界报网络版 
 发布时间：2021年5月20日
 翻译 /整理/ 简评： Shuizhuyu
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22060421/Austria-s-Chancellor-Kurz-attends-a-news-conference-in-Vienna.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22070122/daniel-plan-OE7jKpsk7uU-unsplash-scaled.jpg)
 
 
-图片来源：路透社
+维也纳的戏剧性政治扑克：检察长办公室正在调查涉嫌虚假陈述的奥地利政府首脑。 总理可能会很快被起诉。
 
-如果被指控 奥地利的一项调查显示，塞巴斯蒂安·库尔兹（Sebastian Kurz）在对虚假陈述的调查中承受了多少压力。据此，如果被指控，选民都会支持总理的辞职。 检察官办公室正在调查奥地利总理塞巴斯蒂安·库尔兹（ÖVP）涉嫌虚假陈述。他本人并不希望定罪，而是希望提出起诉-对他而言在政治上可能是敏感的。 根据舆论研究机构Unique Research为《 Profil》杂志进行的一项调查，如果有起诉书，则有47％的人会要求总理塞巴斯蒂安·库尔兹（Sebastian Kurz）辞职。 41％的候选人是库尔兹继续任职。
+在病毒危机期间，自2020年初起领导保守派和绿党之间的政府联盟的奥地利总理塞巴斯蒂安·库尔兹（ÖVP）陷入困境：经济和腐败检察官办公室（WKSTA）正在对他进行调查。由于涉嫌虚假陈述而成为嫌疑人。 库尔兹坚决拒绝这些指控。
 
-简评：因为在病毒大流行期间的一些不真实的陈述， 奥地利总理接受调查。 调查的结果如果是被起诉， 那么有几乎一半的选民要求他辞职。 那么这位年轻的总理， 就会因为大流行而葬送他的政治生涯。 这位总理是1986年出生的年轻人。 中共病毒对人不光有健康危害， 各种危害和伤害，都在发生着。
+简评：奥地利总理是欧洲最年轻的总理，因为虚假陈述现在正在接受调查。 我们先不管他的虚假陈述是否成立， 只就他被调查这件事情的本身，就可以明显的表现出了民主国家的优越性。 不管是谁， 不管你的职位多高， 你是被选出来的， 你就要接受全体人民的监督， 你就要对你所作的一切合理的解释。 民众不满意， 发现疑点， 就会对你进行调查，你还要配合调查。 任何人没有特权。 这跟中共国是天壤之别。
 
 免责声明， 本文只代表作者观点， 与 Gnews平台无关。
 发表： Shuizhuyu
 
-🔗[Oesterreich-47-Prozent-fuer-Ruecktritt-von-Sebastian-Kurz-falls-Anklage](https://www.welt.de/politik/ausland/article231260871/Oesterreich-47-Prozent-fuer-Ruecktritt-von-Sebastian-Kurz-falls-Anklage.html)
+🔗[Ermittlungen-in-Oesterreich-Wie-geht-es-weiter-mit-Kanzler-Kurz](https://www.welt.de/politik/ausland/plus231240705/Ermittlungen-in-Oesterreich-Wie-geht-es-weiter-mit-Kanzler-Kurz.html)
 
 0

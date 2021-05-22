@@ -1,32 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以军精确制导武器不仅能精确制导，还能视频直播
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1263982/)
+## 2021/05/19 班农采访(6)：中共被质疑是哈马斯幕后黑手
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1264086/)
 
-#### 文章撰写:【默凡】
+视频字幕：雨中漫步 | 听写/翻译：Wade | 校对：Roberts | 简评/文字整理/编辑：胖丁 | Page：Daoiii
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22040713/118595120_mediaitem118595119.jpg)
+**简评：**
 
-本周五（5月21日），巴以冲突暂时画上句号，双方结束了这场持续了11天并造成超过240人死亡的轰炸冲突。虽然以色列与哈马斯均声称自己在冲突中获胜，但真正的赢家就是军事实力强大的以色列，以色列铁穹火箭弹防御系统的拦截成功率超过90%，还对数十名哈马斯高官事实定点清除行动。
-
-巴以冲突结束后，以色列空军对外发布了其精确打击视频，现在的精确制导武器，不仅能定点狙杀，而且还能视频直播。可见，以色列科技是多么先进，有视频，有真相，这让哈马斯政权下次不敢轻易对以色列动手，同时也威慑了朝鲜、伊朗和中共国这些流氓政权。
+**中共公开支持巴勒斯坦犯罪组织哈马斯，被质疑是幕后黑手。虽然尚未有可靠的证据，但中共一贯躲在背后操纵，需要继续观察。**
 
 
 
-> חיל-האוויר תקף במהלך היום מספר עמדות שיגור רב-קניות ועמדות לשיגור כטב״ם אשר ארגון הטרור חמאס התכוון לשגר לעבר מדינת ישראל, במערך ההגנה האווירית של ארגון הטרור חמאס. [pic.twitter.com/iwQmZSncGP](https://t.co/iwQmZSncGP)
-> — Israeli Air Force (@IAFsite) [May 20, 2021](https://twitter.com/IAFsite/status/1395424084230479873?ref_src=twsrc%5Etfw)
+GTV视频链接Q6：[中共对哈马斯的支持是否意味着中共是幕后黑手](https://gtv.org/video/id=60a89fbf93cb4b1e6f9b8982)
+
+**视频字幕：**
+
+**主持人：**说到海外局势，最近中共外交部长王毅说，美国在巴以冲突上站在了错误的一边。中共如此支持巴勒斯坦犯罪组织哈马斯，是否意味着这些恐怖主义的幕后正是中共？班农先生。
+
+**Bannon：**我们需要找出证据。我们不能沒有依据地隨意指控。目前我们尚未有足夠的证据。很明显中共有嫌疑。但我们取胜靠的是事实，比如武汉实验室，我们把一切都放在桌面上分析。通常我们会发现中共阴险地躲在幕后，但是我们需要继续观察。
+
+[**完整访谈视频**](https://gtv.org/video/id=60a50f53db13300ca55b1ace)
+
+**主播：**Daniel, Dr. TCC, Castle和Mike
+
+- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
+- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
 
 
+***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三直播***
 
-参考文章：
+编辑：【英国伦敦喜庄园编辑部】
 
-[**以色列与哈马斯达成停火协议 11天流血冲突超过240人死亡**](https://www.bbc.com/zhongwen/simp/world-57196805)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
-本文仅代表作者本人观点，不代表Gnews平台
 
-* * *
+[!\[\]()!\[\](https://spark.adobe.com/page/GZGBIBNDviQPu/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/GZGBIBNDviQPu/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)
 
-***排版发布：日本东京方舟农场 文柯Miles***
+
 
 0
