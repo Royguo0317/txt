@@ -1,40 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙国资讯】中石油与缅甸军政府交易航空燃料
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1263944/)
+## 留守儿童对打工父母的含泪嘱托为何如此让人肝肠寸断
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1264118/)
 
-作者：休斯顿星光农场 写作部 H.B
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21222334/Screenshot_2021-03-25_230524-1.jpg)
-有证据显示，中共央企中石油新加坡分公司在上个月向缅甸出售了一批航煤。这是从2月份昂山素季领导的民选政府发动政变以来, 首次有外国企业给缅甸运送航煤。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22040111/Screenshot-2021-05-22-023337.jpg)
-*图片来源:VOAChinese*
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22043618/%E6%8D%95%E8%8E%B72_%E5%89%AF%E6%9C%AC-1.png)
+据[**熊孩子翻车现场**](https://weibo.com/u/5869826499?refer_flag=1005055013_) [2021年5月19日 15:27](https://weibo.com/5869826499/KgbS8fwg7?from=page_1005055869826499_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
 
-据路透社5月20日报道, 他们是从缅甸官方的进口数据中发现这一情况的。业内消息人士称，供应商们对这笔交易非常谨慎，因为这些燃料不仅可以用于民用飞机，也可以用于军方对少数民族的武装组织实施轰炸的飞机。
+小学生讲述[#最想和爸妈说的话#](https://s.weibo.com/weibo?q=%23%E6%9C%80%E6%83%B3%E5%92%8C%E7%88%B8%E5%A6%88%E8%AF%B4%E7%9A%84%E8%AF%9D%23&amp;from=default) ，泪崩了，是个暖心懂事的孩子  [L熊孩子翻车现场的微博视频](http://t.cn/A6VqPsyS) ​​​​
 
-这份尚未公开的进口数据显示，中石油（国际）在4月15日通过裕东号油轮 (MT Yu Dong) 把13,300吨航空燃料和4,000吨汽油运至缅甸迪拉瓦港。
+在这个要为全球把脉的国度里，有一种惦记叫做让爸爸别光再从北京干活，让爸爸多来看看他，让爸爸别熬夜，让爸爸别一天不吃饭；在这个要建立人类命运共同体的国度里，有一种理想叫做长大后当了兵，然后找个离家近点的好工作，可以天天给爸爸妈妈打钱。
 
-新加坡国际企业发展局（Enterprise Singapore）的数据也证实了中石油的这笔交易。新加坡官方数据显示，除了航空燃料以外，上个月亚洲能源交易中心还向缅甸运送了79,500吨汽油和110,700吨柴油。
+在这个号称全民脱贫的国度里，当局者刻意维持的这种子宫经济之下的骨肉分离总是如此让人泪崩，因为这个孩子的现在何曾不是我们曾经成长的过去和我们正在经历的当下。
 
-此前，英国与美国等西方国家在缅甸军方屠杀民众时都纷纷表示谴责,而中共国只是希望其保持稳定局势,态度模糊。
-
-一些反对军事政变的团体对中共国的立场予以谴责，称北京支持缅甸军方。缅甸秘密活动团体“缅甸正义”发言人表示, 对中石油向缅甸出口航空燃料，与战争罪犯做交易的行为“感到震惊”并谴责。
-
-新加坡南洋理工大学拉惹勒南国际研究院研究员亨里克·曾（Henrick Tsjeng）说，“鉴于北京希望提升其在内比都的影响力，任何一家中(共)国国营企业似乎都不会太在意与缅甸政府做生意所带来的国际社会的反感。”
-
-截止发稿，中共国外交部未就此事作出回应，与该事件有关的中共中石油（国际）也未作出回应。
-
-[https://www.voachinese.com/a/Petrochina-ships-jet-fuel-to-Junta-ruled-Myanmar-data-shows-20210520/5898116.html](https://www.voachinese.com/a/Petrochina-ships-jet-fuel-to-Junta-ruled-Myanmar-data-shows-20210520/5898116.html)
-
-[https://cn.reuters.com/article/idCNL3S2N71XH](https://cn.reuters.com/article/idCNL3S2N71XH)
-
-编辑：文顺 校对/发稿：Helen
-
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
-
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
-
+（文章内容仅代表作者个人观点）
 
 0

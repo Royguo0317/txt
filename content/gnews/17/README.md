@@ -1,29 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Sellin上校揭露姜世勃与刘叔文将弗林酶切位点插入中共病毒
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1263943/)
+## 2021/05/19 班农采访(6)：中共被质疑是哈马斯幕后黑手
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1264086/)
 
-#### 文章撰写:【默凡】
+视频字幕：雨中漫步 | 听写/翻译：Wade | 校对：Roberts | 简评/文字整理/编辑：胖丁 | Page：Daoiii
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22035403/Snipaste_2021-05-22_15-53-20.png)
+**简评：**
 
-Sellin上校5月22日发推：闫丽梦博士是正确的，姜世勃与刘叔文对中共病毒起源至关重要。在其他不良行为中，我相信他们和他们在南方医科大学的同事将弗林酶切割位点插入到中共病毒中。
-
-
-
-> Dr. Li-Meng YAN [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) is correct. Shibo Jiang and Shuwen Liu are important to the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) 
-> Among other bad deeds, I believe they and their co-workers at Southern Medical University inserted the furin cleavage site into COVID-19.[https://t.co/ekeVaPblBI](https://t.co/ekeVaPblBI) [pic.twitter.com/UJNkxcCOhu](https://t.co/UJNkxcCOhu)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 22, 2021](https://twitter.com/LawrenceSellin/status/1395924834455113730?ref_src=twsrc%5Etfw)
+**中共公开支持巴勒斯坦犯罪组织哈马斯，被质疑是幕后黑手。虽然尚未有可靠的证据，但中共一贯躲在背后操纵，需要继续观察。**
 
 
 
-从姜世勃发表的论文来看，他成功地将弗林酶切位点插入到冠状病毒中，这意味着他完全能够往中共病毒中插入福林酶切位点。刘叔文博士与姜世勃曾同在纽约血液中心参与研究工作，2002-2014年期间，刘叔文在纽约血液中心中共的同时，他仍在中共国第一军医大学工作，而第一军医大学就是现今的南方医科大学。
+GTV视频链接Q6：[中共对哈马斯的支持是否意味着中共是幕后黑手](https://gtv.org/video/id=60a89fbf93cb4b1e6f9b8982)
 
-本文仅代表作者本人观点，不代表Gnews平台
+**视频字幕：**
 
-* * *
+**主持人：**说到海外局势，最近中共外交部长王毅说，美国在巴以冲突上站在了错误的一边。中共如此支持巴勒斯坦犯罪组织哈马斯，是否意味着这些恐怖主义的幕后正是中共？班农先生。
 
-***排版发布：日本东京方舟农场 文柯Miles***
+**Bannon：**我们需要找出证据。我们不能沒有依据地隨意指控。目前我们尚未有足夠的证据。很明显中共有嫌疑。但我们取胜靠的是事实，比如武汉实验室，我们把一切都放在桌面上分析。通常我们会发现中共阴险地躲在幕后，但是我们需要继续观察。
+
+[**完整访谈视频**](https://gtv.org/video/id=60a50f53db13300ca55b1ace)
+
+**主播：**Daniel, Dr. TCC, Castle和Mike
+
+- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
+- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
+
+
+***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三直播***
+
+编辑：【英国伦敦喜庄园编辑部】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/GZGBIBNDviQPu/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/GZGBIBNDviQPu/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)
+
+
 
 0
