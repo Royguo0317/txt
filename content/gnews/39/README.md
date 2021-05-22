@@ -1,34 +1,94 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【圣城传声筒】香港的学校（一）
-` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1263308/)
+## 【香草诗词汇】＂躺平币＂就是＂灭共运动＂
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1263358/)
 
-作者：纽约香草山香港部 牛奶仔
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
+香草山健身部 澄道
 
 
 
-位于九龙城何文田的华英中学，因办学校长曾经对“逃犯条例”政见不同，令现时控制立法会的亲共议员（建制派）不满，把原本申请的学校重建费用（暂定2.5亿）突然煞停。据了解，旧校重建已经准备了十年时间，由校方和各方热爱教育的人士支持，然而香港政府在最后时刻把拔款煞停。这是对香港教育界的迫害，是对学术自由的抹杀，更给下一代的学习环境招来溃灭打击。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193903/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1-2.jpg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21213207/12-80.jpg)
 
-华英学校前身是19世纪位于广东佛山的一所学校，因二战辗转，最终于70年代在港复校，具有历史意义——华英学校更是一所具有信仰的基督教学校。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21214118/13-51.jpg)
+韭菜的人生
+＂悦割悦快＂
+邪共的本质
+奴隶仓生
 
-千教万教，教人求真；千学万学，学做真人。现今香港政府里一窝奴才，滥用政权，卑鄙无耻，沦为恶共走狗，用政治为借口，误人子弟至上，悲也。
+他不会让你站着
+在他们看来你不配
+跟学问学校无关
+屁大清华池边坛
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205738/M5-1.jpg)
+他希望你跪着
+世世代代包括私生才是奴主
+跟钱多钱少无联
+支付马三百年畔
 
-校对/发稿：Irene木木
+只有躺着
+有钱赚 人人都干
+有希望 必须紧跟
+有安全 相见恨晚
+有国际 沼泽大姥
 
+开通八小时
+半年三千六（亿个）
+GTV上真人秀
+秀色可餐
+
+全业三六九
+总共五千亿（个）
+GNEWS上即时篇
+篇篇弹片
+
+天降
+＂七思贵想＂现
+重生
+＂躺平运动＂始
+
+＂躺平币＂实质
+就是＂灭共币＂
+
+躺平运动核心
+就是灭共运动
+
+ＣＣＰ
+U are done！
+如果说音乐就是子弹
+也许你就是
+正中邪共心脏的那一发！
+
+ＣＣＰ
+You will pay！
+如果说＂躺平运动＂（躺平币）
+就是全民的且是定点的AI智导
+那么你一定会做到无知觉让领导先走！
+
+形象代言：
+（唐平）
+集灭共音乐
+与铲毒芳名
+于一身
+
+躺平币
+就是＂唐平币＂
+躺平运动
+就是＂唐平运动＂
+
+这是哪个屯的
+这么能干
+＂爱到＂空中
+又是屯里哪家的
+＂喜份儿＂
+威廉畅想
+
+校对/发稿：正义的小新
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 **[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
@@ -36,12 +96,8 @@
 
 **[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
-
-
-
-+1
+0

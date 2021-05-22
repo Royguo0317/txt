@@ -1,37 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【锐语】美国防部长上任来一直被中共对话
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1263674/)
+## 《政治事实》悄悄承认中共病毒实验室泄漏不是被揭穿的阴谋论
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1263698/)
 
-一份新的报告显示，尽管五角大楼已尽了最大的努力，但国防部长劳埃德·奥斯丁（Lloyd Austin）自今年1月上任以来从未与中共最高军事官员进行过交谈。
+翻译：烟波浩淼|校对：雨山溪桥客| 审核：断播
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22014109/wiv-wuhan-institute_6.png)武汉病毒研究所
+去年1月，中共国和世卫组织（WHO）正在为中共进行神秘的新型冠状病毒的损害控制，这种新型冠状病毒爆发与他们秘密的蝙蝠冠状病毒实验室在同一个城市（当时大多数人都不知道，福奇资助的一个名为生态健康联盟（EcoHealth Alliance）的非政府组织一直在与此实验室合作）。逻辑上暗示秘密实验室与新冠疾病之间存在联系的任何人，都会立即受到硅谷科技巨头的惩罚，这些硅谷科技巨头保护中共国免受那些敢于根据非常明显的线索进行推测的人的攻击。
 
-另一位官员告诉路透社，拜登政府无法确定奥斯汀是否应该联系中共国防部长还是中央军事委员会副主席徐启良。
+推特暂停了零对冲，原因是一名叫巴斯·费德（BuzzFeed）记者（后来因抄袭被解雇）指控我们“欺骗了一名被错误指控制造冠状病毒的中共国科学家”（用公开信息）。五个月后，推特在公众压力下恢复了我们的帐户，**称他们“犯了一个错误”**
 
-本周早些时候，中国在导弹驱逐舰柯蒂斯·威尔伯号（Curtis Wilbur）于周三经过台湾海峡并进入西沙群岛群岛周围的水域后发出警告，美国不要“惹事生非”，北京声称是其领土周四。
+脸书禁止了我们的文章，并根据所谓的“事实核查员”的话对中共病毒“造谣”进行了监管，他们坚称这种新疾病不可能从武汉病毒学研究所泄漏出来，一定是通过尚未发现的蝙蝠和人类之间的动物中介出现的。当然，脸书的其中一个“事实核查员”在武汉实验室工作。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22014154/danielle1.png)武汉实验室前工作人员和脸书事实检查员丹妮尔•安德森（Danielle Anderson）与蝙蝠研究人员周鹏（Peng Zhou）进行了九次交流
+还有《政治事实》（PoliitiFac）在2020年9月的一篇“事实调查”中写了这样一个头条标题：
 
-除了通过船只数量建造世界上最大的海军和海岸警卫队外，中共国还通过在战略上至关重要的南海巩固了其岛屿的所有权，并通过在珊瑚礁上铺上沙子水泥，并在简易机场和其他基础设施之上铺设沙子来建立新的岛屿前哨站。
+**“塔克·卡尔森的客串节目揭穿了中共病毒是在实验室里制造的阴谋论。”**
 
-它还忽略了包括菲律宾和越南在内的较小邻国的对立领土主张。
+现在，差不多整整一年，**时隔一届总统，《政治事实》发布了一项重大的“更正”，并“存档”该事实检查。**
 
-作为回应，美国海军定期进行其所谓的导航行动自由，以维护其在国际水域中航行的权利。
+**编者按（****2021****年****5****月****17****日）：**当这一事实调查于2020年9月首次发表时，《政治事实》的信息来源包括声称无法操纵SARS-Cov-2病毒的研究人员。这一断言现在有广泛的争议，因此我们将从数据库中删除此事实调查。
 
-中国人民解放军南方军区星期四在一份声明中指责美国增加“误会，错误判断和海上事故”的风险，并称威尔伯的演习“不专业且不负责任”。
+虽然《政治事实》的捍卫者认为“事实核查者”只是对他们自己负责，**他们断定实验室泄漏理论被****“****揭穿****”****（事实证明是错误的），与此同时，前总统川普和与他们的**** “****消息来源**** “****具有同等或更高资历的人却说不是。**
 
-简评：
-
-中共现在已经和国际社会脱离， 在军事上我行我素，拒绝文明对话。不参加国际核协议会议，也不回应美方喊话，现在军事通话渠道貌似已经关闭，南海随时都局部擦枪走火的可能。作为一个大国，总是没有一个大国的样子，不是偷偷摸摸区怂恿伊朗和巴勒斯坦，就是派两个化妆的士兵去登陆台湾。这是准备军事娱乐化发展了吗？
-
-参考链接：
-
-[https://nypost.com/2021/05/22/pentagon-chief-lloyd-austin-met-with-silence-from-chinese-officials/?utm\_campaign=SocialFlow&utm\_source=NYPTwitter&utm\_medium=SocialFlow](https://nypost.com/2021/05/22/pentagon-chief-lloyd-austin-met-with-silence-from-chinese-officials/?utm_campaign=SocialFlow&amp;utm_source=NYPTwitter&amp;utm_medium=SocialFlow)
-
-图片来源：[https://nypost.com/](https://nypost.com/2021/05/22/pentagon-chief-lloyd-austin-met-with-silence-from-chinese-officials/?utm_campaign=SocialFlow&amp;utm_source=NYPTwitter&amp;utm_medium=SocialFlow)
-
-整理撰稿：蓝精灵
-
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
+原文作者：泰勒·杜登（TYLER DURDEN）
+发布时间： 2021年5月20日，星期四-下午12:53
+原文链接：[https://www.zerohedge.com/covid-19/politifact-quietly-admits-covid-19-lab-escape-not-debunked-conspiracy-theory](https://www.zerohedge.com/covid-19/politifact-quietly-admits-covid-19-lab-escape-not-debunked-conspiracy-theory)
 
 0

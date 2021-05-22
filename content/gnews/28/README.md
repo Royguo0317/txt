@@ -1,49 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫：中共政府拒绝提供武汉实 验室的信息
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1263409/)
+## 【热点播报】健康部门遮掩新冠疫苗副作用
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1263461/)
 
-翻译：康州盘古农场 – 柯镇恶
+作者：纽约香草山媒体部 7bends
 
-校对：康州盘古农场 – 格格巫
 
-编辑：康州盘古农场 – 明子
 
-发布：康州盘古农场 – 彩虹 Rainbow
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-**据《NEWS MAX》作者：Solange Reyner 2021年5月20日报道：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21224505/police3.jpg)
-据Washington Examiner报道称，尽管拜登政府施加压力，但中共政府仍拒绝提供与新型冠状病毒有关的信息 。
 
-白宫新闻秘书詹·普萨基（Jen Psaki）周四对记者说，我们需要在“中（共）国政府提供合作和数据”的情况下，进行独立的调查。
 
-她补充说：“目前我们没有足够的信息来进行评估。”
+National News刊登文章称，健康部门遮掩新冠疫苗的血管损害和急性过敏反应。虽然笔者对该文章称CCP病毒为“中国病毒”有异义，但对文章涉及的新冠疫苗的副作用，笔者印象深刻。
 
-当记者追问，拜登总统是否会要求中（共）国国家主席习近平提供信息时，她回答：“他们已经多次公开发出这一呼吁，我们也私下传达了这一要求。而且我们明确的沟通过，它们（中共政府的信息）从一开始就不透明。”
+![]()![](https://media.discordapp.net/attachments/824587088309649429/845327831562977300/image1.jpg)
 
-她还称，中共拒绝与国际调查进行合作是“不可接受的”。
+虽然各国政府和医疗机构一再保证，注射冠状病毒疫苗是安全的，但一直以来听到、看到打了新冠疫苗而造成面瘫、中风、出血、过敏或其他损害的消息却从来没断过。
 
-“对于下个阶段的工作，现在他们有一个机会透明公开地参加国际调查，调查可以得出病毒起源的结论，并提供给我们（共和党人、民主党人和这个国家的每个人）都希望得到的信息，”她说。
+文章提及，政府部门称，新冠疫苗的刺突蛋白（Spike Proteins）在体内不会带来任何长期的风险。但Salk研究所（Salk Institute）的研究却发现，正是刺突蛋白（Spike Proteins）造成了许多新冠疫苗注射者的血管受损，从而导致中风、血栓、过敏等症状。目前市面流行的四种品牌的新观疫苗，要么本身含有，要么会让接种者身体自己制造刺突蛋白（Spike Proteins）。
 
-世界卫生组织总干事谭德赛（Tedros Adhanom Ghebreyesus）在3月下旬表示，有必要对武汉实验室可能发生泄漏进行进一步调查，并且说“我已准备好部署可能涉及专家的额外任务。”
+该文章还提到，即使声称疫苗安全的康涅狄格公共卫生部门（CDPH）也在其一份“疫苗接种前检查清单”中提示医护人员，要注意在接种疫苗时引起的立即过敏反应和如何有效地治疗这种过敏反应。
 
-众议院情报委员会的共和党人周三表示，“大量的间接证据”表明COVID-19的爆发是由武汉病毒研究所的一次泄漏造成的，并敦促拜登政府向中共国施加“更大的压力”，对流行病的来源进行“全面的、可信的调查”。
+![]()![](https://media.discordapp.net/attachments/824587088309649429/845327831176970240/image0.jpg)
 
-美联社12月下旬发布的一项调查结果发现，中共政府严格控制了所有有关病毒起源的研究，同时积极推广病毒可能来自外国的理论。
+虽然研发企业对此回应说，疫苗产生的抗体可以防止损伤，但Salk研究所不同意此种回应。Salk研究所认为，当接种新冠疫苗人的免疫系统足够强壮时，可以防止最开始时明显的、立即的刺突蛋白伤害，但如果之后当他们患了其他疾病而免疫系统受损时，又会发生什么事呢？
 
-美联社发现，（中共）政府正在向研究该病毒起源并与军方有联系的科学家们提供数十万美元的资金。但美联社获得的内部文件显示，政府在监视他们的研究结果，并要求任何数据或研究的发表必须由一个工作组批准，该小组由国务院管理，受习近平主席直接领导。来自罕见的政府内部泄漏的数十页未发布的文件，证实了许多人长期以来的怀疑：控制来自于最高层。
+参考阅读：
 
-大流行已经削弱了北京在全球舞台上的声誉，中共领导人对任何暗示他们疏忽病毒传播的发现保持警惕。管理有关冠状病毒起源研究的部门，中国科技部和国家卫健委没有回应置评请求。
+[Health departments caught lying, covering up covid vaccine vascular damage and “acute anaphylactic reactions”](https://www.naturalnews.com/2021-05-19-health-departments-lying-covid-vaccine-vascular-reactions.html)
 
-中共国外交部在传真中说：“已在世界许多地方发现新型冠状病毒，科学家应在全球范围内展开国际科学研究与合作。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
 
-本报告使用了美联社的信息。
+编辑/校对/发稿：Irene木木
 
-原文链接：**[https://www.newsmax.com/politics/china-wuhan-covid-lab/2021/05/20/id/1022177/](https://www.newsmax.com/politics/china-wuhan-covid-lab/2021/05/20/id/1022177/)**
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+**更多资讯，更多关注**
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0

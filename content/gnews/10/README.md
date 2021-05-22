@@ -1,37 +1,160 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 599：30——中共如意算盘走向破产
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1263603/)
+## 凯尔·巴斯（Kyle Bass）:数字元 是特洛伊木马
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1263615/)
 
-翻译&评论: Hong
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22003139/2021-05-21_Task2_Cover.jpg)图片来自澳喜文宣
-5月20日, 欧洲会议以压倒性的赞成投票通过了结冻《中欧全面投资协定》的决议, 并警告中共说，只要中共政权对欧洲立法者的制裁依然存在，就不会批准这项协议。会议谴责中共今年三月对欧盟个人和专门机构实施毫无根据和任意的制裁 。
+**字幕内容：**
 
-欧洲议会表示，中共这些制裁无疑是对基本自由的攻击，并强烈要求中共当局取消这些毫无道理、限制性的制裁措施。
+Sarah
 
-欧盟立法者对中共的指责得到了欧盟委员会副主席瓦尔布斯·多姆布罗夫斯基思（Valdis Dombrovskis）的支持，他会后表示，中共国这种毫无根据和任意的制裁并没有为签署该协议创造有利的环境。他说，目前在这种欧盟与中共关系的大背景下，我们看不到签署这项协定的批准过程。
+莎拉
 
-该决议以599票赞成，30票反对，58票弃权毫无悬念地获得通过。其中获得了欧洲会议全部主要政党的支持。欧盟强硬的立场可能会推迟批准去年12月原则上达成的数十亿欧元的投资协议，这意味着该投资协议需要等待欧洲会议的批准才能生效。会议立法者表示，除了要求中共政权取消这些毫无根据的制裁外，在决定是否批准该协定的同时，他们还要考虑中共侵犯人权的问题。
+That’s what I was going to ask you next
 
-荷兰外贸部长西格丽德·卡格（Sigrid Kaag）表示，我们将解决贸易不平衡问题，但是，看到在过去几个月里中共政权的所作所为，我们非常担心中共侵犯人权的问题，特别是中共把该国劳工视为奴隶的问题；在新疆有很多外资公司，目前还不清楚这些外资公司中共国制造的产品在生产加工过程中是否使用了奴隶劳工。
+那就是我接下来要问你的
 
-这项决议让中共很不舒服。中共外交部表示，欧洲应尽早批准这项协定，声称《中欧投资协定》是一份平衡、互利共赢的协定，不是一方给予另一方的恩赐，是互利互惠的，尽早批准才‌‌符合中欧双方利益，‌‌双方均应为此做出积极努力。
+which is the digital yuan which China is testing as we speak.
 
-中共政权对外侵略扩张的脚步从来没有停过，做着称霸世界白日梦的中共越来越癫狂，尤其是去年对全球发动了生物武器超限战，给世界带来了无法想象的空前灾难，对世界和平造成了威胁，让全球感到恐慌；现在越来越多的国家已经认识到了中共的威胁。《中欧全面投资协定》的正式搁浅使中共称霸世界的阴谋计划彻底破产，这场外交博弈是一场正义与邪恶的较量。2021全球的政治格局已发生了巨变，全球灭共的阵营正在日益扩大，中共称霸全球的如意算盘将被正义的铁锤砸得粉碎！
+这就是在我们谈话的时候中共国正在测试的数字元。
 
-（文章仅代表作者本人观点，与GNews无关）
+There’s a lot of hype about it
 
-*审稿、编辑：光耀华夏*
+那有很多的炒作
 
-新闻参考来源：[thewest.com.au相关新闻报道](https://thewest.com.au/politics/eu-set-to-freeze-china-investment-deal-c-2893791)
+a lot of talk about whether it could supplant the U.S. dollar
 
-* * *
+很多的讨论是关于是否它可以取代美元
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+or take over the global foreign exchange system
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19113721/1-%E6%BE%B3%E5%96%9CLogo-8.jpeg)
+或取代全球的外汇交换体系
 
+but do you really think that China can convince consumers internationally
+
+但你是否真的认为中共国可以说服国际消费者
+
+and investor internationally to get into a digital yuan
+
+和国际投资者进入数字人民币
+
+when they haven’t done so with their own currency
+
+当他们还没有使用自己的货币的时候
+
+Kyle Bass
+
+凯尔·巴斯
+
+Yeah I don’t I think China can force the adoption of their digital currency for trade
+
+不，我不这么认为。我认为中共国可以强迫采用数字货币进行贸易
+
+and investment in China per se
+
+和在中共国的投资
+
+unless the U.S. and the west outlaws it uh
+
+除非美国和西方将其取缔
+
+or basically disallows it as something that could that can be owned
+
+或基本上禁止它作为可以拥有的东西
+
+and I know that sounds hyperbolic
+
+我知道这听起来很夸张
+
+but I don’t think you can get a little bit of cancer
+
+但我不认为你会得一点癌症
+
+either you have cancer you don’t
+
+要么你得了癌症，要么就没有
+
+and I believe digital one is the largest threat to the west uh
+
+而且我认为数字化是对西方最大的威胁
+
+that we’ve faced in the last 30,40 years
+
+我们在过去的30,40年所面对的
+
+and it’s because that it allows China
+
+并且这是因为它允许中国
+
+to actually get their get their uh their claws into uh everyone in the west
+
+实际上他们将爪子刺入西方的每个人
+
+and allows them to potentially export their digital authoritarianism
+
+并允许他们隐蔽地导出其数字权威主义
+
+I believe it’s a digital trojan horse
+
+我相信这是数字特洛伊木马
+
+and to your point Sarah
+
+而且萨拉，对于你的观点
+
+no one trusts China no one trusts their government
+
+没有人相信中共国，没有人相信他们的政府
+
+and today only 1.8 percent of global currency transactions settle in RMB
+
+如今，只有1.8％的全球货币交易以人民币结算
+
+and if you peel the onion back a little further
+
+并且如果你把洋葱再往深层剥一点
+
+those are almost all exclusively in Hong Kong
+
+这些几乎全都在香港
+
+so China only trades with itself they need dollars uh
+
+所以中共国只能自己交易，他们需要美元
+
+and so how they roll out their digital currency
+
+以及他们如何推出自己的数字货币
+
+and how it affects the world
+
+以及它如何影响世界
+
+is vitally important to the national security of the United States and Europe
+
+对美国和欧洲的国家安全至关重要
+
+and the rules based order
+
+和基于规则的顺序
+
+and I think that’s the big story that we’ve got to focus on in the next year
+
+我认为这是我们明年要重点关注的大事
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接:[https://twitter.com/cnbc/status/1394831421500444674?s=21](https://twitter.com/cnbc/status/1394831421500444674?s=21)
+
+英听校：康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场- 银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
