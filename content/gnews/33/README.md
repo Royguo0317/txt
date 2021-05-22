@@ -1,160 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 凯尔·巴斯（Kyle Bass）:数字元 是特洛伊木马
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1263615/)
+## 只为苍生说人话，不为帝王唱赞歌
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1263783/)
 
-**字幕内容：**
+撰稿：sunyyang
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22022933/2021-05-21_Task6_Cover.jpg)（图片来自网络）
+爆料革命从文贵先生发起至今，已经历时四年有余。笔者有幸在2019年底爆发的武汉冠状病毒大流行中得以幸存，对中共政府的隐瞒疫情、荒唐的“防疫抗疫”失望至极，心中悲愤难平：无数的鲜活生命在中共的暴力封城下或感染病毒痛苦死去；或因医疗资源短缺、其他疾病无法得到治疗，与世长辞；或因断了收入来源无法偿还房贷车贷选择自我了断；还有很多独居的老年夫妻没有网络团购的生活技能，得不到物资供应，惨死家中……生命宛如草芥，更有灭门惨案数不胜数！武汉变成人间地狱！
 
-Sarah
+当生命被一个政府这样任意地漠视和践踏的时候，这种政府有何存在的权利和意义？主导这个政府的党派——中国共产党必须被消灭！
 
-莎拉
+面对如此旷世惨剧，笔者内心郁结难平，磕磕绊绊的翻出了臭名昭著的中共网络防火墙，寻求真相，很快便看到了文贵先生的爆料，路德的直播，还有班农的War Room，便毅然加入了这场轰轰烈烈的灭共革命。随着闫丽梦博士的出现和路德社的一集集解惑，让我逐渐意识到：武汉疫情只不过是中共对美国超限战中的一环而已！无数的生命不过是中共为了统治世界的廉价牺牲品！纵观人类历史长河，从未有过如此灭绝人性的邪恶政党！为了自己的权势、财富和欲望，可以肆意放毒、轻易灭杀生命！上至一国总统，下至平民百姓，无一人不是其牺牲品和棋子！
 
-That’s what I was going to ask you next
+参与爆料革命已经一年多，对中共的了解逐渐深入，无论是其政体的邪恶本性，还是其罪行累累的发家史和执政史，更甚者还有它们全球”蓝金黄”的无耻，建筑艺术项目的邪恶，还有类似13579、2025、2035、2045等等一系列恐怖至极的战略计划……灭共的初心也越发坚定。必须灭了这个邪恶至极的政党，中国亿万老百姓才能获得新生，满目疮痍的中华大地才能重新恢复壮美山河，世界才能归于和平。笔者的心境也由当初的愤怒、无耐和不甘，变得逐渐平静和坦然。这场革命不是一场复仇革命，不是一场暴力革命，也不是打土豪分田地的财富与权力的革命，它是一场伟大的平民主义革命！
 
-那就是我接下来要问你的
+从爆料革命的发起人——郭文贵先生谈起，即便身家过亿、腰缠万贯，文贵先生也从来没有忘记自己是从平民草根而起，总是心系中国无数劳苦大众，他的目的只是为了推翻共产党、让中华民族能够实现一人一票的政治体制，彻底断绝现在中共国这种“金字塔”式的极权统治体系。他创造的G-TV、GNews也是为了任何人都能传播真相、自由发声，让新闻、媒体、网络不再被那些新闻巨擘、科技巨头垄断和操控，成为少数政治精英和商业富豪的洗脑工具，让言论自由变得切实可行。还有高瞻远瞩的喜币、喜美元——数字货币中的明珠，于个人而言，它们让私有财富变得安全和透明，平民老百姓的血汗钱无法被洗劫和稀释，灰色的资产无所遁形、有迹可循，让财富的创造变得干净、纯粹，断绝了“割韭菜”似的经济掠夺和各种非法手段的求财之路。让人民合法的获得财富，合法的享有财务，无人可以剥夺！
 
-which is the digital yuan which China is testing as we speak.
+再谈爆料节目——路德时评，每天两期的节目雷打不动，主讲人路德也是草根阶层出身的理工男，每天的爆料、政论、分析，不仅仅是在抨击和揭露中共的丑恶本性、虚伪面孔和做恶真相，更是为了开启民智、唤醒民意，让中华民族的劳苦大众脱离驭民五术的千年桎楛和毒害，消除中共种下的心毒和心霾，在广大平民草根心中播撒自由、民主和法治的种子。路德常常用最普通的语言震撼人心。“灭共就缺你一个，没你不行”，“我们要做压死骆驼的最后一根稻草”，朴实无华却又振聋发聩：每个人都很重要，每个人都不能被忽视，每个人都需要付出努力和行动去追求自由和民主。“拔一毛而利天下，不拔！”，每个人的权利和利益都需要被尊重和保护，没有一个人该为他人而被牺牲，每一个人都要得到保护和尊重，不论你是社会精英，还是底层草根！
 
-这就是在我们谈话的时候中共国正在测试的数字元。
+最后是爆料革命坚定的美国战友——斯蒂夫·班农。班农先生出身于美国普通工人家庭，一路艰苦奋斗，毕业于名校西点，参加过美国海军，曾任职于美国华尔街金融巨头高盛，还成功助选政治素人川普登顶美国总统宝座！职业生涯可谓风光无限，班农先生被称为华盛顿第三有影响力的人！但这么一个“大人物”，却每天亲自做着谈话节目War Room，一次次的为中国人呐喊，毫无惧色的抨击着邪恶的中国共产党，还有与他们狼狈为奸的华尔街走狗，揭露他们坑害中国“老百姓”的真相。班农先生犀利的评论中，无不透露着对中国“老百姓”的同情和热爱，每当他用英文喊出“Lao Bai Xing”三个字的时候，不禁让人泪目！
 
-There’s a lot of hype about it
+还有我们伟大的闫博士、还有球王郝海东、还有世界冠军叶钊颖、还有爆料革命的无数战友，无论巨富、官绅、精英还是草根，他们只有一个目标：推翻共产党，建立一人一票的宪政国家，解救十四亿中国人。他们只为苍生说人话，不为帝王唱赞歌！
 
-那有很多的炒作
+（文章内容仅代表个人观点）
 
-a lot of talk about whether it could supplant the U.S. dollar
+*审**稿**、**编辑**：**光耀**华**夏*
 
-很多的讨论是关于是否它可以取代美元
+参考来源：
 
-or take over the global foreign exchange system
+[散文小屋的个人博客](http://www.sinovision.net/home/space/do/blog/uid/582941/id/400502.html)
 
-或取代全球的外汇交换体系
+[维基百科：斯蒂芬·班农](https://zh.m.wikipedia.org/zh-hans/%E6%96%AF%E8%92%82%E8%8A%AC%C2%B7%E7%8F%AD%E8%BE%B2)
 
-but do you really think that China can convince consumers internationally
+[新中国联邦宣言](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/06/03195730/%E3%80%90%E4%B8%AD%E6%96%87%E3%80%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E5%AE%A3%E8%A8%80.pdf)
 
-但你是否真的认为中共国可以说服国际消费者
+* * *
 
-and investor internationally to get into a digital yuan
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-和国际投资者进入数字人民币
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19113721/1-%E6%BE%B3%E5%96%9CLogo-8.jpeg)
 
-when they haven’t done so with their own currency
-
-当他们还没有使用自己的货币的时候
-
-Kyle Bass
-
-凯尔·巴斯
-
-Yeah I don’t I think China can force the adoption of their digital currency for trade
-
-不，我不这么认为。我认为中共国可以强迫采用数字货币进行贸易
-
-and investment in China per se
-
-和在中共国的投资
-
-unless the U.S. and the west outlaws it uh
-
-除非美国和西方将其取缔
-
-or basically disallows it as something that could that can be owned
-
-或基本上禁止它作为可以拥有的东西
-
-and I know that sounds hyperbolic
-
-我知道这听起来很夸张
-
-but I don’t think you can get a little bit of cancer
-
-但我不认为你会得一点癌症
-
-either you have cancer you don’t
-
-要么你得了癌症，要么就没有
-
-and I believe digital one is the largest threat to the west uh
-
-而且我认为数字化是对西方最大的威胁
-
-that we’ve faced in the last 30,40 years
-
-我们在过去的30,40年所面对的
-
-and it’s because that it allows China
-
-并且这是因为它允许中国
-
-to actually get their get their uh their claws into uh everyone in the west
-
-实际上他们将爪子刺入西方的每个人
-
-and allows them to potentially export their digital authoritarianism
-
-并允许他们隐蔽地导出其数字权威主义
-
-I believe it’s a digital trojan horse
-
-我相信这是数字特洛伊木马
-
-and to your point Sarah
-
-而且萨拉，对于你的观点
-
-no one trusts China no one trusts their government
-
-没有人相信中共国，没有人相信他们的政府
-
-and today only 1.8 percent of global currency transactions settle in RMB
-
-如今，只有1.8％的全球货币交易以人民币结算
-
-and if you peel the onion back a little further
-
-并且如果你把洋葱再往深层剥一点
-
-those are almost all exclusively in Hong Kong
-
-这些几乎全都在香港
-
-so China only trades with itself they need dollars uh
-
-所以中共国只能自己交易，他们需要美元
-
-and so how they roll out their digital currency
-
-以及他们如何推出自己的数字货币
-
-and how it affects the world
-
-以及它如何影响世界
-
-is vitally important to the national security of the United States and Europe
-
-对美国和欧洲的国家安全至关重要
-
-and the rules based order
-
-和基于规则的顺序
-
-and I think that’s the big story that we’ve got to focus on in the next year
-
-我认为这是我们明年要重点关注的大事
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接:[https://twitter.com/cnbc/status/1394831421500444674?s=21](https://twitter.com/cnbc/status/1394831421500444674?s=21)
-
-英听校：康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场- 银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

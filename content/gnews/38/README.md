@@ -1,45 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】白话（三）信心
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1263588/)
+## 《政治事实》悄悄承认中共病毒实验室泄漏不是被揭穿的阴谋论
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1263698/)
 
-配音：香草山福音部 Daxia
+翻译：烟波浩淼|校对：雨山溪桥客| 审核：断播
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22014109/wiv-wuhan-institute_6.png)武汉病毒研究所
+去年1月，中共国和世卫组织（WHO）正在为中共进行神秘的新型冠状病毒的损害控制，这种新型冠状病毒爆发与他们秘密的蝙蝠冠状病毒实验室在同一个城市（当时大多数人都不知道，福奇资助的一个名为生态健康联盟（EcoHealth Alliance）的非政府组织一直在与此实验室合作）。逻辑上暗示秘密实验室与新冠疾病之间存在联系的任何人，都会立即受到硅谷科技巨头的惩罚，这些硅谷科技巨头保护中共国免受那些敢于根据非常明显的线索进行推测的人的攻击。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+推特暂停了零对冲，原因是一名叫巴斯·费德（BuzzFeed）记者（后来因抄袭被解雇）指控我们“欺骗了一名被错误指控制造冠状病毒的中共国科学家”（用公开信息）。五个月后，推特在公众压力下恢复了我们的帐户，**称他们“犯了一个错误”**
 
+脸书禁止了我们的文章，并根据所谓的“事实核查员”的话对中共病毒“造谣”进行了监管，他们坚称这种新疾病不可能从武汉病毒学研究所泄漏出来，一定是通过尚未发现的蝙蝠和人类之间的动物中介出现的。当然，脸书的其中一个“事实核查员”在武汉实验室工作。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22014154/danielle1.png)武汉实验室前工作人员和脸书事实检查员丹妮尔•安德森（Danielle Anderson）与蝙蝠研究人员周鹏（Peng Zhou）进行了九次交流
+还有《政治事实》（PoliitiFac）在2020年9月的一篇“事实调查”中写了这样一个头条标题：
 
+**“塔克·卡尔森的客串节目揭穿了中共病毒是在实验室里制造的阴谋论。”**
 
+现在，差不多整整一年，**时隔一届总统，《政治事实》发布了一项重大的“更正”，并“存档”该事实检查。**
 
+**编者按（****2021****年****5****月****17****日）：**当这一事实调查于2020年9月首次发表时，《政治事实》的信息来源包括声称无法操纵SARS-Cov-2病毒的研究人员。这一断言现在有广泛的争议，因此我们将从数据库中删除此事实调查。
 
+虽然《政治事实》的捍卫者认为“事实核查者”只是对他们自己负责，**他们断定实验室泄漏理论被****“****揭穿****”****（事实证明是错误的），与此同时，前总统川普和与他们的**** “****消息来源**** “****具有同等或更高资历的人却说不是。**
 
-
-初次接触基督信仰的人，一定常常听到信徒随口就来的“信”和“信心”两个词语。也许大家会觉得特别的玄妙，信心是什么？看又看不见，摸又摸不着。
-
-其实，基督信仰中讲的信也好，信心也好，就像人的良心和人与人之间的爱一样：我们的肉眼确实看不见、摸不着，秤又秤不出重量，化验又验不出化学成份，但这样东西确实存在，且并不是一种抽象的概念或宗教给人的幻觉。
-
-
-
-**文字版原文：[【信仰之声】白话（三）信心](https://gnews.org/zh-hans/1249291/)**
-
-作者：纽约香草山福音部  Jinglechenge
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文作者：泰勒·杜登（TYLER DURDEN）
+发布时间： 2021年5月20日，星期四-下午12:53
+原文链接：[https://www.zerohedge.com/covid-19/politifact-quietly-admits-covid-19-lab-escape-not-debunked-conspiracy-theory](https://www.zerohedge.com/covid-19/politifact-quietly-admits-covid-19-lab-escape-not-debunked-conspiracy-theory)
 
 0

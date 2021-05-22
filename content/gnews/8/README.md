@@ -1,31 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙国民生】印度疫情失控，令中共国病人陷入困境
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1263821/)
+## 2021/05/19 班农采访(6)：中共被质疑是哈马斯幕后黑手
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1264086/)
 
-作者：休斯顿星光农场 写作部 文顺
+视频字幕：雨中漫步 | 听写/翻译：Wade | 校对：Roberts | 简评/文字整理/编辑：胖丁 | Page：Daoiii
 
-近期，受疫情影响，中共国航空和货运部门已经开始限行，影响了印度的仿制药供应，令正等着印度仿制药续命的中共国病人陷入困境。
+**简评：**
 
-自印度疫情失控以来，许多印度仿制药不仅时常断货，存货价格也急速飞涨，部分药品更是全面断货。一位代购印度仿制药的微商无奈发布信息说：“由于印度疫情越来越严重，各位有条件的话尽量囤点货，后面情况实在很难说。”
+**中共公开支持巴勒斯坦犯罪组织哈马斯，被质疑是幕后黑手。虽然尚未有可靠的证据，但中共一贯躲在背后操纵，需要继续观察。**
 
-以一盒用量一个月的肝癌药“索拉非尼”为例，5月份的价格已经涨到了1350元，而在上月还是1100元，当地药商给出的解释就是“库存有限”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22033458/Screenshot-2021-05-22-023233.jpg)
-*图片来源：新浪网*
 
-据证券之星新闻信息，索拉非尼(商品名：多吉美)目前在中共国的医保价格约为5700元/盒(200mg\*60片/盒)，按照患者每个月2盒的用量计算，一年的治疗费用超过10万元(医保报销前)，医保报销后患者每个月的治疗费用则在2000～3000元人民币左右。
 
-消息来源：https://finance.sina.com.cn/chanjing/cyxw/2021-05-20/doc-ikmxzfmm3594981.shtml
+GTV视频链接Q6：[中共对哈马斯的支持是否意味着中共是幕后黑手](https://gtv.org/video/id=60a89fbf93cb4b1e6f9b8982)
 
-编辑/校对/发稿：Helen
+**视频字幕：**
 
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+**主持人：**说到海外局势，最近中共外交部长王毅说，美国在巴以冲突上站在了错误的一边。中共如此支持巴勒斯坦犯罪组织哈马斯，是否意味着这些恐怖主义的幕后正是中共？班农先生。
 
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+**Bannon：**我们需要找出证据。我们不能沒有依据地隨意指控。目前我们尚未有足夠的证据。很明显中共有嫌疑。但我们取胜靠的是事实，比如武汉实验室，我们把一切都放在桌面上分析。通常我们会发现中共阴险地躲在幕后，但是我们需要继续观察。
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
+[**完整访谈视频**](https://gtv.org/video/id=60a50f53db13300ca55b1ace)
 
+**主播：**Daniel, Dr. TCC, Castle和Mike
+
+- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
+- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
+
+
+***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三直播***
+
+编辑：【英国伦敦喜庄园编辑部】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/GZGBIBNDviQPu/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/GZGBIBNDviQPu/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)
 
 
 

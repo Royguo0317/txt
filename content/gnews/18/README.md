@@ -1,23 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国最高金融机构呼吁打击比特币
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1263802/)
+## 2021/05/19 班农采访 (2)：如何阻止世界针对中国人，应该针对中共
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1263890/)
 
-#### 文章撰写:【默凡】
+视频字幕：云岭 | 听写/翻译：Wade | 校对：Roberts | 简评/文字整理/编辑：胖丁
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22025457/BitcoinChina-780x520-1.jpg)
+**简评：**
 
-5月21日，国务院金融稳定与发展委员会（FSDC）召开的会议呼吁“打击比特币的开采和交易活动，并坚决防止个人风险向社会领域扩散。”FSDC的呼吁是支持中共国金融体系安全的一项更广泛任务的一部分，其中包括“加强对金融风险的全面扫描和预警；推动中小型金融机构改革和化解风险；努力降低信用风险，加强对平台企业财务活动的监管。”
+美国停发了中共部分高官及家属的赴美签证，中国人民也会受到牵连。如何阻止世界针对中国人？必须全力以赴地挖掘真相，尤其是病毒事件；不遗余力地追责中共。拜登政府和国务院没有作为，我们不能放弃。2022年誓要夺回众议院，打败南希佩洛西。这会是一场旷日持久的战斗。
 
-3月，内蒙古自治区宣布将取消加密货币开采，作为减少二氧化碳排放量的努力的一部分，而5月18日，它启动了一个专门平台，致力于处理公众对此类活动的举报。由于担心与投机性投资狂潮有关的风险，中共国于2017年9月首次严厉打击其比特币和加密货币市场，当时它发布了禁止首次代币发行（ICO）和国内加密货币交易所的禁令。中共国市场以前占全球比特币交易量的约90％。
+YouTube视频链接：
 
-[参考文章：China’s Top Financial Authority Calls for Crackdown on Bitcoin Mining and Trading](https://www.chinabankingnews.com/2021/05/22/chinas-top-financial-authority-calls-for-crackdown-on-bitcoin-mining-and-trading/)
 
-本文仅代表作者本人观点，不代表Gnews平台
 
-* * *
+**GTV视频链接：**
+[https://gtv.org/video/id=60a86ce893cb4b1e6f9b4c44](https://gtv.org/video/id=60a86ce893cb4b1e6f9b4c44)
 
-***排版发布：日本东京方舟农场 文柯Miles***
+**视频字幕：**
 
+**主持人：**最近，美国终止了部分中共高官及家属的签证。我们知道这是一个不好的信号，因为我们的敌人是中共，是中共高层，不是所有中国人。很多中共党员是我们的盟友。在这场斗争中我们如何阻止世界针对中国人而不是中共呢？
+
+**Bannon：**这个问题太棒了，我们必须坚持。中国人站在我们这边。这不是针对中国，不是针对中华民族。当然也不是针对中国人，尤其是深受中共邪恶压迫的老百姓。我们必须对中共穷追猛打。
+
+很明显，拜登政府做得很糟，他的国务院做得很糟。所以重担落到了我们肩上。这就是我们在这场斗争中需要做的。現在我们必須集中所有力量挖掘真相，尤其是中共病毒。中共对世界的荼毒，还有它应负的责任。
+
+除此之外，在美国，我们的重点是要在2022年夺回众议院。确保Elise Stefanik这样的人当选众议员议长，打败南希佩洛西，这是一场政治鏖战。你会看到民主的作用，这将是一场非常非常令人不悦和持久的战斗，但这是我们目前所经历的。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
