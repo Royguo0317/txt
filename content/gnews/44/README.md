@@ -1,23 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国最高金融机构呼吁打击比特币
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1263802/)
+## 加拿大亚省安省反封城运动
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1263822/)
 
-#### 文章撰写:【默凡】
+**作者：琴韵**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22025457/BitcoinChina-780x520-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22031804/111112-1.png)(图片来自网络)
 
-5月21日，国务院金融稳定与发展委员会（FSDC）召开的会议呼吁“打击比特币的开采和交易活动，并坚决防止个人风险向社会领域扩散。”FSDC的呼吁是支持中共国金融体系安全的一项更广泛任务的一部分，其中包括“加强对金融风险的全面扫描和预警；推动中小型金融机构改革和化解风险；努力降低信用风险，加强对平台企业财务活动的监管。”
+5月15日，大约1200名加拿大亚省居民走上卡尔加里街头，抗议政府因COVID-19采取的封锁措施。可以说，这次抗议更像是一个友好的舞会，许多熟悉的面孔，如宪法自由正义中心主席约翰·卡帕伊，他在集会开始前发表了鼓舞人心的演讲。
 
-3月，内蒙古自治区宣布将取消加密货币开采，作为减少二氧化碳排放量的努力的一部分，而5月18日，它启动了一个专门平台，致力于处理公众对此类活动的举报。由于担心与投机性投资狂潮有关的风险，中共国于2017年9月首次严厉打击其比特币和加密货币市场，当时它发布了禁止首次代币发行（ICO）和国内加密货币交易所的禁令。中共国市场以前占全球比特币交易量的约90％。
+这次抗议发生在法院禁令被改变的一天后，不仅对艾伯塔省镜报的Whistle Blower咖啡馆的克里斯·斯科特，而且对另外440万亚省人下达了限制令。法院的禁令使得任何人都有可能仅仅因为聚集而遭到逮捕和刑事指控——例如，见阿图尔·帕沃洛夫斯基牧师。
 
-[参考文章：China’s Top Financial Authority Calls for Crackdown on Bitcoin Mining and Trading](https://www.chinabankingnews.com/2021/05/22/chinas-top-financial-authority-calls-for-crackdown-on-bitcoin-mining-and-trading/)
+抗议者与非常友好但警力密集的警察互动时的一个疑问是，为什么警察在最近的支持巴勒斯坦的抗议活动中没有出动？而法院的禁令是对所有亚省人都有效的。
 
-本文仅代表作者本人观点，不代表Gnews平台
+总的说来，这是一个成功和美好的一天。没有罚款，没有逮捕，这次抗议活动更像是警察护送着我们漫步在卡尔加里市中心。
+
+加拿大自从被病毒入侵以来，封城措施已大挫经济，而且日益增加的限制令也令市民大感不便。卫生部也以防疫为名，对市民的自由不断收紧。主流媒体也一天比一天堕落，已经越来越不谈真相了。每周末，全加国都有大大小小不同的示威和民间活动。
+
+同样是5月15日，数以万计的安大略人参加了在多伦多市中心皇后公园草坪上举行的世界自由拉力赛。随着天气变暖，人们越来越意识到政府的政策不一致和荒谬的关闭措施，人们大声疾呼反对封锁，抗议人数每周也都在增加。
+
+在这次集会上，也有议员参加，如加拿大人民党领袖马克西姆·伯尼尔。十分搞笑的是，在封城期间，加人不可以买衣服，因服装不是必需品，而有一西人穿着内裤出来示威，告诉省长”衣服是必不可少的”。而另有一位第一次抗议者，和其他几个人，包括两个逃离共产主义政权的人，他们以自身经历对所看到的在加拿大发生的事情，提醒加国人不要被迷惑，向加国人敲响了警钟。
+
+正是”光复香港，时代革命”，”光复加国，时代革命”。反占中的哨子去年在香港吹响，今年已吹遍全球，英国、西班牙等各民主国家每周也有不同的游行集合，反CCP的力量已经无人可抗拒！
+
+（本文仅代表作者观点，与Gnews平台无关）
 
 * * *
 
-***排版发布：日本东京方舟农场 文柯Miles***
+信息来源：
+
+[Alberta lifts ban on protests just in time for Calgary’s Worldwide Freedom Rally](https://www.rebelnews.com/alberta_lifts_ban_on_protests_just_in_time_for_calgarys_worldwide_freedom_rally)
+
+[Toronto turns out in huge numbers for Worldwide Freedom Rally](https://www.rebelnews.com/toronto_turns_out_in_huge_numbers_for_worldwide_freedom_rally)
+
+*责任编辑：英国喜庄园 AN*
+
+*编辑校对：纽约香草山农场 七哩香*
+
+*发布：华盛顿DC农场 文知*
 
 0
