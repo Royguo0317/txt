@@ -1,15 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年5月21日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1262516/)
+## 新中国联邦——飓风、惊雷和闪电
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1262646/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+俄罗斯莫斯科喀秋莎农场 小蚂蚁的自由
 
-5月21号：【诺贝尔医学奖得主，病毒学家，说疫苗：👇 rairfoundation.com/bombshell-nobe…】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21132838/acbbf5128e040724a664cddf82c3904e.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21133300/bf88d46aaa119fc0cb7103646ad60e1b.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21132807/4f2ca3f644e679b90cd057d961b8afd4.jpg)
-[【2021年5月21日】文贵先生盖特原文](https://gtv.org/getter/60a7c3f0d48e0209266460dd)
+编辑上传 银河
+![]()![](https://cdn.discordapp.com/attachments/795746853945081947/840215368856764516/image0.jpg)俄罗斯莫斯科喀秋莎农场 文宣
+**飓风/惊雷/闪电**
 
-**喜联盟Gnews编辑部**
+风来了
+刮过山河和树林
+也刮过了中共国
+风带来了消息
+新中国联邦成立了
+如同飓风
+震撼人心
+
+天边有雷声
+滚滚而来
+来到了中共国
+带来了消息
+海东宣读了新中国联邦宣言
+如同惊雷
+振聋发聩
+
+看吧
+闪电划破天际
+劈向大地
+带来消息
+新中国联邦人 群雄相聚
+憾天动地
+消灭共匪
+
+你们啊
+还在沉睡吗
+还在岁月静好吗
+你们啊
+看到了吸血的管子
+插满肢体
+代代循环
+至死方休
+
+飓风，惊雷和闪电
+惊醒你们了吗
+你们
+能不能醒来
+看一眼这破碎的山河
+看一眼下一代心灵的残破
+如果醒了
+那么
+来吧
+成为飓风，惊雷和闪电的一份子
+给我们加码
+灭共
+缺你不可
 
 0

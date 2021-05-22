@@ -1,39 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 佐治亚州法官判定进行选票审计
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1262923/)
+## 中共国禁止金融、支付机构从事加密货币业务
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1263011/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**翻译:飞利普| 校对:烟波浩淼| 审核:黎明的光芒**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21194425/Picture1-120.png)在这张图片（2019年4月9日）中，在中共国国旗图像前面显示的比特币虚拟货币表示中，可以看到一个小玩具雕像/达多·鲁维奇（Dado Ruvic）| 路透社图片
+中共国禁止金融机构和支付公司提供加密货币交易相关服务，并警告投资者不要进行投机性加密货币交易。
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21175539/G-1.png)electionwiz.com
-笔者5月19日转载、报道了佐治亚州“在暗势力重金激励下，选举管理人员死心塌地掩盖、搅局下，正义人们进行司法审计的要求接连受阻……”【1】，今天（5月21日）传出消息，法官判定，对富尔顿（Fulton）郡选票进行法庭审计。
+这是中共国打击新兴数字交易市场的最新尝试。三家行业机构周二联合声明称，根据禁令，包括银行和在线支付渠道在内的此类机构不得向客户提供任何涉及加密货币的服务，如注册、交易、清算和结算。
 
-《门道专家》发表文章，题目“佐治亚州法官要求对富尔顿郡选票进行法庭审计，因为在选票批次中存在巨大差异。”【2】
+他们在声明中说：“近期，加密货币价格暴涨暴跌，加密货币投机交易反弹，严重侵害了人民财产安全，扰乱了正常的经济金融秩序。”
 
-文章说，佐治亚州亨利（Henry）郡首席法官布莱恩J.阿梅罗（Brian J. Amero）在周五（5月21日）的听证会上下令，开启富尔顿郡的选票（审计）。
+中共国已经禁止加密货币交易所和初始代币发行，但没有禁止个人持有加密货币。
 
-法官命令双方于5月28日上午10点到达选票存放地点，2020年11月的选票将以600 dpi或更高的分辨率进行扫描。
+声明还说，这些机构不得提供加密货币的储蓄、信托或质押服务，也不得发行与加密货币相关的金融产品。
 
-《CD媒体》（CD Media）正在报道今天的听证会。
+这些举措并不是中共政府针对数字货币的首次。2017年，中共国关闭了本国加密货币交易所，扼杀了占全球比特币交易90%的投机市场。
 
-在一个正在进行的听证会上，佐治亚州亨利郡法官、受人尊敬的布莱恩J.阿梅罗，可能允许原告（VoterGA.org、Garland Favorito和另一名原告）实物接触富尔顿郡的邮寄选票，这可能会显示2020年总统选举周期期间，佐治亚州存在的大规模选举舞弊，以及后续的、决定民主党控制美国参议院的决选，导致对美国政府的完全控制。
+2019年6月，中共国人民银行发表声明称，将封锁所有境内外加密货币交易所和初始代币发行网站的访问权限，旨在通过禁止外汇交易来取缔所有加密货币交易。
 
-在庭审中，VoterGA.org的律师描述了选票批次数之间的巨大差异（21%），这个巨大的差异是佐治亚州的州务卿布拉德·拉芬斯佩格（Brad Raffensperger）在确认选举时报告的选票批次数，与法院在该案上一次4月份的庭审中，下令进入（清点）的选票批次数。
+声明还强调了加密货币交易的风险，称虚拟货币“不受实际价值的支持”，其价格容易被操纵，交易合同不受中共国法律保护。
 
-佐治亚州州务卿拉芬斯佩格的法庭陈述（GA SoS Raffensperger Amicus Brief），否认选举舞弊，（称指控）不成立，充满了欺骗。
+这三个行业机构是：中共国互联网金融协会、中共国银行业协会和中共国支付清算协会。
 
-VoterGA.org自4月份的听证会以来，一直在（指责有关人）用低分辨率图像扫描设备检查选票，并宣布他们需要看到实际的实物选票来了解经过认证的假选票的数量。原文链接了相关的报道。
-
-（原文完）
-
-选举舞弊，美国肯定存在；大规模的选举舞弊，令人不解。封杀质疑，能间接证实大规模舞弊的存在。漠视不管，让人怀疑这还是“灯塔美国”吗？
-
-相关链接：
-
-【1】[https://gnews.org/zh-hans/1257789/](https://gnews.org/zh-hans/1257789/)
-
-【2】[https://www.thegatewaypundit.com/2021/05/breaking-georgia-judge-calls-forensic-audit-fulton-county-ballots-large-discrepancies-21-found-ballot-batches/](https://www.thegatewaypundit.com/2021/05/breaking-georgia-judge-calls-forensic-audit-fulton-county-ballots-large-discrepancies-21-found-ballot-batches/)
+原文作者：路透社
+发布时间：2021年5月19日
+原文链接：https://www.reuters.com/technology/chinese-financial-payment-bodies-barred-cryptocurrency-business-2021-05-18/?taid=60a3d2f8b4526500012f1914&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter
 
 0

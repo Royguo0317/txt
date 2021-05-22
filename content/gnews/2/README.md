@@ -1,36 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生5月21日直播同步精要文字版
-` 喜联盟七哥直播组` [轉載自GNews](https://gnews.org/zh-hans/1263037/)
+## 5月21日美国政要反共推文精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1263130/)
 
-听写：
+参议员汤姆·科顿: [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 公司（尤其是实力雄厚的公司）是中共的分支机构，最终处于国家控制之下。现在该是我们的法律认清这一现实的时候了。我们的法案将堵住法律漏洞，并迫使为中共国公司游说者注册为外国代理人。 【附科顿参议员官网新闻：科顿，加拉格尔推出草案，以堵住为中共国公司游说的漏洞】
 
-纽约香草山农场Dolores
 
-纽约香草山农场 GForever(文紫)
 
-校对整合：
+> Chinese companies—particularly powerful ones—are arms of the CCP & remain ultimately under state control. It’s time our laws recognize that reality. Our bill will close legal loopholes & force lobbyists for Chinese companies to register as foreign agents.[https://t.co/JnuZkJ8n3D](https://t.co/JnuZkJ8n3D)
+> — Tom Cotton (@SenTomCotton) [May 21, 2021](https://twitter.com/SenTomCotton/status/1395779935919349767?ref_src=twsrc%5Etfw)
 
-纽约香草山农场 GForever(文紫)
 
-发布：纽约香草山农场Dolores
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21194825/0521-1.jpg)
-1. 我现在在船上向大家直播，国内很多的战友发信息说共产党正在搞各种币， 不管他多疯狂，每时每刻都在以光的速度走向死亡。这些天以毒灭共的形势是多么的厉害。国内的每个人都在向往自由，可见自由真是太棒了！想想一年前的这个时候，我们现在有GTV了，这就是我们的爆料革命。这个船的速度太快了！
 
-我现在去见一个人。
+参议员瑞克·斯科特： 把纳税人的钱投资到 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) ，威胁了我们的国家安全和危害了美国人的退休储蓄。我很自豪加入卢比奥 [@marcorubio](https://twitter.com/marcorubio) 等同事，提出“纳税人和储蓄者保护法”（TSP ACT），防止联邦雇员退休储蓄计划（TSP） [@tsp4gov](https://twitter.com/tsp4gov) 退休储蓄用于 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click)。（转推卢比奥同内容推文）
 
-2. 大家都看到了每时每刻的变化，我们要感谢老天，充满感恩之心。去年戒严的时候，我们创造了世界上唯一一个讲真话的GTV、G-news，虽然经历像西天取经一样的百般曲折。去年5.21GTV私募，一年后的今天再在GTV直播我们聊得内容完全不一样了，我们已经聊G美元、G币、G-news、G翻身、喜联储。不管他们如何诬陷，全世界都在谈新中国联邦，我们已经改变了这个世界，我们创造了无数的传奇，我们在拯救人类！世界75亿人，只有我们在说出真相。
 
-3. 路德说的对，“爆料革命没你不行”，因为有你们，我们在改变世界，这一年太重要了。G系列，一切都是我们自己的。我们要捏死中南坑的那些老杂毛。我们要感谢那那些默默无名的战友们。我么要自豪、要骄傲，因为我们有这个本钱。我每次坐船来这儿都很激动，很喜欢这个大桥，太漂亮了！这样的大海、哈德逊河，美国这个国家太传奇了，太了不得了。这个国家有好人，也有世界上最坏的的人，但这里有希望、有法律、有正义、有信仰、有自由，这就是美国最伟大的地方。
 
-4. 手机版GTV直播更接地气、更真实。很多人都说要搞GTV，但是我知道这很不容易，很多人都是吹牛。今年的7月4日美国独立日，我要给战友们送大礼！现在声音很好，约翰哥哥撑过了最近的各种攻击，非常不错。前面就是瑞克岛监狱，它是专门关特务、欺民贼的。 回想一年前，看到我们的成就，我们中国人从来没有像今天这么重要过，在世界舞台受到如此的尊重和重视。闫博士今晚还会接受福克斯的采访， 欧洲的各大网站都将原来反驳闫博士的文章撤掉，因为我们是真，我们要以真灭假。
+> Investing taxpayer dollars into Communist China threatens our national security & jeopardizes Americans’ retirement savings. Proud to join [@marcorubio](https://twitter.com/marcorubio?ref_src=twsrc%5Etfw) & my colleagues to reintroduce the TSP Act to prevent the [@tsp4gov](https://twitter.com/tsp4gov?ref_src=twsrc%5Etfw) from steering retirement savings to Communist China. [https://t.co/TzGVzFveTW](https://t.co/TzGVzFveTW)
+> — Rick Scott (@SenRickScott) [May 21, 2021](https://twitter.com/SenRickScott/status/1395755553331290121?ref_src=twsrc%5Etfw)
 
-5. 我的郭氏英文比去年好太多了，我们的G系列无人能比，这就是实力。我们要行动、行动、行动！大家未来会看到GTV的很多高科技，这都是战友们的努力，是他们一个代码一个代码写出来的。我已经来到纽约了，再过几天全球的战友都会来到纽约庆祝六四。 前方就是瑞克岛监狱，曾经拍过很多大片，所以千万不要犯罪，重犯都在这个岛上，熊宪民估计会被关在这个岛上。 边上这个就是鬼岛，非常的恐怖。 一年的时间，我们的新中国联邦即将要在世贸中心的大楼上庆祝我们的六四周年庆，我们的内心一定要强大、要有定力、有自信、有视野。看这座桥，我很喜欢，建于清朝时期，风景太美了，就这样共产党都能说美国正处于水深火热之中，中国人被骗的太可怜了。
 
-6. 我现在已经进入曼哈顿的中城，这里的公寓非常昂贵。我曾经在这个黑色100号的楼居住过。这个是罗德岛，那个是联合国大楼， 新中国联邦一定会走进联合国，大事正在酝酿中。等到我们喜币全面发行，7月4日之后，战友们看看我们干了什么大事儿！ 这个是世贸中心大楼，前边是布鲁克林，是艺术家的聚集地。我们要让全世界承认我们新中国联邦，而且不求人、不与任何人勾兑，我们走着看。我们要为中国人追求民主、自由、法治。
 
-7. 战友们看到自由女神了吗？我们的六四周年庆将在前方那个楼的最顶层举行。曼哈顿太有魅力了，世界上90%的金融进出都要经过这里，他们赚的就是手续费。 布鲁克林桥就是由中国劳工在清朝时期建成的，竟然制定了反华法案，太没天理了。 全世界印美元、交易美元的财富帝国中心都在这里，这个很瘦的楼建成后发现结构有错误，将会被炸掉。我来了，带着14亿中国人来消灭共产党，让自由女神回归。七哥在自由女神像前祈祷—“共产党你完了！”我只有在这里才能感受到自由女神的魅力。
+众议员迈克·加拉格尔： 任何重要到注册游说者的中国公司，其重要性足以为 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 共同操控。 自豪加入科顿议员出台立法以堵住游说者的漏洞，并降低中共使用沼泽地对付我们的能力。 【附加拉格尔议员官网发布的关于该提案的新闻】
+
+
+
+> Any Chinese company important enough to register lobbyists is significant enough to be co-opted by the CCP.
+> 
+> Proud to join [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) in introducing legislation to close loopholes for lobbyists and reduce the CCP's ability to use the swamp against us. [https://t.co/j3WfHpTdhQ](https://t.co/j3WfHpTdhQ)
+> — Rep. Mike Gallagher (@RepGallagher) [May 21, 2021](https://twitter.com/RepGallagher/status/1395815458046201868?ref_src=twsrc%5Etfw)
+
+
+
+众议员克里斯·史蒂夫： 我朋友加拉格尔[@RepGallagher](https://twitter.com/RepGallagher) 揭露了有关美国纳税人的钱可能资助了在武汉实验室研究的真相。 这与指责无关而是为了防止另一场灾难。我们需要使我们的世界彻底颠倒的病毒起源的更多答案。 【转加拉格尔议员的推文：揭露美国NIAID 和NIH资金如何流向武毒所】
+
+
+
+> My friend [@RepGallagher](https://twitter.com/RepGallagher?ref_src=twsrc%5Etfw) exposes the truth about U.S. taxpayer dollars potentially funding research at a Wuhan lab.
+> 
+> This isn't about assigning blame. It's about preventing another catastrophe. We need more answers about the origin of a virus that turned our world upside down. [https://t.co/8vS6fvj0jh](https://t.co/8vS6fvj0jh)
+> — Rep. Chris Stewart (@RepChrisStewart) [May 21, 2021](https://twitter.com/RepChrisStewart/status/1395778100999430150?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬佩奥： 就在乔拜登上任的前几个小时，他就送给 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 一份大礼，重新加入了巴黎气候协议。美国看起来是唯一一个遵守承诺的国家——它也只有通过毁掉中产阶级的工作才能这么做。拜登政府继续让 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 胜利。
+
+
+
+> Just hours into his Presidency, Biden gave China a gift by rejoining the Paris Climate Accords. The US will likely be the only nation to meet its commitments — and it will only be able to do so by destroying middle class jobs.
+> 
+> The Biden Administration continues to let China win.
+> — Mike Pompeo (@mikepompeo) [May 21, 2021](https://twitter.com/mikepompeo/status/1395737034430500868?ref_src=twsrc%5Etfw)
 
 
 

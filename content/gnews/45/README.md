@@ -1,37 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 卢比奥参议员提出议案 扼制中共收集美国人的基因信息
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1262402/)
+## 2021年5月21日 文贵先生盖特 2
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1262516/)
 
-#### 翻译：大种马 | 校对：文旺
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21121746/rubio.jpg)图片来源：rubio.senate.gov/
-下面是卢比奥参议员新闻办公室5月20日发布的消息：
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-华盛顿特区——卢比奥参议员提出了两个议案来对抗中国共产党通过合法以及非法手段收集美国人基因信息所引起的日益增长的威胁。卢比奥一直是致力于解决这一关键的安全与隐私问题的领头人。
+5月21号：【诺贝尔医学奖得主，病毒学家，说疫苗：👇 rairfoundation.com/bombshell-nobe…】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21132838/acbbf5128e040724a664cddf82c3904e.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21133300/bf88d46aaa119fc0cb7103646ad60e1b.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21132807/4f2ca3f644e679b90cd057d961b8afd4.jpg)
+[【2021年5月21日】文贵先生盖特原文](https://gtv.org/getter/60a7c3f0d48e0209266460dd)
 
-卢比奥说，“没有任何理由允许美国纳税人资助北京的研究，或者允许我们的政策开放美国的基因数据。采取措施解决这个问题已经成为国会的头等大事。”
-
-**基因预算与国家安全强化法案 (GENE ACT)**（与参议员约翰·科林（John Cornyn）共同发起）将：
-
-- 要求美国海外投资委员会（CFIUS）在其简报里包括参议院情报委员会与参议院外交委员会的意见，以加强国会的监管权。
-- 指导海外投资委员会重写规则，要求有关公司必须申报任何涉及基因信息的交易。
-- 要求任何涉及基因数据转交的活动必须要咨询卫生与人力资源部（DHHS）——其目的是加强跨部门间对数据转交活动的相互通报。
-
-
-**基因数据安全法**将：
-
-- 通过要求卫生研究院（NIH）在制定全院战略计划时要优先考虑国家安全问题，以使NIH系统运作现代化。
-- 禁止NIH 资助任何与中华人民共和国政府有关联的实体。
-- 更新牌照准则，把国家安全纳入审批条件。这条法案将要求拥有美国人健康数据的每一个公司，在申请获得“提升临床实验室修正案”证书时，必须要申报该公司是否与中华人民共和国政府有直接关系。
-- 要求NIH每年向参议院健康，教育，劳动以及养老金委员会，参议院外交委员会，以及参议院情报委员会提交年度会计报告时 需提供对那些获得NIH研究资金又与外国政府有关联的研究人员进行调查的进展情况，包括那些没有被适当公布，审核和批准的信息。
-- 要求NIH 更新基因数据分享政策，并建立一个跨联邦政府，个人机构以及学术研究实体的工作组来发展和推广最佳方法，从而保证研究机构在关于基因数据分享方面能跟好地识别和应对国家安全风险。
-
-
-评：
-
-简单说，这就是把基因数据问题政治化，以应对外来威胁，提升战略情报委员会的审查权力，限制NIH。
-
-原文链接：[Rubio Introduces Bills to Counter Growing Threat of China’s Collection of American’s Genomic Data](https://www.rubio.senate.gov/public/index.cfm/2021/5/rubio-introduces-bills-to-counter-growing-threat-of-china-s-collection-of-american-s-genomic-data)
+**喜联盟Gnews编辑部**
 
 0
