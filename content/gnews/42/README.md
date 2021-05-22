@@ -1,24 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Sellin上校揭露姜世勃与刘叔文将弗林酶切位点插入中共病毒
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1263943/)
+## 辛丑年，中共“涛声依旧”
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1264081/)
 
-#### 文章撰写:【默凡】
+#### 文章撰写:【默凡】 新闻采集：Peter Wong
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22035403/Snipaste_2021-05-22_15-53-20.png)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22042736/dsaf4500x3000_422932610486.jpg)
 
-Sellin上校5月22日发推：闫丽梦博士是正确的，姜世勃与刘叔文对中共病毒起源至关重要。在其他不良行为中，我相信他们和他们在南方医科大学的同事将弗林酶切割位点插入到中共病毒中。
+新华网北京5月21日报道：记者21日从水利部获悉，今年以来，中共国面平均降水量142毫米，较常年同期偏少近1成。广东北江、湖南湘江、江西赣江、福建富屯溪等71条河流发生超警以上洪水，2条河流发生超保洪水，广东北江支流凌江3小时水位涨幅达4.13米。
 
+同时，西南、华南等地部分地区发生干旱，目前全国耕地受旱面积1854万亩，主要分布在云南、广东、福建、内蒙古、山西等地。
 
+据预测，盛夏（6月至8月），中共国南北方均有多雨区，以北方多雨区为主；黄河中游、海河部分水系、松花江可能发生较大洪水，珠江、太湖、辽河可能发生超警洪水，长江、淮河可能发生区域性暴雨洪水；西南东北部、江南西北部、江汉地区、新疆东北部等可能发生夏旱。
 
-> Dr. Li-Meng YAN [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) is correct. Shibo Jiang and Shuwen Liu are important to the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) 
-> Among other bad deeds, I believe they and their co-workers at Southern Medical University inserted the furin cleavage site into COVID-19.[https://t.co/ekeVaPblBI](https://t.co/ekeVaPblBI) [pic.twitter.com/UJNkxcCOhu](https://t.co/UJNkxcCOhu)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 22, 2021](https://twitter.com/LawrenceSellin/status/1395924834455113730?ref_src=twsrc%5Etfw)
-
-
-
-从姜世勃发表的论文来看，他成功地将弗林酶切位点插入到冠状病毒中，这意味着他完全能够往中共病毒中插入福林酶切位点。刘叔文博士与姜世勃曾同在纽约血液中心参与研究工作，2002-2014年期间，刘叔文在纽约血液中心中共的同时，他仍在中共国第一军医大学工作，而第一军医大学就是现今的南方医科大学。
+参考文章：[**入汛以来71条河流发生超警以上洪水 水利部：密切监测雨情水情汛情**](http://www.xinhuanet.com/politics/2021-05/21/c_1127476896.htm)
 
 本文仅代表作者本人观点，不代表Gnews平台
 

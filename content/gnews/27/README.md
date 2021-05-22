@@ -1,24 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【区块链世界1期】什么是区块链
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1264127/)
+## 2021/05/19 班农采访(5) 律师和医疗专家团队起诉WHO、美国CDC等反人类罪行
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1264196/)
 
-作者：喜马拉雅东京樱花团 / 做个好人
+视频字幕：雨中漫步 | 听写/翻译：Wade| 校对：Roberts |简评/文字整理/编辑：胖丁|Page：小雨
 
-![](https://lh4.googleusercontent.com/R2O21fXqO6WydtDggAovJ_7tasfWdcwknf25Jqev5mfvlWSdQ9R_OyjLiGvMC9gQVArdUAMbo8BIaSWzR4bRa-y-8FGUm45j8L6PobEAtFrZygXmAJefgyyIxbsNzFZHML-wknKK)
+**简评：**
 
-区块链，一个由对称加密、非对称加密、哈希算法、博弈论、货币学、分布式系统等既有技术和学科组成的新方向，其本质是一个将数据以区块形式记录，并将区块按时间顺序排列，顺序相连组成链式数据结构，在最长合法链和共识机制下，以密码学为依托，保障其不可伪造，不可篡改，但相对容易验证的分布式账本（区块链的本质就是分布式账本，tips：相对而言分布式账本不一定基于区块链技术。）记账方式、token、数据存证三要素是区块链的核心。
+由律师和医疗专家组成的团队开始了针对美国疾控中心（CDC）、WHO和达沃斯组织反人类罪的法律诉讼。在信息层面，这样的行动非常有力、非常重要。策划这个行动的德国律师是世界上最有声望的法律人士之一。德国和欧洲率先行动，这令人震撼。英国和欧洲喜马拉雅农场应该密切关注这件事。
 
-经过十多年的发展，区块链很难做到完全去中心化，而是以多边自治形成弱中心化（或称之为削弱唯几的中心）。谈到区块链我们很难避开BTC，站在这个角度，中本聪当初创建BTC的初心已经失败，现在的BTC以技术和算力中心化，代替了现行世界政府职权的中心化和垄断地位。诚如郭先生所说，那是1.4%的人的游戏，其他都是韭菜。BTC的减半通缩和市场fomo情绪虽强，但用户也需有自己辩证的判断逻辑和价值体系。
 
-最长合法链：区块链链存在社区（或技术方）分叉行为，在保障数据连贯安全和链平稳的情况下，最长的那条链为合法链。今后的数据都由那条链进行记账，打包（类似于优胜劣汰）。
 
-共识机制：如主流的比特网络的POW（工作量证明:特定时间内最快算出有且唯一答案的为获胜者，可以打包区块获得区块奖励，这个获胜者在比特网络中也是付出最多算力的）。以太的POS（权益证明：质押token有机会获得记账权从而获得奖励）以及其他DPOS、PBFT等记账方式:核心点是金额、来源、去向。 如目前比特的UTXO（未花费记账：链上转账的时候，未花费的账目会转移至新的地址，即这个地址之上一定有一个输出，天然便于数据回溯。所以说UTXO天然与区块链相容合）。以太的Account Base（基于账户的记账模型），与传统银行账户趋同。比如地址中有100个AToken，转出去50个，则这个地址中还剩下50个AToken。其他的记账方式包含token base追踪token而非账户的、HyperLedger的账户-资产设计等。
+[GTV链接](https://gtv.org/video/id=60a89e8f93cb4b1e6f9b881c)
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
-*校对：喜马拉雅东京樱花团 / 鸿雁*
-*责任编辑：喜马拉雅东京樱花团 / 煙火1095*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13031339/%E4%BA%8C%E7%BB%B4%E7%A0%81-1.jpg)
+**视频字幕：**
+
+**主持人Winton：**《每日曝光》5月13日报道，新冠疫情诈骗律师和医疗专家开始了对世卫组织和世界领导人反人类罪行的法律诉讼。由雷纳福尔米克率领的超过千名律师和万名医疗专家的团队开始了针对美国疾控中心、世卫组织还有达沃斯组织反人类罪的法律诉讼。您认为这样的法律诉讼是否有意义？
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Riro2GpoWo725/images/8ba1c445-616e-4251-8f84-89872b26b041.png?asset_id=ca23dd93-e621-4874-97f8-03d18d46e51d&amp;img_etag=%2256fb9c57cee90579111f8c9ba8f50589%22&amp;size=1024)](https://spark.adobe.com/page/Riro2GpoWo725/images/8ba1c445-616e-4251-8f84-89872b26b041.png?asset_id=ca23dd93-e621-4874-97f8-03d18d46e51d&amp;img_etag=%2256fb9c57cee90579111f8c9ba8f50589%22&amp;size=1024)
+
+**班农:** 这需要分两部分來说。首先是法律层面。然后是媒体层面，我们在信息战中的反击。
+
+我不是律师，不懂法律层面。这方面要问律师。我会对此进行分析，与参与（诉讼）的人交谈，从而获取更多的理解。我当然喜欢他们在法庭上的行动，我们要继续观察。但我要强调的是，在信息战方面，这样的行动是非常有力量的，非常非常重要。
+
+英国喜马拉雅和欧洲喜马拉雅农场要密切关注这件事。
+
+策划这个行动的德国律师是世界上最有声望的法律人士之一，这就是为什么它非常重要。眼下我无法解释它究竟有多重要。我非常骄傲，这样的行动始于美国之外。德国这样我非常尊重，但在默克尔治下深受达沃斯之害的国家。看到德国和欧洲在这方面率先行动，这令人震撼。
+
+**我认为这在与中共跨国犯罪集团的战斗中是非常正面的信号。**
+
+[**完整访谈视频**](https://gtv.org/video/id=60a50f53db13300ca55b1ace)
+
+**主播：** Mikehua, Angela, Daniel, Mike, Dr. TCC, Winston
+
+- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
+- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
+
+
+***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三伦敦时间14:00 （美东时间09：00）直播***
+
+编辑：【英国伦敦喜庄园编辑部】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Riro2GpoWo725/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/Riro2GpoWo725/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+
+
+
 0

@@ -1,25 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 奥地利总理因为虚假陈述接受调查
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1264285/)
+## 【路德简报】5/21/2021晚：福克斯主播 Tucker称闫博士应该获得美国总统自由勋章
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1264328/)
 
-信息来源：德国世界报网络版 
-发布时间：2021年5月20日
-翻译 /整理/ 简评： Shuizhuyu
-
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22070122/daniel-plan-OE7jKpsk7uU-unsplash-scaled.jpg)
+**编辑：华盛顿DC农场 路德简报项目组**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22040008/20210521-2-scaled.jpg)
 
 
-维也纳的戏剧性政治扑克：检察长办公室正在调查涉嫌虚假陈述的奥地利政府首脑。 总理可能会很快被起诉。
+> 2021 年5月21日 路德时评 晚 
+> 
+> 1.福克斯主播 Tucker称闫博士应该获得 美国总统自由勋章 
+> 
+> 2.文在寅、 拜登： 谈废除“ 韩美导弹指南” 松绑韩国军力 
+> 
+> 3. 美军将开展 跨越17 个时区 
+>  25，000 人参加的海军演习 以应对中共等国 [pic.twitter.com/UWD5PwXkbH](https://t.co/UWD5PwXkbH)
+> — 平民爆料 (@WM18320321) [May 22, 2021](https://twitter.com/WM18320321/status/1396054503317716997?ref_src=twsrc%5Etfw)
 
-在病毒危机期间，自2020年初起领导保守派和绿党之间的政府联盟的奥地利总理塞巴斯蒂安·库尔兹（ÖVP）陷入困境：经济和腐败检察官办公室（WKSTA）正在对他进行调查。由于涉嫌虚假陈述而成为嫌疑人。 库尔兹坚决拒绝这些指控。
 
-简评：奥地利总理是欧洲最年轻的总理，因为虚假陈述现在正在接受调查。 我们先不管他的虚假陈述是否成立， 只就他被调查这件事情的本身，就可以明显的表现出了民主国家的优越性。 不管是谁， 不管你的职位多高， 你是被选出来的， 你就要接受全体人民的监督， 你就要对你所作的一切合理的解释。 民众不满意， 发现疑点， 就会对你进行调查，你还要配合调查。 任何人没有特权。 这跟中共国是天壤之别。
-
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
-
-🔗[Ermittlungen-in-Oesterreich-Wie-geht-es-weiter-mit-Kanzler-Kurz](https://www.welt.de/politik/ausland/plus231240705/Ermittlungen-in-Oesterreich-Wie-geht-es-weiter-mit-Kanzler-Kurz.html)
 
 0

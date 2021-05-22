@@ -1,19 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 留守儿童对打工父母的含泪嘱托为何如此让人肝肠寸断
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1264118/)
+## 【热点播报】加拿大捐赠830,000给武汉病毒实验室
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1263601/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22043618/%E6%8D%95%E8%8E%B72_%E5%89%AF%E6%9C%AC-1.png)
-据[**熊孩子翻车现场**](https://weibo.com/u/5869826499?refer_flag=1005055013_) [2021年5月19日 15:27](https://weibo.com/5869826499/KgbS8fwg7?from=page_1005055869826499_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+**作者**：**纽约香草山美食部  Amanda 艾曼达**
 
-小学生讲述[#最想和爸妈说的话#](https://s.weibo.com/weibo?q=%23%E6%9C%80%E6%83%B3%E5%92%8C%E7%88%B8%E5%A6%88%E8%AF%B4%E7%9A%84%E8%AF%9D%23&amp;from=default) ，泪崩了，是个暖心懂事的孩子  [L熊孩子翻车现场的微博视频](http://t.cn/A6VqPsyS) ​​​​
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
 
-在这个要为全球把脉的国度里，有一种惦记叫做让爸爸别光再从北京干活，让爸爸多来看看他，让爸爸别熬夜，让爸爸别一天不吃饭；在这个要建立人类命运共同体的国度里，有一种理想叫做长大后当了兵，然后找个离家近点的好工作，可以天天给爸爸妈妈打钱。
 
-在这个号称全民脱贫的国度里，当局者刻意维持的这种子宫经济之下的骨肉分离总是如此让人泪崩，因为这个孩子的现在何曾不是我们曾经成长的过去和我们正在经历的当下。
 
-（文章内容仅代表作者个人观点）
+
+
+贾斯汀·特鲁多（Justin Trudeau）政府用纳税人的钱捐赠了830,000美元给武汉病毒实验室作COVID-19研究。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22004511/unknown-31.png)
+据悉，这笔捐赠的确切金额是828,046美元，被用于一个冠状病毒合作研究项目。 这项合作研究由来自阿尔伯塔大学、加拿大食品检验局和武汉病毒研究所的病毒学家、化学家、传染病专家、一线从业者和公共卫生研究人员组成的多学科团队进行。其政府官网上也声称这个项目是由武汉团队领导的。实验室在研究蝙蝠冠状病毒及其潜在的人类传播方面存在着新的类似于SARS的大流行的风险。
+
+此前，我们爆料革命一直致力于向全世界人民揭露中共的邪恶行径，宣传新型冠状病毒为人造病毒的真相。我们的路德访谈最早在去年1月19日就揭露了新型冠状病毒是人传人，大爆发，强变异，并且此病毒来自中共军方实验室！我们的天使科学家闫博士更是勇敢地站出来，通过发表三篇论文向全世界人民有理有据的揭露中国共产党制造生化武器并有意释放冠状病毒、企图称霸世界的野心，其阅读量和下载量都创造了历史之最！
+
+而今，随着世界各国政府的觉醒，越来越多有良知，有正义感的人站出来支持闫博士，与我们爆料革命坚定的站在一起。然而，特鲁多作为加拿大一国的总理，其执政的政府滥用纳税人的钱资助武汉病毒实验室，完全罔顾了本国国民的安危，与中共狼狈为奸，控制媒体言论，坚持病毒自然论，掩盖中共制造并蓄意释放新型冠状病毒的真相。不明真相的加拿大人一旦知道病毒真相，绝不会允许这样的总理代表民意继续执政！
+
+编辑/校对：遍地开花 审核/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
+
+
+
+
 
 0
