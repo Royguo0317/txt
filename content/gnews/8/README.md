@@ -1,97 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【圣城传声筒】香港的晴天——新中国联邦
-` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1263391/)
+## 九千万党员跟着喜联储和喜币走就叫“隔空取钱”！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1263446/)
 
-作者：纽约香草山香港部 小雯
+**摘要：在2021年5月7日的盖特中，郭先生终于揭秘了什么是“隔空取钱”。他说因为加密区块链货币具有安全性、公平性、平等性、隐私性，共产党 9000 万党员终有一天会相信放他们钱最安全的地方是喜联储和喜币，那时我们就成功地完成了“隔空取钱”！**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21225252/Miles_20210507-getter2.srt.txt)
+**九千万党员跟着喜联储和喜币走就叫****“****隔空取钱****”****！**
 
+**What Does Miles Mean by “Retrieving the CCP’s Money Telekinetically”?**
 
+所以战友们要好好的讲清楚加密区块链的意义在哪里。**第一，它就是安全；第二，是全球化；第三不可追踪；第四绝不可剥夺。**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
+So our fellow fighters need to explain the meanings of encrypted blockchain really clear. First thing is security. Second, it can be used globally. And the third, it’s untrackable. Fourth, indeprivability.
 
+所有现在对虚拟货币、加密货币没有所有的研发者100%的法务部门、金融部门、内部的尽职调查部门，所有的合作的情况下，还有当地法官、法院、刑事部门的判决下，没有一个人个可以看到你的所有的系统，绝不可能，任何一个货币，任何，只要是真的区块链，不是假区块链。
 
+Now, without the cooperation of all the R&D people of cryptocurrencies and virtual currency, legal department, financial department and due diligence internal department, and the decisions of the local judge, court and the criminal division, nobody can check your data in the system, absolutely no way. These apply to any currency, as long as it’s a real blockchain and not a fake one.
 
-致香港！
+因为区块链大家要解释区块链和安全的重要，区块链和信息的重要。任何一个区块链只要动一下全球都知道，你造不了假，你玩不了黑，你泄不了秘。所以在区块链加密货币上还有一个更重要的功能：绝对的公平！无论你对你爹，还是对你的敌人，你想不一样是不可能，加入这个平台就是一样的。经过这一系列的研发，到最后在区块链和这个数字代码面前大家人人平等。这不像过去拿的钱啊，还拿个什么中国银行特质发的这个票，这帮王八蛋，还有美元那里边儿什么大额票都是胡扯的，都是骗人的。
 
-香江有情，风暴无义！
+Because everybody needs to explain the importance of security and information of blockchain. Any actions performed in the blockchain will be known to the whole world. It can’t be faked, and its secrets can’t be leaked. You can’t play dirty tricks on it. So cryptocurrencies based on blockchain have an important function: absolute fairness! No matter it’s your dad or your enemy, it’s impossible for you to treat them differently. All the people who have joined this platform are equal. Through a series of R&D, at last, all men and women are equal in front of the blockchain, the digits and the code. They are not like the money that you had in the past, when these bastards in Bank of China offered special cheques, and there were also high denomination banknotes in dollars, which are all bullshits and scams.
 
-记忆无边，伤痕有印！
+以后的人类在货币面前的平等，货币面前的安全和生产力等价的兑换完全自愿化，和绝对的全球自由流通，没有圈圈[限制]，没有任何物理上可以隔离你，这就是未来。大家应该多讲讲这个**安全性、公平性、平等性、隐私性**。把这个讲明白你就知道咱们最重要的是什么？
 
-阴雨连绵的香港，唯有新中国联邦才有晴天吗？
+In the future, people will be equal in front of the currencies. The currencies will be secure, and the quid pro quo between production power and them will completely be based upon the free will of individuals. Money will flow freely to anywhere in the world, without any physical barriers. That’s what the future will look like. Everybody should talk more about the security, fairness, equality, and privacy. If you can make these really clear, you will understand what’s the most important to us.
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21215338/14-34.jpg)
+共产党 9000 万党员他们等[有]一天相信他把他的钱放到知道的最安全的地方就是喜联储、喜币，有黄金挂钩，随时可以兑换成各种货币，随时开户随时转走，没有人可以查，没有人可以封，没有任何人可以拿走你的钱——这就成功了。9000万党员都会跟着喜联储走，这就叫“隔空取钱”！
 
-事件回顾，2019年3月15日，香港民众要求港共政府撤回【逃犯条例】修订。因此，从3月开始，市民陆续发起游行。6月12日“200万+1”游行时，示威者与警方发生不可避免的冲突。示威者提出完全撤回【逃犯条例】修订草案、撤回暴动定性、撤回所有示威者控罪、追究警队滥权、行政长官林郑月娥辞职下台的【五大要求】。接下来，是721黑社会与黑警共同制造的暴力事件。8月中旬，示威者在香港国际机场静坐。8月31日，港共政府在太子站对市民发起恐怖袭击。10月1日，全港再次爆发激烈示威，林郑月娥引用【紧急法】制定【禁止蒙面规例】，引起更大冲突。11月，理大及中大两所大学与黑警发生了激烈地冲突，造成多人受伤和多人被捕，后续还有秋后算帐的暴力判刑。
+When one day, the 90 million members of the CCP believe that the most secure place for them to put their money is the Himalaya reserve and the HCN, which is pegged to gold and can be exchanged to any currency, and that they can open an account or wire out the money at any time, which won’t be frozen or robbed by anyone, we will successfully reach our goal. The 90 million CCP members will all follow the Himalaya Reserve. This is called “retrieve CCP’s money telekinetically”!
 
-这期间，香港的天空每天都充满着催泪弹的气味，东方明珠每天都在哭泣，每天都在流血，每天都有人失踪，每天都有人被自杀，海面上总有浮尸和新屋岭夜夜幽怨的哭声…
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/609553a237f7f73984c8e942](https://gtv.org/getter/609553a237f7f73984c8e942) (7:23-9:50)
+鸣谢：感谢 Antsee-GTV、TING GUO、文惜和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://www.gnews.org/zh-hans/1187944/](https://www.gnews.org/zh-hans/1187944/)
 
-当时，美国议员Rick Scott和Josh Hawley到访香港，了解真相，支持为自由民主而游行的香港示威者。2019年9月18日，众议院议长Nancy Pelosi，众议员Chris Smith等人，就“香港人权与民主法案”举行新闻发布会，香港各界人士均派代表参加。
+* * *
 
-也许很自信，也许过份地依赖西方，也许想像的很美丽，也许心中想像着像美国大片演绎的一样，CIA、美国大兵正在中环或是尖沙咀某个地方隐身着，然而现实是很残酷的。2020年6月30日，港版国安法通过，港人治港、中英联合声明终结，香港正式进入共产主义。从此，香港因港共政府而彻底沦陷，香港已经变成“臭港”了。
+**翻译：【Himalaya New York MOS (USA) – guocamole(文金欠)】
+字幕：【JennyL】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-这场举世瞩目的反送中游行，在2021年1月开始，因共产党制造和释放的病毒之肆虐而逐渐减少。中共享暴力封了你的眼睛和耳朵，现在用制造的病毒把香港的嘴巴也封了，人人都戴上了共产党制造的面具。
-
-香港民众游行时也曾一次又一次地高举美国、英国国旗，他们向往自由，想保护他们原本的自由。他们的祖辈大多是从大陆逃难过来香港的，他们知道屠夫们的凶残，他们奢望民主的西方可以帮助他们。但是也许你们并不知道，整个世界的暗黑里都有共产党的影子，你们的善良和天真限止了你们的想像。
-
-2021年3左右开始的缅甸政变，军管政府开始无差别地屠杀当地国民。到现在，缅甸人民依然风餐露宿，还在和邪恶的屠夫们斗争。他们也和香港同胞一样，高举着美国国旗，祈求着、撕心裂肺地哭喊着逝去的亲人，撕心裂肺地向西方呐喊着…
-
-据不完整的官方统计，香港有700多万人。除去老弱病残，小孩子，还有生活居住在海外的香港人，试问有多少香港人真正反省过，为什么香港最终走向中共埋下的深渊？你们心中热爱香江明珠，你们也许曾骄傲地说，我是香港人，我来自香港。但是不是过度的优越感，导致你们抵估了中共的邪恶。香港的今天，有多少香港人是参与者？低头者？跪拜者？你们是否用着中共的微信之类的社交软体，过度依赖本地新闻媒体，从而忽略了真相和人性？31年维园集会的香港精神是否还在?
-
-目前，根据港闻相关资讯，有200万香港市民打了中共疫苗。你们知道为什么要打疫苗吗？因为这是共产党制造和释放的病毒。试想，一个完全被共产党控制的港府推销的疫苗怎么可以信得过呢！！！
-
-或许你们尚不知道以郭文贵先生为首而发起的爆料革命；或许你们听说过，可宁愿相信被中共控制的本地新闻。
-
-爆料革命，爆共产党的料，革共产党的命。
-
-香港同胞你们是否知道，在天空的另一边，2020年6月4日，纽约港的自由女神上空漂着一面又一面的信仰之星旗帜——那是我们新中国联邦的国旗。郭文贵先生在滴血验证的那一刹那，纽约港的上空划过一道光——那是一道救赎世界生灵的光芒。
-
-共产党试图代表14亿人，也妄图代表香港。但新中国联邦四年来一直在告诉世界，共产党不能代表中国人，中国人不是共产党。你们手中的微信和本地媒体不会有关于郭文贵先生的正面新闻，也不会看到我们信仰之星的国旗，甚至你们追崇的某些人士也是看了郭文贵先生的新闻，复制了他的一些重要资讯当他自己的料，来迷惑善良的香港人。
-
-2017年，郭文贵先生横空出世。也许你们觉得他只是14亿人中的其中一个，没有什么不同，都是一样被共产党奴役的对象。很多海外华人追捧的美国之音，你们并不知道，2017年4月19的断播门意味着郭文贵先生正式开启了灭共的大门——这门里面关着14亿同胞，包括香港同胞。2017年5月18日，郭文贵先生在一位华人助理和一位的美国律师的见证下，录制视频庄严的宣誓，如果他发生了意外…（因共产党的追杀）。2017年9月4日，郭文贵先生在华盛顿新闻发布会上向美国民众和世界郑重发出警告：“共产党带来的黑暗时刻即将来临，你们需要做好准备！”
-
-你们不知道也不会明白，郭文贵在这场灭共运动中付出了多少代价，牺牲了多少，消耗了多少金钱！！！
-
-香港同胞你们是否知道，共产党正在悄悄地统治全世界：爆料革命曝光的“13579”计划，“一带一路”，“2025”，“2045”等，都是共产党称霸世界的战略计划！
-
-郭文贵先生四年来曝出了共产党统治世界的八个“计划”：
-
-1. 【南普陀计划】：习近平上位，已验证√
-2. 【蓝金黄计划BGY】：已验证√
-3. 【3F美国计划】：改写美国大选，已验证√
-4. 【双龙计划】：香港已验证，静待台湾变局√
-5. 【13579计划】：已释放生化病毒√
-6. 【建筑艺术项目】：私生子女【遍世界各地】√
-7. 【灭白计划】：正实施√
-8. 【辛普森计划】：正实施√
-
-
-你们是否知道，我们新中国联邦国旗上的信仰之星、海之蓝、天之蓝是灭掉共产党血旗的颜色。共产党的血旗是亿万中国人的身躯染红的，血旗上面也有香港人的鲜血，谁能知道下一滴鲜血不是你的？
-
-郭文贵先生引领的爆料革命，告知14亿海内外同胞，不要幻想和依赖西方帮你灭掉共产党。灭掉共产党，要靠我们自己中国人。看看四年来的爆料革命，当中灭共的成绩也将使新中国联邦越来越强大和自信。新中国联邦将带动你们去了解真正的共产党，一层一层地剥下共产党的面具，让世人看清共产党的狰狞面目。
-
-香港同胞，为了枉死的英灵，为了你们的子孙后代，为了你们的明天是晴天，站起来，站稳，放下你们心中的想法，和新中国联邦一起携手灭掉这个邪魔共产党！
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205738/M5-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
-
-
-
-0
++1

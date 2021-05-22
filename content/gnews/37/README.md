@@ -1,48 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【圣城传声筒】政治清算终将成为作茧自缚
-` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1263073/)
+## 5月21日美国政要反共推文精选
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1263130/)
 
-作者：纽约香草山香港部写作组
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
+参议员汤姆·科顿: [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 公司（尤其是实力雄厚的公司）是中共的分支机构，最终处于国家控制之下。现在该是我们的法律认清这一现实的时候了。我们的法案将堵住法律漏洞，并迫使为中共国公司游说者注册为外国代理人。 【附科顿参议员官网新闻：科顿，加拉格尔推出草案，以堵住为中共国公司游说的漏洞】
 
 
 
-本次案件涉及 2019年10月1日港岛游行，10名被告分别为陈皓桓、李卓人、梁国雄、何俊仁、杨森、何秀兰、吴文远、黎智英、单仲楷及蔡耀昌。众人同被控于 2019年10月1日组织、明知而参与未经批准集结。首名4被告被控2019年9月30日，在中环终审法院外煽惑他人参与未经批准集结。今次案件与早前的8.18、8.31未经批准集结案一样，将由区域法院法官胡雅文审理，案件于5月16日在区域法院开审，预计审10日。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21202458/9-26.jpg)图片来源：见水印
-
-民阵召集人陈皓桓指，10名被告全都会认罪，预计有机会还押。他想向香港人说，“鬼叫你是香港人，不要放弃民主自由”，又呼吁香港人日后不论是六四、七一，或其他日子都“坚决去发声，捍卫我们的民主、自由和公义”。他说，自己今日身穿一件Avengers的外套，是有特别意思：“坐 5 年，把所有人带回来”。他指，自己有心理准备会因为民阵召集人的身份被加控罪名，但强调香港只要有人坚持就有希望。
-
-是的，因为香港人坚持的不仅仅是合理的政治诉求，坚守的更是那份宝贵的公平、公义和良知。而港共政府和坐在幕后的中共极权，因为它们思维上的狭隘和狂妄，导致它们不敢面对人性美好的一面，而最终选择在黑暗的道路上走向灭亡。共产政权犹如癌细胞，寄生在人体内部，要靠不断吸取人体能量来壮大自己，最后因为自我膨胀导致摧毁人体，癌细胞自己也走向灭亡。而在香港发生的一切也正正反映出这一现象。香港的繁荣源自于港英时期的制度完善，因此催生出大批的勤劳、充满智慧、富有正义和公义的香港人民，从而形成制度和人民之间的良性互动，推动香港迅速发展。但回归中共国后，中共政权将香港从香港创造模式向金融旁氏骗局转变，还将所有发展归功于金融旁氏骗局；香港的法治制度也不断被共产制度侵蚀和破坏，在国安法推出后更是急剧转向，最终将富有正义、公义的香港人民噤声甚至逼走。等于癌细胞已经将人体的免疫系统彻底破坏，试问这个人体还能存在多久？这一幕一定会被全世界看见并引以为戒。任何和中共政权建立的合作，即所谓“一带一路”，最终必将效法香港，被癌细胞侵蚀和摧毁，万劫不复。选择和中共脱钩，也就是杜绝继续滋生癌细胞的最聪明的选择，相信为期不远。
-
-参考阅读：
-
-[【10.1 集结案】陈皓桓有心理准备坐监：香港人顶硬上　吴文远：希望出来时各记者朋友还在](https://beta.thestandnews.com/politics/10-1-%E9%9B%86%E7%B5%90%E6%A1%88-%E9%99%B3%E7%9A%93%E6%A1%93%E6%9C%89%E5%BF%83%E8%A3%A1%E6%BA%96%E5%82%99%E5%9D%90%E7%9B%A3-%E9%A6%99%E6%B8%AF%E4%BA%BA%E9%A0%82%E7%A1%AC%E4%B8%8A-%E5%90%B3%E6%96%87%E9%81%A0-%E5%B8%8C%E6%9C%9B%E5%87%BA%E4%BE%86%E6%99%82%E5%90%84%E8%A8%98%E8%80%85%E6%9C%8B%E5%8F%8B%E9%82%84%E5%9C%A8)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205738/M5-1.jpg)
-
-校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+> Chinese companies—particularly powerful ones—are arms of the CCP & remain ultimately under state control. It’s time our laws recognize that reality. Our bill will close legal loopholes & force lobbyists for Chinese companies to register as foreign agents.[https://t.co/JnuZkJ8n3D](https://t.co/JnuZkJ8n3D)
+> — Tom Cotton (@SenTomCotton) [May 21, 2021](https://twitter.com/SenTomCotton/status/1395779935919349767?ref_src=twsrc%5Etfw)
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
+参议员瑞克·斯科特： 把纳税人的钱投资到 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) ，威胁了我们的国家安全和危害了美国人的退休储蓄。我很自豪加入卢比奥 [@marcorubio](https://twitter.com/marcorubio) 等同事，提出“纳税人和储蓄者保护法”（TSP ACT），防止联邦雇员退休储蓄计划（TSP） [@tsp4gov](https://twitter.com/tsp4gov) 退休储蓄用于 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click)。（转推卢比奥同内容推文）
+
+
+
+> Investing taxpayer dollars into Communist China threatens our national security & jeopardizes Americans’ retirement savings. Proud to join [@marcorubio](https://twitter.com/marcorubio?ref_src=twsrc%5Etfw) & my colleagues to reintroduce the TSP Act to prevent the [@tsp4gov](https://twitter.com/tsp4gov?ref_src=twsrc%5Etfw) from steering retirement savings to Communist China. [https://t.co/TzGVzFveTW](https://t.co/TzGVzFveTW)
+> — Rick Scott (@SenRickScott) [May 21, 2021](https://twitter.com/SenRickScott/status/1395755553331290121?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·加拉格尔： 任何重要到注册游说者的中国公司，其重要性足以为 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 共同操控。 自豪加入科顿议员出台立法以堵住游说者的漏洞，并降低中共使用沼泽地对付我们的能力。 【附加拉格尔议员官网发布的关于该提案的新闻】
+
+
+
+> Any Chinese company important enough to register lobbyists is significant enough to be co-opted by the CCP.
+> 
+> Proud to join [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) in introducing legislation to close loopholes for lobbyists and reduce the CCP's ability to use the swamp against us. [https://t.co/j3WfHpTdhQ](https://t.co/j3WfHpTdhQ)
+> — Rep. Mike Gallagher (@RepGallagher) [May 21, 2021](https://twitter.com/RepGallagher/status/1395815458046201868?ref_src=twsrc%5Etfw)
+
+
+
+众议员克里斯·史蒂夫： 我朋友加拉格尔[@RepGallagher](https://twitter.com/RepGallagher) 揭露了有关美国纳税人的钱可能资助了在武汉实验室研究的真相。 这与指责无关而是为了防止另一场灾难。我们需要使我们的世界彻底颠倒的病毒起源的更多答案。 【转加拉格尔议员的推文：揭露美国NIAID 和NIH资金如何流向武毒所】
+
+
+
+> My friend [@RepGallagher](https://twitter.com/RepGallagher?ref_src=twsrc%5Etfw) exposes the truth about U.S. taxpayer dollars potentially funding research at a Wuhan lab.
+> 
+> This isn't about assigning blame. It's about preventing another catastrophe. We need more answers about the origin of a virus that turned our world upside down. [https://t.co/8vS6fvj0jh](https://t.co/8vS6fvj0jh)
+> — Rep. Chris Stewart (@RepChrisStewart) [May 21, 2021](https://twitter.com/RepChrisStewart/status/1395778100999430150?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬佩奥： 就在乔拜登上任的前几个小时，他就送给 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 一份大礼，重新加入了巴黎气候协议。美国看起来是唯一一个遵守承诺的国家——它也只有通过毁掉中产阶级的工作才能这么做。拜登政府继续让 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 胜利。
+
+
+
+> Just hours into his Presidency, Biden gave China a gift by rejoining the Paris Climate Accords. The US will likely be the only nation to meet its commitments — and it will only be able to do so by destroying middle class jobs.
+> 
+> The Biden Administration continues to let China win.
+> — Mike Pompeo (@mikepompeo) [May 21, 2021](https://twitter.com/mikepompeo/status/1395737034430500868?ref_src=twsrc%5Etfw)
 
 
 
