@@ -1,65 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国内部信息表明了病毒起源的实际位置
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1263343/)
+## 【独立观点】约翰逊向中共国宣告，英国相信国际海洋法
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1263401/)
 
-翻译：康州盘古农场 – 格格巫
+作者：纽约香草山健身部 Ivy001
 
-校对：康州盘古农场 – TrueSky
 
-编辑：康州盘古农场 – 明子
 
-发布：康州盘古农场 – 彩虹 Rainbow
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-**由乔·霍夫特（Joe Hoft）发布于2021年5月20日上午8:15
-劳伦斯·塞林（Lawrence Sellin）的来宾帖子**
 
-**在过去24小时内从中国内部来源获得的信息，有关COVID-19实验室起源的流行叙述有了进一步的进展。**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21215447/d2.png)
-毫无疑问，我们2月份的报告阐述了COVID-19病毒是在实验室中产生的：
 
-虽然，大多数人认为它是从武汉病毒研究所泄漏的。武汉病毒学研究所的“蝙蝠女”石正丽也否认她的研究所是病毒的出处。
+据路透社消息，英国首相鲍里斯-约翰逊周五表示，英国旗舰航母伊丽莎白女王号在亚洲的首次作战部署将向中（共）国等国家表明，英国相信国际海洋法。
 
-石正丽声称她和她的同事在2019年末，在从来历不明的肺炎患者的样本中发现了这种病毒。在此之前，我们从未接触过或研究过这种病毒，也不知道它的存在，
-“美国总统川普关于SARS-CoV-2是从我们研究所泄漏的说法，完全与事实相矛盾。她补充说。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21223916/15-32.jpg)图片来源：路透社
 
-她所说的部分可能是正确的。
+他在英格兰南部朴茨茅斯海军基地的航母上说：“我们要做的事情之一是，向我们的中（共）国朋友表明，我们相信国际海洋法，而且我们将以一种自信，但不是对抗的方式来证明这一点。我们不想与任何人对立，但我们确实认为，英国与美国、荷兰、澳大利亚、印度等朋友和伙伴一起，在维护法治、维护我们都依赖的基于规则的国际体系方面发挥着非常重要的作用。”英国的航母攻击群将通过地中海、印度洋和南中国海到日本的部署中与40多个国家互动，这将凸显英国的价值观及其军事能力。
 
-长期以来 ，我一直在说COVID-19病毒是由许多中国军事中心之间合作制造的，而不是武汉病毒研究所专门进行的“功能性增强”实验的唯一结果。
+约翰逊这番讲话直白地给国际社会，尤其是中共国一个信号：这是英国对中共国的一个强势的警告。
 
-来自中国内部的新信息与该结论是一致的。
+随着中共国经济实力的提升，中共国在南海和台海地区的各种扩张动作不断，给亚太和印太地区的和平造成了严重压力。而且，中共国无视国际海洋法，一意孤行地对周边地区和国家进行霸权扩张。中共国违反国际海洋法，破坏国际海洋规则的霸权行为，已经触碰到了世界民主国家的底线。以美国、英国为代表的民主国家，绝不允许中共国继续它的扩张行动。
 
-**尽管仍然是一个发展中的故事，但这里是一个摘要：**
-1.一种完整或几乎完整的COVID-19病毒，在2019年初从中国人民解放军东部战区司令部抵达武汉病毒研究所。
-2.与流行的叙述相反，COVID-19病毒主要是被送往武汉病毒学研究所进行检测。
-3.测试被分配给一组年轻的病毒学家。该小组的领导者的姓名是已知的，领导者的科学背景与该角色是一致的。
-4.测试是在非人类的灵长类动物上进行的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21215503/ssssw.png)
-武汉病毒学研究所的生物安全4级实验室位于武汉江夏区，该区位于武昌市以南约12英里处，这是COVID-19早期爆发的中心。
-尚不清楚江夏区的生物安全4级实验室是否具有使用非人类灵长类动物进行实验的能力。
+另一方面，约翰逊的讲话也表明了，英国政府已经达成共识，将与美国等盟友们站在一起，共同对抗中共国的霸权扩张行为。作为美国最重要的盟友，英国政府在对中共国的事情上，态度一直暧昧不清。在澳大利亚、日本、印度以及欧盟都明确和美国联盟之后，英国终于明确表态了。这表明，美国最重要的盟友和战略伙伴的回归，美英同盟将再度联合。
 
-**中国科学院自己的网站指出：**
-武汉国家生物安全实验室（NBL4）拥有2个细胞
+作为英联邦国家的老大、欧洲最有实力的国家之一，英国对世界格局的影响是无与伦比的。在历史上，美国与英国的联盟是对抗邪恶的战斗中最坚不可摧的力量。现在，英国政府作出决定，为对抗邪恶的中共国，将再次和盟友们一起战斗。
 
-1个中型动物实验室以及1个对病毒培养、收集和使用实验室。
+约翰逊的讲话，无疑是对中共国敲响了丧钟。
 
-相比之下，武汉大学动物实验中心和动物生物安全3级实验室确实具有进行非人类灵长类动物实验的能力。
+参考阅读：
 
-以下照片来自中文出版物，显示了受限制的武汉大学动物实验中心和动物生物安全3级实验室的内部，特别是非人类灵长类动物设施。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21215526/xxxx.png)
-该研究机构位于COVID-19早期爆发的震中，并位于中国人民解放军的主要医院附近。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21215515/zzzz.png)
-在武汉进行测试时，可能释放了COVID-19病毒。
+[UK’s Johnson tells China: We believe in rule of the sea](https://www.reuters.com/world/china/uks-johnson-tells-china-we-believe-rule-sea-2021-05-21/)
 
-在之前的TGP文章中，我推测弗林蛋白酶多裂的位点，即COVID-19实验室起源的“突破口”，是由与广州解放军南方医科大学关联的中国人民解放军科学家插入的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
 
-通过非人类灵长类动物的“传代”可能使COVID-19病毒部分适应了人类感染。也就是多重感染。或者，可以通过对具有COVID-19病毒人类受体的基因改变的小鼠品系，进行连续传代来对COVID-19进行预适应。
+编辑/校对/发稿：Irene木木
 
-原文链接：[https://www.thegatewaypundit.com/2021/05/know-covid-19-created-laboratory-new-revelations-inside-china-indicate-location-military-origin/](https://www.thegatewaypundit.com/2021/05/know-covid-19-created-laboratory-new-revelations-inside-china-indicate-location-military-origin/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+**更多资讯，更多关注**
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0

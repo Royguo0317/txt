@@ -1,57 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】八九六四的跨世代意义
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1263373/)
+## 九千万党员跟着喜联储和喜币走就叫“隔空取钱”！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1263446/)
 
-香草山医疗部 云豹
+**摘要：在2021年5月7日的盖特中，郭先生终于揭秘了什么是“隔空取钱”。他说因为加密区块链货币具有安全性、公平性、平等性、隐私性，共产党 9000 万党员终有一天会相信放他们钱最安全的地方是喜联储和喜币，那时我们就成功地完成了“隔空取钱”！**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21225252/Miles_20210507-getter2.srt.txt)
+**九千万党员跟着喜联储和喜币走就叫****“****隔空取钱****”****！**
 
+**What Does Miles Mean by “Retrieving the CCP’s Money Telekinetically”?**
 
+所以战友们要好好的讲清楚加密区块链的意义在哪里。**第一，它就是安全；第二，是全球化；第三不可追踪；第四绝不可剥夺。**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
+So our fellow fighters need to explain the meanings of encrypted blockchain really clear. First thing is security. Second, it can be used globally. And the third, it’s untrackable. Fourth, indeprivability.
 
+所有现在对虚拟货币、加密货币没有所有的研发者100%的法务部门、金融部门、内部的尽职调查部门，所有的合作的情况下，还有当地法官、法院、刑事部门的判决下，没有一个人个可以看到你的所有的系统，绝不可能，任何一个货币，任何，只要是真的区块链，不是假区块链。
 
+Now, without the cooperation of all the R&D people of cryptocurrencies and virtual currency, legal department, financial department and due diligence internal department, and the decisions of the local judge, court and the criminal division, nobody can check your data in the system, absolutely no way. These apply to any currency, as long as it’s a real blockchain and not a fake one.
 
-三十年为一世，距离1989年6月4日已经匆匆过了32年，也可以说过了一个世代。大部分的世人都是健忘的，尤其对某些事特别选择遗忘，以免触动内心深处的沉痛记忆。
+因为区块链大家要解释区块链和安全的重要，区块链和信息的重要。任何一个区块链只要动一下全球都知道，你造不了假，你玩不了黑，你泄不了秘。所以在区块链加密货币上还有一个更重要的功能：绝对的公平！无论你对你爹，还是对你的敌人，你想不一样是不可能，加入这个平台就是一样的。经过这一系列的研发，到最后在区块链和这个数字代码面前大家人人平等。这不像过去拿的钱啊，还拿个什么中国银行特质发的这个票，这帮王八蛋，还有美元那里边儿什么大额票都是胡扯的，都是骗人的。
 
-兀自树立在一列坦克车前的孤独身影，曾经撼动世人冷漠心灵，热血关注发生在天安门广场争取民主自由的行动。惋惜的是政客的勾兑及国际政治的现实，天安门英灵们没有赢得民主果实，自由女神仍是无法照亮黑闇的神州。邪魔中共变本加厉，妄图吞噬全球人类，生化武器中共病毒肆虐，数百万人无辜送命枉死，却仍有人执迷不悟想与中共谋皮。幸有文贵先生横空出世，唯真不破道尽中共真相，图救中华儿女百姓世人。历经四年艰辛奋战，美欧澳日逐渐觉醒，终将协力痛击中共，究责病毒真相求偿。中共色厉内荏败象已露，新中国联邦即将擅场。
+Because everybody needs to explain the importance of security and information of blockchain. Any actions performed in the blockchain will be known to the whole world. It can’t be faked, and its secrets can’t be leaked. You can’t play dirty tricks on it. So cryptocurrencies based on blockchain have an important function: absolute fairness! No matter it’s your dad or your enemy, it’s impossible for you to treat them differently. All the people who have joined this platform are equal. Through a series of R&D, at last, all men and women are equal in front of the blockchain, the digits and the code. They are not like the money that you had in the past, when these bastards in Bank of China offered special cheques, and there were also high denomination banknotes in dollars, which are all bullshits and scams.
 
+以后的人类在货币面前的平等，货币面前的安全和生产力等价的兑换完全自愿化，和绝对的全球自由流通，没有圈圈[限制]，没有任何物理上可以隔离你，这就是未来。大家应该多讲讲这个**安全性、公平性、平等性、隐私性**。把这个讲明白你就知道咱们最重要的是什么？
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21223211/1920x1080.png)
+In the future, people will be equal in front of the currencies. The currencies will be secure, and the quid pro quo between production power and them will completely be based upon the free will of individuals. Money will flow freely to anywhere in the world, without any physical barriers. That’s what the future will look like. Everybody should talk more about the security, fairness, equality, and privacy. If you can make these really clear, you will understand what’s the most important to us.
 
+共产党 9000 万党员他们等[有]一天相信他把他的钱放到知道的最安全的地方就是喜联储、喜币，有黄金挂钩，随时可以兑换成各种货币，随时开户随时转走，没有人可以查，没有人可以封，没有任何人可以拿走你的钱——这就成功了。9000万党员都会跟着喜联储走，这就叫“隔空取钱”！
 
-8964是中国人民争取民主自由的勇敢史篇，可惜攻败垂成，后续也无法再创造出更强大的反中共势力，似乎一切已随风而去。在中共刻意镇压及掩饰下，90年后的年轻一代早已不知道在天安门广场曾经历过如此悲壮惨烈的事迹。如果由当年的结果来看，64天安门抗争是失败了。可是冥冥中老天自有安排，当年文贵先生与弟弟及友人热心加入支援64的民主运动，文贵先生的弟弟不幸丧生，文贵先生也被抓捕进入看守所。这段惨痛的经历却使文贵先生获得学习成长的契机，自此脱胎换骨，誓愿此生致力于灭共大业。
+When one day, the 90 million members of the CCP believe that the most secure place for them to put their money is the Himalaya reserve and the HCN, which is pegged to gold and can be exchanged to any currency, and that they can open an account or wire out the money at any time, which won’t be frozen or robbed by anyone, we will successfully reach our goal. The 90 million CCP members will all follow the Himalaya Reserve. This is called “retrieve CCP’s money telekinetically”!
 
-由文贵先生的自述可得知，文贵先生在看守所中遇见了许多同样因为六四事件被抓捕进入看守所的党政军教三教九流人物。在看守所中，这些各有专长的被捕者教导了文贵先生他们在各自领域中的专业知识或是生活经验，让文贵先生如同被灌输了来自各大高手的数十年功力。在一年多的看守所生活中，分秒在生死间飘荡，面对周边室友随时被抓出去枪毙，不知下一秒是否会轮到自己的压力，让文贵先生转变了整个人生观及生活态度，灭共的心苗已巧然的在文贵先生心中滋长。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/609553a237f7f73984c8e942](https://gtv.org/getter/609553a237f7f73984c8e942) (7:23-9:50)
+鸣谢：感谢 Antsee-GTV、TING GUO、文惜和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://www.gnews.org/zh-hans/1187944/](https://www.gnews.org/zh-hans/1187944/)
 
-在走出看守所后的三十年中，文贵先生从河南郑州裕达国贸，到北京盘古大观，北京奥运的风云际会、冠盖云集。这些世间的荣华富贵及奉承阿谀并没有让文贵先生迷失，他不敢或忘心中的誓愿。在与中共高干杯觥交错间，文贵先生谨慎的建立起人脉及获取讯息，为灭共的大业累积储藏实力。
+* * *
 
-2017年文贵先生盱衡时势，判断是可以开始行动的时刻，就意无反顾的开展爆料革命的灭共大业。
+**翻译：【Himalaya New York MOS (USA) – guocamole(文金欠)】
+字幕：【JennyL】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-爆料革命的核心精神在于真、善、狠、唯真不破、正道主义。“真”是指讯息要真、作人要真。讯息不真，则失去任何参考的价值，让爆料的过程成为笑话。作人不真，则失去诚信，无法令人信任，也连带让人怀疑讯息的可信性。“善”则是要以利人为出发点，所有作为都要考虑是否对别人有利益。“狠”则是对该被惩治的恶人要心慈手狠，以霹雳手段迅速彻底的让恶人不能再作恶，这样既能保护好人，也能让恶人少做坏事。“唯真不破”是以一切真话真作为来破除中共假骗偷抢的一贯恶行。“正道主义”则是一切想法及行为皆应依于人该具有的格调为圭臬，不可逾矩。以此几个精神准则作为标杆，引领着爆料革命的参与者彻底清除中共假骗偷抢的遗毒，逐日转换成为真实健康、脚踏实地的实践家。文贵先生以完全真实不遮掩的语言及行为展现在直播中，毫不作假，真正屡践了唯真不破的精神，成为最好的遵循榜样。
-
-除此之外，文贵先生以其个人累积数十年的人脉，凭借个人的信用来获得珍贵的中共内部情报，以此得以在世界各国发挥影响力，扭转原本极亲中共的左倾潮流，逐步开始朝向灭共的目标迁移。在经济产业上，文贵先生更发挥了他经营的长才，设计出从数字货币、金融体系、媒体及销售平台、到实体制造消费端的生态体系，将在未来成为万亿经济实体。其目的不但要让参与爆料革命的战友可以有较优渥的生活品质，更要借此创造出令世人不可忽视的经济力量，吸引那些原本因为贪图中共利益而与中共合作的财经沼泽地大佬自愿前来与新中国联邦合作，让他们不但能安心赚干净的钱，还能一起灭共。另一个目的就是可以吸引中共内部的大量资金流入G系列经济体系，吸干中共的血脉，灭中共于无形中。
-
-从2020年八月开始在纽约、华府及世界各地的接力游行，到近日在华府针对SEC的抗议行动，新中国联邦参与者展现出以井然有序、合法适度、理性勇敢、争取自我权益的举止，让国际人士一新耳目。不但扫除了以前华人怕事猥琐的不良形象，更重新树立了华人健康守法、敢作敢为的新相貌。这些都是由于文贵先生以身作则，带动了有识华人的觉醒及勇气，最终敢于站出来展现自己的道德勇气，重现出六四英灵当年豪迈无私之气魄。
-
-灭共不是文贵先生的责任，也不是文贵先生一己之力可完成的事业；而是所有想要让自己及后代子孙保有民主自由的世人，所应担负起的责任。在文贵先生的影响力下，从中国内部到海外，已经有越来越多华人知道中共假骗偷抢且无恶不造的邪恶真象。许多人开始敢于站出来发声及支持爆料革命，这正是中国民众追求民主法治的希望火种。六四英灵虽已牺牲，但是当年的参与者文贵先生受到启发，传承了六四追求民主自由的精神。在经过三十年的苦心擘划下，文贵先生以一己之力发动爆料革命，鼓动起灭共的浪潮。这一民主自由的火种犹如野火般开始四处漫烧，逐渐烧向中共的政治核心，最终将熔毁中共自以为永不会毁灭的共产家天下邪恶帝国。
-
-2020年6月4日，在风云变色天光乍现中，新中国联邦宣言正式向世人宣告一个新世纪的开展。从8964天安门到2064新中国联邦，再到未来没有中共的新世界，这精神传承的轴心及承先启后的推动者正是文贵先生。这是一个跨世代及跨世纪的传承，在所有陆续加入爆料革命的战友合力下，灭共的大纛已然树立，斩除中共妖孽的利刃亦将祭血。未来以唯真不破、正道主义为中心思想的新中国联邦，将是能与世人共荣共享的新国度。这也将是八九六四跨世代传承的终极意义。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-0
++1
