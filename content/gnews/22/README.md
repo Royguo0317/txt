@@ -1,125 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拉格尔议员提案将迫使拜登解密武汉病毒研究所病毒泄露的情报
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1264381/)
+## 躺平一代（一）—— 站，站不起来，跪，跪不下去
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1264361/)
 
-字幕内容：
+- 作者：此生灭共
 
-well the, first of all the people dismissing the theory have an ethical
 
-那么，首先，否定这一病毒泄露理论的人有道德上的
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-compromise or a conflict of interest, most notably the sole American citizen on
+**西班牙2021年5月22日电/西喜社——**
 
-妥协或利益冲突，最明显的是世卫组织调查小组中
+七哥在直播中讲了突发奇想的躺平币计划，很多战友都感兴趣，认为这是个很棒的点子，鄙人有幸对墙内天然的躺平者略有了解，在这里分享给大家。
 
-the WHO investigatory team is Dr. Peter Dazak whose entire professional
+一谈躺平，墙国人就自然而然联想到“三和大神”、“躺尸”、“窃·格瓦拉”。这三个词其实代表着三个群体，我们已经可以称呼他们为躺平者了，因为其早已自干多年。
 
-唯一的美国公民皮特-达扎克博士，他的整个
+## 三和大神篇
 
-reputation and career is built on doing dangerous gain of function research with
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22083531/unknown-33.png)
 
-职业声誉和事业是建立在与武汉病毒研究所进行危险性的
+**一、为何三和大神**
 
-the wuhan institute of virology,
+日本纪录片《三和人才市场：中国日结1500日元的年轻人们》几乎很完整的介绍了何为三和人。在韭菜们口中，他们被誉为“大神”代表着韭菜对其洒脱态度的钦佩。在坊间任何不愿意长期忍受中共血汗工厂高强度劳作的年轻人都常被称为“大神”。几乎任何被称作“大神”的人，由于人们默默认同这种现象，他们就得到了一定程度的尊重和很多的施舍。要不是物质上实在太匮乏，“大神”真的就像贵族，天生就受优待。墙内韭菜们对待大神们的态度，再次证明了中国人的善良。大神们对待暴政和血泪工厂的态度也吸引着韭菜们的争相效仿。“干一天可以玩三天”的招工广告，有趣的解释了大神们的抗争手段-—用低成本的生活方式对抗血色镰刀、减少被血泪工厂压榨次数而不造成内卷互害。可以说三和一词，就是指这些不愿充当中共奴隶劳工的韭菜和他们的抗争。在民众的记忆里，三和大神是正式登堂入室的第一代躺平者。他们的出现，预示着中共长期割韭菜不计后果，迟早面临的无韭菜可割的局面。
 
-功能增益研究的基础上
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22083825/unknown-1-5.png)
 
-so a lot of the messaging we’re getting from the “WHO” is a result of the fact
+二、大神们是什么样的人
 
-因此，我们从“世卫组织”得到的许多调查的信息是
+相对与生存而言，大神更珍爱自由。墙内的大神们是自由职业者，只在自己愿意和需要时才去干日结。我曾遇到过个长期干日结的工友，他车都是干日结买的。中共血泪奴隶工厂的月结虽然比日结报酬高10%，而他就只干日结。日结尽管要被黑中介抽上一成，但却比月结的血泪奴隶劳工有自由有尊严。日结意味着打工者不必担心老板跑路，意味着工资不会被压上一年半载四处讨要。意味着当受到中共血泪奴隶制下的工厂组长肆意践踏尊严时，可以站起来反抗并扔掉工牌不干了。
 
-that the investigation was compromised, it was influenced by the Chinese communist party.
+所以，大神们不是扑街的乞讨者，他们愿意劳动，是在意人格尊严的自由职业者。由于墙内常把社会问题娱乐化，麻木的认为大神就是衣衫褴褛、好逸恶劳的乞讨者是错误的，那叫乞丐。
 
-被渗透，或是受到中国共产党的影响
+**三、大神的影响力**
 
-so I dismissed that, now we know certain facts too that stack up and favor the lively hypothesis.
+大神最大的价值在于给血泪奴隶劳工的心里埋下了自由的种子，尽管大部分大神因为不羁放纵爱自由，导致积蓄不多，但有宁挨饿也不受嗟来之食的骨气，这种精神是很煽动被中共镰刀收割的喘不过来气的血泪奴隶劳工的。中共的血泪奴隶劳工妹和血泪奴隶仔们，在血泪工厂里干着不分昼夜的两班倒，没有喝水吃饭上厕所的自由，时常被拖欠工资并忍受恶意的克扣，忍受噪音、忍受污浊的空气，还要忍受“但凡是个头”的辱骂。
 
-所以我否定这份报告，现在我们也知道了某些事实，这些事实累计起来，验证了病毒泄露的假说
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22084005/unknown-2-5.png)
 
-we represent constituents whose lives have been completely upended if not
+这种极端恶劣的工作环境，使韭菜们向往大神，逼迫着韭菜们成为大神。大神的洒脱生活激励着韭菜成为大神，韭菜悲惨的血泪奴隶生涯又激励着大神在追求自由的道路上越走越远。
 
-我们所代表的选民，如果他们没被这场大流行病和政府的一些愚蠢行为所摧毁的话
+房价太高，不买房子住车里；养不起车，住桥洞；桥洞不让住，就走哪睡哪！大量韭菜被逼成了大神，共产党割毁了自己的韭菜园。这些人是绝不会支持共产党的，支持共产党就是患了斯德哥尔摩综合征。
 
-destroyed by this pandemic and some of the government bumbling along the way,
+审核：蚂蚁兄弟； 校对： 信心满满； 发稿：信心的选择
 
-他们的生活也已经被彻底颠覆了
+**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
 
-we owe it to them to get to the bottom of it,
 
-我们有责任让他们了解事情的真相
 
-but at least two other reasons the first is we know we can’t trust the WHO
-
-但至少还有两个其它原因，第一是我们知道我们不能信任世卫组织的调查
-
-investigation, even the head of the WHI Dr. Tedross said we need to go back
-
-就连世卫组织的负责人谭德塞博士也说了，需要去武汉重新
-
-and examine the lab of the hypothesis,
-
-调查实验室病毒泄露的假说
-
-and secondly we know that Dr. Fauci is not being forthcoming right now,
-
-其次，我们知道福奇博士现在并不愿意接受质疑
-
-he got to ask questions
-
-但他必须要坦白一切
-
-in the senate the other day, and he’s saying he doesn’t support gain of function
-
-前几天在参议院，他说他不支持中共的病毒功能增强实验研究
-
-research in china, that’s a really carefully worded statement to avoid liability
-
-这是一个非常谨慎的措辞，以推卸责任
-
-there’s this debate about what exactly constitutes gain of function
-
-关于什么是功能增益的问题存在争论
-
-and there’s also this question of Fauci’s organizations sent money to an
-
-还有一个问题是，福奇的机构向皮特-达扎克博士经营的
-
-intermediary what’s called the Eco Health Alliance run by Dr. Peter Dazak who
-
-一个中介机构又称生态健康联盟提供资金
-
-then went and did gain of function research in China.
-
-然后（生态健康联盟）在中共国进行功能增强实验研究
-
-we need full transparency and we’re not getting it right now from the executive
-
-我们需要充分的透明度，而我们现在还没有从行政部门、美国国立卫生研究院和
-
-branch and from NIH and Fauci, so we’re going to have to compel that transparency.
-
-福奇那里得到这种透明度，所以我们将不得不强制要求这种透明度
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接: https://www.foxnews.com/politics/gallagher-bill-covid-lab-leak-china-wuhan-institute-virology
-
-英听校：    康州盘古农场 – Mike Li
-
-翻译：       康州盘古农场 – Mike Li
-
-翻译终校：康州盘古农场 – 郭班之樱
-
-字幕+视频制作：康州盘古农场-青梅煮酒
-
-审片：康州盘古农场-银龙
-
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
++2

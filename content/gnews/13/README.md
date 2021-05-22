@@ -1,47 +1,127 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙内热搜】强制打疫苗，文革进行时
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1264402/)
+## 【香草诗词】躺平
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1264471/)
 
-作者：纽约香草山写作组  木白
+作者：纽约香草山农场佛教部      369文驹
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
 
 
 
-中共国正在发动全民打CCP病毒疫苗，用一切能控制的手段强制人民打CCP病毒疫苗。CCP专制、残暴、邪恶。中华大地正在上演一场新时代的文革。
 
-据笔者了解，墙内第一次大规模强制打CCP病毒疫苗是在3月底，主要是推动机关事业单位国企（即体制内）人员打。没打CCP病毒疫苗的人必须提供不适宜接种的相关证明。没有该证明的人必须去打，单位领导说这是政治任务。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22085433/MOS3080-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E5%BC%BA%E5%88%B6%E6%89%93%E7%96%AB%E8%8B%97%EF%BC%8C%E6%96%87%E9%9D%A9%E8%BF%9B%E8%A1%8C%E6%97%B6-1.jpg)
+（歌词改编自《破茧》）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22095750/%E8%BA%BA%E5%B9%B32.jpg)
+如果被蒙住了双眼，卷入了谎言的梦魇
 
-近段时间，第二次大规模强制打疫苗正在进行。一方面要求机关事业单位（即体制内）接种第二针CCP病毒疫苗。另一方面要求各机关事业单位等主管部门强制其管辖的单位、企业（如网吧、ktv、酒店、工厂等各行各业）的从业人员打CCP病毒疫苗。在笔者了解的地区，机关事业单位每天上报该单位和其管辖的企业打疫苗的情况。
+麻痹了现实的苦咸，眼中的光芒快熄灭
 
-医院可以提供不适宜接种的相关证明。但这样的证明必须经过严格的检查和提供相关诊断报告且符合不适宜接种要求才能提供。也就是说只有极少数人能有证明从而可以不用打疫苗。（同时，医院严格把关提供不适宜接种的证明，违规医生会受到严重处罚。）
+如果结局注定惨烈，韭菜努力换来被剪
 
-在强制打CCP病毒疫苗事情上，CCP邪恶至极。一方面，发动各级媒体鼓动人民打CCP病毒疫苗，同时，封锁所有关于CCP病毒疫苗真相的报道（笔者了解到身边许多人因打疫苗后产生了不良反应，近期有人突发死亡）。另一方面，通过权力，强制打疫苗（主要是体制内职工和各行各业从业人员）。
+躺平是保护的结界，躺赢的人跳脚急眼
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22085443/MOS3080-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E5%BC%BA%E5%88%B6%E6%89%93%E7%96%AB%E8%8B%97%EF%BC%8C%E6%96%87%E9%9D%A9%E8%BF%9B%E8%A1%8C%E6%97%B6-2.jpg)
+想牵你手，想往前走
 
-前几日，文贵先生盖特视频中爆料，中共国内上万城市的火葬场在演练，由此应对未来将要发生的大量国民死亡事件。此爆料与近期中共国内大规模强制打疫苗的事情联系在一起，不禁不寒而栗：未来，因打CCP病毒疫苗，国内会死伤多少人？这是中华民族，乃至全人类的一场劫难。
+可结婚的房，不拥有，辗转时空
 
-只有推翻中共，才能度过这场劫。而GTV、GNEWS、盖特等爆料革命媒体每天都在曝光CCP病毒和CCP病毒疫苗的真相。无数中国人（华人）成为爆料革命的战友，他们站在灭共最前线，用生命安全向世界传递真相，为没有CCP的和平美好的新世界奋斗。
+会挫伤，会心痛
 
-校对/发稿：雪梨
+毅然躺平，是战斗，做个英雄
 
-![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+抬头，百姓被双休
+
+回首，我被你左右
+
+击溃，中共的诅咒
+
+让苍生获救
+
+物价，在放肆狂涌
+
+经济，跟习一样熊
+
+哪怕，失去了所有
+
+躺平誓脱钩
+
+如果被蒙住了双眼，卷入了谎言的梦魇
+
+麻痹了现实的苦咸，眼中的光芒快熄灭
+
+如果结局注定惨烈，韭菜努力换来被剪
+
+躺平是保护的结界，躺赢的人跳脚急眼
+
+想牵你手，想往前走
+
+可结婚的房，不拥有，辗转时空
+
+会挫伤，会心痛
+
+毅然躺平，是战斗，做个英雄
+
+抬头，百姓被双休
+
+回首，我被你左右
+
+击溃    中共的诅咒
+
+让苍生获救
+
+物价，在放肆狂涌
+
+经济，跟习一样熊
+
+哪怕，失去了所有
+
+躺平誓脱钩
+
+当现实无路可逃，绝望将希望缠绕，也依旧躺平开心笑
+
+平头百姓不姓赵，躺下的力量聚焦，绝处逢生见招拆招
+
+抬头，百姓被双休
+
+回首，我被你左右
+
+击溃，中共的诅咒
+
+让苍生获救
+
+物价，在放肆狂涌
+
+经济，跟习一样熊
+
+哪怕，失去了所有
+
+躺平誓脱钩
+
+当现实无路可逃，绝望将希望缠绕，也依旧躺平开心笑
+
+平头百姓不姓赵，躺下的力量聚焦，绝处逢生见招拆招
+
+躺平誓脱钩
+
+
+
+发稿/人间世
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
+
+
 
 0
