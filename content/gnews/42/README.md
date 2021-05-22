@@ -1,27 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世卫组织 ：病毒实际死亡人数比报告的多2-3倍。
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1262726/)
+## 佐治亚州法官判定进行选票审计
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1262923/)
 
-消息来源：意大利共和报（repubblica.it）
-发布时间：2021年05月21日
-翻译整理：斩草要除根
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21151555/martha-dominguez-de-gouveia-k-NnVZ-z26w-unsplash-scaled.jpg)
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21175539/G-1.png)electionwiz.com
+笔者5月19日转载、报道了佐治亚州“在暗势力重金激励下，选举管理人员死心塌地掩盖、搅局下，正义人们进行司法审计的要求接连受阻……”【1】，今天（5月21日）传出消息，法官判定，对富尔顿（Fulton）郡选票进行法庭审计。
 
+《门道专家》发表文章，题目“佐治亚州法官要求对富尔顿郡选票进行法庭审计，因为在选票批次中存在巨大差异。”【2】
 
-目前世界卫生组织（WHO）报告的因冠状病毒造成的340万人死亡人数可能被大大低估了。实际数字可能至少高出2-3倍。这是世界卫生组织根据今天发布的《世界卫生统计报告》所载的“ 2020年高死亡率估计”而得出的，该估计值是对世界健康状况进行年度评估的一部分。
+文章说，佐治亚州亨利（Henry）郡首席法官布莱恩J.阿梅罗（Brian J. Amero）在周五（5月21日）的听证会上下令，开启富尔顿郡的选票（审计）。
 
-联合国卫生机构在一份说明中解释，初步估计表明，截至2020年12月31日，可归因于冠状病毒大流行的世界死亡总数至少为300万人，超过官方报道的180万。世卫组织指出，每个国家在完成和纠正冠状病毒死亡方面面临着不同的挑战，并解释说它如何在有关方面合作以完善统计模型并获得准确的计数。
+法官命令双方于5月28日上午10点到达选票存放地点，2020年11月的选票将以600 dpi或更高的分辨率进行扫描。
 
-这种流行病将继续存在，对全球人口的健康和福祉构成了严重威胁，并阻碍了实现可持续发展目标和世界卫生组织设定的“三倍”目标的进展。90％的国家报告了在基本医疗服务方面破坏情况。
+《CD媒体》（CD Media）正在报道今天的听证会。
 
-简评：这个数字还是不准确的，因为中共国的死亡人数就是一个最大的谜。还有很多因为冠状病毒间接导致的死亡人数也是被忽略不计的。世界卫生组织最开始的掩盖对这场全球大流行疫情有着不可推卸的责任，而现在这样的一份报告又有多少可信度呢？
+在一个正在进行的听证会上，佐治亚州亨利郡法官、受人尊敬的布莱恩J.阿梅罗，可能允许原告（VoterGA.org、Garland Favorito和另一名原告）实物接触富尔顿郡的邮寄选票，这可能会显示2020年总统选举周期期间，佐治亚州存在的大规模选举舞弊，以及后续的、决定民主党控制美国参议院的决选，导致对美国政府的完全控制。
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
+在庭审中，VoterGA.org的律师描述了选票批次数之间的巨大差异（21%），这个巨大的差异是佐治亚州的州务卿布拉德·拉芬斯佩格（Brad Raffensperger）在确认选举时报告的选票批次数，与法院在该案上一次4月份的庭审中，下令进入（清点）的选票批次数。
 
-🔗[coronavirus\_nel\_mondo\_contagi\_aggiornamenti\_e\_tutte\_le\_news\_sulla\_situazione](https://www.repubblica.it/esteri/2021/05/21/news/coronavirus_nel_mondo_contagi_aggiornamenti_e_tutte_le_news_sulla_situazione-302039290/)
+佐治亚州州务卿拉芬斯佩格的法庭陈述（GA SoS Raffensperger Amicus Brief），否认选举舞弊，（称指控）不成立，充满了欺骗。
 
-+1
+VoterGA.org自4月份的听证会以来，一直在（指责有关人）用低分辨率图像扫描设备检查选票，并宣布他们需要看到实际的实物选票来了解经过认证的假选票的数量。原文链接了相关的报道。
+
+（原文完）
+
+选举舞弊，美国肯定存在；大规模的选举舞弊，令人不解。封杀质疑，能间接证实大规模舞弊的存在。漠视不管，让人怀疑这还是“灯塔美国”吗？
+
+相关链接：
+
+【1】[https://gnews.org/zh-hans/1257789/](https://gnews.org/zh-hans/1257789/)
+
+【2】[https://www.thegatewaypundit.com/2021/05/breaking-georgia-judge-calls-forensic-audit-fulton-county-ballots-large-discrepancies-21-found-ballot-batches/](https://www.thegatewaypundit.com/2021/05/breaking-georgia-judge-calls-forensic-audit-fulton-county-ballots-large-discrepancies-21-found-ballot-batches/)
+
+0

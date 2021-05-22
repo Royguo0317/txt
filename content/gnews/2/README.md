@@ -1,43 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】墙内猪肉价格跌跌不休，生猪养殖业苦不堪言
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1263248/)
+## 中共国内部信息表明了病毒起源的实际位置
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1263343/)
 
-香草山健身部 Jack Li文阳
+翻译：康州盘古农场 – 格格巫
 
+校对：康州盘古农场 – TrueSky
 
+编辑：康州盘古农场 – 明子
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
+发布：康州盘古农场 – 彩虹 Rainbow
 
+**由乔·霍夫特（Joe Hoft）发布于2021年5月20日上午8:15
+劳伦斯·塞林（Lawrence Sellin）的来宾帖子**
 
+**在过去24小时内从中国内部来源获得的信息，有关COVID-19实验室起源的流行叙述有了进一步的进展。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21215447/d2.png)
+毫无疑问，我们2月份的报告阐述了COVID-19病毒是在实验室中产生的：
 
-2019年到2020年底，中共国国内猪肉价格不断上涨，零售价最高到了五六十元/斤，老百姓陷入吃不起猪肉的困境。一时间，能吃上猪肉成为一些人炫耀的资本。由于猪价冲天，各养殖场增加生猪的饲养量。很多新资本也纷纷加入养猪队伍。但从今年年初到今年5月，全国猪肉价格一直下跌，甚至跌至10元/斤以下。
+虽然，大多数人认为它是从武汉病毒研究所泄漏的。武汉病毒学研究所的“蝙蝠女”石正丽也否认她的研究所是病毒的出处。
 
-国内大部产区，生猪价格已经跌入“9元时代”。目前北方主流地区大部分猪价格已经降至7.6~8.5元/斤。除浙江猪价10.15元/斤，海南猪价12.45元/斤，南方大部地区猪价跌到了9元以下。北方主流地区猪肉价格已经降至7.6~8.5元/斤，长线还要继续看跌。
+石正丽声称她和她的同事在2019年末，在从来历不明的肺炎患者的样本中发现了这种病毒。在此之前，我们从未接触过或研究过这种病毒，也不知道它的存在，
+“美国总统川普关于SARS-CoV-2是从我们研究所泄漏的说法，完全与事实相矛盾。她补充说。
 
-由于猪肉价格累创新低，行业盈利大幅缩水，部分养殖户也陷入了亏损状态。由于玉米等饲料粮价格的上涨，势必会增加养猪的成本。按理来说，猪价应同粮食价格一起上涨的。否则，养猪业盈利效应丧失会让养猪户出现弃养，又会导致生猪养殖再度低迷，猪肉价格会再度疯涨，形成“猪周期”的市场行情。有业内人士透露：目前的生猪养殖成本，家庭养殖户成本能达到约7~8元/斤；外来资本新进入生猪养殖行业，考虑到使用新的、高配置的设备，企业成本一般约7.5元/斤；但如果是养猪企业靠租借猪栏去养猪，成本会更高，超过8块钱/斤。目前购买一头仔猪的价格接近1600元，如果生猪价格与养猪成本持平，当初购买仔猪的成本就是亏损了。
+她所说的部分可能是正确的。
 
-粮食问题一直困扰着中共，无法得到很好的解决。中共经常搞菜篮子工程，声称要“重点抓好肉、蛋、奶、鱼、菜、果等产品生产；要实现生产布局合理、总量满足需求、品种更加丰富、季节供应均衡”。可一切总是事与愿违。近两年的猪肉价格上下四五倍的价格波动，正好反映了中共敛财有术，治国无方。过山车般的价格，既无法保障老百姓的菜篮子，也无法保证养殖业的经济利益。老百姓只能一年吃肉一年吃草，养殖业一年活一年死，但中共官员照样年年升迁，步步高升，永远伟光正。
+长期以来 ，我一直在说COVID-19病毒是由许多中国军事中心之间合作制造的，而不是武汉病毒研究所专门进行的“功能性增强”实验的唯一结果。
 
-参考阅读：https://www.163.com/dy/article/GA798N1S0512JUR9.html
+来自中国内部的新信息与该结论是一致的。
 
-[猪价阴跌不止，真没救了？肥猪存栏不到3成，猪价或将翻天上涨？](https://www.163.com/dy/article/GABVR3JG05523MH0.html?f=post2020_dy_recommends)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-编辑/校对/发稿：正义的小新
+**尽管仍然是一个发展中的故事，但这里是一个摘要：**
+1.一种完整或几乎完整的COVID-19病毒，在2019年初从中国人民解放军东部战区司令部抵达武汉病毒研究所。
+2.与流行的叙述相反，COVID-19病毒主要是被送往武汉病毒学研究所进行检测。
+3.测试被分配给一组年轻的病毒学家。该小组的领导者的姓名是已知的，领导者的科学背景与该角色是一致的。
+4.测试是在非人类的灵长类动物上进行的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21215503/ssssw.png)
+武汉病毒学研究所的生物安全4级实验室位于武汉江夏区，该区位于武昌市以南约12英里处，这是COVID-19早期爆发的中心。
+尚不清楚江夏区的生物安全4级实验室是否具有使用非人类灵长类动物进行实验的能力。
 
-**更多资讯，更多关注**
+**中国科学院自己的网站指出：**
+武汉国家生物安全实验室（NBL4）拥有2个细胞
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+1个中型动物实验室以及1个对病毒培养、收集和使用实验室。
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+相比之下，武汉大学动物实验中心和动物生物安全3级实验室确实具有进行非人类灵长类动物实验的能力。
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+以下照片来自中文出版物，显示了受限制的武汉大学动物实验中心和动物生物安全3级实验室的内部，特别是非人类灵长类动物设施。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21215526/xxxx.png)
+该研究机构位于COVID-19早期爆发的震中，并位于中国人民解放军的主要医院附近。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21215515/zzzz.png)
+在武汉进行测试时，可能释放了COVID-19病毒。
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+在之前的TGP文章中，我推测弗林蛋白酶多裂的位点，即COVID-19实验室起源的“突破口”，是由与广州解放军南方医科大学关联的中国人民解放军科学家插入的。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+通过非人类灵长类动物的“传代”可能使COVID-19病毒部分适应了人类感染。也就是多重感染。或者，可以通过对具有COVID-19病毒人类受体的基因改变的小鼠品系，进行连续传代来对COVID-19进行预适应。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+原文链接：[https://www.thegatewaypundit.com/2021/05/know-covid-19-created-laboratory-new-revelations-inside-china-indicate-location-military-origin/](https://www.thegatewaypundit.com/2021/05/know-covid-19-created-laboratory-new-revelations-inside-china-indicate-location-military-origin/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
