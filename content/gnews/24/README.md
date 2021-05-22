@@ -1,41 +1,145 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【独立观点】任劳任怨的蜜蜂们，做个自由自在的苍蝇吧
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1264349/)
+## 多边主义仍然是我们应对重大全球挑战的最佳工具
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1264360/)
 
-作者：香草山写作组 程万里
+字幕内容：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
+Nationalism is resurgent, repression is rising,
 
+民族主义正在兴起，镇压正在上升，
 
+rivalries among countries are deepening and attacks
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22075121/%E5%9B%BE%E7%89%8713-5.png)
+国家之间的对抗正在加深和攻击
 
-有次参加一个会议，台下一群企业主和公司高管，而邀请的却是前地方党委书记给我们讲创新。此人眉飞色舞，PPT做得漂亮无比，可内容却让人仿佛有吃屎的感觉。一个扼杀创新的人在给我们讲创新，就像一个披着蜜蜂皮的苍蝇在给台下的一群蜜蜂讲怎么采蜜。我难以忍受这狗屁理论，可周边却掌声不断，匪夷所思的我转眼一看，原来周边也全是披着蜜蜂皮的苍蝇。一想到这，如鲠在喉的我只得离开那个让人恶心生厌的地方，从此不再参与。
+against the rules-based order are intensifying.
 
-几年前的故事，现在想来，我恐怕侮辱了苍蝇，美化了蜜蜂。蜜蜂被塑造成勤劳的化身，一生都在采蜜，为了集体，为了蜂王，为了繁衍下一代。可蜜蜂是否可以停下来思考下：“我采了一辈子的蜜，蜜呢？蜜去哪里了？”给了集体，给了蜂王，繁衍的下一代继续着这无休止的采蜜。忙忙碌碌的一生，勤勤恳恳的一生，碌碌无为的一生，还不忘让您的子孙后代继续着这一生。天道酬勤，酬在哪里？反观苍蝇，独立自主的活着，想吃啥就吃啥，想去哪就去哪，无拘无束，浪迹天涯，自由自在。看到这些你想要什么样的人生？做天道酬勤的蜜蜂，还是自由自在的苍蝇？
+违反基于规则的秩序正在加剧
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22075411/%E5%9B%BE%E7%89%8714-10.png)
+Now, some question whether multilateral cooperation is still possible.
 
-忙忙碌碌的我们，被他们称为伟大的劳动人民，被比作天道酬勤的中国人，我们辛苦一辈子到头来还有啥？恐怕只剩下一身的债务和累倒快进坟墓的残肢破体。是否应该停下来问下自己：我们创造的财富呢？再有人告诉您为了集体，为了伟大的领袖，更为了子孙后代加油努力时，是否可以停下来想下：我创造的财富呢？我的子孙后代还会重复这一生吗？
+现在，有人质疑是否仍可能进行多边合作
 
-校对/发稿：飞虹
+The United States believes it is not only possible, it is imperative.
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193555/5_May-1-556x720-1.jpeg)
+美国认为，多边合作不仅是可能的，而且势在必行的
 
+Multilateralism is still our best tool for tackling big global challenges –
 
+多边主义仍然是我们应对重大全球挑战的最佳工具
 
-**更多资讯，更多关注**
+like the one that’s forcing us to gather on a screen today rather than around a table.
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+就如迫使我们今天聚集在屏幕上而不能在桌子周围面对面会谈的新冠病毒
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+The COVID-19 pandemic has changed life as we know it across the planet,
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+正如我们所知，COVID-19大流行改变了整个星球的生活，
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+with millions of deaths and devastating impacts on
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+数以百万计的死亡和毁灭性的影响
+
+economies, health, education, social progress.
+
+经济、卫生、教育、社会进步
+
+The climate crisis is another massive threat.
+
+气候危机是另一个巨大的威胁
+
+If we don’t move swiftly to cut emissions,
+
+如果我们不迅速采取行动减少碳排放
+
+the results will be catastrophic.
+
+结果将是灾难性的
+
+We built the multilateral system in part to solve big,
+
+我们建立多边体系的部分目的是解决大型的，
+
+complex problems like these,
+
+像这些复杂的问题，
+
+where the fates of people around the world are tied together
+
+全世界人民的命运被绑在一起的地方
+
+and where no single country – mo matter how powerful – can address the challenges alone.
+
+而且没有哪个国家—无论实力如何—可以单独应对挑战
+
+That’s why the United States will work through multilateral institutions to stop COVID-19
+
+这就是为什么美国将通过多边机构合作制止COVID-19的原因
+
+and tackle the climate crisis,
+
+和应对气候危机，
+
+and we will abide by the core principles of the international order as we do.
+
+我们将一如既往地遵守国际秩序的核心原则
+
+We’ll also work with any country on these issues –
+
+我们还将与任何国家合作解决这些问题
+
+including those with whom we have serious differences.
+
+包括那些与我们有严重分歧的人
+
+The stakes are too high to let differences stand in the way of our cooperation.
+
+后果成本太大，不能让分歧阻碍我们的合作
+
+The same holds true for stemming the spread and use of nuclear weapons,
+
+阻止核武器的扩散和使用也是如此
+
+delivering life-saving humanitarian assistance, managing deadly conflicts.
+
+提供挽救生命的人道主义援助，处理致命冲突
+
+At the same time, we will continue to push back forcefully
+
+同时，我们将继续大力回击
+
+when we see countries undermine the international order,
+
+当我们看到某些国家破坏国际秩序时
+
+pretend that the rules we’ve all agreed to don’t exist,
+
+假装我们都已同意的规则不存在
+
+or simply violate them at will.
+
+或只是随意违反它们
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 [https://twitter.com/statedept/status/1391468009101926403?s=24](https://twitter.com/statedept/status/1391468009101926403?s=24)
+
+英听校：    康州盘古农场 – Layka
+
+翻译：       康州盘古农场 – Layka
+
+翻译终校：康州盘古农场 – Mike Li
+
+字幕+视频制作：康州盘古农场-天涯行
+
+审片：康州盘古农场-银龙
+
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

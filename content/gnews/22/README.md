@@ -1,30 +1,125 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 上帝的存在能被证伪吗？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1264322/)
+## 加拉格尔议员提案将迫使拜登解密武汉病毒研究所病毒泄露的情报
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1264381/)
 
-- 作者：范海辛
+字幕内容：
 
+well the, first of all the people dismissing the theory have an ethical
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+那么，首先，否定这一病毒泄露理论的人有道德上的
 
-**西班牙2021年5月22日电/西喜社——**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22081519/66o200017829qr672rns.jpg)图片来源：kknews.cc
-真理只能被证伪而不能被证实的证伪论，是哲学家卡尔.波普尔提出来的。他认为，上帝的存在既不能被证实，也不能被证伪。但是在中国这个无神论为主流的社会里，常常有人宣布，已经证伪了上帝的存在。他们能拿出的证据就是这么一句逻辑悖论——上帝能不能造出一块自己也搬不动的石头？
+compromise or a conflict of interest, most notably the sole American citizen on
 
-既然你们基督徒说上帝全知全能，那么如果上帝做不到这一点，上帝全能的立论就站不住脚了。因为上帝全能、无所不能是一个全称判断，而只要有一个反例，这个全称判断就破产了、崩溃了。既然你们的上帝不是全能的，所以独一真神的上帝当然也就无法存在了（多神信仰里，每个神有不同的本事与大能，但没有一个神是全能的）。
+妥协或利益冲突，最明显的是世卫组织调查小组中
 
-这是无神论者证伪上帝存在的逻辑推论。我以为，这个逻辑是错误的。上帝能不能造出一块自己搬不动的巨石，这本身无关上帝的能力，而是一个逻辑悖论。圆的方，也是一种逻辑悖论，你说上帝能在平面上画出圆的方或方的圆吗？类似的事例还有中国成语中自相矛盾的故事——你能造出可以戳穿任何盾牌的尖矛，并造出任何尖矛都无法戳穿的盾牌吗？
+the WHO investigatory team is Dr. Peter Dazak whose entire professional
 
-现实生活中矛盾现象是客观存在的，但要让二者和谐共存于一个时空，这是无法做到的。譬如日本金属加工领域，有家企业说能造出钻透任何金属的钻头，另一家企业不服气，说他们生产的硬质合金能抵御最厉害的钻头。两家企业比武，只会有一家胜利，不可能两家都胜，也不可能两家都败。无神论者的上帝搬石头的论据，目的要证明上帝不是全能，但这个论据本身与能力无关，而是一个悖论、一个逻辑陷阱，实际就是一种荒谬。
+唯一的美国公民皮特-达扎克博士，他的整个
 
-我们现实生活中还有另一种荒谬，或严格来说应该叫荒唐，譬如亩产万斤粮，狐狸变美女等等。这些荒唐与逻辑悖论的荒谬不同，是一种对事实的歪曲与想象，至少你还可以言说、可以在逻辑上存在。上帝的大能，在这方面可以显现，譬如让死者复活、瞎子眼睛变得明亮等等。几千年前，你说人能乘铁鸟飞上天，那是荒唐的，但现在科技让过去以为荒唐的事变为现实。这些荒唐与能力有关，能力不够是荒唐，能力够了有些荒唐就会成为现实。但逻辑悖论却与能力无关，而是永远不会成立的荒谬。
+reputation and career is built on doing dangerous gain of function research with
 
-荒谬与荒唐的区别在于逻辑。上帝要造出自己搬不动的石头属于逻辑错误，而荒唐则没有逻辑错误，只有事实错误。对于荒唐，因为没有逻辑错误，所以还可言说；但属于逻辑悖论的荒谬，由于违背逻辑，语言在这里就失效了，成为维特根斯坦所言的“不可言说”的事物，他的名言就是“对于不可言说的事物，我们只能保持沉默”。无神论者用这种我们应该保持沉默的东西来证伪上帝的存在，是犯了语言哲学的错误。所以，以逻辑悖论来否认上帝的全能，进而说证伪了上帝的存在，这是站不住脚的。
+职业声誉和事业是建立在与武汉病毒研究所进行危险性的
 
-审核： 蚂蚁兄弟； 校对： 信心满满； 发稿：信心的选择
+the wuhan institute of virology,
 
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+功能增益研究的基础上
 
-+1
+so a lot of the messaging we’re getting from the “WHO” is a result of the fact
+
+因此，我们从“世卫组织”得到的许多调查的信息是
+
+that the investigation was compromised, it was influenced by the Chinese communist party.
+
+被渗透，或是受到中国共产党的影响
+
+so I dismissed that, now we know certain facts too that stack up and favor the lively hypothesis.
+
+所以我否定这份报告，现在我们也知道了某些事实，这些事实累计起来，验证了病毒泄露的假说
+
+we represent constituents whose lives have been completely upended if not
+
+我们所代表的选民，如果他们没被这场大流行病和政府的一些愚蠢行为所摧毁的话
+
+destroyed by this pandemic and some of the government bumbling along the way,
+
+他们的生活也已经被彻底颠覆了
+
+we owe it to them to get to the bottom of it,
+
+我们有责任让他们了解事情的真相
+
+but at least two other reasons the first is we know we can’t trust the WHO
+
+但至少还有两个其它原因，第一是我们知道我们不能信任世卫组织的调查
+
+investigation, even the head of the WHI Dr. Tedross said we need to go back
+
+就连世卫组织的负责人谭德塞博士也说了，需要去武汉重新
+
+and examine the lab of the hypothesis,
+
+调查实验室病毒泄露的假说
+
+and secondly we know that Dr. Fauci is not being forthcoming right now,
+
+其次，我们知道福奇博士现在并不愿意接受质疑
+
+he got to ask questions
+
+但他必须要坦白一切
+
+in the senate the other day, and he’s saying he doesn’t support gain of function
+
+前几天在参议院，他说他不支持中共的病毒功能增强实验研究
+
+research in china, that’s a really carefully worded statement to avoid liability
+
+这是一个非常谨慎的措辞，以推卸责任
+
+there’s this debate about what exactly constitutes gain of function
+
+关于什么是功能增益的问题存在争论
+
+and there’s also this question of Fauci’s organizations sent money to an
+
+还有一个问题是，福奇的机构向皮特-达扎克博士经营的
+
+intermediary what’s called the Eco Health Alliance run by Dr. Peter Dazak who
+
+一个中介机构又称生态健康联盟提供资金
+
+then went and did gain of function research in China.
+
+然后（生态健康联盟）在中共国进行功能增强实验研究
+
+we need full transparency and we’re not getting it right now from the executive
+
+我们需要充分的透明度，而我们现在还没有从行政部门、美国国立卫生研究院和
+
+branch and from NIH and Fauci, so we’re going to have to compel that transparency.
+
+福奇那里得到这种透明度，所以我们将不得不强制要求这种透明度
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接: https://www.foxnews.com/politics/gallagher-bill-covid-lab-leak-china-wuhan-institute-virology
+
+英听校：    康州盘古农场 – Mike Li
+
+翻译：       康州盘古农场 – Mike Li
+
+翻译终校：康州盘古农场 – 郭班之樱
+
+字幕+视频制作：康州盘古农场-青梅煮酒
+
+审片：康州盘古农场-银龙
+
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

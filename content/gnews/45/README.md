@@ -1,38 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/05/21-001 文贵盖特精要
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1264183/)
+## 2021/05/19 班农采访(5) 律师和医疗专家团队起诉WHO、美国CDC等反人类罪行
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1264196/)
 
-听写： 萬物归一 |校对/审核: 樂禧禧 | Page: Daoiii
+视频字幕：雨中漫步 | 听写/翻译：Wade| 校对：Roberts |简评/文字整理/编辑：胖丁|Page：小雨
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JP9Z2J0MqWd5p/images/1205aa9e-c576-461b-99de-5c9e8b6a006e.jpg?asset_id=e289daf4-1efe-4c15-980c-a7b7ec87b68c&amp;img_etag=%22a5dd620420aee534d71686d544feb6a6%22&amp;size=1024)](https://spark.adobe.com/page/JP9Z2J0MqWd5p/images/1205aa9e-c576-461b-99de-5c9e8b6a006e.jpg?asset_id=e289daf4-1efe-4c15-980c-a7b7ec87b68c&amp;img_etag=%22a5dd620420aee534d71686d544feb6a6%22&amp;size=1024)
+**简评：**
 
-**5月21号：尊敬的战友们好，为什么在这短短的一两周内世界经济，政治，军事科学．教育各个领域．都突然的统一迅速的。在转向灭共．反共呢？为什么那么多世界上曾经否定我们的科学家的报告的人，现在都偷偷地撤掉了，他们那些所谓最有影响力的反科学家的报告呢？**
-
-**共产党在全球挑起的国家政治冲突……地区性战争和种族矛盾，以及公开的反犹的这一系列的背后，他们到底想干什么？**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/JP9Z2J0MqWd5p/images/f1a76d12-8e3e-4a7d-a660-99088cef5311.png?asset_id=ddb7e411-3283-4624-bcce-f97865d695f7&amp;img_etag=%2249ba35e8f82a841ff1b274cebee162f6%22&amp;size=1024)](https://spark.adobe.com/page/JP9Z2J0MqWd5p/images/f1a76d12-8e3e-4a7d-a660-99088cef5311.png?asset_id=ddb7e411-3283-4624-bcce-f97865d695f7&amp;img_etag=%2249ba35e8f82a841ff1b274cebee162f6%22&amp;size=1024)
-
-[GTV链接](https://gtv.org/getter/60a7bc16d48e020926645716)
-
-1. 世界形势在以前所未有的速度巨变，无论是地缘政治、军事格局、热点冲突，还是能源和资本流动，中共正在挑拨美国和俄罗斯的关系，俄罗斯内部人士透露根本不可能，只是想多从中共那里弄些钱，把历史上未确定的事确定下来。
-2. 某合作伙伴政界大佬以及其他一些人士原来反对闫丽梦博士的论文，现在都已反转。美国国会听证一定会发生，国会的听证取决于人民的意志，不代表哪个流氓政客。
-3. 在英国、德国曾攻击闫博士的科学大咖，说病毒来自自然的报道通通撤掉。在斯坦福大学和MIT，生物领域权威的，内部人讨论最多的是CCP病毒真相：来自武汉实验室，“非典非自然起源”这本书自己证明了中共发起的超限生物战是早有准备的，广泛认可科学家定义的超限生物战。
-4. 班农先生每天两期，路德及博士军团社已成为世界级节目。GNEWS，GTV多少外国人来看真相。
-5. 犹太人第一次提出巴以冲突的幕后黑手是伊朗和中共。
-6. 中共玩虚拟货币超越西方很多年，英国一位金融名人说中共能在最高端的未来金融领域加密货币中，最早的绝对国家中心化地创造DCEP，中共高瞻远瞩的控制比特币、火币、狗币等等，大幅在黑网、暗网、犯罪扩展使用，在非洲、中东、东欧走私军火，不得不佩服中共在这方面超过了世界多少年，中共在挑战、消灭美元。
-7. 利用种族矛盾、地区冲突上，侵占、偷盗、欺骗世界，非创造性地利用他国技术干坏事儿上，共产党天下第一。能源垄断称霸、种族灭绝、反人类、制造虚假经济、黑客、CCP病毒，全人类种族大屠杀，印度、日本、台湾，病毒一定会在台湾传播。
+由律师和医疗专家组成的团队开始了针对美国疾控中心（CDC）、WHO和达沃斯组织反人类罪的法律诉讼。在信息层面，这样的行动非常有力、非常重要。策划这个行动的德国律师是世界上最有声望的法律人士之一。德国和欧洲率先行动，这令人震撼。英国和欧洲喜马拉雅农场应该密切关注这件事。
 
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
+[GTV链接](https://gtv.org/video/id=60a89e8f93cb4b1e6f9b881c)
+
+**视频字幕：**
+
+**主持人Winton：**《每日曝光》5月13日报道，新冠疫情诈骗律师和医疗专家开始了对世卫组织和世界领导人反人类罪行的法律诉讼。由雷纳福尔米克率领的超过千名律师和万名医疗专家的团队开始了针对美国疾控中心、世卫组织还有达沃斯组织反人类罪的法律诉讼。您认为这样的法律诉讼是否有意义？
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Riro2GpoWo725/images/8ba1c445-616e-4251-8f84-89872b26b041.png?asset_id=ca23dd93-e621-4874-97f8-03d18d46e51d&amp;img_etag=%2256fb9c57cee90579111f8c9ba8f50589%22&amp;size=1024)](https://spark.adobe.com/page/Riro2GpoWo725/images/8ba1c445-616e-4251-8f84-89872b26b041.png?asset_id=ca23dd93-e621-4874-97f8-03d18d46e51d&amp;img_etag=%2256fb9c57cee90579111f8c9ba8f50589%22&amp;size=1024)
+
+**班农:** 这需要分两部分來说。首先是法律层面。然后是媒体层面，我们在信息战中的反击。
+
+我不是律师，不懂法律层面。这方面要问律师。我会对此进行分析，与参与（诉讼）的人交谈，从而获取更多的理解。我当然喜欢他们在法庭上的行动，我们要继续观察。但我要强调的是，在信息战方面，这样的行动是非常有力量的，非常非常重要。
+
+英国喜马拉雅和欧洲喜马拉雅农场要密切关注这件事。
+
+策划这个行动的德国律师是世界上最有声望的法律人士之一，这就是为什么它非常重要。眼下我无法解释它究竟有多重要。我非常骄傲，这样的行动始于美国之外。德国这样我非常尊重，但在默克尔治下深受达沃斯之害的国家。看到德国和欧洲在这方面率先行动，这令人震撼。
+
+**我认为这在与中共跨国犯罪集团的战斗中是非常正面的信号。**
+
+[**完整访谈视频**](https://gtv.org/video/id=60a50f53db13300ca55b1ace)
+
+**主播：** Mikehua, Angela, Daniel, Mike, Dr. TCC, Winston
+
+- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
+- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
+
+
+***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三伦敦时间14:00 （美东时间09：00）直播***
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JP9Z2J0MqWd5p/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/JP9Z2J0MqWd5p/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Riro2GpoWo725/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/Riro2GpoWo725/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 
 

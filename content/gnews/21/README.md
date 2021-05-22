@@ -1,145 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 多边主义仍然是我们应对重大全球挑战的最佳工具
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1264360/)
+## 【杂谈】闲话520
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1264375/)
 
-字幕内容：
+#### 作者：酢浆草
 
-Nationalism is resurgent, repression is rising,
+#### 编辑：翼族
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22083026/11-6.png)
+图片来源：Jing Daily
 
-民族主义正在兴起，镇压正在上升，
+5月20号这一天，微信朋友圈里到处都是炫爱和炫耀被爱的，还有炫耀收到鲜花的，炫耀收到红包的，满屏都是红心飞溅，仿佛爱只有在这样的日子说出来才是真爱。商家乘机推出一系列的优惠促销活动，让表白有了并不空洞的物质感。过节就应该有礼物，收到礼物就可以发朋友圈，双重的满足感让人越来越喜欢这样过节，于是这样一个谐音就让人乐此不疲了。
 
-rivalries among countries are deepening and attacks
+而我在朋友圈看到一篇这样的文字，其实是对520最好的诠释：个个都在期待520！其实520的意思就是，5分钟的感情，2分钟的热度，最后都归0。520是假的，只有502是真的，一滴永固，三秒即可，永不分离，即使分离，也得脱皮……
 
-国家之间的对抗正在加深和攻击
+近年来像520这样的造节运动在国内愈演愈盛，最奇怪的是11月11日、12月12日这样的日子，愣生生变成了购物节、光棍节和剁手节。一家家淘宝店铺赚得盆满钵满，马云笑歪了嘴，败家子和败家老娘们一边流泪一边帮马云们数钱。
 
-against the rules-based order are intensifying.
+官方推出的特定假日越来越多，不同人群过着不同的节日。元旦是一年伊始，上年纪的人没有什么感觉，上班族则有一天假期跟朋友小聚一下。三八妇女节，女性休息半天，出去活动一下，然后就外面胡吃海喝一番，再不就麻将伺候。五一节，上班族和学生大多能放三到七天，十一节也是大同小异，旅游景点处处爆满。不同的行业都有固定的节日，比如植树节、警察节、军人节、护士节、教师节，过节的方式也差不多，象征性的表彰一下先进，然后聚餐。只有一年到头劳作的农民和城市里的农民工没有节日，他们只有一个春节，每年加入春运大军，在城市和乡村之间疲于奔命，为往返的车票苦恼和忧愁。
 
-违反基于规则的秩序正在加剧
+春节、端阳和中秋这样的传统节日虽然也放假，但是随着整个社会节奏的加快和拜金主义盛行，这些节日的传统性和文化性已经越来越被淡化，慢慢也变得和平常日子一样，节日的气氛往往只能从孩子的作文中得到一点体现，而且还是在老师的指导下编写出来的，没有了庄重的仪式感。
 
-Now, some question whether multilateral cooperation is still possible.
+记得小时候过年和过节都有一套隆重的仪式，是跟祭祀有关的活动，感恩天地神灵庇佑全家吉祥平安，祈祷将来的日子红红火火。然而这七十余年来，中共进行所谓的无神论教育，黎民百姓已经没有了对神明的敬畏，转而被迫信奉自称为共产幽灵的一个政党，它用机枪坦克车威逼百姓丢掉真正的信仰，或者把崇尚暴力的意识形态当作信仰，七十年的时间洗了三四代中国人的脑，致使大半个国家的百姓忠奸不明、善恶不分、信仰缺失、娱乐致死。
 
-现在，有人质疑是否仍可能进行多边合作
+同时，中共还筑起高高的防火墙，把人心牢牢控制住。即便如此，西方文化还是越来越受到国人的重视，一些具有积极意义的西方节日也慢慢走进中国的社会，但是邪共为了长久的统治，宁愿弄出一些稀奇古怪的“我爱你”、购物节和光棍节，也不愿宣扬感恩节、母亲节和父亲节，更不允许孩子们过圣诞节，经常发动一批小粉红进行抵制。
 
-The United States believes it is not only possible, it is imperative.
+所以，在中共国有什么节并不重要，重要的是节日是否符合中共的意识形态，以及是否利于其对人民的管控。而6月4日新中国联邦的建国日，才是中国人最应该铭记的新节日，因为它将让每个中国人，拥有真正的法治、自由、民主和信仰！
 
-美国认为，多边合作不仅是可能的，而且势在必行的
-
-Multilateralism is still our best tool for tackling big global challenges –
-
-多边主义仍然是我们应对重大全球挑战的最佳工具
-
-like the one that’s forcing us to gather on a screen today rather than around a table.
-
-就如迫使我们今天聚集在屏幕上而不能在桌子周围面对面会谈的新冠病毒
-
-The COVID-19 pandemic has changed life as we know it across the planet,
-
-正如我们所知，COVID-19大流行改变了整个星球的生活，
-
-with millions of deaths and devastating impacts on
-
-数以百万计的死亡和毁灭性的影响
-
-economies, health, education, social progress.
-
-经济、卫生、教育、社会进步
-
-The climate crisis is another massive threat.
-
-气候危机是另一个巨大的威胁
-
-If we don’t move swiftly to cut emissions,
-
-如果我们不迅速采取行动减少碳排放
-
-the results will be catastrophic.
-
-结果将是灾难性的
-
-We built the multilateral system in part to solve big,
-
-我们建立多边体系的部分目的是解决大型的，
-
-complex problems like these,
-
-像这些复杂的问题，
-
-where the fates of people around the world are tied together
-
-全世界人民的命运被绑在一起的地方
-
-and where no single country – mo matter how powerful – can address the challenges alone.
-
-而且没有哪个国家—无论实力如何—可以单独应对挑战
-
-That’s why the United States will work through multilateral institutions to stop COVID-19
-
-这就是为什么美国将通过多边机构合作制止COVID-19的原因
-
-and tackle the climate crisis,
-
-和应对气候危机，
-
-and we will abide by the core principles of the international order as we do.
-
-我们将一如既往地遵守国际秩序的核心原则
-
-We’ll also work with any country on these issues –
-
-我们还将与任何国家合作解决这些问题
-
-including those with whom we have serious differences.
-
-包括那些与我们有严重分歧的人
-
-The stakes are too high to let differences stand in the way of our cooperation.
-
-后果成本太大，不能让分歧阻碍我们的合作
-
-The same holds true for stemming the spread and use of nuclear weapons,
-
-阻止核武器的扩散和使用也是如此
-
-delivering life-saving humanitarian assistance, managing deadly conflicts.
-
-提供挽救生命的人道主义援助，处理致命冲突
-
-At the same time, we will continue to push back forcefully
-
-同时，我们将继续大力回击
-
-when we see countries undermine the international order,
-
-当我们看到某些国家破坏国际秩序时
-
-pretend that the rules we’ve all agreed to don’t exist,
-
-假装我们都已同意的规则不存在
-
-or simply violate them at will.
-
-或只是随意违反它们
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接 [https://twitter.com/statedept/status/1391468009101926403?s=24](https://twitter.com/statedept/status/1391468009101926403?s=24)
-
-英听校：    康州盘古农场 – Layka
-
-翻译：       康州盘古农场 – Layka
-
-翻译终校：康州盘古农场 – Mike Li
-
-字幕+视频制作：康州盘古农场-天涯行
-
-审片：康州盘古农场-银龙
-
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+（文章内容仅代表作者观点）
 
 0
