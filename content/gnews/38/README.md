@@ -1,59 +1,149 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【深度】为什么接种过疫苗的人仍然会感染中共病毒？
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1265527/)
+## 闫丽梦博士告诉TIMES NOW，指责中共将冠状病毒作为生物武器
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265689/)
 
-翻译：麦克阿Sir
+字幕内容：
 
-校对/译评：枳实
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22225937/1-151.jpg)
-图片来源：墨尔本雅典娜农场 设计组
+what you are saying the message you are giving to the Indian government is very very important
 
-**译评：**
+你所说的，你提供给印度政府的信息是非常非常重要的
 
-这篇澳洲主流媒体的文章虽然是一篇极力鼓吹中共病毒疫苗的文章，但是它却披露了下列“疫苗突破”的细节，从这些细节我们稍加分析就足以担忧中共病毒疫苗的大规模接种可能将造成前所未有的难以控制的疫情大爆发：
+something that India really needs to look at very very seriously
 
-1. 塞舌尔的中共病毒疫苗接种率高达63.5%，可是仍然出现疫情爆发，高达1/3的感染者为疫苗接种者。
+印度真的需要非常严肃地看待这些信息
 
-2. 根据美国疾控中心的数据，已经接种疫苗的感染者中高达1/4没有症状。这些感染者因为没有症状不可能自我隔离，不知不觉中成为最大的传染源。在世界各国各地区拟议中的疫苗护照将允许他们不戴口罩看电影，超市购物，乘坐公交车，甚至出国旅行等，这将极大助长疫情蔓延。
+it is, according to you, is  a bio weapon targeted at India
 
-3. 更严重的是，无症状感染者大部分不会去测试，所以实际的“疫苗突破”数字肯定远大于现有数据。下文中杨基队的例子也印证了这一点：9名感染者中8位没有症状，如果不是运动员的强制检测，他们的感染几乎不可能被发现，一般人没有症状不会去检测。
+据你所说，这是一种针对印度的生物武器
 
-这篇文章没有提到的是，[接种疫苗者的感染者中的变异毒株的发生率可达8倍](https://gnews.org/zh-hans/1086115/)之多，这与滥用抗生素而诱发耐药的超级病菌有相似的原理，但是却蕴藏着更大的危险。看看印度疫情中的“变异毒株”造成的灾难吧！因无症状而被低估的“疫苗突破”数字，加上因无症状感染者四处移动而大大增加的病毒传播的几率，这些因素几乎必然会导致变异毒株成为流行的优势毒株并诱发更严重的疫情再次爆发。到那时候，连全面封锁都很难控制疫情了，因为无症状感染者将成为多数（按照杨基队的例子这个比例是88%），以往能有效减少传播的“有症状的患者应该检测并自我隔离的”方法不再有效，每个人每周都需要检测一次的时代可能即将来临。
+last question before we let you go,
 
-闫丽梦博士和爆料革命的博士天团们早就披露了中共病毒的军方来源的铁证，早在2020年1月就明确警告不要指望短期内能够出现有效的疫苗，并揭示了羟氯喹等传统药物是目前更加有效的预防方法。面对全世界大规模的广泛疫苗接种可能造成前所未有的疫情大爆发的黑暗前景，我们已经别无选择，唯有努力向更多人传播中共病毒是生物武器的真相，在一切都已经太迟之前！
+在你离开之前让我再问最后一个问题：
 
-**译文：**
+how are you coping now ? do you continue to fear for your safety?
 
-随着中共病毒疫苗接种量的激增，出现了一个令人不安的趋势，成千上万的人在接种疫苗后仍然感染了病毒。
+你现在境遇如何？你是否继续担心你的安全？
 
-这听起来像是噩梦的内容——接种过中共病毒疫苗的人被检测为阳性，并在极少数情况下死亡。它们被称为 “疫苗突破性案例”。虽然它们很罕见，但专家说它们是可以预期的，因为没有一种疫苗是百分之百有效的。
+becauseyou’ve been one of the very few people in this entire world
 
-但这个新出现的问题对澳大利亚和其他国家何时以及如何重新开放边境构成了重大影响，特别是如果印度和南非出现的新的病毒毒株可能对第一代疫苗更有抵抗力。
+因为你是全世界极少数的人之一
 
-好消息是什么？专家说，他们也证实了疫苗是有效的，因为在大多数情况下，接种了COVID疫苗的人没有症状，也没有生病。但是，人们担心数以千计的疫苗突破性病例开始在美国出现，而美国有超过1.15亿人全面接种疫苗。
+who in fact have very openly spoken about corona virus and its origin that it is a
 
-根据美国疾病控制中心的数据，截至4月26日，有9245个 “疫苗突破 “病例。这些人中有四分之一的人检测结果呈阳性，但从未出现症状。但是有132人，或1%的突破性感染者死亡。其中20人的死亡是在没有症状的人身上，或者可能与中共病毒无关。那些死亡的人一般都是老年人或免疫抑制的患者，使他们更容易受到中共病毒的影响。
+公开地讲出新冠病毒和它的起源
 
-在塞舌尔，在地球上疫苗接种最多的地区之一爆发的中共病毒疫情也引起了世界卫生专家的关注。在截至5月8日的一周内对COVID-19检测呈阳性的人中，超过三分之一的人已经完全接种了疫苗。
+man-made virus something that was invented in a lab and it is not natural
 
-接种中共病毒疫苗是澳大利亚人恢复正常生活的最简单方法，但数百万人对接种疫苗犹豫不决。澳洲新闻网“我们的最佳机会（押注）”活动回答了你关于中共病毒（COVID-19）疫苗推广的问题。我们将揭开关于疫苗的迷思，回答你对疫苗的担忧，并告诉你何时可以接种中共病毒疫苗。
+认为它是一种人造的病毒，并且是在实验室里创造的，而不是自然产生的
 
-流行病学家警告说，当国境重新开放之时，在澳大利亚发现更多所谓的 “疫苗突破性 “病例只是时间问题。墨尔本大学教授托尼-布莱克利（Tony Blakely）将其解释为基本数学。即使一种疫苗有95%的效力，这仍然意味着多达二十分之一的接种者仍然可能感染和传播病毒，即使他们没有生病或死亡。布莱克利教授告诉澳洲新闻网：”如果一种疫苗90%有效，而且大多数人都接种了疫苗，那么在某些时候，你将开始看到接种疫苗的人出现更多的病例。”随着你让越来越多的人接种疫苗，你会看到更多的病例。“”没有疫苗是完美的。但你感染COVID和死亡的机会要少得多。”
+how are you coping up now?
 
-事实上，本月早些时候，六名海外旅行者在悉尼的酒店检疫时被检测出对中共病毒呈阳性，他们报告说他们已经完全接种疫苗。这也是一个提醒，要同时接种两剂疫苗，因为专家说，接种过一剂中共病毒疫苗且从未被感染的人更容易感染中共病毒。
+你现在境遇如何？
 
-最近几天，俄克拉荷马州卫生部已经确定了258例疫苗突破性病例。
+actually, since I came to US, yes I have met about a difficulties,
 
-美国有线电视新闻网（CNN）最近报道，在一周内，在完全接种疫苗的纽约洋基职业棒球队队员中出现了9例中共病毒感染者。在那些检测结果呈阳性的队员中，这9个病例中有8个是无症状患者。他们只是因为严格的团队检测协议而被发现。这让人怀疑社区中的病例可能会更多。
+实际上，自从我来到美国，是的，我遇到了一些困难
 
-“弗吉尼亚大学传染病医生和医院流行病学家科斯蒂-西弗里（Costi Sifri）博士告诉CNN：”它正在防止那些和洋基队合作的工作人员和洋基队球员的严重感染。”那些发生的感染，所谓的突破性感染，重要的是，大部分是轻度到中度的感染。”
+especially China  government using thousands of ways because that is a national power to chase me
 
-专家们说，这个教训是美国和世界需要对疫苗突破性案例做更多的研究。美国病毒学家瑞克-布莱特（Rick Bright）最近告诉市场观察（MarketWatch）网站，需要进行更多的基因组测试。
+特别是中共政府利用国家权力，使用各种手段来追捕我
 
-“我在大流行病应对方面工作了几十年。他说：”每次有坏事发生，我们似乎从来没有意识到它将会发生，以及它将会有多么糟糕。“每次我们度过这一关，我们总是说。’我们要做所有这些事情，让它变得更好[并]确保它永远不会再发生。但我们却没有这样做。这就是恐慌的循环，然后是后悔，然后是忘记。“”我们现在有能力进行[基因组]测序。但我们却恰恰做得不够多，而且不够好。”我们需要关注那些疫苗的突破性案例。”
+and try to make me disappeared
 
-原文链接：[Why vaccinated people are still catching COVID-19](https://www.news.com.au/lifestyle/health/health-problems/why-vaccinated-people-are-still-catching-covid19/news-story/04ebd031189bff7dad88ff934802ca07)
+中共试图让我消失
 
-+1
+so they attacked me online, they attacked me on media even the western media.
+
+所以他们在网上攻击我，在媒体上攻击我，甚至在西方媒体上攻击我
+
+and also they make up a lot of misinformation to mislead the western countries
+
+他们还编造了很多错误的信息来误导西方国家
+
+but  the good thing is we are promoting the things to the right direction.
+
+但好在我们正在推动病毒真相朝正确的方向发展
+
+and I have published three reports from last September to now , and which are  listed on my twitter
+
+从去年9月到现在，我已经发表了三份报告, 在我的推特上可以看到
+
+and there are over millions of people read it and downloaded it
+
+已经有超过百万人阅读和下载了这些报告
+
+I get a lot of feedback from governments and also the scientists
+
+我得到了来自政府和科学家的很多反馈
+
+they are talking to me said this is very very useful
+
+他们跟我说, 这是非常非常有用的
+
+and they do think this is from the lab.
+
+他们确实认为病毒是来自实验室
+
+and they think my evidence is quite solid including scientific ones and also intelligent ones,
+
+而且他们认为，无论是在科学方面还是在情报方面，我的证据都是相当坚实的
+
+so we can say people, yes they need time to understand it,
+
+所以我们说，是的，人们需要时间来理解它
+
+because in that PLA document, they also claimed that this is something that innocent   people cannot realize
+
+因为在解放军的那本教科书里，中共也承认这是善良的人无法理解的事情
+
+including innocent Chinese and innocent foreigners
+
+包括善良的中国人和善良的外国人
+
+and that’s because of deny and also misinformation they can make the people get
+
+因为中共的否认和传播错误信息，使人们感到困惑
+
+confused and finally waste their time, waste their life and so the bioweapon can work very well.
+
+最终浪费他们的时间，浪费他们的生命，从而使生物武器可以很好地发挥作用
+
+the thing that is their purpose
+
+这是中共的目的
+
+but I won’t tell you a as I say more and more people stand out to support more investigation
+
+但这不必由我告诉你。正如我所说的，有越来越多的人站出来要求更多的调查
+
+both on the lab origin and also bioweapon.
+
+包括对实验室起源和生物武器计划的调查
+
+I think there will be more good progress in the future and I will keep fighting on that.
+
+我认为未来会有更多好的进展，我将继续为此而奋斗
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接: https://twitter.com/timesnow/status/1391948816861986821?s=24
+
+英听校：    康州盘古农场 – Mike Li
+
+翻译：       康州盘古农场 – Mike Li
+
+翻译终校：康州盘古农场 – 柯镇恶
+
+字幕+视频制作：康州盘古农场-天涯行
+
+审片**：**康州盘古农场-银龙
+
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

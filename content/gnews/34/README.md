@@ -1,142 +1,90 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫丽梦博士告诉TIMES NOW，指责中共将冠状病毒作为生物武器
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265689/)
+## 称COVID-19病毒是在中共实验室开发的病毒学家闫丽梦博士，告诉我们更多关于中国的COVID战争的阴谋
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265724/)
 
-字幕内容：
+**字幕内容：**
 
-what you are saying the message you are giving to the Indian government is very very important
+**Okay, but Dr. Yan, the Chinese scientists and PLA commanders, they may have **
 
-你所说的，你提供给印度政府的信息是非常非常重要的
+好的，但是闫博士，中共国的科学家和解放军的指挥官
 
-something that India really needs to look at very very seriously
+**talked about genetically engineering a virus in 2015 in this report,**
 
-印度真的需要非常严肃地看待这些信息
+他们可能在**2015**年的这份**“**解放军指南**”**《非典非自然》中谈到了基因工程的病毒
 
-it is, according to you, is  a bio weapon targeted at India
+**can that 2015 report directly be linked to the spread of corona virus in 2020, **
 
-据你所说，这是一种针对印度的生物武器
+这本《非典非自然》能否直接与**2020**年、**2021**年的**COVID**病毒联系起来
 
-last question before we let you go,
+**2021, I mean from what you gathered on ground from that report, join the dots**
 
-在你离开之前让我再问最后一个问题：
+我的意思是，从你对这本**“**解放军指南**”**的了解，请为我们
 
-how are you coping now ? do you continue to fear for your safety?
+**for us, Dr.  Yan.**
 
-你现在境遇如何？你是否继续担心你的安全？
+解读一下，严博士
 
-becauseyou’ve been one of the very few people in this entire world
+**so actually, I just want to tell you that this is open published textbook published **
 
-因为你是全世界极少数的人之一
+实际上，我先告诉你的是，这本书是由军事医学出版社公开出版的教科书
 
-who in fact have very openly spoken about corona virus and its origin that it is a
+**by military medical press and it’s a textbook for military students in the universities.**
 
-公开地讲出新冠病毒和它的起源
+它是为军事学院里的军事学生编写的教科书
 
-man-made virus something that was invented in a lab and it is not natural
+**so you should know that this is also I quote as global times they said it’s a book**
 
-认为它是一种人造的病毒，并且是在实验室里创造的，而不是自然产生的
+你也应该知道，我引用《环球时报》的说法，他们说这是一本关于理论的书
 
-how are you coping up now?
+**about the theory and also in this book they clearly mentioned in the preface that**
 
-你现在境遇如何？
+而事实是，在这本书中，他们在序言中明确提到
 
-actually, since I came to US, yes I have met about a difficulties,
+**they get fully support from PLA and the Chinese government in writing this**
 
-实际上，自从我来到美国，是的，我遇到了一些困难
+他们在写这本书时得到了解放军和中共国政府的充分支持
 
-especially China  government using thousands of ways because that is a national power to chase me
+**and I want to emphasize is, this is not the beginning of their study of**
 
-特别是中共政府利用国家权力，使用各种手段来追捕我
+我想强调的是，这不是中共研究现代生物
 
-and try to make me disappeared
+**contemporary bioweapon, this is just one step which we have evidence now back **
 
-中共试图让我消失
+武器的开始，这只是有证据可以追溯到六年前的中共研究生物武器的一个步骤
 
-so they attacked me online, they attacked me on media even the western media.
+**to six years ago, but after that, they have also modified a lot, and they have **
 
-所以他们在网上攻击我，在媒体上攻击我，甚至在西方媒体上攻击我
+但在那之后，中共也修改了很多，中共在
 
-and also they make up a lot of misinformation to mislead the western countries
+**recruited a lot of labs under the cover of stable labs, under the cover of **
 
-他们还编造了很多错误的信息来误导西方国家
+稳定的实验室的掩护下，在国际实验室的掩护下
 
-but  the good thing is we are promoting the things to the right direction.
+**international labs and working with the military to develop it.**
 
-但好在我们正在推动病毒真相朝正确的方向发展
+招募了很多实验室，与军方合作开发生物武器
 
-and I have published three reports from last September to now , and which are  listed on my twitter
+**so they have better knowledge and experience after the sixth year, **
 
-从去年9月到现在，我已经发表了三份报告, 在我的推特上可以看到
+所以中共在六年后应该有更多关于生物武器的知识和经验
 
-and there are over millions of people read it and downloaded it
+**that’s what later you say COVID-19 happened**
 
-已经有超过百万人阅读和下载了这些报告
-
-I get a lot of feedback from governments and also the scientists
-
-我得到了来自政府和科学家的很多反馈
-
-they are talking to me said this is very very useful
-
-他们跟我说, 这是非常非常有用的
-
-and they do think this is from the lab.
-
-他们确实认为病毒是来自实验室
-
-and they think my evidence is quite solid including scientific ones and also intelligent ones,
-
-而且他们认为，无论是在科学方面还是在情报方面，我的证据都是相当坚实的
-
-so we can say people, yes they need time to understand it,
-
-所以我们说，是的，人们需要时间来理解它
-
-because in that PLA document, they also claimed that this is something that innocent   people cannot realize
-
-因为在解放军的那本教科书里，中共也承认这是善良的人无法理解的事情
-
-including innocent Chinese and innocent foreigners
-
-包括善良的中国人和善良的外国人
-
-and that’s because of deny and also misinformation they can make the people get
-
-因为中共的否认和传播错误信息，使人们感到困惑
-
-confused and finally waste their time, waste their life and so the bioweapon can work very well.
-
-最终浪费他们的时间，浪费他们的生命，从而使生物武器可以很好地发挥作用
-
-the thing that is their purpose
-
-这是中共的目的
-
-but I won’t tell you a as I say more and more people stand out to support more investigation
-
-但这不必由我告诉你。正如我所说的，有越来越多的人站出来要求更多的调查
-
-both on the lab origin and also bioweapon.
-
-包括对实验室起源和生物武器计划的调查
-
-I think there will be more good progress in the future and I will keep fighting on that.
-
-我认为未来会有更多好的进展，我将继续为此而奋斗
+这就是后来发生的**COVID-19**大流行的事情
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-原视频链接: https://twitter.com/timesnow/status/1391948816861986821?s=24
+原视频链接: [https://twitter.com/raheemkassam/status/1348463264326365187?s=21](https://twitter.com/raheemkassam/status/1348463264326365187?s=21)
 
 英听校：    康州盘古农场 – Mike Li
 
 翻译：       康州盘古农场 – Mike Li
 
-翻译终校：康州盘古农场 – 柯镇恶
+翻译终校：康州盘古农场 -Ara
 
-字幕+视频制作：康州盘古农场-天涯行
+字幕+视频制作：康州盘古农场-青梅煮酒
 
 审片**：**康州盘古农场-银龙
 
@@ -146,4 +94,4 @@ I think there will be more good progress in the future and I will keep fighting 
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-0
++1

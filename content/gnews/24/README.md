@@ -1,165 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 你今天从福奇那里看到的，是全面的信息战和直截了当的谎言
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265761/)
+## 【热点播报】立陶宛宣布退出17+1合作组织
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1265665/)
 
-字幕内容：
+**作者**：香草山美食部 蓝天大海
 
-Anne Luty:
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
 
-安妮·卢蒂：
 
-What you saw today from Fauci was full-blown information warfare
 
-你今天从福奇那里得到的是一场全面的信息战。
 
-and a straight up lie that’s provable, really,
 
-可以证明就是一个直白的谎言，真的，
+据法新社5月23日报道，立陶宛外长兰斯伯格斯本周六正式宣布，立陶宛今后将不再出席17+1峰会，他同时呼吁其他成员国跟进。立陶宛的这一决定或许会产生连锁反应。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23004221/image0-4-5.jpg)图片来源：维基百科
+17+1合作组织成立于2012年，它是一个中共国与中东欧国家之间的合作组织。这个组织设有一个成员国领导人定期会晤的机制，每年举行一次会议。该组织成立初期，是16+1，后来希腊加入，变成17+1。
 
-just by going to the NIH website and their grant database.
+在今年二月举行的17+1峰会上，尽管中共国非常重视，将原计划由总理主持峰会，改由习近平主持，但由于立陶宛等六国降低了出席会议人员的层级，结果令中共国失望。
 
-只要去美国国立卫生研究院（NIH）网站和他们的拨款数据库。
+本周四，立陶宛国家议会通过一项决议，认定北京对新疆维吾尔穆斯林犯下“种族灭绝”和“人类大屠杀”罪。它呼吁联合国出面组织人员前往新疆调查，还要求欧盟因此修正与北京的关系。
 
-So what we are talking about here really crossed the issue
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23004602/image0-11-1.jpg)
 
-所以我们在这里谈论的事情，真正是和这个问题有关。
+除此之外，立陶宛最近还否决了中共国对立陶宛的部分投资，以及决定在台湾开设商业办事处。这令中共非常气愤。
 
-is what alternately became 3.7 million dollars grant
+由于中共国在新疆维吾尔人权问题上对欧盟采取了反制裁，欧盟议会日前决定冻结《欧中投资协定》，这使得中共国在欧洲的影响力日趋减弱。欧洲国家在对抗中共国的问题上变得空前团结。随着ccp病毒的真相彻底被揭露，越来越多的国家和人民都会加入围剿中共的行列。
 
-就是后来变成了370万美元的赠款。
+编辑/校对/发稿：遍地开花
 
-that came from Fauci’s NINID
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
 
-这来自福奇的NINID
 
-it was titled understanding the risk of back conora virus emergence
 
-它的标题是“了解新型冠状病毒出现的风险”
+**更多资讯，更多关注**
 
-and this was sent primarily to a group as known as eco health alliance,
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-这封信主要寄给了一个名为生态健康联盟的组织，
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-which is, of course, lead by Peter Daszak, who has comprising ties to the Chinese government in his own right
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-当然，这个组织是由彼得·达扎克(Peter Daszak)领导的，而他本身就与中国政府有联系。
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-and also happened to serve as the World Health organization of Covid-19 investigator
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-还恰好担任了世界卫生组织的新冠肺炎调查员。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193850/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1-1.jpg)
 
-So in that time period from 2014 to 2021, 30 studies were published under that grant
 
-因此，从2014年到2021年那段时间里，在这笔赠款资助下，有30多项研究发表。
 
-but what’s really interesting in this is where you see what Fauci’s narrative totally crumbling
 
-但其中真正有趣的是，你可以看到某些地方福奇的叙述完全瞎说的。
-
-16 of those studies again funded explicitly by American tax payer dollars,
-
-这些研究中有16项明确由美国纳税人的钱资助的，
-
-list co-authors who come from Chinese Communist Party run scientific organizations
-
-列出来的共同作者，来自中国共产党管理的科研组织
-
-and 13 of those cases, again, that’s nearly half of total studies published under the Graph grant
-
-全部研究项目中的一半有13个项目，是由Graph资金资助的
-
-the individuals come from another WuHan Institution of Virology
-
-这些人来自武汉另一家病毒学研究所。
-
-I am talking about rank and file researchers all the way up
-
-我说的是从普通到高级的研究人员
-
-to the centre of emerging infectious disease director-Shi, Zheng Li
-
-到突发传染病中心主任—石正丽
-
-who, of course, as Rand Paul mentioned
-
-当然是她，正如兰德·保罗所说
-
-but what was really interesting
-
-但真正有趣的是
-
-in this is a kind of very lead  that I polled today while looking at these studies
-
-我今天在看这些研究时找到了一些线索
-
-If you look at the diction and think tank as how they describes these grants on the actually studies,
-
-如果你看一下措辞和智囊团是如何描述这些拨款给实际做了的研究项目，
-
-you will see it that they just described this NINID grants not just is going to Peter Daszak
-
-你会看到他们刚刚描述的NINID资金不仅仅是给彼得·达萨克
-
-but rather is going to Peter Daszak and Shi, Zheng Li
-
-而是给彼得·达萨克和石正丽。
-
-I read a quote from a study that it was titled isolation characterization of a Novo back conora virus
-
-我从一项研究中读到一篇文章，题目是“分离鉴定一种新的冠状病毒”。
-
-is close related to the direct progenitor of SARS Conoravirus
-
-与SARS 冠状病毒的直接祖先密切相关。
-
-And in that study it says NIH provided funding to Peter Daszak and Shi, Zheng Li and grand No…. NINID so long number
-
-在那项研究中，它说国家卫生研究院给彼得·达萨克和石正丽提供资金…和资金项目编号。。。。NINID的资金号码很长。
-
-And there are 7 studies where you see NINID money is going directly not just to Peter Daszak but to Shi, Zheng Li
-
-还有7项研究，NINID的钱不仅直接流向了彼得·达萨克，还流向了石正丽。
-
-and some cases they all only described the money is going to Shi
-
-有些情况下，他们都只描述了钱会流向石正丽。
-
-and again another 16 studies that I just mentioned
-
-我刚才提到的另外16项研究。
-
-not only were they funded by NINID, or NIH, of USAID,
-
-他们不仅得到了NINID，或美国国家卫生研究院(NIH)，或美国国际开发署(USAID)的资助
-
-but also they were all simultaneously funded
-
-而且他们都是同一时间获得了资金
-
-by a host Chinese Communist Party controlled scientific organization
-
-由中国共产党控制的科学组织提供的
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://twitter.com/anneluty/status/1392326135212544001?s=21](https://twitter.com/anneluty/status/1392326135212544001?s=21)
-
-英听校:康州盘古农场-WZ
-
-翻译: 康州盘古农场-WZ
-
-翻译终校: 康州盘古农场-格格巫
-
-字幕+视频制作:康州盘古农场-青梅煮酒
-
-审片: 康州盘古农场-银龙
-
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

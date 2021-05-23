@@ -1,97 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 称COVID-19病毒是在中共实验室开发的病毒学家闫丽梦博士，告诉我们更多关于中国的COVID战争的阴谋
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265724/)
+## 《路德社》新闻快讯（视频版）: 20210521闫博士接受Tucker的采访
+` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1265747/)
 
-**字幕内容：**
+《路德社》出品
 
-**Okay, but Dr. Yan, the Chinese scientists and PLA commanders, they may have **
+以下视频是详细内容：
 
-好的，但是闫博士，中共国的科学家和解放军的指挥官
+主要内容：
 
-**talked about genetically engineering a virus in 2015 in this report,**
+1.Tucker：现在很多人都验证了闫博士说的是正确的
 
-他们可能在**2015**年的这份**“**解放军指南**”**《非典非自然》中谈到了基因工程的病毒
+2.闫博士感谢Tucker先生无惧攻击继续传播真相
 
-**can that 2015 report directly be linked to the spread of corona virus in 2020, **
+3.NIH资助的功能增强实验，而开展这种实验的是CCP以及PLA
 
-这本《非典非自然》能否直接与**2020**年、**2021**年的**COVID**病毒联系起来
+4.蝠奇等否认来自实验室，是因为这是CCP最不想让人知道的真相
 
-**2021, I mean from what you gathered on ground from that report, join the dots**
+5.这会让人理解不了动机以及潜在的巨大危险
 
-我的意思是，从你对这本**“**解放军指南**”**的了解，请为我们
+6.Tucker：美国的科学家和政府人员本不该撒谎但它们全都撒了谎
 
-**for us, Dr.  Yan.**
+7.闫博士：已经将科学证据和情报证据汇总在已发表的三篇报告里
 
-解读一下，严博士
+8.在这个病毒上的功能增强实验本就不是为了什么好的目的
 
-**so actually, I just want to tell you that this is open published textbook published **
+9.这本就是被设计来针对人体攻击人类的
 
-实际上，我先告诉你的是，这本书是由军事医学出版社公开出版的教科书
+10.很高兴看到越来越多的人意识到病毒来自CCP实验室，闫博士的证据也被人们逐渐证实 11.要呼吁所有团体这个病毒非常危险
 
-**by military medical press and it’s a textbook for military students in the universities.**
+12.之后才会明白有更多的东西隐藏在病毒里
 
-它是为军事学院里的军事学生编写的教科书
+13.需要对CCP施压，让它交代到底对病毒做了什么
 
-**so you should know that this is also I quote as global times they said it’s a book**
+14.Tucker说闫博士应该被授予总统自由勋章
 
-你也应该知道，我引用《环球时报》的说法，他们说这是一本关于理论的书
 
-**about the theory and also in this book they clearly mentioned in the preface that**
 
-而事实是，在这本书中，他们在序言中明确提到
+翻译：路德社翻译组
 
-**they get fully support from PLA and the Chinese government in writing this**
+制作：路德社视频组
 
-他们在写这本书时得到了解放军和中共国政府的充分支持
+审核校对：玫瑰新闻组
 
-**and I want to emphasize is, this is not the beginning of their study of**
+上传排版：玫瑰新闻组
 
-我想强调的是，这不是中共研究现代生物
-
-**contemporary bioweapon, this is just one step which we have evidence now back **
-
-武器的开始，这只是有证据可以追溯到六年前的中共研究生物武器的一个步骤
-
-**to six years ago, but after that, they have also modified a lot, and they have **
-
-但在那之后，中共也修改了很多，中共在
-
-**recruited a lot of labs under the cover of stable labs, under the cover of **
-
-稳定的实验室的掩护下，在国际实验室的掩护下
-
-**international labs and working with the military to develop it.**
-
-招募了很多实验室，与军方合作开发生物武器
-
-**so they have better knowledge and experience after the sixth year, **
-
-所以中共在六年后应该有更多关于生物武器的知识和经验
-
-**that’s what later you say COVID-19 happened**
-
-这就是后来发生的**COVID-19**大流行的事情
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接: [https://twitter.com/raheemkassam/status/1348463264326365187?s=21](https://twitter.com/raheemkassam/status/1348463264326365187?s=21)
-
-英听校：    康州盘古农场 – Mike Li
-
-翻译：       康州盘古农场 – Mike Li
-
-翻译终校：康州盘古农场 -Ara
-
-字幕+视频制作：康州盘古农场-青梅煮酒
-
-审片**：**康州盘古农场-银龙
-
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-+1
+0

@@ -1,43 +1,145 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【国际时评】哈马斯“诈尸”案的联想
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1265737/)
+## 安东尼·福奇和美国国立卫生研究院需要向美国人民提供答案
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265779/)
 
-温哥华扬帆农场 – Shuang
+字幕内容：
 
-以色列跟哈马斯停火了，然而谁都知道，引发战争的根本问题不解决，这个地区发生冲突的潜在可能性就永远不会消失。
+Host- Lauren:
 
-最近几天，网上流传着几张视频截图，一张图中哈马斯抬着一具尸体游行抗议，另一张图中，空袭警报响起时，抬尸体的人扔下尸体全跑了，“尸体”也掀开裹尸布跑了。“诈尸”画面刷屏，大家当笑话一样传播着。此外，网络上还传出哈马斯化妆师把健康儿童化妆成满脸血水的“受害人”的操作流程，用来控诉以色列人对巴勒斯坦儿童的伤害。看来，以色列的空袭造成的平民伤亡数量远远不够哈马斯控诉、索赔用的，尸体和受伤儿童“货源紧张”，以至于哈马斯只能启用“群众演员”假扮尸体和受伤人群。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23013231/%E5%93%88%E9%A9%AC%E6%96%AF%E8%AF%88%E5%B0%B81.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23013243/%E5%93%88%E9%A9%AC%E6%96%AF%E8%AF%88%E5%B0%B82.jpg)
-5月21日，《环球时报》报导：“据法新社加沙城消息，哈马斯一名高官当地时间21日对停火协议生效后在加沙城举行庆祝的数千民众发表讲话，称在同以色列的冲突中取得胜利。”看到这里，不禁令人哑然失笑。前几天还抬着“尸体”抗议，扮演受害者的角色，一停战就摇身一变，成了胜利者了？难道说，哈马斯以“牺牲”大量平民而换来了“胜利”？
+主持人-劳伦：
 
-哈马斯跟以色列干上了，分明就是鸡蛋碰石头，他为什么还要打？现在大家看到了，哈马斯并不在意取得多大“战果”，只要挨打，就是胜利。以色列给哈马斯制造出越多巴勒斯坦平民“尸体”，哈马斯就越有理由向国际社会“尸谏”，扮演弱者，讹诈以色利。在哈马斯眼里，巴勒斯坦人都是行尸走肉，只有死在以色列的炮火下才有意义。
+Here was scientist journalist Nicholas Wade wrote about Fauci and others involvement of funding that money to WuHan
 
-十几年前，国内拍过一部电影叫《盲井》，在私人小煤矿做工的农民唐朝阳和宋金明发家致富的招数是，先套近乎将打工无门的外地农民认作亲人带到煤矿做工，在井下工作时制造“安全事故”将“亲人”杀死，再找矿主私了。先认亲人，再制造“事故”把“亲人”杀死，“亲人”最大的贡献就是成了尸体，让杀死他的假亲人讹诈矿主受益。这套路是不是很熟悉？
+以下是科学记者尼古拉斯·韦德(Nicholas Wade)关于福奇和其他人参与向武汉提供资金的报道。
 
-哈马斯惹以色列就是在制造“安全事故”，然后抬着“亲人”尸体游行，向矿主进行“尸讹”，向国际社会进行“尸谏”。哈马斯认巴勒斯坦平民为“亲人”，就是看上了他们在“矿难”中成为尸体的价值。但对外，他们高唱一切为了人民，他们也坚信，干坏事只要躲在居民区里，以色列就会忌惮，他们宣称人民就是他们的铜墙铁壁。
+“for the first three years of the grant… there was a moratorium on funding gain-of-function research
 
-这一切是多么多么的熟悉！
+“在赠款…的头三年。暂停了对功能获得性研究的资助。
 
-韩战死了多少人都无所谓，尸体吓坏了国际社会，党说我们胜利了。
+Why didn’t the two agencies therefore halt the Federal funding?….
 
-中共国平均40天死一个亿万富翁，8年死了72个，这些曾经像党和政府亲儿子一样的企业家们，为中共贡献了多少财富，最后都不明不白变成了“尸体”。
+为什么这两个机构没有因此停止联邦拨款呢？
 
-所有在维稳中被迫害的平民，最后都被打上“暴徒”的标签，他们的尸体成了中共“除暴安良”的功迹。
+Someone wrote a loophole into the moratorium…
 
-武汉堆成山一样的骨灰盒，全都是抗疫“胜利”的证明。
+有人在暂停该项目文件中…中写了一个漏洞。
 
-……
+Dr. Anthony Fauci, or…Dr. Francis Collins,
 
-他们的铜墙铁壁是用我们同胞的尸体堆成的！他们踩着同胞的尸体步步高升！
+安东尼·福奇(Anthony Fuci)博士，或…弗朗西斯·柯林斯博士。
 
-无论打着什么样的幌子，他们的邪恶都是相通的。像哈马斯、像中共这样组织，绑架人民，利用人民，与文明社会为敌。然而，如果没有文明社会的“仁慈”和“公正”，这些邪恶组织怎么可能一路壮大发展？国际社会呼吁以色列要克制，为什么不要求哈马斯要克制呢？这不就是“尸谏”起了效果吗？文明社会对君子要求很高，对小人多有放纵，在文明盛世当个流氓要比正人君子舒服得多。
+or maybe both, would have invoked the footnote in order to keep the money flowing…”
 
-国际社会已经慢慢意识到了这一点，爆料革命、新中国联邦唤醒了无数人。那么同胞们，你们认识到了吗？不要再扮演尸体让邪恶政权利用了。你今天演尸体，迟早有一天被中共变成真尸体！
+或者两者兼而有之，都会引用备注条款，以保持资金流动…。
 
-（本文仅代表作者观点，与GNEWS无关）
+Senator, this is serious, we got all these people did
 
-编审：文敏
+参议员，这件事很严重，我们了解了这帮人做的这些
 
-+1
+We have all these horrible restrictions of Americans life let the normal suffering
+
+造成我们美国人要过可怕的限制生活，所有这些让正常的人受苦。
+
+Don’t we deserve any answer?
+
+难道我们不应该得到任何答案吗？
+
+Senator-Tom Cotton:
+
+参议员汤姆·科顿：
+
+We do deserve answer Lauren.
+
+我们理应得到答案，劳伦。
+
+Tony Fauci needs to give us an answer
+
+托尼·福奇需要给我们一个答案。
+
+Look, he’s wrong about a lots of last year
+
+听着，他去年很多事情都错了
+
+wrong about masks, wrong about schools,
+
+戴口罩的错误，学校指引的错误，
+
+Now he is wrong about summer camps for kids
+
+现在他对孩子们夏令营的做法是错误的。
+
+But he is also wrong today to say that NIH never directly or even indirectly funded this kind of research
+
+但他今天说国立卫生研究院从未直接或间接资助这类研究的说法也是错误的。
+
+that report mentioned by Nicholas Wade block buster recommend about all of you the audience to read it
+
+尼古拉斯·韦德(Nicholas Wade)提到的那篇报道推荐你们所有的观众去读一读。
+
+Tony Fauci and his agencies need provide answers to the American people
+
+托尼·福奇和他的代理们需要给美国民众确实的答案
+
+about what rule they had been played in funding research in this laboratory
+
+关于他们在资助这个实验室的研究中扮演了什么角色。
+
+Now perhaps, it wasn’t directly into what alertly resulted in this worldwide pandemic
+
+现在也许，这并不是直接导致这场世界性大流行的直接原因。
+
+But why in the first place, would American tax dollars be going to a Chinese Communist lab
+
+但为什么一开始，美国纳税人的钱就流向中国共产党的实验室呢？
+
+that was conducting some of the world most dangerous kind of research
+
+进行了一些世界上最危险的研究。
+
+in the laboratory that we know that we knew three four years ago have very low sloppy safety practices
+
+在我们知道的实验室里，我们三、四年前就知道有安全性很低的操作。
+
+It was extremely reckless
+
+这是极其草率的。
+
+Tony Fauci maybe a good scientist
+
+托尼·福奇也许是个好科学家。
+
+But doesn’t say no much about constitutional self government
+
+但对立宪自治并没有说太多。
+
+He was disrespectful to the United States Senate today
+
+他今天对美国参议院不够尊敬。
+
+And appears to disregard the direction of O’Bama White House five or six years ago.
+
+似乎也无视五六年前奥巴马白宫的领导。
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频连接: [https://twitter.com/sentomcotton/status/1392468278635810816?s=21](https://twitter.com/sentomcotton/status/1392468278635810816?s=21)
+
+英听校:康州盘古农场-WZ
+
+翻译: 康州盘古农场-WZ
+
+翻译终校: 康州盘古农场-格格巫
+
+字幕+视频制作:康州盘古农场-青梅煮酒
+
+审片: 康州盘古农场-银龙
+
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0
