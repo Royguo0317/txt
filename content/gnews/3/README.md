@@ -1,31 +1,101 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国小镇有七个家庭感染印度变种的中共病毒
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1266138/)
+## 杰克·基恩（Jack Keane）：以色列对哈马斯领导层，地下隧道造成了“重大损害”
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1266153/)
 
-信息来源：德国世界报网络版 
-发布时间：2021年5月22日
-翻译 /整理/ 简评： Shuizhuyu
+字幕内容：
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23075125/IMG_0529.jpg)
+Brian Kilmeade
 
+布莱恩·基尔梅德（Brian Kilmeade）
 
-关于在费尔伯特的两座高层建筑中隔离检疫的人员，证实有26例怀疑是印度变异。由于爆发，卫生部门正在对邻近的拉廷根州的其他密切接触者进行测试。
+General, did Israel stop the right time?
 
-在费尔伯特的两座摩天大楼被隔离的居民中，印度的冠状病毒变异已在七个家庭中被发现。梅特曼区在星期六对总共26名感染者的样本进行测序后宣布了这一消息。
+将军，以色列停火是时候吗？
 
-最初检测到该突变体后，不到一周前就对189名居民进行了隔离和测试。此后，许多未受影响的居民已解除隔离。
+General Jack Keane
 
-世界卫生组织将印度病毒变种归类为“令人担忧”。根据专家的说法，它的传染性可能比英国变种高50％。
+杰克·基恩将军
 
-简评： 印度的病毒危机的恐怖画面在每个人的心理都罩上了一层阴影。德国小镇费尔伯特两座高楼的全部隔离在德国的病毒流行期间是第一次。 今天卫生部门宣布在这两座大楼里有七个家庭发现了印度变种的中共病毒， 现在正在对一些居住在周边的其他密切接触者进行排查。 德国希望这个变种能够控制在极小的范围内， 因为世界卫生组织发布说， 这个变种的中共病毒的传染力极高。
+Well, we don’t know that for sure
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
+好吧，我们不确定
 
-🔗[in-Velberter-Hochhaus-alle-mit-indischer-Variante](https://www.welt.de/regionales/nrw/article231313121/Infizierte-in-Velberter-Hochhaus-alle-mit-indischer-Variante.html?cid=onsite.onsitesearch)
+I mean, I believe the Prime Minister Netanyahu from the outset
 
+我的意思是，我相信内塔尼亚胡总理从一开始就
 
+when he when he got this fuselage of an unprovoked attack on Israeli people
 
-+1
+当他得到对以色列人民的无端攻击的事实时
+
+he made his mind that he was going to degrade their military capability
+
+他下定决心他要降低他们的军事能力
+
+rather significantly in his quick time as he possibly could,
+
+相当显著的在他可能的快速时间内
+
+and I think he dismissed  the idea of a ground invasion
+
+并且我认为他取消了地面入侵的想法
+
+that took place in 2014, which lasted almost  50 days
+
+发生在2014年，持续了几乎50天
+
+and result in a lot of condemnation against Israel
+
+从而导致了当时以色列受到很多谴责
+
+because of that, but only, only they know,
+
+因为那个，但是只有他们知道
+
+but I assumed just from sources that they have done significant damage to Hamas
+
+但我仅从消息来源推测，他们已经对哈马斯
+
+and the Palestinian Islamic Jihad’s infrastructure,
+
+和巴勒斯坦伊斯兰圣战组织的基础设施造成了重大的损害
+
+just their rockets and missiles and launchers,
+
+他们的火箭，导弹和发射器
+
+but also that tunnel network which one is 9 to 12 miles underneath
+
+而且还有在加沙城地下9到12英里的隧道网络
+
+that the Gaza City，  it’s very significant part of their support structure
+
+这是他们支持结构中非常重要的一部分
+
+and they took down a lot of their leaders as well
+
+他们也消灭了很多领导人
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 https://www.foxnews.com/media/jack-keane-hamas-leadership-underground-tunnels-damage-israel-conflict-ceasefire
+
+英听校：    康州盘古农场 – Layka
+
+翻译：       康州盘古农场 – Layka
+
+翻译终校：康州盘古农场 – Mike Li
+
+字幕+视频制作：康州盘古农场-天涯行
+
+审片：康州盘古农场-银龙
+
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0
