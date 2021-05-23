@@ -1,31 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国和韩国“非常关注”朝鲜的核计划
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1265991/)
+## 巴以冲突的恐怖来自德黑兰
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1266152/)
 
 信息来源：德国世界报网络版 
+记者：安捷·舒普曼（Antje Schippmann）
 发布时间：2021年5月22日
 翻译 /整理/ 简评： Shuizhuyu
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23064648/daniel-bernard-qjsmpf0aO48-unsplash-scaled.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23080727/IMG_0530.jpg)
 
 
-美国和韩国“非常关注”北朝鲜的核武器计划，并希望寻求“外交”解决方案。美国总统拜登在与白宫南韩同事文在寅的联合新闻发布会上说。
+德国外长海科·马斯（Heiko Maas）前往特拉维夫（Tel Aviv）表示强烈的声援。他对支持以色列的认真程度将很快变得明显：即西方正在与大屠杀的伊朗谈判新的核协议。
 
-拜登周五（当地时间）说，与平壤进行的对话必须围绕“采取务实的步骤，缓解朝着最终目标朝鲜半岛无核化的紧张关系”。美国总统承认：“我们知道有多困难，没有幻想。”拜登还宣布任命朝鲜特使，美国外交官成金。
+外交部长海克斯·马斯（Heiko Maas）周四前往以色列表示声援。在此之前的11天里，从犹太地区的加沙地带发射了4,300多枚火箭。马斯说：“只要该地区有一些团体和国家想要消灭以色列，你就必须能够保卫自己。”德国将为此作出自己的贡献。 “我们的团结不仅限于言语。”
 
-文在寅对特使的任命表示欢迎，并欢迎美国政府愿意通过外交渠道帮助朝鲜半岛实现无核化。白宫翻译说：“我有很高的期望。”他补充说，目标是实现可持续和平。
+这次旅行是外交部长的有力姿态，表明他的一些前任可能还没有做好准备。马斯（Maas）在反对反犹太主义和维护以色列的安全时是认真的，这对他来说是一件内心的事情，这是他政治遗产的一部分。但是与哈马斯最重要的支持者伊朗进行危险的核协议的重新谈判也在他的任期内。
 
-美国和韩国想说服平壤放弃其核武器计划。结果，朝鲜受到国际制裁，在很大程度上是外交上孤立的。美国在韩国有数千名士兵。
-
-由于中共病毒大流行，自1月底拜登上任以来，与文在寅的会晤是外国国家元首第二次访问白宫。拜登（Biden）在4月接待了日本首相菅义伟（Yoshihide Suga）。
-
-简评： 很愿意看到韩国和美国之间有友好的关系， 也希望美国能够保护韩国的军事安全。 毕竟韩国的地理位置处于北朝鲜的核威慑之下， 而北朝鲜的核武器是中共国支持的。这也是不争的事实。 韩国战队美国无疑对中共国来说也是一个震慑力量。 不管怎么说， 韩国和美国还是有共同价值观的两个同盟国家。
+简评： 有关巴以冲突的新闻我已经发出了很多篇了， 今天这篇必须为德国外长的表态和行动点赞。他坚决的支持以色列的自卫行为， 并亲临特拉维夫表示出了明确的姿态， 这在德国最近几年的外交史上也是非常罕见的。 与其他政客尤其是联合国秘书长只关注于巴勒斯坦死亡多少人， 而忽视以色列的伤亡的行为截然不同。 同时这位记者还提到， 德国现任外交部长是极力推动当初和伊朗的核协议谈判的一位。 他现在已经意识到了与伊朗这样的邪恶轴心国加上有中共的背后支持，他明确的警告， 西方正在和进行大屠杀的伊朗谈判。 还谈吗？还能谈吗？还有谈的基础吗？
 
 免责声明， 本文只代表作者观点， 与 Gnews平台无关。
- 发表： Shuizhuyu
+发表： Shuizhuyu
 
-🔗[US-Praesident-Biden-USA-und-Suedkorea-sehr-besorgt-ueber-Nordkoreas-Atomprogramm](https://www.welt.de/politik/ausland/article231301041/US-Praesident-Biden-USA-und-Suedkorea-sehr-besorgt-ueber-Nordkoreas-Atomprogramm.html)
+🔗[Israelhass-Der-Terror-kommt-aus-Teheran](https://www.welt.de/debatte/kommentare/article231307365/Israelhass-Der-Terror-kommt-aus-Teheran.html)
 
-+2
++1

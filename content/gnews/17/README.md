@@ -1,31 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国小镇有七个家庭感染印度变种的中共病毒
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1266138/)
+## 【圣城传声筒】香港惩教署应基于人道理由改善设施应对酷热
+` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1266312/)
 
-信息来源：德国世界报网络版 
-发布时间：2021年5月22日
-翻译 /整理/ 简评： Shuizhuyu
-
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23075125/IMG_0529.jpg)
-
-
-关于在费尔伯特的两座高层建筑中隔离检疫的人员，证实有26例怀疑是印度变异。由于爆发，卫生部门正在对邻近的拉廷根州的其他密切接触者进行测试。
-
-在费尔伯特的两座摩天大楼被隔离的居民中，印度的冠状病毒变异已在七个家庭中被发现。梅特曼区在星期六对总共26名感染者的样本进行测序后宣布了这一消息。
-
-最初检测到该突变体后，不到一周前就对189名居民进行了隔离和测试。此后，许多未受影响的居民已解除隔离。
-
-世界卫生组织将印度病毒变种归类为“令人担忧”。根据专家的说法，它的传染性可能比英国变种高50％。
-
-简评： 印度的病毒危机的恐怖画面在每个人的心理都罩上了一层阴影。德国小镇费尔伯特两座高楼的全部隔离在德国的病毒流行期间是第一次。 今天卫生部门宣布在这两座大楼里有七个家庭发现了印度变种的中共病毒， 现在正在对一些居住在周边的其他密切接触者进行排查。 德国希望这个变种能够控制在极小的范围内， 因为世界卫生组织发布说， 这个变种的中共病毒的传染力极高。
-
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
-
-🔗[in-Velberter-Hochhaus-alle-mit-indischer-Variante](https://www.welt.de/regionales/nrw/article231313121/Infizierte-in-Velberter-Hochhaus-alle-mit-indischer-Variante.html?cid=onsite.onsitesearch)
+荐评：纽约香草山香港部写作组
 
 
 
-+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
+
+
+
+原文及图片来源：立场新闻
+
+全文阅读：
+
+[【监狱热爆】钢制家俬「㷫」人　热夜饮滚水　石墙花发起联署　要求惩教署改善](https://www.thestandnews.com/politics/%E7%9B%A3%E7%8D%84%E7%86%B1%E7%88%86-%E9%8B%BC%E8%A3%BD%E5%82%A2%E4%BF%AC-%E3%B7%AB-%E4%BA%BA-%E7%86%B1%E5%A4%9C%E9%A3%B2%E6%BB%BE%E6%B0%B4-%E7%9F%B3%E7%89%86%E8%8A%B1%E7%99%BC%E8%B5%B7%E8%81%AF%E7%BD%B2-%E8%A6%81%E6%B1%82%E6%87%B2%E6%95%99%E7%BD%B2%E6%94%B9%E5%96%84/)
+
+* * *
+
+* * *
+
+近日天气酷热，天文台更指本年截至前日（19日）打破有记录以来5月最多热夜纪录。组织“石墙花”关注酷热天气下监房内的情况，并发起联署，要求惩教署能基于人道理由，认真考虑各项能改善监房内酷热问题的措施。
+
+原来，即使监房内的温度计已显示为35度，供在囚人士的饮用水仍是热滚水。监狱内酷热无比，监房内的家俬多由不锈钢制成，吸热快散热慢，“台台櫈櫈”都是“烫”的，叫人坐立不安。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23091612/26-15.jpg)
+
+“石墙花”创立人、前立法会议员邵家臻指，希望在一星期或更短的时间内能够收集十万签名，交给惩教署；随后他在晚上表示，发起联署后三小时，已经获得一万人签署。
+
+另据香港天文台公告，本年截至5月19日已录得7日“热夜”，打破1884年有记录以来5月最多热夜纪录。
+
+* * *
+
+据香港电台网站23日报道，香港天文台在当天下午2时30分录得气温为36.1度，是有记录以来5月的最高气温。目前，香港酷热天气警告正在生效。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205738/M5-1.jpg)
+
+校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
+
+
+
+0
