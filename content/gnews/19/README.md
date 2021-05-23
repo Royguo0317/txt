@@ -1,150 +1,130 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 你今天从福奇那里看到的，是全面的信息战和直截了当的谎言
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265761/)
+## 安东尼·福奇和美国国立卫生研究院需要向美国人民提供答案
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265779/)
 
 字幕内容：
 
-Anne Luty:
+Host- Lauren:
 
-安妮·卢蒂：
+主持人-劳伦：
 
-What you saw today from Fauci was full-blown information warfare
+Here was scientist journalist Nicholas Wade wrote about Fauci and others involvement of funding that money to WuHan
 
-你今天从福奇那里得到的是一场全面的信息战。
+以下是科学记者尼古拉斯·韦德(Nicholas Wade)关于福奇和其他人参与向武汉提供资金的报道。
 
-and a straight up lie that’s provable, really,
+“for the first three years of the grant… there was a moratorium on funding gain-of-function research
 
-可以证明就是一个直白的谎言，真的，
+“在赠款…的头三年。暂停了对功能获得性研究的资助。
 
-just by going to the NIH website and their grant database.
+Why didn’t the two agencies therefore halt the Federal funding?….
 
-只要去美国国立卫生研究院（NIH）网站和他们的拨款数据库。
+为什么这两个机构没有因此停止联邦拨款呢？
 
-So what we are talking about here really crossed the issue
+Someone wrote a loophole into the moratorium…
 
-所以我们在这里谈论的事情，真正是和这个问题有关。
+有人在暂停该项目文件中…中写了一个漏洞。
 
-is what alternately became 3.7 million dollars grant
+Dr. Anthony Fauci, or…Dr. Francis Collins,
 
-就是后来变成了370万美元的赠款。
+安东尼·福奇(Anthony Fuci)博士，或…弗朗西斯·柯林斯博士。
 
-that came from Fauci’s NINID
+or maybe both, would have invoked the footnote in order to keep the money flowing…”
 
-这来自福奇的NINID
+或者两者兼而有之，都会引用备注条款，以保持资金流动…。
 
-it was titled understanding the risk of back conora virus emergence
+Senator, this is serious, we got all these people did
 
-它的标题是“了解新型冠状病毒出现的风险”
+参议员，这件事很严重，我们了解了这帮人做的这些
 
-and this was sent primarily to a group as known as eco health alliance,
+We have all these horrible restrictions of Americans life let the normal suffering
 
-这封信主要寄给了一个名为生态健康联盟的组织，
+造成我们美国人要过可怕的限制生活，所有这些让正常的人受苦。
 
-which is, of course, lead by Peter Daszak, who has comprising ties to the Chinese government in his own right
+Don’t we deserve any answer?
 
-当然，这个组织是由彼得·达扎克(Peter Daszak)领导的，而他本身就与中国政府有联系。
+难道我们不应该得到任何答案吗？
 
-and also happened to serve as the World Health organization of Covid-19 investigator
+Senator-Tom Cotton:
 
-还恰好担任了世界卫生组织的新冠肺炎调查员。
+参议员汤姆·科顿：
 
-So in that time period from 2014 to 2021, 30 studies were published under that grant
+We do deserve answer Lauren.
 
-因此，从2014年到2021年那段时间里，在这笔赠款资助下，有30多项研究发表。
+我们理应得到答案，劳伦。
 
-but what’s really interesting in this is where you see what Fauci’s narrative totally crumbling
+Tony Fauci needs to give us an answer
 
-但其中真正有趣的是，你可以看到某些地方福奇的叙述完全瞎说的。
+托尼·福奇需要给我们一个答案。
 
-16 of those studies again funded explicitly by American tax payer dollars,
+Look, he’s wrong about a lots of last year
 
-这些研究中有16项明确由美国纳税人的钱资助的，
+听着，他去年很多事情都错了
 
-list co-authors who come from Chinese Communist Party run scientific organizations
+wrong about masks, wrong about schools,
 
-列出来的共同作者，来自中国共产党管理的科研组织
+戴口罩的错误，学校指引的错误，
 
-and 13 of those cases, again, that’s nearly half of total studies published under the Graph grant
+Now he is wrong about summer camps for kids
 
-全部研究项目中的一半有13个项目，是由Graph资金资助的
+现在他对孩子们夏令营的做法是错误的。
 
-the individuals come from another WuHan Institution of Virology
+But he is also wrong today to say that NIH never directly or even indirectly funded this kind of research
 
-这些人来自武汉另一家病毒学研究所。
+但他今天说国立卫生研究院从未直接或间接资助这类研究的说法也是错误的。
 
-I am talking about rank and file researchers all the way up
+that report mentioned by Nicholas Wade block buster recommend about all of you the audience to read it
 
-我说的是从普通到高级的研究人员
+尼古拉斯·韦德(Nicholas Wade)提到的那篇报道推荐你们所有的观众去读一读。
 
-to the centre of emerging infectious disease director-Shi, Zheng Li
+Tony Fauci and his agencies need provide answers to the American people
 
-到突发传染病中心主任—石正丽
+托尼·福奇和他的代理们需要给美国民众确实的答案
 
-who, of course, as Rand Paul mentioned
+about what rule they had been played in funding research in this laboratory
 
-当然是她，正如兰德·保罗所说
+关于他们在资助这个实验室的研究中扮演了什么角色。
 
-but what was really interesting
+Now perhaps, it wasn’t directly into what alertly resulted in this worldwide pandemic
 
-但真正有趣的是
+现在也许，这并不是直接导致这场世界性大流行的直接原因。
 
-in this is a kind of very lead  that I polled today while looking at these studies
+But why in the first place, would American tax dollars be going to a Chinese Communist lab
 
-我今天在看这些研究时找到了一些线索
+但为什么一开始，美国纳税人的钱就流向中国共产党的实验室呢？
 
-If you look at the diction and think tank as how they describes these grants on the actually studies,
+that was conducting some of the world most dangerous kind of research
 
-如果你看一下措辞和智囊团是如何描述这些拨款给实际做了的研究项目，
+进行了一些世界上最危险的研究。
 
-you will see it that they just described this NINID grants not just is going to Peter Daszak
+in the laboratory that we know that we knew three four years ago have very low sloppy safety practices
 
-你会看到他们刚刚描述的NINID资金不仅仅是给彼得·达萨克
+在我们知道的实验室里，我们三、四年前就知道有安全性很低的操作。
 
-but rather is going to Peter Daszak and Shi, Zheng Li
+It was extremely reckless
 
-而是给彼得·达萨克和石正丽。
+这是极其草率的。
 
-I read a quote from a study that it was titled isolation characterization of a Novo back conora virus
+Tony Fauci maybe a good scientist
 
-我从一项研究中读到一篇文章，题目是“分离鉴定一种新的冠状病毒”。
+托尼·福奇也许是个好科学家。
 
-is close related to the direct progenitor of SARS Conoravirus
+But doesn’t say no much about constitutional self government
 
-与SARS 冠状病毒的直接祖先密切相关。
+但对立宪自治并没有说太多。
 
-And in that study it says NIH provided funding to Peter Daszak and Shi, Zheng Li and grand No…. NINID so long number
+He was disrespectful to the United States Senate today
 
-在那项研究中，它说国家卫生研究院给彼得·达萨克和石正丽提供资金…和资金项目编号。。。。NINID的资金号码很长。
+他今天对美国参议院不够尊敬。
 
-And there are 7 studies where you see NINID money is going directly not just to Peter Daszak but to Shi, Zheng Li
+And appears to disregard the direction of O’Bama White House five or six years ago.
 
-还有7项研究，NINID的钱不仅直接流向了彼得·达萨克，还流向了石正丽。
-
-and some cases they all only described the money is going to Shi
-
-有些情况下，他们都只描述了钱会流向石正丽。
-
-and again another 16 studies that I just mentioned
-
-我刚才提到的另外16项研究。
-
-not only were they funded by NINID, or NIH, of USAID,
-
-他们不仅得到了NINID，或美国国家卫生研究院(NIH)，或美国国际开发署(USAID)的资助
-
-but also they were all simultaneously funded
-
-而且他们都是同一时间获得了资金
-
-by a host Chinese Communist Party controlled scientific organization
-
-由中国共产党控制的科学组织提供的
+似乎也无视五六年前奥巴马白宫的领导。
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-原视频连接: [https://twitter.com/anneluty/status/1392326135212544001?s=21](https://twitter.com/anneluty/status/1392326135212544001?s=21)
+原视频连接: [https://twitter.com/sentomcotton/status/1392468278635810816?s=21](https://twitter.com/sentomcotton/status/1392468278635810816?s=21)
 
 英听校:康州盘古农场-WZ
 

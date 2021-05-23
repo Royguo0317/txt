@@ -1,91 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 哈马斯恐怖组织领导人公开揭秘：伊朗助其攻以色列，包括提供资金和武器
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265544/)
+## 【世事解评】世界卫生大会召开在即，全球响应“让台湾帮忙”运动，帮忙台湾重归WHO
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1265597/)
 
-字幕内容：
+作者：纽约香草山健身部   Jack Li文阳
 
-Hamas political leader–Ismail Haniyeh
 
-哈马斯政治领袖伊斯梅尔·哈尼亚
 
-Today, we are facing this great and overall danger
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
 
-今天，我们正面临着这一巨大而全面的危险
 
-We believe that we, as an Islamic nation, need a strategic and overall plan
 
-我们认为，作为一个伊斯兰国家
+第74届世界卫生大会今年的年度会议将在5月24日至6月1日在日内瓦召开。而今，台湾正面临着疫情暴增的艰难时刻，但台湾的防疫表现仍然领先全球，且台湾也在帮助全世界，向世界提供了大量的医疗防疫物资援助，并分享抗疫经验。同时，台湾也需要世界各国的帮助重归WHO。
 
-我们需要一个战略性和全局性的规划
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22233637/25-6.jpg)图片来源：中央社
 
-to face this danger that threatens our cause and our Jerusalem
+从2009年起至2016年，台湾连续8年受邀以观察员身分参与WHA。随着中共“蓝金黄”在全球的横行，WHO也被中共黑云笼罩。因此，中共通过黑手打压，致使台湾从2017年起，连续5年都未能获邀参与会议，被排斥在WHO的门外。
 
-直面威胁我们事业和我们耶路撒冷的危险
+虽然如此，但台湾驻美经济文化代表处代表萧美琴指出，现在世界各国正在帮助台湾重返WHO，比如法国参议院的決议案，美国国务卿布林肯日前发布声明力挺台湾，以及全球300多名议员响应美国国会议员在社交媒体发动的“让台湾帮忙”（Let Taiwan Help）运动。对此，远在纽约、费城、新泽西和康州的大纽约地区，各台湾侨团社团一致表示支持，将严厉谴责中共的百般阻挠，并呼吁WHO秉持中立，尽快采用合适的制度化方式接纳台湾。5月21日，大纽约地区侨界，包括大纽约区台湾社团联合会、大纽约区台湾同乡会、纽约台湾会馆、纽约台湾商会在内的31个侨界团体联合发表支持台湾参与WHO 的共同宣言。
 
-The essence of this strategy is the resistance project
+同时，西方民主国家也以国家和组织的身份频频为台湾发声，为台湾重回WHO和WHA尽一己之力。G7七国外长5月5日在伦敦发表联合声明，表示支持台湾参与世界卫生组织论坛和世界卫生大会。美国国务院发言人普赖斯也在5月14日表示，美国绝对支持台湾作为观察员出席即将召开的世界卫生大会。5月21日，美卫生部长与台湾卫福部长陈时中视讯会晤，表示力挺台恢复WHA观察员身份。日本和澳大利亚多个驻台单位分别在社交媒体发文挺台。至5 月20日止，包括贝里斯、史瓦帝尼、危地马拉、海地、宏都拉斯、马绍尔、诺鲁、尼加拉瓜、帛琉、圣克里斯多福及尼维斯、圣露西亚、圣文森、吐瓦鲁等友邦已提案，要求邀请台湾以观察员身分参与WHA。
 
-这一战略的实质是抵抗方案
+现今，中共新冠肺炎疫情肆虐全世界，给全世界的医疗卫生系统提出了前所未有的挑战。此时，国际合作对于应对疫情显得越来越至关重要，因此特别需要抗疫成绩远远领先全球的台湾加入。目前，台湾频频与全球各地的公共卫生官员和专家学者交换防疫措施信息，台湾亦透过全球合作训练架构（GCTF）研讨会、亚太经济合作会议（APEC）健康与经济高阶会议等主动推动与国际的合作。疫情期间，台湾向80多个国家与地区捐赠超过5400万个外科口罩以及大量的医疗用品与个人防护设备。由于印度疫情严峻，台湾也捐赠了150台氧气机、500个氧气钢瓶给印度。另外，台湾也与美、日在台定期举办全球合作暨训练架构（GCTF）研讨会，针对公共卫生、环境、防灾等领域进行人才培养的合作交流，以实际行动向世界各国展现出台湾是值得信赖的伙伴。
 
-Complete resistance including the armed, military resistance at the top
+最近台湾疫情升溫，台湾人民也展現出高度自律，共度时艰，奋力抗疫。与此同时，台湾身为国际社会中负责任的一员，还不忘为世界共同抗疫事业尽己之力，并表现出愿向世卫及国际社会作出贡献的强烈意愿，愿意与世界各国一道共同终结疫情。
 
-完全抵抗策略，包括最高层的武装军事抵抗
+参考阅读：
 
-From here, I salute all the components of the nation that  embrace  and support
+[美衛生部長與陳時中視訊 挺台恢復 WHA 觀察員取得疫苗](https://www.pourquoi.tw/2021/05/21/taiwan-20210521-2/)
 
-在这里，我向所有拥护和
+[G7外长呼吁中（共）国履行义务 支持台湾参与世界卫生大会](https://www.bbc.com/zhongwen/simp/world-57005322)
 
-支持我们国家的人致敬
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
 
-The choice of resistance backs it on the ground in Palestine
+编辑/校对/发稿：Irene木木
 
-在巴勒斯坦当地选择支持抵抗
+**更多资讯，更多关注**
 
-Here, I am particularly specifying the Islamic Republic of Iran
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-在这里，我特别提到伊朗伊斯兰共和国
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-Which has not faltered in supporting and funding the resistance financially, militarily and technically
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-在财政、军事和技术上支持和
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-资助抵抗力量的努力没有动摇
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-This is an example of the Republic’s strategy
 
-这是共和国战略的一个例子
 
-that was established by Imam Khomeini, may God have mercy on his soul
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
 
-这是由伊玛目霍梅尼建立的
 
-愿上帝怜悯他的灵魂
 
-He is the one who announced the last Friday of Ramadan as the global day for Jerusalem
-
-他是宣布斋月最后一个星期五
-
-为耶路撒冷全球日的人
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://twitter.com/mikepompeo/status/1392573957904154628?s=21](https://twitter.com/mikepompeo/status/1392573957904154628?s=21)
-
-英听校:康州盘古农场-WZ
-
-翻译: 康州盘古农场-WZ
-
-翻译终校: 康州盘古农场-文白
-
-字幕+视频制作:康州盘古农场-天涯行
-
-审片: 康州盘古农场-银龙
-
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-+2
+0

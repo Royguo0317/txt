@@ -1,31 +1,177 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 马斯克为什么宣布支持加密货币而非纸币？
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1265632/)
+## 观看：福奇说他正在试图雇用中国共产党的官员，研究员们
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265702/)
 
-加拿大多伦多枫叶农场 军迷Wilson
+字幕内容：
 
-现年50岁的埃隆．马斯克，在今年1月成为全世界最富有的人。他在年轻时就看到互联网、再生能源、太空三大领域将深刻影响人类的未来，而且认识到这些领域是相通的。据报道，积累了巨额财富的马斯克，发誓总有一天要飞到火星去，甚至可能要在火星终老，而在火星旅行之前，马斯克需要先实施他筹划已久的火星殖民计划。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23001211/blog.ritelink.com_.ng_.jpg)*图片来源：blog.ritelink.com.ng*
-马斯克的火星殖民计划旨在分散人类灭亡的风险。马斯克要在10年内建造1000艘“星际飞船”，每天发射三艘，每艘飞船一次可以运送100名乘客或者150多吨货物。在 2050年建立一座人口100万的火星城市，粮食将在火星上的太阳能水培农场种植，城市将“自我维持”（维基）。
+Dr. Fauci
 
-这个火星项目需要用很多钱，显然马斯克所有的身家全部用上还是差大钱。而令马斯克胆战心惊的是，用国家主权作信用背书的纸币美元、欧元、日元等，由于布雷顿森林体系解体后几十年的滥发，已经到达信用崩溃的边缘，马斯克当前拥有的财富极有可能被洗劫，在这样的情况下，马斯克挺身而出，宣布支持加密货币而不是被严重注水的纸币，或将对全球范围内的货币重置产生深刻而巨大的影响。
+福奇博士
 
-据《商业内幕》5月22日报道，埃隆·马斯克在本周六的推特上表示“支持加密货币而不是法定货币”后，比特币迎来了一波上涨。马斯克认为，当今的主权货币美元、欧元、日元都没有以黄金等各种实物商品作为锚定物。言下之意就是政府违背了货币必须信用恒定的原则，一直无锚滥印货币，以弥补其治理失败和天灾人祸造成的财政亏空，严重稀释了这些纸币的信用。
+On a number things that we should be doing
 
-货币学家普遍认为，超出真实财富增量的货币发行和高税收，必然推高通胀，而货币超发本身就是一种高税收，这就是铸币税，它被几乎所有的政府极力掩盖。马斯克因此对同时具备“安全、无法伪造、固定数额”的加密货币“非常痴迷”。事实上，雄心勃勃的马斯克引领的企业处于扩张期，负债额不会是小数目，他能够把非投资性的现金即闲置资金用于保值性投资的金额十分有限（相对其财富），那么马斯克为什么如此卖力地推动加密货币呢？
+在一些我们应该做的事情上
 
-我们都知道，通胀失控对工商业的打击是致命的，而每一次恶性通胀都和政府的财政赤字失控和货币超发有关。美、欧、日、中等主要经济体即使在CCP疫情爆发前，其负债率和市场上的纸币存量均已超过安全警戒线，聪明的马斯克当然知道，和马斯克的商业王国息息相关的所有企业和用户，如果继续使用这些国家的货币作为流通、支付和价值储藏工具，当恶性通胀的多米诺骨牌纷纷倒下时，所面临的巨大风险。
+Steve Clemons
 
-两千多年以来，人类曾经普遍使用金、银、铜等贵金属作为货币，每当中外的开明统治者将铸币权下放给民间铸币厂时，无一不出现良币驱逐劣币的局面，伴随而来的是王朝的长盛不衰。由此不难看出，马斯克是在呼唤更多象喜币一样的良币，取代隐藏危机的各种纸币进入全流通领域，以分散化解正在逼近的通胀失控风险。
+史蒂夫·克莱蒙斯
 
-喜币不需要主权国家的信用背书，只需要公平开明的竞争环境，以先进加密技术、可追踪、锚定黄金、无界流通、保值增值来获得普遍接受性。可以预见，当喜币这样的良币大行其道时，各种劣币就会失去生存空间退出流通领域，马斯克就可以高枕无忧了。往大一点说，人类社会的文明演变特别是经济领域的生态优化必将因此发生质的提升。
+Are the Chinese doing more?
 
-[参考链接](https://www.businessinsider.com/elon-musk-announces-his-support-for-crypto-over-fiat-money-2021-5)
+中国人做得更多吗
 
-* * *
+Dr. Fauci
 
-编辑 发稿： 云起时
+福奇博士
 
-+3
+you know it’s very interesting that you should mention
+
+你知道你应该提到这很有趣
+
+I was just about a half an hour before I came here
+
+就在我来这里大约半小时前
+
+They weren’t serving margaritas there though
+
+他们虽然在那里不提供玛格丽塔酒
+
+To the sentence…
+
+到这句话…
+
+Steve Clemons
+
+史蒂夫·克莱蒙斯
+
+Or was the room that’s full
+
+房间是那么满吗？
+
+Dr. Fauci
+
+福奇博士
+
+No it wasn’t very stay
+
+不，不满，
+
+We had a Visit that was at the center for strategic and International studies right on Rhode Island Ave
+
+我们访问了在罗德岛大道（Rhode Island Ave）的战略和国际研究中心
+
+we had a visit from the Vice Premier of China,
+
+我们有中共国副总理的来访
+
+the Director of the Chinese CDC,
+
+中国疾病预防控制中心主任
+
+and the President of the Center for Advanced Medical Science in China,
+
+以及中共国的先进医学科学中心主席
+
+and they met with myself and a few others Secretary Price,
+
+他们会见了我自己和其他一些人，前卫生与公众服务部长汤姆-普莱斯
+
+talking about just your question,
+
+谈论了就你刚刚的问题
+
+Steve Clemons
+
+史蒂夫·克莱蒙斯
+
+how did you fly fly？
+
+你是如果夸夸其谈的？
+
+Dr. Fauci
+
+福奇博士
+
+Wait, the question is yes
+
+等一下，问题是是的
+
+Is that if you look at investment in science
+
+那是如果你看和在科学上的投资
+
+If you look at an investment in science
+
+如果你看一看对科学的投资
+
+the Chinese are increasing their investment in biomedical research by something like 26% this year
+
+今年中共在生物医学研究方面的投资增加了约26％
+
+and take a look at what we’re doing
+
+再看看我们在做什么
+
+we’re cutting it by a percent
+
+我们削减了一个百分点
+
+so if you do the bar graph
+
+所以如果你做条形图
+
+you will see a bargain
+
+你将看到一个差距
+
+Steve Clemons
+
+史蒂夫·克莱蒙斯
+
+Other tweetable moment right there
+
+那里还有可发推的时刻
+
+I guess it means the truth they are investing very very heavily in biomedical research
+
+我猜这意味着他们在生物医学研究上投入了大量的事实
+
+Steve Clemons
+
+史蒂夫·克莱蒙斯
+
+They are  thinking of hiring you
+
+他们在考虑雇用你？
+
+Dr. Fauci
+
+福奇博士
+
+I’m trying to hire them
+
+我正试图雇用他们
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 https://twitter.com/nataliegwinters/status/1392859143334100995?s=24
+
+英听校：    康州盘古农场 – Layka
+
+翻译：       康州盘古农场 – Layka
+
+翻译终校：康州盘古农场 – Mike Li
+
+字幕+视频制作：康州盘古农场-青梅煮酒
+
+审片：康州盘古农场-银龙
+
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0
