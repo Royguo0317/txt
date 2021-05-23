@@ -1,31 +1,465 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共内部的政治斗争 已经到了水火不容的境地
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1265481/)
+## 医学博士Peter McCullough和Tucker Carlson讨论了为什么新冠康复患者、孕妇和其他人被排除在新冠肺炎疫苗临床试验之外
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265497/)
 
-**撰稿：文章**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22222723/32-5.jpg)
-最近这两天，中共国内相继出现了深圳的“楼震”、“桥震”，粮食价格出现了“粮震”，金融系统出现了“银行震”、虚拟币市场出现了“币震”，**这一切都预示着中共国内人心不稳、政权危机四伏**。
+字幕内容：
 
-中共的内斗，现在已经不仅仅局限在刘鹤、曾庆红、王岐山等这些政治前台人物层次，军队内部斗争更加激烈。郭文贵先生在5月22日的盖特视频中说：“中共的军方从来没像今天这样，一个人说了算——就是许其亮。”许其亮的下面就是空军，空军统治着全中国的军队，那么海军会怎么想、怎么做？空军会怎么想、怎么做？其他部队呢？
+Tucker:
 
-**今天的中共，军队已经开始进入到残酷的斗争之中**。军队内部的斗争涉及到军费分配、贪污军费、大额的军费订单，当然也要涉及到枪把子指挥权的问题。郭先生说，中国军队从来没想着去打别人，主要是以灭自己人优先；中国人不打中国人，中国人只杀中国人。
+塔克：
 
-**中共现在面临的外部环境，也发生了翻天覆地的变化**。欧洲议会高票通过了冻结欧中投资协议，日中货币互换协议已然被灭，印中 “和平走廊”彻底歇菜，巴中伙伴关系再也“不铁”，俄罗斯见招拆招，拿钱与中共打太极。
+Think that’s interesting who work in the hospital wouldn’t want vaccine
 
-不但如此，现在党内看不惯习近平的人也出来挑拨离间。习大神这几年最大的外交功劳就是中东，现在党内很多人不想让他搞好，就把中东这关系也彻底搞砸了。“过一段时间，中共所谓在中东最铁的哥们都变成敌人了，走着看，记住我今天说的话。”郭文贵先生说。
+我觉得这很有趣，在医院工作的人不会想要接种疫苗
 
-**中共走到今天的如此局面，离不开世界上勇敢的、正义的人士的背后推动**；离不开爆料革命的宣传和揭露；离不开香港圣城那些勇敢的孩子们不屈的反抗精神；离不开我们的天使——闫丽梦科学家，告诉了世界病毒的真相；离不开新中国联邦、路德访谈、博士军团和所有全球所有喜马拉雅的农场，在面对着这个凶恶的共产党对人类的残杀和毒害，只有他们敢讲真话。
+These are people who work on a good year plan
 
-“你看看这个周围的人，你去问问在四年前有多少人恨共产党？有多少人了解共产党？现在有多少人要消灭共产党，这叫人心啊！”郭文贵先生说，“**现在每天每时每刻，以毒灭共这个效率和全世界的影响力，真的是像被点燃的干柴一样在全世界燃烧，没有人可以阻止以毒灭共**，因为那个毒就是共产党放的！”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22222659/34-18.jpg)
-昨天，福克斯新闻著名主持人Tucker采访了闫丽梦科学家，其中说到了会给闫科学家一个美国总统勋章。但是郭文贵先生说，闫不会在乎这个勋章的。因为她认为最重要的就是让世界知道真相，减少灭亡；她是有上天的使命的，如果她在乎任何荣誉、任何虚荣，她就会被击垮。
+这些人都有很好的年度保险
 
-“科学家应该得到荣誉，绝对不是个总统勋章，等到冠状病毒真相大白之日，也不仅是诺贝尔奖，这都是不配她的，会有更大的奖励等待着她。那时候全世界人民真正的看到了**一个天使来到人间，勇敢的、具有不可思议的毅力，还有她这种把天下苍生的生命摆在她生命之上，这才是真正的我们的科学家天使**，而不是那些虚伪、虚荣的浮华。”郭文贵先生说。
+I means these are people who work around the medicine
 
-**来源**：[https://gtv.org/getter/60a91d6693cb4b1e6f9bd7f0](https://gtv.org/getter/60a91d6693cb4b1e6f9bd7f0)
+我是说，这些人都是在医药行业工作的人
 
-***校对发布**：文顾*
+that’s they do for a living
 
-+2
+这是他们的谋生之道
+
+They are around medicine, also around COVID, they much higher chance of getting
+
+他们都在医药界，也在COVID环境中工作，他们因在医院工作而感染的
+
+infected with work in the hospital
+
+几率要高得多
+
+McCullough,
+
+麦卡洛
+
+Listen,
+
+听着
+
+Tucker:
+
+塔克：
+
+But they still don’t want it
+
+但他们还是不想要
+
+McCullough：
+
+麦卡洛：
+
+They know the clinical trials, this is very important
+
+他们知道临床试验，这是非常重要的
+
+Because we participated in the clinic trials
+
+因为我们参加了临床试验。
+
+The FDA, Pfzer, Moderna, JJ, AstraZeneca, strictly exclude, strictly exclude
+
+FDA、辉瑞、摩德纳、强生、阿斯利康、严格排除，严格排除
+
+COVID recovered, suspected COVID recovered
+
+新冠康复者，疑似新冠康复者
+
+Those who had anti-bodies, pregnant women,
+
+那些有抗体的人，孕妇，
+
+women of childhood bearing potential who couldn’t sure contraception
+
+那些需要生育不能采取避孕的妇女
+
+That’s a huge group of exclusions, that’s a giant part of the healthcare work force
+
+这可是一大群人，在医疗保健工作队伍中占很大一部分
+
+So of course, they look for it
+
+所以，当然，他们会寻找
+
+Tucker
+
+塔克
+
+This is a giant chunk of Americas
+
+这可是一大群美国人
+
+McCullough:
+
+麦卡洛:
+
+So, Tucker, if they were eligible for a randomized trials,
+
+所以，塔克，如果他们有资格参加随机试验
+
+And say, you know what?
+
+你知道吗？
+
+the FDA in sponsors thought
+
+美国食品药品监督管理局在提案中认为
+
+may be it was a problem of the safety or they have no chance of benefit
+
+这可能是安全问题，也可能是他们没有机会受益。
+
+only a small chance of these safety events exclude them
+
+在安全问题上，只有很小的可能性
+
+Why would they elect to go into investigation program now?
+
+为什么他们现在要选择进入调查程序呢？
+
+Tucker:
+
+塔克:
+
+So I don’t think most Americans are even aware of that
+
+所以我认为大多数美国人甚至没有意识到这一点
+
+I meaning the fact pregnant women were excluded from the safety trials,
+
+我的意思是孕妇被排除在安全试验之外
+
+I think it’s fairly aware they known?
+
+我想他们很清楚地知道这些吗？
+
+I think, it’s last known that COVID recovered
+
+我想，我们最后知道他们是新冠康复者
+
+and that I don’t know how many tens of millions Americans fallen into  that category
+
+我不知道有多少数千万美国人属于这一类
+
+but certainly, tens of millions have Covid whether they knew or not recovered from it
+
+但可以肯定的是，数以千万计的人得了新冠，不管他们知道还是不知道已经康复
+
+They were excluded from the trials
+
+他们被排除在试验之外
+
+Why, what grounds?
+
+为什么，什么理由？
+
+McCullough：
+
+麦卡洛：
+
+Well, very good grounds
+
+嗯，非常好的理由
+
+COVD recovered patients
+
+新冠康复者
+
+so far are wrecking a terrific track records of freedom from re–infection
+
+到目前为止，他们打破了免于再次感染的良好记录
+
+It’s nearly ear tight
+
+就像耳朵疼症状一样
+
+SARAS COVID 1 is 80% molecules to SARS Covid 2
+
+非典1与非典2的分子结构有80%相同
+
+SARAS COVID 1and 2 are 80% the same
+
+非典1和2的同源性为80%
+
+The first SARS Pandemic, people had durable and completely immunity
+
+第一次非典大流行，人们有了持久的完全免疫力
+
+17 years so far, you don’t get a twice
+
+到目前为止已经17年了，你不会再次感染
+
+We’ve had a 111 million people in the world who have gotten this infection
+
+世界上已经有1.11亿人感染了这种病毒
+
+if there is a chance for double and triple infection in the same person
+
+如果同一个人有双重或三重感染的机会
+
+we would have seen it by the millions, millions
+
+我们可能已经看了好几百万，好几千万了
+
+if you look into the literature, maybe you can find a hundred cases were someone says:
+
+如果你查一下文献，也许你会发现有上百个病例是有人说的：
+
+“I think they got re-infected
+
+“我想他们是被再次感染了。”
+
+We look at almost always it’s a misinterpretation of one of these PCR tests
+
+我们几乎总是认为这是对其中一种PCR检测的误解
+
+which is commonly false part
+
+这通常是错误的部分。
+
+Tucker:
+
+塔克：
+
+Yes
+
+是。
+
+McCullough:
+
+麦卡洛：
+
+then someone is sick over here, most recent one from France obviously was a misinterpretation
+
+那么这里有人生病了，最近从法国来的病例显然是个误会
+
+One of the false narratives out there issue can get the infection twice.
+
+其中一个虚假的叙述可能会引起两次感染
+
+It’s a false narrative in the FDA
+
+美国食品和药物管理局的说法是错误的
+
+Tucker:
+
+塔克：
+
+Why are they, why would people say that?
+
+为什么他们，为什么人们会这么说？
+
+McCullough:
+
+麦卡洛：
+
+FDA is responsible knew that
+
+FDA应负有责任知道这一点
+
+Of course they excluded record of recovered patients,
+
+当然，他们排除了康复病人的记录
+
+They know you can’t get it again
+
+他们知道你再也得不到了
+
+They’re not going to have in a clinical trial
+
+他们不会在临床试验中
+
+And have a clinical trial goes to the NO
+
+并进行临床试验显示 否
+
+They knew that
+
+他们知道这一点
+
+But when they came out, I think in the air of caution, this is innocent explanation, the air of caution
+
+但是当结果出来的时候，我想在谨慎的气氛中，这是无辜的解释，谨慎的气氛。
+
+They say that, you know what, we’ll make it available to everybody
+
+他们说，你知道吗，我们会把它提供给所有人
+
+For quickly making available to everybody
+
+快速提供给每个人
+
+SARS become a coercive thing
+
+非典成为一种强制性的东西
+
+So now people said so that I am a COVID recoverer and I am pregnant
+
+所以现在人们都这么说我是COVID康复者，而且我怀孕了
+
+I was even not tested, the study is the safe
+
+我甚至没有做过测试，研究结果是安全的
+
+Every pregnant woman, the only thing we allow is the inactivated flu shot
+
+每一个孕妇，我们唯一允许的就是灭活流感疫苗
+
+And the tightness theory for touches which is inactive
+
+并且有严格的理论规定使用灭活疫苗
+
+We never let anything pathogenic into a woman’s body whose pregnant, never
+
+我们不会让任何病原性的东西进入怀孕的女人体内，永远不会
+
+We can vaccine, all the forms that vaccine produced viral Spike protein
+
+我们可以接种疫苗，所有产生有毒的刺突蛋白（S蛋白）
+
+They produce one type by the way the Wuhan had original type
+
+他们是按照武汉病毒早期序列生产的一种疫苗
+
+which by the way is long gone in Uinted States
+
+顺便说一句，早期序列病毒在美国早已不复存在
+
+We’ve got 14 strings right now
+
+我们现在有14种序列的病毒
+
+Wuhan original is one of them
+
+武汉病毒早期序列只是原型之一
+
+But you produce that a high quantity in the body that is directly pathogenic
+
+但你会在体内产生大量直接带有病毒的物质
+
+It causes blood clots, it damages the blood vessels, causes fever.
+
+它会导致血液凝块，损伤血管，引起发烧
+
+So we are actually having women’s body produce pathogenic, a pathogenic protein for a few days
+
+所以我们实际上是让女性的身体在几天内产生病原性的，一种病原性的蛋白质
+
+Tucker:
+
+塔克：
+
+We don’t need to take any other vaccine
+
+我们不需要接种任何其他疫苗
+
+McCullough:
+
+麦卡洛：
+
+Never
+
+不需要。
+
+Tucker:
+
+塔克：
+
+We try to not using F word on TV now
+
+我们现在尽量在电视上转播中不爆粗口
+
+But I’m getting upset hearing this now
+
+但是我现在听到这个让我很不高兴
+
+What, eh, why would we do that?
+
+什么，呃，我们为什么要这么做？
+
+McCullough:
+
+麦卡洛：
+
+I’m not a public health official, I am a doctor, I don’t think like public health officials
+
+我不是公共卫生官员，我是医生，我不像公共卫生官员那样思考
+
+It appears to be out of a year,
+
+病毒袭击我们已经一年多了
+
+we have a year of this difficult time here in America
+
+在美国这一年的困难时期能
+
+try to make a new product through America innovation available to everybody
+
+努力通过美国的创新让每个人都能获得一种新产品
+
+and there was an idea of
+
+一种想法
+
+we’ll make it available and then try to weigh benefit risk later on under the investigation of
+
+我们将提供它，使用一个阶段后，然后再尝试
+
+use a way period
+
+权衡收益风险
+
+as a doctor I can tell you I am not recommending a pregnant woman getting a vaccine
+
+作为一名医生，我可以告诉你，我不建议孕妇接种新冠疫苗
+
+I’m not recommending any ex-including groups from the trials get a vaccine
+
+我不建议任何测试群体-接种疫苗
+
+We’ve no information on safety
+
+我们没有关于安全的信息
+
+We’ve no information on efficiency
+
+我们没有有效的信息
+
+It violates simple medical practice principle
+
+这违反了简单的医疗实践原则
+
+We don’t use things we don’t have a single benefit or acceptable safety
+
+我们不使用我们没有任何好处或可接受的安全性的东西
+
+We don’t do it
+
+我们不会这么做的
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频连接: [https://twitter.com/purelotusheart1/status/1391251996267761669?s=21](https://twitter.com/purelotusheart1/status/1391251996267761669?s=21)
+
+英听校:康州盘古农场-WZ
+
+翻译: 康州盘古农场-WZ
+
+翻译终校: 康州盘古农场-Mike Li
+
+字幕+视频制作:康州盘古农场-天涯行
+
+审片: 康州盘古农场-银龙
+
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
++1

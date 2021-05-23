@@ -1,27 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月22日 文贵先生盖特：中共已腹背受敌，将分崩离析
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1265452/)
+## 【信仰之声】以巴冲突中的犹太人
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1265353/)
 
-**撰写：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22222030/33-6.jpg)
-郭先生说，闫丽梦博士接受福克斯收视率最高的塔克的采访，再次震撼了世界。
+作者：纽约香草山福音部 Jinglechenge
 
-昨天的访问中，塔克曾提议，要给与闫博士美国最高的平民荣誉——总统勋章。但郭先生说，闫博士的勇气和持续战斗的毅力，是不屑于任何外在形式的嘉奖的，她的背后有许多世界沼泽地中，具有正义感和使命感的“战友”的帮助。而她对人类做出的贡献，是带着上天的使命的，她不会被任何虚荣所牵绊，而她所应被赋予的肯定应远超于所有已经被操纵的名誉，她值得更高的荣誉和爱戴。
 
-郭先生调侃了这几天在国内的各种“震动”，深圳的楼震、青海的桥震还有因为袁隆平逝世后即将开始的粮震，以及中共经济即将崩塌前必然发生的银行金融震，还有集合举国之力打击数字货币的币震，这些“震“的背后，不仅是上天的惩罚，更是透露出一个信号：中共内部的政治斗争已经到了水火不容的地步了。那些站在政坛前线的所谓刘鹤、王岐山、曾庆红并没有深刻揭露其实质，更应警惕的是”军方“。中共的军方从未像今天这样，一个人一言九鼎，这个人就是”许其亮“，许其亮背后的空军统领着全中共的军队。这就是今天，中共的军队开始了残酷的斗争。军队的斗争涉及到贪污军费、大额订单，还涉及到枪把子指挥谁的问题。中共的军队不是以攻击外来势力为己任，而是将内部残杀作为首要任务。
 
-郭先生进一步提到中欧投资协定被冻结后，中日之间的货币互换等协议也熄火了。印度和中共搞的“和平走廊“也搁置了。中巴关系也不铁了。而中共一直吹嘘坚实无比的中俄关系也十分微妙，俄罗斯见招还招，见招拆招，一切以”利益“为先。中共在中东的布局已经开始崩溃，原因就是党内很多人要打破一尊在任期间在中东的规划和布局，刻意破坏。郭先生还小小爆料：过一段时间，中东最铁的朋友也将与一尊反目。这是致命打击。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
-郭先生楼上新来的邻居的身份十分神秘，他只透露中共几个核心家族的家人都已经安排逃离中共，目的地除了美欧，就是日本。原因就是内部一致认同，整个中共即将发生巨震，中共的命运岌岌可危了。昨天郭先生在船上会见的朋友也说中共的时日不多了，而郭先生则纠正他的说法，是中共要彻底完蛋了，因为现在对他们恨之入骨，发誓要消灭中共的人数不胜数。
 
-郭先生说，从香港逃出来到了世界各地的手足流露出前所未有的痛苦，他们看到西方世界的文明，对比现在香港岛内发生的一切中共主导的荒唐行径，他们的痛苦是无法言说的，香港永远是我们的圣城，香港那些不放弃抗争的人民永远是我们的英雄。处于煎熬的香港、陷入恐惧的台湾、饱受威胁无法回国的海外华人以及遭受中共种种恶行而失去财富、失去自由、失去生命的人，他们的敌人只有一个：共产党。
 
-现在每天每时每刻，“以毒灭共“的效率就像点燃的干柴一样，在全世界燃烧，没有人能让这一切停止，可悲的是全世界只有新中国联邦人面对恶魔敢于呐喊真相和接受挑战。
+2021年5月21日，在“败灯”政权的施压下，以色列决定不再反击哈马斯，以期挽回7.35亿美元的军购——之前Sanders、AOC等民主党议员已在美国国会提案冻结这批包括拦截弹在内的军用购买。而今，虽然以色列的冲突停火了，但犹太人在世界范围内受到的迫害却越演越烈。仅在美国，很多地方都发生了Hamas的支持者袭击犹太人的事件。在纽约，甚至戴犹太帽的人都会受到攻击，比如：
 
-郭先生呼吁各个农场一定要找出最有水平的高素质直播人才，将“以毒灭共、以钱灭共“的战略践行到底，让世界越来越多人通过我们的G系列平台，认清中共的丑恶和罪行，他们是全世界人民的共同威胁。
+2021年5月12日，纽约的一位佩戴大卫之星的犹太人被一个亲巴勒斯坦的暴民袭击。这位犹太人一直被追赶，被扔玻璃和碎石，满身鲜血，并且被满口污言秽语地咒骂。5月15日在加拿大，一位亲巴勒斯坦的暴民袭击了犹太人，向犹太人民扔玻璃和碎石，还骚扰了一名犹太女孩。同日在洛杉矶，Antifa与一对支持以色列的游行者发生冲突，他们还试图在加州高速公路上围攻巡逻车。也是同一日在纽约，Antifa在Brooklyn与一群以色列支持者发生冲突。
 
-***校对发布**：文顾*
+5月16日，Instagram上有四千二百万追随者的巴勒斯坦人、超模Bella Hadid去Brooklyn参加支持Hamas的游行前，公然号召将犹太人赶进大海，且在随后的游行中，他们与支持以色列的犹太游行队伍发生了冲突。当天Antifa也在西雅图举着旗帜出现在了支持Hamas的游行集会中，他们高唱Antifa万岁，又从支持以色列的游行队伍中偷了一面以色列国旗，将国旗先踩后烧，付之一炬，他们还骚扰了拍摄这段视频的记者。还在同一日，一群伦敦的Hamas支持者特地驱车到犹太社区，高呼侮辱犹太母亲、妻子、女儿的秽语，场面令人震惊。同样的事情也于同一日发生在英国的另一个城市曼彻斯特。那一天在多伦多，一群犹太人被一群身穿Hamas标志的抗议者袭击，其中一位十几岁的少女遭到性骚扰。
 
-+2
+5月18日，CCP也对以色列踩上了一脚，在其官方媒体CCTV的海外频道CGTN上公然反以色列，而设在CCP国的以色列大使馆则是谴责了CCP的所作所为。其后的5月20日，黑命贵组织发出声明，表示坚定和Hamas恐怖分子站在一起，并誓言和Hamas一起对抗以色列，而黑命贵在过去的12个月内一直参与在美国的打砸抢烧——真是物以类聚、人以群分，一个半斤、一个八两。同日在纽约，一位29岁的犹太人会计师本来要去参加支持以色列的集会，途中经过曼哈顿中城的大街时，被支持Hamas的一群暴徒暴打，全身包括脸部都是伤痕。
+
+![德报刊登犹太帽图样吁读者剪下佩戴对抗仇恨风气]()![德报刊登犹太帽图样吁读者剪下佩戴对抗仇恨风气](https://media.bastillepost.com/wp-content/uploads/hongkong/2019/05/190528_CH_%E7%8C%B6%E5%A4%AA%E6%97%8F.jpg)图源网络
+
+当今，反犹言论甚至暴力正在美国兴起，这应该引起所有美国人的高度关注。由一小撮人和媒体操纵的关于以色列的一个又一个的谎言是非常危险的，应该停止。试想想，如果这些事的施暴人与受害人调个位置，那会怎么样？美国的社会舆论和所谓的主流媒体早就炒翻了，一定大书特书！而现在，他们几乎都闭上了嘴巴。
+
+但更可气的是，“败灯”竟然宣布，美国将帮助Hamas重建加沙，即美国掏钱资助。笔者不禁想问，凭什么恐怖分子基地被炸，最后却要用美国纳税人的钱重建？倘若像当年奥巴马一样，卸任前几小时还给哈马斯拨款2.21亿美元，那伟大的美国迟早会被毁在这帮人手里！
+
+要知道在以色列国，整个暴乱期间阿拉伯暴徒总共烧毁了10座犹太会堂、112座犹太住家、849辆犹太人车，他们还抢劫了386家犹太人、砸烂了673辆犹太人车，记录在案的向犹太人仍石头的就有5,018起。
+
+想必亚伯拉罕作梦也没有想到，自己的子孙要在战火中求生存，但神早就知道，并预言了以实玛利的后代阿拉伯人的好战：
+
+“他为人必像野驴。他的手要攻打人，人的手也要攻打他。”(创世记16:12 )
+
+今天（2021年5月22日），闻名于世的纽约市长Rudy Giuliani发推质问，为什么在全国乃至全球范围内，巴勒斯坦人及其支持者对犹太人的暴力袭击全被民主党和80％的媒体所忽视？昨天，他儿子Andrew Giuliani发推号召大家与以色列站在一齐：
+
+We MUST Stand with Israel,
+
+We MUST Support our Jewish Brothers and Sisters!
+
+Let this bring us Together!
+
+是的，我们必须与以色列站在一齐，参与到这场正邪大战中。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+1. [Israel condemns Bella Hadid for ‘advocating throwing Jews into the sea’ after she shared ‘anti-Semitic’ post to her 42m Instagram followers before taking part in pro-Palestine march in Brooklyn](https://www.dailymail.co.uk/news/article-9586515/State-Israel-condemns-Bella-Hadid-advocating-throwing-Jews-sea.html)
+2. [‘F\*ck the Jews’, ‘F\*ck their daughters, mothers’: Viral video from London shows pro-Palestine protesters advocating rape of Jewish women](https://www.opindia.com/2021/05/london-finchley-road-pro-palestine-protesters-advocate-raping-jewish-women/)
+3. [Warroom, EP 951](https://pandemic.warroom.org)
+4. [Israel accuses Chinese state TV of ‘blatant anti-Semitism’](https://www.foxnews.com/world/israel-accuses-chinese-state-tv-of-blatant-anti-semitism)
+5. [Black Lives Matter must rescind anti-Israel declaration](https://www.foxnews.com/opinion/black-lives-matter-must-rescind-anti-israel-declaration)
+6. [EXCLUSIVE: ‘My face was on fire.’ Kippa-wearing Jewish man, 29, tells how he was maced, kicked and pummeled by mob of pro-Palestinian men who shouted ‘go back to Israel, Hamas is going to kill you’ as suspect is charged with hate crimes](https://www.dailymail.co.uk/news/article-9606203/Jewish-man-tells-knocked-ground-group-pro-Palestinian-men-Times-Square.html)
+7. [The Jews vs. The World](https://freebeacon.com/culture/the-jews-vs-the-world/)
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+
+
+0

@@ -1,39 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共用拙劣的视频攻击劳伦斯· 塞林博士
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265345/)
+## 立陶宛退出中共在东欧的“17+1”集团
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1265431/)
 
-翻译：康州盘古农场 – 柯镇恶
+俄罗斯莫斯科喀秋莎农场   银河
 
-校对：康州盘古农场 – Mike Li
+编辑上传   水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22220147/L-4.jpg)msn.com
+《政客》5月21日报道，波罗的海国家立陶宛外交部长对表示，立陶宛已退出中共的“17+1”集团，并敦促其他欧盟国家效仿。
 
-编辑：康州盘古农场 – 心照
+“再也没有17+1这回事了，立陶宛实际上已经被排除在外了。”加布里埃尔·兰茨贝里吉斯(Gabrielius Landsbergis)在一封电子邮件中说。他指的是北京在10年前提出的与中欧和东欧国家接触的倡议，这些国家大多来自前苏联集团。
 
-发布：康州盘古农场 – 彩虹 Rainbow
+立陶宛外交部长加布里埃尔·兰茨贝里吉斯呼吁其他欧盟国家也放弃这一倡议，并表示，“从我们的角度来看，欧盟是时候从分裂的17+1模式转向更加团结、效率更高的27+1模式了。”“当所有27个成员国与欧盟机构一起行动时，欧盟才是最强大的。”
 
-**据《the gateway pundit》作者：Joe Hoft 2021年5月19日报道**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22211901/luisss.jpg)
-我们一定是击中目标了，因为中共开始攻击劳伦斯·塞林博士（Lawrence Sellin, Ph.D.）。
-由于塞林上校的报告，证明了中共军方与新冠病毒(COVID-19)起源的关系，中共制作了一个视频来攻击他。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22214141/wb.jpg)
-为什么呢？因为中共害怕真相，怕得要死。
+他补充道，“接种疫苗、应对疫情只是欧盟27国团结一致、实现目标的几个最近的例子。27个成员国的团结是欧盟与外部伙伴关系成功的关键。与中共的关系也不例外。”
 
-塞林博士提供了广泛的证据，证明COVID-19病毒是作为解放军生物战计划的一部分，在实验室制造出来的。（参考报道：是的，COVID-19是中国共产党发动的一场生物袭击——劳伦斯·塞林博士）
+中共驻欧盟使团发言人表示，中共“不知道”立陶宛的举动，称，“中共-中东欧国家合作机制是由中共国和中东欧国家共同发起的跨区域合作机制。”这符合各方共谋发展的愿望。
 
-他进一步证明，中共和中共军方已经深度渗透进美国的病毒研究计划，从而将价值数十亿的美国纳税人的知识、技术和资金流入中共的（包括被解放军掌管的）病毒研究计划中。（参考报道：中共军事武器COVID-19完全是在中共军方的命令和控制下制造的）
+立陶宛的举动是中共和欧盟关系日益不稳定的最新迹象。
 
-中共无法反驳这些证据，所以它试图让揭发者失信。
-以下就是中共攻击 劳伦斯·塞林上校和闫丽梦博士 的视频：
+5月20日，欧洲议会(European Parliament)以压倒性多数投票决定冻结批准欧盟(EU)与中共国的投资协定的立法程序，除非北京方面解除对欧盟议员的制裁。此前，27个欧盟国家因新疆维吾尔族少数民族种族灭绝和人权问题制裁中共，而中共对这些欧盟官员也实施了制裁。
 
+中方将两国关系恶化归咎于欧盟。中共外交部发言人5月21日表示，欧盟应“少感情用事，多理性思考”，“它应该根据自身利益做出正确的决定。”
 
+参考链接：
 
-但是 劳伦斯·塞林不会停止。他会一直战斗，直到因中共释放病毒所造成的死亡和痛苦被追究责任。
-
-原文链接：[https://www.thegatewaypundit.com/2021/05/breaking-exclusive-china-releases-video-targeting-tgp-contributor-lawrence-sellin-phd-due-work-uncovering-role-chinas-military-covid-19-crisis-video/](https://www.thegatewaypundit.com/2021/05/breaking-exclusive-china-releases-video-targeting-tgp-contributor-lawrence-sellin-phd-due-work-uncovering-role-chinas-military-covid-19-crisis-video/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[https://www.politico.eu/article/lithuania-pulls-out-china-17-1-bloc-eastern-central-europe-foreign-minister-gabrielius-landsbergis/](https://www.politico.eu/article/lithuania-pulls-out-china-17-1-bloc-eastern-central-europe-foreign-minister-gabrielius-landsbergis/)
 
 +1

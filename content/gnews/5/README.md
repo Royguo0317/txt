@@ -1,53 +1,145 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】立陶宛宣布退出17+1合作组织
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1265665/)
+## 安东尼·福奇和美国国立卫生研究院需要向美国人民提供答案
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265779/)
 
-**作者**：香草山美食部 蓝天大海
+字幕内容：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
+Host- Lauren:
 
+主持人-劳伦：
 
+Here was scientist journalist Nicholas Wade wrote about Fauci and others involvement of funding that money to WuHan
 
+以下是科学记者尼古拉斯·韦德(Nicholas Wade)关于福奇和其他人参与向武汉提供资金的报道。
 
+“for the first three years of the grant… there was a moratorium on funding gain-of-function research
 
-据法新社5月23日报道，立陶宛外长兰斯伯格斯本周六正式宣布，立陶宛今后将不再出席17+1峰会，他同时呼吁其他成员国跟进。立陶宛的这一决定或许会产生连锁反应。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23004221/image0-4-5.jpg)图片来源：维基百科
-17+1合作组织成立于2012年，它是一个中共国与中东欧国家之间的合作组织。这个组织设有一个成员国领导人定期会晤的机制，每年举行一次会议。该组织成立初期，是16+1，后来希腊加入，变成17+1。
+“在赠款…的头三年。暂停了对功能获得性研究的资助。
 
-在今年二月举行的17+1峰会上，尽管中共国非常重视，将原计划由总理主持峰会，改由习近平主持，但由于立陶宛等六国降低了出席会议人员的层级，结果令中共国失望。
+Why didn’t the two agencies therefore halt the Federal funding?….
 
-本周四，立陶宛国家议会通过一项决议，认定北京对新疆维吾尔穆斯林犯下“种族灭绝”和“人类大屠杀”罪。它呼吁联合国出面组织人员前往新疆调查，还要求欧盟因此修正与北京的关系。
+为什么这两个机构没有因此停止联邦拨款呢？
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23004602/image0-11-1.jpg)
+Someone wrote a loophole into the moratorium…
 
-除此之外，立陶宛最近还否决了中共国对立陶宛的部分投资，以及决定在台湾开设商业办事处。这令中共非常气愤。
+有人在暂停该项目文件中…中写了一个漏洞。
 
-由于中共国在新疆维吾尔人权问题上对欧盟采取了反制裁，欧盟议会日前决定冻结《欧中投资协定》，这使得中共国在欧洲的影响力日趋减弱。欧洲国家在对抗中共国的问题上变得空前团结。随着ccp病毒的真相彻底被揭露，越来越多的国家和人民都会加入围剿中共的行列。
+Dr. Anthony Fauci, or…Dr. Francis Collins,
 
-编辑/校对/发稿：遍地开花
+安东尼·福奇(Anthony Fuci)博士，或…弗朗西斯·柯林斯博士。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
+or maybe both, would have invoked the footnote in order to keep the money flowing…”
 
+或者两者兼而有之，都会引用备注条款，以保持资金流动…。
 
+Senator, this is serious, we got all these people did
 
-**更多资讯，更多关注**
+参议员，这件事很严重，我们了解了这帮人做的这些
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+We have all these horrible restrictions of Americans life let the normal suffering
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+造成我们美国人要过可怕的限制生活，所有这些让正常的人受苦。
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+Don’t we deserve any answer?
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+难道我们不应该得到任何答案吗？
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+Senator-Tom Cotton:
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193850/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1-1.jpg)
+参议员汤姆·科顿：
 
+We do deserve answer Lauren.
 
+我们理应得到答案，劳伦。
 
+Tony Fauci needs to give us an answer
 
+托尼·福奇需要给我们一个答案。
+
+Look, he’s wrong about a lots of last year
+
+听着，他去年很多事情都错了
+
+wrong about masks, wrong about schools,
+
+戴口罩的错误，学校指引的错误，
+
+Now he is wrong about summer camps for kids
+
+现在他对孩子们夏令营的做法是错误的。
+
+But he is also wrong today to say that NIH never directly or even indirectly funded this kind of research
+
+但他今天说国立卫生研究院从未直接或间接资助这类研究的说法也是错误的。
+
+that report mentioned by Nicholas Wade block buster recommend about all of you the audience to read it
+
+尼古拉斯·韦德(Nicholas Wade)提到的那篇报道推荐你们所有的观众去读一读。
+
+Tony Fauci and his agencies need provide answers to the American people
+
+托尼·福奇和他的代理们需要给美国民众确实的答案
+
+about what rule they had been played in funding research in this laboratory
+
+关于他们在资助这个实验室的研究中扮演了什么角色。
+
+Now perhaps, it wasn’t directly into what alertly resulted in this worldwide pandemic
+
+现在也许，这并不是直接导致这场世界性大流行的直接原因。
+
+But why in the first place, would American tax dollars be going to a Chinese Communist lab
+
+但为什么一开始，美国纳税人的钱就流向中国共产党的实验室呢？
+
+that was conducting some of the world most dangerous kind of research
+
+进行了一些世界上最危险的研究。
+
+in the laboratory that we know that we knew three four years ago have very low sloppy safety practices
+
+在我们知道的实验室里，我们三、四年前就知道有安全性很低的操作。
+
+It was extremely reckless
+
+这是极其草率的。
+
+Tony Fauci maybe a good scientist
+
+托尼·福奇也许是个好科学家。
+
+But doesn’t say no much about constitutional self government
+
+但对立宪自治并没有说太多。
+
+He was disrespectful to the United States Senate today
+
+他今天对美国参议院不够尊敬。
+
+And appears to disregard the direction of O’Bama White House five or six years ago.
+
+似乎也无视五六年前奥巴马白宫的领导。
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频连接: [https://twitter.com/sentomcotton/status/1392468278635810816?s=21](https://twitter.com/sentomcotton/status/1392468278635810816?s=21)
+
+英听校:康州盘古农场-WZ
+
+翻译: 康州盘古农场-WZ
+
+翻译终校: 康州盘古农场-格格巫
+
+字幕+视频制作:康州盘古农场-青梅煮酒
+
+审片: 康州盘古农场-银龙
+
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

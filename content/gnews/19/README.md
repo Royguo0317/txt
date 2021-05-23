@@ -1,26 +1,149 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 是谁逼走香港月薪8万的公务员辞职，职业的危机还是人生的转机？
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1265664/)
+## 闫丽梦博士告诉TIMES NOW，指责中共将冠状病毒作为生物武器
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265689/)
 
-作者 ：Neil
+字幕内容：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23003913/052302.jpg)
+what you are saying the message you are giving to the Indian government is very very important
 
-近期网易新闻里《上观新闻》的媒体号一篇《月薪8万的香港公务员辞职：爱国与效忠特区政府竟然有错？》6万多的参与和关注，当然其中五毛占据着大量的篇幅，但是这篇文章作者标题的逻辑是辞职等于不“爱国”，就是对特区政府的“背叛“，从客观逻辑上来说，是没有因果关系的。职业选择入职和离职是正常现象，这是个人对人生下一步是进是退的选择， 同时市场有优胜劣汰，月薪8万港元而辞职，如此高薪，或许有更好的去处呢？
+你所说的，你提供给印度政府的信息是非常非常重要的
 
-文章中的梁女士，选择辞职的大背景是中共推出了《国安法》，香港公务员被要求签署拥护基本法、效忠特区的文件，如果签署了这些，也就意味着要受到中共的控制，中共是什么？是杀害镇压香港人的恐怖反人类组织，是奴役中国14亿（目前衰减到11亿）进行新疆种族灭绝的始作俑者，是向世界释放超限病毒生物武器的罪魁祸首。受它的控制，能活吗？最终不免火葬场的待遇，唯一的不同，从生到死的方式；由死到消失的方式，都是中共说了算，比如最终是火化，还是气化，甚至是冰葬，看中南坑王八们的需要。我们从过去中共70年统治中的斗争学，你死我活，可窥见最终的下场，因为你不可能永远站对位置，所以跳出来选择辞职，是对自己人生最负责，对家庭，对香港最好的自我安排。
+something that India really needs to look at very very seriously
 
-**文章中还有一段耐人寻味的话：****所谓的****“****政治中立****”****，就是抛弃个人政治立场，只对特区政府负责；就是收起一己之见，全力执行特区政府政策；所谓****“****政治不中立****”****，就是将个人政治观点凌驾于特区政府决策之上；就是不与特区政府同行、不向特区政府效忠。**
+印度真的需要非常严肃地看待这些信息
 
-**梁女士选择了辞职，理应算得上政治中立，因为她选择了跳出中共的控制，而这篇报道的作者，用心的毒在于，把意思反向去解读，把辞职定义为“政治不中立”，有个人想法。**** ****反正就是一句话：你不听话，辞职，就是****”****政治不中立****”****，要对你算账，如果你不听话，也不辞职，中共的举报机制已经在路上，随时就会弄死像梁女士这样爱好和平，心地善良的人，因为香港的一国两制，已经荡然无存。**
+it is, according to you, is  a bio weapon targeted at India
 
-香港有17万名公务员， 129名公务员拒签后辞职或被勒令停职或离职。在英国统治香港时期，梁女士尚可以政治中立的方式，廉洁守法的生活。而中共呢，你想中立，中共非给你定一个“不中立”，这是这个政权的邪恶属性决定的。反送中游行等香港大大小小的游行，梁女士基本上都有参与， 不免会成为中共的眼中钉、肉中刺。        像梁女士这种情况的香港人，目前美国、英国、澳洲等多个国家，都在帮助接收更多的香港难民，新中国联邦也在推动更多的国家接收并帮助香港人，让他们在海外得到庇护，帮助他们在当地合法的生活下来。美国国会在今年2月和3月份多次提及《香港避风港法案》，给予香港人避难身份，因为得到两党的支持，相信在今年通过的概率是非常高的，也希望这个法案可以成为助推全世界向香港人抛出橄榄枝的催化剂，帮助更多的香港人度过难关，因为只有活下去，我们才能看到中共的倒台！
+据你所说，这是一种针对印度的生物武器
 
-[援引原文](https://www.163.com/dy/article/GAKFHH5K055040N3.html?clickfrom=w_yw)
+last question before we let you go,
 
-审核校对：鲁邦五世
-上传排版：糖果儿
+在你离开之前让我再问最后一个问题：
 
-+1
+how are you coping now ? do you continue to fear for your safety?
+
+你现在境遇如何？你是否继续担心你的安全？
+
+becauseyou’ve been one of the very few people in this entire world
+
+因为你是全世界极少数的人之一
+
+who in fact have very openly spoken about corona virus and its origin that it is a
+
+公开地讲出新冠病毒和它的起源
+
+man-made virus something that was invented in a lab and it is not natural
+
+认为它是一种人造的病毒，并且是在实验室里创造的，而不是自然产生的
+
+how are you coping up now?
+
+你现在境遇如何？
+
+actually, since I came to US, yes I have met about a difficulties,
+
+实际上，自从我来到美国，是的，我遇到了一些困难
+
+especially China  government using thousands of ways because that is a national power to chase me
+
+特别是中共政府利用国家权力，使用各种手段来追捕我
+
+and try to make me disappeared
+
+中共试图让我消失
+
+so they attacked me online, they attacked me on media even the western media.
+
+所以他们在网上攻击我，在媒体上攻击我，甚至在西方媒体上攻击我
+
+and also they make up a lot of misinformation to mislead the western countries
+
+他们还编造了很多错误的信息来误导西方国家
+
+but  the good thing is we are promoting the things to the right direction.
+
+但好在我们正在推动病毒真相朝正确的方向发展
+
+and I have published three reports from last September to now , and which are  listed on my twitter
+
+从去年9月到现在，我已经发表了三份报告, 在我的推特上可以看到
+
+and there are over millions of people read it and downloaded it
+
+已经有超过百万人阅读和下载了这些报告
+
+I get a lot of feedback from governments and also the scientists
+
+我得到了来自政府和科学家的很多反馈
+
+they are talking to me said this is very very useful
+
+他们跟我说, 这是非常非常有用的
+
+and they do think this is from the lab.
+
+他们确实认为病毒是来自实验室
+
+and they think my evidence is quite solid including scientific ones and also intelligent ones,
+
+而且他们认为，无论是在科学方面还是在情报方面，我的证据都是相当坚实的
+
+so we can say people, yes they need time to understand it,
+
+所以我们说，是的，人们需要时间来理解它
+
+because in that PLA document, they also claimed that this is something that innocent   people cannot realize
+
+因为在解放军的那本教科书里，中共也承认这是善良的人无法理解的事情
+
+including innocent Chinese and innocent foreigners
+
+包括善良的中国人和善良的外国人
+
+and that’s because of deny and also misinformation they can make the people get
+
+因为中共的否认和传播错误信息，使人们感到困惑
+
+confused and finally waste their time, waste their life and so the bioweapon can work very well.
+
+最终浪费他们的时间，浪费他们的生命，从而使生物武器可以很好地发挥作用
+
+the thing that is their purpose
+
+这是中共的目的
+
+but I won’t tell you a as I say more and more people stand out to support more investigation
+
+但这不必由我告诉你。正如我所说的，有越来越多的人站出来要求更多的调查
+
+both on the lab origin and also bioweapon.
+
+包括对实验室起源和生物武器计划的调查
+
+I think there will be more good progress in the future and I will keep fighting on that.
+
+我认为未来会有更多好的进展，我将继续为此而奋斗
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接: https://twitter.com/timesnow/status/1391948816861986821?s=24
+
+英听校：    康州盘古农场 – Mike Li
+
+翻译：       康州盘古农场 – Mike Li
+
+翻译终校：康州盘古农场 – 柯镇恶
+
+字幕+视频制作：康州盘古农场-天涯行
+
+审片**：**康州盘古农场-银龙
+
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

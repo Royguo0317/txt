@@ -1,172 +1,92 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 观看：福奇说他正在试图雇用中国共产党的官员，研究员们
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265702/)
+## 称COVID-19病毒是在中共实验室开发的病毒学家闫丽梦博士，告诉我们更多关于中国的COVID战争的阴谋
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265724/)
 
-字幕内容：
+**字幕内容：**
 
-Dr. Fauci
+**Okay, but Dr. Yan, the Chinese scientists and PLA commanders, they may have **
 
-福奇博士
+好的，但是闫博士，中共国的科学家和解放军的指挥官
 
-On a number things that we should be doing
+**talked about genetically engineering a virus in 2015 in this report,**
 
-在一些我们应该做的事情上
+他们可能在**2015**年的这份**“**解放军指南**”**《非典非自然》中谈到了基因工程的病毒
 
-Steve Clemons
+**can that 2015 report directly be linked to the spread of corona virus in 2020, **
 
-史蒂夫·克莱蒙斯
+这本《非典非自然》能否直接与**2020**年、**2021**年的**COVID**病毒联系起来
 
-Are the Chinese doing more?
+**2021, I mean from what you gathered on ground from that report, join the dots**
 
-中国人做得更多吗
+我的意思是，从你对这本**“**解放军指南**”**的了解，请为我们
 
-Dr. Fauci
+**for us, Dr.  Yan.**
 
-福奇博士
+解读一下，严博士
 
-you know it’s very interesting that you should mention
+**so actually, I just want to tell you that this is open published textbook published **
 
-你知道你应该提到这很有趣
+实际上，我先告诉你的是，这本书是由军事医学出版社公开出版的教科书
 
-I was just about a half an hour before I came here
+**by military medical press and it’s a textbook for military students in the universities.**
 
-就在我来这里大约半小时前
+它是为军事学院里的军事学生编写的教科书
 
-They weren’t serving margaritas there though
+**so you should know that this is also I quote as global times they said it’s a book**
 
-他们虽然在那里不提供玛格丽塔酒
+你也应该知道，我引用《环球时报》的说法，他们说这是一本关于理论的书
 
-To the sentence…
+**about the theory and also in this book they clearly mentioned in the preface that**
 
-到这句话…
+而事实是，在这本书中，他们在序言中明确提到
 
-Steve Clemons
+**they get fully support from PLA and the Chinese government in writing this**
 
-史蒂夫·克莱蒙斯
+他们在写这本书时得到了解放军和中共国政府的充分支持
 
-Or was the room that’s full
+**and I want to emphasize is, this is not the beginning of their study of**
 
-房间是那么满吗？
+我想强调的是，这不是中共研究现代生物
 
-Dr. Fauci
+**contemporary bioweapon, this is just one step which we have evidence now back **
 
-福奇博士
+武器的开始，这只是有证据可以追溯到六年前的中共研究生物武器的一个步骤
 
-No it wasn’t very stay
+**to six years ago, but after that, they have also modified a lot, and they have **
 
-不，不满，
+但在那之后，中共也修改了很多，中共在
 
-We had a Visit that was at the center for strategic and International studies right on Rhode Island Ave
+**recruited a lot of labs under the cover of stable labs, under the cover of **
 
-我们访问了在罗德岛大道（Rhode Island Ave）的战略和国际研究中心
+稳定的实验室的掩护下，在国际实验室的掩护下
 
-we had a visit from the Vice Premier of China,
+**international labs and working with the military to develop it.**
 
-我们有中共国副总理的来访
+招募了很多实验室，与军方合作开发生物武器
 
-the Director of the Chinese CDC,
+**so they have better knowledge and experience after the sixth year, **
 
-中国疾病预防控制中心主任
+所以中共在六年后应该有更多关于生物武器的知识和经验
 
-and the President of the Center for Advanced Medical Science in China,
+**that’s what later you say COVID-19 happened**
 
-以及中共国的先进医学科学中心主席
-
-and they met with myself and a few others Secretary Price,
-
-他们会见了我自己和其他一些人，前卫生与公众服务部长汤姆-普莱斯
-
-talking about just your question,
-
-谈论了就你刚刚的问题
-
-Steve Clemons
-
-史蒂夫·克莱蒙斯
-
-how did you fly fly？
-
-你是如果夸夸其谈的？
-
-Dr. Fauci
-
-福奇博士
-
-Wait, the question is yes
-
-等一下，问题是是的
-
-Is that if you look at investment in science
-
-那是如果你看和在科学上的投资
-
-If you look at an investment in science
-
-如果你看一看对科学的投资
-
-the Chinese are increasing their investment in biomedical research by something like 26% this year
-
-今年中共在生物医学研究方面的投资增加了约26％
-
-and take a look at what we’re doing
-
-再看看我们在做什么
-
-we’re cutting it by a percent
-
-我们削减了一个百分点
-
-so if you do the bar graph
-
-所以如果你做条形图
-
-you will see a bargain
-
-你将看到一个差距
-
-Steve Clemons
-
-史蒂夫·克莱蒙斯
-
-Other tweetable moment right there
-
-那里还有可发推的时刻
-
-I guess it means the truth they are investing very very heavily in biomedical research
-
-我猜这意味着他们在生物医学研究上投入了大量的事实
-
-Steve Clemons
-
-史蒂夫·克莱蒙斯
-
-They are  thinking of hiring you
-
-他们在考虑雇用你？
-
-Dr. Fauci
-
-福奇博士
-
-I’m trying to hire them
-
-我正试图雇用他们
+这就是后来发生的**COVID-19**大流行的事情
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-原视频链接 https://twitter.com/nataliegwinters/status/1392859143334100995?s=24
+原视频链接: [https://twitter.com/raheemkassam/status/1348463264326365187?s=21](https://twitter.com/raheemkassam/status/1348463264326365187?s=21)
 
-英听校：    康州盘古农场 – Layka
+英听校：    康州盘古农场 – Mike Li
 
-翻译：       康州盘古农场 – Layka
+翻译：       康州盘古农场 – Mike Li
 
-翻译终校：康州盘古农场 – Mike Li
+翻译终校：康州盘古农场 -Ara
 
 字幕+视频制作：康州盘古农场-青梅煮酒
 
-审片：康州盘古农场-银龙
+审片**：**康州盘古农场-银龙
 
 发布：康州盘古农场-文韵
 [!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
@@ -174,4 +94,4 @@ I’m trying to hire them
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-0
++1

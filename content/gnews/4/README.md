@@ -1,145 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 安东尼·福奇和美国国立卫生研究院需要向美国人民提供答案
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265779/)
+## 【战友心声】什么是德先生文化爆料
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1265726/)
 
-字幕内容：
+**作者**：香草山美食部 Rainer
 
-Host- Lauren:
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193903/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1-2.jpg)
 
-主持人-劳伦：
 
-Here was scientist journalist Nicholas Wade wrote about Fauci and others involvement of funding that money to WuHan
 
-以下是科学记者尼古拉斯·韦德(Nicholas Wade)关于福奇和其他人参与向武汉提供资金的报道。
 
-“for the first three years of the grant… there was a moratorium on funding gain-of-function research
 
-“在赠款…的头三年。暂停了对功能获得性研究的资助。
+读德教启蒙第七期有感：这一期德先生向战友们阐述何为德先生的文化爆料。其实文化爆料也是爆料革命的一部分，我们通过爆料革命，推翻CCP这个邪魔恶党，建立起民主与法治的新中国联邦。但是CCP推翻后，中国就一夜之间变好了吗？人心被洗脑了70多年，如何消除华人思想上的各种毒，这就是郭先生提到的正道主义，也是德先生讲的文化爆料，也就是现在的德教云书院。
 
-Why didn’t the two agencies therefore halt the Federal funding?….
+郭先生通过4年多的无数个视频直播盖特等，向大家展现了什么是正道主义，其核心就是东魂西技。我们在前几期有提到过，东魂就是上合天道，下合人心，内明自心。也就是中华传统文化的儒释道，如何与大自然和谐相处，如何与人和谐相处，如何与自己内心和谐相处。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23012922/20210523_134606.jpg)
+我们讲善良，对人有大爱，但是一畏的对所有人好可以吗？这就是我们经常听到的好人没好报，甚至助纣为虐。如何分辨好人坏人，这需要提升我们的智慧。智慧不是指知识，知识就像冰，是一种执着，就如现在科技发明一直被新的推翻。而智慧应该像水，能适应无穷变化的环境。如果内心有定力，不要让水晃动，内心就如平静的水面，就像一面照妖镜，任何事情都能化解。就如飞机的一对翅膀，100%的大爱+100%的智慧，才能平衡。最后还需要勇气，不然有智慧有爱心，不去做一样没结果。正义的勇气，就是坚信真理的勇气，无论前面千万人挡着，只要符合道义，是正义的，一如既往的冲上去。这就是郭先生提到的真善狠。
 
-为什么这两个机构没有因此停止联邦拨款呢？
+从这里我才真正理解什么是正道主义。简单的说，正道主义就是让每一位中华儿女成为像郭先生一样的人，而不只是崇拜郭先生。如果每一位华人都能开发自己内心的宝藏，做到像郭先生一样的真善狠，也就是中华传统文化讲的大爱，智慧，勇气，那么这个世界是不是很美好呢？是不是可以千年的和平呢？怎么做到像七哥一样，不能光有理论，正道主义如何落地呢？这就是德教云书院的使命。
 
-Someone wrote a loophole into the moratorium…
+关于整个德教系统，德先生分为三个阶段。第一阶段就是前3集的德先生政论三部曲。第二阶段是德教启蒙教育，一共53集，是普及整个中华传统文化的基础知识，就如我们的小学，是打基础的阶段。这一阶段主要是纠正华人认识上的偏差，包括对对中华历史的误解，对中华地理的误解，对中华祖先的误解，对中华文化的误解。主要是围绕着2条主线，即让华人找到自己的根，同时向世界揭秘中华传统文化。这些视频在GTV德教云书院官方频道都有分享，如果大家感兴趣，不妨用自己舒服的方式，都去看一看，了解学习一下。第三阶段，就是讲正道主义如何落地，也就是中华的正道系统，是中华传统智慧的现代应用。这一阶段犹如中学和大学系统，只有基础打好了，才能理解并践行整个中华传统文化的精髓。
 
-有人在暂停该项目文件中…中写了一个漏洞。
+老祖宗讲言传身教，七哥每天向大家展示的犹如身教，犹如我们的家庭家庭教育。而德教就是言教，是通过完整的理论体系，犹如学校教育，把梯子搭上去，我们才能达到七哥的高度。战友们，让我们一起努力，践行正道主义吧。
 
-Dr. Anthony Fauci, or…Dr. Francis Collins,
+编辑/校对/发稿：遍地开花
 
-安东尼·福奇(Anthony Fuci)博士，或…弗朗西斯·柯林斯博士。
 
-or maybe both, would have invoked the footnote in order to keep the money flowing…”
 
-或者两者兼而有之，都会引用备注条款，以保持资金流动…。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
 
-Senator, this is serious, we got all these people did
 
-参议员，这件事很严重，我们了解了这帮人做的这些
 
-We have all these horrible restrictions of Americans life let the normal suffering
+**更多资讯，更多关注**
 
-造成我们美国人要过可怕的限制生活，所有这些让正常的人受苦。
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-Don’t we deserve any answer?
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-难道我们不应该得到任何答案吗？
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-Senator-Tom Cotton:
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-参议员汤姆·科顿：
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-We do deserve answer Lauren.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193903/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1-2.jpg)
 
-我们理应得到答案，劳伦。
 
-Tony Fauci needs to give us an answer
 
-托尼·福奇需要给我们一个答案。
 
-Look, he’s wrong about a lots of last year
-
-听着，他去年很多事情都错了
-
-wrong about masks, wrong about schools,
-
-戴口罩的错误，学校指引的错误，
-
-Now he is wrong about summer camps for kids
-
-现在他对孩子们夏令营的做法是错误的。
-
-But he is also wrong today to say that NIH never directly or even indirectly funded this kind of research
-
-但他今天说国立卫生研究院从未直接或间接资助这类研究的说法也是错误的。
-
-that report mentioned by Nicholas Wade block buster recommend about all of you the audience to read it
-
-尼古拉斯·韦德(Nicholas Wade)提到的那篇报道推荐你们所有的观众去读一读。
-
-Tony Fauci and his agencies need provide answers to the American people
-
-托尼·福奇和他的代理们需要给美国民众确实的答案
-
-about what rule they had been played in funding research in this laboratory
-
-关于他们在资助这个实验室的研究中扮演了什么角色。
-
-Now perhaps, it wasn’t directly into what alertly resulted in this worldwide pandemic
-
-现在也许，这并不是直接导致这场世界性大流行的直接原因。
-
-But why in the first place, would American tax dollars be going to a Chinese Communist lab
-
-但为什么一开始，美国纳税人的钱就流向中国共产党的实验室呢？
-
-that was conducting some of the world most dangerous kind of research
-
-进行了一些世界上最危险的研究。
-
-in the laboratory that we know that we knew three four years ago have very low sloppy safety practices
-
-在我们知道的实验室里，我们三、四年前就知道有安全性很低的操作。
-
-It was extremely reckless
-
-这是极其草率的。
-
-Tony Fauci maybe a good scientist
-
-托尼·福奇也许是个好科学家。
-
-But doesn’t say no much about constitutional self government
-
-但对立宪自治并没有说太多。
-
-He was disrespectful to the United States Senate today
-
-他今天对美国参议院不够尊敬。
-
-And appears to disregard the direction of O’Bama White House five or six years ago.
-
-似乎也无视五六年前奥巴马白宫的领导。
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://twitter.com/sentomcotton/status/1392468278635810816?s=21](https://twitter.com/sentomcotton/status/1392468278635810816?s=21)
-
-英听校:康州盘古农场-WZ
-
-翻译: 康州盘古农场-WZ
-
-翻译终校: 康州盘古农场-格格巫
-
-字幕+视频制作:康州盘古农场-青梅煮酒
-
-审片: 康州盘古农场-银龙
-
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

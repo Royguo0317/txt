@@ -1,91 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 哈马斯恐怖组织领导人公开揭秘：伊朗助其攻以色列，包括提供资金和武器
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265544/)
+## 【独立观点】美俄双方求同存异，有望合作
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1265509/)
 
-字幕内容：
+作者：纽约香草山健身部 Ivy001
 
-Hamas political leader–Ismail Haniyeh
 
-哈马斯政治领袖伊斯梅尔·哈尼亚
 
-Today, we are facing this great and overall danger
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-今天，我们正面临着这一巨大而全面的危险
 
-We believe that we, as an Islamic nation, need a strategic and overall plan
 
-我们认为，作为一个伊斯兰国家
+据路透社报道，5月19日美国国务卿布林肯与俄罗斯外长拉夫罗夫会面，他们强调虽然两国在如何看待全球事务方面存在严重分歧，但对会谈表达乐观看法，称双方仍可以找到合作的途径。
 
-我们需要一个战略性和全局性的规划
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22225430/23-7.jpg)图片来源：路透社
 
-to face this danger that threatens our cause and our Jerusalem
+布林肯在记者会发表开场讲话时称，“我们存在分歧，这不是秘密”，华盛顿将对俄罗斯的激进行动作出回应。但他也表示，如果两国领导人展开合作，世界将更加安全。拉夫罗夫则表示，俄罗斯和美国存在“严重分歧”，但必须“在两国利益发生冲突的领域”进行合作。这次会谈共持续了一小时45分钟，超过原本预期的1小时。
 
-直面威胁我们事业和我们耶路撒冷的危险
+布林肯说，拜登希望“与俄罗斯建立可预测的、稳定的关系”，并说两国可以共同努力，解决冠状病毒大流行，应对气候变化，应对伊朗和朝鲜的核计划以及阿富汗战争。
 
-The essence of this strategy is the resistance project
+如之前所说，美国向俄罗斯伸出了橄榄枝，俄罗斯必会欣然接受。毕竟，一个可预测的、稳定的美俄关系，肯定是对双方都有利的。尤其是当前世界局势波涛诡秘，中共国暗中拱火，到处散播病毒，美国和俄罗斯都看到了必须合作的契机。面对不可预测的、内部极其不稳定的中共国，美俄联合，共同应对中共国，无疑是最稳妥的战略部署，而且赢面最大化。
 
-这一战略的实质是抵抗方案
+虽然美俄两方的发言都没有提及中共国，可是，字里行间均透露出两国的共同努力，是为了解决中共国这个问题的制造者。说到底，病毒大流行、气候问题、伊朗与朝鲜核计划、阿富汗战争，这些问题的背后黑手是谁？不就是中共国吗？！
 
-Complete resistance including the armed, military resistance at the top
+世界战力最强的两个超级大国，面对中共国毫无底线的邪恶，终于摒弃意识形态的分歧，准备联手合作以解决中共国的威胁。CCP，你要完了。
 
-完全抵抗策略，包括最高层的武装军事抵抗
+参考阅读：
 
-From here, I salute all the components of the nation that  embrace  and support
+[美国务卿与俄外长启动对话，强调在“严重分歧”之外须进行合作](https://www.reuters.com/article/%E7%BE%8E%E5%9B%BD%E5%8A%A1%E5%8D%BF%E4%B8%8E%E4%BF%84%E5%A4%96%E9%95%BF%E5%90%AF%E5%8A%A8%E5%AF%B9%E8%AF%9D%EF%BC%8C%E5%BC%BA%E8%B0%83%E5%9C%A8%E2%80%9C%E4%B8%A5%E9%87%8D%E5%88%86%E6%AD%A7%E2%80%9D%E4%B9%8B%E5%A4%96%E9%A1%BB%E8%BF%9B%E8%A1%8C%E5%90%88%E4%BD%9C-idCNL3S2N648Z)
 
-在这里，我向所有拥护和
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
 
-支持我们国家的人致敬
+编辑/校对/发稿：Irene木木
 
-The choice of resistance backs it on the ground in Palestine
+**更多资讯，更多关注**
 
-在巴勒斯坦当地选择支持抵抗
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-Here, I am particularly specifying the Islamic Republic of Iran
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-在这里，我特别提到伊朗伊斯兰共和国
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-Which has not faltered in supporting and funding the resistance financially, militarily and technically
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-在财政、军事和技术上支持和
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-资助抵抗力量的努力没有动摇
 
-This is an example of the Republic’s strategy
 
-这是共和国战略的一个例子
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-that was established by Imam Khomeini, may God have mercy on his soul
 
-这是由伊玛目霍梅尼建立的
 
-愿上帝怜悯他的灵魂
-
-He is the one who announced the last Friday of Ramadan as the global day for Jerusalem
-
-他是宣布斋月最后一个星期五
-
-为耶路撒冷全球日的人
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://twitter.com/mikepompeo/status/1392573957904154628?s=21](https://twitter.com/mikepompeo/status/1392573957904154628?s=21)
-
-英听校:康州盘古农场-WZ
-
-翻译: 康州盘古农场-WZ
-
-翻译终校: 康州盘古农场-文白
-
-字幕+视频制作:康州盘古农场-天涯行
-
-审片: 康州盘古农场-银龙
-
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-+2
++1

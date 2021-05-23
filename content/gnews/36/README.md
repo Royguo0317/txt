@@ -1,80 +1,120 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【信仰之声】以巴冲突中的犹太人
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1265353/)
+## 2021/05/18 前州长谈中共成为美国在全世界最大的挑战
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1265443/)
 
-作者：纽约香草山福音部 Jinglechenge
+视频字幕/听写：云岭 | 翻译：Roberts | 校对：Wade | 简评/文字整理/编辑：胖丁| Page：我是球大哥
 
+**简评：**
 
+中共是美国在全球范围内最大的挑战。几十年来，美国两党与中共深度合作，幻想经济实力的提升会使中共过渡到民主国家。但这是不可能的，中共在强大的同时，不断地削弱美国，扩张自己在全球的影响力。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
+中共以非法手段操控全球产业链，新冠疫情的爆发使得美国意识到，不仅美国急需的个人防护用品依赖中共。包括日用品，药物等很多重要物资都依赖中共。应该像冷战时期对待前苏联一样限制与中共的贸易，阻止其对美国的经济侵略。美国必须捍卫自由市场的权益和尊严，确保公平贸易，维护全球产业链的良性运转。
 
+中共为了扩张和推进其独裁统治，严厉管控自己的国民，对新疆种族清洗，剥夺香港自由，武力威胁台湾，派遣间谍渗透美国，偷盗知识产权，不惜一切手段控制联合国和世卫组织。
 
+中共日益成为全球的威胁，印太地区的日本、印度和澳大利亚已经认识到中共的危险，欧洲也在觉醒。中共威胁了所有国家的经济和国家安全，美国有责任站出来对抗中共，支持中国人民获得自由，保证美国自身的安全，强大，繁荣和未来。
 
-2021年5月21日，在“败灯”政权的施压下，以色列决定不再反击哈马斯，以期挽回7.35亿美元的军购——之前Sanders、AOC等民主党议员已在美国国会提案冻结这批包括拦截弹在内的军用购买。而今，虽然以色列的冲突停火了，但犹太人在世界范围内受到的迫害却越演越烈。仅在美国，很多地方都发生了Hamas的支持者袭击犹太人的事件。在纽约，甚至戴犹太帽的人都会受到攻击，比如：
-
-2021年5月12日，纽约的一位佩戴大卫之星的犹太人被一个亲巴勒斯坦的暴民袭击。这位犹太人一直被追赶，被扔玻璃和碎石，满身鲜血，并且被满口污言秽语地咒骂。5月15日在加拿大，一位亲巴勒斯坦的暴民袭击了犹太人，向犹太人民扔玻璃和碎石，还骚扰了一名犹太女孩。同日在洛杉矶，Antifa与一对支持以色列的游行者发生冲突，他们还试图在加州高速公路上围攻巡逻车。也是同一日在纽约，Antifa在Brooklyn与一群以色列支持者发生冲突。
-
-5月16日，Instagram上有四千二百万追随者的巴勒斯坦人、超模Bella Hadid去Brooklyn参加支持Hamas的游行前，公然号召将犹太人赶进大海，且在随后的游行中，他们与支持以色列的犹太游行队伍发生了冲突。当天Antifa也在西雅图举着旗帜出现在了支持Hamas的游行集会中，他们高唱Antifa万岁，又从支持以色列的游行队伍中偷了一面以色列国旗，将国旗先踩后烧，付之一炬，他们还骚扰了拍摄这段视频的记者。还在同一日，一群伦敦的Hamas支持者特地驱车到犹太社区，高呼侮辱犹太母亲、妻子、女儿的秽语，场面令人震惊。同样的事情也于同一日发生在英国的另一个城市曼彻斯特。那一天在多伦多，一群犹太人被一群身穿Hamas标志的抗议者袭击，其中一位十几岁的少女遭到性骚扰。
-
-5月18日，CCP也对以色列踩上了一脚，在其官方媒体CCTV的海外频道CGTN上公然反以色列，而设在CCP国的以色列大使馆则是谴责了CCP的所作所为。其后的5月20日，黑命贵组织发出声明，表示坚定和Hamas恐怖分子站在一起，并誓言和Hamas一起对抗以色列，而黑命贵在过去的12个月内一直参与在美国的打砸抢烧——真是物以类聚、人以群分，一个半斤、一个八两。同日在纽约，一位29岁的犹太人会计师本来要去参加支持以色列的集会，途中经过曼哈顿中城的大街时，被支持Hamas的一群暴徒暴打，全身包括脸部都是伤痕。
-
-![德报刊登犹太帽图样吁读者剪下佩戴对抗仇恨风气]()![德报刊登犹太帽图样吁读者剪下佩戴对抗仇恨风气](https://media.bastillepost.com/wp-content/uploads/hongkong/2019/05/190528_CH_%E7%8C%B6%E5%A4%AA%E6%97%8F.jpg)图源网络
-
-当今，反犹言论甚至暴力正在美国兴起，这应该引起所有美国人的高度关注。由一小撮人和媒体操纵的关于以色列的一个又一个的谎言是非常危险的，应该停止。试想想，如果这些事的施暴人与受害人调个位置，那会怎么样？美国的社会舆论和所谓的主流媒体早就炒翻了，一定大书特书！而现在，他们几乎都闭上了嘴巴。
-
-但更可气的是，“败灯”竟然宣布，美国将帮助Hamas重建加沙，即美国掏钱资助。笔者不禁想问，凭什么恐怖分子基地被炸，最后却要用美国纳税人的钱重建？倘若像当年奥巴马一样，卸任前几小时还给哈马斯拨款2.21亿美元，那伟大的美国迟早会被毁在这帮人手里！
-
-要知道在以色列国，整个暴乱期间阿拉伯暴徒总共烧毁了10座犹太会堂、112座犹太住家、849辆犹太人车，他们还抢劫了386家犹太人、砸烂了673辆犹太人车，记录在案的向犹太人仍石头的就有5,018起。
-
-想必亚伯拉罕作梦也没有想到，自己的子孙要在战火中求生存，但神早就知道，并预言了以实玛利的后代阿拉伯人的好战：
-
-“他为人必像野驴。他的手要攻打人，人的手也要攻打他。”(创世记16:12 )
-
-今天（2021年5月22日），闻名于世的纽约市长Rudy Giuliani发推质问，为什么在全国乃至全球范围内，巴勒斯坦人及其支持者对犹太人的暴力袭击全被民主党和80％的媒体所忽视？昨天，他儿子Andrew Giuliani发推号召大家与以色列站在一齐：
-
-We MUST Stand with Israel,
-
-We MUST Support our Jewish Brothers and Sisters!
-
-Let this bring us Together!
-
-是的，我们必须与以色列站在一齐，参与到这场正邪大战中。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-1. [Israel condemns Bella Hadid for ‘advocating throwing Jews into the sea’ after she shared ‘anti-Semitic’ post to her 42m Instagram followers before taking part in pro-Palestine march in Brooklyn](https://www.dailymail.co.uk/news/article-9586515/State-Israel-condemns-Bella-Hadid-advocating-throwing-Jews-sea.html)
-2. [‘F\*ck the Jews’, ‘F\*ck their daughters, mothers’: Viral video from London shows pro-Palestine protesters advocating rape of Jewish women](https://www.opindia.com/2021/05/london-finchley-road-pro-palestine-protesters-advocate-raping-jewish-women/)
-3. [Warroom, EP 951](https://pandemic.warroom.org)
-4. [Israel accuses Chinese state TV of ‘blatant anti-Semitism’](https://www.foxnews.com/world/israel-accuses-chinese-state-tv-of-blatant-anti-semitism)
-5. [Black Lives Matter must rescind anti-Israel declaration](https://www.foxnews.com/opinion/black-lives-matter-must-rescind-anti-israel-declaration)
-6. [EXCLUSIVE: ‘My face was on fire.’ Kippa-wearing Jewish man, 29, tells how he was maced, kicked and pummeled by mob of pro-Palestinian men who shouted ‘go back to Israel, Hamas is going to kill you’ as suspect is charged with hate crimes](https://www.dailymail.co.uk/news/article-9606203/Jewish-man-tells-knocked-ground-group-pro-Palestinian-men-Times-Square.html)
-7. [The Jews vs. The World](https://freebeacon.com/culture/the-jews-vs-the-world/)
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[GTV视频链接](https://gtv.org/video/id=60a7b8ded48e0209266453aa)
 
 
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+**视频字幕：**
+
+中国共产党是美国在全世界范围内最大的挑战。
+
+很长时间我们都无视这种挑战。 几十年来，美国两党的领导都鼓励与中共国的深度合作。
+
+原因是我们认为中共国一定会摒弃共产主义，拥抱自由民主。
+
+这种想法是错误的。
+
+现在，在国内和国外，中国共产党都比任何时期都更加具有侵略性。
+
+他们利用一切可利用的工具在削弱美国的同时，增强自己。
+
+让我们从贸易开始说起。
+
+贸易是我们经济的根本和我们最受益的部分，但不是所有的贸易和所有的贸易伙伴都是一样的。
+
+资本主义之父亚当·斯密在《国富论》中指出，英国对海洋的控制必须胜过贸易利益。
+
+他写道：“防御比丰裕更为重要。”
+
+美国早就明白这一真理。
+
+冷战期间，我们限制与苏联的贸易。 我们不想让共产国家利用我们的发明和经济反制我们和我们的同盟。
+
+现在是时候对中共国采取同样的措施了。
+
+对于任何对此还有怀疑的人，新冠瘟疫敲响了强烈的警钟。
+
+当美国人急需购买医疗设备、口罩和手套的时候，很明显，我们已经将很多所需要的东西外包给了中共国。
+
+我们不仅在个人防护用品上，而且在其他日用药物上依赖中共国。
+
+使得美国在重要物资上依赖中共国不是偶然发生的，是我们战略计划的一部分。
+
+中国共产党的统治者为了自己的利益，往往以非法的手段操纵供应链，使美国和其他自由国家处于不利地位。
+
+事情不应该是这样的。
+
+中共国在经济上变得强大的同时，更加缺乏自由，并且更加具有侵略性。
+
+现在，我们面临着一个扩张主义的共产主义中国，它的经济实力大大超过苏联所能企及的一切。
+
+中共国正在利用其日益增长的经济云来推进其独裁的愿景。
+
+中共统治者决心要控制和消灭任何妨碍其前进的人。
+
+这就解释了为什么中共统治者在种族上要清洗少数民族。
+
+他们强迫至少一百万穆斯林维吾尔族人进入集中营，这就是为什么他们要把监控对准自己的公民，这就是为什么他们要剥夺香港人的自由，这就是为什么他们要威胁收复台湾，这就是为什么他们把间谍派进美国的大学和课堂，这就是为什么他们在我们的创新公司窃取知识产权，这也是为什么他们要主导联合国和世卫组织这样的国际组织。
+
+事实很简单—中共不会停止。
+
+所以美国必须做出反应，并且成为领导力量。
+
+首先，美国决心站出来对抗中共。
+
+为了捍卫我们的原则，我们必须挺身而出。
+
+中共为了自己的利益滥用自由市场，美国必须捍卫自由市场的尊严。
+
+为了经济繁荣，我们必须确保公平的贸易关系，确保中共国不能为了谋取自己的利益滥用贸易规则。
+
+我们必须保证我们最重要的、与安全相关的产业从基本药物到半导体，都处于良性的供应链中，而不是依赖专制的竞争国家。
+
+我们必须终止中共国对美国企业的侵蚀，也就是说，限制在重要经济领域中来自中共国的投资。
+
+当然我们必须支持支持国人民争取自由的权利，这是正确的事情，也是明智的事情。
+
+别忘了，中共国不只是美国的威胁。 自由世界应该联合起来。 印太地区日本、印度和澳大利亚已经认识到中共的危险。
+
+我们欧洲的朋友反应有点慢，但是中共在新冠病毒上的表里不一唤醒了他们。
+
+我们的盟友应该明白，美国永远支持他们，正如美国也期待他们的支持。
+
+国家安全是经济安全的保障，而经济安全也是国家安全的保障。
+
+现在两方面都受到中共的威胁。
+
+两方面都必须由美国的实力和创造力來保护。
+
+只有对抗中共才能保证美国拥有更加安全、強大和繁荣的未来。
+
+所以我们绝不能无视中共的威胁，让我们行动起来。
+
+**欢迎关注**[英国伦敦喜庄园英语频道GTV UK English](https://gtv.org/user/602f9f5c047c4c3086d4f215)和[英国伦敦喜庄园英语频道YouTube](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-0
+[!\[\]()!\[\](https://spark.adobe.com/page/8jHtrnGWoSGEl/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/8jHtrnGWoSGEl/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
++1

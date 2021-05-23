@@ -1,165 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 你今天从福奇那里看到的，是全面的信息战和直截了当的谎言
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265761/)
+## 【国际时评】哈马斯“诈尸”案的联想
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1265737/)
 
-字幕内容：
+温哥华扬帆农场 – Shuang
 
-Anne Luty:
+以色列跟哈马斯停火了，然而谁都知道，引发战争的根本问题不解决，这个地区发生冲突的潜在可能性就永远不会消失。
 
-安妮·卢蒂：
+最近几天，网上流传着几张视频截图，一张图中哈马斯抬着一具尸体游行抗议，另一张图中，空袭警报响起时，抬尸体的人扔下尸体全跑了，“尸体”也掀开裹尸布跑了。“诈尸”画面刷屏，大家当笑话一样传播着。此外，网络上还传出哈马斯化妆师把健康儿童化妆成满脸血水的“受害人”的操作流程，用来控诉以色列人对巴勒斯坦儿童的伤害。看来，以色列的空袭造成的平民伤亡数量远远不够哈马斯控诉、索赔用的，尸体和受伤儿童“货源紧张”，以至于哈马斯只能启用“群众演员”假扮尸体和受伤人群。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23013231/%E5%93%88%E9%A9%AC%E6%96%AF%E8%AF%88%E5%B0%B81.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23013243/%E5%93%88%E9%A9%AC%E6%96%AF%E8%AF%88%E5%B0%B82.jpg)
+5月21日，《环球时报》报导：“据法新社加沙城消息，哈马斯一名高官当地时间21日对停火协议生效后在加沙城举行庆祝的数千民众发表讲话，称在同以色列的冲突中取得胜利。”看到这里，不禁令人哑然失笑。前几天还抬着“尸体”抗议，扮演受害者的角色，一停战就摇身一变，成了胜利者了？难道说，哈马斯以“牺牲”大量平民而换来了“胜利”？
 
-What you saw today from Fauci was full-blown information warfare
+哈马斯跟以色列干上了，分明就是鸡蛋碰石头，他为什么还要打？现在大家看到了，哈马斯并不在意取得多大“战果”，只要挨打，就是胜利。以色列给哈马斯制造出越多巴勒斯坦平民“尸体”，哈马斯就越有理由向国际社会“尸谏”，扮演弱者，讹诈以色利。在哈马斯眼里，巴勒斯坦人都是行尸走肉，只有死在以色列的炮火下才有意义。
 
-你今天从福奇那里得到的是一场全面的信息战。
+十几年前，国内拍过一部电影叫《盲井》，在私人小煤矿做工的农民唐朝阳和宋金明发家致富的招数是，先套近乎将打工无门的外地农民认作亲人带到煤矿做工，在井下工作时制造“安全事故”将“亲人”杀死，再找矿主私了。先认亲人，再制造“事故”把“亲人”杀死，“亲人”最大的贡献就是成了尸体，让杀死他的假亲人讹诈矿主受益。这套路是不是很熟悉？
 
-and a straight up lie that’s provable, really,
+哈马斯惹以色列就是在制造“安全事故”，然后抬着“亲人”尸体游行，向矿主进行“尸讹”，向国际社会进行“尸谏”。哈马斯认巴勒斯坦平民为“亲人”，就是看上了他们在“矿难”中成为尸体的价值。但对外，他们高唱一切为了人民，他们也坚信，干坏事只要躲在居民区里，以色列就会忌惮，他们宣称人民就是他们的铜墙铁壁。
 
-可以证明就是一个直白的谎言，真的，
+这一切是多么多么的熟悉！
 
-just by going to the NIH website and their grant database.
+韩战死了多少人都无所谓，尸体吓坏了国际社会，党说我们胜利了。
 
-只要去美国国立卫生研究院（NIH）网站和他们的拨款数据库。
+中共国平均40天死一个亿万富翁，8年死了72个，这些曾经像党和政府亲儿子一样的企业家们，为中共贡献了多少财富，最后都不明不白变成了“尸体”。
 
-So what we are talking about here really crossed the issue
+所有在维稳中被迫害的平民，最后都被打上“暴徒”的标签，他们的尸体成了中共“除暴安良”的功迹。
 
-所以我们在这里谈论的事情，真正是和这个问题有关。
+武汉堆成山一样的骨灰盒，全都是抗疫“胜利”的证明。
 
-is what alternately became 3.7 million dollars grant
+……
 
-就是后来变成了370万美元的赠款。
+他们的铜墙铁壁是用我们同胞的尸体堆成的！他们踩着同胞的尸体步步高升！
 
-that came from Fauci’s NINID
+无论打着什么样的幌子，他们的邪恶都是相通的。像哈马斯、像中共这样组织，绑架人民，利用人民，与文明社会为敌。然而，如果没有文明社会的“仁慈”和“公正”，这些邪恶组织怎么可能一路壮大发展？国际社会呼吁以色列要克制，为什么不要求哈马斯要克制呢？这不就是“尸谏”起了效果吗？文明社会对君子要求很高，对小人多有放纵，在文明盛世当个流氓要比正人君子舒服得多。
 
-这来自福奇的NINID
+国际社会已经慢慢意识到了这一点，爆料革命、新中国联邦唤醒了无数人。那么同胞们，你们认识到了吗？不要再扮演尸体让邪恶政权利用了。你今天演尸体，迟早有一天被中共变成真尸体！
 
-it was titled understanding the risk of back conora virus emergence
+（本文仅代表作者观点，与GNEWS无关）
 
-它的标题是“了解新型冠状病毒出现的风险”
+编审：文敏
 
-and this was sent primarily to a group as known as eco health alliance,
-
-这封信主要寄给了一个名为生态健康联盟的组织，
-
-which is, of course, lead by Peter Daszak, who has comprising ties to the Chinese government in his own right
-
-当然，这个组织是由彼得·达扎克(Peter Daszak)领导的，而他本身就与中国政府有联系。
-
-and also happened to serve as the World Health organization of Covid-19 investigator
-
-还恰好担任了世界卫生组织的新冠肺炎调查员。
-
-So in that time period from 2014 to 2021, 30 studies were published under that grant
-
-因此，从2014年到2021年那段时间里，在这笔赠款资助下，有30多项研究发表。
-
-but what’s really interesting in this is where you see what Fauci’s narrative totally crumbling
-
-但其中真正有趣的是，你可以看到某些地方福奇的叙述完全瞎说的。
-
-16 of those studies again funded explicitly by American tax payer dollars,
-
-这些研究中有16项明确由美国纳税人的钱资助的，
-
-list co-authors who come from Chinese Communist Party run scientific organizations
-
-列出来的共同作者，来自中国共产党管理的科研组织
-
-and 13 of those cases, again, that’s nearly half of total studies published under the Graph grant
-
-全部研究项目中的一半有13个项目，是由Graph资金资助的
-
-the individuals come from another WuHan Institution of Virology
-
-这些人来自武汉另一家病毒学研究所。
-
-I am talking about rank and file researchers all the way up
-
-我说的是从普通到高级的研究人员
-
-to the centre of emerging infectious disease director-Shi, Zheng Li
-
-到突发传染病中心主任—石正丽
-
-who, of course, as Rand Paul mentioned
-
-当然是她，正如兰德·保罗所说
-
-but what was really interesting
-
-但真正有趣的是
-
-in this is a kind of very lead  that I polled today while looking at these studies
-
-我今天在看这些研究时找到了一些线索
-
-If you look at the diction and think tank as how they describes these grants on the actually studies,
-
-如果你看一下措辞和智囊团是如何描述这些拨款给实际做了的研究项目，
-
-you will see it that they just described this NINID grants not just is going to Peter Daszak
-
-你会看到他们刚刚描述的NINID资金不仅仅是给彼得·达萨克
-
-but rather is going to Peter Daszak and Shi, Zheng Li
-
-而是给彼得·达萨克和石正丽。
-
-I read a quote from a study that it was titled isolation characterization of a Novo back conora virus
-
-我从一项研究中读到一篇文章，题目是“分离鉴定一种新的冠状病毒”。
-
-is close related to the direct progenitor of SARS Conoravirus
-
-与SARS 冠状病毒的直接祖先密切相关。
-
-And in that study it says NIH provided funding to Peter Daszak and Shi, Zheng Li and grand No…. NINID so long number
-
-在那项研究中，它说国家卫生研究院给彼得·达萨克和石正丽提供资金…和资金项目编号。。。。NINID的资金号码很长。
-
-And there are 7 studies where you see NINID money is going directly not just to Peter Daszak but to Shi, Zheng Li
-
-还有7项研究，NINID的钱不仅直接流向了彼得·达萨克，还流向了石正丽。
-
-and some cases they all only described the money is going to Shi
-
-有些情况下，他们都只描述了钱会流向石正丽。
-
-and again another 16 studies that I just mentioned
-
-我刚才提到的另外16项研究。
-
-not only were they funded by NINID, or NIH, of USAID,
-
-他们不仅得到了NINID，或美国国家卫生研究院(NIH)，或美国国际开发署(USAID)的资助
-
-but also they were all simultaneously funded
-
-而且他们都是同一时间获得了资金
-
-by a host Chinese Communist Party controlled scientific organization
-
-由中国共产党控制的科学组织提供的
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://twitter.com/anneluty/status/1392326135212544001?s=21](https://twitter.com/anneluty/status/1392326135212544001?s=21)
-
-英听校:康州盘古农场-WZ
-
-翻译: 康州盘古农场-WZ
-
-翻译终校: 康州盘古农场-格格巫
-
-字幕+视频制作:康州盘古农场-青梅煮酒
-
-审片: 康州盘古农场-银龙
-
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
++1
