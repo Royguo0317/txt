@@ -1,165 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 你今天从福奇那里看到的，是全面的信息战和直截了当的谎言
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265761/)
+## 【战友心声】什么是德先生文化爆料
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1265726/)
 
-字幕内容：
+**作者**：香草山美食部 Rainer
 
-Anne Luty:
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193903/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1-2.jpg)
 
-安妮·卢蒂：
 
-What you saw today from Fauci was full-blown information warfare
 
-你今天从福奇那里得到的是一场全面的信息战。
 
-and a straight up lie that’s provable, really,
 
-可以证明就是一个直白的谎言，真的，
+读德教启蒙第七期有感：这一期德先生向战友们阐述何为德先生的文化爆料。其实文化爆料也是爆料革命的一部分，我们通过爆料革命，推翻CCP这个邪魔恶党，建立起民主与法治的新中国联邦。但是CCP推翻后，中国就一夜之间变好了吗？人心被洗脑了70多年，如何消除华人思想上的各种毒，这就是郭先生提到的正道主义，也是德先生讲的文化爆料，也就是现在的德教云书院。
 
-just by going to the NIH website and their grant database.
+郭先生通过4年多的无数个视频直播盖特等，向大家展现了什么是正道主义，其核心就是东魂西技。我们在前几期有提到过，东魂就是上合天道，下合人心，内明自心。也就是中华传统文化的儒释道，如何与大自然和谐相处，如何与人和谐相处，如何与自己内心和谐相处。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23012922/20210523_134606.jpg)
+我们讲善良，对人有大爱，但是一畏的对所有人好可以吗？这就是我们经常听到的好人没好报，甚至助纣为虐。如何分辨好人坏人，这需要提升我们的智慧。智慧不是指知识，知识就像冰，是一种执着，就如现在科技发明一直被新的推翻。而智慧应该像水，能适应无穷变化的环境。如果内心有定力，不要让水晃动，内心就如平静的水面，就像一面照妖镜，任何事情都能化解。就如飞机的一对翅膀，100%的大爱+100%的智慧，才能平衡。最后还需要勇气，不然有智慧有爱心，不去做一样没结果。正义的勇气，就是坚信真理的勇气，无论前面千万人挡着，只要符合道义，是正义的，一如既往的冲上去。这就是郭先生提到的真善狠。
 
-只要去美国国立卫生研究院（NIH）网站和他们的拨款数据库。
+从这里我才真正理解什么是正道主义。简单的说，正道主义就是让每一位中华儿女成为像郭先生一样的人，而不只是崇拜郭先生。如果每一位华人都能开发自己内心的宝藏，做到像郭先生一样的真善狠，也就是中华传统文化讲的大爱，智慧，勇气，那么这个世界是不是很美好呢？是不是可以千年的和平呢？怎么做到像七哥一样，不能光有理论，正道主义如何落地呢？这就是德教云书院的使命。
 
-So what we are talking about here really crossed the issue
+关于整个德教系统，德先生分为三个阶段。第一阶段就是前3集的德先生政论三部曲。第二阶段是德教启蒙教育，一共53集，是普及整个中华传统文化的基础知识，就如我们的小学，是打基础的阶段。这一阶段主要是纠正华人认识上的偏差，包括对对中华历史的误解，对中华地理的误解，对中华祖先的误解，对中华文化的误解。主要是围绕着2条主线，即让华人找到自己的根，同时向世界揭秘中华传统文化。这些视频在GTV德教云书院官方频道都有分享，如果大家感兴趣，不妨用自己舒服的方式，都去看一看，了解学习一下。第三阶段，就是讲正道主义如何落地，也就是中华的正道系统，是中华传统智慧的现代应用。这一阶段犹如中学和大学系统，只有基础打好了，才能理解并践行整个中华传统文化的精髓。
 
-所以我们在这里谈论的事情，真正是和这个问题有关。
+老祖宗讲言传身教，七哥每天向大家展示的犹如身教，犹如我们的家庭家庭教育。而德教就是言教，是通过完整的理论体系，犹如学校教育，把梯子搭上去，我们才能达到七哥的高度。战友们，让我们一起努力，践行正道主义吧。
 
-is what alternately became 3.7 million dollars grant
+编辑/校对/发稿：遍地开花
 
-就是后来变成了370万美元的赠款。
 
-that came from Fauci’s NINID
 
-这来自福奇的NINID
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
 
-it was titled understanding the risk of back conora virus emergence
 
-它的标题是“了解新型冠状病毒出现的风险”
 
-and this was sent primarily to a group as known as eco health alliance,
+**更多资讯，更多关注**
 
-这封信主要寄给了一个名为生态健康联盟的组织，
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-which is, of course, lead by Peter Daszak, who has comprising ties to the Chinese government in his own right
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-当然，这个组织是由彼得·达扎克(Peter Daszak)领导的，而他本身就与中国政府有联系。
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-and also happened to serve as the World Health organization of Covid-19 investigator
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-还恰好担任了世界卫生组织的新冠肺炎调查员。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-So in that time period from 2014 to 2021, 30 studies were published under that grant
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193903/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1-2.jpg)
 
-因此，从2014年到2021年那段时间里，在这笔赠款资助下，有30多项研究发表。
 
-but what’s really interesting in this is where you see what Fauci’s narrative totally crumbling
 
-但其中真正有趣的是，你可以看到某些地方福奇的叙述完全瞎说的。
 
-16 of those studies again funded explicitly by American tax payer dollars,
-
-这些研究中有16项明确由美国纳税人的钱资助的，
-
-list co-authors who come from Chinese Communist Party run scientific organizations
-
-列出来的共同作者，来自中国共产党管理的科研组织
-
-and 13 of those cases, again, that’s nearly half of total studies published under the Graph grant
-
-全部研究项目中的一半有13个项目，是由Graph资金资助的
-
-the individuals come from another WuHan Institution of Virology
-
-这些人来自武汉另一家病毒学研究所。
-
-I am talking about rank and file researchers all the way up
-
-我说的是从普通到高级的研究人员
-
-to the centre of emerging infectious disease director-Shi, Zheng Li
-
-到突发传染病中心主任—石正丽
-
-who, of course, as Rand Paul mentioned
-
-当然是她，正如兰德·保罗所说
-
-but what was really interesting
-
-但真正有趣的是
-
-in this is a kind of very lead  that I polled today while looking at these studies
-
-我今天在看这些研究时找到了一些线索
-
-If you look at the diction and think tank as how they describes these grants on the actually studies,
-
-如果你看一下措辞和智囊团是如何描述这些拨款给实际做了的研究项目，
-
-you will see it that they just described this NINID grants not just is going to Peter Daszak
-
-你会看到他们刚刚描述的NINID资金不仅仅是给彼得·达萨克
-
-but rather is going to Peter Daszak and Shi, Zheng Li
-
-而是给彼得·达萨克和石正丽。
-
-I read a quote from a study that it was titled isolation characterization of a Novo back conora virus
-
-我从一项研究中读到一篇文章，题目是“分离鉴定一种新的冠状病毒”。
-
-is close related to the direct progenitor of SARS Conoravirus
-
-与SARS 冠状病毒的直接祖先密切相关。
-
-And in that study it says NIH provided funding to Peter Daszak and Shi, Zheng Li and grand No…. NINID so long number
-
-在那项研究中，它说国家卫生研究院给彼得·达萨克和石正丽提供资金…和资金项目编号。。。。NINID的资金号码很长。
-
-And there are 7 studies where you see NINID money is going directly not just to Peter Daszak but to Shi, Zheng Li
-
-还有7项研究，NINID的钱不仅直接流向了彼得·达萨克，还流向了石正丽。
-
-and some cases they all only described the money is going to Shi
-
-有些情况下，他们都只描述了钱会流向石正丽。
-
-and again another 16 studies that I just mentioned
-
-我刚才提到的另外16项研究。
-
-not only were they funded by NINID, or NIH, of USAID,
-
-他们不仅得到了NINID，或美国国家卫生研究院(NIH)，或美国国际开发署(USAID)的资助
-
-but also they were all simultaneously funded
-
-而且他们都是同一时间获得了资金
-
-by a host Chinese Communist Party controlled scientific organization
-
-由中国共产党控制的科学组织提供的
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://twitter.com/anneluty/status/1392326135212544001?s=21](https://twitter.com/anneluty/status/1392326135212544001?s=21)
-
-英听校:康州盘古农场-WZ
-
-翻译: 康州盘古农场-WZ
-
-翻译终校: 康州盘古农场-格格巫
-
-字幕+视频制作:康州盘古农场-青梅煮酒
-
-审片: 康州盘古农场-银龙
-
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
