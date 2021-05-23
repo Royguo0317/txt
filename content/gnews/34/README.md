@@ -1,97 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 称COVID-19病毒是在中共实验室开发的病毒学家闫丽梦博士，告诉我们更多关于中国的COVID战争的阴谋
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265724/)
+## 【战友心声】什么是德先生文化爆料
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1265726/)
 
-**字幕内容：**
+**作者**：香草山美食部 Rainer
 
-**Okay, but Dr. Yan, the Chinese scientists and PLA commanders, they may have **
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193903/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1-2.jpg)
 
-好的，但是闫博士，中共国的科学家和解放军的指挥官
 
-**talked about genetically engineering a virus in 2015 in this report,**
 
-他们可能在**2015**年的这份**“**解放军指南**”**《非典非自然》中谈到了基因工程的病毒
 
-**can that 2015 report directly be linked to the spread of corona virus in 2020, **
 
-这本《非典非自然》能否直接与**2020**年、**2021**年的**COVID**病毒联系起来
+读德教启蒙第七期有感：这一期德先生向战友们阐述何为德先生的文化爆料。其实文化爆料也是爆料革命的一部分，我们通过爆料革命，推翻CCP这个邪魔恶党，建立起民主与法治的新中国联邦。但是CCP推翻后，中国就一夜之间变好了吗？人心被洗脑了70多年，如何消除华人思想上的各种毒，这就是郭先生提到的正道主义，也是德先生讲的文化爆料，也就是现在的德教云书院。
 
-**2021, I mean from what you gathered on ground from that report, join the dots**
+郭先生通过4年多的无数个视频直播盖特等，向大家展现了什么是正道主义，其核心就是东魂西技。我们在前几期有提到过，东魂就是上合天道，下合人心，内明自心。也就是中华传统文化的儒释道，如何与大自然和谐相处，如何与人和谐相处，如何与自己内心和谐相处。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23012922/20210523_134606.jpg)
+我们讲善良，对人有大爱，但是一畏的对所有人好可以吗？这就是我们经常听到的好人没好报，甚至助纣为虐。如何分辨好人坏人，这需要提升我们的智慧。智慧不是指知识，知识就像冰，是一种执着，就如现在科技发明一直被新的推翻。而智慧应该像水，能适应无穷变化的环境。如果内心有定力，不要让水晃动，内心就如平静的水面，就像一面照妖镜，任何事情都能化解。就如飞机的一对翅膀，100%的大爱+100%的智慧，才能平衡。最后还需要勇气，不然有智慧有爱心，不去做一样没结果。正义的勇气，就是坚信真理的勇气，无论前面千万人挡着，只要符合道义，是正义的，一如既往的冲上去。这就是郭先生提到的真善狠。
 
-我的意思是，从你对这本**“**解放军指南**”**的了解，请为我们
+从这里我才真正理解什么是正道主义。简单的说，正道主义就是让每一位中华儿女成为像郭先生一样的人，而不只是崇拜郭先生。如果每一位华人都能开发自己内心的宝藏，做到像郭先生一样的真善狠，也就是中华传统文化讲的大爱，智慧，勇气，那么这个世界是不是很美好呢？是不是可以千年的和平呢？怎么做到像七哥一样，不能光有理论，正道主义如何落地呢？这就是德教云书院的使命。
 
-**for us, Dr.  Yan.**
+关于整个德教系统，德先生分为三个阶段。第一阶段就是前3集的德先生政论三部曲。第二阶段是德教启蒙教育，一共53集，是普及整个中华传统文化的基础知识，就如我们的小学，是打基础的阶段。这一阶段主要是纠正华人认识上的偏差，包括对对中华历史的误解，对中华地理的误解，对中华祖先的误解，对中华文化的误解。主要是围绕着2条主线，即让华人找到自己的根，同时向世界揭秘中华传统文化。这些视频在GTV德教云书院官方频道都有分享，如果大家感兴趣，不妨用自己舒服的方式，都去看一看，了解学习一下。第三阶段，就是讲正道主义如何落地，也就是中华的正道系统，是中华传统智慧的现代应用。这一阶段犹如中学和大学系统，只有基础打好了，才能理解并践行整个中华传统文化的精髓。
 
-解读一下，严博士
+老祖宗讲言传身教，七哥每天向大家展示的犹如身教，犹如我们的家庭家庭教育。而德教就是言教，是通过完整的理论体系，犹如学校教育，把梯子搭上去，我们才能达到七哥的高度。战友们，让我们一起努力，践行正道主义吧。
 
-**so actually, I just want to tell you that this is open published textbook published **
+编辑/校对/发稿：遍地开花
 
-实际上，我先告诉你的是，这本书是由军事医学出版社公开出版的教科书
 
-**by military medical press and it’s a textbook for military students in the universities.**
 
-它是为军事学院里的军事学生编写的教科书
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
 
-**so you should know that this is also I quote as global times they said it’s a book**
 
-你也应该知道，我引用《环球时报》的说法，他们说这是一本关于理论的书
 
-**about the theory and also in this book they clearly mentioned in the preface that**
+**更多资讯，更多关注**
 
-而事实是，在这本书中，他们在序言中明确提到
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**they get fully support from PLA and the Chinese government in writing this**
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-他们在写这本书时得到了解放军和中共国政府的充分支持
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-**and I want to emphasize is, this is not the beginning of their study of**
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-我想强调的是，这不是中共研究现代生物
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-**contemporary bioweapon, this is just one step which we have evidence now back **
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193903/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1-2.jpg)
 
-武器的开始，这只是有证据可以追溯到六年前的中共研究生物武器的一个步骤
 
-**to six years ago, but after that, they have also modified a lot, and they have **
 
-但在那之后，中共也修改了很多，中共在
 
-**recruited a lot of labs under the cover of stable labs, under the cover of **
 
-稳定的实验室的掩护下，在国际实验室的掩护下
-
-**international labs and working with the military to develop it.**
-
-招募了很多实验室，与军方合作开发生物武器
-
-**so they have better knowledge and experience after the sixth year, **
-
-所以中共在六年后应该有更多关于生物武器的知识和经验
-
-**that’s what later you say COVID-19 happened**
-
-这就是后来发生的**COVID-19**大流行的事情
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接: [https://twitter.com/raheemkassam/status/1348463264326365187?s=21](https://twitter.com/raheemkassam/status/1348463264326365187?s=21)
-
-英听校：    康州盘古农场 – Mike Li
-
-翻译：       康州盘古农场 – Mike Li
-
-翻译终校：康州盘古农场 -Ara
-
-字幕+视频制作：康州盘古农场-青梅煮酒
-
-审片**：**康州盘古农场-银龙
-
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-+1
+0

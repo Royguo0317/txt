@@ -1,145 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 安东尼·福奇和美国国立卫生研究院需要向美国人民提供答案
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265779/)
+## 立陶宛宣布退出“17+1 ” 中共国与中东欧合作机制断链
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1265876/)
 
-字幕内容：
+【日本东京方舟农场】 撰稿：青衣       校对：文小律
 
-Host- Lauren:
+据《法国国际广播电台》5月23日报道，在欧盟27国与中共国关系日渐交恶的情况下，波罗的海国家立陶宛认为“17+1”合作机制构成中共国“分裂”欧盟的因素，因此决定不再出席“17+1”峰会，同时呼吁其他成员国退出这一合作机制，促进欧盟真正的团结。
 
-主持人-劳伦：
+宣布退出消息的是立陶宛外长兰斯伯格斯。兰斯伯格斯通过电子邮件，对美国《政客》杂志（Politico）表示：“17+1”合作机制构成“分裂”因素，因此立陶宛决定退出。他呼吁欧盟成员国一致应对中共国，称“27+1”才是最有效的形式。“当所有27个成员国与欧盟机构一起行动时，欧盟才是最强大的。 ” 兰斯伯格斯说。
 
-Here was scientist journalist Nicholas Wade wrote about Fauci and others involvement of funding that money to WuHan
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23040428/C7354DC9-93A2-499D-BA1E-86D421C20115.jpeg)
 
-以下是科学记者尼古拉斯·韦德(Nicholas Wade)关于福奇和其他人参与向武汉提供资金的报道。
+所谓的“17+1”，是中共国与中东欧17国领袖会晤的机制，又称“17+1”合作机制。 该机制始于2012年，每年举行一次峰会，参与的欧洲国家大多来自前苏联。“17+1”一开始就被欧盟视为一个企图分裂欧洲的机制，被批评是中共拢络中东欧国家的手段。而中共国并未兑现所做出的投资承诺，贸易不成比例，只让中共国受惠，令参与国失望。
 
-“for the first three years of the grant… there was a moratorium on funding gain-of-function research
+在今年2月举办的中共国与中东欧国家峰会上，尽管中共国空前重视，宣布由国家主席习近平亲自主持通常由国务院总理李克强主持的这一峰会。中共国外交部也在幕后动作频频，希望各国领导人的出席能给足主持视频峰会的习近平面子，然而希望却落空。立陶宛、拉脱维亚、爱沙尼亚等6个国家带头降低以往出席峰会的参与层级，总统和总理不出席而由部长代替。习近平亲自主持的峰会参与层级创下历年最低。
 
-“在赠款…的头三年。暂停了对功能获得性研究的资助。
+习近平在峰会开幕式上表示，“我们本着‘17+1大于18’的信念……坚持大小国家一律平等，共商、共建、共享。” 法国《世界报》当时有评论讽刺称：会议的结果好像是“17-6，小于11了”。
 
-Why didn’t the two agencies therefore halt the Federal funding?….
+立陶宛外长兰斯伯格斯今年3月时就曾表示，中共国与立陶宛之间的合作几乎没有给他们带来任何好处。 因此，他强烈呼吁其它欧盟国家也放弃这一合作机制。
 
-为什么这两个机构没有因此停止联邦拨款呢？
+本周四，立陶宛国家议会正式通过决议，认定中共对维吾尔穆斯林实施了“种族灭绝”和“人类大屠杀”。立陶宛议会还呼吁联合国组织代表团前往新疆，调查大规模关押维吾尔人事件，并要求欧盟修正与中共国的关系。
 
-Someone wrote a loophole into the moratorium…
+最近几个月来，立陶宛多次主动采取惹恼中共的举动，除了上述事件外，还否决了中共国的投资，并且计划今年在台湾开设贸易办事处。
 
-有人在暂停该项目文件中…中写了一个漏洞。
+中共病毒疫情爆发后，中共国的形象变得更加可憎。特别是中共国近期在维吾尔人权问题上对欧盟采取的反制裁，对双边关系造成了前所未有的破坏。欧洲议会也因此决定冻结《欧中投资协定》，这是双边关系明显变坏的又一个显著例子。
 
-Dr. Anthony Fauci, or…Dr. Francis Collins,
+事实上，早就有学者分析认为，中东欧对中共国依存度不高。很多国家在不少领域——尤其是网络安全等领域，对中共国心存疑虑，同时也对“17+1”的必要性提出质疑。如今立陶宛带头退出了这一机制， 代表着中共国与中东欧合作机制已经“断链”，同时也显示欧盟将与美国在“人权抗共”问题上趋于同步，共同将中共国视为最大级别的威胁。
 
-安东尼·福奇(Anthony Fuci)博士，或…弗朗西斯·柯林斯博士。
+注：本文仅代表作者观点
 
-or maybe both, would have invoked the footnote in order to keep the money flowing…”
+参考链接：
 
-或者两者兼而有之，都会引用备注条款，以保持资金流动…。
+1. [https://www.epochtimes.com/b5/21/5/22/n12967180.htm](https://www.epochtimes.com/b5/21/5/22/n12967180.htm)
+2. [https://twitter.com/RFI\_Cn/status/1396234945014550528](https://twitter.com/RFI_Cn/status/1396234945014550528)
+3. [https://www.politico.eu/article/lithuania-pulls-out-china-17-1-bloc-eastern-central-europe-foreign-minister-gabrielius-landsbergis/](https://www.politico.eu/article/lithuania-pulls-out-china-17-1-bloc-eastern-central-europe-foreign-minister-gabrielius-landsbergis/)
 
-Senator, this is serious, we got all these people did
-
-参议员，这件事很严重，我们了解了这帮人做的这些
-
-We have all these horrible restrictions of Americans life let the normal suffering
-
-造成我们美国人要过可怕的限制生活，所有这些让正常的人受苦。
-
-Don’t we deserve any answer?
-
-难道我们不应该得到任何答案吗？
-
-Senator-Tom Cotton:
-
-参议员汤姆·科顿：
-
-We do deserve answer Lauren.
-
-我们理应得到答案，劳伦。
-
-Tony Fauci needs to give us an answer
-
-托尼·福奇需要给我们一个答案。
-
-Look, he’s wrong about a lots of last year
-
-听着，他去年很多事情都错了
-
-wrong about masks, wrong about schools,
-
-戴口罩的错误，学校指引的错误，
-
-Now he is wrong about summer camps for kids
-
-现在他对孩子们夏令营的做法是错误的。
-
-But he is also wrong today to say that NIH never directly or even indirectly funded this kind of research
-
-但他今天说国立卫生研究院从未直接或间接资助这类研究的说法也是错误的。
-
-that report mentioned by Nicholas Wade block buster recommend about all of you the audience to read it
-
-尼古拉斯·韦德(Nicholas Wade)提到的那篇报道推荐你们所有的观众去读一读。
-
-Tony Fauci and his agencies need provide answers to the American people
-
-托尼·福奇和他的代理们需要给美国民众确实的答案
-
-about what rule they had been played in funding research in this laboratory
-
-关于他们在资助这个实验室的研究中扮演了什么角色。
-
-Now perhaps, it wasn’t directly into what alertly resulted in this worldwide pandemic
-
-现在也许，这并不是直接导致这场世界性大流行的直接原因。
-
-But why in the first place, would American tax dollars be going to a Chinese Communist lab
-
-但为什么一开始，美国纳税人的钱就流向中国共产党的实验室呢？
-
-that was conducting some of the world most dangerous kind of research
-
-进行了一些世界上最危险的研究。
-
-in the laboratory that we know that we knew three four years ago have very low sloppy safety practices
-
-在我们知道的实验室里，我们三、四年前就知道有安全性很低的操作。
-
-It was extremely reckless
-
-这是极其草率的。
-
-Tony Fauci maybe a good scientist
-
-托尼·福奇也许是个好科学家。
-
-But doesn’t say no much about constitutional self government
-
-但对立宪自治并没有说太多。
-
-He was disrespectful to the United States Senate today
-
-他今天对美国参议院不够尊敬。
-
-And appears to disregard the direction of O’Bama White House five or six years ago.
-
-似乎也无视五六年前奥巴马白宫的领导。
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://twitter.com/sentomcotton/status/1392468278635810816?s=21](https://twitter.com/sentomcotton/status/1392468278635810816?s=21)
-
-英听校:康州盘古农场-WZ
-
-翻译: 康州盘古农场-WZ
-
-翻译终校: 康州盘古农场-格格巫
-
-字幕+视频制作:康州盘古农场-青梅煮酒
-
-审片: 康州盘古农场-银龙
-
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

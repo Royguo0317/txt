@@ -1,69 +1,190 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】官媒嘲讽香港公务员辞职 混淆概念鼓吹效忠
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1265838/)
+## 2021/05/23 英喜时事速递
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1265900/)
 
-作者：香草山教育组 新生
+收集：Alicia，Cindy，Daniel，Filon，The flying hawk，感言，文大石
+*（世界协调时）部分信息收集于网络世界的各方，请自行甄别*
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23045022/familyplan-1.jpg)
 
+## 喜站: [福奇甩锅！](https://gtv.org/getter/60a9a2953352b6526d0705cb)
 
+福奇辩解说，是世卫调查组宣称病毒源于自然，而他并不相信病毒源于自然，他支持彻查病毒来源。同时他还澄清与中国科学家只是小小的（minor）合作，因此就说病毒是他造的对他很不公平。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23042552/fauci1.jpg)观看视频：[https://gtv.org/f0a500df-ef39-4276-9ff8-258df4dd123b](https://gtv.org/f0a500df-ef39-4276-9ff8-258df4dd123b)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23030244/%E5%9B%BE%E7%89%8721-2.png)
-
-近日，上观新闻在网易发了一篇题为《月薪8万的香港公务员辞职：爱国与效忠特区政府竟然有错？》的文章。该文是对BBC中文网5月5日发文《国安法下，香港公务员面临“爱国还是政治中立”的两难选择》的回应。BBC一文报道了一位在香港政府从事文职工作多年的梁女士，最近坚决辞掉公职，以抗议政府要求像她这样的公务员宣誓“效忠特区政府”。乍一看标题，上观新闻的潜台词似乎是，月薪8万，是香港个人入息中位数1.7万港元近5倍，收入可观，因此该香港公务员不应该辞职，应该为“五斗米”折腰。
-
-根据维基百科资料，上观新闻（原名上海观察），是《解放日报》的一项新媒体计划，也是《解放日报》的官方网站。《解放日报》创刊于1941年5月16日，是中国共产党延安时期的政治理论刊物。现在发行的《解放日报》於1949年5月28日于上海创刊，是中共上海市委机关报，隶属上海报业集团。
-
-如果上观新闻的编辑是为了吸引眼球的缘故，特意注明该辞职公务员的月薪，这反倒起到了一个反效果。作为读者，我更好奇，为什么薪水这么诱人，而该公务员仍然要辞职？难道有什么特别的原因？真相到底是什么？
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23031118/12b79051fad7405fb1093f87fe1f671f.jpg)图片来源：网络
-
-根据BBC的报道，梁女士的主要担忧就是目前香港公务员逐渐失去了“政治中立”的自由，在行政和执法方面越发呈现出倾向和性针对性。此外，公务员队伍中逐渐出现了“打小报告”、互相举报等不良风气，大有文革再现的势头。在执法方面，梁女士举例说，近期香港海关搜查了亲民主派商店“阿布泰国生活百货”的20多家门市和仓库，指出该商家没有按法例在产品上贴上中英警告标签，该公司一位男董事被捕，一经定罪最高可被罚款十万港元和监禁一年。在职场风气方面，近来，香港的公务员队伍中出现了一万个举报案例，个人发布在社交平台的言论会被截图，有相关政治表述会被控诉，这样的行为导致了公务员群体中人心惶惶。
-
-在评论这个案例时，我们应该考虑新闻背后的潜在命题：什么是爱国？笔者依稀记得从小学开始教室就有标语，教育学生要“爱祖国、爱人民、爱中国共产党”。在CCP治下，爱国实际上等同于爱党。CCP多年来的宣传教育已经把党和国家、人民捆绑在一起，形成一种道义上的压力。因此，按照这个逻辑，如果你不爱党，就意味着你不爱国。具体分析梁女士的案例，上观新闻的逻辑为，梁女士不愿宣誓效忠特区政府就是不爱国。其实，梁女士仅仅是用自己的铮铮铁骨表明自己不认同近年来CCP对于香港“一国两制”、以及民主和自由的践踏。
-
-从CCP各级政府的发文也可以看出这种把党和国家、人民捆绑的痕迹。2019年11月，中共中央、 国务院印发的《新时代爱国主义教育实施纲要》里面有以下的表述：“中国共产党是爱国主义精神最坚定的弘扬者和实践者，90多年来，中国共产党团结带领全国各族人民进行的革命、建设、改革实践是爱国主义的伟大实践。”为了执行这一纲要，该文件指出应“广泛开展党史、国史、改革开放史教育”。可笑的是，墙国内的历史教育也是扭曲事实的带有倾向性的洗脑宣传。例如，近日，墙内历史教科书删除原有对于文化大革命的负面评价，就令人担忧。旧版教材写“毛泽东错误地认为，党中央出了修正主义，党和国家面临着资本主义复辟的危险”，而新版教材将“错误地”三个字以及“党中央出了修正主义”删除。教材还表述：“人世间没有一帆风顺的事业，世界历史总是在跌宕起伏的曲折过程中前进的。”这句似乎在为毛和第一代领导集体的错误辩护，有洗白和美化“文革”的嫌疑。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23025942/%E5%9B%BE%E7%89%8720-2.png)图片来源：RFA
-
-墙国内，“爱国主义教育”已经实现了全覆盖，从小学一直持续到硕士和博士研究生阶段。　目前墙国内已有200多所红军小学，学生们身穿“红军装”校服，接受红色教育，美其名曰“忆苦思甜”。教育部文件指出博士研究生阶段必须开设“中国马克思主义与当代”课、“马克思主义经典著作选读”课。例如，贵州省遵义市的杨得志红军小学从 2008年起被划归红军小学建设工程，学生每天上学都要身穿当年中共红军的灰色军装，佩戴红领巾和红军帽。该红军小学的课程安排包括“红色文化”课程，小学生在课堂上像军人一样唱爱国歌曲，讨论中共早期的历史故事，学习当地的红军历史。具有讽刺意义的是，当权者自己都不愿再过当年红军苦日子了，却妄图给下一代洗脑。
-
-荒唐的想法、可笑的行动，如此逆势，离灭亡还会远吗？
-
-参考资料：
-
-https://zh.wikipedia.org/wiki/%E4%B8%8A%E8%A7%82%E6%96%B0%E9%97%BB#%E5%8E%86%E5%8F%B2
-
-https://www.163.com/dy/article/GAKFHH5K055040N3.html
-
-https://www.bbc.com/zhongwen/simp/chinese-news-56925846
-
-https://www.bbc.com/zhongwen/simp/china/2014/09/140929\_patriotism\_china
-
-http://www.xinhuanet.com/politics/2019-11/12/c\_1125223796.htm
-
-http://www.moe.gov.cn/srcsite/A12/moe\_1416/s255/202002/t20200219\_422378.html
-
-http://www.moe.gov.cn/srcsite/A13/moe\_772/201008/t20100806\_108814.html
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15014027/5%E6%9C%88-1.jpg)
+> 评论：福奇反应真快啊，还没追究他的责任，就开始跳船了，个人猜测，这家伙知道瞒不住真相了，赶紧甩锅咯。
 
 
+## 澳喜农场Gnews：[只为苍生说人话，不为帝王唱赞歌](https://gnews.org/zh-hans/1263783/)
 
-**更多资讯，更多关注**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22022933/2021-05-21_Task6_Cover.jpg)
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+> 评论：如果没有爆料革命，你我他只是在各个角落独自奋斗的中国人，永远不可能有交集；有了爆料革命，将我们凝聚在了一起，为了心中自由、民主和法治的目标战斗，蜕变成只说人话的新中国联邦人。
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+## 英喜农场Gnews：[福奇下属是武毒所主办的《中国病毒学》编委会成员](https://gnews.org/zh-hans/1262719/)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![]()![](https://spark.adobe.com/page/TfSuG0uFfJs1P/images/6708f378-f155-4572-8138-2504be9efa22.jpg?asset_id=ecb805db-32f9-438a-83df-30ea9316a38d&amp;img_etag=%223130c1669f2f39dc48a0cf66c327bdab%22&amp;size=1024)
 
+
+> 评论：从福奇疫情初始以来的所有不符合正常医学博士身份逻辑的表现来看，福奇肯定是深度配合着这场灭绝人性的反人类超限生物武器战的。如今根据世界形势只是一味的甩锅并无法推脱其罪。蛛丝马迹迟早要被挖出，福奇还是应该放弃幻想，早日配合正义追责。
+
+
+## 英喜农场Gnews：[宾大收到创纪录的中共国捐款](https://gnews.org/zh-hans/1263550/)
+
+![]()![](https://spark.adobe.com/page/qO0WPIt26u5Te/images/1ca9fc3c-e3d9-4227-9bb0-edfae5842a3b.jpg?asset_id=0409fee8-7c9a-4abb-ae7c-bad012344a09&amp;img_etag=%22b8e1929988cfec731e5107640ff77707%22&amp;size=1024)
+
+
+> 评论：宾夕法尼亚大学的外国捐款有26%来自中共国，而拜登政府主要成员很多都和宾大有着千丝万缕的关系。看似走搞定精英路线后在世界稳操胜券的中共，恐将竹篮打水一场空。因为这场世界平民正义变革，精英们恐将渐失其领航世界的作用。
+
+
+## 索尼克Gnews：[中共国加紧促生 但越来越多年轻女拒生孩子](https://gnews.org/zh-hans/1262643/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/21141026/IMG_20210521_110836_597.jpg)
+
+
+> 评论：当生儿育女繁衍后代不再是一种快乐，就会彻底引发人们自身的思考，“我”存在于世的意义到底为何？恰恰是这种反思摸索指引着人们发现，原来中共就是一切不快乐的源泉。中共这是在自食其果，搬起石头砸了自己的狗头。
+
+
+## 环球网资讯：欧洲议会不理性做法无碍欧洲企业看好中国，默克尔呼吁欧洲与中国保持对话
+
+![欧洲议会冻结中欧投资协定后，德国总理默克尔表态了！|欧盟_新浪财经_新浪网]()![欧洲议会冻结中欧投资协定后，德国总理默克尔表态了！|欧盟_新浪财经_新浪网](https://n.sinaimg.cn/spider2021522/303/w640h463/20210522/16c4-kqhwhrm0254840.jpg)
+
+
+> 评论：中共从未遵守过一个国际协定，只会干自身钻空子行坑骗抢之事而要求对方遵守协定的流氓行径，并且一再破坏现有的国际秩序，并且传播中共的邪恶红色基因，口头上说互惠共赢实质上是要只占别人便宜赢两次，欧洲议会的动议有鉴于此所以非常的合理，因为这样中共就无法继续大张旗鼓地搞乱欧洲的秩序还有蓝金黄了。
+
+
+## 观察者网-新华社记者：我用两个单词 让BBC”认错”
+
+![新华社记者：我用两个单词让BBC&quot;认错&quot;|推特|罗斯|美国|舆论战|英国_网易新闻](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0522%2F83a75de5j00qthpeb002fc000u000h4m.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
+
+
+> 评论：如果此媒体人有本事跟中共的官媒党媒“斗智斗勇”才能算个真英雄，帮助中共做疯狗外宣把口炮打赢了也不等于能得到西方的尊重，最后的结果只会是被中共绑架成为牺牲品以及落下一个身败名裂的下场。
+
+
+## 环球网资讯：干涉中国内政！文在寅访美与拜登会面，韩美联合声明果然又提台海和南海
+
+![韩国总统文在寅在即将举行与拜登总统的首脑会谈之前释放新信号_网易订阅](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0521%2Fd3fa5d1bj00qtfz71002rd000sg00g0p.jpg&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
+
+
+> 评论：韩国总统文在寅知道了美国灭共的决心并且自知到了不得不选边站的时候了，因为跟着中共走对于文在寅自身以及韩国都不是一个好的出路，况且中共自身又被实锤定义为了种族灭绝罪将来那就是第二个纳粹甚至要定义比纳粹还要邪恶，但凡逻辑正常思路清晰的政客都会离这样的邪恶政权远远的生怕沾上边，而韩美之间的联合声明是韩美之间的内政，这跟中共国的内政半毛钱关系都没有。中共之所以急着站出来攻击韩美联合声明，是因为在地缘政治方面韩国离中共国太近，一旦韩国倒向美国，那么中共就会受到更大的战略威胁。
+
+
+## 环球网：英国航母即将启程前往亚洲，约翰逊又跳出来向中国喊话，网友戳破幻想！
+
+![英国航母即将启程前往亚洲，约翰逊又跳出来向中国喊话，网友戳破幻想！]()![英国航母即将启程前往亚洲，约翰逊又跳出来向中国喊话，网友戳破幻想！](https://rs1.huanqiucdn.cn/dp/api/files/imageDir/14693d51ca356e4307cf6d25f8aa54ceu5.jpg)
+
+
+> 评论：英国航母即将启程前往亚洲再加上近期的日法美联合军演这是向中共释放了一个重要的讯号，那就是世界上的正义力量为了维护国际秩序准备好要群殴邪恶的中共了，中共为了给自己壮胆也只能在网上借水军吼两嗓子了。
+
+
+## 欧盟将于7月1日开始推行“新冠通行证”
+![欧盟将于7月1日起开始推行“新冠通行证” - Europe 欧洲- cnBeta.COM]()![欧盟将于7月1日起开始推行“新冠通行证” - Europe 欧洲- cnBeta.COM](https://static.cnbetacdn.com/thumb/article/2021/0522/2d04a5e4c41ab2f.jpg)
+
+> 评论：欧盟推行“新冠通行证”，还不如追查病毒来源，做这种隔靴搔痒的无用功，对解决病毒的真相没一点积极作用。
+
+
+## 世卫组织：全球累计新冠确诊病例达165158285例
+
+![世卫组织：全球新冠肺炎确诊病例超1亿742万例- 欧洲头条-新欧洲华人新闻网](https://lh3.googleusercontent.com/proxy/k17AiszgINXkMkd-7nAHJLS--GKl_LRoJAFa8AsOmAvC3mOASJHrh9ZLhQAC6v96LhHZ3-KK8Q8ZXZwGI4N1-Sb5m-eMFTiqDITyl_vwry7Fb9X8_rSfadmdOBkMxkc)
+
+
+> 评论：中共国CCP的全世界杀戮时刻都在发生着，丝毫没有停止，CCP这次给地球人类带来的灾难前所未有，说什么CCP这次都要完了，天作孽犹可恕，自作孽不可活。
+
+
+## “杂交水稻之父”袁隆平去世 曾立志“杂交水稻覆盖全球”
+
+![杂交水稻之父”袁隆平去世曾立志“杂交水稻覆盖全球”_研究]()![杂交水稻之父”袁隆平去世曾立志“杂交水稻覆盖全球”_研究](https://p8.itc.cn/q_70/images03/20210522/341315530a9e466494794d41d57a7bc7.png)
+
+
+> 评论：在CCP统治下的中国，任何一个能被利用的人，包括死人都要被利用到极致，袁隆平今天被死两次，因为在中共国，只有新华社才能首先报道中国重要人物死亡的消息，另外，家属和中共必须就各种问题达成协议，才能公开宣布死亡，袁隆平其实和普通人一样生老病死，但是他的死却被活人用来做文章，中共有可能利用他的死在粮食问题上带风向。
+
+
+## 天津公安机关对一名针对袁隆平院士逝世在网上发表侮辱性言论的男子采取刑事强制措施
+
+![有人在网上侮辱袁隆平院士，警方出手！_工作]()![有人在网上侮辱袁隆平院士，警方出手！_工作](https://p6.itc.cn/q_70/images03/20210523/ed73b69454f444f89f81cde9d9544cbc.jpeg)
+
+
+> 评论：中共的言论高压已经快到顶了，现在倒计时，说不准哪天一觉醒来，CCP就嗝屁儿了，自信强国怕说真话，真是怕真相到了革命随时都会发生的时刻了。
+
+
+## 台湾今日新增700多例？陈时中用了一个词，被网友骂翻
+
+![台湾今日新增700多例？陈时中用了一个词，被网友骂翻|病例数|确诊者_网易订阅](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0522%2Fcb3dd76bp00qti38s0087c000ht00bvm.png&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
+
+
+> 评论：台湾这次莫名其妙疫情就严重了，都心知肚明知道是CCP投的毒，但目前除了爆料革命，没有一个国家敢站出来向CCP要解药及追责补偿，可见，CCP在全世界渗透有多夸张严重，四百多万人说没就没了，每个人活的都没有安全感，多么悲惨的世界。
+
+
+## 99岁“中国肝胆外科之父”逝世，两年前刚退休，一辈子站在手术台前
+
+![99岁“中国肝胆外科之父”逝世，两年前刚退休，一辈子站在手术台前|肿瘤|裘法祖_网易订阅](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0522%2F0d6a13cdj00qtig54000kc000dw009am.jpg&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
+
+
+> 评论：生为党的人，死为党的鬼，党让您死，您不能多活一秒，尊重死者，但CCP的邪恶必须要付出代价。
+
+
+## 德国之声：[德语媒体：共同抗衡中国](https://www.dw.com/zh/%E5%BE%B7%E8%AF%AD%E5%AA%92%E4%BD%93%E5%85%B1%E5%90%8C%E6%8A%97%E8%A1%A1%E4%B8%AD%E5%9B%BD/a-57617577)
+
+![Symbolfoto Verhältnis USA EU]( "Symbolfoto Verhältnis USA EU")![Symbolfoto Verhältnis USA EU](https://static.dw.com/image/43839714_303.jpg "Symbolfoto Verhältnis USA EU")
+
+
+> 评论：拜登通过缓和欧美贸易争议以达到联合欧洲灭共。
+
+
+## 德国之声：[客座评论：欧洲价值与中国反制裁的代价](https://www.dw.com/zh/%E5%AE%A2%E5%BA%A7%E8%AF%84%E8%AE%BA%E6%AC%A7%E6%B4%B2%E4%BB%B7%E5%80%BC%E4%B8%8E%E4%B8%AD%E5%9B%BD%E5%8F%8D%E5%88%B6%E8%A3%81%E7%9A%84%E4%BB%A3%E4%BB%B7/a-57616617)
+
+![Symbolbild EU - China ]( "Symbolbild EU - China ")![Symbolbild EU - China ](https://static.dw.com/image/56085613_303.jpg "Symbolbild EU - China ")
+
+
+> 评论：欧洲议会高票通过了“关于中国对欧盟实体以及欧洲议会议员制裁”决议案，同意冻结《欧中投资协议》。这标志着欧洲正在重新确认基本自由、言论自由、学术自由和捍卫人权等议题，并对中共形成政治和外交上的压力。
+
+
+## 德国之声：[长平观察：中国“屌丝”的“内卷”与“躺平“](https://www.dw.com/zh/%E9%95%BF%E5%B9%B3%E8%A7%82%E5%AF%9F%E4%B8%AD%E5%9B%BD%E5%B1%8C%E4%B8%9D%E7%9A%84%E5%86%85%E5%8D%B7%E4%B8%8E%E8%BA%BA%E5%B9%B3/a-57594567)
+
+![China Shanghai | Menschenmenge in Einkaufsstraße]( "China Shanghai | Menschenmenge in Einkaufsstraße")![China Shanghai | Menschenmenge in Einkaufsstraße](https://static.dw.com/image/54728725_303.jpg "China Shanghai | Menschenmenge in Einkaufsstraße")
+
+
+> 评论：躺平主义”近日成为中国互联网流行词。时评人长平认为，“躺平”需要社会福利、司法独立和思想自由，中共不会容忍真正的社会反抗。
+
+
+## 路透社：[习近平：搞政治操弄只会扰乱国际，抗疫合作要坚持公平合理，弥合“免疫鸿沟”](https://cn.reuters.com/article/china-xi-globalcovid-vaccine-0522-idCNKCS2D302R?il=0)
+
+![习近平在全球健康峰会上的讲话（全文）-新华网](https://lh3.googleusercontent.com/proxy/T8fjL43iVbT1mGvHwFX5cEVBSGUsqFeGNVnkDqUzgd5gmCePiqczz8PCzA3mq87EzAHLHZg-MwgqiPS7F-23boq9VEo02X3x_FCeUr4dYDIw4aSbHDj69rMW)
+
+
+> 评论：中共制造并投放了病毒，在世界进行超限生物战，真是卑鄙无耻。
+
+
+## 路透社：[中国部分政府机关禁止员工在办公区停放特斯拉汽车](https://cn.reuters.com/article/china-government-compounds-tesla-0521-idCNKCS2D20CZ)
+
+![担心遭泄密传中国禁止特斯拉汽车进入军队营区和家属院](https://s.rfi.fr/media/display/9c150a78-88bf-11eb-bf88-005056bff430/w:900/p:16x9/002iCPmily1goph8ql92aj60kj0ymaiu02.webp)
+
+
+> 评论：在中共国遍地都是监视老百姓的摄像头，居然说特斯拉的车内摄像头存在安全隐患。
+
+
+## 新唐人推文
+
+
+
+> 王赫：文在寅訪美與韓國對華政策轉變 [#文在寅](https://twitter.com/hashtag/%E6%96%87%E5%9C%A8%E5%AF%85?src=hash&amp;ref_src=twsrc%5Etfw) 的5天美國之旅，對他個人和 [#韓國](https://twitter.com/hashtag/%E9%9F%93%E5%9C%8B?src=hash&amp;ref_src=twsrc%5Etfw) 都極為重要。最大的看點，乃是文在寅在美中之間如何彈鋼琴。傳統的「安全靠美國，經濟靠中共」、避免在 [#美中](https://twitter.com/hashtag/%E7%BE%8E%E4%B8%AD?src=hash&amp;ref_src=twsrc%5Etfw) 之間選邊站的戰略思路，現在必須要有所轉變了。[https://t.co/aPncyMgzad](https://t.co/aPncyMgzad)
+> — 新唐人電視台 (@NTDChinese) [May 22, 2021](https://twitter.com/NTDChinese/status/1396207492691021824?ref_src=twsrc%5Etfw)
+
+
+
+
+> 评论：所有灭共战线牢固后，中共弹指间，灰飞烟灭。
+
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

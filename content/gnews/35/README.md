@@ -1,89 +1,145 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【文雍漫谈】人云亦云的讴歌和批倒批臭的贬损是一回事
-` 文雍` [轉載自GNews](https://gnews.org/zh-hans/1265894/)
+## 安东尼·福奇和美国国立卫生研究院需要向美国人民提供答案
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265779/)
 
-```
-作者：文雍 | 伦敦英喜庄园 Himalaya UK | 美工/排版：齐天二圣
-```
+字幕内容：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23003027/20210522-01.jpg)
-5 月 22 日是个非同寻常的日子，24 小时内，发生了好多惊天地泣鬼神的大事。
+Host- Lauren:
 
-最让人愤怒的是发生在大连的一起车祸：一个据说被女友割席的男人在人行过道上开飞车，造成四死三伤，其状之惨让人不忍卒睹。目击者说：撞了一街人，有人当场变成碎块。这样的肇事者，当他投胎来的时候，上帝疏忽了，出厂配置的时候少了一个叫做「人化」的流程。
+主持人-劳伦：
 
+Here was scientist journalist Nicholas Wade wrote about Fauci and others involvement of funding that money to WuHan
 
+以下是科学记者尼古拉斯·韦德(Nicholas Wade)关于福奇和其他人参与向武汉提供资金的报道。
 
-因为当天有更加刺眼的事件，所以大连宝马男撞人案迅速闪过，并没有引发热议，活生生的四条命就没了。这事如果发生在美国，中共央视肯定 24 小时滚动播出后续了。
+“for the first three years of the grant… there was a moratorium on funding gain-of-function research
 
-另一件在中共国创造历史之最的是地震。**一天震 6 次**，分布在不同的省份，土地爷维稳都忙不过来了，其中发生在青海的震级 7.4，按照中共大跃进式的建筑质量，人员伤亡一定不可避免，吊诡的是把电脑搜死机都没发现相关报道。这届删帖粉红挺敬业。
+“在赠款…的头三年。暂停了对功能获得性研究的资助。
 
-更加登峰造极的是一天之内一个人竟然死两次。**「杂交水稻之父」袁隆平**化腐朽为神奇的功夫在他生命的最后一天再次展现。先是在 CGTN 里过世，随后 CGTN 又道歉又辟谣；而紧接着大小媒体又一片「走好」，这次真的死了。另一个晚走两分钟的肝胆外科专家吴孟超的谢幕却显得冷清了许多，同为一代传奇，可见**一腔肝胆抵不上二两稻米**。
-![91岁袁隆平逝世：稻田里的守望者和他的两个梦想-财经-中财商讯](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0522%2F1bd7f50dj00qtiac5000sc000g500a1g.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)图片来源于网络
-诗人臧克家留有一篇脍炙人口的诗，当时没懂，现在看明白了。该诗人是说：有的人死了他实际上没死，有的人活着他实际上已经死了。
+Why didn’t the two agencies therefore halt the Federal funding?….
 
-这是对中共统治的最完美诠释：生由不得你，死还是由不得你。位高权重的人，死也要择时而死，不能随便说死就死。党让什么时候死就什么时候死，党让怎么死就怎么死。
+为什么这两个机构没有因此停止联邦拨款呢？
 
-袁老先生死去活来一折腾，又扒了中共的底裤。他生前做得最棒的一件事是接受央妈《人物》节目的专访，以一名亲历者的身份，讲述了他亲眼见到五具饿殍，以及中共统治者在**大饥荒中曾经饿死几千万人**的惨绝人寰的事实。
+Someone wrote a loophole into the moratorium…
 
-当然，中共从来不会承认这个事实，也永远不会承认他们犯下的这桩反人类大罪，他们的治下不会有真相，只有谎言。这个外强中干的政权什么都怕，已经到了草木皆兵的程度。就连几只小豹子的脱逃都遮遮掩掩不敢公布，满世界悄悄找那几只豹子胆还没长全的小家伙，搞的跟林冲夜奔似的，把大杭州一夜变成林教头风雪山神庙，这种脆弱的玻璃心也配做物业管理员？
+有人在暂停该项目文件中…中写了一个漏洞。
 
-「死去活来」，是对往生者最大的不敬，也是对其亲人的不敬和侮辱。中共治下一切都工具化，就连什么时候死都不是自己说了算，当然也不是阎王说了算，而是中共这个活阎王说了算！活的人，这个活阎王会榨干你的最后一滴血，死了的，这个活阎王要挤干你最后一口气。
+Dr. Anthony Fauci, or…Dr. Francis Collins,
 
-网上对袁隆平先生褒贬不一。本来，人死为大，是中国文化中一个比较厚道的传统。可是随着中共假骗偷的治理模式干扰日深，人们已经掉进**塔西陀陷阱**，不管你说什么我都不信、都反对。日子久了，竟然神奇地发现所有的反对都对了，于是更加强化了反对的正确性，也更加锤炼了中共的无耻性。
+安东尼·福奇(Anthony Fuci)博士，或…弗朗西斯·柯林斯博士。
 
-无论如何，袁隆平先生一生不离基层，勤事稼穑，这一点是无可厚非的。而且老先生品行端正，不是那种四处张牙舞爪装权威的为老不尊的家伙。袁先生一心埋头干活，且不夹带私货，没有利用权威倾销莲花清瘟大米。他所做的就是一个科学工作者孜孜以求的科研。
-![袁隆平：“我毕生的追求就是让所有人远离饥饿”_新浪财经_新浪网]()![袁隆平：“我毕生的追求就是让所有人远离饥饿”_新浪财经_新浪网](https://n.sinaimg.cn/sinakd2021522s/445/w750h495/20210522/5183-kqpyffy7342994.jpg)图片来源于网络
-这位 1953 年毕业于农学院的专家，在其老师的引导下，避开当时全面学苏联的学术氛围，主动研读孟德尔 · 摩尔根的遗传学，并于 1966 年发表关于水稻杂交的专业论文。
+or maybe both, would have invoked the footnote in order to keep the money flowing…”
 
-1966年，不妨穿越一下，那正是各种内斗如火如荼的时候，文化大革命的序幕拉开的时候，他能在那种环境下发表如此重磅的学术文章，有多么艰难，而那时，他的导师已经被打成牛鬼蛇神，批斗好几轮了。
+或者两者兼而有之，都会引用备注条款，以保持资金流动…。
 
-当然，杂交水稻之父这个「**之父**」，是有待商榷的。因为比他早三年，既1963年，美国人 Henry Beachell 就在印尼成功完成了杂交水稻的试验。这个科学家是被世界公认的水稻之父，却没有听到哪个美国人感谢他。可是袁隆平先生在中共国的待遇就大为不同了，简直就是中国人民大救星第二，许多人认为他**解决了中国人挨饿的问题**。
+Senator, this is serious, we got all these people did
 
-我们再开个脑洞：假如袁先生是个朝鲜科学家，他现在就在朝鲜，他能解决朝鲜人民挨饿的问题吗？欧美没有袁隆平，欧洲人美国人饿死了吗？
+参议员，这件事很严重，我们了解了这帮人做的这些
 
-三年「自然灾害」，袁先生自己都差点饿死。吃饭的问题是**体制问题**，是市场经济的政策使全球交易成为可能，使劳动力转化为口粮成为可能，让大家吃饱饭的不是科学家，而是**制度**。不要神话科学家，更不要神话政治野心家，让大家饿死的恰恰是那些梦想统治全世界的野心政客！如果他们的权力得到约束，人类要美好多少倍啊。
+We have all these horrible restrictions of Americans life let the normal suffering
 
-迷信比无知更可怕，今天盲目崇拜、讴歌科学家，把有饭吃说成是科学家的功劳，明天再出一个二杆子领袖，闭关锁国，粮食无法自给自足了，又有人饿死了，是不是还让科学家背锅？是不是又要把这些科学神批倒批臭，再踏上十四亿只脚，让他永世不得翻身？
+造成我们美国人要过可怕的限制生活，所有这些让正常的人受苦。
 
-理性地看看相关中国人民脱离忍饥挨饿的历程中的那些数据，你会惊异地发现这个杂交水稻的问题又是一个中共制造的弥天大谎。今天，「诋毁」袁隆平院士的人又被抓了，删帖封号抓人三部曲又开始了。请大家关注几个问题，自己去搜索，答案不言自明。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23010925/WhatsApp-Image-2021-05-22-at-8.56.18-PM.jpeg)图片来源于网络
-首先，杂交水稻对国民填饱肚子的贡献到底有多大？我们为什么会默认「粮食＝水稻」？事实上，我们的主粮中，水稻在谷物类的比重只占三分之一，而杂交水稻，又只占水稻的五分之一左右，袁先生的杂交水稻，又是这三分之一的五分之一的十分之一。
+Don’t we deserve any answer?
 
-数学好的自己算算，这个比重能养活多少人？而其成本高到惊人，因为中共要造神，要显示自己超英赶美， 要在实验田里把每一根苗当祖宗一样侍候，最后得出一个喜大普奔的结论：亩产多么牛逼！而这个数字目前为止，仅仅停留在实验田里。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23010948/WhatsApp-Image-2021-05-22-at-8.56.08-PM.jpeg)中国种植水稻品种排名 – 袁隆平的杂交水稻只占很小份额![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23011014/WhatsApp-Image-2021-05-22-at-8.56.14-PM.jpeg)袁隆平的杂交水稻
-关于杂交水稻的本质，其实是全国各地运动式搞科研的一个「杰作」。袁隆平的文章发表十年也没什么反响，1976 年，那个办事让腊肉放心的华主席上台了，靠山躺平战功寥寥的他，太需要一场【大规模杂交育种实验运动】建功立业了。腊肉反科学的折腾让民怨沸腾，他「尊重科学」就显得无比正确，就能与「永垂不朽」的划清界线。
+难道我们不应该得到任何答案吗？
 
-那时候，该打倒的科学家都打倒了，放眼四望，袁隆平老先生还在，就他了。趁着大家对饥饿都记忆犹新，大干快上，一场轰轰烈烈的杂交科学实验又开始了。于是，杂交水稻研究被无限拔高，宣传阵容直逼两弹一星，成了中共不能败的科研阵地排头兵。
+Senator-Tom Cotton:
 
-2006 年，袁隆平赴京看望华国锋，两人的手握在一起半小时，百感交集尽在不言中。此后，袁先生公开说：如果没有华国锋同志的支持，杂交水稻的推广会非常困难的。
+参议员汤姆·科顿：
 
-所以，真正能让中国人吃饱饭的，不是哪个科学家，是**我们自己的劳动转化成的生产力可以自由交换**，这个成果值得中国人民去守护，这一点相当重要。如果还是人云亦云地迷信某个神，歌颂某个神，任他胡作非为，再来一次文革、再来一次闭关锁国，然后我们迷信自己的杂交水稻神话，以为只要饿不死一切都是小事，那我们真的离下一场大饥荒不远了。
-![]()![](https://spark.adobe.com/page/TpJocOn8rn7jt/images/d4790dd5-3591-4563-95cb-81a2dc95a8b2.png?asset_id=cb0c9ddf-8396-48bb-a41e-7a777433a539&amp;img_etag=%22c238128d3b6d8e3ea97d8367127f9a3a%22&amp;size=1024)
-本文仅代表作者观点。
+We do deserve answer Lauren.
 
-* * *
+我们理应得到答案，劳伦。
 
+Tony Fauci needs to give us an answer
 
-```
-阅读更多【文雍漫谈】专栏相关文章：
+托尼·福奇需要给我们一个答案。
 
-【文雍漫谈】大厦将倾 躺平则赢 
-【文雍漫谈】一场自我终结的躺平运动已悄悄降临
-【文雍漫谈】如果再回到从前
-【文雍漫谈】一梦四甲子 中西两重天 
-【文雍漫谈】中共治下的母亲 没有节 只有劫
-【文雍漫谈】死了都要罚 
-【文雍漫谈】是什么让他们对孩子举起了屠刀 
-【文雍漫谈】如果不是清华女生 她们的舞姿会被热议吗
-【文雍漫谈】各位读者 你们知道这个问题的严重性吗
-【文雍漫谈】绝命毒师的面具还能戴多久
-```
+Look, he’s wrong about a lots of last year
 
+听着，他去年很多事情都错了
 
-**或使用 gnews 搜索「文雍」阅读更多**
-搜索
-搜索
-![此图像的alt属性为空；文件名为d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpeg]()![此图像的alt属性为空；文件名为d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpeg](https://gnews.org/wp-content/uploads/2021/04/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpeg)
-+1
+wrong about masks, wrong about schools,
+
+戴口罩的错误，学校指引的错误，
+
+Now he is wrong about summer camps for kids
+
+现在他对孩子们夏令营的做法是错误的。
+
+But he is also wrong today to say that NIH never directly or even indirectly funded this kind of research
+
+但他今天说国立卫生研究院从未直接或间接资助这类研究的说法也是错误的。
+
+that report mentioned by Nicholas Wade block buster recommend about all of you the audience to read it
+
+尼古拉斯·韦德(Nicholas Wade)提到的那篇报道推荐你们所有的观众去读一读。
+
+Tony Fauci and his agencies need provide answers to the American people
+
+托尼·福奇和他的代理们需要给美国民众确实的答案
+
+about what rule they had been played in funding research in this laboratory
+
+关于他们在资助这个实验室的研究中扮演了什么角色。
+
+Now perhaps, it wasn’t directly into what alertly resulted in this worldwide pandemic
+
+现在也许，这并不是直接导致这场世界性大流行的直接原因。
+
+But why in the first place, would American tax dollars be going to a Chinese Communist lab
+
+但为什么一开始，美国纳税人的钱就流向中国共产党的实验室呢？
+
+that was conducting some of the world most dangerous kind of research
+
+进行了一些世界上最危险的研究。
+
+in the laboratory that we know that we knew three four years ago have very low sloppy safety practices
+
+在我们知道的实验室里，我们三、四年前就知道有安全性很低的操作。
+
+It was extremely reckless
+
+这是极其草率的。
+
+Tony Fauci maybe a good scientist
+
+托尼·福奇也许是个好科学家。
+
+But doesn’t say no much about constitutional self government
+
+但对立宪自治并没有说太多。
+
+He was disrespectful to the United States Senate today
+
+他今天对美国参议院不够尊敬。
+
+And appears to disregard the direction of O’Bama White House five or six years ago.
+
+似乎也无视五六年前奥巴马白宫的领导。
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频连接: [https://twitter.com/sentomcotton/status/1392468278635810816?s=21](https://twitter.com/sentomcotton/status/1392468278635810816?s=21)
+
+英听校:康州盘古农场-WZ
+
+翻译: 康州盘古农场-WZ
+
+翻译终校: 康州盘古农场-格格巫
+
+字幕+视频制作:康州盘古农场-青梅煮酒
+
+审片: 康州盘古农场-银龙
+
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

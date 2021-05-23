@@ -1,149 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫丽梦博士告诉TIMES NOW，指责中共将冠状病毒作为生物武器
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265689/)
+## 极端天气能成为马拉松惨剧的借口吗？
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1265764/)
 
-字幕内容：
+**撰稿：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23014349/27.jpeg)
+法新社报道，在中国甘肃白银市附近的山地举行一场百公里越野赛时，突然遭遇极端天气，至少16名选手遇难，另有5名选手失踪。
 
-what you are saying the message you are giving to the Indian government is very very important
+法新社援引新华社报道，2021年5月22日，甘肃省白银市举办第四届黄河石林山地马拉松百公里越野赛，当天13时左右，百公里越野赛高海拔段20公里至31公里处，受突变极端天气影响，出现冰雹、冻雨、大风灾难性天气，气温骤降，参赛人员出现身体不适、失温等情况，部分参赛人员失联。
 
-你所说的，你提供给印度政府的信息是非常非常重要的
+共有近万人参加这次比赛，其中172名选手参加百公里越野赛。截至5月23日早晨3时，151名选手确认安全，16名选手确定遇难，另有5名选手失联，仍在搜救中。但由于赛段内地形地貌复杂，夜间气温很低，搜救难度很大。
 
-something that India really needs to look at very very seriously
+在墙国，飞来横祸其实并不是意外或者是天灾，而是缺乏规则和社会底线所引发的人祸。
 
-印度真的需要非常严肃地看待这些信息
+马拉松比赛本是一场强民健身的运动赛事，这几年正逐渐成为全民参与的全城健康项目，甚至像上海、厦门等多地的国际马拉松比赛成为了大家挤破头要摇号报名的热门项目，可谓参与热情盛况空前。
 
-it is, according to you, is  a bio weapon targeted at India
+马拉松比赛背后的巨大产业链也是各大城市争相要举办的原因。很多选手因为到各地参赛，成为了当地人口的导入源头，带动了当地的旅游、餐饮等一系列消费行业，甚至配合马拉松而生的运动装备也成了消费热点。
 
-据你所说，这是一种针对印度的生物武器
+全民运动本是值得鼓励的事，但照搬到中共，总会有种种意外发生。像今早的这起惨剧，让人痛心之余，剖析问题的本质才能明白现在墙国的一系列危险。
 
-last question before we let you go,
+在中国境内（不包含港澳台地区），如果想举办一场正规马拉松赛事，首先需要符合由中国田径协会所公布的赛事认证，赛事认证分为4类：不同的类别对于细节的要求都不一样，而在安全保障要求上，就规定的更为细致。
 
-在你离开之前让我再问最后一个问题：
+首先需要考虑的就是比赛当日的气温与湿度。出于安全考虑，一般马拉松最好的跑步环境在气温在5-15℃、相对湿度在50-60%左右、微风、阴天，这对于大多数跑者而言也是相对舒适的。而位于宁夏的这场比赛举办之前，难道当地没有对气候条件做过判断吗？明知有极端天气发生，还要举办我想不太可能，大概率是，比赛的主办方，根本就没有考虑过气候等一系列环境因素。
 
-how are you coping now ? do you continue to fear for your safety?
+第二要考虑的是赛道。起点观众疏散方案和安全保障措施，甚至要经过当地公安部门认可，以防止发生意料之外事故时方便观众和跑者疏散；如果赛事过大，为确保赛事安全有序，则一般采用分时、分区、分枪跑的形式来缓解赛道沿途的风险，这也能缓解补给的压力，避免发生到补给站时得不到补给的情况；以及在这时较为特殊的时期还会联系当地计生委等部门，进行设置医疗、健康、防疫等措施。
 
-你现在境遇如何？你是否继续担心你的安全？
+途中的标识牌也要做到清晰，因为能够有效为防止跑错路的情况发生。一般在赛道上必须每公里设置1块公里牌，在折返、拐弯、分道路段设标识牌；终点前100米处，须设置终点标识牌和运动员分流标识牌；标识牌需要足够清晰、显眼，数量要充足、高度适宜便于观看识别、需足够牢固且不得妨碍跑步路线。在报道的惨剧中，许多参赛选手是因为迷路而遭到不测的，那想请问主办方，赛道途中是否做到标识牌清晰无误呢？
 
-becauseyou’ve been one of the very few people in this entire world
+最后是要考虑到最重要的医疗保障。赛事组委会在设定赛事方案时，会制定除详细的医疗方案，如急救、健康护理、救护车、各医疗站位置以及所能提供的医疗服务，还有最重要的针对突发事件的应急预案。同时会挑选比赛线路沿线的医院作为组委会官方医院，并会标明医疗地点，为选手开通绿色急救通道。根据比赛实际情况设立足够的医疗救护车、移动医疗救护设备(包括AED)、医疗站和医护人员，在赛道沿线将会安排足够的医疗志愿者进行服务，能够及时发现及时援救。如果本案例中的医疗保障落实到位的话，又怎么会发生那么多队员因救援不及时而遇难的情况的呢？
 
-因为你是全世界极少数的人之一
+马拉松作为一项在海内外都很受欢迎的运动，能够持续至今，一定有其完备的规则和赛制流程，而中共国，只看到比赛背后的商机，却无视比赛本身存有的安全隐患，这种为利益而不顾人员健康的做法，像极了墙国冷漠、自私、贪财的作风，但到最后，又有谁会相信，本来参加比赛强身健体，也出于对主办方专业的信任，最后却能把生命也赔进去，实在一声叹息。
 
-who in fact have very openly spoken about corona virus and its origin that it is a
+（本文只代表作者观点，与Gnews平台无关。）
 
-公开地讲出新冠病毒和它的起源
+**新闻来源：**
 
-man-made virus something that was invented in a lab and it is not natural
+[中国甘肃百公里越野赛至少16名选手遇难 (rfi.fr)](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210522-%E4%B8%AD%E5%9B%BD%E7%94%98%E8%82%83%E7%99%BE%E5%85%AC%E9%87%8C%E8%B6%8A%E9%87%8E%E8%B5%9B%E8%87%B3%E5%B0%9116%E5%90%8D%E9%80%89%E6%89%8B%E9%81%87%E9%9A%BE)
 
-认为它是一种人造的病毒，并且是在实验室里创造的，而不是自然产生的
+***校对发布**：文顾*
 
-how are you coping up now?
-
-你现在境遇如何？
-
-actually, since I came to US, yes I have met about a difficulties,
-
-实际上，自从我来到美国，是的，我遇到了一些困难
-
-especially China  government using thousands of ways because that is a national power to chase me
-
-特别是中共政府利用国家权力，使用各种手段来追捕我
-
-and try to make me disappeared
-
-中共试图让我消失
-
-so they attacked me online, they attacked me on media even the western media.
-
-所以他们在网上攻击我，在媒体上攻击我，甚至在西方媒体上攻击我
-
-and also they make up a lot of misinformation to mislead the western countries
-
-他们还编造了很多错误的信息来误导西方国家
-
-but  the good thing is we are promoting the things to the right direction.
-
-但好在我们正在推动病毒真相朝正确的方向发展
-
-and I have published three reports from last September to now , and which are  listed on my twitter
-
-从去年9月到现在，我已经发表了三份报告, 在我的推特上可以看到
-
-and there are over millions of people read it and downloaded it
-
-已经有超过百万人阅读和下载了这些报告
-
-I get a lot of feedback from governments and also the scientists
-
-我得到了来自政府和科学家的很多反馈
-
-they are talking to me said this is very very useful
-
-他们跟我说, 这是非常非常有用的
-
-and they do think this is from the lab.
-
-他们确实认为病毒是来自实验室
-
-and they think my evidence is quite solid including scientific ones and also intelligent ones,
-
-而且他们认为，无论是在科学方面还是在情报方面，我的证据都是相当坚实的
-
-so we can say people, yes they need time to understand it,
-
-所以我们说，是的，人们需要时间来理解它
-
-because in that PLA document, they also claimed that this is something that innocent   people cannot realize
-
-因为在解放军的那本教科书里，中共也承认这是善良的人无法理解的事情
-
-including innocent Chinese and innocent foreigners
-
-包括善良的中国人和善良的外国人
-
-and that’s because of deny and also misinformation they can make the people get
-
-因为中共的否认和传播错误信息，使人们感到困惑
-
-confused and finally waste their time, waste their life and so the bioweapon can work very well.
-
-最终浪费他们的时间，浪费他们的生命，从而使生物武器可以很好地发挥作用
-
-the thing that is their purpose
-
-这是中共的目的
-
-but I won’t tell you a as I say more and more people stand out to support more investigation
-
-但这不必由我告诉你。正如我所说的，有越来越多的人站出来要求更多的调查
-
-both on the lab origin and also bioweapon.
-
-包括对实验室起源和生物武器计划的调查
-
-I think there will be more good progress in the future and I will keep fighting on that.
-
-我认为未来会有更多好的进展，我将继续为此而奋斗
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接: https://twitter.com/timesnow/status/1391948816861986821?s=24
-
-英听校：    康州盘古农场 – Mike Li
-
-翻译：       康州盘古农场 – Mike Li
-
-翻译终校：康州盘古农场 – 柯镇恶
-
-字幕+视频制作：康州盘古农场-天涯行
-
-审片**：**康州盘古农场-银龙
-
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
++1

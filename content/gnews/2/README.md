@@ -1,40 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/05/22 文贵盖特精要-001
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1265972/)
+## 【币圈】-数字货币动态-2021.5.23
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1266110/)
 
-听写： 万物归一 | 校对/审核：樂禧禧 | Page：我是球大哥
+*喜马拉雅华盛顿DC 编辑：aQ*
+![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image5-1024x576.jpg)
+## **每日一问**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/rV66OwpoVhsXD/images/e3482ffb-a051-41b9-8963-3ae09f16a08d.jpg?asset_id=411e8e8e-b795-4896-8511-e032af999e93&amp;img_etag=%2284dfb02b5067bfec739d695d421753e0%22&amp;size=1024)](https://spark.adobe.com/page/rV66OwpoVhsXD/images/e3482ffb-a051-41b9-8963-3ae09f16a08d.jpg?asset_id=411e8e8e-b795-4896-8511-e032af999e93&amp;img_etag=%2284dfb02b5067bfec739d695d421753e0%22&amp;size=1024)
+*币圈的周末，躺平前，思考下HCN和PoS的关系？*
 
-**五月二十号：尊敬的战友的好！共产党的流氓统治极权！正在被全世界正义的力量围缫中！每天每时每刻都在加速共产党这个流氓体制．政权的灭亡！我们的爆料革命和新中国联邦！应该做更多的实际行动，唤醒全世界正义和勇敢的人们．加速共产党的灭亡……**
+## **喜马拉雅Coin要闻**
 
-[G-TV链接](https://gtv.org/getter/60a91d6693cb4b1e6f9bd7f0)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/rV66OwpoVhsXD/images/0863dd05-0f03-401d-8c19-09738e1a5e87.png?asset_id=2cebb9df-77bb-4eea-8128-698d6bce8908&amp;img_etag=%22434602c9c60ab920d452a4a4c5ef6513%22&amp;size=1024)](https://spark.adobe.com/page/rV66OwpoVhsXD/images/0863dd05-0f03-401d-8c19-09738e1a5e87.png?asset_id=2cebb9df-77bb-4eea-8128-698d6bce8908&amp;img_etag=%22434602c9c60ab920d452a4a4c5ef6513%22&amp;size=1024)
-
-• 昨天福克斯对闫丽梦博士进行了采访，背后有着正义力量的推动，震撼了世界。文贵希望闫丽梦博士不要在乎一些虚假的荣誉，科学家天使最重要的是让世界知道真相，减少人类的灭亡，她有上天的使命。
-
-• 国内一系列天灾人祸不断的发生着，中共内部的政治斗争到了水火不融的地步，中共军方进入残酷的斗争之中，涉及到贪污的军费，大额的军费订单，枪把子指挥谁。中共国军队从来没想过打别人，打自己人优先。中国人不打中国人，只杀中国人。
-
-• 欧中协议，日中协议全部废除，中巴关系，中俄关系都靠不住了，中东和中共关系最铁的几个国家很快会变成敌人。
-
-• 中共核心的几个人物的家人都携家带口的往美国，欧洲和日本跑，整个中共官场要大地震了，共产党完蛋了。
-
-• 香港逃出来的一些兄弟看到了西方的文明，和香港现状的对比， 感到很痛苦，他们是我们的英雄，香港是我们的圣城。
-
-• 全世界只有我们爆料革命，新中国联邦人敢讲真话，各农场要找出最高水平的人做出高水平的节目和直播，以毒灭共，以钱灭共，让所有人通过GNEWS，GTV，盖特看到共产党在世界上犯下的罪行，不仅种族灭绝、反人类罪，它还正在犯着要消灭全世界的罪，它是全世界的威胁。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+- No news is good news.
 
 
-编辑：【英国伦敦喜庄园编辑部】
+## **新闻动态**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/rV66OwpoVhsXD/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/rV66OwpoVhsXD/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+1. 5月22日是一年一度的Bitcoin Pizza Day。
+2. 在5/19加密市场崩跌之际，各主流交易所Binance、Coinbase、Gemini、KuCoin，甚至是加密银行Revolut都出现停机情况。细思极恐。
+3. 加拿大比特币ETF管理公司Horizons昨日向做市商发出“市场中断”警告，若比特币期货价格拉不回来，当天买卖订单恐怕无法执行。
+4. OKlink数据显示，截至昨日，BTC平均算力连续八天明显下跌，跌至151.83EH/s。
+5. 加密分析公司Santiment发推称，本周，以太坊鲸鱼交易笔数飙升至2018年1月以来的最高水平。在9天前触及4358美元的历史高点后，ETH在一周内跌至2015美元，下跌达53.8%。
+6. Balancer官方今日发推称，从本月24日开始，BalancerV2的流动性将从流动性挖矿中获得BAL奖励。Baller投票决定为以下3个池每周分别分配2500BAL：BAL/WETH80/20、WETH/DAI60/40、WBTC/WETH50/50。
+7. ARK基金持仓数据显示，ARK基金昨日买入223,181股Coinbase股票。
+8. 5月22日消息，Peck Shield预警显示，DeFi协议Bogged Finance遭到闪电贷攻击。
+9. 区块链浏览器TRONSCAN最新数据，波场TRON交易总数达1,901,506,006，突破19亿笔。
+10. 特斯拉Elon Musk周六在推特上表示，在法币和加密货币之间的战斗中，他支持加密货币。
+11. 金十消息，OANDA分析师Edward Moya表示，未来，人们会更加关注和担心比特币的波动，这将导致大量资金涌入黄金市场。目前黄金ETF的抛售已经停止，因此看好黄金。
+12. 金丘区块链洪蜀宁昨日在微博表示，目前唯一可能真正打压比特币价格的因素是美联储加息，而不是任何监管政策。
+13. 灰度创始人Barry Silbert回推表示，狗狗币最棒的地方在于它的社区，最糟糕的是埃隆•马斯克崇拜。如果狗狗币从大幅下跌中活下来会支持它。
+14. 新浪财经5月22日消息，周小川表示人民币支付系统的数字化和现代化对提高人民币地位会有一定程度的帮助，但不是想取代第三方支付也不是要取代美元主导地位。
+15. 彭博社消息，摩根大通利率衍生品策略师Josh Younger周五发布的新报告认为，Tether在进入美国银行体系方面将继续面临困难。
+16. Synthetix创始人Kain Warwic发推称，币圈现在仍处于牛市。
+17. 前英格兰银行顾问Huwvan Steenis表示，央行并不害怕加密货币。他认为，保持对货币的控制权是他们转向央行数字货币（CBDC）的关键。
+18. 彭博社5月22日消息，美国前财政部长Lawrence Summers表示，如果加密货币市值占到黄金市值的三分之一，那么加密货币将成为整个金融系统的一部分，那么加密货币有望成为数字黄金。
+19. Decrypt消息，高盛即将发布报告显示，该银行已经认真研究了加密货币。似乎试图探讨加密货币成为一种新的资产类别的可行性。
 
 
 
-0
+
+
+
+
+
++2
