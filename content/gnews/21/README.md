@@ -1,11 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇博士：我不相信COVID-19起源于自然，我赞成任何关于这个病毒起源的调查
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1266231/)
+## 2021年5月21日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1266604/)
 
-5/22/2021 在一次同《政治真相》的凯蒂.桑德斯的采访中，福奇博士替自己以及NIH辩护道，他们只是因为SARS-CoV-1（非典病毒）起源于中共国，因而与中共国科学家合作研究蝙蝠病毒。这并不意味着他们参与制造了中共病毒。他还声称他并不相信中共病毒起源于自然，他赞成一切对中共病毒起源的调查。
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+5月21日：一切都是刚刚开始！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23102737/82cb6a051126741eae16e92d6a8affe4.jpg)
+[【2021年5月21日】文贵先生盖特原文](https://gtv.org/getter/60a8545893cb4b1e6f9b2df1)
+
+**喜联盟Gnews编辑部**
 
 0

@@ -1,47 +1,101 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【各抒己见】中国人的自由就值373块1毛钱！？
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1265974/)
+## 杰克·基恩（Jack Keane）：以色列对哈马斯领导层，地下隧道造成了“重大损害”
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1266153/)
 
-作者：喜马拉雅东京樱花团 / Peter Wong
+字幕内容：
 
-![](https://lh6.googleusercontent.com/u4rO8vke1JIFh77B73lU4wgFShhoegRdH4mjh9QjsTjMIoATRh7aDBM8FocpHpfihRduA9354t4NpOR23ISz-XhTChrRmP710zuJVvq9NxUIxR8Q6r-jeJlj-SzGZviJYSQYsZ2g)
+Brian Kilmeade
 
-中共国最高人民法院于5月20日下发通知，公布了自2021年5月20日起作出的国家赔偿决定涉及侵犯公民人身自由权的赔偿金标准为每日373.10元。
+布莱恩·基尔梅德（Brian Kilmeade）
 
-国家统计局2021年5月19日公布，2020年全国城镇非私营单位就业人员年平均工资数额为97379元；日平均工资为373.10元。
+General, did Israel stop the right time?
 
-国家赔偿法规定：侵犯公民人身自由的，每日赔偿金按照国家上年度职工日平均工资计算。最高人民法院要求，各级人民法院要按照《最高人民法院、最高人民检察院关于办理刑事赔偿案件适用法律若干问题的解释》第二十一条第二款的规定，自2021年5月20日起审理国家赔偿案件时按照上述标准执行。
+将军，以色列停火是时候吗？
 
-这个消息一出，就引发了网上热议：
+General Jack Keane
 
-“赔偿标准是我每天赚钱的三倍还要多。”
+杰克·基恩将军
 
-“大家宁愿被关宁愿被限制，反正有钱，普通工作的大多挣不到这么多。”
+Well, we don’t know that for sure
 
-“比普通人上班工资高太多了，还管吃管住。”
+好吧，我们不确定
 
-“比正经上班工资还高三倍，不如坐牢。”
+I mean, I believe the Prime Minister Netanyahu from the outset
 
-“未达到被侵犯的工资标准。”
+我的意思是，我相信内塔尼亚胡总理从一开始就
 
-老百姓居然会羡慕被剥夺自由而换来的373.10元。是这个政府太慷概了吗？不！是人民的生活太疾苦。这个通知里赔偿金额是以2020年全国城镇非私营单位就业人员年平均工资97379元为标准，注意这里是“非私营单位”，那么”私营单位“年平均工资是多少呢？国家统计局的数据，2020年全国城镇私营单位就业人员年平均工资为57727元。
+when he when he got this fuselage of an unprovoked attack on Israeli people
 
-经济学家余丰慧在2018年就撰文指出这种悬殊的收入差距是一种经济病，当时“非私营单位”是“私营单位”年平均工资的1.62倍，2年过去了，这种病态的比例不降反升，扩大到了1.687倍，老百姓的收入水平在持续下降。
+当他得到对以色列人民的无端攻击的事实时
 
-就在去年5月28日，在中共十三届全国人大三次会议记者会上，总理李克强语重心长地强调中国有“6亿中低收入及以下人群，他们平均每个月的收入也就1000元左右”，这6亿人肯定是不包括未成年人，按这个标准算全国近半数人年收入不足12000元，统计局发布的”私营单位“年平均工资57727元是有很大水分的，说赔偿标准高的，不乏体制外的这6亿分之一普通老百姓。
+he made his mind that he was going to degrade their military capability
 
-鲁迅先生将中国历史分为“想做奴隶而不得的时代”和“暂时做稳了奴隶的时代”，而如今却是做稳了奴隶和想做奴隶而不得的人，处在了同一个时代。
+他下定决心他要降低他们的军事能力
 
-参考资料：
-[最高法](http://www.court.gov.cn/zixun-xiangqing-303831.html) 
-[国家统计局1](http://www.stats.gov.cn/tjsj/zxfb/202105/t20210519_1817667.html)
-[国家统计局2](http://www.stats.gov.cn/tjsj/zxfb/202105/t20210519_1817668.html)
+rather significantly in his quick time as he possibly could,
 
-*免责申明：本文只代表作者观点，与GNews网站无关。
-校对：喜马拉雅东京樱花团 / 文小白
-责任编辑：喜马拉雅东京樱花团 / 東洋武士
-发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22044513/%E4%BA%8C%E7%BB%B4%E7%A0%81-2.jpg)
-+2
+相当显著的在他可能的快速时间内
+
+and I think he dismissed  the idea of a ground invasion
+
+并且我认为他取消了地面入侵的想法
+
+that took place in 2014, which lasted almost  50 days
+
+发生在2014年，持续了几乎50天
+
+and result in a lot of condemnation against Israel
+
+从而导致了当时以色列受到很多谴责
+
+because of that, but only, only they know,
+
+因为那个，但是只有他们知道
+
+but I assumed just from sources that they have done significant damage to Hamas
+
+但我仅从消息来源推测，他们已经对哈马斯
+
+and the Palestinian Islamic Jihad’s infrastructure,
+
+和巴勒斯坦伊斯兰圣战组织的基础设施造成了重大的损害
+
+just their rockets and missiles and launchers,
+
+他们的火箭，导弹和发射器
+
+but also that tunnel network which one is 9 to 12 miles underneath
+
+而且还有在加沙城地下9到12英里的隧道网络
+
+that the Gaza City，  it’s very significant part of their support structure
+
+这是他们支持结构中非常重要的一部分
+
+and they took down a lot of their leaders as well
+
+他们也消灭了很多领导人
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 https://www.foxnews.com/media/jack-keane-hamas-leadership-underground-tunnels-damage-israel-conflict-ceasefire
+
+英听校：    康州盘古农场 – Layka
+
+翻译：       康州盘古农场 – Layka
+
+翻译终校：康州盘古农场 – Mike Li
+
+字幕+视频制作：康州盘古农场-天涯行
+
+审片：康州盘古农场-银龙
+
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

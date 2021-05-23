@@ -1,33 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 台湾CCP病毒感染持续增加 仍存在感染源不明个案
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1266074/)
+## Sellin博士已完成中共病毒灵长类感染试验的拼图
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1266251/)
 
-#### 作者：yyshere
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23085306/E2EMB0iX0AUWqD3_%E5%89%AF%E6%9C%AC.jpg)
+据[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午6:23 · 2021年5月23日](https://twitter.com/LawrenceSellin/status/1396411397840457728)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23063205/Snipaste_2021-05-23_18-fdsfa30-49.png)
+Based on publication record, it was likely Chao Shan from the Wuhan Institute of Virology who was chosen to lead the team testing transmission of [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) on non-human primates after the virus arrived from the PLA Eastern Theater Command in Nanjing in the early months of 2019.
 
-台湾CCP病毒感染持续增加 仍存在感染源不明个案
+中文大意：根据出版物记录，中共病毒极有可能选择由武汉病毒学研究所的单超负责领导团队，在该病毒于2019年初从南京解放军东部战区司令部运抵南京之后在非人类灵长类动物上传播[＃COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click)的测试。
 
-台湾中央流行疫情指挥中心当地时间5约23号公布新增290例COVID-19（CCP病毒）确诊感染病例，分别为287例本土感染及3例境外移入，并新增6例死亡。
 
-指挥中心表示，新增的287例本土病例，为138例男性、149例女性，年龄介于未满5岁至90多岁，发病日介于今年5月6号至5月22号；个案集中分布在新北市为142例，其次为台北市77例。目前全部新增病例中有70例感染源尚不明确、并有66例正在进行疫情溯源。
 
-新增的6例死亡个案，为5男1女，年龄介于50多岁至80多岁，发病日介于5月10号至5月20号，确诊日介于5月17号至5月22号，死亡日介于5月20号至5月21号，其中5人均有慢性病史。
+> Based on publication record, it was likely Chao Shan from the Wuhan Institute of Virology who was chosen to lead the team testing transmission of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) on non-human primates after the virus arrived from the PLA Eastern Theater Command in Nanjing in the early months of 2019. [pic.twitter.com/1MKYBLhf65](https://t.co/1MKYBLhf65)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 23, 2021](https://twitter.com/LawrenceSellin/status/1396411397840457728?ref_src=twsrc%5Etfw)
 
-指挥中心指出，新增3例境外移入病例中，分别是印尼籍渔业外劳，持有搭机前3日内检验阴性报告，隔离期间并无症状，5月21号进行检疫期满前采检，并于23号确诊；菲律宾籍外劳，5月7号自菲律宾来台，持有搭机前3日内检验阴性报告，隔离期间无症状，5月22号检疫期满后自费采检，于23号确诊；丹麦籍旅行者，曾于3月30号在丹麦当地检出COVID-19（CCP病毒）阳性，4月17号自丹麦来台工作，持有搭机前3日内检验阴性报告，在台期间无症状，但因要再次出境，5月22号自费采检，于23号确诊。
 
-截至目前台湾境内累计确诊感染4322例，分别为1111例境外移入，3158例本土感染病例确诊病例中有23例死亡。
 
-此前的5月22号和21号，台湾的本土感染病例增加均在300例以上，分别是22号321例和21号的315例。
+或许由于是境外IP的原因无法打开武汉病毒研究所的官网，但是我们可以找到刊登同一消息的[武汉病毒所/华科大/昆明动物所建新冠病毒非人灵长类动物感染模型](https://baijiahao.baidu.com/s?id=1675138499283332630&amp;wfr=spider&amp;for=pc)（[中国生物技术网](https://author.baidu.com/home?from=bjh_article&amp;app_id=1615731465651160)发布时间: 20-08-1609:22中国科学院微生物研究所）：
 
-消息来源： 台湾CDC
+近期，中科院武汉病毒研究所、华中科技大学、中科院昆明动物研究所等单位合作，在Cell Research （《细胞研究》）在线发表题为“Infection with novel coronavirus (SARS-CoV-2) causes pneumonia in Rhesus macaques”（《新型冠状病毒感染导致恒河猴肺炎》）的研究论文。
 
-（本文系作者个人观点，不代表GNEWS平台）
+该论文利用武汉病毒所临床分离的病毒株对恒河猴进行感染。研究显示，恒河猴对新冠病毒感染较敏感。主要研究结果包括：（1）感染新冠病毒后，在实验动物咽拭子中可观测到恒河猴持续排毒，但鼻拭子和肛拭子只能在个别动物样本观测到较低的病毒载量。在感染的动物血液中未能发现有病毒存在。（2）病毒感染后，肺部X-光片显示，可在恒河猴肺部观察到阴影，提示为病毒感染造成的病灶。（3）解剖后病理结果显示，病毒感染后可在肺部引起间质性肺炎，镜下观察显示大部分肺泡壁显著增厚，见大量单核、淋巴细胞浸润及成纤维细胞增生，部分细小血管可见透明血栓形成。（4）肺部病变组织可检测到病毒蛋白并可从病变组织中分离出病毒，测序结果显示出分离的病毒与感染用病毒的一致性，从而完成了科赫法则的验证。（5）该研究同时证明了由原发感染产生的中和抗体可保护恒河猴免受新冠病毒的第二轮攻击。
 
-* * *
+通过动物模型建立和分析，该研究为疫苗、抗病毒药物和抗体等的评价提供了直观指标。目前该动物模型已用于新冠病毒的致病机理、疫苗、抗病毒药物和单克隆抗体的评估。
 
-*排版发布：日本东京方舟农场 文柯Miles*
+武汉病毒所研究员袁志明、石正丽和单超为论文共同通讯作者。单超、武汉病毒所高级实验师姚艳丰、副研究员杨兴娄以及华中科技大学教授周亦武为论文共同第一作者。该工作得到科技部重大专项、国家自然科学基金、中科院青促会等项目的大力支持。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23085354/10dfa9ec8a136327ac940ec8d39082eb09fac7f3.jpeg)
+新冠病毒感染后恒河猴肺部呼吸道病毒载量
 
-+1
+\*\*\*\*\*\*\*原文引用完毕\*\*\*\*\*\*\*
+
+袁志明、石正丽、单超在2019年初进行了中共病毒在恒河猴身上的感染实验，接下来应该就是社区的人传人感染实验了，在这一场中共不宣而战的生物战中，目前已经造成了数以亿计的人员感染和数以千万的死亡，我们不知道袁志明、石正丽和单超在私下里会不会对自己进行灵魂拷问，也许所有无辜者的逝去都不能让蛇蝎心肠的他们有丝毫的忏悔，因为他们本身就是中共反人类杀人机器的一员。
+
+（文章内容仅代表作者个人观点）
+
++2
