@@ -1,41 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】新中国联邦人的责任：恢复我中华民族的正面形象
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1265802/)
+## 中共教授宣布美国在与中共的生物战中败北
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1265844/)
 
-作者：纽约香草山媒体部 CloudSky
+翻译: JS709 | 校对: Elsie | 审核：V
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
+一位与中共政府有密切联系的教授宣布，他的国家在2020年“击败”了美国，赢得了一场生物战，并把美国“打回了原型”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23032659/cp_adobespark.png)
+这些评论是由陈平发表的，他是中共附属智库复旦大学中国研究所高级研究员，他也是北京大学教授。
 
-
-
-五月中国国家统计局出台了2020年全国第七次人口普查报告，其数据在逻辑上不能自恰，引起了国内外的广泛深切关注和热议。
-
-这只不过是另一次公开的暴露，其实这种欺骗一直伴随着CCP的历史。 首先它篡改了抗战史党史来证明自己的合法性。之后的大跃进放“高产卫星”，把多块土地里的庄稼移植到一起谎称亩产过万斤。移植的植物密集得可以坐上小孩子不倒。空气在这样的田里根本不能流通，庄稼怎么可能生长？而这样的照片竟堂而皇之地发表在党报之上。虚报产量的后果引发了所谓的“三年自然灾害”，饿死了几千万中国百姓。特别是文化大革命，打着保卫红色江山的旗号维护个人的权力和权威，害死了不计其数的干部、精英知识分子，毁坏了无数历史文化遗产，让一个文明古国走上了道德沦丧之路。小到什么毒奶粉、苏丹红、地沟油；大到在国际上违反加入WTO的承诺，不履行《中英联合声明》，造假数据在国际股市上市，造假病毒序列欺骗全人类……，林林总总， CCP的倒行逆施已让中国失信于世界。
-
-对统计局的造假，笔者有亲身经历。在国内时曾参加过几次国际学术研讨会，顾名思义这样的会议有中外学者参加。其中两次，亲眼见到外国学者拿着会议中国家统计局分发的相同内容的中英文材料询问，为什么两边的数据不一样？结果主持人张口结舌不知如何回答，场面十分尴尬。另外在出国旅游时，也亲历了其他国家对中国制造的不信任。一是在伯利兹，商家在柜台前公开挂 “无中国制造“的提示。二是在俄罗斯圣彼得堡参加了一个一日游的项目，导游小姐一天里在介绍商品时有十几次提到这些都不是中国制造。作为一个中国人，深切感受到CCP的造假给国人带来了耻辱。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/05/image0.gif)图片来源：香草山农场
-
-其实我们中国人是勤劳勇敢善良的民族。一直就遵循“以诚为本”的古训，同世界其他各民族友好相处，是CCP让我们蒙羞。郭先生倡导的爆料革命坚持的是唯真不破，就是要揭穿CCP的假大空。恢复我中华民族的正面形象是我们新中国联邦人义不容辞的责任！
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
+该视频最近出现在网上，由在纽约的中国博主曾铮（Jennifer Zeng）翻译成英语：
 
 
 
-**更多资讯，更多关注**
+> Admitted! Chen Ping, Senior Researcher at [#FudanUniversity](https://twitter.com/hashtag/FudanUniversity?src=hash&amp;ref_src=twsrc%5Etfw), professor at [#PekingUniversity](https://twitter.com/hashtag/PekingUniversity?src=hash&amp;ref_src=twsrc%5Etfw), says the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) won the trade war, science & technology war, and especially the biological war in 2020. "The achievement is unprecedented. This is an epoch-making historical record." [pic.twitter.com/syKaA65zvo](https://t.co/syKaA65zvo)
+> — Jennifer Zeng 曾錚 (@jenniferatntd) [May 18, 2021](https://twitter.com/jenniferatntd/status/1394691764741627907?ref_src=twsrc%5Etfw)
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+曾写到：这位研究员声称，“ 西方模式已经失败，500年的海洋文明注定要失败，中国共产党赢了，并‘将在生物革命后引领新时代的现代化之路’—在2020年中共病毒大流行之后。
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+陈平在视频中说：“ 2020年，中国赢得了贸易战，科技战，尤其是生物战。”
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+“这一成就是历史上前所未有的，划时代的历史记录，”他继续说到，“所以现在中国国内自由派、崇美派对美国的崇拜事实上是没有根据的。”
+
+陈平强调说：“但是在这一次贸易战和生物战以后，把美国打回了原型”。
+
+陈平也对2020年美国大选做了评论：“我认为川普这四年任期试图挽回美国衰落的国际地位是失败的。那么这个失败不仅是川普个人竞选总统连任的失败，也是美国和英国主导的过去四十年的新自由主义所主导的全球化的失败。”
+
+陈平补充道：“所以美国和欧洲的发展模式和现代化模式不值得中国仿效重复”。
+
+2021年第一季度，中共国经济与去年同期相比增长了18.3％，这是自1992年开始进行季度报告以来的最大增幅。
+
+毫无疑问，中共国在2019年末病毒大流行之际抢得先机，得以使其经济迅速反弹。他们采取的手段有：拖延发布并掩盖正在发生的事实，同时利用犯罪合作组织WHO将中共想说的话转述给世界其他地方。
+
+川普卸任后，美国现在处于这一共产国家的摆布之下，而拜登有长期以来将美国工业出卖给中共投资者的记录。
+
+正如我们最近所报道，一组世界顶级科学家呼吁对冠状病毒大流行是由武汉病毒研究所的泄漏引起的这种可能性进行更多调查，并说世界卫生组织未经适当考虑就驳回了这一提议。
+
+同时，众议院情报委员会内的共和党代表要求白宫和国家情报局局长提供有关冠状病毒从实验室泄漏的可能性的最新情况。
+
+由高级议员德文·纳尼斯（Devin Nunes）领导的共和党人也希望获得在武汉实验室进行的与美国机构有关的“功能增强”研究的任何情报。
+
+正如我们今年早些时候报道的那样，美国国家安全局官员表示，他们相信关于中共病毒起源的最可靠的理论是：它是从中共国实验室逃出来的。
+
+原文作者：泰勒·杜登（TYLER DURDEN）
+发布时间：2021年5月19日，星期三下午12:11
+原文链接：https://www.zerohedge.com/geopolitical/watch-communist-professor-declares-us-was-defeated-biological-war-china
 
 0

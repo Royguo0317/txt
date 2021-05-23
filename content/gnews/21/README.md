@@ -1,55 +1,97 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 全球传播中共生物超限战真相，消灭中共才能消灭中共病毒
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1265638/)
+## 称COVID-19病毒是在中共实验室开发的病毒学家闫丽梦博士，告诉我们更多关于中国的COVID战争的阴谋
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265724/)
 
-台湾宝岛农场 Amitofu
+**字幕内容：**
 
-世界各国在中共红媒长期渗透下，任何揭露中共邪恶真相的讯息，都会被中共以各种手段和媒体联合打压成假消息，甚至刻意在其他媒体上制造成假新闻，中共黑客不断攻击GNEWS、GTV，甚至联合西方媒体打压成假新闻平台中心，新中国联邦爆料革命，秉持着文贵先生唯真不破、传播真相的精神，GTV、GNEWS和全世界各地农场战友们，揭露中共政权内部的偷假骗，目的就是要消灭中共邪恶政权，随着越来越多的科学家认可闫博士的三份报告，逐渐承认中共的野心，许多亲共的华人无法接受这个事实，中共竟然会制造病毒发动生物超限战，事实可以掩盖，真相永远存在。笔者整理GNEWS、GTV上，**中共制造****COVID-19****病毒对世界生物超限战的真相****，闫博士除了指出中共病毒****SARS-CoV-2****是经过解放军拥有的舟山蝙蝠病毒****ZC45/ZXC21****为骨架，通过人为的基因改造技术在刺突蛋白中引入弗林酶切位点，功能增强****S****蛋白、****E****蛋白毒性，使病毒更具强变异性和传染性。**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23001022/Dr.-Li-Meng-YAN-400x225.jpg)
-同时闫博士发表的第三份报告更说明，同样重要的是要认识到生物武器可以具有设计和增加的功能，而天然存在的同类病原体可能没有这种功能。这种认识水平应该是找到对COVID 19疾病许多未知数的答案的关键。需要调查的是，下列令人担忧且有些神秘的症状/或现象是否是人工设计的结果：
+**Okay, but Dr. Yan, the Chinese scientists and PLA commanders, they may have **
 
-** ①****凝血病**
+好的，但是闫博士，中共国的科学家和解放军的指挥官
 
-与其他病毒性疾病不同，COVID 19患者中经常出现凝血病，而且往往危及生命，预后不良。COVID 19相关的凝血病发生在多种器官中，表现为动脉和静脉血栓栓塞或系统性微血管病。
+**talked about genetically engineering a virus in 2015 in this report,**
 
-**②****神经系统损害**
+他们可能在**2015**年的这份**“**解放军指南**”**《非典非自然》中谈到了基因工程的病毒
 
-许多COVID 19患者也会出现神经系统损害，其原因尚不清楚，必须仔细研究。有趣的是，病毒模板ZC45和ZXC21一经发现，就被解放军科学家证明能引起乳鼠的脑部感染和炎症。不管是不是巧合，在冠状病毒感染中与神经毒性有关的E蛋白，在ZC45 / ZXC21与SARS CoV 2之间保持100％相同。
+**can that 2015 report directly be linked to the spread of corona virus in 2020, **
 
-**③****自身免疫性疾病**
+这本《非典非自然》能否直接与**2020**年、**2021**年的**COVID**病毒联系起来
 
-过度活跃的免疫反应是COVID 19发病的重要原因。继发于SARS CoV 2感染的自身免疫性疾病与全身性自身免疫性疾病有相似的临床表现，并可能导致许多年龄组的广泛器官的损害。COVID 19诱发的自身免疫性疾病包括系统性红斑狼疮（SLE）样综合症，川崎样综合症和免疫性血小板减少性紫癜（ITP）。
+**2021, I mean from what you gathered on ground from that report, join the dots**
 
-**④****愈后有长期后遗症者**，他们会出现多个系统的各种并发症，对生活质量造成不利影响，治疗起来非常困难。长期携带病毒患者的诊断也很困难。长期携带病毒患者的医学原因和分子基础有待深入研究。
+我的意思是，从你对这本**“**解放军指南**”**的了解，请为我们
 
-**⑤****抗体依赖性增强（****ADE****）**
+**for us, Dr.  Yan.**
 
-ADE指的是一般情况下，由一种病毒变体感染后产生的某些抗体，在不同变种的感染过程中可能导致有害作用。ADE是SARS，登革热等病毒感染中已被证实的现象。研究表明，ADE可能会加剧SARS CoV 2感染。考虑到SARS-CoV-2的变异毒株不断出现，了解ADE可能对治疗和预防SARS-CoV-2感染以及开发安全的疫苗至关重要。
+解读一下，严博士
 
-**中共病毒释放计划流程**
+**so actually, I just want to tell you that this is open published textbook published **
 
-1.中共早在2020年Covid-19爆发前几个月就在全球市场上购买大量医疗级口罩、防护衣、和各种相关物资，无论是否在美国制造的用品，都被买到断货，在第一时间掩盖病毒散播，让大量病毒透过旅客飞往世界各国机场。
+实际上，我先告诉你的是，这本书是由军事医学出版社公开出版的教科书
 
-**2.中共和WHO合作隐瞒病毒人传人的事实，刻意造成全球染疫，使病毒快速扩散**
+**by military medical press and it’s a textbook for military students in the universities.**
 
-3. 中共和WHO、疫苗集团**打压羟氯喹加锌片就能防御病毒感染**(zinc plus low-dose hydroxychloroquine)，造成无数个生命和家庭破碎。
+它是为军事学院里的军事学生编写的教科书
 
-4. **石正丽造假的RaTG13与云南矿洞虚构病毒，中共启动大外宣说病毒起源于自然界。**
+**so you should know that this is also I quote as global times they said it’s a book**
 
-5. 【**非典非自然起源和人制人新种病毒基因武器**】，揭露解放军长期制造生化病毒的事实，Sellin博士科学溯源证实中共长期制造生物病毒，解放军科学团队的关系网络。
+你也应该知道，我引用《环球时报》的说法，他们说这是一本关于理论的书
 
-6. Politifact研究所和西方媒体开始撤销，去年定义闫博士病毒实验室来源是阴谋论的文章标签。
+**about the theory and also in this book they clearly mentioned in the preface that**
 
-1月15日前国务院蓬佩奥国务卿，确认武汉病毒研究所WIV利用美国技术与资金从事秘密生物武器研究工作；共和党汤姆·科顿多位参议员都认定病毒来自武汉实验室；WHO顾问梅茨尔和川普政府时期的副国家安全顾问博明，也都说中共病毒来源于武毒所；包含科学界泰斗罗兰德·维森丹格博士长达105页的报告，提出中共病毒的目的是要使病毒更具传染性和强变异性; 前国务院首席调查员，现为哈德森研究所高级研究员的戴维·艾舍尔（David Asher），他领导的小组进行COVID-19病毒起源的调查，表示这是中共人民解放军研究成果进行使用的生物武器；前美国疾控预防中心（CDC）的主任罗伯特-雷德菲尔德3月26日接受CNN 的Sanjay Gupta博士采访中示， Covid-19新型冠状病毒并非自然进化，是从中共武汉实验室中泄漏；Sellin博士科学溯源证实中共长期制造生物病毒，这些都显示**西方科学已经验证新型冠状病毒强变异，SARS-CoV-2病毒功能增强是中共解放军长期制造生化病毒的事实**。这世界百年全体人类从未遭遇像现在的灾难，病毒何时停歇没有人能预测，但没有中共的明天世界一定会比现在好。祈祷万佛万神加持75亿人不受到中共病毒的威胁
+而事实是，在这本书中，他们在序言中明确提到
 
-本文仅代表个人立场
+**they get fully support from PLA and the Chinese government in writing this**
 
-資料來源:文贵先生、班农战斗室、路德社、闫丽梦博士、博士军团、新中国联邦
+他们在写这本书时得到了解放军和中共国政府的充分支持
 
-审核:Athena雅典娜 发布:Amitofu
+**and I want to emphasize is, this is not the beginning of their study of**
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+我想强调的是，这不是中共研究现代生物
+
+**contemporary bioweapon, this is just one step which we have evidence now back **
+
+武器的开始，这只是有证据可以追溯到六年前的中共研究生物武器的一个步骤
+
+**to six years ago, but after that, they have also modified a lot, and they have **
+
+但在那之后，中共也修改了很多，中共在
+
+**recruited a lot of labs under the cover of stable labs, under the cover of **
+
+稳定的实验室的掩护下，在国际实验室的掩护下
+
+**international labs and working with the military to develop it.**
+
+招募了很多实验室，与军方合作开发生物武器
+
+**so they have better knowledge and experience after the sixth year, **
+
+所以中共在六年后应该有更多关于生物武器的知识和经验
+
+**that’s what later you say COVID-19 happened**
+
+这就是后来发生的**COVID-19**大流行的事情
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接: [https://twitter.com/raheemkassam/status/1348463264326365187?s=21](https://twitter.com/raheemkassam/status/1348463264326365187?s=21)
+
+英听校：    康州盘古农场 – Mike Li
+
+翻译：       康州盘古农场 – Mike Li
+
+翻译终校：康州盘古农场 -Ara
+
+字幕+视频制作：康州盘古农场-青梅煮酒
+
+审片**：**康州盘古农场-银龙
+
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 +1

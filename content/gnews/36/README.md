@@ -1,120 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/05/18 前州长谈中共成为美国在全世界最大的挑战
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1265443/)
+## 哈马斯恐怖组织领导人公开揭秘：伊朗助其攻以色列，包括提供资金和武器
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265544/)
 
-视频字幕/听写：云岭 | 翻译：Roberts | 校对：Wade | 简评/文字整理/编辑：胖丁| Page：我是球大哥
+字幕内容：
 
-**简评：**
+Hamas political leader–Ismail Haniyeh
 
-中共是美国在全球范围内最大的挑战。几十年来，美国两党与中共深度合作，幻想经济实力的提升会使中共过渡到民主国家。但这是不可能的，中共在强大的同时，不断地削弱美国，扩张自己在全球的影响力。
+哈马斯政治领袖伊斯梅尔·哈尼亚
 
-中共以非法手段操控全球产业链，新冠疫情的爆发使得美国意识到，不仅美国急需的个人防护用品依赖中共。包括日用品，药物等很多重要物资都依赖中共。应该像冷战时期对待前苏联一样限制与中共的贸易，阻止其对美国的经济侵略。美国必须捍卫自由市场的权益和尊严，确保公平贸易，维护全球产业链的良性运转。
+Today, we are facing this great and overall danger
 
-中共为了扩张和推进其独裁统治，严厉管控自己的国民，对新疆种族清洗，剥夺香港自由，武力威胁台湾，派遣间谍渗透美国，偷盗知识产权，不惜一切手段控制联合国和世卫组织。
+今天，我们正面临着这一巨大而全面的危险
 
-中共日益成为全球的威胁，印太地区的日本、印度和澳大利亚已经认识到中共的危险，欧洲也在觉醒。中共威胁了所有国家的经济和国家安全，美国有责任站出来对抗中共，支持中国人民获得自由，保证美国自身的安全，强大，繁荣和未来。
+We believe that we, as an Islamic nation, need a strategic and overall plan
 
-[GTV视频链接](https://gtv.org/video/id=60a7b8ded48e0209266453aa)
+我们认为，作为一个伊斯兰国家
 
+我们需要一个战略性和全局性的规划
 
+to face this danger that threatens our cause and our Jerusalem
 
-**视频字幕：**
+直面威胁我们事业和我们耶路撒冷的危险
 
-中国共产党是美国在全世界范围内最大的挑战。
+The essence of this strategy is the resistance project
 
-很长时间我们都无视这种挑战。 几十年来，美国两党的领导都鼓励与中共国的深度合作。
+这一战略的实质是抵抗方案
 
-原因是我们认为中共国一定会摒弃共产主义，拥抱自由民主。
+Complete resistance including the armed, military resistance at the top
 
-这种想法是错误的。
+完全抵抗策略，包括最高层的武装军事抵抗
 
-现在，在国内和国外，中国共产党都比任何时期都更加具有侵略性。
+From here, I salute all the components of the nation that  embrace  and support
 
-他们利用一切可利用的工具在削弱美国的同时，增强自己。
+在这里，我向所有拥护和
 
-让我们从贸易开始说起。
+支持我们国家的人致敬
 
-贸易是我们经济的根本和我们最受益的部分，但不是所有的贸易和所有的贸易伙伴都是一样的。
+The choice of resistance backs it on the ground in Palestine
 
-资本主义之父亚当·斯密在《国富论》中指出，英国对海洋的控制必须胜过贸易利益。
+在巴勒斯坦当地选择支持抵抗
 
-他写道：“防御比丰裕更为重要。”
+Here, I am particularly specifying the Islamic Republic of Iran
 
-美国早就明白这一真理。
+在这里，我特别提到伊朗伊斯兰共和国
 
-冷战期间，我们限制与苏联的贸易。 我们不想让共产国家利用我们的发明和经济反制我们和我们的同盟。
+Which has not faltered in supporting and funding the resistance financially, militarily and technically
 
-现在是时候对中共国采取同样的措施了。
+在财政、军事和技术上支持和
 
-对于任何对此还有怀疑的人，新冠瘟疫敲响了强烈的警钟。
+资助抵抗力量的努力没有动摇
 
-当美国人急需购买医疗设备、口罩和手套的时候，很明显，我们已经将很多所需要的东西外包给了中共国。
+This is an example of the Republic’s strategy
 
-我们不仅在个人防护用品上，而且在其他日用药物上依赖中共国。
+这是共和国战略的一个例子
 
-使得美国在重要物资上依赖中共国不是偶然发生的，是我们战略计划的一部分。
+that was established by Imam Khomeini, may God have mercy on his soul
 
-中国共产党的统治者为了自己的利益，往往以非法的手段操纵供应链，使美国和其他自由国家处于不利地位。
+这是由伊玛目霍梅尼建立的
 
-事情不应该是这样的。
+愿上帝怜悯他的灵魂
 
-中共国在经济上变得强大的同时，更加缺乏自由，并且更加具有侵略性。
+He is the one who announced the last Friday of Ramadan as the global day for Jerusalem
 
-现在，我们面临着一个扩张主义的共产主义中国，它的经济实力大大超过苏联所能企及的一切。
+他是宣布斋月最后一个星期五
 
-中共国正在利用其日益增长的经济云来推进其独裁的愿景。
+为耶路撒冷全球日的人
 
-中共统治者决心要控制和消灭任何妨碍其前进的人。
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-这就解释了为什么中共统治者在种族上要清洗少数民族。
+原视频连接: [https://twitter.com/mikepompeo/status/1392573957904154628?s=21](https://twitter.com/mikepompeo/status/1392573957904154628?s=21)
 
-他们强迫至少一百万穆斯林维吾尔族人进入集中营，这就是为什么他们要把监控对准自己的公民，这就是为什么他们要剥夺香港人的自由，这就是为什么他们要威胁收复台湾，这就是为什么他们把间谍派进美国的大学和课堂，这就是为什么他们在我们的创新公司窃取知识产权，这也是为什么他们要主导联合国和世卫组织这样的国际组织。
+英听校:康州盘古农场-WZ
 
-事实很简单—中共不会停止。
+翻译: 康州盘古农场-WZ
 
-所以美国必须做出反应，并且成为领导力量。
+翻译终校: 康州盘古农场-文白
 
-首先，美国决心站出来对抗中共。
+字幕+视频制作:康州盘古农场-天涯行
 
-为了捍卫我们的原则，我们必须挺身而出。
+审片: 康州盘古农场-银龙
 
-中共为了自己的利益滥用自由市场，美国必须捍卫自由市场的尊严。
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-为了经济繁荣，我们必须确保公平的贸易关系，确保中共国不能为了谋取自己的利益滥用贸易规则。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-我们必须保证我们最重要的、与安全相关的产业从基本药物到半导体，都处于良性的供应链中，而不是依赖专制的竞争国家。
-
-我们必须终止中共国对美国企业的侵蚀，也就是说，限制在重要经济领域中来自中共国的投资。
-
-当然我们必须支持支持国人民争取自由的权利，这是正确的事情，也是明智的事情。
-
-别忘了，中共国不只是美国的威胁。 自由世界应该联合起来。 印太地区日本、印度和澳大利亚已经认识到中共的危险。
-
-我们欧洲的朋友反应有点慢，但是中共在新冠病毒上的表里不一唤醒了他们。
-
-我们的盟友应该明白，美国永远支持他们，正如美国也期待他们的支持。
-
-国家安全是经济安全的保障，而经济安全也是国家安全的保障。
-
-现在两方面都受到中共的威胁。
-
-两方面都必须由美国的实力和创造力來保护。
-
-只有对抗中共才能保证美国拥有更加安全、強大和繁荣的未来。
-
-所以我们绝不能无视中共的威胁，让我们行动起来。
-
-**欢迎关注**[英国伦敦喜庄园英语频道GTV UK English](https://gtv.org/user/602f9f5c047c4c3086d4f215)和[英国伦敦喜庄园英语频道YouTube](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/8jHtrnGWoSGEl/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/8jHtrnGWoSGEl/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-+1
++2
