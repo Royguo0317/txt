@@ -1,40 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/05/22 文贵盖特精要-001
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1265972/)
+## 比特币黑影幢幢
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1266002/)
 
-听写： 万物归一 | 校对/审核：樂禧禧 | Page：我是球大哥
+#### 翻译:牛小妹 | 校对：卡拉马佐夫姐姐
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23055028/%E6%AF%94%E7%89%B9%E5%B8%81-1.jpg)图片来源：路透社
+**比特矿业公司背景复杂**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/rV66OwpoVhsXD/images/e3482ffb-a051-41b9-8963-3ae09f16a08d.jpg?asset_id=411e8e8e-b795-4896-8511-e032af999e93&amp;img_etag=%2284dfb02b5067bfec739d695d421753e0%22&amp;size=1024)](https://spark.adobe.com/page/rV66OwpoVhsXD/images/e3482ffb-a051-41b9-8963-3ae09f16a08d.jpg?asset_id=411e8e8e-b795-4896-8511-e032af999e93&amp;img_etag=%2284dfb02b5067bfec739d695d421753e0%22&amp;size=1024)
+比特矿业公司（纽交所代号：BTCM）的前身是500彩票网(500.com Limited)，该彩票网与中共有着千丝万缕的财务和人事关系。更重要的是，根据美国证券交易委员会（SEC）的文件显示，500彩票网的一名董事，曾就读中共的中央党校。500彩票网还被确认，曾试图贿赂日本立法者，以便在日本可以设立一个赌场。
 
-**五月二十号：尊敬的战友的好！共产党的流氓统治极权！正在被全世界正义的力量围缫中！每天每时每刻都在加速共产党这个流氓体制．政权的灭亡！我们的爆料革命和新中国联邦！应该做更多的实际行动，唤醒全世界正义和勇敢的人们．加速共产党的灭亡……**
+据《国家脉动》5月21日的报导，中共支持的比特矿业公司以超过2500万美元的资金，投资美国德州的数字加密货币中心。比特矿业与“比特小鹿”虚拟挖矿云端服务平台（Bitdeer）在德州的子公司共同开发“比特币虚拟挖矿”(指新比特币的流通过程)，并成立德州比特币虚拟挖矿中心。
 
-[G-TV链接](https://gtv.org/getter/60a91d6693cb4b1e6f9bd7f0)
+**清华紫光掌控比特矿业公司**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/rV66OwpoVhsXD/images/0863dd05-0f03-401d-8c19-09738e1a5e87.png?asset_id=2cebb9df-77bb-4eea-8128-698d6bce8908&amp;img_etag=%22434602c9c60ab920d452a4a4c5ef6513%22&amp;size=1024)](https://spark.adobe.com/page/rV66OwpoVhsXD/images/0863dd05-0f03-401d-8c19-09738e1a5e87.png?asset_id=2cebb9df-77bb-4eea-8128-698d6bce8908&amp;img_etag=%22434602c9c60ab920d452a4a4c5ef6513%22&amp;size=1024)
+路透社指出，中共国家支持的芯片制造商“清华紫光集团”，就是比特矿业公司的主要股东。到2018年，清华紫光已积累了比特矿业近1/3的股份。清华紫光的联合总裁，就是比特矿业的董事长。清华紫光是清华控股（Tsinghua Holdings）的子公司，而清华控股是清华大学所资助的中共国有企业。前美国国防情报局（Defense Intelligence Agency）高级情报官员和国务院官员尼古拉斯·埃夫蒂米亚德斯（Nicholas Eftimiades）表示，清华大学作为习近平的母校，自然与中共的国家科技和工业管理部门之间有明确的关联，并且正大光明的在中共的国家安全方面进行协助。
 
-• 昨天福克斯对闫丽梦博士进行了采访，背后有着正义力量的推动，震撼了世界。文贵希望闫丽梦博士不要在乎一些虚假的荣誉，科学家天使最重要的是让世界知道真相，减少人类的灭亡，她有上天的使命。
+**清华大学涉及对美国及各国多起网路攻击**
 
-• 国内一系列天灾人祸不断的发生着，中共内部的政治斗争到了水火不融的地步，中共军方进入残酷的斗争之中，涉及到贪污的军费，大额的军费订单，枪把子指挥谁。中共国军队从来没想过打别人，打自己人优先。中国人不打中国人，只杀中国人。
+根据美国国务院的说法，清华大学甚至对美国政府发起过网路攻击。清华大学有一个名为“蓝莲花战队”的网路小组，该小组成员主要是学生。美国遭受来自清华大学数百万次的网路攻击，他们透过非洲、阿拉斯加州的IP，网路攻击了阿拉斯加政府与多个国家。因此，“蓝莲花战队”的网路攻击整体而言相当具有侵略性。独立研究证实，最近一些针对印度藏族社区，以及美国阿拉斯加州政府等多个网路间谍活动，都起源于清华大学。
 
-• 欧中协议，日中协议全部废除，中巴关系，中俄关系都靠不住了，中东和中共关系最铁的几个国家很快会变成敌人。
+点评: 文贵先生曾说，比特币就是洗黑钱的地方，被极少数的人控制，而且与中共关系密切。中共企图用数字化货币，削弱美元的主导力量。然而比特币由于“去中心化”的初衷却导致了目前“极少数人控制比特币”，在未来的“平民主义”世界趋势之下，比特币会被彻底消灭。比特币没有未来，中共当然也完球蛋！
 
-• 中共核心的几个人物的家人都携家带口的往美国，欧洲和日本跑，整个中共官场要大地震了，共产党完蛋了。
+原文链接：[Chinese Communist Party-Backed Bitcoin Firm Invests Millions In Texas Crypto Center.](https://thenationalpulse.com/breaking/ccp-bitcoin-firms-invests-in-texas-crypto-center/)
 
-• 香港逃出来的一些兄弟看到了西方的文明，和香港现状的对比， 感到很痛苦，他们是我们的英雄，香港是我们的圣城。
-
-• 全世界只有我们爆料革命，新中国联邦人敢讲真话，各农场要找出最高水平的人做出高水平的节目和直播，以毒灭共，以钱灭共，让所有人通过GNEWS，GTV，盖特看到共产党在世界上犯下的罪行，不仅种族灭绝、反人类罪，它还正在犯着要消灭全世界的罪，它是全世界的威胁。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/rV66OwpoVhsXD/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/rV66OwpoVhsXD/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-
-
-0
++3
