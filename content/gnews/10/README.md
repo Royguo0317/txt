@@ -1,145 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 安东尼·福奇和美国国立卫生研究院需要向美国人民提供答案
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265779/)
+## 【战友观点】一盘大棋——浅议喜币喜联储
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1265820/)
 
-字幕内容：
+作者：小红帽
+编辑：守望黎明，翼族
 
-Host- Lauren:
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23025303/image001-28.jpg)图片来源：喜马拉雅新西兰农场
 
-主持人-劳伦：
+郭文贵先生的直播里，经常提到新中国联邦的喜币和喜联储。作为一个草根，对于郭先生布局的“隔空取钱”和“以钱灭共”的大棋，以前也只是管中窥豹了解些皮毛，理解颇浅。直到最近拜读了一些关于新量子金融系统以及由黄金支持的数字货币相关的文章，联想到新中国联邦的喜币和喜联储，才有了焕然一新的认识。
 
-Here was scientist journalist Nicholas Wade wrote about Fauci and others involvement of funding that money to WuHan
+喜马拉雅币（简称喜币，HCN）是至今唯一一种以黄金为锚的数字货币，它有20%的币值与实物黄金储备挂钩。由黄金支持的数字货币的诞生、新量子金融体系的到来以及星链技术（天空WiFi）的实施，这几者之间或许存在着密不可分的内在联系。在此笔者想脑洞一下，这几项全新事物的强强联合，究竟对全人类意味着什么呢？这一切要从量子金融的诞生说起。
 
-以下是科学记者尼古拉斯·韦德(Nicholas Wade)关于福奇和其他人参与向武汉提供资金的报道。
+谈黄金支持的数字货币，必须谈到新的量子金融系统(Quantum Financial System)， 简称QFS。众所周知，旧的金融系统由传统的政治集团和金融财阀所左右，其中不乏暗黑势力（其中就包括中共）的操控。很快，旧的金融系统历年来所累积的债务，将无法用法定债务体系的货币供应来偿还。特别是中共病毒引发的大疫情，随之而来的经济危机和与之对应的各国政府货币大量超发注水，会加速传统金融系统的内爆，从而加速走向危机。同时由于对货币需求的加大，各国政府势必会动用更强硬的政策手段限制货币的跨区域流动，这也使得对能够更自由流动的新货币和新金融系统的实际需求空前增长。
 
-“for the first three years of the grant… there was a moratorium on funding gain-of-function research
+大家是否还记得，前段时间郭先生在直播中几次提到，美国金融的崩溃快则在2021年6月，慢则在2021年年底发生。笔者大胆猜测，这会不会跟旧金融系统崩溃和新量子金融系统的诞生有关系呢？旧的不去新的不来，旧的金融系统逐渐式微乃至崩溃，会不会与新生金融系统的诞生和井喷式发展相伴而生呢？
 
-“在赠款…的头三年。暂停了对功能获得性研究的资助。
+量子金融系统旨在创建跨境银行间支付系统的虚拟专用网络。该系统使用的是每秒3.5亿帧的光子技术。它用发送方和接收方路由之间的物理GPS身份验证代替了过时的动态IP路由，同时为所有货币持有者保持100%的财务安全性和透明度。由于量子金融系统运行在一个基于轨道卫星的量子计算机上，并受到秘密太空计划的保护，所以可以确保不会被黑客攻击。早前笔者了解到， 2020年2月，白宫国家量子协调办公室曾发布文件“[美国量子网络的战略构想](https://tech.sina.com.cn/roll/2020-02-21/doc-iimxyqvz4785261.shtml)”（ A Strategic Vision for America’s Quantum Networks），提出美国将汇聚联邦机构、学术界和业界领袖的科研力量，促进量子互联网发展，确保量子信息科学惠及大众。这样看来，在2021年，这个量子网络应该到了可以成熟推广的时候了。
 
-Why didn’t the two agencies therefore halt the Federal funding?….
+众所周知，世界上任何一种货币，它的价值共同点是由有价值的商品、资产或者信用来支持，而黄金是确定货币价值最明显和最普遍的标准。在新的量子金融系统中，黄金将被用作重要的平衡因素，缓冲国家与国家之间货币的差异。有黄金支持的数字货币将扮演着重要角色，只有那些有数字黄金、有黄金或资产支持的货币才是被认可的货币，才可以在新金融系统上流通和转移。
 
-为什么这两个机构没有因此停止联邦拨款呢？
+有黄金支持的数字货币意味着它有一个数字黄金证书，也意味着它的拥有者可以用这块数字货币兑换一块真正的黄金，两者具有相同的价值。文贵先生曾经说过，喜币是至今为止唯一有黄金支持的数字货币，喜币可以兑换黄金。当我们把旧的法定货币换成新的黄金支持的喜币喜美元时，我们实际上是把整个旧的黑暗的社会债务奴役的金融体系换成一个全新的、由黄金支持的量子金融系统。
 
-Someone wrote a loophole into the moratorium…
+每个国家的中央银行（包括新中国联邦的喜联储）将再次成为每个国家财政部的一部分，从而告别像外部私人实体所拥有的联邦储备银行这样的系统。同时，新的量子金融系统有其巨大的独立性，接受各国央行系统的监管，但不受其直接管理。所有暗黑势力、腐败的中央银行和政客在全球金融系统重置后将不再有明显的影响力。这跟文贵先生“以钱灭共”，摆脱权力过度影响金融的目标非常吻合。有大量黄金或资产支持的量子金融系统数字货币，将作为全球所有货币中的佼佼者。人类终于可以向用于债务奴役的暗黑势力所左右的金融系统说再见了。新中国联邦人也会由此过上不受金融盘剥，自己的钱完全由自己支配的美好生活。
 
-有人在暂停该项目文件中…中写了一个漏洞。
+以上，会不会就是喜币和喜联储诞生的伟大意义呢？！
 
-Dr. Anthony Fauci, or…Dr. Francis Collins,
-
-安东尼·福奇(Anthony Fuci)博士，或…弗朗西斯·柯林斯博士。
-
-or maybe both, would have invoked the footnote in order to keep the money flowing…”
-
-或者两者兼而有之，都会引用备注条款，以保持资金流动…。
-
-Senator, this is serious, we got all these people did
-
-参议员，这件事很严重，我们了解了这帮人做的这些
-
-We have all these horrible restrictions of Americans life let the normal suffering
-
-造成我们美国人要过可怕的限制生活，所有这些让正常的人受苦。
-
-Don’t we deserve any answer?
-
-难道我们不应该得到任何答案吗？
-
-Senator-Tom Cotton:
-
-参议员汤姆·科顿：
-
-We do deserve answer Lauren.
-
-我们理应得到答案，劳伦。
-
-Tony Fauci needs to give us an answer
-
-托尼·福奇需要给我们一个答案。
-
-Look, he’s wrong about a lots of last year
-
-听着，他去年很多事情都错了
-
-wrong about masks, wrong about schools,
-
-戴口罩的错误，学校指引的错误，
-
-Now he is wrong about summer camps for kids
-
-现在他对孩子们夏令营的做法是错误的。
-
-But he is also wrong today to say that NIH never directly or even indirectly funded this kind of research
-
-但他今天说国立卫生研究院从未直接或间接资助这类研究的说法也是错误的。
-
-that report mentioned by Nicholas Wade block buster recommend about all of you the audience to read it
-
-尼古拉斯·韦德(Nicholas Wade)提到的那篇报道推荐你们所有的观众去读一读。
-
-Tony Fauci and his agencies need provide answers to the American people
-
-托尼·福奇和他的代理们需要给美国民众确实的答案
-
-about what rule they had been played in funding research in this laboratory
-
-关于他们在资助这个实验室的研究中扮演了什么角色。
-
-Now perhaps, it wasn’t directly into what alertly resulted in this worldwide pandemic
-
-现在也许，这并不是直接导致这场世界性大流行的直接原因。
-
-But why in the first place, would American tax dollars be going to a Chinese Communist lab
-
-但为什么一开始，美国纳税人的钱就流向中国共产党的实验室呢？
-
-that was conducting some of the world most dangerous kind of research
-
-进行了一些世界上最危险的研究。
-
-in the laboratory that we know that we knew three four years ago have very low sloppy safety practices
-
-在我们知道的实验室里，我们三、四年前就知道有安全性很低的操作。
-
-It was extremely reckless
-
-这是极其草率的。
-
-Tony Fauci maybe a good scientist
-
-托尼·福奇也许是个好科学家。
-
-But doesn’t say no much about constitutional self government
-
-但对立宪自治并没有说太多。
-
-He was disrespectful to the United States Senate today
-
-他今天对美国参议院不够尊敬。
-
-And appears to disregard the direction of O’Bama White House five or six years ago.
-
-似乎也无视五六年前奥巴马白宫的领导。
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频连接: [https://twitter.com/sentomcotton/status/1392468278635810816?s=21](https://twitter.com/sentomcotton/status/1392468278635810816?s=21)
-
-英听校:康州盘古农场-WZ
-
-翻译: 康州盘古农场-WZ
-
-翻译终校: 康州盘古农场-格格巫
-
-字幕+视频制作:康州盘古农场-青梅煮酒
-
-审片: 康州盘古农场-银龙
-
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+（文章仅代表作者个人观点）
 
 0

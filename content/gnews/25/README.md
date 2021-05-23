@@ -1,26 +1,97 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 是谁逼走香港月薪8万的公务员辞职，职业的危机还是人生的转机？
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1265664/)
+## 称COVID-19病毒是在中共实验室开发的病毒学家闫丽梦博士，告诉我们更多关于中国的COVID战争的阴谋
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265724/)
 
-作者 ：Neil
+**字幕内容：**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23003913/052302.jpg)
+**Okay, but Dr. Yan, the Chinese scientists and PLA commanders, they may have **
 
-近期网易新闻里《上观新闻》的媒体号一篇《月薪8万的香港公务员辞职：爱国与效忠特区政府竟然有错？》6万多的参与和关注，当然其中五毛占据着大量的篇幅，但是这篇文章作者标题的逻辑是辞职等于不“爱国”，就是对特区政府的“背叛“，从客观逻辑上来说，是没有因果关系的。职业选择入职和离职是正常现象，这是个人对人生下一步是进是退的选择， 同时市场有优胜劣汰，月薪8万港元而辞职，如此高薪，或许有更好的去处呢？
+好的，但是闫博士，中共国的科学家和解放军的指挥官
 
-文章中的梁女士，选择辞职的大背景是中共推出了《国安法》，香港公务员被要求签署拥护基本法、效忠特区的文件，如果签署了这些，也就意味着要受到中共的控制，中共是什么？是杀害镇压香港人的恐怖反人类组织，是奴役中国14亿（目前衰减到11亿）进行新疆种族灭绝的始作俑者，是向世界释放超限病毒生物武器的罪魁祸首。受它的控制，能活吗？最终不免火葬场的待遇，唯一的不同，从生到死的方式；由死到消失的方式，都是中共说了算，比如最终是火化，还是气化，甚至是冰葬，看中南坑王八们的需要。我们从过去中共70年统治中的斗争学，你死我活，可窥见最终的下场，因为你不可能永远站对位置，所以跳出来选择辞职，是对自己人生最负责，对家庭，对香港最好的自我安排。
+**talked about genetically engineering a virus in 2015 in this report,**
 
-**文章中还有一段耐人寻味的话：****所谓的****“****政治中立****”****，就是抛弃个人政治立场，只对特区政府负责；就是收起一己之见，全力执行特区政府政策；所谓****“****政治不中立****”****，就是将个人政治观点凌驾于特区政府决策之上；就是不与特区政府同行、不向特区政府效忠。**
+他们可能在**2015**年的这份**“**解放军指南**”**《非典非自然》中谈到了基因工程的病毒
 
-**梁女士选择了辞职，理应算得上政治中立，因为她选择了跳出中共的控制，而这篇报道的作者，用心的毒在于，把意思反向去解读，把辞职定义为“政治不中立”，有个人想法。**** ****反正就是一句话：你不听话，辞职，就是****”****政治不中立****”****，要对你算账，如果你不听话，也不辞职，中共的举报机制已经在路上，随时就会弄死像梁女士这样爱好和平，心地善良的人，因为香港的一国两制，已经荡然无存。**
+**can that 2015 report directly be linked to the spread of corona virus in 2020, **
 
-香港有17万名公务员， 129名公务员拒签后辞职或被勒令停职或离职。在英国统治香港时期，梁女士尚可以政治中立的方式，廉洁守法的生活。而中共呢，你想中立，中共非给你定一个“不中立”，这是这个政权的邪恶属性决定的。反送中游行等香港大大小小的游行，梁女士基本上都有参与， 不免会成为中共的眼中钉、肉中刺。        像梁女士这种情况的香港人，目前美国、英国、澳洲等多个国家，都在帮助接收更多的香港难民，新中国联邦也在推动更多的国家接收并帮助香港人，让他们在海外得到庇护，帮助他们在当地合法的生活下来。美国国会在今年2月和3月份多次提及《香港避风港法案》，给予香港人避难身份，因为得到两党的支持，相信在今年通过的概率是非常高的，也希望这个法案可以成为助推全世界向香港人抛出橄榄枝的催化剂，帮助更多的香港人度过难关，因为只有活下去，我们才能看到中共的倒台！
+这本《非典非自然》能否直接与**2020**年、**2021**年的**COVID**病毒联系起来
 
-[援引原文](https://www.163.com/dy/article/GAKFHH5K055040N3.html?clickfrom=w_yw)
+**2021, I mean from what you gathered on ground from that report, join the dots**
 
-审核校对：鲁邦五世
-上传排版：糖果儿
+我的意思是，从你对这本**“**解放军指南**”**的了解，请为我们
+
+**for us, Dr.  Yan.**
+
+解读一下，严博士
+
+**so actually, I just want to tell you that this is open published textbook published **
+
+实际上，我先告诉你的是，这本书是由军事医学出版社公开出版的教科书
+
+**by military medical press and it’s a textbook for military students in the universities.**
+
+它是为军事学院里的军事学生编写的教科书
+
+**so you should know that this is also I quote as global times they said it’s a book**
+
+你也应该知道，我引用《环球时报》的说法，他们说这是一本关于理论的书
+
+**about the theory and also in this book they clearly mentioned in the preface that**
+
+而事实是，在这本书中，他们在序言中明确提到
+
+**they get fully support from PLA and the Chinese government in writing this**
+
+他们在写这本书时得到了解放军和中共国政府的充分支持
+
+**and I want to emphasize is, this is not the beginning of their study of**
+
+我想强调的是，这不是中共研究现代生物
+
+**contemporary bioweapon, this is just one step which we have evidence now back **
+
+武器的开始，这只是有证据可以追溯到六年前的中共研究生物武器的一个步骤
+
+**to six years ago, but after that, they have also modified a lot, and they have **
+
+但在那之后，中共也修改了很多，中共在
+
+**recruited a lot of labs under the cover of stable labs, under the cover of **
+
+稳定的实验室的掩护下，在国际实验室的掩护下
+
+**international labs and working with the military to develop it.**
+
+招募了很多实验室，与军方合作开发生物武器
+
+**so they have better knowledge and experience after the sixth year, **
+
+所以中共在六年后应该有更多关于生物武器的知识和经验
+
+**that’s what later you say COVID-19 happened**
+
+这就是后来发生的**COVID-19**大流行的事情
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接: [https://twitter.com/raheemkassam/status/1348463264326365187?s=21](https://twitter.com/raheemkassam/status/1348463264326365187?s=21)
+
+英听校：    康州盘古农场 – Mike Li
+
+翻译：       康州盘古农场 – Mike Li
+
+翻译终校：康州盘古农场 -Ara
+
+字幕+视频制作：康州盘古农场-青梅煮酒
+
+审片**：**康州盘古农场-银龙
+
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 +1
