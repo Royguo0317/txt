@@ -1,47 +1,101 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【币圈】-数字货币动态-2021.5.23
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1266110/)
+## 杰克·基恩（Jack Keane）：以色列对哈马斯领导层，地下隧道造成了“重大损害”
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1266153/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
-![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image5-1024x576.jpg)
-## **每日一问**
+字幕内容：
 
-*币圈的周末，躺平前，思考下HCN和PoS的关系？*
+Brian Kilmeade
 
-## **喜马拉雅Coin要闻**
+布莱恩·基尔梅德（Brian Kilmeade）
 
-- No news is good news.
+General, did Israel stop the right time?
 
+将军，以色列停火是时候吗？
 
-## **新闻动态**
+General Jack Keane
 
-1. 5月22日是一年一度的Bitcoin Pizza Day。
-2. 在5/19加密市场崩跌之际，各主流交易所Binance、Coinbase、Gemini、KuCoin，甚至是加密银行Revolut都出现停机情况。细思极恐。
-3. 加拿大比特币ETF管理公司Horizons昨日向做市商发出“市场中断”警告，若比特币期货价格拉不回来，当天买卖订单恐怕无法执行。
-4. OKlink数据显示，截至昨日，BTC平均算力连续八天明显下跌，跌至151.83EH/s。
-5. 加密分析公司Santiment发推称，本周，以太坊鲸鱼交易笔数飙升至2018年1月以来的最高水平。在9天前触及4358美元的历史高点后，ETH在一周内跌至2015美元，下跌达53.8%。
-6. Balancer官方今日发推称，从本月24日开始，BalancerV2的流动性将从流动性挖矿中获得BAL奖励。Baller投票决定为以下3个池每周分别分配2500BAL：BAL/WETH80/20、WETH/DAI60/40、WBTC/WETH50/50。
-7. ARK基金持仓数据显示，ARK基金昨日买入223,181股Coinbase股票。
-8. 5月22日消息，Peck Shield预警显示，DeFi协议Bogged Finance遭到闪电贷攻击。
-9. 区块链浏览器TRONSCAN最新数据，波场TRON交易总数达1,901,506,006，突破19亿笔。
-10. 特斯拉Elon Musk周六在推特上表示，在法币和加密货币之间的战斗中，他支持加密货币。
-11. 金十消息，OANDA分析师Edward Moya表示，未来，人们会更加关注和担心比特币的波动，这将导致大量资金涌入黄金市场。目前黄金ETF的抛售已经停止，因此看好黄金。
-12. 金丘区块链洪蜀宁昨日在微博表示，目前唯一可能真正打压比特币价格的因素是美联储加息，而不是任何监管政策。
-13. 灰度创始人Barry Silbert回推表示，狗狗币最棒的地方在于它的社区，最糟糕的是埃隆•马斯克崇拜。如果狗狗币从大幅下跌中活下来会支持它。
-14. 新浪财经5月22日消息，周小川表示人民币支付系统的数字化和现代化对提高人民币地位会有一定程度的帮助，但不是想取代第三方支付也不是要取代美元主导地位。
-15. 彭博社消息，摩根大通利率衍生品策略师Josh Younger周五发布的新报告认为，Tether在进入美国银行体系方面将继续面临困难。
-16. Synthetix创始人Kain Warwic发推称，币圈现在仍处于牛市。
-17. 前英格兰银行顾问Huwvan Steenis表示，央行并不害怕加密货币。他认为，保持对货币的控制权是他们转向央行数字货币（CBDC）的关键。
-18. 彭博社5月22日消息，美国前财政部长Lawrence Summers表示，如果加密货币市值占到黄金市值的三分之一，那么加密货币将成为整个金融系统的一部分，那么加密货币有望成为数字黄金。
-19. Decrypt消息，高盛即将发布报告显示，该银行已经认真研究了加密货币。似乎试图探讨加密货币成为一种新的资产类别的可行性。
+杰克·基恩将军
 
+Well, we don’t know that for sure
 
+好吧，我们不确定
 
+I mean, I believe the Prime Minister Netanyahu from the outset
 
+我的意思是，我相信内塔尼亚胡总理从一开始就
 
+when he when he got this fuselage of an unprovoked attack on Israeli people
 
+当他得到对以色列人民的无端攻击的事实时
 
+he made his mind that he was going to degrade their military capability
 
-+2
+他下定决心他要降低他们的军事能力
+
+rather significantly in his quick time as he possibly could,
+
+相当显著的在他可能的快速时间内
+
+and I think he dismissed  the idea of a ground invasion
+
+并且我认为他取消了地面入侵的想法
+
+that took place in 2014, which lasted almost  50 days
+
+发生在2014年，持续了几乎50天
+
+and result in a lot of condemnation against Israel
+
+从而导致了当时以色列受到很多谴责
+
+because of that, but only, only they know,
+
+因为那个，但是只有他们知道
+
+but I assumed just from sources that they have done significant damage to Hamas
+
+但我仅从消息来源推测，他们已经对哈马斯
+
+and the Palestinian Islamic Jihad’s infrastructure,
+
+和巴勒斯坦伊斯兰圣战组织的基础设施造成了重大的损害
+
+just their rockets and missiles and launchers,
+
+他们的火箭，导弹和发射器
+
+but also that tunnel network which one is 9 to 12 miles underneath
+
+而且还有在加沙城地下9到12英里的隧道网络
+
+that the Gaza City，  it’s very significant part of their support structure
+
+这是他们支持结构中非常重要的一部分
+
+and they took down a lot of their leaders as well
+
+他们也消灭了很多领导人
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 https://www.foxnews.com/media/jack-keane-hamas-leadership-underground-tunnels-damage-israel-conflict-ceasefire
+
+英听校：    康州盘古农场 – Layka
+
+翻译：       康州盘古农场 – Layka
+
+翻译终校：康州盘古农场 – Mike Li
+
+字幕+视频制作：康州盘古农场-天涯行
+
+审片：康州盘古农场-银龙
+
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

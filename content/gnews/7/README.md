@@ -1,28 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 巴以冲突的恐怖来自德黑兰
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1266152/)
+## 【圣城传声筒】香港惩教署应基于人道理由改善设施应对酷热
+` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1266312/)
 
-信息来源：德国世界报网络版 
-记者：安捷·舒普曼（Antje Schippmann）
-发布时间：2021年5月22日
-翻译 /整理/ 简评： Shuizhuyu
-
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23080727/IMG_0530.jpg)
+荐评：纽约香草山香港部写作组
 
 
-德国外长海科·马斯（Heiko Maas）前往特拉维夫（Tel Aviv）表示强烈的声援。他对支持以色列的认真程度将很快变得明显：即西方正在与大屠杀的伊朗谈判新的核协议。
 
-外交部长海克斯·马斯（Heiko Maas）周四前往以色列表示声援。在此之前的11天里，从犹太地区的加沙地带发射了4,300多枚火箭。马斯说：“只要该地区有一些团体和国家想要消灭以色列，你就必须能够保卫自己。”德国将为此作出自己的贡献。 “我们的团结不仅限于言语。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
 
-这次旅行是外交部长的有力姿态，表明他的一些前任可能还没有做好准备。马斯（Maas）在反对反犹太主义和维护以色列的安全时是认真的，这对他来说是一件内心的事情，这是他政治遗产的一部分。但是与哈马斯最重要的支持者伊朗进行危险的核协议的重新谈判也在他的任期内。
 
-简评： 有关巴以冲突的新闻我已经发出了很多篇了， 今天这篇必须为德国外长的表态和行动点赞。他坚决的支持以色列的自卫行为， 并亲临特拉维夫表示出了明确的姿态， 这在德国最近几年的外交史上也是非常罕见的。 与其他政客尤其是联合国秘书长只关注于巴勒斯坦死亡多少人， 而忽视以色列的伤亡的行为截然不同。 同时这位记者还提到， 德国现任外交部长是极力推动当初和伊朗的核协议谈判的一位。 他现在已经意识到了与伊朗这样的邪恶轴心国加上有中共的背后支持，他明确的警告， 西方正在和进行大屠杀的伊朗谈判。 还谈吗？还能谈吗？还有谈的基础吗？
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
+原文及图片来源：立场新闻
 
-🔗[Israelhass-Der-Terror-kommt-aus-Teheran](https://www.welt.de/debatte/kommentare/article231307365/Israelhass-Der-Terror-kommt-aus-Teheran.html)
+全文阅读：
 
-+1
+[【监狱热爆】钢制家俬「㷫」人　热夜饮滚水　石墙花发起联署　要求惩教署改善](https://www.thestandnews.com/politics/%E7%9B%A3%E7%8D%84%E7%86%B1%E7%88%86-%E9%8B%BC%E8%A3%BD%E5%82%A2%E4%BF%AC-%E3%B7%AB-%E4%BA%BA-%E7%86%B1%E5%A4%9C%E9%A3%B2%E6%BB%BE%E6%B0%B4-%E7%9F%B3%E7%89%86%E8%8A%B1%E7%99%BC%E8%B5%B7%E8%81%AF%E7%BD%B2-%E8%A6%81%E6%B1%82%E6%87%B2%E6%95%99%E7%BD%B2%E6%94%B9%E5%96%84/)
+
+* * *
+
+* * *
+
+近日天气酷热，天文台更指本年截至前日（19日）打破有记录以来5月最多热夜纪录。组织“石墙花”关注酷热天气下监房内的情况，并发起联署，要求惩教署能基于人道理由，认真考虑各项能改善监房内酷热问题的措施。
+
+原来，即使监房内的温度计已显示为35度，供在囚人士的饮用水仍是热滚水。监狱内酷热无比，监房内的家俬多由不锈钢制成，吸热快散热慢，“台台櫈櫈”都是“烫”的，叫人坐立不安。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23091612/26-15.jpg)
+
+“石墙花”创立人、前立法会议员邵家臻指，希望在一星期或更短的时间内能够收集十万签名，交给惩教署；随后他在晚上表示，发起联署后三小时，已经获得一万人签署。
+
+另据香港天文台公告，本年截至5月19日已录得7日“热夜”，打破1884年有记录以来5月最多热夜纪录。
+
+* * *
+
+据香港电台网站23日报道，香港天文台在当天下午2时30分录得气温为36.1度，是有记录以来5月的最高气温。目前，香港酷热天气警告正在生效。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205738/M5-1.jpg)
+
+校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
+
+
+
+0
