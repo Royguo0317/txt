@@ -1,45 +1,177 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加密货币交易开始上报，打击黑暗加密货币
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1264787/)
+## 观看：福奇说他正在试图雇用中国共产党的官员，研究员们
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265702/)
 
-台湾宝岛农场:文旦
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22132149/%E6%93%B7%E5%8F%96523-0.jpg)
-美国财政部周四（5月20日）宣布，要求超过1万美元的加密数字货币交易必须向美国国税局（IRS）报告。
+字幕内容：
 
-美国财政部在周四发出的一份税收执法建议报告中表示，那些接受加密货币作为支付方式的公司，要求跟现金交易一样、若收到超过1万美元的加密货币应当向IRS报告。
+Dr. Fauci
 
-加密货币开始影响世界经济，可是在无中心化的加密货币中，被中共利用来在黑市等不法方式洗钱。
+福奇博士
 
-当这些无中心化的加密货币，被少数人控制之时，接会变成一个屠宰场，想杀你就杀你，想升就升，想降就降，并利用宣传手段，及各种方式，制造效应，使更多人都金钱进入这个市场，但最终得利者只会是这些控制者。
+On a number things that we should be doing
 
-去中心化的加密货币，无法有任何的保障，也没有任何的支撑，也无法运用来消费，只会被更多人是用来洗钱。
+在一些我们应该做的事情上
 
-在这个情况下，各国开始重视这个问题，并会开始对去中心化的加密货币，实施消灭，美国各洲也开始了加密货币可以支付的法案，但这是对于有中心化的加密货币，有实体之称的加密货币，公平的加密货币，不会被控制的加密货币实施开放。
+Steve Clemons
 
-这也将消灭这些被中国共产党暗地里运作的所有加密货币，因为这些去中心化的加密货币，就是使用来洗钱及圈钱的。
+史蒂夫·克莱蒙斯
 
-传播真相，缺你不可，你很重要，你的一小步，将是灭共的一大步。
+Are the Chinese doing more?
 
-资料来源:
+中国人做得更多吗
 
-[美财政部：超一万美元加密货币交易需上报-大纪元](https://www.epochtimes.com/b5/21/5/20/n12964058.htm)
+Dr. Fauci
 
-台湾宝岛农场YOUTOBE:
+福奇博士
 
-[5月21日《我们的万亿货币帝国》第六期《加密货币项目成功的必备条件》主持：政清、台湾大牛、威廉王](https://www.youtube.com/watch?v=c23SETduMpM)
+you know it’s very interesting that you should mention
 
-希望大家帮忙订阅分享!!!感谢你!!!
+你知道你应该提到这很有趣
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+I was just about a half an hour before I came here
 
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+就在我来这里大约半小时前
 
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+They weren’t serving margaritas there though
 
-文章审核：zhong
+他们虽然在那里不提供玛格丽塔酒
 
-文章发布：Little Liu
+To the sentence…
+
+到这句话…
+
+Steve Clemons
+
+史蒂夫·克莱蒙斯
+
+Or was the room that’s full
+
+房间是那么满吗？
+
+Dr. Fauci
+
+福奇博士
+
+No it wasn’t very stay
+
+不，不满，
+
+We had a Visit that was at the center for strategic and International studies right on Rhode Island Ave
+
+我们访问了在罗德岛大道（Rhode Island Ave）的战略和国际研究中心
+
+we had a visit from the Vice Premier of China,
+
+我们有中共国副总理的来访
+
+the Director of the Chinese CDC,
+
+中国疾病预防控制中心主任
+
+and the President of the Center for Advanced Medical Science in China,
+
+以及中共国的先进医学科学中心主席
+
+and they met with myself and a few others Secretary Price,
+
+他们会见了我自己和其他一些人，前卫生与公众服务部长汤姆-普莱斯
+
+talking about just your question,
+
+谈论了就你刚刚的问题
+
+Steve Clemons
+
+史蒂夫·克莱蒙斯
+
+how did you fly fly？
+
+你是如果夸夸其谈的？
+
+Dr. Fauci
+
+福奇博士
+
+Wait, the question is yes
+
+等一下，问题是是的
+
+Is that if you look at investment in science
+
+那是如果你看和在科学上的投资
+
+If you look at an investment in science
+
+如果你看一看对科学的投资
+
+the Chinese are increasing their investment in biomedical research by something like 26% this year
+
+今年中共在生物医学研究方面的投资增加了约26％
+
+and take a look at what we’re doing
+
+再看看我们在做什么
+
+we’re cutting it by a percent
+
+我们削减了一个百分点
+
+so if you do the bar graph
+
+所以如果你做条形图
+
+you will see a bargain
+
+你将看到一个差距
+
+Steve Clemons
+
+史蒂夫·克莱蒙斯
+
+Other tweetable moment right there
+
+那里还有可发推的时刻
+
+I guess it means the truth they are investing very very heavily in biomedical research
+
+我猜这意味着他们在生物医学研究上投入了大量的事实
+
+Steve Clemons
+
+史蒂夫·克莱蒙斯
+
+They are  thinking of hiring you
+
+他们在考虑雇用你？
+
+Dr. Fauci
+
+福奇博士
+
+I’m trying to hire them
+
+我正试图雇用他们
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 https://twitter.com/nataliegwinters/status/1392859143334100995?s=24
+
+英听校：    康州盘古农场 – Layka
+
+翻译：       康州盘古农场 – Layka
+
+翻译终校：康州盘古农场 – Mike Li
+
+字幕+视频制作：康州盘古农场-青梅煮酒
+
+审片：康州盘古农场-银龙
+
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

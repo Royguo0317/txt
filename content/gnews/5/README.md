@@ -1,27 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 意大利护士抗议 ：“他们不能强迫我们接种疫苗”
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1264867/)
+## 【热点播报】立陶宛宣布退出17+1合作组织
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1265665/)
 
-消息来源：今日意大利（today.it）
-发布时间：2021年05月21日
-翻译整理：斩草要除根
+**作者**：香草山美食部 蓝天大海
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22142112/bermix-studio-yWYiNNK_tOI-unsplash-scaled.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
 
 
-5月21日星期五，由意大利交通联合会（Cub）组织的，在伦巴第大区米兰举行了静坐抗议活动，在那儿，工会的五十多名医务工作者表达了对法律的异议，因为该法律要求在该地区工作的人注射疫苗。
 
-抗议者的解释：“我们如果不接受疫苗注射，就会得到政府的制裁和解雇，这是一种可耻的敲诈。每个人都必须自由选择是否接种疫苗，然后事实并非如此。接种疫苗不可以防止100％的传染，他们没有强迫我们的权利。”
 
-没有接种疫苗的医务人员不仅是在伦巴第，例如，在威尼斯记录的数据也与全国平均水平不符，那里有5,000多名没有接种疫苗的卫生工作者，现在正面临减薪的风险。
 
-简评：在政府大规模强推疫苗接种的声音下， 这些抗议的力量实在太微弱了。现在可笑的是：不接种疫苗的人被认为是不正常的人，对没有接种的人的限制让其以后寸步难行。这是一个疯狂的世界，即使在西方世界，人们也没有了选择的权力，似乎只能被迫无奈的选择屈服。
+据法新社5月23日报道，立陶宛外长兰斯伯格斯本周六正式宣布，立陶宛今后将不再出席17+1峰会，他同时呼吁其他成员国跟进。立陶宛的这一决定或许会产生连锁反应。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23004221/image0-4-5.jpg)图片来源：维基百科
+17+1合作组织成立于2012年，它是一个中共国与中东欧国家之间的合作组织。这个组织设有一个成员国领导人定期会晤的机制，每年举行一次会议。该组织成立初期，是16+1，后来希腊加入，变成17+1。
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
+在今年二月举行的17+1峰会上，尽管中共国非常重视，将原计划由总理主持峰会，改由习近平主持，但由于立陶宛等六国降低了出席会议人员的层级，结果令中共国失望。
 
-🔗[infermieri-no-vax](https://www.today.it/cronaca/infermieri-no-vax.html)
+本周四，立陶宛国家议会通过一项决议，认定北京对新疆维吾尔穆斯林犯下“种族灭绝”和“人类大屠杀”罪。它呼吁联合国出面组织人员前往新疆调查，还要求欧盟因此修正与北京的关系。
 
-+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23004602/image0-11-1.jpg)
+
+除此之外，立陶宛最近还否决了中共国对立陶宛的部分投资，以及决定在台湾开设商业办事处。这令中共非常气愤。
+
+由于中共国在新疆维吾尔人权问题上对欧盟采取了反制裁，欧盟议会日前决定冻结《欧中投资协定》，这使得中共国在欧洲的影响力日趋减弱。欧洲国家在对抗中共国的问题上变得空前团结。随着ccp病毒的真相彻底被揭露，越来越多的国家和人民都会加入围剿中共的行列。
+
+编辑/校对/发稿：遍地开花
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193850/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1-1.jpg)
+
+
+
+
+
+0

@@ -1,46 +1,97 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共支持的比特币公司在德克萨斯州的加密中心投资了数百万美元
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1264767/)
+## 称COVID-19病毒是在中共实验室开发的病毒学家闫丽梦博士，告诉我们更多关于中国的COVID战争的阴谋
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265724/)
 
-- 作者： Jenny Ball
+**字幕内容：**
 
+**Okay, but Dr. Yan, the Chinese scientists and PLA commanders, they may have **
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+好的，但是闫博士，中共国的科学家和解放军的指挥官
 
-**西班牙2021年5月22日电/西喜社——**
+**talked about genetically engineering a virus in 2015 in this report,**
 
-总部位于中共国的BIT矿业有限公司向位于德克萨斯州的比特币采矿业务投资超过2500万美元。
+他们可能在**2015**年的这份**“**解放军指南**”**《非典非自然》中谈到了基因工程的病毒
 
-中共国公司与德克萨斯州子公司Bitdeer进行合作“比特币采矿”，这将促使德克萨斯采矿中心的建设。
+**can that 2015 report directly be linked to the spread of corona virus in 2020, **
 
-BIT矿业公司（前身为500.com）与中共有着广泛的财务和人事联系。
+这本《非典非自然》能否直接与**2020**年、**2021**年的**COVID**病毒联系起来
 
-路透社已经确认“中共国政府支持的芯片制造商清华紫光集团为主要股东”，到2018年已经收购了公司近三分之一的股份，并指望其联席总裁为公司董事长。清华紫光集团是清华控股的子公司，清华控股是一家由清华大学在北京资助的国有公司。清华大学是习近平的母校。“在与[他们]可以采取什么措施来帮助国家安全的讨论中，据国防情报局和国务院官员尼古拉斯·埃夫蒂米德斯（Nicholas Eftimiades）的前高级情报官说，“他们与国家科技和产业管理机构之间有着明确的联系”。
+**2021, I mean from what you gathered on ground from that report, join the dots**
 
-根据美国国务院的说法，这所学校甚至发起了针对美国政府的网络攻击：
+我的意思是，从你对这本**“**解放军指南**”**的了解，请为我们
 
-“清华大学有一个名为“蓝莲花小组”的网络小组，该小组成员是学生，但他们也在清华大学进行数百万次点击——通过非洲、阿拉斯加州，针对阿拉斯加的网络点击攻击政府，来自清华的多个国家网络。 因此，他们的网络组件在大规模攻击方面相当具有侵略性。”
+**for us, Dr.  Yan.**
 
-独立研究证实，该机构“是最近针对诸如印度的藏族社区和阿拉斯加州政府等组织的多次网络间谍活动的起源。”
+解读一下，严博士
 
-此外，该公司在美国证券交易委员会（SEC）的文件显示，500.com的一位董事曾在中共中央党校学习。
+**so actually, I just want to tell you that this is open published textbook published **
 
-500.com还被认定企图贿赂日本议员，以期在日本建造赌场。
+实际上，我先告诉你的是，这本书是由军事医学出版社公开出版的教科书
 
-**评论： 如果美国公司现在还决定与中共背景的公司合作，尤其是与中共国力资助的大规模网络攻击过美国政府的公司合作**，那**这就不是生意了，而是引狼入室。不仅置国家安全以危险之中，更是将自己的子子孙孙的生命和未来，绑在了邪恶独裁中共即将灭亡的战车上。**
+**by military medical press and it’s a textbook for military students in the universities.**
 
-**从专业和商业的角度看， 97%的比特币在中共和华尔街黑心大鳄那1.4%人的手里，他们可以翻云覆雨随意操作币价，随时收割套进去的韭菜。加上比特币的去中心化，成为中共和贪婪社会“精英”从事犯罪活动的温床，必将在不久的将来受到各国国家和政府的全力抵制，难道这是你们期盼的商业回报蓝图？**
+它是为军事学院里的军事学生编写的教科书
 
-**中共发动的病毒生化战，已经唤醒了世界正义良知的人们，决心彻底根除这个人类文明的邪恶毒源，希望那些还想从中共口中捡到一些残羹的美国公司也能早日清醒过来。**
+**so you should know that this is also I quote as global times they said it’s a book**
 
-素材： Jenny Ball； 审核：文乐； 校对：阿伯塔； 发稿：Nuevo唐人
+你也应该知道，我引用《环球时报》的说法，他们说这是一本关于理论的书
 
-**素材链接：**[thenationalpulse.com](https://thenationalpulse.com/breaking/ccp-bitcoin-firms-invests-in-texas-crypto-center/)
+**about the theory and also in this book they clearly mentioned in the preface that**
 
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+而事实是，在这本书中，他们在序言中明确提到
 
+**they get fully support from PLA and the Chinese government in writing this**
 
+他们在写这本书时得到了解放军和中共国政府的充分支持
+
+**and I want to emphasize is, this is not the beginning of their study of**
+
+我想强调的是，这不是中共研究现代生物
+
+**contemporary bioweapon, this is just one step which we have evidence now back **
+
+武器的开始，这只是有证据可以追溯到六年前的中共研究生物武器的一个步骤
+
+**to six years ago, but after that, they have also modified a lot, and they have **
+
+但在那之后，中共也修改了很多，中共在
+
+**recruited a lot of labs under the cover of stable labs, under the cover of **
+
+稳定的实验室的掩护下，在国际实验室的掩护下
+
+**international labs and working with the military to develop it.**
+
+招募了很多实验室，与军方合作开发生物武器
+
+**so they have better knowledge and experience after the sixth year, **
+
+所以中共在六年后应该有更多关于生物武器的知识和经验
+
+**that’s what later you say COVID-19 happened**
+
+这就是后来发生的**COVID-19**大流行的事情
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接: [https://twitter.com/raheemkassam/status/1348463264326365187?s=21](https://twitter.com/raheemkassam/status/1348463264326365187?s=21)
+
+英听校：    康州盘古农场 – Mike Li
+
+翻译：       康州盘古农场 – Mike Li
+
+翻译终校：康州盘古农场 -Ara
+
+字幕+视频制作：康州盘古农场-青梅煮酒
+
+审片**：**康州盘古农场-银龙
+
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 +1

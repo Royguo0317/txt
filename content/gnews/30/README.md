@@ -1,27 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒从武汉实验室逃逸更能解释病毒的起源
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1264559/)
+## 哈马斯恐怖组织领导人公开揭秘：伊朗助其攻以色列，包括提供资金和武器
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265544/)
 
-#### 翻译：Evalu | 校对：Wenwang
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22105520/%E6%90%9C%E7%8B%90.jpg)图片来源：搜狐
-据印度国家先驱报（National Herald）5月21日报道，《原子科学家公报》（Bulletin of Atomic Scientists）专栏作家尼古拉斯·韦德（ Nicholas Wade )认为，目前所获得的所有事实均表明，萨斯-2（SARS-2，也就是Covid-19)从实验室逃逸比它产生于自然更能解释其来源。
+字幕内容：
 
-韦德说：“在实验室逃逸的假设之下，不难理解该病毒起始于武汉，因为武汉是中国研究冠状病毒的主要中心。该研究所的研究人员用基因工程技术改造蝙蝠冠状病毒，以攻击人类细胞，他们在刚达到2级生物安全要求的实验室（BSL2）做这种实验，一旦具有感染人类细胞能力的病毒在那里形成，它们从实验室逃逸出来就不难理解了。”
+Hamas political leader–Ismail Haniyeh
 
-韦德指出，武汉病毒研究所被称为“蝙蝠女”的研究员，也是中共国顶尖的蝙蝠病毒专家石正丽（ Shi Zheng-Li), 经常去中共国南方云南省的蝙蝙洞，收集了一百种蝙蝠冠状病毒。然后她与北卡大学杰出的冠状病毒研究者拉夫·巴利克（Ralph S Baris)合作,专们研究增强蝙蝙病毒攻击人类细胞的能力，检验蝙蝠病毒从蝙蝠传到人类的可能性。为了这个目的，2015年11月他们制造了一种以萨斯-1（SARS1，即2002-2003年爆发的萨斯病毒）为骨架，替换了另一种蝙蝠病毒（SHC014-CoV)的刺突蛋白，这种构造的病毒能够感染人类呼吸道细胞。
+哈马斯政治领袖伊斯梅尔·哈尼亚
 
-报道称，媒体喜欢说中共病毒是来源于自然，包括世卫组织（WHO）今年2月期间去中共国参观时，也持如此说法。世卫组织委员会受到中共政府的深度控制，其成员一直声称，病毒从实验室逃逸是极不可能的。但这种来自中共的宣传并不太成功，中共始终拿不出支持自然来源的证据。当初的萨斯和中东呼吸道综合症（MERS)病毒留下了很多来自自然的痕迹，萨斯的中间宿主于爆发后4个月就被发现，而MERS在9个月后就发现宿主。目前的中共疫情已经发生了15个月，尽管到处寻找，中共国始终没有找到起始的蝙蝠群或病毒的中间宿主，也没给出任何中共国早期感染人群的血清学证据，包括2019年12月以前感染病毒的武汉人群样本。一年多了，始终没有支持自然来源的证据。
+Today, we are facing this great and overall danger
 
-罗格斯（Rutgers）大学分子生物学家，生物安全方面顶级专家理查德·埃伯瑞特（Richard H Ebright)说：“很清晰的事实是，武汉病毒研究所系统性地构建了嵌合性冠状病毒，并通过让含有人类ACE2的小鼠受感染的方式，来对这种病毒如何感染人类细胞的能力做评估。”
+今天，我们正面临着这一巨大而全面的危险
 
-韦德最后指出，经过严谨的逻辑分析，中共病毒的来源应该更倾向于实验室逃逸的理论。
+We believe that we, as an Islamic nation, need a strategic and overall plan
 
-评论：
+我们认为，作为一个伊斯兰国家
 
-中共一直声称造成本次大流行的中共病毒来自自然，但却始终拿不出任何支持自然来源的证据。相反，已经有大量的证据证明，中共病毒来源于中共国的实验室。这些证据包括，中共国科学家甚至联合国际病毒学家做了病毒基因工程改造，研究改造的病毒能感染人体细胞，以及对实验室能表达人类ACE2基因的转基因老鼠的感染，这些都是板上钉钉的证据，从逻辑上不难得出结论，即这个病毒来源于实验室。这样的共识已经得到越来越多的正直的科学家和人们的认同，真理是经得起时间和各种证据考验的，而谎言在真理面前不攻自破。
+我们需要一个战略性和全局性的规划
 
-原文链接：[Lab escape from Wuhan can explain coronavirus more easily](https://www.nationalheraldindia.com/science-tech/lab-escape-from-wuhan-can-explain-coronavirus-more-easily)
+to face this danger that threatens our cause and our Jerusalem
+
+直面威胁我们事业和我们耶路撒冷的危险
+
+The essence of this strategy is the resistance project
+
+这一战略的实质是抵抗方案
+
+Complete resistance including the armed, military resistance at the top
+
+完全抵抗策略，包括最高层的武装军事抵抗
+
+From here, I salute all the components of the nation that  embrace  and support
+
+在这里，我向所有拥护和
+
+支持我们国家的人致敬
+
+The choice of resistance backs it on the ground in Palestine
+
+在巴勒斯坦当地选择支持抵抗
+
+Here, I am particularly specifying the Islamic Republic of Iran
+
+在这里，我特别提到伊朗伊斯兰共和国
+
+Which has not faltered in supporting and funding the resistance financially, militarily and technically
+
+在财政、军事和技术上支持和
+
+资助抵抗力量的努力没有动摇
+
+This is an example of the Republic’s strategy
+
+这是共和国战略的一个例子
+
+that was established by Imam Khomeini, may God have mercy on his soul
+
+这是由伊玛目霍梅尼建立的
+
+愿上帝怜悯他的灵魂
+
+He is the one who announced the last Friday of Ramadan as the global day for Jerusalem
+
+他是宣布斋月最后一个星期五
+
+为耶路撒冷全球日的人
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频连接: [https://twitter.com/mikepompeo/status/1392573957904154628?s=21](https://twitter.com/mikepompeo/status/1392573957904154628?s=21)
+
+英听校:康州盘古农场-WZ
+
+翻译: 康州盘古农场-WZ
+
+翻译终校: 康州盘古农场-文白
+
+字幕+视频制作:康州盘古农场-天涯行
+
+审片: 康州盘古农场-银龙
+
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 +2

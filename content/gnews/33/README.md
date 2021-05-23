@@ -1,49 +1,465 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美左派人士警告拜登：美国会反华措施只会煽动种族仇恨 无法遏制中共野心
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1264530/)
+## 医学博士Peter McCullough和Tucker Carlson讨论了为什么新冠康复患者、孕妇和其他人被排除在新冠肺炎疫苗临床试验之外
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265497/)
 
-#### 翻译报道：Andrew
+字幕内容：
 
-#### **责编：胡天**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22103111/1-119.png)
-[图片来源](https://www.codepink.org/strategiccompetitionact)
+Tucker:
 
-据Politico网站报道，一些反战立法者和激进主义者表示，如果将中国定位为对美国的生存威胁，只会激起美国国内的种族仇恨，而在遏制中共野心方面几乎不会起到任何作用。
+塔克：
 
-该文指出，美国总统拜登和国会领导人迫切地想要对中国采取强硬措施，但是一些左派的民主党人和激进主义者表示，他们倾向于采取更加缓和的态度，因为他们担心新的反华政策将激起美国国内针对亚裔的种族主义仇恨，进而导致陷入与中国无休止的冷战式冲突。
+Think that’s interesting who work in the hospital wouldn’t want vaccine
 
-美国参议院在本周内推动了一揽子反华法案，并得到了两党和白宫的支持，但是60多个激进组织和至少4个立法者对其提出批评，呼吁一致反对这些方案在参议院的通过。
+我觉得这很有趣，在医院工作的人不会想要接种疫苗
 
-首先，他们认为，拜登总统将中国定义为最主要的竞争对手，将21世纪定义为美国领导的民主阵营与中国领导的专制阵营的较量，两党的国会领导人也一致地同意通过一系列方案以应对局势，但是这些方案将花费数千亿美元，因为他们对抗的是世界第二大经济体的中国。这种可能长达数十年的庞大的军费开支很可能加剧美国国内针对亚裔的仇恨情绪，就像9·11之后美国人仇视伊斯兰人一样。
+These are people who work on a good year plan
 
-一位立法者督促拜登政府和国会领导人要对中共政府采取更加合作的态度，声称美国要区分正常谴责中共政府践踏人权和将中国作为美国自身问题替罪羊和仇视美国华人的冷战思维。
+这些人都有很好的年度保险
 
-该文还声称，虽然当下没有议员站出来反对这些方案，但随着惩罚中共所带来的军费开支增加以及无视中美合作，未来情况会有改变。
+I means these are people who work around the medicine
 
-一些立法者担忧美国军费开支将远超实际应对中国威胁所需要的。众议员马克·波坎（Mark Pocan）称：“美国国防开支的规模已经是中国的3.5倍，今年很有可能在国防开支上比中国多支出5300亿美元，更多的开支应该用在外交上。”
+我是说，这些人都是在医药行业工作的人
 
-参议员伯尼·桑德斯的外交顾问称要警惕对华强硬政策成为为了实现两党团结的工具，应该更多地考量中美冷战潜在的影响。
+that’s they do for a living
 
-其次，与中共的紧张关系让拜登实现其制定的外交政策目标难上加难，这些目标包括应对全球气候变化和控制新冠病毒的蔓延。
+这是他们的谋生之道
 
-据悉，中美之间日益紧张的局势已经造成美国反亚裔人数的激增。[一个呼吁停止歧视亚裔美国人的](https://stopaapihate.org/wp-content/uploads/2021/05/Stop-AAPI-Hate-Report-National-210506.pdf)组织近日发布的论文中显示，2020年到2021年，针对亚裔美国人的口头或身体攻击，甚至侵犯人权的数量几乎翻了一番，就像9·11袭击之后，美国反穆斯林仇恨情绪有所上升一样。
+They are around medicine, also around COVID, they much higher chance of getting
 
-一些反战和进步人士联名抨击无尽前沿法案等反共法案，称这些只会失去在气候变化，疫情防治等与中国合作的机会，会引发种族歧视，暴力，排华，白人种族主义等问题。
+他们都在医药界，也在COVID环境中工作，他们因在医院工作而感染的
 
-参议院外交委员会主席Bob Menendez称美国与中国是战略竞争关系，我们要正视现在的中国，中共和习在发起超级民族主义，它是前所未有的挑战。我们要着眼它是什么样子，而不是我们想让它成为什么样子。他还说他和他的同事不能无视中共对邻国的威胁以及新疆种族灭绝的罪行。
+infected with work in the hospital
 
-而那些进步人士反驳称让中国为那些罪行负责是没错的，但要讲究策略。习近平对于新疆的镇压手段（例如，对于民众的监控以及随意羁押有伊斯兰极端主义威胁的民众）也是曾经美国对于恐怖主义采取的手段。
+几率要高得多
 
-#### 点评：
+McCullough,
 
-Politico作为一个左派媒体，被中共渗透严重的媒体，在报道上避重就轻，因果颠倒，逻辑混乱。
+麦卡洛
 
-首先回避和淡化了为什么美国采取强硬政策的原因，那就是中共发动生物战、反人类罪等一系列重要事实。相反，却在大篇幅说这些方案和政策会导致的一些后果，比如军费增加，歧视亚裔，一些国际问题上失去与中国合作的机会等等。殊不知中共一天不铲除，美国乃至世界一天不会有安宁，各种族的矛盾会连续不断的出现，甚至白人种族都会遭受灭绝，因为中共就是靠这种制造矛盾的手段在中国存活了70年。
+Listen,
 
-其次，文章混淆概念，中国于中共不分，反华与反共不分，全篇都在用中国，故意将中国人民推到美国的对立面，与中共绑架在一起，其用心险恶可见一斑。
+听着
 
-原文链接：[Progressives warn Biden, Congress against fueling hatred with anti-China measures](https://www.politico.com/news/2021/05/19/china-policies-racism-489688)
+Tucker:
+
+塔克：
+
+But they still don’t want it
+
+但他们还是不想要
+
+McCullough：
+
+麦卡洛：
+
+They know the clinical trials, this is very important
+
+他们知道临床试验，这是非常重要的
+
+Because we participated in the clinic trials
+
+因为我们参加了临床试验。
+
+The FDA, Pfzer, Moderna, JJ, AstraZeneca, strictly exclude, strictly exclude
+
+FDA、辉瑞、摩德纳、强生、阿斯利康、严格排除，严格排除
+
+COVID recovered, suspected COVID recovered
+
+新冠康复者，疑似新冠康复者
+
+Those who had anti-bodies, pregnant women,
+
+那些有抗体的人，孕妇，
+
+women of childhood bearing potential who couldn’t sure contraception
+
+那些需要生育不能采取避孕的妇女
+
+That’s a huge group of exclusions, that’s a giant part of the healthcare work force
+
+这可是一大群人，在医疗保健工作队伍中占很大一部分
+
+So of course, they look for it
+
+所以，当然，他们会寻找
+
+Tucker
+
+塔克
+
+This is a giant chunk of Americas
+
+这可是一大群美国人
+
+McCullough:
+
+麦卡洛:
+
+So, Tucker, if they were eligible for a randomized trials,
+
+所以，塔克，如果他们有资格参加随机试验
+
+And say, you know what?
+
+你知道吗？
+
+the FDA in sponsors thought
+
+美国食品药品监督管理局在提案中认为
+
+may be it was a problem of the safety or they have no chance of benefit
+
+这可能是安全问题，也可能是他们没有机会受益。
+
+only a small chance of these safety events exclude them
+
+在安全问题上，只有很小的可能性
+
+Why would they elect to go into investigation program now?
+
+为什么他们现在要选择进入调查程序呢？
+
+Tucker:
+
+塔克:
+
+So I don’t think most Americans are even aware of that
+
+所以我认为大多数美国人甚至没有意识到这一点
+
+I meaning the fact pregnant women were excluded from the safety trials,
+
+我的意思是孕妇被排除在安全试验之外
+
+I think it’s fairly aware they known?
+
+我想他们很清楚地知道这些吗？
+
+I think, it’s last known that COVID recovered
+
+我想，我们最后知道他们是新冠康复者
+
+and that I don’t know how many tens of millions Americans fallen into  that category
+
+我不知道有多少数千万美国人属于这一类
+
+but certainly, tens of millions have Covid whether they knew or not recovered from it
+
+但可以肯定的是，数以千万计的人得了新冠，不管他们知道还是不知道已经康复
+
+They were excluded from the trials
+
+他们被排除在试验之外
+
+Why, what grounds?
+
+为什么，什么理由？
+
+McCullough：
+
+麦卡洛：
+
+Well, very good grounds
+
+嗯，非常好的理由
+
+COVD recovered patients
+
+新冠康复者
+
+so far are wrecking a terrific track records of freedom from re–infection
+
+到目前为止，他们打破了免于再次感染的良好记录
+
+It’s nearly ear tight
+
+就像耳朵疼症状一样
+
+SARAS COVID 1 is 80% molecules to SARS Covid 2
+
+非典1与非典2的分子结构有80%相同
+
+SARAS COVID 1and 2 are 80% the same
+
+非典1和2的同源性为80%
+
+The first SARS Pandemic, people had durable and completely immunity
+
+第一次非典大流行，人们有了持久的完全免疫力
+
+17 years so far, you don’t get a twice
+
+到目前为止已经17年了，你不会再次感染
+
+We’ve had a 111 million people in the world who have gotten this infection
+
+世界上已经有1.11亿人感染了这种病毒
+
+if there is a chance for double and triple infection in the same person
+
+如果同一个人有双重或三重感染的机会
+
+we would have seen it by the millions, millions
+
+我们可能已经看了好几百万，好几千万了
+
+if you look into the literature, maybe you can find a hundred cases were someone says:
+
+如果你查一下文献，也许你会发现有上百个病例是有人说的：
+
+“I think they got re-infected
+
+“我想他们是被再次感染了。”
+
+We look at almost always it’s a misinterpretation of one of these PCR tests
+
+我们几乎总是认为这是对其中一种PCR检测的误解
+
+which is commonly false part
+
+这通常是错误的部分。
+
+Tucker:
+
+塔克：
+
+Yes
+
+是。
+
+McCullough:
+
+麦卡洛：
+
+then someone is sick over here, most recent one from France obviously was a misinterpretation
+
+那么这里有人生病了，最近从法国来的病例显然是个误会
+
+One of the false narratives out there issue can get the infection twice.
+
+其中一个虚假的叙述可能会引起两次感染
+
+It’s a false narrative in the FDA
+
+美国食品和药物管理局的说法是错误的
+
+Tucker:
+
+塔克：
+
+Why are they, why would people say that?
+
+为什么他们，为什么人们会这么说？
+
+McCullough:
+
+麦卡洛：
+
+FDA is responsible knew that
+
+FDA应负有责任知道这一点
+
+Of course they excluded record of recovered patients,
+
+当然，他们排除了康复病人的记录
+
+They know you can’t get it again
+
+他们知道你再也得不到了
+
+They’re not going to have in a clinical trial
+
+他们不会在临床试验中
+
+And have a clinical trial goes to the NO
+
+并进行临床试验显示 否
+
+They knew that
+
+他们知道这一点
+
+But when they came out, I think in the air of caution, this is innocent explanation, the air of caution
+
+但是当结果出来的时候，我想在谨慎的气氛中，这是无辜的解释，谨慎的气氛。
+
+They say that, you know what, we’ll make it available to everybody
+
+他们说，你知道吗，我们会把它提供给所有人
+
+For quickly making available to everybody
+
+快速提供给每个人
+
+SARS become a coercive thing
+
+非典成为一种强制性的东西
+
+So now people said so that I am a COVID recoverer and I am pregnant
+
+所以现在人们都这么说我是COVID康复者，而且我怀孕了
+
+I was even not tested, the study is the safe
+
+我甚至没有做过测试，研究结果是安全的
+
+Every pregnant woman, the only thing we allow is the inactivated flu shot
+
+每一个孕妇，我们唯一允许的就是灭活流感疫苗
+
+And the tightness theory for touches which is inactive
+
+并且有严格的理论规定使用灭活疫苗
+
+We never let anything pathogenic into a woman’s body whose pregnant, never
+
+我们不会让任何病原性的东西进入怀孕的女人体内，永远不会
+
+We can vaccine, all the forms that vaccine produced viral Spike protein
+
+我们可以接种疫苗，所有产生有毒的刺突蛋白（S蛋白）
+
+They produce one type by the way the Wuhan had original type
+
+他们是按照武汉病毒早期序列生产的一种疫苗
+
+which by the way is long gone in Uinted States
+
+顺便说一句，早期序列病毒在美国早已不复存在
+
+We’ve got 14 strings right now
+
+我们现在有14种序列的病毒
+
+Wuhan original is one of them
+
+武汉病毒早期序列只是原型之一
+
+But you produce that a high quantity in the body that is directly pathogenic
+
+但你会在体内产生大量直接带有病毒的物质
+
+It causes blood clots, it damages the blood vessels, causes fever.
+
+它会导致血液凝块，损伤血管，引起发烧
+
+So we are actually having women’s body produce pathogenic, a pathogenic protein for a few days
+
+所以我们实际上是让女性的身体在几天内产生病原性的，一种病原性的蛋白质
+
+Tucker:
+
+塔克：
+
+We don’t need to take any other vaccine
+
+我们不需要接种任何其他疫苗
+
+McCullough:
+
+麦卡洛：
+
+Never
+
+不需要。
+
+Tucker:
+
+塔克：
+
+We try to not using F word on TV now
+
+我们现在尽量在电视上转播中不爆粗口
+
+But I’m getting upset hearing this now
+
+但是我现在听到这个让我很不高兴
+
+What, eh, why would we do that?
+
+什么，呃，我们为什么要这么做？
+
+McCullough:
+
+麦卡洛：
+
+I’m not a public health official, I am a doctor, I don’t think like public health officials
+
+我不是公共卫生官员，我是医生，我不像公共卫生官员那样思考
+
+It appears to be out of a year,
+
+病毒袭击我们已经一年多了
+
+we have a year of this difficult time here in America
+
+在美国这一年的困难时期能
+
+try to make a new product through America innovation available to everybody
+
+努力通过美国的创新让每个人都能获得一种新产品
+
+and there was an idea of
+
+一种想法
+
+we’ll make it available and then try to weigh benefit risk later on under the investigation of
+
+我们将提供它，使用一个阶段后，然后再尝试
+
+use a way period
+
+权衡收益风险
+
+as a doctor I can tell you I am not recommending a pregnant woman getting a vaccine
+
+作为一名医生，我可以告诉你，我不建议孕妇接种新冠疫苗
+
+I’m not recommending any ex-including groups from the trials get a vaccine
+
+我不建议任何测试群体-接种疫苗
+
+We’ve no information on safety
+
+我们没有关于安全的信息
+
+We’ve no information on efficiency
+
+我们没有有效的信息
+
+It violates simple medical practice principle
+
+这违反了简单的医疗实践原则
+
+We don’t use things we don’t have a single benefit or acceptable safety
+
+我们不使用我们没有任何好处或可接受的安全性的东西
+
+We don’t do it
+
+我们不会这么做的
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频连接: [https://twitter.com/purelotusheart1/status/1391251996267761669?s=21](https://twitter.com/purelotusheart1/status/1391251996267761669?s=21)
+
+英听校:康州盘古农场-WZ
+
+翻译: 康州盘古农场-WZ
+
+翻译终校: 康州盘古农场-Mike Li
+
+字幕+视频制作:康州盘古农场-天涯行
+
+审片: 康州盘古农场-银龙
+
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 +1

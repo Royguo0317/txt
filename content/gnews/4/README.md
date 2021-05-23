@@ -1,29 +1,145 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## NBA关联基金投资了被标记为中共工具的公司
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1264883/)
+## 安东尼·福奇和美国国立卫生研究院需要向美国人民提供答案
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1265779/)
 
-翻译: JS709 | 校对: Elsie | 审核: 黎明的光芒
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22143618/Screen-Shot-2021-05-22-at-1.31.11-PM.png)图片来自视频截图
-**由已故的****NBA****球星科比****·****布莱恩特（****Kobe Bryant****）资助的一家风险投资基金公司投资了几家与中共有联系的公司，其中包括被美国国务院标记为中共政府****“****工具****”****的公司**。
+字幕内容：
 
-布莱恩特·斯蒂贝尔(Bryant Stibel ) 公司于2013年开始运营，获得NBA全明星的1亿美元资金。 该公司投资部门参投的公司与中共有联系的有：阿里巴巴，VIPKid和满帮集团。
+Host- Lauren:
 
-自2016年以来，该公司与腾讯共同投资了在线学习平台VIPkid，腾讯被美国国务院国际安全与防扩散局称为“中共政府的工具”。该部门还注意到，“如果中共的官员要求协助，该公司完全没有能力说不，”因此，国务院还把腾讯列为提供“技术监视和社会控制之基础”，以使中共政府能够“按照其专制模式塑造世界”。
+主持人-劳伦：
 
-VIPKid与中国日报等国有媒体合作，甚至因其试图解雇展示独立的台湾和香港地图以及准确描述残酷的天安门大屠杀的教师来影响学校课程设置而受到批评。
+Here was scientist journalist Nicholas Wade wrote about Fauci and others involvement of funding that money to WuHan
 
-相反，在2016年《华尔街日报》论坛上的一次采访中，科比称赞了该公司及其首席执行官，指出“这实际上是在激发孩子们去了解一个更广阔的世界。” 而VIPKid也将其触角扩展到了美国的教室，将其服务“捐赠”给了几个公立学区。
+以下是科学记者尼古拉斯·韦德(Nicholas Wade)关于福奇和其他人参与向武汉提供资金的报道。
 
-布莱恩特·斯蒂贝尔基金还与中投公司一起投资了中国的科技和电子商务巨头阿里巴巴，中投公司是由现任和前任中共高级官员领导的中共主权财富基金。除了阿里巴巴领导层与中共的联系之外，该公司也是中共在技术上寻求超越美国的关键。
+“for the first three years of the grant… there was a moratorium on funding gain-of-function research
 
-同样，这一与NBA关联的基金也投资了中共国公司满帮集团，这是“中共国整车货运领域领先的在线商业货运平台”。该公司的出资方包括国新科创基金管理有限公司，这是一家在中共控制下运营的私募股权公司。
+“在赠款…的头三年。暂停了对功能获得性研究的资助。
 
-国有媒体《中国日报》概述，该基金的控股公司是“经国务院批准的国有独资公司和经国家授权的投资机构。”其主要目标之一是“支持中央政府的技术创新和产业升级。”
+Why didn’t the two agencies therefore halt the Federal funding?….
 
-原文作者：娜塔莉·温斯特（NATALIE WINSTERS）
-发布时间：2021年5月19日
-原文链接：[https://thenationalpulse.com/exclusive/nba-firm-invests-in-ccp-companies/](https://thenationalpulse.com/exclusive/nba-firm-invests-in-ccp-companies/)
+为什么这两个机构没有因此停止联邦拨款呢？
+
+Someone wrote a loophole into the moratorium…
+
+有人在暂停该项目文件中…中写了一个漏洞。
+
+Dr. Anthony Fauci, or…Dr. Francis Collins,
+
+安东尼·福奇(Anthony Fuci)博士，或…弗朗西斯·柯林斯博士。
+
+or maybe both, would have invoked the footnote in order to keep the money flowing…”
+
+或者两者兼而有之，都会引用备注条款，以保持资金流动…。
+
+Senator, this is serious, we got all these people did
+
+参议员，这件事很严重，我们了解了这帮人做的这些
+
+We have all these horrible restrictions of Americans life let the normal suffering
+
+造成我们美国人要过可怕的限制生活，所有这些让正常的人受苦。
+
+Don’t we deserve any answer?
+
+难道我们不应该得到任何答案吗？
+
+Senator-Tom Cotton:
+
+参议员汤姆·科顿：
+
+We do deserve answer Lauren.
+
+我们理应得到答案，劳伦。
+
+Tony Fauci needs to give us an answer
+
+托尼·福奇需要给我们一个答案。
+
+Look, he’s wrong about a lots of last year
+
+听着，他去年很多事情都错了
+
+wrong about masks, wrong about schools,
+
+戴口罩的错误，学校指引的错误，
+
+Now he is wrong about summer camps for kids
+
+现在他对孩子们夏令营的做法是错误的。
+
+But he is also wrong today to say that NIH never directly or even indirectly funded this kind of research
+
+但他今天说国立卫生研究院从未直接或间接资助这类研究的说法也是错误的。
+
+that report mentioned by Nicholas Wade block buster recommend about all of you the audience to read it
+
+尼古拉斯·韦德(Nicholas Wade)提到的那篇报道推荐你们所有的观众去读一读。
+
+Tony Fauci and his agencies need provide answers to the American people
+
+托尼·福奇和他的代理们需要给美国民众确实的答案
+
+about what rule they had been played in funding research in this laboratory
+
+关于他们在资助这个实验室的研究中扮演了什么角色。
+
+Now perhaps, it wasn’t directly into what alertly resulted in this worldwide pandemic
+
+现在也许，这并不是直接导致这场世界性大流行的直接原因。
+
+But why in the first place, would American tax dollars be going to a Chinese Communist lab
+
+但为什么一开始，美国纳税人的钱就流向中国共产党的实验室呢？
+
+that was conducting some of the world most dangerous kind of research
+
+进行了一些世界上最危险的研究。
+
+in the laboratory that we know that we knew three four years ago have very low sloppy safety practices
+
+在我们知道的实验室里，我们三、四年前就知道有安全性很低的操作。
+
+It was extremely reckless
+
+这是极其草率的。
+
+Tony Fauci maybe a good scientist
+
+托尼·福奇也许是个好科学家。
+
+But doesn’t say no much about constitutional self government
+
+但对立宪自治并没有说太多。
+
+He was disrespectful to the United States Senate today
+
+他今天对美国参议院不够尊敬。
+
+And appears to disregard the direction of O’Bama White House five or six years ago.
+
+似乎也无视五六年前奥巴马白宫的领导。
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频连接: [https://twitter.com/sentomcotton/status/1392468278635810816?s=21](https://twitter.com/sentomcotton/status/1392468278635810816?s=21)
+
+英听校:康州盘古农场-WZ
+
+翻译: 康州盘古农场-WZ
+
+翻译终校: 康州盘古农场-格格巫
+
+字幕+视频制作:康州盘古农场-青梅煮酒
+
+审片: 康州盘古农场-银龙
+
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
