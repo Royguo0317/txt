@@ -1,28 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】中东又被点火 塔利班发动袭击威胁阿富汗省会
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1267530/)
+## 【快讯】英国爆将审查大学内的中共国间谍
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1267603/)
 
-阿富汗当局星期天说，随着以美国为首的外国军队继续从阿富汗撤出，国家安全部队与塔利班叛乱分子展开激战，以防止他们占领阿富汗东部一个省会中心。
+环球时报今天报道说：
 
-美国国防部周日晚间证实，阿富汗陆军总司令穆罕默德·亚辛·齐亚（Mohammad Yasin Zia）与其他高级安全官员一起抵达拉格曼，并领导反塔利班行动。
-
-据当地居民和安全机关的消息来源报告说，在主要省监狱附近和迈赫塔勒姆部分地区发生了激烈的战斗。据报道，双方都有人员伤亡，但目前还没有任何细节。
-
-阿富汗媒体报道说，巴格兰省北部多个地区及其省会普勒库姆里周围也发生激烈战斗。
-
-5月1日，美国和北约盟国开始从阿富汗撤出最后一批剩余部队后，阿富汗多个省份的暴力活动升级。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23215435/213.jpg)
 
 简评：
 
-继巴勒斯坦，伊朗袭击以色列失败，巴哈冲突平息之后，不难让人猜测中共又在开辟了新的战场。在美军撤军之时，在中东到处点火。
+作为被中共国渗透最为严重的英国，藏有中共最多的财富，蓝金黄的间谍。和中共政府的高级官员的配偶和子女。
+
+这次清查如属实，表明英国在紧跟美国的步伐，开始清理内部蓝金黄的力量。另外，此时由中共环球放出这篇文章， 又有通风报信，或者诱骗海外留学生回国的嫌疑？
+
+加入新联帮，与中共彻底分割，海外的无辜的留学生应该行动起来了，联系爆料革命，争做污点证人，海外大学里的间谍们可以行动起来了，
 
 参考链接：
 
-[https://www.voachinese.com/a/taliban-attack-threatens-afghan-provincial-capital/5901785.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/taliban-attack-threatens-afghan-provincial-capital/5901785.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
 
-图片来源：[https://www.voachinese.com/](https://www.voachinese.com/)
+
+> 英國也開始了 [pic.twitter.com/ZsPYFqapow](https://t.co/ZsPYFqapow)
+> — Andy5 (@andy5\_123) [May 24, 2021](https://twitter.com/andy5_123/status/1396637106949165056?ref_src=twsrc%5Etfw)
+
+
+
+新闻采编：康州盘古农场新闻组
 
 整理撰稿：蓝精灵
 
@@ -30,4 +33,4 @@
 
 \*以上仅代表作者观点，不代表Gnews平台\*
 
-0
++1

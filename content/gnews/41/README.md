@@ -1,29 +1,72 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【拆台新闻】中共抱怨印度“忘恩负义”未实现边境武力降级
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1267499/)
+## 【战友心声】相对问——灭共三断论
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1267614/)
 
-印度陆军参谋长纳拉万表示，在中印边境依旧部署有5，6万军队，目前中印两国都没有违反脱离接触进程的相关规定，但是中印对峙局势仍旧没有实现武力降级。
+作者：纽约香草山健身部 澄道
 
-中共媒体报道抱怨在印度疫情的紧要关头，中共生出了宝贵的支援之手，印度忘恩负义。
 
-简评：
 
-闫博士在印度最大媒体今日印度接受访谈时候说：疫情是中共发起的超限生化武器。印度人大概都已经明白。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
-双方边境依旧维持武力对峙，说明印度一方面在努力控制疫情，另一方面依旧加强防范。对于中共的不信任。中共试图用疫苗，物资来实现缓和，作用并不大。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23202644/209.jpg)
 
-参考链接：国内新闻
+![]()![](https://media.discordapp.net/attachments/721544615953432698/844714604995412028/image0.jpg?width=1083&amp;height=609)
 
-图片来源：[https://www.sohu.com/](https://www.sohu.com/)
+楼震
+币震
+行震
+楼在罢工
+币在罢课
+行在罢市
+欧中震
+日中震
+印中震
+巴中震
+俄中震
+中东震
+震震相联
+世界“三罢”
 
-整理撰稿：蓝精灵
+四年前
+有多少人恨共产党？
+没几个
 
-校对发布：Penny
+四年后
+有多少人不恨共产党？
+没几个
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+共产党
+真的时日不多了！
+No
 
-+1
+共产党
+你完球蛋了！
+Yes
+
+（本文仅代表作者观点）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+
+校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+
+
+0
