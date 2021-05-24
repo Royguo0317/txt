@@ -1,59 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美国情报报告加速推进世界卫生组织对病毒起源的调查
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1269308/)
+## 医生称廉价药物混合可以帮助印度摆脱COVID危机
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1269458/)
 
-作者：香草山信息部  雪梨
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
+- 作者：Jenny Ball
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24103844/%E5%9B%BE%E7%89%8727-2.png)
-周日，《[华尔街日报](https://www.wsj.com/articles/intelligence-on-sick-staff-at-wuhan-lab-fuels-debate-on-covid-19-origin-11621796228?mod=e2tw)》援引一份此前未披露的美国情报报告称，武汉病毒研究所（WIV）的三名研究人员在2019年11月寻求医院治疗。正值世界卫生组织（WHO）决策机构开会的前夕，这份报告预计将成为呼吁WHO对COVID-19病毒起源进行更广泛调查的一枚重量级砝码。
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-这份报告的内容与川普政府于1月15日发布的关于WIV的[国务院简报](https://2017-2021.state.gov/fact-sheet-activity-at-the-wuhan-institute-of-virology/index.html)吻合。该简报提到，“美国政府有理由相信，在2019年秋季，WIV内部的几名研究人员在第一个被确认的疫情病例之前就已经生病”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24103823/%E5%9B%BE%E7%89%8728-2.png)
-《华尔街日报》称，这份报告的细节超出了川普政府的简报内容，提供了关于受影响的研究人员数量、患病的时间以及他们在医院就诊的新细节。
+**西班牙2021年5月24日电/西喜社——**
 
-3月30日，WHO发布[病毒起源报告](https://www.who.int/publications/i/item/who-convened-global-study-of-origins-of-sars-cov-2-china-part)，称“实验室泄露是最不可能的假说”。同一天，美国、澳大利亚、英国、加拿大、日本等14个国家发表[联合声明](https://www.state.gov/joint-statement-on-the-who-convened-covid-19-origins-study/)，对世界卫生组织新公布的有关新冠病毒起源的报告提出了共同的关切，对有关病毒起源的国际专家研究被严重推迟，而且缺乏获取完整和初始数据与样本的准入途径表达关切，希望“为病毒起源研究的下一阶段及时、透明、基于证据的程序以及下一次卫生危机”铺路。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02141529/image0.png)
 
-WHO称该调查报告虽然反映了对现有数据的全面审议，但“还没有发现病毒的源头”。并声明访问武汉期间，他们在获取原始数据等方面遇到了困难。总干事谭德塞此前也声称还需要进一步研究和更多的数据来证实病毒来源。
+上周我们报道过，印度各地越来越绝望的社区一直在采取有争议的策略（至少在美国是这样），以试图缓解危机带来的影响。社区一直在使用廉价的抗疟疾药物来预防COVID-19，因为缺乏数据表明该药物可以帮助降低死亡率和住院率-考虑到印度全国范围内病床和氧气的短缺情况，这对维持重症患者生命至关重要。
 
+这是指使用药物伊维菌素，在某种程度上类似于羟氯喹。已显示出一些证据表明羟氯喹是一种有效的预防药物，可以保护最脆弱的人群免受COVID-19的侵害（记得川普总统在新闻发布会上说，他每天在某一时间服用该药物）。但是，由于印度大部分地区都无法获得足够的疫苗和治疗药物，例如吉利德的瑞德希韦（研究表明，相反其效果并不明显），因此公共卫生官员随即决定使用混合药物治疗。
 
+《印度时报》本周发表了一篇社论，由两名美国学者和医学专业人士维卡斯·苏卡特姆（Vikas Sukhatme）博士和维杜拉·苏卡特姆（Vidula Sukhatme）签署，暗示了一些廉价平凡的药物可以用于印度最脆弱的患者作为预防措施。这些药物未经批准可用于治疗COVID，但已经显示出“在预防或治疗新冠状病毒方面的巨大前景”。部署使用它们可能会降低死亡率和住院率。尽管某些药物目前正在大规模随机试验中进行测试，但没有时间等待结果再决定。
 
-> 世卫组织顾问，曾为克林顿政府和拜登工作过的左派梅茨接受福克斯采访，呼吁全体美国人、美国政府、全人类、全世界政府团结一起彻查病毒来源真相
-> 他说，如果病毒源于实验室事故泄漏，这就是刑事犯罪，习近平会被推翻
-> 
-> 一个标准左派，作为世卫顾问，接受右派媒体采访，号召美国人团结一致，什么情况？ [pic.twitter.com/vmCXzNxOOq](https://t.co/vmCXzNxOOq)
-> — 乔戈里峰 (@K2Qiaogeli) [May 23, 2021](https://twitter.com/K2Qiaogeli/status/1396614772355833856?ref_src=twsrc%5Etfw)
+相反，印度卫生当局应发布指南，建议在COVID-19的每个阶段使用最有前途的药物。 这样做将鼓励医生开处方作为预防措施。当然，应该跟踪结果数据，以获取可能显示出的各种效果。
 
+医生们引用的两种主要药物伊维菌素和氟伏沙明已被证明是有效的，并且来自400多名重症COVID-19患者的未公开数据表明，一起使用氟伏沙明和伊维菌素的处方可能更有效。
 
+尽管印度每日病例数已从高峰期回落，但住院和死亡率仍接近历史最高水平。 当然，随着发展中国家为放弃对COVID疫苗的知识产权保护而奋斗，廉价的现有药物可能更有效对抗COVID，这将对大医药公司(Big Pharma)的底线构成另一种威胁。
 
-梅茨，世卫组织顾问，曾服务于克林顿政府，并与拜登共事，在接受福克斯采访时说中共从第一天起就大规模掩盖病毒真相，并呼吁美国政府和全世界政府在第二天召开的世卫大会上寻求更大的改变；同时称，如果病毒源于实验室事故泄漏，将属于刑事犯罪，习近平会被推翻。
+**评论： ****爆料革命的路德节目，在2020****年1****月19****日就报道了硫酸羟氯喹对治疗和预防新冠状病毒的作用。冠博士夫妇更是做了详细的药理临床解释。听爆料革命的战友和听众都知道这个信息。但是各国政府和媒体对羟氯喹和其他经济有效药品的打压，已经不是以治病救人为动机了。这原本是大夫们的职责，但是却完全演变成政治目的和经济利益为目的博弈，政客们根据利益在給人们开处方，多少良知医生被媒体封杀被政府打压！**
 
-以毒灭共进展迅速。情报界，塞林博士与战友们倾力合作，逐步挖掘出中共病毒背后的始作俑者和利益相关方。政治界，[巴西总统Bolsonaro](https://www.dailymail.co.uk/news/article-9550207/Brazils-hardline-President-Bolsonaro-says-China-created-COVID-19-spark-chemical-war.html)此前演讲称，中共发动了生化战争；美国联合各国政府向中共施压。科学界，先有前CDC总监Robert Redfield声称病毒起源于实验室；现福奇博士抓住闫博士抛出的救命稻草，跳下贼船，成为“无辜科学家”，不否定病毒来自实验室的说法，并支持对病毒来源进一步调查。媒体界，CNN著名主持人Sanjay Gupta此前公开支持Robert Redfield的病毒实验室起源说；如今，病毒实验室起源说已成为美国左中右派、及世界各大媒体的焦点。
+**其实最知道羟氯喹和伊维菌素作用的正是制造并释放病毒的中国共产党，可悲的是这个真相爆料革命呼吁了一年多，仍没有还医生行使本职工作的自由。印度在万般无奈之下才使用了最有效果最经济的策略。反思吧，我们每个人没有了自由，尤其是没有了言论自由，我们的生命就是大鳄和政客棋盘上的卒子，就是大医药集团的实验室白老鼠。**
 
-以共灭共势不可挡。中共内忧外患。内，楼震，粮食危机，银行危机，货币危机，金融危机，人民对中共的信心降到冰点；外，八十国联军全面追责病毒起源，全世界冻结中共资产，西方与中共国全面脱钩，BGY全面崩溃，利益链集体切割。
+素材： Jenny Ball；审核：文乐；校对：阿伯塔；发稿：信心的选择
 
-中共无处遁形。承认病毒来自实验室，中共解体；继续捂着，死不承认，内外高压，经过内部斗争，输家被推出去顶罪，国人觉醒，中共还是得解体。
+**新闻来源：**[零对冲](https://www.zerohedge.com/covid-19/doctors-claim-cocktail-cheap-drugs-could-help-india-extinguish-covid-crisis?utm_campaign=&amp;utm_content=Zerohedge%3A+The+Durden+Dispatch&amp;utm_medium=email&amp;utm_source=zh_newsletter)
 
-校对/发稿：飞虹
+**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1

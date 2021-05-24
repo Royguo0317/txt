@@ -1,37 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【马云】离任湖畔大学校长
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1269584/)
+## 美前国家情报总监抨击拜登对中共态度软弱
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1269727/)
 
-```
-新闻来源：意大利安莎通讯社（ANSA）
-发布时间： 2021年5月24日
-翻译整理/简评： 斩草要除根
-```
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑上传   水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24174126/B-21.jpg)beforeitsnews.com
+每日传讯 (The Daily Caller)5月23日新闻报道，美前国家情报总监约翰·拉特克里夫 (John Ratcliffe)批评拜登政府处理中共问题的方式过于软弱。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24150653/news120336.jpg)图片来源：联合日报
+拉特克利夫称，如果拜登政府拒绝在中共病毒的起源、维吾尔族种族灭绝和其他紧迫的全球政策问题上与中共对抗，那么他们将继续被认为对中共态度软弱。
 
-电子商务巨头阿里巴巴（*Aibaba*）的创始人马云（*Jack Ma*），将从他建立的精英商学院校长的职位上辞职，这是北京与他的团队在陷入困境之后逃避关注的最新举措。
+拜登提名的国家情报总监办公室法律总顾问克里斯托弗·方宗(Christopher Fonzone)曾为华为工作。拉特克利夫同时指责拜登称，“他的判断力真的很差。我不明白他们为什么要这么做。” “如果你同意我的观点……认为中共国是我们最大的国家安全威胁，那你为什么要让一个中共国律师负责我们的情报界?”
 
-据《金融时报》报道，知情人士透露，湖畔大学是一家于2015年在该大亨故乡杭州成立的顶级企业高管学院，现已被更名，并将对课程进行重组。
+华为是一家中共电信公司，被前总统川普指控对美国公民进行间谍活动。在川普政府时期，商务部实施了限制措施，要求华为获得一项特殊许可证才能获得半导体。拜登延长川普的华为禁令，作为安全审查行动的一部分，禁止当地公司使用“构成国家安全风险的企业”制造的电信设备。
 
-由于北京试图限制其影响力，他不会在重组后的组织中担任任何高级职务。一位知情人士告诉英国《金融时报》：“湖畔大学就像一个精英社区，这是（当局的）主要目标之一。”
+参考链接：
 
-自本月初以来，在社交媒体上以普通话传播的视频显示，工人正在清除“湖畔大学”这个大型标志上的字符。《城市日报》在4月还报道说，由于北京方面不断施加压力，在拆除马云的金融科技帝国后，该大学也被迫暂停新生入学。
+[https://dailycaller.com/2021/05/23/john-ratcliffe-maria-bartiromo-china-huawei-joe-biden/](https://dailycaller.com/2021/05/23/john-ratcliffe-maria-bartiromo-china-huawei-joe-biden/)
 
-#### 简评：
-
-**曾经无限风光的马云在其壮大以后，现在被中共开始步步紧逼。中共国的企业家也不过就是上面政权揽财的工具罢了。在这个共产党当权的国家里，无论是企业还是个人，如果想要拥有自己的独立个性，那就是犯了当朝最大的忌讳，必将被诛之。**
-（本文只代表译者观点，与Gnews平台无关。）
-
-**新闻原文链接：**
-
-🔗[Alibaba:Ft, Jack Ma lascia presidenza della Hupan University](https://www.ansa.it/sito/notizie/topnews/2021/05/24/alibabaft-jack-ma-lascia-presidenza-della-hupan-university_e80389c4-fce4-4e37-82f3-c0e9f4cdfd32.html)
-
-* * *
-
-***编辑整理/校对: **Ting Guo*
-
-0
++1
