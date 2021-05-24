@@ -1,36 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【武汉病毒学研究所】三名病毒学家已于2019年11月患病
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1268562/)
+## 2021年5月23日 文贵先生盖特 4
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1268642/)
 
-```
-新闻来源：今日意大利（today.it）
-发布时间： 2021年5月24日
-翻译整理/简评： 斩草要除根
-```
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
+5/23/2021郭先生直播：共产党治下的“中国人民的悲惨世界” – 中国共产党靠杀地主自己变成地主，而悲惨的中国人从出生到下葬，每时每刻要向中共上贡、“孵化的”富豪甚至还要搭上性命 5/23/2021 Miles Guo: “Les Misérables” of the Chinese People Under CCP’s Regime The CCP became the landlord by killing other landlords, while the miserable Chinese people must pay tributes to the CCP from their birth till their burial. Even the “incubated” billionaires have to lose their lives.
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24052957/112225291_untitled.png.jpeg)图为武汉病毒研究所坐落在武汉市东部一个并不偏僻的地方 图片来源：盖蒂图片
+[【2021年5月23日】文贵先生盖特原文](https://gtv.org/getter/60ab6305744cbc431363b36d)
 
-来自中共国武汉病毒学研究所的三名研究人员于2019年11月患病，并在一家医院接受了“中共病毒症状和常见季节性感染症状相似”的医疗服务。《华尔街日报》 援引美国情报报告的话报道说，该报告有可能重新引发关于冠状病毒起源以及该病毒从中共国实验室逃脱的可能性的辩论。
+**喜联盟Gnews编辑部**
 
-该披露是在世界卫生组织决策机构召开会议的前夕进行的，预计该会议将对中共病毒起源调查的讨论引入到下一阶段。
-
-美国报纸解释说，消息来源可能具有潜在意义，因为该消息可能将疾病传播的开始时间提前，但仍需进一步调查和进一步确认。
-
-不能确定的是这三位研究者患了什么病：据报道，他们不得不去医院就医，发现其症状与季节性感冒不适均相类似。
-
-#### 简评：
-
-**中共国一再否定新冠病毒是从其实验室中被泄露的，企图通过转移注意力让世界不能去真正追溯病毒来源。但是越来越多关于中共病毒的声音开始出来，都在朝着真相揭发的这条路上汇聚。**
-（本文只代表译者观点，与Gnews平台无关。）
-
-**新闻原文链接：**
-🔗[“Tre virologi del laboratorio di Wuhan ammalati già a novembre 2019”](https://www.today.it/rassegna/covid-origine-cina.html)
-
-* * *
-
-***编辑整理/校对: **Ting Guo*
-
-+1
+0
