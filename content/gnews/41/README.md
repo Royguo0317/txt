@@ -1,47 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 风向变了 闫博士报告的反对者们纷纷撤下了他们的报道
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1269207/)
+## 【信仰之声】中共偷盗本性的根源
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1269463/)
 
-**摘要：在2021年5月21日的盖特视频中，郭先生说曾经最反对和攻击过闫博士报告的“大咖”、科学家、媒体纷纷默默撤下他们的报道，在斯坦福和MIT这两所顶级大学的科学家们都透彻研究了闫博士的报告，他坚信国会一定会召开病毒听证会，因为这不是政客能决定的，这是美国人民意志决定的。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24102333/Miles_2021-05-21-getter1.srt.txt)
-**风向变了  闫博士报告的反对者们纷纷撤下了他们的报道**
+作者：纽约香草山福音部 山城小哥
 
-**Opponents of Dr. Yan’s Reports Secretly Switch Gears **
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-9.jpeg)
 
-另外一个你看到世界的这个局势，关于病毒的问题。今天一大早，咱们最好的合作伙伴，这名字不能说，这是在美国政界的大佬，给我发信息说，他说你发现了吗？最近的某某某的发言，也就是原来最最反对我们的闫博士的所谓三个报告的，曾经在不同场合反对我们的科学家报告的人。他说，最近在私下场合已经是不一样的说法了。他说闫丽梦科学家讲的这些事情，是有很大的价值的，而且是可信的。
 
-Likewise, you look at the situation of the world, about the virus. Early this morning, our best partner, who I can’t say his name, a bigwig of American politics, sent me a message talking about someone who previously opposed the three reports of our Dr. Yan most, on several different occasions in the public. He said, “Have you noticed the recent speech of XXX? Recently this guy has changed his narrative privately.” He also said that the things that Dr. Li-Meng Yan had talked about were of great value and credibility.
 
-所以说这个朋友问我，说你觉得国会听证的事情会不会发生。我说我们一定会让它发生的，国会的听证一定会发生的。美国国会的听证就是已经取决于美国人民的意志，他不代表哪个流氓政客，一定会发生的。他说不可能，民主党在就永远不会让你这个事儿发生，我说咱走着瞧。
+曾有一段时间，网友们称中共国为山寨国，称中国制造为山寨。甚至中共和一些受共匪洗脑的人一度以中国世界第一山寨国的地位而沾沾自喜。若能正大光明地学习、模仿、复制当然确实也是一种不错的能力，但中共的行为却并不能被归于此类。从它强迫转让技术，用间谍蓝金黄渗透偷盗等行为来看。只能将其行为定义为盗窃、剽窃。
 
-So this friend asked me, “Do you think the congress hearing will happen?” I said “We will definitely make it happen. The congress hearing will definitely happen. The U.S. Congress hearings are determined by the will of the American people, not represented by any rogue politicians. It will definitely happen.” He said, “No way. As long as the Democratic Party still exists, it will never let it happen.” I said, “Let’s wait and see.”
+其实，中共一直雇用了一大批文字流氓，专门为中共操纵、玩弄文字语言系统，以替自己文过饰非。他们能把盗窃、剽窃、抄袭等用一个更加隐晦的词语“山寨”来表述。“山寨版”听起来确实不像“盗版”那样刺耳了，但并没有改变其本质。如同中共把人口灭绝叫做“计划生育”，把集中营叫做“再教育营”，把抢夺民财叫做“收归国有”，把洗脑叫做“思想改造”，把扶持独裁专制朝鲜叫做“抗美援朝”，……中共捏造的词语再好听，也改变不了它作恶的本质。所以我们要谨慎使用中共捏造的词语，因为很多时候，但凡使用中共捏造的词汇就已经不知不觉之间进入它的思维模式里，从而中了中共的毒。
 
-昨天大家看到了，最早就是Politico 那个网站，就政治网站，所谓跟美国把脉的网站，最早也对我们的科学家进行攻击。其中他们有两个记者，是绝对亲共的人，也攻击过我们多次的人。他现在都改口了，而且悄悄地在网站上把攻击科学家的那些所谓的报告撤掉了。大家你们发现了吗，在英国，在德国，所谓的几个大咖，那些科学家，在他们的社交媒体网站上，攻击科学家攻击闫丽梦博士的，所谓病毒的真相的这些报导，说来自于自然根本不是来自实验室，通通撤掉了。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24121133/%E5%9B%BE%E7%89%8730.png)
 
-As you saw yesterday, Politico, the website, a political website claiming to be able to make diagnosis for the US, which attacked our scientist (Dr. Yan) early on, has two journalists who are absolutely pro-CCP and have attacked us many times. Recently it changed its tone and quietly removed those so-called news reports that attacked our scientist from its website. Have you noticed that? In Britain and Germany, there were several so-called big names, scientists, who attacked our scientist Dr. Li-Meng Yan on their social media, who posted their so-called reports of the truth about the virus to claim the virus was originated from nature but not lab. They have withdrawn all those reports.
+言归正传，中共的剽窃偷盗本性，其实是刻在其基因里的。耶稣说“盗贼来，无非是偷盗、杀害，毁坏”，这对中共和共产主义来说简直是太准确了。中共在大陆鼓吹“共产主义”是马克思等一批撒旦教徒自创的原创思想。其实根本不是。财产共享和按需分配的思想和实践在人类历史上最早出于《圣经·使徒行传》第二章的45、46节。当时神的圣灵降临在耶稣基督的门徒们身上，门徒们为了传耶稣基督的福音，于是自愿地变卖财产，交给教会，然后按需领受。
 
-不仅如此，在斯坦福大学，美国斯坦福大学在生物里那是绝对是权威的，MIT大学，哈佛是流氓政治大学，就不管了，这两个学校，你去看看现在内部人讨论的最多是什么？共产党的病毒的真相来自于武汉实验室，所有的人手上，都研究透了科学家的三个报告。而且科学家向这些媒体上，展示最重要的就是《非典非自然》（全称：《非典非自然起源和人制人新种病毒基因武器》）的整个这本书里面，共产党自己自证的，自己证明了自己，早有准备，这是一个超限生物战。在全世界广泛的现在认可就是，科学家定义的，这叫超限生物战。
+根据奥姆剃刀原理，我毫不怀疑，马克思等人正是羡慕、嫉恨基督徒在主里的这种合一。于是在撒旦的灵的指使下盗用了这两节圣经经文，断章取意地篡改以后，用于散播撒旦敌基督的无神论，最终目的是让人类远离神，从而毁灭人类。
 
-Not only that, Stanford University, which, in the United States, is the absolute authority in biological research, and MIT – Harvard is a rogue political university, so just ignore it –  these two schools, you can go check what is the most discussed by their insiders now? [They were discussing] the truth about the CCP virus coming from the Wuhan lab. All these people have the three reports of our scientist (Dr. Li-Meng Yan) on their hands and have analyzed them thoroughly. And most importantly, our scientist showed to the media the CCP’s own text book,  regarding the unnatural origin of SARS which was self-evident, proofing CCP’s long term planning for this and that this is unrestricted biowarfare. Now this concept has been widely recognized by the world, which was defined by our scientist – called “unrestricted biowarfare”.
+这里我们简单对比一下初代基督徒财物共享和撒旦教徒共产的不同:
 
-*（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60a7bc16d48e020926645716](https://gtv.org/getter/60a7bc16d48e020926645716) (1:36-4:42)
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1262482/](https://gnews.org/zh-hans/1262482/)*
+1. 圣灵降临以后，初代教会的财物共享是耶稣基督的门徒完全自愿自发的，不带任何强迫，门徒可以靠对主的信心加入，也可以退出。而共产主义者则鼓吹用暴力强制性“共产”他人，甚至定义不服从者为阶级敌人，杀害不服从者。
 
-* * *
+2. 初代教会财物共享的目的是为了更好地传耶稣基督救赎的福音，让更多人得救，同时帮助教会内贫穷的门徒，是真正的财物共享。无神论者搞共产的目的则是为了满足他们的肉体和权力欲望，也满足他们对伟大领袖和完美的自己的幻想，他们的共产到最后只是一小撮人对绝大部分人最彻底和无情的掠夺。
 
-**翻译：【一花一世界】
-字幕：【XO小粉红】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+3. 教会仅财物共享，但并没有共妻的淫乱，门徒们坚守神的教导，持守神配合的一夫一妻制，一些门徒甚至自愿刻苦己身，不娶不嫁，以全身心传耶稣基督的福音。无神论者则鼓吹共妻，而实际上就是淫乱，最后就是掌权者任意奸淫底层民众的妻女。
+
+这里有人会问:“撒旦和其代言人怎么会了解《圣经》呢？”其实，撒旦十分熟悉《圣经》经文。因为它本是天使，但是它骄傲和仇视人类，最终堕落了。它不顺服神，也不爱人，所以它虽了解《圣经》，但它不信，而且敌视，并且根据《圣经》经文制定毁灭人类的计策。所以撒旦试探耶稣基督的时候，甚至引用《圣经》经文。但它是断章取意，曲解神的意思。断章取义，也是一种偷盗。
+
+现今撒旦的代言人中共也是一样，动不动就断章取义地拿《圣经》中关于基督徒要顺服政治权柄的经文要求基督徒去顺服中共。而如果我们阅读整个经文就知道，神是要我们基督徒去顺服赏善罚恶的权柄，而不是去顺服利用手握的权柄作恶的人。对那些利用权柄作恶的人，我们不但不能顺服他们，相反，我们应指责其不当行为，并要求其归正，若其不归正，我们应剥夺其权柄，阻止其作恶。
+
+其实，不仅中共的诞生来自盗窃和篡改《圣经》。它建立和维持自己的统治时也是一样。中共捏造和吹嘘它过去的历史，把自己的大溃败说成是“长征”，拙劣地抄袭《圣经·出埃及记》，把自己的流寇史史诗化。抄袭法老的疲民之术，把国人的贫穷归根于国人的懒惰、资源不够、人口太多。抄袭神命令以色列人熟记经文，随身携带经文，四处镌刻经文的方法，在搞个人崇拜的时候弄个红宝书让人随身携带，并且把标语贴得无处不在。中共甚至盗取耶稣基督降生的神迹，把毛泽东鼓吹成东方的大救星。中共抄袭和篡改基督徒在主面前献身于福音事工的祭坛生活，在洗脑、抢劫、奸淫、杀害大众的时候对大众大谈奉献、牺牲。中共传播其邪恶意识形态的时候，更是直接盗窃耶稣基督关于传福音的比喻撒麦子的方法。总的来说，中共把许多神启示的能十分有效地影响人的原则和方法用到了为魔鬼服务的事情上。我们基督徒必须要警醒，并且反思和反制。
+
+所以，现今中共偷窃西方基督教世界的科学技术，用以维持和加强其专制统治，并且用偷来的技术制造能捆绑和毁灭人类武器也就一点不奇怪了。其实别说什么高科技，现今的中共，连种子、动物精子，甚至连音乐都要偷窃。每当我听到中共把基督教自由世界创作的音乐，盗窃过来用于散播其邪恶意识形态的各种活动、电影、电视时，对我真是巨大的折磨。
+
+中共属灵的父撒旦，从起初就是说谎者和偷盗者。因为诸天万物本为神所创造，撒旦什么都创造不出来，只能偷盗和破坏。所以它的代理人中共也是如此，只有蹩脚的偷盗、抄袭然后再毁坏，这就是中共偷盗本性的根源。如同病毒一样，它必须偷盗占用宿主的营养才能存活和复制自己，直到宿主被耗尽死亡，它又转移到另外一个地方。
+
+最后，我要补充一点，不是华人智商能力不行，没有创造力。而是在撒旦的辖制下，一个没有神的公义和爱的环境，人就活不出神造人起初的荣美，得不到神赐予的灵感，甚至有了灵感也没有让灵感得以实现的机会。唯独在耶稣基督福音营造的公义与爱的环境下，人的创造能力才能在神许可下被开发出来。愿神保守我们华人，早日灭共，脱去中国人没创造力的帽子。
+
+荣耀归主，阿门。
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193555/5_May-1-556x720-1.jpeg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

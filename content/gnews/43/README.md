@@ -1,35 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【锐语】共产党用墓地医院搞死亡产业榨干中国人血汗
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1269436/)
+## 风向变了 闫博士报告的反对者们纷纷撤下了他们的报道
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1269207/)
 
-整理撰稿：蓝精灵
+**摘要：在2021年5月21日的盖特视频中，郭先生说曾经最反对和攻击过闫博士报告的“大咖”、科学家、媒体纷纷默默撤下他们的报道，在斯坦福和MIT这两所顶级大学的科学家们都透彻研究了闫博士的报告，他坚信国会一定会召开病毒听证会，因为这不是政客能决定的，这是美国人民意志决定的。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24102333/Miles_2021-05-21-getter1.srt.txt)
+**风向变了  闫博士报告的反对者们纷纷撤下了他们的报道**
 
-现在北京的墓地是最火的行业。
+**Opponents of Dr. Yan’s Reports Secretly Switch Gears **
 
-在2017年的时候文贵先生说过在中国，100%的目的都是共产党控制，没有一个是私人的。最早做墓地生意的是曾庆红家族，曾德儿子曾伟最早在延庆开始。当时最年轻的书记孙政才就是攀附上了曾伟以后，飞速的跨越到北京市副市长、农业部部长，吉林当省长，然后进了所谓政治局又到重庆。
+另外一个你看到世界的这个局势，关于病毒的问题。今天一大早，咱们最好的合作伙伴，这名字不能说，这是在美国政界的大佬，给我发信息说，他说你发现了吗？最近的某某某的发言，也就是原来最最反对我们的闫博士的所谓三个报告的，曾经在不同场合反对我们的科学家报告的人。他说，最近在私下场合已经是不一样的说法了。他说闫丽梦科学家讲的这些事情，是有很大的价值的，而且是可信的。
 
-王岐山家族后来也做了墓地生意，姚依林的女婿孙女姚珍，在唐山还有在延庆,还有在顺义，后来业务扩张到河北，海南，广东。他们还发明了养老产业。王岐山家族，垄断了海南、广东、福建、珠海一带的养老院，医院。
+Likewise, you look at the situation of the world, about the virus. Early this morning, our best partner, who I can’t say his name, a bigwig of American politics, sent me a message talking about someone who previously opposed the three reports of our Dr. Yan most, on several different occasions in the public. He said, “Have you noticed the recent speech of XXX? Recently this guy has changed his narrative privately.” He also said that the things that Dr. Li-Meng Yan had talked about were of great value and credibility.
 
-这就是共产党，控制着中国的养老产业，所谓的死亡产业，送终产业，火葬场，养老院，从出生到死之前，都要把你压榨的干干净净。
+所以说这个朋友问我，说你觉得国会听证的事情会不会发生。我说我们一定会让它发生的，国会的听证一定会发生的。美国国会的听证就是已经取决于美国人民的意志，他不代表哪个流氓政客，一定会发生的。他说不可能，民主党在就永远不会让你这个事儿发生，我说咱走着瞧。
 
-听后感：
+So this friend asked me, “Do you think the congress hearing will happen?” I said “We will definitely make it happen. The congress hearing will definitely happen. The U.S. Congress hearings are determined by the will of the American people, not represented by any rogue politicians. It will definitely happen.” He said, “No way. As long as the Democratic Party still exists, it will never let it happen.” I said, “Let’s wait and see.”
 
-世界上只有共产党把人生来所具有的生存权作为一门生意来做。
+昨天大家看到了，最早就是Politico 那个网站，就政治网站，所谓跟美国把脉的网站，最早也对我们的科学家进行攻击。其中他们有两个记者，是绝对亲共的人，也攻击过我们多次的人。他现在都改口了，而且悄悄地在网站上把攻击科学家的那些所谓的报告撤掉了。大家你们发现了吗，在英国，在德国，所谓的几个大咖，那些科学家，在他们的社交媒体网站上，攻击科学家攻击闫丽梦博士的，所谓病毒的真相的这些报导，说来自于自然根本不是来自实验室，通通撤掉了。
 
-给圈养的老百姓毒食品毒水，活下去就行，近十年来，中共国肿瘤高发，各种新奇的病层出不穷，为了看病，老百姓又要把辛苦积攒的辛苦钱全部交给中共的医疗产业。
+As you saw yesterday, Politico, the website, a political website claiming to be able to make diagnosis for the US, which attacked our scientist (Dr. Yan) early on, has two journalists who are absolutely pro-CCP and have attacked us many times. Recently it changed its tone and quietly removed those so-called news reports that attacked our scientist from its website. Have you noticed that? In Britain and Germany, there were several so-called big names, scientists, who attacked our scientist Dr. Li-Meng Yan on their social media, who posted their so-called reports of the truth about the virus to claim the virus was originated from nature but not lab. They have withdrawn all those reports.
 
-万一病治好了，老了以后还要去养老院，大家可以在网络上看到，中共一直在宣传养老院的美好，在潜移默化的给中产，富豪灌输一种去养老院才是有品位的生活，去养老院才是对子女最大的贡献，类似于这种完美的谎言，这种谎言撕裂了传统的家庭模式。老人去了养老院，带着毕生的积蓄，享受着所谓的高端有品位的养老生活，心甘情愿的把钱和人都交到了盗国贼家族的手里。
+不仅如此，在斯坦福大学，美国斯坦福大学在生物里那是绝对是权威的，MIT大学，哈佛是流氓政治大学，就不管了，这两个学校，你去看看现在内部人讨论的最多是什么？共产党的病毒的真相来自于武汉实验室，所有的人手上，都研究透了科学家的三个报告。而且科学家向这些媒体上，展示最重要的就是《非典非自然》（全称：《非典非自然起源和人制人新种病毒基因武器》）的整个这本书里面，共产党自己自证的，自己证明了自己，早有准备，这是一个超限生物战。在全世界广泛的现在认可就是，科学家定义的，这叫超限生物战。
 
-人死了之后，需要交钱去火化，还需要购置墓地，墓地还要交管理费用。活着的人被不是自己土地上的一堆可能几十年后强拆的水泥钢筋奋斗，死了之后还要为墓地交纳费用。有句话说，赤条条的来赤条条的走，在中共治下，更甚，老百姓赤条条的来到世界上，就在脖子上加了枷锁，就好像武汉动物实验室的实验动物一样，过着不能自主的一生，说不定哪天就给你打一针病毒。死的时候赤条条都保不住，那是灰飞烟灭，
+Not only that, Stanford University, which, in the United States, is the absolute authority in biological research, and MIT – Harvard is a rogue political university, so just ignore it –  these two schools, you can go check what is the most discussed by their insiders now? [They were discussing] the truth about the CCP virus coming from the Wuhan lab. All these people have the three reports of our scientist (Dr. Li-Meng Yan) on their hands and have analyzed them thoroughly. And most importantly, our scientist showed to the media the CCP’s own text book,  regarding the unnatural origin of SARS which was self-evident, proofing CCP’s long term planning for this and that this is unrestricted biowarfare. Now this concept has been widely recognized by the world, which was defined by our scientist – called “unrestricted biowarfare”.
 
-这是一个有违人类伦理，道德的组织，不消灭他们， 他们就会把整个人类都毁掉。
+*（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60a7bc16d48e020926645716](https://gtv.org/getter/60a7bc16d48e020926645716) (1:36-4:42)
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1262482/](https://gnews.org/zh-hans/1262482/)*
 
-- 新闻采编：七哥全文听写组
-- 校对发布：Penny
+* * *
 
-
-\*以上仅代表作者观点，不代表Gnews平台\*
+**翻译：【一花一世界】
+字幕：【XO小粉红】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0
