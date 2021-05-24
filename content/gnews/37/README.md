@@ -1,45 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【独立观点】CDC砖家：应对变种毒株 灭活疫苗有万能之策
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1269199/)
+## 2021/5/15 围炉夜话第23期直播精要
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1269211/)
 
-作者：纽约香草山健身部 童谣
+整理：桂花酒 | 素材制作：bobby ,健身健心 | 校对/审核：X-Wing飞得更高 | Page：Daoiii
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-9.jpeg)
+#### 加压再加压，中共体制将在何时崩溃……
+
+[!\[\]()!\[\](https://spark.adobe.com/page/TvNKaW8Ot4SXw/images/dfd9652c-8a67-405b-a25b-ba299c90f69e.jpg?asset_id=509b2c05-fa7f-4359-a56e-5d5c3a0c421a&amp;img_etag=%22436f04e238c13b7c0157f9846f9159de%22&amp;size=1024)](https://spark.adobe.com/page/TvNKaW8Ot4SXw/images/dfd9652c-8a67-405b-a25b-ba299c90f69e.jpg?asset_id=509b2c05-fa7f-4359-a56e-5d5c3a0c421a&amp;img_etag=%22436f04e238c13b7c0157f9846f9159de%22&amp;size=1024)
+
+#### [G-TV直播视频链接](https://gtv.org/video/id=609fa783db13300ca55581b5)
+
+**本期我们从《非典非自然基因武器》这本书开始，结合政法系统整顿、三大电信被美退市、成都49中林唯麒“被跳楼”等热点事件，来解释中共的魔鬼思维及其反人类的行为方式。**
+
+一年多之前， “DT团队”一系列的挖掘里就已经包含了这本奇书并发到推特。当全人类都希望解开病毒来源、病毒是否是生物武器的时候，怎么2015年中共就提供了如此确凿的证据和邪恶目的？
+
+西方教育下的逻辑思维，让对付病毒的疫苗被接受。但是中共军方的这本书及其披露的信息形成悖论，使公众清醒：一切都绝非自然的天灾，而是精心设计的、包括针对特定族群在内的灭绝计划和手段——生化武器！中共的对内洗脑实际上暴露了自己，纸包不住火。
+
+中共最近开始对内部政法系统整顿，美国对公安部子女拒绝鉴证，进一步验证了文贵先生说的外部压力势必造成其内斗，反过来清理“刀把子”又是一种加压。
+
+美国让中共三大电信退市，不但使其失去非法外汇、金融脱钩，对外输出5G对世界的监控，同时造成国内更多经济下滑、露出防火墙倒塌的曙光。
+
+和武汉病毒爆发不允许人进入调查一样，成都49中事件处理手法如出一辙。控制当事人、迅速处理尸体、视频造假、栽赃 “境外势力”等等。面对国内外不断的加压，中共虚弱不堪焉能久矣？即将到来的“六四”、七一建党、八一建军，民众的积怨此起彼伏，高达2亿多的失业大军，自由世界对中共经济、军事的合围……。因此从成都49中单个事件折射的民众的看客心理局部变化成校门前抗议，是当下中国高压下的冰山正在消融。中共灭亡前夜，压力终究会冲破束缚，只是悲剧会不断发生，以毒灭共、唤醒民众更显迫切。
+
+当大多数西方人特别是美国人不理解自己的自由民主怎么会招来中共的敌视与仇恨时，反映了东西方的文化和思维模式差异。早先的节目里，我们也曾解释，并持续尝试用西方人的语境来传播东方人的思维。截止笔者截稿，谷歌还能搜到大量《非典非自然基因武器》的信息，仍可窥见中共的愚蠢狂妄。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/TvNKaW8Ot4SXw/images/23aad6a4-ed8f-402b-82fc-7b997528ae14.png?asset_id=eb515ec9-1710-454f-99b4-f0216c2b9b22&amp;img_etag=%22e7e7b3cb889821037ab93badab46ac78%22&amp;size=4068)](https://spark.adobe.com/page/TvNKaW8Ot4SXw/images/23aad6a4-ed8f-402b-82fc-7b997528ae14.png?asset_id=eb515ec9-1710-454f-99b4-f0216c2b9b22&amp;img_etag=%22e7e7b3cb889821037ab93badab46ac78%22&amp;size=1024)
+
+围炉夜话从政治经济角度、历史与现实对照,传真相、反洗脑，持续为您关注墙内最新事件，分享我们观点。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/TvNKaW8Ot4SXw/images/2ba93db6-2a9e-4411-ab79-f63858ed71fd.png?asset_id=331bb638-dde9-4ce0-bbcc-08abfc9e99c3&amp;img_etag=%223745474e420b335d444db8cf96364991%22&amp;size=1024)](https://spark.adobe.com/page/TvNKaW8Ot4SXw/images/2ba93db6-2a9e-4411-ab79-f63858ed71fd.png?asset_id=331bb638-dde9-4ce0-bbcc-08abfc9e99c3&amp;img_etag=%223745474e420b335d444db8cf96364991%22&amp;size=1024)
+
+每周六GTV-UK-2号台定时直播
+
+- 英国时间：12.00-14.00
+- 美东时间：7.00-9.00
+- 盘古时间：20.00-22.00
 
 
+欢迎关注英国伦敦喜庄园艺术组《缪斯殿堂》节目
 
-常人从来都是难以置信，中共砖家总能以静制动、以不变应万变。就有中共CDC研究员邵一鸣宣布，很多现有疫苗应付不了的病毒变异株，中共灭活疫苗可以解决！“只要在投料端加入新变异株的病毒，整个生产工艺不用做丝毫改变，产品端出来的就是针对变异病毒的新的疫苗”。
-
-听下来邵牛人的讲话，整个逻辑没有任何漏洞，疫苗生产链如同梦幻般便捷。可就是不知哪里让人觉得隐隐不对。如果疫苗制作工艺真的犹如吃什么拉什么一样简单的话，这样的方法是否只有从未成功研制过一款疫苗的中共能想到，偏偏医疗科技甩“强国”几十年的美国想不到？
-
-同时根据常识，变种毒株毒性更强、传染力更大，势必有着与原始新冠病毒不一样的基因组成或蛋白构造。那么属于高精尖科技的疫苗研制过程，一定也会在原有生产工艺上有针对性地调整解决方案。
-
-而中共砖家着实把老百姓当傻子，一开口就把常识踩到脚底，省略所有流程直接在梦中实现一切。
-
-但细思恐极的是，中共国现在的疫苗研制方式是不是就和砖家讲的一样，那等于是直接把灭活病毒注入人体，这样果然没有生产工艺的改变，只需兑生理盐水稀释一下病毒即可！
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24101823/image3-3.jpg)
-
-此外CDC主任高福自己就曾在公开媒体承认灭活病毒会引发细胞因子风暴。如今中共无良砖家在共产红魔的控制下，主张将特洛伊木马注入人体，一旦灭活疫苗接种者感染病毒，将会导致自身免疫系统无法分辨病毒和自身细胞，里应外合对身体展开攻击，直接引发更严重的致命后果。
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
+- 请订阅 [英国伦敦喜庄园GTV-UK-1号台](https://gtv.org/user/5ee680a45bd6f123dd104807)
+- 请订阅 [英国伦敦喜庄园GTV-UK-2号台](https://gtv.org/user/5fb02ac8bd0d464fad04dfdb)
+- 请订阅 [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://podcasts.apple.com/hk/podcast/%E8%8B%B1%E5%96%9C%E6%97%B6%E4%BA%8B%E6%92%AD%E6%8A%A5/id1547012414?uo=4&amp;itscg=30200&amp;itsct=podcast_box)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-**更多资讯，更多关注**
+[!\[\]()!\[\](https://spark.adobe.com/page/TvNKaW8Ot4SXw/images/97c21993-b74c-4e0f-8c68-799e4003aab0.jpg?asset_id=ec565f89-2d44-4c08-b4da-0cdc6fcfcb61&amp;img_etag=%22040ad02c644aa76a0feff8cb44b5b33b%22&amp;size=1024)](https://spark.adobe.com/page/TvNKaW8Ot4SXw/images/97c21993-b74c-4e0f-8c68-799e4003aab0.jpg?asset_id=ec565f89-2d44-4c08-b4da-0cdc6fcfcb61&amp;img_etag=%22040ad02c644aa76a0feff8cb44b5b33b%22&amp;size=1024)
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

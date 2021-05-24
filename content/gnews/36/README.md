@@ -1,55 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/5/15 围炉夜话第23期直播精要
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1269211/)
+## 新冠病毒的中共实验室来源是“阴谋论”，还是事实
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1269251/)
 
-整理：桂花酒 | 素材制作：bobby ,健身健心 | 校对/审核：X-Wing飞得更高 | Page：Daoiii
+作者：随波逐流（英国喜庄园） | 校对：文明明 | 审核：SilverSpurs7 | Page: Daoiii
 
-#### 加压再加压，中共体制将在何时崩溃……
+[!\[\]()!\[\](https://spark.adobe.com/page/Ih1A7wL9szeHZ/images/1e11a45d-1a38-4c96-998c-a19356518bad.jpg?asset_id=692e3378-ead3-44e4-a04a-fe71e0daace7&amp;img_etag=%221c23343731d9d5f433a52d0f78c13ff9%22&amp;size=1024)](https://spark.adobe.com/page/Ih1A7wL9szeHZ/images/1e11a45d-1a38-4c96-998c-a19356518bad.jpg?asset_id=692e3378-ead3-44e4-a04a-fe71e0daace7&amp;img_etag=%221c23343731d9d5f433a52d0f78c13ff9%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/TvNKaW8Ot4SXw/images/dfd9652c-8a67-405b-a25b-ba299c90f69e.jpg?asset_id=509b2c05-fa7f-4359-a56e-5d5c3a0c421a&amp;img_etag=%22436f04e238c13b7c0157f9846f9159de%22&amp;size=1024)](https://spark.adobe.com/page/TvNKaW8Ot4SXw/images/dfd9652c-8a67-405b-a25b-ba299c90f69e.jpg?asset_id=509b2c05-fa7f-4359-a56e-5d5c3a0c421a&amp;img_etag=%22436f04e238c13b7c0157f9846f9159de%22&amp;size=1024)
+近日，有一篇发表在《Mediamatters》上的文章质问冠状病毒起源的“阴谋论”是如何在默多克(Murdoch)旗下媒体, 包括福克斯新闻上出现的。该文作者仅凭网上流传的消息就判断病毒起源于中共病毒实验室的说法是“阴谋论”，并称此“阴谋论”已被推翻，实在是欠缺说服力。
 
-#### [G-TV直播视频链接](https://gtv.org/video/id=609fa783db13300ca55581b5)
+我对此文有些不解，病毒来源消息的真假和福克斯的报道有什么关系？福克斯媒体难道没有新闻报道的自由吗？谁能规定媒体应该报道什么，不应该报道什么？新闻媒体的操守应该只负责对各方信息客观报道，不带自我主观判断。俗话说“谣言止于智者”，公众对信息真假自有判断。如果福克斯报道的是假新闻，那么你又如何仅凭网上对文贵先生和班农的攻击性言论，让人相信病毒起源于中共实验室的说法是“阴谋论”呢？确定病毒起源不是应该通过科学家的实地调查，或者对一些与释放病毒有关的资料进行取证吗？作者只躲在网上偷换概念、谈论媒体和病毒的事，很明显是避重就轻，转移话题。如果病毒和中共无关，中共不是更应该欢迎调查组查清真相，还自己清白吗？我想问该文作者几个问题，如果病毒的中共实验室起源是阴谋论，那么：
 
-**本期我们从《非典非自然基因武器》这本书开始，结合政法系统整顿、三大电信被美退市、成都49中林唯麒“被跳楼”等热点事件，来解释中共的魔鬼思维及其反人类的行为方式。**
-
-一年多之前， “DT团队”一系列的挖掘里就已经包含了这本奇书并发到推特。当全人类都希望解开病毒来源、病毒是否是生物武器的时候，怎么2015年中共就提供了如此确凿的证据和邪恶目的？
-
-西方教育下的逻辑思维，让对付病毒的疫苗被接受。但是中共军方的这本书及其披露的信息形成悖论，使公众清醒：一切都绝非自然的天灾，而是精心设计的、包括针对特定族群在内的灭绝计划和手段——生化武器！中共的对内洗脑实际上暴露了自己，纸包不住火。
-
-中共最近开始对内部政法系统整顿，美国对公安部子女拒绝鉴证，进一步验证了文贵先生说的外部压力势必造成其内斗，反过来清理“刀把子”又是一种加压。
-
-美国让中共三大电信退市，不但使其失去非法外汇、金融脱钩，对外输出5G对世界的监控，同时造成国内更多经济下滑、露出防火墙倒塌的曙光。
-
-和武汉病毒爆发不允许人进入调查一样，成都49中事件处理手法如出一辙。控制当事人、迅速处理尸体、视频造假、栽赃 “境外势力”等等。面对国内外不断的加压，中共虚弱不堪焉能久矣？即将到来的“六四”、七一建党、八一建军，民众的积怨此起彼伏，高达2亿多的失业大军，自由世界对中共经济、军事的合围……。因此从成都49中单个事件折射的民众的看客心理局部变化成校门前抗议，是当下中国高压下的冰山正在消融。中共灭亡前夜，压力终究会冲破束缚，只是悲剧会不断发生，以毒灭共、唤醒民众更显迫切。
-
-当大多数西方人特别是美国人不理解自己的自由民主怎么会招来中共的敌视与仇恨时，反映了东西方的文化和思维模式差异。早先的节目里，我们也曾解释，并持续尝试用西方人的语境来传播东方人的思维。截止笔者截稿，谷歌还能搜到大量《非典非自然基因武器》的信息，仍可窥见中共的愚蠢狂妄。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/TvNKaW8Ot4SXw/images/23aad6a4-ed8f-402b-82fc-7b997528ae14.png?asset_id=eb515ec9-1710-454f-99b4-f0216c2b9b22&amp;img_etag=%22e7e7b3cb889821037ab93badab46ac78%22&amp;size=4068)](https://spark.adobe.com/page/TvNKaW8Ot4SXw/images/23aad6a4-ed8f-402b-82fc-7b997528ae14.png?asset_id=eb515ec9-1710-454f-99b4-f0216c2b9b22&amp;img_etag=%22e7e7b3cb889821037ab93badab46ac78%22&amp;size=1024)
-
-围炉夜话从政治经济角度、历史与现实对照,传真相、反洗脑，持续为您关注墙内最新事件，分享我们观点。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/TvNKaW8Ot4SXw/images/2ba93db6-2a9e-4411-ab79-f63858ed71fd.png?asset_id=331bb638-dde9-4ce0-bbcc-08abfc9e99c3&amp;img_etag=%223745474e420b335d444db8cf96364991%22&amp;size=1024)](https://spark.adobe.com/page/TvNKaW8Ot4SXw/images/2ba93db6-2a9e-4411-ab79-f63858ed71fd.png?asset_id=331bb638-dde9-4ce0-bbcc-08abfc9e99c3&amp;img_etag=%223745474e420b335d444db8cf96364991%22&amp;size=1024)
-
-每周六GTV-UK-2号台定时直播
-
-- 英国时间：12.00-14.00
-- 美东时间：7.00-9.00
-- 盘古时间：20.00-22.00
+1. **为什么中共最早要隐瞒武汉的疫情？**
+2. **为什么世界专家调查组到中共国的溯源调查至今无法顺利通过？**
+3. **为什么中共要散播病毒来源于美国、欧洲的消息？**
+4. **为什么Twitter和Facebook禁止网上讨论病毒的实验室起源，疯狂的删帖、封号？**
+5. **为什么科学界对闫丽梦博士和塞林博士的揭发保持沉默，不敢面对面辩论？**
+6. **为什么福奇博士现又改口否认病毒来源于自然，并支持溯源调查？**
 
 
-欢迎关注英国伦敦喜庄园艺术组《缪斯殿堂》节目
+请问作者能对以上问题给出符合逻辑的解答吗？
 
-- 请订阅 [英国伦敦喜庄园GTV-UK-1号台](https://gtv.org/user/5ee680a45bd6f123dd104807)
-- 请订阅 [英国伦敦喜庄园GTV-UK-2号台](https://gtv.org/user/5fb02ac8bd0d464fad04dfdb)
-- 请订阅 [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://podcasts.apple.com/hk/podcast/%E8%8B%B1%E5%96%9C%E6%97%B6%E4%BA%8B%E6%92%AD%E6%8A%A5/id1547012414?uo=4&amp;itscg=30200&amp;itsct=podcast_box)
+能给出反证病毒实验室来源只是谣言的证据吗？
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Ih1A7wL9szeHZ/images/110ee17f-77de-4bc9-994e-b0643964b610.jpg?asset_id=860e92e9-c831-4a35-bcf4-54a29833264d&amp;img_etag=%22bd7160fe9e7121009d0683f4e1d0a0a4%22&amp;size=1024)](https://spark.adobe.com/page/Ih1A7wL9szeHZ/images/110ee17f-77de-4bc9-994e-b0643964b610.jpg?asset_id=860e92e9-c831-4a35-bcf4-54a29833264d&amp;img_etag=%22bd7160fe9e7121009d0683f4e1d0a0a4%22&amp;size=1024)
+
+如果该文作者避开以上问题，就武断地说福布斯的报道是虚假信息，那么我也可以说该文作者或者是不了解中共，或者根本就是中共的大外宣代言人。
+
+所谓的谣言为什么会成为热点，就是因为公众得不到真相，并想有更多渠道探知真相，如果有人想尽办法阻挡众多媒体或个人发声讨论，那么，又如何能找出事实真相呢？
+
+病毒是否起源于中共实验室不是靠嘴仗，而是要靠科学来验证，我们把这句话，送还给中共和它的代言人。
+
+相关文章：[病毒阴谋论如何出现在默多克旗下媒体和福克斯新闻？](https://spark.adobe.com/page/4rV8stZEll6B0/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/TvNKaW8Ot4SXw/images/97c21993-b74c-4e0f-8c68-799e4003aab0.jpg?asset_id=ec565f89-2d44-4c08-b4da-0cdc6fcfcb61&amp;img_etag=%22040ad02c644aa76a0feff8cb44b5b33b%22&amp;size=1024)](https://spark.adobe.com/page/TvNKaW8Ot4SXw/images/97c21993-b74c-4e0f-8c68-799e4003aab0.jpg?asset_id=ec565f89-2d44-4c08-b4da-0cdc6fcfcb61&amp;img_etag=%22040ad02c644aa76a0feff8cb44b5b33b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/Ih1A7wL9szeHZ/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/Ih1A7wL9szeHZ/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 
 
-0
++2

@@ -1,47 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 风向变了 闫博士报告的反对者们纷纷撤下了他们的报道
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1269207/)
+## 喀秋莎新闻参考 &#8211; 2021年5月23日(星期日)
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1269452/)
 
-**摘要：在2021年5月21日的盖特视频中，郭先生说曾经最反对和攻击过闫博士报告的“大咖”、科学家、媒体纷纷默默撤下他们的报道，在斯坦福和MIT这两所顶级大学的科学家们都透彻研究了闫博士的报告，他坚信国会一定会召开病毒听证会，因为这不是政客能决定的，这是美国人民意志决定的。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24102333/Miles_2021-05-21-getter1.srt.txt)
-**风向变了  闫博士报告的反对者们纷纷撤下了他们的报道**
+俄罗斯莫斯科喀秋莎农场 土星
 
-**Opponents of Dr. Yan’s Reports Secretly Switch Gears **
+编辑上传 水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030135/%E5%B0%81%E9%9D%A2K-1-400x225-3-400x225-1.jpeg)
+**一、新中国联邦新闻**
 
-另外一个你看到世界的这个局势，关于病毒的问题。今天一大早，咱们最好的合作伙伴，这名字不能说，这是在美国政界的大佬，给我发信息说，他说你发现了吗？最近的某某某的发言，也就是原来最最反对我们的闫博士的所谓三个报告的，曾经在不同场合反对我们的科学家报告的人。他说，最近在私下场合已经是不一样的说法了。他说闫丽梦科学家讲的这些事情，是有很大的价值的，而且是可信的。
+1.“路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=w0nomWiSEGs)、[晚间](https://www.youtube.com/watch?v=QvNUZ6CE0Rs)）:
 
-Likewise, you look at the situation of the world, about the virus. Early this morning, our best partner, who I can’t say his name, a bigwig of American politics, sent me a message talking about someone who previously opposed the three reports of our Dr. Yan most, on several different occasions in the public. He said, “Have you noticed the recent speech of XXX? Recently this guy has changed his narrative privately.” He also said that the things that Dr. Li-Meng Yan had talked about were of great value and credibility.
+Ⅰ. 5月21日，美韩两国正式发布联合声明：随着中共病毒、气候变化等多方面因素对全球造成的巨大影响，美韩两国将重建两国联盟。
 
-所以说这个朋友问我，说你觉得国会听证的事情会不会发生。我说我们一定会让它发生的，国会的听证一定会发生的。美国国会的听证就是已经取决于美国人民的意志，他不代表哪个流氓政客，一定会发生的。他说不可能，民主党在就永远不会让你这个事儿发生，我说咱走着瞧。
+Ⅱ. 《金融时报》5月21日报道：近日，美国国防部长劳埃德·奥斯丁三次向中共军委副主席许其亮发出对话邀请，中共三次都拒绝了五角大楼的邀请，在世界上两个最强大的军事力量之间的紧张局势加剧之际，这令两国关系复杂化。
 
-So this friend asked me, “Do you think the congress hearing will happen?” I said “We will definitely make it happen. The congress hearing will definitely happen. The U.S. Congress hearings are determined by the will of the American people, not represented by any rogue politicians. It will definitely happen.” He said, “No way. As long as the Democratic Party still exists, it will never let it happen.” I said, “Let’s wait and see.”
+2. 在参议院听证会上，参议员兰德·保罗就功能增强研究的收益、武汉病毒研究所的资金以及实验室事故的可能性等问题向安东尼·福奇博士提出质询后不久，福奇悄悄向PolitiFact表达了惊人的态度。首先，福齐现在承认他 “不相信 ”中共病毒是自然的；其次，同样令人震惊的是，他承认美国在研究冠状病毒方面与中共国科学家接触并提供资金帮助他们。
 
-昨天大家看到了，最早就是Politico 那个网站，就政治网站，所谓跟美国把脉的网站，最早也对我们的科学家进行攻击。其中他们有两个记者，是绝对亲共的人，也攻击过我们多次的人。他现在都改口了，而且悄悄地在网站上把攻击科学家的那些所谓的报告撤掉了。大家你们发现了吗，在英国，在德国，所谓的几个大咖，那些科学家，在他们的社交媒体网站上，攻击科学家攻击闫丽梦博士的，所谓病毒的真相的这些报导，说来自于自然根本不是来自实验室，通通撤掉了。
+3. 据《华尔街日报》5月23日援引美国情报机构先前未披露的消息称，武汉病毒研究所（WIV）的三名研究人员于2019年11月就已寻求医院治疗，远在中共披露中共病毒疫情之前数月。
 
-As you saw yesterday, Politico, the website, a political website claiming to be able to make diagnosis for the US, which attacked our scientist (Dr. Yan) early on, has two journalists who are absolutely pro-CCP and have attacked us many times. Recently it changed its tone and quietly removed those so-called news reports that attacked our scientist from its website. Have you noticed that? In Britain and Germany, there were several so-called big names, scientists, who attacked our scientist Dr. Li-Meng Yan on their social media, who posted their so-called reports of the truth about the virus to claim the virus was originated from nature but not lab. They have withdrawn all those reports.
+4. 在5月24日播出的FNC “周日早晨的未来”节目中，参议员汤姆·科顿敦促拜登政府寻求中共政府对中共病毒可能起源的责任。科顿告诉主持人玛丽亚·巴蒂罗莫，种种迹象表明，病毒来源于武汉的一个实验室，而不是中共政府所声称的那样。并表示拜登总统一直在 “为世界各地的侵略者服务”，包括中共国、俄罗斯和伊朗。
 
-不仅如此，在斯坦福大学，美国斯坦福大学在生物里那是绝对是权威的，MIT大学，哈佛是流氓政治大学，就不管了，这两个学校，你去看看现在内部人讨论的最多是什么？共产党的病毒的真相来自于武汉实验室，所有的人手上，都研究透了科学家的三个报告。而且科学家向这些媒体上，展示最重要的就是《非典非自然》（全称：《非典非自然起源和人制人新种病毒基因武器》）的整个这本书里面，共产党自己自证的，自己证明了自己，早有准备，这是一个超限生物战。在全世界广泛的现在认可就是，科学家定义的，这叫超限生物战。
+5. 在未能获邀参加世界卫生大会后，台湾政府周一抨击世界卫生组织（WHO）对中共屈服，对台湾人民的健康权利 “漠不关心”。
 
-Not only that, Stanford University, which, in the United States, is the absolute authority in biological research, and MIT – Harvard is a rogue political university, so just ignore it –  these two schools, you can go check what is the most discussed by their insiders now? [They were discussing] the truth about the CCP virus coming from the Wuhan lab. All these people have the three reports of our scientist (Dr. Li-Meng Yan) on their hands and have analyzed them thoroughly. And most importantly, our scientist showed to the media the CCP’s own text book,  regarding the unnatural origin of SARS which was self-evident, proofing CCP’s long term planning for this and that this is unrestricted biowarfare. Now this concept has been widely recognized by the world, which was defined by our scientist – called “unrestricted biowarfare”.
+6. 英国托尼·拉达金上将因表示中共国和俄罗斯是 “负责任的国家 ”而受到批评，专家们指出这两个国家都有侵犯人权的行为。
 
-*（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60a7bc16d48e020926645716](https://gtv.org/getter/60a7bc16d48e020926645716) (1:36-4:42)
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1262482/](https://gnews.org/zh-hans/1262482/)*
+7. 参议员里克·斯科特5月23日在WABC 的 “The Cats Roundtable ”节目中表示：“我们应该停止从中共国购买任何东西。他们不是我们的朋友。中国人民是美好的，但中共政府是卑鄙的。”
 
-* * *
+8. 塞林博士5月23日通过GatewayPundit发文表示，中共早已使其军方背景的科学家渗透到德特里克堡的军事生物防御计划中，获取了大量的知识和技能。
 
-**翻译：【一花一世界】
-字幕：【XO小粉红】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+9. 肯塔基州路易斯维尔·参议员兰德·保罗在5月23日一个广播节目中表示，他不会接种应对中共病毒的疫苗。“在一个自由的国家，人们会尊重每个人可以做出医疗决定的想法。”
+
+10. 前国家情报局局长约翰·拉特克利夫5月23日批评拜登政府对中共的处理。声称，如果拜登政府拒绝在诸如中共病毒起源、维吾尔族种族灭绝和其他全球政策的紧迫问题上与中共对抗，他们继续被认为对中共国态度软弱。
+
+11. 5月21日，中共央行上海分行的官员柳金钟表示，应该允许人民币升值，以抵消进口价格上涨的影响。评论异常直白，该文章后来被删除。23日，中共国人民银行副行长刘国强似乎反驳了这种观点，称汇率将保持在 “基本稳定 ”的水平。
+
+12. 中共国4月份对美国商品的进口放缓，从而拉大了实现与美国在2020年贸易协议中达成的购买目标的差距。
+
+13. 中共外交部5月24日警告美国和韩国不要干涉台湾问题，因两国领导人上周同意共同致力于寻求台湾海峡的和平与稳定。
+
+14. 5月22日波兰总理马特乌斯·莫拉维茨基参加了波兰民主运动组织“战斗团结组织”的纪念活动，并表示“通往自由的道路是由成千上万的、数以万计的波兰英雄、波兰活动家，如同编织丝网那样不懈努力获得的。”
+
+15. 里克·斯科特参议员5月24日在福克斯发表署名文章表示：无论我们是否喜欢，我们都与中共国处于新冷战中。我敦促我的同事们与我一起抓住这一机会，展示美国解决中国共产党的真正决心。
+
+**二、世界新闻**
+
+1. 布林肯将于5月24日出访中东，向以色列人、巴勒斯坦人和地区参与者施压，要求他们在上周加沙停火的基础上，为最终恢复长期停滞的和平谈判奠定基础。
+
+2. 根据一项新的研究，伊朗正在利用比特币采矿来逃避美国对其经济的严重制裁。区块链分析公司Elliptic估计，全球约有4.5%的比特币挖矿发生在伊朗，使该国能够赚取数亿美元的加密货币，用于“购买进口商品和绕过制裁”。
+
+3. 北极地区成为海军的一个日益增长的行动领域。美国众议院军事委员会副主席Ellen Luria议员希望海军有正确的计划来应对挑战。
+
+4. 据《金融时报》报道，美国同意接受至少15%的最低税率后，法国、德国和意大利表示，新提案为G7在7月前达成国际协议奠定了良好的基础。
+
+5. 美国国务卿安东尼·布林肯5月22日表示，美国正在等待，看朝鲜是否愿意就朝鲜半岛无核化问题开展外交活动。
 
 0
