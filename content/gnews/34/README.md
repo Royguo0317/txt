@@ -1,53 +1,72 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 科顿称福奇给武毒所资金可能是“真正的丑闻”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1267469/)
+## 【战友心声】相对问——灭共三断论
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1267614/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：纽约香草山健身部 澄道
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23201504/c-24.jpg)homelandprepnews.com
-《福克斯新闻》最近半个多月来揭露中共病毒真相天天有内容，参加今天（5月23日）玛丽亚《周日早间未来》的是参议员汤姆·科顿（Tom Cotton）。
 
-《门道专家》（the Gateway Pundit）这样报道，“‘这些所谓的专家中有很多人试图掩盖自己的踪迹，这可能是一个‘真正的丑闻’——参议员汤姆·科顿向福奇和他的武汉研究基金投下了一枚炸弹”。【1】
 
-文章说，众所周知，科顿是第一个在2020年2月提出中共病毒起源于中共国武汉实验室的政治家。（在此笔者插一句，也曾经是塞林博士指责“过去一年对中共病毒不作为”的5名参议员之一【2】）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
-以下是关于功能增强研究进展的时间表，2012年武毒所开始功能增强研究，2014年10月奥巴马政府叫停在美国的功能增强研究，2015年一项美国政府资助实施的功能增强研究在合作者武毒所及中共政府那里进行，2017年川普政府执政第一年，之前被叫停的功能增强研究被恢复，但是谁让这么干的不清楚。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23202009/T1.jpg)
-在他们的讨论中，科顿参议员认为，福奇向武汉实验室提供的国家卫生研究院（NIH）资金可能是“真正的丑闻”。
 
-科顿参议员说：“国家卫生研究院必须坦白告诉我们到底发生了什么……嗯，我认为许多所谓的专家和科学官僚正在试图掩盖他们的行踪。同样，这可能是一个真正的丑闻，这可能是公共卫生官员违反了奥巴马白宫的明确指示，继续进行高度、高度危险、特别容易从实验室泄露的功能增强研究，尤其是在中共国的实验室。”
 
-《福克斯新闻》相关文章的后段有这样报道【3】，科顿参议员在周日谈论了他与参议员罗恩·约翰逊（Ron Johnson）、众议员迈克·加拉赫（Mike Gallagher）和兰德·保罗（Rand Paul）等七位议员，3天前写给美国国立卫生研究院（NIH）院长弗朗西斯·柯林斯（Francis Collins）的信，质询功能增强研究（使病原体更致命或更容易传播）方面的信息。
+![]()![](https://media.discordapp.net/attachments/721544615953432698/844714604995412028/image0.jpg?width=1083&amp;height=609)
 
-信中指出，“自疫情开始以来，中共病毒的确切起源一直难以捉摸”，并指出了最近的事态发展。
+楼震
+币震
+行震
+楼在罢工
+币在罢课
+行在罢市
+欧中震
+日中震
+印中震
+巴中震
+俄中震
+中东震
+震震相联
+世界“三罢”
 
-“最近，为了回应世界卫生组织对中共病毒起源的研究，一个由18名科学家组成的小组在《科学》杂志上发表了一封信，称从实验室泄漏病毒是一个‘可行的’理论，应该进行彻底的调查。”信中接着指出，以前“获得中共国武汉病毒研究所进行蝙蝠冠状病毒研究的信息一直非常困难”。
+四年前
+有多少人恨共产党？
+没几个
 
-议员们要求美国国立卫生研究院提供与2014年几项暂停项目相关的信息和记录，其中“将功能增强研究定义为‘合理预期的具有流感、MERS、或SARS病毒属性的研究项目，使得该病毒通过呼吸途径增强了哺乳动物的致病性和/或传染性。’”
+四年后
+有多少人不恨共产党？
+没几个
 
-这封信还要求柯林斯解释是什么原因促使2014年暂停了功能增强研究，以及谁参与了暂停文件的起草和最终批准。
+共产党
+真的时日不多了！
+No
 
-周日（5月23日），科顿告诉主持人玛丽亚，他签署的这封信“非常明确地问国家卫生研究院为什么要资助武汉实验室的这些功能研究。”
+共产党
+你完球蛋了！
+Yes
 
-“福奇去过国会，他说这绝对没有发生，但福奇在玩文字游戏。” 他继续说，“国家卫生研究院的钱给了一个美国组织，这个组织转过身，给了武汉的实验室几十万美元，用来研究新型的冠状病毒，想办法让它们更具传染性和危险性。”
+（本文仅代表作者观点）
 
-“我们请弗朗西斯·柯林斯（Francis Collins）坦白，告诉我们到底发生了什么，为什么要资助这种项目的研究……在奥巴马政府明确禁止这种功能增强的研究的时候，对一些最致命病原体的研究变得更危险。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
 
-福奇和国家过敏与传染病研究所（NIAID）的发言人没有立即回应《福克斯新闻》的置评请求，国家卫生研究院是福奇的下属机构。
+校对/发稿：Irene木木
 
-科顿对玛丽亚说：“我认为这可能是一个范例，这些公共卫生官员认为他们更清楚，他们继续进行这种非常危险的项目研究，即使奥巴马政府，也不会对政治监督和问责负责，这就是为什么要国家卫生研究院必须坦地白告诉我们到底发生了什么。”
+**更多资讯，更多关注**
 
-还应该让他们坦白，为什么要亲自诋毁冒着生命危险揭露中共罪恶的天使闫博士？
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-参考链接：
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-【1】[https://www.thegatewaypundit.com/2021/05/lot-called-experts-trying-cover-tracks-genuine-scandal-sen-tom-cotton-drops-bomb-fauci-wuhan-research-funding-video/](https://www.thegatewaypundit.com/2021/05/lot-called-experts-trying-cover-tracks-genuine-scandal-sen-tom-cotton-drops-bomb-fauci-wuhan-research-funding-video/)
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-【2】[https://gnews.org/zh-hans/1150709/](https://gnews.org/zh-hans/1150709/)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-【3】[https://www.foxnews.com/politics/sen-cotton-biden-has-been-rolling-over-for-aggressors-around-the-world](https://www.foxnews.com/politics/sen-cotton-biden-has-been-rolling-over-for-aggressors-around-the-world)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+
 
 0

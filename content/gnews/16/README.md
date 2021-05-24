@@ -1,55 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《福克斯商业》追查中共病毒零号病人
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1267808/)
+## 【热点播报】印度爆发新冠病毒变种是大规模接种疫苗而来的吗？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1267876/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：纽约香草山媒体部 7bends
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23224152/I-18.jpg)plague.info
-在报道中共病毒方面，《福克斯商业》不甘落后于《福克斯新闻》，以不同视角来揭露中共病毒真相，其关注点放在了零号病人方面，并发表文章，题目为“有关生病的武汉实验室职员引发对中共病毒（COVID-19）来源争论的报告”，副标题说，中共批评该报告试图转移人们对中共病毒探究的注意力。
 
-全文如下：
 
-根据此前未披露的美国情报报告，中共国武汉病毒研究所的三名研究人员在2019年11月病得严重，他们寻求医院治疗，这可能会增加人们越来越多地呼吁对中共病毒是否可能从实验室泄露进行更全面调查的呼声。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-报告的细节超出了美国国务院在川普总统政府最后几天发布的一份情况说明书，说明书称，该实验室（中共病毒和其他病原体的研究中心）的几名研究人员在2019年秋季患病，“症状与中共病毒和常见季节性流感一致”。
 
-在世界卫生大会召开前夕，研究人员的人数、患病时间和医院就诊情况被披露，预计会议将讨论对中共病毒起源的下一阶段调查。
 
-熟悉实验室研究人员情报的现任和前任官员对评估支持证据的强度表达了不同的看法，一人说，这是一个国际伙伴提供的，可能意义重大，但仍需要进一步调查和进一步证实。
+5月20日，Ethan Huff 在*Natual News*上撰文称，印度现有的3532个正在流传的新冠病毒变种几乎都是在人群开始大量接种疫苗后立即出现的。
 
-另一个人形容这种情报很强有力，“我们从各种渠道得到的信息质量很好，非常精确，（但）它没有告诉你他们生病的确切原因。”
+![]()![](https://media.discordapp.net/attachments/824587088309649429/846103721942188062/image0.jpg?width=1083&amp;height=609)
 
-大约在2019年11月，许多流行病学家和病毒学家认为，中共病毒（疫情背后的病毒）首先开始在中共国中部城市武汉传播，北京说，武汉的第一例确诊病例是一名男子，他于2019年12月8日患病。
+《The Hindu》5月6日报道，印度的27个州都有这些变异病毒。据称，在确定的3532种变异中，被称为B.1.617的双重突变株的数量正在上升，而源于英国的B.1.1.7变种正在减少。这也促使印度政府宣布，正在遭受新冠病毒的第三波攻击。究其原因，印度政府认为B.1.617可能与在过去几周造成大量死亡的第二波疫情有关。与此同时，中共却对印度因新冠疫情造成大量死亡进行嘲笑。
 
-武汉研究所还没有分享其广泛研究蝙蝠冠状病毒的原始数据、安全日志和实验室记录，许多人认为蝙蝠冠状病毒是最可能的病毒来源。
+Ethan Huff问到，虽然印度卫生部将其破纪录的每日死亡人数归咎于变种，但这不会是大规模注射疫苗而引起的吗？在此之前，印度的疫情一直控制的很好。
 
-中共国一再否认病毒从它的一个实验室泄露，中共外交部（曾经）引用了世卫组织领导的一个调查小组的结论，该小组在2月份访问武汉病毒研究所（WIV）后得出结论，称实验室泄漏的可能性极小，中共外交部在回应《华尔街日报》的置评请求时说：“美国继续炒作实验室泄漏理论，它是确实在追根溯源，还是试图转移注意力？”
+![]()![](https://media.discordapp.net/attachments/824587088309649429/846103722421649448/image1.jpg?width=626&amp;height=609)新闻截图
 
-拜登政府拒绝对这一情报发表评论，但表示，世卫组织和国际专家应调查所有在技术上可信的疫情起源理论。
+看了这篇文章，让笔者联想到5月18日诺贝尔医学奖得主法国病毒学家吕克-蒙尼耶教授（Prof. Luc Montagnier）发表的观点，他认为大规模的疫苗接种创造了病毒变异。
 
-国家安全委员会的一位发言人说：“我们仍然对中共病毒疫情的最初几天，包括它在中共国境内的起源有严重的疑问。”
+同时，这更让笔者想到，爆料革命文贵先生很早就说过，共产党用冠状病毒和疫苗经济来控制世界，而疫苗经济、疫苗政治最后一定会演变成疫苗灾难、疫苗战争。
 
-这位发言人说：“我们不会发表声明，预先判断世卫组织正在进行的关于中共病毒来源的调查，作为一项政策，我们从不评论情报问题。”
+参考阅读：
 
-北京方面还声称，该病毒可能起源于中共国境外，包括马里兰州德特里克堡军事基地的一个实验室，并呼吁世卫组织调查其他国家的早期疫情。
+[Explosion of 3,500 new covid “variants” follows mass vaccination campaign in India](https://www.naturalnews.com/2021-05-20-3500-covid-variants-mass-vaccination-campaign-india.html)
 
-大多数科学家说，他们没有看到任何证据证实病毒来自美国军事实验室的说法，白宫也表示没有可信的理由要对此进行调查。
+[Bombshell: Nobel Prize Winner Reveals – Covid Vaccine is ‘Creating Variants’](https://rairfoundation.com/bombshell-nobel-prize-winner-reveals-covid-vaccine-is-creating-variants/)
 
-中共卫生部和世界卫生组织没有回应置评请求，武汉病毒研究所的顶级蝙蝠冠状病毒专家石正丽曾表示，该病毒并没有从她的实验室泄漏。她告诉世卫组织领导的小组，今年早些时候，该小组前往武汉调查病毒的来源，所有工作人员的中共病毒抗体检测均为阴性，中共病毒小组没有人员流动。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
 
-该团队的荷兰病毒学家马里恩·库普曼斯（Marion Koopmans）今年3月告诉《NBC新闻》，武汉病毒研究所的一些员工确实在2019年秋天生病，但她将其归因于经常性的季节性流感。
+编辑/校对/发稿：Irene木木
 
-“偶尔会得流感，这很正常，没有什么特别的。”她说，“也许一两个，当然不是什么大事。”
+**更多资讯，更多关注**
 
-（原文完）
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-采访、了解零号病人？除非调查机构保证被采访者的安全，否则问不出真相。一年半的时间过去了，洗脑、威胁等各种手段都会用上，零号病人如今是否还活着都不能保证，对此调查笔者不抱希望。
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-原文链接：
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-[https://www.foxbusiness.com/healthcare/intelligence-on-sick-staff-at-wuhan-lab-fuels-debate-on-covid-19-origin](https://www.foxbusiness.com/healthcare/intelligence-on-sick-staff-at-wuhan-lab-fuels-debate-on-covid-19-origin)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-+1
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+0
